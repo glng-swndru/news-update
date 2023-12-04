@@ -1,51 +1,11 @@
 # Latest News
--  Empresas de Sorriso contratam 214 novos profissionais
--  رزنـامـة غنيَّة بالفـعـاليـات المتنـوعـة خلال ديسـمبـر
--  Evo šta se događa u tijelu nakon jedne neprospavane noći
--  Fenerbahçe, zirve yarışında doludizgin
--  ABD Kızıldeniz'de gemilerine düzenlenen saldırıdan İran'ı sorumlu tuttu
--  Üsküdar'da İETT otobüsü yandı
--  Homem é atacado por enxame e leva mais de 500 ferroadas de abelhas em Rio Claro
--  Vanessa López deja en SHOCK al revelar que DJ Red es el padre de su primer hijo: ‘No lo firmó'
--  Promi Big Brother: Yeliz Koc gewinnt Promi Big Brother
--  B.C. farmers face third year of crop loss as pipeline project drags on
--  Akosombo Dam Spillage: Dainess Foods Supports Flood Victims
--  Tanzanya'daki sel ve heyelanda can kaybı yükseldi
--  Polis memuru kalp krizi sonucu hayatını kaybetti
--  Nevşehir'de kırmızı ışık ihlali kazaya neden oldu!
--  Çorum'da deprem!
--  Antalya'da 3 katlı boş otel lojmanı çöktü
--  Mom accuses landlord of removing windows after joining OnlyFans to pay for heat
--  हथियार नहीं, गीता के श्लोक लिखेंगे जम्मू-कश्मीर में नई इबारत, मनाया जाएगा गीता महोत्सव
--  عرض جديد من الزمالك لحل أزمة غرامة سبورتنج لشبونة
--  Kızılhaç: Gazze'de düzeltilemeyecek bir durumla karşı karşıyayız
--  Подкаст свежего номера: 5 декабря 2023 года
--  RHOBH’s Kyle Richards opens up about how friend’s death affected her marriage
--  Don Omar anuncia una nueva gira por Estados Unidos y Canadá en 2024
--  Borja Prado dimite como presidente de Mediaset España
--  Borja Prado dimite como presidente de Mediaset España
--  పోలవరం.. ముందుకు కదిలేనా?
--  John Fetterman Calls Philly Rioters 'Pathetic', Says They're Motivated by 'Rank Antisemitism'
--  Aumenta la preocupación por los asesinatos de cinco mujeres en Carabobo en menos de una semana
--  Aprende de Publicidad Programática en el próximo Summit
--  Совмин Белоруссии продлил регулирование цен на стройматериалы
--  Aaj Ka Tarot card: इन राशि वालों के लिए खास संकेत दे रहा है आज का टैरो कार्ड, बदल सकती है किस्मत
--  Cómo calcular la gratificación de diciembre: ¿cuánto me toca recibir de aguinaldo?
--  Mercato - PSG : La succession de Mbappé totalement relancée ?
--  Sibel'i öldürüp 'intihar etti' diye ihbarda bulundu
--  الدحيل يختتم مشواره القاري
--  Roboti spasavaju Ruse na frontu! Neverovatno, ali postoji dokaz - morate videti (FOTO)
--  Midweek di Premier League, il pronostico di Luton-Arsenal
--  Zapata, doppietta e lacrime per Juric che commenta così dopo Torino-Atalanta
--  AEW Rampage Rating Rises With Friday Return, Viewership Hits Seven-Week High
--  «Женское движение» будет помогать в регионах родственникам участников спецоперации
--  Совмин Белоруссии поручил послу в Москве подписать соглашение с РФ о ценных бумагах
--  చప్పగా బస్సు యాత్ర!
--  Cabello asegura que trabajarán en una ley para crear el estado Guayana Esequiba
--  El Eibar también falla en Villarreal y se queda sin segunda plaza en LaLiga Hypermotion
--  La Mau devela su nuevos sencillo “QDATE”, bajo la bandera Swaq Records
--  Golden Boy nagrada u rukama Judea Bellinghama
--  Upcoming IPO - मालामाल कर देगा DOMS, प्राइस अनाउंस होने से पहले GMP 200 हो गया
--  Man who posed as agent and offered gifts to Secret Service sentenced to nearly 3 years
--  ఏపీలో ఆ మూడు పార్టీలు ఒక్కటవుతాయి
--  El sirirí de 'Jóvenes a la U' y la desfinanciación de la universidad pública
+-  Desapareció juarense en Parral desde el pasado 20 de noviembre
+-  Canadians can now buy tickets via Ticketmaster within TikTok
+-  Presidente da Fiesc visita fábrica da BRF nos Emirados Árabes Unidos
+-  Gobierno de Petro y ELN retoman diálogo en México en medio crisis tras rapto de padres de Luis Díaz
+-  中 “요소 수출 중단, 자국 내 수급 문제로 보여”
+-  이스라엘 “하마스 섬멸될 때까지 가자지구에 머물 것”
+-  Kishan Reddy : మా పోరాటం.. కాంగ్రెస్‌కు కలిసొచ్చింది
+-  Rússia começa a enviar primeiros lotes de grãos gratuitos para nações africanas em dificuldades
+-  Rafael Ángel ‘Felo’ García, pintor y arquitecto, fue despedido entre el cariño y recuerdo de sus seres queridos
+-  Critics Have Seen Wonka, And The Timothée Chalamet Film Is Getting Both Sour And Sweet Reactions
