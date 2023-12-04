@@ -1,51 +1,51 @@
 # Latest News
--  ضبط سائق شاحنة تسبب بوفاة أحد مرتبات الدوريات الخارجية
--  حماس: حديث الاحتلال عن رفضنا إطلاق سراح مدنيات غير صحيح
--  أحد سكان غزة: عائلتي نزحت 4 مرات خلال هذه الحرب
--  أهمها بريطانيا.. إسرائيل تحذر رعاياها من السفر إلى هذه الدول أو الإعلان عن هويتهم فيها
--  6 أطعمة تسبب ظهور حب الشباب.. احذرها
--  Trzeci z rzędu spadek cen ropy, jest najtańsza od ponad 2 tygodni
--  В Курске за 2023 год около 230 тысяч квадратных метров жилья введено в эксплуатацию
--  بيلينجهام يحصد جائزة الفتي الذهبي برقم قياسي
--  키움, 팬 초청 일일자선카페 개최...수익금 유소년 야구선수 위해 활용
--  سلطان بن أحمد يلتقي مسؤولاً كورياً
--  Pioneering the future: An innovative approach to plant synthetic genomics
--  Izraelska vojska poručila WHO-u da ukloni medicinske zalihe iz južne Gaze
--  لياو يكشف آخر تطورات إصابته وموعد عودته
--  Čović: Uz malo mudrosti možemo pokazati zajedničku evropsku opredijeljenost
--  Snimka sa svadbe u Zadru oduševila ljude: Jose je imao samo jednu želju...
--  [오늘날씨] 전국 기온 올라 ‘포근’…큰 일교차에 주의
--  Troncal 10// Regresaba de Brasil y fue asesinada en intento de robo al bus
--  Five Below has $5 holiday pajamas, and they’re going fast
--  Todorović (RIK) o falsifikatima: Građani s pravom mogu da sumnjaju u regularnost izbornog procesa
--  Putin odbio da pritisne simulaciju tastera za nuklearno oružje na izložbi
--  Путин: наказания по наркотическим преступлениям нельзя либерализовать бездумно
--  Rookies du mois : Chet Holmgren et Jaime Jaquez Jr. récompensés, pas de Victor Wembanyama
--  ‘Goonies’ Star Sean Aston Embraces Nepo Baby Status: “I Don’t Begrudge Myself Having Been Born Into A Family Where I Was Given A Lot”
--  Predstavljanje knjige 'Bosanski jezik i komunikacija u nastavnoj praksi' u četvrtak
--  5 декабря 1803 года родился поэт и дипломат Федор Тютчев
--  ماذا قال حجازي بعد فوز الاتحاد أمام سباهان؟
--  Israel raises Australia travel warning over fears of anti-Semitism
--  Big White opening day delayed again as enough snow fails to materialize
--  Női kézi vb: fájó vereséget szenvedtünk Montenegrótól
--  Purple Announces Positive Black Friday/Cyber Monday Weekend Selling Period and Reiterates 2023 Full Year Outlook Ahead of Investor Conferences
--  "Ho una domanda per voi". Vannacci sotto inchiesta, Porro si scatena contro i magistrati | Video
--  We have £40,000 of prizes up for grabs – here’s how to enter for free
--  Inicia USJT curso-taller nacional para la capacitación del Protocolo para la Actuación Policial ante Casos de Violencia contra las Mujeres y Feminicidio
--  Como evitar ereções espontâneas após a cirurgia de fimose?
--  Alaska-Hawaiian merger faces a Justice Department that has been skeptical of airline deals
--  Arrestan al exembajador de EE.UU. Víctor Rocha acusado de espiar para Cuba
--  Tennis : quand un espoir français de 17 ans tape la balle avec... Rafael Nadal
--  Tennis : «J'attends de moi de ne rien attendre en particulier», Rafael Nadal se veut modéré sur son retour
--  Ligue 1 : sans «se victimiser», l'OL a encore «un peu de craintes» avant de se rendre à Marseille
--  Premier League : Mikel Arteta en admiration devant le club de Luton
--  Ligue 1 : à quelle heure et sur quelle chaîne suivre OM-OL ?
--  Premier League : Newcastle perd Nick Pope pour quatre mois
--  Foot : Patrick Kluivert n'est plus l'entraîneur d'Adana Demirspor
--  Foot : une nouvelle formule de la Ligue des champions féminine sera mise en place à partir de la saison 2025-2026
--  AB Yüksek Temsilcisi Borrell: Gazze'de olanlar 'katliam'
--  Tarih belli oldu: Bakan Fidan ABD'li mevkidaşı Blinken ile görüşecek
--  Palestinians flee Israeli military push into southern Gaza
--  Polizei berichtet von 26 Glätteunfällen in Mittelhessen
--  США в первые дни СВО ждали, что Россия возьмет Киев
--  Σε απόσταση αναπνοής η ΑΕΚ με λυτρωτή τον Βίντα
+-  CHP'de HEDEP'in tek başına seçime girme kararı ilk kez değerlendirildi
+-  La OFMA presentará una “Navidad que vuelve” en Lechería
+-  Iers experiment: geen mobiele telefoon voor kinderen
+-  “너희 지금 심판 욕했네, 선수들 관리 안 해?” 잉글랜드 축구협회, 결국 맨시티 기소
+-  Avokatja: Suedia mund të kërkojë ekstradimin e Naim Murselit
+-  Hüquq müdafiəçisnin saxlanıldığı bildirilir
+-  익산시 용안생태습지 밑그림 그리고 2026년 지방정원 등록
+-  J Balvin se va de gira por Europa en 2024
+-  Former Gorakhpur paediatrician Kafeel Khan says his family, elderly mother fear renewed intimidation
+-  Poważny zagraniczny kandydat na trenera Wisły Kraków. Szeroko znane nazwisko
+-  David Ospina lidera la convocatoria de Colombia para los amistosos con México y Venezuela
+-  Safra move ação judicial para impedir recuperação judicial da Americanas
+-  Un gobierno calamitoso
+-  Filistin Kızılayı Gazze'deki ekibiyle irtibatının kesildiğini duyurdu
+-  Hakkında verilen hapis cezası onandı: Nazlı Ilıcak cezaevine girdi
+-  Humillación y vergüenza
+-  New Early Childhood Education Report Explores Opportunities for Improving Curriculum and Classroom Resources
+-  Vancouver home sales rise amid ‘balanced’ market as newly-listed properties add to supply
+-  Nadie hablará de las mujeres israelíes cuando estén muertas
+-  فيديو.. أحمد موسى: مصر لا تأخذ إذن إسرائيل أو غيرها فيما يتعلق بعودة مواطنيها من قطاع غزة
+-  Nada es verdad ni mentira
+-  En manos de un tal Galindo Vélez
+-  Растим лидеров
+-  NYC’s newest speakeasy now serving tentacle dishes and Vegemite cocktails
+-  Miquel Iceta serà ambaixador d’Espanya davant la Unesco
+-  Nazlı Ilıcak cezaevine girdi
+-  Frente Parlamentar do Comércio debater o fomento ao comércio exterior
+-  Maioria da população já sofreu com eventos climáticos extremos
+-  Corpo de Bombeiros realiza 5º seminário de Segurança Contra Incêndio e Pânico
+-  Paulista A4: Independente de Limeira acerta com novo lateral esquerdo para 2024
+-  Número de funcionários portuários detidos por suspeitas de tráfico de droga dispara
+-  Cleverly pledges to deliver biggest ever reduction in net migration
+-  Balıkesir'de emanet aldığı motosikletten düşen genç hayatını kaybetti
+-  Bengals vs. Jaguars ‘Monday Night Football’ NFL DFS picks: Joe Mixon, Tee Higgins
+-  Кузнецов: «Хочу поиграть за «Трактор» в конце карьеры»
+-  "أصابع كوفيد".. علامة مزعجة لفيروس كورونا تتشابه مع نزلات البرد
+-  L'art du crime : mauvaise nouvelle, vous allez devoir attendre avant de voir la suite !
+-  Fotbalová Premier League prodala vysílací práva za rekordních 190 miliard korun
+-  Here’s what ‘Golden Bachelor’ Gerry Turner told runner-up Leslie off-camera that led to blindside
+-  "그의 이름은 전혀 나오지 않았다" '악동' CY 수상자 메이저 복귀 물거품? 美 현지 전망 최악이다
+-  조우종, ♥정다은의 합방 제안에 "무슨 소리를 하는 거냐…각방 살이도 문제無" [동상이몽](MD리뷰)
+-  “오타니, 6억달러 세팅?” 美에이전트들도 확신…토론토 급부상? 다저스 대세론 ‘확고’
+-  Dictarán hasta 5 años de prisión por entorpecer el funcionamiento de transporte público
+-  Exclusive: A Prominent Election Rights Lawyer Is Calling Out Atlanta’s Voter Suppression on Cop City Referendum
+-  Spotify recortará 1.500 empleos en la tercera tanda de despidos del año
+-  Fue dos muertos y un herido el saldo del enfrentamiento en El Sauz el día de ayer
+-  Fenerbahçe teknik direktörü İsmail Kartal'dan derbi mesajı
+-  New Brunswick unions consider job action over pension bill
+-  Toronto police arrest 16-year-old girl, 2 others following gun seizure
+-  "Bauer sucht Frau": Hans im Glück
