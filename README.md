@@ -1,11 +1,11 @@
 # Latest News
--  외면받는 바이오시밀러도 있다?
--  ظاهرة «النينيو» تقتل 120 شخصا في فيضانات كينيا.. ماذا يخبئ لنا الشتاء؟
--  क्या 'डिनर पॉलिटिक्स' के जरिए दिल्ली को संदेश देना चाहती हैं वसुंधरा राजे? घर पहुंचे कई विधायक
--  Pirates fan: Winnie Mashaba’s dance shuts down FNB stadium [watch]
--  Details and Numbers: What is Russia's Unbeatable Avangard Hypersonic Weapon?
--  Scintillating, steamy Singapore
--  아이폰 인도 공장, 폭우에 일시 가동 중단...애플 주가 1.7%↓
--  टी20 वर्ल्ड कप के लिए तैयार है यंग इंडिया, अब इन 5 खिलाड़ियों की वापसी मुश्किल!
--  Coche del Año de los Lectores: las seis marcas finalistas defienden sus candidaturas
--  Madden 24 players debate whether or not revamped blocking system works
+-  Horror as man, 25, is buried alive in 5ft-deep sand pit after freak beach BBQ accident in front of horrified friends
+-  غداً .. انطلاق المؤتمر والمعرض الدولي للتمور في نسخته الرابعة بالرياض
+-  Dječak-ubica Kosta K. šokirao na saslušanju, otkrio šta mu najviše nedostaje
+-  Mets interested in Michael A. Taylor
+-  2024 Budget: Buhari, Obasanjo, Jonathan, others get N13.8bn as upkeep allowance
+-  Stuart Baxter: Taas potkut
+-  Ogun Poly Shutdown Over Attacks On Students
+-  Άρχισαν οι συμπληρωματικές απολογίες των Κροατών Χούλιγκαν για τη Νέα Φιλαδέλφεια
+-  Ook sportspullen vernield tijdens sloop van 't Verlaat in Almkerk: CDA Altena stelt vragen
+-  যেভাবে সুইচ দিচ্ছে, সেভাবে রোবট কমিশনাররা কাজ করছেন: রিজভী
