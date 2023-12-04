@@ -1,11 +1,11 @@
 # Latest News
--  KISS se retira definitivamente de los escenarios
--  A of VVD voters and 10% of NSC voters regret their choice; Would vote for other parties
--  Orozco ya entendió que yo soy Gobernador: Samuel
--  Registró Chihuahua las temperaturas más bajas
--  Amethi News: हर तीसरे मरीज को बुखार, अस्पताल में लगी लंबी कतार
--  Amethi News: पुलिस ने कब्जे में लिए मुआवजा घोटाले के रिकॉर्ड, जांच तेज
--  Amethi News: खांसी के सीरप का नमूना फेल, कार्रवाई तेज
--  Aligarh News: दूल्हे के मौसा से पौने दो लाख का बैग छीन ले गए बदमाश
--  Jind News: पैसे ऐंठने की कोशिश करने पर चार नामजद
--  Jind News: फरैण कलां और धरौदी पहुंची विकसित भारत संकल्प यात्रा
+-  ‘The Golden Bachelor’: Leslie Fhima Can’t Say She ‘Respects’ Gerry Turner After the Breakup
+-  Csak nyáron jöhet a Dragon Age: Dreadwolf teljes leleplezése
+-  Governador articula venda de créditos de carbono de Mato Grosso a Singapura; “temos todo interesse”
+-  İsmail Kartal'dan Beşiktaş derbisi öncesi flaş sözler!
+-  ارشد شریف کے قتل پر کینیا کے ٹی وی کی تحقیقات
+-  Bühnenglanz in Erlangen: Argentinischer Countertenor Fagioli verzaubert das Publikum
+-  Telecom brinda a Cheeky la solución de Comunicaciones Unificadas para todos sus locales en la Argentina
+-  Estas son las comunidades en España en las que NO hay clases este puente de diciembre
+-  Social robots could be an effective tool to combat loneliness, according to study
+-  News24 | SA inflated the number, there were only 124 unaccompanied children, Zimbabwe shoots back
