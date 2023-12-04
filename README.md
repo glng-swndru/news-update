@@ -1,51 +1,51 @@
 # Latest News
--  Bald ist Nikolausabend da...
--  Ibrahimovićev sin prvi put trenirao s reprezentacijom
--  Ludnica u Areni: Prijović na pozornicu izvela Rozgu i Brenu
--  Tanzanya'da şiddetli yağış sele neden oldu: 63 kişi hayatını kaybetti
--  Dilan ve Engin Polat'ın yabancı uyruklu çalışanı ve akrabası sınır dışı edilecek
--  ABD'den Irak'ta insansız hava sistemi saldırısı... 5 militan öldürüldü
--  Servet Çetin: Basit hatalarla gol yedik
--  Soykırım destekçisi ABD'den çelişkili açıklamalar
--  Kızıldeniz'de ABD gemileri hedef alınmıştı... ABD, İran'ı sorumlu tuttu
--  Antalya'da tadilatta bulunan 3 katlı bina çöktü
--  4'lüleri yaktı Kartal'ı bekliyor
--  "Artık Beşiktaş'a odaklıyız"
--  Juve'nin "Ocak"taki aşkı Icardi!
--  "Arda altın çocuk olur"
--  "Türkiye'de kahraman"
--  İstanbul'un İEET çilesi... Yanan otobüs kullanılamaz hale geldi
--  İşgalci İsrail'in bombardımanı sonucu Lübnan'da elektrikler kesildi
--  İsrail ordusunda Aksa Tufanı krizi... 7 Ekim öncesi araştırılacak
--  "Hakkın sesini haykıracağız"
--  KONGRE
--  Derbi için moral oldu
--  Mehmetçik 24 ay daha Libya'da... Karar Resmi Gazete'de yayımlandı
--  Süper Lig'de 14. hafta sona erdi
--  Россиянам объяснили, можно ли заставить такси подешеветь
--  La más negra novela
--  Inter menang mudah di Napoli
--  Viewers call for Deb Knight to replace Ally Langdon on A Current Affair after her 2GB show was axed
--  שנה אחרי הגירושים: לא תאמינו מי הספורטאית שצמודה לכדורגלן הפועל באר שבע
--  מזל דגים, תחזית הורוסקופ יומית 05.12.2023
--  מזל דלי, תחזית הורוסקופ יומית 05.12.2023
--  מזל גדי, תחזית הורוסקופ יומית 05.12.2023
--  מזל קשת, תחזית הורוסקופ יומית 05.12.2023
--  מזל עקרב, תחזית הורוסקופ יומית 05.12.2023
--  מזל מאזניים, תחזית הורוסקופ יומית 05.12.2023
--  מזל בתולה, תחזית הורוסקופ יומית 05.12.2023
--  מזל אריה, תחזית הורוסקופ יומית 05.12.2023
--  מזל סרטן, תחזית הורוסקופ יומית 05.12.2023
--  מזל תאומים, תחזית הורוסקופ יומית 05.12.2023
--  מזל שור, תחזית הורוסקופ יומית 05.12.2023
--  מזל טלה, תחזית הורוסקופ יומית 05.12.2023
--  תלונות בלונדון: נהגי אוטובוסים סירבו להעלות ילדים יהודים
--  דיווח: ישראל הקימה מערך משאבות כדי להציף את מנהרות חמאס
--  이안, 선박해양 의장설계 디지털전환 핵심 기술개발 사업 선정
--  [기자수첩] 아이스크림에 가공유 써라? 스킴플레이션 부추길라
--  Young 'bridezilla' slammed over outrageous list of wedding demands - as she bans her bridesmaids from eating until dinner
--  'Izrael tjera palestinske civile da se sele s jednog polja ubijanja na drugo'
--  I'm A Celebrity fans predict war between Tony Bellew and Fred Sirieix as tensions simmer between pair after First Dates star irritates boxer with his eagerness to do Bushtucker Trial
--  스포츠 테크기업 '크리에이츠', 상장 예비심사 통과
--  Alcaldía de Maturín celebra 263 años de la fundación de la Sultana del Guarapiche
--  Helen Flanagan leaves little to the imagination in lacy cut out dress on glam night out
+-  Provocou? Cruzeiro fala em 'pipoca' ao divulgar bastidores de empate com o Botafogo
+-  İsveç bankasına 123 milyon dolar ceza: ABD'lilerin vergi kaçakçılığına yardım
+-  Bijna 4 op 5 mensen shoppen online, vooral twintigers en dertigers
+-  En Aquiles Serdán permanecen con 39% de sobrepoblación
+-  Se encontraba comiendo pollo y de pronto murió
+-  ‘Organizaciones civiles aportan 6 de cada 100 empleos directos’
+-  EU will Preisdeckel für russische Ölexporte verschärfen
+-  Fox Valley Hands of Hope offers holiday grief support
+-  Julia Roberts reflects on brief relationship with late Matthew Perry
+-  برعاية معالي وزير الدفاع.. كلية الهندسة تحتفل بتخرج الدفعة الـ 18 لطلاب قسم تكنولوجيا المعلومات بجامعة عدن
+-  'I hope this award encourages others to follow the path I took'
+-  Woman, 92, dies after being hit by car in Liverpool
+-  Christmas panto Aladdin flies into St Helens Theatre Royal
+-  Eight friends each affected by cancer win award for Kili climb
+-  Police charge 'retail theft' suspect in Prescot
+-  Police make drugs arrests after attending property in Prescot
+-  How much is the BBC TV Licence fee? What UK households spend a year
+-  Closure on M58 due to 'police incident'
+-  California Reading Program Sees Positive Results, Study Finds
+-  Retired U.S. Diplomat Manuel Rocha Accused of Spying for Cuba
+-  Tyler Goodson of 'S-Town' Podcast Is Shot Dead in Police Standoff
+-  Sultan Al Jaber Tries to Calm Uproar Over a Remark on Fossil Fuels
+-  A Prison at War: The Convicts Sustaining Putin's Invasion
+-  California Reading Program Sees Positive Results, Study Finds
+-  This Building Was Deemed 'Outright Inhumane.' But They Say It's Home.
+-  Sultan Al Jaber Tries to Calm Uproar Over a Remark on Fossil Fuels
+-  What We Know About Sexual Violence During the Oct. 7 Attacks on Israel
+-  Opinion | Mergers Like JetBlue's Proposed Acquisition of Spirit Usually Turn Out to Be Bad
+-  White House Condemns Protest at Israeli Restaurant in Philadelphia
+-  This Building Was Deemed 'Outright Inhumane.' But They Say It's Home.
+-  What We Know About Sexual Violence During the Oct. 7 Attacks on Israel
+-  Opinion | There Are Politicians Who Lie More Than Is Strictly Necessary
+-  Opinion | Mergers Like JetBlue's Proposed Acquisition of Spirit Usually Turn Out to Be Bad
+-  Why a Second Trump Presidency May Be More Radical Than His First
+-  U.S. Considers Task Force to Guard Red Sea Ships From Iranian Proxy Forces
+-  Israeli Troops Have Advanced Into Southern Gaza
+-  Opinion | There Are Politicians Who Lie More Than Is Strictly Necessary
+-  R.F.K. Jr. Allies Say They'll Spend Over $10 Million on Ballot Access
+-  Why a Second Trump Presidency May Be More Radical Than His First
+-  Best Theater of 2023
+-  R.F.K. Jr. Allies Say They'll Spend Over $10 Million on Ballot Access
+-  Retired U.S. Diplomat Manuel Rocha Accused of Spying for Cuba
+-  Best Theater of 2023
+-  A Prison at War: The Convicts Sustaining Putin's Invasion
+-  2023 sera une bonne année pour la récolte des avocats en Israël.
+-  U.S. Moves to Crack Down on Money Behind Fentanyl Trade
+-  Attaque à Paris: le RN et la droite à l'offensive pour étendre le dispositif au terrorisme
+-  Guillaume Tabard: «Sous les raisons médicales, un fondement idéologique»
+-  Sachets, perles de nicotine... Ces alternatives inquiétantes qui pourraient remplacer la puff
+-  La rétention de sûreté, une mesure que l'on prononce avec mille précautions
