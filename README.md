@@ -1,0 +1,52 @@
+# Latest News
+
+-  बजेट कार्यान्वयनका लागि सचिवहरूलाई निर्देशन
+-  अपाङ्गता दिवसमा स्वास्थ्य शिविर
+-  डलर तथा नक्कली सुन देखाइ ठगी गर्ने ६ जना पक्राउ
+-  गोरखापत्र र त्रिवि पुस्तकालयबिच १० बुँदे समझदारी
+-  राष्ट्रिय सभा निर्वाचनका लागि दल दर्ता गर्ने नेकपा एकीकृत समाजवादीको निर्णय
+-  Aanleg kunstgrasveld kan beginnen in Lopik
+-  Аналитики Kpler: поставки российского СПГ в Европу побили исторический рекорд
+-  شيخ الصيادين يكشف مفاجأة بشأن «نوة قاسم».. لماذا تأخرت؟
+-  ব্র্যাক ব্যাংকে চাকরি, আবেদন স্নাতক পাসে
+-  Jammu And Kashmir | Supreme Court’s Judgment In Article 370 Case To Be Pronounced This Month
+-  প্লাস্টিক বর্জ্যের ক্ষতির দিক আবারও মনে করিয়ে দিতে হবে
+-  Adventi ételosztás volt Tégláson
+-  Homem é ferido a tiro após ameaçar a própria mãe e policial de morte em Feijó
+-  문경시의회 제272회 제2차 정례회 개회…고충민원조정관 구성 등 조례 심의
+-  대구대 글로벌브릿지 영재교육원, 2023 성과보고회·수료식 개최
+-  문경대 간호학과, 제27회 나이팅게일 선서식 개최
+-  동국대 WISE캠퍼스-다도협회, 대학원 교육과정 위탁교육 협약 체결
+-  국립안동대 식품영양학과, 경북북부지역 최초 ‘영양사 교육과정 평가·인증’ 획득
+-  경북도의회 건설소방위, 신공항 대비 비행장 주변 소음실태 확인
+-  대구시립극단, 제56회 정기공연 연극 '여기가 집이다'·'모두의 남자' 무대
+-  ‘Elvis’ Director & Red Sea Jury Head Baz Luhrmann Gives Update On His Next “Major” Directing Project — Red Sea Studio
+-  명창 박록주 선생 테마 웹툰 ‘오! 록주’, 카카오페이지 통해 7일부터 연재 시작
+-  Guía de Incursión de Mega Altaria en Pokémon Go: Debilidades y mejores counters
+-  "يونيسف": إنذار أخير لإنقاذ أطفال غزة
+-  WiMi Announced Motion Artifact Suppression and Morphology Optimization Algorithm for fNIRS Signals
+-  Investing Is The Top Way to Financial Security, Moomoo Users Reveal In The 3Q Survey
+-  Govee Partners with Warner Bros. for "Aquaman and the Lost Kingdom" to Bring an Immersive Lighting Experience to Fans
+-  Crystal Pharmatech's CDMO Business Unit successfully passed the dual certification of GMP and GDP conducted by SGS
+-  Skincare Delights: d'Alba's #1 Status and Holiday Surprises Await!
+-  Man left partner ‘covered in bruises’
+-  В Брянске опровергли сообщение, что улице присвоят имя Адама Кадырова
+-  Projet de service d’entretien des compresseurs du port de GAC
+-  „Rote Rosen“: Vorschau ab Dienstag, 5.12.2023 – Wie geht es weiter?
+-  ডেঙ্গুতে ২ জনের মৃত্যু, হাসপাতালে নতুন ভর্তি ৬৮২ জন
+-  નૌકાદળમાં ભારતીય સંસ્કૃતિ અનુસાર રેન્ક આપવામાં આવશેઃ પીએમ મોદીની ઘોષણા
+-  Avrupa ekonomilerinde faaliyetler yavaşlıyor, Almanya'da ihracat düşüyor
+-  Jude Bellingham'dan Arda Güler'e büyük övgü! "Golden Boy ödülünü kazanabilir"
+-  130 Türk vatandaşı Gazze'den Mısır'a tahliye edildi
+-  "Yüksek karlı gizli fon vaadiyle dolandırıcılık" davasında yeni gelişme
+-  Beşiktaş'ın yeni başkanı Hasan Arat mazbatasını yarın alacak
+-  Almanya Dışişleri: Gazze'de insani aranın sona ermesi acı bir gerileme
+-  Meteoroloji uyardı: 4 ilde sağanak bekleniyor
+-  Pakistan 5,5 ile sallandı
+-  Bakan Ersoy'dan Özgür Özel'e sert tepki: Emek hırsızlığı yapmasın
+-  Jorginho Ingatkan Arsenal, Jangan Buru-buru Lepas Pedal
+-  Newcastle United'dan David De Gea sürprizi
+-  96% das rodovias analisadas pela CNT ou são federais ou estão sob concessão
+-  Administração Pública disponibiliza novas licitações no site da Prefeitura
+-  Governador: “Enquanto os países ricos aumentam consumo de carvão, MT é potência ambiental”
+-  Spenden zu Weihnachten: An welche Organisationen kann man spenden?
