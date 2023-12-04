@@ -10,10 +10,12 @@ jobs:
     runs-on: ubuntu-latest
     steps:
       - uses: actions/checkout@v2
+        with:
+          token: ${{ secrets.GITHUB_TOKEN }}
       - name: Set up Go
         uses: actions/setup-go@v2
         with:
-          go-version: '1.21.3'
+          go-version: '1.21.3'  # Pastikan ini adalah versi Go yang valid
       - name: Run update script
         env:
           NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
@@ -25,6 +27,3 @@ jobs:
           git add README.md
           git commit -m "Update README with latest news"
           git push
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-
