@@ -1,11 +1,51 @@
 # Latest News
--  Israël vreest voor het leven van de laatste Hamas-gijzelaars. 'Ik ben bang dat het niet goedkomt'
--  Grootste zeteldans ooit: Tweede Kamer beëdigd meer nieuwelingen dan ervaren leden
--  Plasterk en Wilders spreken dinsdag Van der Plas, dan Yesilgöz
--  LDA Alajuelense vs. Real Estelí EN VIVO - horario, TV, cómo y dónde ver la final
--  İYİ Parti, CHP'nin işbirliği teklifini kabul etmedi!
--  Украинец пытался уплыть из страны, притворившись ребенком
--  Dark Patterns und wenig Transparenz: Mängel der Tech-Plattformen beim Verbraucherschutz
--  Missing woman was killed by man who had a grudge, Mariposa County sheriff says
--  Weihnachtsgeld: Wer es in Deutschland bekommt und wie viel
--  محافظ الغربية يتابع بدء أعمال رصف وتطوير شارع ترعة الشيتي بطنطا
+-  HYPORT : inauguration de la 1ère station d'Europe de production et distribution d'hydrogène vert
+-  Savoie. L'incroyable histoire d'un fan de Johnny Hallyday : "Je suis sorti du coma le jour de sa mort"
+-  Kudos: Art contest for youth raises $10K for Richmond Hospital
+-  Erzurum'da çeşitli suçlardan aranan 11 kişi yakalandı
+-  Palestijns persbureau: 50 doden bij Israëlische aanval op scholen
+-  Negen mensen met link met Nederland verlaten Gazastrook
+-  Gemeente kan noodlijdende Rotterdam Pride niet financieel helpen
+-  Hamas ontkent verkrachtingen bij aanval van 7 oktober
+-  Chipbedrijven omlaag na lange winstreeks, AEX doet stapje terug
+-  "مهرجان الظفرة للكتاب 2023" ينطلق بمشاركة 50 عارضاً و400 فعالية
+-  Pregnant megamouth shark washed up on beach is first ever seen
+-  Top rugby player admits three sexual offences days before match
+-  Social media loves this cold and flu remedy but what do the experts think? We find out
+-  Mónica Zevallos te enseña a preparar “Quinoto andino con chuleta de cerdo” | Arriba Mi Gente
+-  Mónica Zevallos, ganadora de la cuarta temporada de El Gran Chef Famosos: “Gracias por dejarme entrar a sus casas”
+-  إدانة ولد عبد العزيز بالسجن 5 سنوات وتبرئة بعض المتهمين في ملف العشرية
+-  Hatay'da tadilat yapılan evde çalışan işçi merdivenin yıkılması sonucu öldü
+-  Savoie. Un “Pachamama”, nouvel espace de loisirs indoor, vient d'ouvrir à Chambéry
+-  Ekspertka ocenia zmianę stylu Hołowni. Ma triki, które dodają mu mądrości. "Przemyślana strategia" [PLOTEK EXCLUSIVE]
+-  На Україну несуться холоднеча і вітер через антициклон з Сибіру
+-  Pritišće li Švedska Liberiju oko usvajanja zakona o pobačaju? Oni niječu, no izvori tvrde drugačije
+-  Gold retreats from record peak
+-  In-Season Tournament – quarts de finale : la preview de Pacers – Celtics
+-  In-Season Tournament – quarts de finale : la preview de Kings – Pelicans
+-  Le programme de la nuit en NBA : Pacers – Celtics à 1h30, Kings – Pelicans à 4h
+-  Sqli : DECLARATION DES TRANSACTIONS SUR ACTIONS PROPRES
+-  Boostheat : LEVÉE DE FONDS DE 120 KEUR
+-  Jacques Bogart : Agenda financier 2024
+-  Spaniens Umgang mit den katalanischen Separatisten: Unmut über die Geheimverhandlungen
+-  En images - Coupe de France de football. Quand Chambéry passait près de l'exploit face au GF38 de Nassim Akrour et Olivier Giroud
+-  Ex AC Milan Star Hailed For Immaculate Long Range Goal In Napoli Vs Inter Milan Serie A Clash
+-  Bancor: Fondos Champaquí crecen entre los particulares, y ahora apunta a billeteras virtuales
+-  Карточки некоторых банков могут не работать в ночь на 11 декабря
+-  Not getting Terry McLaurin involved is one of many problems for the Commanders
+-  Bugarsko ministarstvo: Nema dokaza da je osumnjičeni za kidnapovanje devojčice iz S. Makedonije na teritoriji naše zemlje
+-  Despite €30m profits in October, Spotify mulls 17% job cuts
+-  Hrvat koji je osvojio Ukrajince: U Crvenu zvezdu doveo me Džajić
+-  Los docentes del Guayas alzan la voz para que su seguridad no sea más vulnerada
+-  BOOSTHEAT : LEVÉE DE FONDS DE 120 KEUR
+-  Mersen : importante contribution technologique à Euclid
+-  Sénégal : Mais qui est Alpha Thiam, ce candidat à la Présidentielle, qui « salit » nos murs (Photos)
+-  İsmail Kartal: Güzel bir reaksiyon bekliyorum
+-  İmzalar atıldı! Türkiye ile Katar arasında 12 anlaşma
+-  Peru'da altın madenine düzenlenen silahlı saldırıda 9 kişi öldü
+-  Yunanistan'da taksicilerden grev kararı
+-  Putin'den Türkiye açıklaması: Çok sayıda ortak ilginç projemiz var
+-  OVAKO SE BRANIO OTAC UBIJENE VANJE! Tužilaštvo traži pritvor, sumnja da je ovako pomogao otmičarima!
+-  I live off-grid in a tent on stilts – I spend NO cash on any bills and have an outdoor toilet like Shrek
+-  DIY fan shares ‘perfect’ £3 Homebase hack for the best Christmas garland ever – you need to hit their bathroom section
+-  Manchester City charged by FA after players surround referee against Spurs
