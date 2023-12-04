@@ -1,51 +1,51 @@
 # Latest News
--  Soccerladuma | His Tragic Passing Has Hit Hard
--  Asesinan a seis personas en dos masacres en Colombia
--  Zelenskyj „obchází“ Zalužného v komunikaci s některými veliteli
--  Dødsulykke udløser fire års fængsel til narkopåvirket bilist
--  Dødsulykke udløser fire års fængsel til narkopåvirket bilist
--  Monza rinforza il roster con Nik Mujanovic
--  Френски министър поиска радикални мерки след смъртта на футболен фен
--  UGC NET 2023 दिसंबर का एडमिट कार्ड जारी, यहां डायरेक्ट लिंक से करें डाउनलोड
--  Milei cumple con 'alianza' eligendo a Bullrich y Petri (antes rivales) como ministros
--  TBMM Başkanı Kurtulmuş'tan Cem Davran ve Ali Sinanoğlu'na Filistin mesajı: İnsanlık cephesinde yer aldığınız için teşekkürler
--  Adana Demirspor'da Kluivert dönemi sona erdi
--  CANLI| Fenerbahçe-Sivasspor
--  Sağlık Bakanlığından 'aşılarda tehlike' iddialarına yalanlama: Sıcaklık ve stok takibi düzenli bir şekilde yapılıyor
--  Odisha: Blackbuck, nilgai to wow visitors at Sambalpur Zoo soon
--  Скаут Базеля переглядав гру півзахисника Руха у матчі із Зорею
--  चार दिन पूर्व लापता हुई बच्ची का बगल के कमरे से ही मिला शव... हत्या की आशंका
--  Son dakika! İYİ Parti ipleri kopardı: İş birliğine 'hayır' dedi
--  SON DAKİKA HABERİ: İYİ Parti, CHP'nin yerel seçimde iş birliği teklifini reddetti
--  James Harden l’assure, Daryl Morey lui avait promis un contrat max avec les Sixers
--  Suvendu Adhikari wears t-shirt with ‘Mamata chor’ printed on it, case filed
--  Lovrić pustio dramatičnu snimku s Jakuševca: Čovjek je ostao bez ruke. Odnijelo ga je skroz do nasipa, ej užas, užas!
--  HUAWEI เผยนวัตกรรมใน HUAWEI FreeBuds Pro 3 ทำไมถึงเป็นหูฟังเรือธงคุ้มเกินราคา
--  Kayıp olarak aranıyordu! 17 yaşındaki Damla'dan acı haber
--  Bursa'daki 5.1 büyüklüğündeki depremde Trilye'deki bazı binalarda çökme yaşandı
--  İnegölspor Teknik Direktörü: Futbol hayatımda ilk kez böyle bir durumla karşılaşıyorum
--  12 fenomenin şirketlerine kayyum atandı
--  İletişim ve Medya Akademisi başladı
--  한전 고객센터 SW 유지보수 사업 입찰담합…4개 업체에 2.5억원 과징금
--  VIDEO: Police chase ends in Arrochar
--  İYİ Parti, işbirliğini kabul etmedi!
--  Feira das Velharias na Expoeste
--  حسنية أكادير يبحث عن صيغة لفك الإرتباط مع متولي
--  Shah Rukh Khan के घर आई पहली इलेक्ट्रिक कार, कीमत और रेंज जानकर रह जाएंगे हैरान!
--  Avis: Britisk atomanlæg hacket af grupper med russisk forbindelse
--  Avis: Britisk atomanlæg hacket af grupper med russisk forbindelse
--  Buhari To Attend Public Presentation Of Book Written By Adesina
--  ASSE : le groupe de Batlles contre Guingamp est tombé, Larsonneur bien de retour !
--  Extienden contrato de Chourio con cifra récord en Milwaukee
--  Асен Василев: Има огромен ръст на вноса и износа на стоки с двойна употреба към Русия
--  Single-digit export earnings seen in 2024
--  فريق النصر يقابل الانوار على ملعب بنينا .
--  اللافي يبحث مع أعيان قبيلة المقارحة المصالحة الوطنية، وأوضاع السجناء.
--  خبير استراتيجي بالخارجية الصينية لـ(وال) : الأمن والاستقرار أبرز التحديات التي تواجه عمليات التحديث التنموي في ليبيا
--  Hanukkah 2023: ¿Cuál es el significado de esta celebración?
--  Smart aufgebrochen: Kölner Polizei verhaftet zwei mutmaßliche Autoknacker
--  Путин сообщил о предстоящей встрече с Токаевым в конце декабря
--  Top Nigerian Players That Scored For Their European Clubs Last Weekend
--  La Hora de comer importa: Un estudio pionero sobre el impacto del reloj biológico en la longevidad
--  경북도의회 행복위, 복지건강국·지방시대정책국 2024년도 본예산 심사
--  경북도의회 건설소방위원회, 군공항 소음지역 현지확인 실시
+-  عالم ببحوث الصحراء يحصد 3 براءات اختراع بمجال استصلاح الأراضي الصحراوية
+-  سعر الريال السعودي اليوم بنهاية التعاملات في 5 بنوك
+-  طلاب الأزهر يحصدون المراكز الأولى في مسابقة "الأسبوع العربي للبرمجة"
+-  بعثة ساجرادا الأنجولي تصل القاهرة غدا لمواجهة الزمالك
+-  انقطاع المياه عن قرية منقباد بأسيوط لمدة 5 ساعات
+-  "بلغنا رغبته".. هيثم عرابي يكشف تطورات رحيل عمر كمال: هؤلاء يعلمون وجهته
+-  صور.. مستشارة سفارة البحرين تزور جامعة المنصورة
+-  "خطأ بشري".. لجنة الحكام الإنجليزية تنهي جدل واقعة حكم مانشستر سيتي وتوتنهام
+-  بعد واقعة "تقطيف الملوخية".. تحرك جديد لرئيس مدينة ميت غمر في الدقهلية
+-  رويترز: تركيا تحذر إسرائيل من عواقب ملاحقة مسؤولين في حماس
+-  البنك المركزي يبيع أذون خزانة بالدولار أجل عام بسعر فائدة 5.149% اليوم
+-  "مستقبل وطن" ينظم مؤتمرًا حاشدًا بمشاركة 2000 مصنع لدعم السيسي بالانتخابات
+-  وزيرة الخارجية الألمانية تطالب إسرائيل بالتخفيف من معاناة المدنيين في غزة
+-  واقعة تحبس الأنفاس.. لن تتوقع ما فعلته عصابة داخل منزل ورد فعل مالكته
+-  Yılmaz: Kasım enflasyonu OVP ile uyumlu
+-  কপ সম্মেলনে চালু হলো ‘ধর্মীয় প্যাভিলিয়ন’
+-  Jubiläumsausstellung: "The very best of FISH"
+-  Wertheimer Rotkreuzklinik: Weiter auf Rettungskurs
+-  Mömbris: 2025 soll es wieder ein Marktfest geben
+-  Марцел Личка: "Между белорусским и российским футболом большая разница"
+-  Два игрока продлили соглашения с "Волной"
+-  "Я провел в "Динамо" три прекрасных года". Душан Бакич заявил об уходе из команды
+-  С "Минском" простились два легионера
+-  Сеад Исламович покинул БАТЭ
+-  Андрей Хачатурян заявил, что повременит с завершением карьеры
+-  National Cookie Day 2023: Where to get deals, free cookies
+-  Strava integra i messaggi privati istantanei, per chattare direttamente dall’app
+-  Laut Horoskop: 3 Sternzeichen haben im Dezember richtig viel Energie
+-  Fringe players will get chances - Celtic boss
+-  Footballer Ravel Morrison admits using dead person's Blue Badge
+-  Kompany surprised by Heckingbottom news
+-  Holders South Africa book Women's Nations Cup spot
+-  Bouchier & Gibson awarded first central contracts
+-  'How did he catch that?' Watson stars in NFL best plays
+-  Scotland will not 'give away' game for GB Olympic spot
+-  I tried viral red Christmas dress from Dunnes Stores – here’s how to take it from day to night in three easy steps
+-  Leona Maguire teams up with 2009 US Open champion Lucas Glover for unique inaugural Grant Thornton Invitational
+-  Armut und Ungleichheit: Europarat mahnt Deutschland
+-  Xbox fans are thrilled as hugely popular free game feature could be coming to a new platform
+-  Ligue 1: à partir de quel niveau de risques interdire systématiquement les déplacements de supporteurs?
+-  Общината: Предложението за зона без стари коли във Варна тепърва ще се разглежда
+-  33 ans après Maman j'ai raté l'avion, Macaulay Culkin décroche son étoile à Hollywood
+-  Beyoncé inflige une bérézina cuisante à Napoléon au box-office américain
+-  Aplazan importante evento salsero en Caracas por problemas con la locación
+-  Kvennalandsliðið fær erfitt verkefni í Danmörku á morgun
+-  Школьники в Сыктывкаре возвращаются с карантина
+-  Tuð í dómara setti svip sinn á bónorð
+-  GODIŠNJI HOROSKOP ZA BLIZANCE ZA 2024: Radujte se, došlo je vrijeme da ostvarite sve svoje snove!
+-  Melendi, nueva confirmación del Weekend Beach Festival Torre del Mar
+-  Christian Heidel: So schafft Mainz 05 den Klassenerhalt
