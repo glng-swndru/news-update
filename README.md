@@ -1,51 +1,51 @@
 # Latest News
--  Amerikansk topgeneral tager skarpt opgør med Vestens fejltagelser i Ukraine
--  Appeal starts on Dutch tourist's fatal beating in Mallorca; Court to rule on March 14
--  Karabük'te uyuşturucu operasyonu
--  İrfan Can Kahveci: Çalımı Hurşut Meriç'ten öğrendim
--  Hamas, İsrail'in "tecavüz" iddialarını yalanladı
--  时政微调查丨此心安处
--  时政现场说丨在新四军纪念馆 总书记和我们共话“铁军忠魂”
--  【良法善治】习言道｜宪法的伟力在于人民出自真诚的信仰
--  相互尊重、和衷共济、和合共生——习近平主席致首届“良渚论坛”贺信指明人类文明发展的正确道路
--  流感流行期 家中有患者如何做好家庭消毒？
--  周知！北京儿童医院、首儿所都可通过“京通”线上问诊
--  专访：中国扩大免签政策将增强欧洲企业对华投资信心——访中欧数字协会主席路易吉·甘巴尔代拉
--  COP28期间这场活动，为何令阿联酋亲王点赞？
--  “纪念《世界人权宣言》发表75周年”研讨会 以实际行动为世界人权发展提供中国样本
--  共话中国经济新机遇丨通讯：链博会给共建“一带一路”国家带来新机遇
--  和评理 | 应对全球气候变化 中国在行动
--  A $7,500 Award is Offered In Series of City Gear Smash-And-Grab Break-Ins
--  بريطانيا تحمل إيران مسؤولية هجمات الحوثي على السفن التجارية
--  Former US Ambassador Victor Rocha arrested on charges of being a long-time Cuban spy
--  Migrants leave Tijuana after being unable to cross from Mexico into the US
--  "Átverik a nyugdíjasokat a januári nyugdíjemeléssel" – miközben az "orbáni infláció" sokkal magasabb a DK szerint
--  'ML 108승' 좌완도 재계약…RYU 계약 가이드라인 다 나왔다, '코리안 몬스터' 행선지도 곧?
--  Fondos D y E registran su mejor desempeño mensual histórico en noviembre
--  Culmina la expedición femenia a la Antártida para salvar el planeta
--  微视频｜宪法就在你我身边
--  NC toll rates going up in 2024: where and how much
--  Mattarella: “Abbiamo il dovere di non arrenderci alla guerra e di non rinunciare alla tutela dei diritti umani”
--  A Y Combinator-backed startup called Velt wants to make more apps collaborative
--  Dólar: el blue acumula una caída de $150 en 8 días, a cuánto cotizó este lunes
--  ФОТОФАКТ: Прогулка по вечернему Минску
--  BM Batı Şeria'da artan operasyonlardan endişeli: İnsani ateşkes çağrımızı yineliyoruz
--  Servet Çetin: Fenerbahçe hak etti
--  Why Apple is urging 'all users' to update their iOS
--  Phillies sign manager Rob Thomson to 1-year extension after 2 straight trips to NLCS
--  DP World Tour Schedule
--  LPGA Tour Schedule
--  PGA Tour Schedule
--  Aaj ka Singh Tarot Card: सिंह राशि वालों के मिलेगी आर्थिक सफलता,अपनों की उम्मीदों पर खरे उतरेंगे
--  Arizona State hires former UNLV coach Marcus Arroyo as offensive coordinator
--  [Editorial] Reverse depopulation
--  Former career US diplomat charged with secretly spying for Cuba for decades
--  Eagles sign 3-time All-Pro linebacker Shaquille Leonard to 1-year deal
--  Gloria Allred representing family involved with Josh Giddey case
--  Sacchi sulla lotta scudetto: «Se gioca come a Napoli, l’Inter è la favorita»
--  Lululemon shares slide on analyst downgrade
--  Halo Season 2: 7 Cool Things Spotted In The First Trailer
--  Csehországban lassult a reálkeresetek csökkenése a harmadik negyedévben
--  Le Real Madrid a bouclé une signature en secret
--  Baldrey: What's that smell? Smoke coming out of B.C. Opposition parties' ears?
--  Report: Bayern Munich‎ transfer trail “cold” on Premier League midfielder
+-  Große Gefühle: "Bauer sucht Frau"-Hans und Elke küssen sich!
+-  The best flats for women, based on years of testing them ourselves
+-  Boliche conquista medallas en el Concecabol 2023
+-  احتجاجات شهر نوفمبر 2023…منحى تصاعدي وزيادة في الاحتقان الاجتماعي
+-  El impactante VIDEO viral de un avión rompiendo la barrera del sonido
+-  Sorteo Bonoloto del lunes 4 de diciembre de 2023
+-  Bellingham è il Golden Boy 2023: “Un grande onore. Real miglior club al mondo"
+-  İsmail Kartal, Sivasspor galibiyetinin ardından açıklamalarda bulundu
+-  Pampita se enojó por ser enfocada nuevamente durante entrega de premio a Benjamín Vicuña
+-  ترتيب مجموعة الهلال السعودي بعد انتهاء الجولة الأخيرة في دوري أبطال آسيا
+-  ظهور مميز لـ حجازي.. ترتيب مجموعة الاتحاد بعد الجولة الأخيرة في أبطال آسيا
+-  إذا تناولت الزنجبيل يوميا لمدة شهر هذا ما يحدث لجسمك.. مفاجأة
+-  Teenage Hadebe Leaves American MLS Soccer Club Houston Dynamo
+-  توالي الاستعدادات لانطلاق معرض اسطنبول الدولي للكتاب العربي في نسخته الثامنة.
+-  Με καρφωτή κεφαλιά ο Βίντα κάνει το 1-0 για την ΑΕΚ κόντρα στον Άρη (vid)
+-  The Loungefly x BTS Collab Is Available at Amazon: Shop the ‘Dynamite’ Collection While You Still Can
+-  Warnung vor Glatteis in Oberpfälzer Landkreisen
+-  Comissão Mista de Orçamento pode votar Plano Plurianual nesta terça
+-  Leitura de relatórios sobre indicações de Dino e Gonet será na quarta
+-  Festejo inclusivo marca celebração do Dia Internacional da Pessoa com Deficiência
+-  Iceta será nombrado este martes embajador de España ante la Unesco sustituyendo a José Manuel Rodríguez Uribes
+-  "هيئة الاتصالات": نسعى لبناء تنظيمات مستدامة لتمكين الابتكار في تقنيات الفضاء
+-  Niko neće ubicu na svom groblju! Monstrum Nermin Sulejmanović je već četiri meseca u hladnjači, a troškovi rastu!
+-  Protest českých lekárov by mohol skončiť v piatok. Dohodli sa na zvýšení platov
+-  이스라엘 “하마스 뿌리 뽑겠다”…유엔 “인도주의 휴전 촉구”
+-  Time to Change Your DNA: 23andMe Lost Data for 6.9 Million People
+-  Le chiffre d’affaires des PME régionales en hausse en 2023
+-  «التجارة» تلغي 42 سلعة مخفّض سعرها من البطاقة التموينية
+-  «الهلال الأحمر»: أهمية إبراز دور المتطوعين
+-  10 أطنان مساعدات حملتها الطائرة الـ 33 لإغاثة غزة
+-  الجلوي: مزيد من التعاون عربياً وعالمياً في الطيران المدني
+-  مجلس الوزراء: الحالة الصحية لصاحب السمو الأمير مستقرة
+-  محمد ثلاب في التصفيات النهائية لمهرجان الكاريكاتير الأفريقي بـ «الذكاء الاصطناعي»
+-  «تفسير سورة الفاتحة.. فوائد ولطائف ودرر» جمعها أحمد براك الهيفي في كتابه الجديد
+-  «إستراتيجيات التعلم» ورشة فنية متكاملة لـ «العربية» في «أم هاني الابتدائية»
+-  شكر وتقدير
+-  جنوب قطاع غزة يتحوّل «ساحة حرب».. و80% من سكانه ينزحون
+-  Выпущенная ХАМАС ракета попала в израильскую ядерную базу
+-  Condenan a dos hombres por robo a un taxista
+-  ¡Pudo haber muerto! Michael B. Jordan chocó su Ferrari con otro carro
+-  Yellen to visit Mexico for talks on boosting trade, fighting fentanyl trafficking
+-  Rode Kruis bezorgd over hulp Gaza na uitval telefoon en internet
+-  Volt uit coalitie Maastricht, kan geen wethouder leveren
+-  Pictet legt US-Steuerstreit mit Zahlung von 122,9 Mio US-Dollar bei
+-  Arturs Kurucs, entre las opciones del UCAM Murcia para reforzar la plantilla
+-  Ισχυρό χτύπημα της ΕΛ.ΑΣ. στην «πειρατική» τηλεόραση: «Αν γνώριζαν ότι θα έβλεπες παράνομο περιεχόμενο, θα μας είχαν πιάσει ήδη»
+-  La Lavoe Orchestra y miembros de la Fania All-Star se juntan con Joseph Amado en “El 23 es salsa”
+-  Summer hits Canberra as temperatures predicted to rise above 30
+-  فيديو يوثق نهاية غير متوقعة لمروض أفاعي
+-  "واحة الجمال".. الأخضر يكسو جبال وسهول "ستاره" في مكة
