@@ -1,51 +1,11 @@
 # Latest News
--  عالم ببحوث الصحراء يحصد 3 براءات اختراع بمجال استصلاح الأراضي الصحراوية
--  سعر الريال السعودي اليوم بنهاية التعاملات في 5 بنوك
--  طلاب الأزهر يحصدون المراكز الأولى في مسابقة "الأسبوع العربي للبرمجة"
--  بعثة ساجرادا الأنجولي تصل القاهرة غدا لمواجهة الزمالك
--  انقطاع المياه عن قرية منقباد بأسيوط لمدة 5 ساعات
--  "بلغنا رغبته".. هيثم عرابي يكشف تطورات رحيل عمر كمال: هؤلاء يعلمون وجهته
--  صور.. مستشارة سفارة البحرين تزور جامعة المنصورة
--  "خطأ بشري".. لجنة الحكام الإنجليزية تنهي جدل واقعة حكم مانشستر سيتي وتوتنهام
--  بعد واقعة "تقطيف الملوخية".. تحرك جديد لرئيس مدينة ميت غمر في الدقهلية
--  رويترز: تركيا تحذر إسرائيل من عواقب ملاحقة مسؤولين في حماس
--  البنك المركزي يبيع أذون خزانة بالدولار أجل عام بسعر فائدة 5.149% اليوم
--  "مستقبل وطن" ينظم مؤتمرًا حاشدًا بمشاركة 2000 مصنع لدعم السيسي بالانتخابات
--  وزيرة الخارجية الألمانية تطالب إسرائيل بالتخفيف من معاناة المدنيين في غزة
--  واقعة تحبس الأنفاس.. لن تتوقع ما فعلته عصابة داخل منزل ورد فعل مالكته
--  Yılmaz: Kasım enflasyonu OVP ile uyumlu
--  কপ সম্মেলনে চালু হলো ‘ধর্মীয় প্যাভিলিয়ন’
--  Jubiläumsausstellung: "The very best of FISH"
--  Wertheimer Rotkreuzklinik: Weiter auf Rettungskurs
--  Mömbris: 2025 soll es wieder ein Marktfest geben
--  Марцел Личка: "Между белорусским и российским футболом большая разница"
--  Два игрока продлили соглашения с "Волной"
--  "Я провел в "Динамо" три прекрасных года". Душан Бакич заявил об уходе из команды
--  С "Минском" простились два легионера
--  Сеад Исламович покинул БАТЭ
--  Андрей Хачатурян заявил, что повременит с завершением карьеры
--  National Cookie Day 2023: Where to get deals, free cookies
--  Strava integra i messaggi privati istantanei, per chattare direttamente dall’app
--  Laut Horoskop: 3 Sternzeichen haben im Dezember richtig viel Energie
--  Fringe players will get chances - Celtic boss
--  Footballer Ravel Morrison admits using dead person's Blue Badge
--  Kompany surprised by Heckingbottom news
--  Holders South Africa book Women's Nations Cup spot
--  Bouchier & Gibson awarded first central contracts
--  'How did he catch that?' Watson stars in NFL best plays
--  Scotland will not 'give away' game for GB Olympic spot
--  I tried viral red Christmas dress from Dunnes Stores – here’s how to take it from day to night in three easy steps
--  Leona Maguire teams up with 2009 US Open champion Lucas Glover for unique inaugural Grant Thornton Invitational
--  Armut und Ungleichheit: Europarat mahnt Deutschland
--  Xbox fans are thrilled as hugely popular free game feature could be coming to a new platform
--  Ligue 1: à partir de quel niveau de risques interdire systématiquement les déplacements de supporteurs?
--  Общината: Предложението за зона без стари коли във Варна тепърва ще се разглежда
--  33 ans après Maman j'ai raté l'avion, Macaulay Culkin décroche son étoile à Hollywood
--  Beyoncé inflige une bérézina cuisante à Napoléon au box-office américain
--  Aplazan importante evento salsero en Caracas por problemas con la locación
--  Kvennalandsliðið fær erfitt verkefni í Danmörku á morgun
--  Школьники в Сыктывкаре возвращаются с карантина
--  Tuð í dómara setti svip sinn á bónorð
--  GODIŠNJI HOROSKOP ZA BLIZANCE ZA 2024: Radujte se, došlo je vrijeme da ostvarite sve svoje snove!
--  Melendi, nueva confirmación del Weekend Beach Festival Torre del Mar
--  Christian Heidel: So schafft Mainz 05 den Klassenerhalt
+-  Israël vreest voor het leven van de laatste Hamas-gijzelaars. 'Ik ben bang dat het niet goedkomt'
+-  Grootste zeteldans ooit: Tweede Kamer beëdigd meer nieuwelingen dan ervaren leden
+-  Plasterk en Wilders spreken dinsdag Van der Plas, dan Yesilgöz
+-  LDA Alajuelense vs. Real Estelí EN VIVO - horario, TV, cómo y dónde ver la final
+-  İYİ Parti, CHP'nin işbirliği teklifini kabul etmedi!
+-  Украинец пытался уплыть из страны, притворившись ребенком
+-  Dark Patterns und wenig Transparenz: Mängel der Tech-Plattformen beim Verbraucherschutz
+-  Missing woman was killed by man who had a grudge, Mariposa County sheriff says
+-  Weihnachtsgeld: Wer es in Deutschland bekommt und wie viel
+-  محافظ الغربية يتابع بدء أعمال رصف وتطوير شارع ترعة الشيتي بطنطا
