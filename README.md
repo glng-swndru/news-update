@@ -1,51 +1,51 @@
 # Latest News
--  ارتفاع عدد الشهداء في غزة إلى 15899
--  Európsky Karibik našimi očami: Pozrite sa na tu krásu iba dve hodiny letu zo Slovenska
--  Un chauffeur de camion meurt enseveli dans une cimenterie Lafarge
--  المقاومة: استهدفنا ناقلتي جند ودبابة للاحتلال شمال خان يونس
--  Виктория Томова спечели турнир и се влюби в Санкт Петербург
--  Poonch News: सुरक्षा बलों ने मेंढर के जंगल और नाले खंगाले
--  Noida News: एसआईटी ने खंगाले दस्तावेज, अफसरों के होश उड़े
--  Kurukshetra News: अंतरराष्ट्रीय गीता महोत्सव का प्रचार करेंगी रोडवेज बसें
--  Kurukshetra News: मामूली कहासुनी पर सिक्योरिटी गार्ड की डंडे से पीटकर हत्या, मामला दर्ज
--  La campaña navideña del Centro Comercial de Viveiro repartirá 5.000 euros en premios
--  COVID пандемията промени алкохолните нагласи на турците
--  Jude Bellingham joins Lionel Messi and Kylian Mbappe in winning Golden Boy prize
--  Global journalist group says Israel-Hamas conflict is a war beyond compare for media deaths
--  Ce trebuie să faci pe 5 decembrie, ajunului lui Moș Nicolae. Vine nuielușa sau cadoul?
--  How to watch the Dancing with the Stars Season 32 finale? Episode 11 on Tuesday, Dec. 5
--  ¿En qué canal ver América vs. San Luis por semifinales de Liguilla MX?
--  Chandigarh News: सुबह-शाम ठंड, धुंध से प्रभावित होने लगा जनजीवन
--  Le patron de Sciences Po a fait un tour en garde à vue pour "violences conjugales"
--  Immigration: Les conservateurs britanniques prennent le taureau par les cornes
--  Former Toronto Blue Jays manager John Gibbons becomes Mets bench coach
--  Arctic Volley nappasi täyden pistepotin, mutta JymyVolley teki voittamisen vaikeaksi
--  رسميا.. مصر تحصل على تنظيم دورة الألعاب الأفريقية 2027
--  حجازي بعد غياب 190 يومًا ينفعل على حكم مباراة الاتحاد السعودي وسباهان الإيراني
--  حظ سعيد ومكاسب مالية غير متوقعة لمواليد 4 أبراج الفترة الحالية
--  مشرف الرواق الأزهري ينفي تعرض الشيخ الطيب لأزمة صحية
--  مدير "علوم الفضاء" بجامعة القاهرة: مصر تسير بخطوات ثابتة في هذا المجال
--  تعاون بين جامعة حلوان وشركة ارتقاء لتدوير المخلفات
--  جوتيريش يناشد إسرائيل تجنب مفاقمة الوضع الإنساني الكارثي في غزة
--  العربية للتصنيع: تعاون مصري مع داسو الفرنسية لإنتاج رافال محلية الصنع
--  الهلال الأحمر يعلن انقطاع التواصل بشكل كامل مع طواقمه في غزة
--  لغز العثور على جثة في شوارع المعادي
--  Vote now: Bay Area News Group boys athlete of the week
--  Alicia Gogîrlă duce numele mai departe: „Când am fost convocată la națională, imediat am sunat-o pe mama!”
--  Chandigarh News: छत से गिरने से घायल युवक ने तोड़ा दम
--  Statistika pokazuje - Ćavi u La Ligi najbolji protiv najtežih rivala
--  La curiosa historia de la pareja que ama tanto la Navidad que hasta rompieron un récord
--  Societe Generale Embraces Ethereum for Tokenized Bond Issuance
--  Kayseri’de kaçak silah operasyonu 3 gözaltı
--  Panipat News: तीसरी आंख की निगरानी में होगा शहर
--  Jhajjar-Bahadurgarh News: जल्द शुरू होंगी अस्पतालों की बंद एक्सरे मशीन, नौ रेडियोग्राफर मिले
--  Kushinagar News: पराली की आग से दो एकड़ गन्ने की फसल जली
--  Jammu News: 10 बजे टीएसओ कार्यालय में नहीं मिला कोई, जेडईपीओ कार्यालय में लटका रहा ताला
--  Sparta wil doorpakken en opent gesprekken met oud-Feyenoorder Jean-Paul Boëtius
--  Joven de 14 años muere tras recibir una descarga eléctrica
--  Presentan segunda demanda contra diputados que votaron a favor del contrato minero
--  Hay aviso de prevención por condiciones ventosas en el Pacífico
--  ”Și un om de pe stradă dădea penalty!”. Ricardo Grigore a răbufnit după Sepsi - Dinamo 2-1
--  Fonds reçus par Sonko : La réplique salée de Birahim Seck à Madiambal Diagne
--  Bivše ljubavi Elle Dvornik potpuna su suprotnost Charlesu: Za jednog se skoro i udala
--  Белгородская хоккейная молодежка рассталась с двумя игроками
+-  Amerikansk topgeneral tager skarpt opgør med Vestens fejltagelser i Ukraine
+-  Appeal starts on Dutch tourist's fatal beating in Mallorca; Court to rule on March 14
+-  Karabük'te uyuşturucu operasyonu
+-  İrfan Can Kahveci: Çalımı Hurşut Meriç'ten öğrendim
+-  Hamas, İsrail'in "tecavüz" iddialarını yalanladı
+-  时政微调查丨此心安处
+-  时政现场说丨在新四军纪念馆 总书记和我们共话“铁军忠魂”
+-  【良法善治】习言道｜宪法的伟力在于人民出自真诚的信仰
+-  相互尊重、和衷共济、和合共生——习近平主席致首届“良渚论坛”贺信指明人类文明发展的正确道路
+-  流感流行期 家中有患者如何做好家庭消毒？
+-  周知！北京儿童医院、首儿所都可通过“京通”线上问诊
+-  专访：中国扩大免签政策将增强欧洲企业对华投资信心——访中欧数字协会主席路易吉·甘巴尔代拉
+-  COP28期间这场活动，为何令阿联酋亲王点赞？
+-  “纪念《世界人权宣言》发表75周年”研讨会 以实际行动为世界人权发展提供中国样本
+-  共话中国经济新机遇丨通讯：链博会给共建“一带一路”国家带来新机遇
+-  和评理 | 应对全球气候变化 中国在行动
+-  A $7,500 Award is Offered In Series of City Gear Smash-And-Grab Break-Ins
+-  بريطانيا تحمل إيران مسؤولية هجمات الحوثي على السفن التجارية
+-  Former US Ambassador Victor Rocha arrested on charges of being a long-time Cuban spy
+-  Migrants leave Tijuana after being unable to cross from Mexico into the US
+-  "Átverik a nyugdíjasokat a januári nyugdíjemeléssel" – miközben az "orbáni infláció" sokkal magasabb a DK szerint
+-  'ML 108승' 좌완도 재계약…RYU 계약 가이드라인 다 나왔다, '코리안 몬스터' 행선지도 곧?
+-  Fondos D y E registran su mejor desempeño mensual histórico en noviembre
+-  Culmina la expedición femenia a la Antártida para salvar el planeta
+-  微视频｜宪法就在你我身边
+-  NC toll rates going up in 2024: where and how much
+-  Mattarella: “Abbiamo il dovere di non arrenderci alla guerra e di non rinunciare alla tutela dei diritti umani”
+-  A Y Combinator-backed startup called Velt wants to make more apps collaborative
+-  Dólar: el blue acumula una caída de $150 en 8 días, a cuánto cotizó este lunes
+-  ФОТОФАКТ: Прогулка по вечернему Минску
+-  BM Batı Şeria'da artan operasyonlardan endişeli: İnsani ateşkes çağrımızı yineliyoruz
+-  Servet Çetin: Fenerbahçe hak etti
+-  Why Apple is urging 'all users' to update their iOS
+-  Phillies sign manager Rob Thomson to 1-year extension after 2 straight trips to NLCS
+-  DP World Tour Schedule
+-  LPGA Tour Schedule
+-  PGA Tour Schedule
+-  Aaj ka Singh Tarot Card: सिंह राशि वालों के मिलेगी आर्थिक सफलता,अपनों की उम्मीदों पर खरे उतरेंगे
+-  Arizona State hires former UNLV coach Marcus Arroyo as offensive coordinator
+-  [Editorial] Reverse depopulation
+-  Former career US diplomat charged with secretly spying for Cuba for decades
+-  Eagles sign 3-time All-Pro linebacker Shaquille Leonard to 1-year deal
+-  Gloria Allred representing family involved with Josh Giddey case
+-  Sacchi sulla lotta scudetto: «Se gioca come a Napoli, l’Inter è la favorita»
+-  Lululemon shares slide on analyst downgrade
+-  Halo Season 2: 7 Cool Things Spotted In The First Trailer
+-  Csehországban lassult a reálkeresetek csökkenése a harmadik negyedévben
+-  Le Real Madrid a bouclé une signature en secret
+-  Baldrey: What's that smell? Smoke coming out of B.C. Opposition parties' ears?
+-  Report: Bayern Munich‎ transfer trail “cold” on Premier League midfielder
