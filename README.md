@@ -1,11 +1,11 @@
 # Latest News
--  المنفي يؤكد على دور أمازيغ ليبيا في كل المراحل التاريخية التي مرت بها البلاد.
--  (ВИДЕО) Таткото на Вања донесен во Основниот кривичен суд во Скопје кај судија на предистражна постапка
--  Sheinbaum asegura que recibió 75 reconocimientos por su gestión en CDMX
--  Mary Teuw NIANE sur les 3 millions de Benno Bokk Yakaar : « C’est pour légitimer un hold-up électoral »
--  رئيس قبرص يزور الأردن لبحث إنشاء ممر لإرسال المساعدات لغزة
--  تمويل بقيمة 150 مليون يورو لمشروع الناقل الوطني للمياه
--  Стало известно о переходе пяти человек из «Актобе» в «Елимай»
--  “Nos vimos un lunes en mi despacho”: Rocha revela encuentro reciente con Cuen, pero no hubo negociaciones
--  حماس تؤسس (طلائع طوفان الأقصى) انطلاقا من لبنان
--  Así es el Arena Primavera, el ambicioso centro de eventos que tendrá el valle de Aburrá
+-  الأردن يحقق تقدما في مؤشر جاهزية الشبكة 2023
+-  جنازة بلا جثمان لقائد عسكري اسرائيلي تحتجز المقاومة جثته
+-  الأمم المتحدة: توقفنا عن توزيع المساعدات بخان يونس
+-  انقطاع الاتصالات والإنترنت عن كل قطاع غزة
+-  EÚ teraz nemá odpoveď pre kamionistov blokujúcich ukrajinské hranice, uviedol Jozef Ráž
+-  Ladislav Kamenický po rokovaní vlády: Plánujeme zvýšiť spotrebné dane a zaviesť odvod pre banky
+-  Mladá mama prišla o život po útoku žraloka: Tesne predtým, ako ju napadol, pomohla synovi
+-  L’avis de l’expert. Pour les entreprises, pourquoi établir un bilan carbone ?
+-  Slávny herec unikol smrti len o vlások: Prežil 6 infarktov... 4-krát ho oživovali!
+-  A-traktorn kan få boost av nya EU-regler
