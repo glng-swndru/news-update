@@ -1,51 +1,51 @@
 # Latest News
--  Zwaargewonde door steekpartij in parking Vinkeveen
--  Experts: oorlog Oekraïne veroorzaakt 150 miljoen ton CO2-uitstoot
--  BM'den Gazze'de ateşkes çağrısı
--  Delegation From Ladakh Calls On Nityanand Rai
--  Steelers QB Kenny Pickett out indefinitely after undergoing surgery for a high right ankle sprain
--  Kim Kardashian Lands Another Acting Gig As She Plans To Star In New Hulu Legal Drama From Ryan Murphy
--  Frankreich: Terrorattacke in Paris – hätte die Bluttat verhindert werden können?
--  Frankreich: Terrorattacke in Paris – hätte die Bluttat verhindert werden können?
--  Gabby Petito lawsuit: Brian Laundrie's parents finally admit what their son told them, attorney says
--  SHOT: Известный по обзорам на "Смешариков" блогер Никита Васин умер в реанимации
--  Soirée Ciné d'époque pour le Centenaire Gustave Eiffel : événement incontournable à Marne-la-Vallée
--  Supreme Court appears divided over Purdue Pharma bankruptcy deal
--  Megnyitott az eplényi síaréna
--  Mon Laferte anuncia gira para el 2024: Tendrá cuatro conciertos en Chile
--  Baker Mayfield and wife Emily expecting baby
--  Els països de la UE volen baixar l’edat de conduir a 17 anys, si es fa acompanyat
--  Chourio gets $82 million, 8-year deal with Brewers, largest before a player's big league debut
--  రమణీయం.. రాఘవేంద్రుడి స్వర్ణ పల్లకి సేవ
--  సత్యదేవుడి సన్నిధిలో కార్తీక సందడి
--  Schianto lungo la Marattana, quattro auto coinvolte: chiusa la strada
--  Avrupa borsaları düşüşle kapandı
--  İsrail güçleri, Batı Şeria'da bir Filistinliyi daha öldürdü
--  İrfan Can Kahveci göz dolduruyor!
--  Gazze Şeridi'nde iletişim hizmetleri tamamen kesildi
--  KKTC Cumhurbaşkanı Tatar, Caparov ile görüştü
--  3 أبراج أحوالهم المادية سيئة للغاية في بداية 2024.. هل أنت منهم؟
--  حملة حازم عمر تعقد لقاءً تنظيميًا مع أعضاء لجنة الشئون الصحية لحزب الشعب الجمهوري
--  وزير دفاع الاحتلال: الجيش سيظل في شمال غزة حتى تدمير البنية التحتية لحماس
--  الخارجية الأمريكية: لم نرَ أي دليل أن إسرائيل تقتل المدنيين عمدًا
--  بقيمة مليون جنيه.. محافظ المنيا يوقع بروتوكولًا مع البنك الزراعي المصري لدعم الأسر الأكثر احتياجًا
--  الانتخابات الرئاسية.. 484 ألفًا و502 ناخبين في السويس و6 لجان للمغتربين
--  مدير الكلية البحرية السابق: الفرقاطة المصرية "الجبار" الأحدث عسكريا على مستوى العالم
--  جيش الاحتلال يعلن توسيع عملياته البرية لتشمل كل مناطق قطاع غزة
--  أمطار وسيول على هذه المناطق.. الأرصاد تعلن تفاصيل طقس الثلاثاء
--  اندلاع حريق داخل برج سكني في الهرم
--  "بسبب التبرعات".. ارتفاع حالات الإصابة بالتسمم في صفوف جنود الاحتلال بغزة
--  Samsun’da otomobil yolcu otobüsüyle çarpıştı: Ölü ve yaralılar var
--  Fenerbahçe-Sivasspor: 4-1 (ÖZET)
--  PF prende britânico procurado pela Interpol em Balneário Camboriú
--  İşgalci İsrail'in ablukası altındaki Gazze Şeridi'nde iletişim hizmetleri tamamen kesildi
--  Giuntoli al Golden Boy 2023: "Juventus gruppo straordinario"
--  Lazio-Genoa, quanti indisponibili: Vecino escluso per motivi disciplinari
--  Judo, Slam a Tokyo: podio per il judoka Manuel Lombardo
--  Gatti: "Bacio alla maglia? Juve mi ha stravolto la vita. Inter e Napoli..."
--  Arsenal-Juve, Gaspar e il siparietto con Giuntoli: mercato al Golden Boy
--  SC Derbi slavio protiv Mege
--  జగన్‌ను ఇంటికి సాగనంపాలి: మాజీ ఎమ్మెల్యే
--  Почему нервничает Си Цзиньпин
--  KOMŠIJA KOMŠIJU NE POZNAJE! Ova porodica se vratila u Srbiju: Nemojte da jedete kozerve samo da biste rekli da živite u Parizu
--  Aptikta iš kosmoso į Žemę sklindanti itin didelės energijos dalelė: jai neprilygsta net ...
+-  Maląg: w 2023 i 2024 r. co najniej 75 tys. osób będzie mogło skorzystać z "bezpiecznego kredytu 2 proc."
+-  Estos son los diez países de Latinoamérica que más consumen cerveza según la OMS
+-  Le ultime dal Grande Torino: gioca Linetty, Ricci in panchina
+-  Бросок на юг: как Израиль планирует продолжать операцию в секторе Газа
+-  Mujer muere a raíz de una herida con arma blanca en Cerro Cocobolo
+-  Winterfair in Zijderveld afsluiter van festiviteiten rondom 75-jarig bestaan
+-  La profunda carta de Diego Placente tras el cuarto puesto de la Selección Sub 17 en el Mundial: la frase de Pablo Aimar que le arranca “un lagrimón”
+-  Asturias sube el sueldo en los 4 niveles de carrera profesional sanitaria
+-  Los bancos de desarrollo destinan 180.000 millones de dólares extra a la financiación climática
+-  Ha kell, a csecsemők pelenkájába is belenéznek a magyar börtönőrök
+-  Ésta es la historia de la frase ‘Re-Hecho en CU’ que lució el Chino Huerta en su victoria con Pumas
+-  Eight Questions That Will Shape the NFL Playoff Race
+-  Proprietária da franquia do Miss Universo na Nicarágua é acusada de conspiração
+-  Habilitan paso elevado en carretera a Sonsonate
+-  Пивоваров: «Динамо» занимает то место, которое заслуживает
+-  Estas son las series de moda en Netflix Argentina hoy
+-  Moody's considera "negativas" las perspectivas para el sector bancario mundial en 2024
+-  أمريكا تتهم سفيراً سابقاً بالتجسس لحساب كوبا
+-  Colocan letreros preventivos de atrapamiento en Bowí
+-  Feijóo elige a Floriano como portavoz de Exteriores en el Congreso y Álvarez de Toledo de Constitucional
+-  Llevan posada a menores de Baborigame y Guadalupe y Calvo
+-  EE.UU. avisa a Venezuela que la disputa con Guyana no se resuelve con el referéndum
+-  Valor de cierre del dólar en República Dominicana este 4 de diciembre de USD a DOP
+-  Endometriosis: It’s time to change the pattern of pain, stigma and barriers to diagnosis and treatment
+-  El Consejo de la Unión Europea da luz verde a la firma del Acuerdo comercial con Chile
+-  A new Southwest card bonus can get you halfway to Companion Pass status, which lets you fly a friend for free
+-  В СФ подготовили проект по поддержке военнослужащих, получивших ранение
+-  Valor de cierre del euro en Bolivia este 4 de diciembre de EUR a BOB
+-  Colombia y el ELN inician en México el quinto ciclo de sus negociaciones de paz
+-  VÍDEO: Bolaños dice que Gobierno colaborará en la investigación a agentes del CNI acusados de filtrar información a EEUU
+-  República Dominicana: cotización de cierre del euro hoy 4 de diciembre de EUR a DOP
+-  Aitana Bonmatí: "Los premios individuales no vienen sin un trabajo colectivo"
+-  İYİ Parti'de kazan kaynıyor: İbrahim Özkan'dan parti yönetimine 'ittifak' tepkisi
+-  Dispute Between Haslam Family & Berkshire Hathaway Could Be Headed to January Court Date
+-  Alternative Smokeless Products Stand Out on the Backbar
+-  Herida una persona tras una salida de vía en la parroquia de Ortoño
+-  La FA podría sancionar al City por la actitud de sus jugadores con el colegiado tras el duelo ante el Tottenham
+-  Fiscal de Perú solicita a jueces que se inhiban del proceso disciplinario en su contra
+-  Claves económicas que marcarán la semana en América
+-  Restaurantbesuch wird immer teurer: Sollte man noch Trinkgeld zahlen?
+-  Bolivia: cotización de cierre del dólar hoy 4 de diciembre de USD a BOB
+-  Lepa Brena zakazala Arenu: Bit će vruće kao kod naše Aleksandre
+-  Pour rompre la solitude de nos aînés, l'association Veilleurs en Voisins recherche des bénévoles
+-  Gaza families increasingly cornered amid Israel’s relentless onslaught
+-  El fiscal general de Venezuela tilda de "victoria" el referéndum sobre el Esequibo
+-  VIDEO Fanovi spremni za ludilo: 'Od Aleksandre očekujem show. Obožavam njene pjesme...'
+-  目の前の人が「仕事ができる人かどうか」を見極める方法・ベスト1 - 1％の努力
+-  Canadá dice que respeta la sentencia que anula el contrato de First Quantum en Panamá
+-  China Brief – Much Cause But Little Recourse For Popular Discontent
+-  Liga MX en vivo: dónde ver las semifinales de ida
