@@ -1,11 +1,11 @@
 # Latest News
--  الأردن يحقق تقدما في مؤشر جاهزية الشبكة 2023
--  جنازة بلا جثمان لقائد عسكري اسرائيلي تحتجز المقاومة جثته
--  الأمم المتحدة: توقفنا عن توزيع المساعدات بخان يونس
--  انقطاع الاتصالات والإنترنت عن كل قطاع غزة
--  EÚ teraz nemá odpoveď pre kamionistov blokujúcich ukrajinské hranice, uviedol Jozef Ráž
--  Ladislav Kamenický po rokovaní vlády: Plánujeme zvýšiť spotrebné dane a zaviesť odvod pre banky
--  Mladá mama prišla o život po útoku žraloka: Tesne predtým, ako ju napadol, pomohla synovi
--  L’avis de l’expert. Pour les entreprises, pourquoi établir un bilan carbone ?
--  Slávny herec unikol smrti len o vlások: Prežil 6 infarktov... 4-krát ho oživovali!
--  A-traktorn kan få boost av nya EU-regler
+-  Marcelo: “Certamente tenho condições para manter cargo”
+-  Salió de su casa para hacer trabajos de limpieza y desapareció
+-  Don Omar anuncia una nueva gira por Estados Unidos y Canadá en 2024
+-  Montpellier : l'École nationale d'architecture lauréate pour la rénovation de son bâtiment
+-  Vente exclusive, 80e D-Day, travaux... les infos du lundi 4 décembre à Caen
+-  Bitcoin Has a Larger Market Cap than Tesla, Walmart, and Visa
+-  Παναθηναϊκός AKTOR: «Ηφαίστειο» το ΟΑΚΑ κόντρα στη Ρεάλ Μαδρίτης - Ανακοινώθηκε sold out
+-  షాద్‌నగర్‌లో స్వేచ్ఛాయుత వాతావరణాన్ని కల్పించాలి
+-  Organizaciones señalan “hostigamiento” contra Álvaro Ramazzini y le muestran apoyo ante posible persecución
+-  في الذكرى 71 لإغتيال حشاد: تجمع نقابي و مسيرة عمالية لاتحاد الشغل
