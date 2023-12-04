@@ -10,7 +10,7 @@ import (
 )
 
 func main() {
-	apiKey := os.Getenv("NEWS_API_KEY") // Mengakses API key dari variabel lingkungan
+	apiKey := os.Getenv("NEWS_API_KEY")
 	if apiKey == "" {
 		fmt.Println("API key is not set")
 		return
@@ -32,10 +32,9 @@ func main() {
 	news := gjson.Get(string(body), "results.#.title")
 	news.ForEach(func(key, value gjson.Result) bool {
 		fmt.Println(value.String())
-		return true // keep iterating
+		return true
 	})
 
-	// Write to README.md
 	file, err := os.Create("README.md")
 	if err != nil {
 		fmt.Println("Cannot create file", err)
@@ -46,7 +45,7 @@ func main() {
 	fmt.Fprintf(file, "# Latest News\n")
 	news.ForEach(func(key, value gjson.Result) bool {
 		fmt.Fprintln(file, "- ", value.String())
-		return true // keep iterating
+		return true
 	})
 
 	fmt.Println("README.md updated successfully.")
@@ -54,5 +53,5 @@ func main() {
 
 func init() {
 	loc, _ := time.LoadLocation("UTC")
-	time.Local = loc // Set the default time zone to UTC.
+	time.Local = loc
 }

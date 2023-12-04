@@ -1,6 +1,6 @@
 module news
 
-go 1.21.3
+go 1.23
 
 require (
 	github.com/tidwall/gjson v1.17.0
