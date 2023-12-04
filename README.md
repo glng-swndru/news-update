@@ -1,11 +1,51 @@
 # Latest News
--  البيت الأبيض يخاطب الكونغرس: "روسيا تقترب من النصر في أوكرانيا.. وأموالنا نفدت"
--  ¡Recoja agua! potabilizadora de Chame operará al 50%
--  Julián Gil anuncia que será abuelo por primera vez
--  Niños disfrutan la Feria Internacional del Libro en Los Mochis 2023
--  Depois do Sporting, Atalanta volta a vacilar com ares de 'traição'
--  Tucker Carlson’s ‘Right-Hand Man’ at Fox Sued for Sexual Assault
--  Home Improvement Season 3 Streaming: Watch & Stream Online via Disney Plus & Hulu
--  BIĆE BELEŽEN SVAKI POKRET U lopti za EURO 2024 poseban mikročip
--  No escondemos nada, responde Samuel a PRIAN
--  Cuenta IMPE con sala de imageneología
+-  С доставкой на дом
+-  Se incendia bodega de local comercial en Calidonia
+-  Reporte periódico para dos hombres por el hurto de 519 cajas de jabones
+-  Más de 10 millones de venezolanos votaron en el referendo sobre el Esequibo
+-  Butragueño saca pecho de Linda Caicedo, la 'Golden Girl'
+-  Bellingham recibe el 'Golden Boy': "Es un honor unirme a la lista de los ganadores"
+-  GORI ZAGREB ZBOG PRIJE I NATAŠE BEKVALAC! Aleksandra joj uputila jake reči, a pevačica odmah reagovala: "RECI TO MUŠKARCIMA"
+-  Israel intensifica ofensiva por terra e ar no sul da Faixa de Gaza
+-  Кот Васька и волшебная рыбка
+-  "NE SVETIM SE BRATU" Ispovest Jadranke iz Čačka o nasledstvu kog se odrekla podigla je Srbiju na noge: Roditelje ni za šta ne krivim
+-  معلومات عن بكتيريا تسببت في تسمم جنود الاحتلال الإسرائيلي.. أحدثت حالة قلق
+-  Phone power bank explodes metres away from resident in Thailand
+-  Rehan Ahmed rejects Sir Alastair Cook's criticism of Jos Buttler's captaincy
+-  Marcus Smith reveals struggles switching back to fly half after World Cup full-back experiment
+-  UK unveils tough new rules designed to cut immigrant numbers
+-  Tanks roll into southern Gaza as Israel expands its war on Hamas
+-  Queen Latifah, Billy Crystal and Dionne Warwick commemorated at Kennedy Center Honors
+-  Deep-water bomb explodes underwater off Denmark coast after being caught in fisherman's net
+-  “Intra-African Trade Fair 2023, a huge success”
+-  Heavy snowfall drops tree branches onto power lines, causing outages in New England
+-  Judges reject call for near ban on Hague prison visits for 3 former Kosovo Liberation Army fighters
+-  Harrowing testimonies reveal women in armed forces being raped, assaulted and bullied by male colleagues
+-  Stressed? This farm will let you cuddle their cows
+-  Trump tries to blame DeSantis for Florida State Football playoffs snub
+-  Man suspected of shoplifting stabs 2 security guards at Philadelphia store, killing 1
+-  Julia Roberts addresses 'heartbreaking' death of Friends star and ex-boyfriend Matthew Perry
+-  Boy accused of murdering Brianna Ghey says he saw girl stab teenager
+-  Tourists flee for lives as landslide crashes metres away in China
+-  The generational chess battle between grandmasters playing out on YouTube and Twitter
+-  US Navy plane removed from Hawaii bay after it overshot runway. Coral damage remains to be seen
+-  Ryan Reynolds trolls Taylor Swift and Blake Lively's Renaissance post
+-  Shooting at home in Washington state kills 5 including the suspected shooter, authorities say
+-  בקרוב האיחוד? לא תאמינו איך נראה היום סופרמן מ"לויס וקלארק"
+-  Mark Kotsay on the A’s Vegas vote, free agency wish list
+-  Mark Kotsay on the A’s Vegas vote, free agency wish list
+-  Best wine cooler Australia: Hundreds of shoppers rush to snap up ‘awesome’ wine cooler ahead of heatwave
+-  ميدو: تغييرات منتظرة في اتحاد الكرة
+-  Buffet na Pajuçara é interditado após flagrante de 70 kg de carne impróprios para consumo
+-  الشبلي: المبعوث الأممي يعمل على إرباك المشهد
+-  Hollywood Shuffle: 2 Entertainment Stocks to Drop and 1 to Grab
+-  FCM-chef om transfer-strategi: Vi har truppen på plads
+-  FCM-chef om transfer-strategi: Vi har truppen på plads
+-  Ограничение за съперниците на България в Лигата на нациите
+-  2023年「最低5000万ドル、最大100億ドル」大型資金調達に成功したAIベンチャー206社ランキング
+-  Merestui Pernikahan BCL, Ibunda Ashraf Sinclair Banjir Pujian
+-  Утечки персональных данных вносят в УК и КоАП
+-  Nat Barr sums up the government's catastrophic refugee bungle in two brutal words - as sex offender asylum seeker commits a crime after being released from detention
+-  عدن .. لن تكون سوقاً للبلاطجة !.| كتب ياسر الأعسم
+-  El tremendo fallido en LN+ que desnuda el plan menemista de Javier Milei
+-  Layoffs are mounting at Spotify, Netflix, Warner Bros. Discovery, and more — here are 13 entertainment companies hit by recent cuts
