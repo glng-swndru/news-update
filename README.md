@@ -1,51 +1,51 @@
 # Latest News
--  رئيس الشاباك الأسبق: على نتنياهو مغادرة منصبه
--  بعد الإعلان عن (طلائع طوفان الأقصى) .. حماس تطمئن اللبنانيين
--  هل اقتربت روسيا من حسم المعركة في أوكرانيا؟.. تصريح مفاجيء من البيت الأبيض
--  خلال أيام.. الإطاحة بعشرات التجار وضبط آلاف الزجاجات من أم الخبائث بدولة خليجية
--  الثلاثاء 21 جمادى الأولى.. 12 ساعة بين صلاتي الفجر والمغرب في بريدة
--  عاجل.. مساند تكشف إمكانية رفع طلب استقدام لمكتب العمل مباشرة؟
--  2023년 '솔로지옥' 하이라이트, 시즌3 제작발표회
--  에코프로그룹 대형 수주와 성공적 IPO…"전기차 저성장 돌파"
--  멕시코에 '전장 둥지' 트는 삼성·LG...멕시코를 선택한 이유?
--  공매도 제도 "시장자체를 바꿔야" vs "불필요" 의견 팽팽
--  어획 부진에 오징어 가격 급등...대형마트, 냉동 물량 확대로 대응
--  Rita Ora compared to Godzilla for rocking up to Fashion Awards in eye-popping prosthetics
--  Mauritanie : Mohamed Ould Abdelaziz condamné à 5 ans de prison
--  Duran Duran to Headline 2024 Cruel World Festival With Blondie, Interpol, and More
--  Finde largo: se espera gran movimiento en la triple frontera
--  Dilan ve Engin Polat'ın yabancı uyruklu çalışanı ve akrabası sınır dışı edilecek
--  EDITORIAL COMMENT: War on HIV can be won, we just have to keep going
--  “Di no a la pirotecnia, los explosivos no son juego”: Protección Civil inicia campaña en Angostura
--  Rio Tinto progresses Rhodes Ridge to next study phase
--  El orgullo de Laurent Sorozabal
--  Ανδρέας Ανδρεόπουλος για την αποχώρηση από τη Λάμψη: «Του λέω: δάσκαλε, εγώ δεν το παίζω αυτό το πράγμα»
--  Por sequía en estados productores de frijol en Sinaloa visualizan un buen precio para el grano: AARFS
--  חוקרים בודקים האם מאות כוכבים שנעלמו בלי להשאיר עקבות הוא תוצר של ציוויליזציה מתקדמת
--  Review: Toby Gad collaborates with Camylio on re-imagined version of Demi Lovato’s ‘Skyscraper’
--  تراند اليوم : شاهد:اللبنانية ⁧‫نانسي عجرم‬⁩ تشعل أجواء مهرجان البحر الاحمر السينمائي‬⁩ في جدة
--  Treasury Bills mop up $305bn excess liquidity
--  تراند اليوم : بالفيديو.. "النمر" يكشف سبب تعرض النساء للإصابة بالجلطات أكثر من الرجال.. و4 علامات تستدعي الذهاب إلى الطبيب
--  BREAKING: BlackRock Updates Bitcoin Spot ETF Application
--  تراند اليوم : بالفيديو.. المديفر يسأل مسؤول ب "هيئة المنافسة": لماذا قطع غيار السيارات لدينا "فيها لعب" وأسعارها مرتفعة؟.. شاهد رد الأخير
--  Giuntoli fa due nomi: «Mercato? Contiamo su di loro»
--  The Enduring Friendship of Leonardo DiCaprio and Kate Winslet
--  아산공예창작지원센터, 12월 크리스마스 무료 워크숍 개최
--  박경귀 아산시장 “전용 구장 수요 급증, 복합공간으로 해소해야”
--  남양주시의회, ‘2023 남양주시 자원봉사대축제’에서 봉사정신 고취
--  구리시, 2023년 도로정비평가 우수기관 선정
--  충남도, 이서준 주무관 ‘11월 우수직원’ 선정
--  아산시, 임도시설 우수사례 평가서 우수상 수상
--  충남도, 시즈오카현 우호교류 협정 10주년 기념 특별전
--  충남도, 자율주행 주정차 계도·방범 순찰 나선다
--  가평군, 지자체 최초로 보훈 정책 인정받아
--  포천세무서 이전 '물거품'…시의회 표결 동수로 부결
--  공주경찰서, 전국 이·미용실 돌며 현금 턴 절취범 검거
--  이철규 의원, 행안부 특별교부세 총 84억원 확보
--  동해상공회의소, '2023 주요사업 실적보고 및 상공인의 밤' 개최
--  동해시의회, 제336회 제2차 정례회 제4차 예산결산특별위원회 개최
--  고성문화재단, ‘문화도시 조성사업’성과공유회 개최
--  삼척시, 도계읍 장미사택 화재사고 이재민 후속조치 나서
--  동해해경 김정기 경위, 해양경찰청 ‘빛과 소금’ 선정
--  양천구 "장애인 맞춤형 재활서비스에 참여하세요"
--  강서구, 생활폐기물 수집·운반업 허가 기준 넓혀 청소행정 서비스의 질 높인다
+-  Empresas de Sorriso contratam 214 novos profissionais
+-  رزنـامـة غنيَّة بالفـعـاليـات المتنـوعـة خلال ديسـمبـر
+-  Evo šta se događa u tijelu nakon jedne neprospavane noći
+-  Fenerbahçe, zirve yarışında doludizgin
+-  ABD Kızıldeniz'de gemilerine düzenlenen saldırıdan İran'ı sorumlu tuttu
+-  Üsküdar'da İETT otobüsü yandı
+-  Homem é atacado por enxame e leva mais de 500 ferroadas de abelhas em Rio Claro
+-  Vanessa López deja en SHOCK al revelar que DJ Red es el padre de su primer hijo: ‘No lo firmó'
+-  Promi Big Brother: Yeliz Koc gewinnt Promi Big Brother
+-  B.C. farmers face third year of crop loss as pipeline project drags on
+-  Akosombo Dam Spillage: Dainess Foods Supports Flood Victims
+-  Tanzanya'daki sel ve heyelanda can kaybı yükseldi
+-  Polis memuru kalp krizi sonucu hayatını kaybetti
+-  Nevşehir'de kırmızı ışık ihlali kazaya neden oldu!
+-  Çorum'da deprem!
+-  Antalya'da 3 katlı boş otel lojmanı çöktü
+-  Mom accuses landlord of removing windows after joining OnlyFans to pay for heat
+-  हथियार नहीं, गीता के श्लोक लिखेंगे जम्मू-कश्मीर में नई इबारत, मनाया जाएगा गीता महोत्सव
+-  عرض جديد من الزمالك لحل أزمة غرامة سبورتنج لشبونة
+-  Kızılhaç: Gazze'de düzeltilemeyecek bir durumla karşı karşıyayız
+-  Подкаст свежего номера: 5 декабря 2023 года
+-  RHOBH’s Kyle Richards opens up about how friend’s death affected her marriage
+-  Don Omar anuncia una nueva gira por Estados Unidos y Canadá en 2024
+-  Borja Prado dimite como presidente de Mediaset España
+-  Borja Prado dimite como presidente de Mediaset España
+-  పోలవరం.. ముందుకు కదిలేనా?
+-  John Fetterman Calls Philly Rioters 'Pathetic', Says They're Motivated by 'Rank Antisemitism'
+-  Aumenta la preocupación por los asesinatos de cinco mujeres en Carabobo en menos de una semana
+-  Aprende de Publicidad Programática en el próximo Summit
+-  Совмин Белоруссии продлил регулирование цен на стройматериалы
+-  Aaj Ka Tarot card: इन राशि वालों के लिए खास संकेत दे रहा है आज का टैरो कार्ड, बदल सकती है किस्मत
+-  Cómo calcular la gratificación de diciembre: ¿cuánto me toca recibir de aguinaldo?
+-  Mercato - PSG : La succession de Mbappé totalement relancée ?
+-  Sibel'i öldürüp 'intihar etti' diye ihbarda bulundu
+-  الدحيل يختتم مشواره القاري
+-  Roboti spasavaju Ruse na frontu! Neverovatno, ali postoji dokaz - morate videti (FOTO)
+-  Midweek di Premier League, il pronostico di Luton-Arsenal
+-  Zapata, doppietta e lacrime per Juric che commenta così dopo Torino-Atalanta
+-  AEW Rampage Rating Rises With Friday Return, Viewership Hits Seven-Week High
+-  «Женское движение» будет помогать в регионах родственникам участников спецоперации
+-  Совмин Белоруссии поручил послу в Москве подписать соглашение с РФ о ценных бумагах
+-  చప్పగా బస్సు యాత్ర!
+-  Cabello asegura que trabajarán en una ley para crear el estado Guayana Esequiba
+-  El Eibar también falla en Villarreal y se queda sin segunda plaza en LaLiga Hypermotion
+-  La Mau devela su nuevos sencillo “QDATE”, bajo la bandera Swaq Records
+-  Golden Boy nagrada u rukama Judea Bellinghama
+-  Upcoming IPO - मालामाल कर देगा DOMS, प्राइस अनाउंस होने से पहले GMP 200 हो गया
+-  Man who posed as agent and offered gifts to Secret Service sentenced to nearly 3 years
+-  ఏపీలో ఆ మూడు పార్టీలు ఒక్కటవుతాయి
+-  El sirirí de 'Jóvenes a la U' y la desfinanciación de la universidad pública
