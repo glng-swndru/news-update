@@ -1,11 +1,51 @@
 # Latest News
--  Horror as man, 25, is buried alive in 5ft-deep sand pit after freak beach BBQ accident in front of horrified friends
--  غداً .. انطلاق المؤتمر والمعرض الدولي للتمور في نسخته الرابعة بالرياض
--  Dječak-ubica Kosta K. šokirao na saslušanju, otkrio šta mu najviše nedostaje
--  Mets interested in Michael A. Taylor
--  2024 Budget: Buhari, Obasanjo, Jonathan, others get N13.8bn as upkeep allowance
--  Stuart Baxter: Taas potkut
--  Ogun Poly Shutdown Over Attacks On Students
--  Άρχισαν οι συμπληρωματικές απολογίες των Κροατών Χούλιγκαν για τη Νέα Φιλαδέλφεια
--  Ook sportspullen vernield tijdens sloop van 't Verlaat in Almkerk: CDA Altena stelt vragen
--  যেভাবে সুইচ দিচ্ছে, সেভাবে রোবট কমিশনাররা কাজ করছেন: রিজভী
+-  Soccerladuma | His Tragic Passing Has Hit Hard
+-  Asesinan a seis personas en dos masacres en Colombia
+-  Zelenskyj „obchází“ Zalužného v komunikaci s některými veliteli
+-  Dødsulykke udløser fire års fængsel til narkopåvirket bilist
+-  Dødsulykke udløser fire års fængsel til narkopåvirket bilist
+-  Monza rinforza il roster con Nik Mujanovic
+-  Френски министър поиска радикални мерки след смъртта на футболен фен
+-  UGC NET 2023 दिसंबर का एडमिट कार्ड जारी, यहां डायरेक्ट लिंक से करें डाउनलोड
+-  Milei cumple con 'alianza' eligendo a Bullrich y Petri (antes rivales) como ministros
+-  TBMM Başkanı Kurtulmuş'tan Cem Davran ve Ali Sinanoğlu'na Filistin mesajı: İnsanlık cephesinde yer aldığınız için teşekkürler
+-  Adana Demirspor'da Kluivert dönemi sona erdi
+-  CANLI| Fenerbahçe-Sivasspor
+-  Sağlık Bakanlığından 'aşılarda tehlike' iddialarına yalanlama: Sıcaklık ve stok takibi düzenli bir şekilde yapılıyor
+-  Odisha: Blackbuck, nilgai to wow visitors at Sambalpur Zoo soon
+-  Скаут Базеля переглядав гру півзахисника Руха у матчі із Зорею
+-  चार दिन पूर्व लापता हुई बच्ची का बगल के कमरे से ही मिला शव... हत्या की आशंका
+-  Son dakika! İYİ Parti ipleri kopardı: İş birliğine 'hayır' dedi
+-  SON DAKİKA HABERİ: İYİ Parti, CHP'nin yerel seçimde iş birliği teklifini reddetti
+-  James Harden l’assure, Daryl Morey lui avait promis un contrat max avec les Sixers
+-  Suvendu Adhikari wears t-shirt with ‘Mamata chor’ printed on it, case filed
+-  Lovrić pustio dramatičnu snimku s Jakuševca: Čovjek je ostao bez ruke. Odnijelo ga je skroz do nasipa, ej užas, užas!
+-  HUAWEI เผยนวัตกรรมใน HUAWEI FreeBuds Pro 3 ทำไมถึงเป็นหูฟังเรือธงคุ้มเกินราคา
+-  Kayıp olarak aranıyordu! 17 yaşındaki Damla'dan acı haber
+-  Bursa'daki 5.1 büyüklüğündeki depremde Trilye'deki bazı binalarda çökme yaşandı
+-  İnegölspor Teknik Direktörü: Futbol hayatımda ilk kez böyle bir durumla karşılaşıyorum
+-  12 fenomenin şirketlerine kayyum atandı
+-  İletişim ve Medya Akademisi başladı
+-  한전 고객센터 SW 유지보수 사업 입찰담합…4개 업체에 2.5억원 과징금
+-  VIDEO: Police chase ends in Arrochar
+-  İYİ Parti, işbirliğini kabul etmedi!
+-  Feira das Velharias na Expoeste
+-  حسنية أكادير يبحث عن صيغة لفك الإرتباط مع متولي
+-  Shah Rukh Khan के घर आई पहली इलेक्ट्रिक कार, कीमत और रेंज जानकर रह जाएंगे हैरान!
+-  Avis: Britisk atomanlæg hacket af grupper med russisk forbindelse
+-  Avis: Britisk atomanlæg hacket af grupper med russisk forbindelse
+-  Buhari To Attend Public Presentation Of Book Written By Adesina
+-  ASSE : le groupe de Batlles contre Guingamp est tombé, Larsonneur bien de retour !
+-  Extienden contrato de Chourio con cifra récord en Milwaukee
+-  Асен Василев: Има огромен ръст на вноса и износа на стоки с двойна употреба към Русия
+-  Single-digit export earnings seen in 2024
+-  فريق النصر يقابل الانوار على ملعب بنينا .
+-  اللافي يبحث مع أعيان قبيلة المقارحة المصالحة الوطنية، وأوضاع السجناء.
+-  خبير استراتيجي بالخارجية الصينية لـ(وال) : الأمن والاستقرار أبرز التحديات التي تواجه عمليات التحديث التنموي في ليبيا
+-  Hanukkah 2023: ¿Cuál es el significado de esta celebración?
+-  Smart aufgebrochen: Kölner Polizei verhaftet zwei mutmaßliche Autoknacker
+-  Путин сообщил о предстоящей встрече с Токаевым в конце декабря
+-  Top Nigerian Players That Scored For Their European Clubs Last Weekend
+-  La Hora de comer importa: Un estudio pionero sobre el impacto del reloj biológico en la longevidad
+-  경북도의회 행복위, 복지건강국·지방시대정책국 2024년도 본예산 심사
+-  경북도의회 건설소방위원회, 군공항 소음지역 현지확인 실시
