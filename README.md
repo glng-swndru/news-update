@@ -1,11 +1,11 @@
 # Latest News
--  서동주, 여신 같은 금빛 비주얼…모으지 않아도 넘치는 볼륨감
--  FIA receives directive to monitor Moonis Elahi’s case
--  عاجل.. الداخلية تعلن عن تنفيذ حكم الشرع في هدى المطيري وتكشف جريمتها البشعة
--  انزلاق جمل داخل متنزه.. ماذا حدث لراكبه؟
--  "مكافحة المخدرات" تضبط أكثر من 13 قرص مخدر بالرياض
--  هل يلزم إثبات ملكية الأرض للتسجيل والحصول على دعم ريف؟
--  Les porteurs d'obligations de Sound Energy votent en faveur de la restructuration des obligations
--  Auto Nejma : baisse de 24,7% du C.A. à fin septembre
--  CONTINENTAL AG : JP Morgan confirme sa recommandation neutre
--  Intel : accord avec Siemens autour des semi-conducteurs
+-  외면받는 바이오시밀러도 있다?
+-  ظاهرة «النينيو» تقتل 120 شخصا في فيضانات كينيا.. ماذا يخبئ لنا الشتاء؟
+-  क्या 'डिनर पॉलिटिक्स' के जरिए दिल्ली को संदेश देना चाहती हैं वसुंधरा राजे? घर पहुंचे कई विधायक
+-  Pirates fan: Winnie Mashaba’s dance shuts down FNB stadium [watch]
+-  Details and Numbers: What is Russia's Unbeatable Avangard Hypersonic Weapon?
+-  Scintillating, steamy Singapore
+-  아이폰 인도 공장, 폭우에 일시 가동 중단...애플 주가 1.7%↓
+-  टी20 वर्ल्ड कप के लिए तैयार है यंग इंडिया, अब इन 5 खिलाड़ियों की वापसी मुश्किल!
+-  Coche del Año de los Lectores: las seis marcas finalistas defienden sus candidaturas
+-  Madden 24 players debate whether or not revamped blocking system works
