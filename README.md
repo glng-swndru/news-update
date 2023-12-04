@@ -1,51 +1,11 @@
 # Latest News
--  Provocou? Cruzeiro fala em 'pipoca' ao divulgar bastidores de empate com o Botafogo
--  İsveç bankasına 123 milyon dolar ceza: ABD'lilerin vergi kaçakçılığına yardım
--  Bijna 4 op 5 mensen shoppen online, vooral twintigers en dertigers
--  En Aquiles Serdán permanecen con 39% de sobrepoblación
--  Se encontraba comiendo pollo y de pronto murió
--  ‘Organizaciones civiles aportan 6 de cada 100 empleos directos’
--  EU will Preisdeckel für russische Ölexporte verschärfen
--  Fox Valley Hands of Hope offers holiday grief support
--  Julia Roberts reflects on brief relationship with late Matthew Perry
--  برعاية معالي وزير الدفاع.. كلية الهندسة تحتفل بتخرج الدفعة الـ 18 لطلاب قسم تكنولوجيا المعلومات بجامعة عدن
--  'I hope this award encourages others to follow the path I took'
--  Woman, 92, dies after being hit by car in Liverpool
--  Christmas panto Aladdin flies into St Helens Theatre Royal
--  Eight friends each affected by cancer win award for Kili climb
--  Police charge 'retail theft' suspect in Prescot
--  Police make drugs arrests after attending property in Prescot
--  How much is the BBC TV Licence fee? What UK households spend a year
--  Closure on M58 due to 'police incident'
--  California Reading Program Sees Positive Results, Study Finds
--  Retired U.S. Diplomat Manuel Rocha Accused of Spying for Cuba
--  Tyler Goodson of 'S-Town' Podcast Is Shot Dead in Police Standoff
--  Sultan Al Jaber Tries to Calm Uproar Over a Remark on Fossil Fuels
--  A Prison at War: The Convicts Sustaining Putin's Invasion
--  California Reading Program Sees Positive Results, Study Finds
--  This Building Was Deemed 'Outright Inhumane.' But They Say It's Home.
--  Sultan Al Jaber Tries to Calm Uproar Over a Remark on Fossil Fuels
--  What We Know About Sexual Violence During the Oct. 7 Attacks on Israel
--  Opinion | Mergers Like JetBlue's Proposed Acquisition of Spirit Usually Turn Out to Be Bad
--  White House Condemns Protest at Israeli Restaurant in Philadelphia
--  This Building Was Deemed 'Outright Inhumane.' But They Say It's Home.
--  What We Know About Sexual Violence During the Oct. 7 Attacks on Israel
--  Opinion | There Are Politicians Who Lie More Than Is Strictly Necessary
--  Opinion | Mergers Like JetBlue's Proposed Acquisition of Spirit Usually Turn Out to Be Bad
--  Why a Second Trump Presidency May Be More Radical Than His First
--  U.S. Considers Task Force to Guard Red Sea Ships From Iranian Proxy Forces
--  Israeli Troops Have Advanced Into Southern Gaza
--  Opinion | There Are Politicians Who Lie More Than Is Strictly Necessary
--  R.F.K. Jr. Allies Say They'll Spend Over $10 Million on Ballot Access
--  Why a Second Trump Presidency May Be More Radical Than His First
--  Best Theater of 2023
--  R.F.K. Jr. Allies Say They'll Spend Over $10 Million on Ballot Access
--  Retired U.S. Diplomat Manuel Rocha Accused of Spying for Cuba
--  Best Theater of 2023
--  A Prison at War: The Convicts Sustaining Putin's Invasion
--  2023 sera une bonne année pour la récolte des avocats en Israël.
--  U.S. Moves to Crack Down on Money Behind Fentanyl Trade
--  Attaque à Paris: le RN et la droite à l'offensive pour étendre le dispositif au terrorisme
--  Guillaume Tabard: «Sous les raisons médicales, un fondement idéologique»
--  Sachets, perles de nicotine... Ces alternatives inquiétantes qui pourraient remplacer la puff
--  La rétention de sûreté, une mesure que l'on prononce avec mille précautions
+-  Kasarnya Orang Yahudi Saat Menagih Utang pada Nabi Muhammad
+-  Sudah 45 Tahun PBB Tetapkan Hari Solidaritas, tapi Palestina Masih Dijajah Israel
+-  이마트24, 위스키 성수기 12월 '트리플 혜택' 이벤트
+-  "초보 공시생, 모여라"…에듀윌, 공무원 럭키딜 이벤트 개최
+-  농식품부 장관에 송미령 농촌경제연구원 부원장 지명
+-  Lejos de las cámaras, Cinthia Fernández explicó de qué se trata su nuevo negocio: “Loca aventura”
+-  Singapore’s Very Tay and Philippines’ Black Ops Announce Genre Film Plans – ATF
+-  Singapore’s Very Tay and Philippines’ Black Ops Announce Genre Film Plans – ATF
+-  Singapore’s Very Tay and Philippines’ Black Ops Announce Genre Film Plans – ATF
+-  Singapore’s Very Tay and Philippines’ Black Ops Announce Genre Film Plans – ATF
