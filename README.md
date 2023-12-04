@@ -1,11 +1,51 @@
 # Latest News
--  Svečanom sjednicom Gradskog vijeća završila višednevna proslava 237. Dana grada Osijeka
--  APPEL A LA LIBERATION DE BAZOUM : Niamey se pliera-t-elle aux injonctions de la CEDEAO ?
--  El gobernador de Dakota del Norte, Doug Burgum, se retira de la carrera hacia la Casa Blanca
--  ڈسکوز بلنگ انکوائری رپورٹ، کے الیکٹرک کا بیان سامنے آگیا
--  Rama nga Shkodra: Cilat janë gabimet e kundërshtarit ku duhet të mësojë PS
--  Florence Pugh na promociji filma pogođena u lice predmetom bačenim iz publike
--  Словакия исключила поставки оружия и боеприпасов Украине
--  Мария Габриел: Създаването на първата външнополитическа стратегия е предизвикателство
--  Un jeune homme disparu au large de Papenoo
--  Myleene Klass flaunts her jaw-dropping figure in a VERY racy sheer gown as she braves the rain at the British Fashion Awards 2023
+-  Zwaargewonde door steekpartij in parking Vinkeveen
+-  Experts: oorlog Oekraïne veroorzaakt 150 miljoen ton CO2-uitstoot
+-  BM'den Gazze'de ateşkes çağrısı
+-  Delegation From Ladakh Calls On Nityanand Rai
+-  Steelers QB Kenny Pickett out indefinitely after undergoing surgery for a high right ankle sprain
+-  Kim Kardashian Lands Another Acting Gig As She Plans To Star In New Hulu Legal Drama From Ryan Murphy
+-  Frankreich: Terrorattacke in Paris – hätte die Bluttat verhindert werden können?
+-  Frankreich: Terrorattacke in Paris – hätte die Bluttat verhindert werden können?
+-  Gabby Petito lawsuit: Brian Laundrie's parents finally admit what their son told them, attorney says
+-  SHOT: Известный по обзорам на "Смешариков" блогер Никита Васин умер в реанимации
+-  Soirée Ciné d'époque pour le Centenaire Gustave Eiffel : événement incontournable à Marne-la-Vallée
+-  Supreme Court appears divided over Purdue Pharma bankruptcy deal
+-  Megnyitott az eplényi síaréna
+-  Mon Laferte anuncia gira para el 2024: Tendrá cuatro conciertos en Chile
+-  Baker Mayfield and wife Emily expecting baby
+-  Els països de la UE volen baixar l’edat de conduir a 17 anys, si es fa acompanyat
+-  Chourio gets $82 million, 8-year deal with Brewers, largest before a player's big league debut
+-  రమణీయం.. రాఘవేంద్రుడి స్వర్ణ పల్లకి సేవ
+-  సత్యదేవుడి సన్నిధిలో కార్తీక సందడి
+-  Schianto lungo la Marattana, quattro auto coinvolte: chiusa la strada
+-  Avrupa borsaları düşüşle kapandı
+-  İsrail güçleri, Batı Şeria'da bir Filistinliyi daha öldürdü
+-  İrfan Can Kahveci göz dolduruyor!
+-  Gazze Şeridi'nde iletişim hizmetleri tamamen kesildi
+-  KKTC Cumhurbaşkanı Tatar, Caparov ile görüştü
+-  3 أبراج أحوالهم المادية سيئة للغاية في بداية 2024.. هل أنت منهم؟
+-  حملة حازم عمر تعقد لقاءً تنظيميًا مع أعضاء لجنة الشئون الصحية لحزب الشعب الجمهوري
+-  وزير دفاع الاحتلال: الجيش سيظل في شمال غزة حتى تدمير البنية التحتية لحماس
+-  الخارجية الأمريكية: لم نرَ أي دليل أن إسرائيل تقتل المدنيين عمدًا
+-  بقيمة مليون جنيه.. محافظ المنيا يوقع بروتوكولًا مع البنك الزراعي المصري لدعم الأسر الأكثر احتياجًا
+-  الانتخابات الرئاسية.. 484 ألفًا و502 ناخبين في السويس و6 لجان للمغتربين
+-  مدير الكلية البحرية السابق: الفرقاطة المصرية "الجبار" الأحدث عسكريا على مستوى العالم
+-  جيش الاحتلال يعلن توسيع عملياته البرية لتشمل كل مناطق قطاع غزة
+-  أمطار وسيول على هذه المناطق.. الأرصاد تعلن تفاصيل طقس الثلاثاء
+-  اندلاع حريق داخل برج سكني في الهرم
+-  "بسبب التبرعات".. ارتفاع حالات الإصابة بالتسمم في صفوف جنود الاحتلال بغزة
+-  Samsun’da otomobil yolcu otobüsüyle çarpıştı: Ölü ve yaralılar var
+-  Fenerbahçe-Sivasspor: 4-1 (ÖZET)
+-  PF prende britânico procurado pela Interpol em Balneário Camboriú
+-  İşgalci İsrail'in ablukası altındaki Gazze Şeridi'nde iletişim hizmetleri tamamen kesildi
+-  Giuntoli al Golden Boy 2023: "Juventus gruppo straordinario"
+-  Lazio-Genoa, quanti indisponibili: Vecino escluso per motivi disciplinari
+-  Judo, Slam a Tokyo: podio per il judoka Manuel Lombardo
+-  Gatti: "Bacio alla maglia? Juve mi ha stravolto la vita. Inter e Napoli..."
+-  Arsenal-Juve, Gaspar e il siparietto con Giuntoli: mercato al Golden Boy
+-  SC Derbi slavio protiv Mege
+-  జగన్‌ను ఇంటికి సాగనంపాలి: మాజీ ఎమ్మెల్యే
+-  Почему нервничает Си Цзиньпин
+-  KOMŠIJA KOMŠIJU NE POZNAJE! Ova porodica se vratila u Srbiju: Nemojte da jedete kozerve samo da biste rekli da živite u Parizu
+-  Aptikta iš kosmoso į Žemę sklindanti itin didelės energijos dalelė: jai neprilygsta net ...
