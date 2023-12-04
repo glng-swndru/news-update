@@ -1,51 +1,51 @@
 # Latest News
--  С доставкой на дом
--  Se incendia bodega de local comercial en Calidonia
--  Reporte periódico para dos hombres por el hurto de 519 cajas de jabones
--  Más de 10 millones de venezolanos votaron en el referendo sobre el Esequibo
--  Butragueño saca pecho de Linda Caicedo, la 'Golden Girl'
--  Bellingham recibe el 'Golden Boy': "Es un honor unirme a la lista de los ganadores"
--  GORI ZAGREB ZBOG PRIJE I NATAŠE BEKVALAC! Aleksandra joj uputila jake reči, a pevačica odmah reagovala: "RECI TO MUŠKARCIMA"
--  Israel intensifica ofensiva por terra e ar no sul da Faixa de Gaza
--  Кот Васька и волшебная рыбка
--  "NE SVETIM SE BRATU" Ispovest Jadranke iz Čačka o nasledstvu kog se odrekla podigla je Srbiju na noge: Roditelje ni za šta ne krivim
--  معلومات عن بكتيريا تسببت في تسمم جنود الاحتلال الإسرائيلي.. أحدثت حالة قلق
--  Phone power bank explodes metres away from resident in Thailand
--  Rehan Ahmed rejects Sir Alastair Cook's criticism of Jos Buttler's captaincy
--  Marcus Smith reveals struggles switching back to fly half after World Cup full-back experiment
--  UK unveils tough new rules designed to cut immigrant numbers
--  Tanks roll into southern Gaza as Israel expands its war on Hamas
--  Queen Latifah, Billy Crystal and Dionne Warwick commemorated at Kennedy Center Honors
--  Deep-water bomb explodes underwater off Denmark coast after being caught in fisherman's net
--  “Intra-African Trade Fair 2023, a huge success”
--  Heavy snowfall drops tree branches onto power lines, causing outages in New England
--  Judges reject call for near ban on Hague prison visits for 3 former Kosovo Liberation Army fighters
--  Harrowing testimonies reveal women in armed forces being raped, assaulted and bullied by male colleagues
--  Stressed? This farm will let you cuddle their cows
--  Trump tries to blame DeSantis for Florida State Football playoffs snub
--  Man suspected of shoplifting stabs 2 security guards at Philadelphia store, killing 1
--  Julia Roberts addresses 'heartbreaking' death of Friends star and ex-boyfriend Matthew Perry
--  Boy accused of murdering Brianna Ghey says he saw girl stab teenager
--  Tourists flee for lives as landslide crashes metres away in China
--  The generational chess battle between grandmasters playing out on YouTube and Twitter
--  US Navy plane removed from Hawaii bay after it overshot runway. Coral damage remains to be seen
--  Ryan Reynolds trolls Taylor Swift and Blake Lively's Renaissance post
--  Shooting at home in Washington state kills 5 including the suspected shooter, authorities say
--  בקרוב האיחוד? לא תאמינו איך נראה היום סופרמן מ"לויס וקלארק"
--  Mark Kotsay on the A’s Vegas vote, free agency wish list
--  Mark Kotsay on the A’s Vegas vote, free agency wish list
--  Best wine cooler Australia: Hundreds of shoppers rush to snap up ‘awesome’ wine cooler ahead of heatwave
--  ميدو: تغييرات منتظرة في اتحاد الكرة
--  Buffet na Pajuçara é interditado após flagrante de 70 kg de carne impróprios para consumo
--  الشبلي: المبعوث الأممي يعمل على إرباك المشهد
--  Hollywood Shuffle: 2 Entertainment Stocks to Drop and 1 to Grab
--  FCM-chef om transfer-strategi: Vi har truppen på plads
--  FCM-chef om transfer-strategi: Vi har truppen på plads
--  Ограничение за съперниците на България в Лигата на нациите
--  2023年「最低5000万ドル、最大100億ドル」大型資金調達に成功したAIベンチャー206社ランキング
--  Merestui Pernikahan BCL, Ibunda Ashraf Sinclair Banjir Pujian
--  Утечки персональных данных вносят в УК и КоАП
--  Nat Barr sums up the government's catastrophic refugee bungle in two brutal words - as sex offender asylum seeker commits a crime after being released from detention
--  عدن .. لن تكون سوقاً للبلاطجة !.| كتب ياسر الأعسم
--  El tremendo fallido en LN+ que desnuda el plan menemista de Javier Milei
--  Layoffs are mounting at Spotify, Netflix, Warner Bros. Discovery, and more — here are 13 entertainment companies hit by recent cuts
+-  رئيس الشاباك الأسبق: على نتنياهو مغادرة منصبه
+-  بعد الإعلان عن (طلائع طوفان الأقصى) .. حماس تطمئن اللبنانيين
+-  هل اقتربت روسيا من حسم المعركة في أوكرانيا؟.. تصريح مفاجيء من البيت الأبيض
+-  خلال أيام.. الإطاحة بعشرات التجار وضبط آلاف الزجاجات من أم الخبائث بدولة خليجية
+-  الثلاثاء 21 جمادى الأولى.. 12 ساعة بين صلاتي الفجر والمغرب في بريدة
+-  عاجل.. مساند تكشف إمكانية رفع طلب استقدام لمكتب العمل مباشرة؟
+-  2023년 '솔로지옥' 하이라이트, 시즌3 제작발표회
+-  에코프로그룹 대형 수주와 성공적 IPO…"전기차 저성장 돌파"
+-  멕시코에 '전장 둥지' 트는 삼성·LG...멕시코를 선택한 이유?
+-  공매도 제도 "시장자체를 바꿔야" vs "불필요" 의견 팽팽
+-  어획 부진에 오징어 가격 급등...대형마트, 냉동 물량 확대로 대응
+-  Rita Ora compared to Godzilla for rocking up to Fashion Awards in eye-popping prosthetics
+-  Mauritanie : Mohamed Ould Abdelaziz condamné à 5 ans de prison
+-  Duran Duran to Headline 2024 Cruel World Festival With Blondie, Interpol, and More
+-  Finde largo: se espera gran movimiento en la triple frontera
+-  Dilan ve Engin Polat'ın yabancı uyruklu çalışanı ve akrabası sınır dışı edilecek
+-  EDITORIAL COMMENT: War on HIV can be won, we just have to keep going
+-  “Di no a la pirotecnia, los explosivos no son juego”: Protección Civil inicia campaña en Angostura
+-  Rio Tinto progresses Rhodes Ridge to next study phase
+-  El orgullo de Laurent Sorozabal
+-  Ανδρέας Ανδρεόπουλος για την αποχώρηση από τη Λάμψη: «Του λέω: δάσκαλε, εγώ δεν το παίζω αυτό το πράγμα»
+-  Por sequía en estados productores de frijol en Sinaloa visualizan un buen precio para el grano: AARFS
+-  חוקרים בודקים האם מאות כוכבים שנעלמו בלי להשאיר עקבות הוא תוצר של ציוויליזציה מתקדמת
+-  Review: Toby Gad collaborates with Camylio on re-imagined version of Demi Lovato’s ‘Skyscraper’
+-  تراند اليوم : شاهد:اللبنانية ⁧‫نانسي عجرم‬⁩ تشعل أجواء مهرجان البحر الاحمر السينمائي‬⁩ في جدة
+-  Treasury Bills mop up $305bn excess liquidity
+-  تراند اليوم : بالفيديو.. "النمر" يكشف سبب تعرض النساء للإصابة بالجلطات أكثر من الرجال.. و4 علامات تستدعي الذهاب إلى الطبيب
+-  BREAKING: BlackRock Updates Bitcoin Spot ETF Application
+-  تراند اليوم : بالفيديو.. المديفر يسأل مسؤول ب "هيئة المنافسة": لماذا قطع غيار السيارات لدينا "فيها لعب" وأسعارها مرتفعة؟.. شاهد رد الأخير
+-  Giuntoli fa due nomi: «Mercato? Contiamo su di loro»
+-  The Enduring Friendship of Leonardo DiCaprio and Kate Winslet
+-  아산공예창작지원센터, 12월 크리스마스 무료 워크숍 개최
+-  박경귀 아산시장 “전용 구장 수요 급증, 복합공간으로 해소해야”
+-  남양주시의회, ‘2023 남양주시 자원봉사대축제’에서 봉사정신 고취
+-  구리시, 2023년 도로정비평가 우수기관 선정
+-  충남도, 이서준 주무관 ‘11월 우수직원’ 선정
+-  아산시, 임도시설 우수사례 평가서 우수상 수상
+-  충남도, 시즈오카현 우호교류 협정 10주년 기념 특별전
+-  충남도, 자율주행 주정차 계도·방범 순찰 나선다
+-  가평군, 지자체 최초로 보훈 정책 인정받아
+-  포천세무서 이전 '물거품'…시의회 표결 동수로 부결
+-  공주경찰서, 전국 이·미용실 돌며 현금 턴 절취범 검거
+-  이철규 의원, 행안부 특별교부세 총 84억원 확보
+-  동해상공회의소, '2023 주요사업 실적보고 및 상공인의 밤' 개최
+-  동해시의회, 제336회 제2차 정례회 제4차 예산결산특별위원회 개최
+-  고성문화재단, ‘문화도시 조성사업’성과공유회 개최
+-  삼척시, 도계읍 장미사택 화재사고 이재민 후속조치 나서
+-  동해해경 김정기 경위, 해양경찰청 ‘빛과 소금’ 선정
+-  양천구 "장애인 맞춤형 재활서비스에 참여하세요"
+-  강서구, 생활폐기물 수집·운반업 허가 기준 넓혀 청소행정 서비스의 질 높인다
