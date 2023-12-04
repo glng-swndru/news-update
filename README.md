@@ -1,11 +1,11 @@
 # Latest News
--  Marcelo: “Certamente tenho condições para manter cargo”
--  Salió de su casa para hacer trabajos de limpieza y desapareció
--  Don Omar anuncia una nueva gira por Estados Unidos y Canadá en 2024
--  Montpellier : l'École nationale d'architecture lauréate pour la rénovation de son bâtiment
--  Vente exclusive, 80e D-Day, travaux... les infos du lundi 4 décembre à Caen
--  Bitcoin Has a Larger Market Cap than Tesla, Walmart, and Visa
--  Παναθηναϊκός AKTOR: «Ηφαίστειο» το ΟΑΚΑ κόντρα στη Ρεάλ Μαδρίτης - Ανακοινώθηκε sold out
--  షాద్‌నగర్‌లో స్వేచ్ఛాయుత వాతావరణాన్ని కల్పించాలి
--  Organizaciones señalan “hostigamiento” contra Álvaro Ramazzini y le muestran apoyo ante posible persecución
--  في الذكرى 71 لإغتيال حشاد: تجمع نقابي و مسيرة عمالية لاتحاد الشغل
+-  Svečanom sjednicom Gradskog vijeća završila višednevna proslava 237. Dana grada Osijeka
+-  APPEL A LA LIBERATION DE BAZOUM : Niamey se pliera-t-elle aux injonctions de la CEDEAO ?
+-  El gobernador de Dakota del Norte, Doug Burgum, se retira de la carrera hacia la Casa Blanca
+-  ڈسکوز بلنگ انکوائری رپورٹ، کے الیکٹرک کا بیان سامنے آگیا
+-  Rama nga Shkodra: Cilat janë gabimet e kundërshtarit ku duhet të mësojë PS
+-  Florence Pugh na promociji filma pogođena u lice predmetom bačenim iz publike
+-  Словакия исключила поставки оружия и боеприпасов Украине
+-  Мария Габриел: Създаването на първата външнополитическа стратегия е предизвикателство
+-  Un jeune homme disparu au large de Papenoo
+-  Myleene Klass flaunts her jaw-dropping figure in a VERY racy sheer gown as she braves the rain at the British Fashion Awards 2023
