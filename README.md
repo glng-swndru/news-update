@@ -1,51 +1,11 @@
 # Latest News
--  Maląg: w 2023 i 2024 r. co najniej 75 tys. osób będzie mogło skorzystać z "bezpiecznego kredytu 2 proc."
--  Estos son los diez países de Latinoamérica que más consumen cerveza según la OMS
--  Le ultime dal Grande Torino: gioca Linetty, Ricci in panchina
--  Бросок на юг: как Израиль планирует продолжать операцию в секторе Газа
--  Mujer muere a raíz de una herida con arma blanca en Cerro Cocobolo
--  Winterfair in Zijderveld afsluiter van festiviteiten rondom 75-jarig bestaan
--  La profunda carta de Diego Placente tras el cuarto puesto de la Selección Sub 17 en el Mundial: la frase de Pablo Aimar que le arranca “un lagrimón”
--  Asturias sube el sueldo en los 4 niveles de carrera profesional sanitaria
--  Los bancos de desarrollo destinan 180.000 millones de dólares extra a la financiación climática
--  Ha kell, a csecsemők pelenkájába is belenéznek a magyar börtönőrök
--  Ésta es la historia de la frase ‘Re-Hecho en CU’ que lució el Chino Huerta en su victoria con Pumas
--  Eight Questions That Will Shape the NFL Playoff Race
--  Proprietária da franquia do Miss Universo na Nicarágua é acusada de conspiração
--  Habilitan paso elevado en carretera a Sonsonate
--  Пивоваров: «Динамо» занимает то место, которое заслуживает
--  Estas son las series de moda en Netflix Argentina hoy
--  Moody's considera "negativas" las perspectivas para el sector bancario mundial en 2024
--  أمريكا تتهم سفيراً سابقاً بالتجسس لحساب كوبا
--  Colocan letreros preventivos de atrapamiento en Bowí
--  Feijóo elige a Floriano como portavoz de Exteriores en el Congreso y Álvarez de Toledo de Constitucional
--  Llevan posada a menores de Baborigame y Guadalupe y Calvo
--  EE.UU. avisa a Venezuela que la disputa con Guyana no se resuelve con el referéndum
--  Valor de cierre del dólar en República Dominicana este 4 de diciembre de USD a DOP
--  Endometriosis: It’s time to change the pattern of pain, stigma and barriers to diagnosis and treatment
--  El Consejo de la Unión Europea da luz verde a la firma del Acuerdo comercial con Chile
--  A new Southwest card bonus can get you halfway to Companion Pass status, which lets you fly a friend for free
--  В СФ подготовили проект по поддержке военнослужащих, получивших ранение
--  Valor de cierre del euro en Bolivia este 4 de diciembre de EUR a BOB
--  Colombia y el ELN inician en México el quinto ciclo de sus negociaciones de paz
--  VÍDEO: Bolaños dice que Gobierno colaborará en la investigación a agentes del CNI acusados de filtrar información a EEUU
--  República Dominicana: cotización de cierre del euro hoy 4 de diciembre de EUR a DOP
--  Aitana Bonmatí: "Los premios individuales no vienen sin un trabajo colectivo"
--  İYİ Parti'de kazan kaynıyor: İbrahim Özkan'dan parti yönetimine 'ittifak' tepkisi
--  Dispute Between Haslam Family & Berkshire Hathaway Could Be Headed to January Court Date
--  Alternative Smokeless Products Stand Out on the Backbar
--  Herida una persona tras una salida de vía en la parroquia de Ortoño
--  La FA podría sancionar al City por la actitud de sus jugadores con el colegiado tras el duelo ante el Tottenham
--  Fiscal de Perú solicita a jueces que se inhiban del proceso disciplinario en su contra
--  Claves económicas que marcarán la semana en América
--  Restaurantbesuch wird immer teurer: Sollte man noch Trinkgeld zahlen?
--  Bolivia: cotización de cierre del dólar hoy 4 de diciembre de USD a BOB
--  Lepa Brena zakazala Arenu: Bit će vruće kao kod naše Aleksandre
--  Pour rompre la solitude de nos aînés, l'association Veilleurs en Voisins recherche des bénévoles
--  Gaza families increasingly cornered amid Israel’s relentless onslaught
--  El fiscal general de Venezuela tilda de "victoria" el referéndum sobre el Esequibo
--  VIDEO Fanovi spremni za ludilo: 'Od Aleksandre očekujem show. Obožavam njene pjesme...'
--  目の前の人が「仕事ができる人かどうか」を見極める方法・ベスト1 - 1％の努力
--  Canadá dice que respeta la sentencia que anula el contrato de First Quantum en Panamá
--  China Brief – Much Cause But Little Recourse For Popular Discontent
--  Liga MX en vivo: dónde ver las semifinales de ida
+-  KISS se retira definitivamente de los escenarios
+-  A of VVD voters and 10% of NSC voters regret their choice; Would vote for other parties
+-  Orozco ya entendió que yo soy Gobernador: Samuel
+-  Registró Chihuahua las temperaturas más bajas
+-  Amethi News: हर तीसरे मरीज को बुखार, अस्पताल में लगी लंबी कतार
+-  Amethi News: पुलिस ने कब्जे में लिए मुआवजा घोटाले के रिकॉर्ड, जांच तेज
+-  Amethi News: खांसी के सीरप का नमूना फेल, कार्रवाई तेज
+-  Aligarh News: दूल्हे के मौसा से पौने दो लाख का बैग छीन ले गए बदमाश
+-  Jind News: पैसे ऐंठने की कोशिश करने पर चार नामजद
+-  Jind News: फरैण कलां और धरौदी पहुंची विकसित भारत संकल्प यात्रा
