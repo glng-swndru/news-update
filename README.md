@@ -1,11 +1,11 @@
 # Latest News
--  Desapareció juarense en Parral desde el pasado 20 de noviembre
--  Canadians can now buy tickets via Ticketmaster within TikTok
--  Presidente da Fiesc visita fábrica da BRF nos Emirados Árabes Unidos
--  Gobierno de Petro y ELN retoman diálogo en México en medio crisis tras rapto de padres de Luis Díaz
--  中 “요소 수출 중단, 자국 내 수급 문제로 보여”
--  이스라엘 “하마스 섬멸될 때까지 가자지구에 머물 것”
--  Kishan Reddy : మా పోరాటం.. కాంగ్రెస్‌కు కలిసొచ్చింది
--  Rússia começa a enviar primeiros lotes de grãos gratuitos para nações africanas em dificuldades
--  Rafael Ángel ‘Felo’ García, pintor y arquitecto, fue despedido entre el cariño y recuerdo de sus seres queridos
--  Critics Have Seen Wonka, And The Timothée Chalamet Film Is Getting Both Sour And Sweet Reactions
+-  Gasperini: “Brutta prestazione, la squadra non ha tutta la stessa mentalità”
+-  Aice pikat cita rasa rakyat Indonesia
+-  Nigeria loses $10bn annually to foreign welders
+-  Terpopuler: Jokowi Bagikan 200 Sertifikat Tanah ke Masyarakat Sultra, KCIC Diingatkan Jangan Sampai Pailit
+-  ‘Dune 2’ Is ‘More of an Action Movie,’ Says Denis Villeneuve: ‘The First Movie Was More Meditative,’ but the Sequel Is ‘More Muscular’
+-  Natale 2023: eventi e appuntamenti gratuiti
+-  광주시, 경기도 기업SOS대상 2년 연속 최우수상 쾌거
+-  “스페인에 남고 싶어”... 뉴캐슬, 데 헤아 영입 최대 위기 봉착→와이프 설득이 관건
+-  Acabar com a ajuda dos EUA a Kyiv "permitirá que Putin vença"
+-  Tukar penutup botol jadi alas meja, promosi kemampanan
