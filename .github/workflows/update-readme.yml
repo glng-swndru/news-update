@@ -18,6 +18,8 @@ jobs:
           NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
         run: go run main.go
       - name: Commit and Push changes
+        env:
+            GH_PAT: ${{ secrets.GH_PAT }}
         run: |
           git config --global user.name 'gilang swandaru'
           git config --global user.email 'gilangswandaru27@gmail.com'
