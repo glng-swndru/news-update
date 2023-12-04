@@ -1,11 +1,11 @@
 # Latest News
--  «كونا» تُطلق خدماتها الجديدة عبر برامج تظهر الجانب الإيجابي للكويت
--  الرئيس الروسي: نولي أهمية لتطوير علاقات التعاون مع الكويت في المجالات الاقتصادية والاستثمارية
--  النيجر تنهي العمل بالشراكات الأمنية والدفاعية مع الاتحاد الأوروبي
--  أمير قطر والرئيس التركي ناقشا القضايا والمستجدات الإقليمية والدولية
--  أميركا: لم نشاهد أي دليل على أن إسرائيل تقتل المدنيين عمداً في غزة
--  إيران ترفض الاتهامات الأميركية بالتورط في هجمات على سفن في البحر الأحمر
--  رئيس الإمارات وملك المغرب يوقّعان «إعلاناً نحو شراكة مبتكرة وراسخة»
--  رئيس غينيا بيساو يحل البرلمان بعد محاولة انقلاب
--  بالفيديو.. القعود: دعم كامل من «تمكين» للمرأة الفلسطينية
--  استثناء 3 فئات من حظر تحويل الإقامة من القطاع الحكومي إلى «الأهلي»
+-  البيت الأبيض يخاطب الكونغرس: "روسيا تقترب من النصر في أوكرانيا.. وأموالنا نفدت"
+-  ¡Recoja agua! potabilizadora de Chame operará al 50%
+-  Julián Gil anuncia que será abuelo por primera vez
+-  Niños disfrutan la Feria Internacional del Libro en Los Mochis 2023
+-  Depois do Sporting, Atalanta volta a vacilar com ares de 'traição'
+-  Tucker Carlson’s ‘Right-Hand Man’ at Fox Sued for Sexual Assault
+-  Home Improvement Season 3 Streaming: Watch & Stream Online via Disney Plus & Hulu
+-  BIĆE BELEŽEN SVAKI POKRET U lopti za EURO 2024 poseban mikročip
+-  No escondemos nada, responde Samuel a PRIAN
+-  Cuenta IMPE con sala de imageneología
