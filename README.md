@@ -1,11 +1,11 @@
 # Latest News
--  ‘The Golden Bachelor’: Leslie Fhima Can’t Say She ‘Respects’ Gerry Turner After the Breakup
--  Csak nyáron jöhet a Dragon Age: Dreadwolf teljes leleplezése
--  Governador articula venda de créditos de carbono de Mato Grosso a Singapura; “temos todo interesse”
--  İsmail Kartal'dan Beşiktaş derbisi öncesi flaş sözler!
--  ارشد شریف کے قتل پر کینیا کے ٹی وی کی تحقیقات
--  Bühnenglanz in Erlangen: Argentinischer Countertenor Fagioli verzaubert das Publikum
--  Telecom brinda a Cheeky la solución de Comunicaciones Unificadas para todos sus locales en la Argentina
--  Estas son las comunidades en España en las que NO hay clases este puente de diciembre
--  Social robots could be an effective tool to combat loneliness, according to study
--  News24 | SA inflated the number, there were only 124 unaccompanied children, Zimbabwe shoots back
+-  مستشار الأمن القومي الأمريكي: نتواصل مع القطريين والمصريين للضغط على حماس
+-  انقطاع الاتصالات والإنترنت في قطاع غزة بالكامل
+-  مستشار الأمن القومي الأمريكي: إسرائيل تقوم بعملياتها بعد إبلاغ الفلسطينيين بالإخلاء
+-  Mirjam heeft altijd wildvreemde mensen over de vloer. 'Geluk zit niet in een groot huis'
+-  Deze hoogleraar pleit voor een grens aan rijkdom: 'Waarom zou iemand meer dan 10 miljoen euro moeten hebben?'
+-  Hoe veilig zijn de kopstukken van Hamas in hun villa's in Qatar? 'Ze zijn voorbestemd om te sterven'
+-  EU-landen eisen dat Polen eind maakt aan blokkade trucks Oekraïne
+-  ‘MVP 야망’ 설영우에 엄원상 일침 “세리머니 욕심부터 줄여”[K리그 시상식]
+-  Nie żyje drugi z policjantów postrzelonych w głowy przez Maksymiliana F. we Wrocławiu
+-  Houthis may not be targeting US warships, Pentagon says
