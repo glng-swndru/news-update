@@ -1,11 +1,51 @@
 # Latest News
--  Türkiye ve Katar arasında ortak bildiri! 12 anlaşmaya imza atıldı...
--  Sem ideias? Sirva estas panquecas recheadas (e gulosas) ao lanche
--  U čemu je razlika među laptopima za obične i poslovne korisnike?
--  गर्भावस्था के दौरान महिला के गर्भाशय में हो गया था छेद, जानिए डॉक्टरों ने कैसे बचाई जान
--  29 Ekim Kadınları Derneği Bursa Şubesi: Genel seçimlerden dersimizi aldık
--  Türkiye ile Katar arasında 12 işbirliği anlaşması imzalandı
--  İsrail, Gazze'de iki okula hava saldırısı düzenledi!
--  Borsa günü değer kazanarak tamamladı
--  Pakistan'da deprem!
--  Bursa'da jandarmadan 'Engel olma farkında ol' projesi
+-  "Tag der Stille": Einige Weihnachtsmärkte verzichten heute auf Musik
+-  رئيس أورام الكبد: أكثر من 11 ألف طبيب هاجروا للخارج آخر 3 سنوات
+-  4 علامات تظهر على وجهك تكشف ارتفاع الكوليسترول في الدم
+-  গ্রিসের শিশু উৎসবে চার ইরানি চলচ্চিত্র
+-  নিষেধাজ্ঞার কারণে জলবায়ু তহবিল জোগান বাধাগ্রস্ত হওয়ার অভিযোগ সিরিয়ার
+-  মৌলভীবাজারে ৪টি আসনে ৭ জনের মনোনয়নপত্র বাতিল
+-  মাদারীপুরের ঢাবি পড়ুয়াদের ‘অপরাজেয়’ পেল নতুন নেতৃত্ব
+-  মালদ্বীপ থেকে সেনা প্রত্যাহারে রাজি হয়েছে ভারত
+-  টাঙ্গাইলে মোটরসাইকেল নিয়ন্ত্রণ হারিয়ে অটোভ্যানের সঙ্গে সংঘর্ষ, নিহত ২
+-  ভারপ্রাপ্ত থেকে জাবি রেজিস্ট্রারের পূর্ণ দায়িত্বে আবু হাসান
+-  ১৪ দলের বৈঠক: আসন নিয়ে দর কষাকষিতে বাড়ল অপেক্ষা
+-  আমাজনে চাকরি পেলেন কুবি শিক্ষার্থী যাদব
+-  গাজায় জাতিসংঘ নিজের কর্মীদেরও রক্ষা করতে পারেনি: এরদোগান
+-  চট্টগ্রাম-কক্সবাজার মহাসড়কে পৃথক সড়ক দুর্ঘটনায় শিশুসহ নিহত ৩
+-  জাতীয় সঞ্চয় অধিদপ্তরে নতুন ডিজি
+-  ঠাকুরগাঁও সীমান্তে বিএসএফের গুলিতে ২ বাংলাদেশি নিহত
+-  তাড়াশের মাঠে মাঠে সরিষার হলুদের সমারোহ
+-  Tunisie : 216 protestations en novembre contre 180 en octobre
+-  সমঝোতা ছাড়াই শেষ ১৪ দলের বৈঠক
+-  [부산도시공사, 한-인도 산업포럼 상임委 초청 강연회 가져
+-  مع دخول الشتاء.. احذر تشغيل السخان الكهربائي لأكثر من هذه المدة
+-  Corona priklocaties in Lekkerkerk en Schoonhoven langer open
+-  NFTs Are Enhancing Hospitality Experiences In More Ways Than One
+-  SUTRA SLAVIMO 3 SVETA APOSTOLA Ovu molitvu treba izgovoriti kako biste izbegli nevolje
+-  Петербуржцам рассказали, что можно отправить Деду Морозу кроме письма
+-  В Курской области 4 декабря сгорел жилой дом в селе Верхнее Гридино
+-  Spotlight’s mother of all pantos steals the limelight
+-  Henrik Brandão Jönsson: Venezuelas gränsdispyt kan bli internationell konflikt
+-  總統選戰超燒錢，柯文哲有資源打？民眾黨祭出精省戰法
+-  討厭蔥多過香菜！Uber Eats首揭渴望調查，外送備註欄藏秘密
+-  FEMPA celebra San Eloy con sus XVI jornadas técnicas para empresarios instaladores y mantenedores
+-  日幣將強勢升值？「日圓先生」榊原英資：明年此時將緊縮
+-  Ленинградский зоопарка рассказал про особенности работы зимой
+-  Ex-Pentagon Analyst: Ossified MIC to Prevent US From Ramping Up Counter-Drone System Production
+-  Op haar verzoek werd Romy in het ziekenhuis nog gedoopt, kort daarop blies ze haar laatste adem uit
+-  EU-Mercosur-Deal noch zu retten?: Scholz und Lula wollen um Freihandelsabkommen kämpfen
+-  جنبلاط يحذر من الحرب..
+-  Guillermo Godínez: Anticipa para bajar tu hipoteca
+-  Pert indított a Meta ellen több mint nyolcvan spanyol sajtóorgánum
+-  Microservices Market Will Hit Big Revenues in Future | IBM, Microsoft, Oracle
+-  Все в ресурсе: психологи отметили плюсы и минусы пятидневки в Кольском Заполярье
+-  La Procura Figc apre un procedimento su Thiago Motta
+-  India’s Top Clean Energy Firm to Invest $22 Billion to Boost Capacity Fivefold
+-  Kenan Karaman und die Zwickmühle : Lässt sich Sebastian Polter ausleihen?
+-  Perhimpunan Dokter Sebut Sudah Saatnya Fitofarmaka Masuk JKN
+-  À Quimper, une octogénaire contrainte à fuir son appartement pour pouvoir dormir
+-  Manager snubbed for Erik ten Hag will head to Old Trafford this week with a point to prove - Opinion
+-  Kenan Karaman und die Zwickmühle : Lässt sich Sebastian Polter ausleihen?
+-  ABD ile Çin arasında gerilim
+-  117 «зайцев» поймали контролеры в казанских троллейбусах и трамвая за неделю
