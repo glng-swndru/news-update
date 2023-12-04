@@ -1,51 +1,11 @@
 # Latest News
--  CHP'de HEDEP'in tek başına seçime girme kararı ilk kez değerlendirildi
--  La OFMA presentará una “Navidad que vuelve” en Lechería
--  Iers experiment: geen mobiele telefoon voor kinderen
--  “너희 지금 심판 욕했네, 선수들 관리 안 해?” 잉글랜드 축구협회, 결국 맨시티 기소
--  Avokatja: Suedia mund të kërkojë ekstradimin e Naim Murselit
--  Hüquq müdafiəçisnin saxlanıldığı bildirilir
--  익산시 용안생태습지 밑그림 그리고 2026년 지방정원 등록
--  J Balvin se va de gira por Europa en 2024
--  Former Gorakhpur paediatrician Kafeel Khan says his family, elderly mother fear renewed intimidation
--  Poważny zagraniczny kandydat na trenera Wisły Kraków. Szeroko znane nazwisko
--  David Ospina lidera la convocatoria de Colombia para los amistosos con México y Venezuela
--  Safra move ação judicial para impedir recuperação judicial da Americanas
--  Un gobierno calamitoso
--  Filistin Kızılayı Gazze'deki ekibiyle irtibatının kesildiğini duyurdu
--  Hakkında verilen hapis cezası onandı: Nazlı Ilıcak cezaevine girdi
--  Humillación y vergüenza
--  New Early Childhood Education Report Explores Opportunities for Improving Curriculum and Classroom Resources
--  Vancouver home sales rise amid ‘balanced’ market as newly-listed properties add to supply
--  Nadie hablará de las mujeres israelíes cuando estén muertas
--  فيديو.. أحمد موسى: مصر لا تأخذ إذن إسرائيل أو غيرها فيما يتعلق بعودة مواطنيها من قطاع غزة
--  Nada es verdad ni mentira
--  En manos de un tal Galindo Vélez
--  Растим лидеров
--  NYC’s newest speakeasy now serving tentacle dishes and Vegemite cocktails
--  Miquel Iceta serà ambaixador d’Espanya davant la Unesco
--  Nazlı Ilıcak cezaevine girdi
--  Frente Parlamentar do Comércio debater o fomento ao comércio exterior
--  Maioria da população já sofreu com eventos climáticos extremos
--  Corpo de Bombeiros realiza 5º seminário de Segurança Contra Incêndio e Pânico
--  Paulista A4: Independente de Limeira acerta com novo lateral esquerdo para 2024
--  Número de funcionários portuários detidos por suspeitas de tráfico de droga dispara
--  Cleverly pledges to deliver biggest ever reduction in net migration
--  Balıkesir'de emanet aldığı motosikletten düşen genç hayatını kaybetti
--  Bengals vs. Jaguars ‘Monday Night Football’ NFL DFS picks: Joe Mixon, Tee Higgins
--  Кузнецов: «Хочу поиграть за «Трактор» в конце карьеры»
--  "أصابع كوفيد".. علامة مزعجة لفيروس كورونا تتشابه مع نزلات البرد
--  L'art du crime : mauvaise nouvelle, vous allez devoir attendre avant de voir la suite !
--  Fotbalová Premier League prodala vysílací práva za rekordních 190 miliard korun
--  Here’s what ‘Golden Bachelor’ Gerry Turner told runner-up Leslie off-camera that led to blindside
--  "그의 이름은 전혀 나오지 않았다" '악동' CY 수상자 메이저 복귀 물거품? 美 현지 전망 최악이다
--  조우종, ♥정다은의 합방 제안에 "무슨 소리를 하는 거냐…각방 살이도 문제無" [동상이몽](MD리뷰)
--  “오타니, 6억달러 세팅?” 美에이전트들도 확신…토론토 급부상? 다저스 대세론 ‘확고’
--  Dictarán hasta 5 años de prisión por entorpecer el funcionamiento de transporte público
--  Exclusive: A Prominent Election Rights Lawyer Is Calling Out Atlanta’s Voter Suppression on Cop City Referendum
--  Spotify recortará 1.500 empleos en la tercera tanda de despidos del año
--  Fue dos muertos y un herido el saldo del enfrentamiento en El Sauz el día de ayer
--  Fenerbahçe teknik direktörü İsmail Kartal'dan derbi mesajı
--  New Brunswick unions consider job action over pension bill
--  Toronto police arrest 16-year-old girl, 2 others following gun seizure
--  "Bauer sucht Frau": Hans im Glück
+-  «كونا» تُطلق خدماتها الجديدة عبر برامج تظهر الجانب الإيجابي للكويت
+-  الرئيس الروسي: نولي أهمية لتطوير علاقات التعاون مع الكويت في المجالات الاقتصادية والاستثمارية
+-  النيجر تنهي العمل بالشراكات الأمنية والدفاعية مع الاتحاد الأوروبي
+-  أمير قطر والرئيس التركي ناقشا القضايا والمستجدات الإقليمية والدولية
+-  أميركا: لم نشاهد أي دليل على أن إسرائيل تقتل المدنيين عمداً في غزة
+-  إيران ترفض الاتهامات الأميركية بالتورط في هجمات على سفن في البحر الأحمر
+-  رئيس الإمارات وملك المغرب يوقّعان «إعلاناً نحو شراكة مبتكرة وراسخة»
+-  رئيس غينيا بيساو يحل البرلمان بعد محاولة انقلاب
+-  بالفيديو.. القعود: دعم كامل من «تمكين» للمرأة الفلسطينية
+-  استثناء 3 فئات من حظر تحويل الإقامة من القطاع الحكومي إلى «الأهلي»
