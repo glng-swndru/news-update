@@ -1,51 +1,51 @@
 # Latest News
--  Große Gefühle: "Bauer sucht Frau"-Hans und Elke küssen sich!
--  The best flats for women, based on years of testing them ourselves
--  Boliche conquista medallas en el Concecabol 2023
--  احتجاجات شهر نوفمبر 2023…منحى تصاعدي وزيادة في الاحتقان الاجتماعي
--  El impactante VIDEO viral de un avión rompiendo la barrera del sonido
--  Sorteo Bonoloto del lunes 4 de diciembre de 2023
--  Bellingham è il Golden Boy 2023: “Un grande onore. Real miglior club al mondo"
--  İsmail Kartal, Sivasspor galibiyetinin ardından açıklamalarda bulundu
--  Pampita se enojó por ser enfocada nuevamente durante entrega de premio a Benjamín Vicuña
--  ترتيب مجموعة الهلال السعودي بعد انتهاء الجولة الأخيرة في دوري أبطال آسيا
--  ظهور مميز لـ حجازي.. ترتيب مجموعة الاتحاد بعد الجولة الأخيرة في أبطال آسيا
--  إذا تناولت الزنجبيل يوميا لمدة شهر هذا ما يحدث لجسمك.. مفاجأة
--  Teenage Hadebe Leaves American MLS Soccer Club Houston Dynamo
--  توالي الاستعدادات لانطلاق معرض اسطنبول الدولي للكتاب العربي في نسخته الثامنة.
--  Με καρφωτή κεφαλιά ο Βίντα κάνει το 1-0 για την ΑΕΚ κόντρα στον Άρη (vid)
--  The Loungefly x BTS Collab Is Available at Amazon: Shop the ‘Dynamite’ Collection While You Still Can
--  Warnung vor Glatteis in Oberpfälzer Landkreisen
--  Comissão Mista de Orçamento pode votar Plano Plurianual nesta terça
--  Leitura de relatórios sobre indicações de Dino e Gonet será na quarta
--  Festejo inclusivo marca celebração do Dia Internacional da Pessoa com Deficiência
--  Iceta será nombrado este martes embajador de España ante la Unesco sustituyendo a José Manuel Rodríguez Uribes
--  "هيئة الاتصالات": نسعى لبناء تنظيمات مستدامة لتمكين الابتكار في تقنيات الفضاء
--  Niko neće ubicu na svom groblju! Monstrum Nermin Sulejmanović je već četiri meseca u hladnjači, a troškovi rastu!
--  Protest českých lekárov by mohol skončiť v piatok. Dohodli sa na zvýšení platov
--  이스라엘 “하마스 뿌리 뽑겠다”…유엔 “인도주의 휴전 촉구”
--  Time to Change Your DNA: 23andMe Lost Data for 6.9 Million People
--  Le chiffre d’affaires des PME régionales en hausse en 2023
--  «التجارة» تلغي 42 سلعة مخفّض سعرها من البطاقة التموينية
--  «الهلال الأحمر»: أهمية إبراز دور المتطوعين
--  10 أطنان مساعدات حملتها الطائرة الـ 33 لإغاثة غزة
--  الجلوي: مزيد من التعاون عربياً وعالمياً في الطيران المدني
--  مجلس الوزراء: الحالة الصحية لصاحب السمو الأمير مستقرة
--  محمد ثلاب في التصفيات النهائية لمهرجان الكاريكاتير الأفريقي بـ «الذكاء الاصطناعي»
--  «تفسير سورة الفاتحة.. فوائد ولطائف ودرر» جمعها أحمد براك الهيفي في كتابه الجديد
--  «إستراتيجيات التعلم» ورشة فنية متكاملة لـ «العربية» في «أم هاني الابتدائية»
--  شكر وتقدير
--  جنوب قطاع غزة يتحوّل «ساحة حرب».. و80% من سكانه ينزحون
--  Выпущенная ХАМАС ракета попала в израильскую ядерную базу
--  Condenan a dos hombres por robo a un taxista
--  ¡Pudo haber muerto! Michael B. Jordan chocó su Ferrari con otro carro
--  Yellen to visit Mexico for talks on boosting trade, fighting fentanyl trafficking
--  Rode Kruis bezorgd over hulp Gaza na uitval telefoon en internet
--  Volt uit coalitie Maastricht, kan geen wethouder leveren
--  Pictet legt US-Steuerstreit mit Zahlung von 122,9 Mio US-Dollar bei
--  Arturs Kurucs, entre las opciones del UCAM Murcia para reforzar la plantilla
--  Ισχυρό χτύπημα της ΕΛ.ΑΣ. στην «πειρατική» τηλεόραση: «Αν γνώριζαν ότι θα έβλεπες παράνομο περιεχόμενο, θα μας είχαν πιάσει ήδη»
--  La Lavoe Orchestra y miembros de la Fania All-Star se juntan con Joseph Amado en “El 23 es salsa”
--  Summer hits Canberra as temperatures predicted to rise above 30
--  فيديو يوثق نهاية غير متوقعة لمروض أفاعي
--  "واحة الجمال".. الأخضر يكسو جبال وسهول "ستاره" في مكة
+-  ضبط سائق شاحنة تسبب بوفاة أحد مرتبات الدوريات الخارجية
+-  حماس: حديث الاحتلال عن رفضنا إطلاق سراح مدنيات غير صحيح
+-  أحد سكان غزة: عائلتي نزحت 4 مرات خلال هذه الحرب
+-  أهمها بريطانيا.. إسرائيل تحذر رعاياها من السفر إلى هذه الدول أو الإعلان عن هويتهم فيها
+-  6 أطعمة تسبب ظهور حب الشباب.. احذرها
+-  Trzeci z rzędu spadek cen ropy, jest najtańsza od ponad 2 tygodni
+-  В Курске за 2023 год около 230 тысяч квадратных метров жилья введено в эксплуатацию
+-  بيلينجهام يحصد جائزة الفتي الذهبي برقم قياسي
+-  키움, 팬 초청 일일자선카페 개최...수익금 유소년 야구선수 위해 활용
+-  سلطان بن أحمد يلتقي مسؤولاً كورياً
+-  Pioneering the future: An innovative approach to plant synthetic genomics
+-  Izraelska vojska poručila WHO-u da ukloni medicinske zalihe iz južne Gaze
+-  لياو يكشف آخر تطورات إصابته وموعد عودته
+-  Čović: Uz malo mudrosti možemo pokazati zajedničku evropsku opredijeljenost
+-  Snimka sa svadbe u Zadru oduševila ljude: Jose je imao samo jednu želju...
+-  [오늘날씨] 전국 기온 올라 ‘포근’…큰 일교차에 주의
+-  Troncal 10// Regresaba de Brasil y fue asesinada en intento de robo al bus
+-  Five Below has $5 holiday pajamas, and they’re going fast
+-  Todorović (RIK) o falsifikatima: Građani s pravom mogu da sumnjaju u regularnost izbornog procesa
+-  Putin odbio da pritisne simulaciju tastera za nuklearno oružje na izložbi
+-  Путин: наказания по наркотическим преступлениям нельзя либерализовать бездумно
+-  Rookies du mois : Chet Holmgren et Jaime Jaquez Jr. récompensés, pas de Victor Wembanyama
+-  ‘Goonies’ Star Sean Aston Embraces Nepo Baby Status: “I Don’t Begrudge Myself Having Been Born Into A Family Where I Was Given A Lot”
+-  Predstavljanje knjige 'Bosanski jezik i komunikacija u nastavnoj praksi' u četvrtak
+-  5 декабря 1803 года родился поэт и дипломат Федор Тютчев
+-  ماذا قال حجازي بعد فوز الاتحاد أمام سباهان؟
+-  Israel raises Australia travel warning over fears of anti-Semitism
+-  Big White opening day delayed again as enough snow fails to materialize
+-  Női kézi vb: fájó vereséget szenvedtünk Montenegrótól
+-  Purple Announces Positive Black Friday/Cyber Monday Weekend Selling Period and Reiterates 2023 Full Year Outlook Ahead of Investor Conferences
+-  "Ho una domanda per voi". Vannacci sotto inchiesta, Porro si scatena contro i magistrati | Video
+-  We have £40,000 of prizes up for grabs – here’s how to enter for free
+-  Inicia USJT curso-taller nacional para la capacitación del Protocolo para la Actuación Policial ante Casos de Violencia contra las Mujeres y Feminicidio
+-  Como evitar ereções espontâneas após a cirurgia de fimose?
+-  Alaska-Hawaiian merger faces a Justice Department that has been skeptical of airline deals
+-  Arrestan al exembajador de EE.UU. Víctor Rocha acusado de espiar para Cuba
+-  Tennis : quand un espoir français de 17 ans tape la balle avec... Rafael Nadal
+-  Tennis : «J'attends de moi de ne rien attendre en particulier», Rafael Nadal se veut modéré sur son retour
+-  Ligue 1 : sans «se victimiser», l'OL a encore «un peu de craintes» avant de se rendre à Marseille
+-  Premier League : Mikel Arteta en admiration devant le club de Luton
+-  Ligue 1 : à quelle heure et sur quelle chaîne suivre OM-OL ?
+-  Premier League : Newcastle perd Nick Pope pour quatre mois
+-  Foot : Patrick Kluivert n'est plus l'entraîneur d'Adana Demirspor
+-  Foot : une nouvelle formule de la Ligue des champions féminine sera mise en place à partir de la saison 2025-2026
+-  AB Yüksek Temsilcisi Borrell: Gazze'de olanlar 'katliam'
+-  Tarih belli oldu: Bakan Fidan ABD'li mevkidaşı Blinken ile görüşecek
+-  Palestinians flee Israeli military push into southern Gaza
+-  Polizei berichtet von 26 Glätteunfällen in Mittelhessen
+-  США в первые дни СВО ждали, что Россия возьмет Киев
+-  Σε απόσταση αναπνοής η ΑΕΚ με λυτρωτή τον Βίντα
