@@ -12,7 +12,7 @@ jobs:
       - name: Set up Go
         uses: actions/setup-go@v2
         with:
-          go-version: '1.16'  # Use the Go version of your choice
+          go-version: '1.21.3'
       - name: Run update script
         env:
           NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
