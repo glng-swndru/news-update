@@ -1,11 +1,51 @@
 # Latest News
--  مستشار الأمن القومي الأمريكي: نتواصل مع القطريين والمصريين للضغط على حماس
--  انقطاع الاتصالات والإنترنت في قطاع غزة بالكامل
--  مستشار الأمن القومي الأمريكي: إسرائيل تقوم بعملياتها بعد إبلاغ الفلسطينيين بالإخلاء
--  Mirjam heeft altijd wildvreemde mensen over de vloer. 'Geluk zit niet in een groot huis'
--  Deze hoogleraar pleit voor een grens aan rijkdom: 'Waarom zou iemand meer dan 10 miljoen euro moeten hebben?'
--  Hoe veilig zijn de kopstukken van Hamas in hun villa's in Qatar? 'Ze zijn voorbestemd om te sterven'
--  EU-landen eisen dat Polen eind maakt aan blokkade trucks Oekraïne
--  ‘MVP 야망’ 설영우에 엄원상 일침 “세리머니 욕심부터 줄여”[K리그 시상식]
--  Nie żyje drugi z policjantów postrzelonych w głowy przez Maksymiliana F. we Wrocławiu
--  Houthis may not be targeting US warships, Pentagon says
+-  ارتفاع عدد الشهداء في غزة إلى 15899
+-  Európsky Karibik našimi očami: Pozrite sa na tu krásu iba dve hodiny letu zo Slovenska
+-  Un chauffeur de camion meurt enseveli dans une cimenterie Lafarge
+-  المقاومة: استهدفنا ناقلتي جند ودبابة للاحتلال شمال خان يونس
+-  Виктория Томова спечели турнир и се влюби в Санкт Петербург
+-  Poonch News: सुरक्षा बलों ने मेंढर के जंगल और नाले खंगाले
+-  Noida News: एसआईटी ने खंगाले दस्तावेज, अफसरों के होश उड़े
+-  Kurukshetra News: अंतरराष्ट्रीय गीता महोत्सव का प्रचार करेंगी रोडवेज बसें
+-  Kurukshetra News: मामूली कहासुनी पर सिक्योरिटी गार्ड की डंडे से पीटकर हत्या, मामला दर्ज
+-  La campaña navideña del Centro Comercial de Viveiro repartirá 5.000 euros en premios
+-  COVID пандемията промени алкохолните нагласи на турците
+-  Jude Bellingham joins Lionel Messi and Kylian Mbappe in winning Golden Boy prize
+-  Global journalist group says Israel-Hamas conflict is a war beyond compare for media deaths
+-  Ce trebuie să faci pe 5 decembrie, ajunului lui Moș Nicolae. Vine nuielușa sau cadoul?
+-  How to watch the Dancing with the Stars Season 32 finale? Episode 11 on Tuesday, Dec. 5
+-  ¿En qué canal ver América vs. San Luis por semifinales de Liguilla MX?
+-  Chandigarh News: सुबह-शाम ठंड, धुंध से प्रभावित होने लगा जनजीवन
+-  Le patron de Sciences Po a fait un tour en garde à vue pour "violences conjugales"
+-  Immigration: Les conservateurs britanniques prennent le taureau par les cornes
+-  Former Toronto Blue Jays manager John Gibbons becomes Mets bench coach
+-  Arctic Volley nappasi täyden pistepotin, mutta JymyVolley teki voittamisen vaikeaksi
+-  رسميا.. مصر تحصل على تنظيم دورة الألعاب الأفريقية 2027
+-  حجازي بعد غياب 190 يومًا ينفعل على حكم مباراة الاتحاد السعودي وسباهان الإيراني
+-  حظ سعيد ومكاسب مالية غير متوقعة لمواليد 4 أبراج الفترة الحالية
+-  مشرف الرواق الأزهري ينفي تعرض الشيخ الطيب لأزمة صحية
+-  مدير "علوم الفضاء" بجامعة القاهرة: مصر تسير بخطوات ثابتة في هذا المجال
+-  تعاون بين جامعة حلوان وشركة ارتقاء لتدوير المخلفات
+-  جوتيريش يناشد إسرائيل تجنب مفاقمة الوضع الإنساني الكارثي في غزة
+-  العربية للتصنيع: تعاون مصري مع داسو الفرنسية لإنتاج رافال محلية الصنع
+-  الهلال الأحمر يعلن انقطاع التواصل بشكل كامل مع طواقمه في غزة
+-  لغز العثور على جثة في شوارع المعادي
+-  Vote now: Bay Area News Group boys athlete of the week
+-  Alicia Gogîrlă duce numele mai departe: „Când am fost convocată la națională, imediat am sunat-o pe mama!”
+-  Chandigarh News: छत से गिरने से घायल युवक ने तोड़ा दम
+-  Statistika pokazuje - Ćavi u La Ligi najbolji protiv najtežih rivala
+-  La curiosa historia de la pareja que ama tanto la Navidad que hasta rompieron un récord
+-  Societe Generale Embraces Ethereum for Tokenized Bond Issuance
+-  Kayseri’de kaçak silah operasyonu 3 gözaltı
+-  Panipat News: तीसरी आंख की निगरानी में होगा शहर
+-  Jhajjar-Bahadurgarh News: जल्द शुरू होंगी अस्पतालों की बंद एक्सरे मशीन, नौ रेडियोग्राफर मिले
+-  Kushinagar News: पराली की आग से दो एकड़ गन्ने की फसल जली
+-  Jammu News: 10 बजे टीएसओ कार्यालय में नहीं मिला कोई, जेडईपीओ कार्यालय में लटका रहा ताला
+-  Sparta wil doorpakken en opent gesprekken met oud-Feyenoorder Jean-Paul Boëtius
+-  Joven de 14 años muere tras recibir una descarga eléctrica
+-  Presentan segunda demanda contra diputados que votaron a favor del contrato minero
+-  Hay aviso de prevención por condiciones ventosas en el Pacífico
+-  ”Și un om de pe stradă dădea penalty!”. Ricardo Grigore a răbufnit după Sepsi - Dinamo 2-1
+-  Fonds reçus par Sonko : La réplique salée de Birahim Seck à Madiambal Diagne
+-  Bivše ljubavi Elle Dvornik potpuna su suprotnost Charlesu: Za jednog se skoro i udala
+-  Белгородская хоккейная молодежка рассталась с двумя игроками
