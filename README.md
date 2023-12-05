@@ -1,51 +1,11 @@
 # Latest News
--  Abodi non ha dubbi sulla Nazionale: «Una squadra come la nostra non deve preoccuparsi del girone»
--  Penélope Cruz Reveals The Actor She Would Most Like To Work With, Updates On Her Directorial Debut & Gives Advice To A Teenager
--  6 Things That Drive a Dubai Housewife’s Millionaire Man Crazy, Including Why He’ll Never Buy Her 5 Carat Diamonds
--  Fransa Ermənistanı yenə silahlandırır:
--  Live out your own Christmas rom-com in this 'The Holiday' inspired cottage to let
--  Las señales de alerta que da el cáncer bucal para curarlo a tiempo
--  Mauricio Pochettino hits back at journalist for ‘trying to force a mistake’ with Manchester United question
--  Inspirational story of Nate Kelly, whose incredible dream as kid at Conor McGregor press conference is almost a reality
--  Timothée Chalamet Shines in a Festive and Fun Treat
--  Приведено лице од кумановско при обид за илегален влез во државата
--  Kongatják a vészharangokat: ítéletet mondtak a világ egyik legnagyobb gazdasága fölött
--  Újabb fordulat a Kölcseyből kirúgott tanárok ügyében
--  SON 캡틴 없는 1월 임대 영입으로 공격 강화? ‘토트넘 이적 원하면 연봉 삭감해야 할 걸’
--  Angelina Jolie hints she wants to QUIT acting for good - as she reveals plans to LEAVE 'unhealthy' LA and 'spend more time' in CAMBODIA after 'losing the ability to travel freely' during bitter divorce from Brad Pitt
--  KARATAY ÜRETİCİLERİ FARE ZARARI MAĞDURU
--  ARP : Adoption du budget du Conseil supérieur provisoire de la magistrature
--  Norwegian Man Sets World Record for Highest Death Dive – Stunning People
--  Makedonski biznismen i bivši vicepremijer Kočo Anžušev na crnoj listi SAD
--  Hastanedeki sedyede üç dakika boyunca ölümü yaşayan kadının başından geçenler okunma rekorları kırıyor
--  How did Jenna Ortega get so famous?
--  Ingum Ulmanim savulaik esot bijis iespaidīgs miesassargs - vietējā prostitūta
--  Anies Akan Bangun Proyek KA Banjarmasin-Banjarbaru, Libatkan Ignasius Jonan
--  Dejan Žujović: Zdravstvene ustanove ne treba da budu večne čekaonice
--  В Москве загорелся автомобиль такси
--  الإعصار «ميشاونغ» يضرب الساحل الجنوبي الشرقي للهند
--  Angelina Jolie hints she wants to QUIT acting for good - as she reveals plans to LEAVE 'unhealthy' LA and 'spend more time' in CAMBODIA after 'losing the ability to travel freely' during bitter divorce from Brad Pitt
--  Champions League: Milano-Mulhouse domani all'Opiquad Arena
--  Fast vierzig Prozent der Raubüberfälle werden nicht angezeigt
--  Back in her friends' loving arms: Moment Israeli girl, five, who was kidnapped by Hamas and held hostage in Gaza for weeks is mobbed by adoring classmates on first day back at school following her release
--  Noughties Pop Legend’s Huge Comeback with UK Tour following US Number One and 6m Record Sales
--  USA : hausse plus forte que prévu de l'ISM des services
--  Confider #90: New Yorker Layoffs; NYT Scandal Revisited; CNN’s Air Ball
--  XGIMI Introduces Sensational 'Suika Game' to the US, Achieving 450M+ Downloads Worldwide
--  '상하이의 공예 예술가들' 다큐, 조회 수백만 돌파
--  Copia Automation Applauded by Frost & Sullivan for Its User-friendly, Intuitive, and Easy-to-use Programmable Logic Controller Solutions
--  "Craft Artists in Shanghai" Documentary Hits Over 1 Million Views on YouTube
--  Принц Хари оспорва в съдa решението на британското правителство да го лиши от охрана
--  La Oreja de Van Gogh, primer grup confirmat pel Vallviva de Les Preses
--  SBI to acquire 20% stake in SBI Pension Fund; Details here
--  Bayern bindet Top-Talent: Vertrag mit U17-Weltmeister Hennig verlängert
--  Centralna izborna komisija dobila zahteve građana sa severa za razrešenje gradonačelnika
--  Zeit für Haushalteinigung wird knapp: Mögliche Szenarien
--  Mitchell Johnson’s Comments on David Warner
--  Impaired driver injured person in parking lot, sped through red light: police
--  Megszakították az ukrán határnál tartott blokádjukat a szlovák fuvarozók
--  Börtönbe zárták a youtubert, aki a nézettség érdekében okozott repülőbalesetet
--  Lazio, guarda chi si rivede: Marcos Antonio pone fine al suo calvario
--  Neuer Brötchen-Lieferdienst Morgengold: „Die Resonanz in Haltern ist sensationell“
--  Barbie ganha data de estreia no HBO Max
--  Hält das Dach? Bei starkem Schneefall sollten Hausbesitzer vorbereitet sein
+-  Kelly Oubre Jr. sur son accident : “Une situation très traumatisante pour moi et ma famille”
+-  “어때요? 기분 좋아졌어요?” 코치의 서윗한 존댓말…공룡들 1루에 29세 우타자가 희망을 품는다
+-  [오늘의 운세] 12월 6일 오늘의 띠별 운세
+-  나영석 PD, '손절설' 배정남에 고개 숙여 사과 "충분히 오해 살 수 있어"
+-  '자산 900억…축구 선수 부인 중 최고 부자'→알고보니 유명 팝스타 출신이었다
+-  나영석 PD 무릎 꿇었다…배정남 '손절설'에 "내 탓인 것 같아 정식으로 사과" [종합]
+-  ‘유로결 솔로포’ 한국, 아시아야구선수권대회 2차전서 홍콩에 9-0 완승…대회 첫 승
+-  49ers se confirman como el equipo más dominante de la NFC hasta semana 13 de NFL
+-  Patan Hospital decides to offer free medicines for breast cancer
+-  بن حبتور يفتتح 11 مشروع مياه تعمل بالطاقة الشمسية
