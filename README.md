@@ -1,51 +1,11 @@
 # Latest News
--  Aşamalı konut edindirme sistemi: Önce arsayı sonra konutu al! İnşaat sektörüne etkisi nasıl olacak?
--  Arosa - Valencia maçı ne zaman, saat kaçta, hangi kanalda?
--  زلزال بقوة 5.1 درجات يضرب هاواي الأمريكية
--  Скажи, какую музыку любишь, и я скажу, кто ты: ученые нашли необычный способ узнать человека
--  Meta en IBM vormen coalitie die AI-kennis gaat delen
--  Beurzen Europa koersen af op wisselende opening
--  Kompiuterių segmente 2024 m. laukiamas 8 % augimas
--  Nieuwe verhalen en twintig uur aan interviewmateriaal: Maarten Biesheuvel is nog niet vergeten
--  Air traffic controller
--  Yoon's ex-staff seek nominations in PPP strongholds, defying reform efforts
--  Gaza truce ends
--  Scarier than Black Death
--  Finance minister nominee vows aggressive push for market-driven reforms
--  Gold price reaches record high; bitcoin surpasses $41,000
--  זכייה כפולה ל-SentielOne בפרס מוצרי השנה של המגזין היוקרתי CRN
--  Decoding Law Firm Marketing: Strategies for Legal Success
--  1 Kg Berapa Gram? Ini Penjelasan dan Contoh Soalnya
--  פנייה ליועמ"שית בעקבות הפרסום בוואלה: לפתוח בחקירה פלילית נגד בן גביר ואוחנה
--  Residents raise stink over leaks, defects in Tengah centralised cooling system
--  Янгиланган Конституция билан мукаммал жамият сари
--  Туркия ва Қатар стратегик ҳамкорлиги
--  Сирдарёда IT академия очилди
--  Youth Pass: Τελευταία μέρα για την υποβολή των αιτήσεων
--  First responders got stuck in traffic on the way A1 accident in which two girls died
--  طريقة عمل القرنبيط المقرمش.. خطوة بخطوة زي البانيه
--  Komitet ministara Vijeća Evrope razmatra provođenje presuda Evropskog suda za ljudska prava
--  Mr Universe bodybuilder Shaun Davis dies aged just 57 leaving pals ‘absolutely devastated’
--  Mr Universe bodybuilder Shaun Davis dies aged just 57 leaving pals ‘absolutely devastated’
--  YG 떠난 지드래곤, '피지컬:100' 제작사 行?…갤럭시코퍼레이션 '묵묵부답' [MD이슈]
--  충성심도 월클이네…'골든보이' 벨링엄 "레알과 모든 트로피 들고 싶어"
--  호텔신라, 2024년 정기 임원인사
--  İlayda Alişan ile Oğulcan Engin'den yeni aşk paylaşımı
--  제28회 춘사국제영화제, 최우수감독상·남녀주연상 등 각 부문별 수상 후보 공개
--  '호날두 방출→올 시즌 선수단 불화→절망 속 빛 한 줄기...Here we go! "매각 최종 단계 진입"
--  علماء: الميكروبات يمكنها منع ظاهرة الاحتباس الحراري
--  محاور توعوية في "ملتقى التمكين الصحي" بالحدود الشمالية
--  بالتفاصيل والأرقام.. الفضلي: المملكة تمضي بنجاح نحو تحقيق مستهدفات "السعودية الخضراء"
--  BREAKING NEWS: Chelsea Manager Mauricio Pochettino has come out this evening to explain why Cole Palmer was not involved in Chelsea’s win against Brighton yesterday.
--  ينطلق اليوم الثلاثاء.. مشاركون من 20 دولة في المؤتمر الدولي للتمور
--  Studiu Aqurate: ce categorii cresc în ecommerce în decembrie anul acesta
--  «حديد وطني» تعتزم إيقاف خطوط الإنتاج لإجراء صيانة شاملة مجدولة
--  «كير» توقع عقدا مع «الوطنية لنقل الكهرباء» بـ 48 مليون ريال
--  «برج المعرفة» تحصل على تسهيلات ائتمانية بـ 5 ملايين ريال
--  الدولار يستعيد بعض مكاسبه ويقترب من أعلى مستوى في أسبوع
--  البنك المركزي الصيني يزيد كميات السيولة النقدية في النظام المصرفي
--  Tjänstesektorns inbromsning hårdnar
--  Erster Dschungelcamp-Kandidat 2024 steht fest: "Wie tief muss man sinken?" Fans nach Enthüllung empört
--  CHP’li Arpacı: Millet borç batağında
--  Antisipasi Banjir, Pemkot Bangun Kolam Retensi di Bandung
--  Ночь на 5 декабря стала самой холодной с начала зимы в Москве
+-  Убийството в Маноле извършено с незаконно притежавана пушка
+-  남양주시, 동절기 취약계층 보호대책 추진
+-  남양주시, '2023년 숏폼 홍보영상 공모전' 시상식 개최
+-  남양주시, 하천 수질관리 강화 위해 '바람골길 하천관리 네트워크'운영
+-  윤호중 의원, 구리시 하반기 행안부 특교 13억원 확보
+-  김한정 의원, 2023 더불어민주당 '국감' 우수의원 선정
+-  국힘 남양주시을 곽관용 당협위원장, 9일 '북콘서트' 개최
+-  구리시 어르신들의 기다림 끝... ‘구리시 노인복지관’ 개관
+-  인창도서관, 독서동아리와 함께하는 ‘문학의 밤’ 14일 개최
+-  사전협의 없는 일방적인 공청회 개최에 분노 폭발
