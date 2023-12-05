@@ -1,5 +1,43 @@
 # Latest News
+-  Pamiparib by BeiGene for Head And Neck Squamous Cell Carcinoma (HNSC): Likelihood of Approval
+-  LN-145S1 by Iovance Biotherapeutics for Metastatic Melanoma: Likelihood of Approval
+-  Mesdopetam by IRLAB Therapeutics for Psychosis: Likelihood of Approval
+-  BR-790 by Shanghai Gefeimu Biomedical Technology for Non-Small Cell Lung Cancer: Likelihood of Approval
+-  FPI-2059 by Fusion Pharmaceuticals for Recurrent Head And Neck Squamous Cell Carcinoma: Likelihood of Approval
+-  울진중앙농협 합병 5주년 기념식 개최
+-  근력 증가제 개발`산업화 기술이전
+-  울진농협, 연말 성금 1천만원 기탁
+-  행안부 하반기 특교세 26건 107억원 확보
+-  XTX-301 by Xilio Therapeutics for Non-Small Cell Lung Cancer: Likelihood of Approval
+-  Eflornithine by Panbela Therapeutics for Metastatic Castration-Resistant Prostate Cancer (mCRPC): Likelihood of Approval
+-  XTX-301 by Xilio Therapeutics for Prostate Cancer: Likelihood of Approval
+-  Pemvidutide by Altimmune for Metabolic Dysfunction-Associated Steatohepatitis (MASH): Likelihood of Approval
+-  Amisha, Prachi, Hardik sign off with silver; 9 Indians fight for gold
+-  India start favourites against Korea in men’s Junior Hockey WC opener
+-  Golf: Scheffler clinches World Challenge title
+-  Cellular Immunotherapy for Liver Fibrosis and Decompensated Cirrhosis by Resolution Therapeutics for Decompensated Cirrhosis: Likelihood of Approval
+-  Aircraft Battery Market Is Driven By Increasing Demand For Lightweight Batteries, Technological Advancements | Enersys , Kokam , Marvel Aero International
+-  “Es cualquier cosa”: Jurado criticó el arroz tecnopor de Renato Rossini en El Gran Chef Famosos La Revancha
+-  Израил Газын зурвас дахь эмийн хоёр агуулахыг нэн даруй нүүлгэхийг ДЭМБ-аас шаарджээ
+-  Ambulance cancelled for Indigenous man who later died in custody
+-  Pamela y Miguelito sorprenden al disfrazarse de Maluma y Thalía en divertido reto de actuación en Tierra Brava
+-  BAY คาดเงินบาทสัปดาห์นี้แกว่งกรอบ 34.50-35.40 บาท/ดอลลาร์
+-  בית הנבחרים האמריקני צפוי להצביע כי ״אנטי-ציונות היא אנטישמיות״
+-  חיפשתי חמלה אנושית בבניין האו"ם - ולא מצאתי
+-  Ariel Miranda silenció a los bates magallaneros
+-  Roof Garden Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
+-  New Dragon Age Dreadwolf teaser shows huge next-gen graphics upgrade
+-  سعر الدولار يقترب من أعلى مستوى في أسبوع
+-  एकीकृत समाजवादीको सचिवालय बैठक आज पनि बस्दै
+-  A segunda Inquisição contra o Padre Antônio Vieira
+-  ”No entiendo cómo llegaste a la final”: Masías destruyó a Machuca y su arroz con huevo en El Gran Chef Famosos: La Revancha
+-  Jana Partners calls for strategic review, possible sale at Frontier Communications
+-  ราคาทองวันนี้ 5 ธ.ค. เปิดตลาดร่วง 200 บาท รูปพรรณขายออก 34,500 บาท
 -  한화 건설부문, 서울역민자역사·포레나 도서관에 자원순환형 가구 설치
+-  Mató con arma blanca a un hombre para robarle su moto en Trujillo
+-  Aerospace Carbon Fiber Market Is Driven By Increasing Need For Advanced Materials In The Aerospace Industry | Teijin Limited ,SGL Group ,Hexcel Corporation
+-  Lim Kit Siang patut nasihat Umno ganti Presiden, bukan PAS
+-  What a nutritionist would order at Chick-fil-A for a balanced meal
 -  ﻿KB캐피탈, 연내 대출중개 플랫폼 운영 팀윙크 자회사 편입 마무리
 -  델 테크놀로지스, 2024 IT 기술 전망 발표
 -  “하이브리드 근무 직원, 참여도·복지만족도·근속의향 가장 높아”
@@ -9,43 +47,5 @@
 -  LG CNS, 충주지역 중학생 대상 ‘AI 지니어스’ 프로그램 진행
 -  인크로스, 2023 대한민국 광고대상 ‘퍼포먼스 마케팅’ 은상 수상
 -  인텔리빅스-국민대, 연구개발 및 인재양성 ‘맞손’
+-  No cambió: Miguel Vergara sacó su lado copión en su regreso a El Gran Chef Famosos: La Revancha
 -  시큐레터, 공공부문에 제로 트러스트 기반 콘텐츠 무해화 솔루션 공급 확대
--  Jueza no dio paso a pedido de transportistas para el aumento del pasaje en Ambato
--  [현대차그룹, 이동약자 위한 12억 규모 모빌리티 지원
--  [‘이상 외화송금’ 5대은행에 과징금 9억
--  [‘주정차위반 단속기록 조작’ 광주 서구청 공무원 4명…징역 4개월에 집행유예 1년”
--  [케이뱅크 신임 대표에 최우형
--  [저신용 특례보증, 대위변제율 10% 넘겨
--  [우리은행·카드, 전통시장 단말기 무상 지원
--  [농식품부, 농축산물 할인지원 예산 추가 확보
--  [KB금융 ‘지켜야 할 마지막 터전, 토양’ 공개
--  [손해보험협회 차기 회장 이병래 내정
--  [겨울철 전기요금 분할납부 시행...한전, 소상공인·뿌리기업 대상
--  [삼성글로벌리서치, 임원인사 실시…부사장 3명·상무 2명 승진
--  ['하마스 성범죄' 증거 속속…이스라엘 “지금껏 본 것 중 가장 심각한 수준”
--  [기후정상회의의 정의와 재원조달 [제프리 삭스의 The New World Economy]
--  [서울시·서울경찰청 ‘지키미’ 안심세트 보급
--  [‘자녀살해’ 부모 줄잇는데도...법개정 더디고 통계도 부실
--  [한화시스템 소형 위성 ‘교신 성공’
--  [尹, 여성장관 전진배치...추가개각 주목
--  [“버스운전대서 손 떼도 문제없어”
--  [[지금 구청은] 건설임금 체불방지 ‘클린페이’ 도입
--  [[지금 구청은] ‘그립’과 지역상권 활성화 MOU
--  [텃밭에 몰리는 스타 장관들...당내선 “험지로”
--  [극한정쟁에 민생법도 밀렸다
--  [따릉이·공중전화·벤치에 무단투기...쓰레기통 없는 서울 민낯
--  [가산동 W몰 2600억 공매 내놨다
--  [정기선 HD현대 부회장 “건설기계 부문 핵심사업 성장…내년 경영계획 단단히”
--  [박상우 “출퇴근 교통혁신 최우선”
--  [인도네시아 신수도 인프라·도시개발...정원주 대우건설 회장 사업협력 논의
--  [두나무 ‘시드볼트 NFT 컬렉션’ 출시
--  [KAIST “극한호우 주범은 지구온난화”
--  [답십리동·홍제동, 모아타운 대상지 선정
--  [중흥토건, 올해 도시정비사업 1조 수주 임박
--  [LG CNS, 미래 AI인재 육성 앞장
--  [수능 끝난 대치동 전세 신·구축 양극화
--  [순천시 신청사 22일 착공, 원도심 '큰 그림' 그리나
--  [정부 넥슨 지분 매각 돌입…中·사우디 해외큰손 노린다
--  [쇼핑플랫폼 ‘U+콕’ 1년새 누적 판매금액 76% 급증
--  [<신제품·신기술>제일약품, 당뇨복합제 ‘듀글로우정’ 출시
--  [<신제품·신기술>HK이노엔, 컨디션스틱 자두맛·망고맛 선보여
