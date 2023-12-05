@@ -1,11 +1,11 @@
 # Latest News
--  6-Year-Old Boy Killed By Dog Attack in Portland Garage
--  Liz Cheney says some Freedom Caucus members were 'upset' when she tweeted a photo of her father, Dick Cheney, wearing a mask at the height of the COVID-19 pandemic
--  عملية جراحية في الظهر تبعد المتألق شتيغن عن عرين برشلونة
--  Gladbach mit dramatischem Last-Minute-Sieg gegen Wolfsburg
--  Reportan enfrentamiento armado en los límites de la sierra de Sinaloa y Durango
--  Majer i Kovač šokantno ispali iz Kupa golom u 120. minuti!
--  Elon Musk heats up the AI wars. He's seeking $1 billion for xAI.
--  Brand auf Berliner Weihnachtsmarkt: Eine Person wurde verletzt
--  غريفيث: الحملة الإسرائيلية جنوب غزة خلقت ظروفا مروعة
--  سي إن إن: إسرائيل كانت ترغب بتسوية كامل غزة بالأرض
+-  Childcare boost for Brimbank
+-  واشنطن تستبعد إعادة النظر في إمدادات الأسلحة إلى إسرائيل
+-  Train pain for commuters as V/Line strike looms
+-  Luís Gonçalves demitido do Interclube, do Girabola
+-  Chiptoeleverancier ASMI wil nieuwe hoofdkantoor in VS
+-  A cuatro meses, sin pistas sobre asesino de Ariadna
+-  OC&C Strategy Consultants Becomes A Certified B Corporation
+-  Nearmap Announces Agreement to Acquire Betterview, a Complementary Property Intelligence and Risk Management Platform
+-  “Un fallo en la Matrix”: una inquietante FOTO tomada con un iPhone desafió los límites de internet
+-  500대 기업이 빌린 돈, 2년 새 165조 늘었다 … 한전·가스공사 차입금 의존도 51%
