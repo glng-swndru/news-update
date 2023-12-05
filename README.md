@@ -1,11 +1,11 @@
 # Latest News
--  תמונות שטרם נראו מתוך המנהרות: אלו בכירי חמאס שחוסלו
--  «القاتل الصامت».. 5 تحذيرات عند استخدام سخان الغاز
--  Исроил Ғазода ҳарбий операциянинг учинчи босқичи бошланганини эълон қилди .
--  Soccerladuma | HT Report: Pirates 1-0 Swallows
--  ‘ధాన్యాన్ని పూర్తిస్థాయిలో కొనుగోలు చేయాలి’
--  Cissé e Ghislandi fanno volare l'Atalanta U23, Triestina ko
--  Al moto club Alfieri la Stella di Bronzo al merito sportivo del Coni
--  Pronostico Aston Villa-Manchester City: quota interessante per il 2
--  Dobromir Dimitrov rinforza il roster di Ortona
--  Dit is de opstelling van de Oranje Leeuwinnen tegen België
+-  Guardiola allo scoperto: "La gente non ci crede, ma lo faremo di nuovo"
+-  FIDS Piemonte - Galà di Natale 2023 della Danza Sportiva
+-  In campo per la 10a giornata, apre Castellana Grotte-Aversa
+-  “Conte mostro e maestro, spesso vomitavo”: i segreti degli allenamenti Juve
+-  Master della ValleBelbo Sport pronti per i campionati italiani
+-  NAISDA winds up year with stunning performance
+-  Car made ‘intentional contact’ with cruiser during arrests: Cobourg police
+-  Tackling Tobacco: November 2023 Legislative & Regulatory Roundup
+-  This $12.6 Million Home in the British Isles Has Some of Jersey’s Most Famed Gardens
+-  WEtv Orders Reality Series ‘Bold & Bougie’ Featuring Malaysia Pargo, Tameka Foster & Princess Banton-Lofters
