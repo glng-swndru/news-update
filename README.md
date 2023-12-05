@@ -1,51 +1,51 @@
 # Latest News
+-  Dünya Gıda Programı: Sadece kalıcı barış, Gazze'de yaklaşan insani felaketi önleyebilir
+-  Meteorolojiden şiddetli kar yağışı uyarısı
+-  పీసీసీ చీఫ్‌ టు సీఎం
+-  Çorum'da otomobil şarampole yuvarlandı: 3 yaralı
+-  무려 즐라탄에게 욕했던 GK, 밀란과 재계약 지지부진… 맨유-아스널-첼시 타깃 급부상
+-  Women accused of stealing merchandise from Oak Brook Ulta, leading police on high-speed chase
+-  SANTA CLARITA TRANSIT WORKERS RATIFY CONTRACT, END STRIKE
+-  Aneel aprova reajuste de 13,36% na conta de energia elétrica dos acreanos
+-  UK’s Sunak tells Netanyahu in call of disappointment at new fighting in Gaza
+-  독감 이어 마이코플라스마 폐렴 우려…해열제·항생제 증산
+-  Saudi crown prince thanks Qatari emir after official visit to Doha
+-  అతడే ఒక సైన్యం!
+-  Kemnaker Gelar Konferensi Pengawasan Ketenagakerjaan ASEAN ke-12, Ini yang Dibahas
+-  Makin ramai lelaki jadi mangsa gangguan seksual
+-  أخنوش يتباحث مع رؤساء غرف التجارة والصناعة سبل تقوية انخراطها في التنمية الاقتصادية
+-  Ăn trứng luộc mỗi sáng cực tốt nếu tránh được 3 sai lầm này
+-  Un abuelo creó un práctico asiento y se viralizó en TikTok: “No domina el mundo porque está jubilado”
+-  I went to see my beauty products stocked in Coles and spotted a massive fail: 'This is so embarrassing'
+-  Barry Manilow's A Very Barry Christmas: release date and everything we know about the holiday special
+-  Kimberly García: su ascendente carrera en el atletismo mundial
+-  The Bronze Garden Season 1 Streaming: Watch & Stream Online via HBO Max
+-  Một loại lá cây dân dã của Việt Nam bất ngờ được săn lùng với giá đắt đỏ: Xuất khẩu tăng hơn 1.700%, là cây quý hiếm ít quốc gia sở hữu
 -  Hamás dice que no negociará con Israel si continúan los ataques en la Franja de Gaza
+-  Porn star Sophie Anderson reportedly dies days after her porn star husband Oliver Spedding
+-  NSW heatwave warning: Temperatures set to his 40s
+-  I'm A Celebrity viewers all say have the same complaint about Fly On The Wall trial
+-  Revelaron el ingenioso método para evitar las picaduras de mosquito: “¡Sirvió!”
+-  Си постирал слика од патот кон Турција – Стефан Димовски татко, возачот на Палчо, кој го возел кон Турција
+-  Trastienda de una noche distendida: Cúneo Libarona y los rumores sobre futuros funcionarios de Milei coparon la reunión anual de los fiscales
+-  IGSS indicó que han tenido limitaciones para cumplir con varios pagos
+-  Kabar Kasus Pungli dan Korupsi di Internal KPK: Hingga Saat Ini Belum Ada Tersangka!
+-  Gallardo emociona a todo River con especial arenga en Al-Ittihad
+-  El condado de Florida que ayudará con hasta US$100 mil a los que quieran comprar su primera vivienda: cómo registrarse
+-  Podcast: 2024 Santa Fe, we visit Mahindra in India and EV owners get paid back!
+-  Confira a lista dos sorteados para o último jogo do Cuiabá na Arena Pantanal
+-  Deputado defende aumento de orçamento para combater a tuberculose no Brasil
+-  CCJR aprova projeto de criação de Fundo de Apoio à Agricultura Familiar
+-  Van de Beek, cè anche il Barcellona
+-  Lula ‘desmoralizou o Congresso’ na COP 28, diz Seif
+-  Laércio explica importância do Plano Nacional de Fertilizantes
+-  Promotoria aponta inconstitucionalidade e lamenta aprovação de lei
+-  Amin manifesta preocupação com julgamento do STF sobre a Lei das Estatais
+-  Sob risco ambiental, Maceió recebe autorização de empréstimo de US$ 40 mi
+-  Polícia Civil prende em Rondonópolis três procurados por integrar organização criminosa
+-  “2023 não foi como esperávamos, mas ficamos na média”, avalia José Adriano no Bar do Vaz
 -  2023年前11个月柬埔寨吴哥考古公园共接待近70万名国际游客
--  Sanction Qatar as a terror sponsor, bogus ‘study’ on tax flight, and other commentary
--  España obtiene la peor nota en pobreza infantil de la Unión Europea
--  Province confident MLL will settle with 750 casino workers before strike deadline
--  ‘네가 가라 2부’... K리그 ‘최후의 전쟁’ 승강 PO가 온다
--  [스한초점] '서울의 봄' 극장가 휩쓴 분노, 500만 흥행 이끌었다
--  Prezident Pavel dnes v hradeckém kraji navštíví Broumovsko a Vrchlabí
--  Hochul sets Feb. 13 House special election to replace George Santos
--  US announces visa bans after warning Israel over West Bank violence
--  BlackRock global chief investment strategist says that rate cut expectations are frothy
--  Dipicu Dendam, Bocah 13 Tahun di Makassar Tembak Pemotor dengan Panah
--  UCLA's Mick Cronin is back, but can Adem Bona rid himself of struggles against Villanova?
--  Colombia cierra un exitoso 2023 con un triunfo sobre Nueva Zelanda
--  Canciller Leyva irá a Nicaragua en enero para discutir agenda sobre fallo de La Haya
--  United Nurses of Alberta decries job cut threats as collective bargaining looms
--  Cak Imin di Aceh: Kalau Mau Nganggurnya Diatasi, Bantu Perubahan Menang
--  Tourist Tragedy Sparks Security Shakeup in Costa Rica’s Osa Region
--  요기요, 'Y-mas 산타박스' 프로모션
--  2023년 11월 프랜차이즈 정보공개서 신규등록 170개 브랜드 공개
--  영광군 어린이급식관리지원센터, 식약처장 표창 수상
--  'The Penguin Lesson', en Gran Canaria
--  La Habitación Roja, OBK y Siloé se suman al Gran Canaria Sum Festival
--  El fuerte operativo de seguridad anunciado tras ataques a navieras en el río Magdalena
--  Midsummer receives EUR 32.3 million grant from EU for new thin-film solar mega-factory
--  Cellcard可持续发展债券正式上市
--  Exigen vecinos de Punta Oriente desaparición de basureros clandestinos
--  Preocupa a empresarios renegociación del T-MEC
--  Kata Ustaz: 4 Syarat Boleh Boikot Produk
--  Brennende Stände: Weihnachtsmarkt am Alexanderplatz geräumt
--  Ielpo avverte: "Il Milan non è completamente fuori dalla crisi"
--  Brennende Stände: Weihnachtsmarkt am Alexanderplatz geräumt
--  “尹이 가장 존경하는 검사 선배” 김홍일 방통위원장 후보 오늘 지명할까
--  Chelsea: Mauricio Pochettino hails Alejandro Garnacho progress before Manchester United clash
--  اسلام آباد:سابق چیئرمین کی گاڑی پرحملہ،4افرادجاں بحق
--  Is John Legend Leaving ‘The Voice’ After Season 24?
--  영웅들은 서건창 기다린다…2014년 MVP 사용법 가장 잘 아니까, 왜 결단을 망설일까
--  이동욱♥임수정 '싱글 인 서울', 영화만큼 따뜻하고 달콤한 비하인드 스틸 공개
--  헬로카봇 팬타스톰 X, 대한민국 우수완구 대상 중기부장관상 수상
--  '김민재 아시안컵 공백 우려' 바이에른 뮌헨 "세계 최고의 선수 영입하겠다"
--  [금감원 “오후 3시 20~30분엔 ETF ·ETN 거래 유의하세요” [투자360]
--  [국고채 급락세 과열 우려 고개…“실제 금리 인하까지 시간 걸려” [투자360]
--  [이재명 ‘이낙연 출당 청원’에 “배제 아닌 통합 정치해야”
--  [대구시, 국토부 주관 대중교통 시책평가 3회 연속 '우수 지자체' 선정
--  [일제강점기부터 활약하던 소방 수총기 공개
--  [HDC현대산업개발, KMAC 주관 ‘Report of the Year’ 선정
--  [[헤럴드 운세] 2023년 12월 06일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [양천구, 경로당 ‘떴다방’ 피해예방 교육
--  [더민주 화성병 지역위원회-화성시, 국도43호선 정체 해소 당정협의회 실시
--  [성남시 스케이트장·눈썰매장 개장
+-  Vídeos antigos no Instagram perdem o áudio, mas Meta vai resolver
+-  LTN經濟通》中國點金成石？全球金融中心變南深圳
+-  بدرجات قياسية.. العقد الماضي الأعلى حرارة على الإطلاق
+-  學霸女神Cos鬼滅墮姬 一蹲下彈出「兇猛D級雪乳」
