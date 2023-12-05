@@ -1,11 +1,11 @@
 # Latest News
--  Man robbed at gunpoint in latest dating app violent incident
--  Chica rechazó a Peso Pluma en la preparatoria por cantar feo
--  Video: Acusan que Hamas drogó a rehenes liberados
--  Deportó EU a cinco mil menores por Chihuahua
--  Ordena INE a Samuel borrar publicaciones con menores de edad
--  Video: Por falta de quorum, suspenden sesión en Congreso
--  Hüseyin Çevik ve Abdurrahman Uzun arasındaki gerilim arttı: "Utanmaz, haysiyetsiz..."
--  Czterech zawodników na wylocie z Legii Warszawa
--  Tunis : Une locomotive du métro 4 déraille
--  Plus de 7000 enfants martyrs à Gaza
+-  Kenan Yıldız için devler kapışıyor! İngilizler peşinde
+-  Fotot e Kiarës me barkun e rrumbullakosur, Luizi i bën kritika publikisht: Kjo dora…
+-  Instagram'da ciddi bir sorun var iddiası, kullanıcılar bunu araştırıyor
+-  ביידן: חמאס סירב לשחרר נשים צעירות, זה מה שהביא לסיום הפסקת האש
+-  Fondo Estatal de Ciencia, Tecnología e Innovación contará con inversión histórica de 80 mdp
+-  설경구(Seol Kyung-Gu), ‘학전 어게인’ 프로젝트 참가해요
+-  '3명이 얽히고 설켰다' 이래서 오타니 행선지 결정 쉽지가 않다→복잡하다 복잡해
+-  Wild salmon conservation group raises concerns about herring kills at B.C. fish farms
+-  Congress stalls on immigration policy negotiations
+-  Відео дня: Яремчук забив свій перший гол за Валенсію у матчі Кубка Іспанії
