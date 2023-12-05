@@ -1,11 +1,51 @@
 # Latest News
--  Jason Corbett - the Molly Martens and Thomas Martens second degree murder trial
--  가평경찰서-경찰발전협, ‘가난한 마음의 집’ 찾아 위문품 전달
--  광주시, 2024년 동계 대학생 일자리 DREAM-UP 참여자 모집
--  인천시 중구, ‘2024년 노인일자리 사업’ 참여자 모집
--  인천시, ‘안전감찰 지역전담기구 협의회’ 정기회의 개최
--  인천시사회서비스원, 지역 내 사회복지 현장서 긍정적인 효과 얻어
--  인천시 상수도사업본부, 중국 후베이성 수자원관리청 ‘인천하늘수 수운영센터’ 방문해 견학
--  경복대, 제 41회 행정관리사 2급 자격검정서 응시자 전원 합격
--  Počasie komplikuje dopravu v Nemecku: Letisko v Mníchove pre zľadovatené dráhy pozastavilo prevádzku!
--  HDP sa v treťom štvrťroku 2023 medziročne zvýšil o 1,1 percenta
+-  Konya'daki özel bireyler Engelliler Günü'nde buluştu
+-  Konya'da 320 polisle eğlence mekanları denetlendi
+-  Karaman'da kumar oynarken yakalanan Afganlar sınır dışı edildi
+-  Salih Sedat Ersöz’ün 9. kitabı yayınlandı
+-  Konya polisinden 3 milyon liralık kaçakçılık operasyonu!
+-  Pepernoten Play-in
+-  Global Times: Chinese classic operas can be great hits again
+-  Relais & Châteaux chefs pledge to stop serving eel with immediate effect to prevent its extinction
+-  Wall Street pao
+-  Bruno Fernandes one of 27 Premier League stars on brink of ban with three key players at risk during Man Utd vs Chelsea
+-  Suspect arrested for stealing €1.7 million worth of iPhones from Schiphol company
+-  *** BILDplus Inhalt *** Marianne & Michael - Karriere-Ende! „Um uns sterben viele Freunde“
+-  Mash: Машина певца Трофима попала в ДТП в Москве
+-  Christmas tree leaning because it’s already pissed
+-  Na Frýdecko-Místecku rozhazuje neznámý vandal hřebíky po cestě
+-  Rochelle Humes breaks her silence and says her ‘nerves are shot’ after husband Marvin narrowly escapes I’m A Celeb axe
+-  Who was Oliver Spedding and how did he die?
+-  В Подмосковье заработал медицинский робот "Светлана"
+-  Ski hills cope with unseasonable weather
+-  A ‘The Queen’s’ Battery earns Kingston Cup bragging rights
+-  NDP announce overhaul of Hydro board
+-  Riverbank winter trail system to be expanded
+-  Sirene za vazdušnu opasnost u pograničnim kibucima; SZO zabrinuta za zdravstvenu zaštitu civila
+-  Woman sentenced to 2 years for aggravated assault
+-  Οι επόμενοι αγώνες των ομάδων της Ακαδημίας μας και αυτό που θα μεταδοθεί ζωντανά
+-  Holiday Train visits Westman
+-  صناعة التكنولوجيا تفقد 240 ألف وظيفة في عام 2023
+-  Multi-Faith Peace Rally in Brandon
+-  Habitat pursuing 60-unit project
+-  Why are the tips of my spider plant turning brown?
+-  Finance Division releases Rs 17.4 bln to ECP for election
+-  Whistleblowing and patient safety
+-  Suarez: Svakog jutra koraci su mi bolni, sin me zove na nogomet, a ja ne mogu
+-  Глава Livan рассказал о перспективах локализации выпуска автомобилей в России
+-  Como “sobreviver” à temporada das festas
+-  Pelin Batu'dan 'HEDEP adayı' açıklaması! İstanbul adayı mı olacak?
+-  Cette recrue surprise a choisi le PSG, voilà pourquoi
+-  Vivo TWS 3e Tanıtım Tarihi Belli Oldu
+-  대전문화재단, ‘희망2024 나눔캠페인’ 참여
+-  대전도시공사, 인천도시공사와 협약
+-  대덕한우리 봉사단, 연탄나눔 봉사
+-  코레일, 인공지능 로봇으로 철도시설물 점검
+-  세종시의회 교안위, 세종시교육청 본예산안·기금운용 계획안 예비심사
+-  계룡시의회 제170회 정례회 현장방문
+-  건양대 반도체공학과 삼성전자 파운드리 협력사인 ㈜에이디테크놀로지와 예약기업 협약 체결
+-  세종시청출입기자단, 희망성금 기탁
+-  남혜인 작가, 단국대에 천연염색 섬유미술작품 ‘기억의 숲’ 기증
+-  “나사렛대 후문에 이쁜 벽화 마을이 생겼어요”
+-  천안시, 화학사고 예방관리계획이행 우수사례 ‘환경부장관상’ 수상
+-  천안시, 지방재정대상 지방세분야 행안부장관상 수상
