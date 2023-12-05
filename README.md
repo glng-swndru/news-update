@@ -1,11 +1,11 @@
 # Latest News
--  La Xunta insiste en que poner tope al precio del alquiler es una medida "errónea"
--  Moscow Times: Loputon sotapalvelus lisännyt rintamakarkureiden määrää
--  Putin: U novim ruskim regionima ćemo prevazići agresivne nacionalističke politike Kijeva, koja je izobličila svijest djece i odraslih
--  Veteran skip Glenn Howard out indefinitely with left knee injury
--  Ventura considera que PS e António Costa se devem abster de decidir localização do novo aeroporto
--  Grupo de 'hackers' norcoreano Andariel roba a Corea del Sur tecnologías de defensa
--  Videóra vették: rendőrautó előtt hajtott végre veszélyes manővereket egy békési sofőr
--  Óriási veszélyt jelentenek a karácsonyi terrortámadások – figyelmeztetett az EU tisztviselője
--  ŠOK OBRT U BELOJ KUĆI! Poljupci pljušte na sve strane, ne mogu da se kontrolišu, ovo pomirenje niko nije očekivao
--  Concierto de Roger Watters en Colombia: recomendaciones para llegar al Coliseo MedPlus
+-  Edirne'de korkutan yangın!
+-  İran'dan ABD'ye yanıt!
+-  Building boom boosts malaria-carrying, invasive mosquito in Ethiopia, evidence shows
+-  Supernatural Star Mark Sheppard Overcomes Six Huge Heart Attacks
+-  Motorola Razr 2023 review: not enough of a good thing
+-  What does Australian-grown coffee taste like, and how does it compare? Research describes its unique 'terroir'
+-  VS komen met sancties tegen kolonisten Westelijke Jordaanoever
+-  IU’s New Music Video to Feature BTS’ V, Confirms Label
+-  Промес признан лучшим игроком «Спартака» в ноябре
+-  Ağaç kovuğundan çıkarıp kilosunu 6 Bin TL'ye satıyor! Çıkarması zahmetli ama parasına değiyor : İlaç niyetine alıcısı çok!
