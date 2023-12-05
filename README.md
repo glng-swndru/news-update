@@ -1,11 +1,51 @@
 # Latest News
--  내년 기초생활보장 생계급여 지원기준 역대 최대 인상
--  만감류 출하전 품질검사제 참여 농가 증가
--  양식어류 출하 시 방사능검사 절차 등 홍보
--  도토리 다함께돌봄센터 설치 완료
--  인천교통공사, 지역상생 농어민 경제 활성화 앞장...강화군 농수산물 직거래장터 운영
--  이현재 하남시장, 감일·위례신도시 과밀학급 해소 등 강력 요청
--  인천시 상수도사업본부 인천하늘수 생산 공정 벤치마킹 위해 해외 관계자 방문 러시
--  여주시 청소년진로체험지원센터, 2023년 성향별 공부법 캠프 운영
--  인천대 공연예술학과, 16~19일 연극 ‘Our Town’ 공연
--  가평군소년소녀합창단, 11번째 감동의 울림
+-  ‘이것이 찐친 바이브’... 매디슨, “라이스가 아스널에서 뛰는 게 싫어”
+-  '250억이면 영입 가능' 분데스리가 폭격기, 내년 1월 맨유-뉴캐슬이 동시에 노린다
+-  Libya'ya asker gönderilmesinin 24 ay daha uzatılmasına ilişkin TBMM kararı Resmi Gazete'de
+-  ASELSAN'ın projesi Arjantin'in ilgisini çekti: Gemileri modernize edecek
+-  ABD Kızıldeniz'deki ticari gemilere yönelik saldırılardan İran'ı sorumlu tuttu
+-  Israel intensifies southern Gaza offensive; U.S., UN urge civilian protections
+-  Man steals Apple products worth S$17.6K, perfumes worth S$593
+-  진스토리코리아, 단델리온커리어와 학습전략과 환경분석 위한 MOU 체결
+-  한화생명, 근로자 연말정산 10계명 소개
+-  전북도-카자흐스탄 경제포럼…‘경제 통상·교류협력 기회’
+-  BLI: Nghị quyết Hội đồng quản trị
+-  SHC: Thông báo tỷ lệ sở hữu nước ngoài tối đa
+-  HDM: Nghị quyết Hội đồng quản trị
+-  PHP: Nghị quyết Hội đồng quản trị
+-  HND: Nghị quyết Hội đồng quản trị
+-  비피엠지 블록체인 플랫폼 '젬피온'에 글로벌 게임 속속 합류
+-  Schnee und Glätte in Hessen: Staus, Schulausfälle und 170 gestrichene Flüge
+-  신인그룹 라이즈, 틱톡 누적 조회수 3억뷰 돌파
+-  SSC CGL Final Result 2023: एसएससी सीजीएल फाइनल रिजल्ट जारी हुआ, चेक करें टॉपर्स लिस्ट
+-  김해경전철 김해시청역, 토더기 테마역사 조성
+-  منها السلمون والفاصوليا.. أفضل 10 أطعمة تزيد الذكاء عند الأطفال
+-  رئيس الهيئة العامة للمنافسة يكشف سر التلاعب في قطع غيار السيارات (فيديو)
+-  تبدأ اليوم.. على سكان هذه المناطق الحذر من حالة مطرية متوقعة
+-  التوسع في استخدام الذكاء الاصطناعي لكبح الحوادث المرورية
+-  "التعليم" تُحذّر من التفاعل مع الأنشطة الدولية دون موافقتها
+-  Kembar Rihana Rihani Divonis 4 dan 3 Tahun Penjara, Korban Penipuan iPhone Minta Uang Mereka Kembali
+-  Firli Bahuri Penuhi Panggilan Pemeriksaan Etik Dewas KPK
+-  Neue Großübung: Bundeswehr und Nato planen Manöver – Niedersachsen dabei
+-  조국 전 법무부장관, 국립5·18민주묘지 참배
+-  Blast in Peshawar's Warsak Road leaves two children injured
+-  Bakanlık kripto varlıklar için düğmeye bastı
+-  Başkan Erdoğan Doha'dan ateşkes çağrısı yapacak
+-  Tesla is selling a little Cybertruck for your little ones
+-  İspanya Başbakanı Sanchez: İsrail ile krizden değil Gazze'deki ölümlerden endişe duyuyorum
+-  전세사기 피해 72%가 20·30대 청년…무자본 갭투기 대다수
+-  ASI to install steel support for Natamandap beam of Shri Jagannath Temple
+-  NASA Aya eniş edəcəyi tarixi AÇIQLADI
+-  Itt a térkép: mutatjuk, hol várható havazás Magyarországon
+-  Libya tezkeresi Resmi Gazete’de: 24 ay daha uzatıldı
+-  Odisha: Woman gang-raped, killed; brother among five arrested
+-  [ŽT] Įnirtingi mūšiai. Skelbiamas karščiausias kovų video
+-  मुलुकको अर्थतन्त्रले लय समाउन थालेको छ: मन्त्री डा महत
+-  कालीगण्डकी करिडोरः बागलुङ–हर्मिचौर खण्डको काम सुस्त
+-  जनहितमा बाधक कानुनमा सुधार गर्नुपर्छ– नेता गिरी
+-  मिसेस् हिमालयन नेपालको उपाधि अनुषालाई
+-  맥주 전문점 한냥노가리, ‘부천송내남부역점’ 신규 오픈
+-  Thương hiệu dép cho ba thế hệ gia đình tôi
+-  Cyclone ‘Michaung’: All Schools To Remain Shut Tomorrow In This Odisha District
+-  Man abducted as a child in China reunites with family 25 years later — thanks to artificial intelligence
+-  신안 해상서 중국 어선 추정 선박 뒤집힌 채 표류hellip;해경 수색
