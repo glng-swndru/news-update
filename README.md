@@ -1,51 +1,51 @@
 # Latest News
--  Reconfigurable molybdenum ditelluride devices with multiple functions
--  ราคา Ethereum (ETH) ทะลุแนวต้านที่สำคัญ: 3,000 ดอลลาร์ข้างหน้า? โดย ยูทูเดย์
--  Bijušo ieslodzīto resocializācijai un nodarbinātībai plāno tērēt 3,3 miljonus eiro
--  پرویزالہٰی کو گھر میں بحفاظت نہ پہنچانے کیخلاف توہین عدالت کی درخواست کا تحریری فیصلہ جاری
--  Disqualified driver ran over and killed boy, 5, who was ‘out buying sweets’
--  Müge Anlı canlı yayında yaşadığı en zor günleri anlattı! Söyledikleri karşısında stüdyo buz kesti!
--  Altın rekora doymayacak! Dünyanın en ünlü ekonomi gazetesi tarih vererek müjdeledi
--  Schlimmer Crash auf A555 - Kölner Fußballtalente in tödlichen Unfall verwickelt, jetzt reagiert der Verein
--  Kwon Yuri Hari Ini Berulang Tahun, Begini Sepak Terjang Girls Generation
--  Sheffield United confirm Chris Wilder return after sacking manager Paul Heckingbottom
--  Azalina: Legislation in 2024 to be people centric, with focus on bankruptcy issues, legal aid and scammers
--  সবার জন্য আসছে স্বাস্থ্য কার্ড, এতে কী লাভ?
--  GWU welcomes radical employment law that 'will curb exploitation'
--  स्थानीय उत्पादन विक्री नहुने समस्या अन्त्य गर्नुपर्छ : सभामुख घिमिरे
--  एलपीएलमा घोडाघोडी र शुक्लाफाँटा विजयी
--  प्रदेशसभामा राजस्व सङ्कलनसम्बन्धी विधेयक प्रस्तुत
--  गणतन्त्रमै नागरिकको अवस्था परिवर्तन हुन्छ : सभापति देउवा
--  Vrasjet e Liridona Ademjat dhe 14-vjeçares në Shkup, Albin Kurti: Nuk mjafton vetëm arrestimi, por duhen dënime!
--  ‘স্বাস্থ্য সেক্টরের যন্ত্রপাতিও জলবায়ু বান্ধব হওয়া উচিত’
--  João Gomes elege dupla de astros do Flamengo que levaria ao Wolverhampton: 'Aqueles caras são gênios'
--  O 'pesadelo' do Arsenal que tem a ver com estádio 'mais raiz' da Premier League e o que você precisa assistir pela ESPN no Star+
--  Zagueiro do Arsenal explica fanatismo pelo Corinthians, revela ídolos e abre plano: 'Um dia vou poder vestir a camisa'
--  التعليم العالي: منصة إلكترونية لتقديم طلبات احتساب المعدل
--  رجل يطالب تايسون بتعويض مالي كبير بعد (لكمة الطائرة)
--  كيف يمكن علاج التهاب الجيوب الأنفية؟
--  دولة أوروبية تبلغ عن تفشي إنفلونزا الطيور شديدة العدوى
--  نائب إسرائيلي يطلب فتح تحقيق جنائي ضد بن غفير
--  ضبط 144 متسولا العام الحالي بالعقبة
--  استفيقوا !! العربي الجيد لهم هو العربي الميت
--  La canciller mexicana negocia en China la compra de enseres para los damnificados del huracán Otis
--  Muhadjir Effendy Temui Heru Budi di Balai Kota, Evaluasi Penanganan Kemiskinan Ekstrem dan Kampung Kumuh
--  Year-End Offer: Mahindra Offers massive Discount on XUV300 and XUV400
--  Sederet Kontroversi Ade Armando, Pernah Sebut Allah Bukan Orang Arab
--  Les pronos hippiques du mercredi 6 décembre 2023
--  South African economy contracts marginally in third quarter
--  Multi Stakeholderism In India Will Be Cornerstone Of How Future Of Internet Will Be Shaped: Rajeev Chandrasekhar
--  Metal, Bank Take Rein Of Record Rally; Adani Stocks Reclaim New Highs
--  India To Provide Kenya $250 Mn Line Of Credit For Modernising Agriculture
--  Teck Hin Fishball Noodle at Bukit Timah to close after 45 years due to rising costs
--  Detienen a siete personas por estafar 132.000 euros a una empresa almeriense
--  For calling him 'fat' & 'transgender' in Hokkien, Bishan condo gardener, 71, strikes co-worker, 64, with garden hoe
--  North Korea closes 2 more embassies in Africa: Seoul
--  Türkiye'den İsrail'e bir uyarı daha: Müsaade etmeyiz
--  Fransa'dan Hamas kararı: Gazze sorumlusu Sinvar'ın mal varlıkları donduruldu
--  Lavrov: İstikrar ve sürdürülebilir gelişme için Hazar ülkeleri arasındaki etkileşim önemli
--  Sivasspor galibiyeti unuttu!
--  Meteoroloji Doğu ve Güneydoğu Anadolu için uyardı: Kuvvetli sağanak geliyor
--  İsrail'in sözde güvenli bölgeleri hastalık bölgelerine dönüşme riski taşıyor
--  Antalya'da bir kadın eve geç gelen kocasını bıçakladı: Hastaneye kaldırılan adamın hayati tehlikesini sürüyor
--  Fenerbahçe Beko, Baskonia deplasmanında galibiyet peşinde
+-  5. prosinca - Dan obrane grada Osijeka
+-  "Licemerje Đilasove opozicije, svaki dan gostuju na televizijama United Group koja ne poštuje medijske zakone"
+-  How to watch BBC iPlayer abroad
+-  How to watch BBC iPlayer abroad
+-  [대구시, 고독사 예방 '즐거운 생활 지원단' 양성
+-  [로슈, 비만치료제 시장 뛰어든다…4조원에 후보물질 확보
+-  [Huawei, Global Peter Drucker Forum과 파트너십 체결
+-  [Zoomlion Agriculture Machinery Global Business Conference
+-  ["돌려차기男이 경찰보다 잘먹고 잘사네"…경찰 구내식당 '부실' 논란
+-  [DGB대구은행, 장기 미거래 신탁 계좌 찾아주기 캠페인 전개
+-  [장미란 '총선 출마 사실이냐' 질문에…"아이, 뭘 사실이에요"
+-  Muere Juan Pablo Adame: “Senador por un día” propuso apoyo para familias de pacientes con cáncer
+-  Com Suárez pela frente, Fluminense tem bom teste no Brasileirão para encarar Benzema no Mundial de Clubes
+-  پی ٹی آئی کے غبارے سے ہوا نکل چکی،مولانا فضل الرحمن
+-  Ribera negocia la compra del hospital de Traumatología Imske en Valencia
+-  Regina Duarte vai expor suas obras de arte botânica em Miami: "Tô muito prosa"
+-  Parlamentares alemães cobram compromisso ambiental de Lula
+-  Retired police inspector, 64, appears in court charged with sex assaults against 18 victims
+-  Retired police inspector, 64, appears in court charged with sex assaults against 18 victims
+-  22 واقعة سرقة تقود الشرطة لعصابة "حماده وتوتو" في طنطا
+-  مسؤول تركي: معرض "إيديكس" أصبح ضمن مصاف المعارض الدولية الكبرى
+-  الصين: على حكومة طالبان إجراء تغيرات كبيرة حتى تعترف بها بكين رسميًا
+-  أرقام مفزعة تكشف: 20 دليلا على موت الأرض
+-  امتنع عن السداد لشراء عقارات.. ضبط المتهم بالكسب غير المشروع من شركة للتجارة والتوريدات
+-  بالأسماء.. 10 مصابين في انقلاب ميكروباص ببورسعيد
+-  بالصور- إغلاق وتشميع معدية مخالفة خلال حملة بالبحيرة
+-  إسرائيل: القتال في "المرحلة الثانية" من الحرب سيكون صعبًا
+-  ارتكبوا 17 جريمة.. سقوط عصابة سرقة أبواب مقابر الموتى في الشرقية
+-  هذا ما يحدث لجسمك عند تناول البيض المسلوق على الإفطار.. 5 تأثيرات غير متوقعة
+-  Kate Middleton puts aside Omid Scobie race row as she arrives to open children's surgery unit at Guy's and St Thomas' Hospital
+-  فانتازي.. كل ما تريد معرفته عن الجولة الخامسة عشر من الدوري الإنجليزي الممتاز
+-  بلتون للتأجير التمويلي توقع أول اتفاقية تخصيم بقيمة 200 مليون جنيه
+-  رئيس المستلزمات الطبية: نسعى لإعطاء واردات القطاع أولوية الإفراج بالموانئ
+-  Датский Saxo Bank сделал 10 шокирующих предсказаний на 2024 год
+-  أبو قير للأسمدة تساهم بـ 45% بمشروع سيتم تحويله لمشروع أخضر
+-  The grinch council who stole Christmas: Santa's Grotto on country estate facing demolition after local authority planning row over access problems
+-  El actor Álex González se embarca en un nuevo proyecto lejos de la interpretación
+-  Wallyscar entame la livraison de sa voiture, la Wolf, à ses tout premiers clients
+-  I’m a traveller married to a gypsy & there’s reasons we’re different – he’d be offended if we were called the same
+-  I’m a traveller married to a gypsy & there’s reasons we’re different – he’d be offended if we were called the same
+-  Navio Alexandre Pires: como era o cruzeiro em que o cantor permaneceu durante operação da PF?
+-  UK homeowners face losing £2,000 in 12 months and 'it's hidden'
+-  One person is rushed to hospital after 'major incident' in Aberfan following 'serious assault' - with multiple schools and childcare centres on lockdown
+-  Greta Thunberg: Israel begeht im Gazastreifen Völkermord
+-  Nicolás Maduro aseguró que supervisará la recuperación del Lago de Maracaibo
+-  Android owners receive free phone upgrade that’s perfect for sports fans who will never miss the latest score again
+-  Android owners receive free phone upgrade that’s perfect for sports fans who will never miss the latest score again
+-  Dimite el gerente de Sadeco por motivos laborales
+-  Israel erhöht Antisemitismus-Gefahrenstufe für Deutschland
+-  Laufen: 21 Teilnehmer beim Adventslauf der Laufgruppe Bünger
