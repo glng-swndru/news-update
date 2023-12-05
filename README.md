@@ -1,51 +1,51 @@
 # Latest News
--  Gözünü kan bürümüş İsrail ordusu Gazze'de ev ve binaları hedef alıyor: Çok sayıda Filistinli hayatını kaybetti
--  İsviçre merkezli Pictet'e 123 milyon dolarlık 'vergi kaçırma' cezası
--  Trump için dikkat çeken iddia: Başkan olursa iktidarı bırakmaz
--  عاجل.. أمطار رعدية ورياح متربة على مكة والمدينة وهذه المناطق
--  PRT-3645 by Prelude Therapeutics for Human Epidermal Growth Factor Receptor 2 Positive Breast Cancer (HER2+ Breast Cancer): Likelihood of Approval
--  ACP-017 by Ascendis Pharma for Vulvar Cancer: Likelihood of Approval
--  CS-0159 by Cascade Pharmaceuticals for Inflammatory Bowel Disease: Likelihood of Approval
--  ACP-017 by Ascendis Pharma for Vaginal Cancer: Likelihood of Approval
--  Rains throw daily life out of whack in Vellore and Ranipet
--  BR-790 by Jiangxi Qingfeng Pharmaceutical for Solid Tumor: Likelihood of Approval
--  Benzin ve motorin 2023 güncel fiyatları (5 Aralık 2023 akaryakıt fiyatları)
--  ACP-017 by Ascendis Pharma for Penile Cancer: Likelihood of Approval
--  (DEWAN NEGARA) LHDN berjaya kutip RM115.63 juta melalui Program Pengakuan Sukarela
--  Lokman Adam hantar representasi kaji prosiding hina mahkamah
--  TIDAL-01 by Turnstone Biologics for Triple-Negative Breast Cancer (TNBC): Likelihood of Approval
--  ACP-017 by Ascendis Pharma for Non-Small Cell Lung Cancer: Likelihood of Approval
--  Президент Болгарии наложил вето на поставку бронетехники в Украину
--  Президент Болгарии наложил вето на поставку бронетехники в Украину
--  SGPC: शिरोमणि कमेटी की ओर से बलवंत सिंह राजोआना को एक और पत्र, अध्यक्ष धामी ने की मांग
--  Punjab news: 3000 रुपये रिश्वत लेते माल पटवारी को विजिलेंस ने रंगे हाथों पकड़ा
--  ACP-017 by Ascendis Pharma for Anal Cancer: Likelihood of Approval
--  На 5 декември рожден ден имат
--  Srivaikuntam MLA urges administration to fill up irrigation tanks in Thamirabarani basin
--  MDMK to stage protest against graphite mining in Kurinjakulam
--  Decoy-20 by Indaptus Therapeutics for Colorectal Cancer: Likelihood of Approval
--  ACP-017 by Ascendis Pharma for Hepatocellular Carcinoma: Likelihood of Approval
--  XTX-301 by Xilio Therapeutics for Ovarian Cancer: Likelihood of Approval
--  Dolar kuru bugün ne kadar? (5 Aralık 2023 dolar - euro fiyatları)
--  ACP-017 by Ascendis Pharma for Gastric Cancer: Likelihood of Approval
--  KVA-12123 by Kineta for Ovarian Cancer: Likelihood of Approval
--  ACP-017 by Ascendis Pharma for Cervical Cancer: Likelihood of Approval
--  Ganjar Safari di Kalimantan Timur: Temu Relawan hingga Sowan ke Ponpes Syaichona Cholil Balikpapan
--  Road Accident Free Treatment:केंद्र सरकार का ऐलान! अब देशभर में सड़क दुर्घटना पीड़ितों को मिलेगा मुफ्त इलाज, जानें पूरी जानकारी
--  TransCon IL-2 beta/gamma by Ascendis Pharma for Melanoma: Likelihood of Approval
--  INTUC proposes reopening of Sterlite Copper
--  YH-25724 by Boehringer Ingelheim International for Metabolic Dysfunction-Associated Steatotic Liver Disease (MASLD): Likelihood of Approval
--  XW-004 by Sciwind Biosciences for Obesity: Likelihood of Approval
--  ALX-001 by Allyx Therapeutics for Alzheimer’s Disease: Likelihood of Approval
--  PRT-1419 by Prelude Therapeutics for Marginal Zone B-cell Lymphoma: Likelihood of Approval
--  Cabometyx by Exelixis for Head And Neck Squamous Cell Carcinoma (HNSC): Likelihood of Approval
--  ১০ ডিসেম্বরের সমাবেশ হচ্ছে না: ওবায়দুল কাদের
--  Man arrested after shootout for raping minor in UP’s Ambedkar Nagar
--  PRGN-2009 by Precigen for Human Papillomavirus (HPV) Associated Cancer: Likelihood of Approval
--  Change location of sewage treatment plant from Coimbatore's Ukkadam, over 100 residents stage stir
--  Watch this wild video of a house in Virginia blowing up as cops approached it
--  Life Certificate:अगर आपने नवंबर में अपना जीवन प्रमाण पत्र जमा नहीं किया तो पेंशन राशि भूल जाइए
--  Stellen für Gefängnismediziner bleiben oft unbesetzt
--  Entlaufener Hund sorgt vorübergehend für Sperrung auf A3
--  Un rapport conforte l’aide médicale d’Etat, tout en préconisant son resserrement
--  « Bâtiment 5 » : portrait d’une banlieue en voie de démolition
+-  무주군 '코로나19 백서' 전국 지자체 모범 사례로 꼽혀
+-  임실군, 지역 9개 어린이집 보육 교직원 대상 역량강화 교육
+-  '최고의 풍미' 저지종 치즈 전북 임실서 생산hellip;제2의 전성기 노린다
+-  돌려막기 수법으로 전세보증금 71억원 가로챈 50대 '구속'
+-  Leguminosen: Lohnt sich der Anbau von Erbsen und Ackerbohnen?
+-  ​ទស្សនិកជននៅតែចាត់ទុកតួ ម៉ារីម៉ា ជាស្រីស្អាត​បំផុត​នៅ​ហ្វីលីពីន ទោះមានវ័យកៀក ៤០ ឆ្នាំក្ដី
+-  한국숲유치원협회 원주분회, ‘세상을 따뜻하게 하는 나눔’ 행사
+-  한라대 호텔항공외식경영학과·타이항공 한국지사, 산학협력 협약
+-  형제환경 성금 기탁
+-  홍천군 투척용 소화기 보급
+-  홍천군, 한강수계관리기금사업 최우수기관 선정
+-  홍천군종합사회복지관 마을복지공동체 사업 성과 공유회
+-  제일산업 무궁화장학금 기탁
+-  임영웅팬클럽 성금 기탁
+-  춘천소방서, 겨울철 산림인접 주택 화목보일러 화재안전시설 설치
+-  홍천로타리클럽 집수리 봉사
+-  인제군 위기탈출 넘버원 프로그램
+-  홍천 60초 영상제 성료
+-  삼척 청년새마을연대, 이웃돕기 성금 기탁
+-  삼척 삼산사, 이웃돕기 성금 기탁
+-  삼척 백중건설, 쌀 기탁
+-  밥상공동체, 우리도 그림책 3기 출판 기념회
+-  시설관리공단 연탄 나눔
+-  속초시 민원응대직원교육
+-  동해시시설관리공단·지방공기업진흥원, 경영혁신 업무협약 체결
+-  하남초 목공 체험활동
+-  코리아여행사 천사운동 후원금 기탁
+-  태백시 주민 숙원사업 철암교 인도 설치 완료
+-  여야 전직 대표 창당 움직임에 강원정치권 눈치 치열
+-  [속보] 윤 대통령 "무역 60년사는 대한민국 경제발전의 역사"
+-  당정 “오징어 어업인에 최대 3000만 원 긴급 경영안정자금 지원”
+-  한국콜마, 생수공장 추진에 주민들 “공공재 사유화 말라” 반발
+-  국내 최대 한옥마을 고성 신평리에 조성… 2024년 착공 예정
+-  Αυξημένες νεφώσεις παροδικά και σκόνη στην ατμόσφαιρα σήμερα - Πού αναμένονται βροχές απόψε
+-  Al Hilal clinches top spot in AFC Champions League Group D with fifth consecutive win
+-  Oscar-nominated Bhutan director turns lens on democracy ahead of vote
+-  Teltow-Fläming: Rufbus beweist als Erfolgsmodell – Busfahrer fehlen aber
+-  Brazen Grinch Strikes: Christmas Tree Stolen in Daylight Heist in California’s Bay Area
+-  Legal Fees to Soar Above $1M as San Bernardino County’s Foster Care System Faces Class-Action Lawsuit
+-  오영주 중기부 장관 후보자 "외교부에서 닦아온 경력으로 최선 다 할 것" [뉴시스Pic]
+-  Ahmad Maslan: eMadani provision will not raise inflation in Malaysia
+-  Defense minister inaugurates HMS Jazan in Jeddah
+-  HNX: Nhận hồ sơ đăng ký niêm yết chứng khoán tại Sở GDCK Hà Nội
+-  HNX: Nhận hồ sơ đăng ký niêm yết chứng khoán tại Sở GDCK Hà Nội
+-  MWG: Thế Giới Di Động chống chọi với khó khăn
+-  ALT: Nguyễn Lại Xuân Duyên - người có liên quan đến Phó Chủ tịch HĐQT - đăng ký mua 60.000 CP
+-  HNA: Nghị quyết Hội đồng quản trị
+-  Hàn Quốc: Lạm phát giảm bớt trong tháng 11
+-  مقتل ضابط وجنديين بجيش الاحتلال في غزة.. وحصيلة القتلى المعلنة تصل لـ 404
+-  [포토] 5G 기반 시내버스 와이파이 시연하는 이종호 장관
