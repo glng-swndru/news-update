@@ -1,51 +1,11 @@
 # Latest News
--  PDR: Thông báo giao dịch cổ phiếu của người nội bộ Nguyễn Khắc Sinh
--  VET: Nghị quyết Hội đồng quản trị
--  민주 "초등 돌봄 공약 6일 발표… 국가책임제 반드시 실현"
--  "농협중앙회 지도사업 선도농협상 수상”
--  Khalistani Terrorist Lakhbir Singh Rode Dies: खलिस्तानी दहशतवादी लखबीरचा पाकिस्तानात मृत्यू, हृदयविकाराच्या झटक्याने झाले निधन
--  의왕시, 2024 대입 정시전략 설명회
--  남양주시, 어린이집 보육교직원 ‘응급처치·심폐소생술 교육’ 성료
--  평택시, 지역 내 방공호 문화재 등록 추진
--  장진수 평택해양경찰서장, 동절기 대비 화상회의 개최
--  영덕문화관광재단 '우다다다 미니 콘서트' 12월 9일 개최
--  박진영, 소아·청소년 치료비 지원 위해 10억 기부
--  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del martes 5 de diciembre minuto a minuto
--  경기도, 연천에 북부 미래 신성장동력 조성
--  Aide de Camp : দেশের প্রথম মহিলা এইড ডি ক্যাম্প নিযুক্ত হলেন এয়ার ফোর্স অফিসার মনীষা পাধি
--  IMD's Light Rainfall Forecast Provides Relief for Chennai, Easing Post-Cyclone Michaung Impact
--  Ujjwala Scheme Distributes 14.2 Crore Free Gas Refills
--  Stronger Banks Navigate Challenges As They Are Well-capitalised: Raj Khosla, MyMoneyMantra
--  Kim: Kvinnor behöver föda fler barn
--  Langley Township to look at repealing neighbourhood plans over NDP housing law
--  Será Juárez sede de congreso de turismo médico
--  Balean a niño de 6 años y a su padre
--  DigiFT Obtains Recognition as Recognised Market Operator and Capital Markets Services Licence From the Monetary Authority of Singapore
--  Bernardo Saravia Frías desconfía de todos: «El próximo Gobierno puede perder YPF»
--  لهذه الأسباب.. حظر تركيب مكائن الخدمة الذاتية عند إشارات المرور
--  Lý do thủ môn Bùi Tiến Dũng thoải mái ở nhà chơi với con trai dù CLB CAHN thua đau trước Hải Phòng
--  Brossoit brilliant as Winnipeg Jets down Carolina 2-1
--  Video shows man narrowly missing being hit by cement truck on Port Mann Bridge
--  이화여대 "빅데이터로 본 노키즈존…차별·혐오 관련성 높아"
--  【今日の1枚】ともに攻撃にさらされて… パレスチナ自治区
--  แถลงการณ์ศูนย์สั่งการชายแดนไทย ฉบับที่ 177
--  AB Yüksek Temsilcisi Borrell: Gazze'de olanlar katliam
--  ทต.ป่าแดด ประชุมคณะกรรมการ ประสานแผนพัฒนาท้องถิ่น ระดับอำเภอ
--  الأمم المتحدة تحذر من "سيناريو أكثر جهنمية" إذا لم تدخل المزيد من المساعدات إلى غزة
--  Panetone (ou chocotone) para fazer em casa, foto real
--  Biscoito de amêndoas, uma delícia sem trigo, derrete na boca
--  [올댓차이나] 中 11월 차이신 서비스업 PMI 51.5·1.1P↑…"장기평균에는 미달"
--  Pudim de tapioca na pressão: melhor do que pudim de leite
--  Delícia de abacaxi tradicional, no copo ou travessa, gelada
--  ¡Prepárate para el tráfico! AICM cerrará vialidad interna por mantenimiento de Aerotrén
--  Indian Embassy: కువైత్‌లోని ఇండియన్ డెలవరీ డ్రైవర్లకు ఎంబసీ కీలక సూచనలు.. ఏమాత్రం అలసత్వం ప్రదర్శించిన భారీ మూల్యం చెల్లించుకోవాల్సిందేనంటూ..
--  Special court to indict Imran, Qureshi in cipher case on Dec 12
--  Chili Prices Soar to Rp144,000 per Kg Ahead of New Year
--  진학사, 2024학년도 정시 합격 전략 설명회 개최
--  Prien: Deutschland muss sozialer Bildungsstaat werden
--  ‘จตุพร’ สงสัย! รัฐปั่นหัวประชาชน ‘แจกเงินดิจิทัล’ ส่อทำประเทศสู่วิกฤติ เหตุ ดึงร่างงบฯ 67
--  「ひき逃げ」事故遭遇の76ersウーブレ、今週中に復帰へ
--  Sunrise star Nat Barr unleashes after freed immigration detainee charged with assault
--  苦行系登山ゲーム『ゆきうさ』Steam無料配信開始。かわいい雪ウサギがひたすら頂上を目指す高難度アクション
--  If leaked, audio tapes to damage PTI leaders’ public image: Sana
--  Gorgon $40m carbon offset fund set for WA green tech program
+-  [하윤수 부산교육감, 마약류 예방 뮤지컬 ‘각인’ 공연장 찾아 학생들과 소통
+-  [단국대 분쟁해결연구센터, ‘갈등관리 최고 전문가과정’신설
+-  [강정애 보훈장관 후보자 “홍범도 독립유공자로서 예우 받아야”
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [가천대-길병원-카카오엔터프라이즈-카카오헬스케어, 4자 협약
+-  [미성년자에 성범죄?…‘이 나라’에선 곧바로 ‘사형’ 선고
+-  [아주대, 우즈베키스탄 ICT전문인재 양성…국내 채용 지원
+-  [“애 없으면 과세”…저출산 심각한 이 나라, ‘무자녀세 도입’ 거론
+-  [화성도시공사, ‘2023년 Best Green Driver 대회’ 시내버스 부문 ‘대상’
+-  [경과원, 스타트업 꿈나무 키운다
