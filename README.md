@@ -1,11 +1,11 @@
 # Latest News
--  Lockheed Martin Strives for Better Work-Life Balance With New Pleasanton Office; Maria Demaree Quoted
--  Mám toho dosť. Najbohatší Slovák preťal väzby s domovinou
--  হেলিকপ্টারে গ্রামের বাড়ি এলেন প্রবাসী, উৎসুক জনতার ভিড়
--  ‘Microchip’ Technology To Be Used In Official Balls For UEFA Euro 2024 In Germany
--  Yle: Nainen sai pankkikortit ja tunnusluvut samana päivänä postilaatikkoonsa – miten näin riskialtis toimitus on mahdollinen?
--  Ter Stegen pasará por quirófano y estará varias semanas de baja
--  Kostenloses Schulfrühstück an Mainaschaffer Ascapha-Schule
--  Betrügerische Handwerker in Wertheim unterwegs
--  Scherf kritisiert Aiwangers Blockadehaltung bei Biosphärenreservat Spessart
--  مجلس الوزراء يصوت على زيادة راتب المعين المتفرغ
+-  Detroit on track to record fewest homicides since 1966, officials say
+-  Výroba modelu Superb v Bratislave odštartovala
+-  Midagri: Gobierno descartó negociación del Bono BETA
+-  Agriculture : Agro Care va construire une serre canarienne au Maroc
+-  'Is this something to celebrate #smallersizebiggerprice?': Shoppers share images of chocolate boxes from 2009 towering over today's containers - as research shows how Christmas faves are being hit by 'shrinkflation'
+-  Über eine halbe Million Menschen besuchten bisher das sanierte Parlament
+-  Ασφαλής η κατανάλωση ψαριών από τον Παγασητικό μετά τις πλημμύρες από την κακοκαιρία, λέει ο ΕΛΚΕΘΕ
+-  Συμμετοχή της ΕΛΑΣ σε παγκόσμια επιχείρηση για την καταπολέμηση της μεταφοράς παράνομου χρήματος
+-  Verhandlungen mit Südamerika: Wem nützt Freihandel?
+-  Kano: leave Gov. Yusuf alone, let peace reign – NNPP founder
