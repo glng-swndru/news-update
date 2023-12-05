@@ -1,11 +1,51 @@
 # Latest News
--  Polda Sumbar Berikan Trauma Healing kepada Korban Erupsi Marapi
--  ¡Ya se sabe! ¿Cuándo podrían cruzarse Argentina y Brasil en la Copa América 2024?
--  Dobili jasno naređenje: “Prerežite Rusima grkljane”
--  Azerbaijan to apply benefits to interest income on deposits
--  NEPRA notifies hike in power price by Rs 3.07/unit under FCA of October
--  Menpora Yakin Atlet Indonesia Lolos ke Olimpiade Paris 2024 Akan Bertambah
--  Alex Scott looks incredible in daring figure-hugging strapless dress on red carpet at The Fashion Awards 2023
--  डांस करते तो कोई चलते-चलते! चौंकाने वाला है अचानक मौतों का आंकड़ा, NCRB रिपोर्ट में बड़ा खुलासा
--  حتى العاشرة صباحاً.. تنبيه من أمطار غزيرة ورياح شديدة السرعة على طريف
--  Adrián Ramos vuelve a respaldar a Lucas González
+-  AB'ye rest çektiler! Sanchez: Filistin devletinin tanınması gerekiyor
+-  Datça açıklarında hortum
+-  Самарқандда қум-шағални талон-тарож қилганлар ушланди (рейд)
+-  Обод маҳаллаларда байрам тадбирлари
+-  Нотариал фаолият: йилнинг энг яхшилари аниқланди
+-  Татаристонлик кардиологлар амалиётлар ўтказди
+-  Εφές Αναντολού – Παναθηναϊκός LIVE για την 12η αγωνιστική της Euroleague
+-  Más definición y revisión legal ante un "complejo" uso de datos sanitarios
+-  Moisés, a un paso de perder su plaza en Pasapalabra: el error que podría provocar su eliminación
+-  EARTHDAY.ORG, Nile Rodgers and We Are Family Foundation Support #Education4Earth at COP 28 To Demand Climate Education for All Students
+-  Validebağ’da direnenler kazandı! ‘Millet Bahçesi Projesi’nin iptal kararı onandı
+-  Billionaire Gautam Adani Climbs Back Into The World’s Top 20 Richest
+-  🎥​ | Ballen van staal: wakeskater springt van 294 meter hoog gebouw
+-  Άντζελα Δημητρίου: Η διπλή περιπέτεια που πέρασε επιστρέφοντας από το εξωτερικό
+-  Mediaset confirma la disolución de la productora de 'Sálvame' y el futuro de 'Socialité', 'TEM' y 'Chester'
+-  استهدفت ( 150 ) فتاة .. مؤسسة " باقادر " الخيرية التنموية تدشن دورات القدرات والمهارات للنساء بأبين
+-  A woman wearing high heels and a gold ring was found dead by hunters in Indiana 41 years ago. She’s now been identified.
+-  الكثيري يترأس اجتماعًا للجنة جائزة اللواء الزُبيدي للبحوث العلمية
+-  Bing’s new ‘Deep Search’ feature offers more comprehensive answers to complex search queries
+-  Pixar’s ‘Soul,’ ‘Turning Red’ and ‘Luca’ Coming to Theaters After Disney+ Debuts During Pandemic
+-  ¡Hakló de todo!: El escrito que Tito Torres compartió en sus redes
+-  Ladj Ly de retour avec "Bâtiment 5" : "La solution à la crise des banlieues ne peut être que politique"
+-  Üç PKK'lı terörist teslim oldu
+-  Biden ailesine yolsuzluk suçlaması: En az 20 paravan şirket tespit edildi
+-  Spaletti: Doğru olmayan alışkanlıkları var
+-  Her Hamas'lı için iki sivil katlettiler... İsrail basınından 'soykırım' itirafı
+-  Antalyaspor, tur biletini 6 golle aldı
+-  İşgalci İsrail'in hapishanelerindeki Filistinli sayısında artış: 7 bin 800'e ulaştı
+-  Netanyahu esir yakınları ile tartıştı... Bebek katili vahşeti öncelikli gördü
+-  Kişilik testi: Duygusal zeka yapınız ortaya çıkıyor! Önce hangi hayvanı gördünüz?
+-  İşgalci İsrail Han Yunus'a girdiklerini öne sürdü
+-  Katar ve Suudi Arabistan arasında iş birliği: Çeşitli alanlarda anlaşmalar imzalandı
+-  Büyük Ryan Kent krizi! Ayrılık resmen duyuruldu
+-  Fiat otomobil pazarını adeta yıktı geçti: Satışta birinci oldu! İşte aralık ayı fiyat listesi
+-  Yunanistan'dan göç hareketliliğine çitli önlem
+-  Hakan Çalhanoğlu: Şampiyonlar Ligi'ni kaybetmek acı vericiydi
+-  Başkan Erdoğan yurda döndü
+-  Lionel Messi'den Suudi Arabistan itirafı!
+-  ABD'den Hamas tünelleri için çarpıcı iddia... İşgalci İsrail deniz suyu salmayı planlıyor
+-  Fenerbahçe'de Emre Mor bayramı!
+-  Beşiktaş'ta derbi mesaisi başladı
+-  İspanya'dan Filistin için AB'ye rest... "Devlet olarak tanıma eğilimi sürüyor"
+-  Dieta de la alcachofa, ¿qué hay de cierto? ¿sirve realmente para perder peso de forma rápida?
+-  “Fortalecimos la Revolución”, las confesiones del exembajador de EEUU que espió para Cuba
+-  ¡Uh! ¡Qué miedito!: desde la Fiscalía piden informes sobre administración “Marito”
+-  La revista TIME elige a Lionel Messi deportista del año
+-  ‘She Panicked And A Tipper Ran Over Her’ – Lagos Police Speaks On Killing Woman In Ebule Egba During Enforcement Of Okada Ban
+-  ‘The Boulet Brothers’ Dragula’ Renewed For Season 6 At Shudder
+-  Servus Credit Union pays $68.1 million to members from profits, spreading early holiday joy
+-  The Boys creator reveals awe over “batsh*t” Season 4 scene
