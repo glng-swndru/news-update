@@ -1,11 +1,11 @@
 # Latest News
--  Marinier trotseert woestijn en poolcirkel om aandacht te vragen voor mentale gezondheid: 'Er zit kracht in jouw trauma'
--  Absuelven al fiscal Lorenzo Lezcano al no hallar indicios de mal desempeño de funciones
--  Отмяна на данъчни облекчения за коли би попълнила дупката в германския бюджет
--  Des religieuses catholiques poursuivent Smith & Wesson pour faire cesser ses ventes d'armes d'assaut
--  Espanha: Podemos rompe com Somar e leva ao extremo a luta com Yolanda Díaz e Pedro Sánchez
--  Rossz hír a Barcelonának, műteni kell a csapatkapitányt
--  Inscríbete a la Pensión del Adulto Mayor; tienes hasta el 23 de diciembre
--  Sandbag Filling Station at Fernie’s operations yard
--  Berkeley man charged with assaulting Amazon delivery driver
--  Advent-Tipps aus Berliner Bezirken: Weihnachtsmärkte, Geschenkaktion, Vogelkunde
+-  فيديو يوثق أحدث حيلة لوافدين يروجون مواد مخدرة في المدينة المنورة
+-  النيابة العامة تكشف عن عقوبة موجعة بشأن التزوير في حضور وانصراف الموظف
+-  Маж од прилепско претепал полицаец
+-  Italia, tris alla Svizzera in Women's Nations League: si resta in Lega A
+-  Dabke UNESCO somut olmayan kültürel miras listesine girdi
+-  Ukraine meldet neue russische Drohnenangriffe
+-  Од денес најмалку шест месеци изменет режим на сообраќај на делницата Тетово-Гостивар
+-  Rep of Ireland hammer Northern Ireland as Katie McCabe scores Christmas cracker with visitors 100% in Nations League
+-  Man Utd legend breaks silence over ‘unfair’ sacking at EFL club but refuses to accept his career is over
+-  « 60 jours c’est trop ! » : des proches d’otages israéliens réclament leur libération, « c’est un enfer pour nous »
