@@ -1,11 +1,11 @@
 # Latest News
--  Reverse Hair Loss with 3 Simple Tweaks – First is Free!
--  Nikolausumzug durch Oer-Erkenschwick: Hunderte folgen dem heiligen Mann – Wir haben die Fotos
--  আজ থেকে ফের ৪৮ ঘণ্টার অবরোধ
--  Vom Röntgentechniker zum Bar-Besitzer auf Mallorca : Holger Bombien: „Die Insel macht süchtig“
--  Formazioni ufficiali Italia Femminile Svizzera: le scelte del ct Soncin
--  Entregaron equipamiento y mobiliario al Registro Civil, de la Propiedad y a Catastro
--  'Bad buzz': How video games learnt to embrace diversity
--  Ab ins Theater – hier müssen Sie hin!
--  41 tarihi eser ait oldukları yere dönüyor
--  A Milli Kadın Futbol Takımı 6'da 6 yaptı!
+-  Mahsun Kırmızıgül'den yeni dizi
+-  Maciej Bodnar (38) houdt het voor bekeken: “De wielersport heeft me veel gegeven”
+-  Niet alleen Girona zat achter Blind aan: 'Ik heb eigenlijk altijd wel heel veel vertrouwen gevoeld, maar...'
+-  Varaždin pobjedu posvetio Kovačeviću: ‘Čeka ga borba, ali sve će biti dobro’
+-  Uhapšen drugi osumnjičeni za napad na Pavićevića
+-  Israel storms Khan Younis in southern Gaza, killing scores
+-  Torrelavega licitará los servicios de electricidad por 4,2 millones
+-  Ще бъде ли арестуван Путин на 6 декември?
+-  Leo Daily Horoscope Today, December 6, 2023 predicts exciting love life
+-  Sonipat News: चिकित्सक लिख रहे टेस्ट, अस्पताल में पांच दिन से नहीं परीक्षण का सामान
