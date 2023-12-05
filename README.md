@@ -1,51 +1,11 @@
 # Latest News
--  News24 | Wednesday's weather: Alerts for thunderstorms and damaging winds in parts of SA
--  Caen dos cabecillas de bandas criminales en Colón
--  Pierwsza emisja w crowdfundingu po nowemu. O kapitał zabiega Kombinat Konopny
--  Zwiastun gry GTA VI rozczarował inwestorów. Akcje spółki w dół
--  Giełda w Tel Awiwie: przed atakiem Hamasu nie działo się nic niezwykłego
--  Soccerladuma | Downs To Table Offer For Sought-After Striker
--  د قطر امیر د غزې د جګړې په اړه د نړیوالو 'بې غوري د شرم وړ' وبلله
--  Live hören: Die Konferenz - Achtelfinale | Fußball DFB-Pokal
--  Gruppe Paladin: Mutmaßlicher Anführer von Corona-Gegnern in Portugal gefasst
--  Freihandel mit Südamerika: Worum es beim umstrittenen Mercosur-Abkommen geht
--  Efecto llamada para no quedarse sin el antiarrugas más buscado
--  Düzce'de işçi servisi alevlere teslim oldu
--  Una de las preguntas clave de limpieza corporal ¿Es mejor ducharse por la mañana o por la noche?
--  Goran Bregović neutešan: Muzičar se oprostio od dugogodišnjeg prijatelja i kolege: "On je bio jedini..."
--  Νέα κακοκαιρία «χτυπά» τη χώρα τις επόμενες ώρες: Πότε θα σημειωθούν ισχυρές καταιγίδες στην Αττική και πότε θε εξασθενήσουν τα φαινόμενα
--  Las zonas de casa que no limpias nunca y con las que deberías tener un cuidado especial
--  Fianna Fáil name the ‘Big Three’ to contest Athy MD elections
--  Thales completes the acquisition of Imperva, creating a global leader in cybersecurity
--  Bottlenose dolphins seem to have a shocking sixth sense, scientists say
--  Nataly Parkly anuncia su ruptura con Pedro Loli: “Por mi bienestar y paz mental”
--  Biden impeachment inquiry vote planned for next week
--  🎥​ | Komt hoogmoed voor de val? Platte kar voor kampioenschap PSV nu al opgepoetst
--  أمير قطر: من العار استمرار حرب غزة
--  В Узбекистане открылся первый ресурсный центр русского языка
--  REALITES lève avec succès une nouvelle tranche obligataire de 17 M€ sur le marché EURO PP
--  Andressa Urach decide fazer uma pausa em produção de vídeos adultos; Entenda!
--  Tempel se za 20 let neprávem ve vězení domáhá 90 milionů. Stát mu přiznal zlomek
--  '임신' 황보라 "시父 김용건, 나 너무 맘에 들어해…하정우 때문 상견례 스케줄 변동" [조선의 사랑꾼]
--  Natalie Portman recalls King Charles awkwardly asking her if she was in original ‘Star Wars’
--  Дракахруст: «Не тое, каб ад высокіх цэнаў народ заўтра выйшаў на вуліцы, але і так бывае»
--  ग्वालियर-चंबल संभाग में प्रभाव नहीं छोड़ पाए जयवर्धन
--  Un juge britannique approuve le règlement de 737 millions de dollars d'Entain dans le cadre de l'enquête sur les pots-de-vin en Turquie
--  Samsung Shop: fino al -30% e supervalutazione dell’usato con le promo di Natale
--  Minister Raises Concerns After Sellafield Nuclear Site Denies Hacking Incident
--  Nexity : Nombre total d'actions et droit de vote composant le capital - novembre 2023
--  ChatGPT fails to give ‘satisfactory’ reply to nearly 75% of medication-related queries: study
--  Financial Intelligence Agency Hands Down $7.4M Penalty to Royal Bank of Canada
--  Повеќе од 15.900 палестинци се убиени во Газа од почетокот на војната, тврди Хамас
--  „Toksika“ įdiegė naujas dūmų valymo technologijas pavojingųjų atliekų deginimo jėgainėje
--  KTU ir LFF bendradarbiavimas: sieks atgaivinti antrąjį pagal dydį natūralios vejos Kauno futbolo stadioną
--  „To nebuvo nuo Antrojo pasaulinio karo...“ Dvigubas smūgis. NATO skelbia „precedento neturinčią“ grėsmę Europoje
--  [ŽT] Ką ruošiasi daryti Izraelis ir kas jam slapta padeda
--  „Zelenskiui nepavyks amžinai meluoti, jis už viską sumokės“
--  Google lavora per migliorare Nearby Share e l’app fotocamera su Pixel 8
--  Everton fans moan Tony Bellew 'censored by I'm a Celebrity' in 'Premier League conspiracy'
--  Ottawa ‘Took a Risk’ When Investing $150M in Medicago Vaccine Factory: Official
--  Putin szuka pieniędzy. Opuści Rosję na jeden dzień
--  Designer Brands (DBI) Q3 2023 Earnings Call Transcript
--  যুক্তরাষ্ট্রে ‘বাংলাদেশ অ্যাভিনিউ’য়ের নামফলক উন্মোচন
--  Six Finalists Advance in New Beverage Showdown 26
+-  Polda Sumbar Berikan Trauma Healing kepada Korban Erupsi Marapi
+-  ¡Ya se sabe! ¿Cuándo podrían cruzarse Argentina y Brasil en la Copa América 2024?
+-  Dobili jasno naređenje: “Prerežite Rusima grkljane”
+-  Azerbaijan to apply benefits to interest income on deposits
+-  NEPRA notifies hike in power price by Rs 3.07/unit under FCA of October
+-  Menpora Yakin Atlet Indonesia Lolos ke Olimpiade Paris 2024 Akan Bertambah
+-  Alex Scott looks incredible in daring figure-hugging strapless dress on red carpet at The Fashion Awards 2023
+-  डांस करते तो कोई चलते-चलते! चौंकाने वाला है अचानक मौतों का आंकड़ा, NCRB रिपोर्ट में बड़ा खुलासा
+-  حتى العاشرة صباحاً.. تنبيه من أمطار غزيرة ورياح شديدة السرعة على طريف
+-  Adrián Ramos vuelve a respaldar a Lucas González
