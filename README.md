@@ -1,11 +1,11 @@
 # Latest News
--  وزارتا المواصلات والداخلية تبحثان سبل إنجاح العمل والخدمات بالمنافذ البرية.
--  رئيس جهاز المباحث الجنائية يبحث في روما سبل توحيد الجهود وتبادل المعلومات مع نظيره الإيطالي.
--  Más de 1.200 enfermeras aprueban la Oferta Pública de Empleo de Aragón
--  ¿Por qué Sebastián Viera dijo que el Tolima “debería estar nervioso”?
--  PNC y FGR ejecutan operativo para detener sujetos ligados a tráfico ilícito de drogas
--  Más de 55 mil capturas se han dado este 2023, dice ministro Pino
--  Objavljen novi krimić spisateljice Ines Hrain, prate ga odlične recenzije
--  Konya'daki Büyükşen çifti cinayeti davasında sanıklara verilen ceza hukuka uygun bulundu
--  VIDEO: Taquero mata a puñaladas a su compañero de trabajo por bajarle a la música en Hidalgo
--  جامعة المنصورة الجديدة تعلن الاستعداد لتفعيل نظام تخطيط موارد (ERP)
+-  [ŽT] Estija: Ukrainos pabėgėliai - žala ar nauda
+-  [ŽT] „Daugiau nei 6000 „M1 Abrams“ tankų...“ Monstriška jėga. Skelbiama apie JAV pagalbą (Video)
+-  [ŽT] „Rusijos agresyvumas tik didės!“ Tai rimta. Putinas skelbia netikėtą pareiškimą
+-  [ŽT] Z-patriotai pašiurpę. Rusija dideliais žingsniais juda Trečiojo Čečėnijos karo link. Kas vyksta (Video)
+-  N-18! Žvėriški rusų nuostoliai. „Smogė HIMARS.“ Skelbiamas šokiruojantis video
+-  ExpressVPN on Android TV Goes Dark… Mode
+-  Wielu uważa Atom RPG za najwierniejszego spadkobiercę Fallouta 1 i 2; teraz kupicie go rekordowo tanio
+-  Gwanda MSMEs traders market 90 percent complete
+-  Taylor Swift lands at number five on Forbes' World's Most Powerful Women list after banner year featuring wildly success Eras Tour and Travis Kelce romance
+-  The Crown's Meg Bellamy stuns in a Valentino dress as she joins Emma Corrin and Elizabeth Debicki at a glitzy event celebrating the finale of the smash hit Netflix series
