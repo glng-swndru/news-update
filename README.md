@@ -1,51 +1,51 @@
 # Latest News
--  روسيا وايران توقعان اتفاقا حول مواجهة العقوبات أحادية الجانب
--  News24 Business | US 'blank cheque' firm in talks to merge with South African gold mine
--  Dental Autoclave Market Size, Share and Scope Analysis to 2031
--  Wall Street : scores contrastés après des indicateurs mitigés
--  Minor league football coach and wife allegedly arranged sex with underage girl because ‘wife likes them young’
--  Will GTA 6 have Online? Everything we know so far
--  A Szegedi Tudományegyetem és az ELTE holtversenyben lett a legjobb magyar egyetem a QS fenntarthatósági rangsorában
--  When is GTA 6 set? Grand Theft Auto timeline explained
--  Erick Wujudkan Inklusivitas BUMN lewat Mitra BUMN Champion 2023
--  Warum Schweizer Banken mit ihrer Kreditvergabe ein hohes Risiko eingehen
--  Student Drowns In Hotel’s Swimming Pool In Edo
--  West Indies successfully chases down target of 326 vs England in 1st ODI
--  Free PM from work burden of numerous universities&#039;
--  PrimePak Unbleached – A Sappi Success
--  Continuous Basalt Fiber Market User Demand, Growth Analysis, Benefits and Regional Overview at CAGR of 7.5% by 2030
--  Вышел трейлер GTA 6. Что известно о самой ожидаемой игре Rockstar Games
--  Crash d'un avion de tourisme en pleine ville : "du jamais-vu depuis des décennies en France"
--  تزوير الفيزا والاتجار بالبشر يطيحان بشخصين في تطوان
--  إنجازات وأرقام قياسية يحققها مطار الملك خالد الدولي
--  Olympia 2024: Starterlaubnis für Russen bei Olympia?
--  Komend weekend en volgende week minder treinen rondom Schiphol
--  Proč devizové rezervy ČNB nyní rozpočtu nemohou pomoci (Jan Kubíček)
--  US job openings drop to lowest level in more than two years
--  U GRO Capital, Laghu Udyog Bharati join hands to empower MSMEs
--  Apie svetimus pinigus, Jomantą „Ryte“ ir LKL Kūčių vakarą (Savas kiemas Q&A)
--  الزمالك يعلن شروط العفو عن أحمد فتوح
--  Hohe Einbruchgefahr: Berliner Feuerwehr warnt vor dem Betreten von Eisflächen
--  Mit wem tuschelt er hier? - Geheimnisvolles Tuchel-Treffen in München
--  Эдуарда Бабарико внесли в «список террористов»
--  محافظ بورسعيد يلتقي الشباب الحاصلين على وحدات صناعية بمجمع الصناعات الثالث
--  Podemos rompe con Sumar y se pasa al Grupo Mixto en el Congreso
--  هوجارد يتأهب للمشاركة في بطولة دبي العالمية للجولف
--  „Last Christmas“ und Co.: Warum kommt der nervige Weihnachts-Pop jedes Jahr wieder?
--  SVI DETALJI O PORODICI MILA ĐUKANOVIĆA Žena Lidija bila u centru medijske pažnje zbog narukvice od 22.700 dolara, a o svadbi SINA JEDINCA svi su brujali
--  Kickoff | Serero’s creamy UAE package disclosed
--  Kickoff | Starting XIs: Pirates v Swallows
--  Urban sports, arts and (counter) culture film to debut soon in Kilkenny
--  Why Delhi’s air quality remains in the red despite a fall in stubble burning
--  NIS2 a nový zákon o kybernetické bezpečnosti
--  Sandiaga Pede Kunjungan Wisman 2023 Bakal Tembus 11 Juta Orang
--  Rosja w szponach "spektakularnego" mrozu, nawet do -60 st. C. Sroga zima zmierza do Moskwy
--  Para los indígenas, el mercado de carbono para el clima se ha convertido en una “cacería”
--  Ανθρωποκυνηγητό για τον εντοπισμό του συντρόφου της 43χρονης που δολοφονήθηκε στη Σαλαμίνα – Που στρέφονται οι έρευνες
--  Vremea arctică lovește Rusia: Temperaturi de -58°C în Siberia. Cum s-au pregătit localnicii
--  Master Chief Is Humanity’s Best Hope in First Look Trailer for Halo Season 2
--  Le Sélectionneur de l’Albanie : »Les Lions de l’Atlas sont un modèle inspirant et une référence » !
--  ¿Las pantallas distraen en el aula? El 30% de los alumnos de PISA dicen que sí
--  ¿Las pantallas distraen en el aula? El 30% de los alumnos de PISA dicen que sí
--  Alles Fake, oder was?: Warum Ärzte den Social-Media-Filtern an den Kragen wollen
--  Le rand sud-africain s'affaiblit avant la publication du PIB du troisième trimestre
+-  Strengthening ties, Lidl Cyprus holds first ‘Supplier Day’
+-  HENKEL VORZUEGE: ancora rating Neutral per JP Morgan
+-  HENKEL VORZUEGE : JP Morgan vindt het aandeel niet inspirerend
+-  MotoGP, Aprila dà il benvenuto al Team Trackhouse: è ufficiale
+-  Polveriera United, Ten Hag si ribella: “Alle nostre spalle? Così non è corretto”
+-  Basket Torino: preview Reale Mutua Torino vs Real Sebastiani Rieti
+-  Cade dalla Vespa e tenta la truffa: la lascia per strada simulando un furto
+-  I migliori "scambi" della Juve: Szczesny sorprende, Chiesa e Fagioli top
+-  JPMorgan belässt Henkel auf 'Neutral' - Ziel 70 Euro
+-  Under 16 Regionali: Albese-Asca 1-3
+-  পররাষ্ট্র প্রতিমন্ত্রীর বার্ষিক আয় বেড়ে প্রায় ৮ কোটি টাকা
+-  Derbi donio poražavajuće brojke: Zar navijače ne privlači mega-momčad? ‘Klub nije ispunio obećanja‘
+-  Иқтисодиёт ва Молия вазирлиги коррупцияга қарши (+видео)
+-  Πιστιόλης: «Παναθηναϊκός και Ολυμπιακός δείχνουν ότι ανήκουν στην τετράδα της EuroLeague»
+-  Meghan Markle, Prince Harry’s royal titles could be stripped by UK lawmaker following bombshell book
+-  Wie kamen Farben in unsere Welt?
+-  AP High Court: ఎస్ఐ నియామకాలపై మధ్యంతర ఉత్తర్వులు ఎత్తివేసిన ఏపీ హైకోర్టు
+-  Samenwerking noodzakelijk voor oplossen elektriciteitsprobleem
+-  Is this why men in a midlife crisis buy supercars? People who drive premium cars are seen as better mates and being more intelligent, study finds
+-  Otro lío: Manchester United vetó a cuatro periodistas por artículo sobre ‘camita’ a Ten Hag
+-  Reba McEntire addresses sparkling ring on THAT finger - amid romance with Rex Linn
+-  రోడ్ల నిర్మాణాన్ని గాలికొదిలేశారు..!
+-  Slovenští poslanci vyzvali Sulíka, aby uhradil přes 15 milionů za škody na Expo v Dubaji
+-  Historia de Guatemala: “es importante explicar el pasado con objetividad …no solo la visión del grupo dominante”
+-  Var håller finansminister Elisabeth Svantesson hus?
+-  Rufus Sewell is engaged! The Holiday actor, 56, proposes to US actress Vivian Benitez, 26, as she shares romantic snaps on social media
+-  DEBEO DOSIJE GLAVNOG OSUMNJIČENOG ZA UBISTVO VANJE! Ima više od 10 presuda, jedna je i za PORODIČNO NASILJE!
+-  3 PKK'lı terörist teslim oldu
+-  TBMM'de bütçe görüşmeleri 14 gün sürecek
+-  Büyükşen çifti cinayetinde flaş gelişme!
+-  Bakan Ersoy açıkladı: Türkiye'de zeytin yetiştiriciliği UNESCO'ya alındı
+-  68 Türk vatandaşı Gazze'den Mısır'a geçiş yaptı
+-  Bakan Uraloğlu: Yatırımların artması için çalışıyoruz
+-  ورشة لمشاورات شباب عدن ومركز حماية تناقش العنف ضد المرأة
+-  Mardin'de 21 kişinin ölümüne neden olan iki tır şoförü de tahliye edildi
+-  Major BURST PIPE disrupts water supply in parts of Durban
+-  Solbet Perú: Opinión, análisis, bonos y ventajas de la casa de apuestas
+-  El Meta Quest 2 tiene un preciazo de infarto en Amazon México, con meses sin intereses y garantía
+-  Bay Area woman fatally hit by driver in foggy Walmart parking lot, police say
+-  GEN Grupa: Želimo postati vodeći regionalni proizvođač i opskrbljivač niskougljičnom energijom
+-  Kelly Clarkson, 41, flaunts her newly slender figure in a skintight top and belted skirt... after losing weight this summer (but she STILL won't say how)
+-  Ove srijede zenički MNK Salines-Neimari domaćini ekipi GFC Sarajevo u osmini finala Kupa BiH
+-  Kaksi kuopiolaisravintolaa sulkee ovensa lopullisesti uudenvuodenaattona: "Olemme päättäneet lopettaa pyristelyn"
+-  Bộ Công an: Không bắt buộc phải đổi bằng lái xe sang thẻ nhựa PET để tích hợp vào VNeID
+-  تكريم الشركة الليبية للحديد والصلب بدرع التميز وذلك لما قدمته من دعم كبير للكرة الطائرة .
+-  فوج الكشافة والمرشدات سوق الجمعة ضمن (مشروع لن تعطش درنة ) يقوم بتركيب منظومات معالجة وتنقية المياه في عدد من المواقع بدرنة سعة (16000 لتر) .
+-  الهيئة الوطنية لمكافحة الفساد بالمنطقة الغربية تنظم برنامجا تدريبيا لموظفيها .
+-  Doctors spot mysterious new condition in newborns that causes conjoined toes and 'rocker bottom feet'
+-  Phil Spencer shares insight on Xbox's long-term strategy
+-  Amazon e Aerodyne insieme per il mercato dei droni
