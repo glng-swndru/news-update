@@ -1,11 +1,11 @@
 # Latest News
--  HNX: Số liệu Quản lý Sở hữu của Nhà đầu tư nước ngoài tại ngày 06/12/2023
--  HNX: Số liệu Quản lý Sở hữu của Nhà đầu tư nước ngoài tại ngày 06/12/2023
--  FUEBFVND: Kết thúc giao dịch hoán đổi ngày 04/12/2023
--  E1VFVN30: Kết thúc giao dịch hoán đổi ngày 04/12/2023
--  CMG: Quyết định thay đổi niêm yết
--  KSB: Đính chính bổ sung các Báo cáo tình hình quản trị công ty
--  FUEFCV50: Kết thúc giao dịch hoán đổi ngày 04/12/2023
--  FUEMAVND: Kết thúc giao dịch hoán đổi ngày 04/12/2023
--  FUEIP100: Kết thúc giao dịch hoán đổi ngày 04/12/2023
--  FUESSV50: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  Įspūdinga: dirbtinis intelektas vėžio riziką sugeba nustatyti vos iš vienos nuotraukos
+-  [ŽT] „Būkime sąžiningi: o ką Ukraina veikė nuo 2014?“
+-  „Maniakiško sovietinio skerdiko kopijavimas“. Ką Ukrainoje išdarinėja Gerasimovas
+-  Iššvaistyti tūkstančiai gyvybių ir milijardai dolerių. JAV kontrpuolimo planas atmestas jau 4-ąją dieną
+-  [ŽT] „Mums baigėsi laikas ir pinigai.“ Baltieji Rūmai prašo pagalbos
+-  „Jei rinkimai vyktų šiandien, laimėtų...“ Skelbiami apklausos Ukrainoje rezultatai
+-  Nueva polémica en 'El Hormiguero' por un comentario homófobo de Jorge Martín
+-  Gerichtsfall fahrlässige Tötung: War der Aufprall im Tunnel zu verhindern?
+-  مركز المواصفات القياسية يمنح شركة الحديد والصلب علامة الجودة الليبية .
+-  Disahkan DPR Hari Ini, Revisi UU ITE Masih Memuat Pasal Karet
