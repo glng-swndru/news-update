@@ -1,51 +1,11 @@
 # Latest News
--  [손희권 경북도의원 "학교명 선정 심의, 지역민 포함해야"
--  [한국디지털웰니스협회, ‘데이터 필란트로피’ 확산방안 모색
--  [푸틴, 사우디·UAE 순방 뒤 이란 대통령 만난다…서방국가 고립 타개?
--  [㈜에스알, 대구 예술사랑 메세나 활동 1억 기부 약정
--  [6일 미세먼지 농도↑…오후에는 우산 챙기세요
--  WHO: situatie Gazastrook wordt met het uur erger
--  Omtzigt woensdag in 'koppeltjesgesprek' met Wilders en Yesilgöz
--  Hasan Arat'ın başkan seçildiği Beşiktaş'ta yeni görev dağılımı belli oldu
--  Storing bij Rabobank, problemen met iDEAL- en pinbetalingen
--  أهم الملفات.. اختتام القمة الخليجية في الدوحة
--  5.3 مليار مستخدم لشبكة الجيل الخامس خلال 6 سنوات
--  531 Anniversary of the Arrival of Columbus et al
--  הקשת איתי שני הצטרף למכבי תל אביב: "אני בידיים טובות"
--  בני משפחתו של אביב אילוז ז"ל ביקרו באימון בית"ר ירושלים
--  Borsa günün ilk yarısında geriledi
--  MEB milyonlarca öğrenci ve velinin beklediği konuyu açıkladı
--  Mustafa Bozbey Bursa Büyükşehir Başkan adaylığını açıkladı
--  Bursa'da Nilüfer Belediyesi araç filosunu elektrikli araçlarla yeniledi!
--  BASF : s'intéresse aux projets Nordlicht 1 & 2 de Vattenfall
--  Emine Erdoğan, Katar Vakfı Başkanı ile görüştü
--  Le polemiche sulla Fiat Panda elettrica prodotta in Serbia
--  Aktia vähentää 23 työtehtävää
--  Dutch kids reading, maths, and science skills declining: OECD
--  والد فيرتز: ابني لا يفكر في الرحيل عن ليفركوزن
--  Ислоҳотлар жамият ривожи ва инсон манфаатларига хизмат қилади
--  Jamie Carragher hints at new Sky Sports contract alongside ‘clown’ Gary Neville with hilarious Dumb and Dumber mock-up
--  Умид ва эзгулик улашиб
--  김지민 "결혼? 한다면 김준호와…안 하면 난 끝"('조선의 사랑꾼2')
--  سيبيريا.. 58 درجة تحت الصفر
--  تقرير: «حماس» أصابت قاعدة إسرائيلية بها صواريخ ذات قدرة نووية في هجوم 7 أكتوبر
--  В парламенте Крыма показали образец медали к 10-летию воссоединения с РФ
--  El Ejército israelí reconoce la muerte de 2 civiles por cada combatiente de Hamás fallecido en Gaza
--  Британские самолеты совершат полеты над Газой для поиска заложников
--  三星Galaxy S24 Ultra或于明年初问世 边框将升级为钛合金材质
--  The Real Reason Your Skin Gets Spotty in Cold Weather and How to Treat It, According to a GP
--  Der Leipziger Kabarettist Rainer Otto ist mit 84 Jahren gestorben
--  Coahuila y los primeros 100 días del gobierno de Manolo Jiménez
--  घाँटी थिची श्रीमानको हत्या गर्ने श्रीमती पक्राउ
--  लैङ्गिक हिंसा सचेतनासँगै कानुनी कारबाहीमा अन्त्य गर्न सुझाव
--  काँडेभ्याकुर हेर्न उपरदाङगढीमा पर्यटक
--  उत्कृष्ट स्वास्थ्य स्वयंसेविकालाई सम्मान
--  I’ve had 20 plastic surgeries at 38 – my booty nearly fell out & trolls come at me for looking ‘unnatural’ but I’m hot
--  Леден дъжд аналулира всички полети от Мюнхен до София
--  Millet prices Up 100% Due To High Demand And Disrupted Supply Chains
--  HAL Avionics Expo To Be Held In Delhi On Dec 7-8
--  India’s Tea Exports Drop 4.93% During Jan-Sep
--  Centre Likely To Extend Rs 1.3 Trn Interest-Free Loan To Sates By 1 Yr
--  Νέα επικαιροποίηση του έκτακτου καιρικού δελτίου: Πότε θα «χτυπήσει» η κακοκαιρία την Αττική
--  Logistics Startup Shiprocket Launches New Financing Platform For SMBs
--  Hemşir ile hasta arasında "eldiveni değiştir" kavgası: 3 gözaltı
+-  جرائم العدوان في مثل هذا اليوم 5 ديسمبر
+-  Fed升息後遺症！歐美商辦授信爆雷，一銀、彰銀、兆豐、台銀遭波及
+-  「我來自台灣！」她在COP28關鍵發言1分鐘，呼籲氣候正義
+-  A Detailed Report On Flow Cytometry System Market. Size, Share, Trends, Key Insights. Major Players - Danaher Corp, Apogee Flow Systems, Becton, Dickinson and Company, BioMérieux S.A., Cytek Biosciences, etc.
+-  台積電效應！台新銀行6年後再增設日本分行，為什麼？
+-  SK saznaje: Izraelca bi na klupi Zvezde mogao zamijeniti bivši Kloppov pomoćnik
+-  3D Camera Market Set to Redefine Imaging, Anticipated to Exceed $54.44 billion by 2030
+-  Prošlog puta nabrajao imena liječnika koji su otišili iz zadarske bolnice, a ovog puta imena sestara i tehničara: Što ste napravili da ostanu?
+-  “Ky është qëllimi im personal” – Ylli i harruar nga Real Madridi i dërgon një mesazh të fuqishëm klubit spanjoll
+-  استهداف دبابة إسرائيلية بصاروخ مضاد للدروع شمالي قطاع غزة
