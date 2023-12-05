@@ -1,11 +1,51 @@
 # Latest News
--  ‘與 인재영입’ 이수정 “수원정 출마 희망…험지로 간다”
--  강승규 전 수석 “尹도 혁신위 성공 바랄 것…목적 달성하는 쪽으로 갈 것”
--  가상자산 이용해 ‘260억원’ 환치기 일당 적발…원정도박에 코인 활용
--  넷마블, 버추얼 아이돌 ‘메이브’ 앨범 ‘왓츠 마이 네임’ 출시
--  최태원 회장 "한일 경제협력체, EU 같은 단일시장 모델로 가야"
--  코레일, 인공지능(AI) 로봇으로 철도시설물 점검
--  동국제약 마이핏, 마이핏S 혈당&핑크핏 다이어트 등 신제품 5종 출시
--  동아쏘시오홀딩스·동아ST·동아제약, 환경경영 국제표준 ISO14001 인증 획득
--  LG이노텍, 제60회 무역의 날 ‘100억불 수출의 탑’ 수상
--  SKT, "전국 시내버스 무료 와이파이 4배 빨라진다"
+-  KAI, 아프리카·중동 마케팅 강화
+-  양산부산대병원, 비수도권 에크모 팀 운용 성과
+-  Rusya: Kırım'da Ukrayna'nın 40'tan fazla İHA saldırısı durduruldu
+-  Fenerbahçe Beko deplasmanda Baskonia Vitoria-Gasteiz ile karşılaşacak
+-  Kırıkkale'de uyuşturucu operasyonunda yakalanan 17 zanlıdan 2'si tutuklandı
+-  Aile ve Sosyal Hizmetler Bakanlığı: Kamuya 491 şehit yakını, gazi ve gazi yakını atanacak
+-  5 yıl sonra! F.Bahçe'de Sivasspor'a karşı dejavu
+-  Deprem bölgesinde sağlığa erişim uygulaması süresi uzatıldı
+-  Fas'ta gündem: Hakim Ziyech
+-  Kolombiya, isyancı ELN örgütü ile 5. tur barış müzakereleri Meksika'da başladı
+-  Olası Marmara depremi uyarısı: İstanbul'a yakın iller de hazırlık yapmalı
+-  Mobilne verzije GTA videoigara dosad zaradile više od 100 milijuna dolara
+-  Mount Marapi: Eleven hikers killed as volcano erupts in Indonesia
+-  Sektor agrikomoditi dijangka berdepan cabaran besar tahun hadapan
+-  Otkrivena strogo čuvana tajna: Ime svjetskog glasa stiže na Opus Arenu? Radio je s brojnim slavnim imenima
+-  Çanakkale Biga'da devrilen otomobilin sürücüsü yaralandı
+-  Ogün Samast soruşturmasında yeni gelişme!
+-  Çanakkale Gelibolu'da polisten kış lastiği denetimi
+-  Adana'da dere yatağına dökülen tonlarca limon imha edildi
+-  TCMB'den dikkat çeken rapor: Doların yükselmesi ithalatı artırmıyor
+-  Van'da kaçakçılık operasyonları! 55 gözaltı
+-  Erzurum'da maden operasyonu!
+-  "الملياردير" جورج قرداحي يعود إلى الشاشة في رمضان 2024
+-  Başkan Türkyılmaz'dan deprem açıklaması
+-  Bakan Yerlikaya duyurdu: Kumar ve yasa dışı bahis operasyonu! 18 kişi gözaltında
+-  انٹر بینک مارکیٹ میں کاروبار کے دوران ڈالر سستا ہو گیا
+-  프로축구 경남FC, 설기현 감독과 결별…4년 동행 마침표
+-  [영상] 전용기 "48세와 14세 사랑 인정 판결 사회적으로 받아들일 수 있느냐"
+-  العظمى والصغرى.. درجات الحرارة بمكة والمدينة وجميع المناطق
+-  "NJEGOV SAN JE DA PONOVO ČUJE KAKO MU UZVIKUJU IME" Toni Nadal progovorio o Rafinom oporavku, pa otkrio šta mu je GLAVNI CILJ!
+-  "KRALJU, IMA SE, JE LI?" Sašu Popovića snimali i provocirali dok se gradom vozi KABRIOLETOM od 230.000 €, njegova reakcija je HIT
+-  A che ora si svolgono i funerali di Giulia Cecchettin: l’orario della celebrazione
+-  À l'approche de Noël, 27% des Français ont demandé un acompte sur salaire
+-  Скончалась сестра Фиделя Кастро
+-  Τρόμος τα μεσάνυχτα από φωτιά σε 5όροφη πολυκατοικία - Ο εφιάλτης των ενοίκων στη Θεσσαλονίκη
+-  World’s largest light art festival Noor Riyadh returns to Saudi Arabia’s capital
+-  المدير العام لمنظمة حظر الأسلحة الكيميائية يتسلم أوراق اعتماد المندوب الدائم لدولة قطر
+-  «Руспродсоюз» отметил рост цен на российское шампанское за год в 6,25%
+-  '변호사 아내 살해' 사건, 부검 결과 "경부압박 질식·저혈량 쇼크"
+-  "돈 먹는 하마 전락" 양영환 시의원, 전주푸드 통폐합·사업폐쇄 촉구
+-  Mozzart Sport: «Зенит» может подписать нападающего «Црвена звезда» Миятовича
+-  Subsidi tiket penerbangan Sabah, Sarawak semasa musim perayaan
+-  Knallgeräusche an einem Geldautomaten in Daleiden
+-  Fidel Castro’s sister, Juanita, dies in Miami at 90
+-  Search continues for 12 climbers after Indonesian volcano eruption
+-  Орбан поиска ЕС да не решава за преговорите с Украйна и да не я финансира
+-  Shirin van Anrooij maakt zich geen zorgen: “Ik heb gewoon nog iets meer crossen nodig”
+-  KG 모빌리티, 제 60회 무역의 날 10억불 수출탑 수상
+-  Число погибших в результате извержения вулкана в Индонезии выросло до 13
+-  평택시, 선말산·부용산 방공호 학술조사 용역 착수
