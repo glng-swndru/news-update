@@ -1,51 +1,51 @@
 # Latest News
--  Рада обговорює терміни демобілізації з військової служби
--  Il Torino segna 3 gol in casa: ecco da quanto non succedeva
--  Жалгас Жумагулов резко ответил хейтерам
--  هيئة البحث العلمي ومركز بحوث الطاقة يناقشان آخر المستجدات في المشروع الوطني للهيدروجين الأخضر .
--  LI school bus driver allegedly kidnapped, raped girl on route
--  Emniyet teşkilatına 10 bin polis alınacak! Duyurular İçişleri Bakanlığından yapılacak
--  HNS gradi velebno zdanje za Vatrene: Konačno predstavljena ljepotica, pogledajte kako izgleda
--  Đội nữ TP.HCM I vô địch lượt đi Giải bóng đá nữ VĐQG 2023
--  Lucy Letby 'makes jail enemies over disgraceful preferential treatment' inside prison
--  Celtic, Rangers, Aberdeen & Hearts picked for TV action
--  Περιβαλλοντική δράση στο ΓΕΛ Κισσάμου: Συλλογή χρησιμοποιημένων μαγειρικών ελαίων
--  Poslao poruku Plenkoviću: ‘Ne možete održavati ni ono što je Tito napravio, ljudi će to prepoznati’
--  Представлены бомбардиры «Кайрата» в Лиге Чемпионов по футзалу
--  한예슬, 단발머리에 뱅헤어 변신…더 어려 보이는 상큼 미모
--  Илиян Тиганев, диригент: Моя лична кауза е да постигнем нивото на Пловдивско певческо дружество, което е имало някога
--  Einigung auf Vernichtungsverbot unverkaufter Kleidung in der EU
--  Einigung auf Vernichtungsverbot unverkaufter Kleidung in der EU
--  Miten Nokialle nyt käy? Selvitimme kaiken olennaisen, mitä tilanteesta on syytä tietää
--  Odnaleziono poszukiwaną 14-latkę
--  «Честно говоря». Жумагулов прокомментировал смену следующего соперника
--  Julia Roberts gushes over ‘anchor’ Danny Moder in rare comments about husband
--  Герои нашего времени: Анатолий Чебаков рассказал о жизни волонтёра в Актау
--  United Bankersin sisäisille yritysjärjestelyille vihreää valoa
--  Eintracht Frankfurt angelt sich wohl Top-Talent aus Bayern
--  Na redovnoj sjednici Skupštine HNS-a nagrađeni istaknuti djelatnici, među njima je i legendarni predsjednik Rijeke
--  Đại học Hoa Sen nói gì về quy định sinh viên hoạt động mại dâm lần thứ 4 bị đuổi học?
--  Aquarius 6 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  El Córdoba CF promoverá la adopción de mascotas saltando a El Arcángel ante el Castellón con perros
--  Schnee und Kälte: Verkehrschaos in Süddeutschland hält an ‒ Entspannung am Wochenende?
--  Botic van de Zandschulp vindt nieuwe trainer in Johan Otgren
--  Nailaskom na zavoj udario u metalnu zaštitnu ogradu, a potom iznova u ogradu zbog čega se auto i prevrnuo
--  La Fiscalía pide cuatro años de prisión para los ultras que colgaron una figura de Vinicius ahorcado
--  DA's cites lax executive as 'sixth Parliament's biggest failure'
--  WATCH | A moving ally: CT artist covers taxis with art in support of Palestine
--  Акции издателя серии игр GTA упали на 7% после анонса новой части
--  Šokantna ispovijest bivšeg košarkaša Šibenke: ‘Nakon sina nisam htio više djece, bojao sam se da opet ne napravim kriminalca‘
--  Handelskammer: Gleiche Marktbedingungen für EU in China
--  Βανδή – Μπισμπίκης: Άφωνοι με τον διάλογο των γιων τους
--  Dambrauskasu otkaz, umjesto njega stiže Goran Tomić?
--  Bad condition of roads in Bannimantap
--  Slovenski selektor verjame v uspešno nadaljevanje zgodbe
--  Zack Snyder’s Rebel Moon: trailer, cast, plot and everything you need to know
--  Молдавские социалисты не намерены создавать коалицию с правящей партией
--  Archies Patenonkel greift durch: Harry und Meghan auf royaler Hochzeit wohl unerwünscht
--  Klaasen’s absence from Test side an indication of Proteas’ need for flexibility
--  ДПС с пълна подкрепа за "Пирогов"
--  Frans parlement wil e-sigaretten verbieden
--  Tot dertig jaar cel voor moorden Lieshout en Amsterdam
--  GfK: minder elektronica verkocht tijdens Black Friday
--  Dodental loopt op na vulkaanuitbarsting Indonesië
+-  Du lịch Bình Thuận bội thu, đón hơn 8,35 triệu lượt khách
+-  Hyosung tiếp tục đầu tư dự án lớn tại Bà Rịa - Vũng Tàu
+-  АББ избра Любомир Дацов за свой представител в УС на Фонда за гарантиране на влоговете
+-  गुणस्तरीय शिक्षाका लागि लगानी गर्दै युडब्लुएस नेपाल
+-  Kulankii Madaxweynaha Puntland iyo Isimmada SSC oo natiijo la’aan ku dhamaadey!
+-  Германия — Антирекорд Deutsche Bahn
+-  Камунальныя паслугі, базавая стаўка, заробкі выкладчыкаў. Ці абгрунтаваныя апраўданьні ўлады за рост цаны вучобы ў ВНУ
+-  Pipe fittings Market Set to Grow with Massive CAGR by 2031. Major Players - Compagnie de Saint-Gobain, Mueller Water Products, Inc., McWane, Inc., Charlotte Pipe and Foundry, Ward Manufacturing LLC, etc.
+-  Opinion | Consistent Decline in FDI Worrying, Deeper Assessment of India’s Prospects Needed
+-  One-Punch Man: How Did Saitama Get His Powers?
+-  الدولار يستعيد بعض مكاسبه
+-  ريال مدريد يعلن إصابة كارفاخال
+-  Swathes of Siberia Freeze in Temperatures Below -58 Celsius
+-  Haftanin bölgesinde 2 PKK'lı terörist etkisiz hale getirildi
+-  NSEના SME પ્લેટફોર્મ પર માર્કેટ કેપે રૂ. એક લાખ કરોડની સપાટી વટાવી
+-  “Estamos perdiendo la carrera para salvar nuestros glaciares”: agencia de la ONU advierte sobre impacto del cambio climático
+-  Adventure Time Season 1 Streaming: Watch & Stream Online via Hulu and HBO Max
+-  Ортда қолган куз Ўзбекистон тарихидаги энг иссиғи бўлди.
+-  Дюмин наградил тульских бойцов СВО и работников предприятий ОПК
+-  2-Furoic Acid Market Poised to Achieve US$23.3 Million Valuation by 2031, Reports Transparency Market Research
+-  Product Development Consulting Services Market 2023: Some Basic Influencing Factors Making It's Booming Industry | Thrive, PA Consulting, OpenXcell, Brand New MD, IKON, ZipRecruiter, Targus, Food Consultants Group
+-  iPhone : Apple travaille déjà sur un modem 6G maison pour ses iPhone, le projet n’est pas mort
+-  Зарегистрированная на экс-полковника полиции машина протаранила магазин
+-  Андрей Воробьёв посетил новый Центр молодёжных инициатив в Протвино
+-  Karlobag u adventskom ruhu: Posjetitelje očekuje program pun iznenađenja
+-  MPSOS Class 10, 12 Admit Card Released at mpsos.nic.in, How to Download
+-  The Bold and the Beautiful spoilers: end of the line for Eric?
+-  Milli halterciler, Katar'da podyuma çıkacak
+-  After a mild fire year, Southern California crews look ahead to 2024
+-  Dia Internacional do Voluntariado: Marcelo agradece a todos os que "dispõem do seu tempo", num dia marcado por várias ações pelo país
+-  สลด! หนุ่มใหญ่เข้าป่าหาขี้ยาง ถูกโขลงช้างภูกระดึงรุมเหยียบเสียชีวิต
+-  Жители Ингушетии подали более 1000 заявок на обучение в Академии цифрового развития
+-  النيابة الإدارية تتعاون مع "الاتصالات" من أجل التحول الرقمي
+-  لعدم تركيب الملصق.. سحب 1564 رخصة قيادة في 24 ساعة
+-  بالصور- تسليم 300 مركب لدعم صغار الصيادين في الأقصر
+-  الداخلية: ضبط 559 دراجة نارية لعدم ارتداء الخوذة
+-  إحالة العاملين بوحدة الجفيرة الصحية في مطروح للتحقيق
+-  نقابة أطباء الأقصر تناشد أعضائها تقنين أوضاع عياداتهم الخاصة
+-  Study identifies key ingredient for affordable fuel cell catalysts
+-  تعاون في الطاقة النووية بين الإمارات و«وستنغهاوس» الأمريكية
+-  Modern earthquakes in US could be aftershocks from quakes in the 1800s, scientists say
+-  Dramatische Entwicklung: Unternehmen geben Standort Deutschland schlechteste Note seit 15 Jahren
+-  Dramatische Entwicklung: Unternehmen geben Standort Deutschland schlechteste Note seit 15 Jahren
+-  Microsoft finally allows turning off news in Windows Widgets, but beware of bugs
+-  Leon Edwards is slammed by Stephen 'Wonderboy' Thompson for 'c**p' plan to chase double champ status at middleweight, as he insists Brit needs to 'clean out the division' first
+-  Miguel felicitó a Leyland por entrada al Salón
+-  Two Way Radio Market to Witness Fabulous Growth with Motorola, L3Harris Technologies, Garmin, Kenwood
+-  Die Teilzeitquote ist auf Rekordniveau – und jeder Zehnte hat einen Nebenjob
+-  Shock as it emerges that it is RUTO who ordered the arrest of MARGARET NYAKANG’O for exposing wastage in his government
+-  Straight Out Of Action Movie: Students Throw Punches, Hurl Abuses In Noida College
