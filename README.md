@@ -1,51 +1,11 @@
 # Latest News
--  Pamiparib by BeiGene for Head And Neck Squamous Cell Carcinoma (HNSC): Likelihood of Approval
--  LN-145S1 by Iovance Biotherapeutics for Metastatic Melanoma: Likelihood of Approval
--  Mesdopetam by IRLAB Therapeutics for Psychosis: Likelihood of Approval
--  BR-790 by Shanghai Gefeimu Biomedical Technology for Non-Small Cell Lung Cancer: Likelihood of Approval
--  FPI-2059 by Fusion Pharmaceuticals for Recurrent Head And Neck Squamous Cell Carcinoma: Likelihood of Approval
--  울진중앙농협 합병 5주년 기념식 개최
--  근력 증가제 개발`산업화 기술이전
--  울진농협, 연말 성금 1천만원 기탁
--  행안부 하반기 특교세 26건 107억원 확보
--  XTX-301 by Xilio Therapeutics for Non-Small Cell Lung Cancer: Likelihood of Approval
--  Eflornithine by Panbela Therapeutics for Metastatic Castration-Resistant Prostate Cancer (mCRPC): Likelihood of Approval
--  XTX-301 by Xilio Therapeutics for Prostate Cancer: Likelihood of Approval
--  Pemvidutide by Altimmune for Metabolic Dysfunction-Associated Steatohepatitis (MASH): Likelihood of Approval
--  Amisha, Prachi, Hardik sign off with silver; 9 Indians fight for gold
--  India start favourites against Korea in men’s Junior Hockey WC opener
--  Golf: Scheffler clinches World Challenge title
--  Cellular Immunotherapy for Liver Fibrosis and Decompensated Cirrhosis by Resolution Therapeutics for Decompensated Cirrhosis: Likelihood of Approval
--  Aircraft Battery Market Is Driven By Increasing Demand For Lightweight Batteries, Technological Advancements | Enersys , Kokam , Marvel Aero International
--  “Es cualquier cosa”: Jurado criticó el arroz tecnopor de Renato Rossini en El Gran Chef Famosos La Revancha
--  Израил Газын зурвас дахь эмийн хоёр агуулахыг нэн даруй нүүлгэхийг ДЭМБ-аас шаарджээ
--  Ambulance cancelled for Indigenous man who later died in custody
--  Pamela y Miguelito sorprenden al disfrazarse de Maluma y Thalía en divertido reto de actuación en Tierra Brava
--  BAY คาดเงินบาทสัปดาห์นี้แกว่งกรอบ 34.50-35.40 บาท/ดอลลาร์
--  בית הנבחרים האמריקני צפוי להצביע כי ״אנטי-ציונות היא אנטישמיות״
--  חיפשתי חמלה אנושית בבניין האו"ם - ולא מצאתי
--  Ariel Miranda silenció a los bates magallaneros
--  Roof Garden Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
--  New Dragon Age Dreadwolf teaser shows huge next-gen graphics upgrade
--  سعر الدولار يقترب من أعلى مستوى في أسبوع
--  एकीकृत समाजवादीको सचिवालय बैठक आज पनि बस्दै
--  A segunda Inquisição contra o Padre Antônio Vieira
--  ”No entiendo cómo llegaste a la final”: Masías destruyó a Machuca y su arroz con huevo en El Gran Chef Famosos: La Revancha
--  Jana Partners calls for strategic review, possible sale at Frontier Communications
--  ราคาทองวันนี้ 5 ธ.ค. เปิดตลาดร่วง 200 บาท รูปพรรณขายออก 34,500 บาท
--  한화 건설부문, 서울역민자역사·포레나 도서관에 자원순환형 가구 설치
--  Mató con arma blanca a un hombre para robarle su moto en Trujillo
--  Aerospace Carbon Fiber Market Is Driven By Increasing Need For Advanced Materials In The Aerospace Industry | Teijin Limited ,SGL Group ,Hexcel Corporation
--  Lim Kit Siang patut nasihat Umno ganti Presiden, bukan PAS
--  What a nutritionist would order at Chick-fil-A for a balanced meal
--  ﻿KB캐피탈, 연내 대출중개 플랫폼 운영 팀윙크 자회사 편입 마무리
--  델 테크놀로지스, 2024 IT 기술 전망 발표
--  “하이브리드 근무 직원, 참여도·복지만족도·근속의향 가장 높아”
--  엠클라우드브리지, MS 팀즈 기반 업무 통합 플랫폼 ‘Ai 365’ 출시
--  CJ올리브네트웍스, 연합뉴스TV 차세대 뉴스제작 시스템 구축 사업 수주
--  메타넷디지털, ‘한라 레이더 구매 설치 사업’ 공로 인정 국토부 장관 표창 수상
--  LG CNS, 충주지역 중학생 대상 ‘AI 지니어스’ 프로그램 진행
--  인크로스, 2023 대한민국 광고대상 ‘퍼포먼스 마케팅’ 은상 수상
--  인텔리빅스-국민대, 연구개발 및 인재양성 ‘맞손’
--  No cambió: Miguel Vergara sacó su lado copión en su regreso a El Gran Chef Famosos: La Revancha
--  시큐레터, 공공부문에 제로 트러스트 기반 콘텐츠 무해화 솔루션 공급 확대
+-  로슈도 GLP-1 개발 대열 합류…약 4조에 美 바이오텍 인수
+-  "건강한 조직문화 지속"‥제약바이오기업들, 가족친화 잇따라 신규·연장
+-  A 10 años de la muerte de Nelson Mandela, el hombre que unió Sudáfrica
+-  पूँजीबजारमा सुधार
+-  कृषिको विकासका लागि प्रविधि र उपकरण
+-  १० वर्षअघिको आर्थिक अभियानबाट : रहुघाट आयोजनाको काम नहुँदा भारत असन्तुष्ट
+-  प्रतिस्पर्धाको संरक्षण र प्रतिस्पर्धीबाट संरक्षण : उपभोक्ता र उद्यमी दुवैलाई लाभ दिलाउन आवश्यक
+-  उत्पादन र व्यापारका लागि फरक–फरक ब्याजदर लागू गर्न माग
+-  चोभार सुक्खा बन्दरगाह सञ्चालनको जिम्मा निजीक्षेत्रलाई
+-  샌즈랩, 두바이 국제 보안 컨퍼런스 참여해 인공지능 보안 기술 발표
