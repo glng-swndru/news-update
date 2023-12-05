@@ -1,11 +1,11 @@
 # Latest News
--  Honestidad brutal de Suarez: qué dijo sobre su cuadro en la Legislatura
--  Highest Dengue cases reported after three years
--  오늘의 경기(12월 6일)
--  안동학가산마깍두기김치,'2023년 자랑스런 농식품기업'으로 선정
--  Fantasievolle expositie 'Picture This!' bij KunZt officieel geopend!
--  Dong Mingzhu Shares Gree Zero Carbon Story in COP28
--  Philipp Nawraths langer Weg in die Weltspitze
--  24-Jährige randaliert in Schnellrestaurant
--  الرشيد يفتح منصة شراء الدولار للمسافرين مساء اليوم
--  Macsetével akar elégtételt venni a megsértett élettársa miatt egy férfi
+-  Bilanço esasına göre ticari defter 1 Ocak’ta zorunlu hale gelecek
+-  Konya'da 'Medeniyet Kuran Şehir' sergisinin açılışı yapıldı
+-  Kumara shines at IWF GP in Qatar
+-  מכבי תל אביב יוצאת לווילרבאן, דיברתולומאו עשוי לשוב לסגל
+-  EasyJet collabore avec RTX pour améliorer ses opérations
+-  ‘Poor Things’: What If Emma Stone Was Frankenstein But Feminist and Horny?
+-  Ukraine aerospace sector’s push for Western tie-ups met with skepticism
+-  “عبدالمحسن”: نحن في ائتلاف الشركات المصرية نعمل طبقا للبرنامج الزمني لتنفيذ الطريق الدائري الثالث بطرابلس
+-  10 فرق وطنية ممنوعة من انتدابات الميركاطو الشتوي
+-  Stella Maris ontvangt Sint bij Bonte Belevenis
