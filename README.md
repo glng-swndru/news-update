@@ -1,11 +1,51 @@
 # Latest News
--  Kelly Oubre Jr. sur son accident : “Une situation très traumatisante pour moi et ma famille”
--  “어때요? 기분 좋아졌어요?” 코치의 서윗한 존댓말…공룡들 1루에 29세 우타자가 희망을 품는다
--  [오늘의 운세] 12월 6일 오늘의 띠별 운세
--  나영석 PD, '손절설' 배정남에 고개 숙여 사과 "충분히 오해 살 수 있어"
--  '자산 900억…축구 선수 부인 중 최고 부자'→알고보니 유명 팝스타 출신이었다
--  나영석 PD 무릎 꿇었다…배정남 '손절설'에 "내 탓인 것 같아 정식으로 사과" [종합]
--  ‘유로결 솔로포’ 한국, 아시아야구선수권대회 2차전서 홍콩에 9-0 완승…대회 첫 승
--  49ers se confirman como el equipo más dominante de la NFC hasta semana 13 de NFL
--  Patan Hospital decides to offer free medicines for breast cancer
--  بن حبتور يفتتح 11 مشروع مياه تعمل بالطاقة الشمسية
+-  ADVNCR’s Wade Beckett on Churning Out Creative Content for Large-, Small-Scale Events
+-  Herinrichting Parklaan van start rond nieuw Kindcentrum
+-  Pressekonferenz der Österreichischen LehrerInnen Initiative (ÖLI-UG) vom 5. Dezember 2023
+-  Обнародована ​​повестка очередного заседания парламента Азербайджана
+-  Näin poliitikot kommentoivat kehnoa Pisa-menestystä somessa: "Työrauha ja lähikoulu ovat oppimisen pelastus"
+-  "Da se ne zaboravi" - 5. prosinca, Dan obrane grada
+-  ‘No compres, adopta’, Jessenia Hatti comparte la historia de su perrito rescatado en Miami
+-  Iván Espinel es trasladado a un hospital para "grantizar su derecho a la salud"
+-  برنامج تأهيلي لـ شيكابالا وأوباما وعبدالشافي في مران الزمالك
+-  "روح الروح".. كوكا يسجل هاتريك ويحتفل بقميص أحد ضحايا غزة (فيديو)
+-  المصرية للاتصالات توضح سبب تأثر خدمات الإنترنت في بعض المناطق
+-  معيط: نتطلع إلى بدء بنك "ستاندرد تشارترد" نشاطه في مصر مع بداية 2024
+-  شكاوى من استمرار إغلاقات طرق في عبدون وخلق أزمات مرورية
+-  FBI Director pleads for Congress to keep program accused of spying on Americans
+-  EU will provide up to €1.2 billion in aid for cloud computing projects
+-  AMLO niega que permiso para que militares de EU entren a México viole soberanía
+-  Comunicaciones: se elimina tarifa diferencial para llamadas nacionales de larga distancia
+-  Kafasına gelen maganda kurşunu öldürmüştü. Savcılıktan açıklama geldi
+-  Revisiting that morning show relationship drama one year later
+-  Seit Juli sind in Hof sieben Wohnmobile gestohlen worden
+-  Ebner-Steiner: CSU-Politik ist Schaden für Bayern
+-  Urteil: Geldstrafe nach Unfall in Marienheide-Kalsbach
+-  LigaPro: ¿Qué es el Fan ID, el nuevo requisito de ingreso a los estadios del país?
+-  Helge Schneider über KI, Musik und überflüssige Grammatik
+-  TRT-8 é diamante no Prêmio CNJ de Qualidade pelo segundo ano
+-  Mann nach mutmaßlichem Hammer-Angriff auf Ehefrau in U-Haft
+-  Nach Brand in Klinik: Patientin soll Feuer gelegt haben
+-  هل يحضر حكيمي كأس ابطال فرنسا؟
+-  Opština Budva isplatila novembarske plate, plus 500 evra zimnice
+-  Gemeinde bekommt 70.000 Euro vom Solarpark Hohenburg
+-  Im Liveticker: Gladbach trifft auf Wolfsburg, Homburg gegen St. Pauli
+-  Opnieuw ongeval in 'botsbocht' kruising A1/A30 bij Barneveld
+-  UN: Zahl der in Gaza getöteten Zivilisten „nimmt rapide zu“
+-  Morgan, vittoria in tribunale: assolto da accusa di frode fiscale
+-  Abusos sexuais ocorrem com mais frequência na família e em ambientes conhecidos da criança
+-  Sleep Apnea Oral Appliances Market Global Trends, Share, Industry Size, Growth, Demand, Opportunities and Forecast By 2029
+-  Götze/Grüne: Grünes Licht für starkes Wettbewerbsrecht
+-  Broj mrtvih stalno raste: U Gazi ubijeno više od 15.900 Palestinaca od početka rata
+-  🎥​ | Gijp over analyses Leonne Stentler bij Studio Sport: ‘Het is heel ongemakkelijk’
+-  At least 85 civilians, including women and children, dead after 'mistaken' army drone attack
+-  UBIO, A ONDA 3 DANA ŠETAO KAO DA SE NIŠTA NIJE DESILO! Novinarka iz Makedonije o Vanjinom ubistvu - pomenula i roditelje
+-  Μυστήριο με τον Πούτιν: Συνάντησε πρέσβεις και τους κράτησε σε 20 μέτρα απόσταση - «Ούτε καν τον άκουγαν»
+-  Vor Generalsanierung: Start ins neue Jahr mit drei Wochen Riedbahn-Sperrung
+-  Truecaller Bolsters its Advertising Offering with Power Packed Ad Solutions; Empowering Brands with Customised Growth Formula
+-  STF decide se governo pode pôr políticos no comando de estatais
+-  ¡Atención!: este es el cartel de artistas por del Estéreo Pícnic 2024
+-  Pohjois-Korealta raju varoitus: Sota Etelä-Koreaa vastaan on vain ajan kysymys
+-  Wie kamen die Farben in unsere Welt?
+-  BIGHIT Music Konfirmasi Pendaftaran 4 Wamil Anggota BTS pada Pertengahan Desember 2023
+-  Analytics can solve generative AI apps’ product problem
