@@ -1,51 +1,51 @@
 # Latest News
--  군포 당정역 스마트도서관 11일 오픈… "회원 가입하고 편리하게 이용하세요"
--  [화보] 인천환경공단 '사랑 나눔 자선 다이빙' 행사 실시
--  "어려운 이웃들에게 쾌적한 환경 제공할 수 있어 기쁩니다"… 군포1동, 취약계층 주거환경 개선사업 실시
--  군포시, 내년 예산안 8천782억원 편성… 올해보다 206억원 증가
--  시흥시 소부장경영인협의회, 아동 주거환경 개선 후원금 기탁
--  용인특례시, 이륜차 교통사고 예방 후면단속카메라 설치… 내년 말 정상 운용
--  “용인시 사랑의 열차 출발합니다”… 연말연시 기부 릴레이 스타트
--  용인특례시 ‘조아용’, 환경 보호 위해 삼성전자 ‘달수’와 뭉쳤다
--  [결혼] 박래헌(전 수원문화재단 대표이사) 씨 장남 준열 군
--  시흥산업진흥원, 월곶어시장 화재 피해복구 성금 전달
--  스윗테크놀로지스, 조선일보에 언론 특화 워크 OS ‘스윗 2.0’ 공급
--  तेजी से वजन कम करने के लिए ‘बादाम’ के साथ खाएं ये चीजें, होगा फायदा
--  지니언스, ‘클라우드 NAC 매니지드 서비스 센터’ 발족
--  सुबह-सुबह एक चम्मच देसी घी खाने के अद्भुत फायदे
--  सेहत: सर्दियों में चाहिए एनर्जी और गर्मी तो दूध में मिलाकर पिएं ये चीजें
--  Overwatch 2 Season 8 details arrive: new hero Mauga, Battle of the Beasts mode, and more
--  교촌치킨, '찐-심 기프트' 진행…추첨 통해 보온·보냉백 증정
--  인디게임 대축제 '버닝비버 2023', 1만여 명 찾아
--  다크비, 신곡 '왓 더 헬' 신곡 퍼포먼스…완벽 칼군무
--  BBQ, 베트남 수도 하노이에 '부팜함점' 오픈
--  ‘동상이몽’ 한영, “시부모님께 대접하고픈 마음”…새집 마련 첫 집들이
--  동아쏘시오그룹 3개사 환경경영 국제표준 ISO14001 인증 획득
--  Soybean: सोयाबीन भी हो सकता है खतरनाक, इन बीमारियों से हैं पीड़ित तो न करें इसका सेवन
--  Uzbekistan recognizes, implements all major int’l documents on human rights, freedom
--  Israël treft doelwitten Hezbollah in Libanon
--  कटहल: क्या आप जानते हैं कटहल खाने के फायदे?
--  На Крымском мосту временно перекрыли движение автотранспорта
--  제주, 후쿠시마 원전 오염수 대응 삼중수소 분석장비 운영
--  Мафийн толгойлогч өөрийн эзэмшлийн арлыг Италид бэлэглэхээр шийджээ
--  Zelenski reiterará por videoconferencia al Senado de EE.UU. la importancia de continuar la ayuda
--  뮤지컬 '베르사유의 장미', 옥주현·김지우 화려한 가창력
--  Woman in custody after man stabbed at InTown Suites near downtown Raleigh, police say
--  Нүүрсний хэрэгт улс төрд нөлөө бүхий 13 хүнийг ЯЛЛАГДАГЧААР татжээ
--  한강 상류인 양구 파로호·소양호 일대 지도·단속선 뜬다
--  KBS,내년 3400억원 적자 우려…명퇴·계약직 50% 감축 등 자구책 발표
--  ‘학범슨’ 김학범, 제주 유나이티드 새 사령탑 선임
--  독도 지키는 동해해경 김정기 경위, 2023년 하반기 해경 ‘모범직원’ 선정
--  আওয়ামী লীগের সঙ্গে আসন ভাগাভাগি নিয়ে অপেক্ষায় শরিকেরা
--  Sudoku difícil: 05 de diciembre de 2023
--  Sudoku medio: 05 de diciembre de 2023
--  Sudoku fácil: 05 de diciembre de 2023
--  Sudoku mini: 05 de diciembre de 2023
--  Crucigrama difícil: 05 de diciembre de 2023
--  Crucigrama medio: 05 de diciembre de 2023
--  Crucigrama fácil: 05 de diciembre de 2023
--  Crucigrama mini: 05 de diciembre de 2023
--  Sopa de Letras clásica: 05 de diciembre de 2023
--  Бойцы ВДВ уничтожают под Артемовском пехоту ВСУ с помощью FPV-дронов
--  Gagal Menang Atas Persib, Pelatih PSM Bernardo Tavares Salahkan Wasit
--  ប្រធានក្រុមប្រឹក្សាសន្តិសុខជាតិ អ៊ីស្រាអែល ប្តេជ្ញាចិត្តកំទេច ក្រុមហាម៉ាស ទោះនៅទីណាក៏ដោយ
+-  제주 대중교통 전국 최우수 지방자치단체 선정
+-  Robbie Williams will return to BST Hyde Park to headline next summer
+-  احرص على ترديده.. أفضل دعاء مستجاب وقت الفجر لطلب الرزق والخير
+-  베트남으로 도피한 MZ조폭 검거 후 국내 송환
+-  통일부 "김정은, 최초로 '출생률' 공식 언급…북한도 저출산"
+-  국내 환전상·필리핀 불법 카지노 에이전트 연계 '260억원 환치기'
+-  현대차증권 MTS '내일' 스마트앱어워드 증권 부문 최우수상
+-  Tyler Glasnow among Rays stars eliciting offers
+-  Rockstar devs react to Grand Theft Auto 6 trailer leak: 'This f***ing sucks'
+-  El reto de la COP28
+-  Festival de Cine de La Habana: Luz Verde… ¡acción!
+-  Manolito Simonet: el sonido de la orquesta nunca va a cambiar
+-  El sueño mundialista del fútbol cubano
+-  Suecia y Estados Unidos firmarán un acuerdo de cooperación en defensa
+-  बोर्ड परीक्षा : ब्योरे में संशोधन का आज अंतिम मौका
+-  खोई प्रतिष्ठा पुन: हासिल कर रहा भारतीय इतिहास : बालमुकुंद
+-  Deoria News: युवाओं को नशे का आदी बना चोरी करा रहा शिवा...गुर्गे ने खोला राज
+-  Deoria News: 25 हजार को इनामी गांजा तस्कर दबोचा गया
+-  Deoria News: पीआरएस लिंक फेल, टिकट के लिए पांच घंटे जूझे यात्री, हंगामा
+-  Deoria News: सफर के लिए इंतजार बढ़ा रहा परेशानी...आने पर ट्रेनो में चढ़ना मुश्किल
+-  Deoria News: नशेड़ी युवक ने किया हमला, उलाहना देने पर घर वालों से उलझा
+-  देवरिया बाइपास : बजट नहीं है तैयार... किसान मुआवजे के लिए कर रहे रार
+-  Deoria News: दिसंबर में दिन में गर्मी... सुबह-शाम परेशान कर रही ठंड
+-  Deoria News: आर्थिक तंगी में भी जारी रखा संघर्ष, केंद्रीय विद्यालय में बनीं शिक्षिका
+-  Deoria News: ऑटो चालक के बेटे ने लहराया बिहार पीसीएस में परचम
+-  Deoria News: 21 किलोमीटर मार्ग पर गड्ढे अपार, राह चलना दुश्वार
+-  Deoria News: सड़क हादसे में मर्चेंट नेवी अफसर की मौत, साला घायल
+-  Quake-Triggered Phone Confiscations Spark Controversy Among South Korean Military Personnel
+-  Borsa: Hong Kong negativa, apre a -0,24%
+-  物流业景气指数扩张加快 发展动力稳健
+-  “经济亮点因何而来”系列报道 “小巨人”蕴含“大能量” 创新赋能高质量发展
+-  新政策新举措频出 我国高水平开放“加速跑”
+-  江垭镇中学九溪完小：科学预防，健康“童”行
+-  2023大熊制药婕尔中韩国际学术交流会圆满收官
+-  秋冬季节咳嗽不止 肺部超声让诊断更精准快捷
+-  政策红利持续释放 海南自贸港活力彰显
+-  瞰云南｜奔跑吧！昆明
+-  江苏：多维赋能 开创工业新前景
+-  48.46亿元，提前！解决受灾群众困难 确保温暖过冬
+-  焦点访谈：尊崇宪法精神 厚植法治文化
+-  各地各部门采取多种形式宣传普及宪法法律知识
+-  “枫桥经验”60周年系列报道② 60年来，“枫桥经验”何以历久弥新？
+-  冬季流感高发 流感疫苗您接种了吗？
+-  52.2%、53.3%！供应链上下游需求增长 企业经营活力释放
+-  用法律武器摁住“家暴拳头” 向一切家暴说“不”!
+-  国际纵横谈 | 面对世界之问、时代之问，媒体如何作答？
+-  新华时评｜新时代人文经济学是认识中国式现代化的一把钥匙
+-  共话中国经济新机遇 | 三大国际组织负责人：看好中国经济发展态势
+-  HD현대 건설기계, 전세계 주재원과 성장 전략 함께 짠다
+-  프로농구 정관장, EASL서 TNT 트로팡 기가 만난다
