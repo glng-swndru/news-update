@@ -1,51 +1,51 @@
 # Latest News
--  Gabriel, Pepe y Óscar
--  Proliferan renuncias a proyectos petroleros; reporte de la CNH
--  ১৫ তলা দুই সরকারি ভবন খালি, বানানো হচ্ছে আরও চারটি
--  عشرات الشهداء والجرحى في قصف ليلي عنيف طال مناطق مختلفة بقطاع غزة.
--  서울시교육청-당신의 포레스트, 심리검사 및 교구 업무협약 체결
--  의정부시, 12월 미래가치 공유의 날 개최
--  HR중소기업 비즈니스지원센터, 중소기업･소상공인 대상 정책자금 컨설팅 진행
--  Генерал Ясин Зия: «Афганское общество полно мотивации восстать против талибов»
--  Бобо Камоли Хуҷандӣ кӣ буд? Чаро то ҳол масҷиду мақбараи ӯро азиз медоранд?
--  Мъж е застрелял родителите на жена си и се е самоубил - Труд
--  티모시 샬라메, “♥카일리 제너는 놀라운 엄마” 경외감 느껴…뜨거운 로맨스[해외이슈]
--  아이유 측 "신보 내년 상반기 목표…방탄소년단 뷔 MV 출연" [공식입장]
--  '현역 입대' BTS 뷔, 아이유 지원사격…"신곡 MV 출연 맞다" [공식입장]
--  저우궈단 동양생명 대표, 사택·테니스장 논란 끝에 사임 결정
--  국민은행, CU 편의점 무인점포 ‘QR 인증’ 서비스 출시
--  Šalia mūsų galaktikos aptikti kosminiai dariniai – nykštukinės galaktikos: mokslininkai pateikė radikaliai naują išvadą
--  [ŽT] 2024 m. sausį. Lietuvos kariuomenei uždarys kelią į Rusiją, Kiniją ir Moldovą
--  Buvo pasmerktas nuo pat pradžių? WP atskleidė pasirengimo kontrpuolimui detales
--  [ŽT] Daug skambių frazių - Trumpas įsivėlė į skandalą su De Niro (Video)
--  Sukėlė JAV sumaištį. Pirmą kartą per 7 metus pasirodė slaptas Kinijos mega ginklas (Foto)
--  Tūkstantį kartų pasigailėjo. Dviračio vagystė okupantui baigėsi tragiškai blogai (Video)
--  TikTok Owner May Soon Launch Its Own Chatbot Platform, Memo Says
--  [CULTURE] Young K-pop couple Choi Min-hwan, Yulhee announce divorce
--  Over 60% of S. Korean university students say resolution of NK nuclear issue necessary for reunification: poll
--  BOK, Italian central bank sign MOU for IT, settlement system cooperation
--  'Sweet Home' breakout star Song Kang keeps journal to dive deep into his character
--  Hana Financial Group donates $11 mil. to the underprivileged
--  Eisstockschießen auf der Kamener Winterwelt: Die ersten Finalisten stehen fest
--  KISA·정보보호학회, 사이버보안 정책 포럼 개최
--  반도체 기후 컨소시엄 에너지 협의체 출범…아태지역 넷제로 가속
--  김태흠 충남도지사 ‘탄소중립 외교’
--  충북도, 대한민국 광역지자체 개혁 ‘롤모델’
--  논산계룡축협 ‘한돈 삼겹살’ 통 큰 세일
--  예산군, 2023년 만성 질환 예방·관리사업 유공 분야 충남도지사 표창 수상
--  홍성군, 홍주읍성 멸실 성곽 복원 정비 성과 ‘속속’
--  백성현 논산시장 ‘광폭 행보’ 통했다
--  제4회 홍성군 한우협회 한우 능력 평가대회
--  시속 167km '질주’ 구자균 LS일렉트릭 회장, 벌금 30만원
--  박수빈 의원, 세입 감소에도 시장 잇속 알차게 채운 2024 서울시 예산안 비판
--  봉양순 위원장, 2023 서울특별시 조경상·푸른도시상 축사
--  김현기 의장, 2023년 사랑의 열매 이웃사랑 성금 전달
--  김혜영 의원, 사립학교 및 각종학교... 기간제 교원 담임 비중 높아 개선 필요
--  전병주 의원, 서울 학생 위한 서울시청-교육청 협력관계 필요 강조
--  서울시, '남산 혼잡통행료 정책방향' 의견 청취... 20일 공청회 개최
--  서울시, 서울역 광장에 노숙인 위한 ‘아리수 무료 자판기’ 설치
--  Unlocking The Future: A Glimpse Into The Career Aspirations Of Indian Professionals
--  Gold price drops by Rs 2,400 per tola on Tuesday
--  В домах, где жила партийная элита БССР, продают «квартиру-музей»
--  MIMORIADNE Poplach na bratislavskom gymnáziu! Študentov otáčajú spred školy, podozrenie zo streľby
--  Zomrela mladšia sestra kubánskych lídrov Castrovcov: Bola ich veľkou kritičkou!
+-  College: ontoegankelijk ov zet rechten van gehandicapte onder druk
+-  Byju’s Founder Ravindran Pledges His Home To Pay Employee Salaries: Report
+-  Govt, PSUs, Defence Sector Observe 14% Upsurge In Hiring: Survey
+-  עכשיו כבר אפשר לספר: גל גדות בהריון
+-  Tajlandia: 14 osób zginęło w wypadku autobusu
+-  Nigerijska vojska greškom pobila učesnike vjerske proslave
+-  Over 13,600 SC, ST and OBC students dropped out of central varsities, IITs, IIMs in 5 years: Education Ministry
+-  টাঙ্গাইল সদর আসনের ৬ প্রার্থীর নামে ৬১টি মামলা
+-  KPU Sleman Atur Larangan Pemasangan Alat Peraga Kampanye di Cagar Budaya
+-  Klein maar fijn: dit is de (beperkte) Belgische selectie voor de Wereldbeker Val di Sole
+-  Mediasi Gagal, Proses Cerai Okie Agustina dan Gunawan Dwi Cahyo Berlanjut
+-  Danas predstavljanje rezultata PISA testiranja
+-  Il avait orchestré son propre crash d'avion, un YouTubeur américain condamné à une peine de prison
+-  El Gobierno vuelve a aprobar la ley que obliga a la paridad en empresas, política y justicia
+-  민주당 "원희룡, 임기 끝나자마자 달려간 곳이 극우목사 앞이라니"
+-  Doble sesión de infierno griego para el líder Real Madrid
+-  Controversial Transfers from FTX-Related Addresses Raise Concerns
+-  Osmaniye'de hafif ticari araçla çarpışan motosikletteki sürücü öldü
+-  Legendás ex-vadászpilóta az egyik magyar, akit egy kisrepülőn 3 milliárd forintot érő heroinnal kaptak el Írországban
+-  Jokic, el gran líder de la NBA: "Ni con todo el equipo encima le paras"
+-  Crypto Currency Exchange DigiFT Receives Regulatory Approval from MAS
+-  Тошкент-Самарқанд йўналишида «Афросиёб» поездининг қўшимча қатнови йўлга қўйилади.
+-  Фарғона вилояти ҳокими: «Нефтчи» келаси мавсум чемпионлик учун курашади».
+-  Ўзбекистонда ҳафта охирида ҳаво кескин совиши кутилмоқда.
+-  Sommer è il vero muro Inter, altro che Onana: Yann ha smentito i detrattori
+-  Deborah Compagnoni incorona Brignone: “Voglia e testa, è la più forte”
+-  Theo Hernandez e la nuova difesa Milan: una certezza in più per Pioli
+-  Dominio Napoli al Gran Galà del calcio: Osimhen il migliore, la top11
+-  Diretta Lazio-Genoa ore 21: dove vederla in tv, in streaming e probabili formazioni
+-  Golden Boy, il battesimo dell'era Bellingham. Gatti e Fabregas, parole d'esempio
+-  IRS Witnessed an Increase in Crypto Tax Evasion Cases
+-  반복되는 허리 통증, 재발 막는 치료법은?
+-  Kabar Terbaru Rencana Wamil Member BTS, Jimin dan Jungkook Berangkat Bareng
+-  比亚迪：数字钥匙NFC兼容最广，车主用了都说爽
+-  Tristo trkača na Zadar Christmas Run utrci
+-  Dogecoin Price Analysis
+-  UŽIVO Satelitski snimci pokazuju da je počela izraelska ofanziva...
+-  Svjedoci pred tužiocem zbog tunela
+-  Шпаковский: Беларусь находится в лагере реформаторов миропорядка - сторонников многополярности
+-  Kars'ta otomobilin vites bölümüne gizlenmiş uyuşturucu bulundu
+-  Gaz cagnois, jusqu’à 120 bus alimentés, recharge rapide... Ce qu'il faut savoir sur la nouvelle station biogaz de la régie Ligne d’Azur
+-  Tragična sudbina radnika sa najpoznatije jugoslovenske novčanice! Živeo u teškoj bedi i umro kao invalid rada
+-  Guerre en Ukraine en direct: les Etats-Unis "à court d'argent" pour aider Kiev, attaque de drones sur la Crimée
+-  Profesion teknikal diberi keutamaan dalam kajian SSPA – PM
+-  Bitcoin’s Resurgence and Navigating the Tax Landscape
+-  La Policía detiene por organización criminal a cuatro activistas climáticos de Futuro Vegetal mientras se celebra la COP 2023
+-  Morgan Stanley fija un precio objetivo de 32,81 dólares para RxSight con un rating de Sobreponderar
+-  Ganjar Konsolidasi Kekuatan Pendukungnya di Balikpapan, Kaltim
+-  В МО Финляндии заявили о планах начать производство боеприпасов для Украины
+-  Panglima TNI-Kapolri Siap Kawal Pemilu Berjalan Lancar dan Damai
