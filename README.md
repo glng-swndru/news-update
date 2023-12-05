@@ -1,11 +1,51 @@
 # Latest News
--  جرائم العدوان في مثل هذا اليوم 5 ديسمبر
--  Fed升息後遺症！歐美商辦授信爆雷，一銀、彰銀、兆豐、台銀遭波及
--  「我來自台灣！」她在COP28關鍵發言1分鐘，呼籲氣候正義
--  A Detailed Report On Flow Cytometry System Market. Size, Share, Trends, Key Insights. Major Players - Danaher Corp, Apogee Flow Systems, Becton, Dickinson and Company, BioMérieux S.A., Cytek Biosciences, etc.
--  台積電效應！台新銀行6年後再增設日本分行，為什麼？
--  SK saznaje: Izraelca bi na klupi Zvezde mogao zamijeniti bivši Kloppov pomoćnik
--  3D Camera Market Set to Redefine Imaging, Anticipated to Exceed $54.44 billion by 2030
--  Prošlog puta nabrajao imena liječnika koji su otišili iz zadarske bolnice, a ovog puta imena sestara i tehničara: Što ste napravili da ostanu?
--  “Ky është qëllimi im personal” – Ylli i harruar nga Real Madridi i dërgon një mesazh të fuqishëm klubit spanjoll
--  استهداف دبابة إسرائيلية بصاروخ مضاد للدروع شمالي قطاع غزة
+-  Reconfigurable molybdenum ditelluride devices with multiple functions
+-  ราคา Ethereum (ETH) ทะลุแนวต้านที่สำคัญ: 3,000 ดอลลาร์ข้างหน้า? โดย ยูทูเดย์
+-  Bijušo ieslodzīto resocializācijai un nodarbinātībai plāno tērēt 3,3 miljonus eiro
+-  پرویزالہٰی کو گھر میں بحفاظت نہ پہنچانے کیخلاف توہین عدالت کی درخواست کا تحریری فیصلہ جاری
+-  Disqualified driver ran over and killed boy, 5, who was ‘out buying sweets’
+-  Müge Anlı canlı yayında yaşadığı en zor günleri anlattı! Söyledikleri karşısında stüdyo buz kesti!
+-  Altın rekora doymayacak! Dünyanın en ünlü ekonomi gazetesi tarih vererek müjdeledi
+-  Schlimmer Crash auf A555 - Kölner Fußballtalente in tödlichen Unfall verwickelt, jetzt reagiert der Verein
+-  Kwon Yuri Hari Ini Berulang Tahun, Begini Sepak Terjang Girls Generation
+-  Sheffield United confirm Chris Wilder return after sacking manager Paul Heckingbottom
+-  Azalina: Legislation in 2024 to be people centric, with focus on bankruptcy issues, legal aid and scammers
+-  সবার জন্য আসছে স্বাস্থ্য কার্ড, এতে কী লাভ?
+-  GWU welcomes radical employment law that 'will curb exploitation'
+-  स्थानीय उत्पादन विक्री नहुने समस्या अन्त्य गर्नुपर्छ : सभामुख घिमिरे
+-  एलपीएलमा घोडाघोडी र शुक्लाफाँटा विजयी
+-  प्रदेशसभामा राजस्व सङ्कलनसम्बन्धी विधेयक प्रस्तुत
+-  गणतन्त्रमै नागरिकको अवस्था परिवर्तन हुन्छ : सभापति देउवा
+-  Vrasjet e Liridona Ademjat dhe 14-vjeçares në Shkup, Albin Kurti: Nuk mjafton vetëm arrestimi, por duhen dënime!
+-  ‘স্বাস্থ্য সেক্টরের যন্ত্রপাতিও জলবায়ু বান্ধব হওয়া উচিত’
+-  João Gomes elege dupla de astros do Flamengo que levaria ao Wolverhampton: 'Aqueles caras são gênios'
+-  O 'pesadelo' do Arsenal que tem a ver com estádio 'mais raiz' da Premier League e o que você precisa assistir pela ESPN no Star+
+-  Zagueiro do Arsenal explica fanatismo pelo Corinthians, revela ídolos e abre plano: 'Um dia vou poder vestir a camisa'
+-  التعليم العالي: منصة إلكترونية لتقديم طلبات احتساب المعدل
+-  رجل يطالب تايسون بتعويض مالي كبير بعد (لكمة الطائرة)
+-  كيف يمكن علاج التهاب الجيوب الأنفية؟
+-  دولة أوروبية تبلغ عن تفشي إنفلونزا الطيور شديدة العدوى
+-  نائب إسرائيلي يطلب فتح تحقيق جنائي ضد بن غفير
+-  ضبط 144 متسولا العام الحالي بالعقبة
+-  استفيقوا !! العربي الجيد لهم هو العربي الميت
+-  La canciller mexicana negocia en China la compra de enseres para los damnificados del huracán Otis
+-  Muhadjir Effendy Temui Heru Budi di Balai Kota, Evaluasi Penanganan Kemiskinan Ekstrem dan Kampung Kumuh
+-  Year-End Offer: Mahindra Offers massive Discount on XUV300 and XUV400
+-  Sederet Kontroversi Ade Armando, Pernah Sebut Allah Bukan Orang Arab
+-  Les pronos hippiques du mercredi 6 décembre 2023
+-  South African economy contracts marginally in third quarter
+-  Multi Stakeholderism In India Will Be Cornerstone Of How Future Of Internet Will Be Shaped: Rajeev Chandrasekhar
+-  Metal, Bank Take Rein Of Record Rally; Adani Stocks Reclaim New Highs
+-  India To Provide Kenya $250 Mn Line Of Credit For Modernising Agriculture
+-  Teck Hin Fishball Noodle at Bukit Timah to close after 45 years due to rising costs
+-  Detienen a siete personas por estafar 132.000 euros a una empresa almeriense
+-  For calling him 'fat' & 'transgender' in Hokkien, Bishan condo gardener, 71, strikes co-worker, 64, with garden hoe
+-  North Korea closes 2 more embassies in Africa: Seoul
+-  Türkiye'den İsrail'e bir uyarı daha: Müsaade etmeyiz
+-  Fransa'dan Hamas kararı: Gazze sorumlusu Sinvar'ın mal varlıkları donduruldu
+-  Lavrov: İstikrar ve sürdürülebilir gelişme için Hazar ülkeleri arasındaki etkileşim önemli
+-  Sivasspor galibiyeti unuttu!
+-  Meteoroloji Doğu ve Güneydoğu Anadolu için uyardı: Kuvvetli sağanak geliyor
+-  İsrail'in sözde güvenli bölgeleri hastalık bölgelerine dönüşme riski taşıyor
+-  Antalya'da bir kadın eve geç gelen kocasını bıçakladı: Hastaneye kaldırılan adamın hayati tehlikesini sürüyor
+-  Fenerbahçe Beko, Baskonia deplasmanında galibiyet peşinde
