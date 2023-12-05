@@ -1,51 +1,51 @@
 # Latest News
--  SPH: Ký hợp đồng kiểm toán Báo cáo tài chính năm 2023
--  AMS: Báo cáo tiến độ sử dụng vốn
--  AMS: Báo cáo tiến độ sử dụng vốn thu được từ đợt chào bán cổ phiếu riêng lẻ
--  HNA: Quyết định về việc chấp thuận niêm yết cổ phiếu
--  บขส. กำชับผู้ประกอบการ ช่วยคนเจ็บ-เสียชีวิตรถทัวร์คว่ำประจวบฯ
--  बेपत्ता स्वास्थ्यकर्मी मृतावस्थामा फेला
--  अङ्ग्रेजी, विज्ञान र गणित शिक्षक पाउनै मुस्किल
--  लैङ्गिक हिंसा न्यूनीकरण गर्न आर्थिक रूपमा सबल बन्नु पर्छ
--  MP-0317 by Molecular Partners for Cutaneous Squamous Cell Carcinoma (cSCC): Likelihood of Approval
--  버스에서 5G로 와이파이 연결…SKT, 버스공공와이파이 5G 전환사업 완료
--  FPI-2059 by Fusion Pharmaceuticals for Metastatic Prostate Cancer: Likelihood of Approval
--  Pegozafermin by 89Bio for Metabolic Dysfunction-Associated Steatotic Liver Disease (MASLD): Likelihood of Approval
--  हबिब बैंकले हिमालयन बैंकको शेयर हिमालयन रिलाई विक्री गर्दै
--  उल्टो घर हेर्न भीड दैनिक ७० हजार आम्दानी
--  भारतमा विधानसभा निर्वाचन : तीन राज्यमा भाजपा, कंग्रेस र जेपीएम एक–एक राज्यमा विजयी
--  কুমিল্লা-৮ আসনে স্বামী বৈধ, স্ত্রী অবৈধ
--  Pegozafermin by 89Bio for Metabolic Dysfunction-Associated Steatohepatitis (MASH): Likelihood of Approval
--  Dordaviprone by Chimerix for Pheochromocytoma: Likelihood of Approval
--  Reboxetine by Axsome Therapeutics for Type 1 Narcolepsy (Narcolepsy with Cataplexy): Likelihood of Approval
--  রুট-স্টোকসের পথেই হাঁটলেন আর্চার
--  NASA Aya eniş edəcəyi tarixi AÇIQLADI
--  Bimagrumab by Versanis Bio for Obesity: Likelihood of Approval
--  RTP-026 by ResoTher Pharma for Stroke: Likelihood of Approval
--  Hadházy Ákos újabb akcióra készül az MTVA-nál
--  RTP-026 by ResoTher Pharma for Myocardial Infarction: Likelihood of Approval
--  5 % انخفاض قروض شراء السيارات في المملكة
--  Pidnarulex by Senhwa Biosciences for Breast Cancer: Likelihood of Approval
--  DFB-Appell an Fans und Polizei: Mehr Toleranz und Dialog
--  WSJ узнала о планах Израиля затопить туннели ХАМАС в секторе Газа
--  Millie Bobby Brown reveals her 'really great' introduction to Thanksgiving with fiancé Jake Bongiovi's family - including her take on his mom's turkey
--  VATT: Increase and concentration of capital gains has increased inequality in Finland
--  Армянам надо бояться самих себя, а не соседей
--  هل تؤثر القهوة على القولون العصبي؟.. دراسة تكشف
--  Парадоксът на България: И ГЕРБ, и ДПС срещу задкулисието?
--  [날씨] 종일 예년보다 온화…먼지 유입, 중부 초미세먼지 ↑
--  Jimin dan Jungkook BTS Bakal Wamil Bareng, Pernah Diet Bersama Tapi Gagal Bersama Juga
--  Yankees’ stat guru Michael Fishman defends analytics, but indicates changes planned
--  致敬Tesla Cybertruck｜越南木匠打造木製版電動農夫車 製作過程引大批網民瀏覽 馬斯克社交平台讚好
--  De drack giftvatten – HD avgör tvist om skadestånd
--  Điêu khắc gia Daniel Chester French: Điêu khắc quá trình tái thiết Mỹ quốc
--  Ngân hàng Thuỵ Sỹ bị phạt nặng vì giúp khách hàng Mỹ trốn thuế
--  Capturarea statului. Viktor Orbán a pus stăpânire Ungaria folosind rețeta lui Vladimir Putin
--  Водители Петрозаводска возмущены решением властей запретить стоянку у ж/д вокзала
--  “마무리캠프를 통해…” KIA 내야 비밀병기? 변우혁만 있는 것 아냐, 19세 거포 유망주 ‘폭풍성장’
--  В Ярославле продолжаются работы в Павловской роще
--  Education : comment les gouvernements français ont fait de l’enquête internationale PISA un instrument politique
--  В Гусь-Хрустальном появились кабинеты диетолога и реабилитолога для детей
--  五月天疑似咪嘴｜主音阿信打破沉默反擊獲好友力撐 再被轟專屬螢光棒賣得貴？
--  Unicaja Banco se alía con Kyndryl para acelerar su transformación tecnológica
--  Ex Cruz Azul: Jerry Flores confesó que estuvo cerca de ser refuerzo del América
+-  Gözünü kan bürümüş İsrail ordusu Gazze'de ev ve binaları hedef alıyor: Çok sayıda Filistinli hayatını kaybetti
+-  İsviçre merkezli Pictet'e 123 milyon dolarlık 'vergi kaçırma' cezası
+-  Trump için dikkat çeken iddia: Başkan olursa iktidarı bırakmaz
+-  عاجل.. أمطار رعدية ورياح متربة على مكة والمدينة وهذه المناطق
+-  PRT-3645 by Prelude Therapeutics for Human Epidermal Growth Factor Receptor 2 Positive Breast Cancer (HER2+ Breast Cancer): Likelihood of Approval
+-  ACP-017 by Ascendis Pharma for Vulvar Cancer: Likelihood of Approval
+-  CS-0159 by Cascade Pharmaceuticals for Inflammatory Bowel Disease: Likelihood of Approval
+-  ACP-017 by Ascendis Pharma for Vaginal Cancer: Likelihood of Approval
+-  Rains throw daily life out of whack in Vellore and Ranipet
+-  BR-790 by Jiangxi Qingfeng Pharmaceutical for Solid Tumor: Likelihood of Approval
+-  Benzin ve motorin 2023 güncel fiyatları (5 Aralık 2023 akaryakıt fiyatları)
+-  ACP-017 by Ascendis Pharma for Penile Cancer: Likelihood of Approval
+-  (DEWAN NEGARA) LHDN berjaya kutip RM115.63 juta melalui Program Pengakuan Sukarela
+-  Lokman Adam hantar representasi kaji prosiding hina mahkamah
+-  TIDAL-01 by Turnstone Biologics for Triple-Negative Breast Cancer (TNBC): Likelihood of Approval
+-  ACP-017 by Ascendis Pharma for Non-Small Cell Lung Cancer: Likelihood of Approval
+-  Президент Болгарии наложил вето на поставку бронетехники в Украину
+-  Президент Болгарии наложил вето на поставку бронетехники в Украину
+-  SGPC: शिरोमणि कमेटी की ओर से बलवंत सिंह राजोआना को एक और पत्र, अध्यक्ष धामी ने की मांग
+-  Punjab news: 3000 रुपये रिश्वत लेते माल पटवारी को विजिलेंस ने रंगे हाथों पकड़ा
+-  ACP-017 by Ascendis Pharma for Anal Cancer: Likelihood of Approval
+-  На 5 декември рожден ден имат
+-  Srivaikuntam MLA urges administration to fill up irrigation tanks in Thamirabarani basin
+-  MDMK to stage protest against graphite mining in Kurinjakulam
+-  Decoy-20 by Indaptus Therapeutics for Colorectal Cancer: Likelihood of Approval
+-  ACP-017 by Ascendis Pharma for Hepatocellular Carcinoma: Likelihood of Approval
+-  XTX-301 by Xilio Therapeutics for Ovarian Cancer: Likelihood of Approval
+-  Dolar kuru bugün ne kadar? (5 Aralık 2023 dolar - euro fiyatları)
+-  ACP-017 by Ascendis Pharma for Gastric Cancer: Likelihood of Approval
+-  KVA-12123 by Kineta for Ovarian Cancer: Likelihood of Approval
+-  ACP-017 by Ascendis Pharma for Cervical Cancer: Likelihood of Approval
+-  Ganjar Safari di Kalimantan Timur: Temu Relawan hingga Sowan ke Ponpes Syaichona Cholil Balikpapan
+-  Road Accident Free Treatment:केंद्र सरकार का ऐलान! अब देशभर में सड़क दुर्घटना पीड़ितों को मिलेगा मुफ्त इलाज, जानें पूरी जानकारी
+-  TransCon IL-2 beta/gamma by Ascendis Pharma for Melanoma: Likelihood of Approval
+-  INTUC proposes reopening of Sterlite Copper
+-  YH-25724 by Boehringer Ingelheim International for Metabolic Dysfunction-Associated Steatotic Liver Disease (MASLD): Likelihood of Approval
+-  XW-004 by Sciwind Biosciences for Obesity: Likelihood of Approval
+-  ALX-001 by Allyx Therapeutics for Alzheimer’s Disease: Likelihood of Approval
+-  PRT-1419 by Prelude Therapeutics for Marginal Zone B-cell Lymphoma: Likelihood of Approval
+-  Cabometyx by Exelixis for Head And Neck Squamous Cell Carcinoma (HNSC): Likelihood of Approval
+-  ১০ ডিসেম্বরের সমাবেশ হচ্ছে না: ওবায়দুল কাদের
+-  Man arrested after shootout for raping minor in UP’s Ambedkar Nagar
+-  PRGN-2009 by Precigen for Human Papillomavirus (HPV) Associated Cancer: Likelihood of Approval
+-  Change location of sewage treatment plant from Coimbatore's Ukkadam, over 100 residents stage stir
+-  Watch this wild video of a house in Virginia blowing up as cops approached it
+-  Life Certificate:अगर आपने नवंबर में अपना जीवन प्रमाण पत्र जमा नहीं किया तो पेंशन राशि भूल जाइए
+-  Stellen für Gefängnismediziner bleiben oft unbesetzt
+-  Entlaufener Hund sorgt vorübergehend für Sperrung auf A3
+-  Un rapport conforte l’aide médicale d’Etat, tout en préconisant son resserrement
+-  « Bâtiment 5 » : portrait d’une banlieue en voie de démolition
