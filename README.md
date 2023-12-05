@@ -1,11 +1,11 @@
 # Latest News
--  Israel backar från dödssiffra: ”Inte bekräftat”
--  The Sports Betting Landscape In Nigeria
--  Soccerladuma | Komphela Happy For Swallows Stars After Bucs Loss
--  Bakan Özhaseki: Bu yıl başına kadar 46 bin deprem konutunu teslim edeceğiz
--  Lockport’s Nik & Ivy hosting information event for Will County veterans, survivors
--  ¡ÁRBITROS CONFIRMADOS! La Liga MX anunció quiénes dirigirán las semifinales del Apertura 2023
--  Hulk não joga a toalha e ainda crê em título ao Atlético-MG: ‘Para Deus nada é impossível’
--  'Alkolden alınan vergiler artırılsın' çağrısı
--  Revanth Reddy Named Telangana’s New Chief Minister; Swearing-In Ceremony on December 7
--  오타니, 다저스 말고 토론토 가나… 美 매체 "만났다는 신호 있어"
+-  Balkovec attı, Alanyaspor turladı
+-  Erdem Can: Erkan Yılmaz en az 3 ay aramızda olamayacak
+-  Türkiye'nin oynadığı role dikkati çekti: İşbirliğimizi sürdürmekte kararlıyız
+-  Belçika'da demir yolu çalışanları grevde
+-  Ergin Ataman: Efes'in iyi stratejisiyle başa çıkamadık
+-  Ekonomiye ilişkin düzenlemeler TBMM'de görüşüldü
+-  Asker eğlencesi katliama döndü: 9 yaralı
+-  ABD'den ticaret gemilerine düzenlenen saldırılara karşı hamle
+-  Uluslararası Göç Örgütü: 2090'a kadar 2,8 milyar kişi sıcak hava dalgalarına maruz kalabilir
+-  Sport | Gallant Proteas show guts and skill to almost floor England with remarkable comeback
