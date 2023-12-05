@@ -1,51 +1,11 @@
 # Latest News
--  Corinthians negocia retorno de Robert Renan por empréstimo; Zenit nega acordo
--  Gabigol é baixa de São Paulo x Flamengo por conta de lesão e só voltará a atuar em 2024
--  Paul McCartney no Maracanã: Disney+ e Star+ transmitem show ao vivo para todo o Brasil
--  Indisciplina de Marcos Leonardo e Jean Lucas esquenta bastidores do Santos antes de 'final' contra rebaixamento
--  نتنياهو: سمعت شهادات الأسرى المفرج عنهم بشأن انتهاكات حصلت لهم في غزة
--  جالانت: ليس لدينا شرعية لوقف الحرب ومستمرين حتى القضاء على حماس
--  بيني جانتس: كان لدينا اجتماع مؤلم اليوم مع عائلات الأسرى في غزة
--  مصر تدين قرار الاحتلال بناء مستوطنة جديدة في القدس الشرقية
--  نتنياهو لمواطينه: من الخطأ الظن أن زيادة الضرائب سببه تغطية نفقات الحرب في غزة
--  Hamas ‘cowards’ stash AK-47s in babies’ cots and ‘send children to the frontline’ in Gaza as they cower under nurseries
--  Bloquea vecino calle con troncos y botes
--  Aprueba Congreso representación estatal en EU, España y China
--  Video: Abandonan 17 diputados sesión de Congreso
--  İsrail'in işgaline karşı direnişin sembolü olmuştu: Dabke UNESCO somut olmayan kültürel miras listesine girdi
--  Netanyahu'ya öfke büyüyor: İsrailli esirlerin yakınlarıyla tartışınca basına görüntü veremedi
--  البيان الختامي في زيارة ولي العهد لدولة قطر يطالب بوضع حد لانتهاكات الكيان المحتل
--  تقرير: حراس نتنياهو فتشوا قائد الجيش بحثا عن مسجل صوت
--  الاحتلال يوقف مستشفى كمال عدوان عن الخدمة
--  صحة غزة : 400 الف فلسطيني بالشمال بلا خدمات طبية
--  بايدن : حماس سبب خرق الهدنة
--  نتنياهو : نقاتل وجها لوجه وندفع ثمنا كبيرا
--  House Of Vans CDMX celebra su segundo aniversario y acá puedes checar la agenda completa
--  Pochettino come out in the meeting today with Chelsea board of directors to name five players he need to sign in January transfer window
--  ‘Frasier’: Roz makes return in this week’s season finale
--  عقوبات أمريكية على مستوطنين متهمين بأعمال عنف في الضفة
--  Jakšto vedami telšiškiai šventė pergalę Joniškyje
--  Radonjic, altro post enigmatico: “Se essere veri fosse un crimine…”
--  قبائل الزنتان تعلن موقفها من عقد جلسة مجلس النواب بالمدينة
--  Impulsa Yesenia Reyes Reforma a la Ley para el Derecho Humano a la Salud
--  ‘광주를 아시아로 이끈’ 이정효 “의구심 지웠다, 다음시즌 연구할때”[현장인터뷰]
--  Maricá: Última edição do ‘Espraiado de Portas Abertas’ de 2023 acontece no dia 10/12
--  MOU 체결 티빙 웨이브 합병 ‘첩첩산중’ 분석 나오는 이유
--  Activistas interrumpen a Albares en el Congreso mostrando la bandera palestina
--  "Бессмертный полк" представил картину о битве за Москву
--  Cruzeiro x Palmeiras: onde assistir, escalações e arbitragem
--  Немецкий депутат заявил, что в ФРГ укрываются десять дивизий ВСУ
--  Atlético-MG pode atingir feito raro no Brasileirão
--  El Tribunal Constitucional de Perú ordena poner en libertad a Alberto Fujimori
--  England star Tyrone Mings gives major injury update as emotional Aston Villa fans say ‘he means everything to me’
--  Липецкий медколледж организовал спецэкскурсию для родителей
--  وايلدر: مواجهة ليفربول ستكون مباراة كؤوس
--  საქართველოში მიწისძვრა მოხდა
--  España logra la remontada con un festival de goles en una gran segunda mitad
--  Over $5,000 raised during Lethbridge Police’s Charity Checkstop
--  Affaire Ahmed Souli : Un policier écope de 6 mois de prison ferme !
--  Denny Laine of The Moody Blues and Wings has died, aged 79
--  Iskrzy na linii UE-Chiny. Von der Leyen ostrzega Pekin
--  Két év múlva jöhet csak megoldás a gázszámlák körüli problémákra
--  Iskrzy na linii UE-Chiny. Von der Leyen ostrzega Pekin
--  Emmerdale fans horrified as Rhona Goskirk breaks into baby Ivy’s hospital room
+-  La France condamne « les attaques menées par des groupes de colons en Cisjordanie »
+-  شتائم وغضب وانقسامات في اجتماع نتنياهو مع عائلات الأسرى
+-  DFB-Frauen wahren nach Remis in Wales Olympia-Chance
+-  Magallanes pide a la LVBP actuar ante amenazas del padre de Ronald Acuña Jr.
+-  אוניברסיטה חדשה תוקם בישראל: זו העיר שנבחרה
+-  העוקץ מתגלה: כך עשויים לגנוב מכם אלפי שקלים דרך וואטסאפ
+-  בהשראת הדוגמנית קורל סימנוביץ': TERMINAL X בקולקציה חדשה
+-  החטוף שחזר מהשבי הגזים? "אני והמחבלים ישבנו על פייסלים"
+-  ללא היסוס: הזמרים הוותיקים שנרתמו למען מפוני העוטף
+-  מרגש עד דמעות: הילדה שנחטפה לעזה חוזרת לגן הילדים | צפו
