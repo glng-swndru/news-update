@@ -1,11 +1,11 @@
 # Latest News
--  41 ألف مواطن ينضمون للعمل بالقطاع الخاص في شهر نوفمبر الماضي.. تفاصيل
--  خطأ قاتل يصيب الطماطم داخل البيوت المحمية
--  [ŽT] „Veržiasi 63-ioji brigada.“ Audra naktį. Ukraina pradėjo tankų puolimą (Video)
--  Izraelio armija smogė išmaniuoju ginklu SPICE. Kas žinoma (Video)
--  [ŽT] „Kremlius ruošiasi peržengti raudoną liniją.“ Rusijos armija šokiruota. Ką įsakė Maskva (Video)
--  Ledo milžinas pabudo pirmą kartą per 30 metų. Nufilmuotas didžiausio ledkalnio Žemėje judėjimas (Video)
--  [ŽT] „Lenkai turi naują įstatymą!..“ Iš rusės atimtas pasas. Ji neišleidžiama iš Lenkijos oro uosto
--  „Ignitis renewables“ tiriant Baltijos jūros dugną rastas laivas
--  Česnako nauda ir žala: kaip teisingai jį naudoti, kad nepakenktumėte savo organizmui
--  [ŽT] „2400-2600 °C per 1s. Neįmanoma pasislėpti.“ Prasideda košmaras. Ant dronų montuojamas pragaro ginklas
+-  TZOB Başkanı: 'Tarım arazilerinin yabancılara satışı yasaklanmalı'
+-  PISA 2022 sonuçları açıklandı! İşte Türkiye'nin puanları...
+-  Sanctions experts meet Cyprus police chiefs
+-  Кто снялся в сериале «Слово пацана. Кровь на асфальте»
+-  Vehicles fitted with Construction equipment liable to MV Tax at rates prescribed for Construction Equipment Vehicles: Kerala HC [Read Order]
+-  «Северсталь» — «Ак Барс»: смотреть трансляцию матча КХЛ в прямом эфире
+-  COVID sumirit, face mask nirekomenda ng DOH
+-  Сколько получает Лунин? Названы игроки с наибольшими зарплатами в Ла Лиге
+-  В СБР отреагировали на слова Бабикова о нехватке патронов
+-  Шест лица повредени во судир на автобус и камион: тешка сообраќајна несреќа во Ниш
