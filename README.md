@@ -1,51 +1,11 @@
 # Latest News
--  नारायणपुर-अगैया सडक स्तरोन्नति हुने
--  पाटन अस्पतालले स्तन क्यान्सरका बिरामीलाई निःशुल्क औषधि उपलब्ध गराउने
--  बिदेसिएका युवा अब स्वदेश फर्किनुपर्छ : अध्यक्ष तिमिल्सिना
--  राखेप सदस्यसचिव र चीनियाँ राजदूवासका प्रतिनिधिबीच छलफल
--  बुद्धभूमिमा सामुदायिक महिला स्वयंसेविका दिवस
--  अर्जुनचौपारीमा राष्ट्रपति कप सुरु
--  दीपक मनाङ्गेको प्रस्तुति ‘कङ्गारु’ मा माग्ने बुढा
--  बेलायतमा अध्यागमनमा कडाइ : अन्तर्राष्ट्रिय विद्यार्थीलाई परिवार ल्याउन सकस
--  महोत्तरीमा माओवादी प्रदेशस्तरीय अगुवा कार्यकर्ता प्रशिक्षण
--  रातो मच्छिन्द्रनाथको संग्रहालय ललितपुरमा
--  Theft at Paphos green point
--  Reducing antibiotic resistance: is the EU progressing towards 2030 targets?
--  Marmara'da artçı depremler sürüyor
--  İstanbul Havalimanında lüks markalara ait 3,5 milyon liralık kaçak eşya yakalandı
--  Yunan İstihbaratı, akıllı telefonlardaki görüşmeler konusunda hükümet üyelerini uyardı
--  Korkunç olay! Arkadaşını öldürüp yıllarca emekli maaşını çekti
--  Rıdvan Dilmen 'biraz çatlaklar görüyorum' diyerek Fenerbahçe'deki problemi açıkladı: İsmail Kartal'a önerim...
--  Shraddha Musale of ‘CID’ fame calls Dinesh Phadnis ‘dil ka saaf insaan’
--  강원 선거구 8석 유지…속초·철원·화천·양구·인제·고성 6개 시군 통합 공룡선거구 제시
--  Transfer-Chance? HSV-Kandidat soll Verein im Winter verlassen
--  Jackson Chourio, joven y millonario
--  Qué gusto verte, amigo: Jardine-Leal, un reencuentro brasileño
--  Top 7: Un año con escasez de agua en la Ciudad de México
--  Regresa la gobernabilidad a Nuevo León; termina incertidumbre
--  共産 政治献金の全面禁止など政治資金規正法改正案 国会提出
--  Moody’s cuts outlook on China’s bonds to negative as debt level shoots up
--  Явлинский предложил примирить Россию и Украину по примеру Эльзаса
--  "Lavice" ponovo oduševile naciju
--  Regular operation of int&#039;l flights at Gautam Buddha Int&#039;l Airport demanded
--  카카오엔터프라이즈, 대학‧병원과 손잡고 차세대 디지털 병원‧대학 구축
--  제6차 사이버 국가전략 포럼 개최… 주제는 ‘중‧러‧북 사이버 공작 실태와 대응방안’
--  KISA-국방기술품질원, 손잡고 방산 분야 사이버보안 강화 추진
--  카페24, ‘유튜브 쇼핑’ 키운다…구글로부터 260억원 투자 유치
--  Lá gan ‘ghét’ nhất hành vi này: Làm nhiều khiến gan bị sẹo nặng, chai cứng nghiêm trọng
--  Novo aeroporto de Lisboa. Dos milhões de euros em estudos aos critérios da seleção, a CTI em números
--  Políticas públicas requieren una inyección de innovación
--  TZOB Genel Başkanı Şemsi Bayraktar: Tarım arazilerinin yabancılara satışı yasaklanmalı
--  हार्दिक की वापसी पर अपडेट नहीं, आकाश चोपड़ा ने कहा- अब रिप्लेसमेंट ढूंढ ले...
--  Tours teatralizado reflejará historia de Alcaldía Quemada
--  Maruti Suzuki Upcoming Cars: मारुति लाने वाली है ये धांसू कारें, जानिए क्या होगा खास
--  Se necesitan 35,000 unidades de sangre para mantener el suministro en los bancos a nivel nacional
--  GTA 6 trailer has 50 million views but more dislikes than GTA 5
--  BVB News: Zoff in Dortmund - Vertrauter von Sebastian Kehl vor Rauswurf
--  Las entradas más caras para ver a Luis Miguel en Murcia superan los 600 euros
--  Klart: Mittfältaren lämnar HIF
--  Una murciana denuncia esta práctica en las universidades de EEUU que jamás pasaría en España: "Como pagas..."
--  Opinion | L'école, une machine à inégalité des chances
--  Трима се простиха с колите си – шофирали надрусани
--  Alandi : विश्वस्त पदासाठी वारकऱ्यांना वेठीस धरणं योग्य नाही, वारकऱ्यांची प्रतिक्रिया ABP Majha
--  الثلاثاء 5 ديسمبر 2023.. نشرة أسعار الحديد والأسمنت بالمصانع المحلية
+-  รมช.คมนาคม แสดงความเสียใจรถทัวร์ชนต้นไม้ที่ประจวบฯ สั่งดูแลช่วยเหลือเต็มที่
+-  من بلدة عدلون.. شهيد جديد لحزب الله
+-  DiscoverIE augmente son dividende intÃ©rimaire en raison de la croissance de ses bÃ©nÃ©fices
+-  THG achÃ¨te la marque de soins Biossance pour 20 millions USD
+-  Crocodile park: Do you know about this breeding centre of crocodilians in Tamil Nadu
+-  Mevduat faizlerini duyan bankaya koştu! O bankalardan faiz güncellemesi: Aylık neredeyse bir kira getirisi var
+-  'Hermanos' lidera con claridad frente a la final de 'El Conquistador' y el especial de Julio Iglesias
+-  "ณัฐภาณุ นพคุณ" รองโฆษกบัวแก้ว เสียชีวิตแล้ว
+-  Наши бонды: почему FRHC финансирует развертывание 5G-сети за счет облигаций?
+-  Piles à combustible: Symbio inaugure aujourd'hui sa "Gigafactorie"
