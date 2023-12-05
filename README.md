@@ -1,51 +1,11 @@
 # Latest News
--  17 Surprise Celebrity Cameos in the 'Harry Potter' Movie Franchise (Including an Oscar Winner & Three 'DWTS' Pros!)
--  Ёшлар дафтарига кимлар киритилади? (+видео)
--  Маҳкумлар ҳолидан хабар олинди
--  Tweede Kamer vergadert voor het laatst in oude samenstelling
--  James Anthony Gwynne: Cop’s ‘depraved’ messages to underage girls
--  उद्योगी व्यवसायीका माग सम्बोधन गर्दै आएका छौं : स्थानीय तह प्रमुख
--  एमसीसी परियोजना पुन: ठेक्का आह्वानमा विलम्ब
--  부가부, ‘부가부 드래곤플라이 SNS 이벤트’ 진행
--  바른치킨, “치킨로봇 국내 최다 치킨로봇 매장 타이틀 지킬 것”
--  김민기 국회의원, 경기도공동모금회 ‘ 10년 이상 지속 기부자 감사장’ 수상
--  경기도사회적경제원, 마을기업 기초마케팅 지원사업 성료
--  이창호, ‘마오쩌둥 평전’ 출간...탄생 130주년 ‘마오쩌둥’ 최신 평전
--  한양사이버대, KMI한국의학연구소와 산업체위탁교육협약 체결
--  조종안중기인모임, 가평 상면행정센터에 성금 100만 원 기탁
--  오산역 광장 일대서 미세먼지 저감 계절관리제 홍보 캠페인
--  윤황규 보송목욕탕 대표, 가평군 조종면행정센터에 성금 300만 원 기탁
--  가평군, 한강수계기금 평가 ‘주민 지원사업’·‘환경기초시설 설치’ 탁월 인정
--  Patricia Benavides nombró como fiscal de Lambayeque a nuera de congresista José Balcázar
--  군산시, 정보통신공사 사용전 검사 신속한 민원 처리
--  인천시교육청, 인천마을교육공동체 한마당 개최
--  동해시, 별누리천문대서 천문학 특강 선보여
--  부산 경남정보대, '제4회 창의융합포럼' 성황리 개최
--  여수시립예술단, ‘송년음악회’ 7일 개최
--  [삼성사단] 에스원, '성과주의 원칙'…부사장1명·상무2명 승진
--  동해시, 삼화사수륙재 지정 10주년 기념 학술대회 개최
--  진도군, 찾아가는 물리치료센터 확대 운영
--  Ertuğrul Özkök: Doktor, korkma açık söyle; 5 aşı oldum, 5 yıl içinde ölecek miyim?
--  [독자투고] 시민의 안전 위협하는 배달 오토바이 난폭운전
--  삼척시, 흥전리 사지 사적 지정 1주년 기념 전시회 및 학술대회 개최
--  칠곡의 자랑은 사람… 칠곡 빛낸 30인 사진전 개최
--  네오핀, '웰메이드 웹3 게임' 날개 단다…'프로젝트 시드' 맞손
--  군산시, 화학사고 대응 역량 인정 받아
--  프랜차이즈산업협회, 12기 KFCEO 과정 수료식 개최
--  [독자투고] 연말연시, 음주운전에 경각심이 필요한 때
--  의성교육지원청, 인사업무 담당자 다면평가 연수 실시
--  대전시의회 예결위, 2023년도 대전시 제2회 추경 예산안 등 의결
--  인천항만공사, 수산업 단체와 ‘인천항 수산물 수출 증진‘에 나선다
--  마음의 소리·프로야구 유강남 선수, 동두천시에 사랑의 연탄 2000장 기부
--  민주평통 인천계양구협의회, 2023년 4분기 정기회의 개최
--  진주시, ‘고병원성 AI’ 선제적 대응
--  우칠윤 의원, 신공항 건설 관련 화물터미널 설치 군정질문
--  양양군의회, 제277회 정례회 제2차 본회의 개의
--  아산시의회, 제2회 추경 예산 1조9025억 원 최종 확정
--  양산시 덕계동, 댑싸리 빗자루 만들어 경로당 기증
--  남하면, 공유냉장고에 기부 이어져
--  길상 탁구동호회, 취약 계층 위한 성금 기탁
--  자비불교 정토사, 강화읍에 김장 김치 기탁
--  등촌신협, 양천구 목2동․3동 주민센터에 어려운 이웃 후원물품 전달
--  해남군 “내년 돌파 성장의 해, 핵심사업 차질없이 추진”
--  윤대통령 "우리 기업 세계 무대 뛸 수 있도록 뒷받침"
+-  SEP: Thông báo tỷ lệ sở hữu nước ngoài tối đa
+-  수비수는 골문안으로 패스→골키퍼는 강슛으로 자책골…손흥민 프로 데뷔 클럽 대환장파티→'독일 역사에 남을 자책골'
+-  Technology Plays an Important Role In Shaping Human Progress, Says Foreign minister Jaishankar
+-  Tuesday At Market: Gail India, IREDA, NHPC, Shine; Country Club, Eicher Motors Lead Weekly Gains
+-  Rajya Sabha To Discuss Country's Economic Situation on Day 2 of Winter Session
+-  ไซโคลนมีชองขึ้นฝั่ง "อินเดีย" ฝนถล่มเมืองเจนไน ตายแล้ว 5 คน
+-  15 critical as pickup van overturns in Titlagarh of Odisha
+-  조철기 충남도의회 의원 lsquo;충남 태권도 진흥 및 지원에 관한 조례안rsquo; 대표발의
+-  경기소방, '축사시설 화재 안전대책' 내년 2월말까지 추진
+-  UAE signs deal with Bill Gates’ nuclear company on advanced reactors
