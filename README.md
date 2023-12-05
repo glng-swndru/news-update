@@ -1,11 +1,51 @@
 # Latest News
--  גנץ לנתניהו: "עצור את תוספות התפקיד שלא נוגעות ללחימה"
--  Norveç Mülteci Konseyi: Gazze’deki sivil ölümleri İsrail ve müttefikleri için bir leke
--  Otomobil ile tır çarpıştı: Dokuz kişi yaralandı
--  Penceren bakan kişi acı manzarayı gördü: yalnız yaşayan kişi evinde ölü bulundu
--  Bodrum açıklarında 81 düzensiz göçmen yakalandı
--  ABD'den Türkiye açıklaması: DEAŞ ile mücadelede aktif rol oynuyor
--  الديوان الأميري يكشف الوضع الصحي لأمير الكويت
--  البنتاغون: نحث إسرائيل على تجنب استهداف المدنيين في غزة
--  واشنطن تعلن قيودا على تأشيرات المستوطنين المتورطين بأعمال عنف
--  فوائد سحرية لايمكن تصديقها لماسك النعناع ستبهرك!
+-  Aaj ka Vrishabh Tarot Card: कार्य व्यापार में सक्रियता बनाए रखें, जोखिम उठाने में न दिखाएं उतावलापन
+-  Forget Cary Grant, Jason Isaacs has a crack at playing Archie Leach
+-  Forget Cary Grant, Jason Isaacs has a crack at playing Archie Leach
+-  Stream It Or Skip It: ‘Killers of the Flower Moon’ on VOD, Martin Scorsese’s New, Vital Epic Drama
+-  North Carolina vs. Connecticut prediction: Jimmy V Classic college basketball odds, pick, best bets
+-  Спасовски: Најдени два пиштоли кои се поврзуваат со убиството на Вања
+-  슈퍼 에이스와 결별 유력한 NC, 선발진 개편은 어떻게 되나 [MK초점]
+-  100만원으로 3번 해준다…틴더보다 안전한 이 서비스 뜬다는데
+-  $1B Fresno bank sees top leadership transition
+-  زيلينسكي يلغي فجأة خطابه الموجه للكونغرس الأميركي
+-  Zbulohet rruga që bëri i dyshuari për vrasjen e dyfishtë
+-  Zlokobna poruka Putina članici NATO-a: ‘Ako ćete tako sa ‘svojim‘ Rusima, zna se što slijedi‘
+-  O filólogo Carlos Vázquez presentou en Lugo un estudo sobre a historia de Monterroso
+-  Grand Theft Auto VI Trailer
+-  Grand Theft Auto VI Trailer
+-  Grand Theft Auto VI Trailer
+-  Caren Miosga: Premiere für ARD-Talk am 21. Januar – Was sie besser als Anne Will machen will
+-  ["물 주지마세요!"…쓰러진 노인에게 달려온 '이 여성'이 소리친 이유는?
+-  [급매만 팔리는 부동산 시장 ’셀프등기’도 확 줄었다
+-  BBIG Stock: Vinco Ventures Soars 127% Today in Over-the-Counter Trading
+-  Jaime Bayly causa nostalgia al recordar con cariño a Tongo: “Cómo extraño al gordo, lo quería mucho”
+-  Senado aprobó en comisiones la Ley Silla, reforma que favorece el descanso de los trabajadores
+-  OVO JE LICE ZLA! PRVA SLIKA MONSTRUMA LJUPČA PELEVSKOG PO HAPŠENJU: Osumnjičen kao organizator otmice i ubistva Vanje (14)!
+-  Guendouzi coloca Lazio nos quartos de final da Taça de Itália
+-  شكاوى من خرق اتفاق وقف العدائيات بين السلامات والبني هلبة بجنوب دارفور
+-  En un megaoperativo, detuvieron a 13 personas por pedofilia: hay dos docentes acusados
+-  Ministro das Comunicações elogia gestão de Mauro Mendes “reposicionou Mato Grosso no mundo”
+-  Wildlife crossing near Canmore facing delays as province says work didn't meet standards
+-  El goleador que Lucas González considerará para el último partido del año
+-  دراسة توضح تأثير الأسبرين في منع انتشار "السرطان النقيلي"
+-  المونيتور الأمريكي: واشنطن تحدد بداية العام المقبل لإنهاء إسرائيل عمليتها العسكرية بغزة
+-  المجلس النرويجي للاجئين: الوضع في غزة يمثل فشلاً ذريعاً لإنسانيتنا المشتركة
+-  اندلاع حريق داخل مخزن للورق بالحوامدية
+-  المعارضة الإسرائيلية: نتنياهو ليست لديه خطة سياسية أو تفسيرات بل صرف للأموال فقط
+-  Lazio - Genoa, la conferenza stampa di Sarri: seguila in diretta su Lalaziosiamonoi.it
+-  Poslušajte kako Kinez u Pekingu pjeva veliki hit Tošeta Proeskog
+-  Новицкий: «Открытие школы Загитовой станет большим толчком в развитии фигурного катания»
+-  SAD neće izdavati vize izraelskim doseljenicima koji maltretiraju Palestince
+-  إيقاعات موسيقية "لذئب الأربعين" والخضور في بيت الشعر بالشارقة
+-  الجوبي يحذّر من تقلبات جوية حادة
+-  Jorge Fossati reveló entre lágrimas que renunció a Universitario por encarcelamiento de su asistente en Brasil
+-  Una buena nutrición perinatal disminuye riesgo de enfermedades en bebés
+-  Juez modifica las condiciones de libertad de Emma Coronel, esposa de “El Chapo” Guzmán
+-  Duvan Zapata estalló en llanto tras el partido ante Atalanta: “No me han dado el valor que merecía”
+-  Dan otro golpe al Cártel de Sinaloa, desmantelan bodega de fentanilo en Chihuahua
+-  Ранен гол стигна на Лацио да елиминира Дженоа за Купата на Италия
+-  El encuentro secreto entre Mauricio Macri y Javier Milei: entre la intimidad y un gesto político
+-  Brooks Jensen Thinks the Sky’s the Limit for Gable Steveson
+-  Fans demand Aaron Ramsdale returns to Arsenal starting XI after David Raya drops TWO howlers in Luton clash
+-  Fans demand Aaron Ramsdale returns to Arsenal starting XI after David Raya drops TWO howlers in Luton clash
