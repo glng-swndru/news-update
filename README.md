@@ -1,51 +1,11 @@
 # Latest News
--  Ngee Ann Poly alumna makes it to semi-finals of MasterChef Australia: Dessert Masters
--  S'pore youths jump on lift handrails to dodge cockroach, only to meet another waiting outside
--  Çorum'da peş peşe deprem!
--  Premier Lig'den rekor yayın geliri!
--  Vergi uzmanı, 3 Ocak'a dikkat çekti: Yüzde 25'lik ÖTV zammı yolda
--  Şok mağazalara kafa tutuyor! Mont, bot kışlık ne varsa doldurdu getirdi: İşte indirimli 6 Aralık Kataloğu
--  Cumhurbaşkanı Erdoğan, Katar'da çağrısını yineledi: Sorumluluk almaya hazırız
--  Adım adım tarihe geçiyor! Okan Buruk'tan inanılmaz ortalama
--  เพจ สู้ดิวะ เปิดบทส่งท้าย จาก "หมอกฤตไท" หวังเป็นพลังให้ผู้อื่น
--  Un cura tras la decisión del torero Juan Ortega de ‘dejar plantada’ a Carmen Otte
--  Kỷ lục gia 10.000m không đứng dậy nổi sau khi chạy giải marathon
--  الملا: 200 مليون دولار وفرا سنويا من جهود خفض انبعاثات غاز الميثان بمصر
--  ارتفاع أسعار السمك البلطي والبوري وانخفاض المكرونة في سوق العبور اليوم
--  Success in the Digital Age: A Look at NetReputation’s Client Achievements
--  Danske skoleelever går tilbage i matematik og dansk
--  Лондон с крути мерки за затягане на имиграцията
--  Гуардиола обясни защо Клоп е най-големият му съперник
--  A Besiktas lesz az FTC ellenfele a nyolcaddöntőben
--  OnePlus 12 5G With Snapdragon Gen 3 Chipset Launched In China: Price, Specifications
--  “우리만 ‘옐로카드’ 걸게 했다” 루머에…중국인들, 한국 안 왔다
--  So viele Teilzeitbeschäftigte wie noch nie
--  Güney Kıbrıs’ta “otobüs krizi” nedeniyle yaklaşık 6 bin öğrenci okula gidemedi
--  Британия запустит наблюдательные полеты над Израилем и Газой
--  Công bố dữ liệu quan trắc giao thông, lộ diện con đường quá tải nhất TP.HCM
--  Клуб Овечкина «Вашингтон» потерпел самое крупное поражение за пять лет
--  Brücke der Verständigung : Wie die Spende eines jüdischen Apothekers bis heute nachwirkt
--  Torino, è tornato il vero Vlasic: contro l’Atalanta ha fatto la differenza
--  吳欣盈財產申報存款250萬擁3671萬股票、800萬珠寶 柯文哲存款2464餘萬
--  UK airline launches copycat of Princess Diana’s famous £42k Virgin Atlantic sweatshirt – just in time for Christmas
--  大叔挑戰澳門塔233公尺高空彈跳 落地後呼吸急促OHCA猝死！
--  14奈米以下IC製程列國家核心關鍵技術 國科會：參考美韓標準訂定
--  Corona-Zahlen in Nürnberg aktuell: Zahlen und Fakten aus der Region
--  Today's 'Wordle' #899 Clues and Answer for Tuesday, December 5 Game
--  עשו לו עין: אבא של בריטני ספירס איבד רגל בעקבות זיהום חמור
--  Corona-Zahlen in Fürth aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  אז מה עושים בחופש חנוכה? המדריך המלא להצגות, אירועים ופסטיבלים
--  "מתוך האפר והדם נביט אל העתיד": אמני ישראל בשיר תקווה
--  התינוקת חיכתה לצאת? רופא נשים יצא לאפטר ובמזל שהה בלידת בתו
--  Waarom mensen in hun verslaving blijven vastzitten
--  ЦСКА 1948 пусна атрактивна оферта на билетите за последните си три мача за годината
--  Corona-Zahlen in Erlangen aktuell: Neuinfektionen für Erlangen, Bayern und Deutschland
--  신제일병원 박관석 원장, 제19회 보령의사수필문학상 대상 수상
--  UOKiK bada, czy Scott Sportech Polska ograniczał konkurencję
--  Usługi w Rosji rosły najwolniej od 10 miesięcy
--  Meta porozumiewa się z IBM w sprawie AI. Będą dzieliły się technologią
--  Крупнейший клад славянских монет XI века обнаружили в Германии
--  Corona-Zahlen in Ansbach aktuell: Die Coronavirus-Daten im Überblick
--  Tveir menn í gæsluvarðhaldi vegna gruns um mansal
--  Corona-Zahlen im Landkreis Wunsiedel i.Fichtelgebirge aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Mæta tvíefldir til leiks eftir vonbrigðin í Laugardalnum – „Það svíður eiginlega mest“
+-  HNX: Số liệu Quản lý Sở hữu của Nhà đầu tư nước ngoài tại ngày 06/12/2023
+-  HNX: Số liệu Quản lý Sở hữu của Nhà đầu tư nước ngoài tại ngày 06/12/2023
+-  FUEBFVND: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  E1VFVN30: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  CMG: Quyết định thay đổi niêm yết
+-  KSB: Đính chính bổ sung các Báo cáo tình hình quản trị công ty
+-  FUEFCV50: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  FUEMAVND: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  FUEIP100: Kết thúc giao dịch hoán đổi ngày 04/12/2023
+-  FUESSV50: Kết thúc giao dịch hoán đổi ngày 04/12/2023
