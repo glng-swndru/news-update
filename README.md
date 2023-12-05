@@ -1,11 +1,11 @@
 # Latest News
--  Süper Lig devi için Eljif Elmas iddiası!
--  İki ilde bahis yapılanmalarına operasyon: 6 gözaltı
--  FABOL se alarma por deudas y narcotráfico e inicia gestiones para que el Estado intervenga el fútbol
--  Нима учун иссиқхона маҳсулотлари қимматлаб кетди?.
--  Қарғиш учун жавобгарлик белгилангани рад этилди .
--  Subdermal Contraceptive Implants Market Overview, Size, Share Opportunities and Challenges By Major Players - Merck & Co., Inc (Organon & Co.), Bayer AG, Shanghai Dahua Pharmaceutical Co., Ltd, etc.
--  BIDPATH LAUNCHES CUTTING-EDGE PLATFORM AUCTIONPAY: Innovative Payment Processing for the Auction Industry
--  Doral Art & Flowers Festival Returns in 2023
--  Les pays du Conseil de Coopération du Golfe renouvèlent leur ferme soutien à l’intégrité territoriale du Maroc !.
--  Bcast.com Short From Video Platform adds live streaming
+-  41 ألف مواطن ينضمون للعمل بالقطاع الخاص في شهر نوفمبر الماضي.. تفاصيل
+-  خطأ قاتل يصيب الطماطم داخل البيوت المحمية
+-  [ŽT] „Veržiasi 63-ioji brigada.“ Audra naktį. Ukraina pradėjo tankų puolimą (Video)
+-  Izraelio armija smogė išmaniuoju ginklu SPICE. Kas žinoma (Video)
+-  [ŽT] „Kremlius ruošiasi peržengti raudoną liniją.“ Rusijos armija šokiruota. Ką įsakė Maskva (Video)
+-  Ledo milžinas pabudo pirmą kartą per 30 metų. Nufilmuotas didžiausio ledkalnio Žemėje judėjimas (Video)
+-  [ŽT] „Lenkai turi naują įstatymą!..“ Iš rusės atimtas pasas. Ji neišleidžiama iš Lenkijos oro uosto
+-  „Ignitis renewables“ tiriant Baltijos jūros dugną rastas laivas
+-  Česnako nauda ir žala: kaip teisingai jį naudoti, kad nepakenktumėte savo organizmui
+-  [ŽT] „2400-2600 °C per 1s. Neįmanoma pasislėpti.“ Prasideda košmaras. Ant dronų montuojamas pragaro ginklas
