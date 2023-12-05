@@ -1,11 +1,51 @@
 # Latest News
--  Chennai MSMEs Suffer Heavy Losses Due To Cyclone Michaung
--  איזה צ'ארלס, צ'ארלס שלנו? ההערה הגזענית שמביכה את בית המלוכה
--  דגו: "אנחנו צריכים להיראות כמו מכבי חיפה, אין תירוצים"
--  السعودية وقطر.. ثوابتٌ راسخةٌ تؤطرها أواصر الأخوة والمصير المشترك
--  No immediate plan to cut EV taxes in South Africa
--  Политолог объяснил падение уровня поддержки Зеленского на Украине
--  Как укрепить вены и победить варикоз при помощи натуральных средств
--  Munas Pilih Ketua Umum Kohati PB HMI
--  Restorasyon çalışmasında duvar faciası: Diyarbakır Sur'da bir işçi hayatını kaybetti
--  Nijerya Hava Kuvvetleri yanlışlıkla köyü bombaladı: 85 kişi hayatını kaybetti
+-  Adrian Khalif Rilis EP mr. Menawan Setelah 4 Tahun Penantian
+-  TPB: CBTT Nghị quyết HĐQT thông qua cấp HM tín dụng cho FPTS
+-  VCC: Nghị quyết Hội đồng quản trị
+-  REE: Thông báo thay đổi giấy chứng nhận ĐKDN lần thứ 29
+-  HOSE: Thống kê giao dịch tự doanh (ngày 05/12/2023)
+-  TDP: Nghị quyết HĐQT về việc thông qua bộ hồ sơ đăng ký chào bán thêm cổ phiếu ra công chúng
+-  TDP: Nghị quyết HĐQT về việc điều chỉnh phương án sử dụng vốn chi tiết thu được từ đợt chào bán thêm cổ phiếu ra công chúng
+-  OPC: Thông báo thay đổi nhân sự
+-  VPD: Thông báo thay đổi nhân sự công ty
+-  FDC: CBTT Nghị quyết HĐQT thông qua lựa chọn nhà thầu
+-  DRL: Thông báo ngày ĐKCC tạm ứng cổ tức đợt 2 năm 2023 bằng tiền
+-  KPF: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Nguyễn Khánh Toàn
+-  RDP: Thông báo giao dịch cổ phiếu của người nội bộ Đỗ Minh Luân
+-  BTD: Ngày đăng ký cuối cùng trả cổ tức bằng tiền mặt
+-  PLX: Petrolimex Aviation "mở hàng" tiếp nhiên liệu cho các chuyến bay từ Cảng hàng không Điện Biên mới
+-  PTC: Thông báo nhận được Hồ sơ đăng ký chào mua công khai cổ phiếu PTC của Ông Võ Anh Linh
+-  DSD: Ngày đăng ký cuối cùng Đại hội đồng cổ đông bất thường năm 2024
+-  CT6: Phan Quốc Hiếu - Ủy viên HĐQT - đã mua 800 CP
+-  IDI: Nghị quyết HĐQT về việc chuyển nhượng toàn bộ phần vốn góp tại CTCP Tư vấn và Đầu tư Tài chính
+-  FPT IS sở hữu bằng sáng chế đầu tiên tại Mỹ
+-  DRC: Nghị quyết HĐQT về việc thông qua phương án tạm ứng cổ tức năm 2023 bằng tiền
+-  DIG: Thông báo giao dịch cổ phiếu của người có liên quan đến người nội bộ Lê Thị Hà Thành
+-  CEG: Vũ Thị Mai - người có liên quan đến Ủy viên HĐQT - đã bán 53.005 CP
+-  TV2: Thông báo ngày ĐKCC chi trả cổ tức năm 2022 bằng tiền
+-  Nghèo ở thủ phủ ‘vàng xanh’ [Bài 1]: Bốn đời trồng luồng vẫn không khá nổi
+-  Tăng cường hợp tác đào tạo nhân lực chất lượng cao giữa Đà Nẵng và Malaysia
+-  Kỳ tích cao su Việt Nam trên đất Campuchia kỳ 5: Đổi đời theo dòng vàng trắng
+-  Đường sắt chở hàng Việt Nam-Trung Quốc tại Quảng Tây thực hiện hơn 1.000 chuyến
+-  OCB: Thông báo nhận được đơn đề nghị chấm dứt HĐLĐ của Kế toán trưởng
+-  (Видео) Силен земјотрес ги погоди Филипините, граѓаните на Манила истрчаа на улиците
+-  Άκης για Βόλος Ολυμπιακός : «Κυβερνητική εντολή – Παίρνουν πέναλτι για πλάκα Παναθηναϊκός και ΑΕΚ» (vid)
+-  Bahnhof-Ranking: Die letzten sechs Plätze gehen an Deutschland
+-  U arrestua për blerje votash në zgjedhjet e 14 majit, SPAK mbyll hetimet për Klodian Kapidanin
+-  «Fingere l’orgasmo con lui è stato facile»: Meg Ryan torna su quella celebre scena con Billy Crystal
+-  Zbuloni ditën më romantike të muajit dhjetor për të gjitha shenjat e horoskopit
+-  Wie alles begann: Über die auratische Macht von Geschichten
+-  Sopeuttamista kyllä, ei äkkipysäystä
+-  EU-hof geeft Engie en Luxemburg toch gelijk over belastingen
+-  Minister bezorgd om laag niveau basisvaardigheden van scholieren
+-  هل تغني إليسا أغاني أحدث ألبوماتها في السعودية؟
+-  Hanneke Schaap-Jonker over haar geloof en de psychologie. 'Misschien raakt Gods liefde ons te weinig'
+-  Bursa Orhangazi'de kahya, çiftlikteki barakasında ölü bulundu
+-  Mustafa Orkun Gazioğlu CHP Osmangazi Aday Adaylığı başvurusunu yaptı
+-  Muğla'da balkonda yetiştirmeye başladığı bambunun fidanlığını kurdu
+-  Antep fıstığına rekabet soruşturması
+-  Bakan Yumaklı: Ata tohumu kullanımı ve satışıyla ilgili yasak yok
+-  Bakan Bak: 800 bin depremzedeyi yurtlarımızda misafir ettik
+-  İstanbul Havalimanı'nda 3,5 milyon liralık kaçak lüks eşyaya el konuldu
+-  الخصاونة: الأردن بصدد إنشاء المركز البحثي المائي بالعقبة
+-  Adalet Bakanı Tunç: Yetersiz olan 392 cezaevini kapattık
