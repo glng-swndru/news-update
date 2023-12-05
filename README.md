@@ -1,51 +1,11 @@
 # Latest News
--  Kickoff | 'The highest salary I earned was R35 000'
--  اخطرنا القوات العراقية بذلك.. السفيرة الامريكية تعلق على قصف كركوك
--  Yildiz, l'Arsenal fa sul serio: la cifra che può far vacillare la Juventus
--  Breil Manta P.R.O. Crono: il ritorno di un'icona
--  Kane e i due difensori più forti affrontati in carriera: c'è un ex Juve
--  طائرات عسكرية عراقية تنقل مساعدات طبية أرسلتها العتبة الحسينية المقدسة إلى غزة (فيديو)
--  Lady Fagioli e lady Chiesa, sfottò social sul 'look' Juve: "Si è messa..."
--  Emine Erdoğan: Türk kadını Türkiye Yüzyılı'nın inşasında öncü olacak
--  İş dünyası temsilcileri 2024 asgari ücret zammına ilişkin beklentilerini açıkladı: Ortaya üç farklı formül çıktı
--  Gibran Bagi-Bagi Susu di CFD Dituding Kampanye, Pj Heru: Saya tak Tahu, Masih Tidur
--  الرئيس الروسي يبدأ زيارة للإمارات والسعودية غدًا
--  5 أيام على انطلاقها.. كيف تدلي بصوتك في الانتخابات الرئاسية؟
--  أمير قطر يشكر مصر لتعاونها في الوصول إلى هدنة في غزة
--  مركز سموم جامعة بنها: استقبلنا 250 حالة خلال نوفمبر.. 43% منها تسمم دوائى
--  وزيرة الهجرة تدعم مستثمرا مصريا بفرنسا لتأسيس مشروعه بقناة السويس
--  خطوات دفع فاتورة المياه أونلاين.. 3 طرق بسيطة
--  ما المدة المحددة للتظلم من قرار التصالح في مخالفات البناء؟
--  إعلامي يفجر مفاجأة: مهاجم المصري في طريقه للأهلي بهذه الطريقة
--  قرار جديد بشأن التحقيق مع "كروان مشاكل" في واقعة "فيديو المطبخ"
--  فانتازي.. أفضل 11 لاعبا للجولة الخامسة عشر من الدوري الإنجليزي
--  "سبوتيفاي" تنوي تسريح 17% من موظفيها مع تباطؤ النمو
--  "هي مش خناقة في الشارع".. شوبير يكشف تفاصيل جلسة التحقيق مع الشحات ويوجه رسالة لبيراميدز
--  بالصور- محافظ بني سويف يتفقد عددا من اللجان الانتخابية
--  فتوح يفاجئ جماهير الزمالك بهذه الصورة
--  معيط: أفريقيا تحتاج 277 مليار دولار استثمارات سنوية لأجل أهدافها المناخية
--  Емирът на Катар: Това е геноцид, извършен от Израел - Труд
--  Avaí vai mudar de material esportivo em 2024
--  अग्नि की पूजा से टल जाते हैं जीवन के सकंट, जानें- क्या है इसका धार्मिक महत्व?
--  Soccerladuma | FIFA Ban Could Effect Future Of Pirates Striker
--  Los alumnos de Castilla y León son los mejores de España en Matemáticas, Lectura y Ciencias
--  Carriedo destaca el apoyo al Bierzo con suelo industrial, crédito y menor carga impositiva
--  अखिलेश यादव के इस कदम से हैप्पी है कांग्रेस, मध्य प्रदेश के नतीजे से बदले सुर
--  Wurld Reveals Why He Gave Davido His Song, ‘Blow My Mind’
--  Dungeons and Dragons-játékot készít a Starbreeze Entertainment
--  Világsztárokat jelentett be 2024-re a Balaton Sound: íme, a fellépők listája
--  [코로나19 공백에도 한국 학생, 수학·읽기·과학 최상위권
--  [“4일 만에 660만명 몰렸다! 그렇게 대단해?” 대기업이 꽂힌 그녀, 누구길래
--  [15층서 딸아이 던져 살해…20대 친모 구속
--  [가상자산으로 100억원대 비자금 조성 의혹…한글과컴퓨터 김상철 회장 아들 구속
--  [이재명 관련 수사받은 세탁소 주인 실종…극단선택 암시 메모
--  Muž obvinený z účasti na terorizme zostáva stíhaný vo väzbe: Potvrdil to Najvyšší súd SR
--  Šesť desivých spôsobov, ako chladné počasie ovplyvňuje naše telo: Zimný penis aj mŕtvica!
--  Nešťastnej žene sa let poriadne predražil: Obrovská pokuta za nezjedený sendvič!
--  Situácia v Bratislave sa dramatizuje: Nové informácie o vyhrážkach na stredných školách! Vynútené prázdniny, hrozba trvá
--  Despotizmus, urážky a ponižovanie: Slovenský herec prehovoril, kde vznikli základy jeho RAKOVINY!
--  Fatih Terim'in yardımcısının eşi nasıl dolandırıldığını anlattı
--  France to ban disposable e-cigarettes: ‘Youth drawn to their flavors’
--  Kampanye Ganjar di Balikpapan
--  Jeg har flere rettigheder og muligheder end mine venner. Hvorfor?
--  Jeg har flere rettigheder og muligheder end mine venner. Hvorfor?
+-  Smaragden huwelijk
+-  Danisha van Mourik wint internationaal turnbrons in eredivisie
+-  De Groot Wonen & Slapen: nu ook comfort in e-raamdecoraties
+-  Minister Hugo de Jonge bezoekt Stationsomgeving Culemborg
+-  Volksdansgroep Oriënt treedt op tijdens het Dickens Festijn
+-  소비자원 한국행정혁신대상 `대상'
+-  충북농협 사회공헌 앞장
+-  노바렉스 3000만불 수출의 탑 수상
+-  수공, 자회사 간 합병 완료
+-  금강유역물관리협의체 개최
