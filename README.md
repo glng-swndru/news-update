@@ -1,51 +1,11 @@
 # Latest News
--  El Sumar autonómico debuta en País Vasco para una sanidad "menos vertical"
--  Tatar, Cengiz Aytmatov'un kabrini ziyaret etti
--  Anadolu Efes'in rakibi Ergin Ataman!
--  Türk hububat sektörü 11 aylık dönemde 11,3 milyar dolarlık ihracat gerçekleştirdi
--  "Müslüman karşıtı" gazeteciye polis koruması
--  İsrail yeni yasa dışı yerleşim planlıyor
--  200 milyon dolarlık anlaşma imzalandı: Türkiye ile dayanışmamızı güçlendiriyoruz
--  Kings College London'da Gazze'ye destek veren 3 temsilci görevden alındı
--  8 gollü maçta turlayan Pendikspor oldu!
--  Kompak! Serikat Pekerja Denmark Dukung Aksi Mogok Karyawan Tesla Swedia
--  Biden ailesinin başı yolsuzlukla dertte
--  Bewoners proosten op bouwstart 'Hof van Courtine' in Sleeuwijk: 'Blij dat wij zijn ingeloot'
--  Studenten openen pop-up restaurant in So What! voor goed doel: 'We willen 10.000 euro ophalen'
--  Tuvinieku loma ieslodzīto atgriešanai sabiedrībā un Ģimenes dienas ieslodzījuma vietās
--  Los presentadores canarios que darán las campanadas
--  Geflüchtete: Waldbröl lehnt Kauf von Haus ab – Suche nach Unterkunft geht weiter
--  Okončan forum o EU putu BIH u Briselu: Lijepa slika, ali …
--  Huawei iznenadio korisnike: Njegov novi operativni sustav neće podržavati Android aplikacije
--  Splitski studenti natjecali se tko će budućim brucošima bolje opisati fakultet koji su izabrali. Obišli smo ih i danas
--  'Kina izvozi u EU tri puta više nego što uvozi, to nije održivo'
--  Ünlü isim yine bildiğiniz gibi! Önce mayosuyla poz verdi sonra askılarını indirip üstsüz poz verdi: Pozları gündem oldu!
--  Улюкаев заявил о «двухконтурной» экономике России и похвалил Набиуллину
--  Vaša usta vam mogu reći puno toga o zdravlju: Tri znaka upućuju na jedan problem
--  Tunisie : Repli de l’inflation à 8,3%
--  People have been sharing the worst sex advice a magazine ever gave them – 17 absolute jaw-droppers (NSFW)
--  Jenni Hermoso, Ramón García y Ana Mena darán las campanadas en RTVE
--  MSB açıkladı: 2 terörist etkisiz hale getirildi
--  Bam sotto sgombero, sciopero della fame per salvare libri e opere d’arte
--  Luis Caputo conversó con Janet Yellen: viajará a Washington tras asumir en el Ministerio de Economía
--  Ondřej bol futbalistom a policajtom. Teraz je CEO úspešného obchodu, ktorý je na trhu už 30 rokov
--  Ramee Group of Hotels marks grand entry into Coimbatore
--  Учёные объяснили, как твёрдые и хрустящие продукты могут способствовать похудению
--  مشكلات قد تتسبب في انفجار السخان الغاز.. خلي بالك من صوت «التكتكة»
--  FMRSP - Građani koji nisu ispunili uslove za sredstva EU mogu uložiti prigovor
--  Helez in Brussels: By helping BiH, the EU also strengthens its own security
--  Putin sutra u posjeti Saudijskoj Arabiji i UAE
--  Čajić i Šibonjić sa predstavnikom Natron-Hayata: ZDK sve više u fokusu velikih ulagača
--  It is necessary to encourage female journalists to be more active in protecting their rights
--  Saopćenje za javnost KO Demokratske fronte USK
--  UN-ov Dan zemljišta - Centimetar tla koji se stvara hiljadu godina, ljudi zagade za nekoliko minuta
--  Društvo Crvenog krsta/križa BiH uručilo priznanja povodom Svjetskog dana volontera
--  Uk: We have agreed to continue with the started adoption of the laws at the level of the CoM
--  Na Sarajevskoj berzi u novembru promet 40,4 miliona KM
--  U Splitu preminuo legendarni član Bijelog dugmeta
--  Magazinović: U Bruxellesu smo mogli vidjeti jednu lijepu sliku bh. političke scene
--  Federalno ministarstvo kulture i sporta: Po prvi put upriličena Večer Hrvata Središnje Bosne
--  Kerry pokrenuo plan međunarodnog angažmana o nuklearnoj fuziji
--  Cvijanović i Troccazo razgovarali o aktuelnoj političkoj, ekonomskoj i sigurnosnoj situaciji u BiH
--  Orban i Macron sastaju se u Parizu uoči samita EU posvećnog pridruživanju Ukrajine bloku
--  Tuzla Canton wants to be the bearer of networking activities for all tourism assets in BiH
+-  [6살 딸 손잡고 유치원 가던 엄마…신호위반 버스에 사망
+-  Lanzan Coral Golf Resort: Un nuevo desarrollo maestro de Lujo en Punta Cana
+-  Politis: Кипрские банки получили указание прекратить все операции в рублях
+-  Escolares de Trujillo brillaron en Emiratos Árabes Unidos con proyecto sostenible
+-  I trend social media marketing 2024 secondo Execus
+-  Artists' Sub-Forum of "Liangzhu Forum" & "Silk Road Artists' Rendezvous" Exhibition Held in Liangzhu, Hangzhou
+-  MFT KOREA opens direct transaction platform for automotive filters, 'we will accelerate global market entrance'
+-  그레이스노트, 진보된 자동차 데이터 플랫폼을 출시하여 커넥티드 카에서 혁신적인 크로스 미디어 경험을 제공하다
+-  Epignosis Appoints Nikhil Arora, Formerly of GoDaddy and Intuit, to CEO
+-  Lacework Publishes Second Edition of The Modern CISO Network: Board Book
