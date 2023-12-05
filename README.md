@@ -1,51 +1,51 @@
 # Latest News
--  5. prosinca - Dan obrane grada Osijeka
--  "Licemerje Đilasove opozicije, svaki dan gostuju na televizijama United Group koja ne poštuje medijske zakone"
--  How to watch BBC iPlayer abroad
--  How to watch BBC iPlayer abroad
--  [대구시, 고독사 예방 '즐거운 생활 지원단' 양성
--  [로슈, 비만치료제 시장 뛰어든다…4조원에 후보물질 확보
--  [Huawei, Global Peter Drucker Forum과 파트너십 체결
--  [Zoomlion Agriculture Machinery Global Business Conference
--  ["돌려차기男이 경찰보다 잘먹고 잘사네"…경찰 구내식당 '부실' 논란
--  [DGB대구은행, 장기 미거래 신탁 계좌 찾아주기 캠페인 전개
--  [장미란 '총선 출마 사실이냐' 질문에…"아이, 뭘 사실이에요"
--  Muere Juan Pablo Adame: “Senador por un día” propuso apoyo para familias de pacientes con cáncer
--  Com Suárez pela frente, Fluminense tem bom teste no Brasileirão para encarar Benzema no Mundial de Clubes
--  پی ٹی آئی کے غبارے سے ہوا نکل چکی،مولانا فضل الرحمن
--  Ribera negocia la compra del hospital de Traumatología Imske en Valencia
--  Regina Duarte vai expor suas obras de arte botânica em Miami: "Tô muito prosa"
--  Parlamentares alemães cobram compromisso ambiental de Lula
--  Retired police inspector, 64, appears in court charged with sex assaults against 18 victims
--  Retired police inspector, 64, appears in court charged with sex assaults against 18 victims
--  22 واقعة سرقة تقود الشرطة لعصابة "حماده وتوتو" في طنطا
--  مسؤول تركي: معرض "إيديكس" أصبح ضمن مصاف المعارض الدولية الكبرى
--  الصين: على حكومة طالبان إجراء تغيرات كبيرة حتى تعترف بها بكين رسميًا
--  أرقام مفزعة تكشف: 20 دليلا على موت الأرض
--  امتنع عن السداد لشراء عقارات.. ضبط المتهم بالكسب غير المشروع من شركة للتجارة والتوريدات
--  بالأسماء.. 10 مصابين في انقلاب ميكروباص ببورسعيد
--  بالصور- إغلاق وتشميع معدية مخالفة خلال حملة بالبحيرة
--  إسرائيل: القتال في "المرحلة الثانية" من الحرب سيكون صعبًا
--  ارتكبوا 17 جريمة.. سقوط عصابة سرقة أبواب مقابر الموتى في الشرقية
--  هذا ما يحدث لجسمك عند تناول البيض المسلوق على الإفطار.. 5 تأثيرات غير متوقعة
--  Kate Middleton puts aside Omid Scobie race row as she arrives to open children's surgery unit at Guy's and St Thomas' Hospital
--  فانتازي.. كل ما تريد معرفته عن الجولة الخامسة عشر من الدوري الإنجليزي الممتاز
--  بلتون للتأجير التمويلي توقع أول اتفاقية تخصيم بقيمة 200 مليون جنيه
--  رئيس المستلزمات الطبية: نسعى لإعطاء واردات القطاع أولوية الإفراج بالموانئ
--  Датский Saxo Bank сделал 10 шокирующих предсказаний на 2024 год
--  أبو قير للأسمدة تساهم بـ 45% بمشروع سيتم تحويله لمشروع أخضر
--  The grinch council who stole Christmas: Santa's Grotto on country estate facing demolition after local authority planning row over access problems
--  El actor Álex González se embarca en un nuevo proyecto lejos de la interpretación
--  Wallyscar entame la livraison de sa voiture, la Wolf, à ses tout premiers clients
--  I’m a traveller married to a gypsy & there’s reasons we’re different – he’d be offended if we were called the same
--  I’m a traveller married to a gypsy & there’s reasons we’re different – he’d be offended if we were called the same
--  Navio Alexandre Pires: como era o cruzeiro em que o cantor permaneceu durante operação da PF?
--  UK homeowners face losing £2,000 in 12 months and 'it's hidden'
--  One person is rushed to hospital after 'major incident' in Aberfan following 'serious assault' - with multiple schools and childcare centres on lockdown
--  Greta Thunberg: Israel begeht im Gazastreifen Völkermord
--  Nicolás Maduro aseguró que supervisará la recuperación del Lago de Maracaibo
--  Android owners receive free phone upgrade that’s perfect for sports fans who will never miss the latest score again
--  Android owners receive free phone upgrade that’s perfect for sports fans who will never miss the latest score again
--  Dimite el gerente de Sadeco por motivos laborales
--  Israel erhöht Antisemitismus-Gefahrenstufe für Deutschland
--  Laufen: 21 Teilnehmer beim Adventslauf der Laufgruppe Bünger
+-  Άγγελος Πυριόχος: «Όταν πήγα στη Ζάκυνθο ο κόσμος μού έκανε τη ζωή δύσκολη, με κοιτούσαν καχύποπτα»
+-  Asgari ücret için sevindiren teklif! Asgari ücret 45 bin olsun
+-  Tyrese Haliburton prêt à enflammer Las Vegas
+-  كيف تتفادى الإصابة بسلالة أنفلونزا الخنازير الجديدة؟.. نصائح لاتفوتك
+-  عاجل.. حقيقة تأثير وثيقة العمل الحر على الضمان الاجتماعي
+-  بدء أعمال مجلس التنسيق السعودي القطري برئاسة ولي العهد وأمير قطر
+-  "جوجل" تكشف عن نظام متطور يكشف البريد الإلكتروني المزعج والمحتوى الضار
+-  ¿Adónde viajan los lucenses en el puente?
+-  La nouvelle Wallys Wolf arrive
+-  "Der 90. Geburtstag oder Dinner for One": Alle Sendetermine zu Silvester 2023 - Insider-Fakten zum Kult-Sketch inklusive
+-  REVUE DU 05 DEC : CAN Féminine 2024 ( Sénégal/Égypte à 17h, Mondial Handball 2023
+-  Po zločinu na Partizanski v Mariboru: Svojci ubite mlade ženske pričali v tajnosti
+-  Hertha-Coach denkt noch an HSV-Klatsche: „Das will ich nicht mehr“
+-  უკრაინის წარმატება რუსეთთან მოულოდნელ ფრონტზე
+-  Paye Sakarya'da sıfır faizle 60 aya varan vade fırsatı!
+-  Introducing Ambrane's 'MiniVac 01' portable vacuum cleaner, available at an attractive price of ₹1499/-
+-  В Нижегородской области осудили на три года условно женщину за фейки о ВС России
+-  Sensación térmica de 3 grados en esta mañana
+-  Premier Lig yine rekor kırdı: Tam 245 milyar TL
+-  Match ASM vs EST : ou regarder le match AS Marsa vs l’Espérance de Tunis du 05 décembre?
+-  Vuelve Jorge Javier y lanza un contundente mensaje tras el sonado despido: "Se van los mejores"
+-  Нова биография на Илон Мъск припомня трудното му детство
+-  Россия освободила еще 6 украинских детей
+-  Курс доллара на Мосбирже поднялся выше 92 рублей
+-  Экс-футболист четырех клубов КПЛ возглавил зарубежную команду
+-  Ready to party with Barbie? The comedy blockbuster sets Max debut date
+-  엔피코어, 한국무역협회 ‘100만불 수출의 탑’ 수상
+-  Подрядчик РЖД купил долю ВЭБа в крупнейшем инфраструктурном холдинге
+-  Asher Keddie stuns in a slinky black dress as she leads the celebrity arrivals at the premiere of her new series Strife in Sydney
+-  Una mujer ugandesa de 70 años da a luz gemelos
+-  Una mujer ugandesa de 70 años da a luz gemelos
+-  Una mujer ugandesa de 70 años da a luz gemelos
+-  TOKİ Yozgat projesi resmen başlıyor! 304 konutluk yeni proje için ÇED gerekli değildir kararı verildi!
+-  Afghan pregnant Women’s children at Risk in Pakistan
+-  "Wer stiehlt mir die Show?" verdankt ihm einen Quotensieg!
+-  V treh občinah prepričani v uspešen zaključek projekta C0
+-  Кристиян Минковски се надява на финал за Диана Петкова - Труд
+-  Pemerhati Bola Angkat Topi atas Rencana Anies Membangun Wasaka International Stadium
+-  Manchester United'tan gazetecilere ambargo!
+-  Person dog efter slarv – hittades utomhus av hemtjänsten
+-  Tüm yurda soğuk hava dalgası geliyor! Hava sıcaklıkları düşecek...
+-  The Chase fans claim show is 'fixed' after team miss out on £100k prize when The Beast gets 'easy' questions 'a child could guess' - so do YOU know the answers?
+-  Lazio-Genoa, i convocati del Grifone: quante assenze per Gilardino
+-  Sasalstošais lietus turpina paralizēt Minhenes lidostas darbību
+-  Поезд «Иволга 4.0» запустят на новых диаметрах в Москве в 2024 году
+-  Ministarstvo pravde: Odbaciti kandidaturu Sanje Jovićević, u sukobu je interesa
+-  Oxford yılın kelimesini seçti: Rizz
+-  NBA》昔日最亮招牌不復當年「勇」 美媒：落入凡間的勇士正在死去...
+-  Unikátní hodiny na Florenci opět ukazují světový čas
+-  Estas son las gasolineras más baratas tras la bajada del precio de la gasolina
