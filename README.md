@@ -1,51 +1,51 @@
 # Latest News
--  Adrian Khalif Rilis EP mr. Menawan Setelah 4 Tahun Penantian
--  TPB: CBTT Nghị quyết HĐQT thông qua cấp HM tín dụng cho FPTS
--  VCC: Nghị quyết Hội đồng quản trị
--  REE: Thông báo thay đổi giấy chứng nhận ĐKDN lần thứ 29
--  HOSE: Thống kê giao dịch tự doanh (ngày 05/12/2023)
--  TDP: Nghị quyết HĐQT về việc thông qua bộ hồ sơ đăng ký chào bán thêm cổ phiếu ra công chúng
--  TDP: Nghị quyết HĐQT về việc điều chỉnh phương án sử dụng vốn chi tiết thu được từ đợt chào bán thêm cổ phiếu ra công chúng
--  OPC: Thông báo thay đổi nhân sự
--  VPD: Thông báo thay đổi nhân sự công ty
--  FDC: CBTT Nghị quyết HĐQT thông qua lựa chọn nhà thầu
--  DRL: Thông báo ngày ĐKCC tạm ứng cổ tức đợt 2 năm 2023 bằng tiền
--  KPF: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Nguyễn Khánh Toàn
--  RDP: Thông báo giao dịch cổ phiếu của người nội bộ Đỗ Minh Luân
--  BTD: Ngày đăng ký cuối cùng trả cổ tức bằng tiền mặt
--  PLX: Petrolimex Aviation "mở hàng" tiếp nhiên liệu cho các chuyến bay từ Cảng hàng không Điện Biên mới
--  PTC: Thông báo nhận được Hồ sơ đăng ký chào mua công khai cổ phiếu PTC của Ông Võ Anh Linh
--  DSD: Ngày đăng ký cuối cùng Đại hội đồng cổ đông bất thường năm 2024
--  CT6: Phan Quốc Hiếu - Ủy viên HĐQT - đã mua 800 CP
--  IDI: Nghị quyết HĐQT về việc chuyển nhượng toàn bộ phần vốn góp tại CTCP Tư vấn và Đầu tư Tài chính
--  FPT IS sở hữu bằng sáng chế đầu tiên tại Mỹ
--  DRC: Nghị quyết HĐQT về việc thông qua phương án tạm ứng cổ tức năm 2023 bằng tiền
--  DIG: Thông báo giao dịch cổ phiếu của người có liên quan đến người nội bộ Lê Thị Hà Thành
--  CEG: Vũ Thị Mai - người có liên quan đến Ủy viên HĐQT - đã bán 53.005 CP
--  TV2: Thông báo ngày ĐKCC chi trả cổ tức năm 2022 bằng tiền
--  Nghèo ở thủ phủ ‘vàng xanh’ [Bài 1]: Bốn đời trồng luồng vẫn không khá nổi
--  Tăng cường hợp tác đào tạo nhân lực chất lượng cao giữa Đà Nẵng và Malaysia
--  Kỳ tích cao su Việt Nam trên đất Campuchia kỳ 5: Đổi đời theo dòng vàng trắng
--  Đường sắt chở hàng Việt Nam-Trung Quốc tại Quảng Tây thực hiện hơn 1.000 chuyến
--  OCB: Thông báo nhận được đơn đề nghị chấm dứt HĐLĐ của Kế toán trưởng
--  (Видео) Силен земјотрес ги погоди Филипините, граѓаните на Манила истрчаа на улиците
--  Άκης για Βόλος Ολυμπιακός : «Κυβερνητική εντολή – Παίρνουν πέναλτι για πλάκα Παναθηναϊκός και ΑΕΚ» (vid)
--  Bahnhof-Ranking: Die letzten sechs Plätze gehen an Deutschland
--  U arrestua për blerje votash në zgjedhjet e 14 majit, SPAK mbyll hetimet për Klodian Kapidanin
--  «Fingere l’orgasmo con lui è stato facile»: Meg Ryan torna su quella celebre scena con Billy Crystal
--  Zbuloni ditën më romantike të muajit dhjetor për të gjitha shenjat e horoskopit
--  Wie alles begann: Über die auratische Macht von Geschichten
--  Sopeuttamista kyllä, ei äkkipysäystä
--  EU-hof geeft Engie en Luxemburg toch gelijk over belastingen
--  Minister bezorgd om laag niveau basisvaardigheden van scholieren
--  هل تغني إليسا أغاني أحدث ألبوماتها في السعودية؟
--  Hanneke Schaap-Jonker over haar geloof en de psychologie. 'Misschien raakt Gods liefde ons te weinig'
--  Bursa Orhangazi'de kahya, çiftlikteki barakasında ölü bulundu
--  Mustafa Orkun Gazioğlu CHP Osmangazi Aday Adaylığı başvurusunu yaptı
--  Muğla'da balkonda yetiştirmeye başladığı bambunun fidanlığını kurdu
--  Antep fıstığına rekabet soruşturması
--  Bakan Yumaklı: Ata tohumu kullanımı ve satışıyla ilgili yasak yok
--  Bakan Bak: 800 bin depremzedeyi yurtlarımızda misafir ettik
--  İstanbul Havalimanı'nda 3,5 milyon liralık kaçak lüks eşyaya el konuldu
--  الخصاونة: الأردن بصدد إنشاء المركز البحثي المائي بالعقبة
--  Adalet Bakanı Tunç: Yetersiz olan 392 cezaevini kapattık
+-  Ngee Ann Poly alumna makes it to semi-finals of MasterChef Australia: Dessert Masters
+-  S'pore youths jump on lift handrails to dodge cockroach, only to meet another waiting outside
+-  Çorum'da peş peşe deprem!
+-  Premier Lig'den rekor yayın geliri!
+-  Vergi uzmanı, 3 Ocak'a dikkat çekti: Yüzde 25'lik ÖTV zammı yolda
+-  Şok mağazalara kafa tutuyor! Mont, bot kışlık ne varsa doldurdu getirdi: İşte indirimli 6 Aralık Kataloğu
+-  Cumhurbaşkanı Erdoğan, Katar'da çağrısını yineledi: Sorumluluk almaya hazırız
+-  Adım adım tarihe geçiyor! Okan Buruk'tan inanılmaz ortalama
+-  เพจ สู้ดิวะ เปิดบทส่งท้าย จาก "หมอกฤตไท" หวังเป็นพลังให้ผู้อื่น
+-  Un cura tras la decisión del torero Juan Ortega de ‘dejar plantada’ a Carmen Otte
+-  Kỷ lục gia 10.000m không đứng dậy nổi sau khi chạy giải marathon
+-  الملا: 200 مليون دولار وفرا سنويا من جهود خفض انبعاثات غاز الميثان بمصر
+-  ارتفاع أسعار السمك البلطي والبوري وانخفاض المكرونة في سوق العبور اليوم
+-  Success in the Digital Age: A Look at NetReputation’s Client Achievements
+-  Danske skoleelever går tilbage i matematik og dansk
+-  Лондон с крути мерки за затягане на имиграцията
+-  Гуардиола обясни защо Клоп е най-големият му съперник
+-  A Besiktas lesz az FTC ellenfele a nyolcaddöntőben
+-  OnePlus 12 5G With Snapdragon Gen 3 Chipset Launched In China: Price, Specifications
+-  “우리만 ‘옐로카드’ 걸게 했다” 루머에…중국인들, 한국 안 왔다
+-  So viele Teilzeitbeschäftigte wie noch nie
+-  Güney Kıbrıs’ta “otobüs krizi” nedeniyle yaklaşık 6 bin öğrenci okula gidemedi
+-  Британия запустит наблюдательные полеты над Израилем и Газой
+-  Công bố dữ liệu quan trắc giao thông, lộ diện con đường quá tải nhất TP.HCM
+-  Клуб Овечкина «Вашингтон» потерпел самое крупное поражение за пять лет
+-  Brücke der Verständigung : Wie die Spende eines jüdischen Apothekers bis heute nachwirkt
+-  Torino, è tornato il vero Vlasic: contro l’Atalanta ha fatto la differenza
+-  吳欣盈財產申報存款250萬擁3671萬股票、800萬珠寶 柯文哲存款2464餘萬
+-  UK airline launches copycat of Princess Diana’s famous £42k Virgin Atlantic sweatshirt – just in time for Christmas
+-  大叔挑戰澳門塔233公尺高空彈跳 落地後呼吸急促OHCA猝死！
+-  14奈米以下IC製程列國家核心關鍵技術 國科會：參考美韓標準訂定
+-  Corona-Zahlen in Nürnberg aktuell: Zahlen und Fakten aus der Region
+-  Today's 'Wordle' #899 Clues and Answer for Tuesday, December 5 Game
+-  עשו לו עין: אבא של בריטני ספירס איבד רגל בעקבות זיהום חמור
+-  Corona-Zahlen in Fürth aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  אז מה עושים בחופש חנוכה? המדריך המלא להצגות, אירועים ופסטיבלים
+-  "מתוך האפר והדם נביט אל העתיד": אמני ישראל בשיר תקווה
+-  התינוקת חיכתה לצאת? רופא נשים יצא לאפטר ובמזל שהה בלידת בתו
+-  Waarom mensen in hun verslaving blijven vastzitten
+-  ЦСКА 1948 пусна атрактивна оферта на билетите за последните си три мача за годината
+-  Corona-Zahlen in Erlangen aktuell: Neuinfektionen für Erlangen, Bayern und Deutschland
+-  신제일병원 박관석 원장, 제19회 보령의사수필문학상 대상 수상
+-  UOKiK bada, czy Scott Sportech Polska ograniczał konkurencję
+-  Usługi w Rosji rosły najwolniej od 10 miesięcy
+-  Meta porozumiewa się z IBM w sprawie AI. Będą dzieliły się technologią
+-  Крупнейший клад славянских монет XI века обнаружили в Германии
+-  Corona-Zahlen in Ansbach aktuell: Die Coronavirus-Daten im Überblick
+-  Tveir menn í gæsluvarðhaldi vegna gruns um mansal
+-  Corona-Zahlen im Landkreis Wunsiedel i.Fichtelgebirge aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Mæta tvíefldir til leiks eftir vonbrigðin í Laugardalnum – „Það svíður eiginlega mest“
