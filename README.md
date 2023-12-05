@@ -1,11 +1,51 @@
 # Latest News
--  Kinesisk statsstøtte beskyldes for at skabe overproduktion
--  'Iremos solos', asegura Dante Delgado
--  Asesinó Corral a mi madre, diputada Lilia Aguilar
--  Inquéritos sobre extração ilegal crescem até 102% em Mato Grosso
--  Javier Tebas es proclamado provisionalmente presidente de LaLiga
--  Sosyal Medya Yönetimi Fiyatları
--  Pakistan stars revel in historic series victory
--  Arturo Vidal contó cuándo va a decidir si va a Boca
--  الغرفة الامنية المشتركة بالجفارة تبحث اخر المستجدات حول ما انجزته من أعمال .
--  Le montant global des crédits immobiliers accordés est au plus bas depuis plus de 7 ans
+-  DA's cites lax executive as 'sixth Parliament's biggest failure'
+-  WATCH | A moving ally: CT artist covers taxis with art in support of Palestine
+-  Βανδή – Μπισμπίκης: Άφωνοι με τον διάλογο των γιων τους
+-  Archies Patenonkel greift durch: Harry und Meghan auf royaler Hochzeit wohl unerwünscht
+-  Klaasen’s absence from Test side an indication of Proteas’ need for flexibility
+-  Frans parlement wil e-sigaretten verbieden
+-  Tot dertig jaar cel voor moorden Lieshout en Amsterdam
+-  GfK: minder elektronica verkocht tijdens Black Friday
+-  Dodental loopt op na vulkaanuitbarsting Indonesië
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 6 декабря 2023 года
+-  Sanremo 2024, chi è BigMama: età, carriera, vita privata
+-  Infortunio Leao, lesione guarita: rientro e quando potrà giocare col Milan
+-  Is Laser Hair Removal for Teens a Good Parenting Decision?
+-  TreviPay Introduces All-in-One Payments Solution for Accepting Net Terms and Card Payments at Checkout
+-  Kolkata International Film Festival: কলকাতা চলচ্চিত্র উৎসবে প্রথমবার পা রাখলেন ভাইজান, উত্তরীয় পরিয়ে সম্মান জানালেন দেব
+-  اصابات في صفوف الجيش اللبناني جراء القصف الاسرائيلي... اليكم كم بلغ عددهم!
+-  Londýnský soud řeší stížností prince Harryho na odebrání ochranky
+-  "לא יכולתי ללכת": ג'יימי פוקס הופיע לראשונה בציבור מאז אישפוזו
+-  מחבלי חמאס סיממו חטופים עם קלונקס; פסיכיאטר: "זה פשע מלחמה"
+-  Ολυμπιακός: Ανακοινώθηκε ο Άλβες - Τέλος ο Μαρτίνεθ | Νέος προπονητής ο Καρβαλιάλ
+-  الصحفي معتز عزايزة يفقد صديقه ويودعه بكلمات مؤثرة
+-  اتفاقية تعاون بين جامعة البترا وشركة أفضل لقطة للإعلام
+-  الأغذية العالمي يعلق أعمال التوزيع في شمال اليمن
+-  مختص يحذر : هذه العادة تصيب العين بالجفاف الشديد
+-  All is well: Aamir Khan, Tamil actor Vishnu Vishal rescued after devasting Chennai floods [see viral pics]
+-  7 علامات تشير لانخفاض مستوى المغنيسيوم لديك
+-  Brésil: la croissance du PIB ralentit à 0,1% au 3e trimestre
+-  Cyprus puts strong showing at major European startup festival
+-  Britain to conduct surveillance flights over East Med
+-  Pixel Camera update (v9.2) brings Night Sight Time Lapse to Pixel 8; UI redesign, Ultra HDR & Rich color to older Pixels
+-  عودة الاتصالات والإنترنت بشكل تدريجي وسط وجنوب غزة
+-  كتاب دوري من 4 نقاط.. التعليم تحدد موقف المدارس خلال الانتخابات الرئاسية
+-  عودة المصريين بغزة وتوفير الدولار.. وزيرة الهجرة تكشف مستجدات المصريين بالخارج -حوار
+-  "اعتذارك مش هيفيد".. عبدالملك يصدم فتوح ويكشف شرط عودته للمباريات
+-  مصدر يكشف تطورات حالة مدافع الأهلي.. وموعد عودته للتدريبات
+-  تناولت سم فئران.. لماذا حاولت الزوجة القاصر إنهاء حياتها في الدقهلية؟
+-  قتل أمه وشرب دمها.. تفاصيل جريمة "الابن الدراكولا" في الجزائر
+-  المشاط تشارك في إطلاق شراكة تعزيز قدرة المرأة على التكيف مع تغيرات المناخ
+-  أعراض مبكرة تنذر بتليف هذا العضو في جسمك.. احذرها
+-  세계1등 친절도시 문경 만들자
+-  한전 경북본부, 2023년 구미산단 에너지자급자족 페스티벌 개최
+-  경북도의회 예결특위 2024년도 도교육청 예산안 심사
+-  연규식 도의원, '경상북도 무형문화재 보전 및 지원에 관한 조례 일부개정조례안' 발의
+-  손희권 경북도의원, "학교명 선정 심의, 지역민도 함께 해야"
+-  박순범 경북도의원, 영유아도 무상교육으로 전환 필요
+-  Uk: Dogovoreno je da se nastavi sa započetim usvajanjima zakona i odluka na nivou VMBiH
+-  Λευτέρης Αυγενάκης: Η Ελλάδα μπορεί να γίνει παγκόσμιος πρωταγωνιστής στον αλιευτικό τουρισμό
+-  John Kerry: Former Secretary of State Accused of Farting During Climate Speech in Dubai as Social Media Jokes about His Emissions [WATCH]
+-  Explosionsgefahr im Tank: Flugsicherheitsbehörde gibt Warnung für Boeing 747 heraus – Lufthansa betroffen
+-  Europa "debe poner fin a la doble moral" en el suministro de alimentos a los países del tercer mundo
