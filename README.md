@@ -1,11 +1,51 @@
 # Latest News
--  한국어촌어항공단, 대학생 서포터스 ‘휘파랑이 3기’ 해단식 개최
--  한국사회복지협의회, ‘대학생 멘토링 동아리 지원사업’ 최종 평가회 성료
--  한국어촌어항공단, ‘2023 대한민국 지속가능경영대상’ 수상 영예
--  중앙사회서비스원, 제2차 콜렉티브 임팩트 포럼 개최
--  경상남도, '2023년 게임 스타트 아카데미' 성과공유회 개최
--  ‘플레이모빌 피규어 딸기와플’ 출시
--  안티에이징 브랜드 런슬로우, 2023 호치민 종합박람회 참가
--  로커스, 지분구조 변경과 신규투자 유치.. 기업공개(IPO) 채비 나서
--  아이들의 마음챙김 명상 돕는 그림책 ‘내 마음은 소중해’ 출간
--  SG생활안전 ‘필슨’, 누깍과 함께 업사이클링 프로젝트 진행
+-  Maxwell eyes off shock red-ball return for World Test Championship series
+-  에퀴닉스 “IT 인재와 인프라 부족이 국내 디지털 혁신과 AI 개발 저해”
+-  메가존소프트, 알리바바 클라우드와 엔비디아 A100·A10 GPU 칩셋 독점 공급
+-  알리바바 클라우드, 멀티모달 기능 갖춘 LLM 4종 오픈소스로 공개
+-  영월군, 아동·청소년 안전을 위한 태양광 LED 건물번호판 설치
+-  강원농협, 사랑의 연탄봉사 실시
+-  צו סגירה למחלקות המזון הטרי בשופרסל אשדוד: "זיהום, עובש, לשלשת ציפורים"
+-  הארדן: "סיימתי להקריב. אני רוצה כסף, ולנצח ברמות הגבוהות ביותר"
+-  Lebanon's Christians feel the heat of climate change in its sacred forest and valley
+-  Shiba Inu Burn Rate Rockets 7,687,000% After Key Updates, What’s Next For SHIB?
+-  Boston Woman Killed in Shark Attack Near Bahamas Resort: Cops
+-  LGU+ 임직원, 세이브더칠드런 아동식사지원 사업 기부
+-  Langeweile - ein unterschätztes Alltagsgefühl
+-  Výbuch sopky v Indonézii si vyžiadal viacej obetí! Po nájdení tiel dvoch horolezcov už ich je toľkoto
+-  ইতিহাসের এই দিনে: পাঁচটি সামরিক উড়োজাহাজ ‘গায়েব’
+-  Hľadaný muž vyčíňal pri zatýkaní! Dvaja poľskí policajti utrpeli vážne strelné zranenia a zomreli
+-  Kickoff | OFFICIAL: CAF reveals top goals shortlist, Downs star features!
+-  Hafif Ticari Aracın Çarptığı Yaya Yaşamını Yitirdi
+-  Football Weekly completes podcast of the year hat-trick at 2023 FSA Awards
+-  'I love the gameplan': Kulusevski backs fearless Tottenham to be at the top
+-  Calhanoglu 2.0 lives up to his big talk and shatters Mazzarri's Napoli revival
+-  Luis Enrique has a dilemma at PSG: pick a shot stopper or modern keeper?
+-  Championship: Sunderland sack Tony Mowbray, Swansea dismiss Michael Duff
+-  Nine people with Dutch ties leave Gaza Strip
+-  İzmir merkezli 9 ilde FETÖ'nün sözde TSK yapılanmasına operasyon
+-  Ferudun Niğdelioğlu yazdı: TFF'ye teslim olmak
+-  FETÖ meşruiyet arıyor
+-  İsrail, DSÖ'den Gazze'deki deposunu boşaltmasını istedi
+-  Manisa'da kaza: 12 kişi yaralandı
+-  Bahçeşehir Koleji, evinde Legia Varşova ile karşılaşacak
+-  Yarı yarıya düştü! Galatasaray, Nelsson'da indirime gitti
+-  Fenerbahçe Opet evinde Potsdam'ı konuk edecek
+-  VakıfBank sahasında Jedinstvo Stara Pazova ile karşılaşacak
+-  When Hrithik Roshan Received Over 30,000 Marriage Proposals Post His Debut Film
+-  Jika Diabetes Tak Dikelola dengan Baik Bisa Memicu Retinopati Diabetik
+-  Baza: беспилотники ВСУ пытались атаковать нефтебазу в Крыму
+-  Shivangi Joshi On Ranbir Kapoor's Animal: ‘He's A Master At His Craft’
+-  Objavljen trailer za GTA 6: Poznati prvi detalji, igra stiže 2025. godine
+-  রাজনীতির মাঠে সাকিবের প্রতিদ্বন্দ্বী যারা
+-  Üsküdar'da "Boykot Masası" Paneli Gerçekleştrildi
+-  Nuclear Power and Climate Change: Evaluating its Long-Term Sustainability
+-  Заблудившихся ночью в лесу рыбаков спасли на Ставрополье
+-  ‘Dunki’ trailer: Pefectly blended
+-  Забарний: Я можу покращувати свою гру
+-  «Σουλτάνα» του Πέτρου Λενούδια, για δεύτερη χρονιά στο Θέατρο Παραμυθίας
+-  Der Skoda Fabia beim Tüv: Nur ein bisschen ausgebremst
+-  경상원, 경기도서 서울로 오고 가는 이유는? '음식'
+-  Баня сгорела дотла в поселке Карелии
+-  Lämnade labbet för gotländsk getost
+-  NX Philippines and NX Logistics Philippines Participate in Philippine Semiconductor and Electronics Convention and Exhibition (PSECE)
