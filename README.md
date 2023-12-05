@@ -1,11 +1,11 @@
 # Latest News
--  รมช.คมนาคม แสดงความเสียใจรถทัวร์ชนต้นไม้ที่ประจวบฯ สั่งดูแลช่วยเหลือเต็มที่
--  من بلدة عدلون.. شهيد جديد لحزب الله
--  DiscoverIE augmente son dividende intÃ©rimaire en raison de la croissance de ses bÃ©nÃ©fices
--  THG achÃ¨te la marque de soins Biossance pour 20 millions USD
--  Crocodile park: Do you know about this breeding centre of crocodilians in Tamil Nadu
--  Mevduat faizlerini duyan bankaya koştu! O bankalardan faiz güncellemesi: Aylık neredeyse bir kira getirisi var
--  'Hermanos' lidera con claridad frente a la final de 'El Conquistador' y el especial de Julio Iglesias
--  "ณัฐภาณุ นพคุณ" รองโฆษกบัวแก้ว เสียชีวิตแล้ว
--  Наши бонды: почему FRHC финансирует развертывание 5G-сети за счет облигаций?
--  Piles à combustible: Symbio inaugure aujourd'hui sa "Gigafactorie"
+-  Chennai MSMEs Suffer Heavy Losses Due To Cyclone Michaung
+-  איזה צ'ארלס, צ'ארלס שלנו? ההערה הגזענית שמביכה את בית המלוכה
+-  דגו: "אנחנו צריכים להיראות כמו מכבי חיפה, אין תירוצים"
+-  السعودية وقطر.. ثوابتٌ راسخةٌ تؤطرها أواصر الأخوة والمصير المشترك
+-  No immediate plan to cut EV taxes in South Africa
+-  Политолог объяснил падение уровня поддержки Зеленского на Украине
+-  Как укрепить вены и победить варикоз при помощи натуральных средств
+-  Munas Pilih Ketua Umum Kohati PB HMI
+-  Restorasyon çalışmasında duvar faciası: Diyarbakır Sur'da bir işçi hayatını kaybetti
+-  Nijerya Hava Kuvvetleri yanlışlıkla köyü bombaladı: 85 kişi hayatını kaybetti
