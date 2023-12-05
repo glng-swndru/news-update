@@ -1,11 +1,51 @@
 # Latest News
--  Detroit on track to record fewest homicides since 1966, officials say
--  Výroba modelu Superb v Bratislave odštartovala
--  Midagri: Gobierno descartó negociación del Bono BETA
--  Agriculture : Agro Care va construire une serre canarienne au Maroc
--  'Is this something to celebrate #smallersizebiggerprice?': Shoppers share images of chocolate boxes from 2009 towering over today's containers - as research shows how Christmas faves are being hit by 'shrinkflation'
--  Über eine halbe Million Menschen besuchten bisher das sanierte Parlament
--  Ασφαλής η κατανάλωση ψαριών από τον Παγασητικό μετά τις πλημμύρες από την κακοκαιρία, λέει ο ΕΛΚΕΘΕ
--  Συμμετοχή της ΕΛΑΣ σε παγκόσμια επιχείρηση για την καταπολέμηση της μεταφοράς παράνομου χρήματος
--  Verhandlungen mit Südamerika: Wem nützt Freihandel?
--  Kano: leave Gov. Yusuf alone, let peace reign – NNPP founder
+-  روسيا وايران توقعان اتفاقا حول مواجهة العقوبات أحادية الجانب
+-  News24 Business | US 'blank cheque' firm in talks to merge with South African gold mine
+-  Dental Autoclave Market Size, Share and Scope Analysis to 2031
+-  Wall Street : scores contrastés après des indicateurs mitigés
+-  Minor league football coach and wife allegedly arranged sex with underage girl because ‘wife likes them young’
+-  Will GTA 6 have Online? Everything we know so far
+-  A Szegedi Tudományegyetem és az ELTE holtversenyben lett a legjobb magyar egyetem a QS fenntarthatósági rangsorában
+-  When is GTA 6 set? Grand Theft Auto timeline explained
+-  Erick Wujudkan Inklusivitas BUMN lewat Mitra BUMN Champion 2023
+-  Warum Schweizer Banken mit ihrer Kreditvergabe ein hohes Risiko eingehen
+-  Student Drowns In Hotel’s Swimming Pool In Edo
+-  West Indies successfully chases down target of 326 vs England in 1st ODI
+-  Free PM from work burden of numerous universities&#039;
+-  PrimePak Unbleached – A Sappi Success
+-  Continuous Basalt Fiber Market User Demand, Growth Analysis, Benefits and Regional Overview at CAGR of 7.5% by 2030
+-  Вышел трейлер GTA 6. Что известно о самой ожидаемой игре Rockstar Games
+-  Crash d'un avion de tourisme en pleine ville : "du jamais-vu depuis des décennies en France"
+-  تزوير الفيزا والاتجار بالبشر يطيحان بشخصين في تطوان
+-  إنجازات وأرقام قياسية يحققها مطار الملك خالد الدولي
+-  Olympia 2024: Starterlaubnis für Russen bei Olympia?
+-  Komend weekend en volgende week minder treinen rondom Schiphol
+-  Proč devizové rezervy ČNB nyní rozpočtu nemohou pomoci (Jan Kubíček)
+-  US job openings drop to lowest level in more than two years
+-  U GRO Capital, Laghu Udyog Bharati join hands to empower MSMEs
+-  Apie svetimus pinigus, Jomantą „Ryte“ ir LKL Kūčių vakarą (Savas kiemas Q&A)
+-  الزمالك يعلن شروط العفو عن أحمد فتوح
+-  Hohe Einbruchgefahr: Berliner Feuerwehr warnt vor dem Betreten von Eisflächen
+-  Mit wem tuschelt er hier? - Geheimnisvolles Tuchel-Treffen in München
+-  Эдуарда Бабарико внесли в «список террористов»
+-  محافظ بورسعيد يلتقي الشباب الحاصلين على وحدات صناعية بمجمع الصناعات الثالث
+-  Podemos rompe con Sumar y se pasa al Grupo Mixto en el Congreso
+-  هوجارد يتأهب للمشاركة في بطولة دبي العالمية للجولف
+-  „Last Christmas“ und Co.: Warum kommt der nervige Weihnachts-Pop jedes Jahr wieder?
+-  SVI DETALJI O PORODICI MILA ĐUKANOVIĆA Žena Lidija bila u centru medijske pažnje zbog narukvice od 22.700 dolara, a o svadbi SINA JEDINCA svi su brujali
+-  Kickoff | Serero’s creamy UAE package disclosed
+-  Kickoff | Starting XIs: Pirates v Swallows
+-  Urban sports, arts and (counter) culture film to debut soon in Kilkenny
+-  Why Delhi’s air quality remains in the red despite a fall in stubble burning
+-  NIS2 a nový zákon o kybernetické bezpečnosti
+-  Sandiaga Pede Kunjungan Wisman 2023 Bakal Tembus 11 Juta Orang
+-  Rosja w szponach "spektakularnego" mrozu, nawet do -60 st. C. Sroga zima zmierza do Moskwy
+-  Para los indígenas, el mercado de carbono para el clima se ha convertido en una “cacería”
+-  Ανθρωποκυνηγητό για τον εντοπισμό του συντρόφου της 43χρονης που δολοφονήθηκε στη Σαλαμίνα – Που στρέφονται οι έρευνες
+-  Vremea arctică lovește Rusia: Temperaturi de -58°C în Siberia. Cum s-au pregătit localnicii
+-  Master Chief Is Humanity’s Best Hope in First Look Trailer for Halo Season 2
+-  Le Sélectionneur de l’Albanie : »Les Lions de l’Atlas sont un modèle inspirant et une référence » !
+-  ¿Las pantallas distraen en el aula? El 30% de los alumnos de PISA dicen que sí
+-  ¿Las pantallas distraen en el aula? El 30% de los alumnos de PISA dicen que sí
+-  Alles Fake, oder was?: Warum Ärzte den Social-Media-Filtern an den Kragen wollen
+-  Le rand sud-africain s'affaiblit avant la publication du PIB du troisième trimestre
