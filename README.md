@@ -1,11 +1,11 @@
 # Latest News
--  Guardiola allo scoperto: "La gente non ci crede, ma lo faremo di nuovo"
--  FIDS Piemonte - Galà di Natale 2023 della Danza Sportiva
--  In campo per la 10a giornata, apre Castellana Grotte-Aversa
--  “Conte mostro e maestro, spesso vomitavo”: i segreti degli allenamenti Juve
--  Master della ValleBelbo Sport pronti per i campionati italiani
--  NAISDA winds up year with stunning performance
--  Car made ‘intentional contact’ with cruiser during arrests: Cobourg police
--  Tackling Tobacco: November 2023 Legislative & Regulatory Roundup
--  This $12.6 Million Home in the British Isles Has Some of Jersey’s Most Famed Gardens
--  WEtv Orders Reality Series ‘Bold & Bougie’ Featuring Malaysia Pargo, Tameka Foster & Princess Banton-Lofters
+-  Karşıdan karşıya geçmek isterken canından oldu
+-  Ter Stegen'den Barcelona'ya kötü haber!
+-  FBI'den ABD Kongresine ülke dışında izinsiz gözetleme yetkisinin uzatılması çağrısı
+-  İsrail'in saldırılarında şehit olan Filistinli sayısı 16 bin 248 oldu
+-  Alex Oxlade-Chamberlain'dan çarpıcı açıklamalar! "Atmosfer beni cezbetti"
+-  Halevi: Tünelleri suyla doldurmak iyi bir fikir
+-  DSÖ, İsrail'in baskısıyla deposunu taşımasının ilaç tedarikini geciktireceğini bildirdi
+-  Türkiye'nin GÖKTÜRK-1 uydusu dünyanın etrafını 37 bin 378 defa turladı
+-  Destroza su Renault en curva de la Mirador y Washington
+-  Presentó curva de Covid 'discreto ascenso' de positividad: Salud
