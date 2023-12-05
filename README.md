@@ -1,51 +1,11 @@
 # Latest News
--  Kickoff | Mkhonza: Lack of silverware the cause of racial tensions at Chiefs
--  Hamas-Tunnelsystem: Israel könnte offenbar Gaza-Tunnel fluten
--  ПВО РФ уничтожили 22 украинских БПЛА, еще 13 перехвачено над Азовским морем и Крымом
--  Djed i baka ovršeni: Moraju plaćati alimentaciju nakon smrti svog sina, a unuke čak i ne viđaju...
--  Lake Alexander in the Northern Territory closed after reported shark sighting at man-made Darwin swimming spot
--  La prima pagina de La Gazzetta dello Sport titola così: "Inzaghi vedo le stelle"
--  Benarkah Kelelahan Dapat Menyebabkan Tipes?
--  Jutro uz -4, snijeg i poledicu. Na Jadranu obilna kiša i grmljavina
--  Hrvatske ekološke bombe: Od Osijeka do Pazina, smeće je problem koji nadilazi gradske i lokalne vlasti
--  12월 아파트 분양전망지수 8.9포인트↓... "건설사·수분양자 소극적 자세로 돌아서"
--  IHSG Melemah di Sesi Pertama Hari Ini, Sektor Teknologi Turun Paling Dalam
--  Las mega prestigiosas marcas que eligió Máxima de los Países Bajos
--  La foto subida de tono Gastón Dalmau para celebrar sus 40 años
--  Що не так із новим правописом. Популярна мовознавиця звернула увагу на проблеми
--  [엔시스, 45억 규모 2차전지 화성공정 설비제작 공급계약
--  [건보공단, 약값 상한 협상 위한 가이드라인 제정
--  [근로복지공단, 상품권으로 임금인상 ‘꼼수’…직원들에 8.5억 지급
--  [‘이건 반전이네~” 이병선 속초시장, 정부긴축재정 기조에도 노인 일자리 늘렸다
--  [‘다시 찾고 싶은’ 드림파크 야생화단지… 방문객 재방문 의사 99%
--  [3.8㎞ 떨어진 러군 명중시켰다…‘세계기록’ 58세 우크라男 정체
--  [‘유일한 여직원’ 미쓰 심의 30년 외길 인생…“영화계 여성파워 절실” [이현정의 프리즘]
--  [여수해경 40대 경감 해양경찰청장 표창 받아
--  [한국앤컴퍼니그룹 정기 인사…이수일 대표이사 부회장 승진
--  [최정우 포스코그룹 회장, UAE서 ‘탄소중립·기술혁신’ 강조
--  ['아내 살해 교통 사고 위장' 육군 부사관 징역 35년 중형 선고
--  HH visits tragedy site
--  Pengamat Sebut IKN Punya Potensi Jadi Proyek Bancakan Korupsi
--  ¡De película! Conductor de camión con reporte de robo protagoniza caos y persecución en Mazatlán
--  نادي سيئون يفوز على الاتفاق في بطولة كأس اليوبيل الذهبي لإذاعة سيئون
--  NBA》散步被車撞還遭外界質疑 烏布瑞坦言很艱難、並回嗆酸民
--  Neue Apple Watch Ultra: Verblüffendes Video aufgetaucht
--  Медики осмотрели 120 человек, прибывших в Москву из Газы
--  Иккинчи жаҳон уруши йилларида Андижон саноатидаги ўзгаришлар
--  Акциядорлик жамиятларида инвестицион фаолиятни молиялаштиришни такомиллаштиришнинг баъзи масалалари
--  منخفضات جوية متتالية... انخفاض كبير بدرجات الحرارة
--  Le aperture dei quotidiani italiani e stranieri di oggi, martedì 5 dicembre
--  Três meses após ciclone no RS, moradores seguem alojados em ginásio ao lado de entulho; VÍDEO
--  NRL hard man Jarrod Wallace taken to ‘dark places’ in month-long battle to prepare for boxing bout
--  진안군, 시설원예분야 평가서 우수 지자체 선정
--  «Шахеди» та керовані ракети: що відомо про нічну атаку на Україну
--  DJ Umek prvič iskreno: "O tem še nikoli nisem govoril v intervjujih"
--  Kisah Doni Monardo Bebaskan Sandera Kapal MV Sinar Kudus dari Perompak Somalia 12 Tahun Lalu
--  Ukrajinská hviezda zo zákopov: Čím dlhšie tá hrôza potrvá, tým viac ľudí okolo mňa zahynie
--  Blaženi Niels Stensen – veliki znanstvenik i biskup koji je boravio u Hrvatskoj
--  Da chegada ao Brasil à prisão pela PF: o passo a passo do português suspeito de tráfico de bebês em SP
--  Yan Dhanda already striking strong understanding with new Ross County boss Derek Adams
--  Church of Scotland: More transparency for big landowners is vital, but don’t punish charities
--  Beed Shasan Aplya Dari : बीडच्या परळीत शासन आपल्या दारी कार्यक्रमाची जय्यत तयारी
--  نصائح اختيار اسم دومين جديد
--  WSJ: Израиль готов затопить тоннели ХАМАС морской водой, помпы уже установлены
+-  한국어촌어항공단, 대학생 서포터스 ‘휘파랑이 3기’ 해단식 개최
+-  한국사회복지협의회, ‘대학생 멘토링 동아리 지원사업’ 최종 평가회 성료
+-  한국어촌어항공단, ‘2023 대한민국 지속가능경영대상’ 수상 영예
+-  중앙사회서비스원, 제2차 콜렉티브 임팩트 포럼 개최
+-  경상남도, '2023년 게임 스타트 아카데미' 성과공유회 개최
+-  ‘플레이모빌 피규어 딸기와플’ 출시
+-  안티에이징 브랜드 런슬로우, 2023 호치민 종합박람회 참가
+-  로커스, 지분구조 변경과 신규투자 유치.. 기업공개(IPO) 채비 나서
+-  아이들의 마음챙김 명상 돕는 그림책 ‘내 마음은 소중해’ 출간
+-  SG생활안전 ‘필슨’, 누깍과 함께 업사이클링 프로젝트 진행
