@@ -1,51 +1,51 @@
 # Latest News
+-  Тошкентда жиноятда гумонланаётган яна бир шахс қўлга олинди.
+-  Ўзбекистонда йил бошидан бери 26 та ноқонуний майнинг фермаси аниқланди.
+-  Туркманистонда президент шарафига номланган клуб бирорта очко йўқотмасдан чемпион бўлди .
+-  ОЧЛ. «Пахтакор» «Ал-Файҳа»га йирик ҳисобда мағлуб бўлиб, гуруҳда 3-ўринда қолиб кетди.
+-  שעתיים לפני המשחק: שחקני אשדוד והפועל ת"א הסתתרו במיגוניות
+-  איתמר נוי בהרכב הפועל חיפה, רז שטיין ב-11 של הפועל פתח תקוה
+-  Celebran el Día del Constructor en Sancti Spíritus
+-  CpM plantea sus dudas sobre el futuro de la residencia de estudiantes
+-  Tokio Hotel gehen 2025 auf Europa-Tournee
+-  Vuelca tráiler con varillas en carretera a Juárez
+-  Casi invisible paso peatonal en la Homero y Tecnológico
+-  Operará próximo año nueva brigada vs incendios en Guadalupe y Calvo
+-  Llegan solo 21 afectados a segunda audiencia de Aras
+-  Más del 50% de los trabajadores destinará aguinaldo al pago de deudas
+-  Fife-based education secretary Jenny Gilruth faces big test as Scotland slips down global ranking
+-  Residents raise concerns with excess ash allegedly coming from Port Wentworth Mill
+-  CBF produz taças do Brasileirão para Palmeiras, Atlético-MG e Flamengo; entenda a logística
+-  ‘Feud: Capote Vs. The Swans’ Gets FX Premiere Date; Details Of Second Installment Of Ryan Murphy’s Anthology Series
+-  EU upozorava na pojačan rizik od terorističkih napada za Božić
+-  Денков видял в "Пирогов" злоупотреби, Борисов: Брутален акт
+-  EUA quer impedir Nvidia de fazer GeForce para mercado chinês
+-  Oppo Find X7 Pro se filtra con un llamativo diseño de su isla de cámaras
+-  PS Store: Weniger als 1 Euro – Arcade-Racer der alten Schule lockt mit Schnäppchenpreis
+-  Панче Жежовски е погребан денеска
+-  Reverse Rising Rate of Antidepressant Prescriptions, Urge Experts
+-  Dünya Kahve Günü'ne özel araştırma: Gençler en çok kiminle kahve içmek istiyor?
+-  Buruh yang Tendang Satpol PP Surabaya Menyerahkan Diri ke Polisi
+-  Decisão sobre aeroporto deve ser tomada por próximo Governo, diz Ventura
+-  “Quitaron la leche de los niños, pero Cuba ahora está mejor”: El Micha
+-  Câncer deve ser a maior causa de mortes no Brasil até 2030
+-  نائب محافظ المنيا يتفقد مصابي حادث أتوبيس الصحراوي
+-  البيئة: ضبط عدد من الطيور المهددة بالانقراض قبل بيعها بمنطقة قايتباي بالإسكندرية
+-  "كان خياري الأول برشلونة".. ميسي يعلق على اختياره كأفضل رياضي لعام 2023 من مجلة تايم
+-  مايا مرسي من "كوب 28": ما يحدث في فلسطين "انهيار لمنظومة الأمن الإنساني"
+-  قوات الدفاع الجوي تنظم منتداها العلمى الأول على هامش "إيديكس 2023"
+-  Sangue na urina? Saiba quando há motivos de preocupação
+-  Na GPW zwyżka, ale z niedosytem
+-  Amy Robach And T.J. Holmes Break Silence On “Year Of Hell” Since Their ‘GMA3’ Firing
+-  Rui Borges quer valorizar Moreirense ainda mais após "acordo fácil"
+-  دورتموند يسعى لرد اعتباره أمام شتوتغارت في كأس ألمانيا
 -  Strengthening ties, Lidl Cyprus holds first ‘Supplier Day’
+-  Aneel define agenda 2024/25 e inclui reforços de redes de energia para clima extremo
+-  تشديد مصري - قبرصي على ضرورة التهدئة وتدفق المساعدات لغزة
+-  Emirates World Rugby Match Officials confirmed for Guinness Six Nations
+-  Se eleva a 22 la cifra de muertos por la erupción del volcán Marapi en Indonesia
+-  Roberto De Zerbi analyses Enzo Fernandez goals for Chelsea
+-  Missing man traced
+-  State’s attorney race shaping up in Bureau County
 -  HENKEL VORZUEGE: ancora rating Neutral per JP Morgan
 -  HENKEL VORZUEGE : JP Morgan vindt het aandeel niet inspirerend
--  MotoGP, Aprila dà il benvenuto al Team Trackhouse: è ufficiale
--  Polveriera United, Ten Hag si ribella: “Alle nostre spalle? Così non è corretto”
--  Basket Torino: preview Reale Mutua Torino vs Real Sebastiani Rieti
--  Cade dalla Vespa e tenta la truffa: la lascia per strada simulando un furto
--  I migliori "scambi" della Juve: Szczesny sorprende, Chiesa e Fagioli top
--  JPMorgan belässt Henkel auf 'Neutral' - Ziel 70 Euro
--  Under 16 Regionali: Albese-Asca 1-3
--  পররাষ্ট্র প্রতিমন্ত্রীর বার্ষিক আয় বেড়ে প্রায় ৮ কোটি টাকা
--  Derbi donio poražavajuće brojke: Zar navijače ne privlači mega-momčad? ‘Klub nije ispunio obećanja‘
--  Иқтисодиёт ва Молия вазирлиги коррупцияга қарши (+видео)
--  Πιστιόλης: «Παναθηναϊκός και Ολυμπιακός δείχνουν ότι ανήκουν στην τετράδα της EuroLeague»
--  Meghan Markle, Prince Harry’s royal titles could be stripped by UK lawmaker following bombshell book
--  Wie kamen Farben in unsere Welt?
--  AP High Court: ఎస్ఐ నియామకాలపై మధ్యంతర ఉత్తర్వులు ఎత్తివేసిన ఏపీ హైకోర్టు
--  Samenwerking noodzakelijk voor oplossen elektriciteitsprobleem
--  Is this why men in a midlife crisis buy supercars? People who drive premium cars are seen as better mates and being more intelligent, study finds
--  Otro lío: Manchester United vetó a cuatro periodistas por artículo sobre ‘camita’ a Ten Hag
--  Reba McEntire addresses sparkling ring on THAT finger - amid romance with Rex Linn
--  రోడ్ల నిర్మాణాన్ని గాలికొదిలేశారు..!
--  Slovenští poslanci vyzvali Sulíka, aby uhradil přes 15 milionů za škody na Expo v Dubaji
--  Historia de Guatemala: “es importante explicar el pasado con objetividad …no solo la visión del grupo dominante”
--  Var håller finansminister Elisabeth Svantesson hus?
--  Rufus Sewell is engaged! The Holiday actor, 56, proposes to US actress Vivian Benitez, 26, as she shares romantic snaps on social media
--  DEBEO DOSIJE GLAVNOG OSUMNJIČENOG ZA UBISTVO VANJE! Ima više od 10 presuda, jedna je i za PORODIČNO NASILJE!
--  3 PKK'lı terörist teslim oldu
--  TBMM'de bütçe görüşmeleri 14 gün sürecek
--  Büyükşen çifti cinayetinde flaş gelişme!
--  Bakan Ersoy açıkladı: Türkiye'de zeytin yetiştiriciliği UNESCO'ya alındı
--  68 Türk vatandaşı Gazze'den Mısır'a geçiş yaptı
--  Bakan Uraloğlu: Yatırımların artması için çalışıyoruz
--  ورشة لمشاورات شباب عدن ومركز حماية تناقش العنف ضد المرأة
--  Mardin'de 21 kişinin ölümüne neden olan iki tır şoförü de tahliye edildi
--  Major BURST PIPE disrupts water supply in parts of Durban
--  Solbet Perú: Opinión, análisis, bonos y ventajas de la casa de apuestas
--  El Meta Quest 2 tiene un preciazo de infarto en Amazon México, con meses sin intereses y garantía
--  Bay Area woman fatally hit by driver in foggy Walmart parking lot, police say
--  GEN Grupa: Želimo postati vodeći regionalni proizvođač i opskrbljivač niskougljičnom energijom
--  Kelly Clarkson, 41, flaunts her newly slender figure in a skintight top and belted skirt... after losing weight this summer (but she STILL won't say how)
--  Ove srijede zenički MNK Salines-Neimari domaćini ekipi GFC Sarajevo u osmini finala Kupa BiH
--  Kaksi kuopiolaisravintolaa sulkee ovensa lopullisesti uudenvuodenaattona: "Olemme päättäneet lopettaa pyristelyn"
--  Bộ Công an: Không bắt buộc phải đổi bằng lái xe sang thẻ nhựa PET để tích hợp vào VNeID
--  تكريم الشركة الليبية للحديد والصلب بدرع التميز وذلك لما قدمته من دعم كبير للكرة الطائرة .
--  فوج الكشافة والمرشدات سوق الجمعة ضمن (مشروع لن تعطش درنة ) يقوم بتركيب منظومات معالجة وتنقية المياه في عدد من المواقع بدرنة سعة (16000 لتر) .
--  الهيئة الوطنية لمكافحة الفساد بالمنطقة الغربية تنظم برنامجا تدريبيا لموظفيها .
--  Doctors spot mysterious new condition in newborns that causes conjoined toes and 'rocker bottom feet'
--  Phil Spencer shares insight on Xbox's long-term strategy
--  Amazon e Aerodyne insieme per il mercato dei droni
