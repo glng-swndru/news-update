@@ -1,11 +1,11 @@
 # Latest News
--  카리나, 세련된 성숙미 발산
--  '살림남2' 정혁 父, 아들 비혼주의 발언에 근심 "주변서 결혼 얘기 없냐"
--  ‘낮 최고 16도’ 추위 누그러져…오후부터 중부 지방 등 비 소식
--  ‘대장동 의혹 증인’ 유동규 탄 차 대형 화물차와 충돌…병원 이송
--  “학살자 편히 잠들 곳 없다”…전두환 유해 파주 안장 ‘무산’
--  Bạc Liêu quy hoạch hơn 1.600ha làm muối
--  Tổng sản phẩm địa phương (GRDP) của Bình Định ước tăng 7,61%
--  Đến 2030, sẽ có thêm 21.000ha quy hoạch thành vùng nguyên liệu Sâm Việt Nam tại 9 tỉnh
--  Subirá la TUA a partir de enero
--  إسرائيل اعتقلت 21 عاملا بالمجال الطبي بغزة
+-  Willow Smith cuts a casual figure as she is spotted carrying activist tote bag while dining at Luna Lu in Sydney ahead of her appearance at the GQ Awards
+-  Arsenal marca no último minuto, supera o modesto Luton Town e se consolida no topo do Inglês
+-  हाथ में नहीं टिकता पैसा, मोरपंख का ये ज्योतिषीय उपाय आएगा काम, आजमाएं
+-  Hannah Waddingham: Home for Christmas Streaming: Watch & Stream Online via Apple TV Plus
+-  Arsenal go five clear as Rice seals seven-goal thriller at Luton
+-  My husband is obsessed with a 'terrible' baby name that could ruin our daughter's life - what do I do?
+-  Maduro otorgará licencias para explotación petrolera en la zona disputada con Guyana
+-  अलसी के तेल के कई फायदे जानकर हैरान रह जाएंगे आप, जानिए कैसे करें इस्तेमाल
+-  Girls who start their periods before turning 13 are more likely to develop type 2 diabetes and suffer strokes as adults, study claims
+-  Extreme record-breaking heatwave about to strike half of Australia: Here's how hot it's about to get in your city
