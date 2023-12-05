@@ -1,11 +1,11 @@
 # Latest News
--  Triple H declaró que vencería a CM Punk tras bastidores en WWE durante su riña, declara integrante del Salón de la Fama
--  مدبولي يؤكد أهمية الأذرع الصناعية لـ"العربية للتصنيع" في توفير مكونات المشروعات القومية
--  جيش الاحتلال: عنوان قواتنا في غزة هو السنوار
--  إخماد حريق اندلع داخل مصنع كراسي بالقاهرة الجديدة
--  وزير التعليم يبحث مع نائب مدير معهد "جوته" التعاون في تطوير التعليم قبل الجامعي
--  بعد مقتل ضابطين.. ارتفاع إجمالي قتلى الاحتلال اليوم إلى 7 خلال المعارك بغزة
--  "القومي للإعاقة" يتعاون مع "الداخلية" لتوفير إجراءات تيسيرية الجديدة لذوي الهمم
--  الحكومة بغزة: الاحتلال ارتكب 77 مجزرة راح ضحيتها 1240 شهيدًا منذ استئناف القتال
--  سرقة نجوم كرة القدم.. قصص رعب لا تنتهي ولاعب جديد أحدث الضحايا
--  ليس التوتر السبب.. احذر "هز رجلك" علامة على الإصابة بهذا المرض
+-  Зеленский қўмондонлар билан Залужнийни четлаб ўтган ҳолда гаплашмоқда ва йиғилишларда унга пичинг қилмоқда.
+-  Фарғона аэропортининг ёпилиши ҳақидаги хабарлар рад этилди .
+-  Motorola Razr 2023 review: not enough of a good thing
+-  La aerolínea que ofrece vuelos privados para cumplir una popular fantasía
+-  Qanunsuz odlu silahlar polisə təhvil verildi
+-  ప్రజాతీర్పును గౌరవిస్తాం
+-  "مطارات الدمام" تستقبل أول رحلة على المدرج الرئيس لمطار الملك فهد الدولي بعد اكتمال تطويره ورفع كفاءته
+-  ECOWAS court orders Benin to pay Igboho 20m CFA for unlawfully detaining him
+-  Zborcené přístřešky i ptačí voliéry. Jihočeské zoo sčítají škody po sněhové kalamitě
+-  Professional EDA Tool Software Market Size, CAGR, Ongoing Trends 2024-2031
