@@ -1,51 +1,51 @@
 # Latest News
+-  Рада обговорює терміни демобілізації з військової служби
+-  Il Torino segna 3 gol in casa: ecco da quanto non succedeva
+-  Жалгас Жумагулов резко ответил хейтерам
+-  هيئة البحث العلمي ومركز بحوث الطاقة يناقشان آخر المستجدات في المشروع الوطني للهيدروجين الأخضر .
+-  LI school bus driver allegedly kidnapped, raped girl on route
+-  Emniyet teşkilatına 10 bin polis alınacak! Duyurular İçişleri Bakanlığından yapılacak
+-  HNS gradi velebno zdanje za Vatrene: Konačno predstavljena ljepotica, pogledajte kako izgleda
+-  Đội nữ TP.HCM I vô địch lượt đi Giải bóng đá nữ VĐQG 2023
+-  Lucy Letby 'makes jail enemies over disgraceful preferential treatment' inside prison
+-  Celtic, Rangers, Aberdeen & Hearts picked for TV action
+-  Περιβαλλοντική δράση στο ΓΕΛ Κισσάμου: Συλλογή χρησιμοποιημένων μαγειρικών ελαίων
+-  Poslao poruku Plenkoviću: ‘Ne možete održavati ni ono što je Tito napravio, ljudi će to prepoznati’
+-  Представлены бомбардиры «Кайрата» в Лиге Чемпионов по футзалу
+-  한예슬, 단발머리에 뱅헤어 변신…더 어려 보이는 상큼 미모
+-  Илиян Тиганев, диригент: Моя лична кауза е да постигнем нивото на Пловдивско певческо дружество, което е имало някога
+-  Einigung auf Vernichtungsverbot unverkaufter Kleidung in der EU
+-  Einigung auf Vernichtungsverbot unverkaufter Kleidung in der EU
+-  Miten Nokialle nyt käy? Selvitimme kaiken olennaisen, mitä tilanteesta on syytä tietää
+-  Odnaleziono poszukiwaną 14-latkę
+-  «Честно говоря». Жумагулов прокомментировал смену следующего соперника
+-  Julia Roberts gushes over ‘anchor’ Danny Moder in rare comments about husband
+-  Герои нашего времени: Анатолий Чебаков рассказал о жизни волонтёра в Актау
+-  United Bankersin sisäisille yritysjärjestelyille vihreää valoa
+-  Eintracht Frankfurt angelt sich wohl Top-Talent aus Bayern
+-  Na redovnoj sjednici Skupštine HNS-a nagrađeni istaknuti djelatnici, među njima je i legendarni predsjednik Rijeke
+-  Đại học Hoa Sen nói gì về quy định sinh viên hoạt động mại dâm lần thứ 4 bị đuổi học?
+-  Aquarius 6 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  El Córdoba CF promoverá la adopción de mascotas saltando a El Arcángel ante el Castellón con perros
+-  Schnee und Kälte: Verkehrschaos in Süddeutschland hält an ‒ Entspannung am Wochenende?
+-  Botic van de Zandschulp vindt nieuwe trainer in Johan Otgren
+-  Nailaskom na zavoj udario u metalnu zaštitnu ogradu, a potom iznova u ogradu zbog čega se auto i prevrnuo
+-  La Fiscalía pide cuatro años de prisión para los ultras que colgaron una figura de Vinicius ahorcado
 -  DA's cites lax executive as 'sixth Parliament's biggest failure'
 -  WATCH | A moving ally: CT artist covers taxis with art in support of Palestine
+-  Акции издателя серии игр GTA упали на 7% после анонса новой части
+-  Šokantna ispovijest bivšeg košarkaša Šibenke: ‘Nakon sina nisam htio više djece, bojao sam se da opet ne napravim kriminalca‘
+-  Handelskammer: Gleiche Marktbedingungen für EU in China
 -  Βανδή – Μπισμπίκης: Άφωνοι με τον διάλογο των γιων τους
+-  Dambrauskasu otkaz, umjesto njega stiže Goran Tomić?
+-  Bad condition of roads in Bannimantap
+-  Slovenski selektor verjame v uspešno nadaljevanje zgodbe
+-  Zack Snyder’s Rebel Moon: trailer, cast, plot and everything you need to know
+-  Молдавские социалисты не намерены создавать коалицию с правящей партией
 -  Archies Patenonkel greift durch: Harry und Meghan auf royaler Hochzeit wohl unerwünscht
 -  Klaasen’s absence from Test side an indication of Proteas’ need for flexibility
+-  ДПС с пълна подкрепа за "Пирогов"
 -  Frans parlement wil e-sigaretten verbieden
 -  Tot dertig jaar cel voor moorden Lieshout en Amsterdam
 -  GfK: minder elektronica verkocht tijdens Black Friday
 -  Dodental loopt op na vulkaanuitbarsting Indonesië
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 6 декабря 2023 года
--  Sanremo 2024, chi è BigMama: età, carriera, vita privata
--  Infortunio Leao, lesione guarita: rientro e quando potrà giocare col Milan
--  Is Laser Hair Removal for Teens a Good Parenting Decision?
--  TreviPay Introduces All-in-One Payments Solution for Accepting Net Terms and Card Payments at Checkout
--  Kolkata International Film Festival: কলকাতা চলচ্চিত্র উৎসবে প্রথমবার পা রাখলেন ভাইজান, উত্তরীয় পরিয়ে সম্মান জানালেন দেব
--  اصابات في صفوف الجيش اللبناني جراء القصف الاسرائيلي... اليكم كم بلغ عددهم!
--  Londýnský soud řeší stížností prince Harryho na odebrání ochranky
--  "לא יכולתי ללכת": ג'יימי פוקס הופיע לראשונה בציבור מאז אישפוזו
--  מחבלי חמאס סיממו חטופים עם קלונקס; פסיכיאטר: "זה פשע מלחמה"
--  Ολυμπιακός: Ανακοινώθηκε ο Άλβες - Τέλος ο Μαρτίνεθ | Νέος προπονητής ο Καρβαλιάλ
--  الصحفي معتز عزايزة يفقد صديقه ويودعه بكلمات مؤثرة
--  اتفاقية تعاون بين جامعة البترا وشركة أفضل لقطة للإعلام
--  الأغذية العالمي يعلق أعمال التوزيع في شمال اليمن
--  مختص يحذر : هذه العادة تصيب العين بالجفاف الشديد
--  All is well: Aamir Khan, Tamil actor Vishnu Vishal rescued after devasting Chennai floods [see viral pics]
--  7 علامات تشير لانخفاض مستوى المغنيسيوم لديك
--  Brésil: la croissance du PIB ralentit à 0,1% au 3e trimestre
--  Cyprus puts strong showing at major European startup festival
--  Britain to conduct surveillance flights over East Med
--  Pixel Camera update (v9.2) brings Night Sight Time Lapse to Pixel 8; UI redesign, Ultra HDR & Rich color to older Pixels
--  عودة الاتصالات والإنترنت بشكل تدريجي وسط وجنوب غزة
--  كتاب دوري من 4 نقاط.. التعليم تحدد موقف المدارس خلال الانتخابات الرئاسية
--  عودة المصريين بغزة وتوفير الدولار.. وزيرة الهجرة تكشف مستجدات المصريين بالخارج -حوار
--  "اعتذارك مش هيفيد".. عبدالملك يصدم فتوح ويكشف شرط عودته للمباريات
--  مصدر يكشف تطورات حالة مدافع الأهلي.. وموعد عودته للتدريبات
--  تناولت سم فئران.. لماذا حاولت الزوجة القاصر إنهاء حياتها في الدقهلية؟
--  قتل أمه وشرب دمها.. تفاصيل جريمة "الابن الدراكولا" في الجزائر
--  المشاط تشارك في إطلاق شراكة تعزيز قدرة المرأة على التكيف مع تغيرات المناخ
--  أعراض مبكرة تنذر بتليف هذا العضو في جسمك.. احذرها
--  세계1등 친절도시 문경 만들자
--  한전 경북본부, 2023년 구미산단 에너지자급자족 페스티벌 개최
--  경북도의회 예결특위 2024년도 도교육청 예산안 심사
--  연규식 도의원, '경상북도 무형문화재 보전 및 지원에 관한 조례 일부개정조례안' 발의
--  손희권 경북도의원, "학교명 선정 심의, 지역민도 함께 해야"
--  박순범 경북도의원, 영유아도 무상교육으로 전환 필요
--  Uk: Dogovoreno je da se nastavi sa započetim usvajanjima zakona i odluka na nivou VMBiH
--  Λευτέρης Αυγενάκης: Η Ελλάδα μπορεί να γίνει παγκόσμιος πρωταγωνιστής στον αλιευτικό τουρισμό
--  John Kerry: Former Secretary of State Accused of Farting During Climate Speech in Dubai as Social Media Jokes about His Emissions [WATCH]
--  Explosionsgefahr im Tank: Flugsicherheitsbehörde gibt Warnung für Boeing 747 heraus – Lufthansa betroffen
--  Europa "debe poner fin a la doble moral" en el suministro de alimentos a los países del tercer mundo
