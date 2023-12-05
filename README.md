@@ -1,51 +1,11 @@
 # Latest News
--  Konya'daki özel bireyler Engelliler Günü'nde buluştu
--  Konya'da 320 polisle eğlence mekanları denetlendi
--  Karaman'da kumar oynarken yakalanan Afganlar sınır dışı edildi
--  Salih Sedat Ersöz’ün 9. kitabı yayınlandı
--  Konya polisinden 3 milyon liralık kaçakçılık operasyonu!
--  Pepernoten Play-in
--  Global Times: Chinese classic operas can be great hits again
--  Relais & Châteaux chefs pledge to stop serving eel with immediate effect to prevent its extinction
--  Wall Street pao
--  Bruno Fernandes one of 27 Premier League stars on brink of ban with three key players at risk during Man Utd vs Chelsea
--  Suspect arrested for stealing €1.7 million worth of iPhones from Schiphol company
--  *** BILDplus Inhalt *** Marianne & Michael - Karriere-Ende! „Um uns sterben viele Freunde“
--  Mash: Машина певца Трофима попала в ДТП в Москве
--  Christmas tree leaning because it’s already pissed
--  Na Frýdecko-Místecku rozhazuje neznámý vandal hřebíky po cestě
--  Rochelle Humes breaks her silence and says her ‘nerves are shot’ after husband Marvin narrowly escapes I’m A Celeb axe
--  Who was Oliver Spedding and how did he die?
--  В Подмосковье заработал медицинский робот "Светлана"
--  Ski hills cope with unseasonable weather
--  A ‘The Queen’s’ Battery earns Kingston Cup bragging rights
--  NDP announce overhaul of Hydro board
--  Riverbank winter trail system to be expanded
--  Sirene za vazdušnu opasnost u pograničnim kibucima; SZO zabrinuta za zdravstvenu zaštitu civila
--  Woman sentenced to 2 years for aggravated assault
--  Οι επόμενοι αγώνες των ομάδων της Ακαδημίας μας και αυτό που θα μεταδοθεί ζωντανά
--  Holiday Train visits Westman
--  صناعة التكنولوجيا تفقد 240 ألف وظيفة في عام 2023
--  Multi-Faith Peace Rally in Brandon
--  Habitat pursuing 60-unit project
--  Why are the tips of my spider plant turning brown?
--  Finance Division releases Rs 17.4 bln to ECP for election
--  Whistleblowing and patient safety
--  Suarez: Svakog jutra koraci su mi bolni, sin me zove na nogomet, a ja ne mogu
--  Глава Livan рассказал о перспективах локализации выпуска автомобилей в России
--  Como “sobreviver” à temporada das festas
--  Pelin Batu'dan 'HEDEP adayı' açıklaması! İstanbul adayı mı olacak?
--  Cette recrue surprise a choisi le PSG, voilà pourquoi
--  Vivo TWS 3e Tanıtım Tarihi Belli Oldu
--  대전문화재단, ‘희망2024 나눔캠페인’ 참여
--  대전도시공사, 인천도시공사와 협약
--  대덕한우리 봉사단, 연탄나눔 봉사
--  코레일, 인공지능 로봇으로 철도시설물 점검
--  세종시의회 교안위, 세종시교육청 본예산안·기금운용 계획안 예비심사
--  계룡시의회 제170회 정례회 현장방문
--  건양대 반도체공학과 삼성전자 파운드리 협력사인 ㈜에이디테크놀로지와 예약기업 협약 체결
--  세종시청출입기자단, 희망성금 기탁
--  남혜인 작가, 단국대에 천연염색 섬유미술작품 ‘기억의 숲’ 기증
--  “나사렛대 후문에 이쁜 벽화 마을이 생겼어요”
--  천안시, 화학사고 예방관리계획이행 우수사례 ‘환경부장관상’ 수상
--  천안시, 지방재정대상 지방세분야 행안부장관상 수상
+-  Spotted wood owlet falls off tree in Pasir Ris Park, enjoys playful moment on ground
+-  Traveller claims to have found a bedbug in S'pore Chinatown hostel, others say it's baby cockroach
+-  JJ Lin slams those who dubbed 'weird music' over his concert's dance
+-  هل تعلم أنك أنت سبب أرقك ليلاً؟.. إليك التفاصيل
+-  Van der Plas: er is vooral vertrouwen nodig tussen 'de vier'
+-  Ratingbureau bezorgder over financiën Chinese overheid
+-  Siguen los cielos nublados en Córdoba pero las lluvias desaparecerán
+-  에스원, 2024년 정기 임원 인사 단행… 조직개편‧보직인사 예고
+-  우리넷, '이음5G' 자체 시험망 구축…시장 확대 본격화
+-  샌즈랩, 두바이 국제 보안 콘퍼런스서 AI 보안 기술 발표
