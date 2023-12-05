@@ -1,51 +1,51 @@
 # Latest News
--  الجغبير: 0.8% معدل نمو مؤشر الصناعة الأردنية خلال الربع الثالث
--  Görevinden istifa etti, gerçekleri ülkesinin yüzüne vurdu: İkiyüzlü gibi görünüyoruz
--  Batı ülkelerinin petrolde tavan fiyat uygulaması Rusya'ya 34 milyar avro zarar ettirdi
--  Putin'in G20 katılımı belirsiz
--  Bakan Bak: Deprem bölgesinde 800 bin kişi yurtlarımızda misafir oldu
--  Nwakaeme, Trabzonspor için gemileri yaktı!
--  Türkiye karış karış petrol arıyor! Sayı 66'ya yükseldi
--  Bursa'da bir kuyumcuda silahlı soygun
--  Feyyaz Uçar: Taraftarımızla beraber F.Bahçe'yi yeneceğiz
--  페퍼저축은행 ‘역전 가능해’ [MK포토]
--  Avrupa ülkesinde tarihi karar! Filistin bayrağı göndere çekilecek
--  VIDEO Nevjerojatne scene stižu s Antarktike: Mega-santa leda, velika kao tri New Yorka, plovi!
--  Prawie 5 tys. zł zebrali na leczenie ciężko chorej kobiety z Nieledwi
--  “돈 찔끔찔끔 주니 수사 무마 안 돼”…사건브로커 재판서 증언
--  Marcha del Orgullo en Cipolletti este sábado: «Luchamos por los derechos adquiridos»
--  Phân tích: Phải chăng quá trình chuyển đổi năng lượng toàn cầu quá tốn kém?
--  Ex police inspector Gerard Hutchings in court accused of sex offences
--  順嫂梁葆貞與吳君如母親冬嬸飯敍！ 「兒子」罕同場晒近40年母子情掀回憶殺
--  New book launched about Kilkenny's early modern 'magnates and merchants'
--  V Rakúsku na štátnej limuzíne aj s dcérou! Ministerka Šimkovičová ladí prácu so súkromím
--  Toxic air divides Delhi between poverty and privilege
--  V 2023 sme si uťahovali opasky, trápili nás nízke mzdy aj zdražovanie: Čo bude v 2024 inak?
--  FOTO Šialené odhalenie bezzubej sestry Mariah Carey: Satanistické rituály, prostitúcia aj...
--  "خططت لسنوات"... تفاصيل جديدة عن تحضيرات حماس لـ"طوفان الأقصى"!
--  El señor de las flores (+fotos)
--  Tragický rok 2023 v tomto kraji. V januári vražda za vraždou, peklo v júli a krvavá jeseň!
--  Supreme Court Is Hearing A Landmark Tax Case Today — Here’s Why It Could Destroy Democrats’ Wealth Tax Plans
--  Bên trong penthouse phong cách Wabi Sabi, view bao trọn sông Hồng: Chi khoảng 7 tỷ làm nội thất, căn bếp “nghệ” y hệt triển lãm
--  Tomaszów Lubelski: Policjanci i pracownicy Policji dołączyli do ogólnopolskiej akcji krwiodawstwa
--  Supreme Court Will Hear Case That Could Upend The Current Tax System
--  오호택, 원챔피언십 페더급 4위와 종합격투기 재기전
--  Espetáculo "Paradisaeidae" tematiza a jornada do anti-herói em coreografia
--  Craving Bolognese But Don’t Have All Day To Cook? Here’s A Shortcut
--  Postala je Instagram zvijezda u 97. godini života: 'Nikad nije kasno isprobati nešto novo'
--  IOT Connectivity Management Platform (CMP) Market 2023: Future Industry Revenue- Proximus Group, Cisco Systems, Nokia, Truphone, Huawei, Ericsson, Comarch, KORE, Arm
--  Ensamstående mamma – och VM-stjärna: ”Klarar mer än man tror”
--  Down 70% Since 2021, Can A Revival In Subscriber Growth Help WW International Stock Recover?
--  Ensamstående mamma – och VM-stjärna: ”Klarar mer än man tror”
--  Test: Brödrostar ger ofta ojämn yta
--  Einschnitt in Regensburg: Evangelische Innenstadtgemeinden fusionieren
--  «Сибирь» — «Динамо» Минск: смотреть трансляцию матча КХЛ в прямом эфире
--  Tolv frysar misstänkt stulet kött i krogkällare
--  內地街市禁用「生鮮燈」為肉打燈顯色 肉類越紅品質越好？專家教3招揀新鮮肉
--  Winnie Mashaba gets married again
--  Özgür Özel: Yurt meselesine müdahale edeceğiz!
--  Bursa'da kar maskeli, silahlı kuyumcu soygunu!
--  Bursa'da zeytin hırsızlarına karşı jandarma tedbir aldı
--  달빛철도 예산폭주 비판에 찔끔 수정…11조→9조 해놓고 ‘아꼈다’?
--  La ley de amnistía se debatirá el próximo martes en el Congreso
--  La ley de amnistía se debatirá el próximo martes en el Congreso
+-  Kickoff | 'The highest salary I earned was R35 000'
+-  اخطرنا القوات العراقية بذلك.. السفيرة الامريكية تعلق على قصف كركوك
+-  Yildiz, l'Arsenal fa sul serio: la cifra che può far vacillare la Juventus
+-  Breil Manta P.R.O. Crono: il ritorno di un'icona
+-  Kane e i due difensori più forti affrontati in carriera: c'è un ex Juve
+-  طائرات عسكرية عراقية تنقل مساعدات طبية أرسلتها العتبة الحسينية المقدسة إلى غزة (فيديو)
+-  Lady Fagioli e lady Chiesa, sfottò social sul 'look' Juve: "Si è messa..."
+-  Emine Erdoğan: Türk kadını Türkiye Yüzyılı'nın inşasında öncü olacak
+-  İş dünyası temsilcileri 2024 asgari ücret zammına ilişkin beklentilerini açıkladı: Ortaya üç farklı formül çıktı
+-  Gibran Bagi-Bagi Susu di CFD Dituding Kampanye, Pj Heru: Saya tak Tahu, Masih Tidur
+-  الرئيس الروسي يبدأ زيارة للإمارات والسعودية غدًا
+-  5 أيام على انطلاقها.. كيف تدلي بصوتك في الانتخابات الرئاسية؟
+-  أمير قطر يشكر مصر لتعاونها في الوصول إلى هدنة في غزة
+-  مركز سموم جامعة بنها: استقبلنا 250 حالة خلال نوفمبر.. 43% منها تسمم دوائى
+-  وزيرة الهجرة تدعم مستثمرا مصريا بفرنسا لتأسيس مشروعه بقناة السويس
+-  خطوات دفع فاتورة المياه أونلاين.. 3 طرق بسيطة
+-  ما المدة المحددة للتظلم من قرار التصالح في مخالفات البناء؟
+-  إعلامي يفجر مفاجأة: مهاجم المصري في طريقه للأهلي بهذه الطريقة
+-  قرار جديد بشأن التحقيق مع "كروان مشاكل" في واقعة "فيديو المطبخ"
+-  فانتازي.. أفضل 11 لاعبا للجولة الخامسة عشر من الدوري الإنجليزي
+-  "سبوتيفاي" تنوي تسريح 17% من موظفيها مع تباطؤ النمو
+-  "هي مش خناقة في الشارع".. شوبير يكشف تفاصيل جلسة التحقيق مع الشحات ويوجه رسالة لبيراميدز
+-  بالصور- محافظ بني سويف يتفقد عددا من اللجان الانتخابية
+-  فتوح يفاجئ جماهير الزمالك بهذه الصورة
+-  معيط: أفريقيا تحتاج 277 مليار دولار استثمارات سنوية لأجل أهدافها المناخية
+-  Емирът на Катар: Това е геноцид, извършен от Израел - Труд
+-  Avaí vai mudar de material esportivo em 2024
+-  अग्नि की पूजा से टल जाते हैं जीवन के सकंट, जानें- क्या है इसका धार्मिक महत्व?
+-  Soccerladuma | FIFA Ban Could Effect Future Of Pirates Striker
+-  Los alumnos de Castilla y León son los mejores de España en Matemáticas, Lectura y Ciencias
+-  Carriedo destaca el apoyo al Bierzo con suelo industrial, crédito y menor carga impositiva
+-  अखिलेश यादव के इस कदम से हैप्पी है कांग्रेस, मध्य प्रदेश के नतीजे से बदले सुर
+-  Wurld Reveals Why He Gave Davido His Song, ‘Blow My Mind’
+-  Dungeons and Dragons-játékot készít a Starbreeze Entertainment
+-  Világsztárokat jelentett be 2024-re a Balaton Sound: íme, a fellépők listája
+-  [코로나19 공백에도 한국 학생, 수학·읽기·과학 최상위권
+-  [“4일 만에 660만명 몰렸다! 그렇게 대단해?” 대기업이 꽂힌 그녀, 누구길래
+-  [15층서 딸아이 던져 살해…20대 친모 구속
+-  [가상자산으로 100억원대 비자금 조성 의혹…한글과컴퓨터 김상철 회장 아들 구속
+-  [이재명 관련 수사받은 세탁소 주인 실종…극단선택 암시 메모
+-  Muž obvinený z účasti na terorizme zostáva stíhaný vo väzbe: Potvrdil to Najvyšší súd SR
+-  Šesť desivých spôsobov, ako chladné počasie ovplyvňuje naše telo: Zimný penis aj mŕtvica!
+-  Nešťastnej žene sa let poriadne predražil: Obrovská pokuta za nezjedený sendvič!
+-  Situácia v Bratislave sa dramatizuje: Nové informácie o vyhrážkach na stredných školách! Vynútené prázdniny, hrozba trvá
+-  Despotizmus, urážky a ponižovanie: Slovenský herec prehovoril, kde vznikli základy jeho RAKOVINY!
+-  Fatih Terim'in yardımcısının eşi nasıl dolandırıldığını anlattı
+-  France to ban disposable e-cigarettes: ‘Youth drawn to their flavors’
+-  Kampanye Ganjar di Balikpapan
+-  Jeg har flere rettigheder og muligheder end mine venner. Hvorfor?
+-  Jeg har flere rettigheder og muligheder end mine venner. Hvorfor?
