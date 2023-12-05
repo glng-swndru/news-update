@@ -1,11 +1,11 @@
 # Latest News
--  Mahsun Kırmızıgül'den yeni dizi
--  Maciej Bodnar (38) houdt het voor bekeken: “De wielersport heeft me veel gegeven”
--  Niet alleen Girona zat achter Blind aan: 'Ik heb eigenlijk altijd wel heel veel vertrouwen gevoeld, maar...'
--  Varaždin pobjedu posvetio Kovačeviću: ‘Čeka ga borba, ali sve će biti dobro’
--  Uhapšen drugi osumnjičeni za napad na Pavićevića
--  Israel storms Khan Younis in southern Gaza, killing scores
--  Torrelavega licitará los servicios de electricidad por 4,2 millones
--  Ще бъде ли арестуван Путин на 6 декември?
--  Leo Daily Horoscope Today, December 6, 2023 predicts exciting love life
--  Sonipat News: चिकित्सक लिख रहे टेस्ट, अस्पताल में पांच दिन से नहीं परीक्षण का सामान
+-  תמונות שטרם נראו מתוך המנהרות: אלו בכירי חמאס שחוסלו
+-  «القاتل الصامت».. 5 تحذيرات عند استخدام سخان الغاز
+-  Исроил Ғазода ҳарбий операциянинг учинчи босқичи бошланганини эълон қилди .
+-  Soccerladuma | HT Report: Pirates 1-0 Swallows
+-  ‘ధాన్యాన్ని పూర్తిస్థాయిలో కొనుగోలు చేయాలి’
+-  Cissé e Ghislandi fanno volare l'Atalanta U23, Triestina ko
+-  Al moto club Alfieri la Stella di Bronzo al merito sportivo del Coni
+-  Pronostico Aston Villa-Manchester City: quota interessante per il 2
+-  Dobromir Dimitrov rinforza il roster di Ortona
+-  Dit is de opstelling van de Oranje Leeuwinnen tegen België
