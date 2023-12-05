@@ -1,11 +1,51 @@
 # Latest News
--  2024 Şivlilik ne zaman? Konya Şivlilik heyecanını bu tarihte yaşayacak...
--  MHP den aday adaylığını açıklayan Abdulkadir Çat: Benim için önemli olan sizlerin güvenini kaybetmemek
--  Antep fıstığı ticareti yapan 35 teşebbüs hakkında soruşturma
--  Moment mal: Apfelwein
--  ESSILORLUXOTTICA: ancora rating Neutral per RBC
--  ESSILORLUXOTTICA : RBC handhaaft het Neutraal advies
--  Dokuz ilde FETÖ operasyonu: Sözde TSK yapılanmasına yönelik 12 gözaltı
--  Bilanço ağırlaşıyor: Meydana gelen sel ve heyelanlarda ölü sayısı artıyor
--  Sanremo, la rivelazione shock sulla lite Morgan-Bugo: "Sono stato io"
--  Frankreich: Industrie produziert erneut weniger
+-  식약처, 생균치료제 '생물의약품'으로 분류
+-  한국식품산업협회, SIAL India 2023 한국관 참가
+-  한국오가논, (사)비투비에 위기임신 가족을 위한 기부금 전달
+-  Арсенал търси четвърта поредна победа във Висшата лига в Лутън
+-  Antonio Muñoz profundiza en huellas del pasado y en los vestigios de un amor imposible
+-  Polémica en la COP por dichos anticiencia
+-  Top 7: Luto cultural en México y el mundo
+-  Kiss se inmortaliza con avatares digitales
+-  Hallan secretos en rincón estelar
+-  Reconociendo a los héroes de la noche de honor del Ejército Nacional
+-  Aumento gradual de tarifas de peajes: Ministerio de transporte oficializa decisión para el 2024
+-  Wanhua Chemical to Showcase Commitment to Dual Carbon Goals and Green Solutions at COP28
+-  “6조5000억 해외직구 시장…알리익스프레스 등 中 업체 약진”
+-  Tinubu orders investigation into Kaduna village bombing
+-  جيش الاحتلال ينسحب من مناطق شمال غربي مدينة غزة
+-  ADX hits 22m of reservoir as Anshof-2 nears completion
+-  הסינגל בדרך: קארדי בי ובעלה הורידו עוקב
+-  Schkeuditz: Warum die Stadt Weihnachtsbäume nur zur Hälfte schmückt
+-  진영호 김해시주민자치협의회장, 대통령 표창 수상
+-  하동 갈육초, 이웃 사랑 나눔 활동
+-  양산 에스텍, 김장김치 200상자 후원
+-  Nahostkonflikt: »Es gibt einen anderen Weg als immer nur Gewalt«
+-  Der Graureiher ist ein Lauerjäger
+-  NTT法廃止「議論十分でない」と鈴木総務相 党の決定や有識者会議の推移見守る考え
+-  `My Father Will Die Soon...`: Son`s Cry for Help From Queue Outside AIIMS Will Leave You In Tears
+-  창원 의창구 도시락 제조업체 특별 합동 점검
+-  5대 창원상의 회장에 최재호 무학 회장 추대
+-  Maya Jama has FOUR outfit changes as host of the British Fashion Awards as she dazzles in a black off-the-shoulder gown, a red number and a leggy mini dress after white red carpet look
+-  GTA 6: Trailer aufgrund eines Leaks früher veröffentlicht – Entwickler sind sauer
+-  Vier auto's betrokken bij kettingbotsing op Verlengde Arnhemseweg in Ede
+-  Laatste kans voor nieuwe stadsdichters
+-  Till Death Season 2 Streaming: Watch & Stream Online via Netflix
+-  [제약24시] 동국제약 마이핏, 마이핏S 혈당&핑크핏 다이어트 등 신제품 5종 출시
+-  [의료24시] 국립암센터, 암 임상 및 오믹스 통합분석 플랫폼 첫 공개
+-  서울시醫, 제22회 한미참의료인상 시상식 개최
+-  식약처, 생균치료제 ‘생물의약품’으로 분류
+-  В Казахстане запрет на вывоз нефтепродуктов автотранспортом продлен еще на полгода
+-  Kate Moss makes a rare public appearance with model daughter Lila as they make their way home after separate red carpet appearances at the British Fashion Awards
+-  Cestas y packs de belleza y bienestar para Navidad
+-  Zandsculpturen Garderen sluit expositie af met 'blindendag'
+-  'Flexflitser langs Molenweg Voorthuizen gooit geen hoge ogen'
+-  Nach Stadien-Gewalt: DFB appelliert für mehr Toleranz und Dialog zwischen Fans und Polizei
+-  Real Madrid’s Jude Bellingham names player who had biggest influence on his career
+-  Bahçeli neden kürsüye çıkmadı? MHP grup toplantısı iptal edildi: Nedeni belli oldu
+-  Μέμος Μπεγνής: «Δε μου αρέσει η κιτρινίλα και το κουτσομπολιό, ούτε το πάνελ μου αρέσει»
+-  TOGG araçlarına 'göz' olacak! Görme engelli Zülal geliştirdiği projeyi anlattı
+-  Sakarya'da kaçakçılıkla mücadele operasyonları! 7 kişi tutuklandı
+-  DSÖ: İsrail depoları boşaltmamızı istedi
+-  Bursa'da Engelliler Meclisi'nden muhteşem konser
+-  Tarihte bugün neler oldu? (5 Aralık)
