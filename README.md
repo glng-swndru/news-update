@@ -1,51 +1,11 @@
 # Latest News
--  ADVNCR’s Wade Beckett on Churning Out Creative Content for Large-, Small-Scale Events
--  Herinrichting Parklaan van start rond nieuw Kindcentrum
--  Pressekonferenz der Österreichischen LehrerInnen Initiative (ÖLI-UG) vom 5. Dezember 2023
--  Обнародована ​​повестка очередного заседания парламента Азербайджана
--  Näin poliitikot kommentoivat kehnoa Pisa-menestystä somessa: "Työrauha ja lähikoulu ovat oppimisen pelastus"
--  "Da se ne zaboravi" - 5. prosinca, Dan obrane grada
--  ‘No compres, adopta’, Jessenia Hatti comparte la historia de su perrito rescatado en Miami
--  Iván Espinel es trasladado a un hospital para "grantizar su derecho a la salud"
--  برنامج تأهيلي لـ شيكابالا وأوباما وعبدالشافي في مران الزمالك
--  "روح الروح".. كوكا يسجل هاتريك ويحتفل بقميص أحد ضحايا غزة (فيديو)
--  المصرية للاتصالات توضح سبب تأثر خدمات الإنترنت في بعض المناطق
--  معيط: نتطلع إلى بدء بنك "ستاندرد تشارترد" نشاطه في مصر مع بداية 2024
--  شكاوى من استمرار إغلاقات طرق في عبدون وخلق أزمات مرورية
--  FBI Director pleads for Congress to keep program accused of spying on Americans
--  EU will provide up to €1.2 billion in aid for cloud computing projects
--  AMLO niega que permiso para que militares de EU entren a México viole soberanía
--  Comunicaciones: se elimina tarifa diferencial para llamadas nacionales de larga distancia
--  Kafasına gelen maganda kurşunu öldürmüştü. Savcılıktan açıklama geldi
--  Revisiting that morning show relationship drama one year later
--  Seit Juli sind in Hof sieben Wohnmobile gestohlen worden
--  Ebner-Steiner: CSU-Politik ist Schaden für Bayern
--  Urteil: Geldstrafe nach Unfall in Marienheide-Kalsbach
--  LigaPro: ¿Qué es el Fan ID, el nuevo requisito de ingreso a los estadios del país?
--  Helge Schneider über KI, Musik und überflüssige Grammatik
--  TRT-8 é diamante no Prêmio CNJ de Qualidade pelo segundo ano
--  Mann nach mutmaßlichem Hammer-Angriff auf Ehefrau in U-Haft
--  Nach Brand in Klinik: Patientin soll Feuer gelegt haben
--  هل يحضر حكيمي كأس ابطال فرنسا؟
--  Opština Budva isplatila novembarske plate, plus 500 evra zimnice
--  Gemeinde bekommt 70.000 Euro vom Solarpark Hohenburg
--  Im Liveticker: Gladbach trifft auf Wolfsburg, Homburg gegen St. Pauli
--  Opnieuw ongeval in 'botsbocht' kruising A1/A30 bij Barneveld
--  UN: Zahl der in Gaza getöteten Zivilisten „nimmt rapide zu“
--  Morgan, vittoria in tribunale: assolto da accusa di frode fiscale
--  Abusos sexuais ocorrem com mais frequência na família e em ambientes conhecidos da criança
--  Sleep Apnea Oral Appliances Market Global Trends, Share, Industry Size, Growth, Demand, Opportunities and Forecast By 2029
--  Götze/Grüne: Grünes Licht für starkes Wettbewerbsrecht
--  Broj mrtvih stalno raste: U Gazi ubijeno više od 15.900 Palestinaca od početka rata
--  🎥​ | Gijp over analyses Leonne Stentler bij Studio Sport: ‘Het is heel ongemakkelijk’
--  At least 85 civilians, including women and children, dead after 'mistaken' army drone attack
--  UBIO, A ONDA 3 DANA ŠETAO KAO DA SE NIŠTA NIJE DESILO! Novinarka iz Makedonije o Vanjinom ubistvu - pomenula i roditelje
--  Μυστήριο με τον Πούτιν: Συνάντησε πρέσβεις και τους κράτησε σε 20 μέτρα απόσταση - «Ούτε καν τον άκουγαν»
--  Vor Generalsanierung: Start ins neue Jahr mit drei Wochen Riedbahn-Sperrung
--  Truecaller Bolsters its Advertising Offering with Power Packed Ad Solutions; Empowering Brands with Customised Growth Formula
--  STF decide se governo pode pôr políticos no comando de estatais
--  ¡Atención!: este es el cartel de artistas por del Estéreo Pícnic 2024
--  Pohjois-Korealta raju varoitus: Sota Etelä-Koreaa vastaan on vain ajan kysymys
--  Wie kamen die Farben in unsere Welt?
--  BIGHIT Music Konfirmasi Pendaftaran 4 Wamil Anggota BTS pada Pertengahan Desember 2023
--  Analytics can solve generative AI apps’ product problem
+-  Lockheed Martin Strives for Better Work-Life Balance With New Pleasanton Office; Maria Demaree Quoted
+-  Mám toho dosť. Najbohatší Slovák preťal väzby s domovinou
+-  হেলিকপ্টারে গ্রামের বাড়ি এলেন প্রবাসী, উৎসুক জনতার ভিড়
+-  ‘Microchip’ Technology To Be Used In Official Balls For UEFA Euro 2024 In Germany
+-  Yle: Nainen sai pankkikortit ja tunnusluvut samana päivänä postilaatikkoonsa – miten näin riskialtis toimitus on mahdollinen?
+-  Ter Stegen pasará por quirófano y estará varias semanas de baja
+-  Kostenloses Schulfrühstück an Mainaschaffer Ascapha-Schule
+-  Betrügerische Handwerker in Wertheim unterwegs
+-  Scherf kritisiert Aiwangers Blockadehaltung bei Biosphärenreservat Spessart
+-  مجلس الوزراء يصوت على زيادة راتب المعين المتفرغ
