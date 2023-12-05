@@ -1,11 +1,11 @@
 # Latest News
--  [ŽT] Estija: Ukrainos pabėgėliai - žala ar nauda
--  [ŽT] „Daugiau nei 6000 „M1 Abrams“ tankų...“ Monstriška jėga. Skelbiama apie JAV pagalbą (Video)
--  [ŽT] „Rusijos agresyvumas tik didės!“ Tai rimta. Putinas skelbia netikėtą pareiškimą
--  [ŽT] Z-patriotai pašiurpę. Rusija dideliais žingsniais juda Trečiojo Čečėnijos karo link. Kas vyksta (Video)
--  N-18! Žvėriški rusų nuostoliai. „Smogė HIMARS.“ Skelbiamas šokiruojantis video
--  ExpressVPN on Android TV Goes Dark… Mode
--  Wielu uważa Atom RPG za najwierniejszego spadkobiercę Fallouta 1 i 2; teraz kupicie go rekordowo tanio
--  Gwanda MSMEs traders market 90 percent complete
--  Taylor Swift lands at number five on Forbes' World's Most Powerful Women list after banner year featuring wildly success Eras Tour and Travis Kelce romance
--  The Crown's Meg Bellamy stuns in a Valentino dress as she joins Emma Corrin and Elizabeth Debicki at a glitzy event celebrating the finale of the smash hit Netflix series
+-  Bakan Özhaseki: İstanbul'da 600 bin konut çok riskli
+-  Göktürk-1 Uydusu 7 yaşında
+-  Netanyahu: Herkesi eve getirme imkanı yok
+-  1286 site erişime engellendi
+-  Antalyaspor, Kepezspor'u rahat geçti
+-  THY, 2024 Kadınlar CEV Kupası'na veda etti
+-  Beylikdüzü Belediye Başkanı Mehmet Murat Çalık adaylığını açıkladı
+-  Türk Telekom'un 7 maçlık kabusu bitti!
+-  بالفيديوجراف .. شروط التقديم على قرض العمل الحر من بنك التنمية الاجتماعية
+-  Personaliziranje 730.000 osobnih i 425.000 vozačkih dozvola
