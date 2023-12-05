@@ -1,51 +1,11 @@
 # Latest News
--  Dünya Gıda Programı: Sadece kalıcı barış, Gazze'de yaklaşan insani felaketi önleyebilir
--  Meteorolojiden şiddetli kar yağışı uyarısı
--  పీసీసీ చీఫ్‌ టు సీఎం
--  Çorum'da otomobil şarampole yuvarlandı: 3 yaralı
--  무려 즐라탄에게 욕했던 GK, 밀란과 재계약 지지부진… 맨유-아스널-첼시 타깃 급부상
--  Women accused of stealing merchandise from Oak Brook Ulta, leading police on high-speed chase
--  SANTA CLARITA TRANSIT WORKERS RATIFY CONTRACT, END STRIKE
--  Aneel aprova reajuste de 13,36% na conta de energia elétrica dos acreanos
--  UK’s Sunak tells Netanyahu in call of disappointment at new fighting in Gaza
--  독감 이어 마이코플라스마 폐렴 우려…해열제·항생제 증산
--  Saudi crown prince thanks Qatari emir after official visit to Doha
--  అతడే ఒక సైన్యం!
--  Kemnaker Gelar Konferensi Pengawasan Ketenagakerjaan ASEAN ke-12, Ini yang Dibahas
--  Makin ramai lelaki jadi mangsa gangguan seksual
--  أخنوش يتباحث مع رؤساء غرف التجارة والصناعة سبل تقوية انخراطها في التنمية الاقتصادية
--  Ăn trứng luộc mỗi sáng cực tốt nếu tránh được 3 sai lầm này
--  Un abuelo creó un práctico asiento y se viralizó en TikTok: “No domina el mundo porque está jubilado”
--  I went to see my beauty products stocked in Coles and spotted a massive fail: 'This is so embarrassing'
--  Barry Manilow's A Very Barry Christmas: release date and everything we know about the holiday special
--  Kimberly García: su ascendente carrera en el atletismo mundial
--  The Bronze Garden Season 1 Streaming: Watch & Stream Online via HBO Max
--  Một loại lá cây dân dã của Việt Nam bất ngờ được săn lùng với giá đắt đỏ: Xuất khẩu tăng hơn 1.700%, là cây quý hiếm ít quốc gia sở hữu
--  Hamás dice que no negociará con Israel si continúan los ataques en la Franja de Gaza
--  Porn star Sophie Anderson reportedly dies days after her porn star husband Oliver Spedding
--  NSW heatwave warning: Temperatures set to his 40s
--  I'm A Celebrity viewers all say have the same complaint about Fly On The Wall trial
--  Revelaron el ingenioso método para evitar las picaduras de mosquito: “¡Sirvió!”
--  Си постирал слика од патот кон Турција – Стефан Димовски татко, возачот на Палчо, кој го возел кон Турција
--  Trastienda de una noche distendida: Cúneo Libarona y los rumores sobre futuros funcionarios de Milei coparon la reunión anual de los fiscales
--  IGSS indicó que han tenido limitaciones para cumplir con varios pagos
--  Kabar Kasus Pungli dan Korupsi di Internal KPK: Hingga Saat Ini Belum Ada Tersangka!
--  Gallardo emociona a todo River con especial arenga en Al-Ittihad
--  El condado de Florida que ayudará con hasta US$100 mil a los que quieran comprar su primera vivienda: cómo registrarse
--  Podcast: 2024 Santa Fe, we visit Mahindra in India and EV owners get paid back!
--  Confira a lista dos sorteados para o último jogo do Cuiabá na Arena Pantanal
--  Deputado defende aumento de orçamento para combater a tuberculose no Brasil
--  CCJR aprova projeto de criação de Fundo de Apoio à Agricultura Familiar
--  Van de Beek, cè anche il Barcellona
--  Lula ‘desmoralizou o Congresso’ na COP 28, diz Seif
--  Laércio explica importância do Plano Nacional de Fertilizantes
--  Promotoria aponta inconstitucionalidade e lamenta aprovação de lei
--  Amin manifesta preocupação com julgamento do STF sobre a Lei das Estatais
--  Sob risco ambiental, Maceió recebe autorização de empréstimo de US$ 40 mi
--  Polícia Civil prende em Rondonópolis três procurados por integrar organização criminosa
--  “2023 não foi como esperávamos, mas ficamos na média”, avalia José Adriano no Bar do Vaz
--  2023年前11个月柬埔寨吴哥考古公园共接待近70万名国际游客
--  Vídeos antigos no Instagram perdem o áudio, mas Meta vai resolver
--  LTN經濟通》中國點金成石？全球金融中心變南深圳
--  بدرجات قياسية.. العقد الماضي الأعلى حرارة على الإطلاق
--  學霸女神Cos鬼滅墮姬 一蹲下彈出「兇猛D級雪乳」
+-  League Of Geeks Makes Over Half Its Staff Redundant, Jumplight May Never Launch
+-  '노량: 죽음의 바다'X'지식채널e' 특급 협업…노량해전에 담긴 역사 깊이 있게 풀어낸다
+-  Colombia regresa, después de casi 5 años, a Unasur para fortalecer lazos de colaboración
+-  Presidente Maduro anunció la creación de la ‘Alta Comisión por la Defensa de la Guayana Esequiba’
+-  Declan Ricen lisäajan pusku räjäytti pankin – Arsenalille makea ryöstöretki Lutonissa
+-  동물원middot;수족관 외 시설서 야생동물 전시 전면 금지
+-  สั่งย้าย หน.อุทยานฯ หาดเจ้าไหม สอบปมไม่เก็บค่าชมถ้ำมรกต
+-  สภาพอากาศวันนี้ ไทยตอนบนอุณหภูมิลดลง-มีลมแรง 7 จังหวัดใต้ ฝนตกหนัก
+-  華誼建設堅持初心開創新格局，打造危老第一品牌
+-  運動與休閒兼具的海上精品運動，亞果遊艇引領風格生活新趨勢
