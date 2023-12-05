@@ -1,11 +1,11 @@
 # Latest News
--  Karşıdan karşıya geçmek isterken canından oldu
--  Ter Stegen'den Barcelona'ya kötü haber!
--  FBI'den ABD Kongresine ülke dışında izinsiz gözetleme yetkisinin uzatılması çağrısı
--  İsrail'in saldırılarında şehit olan Filistinli sayısı 16 bin 248 oldu
--  Alex Oxlade-Chamberlain'dan çarpıcı açıklamalar! "Atmosfer beni cezbetti"
--  Halevi: Tünelleri suyla doldurmak iyi bir fikir
--  DSÖ, İsrail'in baskısıyla deposunu taşımasının ilaç tedarikini geciktireceğini bildirdi
--  Türkiye'nin GÖKTÜRK-1 uydusu dünyanın etrafını 37 bin 378 defa turladı
--  Destroza su Renault en curva de la Mirador y Washington
--  Presentó curva de Covid 'discreto ascenso' de positividad: Salud
+-  وزارتا المواصلات والداخلية تبحثان سبل إنجاح العمل والخدمات بالمنافذ البرية.
+-  رئيس جهاز المباحث الجنائية يبحث في روما سبل توحيد الجهود وتبادل المعلومات مع نظيره الإيطالي.
+-  Más de 1.200 enfermeras aprueban la Oferta Pública de Empleo de Aragón
+-  ¿Por qué Sebastián Viera dijo que el Tolima “debería estar nervioso”?
+-  PNC y FGR ejecutan operativo para detener sujetos ligados a tráfico ilícito de drogas
+-  Más de 55 mil capturas se han dado este 2023, dice ministro Pino
+-  Objavljen novi krimić spisateljice Ines Hrain, prate ga odlične recenzije
+-  Konya'daki Büyükşen çifti cinayeti davasında sanıklara verilen ceza hukuka uygun bulundu
+-  VIDEO: Taquero mata a puñaladas a su compañero de trabajo por bajarle a la música en Hidalgo
+-  جامعة المنصورة الجديدة تعلن الاستعداد لتفعيل نظام تخطيط موارد (ERP)
