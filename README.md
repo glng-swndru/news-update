@@ -1,11 +1,11 @@
 # Latest News
--  La France condamne « les attaques menées par des groupes de colons en Cisjordanie »
--  شتائم وغضب وانقسامات في اجتماع نتنياهو مع عائلات الأسرى
--  DFB-Frauen wahren nach Remis in Wales Olympia-Chance
--  Magallanes pide a la LVBP actuar ante amenazas del padre de Ronald Acuña Jr.
--  אוניברסיטה חדשה תוקם בישראל: זו העיר שנבחרה
--  העוקץ מתגלה: כך עשויים לגנוב מכם אלפי שקלים דרך וואטסאפ
--  בהשראת הדוגמנית קורל סימנוביץ': TERMINAL X בקולקציה חדשה
--  החטוף שחזר מהשבי הגזים? "אני והמחבלים ישבנו על פייסלים"
--  ללא היסוס: הזמרים הוותיקים שנרתמו למען מפוני העוטף
--  מרגש עד דמעות: הילדה שנחטפה לעזה חוזרת לגן הילדים | צפו
+-  Man robbed at gunpoint in latest dating app violent incident
+-  Chica rechazó a Peso Pluma en la preparatoria por cantar feo
+-  Video: Acusan que Hamas drogó a rehenes liberados
+-  Deportó EU a cinco mil menores por Chihuahua
+-  Ordena INE a Samuel borrar publicaciones con menores de edad
+-  Video: Por falta de quorum, suspenden sesión en Congreso
+-  Hüseyin Çevik ve Abdurrahman Uzun arasındaki gerilim arttı: "Utanmaz, haysiyetsiz..."
+-  Czterech zawodników na wylocie z Legii Warszawa
+-  Tunis : Une locomotive du métro 4 déraille
+-  Plus de 7000 enfants martyrs à Gaza
