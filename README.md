@@ -1,51 +1,11 @@
 # Latest News
--  Maxwell eyes off shock red-ball return for World Test Championship series
--  에퀴닉스 “IT 인재와 인프라 부족이 국내 디지털 혁신과 AI 개발 저해”
--  메가존소프트, 알리바바 클라우드와 엔비디아 A100·A10 GPU 칩셋 독점 공급
--  알리바바 클라우드, 멀티모달 기능 갖춘 LLM 4종 오픈소스로 공개
--  영월군, 아동·청소년 안전을 위한 태양광 LED 건물번호판 설치
--  강원농협, 사랑의 연탄봉사 실시
--  צו סגירה למחלקות המזון הטרי בשופרסל אשדוד: "זיהום, עובש, לשלשת ציפורים"
--  הארדן: "סיימתי להקריב. אני רוצה כסף, ולנצח ברמות הגבוהות ביותר"
--  Lebanon's Christians feel the heat of climate change in its sacred forest and valley
--  Shiba Inu Burn Rate Rockets 7,687,000% After Key Updates, What’s Next For SHIB?
--  Boston Woman Killed in Shark Attack Near Bahamas Resort: Cops
--  LGU+ 임직원, 세이브더칠드런 아동식사지원 사업 기부
--  Langeweile - ein unterschätztes Alltagsgefühl
--  Výbuch sopky v Indonézii si vyžiadal viacej obetí! Po nájdení tiel dvoch horolezcov už ich je toľkoto
--  ইতিহাসের এই দিনে: পাঁচটি সামরিক উড়োজাহাজ ‘গায়েব’
--  Hľadaný muž vyčíňal pri zatýkaní! Dvaja poľskí policajti utrpeli vážne strelné zranenia a zomreli
--  Kickoff | OFFICIAL: CAF reveals top goals shortlist, Downs star features!
--  Hafif Ticari Aracın Çarptığı Yaya Yaşamını Yitirdi
--  Football Weekly completes podcast of the year hat-trick at 2023 FSA Awards
--  'I love the gameplan': Kulusevski backs fearless Tottenham to be at the top
--  Calhanoglu 2.0 lives up to his big talk and shatters Mazzarri's Napoli revival
--  Luis Enrique has a dilemma at PSG: pick a shot stopper or modern keeper?
--  Championship: Sunderland sack Tony Mowbray, Swansea dismiss Michael Duff
--  Nine people with Dutch ties leave Gaza Strip
--  İzmir merkezli 9 ilde FETÖ'nün sözde TSK yapılanmasına operasyon
--  Ferudun Niğdelioğlu yazdı: TFF'ye teslim olmak
--  FETÖ meşruiyet arıyor
--  İsrail, DSÖ'den Gazze'deki deposunu boşaltmasını istedi
--  Manisa'da kaza: 12 kişi yaralandı
--  Bahçeşehir Koleji, evinde Legia Varşova ile karşılaşacak
--  Yarı yarıya düştü! Galatasaray, Nelsson'da indirime gitti
--  Fenerbahçe Opet evinde Potsdam'ı konuk edecek
--  VakıfBank sahasında Jedinstvo Stara Pazova ile karşılaşacak
--  When Hrithik Roshan Received Over 30,000 Marriage Proposals Post His Debut Film
--  Jika Diabetes Tak Dikelola dengan Baik Bisa Memicu Retinopati Diabetik
--  Baza: беспилотники ВСУ пытались атаковать нефтебазу в Крыму
--  Shivangi Joshi On Ranbir Kapoor's Animal: ‘He's A Master At His Craft’
--  Objavljen trailer za GTA 6: Poznati prvi detalji, igra stiže 2025. godine
--  রাজনীতির মাঠে সাকিবের প্রতিদ্বন্দ্বী যারা
--  Üsküdar'da "Boykot Masası" Paneli Gerçekleştrildi
--  Nuclear Power and Climate Change: Evaluating its Long-Term Sustainability
--  Заблудившихся ночью в лесу рыбаков спасли на Ставрополье
--  ‘Dunki’ trailer: Pefectly blended
--  Забарний: Я можу покращувати свою гру
--  «Σουλτάνα» του Πέτρου Λενούδια, για δεύτερη χρονιά στο Θέατρο Παραμυθίας
--  Der Skoda Fabia beim Tüv: Nur ein bisschen ausgebremst
--  경상원, 경기도서 서울로 오고 가는 이유는? '음식'
--  Баня сгорела дотла в поселке Карелии
--  Lämnade labbet för gotländsk getost
--  NX Philippines and NX Logistics Philippines Participate in Philippine Semiconductor and Electronics Convention and Exhibition (PSECE)
+-  ‘與 인재영입’ 이수정 “수원정 출마 희망…험지로 간다”
+-  강승규 전 수석 “尹도 혁신위 성공 바랄 것…목적 달성하는 쪽으로 갈 것”
+-  가상자산 이용해 ‘260억원’ 환치기 일당 적발…원정도박에 코인 활용
+-  넷마블, 버추얼 아이돌 ‘메이브’ 앨범 ‘왓츠 마이 네임’ 출시
+-  최태원 회장 "한일 경제협력체, EU 같은 단일시장 모델로 가야"
+-  코레일, 인공지능(AI) 로봇으로 철도시설물 점검
+-  동국제약 마이핏, 마이핏S 혈당&핑크핏 다이어트 등 신제품 5종 출시
+-  동아쏘시오홀딩스·동아ST·동아제약, 환경경영 국제표준 ISO14001 인증 획득
+-  LG이노텍, 제60회 무역의 날 ‘100억불 수출의 탑’ 수상
+-  SKT, "전국 시내버스 무료 와이파이 4배 빨라진다"
