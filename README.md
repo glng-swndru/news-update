@@ -1,51 +1,51 @@
 # Latest News
--  Άγγελος Πυριόχος: «Όταν πήγα στη Ζάκυνθο ο κόσμος μού έκανε τη ζωή δύσκολη, με κοιτούσαν καχύποπτα»
--  Asgari ücret için sevindiren teklif! Asgari ücret 45 bin olsun
--  Tyrese Haliburton prêt à enflammer Las Vegas
--  كيف تتفادى الإصابة بسلالة أنفلونزا الخنازير الجديدة؟.. نصائح لاتفوتك
--  عاجل.. حقيقة تأثير وثيقة العمل الحر على الضمان الاجتماعي
--  بدء أعمال مجلس التنسيق السعودي القطري برئاسة ولي العهد وأمير قطر
--  "جوجل" تكشف عن نظام متطور يكشف البريد الإلكتروني المزعج والمحتوى الضار
--  ¿Adónde viajan los lucenses en el puente?
--  La nouvelle Wallys Wolf arrive
--  "Der 90. Geburtstag oder Dinner for One": Alle Sendetermine zu Silvester 2023 - Insider-Fakten zum Kult-Sketch inklusive
--  REVUE DU 05 DEC : CAN Féminine 2024 ( Sénégal/Égypte à 17h, Mondial Handball 2023
--  Po zločinu na Partizanski v Mariboru: Svojci ubite mlade ženske pričali v tajnosti
--  Hertha-Coach denkt noch an HSV-Klatsche: „Das will ich nicht mehr“
--  უკრაინის წარმატება რუსეთთან მოულოდნელ ფრონტზე
--  Paye Sakarya'da sıfır faizle 60 aya varan vade fırsatı!
--  Introducing Ambrane's 'MiniVac 01' portable vacuum cleaner, available at an attractive price of ₹1499/-
--  В Нижегородской области осудили на три года условно женщину за фейки о ВС России
--  Sensación térmica de 3 grados en esta mañana
--  Premier Lig yine rekor kırdı: Tam 245 milyar TL
--  Match ASM vs EST : ou regarder le match AS Marsa vs l’Espérance de Tunis du 05 décembre?
--  Vuelve Jorge Javier y lanza un contundente mensaje tras el sonado despido: "Se van los mejores"
--  Нова биография на Илон Мъск припомня трудното му детство
--  Россия освободила еще 6 украинских детей
--  Курс доллара на Мосбирже поднялся выше 92 рублей
--  Экс-футболист четырех клубов КПЛ возглавил зарубежную команду
--  Ready to party with Barbie? The comedy blockbuster sets Max debut date
--  엔피코어, 한국무역협회 ‘100만불 수출의 탑’ 수상
--  Подрядчик РЖД купил долю ВЭБа в крупнейшем инфраструктурном холдинге
--  Asher Keddie stuns in a slinky black dress as she leads the celebrity arrivals at the premiere of her new series Strife in Sydney
--  Una mujer ugandesa de 70 años da a luz gemelos
--  Una mujer ugandesa de 70 años da a luz gemelos
--  Una mujer ugandesa de 70 años da a luz gemelos
--  TOKİ Yozgat projesi resmen başlıyor! 304 konutluk yeni proje için ÇED gerekli değildir kararı verildi!
--  Afghan pregnant Women’s children at Risk in Pakistan
--  "Wer stiehlt mir die Show?" verdankt ihm einen Quotensieg!
--  V treh občinah prepričani v uspešen zaključek projekta C0
--  Кристиян Минковски се надява на финал за Диана Петкова - Труд
--  Pemerhati Bola Angkat Topi atas Rencana Anies Membangun Wasaka International Stadium
--  Manchester United'tan gazetecilere ambargo!
--  Person dog efter slarv – hittades utomhus av hemtjänsten
--  Tüm yurda soğuk hava dalgası geliyor! Hava sıcaklıkları düşecek...
--  The Chase fans claim show is 'fixed' after team miss out on £100k prize when The Beast gets 'easy' questions 'a child could guess' - so do YOU know the answers?
--  Lazio-Genoa, i convocati del Grifone: quante assenze per Gilardino
--  Sasalstošais lietus turpina paralizēt Minhenes lidostas darbību
--  Поезд «Иволга 4.0» запустят на новых диаметрах в Москве в 2024 году
--  Ministarstvo pravde: Odbaciti kandidaturu Sanje Jovićević, u sukobu je interesa
--  Oxford yılın kelimesini seçti: Rizz
--  NBA》昔日最亮招牌不復當年「勇」 美媒：落入凡間的勇士正在死去...
--  Unikátní hodiny na Florenci opět ukazují světový čas
--  Estas son las gasolineras más baratas tras la bajada del precio de la gasolina
+-  أسـعار الأغذية في الأردن ارتفعت 1.7%
+-  Cyclone Michaung: Aamir Khan Rescued After Being Stranded For Hours In Chennai
+-  В Туркестанской области ведут поиски инвестора для развития аэропорта
+-  আরসার প্রধান কমান্ডারসহ ৪৯ জনের বিচার শুরু, গ্রেপ্তারি পরোয়ানা
+-  Marta Rovira elige para su defensa en 'Tsunami' a Iñigo Iruin, habitual abogado de ETA
+-  Store virksomheder holder eksportoptimismen oppe
+-  Soccerladuma | Buthelezi: I Am Not Mad At Chiefs
+-  Soccerladuma | Official: First EPL Manager Sacked!
+-  School teachers in north blocking inspectors
+-  이, 하마스 대원 은신 지하터널 바닷물 주입 추진
+-  국제물주간 6일 대구서 ‘팡파르’
+-  中, 요소수출 내년 1분기까지 불허…총량 94만t 제한
+-  경북대 학생들 “금오공대와 통합 반대”
+-  인니서도 유아 마이코플라스마 폐렴 유행
+-  비대면진료 대폭 확대…의료계 거센 반발
+-  “트럼프 2기, 독재로 흐를 것”
+-  대구경찰, 고령자 교통사망사고 예방활동 강화
+-  “무역史가 경제발전史…과감한 규제 혁파”
+-  계명문화대 패션디자인·쇼핑몰과 졸업작품전
+-  조희대 “압수수색 사전심문제 긍정 검토”
+-  대구시, 병원급 의료기관
+-  권익위 “도로공사, 국가예산 불법전용 확인”
+-  “노인 일자리 창출, 시니어클럽 적극 활용을”
+-  “韓 경제, 혹독한 겨울 뒤 꽃샘 추위…곧 꽃 필 것”
+-  주차장 기둥·차량 충돌 70대 남성 운전자 숨져
+-  딥페이크 활용 선거운동 못한다
+-  청년 구직자 64% “채용 기업정보 얻기 어려워”
+-  전문가·학부모 함께 영유아기 올바른 교육 모색
+-  ‘마음이 자라는 교실’ 개시
+-  원희룡 “나부터 울타리 고수하는 생각 버릴 것”
+-  65세 이상 56% “계속 일하고 싶어”
+-  지인에 수사정보 넘기고 금품 받은 전직 경찰 ‘징역형 집유’
+-  국악인 정규혁 첫 피리 독주회…7일 대구문예회관
+-  與 “2기 내각, 정치색 빼고 위기대응 초점”
+-  전기차 시장 성장 둔화에 에코프로 인력 충원 ‘멈칫’
+-  의협, 의대정원 확대 저지 파업 찬반투표 실시
+-  “혁신해왔고 앞으로도 혁신”
+-  백두대간수목원, ‘나눔숲 돌봄사업’ 큰 호응
+-  국립중앙과학관장 등 8개 개방형 직위 공채
+-  [제10회 대구경북 중소·벤처기업 대축전] 장세윤 대표 “기술로 선한 영향력 펼치도록 노력”
+-  ‘정면 충돌’ 與 지도부-혁신위, 갈등진화 묘수 나올까
+-  안동병원, 베트남서 계약 5건·협약 4건 체결
+-  “여대 거른다”…채용 성차별 논란에 실태조사
+-  [제10회 대구경북 중소·벤처기업 대축전] 김명용 대표 “‘명성’ 브랜드 하나로 선택 받을 것”
+-  혈세로 옷 사고 외유성 출장…공공기관 직원들 12억원 유용
+-  울진, 도로 기초번호판 설치
+-  실물카드 없이 QR코드로 ATM 입출금 가능
+-  [제10회 대구경북 중소·벤처기업 대축전] 정효경 대표 “상생·화합 통한 지역경제 발전 목표”
+-  예비후보 등록 코앞…선거구 획정 ‘깜깜’
+-  대구관광사진공모전 수상작 전시
