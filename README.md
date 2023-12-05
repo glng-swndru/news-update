@@ -1,11 +1,11 @@
 # Latest News
--  Зеленский қўмондонлар билан Залужнийни четлаб ўтган ҳолда гаплашмоқда ва йиғилишларда унга пичинг қилмоқда.
--  Фарғона аэропортининг ёпилиши ҳақидаги хабарлар рад этилди .
--  Motorola Razr 2023 review: not enough of a good thing
--  La aerolínea que ofrece vuelos privados para cumplir una popular fantasía
--  Qanunsuz odlu silahlar polisə təhvil verildi
--  ప్రజాతీర్పును గౌరవిస్తాం
--  "مطارات الدمام" تستقبل أول رحلة على المدرج الرئيس لمطار الملك فهد الدولي بعد اكتمال تطويره ورفع كفاءته
--  ECOWAS court orders Benin to pay Igboho 20m CFA for unlawfully detaining him
--  Zborcené přístřešky i ptačí voliéry. Jihočeské zoo sčítají škody po sněhové kalamitě
--  Professional EDA Tool Software Market Size, CAGR, Ongoing Trends 2024-2031
+-  La Xunta insiste en que poner tope al precio del alquiler es una medida "errónea"
+-  Moscow Times: Loputon sotapalvelus lisännyt rintamakarkureiden määrää
+-  Putin: U novim ruskim regionima ćemo prevazići agresivne nacionalističke politike Kijeva, koja je izobličila svijest djece i odraslih
+-  Veteran skip Glenn Howard out indefinitely with left knee injury
+-  Ventura considera que PS e António Costa se devem abster de decidir localização do novo aeroporto
+-  Grupo de 'hackers' norcoreano Andariel roba a Corea del Sur tecnologías de defensa
+-  Videóra vették: rendőrautó előtt hajtott végre veszélyes manővereket egy békési sofőr
+-  Óriási veszélyt jelentenek a karácsonyi terrortámadások – figyelmeztetett az EU tisztviselője
+-  ŠOK OBRT U BELOJ KUĆI! Poljupci pljušte na sve strane, ne mogu da se kontrolišu, ovo pomirenje niko nije očekivao
+-  Concierto de Roger Watters en Colombia: recomendaciones para llegar al Coliseo MedPlus
