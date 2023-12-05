@@ -1,51 +1,51 @@
 # Latest News
--  ZURICH INSURANCE GROUP: da Berenberg è Buy
--  ZURICH INSURANCE GROUP : Berenberg handhaaft koopadvies
--  ZURICH INSURANCE GROUP : Berenberg persiste à l'achat
--  Berenberg belässt Zurich auf 'Buy' - Ziel 508,90 Franken
--  גם מטא, אינטל ו-DELL בפנים: גוף ענק חדש התחייב לבינה מלאכותית בטוחה
--  שש המיגוניות הוצבו באצטדיון הי"א, אוואני צפוי לפתוח מול הפועל ת"א
--  Konya'da polisin durdurduğu araçta uyuşturucu hap ele geçirildi
--  Dilan Polat'ın 'Şampiyonlar Ligi' fotoğrafındaki 12 fenomenin şirketine kayyum atandı
--  Altın fiyatlarında beklenmedik düşüş! Yüzde 2,22 değer kaybetti
--  Mansur Yavaş'tan İYİ Parti'nin kararına ilk yorum
--  ALES/3 sınav sonuçları açıklandı! İşte ÖSYM sorgulama ekranı
--  EUREX/DAX-Future unter leichtem Abgabedruck
--  Kripto parada işlemlere vergi yolda
--  Henkel-CEO verteidigt Preiserhöhungen - Umbau kommt voran
--  Game of Thrones star makes second court appearance in two months over child sex offence
--  우리금융, 전통시장에 카드단말기 수천대 무상 지원 … 카드사, 상생금융에 동참
--  홍천군농업기술센터, 2023년 전국 농촌지도사업 평가 우수 농업기술센터 선정
--  네덜란드육류협회, ‘믿을 수 있는 네덜란드산 유럽 송아지 고기 레스토랑 위크’ 성료
--  Economists expect to see muted growth with Q3 GDP figures
--  Only one unit at Koeberg to be operational at a time over next 2 years - NNR
--  Parly to debate report recommending suspension of 6 EFF MPs over SONA disruption
--  ANC 'categorically' denies it's 'broke', says it's meeting financial obligations
--  Ezulweni believes ConCourt won't overturn rulings ordering ANC to settle debt
--  City of Cape Town begins 6-month Diep River aerating trial to address pollution
--  ‘Ganti-Ganti’: A sexy revenge story with a twist
--  NIPA, 2023년 지역 디지털 사업 통합 성과보고회 7~8일 개최
--  가천대서울길병원 차세대 IT 인프라 카카오클라우드로 구축한다
--  퀄컴, ‘2023 서울형 청년인턴 직무캠프’ 수료식 개최
--  ‘제202차 KEDI 교육정책 포럼’ 6일 개최…AI 기반 맞춤형 교육 현안 점검
--  프로텐, 대한적십자사 회원유공장 ‘은장’ 수상
--  웨이버스, 울산미포산단 디지털트윈 기반 통합관제플랫폼 구축 시작
--  우리넷, 이음5G 자체 시험망 구축…이음5G 시장 내 입지 강화
--  아이티센그룹, 아주대와 우즈베키스탄 ICT 인재 양성·취업 지원 ‘맞손’
--  “챗GPT, 국내 다운로드·소비자 지출·세션 수 1위 석권”
--  SKT, 시내버스 공공와이파이 5G 전환·구축 완료
--  Petrolio: prezzo in lieve aumento, Wti vale 73 dollari
--  NOVO NORDISK: Berenberg ribadisce il giudizio Neutral
--  NOVO NORDISK : Berenberg herhaalt Neutraal advies
--  NOVO NORDISK : Berenberg toujours neutre sur le dossier
--  Miliz im Jemen: Was Sie über die Huthi-Rebellen wissen müssen
--  TRENDUMFRAGE/DAX zum Handelsende 0,2% niedriger erwartet
--  Berenberg hebt Ziel für Novo Nordisk auf 650 Kronen - 'Hold'
--  At&t sigla accordo da 14 miliardi dollari con Ericsson
--  Russland berichtet von Dutzenden ukrainischen Drohnenangriffen
--  NIJE MU BILO SPASA Muškarac poginuo u sudaru dva kombija kod Surčina
--  Pogledajte video trenutka kad je Prijović s Rozgom i Brenom zapjevala ''Hajde da se volimo'', ovako nešto još se nije dogodilo u zagrebačkoj Areni!
--  OKB: Situata në Gaza është apokaliptike
--  Bce, Schnabel esclude altri rialzi tassi dopo "notevole" calo inflazione
--  Campos Neto diz que Brasil pode usar inteligência artificial contra a lavagem de dinheiro
--  Blondie & Garfield - DECEMBER 6, 2023
+-  Aşamalı konut edindirme sistemi: Önce arsayı sonra konutu al! İnşaat sektörüne etkisi nasıl olacak?
+-  Arosa - Valencia maçı ne zaman, saat kaçta, hangi kanalda?
+-  زلزال بقوة 5.1 درجات يضرب هاواي الأمريكية
+-  Скажи, какую музыку любишь, и я скажу, кто ты: ученые нашли необычный способ узнать человека
+-  Meta en IBM vormen coalitie die AI-kennis gaat delen
+-  Beurzen Europa koersen af op wisselende opening
+-  Kompiuterių segmente 2024 m. laukiamas 8 % augimas
+-  Nieuwe verhalen en twintig uur aan interviewmateriaal: Maarten Biesheuvel is nog niet vergeten
+-  Air traffic controller
+-  Yoon's ex-staff seek nominations in PPP strongholds, defying reform efforts
+-  Gaza truce ends
+-  Scarier than Black Death
+-  Finance minister nominee vows aggressive push for market-driven reforms
+-  Gold price reaches record high; bitcoin surpasses $41,000
+-  זכייה כפולה ל-SentielOne בפרס מוצרי השנה של המגזין היוקרתי CRN
+-  Decoding Law Firm Marketing: Strategies for Legal Success
+-  1 Kg Berapa Gram? Ini Penjelasan dan Contoh Soalnya
+-  פנייה ליועמ"שית בעקבות הפרסום בוואלה: לפתוח בחקירה פלילית נגד בן גביר ואוחנה
+-  Residents raise stink over leaks, defects in Tengah centralised cooling system
+-  Янгиланган Конституция билан мукаммал жамият сари
+-  Туркия ва Қатар стратегик ҳамкорлиги
+-  Сирдарёда IT академия очилди
+-  Youth Pass: Τελευταία μέρα για την υποβολή των αιτήσεων
+-  First responders got stuck in traffic on the way A1 accident in which two girls died
+-  طريقة عمل القرنبيط المقرمش.. خطوة بخطوة زي البانيه
+-  Komitet ministara Vijeća Evrope razmatra provođenje presuda Evropskog suda za ljudska prava
+-  Mr Universe bodybuilder Shaun Davis dies aged just 57 leaving pals ‘absolutely devastated’
+-  Mr Universe bodybuilder Shaun Davis dies aged just 57 leaving pals ‘absolutely devastated’
+-  YG 떠난 지드래곤, '피지컬:100' 제작사 行?…갤럭시코퍼레이션 '묵묵부답' [MD이슈]
+-  충성심도 월클이네…'골든보이' 벨링엄 "레알과 모든 트로피 들고 싶어"
+-  호텔신라, 2024년 정기 임원인사
+-  İlayda Alişan ile Oğulcan Engin'den yeni aşk paylaşımı
+-  제28회 춘사국제영화제, 최우수감독상·남녀주연상 등 각 부문별 수상 후보 공개
+-  '호날두 방출→올 시즌 선수단 불화→절망 속 빛 한 줄기...Here we go! "매각 최종 단계 진입"
+-  علماء: الميكروبات يمكنها منع ظاهرة الاحتباس الحراري
+-  محاور توعوية في "ملتقى التمكين الصحي" بالحدود الشمالية
+-  بالتفاصيل والأرقام.. الفضلي: المملكة تمضي بنجاح نحو تحقيق مستهدفات "السعودية الخضراء"
+-  BREAKING NEWS: Chelsea Manager Mauricio Pochettino has come out this evening to explain why Cole Palmer was not involved in Chelsea’s win against Brighton yesterday.
+-  ينطلق اليوم الثلاثاء.. مشاركون من 20 دولة في المؤتمر الدولي للتمور
+-  Studiu Aqurate: ce categorii cresc în ecommerce în decembrie anul acesta
+-  «حديد وطني» تعتزم إيقاف خطوط الإنتاج لإجراء صيانة شاملة مجدولة
+-  «كير» توقع عقدا مع «الوطنية لنقل الكهرباء» بـ 48 مليون ريال
+-  «برج المعرفة» تحصل على تسهيلات ائتمانية بـ 5 ملايين ريال
+-  الدولار يستعيد بعض مكاسبه ويقترب من أعلى مستوى في أسبوع
+-  البنك المركزي الصيني يزيد كميات السيولة النقدية في النظام المصرفي
+-  Tjänstesektorns inbromsning hårdnar
+-  Erster Dschungelcamp-Kandidat 2024 steht fest: "Wie tief muss man sinken?" Fans nach Enthüllung empört
+-  CHP’li Arpacı: Millet borç batağında
+-  Antisipasi Banjir, Pemkot Bangun Kolam Retensi di Bandung
+-  Ночь на 5 декабря стала самой холодной с начала зимы в Москве
