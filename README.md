@@ -1,11 +1,51 @@
 # Latest News
--  Įspūdinga: dirbtinis intelektas vėžio riziką sugeba nustatyti vos iš vienos nuotraukos
--  [ŽT] „Būkime sąžiningi: o ką Ukraina veikė nuo 2014?“
--  „Maniakiško sovietinio skerdiko kopijavimas“. Ką Ukrainoje išdarinėja Gerasimovas
--  Iššvaistyti tūkstančiai gyvybių ir milijardai dolerių. JAV kontrpuolimo planas atmestas jau 4-ąją dieną
--  [ŽT] „Mums baigėsi laikas ir pinigai.“ Baltieji Rūmai prašo pagalbos
--  „Jei rinkimai vyktų šiandien, laimėtų...“ Skelbiami apklausos Ukrainoje rezultatai
--  Nueva polémica en 'El Hormiguero' por un comentario homófobo de Jorge Martín
--  Gerichtsfall fahrlässige Tötung: War der Aufprall im Tunnel zu verhindern?
--  مركز المواصفات القياسية يمنح شركة الحديد والصلب علامة الجودة الليبية .
--  Disahkan DPR Hari Ini, Revisi UU ITE Masih Memuat Pasal Karet
+-  الجغبير: 0.8% معدل نمو مؤشر الصناعة الأردنية خلال الربع الثالث
+-  Görevinden istifa etti, gerçekleri ülkesinin yüzüne vurdu: İkiyüzlü gibi görünüyoruz
+-  Batı ülkelerinin petrolde tavan fiyat uygulaması Rusya'ya 34 milyar avro zarar ettirdi
+-  Putin'in G20 katılımı belirsiz
+-  Bakan Bak: Deprem bölgesinde 800 bin kişi yurtlarımızda misafir oldu
+-  Nwakaeme, Trabzonspor için gemileri yaktı!
+-  Türkiye karış karış petrol arıyor! Sayı 66'ya yükseldi
+-  Bursa'da bir kuyumcuda silahlı soygun
+-  Feyyaz Uçar: Taraftarımızla beraber F.Bahçe'yi yeneceğiz
+-  페퍼저축은행 ‘역전 가능해’ [MK포토]
+-  Avrupa ülkesinde tarihi karar! Filistin bayrağı göndere çekilecek
+-  VIDEO Nevjerojatne scene stižu s Antarktike: Mega-santa leda, velika kao tri New Yorka, plovi!
+-  Prawie 5 tys. zł zebrali na leczenie ciężko chorej kobiety z Nieledwi
+-  “돈 찔끔찔끔 주니 수사 무마 안 돼”…사건브로커 재판서 증언
+-  Marcha del Orgullo en Cipolletti este sábado: «Luchamos por los derechos adquiridos»
+-  Phân tích: Phải chăng quá trình chuyển đổi năng lượng toàn cầu quá tốn kém?
+-  Ex police inspector Gerard Hutchings in court accused of sex offences
+-  順嫂梁葆貞與吳君如母親冬嬸飯敍！ 「兒子」罕同場晒近40年母子情掀回憶殺
+-  New book launched about Kilkenny's early modern 'magnates and merchants'
+-  V Rakúsku na štátnej limuzíne aj s dcérou! Ministerka Šimkovičová ladí prácu so súkromím
+-  Toxic air divides Delhi between poverty and privilege
+-  V 2023 sme si uťahovali opasky, trápili nás nízke mzdy aj zdražovanie: Čo bude v 2024 inak?
+-  FOTO Šialené odhalenie bezzubej sestry Mariah Carey: Satanistické rituály, prostitúcia aj...
+-  "خططت لسنوات"... تفاصيل جديدة عن تحضيرات حماس لـ"طوفان الأقصى"!
+-  El señor de las flores (+fotos)
+-  Tragický rok 2023 v tomto kraji. V januári vražda za vraždou, peklo v júli a krvavá jeseň!
+-  Supreme Court Is Hearing A Landmark Tax Case Today — Here’s Why It Could Destroy Democrats’ Wealth Tax Plans
+-  Bên trong penthouse phong cách Wabi Sabi, view bao trọn sông Hồng: Chi khoảng 7 tỷ làm nội thất, căn bếp “nghệ” y hệt triển lãm
+-  Tomaszów Lubelski: Policjanci i pracownicy Policji dołączyli do ogólnopolskiej akcji krwiodawstwa
+-  Supreme Court Will Hear Case That Could Upend The Current Tax System
+-  오호택, 원챔피언십 페더급 4위와 종합격투기 재기전
+-  Espetáculo "Paradisaeidae" tematiza a jornada do anti-herói em coreografia
+-  Craving Bolognese But Don’t Have All Day To Cook? Here’s A Shortcut
+-  Postala je Instagram zvijezda u 97. godini života: 'Nikad nije kasno isprobati nešto novo'
+-  IOT Connectivity Management Platform (CMP) Market 2023: Future Industry Revenue- Proximus Group, Cisco Systems, Nokia, Truphone, Huawei, Ericsson, Comarch, KORE, Arm
+-  Ensamstående mamma – och VM-stjärna: ”Klarar mer än man tror”
+-  Down 70% Since 2021, Can A Revival In Subscriber Growth Help WW International Stock Recover?
+-  Ensamstående mamma – och VM-stjärna: ”Klarar mer än man tror”
+-  Test: Brödrostar ger ofta ojämn yta
+-  Einschnitt in Regensburg: Evangelische Innenstadtgemeinden fusionieren
+-  «Сибирь» — «Динамо» Минск: смотреть трансляцию матча КХЛ в прямом эфире
+-  Tolv frysar misstänkt stulet kött i krogkällare
+-  內地街市禁用「生鮮燈」為肉打燈顯色 肉類越紅品質越好？專家教3招揀新鮮肉
+-  Winnie Mashaba gets married again
+-  Özgür Özel: Yurt meselesine müdahale edeceğiz!
+-  Bursa'da kar maskeli, silahlı kuyumcu soygunu!
+-  Bursa'da zeytin hırsızlarına karşı jandarma tedbir aldı
+-  달빛철도 예산폭주 비판에 찔끔 수정…11조→9조 해놓고 ‘아꼈다’?
+-  La ley de amnistía se debatirá el próximo martes en el Congreso
+-  La ley de amnistía se debatirá el próximo martes en el Congreso
