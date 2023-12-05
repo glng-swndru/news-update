@@ -1,51 +1,51 @@
 # Latest News
--  Тошкентда жиноятда гумонланаётган яна бир шахс қўлга олинди.
--  Ўзбекистонда йил бошидан бери 26 та ноқонуний майнинг фермаси аниқланди.
--  Туркманистонда президент шарафига номланган клуб бирорта очко йўқотмасдан чемпион бўлди .
--  ОЧЛ. «Пахтакор» «Ал-Файҳа»га йирик ҳисобда мағлуб бўлиб, гуруҳда 3-ўринда қолиб кетди.
--  שעתיים לפני המשחק: שחקני אשדוד והפועל ת"א הסתתרו במיגוניות
--  איתמר נוי בהרכב הפועל חיפה, רז שטיין ב-11 של הפועל פתח תקוה
--  Celebran el Día del Constructor en Sancti Spíritus
--  CpM plantea sus dudas sobre el futuro de la residencia de estudiantes
--  Tokio Hotel gehen 2025 auf Europa-Tournee
--  Vuelca tráiler con varillas en carretera a Juárez
--  Casi invisible paso peatonal en la Homero y Tecnológico
--  Operará próximo año nueva brigada vs incendios en Guadalupe y Calvo
--  Llegan solo 21 afectados a segunda audiencia de Aras
--  Más del 50% de los trabajadores destinará aguinaldo al pago de deudas
--  Fife-based education secretary Jenny Gilruth faces big test as Scotland slips down global ranking
--  Residents raise concerns with excess ash allegedly coming from Port Wentworth Mill
--  CBF produz taças do Brasileirão para Palmeiras, Atlético-MG e Flamengo; entenda a logística
--  ‘Feud: Capote Vs. The Swans’ Gets FX Premiere Date; Details Of Second Installment Of Ryan Murphy’s Anthology Series
--  EU upozorava na pojačan rizik od terorističkih napada za Božić
--  Денков видял в "Пирогов" злоупотреби, Борисов: Брутален акт
--  EUA quer impedir Nvidia de fazer GeForce para mercado chinês
--  Oppo Find X7 Pro se filtra con un llamativo diseño de su isla de cámaras
--  PS Store: Weniger als 1 Euro – Arcade-Racer der alten Schule lockt mit Schnäppchenpreis
--  Панче Жежовски е погребан денеска
--  Reverse Rising Rate of Antidepressant Prescriptions, Urge Experts
--  Dünya Kahve Günü'ne özel araştırma: Gençler en çok kiminle kahve içmek istiyor?
--  Buruh yang Tendang Satpol PP Surabaya Menyerahkan Diri ke Polisi
--  Decisão sobre aeroporto deve ser tomada por próximo Governo, diz Ventura
--  “Quitaron la leche de los niños, pero Cuba ahora está mejor”: El Micha
--  Câncer deve ser a maior causa de mortes no Brasil até 2030
--  نائب محافظ المنيا يتفقد مصابي حادث أتوبيس الصحراوي
--  البيئة: ضبط عدد من الطيور المهددة بالانقراض قبل بيعها بمنطقة قايتباي بالإسكندرية
--  "كان خياري الأول برشلونة".. ميسي يعلق على اختياره كأفضل رياضي لعام 2023 من مجلة تايم
--  مايا مرسي من "كوب 28": ما يحدث في فلسطين "انهيار لمنظومة الأمن الإنساني"
--  قوات الدفاع الجوي تنظم منتداها العلمى الأول على هامش "إيديكس 2023"
--  Sangue na urina? Saiba quando há motivos de preocupação
--  Na GPW zwyżka, ale z niedosytem
--  Amy Robach And T.J. Holmes Break Silence On “Year Of Hell” Since Their ‘GMA3’ Firing
--  Rui Borges quer valorizar Moreirense ainda mais após "acordo fácil"
--  دورتموند يسعى لرد اعتباره أمام شتوتغارت في كأس ألمانيا
--  Strengthening ties, Lidl Cyprus holds first ‘Supplier Day’
--  Aneel define agenda 2024/25 e inclui reforços de redes de energia para clima extremo
--  تشديد مصري - قبرصي على ضرورة التهدئة وتدفق المساعدات لغزة
--  Emirates World Rugby Match Officials confirmed for Guinness Six Nations
--  Se eleva a 22 la cifra de muertos por la erupción del volcán Marapi en Indonesia
--  Roberto De Zerbi analyses Enzo Fernandez goals for Chelsea
--  Missing man traced
--  State’s attorney race shaping up in Bureau County
--  HENKEL VORZUEGE: ancora rating Neutral per JP Morgan
--  HENKEL VORZUEGE : JP Morgan vindt het aandeel niet inspirerend
+-  News24 | Wednesday's weather: Alerts for thunderstorms and damaging winds in parts of SA
+-  Caen dos cabecillas de bandas criminales en Colón
+-  Pierwsza emisja w crowdfundingu po nowemu. O kapitał zabiega Kombinat Konopny
+-  Zwiastun gry GTA VI rozczarował inwestorów. Akcje spółki w dół
+-  Giełda w Tel Awiwie: przed atakiem Hamasu nie działo się nic niezwykłego
+-  Soccerladuma | Downs To Table Offer For Sought-After Striker
+-  د قطر امیر د غزې د جګړې په اړه د نړیوالو 'بې غوري د شرم وړ' وبلله
+-  Live hören: Die Konferenz - Achtelfinale | Fußball DFB-Pokal
+-  Gruppe Paladin: Mutmaßlicher Anführer von Corona-Gegnern in Portugal gefasst
+-  Freihandel mit Südamerika: Worum es beim umstrittenen Mercosur-Abkommen geht
+-  Efecto llamada para no quedarse sin el antiarrugas más buscado
+-  Düzce'de işçi servisi alevlere teslim oldu
+-  Una de las preguntas clave de limpieza corporal ¿Es mejor ducharse por la mañana o por la noche?
+-  Goran Bregović neutešan: Muzičar se oprostio od dugogodišnjeg prijatelja i kolege: "On je bio jedini..."
+-  Νέα κακοκαιρία «χτυπά» τη χώρα τις επόμενες ώρες: Πότε θα σημειωθούν ισχυρές καταιγίδες στην Αττική και πότε θε εξασθενήσουν τα φαινόμενα
+-  Las zonas de casa que no limpias nunca y con las que deberías tener un cuidado especial
+-  Fianna Fáil name the ‘Big Three’ to contest Athy MD elections
+-  Thales completes the acquisition of Imperva, creating a global leader in cybersecurity
+-  Bottlenose dolphins seem to have a shocking sixth sense, scientists say
+-  Nataly Parkly anuncia su ruptura con Pedro Loli: “Por mi bienestar y paz mental”
+-  Biden impeachment inquiry vote planned for next week
+-  🎥​ | Komt hoogmoed voor de val? Platte kar voor kampioenschap PSV nu al opgepoetst
+-  أمير قطر: من العار استمرار حرب غزة
+-  В Узбекистане открылся первый ресурсный центр русского языка
+-  REALITES lève avec succès une nouvelle tranche obligataire de 17 M€ sur le marché EURO PP
+-  Andressa Urach decide fazer uma pausa em produção de vídeos adultos; Entenda!
+-  Tempel se za 20 let neprávem ve vězení domáhá 90 milionů. Stát mu přiznal zlomek
+-  '임신' 황보라 "시父 김용건, 나 너무 맘에 들어해…하정우 때문 상견례 스케줄 변동" [조선의 사랑꾼]
+-  Natalie Portman recalls King Charles awkwardly asking her if she was in original ‘Star Wars’
+-  Дракахруст: «Не тое, каб ад высокіх цэнаў народ заўтра выйшаў на вуліцы, але і так бывае»
+-  ग्वालियर-चंबल संभाग में प्रभाव नहीं छोड़ पाए जयवर्धन
+-  Un juge britannique approuve le règlement de 737 millions de dollars d'Entain dans le cadre de l'enquête sur les pots-de-vin en Turquie
+-  Samsung Shop: fino al -30% e supervalutazione dell’usato con le promo di Natale
+-  Minister Raises Concerns After Sellafield Nuclear Site Denies Hacking Incident
+-  Nexity : Nombre total d'actions et droit de vote composant le capital - novembre 2023
+-  ChatGPT fails to give ‘satisfactory’ reply to nearly 75% of medication-related queries: study
+-  Financial Intelligence Agency Hands Down $7.4M Penalty to Royal Bank of Canada
+-  Повеќе од 15.900 палестинци се убиени во Газа од почетокот на војната, тврди Хамас
+-  „Toksika“ įdiegė naujas dūmų valymo technologijas pavojingųjų atliekų deginimo jėgainėje
+-  KTU ir LFF bendradarbiavimas: sieks atgaivinti antrąjį pagal dydį natūralios vejos Kauno futbolo stadioną
+-  „To nebuvo nuo Antrojo pasaulinio karo...“ Dvigubas smūgis. NATO skelbia „precedento neturinčią“ grėsmę Europoje
+-  [ŽT] Ką ruošiasi daryti Izraelis ir kas jam slapta padeda
+-  „Zelenskiui nepavyks amžinai meluoti, jis už viską sumokės“
+-  Google lavora per migliorare Nearby Share e l’app fotocamera su Pixel 8
+-  Everton fans moan Tony Bellew 'censored by I'm a Celebrity' in 'Premier League conspiracy'
+-  Ottawa ‘Took a Risk’ When Investing $150M in Medicago Vaccine Factory: Official
+-  Putin szuka pieniędzy. Opuści Rosję na jeden dzień
+-  Designer Brands (DBI) Q3 2023 Earnings Call Transcript
+-  যুক্তরাষ্ট্রে ‘বাংলাদেশ অ্যাভিনিউ’য়ের নামফলক উন্মোচন
+-  Six Finalists Advance in New Beverage Showdown 26
