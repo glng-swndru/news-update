@@ -1,11 +1,11 @@
 # Latest News
--  League Of Geeks Makes Over Half Its Staff Redundant, Jumplight May Never Launch
--  '노량: 죽음의 바다'X'지식채널e' 특급 협업…노량해전에 담긴 역사 깊이 있게 풀어낸다
--  Colombia regresa, después de casi 5 años, a Unasur para fortalecer lazos de colaboración
--  Presidente Maduro anunció la creación de la ‘Alta Comisión por la Defensa de la Guayana Esequiba’
--  Declan Ricen lisäajan pusku räjäytti pankin – Arsenalille makea ryöstöretki Lutonissa
--  동물원middot;수족관 외 시설서 야생동물 전시 전면 금지
--  สั่งย้าย หน.อุทยานฯ หาดเจ้าไหม สอบปมไม่เก็บค่าชมถ้ำมรกต
--  สภาพอากาศวันนี้ ไทยตอนบนอุณหภูมิลดลง-มีลมแรง 7 จังหวัดใต้ ฝนตกหนัก
--  華誼建設堅持初心開創新格局，打造危老第一品牌
--  運動與休閒兼具的海上精品運動，亞果遊艇引領風格生活新趨勢
+-  카리나, 세련된 성숙미 발산
+-  '살림남2' 정혁 父, 아들 비혼주의 발언에 근심 "주변서 결혼 얘기 없냐"
+-  ‘낮 최고 16도’ 추위 누그러져…오후부터 중부 지방 등 비 소식
+-  ‘대장동 의혹 증인’ 유동규 탄 차 대형 화물차와 충돌…병원 이송
+-  “학살자 편히 잠들 곳 없다”…전두환 유해 파주 안장 ‘무산’
+-  Bạc Liêu quy hoạch hơn 1.600ha làm muối
+-  Tổng sản phẩm địa phương (GRDP) của Bình Định ước tăng 7,61%
+-  Đến 2030, sẽ có thêm 21.000ha quy hoạch thành vùng nguyên liệu Sâm Việt Nam tại 9 tỉnh
+-  Subirá la TUA a partir de enero
+-  إسرائيل اعتقلت 21 عاملا بالمجال الطبي بغزة
