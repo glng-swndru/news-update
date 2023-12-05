@@ -1,51 +1,11 @@
 # Latest News
--  College: ontoegankelijk ov zet rechten van gehandicapte onder druk
--  Byju’s Founder Ravindran Pledges His Home To Pay Employee Salaries: Report
--  Govt, PSUs, Defence Sector Observe 14% Upsurge In Hiring: Survey
--  עכשיו כבר אפשר לספר: גל גדות בהריון
--  Tajlandia: 14 osób zginęło w wypadku autobusu
--  Nigerijska vojska greškom pobila učesnike vjerske proslave
--  Over 13,600 SC, ST and OBC students dropped out of central varsities, IITs, IIMs in 5 years: Education Ministry
--  টাঙ্গাইল সদর আসনের ৬ প্রার্থীর নামে ৬১টি মামলা
--  KPU Sleman Atur Larangan Pemasangan Alat Peraga Kampanye di Cagar Budaya
--  Klein maar fijn: dit is de (beperkte) Belgische selectie voor de Wereldbeker Val di Sole
--  Mediasi Gagal, Proses Cerai Okie Agustina dan Gunawan Dwi Cahyo Berlanjut
--  Danas predstavljanje rezultata PISA testiranja
--  Il avait orchestré son propre crash d'avion, un YouTubeur américain condamné à une peine de prison
--  El Gobierno vuelve a aprobar la ley que obliga a la paridad en empresas, política y justicia
--  민주당 "원희룡, 임기 끝나자마자 달려간 곳이 극우목사 앞이라니"
--  Doble sesión de infierno griego para el líder Real Madrid
--  Controversial Transfers from FTX-Related Addresses Raise Concerns
--  Osmaniye'de hafif ticari araçla çarpışan motosikletteki sürücü öldü
--  Legendás ex-vadászpilóta az egyik magyar, akit egy kisrepülőn 3 milliárd forintot érő heroinnal kaptak el Írországban
--  Jokic, el gran líder de la NBA: "Ni con todo el equipo encima le paras"
--  Crypto Currency Exchange DigiFT Receives Regulatory Approval from MAS
--  Тошкент-Самарқанд йўналишида «Афросиёб» поездининг қўшимча қатнови йўлга қўйилади.
--  Фарғона вилояти ҳокими: «Нефтчи» келаси мавсум чемпионлик учун курашади».
--  Ўзбекистонда ҳафта охирида ҳаво кескин совиши кутилмоқда.
--  Sommer è il vero muro Inter, altro che Onana: Yann ha smentito i detrattori
--  Deborah Compagnoni incorona Brignone: “Voglia e testa, è la più forte”
--  Theo Hernandez e la nuova difesa Milan: una certezza in più per Pioli
--  Dominio Napoli al Gran Galà del calcio: Osimhen il migliore, la top11
--  Diretta Lazio-Genoa ore 21: dove vederla in tv, in streaming e probabili formazioni
--  Golden Boy, il battesimo dell'era Bellingham. Gatti e Fabregas, parole d'esempio
--  IRS Witnessed an Increase in Crypto Tax Evasion Cases
--  반복되는 허리 통증, 재발 막는 치료법은?
--  Kabar Terbaru Rencana Wamil Member BTS, Jimin dan Jungkook Berangkat Bareng
--  比亚迪：数字钥匙NFC兼容最广，车主用了都说爽
--  Tristo trkača na Zadar Christmas Run utrci
--  Dogecoin Price Analysis
--  UŽIVO Satelitski snimci pokazuju da je počela izraelska ofanziva...
--  Svjedoci pred tužiocem zbog tunela
--  Шпаковский: Беларусь находится в лагере реформаторов миропорядка - сторонников многополярности
--  Kars'ta otomobilin vites bölümüne gizlenmiş uyuşturucu bulundu
--  Gaz cagnois, jusqu’à 120 bus alimentés, recharge rapide... Ce qu'il faut savoir sur la nouvelle station biogaz de la régie Ligne d’Azur
--  Tragična sudbina radnika sa najpoznatije jugoslovenske novčanice! Živeo u teškoj bedi i umro kao invalid rada
--  Guerre en Ukraine en direct: les Etats-Unis "à court d'argent" pour aider Kiev, attaque de drones sur la Crimée
--  Profesion teknikal diberi keutamaan dalam kajian SSPA – PM
--  Bitcoin’s Resurgence and Navigating the Tax Landscape
--  La Policía detiene por organización criminal a cuatro activistas climáticos de Futuro Vegetal mientras se celebra la COP 2023
--  Morgan Stanley fija un precio objetivo de 32,81 dólares para RxSight con un rating de Sobreponderar
--  Ganjar Konsolidasi Kekuatan Pendukungnya di Balikpapan, Kaltim
--  В МО Финляндии заявили о планах начать производство боеприпасов для Украины
--  Panglima TNI-Kapolri Siap Kawal Pemilu Berjalan Lancar dan Damai
+-  Filistinli çocuklardan Başkan Aktaş'a ziyaret
+-  Van'ın ilk ve tek kadın muhtarı olarak seçildi!
+-  Bursa Uludağ Üniversitesi'nde TEXSUM 2023 Zirve Etkinliği başladı
+-  CHP Bursa'dan Dünya Kadın Hakları Günü mesajı
+-  Asya borsaları Hindistan hariç geriledi
+-  Deprem bölgesinde sağlığa erişim uygulamasında süre uzatıldı
+-  Nagihan Karadere'nin babasından açıklama geldi!
+-  Yağışlar Trakya'daki nehirlerin debilerini artırdı
+-  Tofaş'a nihai rekabet incelemesi
+-  Borsa güne nasıl başladı?
