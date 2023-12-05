@@ -1,51 +1,51 @@
 # Latest News
--  KAI, 아프리카·중동 마케팅 강화
--  양산부산대병원, 비수도권 에크모 팀 운용 성과
--  Rusya: Kırım'da Ukrayna'nın 40'tan fazla İHA saldırısı durduruldu
--  Fenerbahçe Beko deplasmanda Baskonia Vitoria-Gasteiz ile karşılaşacak
--  Kırıkkale'de uyuşturucu operasyonunda yakalanan 17 zanlıdan 2'si tutuklandı
--  Aile ve Sosyal Hizmetler Bakanlığı: Kamuya 491 şehit yakını, gazi ve gazi yakını atanacak
--  5 yıl sonra! F.Bahçe'de Sivasspor'a karşı dejavu
--  Deprem bölgesinde sağlığa erişim uygulaması süresi uzatıldı
--  Fas'ta gündem: Hakim Ziyech
--  Kolombiya, isyancı ELN örgütü ile 5. tur barış müzakereleri Meksika'da başladı
--  Olası Marmara depremi uyarısı: İstanbul'a yakın iller de hazırlık yapmalı
--  Mobilne verzije GTA videoigara dosad zaradile više od 100 milijuna dolara
--  Mount Marapi: Eleven hikers killed as volcano erupts in Indonesia
--  Sektor agrikomoditi dijangka berdepan cabaran besar tahun hadapan
--  Otkrivena strogo čuvana tajna: Ime svjetskog glasa stiže na Opus Arenu? Radio je s brojnim slavnim imenima
--  Çanakkale Biga'da devrilen otomobilin sürücüsü yaralandı
--  Ogün Samast soruşturmasında yeni gelişme!
--  Çanakkale Gelibolu'da polisten kış lastiği denetimi
--  Adana'da dere yatağına dökülen tonlarca limon imha edildi
--  TCMB'den dikkat çeken rapor: Doların yükselmesi ithalatı artırmıyor
--  Van'da kaçakçılık operasyonları! 55 gözaltı
--  Erzurum'da maden operasyonu!
--  "الملياردير" جورج قرداحي يعود إلى الشاشة في رمضان 2024
--  Başkan Türkyılmaz'dan deprem açıklaması
--  Bakan Yerlikaya duyurdu: Kumar ve yasa dışı bahis operasyonu! 18 kişi gözaltında
--  انٹر بینک مارکیٹ میں کاروبار کے دوران ڈالر سستا ہو گیا
--  프로축구 경남FC, 설기현 감독과 결별…4년 동행 마침표
--  [영상] 전용기 "48세와 14세 사랑 인정 판결 사회적으로 받아들일 수 있느냐"
--  العظمى والصغرى.. درجات الحرارة بمكة والمدينة وجميع المناطق
--  "NJEGOV SAN JE DA PONOVO ČUJE KAKO MU UZVIKUJU IME" Toni Nadal progovorio o Rafinom oporavku, pa otkrio šta mu je GLAVNI CILJ!
--  "KRALJU, IMA SE, JE LI?" Sašu Popovića snimali i provocirali dok se gradom vozi KABRIOLETOM od 230.000 €, njegova reakcija je HIT
--  A che ora si svolgono i funerali di Giulia Cecchettin: l’orario della celebrazione
--  À l'approche de Noël, 27% des Français ont demandé un acompte sur salaire
--  Скончалась сестра Фиделя Кастро
--  Τρόμος τα μεσάνυχτα από φωτιά σε 5όροφη πολυκατοικία - Ο εφιάλτης των ενοίκων στη Θεσσαλονίκη
--  World’s largest light art festival Noor Riyadh returns to Saudi Arabia’s capital
--  المدير العام لمنظمة حظر الأسلحة الكيميائية يتسلم أوراق اعتماد المندوب الدائم لدولة قطر
--  «Руспродсоюз» отметил рост цен на российское шампанское за год в 6,25%
--  '변호사 아내 살해' 사건, 부검 결과 "경부압박 질식·저혈량 쇼크"
--  "돈 먹는 하마 전락" 양영환 시의원, 전주푸드 통폐합·사업폐쇄 촉구
--  Mozzart Sport: «Зенит» может подписать нападающего «Црвена звезда» Миятовича
--  Subsidi tiket penerbangan Sabah, Sarawak semasa musim perayaan
--  Knallgeräusche an einem Geldautomaten in Daleiden
--  Fidel Castro’s sister, Juanita, dies in Miami at 90
--  Search continues for 12 climbers after Indonesian volcano eruption
--  Орбан поиска ЕС да не решава за преговорите с Украйна и да не я финансира
--  Shirin van Anrooij maakt zich geen zorgen: “Ik heb gewoon nog iets meer crossen nodig”
--  KG 모빌리티, 제 60회 무역의 날 10억불 수출탑 수상
--  Число погибших в результате извержения вулкана в Индонезии выросло до 13
--  평택시, 선말산·부용산 방공호 학술조사 용역 착수
+-  Gabriel, Pepe y Óscar
+-  Proliferan renuncias a proyectos petroleros; reporte de la CNH
+-  ১৫ তলা দুই সরকারি ভবন খালি, বানানো হচ্ছে আরও চারটি
+-  عشرات الشهداء والجرحى في قصف ليلي عنيف طال مناطق مختلفة بقطاع غزة.
+-  서울시교육청-당신의 포레스트, 심리검사 및 교구 업무협약 체결
+-  의정부시, 12월 미래가치 공유의 날 개최
+-  HR중소기업 비즈니스지원센터, 중소기업･소상공인 대상 정책자금 컨설팅 진행
+-  Генерал Ясин Зия: «Афганское общество полно мотивации восстать против талибов»
+-  Бобо Камоли Хуҷандӣ кӣ буд? Чаро то ҳол масҷиду мақбараи ӯро азиз медоранд?
+-  Мъж е застрелял родителите на жена си и се е самоубил - Труд
+-  티모시 샬라메, “♥카일리 제너는 놀라운 엄마” 경외감 느껴…뜨거운 로맨스[해외이슈]
+-  아이유 측 "신보 내년 상반기 목표…방탄소년단 뷔 MV 출연" [공식입장]
+-  '현역 입대' BTS 뷔, 아이유 지원사격…"신곡 MV 출연 맞다" [공식입장]
+-  저우궈단 동양생명 대표, 사택·테니스장 논란 끝에 사임 결정
+-  국민은행, CU 편의점 무인점포 ‘QR 인증’ 서비스 출시
+-  Šalia mūsų galaktikos aptikti kosminiai dariniai – nykštukinės galaktikos: mokslininkai pateikė radikaliai naują išvadą
+-  [ŽT] 2024 m. sausį. Lietuvos kariuomenei uždarys kelią į Rusiją, Kiniją ir Moldovą
+-  Buvo pasmerktas nuo pat pradžių? WP atskleidė pasirengimo kontrpuolimui detales
+-  [ŽT] Daug skambių frazių - Trumpas įsivėlė į skandalą su De Niro (Video)
+-  Sukėlė JAV sumaištį. Pirmą kartą per 7 metus pasirodė slaptas Kinijos mega ginklas (Foto)
+-  Tūkstantį kartų pasigailėjo. Dviračio vagystė okupantui baigėsi tragiškai blogai (Video)
+-  TikTok Owner May Soon Launch Its Own Chatbot Platform, Memo Says
+-  [CULTURE] Young K-pop couple Choi Min-hwan, Yulhee announce divorce
+-  Over 60% of S. Korean university students say resolution of NK nuclear issue necessary for reunification: poll
+-  BOK, Italian central bank sign MOU for IT, settlement system cooperation
+-  'Sweet Home' breakout star Song Kang keeps journal to dive deep into his character
+-  Hana Financial Group donates $11 mil. to the underprivileged
+-  Eisstockschießen auf der Kamener Winterwelt: Die ersten Finalisten stehen fest
+-  KISA·정보보호학회, 사이버보안 정책 포럼 개최
+-  반도체 기후 컨소시엄 에너지 협의체 출범…아태지역 넷제로 가속
+-  김태흠 충남도지사 ‘탄소중립 외교’
+-  충북도, 대한민국 광역지자체 개혁 ‘롤모델’
+-  논산계룡축협 ‘한돈 삼겹살’ 통 큰 세일
+-  예산군, 2023년 만성 질환 예방·관리사업 유공 분야 충남도지사 표창 수상
+-  홍성군, 홍주읍성 멸실 성곽 복원 정비 성과 ‘속속’
+-  백성현 논산시장 ‘광폭 행보’ 통했다
+-  제4회 홍성군 한우협회 한우 능력 평가대회
+-  시속 167km '질주’ 구자균 LS일렉트릭 회장, 벌금 30만원
+-  박수빈 의원, 세입 감소에도 시장 잇속 알차게 채운 2024 서울시 예산안 비판
+-  봉양순 위원장, 2023 서울특별시 조경상·푸른도시상 축사
+-  김현기 의장, 2023년 사랑의 열매 이웃사랑 성금 전달
+-  김혜영 의원, 사립학교 및 각종학교... 기간제 교원 담임 비중 높아 개선 필요
+-  전병주 의원, 서울 학생 위한 서울시청-교육청 협력관계 필요 강조
+-  서울시, '남산 혼잡통행료 정책방향' 의견 청취... 20일 공청회 개최
+-  서울시, 서울역 광장에 노숙인 위한 ‘아리수 무료 자판기’ 설치
+-  Unlocking The Future: A Glimpse Into The Career Aspirations Of Indian Professionals
+-  Gold price drops by Rs 2,400 per tola on Tuesday
+-  В домах, где жила партийная элита БССР, продают «квартиру-музей»
+-  MIMORIADNE Poplach na bratislavskom gymnáziu! Študentov otáčajú spred školy, podozrenie zo streľby
+-  Zomrela mladšia sestra kubánskych lídrov Castrovcov: Bola ich veľkou kritičkou!
