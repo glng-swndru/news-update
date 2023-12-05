@@ -1,11 +1,11 @@
 # Latest News
--  Kenan Yıldız için devler kapışıyor! İngilizler peşinde
--  Fotot e Kiarës me barkun e rrumbullakosur, Luizi i bën kritika publikisht: Kjo dora…
--  Instagram'da ciddi bir sorun var iddiası, kullanıcılar bunu araştırıyor
--  ביידן: חמאס סירב לשחרר נשים צעירות, זה מה שהביא לסיום הפסקת האש
--  Fondo Estatal de Ciencia, Tecnología e Innovación contará con inversión histórica de 80 mdp
--  설경구(Seol Kyung-Gu), ‘학전 어게인’ 프로젝트 참가해요
--  '3명이 얽히고 설켰다' 이래서 오타니 행선지 결정 쉽지가 않다→복잡하다 복잡해
--  Wild salmon conservation group raises concerns about herring kills at B.C. fish farms
--  Congress stalls on immigration policy negotiations
--  Відео дня: Яремчук забив свій перший гол за Валенсію у матчі Кубка Іспанії
+-  Fill the Tunnels With the Sea: IDF to Flood Terror Tunnels, Free Palestine From Hamas
+-  China could use a foldable helicopter to collect samples on Mars
+-  時間犯罪者と金もうけする悪上司の尻尾をつかめ！ 吉岡里帆“廻”と永山瑛太“翔”が深夜のオフィスに潜入
+-  The 10 Best Digital Notebooks for Recording Information Efficiently
+-  The best telescopes for astrophotography in 2023
+-  Hoe kon meester Bas na eerste melding in zedenzaak nog elf weken voor de klas staan?
+-  Piyanist Mehveş Emeç'ten Dünya Kadın Hakları Günü'ne özel konser
+-  DFB-Frauen zittern sich in Nations-League-Endrunde
+-  الامارات | محمد بن زايد: نشجع استمرار الجهود لتحقيق وقف إطلاق النار في غزة
+-  الامارات | 5 أسباب أقصت الشارقة من «آسيا» في 6 دقائق
