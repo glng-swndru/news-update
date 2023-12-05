@@ -1,11 +1,11 @@
 # Latest News
--  সিরিজ জয়ের স্বপ্ন নিয়ে মাঠে নামছে বাংলাদেশ
--  Gazeteci Sırrı Bıyık hayatını kaybetti
--  Gazze'deki Türk vatandaşlarının tahliyesi sürüyor
--  Üç terörist Hudut Karakoluna teslim oldu
--  Smijenjena Vlada USK i imenovana nova, premijer Nijaz Hušić
--  هل تكون المناظرة الجمهورية الرابعة هي الأخيرة؟
--  Families injured on icy ‘untreated’ paths on school run in Haddington estate
--  Slovensko pri riešení migrácie a azylu v EÚ má svoje červené čiary, tvrdí Šutaj Eštok
--  Expremiér sa stal držiteľom prestrížneho ocenenia: Známy magazín označil Ódora ako osobnosť roka!
--  Batı Şeria'da işgalcilerin şiddeti artıyor: Fransa saldırıları kınadı
+-  Triple H declaró que vencería a CM Punk tras bastidores en WWE durante su riña, declara integrante del Salón de la Fama
+-  مدبولي يؤكد أهمية الأذرع الصناعية لـ"العربية للتصنيع" في توفير مكونات المشروعات القومية
+-  جيش الاحتلال: عنوان قواتنا في غزة هو السنوار
+-  إخماد حريق اندلع داخل مصنع كراسي بالقاهرة الجديدة
+-  وزير التعليم يبحث مع نائب مدير معهد "جوته" التعاون في تطوير التعليم قبل الجامعي
+-  بعد مقتل ضابطين.. ارتفاع إجمالي قتلى الاحتلال اليوم إلى 7 خلال المعارك بغزة
+-  "القومي للإعاقة" يتعاون مع "الداخلية" لتوفير إجراءات تيسيرية الجديدة لذوي الهمم
+-  الحكومة بغزة: الاحتلال ارتكب 77 مجزرة راح ضحيتها 1240 شهيدًا منذ استئناف القتال
+-  سرقة نجوم كرة القدم.. قصص رعب لا تنتهي ولاعب جديد أحدث الضحايا
+-  ليس التوتر السبب.. احذر "هز رجلك" علامة على الإصابة بهذا المرض
