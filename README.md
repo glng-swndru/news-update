@@ -1,11 +1,51 @@
 # Latest News
--  Filistinli çocuklardan Başkan Aktaş'a ziyaret
--  Van'ın ilk ve tek kadın muhtarı olarak seçildi!
--  Bursa Uludağ Üniversitesi'nde TEXSUM 2023 Zirve Etkinliği başladı
--  CHP Bursa'dan Dünya Kadın Hakları Günü mesajı
--  Asya borsaları Hindistan hariç geriledi
--  Deprem bölgesinde sağlığa erişim uygulamasında süre uzatıldı
--  Nagihan Karadere'nin babasından açıklama geldi!
--  Yağışlar Trakya'daki nehirlerin debilerini artırdı
--  Tofaş'a nihai rekabet incelemesi
--  Borsa güne nasıl başladı?
+-  ZURICH INSURANCE GROUP: da Berenberg è Buy
+-  ZURICH INSURANCE GROUP : Berenberg handhaaft koopadvies
+-  ZURICH INSURANCE GROUP : Berenberg persiste à l'achat
+-  Berenberg belässt Zurich auf 'Buy' - Ziel 508,90 Franken
+-  גם מטא, אינטל ו-DELL בפנים: גוף ענק חדש התחייב לבינה מלאכותית בטוחה
+-  שש המיגוניות הוצבו באצטדיון הי"א, אוואני צפוי לפתוח מול הפועל ת"א
+-  Konya'da polisin durdurduğu araçta uyuşturucu hap ele geçirildi
+-  Dilan Polat'ın 'Şampiyonlar Ligi' fotoğrafındaki 12 fenomenin şirketine kayyum atandı
+-  Altın fiyatlarında beklenmedik düşüş! Yüzde 2,22 değer kaybetti
+-  Mansur Yavaş'tan İYİ Parti'nin kararına ilk yorum
+-  ALES/3 sınav sonuçları açıklandı! İşte ÖSYM sorgulama ekranı
+-  EUREX/DAX-Future unter leichtem Abgabedruck
+-  Kripto parada işlemlere vergi yolda
+-  Henkel-CEO verteidigt Preiserhöhungen - Umbau kommt voran
+-  Game of Thrones star makes second court appearance in two months over child sex offence
+-  우리금융, 전통시장에 카드단말기 수천대 무상 지원 … 카드사, 상생금융에 동참
+-  홍천군농업기술센터, 2023년 전국 농촌지도사업 평가 우수 농업기술센터 선정
+-  네덜란드육류협회, ‘믿을 수 있는 네덜란드산 유럽 송아지 고기 레스토랑 위크’ 성료
+-  Economists expect to see muted growth with Q3 GDP figures
+-  Only one unit at Koeberg to be operational at a time over next 2 years - NNR
+-  Parly to debate report recommending suspension of 6 EFF MPs over SONA disruption
+-  ANC 'categorically' denies it's 'broke', says it's meeting financial obligations
+-  Ezulweni believes ConCourt won't overturn rulings ordering ANC to settle debt
+-  City of Cape Town begins 6-month Diep River aerating trial to address pollution
+-  ‘Ganti-Ganti’: A sexy revenge story with a twist
+-  NIPA, 2023년 지역 디지털 사업 통합 성과보고회 7~8일 개최
+-  가천대서울길병원 차세대 IT 인프라 카카오클라우드로 구축한다
+-  퀄컴, ‘2023 서울형 청년인턴 직무캠프’ 수료식 개최
+-  ‘제202차 KEDI 교육정책 포럼’ 6일 개최…AI 기반 맞춤형 교육 현안 점검
+-  프로텐, 대한적십자사 회원유공장 ‘은장’ 수상
+-  웨이버스, 울산미포산단 디지털트윈 기반 통합관제플랫폼 구축 시작
+-  우리넷, 이음5G 자체 시험망 구축…이음5G 시장 내 입지 강화
+-  아이티센그룹, 아주대와 우즈베키스탄 ICT 인재 양성·취업 지원 ‘맞손’
+-  “챗GPT, 국내 다운로드·소비자 지출·세션 수 1위 석권”
+-  SKT, 시내버스 공공와이파이 5G 전환·구축 완료
+-  Petrolio: prezzo in lieve aumento, Wti vale 73 dollari
+-  NOVO NORDISK: Berenberg ribadisce il giudizio Neutral
+-  NOVO NORDISK : Berenberg herhaalt Neutraal advies
+-  NOVO NORDISK : Berenberg toujours neutre sur le dossier
+-  Miliz im Jemen: Was Sie über die Huthi-Rebellen wissen müssen
+-  TRENDUMFRAGE/DAX zum Handelsende 0,2% niedriger erwartet
+-  Berenberg hebt Ziel für Novo Nordisk auf 650 Kronen - 'Hold'
+-  At&t sigla accordo da 14 miliardi dollari con Ericsson
+-  Russland berichtet von Dutzenden ukrainischen Drohnenangriffen
+-  NIJE MU BILO SPASA Muškarac poginuo u sudaru dva kombija kod Surčina
+-  Pogledajte video trenutka kad je Prijović s Rozgom i Brenom zapjevala ''Hajde da se volimo'', ovako nešto još se nije dogodilo u zagrebačkoj Areni!
+-  OKB: Situata në Gaza është apokaliptike
+-  Bce, Schnabel esclude altri rialzi tassi dopo "notevole" calo inflazione
+-  Campos Neto diz que Brasil pode usar inteligência artificial contra a lavagem de dinheiro
+-  Blondie & Garfield - DECEMBER 6, 2023
