@@ -1,11 +1,11 @@
 # Latest News
--  Childcare boost for Brimbank
--  واشنطن تستبعد إعادة النظر في إمدادات الأسلحة إلى إسرائيل
--  Train pain for commuters as V/Line strike looms
--  Luís Gonçalves demitido do Interclube, do Girabola
--  Chiptoeleverancier ASMI wil nieuwe hoofdkantoor in VS
--  A cuatro meses, sin pistas sobre asesino de Ariadna
--  OC&C Strategy Consultants Becomes A Certified B Corporation
--  Nearmap Announces Agreement to Acquire Betterview, a Complementary Property Intelligence and Risk Management Platform
--  “Un fallo en la Matrix”: una inquietante FOTO tomada con un iPhone desafió los límites de internet
--  500대 기업이 빌린 돈, 2년 새 165조 늘었다 … 한전·가스공사 차입금 의존도 51%
+-  ¡Al borde del llanto! Kim Jong Un exhorta a las mujeres de Corea del Norte a tener más hijos
+-  0-1. El Arosa queda eliminado, pero con buena imagen
+-  Naneli umalo da bude tragičar meča protiv Monaka: Hteo sam da fauliram Džejmsa, ali nisam uspeo
+-  Woman, 42, dies and two others including boy, 16, are rushed to hospital with gunshot wounds after triple shooting in Hackney as manhunt gets underway
+-  Il Master in Digital Skills “Made in Romagna” che permette di trovare (realmente) un lavoro
+-  Revealed: The top 10 worst Christmas mistakes we commit over the festive season... But how many are YOU guilty of?
+-  En Ahome premian a las escuelas que ganaron en el Desfile Cívico Deportivo del 20 de Noviembre
+-  Pregnant Ashley Benson showcases her growing baby bump in casualwear while stepping out with husband Brandon Davis in West Hollywood
+-  Convivialità durante le feste natalizie: un calore che unisce
+-  Queen Camilla pays tribute to her mother-in-law Elizabeth II by wearing late monarch's 'favourite tiara' for glittering Buckingham Palace Christmas Diplomatic Reception
