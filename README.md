@@ -1,11 +1,51 @@
 # Latest News
--  Uzbekistan recognizes, implements all major int’l documents on human rights, freedom
--  President Shavkat Mirziyoyev: Transition to a green economy and achieving carbon neutrality are the key strategic objectives of New Uzbekistan
--  Yoon reshuffles 6 Cabinet ministers, including finance minister
--  JB금융지주, 한국 ESG기준원(KCGS) ESG 우수기업 선정
--  VIDEO: Por las lluvias al menos 100 casas fueron engullidas por el lodo
--  突发7.6级大地震！建筑物瞬间坍塌、民众疯狂逃生，“毁灭性”海啸预警！还有火山爆发，至少11人死亡！澳洲恐遭遇强热带气旋...
--  高通胀下，投资者是否应该选择利率高企的定期存款？
--  经济学家：利率将在2024年保持高位，下降过程将“缓慢而漫长”
--  新西兰球手首夺香港壁球公开赛男子冠军
--  NK leader calls for mothers' role in propping up regime
+-  בהפועל תל אביב טוענים: "הלבישו על אנשים תיק"
+-  في ليلة عودة حجازي.. الاتحاد السعودي يؤمن صدارته الآسيوية
+-  SK chairman proposes economic coalition involving S. Korea, Japan to cope with shifting economic landscape
+-  Construction firms, unions poles apart over hiring of foreign labor for plant construction
+-  Prefabricated Guard House Market Outlook - Trends, Sales and Key manufacturer Analysis by 2029
+-  호텔신라, '2024 정기 임원인사' 단행…3명 상무 승진
+-  우아한청년들, '이륜차 공회전 제한' 동참
+-  태연, 서 있기만 해도 섹시…'농염美 폭발' 탱구
+-  Lab Information Management Systems Market Size (USD 4.15 Billion by 2031) Achieves Record-breaking Growth in Meeting Healthcare Requirements
+-  Mornington Peninsula tourists to pay under new parking scheme
+-  Global Printing Toner Market Outlook by 2028 - Russo-Ukrainian War & Monetary Policy Impac
+-  Camphor Market Surpasses US$ 427 Million in 2022, Projected to Achieve a 5.7% CAGR and Reach US$ 629 Million by 2029
+-  Winglets Market Analysis, Trends, Growth, Research And Forecast 2032
+-  Plastic Corrugated Sheet Market to See Huge Demand by 2030: DS Smith, Classic Enterprises, Twinplast
+-  ‘วันพ่อแห่งชาติ’ กทม. ประดับดอกไม้สีเหลืองกว่า 184,740 ต้น
+-  Wycena ropy próbuje się ustabilizować
+-  Building a Greener Future: Reclaimed Lumber Market Trends and Innovation BY 2027
+-  부동산 조각투자 소유, 7호 공모 부동산 ‘신도림 핀포인트타워’ 공개
+-  Commercial Vehicle Telematics Market Size, Share Analysis, Industry Trends, Segmentation And Forecast To 2032
+-  Fire truck stolen from South Coast shed
+-  Graphite Lubricant Market Research Report And Predictive Business Strategy By Forecast 2029
+-  Brake Lathes Market to Reach USD 3760.7 Mn by 2029, emerging at a CAGR of 6 percent and forecast 2023-2029
+-  Kickoff | Volatile CAF atmosphere didn’t bother Sundowns
+-  Spor yazarları Fenerbahçe - EMS Yapı Sivasspor maçını yorumladı!
+-  Active & Intelligent Packaging Market to Reach USD 50.04 billion by 2030 at CAGR 8.9%, Top Players -Amcor PLC, Crown Holdings Inc, Mitsubishi Gas Chemical Co, Constar International Inc, Ball Corporation
+-  TotalEnergies и SOCAR проведут кампании по обнаружению метана с помощью дронов
+-  Teljesen kimerült az amerikai pénzcsap, új világrendet alkotna Putyin - Híreink Ukrajnából kedden
+-  Futurama Season 4 Streaming: Watch & Stream Online via Hulu
+-  Underwater Connectors Market trends, Top Companies, Share, Growth And Forecast 2032
+-  무주국유림관리소, 취약계층 6세대에 사랑의 땔감 나누기
+-  전주시 자원 재활용촉진 시책 수립 나선다
+-  천주교 수원교구, lsquo;사제middot;부제 서품식rsquo; 거행
+-  국내 정상급 무용수들이 선사하는 lsquo;크리스마스 선물rsquo;
+-  박진만 전라북도건축사회장, 국정기조 쇄신 위한 1인 시위
+-  김태현 원광대병원 췌장담도내과 교수팀 논문 국제 SCI학술지 게재
+-  [한국마사회 소식] 마케팅-사회공헌-관광시설 활용 '협업'
+-  Сколько мандаринов и откуда завезли в Казахстан
+-  مع الجلوس لفترات طويلة.. هذا التمرين ينشط الدماغ
+-  Brine Concentration Technology (BCT) Market Growth, Latest Trends, Opportunities, Key Drivers, Size And Forecast To 2032
+-  Lactic Acid Market: Sugarcane Dominance Propels Valuation to US$ 4.8 Bn. in 2029
+-  Aluminum Die Castings Market is Gaining Momentum with Alcast Technologies, Arconic, Lijia Group, Toshiba
+-  Baerbock: EU-Aufnahme der Balkanstaaten im eigenen Interesse
+-  Israel nuclear missile facility hit by Hamas rockets
+-  WhatsApp перестанет портить фото и видео
+-  World’s oldest living triplets turn 93 years old – check out their secret to long life
+-  Le immatricolazioni di auto nuove nel Regno Unito sono aumentate di circa il 9% a novembre - SMMT
+-  Britische Pkw-Neuzulassungen im November um fast 9% gestiegen - SMMT
+-  Registraties nieuwe auto's Verenigd Koninkrijk in november met bijna 9% gestegen - SMMT
+-  Le esportazioni di GNL russo verso l'Asia nel 2023 attraverso la Northern Sea Route sono rimaste invariate rispetto all'anno scorso - Kommersant
+-  Russlands LNG-Exporte nach Asien über die Nördliche Seeroute 2023 unverändert zum Vorjahr - Kommersant
