@@ -1,11 +1,11 @@
 # Latest News
--  What is Coffee Badging? Experts highlight how the practice can be avoided
--  `Dunki` Trailer: SRK`s film spans 25 years, introduces pivotal characters
--  CID fame Dinesh Phadnis aka Fredericks passes away
--  Soccerladuma | Chiefs Closer To Getting Striker Back
--  Soccerladuma | Chiefs To Make More Millions From Ngezana?
--  Навоий вилояти судига янги раис тайинланди.
--  윤 대통령 "'수출패키지 우대 보증' 신설 … 중소·중견기업 자금 걱정 없이 수출에 전념"
--  SK쉴더스, 2024년 5대 보안 위협 전망 발표
--  드롭박스 “한국 현지화로 내년 제조∙리테일 분야 고객 확보”
--  KISA, 2023년 제2회 ‘사이버보안 정책 포럼’ 워크숍 이달 12일 개최
+-  Uzbekistan recognizes, implements all major int’l documents on human rights, freedom
+-  President Shavkat Mirziyoyev: Transition to a green economy and achieving carbon neutrality are the key strategic objectives of New Uzbekistan
+-  Yoon reshuffles 6 Cabinet ministers, including finance minister
+-  JB금융지주, 한국 ESG기준원(KCGS) ESG 우수기업 선정
+-  VIDEO: Por las lluvias al menos 100 casas fueron engullidas por el lodo
+-  突发7.6级大地震！建筑物瞬间坍塌、民众疯狂逃生，“毁灭性”海啸预警！还有火山爆发，至少11人死亡！澳洲恐遭遇强热带气旋...
+-  高通胀下，投资者是否应该选择利率高企的定期存款？
+-  经济学家：利率将在2024年保持高位，下降过程将“缓慢而漫长”
+-  新西兰球手首夺香港壁球公开赛男子冠军
+-  NK leader calls for mothers' role in propping up regime
