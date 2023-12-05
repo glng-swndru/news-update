@@ -1,11 +1,11 @@
 # Latest News
--  Убийството в Маноле извършено с незаконно притежавана пушка
--  남양주시, 동절기 취약계층 보호대책 추진
--  남양주시, '2023년 숏폼 홍보영상 공모전' 시상식 개최
--  남양주시, 하천 수질관리 강화 위해 '바람골길 하천관리 네트워크'운영
--  윤호중 의원, 구리시 하반기 행안부 특교 13억원 확보
--  김한정 의원, 2023 더불어민주당 '국감' 우수의원 선정
--  국힘 남양주시을 곽관용 당협위원장, 9일 '북콘서트' 개최
--  구리시 어르신들의 기다림 끝... ‘구리시 노인복지관’ 개관
--  인창도서관, 독서동아리와 함께하는 ‘문학의 밤’ 14일 개최
--  사전협의 없는 일방적인 공청회 개최에 분노 폭발
+-  2024 Şivlilik ne zaman? Konya Şivlilik heyecanını bu tarihte yaşayacak...
+-  MHP den aday adaylığını açıklayan Abdulkadir Çat: Benim için önemli olan sizlerin güvenini kaybetmemek
+-  Antep fıstığı ticareti yapan 35 teşebbüs hakkında soruşturma
+-  Moment mal: Apfelwein
+-  ESSILORLUXOTTICA: ancora rating Neutral per RBC
+-  ESSILORLUXOTTICA : RBC handhaaft het Neutraal advies
+-  Dokuz ilde FETÖ operasyonu: Sözde TSK yapılanmasına yönelik 12 gözaltı
+-  Bilanço ağırlaşıyor: Meydana gelen sel ve heyelanlarda ölü sayısı artıyor
+-  Sanremo, la rivelazione shock sulla lite Morgan-Bugo: "Sono stato io"
+-  Frankreich: Industrie produziert erneut weniger
