@@ -1,11 +1,51 @@
 # Latest News
--  Guinée-Bissau : les narcotrafiquants au cœur de la «tentative de coup État»
--  Horoscop joi, 7 decembrie. Nativii unei zodii primesc vești importante pe plan profesional
--  Chieftaincy tussle: Enugu community demands panel of enquiry
--  Байдън: Финансовата помощ за Украйна не може да чака
--  Guárico ocupa cuarto lugar en la producción de bovinos
--  Как да се сдобрите след скандал?
--  Waze fica ainda mais divertido com nova experiência de navegação
--  استقالة وزير الهجرة البريطاني غداة توقيع معاهدة مع رواندا حول ترحيل المهاجرين
--  Avrupa Parlamentosu Raportörü Amor Osman Kavala’yı ziyaret etti
--  Why Lovesac Stock Popped Today
+-  'Better than Stamford Bridge'... Chelsea fan Jeremy Clarkson goes unfiltered on MUTV and takes press conference dig
+-  وزير الرياضة يتابع منافسات دورة الألعاب السعودية
+-  Today’s Lely Radio Sports Page 12/6/23
+-  Ολυμπιακός: Ο Φορτούνης εκτίει με Ατρόμητο
+-  Most drugmakers have so far ignored looming FTC deadline to withdraw or amend wayward patents
+-  АҚШ биринчи марта Россия ҳарбийларига нисбатан жиноят ишини очди.
+-  Байден Конгрессни йил охиригача Украинага ёрдамни тасдиқлашга чақирди.
+-  Bayern Munich and Borussia Dortmund slam each other’s transfer policy in German media row
+-  Stuff Quiz: The Hard Word: December 7, 2023
+-  Kako se zaštititi na internetu?
+-  What's on in South Canterbury: December 8-10, 2023
+-  Two major mining prospects could put B.C. on the nickel mining map
+-  【8日の献血】芦北町県芦北地域振興局など
+-  【7日の交通取り締まり情報】
+-  No charges for animal rights activists who blocked BC SPCA gala
+-  Trevor Deely case: Gardaí have interviewed other man from CCTV footage
+-  ABD'li yetkililer İsrail yönetimine iletti: Gazze saldırıları ocak ayına kadar bitebilir
+-  New laws passed in parliament to re-detain criminals released from immigration detention
+-  National weather forecast for Thursday December 7
+-  National weather forecast for Thursday December 7
+-  Police called to reports of man 'making threats with offensive weapon’ at youth centre
+-  Surprise pet Christmas presents are ill-advised, BC SPCA warns
+-  Vaşinqtondan Bakıya göndərilən plan: Əliyevin şərtləri var
+-  Surprise pet Christmas presents are ill-advised, BC SPCA warns
+-  Sudão. Estados Unidos acusam as partes em conflito de "crimes de guerra"
+-  Defence minister announces panel members tasked with reviewing military colleges
+-  Arranca Operativo Guadalupe-Reyes de la Policía Municipal
+-  حوادث غير متوقعة ومفاجآت غير سارة.. 3 أبراج عليهم الحذر الفترة القادمة
+-  المقاومة: دمرنا 23 آلية عسكرية ونسفنا منزلًا تحصّن به عناصر قوات خاصة إسرائيلية
+-  الدوري الإنجليزي.. جارناتشو يقود هجوم مانشستر يونايتد ضد تشيلسي
+-  4 مصابين باختناق وكسور في حريق مخزن مراتب بالهرم
+-  لغز العثور على جثة أمام محطة قطار الجيزة
+-  إصابة 7 أشخاص في حادث سيارة نقل بـ"صحراوي الصف"
+-  الخارجية الأمريكية: نعارض أي منطقة عازلة إذا كانت داخل حدود قطاع غزة
+-  Bereaved families of Covid disgusted by 'cruel' and 'callous' Boris Johnson
+-  دي يونج يتفوق على الجميع بالدوريات الخمسة الكبرى
+-  Even Rule 5 draft is dull for SF Giants, most other teams as MLB Winter Meetings come to a close
+-  ASK/LSPA dobelniekiem sagādā sīvāko pretestību Virslīgā šosezon
+-  3 Dividend Stocks to Buy Before the Bear Market Starts
+-  Catarinense Medalhista Olímpico vai ganhar homenagem no Carnaval 2024
+-  BBC o Dodiku: Prijeti odcjepljenjem RS, ali...
+-  تطبيقات في هاتفك تتجسس عليك.. إزاي تحافظ على خصوصيتك؟
+-  Guterres: Rat u Gazi može pogoršati prijetnje međunarodnom miru
+-  Herstellende De Bruyne verrassend in selectie Manchester City voor WK clubs
+-  DFB-Pokal: Bayern-Schreck 1. FC Saarbrücken schlägt auch Eintracht Frankfurt
+-  Złoto zaczęło drożeć
+-  Ukraina i USA podpisały wstępne porozumienie w sprawie wspólnej produkcji broni na Ukrainie
+-  حديث مدرب مانشستر يونايتد قبل مواجهة تشيلسي
+-  Fantasia Wants to Follow ‘The Color Purple’ by Starring in a ‘John Wick’ Movie: ‘I Want Something Where I Can Kick Ass’
+-  Fantasia Wants to Follow ‘The Color Purple’ by Starring in a ‘John Wick’ Movie: ‘I Want Something Where I Can Kick Ass’
