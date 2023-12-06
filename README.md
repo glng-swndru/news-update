@@ -1,11 +1,11 @@
 # Latest News
--  하남소방서, 화재진압 유공 표창 수여
--  하남시의회 임희도 의원, 2024년도 예산안 심사 돌입
--  여주세종문화관광재단 기획공연… 9일 디즈니 VS 지브리 콘서트
--  양평군, 행안부 하반기 특별교부세 15억 원 확보
--  Man Charged After $40,000 Cash Found Scattered Along Mitchell Freeway
--  ‘Poor Things’: What If Emma Stone Was Frankenstein But Feminist and Horny?
--  'มุก วรนิษฐ์'โดนโจรกรีดกระเป๋าที่เวียดนาม2ครั้งในวันเดียว ซ้ำส่งSMSหลอกขอรหัสไอโฟน
--  מילווקי פירקה את הניקס בדרך לחצי גמר טורניר אמצע העונה
--  Japonya'dan Gazze'ye insani yardım hamlesi
--  Hamas: Gazze'deki İsrailli esirlerin hayatından Netanyahu sorumlu
+-  Negara tiada skim perlindungan pertanian
+-  Dünyaca ünlü şarkıcı Britney Spears'in babasının bacağı enfeksiyon nedeniyle kesildi
+-  Посол Испании в Саудовской Аравии раскрыл детали контракта Месси
+-  Недоволни културни дейци излизат на национален протест
+-  ‘Robbed’: Slain woman’s family front court for her alleged killer
+-  Atropella camión urbano a mujer en la Prieto Luján
+-  جکارتہ میں کھڑا ایئربس 320 طیارہ اسلام آباد واپس پہنچ گیا، لیز کی مد میں کتنی رقم ادا کی؟
+-  Orissa HC sets 15 day deadline for state govt to submit fishing policy for Chilika
+-  Konark festival ends with striking performances
+-  17 children treated from measles in Kara-Kul town
