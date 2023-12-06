@@ -1,51 +1,11 @@
 # Latest News
--  Тошкентда Олий суднинг катта консултанти 10 минг доллар билан ушланди.
--  Янги Тошкент шаҳрининг бош режаси лойиҳаси учун биринчи босқичда 40 млрд сўм ажратилади.
--  Танзила Норбоева БАА федерал миллий кенгаши раиси билан учрашди.
--  Словакиялик юк ташувчилар Украина билан чегарадаги блокадани олиб ташлади.
--  2023 йилда давлат ва жамият манфаатларига етказилган 2,3 трлн сўмлик зарар ундирилди – Бош прокурор.
--  Фарғона вилоятида IT-академия ташкил қилинади.
--  Кремл қамоқдаги айрим аёлларга амнистия эълон қилиши мумкин.
--  7 декабр куни ҳаво ҳарорати пасайишда давом этади.
--  Новосибирцев познакомили с шедеврами европейских ювелиров
--  Автоэксперт Пономарев рассказал, чем вреден дистанционный запуск двигателя
--  Gazan eteläosassa käydään raskaita taisteluita
--  В Петербурге в 30-й раз пройдет фестиваль "Рождественский парад"
--  MEB duyurdu! Sınıf annesi uygulaması yasaklandı
--  Süper Lig'den 8 kulüp PFDK'ya sevk edildi
--  Nafaka ödemediği için 81 yaşında cezaevine girerken gözyaşı dökmüştü; serbest kaldı
--  [테크다이브] 차세대 배터리는 원통형?… '4680 배터리'에 주목하는 이유
--  종로구·안양시, 종량제물품 통합관리시스템(HMS+) 모바일 혁신…'RealGrid-Touch' 도입 효과
--  새마을금고중앙회, 전국 배려계층 2100가구에 김치 21톤 기부
--  우리카드, 굿네이버스에 1억6천만원 전달…"자립준비청년 지원"
--  GEOLOG2 – премиальные офисы в новом деловом районе Москвы
--  Yılbaşı öncesi İstanbul merkezli 8 ilde 150 milyon liralık sahte içki operasyonu: 50 gözaltı
--  눈과 귀로 즐기는 밀리의서재 독서 콘텐츠, 생성형 AI로 제작
--  고향주부모임중앙회, 취약계층에 사랑의 김장김치 전달
--  '강철부대3', 최종 우승 차지한 HID 대원들 인터뷰 공개
--  이화여대, ‘2023 이화가족 성탄예배’ 개최
--  김다현, 부친 김봉곤과 정선 홍보대사로 위촉
--  유연석, '키스신' 노하우 공유
--  10기 옥순♥'돌싱3' 유현철, '조선의 사랑꾼2' 합류
--  '포브스 여성파워 100' 호텔신라 이부진 82위·네이버 최수연 96위
--  크래비티, 오늘 日 미니 1집 '딜리 달리' 발매
--  용준형, 오는 19일 '폴 인투 블루' 발매
--  도경수, 내년 1월 생일 맞이 팬미팅 개최
--  [코스피] 1.10p(0.04%) 오른 2495.38 마감
--  [코스닥] 6.16p(0.76%) 오른 819.54 마감
--  [달러·원] 환율 1.9원 오른 1313.1원 마감
--  Hardcore-Corona-Jünger machen mit “Selbstversuchen” wieder Werbung
--  New coach adds spark for Roos
--  Hilly horizons and shooting stars: a car-free adventure across Coniston and south Cumbria
--  Jättilista osakkeista: Nämä Helsingin pörssiyhtiöt takovat ensi vuonna tulosta – ”Kelkasta jää äkkiä pois, jos odottelee parempia aikoja”
--  Pas sanoen si | Miten aiot juhlistaa itsenäisyyspäivää?
--  Chi tiết 5 dự án BOT được TPHCM giao cho Sở GTVT
--  Фреш Съпорт ООД: Постоянно инвестираме в нови продукти и техника, за да предложим по-качествено и надеждно обслужване
--  Най-модерната медицинска лаборатория “ЛИНА” работи с лидерите в пренаталните тестове
--  Несебър чества 40 години от приемането си в ЮНЕСКО, за Коледа очаква “Сигнал”
--  Университет „Проф. д-р Асен Златаров“ – Бургас носи потенциала на бъдещето
--  Коледните подаръци за властта - вижте комикса на Ивайло Нинов
--  ウロコも背ビレも超リアルに仕上がった『ゴジラ-1.0』フィギュア
--  Искате да платите торта, самолетен билет или друга услуга – вече можете да го направите само с 10-цифри
--  磁石の力でノートPCにくっつくマウス
--  Lewandowski zwrócił się do kibiców. Ma dla nich wiadomość [WIDEO]
+-  दुई दिनमा ३ हजार २०० रुपैयाँले घट्यो सुनको मूल्य
+-  राष्ट्रिय जीवन बीमा कम्पनीले पायो रुपान्तरित कम्पनीको आधिकारिक प्रमाणपत्र
+-  Cụ bà 60 tuổi ở Thái Bình lo lắng cầu cứu chuyên gia vì "bệnh" chỉ thích yêu trai trẻ
+-  Xinhua Silk Road: Wuliangye, 공급망에 대한 국제 협력 추진
+-  삼첩분식, 2023 코엑스 푸드위크 부스 약 5천명 인파로 붐벼
+-  Kai Tin Shopping Centre Unveils Its New Wing with an Exciting New Look and New Shops
+-  Jean-Matthieu Schertzer Named Chief Artificial Intelligence Officer of Untie Nots, Part of the Eagle Eye Group, to Usher in New Era of Retail Personalisation and Customer Centricity
+-  콘진원, CJ ENM과 MOU…“한류행사와 연계, K-콘텐츠 경쟁력 강화”
+-  Hogere rentes lokken Nederlandse spaarders naar buitenland
+-  Meer jonge mannen zoeken contact met hulplijn om kindermisbruik
