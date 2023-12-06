@@ -1,51 +1,51 @@
 # Latest News
--  "평생교육과 연계해 미디어 이해력 높이는 도내 기반 될 것"
--  미디어 제작 최신 장비와 다양한 프로그램 마련
--  ชวน นทท.ทำกระดาษสาจากใบเมล่อนที่วิสาหกิจชุมชนฉิมเมล่อนแหล่งท่องเที่ยวเชิงเกษตร
--  Bajura mothers delivering babies on remote roads due to lack of access to maternal health services
--  Alessio: "Juve, è come con Conte: la fame e la voglia di vincere sono le stesse”
--  [회생법원, ‘파산절차 종료 전 채무자 면책’ 시범실시
--  [산책 중 여성 풀숲 끌고 가 성폭행 시도…法 “징역 10년”
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [출산으로 아내 집 비우자 후배 성폭행·협박한 20대 기소
--  十数人の生徒の体を不適切に触る 男性教師を懲戒解雇 広島県内の私立中高一貫校
--  אושר כהן, "קופה ראשית" וליאור סושרד: הסרטונים הכי פופולריים ביוטיוב השנה
--  האימפריה חוזרת? צביקה הדר מזמין וכוכבי שמש מתייצבים
--  ‘손흥민과 황희찬의 PL 득점 전쟁’ TOP 5 포함! “대한민국은 무서운 화력을 보유하고 있다!”
--  השר ברקת ממשיך לאיים: "לא אתמוך בתקציב ללא 250 מיליון שקל לעסקים ולפריפריה"
--  הוא היה דיפלומט אמריקני עשרות שנים. כעת הוא נחשף כמרגל קובני
--  Венгрия билан тиббиёт соҳасида ҳамкорлик алоқалари янада кенгаяди
--  Turciei a propus la ONU să acționeze drept garant al încetării focului între Israel și Hamas în Gaza
--  Danezii, uimiți de prăbușirea României la Mondialul de handbal: Declarația care arată cât de slab am jucat
--  Fotoquiz EdeStad.nl: 'Hoe goed ken jij Ede?' (162)
--  قمة التعاون الخليجي ترحب بالقوانين الانتخابية التي صدرت عن مجلسي النواب والأعلى للدولة ،وواصفت إياها بالخطوة الايجابية نحو اجراء الانتخابات .
--  Bradley Beal de retour dans les 10 prochains jours ?
--  Ibrahim Nasrallah, escritor palestino: “Si Isaac Rabin estuviera vivo, volverían a matarlo’”
--  Cyclisme : Alaphilippe a bâti sa stratégie pour 2024 !
--  Green Day announce new single ‘Dilemma’, coming this week
--  Aydın Büyükşehir Belediye Başkanı Özlem Çerçioğlu kadına şiddeti önlemeye yönelik politika belgesini imzaladı
--  강원농협 lsquo;결혼이민여성 1대 1 맞춤형 농업교육rsquo; 간담회
--  2023 첨단바이오 분야 강원지역 대학 연합 사업화 유망기술 설명회
--  강원남부주민(주), 상동 저소득가구 난방비 지원
--  정선군, 대중교통 시책평가 우수기관 선정
--  한동훈, 국민의힘 의총 참석해 존재감 과시hellip;'김건희 명품백'엔 quot;내용 몰라quot;
--  의협 원장 '막말' 논란 quot;'소아과 오픈런', 젊은 엄마들 브런치 즐기기 위한 것quot;
--  Regina Letizia, în centrul unui scandal amoros. Fostul cumnat pretinde că a avut o relație cu ea
--  У черных дыр обнаружили неожиданное поведение
--  ELEPHANTS DIE AS DROUGHT TAKES HOLD
--  Lương thưởng giảm mạnh, tiêu thế nào để Tết vẫn vui?
--  Jo Jung Suk And Shin Se Kyung’s Upcoming Historical Drama Confirms Premiere Date In New Poster
--  Mustafa Denizli’nin kızı CHP’den aday adayı oldu
--  هطولات مطرية في أغلب المحافظات أعلاها 35 مم في حمص
--  Последнее пророчество Киссинджера о судьбе Израиля имеет все шансы сбыться
--  Perturbation du ramassage scolaire dans le Nord en raison de la détérioration des bus
--  Grøn Bazar i Viby-Hallen i Aarhus
--  Media: EURO 2024 bez wielkiego gwiazdora. Sam o tym zdecydował, duża strata
--  السعودية | ” سعود الطبية” تنهي معاناة مقيم خمسيني من انسداد الأمعاء بعد استئصال ورم سرطاني يزن 5 كجم
--  السعودية | وزارة الموارد البشرية والتنمية الاجتماعية تستعرض جهودها في تعزيز ثقافة العمل التطوعي بين الأفراد والمجتمع
--  السعودية | شركة الدرعية تكشف عن روزنامة ضخمة من الفعاليات الترفيهية والبرامج الثقافية لموسم الدرعية 2023 – 2024
--  السعودية | القيادة تهنئ رئيس جمهورية فنلندا بذكرى استقلال بلاده
--  استشاري في الغدد الصماء والسكري: المشروبات الشتوية المحلاة تسبب زيادة الوزن
--  محلل سياسي أمريكي: غزة قد تكون سبب سقوط بايدن
--  الإعلام الفلسطيني: 64 شهيدا و106 جرحى في خان يونس خلال يومين
+-  World animal health body warns of swine fever vaccine risks. Here's why
+-  Bursa'da mantar toplamaya gidip kaybolan yaralı şahsı JAK timleri buldu
+-  Harmancıklı üreticilere ceviz fidanı ve korunga tohumu dağıtıldı
+-  Bursa'da 'huzurlu sokaklar ve narkotik suçları' uygulaması
+-  TOBB'un kasımda onayladığı sanayi kapasite raporu sayısı yıllık bazda arttı
+-  Bursa Emniyeti, denetimlerine hız kesmeden devam ediyor
+-  İstanbul'da ambulans şoföründen gizli kamera skandalı!
+-  Çarptığı kuaförün ölümüne neden olan sanık, Ankara'da tutuklandı!
+-  Kuzey Kore lideri Kim ağladı!
+-  Fırıncı dehşetinin detayları ortaya çıktı
+-  Nilüfer Kent Konseyi: Yoksulluk değil, huzur istiyoruz
+-  Dilber Dereli, Nilüfer'e aday adaylığını açıklıyor
+-  Bursa'da deprem anında denizin ortasından duman çıkmış
+-  Seçil Erzan'ın telefonu incelendi!
+-  Pqueen kansere yakalandığını duyurdu!
+-  Pqueen kimdir, kaç yaşında?
+-  Ethnically diverse immigrants often live in Randstad, Europeans in border areas
+-  PVC: Quyết định chấp thuận niêm yết bổ sung
+-  HND: Tài liệu họp Đại hội đồng cổ đông
+-  TPS: Nghị quyết Hội đồng quản trị
+-  NSS: Thông báo về ngày đăng ký cuối cùng để thực hiện quyền chi trả tạm ứng cổ tức tiền
+-  VLC: Quyết định chấp thuận đăng ký giao dịch bổ sung
+-  PTG: Nghị quyết Hội đồng quản trị
+-  Vướng 3 trở ngại lớn, kinh tế Nga đối diện ‘tương lai nghiệt ngã’?
+-  HNX: Kết quả giao dịch Trái phiếu doanh nghiệp ngày 06/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 06/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 06/12/2023
+-  SJ1: Nghị quyết Hội đồng quản trị
+-  TAR: Nghị quyết HĐQT v.v. thay đổi đơn vị kiểm toán
+-  شمل اندية واتحادات ولاعبين وحكام.. محافظ كربلاء يكرم الرياضة الكربلائية بأكثر من (157) مليون دينار
+-  افتتاح مهرجان جامعة الفرات الأوسط التقنية للفنون التشكيلية
+-  Fresenius streicht Dividende nach Staatshilfen für Kliniken
+-  प्राथमिकता क्रम बमोजिम विधेयकको मस्यौदा पठाउन कानुन मन्त्रालयको आग्रह
+-  डोल्पामा टेलिफोनमा ‘लोडसेडिङ’
+-  बहुवर्षीय आयोजनाको ठेक्कासम्बन्धी मापदण्ड स्वीकृत
+-  पानसराले बाटोमै जन्माइन् तीन बच्चा
+-  न्युरोडबाट बरामद गरिएको सुन जोख्ने कार्य सुरु
+-  ‘श्रमिक बराबर पनि मूल्य भएन’
+-  मान्छे टोक्ने कुकुरको बन्ध्याकरण
+-  बुद्धभूमि महोत्सवमा प्रीति आले र सुनिल पण्डितको प्रस्तुति
+-  Paris Brunner: BVB könnte U17-Weltmeister einen Mega-Vertrag anbieten
+-  Yıldız Tilbe səhnədə sevgilisiylə bu halda yaxalandı
+-  미래에셋증권, 김미섭·허선호 부회장 각자 대표이사 체제 출범
+-  한국 골잡이들이 무섭다! 강등권 번리의 울분→손흥민 해트트릭·황희찬 결승골 제물
+-  이동해, 이설 뒤에서 로맨틱 백허그[남과여]
+-  Hwang Hee 'CHAN-CE', 홈경기 득점 순위 '2위' 등극…홈 7G→6골 폭발! "황희찬 홈 득점 막은 유일한 팀은 토트넘" 1위는 8골 살라
+-  스테판 "♥김혜선, 귀여워서 첫눈에 반해…첫 키스는 베를린에서" [마데핫리뷰]
+-  이하늘, '불화' 김창열 언급 "죽일 듯 미웠는데…이젠 '나쁘다'고 얘기하고 싶지 않아" [마데핫리뷰]
+-  비하인드도 저렇게 잘생겼네?…'신인 보이그룹' 휘브, 'BANG!' 촬영 어땠길래?
+-  "스윙 볼 수 있어 좋았다" 홀딱 반한 SF 단장...이정후, 오라클 파크 외야 중앙에 입성할까
