@@ -1,11 +1,51 @@
 # Latest News
--  VMD: Báo cáo kết quả giao dịch cổ phiếu của người có liên quan đến người nội bộ Lê Đình Dương
--  موقف لياو من المشاركة أمام أتلانتا
--  한양-롯데, 2조원대 '광주 중앙공원' 개발 놓고 사업주도권 공방전
--  전세사기 피해자 전국 동시다발 집회 대구에서도 열려
--  오중기 더민주당 포항북구 위원장, 시민과 함께하는 lsquo;토크콘서트rsquo;
--  포항시, 포항촉발 지진 관련 무료 법률상담 실시
--  포항시, 지역 출신 이해은 변호사 법률자문관 위촉
--  포항시, 신성장산업 고도화로 글로벌 경쟁력 확보
--  영덕군, '2023 재도전 프로젝트 성과공유회' 행안부 장관상 수상
--  영양군, 노인 일자리 및 사회 활동 지원 사업 참여자 모집
+-  Jedine velike pande u Britaniji vraćene u Kinu
+-  거창군, 전국 대중교통 시책 우수기관 선정
+-  산청군, 동의보감촌 글로벌 웰니스 거점 육성 박차
+-  진주시, 보건소 신청사 내년 착공한다.
+-  김두관 국회의원 "양산특성화고 건립 차질 없이 추진"
+-  함양군, '폐관 임박' 약초과학관 리모델링 논란
+-  양산시립박물관, 10년 만에 100만 명 찾았다
+-  양산시, 더 낸 세금 37억 원 돌려받는다
+-  사천시의회, 인사청문회 조례안 제정
+-  LH, 경남은행 등과 생계위기가구 돕는다
+-  경남첫 '발달장애인 특화사업장' 진주에 개소
+-  진주 '남명진취가', 대한민국목조건축대전 최우수상
+-  "함께 공부하고 싶어서" 인문고전 〈주역〉을 쉽게 풀어 책 낸 초등학교 교사
+-  सरकारको ध्यान शासकीय प्रणाली सुधारमा केन्द्रित : प्रधानमन्त्री
+-  बन्चरो प्रहार गरी श्रीमतीको हत्या
+-  काठमाडौँ महानगर भित्रका फार्मेसी सुधार गर्न १० दिनको समय
+-  भरतपुरमा समुदायसँग ‘मेयर’ स्वास्थ्य कार्यक्रम
+-  फिलिपिन्समा बस दुर्घटना हुँदा १७ जनाको मृत्यु
+-  बेनीको वीरेन्द्रचोक नमुना चोककाे रुपमा विकास गरिंदै
+-  अत्यधिक योजनाको माग छ : मन्त्री लामा
+-  돌에 새겨진 제주섬 사람들의 지혜 엿본다
+-  섹시하고 모던한 ‘뺑파’가 온다
+-  영화 음악과 함께 하는 크리스마스
+-  농·수산업분야 공익직불금 지급 시작
+-  한우농가 감소세 속에 사육두수는 증가세
+-  Mercedes Sticking With Four-Cylinder AMG C63 Because It’s 'Very, Very Progressive'
+-  Luontoliiton toiminnanjohtajan Linnan juhlien asuun on piilotettu uhanalaisia eläimiä ja kasveja
+-  Luton Town - Arsenal: 3-4 (ÖZET)
+-  Sur Yapı'nın yükselen değeri Sur Tatil Evleri GYO halka arz oluyor
+-  Deprem bölgesi kalkındırılıyor: Bakan Şimşek açıkladı! 2,4 milyar dolarlık dış finansman sağlandı
+-  Mehmet Ali Erbil'den aşk iddialarına yanıt!
+-  Spanish Woman Drowns While Snorkeling On Australia's Great Barrier Reef; Second Death In 2 Weeks
+-  Hvang izbačen iz reprezentacije zbog seks-skandala
+-  «طاقة» تتعاون مع «كراكن» لإزالة الكربون
+-  Minus Barske plovidbe 14,2 miliona EUR
+-  Vali'den Mine Nur'un Ölümüyle İlgili Açıklama
+-  डलरको मूल्य बढ्यो, अन्यको के छ ?
+-  해외 사업 확대하는 강남언니, 한국 찾는 외국인 전용 플랫폼 출시
+-  В Брюсселе состоится заседание комиссии НАТО-Грузия
+-  Президент Киргизии запретил чиновникам дарить ему что-либо на день рождения
+-  Biden'dan "aday olmayabilirim" çıkışı
+-  ЗЕЛЕНСКИ НЕНАДЕЈНО ЈА ОТКАЖА СРЕДБАТА СО АМЕРИКАНСКИТЕ СЕНАТОРИ СРЕДЕ НЕИЗВЕСНОСТА ОКОЛУ ИДНАТА ВОЕНА ПОМОШ ЗА УКРАИНА
+-  子育て世帯対象に税優遇検討＝生命保険、住宅ローン―政府・与党
+-  10 Best Undetectable AI Writing Tools to Bypass AI Content Detectors
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 7 декабря 2023 года
+-  ‘দলছুট’ শাহজাহান ওমরকে নিয়ে বিএনপি-আওয়ামী লীগের দূরত্ব কমেনি
+-  บทวิเคราะห์การแข่งขัน Wild Rift League Asia Season 2 สัปดาห์ที่ 6 วันที่ 1
+-  Tränen auf Mütter-Treffen: Kim Jong Un zeigt ungewöhnliche Emotionen und fleht sein Volk an
+-  Prezantohet masa për zbutjen e ndikimit të krizës energjetike
+-  Aυτά είναι τα 10 πιο εξωφρενικά μέσα μαζικής μεταφοράς στον κόσμο
