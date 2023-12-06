@@ -1,11 +1,11 @@
 # Latest News
--  The International Innovation Awards 2023 Honors 34 Remarkable Sustainable Innovations For Future Enterprises
--  'नहीं, वह मुझे PM नहीं बनाएंगी', बेटी शर्मिष्ठा की किताब में प्रणब की डायरी के पन्ने... और सोनिया का जिक्र
--  Elektroninės cigaretės, kaitinamasis tabakas ir net klimato kaita gali prisidėti prie plaučių vėžio vystymosi (Video)
--  „Geras ginklas, bet...“ Ukrainos tankistai skelbia, kas nutiko su „Leopard“ tankais
--  [ŽT] „Partijos, revoliucijos ir šalies labui.“ Ko apsiverkė Kim Jong-unas (Video)
--  [ŽT] „Rusija beribė“. Ciniškas Putino akibrokštas Estijai
--  Naujas technologijos žodis. IBM pristatė stebuklingą kompiuterį ir galingiausią procesorių pasaulyje (Video)
--  [ŽT] „Padarysim iš tavęs normalų!“ Rusas Dagestane labai pasigailėjo savo šukuosenos (Video)
--  Claudia, la educación y la salud
--  Médicos
+-  'คิม จองอึน'หลั่งน้ำตา! ร้องขอสตรีเกาหลีเหนือช่วยมีลูก หวังแก้วิกฤตอัตราการเกิดที่ลด
+-  งานเข้า! จ่อเอาผิดผู้กำกับ-พนักงานสอบสวน คดีชาวเยอรมันหนีประกันกลับประเทศ
+-  덱스터스튜디오, 300만불 수출의 탑 수상…글로벌 진출 잰걸음
+-  알리익스프레스, 국내 기업 지적재산권·소비자 권익 보호 강화
+-  에스트래픽, 무역의 날 3관왕 달성
+-  팀민트, 2023 대한민국 광고대상 ‘퍼포먼스 마케팅’ 대상 수상
+-  ﻿﻿﻿현대오토에버, 2023년 지역사회공헌인정제 최고 등급 획득
+-  Kriti Sanon wraps up Manali schedule of 'Do Patti'
+-  Aso Villa’s Animals To Get N201 Million From Budget, Tinubu, Shettima To Spend N660.5 Million On Feeding
+-  ’13 दिसंबर को संसद पर हमला करूंगा…’ खालिस्तानी पन्नू की भारत को फिर धमकी, वीडियो वायरल
