@@ -1,11 +1,51 @@
 # Latest News
--  الامارات | مطعم ياباني يوفر خدمة صفع الزبائن
--  الامارات | عقوبة قاسية جدا على عجوز استرالية بسبب شطيرة دجاج
--  الامارات | قرعة "كوبا أميركا" في ضيافة نادي ليونيل ميسي بميامي
--  Koordinasyon Nedir: İşbirliğinin Temeli
--  Moederbedrijf Perry Sport, Aktiesport en Sprinter failliet
--  Oud-Hart van Nederland-presentatrice Cilly Dartell (66) overleden
--  Valkenburg krijgt 2,3 miljoen euro voor watersnoodschade
--  George Santos Will Be Able To Spend So Much Money On OnlyFans After Raking It In With Cursed Cameo Videos
--  عادة شائعة تتسبب في الإصابة بالفشل الكلوي.. يلجأ لها كثيرون خلال الشتاء
--  الرئيس الروسي يصل إلى الرياض
+-  תורג'מן ושמיר בהרכב ב"ש, גם גורדנה פותח מול סכנין
+-  İYİ Parti'de bir istifa daha
+-  Oktay Derelioğlu'nu darp eden iki kişi tutuklandı
+-  Beşiktaş-Fenerbahçe derbisinin bilet fiyatları açıklandı
+-  ABD, 4 Rus askeri savaş suçu işlemekle suçladı
+-  Rusya: Ukrayna’ya ait Su-25 ve Mig-29 savaş uçaklarını vurduk
+-  Cumhurbaşkanı Erdoğan'dan asgari ücret açıklaması
+-  Marcelo Tinelli durísimo contra Jonatan Viale: "Ojalá sea condenado él y el grupo donde trabaja"
+-  Blocking Legal Proceedings Against Trump Would Damage Democracy | Opinion
+-  Nach iOS-Update: Experten entdecken ungeahnten Speicher-Fresser
+-  СК возбудил дело по факту убийства экс-депутата Рады Кивы в Подмосковье
+-  Feral Horses Shot by Helicopter in Plans To Cull 14,000
+-  محمد المنصوري يتألق بماراثون تكنولوجيا المعلومات في "الظفرة للكتاب"
+-  Mom Shweta, mamu Abhishek share childhood pics to wish Navya on her birthda
+-  Pantsir: Russia’s Air Defense System Gets Upgrades Making It Leaner, Meaner Fighting Machine
+-  كربلاء.. الدعاية الانتخابية تؤشر "شبهات فساد" ومنظمات تطالب بالمساءلة
+-  Krill Yağı: Sağlığınıza Yararları ve Kullanımı
+-  GOP Rep. Kevin McCarthy of California is resigning months after his ouster as House speaker
+-  Halbzeit beim Klimagipfel: Jetzt muss Butter bei die Fische
+-  Zamestnanci UniCredit Bank vstupujú do štrajku, požadujú vyššie platy a odmeny
+-  Krievijas jaunatne nealkst pēc tradicionālajām vērtībām
+-  Пасечник: погибший при взрыве депутат ЛНР Попов был желанной мишенью для Киева
+-  Krep Yapımı: Lezzetli ve Pratik Tarifler
+-  Richter sollen bei Staatsanwaltschaften aushelfen
+-  Prezes Grupy Altum złożył oświadczenie w związku z karą nałożoną na spółkę EC Będzin Wytwarzanie
+-  Spadek jednostkowego kosztu pracy w USA większy niż szacowano
+-  Ekspert PIE: powrót do obniżek stóp procentowych w II poł. 2024 r.
+-  G7 sammiti başladı
+-  McDonald's planuje największą ekspansję w historii. Zamierza otworzyć 10 tys. nowych lokali
+-  'Wake up call' for energy industry as confidence dips
+-  4 Months After Coup, Niger Withdraws From Military Cooperation Pact With EU
+-  Parts of Australia and US removed from UK gender recognition certificate list
+-  Tudun Biri bombing: Yar’Adua kicks against calls for COAS’ resignation
+-  Κατερίνα Γερονικολού για Γιάννη Τσιμιτσέλη: Μέσα του προτιμά να είμαι χαρούμενη από το να μπει ένα πλυντήριο
+-  Oh du Sparsame: Newsletter Unbezahlbar
+-  Oh du Sparsame: Newsletter Unbezahlbar
+-  MAIL team leaves for Russia to attend global conference
+-  Совет Федерации 7 декабря рассмотрит вопрос о дате выборов президента
+-  UFC: Saint Denis-Frevola, le film inside de la naissance d’une star française du MMA
+-  Stor stjerneskudssværm pryder himlen i december
+-  Stor stjerneskudssværm pryder himlen i december
+-  Dodatne tri godine podrške za Windowse 10 – onima koji plate
+-  Kremalı Makarna: Lezzet Dolu Bir Tarif
+-  بيان عاجل.. القوات المسلحة اليمنية تطلق دفعة من الصواريخ الباليستية على أهداف عسكرية إسرائيلية
+-  Prozess nach Explosion in Eschweiler: Vater beteuert seine Unschuld
+-  মুশফিক কি নিয়ম জানতেন না?
+-  Preside esposa del rector festival navideño de la UAT 2023
+-  'It's on': Perth Scorchers eye BBL's first three-peat
+-  Basket. De nouveau battu à Boulogne, le Caen BC voyage toujours sans défense
+-  1 child killed, 3 injured in Sar-i-Pul blast
