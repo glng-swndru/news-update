@@ -1,11 +1,11 @@
 # Latest News
--  SGK uzmanından yüksek emekli maaşı ve kıdem için önemli tarih uyarısı!
--  В Геленджике заключили под стражу мужчину, подозреваемого в совершении особо тяжкого преступления
--  [효민, 이름 내건 주류 출시…다재다능 면모 입증
--  [‘K’없는 한류는 가능한가? 한류, 경계를 넘어서: 딜레마와 과제
--  В Новом Осколе Белгородской области открылась площадка для организации добрых дел и проектов
--  Kasus COVID-19 dan Influenza Meningkat, Cek Gejala yang Beda dan Serupa
--  Донецкий республиканский канал вошел в список победителей международного фестиваля
--  В Серпухове провели литературный вечер «Я встретил вас…»
--  Cəlilabadda ağır yol qəzası
--  Preminula glumica Jelena Čvorović Paunović, voleli smo je u "Porodičnom blagu"
+-  سقوط سيدة داخل مصعد كهربائي باحد مولات عمان
+-  حملة تضبط 25 اعتداء على المياه بمعان
+-  Tussen 18 en 25 jaar met stempel naar Ouwe Sunderklaas
+-  Захарова предложила США продать телефон Хантера Байдена для помощи Киеву
+-  F1, Mercedes difende Wolff: “Respingiamo totalmente le accuse”
+-  De Vrij e Dumfries out, le soluzioni dell'Inter possono arrivare dal futuro
+-  Volpiano Pianese e Juventus insieme per altre due stagioni, fino al 2026
+-  Bayern Monaco, sguardo verso il futuro: preso Zaragoza dal Granada
+-  Pirlo, il tifo Inter, la rivincita Juve e l’aneddoto su Lippi: “Scelse me”
+-  Grand Theft Auto 6 has already broken these three world records in just 24 hours
