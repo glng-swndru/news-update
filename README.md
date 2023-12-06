@@ -1,51 +1,51 @@
 # Latest News
--  Kiara Advani Photos : కాఫీ విత్​ కరణ్​షోలో 'లస్ట్ స్టోరీస్' జంట
--  TBMM Başkanı Kurtulmuş, TÜRKSOY Genel Sekreteri Raev'i ağırladı
--  Azerbaycan Cumhurbaşkanı, ABD Dışişleri Bakan Yardımcısı'nı kabul etti
--  Konya'da feci olay: Stajyer öğrenci çökertme havuzuna düştü!
--  العتبة العباسية المقدسة تشارك في مهرجان الجنوب المسرحي بمصر
--  السيد السيستاني سعيد بطباعته :إهداء نسخة من «مصحف مشهد الرضوي» إلى سماحة السيد السيستاني
--  Хориж матбуоти Ўзбекистон ҳақида
--  Kiermasz rękodzieła i sztuki ludowej
--  Koncert zespołu – 48H w Rozmarino
--  ZPiT Suwalszczyzna dla Przyjaciół
--  Wernisaż wystawy „Mój krasnoludek”
--  Przystanek Historia IPN
--  Świąteczny Kiermasz Rękodzieła w Hotelu Szyszko***
--  Come into Komin – Jam Session
--  Mama, tata i ja – rodzinne warsztaty tradycyjnych ozdób bożonarodzeniowych
--  Mama, tata i ja – rodzinne warsztaty tradycyjnych ozdób bożonarodzeniowych
--  Zimowa edycja znanych morskich opowieści w Rozmarino
--  Україна повернула додому ще вісьмох дітей, - ОП
--  Schaafheim: Wohnraum für 60 Menschen gesucht
--  (VIDEO) "Nije u pitanju karta" Oglasio se vozač koji je ženu izbacio iz autobusa u Sarajevu i otkrio zbog čega je to uradio
--  Juve Next Gen ko nella nebbia di Lucca: Yildiz e Huijsen non bastano
--  Caso Radonjic, Kostic e la Serbia connection: il gesto oltre Juve-Torino
--  CBC might still hand out bonuses to execs while cutting 600 jobs over a budget shortfall
--  Al-Nasr’s Winning Streak: A Challenge Awaits Against Al-Kuwait in Zain Premier League
--  Al-Shamlan eyes Paris Olympics qualification at Saber Fencing World Cup
--  Danni Wyatt stars on 150th T20I appearance as England begin India tour with win
--  Olly Murs announces wife Amelia Tank’s pregnancy
--  Bhavans walk away with championship trophy
--  ZVEZDA – RADNIČKI Spektakl na Marakani, golovi za TV špice! Baharova igra konačno liči na nešto
--  চলে গেলেন ‘সিআইডি’খ্যাত অভিনেতা ফ্রেডি
--  Un análisis de sangre puede anticipar qué órgano envejecerá más rápido, según un estudio
--  Hatayspor, Düzcespor'u geçerek Ziraat Türkiye Kupası'nda tur atladı
--  Fenerbahçe, Beşiktaş derbisi çalışmalarını sürdürdü
--  رسميا..اعتماد "فيزا" موحدة لكل دول الخليج
--  سفينة ضخمة تصطدم بجسر أثناء مرورها من قناة السويس.. وبيان عاجل من الهيئة
--  The CfC St. Moritz Announces New Speakers and Launches Academic Research Track Supported by Swiss National Bank
--  Vicepresidenta de Coca-Cola sorprende con vestido hecho de latas en su boda
--  Rolling in Riches: Costa Rica’s Most Expensive Car Registrations of 2024 – A Parade of Italian and German Luxury
--  Miloš Jovanović: Saradnja opozicije na nivou Beograda mora da postoji i nakon izbora
--  Paris Olympics 2024: Crackdown on Price Hikes – French Authorities to Inspect 10,000 Hotels and Restaurants
--  VIDEO: Militares rusos 'cazan' drones de reconocimiento ucranianos
--  Tudun Biri Massacre: Islamic Forum Calls For Prosecution Of Culprits
--  Франција го осуди израелскиот напад врз Либан
--  Bangladesh takes control of the second Test
--  ΟΦΗ: Ο Νταμπράουσκας έφυγε, η ποδοσφαιρική λογική επέστρεψε και μαζί οι νίκες με το 3-1 επί της Κηφισιάς
--  Insane display of appeasement
--  Red Sox broadcaster honored with Baseball Hall of Fame award
--  VIDEO Teška nesreća u Ilici: Kod zebre naletio autom na dijete
--  UEFA MENJA BITNO PRAVILO LIGE ŠAMPIONA ZBOG MANČESTER JUNAJTEDA: Oglasio se i Čeferin! Više ništa neće biti isto
--  An immersive experience in music and light
+-  নেপাল থেকে ৪০ মে.ও জলবিদ্যুৎ আমদানি হবে
+-  McGill, Concordia credit ratings under review for downgrade: Moody's
+-  Cumplieron 17 dependencias con información sobre contrataciones públicas
+-  Motociclistas sinaloenses visitan Guadalupe y Calvo
+-  'Quiero ser candidata de los que ya no quieren ser pobres'
+-  Vivienda abandonada se convierte en nido de malvivientes
+-  Automovilistas abandonan el puente Libre por manifestación
+-  Sanciona EU a líderes de los Beltrán Leyva
+-  Anuncian 17 edición de la carrera 'Guantes y Bonetes'
+-  Ringo Starr Shared How His Beatles Bandmates ‘Ruined’ His Career
+-  Cómo conseguir skins de The Boys en Warzone: A-Train y Firecracker
+-  Vlahovic contro Osimhen, Allegri vs Mazzarri: tutti i duelli di Juve-Napoli
+-  Qui est Alexis Manenti, flic borderline dans "Les Misérables" de Ladj Ly ?
+-  Congresistas rechazan intromisión de Corte-IDH
+-  Læs dem her: De bedste fortællinger fra Champions League 4/4
+-  Indústria: Câmara de Águeda prepara venda de terrenos para investimento de 180 milhões de grupo chinês
+-  Cowboys, Lions y 49ers a la caza de Eagles en la cima de la NFC en la semana 14 de NFL
+-  Soccerladuma | 6 Man Utd Players Who Could Leave For Free
+-  Golf's big hitters to be reeled in by ball rollback
+-  Gérard Depardieu visé par une deuxième plainte pour agression sexuelle
+-  Toulouse. Une Nocturne de Noël au marché couvert Saint-Cyprien
+-  لماذا لم تبن حماس ملاجئ للفلسطينيين كما بَنَتْ أنفاق في غزة؟.. داعية كويتي يرد (فيديو)
+-  Farooq Abdullah: అమిత్‌షా పీఓకే వ్యాఖ్యలపై ఫరూక్ అబ్దుల్లా ఫైర్.. నువ్వింకా అప్పుడు పుట్టలేదు
+-  Compensation Fund frustrating disabled patients in desperate need of meds
+-  Rand manipulation: ANC supports criminal charges against implicated banks
+-  US charges four pro-Russian troops in Ukraine with war crimes
+-  Kwezanamuhla: Adaluliwe amagama abavukuzi abashonile, ibheyili yasePhala Phala
+-  Zach is BACK! Jets' Wilson is named New York's starter for Sunday's game vs. Houston after reports surfaced that the struggling QB was against returning to the top of the depth chart
+-  البيت الأبيض: لا نعرف كيف سيكون الحكم في غزة
+-  حيلة ذكية تزيد سرعة الإنترنت المنزلي.. جربها على الراوتر الآن
+-  طائرة شحن محملة بمعدات عسكرية أمريكية تصل إلى إسرائيل
+-  الاردن يحاكم 20 شخصا بتهمة بيع طائرة بوينغ
+-  منتخب الناشئين يتعادل مع نظيره العراقي ودياً
+-  জাপার আবদার ৬০, আওয়ামী লীগ দিতে চায় ৪০ আসন
+-  Hope of a breakthrough in 'German Madeleine McCann' investigation as cold case sniffer dogs home in on new location eight years after Inga Gehricke, 5, vanished without a trace
+-  ‘Najbolje da načelnika izbacim kroz prozor i odrobijam ga 6 godina.‘ Prijetnja vijećnika načelniku dovela do optužnice
+-  Cowboys head coach Mike McCarthy 'is set to undergo appendicitis surgery TODAY'... but remains hopeful to be back for NFC East showdown against Eagles on Sunday
+-  Po Łodzi grasują Mikołaje. Tęczowe [FOTO]
+-  ضربا عاملًا بشومة حتى الموت.. المؤبد لشقيقين في الإسكندرية
+-  مجموعة توازن الإماراتية تتفقد جناح الهيئة العربية للتصنيع بمعرض إيدكس 2023
+-  أردوغان: قادة الاحتلال سيُقدمون للعدالة بعد ارتكابهم المجازر في غزة
+-  أمطار وظاهرة جوية احذر منها.. "الأرصاد" تكشف طقس غدًا الخميس
+-  التموين: الإتفاق مع 4 شركات إنتاج السكر من البنجر لإمداد الأسواق بـ 8 آلاف طن يومياً.. تفاصيل
+-  واقعة غريبة وصادمة.. لن تتوقع ما فعلته سيدة مع ابنها أثناء مشاجرة مع طفل
+-  بالفيديو.. المقاومة تستهدف عددًا من الآليات العسكرية لجيش الاحتلال
+-  في حضور سيلمان.. جلسة هامة لمعتمد جمال مع لاعبي الزمالك بعد تأجيل مواجهة الاتحاد
+-  Ermənistan ordusunun üç hərbçisi saxlanıldı
+-  Lublin już świąteczny. Choinka pod Ratuszem i iluminacje
+-  WeBuyCars kan dalk beurs toe
+-  "Ehkä haikeuden ja helpotuksen sekoitelma on se tunne, joka tässä nyt on pinnalla" – viimeiset presidentti Sauli Niinistön isännöimät Linnan juhlat ovat käynnissä
