@@ -1,11 +1,11 @@
 # Latest News
--  News24 | US charges both sides in Sudan with war crimes, and one with ethnic cleansing
--  News24 | Here are your Lotto and Lotto Plus results
--  News24 | Boris Johnson apologises to UK Covid victims' families – but defends his record
--  Kim Dzong Un zapłakał na oczach tysięcy kobiet. Wszystko przez dane, które mu przedłożono
--  Energie Cottbus ohne Kapitän: Die Mission Aufstieg abseits des Rasens
--  TMW RADIO - Foscarini: "Cittadella, prima o poi arriverà anno importante. Lavoro di Gorini top"
--  Paulistão: Ituano elege advogado Paulo Ruiz como novo presidente
--  Study: Patients With PD-L1-Positive, High-Risk, ER+/HER2- Breast Cancer Can Achieve Substantial Complete Response Rates With Addition of Nivolumab
--  Izrael: Zatwierdzono budowę nowego osiedla izraelskiego we Wschodniej Jerozolimie
--  How to become a sentient cheese wheel in Baldur’s Gate 3
+-  Guinée-Bissau : les narcotrafiquants au cœur de la «tentative de coup État»
+-  Horoscop joi, 7 decembrie. Nativii unei zodii primesc vești importante pe plan profesional
+-  Chieftaincy tussle: Enugu community demands panel of enquiry
+-  Байдън: Финансовата помощ за Украйна не може да чака
+-  Guárico ocupa cuarto lugar en la producción de bovinos
+-  Как да се сдобрите след скандал?
+-  Waze fica ainda mais divertido com nova experiência de navegação
+-  استقالة وزير الهجرة البريطاني غداة توقيع معاهدة مع رواندا حول ترحيل المهاجرين
+-  Avrupa Parlamentosu Raportörü Amor Osman Kavala’yı ziyaret etti
+-  Why Lovesac Stock Popped Today
