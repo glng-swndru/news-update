@@ -1,11 +1,11 @@
 # Latest News
--  بوليتيكو: مسؤولون بإدارة بايدن يرون ضرب الحوثيين الآن خطوة خاطئة
--  Galatasaray, Adana Demirspor maçı hazırlıklarına devam etti
--  Doğada ender rastlanan anlar! O ilimizde sürü halinde ortaya çıktılar
--  Tottenham blow with Ange Postecoglou’s assistant leading race to take over as Swansea manager
--  Tottenham blow with Ange Postecoglou’s assistant leading race to take over as Swansea manager
--  Cierra CBP completamente el puente Libre
--  بوتين يصل إلى الرياض
--  Allenamento Milan: rossoneri al lavoro per l’Atalanta. Gli scatti odierni a Milanello – FOTO
--  "בהשראת בני אדם": גוגל משיקה את מודל הבינה המלאכותית Gemini
--  בזה הוא מתעסק עכשיו? בן גביר תובע מיליון שקלים מאולמרט
+-  Bývalý predseda Snemovne reprezentantov McCarthy oznámil odchod z Kongresu
+-  Hrozí vám cirhóza pečene, aj keď nepijete alkohol? Spozornite, ak sa deje toto! - Plnielanu.sk
+-  Časť Slovenska môže naďalej potrápiť sneženie a poľadovica
+-  Dostupný je aj pre Slovákov: Všimli ste si projekt Lidla a známej značky?
+-  Drei Studenten aus Hannover sind die Gewinner der Sportmesse Ispo
+-  Twitch will cease operating in Korea, CEO says costs are too high
+-  „Das perfekte Dinner“ in der Region Pfalz: Kandidaten, Menüs, Punkte – die Woche im Überblick
+-  Kinderarzt Schkeuditz: Stadt sucht nach Interessenten für zweite Praxis
+-  52 sea turtles experiencing ‘cold stun’ in New England flown to rehab in Florida
+-  أطباء بلا حدود: هناك مسلسل استهداف متكرر لكافة الطواقم الطبية في غزة
