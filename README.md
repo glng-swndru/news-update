@@ -1,51 +1,51 @@
 # Latest News
--  Buscan demócratas mejorar rastreo de armas llevadas a México
--  Unen su talento
--  Las maravillas del agua de chía
--  Exhibe prueba Pisa a México por rezago educativo
--  Soldados de Texas llaman corruptos a agentes de INM
--  Қарор ва ижро: Кино санъатининг инсон онги ва тафаккурига, жамият ҳаётига таъсири ниҳоятда беқиёс
--  Болалар сайёҳлик базаси очилди
--  “Конституция кўчаси”
--  Ўзбекистон Президенти Қирғизистон Президенти билан телефон орқали мулоқот қилди
--  Самарқанд вилоятида ҳам катта рейдлар давом этмоқда
--  6 декабрь: Муҳим ва долзарб хабарларнинг қисқача тафсилоти (видео)
--  COP28 climate talks navigate complex terrain amidst hope and challenges
--  Fifteen organisations declared unlawful under UAPA: MHA to Rajya Sabha
--  На първо четене: на 500 м зад Корал, Иракли и Карадере няма да се строи
--  Izraelski progon Hamasovaca ni malo nije sjeo Turcima: ‘Ako to učinite, snosit ćete ozbiljne posljedice’
--  Milei fagocita a la coalición conservadora y en ello se juega la gobernabilidad de su gestión
--  اكتشاف ممر مائي يكشف مفاجأة بشأن بناء الأهرامات.. قد يفسر سر بنائها
--  Ukraine warnt vor Niederlage im Russland-Krieg ohne US-Finanzierung
--  José “El Brujo” Martínez contagió a Noticia al Día con fe Vinotinto
--  Asperger-Antisemitismus? Hamas-Greta schwafelt erneut vom “israelischen Völkermord”
--  Isabel Rodríguez anima a promover la lealtad institucional en el Día de la Constitución
--  Law Professor Laments 'Sex Exceptionalism' for Israel's 'Disproportionate' Response to Hamas War Crimes
--  Konflik Palestin-Israel: AS jangka Israel tukar taktik serangan
--  Stay positive
--  علامات تظهر في الحمام تكشف إصابتك بأمراض خطيرة.. احذرها
--  البورصة تهبط بنسبة 1.69% بنهاية تعاملات اليوم الأربعاء
--  سعر الذهب المعلن بموقع البورصة المصرية اليوم الأربعاء 6 ديسمبر
--  مصراوي يكشف .. هل يمثل لاعب بروسيا دورتموند السابق منتخب مصر؟
--  هداف غاني يضع الأهلي في موقف محرج.. ما القصة؟
--  Exclusive: Yasmine Sabri Collaborates With Okhtein To Launch a Dreamy New Line of Handbags and Sunglasses
--  Nagyon menő ingyenes PSN-avatárokat húzhattok be!
--  Alergia na święta. Nawet nie wiesz, ile świątecznych produktów może cię uczulić. Na niektóre z nich trzeba szczególnie uważać
--  Кардиолог предупредил об опасности кофе
--  Как долго продлится нестабильная погода?
--  Назван самый популярный смартфон
--  Fochabers firefighters ready to hit the road for Christmas charity street collections
--  Näin syntyy Suomen arvokkain kunniamerkki, jota Sauli Niinistö kantaa itsenäisyyspäivänä –427 osaa, satoja työtunteja ja täyttä käsityötä
--  What’s on at Bethesda Chapel, Narberth
--  ‘Leave the World Behind’ Is the Ultimate Apocalypse-Karen Movie
--  Israel Cabut Visa Pejabat Kemanusiaan PBB
--  Wölfe im Spessart: Wie „Urmel“ und „Umai“ in Waldrode eine Ziegenherde beschützen
--  Weihnachtsmärkte 2023 in Herten: Sebastian Czyszczon mit 100 Kindern auf der Bühne
--  Cara Seru Merayakan Semangat Kreatif Para Penyandang Disabilitas
--  Im Doppelpack: Das sind die "Die Bachelors"-Rosenverteiler!
--  কাসেম সোলাইমানিকে হত্যায় যুক্তরাষ্ট্রকে ৫০ বিলিয়ন ডলার জরিমানা করলো ইরান
--  Julia Mengolini hizo responsables a los conductores de LN+ de lo que le pueda pasar por los constantes ataques
--  Na Kosovu registrovana nova stranka – Inicijativa „Srpska demokratija“
--  تحذير من أمطار شديدة الغزارة مطلع الأسبوع القادم على شمال ليبيا
--  Migliori caschi integrali (dicembre 2023)
--  CID TV serial actor dies
+-  Operasi Pencarian Korban Erupsi Marapi Resmi Ditutup
+-  아직 10대인데…뉴진스 '선넘은 악플'에 충격, 소속사 "상시 법적대응" [MD이슈]
+-  '원조 요정' 핑클의 전설적 히트곡 '화이트'…폴킴이 리메이크했다→"정식 음원 발매" 깜짝 발표
+-  "저기, 누구세요?"…'충격적 변화', 정말 박지성 맨유 동료 맞나요?
+-  안은진, 안면마비+'연인' 부담감 고백 "도망가고 싶었다" [유퀴즈](종합)
+-  Flow King Stone at 2023 Pimpinese Night
+-  Vanaf vrijdag 30 kilometer per uur in bijna heel Amsterdam, maar niet vanwege het milieu
+-  Three vehicle crash creates bottleneck for Cancun drivers
+-  Politicians, not the church, are the major problem in Nigeria – Apostle Bamilaw
+-  SuperCom Secures New USA Electronic Monitoring Contract for its PureOne and Domestic Violence Solutions
+-  SMArtX Advisory Solutions Adds 19 Strategies to Its Manager Marketplace
+-  AAA® Launches New AAAi Lab Offering Products, Education, Guidance & News Resources
+-  PayPal Names Suzan Kereere as President of Global Markets
+-  تطورات حالة الطقس في الأردن الخميس
+-  اتحاد الكرة يعلن عن حكام مباريات الأسبوع التاسع من دوري المحترفين
+-  الكويت.. ولي العهد يوقف التعيين والترقية بجميع أجهزة الدولة لمدة 3 أشهر
+-  سوريا تعيّن سفيرها في السعودية
+-  بايرن ميونخ يعلن أولى صفقات الموسم المقبل
+-  الاتحاد القطري ينفصل عن كيروش قبل شهر من كأس آسيا
+-  القسام تقصف بئر السبع
+-  Keitimąsi dovanomis palengvina skaitmeninės platformos: kaip šiemet vardus traukti išmaniai?
+-  Tejlor Svift je Tajmova ličnost godine
+-  Malá "špeciálna" komplikácia je preč. Lada Niva Legend a Travel opäť s ABS i Euro5
+-  11 Questions About Jon Rahm’s Speculated Move to LIV Golf Answered
+-  Då kan du se försvarets julgransflygning
+-  Cette Nvidia RTX 4060 Ti vous fait gagner de la place dans le PC
+-  Launch trailert kapott az Arizona Sunshine 2
+-  „Tajm“: Lionel Mesi sportista godine
+-  Focused Sun annonce deux solutions d'énergie solaire révolutionnaires
+-  ഖത്തര്‍ സംസ്‌കൃതി ഓപ്പണ്‍ കാരംസ് ടൂര്‍ണമെന്റ് സംഘടിപ്പിച്ചു
+-  Kremlchef bringt „Bluthund“ mit: Flugshow, Fahnenmeer und Freundschaft bei Putin-Party in Abu Dhabi
+-  Polscy nastolatkowie są "opętani pełzaniem". Nowy trend absolutnym hitem na TikToku [WIDEO]
+-  Atualização do software de sistema 11.02 está disponível para o PS4
+-  Polat çiftinin el konulan araçları görüntülendi
+-  11. Boğaziçi Film Festivali biletleri satışta!
+-  Süper Lig yayın geliri, Avrupa'nın ilk 10 ligi ortalamasından 7 kat düşük
+-  İYİ Parti bir vekilini daha kaybetti! Yanıkömeroğlu partisinden istifa etti
+-  Cumhurbaşkanı Erdoğan, Caparov'un doğum gününü kutladı
+-  بريطانيا تحذر السفن من طائرة حوثية مسيرة غربي ميناء الحديدة
+-  Gründau: Einbrüche in Gartenhütten und Garagen in Niedergründau und Rothenbergen
+-  Милена Милотинова бе сред говорителите на конференцията „Западни Балкани“
+-  Poder Judicial dicta 5 meses de prisión preventiva contra detenidos en Pataz
+-  (VIDEO/FOTO) Dan OŠ "Oktoih": Uskoro gradnja novog paviljona
+-  Netflix Top 10: beliebte Serien und Filme in Deutschland am Mittwoch, 06.12.2023
+-  Netflix Top 10: beliebte Serien und Filme in Deutschland am Mittwoch, 06.12.2023
+-  비대면진료 확대에 의료계 거부 선언 "시범사업 폐기하라"
+-  Aymeric Bonnery (Secret Story) est papa pour la première fois : il dévoile un cliché et le prénom du bébé !
+-  পোশাকশিল্প খারাপ সময় পার করছে: বিজিএমইএ
+-  Sports Minister Congratulates Super Falcons On WAFCON 2024 Qualification
+-  "Le problème de Laurent Ruquier..." : Thierry Ardisson flingue les audiences de l'animateur de BFMTV
