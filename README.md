@@ -1,51 +1,11 @@
 # Latest News
--  TUI’nin kârı arttı borcu azaldı
--  ‘বাঘের থাবা থেকে বাঁচলেও রাজী ফখরুলের থাবা থেকে বাঁচার ক্ষমতা নাই’
--  Reuters: Brasil no ve riesgo de conflicto armado entre Guyana y Venezuela
--  Konya'da aranan şahıs jandarmaya yakalandı
--  Konya-Isparta kara yolunda takla atan otomobilde sürücü burnu bile kanamadan kurtuldu
--  Partilerin 31 Mart yerel seçim adaylık takvimi belli oldu!
--  Karapınar'da "Çat Kapı Sınıf Tiyatrosu" öğrencilerle buluştu
--  Meram Futbol Turnuvası sona erdi
--  Once bitten, twice shy... third time lucky! As Rufus Sewell, 56, confirms his engagement to Vivien Benitez, 27, a look back at the actor's extensive romantic history
--  Margot Robbie Reveals Oppenheimer Producer Wanted Her To Move Barbie Release Date
--  NCERT Does Not Differentiate Between 'India' and 'Bharat': MoS Education Tells Rajya Sabha
--  Husband bound to pay 'mehr' whenever his wife demands: SC
--  "Dao sam otkaz da bih igrao Football Manager. Sad zarađujem duplo" VIDEO
--  سنی دیول نشے میں دھت مصروف سڑک پرنکل آئے، ویڈیو وائرل
--  Nexus REIT's Green Success
--  Elon Musk's ‘xAI’ To Raise Up To $1 Bn Equity Offering
--  Cairn Oil & Gas Steps Up For Net Zero With Nature Solutions
--  2023: The Year That Wasn’t
--  Stocks Finish At Fresh Highs On Wednesday, Led By Energy, IT Shares
--  Світоліна, Калініна, Цуренко та Костюк – у заявці на Australian Open-2024
--  España obtiene la peor nota en pobreza infantil de la Unión Europea
--  Mohun Bagan SG VS Odisha FC Football Match LIVE Score: MBSG vs OFC
--  ‘Inaccurate’: Israel Stock Exchange Slams Paper Claiming Investors Profited from Oct 7 Attack
--  Taylor Swift is named Time's 'Person of the Year' as she's lauded for being a 'master storyteller of the modern era'
--  Taylor Swift is named Time's 'Person of the Year' as she's lauded for being a 'master storyteller of the modern era'
--  Tényleg elkezdett fájni a Fed kamatemelése? Kijött a friss munkaerőpiaci adat
--  Vize kalkınca Avrupalılar Çin’e akın etmeye başladı
--  Andreas Mikkelsen tilbake i toppklassen i rally-VM: – Sykt deilig
--  Вялікая Брытанія пашырыла санкцыі супраць Расеі. Яны закранулі і беларускае прадпрыемства
--  NC woman charged with murder after 3-year-old son found 'lifeless' in her arms: Police
--  XDefiant dev reveals “main” hurdle delaying launch but there’s good news
--  Andreas Mikkelsen tilbake i toppklassen i rally-VM: – Sykt deilig
--  IATA: Aerolinky čekají pro rok 2024 rekordní počty cestujících a rekordní tržby
--  Hätten Sie‘s gedacht? Kleines europäisches Land ist das reichste Land der Welt
--  전광훈에게 quot;간증 잘하네quot; 칭찬 들은 원희룡, 논란 일자 quot;정치 모임 아냐quot;
--  Kaksi pakettiautoa suistui ojaan Vieremällä – toinen kuljettajista puhalsi hurjat lukemat Ouluntiellä
--  quot;언론사 대표 집 압수수색한 검찰, 독재 회귀hellip;尹 심기경호 수사 중단하라quot;
--  Jerz nie został otruty przez służby
--  WoW Hunters get another major nerf in Season of Discovery
--  Bundesregierung erwartet Einigung zum Bundeshaushalt 2024 noch in diesem Jahr
--  [의학칼럼] 의학유전학 (Medical genetics)-4
--  Microsoft Teams now accessible via virtual desktops
--  Arvind Kejriwal: పథకాలు కాపీ కొట్టారు, అధికారం లాక్కోవాలని ప్రయత్నించారు.. బీజేపీపై కేజ్రీవాల్ విమర్శలు
--  G.Saray Federasyon Başkanı'na Süre Verdi... Kulüpten İhraç Ediliyor
--  جیا بچن میڈیا پر برس پڑیں، ویڈیو وائرل
--  Újabb történelmi csúcs a német tőzsdén
--  Roblox Underworld Realm codes for December 2023: Free Soul Orbs, Keys & XP
--  Mesut Yar belediye başkan adayı mı oldu? Mesut Yar hangi partiden aday oldu?
--  Ίντερ: Τράπεζα του Κατάρ εμφανίζεται ως πιθανός νέος ιδιοκτήτης
--  Revealed: TikTok's top trends of 2023 - from men obsessing over the Roman Empire to women enjoying 'girl dinner'
+-  ‘SON 캡틴 없을 때 공백 메울 수 있나?’ 유벤투스 계획에서 사라졌다! ‘완전 처분 희망’
+-  [현장목소리] ‘드라마 같은 역전승’ 박진섭 감독, “축구 참 어렵다”
+-  [현장목소리] ‘PK 두 방’으로 부산 구한 라마스, “박진섭 감독님 힘든 티 안 내시려고...”
+-  Rusya NATO'yu uyardı: Doğrudan çatışma riski artıyor
+-  Bir dönem sona eriyor: Facebook ve Instagram arası mesajlaşma kalkıyor
+-  Yazar ve Siyaset Bilimci Mustafa Çalık hayatını kaybetti
+-  Davinson Sanchez'den Kopenhag mesajı: Kazanmak için gideceğiz
+-  Nooro Knee Massager Reviews [Urgent Update]: Don’t Buy Until You Have Read This
+-  HM Amit Shah attributes "Kashmir`s woes" to Jawaharlal Nehru`s `blunders`
+-  Kronik böbrek hastalığının 8 nedeni! Bu belirtilere dikkat!
