@@ -1,51 +1,51 @@
 # Latest News
--  Apple's iMessage May Dodge EU Regulatory Demand for Interoperability
--  Asegura Rebaque que Sergio Pérez es el mejor de México
--  Aviva presión inflacionaria último jalón en megaobras
--  Declaran culpable a agresor de Mya
--  Acusan red fantasma en compras del sector salud
--  Aprueban colaboración de Morena y organizaciones polémicas
--  Sube cifra a 23 muertos tras erupción volcánica en Indonesia
--  Соперник Шавката Рахмонова в UFC устроил избиение с уничтожением. Видео
--  Leerer Magen? Wer sich bei der Tafel anmelden kann
--  انتخابات 2024 بأمريكا.. لمن يصوت الجيل Z؟
--  Aktien Frankfurt: Dax bleibt auf Rekordjagd - Nur Merck trübt das Bild
--  Bogdanović u EP: Ohrabruje to što politika proširenja ostaje...
--  В России предложили распространить госпропаганду на детские сады
--  She mesmerised with her voice
--  Michaung Wreaks Havoc: What Makes the Bay of Bengal a 'Hotbed' of Cyclones?
--  تعزيز المستشفى الأردني (2) بغزة بكوادر طبية ومساعدات
--  الرزاز يستقيل من رئاسة المعهد السويدي للحوار لصمته عن جرائم الإبادة في غزة
--  قصف مدفعي مكثف على شمال غزة
--  أرتيتا يتجنب توجيه اللوم لرايا بعد ليلة كارثية للحارس الإسباني
--  صواريخ من اليمن على إيلات
--  استشهاد شاب من مخيم بلاطة
--  ابن جازي الحويطات وأبو عليم بني حسن نسايب
--  경북도, 인천공항서 신공항 물류단지 성공열쇠 찾다
--  영남대 명예교수들, 대학 발전기금 1천만원 기탁
--  달서구, 드림스타트 사업 ‘보건복지부 장관상’
--  공군 군수사령부 부사관단, 연탄 나눔
--  대구파티마병원, 동구청에 이웃사랑 월동비 700만원 기탁
--  대구보건대, 中 산동 유방상업학교 견학 프로그램 제공
--  대구변호사회, 사랑나눔 후원금 전달
--  영남이공대, 남구 취약계층에 난방유 지원
--  동구청·미소친절 시민추진단, 미소친절 캠페인
--  영천서 70대 몰던 승용차 추락...심정지 1명·중상 3명
--  영주시 ‘희망2024 나눔 캠페인’ 목표액 8억500만원
--  – طقس : استقرار نسبي في الاجواء اليوم على معظم مناطق البلاد .
--  Wohnungsbrand in Brandenburg: Hunde und Katze sterben bei Feuer in Fürstenwalde
--  Elegant Austrian Linzer Cookies taste even better than they look
--  ANALÝZA: Ligoví obránci pod drobnohledem. Zeď Ogbu, talenti z Teplic i přesní sparťané
--  Meghan Markle wears diamond bracelet gifted by King Charles after ‘racist royals’ drama
--  Der lange Kampf der Bahn gegen Schnee und Eis - ein Strukturproblem?
--  Schulveranstaltung am Julis-Echter-Gymnasium in Erlenbach beweist, dass Wissenschaft Spaß machen kann
--  Heimatgeschichte in vielen Facetten
--  Söders Kreuzerlass vor Bundesverwaltungsgericht
--  Schneechaos: Noch immer Behinderungen bei Zug und Flugverkehr
--  Osterburken: Fahrzeug mehrfach überschlagen - Mann schwer verletzt
--  Adam Collard reveals Christmas plans with Laura Woods and admits he's 'in love'
--  Merck erleidet Flop mit Pharma-Hoffnungsträger
--  الضالع ..اللجنة التنسيقية لمشروع عدالة الأحداث تلتقي مدير الأوقاف والإرشاد بالمحافظة
--  Ministro Urso scatenato: «L’80% degli incentivi usati anche da Stellantis per produrre auto all'estero, ora basta»
--  [Watch] Bangladesh Batsman Given Out For Handling The Ball; Know Relevant Rule & Indian Cases
--  Wozniacki agli Australian Open dopo 4 anni: sarà in gara con una wild card
+-  निजी विद्यालयलाई सार्वजनिक बनाउने प्रस्तावमा प्याब्सन उपाध्यक्षको जवाफ- हाम्रो लगानी फिर्ता दिए, तालाचाबी बुझाउँछौं
+-  Türkiye'den İsrail'e sert tepki: Şiddetle kınıyoruz
+-  Bayern Münih'ten yeni imza! Bryan Zaragoza'yı kadrosuna kattı
+-  BM: Gazze dünyanın en tehlikeli yerlerinden biri haline geldi
+-  ইউনেস্কো’র সাংস্কৃতিক ঐতিহ্যে স্বীকৃতি পেল রিক্সা ও রিক্সাচিত্র
+-  Ankara'da sosyal medyadan dolandırıcılık yapan 16 gözaltı
+-  Mardin'de görüş mesafesi 10 metrenin altına düştü
+-  Zonguldak'ta öğrencisini dövdüğü iddia edilen öğretmene hapis istemi!
+-  7.2'lik deprem senaryosu yapılan bölge peş peşe sallandı!
+-  Sinop'ta balıkçı tezgahlarında hamsi bolluğu: Fiyatı 20 TL
+-  Erzurum'da kargo kolilerinden kaçak sigara çıktı
+-  Tekirdağ'da fırtına hamsi fiyatlarını yükseltti
+-  Samsun'da gasp tuzağından 18 yaşındaki yabancı kız tutuklandı!
+-  Bakanlık'tan Filistin topraklarındaki yasadışı yerleşim hakkında açıklama
+-  Kırklareli'de tek katlı evde çıkan yangın korkuttu
+-  Putin'e füzelerle donatılmış 4 savaş uçağıyla koruma
+-  Kasko poliçe fiyatlarında düşüş!
+-  Milatović: Moramo se uhvatiti u koštac sa nagomilanim problemima u...
+-  رئيس لاتفيا يرد على تهديدات بوتين بشأن الأقلية الروسية
+-  STMicroelectronics N : veut miser sur l'IA embarquée
+-  13 të famshmit që “thyen rregullat”, duke pozuar 100% pa filtra para ndjekësve
+-  TPN: Ganjar-Mahfud Berkomitmen Dorong Supremasi Hukum dan HAM
+-  "الفضلي": 200 مليون نخلة تنتج 9.7 ملايين طن من التمور سنويًا
+-  تعرّف على الجنسيات الأكثر استقدامًا للعمالة المنزلية بالمملكة
+-  3억4천만원 들인 저온저장고에 박스 보관? 파주 지역농협, 보조금 유용 의혹
+-  무형문화재 신규 지정 '매듭장·주물유기장·양태장' 전승교육사 모집
+-  평촌중 김유성·수리고 임주헌, ISU 피겨 주니어그랑프리 파이널 출전
+-  "소비자에 충분히 고지 안한 죄"… 애플, 2심서 각 7만원 배상 판결
+-  정부는 괜찮다는데… 소비자들은 "일단 요소수 쟁여두자"
+-  “수원은 0원, 양평은 500만원”… 지역별 차이 큰 출산장려금, 경기도가 지원해야
+-  "이자 내기 버거워요"… 고금리에 주택담보대출 연체 ‘껑충’
+-  전두환 전 대통령 파주 안장, 토지 매매 불발로 무산
+-  급식실 폐암 사망 노동자 장례식… 교육청 앞 분향소 설치는 끝내 무산
+-  ‘선거구 획정 초안’ 놓고 여야, 신경전 고조
+-  “이제 와 없던 일?”… 송도 스마트스퀘어 오피스텔·상가 ‘분양사기’ 논란
+-  [우리동네 누가 뛰나-인천 남동을] 윤관석·이병래 vs 박남춘...국힘, 경쟁력 후보 낼 수 있을까
+-  선생님 1명에 영아 2명… ‘0세아 전용 어린이집’ 확대해야
+-  경기도 대대적 조직 개편… 특사경 축소-'외교·문화·종교'에 방점
+-  한국기자협회 "포털 다음 '뉴스 검색 기준 콘텐츠제휴사 한정' 철회하라"
+-  경기도체육회, 초등스포츠클럽 육성 지원사업 평가회 성료
+-  [사람in] 우찬인 원곡고등학교 교장 "교육과 사랑이 미래 인재 만듭니다"
+-  수원 인계지구대, '재난대응 유공' 소방서장 표창 수상
+-  건강보험 피부양자 대폭 축소될까… 합리적 손질한다
+-  이주호 부총리 겸 교육부장관, 현장교사 정례소통 학생·학부모까지 확대
+-  제13대 경기도사회복지사협회장에 박찬수 현 회장 당선
+-  올해 마약사범 2만 명 넘어 역대 최다… 셋 중 하나는 10∼20대
+-  수원삼성, K리그 사랑나눔상과 그린위너스상 수상
+-  '놀이기구 타던 두 살배기 사망' 키즈카페 업주 금고형 집행유예
+-  아내 출산하러 간 사이 지적장애 후배 성폭행한 20대 기소
+-  인천시, 한·중·일 학술교류 위해 동아시아 박물관장 회의 개최
