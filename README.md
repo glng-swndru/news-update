@@ -1,11 +1,11 @@
 # Latest News
--  مطالبات للسوداني بتنفيذ "وعوده" وكشف نتائج التحقيق بأحداث تشرين: لا تسقط بالتقادم
--  Everyone can see the dancing woman – but you have 20/20 vision if you spot her 3 sisters in the illusion in 12 seconds
--  عاجل.. موعد الاختبارات النهائية للفصل الدراسي الثاني وتفاصيل الإجازات
--  نجاح عدن مول| كتب صالح العمري
--  Comarca de Araputanga está com problemas nos telefones fixos
--  Entra em vigor lei que cria o Dia Nacional da Doceira, em 6 de junho
--  Comarca de Feliz Natal institui teletrabalho até dia 24 de janeiro
--  CCJ rejeita emenda a projeto que valoriza profissionais da educação básica
--  Nova lei dá à cidade de Rio Grande o título de Capital Nacional das Águas
--  Natal dos Sonhos de Sinop fomenta a economia com venda de alimentos e produtos na praça
+-  Di Lorenzo, quale infortunio? Juve-Napoli, spuntano le corna
+-  Reale Mutua Fenera Chieri ’76: vigilia di CEV Volleyball Cup
+-  ‘We Will Abide By What We Were Taught’ – Amaechi’s Ally Hints At Dumping Wike Over Rivers Crisis
+-  Game Awards 2023 Reveals Five Fascinating New Indie Games
+-  Charita organizuje zbierku Hlinený dukát na pomoc ľuďom v núdzi
+-  Minister obrany Pistorius sľúbil Ukrajine takmer 200-tisíc kusov munície, Západ má podľa neho na pleciach veľkú zodpovednosť
+-  G7 sammiti başladı
+-  মন সুস্থ রাখতে সামাজিক যোগাযোগমাধ্যম ছেড়েছেন হ্যারি ব্রুক
+-  Aktien Europa Schluss: Zinswende treibt EuroStoxx 50 auf Hoch seit 2007
+-  ดอลลาร์สหรัฐรับโมเมนตัมก่อนเหตุการณ์สำคัญมาโคร: สิ่งที่ต้องระวัง
