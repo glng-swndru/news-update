@@ -1,51 +1,51 @@
 # Latest News
--  Đilas ima "amneziju"? Napao Vučića zbog odluke koju je doneo njegov zamenik VIDEO
--  Aprehenden a cinco extranjeros con presunta droga en Bella Vista
--  Reclusos de la Joyita se rencuentran con sus familiares
--  Join our Team! AUKUS foreign expenditure sinkhole blows out to $12B … already
--  Sri Lanka’s Apparel industry triumphs over 31 awards at the 25th Presidential Export Awards
--  Point marchés-Wall Street termine en baisse, l'énergie pèse
--  Did I drink myself stupid because I'd inherited 'alcohol genes' asks Julie Cook - Revealing DNA research link alcohol consumption with genetics
--  En Monagas no se ha prohibido la utilizacion de juegos pirotécnicos
--  Детей учить некогда
--  Man accused of Paris attacks handed terror-linked charges
--  Wall Street craint que l'économie ne ralentisse trop et termine en baisse
--  Presidenta del Congreso, Shirley Rivera, confirma que recibieron oficio por parte del TSE para elegir magistrados suplentes
--  Obsessed stalker, 45, is jailed for LIFE for killing comedian Drew Carey's ex-fiancée by throwing her off third-story balcony in Los Angeles
--  "Milan venduto e torna Maldini": una voce clamorosa, chi può prendersi tutto
--  ¡Aúlla el Lobo! Raúl Jiménez marca doblete con el Fulham y se luce en la Premier (Videos)
--  Efter COP28 bør de danske klimaplaner ændres – og inkludere moderne atomkraft
--  PISA: Skolelevernes evne til at læse og regne styrtdykker – skolerne mangler disciplin, stærk ledelse og dygtige lærere
--  “El juego del calamar: El desafío 2″: lo que se sabe sobre la temporada 2 del reality de Netflix
--  Глава офиса Зеленского заявил о телефонном разговоре с Сийярто
--  Germania - România » Primul meci din grupa principală la Campionatul Mondial
--  I won more official darts titles than Phil Taylor but still had to work nights at Royal Mail – people don’t believe me
--  “قادربوه” يبحث مع مجلس الدولة إيجاد حل سريع للصعوبات أمام علاج المرضى بالخارج
--  Win Lidl vouchers, Jurassic Live tickets and £200 soft play set today – enter here for free
--  Μπασκόνια - Φενέρμπαχτσε 80-79: Απίθανος Χάουαρντ... εκτέλεσε τους Τούρκους
--  Steve Jobs wrote a check to Radio Shack in 1976. Now it's up for auction
--  Fortnite players slam “complicated” weapon mods in Chapter 5
--  بالفيديو.. «تكامل 1».. جاهزية واستعداد ومهارة للقوات البرية بدول «التعاون»
--  Prince Constantin of Liechtenstein dies ‘unexpectedly’ aged just 51 leaving behind Princess & their three children
--  24/7 solar towers could double energy output
--  Taylor Swift spricht über Beziehung zu Football-Star Travis Kelce
--  Miazga w hicie PlusLigi! Tego nikt nie mógł przewidzieć. Kadrowicz się bawił [WIDEO]
--  Væpnet politiaksjon i Loddefjord etter trusselsituasjon
--  iPhone SE 4 May Reuse Existing iPhone 14 Battery
--  GameStop manque ses estimations de revenus en raison de la baisse de la demande de jeux vidéo
--  Hati-hati Sering Memencet Jerawat, Bisa Buat Pori-pori Membesar
--  США приостановили участие в ДОВСЕ
--  Sweet moment Queen's equerry is helped by boy, 4, in annual tradition of decorating a Clarence House Christmas tree with a blade - but Camilla warns 'careful of the sword!'
--  Roundup: Big Brother 2023 winners, Time’s Person of the Year, My Mum Your Dad axed
--  Automakers, dealers and shoppers dawdle on EVs despite strong year in US sales growth
--  Man walks into dog wash business in Ascot Vale, steals linen and personal items
--  COVID-19, respiratory disease rates remain elevated, OPH reports
--  La rénovation massive de l'aéroport JFK emprunte un chemin sinueux sur les marchés de la dette
--  10 best laptop deals you can get before Christmas
--  [백악관 “우크라 예산처리 못하면 푸틴에 크리스마스 선물하는 꼴”
--  [구글, 사람 능력 넘는 AI 언어모델 ‘제미나이’ 공개…“GPT-4보다 뛰어나”
--  [마이데이터 과금체계 구축…정보전송비용 과금원칙 제시
--  [맑고 포근한 ‘대설’…낮 최고기온 9∼14도
--  Cyprus pitches humanitarian corridor in meeting with UK defence minister
--  WTI 5개월만에 배럴당 70달러 ↓…中경기우려에 유가급락
--  تراجعات حادة لأسعار النفط
+-  Familiares lo hallan sin vida en el baño de su casa
+-  Riña en Cereso de Juárez deja tres internos lesionados
+-  No tengo ningún mérito, reconoce Fayad sobre Embajada
+-  Declaran la ópera italiana patrimonio del mundo
+-  Autorizará Corte corridas de toros en Plaza México
+-  Habrá operativo de seguridad en zonas aledañas al Santuario de Guadalupe
+-  [수첩] 계속되는 불황과 바이오클러스터의 역할
+-  인바이츠바이오코아, 120억원 잉여금 전환 상정…주주 가치 제고 나선다
+-  11월 식약처 승인 임상시험 다시 증가…총 92건 승인
+-  심평원 '빅데이터'와 '응급의료'가 만나면?‥'신속 치료'에 큰 도움
+-  박호영, 한국의약품유통협회장 선거 '출사표'‥유통 플랫폼 조성에 앞장
+-  복지부 가세한 정신질환자 '사법입원제', 갈 길은 여전히 멀다
+-  다국적 제약사 한국법인 CEO 선임 기조는 여전히 '한국인'
+-  의대정원 이견 속 '숫자' 논의 조만간…협의점 찾을까
+-  البيت الأبيض: بايدن لا يدعم احتلال غزة وحماس استخدمت العنف الجنسي كسلاح
+-  واجب وطني.. الجبلاوي يؤكد على أهمية المشاركة في الانتخابات الرئاسية
+-  الحبس سنة لمنتج شهير في قضية شيك بدون رصيد لصالح الفنان أحمد عزمي
+-  "مصراوي" في جولة داخل جناح شركة رافال للطائرات بمعرض إيديكس"2023".. تفاصيل
+-  رئيس وزراء إسبانيا: على مجلس الأمن التحرك فورًا لفرض وقف إطلاق النار بغزة
+-  رئيس الوزراء البلجيكي: سنمنع المستوطنين المتطرفين في الضفة من دخول أراضينا
+-  وزير الخارجية يشارك في إفطار عمل مع مجموعة أصدقاء مصر بالكونجرس الأمريكي
+-  أمطار وظاهرة جوية احذر منها.. "الأرصاد" تكشف طقس غدًا الخميس
+-  غرفة طوارئ.. «شمال الدلتا» للكهرباء تستعد للانتخابات الرئاسية بتعليمات مشددة
+-  بحضور مفتي الجمهورية.. رئيس قضايا الدولة يفتتح فرعين للهيئة بالبحيرة
+-  لسبب صادم.. سائق تاكسي يدهس سرب طيور - وهذا ما حدث له
+-  أندية لا تعرف الخسارة في دوريات أوروبا الكبرى هذا الموسم
+-  МЧС начали рейды по местам продажи пиротехники в Твери
+-  ‘Our hands are tied’: Kitchener councillor speaks on housing project for ‘rainbow row’
+-  [오늘날씨] 대체로 맑고 포근… 낮최고 14도
+-  지난달 외국인 투자자, 4개월 만에 주식 순매수
+-  Śmiał się z niego cały świat. Teraz jest bohaterem. Co za komunikat!
+-  برونو فيرنانديز ينهي سلسلة غير مسبوقة في الدوري الإنجليزي
+-  Bill Ackman demands resignation of university presidents over handling of antisemitic protests
+-  [오늘날씨] 따뜻하고 눈 안 내리는 '대설'…최고 온도 16도
+-  Hauard presudio Feneru, Gudurić tragičar! Baskonija najavila duel sa Zvezdom: Trojkom u poslednjim trenucima do pobede
+-  Almanya'da vatandaşlık başvurusunda bulunanlara İsrail dayatması
+-  Bakanlıktan doğal gaz desteği açıklaması: Yeni düzenlemeyle miktar yükseltildi
+-  Erin Andrews Reveals How NFL Wives & Girlfriends Actually Feel About Taylor Swift & Travis Kelce's Relationship
+-  RIO TINTO : UBS is neutraal gestemd over het aandeel
+-  RIO TINTO: per UBS il titolo è Neutral
+-  Pinterest Predicts Bold New Home Decor Styles in 2024
+-  APPLE INC : UBS is Neutraal over het aandeel
+-  APPLE INC: ancora rating Neutral per UBS
+-  Trafo yüklü tır kazası kamerada: Aydınlatma direği faciayı önledi
+-  Hullet GOG-forsvar bliver skudt ned i vigtig CL-kamp
+-  Hullet GOG-forsvar bliver skudt ned i vigtig CL-kamp
+-  Drama u Vilerbanu pripala Makabiju: Izraelci naneli novi poraz Pocekovoj ekipi
+-  VEŠTACI MU ZAPEČATILI SUDBINU Saša se nije predozirao lekovima, evo koji dokaz šalje njegovog brata Milana na 10 GODINA ZBOG UBISTVA
+-  Miguel Vergara reveló cuál fue la mayor dificultad al momento de preparar “Arroz con Huevo Frito”: El Gran Chef Famosos La Revancha
+-  Epa Colombia tuvo noble gesto con habitantes de la calle antes de Navidad
