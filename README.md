@@ -1,11 +1,11 @@
 # Latest News
--  นักวิทย์ใช้ AI ทำนายการเกิดคลื่นยักษ์ ด้วยข้อมูลจากทุ่น 158 แห่งทั่วโลก
--  Teachers, students in China advised to not go to school while ill
--  Liz Cheney weighs third-party US presidential run, says Trump threatens democracy
--  Twitch plans to shut down in Korea over high network costs
--  Yoon names new chief of state broadcasting watchdog
--  하태경 "이번 총선, 한동훈의 시간… 당에 빨리 와야"
--  'DJ 3남' 김홍걸, 서울 강서갑 출마 선언… "강서 숙원 풀어낼 해결사 될 것"
--  윤대통령, 방통위원장에 김홍일 권익위원장 지명
--  이준석 "신당 지역구 출마 지원자, 870명 모여"
--  우아한형제들, 2023년 동반성장주간 중기부 장관 표창 수상
+-  Winter im Norden: Schnee, Eisregen und Glätte – und der Winterdienst streikt
+-  배준집 회장 국가품질경영상 수상
+-  [호텔소식] 소노호텔앤리조트, ‘크리스마스 케이크’ 2종 출시 외
+-  이영애, 우아한 아우라
+-  이무생, 눈빛 이글~
+-  अहमदाबाद के अपार्टमेंट में गैस सिलेंडर फटने से लगी आग, परिवार के 4 लोग झुलसे
+-  Тошкентнинг икки туманида электр энергияси вақтинча ўчирилади .
+-  Hyundai Tucson 2024 lần đầu lộ diện ngoài đời thực, vẫn còn nhiều điểm mới chưa công bố
+-  5-year-old girl who fell into 25 feet deep borewell in Madhya Pradesh recued
+-  NIPA, ‘공공부문 온실가스 목표관리제 우수기관’ 선정
