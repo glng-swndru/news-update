@@ -1,11 +1,51 @@
 # Latest News
--  CM Stalin: மிக்ஜாம் புயலால் வடியாத வெள்ள நீர்: ஒப்புக்கொண்ட முதலமைச்சர் ஸ்டாலின்!
--  Balwant Singh Rajoana| ਕੇਂਦਰ ਨੂੰ ਅਲਟੀਮੇਟਮ, ਰਾਜੋਆਣਾ ਨੂੰ ਲੈ ਕੇ ਜਥੇਦਾਰ ਨੇ ਲਏ ਇਹ ਵੱਡੇ ਫੈਸਲੇ
--  बंद होने वाली है SBI की मोटी कमाई कराने वाली स्कीम, जानिये कितने बचे हैं दिन
--  Aday Adayı, Aday, Seçim, Başkan, hizmet....
--  Karatay’da Tabiat Mektebi hayata geçiyor
--  – النيابة العامة تأمر بحبس تشكيل عصابي ، شرع في الاستيلاء على 40 مليون دينار من مصرف الجمهورية .
--  Lula skipping Milei's inauguration
--  Lula skipping Milei's inauguration
--  Lula skipping Milei's inauguration
--  Lula skipping Milei's inauguration
+-  454개 공직유관단체 공정채용 위반사례 총 867건 적발
+-  จับกระแสการเมือง : 6 ธ.ค.66 สูญเสีย "หมอกฤตไท" สู่แก้ฝุ่น PM 2.5 รัฐเอาจริงกระเช้าภูกระดึง
+-  "เผายา" ศาสตร์หมอพื้นบ้านภาคเหนือ ใช้ความร้อนรักษาโรค
+-  ศาล รธน.นัดไต่สวนคดี "พิธาถือหุ้นสื่อ" 20 ธ.ค.นี้
+-  "ปดิพัทธ์" ยื่นข้อมูลลับอหิวาต์หมูให้ DSI ล้างบางขบวนการหมูเถื่อน
+-  인천시 수산기술지원센터, 2023년 하반기 어촌지도자 협의회 개최
+-  인천시 부평구, 십정2지구와 일신2지구의 지적재조사 사업 추진
+-  김찬진 인천시 동구청장, 시정연설서 내년 비전 제시
+-  Türk Eximbank'dan deprem bölgesine 100 milyon dolarlık kaynak
+-  Exinformante de la DEA se declara culpable del asesinato de Jovenel Moise
+-  Hakerzy odkryli przyczynę tajemniczych awarii pociągów. Szokujące ustalenia
+-  Prezydent zmienił regulamin SN. Chce "zabetonować" status neosędziów?
+-  Eski hakem Serkan Çınar'dan şok iddialar: Bana yanlış pozisyon izlettirildi!
+-  İran'dan Azerbaycan açıklaması: İlişkiler doğru yolda
+-  Erdoğan'dan İsrail'e sert uyarı: Netanyahu iflas edebilir
+-  الهواري يعلن عن وحدة لاستقبال الشكاوى بالصحة
+-  عدم الاستقرار الجوي ترفع الموسم المطري الحالي
+-  Failings of Tusla in case of Donegal man falsely accused of abusing his children raised in Dail
+-  علماء يطورون أول حقنة في العالم لعلاج التوحد
+-  What time are the Cup finals at the CT Sevens on Sunday?
+-  Как выбрать хорошие мандарины: Роспотребнадзор дал советы
+-  Велосипед и детскую коляску увели у псковичей злоумышленники
+-  На 56% выросла заболеваемость COVID-19 за неделю в Брянской области
+-  Święty Mikołaj bywał... Damą. Historia mało znana, a bardzo dziś potrzebna
+-  김기현 "印 공관위원장 제안, 혁신 성공 위한 충정에서 한 말"
+-  Тошкент ва Хоразмда қурол ва гиёҳвандлик воситалари сақлаган шахслар қўлга олинди
+-  รวมตัวแจ้ง ตร.ไล่ล่า2ผัวเมียมิจฉาชีพเปิดเฟสหลอกรับจำนำรถสูญกว่า10คัน
+-  แนวหน้าTalk EP.31 : 'ปรเมษฐ์ ภู่โต' คุยกับ 'ชัชวาล แพทยาไทย' มือเปิดประเด็นหมูเถื่อน
+-  พรุ่งนี้ปรับลดราคาน้ำมันกลุ่มเบนซิน0.50บ./ลิตร ส่วนน้ำมันในกลุ่มดีเซลราคาคงเดิม
+-  Venezuela: Maduro will Teil von Guyana zu neuem Bundesstaat erklären
+-  Antalya'ya 11 ayda 200'e yakın ülkeden 15 milyon 371 bin turist geldi
+-  Devin Booker sur le temps-mort controversé des Lakers : “Tout le monde l’a vu”
+-  Nord-Kivu : des femmes fuyant les affrontements entre groupes armés locaux et M23 violées par des hommes armés
+-  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del miércoles 6 de diciembre minuto a minuto
+-  Bosak: Będą dwie zmiany w regulaminie Sejmu
+-  Macerie e lenzuola al Politecnico: l'azione di Extinction Rebellion
+-  Senado aprueba centralizar fondos de salud estatales para IMSS-Bienestar
+-  Bank of Canada to announce interest rate decision today, expected to hold at 5%
+-  Pradines : Gérémy Crédeville sur la scène de La Prade le 15 décembre
+-  Fans skeptisch: Ist Heinz Hoenig mit 72 Jahren Dschungelcamp-tauglich?
+-  Почти 250 медиков трудоустроились по программе «Земский доктор»
+-  Caren Miosga ersetzt Anne Will: Das ändert sich ab Januar in der Talkshow
+-  Нинова: Хубав празник, ама лош ден за парламента
+-  Rekordan broj lobista za fosilna goriva učestvuje na UN...
+-  Gramatyka: Wykształcenie Hołowni? Jest bardzo inteligentny. Nie ma powodu do wstydu
+-  Mut zum Moonshot: Wie disruptive Innovationen entstehen
+-  Vadí výzvy k zabíjení Židů? Záleží na kontextu, šokují prestižní americké univerzity
+-  Из-за аварийного состояния дома в центре Твери объявлен режим повышенной готовности
+-  وقف قرارات التعيين والترقية والنقل والندب والإعارة في جميع أجهزة الدولة لمدة 3 أشهر قابلة للتجديد
+-  В Сочи выявили очередной самострой
