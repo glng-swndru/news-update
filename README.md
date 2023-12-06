@@ -1,11 +1,11 @@
 # Latest News
--  Willow Smith cuts a casual figure as she is spotted carrying activist tote bag while dining at Luna Lu in Sydney ahead of her appearance at the GQ Awards
--  Arsenal marca no último minuto, supera o modesto Luton Town e se consolida no topo do Inglês
--  हाथ में नहीं टिकता पैसा, मोरपंख का ये ज्योतिषीय उपाय आएगा काम, आजमाएं
--  Hannah Waddingham: Home for Christmas Streaming: Watch & Stream Online via Apple TV Plus
--  Arsenal go five clear as Rice seals seven-goal thriller at Luton
--  My husband is obsessed with a 'terrible' baby name that could ruin our daughter's life - what do I do?
--  Maduro otorgará licencias para explotación petrolera en la zona disputada con Guyana
--  अलसी के तेल के कई फायदे जानकर हैरान रह जाएंगे आप, जानिए कैसे करें इस्तेमाल
--  Girls who start their periods before turning 13 are more likely to develop type 2 diabetes and suffer strokes as adults, study claims
--  Extreme record-breaking heatwave about to strike half of Australia: Here's how hot it's about to get in your city
+-  [오피셜] 이번 시즌 EPL 첫 번째! 1승 2무 11패 셰필드 유나이티드, 헤킹바텀 감독 경질→후임으로 크리스 와일더 확정
+-  [김병윤의 눈] 프로축구 K리그2 감독의 수난시대...실패가 아니다.
+-  “장난이었는데요”…상가 엘리베이터에 불 지르고 PC방 간 10대 체포
+-  ‘부동산 투자 실패’ 스트레스 풀려고 고양이 20마리 죽인 회사원
+-  현대차 노조 차기 지부장 강성 문용문 후보 당선
+-  Tiada keperluan rombak barisan Exco Perak
+-  수원 군공항 화성 이전 추진에 화성시·시민사회단체 반발
+-  Ransomware Dwell Time Hits Low of 24 Hours
+-  Police officer hands over passport after Clare Nowland manslaughter charge
+-  Police officer hands over passport after Clare Nowland manslaughter charge
