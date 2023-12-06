@@ -1,11 +1,11 @@
 # Latest News
--  Negara tiada skim perlindungan pertanian
--  Dünyaca ünlü şarkıcı Britney Spears'in babasının bacağı enfeksiyon nedeniyle kesildi
--  Посол Испании в Саудовской Аравии раскрыл детали контракта Месси
--  Недоволни културни дейци излизат на национален протест
--  ‘Robbed’: Slain woman’s family front court for her alleged killer
--  Atropella camión urbano a mujer en la Prieto Luján
--  جکارتہ میں کھڑا ایئربس 320 طیارہ اسلام آباد واپس پہنچ گیا، لیز کی مد میں کتنی رقم ادا کی؟
--  Orissa HC sets 15 day deadline for state govt to submit fishing policy for Chilika
--  Konark festival ends with striking performances
--  17 children treated from measles in Kara-Kul town
+-  [ŽT] Virš Juodosios jūros nukaltas Rusijos Su-24M. Kreiseris „Moskva“ tapo lėktuvnešiu
+-  HD현대오일뱅크, 숲 조성 위한 ‘100일의 식집사’ 캠페인 진행
+-  Selenskyj lobt die Freiwilligen im Krieg - Die Nacht im Überblick
+-  Heftige Kämpfe im Süden Gazas - Die Nacht im Überblick
+-  국악트롯 김다현 김봉곤부녀 국민고향정선 홍보대사됐다
+-  정선군번영연합회 "한수원 도암댐 수질개선제 살포 강력 반대"
+-  춘천 혈동리서 벌목운반차량 25m 아래로 추락
+-  Putin menang perang jika AS tamatkan bantuan kepada Ukraine
+-  HVN: Đấu giá 01 lô ULD đã qua sử dụng của Tổng Công ty Hàng không Việt Nam - CTCP
+-  Michaung damages infrastructure in Andhra Pradesh, subsides into cyclonic storm
