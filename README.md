@@ -1,11 +1,51 @@
 # Latest News
--  GTA 6 Trailer Skyrockets to 69.2 Million Views in 15 Hours
--  Severe decline in drinking water quality since 2014
--  Tierra Brava: Luis Mateucci desconoce a ‘La Chama’ y se confiesa aún enamorado de su ex
--  Las páginas sobre ChatGPT, Oppenheimer y Messi, entre las más vistas de Wikipedia en 2023
--  Prevratný objav: Vedci zrejme zistili, čo spôsobuje TINITUS! A takto by sa podľa nich mal dať liečiť
--  Córka byłego wiceprezydenta USA chce wystartować w wyborach i zatrzymać Donalda Trumpa
--  Raymond Group's Gautam Singhania, Estranged Wife Seek "Realistic" Divorce Settlement
--  Marabu Féknyúz: Jár a csokimikulás!
--  Berkontribusi dalam Layanan Psikologi, Perusahaan Ini Raih Penghargaan Bergengsi
--  Porn during proceedings forces Karnataka High Court to suspend video conference
+-  이준석 “이낙연 싫어할 이유 없어…생각 들어보고 싶다”
+-  박민식 “지난해 보선 때 안철수에 분당 양보…내게 출마 명분 충분”
+-  '손흥민 후계자 될 수 있을까?'…토트넘 '20세 신성' 윙어 영입 추진, "첼시 유스 출신이라 EPL 낯설지 않을 것!" 이적료는 254억
+-  '더 글로리'·'마스크걸', 美 크리틱스 초이스 최우수 외국어 시리즈 부문 후보
+-  "세인트루이스, 에이전트와 만났다" 韓 최고 마무리 ML 진출 급물살 타나
+-  이현이, 소매치기→사기 피해 고백 "카드 비밀번호 알려주자 현금 인출해 도망가" [라디오쇼](종합)
+-  KLPGA 안소현, 팬들과 함께 '사랑의 버디 기금' 전달
+-  Liga Élite de Béisbol: Gallos nivelan duelo con Leñadores
+-  충남도, 베트남 교류middot;협력 남북 축 연결
+-  '한국 공연관광산업 지원' 정책토론회 7일 국회도서관 개최
+-  이재명 quot;저출생 문제 해결 함께해야quot;hellip;'온 동네 초등 돌봄' 제안
+-  Britain’s dominant services sector rebounds, cost burdens persist
+-  Generalüberholt: Mercedes-Benz MB-Trac 1500 Turbo für 56.500 Euro #maschinedestages #gebrauchtmaschine
+-  Zuckerrübenernte: Der neueste Holmer-Rübenroder im Detail #erntezuckerrüben #holmermaschinenbaugmbh
+-  UK Visa Rules: इन लोगों के लिए वीजा नियम सख्त करेगा ब्रिटेन, भारतीयों पर पड़ेगा असर
+-  [길위의 중국] '미중 디커플링은 재앙' 상하이 푸동공항의 머스크
+-  Dayuskah Aidil Aziz? – Netizen kecam babak romantis Fasha, Wan Raja
+-  [목포시, 하반기 특별교부세 30억원 확보
+-  [윤정희, SM주식 50억어치 보유…남편은 ‘시세조종’ 혐의로 입건
+-  [민간인 통제선 25㎞ 이내는 박살났다…속초시·가평군 정부 보상요구
+-  [‘건축계 노벨상’ 프리츠커 수상 HdM, 서울 ‘서리풀 보이는 수장고’ 설계 맡는다
+-  [전국의 여성 경영자(CEO) 1천명, 11일 진도군에 모인다
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [‘이병선 응급안전안심서비스’…전국 1위 선정
+-  [해남군, AI 위기단계‘심각’격상에 따른 방역 강화
+-  [패브릭소파 열풍 주도…신세계까사 ‘캄포’ 누적판매 22만개 돌파
+-  [10대 “내가 법 잘아는데 이걸로 구속되겠어요?” 보험사기 일당, 수법 봤더니
+-  US announces visa bans after warning Israel over West Bank violence
+-  Une belle fin de saison
+-  Senior Citizen Dies After Getting Stabbed 27 Times
+-  LPG Gas E-KYC:गैस उपभोक्ताओं के लिए बड़ी खबर! इस दिन तक करा लें e-KYC, नहीं तो बंद हो जाएगी सब्सिडी
+-  Virginia Man whose House Exploded had History of Rambling Lawsuits
+-  Celebrating the highs, reflecting on the lows
+-  Casa de Sarita: Transformando vidas e se tornando referência estadual em atendimento
+-  ED Raid Lawrence Bishnoi | ਲੌਰੈਂਸ ਬਿਸ਼ਨੋਈ ਦੇ ਨਜ਼ਦੀਕੀ ਦੇ 13 ਟਿਕਾਣਿਆਂ 'ਤੇ ਛਾਪੇਮਾਰੀ
+-  VN-gezant ziet geen rechtvaardiging voor Israëls bloedbad in Gaza
+-  Thapalathy 68: 18 ஆண்டுகளுக்கு பிறகு விஜய்யுடன் மீண்டும் இணையும் ‘பிக்பாஸ்’ பிரபலம் - ரசிகர்கள் மகிழ்ச்சி
+-  3분기 산업별 대출금 1875조…전분기 대비 32조원 늘었다
+-  22 il için sarı ve turuncu kodlu uyarı verildi! Bursa'da bugün hava nasıl olacak?
+-  Kabine bugün toplanıyor
+-  Optical Illusion: ओह तेरी! इस तस्वीर में एक मेंढक भी है, आपको नजर आया क्या?
+-  Leyendas de la Conmebol se enfrentan en un partido amistoso entre sonrisas y abrazos
+-  Menghapus Bahan Bakar Fosil Masuk Draf Kesepakatan Akhir KTT Iklim COP28 Dubai
+-  Pro Kabaddi 2023: விறுவிறுப்பான ப்ரோ கபடி... ஹரியானா ஸ்டீலர்ஸ் அணியை வீழ்த்தி வெற்றிக்கணக்கை தொடங்குமா யு.பி.யோத்தாஸ் அணி?
+-  Amritsar News: ਕੌਮ ਖ਼ਾਤਰ ਲੜਨ ਵਾਲੇ ਭਾਈ ਰਾਜੋਆਣਾ ਨੂੰ ਨਹੀਂ ਮਿਲ ਸਕਦੇ ਕਿਉਂਕਿ ਭਗਵੰਤ ਮਾਨ ਦੇ ਅਫਸਰਾਂ ਨੂੰ ਤਾਨਾਸ਼ਾਹੀ ਹੁਕਮ: ਮਜੀਠੀਆ
+-  Quintero cierra el año con colección de ropa, balance positivo y anhelando la Copa América
+-  “แอ่วกุมกามยามแลง” เรียนรู้ประวัติศาสตร์เวียงกุมกาม
+-  Israel revoca el visado de residencia a la coordinadora humanitaria de la ONU por su "parcialidad"
+-  Capecitabine Market Share And Size, Future Growth, Trends Evaluation, Demands, Regional Analysis and Forecast to 2032
+-  تراند اليوم : مسؤولة إسرائيلية تكشف عن سبب غريب جعل الرهائن التي أطلقت حماس سراحهم "سعداء" عند الإفراج عنهم
