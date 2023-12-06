@@ -1,51 +1,51 @@
 # Latest News
--  Operasi Pencarian Korban Erupsi Marapi Resmi Ditutup
--  아직 10대인데…뉴진스 '선넘은 악플'에 충격, 소속사 "상시 법적대응" [MD이슈]
--  '원조 요정' 핑클의 전설적 히트곡 '화이트'…폴킴이 리메이크했다→"정식 음원 발매" 깜짝 발표
--  "저기, 누구세요?"…'충격적 변화', 정말 박지성 맨유 동료 맞나요?
--  안은진, 안면마비+'연인' 부담감 고백 "도망가고 싶었다" [유퀴즈](종합)
--  Flow King Stone at 2023 Pimpinese Night
--  Vanaf vrijdag 30 kilometer per uur in bijna heel Amsterdam, maar niet vanwege het milieu
--  Three vehicle crash creates bottleneck for Cancun drivers
--  Politicians, not the church, are the major problem in Nigeria – Apostle Bamilaw
--  SuperCom Secures New USA Electronic Monitoring Contract for its PureOne and Domestic Violence Solutions
--  SMArtX Advisory Solutions Adds 19 Strategies to Its Manager Marketplace
--  AAA® Launches New AAAi Lab Offering Products, Education, Guidance & News Resources
--  PayPal Names Suzan Kereere as President of Global Markets
--  تطورات حالة الطقس في الأردن الخميس
--  اتحاد الكرة يعلن عن حكام مباريات الأسبوع التاسع من دوري المحترفين
--  الكويت.. ولي العهد يوقف التعيين والترقية بجميع أجهزة الدولة لمدة 3 أشهر
--  سوريا تعيّن سفيرها في السعودية
--  بايرن ميونخ يعلن أولى صفقات الموسم المقبل
--  الاتحاد القطري ينفصل عن كيروش قبل شهر من كأس آسيا
--  القسام تقصف بئر السبع
--  Keitimąsi dovanomis palengvina skaitmeninės platformos: kaip šiemet vardus traukti išmaniai?
--  Tejlor Svift je Tajmova ličnost godine
--  Malá "špeciálna" komplikácia je preč. Lada Niva Legend a Travel opäť s ABS i Euro5
--  11 Questions About Jon Rahm’s Speculated Move to LIV Golf Answered
--  Då kan du se försvarets julgransflygning
--  Cette Nvidia RTX 4060 Ti vous fait gagner de la place dans le PC
--  Launch trailert kapott az Arizona Sunshine 2
--  „Tajm“: Lionel Mesi sportista godine
--  Focused Sun annonce deux solutions d'énergie solaire révolutionnaires
--  ഖത്തര്‍ സംസ്‌കൃതി ഓപ്പണ്‍ കാരംസ് ടൂര്‍ണമെന്റ് സംഘടിപ്പിച്ചു
--  Kremlchef bringt „Bluthund“ mit: Flugshow, Fahnenmeer und Freundschaft bei Putin-Party in Abu Dhabi
--  Polscy nastolatkowie są "opętani pełzaniem". Nowy trend absolutnym hitem na TikToku [WIDEO]
--  Atualização do software de sistema 11.02 está disponível para o PS4
--  Polat çiftinin el konulan araçları görüntülendi
--  11. Boğaziçi Film Festivali biletleri satışta!
--  Süper Lig yayın geliri, Avrupa'nın ilk 10 ligi ortalamasından 7 kat düşük
--  İYİ Parti bir vekilini daha kaybetti! Yanıkömeroğlu partisinden istifa etti
--  Cumhurbaşkanı Erdoğan, Caparov'un doğum gününü kutladı
--  بريطانيا تحذر السفن من طائرة حوثية مسيرة غربي ميناء الحديدة
--  Gründau: Einbrüche in Gartenhütten und Garagen in Niedergründau und Rothenbergen
--  Милена Милотинова бе сред говорителите на конференцията „Западни Балкани“
--  Poder Judicial dicta 5 meses de prisión preventiva contra detenidos en Pataz
--  (VIDEO/FOTO) Dan OŠ "Oktoih": Uskoro gradnja novog paviljona
--  Netflix Top 10: beliebte Serien und Filme in Deutschland am Mittwoch, 06.12.2023
--  Netflix Top 10: beliebte Serien und Filme in Deutschland am Mittwoch, 06.12.2023
--  비대면진료 확대에 의료계 거부 선언 "시범사업 폐기하라"
--  Aymeric Bonnery (Secret Story) est papa pour la première fois : il dévoile un cliché et le prénom du bébé !
--  পোশাকশিল্প খারাপ সময় পার করছে: বিজিএমইএ
--  Sports Minister Congratulates Super Falcons On WAFCON 2024 Qualification
--  "Le problème de Laurent Ruquier..." : Thierry Ardisson flingue les audiences de l'animateur de BFMTV
+-  BM: Gazze Şeridi’nin tamamı dünyanın en tehlikeli yerlerinden biri haline geldi
+-  Dışişleri'nden İsrail'e 'yasadışı yerleşim' tepkisi: Kabul edilemez
+-  Kurtlar 65 koyunu öldürdü: Sözleri yürek dağladı
+-  Terör devleti İsrail: ABD 200 kargo uçağıyla 10 bin tondan fazla askeri teçhizat gönderdi
+-  Çankırı'da üretilen kedi kumu 30 ülkeye ihraç ediliyor
+-  İstanbul Milletvekili Ayşe Sibel Yanıkömeroğlu İYİ Parti’den istifa etti
+-  TCMB Başkanı Erkan'dan önemli görüşme
+-  Erol Bulut'tan transfer itirafı: Bakasetas'ı istedim alınmadı
+-  TBMM Başkanı Kurtulmuş: İsrail Batı için büyük bir yük olmaya başlamıştır
+-  มูฟออนนิยามซอฟต์พาวเวอร์!‘อุ๊งอิ๊ง’แจงยิบที่มางบ5,100ล้าน ปัดสงกรานต์ไม่ใช่สาดน้ำทั้งเดือน
+-  ยืนยันจัดแน่'ฟุตบอลประเพณีจุฬาฯ-ธรรมศาสตร์'30 มี.ค.67ที่สนามศุภชลาศัย
+-  做“想干事、能干事、干成事”的年轻干部
+-  长沙这个乐器展览会后天开幕，各色乐器等你来赏购
+-  宪法之光｜让立法工作走入寻常百姓家
+-  酸菜鱼、魔芋爽......这些大陆美食怎么就在台湾火了？
+-  好评之光，映射青春绚丽之花
+-  小孩大人轮番“感冒”? 这份健康手册请收好
+-  人民论坛网评 | 主题教育当与“实”俱进
+-  儿科就诊量激增，分级诊疗如何落实？专家详解
+-  新华全媒+丨咳嗽不用管，扛一扛就能好吗？
+-  【理响中国】伟大建党精神在新征程中的时代意蕴
+-  万人说新疆|极速飞驰的古老毛皮滑雪板
+-  万人说新疆|搬出“棚户区”实现“安居梦”
+-  万人说新疆|教你成为放骆驼高手
+-  万人说新疆|巴合提别克和他镜头里的野生动物
+-  كأس الإتّحاد الإفريقي : دفعة معنوية للنادي الإفريقي قبل مواجهة ريفرز يونايتد
+-  ‘토트넘 중원에 싱크홀 생겼다’ 맨시티 뚱보 흑역사 계륵 MF 조준! ‘그런데 뉴캐슬 이길 수 있어?’
+-  Murat Övüç Dolmuşa Bindi: Hayat Çok Pahalı, Lüksten Kaçınmamız Lazım
+-  Bayern Munchen Umumkan Penandatanganan Pemain Timnas Spanyol Bryan Zaragoza dari Granada
+-  MSG says plans for London Sphere were “hijacked” by mayor Sadiq Khan
+-  Attacks in two Texas cities leave 6 dead, 3 wounded, including two cops: police
+-  Uyumadan önce ayaklara sürün. İşte mutlu olmanın formülü
+-  Masiwa wins Mr Mufakose Schools contest
+-  Todos os indicados ao Oscar de Melhor Direção da história
+-  डीएसपी म्यूचुअल फ़ंड ने डीएसपी निफ़्टी स्मॉलकैप 250 क्वालिटी 50 इंडेक्स फ़ंड लॉन्च किया
+-  Журнал Time объявил певицу Тейлор Свифт человеком года
+-  Motivele libidoului scăzut la femei. Cum îți poți crește apetitul sexual
+-  PoliMonagas frustró presunto hurto en antena de empresa de telefonía en Aguasay
+-  Nos blouses blanches effectuent une opération médicale inédite en Afrique et même en Europe…Bravo
+-  Mal Varlıklarına El Konulan Neslim Güngen Konuştu: "Alnımız Açık"
+-  India Sets Ambitious Agenda for Circular Economy at the CII 8th International Conference on Waste to Worth
+-  Acer Commits to Carbon Neutrality for Vero Laptop Line
+-  Siemens, PTC, Autodesk, and Dassault Systèmes Named Market Leaders in ABI Research's MCAD SaaS Solution Supplier Competitive Ranking
+-  Micro Medical Solutions Announces Completion of Enrollment in the STAND Pivotal Clinical Trial
+-  Focused Sun, 두 가지 혁신적인 태양 에너지 솔루션 발표
+-  NDC Partnership, CFMCA과 기후 목표 강화 위한 전략적 협력 발표
+-  Intriguing Facts about Confucius
+-  Deloitte Named a Leader in 2023 Gartner® Magic Quadrant™ for Custom Software Development Services, Worldwide
+-  ABB Applauded by Frost & Sullivan for its Market-Leading Position in Emissions Monitoring
+-  ROMER WAIKĪKĪ AT THE AMBASSADOR INTRODUCES NEW NEIGHBORHOOD HOTEL CONCEPT ON OAHU
