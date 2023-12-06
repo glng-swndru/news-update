@@ -1,11 +1,51 @@
 # Latest News
+-  “연말 분위기 안나네” 제주 중소기업들 12월 경기전망 악화 전망
+-  불모의 땅 제주를 기회와 희망으로…JDC Route330 혁신 주도
+-  Itt a friss EF-lista: Magyarország a 17. helyet szerezte meg
+-  Some South Africans evacuated from Gaza face daunting reality of starting over
+-  KZN police investigating murder of DA chief whip in uMngeni, Nhlalayenza Ndlovu
+-  EFF's Malema calls for 'highest form of political tolerance' in KZN
+-  EFF slammed for turning Parly into a 'circus' as parties back suspension of MPs
+-  Q3 economic contraction sparks fears of looming technical recession in SA
+-  Global Ecamsule Market Forecast 2023-2028 Under Inflation
+-  Borsa İstanbul yükselişle açıldı
+-  İstanbul'da su kesintisi! İSKİ o ilçeleri duyurdu: Sular uzun süre gelmeyecek, önleminizi alın
+-  Activated Bleaching Earth Market worth $3.86 billion by 2030, growing at a CAGR of 5.58% - Exclusive Report by 360iResearch
+-  In-Season Tournament – le programme des demi-finales : Lakers – Pelicans et Bucks – Pacers
+-  제주 수산업계 “자금난 심화...경쟁력 강화 정책 필요”
+-  (2보)제주도-의회, 진통 끝에 예산 합의...511억원 감액-증액 조정
+-  Omvänd vinstvarning från Ossdsign efter storordrar
+-  À Vaulx-en-Velin, les enfants sont initiés aux maths très tôt dans leur scolarité
+-  38-year-old arrested in connection with burglaries and car theft
+-  Енергийната комисия решава дали дерогацията ще отпадне от 1 януари
+-  Interdiction de déplacement: "On est en train de payer le tribut de quelques supporters", déplore le président du groupe de supporters lyonnais "Rouge et Bleu"
+-  सैनामैनालाई लुम्बिनीसँग जोडेर विकास गर्न जोड
+-  Motorine indirim geliyor!
+-  여수경찰, 성폭력 2차피해 예방교육 사례별 토론식으로 전환
+-  홍익표 quot;이태원특별법, 12월 임시국회 첫 본회의에서 처리quot;
+-  이재명의 기본사회연구소 quot;장애인 시설 우선 이용권 보장해야quot;
+-  Jimmy Kimmel Exposes Republican Leader's Ugliest Hypocrisy Yet
+-  "LOTO DEVOJKA" NA MINIMALCU: Dobila rešenje o penziji i otkrila - "Laganica, pametno sam ulagala!"
+-  Global Double Block and Bleed Valves for Oil and Gas Market Forecast 2023-2028 Under Inflation
+-  Певец Шарлот обжаловал свой арест
+-  Checking drive in twin city by Commissionerate police ahead of New Year 2024
+-  Arteta avoids blame game after Raya’s off night in Arsenal thriller against Luton
+-  Белорусский рубль продолжает активно снижаться к доллару на открытии торгов на БВФБ
+-  Nieuw in Zwijndrecht: Kindcentrum Step by Step
+-  המוזיקאי דני ליין ("המודי בלוז", "ווינגס") הלך לעולמו בגיל 79
+-  מכבי תל אביב: "מסוג המשחקים שאם אתה מפסיד, זה מתנקם בך בסוף"
+-  הפועל פתח תקוה מודאגת מהפציעה של אבי ריקן מחמיאה לרוי נאווי
+-  היזמים שיחזרו מהמלחמה יקימו את היוניקורן הבא
+-  Nezaobíde sa bez nich žiadna gazdinka: Viete, na čo sa hodia a ako ich správne používať?
+-  Štrajk je ukončený! Hollywoodski herci ratifikovali dohodu so štúdiami
+-  Hlavné mesto spúšťa regulované parkovanie PAAS na Pokroku v Novom Meste
+-  Výnimočný festival pre všetkých a pre každého - Majáles Smižany!
+-  Hudobný svet v slzách! Zomrel slávny umelec, smúti aj Paul McCartney
+-  Chodník na Rainerovu chatu z Hrebienka ostáva cez zimu uzavretý
 -  दुई दिनमा ३ हजार २०० रुपैयाँले घट्यो सुनको मूल्य
 -  राष्ट्रिय जीवन बीमा कम्पनीले पायो रुपान्तरित कम्पनीको आधिकारिक प्रमाणपत्र
--  Cụ bà 60 tuổi ở Thái Bình lo lắng cầu cứu chuyên gia vì "bệnh" chỉ thích yêu trai trẻ
--  Xinhua Silk Road: Wuliangye, 공급망에 대한 국제 협력 추진
--  삼첩분식, 2023 코엑스 푸드위크 부스 약 5천명 인파로 붐벼
--  Kai Tin Shopping Centre Unveils Its New Wing with an Exciting New Look and New Shops
--  Jean-Matthieu Schertzer Named Chief Artificial Intelligence Officer of Untie Nots, Part of the Eagle Eye Group, to Usher in New Era of Retail Personalisation and Customer Centricity
--  콘진원, CJ ENM과 MOU…“한류행사와 연계, K-콘텐츠 경쟁력 강화”
--  Hogere rentes lokken Nederlandse spaarders naar buitenland
--  Meer jonge mannen zoeken contact met hulplijn om kindermisbruik
+-  여당 의원 앞 특강 나선 한동훈... "누가 봐도 띄우기 아니냐"
+-  Activated Alumina Market worth $1,410.77 million by 2030, growing at a CAGR of 5.44% - Exclusive Report by 360iResearch
+-  Landshypotek sänker listräntan på bolån med upp till 0,4 procentenheter
+-  La Real no quiere hacer grande al Andratx
+-  Deepcool Morpheus: Flexibler Display-Tower kennt drei System-Layouts
