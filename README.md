@@ -1,51 +1,51 @@
 # Latest News
--  একঝলক (৬ ডিসেম্বর ২০২৩)
--  창원LG 이재도 절정의 슛감으로 3연승 견인
--  NC 페디 시카고 화이트삭스와 총액 1500만 달러 계약
--  경남FC 박동혁 감독 선임 배경은?
--  Park-and-ride plan confirmed for major traffic bottleneck in Limerick
--  „Sportler des Jahres“: ZDF tauscht Gala-Moderation – Nachfolge für Müller-Hohenstein und Cerne klar
--  KBO MVP Fedde signs with White Sox: reports
--  Nat'l security advisers of S. Korea, US, Japan to meet in Seoul
--  KB Financial hosts HUB Day to foster startups
--  How to grow grapes – for healthy vines and great harvests
--  Гуржистонда ғойиб бўлган россиялик фаол Россия тергов изоляторидан топилди.
--  Мадуро Гайананинг бир қисмини Венесуэла провинцияси деб эълон қилди.
--  Навбат Хоразмга: қурол, гиёҳвандлик ва психотроп моддалар топилди, 3 киши қамоққа олинди.
--  Mikael Granlundista on kauppatavaraksi, Kings on ensimmäinen mestarisuosikki ja Devils ei kestä Dougie Hamiltonin loukkaantumista − NHL-viikon kuumat väitteet
--  ৭০ বছর বয়সে মা হয়েছেন এই নারী, চিকিৎসকেরা কী বলছেন
--  ঢাকা দক্ষিণ সিটির কেউ নন, তবু ব্যবহার করেন গাড়ি–অফিস
--  Muharrem İnce yeni mesajını açıkladı. İnce'nin 'ince' mesajının kodları çözülmeye çalışılıyor
--  Panicking Zimbos flood passport offices
--  Govt’s Quest To De-dollarise Is A Losing Battle
--  Spelinspektionen Weighs In on Sweden’s Proposed GGR Tax Adjustment
--  Setback to Crompton Greaves: CESTAT rules transformers constitute ‘Inputs’ in terms of Rule 2(k) of CCR [Read Order]
--  안동대, 수시모집 지원자 대상 총장님과 함께하는 미리캠퍼스 개최
--  „Fabian, das ist Rot, oder?: Homburger Ärger über St. Pauli-Foul
--  RTL stellt die neuen Bachelors vor: Doch die fallen bei den Zuschauern durch
--  Benefiz: Metzgerei Kremer's spendet 5.000 Euro für Kinder in Not
--  Klimawandel: Wenn das 1,5-Grad-Ziel scheitert – was dann?
--  الامارات | دراسة: نظام غذائي يحسّن صحة القلب ويخفّض الوزن خلال 8 أسابيع فقط!
--  [인터뷰] “일본에서 통한 기술력, 한국 시장 성공 확신한다”
--  [Cinéma] L’amour et le poids des secrets
--  Uzmanından çocuklardaki çarpıntılarla ilgili hayat kurtaran uyarılar
--  Сашо Кадиев отново се връща на екран, ще води новото шоу на bTV
--  Industrie Aéronautique : « Safran » renforce son partenariat stratégique avec le Maroc !
--  В Нацбанке Грузии сообщили о продаже 94 золотых слитков
--  الأردن يستورد 175 ألف تابلت بقيمة 16 مليون دينار حتى أيلول الماضي
--  المومني يحذر: تعديلات صندوق دعم الطالب "ستحرم الآلاف"
--  Lanz liefert sich Wortgefecht mit SPD-Chefin Esken und muss Kritik einstecken
--  Lanz liefert sich Wortgefecht mit SPD-Chefin Esken und muss Kritik einstecken
--  Глава Минобороны ФРГ "переобулся" в отношениях с Украиной, заявила Захарова
--  Schock-Werners Adventskalender: Das Poller Milchmädchen am Efeuplatz
--  Jerry Seinfeld to perform in S'pore for the first time on June 14, 2024
--  Klarer du denne ukas Glimt-quiz?
--  1- to 3-room HDB households can still redeem vouchers for climate-friendly appliances until March 2024
--  Żieda fl-akkużi għall-kaċċatur mixli li qatel fjammingu: Xhieda jgħidu li raw it-tajra tintlaqat u tispiċċa l-baħar
--  Gefährlicher Trend: Kinderärzte warnen vor Einschlafhilfe Melatonin
--  Грузию могут внести в список «дружественных туристических стран» для РФ
--  西5人制隊傳噩耗 球員頭部受傷去世
--  Crvena zvezda - Radnički Niš u sredu na TV B92
--  Kami terbuka bekerjasama dan profesional dengan Nana – Lan Solo
--  RAJNOCHŮV GLOSÁŘ: LFA to nezvládla, měla odložit celé kolo
--  TPCC prez Revanth Reddy to take over as Telangana Chief Minister on Dec 7
+-  "평생교육과 연계해 미디어 이해력 높이는 도내 기반 될 것"
+-  미디어 제작 최신 장비와 다양한 프로그램 마련
+-  ชวน นทท.ทำกระดาษสาจากใบเมล่อนที่วิสาหกิจชุมชนฉิมเมล่อนแหล่งท่องเที่ยวเชิงเกษตร
+-  Bajura mothers delivering babies on remote roads due to lack of access to maternal health services
+-  Alessio: "Juve, è come con Conte: la fame e la voglia di vincere sono le stesse”
+-  [회생법원, ‘파산절차 종료 전 채무자 면책’ 시범실시
+-  [산책 중 여성 풀숲 끌고 가 성폭행 시도…法 “징역 10년”
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [출산으로 아내 집 비우자 후배 성폭행·협박한 20대 기소
+-  十数人の生徒の体を不適切に触る 男性教師を懲戒解雇 広島県内の私立中高一貫校
+-  אושר כהן, "קופה ראשית" וליאור סושרד: הסרטונים הכי פופולריים ביוטיוב השנה
+-  האימפריה חוזרת? צביקה הדר מזמין וכוכבי שמש מתייצבים
+-  ‘손흥민과 황희찬의 PL 득점 전쟁’ TOP 5 포함! “대한민국은 무서운 화력을 보유하고 있다!”
+-  השר ברקת ממשיך לאיים: "לא אתמוך בתקציב ללא 250 מיליון שקל לעסקים ולפריפריה"
+-  הוא היה דיפלומט אמריקני עשרות שנים. כעת הוא נחשף כמרגל קובני
+-  Венгрия билан тиббиёт соҳасида ҳамкорлик алоқалари янада кенгаяди
+-  Turciei a propus la ONU să acționeze drept garant al încetării focului între Israel și Hamas în Gaza
+-  Danezii, uimiți de prăbușirea României la Mondialul de handbal: Declarația care arată cât de slab am jucat
+-  Fotoquiz EdeStad.nl: 'Hoe goed ken jij Ede?' (162)
+-  قمة التعاون الخليجي ترحب بالقوانين الانتخابية التي صدرت عن مجلسي النواب والأعلى للدولة ،وواصفت إياها بالخطوة الايجابية نحو اجراء الانتخابات .
+-  Bradley Beal de retour dans les 10 prochains jours ?
+-  Ibrahim Nasrallah, escritor palestino: “Si Isaac Rabin estuviera vivo, volverían a matarlo’”
+-  Cyclisme : Alaphilippe a bâti sa stratégie pour 2024 !
+-  Green Day announce new single ‘Dilemma’, coming this week
+-  Aydın Büyükşehir Belediye Başkanı Özlem Çerçioğlu kadına şiddeti önlemeye yönelik politika belgesini imzaladı
+-  강원농협 lsquo;결혼이민여성 1대 1 맞춤형 농업교육rsquo; 간담회
+-  2023 첨단바이오 분야 강원지역 대학 연합 사업화 유망기술 설명회
+-  강원남부주민(주), 상동 저소득가구 난방비 지원
+-  정선군, 대중교통 시책평가 우수기관 선정
+-  한동훈, 국민의힘 의총 참석해 존재감 과시hellip;'김건희 명품백'엔 quot;내용 몰라quot;
+-  의협 원장 '막말' 논란 quot;'소아과 오픈런', 젊은 엄마들 브런치 즐기기 위한 것quot;
+-  Regina Letizia, în centrul unui scandal amoros. Fostul cumnat pretinde că a avut o relație cu ea
+-  У черных дыр обнаружили неожиданное поведение
+-  ELEPHANTS DIE AS DROUGHT TAKES HOLD
+-  Lương thưởng giảm mạnh, tiêu thế nào để Tết vẫn vui?
+-  Jo Jung Suk And Shin Se Kyung’s Upcoming Historical Drama Confirms Premiere Date In New Poster
+-  Mustafa Denizli’nin kızı CHP’den aday adayı oldu
+-  هطولات مطرية في أغلب المحافظات أعلاها 35 مم في حمص
+-  Последнее пророчество Киссинджера о судьбе Израиля имеет все шансы сбыться
+-  Perturbation du ramassage scolaire dans le Nord en raison de la détérioration des bus
+-  Grøn Bazar i Viby-Hallen i Aarhus
+-  Media: EURO 2024 bez wielkiego gwiazdora. Sam o tym zdecydował, duża strata
+-  السعودية | ” سعود الطبية” تنهي معاناة مقيم خمسيني من انسداد الأمعاء بعد استئصال ورم سرطاني يزن 5 كجم
+-  السعودية | وزارة الموارد البشرية والتنمية الاجتماعية تستعرض جهودها في تعزيز ثقافة العمل التطوعي بين الأفراد والمجتمع
+-  السعودية | شركة الدرعية تكشف عن روزنامة ضخمة من الفعاليات الترفيهية والبرامج الثقافية لموسم الدرعية 2023 – 2024
+-  السعودية | القيادة تهنئ رئيس جمهورية فنلندا بذكرى استقلال بلاده
+-  استشاري في الغدد الصماء والسكري: المشروبات الشتوية المحلاة تسبب زيادة الوزن
+-  محلل سياسي أمريكي: غزة قد تكون سبب سقوط بايدن
+-  الإعلام الفلسطيني: 64 شهيدا و106 جرحى في خان يونس خلال يومين
