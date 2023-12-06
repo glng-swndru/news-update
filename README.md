@@ -1,51 +1,51 @@
 # Latest News
--  Kripto paralarda coşku! Bitcoin 1.3 milyon liraya yükseldi
--  Туркменистан приветствует наращивание эффективного взаимодействия с компаниями США – Президент Сердар Бердымухамедов
--  El insólito Congreso del que Argentina será sede en 2026
--  How do you identify AI-generated eBooks on Kindle Unlimited?
--  Josipa Lisac pjesmom opisala stanje na domaćoj glazbenoj sceni: ‘Ne volimo sebe, niti svoje. Urušili smo sve. Pali smo‘
--  Warga Pesisir dan Nelayan Diimbau Waspada Erupsi Gunung Anak Krakatau
--  جثة بنهر تستنفر السلطات
--  Joy Behar Announces New Tell All Book: ‘Everyone and Everything’
--  Åberg: ”Sex månader jag aldrig kommer glömma”
--  Animal Box Office Collection Day 5: Ranbir Kapoor Movie Set to Cross $53 Million Mark Globally
--  Yön uutiskooste | Niinistö isännöi viimeistä kertaa Linnan juhlia, köyhissä perheissä asuvien lasten osuus ennallaan, Putin vierailee Lähi-idässä
--  Bitcoin’s ‘jet-fuelled’ ride takes token past $44 000
--  번개장터, 중고 거래 앱 최초 ‘브랜드 랭킹’, ‘중고 시세’ 도입
--  [인사] 롯데쇼핑 백화점사업부
--  جيش الاحتلال يقر بمقتل جنديين إضافيين
--  زين تشغل شبكة الجيل الخامس وتطرح الخدمة تجاريا بالأردن
--  عشرات الشهداء في مجزرة جديدة بمخيم جباليا
--  أجواء باردة وغائمة في معظم مناطق الاردن
--  أم بطلة تضحي بحياتها لإنقاذ ابنتها من سمكة قرش
--  عقوبات أميركية على مستوطنين متطرفين
--  لأسنان ناصعة البياض…وصفات منزلية واقتصادية
--  This airline aims to fly electric plane by 2026
--  وفيات الأربعاء 6-12-2023
--  S&P’dan Türkiye ekonomisi değerlendirmesi
--  카페24, 구글 투자 소식에 상한가
--  "당신, 갈락티코 포기할 거야?"…'재계약 협상' 나선 감독, 레알 마드리드 회장이 직접 전화까지 했지만...
--  겨울 스키장에서 할인 받으려면? 하나·농협·BC카드 챙겨야
--  이무생(Lee Moo-Saeng), 차마에 빼고 다가진 '이무생로랑'!
--  비온후, 고유진·모세 등 보컬 천재들과 ‘크리스마스 캐롤’ 발매
--  [MD포토] 금새록, '아찔한 발걸음'
--  이영애 '스페이드 포즈 본 적 있어? 내가 최초야' [한혁승의 포톡]
--  김영재(Kim Young-Jae), 악상이... 떠오른다!
--  [MD포토] 노상현, '어색한(?) 미니하트'
--  [MD포토] 손정혁, '기분 좋은 미소'
--  [MD포토] 금새록-노상현-손정혁, '사랑스러운 삼각관계'
--  [MD포토] 사운드트랙 #2, '달달한 로맨스 드라마 기대하세요'
--  [MD포토] '사운드 트랙#2' 김희원-최정규 연출, '행복한 공동연출'
--  [MD포토] 금새록, '시선집중 발걸음'
--  [MD포토] 금새록, '부러질듯한 각선미'
--  '내년은 김해방문의 해' 대규모 국제행사 잇따라 개최
--  한전KDN, 상임감사에 김문호 전 호남대 교수
--  Felvételek bizonyítják: értékes amerikai páncélost zsákmányolt az orosz hadsereg
--  Žádná manipulace, tak se to stalo. Fotograf vidí přízračné okamžiky našich životů
--  اعتقال سارق سيارة “المينورسو” بالعيون
--  سرقة “طاكسي صغير” بمكناس
--  Andre Rosiade Usul Debat Bahasa Inggris, TPN Ganjar: Ini Bukan di Luar Negeri
--  Rezept-Revolution: Ab 2024 viele Medikamente wohl nur noch per E-Rezept
--  Izbornik nakon poraza Hrvatske na SP-u: ‘Bili smo nemoćni protiv njihove fizike‘
--  Danmark åbner en af verdens største insektfabrikker
--  Danmark åbner en af verdens største insektfabrikker
+-  मिचौंग साइक्लोन के चलते आज कई राज्यों में बारिश होने की उम्मीद
+-  Nigarın rəqsi maraqla qarşılandı
+-  Pharmacy sealed for illegally selling drugs
+-  Volunteerism: It is really about personal, professional development
+-  16th-Century Mask of Bhairava, other works returned to Nepal
+-  엔비디아 CEO "美 정부와 소통하며 中 수출용 칩 개발 중"
+-  Naprednjaci drže korak za Acom Rošavim: Koju ulogu na skupovima SNS imaju huligani?
+-  Naira continues recovery, strengthens against dollar to N806.73/$1 at official window
+-  Suomen muodostelmaluistelun kansainvälinen menestys vaatii kovaa keskinäistä kilpailua
+-  어느덧 창립 10주년 맞은 빗썸… 현재진행형인 가상자산거래소의 역사
+-  포항시·그립컴퍼니, 지역 농·수·특산물 라이브커머스 특별방송 진행
+-  영주시, ‘꿈의 오케스트라-영주’ 정기연주회 개최
+-  대한적십자봉사회 의성지구협의회 ‘사랑의 김장 나누기’ 봉사
+-  의성군, 경북도 2023년 경로당 행복선생님 사업 평가 '우수상'
+-  의성 안계중, AI교육 선도학교 4차 산업혁명 체험교육 진행
+-  대구대 장경국 교수, 2023 한국기초조형학회 최우수발표 논문상 수상
+-  의성 탑리여중, 세계시민 교육 일환 ‘공정무역 스타터 교육’ 진행
+-  안동시, 직장·시민·단체부문 ‘최고의 걷기왕’ 시상
+-  영천시, 2023 경상북도 중소기업대상 2개 부문 수상
+-  “Kazakhstan Week” takes place in the Korean province Jeollabuk-do
+-  Danmark vil have europæisk klimamål i 2040 på 90 procent
+-  Danmark vil have europæisk klimamål i 2040 på 90 procent
+-  Hertha BSC- Hamburger SV am Mittwoch, 6.12. live: So sehen Sie das Spiel im TV und Stream
+-  Ευρωβαρόμετρο: Επτά στους δέκα Έλληνες θεωρούν ότι η χώρα ωφελήθηκε από την ένταξη στην Ε.Ε.
+-  Copernicus: Το 2023 θα είναι «η πιο θερμή» χρονιά στην ιστορία, έκτο συνεχόμενο ρεκόρ τον Νοέμβριο
+-  محمود فوزي: الأقدار ساهمت في توسيع مدارك المصريين ليقدروا نعمة ما فعلته القيادة السياسية
+-  DFB-Pokal live: Stuttgart vs BVB im Livestream und TV sehen – alle Infos
+-  "보톡스 시술 효과 감소 경험, 74% 달해"···내성 발생 우려↑
+-  Klimatjeneste: 2023 bliver varmeste år nogensinde målt
+-  OM-OL : pas de supporters lyonnais, les Marseillais entre soulagement et déception
+-  Météo Côte d’Azur: un mercredi ensoleillé, jusqu'à 14°C à Nice
+-  കാലാവസ്ഥ ഉച്ചകോടി; 1200 പ്രതിദിന സർവീസുമായി ദുബായ് മെട്രോ
+-  Ein Hauch eines Weltmeisters: In David Odogu steckt auch etwas 1. FC Union
+-  Sunak Bilang Kecewa ke Netanyahu atas Serangan Terakhir Israel di Gaza
+-  RUU Daerah Khusus Jakarta: Ada Dewan Kawasan Aglomerasi, Dipimpin Wapres
+-  Top news developments in Karnataka on December 6, 2023
+-  Wetter-Schock! Akute Hochwassergefahr: Am Wochenende 15 Grad und mehr
+-  Felipe Baloy (i), técnico del Tauro, junto a Franklin Narváez del CAI
+-  Se cuelgan el bronce
+-  Inician vigilia por desaparición de joven en Veraguas
+-  Tenían 26 kilos de ‘pichi’ en edificio Penonomé, los dejan presos pero apelan
+-  Caen dos presuntos cabecillas de pandilla
+-  Este año el Minseg ha capturado a más de 15 mil personas por diversos delitos
+-  El sueño eterno
+-  Infidencias & confidencias
+-  Les lingettes désinfectantes vendues comme biodégradables bouchent en réalité les canalisations et les réseaux d'assainissement
+-  Vejret skaber problemer for bilister flere steder i landet
+-  Vejret skaber problemer for bilister flere steder i landet
+-  Украина дунёдаги энг ҳарбийлашган давлатга айланди.
+-  “Бахти Ташкентский” 15 суткага қамалди.
