@@ -1,51 +1,51 @@
 # Latest News
--  Odisha Cabinet Approves Utility Corridor Project At Gopalpur
--  India, UK Agree To Wrap Talks Before General Election 2024 Year Begins
--  MSME-centric Kolkata VDP Tackles Market Access Challenges
--  Antalya'da kayıp! Cemrenur'dan 24 saattir haber alınamıyor!
--  Yönetimin ziyaretleri sürüyor
--  Bana güvenenleri mahcup etmeyeceğim
--  Beşiktaş - Fenerbahçe derbisine sarı-lacivertli taraftarlar alınacak
--  על רקע הסערה הציבורית: חוק התקציב מגיע לכנסת
--  יעזור להציף את המנהרות? איש העסקים האמריקני שהציע סיוע לישראל
--  "אני לא יכולה להכיל את זה": מלכת היופי במיל' לא מצליחה לעצור את הדמעות
--  הסכם ממון: כמה יעלה למנצ'סטר יונייטד לפטר את טן האח?
--  מייה שם: "מתרגשת, אבל הלב נשאר חצוי"
--  "עלייה בביקושים ליעדים הבטוחים": זו רשימת המדינות הכי פחות מסוכנות לישראלים
--  סמוטריץ' דורש לדחות את הבחירות לרשויות המקומיות: "רוב המתמודדים שלנו גויסו"
--  טסתם עם ראינאייר או וויז בשנים האחרונות? יכול להיות שמגיע לכם פיצוי כספי
--  אנג'לינה ג'ולי על הדרמה הרפואית: "הגוף שלי מגיב רע מאוד ללחץ"
--  הרעה במצבם הבריאותי של המשוחררים: אחת השבות צפויה לעבור היום ניתוח
--  המחשבות על עתיד המדינה גוברות על הדאגות למשפחה: לוחם הצנחנים שהספיק להגיע מהחזית בדרום ללידת בתו
--  ארדואן מאיים: "ישראל תשלם מחיר כבד אם תנסה לחסל פעילי חמאס בטורקיה"
--  קנגורואים מנסים לרצוח כלבים – זו הסיבה
--  "נועם יעקב יכול להגיע ל-NBA": ג'יאנמרקו פוצקו בראיון מיוחד
--  צפו בתמונות: סצנת האיור מגיבה למלחמה עם עבודות מצמררות
--  דו"ח האקזיטים של PwC: נתונים קשים להייטק הישראלי
--  טרנד האוכל החדש שכובש את העולם: הכירו את מאפה הפיצה טורטייה המשפחתי
--  קריספי מבחוץ, נימוח מבפנים והכי טעים בעולם: ימי הלאטקעס כבר כאן
--  לרגל נר ראשון לחנוכה: מיזם התנדבות ענק ברחבי הארץ
--  מדהים: איבדה את הראיה במהלך המרתון – וקבעה קריטריון אולימפי
--  Konyaspor'da sakat isimler ne zaman dönecek?
--  לראשונה מחידוש הלחימה: טיל שוגר לעבר אילת, מערכת החץ ביצעה יירוט
--  Η κουμπαριά Ερντογάν με τον Κώστα Καραμανλή και η ιδιαίτερη σχέση με την Ντόρα Μπακογιάννη
--  华学健一行到惠农网走访考察
--  践行可持续发展，瑞好75周年重申企业价值观
--  安仁县：强化专业技能提升 筑牢建筑领域安全防线
--  湘江欢乐海洋“蔚蓝长沙星”地铁公益专列正式亮相
--  穿行翠云廊丨古木新生
--  亿缕阳光｜最美的守护
--  我国经济稳步恢复、持续向好 为物流业高质量发展提供重要支撑
--  推动促消费政策持续发力显效（市场漫步）
--  看见他，上一秒“哇哇大哭”，下一秒“娃娃大笑”
--  冬季呼吸道疾病防治热点解读之九 孩子有痰咳不出？中医专家示范三种排痰手法
--  各地多举措做好呼吸道疾病防治工作 优化诊疗服务 满足就医需求
--  匠心筑梦 技能展望｜移动应用新场景
--  飞阅中国｜瞰茶马古道 品千年茶香
--  专家谈 | 共建“一带一路” 下一个金色十年可期
--  凝心聚力 共谋发展——长沙市第三医院成功举办中层干部培训班
--  专访：“‘美丽中国’传递着积极愿景”——访联合国前副秘书长索尔海姆
--  聚焦世界媒体峰会丨顺应时代 全球人士畅谈传播力
--  收藏！关于中国，外国媒体“大咖”爱看这些书
--  通讯：中国电动车助力联合国气候大会
--  更多交流 更多包容 更多合作
+-  Shantykoor de Hoeksche Waard in Wijkcentrum Hart van Meerdervoort
+-  Meteorologe kündigt gefährliches Tauwetter in Baden-Württemberg an
+-  Justin Tucker: All-time field goal percentage record not on my mind right now
+-  Possible iPhone 16 Pro series design shown in renders
+-  Pasca-Covid-19, Keterampilan Matematika dan Membaca Menurun di Kalangan Remaja
+-  Europejski kraj ogłasza nową-starą epidemię. Będzie kłucie
+-  Херсон ўққа тутилиши ва Авдийивка атрофида давом этаётган жанглар. Уруш суратлари.
+-  Сурхондарё вилоятида 320 дан ортиқ Mobiuz таянч станциялари ишга туширилди.
+-  Pyydän anteeksi, Sauli Niinistö
+-  Sejumlah Kontroversi Ade Armando, Terbaru Singgung Politik Dinasti Yogyakarta
+-  8 Rekomendasi Film dan Serial Mendebarkan Terbaru di Netflix
+-  "Je veille au grain" : Mélanie Thierry se confie sans tabou sur l'éducation de ses enfants !
+-  Pitu Salvatierra: "Macri sabe que pierde la elección en Boca"
+-  Il n'y aura finalement pas de médecins déconventionnés dans ce cabinet médical du Perche
+-  Meet The First Malaysian Model To Walk For Louis Vuitton
+-  GZSZ-Vorschau vom 6. Dezember 2023: Lukas kommt mit einem blauen Auge nach Hause
+-  Kensington Thunderbolt 4 Docking Station
+-  マイナで5032件誤登録 行政指導
+-  Klimaaußenpolitik-Strategie beschlossen
+-  Zaboravljamo da ova kraljica vrta ima nevjerojatan učinak na naše tijelo - jedite je cijele godine!
+-  MSB: 8 terörist etkisiz hale getirildi!
+-  6 yıl hapis cezasıyla aranan PKK'lı tutuklandı!
+-  Formel 1: Star-Pilot unzufrieden – zieht der Vertragspoker einen großen Streit nach sich?
+-  عضو بمجلس الدولة: طاولة مفاوضات باتيلي ماتت قبل أن تولد
+-  Maurer, Rubey, Furtwängler u. v. m. in ORF-1-Premiere „Abenteuer Weihnachten – Familie kann nie groß genug sein“ am 8. Dezember
+-  МО: украинские войска за сутки потеряли более 800 военных в ходе СВО
+-  Диетолог рассказала, как ускорить метаболизм после 40 лет
+-  Pilpres 2024: Catat Janji Kampanye Anies-Cak Imin, Tambah Kuota Haji hingga Sahkan RUU Perampasan Aset
+-  California poultry processor fined $3.8 million for hiring, endangering children
+-  JBL не смогла убедить суд, что «Урал» скопировал её продукцию
+-  Wit Studio Will Adapt Part 3 of Ascendance of a Bookworm Light Novel
+-  Šire se lažne fotografije Lidije Bačić i Nives Celzijus: Oglasile su se pjevačice
+-  ITV Vera Christmas special sees return of terrific character
+-  Video/Foto: Dodik stigao u Sud BiH
+-  Podrška Dodiku: Organizacije i političari iz RS pred Sudom BiH
+-  Video: Indien: Heftige Überschwemmungen nach Tropensturm
+-  Copa América 2024: cuándo es el sorteo y cómo verlo en vivo
+-  Segja niðurstöðurnar ekki gagnast einstökum skólum
+-  Amazon slams Microsoft’s business practices in UK cloud market probe
+-  New special school announced for Kildare
+-  Microsoft begins shipping Surface Hub 3 in two screen sizes
+-  Montereau : une nouvelle auto-école a ouvert près de la gare
+-  Cep yakan doğalgaz faturasından tasarruf etmenin 10 yolu
+-  PODRŽAVAJU NASILJE! Hovenijer: Izbori na KiM ukoliko Kurti to dozvoli!
+-  Flugzeug deutlich beschädigt: Airbus A380 gerät in schwere Turbulenzen – mehrere Passagiere verletzt
+-  NATO'yu uyardı: Doğrudan çatışma riski artıyor
+-  Un altro autogol per Nothing: è stata trovata una vulnerabilità in CMF
+-  Junior doctors' latest strike dates send a message but gameplan is unclear
+-  'He doesn't want to face us': Boris Johnson arrives at dawn, avoiding Covid inquiry families
+-  'He doesn't want to face us': Boris Johnson arrives at dawn, avoiding Covid inquiry families
