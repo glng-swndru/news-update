@@ -1,51 +1,51 @@
 # Latest News
--  박근혜 전 대통령 "나라걱정 안한다는 얘기 들을 때 보람느껴"
--  대구광역시장애인체육회 지원단 지원단장 이취임식 및 송년의 밤 개최
--  Seçil Erzan'ın evinden çıkan paralar şaşkınlık yarattı
--  Kırmızı et sektörüne inceleme
--  MSB duyurdu: Hepsi öldürüldü
--  Güvercini ezen taksici tutuklandı
--  Borsa: Shanghai chiude a -0,11%, Shenzhen a +0,55%
--  Rare Anaconda Dies At Nandankanan In Bhubaneswar Following Illness
--  Die Zukunft von Datteln IV: In Leipzig steht eine Entscheidung an – Live vom Kraftwerk
--  스틸시리즈, ‘2023 Holiday Gift’ 프로모션 진행…”올 겨울 스틸시리즈와 함께 즐겁게”
--  유명 건설사 사칭 메일로 견적 요청 피싱공격 ‘주의보’
--  Prezzo settimana bianca sale alle stelle, +24% rispetto al 2022
--  There’s Frustration, mass resignation in public varsities –ASUU tells Tinubu
--  БУГУН: газеталарни варақлаганда...
--  Филиппинда автобус жарликка қулади, қурбонлар 25 киши
--  Сурхондарё маҳаллалари обод бўлмоқда
--  Вазир: иқтидорли ёшларни селекция қилиш ва спорт иншоотларидан самарали фойдаланишда сусткашлик кузатилди
--  British American Tobacco bestätigt Ausblick trotz Milliardenlast
--  Конституция байрами қомусий билимларни ошириш айёмига айланди
--  Çin ve Hindistan’ı etkileyen gizemli virüsle ilgili açıklama
--  Kulu'da yoğun sis etkili oldu
--  Konya'da firari FETÖ üyesi 3 kişi yakalandı
--  MSB: 3 terörist etkisiz hale getirildi
--  Masaj salonlarından çıkan silahlar pes dedirtti
--  Bu gece yarısı akaryakıt tabelası değişecek! Motorine indirim geliyor
--  Yürüyüşe katılan üniversite öğrencisine verilen kınama cezasına AYM 'ihlal' dedi
--  בתה של חנה קציר: "מצבה של אמא קשה, הוא הדרדר בגלל התנאים בשבי"
--  "הפגישה עם הקבינט הייתה כמו שוּק. לא ככה צריכה להיראות מדינת ישראל"
--  אדם אריאל: "בצהריים היינו בממ"ד, אני לא מאמין שבכלל שיחקנו כדורסל"
--  İsrail süni intellektin yeni sisteminə üz tutdu
--  JP Morgan Chase Unveils Financial And Capital Markets Outlook For 2024
--  Apple Hunts For New Suppliers In India, Japan, South Korea For Key iPhone Parts
--  ZestMoney To Shut Down By Year-end, Lay Off 150 Employees
--  Bihar Government To Host Two-Day Global Investors Summit To Transform Industrial Landscape
--  Apple Warns Following EU’s Charger Rule Will Hit India’s Local Production
--  [인천신용보증재단, 미래서비스와 업무협약 체결
--  [80대 노모 살해한 뒤 PC방서 춤췄다…50대 아들, 항소심도 징역 18년
--  [한미일 안보실장, 9일 서울 회의…美설리번·日아키바 방한
--  [‘살인까지 일어나는데’… 층간 소음 10건 중 7건은 전화상담에서 종료
--  [‘김동연 돌봄’ 출항
--  [필수의료 수가 올린다…지역의료 혁신에 재정지원
--  [10살 어려진 롯데 화학군 수장…‘실적 개선’, ‘신사업 안착’ 최대 과제 [비즈360]
--  [항공우주산학융합원, ‘일경험 프로그램’ 최우수상
--  [진실화해위 “활동기간 연장, 배보상법 추진”…낮은 진실규명률은 ‘숙제’
--  [먹고 나서 어지럽다고? 가리비·굴, 이렇게 먹으면 큰일 [식탐]
--  [“협력이 경쟁력”…현대엘리베이터, 노사정 상생 공동선언문 체결
--  [르·케·쉐 ‘중견 3사’도 프리미엄 카드 꺼낸다…고급화 잰걸음 [여車저車]
--  [BTS 뷔, 입대 앞두고 짧아진 머리 공개…"진짜 설렌다"
--  [페라리, 마라넬로 공장서 대규모 ‘라이트 쇼’ 개최
--  [하나·우리·경남은행, LH와 위기가구에 4억5000만원 기탁
+-  中 원플러스, '원플러스 12' 공개
+-  Rekabet Kurumu harekete geçti! Kırmızı et sektörü mercek altına alındı
+-  Meteoroloji'den 19 il için sarı ve turuncu kodlu uyarı: İşte il il hava durumu
+-  ABD ihracatının arz fazlası endişeleri arttırdı: Dört gündür düşüş sürüyor
+-  Süper Kupa finalinin biletleri satışta
+-  Yunan gazeteci Cumhurbaşkanı Erdoğan'a açıkça sordu: Bir gece ansızın gelecek misiniz?
+-  Убийци, изнасилвачи и сатанисти: 100-хилядната армия на Путин в Украйна
+-  מחקר טען כי היה מי שהרוויח מיליארדים מהמתקפה, ואז התבררה שגיאה דרמטית
+-  לנווט בין מוקדי הרצח: מפה אינטראקטיבית שמראה את אירועי ה-7 באוקטובר
+-  구리농수산물도매시장, 신규 중도매인 모집
+-  구리농수산물도매시장, 2024년 신년 휴업일 공지
+-  Рецепта на деня: Кюфтенца от шаран
+-  Wartość zapytań o kredyty mieszkaniowe wzrosła o 255,4 proc. w listopadzie rdr
+-  Zamówienia w niemieckim przemyśle zaskakują spadkiem
+-  Викат в парламента енергийния министър Румен Радев - Труд
+-  Ticketregen EK en PS voor parazwemmer Dorsman
+-  "독자들의 메마른 마음 밭을 갈아엎는 쟁기 역할"
+-  제주 삼화지구에 공공도서관 건립되나
+-  내 마음의 숲 ‘이수진 작품전’
+-  여성 독립운동가 서훈 추진, 제주 평화‧인권상 제정 필요
+-  ‘제주 돌문화 연구’ 주제 학술 심포지엄
+-  유행 시기 맞아 제주서 수두·볼거리 기승 '주의'
+-  구매 성향과 디드로효과
+-  가정폭력은 방치해선 안 되는 심각한 범죄다
+-  Nakon Nikolinine izjave, oglasio se i Miša Grof: ‘Pristat ću na to da joj dam bilo šta jedino ako skroz poludim‘
+-  행정개편 최적안 도출…아직 갈 길은 멀다
+-  고려사이버대 소프트웨어공학과 GIA팀, 대한민국 소프트웨어 대전 참가
+-  Fox News: Байден истощил стратегический запас нефти США до рекордного минимума
+-  كربلاء تحذر من دخول فسائل النخيل المصابة بحشرة سوسة النخيل الحمراء
+-  Χάρης Θεοχάρης: «Να σταματήσουν να είναι πολιτικοί αβανταδόροι της φοροδιαφυγής οι εκπρόσωποι της αντιπολίτευσης»
+-  Schnee und Eis in Deutschland: Bisher gibt es laut Autobahn GmbH keine Engpässe beim Streugut
+-  Arıcılık Kursu’nu tamamlayan 40 kursiyere sertifika hakkı
+-  Afinal, só 9.600 técnicos superiores do Estado dão salto salarial em janeiro
+-  울진군, 따뜻한 온기가 가득한 성금 모금의 날
+-  신한은행, 최고 연 4.5% 금리 '쓸수록 모이는 소비적금' 출시
+-  안성시, 비봉산 야생멧돼지 포획활동 실시
+-  전남도, 김영록 지사, “AI 역학조사 철저 등 확산 차단 총력”
+-  평창군시설관리공단 관리시설, “범죄예방 우수시설” 인증 받아
+-  곡성군-전남도시가스, 사회복지시설에 친환경가스기기 기증
+-  [2TV 생생정보 맛집] ‘콩비지감자탕’ 맛집
+-  화순군, 외국인근로자 숙소 등 빈대 취약 시설 선제적 방제
+-  7年ぶり新型「スイフト」 スズキ、脇見や居眠り警告
+-  海保、不明2人の捜索続行 米軍は遺体、残骸回収急ぐ
+-  世界初のフル電動クレーン公開 タダノ、CO2排出量削減に期待
+-  AI活用で排出削減10％可能 米グーグル分析、30年までに
+-  日ハム・山崎福「必死に腕振る」 移籍の決め手は熱意と縁
+-  大規模作戦、1月までに終了か 米分析、民間人犠牲増加で
+-  ロッテがコルデロ獲得 今季ヤンキースで3勝
+-  Digital India Act Improbable Before 2024’s General Elections: MoS IT Rajeev Chandrasekhar
+-  Gujarat Chief Minister Bhupendra Patel Unveils State-of-the-Art i-Hub Complex to Boost Student Start-ups
