@@ -1,51 +1,11 @@
 # Latest News
--  Life | Prince Harry in UK court battle over security
--  Education Cannot Wait Announces US$325,000 Grant to Support Survivors of Conflict-Related Sexual Violence Through Innovative Education Initiative
--  아마존, '2023 아마존 셀러 데이'에서 한국 셀러의 글로벌 진출 위한 새로운 전략 발표
--  TCL's Wei Xue Sheds Light on Effective Climate Action through Sustainable Development at COP28
--  국내 IT·데이터 분석전문가 70%…“데이터 기반 비즈니스 운영 난항”
--  Мчимся этим поездом!
--  Diretta Manchester United-Chelsea ore 21:15: dove vederla in tv, streaming e probabili formazioni
--  Jadwal dan Prediksi Starting XI Aston Vila Vs Manchester City
--  The Fed Masih Tahan Suku Bunga pada 2024, Ini Imbasnya Terhadap Rupiah
--  O Yollar Trafiğe Kapatıldı!
--  Skater und Biker mit Ideen gesucht: In Engelskirchen wird ein Skatepark gebaut
--  Cameroun :: Assassinat, Martinez Zogo:le Maire De La Commune De Bibey Convoqué Au Tribunal Militaire De Yaoundé :: Cameroon
--  Espagne :: Liga : Le Fc Barcelone Reçoit Girona Fc Surprenant Deuxième Du Championnat :: Spain
--  İzmir'de 41 düzensiz göçmen yakalandı
--  Sacha Boey yol ayrımında
--  Katar'dan 'Türkiye' açıklaması: 'Fırsat' diyerek duyurdular
--  Kabine bugün toplanacak: Asgari ücret zammı masada
--  Son depremler! Deprem mi oldu? 6 Aralık 2023 nerede, ne zaman deprem oldu?
--  Waterproofing Membranes Market to Exceed Valuation of US$ 43.0 Billion by 2031, Says TMR
--  경기도교육청, 청렴한 학교윤동부 운영 위한 맞춤형 연수
--  상품권 총 8억 5천만원 지급? 근로복지공단, ‘꼼수’ 임금인상
--  충남도, 모빌리티 혁신 5대 전략 마련
--  예산군, 황계·신대지구 및 예산읍 1단계 분류식 하수도 정비 준공
--  홍성군, 지방세 성실 납세자 홍성사랑상품권 지급
--  논산시, 시민 참여 온라인 이벤트
--  예산소방서, 어르신 소방안전문화 공모전 상장 전수
--  논산시, 新 농산물 공동 브랜드 적극 홍보
--  ‘홍성스카이타워’ 내년 2월 정식 개장
--  충북도, 귀농·귀촌인 초청 간담회
--  청양소방서, 반려동물 화재 예방 당부
--  충남도, 장항 국가습지 복원사업 예타 통과
--  최재구 예산군수, 2024년 시정 연설… 6대 역점 방향 제시
--  Topman farmaceut J&J: veel concurrentie op markt afslankpillen
--  El paso del ciclón Michaung por India se salda con 14 muertos
--  Prezident: "Biz suverenliyimizi bərpa edəndə gördük ki..."
--  Höhere Reichweite, fixeres Laden: Skoda Enyaq - mehr Power im neuen Jahr
--  Od dziś zaszczepisz się nowym wariantem szczepionki na covid
--  Asesinan a mujer policía en Tijuana, suman tres agentes ultimados en menos de 10 días
--  Integrated Facility Service Market Size, Growth, Forecast 2023-2029 (By Type, By application, By Company)
--  Oto najseksowniejsza piłkarka świata! Zobacz powalające zdjęcia. Internauci zachwyceni jej urodą. Oto Alisha Lehmann 6.12.2023
--  Τεράστιο «όχι» Αντώνη Κανάκη στον ΑΝΤ1
--  В Славянском районе правоохранители проводят проверку по факту ДТП с бензовозом и автобусом
--  Acetonitrile Market worth $457.34 million by 2030, growing at a CAGR of 5.65% - Exclusive Report by 360iResearch
--  Britney Spears dad Jamie Spears has leg amputated after bacterial infection
--  김두관 국회의원, 행안부·교육부 특별교부세 20여억 원 확보
--  Sports Management Software Market Size, Emerging Trends, Industry Growth and Forecast 2023-2028
--  Chief Minister Choices: 3 రాష్ట్రాల్లోనూ కొత్త వారికే అవకాశం,సీఎం అభ్యర్థిపై బీజేపీ మేధోమథనం
--  Demirtaş: ''Türk ırkçısı olsaydım soruşturma geçirmezdim''
--  Sizin enflasyonunuz..!
--  Phiên họp Chính phủ thường kỳ tháng 11: Thảo luận nhiều nội dung quan trọng
+-  The International Innovation Awards 2023 Honors 34 Remarkable Sustainable Innovations For Future Enterprises
+-  'नहीं, वह मुझे PM नहीं बनाएंगी', बेटी शर्मिष्ठा की किताब में प्रणब की डायरी के पन्ने... और सोनिया का जिक्र
+-  Elektroninės cigaretės, kaitinamasis tabakas ir net klimato kaita gali prisidėti prie plaučių vėžio vystymosi (Video)
+-  „Geras ginklas, bet...“ Ukrainos tankistai skelbia, kas nutiko su „Leopard“ tankais
+-  [ŽT] „Partijos, revoliucijos ir šalies labui.“ Ko apsiverkė Kim Jong-unas (Video)
+-  [ŽT] „Rusija beribė“. Ciniškas Putino akibrokštas Estijai
+-  Naujas technologijos žodis. IBM pristatė stebuklingą kompiuterį ir galingiausią procesorių pasaulyje (Video)
+-  [ŽT] „Padarysim iš tavęs normalų!“ Rusas Dagestane labai pasigailėjo savo šukuosenos (Video)
+-  Claudia, la educación y la salud
+-  Médicos
