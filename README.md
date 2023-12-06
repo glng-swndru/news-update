@@ -1,51 +1,51 @@
 # Latest News
--  Putin'in BAE yolculuğu sırasında dikkat çeken detay
--  Cumhurbaşkanlığı Kabinesi toplandı
--  "Ben bilirim" 1000. bölümü yayınlandı!
--  Pineda: Gazze'de gazeteciler özellikle hedef alınıyor
--  Davinson Sanchez: Kopenhag maçına her zaman olduğu gibi kazanmak için çıkacağız
--  Suspect caught in connection with dead woman found in Amsterdam river
--  Manfaat Bisnis dan Tujuannya yang Perlu Diketahui
--  Gibran Bagi-bagi Susu di CFD, Bawaslu DKI akan Panggil Semua Pihak yang Terlibat
--  مؤشر "الأسهم السعودية" يغلق مرتفعًا عند 11174 نقطة
--  "إسرائيل" تعلن إسقاط صاروخ في البحر الأحمر قبل استهداف إيلات
--  Ильхам Алиев: Должен быть легкий доступ из Азербайджана в Нахчыван, это наше законное право
--  Libur Nataru, Yogyakarta Targetkan Dulang 800 Ribu Wisatawan
--  السكرتير العام المساعد بأسوان يتابع جهود تحويل منطقة الصحابي لمجتمع عمراني نموذجي
--  مصدر بالنقل لـ الشروق: ارتفاع معدلات العمل في إنشاء محطات الخط الأول للقطار السريع
--  Ukraiņu nacgvarde iznīcina Krievijas jaunāko pretgaisa aizsardzības sistēmu "Vitjaz"
--  Ахмети: На 28 јануари ќе имаме премиер Албанец
--  Aircraft MRO Market Will Generate New Growth Opportunities in Upcoming Year 2030
--  CEO OpenAI: Sẵn sàng giúp đỡ các công ty khởi nghiệp về công nghệ ở Việt Nam
--  Dejó FGE ir 3 veces al asesino de maestra
--  'A pulir talento'
--  목 조른 정황도…'아내 둔기 살해' 변호사 구속
--  Woman described as ‘beautiful soul’ killed in east London shooting
--  HubSpot Consulting and Implementation Market to Witness Huge Growth by Key Players: SmartBug Media, SmartSites, CIENCE, Webdew, Girikon, Net Solutions, Iron Horse, Salted Stone
--  اتش سي تتوقع نمو الاقتصاد المصري بنسبة 4% خلال العام المالي الجاري
--  김정은·신지현·양인영·정예림 빅4 67점 합작, 하나원큐가 달라졌어요, 10G 4승이라니, 강력한 김정은 효과, 신한은행 4쿼터 1점 대참사
--  최성원 3점슛 6방, 먼로 트리플더블급 활약, 정관장 EASL 2승째, TNT 트로팡 기가 제압
--  “‘앤트맨3’ 배우가 말다툼 도중 머리 때려, 극단적 선택 위협” 전 여친 법정 증언 “충격”[해외이슈]
--  انتخابات الرئاسة.. مؤتمر شعبي لحزب مستقبل وطن بالشرقية لدعم المرشح عبدالفتاح السيسي
--  Gagal Pangkas Emisi, Ratusan Rumah Sakit Indonesia Berisiko Ditutup pada 2050
--  Tunisie : Le projet de la route du patrimoine mondial de l'UNESCO, lancé
--  Nacionālais teātris prezentē pirmizrādes un lojalitātes karti lētākām biļetēm un kūciņām
--  O que explica a falta de internet em uma a cada três casas de Blumenau nesta quarta-feira
--  Sidi Bou Said : Le chœur de chant spirituel poursuit un cinéaste en justice
--  Italië stapt uit Nieuwe Zijderoute van China
--  Europese Commissie wil autodeal met Verenigd Koninkrijk verlengen
--  OM eist 8 jaar cel en tbs tegen Vlijmense leraar in zedenzaak
--  Nieuwe Tweede Kamer geïnstalleerd, met 68 nieuwkomers
--  Lisa Paus: Familienministerium prüft weiteren Aufschub der Kindergrundsicherung
--  Alexandre Pires se trancou por mais de uma hora em cabine de navio durante operação da PF
--  Gewonde door steekincident in Ter Apel
--  ‘Perfect fit’: Jacques Nienaber on his decision for moving to Ireland
--  Hanukkah message of light in darkness feels uniquely relevant to US Jews amid war, antisemitism
--  السكرتير العام للبحيرة يتابع الاستعدادات النهائية بلجان الانتخابات الرئاسية في حوش عيسى
--  Opozícia chce, aby Generálna prokuratúra preverila postup Ministerstva zdravotníctva pri kategorizácii nemocníc
--  Spevák (46) slávnych hitov šokuje: Ide do dôchodku a chce slúžiť Bohu!
--  Zo zavalenej bane zachránili muža: Neveríte, koľko dní tam strávil!
--  Začala sa 6. schôdza: Poslancov čaká viacero zmien v zrýchlenom režime
--  Krajský súd potvrdil podmienku pre policajta: Pri streľbe na auto usmrtil mladíka
--  Sociálna poisťovňa stanovila aktuálnu dôchodkovú hodnotu: Takáto bude na rok 2024
--  Speváčka Ronie vzdala HOLD Barbare Haščákovej: Prespievala SEN… Dojme vás k slzám!
+-  TUI’nin kârı arttı borcu azaldı
+-  ‘বাঘের থাবা থেকে বাঁচলেও রাজী ফখরুলের থাবা থেকে বাঁচার ক্ষমতা নাই’
+-  Reuters: Brasil no ve riesgo de conflicto armado entre Guyana y Venezuela
+-  Konya'da aranan şahıs jandarmaya yakalandı
+-  Konya-Isparta kara yolunda takla atan otomobilde sürücü burnu bile kanamadan kurtuldu
+-  Partilerin 31 Mart yerel seçim adaylık takvimi belli oldu!
+-  Karapınar'da "Çat Kapı Sınıf Tiyatrosu" öğrencilerle buluştu
+-  Meram Futbol Turnuvası sona erdi
+-  Once bitten, twice shy... third time lucky! As Rufus Sewell, 56, confirms his engagement to Vivien Benitez, 27, a look back at the actor's extensive romantic history
+-  Margot Robbie Reveals Oppenheimer Producer Wanted Her To Move Barbie Release Date
+-  NCERT Does Not Differentiate Between 'India' and 'Bharat': MoS Education Tells Rajya Sabha
+-  Husband bound to pay 'mehr' whenever his wife demands: SC
+-  "Dao sam otkaz da bih igrao Football Manager. Sad zarađujem duplo" VIDEO
+-  سنی دیول نشے میں دھت مصروف سڑک پرنکل آئے، ویڈیو وائرل
+-  Nexus REIT's Green Success
+-  Elon Musk's ‘xAI’ To Raise Up To $1 Bn Equity Offering
+-  Cairn Oil & Gas Steps Up For Net Zero With Nature Solutions
+-  2023: The Year That Wasn’t
+-  Stocks Finish At Fresh Highs On Wednesday, Led By Energy, IT Shares
+-  Світоліна, Калініна, Цуренко та Костюк – у заявці на Australian Open-2024
+-  España obtiene la peor nota en pobreza infantil de la Unión Europea
+-  Mohun Bagan SG VS Odisha FC Football Match LIVE Score: MBSG vs OFC
+-  ‘Inaccurate’: Israel Stock Exchange Slams Paper Claiming Investors Profited from Oct 7 Attack
+-  Taylor Swift is named Time's 'Person of the Year' as she's lauded for being a 'master storyteller of the modern era'
+-  Taylor Swift is named Time's 'Person of the Year' as she's lauded for being a 'master storyteller of the modern era'
+-  Tényleg elkezdett fájni a Fed kamatemelése? Kijött a friss munkaerőpiaci adat
+-  Vize kalkınca Avrupalılar Çin’e akın etmeye başladı
+-  Andreas Mikkelsen tilbake i toppklassen i rally-VM: – Sykt deilig
+-  Вялікая Брытанія пашырыла санкцыі супраць Расеі. Яны закранулі і беларускае прадпрыемства
+-  NC woman charged with murder after 3-year-old son found 'lifeless' in her arms: Police
+-  XDefiant dev reveals “main” hurdle delaying launch but there’s good news
+-  Andreas Mikkelsen tilbake i toppklassen i rally-VM: – Sykt deilig
+-  IATA: Aerolinky čekají pro rok 2024 rekordní počty cestujících a rekordní tržby
+-  Hätten Sie‘s gedacht? Kleines europäisches Land ist das reichste Land der Welt
+-  전광훈에게 quot;간증 잘하네quot; 칭찬 들은 원희룡, 논란 일자 quot;정치 모임 아냐quot;
+-  Kaksi pakettiautoa suistui ojaan Vieremällä – toinen kuljettajista puhalsi hurjat lukemat Ouluntiellä
+-  quot;언론사 대표 집 압수수색한 검찰, 독재 회귀hellip;尹 심기경호 수사 중단하라quot;
+-  Jerz nie został otruty przez służby
+-  WoW Hunters get another major nerf in Season of Discovery
+-  Bundesregierung erwartet Einigung zum Bundeshaushalt 2024 noch in diesem Jahr
+-  [의학칼럼] 의학유전학 (Medical genetics)-4
+-  Microsoft Teams now accessible via virtual desktops
+-  Arvind Kejriwal: పథకాలు కాపీ కొట్టారు, అధికారం లాక్కోవాలని ప్రయత్నించారు.. బీజేపీపై కేజ్రీవాల్ విమర్శలు
+-  G.Saray Federasyon Başkanı'na Süre Verdi... Kulüpten İhraç Ediliyor
+-  جیا بچن میڈیا پر برس پڑیں، ویڈیو وائرل
+-  Újabb történelmi csúcs a német tőzsdén
+-  Roblox Underworld Realm codes for December 2023: Free Soul Orbs, Keys & XP
+-  Mesut Yar belediye başkan adayı mı oldu? Mesut Yar hangi partiden aday oldu?
+-  Ίντερ: Τράπεζα του Κατάρ εμφανίζεται ως πιθανός νέος ιδιοκτήτης
+-  Revealed: TikTok's top trends of 2023 - from men obsessing over the Roman Empire to women enjoying 'girl dinner'
