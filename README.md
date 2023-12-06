@@ -1,51 +1,51 @@
 # Latest News
--  BM: Gazze Şeridi’nin tamamı dünyanın en tehlikeli yerlerinden biri haline geldi
--  Dışişleri'nden İsrail'e 'yasadışı yerleşim' tepkisi: Kabul edilemez
--  Kurtlar 65 koyunu öldürdü: Sözleri yürek dağladı
--  Terör devleti İsrail: ABD 200 kargo uçağıyla 10 bin tondan fazla askeri teçhizat gönderdi
--  Çankırı'da üretilen kedi kumu 30 ülkeye ihraç ediliyor
--  İstanbul Milletvekili Ayşe Sibel Yanıkömeroğlu İYİ Parti’den istifa etti
--  TCMB Başkanı Erkan'dan önemli görüşme
--  Erol Bulut'tan transfer itirafı: Bakasetas'ı istedim alınmadı
--  TBMM Başkanı Kurtulmuş: İsrail Batı için büyük bir yük olmaya başlamıştır
--  มูฟออนนิยามซอฟต์พาวเวอร์!‘อุ๊งอิ๊ง’แจงยิบที่มางบ5,100ล้าน ปัดสงกรานต์ไม่ใช่สาดน้ำทั้งเดือน
--  ยืนยันจัดแน่'ฟุตบอลประเพณีจุฬาฯ-ธรรมศาสตร์'30 มี.ค.67ที่สนามศุภชลาศัย
--  做“想干事、能干事、干成事”的年轻干部
--  长沙这个乐器展览会后天开幕，各色乐器等你来赏购
--  宪法之光｜让立法工作走入寻常百姓家
--  酸菜鱼、魔芋爽......这些大陆美食怎么就在台湾火了？
--  好评之光，映射青春绚丽之花
--  小孩大人轮番“感冒”? 这份健康手册请收好
--  人民论坛网评 | 主题教育当与“实”俱进
--  儿科就诊量激增，分级诊疗如何落实？专家详解
--  新华全媒+丨咳嗽不用管，扛一扛就能好吗？
--  【理响中国】伟大建党精神在新征程中的时代意蕴
--  万人说新疆|极速飞驰的古老毛皮滑雪板
--  万人说新疆|搬出“棚户区”实现“安居梦”
--  万人说新疆|教你成为放骆驼高手
--  万人说新疆|巴合提别克和他镜头里的野生动物
--  كأس الإتّحاد الإفريقي : دفعة معنوية للنادي الإفريقي قبل مواجهة ريفرز يونايتد
--  ‘토트넘 중원에 싱크홀 생겼다’ 맨시티 뚱보 흑역사 계륵 MF 조준! ‘그런데 뉴캐슬 이길 수 있어?’
--  Murat Övüç Dolmuşa Bindi: Hayat Çok Pahalı, Lüksten Kaçınmamız Lazım
--  Bayern Munchen Umumkan Penandatanganan Pemain Timnas Spanyol Bryan Zaragoza dari Granada
--  MSG says plans for London Sphere were “hijacked” by mayor Sadiq Khan
--  Attacks in two Texas cities leave 6 dead, 3 wounded, including two cops: police
--  Uyumadan önce ayaklara sürün. İşte mutlu olmanın formülü
--  Masiwa wins Mr Mufakose Schools contest
--  Todos os indicados ao Oscar de Melhor Direção da história
--  डीएसपी म्यूचुअल फ़ंड ने डीएसपी निफ़्टी स्मॉलकैप 250 क्वालिटी 50 इंडेक्स फ़ंड लॉन्च किया
--  Журнал Time объявил певицу Тейлор Свифт человеком года
--  Motivele libidoului scăzut la femei. Cum îți poți crește apetitul sexual
--  PoliMonagas frustró presunto hurto en antena de empresa de telefonía en Aguasay
--  Nos blouses blanches effectuent une opération médicale inédite en Afrique et même en Europe…Bravo
--  Mal Varlıklarına El Konulan Neslim Güngen Konuştu: "Alnımız Açık"
--  India Sets Ambitious Agenda for Circular Economy at the CII 8th International Conference on Waste to Worth
--  Acer Commits to Carbon Neutrality for Vero Laptop Line
--  Siemens, PTC, Autodesk, and Dassault Systèmes Named Market Leaders in ABI Research's MCAD SaaS Solution Supplier Competitive Ranking
--  Micro Medical Solutions Announces Completion of Enrollment in the STAND Pivotal Clinical Trial
--  Focused Sun, 두 가지 혁신적인 태양 에너지 솔루션 발표
--  NDC Partnership, CFMCA과 기후 목표 강화 위한 전략적 협력 발표
--  Intriguing Facts about Confucius
--  Deloitte Named a Leader in 2023 Gartner® Magic Quadrant™ for Custom Software Development Services, Worldwide
--  ABB Applauded by Frost & Sullivan for its Market-Leading Position in Emissions Monitoring
--  ROMER WAIKĪKĪ AT THE AMBASSADOR INTRODUCES NEW NEIGHBORHOOD HOTEL CONCEPT ON OAHU
+-  Gam màu sáng - tối trong "bức tranh" kinh tế của tỉnh Quảng Trị
+-  Meet the darts Wags of the Cazoo World Championships, from an ex-walk-on girl to a teenage sweetheart
+-  Arsenal scout USA wonderkid dubbed ‘next Thomas Muller’ as Arteta looks to add goals in January transfer window
+-  NDC Partnership과 영국, 기후 금융 촉진 센터 출범
+-  Ben White interview after Arsenal’s win at Luton called ‘peak Ben White’ as fans say ‘Benny Blanco always cracks me up’
+-  47 vreemdelingen gevonden in vrachtwagen Hoek van Holland
+-  Al 10.000 ton aan wapentuig aan Israël geleverd sinds 11 oktober
+-  Laat ik voor mijzelf spreken, die Joods-christelijke traditie waar Wilders het over heeft is niet die van mij
+-  Nieuwe verhoudingen Kamer zichtbaar: PVV krijgt veel op agenda
+-  Drie weken cel en contactverbod voor bedreigen burgemeester
+-  Kaybolduğunda ya da çalındığında telefon nasıl takip edilir?
+-  Family sues Panera, saying its caffeinated lemonade led to Florida man’s cardiac arrest
+-  إطلاق عملية التسجيل للحصول على دعم إضافي لفائدة مهنيي النقل الطرقي
+-  البكوري: منظومة التعليم تئن تحت ضغط اللوبيات ونرفض بقاء التلاميذ خارج الأقسام
+-  Rhein bleibt gesperrt – SWR Aktuell
+-  의협, '철야시위'로 투쟁 시작… "의대증원 저지에 총력"
+-  Brčko: Vlada razmatra izvješće za procjenu štete od afričke svinjske kuge u iznosu 562.058 KM
+-  Potpisan Protokol između Vlade KS, Tužilaštva i NVO za borbu protiv nasilja u porodici
+-  Skupština HNŽ-a razmatra rebalans proračuna za 2023. godinu (VIDEO)
+-  Najave događaja za 7.12. 2023. godine (četvrtak)
+-  Fejzić: Pravnim putem tražim zaštitu svojih prava, vidjet ćemo šta će donijeti sudski epilog
+-  Na Sarajevskoj berzi promet 8.261 KM
+-  Promocijom poštanske marke, CBBiH i Pošte Srpske obilježile jubilej konvertibilne marke
+-  Putin doputovao u Abu Dhabi
+-  U BPK za projekte promocije zdravlja i prevenciju bolesti 24.000 KM
+-  Fudbaleri Tuzla Cityja nadigrali Širokobriježane
+-  Novogodišnja noć u Sarajevu uz 'Zabranjeno pušenje', 'Crvenu jabuku', 'Bombaj štampu' i Laku
+-  FMRSP - Pušteni nalozi za isplate naknada u FBiH
+-  Održan okrugli sto o osnaživanju hraniteljskih porodica sa područja TK
+-  Istraživanje - Više od 70 posto građana EU vidi korist od članstva svoje zemlje u bloku
+-  Jačanje integriteta izbornog procesa u BiH prioritet u radu Centralne izborne komisije BiH
+-  Saopćenje za javnost NES BiH
+-  Иван Портних: Ще бъде ли спрян скандален проект в „Карантината“?
+-  Općina Stari Grad izdvojila 128.000 KM za obnovu fasade OŠ 'Edhem Mulabdić'
+-  Bayern Munchen Telikung Barcelona Dapatkan Winger Muda Bryan Zaragoza
+-  Nasabah UOB Indonesia bertambah 1 juta usai akuisisi Citi Indonesia
+-  Starting to menstruate before age 13 linked with diabetes, stroke risk: BMJ Study
+-  KO JE BILA JELENA ČVOROVIĆ Malo ko zna da je zbog njega upisala glumu, a upoznala ga je kada je imala 15 godina
+-  Παραληρούν οι οπαδοί του Παναθηναϊκού: Αυτοί είναι οι δύο παικταράδες που «ζαχαρώνει» ο Γιαννακόπουλος!
+-  Televizyon efsanesi Normal Lear 101 yaşında hayatını kaybetti
+-  Jevrejska opština: Olivera Zekić uvredila čitavu jevrejsku zajednicu, najgori period istorije koristi za zabavu
+-  Bất ngờ với sáng tạo của học sinh TP.HCM tại cuộc thi tàu ngầm
+-  İzmirli hekimler sağlık sisteminin ruhu için lokma döktürdü
+-  Klimakrise: Bundesregierung beschließt „umfassendste Strategie der Welt“ für die Klimaaußenpolitik
+-  Tykkikiri kantoi tamman karsintavoittoon Vermossa – "Voitto oli tosi helppo ja ylivoimainen"
+-  NEW: Michael Mags releases new video
+-  Pemkab dan Baznas Kabupaten Lombok Salurkan Bantuan Palestina Rp 1,8 M Melalui Baznas RI
+-  ABŞ-dən hərbi texnika daşıyan 200-cü yük təyyarəsi İsrailə çatıb
+-  Inician mañana actividades para personas con discapacidad
+-  Espera Santuario 31 peregrinaciones
