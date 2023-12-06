@@ -1,51 +1,51 @@
 # Latest News
--  AVISO – Pressekonferenz zum Österreichischen Impftag 2024 am 13. Dezember 2023
--  Parly not ready for independent candidates to participate in House - Steenhuisen
--  Didiza concerned about negative impact of Botswana food imports restrictions
--  Kirsten Kluyts murder: Accused claims he was 'beaten brutally' by police
--  As Langa marks 100 years of existence, community seeks better development
--  Efforts to clamp down on illegal power connections paying off - COCT
--  Durban police seize R151m worth of cocaine hidden in meat boxes at harbour
--  4 حقائق مهمة عن جمهور الاهلي هذا الموسم
--  فلسطين النيابية: حل الدولتين لم يعد موجودًا
--  الاحتلال يحاصر مستشفى كمال عدوان
--  العفو العام يعود على طاولة النواب
--  DPM Shrestha undergoes angioplasty surgery, health condition normal
--  Police arrest gold trader from Kathmandu with illegal gold
--  Heavy fighting across Gaza halts most aid delivery, leaves civilians with few places to seek safety
--  Kırmızı bültenle aranıyordu! Bakan Yerlikaya duyurdu: Shaun Monaghan yakalandı
--  Antalya’da ilk 11 ayda turist rekoru
--  Ünlü Twitch yayıncısı Pqueen'den üzen haber!
--  Ankara'da feci kaza
--  Reiselust und höhere Preise bescheren Tui Rekordumsatz
--  Dax weiter auf Rekordjagd - Merck trübt das Bild
--  Heftige Kämpfe im Süden Gazas dauern an
--  Krieg gegen die Ukraine: So ist die Lage
--  Prien zu Pisa-Debakel: "Dringender Handlungsbedarf
--  Wirbel um Untersuchung gegen Mercedes-Teamchef
--  Geringes Plus bei Reallöhnen in Sachsen
--  Polizei sucht jetzt mit Großaufgebot nach vermisstem Mann aus Rochsburg
--  Haushalt wird nicht in regulärer Kabinettssitzung beraten
--  Stromausfall in Plauen: Fast 2000 Haushalte ohne Strom
--  Weihnachtsmarkt in Mittweida 2023: Was es zu essen und zu trinken gibt
--  Zwickau: Rollator einer Seniorin gestohlen
--  Coppa Italia, Parma a viso aperto contro la Fiorentina: quote e pronostico
--  Warzone: tutto sulla nuova mappa e la Stagione 1 di Call of Duty Modern Warfare 3
--  Europa League, il pronostico di Villarreal-Maccabi Haifa
--  Andrea Agnelli compie 48 anni, post social e auguri Juve diventano virali
--  Lo rủi ro nợ và bất động sản, Moody's hạ triển vọng tín nhiệm của Trung Quốc
--  Ducati, Martin e il rimpianto Indonesia: “Fa ancora male”
--  Dubioser Goldhändler von Polizei und Finanzpolizei überführt
--  5 أسماء مقترحة لتعويض رحيل فوفانا عن النصر
--  Ex-senior prosecutor tapped as new broadcasting watchdog chief
--  YG Entertainment's stock price soars over renewed contract with BLACKPINK
--  TvN's upcoming music drama 'Maestra' weaves suspenseful love story with twists
--  Lotte's heir apparent moves to tighten grip on group
--  LTI Korea honors excellence in literary translation
--  Global space leaders gather in Korea to discuss space exploration roadmap
--  Real estate project financing poses biggest risk to Korean economy in 2024: S&P, NICE
--  Real estate risks set to hit brokerages in 1st half of next year
--  AKTUÁLNE Vodiči, POZOR! TOTO je veľká ZMENA pre DESAŤTISÍCE Slovákov: Kto to nedodrží, POKUTA ho neminie
--  FOTO AKTUÁLNY ONLINE Snehové PEKLO sa začalo! Autá v priekope, NEHODY, šmýka sa: Doprava KOLABUJE, TU si dávajte POZOR
--  Masívna explózia! Muž najprv strieľal na policajtov, potom jeho dom vybuchol
--  Bakan Şimşek'ten dış finansman açıklaması
+-  Clamoroso in F1, FIA apre un’indagine su Toto Wolff: ufficiale. Il motivo
+-  Juve di Allegri come quella di Conte: analogie e qualità per ribaltare i valori
+-  Ciro Immobile a Boomerissima: il retroscena e la confessione inedita
+-  [‘외교’에 ‘인사’까지…총선 앞둔 與 ‘험난한 12월’[이런정치]
+-  ["타행 대환은 중도상환수수료 면제 안된다"…앞에선 상생, 뒤에선 ‘고객 지키기’ 꼼수[머니뭐니]
+-  [여수산단 석유화학 공정혁신 시뮬레이션 센터 개소
+-  [인요한 만난 김기현 “혁신안 존중해 녹인 결과물 만들 것”
+-  [아이폰15 역풍이 삼성 파운드리까지…TSMC와 격차 다시 확대 [비즈360]
+-  [[속보] 인요한 “김기현 대표의 희생·혁신 의지 확인”
+-  A contrarreloj, dictaminarán presupuesto; días estratégicos
+-  INE pide garantizar seguridad proceso electoral
+-  Salomón Chertorivski: MC apuesta por jóvenes; rumbo a 2024
+-  Premian a Geoparque Mixteca en Oaxaca
+-  Proteger derechos del empleado ante la IA
+-  Nakuru embarks on the reduction of Non-Revenue Water Management losses
+-  Public encouraged to utilise Hustler Fund
+-  Nakuru is keen on transforming the Coffee Industry
+-  Lee Se-young, Sakaguchi Kentaro to star in Coupang Play’s ‘What Comes After Love’
+-  Prodej elektrických a spalovacích aut se v Češku vyrovná v roce 2032, věří Škoda
+-  İki çocuk annesi Fahriye Evcen mutluluğun sırrını verdi: Şefkatli bir yerden bakıyorum kendime!
+-  Olympique Lyon'a Taylor Swift engeli
+-  112 İstasyonu’nda gizli kamera skandalı! Şüpheli serbest bırakıldı
+-  TV-Quoten: DFB-Pokal-Spiel zwischen Wolfsburg und Gladbach weckt wenig Interesse
+-  Türkiye’de öğrencilerin fen becerisi arttı matematik ve okuma becerisi azaldı
+-  현대엘리베이터, 노사정 상생 공동선언문 체결
+-  효성, 연말 지역사회 나눔…김장김치에 성금도 전달
+-  포스코 '판타스틸' 대한민국광고대상 금상
+-  신세계인터, 택배 포장재 3분의 1 감축
+-  [속보] 김기현, 인요한에 "지도부 혁신 의지 믿고 맡겨달라"
+-  [속보] 인요한 "김기현 대표의 희생·혁신 의지 확인"
+-  İsrail destekçisi şirketlere boykot! Starbucks 20 günde 11 milyar dolar kaybetti...
+-  Meral Akşener isim vermeden Ekrem İmamoğlu'nu eleştirdi: Cakarta'nın kaosuna mahkum ediyorlar
+-  Bâtiment : Pierre Martin, nouveau président de la FFB Gard, appelle à l'union sacrée
+-  حاكم إقليم دارفور يختتم زيارته إلى تركيا
+-  Hoax bomb call triggers search at Jammu school, case filed
+-  Natalie Portman ist „offen“ für weiteren „Star Wars“-Film
+-  12 milioni di download per il malware Android SpyLoan dal Google Play Store
+-  Heimreise amerikanischer Gastschüler der FOS/BOS Weiden gleicht nervlicher Zerreißprobe
+-  Gemlik depremi hatırlattı! Kocaeli'de deprem riski en yüksek ilçeler tek tek açıklandı! İşte en riskli ilçeler...
+-  Ceres Bus Liner, sinuspende ng LTFRB matapos mahulog sa bangin ang isa nitong bus sa Antique
+-  TV360 Acquires Exclusive Broadcasting Rights For Euro 2024
+-  Konya Tropikal Kelebek Bahçesi, 30 bin kelebek ile Şebiarus için süslendi
+-  Takijev automobil u potpunosti UGLJENISAN I UNIŠTEN: Dramatične scene odigrale su se tokom jutra – Majin otac na meti
+-  Mesnevi'nin tıpkıbasımı Vuslat'ın 750. yılında Mevlana dostlarıyla buluşuyor
+-  Fans in disbelief as BBC TV star spotted on Luton’s bench against Arsenal after being appointed club doctor
+-  潘頓夫婦慶祝結婚十一周年
+-  Sitelerde aidatların belirleneceği genel kurul dönemi başlıyor..
+-  Kosam, Bölgesel Ve Sektörel Asgari Ücret Çalışmalarını Kamuoyuyla Paylaştı
+-  Schwimmkurs in Tirschenreuth mit sechs Seepferdchen-Abzeichen abgeschlossen
+-  Araç sahiplerine sevindiren haber: İndirim geliyor
