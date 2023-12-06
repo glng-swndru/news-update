@@ -1,51 +1,11 @@
 # Latest News
--  신세계인터, 택배 포장재 감축 "연간 종이 267톤 절감효과"
--  고대구로병원, 홍보대사 김은중 감독 투병환아 위로
--  라이프시맨틱스 송승재 대표, '국회의장 공로장' 수상
--  은평성모병원, 무릎 인공관절 치환술 3000례 달성
--  고대안산병원 엄영섭 교수, 안과학회 '태준 안과논문 우수상' 수상
--  "이번 '마이코플라즈마 폐렴', 항생제 내성 강해"
--  Premier Speaks At ‘Island Of Hope’ Event
--  경남에너지, lsquo;제1기 소비자패널 해단식rsquo;
--  창녕군, 공무원 적극행정 공유 보고회 가져
--  하동 옥종딸기 도내처음 미국 수출길 올라
--  Taj wins the ‘World's Finest Luxury Grand Palaces’ award at ‘101 Best Executive Summit in Germany
--  Чемпион мира рассказал о неожиданном поступке Гвардиолы
--  Jarang Diketahui, 6 Manfaat Minum Air Es Bagi Kesehatan
--  Keffiyeh Lari Manis di AS, Meski Pemakainya Terancam Pelecehan
--  Mercedes-AMG G63 getting sports car suspension tech - report
--  Jalkapallo | Lionel Messi on Time-lehden vuoden urheilija
--  이마트, 베트남 3호점 오픈…"동남아 시장 공략 허브"
--  צה"ל הביע צער על פגיעה בחיילי צבא לבנון בצפון; גורמים אמריקניים - התמרון בדרום הרצועה יימשך עד ינואר
--  Expertos consideran que el referendo por el Esequibo no tiene carácter vinculante, aunque el chavismo insiste en lo contrario
--  [북유럽 감성 디자인, 성능·실용성 다잡은 ‘펀카’ [김성우의 시승기]
--  [‘천정부지’ 비트코인 6000만원 돌파...올해 166% 급등
--  [“조개구이·회 먹으러 을왕리 자주 갔는데”…미신고 영업장 무더기 적발
--  [“사지도 않으면서 처 물어보기는”…소래포구 어시장, 이번엔 선넘은 막말
--  [유유제약, 일반의약품 ‘e-커머스’ 본격화
--  [‘사건 브로커’ 연루 의혹 현직 치안감 압수수색
--  [사상 최고치 찍은 금값에 ‘金테크’ 바람 부나
--  [SH공사 첫 지속가능경영보고서 발간 추진
--  [‘리모델링한다’ 하면 집이 안팔린다
--  [남산뷰 위해 한남 5구역 아파트 동수 축소
--  [“양질 소형주택 오피스텔, 세제·건축기준 정비해야”
--  [한화건설 ‘한화 포레나 제주에듀시티’ 분양중
--  [호가보다 2억 낮은 신반포르엘 보류지 유찰
--  [‘민-관’ 디지털 인재양성 생태계 구축 총력전
--  [정기선의 AI건설 신무기 ‘사이트와이즈’
--  [SK온 ‘새 수장’에 이석희 전 SK하이닉스 대표 유력
--  [첫선 보인 현대차 ‘더 뉴 투싼’ 2771만원부터
--  [포스코퓨처엠, 포항서도 양극재 양산
--  [미국서 친환경차 부품 3000억 수주…포스코인터, 글로벌 입지 확장 결실
--  [LS전선아시아, 해저·희토류 신사업 속도
--  [SK하이닉스 3분기 낸드 시장 2위 탈환
--  [한화-서울대, 신소재 공동연구센터 구축
--  [무디스 “中 성장률 3%대로 하향할 것”
--  [현대해상, 구세군에 성금 3억원 전달
--  [HD현대오일뱅크 ‘100일의 식집사’ 캠페인 성료
--  [OCI홀딩스, 솔라스쿨 프로젝트 300번째 대장정 마무리
--  [두산그룹, 이웃사랑 성금 20억원 기부
--  [입대 초읽기 BTS “후회 없는 좋은 결정...챕터2 기대된다”
--  [최태원 “한일경제협력체, EU같은 단일시장 모델로”
--  [이 탱크, 가자남부 칸 유니스서 시가전
--  [무협 ‘무역의 날 60주년’ 외국인 홍보대사 60명 위촉
+-  นักวิทย์ใช้ AI ทำนายการเกิดคลื่นยักษ์ ด้วยข้อมูลจากทุ่น 158 แห่งทั่วโลก
+-  Teachers, students in China advised to not go to school while ill
+-  Liz Cheney weighs third-party US presidential run, says Trump threatens democracy
+-  Twitch plans to shut down in Korea over high network costs
+-  Yoon names new chief of state broadcasting watchdog
+-  하태경 "이번 총선, 한동훈의 시간… 당에 빨리 와야"
+-  'DJ 3남' 김홍걸, 서울 강서갑 출마 선언… "강서 숙원 풀어낼 해결사 될 것"
+-  윤대통령, 방통위원장에 김홍일 권익위원장 지명
+-  이준석 "신당 지역구 출마 지원자, 870명 모여"
+-  우아한형제들, 2023년 동반성장주간 중기부 장관 표창 수상
