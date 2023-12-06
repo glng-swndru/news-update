@@ -1,11 +1,11 @@
 # Latest News
--  กกท. ร่วมแสดงความยินดีกับสาวจอมเตะทีมชาติไทย “เทนนิส”
--  優質單位有承接 將軍澳峻瀅靚裝特色2房戶560萬元易手 原業主持貨近4年 賬面蝕約119萬元離場
--  Erick Fedde agrees to White Sox deal after Mets expressed interest
--  Wednesday At Market: Adani Stocks On A High, IOC, BHEL Go Bullish
--  Kıdem tazminatı tavanı 2024’te ne olacak? İşte örnek hesaplamalar... 58 bin lira fark oluşuyor
--  Judge accused of assault 'struck, tracked' victim
--  FBI arrest man after domestic terror attack shootings
--  Wanita kahwin lambat kurang subur
--  Ertuğrul Özkök: Kudüs'ün fethi yakın mı yoksa uzaklaşıyor mu?
--  LIVE Război în Israel: SUA crede că ofensiva israeliană în Gaza ar putea dura până în ianuarie / Netanyahu: Singura modalitate de a termina rapid treaba este să zdrobim Hamas / Israelul revocă viza coordonatorului umanitar al ONU
+-  GTA 6 Trailer Skyrockets to 69.2 Million Views in 15 Hours
+-  Severe decline in drinking water quality since 2014
+-  Tierra Brava: Luis Mateucci desconoce a ‘La Chama’ y se confiesa aún enamorado de su ex
+-  Las páginas sobre ChatGPT, Oppenheimer y Messi, entre las más vistas de Wikipedia en 2023
+-  Prevratný objav: Vedci zrejme zistili, čo spôsobuje TINITUS! A takto by sa podľa nich mal dať liečiť
+-  Córka byłego wiceprezydenta USA chce wystartować w wyborach i zatrzymać Donalda Trumpa
+-  Raymond Group's Gautam Singhania, Estranged Wife Seek "Realistic" Divorce Settlement
+-  Marabu Féknyúz: Jár a csokimikulás!
+-  Berkontribusi dalam Layanan Psikologi, Perusahaan Ini Raih Penghargaan Bergengsi
+-  Porn during proceedings forces Karnataka High Court to suspend video conference
