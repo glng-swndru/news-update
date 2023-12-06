@@ -1,51 +1,51 @@
 # Latest News
+-  Life | Prince Harry in UK court battle over security
+-  Education Cannot Wait Announces US$325,000 Grant to Support Survivors of Conflict-Related Sexual Violence Through Innovative Education Initiative
+-  아마존, '2023 아마존 셀러 데이'에서 한국 셀러의 글로벌 진출 위한 새로운 전략 발표
+-  TCL's Wei Xue Sheds Light on Effective Climate Action through Sustainable Development at COP28
+-  국내 IT·데이터 분석전문가 70%…“데이터 기반 비즈니스 운영 난항”
+-  Мчимся этим поездом!
+-  Diretta Manchester United-Chelsea ore 21:15: dove vederla in tv, streaming e probabili formazioni
+-  Jadwal dan Prediksi Starting XI Aston Vila Vs Manchester City
+-  The Fed Masih Tahan Suku Bunga pada 2024, Ini Imbasnya Terhadap Rupiah
+-  O Yollar Trafiğe Kapatıldı!
+-  Skater und Biker mit Ideen gesucht: In Engelskirchen wird ein Skatepark gebaut
+-  Cameroun :: Assassinat, Martinez Zogo:le Maire De La Commune De Bibey Convoqué Au Tribunal Militaire De Yaoundé :: Cameroon
+-  Espagne :: Liga : Le Fc Barcelone Reçoit Girona Fc Surprenant Deuxième Du Championnat :: Spain
+-  İzmir'de 41 düzensiz göçmen yakalandı
+-  Sacha Boey yol ayrımında
+-  Katar'dan 'Türkiye' açıklaması: 'Fırsat' diyerek duyurdular
+-  Kabine bugün toplanacak: Asgari ücret zammı masada
+-  Son depremler! Deprem mi oldu? 6 Aralık 2023 nerede, ne zaman deprem oldu?
+-  Waterproofing Membranes Market to Exceed Valuation of US$ 43.0 Billion by 2031, Says TMR
+-  경기도교육청, 청렴한 학교윤동부 운영 위한 맞춤형 연수
+-  상품권 총 8억 5천만원 지급? 근로복지공단, ‘꼼수’ 임금인상
+-  충남도, 모빌리티 혁신 5대 전략 마련
+-  예산군, 황계·신대지구 및 예산읍 1단계 분류식 하수도 정비 준공
+-  홍성군, 지방세 성실 납세자 홍성사랑상품권 지급
+-  논산시, 시민 참여 온라인 이벤트
+-  예산소방서, 어르신 소방안전문화 공모전 상장 전수
+-  논산시, 新 농산물 공동 브랜드 적극 홍보
+-  ‘홍성스카이타워’ 내년 2월 정식 개장
+-  충북도, 귀농·귀촌인 초청 간담회
+-  청양소방서, 반려동물 화재 예방 당부
+-  충남도, 장항 국가습지 복원사업 예타 통과
+-  최재구 예산군수, 2024년 시정 연설… 6대 역점 방향 제시
+-  Topman farmaceut J&J: veel concurrentie op markt afslankpillen
+-  El paso del ciclón Michaung por India se salda con 14 muertos
+-  Prezident: "Biz suverenliyimizi bərpa edəndə gördük ki..."
+-  Höhere Reichweite, fixeres Laden: Skoda Enyaq - mehr Power im neuen Jahr
+-  Od dziś zaszczepisz się nowym wariantem szczepionki na covid
+-  Asesinan a mujer policía en Tijuana, suman tres agentes ultimados en menos de 10 días
+-  Integrated Facility Service Market Size, Growth, Forecast 2023-2029 (By Type, By application, By Company)
+-  Oto najseksowniejsza piłkarka świata! Zobacz powalające zdjęcia. Internauci zachwyceni jej urodą. Oto Alisha Lehmann 6.12.2023
+-  Τεράστιο «όχι» Αντώνη Κανάκη στον ΑΝΤ1
+-  В Славянском районе правоохранители проводят проверку по факту ДТП с бензовозом и автобусом
+-  Acetonitrile Market worth $457.34 million by 2030, growing at a CAGR of 5.65% - Exclusive Report by 360iResearch
+-  Britney Spears dad Jamie Spears has leg amputated after bacterial infection
 -  김두관 국회의원, 행안부·교육부 특별교부세 20여억 원 확보
+-  Sports Management Software Market Size, Emerging Trends, Industry Growth and Forecast 2023-2028
 -  Chief Minister Choices: 3 రాష్ట్రాల్లోనూ కొత్త వారికే అవకాశం,సీఎం అభ్యర్థిపై బీజేపీ మేధోమథనం
+-  Demirtaş: ''Türk ırkçısı olsaydım soruşturma geçirmezdim''
+-  Sizin enflasyonunuz..!
 -  Phiên họp Chính phủ thường kỳ tháng 11: Thảo luận nhiều nội dung quan trọng
--  Sports bodies ask IOC to allow Russians as neutrals for 2024 Olympics
--  올해 마약사범 2만명 넘어 '역대 최다'… 20대 이하 34% 차지
--  [속보] 법원"아이폰 사용자에 7만원 배상"… 고의 '성능저하’ 일부 인정
--  골드만삭스 “내년 코스피 2,800선 도달”… 수출 호조에 ‘비중확대’ 제시
--  Danas oko 17 časova stiže neverovatan preokret! Mesec ulazi u Vagu - 3 znaka neka se spreme
--  홍천군 송전탑 반대 대책위 “홍천군에 단 한 개의 송전탑도 세울 수 없다"
--  강원이주여성상담소, 7일 이주여성가정폭력 실태 현황 및 제도개선 방안 토론회
--  철원DMZ마켓 운영협의회 장학금 기탁
--  정선군 노인지도자 연찬회 개최
--  정선 남부주민(주) 하이원SC 등 3개업체 이웃돕기 1000만원씩 기탁
--  영월 내성라이온스클럽 주천사랑봉사회에 17㎏ 세탁건조기 1대 기증
--  2023 인제군자원봉사자대회
--  평창군산림조합 땔감 지원
--  한림대 LINC 3.0 사업단, ‘2023학년도 제1회 한림산학인재 공모전’ 개최
--  한림대, ‘2023학년도 2학기 캡스톤디자인 경진대회’ 개최
--  양양군여성단체협의회 여성리더 역량강화교육
--  신승주 양양군보건소장 기부금 전달
--  춘천명동로타리클럽, 어르신 전기매트 전달
--  강원특별자치도 사회서비스원, 강원돌봄 네트워크 간담회 개최
--  속초 사랑의 김치 전달
--  동해·삼척 ‘수소 저장·운송 클러스터’ 사업, 정부 예비타당성조사 통과
--  강원농협, 원주서 결혼이민여성 1대1 맞춤형 농업교육 간담회 개최
--  동해시 쓰레기 처리 매년 130억 이상 지출… 대책마련 시급
--  野 “또 특수통 검사인가”…방통위원장 김홍일 지명 철회 촉구
--  For Revanth Reddy, Sonia Gandhi is ‘Mother of Telangana’, but he has ‘better DNA’ because KCR’s Kurmi caste ancestors came from Bihar
--  [MD포토] 사운드 트랙 #2, '시즌2로 돌아 왔어요'
--  원주 DB, 오는 8일 스쿨데이 이벤트 진행…"다채로운 행사 실시"
--  ‘슈돌’ 찐건나블리, 센시 3D 컬러링북으로 미술놀이 즐겨…
--  "한글 유니폼이 이강인 열풍의 척도!"…이강인 영입 후 PSG 서포터즈 20% 상승, '세계에서 가장 많이 팔린 유니폼은 음바페가 아니야!'
--  박명수 "시상식 참여 안 한 지 5년…자존심 상해서 안 간다" 너스레 [라디오쇼]
--  이정후 NYY행 급부상? "대화 나눴다" 적극적 움직임…악마의 에이전트와 만난 캐시먼 단장
--  딥엘, ‘SC23’서 슈퍼컴퓨터 시스템 순위 34위 차지
--  트레드링스, 삼양·오뚜기·빙그레 등에 ‘쉽고’ 공급 계약 체결
--  가비아, ‘하이브리드 클라우드’ 서비스 출시
--  현대오토에버, 23년 지역사회공헌인정제 최고 등급 획득
--  한컴 김연수 대표 “동생 구속 건, 한컴과 무관한 일” 선 그어
--  “이상민 의원과 뜻 함께” 민주 대전 유성을 시·구의원들 동반탈당
--  명사와 함께하는 백제역사 문화탐방, 내년에 만나요
--  금산 진산면 역사문화 들여다본다
--  서천군 물김 초매식 개최… 올해 목표 4만 2000t
--  청양 농촌자원 활용한 치유농업 키우자
--  대학도시 천안 상징하는 ‘유니브시티 천안’ 업무표장 등록
--  75세 이상 음성 여성들이 전하는 삶의 이야기
--  괴산군, 농식품바우처 시범사업 4년 연속 선정
--  어린이 관광·콘텐츠 강화 위해 뭉쳤다
--  한국영상대 작품전시회 ‘백색소음-공명’ 눈길
--  [국민연금 Q&A] 일시금으로 받은 경우, 반납하고 매월 연금으로 받을 수 없나?
