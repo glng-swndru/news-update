@@ -1,11 +1,51 @@
 # Latest News
--  Prijsuitreiking Champions League sv Hatto Heim
--  AI Video Content: Runway Getty Partnership for High-Quality Videos
--  Mercosur celebra su cumbre en Río de Janeiro con expectativas a la baja sobre el acuerdo de la UE
--  मस्तिष्क नसासम्बन्धी जटिल शल्यक्रिया
--  कोशी प्रदेशसभा बैठक
--  एलपीएल : घोडाघोडी र कैलाली विजयी
--  राजेश्वर नेपाली टि–२० क्रिकेट टुर्नामेन्ट सुरु
--  Shah Rukh Khan Practised Scene 12 Times with Rajpal Yadav in Kal Ho Naa Ho: 'As If He's A Beginner...'
--  'असहायसँग मेयर' कार्यक्रमले विपन्नलाई राहत
--  ВСУ потеряли за сутки до 300 военных на донецком направлении
+-  Travel Centres and Hablo Announce Training Collaboration
+-  Германия — Экологично ли отапливать дома дровяными системами
+-  સરકાર બફર સ્ટોક બનાવવા ખેડૂતો પાસેથી તુવેરની ખરીદી કરશે
+-  Rijeka – Slaven Belupo: obavijest o prodaji ulaznica
+-  المقاومة تقصف قوات إسرائيلية متوغلة بخان يونس وصفارات الإنذار تدوي في “إيلات” عاجل
+-  Wahlfeier für Herzog und Nussbaumer in Liestal BL begonnen
+-  Schweiz laut Studie das am stärksten globalisierte Land
+-  Schweizer EM-Basis in Stuttgart
+-  Anklage gegen Rohstoff-Unternehmen wegen Korruption
+-  Schweizer Pilotprojekt hat CO2-Speicherung getestet
+-  Šta je ljude najviše zanimalo: Wikipedia objavila 25 najčitanijih članaka u 2023.
+-  Simon Birmingham, Josh Burns lead cross-party visit to Israel
+-  ইসরায়েলে যুক্তরাষ্ট্রের অস্ত্র সরবরাহ কমছে না
+-  มท.ชี้ 6 วัน "หนี้นอกระบบ" พุ่ง 3,316 ล้าน กทม.ยังแชมป์
+-  Lyfti rúmlega 707 kílógrömmum í Eistlandi
+-  Lecco, Bonazzoli: "La rinascita è merito dei giocatori. Malgrati fondamentale per il modulo"
+-  Soccer-Newcastle keeper Pope set to miss four months with injury, says Howe
+-  Popular Perthshire food hall bought by garden centre firm
+-  Belfast Ranked One of Best Winter Break Destinations in World
+-  Three Superstars of Indian Team: Fans Celebrate Birthday Boys Ravindra Jadeja, Jasprit Bumrah And Shreyas Iyer
+-  Music icon banks £2million profit on sale of ‘stunningly beautiful’ mansion in remote part of Scottish Highlands
+-  Scleroderma Therapeutics Market is Anticipated to Increase at a Stable CAGR over the Forecast Period (2023 to 2029)
+-  岸田首相 イスラエルのネタニヤフ首相と電話会談 衝突後初
+-  Ozieri, dalla Regione 200mila euro per il centro di equitazione a Chilivani
+-  8 dhjetori, e premte, ditë jopune për të gjithë qytetarët e Maqedonisë së Veriut
+-  Fyrirliði Danmerkur: Það eru engin orð til að lýsa þessu
+-  ફ્લાવરનું સૂકું શાક
+-  Paris Set For Major Transport Upgrade As New Metro Network Takes Shape
+-  Northeast Railway GM Calls Upon Nagaland CM, Discusses Dimapur-Kohima Rail Projects
+-  Jane’s Addiction announce 2024 UK and European tour
+-  PowNed doet aangifte van aanval op cameraploeg tijdens Sunneklaasfeest
+-  De Grootste Kerstboom gaat weer aan: feest van verbinding
+-  Türk Eximbank'dan deprem bölgesine 100 milyon dolarlık kaynak
+-  Bacteriophage Therapy Market May Set New Growth Story: Intralytix, BiomX, EnBiotix
+-  Otomotiv endüstrisi en yüksek kasım ayı ihracatına imza attı
+-  Тошкентда Аббосхон Хўжаев қўлга олинди. У аввал ҳам «криминал авторитет» сифатида қамалганди.
+-  Европанинг 9 та нефт-газ компаниясининг 1 йиллик ташламалари 360 минг кишининг ўлимига сабаб бўлади – тадқиқот.
+-  Landhotel Adler in Bürgstadt kocht nach der Slow-Food-Philosophie
+-  Ўзбекистон октябрда энг кўп олтин сотган давлат бўлди.
+-  ALLAH'IN PEYGAMBERİMİZİ BİR İNSAN OLARAK SINANMASI KONUSU-2
+-  4 kültürel miras daha UNESCO listesinde
+-  Davutoğlu: İsrail Cumhurbaşkanı ile aynı fotoğrafta olmaktan vicdanınız sızlamadı mı
+-  Komşu çift ile kızlarını öldüren 2 kardeşe ceza yağdı
+-  Dondurucuya asla konulmaması gereken gıdalar...
+-  Kazada ölen Mine Nur'un babası: Konuşurken telefon kesildi, kızım ölmüş de haberim yokmuş
+-  Fenomenlerin kozmetik ürünleri sağlık problemlerinin artışına neden oldu
+-  İstanbul'da teknik direktör Oktay Derelioğlu trafikte çıkan kavgada yaralandı
+-  Destici: Asgari ücret yılda iki kez tespit edilmeye devam edilmeli
+-  هجوم بمسيرة على قاعدة أميركية بالعراق
+-  واشنطن بوست : نتنياهو يخوض حربين وسيخسرهما
