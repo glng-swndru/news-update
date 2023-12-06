@@ -1,51 +1,51 @@
 # Latest News
--  निजी विद्यालयलाई सार्वजनिक बनाउने प्रस्तावमा प्याब्सन उपाध्यक्षको जवाफ- हाम्रो लगानी फिर्ता दिए, तालाचाबी बुझाउँछौं
--  Türkiye'den İsrail'e sert tepki: Şiddetle kınıyoruz
--  Bayern Münih'ten yeni imza! Bryan Zaragoza'yı kadrosuna kattı
--  BM: Gazze dünyanın en tehlikeli yerlerinden biri haline geldi
--  ইউনেস্কো’র সাংস্কৃতিক ঐতিহ্যে স্বীকৃতি পেল রিক্সা ও রিক্সাচিত্র
--  Ankara'da sosyal medyadan dolandırıcılık yapan 16 gözaltı
--  Mardin'de görüş mesafesi 10 metrenin altına düştü
--  Zonguldak'ta öğrencisini dövdüğü iddia edilen öğretmene hapis istemi!
--  7.2'lik deprem senaryosu yapılan bölge peş peşe sallandı!
--  Sinop'ta balıkçı tezgahlarında hamsi bolluğu: Fiyatı 20 TL
--  Erzurum'da kargo kolilerinden kaçak sigara çıktı
--  Tekirdağ'da fırtına hamsi fiyatlarını yükseltti
--  Samsun'da gasp tuzağından 18 yaşındaki yabancı kız tutuklandı!
--  Bakanlık'tan Filistin topraklarındaki yasadışı yerleşim hakkında açıklama
--  Kırklareli'de tek katlı evde çıkan yangın korkuttu
--  Putin'e füzelerle donatılmış 4 savaş uçağıyla koruma
--  Kasko poliçe fiyatlarında düşüş!
--  Milatović: Moramo se uhvatiti u koštac sa nagomilanim problemima u...
--  رئيس لاتفيا يرد على تهديدات بوتين بشأن الأقلية الروسية
--  STMicroelectronics N : veut miser sur l'IA embarquée
--  13 të famshmit që “thyen rregullat”, duke pozuar 100% pa filtra para ndjekësve
--  TPN: Ganjar-Mahfud Berkomitmen Dorong Supremasi Hukum dan HAM
--  "الفضلي": 200 مليون نخلة تنتج 9.7 ملايين طن من التمور سنويًا
--  تعرّف على الجنسيات الأكثر استقدامًا للعمالة المنزلية بالمملكة
--  3억4천만원 들인 저온저장고에 박스 보관? 파주 지역농협, 보조금 유용 의혹
--  무형문화재 신규 지정 '매듭장·주물유기장·양태장' 전승교육사 모집
--  평촌중 김유성·수리고 임주헌, ISU 피겨 주니어그랑프리 파이널 출전
--  "소비자에 충분히 고지 안한 죄"… 애플, 2심서 각 7만원 배상 판결
--  정부는 괜찮다는데… 소비자들은 "일단 요소수 쟁여두자"
--  “수원은 0원, 양평은 500만원”… 지역별 차이 큰 출산장려금, 경기도가 지원해야
--  "이자 내기 버거워요"… 고금리에 주택담보대출 연체 ‘껑충’
--  전두환 전 대통령 파주 안장, 토지 매매 불발로 무산
--  급식실 폐암 사망 노동자 장례식… 교육청 앞 분향소 설치는 끝내 무산
--  ‘선거구 획정 초안’ 놓고 여야, 신경전 고조
--  “이제 와 없던 일?”… 송도 스마트스퀘어 오피스텔·상가 ‘분양사기’ 논란
--  [우리동네 누가 뛰나-인천 남동을] 윤관석·이병래 vs 박남춘...국힘, 경쟁력 후보 낼 수 있을까
--  선생님 1명에 영아 2명… ‘0세아 전용 어린이집’ 확대해야
--  경기도 대대적 조직 개편… 특사경 축소-'외교·문화·종교'에 방점
--  한국기자협회 "포털 다음 '뉴스 검색 기준 콘텐츠제휴사 한정' 철회하라"
--  경기도체육회, 초등스포츠클럽 육성 지원사업 평가회 성료
--  [사람in] 우찬인 원곡고등학교 교장 "교육과 사랑이 미래 인재 만듭니다"
--  수원 인계지구대, '재난대응 유공' 소방서장 표창 수상
--  건강보험 피부양자 대폭 축소될까… 합리적 손질한다
--  이주호 부총리 겸 교육부장관, 현장교사 정례소통 학생·학부모까지 확대
--  제13대 경기도사회복지사협회장에 박찬수 현 회장 당선
--  올해 마약사범 2만 명 넘어 역대 최다… 셋 중 하나는 10∼20대
--  수원삼성, K리그 사랑나눔상과 그린위너스상 수상
--  '놀이기구 타던 두 살배기 사망' 키즈카페 업주 금고형 집행유예
--  아내 출산하러 간 사이 지적장애 후배 성폭행한 20대 기소
--  인천시, 한·중·일 학술교류 위해 동아시아 박물관장 회의 개최
+-  Buscan demócratas mejorar rastreo de armas llevadas a México
+-  Unen su talento
+-  Las maravillas del agua de chía
+-  Exhibe prueba Pisa a México por rezago educativo
+-  Soldados de Texas llaman corruptos a agentes de INM
+-  Қарор ва ижро: Кино санъатининг инсон онги ва тафаккурига, жамият ҳаётига таъсири ниҳоятда беқиёс
+-  Болалар сайёҳлик базаси очилди
+-  “Конституция кўчаси”
+-  Ўзбекистон Президенти Қирғизистон Президенти билан телефон орқали мулоқот қилди
+-  Самарқанд вилоятида ҳам катта рейдлар давом этмоқда
+-  6 декабрь: Муҳим ва долзарб хабарларнинг қисқача тафсилоти (видео)
+-  COP28 climate talks navigate complex terrain amidst hope and challenges
+-  Fifteen organisations declared unlawful under UAPA: MHA to Rajya Sabha
+-  На първо четене: на 500 м зад Корал, Иракли и Карадере няма да се строи
+-  Izraelski progon Hamasovaca ni malo nije sjeo Turcima: ‘Ako to učinite, snosit ćete ozbiljne posljedice’
+-  Milei fagocita a la coalición conservadora y en ello se juega la gobernabilidad de su gestión
+-  اكتشاف ممر مائي يكشف مفاجأة بشأن بناء الأهرامات.. قد يفسر سر بنائها
+-  Ukraine warnt vor Niederlage im Russland-Krieg ohne US-Finanzierung
+-  José “El Brujo” Martínez contagió a Noticia al Día con fe Vinotinto
+-  Asperger-Antisemitismus? Hamas-Greta schwafelt erneut vom “israelischen Völkermord”
+-  Isabel Rodríguez anima a promover la lealtad institucional en el Día de la Constitución
+-  Law Professor Laments 'Sex Exceptionalism' for Israel's 'Disproportionate' Response to Hamas War Crimes
+-  Konflik Palestin-Israel: AS jangka Israel tukar taktik serangan
+-  Stay positive
+-  علامات تظهر في الحمام تكشف إصابتك بأمراض خطيرة.. احذرها
+-  البورصة تهبط بنسبة 1.69% بنهاية تعاملات اليوم الأربعاء
+-  سعر الذهب المعلن بموقع البورصة المصرية اليوم الأربعاء 6 ديسمبر
+-  مصراوي يكشف .. هل يمثل لاعب بروسيا دورتموند السابق منتخب مصر؟
+-  هداف غاني يضع الأهلي في موقف محرج.. ما القصة؟
+-  Exclusive: Yasmine Sabri Collaborates With Okhtein To Launch a Dreamy New Line of Handbags and Sunglasses
+-  Nagyon menő ingyenes PSN-avatárokat húzhattok be!
+-  Alergia na święta. Nawet nie wiesz, ile świątecznych produktów może cię uczulić. Na niektóre z nich trzeba szczególnie uważać
+-  Кардиолог предупредил об опасности кофе
+-  Как долго продлится нестабильная погода?
+-  Назван самый популярный смартфон
+-  Fochabers firefighters ready to hit the road for Christmas charity street collections
+-  Näin syntyy Suomen arvokkain kunniamerkki, jota Sauli Niinistö kantaa itsenäisyyspäivänä –427 osaa, satoja työtunteja ja täyttä käsityötä
+-  What’s on at Bethesda Chapel, Narberth
+-  ‘Leave the World Behind’ Is the Ultimate Apocalypse-Karen Movie
+-  Israel Cabut Visa Pejabat Kemanusiaan PBB
+-  Wölfe im Spessart: Wie „Urmel“ und „Umai“ in Waldrode eine Ziegenherde beschützen
+-  Weihnachtsmärkte 2023 in Herten: Sebastian Czyszczon mit 100 Kindern auf der Bühne
+-  Cara Seru Merayakan Semangat Kreatif Para Penyandang Disabilitas
+-  Im Doppelpack: Das sind die "Die Bachelors"-Rosenverteiler!
+-  কাসেম সোলাইমানিকে হত্যায় যুক্তরাষ্ট্রকে ৫০ বিলিয়ন ডলার জরিমানা করলো ইরান
+-  Julia Mengolini hizo responsables a los conductores de LN+ de lo que le pueda pasar por los constantes ataques
+-  Na Kosovu registrovana nova stranka – Inicijativa „Srpska demokratija“
+-  تحذير من أمطار شديدة الغزارة مطلع الأسبوع القادم على شمال ليبيا
+-  Migliori caschi integrali (dicembre 2023)
+-  CID TV serial actor dies
