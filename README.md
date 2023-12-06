@@ -1,51 +1,51 @@
 # Latest News
--  Rescatan a dos dominicanos que estaban a la deriva en La Guajira en un barco
--  تنسيق بين ولايات “الجزيرة والقضارف وكسلا ونهر النيل” لتأمين سهل البطانة
--  SnapLogic Named a Visionary for Second Consecutive Year in the 2023 Gartner® Magic Quadrant™ for Data Integration Tools
--  Esad yönetimi, Suudi Arabistan'a büyükelçi ataması yaptı
--  Rampur News: डॉक्टरों की कमी से वेंटिलेटर पर स्वास्थ्य सेवाएं
--  SLC ground staff awarded cash reward promised during Asia Cup
--  Caroline Wozniacki gets Australian Open wildcard
--  2nd International Council for Cricket Academies champions kicks off on 18 December
--  CEO Kelum promoted as Executive Director at Arpico Insurance
--  Hayleys Group “B” maintains unbeaten run in MCA D Division 40 Over league
--  Executive Director/COO Dilshan to leave HNB after 19 year stint
--  Lionel Messi named Time magazine’s Athlete of the Year
--  CSE struggles to close on the up after erratic day for indices
--  Kiwis vs Bangladesh: 15 wickets fall in first day’s play in Dhaka
--  Nawaloka BMT Hematooncologists spearhead advanced transplants in Sri Lanka
--  Mushfiqur becomes just second Test batter to be dismissed for obstructing field
--  AIA Insurance continues to support Sri Lanka Cancer Society for 5th consecutive year
--  People’s Bank donates to power 1990 Suwa Seriya Ambulance service
--  Japan further solidifies collaborative relationship in the field of health care
--  Dialog champions eliminating avoidable blindness and improving access to education
--  Cabinet clears to advance Colombo Security Conclave regional cooperation
--  Annual Journalism Awards Night on 12 December
--  Albanci "objasnili": Srbi pogrešili adresu
--  Ivan Štefanec potvrdil, že na decembrovej plenárke europarlamentu bude debata o Slovensku
--  Moradabad News: सिरसी में तीसरे दिन भी नहीं मिली बिजली, परेशान रहे लोग
--  Hand – J16 Elite : programme tv des matches du samedi 9 décembre
--  ميازين الشاحنات "الخاصة".. شبكة المصالح الخاصة تنتهك حرمة شبكة الطرق العامة وتبدد جهود صندوق الصيانة
--  Rampur News: सांसद ने उठाया नाॅन जेडए जमीन पर मालिकाना हक दिलाने का मुद्दा
--  Vicky Kaushal reveals SRK wanted to reshoot a scene with him in Dunki
--  Chelsea fans demand Levi Colwill made club captain after pre-match interview before Man Utd clash
--  Malte Sjögren visade vägen när Björklöven vände: "Många som var förbannade"
--  Odbojkašice Uba i TENT-a bez četvrtfinala Kupa izazivača
--  Mikuláš v parlamente: Poďakovanie Pellegriniho a takto súbor odignoroval Matoviča! Pani, ste trápna, neudržal sa
--  Petőfi-díjat kapott Áder János: vajon a bajusz miatt? – Itt vannak a részletek
--  Jhansi News: कक्षा सात की छात्रा ने फांसी लगाकर दी जान
--  Rampur News: हर गांव के प्रधान करेंगे दो-दो गायों की सेवा
--  "Conseguimos poner a Argentina de pie": Alberto Fernández se despide de empleados de la Casa Rosada
--  مدنين: حجز 5 طيور ملكية نادرة
--  TMW - Potenza, si avvicina l'esonero di Lerda. Al lavoro sul contratto per il ritorno di Raffaele
--  Rampur News: प्रेम विवाह के पांच माह बाद दहेज के लिए महिला की हत्या
--  Jhansi News: कृषि विश्वविद्यालय कर रहा प्रयोग, हाईब्रिड चने पर नहीं होगा गर्मी का प्रकोप
--  Chandigarh News: ठंड बढ़ने के साथ बढ़े दिल के मरीज, बरतें एहतियात
--  Chandigarh News: आज से शुरू होगी एंट्री कक्षाओं में दाखिले की दौड़
--  Rampur News: शादी का झांसा देकर किशोर ने युवती से किया दुष्कर्म
--  Nainital News: 13 सड़क व चौराहे के लिए शासन ने जारी किए 1423 लाख रुपया
--  여론조사, 어디까지 믿어도 될까요? 여론조사 회사 대표의 답은hellip;
--  독해진 이낙연, 등떠밀리듯 손 내민 이재명
--  안철수 quot;이준석 신당? 성공 매우 낮아hellip;대구서 출마해도 당선 어려워quot;
--  Rivers State: Gov Fubara of withholding assembly funds
--  Pronostici Ligue 1, l'analisi e le quote di Brest-Strasburgo
+-  [WTI 5개월만에 배럴당 70달러 ↓…中경기우려에 유가급락
+-  [백기봉 변호사, 국제형사재판소 재판관 됐다…한국인 세 번째
+-  نتنياهو : محمود عباس لن يحكم غزة خلال ولايتي
+-  Cisjordanie occupée: 3 Palestiniens tués par les forces israéliennes
+-  Tinubu receives Benin president at Aso Rock, says cooperation imperative for economic prosperity in West Africa
+-  Di Canio e la lotta Scudetto: "Inter e Juve, ma ad una condizione può rientrare anche il Milan"
+-  Nécrologie : Le monde de la politique sénégalaise endeuillée
+-  Bereaved family members call Johnson’s apology at Covid inquiry ‘meaningless’
+-  هذا ما يحدث لجسمك عند تناول الفراولة.. مفأجاة
+-  10-year-old Surrey girl collecting food donations for those in need this holiday season
+-  Best Monster Hunter Now Spoofing and Joystick Tutorial from UltFone
+-  Britischer Staatsminister für Migration tritt zurück
+-  (ВИДЕО) Пукотница на Универзитетот во Лас Вегас, американските медиуми јавуваат за повеќе жртви
+-  GTA VI: Football lover makes game avatars for Messi, Ronaldo, and other players
+-  Basketbalistky USK porazily Landes a vyhrály v EL pošesté za sebou
+-  Encuentran cuerpo sin vida en Guararé
+-  بالأسماء.. الفائزون الـ 6 في انتخابات "غرفة المدينة المنورة"
+-  Detención provisional para uno de los más buscados
+-  Fortaleza homenageia Wellington Paulista após anúncio de aposentadoria: 'sempre será lembrado'
+-  Randy Orton Chats With Logan Paul on IMPAULSIVE
+-  Forgotten Rangers man told ‘stay at home’ as former national team boss dreads his inclusion in Euro 2024 squad
+-  Thomas Numme med rettelse om farens bisettelse
+-  Ligue des Champions : 1xBet annonce les matchs du dernier tour de la phase de groupes
+-  U SRBIJI DANAS SNIMLJENE DVE KAMIKAZE Jedan je bio kod Orlovače, drugi kod Vranja! DOBRO PA NISI UBILI NEKOGA
+-  Jonathan Majors' assault accuser says she wanted to 'protect him' and blamed herself after he was arrested
+-  Best Holger 556 loadout for Warzone Season 1
+-  WATCH — Yashma Gill stuns in sequin jumpsuit in latest Instagram post
+-  I was Man City supremo before becoming Rangers chief, then went on to help run one of the biggest clubs in England
+-  Bik Karlskoga segrade över Västervik i förlängningen
+-  Bik Karlskoga segrade över Västervik i förlängningen
+-  Veja resultado das eleições da Acert para nova diretoria do biênio 2024/2025
+-  Страните от Г-7 ограничават вноса на руски диаманти
+-  PSG, buone notizie per Luis Enrique: Marquinhos e Zaire-Emery parzialmente in gruppo
+-  La Copa lanza al Amorebieta
+-  VÍDEO: o resumo de nova vitória do Estoril sobre o FC Porto esta época
+-  Netanyahu'dan 'Hamas'ın lideri Yahya Sinvar'ın evini kuşattık' iddiası
+-  Abdullah Avcı kupa hedefinin altını çizdi: "Kupanın favorisiyiz"
+-  Yanıkömeroğlu'nun istifası sonrası İYİ Partili Yüksel Arslan'dan şok sözler: İmamoğlu satın aldı
+-  Asgari ücret ilk toplantı tarihi | 2024 Asgari Ücret Tespit Komisyonu ne zaman toplanacak? Başkan Erdoğan duyurdu!
+-  Pide UNPF educación de calidad ante resultados de prueba PISA
+-  Ex-presidente da Câmara dos EUA Kevin McCarthy diz que deixará Congresso
+-  (Видео) Пукање во универзитет во Америка, има жртви
+-  Lepa Brena rasprodala Arenu Zagreb za 24 sata, koncert tek za godinu
+-  Pennsylvania Congressman Glenn Thompson Diagnosed With Cancer
+-  «Il contrôlait et corrigeait mes réponses»: au code de la route, la fraude sans bornes
+-  Geisy Arruda é confundida com filha do cantor Leonardo: 'Quero metade da fazenda'
+-  Trump Witness Says He Valued Mar-a-Lago at More Than $1 Billion
+-  Indian actress Huma Qureshi launches debut book
+-  Путин назвал дружескими отношения России и Саудовской Аравии
+-  The “apocalyptic” humanitarian situation in Gaza, captured by one quote
