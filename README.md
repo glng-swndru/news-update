@@ -1,51 +1,51 @@
 # Latest News
--  Gibran Absen Lagi di Acara Debat Cawapres, Jubir AMIN: Anak Muda Pengecut
--  Nevada dispatch: UNLV campus and law school remain on lockdown after several people shot
--  Virgil helpt Liverpool aan zege, oud-Feyenoorders winnen met Bournemouth
--  Taylor Swift spricht über ihre Beziehung zu Football-Star Travis Kelce
--  Saskatoon’s Prairie Harm Reduction accused of playing role in nearby bank closure
--  Til Schweiger nach Vorwürfen gegen ihn: „Ich bin mit mir im Reinen“
--  Acun Ilıcalı Fenerbahçe'den dördüncü transferini yapıyor! Kanarya'nın yıldızı Hull City'e imza atacak!
--  Fransa'dan Gazze'ye 600 ton insani yardım: Kalıcı ateşkes çağrısında bulunuldu
--  ABD'de rektörlerden özgürlük çağrısı: Müslüman karşıtlığı ile mücadele edilecek
--  Brezilya, AB ile MERCOSUR arasındaki anlaşmanın imzalanmasını umuyor
--  Hizbullah İsrail ordusunu hedef aldı: Lübnan sınırında gerilim sürüyor
--  ABD'de üniversiteye saldıran zanlı etkisiz hale getirildi
--  Yeni Ruanda Planı'nın ardından İngiltere'den ilk istifa geldi
--  Muere una anciana tras incendiarse su vivienda en Tanos
--  Lokomotiva: Istok je potpuno rasprodan za Hajduk, zapad će biti ubrzo
--  Child Labor Investigation at Tyson Foods, Inc.: Is Supply Chain Due Diligence the Next Step?
--  Vídeo | Luis Palma anota su sexto gol con la camiseta del Celtic
--  Drag Race's Bianca Del Rio Says Her New Tour Isn't for the 'Easily Offended'
--  Samsung has updated these devices to Android 14
--  В США заявили о согласии всех лидеров G7 продолжать оказание помощи Киеву
--  خاصة في المربعانية.. استشاري يحذر من خطورة البرودة الشديدة على كبار السن
--  Wyciekł raport FIFA. Rubiales nie umiał utrzymać rąk przy sobie nie w jednym wypadku
--  Објавени снимки на кои се гледа движењето на возилата со кои е грабната Вања
--  ABD’ye kaçırılan 41 eser eve geri döndü
--  L’entrée de Janssen a tout changé, la défense carolo trop fébrile : les notes des Zèbres face à l’Antwerp
--  Norman Lear, producer of TV’s ‘All in the Family’ and influential liberal advocate, has died at 101
--  ‘Multiple victims’ reported as Las Vegas police respond to university shooting
--  عندما تتقاطع الحملات الموجهة ضد المغرب بين “يوتيوبرز” من ذوي السوابق القضائية والأبواق الجزائرية
--  ‘Multiple victims’ reported as Las Vegas police respond to university shooting
--  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
--  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
--  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
--  Alexis Vega está en la mira del futbol ruso ¡Estos equipos lo quieren! ¿Dejará a Chivas? | FICHAJES 2024
--  Alan Jones denies claims he indecently assaulted men during radio career
--  Republicans Float New Conspiracy Theory Amid McCarthy Retirement
--  Comparecerán funcionarios ante la Comisión de Programación, Presupuesto y Hacienda Pública
--  Glenn Maxwell lifts lid on the ‘last tournament’ he will play
--  Active shooter suspect is DEAD after multiple victims are wounded at University of Nevada's Las Vegas campus and students were ordered to 'RUN-HIDE-FIGHT'
--  Schüsse in Las Vegas: Angriff auf Universitätsgelände
--  Brindan recomendaciones sobre el uso de tarjetas de crédito en este fin de año
--  Policía de Las Vegas reporta tiroteo en la Universidad de Nevada con “múltiples víctimas”
--  🎥 | Liverpool wint mede dankzij deze goal van Virgil van Dijk van Nottingham Forest
--  TikTok winner Indy Clinton hugs husband Ben Azar months after she accused him of lying to her about strip club visit
--  Кремль о трудностях США с финансированием Украины
--  Szoboszlai második Premier League-góljával hozta a kötelezőt a Liverpool
--  美妝保養新品雙金打造無瑕顏值！香緹卡粉餅刷出濾鏡感 雅頓A醇精華溫和柔膚
--  Basket : Villeurbanne battu par le Maccabi Tel-Aviv en Euroligue
--  Conheça os encantos e o glamour da Riviera Francesa
--  Iwobi fires Fulham to victory as Liverpool win at Sheff Utd
--  NASDAQ 100-Handel aktuell: NASDAQ 100 präsentiert sich schlussendlich leichter
+-  More Polish charter flights to SL in winter season
+-  Saudi Arabia lures businesses with 30-year tax cut offer
+-  Marella Discovery 2 cruise liner calls on Colombo
+-  13th round of ETCA talks to take place in India in January
+-  Cabinet nod to strengthen financial sector safety net with $ 150 m World Bank loan
+-  National Evaluation Monitoring Committee to operate from 2024
+-  SJB to hold protests in January to oust Govt.
+-  COPF approves VAT increase to 18%
+-  Sri Lanka likely to receive second IMF tranche next week: Govt.
+-  RW to kick off ‘development-driven economic program’ on 1 January
+-  Chi vince X Factor, le quote: testa a testa per i bookie
+-  نقيب صيادلة القاهرة يكشف أسباب نقص الأدوية فى الصيدليات
+-  Fenerbahçe Beko, İspanya'dan üzgün dönüyor!
+-  Poliisi otti kiinni 68 ihmistä Helsingin itsenäisyyspäivän mielenosoituksissa
+-  الأمم المتحدة: سكان غزة يعيشون في رعب مطلق
+-  韓 대표팀 울린 日 '혼혈 특급유망주'…'GG 수상+베스트 9' 드디어 재능 폭발! 연봉 '4배' 인상 초대박
+-  '타격 4관왕+MVP' KBO리그 폭격한 외인, '친정' KT 리턴하나…"이야기 나누고 있다"
+-  정기고, 2년 10개월만 컴백에 "자숙 얘기 많더라, 사고 안쳤다" [영스트리트]
+-  Cops fighting to stop a wave of deadly manufactured ‘Frankenstein’ opioids swamping Scotland
+-  롤드컵 효과 없었다… 이스포츠 세액 공제 법안, 국회 통과 불발
+-  Na letisku v Mníchove primrzlo lietadlo k dráhe: Smerovalo na klimatický samit v Dubaji
+-  Záhadná smrť pornohviezdy Sophie Anderson: Zomrela len dva týždne po svojom partnerovi
+-  Hollywoodska hviezda ako Popoluška: Z akcie utekala bez topánok… Eva, nezabudni si črievičky!
+-  LG Is Having A Rough Year As OLED TV Sales Fall, Now Come The Layoffs
+-  Policijski časnik i konzul pri Veleposlanstvu Japana u riječkoj policiji
+-  إسرائيل تستقبل الطائرة رقم 200 المحملة بالأسلحة الأمريكية
+-  Начштаба СОБР «Рысь» задержали после обнаружения тел с гирями на ногах
+-  Bacaan Niat Sholat Dhuha dan Doa Setelahnya untuk Kelapangan Rezeki
+-  Why you shouldn’t hold in a sneeze: Man ruptures windpipe while holding his nose
+-  Polémica por la Fiesta de la Pera: «Si no se hace en este predio, sería una gran ofensa», dijeron desde Camioneros
+-  لبنان يرد على قصف إسرائيل جيشه بشكوى لمجلس الأمن
+-  Rishi Sunak caught in Tory civil war after immigration minister Robert Jenrick resigns over ‘weak’ Rwanda plan
+-  "غير متوقع".. دي بروين حاضر مع مان سيتي في مونديال الأندية
+-  Nigeria : L’ONU veut une enquête après une attaque de drone sur des civils
+-  Etter en time kom Sagosen ut: – Horribelt
+-  Abendua, hotza eta Gabonetarako gozoak, denak batera iritsi dira
+-  Las Vegas police say suspect dead after reports of university shooting
+-  의협, 의대 정원 확대 반대 ‘철야 시위’ 돌입
+-  대원제약 ‘펠루비’ 복합제 개발 시동 … 트라마돌 조합 연구 진행
+-  Nadler legitimizes anti-Zionism, Nikki’s ‘best against Joe’ edge and other commentary
+-  Premian innovación de alto impacto
+-  Trickster, 50만 회가 넘는 뮤직비디오 조회수 기록
+-  Wall St ends lower as investors weigh fresh employment data
+-  محمد بن زايد وبوتين: «حل الدولتين» أساس السلام في المنطقة
+-  ‘I Think I Need A Mink’: Margot Robbie Said The ‘Barbie’ Boys Were Stoked They Finally Had ‘Permission’ To Wear Pink
+-  Димитриеска Кочоска: ВМРО-ДПМНЕ е апсолутен фаворит на изборите, според анкетите, во секое населено место води
+-  Liverpool vence lanterna, segue na briga pelo topo e não deixa Arsenal disparar na Premier League
+-  СЭ: «Зенит» не намерен продавать Вендела, Клаудиньо, Барриоса и Кассьерру
+-  Fulham laganini Forestu utrpao pet komada, Liverpool se namučio za nova tri boda, a Bournemouth ponovno iznenadio
+-  Otkriveno s kim se Banožić družio nakon izlaska iz bolnice: Ovo bi moglo utjecati na istragu
