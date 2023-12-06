@@ -1,51 +1,11 @@
 # Latest News
--  금새록, 눈부신 예쁨
--  "רק" 62 שנה אחרי ארה"ב: איראן שיגרה חללית לא מאוישת לחלל
--  Bourse de Tunis : Tawasol Group Holding, une bonne performance annuelle
--  Przychody firm mogą zacząć przyspieszać. Briefing kondycji przedsiębiorstw
--  Europejski rynek akcji najwyżej od czterech miesięcy, nowy rekord DAX
--  Badanie: przeciętna rodzina wyda 3739 zł na organizację Bożego Narodzenia
--  Boða um­fangs­mikið verð­lags­eftir­lit fyrir Ólympíu­leikana
--  Newcastle ‘keeper Pope out for ‘around four months’ with injury
--  7 December Ka Vrishabh Rashifal: वृषभ राशि वाले विरोधी पक्ष के सामने अपनी कमजोरी को न बताएं, नहीं तो पड़ सकते हैं मुसीबत में
--  الأمطار الأخيرة تحفز مزارعي المفرق للزراعة الحقلية
--  The iPhone 13 and iPhone 14 Are About to Get Faster Wireless Charging
--  India News | Adani Ports Board to Meet on December 12, to Consider Raising Funds
--  Rep. Pressley introduces legislation to guarantee right to vote for people with felonies on record
--  3 killed at massive fire in Pakistan's largest southern city of Karachi, officials say
--  Taylor Swift is named Time magazine’s person of the year
--  Soderbergh, 'Freaky Tales' and a Kristen Stewart double bill headline Sundance 2024
--  Deep within an inhospitable desert, a window to first life on Earth
--  كيف يكون للدعم السريع ارتكازات داخل العاصمة ووضع مثل وضعه قبل ١٥ أيريل ٢٠٢٣م؟
--  NASA's Psyche delivers first images and other data
--  Toxic comments associated with reduced activity of volunteer editors on Wikipedia
--  Novel probiotic application method shows promise as a growth promoter for chickens
--  Shiba Inu’s Shibarium Welcomes First Major Hardfork
--  Tanie wycieczki last minute na święta Bożego Narodzenia 2023. Poznaj najciekawsze oferty all inclusive
--  Shannen Doherty Says Her Husband Cheated While She Battled Cancer
--  When Nearly Flat Isn’t Really Flat
--  Sundance Unveils A.I., Pedro Pascal, Kristen Stewart, Satan, Devo & Steven Yeun Packed Lineup For Festival’s 40th Edition
--  Revela sexo do bebé!
--  Топ 10 најплатени спортистки – речиси сите се тенисерки
--  Розыгрыш билетов на Кремлевскую елку – в МВД предупредили о новом виде мошенничества
--  Former Recording Academy chief Mike Greene accused of sexual assault and battery
--  ‘Was an Idiot…Said That Stupid Thing…’ Harry Brook Regrets Comments Made During IPL 2023 About ‘Shutting Up Fans’, England Cricketer Reveals He Deleted Social Media Apps
--  Fenerbahçe'de Beşiktaş mesaisi devam ediyor
--  ABD’li Senatör Menendez'in evinden çalıntı külçe altınlar çıktı
--  Starbucks'ın piyasa değeri 20 günde 12 milyar dolardan fazla azaldı
--  100 minlik yalan 1 ailənin faciəsinə çevrildi...
--  AB'den Yahudi yerleşimcilerin bir okulu yıkmasına tepki
--  Weihnachtsmarkt Dortmund: Trotz Engel-Wende – Besucher auf 180! „Rausgeschmissen“
--  Formel 1: Bitter für Verstappen! Trennung ist nun offiziell
--  Links, horarios y fechas para ver a Checo Pérez en la gala de premiación de la FIA
--  София пред криза с боклука: Всеки ден в депо се изсипват 600 т вместо 80 т
--  Calgary mammograms for Sask. patients cost 10 times more than in-province delivery, says NDP Opposition
--  The Sony WF-C700N just hit an all-time low price — better than Black Friday
--  News24 | Have you seen them? Police hunting 3 men linked to murder of 2 LEAP officers in Cape Town
--  وكيل الأزهر لعضو بالبرلمان الألماني: ما يحدث بغزة عدوان وإبادة جماعية للفلسطينيين الأبرياء
--  Live Eredivisie | Korte restant AZ-NEC op punt van beginnen
--  "الحب يطرق الأبواب".. أبراج الحظ حليفها مع بداية سنة 2024
--  لأول مرة في 10 سنوات.. مدفوعات فوائد الديون تتجاوز إيرادات الحكومة (تفاعلي)
--  تقارير: أزمة تضرب ضفوف شباب بلوزداد قبل مواجهة الأهلي
--  సర్వం వర్షార్పణం
--  సాదాసీదాగా సర్వసభ్య సమావేశం
+-  بوليتيكو: مسؤولون بإدارة بايدن يرون ضرب الحوثيين الآن خطوة خاطئة
+-  Galatasaray, Adana Demirspor maçı hazırlıklarına devam etti
+-  Doğada ender rastlanan anlar! O ilimizde sürü halinde ortaya çıktılar
+-  Tottenham blow with Ange Postecoglou’s assistant leading race to take over as Swansea manager
+-  Tottenham blow with Ange Postecoglou’s assistant leading race to take over as Swansea manager
+-  Cierra CBP completamente el puente Libre
+-  بوتين يصل إلى الرياض
+-  Allenamento Milan: rossoneri al lavoro per l’Atalanta. Gli scatti odierni a Milanello – FOTO
+-  "בהשראת בני אדם": גוגל משיקה את מודל הבינה המלאכותית Gemini
+-  בזה הוא מתעסק עכשיו? בן גביר תובע מיליון שקלים מאולמרט
