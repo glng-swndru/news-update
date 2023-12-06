@@ -1,51 +1,51 @@
 # Latest News
--  عاجل.. غدًا إعلان نتائج اختبار القدرة المعرفية الرقمي (تفاصيل)
--  مشاريع عملاقة.. أنظار العالم تتجه إلى قمة قادة العقار بالمملكة
--  خطر يواجه الجنس البشري.. 6 عوامل بيئية تؤثر على الخصوبة
--  مفاجأة عن "كنية المنزل".. خطوات تعديل بيانات السكن في منصة الدعم بالضمان الاجتماعي
--  İran Basra Körfezi'nde kritik hamle: İki tankere el koydular
--  TEI Anadolu'da sanayicilerin kurulu gücünden yararlanacak: Milli uçak motorunun sesi yakın zamanda duyulacak
--  TROY için yerli firmalara tarihi görev: Küresel rakiplere karşı kampanya seferberliği bekleniyor
--  Pink Floyd'un solisti Roger Waters'tan Gazze isyanı: Nasıl hala İsraillileri mağdur göstermeye çalışabilirler?
--  Agricultural Pumps Market worth $8.75 billion by 2030, growing at a CAGR of 7.11% - Exclusive Report by 360iResearch
--  മലയാളത്തിൽ മമ്മൂട്ടിയുടെ നായിക, ഹിന്ദി ബിഗ്രേഡ് സിനിമകളിൽ നായിക
--  Dublin Riots Expose Irish Frustration at Housing, Cost-of-Living Crisis
--  Die stärkste Frau der Welt lebt in Neuseeland – 317,5 Kilo gedrückt
--  FA 투수 김대우, 2년 열애 끝에 10일 백년가약 "힘든 시기 옆에서 든든한 버팀목이 되어준 사람"
--  '3회 11점 폭발' 한국, 아시아야구선수권대회 예선 3차전 팔레스타인에 19-1, 5회 콜드게임 승
--  ‘황희찬 리그 8호골 극찬’ 발롱도르 수상자가 보내는 찬사, “항상 위치 선정 좋아...문전 앞 능력 사랑해”
--  Çumra Kültür ve Sanat Topluluğu, yılın son etkinliğini yaptı
--  Warga Jatirejo Semarang Temukan Bayi di Kolong Jembatan
--  Australia: Indian Man Dies in Melbourne Car Crash; Wife Seeks Help to Send Remains Back Home
--  Medical Nutrition Market Future Business Opportunities 2023-2030 | Abbott, Baxter, Danone S.A., Nestlé, GSK Plc
--  Onderzoeksraad: boten ongeluk Terschelling voeren te hard
--  Niet alleen de samenstelling van de Kamer verandert, de ambtelijke leiding ook: CDA'er Oskam wordt griffier
--  Bloomberg: TikTok-moeder ByteDance 268 miljard dollar waard
--  Raymond van het Groenewoud houdt niet van heksenjachten. 'Dan staat de activist in mij op'
--  Live: Manchester United vs FC Chelsea im TV und Stream – Alle Infos zur Übertragung
--  제주 고교 화장실 몰카 촬영 10대 청소년 구속
--  ফেরদৌসের বার্ষিক আয় ৫০ লাখ, নেই ব্যাক ঋণ
--  إنطلاق أشغال الجلسة العامة لمجلس النواب
--  İYİ Parti'de istifa
--  Manjani: S’ka parlament që ta bëjë kushtetuese marrëveshjen Rama-Meloni! Shqipëria, magazinë refugjatësh
--  Agricultural Lubricants Market worth $5.45 billion by 2030, growing at a CAGR of 6.88% - Exclusive Report by 360iResearch
--  The U.S. Contract Catering Market to Reach $70.60 Billion by 2028 - Arizton
--  وزير خارجية النرويج يؤكد أنه لا توجد مناطق آمنة في قطاع غزة
--  انطلاق اعمال المؤتمر الثاني للجمعية الليبية لجراحة وتنظير المفاصل ، تحت شعار ( من أجل جراحات مفاصل امنة ) .
--  كلية الآداب بجامعة سبها تنظم ندوة علمية بعنوان طوفان الأقصى " الاسباب – الموقف - الآثار النتائج .
--  Detectives arrest suspected thugs who went live on Tiktok and bragged about their criminal activities while flaunting stolen items – See what was recovered from them (PHOTOs).
--  عميد بلدية سرت يتابع الحملة الوطنية للتطعيمات ضد الانفلونزا الموسمية
--  Market Trends for Bioengineered Protein Drugs, 2023-2030
--  Zaccharie Risacher (encore) élu meilleur jeune du mois en championnat de France
--  Il regalo di Natale Iliad è il ritorno della FLASH 180, la più conveniente offerta 5G
--  제주형 행정체제 개편 '제주특별법' 개정 시급
--  Adult Diapers Market worth $39.28 billion by 2030, growing at a CAGR of 5.26% - Exclusive Report by 360iResearch
--  BAN vs NZ: Mushfiqur Rahim Dismissed For Obstructing The Field; Rules Inside
--  Is Microsoft ‘lock-in’ the right security strategy for your organisation?
--  Gjatë ditës pritet të dërgohet kërkesa për ekstradimin e Palevskit nga Turqia
--  Aşgabatda Türkiýe Respublikasynyň eksport harytlarynyň sergisi açyldy
--  Global Long Read Sequencing Market Size To Grow At A CAGR Of 14.8% By 2032 - Exclusive Report By GIS
--  Aerosol Paints Market worth $1.89 billion by 2030, growing at a CAGR of 4.87% - Exclusive Report by 360iResearch
--  BAT unter Druck - Ausblick belastet, Milliardenabschreibung
--  Umfrage - Second-Hand-Weihnachtsgeschenke werden beliebter
--  '라디오쇼' 이현이도 당한 현금 인출 사기…"경찰 진술 하면서도 안 믿겨"
+-  Toto auto bude najmenšie EV SUV v ponuke Toyoty. Už budúci rok
+-  Kwint en Cato: Kerst 2023
+-  Laatste activiteiten 2023 JW & Hi5
+-  Muğla'da 81 kaçak göçmen ile 10 organizatör yakalandı!
+-  İnegöl polisi şüphelilere göz açtırmıyor! 3 araç trafikten men edildi
+-  İstanbul'da Meryem Yılmaz'ı 16 yerinden bıçaklayarak öldürdü! Karar açıklandı
+-  Şanlıurfa'da 10 gündür eylem yapan işçiler ile jandarma arasında gerginlik
+-  Edirne'de jandarma vatandaşları bilgilendiriyor
+-  Kırklareli'nde kamyonet kasasında 62 düzensiz göçmen yakalandı
+-  İYİ Parti'nin, CHP işbirliği teklifini reddetmesi ile ilgili yeni detay
+-  Bursa'da 112 acil ilk 10 dakikada vakaya ulaşıyor!
+-  Kayseri'de fabrika yangını!
+-  İYİ Parti'de istifa!
+-  5 bin lira ödemesinden 4,6 milyon emekli daha yararlanacak
+-  4. Dünya Alpagut Şampiyonası'nın galibi Türkiye
+-  प्रादेशिक महोत्सवमा साढे नौ करोडको कारोवार
+-  एनसेल जस्ता प्रकरण दोहोरिन दिनु हुँदैनः पूर्व अर्थमन्त्री कार्की
+-  राष्ट्रिय ब्याडमिन्टन पुसमा
+-  ताप्लेजुङ सिफारिस भएका शिक्षकलाई नियुक्तिपत्र प्रदान
+-  Santa Cruz inicia la modificación de la Ordenanza Municipal de Edificación
+-  الدقهلية: إطلاق مبادرة اعرف بلدك لتعميق الوعي لدى تلاميذ وطلاب المدارس
+-  Aguas sigue incrementando su presupuesto y supera los 15,5 millones de euros
+-  Rinette neemt afscheid van Cultuurplein
+-  Watch the new world's largest cruise ship pass under a bridge with only feet to spare
+-  Elon Musk had a bad week, but he'll probably recover (again)
+-  Relief to Forbes Facility Services: CESTAT grants Service Tax Exemption as Services were provided to SEZ Unit [Read Order]
+-  Kako pomemben je zajtrk, če sploh je, glede na dolžino dneva
+-  Jak przebiega głosowanie?
+-  Komentar Lare Paukovič: Božični klišeji
+-  Barbastro - Almería, en directo | Copa del Rey
+-  Yeclano Deportivo - Rayo Vallecano, en directo | Copa del Rey
+-  Oshiomhole urges Labour to revisit management of Contributory Pension funds
+-  Потужні магнітні бурі у грудні: дати
+-  تستوعب 250 ألفا فقط.. الأونروا: أكثر من مليون شخص موجودون في رفح الفلسطينية
+-  „Sieht toll aus“: Neue Attraktion im Phantasialand soll bald öffnen – Abenteuer geht hoch hinauf
+-  I bought Iceland’s bargain Christmas dinner deal & it fed my family-of-five TWICE – we even had two desserts
+-  Glenn Maxwell on IPL: తాను చచ్చేవరకు ఐపీఎల్ ఆడుతూనే ఉంటా, ఆర్సీబీ ఆటగాడు గ్లెన్‌ మ్యాక్స్‌వెల్‌ సంచలన వ్యాఖ్యలు
+-  Directo de los actos de celebración del Día de la Constitución
+-  Mutatjuk, hol kerülhet bajba, ha nincs az autón téli gumi
+-  Kabelfehler: Tausende Haushalte in Eitorf und Windeck am Mittwochmorgen ohne Strom
+-  Balla: Nxis djemtë e vajzat që vitin e ardhshëm të zgjedhin për t’u bërë Oficerë të Policisë
+-  [[단독] 민주당, 8일 본회의서 민생법안 위주 처리 가닥…‘쌍특검법’ 보류에 무게
+-  [“한국 홀대에 열받았다” 분노한 9억 연봉자 떠나더니…결국 트위치도 짐싼다
+-  ضبط 4 تجار مخدرات خلال حملات في المنوفية والغربية
+-  News24 | Plan your weekend! Times confirmed for SA's pool stage fixtures at Cape Town Sevens
+-  SON DAKİKA: Cumhurbaşkanı Erdoğan'dan Katar dönüşü önemli mesajlar
+-  State Finance & Industry Ministers To Lead UP Delegation At Davos Summit
+-  Kumaon Region’s First Cattle Feed Manufacturing Unit To Be Set Up In Udham Singh Nagar
+-  СМИ: Верхушка ХАМАСа пытается сбежать из cектора Газа
+-  Trailer de GTA 6 já ultrapassou os 101 milhões de visualizações
