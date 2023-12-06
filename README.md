@@ -1,51 +1,51 @@
 # Latest News
--  Anzeige – Schöne Bescherung nach der Black Week: Geschenke, die Menschen verbinden
--  מנצ'סטר יונייטד אירחה משלחת של משפחות החטופים
--  CM Jagan: రైతులు అధైర్యపడొద్దు.. అండగా ఉంటాం
--  आँखा जाँच गरिएकामध्ये १२ प्रतिशतमा मोतिबिन्दु
--  कर्णाली प्रदेशभर एक हजार २१ वटा झोलुङ्गे पुल निर्माण
--  लुम्बिनी प्रदेश प्रहरी अस्पतालकाे स्तरोन्नति गरिने
--  विष्टलाई राष्ट्रिय टिम तयारीको जिम्मेवारी
--  India’s Retail Inflation May Breach RBI’s Tolerance Level Of 6% In Nov: Barclays
--  Life | 'Bridge to the future': Ford celebrates 100 years in SA as it launches STEM-related youth projects
--  COP28: 22 Staaten bauen Atomkraft aus – Spott für Deutschland
--  Държава от НАТО призна: Ако ни нападнат, след няколко часа ще хвърляме камъни
--  Семерджиев е приел амфетамин преди да даде кръвната проба
--  Novosađani, važno: Poznato kada će karta u autobusu GSP-a poskupeti na 100 dinara
--  Kırmızı et sektörüne soruşturma
--  I made a Nando’s butterfly chicken fakeaway – it’s been hailed ‘spot on’ and is half the price
--  كيف يساهم الاستهلاك الاقتصادي لوقود السيارة في الحدّ من الانبعاثات؟
--  한전 경기본부, 취약계층에 연탄 5천 장 배달
--  (재)경기도수원월드컵경기장관리재단, ‘2023 빅버드 드림볼 전달식’ 개최
--  수원문화재단- 스타필드 수원, ‘문화예술과 지역사회 활성화’ 업무협약
--  일제강점기부터 활약하던 소방 수총기 일반에 공개
--  수원시 팔달구 일대서 차량 화재 발생
--  남양주시, 오는 27일까지 민간 다중이용시설 20곳 안전 점검
--  남양주의료복지조합 추진위 ‘1차 발기인 대회’서 유병선 위원장 선출
--  경복대-차의과대 보건산업대학원, 연계교육 교류 업무협약 체결
--  Пакет проектов о добровольцах в Росгвардии подготовили ко второму чтению
--  Ebben a budapesti állami általános iskolában a diákok ötöde külföldi
--  रिलायंस ने भले कराया हो नुकसान, मुकेश अंबानी की इन कंपनियों के शेयर ने छुआ आसमान
--  Госдума приняла поправку об обязательном уроке труда в школах
--  Radari, patrole i radovi: Šta se dešava u saobraćaju u Novom Sadu
--  ‘เด็จพี่’อัด‘ศรีสุวรรณ’เลิกมั่ว ไล่อ่านกม.ให้แตก ปมร้อง‘นายกฯ-อุ๊งอิ๊ง’ให้-รับผ้ามัดหมี่
--  Pope says he’s ‘much better’ after bout of bronchitis
--  Marciano Vink stoort zich enorm tijdens Nederland - België en meldt zich op X
--  «مرضية» تدخل طبيب مستوصف.. السجن المركزي
--  Kaatunut katuvalo, mutkittelevia jälkiä – Joensuussa, Pyhäselässä ja Liperissä on jäänyt kiinni rattijuoppoja keskiviikon vastaisena yönä
--  I’m a school secretary – what your child’s part in the nativity means and why you don’t want them to be a shepherd
--  I’m a school secretary – what your child’s part in the nativity means and why you don’t want them to be a shepherd
--  Ogu Community in Rivers State, ‘certifies’ virgin girls, welcomes them to womanhood
--  CDU-Bundesvize Prien sieht dringenden Handlungsbedarf von der Kita bis zur Lehrerbildung
--  CDU-Bundesvize Prien sieht dringenden Handlungsbedarf von der Kita bis zur Lehrerbildung
--  Mejores películas de 2023: desde Spider-Man hasta Barbie
--  „Markus Lanz“: Gäste und Themen (Mittwoch, 6.12.2023)
--  ОТБ Ўзбекистонга корхоналар ва иқтисодий ўсишни рағбатлантириш учун 100 млн доллар қарз ажратди
--  G5 Sahel: la Mauritanie et le Tchad envisagent la dissolution de l’alliance antijihadiste
--  Bürgergeld: Was ist die Bedarfsgemeinschaft?
--  “พิพัฒน์” หารือ กูเกิ้ล สร้างแชทบอต AI หางานสู่ตลาดโลก
--  В Госдуме прокомментировали идею запрета давать мальчикам женские имена
--  Глава Киргизии Жапаров запретил дарить ему подарки на день рождения
--  Bakan Tunç: 21 yılda devrim niteliğinde reformlar yaptık
--  Man, 40s, dies following horror fire at home in Co Louth as gardai say post-mortem to determine course of investigation
--  Nahversorgung lässt auf sich warten
+-  عاجل.. غدًا إعلان نتائج اختبار القدرة المعرفية الرقمي (تفاصيل)
+-  مشاريع عملاقة.. أنظار العالم تتجه إلى قمة قادة العقار بالمملكة
+-  خطر يواجه الجنس البشري.. 6 عوامل بيئية تؤثر على الخصوبة
+-  مفاجأة عن "كنية المنزل".. خطوات تعديل بيانات السكن في منصة الدعم بالضمان الاجتماعي
+-  İran Basra Körfezi'nde kritik hamle: İki tankere el koydular
+-  TEI Anadolu'da sanayicilerin kurulu gücünden yararlanacak: Milli uçak motorunun sesi yakın zamanda duyulacak
+-  TROY için yerli firmalara tarihi görev: Küresel rakiplere karşı kampanya seferberliği bekleniyor
+-  Pink Floyd'un solisti Roger Waters'tan Gazze isyanı: Nasıl hala İsraillileri mağdur göstermeye çalışabilirler?
+-  Agricultural Pumps Market worth $8.75 billion by 2030, growing at a CAGR of 7.11% - Exclusive Report by 360iResearch
+-  മലയാളത്തിൽ മമ്മൂട്ടിയുടെ നായിക, ഹിന്ദി ബിഗ്രേഡ് സിനിമകളിൽ നായിക
+-  Dublin Riots Expose Irish Frustration at Housing, Cost-of-Living Crisis
+-  Die stärkste Frau der Welt lebt in Neuseeland – 317,5 Kilo gedrückt
+-  FA 투수 김대우, 2년 열애 끝에 10일 백년가약 "힘든 시기 옆에서 든든한 버팀목이 되어준 사람"
+-  '3회 11점 폭발' 한국, 아시아야구선수권대회 예선 3차전 팔레스타인에 19-1, 5회 콜드게임 승
+-  ‘황희찬 리그 8호골 극찬’ 발롱도르 수상자가 보내는 찬사, “항상 위치 선정 좋아...문전 앞 능력 사랑해”
+-  Çumra Kültür ve Sanat Topluluğu, yılın son etkinliğini yaptı
+-  Warga Jatirejo Semarang Temukan Bayi di Kolong Jembatan
+-  Australia: Indian Man Dies in Melbourne Car Crash; Wife Seeks Help to Send Remains Back Home
+-  Medical Nutrition Market Future Business Opportunities 2023-2030 | Abbott, Baxter, Danone S.A., Nestlé, GSK Plc
+-  Onderzoeksraad: boten ongeluk Terschelling voeren te hard
+-  Niet alleen de samenstelling van de Kamer verandert, de ambtelijke leiding ook: CDA'er Oskam wordt griffier
+-  Bloomberg: TikTok-moeder ByteDance 268 miljard dollar waard
+-  Raymond van het Groenewoud houdt niet van heksenjachten. 'Dan staat de activist in mij op'
+-  Live: Manchester United vs FC Chelsea im TV und Stream – Alle Infos zur Übertragung
+-  제주 고교 화장실 몰카 촬영 10대 청소년 구속
+-  ফেরদৌসের বার্ষিক আয় ৫০ লাখ, নেই ব্যাক ঋণ
+-  إنطلاق أشغال الجلسة العامة لمجلس النواب
+-  İYİ Parti'de istifa
+-  Manjani: S’ka parlament që ta bëjë kushtetuese marrëveshjen Rama-Meloni! Shqipëria, magazinë refugjatësh
+-  Agricultural Lubricants Market worth $5.45 billion by 2030, growing at a CAGR of 6.88% - Exclusive Report by 360iResearch
+-  The U.S. Contract Catering Market to Reach $70.60 Billion by 2028 - Arizton
+-  وزير خارجية النرويج يؤكد أنه لا توجد مناطق آمنة في قطاع غزة
+-  انطلاق اعمال المؤتمر الثاني للجمعية الليبية لجراحة وتنظير المفاصل ، تحت شعار ( من أجل جراحات مفاصل امنة ) .
+-  كلية الآداب بجامعة سبها تنظم ندوة علمية بعنوان طوفان الأقصى " الاسباب – الموقف - الآثار النتائج .
+-  Detectives arrest suspected thugs who went live on Tiktok and bragged about their criminal activities while flaunting stolen items – See what was recovered from them (PHOTOs).
+-  عميد بلدية سرت يتابع الحملة الوطنية للتطعيمات ضد الانفلونزا الموسمية
+-  Market Trends for Bioengineered Protein Drugs, 2023-2030
+-  Zaccharie Risacher (encore) élu meilleur jeune du mois en championnat de France
+-  Il regalo di Natale Iliad è il ritorno della FLASH 180, la più conveniente offerta 5G
+-  제주형 행정체제 개편 '제주특별법' 개정 시급
+-  Adult Diapers Market worth $39.28 billion by 2030, growing at a CAGR of 5.26% - Exclusive Report by 360iResearch
+-  BAN vs NZ: Mushfiqur Rahim Dismissed For Obstructing The Field; Rules Inside
+-  Is Microsoft ‘lock-in’ the right security strategy for your organisation?
+-  Gjatë ditës pritet të dërgohet kërkesa për ekstradimin e Palevskit nga Turqia
+-  Aşgabatda Türkiýe Respublikasynyň eksport harytlarynyň sergisi açyldy
+-  Global Long Read Sequencing Market Size To Grow At A CAGR Of 14.8% By 2032 - Exclusive Report By GIS
+-  Aerosol Paints Market worth $1.89 billion by 2030, growing at a CAGR of 4.87% - Exclusive Report by 360iResearch
+-  BAT unter Druck - Ausblick belastet, Milliardenabschreibung
+-  Umfrage - Second-Hand-Weihnachtsgeschenke werden beliebter
+-  '라디오쇼' 이현이도 당한 현금 인출 사기…"경찰 진술 하면서도 안 믿겨"
