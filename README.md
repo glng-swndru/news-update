@@ -1,11 +1,51 @@
 # Latest News
--  ‘SON 캡틴 없을 때 공백 메울 수 있나?’ 유벤투스 계획에서 사라졌다! ‘완전 처분 희망’
--  [현장목소리] ‘드라마 같은 역전승’ 박진섭 감독, “축구 참 어렵다”
--  [현장목소리] ‘PK 두 방’으로 부산 구한 라마스, “박진섭 감독님 힘든 티 안 내시려고...”
--  Rusya NATO'yu uyardı: Doğrudan çatışma riski artıyor
--  Bir dönem sona eriyor: Facebook ve Instagram arası mesajlaşma kalkıyor
--  Yazar ve Siyaset Bilimci Mustafa Çalık hayatını kaybetti
--  Davinson Sanchez'den Kopenhag mesajı: Kazanmak için gideceğiz
--  Nooro Knee Massager Reviews [Urgent Update]: Don’t Buy Until You Have Read This
--  HM Amit Shah attributes "Kashmir`s woes" to Jawaharlal Nehru`s `blunders`
--  Kronik böbrek hastalığının 8 nedeni! Bu belirtilere dikkat!
+-  Apple's iMessage May Dodge EU Regulatory Demand for Interoperability
+-  Asegura Rebaque que Sergio Pérez es el mejor de México
+-  Aviva presión inflacionaria último jalón en megaobras
+-  Declaran culpable a agresor de Mya
+-  Acusan red fantasma en compras del sector salud
+-  Aprueban colaboración de Morena y organizaciones polémicas
+-  Sube cifra a 23 muertos tras erupción volcánica en Indonesia
+-  Соперник Шавката Рахмонова в UFC устроил избиение с уничтожением. Видео
+-  Leerer Magen? Wer sich bei der Tafel anmelden kann
+-  انتخابات 2024 بأمريكا.. لمن يصوت الجيل Z؟
+-  Aktien Frankfurt: Dax bleibt auf Rekordjagd - Nur Merck trübt das Bild
+-  Bogdanović u EP: Ohrabruje to što politika proširenja ostaje...
+-  В России предложили распространить госпропаганду на детские сады
+-  She mesmerised with her voice
+-  Michaung Wreaks Havoc: What Makes the Bay of Bengal a 'Hotbed' of Cyclones?
+-  تعزيز المستشفى الأردني (2) بغزة بكوادر طبية ومساعدات
+-  الرزاز يستقيل من رئاسة المعهد السويدي للحوار لصمته عن جرائم الإبادة في غزة
+-  قصف مدفعي مكثف على شمال غزة
+-  أرتيتا يتجنب توجيه اللوم لرايا بعد ليلة كارثية للحارس الإسباني
+-  صواريخ من اليمن على إيلات
+-  استشهاد شاب من مخيم بلاطة
+-  ابن جازي الحويطات وأبو عليم بني حسن نسايب
+-  경북도, 인천공항서 신공항 물류단지 성공열쇠 찾다
+-  영남대 명예교수들, 대학 발전기금 1천만원 기탁
+-  달서구, 드림스타트 사업 ‘보건복지부 장관상’
+-  공군 군수사령부 부사관단, 연탄 나눔
+-  대구파티마병원, 동구청에 이웃사랑 월동비 700만원 기탁
+-  대구보건대, 中 산동 유방상업학교 견학 프로그램 제공
+-  대구변호사회, 사랑나눔 후원금 전달
+-  영남이공대, 남구 취약계층에 난방유 지원
+-  동구청·미소친절 시민추진단, 미소친절 캠페인
+-  영천서 70대 몰던 승용차 추락...심정지 1명·중상 3명
+-  영주시 ‘희망2024 나눔 캠페인’ 목표액 8억500만원
+-  – طقس : استقرار نسبي في الاجواء اليوم على معظم مناطق البلاد .
+-  Wohnungsbrand in Brandenburg: Hunde und Katze sterben bei Feuer in Fürstenwalde
+-  Elegant Austrian Linzer Cookies taste even better than they look
+-  ANALÝZA: Ligoví obránci pod drobnohledem. Zeď Ogbu, talenti z Teplic i přesní sparťané
+-  Meghan Markle wears diamond bracelet gifted by King Charles after ‘racist royals’ drama
+-  Der lange Kampf der Bahn gegen Schnee und Eis - ein Strukturproblem?
+-  Schulveranstaltung am Julis-Echter-Gymnasium in Erlenbach beweist, dass Wissenschaft Spaß machen kann
+-  Heimatgeschichte in vielen Facetten
+-  Söders Kreuzerlass vor Bundesverwaltungsgericht
+-  Schneechaos: Noch immer Behinderungen bei Zug und Flugverkehr
+-  Osterburken: Fahrzeug mehrfach überschlagen - Mann schwer verletzt
+-  Adam Collard reveals Christmas plans with Laura Woods and admits he's 'in love'
+-  Merck erleidet Flop mit Pharma-Hoffnungsträger
+-  الضالع ..اللجنة التنسيقية لمشروع عدالة الأحداث تلتقي مدير الأوقاف والإرشاد بالمحافظة
+-  Ministro Urso scatenato: «L’80% degli incentivi usati anche da Stellantis per produrre auto all'estero, ora basta»
+-  [Watch] Bangladesh Batsman Given Out For Handling The Ball; Know Relevant Rule & Indian Cases
+-  Wozniacki agli Australian Open dopo 4 anni: sarà in gara con una wild card
