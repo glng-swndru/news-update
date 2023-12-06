@@ -1,11 +1,51 @@
 # Latest News
--  계절이 그린 풍경
--  (1보)제주도의회-제주도, 예산 진통....도의회 본회의 결국 연기
--  حماس تستنكر تبني بايدن مزاعم الاحتلال بارتكاب عنف جنسي واغتصاب في السابع من أكتوبر
--  [경과원, 판교테크노밸리 직장어린이집 협약기업 모집
--  [영국에 ‘코리안 인베이전’…11개월간 ‘코리아시즌’ 대장정의 마무리
--  [응급환자 구하는 ‘의료 마이데이터’, ‘골든아워’ 확보에 효과적
--  [마약사범 전년 대비 50% 증가…역대 최다, 3명 중 1명은 10~20대
--  [서울시, 검·경과 함께 ‘유흥시설 마약범죄’ 뿌리 뽑는다
--  [압구정 롤스로이스男, 피해자 사망에도 ‘꼿꼿’…법정서 여유 보여
--  [박민식 “‘尹정부 파이터’ 요청 따를 것…안철수에 양보한 분당 출마 명분”
+-  Kripto paralarda coşku! Bitcoin 1.3 milyon liraya yükseldi
+-  Туркменистан приветствует наращивание эффективного взаимодействия с компаниями США – Президент Сердар Бердымухамедов
+-  El insólito Congreso del que Argentina será sede en 2026
+-  How do you identify AI-generated eBooks on Kindle Unlimited?
+-  Josipa Lisac pjesmom opisala stanje na domaćoj glazbenoj sceni: ‘Ne volimo sebe, niti svoje. Urušili smo sve. Pali smo‘
+-  Warga Pesisir dan Nelayan Diimbau Waspada Erupsi Gunung Anak Krakatau
+-  جثة بنهر تستنفر السلطات
+-  Joy Behar Announces New Tell All Book: ‘Everyone and Everything’
+-  Åberg: ”Sex månader jag aldrig kommer glömma”
+-  Animal Box Office Collection Day 5: Ranbir Kapoor Movie Set to Cross $53 Million Mark Globally
+-  Yön uutiskooste | Niinistö isännöi viimeistä kertaa Linnan juhlia, köyhissä perheissä asuvien lasten osuus ennallaan, Putin vierailee Lähi-idässä
+-  Bitcoin’s ‘jet-fuelled’ ride takes token past $44 000
+-  번개장터, 중고 거래 앱 최초 ‘브랜드 랭킹’, ‘중고 시세’ 도입
+-  [인사] 롯데쇼핑 백화점사업부
+-  جيش الاحتلال يقر بمقتل جنديين إضافيين
+-  زين تشغل شبكة الجيل الخامس وتطرح الخدمة تجاريا بالأردن
+-  عشرات الشهداء في مجزرة جديدة بمخيم جباليا
+-  أجواء باردة وغائمة في معظم مناطق الاردن
+-  أم بطلة تضحي بحياتها لإنقاذ ابنتها من سمكة قرش
+-  عقوبات أميركية على مستوطنين متطرفين
+-  لأسنان ناصعة البياض…وصفات منزلية واقتصادية
+-  This airline aims to fly electric plane by 2026
+-  وفيات الأربعاء 6-12-2023
+-  S&P’dan Türkiye ekonomisi değerlendirmesi
+-  카페24, 구글 투자 소식에 상한가
+-  "당신, 갈락티코 포기할 거야?"…'재계약 협상' 나선 감독, 레알 마드리드 회장이 직접 전화까지 했지만...
+-  겨울 스키장에서 할인 받으려면? 하나·농협·BC카드 챙겨야
+-  이무생(Lee Moo-Saeng), 차마에 빼고 다가진 '이무생로랑'!
+-  비온후, 고유진·모세 등 보컬 천재들과 ‘크리스마스 캐롤’ 발매
+-  [MD포토] 금새록, '아찔한 발걸음'
+-  이영애 '스페이드 포즈 본 적 있어? 내가 최초야' [한혁승의 포톡]
+-  김영재(Kim Young-Jae), 악상이... 떠오른다!
+-  [MD포토] 노상현, '어색한(?) 미니하트'
+-  [MD포토] 손정혁, '기분 좋은 미소'
+-  [MD포토] 금새록-노상현-손정혁, '사랑스러운 삼각관계'
+-  [MD포토] 사운드트랙 #2, '달달한 로맨스 드라마 기대하세요'
+-  [MD포토] '사운드 트랙#2' 김희원-최정규 연출, '행복한 공동연출'
+-  [MD포토] 금새록, '시선집중 발걸음'
+-  [MD포토] 금새록, '부러질듯한 각선미'
+-  '내년은 김해방문의 해' 대규모 국제행사 잇따라 개최
+-  한전KDN, 상임감사에 김문호 전 호남대 교수
+-  Felvételek bizonyítják: értékes amerikai páncélost zsákmányolt az orosz hadsereg
+-  Žádná manipulace, tak se to stalo. Fotograf vidí přízračné okamžiky našich životů
+-  اعتقال سارق سيارة “المينورسو” بالعيون
+-  سرقة “طاكسي صغير” بمكناس
+-  Andre Rosiade Usul Debat Bahasa Inggris, TPN Ganjar: Ini Bukan di Luar Negeri
+-  Rezept-Revolution: Ab 2024 viele Medikamente wohl nur noch per E-Rezept
+-  Izbornik nakon poraza Hrvatske na SP-u: ‘Bili smo nemoćni protiv njihove fizike‘
+-  Danmark åbner en af verdens største insektfabrikker
+-  Danmark åbner en af verdens største insektfabrikker
