@@ -1,51 +1,51 @@
 # Latest News
--  News24 | Here are the Daily Lotto numbers
--  ברדה: "זאת תקופה מחורבנת. גם תיקו לא היה מספק אותי"
--  Cantata de Natal dos corais Siminina e UFMT abre a programação festiva da Prefeitura de Cuiabá neste domingo (10), no Parque das Águas
--  Saad quer reconhecer sindicato dos trabalhadores da limpeza como utilidade pública
--  Vereador propõe dar nomes a 2 praças e um centro de multiuso nos bairros Santa Rosa e Novo Terceiro
--  Petroleiro tomba no Rio Amazonas
--  Vereador homenageia morador com nome de praça no Pedra 90
--  Cezinha cobra serviços para atender os bairros Areão, Novo Milênio e Altos da Serra II
--  Tip je popio previše 'lijeka': Lubanja mu se doslovno raspala zbog jednog sastojka
--  'We're hitting new limits.' North Carolina quantum computing bullish on a coveted breakthrough
--  Rektorem Univerzity Hradec Králové bude fyzik Jan Kříž
--  Grzegorz Braun: Kara śmierci musi wrócić do kodeksu karnego
--  إنقاذ الشركة التونسية للسكر محور لقاء رئيس الدولة بوزيرة التجارة والرئيس المدير العام للشركة
--  Bolsa Família informa pagamentos extras: Como receber?
--  롯데정보통신, 신임 대표이사에 고두영 SM사업본부장 선임
--  카카오페이, 예금상품 비교추천 서비스 개시...신한은행과 '쓸수록 모이는 소비적금' 출시
--  최시원 채널톡 대표 "사람 대체할 수 있는 'AI'의 등장…결코 멀지 않았다"
--  블로거와 함께 성장한 네이버 블로그, '2023 마이 블로그 리포트' 오픈
--  오세진 코빗 대표, 마약 근절 '노 엑시트(NO EXIT)' 캠페인 동참
--  "AI가 어디까지 문제해결 할 수 있을까?"…대답은 "사람이 하는 모든 부분"
--  코빗, 위메이드 '위믹스' 재상장..."상폐 사유 해소"
--  라이엇 게임즈, 조선왕실 문화유산 복제 사업 시작
--  네이버페이, 우리은행과 금융혁신 위한 전략적 파트너십 체결
--  티빙 오리지널 '몸값', 美 시상식 최우수 외국어 부문 노미네이트
--  العليمي يطّلع على إحاطة المبعوث الأممي بشأن استئناف العملية السياسية
--  تعليقًا على قرارات الإعدام الحوثية.. الصراري: "قضاة سلاليين ينفذون سياسة مليشيا رجعية"
--  Wie wäre es denn mal mit dem etwas anderen Weihnachtsmarkt?
--  الغارديان: أهداف إسرائيل في غزة ستفشل وحماس ستخرج من الحرب أقوى (ترجمة خاصة)
--  Patinage artistique. Le couple junior Fradji - Fourneaux à l'autre bout du monde... Quel objectif pour les Isérois en finale du Grand Prix ?
--  Linnaan kutsutun Hannele Huovin Vladimirin kirja on taas ajankohtainen, koska se kertoo vallasta – palkittu kirjailija tapasi miehensä Kalajoen Hiekkasärkillä
--  Basketbalistky USK vyhrály pošesté za sebou
--  Skibidi Toilet Voted Top Meme of the Year
--  Past in Perspective
--  B.C. chief coroner Lisa Lapointe retiring, saddened by overdose crisis policy
--  Saque-aniversário do FGTS para novas retiradas com alterações
--  Bédarrides. Rugby à XV : trois rendez-vous pour la fin de saison des jeunes
--  G7 ülkeleriden ortak İsrail-Filistin açıklaması: İki devletli çözüme olan bağlılığımızı sürdürüyoruz
--  Pucnjava u Briselu – tri osobe povređene
--  BIRODI: Zekić je prekršila Kodeks Saveta REM koji reguliše integritet
--  Jewish Community: REM chief Zekic insulted us all
--  El IDEHPUCP se pronuncia ante la resolución del Tribunal Constitucional que dispone la libertad del expresidente Alberto Fujimori
--  New ways for Israel-Palestine peace
--  Entenda para que serve a Lei Seca
--  Caravan en auto zwaar beschadigd na botsing op A20 | Celstraf geëist tegen verdachten mondkapjesfraude
--  Climate negotiators get down to business at COP28 summit
--  Hemmaförlust för Strömsbro - 2–7 mot Sundsvall
--  Les « Race Change to Another », ces ados en quête d'une coréanité fantasmée
--  Pengalaman peluk lembu, ‘buang stres’
--  Le nombre de « deepfakes » pornographiques explose du fait des progrès de l'intelligence artificielle
--  Handicap et jeu vidéo : des réponses très diverses à une question désormais centrale
+-  Más de 6 mil turistas llegan a Panamá
+-  Ehli Baptist Hastanesi'nde yaralılar kan kaybından ölüyor
+-  İsrail askerleri Batı Şeria'daki katliamlarını sürdürüyor
+-  Stajyerlerden Biden'a 'ateşkes' mektubu
+-  Turşu bidonları arasında 498 gram sentetik uyuşturucu ele geçirildi
+-  G7 ülkelerinden Filistin meselesinde iki devletli çözüm çağrısı
+-  Active shooter wounds multiple victims at University of Nevada's Las Vegas campus as college tells students to 'RUN-HIDE-FIGHT' and cops respond to 'more shots fired in student union'
+-  REVEALED: What Travis Kelce, Patrick Mahomes and their Chiefs teammates eat before game day and how many calories an NFL player actually consumes
+-  Afenifere’s Secretary-General, Ebiseni dumps Labour Party for PDP
+-  Podemos promete no reventar la legislatura pero PSOE y Sumar temen por el ciclo electoral
+-  Watch Live: Colorado Supreme Court hears 14th Amendment challenge to Trump's eligibility
+-  Soccerladuma | Rulani Hails Sundowns Stars' For 10th Successive Win
+-  Bay Area arts: 15 cool live shows — and 1 film fest — to see this weekend
+-  Veliki problem za Zvezdu: Nejpir doživeo još jednu povredu?
+-  FESTIVAL FILMOVA JUGOISTOČNE EVROPE: Nagrađeni Trag divljači i Vera, a najbolji glumci Miki Manojlović i Jovana Stojiljković
+-  Ariana Madix tears up about learning to “trust” DWTS partner after Scandoval
+-  West Virginia vs. Pittsburgh odds, spread: 2023 college basketball picks, Dec. 6 best bets from proven model
+-  West Virginia vs. Pittsburgh odds, spread: 2023 college basketball picks, Dec. 6 best bets from proven model
+-  Ivan Toney 'deletes' Instagram message to Arsenal star to spark fresh transfer rumours
+-  'My hot model girlfriend is 40 years younger than me – people think I'm her grandad'
+-  Brits consumed enough Garlic & Herb Dip to fill 17 Olympic-size swimming pools in 2023
+-  Путин и наследный принц Саудовской Аравии завершили переговоры
+-  Quiz: Name the 20 players to make the most Premier League appearances
+-  GTA 6 trailer song streams increase by 37,000% since release
+-  David De Gea could be blocked from Premier League return thanks to rare rule
+-  Nick Cage thriller with 97% on Rotten Tomatoes is on TV tonight
+-  Marcus Rashford dropped by Ten Hag for Man United vs Chelsea
+-  Under-fire Antony blasts 'unfair and malicious' criticism from ex-Man United duo
+-  What was it like when the last antimatter disappeared?
+-  What was it like when the last antimatter disappeared?
+-  Plavi konačno slavili u gostima: Dobar debi Ferela
+-  À l'Affiche ! - "Bâtiment 5" : Ladj Ly de retour à Montfermeil, quatre ans après "Les Misérables"
+-  À l'Affiche ! - Le goût du succès : Nina Métayer, élue meilleure pâtissière du monde
+-  Le président turc Erdogan en ami à Athènes
+-  L'armée israélienne intensifie ses combats dans le sud de la bande de Gaza
+-  «Pitbull», populiste, anti-woke… Pierre Poilievre, le Trump canadien
+-  La détermination est intacte chez les soldats de l'armée israélienne : le récit de l'envoyé spécial du Figaro
+-  Poutine aux Émirats et en Arabie saoudite, le conflit au Proche-Orient en toile de fond
+-  Israël: Benjamin Netanyahou sur la sellette
+-  Deux mois après l'attaque du Hamas, cette guerre qui a tout changé en Israël
+-  TPMP : « tu as un problème avec les prénoms exotiques », Moundir s'emporte contre Danielle Moreau
+-  Destination X : la date de diffusion du nouveau jeu d'aventure de M6 dévoilée
+-  TPMP : les chroniqueurs dirigés par Cyril Hanouna et la production ? Des SMS fuitent
+-  Kelly Vedovelli, assise à la « place de la potiche » dans TPMP ? La chroniqueuse répond à Complément d'enquête
+-  Le meilleur pâtissier : changement de programme ! La demi finale sera diffusée ce mercredi
+-  « J'ai passé un week-end » : Cyril Hanouna se paye une nouvelle fois Complément d'enquête
+-  Cyril Hanouna (TPMP) dévoile son salaire, c'est impressionnant
+-  Marié(e) à tout prix : Océane et Marine El Himer bientôt dans l'émission ? Adixia fait des confidences
+-  Star Academy 2023 : Pierre et Candice en couple ? Le candidat fait des révélations !
+-  Miss France 2024 : la benjamine du concours fait-elle partie des favorites ?
