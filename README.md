@@ -1,11 +1,11 @@
 # Latest News
--  Di Lorenzo, quale infortunio? Juve-Napoli, spuntano le corna
--  Reale Mutua Fenera Chieri ’76: vigilia di CEV Volleyball Cup
--  ‘We Will Abide By What We Were Taught’ – Amaechi’s Ally Hints At Dumping Wike Over Rivers Crisis
--  Game Awards 2023 Reveals Five Fascinating New Indie Games
--  Charita organizuje zbierku Hlinený dukát na pomoc ľuďom v núdzi
--  Minister obrany Pistorius sľúbil Ukrajine takmer 200-tisíc kusov munície, Západ má podľa neho na pleciach veľkú zodpovednosť
--  G7 sammiti başladı
--  মন সুস্থ রাখতে সামাজিক যোগাযোগমাধ্যম ছেড়েছেন হ্যারি ব্রুক
--  Aktien Europa Schluss: Zinswende treibt EuroStoxx 50 auf Hoch seit 2007
--  ดอลลาร์สหรัฐรับโมเมนตัมก่อนเหตุการณ์สำคัญมาโคร: สิ่งที่ต้องระวัง
+-  An immersive experience in music and light
+-  San Nikolas delicioso para los niños
+-  San Nikolas Txiki 'endulzó' Segura
+-  Kabine Toplantısının ardından Cumhurbaşkanı Erdoğan'dan açıklamalar
+-  Revolutionizing the Building Sector for Sustainable, Resilient Cities — Global Issues
+-  On connaît l’affiche du Carnaval de Nice 2024 "Roi de la pop culture"
+-  „3 puolimai.“ Vos po 4 d. Zalužnas sustabdė JAV generolų nurodymą. WP skelbia, kas nutiko
+-  Brangiausias taikinys! 135 mln. USD. Sunaikintas naujausias monstras S-350 „Vitjaz“ (Video)
+-  „Gali būti išjungti Rusijos dronai...“ „Z kanalai“ pasibaisėję. Į frontą ateina visiškai naujas ginklas (Foto,video)
+-  Turkijoje archeologai rado unikalų artefaktą. Pasaulyje jų tėra tik 23 (Foto)
