@@ -1,11 +1,51 @@
 # Latest News
--  [오피셜] 이번 시즌 EPL 첫 번째! 1승 2무 11패 셰필드 유나이티드, 헤킹바텀 감독 경질→후임으로 크리스 와일더 확정
--  [김병윤의 눈] 프로축구 K리그2 감독의 수난시대...실패가 아니다.
--  “장난이었는데요”…상가 엘리베이터에 불 지르고 PC방 간 10대 체포
--  ‘부동산 투자 실패’ 스트레스 풀려고 고양이 20마리 죽인 회사원
--  현대차 노조 차기 지부장 강성 문용문 후보 당선
--  Tiada keperluan rombak barisan Exco Perak
--  수원 군공항 화성 이전 추진에 화성시·시민사회단체 반발
--  Ransomware Dwell Time Hits Low of 24 Hours
--  Police officer hands over passport after Clare Nowland manslaughter charge
--  Police officer hands over passport after Clare Nowland manslaughter charge
+-  Sudoku difícil: 06 de diciembre de 2023
+-  Sudoku medio: 06 de diciembre de 2023
+-  Sudoku fácil: 06 de diciembre de 2023
+-  Sudoku mini: 06 de diciembre de 2023
+-  Crucigrama difícil: 06 de diciembre de 2023
+-  Crucigrama medio: 06 de diciembre de 2023
+-  Crucigrama fácil: 06 de diciembre de 2023
+-  Crucigrama mini: 06 de diciembre de 2023
+-  Sopa de Letras clásica: 06 de diciembre de 2023
+-  훨훨 나는 비트코인 상승세…4.5만달러 눈앞
+-  이마트, 베트남 호찌민에 3호점 개장...“1등 점포 목표”
+-  KTis 타운보드, 전국 5만대 돌파… 170만 세대와 소통
+-  KT스카이라이프, KT그룹 꿈나무 미디어 투어 진행
+-  네이버페이X삼성페이, 월 현장결제액 전년 대비 8배 급성장
+-  신한은행, 예보와 서울시 장애인선수단 금융교육 실시
+-  [취재수첩] '화이부실'의 우리금융… 왜 자꾸 말이 앞설까
+-  왕이, 캐머런 英 외무와 전화회담…"소통·대화 유지"
+-  STAT+: Pfizer plans to depart BIO
+-  울산박물관 역사실 개선사업 완료…오늘부터 관람
+-  Ember Mug 2 Review
+-  Ember Mug 2 Review
+-  제12대 부천 시민옴부즈만 자문위에 변호사 등 19명 위촉
+-  ฝุ่นมาอีกแล้ว! กรุงเทพวันนี้ ‘PM2.5’ เกินมาตรฐานระดับส่งผลต่อสุขภาพ 8 พื้นที่ เช็กเลย!
+-  한미, 빈라덴 암살 투입된 '치누크 15~20대' 추가 도입 논의
+-  보건복지부, 울산 지역 장애인 정책 현장점검 실시
+-  เด็กไทยวิกฤติ! สอบ ‘PISA’ คะแนนต่ำสุดรอบ 20 ปี ทุกทักษะ ‘สิงคโปร์’ แชมป์
+-  '구미 아트페어' 7일 개막…미술작품 전시·판매
+-  Why Bitcoin, Dogecoin, and Shiba Inu Popped Today
+-  Tráiler Flash: Godzilla x Kong The New Empire
+-  어메이징브루잉컴퍼니, 미국 뉴욕에 수제맥주 수출
+-  AWS, 아마존 S3 익스프레스 원 존 정식 공개
+-  가비아, 하이브리드 클라우드 출시…최대 500만원 혜택
+-  Kết quả lấy phiếu tín nhiệm 29 người giữ chức vụ do HĐND tỉnh Quảng Trị bầu
+-  뮤지컬 '라스트 파이브 이어스' 상견례…"솔직하고, 현실적"
+-  'That is an absurd question': Dreyfus
+-  [특징주] 레뷰코퍼레이션, 구글 투자받은 카페24 상한가...글로벌 인플루언서 쇼핑몰 공동 사업 부각
+-  Delhi knocked out, TN qualify for quarters
+-  셀트리온, 싸이런 테라퓨틱스와 다중항체 신약 개발
+-  넥슨, 넥슨어린이재활병원에 운영기금 3억원 전달
+-  Corinthians visita o Coritiba com diversos desfalques no último jogo do ano; confira
+-  Cyclone Michaung : आंध्रात धडकलं चक्रीवादळ, मिचॉन्गचा विध्वंस सुरुच; वादळी वाऱ्यासह जोरदार पावसाची हजेरी
+-  NCLAT to hear IDBI's insolvency plea against Zee Entertainment today
+-  कोपरगावात भाजपच्या कोल्हे विरोधात विखेची मोर्चेबांधणी सुरू, राष्ट्रवादीच्या आमदारांसोबत केले विविध विकास कामांचे भूमिपूजन
+-  "예방이 최선"…전북교육청, 고3 학생 대상 사이버범죄 교육
+-  "스트레스 풀려고"…고양이 24마리 분양받아 모두 죽였다
+-  Bas jatuh gaung di Filipina: 16 maut
+-  Conozca las tendencias de Seguridad Informática que dominarán en América Latina en 2024
+-  ‘제15회 Good 계룡예술제’…8~10일 계룡문화예술의전당
+-  Justiça peruana ordena libertação do ex-presidente Alberto Fujimori
+-  Porque a Alemanha está mal preparada para as grandes nevascas
