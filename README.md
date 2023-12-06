@@ -1,51 +1,51 @@
 # Latest News
--  Конституция – ҳуқуқ ва бурчларимиз тарозиси! (+видео)
--  Ижтимоий ҳимояга оид ҳуқуқлар ва манфаатларнинг таъминланиш асоси
--  طريقة تحضير الفريكة على الطريقة اللبنانية
--  الصفدي يوجه اللجنة القانونية لمواصلة نقاش الاتفاقيات مع إسرائيل
--  الخدمات الطبية تعمل على إنشاء مستشفى جديد في الزرقاء
--  إطلاق مركز انطلاق موحد في الزرقاء العام المقبل
--  الأغذية العالمي: ارتفاع نسبة انعدام الأمن الغذائي للاجئين في الأردن
--  صناعة عمان تطلق موقع وتطبيق أردني
--  NI: Киев потребовал от Запада дать F-16 из-за превосходства российских Су-35
--  Rusima rečeno: Pomolite se Bogu i bežite
--  News24 | Iran says it is closer to human spaceflight after capsule launch
--  Citypress | Green lobby group Africa Coal Network calls for 100% green energy for Africa
--  El Tribunal Constitucional de Perú ordenó la excarcelación inmediata de Alberto Fujimori
--  قطاع التعليم..رئيس فريق التجمع الوطني للأحرار يهاجم التنسيقيات ويتهمها بالابتزاز
--  Emekli ikramiyelerinin maliyeti açıklandı
--  Antalya'da piyasa değeri 2 milyon TL olan bonzai ele geçirildi
--  Tanju Özcan'dan İYİ Parti açıklaması!
--  Tarihçi yazar Dr. Mustafa Çalık hayatını kaybetti
--  Antalya'da sağanak, yaşamı olumsuz etkiledi
--  İngilizlerin Hollanda'yı işgal planı!
--  Erkan Baş basın toplantısında konuşuyor
--  Adana'da cinsel istismar sanığına 8 yıla kadar hapis istemi
--  Mardin'de 170 araç trafikten men edildi
--  Milli Takım'a 2 Timsah
--  Birleşmiş Milletler: Gazze Şeridi'nde güvenli bir bölge yok
--  Bahis dolandırıcılığı soruşturmasında 16 kişi gözaltına alındı!
--  UPTEC entra em consórcio de três milhões para apoiar empresas da área do turismo
--  Okypy: Nicosia General’s accredited clinical labs specialised in rare, serious cases
--  Only half of Cypriots intend to vote in EU elections
--  Paleta doživljaja u Koprivničko-križevačkoj županiji
--  Zelenskiy assures Ukrainians of victory with US aid in the balance
--  Repunta cifra de consultas en el IMSS: Zoé Robledo
--  Breng extra sfeer in je interieur: van lichtplan tot lampenkap en verlichte kersttafel
--  Греф заявил об отсутствии предпосылок для укрепления курса рубля
--  Juve, assist a un top player del tennis: chi è al J Medical per visite e test
--  Kryzys w polskich skokach przypomina, dlaczego Adam Małysz nie mógł znaleźć trenera
--  Impfungen schützen Gesundheit und Wirtschaft
--  Exmilitares anuncian marchas el Día de Velitas en contra de la JEP
--  Kuzey Irak'ta 8 terörist etkisiz!
--  Kurtlar sürüye saldırıp, 65 koyunu öldürdü
--  Conor McGregor says he’d ‘spar with the prime minister’ if he became president
--  Hülya Koçyiğit'ten dikkat çeken sözler: 'Kadınların önü AK Parti döneminde açıldı'
--  Представят културно-историческото наследство на каракачаните в Сливен
--  Der Teufel Xmas Deals Sale: Premium Lautsprecher, Kopfhörer, Soundbars und mehr reduziert
--  Посрещнаха Путин като цар в Абу Даби: Отношенията между Русия и ОАЕ са на безпрецедентно ниво
--  الجيش الإسرائيلي يعلن اعتراض صاروخ بمنطقة إيلات
--  Kickoff | Euro club chief: You can't have 15 African players in your squad
--  Kickoff | Riveiro reveals how Dlamini solved Pirates' problem
--  Honor predviđa da su preklopni pametni telefoni skorašnja budućnost
--  Συγκεντρώσεις και πορείες για την επέτειο της δολοφονίας Γρηγορόπουλου
+-  Putin'in BAE yolculuğu sırasında dikkat çeken detay
+-  Cumhurbaşkanlığı Kabinesi toplandı
+-  "Ben bilirim" 1000. bölümü yayınlandı!
+-  Pineda: Gazze'de gazeteciler özellikle hedef alınıyor
+-  Davinson Sanchez: Kopenhag maçına her zaman olduğu gibi kazanmak için çıkacağız
+-  Suspect caught in connection with dead woman found in Amsterdam river
+-  Manfaat Bisnis dan Tujuannya yang Perlu Diketahui
+-  Gibran Bagi-bagi Susu di CFD, Bawaslu DKI akan Panggil Semua Pihak yang Terlibat
+-  مؤشر "الأسهم السعودية" يغلق مرتفعًا عند 11174 نقطة
+-  "إسرائيل" تعلن إسقاط صاروخ في البحر الأحمر قبل استهداف إيلات
+-  Ильхам Алиев: Должен быть легкий доступ из Азербайджана в Нахчыван, это наше законное право
+-  Libur Nataru, Yogyakarta Targetkan Dulang 800 Ribu Wisatawan
+-  السكرتير العام المساعد بأسوان يتابع جهود تحويل منطقة الصحابي لمجتمع عمراني نموذجي
+-  مصدر بالنقل لـ الشروق: ارتفاع معدلات العمل في إنشاء محطات الخط الأول للقطار السريع
+-  Ukraiņu nacgvarde iznīcina Krievijas jaunāko pretgaisa aizsardzības sistēmu "Vitjaz"
+-  Ахмети: На 28 јануари ќе имаме премиер Албанец
+-  Aircraft MRO Market Will Generate New Growth Opportunities in Upcoming Year 2030
+-  CEO OpenAI: Sẵn sàng giúp đỡ các công ty khởi nghiệp về công nghệ ở Việt Nam
+-  Dejó FGE ir 3 veces al asesino de maestra
+-  'A pulir talento'
+-  목 조른 정황도…'아내 둔기 살해' 변호사 구속
+-  Woman described as ‘beautiful soul’ killed in east London shooting
+-  HubSpot Consulting and Implementation Market to Witness Huge Growth by Key Players: SmartBug Media, SmartSites, CIENCE, Webdew, Girikon, Net Solutions, Iron Horse, Salted Stone
+-  اتش سي تتوقع نمو الاقتصاد المصري بنسبة 4% خلال العام المالي الجاري
+-  김정은·신지현·양인영·정예림 빅4 67점 합작, 하나원큐가 달라졌어요, 10G 4승이라니, 강력한 김정은 효과, 신한은행 4쿼터 1점 대참사
+-  최성원 3점슛 6방, 먼로 트리플더블급 활약, 정관장 EASL 2승째, TNT 트로팡 기가 제압
+-  “‘앤트맨3’ 배우가 말다툼 도중 머리 때려, 극단적 선택 위협” 전 여친 법정 증언 “충격”[해외이슈]
+-  انتخابات الرئاسة.. مؤتمر شعبي لحزب مستقبل وطن بالشرقية لدعم المرشح عبدالفتاح السيسي
+-  Gagal Pangkas Emisi, Ratusan Rumah Sakit Indonesia Berisiko Ditutup pada 2050
+-  Tunisie : Le projet de la route du patrimoine mondial de l'UNESCO, lancé
+-  Nacionālais teātris prezentē pirmizrādes un lojalitātes karti lētākām biļetēm un kūciņām
+-  O que explica a falta de internet em uma a cada três casas de Blumenau nesta quarta-feira
+-  Sidi Bou Said : Le chœur de chant spirituel poursuit un cinéaste en justice
+-  Italië stapt uit Nieuwe Zijderoute van China
+-  Europese Commissie wil autodeal met Verenigd Koninkrijk verlengen
+-  OM eist 8 jaar cel en tbs tegen Vlijmense leraar in zedenzaak
+-  Nieuwe Tweede Kamer geïnstalleerd, met 68 nieuwkomers
+-  Lisa Paus: Familienministerium prüft weiteren Aufschub der Kindergrundsicherung
+-  Alexandre Pires se trancou por mais de uma hora em cabine de navio durante operação da PF
+-  Gewonde door steekincident in Ter Apel
+-  ‘Perfect fit’: Jacques Nienaber on his decision for moving to Ireland
+-  Hanukkah message of light in darkness feels uniquely relevant to US Jews amid war, antisemitism
+-  السكرتير العام للبحيرة يتابع الاستعدادات النهائية بلجان الانتخابات الرئاسية في حوش عيسى
+-  Opozícia chce, aby Generálna prokuratúra preverila postup Ministerstva zdravotníctva pri kategorizácii nemocníc
+-  Spevák (46) slávnych hitov šokuje: Ide do dôchodku a chce slúžiť Bohu!
+-  Zo zavalenej bane zachránili muža: Neveríte, koľko dní tam strávil!
+-  Začala sa 6. schôdza: Poslancov čaká viacero zmien v zrýchlenom režime
+-  Krajský súd potvrdil podmienku pre policajta: Pri streľbe na auto usmrtil mladíka
+-  Sociálna poisťovňa stanovila aktuálnu dôchodkovú hodnotu: Takáto bude na rok 2024
+-  Speváčka Ronie vzdala HOLD Barbare Haščákovej: Prespievala SEN… Dojme vás k slzám!
