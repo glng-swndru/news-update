@@ -1,51 +1,51 @@
 # Latest News
--  תורג'מן ושמיר בהרכב ב"ש, גם גורדנה פותח מול סכנין
--  İYİ Parti'de bir istifa daha
--  Oktay Derelioğlu'nu darp eden iki kişi tutuklandı
--  Beşiktaş-Fenerbahçe derbisinin bilet fiyatları açıklandı
+-  Cumhurbaşkanı Erdoğan: İsrail hesap verecek, Netanyahu nereye kaçar bilemiyorum
 -  ABD, 4 Rus askeri savaş suçu işlemekle suçladı
--  Rusya: Ukrayna’ya ait Su-25 ve Mig-29 savaş uçaklarını vurduk
--  Cumhurbaşkanı Erdoğan'dan asgari ücret açıklaması
--  Marcelo Tinelli durísimo contra Jonatan Viale: "Ojalá sea condenado él y el grupo donde trabaja"
--  Blocking Legal Proceedings Against Trump Would Damage Democracy | Opinion
--  Nach iOS-Update: Experten entdecken ungeahnten Speicher-Fresser
--  СК возбудил дело по факту убийства экс-депутата Рады Кивы в Подмосковье
--  Feral Horses Shot by Helicopter in Plans To Cull 14,000
--  محمد المنصوري يتألق بماراثون تكنولوجيا المعلومات في "الظفرة للكتاب"
--  Mom Shweta, mamu Abhishek share childhood pics to wish Navya on her birthda
--  Pantsir: Russia’s Air Defense System Gets Upgrades Making It Leaner, Meaner Fighting Machine
--  كربلاء.. الدعاية الانتخابية تؤشر "شبهات فساد" ومنظمات تطالب بالمساءلة
--  Krill Yağı: Sağlığınıza Yararları ve Kullanımı
--  GOP Rep. Kevin McCarthy of California is resigning months after his ouster as House speaker
--  Halbzeit beim Klimagipfel: Jetzt muss Butter bei die Fische
--  Zamestnanci UniCredit Bank vstupujú do štrajku, požadujú vyššie platy a odmeny
--  Krievijas jaunatne nealkst pēc tradicionālajām vērtībām
--  Пасечник: погибший при взрыве депутат ЛНР Попов был желанной мишенью для Киева
--  Krep Yapımı: Lezzetli ve Pratik Tarifler
--  Richter sollen bei Staatsanwaltschaften aushelfen
--  Prezes Grupy Altum złożył oświadczenie w związku z karą nałożoną na spółkę EC Będzin Wytwarzanie
--  Spadek jednostkowego kosztu pracy w USA większy niż szacowano
--  Ekspert PIE: powrót do obniżek stóp procentowych w II poł. 2024 r.
--  G7 sammiti başladı
--  McDonald's planuje największą ekspansję w historii. Zamierza otworzyć 10 tys. nowych lokali
--  'Wake up call' for energy industry as confidence dips
--  4 Months After Coup, Niger Withdraws From Military Cooperation Pact With EU
--  Parts of Australia and US removed from UK gender recognition certificate list
--  Tudun Biri bombing: Yar’Adua kicks against calls for COAS’ resignation
--  Κατερίνα Γερονικολού για Γιάννη Τσιμιτσέλη: Μέσα του προτιμά να είμαι χαρούμενη από το να μπει ένα πλυντήριο
--  Oh du Sparsame: Newsletter Unbezahlbar
--  Oh du Sparsame: Newsletter Unbezahlbar
--  MAIL team leaves for Russia to attend global conference
--  Совет Федерации 7 декабря рассмотрит вопрос о дате выборов президента
--  UFC: Saint Denis-Frevola, le film inside de la naissance d’une star française du MMA
--  Stor stjerneskudssværm pryder himlen i december
--  Stor stjerneskudssværm pryder himlen i december
--  Dodatne tri godine podrške za Windowse 10 – onima koji plate
--  Kremalı Makarna: Lezzet Dolu Bir Tarif
--  بيان عاجل.. القوات المسلحة اليمنية تطلق دفعة من الصواريخ الباليستية على أهداف عسكرية إسرائيلية
--  Prozess nach Explosion in Eschweiler: Vater beteuert seine Unschuld
--  মুশফিক কি নিয়ম জানতেন না?
--  Preside esposa del rector festival navideño de la UAT 2023
--  'It's on': Perth Scorchers eye BBL's first three-peat
--  Basket. De nouveau battu à Boulogne, le Caen BC voyage toujours sans défense
--  1 child killed, 3 injured in Sar-i-Pul blast
+-  Aliyev: ABD, bu sürece katkı sunabilir
+-  Trump: Sınırı kapatmak istiyorum
+-  Procuradoria Europeia acusa 27 arguidos na Operação ‘Admiral’
+-  Llega Putin a Arabia Saudita
+-  Montarán centros de votación en escuelas
+-  Pide CCE no reducir por ahora jornada laboral
+-  Ejecutada en casa de Quintas Carolinas se llamaba Leslie
+-  Il giorno più bello: tutto quello che c’è da sapere sul film
+-  #google is ending the year with a big update for Pixel devices
+-  La Policía Local de San Bartolomé de Tirajana se exhibe
+-  InventHelp Inventor Develops New Tool Belt for Cedar Shingles & Cedar Shingling Tools (BKC-128)
+-  Abascal: "No vamos a ser cómplices de las mentiras de Feijóo"
+-  Functional Pet Treat Market is Expected to Exceed Value of $722.8 Million by the End of 2031
+-  तोरी फुलेर किसानका खेत पहेँलपुर (फोटो फिचर)
+-  S’il gagne le In-Season Tournament, Jose Alvarado offrira les 500 000 dollars à ses filles
+-  Le pari NBA du jour, avec la cote boostée TrashTalk : Trae Young cartonne face aux Nets
+-  Država kasnila godinu i po dana sa subvenciom za kragujevački Fijat
+-  Le Tea Time de Noël et d'hiver magique du Joy à l'Hôtel Fouquet's Paris 2023
+-  এখন তো ভাইরাল হওয়ার যুগ
+-  News24 Business | NHI one step closer after NCOP votes in favour of bill
+-  Putinin BƏƏ-yə səfərini 4 döyüş təyyarəsi müşayiət etdi
+-  Fiorentina Parma streaming e diretta tv: dove vedere la partita di Coppa Italia
+-  نواز ،ترین اورخٹک ’’وڑ‘‘ گئے، عوام نے فیصلہ دیدیا،شیر افضل مروت
+-  Rep. Kevin McCarthy retiring from Congress after being ousted as House speaker
+-  5 Best Tablet Stands for Enjoying Hands-Free Entertainment
+-  Mitä Suomenlahdella tapahtuu? Vartiolaiva Turva alkoi seurata outoa alusta
+-  Cost assessments for training policemen at Azerbaijani Police Academy to develop - decree
+-  Eurokomisia vyzvala slovenskú vládu, aby nerušila špeciálnu prokuratúru
+-  Private payroll growth misses expectations
+-  LiveU presenta soluciones innovadoras para la seguridad pública y privada en Expo Defensa 2023 en Bogotá
+-  La ilicitana Miriam Hurtado gana la Copa de Campeones de culturismo
+-  Prozess nach Explosion in Eschweiler: Vater beteuert Unschuld
+-  Prozess nach Explosion in Eschweiler: Vater beteuert Unschuld
+-  Återstarten av Ringhals 4 pausas
+-  Новият парламент на Нидерландия положи клетва
+-  Bemidji woman sentenced to life in prison for August 2022 murder
+-  Top 10 najplaćenijih sportašica – skoro sve su tenisačice
+-  E-40 says performing at the Grammy's concert special will be like “a big family reunion.”
+-  Consuelo Duval es víctima de audaz robo con el método de la ‘Patrona’ e Inteligencia Artificial
+-  How to Watch the Fourth Republican Presidential Debate Online Without Cable
+-  Spektakuläre Weihnachtsaktion: Nikolaus und Superhelden heitern Kinder in Klinik auf
+-  Bioprocess Validation Market Landscape: Insights, Innovations, and Growth Potential (2023-2030)
+-  Ajdari: Cila është lidhja mes vrasjes së Vanjës dhe vrasjes te Liqeni i Smilkovës?
+-  Caroline Glachan: Suspect denies leaving a woman’s home
+-  Avatar: Frontiers of Pandora review - pretty, average
+-  Google lanza Gemini, su inteligencia artificial más potente
+-  Kevin McCarthy's run in Congress will end, capping off young gun's era of chaos and disorder
+-  Bitcoin subirá más en diciembre, podría llegar a los 48.500 dólares
