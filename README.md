@@ -1,51 +1,51 @@
 # Latest News
--  L'aide financière US à l'Ukraine remise en question, Zelensky avertit !
--  Neue Vergewaltigungsvorwürfe: Weitere Frau reicht Klage gegen US-Rapper Combs ein
--  Reactions As Portable Charges $10k For Shows, Others
--  You can't beat the Logitech G735 at the price of $159.99
--  ‘Multiple victims’ in shooting at University of Nevada, suspect ‘deceased'
--  Reportan desaparición de un helicóptero de Guyana con ocho militares en el Esequibo
--  «Im Saarland kann man gut feiern»: Partylaune in Saarbrücken
--  'It’ll happen': Mikel Arteta shares confident prediction about Arsenal’s Declan Rice
--  Pellegrini: "Tuvimos espíritu para no bajar los brazos y pelear hasta el final"
--  Booder se confie sur les derniers moments passés avec Mouss Diouf, juste avant sa mort
--  Expert Seeks Employment Of Health Technologists
--  À quand le recul des taux d'intérêt?
--  NZ politics live: ACT MP Brooke van Velden rebuked for 'misleading' statement
--  Sanchez'den Guterres'e destek
--  ABD'de üniversitede silahlı saldırı alarmı
--  Enis Destan: Kupa bizim hedefimiz
--  Wyndham’s golf champs
--  SNX: This Week’s Best Sneaker Drops, Featuring The Nike AAF88 Billie Fire Red And The Jordan 11 Gratitude
--  Aspira održala dva zanimljiva predavanja - kako se poduzetnici nose sa stresom i kako gledati na umjetnu inteligenciju
--  В Петербурге откроется конференция по вопросам противодействия COVID-19
--  افتتاح حساب للمملكة في منظمة iRAP العالمية لتقييم الطرق
--  Sinagogas y mezquitas, en alerta por posibles actos de odio según Fiscal General de EEUU
--  Az ukrán elnöki hivatal vezetője felhívta Szijjártót, hogy előkészítsék Orbán és Zelenszkij találkozóját
--  Polícia reaguje na hlásenie o streľbe na univerzite v Las Vegas
--  В концепции "Города-Университета" учтут пожелания жителей Новгорода по инфраструктуре
--  Aparatosa volcadura de camioneta en Salina Cruz
--  Beware of new iPhone "one twelve" social media trend
--  McDonald’s turns to Google for AI chatbot to help restaurant workers
--  Así luce hoy Violet, la hija de Ben Affleck y Jennifer Garner que irá a la universidad
--  Афины и Анкара в ходе визита Эрдогана в Грецию подпишут некоторые соглашения
--  SAD SAM IZAŠAO IZ POLICIJE! Nakon što mu je zapaljen auto, oglasio se vidno uznemiren Taki: Neko je pokušao da mi naudi
--  إحباط تهريب 4 أفارقة على متن شاحنة خضروات
--  مجلس المستشارين يصادق بالأغلبية على مشروع قانون المالية لسنة 2024
--  George R.R. Martin says the House of the Dragon season 2 premiere is "very dark" and "may make you cry," and now we're worried about all of our favorite characters
--  В Петербурге в форуме "Арктика: настоящее и будущее" примут участие более 2 тыс. экспертов
--  New England-bound flight diverted to Jacksonville after ‘perceived security threat’
--  El presidente de Flamengo disparó contra River por De La Cruz
--  Murió Denny Laine: la emotiva despedida de Paul McCartney
--  Avião da FAB leva ajuda humanitária a Gaza e espera trazer repatriados
--  Asia-Pacific Hoses Market Report Offers Key Futuristic Top Trends, Research Methodology and Competitive Landscape
--  Reactions As Lady Sat On Iyanya’s To Take Selfie With Kizz Daniel
--  ЕС и Китай обсудят на саммите в Пекине торговые противоречия, Украину и Ближний Восток
--  ولي العهد: توسيع مجالات التعاون لنهضة الشعبين السعودي والقطري
--  Ice Spice Signs With WME for International Representation
--  Zbulimi befasues vjen nga Franca: “Milan Lab është shkaku i dëmtimeve të shumta”
--  Diesen Hochzeitslook trägt Prinzessin Kate zum zweiten Mal
--  MISLITE I NA NAS Praznična dekoracija unosi veliku radost u naš dom, ali može predstavljati opasnost za ljubimce - obratite pažnju!
--  Путин и саудовский кронпринц «сверили часы» по вопросам общих интересов стран
--  СФ назначит дату выборов президента на 17 марта и обсудит обращение к ООН
--  Gálvez tendrá sus hijos como parte del equipo de precampaña: ¿A qué se dedican y qué harán?
+-  Đilas ima "amneziju"? Napao Vučića zbog odluke koju je doneo njegov zamenik VIDEO
+-  Aprehenden a cinco extranjeros con presunta droga en Bella Vista
+-  Reclusos de la Joyita se rencuentran con sus familiares
+-  Join our Team! AUKUS foreign expenditure sinkhole blows out to $12B … already
+-  Sri Lanka’s Apparel industry triumphs over 31 awards at the 25th Presidential Export Awards
+-  Point marchés-Wall Street termine en baisse, l'énergie pèse
+-  Did I drink myself stupid because I'd inherited 'alcohol genes' asks Julie Cook - Revealing DNA research link alcohol consumption with genetics
+-  En Monagas no se ha prohibido la utilizacion de juegos pirotécnicos
+-  Детей учить некогда
+-  Man accused of Paris attacks handed terror-linked charges
+-  Wall Street craint que l'économie ne ralentisse trop et termine en baisse
+-  Presidenta del Congreso, Shirley Rivera, confirma que recibieron oficio por parte del TSE para elegir magistrados suplentes
+-  Obsessed stalker, 45, is jailed for LIFE for killing comedian Drew Carey's ex-fiancée by throwing her off third-story balcony in Los Angeles
+-  "Milan venduto e torna Maldini": una voce clamorosa, chi può prendersi tutto
+-  ¡Aúlla el Lobo! Raúl Jiménez marca doblete con el Fulham y se luce en la Premier (Videos)
+-  Efter COP28 bør de danske klimaplaner ændres – og inkludere moderne atomkraft
+-  PISA: Skolelevernes evne til at læse og regne styrtdykker – skolerne mangler disciplin, stærk ledelse og dygtige lærere
+-  “El juego del calamar: El desafío 2″: lo que se sabe sobre la temporada 2 del reality de Netflix
+-  Глава офиса Зеленского заявил о телефонном разговоре с Сийярто
+-  Germania - România » Primul meci din grupa principală la Campionatul Mondial
+-  I won more official darts titles than Phil Taylor but still had to work nights at Royal Mail – people don’t believe me
+-  “قادربوه” يبحث مع مجلس الدولة إيجاد حل سريع للصعوبات أمام علاج المرضى بالخارج
+-  Win Lidl vouchers, Jurassic Live tickets and £200 soft play set today – enter here for free
+-  Μπασκόνια - Φενέρμπαχτσε 80-79: Απίθανος Χάουαρντ... εκτέλεσε τους Τούρκους
+-  Steve Jobs wrote a check to Radio Shack in 1976. Now it's up for auction
+-  Fortnite players slam “complicated” weapon mods in Chapter 5
+-  بالفيديو.. «تكامل 1».. جاهزية واستعداد ومهارة للقوات البرية بدول «التعاون»
+-  Prince Constantin of Liechtenstein dies ‘unexpectedly’ aged just 51 leaving behind Princess & their three children
+-  24/7 solar towers could double energy output
+-  Taylor Swift spricht über Beziehung zu Football-Star Travis Kelce
+-  Miazga w hicie PlusLigi! Tego nikt nie mógł przewidzieć. Kadrowicz się bawił [WIDEO]
+-  Væpnet politiaksjon i Loddefjord etter trusselsituasjon
+-  iPhone SE 4 May Reuse Existing iPhone 14 Battery
+-  GameStop manque ses estimations de revenus en raison de la baisse de la demande de jeux vidéo
+-  Hati-hati Sering Memencet Jerawat, Bisa Buat Pori-pori Membesar
+-  США приостановили участие в ДОВСЕ
+-  Sweet moment Queen's equerry is helped by boy, 4, in annual tradition of decorating a Clarence House Christmas tree with a blade - but Camilla warns 'careful of the sword!'
+-  Roundup: Big Brother 2023 winners, Time’s Person of the Year, My Mum Your Dad axed
+-  Automakers, dealers and shoppers dawdle on EVs despite strong year in US sales growth
+-  Man walks into dog wash business in Ascot Vale, steals linen and personal items
+-  COVID-19, respiratory disease rates remain elevated, OPH reports
+-  La rénovation massive de l'aéroport JFK emprunte un chemin sinueux sur les marchés de la dette
+-  10 best laptop deals you can get before Christmas
+-  [백악관 “우크라 예산처리 못하면 푸틴에 크리스마스 선물하는 꼴”
+-  [구글, 사람 능력 넘는 AI 언어모델 ‘제미나이’ 공개…“GPT-4보다 뛰어나”
+-  [마이데이터 과금체계 구축…정보전송비용 과금원칙 제시
+-  [맑고 포근한 ‘대설’…낮 최고기온 9∼14도
+-  Cyprus pitches humanitarian corridor in meeting with UK defence minister
+-  WTI 5개월만에 배럴당 70달러 ↓…中경기우려에 유가급락
+-  تراجعات حادة لأسعار النفط
