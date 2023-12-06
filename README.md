@@ -1,51 +1,11 @@
 # Latest News
--  맨유 선수단 대대적인 변화 생길까? 영국 갑부의 인수 절차 ‘다음 주 공식 발표 예정’
--  إيديكس 2023.. تفاصيل مباحثات "العربية للتصنيع" ووزيرة دفاع أوغندا
--  لبنان: سنقدم شكوى لمجلس الأمن بعد استهداف إسرائيل للجيش اللبناني
--  مشروع "سترة".. إعادة تأهيل 34 منزلا للأسر الأكثر احتياجا في المنيا
--  ضمت 1052 متهمًا.. الداخلية تضبط 767 قضية آثار متنوعة خلال عام
--  سي إن إن: الحرب في غزة ستستمر حتى يناير
--  أردوغان: تركيا ترفض خطة "المنطقة العازلة" لغزة
--  رئيس مصنع المحركات: مصنعنا الوحيد في العالم الذي يجري عمرات لمحركات الطائرة البافلو
--  الطيران المدني: جار التحقيق في حريق مخزن تابع لشركة بمطار القاهرة
--  فرنسا تدين قصفًا إسرائيليًا أسفر عن مقتل جندي لبناني
--  بدء العد التنازلي.. محافظ الإسكندرية يتفقد اللجنة العامة للانتخابات الرئاسية بفيكتوريا- صور
--  والده مصري.. أبرز المعلومات عن سيبرايل لاعب بروسيا دورتموند السابق
--  لاعب الزمالك يتلقى عرضا من الدوري المغربي
--  22nd Col. Henry Steele Olcott Cricket from December 8 to 10
--  Тошкентда Европа – Ўзбекистон иқтисодий ҳамкорлик ассоциациясининг филиали очилди
--  Янги таҳрирдаги Конституция инсон ҳуқуқ ва манфаатлари кафолати
--  Конституция – миллий ва умуминсоний қадриятлар пойдевори
--  Университетда “Очиқ эшиклар куни” ўтказилди
--  Қўнғиротда байрам шукуҳи
--  LVBP rompe el silencio tras polémica con el padre de Ronald Acuña Jr: Estas son las medidas que tomarán
--  San Jose baker to compete on Food Network’s Christmas Cookie Challenge
--  Le PSG lui déroule le tapis rouge, il demande 8M€ !
--  Objavljeni podaci o poreznim uplatama, broju zaposlenih i fiskalnom prometu po kantonima
--  Тейлор Свифт обошла Путина в рейтинге «человек года» журнала Time
--  Centre Initiates Commercial Auctions, 91 Blocks Auctioned Under Commercial Auction Scheme
--  GoI, ADB Formalise Rs 175 Mn Loan For Enhanced Road Network In Madhya Pradesh
--  Centre Initiates Auction Of Critical Minerals, Identifies 30 Crucial Resources
--  Centre Advances e-Panchayat Mission Mode Project Under Digital India Programme
--  NHAI's Strategic Moves Present Clear Roadmap For Debt Repayment Amidst Project Delays
--  Soccerladuma | ‘I Play The South African Way'
--  Rodina z Moravy výrazne znížila náklady na energie aj vďaka expandovanému polystyrénu
--  오태완 의령군수 공직선거법 재판 선고 내년으로
--  출범 3주년 진실화해위원회 "조사 기간 연장 시급"
--  부산 간 윤석열 "엑스포 불발에도 가덕신공항 2029년 개항"
--  과방위 소위 논의 무산 우주항공청법 '2+2협의체'서 돌파구찾나
--  도의회 교육위, 내년 교육청 예산 204억여 원 삭감
--  Umstrittenes Gesetz: Söders Kreuzerlass kommt erneut vor Gericht
--  Lider UN-a za ljudska prava upozorio na povećan rizik od 'zvjerskih zločina' u Gazi
--  타고난 힘에 강한 승부욕 '제2의 장미란' 될래요
--  – ألمانيا تعترف بالتأخير في تسليم الأسلحة إلى أوكرانيا
--  Otomotiv ihracatı kasımda yüzde 10 arttı
--  İsrail'e soykırım ortağı ABD'den 200 kargo uçağı dolusu askeri teçhizat
--  Sivasspor'da Ziraat Türkiye Kupası hazırlıkları tamamlandı
--  Hrant Dink'in katili Ogün Samast'a yurt dışına çıkış yasağı
--  İtalya'dan Çin'e nota: "Kuşak ve Yol Girişimi"nden çekildik
--  Arda Turan'ın takımı Eyüpspor, Türkiye Kupası'nda bir üst turda
--  Neuer Kaufland-Service zu Weihnachten: So sparen Kunden Beim Großeinkauf Zeit und Stress
--  Norweski związek zablokuje dostawy aut Tesli do Szwecji
--  BFG: po dziesięciu miesiącach wynik netto sektora bankowego rósł o 179,8 proc.
--  Mohammed bin Rashid inaugurates the largest CSP project in the world within the fourth phase of the Mohammed bin Rashid Al Maktoum Solar Park
+-  SGK uzmanından yüksek emekli maaşı ve kıdem için önemli tarih uyarısı!
+-  В Геленджике заключили под стражу мужчину, подозреваемого в совершении особо тяжкого преступления
+-  [효민, 이름 내건 주류 출시…다재다능 면모 입증
+-  [‘K’없는 한류는 가능한가? 한류, 경계를 넘어서: 딜레마와 과제
+-  В Новом Осколе Белгородской области открылась площадка для организации добрых дел и проектов
+-  Kasus COVID-19 dan Influenza Meningkat, Cek Gejala yang Beda dan Serupa
+-  Донецкий республиканский канал вошел в список победителей международного фестиваля
+-  В Серпухове провели литературный вечер «Я встретил вас…»
+-  Cəlilabadda ağır yol qəzası
+-  Preminula glumica Jelena Čvorović Paunović, voleli smo je u "Porodičnom blagu"
