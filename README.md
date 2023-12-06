@@ -1,51 +1,51 @@
 # Latest News
--  More Polish charter flights to SL in winter season
--  Saudi Arabia lures businesses with 30-year tax cut offer
--  Marella Discovery 2 cruise liner calls on Colombo
--  13th round of ETCA talks to take place in India in January
--  Cabinet nod to strengthen financial sector safety net with $ 150 m World Bank loan
--  National Evaluation Monitoring Committee to operate from 2024
--  SJB to hold protests in January to oust Govt.
--  COPF approves VAT increase to 18%
--  Sri Lanka likely to receive second IMF tranche next week: Govt.
--  RW to kick off ‘development-driven economic program’ on 1 January
--  Chi vince X Factor, le quote: testa a testa per i bookie
--  نقيب صيادلة القاهرة يكشف أسباب نقص الأدوية فى الصيدليات
--  Fenerbahçe Beko, İspanya'dan üzgün dönüyor!
--  Poliisi otti kiinni 68 ihmistä Helsingin itsenäisyyspäivän mielenosoituksissa
--  الأمم المتحدة: سكان غزة يعيشون في رعب مطلق
--  韓 대표팀 울린 日 '혼혈 특급유망주'…'GG 수상+베스트 9' 드디어 재능 폭발! 연봉 '4배' 인상 초대박
--  '타격 4관왕+MVP' KBO리그 폭격한 외인, '친정' KT 리턴하나…"이야기 나누고 있다"
--  정기고, 2년 10개월만 컴백에 "자숙 얘기 많더라, 사고 안쳤다" [영스트리트]
--  Cops fighting to stop a wave of deadly manufactured ‘Frankenstein’ opioids swamping Scotland
--  롤드컵 효과 없었다… 이스포츠 세액 공제 법안, 국회 통과 불발
--  Na letisku v Mníchove primrzlo lietadlo k dráhe: Smerovalo na klimatický samit v Dubaji
--  Záhadná smrť pornohviezdy Sophie Anderson: Zomrela len dva týždne po svojom partnerovi
--  Hollywoodska hviezda ako Popoluška: Z akcie utekala bez topánok… Eva, nezabudni si črievičky!
--  LG Is Having A Rough Year As OLED TV Sales Fall, Now Come The Layoffs
--  Policijski časnik i konzul pri Veleposlanstvu Japana u riječkoj policiji
--  إسرائيل تستقبل الطائرة رقم 200 المحملة بالأسلحة الأمريكية
--  Начштаба СОБР «Рысь» задержали после обнаружения тел с гирями на ногах
--  Bacaan Niat Sholat Dhuha dan Doa Setelahnya untuk Kelapangan Rezeki
--  Why you shouldn’t hold in a sneeze: Man ruptures windpipe while holding his nose
--  Polémica por la Fiesta de la Pera: «Si no se hace en este predio, sería una gran ofensa», dijeron desde Camioneros
--  لبنان يرد على قصف إسرائيل جيشه بشكوى لمجلس الأمن
--  Rishi Sunak caught in Tory civil war after immigration minister Robert Jenrick resigns over ‘weak’ Rwanda plan
--  "غير متوقع".. دي بروين حاضر مع مان سيتي في مونديال الأندية
--  Nigeria : L’ONU veut une enquête après une attaque de drone sur des civils
--  Etter en time kom Sagosen ut: – Horribelt
--  Abendua, hotza eta Gabonetarako gozoak, denak batera iritsi dira
--  Las Vegas police say suspect dead after reports of university shooting
--  의협, 의대 정원 확대 반대 ‘철야 시위’ 돌입
--  대원제약 ‘펠루비’ 복합제 개발 시동 … 트라마돌 조합 연구 진행
--  Nadler legitimizes anti-Zionism, Nikki’s ‘best against Joe’ edge and other commentary
--  Premian innovación de alto impacto
--  Trickster, 50만 회가 넘는 뮤직비디오 조회수 기록
--  Wall St ends lower as investors weigh fresh employment data
--  محمد بن زايد وبوتين: «حل الدولتين» أساس السلام في المنطقة
--  ‘I Think I Need A Mink’: Margot Robbie Said The ‘Barbie’ Boys Were Stoked They Finally Had ‘Permission’ To Wear Pink
--  Димитриеска Кочоска: ВМРО-ДПМНЕ е апсолутен фаворит на изборите, според анкетите, во секое населено место води
--  Liverpool vence lanterna, segue na briga pelo topo e não deixa Arsenal disparar na Premier League
--  СЭ: «Зенит» не намерен продавать Вендела, Клаудиньо, Барриоса и Кассьерру
--  Fulham laganini Forestu utrpao pet komada, Liverpool se namučio za nova tri boda, a Bournemouth ponovno iznenadio
--  Otkriveno s kim se Banožić družio nakon izlaska iz bolnice: Ovo bi moglo utjecati na istragu
+-  Stability anchors insurance sector rebound
+-  New tax measures critical to drive State programmes
+-  Zeengaz wins best youth business award
+-  Wine industry’s bushfire recovery made possible by funding
+-  ‘SeedCo Int stocks enough to meet regional demand’
+-  Petrotrade, Genesis merger conclusion by June
+-  Willdale gets three SAZ certifications
+-  Founding, opposing and answering affidavits
+-  Capital Markets Awards to honour top players
+-  ‘Baby Shark’s Big Movie’: How to Watch Online for Free
+-  رافا مير يعوض النصيري في الكأس ويتأهل للدور المقبل
+-  FCU Craiova - FCSB și Dinamo - Oțelul sunt meciurile zilei în Cupa României Betano » Toate calculele pentru calificare
+-  Luptă în 3 pentru sferturi » Cum arată calculele în grupa A din Cupa României Betano
+-  Stručnjakinja za odnose: ‘Ovo je 8 znakova koji pokazuju da ste u vezi s narcisoidnom osobom’
+-  ‘음바페 빨리 결정해! 1월 15일까지 시간 준다!’ 레알의 최후통첩, ‘PL 폭격기 영입할 거야!’
+-  Debata o pokrajinskim izborima: Do promene režima preko promene u Beogradu, ali i u Vojvodini
+-  Bradesco Asset lista seu primeiro Fiagro, com captação abaixo do esperado
+-  Модель в прозрачном платье с принтом в виде нижнего белья пришла на премию
+-  Binance Settlement: A Turning Point for Cryptocurrency Markets
+-  À espera de saída do controlador francês, GPA foca em operação “100% brasileira”
+-  Papa Francisco abraza al Teléton 2023 con un acto de inmensa generosidad
+-  Warming oceans could thaw trapped ‘fire-ice’
+-  Rheumatoid arthritis drug ‘offers new hope for type 1 diabetics’
+-  Twitch Is Suspending Operations In Korea in 2024
+-  B.C. man who stabbed brother 36 times to serve a decade in jail
+-  Kecskeméten új naperőmű épült
+-  $70M Granville hotel sale the biggest in Vancouver since 2017
+-  Desenrola renegocia R$ 29 bilhões em dívidas e programa deve ser prorrogado
+-  En qué momento del día es conveniente hacer ejercicio para controlar el síndrome metabólico
+-  Michelle Alexander afirma campaña en contra de “Perdóname”: “Lo dicen personas con 7 puntos de rating”
+-  Teška pobjeda Liverpoola protiv posljednje momčadi Premier lige
+-  Ice Spice Says This ‘Gorgeous Man’ Was Her First Celebrity Crush
+-  Credit Suisse diz que venderá negócio de gestão de fundos imobiliários no Brasil para Pátria por até R$650 mi
+-  Josie Gibson says she feels responsible for Fred Sirieix’s I’m A Celebrity exit
+-  Sebastian Vettel: Entscheidung gefallen? Bericht um Ex-Formel-1-Star sorgt für Aufregung
+-  Wetter in NRW: Nach Winter-Walze – Experte völlig baff: „Mein lieber Mann“
+-  Reunião entre Lionel Scaloni e presidente da AFA é adiada
+-  OHL Baltijos čempionate Lietuvos klubų akistatoje pergalę iškovojo „Airwell Energija“
+-  Aubameyang guía al Marsella y hunde más al colista Lyon
+-  Fiji Airways aircraft returns to Nadi mid flight
+-  FAB enviará avião para resgate de brasileiros na Faixa de Gaza
+-  F1 X FIA: Ben Sulayem, um presidente encurralado no próprio jogo
+-  Senate censures Conservative senator for supporting the Freedom Convoy
+-  كويفن كيليهر يحافظ على نظافة شباكه للمرة الثالثة بمسيرته
+-  Cyberactivity targeting elections on rise, says report from Canada’s e-spy service
+-  Dow Jones и S&P 500 се оцветиха в червено за трета поредна сесия
+-  DFB-Pokal: Saarbrücken-Fan rast während Autokorso in Haltestelle
+-  Le blé progresse au troisième jour des ventes américaines à la Chine ; le soja et le maïs reculent
+-  INPE ordena liberar al expresidente Alberto Fujimori
+-  رقم سلبي غير مسبوق في مسيرة جوارديولا !
