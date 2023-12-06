@@ -1,11 +1,11 @@
 # Latest News
--  Bývalý predseda Snemovne reprezentantov McCarthy oznámil odchod z Kongresu
--  Hrozí vám cirhóza pečene, aj keď nepijete alkohol? Spozornite, ak sa deje toto! - Plnielanu.sk
--  Časť Slovenska môže naďalej potrápiť sneženie a poľadovica
--  Dostupný je aj pre Slovákov: Všimli ste si projekt Lidla a známej značky?
--  Drei Studenten aus Hannover sind die Gewinner der Sportmesse Ispo
--  Twitch will cease operating in Korea, CEO says costs are too high
--  „Das perfekte Dinner“ in der Region Pfalz: Kandidaten, Menüs, Punkte – die Woche im Überblick
--  Kinderarzt Schkeuditz: Stadt sucht nach Interessenten für zweite Praxis
--  52 sea turtles experiencing ‘cold stun’ in New England flown to rehab in Florida
--  أطباء بلا حدود: هناك مسلسل استهداف متكرر لكافة الطواقم الطبية في غزة
+-  Bildungsverbände lehnen Söders angekündigte Gender-Verbot ab
+-  Urteil gegen Doppelmörder bestätigt
+-  Hessen leiden besonders häufig an chronischen Schmerzen
+-  Höhenretter im Nikolaus-Kostüm machen kleinen Patienten eine Freude
+-  G7-nin Ukraynaya dəstəyini davam etdirməyə hazır olduğunu açıqladı
+-  Morgan Wallen Reflects on Racism Scandal: ‘Put Myself in a Sh*t Spot’
+-  9 lat temu Ubisoft potrafił zrobić grę, która wyciskała łzy; kupicie ją teraz bardzo tanio na Steam
+-  Mercosul espera assinar acordo com UE “muito em breve”, diz chanceler
+-  Multinacional separa US$ 127 milhões para pagar multas por corrupção no Brasil
+-  ‘Doha Declaration’ urges Iraq to respect Kuwait’s sovereignty
