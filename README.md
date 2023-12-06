@@ -1,51 +1,51 @@
 # Latest News
--  Clamoroso in F1, FIA apre un’indagine su Toto Wolff: ufficiale. Il motivo
--  Juve di Allegri come quella di Conte: analogie e qualità per ribaltare i valori
--  Ciro Immobile a Boomerissima: il retroscena e la confessione inedita
--  [‘외교’에 ‘인사’까지…총선 앞둔 與 ‘험난한 12월’[이런정치]
--  ["타행 대환은 중도상환수수료 면제 안된다"…앞에선 상생, 뒤에선 ‘고객 지키기’ 꼼수[머니뭐니]
--  [여수산단 석유화학 공정혁신 시뮬레이션 센터 개소
--  [인요한 만난 김기현 “혁신안 존중해 녹인 결과물 만들 것”
--  [아이폰15 역풍이 삼성 파운드리까지…TSMC와 격차 다시 확대 [비즈360]
--  [[속보] 인요한 “김기현 대표의 희생·혁신 의지 확인”
--  A contrarreloj, dictaminarán presupuesto; días estratégicos
--  INE pide garantizar seguridad proceso electoral
--  Salomón Chertorivski: MC apuesta por jóvenes; rumbo a 2024
--  Premian a Geoparque Mixteca en Oaxaca
--  Proteger derechos del empleado ante la IA
--  Nakuru embarks on the reduction of Non-Revenue Water Management losses
--  Public encouraged to utilise Hustler Fund
--  Nakuru is keen on transforming the Coffee Industry
--  Lee Se-young, Sakaguchi Kentaro to star in Coupang Play’s ‘What Comes After Love’
--  Prodej elektrických a spalovacích aut se v Češku vyrovná v roce 2032, věří Škoda
--  İki çocuk annesi Fahriye Evcen mutluluğun sırrını verdi: Şefkatli bir yerden bakıyorum kendime!
--  Olympique Lyon'a Taylor Swift engeli
--  112 İstasyonu’nda gizli kamera skandalı! Şüpheli serbest bırakıldı
--  TV-Quoten: DFB-Pokal-Spiel zwischen Wolfsburg und Gladbach weckt wenig Interesse
--  Türkiye’de öğrencilerin fen becerisi arttı matematik ve okuma becerisi azaldı
--  현대엘리베이터, 노사정 상생 공동선언문 체결
--  효성, 연말 지역사회 나눔…김장김치에 성금도 전달
--  포스코 '판타스틸' 대한민국광고대상 금상
--  신세계인터, 택배 포장재 3분의 1 감축
--  [속보] 김기현, 인요한에 "지도부 혁신 의지 믿고 맡겨달라"
--  [속보] 인요한 "김기현 대표의 희생·혁신 의지 확인"
--  İsrail destekçisi şirketlere boykot! Starbucks 20 günde 11 milyar dolar kaybetti...
--  Meral Akşener isim vermeden Ekrem İmamoğlu'nu eleştirdi: Cakarta'nın kaosuna mahkum ediyorlar
--  Bâtiment : Pierre Martin, nouveau président de la FFB Gard, appelle à l'union sacrée
--  حاكم إقليم دارفور يختتم زيارته إلى تركيا
--  Hoax bomb call triggers search at Jammu school, case filed
--  Natalie Portman ist „offen“ für weiteren „Star Wars“-Film
--  12 milioni di download per il malware Android SpyLoan dal Google Play Store
--  Heimreise amerikanischer Gastschüler der FOS/BOS Weiden gleicht nervlicher Zerreißprobe
--  Gemlik depremi hatırlattı! Kocaeli'de deprem riski en yüksek ilçeler tek tek açıklandı! İşte en riskli ilçeler...
--  Ceres Bus Liner, sinuspende ng LTFRB matapos mahulog sa bangin ang isa nitong bus sa Antique
--  TV360 Acquires Exclusive Broadcasting Rights For Euro 2024
--  Konya Tropikal Kelebek Bahçesi, 30 bin kelebek ile Şebiarus için süslendi
--  Takijev automobil u potpunosti UGLJENISAN I UNIŠTEN: Dramatične scene odigrale su se tokom jutra – Majin otac na meti
--  Mesnevi'nin tıpkıbasımı Vuslat'ın 750. yılında Mevlana dostlarıyla buluşuyor
--  Fans in disbelief as BBC TV star spotted on Luton’s bench against Arsenal after being appointed club doctor
--  潘頓夫婦慶祝結婚十一周年
--  Sitelerde aidatların belirleneceği genel kurul dönemi başlıyor..
--  Kosam, Bölgesel Ve Sektörel Asgari Ücret Çalışmalarını Kamuoyuyla Paylaştı
--  Schwimmkurs in Tirschenreuth mit sechs Seepferdchen-Abzeichen abgeschlossen
--  Araç sahiplerine sevindiren haber: İndirim geliyor
+-  একঝলক (৬ ডিসেম্বর ২০২৩)
+-  창원LG 이재도 절정의 슛감으로 3연승 견인
+-  NC 페디 시카고 화이트삭스와 총액 1500만 달러 계약
+-  경남FC 박동혁 감독 선임 배경은?
+-  Park-and-ride plan confirmed for major traffic bottleneck in Limerick
+-  „Sportler des Jahres“: ZDF tauscht Gala-Moderation – Nachfolge für Müller-Hohenstein und Cerne klar
+-  KBO MVP Fedde signs with White Sox: reports
+-  Nat'l security advisers of S. Korea, US, Japan to meet in Seoul
+-  KB Financial hosts HUB Day to foster startups
+-  How to grow grapes – for healthy vines and great harvests
+-  Гуржистонда ғойиб бўлган россиялик фаол Россия тергов изоляторидан топилди.
+-  Мадуро Гайананинг бир қисмини Венесуэла провинцияси деб эълон қилди.
+-  Навбат Хоразмга: қурол, гиёҳвандлик ва психотроп моддалар топилди, 3 киши қамоққа олинди.
+-  Mikael Granlundista on kauppatavaraksi, Kings on ensimmäinen mestarisuosikki ja Devils ei kestä Dougie Hamiltonin loukkaantumista − NHL-viikon kuumat väitteet
+-  ৭০ বছর বয়সে মা হয়েছেন এই নারী, চিকিৎসকেরা কী বলছেন
+-  ঢাকা দক্ষিণ সিটির কেউ নন, তবু ব্যবহার করেন গাড়ি–অফিস
+-  Muharrem İnce yeni mesajını açıkladı. İnce'nin 'ince' mesajının kodları çözülmeye çalışılıyor
+-  Panicking Zimbos flood passport offices
+-  Govt’s Quest To De-dollarise Is A Losing Battle
+-  Spelinspektionen Weighs In on Sweden’s Proposed GGR Tax Adjustment
+-  Setback to Crompton Greaves: CESTAT rules transformers constitute ‘Inputs’ in terms of Rule 2(k) of CCR [Read Order]
+-  안동대, 수시모집 지원자 대상 총장님과 함께하는 미리캠퍼스 개최
+-  „Fabian, das ist Rot, oder?: Homburger Ärger über St. Pauli-Foul
+-  RTL stellt die neuen Bachelors vor: Doch die fallen bei den Zuschauern durch
+-  Benefiz: Metzgerei Kremer's spendet 5.000 Euro für Kinder in Not
+-  Klimawandel: Wenn das 1,5-Grad-Ziel scheitert – was dann?
+-  الامارات | دراسة: نظام غذائي يحسّن صحة القلب ويخفّض الوزن خلال 8 أسابيع فقط!
+-  [인터뷰] “일본에서 통한 기술력, 한국 시장 성공 확신한다”
+-  [Cinéma] L’amour et le poids des secrets
+-  Uzmanından çocuklardaki çarpıntılarla ilgili hayat kurtaran uyarılar
+-  Сашо Кадиев отново се връща на екран, ще води новото шоу на bTV
+-  Industrie Aéronautique : « Safran » renforce son partenariat stratégique avec le Maroc !
+-  В Нацбанке Грузии сообщили о продаже 94 золотых слитков
+-  الأردن يستورد 175 ألف تابلت بقيمة 16 مليون دينار حتى أيلول الماضي
+-  المومني يحذر: تعديلات صندوق دعم الطالب "ستحرم الآلاف"
+-  Lanz liefert sich Wortgefecht mit SPD-Chefin Esken und muss Kritik einstecken
+-  Lanz liefert sich Wortgefecht mit SPD-Chefin Esken und muss Kritik einstecken
+-  Глава Минобороны ФРГ "переобулся" в отношениях с Украиной, заявила Захарова
+-  Schock-Werners Adventskalender: Das Poller Milchmädchen am Efeuplatz
+-  Jerry Seinfeld to perform in S'pore for the first time on June 14, 2024
+-  Klarer du denne ukas Glimt-quiz?
+-  1- to 3-room HDB households can still redeem vouchers for climate-friendly appliances until March 2024
+-  Żieda fl-akkużi għall-kaċċatur mixli li qatel fjammingu: Xhieda jgħidu li raw it-tajra tintlaqat u tispiċċa l-baħar
+-  Gefährlicher Trend: Kinderärzte warnen vor Einschlafhilfe Melatonin
+-  Грузию могут внести в список «дружественных туристических стран» для РФ
+-  西5人制隊傳噩耗 球員頭部受傷去世
+-  Crvena zvezda - Radnički Niš u sredu na TV B92
+-  Kami terbuka bekerjasama dan profesional dengan Nana – Lan Solo
+-  RAJNOCHŮV GLOSÁŘ: LFA to nezvládla, měla odložit celé kolo
+-  TPCC prez Revanth Reddy to take over as Telangana Chief Minister on Dec 7
