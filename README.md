@@ -1,11 +1,11 @@
 # Latest News
--  [ŽT] Virš Juodosios jūros nukaltas Rusijos Su-24M. Kreiseris „Moskva“ tapo lėktuvnešiu
--  HD현대오일뱅크, 숲 조성 위한 ‘100일의 식집사’ 캠페인 진행
--  Selenskyj lobt die Freiwilligen im Krieg - Die Nacht im Überblick
--  Heftige Kämpfe im Süden Gazas - Die Nacht im Überblick
--  국악트롯 김다현 김봉곤부녀 국민고향정선 홍보대사됐다
--  정선군번영연합회 "한수원 도암댐 수질개선제 살포 강력 반대"
--  춘천 혈동리서 벌목운반차량 25m 아래로 추락
--  Putin menang perang jika AS tamatkan bantuan kepada Ukraine
--  HVN: Đấu giá 01 lô ULD đã qua sử dụng của Tổng Công ty Hàng không Việt Nam - CTCP
--  Michaung damages infrastructure in Andhra Pradesh, subsides into cyclonic storm
+-  'เศรษฐา'อาลัย'หมอกฤต' เชิดชูส่งแรงบันดาลใจ รับ PM 2.5 ปัญหาสุขภาพพรากชีวิตคน
+-  الخليج اليوم .. الحوثيون يسمحون لطاقم غالاكسي ليدر باتصال "محدود" بأسرهم
+-  الخليج اليوم .. بيان سعودي قطري يؤكد استمرار التعاون السياسي تجاه القضايا الإقليمية
+-  Staus zu Weihnachten 2023: Wann ist die beste Reisezeit?
+-  Staus zu Weihnachten 2023: Wann ist die beste Reisezeit?
+-  ЕВЕ ВСУШНОСТ КАКО СЕ ДОЗНАЛО ДЕКА УАПСЕНИОТ Е ПАЛЧО: Турската полиција испраќала негова фотографија во МВР
+-  Former South Africa skipper hints at return for T20 World Cup
+-  IBM představuje nové kvantové procesory Heron a Condor. Ten druhý má 1121 qubitů
+-  Ватерполисти потврдили место носиоца у Еврокупу за крај године
+-  Israels Armee meldet Erfolge im Kampf gegen die Hamas
