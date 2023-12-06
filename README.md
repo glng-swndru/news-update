@@ -1,51 +1,11 @@
 # Latest News
--  المقاومة تستهدف 7 آليات عسكرية للاحتلال وتوقع عددًا من الجنود بين قتيل وجريح
--  بعد مقتل أحد ضباطه.. ارتفاع إجمالي عدد قتلى الاحتلال إلى 10 خلال اليوم
--  محافظ قنا ونائبه يتفقدان مقار اللجان الانتخابية
--  محافظ القليوبية يفتتح معرضًا للسلع الغذائية المخفضة بشبرا الخيمة
--  القاهرة الإخبارية: مصر تؤكد ضرورة وقف إطلاق النار بشكل فوري وإدخال المساعدات لغزة
--  مصادر لـ"القاهرة الإخبارية": قلق مصري من استمرار العمليات العسكرية الإسرائيلية في جنوب قطاع غزة
--  البيت الأبيض: الإسرائيليون يعملون لإخراج الأبرياء من مناطق القتال التي تضعهم فيها حماس عمدًا
--  قرار جديد من النيابة بشأن المتهمين بقتل مالك محل سجاد بإمبابة
--  رحلة "عم سعيد" للبحث عن "كيس سكر" في البحيرة (صور)
--  مندوب فلسطين بالأمم المتحدة: نضع اللمسات الأخيرة لمشروع قرار لوقف إطلاق النار بغزة
--  INEOS Grenadiers presenteert nieuwe CEO en directieleden, belangrijke rol Steve Cummings
--  Bayern Münih'te stoper için 3 aday
--  Hatayspor, Hodzic'in iki golüyle turladı
--  Muğla'da 33 düzensiz göçmen kurtarıldı
--  Nxtra by Airtel launched to accelerate Africa’s digital transition
--  Jätteguide: Så bra är derbylagen
--  Politische Säuberungen im Staatsdienst: Faesers Radikalenerlass 2.0
--  "Meille varsin muistorikas päivä", kommentoi presidentti Sauli Niinistö ennen Linnan juhlia
--  הבטחה ממסי ומבחן מפתיע: הדרמה הגדולה בנבחרת ארגנטינה
--  Vučić gost Vesti na TV Prva
--  قرب انطلاق بطولة أمم أفريقيا لكرة الطائرة للناشئين للمرة الأولى في ليبيا
--  I compared Strepsils to throat lozenges from Tesco, Aldi, Lidl and Morrisons to see which work best
--  Carlos Queiroz hættur með Katara mánuði fyrir Asíumótið
--  Финляндия, Швеция и Эстония обратились к Еврокомиссии
--  Disney+ Adds Hulu Content for Bundle Subscribers in Beta Launch — but Not Everything From Hulu Is Available
--  To fight hiring discrimination, make sure worker protections don’t backfire
--  Hagan sus apuestas: Las Vegas ya tiene semifinalistas para ir por un nuevo trofeo
--  This New Experiential Jewelry Store Lets You Watch Designs Come to Life
--  Shadow Gambit's pair of expansions are a fitting farewell for Mimimi's tactical masterpiece
--  A24 Movies to Stream Exclusively on HBO and Max Under New Deal, Including ‘Priscilla’ and ‘Iron Claw’
--  Sevnule grudi lepe pevačice! Nesvakidašnja kreacija Džej Lo (FOTO)
--  Zamora dejó libre a siete jugadores
--  Anja Crevar bez finala na SP
--  Bundesregierung will Start der Kindergrundsicherung prüfen
--  DOE to power firms: Retire coal plants early
--  Oud-voorzitter Kevin McCarthy verlaat het Amerikaanse Congres
--  De vraag of een briljant kunstenaar zich alles kan permitteren, krijgt al te bevestigend antwoord
--  Zijn zoon is dood en deze man kan alleen nog denken aan wraak op iedereen die hem dit heeft aangedaan
--  Signalen van uitbuiting van jongeren bij explosies Amsterdam
--  Bitterzoet drama over een ontluikende liefde tussen ex-vakkenvuller Ansa en ex-metaalarbeider Holappa
--  Amerika heeft zoveel vijanden, wie moet het vrezen? Korea, China, Iran of Rusland? Of een alliantie?
--  Pro-Palestijnse actievoerders houden sit-ins op stations
--  Le potenziali sorprese del 2024 di Goldman Sachs
--  Legacy of love: Wheat Ridge remembers Peter Arguello, shop owner killed in suspected robbery
--  Ponti mit Europarekord zu EM-Gold – Bollin holt Bronze
--  VP-Keri ad Gewalt an Frauen: Männer, zeigt euer „Kämpferherz“
--  «تعليم جدة» يودّع الأحمدي بالتكريم
--  Why NextEra Energy and NextEra Energy Partners Are Both Charging Higher Today
--  Wirecard-Prozess: Welche Version stimmt?
--  Wirecard-Prozess: Welche Version stimmt?
+-  مطالبات للسوداني بتنفيذ "وعوده" وكشف نتائج التحقيق بأحداث تشرين: لا تسقط بالتقادم
+-  Everyone can see the dancing woman – but you have 20/20 vision if you spot her 3 sisters in the illusion in 12 seconds
+-  عاجل.. موعد الاختبارات النهائية للفصل الدراسي الثاني وتفاصيل الإجازات
+-  نجاح عدن مول| كتب صالح العمري
+-  Comarca de Araputanga está com problemas nos telefones fixos
+-  Entra em vigor lei que cria o Dia Nacional da Doceira, em 6 de junho
+-  Comarca de Feliz Natal institui teletrabalho até dia 24 de janeiro
+-  CCJ rejeita emenda a projeto que valoriza profissionais da educação básica
+-  Nova lei dá à cidade de Rio Grande o título de Capital Nacional das Águas
+-  Natal dos Sonhos de Sinop fomenta a economia com venda de alimentos e produtos na praça
