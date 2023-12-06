@@ -1,51 +1,51 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan: İsrail hesap verecek, Netanyahu nereye kaçar bilemiyorum
--  ABD, 4 Rus askeri savaş suçu işlemekle suçladı
--  Aliyev: ABD, bu sürece katkı sunabilir
--  Trump: Sınırı kapatmak istiyorum
--  Procuradoria Europeia acusa 27 arguidos na Operação ‘Admiral’
--  Llega Putin a Arabia Saudita
--  Montarán centros de votación en escuelas
--  Pide CCE no reducir por ahora jornada laboral
--  Ejecutada en casa de Quintas Carolinas se llamaba Leslie
--  Il giorno più bello: tutto quello che c’è da sapere sul film
--  #google is ending the year with a big update for Pixel devices
--  La Policía Local de San Bartolomé de Tirajana se exhibe
--  InventHelp Inventor Develops New Tool Belt for Cedar Shingles & Cedar Shingling Tools (BKC-128)
--  Abascal: "No vamos a ser cómplices de las mentiras de Feijóo"
--  Functional Pet Treat Market is Expected to Exceed Value of $722.8 Million by the End of 2031
--  तोरी फुलेर किसानका खेत पहेँलपुर (फोटो फिचर)
--  S’il gagne le In-Season Tournament, Jose Alvarado offrira les 500 000 dollars à ses filles
--  Le pari NBA du jour, avec la cote boostée TrashTalk : Trae Young cartonne face aux Nets
--  Država kasnila godinu i po dana sa subvenciom za kragujevački Fijat
--  Le Tea Time de Noël et d'hiver magique du Joy à l'Hôtel Fouquet's Paris 2023
--  এখন তো ভাইরাল হওয়ার যুগ
--  News24 Business | NHI one step closer after NCOP votes in favour of bill
--  Putinin BƏƏ-yə səfərini 4 döyüş təyyarəsi müşayiət etdi
--  Fiorentina Parma streaming e diretta tv: dove vedere la partita di Coppa Italia
--  نواز ،ترین اورخٹک ’’وڑ‘‘ گئے، عوام نے فیصلہ دیدیا،شیر افضل مروت
--  Rep. Kevin McCarthy retiring from Congress after being ousted as House speaker
--  5 Best Tablet Stands for Enjoying Hands-Free Entertainment
--  Mitä Suomenlahdella tapahtuu? Vartiolaiva Turva alkoi seurata outoa alusta
--  Cost assessments for training policemen at Azerbaijani Police Academy to develop - decree
--  Eurokomisia vyzvala slovenskú vládu, aby nerušila špeciálnu prokuratúru
--  Private payroll growth misses expectations
--  LiveU presenta soluciones innovadoras para la seguridad pública y privada en Expo Defensa 2023 en Bogotá
--  La ilicitana Miriam Hurtado gana la Copa de Campeones de culturismo
--  Prozess nach Explosion in Eschweiler: Vater beteuert Unschuld
--  Prozess nach Explosion in Eschweiler: Vater beteuert Unschuld
--  Återstarten av Ringhals 4 pausas
--  Новият парламент на Нидерландия положи клетва
--  Bemidji woman sentenced to life in prison for August 2022 murder
--  Top 10 najplaćenijih sportašica – skoro sve su tenisačice
--  E-40 says performing at the Grammy's concert special will be like “a big family reunion.”
--  Consuelo Duval es víctima de audaz robo con el método de la ‘Patrona’ e Inteligencia Artificial
--  How to Watch the Fourth Republican Presidential Debate Online Without Cable
--  Spektakuläre Weihnachtsaktion: Nikolaus und Superhelden heitern Kinder in Klinik auf
--  Bioprocess Validation Market Landscape: Insights, Innovations, and Growth Potential (2023-2030)
--  Ajdari: Cila është lidhja mes vrasjes së Vanjës dhe vrasjes te Liqeni i Smilkovës?
--  Caroline Glachan: Suspect denies leaving a woman’s home
--  Avatar: Frontiers of Pandora review - pretty, average
--  Google lanza Gemini, su inteligencia artificial más potente
--  Kevin McCarthy's run in Congress will end, capping off young gun's era of chaos and disorder
--  Bitcoin subirá más en diciembre, podría llegar a los 48.500 dólares
+-  المقاومة تستهدف 7 آليات عسكرية للاحتلال وتوقع عددًا من الجنود بين قتيل وجريح
+-  بعد مقتل أحد ضباطه.. ارتفاع إجمالي عدد قتلى الاحتلال إلى 10 خلال اليوم
+-  محافظ قنا ونائبه يتفقدان مقار اللجان الانتخابية
+-  محافظ القليوبية يفتتح معرضًا للسلع الغذائية المخفضة بشبرا الخيمة
+-  القاهرة الإخبارية: مصر تؤكد ضرورة وقف إطلاق النار بشكل فوري وإدخال المساعدات لغزة
+-  مصادر لـ"القاهرة الإخبارية": قلق مصري من استمرار العمليات العسكرية الإسرائيلية في جنوب قطاع غزة
+-  البيت الأبيض: الإسرائيليون يعملون لإخراج الأبرياء من مناطق القتال التي تضعهم فيها حماس عمدًا
+-  قرار جديد من النيابة بشأن المتهمين بقتل مالك محل سجاد بإمبابة
+-  رحلة "عم سعيد" للبحث عن "كيس سكر" في البحيرة (صور)
+-  مندوب فلسطين بالأمم المتحدة: نضع اللمسات الأخيرة لمشروع قرار لوقف إطلاق النار بغزة
+-  INEOS Grenadiers presenteert nieuwe CEO en directieleden, belangrijke rol Steve Cummings
+-  Bayern Münih'te stoper için 3 aday
+-  Hatayspor, Hodzic'in iki golüyle turladı
+-  Muğla'da 33 düzensiz göçmen kurtarıldı
+-  Nxtra by Airtel launched to accelerate Africa’s digital transition
+-  Jätteguide: Så bra är derbylagen
+-  Politische Säuberungen im Staatsdienst: Faesers Radikalenerlass 2.0
+-  "Meille varsin muistorikas päivä", kommentoi presidentti Sauli Niinistö ennen Linnan juhlia
+-  הבטחה ממסי ומבחן מפתיע: הדרמה הגדולה בנבחרת ארגנטינה
+-  Vučić gost Vesti na TV Prva
+-  قرب انطلاق بطولة أمم أفريقيا لكرة الطائرة للناشئين للمرة الأولى في ليبيا
+-  I compared Strepsils to throat lozenges from Tesco, Aldi, Lidl and Morrisons to see which work best
+-  Carlos Queiroz hættur með Katara mánuði fyrir Asíumótið
+-  Финляндия, Швеция и Эстония обратились к Еврокомиссии
+-  Disney+ Adds Hulu Content for Bundle Subscribers in Beta Launch — but Not Everything From Hulu Is Available
+-  To fight hiring discrimination, make sure worker protections don’t backfire
+-  Hagan sus apuestas: Las Vegas ya tiene semifinalistas para ir por un nuevo trofeo
+-  This New Experiential Jewelry Store Lets You Watch Designs Come to Life
+-  Shadow Gambit's pair of expansions are a fitting farewell for Mimimi's tactical masterpiece
+-  A24 Movies to Stream Exclusively on HBO and Max Under New Deal, Including ‘Priscilla’ and ‘Iron Claw’
+-  Sevnule grudi lepe pevačice! Nesvakidašnja kreacija Džej Lo (FOTO)
+-  Zamora dejó libre a siete jugadores
+-  Anja Crevar bez finala na SP
+-  Bundesregierung will Start der Kindergrundsicherung prüfen
+-  DOE to power firms: Retire coal plants early
+-  Oud-voorzitter Kevin McCarthy verlaat het Amerikaanse Congres
+-  De vraag of een briljant kunstenaar zich alles kan permitteren, krijgt al te bevestigend antwoord
+-  Zijn zoon is dood en deze man kan alleen nog denken aan wraak op iedereen die hem dit heeft aangedaan
+-  Signalen van uitbuiting van jongeren bij explosies Amsterdam
+-  Bitterzoet drama over een ontluikende liefde tussen ex-vakkenvuller Ansa en ex-metaalarbeider Holappa
+-  Amerika heeft zoveel vijanden, wie moet het vrezen? Korea, China, Iran of Rusland? Of een alliantie?
+-  Pro-Palestijnse actievoerders houden sit-ins op stations
+-  Le potenziali sorprese del 2024 di Goldman Sachs
+-  Legacy of love: Wheat Ridge remembers Peter Arguello, shop owner killed in suspected robbery
+-  Ponti mit Europarekord zu EM-Gold – Bollin holt Bronze
+-  VP-Keri ad Gewalt an Frauen: Männer, zeigt euer „Kämpferherz“
+-  «تعليم جدة» يودّع الأحمدي بالتكريم
+-  Why NextEra Energy and NextEra Energy Partners Are Both Charging Higher Today
+-  Wirecard-Prozess: Welche Version stimmt?
+-  Wirecard-Prozess: Welche Version stimmt?
