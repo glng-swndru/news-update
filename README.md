@@ -1,11 +1,11 @@
 # Latest News
--  Eisen tot 20 maanden cel voor oplichting met mondkapjes
--  15-jarige gewond bij steekincident in Rotterdam, andere tiener aangehouden
--  FNV: 24 uursstaking bij ijsfabriek Ben & Jerry's in Hellendoorn
--  OM: onbekend hoe DNA op wapen schietpartijen Rotterdam belandde
--  McDonald's wil over enkele jaren 50.000 restaurants hebben
--  Schoorvoetend gaan nieuwe Kamerleden van start. 'Moet ik iets doen, voorzitter'?
--  Ex-MP Natalie McGarry feared for child’s safety during high-speed paparazzi pursuit in Fife
--  Berrettini e Pietrangeli, cosa si sono detti: sui social non c'è nessun dubbio
--  Sfreccia a 270 km/h e pubblica il video sui social: arriva la maxi multa
--  Chisola forza dodici: la squadra di Moschino imbattuta da tre mesi
+-  الامارات | مطعم ياباني يوفر خدمة صفع الزبائن
+-  الامارات | عقوبة قاسية جدا على عجوز استرالية بسبب شطيرة دجاج
+-  الامارات | قرعة "كوبا أميركا" في ضيافة نادي ليونيل ميسي بميامي
+-  Koordinasyon Nedir: İşbirliğinin Temeli
+-  Moederbedrijf Perry Sport, Aktiesport en Sprinter failliet
+-  Oud-Hart van Nederland-presentatrice Cilly Dartell (66) overleden
+-  Valkenburg krijgt 2,3 miljoen euro voor watersnoodschade
+-  George Santos Will Be Able To Spend So Much Money On OnlyFans After Raking It In With Cursed Cameo Videos
+-  عادة شائعة تتسبب في الإصابة بالفشل الكلوي.. يلجأ لها كثيرون خلال الشتاء
+-  الرئيس الروسي يصل إلى الرياض
