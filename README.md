@@ -1,11 +1,11 @@
 # Latest News
--  Cairo: “Soddisfatto di Juric, mi farebbe piacere continuare con lui”
--  מר עולם מת בגיל 57, ומעריציו נדהמו לגלות איך הוא נראה לפני מותו
--  [PL 15R] ‘맥토미니 멀티골’ 맨유, 안방에서 2-1 승리! 첼시는 팔머 동점골에도 아쉬운 원정 패배
--  Kais Saied : "L’Etat n’est pas disposé à céder les entreprises publiques"
--  Rare 1995 banknote worth up to $2k
--  ولي العهد السعودي والرئيس الروسي استعرضا العلاقات الثنائية وآفاق التعاون المشترك
--  الجيش ينفذ إنزالاً جوياً رابعاً للمستشفى الميداني الأردني بغزة
--  ليفربول يعمق جراح شيفيلد بثنائية
--  تقييم فان دايك في مباراة ليفربول وشيفيلد يونايتد
--  వెంకన్న నిధులతో భూమన రాజకీయం!
+-  진천군, 신재생에너지 융복합 지원사업 7년 연속 선정
+-  충주시, 노사문화 대통령 표창 수상 겹경사!
+-  봉화군여성단체협의회, 여성정책사업 평가대회 성황리 개최
+-  فشل مشروع قانون بمجلس الشيوخ الأميركي لإقرار مساعدة ضخمة لأوكرانيا وإسرائيل
+-  FanDuel Promo Code: Get $150 Win Bonus for Wednesday NBA Games
+-  360 Predictor, la IA con la que puedes conocer lo que te falta para ser un emprendedor exitoso
+-  ¿Qué supermercados son más caros? Profeco lo revela
+-  Danilo torna con il Napoli, lo aspettano Gatti e Bremer
+-  “شؤون الدبيبة” تبحث ملف أحوال أطفال التوحد في درنة
+-  Disonantzia kognitiboa
