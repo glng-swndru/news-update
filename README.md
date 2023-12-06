@@ -1,51 +1,11 @@
 # Latest News
--  Sudoku difícil: 06 de diciembre de 2023
--  Sudoku medio: 06 de diciembre de 2023
--  Sudoku fácil: 06 de diciembre de 2023
--  Sudoku mini: 06 de diciembre de 2023
--  Crucigrama difícil: 06 de diciembre de 2023
--  Crucigrama medio: 06 de diciembre de 2023
--  Crucigrama fácil: 06 de diciembre de 2023
--  Crucigrama mini: 06 de diciembre de 2023
--  Sopa de Letras clásica: 06 de diciembre de 2023
--  훨훨 나는 비트코인 상승세…4.5만달러 눈앞
--  이마트, 베트남 호찌민에 3호점 개장...“1등 점포 목표”
--  KTis 타운보드, 전국 5만대 돌파… 170만 세대와 소통
--  KT스카이라이프, KT그룹 꿈나무 미디어 투어 진행
--  네이버페이X삼성페이, 월 현장결제액 전년 대비 8배 급성장
--  신한은행, 예보와 서울시 장애인선수단 금융교육 실시
--  [취재수첩] '화이부실'의 우리금융… 왜 자꾸 말이 앞설까
--  왕이, 캐머런 英 외무와 전화회담…"소통·대화 유지"
--  STAT+: Pfizer plans to depart BIO
--  울산박물관 역사실 개선사업 완료…오늘부터 관람
--  Ember Mug 2 Review
--  Ember Mug 2 Review
--  제12대 부천 시민옴부즈만 자문위에 변호사 등 19명 위촉
--  ฝุ่นมาอีกแล้ว! กรุงเทพวันนี้ ‘PM2.5’ เกินมาตรฐานระดับส่งผลต่อสุขภาพ 8 พื้นที่ เช็กเลย!
--  한미, 빈라덴 암살 투입된 '치누크 15~20대' 추가 도입 논의
--  보건복지부, 울산 지역 장애인 정책 현장점검 실시
--  เด็กไทยวิกฤติ! สอบ ‘PISA’ คะแนนต่ำสุดรอบ 20 ปี ทุกทักษะ ‘สิงคโปร์’ แชมป์
--  '구미 아트페어' 7일 개막…미술작품 전시·판매
--  Why Bitcoin, Dogecoin, and Shiba Inu Popped Today
--  Tráiler Flash: Godzilla x Kong The New Empire
--  어메이징브루잉컴퍼니, 미국 뉴욕에 수제맥주 수출
--  AWS, 아마존 S3 익스프레스 원 존 정식 공개
--  가비아, 하이브리드 클라우드 출시…최대 500만원 혜택
--  Kết quả lấy phiếu tín nhiệm 29 người giữ chức vụ do HĐND tỉnh Quảng Trị bầu
--  뮤지컬 '라스트 파이브 이어스' 상견례…"솔직하고, 현실적"
--  'That is an absurd question': Dreyfus
--  [특징주] 레뷰코퍼레이션, 구글 투자받은 카페24 상한가...글로벌 인플루언서 쇼핑몰 공동 사업 부각
--  Delhi knocked out, TN qualify for quarters
--  셀트리온, 싸이런 테라퓨틱스와 다중항체 신약 개발
--  넥슨, 넥슨어린이재활병원에 운영기금 3억원 전달
--  Corinthians visita o Coritiba com diversos desfalques no último jogo do ano; confira
--  Cyclone Michaung : आंध्रात धडकलं चक्रीवादळ, मिचॉन्गचा विध्वंस सुरुच; वादळी वाऱ्यासह जोरदार पावसाची हजेरी
--  NCLAT to hear IDBI's insolvency plea against Zee Entertainment today
--  कोपरगावात भाजपच्या कोल्हे विरोधात विखेची मोर्चेबांधणी सुरू, राष्ट्रवादीच्या आमदारांसोबत केले विविध विकास कामांचे भूमिपूजन
--  "예방이 최선"…전북교육청, 고3 학생 대상 사이버범죄 교육
--  "스트레스 풀려고"…고양이 24마리 분양받아 모두 죽였다
--  Bas jatuh gaung di Filipina: 16 maut
--  Conozca las tendencias de Seguridad Informática que dominarán en América Latina en 2024
--  ‘제15회 Good 계룡예술제’…8~10일 계룡문화예술의전당
--  Justiça peruana ordena libertação do ex-presidente Alberto Fujimori
--  Porque a Alemanha está mal preparada para as grandes nevascas
+-  대구보건대, 글로컬 보건 인재 양성 활성화 협력 MOU
+-  종로구, 모든 구립 경로당에 공공와이파이 설치
+-  노원구, 착한가격업소 선정…물가 안정·지역경제 활성화 총력
+-  다둥이 아빠 V.O.S 박지헌의 '육아공감 토크콘서트' 개최
+-  양천구시설관리공단, 신규직원 채용 진행
+-  중구 신당10구역, 9일 재개발 조합설립 창립총회 개최
+-  영월군 김삿갓면 새마을부녀회, 영월장학회에 장학금 기탁
+-  강원남부주민(주), 5일 상동읍에 저소득층 돕기 난방비 1천만원 기탁
+-  BNK경남은행 삼천포지점, '희망 2024 나눔 캠페인' 성품 기탁
+-  양산시 물금새마을금고, 물금읍에 '사랑의 좀도리 운동' 실천
