@@ -1,51 +1,51 @@
 # Latest News
--  La Galería 7 en la capital grancanaria propone regalar arte estas navidades
--  What type of experiment would be the easiest?
--  عادات يومية تصيب العين بالجفاف الشديد.. «خلي بالك منها»
--  위로 받지 못하는 전북, 부산 바라보며 피눈물 삼킨다
--  부산시 특사경, 먹거리 안전 특별단속 결과 불법업소 19곳 적발
--  하태경, 한동훈 두고 quot;이민청? 정말 한가한 분, 대선 아젠다라 애착 가진 듯quot;
--  인제서 승용차·승합차 충돌 1명 숨져… 2명 경상
--  '아내 둔기 살해 혐의' 대형로펌 출신 변호사 구속
--  Man verdient nog steeds meer dan vrouw, maar verschil neemt af
--  ABN AMRO ziet huurwoningen verder in waarde dalen in 2024
--  El Basque Culinary Center premia a una 'startup' de agricultura celular de Nueva York
--  Por qué la moneda del Flamenco del Caribe es la única pieza mexicana que tiene colores
--  정기고, 긴 공백기 해명 "자숙 얘기 많아…사고 안 쳤다"('영스트리트')
--  What is science 1st grade?
--  Israeli forces battle Hamas in main southern Gaza city
--  Asylum applications in Mexico hit historic numbers this year
--  [[헤럴드 운세] 2023년 12월 07일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [한국성장금융, 넷제로 투자포럼·우수운용사 시상
--  [사우디·UAE 방문한 푸틴…협력 다지며 ‘화기애애’
--  [하태경 “한동훈, 총선에 대해 안일한 생각 가진 듯…위기에 들어와야”
--  [위니아 “딤채 생산라인 재가동…기업 정상화 총력”
--  [경기도민 62.7%, 경기교육정책 전반에 호감
--  [증권가 “블핑 개인 전속계약은 미정, 추가협상 필요” [투자360]
--  [화성시 가왕은 누구?…‘만찢남'의 기염
--  [中 온라인 쇼핑몰 '김치공정'…서경덕 "강력히 수정 요청할 것"
--  [주행거리 900㎞·400회 재충전…LG엔솔, ‘꿈의 배터리’ 원천기술 확보
--  [제13대 민변 광주전남지부장에 ‘홍현수 변호사’
--  ['2023년 광주시 사랑의 끈 연결운동' 행사 개최
--  [군사규제는 다하고 보상은 없다?…뿔난 이병선 속초시장
--  [“한번 충전 서울~부산 왕복 전기車 나온다”
--  [시진핑·푸틴 제치고 1위한 33살 ‘이 여성’…타임 ‘2023 올해의 인물’
--  [종로구, 담배꽁초 무단투기 지역에 전용 수거함 설치 “시민의식이 중요”
--  [안산시 단원보건소, 국민영양관리시행계획 우수기관 선정
--  [여수구항 산책로 오동도까지 연결된다
--  [“자영업 주문은 씨가 말랐어요”…달력 주문도 양극화
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [ACC재단 “문화예술과 함께하는 따뜻한 연말연시”
--  Expresidente peruano Fujimori deja prisión tras polémico indulto y rechazo de Corte IDH
--  Franzl Ott aus Rinheim wird diesen Donnerstag 80
--  Meghan Markle as 'Jamie the FedEx girl' in the movie Horrible Bosses
--  MAN Export Group Seeks Railway Facility For Container Movements
--  Napier’s cyclone rebuild key to clearing wool backlog in North Island
--  Fiera venganza la del tiempo
--  Ensure We Get Value for Money, Oborevwori Charges Works Ministry
--  How do I make my child a scientist?
--  Reportan detención de Alfredo Jalife-Rahme por denuncia de difamación a Tatiana Clouthier
--  Diperiksa Penyidik Gabungan, Firli Bahuri: Tidak Ditekan, tapi Merasa Tertekan
--  Konferensi Pengawasan Ketenagakerjaan ASEAN ke-12, Ini 10 Rekomendasi yang Dihasilkan
--  Google Cloud Startup Program Invests $100,000 in The
--  Soludo’s Quest to Revive Olumbanasa Community
+-  İşte en çok havaalanı olan 20 ülke, ABD ilk sırada, Türkiye 20. Sırada bile değil
+-  Nurse speaks out about violent workplace incident and staff injuries
+-  Nurse speaks out about violent workplace incident and staff injuries
+-  Primera dama de San Francisco: “Si todos compartimos el mismo municipio, ¿por qué no ayudarnos entre nosotros?”
+-  IonOpticks and Newomics broaden chromatography accessibility for Agilent mass specs, with Shimadzu pending
+-  Anak Terpapar Asap Rokok Berisiko Kena Mycoplasma Pneumoniae
+-  Cur i bhfeidhm Acht na dTeangacha Oifigiúla 2003
+-  Gobierno compensa a empresas eléctricas que dieron descuentos en facturas
+-  Payasos conmemoran su día nacional
+-  ¡La buena acción del día! Hombre se encuentra 300 dólares en un cajero y los devuelve
+-  Oswald’s eyes on the prize
+-  Người gầy vẫn mỡ máu cao: Bác sĩ chỉ ra 4 ‘thủ phạm’, trong đó 3 điều cuối có thể thay đổi được
+-  Andrew Scott reveals how acting gave him the confidence to come out
+-  몬스터 에너지, 옵티멈존PC카페와 손잡고 마케팅 활동 추진
+-  [뉴욕증시] 美 민간 고용 둔화에 3대 지수 모두 하락 마감
+-  동원 금천미트 '대통령상 한우' 낙찰…올해 9058만원 '최고가'
+-  이마트, K푸드 쥐고 베트남 공략…3호점 오픈
+-  Alberto Fujimori salió de prisión tras recibir indulto del Tribunal Constitucional de Perú (Video)
+-  Los tres colegios judíos de Colombia donde estudiaron los Gilinski, el chef Rausch y Simón Brand
+-  TVET berkualiti lahir tenaga kerja berkemahiran tinggi
+-  Israelske styrker slår fire palæstinensere ihjel på Vestbredden
+-  ‘It’s harder to hit a moving target’: The remarkable evolution of Taylor Swift laid bare in Time’s Person of the Year Interview
+-  Israelske styrker slår fire palæstinensere ihjel på Vestbredden
+-  Meta’s AI Image Generator Trained on 1.1 Billion Instagram and Facebook Photos
+-  Bersama lahirkan belia berwawasan
+-  Resguardan agentes policiacos y Ejército el Cereso 3
+-  Sam Curran and Jos Buttler return to form as England level series in Antigua
+-  Sam Curran and Jos Buttler return to form as England level series in Antigua
+-  Alberto Fujimori dejó el penal de Barbadillo tras fallo del TC: mira AQUÍ imágenes de su salida
+-  Actor ALAN CUMMING reveals he was ‘groomed’ and almost SEXUALLY assaulted by Chimpanzee co-star because they’d become too ‘connected’ while filming hit 1997 movie Buddy
+-  2 cầu thủ nào được chấm điểm cao nhất trận M.U vs Chelsea 2-1?
+-  'Confessou um crime de corrupção. Pois bem, corrupto é', diz deputado Renato Freitas sobre presidente da Assembleia Legislativa do Paraná
+-  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
+-  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
+-  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
+-  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
+-  Tiến độ bổ nhiệm, xếp lương mới cho giáo viên vì sao chậm?
+-  Malay: We speak it, because it is ours
+-  AI 也懂設計新藥，阿斯特捷利康簽約 2.47 億美元與 Absci 合作研發抗癌藥物
+-  強化與日本合作，輝達黃仁勳考慮在日本設立 AI 研發基地
+-  Major League Rugby’s New York Ironworkers join Toronto Arrows in folding
+-  Tiroteo en universidad de Nevada deja ‘varias víctimas’, dicen autoridades
+-  ヤンキースとメッツ 山本由伸投手の獲得に向け動き加速
+-  DIDDY is sued by a fourth woman who claims she was violently gang raped by the hip-hop mogul and two friends at his New York studio when she was 17 (PHOTOs)
+-  Rombongan Kedutaan Thai lawat CDC
+-  Where GOP candidates stand on conflicts in Israel, Ukraine, China
+-  33 Gifts That Are Perfect For the 40-Something Woman in Your Life
+-  Where GOP candidates stand on conflicts in Israel, Ukraine, China
+-  Permintaan Global Turun, PMI Manufaktur ikut Merosot
+-  تفوق طائرتنا الشاطئية في الجولة العالمية
