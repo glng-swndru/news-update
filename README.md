@@ -1,51 +1,51 @@
 # Latest News
--  Más de 6 mil turistas llegan a Panamá
--  Ehli Baptist Hastanesi'nde yaralılar kan kaybından ölüyor
--  İsrail askerleri Batı Şeria'daki katliamlarını sürdürüyor
--  Stajyerlerden Biden'a 'ateşkes' mektubu
--  Turşu bidonları arasında 498 gram sentetik uyuşturucu ele geçirildi
--  G7 ülkelerinden Filistin meselesinde iki devletli çözüm çağrısı
--  Active shooter wounds multiple victims at University of Nevada's Las Vegas campus as college tells students to 'RUN-HIDE-FIGHT' and cops respond to 'more shots fired in student union'
--  REVEALED: What Travis Kelce, Patrick Mahomes and their Chiefs teammates eat before game day and how many calories an NFL player actually consumes
--  Afenifere’s Secretary-General, Ebiseni dumps Labour Party for PDP
--  Podemos promete no reventar la legislatura pero PSOE y Sumar temen por el ciclo electoral
--  Watch Live: Colorado Supreme Court hears 14th Amendment challenge to Trump's eligibility
--  Soccerladuma | Rulani Hails Sundowns Stars' For 10th Successive Win
--  Bay Area arts: 15 cool live shows — and 1 film fest — to see this weekend
--  Veliki problem za Zvezdu: Nejpir doživeo još jednu povredu?
--  FESTIVAL FILMOVA JUGOISTOČNE EVROPE: Nagrađeni Trag divljači i Vera, a najbolji glumci Miki Manojlović i Jovana Stojiljković
--  Ariana Madix tears up about learning to “trust” DWTS partner after Scandoval
--  West Virginia vs. Pittsburgh odds, spread: 2023 college basketball picks, Dec. 6 best bets from proven model
--  West Virginia vs. Pittsburgh odds, spread: 2023 college basketball picks, Dec. 6 best bets from proven model
--  Ivan Toney 'deletes' Instagram message to Arsenal star to spark fresh transfer rumours
--  'My hot model girlfriend is 40 years younger than me – people think I'm her grandad'
--  Brits consumed enough Garlic & Herb Dip to fill 17 Olympic-size swimming pools in 2023
--  Путин и наследный принц Саудовской Аравии завершили переговоры
--  Quiz: Name the 20 players to make the most Premier League appearances
--  GTA 6 trailer song streams increase by 37,000% since release
--  David De Gea could be blocked from Premier League return thanks to rare rule
--  Nick Cage thriller with 97% on Rotten Tomatoes is on TV tonight
--  Marcus Rashford dropped by Ten Hag for Man United vs Chelsea
--  Under-fire Antony blasts 'unfair and malicious' criticism from ex-Man United duo
--  What was it like when the last antimatter disappeared?
--  What was it like when the last antimatter disappeared?
--  Plavi konačno slavili u gostima: Dobar debi Ferela
--  À l'Affiche ! - "Bâtiment 5" : Ladj Ly de retour à Montfermeil, quatre ans après "Les Misérables"
--  À l'Affiche ! - Le goût du succès : Nina Métayer, élue meilleure pâtissière du monde
--  Le président turc Erdogan en ami à Athènes
--  L'armée israélienne intensifie ses combats dans le sud de la bande de Gaza
--  «Pitbull», populiste, anti-woke… Pierre Poilievre, le Trump canadien
--  La détermination est intacte chez les soldats de l'armée israélienne : le récit de l'envoyé spécial du Figaro
--  Poutine aux Émirats et en Arabie saoudite, le conflit au Proche-Orient en toile de fond
--  Israël: Benjamin Netanyahou sur la sellette
--  Deux mois après l'attaque du Hamas, cette guerre qui a tout changé en Israël
--  TPMP : « tu as un problème avec les prénoms exotiques », Moundir s'emporte contre Danielle Moreau
--  Destination X : la date de diffusion du nouveau jeu d'aventure de M6 dévoilée
--  TPMP : les chroniqueurs dirigés par Cyril Hanouna et la production ? Des SMS fuitent
--  Kelly Vedovelli, assise à la « place de la potiche » dans TPMP ? La chroniqueuse répond à Complément d'enquête
--  Le meilleur pâtissier : changement de programme ! La demi finale sera diffusée ce mercredi
--  « J'ai passé un week-end » : Cyril Hanouna se paye une nouvelle fois Complément d'enquête
--  Cyril Hanouna (TPMP) dévoile son salaire, c'est impressionnant
--  Marié(e) à tout prix : Océane et Marine El Himer bientôt dans l'émission ? Adixia fait des confidences
--  Star Academy 2023 : Pierre et Candice en couple ? Le candidat fait des révélations !
--  Miss France 2024 : la benjamine du concours fait-elle partie des favorites ?
+-  Rescatan a dos dominicanos que estaban a la deriva en La Guajira en un barco
+-  تنسيق بين ولايات “الجزيرة والقضارف وكسلا ونهر النيل” لتأمين سهل البطانة
+-  SnapLogic Named a Visionary for Second Consecutive Year in the 2023 Gartner® Magic Quadrant™ for Data Integration Tools
+-  Esad yönetimi, Suudi Arabistan'a büyükelçi ataması yaptı
+-  Rampur News: डॉक्टरों की कमी से वेंटिलेटर पर स्वास्थ्य सेवाएं
+-  SLC ground staff awarded cash reward promised during Asia Cup
+-  Caroline Wozniacki gets Australian Open wildcard
+-  2nd International Council for Cricket Academies champions kicks off on 18 December
+-  CEO Kelum promoted as Executive Director at Arpico Insurance
+-  Hayleys Group “B” maintains unbeaten run in MCA D Division 40 Over league
+-  Executive Director/COO Dilshan to leave HNB after 19 year stint
+-  Lionel Messi named Time magazine’s Athlete of the Year
+-  CSE struggles to close on the up after erratic day for indices
+-  Kiwis vs Bangladesh: 15 wickets fall in first day’s play in Dhaka
+-  Nawaloka BMT Hematooncologists spearhead advanced transplants in Sri Lanka
+-  Mushfiqur becomes just second Test batter to be dismissed for obstructing field
+-  AIA Insurance continues to support Sri Lanka Cancer Society for 5th consecutive year
+-  People’s Bank donates to power 1990 Suwa Seriya Ambulance service
+-  Japan further solidifies collaborative relationship in the field of health care
+-  Dialog champions eliminating avoidable blindness and improving access to education
+-  Cabinet clears to advance Colombo Security Conclave regional cooperation
+-  Annual Journalism Awards Night on 12 December
+-  Albanci "objasnili": Srbi pogrešili adresu
+-  Ivan Štefanec potvrdil, že na decembrovej plenárke europarlamentu bude debata o Slovensku
+-  Moradabad News: सिरसी में तीसरे दिन भी नहीं मिली बिजली, परेशान रहे लोग
+-  Hand – J16 Elite : programme tv des matches du samedi 9 décembre
+-  ميازين الشاحنات "الخاصة".. شبكة المصالح الخاصة تنتهك حرمة شبكة الطرق العامة وتبدد جهود صندوق الصيانة
+-  Rampur News: सांसद ने उठाया नाॅन जेडए जमीन पर मालिकाना हक दिलाने का मुद्दा
+-  Vicky Kaushal reveals SRK wanted to reshoot a scene with him in Dunki
+-  Chelsea fans demand Levi Colwill made club captain after pre-match interview before Man Utd clash
+-  Malte Sjögren visade vägen när Björklöven vände: "Många som var förbannade"
+-  Odbojkašice Uba i TENT-a bez četvrtfinala Kupa izazivača
+-  Mikuláš v parlamente: Poďakovanie Pellegriniho a takto súbor odignoroval Matoviča! Pani, ste trápna, neudržal sa
+-  Petőfi-díjat kapott Áder János: vajon a bajusz miatt? – Itt vannak a részletek
+-  Jhansi News: कक्षा सात की छात्रा ने फांसी लगाकर दी जान
+-  Rampur News: हर गांव के प्रधान करेंगे दो-दो गायों की सेवा
+-  "Conseguimos poner a Argentina de pie": Alberto Fernández se despide de empleados de la Casa Rosada
+-  مدنين: حجز 5 طيور ملكية نادرة
+-  TMW - Potenza, si avvicina l'esonero di Lerda. Al lavoro sul contratto per il ritorno di Raffaele
+-  Rampur News: प्रेम विवाह के पांच माह बाद दहेज के लिए महिला की हत्या
+-  Jhansi News: कृषि विश्वविद्यालय कर रहा प्रयोग, हाईब्रिड चने पर नहीं होगा गर्मी का प्रकोप
+-  Chandigarh News: ठंड बढ़ने के साथ बढ़े दिल के मरीज, बरतें एहतियात
+-  Chandigarh News: आज से शुरू होगी एंट्री कक्षाओं में दाखिले की दौड़
+-  Rampur News: शादी का झांसा देकर किशोर ने युवती से किया दुष्कर्म
+-  Nainital News: 13 सड़क व चौराहे के लिए शासन ने जारी किए 1423 लाख रुपया
+-  여론조사, 어디까지 믿어도 될까요? 여론조사 회사 대표의 답은hellip;
+-  독해진 이낙연, 등떠밀리듯 손 내민 이재명
+-  안철수 quot;이준석 신당? 성공 매우 낮아hellip;대구서 출마해도 당선 어려워quot;
+-  Rivers State: Gov Fubara of withholding assembly funds
+-  Pronostici Ligue 1, l'analisi e le quote di Brest-Strasburgo
