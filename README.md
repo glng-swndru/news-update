@@ -1,11 +1,51 @@
 # Latest News
--  Возач починал возејќи па излетал од патот во кичевско
--  El español que hizo un imperio con sus hoteles NH y la fórmula buenos, bonitos y baratos
--  Truck carrying 47 undocumented immigrants stopped at Dutch-UK ferry port
--  Johor Causeway checkpoint power outage 'an embarrassment for the state', says chief minister
--  Emma Raducanu faces Australian Open wait but Caroline Wozniacki handed wild card
--  Allesley - the new global leader in ultra-luxury automotive coachbuilding
--  [날씨]절기상 대설, 아침 최저 영하 6도 '쌀쌀', 오후엔 영상 14도 '포근'
--  오늘 송암동 차상찬 이야기길 안내판 제막
--  춘천 예술인 한해 결산 유공자 표창
--  수열에너지 클러스터 착공 기업 유인책 시급
+-  Arsenal biletini kesti, Milan'a gidiyor!
+-  ABD'nin dış ticaret açığı 64,3 milyar dolara yükseldi
+-  TBMM Başkanı Kurtulmuş, Raev'i kabul etti
+-  Hasan Arat'ın ilk hedefi belli oldu! Kartal'a gurbetçi sol bek
+-  Pistorius: Ukrayna'ya silah tedariki konusunda sıkıntı yaşanıyor
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Türkmenistan ile 5 milyar dolarlık ticaret hacmi hedefimiz var
+-  Türk: Gazze'de acil ateşkes konusunda ısrarcı olunmalı
+-  Fransa'da skandal! Yeni Kaledonya'ya giden Azerbaycanlı muhabiri sınır dışı etti
+-  Erkan Yılmaz, Anadolu Efes formasından 3 ay uzak kalacak
+-  Rusya, Ukrayna'nın 2 savaş uçağını vurdu
+-  Two killed, four injured in Biratnagar fire
+-  Bangladesh takes control of 2nd test after New Zealand reduced to 55-5 on eventful 1st day
+-  Seed founders should consider these factors before partnering with multistage funds
+-  Malkander ís er voor jongeren: 'Kernwoorden zijn luisteren en vertrouwen'
+-  김범수 "박진영, 타고난 보컬 NO…노력이 만든 기적" [라디오스타](종합)
+-  “나만 즐거우면 돼요, 나만 잘 하면 돼…” LG 출신 29세 퓨처스 FA의 깨달음, 공룡들 외야 비밀병기
+-  [오늘의 운세] 12월 7일 오늘의 띠별 운세
+-  [최용재의 매일밤 12시]저는 희귀병을 앓고 있습니다, 넘어지고 또 넘어집니다, 그리고 다시 일어납니다
+-  '세계적인 팝女가수 때문에'…34년만에 강등 위기 佛 올랭피크 리옹→2부 추락 탈출 안간힘→테일러 스위프트 공연 때문에 홈구장 비워야 한다니…
+-  역시 롯데 21세 차세대 간판타자…100% 출루와 4타점으로 태극마크 ‘완벽 적응’
+-  لجنة سيادة القانون بوزارة العدل تنظم ندوة نقاشية حول مخاطر حمل السلاح وإثارة على المجتمع
+-  Bengaluru had most acid attack victims in 2022, shows NCRB data
+-  Видео первого боя Жалгаса Жумагулова с нокаутом после ухода из UFC
+-  Mac McClung élu joueur du mois en G League : prochaine étape, retrouver la NBA ?
+-  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 6 décembre – La retraite de Kobe Bryant
+-  Казахстанский специалист стал генеральным менеджером «Сарыарки»
+-  Czy franczyza się opłaca? Rzecznik MŚP: „Jakby w XXI był chłop pańszczyźniany przywiązany do ziemi. Na to się zgodzić nie można”
+-  Vaccini anti covid, in Piemonte 12mila dosi a settimana
+-  Τελευταία εξέλιξη: Προφυλακιστέος ο τράπερ και τα υπόλοιπα μέλη της συμμορίας που «ρήμαζαν» ΑΤΜ
+-  Užas u Varaždinu: Eksplodirala plinska boca u automobilu, troje ozlijeđenih
+-  Citypress | Finance Minister Godongwana slaps Mthunzi Mdwaba with a R1 million lawsuit over bribery allegations
+-  Sense of urgency at COP28 unlike any climate summit before, says John Kerry
+-  Jasmi Joensuu jää sivuun Östersundin maailmancupista – "Tämänkään en anna lannistaa"
+-  ITV treats viewers to jam-packed festive lineup as they reveal Christmas Day schedule which includes the return of a popular quiz show
+-  Il Torino Film Festival non chiude col botto: perde quasi 6mila spettatori
+-  US chocolate maker and his wife are arrested in Dominica after millionaire Oscar-winning 3D animator and his partner were 'ambushed by hitman' and their bodies found in a burned car amid row about an access road
+-  Je li protuofenziva zaglavila? Ukrajinski zapovjednik otkrio: 'Cijeli plan počivao je na jednostavnim stvarima'
+-  Commerce à Quimper : la maroquinerie L'Ombrelle se transmet de mère en fille
+-  Presidente de Cuba rinde homenaje al Ayatola Jomeini
+-  Треньорът на волейболния "Хебър" си тръгна с критики към кмета на Пазарджик
+-  Telejättarna går samman med polisen – ska stoppa bedragarna
+-  Zapping the brain with electricity twice a day can reverse symptoms of Alzheimer's in WEEKS, study suggests
+-  Denuncian daños en viviendas tras baile por fiestas patronales de Sensuntepeque
+-  أسامة ربيع: 4 قاطرات لسحب سفينة حاويات تعطلت خلال عبورها قناة السويس
+-  ¿Todo fue un sueño? Sporting Cristal: “No hay nada de Portugal por Grimaldo”
+-  גלנט לראשי רשויות בצפון: עד שלא נרחיק את חיזבאללה - לא תחזרו ליישובים
+-  ​Meredith Kercher killer Rudy Guede is charged with beating up his ex-girlfriend six months after leaving prison: Raffaele Sollecito - acquitted over the Brit's death - says 'it seems he has not changed'
+-  SpiceJet plane forced to divert, seized by lessors in Dubai
+-  Entenda como lidar com o cansaço mental no fim de ano
+-  Provide proper financial aid to cyclone victims, CM tells officials
