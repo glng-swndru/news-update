@@ -1,11 +1,11 @@
 # Latest News
--  سقوط سيدة داخل مصعد كهربائي باحد مولات عمان
--  حملة تضبط 25 اعتداء على المياه بمعان
--  Tussen 18 en 25 jaar met stempel naar Ouwe Sunderklaas
--  Захарова предложила США продать телефон Хантера Байдена для помощи Киеву
--  F1, Mercedes difende Wolff: “Respingiamo totalmente le accuse”
--  De Vrij e Dumfries out, le soluzioni dell'Inter possono arrivare dal futuro
--  Volpiano Pianese e Juventus insieme per altre due stagioni, fino al 2026
--  Bayern Monaco, sguardo verso il futuro: preso Zaragoza dal Granada
--  Pirlo, il tifo Inter, la rivincita Juve e l’aneddoto su Lippi: “Scelse me”
--  Grand Theft Auto 6 has already broken these three world records in just 24 hours
+-  Возач починал возејќи па излетал од патот во кичевско
+-  El español que hizo un imperio con sus hoteles NH y la fórmula buenos, bonitos y baratos
+-  Truck carrying 47 undocumented immigrants stopped at Dutch-UK ferry port
+-  Johor Causeway checkpoint power outage 'an embarrassment for the state', says chief minister
+-  Emma Raducanu faces Australian Open wait but Caroline Wozniacki handed wild card
+-  Allesley - the new global leader in ultra-luxury automotive coachbuilding
+-  [날씨]절기상 대설, 아침 최저 영하 6도 '쌀쌀', 오후엔 영상 14도 '포근'
+-  오늘 송암동 차상찬 이야기길 안내판 제막
+-  춘천 예술인 한해 결산 유공자 표창
+-  수열에너지 클러스터 착공 기업 유인책 시급
