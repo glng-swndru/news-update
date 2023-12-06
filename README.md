@@ -1,51 +1,51 @@
 # Latest News
--  নেপাল থেকে ৪০ মে.ও জলবিদ্যুৎ আমদানি হবে
--  McGill, Concordia credit ratings under review for downgrade: Moody's
--  Cumplieron 17 dependencias con información sobre contrataciones públicas
--  Motociclistas sinaloenses visitan Guadalupe y Calvo
--  'Quiero ser candidata de los que ya no quieren ser pobres'
--  Vivienda abandonada se convierte en nido de malvivientes
--  Automovilistas abandonan el puente Libre por manifestación
--  Sanciona EU a líderes de los Beltrán Leyva
--  Anuncian 17 edición de la carrera 'Guantes y Bonetes'
--  Ringo Starr Shared How His Beatles Bandmates ‘Ruined’ His Career
--  Cómo conseguir skins de The Boys en Warzone: A-Train y Firecracker
--  Vlahovic contro Osimhen, Allegri vs Mazzarri: tutti i duelli di Juve-Napoli
--  Qui est Alexis Manenti, flic borderline dans "Les Misérables" de Ladj Ly ?
--  Congresistas rechazan intromisión de Corte-IDH
--  Læs dem her: De bedste fortællinger fra Champions League 4/4
--  Indústria: Câmara de Águeda prepara venda de terrenos para investimento de 180 milhões de grupo chinês
--  Cowboys, Lions y 49ers a la caza de Eagles en la cima de la NFC en la semana 14 de NFL
--  Soccerladuma | 6 Man Utd Players Who Could Leave For Free
--  Golf's big hitters to be reeled in by ball rollback
--  Gérard Depardieu visé par une deuxième plainte pour agression sexuelle
--  Toulouse. Une Nocturne de Noël au marché couvert Saint-Cyprien
--  لماذا لم تبن حماس ملاجئ للفلسطينيين كما بَنَتْ أنفاق في غزة؟.. داعية كويتي يرد (فيديو)
--  Farooq Abdullah: అమిత్‌షా పీఓకే వ్యాఖ్యలపై ఫరూక్ అబ్దుల్లా ఫైర్.. నువ్వింకా అప్పుడు పుట్టలేదు
--  Compensation Fund frustrating disabled patients in desperate need of meds
--  Rand manipulation: ANC supports criminal charges against implicated banks
--  US charges four pro-Russian troops in Ukraine with war crimes
--  Kwezanamuhla: Adaluliwe amagama abavukuzi abashonile, ibheyili yasePhala Phala
--  Zach is BACK! Jets' Wilson is named New York's starter for Sunday's game vs. Houston after reports surfaced that the struggling QB was against returning to the top of the depth chart
--  البيت الأبيض: لا نعرف كيف سيكون الحكم في غزة
--  حيلة ذكية تزيد سرعة الإنترنت المنزلي.. جربها على الراوتر الآن
--  طائرة شحن محملة بمعدات عسكرية أمريكية تصل إلى إسرائيل
--  الاردن يحاكم 20 شخصا بتهمة بيع طائرة بوينغ
--  منتخب الناشئين يتعادل مع نظيره العراقي ودياً
--  জাপার আবদার ৬০, আওয়ামী লীগ দিতে চায় ৪০ আসন
--  Hope of a breakthrough in 'German Madeleine McCann' investigation as cold case sniffer dogs home in on new location eight years after Inga Gehricke, 5, vanished without a trace
--  ‘Najbolje da načelnika izbacim kroz prozor i odrobijam ga 6 godina.‘ Prijetnja vijećnika načelniku dovela do optužnice
--  Cowboys head coach Mike McCarthy 'is set to undergo appendicitis surgery TODAY'... but remains hopeful to be back for NFC East showdown against Eagles on Sunday
--  Po Łodzi grasują Mikołaje. Tęczowe [FOTO]
--  ضربا عاملًا بشومة حتى الموت.. المؤبد لشقيقين في الإسكندرية
--  مجموعة توازن الإماراتية تتفقد جناح الهيئة العربية للتصنيع بمعرض إيدكس 2023
--  أردوغان: قادة الاحتلال سيُقدمون للعدالة بعد ارتكابهم المجازر في غزة
--  أمطار وظاهرة جوية احذر منها.. "الأرصاد" تكشف طقس غدًا الخميس
--  التموين: الإتفاق مع 4 شركات إنتاج السكر من البنجر لإمداد الأسواق بـ 8 آلاف طن يومياً.. تفاصيل
--  واقعة غريبة وصادمة.. لن تتوقع ما فعلته سيدة مع ابنها أثناء مشاجرة مع طفل
--  بالفيديو.. المقاومة تستهدف عددًا من الآليات العسكرية لجيش الاحتلال
--  في حضور سيلمان.. جلسة هامة لمعتمد جمال مع لاعبي الزمالك بعد تأجيل مواجهة الاتحاد
--  Ermənistan ordusunun üç hərbçisi saxlanıldı
--  Lublin już świąteczny. Choinka pod Ratuszem i iluminacje
--  WeBuyCars kan dalk beurs toe
--  "Ehkä haikeuden ja helpotuksen sekoitelma on se tunne, joka tässä nyt on pinnalla" – viimeiset presidentti Sauli Niinistön isännöimät Linnan juhlat ovat käynnissä
+-  금새록, 눈부신 예쁨
+-  "רק" 62 שנה אחרי ארה"ב: איראן שיגרה חללית לא מאוישת לחלל
+-  Bourse de Tunis : Tawasol Group Holding, une bonne performance annuelle
+-  Przychody firm mogą zacząć przyspieszać. Briefing kondycji przedsiębiorstw
+-  Europejski rynek akcji najwyżej od czterech miesięcy, nowy rekord DAX
+-  Badanie: przeciętna rodzina wyda 3739 zł na organizację Bożego Narodzenia
+-  Boða um­fangs­mikið verð­lags­eftir­lit fyrir Ólympíu­leikana
+-  Newcastle ‘keeper Pope out for ‘around four months’ with injury
+-  7 December Ka Vrishabh Rashifal: वृषभ राशि वाले विरोधी पक्ष के सामने अपनी कमजोरी को न बताएं, नहीं तो पड़ सकते हैं मुसीबत में
+-  الأمطار الأخيرة تحفز مزارعي المفرق للزراعة الحقلية
+-  The iPhone 13 and iPhone 14 Are About to Get Faster Wireless Charging
+-  India News | Adani Ports Board to Meet on December 12, to Consider Raising Funds
+-  Rep. Pressley introduces legislation to guarantee right to vote for people with felonies on record
+-  3 killed at massive fire in Pakistan's largest southern city of Karachi, officials say
+-  Taylor Swift is named Time magazine’s person of the year
+-  Soderbergh, 'Freaky Tales' and a Kristen Stewart double bill headline Sundance 2024
+-  Deep within an inhospitable desert, a window to first life on Earth
+-  كيف يكون للدعم السريع ارتكازات داخل العاصمة ووضع مثل وضعه قبل ١٥ أيريل ٢٠٢٣م؟
+-  NASA's Psyche delivers first images and other data
+-  Toxic comments associated with reduced activity of volunteer editors on Wikipedia
+-  Novel probiotic application method shows promise as a growth promoter for chickens
+-  Shiba Inu’s Shibarium Welcomes First Major Hardfork
+-  Tanie wycieczki last minute na święta Bożego Narodzenia 2023. Poznaj najciekawsze oferty all inclusive
+-  Shannen Doherty Says Her Husband Cheated While She Battled Cancer
+-  When Nearly Flat Isn’t Really Flat
+-  Sundance Unveils A.I., Pedro Pascal, Kristen Stewart, Satan, Devo & Steven Yeun Packed Lineup For Festival’s 40th Edition
+-  Revela sexo do bebé!
+-  Топ 10 најплатени спортистки – речиси сите се тенисерки
+-  Розыгрыш билетов на Кремлевскую елку – в МВД предупредили о новом виде мошенничества
+-  Former Recording Academy chief Mike Greene accused of sexual assault and battery
+-  ‘Was an Idiot…Said That Stupid Thing…’ Harry Brook Regrets Comments Made During IPL 2023 About ‘Shutting Up Fans’, England Cricketer Reveals He Deleted Social Media Apps
+-  Fenerbahçe'de Beşiktaş mesaisi devam ediyor
+-  ABD’li Senatör Menendez'in evinden çalıntı külçe altınlar çıktı
+-  Starbucks'ın piyasa değeri 20 günde 12 milyar dolardan fazla azaldı
+-  100 minlik yalan 1 ailənin faciəsinə çevrildi...
+-  AB'den Yahudi yerleşimcilerin bir okulu yıkmasına tepki
+-  Weihnachtsmarkt Dortmund: Trotz Engel-Wende – Besucher auf 180! „Rausgeschmissen“
+-  Formel 1: Bitter für Verstappen! Trennung ist nun offiziell
+-  Links, horarios y fechas para ver a Checo Pérez en la gala de premiación de la FIA
+-  София пред криза с боклука: Всеки ден в депо се изсипват 600 т вместо 80 т
+-  Calgary mammograms for Sask. patients cost 10 times more than in-province delivery, says NDP Opposition
+-  The Sony WF-C700N just hit an all-time low price — better than Black Friday
+-  News24 | Have you seen them? Police hunting 3 men linked to murder of 2 LEAP officers in Cape Town
+-  وكيل الأزهر لعضو بالبرلمان الألماني: ما يحدث بغزة عدوان وإبادة جماعية للفلسطينيين الأبرياء
+-  Live Eredivisie | Korte restant AZ-NEC op punt van beginnen
+-  "الحب يطرق الأبواب".. أبراج الحظ حليفها مع بداية سنة 2024
+-  لأول مرة في 10 سنوات.. مدفوعات فوائد الديون تتجاوز إيرادات الحكومة (تفاعلي)
+-  تقارير: أزمة تضرب ضفوف شباب بلوزداد قبل مواجهة الأهلي
+-  సర్వం వర్షార్పణం
+-  సాదాసీదాగా సర్వసభ్య సమావేశం
