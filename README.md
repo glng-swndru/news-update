@@ -1,51 +1,11 @@
 # Latest News
--  متى يتم تفعيل الهوية الوطنية بعد التجديد؟ الأحوال المدنية توضح
--  عاجل.. إنقاذ شخص بعد سقوطه في بئر بالعرضيات
--  لدغات البعوض من الإناث فقط.. اكتشاف جديد ينسف نظرية عمرها ملايين السنين
--  أبشر يوضح آلية حل مشكلة تحديث رقم الجوال
--  البطولة الإحترافية1..الوداد يقلب الطاولة على مولودية وجدة ويفوز بثلاثية
--  وفاة عسكري طنجة.. توضيح من الوكيل العام للملك لدى محكمة الاستئناف بطنجة
--  La crítica de Monegal: Las bragas de la niña de Shrek enamoraron a Buenafuente
--  Corpo de Bombeiros localiza vítimas de afogamento em Juara
--  Comissão adia para quinta-feira votação da MP de isenção para crédito fiscal
--  Ministro da Agricultura diz que negocia com equipe econômica mais R$ 500 mi para seguro rural
--  Jovem brasileira desaparece em Washington, nos Estados Unidos
--  Prefeitura encaminha à Câmara projeto de reforma administrativa
--  Netanyahu: Yahya Sinvar’ın evini kuşattık
--  Bufera F1! Caso Toto Wolff: tutti i team si schierano contro la FIA
--  Marcus Rashford axed from Man Utd starting XI for crucial Chelsea clash as fans hail ten Hag’s bold team selection
--  Pronostico Everton-Newcastle, segno 2 ben pagato ma...
--  وزيرة المرأة بالحكومة الليبية المكلفة من البرلمان: شكلنا فريق دعم نفسي للنساء الناجيات من كارثة درنة
--  برلمانية إسرائيلية: نتنياهو يخشى ليبرمان أكثر من "حماس"
--  بوتين خلال لقائه مع ولي العهد السعودي: لا شيء يمكن أن يعيق التعاون بيننا
--  نشطاء يتداولون آخر رسالة صوتية لوالدة صحفي بغزة قبل استشهادها (فيديو)
--  ¡UFC en México! Brandon Moreno y Yair Rodríguez protagonizan cartelera en la CDMX
--  От «борьбы с ватой» до шоу Соловьева. 10 фактов об убитом депутате Киве
--  The US is poised to require foreign aircraft-repair shops to test workers for drugs and alcohol
--  St. Pauli baut Burchert nach Holper-Gegentor auf: „Etwas Besonderes!”
--  McCall applies for French passport after ‘complicated relationship’ with mother
--  Numes Marques pede vista e adia julgamento de indicações políticas em estatais
--  McCall applies for French passport after ‘complicated relationship’ with mother
--  White Claw 0% Non-Alcoholic Premium Seltzers Review: Zero Alcohol, 100% Awesome
--  Ajax trekt zege over de streep op bijzondere avond en meldt zich in subtop
--  "רוביאלס נישק גם שחקניות אנגליות". הספרדי הגיב: "זו צביעות"
--  רוטציה בשני הצדדים: קנדיל, גרשון ורפאלוב פותחים נגד ויאריאל
--  NU+ | Van theater naar journalistiek: Cilly Dartell gaf Hart van Nederland gezicht
--  Merdan Yanardağ gazetecileri hedef alan Akşener’i canlı yayında tartışmaya davet etti
--  رئيس الوزراء الإسرائيلي: قواتنا تطوق منزل قائد حركة حماس يحيي السنوار في غزة
--  كلوب يعلن التشكيل الرسمي لليفربول أمام شيفيلد
--  Dad Arrested for Allegedly Helping Teen Daughter Sell Her Nude Photos Online for Thousands
--  Caiazza: "Il Napoli gioca 60 minuti. Allegri ti aspetta e ti risucchia"
--  Man Utd vs Chelsea LIVE: Latest Premier League updates as Erik ten Hag DROPS Marcus Rashford for huge clash
--  Forma-1-es szabályváltozásokat fogadott el a Motorsport Világtanács
--  Immigration minister Robert Jenrick ‘quits over Rwanda legislation’
--  जानिए, कैसा रहेगा आपका आज का दिन (07 दिसंबर 2023)
--  Abunakari Damba in South Africa for CAF Goalkeeper Elite Instructors Course
--  Pareggio tra Olbia e Rimini: al Nespoli finisce 0-0
--  MONALEESA Pooled Analyses Show Quality of Life Is Maintained in Elderly Patients Receiving Ribociclib, Endocrine Therapy
--  HENSOLDT : JP Morgan maintient sa recommandation neutre
--  Derbi öncesi Omar Colley sakatlık yaşadı
--  KRRiT: wycofanie reklam z mediów publicznych spowodowałoby powstanie duopolu Polsatu i TVN-u
--  Plastigram inwestuje w Szczuczynie 35 mln zł
--  Boom na parki handlowe szybko się nie skończy
--  Fiskus nie płaci, bo nie ma pieniędzy
+-  Cizre’de Dicle Nehri’nde kaybolan 14 yaşındaki kızın cansız bedeni Suriye’de bulundu
+-  Zelensky diz que Putin conta com "colapso" do apoio ocidental
+-  LEGO Fortnite hilariously teaches players how to befriend wildlife ahead of release
+-  A Red Dead Redemption színésze szerint lesz harmadik rész, de nélküle
+-  Kevin McCarthy was booted as House speaker two months ago. Now he's leaving Congress by year's end
+-  GDL bricht Verhandlungen ab: Bei der S-Bahn Hannover drohen erneut Streiks
+-  Ex-Chef im Kapitol: McCarthy kündigt Rückzug aus Kongress an
+-  The North Face responds to woman’s criticism about raincoat in epic way
+-  اختطاف نازحة في وادي عبيدة بمأرب
+-  تدمير أكبر مصفاة نفط في السودان
