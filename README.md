@@ -1,11 +1,51 @@
 # Latest News
--  Янгиланган Конституция – Ўзбекистон халқининг сиёсий иродаси натижасидир
--  Кичик ва ўрта бизнеснинг ривожланишида молиявий қўллаб-қувватлаш муҳим ўрин тутади
--  Ёшлар етакчилари ҳамда волонтёрлар кўчат экди
--  Ўзбекистондан ЕИга экспорт 1,5 баробар ошди
--  Салаев Дилшодбек Софарбаевичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертацияси ҳимояси тўғрисида
--  Янги таҳрирдаги Конституция – янги Ўзбекистоннинг мустаҳкам пойдевори
--  Actors approve ‘enormous victory’ deal to formally end Hollywood strike
--  Автомобили Rivian могут резко подешеветь
--  Expert-Approved Tea To Boost Fertility In Men And Women; Check It Out
--  나고야 물들인 '세븐틴 더 시티'...하이브 "높아진 IP파워"
+-  AVISO – Pressekonferenz zum Österreichischen Impftag 2024 am 13. Dezember 2023
+-  Parly not ready for independent candidates to participate in House - Steenhuisen
+-  Didiza concerned about negative impact of Botswana food imports restrictions
+-  Kirsten Kluyts murder: Accused claims he was 'beaten brutally' by police
+-  As Langa marks 100 years of existence, community seeks better development
+-  Efforts to clamp down on illegal power connections paying off - COCT
+-  Durban police seize R151m worth of cocaine hidden in meat boxes at harbour
+-  4 حقائق مهمة عن جمهور الاهلي هذا الموسم
+-  فلسطين النيابية: حل الدولتين لم يعد موجودًا
+-  الاحتلال يحاصر مستشفى كمال عدوان
+-  العفو العام يعود على طاولة النواب
+-  DPM Shrestha undergoes angioplasty surgery, health condition normal
+-  Police arrest gold trader from Kathmandu with illegal gold
+-  Heavy fighting across Gaza halts most aid delivery, leaves civilians with few places to seek safety
+-  Kırmızı bültenle aranıyordu! Bakan Yerlikaya duyurdu: Shaun Monaghan yakalandı
+-  Antalya’da ilk 11 ayda turist rekoru
+-  Ünlü Twitch yayıncısı Pqueen'den üzen haber!
+-  Ankara'da feci kaza
+-  Reiselust und höhere Preise bescheren Tui Rekordumsatz
+-  Dax weiter auf Rekordjagd - Merck trübt das Bild
+-  Heftige Kämpfe im Süden Gazas dauern an
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Prien zu Pisa-Debakel: "Dringender Handlungsbedarf
+-  Wirbel um Untersuchung gegen Mercedes-Teamchef
+-  Geringes Plus bei Reallöhnen in Sachsen
+-  Polizei sucht jetzt mit Großaufgebot nach vermisstem Mann aus Rochsburg
+-  Haushalt wird nicht in regulärer Kabinettssitzung beraten
+-  Stromausfall in Plauen: Fast 2000 Haushalte ohne Strom
+-  Weihnachtsmarkt in Mittweida 2023: Was es zu essen und zu trinken gibt
+-  Zwickau: Rollator einer Seniorin gestohlen
+-  Coppa Italia, Parma a viso aperto contro la Fiorentina: quote e pronostico
+-  Warzone: tutto sulla nuova mappa e la Stagione 1 di Call of Duty Modern Warfare 3
+-  Europa League, il pronostico di Villarreal-Maccabi Haifa
+-  Andrea Agnelli compie 48 anni, post social e auguri Juve diventano virali
+-  Lo rủi ro nợ và bất động sản, Moody's hạ triển vọng tín nhiệm của Trung Quốc
+-  Ducati, Martin e il rimpianto Indonesia: “Fa ancora male”
+-  Dubioser Goldhändler von Polizei und Finanzpolizei überführt
+-  5 أسماء مقترحة لتعويض رحيل فوفانا عن النصر
+-  Ex-senior prosecutor tapped as new broadcasting watchdog chief
+-  YG Entertainment's stock price soars over renewed contract with BLACKPINK
+-  TvN's upcoming music drama 'Maestra' weaves suspenseful love story with twists
+-  Lotte's heir apparent moves to tighten grip on group
+-  LTI Korea honors excellence in literary translation
+-  Global space leaders gather in Korea to discuss space exploration roadmap
+-  Real estate project financing poses biggest risk to Korean economy in 2024: S&P, NICE
+-  Real estate risks set to hit brokerages in 1st half of next year
+-  AKTUÁLNE Vodiči, POZOR! TOTO je veľká ZMENA pre DESAŤTISÍCE Slovákov: Kto to nedodrží, POKUTA ho neminie
+-  FOTO AKTUÁLNY ONLINE Snehové PEKLO sa začalo! Autá v priekope, NEHODY, šmýka sa: Doprava KOLABUJE, TU si dávajte POZOR
+-  Masívna explózia! Muž najprv strieľal na policajtov, potom jeho dom vybuchol
+-  Bakan Şimşek'ten dış finansman açıklaması
