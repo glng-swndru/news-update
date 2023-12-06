@@ -1,51 +1,51 @@
 # Latest News
--  Travel Centres and Hablo Announce Training Collaboration
--  Германия — Экологично ли отапливать дома дровяными системами
--  સરકાર બફર સ્ટોક બનાવવા ખેડૂતો પાસેથી તુવેરની ખરીદી કરશે
--  Rijeka – Slaven Belupo: obavijest o prodaji ulaznica
--  المقاومة تقصف قوات إسرائيلية متوغلة بخان يونس وصفارات الإنذار تدوي في “إيلات” عاجل
--  Wahlfeier für Herzog und Nussbaumer in Liestal BL begonnen
--  Schweiz laut Studie das am stärksten globalisierte Land
--  Schweizer EM-Basis in Stuttgart
--  Anklage gegen Rohstoff-Unternehmen wegen Korruption
--  Schweizer Pilotprojekt hat CO2-Speicherung getestet
--  Šta je ljude najviše zanimalo: Wikipedia objavila 25 najčitanijih članaka u 2023.
--  Simon Birmingham, Josh Burns lead cross-party visit to Israel
--  ইসরায়েলে যুক্তরাষ্ট্রের অস্ত্র সরবরাহ কমছে না
--  มท.ชี้ 6 วัน "หนี้นอกระบบ" พุ่ง 3,316 ล้าน กทม.ยังแชมป์
--  Lyfti rúmlega 707 kílógrömmum í Eistlandi
--  Lecco, Bonazzoli: "La rinascita è merito dei giocatori. Malgrati fondamentale per il modulo"
--  Soccer-Newcastle keeper Pope set to miss four months with injury, says Howe
--  Popular Perthshire food hall bought by garden centre firm
--  Belfast Ranked One of Best Winter Break Destinations in World
--  Three Superstars of Indian Team: Fans Celebrate Birthday Boys Ravindra Jadeja, Jasprit Bumrah And Shreyas Iyer
--  Music icon banks £2million profit on sale of ‘stunningly beautiful’ mansion in remote part of Scottish Highlands
--  Scleroderma Therapeutics Market is Anticipated to Increase at a Stable CAGR over the Forecast Period (2023 to 2029)
--  岸田首相 イスラエルのネタニヤフ首相と電話会談 衝突後初
--  Ozieri, dalla Regione 200mila euro per il centro di equitazione a Chilivani
--  8 dhjetori, e premte, ditë jopune për të gjithë qytetarët e Maqedonisë së Veriut
--  Fyrirliði Danmerkur: Það eru engin orð til að lýsa þessu
--  ફ્લાવરનું સૂકું શાક
--  Paris Set For Major Transport Upgrade As New Metro Network Takes Shape
--  Northeast Railway GM Calls Upon Nagaland CM, Discusses Dimapur-Kohima Rail Projects
--  Jane’s Addiction announce 2024 UK and European tour
--  PowNed doet aangifte van aanval op cameraploeg tijdens Sunneklaasfeest
--  De Grootste Kerstboom gaat weer aan: feest van verbinding
--  Türk Eximbank'dan deprem bölgesine 100 milyon dolarlık kaynak
--  Bacteriophage Therapy Market May Set New Growth Story: Intralytix, BiomX, EnBiotix
--  Otomotiv endüstrisi en yüksek kasım ayı ihracatına imza attı
--  Тошкентда Аббосхон Хўжаев қўлга олинди. У аввал ҳам «криминал авторитет» сифатида қамалганди.
--  Европанинг 9 та нефт-газ компаниясининг 1 йиллик ташламалари 360 минг кишининг ўлимига сабаб бўлади – тадқиқот.
--  Landhotel Adler in Bürgstadt kocht nach der Slow-Food-Philosophie
--  Ўзбекистон октябрда энг кўп олтин сотган давлат бўлди.
--  ALLAH'IN PEYGAMBERİMİZİ BİR İNSAN OLARAK SINANMASI KONUSU-2
--  4 kültürel miras daha UNESCO listesinde
--  Davutoğlu: İsrail Cumhurbaşkanı ile aynı fotoğrafta olmaktan vicdanınız sızlamadı mı
--  Komşu çift ile kızlarını öldüren 2 kardeşe ceza yağdı
--  Dondurucuya asla konulmaması gereken gıdalar...
--  Kazada ölen Mine Nur'un babası: Konuşurken telefon kesildi, kızım ölmüş de haberim yokmuş
--  Fenomenlerin kozmetik ürünleri sağlık problemlerinin artışına neden oldu
--  İstanbul'da teknik direktör Oktay Derelioğlu trafikte çıkan kavgada yaralandı
--  Destici: Asgari ücret yılda iki kez tespit edilmeye devam edilmeli
--  هجوم بمسيرة على قاعدة أميركية بالعراق
--  واشنطن بوست : نتنياهو يخوض حربين وسيخسرهما
+-  Odisha Cabinet Approves Utility Corridor Project At Gopalpur
+-  India, UK Agree To Wrap Talks Before General Election 2024 Year Begins
+-  MSME-centric Kolkata VDP Tackles Market Access Challenges
+-  Antalya'da kayıp! Cemrenur'dan 24 saattir haber alınamıyor!
+-  Yönetimin ziyaretleri sürüyor
+-  Bana güvenenleri mahcup etmeyeceğim
+-  Beşiktaş - Fenerbahçe derbisine sarı-lacivertli taraftarlar alınacak
+-  על רקע הסערה הציבורית: חוק התקציב מגיע לכנסת
+-  יעזור להציף את המנהרות? איש העסקים האמריקני שהציע סיוע לישראל
+-  "אני לא יכולה להכיל את זה": מלכת היופי במיל' לא מצליחה לעצור את הדמעות
+-  הסכם ממון: כמה יעלה למנצ'סטר יונייטד לפטר את טן האח?
+-  מייה שם: "מתרגשת, אבל הלב נשאר חצוי"
+-  "עלייה בביקושים ליעדים הבטוחים": זו רשימת המדינות הכי פחות מסוכנות לישראלים
+-  סמוטריץ' דורש לדחות את הבחירות לרשויות המקומיות: "רוב המתמודדים שלנו גויסו"
+-  טסתם עם ראינאייר או וויז בשנים האחרונות? יכול להיות שמגיע לכם פיצוי כספי
+-  אנג'לינה ג'ולי על הדרמה הרפואית: "הגוף שלי מגיב רע מאוד ללחץ"
+-  הרעה במצבם הבריאותי של המשוחררים: אחת השבות צפויה לעבור היום ניתוח
+-  המחשבות על עתיד המדינה גוברות על הדאגות למשפחה: לוחם הצנחנים שהספיק להגיע מהחזית בדרום ללידת בתו
+-  ארדואן מאיים: "ישראל תשלם מחיר כבד אם תנסה לחסל פעילי חמאס בטורקיה"
+-  קנגורואים מנסים לרצוח כלבים – זו הסיבה
+-  "נועם יעקב יכול להגיע ל-NBA": ג'יאנמרקו פוצקו בראיון מיוחד
+-  צפו בתמונות: סצנת האיור מגיבה למלחמה עם עבודות מצמררות
+-  דו"ח האקזיטים של PwC: נתונים קשים להייטק הישראלי
+-  טרנד האוכל החדש שכובש את העולם: הכירו את מאפה הפיצה טורטייה המשפחתי
+-  קריספי מבחוץ, נימוח מבפנים והכי טעים בעולם: ימי הלאטקעס כבר כאן
+-  לרגל נר ראשון לחנוכה: מיזם התנדבות ענק ברחבי הארץ
+-  מדהים: איבדה את הראיה במהלך המרתון – וקבעה קריטריון אולימפי
+-  Konyaspor'da sakat isimler ne zaman dönecek?
+-  לראשונה מחידוש הלחימה: טיל שוגר לעבר אילת, מערכת החץ ביצעה יירוט
+-  Η κουμπαριά Ερντογάν με τον Κώστα Καραμανλή και η ιδιαίτερη σχέση με την Ντόρα Μπακογιάννη
+-  华学健一行到惠农网走访考察
+-  践行可持续发展，瑞好75周年重申企业价值观
+-  安仁县：强化专业技能提升 筑牢建筑领域安全防线
+-  湘江欢乐海洋“蔚蓝长沙星”地铁公益专列正式亮相
+-  穿行翠云廊丨古木新生
+-  亿缕阳光｜最美的守护
+-  我国经济稳步恢复、持续向好 为物流业高质量发展提供重要支撑
+-  推动促消费政策持续发力显效（市场漫步）
+-  看见他，上一秒“哇哇大哭”，下一秒“娃娃大笑”
+-  冬季呼吸道疾病防治热点解读之九 孩子有痰咳不出？中医专家示范三种排痰手法
+-  各地多举措做好呼吸道疾病防治工作 优化诊疗服务 满足就医需求
+-  匠心筑梦 技能展望｜移动应用新场景
+-  飞阅中国｜瞰茶马古道 品千年茶香
+-  专家谈 | 共建“一带一路” 下一个金色十年可期
+-  凝心聚力 共谋发展——长沙市第三医院成功举办中层干部培训班
+-  专访：“‘美丽中国’传递着积极愿景”——访联合国前副秘书长索尔海姆
+-  聚焦世界媒体峰会丨顺应时代 全球人士畅谈传播力
+-  收藏！关于中国，外国媒体“大咖”爱看这些书
+-  通讯：中国电动车助力联合国气候大会
+-  更多交流 更多包容 更多合作
