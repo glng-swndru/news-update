@@ -1,11 +1,11 @@
 # Latest News
--  CloudFabrix launches and demonstrates Data Fabric for Observability Platforms at Cisco Live 2023 Melbourne
--  Zaujímavý projekt je dostupný aj na Slovensku: Všimli ste si, čo pripravil známy reťazec?
--  Guild Eagles vs 9 Pandas Betting Tips & Odds
--  Supuesto ladrón de mochila de universitaria fue capturado
--  Deuxième mandat de dépôt à l’encontre de Marouane Mabrouk
--  Serie A, anticipi e posticipi: col Napoli si gioca il 7 gennaio alle 15
--  Do Nove godine samo Maјa Јovanović može biti na čelu Vrhovnog državnog tužilaštva
--  New Reno-Based Streaming Service “Sunn Stream” Launches to Uplift Independent Creators
--  В ЛНР во время теракта погиб экс-депутат Народного Совета
--  الفريق ربيع: حركة الملاحة بالقناة لم تتأثر والسفينة ONE ORPHEUS تستأنف عبورها
+-  HENSOLDT : JP Morgan maintient sa recommandation neutre
+-  KRRiT: wycofanie reklam z mediów publicznych spowodowałoby powstanie duopolu Polsatu i TVN-u
+-  Plastigram inwestuje w Szczuczynie 35 mln zł
+-  Boom na parki handlowe szybko się nie skończy
+-  Fiskus nie płaci, bo nie ma pieniędzy
+-  Skąd nadejdą zagrożenia dla wizerunku firm
+-  Jakie dotacje z FENG można zdobyć w 2024 r.
+-  Schroders nie tyka polskich akcji
+-  Oto najlepsze lokaty krótkoterminowe XII 2023
+-  Dla mnie 2023 jest rokiem mocy
