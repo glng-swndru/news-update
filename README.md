@@ -1,51 +1,11 @@
 # Latest News
--  Shantykoor de Hoeksche Waard in Wijkcentrum Hart van Meerdervoort
--  Meteorologe kündigt gefährliches Tauwetter in Baden-Württemberg an
--  Justin Tucker: All-time field goal percentage record not on my mind right now
--  Possible iPhone 16 Pro series design shown in renders
--  Pasca-Covid-19, Keterampilan Matematika dan Membaca Menurun di Kalangan Remaja
--  Europejski kraj ogłasza nową-starą epidemię. Będzie kłucie
--  Херсон ўққа тутилиши ва Авдийивка атрофида давом этаётган жанглар. Уруш суратлари.
--  Сурхондарё вилоятида 320 дан ортиқ Mobiuz таянч станциялари ишга туширилди.
--  Pyydän anteeksi, Sauli Niinistö
--  Sejumlah Kontroversi Ade Armando, Terbaru Singgung Politik Dinasti Yogyakarta
--  8 Rekomendasi Film dan Serial Mendebarkan Terbaru di Netflix
--  "Je veille au grain" : Mélanie Thierry se confie sans tabou sur l'éducation de ses enfants !
--  Pitu Salvatierra: "Macri sabe que pierde la elección en Boca"
--  Il n'y aura finalement pas de médecins déconventionnés dans ce cabinet médical du Perche
--  Meet The First Malaysian Model To Walk For Louis Vuitton
--  GZSZ-Vorschau vom 6. Dezember 2023: Lukas kommt mit einem blauen Auge nach Hause
--  Kensington Thunderbolt 4 Docking Station
--  マイナで5032件誤登録 行政指導
--  Klimaaußenpolitik-Strategie beschlossen
--  Zaboravljamo da ova kraljica vrta ima nevjerojatan učinak na naše tijelo - jedite je cijele godine!
--  MSB: 8 terörist etkisiz hale getirildi!
--  6 yıl hapis cezasıyla aranan PKK'lı tutuklandı!
--  Formel 1: Star-Pilot unzufrieden – zieht der Vertragspoker einen großen Streit nach sich?
--  عضو بمجلس الدولة: طاولة مفاوضات باتيلي ماتت قبل أن تولد
--  Maurer, Rubey, Furtwängler u. v. m. in ORF-1-Premiere „Abenteuer Weihnachten – Familie kann nie groß genug sein“ am 8. Dezember
--  МО: украинские войска за сутки потеряли более 800 военных в ходе СВО
--  Диетолог рассказала, как ускорить метаболизм после 40 лет
--  Pilpres 2024: Catat Janji Kampanye Anies-Cak Imin, Tambah Kuota Haji hingga Sahkan RUU Perampasan Aset
--  California poultry processor fined $3.8 million for hiring, endangering children
--  JBL не смогла убедить суд, что «Урал» скопировал её продукцию
--  Wit Studio Will Adapt Part 3 of Ascendance of a Bookworm Light Novel
--  Šire se lažne fotografije Lidije Bačić i Nives Celzijus: Oglasile su se pjevačice
--  ITV Vera Christmas special sees return of terrific character
--  Video/Foto: Dodik stigao u Sud BiH
--  Podrška Dodiku: Organizacije i političari iz RS pred Sudom BiH
--  Video: Indien: Heftige Überschwemmungen nach Tropensturm
--  Copa América 2024: cuándo es el sorteo y cómo verlo en vivo
--  Segja niðurstöðurnar ekki gagnast einstökum skólum
--  Amazon slams Microsoft’s business practices in UK cloud market probe
--  New special school announced for Kildare
--  Microsoft begins shipping Surface Hub 3 in two screen sizes
--  Montereau : une nouvelle auto-école a ouvert près de la gare
--  Cep yakan doğalgaz faturasından tasarruf etmenin 10 yolu
--  PODRŽAVAJU NASILJE! Hovenijer: Izbori na KiM ukoliko Kurti to dozvoli!
--  Flugzeug deutlich beschädigt: Airbus A380 gerät in schwere Turbulenzen – mehrere Passagiere verletzt
--  NATO'yu uyardı: Doğrudan çatışma riski artıyor
--  Un altro autogol per Nothing: è stata trovata una vulnerabilità in CMF
--  Junior doctors' latest strike dates send a message but gameplan is unclear
--  'He doesn't want to face us': Boris Johnson arrives at dawn, avoiding Covid inquiry families
--  'He doesn't want to face us': Boris Johnson arrives at dawn, avoiding Covid inquiry families
+-  '아베크롬비 폭발' IBK기업은행, GS칼텍스 격파하고 4위 점프
+-  떨어지면서 쏜다… 폰푼의 마법, ‘시간차 토스’로 승리 이끌다[스한 스틸컷]
+-  “못이겨 아쉽네” 강원 윤정환에 김포 고정운 “해볼만하네”[승강 PO 1차전]
+-  Patricia Benavides: Jaime Villanueva sale en libertad tras acogerse a colaboración eficaz
+-  Kiprah Petani Milenial Indonesia
+-  Den Scherbenhaufen aufkehren: Die EKD diskutiert über die Folgen des Rücktritts ihrer Ratsvorsitzenden
+-  TVXQ Gelar Asia Tour, Ada Indonesia?
+-  TBMM Başkanı Kurtulmuş: İsrail'in en büyük gücü İslam dünyasının dağınıklığı
+-  Dursun Özbek'ten Şampiyonlar Ligi açıklaması! "Tarih yazacağımıza yürekten inanıyorum"
+-  Diyanet İşleri Başkanı Erbaş, "Akademi İstişare Kurulu Toplantısı"nda konuştu
