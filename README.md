@@ -1,11 +1,51 @@
 # Latest News
--  '아베크롬비 폭발' IBK기업은행, GS칼텍스 격파하고 4위 점프
--  떨어지면서 쏜다… 폰푼의 마법, ‘시간차 토스’로 승리 이끌다[스한 스틸컷]
--  “못이겨 아쉽네” 강원 윤정환에 김포 고정운 “해볼만하네”[승강 PO 1차전]
--  Patricia Benavides: Jaime Villanueva sale en libertad tras acogerse a colaboración eficaz
--  Kiprah Petani Milenial Indonesia
--  Den Scherbenhaufen aufkehren: Die EKD diskutiert über die Folgen des Rücktritts ihrer Ratsvorsitzenden
--  TVXQ Gelar Asia Tour, Ada Indonesia?
--  TBMM Başkanı Kurtulmuş: İsrail'in en büyük gücü İslam dünyasının dağınıklığı
--  Dursun Özbek'ten Şampiyonlar Ligi açıklaması! "Tarih yazacağımıza yürekten inanıyorum"
--  Diyanet İşleri Başkanı Erbaş, "Akademi İstişare Kurulu Toplantısı"nda konuştu
+-  Конституция – ҳуқуқ ва бурчларимиз тарозиси! (+видео)
+-  Ижтимоий ҳимояга оид ҳуқуқлар ва манфаатларнинг таъминланиш асоси
+-  طريقة تحضير الفريكة على الطريقة اللبنانية
+-  الصفدي يوجه اللجنة القانونية لمواصلة نقاش الاتفاقيات مع إسرائيل
+-  الخدمات الطبية تعمل على إنشاء مستشفى جديد في الزرقاء
+-  إطلاق مركز انطلاق موحد في الزرقاء العام المقبل
+-  الأغذية العالمي: ارتفاع نسبة انعدام الأمن الغذائي للاجئين في الأردن
+-  صناعة عمان تطلق موقع وتطبيق أردني
+-  NI: Киев потребовал от Запада дать F-16 из-за превосходства российских Су-35
+-  Rusima rečeno: Pomolite se Bogu i bežite
+-  News24 | Iran says it is closer to human spaceflight after capsule launch
+-  Citypress | Green lobby group Africa Coal Network calls for 100% green energy for Africa
+-  El Tribunal Constitucional de Perú ordenó la excarcelación inmediata de Alberto Fujimori
+-  قطاع التعليم..رئيس فريق التجمع الوطني للأحرار يهاجم التنسيقيات ويتهمها بالابتزاز
+-  Emekli ikramiyelerinin maliyeti açıklandı
+-  Antalya'da piyasa değeri 2 milyon TL olan bonzai ele geçirildi
+-  Tanju Özcan'dan İYİ Parti açıklaması!
+-  Tarihçi yazar Dr. Mustafa Çalık hayatını kaybetti
+-  Antalya'da sağanak, yaşamı olumsuz etkiledi
+-  İngilizlerin Hollanda'yı işgal planı!
+-  Erkan Baş basın toplantısında konuşuyor
+-  Adana'da cinsel istismar sanığına 8 yıla kadar hapis istemi
+-  Mardin'de 170 araç trafikten men edildi
+-  Milli Takım'a 2 Timsah
+-  Birleşmiş Milletler: Gazze Şeridi'nde güvenli bir bölge yok
+-  Bahis dolandırıcılığı soruşturmasında 16 kişi gözaltına alındı!
+-  UPTEC entra em consórcio de três milhões para apoiar empresas da área do turismo
+-  Okypy: Nicosia General’s accredited clinical labs specialised in rare, serious cases
+-  Only half of Cypriots intend to vote in EU elections
+-  Paleta doživljaja u Koprivničko-križevačkoj županiji
+-  Zelenskiy assures Ukrainians of victory with US aid in the balance
+-  Repunta cifra de consultas en el IMSS: Zoé Robledo
+-  Breng extra sfeer in je interieur: van lichtplan tot lampenkap en verlichte kersttafel
+-  Греф заявил об отсутствии предпосылок для укрепления курса рубля
+-  Juve, assist a un top player del tennis: chi è al J Medical per visite e test
+-  Kryzys w polskich skokach przypomina, dlaczego Adam Małysz nie mógł znaleźć trenera
+-  Impfungen schützen Gesundheit und Wirtschaft
+-  Exmilitares anuncian marchas el Día de Velitas en contra de la JEP
+-  Kuzey Irak'ta 8 terörist etkisiz!
+-  Kurtlar sürüye saldırıp, 65 koyunu öldürdü
+-  Conor McGregor says he’d ‘spar with the prime minister’ if he became president
+-  Hülya Koçyiğit'ten dikkat çeken sözler: 'Kadınların önü AK Parti döneminde açıldı'
+-  Представят културно-историческото наследство на каракачаните в Сливен
+-  Der Teufel Xmas Deals Sale: Premium Lautsprecher, Kopfhörer, Soundbars und mehr reduziert
+-  Посрещнаха Путин като цар в Абу Даби: Отношенията между Русия и ОАЕ са на безпрецедентно ниво
+-  الجيش الإسرائيلي يعلن اعتراض صاروخ بمنطقة إيلات
+-  Kickoff | Euro club chief: You can't have 15 African players in your squad
+-  Kickoff | Riveiro reveals how Dlamini solved Pirates' problem
+-  Honor predviđa da su preklopni pametni telefoni skorašnja budućnost
+-  Συγκεντρώσεις και πορείες για την επέτειο της δολοφονίας Γρηγορόπουλου
