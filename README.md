@@ -1,51 +1,51 @@
 # Latest News
--  Familiares lo hallan sin vida en el baño de su casa
--  Riña en Cereso de Juárez deja tres internos lesionados
--  No tengo ningún mérito, reconoce Fayad sobre Embajada
--  Declaran la ópera italiana patrimonio del mundo
--  Autorizará Corte corridas de toros en Plaza México
--  Habrá operativo de seguridad en zonas aledañas al Santuario de Guadalupe
--  [수첩] 계속되는 불황과 바이오클러스터의 역할
--  인바이츠바이오코아, 120억원 잉여금 전환 상정…주주 가치 제고 나선다
--  11월 식약처 승인 임상시험 다시 증가…총 92건 승인
--  심평원 '빅데이터'와 '응급의료'가 만나면?‥'신속 치료'에 큰 도움
--  박호영, 한국의약품유통협회장 선거 '출사표'‥유통 플랫폼 조성에 앞장
--  복지부 가세한 정신질환자 '사법입원제', 갈 길은 여전히 멀다
--  다국적 제약사 한국법인 CEO 선임 기조는 여전히 '한국인'
--  의대정원 이견 속 '숫자' 논의 조만간…협의점 찾을까
--  البيت الأبيض: بايدن لا يدعم احتلال غزة وحماس استخدمت العنف الجنسي كسلاح
--  واجب وطني.. الجبلاوي يؤكد على أهمية المشاركة في الانتخابات الرئاسية
--  الحبس سنة لمنتج شهير في قضية شيك بدون رصيد لصالح الفنان أحمد عزمي
--  "مصراوي" في جولة داخل جناح شركة رافال للطائرات بمعرض إيديكس"2023".. تفاصيل
--  رئيس وزراء إسبانيا: على مجلس الأمن التحرك فورًا لفرض وقف إطلاق النار بغزة
--  رئيس الوزراء البلجيكي: سنمنع المستوطنين المتطرفين في الضفة من دخول أراضينا
--  وزير الخارجية يشارك في إفطار عمل مع مجموعة أصدقاء مصر بالكونجرس الأمريكي
--  أمطار وظاهرة جوية احذر منها.. "الأرصاد" تكشف طقس غدًا الخميس
--  غرفة طوارئ.. «شمال الدلتا» للكهرباء تستعد للانتخابات الرئاسية بتعليمات مشددة
--  بحضور مفتي الجمهورية.. رئيس قضايا الدولة يفتتح فرعين للهيئة بالبحيرة
--  لسبب صادم.. سائق تاكسي يدهس سرب طيور - وهذا ما حدث له
--  أندية لا تعرف الخسارة في دوريات أوروبا الكبرى هذا الموسم
--  МЧС начали рейды по местам продажи пиротехники в Твери
--  ‘Our hands are tied’: Kitchener councillor speaks on housing project for ‘rainbow row’
--  [오늘날씨] 대체로 맑고 포근… 낮최고 14도
--  지난달 외국인 투자자, 4개월 만에 주식 순매수
--  Śmiał się z niego cały świat. Teraz jest bohaterem. Co za komunikat!
--  برونو فيرنانديز ينهي سلسلة غير مسبوقة في الدوري الإنجليزي
--  Bill Ackman demands resignation of university presidents over handling of antisemitic protests
--  [오늘날씨] 따뜻하고 눈 안 내리는 '대설'…최고 온도 16도
--  Hauard presudio Feneru, Gudurić tragičar! Baskonija najavila duel sa Zvezdom: Trojkom u poslednjim trenucima do pobede
--  Almanya'da vatandaşlık başvurusunda bulunanlara İsrail dayatması
--  Bakanlıktan doğal gaz desteği açıklaması: Yeni düzenlemeyle miktar yükseltildi
--  Erin Andrews Reveals How NFL Wives & Girlfriends Actually Feel About Taylor Swift & Travis Kelce's Relationship
--  RIO TINTO : UBS is neutraal gestemd over het aandeel
--  RIO TINTO: per UBS il titolo è Neutral
--  Pinterest Predicts Bold New Home Decor Styles in 2024
--  APPLE INC : UBS is Neutraal over het aandeel
--  APPLE INC: ancora rating Neutral per UBS
--  Trafo yüklü tır kazası kamerada: Aydınlatma direği faciayı önledi
--  Hullet GOG-forsvar bliver skudt ned i vigtig CL-kamp
--  Hullet GOG-forsvar bliver skudt ned i vigtig CL-kamp
--  Drama u Vilerbanu pripala Makabiju: Izraelci naneli novi poraz Pocekovoj ekipi
--  VEŠTACI MU ZAPEČATILI SUDBINU Saša se nije predozirao lekovima, evo koji dokaz šalje njegovog brata Milana na 10 GODINA ZBOG UBISTVA
--  Miguel Vergara reveló cuál fue la mayor dificultad al momento de preparar “Arroz con Huevo Frito”: El Gran Chef Famosos La Revancha
--  Epa Colombia tuvo noble gesto con habitantes de la calle antes de Navidad
+-  Gibran Absen Lagi di Acara Debat Cawapres, Jubir AMIN: Anak Muda Pengecut
+-  Nevada dispatch: UNLV campus and law school remain on lockdown after several people shot
+-  Virgil helpt Liverpool aan zege, oud-Feyenoorders winnen met Bournemouth
+-  Taylor Swift spricht über ihre Beziehung zu Football-Star Travis Kelce
+-  Saskatoon’s Prairie Harm Reduction accused of playing role in nearby bank closure
+-  Til Schweiger nach Vorwürfen gegen ihn: „Ich bin mit mir im Reinen“
+-  Acun Ilıcalı Fenerbahçe'den dördüncü transferini yapıyor! Kanarya'nın yıldızı Hull City'e imza atacak!
+-  Fransa'dan Gazze'ye 600 ton insani yardım: Kalıcı ateşkes çağrısında bulunuldu
+-  ABD'de rektörlerden özgürlük çağrısı: Müslüman karşıtlığı ile mücadele edilecek
+-  Brezilya, AB ile MERCOSUR arasındaki anlaşmanın imzalanmasını umuyor
+-  Hizbullah İsrail ordusunu hedef aldı: Lübnan sınırında gerilim sürüyor
+-  ABD'de üniversiteye saldıran zanlı etkisiz hale getirildi
+-  Yeni Ruanda Planı'nın ardından İngiltere'den ilk istifa geldi
+-  Muere una anciana tras incendiarse su vivienda en Tanos
+-  Lokomotiva: Istok je potpuno rasprodan za Hajduk, zapad će biti ubrzo
+-  Child Labor Investigation at Tyson Foods, Inc.: Is Supply Chain Due Diligence the Next Step?
+-  Vídeo | Luis Palma anota su sexto gol con la camiseta del Celtic
+-  Drag Race's Bianca Del Rio Says Her New Tour Isn't for the 'Easily Offended'
+-  Samsung has updated these devices to Android 14
+-  В США заявили о согласии всех лидеров G7 продолжать оказание помощи Киеву
+-  خاصة في المربعانية.. استشاري يحذر من خطورة البرودة الشديدة على كبار السن
+-  Wyciekł raport FIFA. Rubiales nie umiał utrzymać rąk przy sobie nie w jednym wypadku
+-  Објавени снимки на кои се гледа движењето на возилата со кои е грабната Вања
+-  ABD’ye kaçırılan 41 eser eve geri döndü
+-  L’entrée de Janssen a tout changé, la défense carolo trop fébrile : les notes des Zèbres face à l’Antwerp
+-  Norman Lear, producer of TV’s ‘All in the Family’ and influential liberal advocate, has died at 101
+-  ‘Multiple victims’ reported as Las Vegas police respond to university shooting
+-  عندما تتقاطع الحملات الموجهة ضد المغرب بين “يوتيوبرز” من ذوي السوابق القضائية والأبواق الجزائرية
+-  ‘Multiple victims’ reported as Las Vegas police respond to university shooting
+-  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
+-  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
+-  Lagkaptenen avgjorde – van Dijk sänkte Sheffield
+-  Alexis Vega está en la mira del futbol ruso ¡Estos equipos lo quieren! ¿Dejará a Chivas? | FICHAJES 2024
+-  Alan Jones denies claims he indecently assaulted men during radio career
+-  Republicans Float New Conspiracy Theory Amid McCarthy Retirement
+-  Comparecerán funcionarios ante la Comisión de Programación, Presupuesto y Hacienda Pública
+-  Glenn Maxwell lifts lid on the ‘last tournament’ he will play
+-  Active shooter suspect is DEAD after multiple victims are wounded at University of Nevada's Las Vegas campus and students were ordered to 'RUN-HIDE-FIGHT'
+-  Schüsse in Las Vegas: Angriff auf Universitätsgelände
+-  Brindan recomendaciones sobre el uso de tarjetas de crédito en este fin de año
+-  Policía de Las Vegas reporta tiroteo en la Universidad de Nevada con “múltiples víctimas”
+-  🎥 | Liverpool wint mede dankzij deze goal van Virgil van Dijk van Nottingham Forest
+-  TikTok winner Indy Clinton hugs husband Ben Azar months after she accused him of lying to her about strip club visit
+-  Кремль о трудностях США с финансированием Украины
+-  Szoboszlai második Premier League-góljával hozta a kötelezőt a Liverpool
+-  美妝保養新品雙金打造無瑕顏值！香緹卡粉餅刷出濾鏡感 雅頓A醇精華溫和柔膚
+-  Basket : Villeurbanne battu par le Maccabi Tel-Aviv en Euroligue
+-  Conheça os encantos e o glamour da Riviera Francesa
+-  Iwobi fires Fulham to victory as Liverpool win at Sheff Utd
+-  NASDAQ 100-Handel aktuell: NASDAQ 100 präsentiert sich schlussendlich leichter
