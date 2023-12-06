@@ -1,51 +1,51 @@
 # Latest News
--  मिचौंग साइक्लोन के चलते आज कई राज्यों में बारिश होने की उम्मीद
--  Nigarın rəqsi maraqla qarşılandı
--  Pharmacy sealed for illegally selling drugs
--  Volunteerism: It is really about personal, professional development
--  16th-Century Mask of Bhairava, other works returned to Nepal
--  엔비디아 CEO "美 정부와 소통하며 中 수출용 칩 개발 중"
--  Naprednjaci drže korak za Acom Rošavim: Koju ulogu na skupovima SNS imaju huligani?
--  Naira continues recovery, strengthens against dollar to N806.73/$1 at official window
--  Suomen muodostelmaluistelun kansainvälinen menestys vaatii kovaa keskinäistä kilpailua
--  어느덧 창립 10주년 맞은 빗썸… 현재진행형인 가상자산거래소의 역사
--  포항시·그립컴퍼니, 지역 농·수·특산물 라이브커머스 특별방송 진행
--  영주시, ‘꿈의 오케스트라-영주’ 정기연주회 개최
--  대한적십자봉사회 의성지구협의회 ‘사랑의 김장 나누기’ 봉사
--  의성군, 경북도 2023년 경로당 행복선생님 사업 평가 '우수상'
--  의성 안계중, AI교육 선도학교 4차 산업혁명 체험교육 진행
--  대구대 장경국 교수, 2023 한국기초조형학회 최우수발표 논문상 수상
--  의성 탑리여중, 세계시민 교육 일환 ‘공정무역 스타터 교육’ 진행
--  안동시, 직장·시민·단체부문 ‘최고의 걷기왕’ 시상
--  영천시, 2023 경상북도 중소기업대상 2개 부문 수상
--  “Kazakhstan Week” takes place in the Korean province Jeollabuk-do
--  Danmark vil have europæisk klimamål i 2040 på 90 procent
--  Danmark vil have europæisk klimamål i 2040 på 90 procent
--  Hertha BSC- Hamburger SV am Mittwoch, 6.12. live: So sehen Sie das Spiel im TV und Stream
--  Ευρωβαρόμετρο: Επτά στους δέκα Έλληνες θεωρούν ότι η χώρα ωφελήθηκε από την ένταξη στην Ε.Ε.
--  Copernicus: Το 2023 θα είναι «η πιο θερμή» χρονιά στην ιστορία, έκτο συνεχόμενο ρεκόρ τον Νοέμβριο
--  محمود فوزي: الأقدار ساهمت في توسيع مدارك المصريين ليقدروا نعمة ما فعلته القيادة السياسية
--  DFB-Pokal live: Stuttgart vs BVB im Livestream und TV sehen – alle Infos
--  "보톡스 시술 효과 감소 경험, 74% 달해"···내성 발생 우려↑
--  Klimatjeneste: 2023 bliver varmeste år nogensinde målt
--  OM-OL : pas de supporters lyonnais, les Marseillais entre soulagement et déception
--  Météo Côte d’Azur: un mercredi ensoleillé, jusqu'à 14°C à Nice
--  കാലാവസ്ഥ ഉച്ചകോടി; 1200 പ്രതിദിന സർവീസുമായി ദുബായ് മെട്രോ
--  Ein Hauch eines Weltmeisters: In David Odogu steckt auch etwas 1. FC Union
--  Sunak Bilang Kecewa ke Netanyahu atas Serangan Terakhir Israel di Gaza
--  RUU Daerah Khusus Jakarta: Ada Dewan Kawasan Aglomerasi, Dipimpin Wapres
--  Top news developments in Karnataka on December 6, 2023
--  Wetter-Schock! Akute Hochwassergefahr: Am Wochenende 15 Grad und mehr
--  Felipe Baloy (i), técnico del Tauro, junto a Franklin Narváez del CAI
--  Se cuelgan el bronce
--  Inician vigilia por desaparición de joven en Veraguas
--  Tenían 26 kilos de ‘pichi’ en edificio Penonomé, los dejan presos pero apelan
--  Caen dos presuntos cabecillas de pandilla
--  Este año el Minseg ha capturado a más de 15 mil personas por diversos delitos
--  El sueño eterno
--  Infidencias & confidencias
--  Les lingettes désinfectantes vendues comme biodégradables bouchent en réalité les canalisations et les réseaux d'assainissement
--  Vejret skaber problemer for bilister flere steder i landet
--  Vejret skaber problemer for bilister flere steder i landet
--  Украина дунёдаги энг ҳарбийлашган давлатга айланди.
--  “Бахти Ташкентский” 15 суткага қамалди.
+-  Vurgunun telefon trafiği! Kilit isimle 118 görüşme
+-  Ankara merkezli 4 ilde FETÖ operasyonu
+-  CHP'den İYİ Parti'ye ret misillemesi
+-  Mezitli Belediyesi'nde olmayan kadroya atama skandalı
+-  Yaklaşan yılbaşı öncesi sahte alkol operasyonu
+-  Çizme basını duyurdu! Rade Krunic adım adım Fenerbahçe'ye
+-  تقرير رسمي: اسم "محمد" هو الأكثر شعبية في العاصمة الكاتالونية برشلونة
+-  مع بداية يوم جديد.. اجتنب 12 عادة سلبية تستنزف طاقتك
+-  5 آلاف ضعف الموظف العادي.. تعرف على راتب أعلى 100 رئيس تنفيذي
+-  16기 영숙, 상철 이어 실명 피해 A씨에 고소 당해…"명예훼손·협박·스토킹처벌법"
+-  ابتكار روبوت يمارس الملاكمة ويُدعى «نادية».. تعرف على سبب تسميته (صور)
+-  Amnesty: Iran setzt sexuelle Gewalt gegen Protestierende ein
+-  고성군, 내년도 당초예산 6929억원 편성
+-  아이폰 '배터리 게이트'…法 "위자료 7만원 배상해야"
+-  '허위 뇌전증' 연예인 병역 면탈 브로커, 1심 징역 5년
+-  롤스로이스男 피해자 사망 후 첫 재판…방청석 두리번 '여유'
+-  요소수 대란 '악몽' 재연되나…관련 테마주 들썩
+-  구미 야생조류에서 고병원성 AI검출에 경북도 비상조치
+-  건보 체계 개편 앞둔 복지부 "어려운 필수의료, 충분히 보상"
+-  '훅' 찔러보는 디도스 공격 줄고 '돈' 되는 APT 공격 는다
+-  올겨울 미세먼지 더 독하다…"중국 석탄 난방 시작"
+-  '6조원대 철근 담합' 제강사들 항소심도 억대 벌금형
+-  여야, 2+2 협의체 매주 화요일 열기로…"각 당 10개 법안씩 논의"
+-  삼성리서치 이주호 펠로우, ‘IEEE 통신표준화 최고리더상’ 수상
+-  Sony: It's Important People Who Don't Play Games Access Our Content
+-  Organización alerta crisis de aprendizaje tras resultados de PISA
+-  Gladbach hofft auf Losglück: «Jetzt sind wir auch mal dran»
+-  Celal Şengör'den tartışma yaratacak sözler. Maden açılmasın diyen zır cahildir
+-  A James Webb-űrteleszkóp „egy igazi szörnyeteget” örökített meg a mélyűrben
+-  पीएम नेतन्याहू का एलान, युद्ध के बाद भी गाजा में सुरक्षा नियंत्रण बरकरार रखेगी इजरायली सेना
+-  El aviso de la Seguridad Social sobre el informe de vida laboral
+-  La dieta vegana abbassa i livelli di colesterolo e insulina (in sole 8 settimane)
+-  Brucia l'auto di un commerciante: è mistero sulle cause, avviate le indagini
+-  Flaş gelişme... Milli Eğitim Bakanlığı, okullarda 'sınıf annesi' uygulamasını yasakladı
+-  Kickoff | Agent confirms rescue plan for Pirates striker
+-  Antetokounmpo über NBA-Prämien: «Die Reichen werden reicher»
+-  Schröder zum neuen NBA-Pokal: «Ich finde es geil»
+-  Bitcoin'de hareketlilik sürüyor
+-  İsrail, BM Koordinatörü'nün vizesini iptal etti
+-  Gözler Kabine'de: Gündem asgari ücret!
+-  Así está hoy Darío Giordano, el esposo de Romina Yan y padre de sus 3 hijos
+-  Днес ще завали дъжд, утре преминава в сняг
+-  순천향대학교 부천병원, 권역정신응급의료센터 개소
+-  SLAVI BOŽIĆ I SLAVU Srpski zet iz Japana oduševljen našom zemljom: "Kao pravi Srbin, slušam taštu i ženu"
+-  'พวงเพ็ชร'บอกเศรษฐกิจตกต่ำ ยอดคนขึ้นภูกระดึงน้อย เลยอยากผลักดันกระเช้าเพิ่มรายได้
+-  'ชาดา'ชี้เรื่องยาเสพติดเป็นปัญหาของคนไทยทุกคน ยันกำลังแก้กฏกระทรวง ครอบครอง 5 เม็ด
+-  ไม่เกินกำหนด! กรมขนส่ง เผยจีพีเอสความเร็วรถทัวร์ตกข้างทาง ก่อนเกิดเหตุวิ่งแค่ 88 กม./ชม
+-  รัฐบาลเชิญชวนเปิดประสบการณ์ท่องเที่ยวพิพิธภัณฑ์ในยามค่ำคืน 48 แห่งทั่วประเทศ
+-  বগুড়ায় খড়বোঝাই ট্রাকে আগুন
+-  กองกำลังกะเหรี่ยงคะยายึดค่ายทหารเมียนมาเมืองชาดอว์ได้แล้ว
