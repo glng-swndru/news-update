@@ -1,11 +1,51 @@
 # Latest News
--  진천군, 신재생에너지 융복합 지원사업 7년 연속 선정
--  충주시, 노사문화 대통령 표창 수상 겹경사!
--  봉화군여성단체협의회, 여성정책사업 평가대회 성황리 개최
--  فشل مشروع قانون بمجلس الشيوخ الأميركي لإقرار مساعدة ضخمة لأوكرانيا وإسرائيل
--  FanDuel Promo Code: Get $150 Win Bonus for Wednesday NBA Games
--  360 Predictor, la IA con la que puedes conocer lo que te falta para ser un emprendedor exitoso
--  ¿Qué supermercados son más caros? Profeco lo revela
--  Danilo torna con il Napoli, lo aspettano Gatti e Bremer
--  “شؤون الدبيبة” تبحث ملف أحوال أطفال التوحد في درنة
--  Disonantzia kognitiboa
+-  Oliebollen van de vv Heerde
+-  رئاسة اركان الجيش تعلن تنفيذ التمرين التعبوي (محاربو الصحراء) بمشاركة 10 دول أوروبية ومغاربية.
+-  Tingkat pemeriksaan hotel sebelum Olimpik
+-  Aston Villa shock champions City, Liverpool win again
+-  Messi dinobat Atlet Terbaik 2023
+-  Ordenan "inmediata" liberación de Alberto Fujimori
+-  LG엔솔-카이스트, 리튬메탈전지 원천기술로 상용화 앞당긴다
+-  '야바위도 맞추고 영상도 중계'…구글 "제미나이, GPT-4 초월"
+-  Itália se retira da Iniciativa Cinturão e Rota da China
+-  중국산 '모델Y' 내세운 테슬라, 올해 판매량 1만5000대 돌파
+-  Quebec government wants to extend session to adopt health-care reform
+-  SK그룹, 오늘 CEO 및 임원 인사...2선으로 물러선 부회장단, '세대교체'에 방점
+-  INGLÊS: Manchester City perde do Aston Villa, cai na tabela e acumula 4º tropeço seguido
+-  Nick Kyrgios looks extremely unlikely to play at Melbourne Park
+-  떡볶이 전도사 '두끼', 무역의 날 '500만불 수출의 탑'
+-  양기대 "정부여당의 저출산 문제 인식이 '나 혼자 산다'"
+-  국세청, 정기 세무조사 수입금액 기준 완화 1500억→2000억
+-  PRVO DOŠLO DO TUČE, A ONDA SU KRENULI HICI: Određen pritvor dvojici zbog pucnjave u Vranju, jedan METALNOM PALICOM udarao ljude
+-  İşte Türkiye'nin kar haritası! Lapa lapa geliyor... Meteoroloji uzmanı paylaştı!
+-  BVB sorgt sich um Quartett - Ryerson auf Krücken
+-  Mortágua volta a encabeçar lista do BE por Lisboa à qual regressa Jorge Costa
+-  Everton transfer news - 777 takeover update, Samuel Iling-Junior linked, Arnaut Danjuma exit
+-  Cotação do Brent para entrega em janeiro mantém queda
+-  McDonald’s eyes speedy ramp-up to 50,000 restaurants by 2027
+-  Kayseri'de Fetullahçı Terör Örgütü hükümlüsü yakalandı
+-  Fayetteville man arrested in connection to recent string of robberies, police say
+-  AbbVie to acquire Cerevel Therapeutics for $8.7 billion
+-  US oil prices slide below US$70 a barrel; mixed day for global stocks
+-  Tritt auf die Ferse: Leverkusens Wirtz verletzt raus
+-  Liverpool holt Pflichtsieg in Sheffield - City patzt erneut
+-  Stuttgart und Leverkusen weiter - Saarbrückens nächster Coup
+-  Hertha siegt im Elfmeterschießen gegen den HSV
+-  STAT+: To lower drug prices, White House takes new aim at pharma patents
+-  খাগড়াছড়িতে আওয়ামী লীগের বিশেষ সভা
+-  সেন্টমার্টিনে জাহাজ চলাচল বন্ধ, ৩ শতাধিক পর্যটক আটকা
+-  ৩৫ আসনে নৌকা প্রত্যাহার চায় জাপা
+-  চুয়াডাঙ্গায় সিজারের ১১ দিন পর প্রসূতির মৃত্যু
+-  ‘একদিনের স্বৈরশাসক’ হতে চান ট্রাম্প
+-  চাকরি খুঁজতে ঢাকায় এসে পেট্রলবোমায় দগ্ধ হয়ে হাসপাতালে
+-  ইসরায়েলিদের ওপর ইইউর ভিসা নিষেধাজ্ঞা চায় জার্মানি
+-  El Manchester City viajará al Mundial de Clubes con el lesionado De Bruyne
+-  كنت رايح عشان شنطة.. مجدي عبد الغني يعلق على واقعة لبس منتخب مصر
+-  Atlético-MG está escalado para enfrentar o Bahia; veja o time
+-  JackJumpers' Doyle flies to US after death of father
+-  Brasil goleia a Nicarágua com Marta voltando a fazer gol
+-  DGP sanctions over Rs 1.65 cr welfare loan, relief
+-  Марсилия се разправи категорично с Лион в дербито и го остави на дъното
+-  More British Columbians decorate for Halloween than Christmas, BC Hydro says
+-  Formuene vokser, men de rikeste betaler mye mindre skatt: – Kvalmende å se
+-  WIFE STABS HUBBY TO DEATH, FLEES
