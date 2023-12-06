@@ -1,51 +1,11 @@
 # Latest News
--  Toto auto bude najmenšie EV SUV v ponuke Toyoty. Už budúci rok
--  Kwint en Cato: Kerst 2023
--  Laatste activiteiten 2023 JW & Hi5
--  Muğla'da 81 kaçak göçmen ile 10 organizatör yakalandı!
--  İnegöl polisi şüphelilere göz açtırmıyor! 3 araç trafikten men edildi
--  İstanbul'da Meryem Yılmaz'ı 16 yerinden bıçaklayarak öldürdü! Karar açıklandı
--  Şanlıurfa'da 10 gündür eylem yapan işçiler ile jandarma arasında gerginlik
--  Edirne'de jandarma vatandaşları bilgilendiriyor
--  Kırklareli'nde kamyonet kasasında 62 düzensiz göçmen yakalandı
--  İYİ Parti'nin, CHP işbirliği teklifini reddetmesi ile ilgili yeni detay
--  Bursa'da 112 acil ilk 10 dakikada vakaya ulaşıyor!
--  Kayseri'de fabrika yangını!
--  İYİ Parti'de istifa!
--  5 bin lira ödemesinden 4,6 milyon emekli daha yararlanacak
--  4. Dünya Alpagut Şampiyonası'nın galibi Türkiye
--  प्रादेशिक महोत्सवमा साढे नौ करोडको कारोवार
--  एनसेल जस्ता प्रकरण दोहोरिन दिनु हुँदैनः पूर्व अर्थमन्त्री कार्की
--  राष्ट्रिय ब्याडमिन्टन पुसमा
--  ताप्लेजुङ सिफारिस भएका शिक्षकलाई नियुक्तिपत्र प्रदान
--  Santa Cruz inicia la modificación de la Ordenanza Municipal de Edificación
--  الدقهلية: إطلاق مبادرة اعرف بلدك لتعميق الوعي لدى تلاميذ وطلاب المدارس
--  Aguas sigue incrementando su presupuesto y supera los 15,5 millones de euros
--  Rinette neemt afscheid van Cultuurplein
--  Watch the new world's largest cruise ship pass under a bridge with only feet to spare
--  Elon Musk had a bad week, but he'll probably recover (again)
--  Relief to Forbes Facility Services: CESTAT grants Service Tax Exemption as Services were provided to SEZ Unit [Read Order]
--  Kako pomemben je zajtrk, če sploh je, glede na dolžino dneva
--  Jak przebiega głosowanie?
--  Komentar Lare Paukovič: Božični klišeji
--  Barbastro - Almería, en directo | Copa del Rey
--  Yeclano Deportivo - Rayo Vallecano, en directo | Copa del Rey
--  Oshiomhole urges Labour to revisit management of Contributory Pension funds
--  Потужні магнітні бурі у грудні: дати
--  تستوعب 250 ألفا فقط.. الأونروا: أكثر من مليون شخص موجودون في رفح الفلسطينية
--  „Sieht toll aus“: Neue Attraktion im Phantasialand soll bald öffnen – Abenteuer geht hoch hinauf
--  I bought Iceland’s bargain Christmas dinner deal & it fed my family-of-five TWICE – we even had two desserts
--  Glenn Maxwell on IPL: తాను చచ్చేవరకు ఐపీఎల్ ఆడుతూనే ఉంటా, ఆర్సీబీ ఆటగాడు గ్లెన్‌ మ్యాక్స్‌వెల్‌ సంచలన వ్యాఖ్యలు
--  Directo de los actos de celebración del Día de la Constitución
--  Mutatjuk, hol kerülhet bajba, ha nincs az autón téli gumi
--  Kabelfehler: Tausende Haushalte in Eitorf und Windeck am Mittwochmorgen ohne Strom
--  Balla: Nxis djemtë e vajzat që vitin e ardhshëm të zgjedhin për t’u bërë Oficerë të Policisë
--  [[단독] 민주당, 8일 본회의서 민생법안 위주 처리 가닥…‘쌍특검법’ 보류에 무게
--  [“한국 홀대에 열받았다” 분노한 9억 연봉자 떠나더니…결국 트위치도 짐싼다
--  ضبط 4 تجار مخدرات خلال حملات في المنوفية والغربية
--  News24 | Plan your weekend! Times confirmed for SA's pool stage fixtures at Cape Town Sevens
--  SON DAKİKA: Cumhurbaşkanı Erdoğan'dan Katar dönüşü önemli mesajlar
--  State Finance & Industry Ministers To Lead UP Delegation At Davos Summit
--  Kumaon Region’s First Cattle Feed Manufacturing Unit To Be Set Up In Udham Singh Nagar
--  СМИ: Верхушка ХАМАСа пытается сбежать из cектора Газа
--  Trailer de GTA 6 já ultrapassou os 101 milhões de visualizações
+-  [조국 “김건희 연말 선물로 ‘명품백’ 수사 추가 특검법 드려야”
+-  [대구 달서구, 올해 기족친화기관 5회 연속 선정
+-  [영양군, 자작나무숲 이동통신기지국 개통
+-  Tur İçin En Çok Tercih Edilen Yerleri Açıkladı, Günübirlikçileri Uyardı: Dolandırıcılara Dikkat
+-  Ünlü yıldız zayıflama ilacı yüzünden hastanelik oldu!
+-  В пятницу пройдет первое заседание ЦИК, посвященное президентской кампании
+-  طلب سماعه بعد الوفاة.. قصة تسجيل صوتي تركه الفنان فريد شوقي لبناته الخمسة
+-  Odisha Cabinet Amends MSME Policy To Pave Way For Swift Approvals And Environmental Responsibility
+-  National Handloom Expo Underway In Bhopal Till Dec 15
+-  Apple Exploring Markets In India, Japan & Korea To Expand Manufacturing Base
