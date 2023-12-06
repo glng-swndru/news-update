@@ -1,51 +1,11 @@
 # Latest News
--  中 원플러스, '원플러스 12' 공개
--  Rekabet Kurumu harekete geçti! Kırmızı et sektörü mercek altına alındı
--  Meteoroloji'den 19 il için sarı ve turuncu kodlu uyarı: İşte il il hava durumu
--  ABD ihracatının arz fazlası endişeleri arttırdı: Dört gündür düşüş sürüyor
--  Süper Kupa finalinin biletleri satışta
--  Yunan gazeteci Cumhurbaşkanı Erdoğan'a açıkça sordu: Bir gece ansızın gelecek misiniz?
--  Убийци, изнасилвачи и сатанисти: 100-хилядната армия на Путин в Украйна
--  מחקר טען כי היה מי שהרוויח מיליארדים מהמתקפה, ואז התבררה שגיאה דרמטית
--  לנווט בין מוקדי הרצח: מפה אינטראקטיבית שמראה את אירועי ה-7 באוקטובר
--  구리농수산물도매시장, 신규 중도매인 모집
--  구리농수산물도매시장, 2024년 신년 휴업일 공지
--  Рецепта на деня: Кюфтенца от шаран
--  Wartość zapytań o kredyty mieszkaniowe wzrosła o 255,4 proc. w listopadzie rdr
--  Zamówienia w niemieckim przemyśle zaskakują spadkiem
--  Викат в парламента енергийния министър Румен Радев - Труд
--  Ticketregen EK en PS voor parazwemmer Dorsman
--  "독자들의 메마른 마음 밭을 갈아엎는 쟁기 역할"
--  제주 삼화지구에 공공도서관 건립되나
--  내 마음의 숲 ‘이수진 작품전’
--  여성 독립운동가 서훈 추진, 제주 평화‧인권상 제정 필요
--  ‘제주 돌문화 연구’ 주제 학술 심포지엄
--  유행 시기 맞아 제주서 수두·볼거리 기승 '주의'
--  구매 성향과 디드로효과
--  가정폭력은 방치해선 안 되는 심각한 범죄다
--  Nakon Nikolinine izjave, oglasio se i Miša Grof: ‘Pristat ću na to da joj dam bilo šta jedino ako skroz poludim‘
--  행정개편 최적안 도출…아직 갈 길은 멀다
--  고려사이버대 소프트웨어공학과 GIA팀, 대한민국 소프트웨어 대전 참가
--  Fox News: Байден истощил стратегический запас нефти США до рекордного минимума
--  كربلاء تحذر من دخول فسائل النخيل المصابة بحشرة سوسة النخيل الحمراء
--  Χάρης Θεοχάρης: «Να σταματήσουν να είναι πολιτικοί αβανταδόροι της φοροδιαφυγής οι εκπρόσωποι της αντιπολίτευσης»
--  Schnee und Eis in Deutschland: Bisher gibt es laut Autobahn GmbH keine Engpässe beim Streugut
--  Arıcılık Kursu’nu tamamlayan 40 kursiyere sertifika hakkı
--  Afinal, só 9.600 técnicos superiores do Estado dão salto salarial em janeiro
--  울진군, 따뜻한 온기가 가득한 성금 모금의 날
--  신한은행, 최고 연 4.5% 금리 '쓸수록 모이는 소비적금' 출시
--  안성시, 비봉산 야생멧돼지 포획활동 실시
--  전남도, 김영록 지사, “AI 역학조사 철저 등 확산 차단 총력”
--  평창군시설관리공단 관리시설, “범죄예방 우수시설” 인증 받아
--  곡성군-전남도시가스, 사회복지시설에 친환경가스기기 기증
--  [2TV 생생정보 맛집] ‘콩비지감자탕’ 맛집
--  화순군, 외국인근로자 숙소 등 빈대 취약 시설 선제적 방제
--  7年ぶり新型「スイフト」 スズキ、脇見や居眠り警告
--  海保、不明2人の捜索続行 米軍は遺体、残骸回収急ぐ
--  世界初のフル電動クレーン公開 タダノ、CO2排出量削減に期待
--  AI活用で排出削減10％可能 米グーグル分析、30年までに
--  日ハム・山崎福「必死に腕振る」 移籍の決め手は熱意と縁
--  大規模作戦、1月までに終了か 米分析、民間人犠牲増加で
--  ロッテがコルデロ獲得 今季ヤンキースで3勝
--  Digital India Act Improbable Before 2024’s General Elections: MoS IT Rajeev Chandrasekhar
--  Gujarat Chief Minister Bhupendra Patel Unveils State-of-the-Art i-Hub Complex to Boost Student Start-ups
+-  Essen: Nach bitterer Absage – Mega-Winter-Attraktion endlich zurück
+-  ADB, World Bank spearheads US$1.5bn in SL foreign loans in 2023
+-  IESCO detects 147 meters for power theft
+-  الدولار يتخطى حاجز 6 دنانير مجددا
+-  Алистров заменит Мичкова на Матче звёзд КХЛ
+-  Mikołajki. Miły zwyczaj, na którym można też nieźle zarobić
+-  В Архангельске сгорел склад пиломатериалов: видео пожара
+-  В Роскачестве назвали тулякам способы сэкономить на счетах за воду
+-  "صابرة" تطلب الخلع: "بمسح سلالم وجوزي بيسرق الفلوس يشم بيها"
+-  5 سنوات حبس وغرامة 300 ألف جنيه.. ما عقوبة التحرش في المواصلات العامة؟
