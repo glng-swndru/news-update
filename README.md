@@ -1,51 +1,51 @@
 # Latest News
--  Arsenal biletini kesti, Milan'a gidiyor!
--  ABD'nin dış ticaret açığı 64,3 milyar dolara yükseldi
--  TBMM Başkanı Kurtulmuş, Raev'i kabul etti
--  Hasan Arat'ın ilk hedefi belli oldu! Kartal'a gurbetçi sol bek
--  Pistorius: Ukrayna'ya silah tedariki konusunda sıkıntı yaşanıyor
--  Cumhurbaşkanı Yardımcısı Yılmaz: Türkmenistan ile 5 milyar dolarlık ticaret hacmi hedefimiz var
--  Türk: Gazze'de acil ateşkes konusunda ısrarcı olunmalı
--  Fransa'da skandal! Yeni Kaledonya'ya giden Azerbaycanlı muhabiri sınır dışı etti
--  Erkan Yılmaz, Anadolu Efes formasından 3 ay uzak kalacak
--  Rusya, Ukrayna'nın 2 savaş uçağını vurdu
--  Two killed, four injured in Biratnagar fire
--  Bangladesh takes control of 2nd test after New Zealand reduced to 55-5 on eventful 1st day
--  Seed founders should consider these factors before partnering with multistage funds
--  Malkander ís er voor jongeren: 'Kernwoorden zijn luisteren en vertrouwen'
--  김범수 "박진영, 타고난 보컬 NO…노력이 만든 기적" [라디오스타](종합)
--  “나만 즐거우면 돼요, 나만 잘 하면 돼…” LG 출신 29세 퓨처스 FA의 깨달음, 공룡들 외야 비밀병기
--  [오늘의 운세] 12월 7일 오늘의 띠별 운세
--  [최용재의 매일밤 12시]저는 희귀병을 앓고 있습니다, 넘어지고 또 넘어집니다, 그리고 다시 일어납니다
--  '세계적인 팝女가수 때문에'…34년만에 강등 위기 佛 올랭피크 리옹→2부 추락 탈출 안간힘→테일러 스위프트 공연 때문에 홈구장 비워야 한다니…
--  역시 롯데 21세 차세대 간판타자…100% 출루와 4타점으로 태극마크 ‘완벽 적응’
--  لجنة سيادة القانون بوزارة العدل تنظم ندوة نقاشية حول مخاطر حمل السلاح وإثارة على المجتمع
--  Bengaluru had most acid attack victims in 2022, shows NCRB data
--  Видео первого боя Жалгаса Жумагулова с нокаутом после ухода из UFC
--  Mac McClung élu joueur du mois en G League : prochaine étape, retrouver la NBA ?
--  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 6 décembre – La retraite de Kobe Bryant
--  Казахстанский специалист стал генеральным менеджером «Сарыарки»
--  Czy franczyza się opłaca? Rzecznik MŚP: „Jakby w XXI był chłop pańszczyźniany przywiązany do ziemi. Na to się zgodzić nie można”
--  Vaccini anti covid, in Piemonte 12mila dosi a settimana
--  Τελευταία εξέλιξη: Προφυλακιστέος ο τράπερ και τα υπόλοιπα μέλη της συμμορίας που «ρήμαζαν» ΑΤΜ
--  Užas u Varaždinu: Eksplodirala plinska boca u automobilu, troje ozlijeđenih
--  Citypress | Finance Minister Godongwana slaps Mthunzi Mdwaba with a R1 million lawsuit over bribery allegations
--  Sense of urgency at COP28 unlike any climate summit before, says John Kerry
--  Jasmi Joensuu jää sivuun Östersundin maailmancupista – "Tämänkään en anna lannistaa"
--  ITV treats viewers to jam-packed festive lineup as they reveal Christmas Day schedule which includes the return of a popular quiz show
--  Il Torino Film Festival non chiude col botto: perde quasi 6mila spettatori
--  US chocolate maker and his wife are arrested in Dominica after millionaire Oscar-winning 3D animator and his partner were 'ambushed by hitman' and their bodies found in a burned car amid row about an access road
--  Je li protuofenziva zaglavila? Ukrajinski zapovjednik otkrio: 'Cijeli plan počivao je na jednostavnim stvarima'
--  Commerce à Quimper : la maroquinerie L'Ombrelle se transmet de mère en fille
--  Presidente de Cuba rinde homenaje al Ayatola Jomeini
--  Треньорът на волейболния "Хебър" си тръгна с критики към кмета на Пазарджик
--  Telejättarna går samman med polisen – ska stoppa bedragarna
--  Zapping the brain with electricity twice a day can reverse symptoms of Alzheimer's in WEEKS, study suggests
--  Denuncian daños en viviendas tras baile por fiestas patronales de Sensuntepeque
--  أسامة ربيع: 4 قاطرات لسحب سفينة حاويات تعطلت خلال عبورها قناة السويس
--  ¿Todo fue un sueño? Sporting Cristal: “No hay nada de Portugal por Grimaldo”
--  גלנט לראשי רשויות בצפון: עד שלא נרחיק את חיזבאללה - לא תחזרו ליישובים
--  ​Meredith Kercher killer Rudy Guede is charged with beating up his ex-girlfriend six months after leaving prison: Raffaele Sollecito - acquitted over the Brit's death - says 'it seems he has not changed'
--  SpiceJet plane forced to divert, seized by lessors in Dubai
--  Entenda como lidar com o cansaço mental no fim de ano
--  Provide proper financial aid to cyclone victims, CM tells officials
+-  Aperçu des bénéfices de Torrid Holdings
+-  Bénéfices de Methode Electronics: Aperçu
+-  Aperçu des bénéfices de SecureWorks
+-  Aperçu des bénéfices : Hooker Furnishings
+-  Aperçu des bénéfices de RH
+-  Delta Apparel: Aperçu des bénéfices
+-  Panorama des bénéfices de Guidewire Software
+-  Torino-Atalanta, Buongiorno domina contro Scalvini
+-  Panorama des bénéfices de Planet Labs
+-  Bénéfices de GMS: Aperçu
+-  Aperçu des bénéfices de Comtech Telecom
+-  2023'te en çok araştırılan konu 'ChatGPT' oldu
+-  মার্কিন আইনপ্রণেতাদের সঙ্গে ভার্চ্যুয়াল বৈঠক বাতিল করলেন জেলেনস্কি
+-  منير الربيع يبحث عن مكانة العرب في القطار العالمي
+-  Stream The Libertines’ Latest Single “Night Of The Hunter”
+-  إطلاق رحلات مباشرة من وارسو إلى الرياض
+-  برشلونة يستهدف ضم ياسين بونو لتعويض غياب تير شتيغن
+-  Šimun: Zdravstvo na sjeveru imaće punu podršku za ravnomjeran razvoj
+-  3-month-old S'pore special puppy named You Tiao seeking forever home, has calm temperament
+-  I ranked all of the games voted Game of the Year – and found out which ones are actually worth playing
+-  Niebezpieczna sytuacja nad Dęblinem. Wstrzymano loty na M-346
+-  La Ville de Québec limite la hausse de taxes à 3,9 % malgré l'inflation
+-  Cricketer Dismissed for Unusual Mistake, Enters Exclusive Club After 22 Years
+-  Украинские СМИ назвали убийство экс-депутаты Рады Кивы спецоперацией СБУ
+-  EM 2024: England schlägt Quartier in Thüringen auf
+-  Erdogan says Israel to pay very heavy price if it hunts down Hamas members in Turkey
+-  Confirman a Bausilli en el BCRA, Tillard y Wasserman en Nación y Stettler en Comunicación
+-  Tragedy as 3-Month-Old Boy Is Killed by Family's Exotic Pet - This Could Have Easily Been Avoided
+-  Schrik zit er in Baarle goed in na onderzoek naar vuurwerkrampen: ‘Wonen wij nog wel veilig?’
+-  Ο κατάλογος του ΕΟΦ με τα φάρμακα που βρίσκονται σε έλλειψη ή περιορισμένη διαθεσιμότητα
+-  Krenuli otkazi za EP! Evo kog fudbalskog asa nećemo gledati u Nemačkoj
+-  "Pax Massilia" sur Netflix : Tewfik Jallab, flic coriace dans la nouvelle série d'Olivier Marchal
+-  Rue des Scillas: Einigung zwischen Staat und Olos Fund
+-  Senate progressives demand Biden reduce Gaza civilian deaths caused by US weapons
+-  BBC: Venäjä rekrytoinut Suomeen yrittäneitä siirtolaisia sotimaan Ukrainassa
+-  Шмигаль анонсував зміни у процесі проходження ВЛК
+-  Le 13H fête Noël : le nougat glacé de Montélimar aux agrumes de la région Auvergne-Rhône-Alpes
+-  Todo lo que debes saber sobre el lanzamiento del GTA 6
+-  New Bigg's orca calf spotted near Victoria
+-  PFR na ratunek KPO
+-  Θανατηφόρο τροχαίο με μια νεκρή σε συντριβή μιας Lamborghini στην Νέα Υόρκη
+-  The Beatles transcend time, geography, demographics and personal taste
+-  Инсониятнинг аср муаммоси: Бой ва камбағал давлатлар нима масалада келиша олмаяпти?.
+-  The 15 questions that will not be asked at the Republican debate
+-  Bauarbeiten am Becken Willigisbrücke könnten 2024 weitergehen
+-  Flucht vor Polizeikontrolle in Offenbach - 19-jähriger in Haft
+-  Markt für Kunst, Kultur und Kreativität: Urban Art Market eröffnet
+-  Main-Echo-Zusteller aus der Region geehrt: "Der Job ist für mich wie Heimat"
+-  Президент Конституция куни муносабати билан бир гуруҳ маҳкумларни афв этди.
+-  "NEMANJA, NISI U PRAVU! UČIMO DECU, TRANSFERI I REZULTATI TO POKAZUJU" Iz Crvene zvezde ODGOVORILI Matiću posle zluradih opaski!
