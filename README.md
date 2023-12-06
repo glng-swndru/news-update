@@ -1,51 +1,51 @@
 # Latest News
--  Gam màu sáng - tối trong "bức tranh" kinh tế của tỉnh Quảng Trị
--  Meet the darts Wags of the Cazoo World Championships, from an ex-walk-on girl to a teenage sweetheart
--  Arsenal scout USA wonderkid dubbed ‘next Thomas Muller’ as Arteta looks to add goals in January transfer window
--  NDC Partnership과 영국, 기후 금융 촉진 센터 출범
--  Ben White interview after Arsenal’s win at Luton called ‘peak Ben White’ as fans say ‘Benny Blanco always cracks me up’
--  47 vreemdelingen gevonden in vrachtwagen Hoek van Holland
--  Al 10.000 ton aan wapentuig aan Israël geleverd sinds 11 oktober
--  Laat ik voor mijzelf spreken, die Joods-christelijke traditie waar Wilders het over heeft is niet die van mij
--  Nieuwe verhoudingen Kamer zichtbaar: PVV krijgt veel op agenda
--  Drie weken cel en contactverbod voor bedreigen burgemeester
--  Kaybolduğunda ya da çalındığında telefon nasıl takip edilir?
--  Family sues Panera, saying its caffeinated lemonade led to Florida man’s cardiac arrest
--  إطلاق عملية التسجيل للحصول على دعم إضافي لفائدة مهنيي النقل الطرقي
--  البكوري: منظومة التعليم تئن تحت ضغط اللوبيات ونرفض بقاء التلاميذ خارج الأقسام
--  Rhein bleibt gesperrt – SWR Aktuell
--  의협, '철야시위'로 투쟁 시작… "의대증원 저지에 총력"
--  Brčko: Vlada razmatra izvješće za procjenu štete od afričke svinjske kuge u iznosu 562.058 KM
--  Potpisan Protokol između Vlade KS, Tužilaštva i NVO za borbu protiv nasilja u porodici
--  Skupština HNŽ-a razmatra rebalans proračuna za 2023. godinu (VIDEO)
--  Najave događaja za 7.12. 2023. godine (četvrtak)
--  Fejzić: Pravnim putem tražim zaštitu svojih prava, vidjet ćemo šta će donijeti sudski epilog
--  Na Sarajevskoj berzi promet 8.261 KM
--  Promocijom poštanske marke, CBBiH i Pošte Srpske obilježile jubilej konvertibilne marke
--  Putin doputovao u Abu Dhabi
--  U BPK za projekte promocije zdravlja i prevenciju bolesti 24.000 KM
--  Fudbaleri Tuzla Cityja nadigrali Širokobriježane
--  Novogodišnja noć u Sarajevu uz 'Zabranjeno pušenje', 'Crvenu jabuku', 'Bombaj štampu' i Laku
--  FMRSP - Pušteni nalozi za isplate naknada u FBiH
--  Održan okrugli sto o osnaživanju hraniteljskih porodica sa područja TK
--  Istraživanje - Više od 70 posto građana EU vidi korist od članstva svoje zemlje u bloku
--  Jačanje integriteta izbornog procesa u BiH prioritet u radu Centralne izborne komisije BiH
--  Saopćenje za javnost NES BiH
--  Иван Портних: Ще бъде ли спрян скандален проект в „Карантината“?
--  Općina Stari Grad izdvojila 128.000 KM za obnovu fasade OŠ 'Edhem Mulabdić'
--  Bayern Munchen Telikung Barcelona Dapatkan Winger Muda Bryan Zaragoza
--  Nasabah UOB Indonesia bertambah 1 juta usai akuisisi Citi Indonesia
--  Starting to menstruate before age 13 linked with diabetes, stroke risk: BMJ Study
--  KO JE BILA JELENA ČVOROVIĆ Malo ko zna da je zbog njega upisala glumu, a upoznala ga je kada je imala 15 godina
--  Παραληρούν οι οπαδοί του Παναθηναϊκού: Αυτοί είναι οι δύο παικταράδες που «ζαχαρώνει» ο Γιαννακόπουλος!
--  Televizyon efsanesi Normal Lear 101 yaşında hayatını kaybetti
--  Jevrejska opština: Olivera Zekić uvredila čitavu jevrejsku zajednicu, najgori period istorije koristi za zabavu
--  Bất ngờ với sáng tạo của học sinh TP.HCM tại cuộc thi tàu ngầm
--  İzmirli hekimler sağlık sisteminin ruhu için lokma döktürdü
--  Klimakrise: Bundesregierung beschließt „umfassendste Strategie der Welt“ für die Klimaaußenpolitik
--  Tykkikiri kantoi tamman karsintavoittoon Vermossa – "Voitto oli tosi helppo ja ylivoimainen"
--  NEW: Michael Mags releases new video
--  Pemkab dan Baznas Kabupaten Lombok Salurkan Bantuan Palestina Rp 1,8 M Melalui Baznas RI
--  ABŞ-dən hərbi texnika daşıyan 200-cü yük təyyarəsi İsrailə çatıb
--  Inician mañana actividades para personas con discapacidad
--  Espera Santuario 31 peregrinaciones
+-  맨유 선수단 대대적인 변화 생길까? 영국 갑부의 인수 절차 ‘다음 주 공식 발표 예정’
+-  إيديكس 2023.. تفاصيل مباحثات "العربية للتصنيع" ووزيرة دفاع أوغندا
+-  لبنان: سنقدم شكوى لمجلس الأمن بعد استهداف إسرائيل للجيش اللبناني
+-  مشروع "سترة".. إعادة تأهيل 34 منزلا للأسر الأكثر احتياجا في المنيا
+-  ضمت 1052 متهمًا.. الداخلية تضبط 767 قضية آثار متنوعة خلال عام
+-  سي إن إن: الحرب في غزة ستستمر حتى يناير
+-  أردوغان: تركيا ترفض خطة "المنطقة العازلة" لغزة
+-  رئيس مصنع المحركات: مصنعنا الوحيد في العالم الذي يجري عمرات لمحركات الطائرة البافلو
+-  الطيران المدني: جار التحقيق في حريق مخزن تابع لشركة بمطار القاهرة
+-  فرنسا تدين قصفًا إسرائيليًا أسفر عن مقتل جندي لبناني
+-  بدء العد التنازلي.. محافظ الإسكندرية يتفقد اللجنة العامة للانتخابات الرئاسية بفيكتوريا- صور
+-  والده مصري.. أبرز المعلومات عن سيبرايل لاعب بروسيا دورتموند السابق
+-  لاعب الزمالك يتلقى عرضا من الدوري المغربي
+-  22nd Col. Henry Steele Olcott Cricket from December 8 to 10
+-  Тошкентда Европа – Ўзбекистон иқтисодий ҳамкорлик ассоциациясининг филиали очилди
+-  Янги таҳрирдаги Конституция инсон ҳуқуқ ва манфаатлари кафолати
+-  Конституция – миллий ва умуминсоний қадриятлар пойдевори
+-  Университетда “Очиқ эшиклар куни” ўтказилди
+-  Қўнғиротда байрам шукуҳи
+-  LVBP rompe el silencio tras polémica con el padre de Ronald Acuña Jr: Estas son las medidas que tomarán
+-  San Jose baker to compete on Food Network’s Christmas Cookie Challenge
+-  Le PSG lui déroule le tapis rouge, il demande 8M€ !
+-  Objavljeni podaci o poreznim uplatama, broju zaposlenih i fiskalnom prometu po kantonima
+-  Тейлор Свифт обошла Путина в рейтинге «человек года» журнала Time
+-  Centre Initiates Commercial Auctions, 91 Blocks Auctioned Under Commercial Auction Scheme
+-  GoI, ADB Formalise Rs 175 Mn Loan For Enhanced Road Network In Madhya Pradesh
+-  Centre Initiates Auction Of Critical Minerals, Identifies 30 Crucial Resources
+-  Centre Advances e-Panchayat Mission Mode Project Under Digital India Programme
+-  NHAI's Strategic Moves Present Clear Roadmap For Debt Repayment Amidst Project Delays
+-  Soccerladuma | ‘I Play The South African Way'
+-  Rodina z Moravy výrazne znížila náklady na energie aj vďaka expandovanému polystyrénu
+-  오태완 의령군수 공직선거법 재판 선고 내년으로
+-  출범 3주년 진실화해위원회 "조사 기간 연장 시급"
+-  부산 간 윤석열 "엑스포 불발에도 가덕신공항 2029년 개항"
+-  과방위 소위 논의 무산 우주항공청법 '2+2협의체'서 돌파구찾나
+-  도의회 교육위, 내년 교육청 예산 204억여 원 삭감
+-  Umstrittenes Gesetz: Söders Kreuzerlass kommt erneut vor Gericht
+-  Lider UN-a za ljudska prava upozorio na povećan rizik od 'zvjerskih zločina' u Gazi
+-  타고난 힘에 강한 승부욕 '제2의 장미란' 될래요
+-  – ألمانيا تعترف بالتأخير في تسليم الأسلحة إلى أوكرانيا
+-  Otomotiv ihracatı kasımda yüzde 10 arttı
+-  İsrail'e soykırım ortağı ABD'den 200 kargo uçağı dolusu askeri teçhizat
+-  Sivasspor'da Ziraat Türkiye Kupası hazırlıkları tamamlandı
+-  Hrant Dink'in katili Ogün Samast'a yurt dışına çıkış yasağı
+-  İtalya'dan Çin'e nota: "Kuşak ve Yol Girişimi"nden çekildik
+-  Arda Turan'ın takımı Eyüpspor, Türkiye Kupası'nda bir üst turda
+-  Neuer Kaufland-Service zu Weihnachten: So sparen Kunden Beim Großeinkauf Zeit und Stress
+-  Norweski związek zablokuje dostawy aut Tesli do Szwecji
+-  BFG: po dziesięciu miesiącach wynik netto sektora bankowego rósł o 179,8 proc.
+-  Mohammed bin Rashid inaugurates the largest CSP project in the world within the fourth phase of the Mohammed bin Rashid Al Maktoum Solar Park
