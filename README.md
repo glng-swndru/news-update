@@ -1,11 +1,11 @@
 # Latest News
--  Discussion On India's Economic Situation To Continue On Day 3 of Winter Session In Rajya Sabha
--  Delhi AQI Improves Slightly But Remains In ‘Poor’ Category
--  Financial Crisis Looms Over China As Hidden Debt Woes Intensify, As Per Reports
--  Who Is Country Singer Brenda Lee?
--  Fünf Kipppunkte könnten laut Klima-Bericht zur Katastrophe führen
--  الاحتلال يعتقل 21 من الكوادر الطبية في القطاع بينهم أطباء ومسعفون
--  Εορταστικό ωράριο: Ποιες Κυριακές θα είναι ανοιχτά τα καταστήματα
--  Hyderabad: రేవంత్‏రెడ్డి ఇంటి వద్ద.. భారీ బందోబస్తు ఏర్పాట్లు
--  [ŽT] „2400-2600 °C.“ Pragaro ginklas. Kas nutiko su šahedais
--  “배은망덕하고 무례한 놈, 꼴도 보기 싫다”... 원소속팀 상대로 세리머니+시메오네 비판→팬들 극대노, "돌아올 생각하지 마"
+-  กกท. ร่วมแสดงความยินดีกับสาวจอมเตะทีมชาติไทย “เทนนิส”
+-  優質單位有承接 將軍澳峻瀅靚裝特色2房戶560萬元易手 原業主持貨近4年 賬面蝕約119萬元離場
+-  Erick Fedde agrees to White Sox deal after Mets expressed interest
+-  Wednesday At Market: Adani Stocks On A High, IOC, BHEL Go Bullish
+-  Kıdem tazminatı tavanı 2024’te ne olacak? İşte örnek hesaplamalar... 58 bin lira fark oluşuyor
+-  Judge accused of assault 'struck, tracked' victim
+-  FBI arrest man after domestic terror attack shootings
+-  Wanita kahwin lambat kurang subur
+-  Ertuğrul Özkök: Kudüs'ün fethi yakın mı yoksa uzaklaşıyor mu?
+-  LIVE Război în Israel: SUA crede că ofensiva israeliană în Gaza ar putea dura până în ianuarie / Netanyahu: Singura modalitate de a termina rapid treaba este să zdrobim Hamas / Israelul revocă viza coordonatorului umanitar al ONU
