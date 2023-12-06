@@ -1,51 +1,51 @@
 # Latest News
--  [WTI 5개월만에 배럴당 70달러 ↓…中경기우려에 유가급락
--  [백기봉 변호사, 국제형사재판소 재판관 됐다…한국인 세 번째
--  نتنياهو : محمود عباس لن يحكم غزة خلال ولايتي
--  Cisjordanie occupée: 3 Palestiniens tués par les forces israéliennes
--  Tinubu receives Benin president at Aso Rock, says cooperation imperative for economic prosperity in West Africa
--  Di Canio e la lotta Scudetto: "Inter e Juve, ma ad una condizione può rientrare anche il Milan"
--  Nécrologie : Le monde de la politique sénégalaise endeuillée
--  Bereaved family members call Johnson’s apology at Covid inquiry ‘meaningless’
--  هذا ما يحدث لجسمك عند تناول الفراولة.. مفأجاة
--  10-year-old Surrey girl collecting food donations for those in need this holiday season
--  Best Monster Hunter Now Spoofing and Joystick Tutorial from UltFone
--  Britischer Staatsminister für Migration tritt zurück
--  (ВИДЕО) Пукотница на Универзитетот во Лас Вегас, американските медиуми јавуваат за повеќе жртви
--  GTA VI: Football lover makes game avatars for Messi, Ronaldo, and other players
--  Basketbalistky USK porazily Landes a vyhrály v EL pošesté za sebou
--  Encuentran cuerpo sin vida en Guararé
--  بالأسماء.. الفائزون الـ 6 في انتخابات "غرفة المدينة المنورة"
--  Detención provisional para uno de los más buscados
--  Fortaleza homenageia Wellington Paulista após anúncio de aposentadoria: 'sempre será lembrado'
--  Randy Orton Chats With Logan Paul on IMPAULSIVE
--  Forgotten Rangers man told ‘stay at home’ as former national team boss dreads his inclusion in Euro 2024 squad
--  Thomas Numme med rettelse om farens bisettelse
--  Ligue des Champions : 1xBet annonce les matchs du dernier tour de la phase de groupes
--  U SRBIJI DANAS SNIMLJENE DVE KAMIKAZE Jedan je bio kod Orlovače, drugi kod Vranja! DOBRO PA NISI UBILI NEKOGA
--  Jonathan Majors' assault accuser says she wanted to 'protect him' and blamed herself after he was arrested
--  Best Holger 556 loadout for Warzone Season 1
--  WATCH — Yashma Gill stuns in sequin jumpsuit in latest Instagram post
--  I was Man City supremo before becoming Rangers chief, then went on to help run one of the biggest clubs in England
--  Bik Karlskoga segrade över Västervik i förlängningen
--  Bik Karlskoga segrade över Västervik i förlängningen
--  Veja resultado das eleições da Acert para nova diretoria do biênio 2024/2025
--  Страните от Г-7 ограничават вноса на руски диаманти
--  PSG, buone notizie per Luis Enrique: Marquinhos e Zaire-Emery parzialmente in gruppo
--  La Copa lanza al Amorebieta
--  VÍDEO: o resumo de nova vitória do Estoril sobre o FC Porto esta época
--  Netanyahu'dan 'Hamas'ın lideri Yahya Sinvar'ın evini kuşattık' iddiası
--  Abdullah Avcı kupa hedefinin altını çizdi: "Kupanın favorisiyiz"
--  Yanıkömeroğlu'nun istifası sonrası İYİ Partili Yüksel Arslan'dan şok sözler: İmamoğlu satın aldı
--  Asgari ücret ilk toplantı tarihi | 2024 Asgari Ücret Tespit Komisyonu ne zaman toplanacak? Başkan Erdoğan duyurdu!
--  Pide UNPF educación de calidad ante resultados de prueba PISA
--  Ex-presidente da Câmara dos EUA Kevin McCarthy diz que deixará Congresso
--  (Видео) Пукање во универзитет во Америка, има жртви
--  Lepa Brena rasprodala Arenu Zagreb za 24 sata, koncert tek za godinu
--  Pennsylvania Congressman Glenn Thompson Diagnosed With Cancer
--  «Il contrôlait et corrigeait mes réponses»: au code de la route, la fraude sans bornes
--  Geisy Arruda é confundida com filha do cantor Leonardo: 'Quero metade da fazenda'
--  Trump Witness Says He Valued Mar-a-Lago at More Than $1 Billion
--  Indian actress Huma Qureshi launches debut book
--  Путин назвал дружескими отношения России и Саудовской Аравии
--  The “apocalyptic” humanitarian situation in Gaza, captured by one quote
+-  COP28-Präsident ruft Staaten bei Klimakonferenz zu Kompromissbereitschaft auf
+-  ميشال ضاهر: التمديد لقائد الجيش حاصل
+-  Cheyenne Ochsenknecht zeigt Follower wegen „Dickpics“ an
+-  Morgan Wallen sparks romance rumors with Logan Paul's ex Josie Canseco as pair enjoy night out in London
+-  Informe Especial| El Equipo con el que Milei «sale a la cancha» este 10 de Diciembre
+-  Kickoff | Rulani: We just got over the line because of our mentality
+-  Travis Kelce's ex Kayla Nicole claims she's 'trying to go to all the games' after watching the Lakers' quarterfinal and attending 49ers-Eagles following THAT flirty message to Jalen Hurts
+-  De Bruyne é surpresa na lista do Manchester City para o Mundial de Clubes
+-  True Fruits ruft Smoothie zurück
+-  Guidance on EHR-based public health surveillance for chronic diseases
+-  Görünüş məsafəsi məhdudlaşacaq
+-  Coronation Street fans feel sick at vile dog abuse scenes as soap reveals harrowing new storyline
+-  Ex-NFL star Sergio Brown pleads not guilty to killing his mother - after she was beaten to death and her body was dumped in a creek by her house
+-  واشنطن: سنعترض على أي "منطقة عازلة" داخل قطاع غزة
+-  '김용균 사망 책임' 전 서부발전 사장 대법 선고
+-  ¿Toca aguantar? Manco a Cueva: “Antes te celebraban hasta cuando salías con chelas”
+-  Man sentenced to life in prison for murdering Drew Carey’s ex-fiancée Amie Harwick
+-  Handbalsters kloppen ook Brazilië en doen uitstekende zaken op WK
+-  Handbalsters kloppen ook Brazilië en doen uitstekende zaken op WK
+-  Fred Siriex was ‘riled up’ and unhappy behind the scenes after I’m A Celebrity exit, say Ant and Dec
+-  Britse migratieminister weg na ruzie over deportatie migranten
+-  Omtzigt zet deur op een kier voor kabinet met Wilders: 'De lucht is geklaard'
+-  Derde verdachte opgepakt in onderzoek schietpartijen Rotterdam
+-  Opnieuw grote Duitse treinstaking aangekondigd
+-  'Compelling evidence' of neglect at Cork puppy farm left judge to uphold closure order
+-  One gift can make a kid’s Christmas – that’s why I’m backing Sun’s baby bank appeal, says Chloe Madeley
+-  OM-OL: il y avait-il faute sur Cherki avant l'ouverture du score de Vitinha?
+-  Cumhurbaşkanı Erdoğan uyardı Japonya 'PKK' yanlışından döndü: Terör örgütleri listesine eklediler
+-  Hamás, cuando violar y romper la pelvis se convierte en arma de guerra
+-  Hamás, cuando violar y romper la pelvis se convierte en arma de guerra
+-  Foragido de operação é preso pela DERF de Nova Mutum com arma e entorpecentes
+-  15 more locations set to get £25 free cash to bank account within DAYS – is your postcode due a Cold Weather Payment?
+-  Sorteo Bonoloto del miércoles 6 de diciembre de 2023
+-  Sorteo Bonoloto del miércoles 6 de diciembre de 2023
+-  Sorteo Bonoloto del miércoles 6 de diciembre de 2023
+-  Dekolte açarak TikTok'ta para toplayan kadının eşiyle olan videosu ortaya çıktı
+-  Sorteo Bonoloto del miércoles 6 de diciembre de 2023
+-  EastEnders shock as Phil Mitchell exposes Karen Taylor for sick crime
+-  „Kret” w szatni Manchesteru United?! To on miał wynosić informacje
+-  Fascicle gearing dynamics: Unveiling 3D rotation effects in muscle elongation
+-  Otkriveno s kim je Mario Banožić bio u kafiću nakon nesreće; Riječ je o uspješnom poduzetniku, rođaku važne osobe
+-  Bayern Múnich anunció el fichaje de Bryan Zaragoza
+-  Ludwigsfelde: Vereinsheim des SV Siethen muss dringend saniert werden
+-  Presidente guyanés pidió que la dictadura cubana sea mediadora del conflicto por el Esequibo
+-  ‘Honkai: Star Rail’ Hanya Build Guide: Best Light Cones, Relics, and Ornaments
+-  الخزعلي وطالباني يؤكدان على أهمية إجراء الانتخابات في موعدها المحدد
+-  Biden: Republicans ‘playing chicken’ on Ukraine aid with ‘extreme’ border demands
+-  Kylie Jenner channels her beloved grandmother Mary Jo, 89, in a chic bob for new Kylie Cosmetics campaign
+-  Apple lanza MLX, una herramienta para crear modelos de aprendizaje automático
+-  INEC boss, Yakubu highlights danger of hate speech to electoral process
