@@ -1,11 +1,51 @@
 # Latest News
--  KKC: Nghị quyết Đại hội đồng cổ đông bất thường năm 2023
--  VLA: Báo cáo kết quả đợt chào bán cổ phiếu ra công chúng
--  HVT: Nghị quyết Hội đồng quản trị
--  VLA: Báo cáo kết quả giao dịch quyền mua - Nguyễn Thu Hà - Phó Giám đốc
--  Büyük İstanbul Depremi Hazırlık Yapıyor
--  Davutoğlu 2024 Asgari Ücret İçin Rakamlarını Açıkladı
--  Öldürüp emekli maaşını çekmişti! O cinayette şok eden detay: Yakalanmamak için yaptığı şey akıl tutulması yaşattı
--  Ninguém quer saber do PAC
--  ريال مدريد - مبابي: المهلة الأخيرة
--  CHP Yerel Seçimler İçin Sahaya İniyor
+-  „Gatvėmis vaikšto tūkstančiai nusikaltėlių. Daugiau nei 35 000.“ Rusijoje plinta nauja nusikaltimų banga. Kas bus toliau?
+-  Putinui į naudą. Išryškėjo naujas Rusijos stabilumo požymis
+-  Paukščių Take vyksta kanibalizmas. Aptiko „kosminius vorus“, ryjančius savo kaimynes (Foto)
+-  [Vokietija] Daugiafunkcės mini staklytės už rekordiškai žemą kainą - fantastiškas daiktas DIY projektams
+-  [ŽT] Rusai šokiruoti. Skelbiama, ką galimai numušė „Patriot“ (Foto)
+-  [ŽT] „Jam kažkas nutiko paskutinę minutę.“ Zelenskis iškrėtė akibrokštą JAV senatoriams
+-  ทนาย "แป้ง นาโหนด" ให้ข้อมูลจเรฯ ปมจดหมาย 7 ข้อเรียกร้อง
+-  Βιογραφική ταινία για τον Μπομπ Μάρλεϊ: Στα σινεμά του Αγίου Βαλεντίνου
+-  The Westin Surabaya Announce Spectacular Festive Collaboration with Minions
+-  MicroAlgo Inc. Announced That Its Company Will Establish A Postgraduate Training Practice Base
+-  Yunji to Report Third Quarter 2023 Financial Results on December 14, 2023
+-  Държавата връща ДДС от 20% на туроператорите
+-  Lixiang Education Receives Nasdaq Extension to Regain $1 Bid Price Compliance
+-  След аварийна ситуация в ,,Агрополихим“ АД не са установени превишения на пределно допустимите концентрации в атмосферния въздух
+-  GTA VI: Pierwszy trailer. Jakie samochody znajdziemy w nowej odsłonie Grand Theft Auto VI?
+-  Centre Working On frameworks To Make Digital Platforms More Safe: Union Minister Rajeev Chandrasekhar
+-  XV de France : L’annonce de Galthié sur les remplaçants de Dupont et Ntamack
+-  Το μυστικό που «πρόδωσε» το Spotify της Βαλαβάνη και έχει να κάνει με τον Γρήγορη Μόργκαν
+-  Lionel Messi es coronado deportista del año por la revista Time
+-  ناہموار پرواز نے طیارے کی چھت توڑ ڈالی
+-  La profesión que necesita más trabajadores: la FP o carrera que estudiar para ganar ya 60.000 euros
+-  Šaranović: Vršnjačko nasilje je širi društveni problem
+-  Paramount+ Launches in Japan in Partnership with J:COM, Wowow
+-  »Raubmöwe«
+-  Pembunuh Sadis Petugas Kebersihan RSUD BDH di Gresik Terancam Dipenjara Seumur Hidup
+-  UAE, 유엔기후변화협약 홈페이지에 태극기 대신 인공기 올렸다 삭제
+-  김소니아 ‘골밑슛 정조준’ [MK포토]
+-  El innovador marisco español que triunfa en Mercadona: cargado de minerales y omega-3
+-  How Lionesses went from glory to Olympics heartbreak – and why it may gain advantage them
+-  Ομόνοια: Στο έλεος των ναρκωτικών μία από τις πιο κεντρικές πλατείες της Αθήνας
+-  Em crise, Americanas abre 7 mil vagas de emprego temporário no Natal
+-  La Liga Femenina pronostica pruebas de fuego en las semifinales de ida del Apertura
+-  How To Download Youtube Videos: Comprehensive Guide
+-  OM in de fout: voormalige vriend van Donny M. onterecht als verdachte gezien in zaak-Gino
+-  Desenhos Sona da cultura Tchokwe admitidos na lista de Património Cultural Imaterial da UNESCO
+-  Трамп: Нема да бидам диктатор ако се вратам на власт, освен првиот ден
+-  Quotas de HLM: sur 1.031 communes concernées, les deux tiers sont hors des clous
+-  Hugo Keith KC – Who is ‘Star at the Bar’ grilling former PM at Covid-19 inquiry?
+-  Agenda candente en las semifinales del Apertura 2023
+-  Лихвите на Фед вероятно са достигнали върха си, но колко дълго ще останат там?
+-  구나단 감독 ‘하나원큐, 빈틈이 안보여’ [MK포토]
+-  وزارة الداخلية الإيطالية تمنح بلدية سيدي بوزيد معدات و تجهيزات اعلامية.
+-  Mutmaßlicher Doppelmord an Söhnen - Mutter schweigt
+-  Erdoğan'dan 'enflasyon yüksek kalacak' çıkışı!
+-  G5 Sahel : Le Tchad et la Mauritanie prennent acte du retrait du Burkina Faso et du Niger
+-  Guľka letela deväť sekúnd. Ukrajinský ostreľovač opísal rekordný zásah
+-  „Mein Herz blutet“: Konditorin muss „Naschwerkstatt“ in Ottobrunn schließen – nach nur drei Jahren
+-  UK's EE TV Platform Launches With Customized Apple TV 4K
+-  عاجل.. أكثر من 3 آلاف قطعة أرض مجانية من "سكني" للمواطنين
+-  أخبار السعودية.. أشهر أساليب الاحتيال على المواطنين و 120ألف ريال تمويل من بنك التنمية
