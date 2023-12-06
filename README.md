@@ -1,51 +1,11 @@
 # Latest News
--  Aperçu des bénéfices de Torrid Holdings
--  Bénéfices de Methode Electronics: Aperçu
--  Aperçu des bénéfices de SecureWorks
--  Aperçu des bénéfices : Hooker Furnishings
--  Aperçu des bénéfices de RH
--  Delta Apparel: Aperçu des bénéfices
--  Panorama des bénéfices de Guidewire Software
--  Torino-Atalanta, Buongiorno domina contro Scalvini
--  Panorama des bénéfices de Planet Labs
--  Bénéfices de GMS: Aperçu
--  Aperçu des bénéfices de Comtech Telecom
--  2023'te en çok araştırılan konu 'ChatGPT' oldu
--  মার্কিন আইনপ্রণেতাদের সঙ্গে ভার্চ্যুয়াল বৈঠক বাতিল করলেন জেলেনস্কি
--  منير الربيع يبحث عن مكانة العرب في القطار العالمي
--  Stream The Libertines’ Latest Single “Night Of The Hunter”
--  إطلاق رحلات مباشرة من وارسو إلى الرياض
--  برشلونة يستهدف ضم ياسين بونو لتعويض غياب تير شتيغن
--  Šimun: Zdravstvo na sjeveru imaće punu podršku za ravnomjeran razvoj
--  3-month-old S'pore special puppy named You Tiao seeking forever home, has calm temperament
--  I ranked all of the games voted Game of the Year – and found out which ones are actually worth playing
--  Niebezpieczna sytuacja nad Dęblinem. Wstrzymano loty na M-346
--  La Ville de Québec limite la hausse de taxes à 3,9 % malgré l'inflation
--  Cricketer Dismissed for Unusual Mistake, Enters Exclusive Club After 22 Years
--  Украинские СМИ назвали убийство экс-депутаты Рады Кивы спецоперацией СБУ
--  EM 2024: England schlägt Quartier in Thüringen auf
--  Erdogan says Israel to pay very heavy price if it hunts down Hamas members in Turkey
--  Confirman a Bausilli en el BCRA, Tillard y Wasserman en Nación y Stettler en Comunicación
--  Tragedy as 3-Month-Old Boy Is Killed by Family's Exotic Pet - This Could Have Easily Been Avoided
--  Schrik zit er in Baarle goed in na onderzoek naar vuurwerkrampen: ‘Wonen wij nog wel veilig?’
--  Ο κατάλογος του ΕΟΦ με τα φάρμακα που βρίσκονται σε έλλειψη ή περιορισμένη διαθεσιμότητα
--  Krenuli otkazi za EP! Evo kog fudbalskog asa nećemo gledati u Nemačkoj
--  "Pax Massilia" sur Netflix : Tewfik Jallab, flic coriace dans la nouvelle série d'Olivier Marchal
--  Rue des Scillas: Einigung zwischen Staat und Olos Fund
--  Senate progressives demand Biden reduce Gaza civilian deaths caused by US weapons
--  BBC: Venäjä rekrytoinut Suomeen yrittäneitä siirtolaisia sotimaan Ukrainassa
--  Шмигаль анонсував зміни у процесі проходження ВЛК
--  Le 13H fête Noël : le nougat glacé de Montélimar aux agrumes de la région Auvergne-Rhône-Alpes
--  Todo lo que debes saber sobre el lanzamiento del GTA 6
--  New Bigg's orca calf spotted near Victoria
--  PFR na ratunek KPO
--  Θανατηφόρο τροχαίο με μια νεκρή σε συντριβή μιας Lamborghini στην Νέα Υόρκη
--  The Beatles transcend time, geography, demographics and personal taste
--  Инсониятнинг аср муаммоси: Бой ва камбағал давлатлар нима масалада келиша олмаяпти?.
--  The 15 questions that will not be asked at the Republican debate
--  Bauarbeiten am Becken Willigisbrücke könnten 2024 weitergehen
--  Flucht vor Polizeikontrolle in Offenbach - 19-jähriger in Haft
--  Markt für Kunst, Kultur und Kreativität: Urban Art Market eröffnet
--  Main-Echo-Zusteller aus der Region geehrt: "Der Job ist für mich wie Heimat"
--  Президент Конституция куни муносабати билан бир гуруҳ маҳкумларни афв этди.
--  "NEMANJA, NISI U PRAVU! UČIMO DECU, TRANSFERI I REZULTATI TO POKAZUJU" Iz Crvene zvezde ODGOVORILI Matiću posle zluradih opaski!
+-  Eisen tot 20 maanden cel voor oplichting met mondkapjes
+-  15-jarige gewond bij steekincident in Rotterdam, andere tiener aangehouden
+-  FNV: 24 uursstaking bij ijsfabriek Ben & Jerry's in Hellendoorn
+-  OM: onbekend hoe DNA op wapen schietpartijen Rotterdam belandde
+-  McDonald's wil over enkele jaren 50.000 restaurants hebben
+-  Schoorvoetend gaan nieuwe Kamerleden van start. 'Moet ik iets doen, voorzitter'?
+-  Ex-MP Natalie McGarry feared for child’s safety during high-speed paparazzi pursuit in Fife
+-  Berrettini e Pietrangeli, cosa si sono detti: sui social non c'è nessun dubbio
+-  Sfreccia a 270 km/h e pubblica il video sui social: arriva la maxi multa
+-  Chisola forza dodici: la squadra di Moschino imbattuta da tre mesi
