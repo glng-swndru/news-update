@@ -1,51 +1,11 @@
 # Latest News
--  PM: transferência de competências para as CCDR é a "regionalização possível sem prejudicar a necessária"
--  Las Vegas: Schüsse an Universität von Nevada - mehrere Verletzte
--  Keith Payne joins Nintex as Vice President, APAC Sales
--  El Villarreal sestea ante el Maccabi Haifa y deberá ganar en Rennes para ser primero
--  City é amassado, cai para o Aston Villa, chega a 4 jogos sem vencer e se distancia da liderança da Premier League
--  McTominay marca duas vezes, Manchester United vence e mantém calvário do Chelsea na Premier League
--  Bryce Harper’s agent says Phillies star would agree to new deal beyond 2031
--  Aston Villa pobijedila Manchester City
--  [킴카다시안 제치고 엉덩이 미녀 1위 오른 '이 여성' 누구?
--  Fiesc alerta que corte de incentivos pela MP 1185 vai gerar custo bilionário a empresas de SC
--  Grand Theft Auto 6 trailer recreates classic Florida news stories
--  Council to ask for pause on housing intensification plan
--  Orléans: le détenu qui s'était évadé du tribunal s'est présenté au commissariat
--  북부소방재난본부, 산악 실종자 수색훈련…사고 대응역량 높여
--  У США сталася стрілянина в університеті, є поранені
--  Pastaneden aldıkları tatlıyı yiyen 8 kişi hastanelik oldu
--  ‘Howard Stern Show’ honors late stylist Ralph Cirella with heartbreaking tribute
--  How Labor rushed through detention laws without debate
--  How Labor rushed through detention laws without debate
--  Why More Tech Startups are Choosing New York
--  What happened in the Monk series finale?
--  Mellizos se refuerza con poder criollo
--  Former editors reflect on Reader’s Digest distinct brand after reports of closure
--  Scott McTominay ayudó con doblete a Manchester United en victoria frente a Chelsea
--  Halle Berry and Angelina Jolie’s Bond Over Exes After Set Feud
--  Tres signos del Horóscopo Chino a los que les irá bien en diciembre 2023, según Ludovica Squirru
--  Senado no logra acuerdo para nombrar comisionados del INAI
--  Soccer-Stuttering Manchester City lose 1-0 to Aston Villa
--  Pentagon advisors: Despite reforms, Space Force still shackled to sluggish procurement system
--  A man went viral for repeatedly pranking his blind husband. The interabled couple wants to show infantilizing people with disabilities can cause harm.
--  Older men marrying or having children with younger women is a big 2023 trend
--  ‘ผีแดง’ แรงฤทธิ์ ‘แม็คทอม’ เหมาสองเฉือน ‘เชลซี’ 2-1 ขึ้นอันดับ 6
--  Milan, il recupero di Okafor procede bene: ecco quando punta a tornare in campo
--  Chi è Anna Netrebko, la soprano Diva e “social” alla Prima della Scala
--  Manchester United með afar mikilvægan sigur í stórleiknum – Villa vann magnaðan sigur á meisturunum
--  100-åringen har vært vegetarianer hele livet
--  Gunman dead and many injured in shooting at university in Las Vegas
--  메이저리거 김하성 “2년간 공갈·협박”…후배 선수 고소
--  SÕJAKOKKUVÕTE | Okupandid varastavad haruldasi loomi
--  Aston Villa thắng thuyết phục Man City, chiếm luôn vị trí thứ 3 trên BXH của đối thủ
--  AUTOMOBILOM SE ZAKUCAO U OGRADU CRKVE Nesreća kod Uba
--  ‘Domains’: Hypnotic and truly original
--  Best DM56 Warzone loadout: Class setup, attachments, Perks
--  Jueves será no laborable por los 263 años de la fundación de Maturín
--  MU hạ đẹp Chelsea, tiến vào nhóm dự Cúp châu Âu ở Ngoại hạng Anh
--  [상보] 뉴욕증시, 일제히 하락 마감…관망세 지속
--  Abdullah Avcı'dan flaş sözler: 'Bir kupa varsa favorisi Trabzonspor'dur'
--  If you want to suffer for the chance at $4.56 million, here's how to apply for 'Squid Game: The Challenge' season 2
--  三笘アシスト、チームは逆転勝ち
--  Legislativo da Venezuela aprova criação de estado no Essequibo
+-  هيئة السلع التموينية تعلن عن ممارسة لشراء القمح من جميع المناشئ
+-  رئيس "حملة السيسي": مسؤوليات مرشحنا تحول دون ظهوره إعلاميًا
+-  وسائل إعلام بلجيكية: إطلاق نار وسط العاصمة بروكسل
+-  وزير الدفاع يتفقد أجنحة معرض "إيدكس 2023" والشركات العارضة
+-  رئيس هيئة القناة: حركة الملاحة لم تتأثر بحادث سفينة ONE ORPHEUS
+-  توقعات الأبراج وحظك اليوم 7-12: تحذير من تراكم للديون ونصيحة لهؤلاء
+-  التصريح بدفن جثة شاب عثروا عليه بشوارع المرج
+-  وزير الإنتاج الحربي يتفقد أجنحة الشركات العالمية في "إيدكس 2023"
+-  أحد ثلاثي الأهلي المستبعد من قائمة مونديال للأندية يطلب الخروج للإعارة.. تفاصيل
+-  مانشستر سيتي يسقط أمام أستون فيلا بهدف نظيف ويبتعد عن الصدارة
