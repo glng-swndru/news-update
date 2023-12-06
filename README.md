@@ -1,51 +1,51 @@
 # Latest News
--  'Better than Stamford Bridge'... Chelsea fan Jeremy Clarkson goes unfiltered on MUTV and takes press conference dig
--  وزير الرياضة يتابع منافسات دورة الألعاب السعودية
--  Today’s Lely Radio Sports Page 12/6/23
--  Ολυμπιακός: Ο Φορτούνης εκτίει με Ατρόμητο
--  Most drugmakers have so far ignored looming FTC deadline to withdraw or amend wayward patents
--  АҚШ биринчи марта Россия ҳарбийларига нисбатан жиноят ишини очди.
--  Байден Конгрессни йил охиригача Украинага ёрдамни тасдиқлашга чақирди.
--  Bayern Munich and Borussia Dortmund slam each other’s transfer policy in German media row
--  Stuff Quiz: The Hard Word: December 7, 2023
--  Kako se zaštititi na internetu?
--  What's on in South Canterbury: December 8-10, 2023
--  Two major mining prospects could put B.C. on the nickel mining map
--  【8日の献血】芦北町県芦北地域振興局など
--  【7日の交通取り締まり情報】
--  No charges for animal rights activists who blocked BC SPCA gala
--  Trevor Deely case: Gardaí have interviewed other man from CCTV footage
--  ABD'li yetkililer İsrail yönetimine iletti: Gazze saldırıları ocak ayına kadar bitebilir
--  New laws passed in parliament to re-detain criminals released from immigration detention
--  National weather forecast for Thursday December 7
--  National weather forecast for Thursday December 7
--  Police called to reports of man 'making threats with offensive weapon’ at youth centre
--  Surprise pet Christmas presents are ill-advised, BC SPCA warns
--  Vaşinqtondan Bakıya göndərilən plan: Əliyevin şərtləri var
--  Surprise pet Christmas presents are ill-advised, BC SPCA warns
--  Sudão. Estados Unidos acusam as partes em conflito de "crimes de guerra"
--  Defence minister announces panel members tasked with reviewing military colleges
--  Arranca Operativo Guadalupe-Reyes de la Policía Municipal
--  حوادث غير متوقعة ومفاجآت غير سارة.. 3 أبراج عليهم الحذر الفترة القادمة
--  المقاومة: دمرنا 23 آلية عسكرية ونسفنا منزلًا تحصّن به عناصر قوات خاصة إسرائيلية
--  الدوري الإنجليزي.. جارناتشو يقود هجوم مانشستر يونايتد ضد تشيلسي
--  4 مصابين باختناق وكسور في حريق مخزن مراتب بالهرم
--  لغز العثور على جثة أمام محطة قطار الجيزة
--  إصابة 7 أشخاص في حادث سيارة نقل بـ"صحراوي الصف"
--  الخارجية الأمريكية: نعارض أي منطقة عازلة إذا كانت داخل حدود قطاع غزة
--  Bereaved families of Covid disgusted by 'cruel' and 'callous' Boris Johnson
--  دي يونج يتفوق على الجميع بالدوريات الخمسة الكبرى
--  Even Rule 5 draft is dull for SF Giants, most other teams as MLB Winter Meetings come to a close
--  ASK/LSPA dobelniekiem sagādā sīvāko pretestību Virslīgā šosezon
--  3 Dividend Stocks to Buy Before the Bear Market Starts
--  Catarinense Medalhista Olímpico vai ganhar homenagem no Carnaval 2024
--  BBC o Dodiku: Prijeti odcjepljenjem RS, ali...
--  تطبيقات في هاتفك تتجسس عليك.. إزاي تحافظ على خصوصيتك؟
--  Guterres: Rat u Gazi može pogoršati prijetnje međunarodnom miru
--  Herstellende De Bruyne verrassend in selectie Manchester City voor WK clubs
--  DFB-Pokal: Bayern-Schreck 1. FC Saarbrücken schlägt auch Eintracht Frankfurt
--  Złoto zaczęło drożeć
--  Ukraina i USA podpisały wstępne porozumienie w sprawie wspólnej produkcji broni na Ukrainie
--  حديث مدرب مانشستر يونايتد قبل مواجهة تشيلسي
--  Fantasia Wants to Follow ‘The Color Purple’ by Starring in a ‘John Wick’ Movie: ‘I Want Something Where I Can Kick Ass’
--  Fantasia Wants to Follow ‘The Color Purple’ by Starring in a ‘John Wick’ Movie: ‘I Want Something Where I Can Kick Ass’
+-  News24 | Here are the Daily Lotto numbers
+-  ברדה: "זאת תקופה מחורבנת. גם תיקו לא היה מספק אותי"
+-  Cantata de Natal dos corais Siminina e UFMT abre a programação festiva da Prefeitura de Cuiabá neste domingo (10), no Parque das Águas
+-  Saad quer reconhecer sindicato dos trabalhadores da limpeza como utilidade pública
+-  Vereador propõe dar nomes a 2 praças e um centro de multiuso nos bairros Santa Rosa e Novo Terceiro
+-  Petroleiro tomba no Rio Amazonas
+-  Vereador homenageia morador com nome de praça no Pedra 90
+-  Cezinha cobra serviços para atender os bairros Areão, Novo Milênio e Altos da Serra II
+-  Tip je popio previše 'lijeka': Lubanja mu se doslovno raspala zbog jednog sastojka
+-  'We're hitting new limits.' North Carolina quantum computing bullish on a coveted breakthrough
+-  Rektorem Univerzity Hradec Králové bude fyzik Jan Kříž
+-  Grzegorz Braun: Kara śmierci musi wrócić do kodeksu karnego
+-  إنقاذ الشركة التونسية للسكر محور لقاء رئيس الدولة بوزيرة التجارة والرئيس المدير العام للشركة
+-  Bolsa Família informa pagamentos extras: Como receber?
+-  롯데정보통신, 신임 대표이사에 고두영 SM사업본부장 선임
+-  카카오페이, 예금상품 비교추천 서비스 개시...신한은행과 '쓸수록 모이는 소비적금' 출시
+-  최시원 채널톡 대표 "사람 대체할 수 있는 'AI'의 등장…결코 멀지 않았다"
+-  블로거와 함께 성장한 네이버 블로그, '2023 마이 블로그 리포트' 오픈
+-  오세진 코빗 대표, 마약 근절 '노 엑시트(NO EXIT)' 캠페인 동참
+-  "AI가 어디까지 문제해결 할 수 있을까?"…대답은 "사람이 하는 모든 부분"
+-  코빗, 위메이드 '위믹스' 재상장..."상폐 사유 해소"
+-  라이엇 게임즈, 조선왕실 문화유산 복제 사업 시작
+-  네이버페이, 우리은행과 금융혁신 위한 전략적 파트너십 체결
+-  티빙 오리지널 '몸값', 美 시상식 최우수 외국어 부문 노미네이트
+-  العليمي يطّلع على إحاطة المبعوث الأممي بشأن استئناف العملية السياسية
+-  تعليقًا على قرارات الإعدام الحوثية.. الصراري: "قضاة سلاليين ينفذون سياسة مليشيا رجعية"
+-  Wie wäre es denn mal mit dem etwas anderen Weihnachtsmarkt?
+-  الغارديان: أهداف إسرائيل في غزة ستفشل وحماس ستخرج من الحرب أقوى (ترجمة خاصة)
+-  Patinage artistique. Le couple junior Fradji - Fourneaux à l'autre bout du monde... Quel objectif pour les Isérois en finale du Grand Prix ?
+-  Linnaan kutsutun Hannele Huovin Vladimirin kirja on taas ajankohtainen, koska se kertoo vallasta – palkittu kirjailija tapasi miehensä Kalajoen Hiekkasärkillä
+-  Basketbalistky USK vyhrály pošesté za sebou
+-  Skibidi Toilet Voted Top Meme of the Year
+-  Past in Perspective
+-  B.C. chief coroner Lisa Lapointe retiring, saddened by overdose crisis policy
+-  Saque-aniversário do FGTS para novas retiradas com alterações
+-  Bédarrides. Rugby à XV : trois rendez-vous pour la fin de saison des jeunes
+-  G7 ülkeleriden ortak İsrail-Filistin açıklaması: İki devletli çözüme olan bağlılığımızı sürdürüyoruz
+-  Pucnjava u Briselu – tri osobe povređene
+-  BIRODI: Zekić je prekršila Kodeks Saveta REM koji reguliše integritet
+-  Jewish Community: REM chief Zekic insulted us all
+-  El IDEHPUCP se pronuncia ante la resolución del Tribunal Constitucional que dispone la libertad del expresidente Alberto Fujimori
+-  New ways for Israel-Palestine peace
+-  Entenda para que serve a Lei Seca
+-  Caravan en auto zwaar beschadigd na botsing op A20 | Celstraf geëist tegen verdachten mondkapjesfraude
+-  Climate negotiators get down to business at COP28 summit
+-  Hemmaförlust för Strömsbro - 2–7 mot Sundsvall
+-  Les « Race Change to Another », ces ados en quête d'une coréanité fantasmée
+-  Pengalaman peluk lembu, ‘buang stres’
+-  Le nombre de « deepfakes » pornographiques explose du fait des progrès de l'intelligence artificielle
+-  Handicap et jeu vidéo : des réponses très diverses à une question désormais centrale
