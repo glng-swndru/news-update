@@ -1,51 +1,51 @@
 # Latest News
--  Vurgunun telefon trafiği! Kilit isimle 118 görüşme
--  Ankara merkezli 4 ilde FETÖ operasyonu
--  CHP'den İYİ Parti'ye ret misillemesi
--  Mezitli Belediyesi'nde olmayan kadroya atama skandalı
--  Yaklaşan yılbaşı öncesi sahte alkol operasyonu
--  Çizme basını duyurdu! Rade Krunic adım adım Fenerbahçe'ye
--  تقرير رسمي: اسم "محمد" هو الأكثر شعبية في العاصمة الكاتالونية برشلونة
--  مع بداية يوم جديد.. اجتنب 12 عادة سلبية تستنزف طاقتك
--  5 آلاف ضعف الموظف العادي.. تعرف على راتب أعلى 100 رئيس تنفيذي
--  16기 영숙, 상철 이어 실명 피해 A씨에 고소 당해…"명예훼손·협박·스토킹처벌법"
--  ابتكار روبوت يمارس الملاكمة ويُدعى «نادية».. تعرف على سبب تسميته (صور)
--  Amnesty: Iran setzt sexuelle Gewalt gegen Protestierende ein
--  고성군, 내년도 당초예산 6929억원 편성
--  아이폰 '배터리 게이트'…法 "위자료 7만원 배상해야"
--  '허위 뇌전증' 연예인 병역 면탈 브로커, 1심 징역 5년
--  롤스로이스男 피해자 사망 후 첫 재판…방청석 두리번 '여유'
--  요소수 대란 '악몽' 재연되나…관련 테마주 들썩
--  구미 야생조류에서 고병원성 AI검출에 경북도 비상조치
--  건보 체계 개편 앞둔 복지부 "어려운 필수의료, 충분히 보상"
--  '훅' 찔러보는 디도스 공격 줄고 '돈' 되는 APT 공격 는다
--  올겨울 미세먼지 더 독하다…"중국 석탄 난방 시작"
--  '6조원대 철근 담합' 제강사들 항소심도 억대 벌금형
--  여야, 2+2 협의체 매주 화요일 열기로…"각 당 10개 법안씩 논의"
--  삼성리서치 이주호 펠로우, ‘IEEE 통신표준화 최고리더상’ 수상
--  Sony: It's Important People Who Don't Play Games Access Our Content
--  Organización alerta crisis de aprendizaje tras resultados de PISA
--  Gladbach hofft auf Losglück: «Jetzt sind wir auch mal dran»
--  Celal Şengör'den tartışma yaratacak sözler. Maden açılmasın diyen zır cahildir
--  A James Webb-űrteleszkóp „egy igazi szörnyeteget” örökített meg a mélyűrben
--  पीएम नेतन्याहू का एलान, युद्ध के बाद भी गाजा में सुरक्षा नियंत्रण बरकरार रखेगी इजरायली सेना
--  El aviso de la Seguridad Social sobre el informe de vida laboral
--  La dieta vegana abbassa i livelli di colesterolo e insulina (in sole 8 settimane)
--  Brucia l'auto di un commerciante: è mistero sulle cause, avviate le indagini
--  Flaş gelişme... Milli Eğitim Bakanlığı, okullarda 'sınıf annesi' uygulamasını yasakladı
--  Kickoff | Agent confirms rescue plan for Pirates striker
--  Antetokounmpo über NBA-Prämien: «Die Reichen werden reicher»
--  Schröder zum neuen NBA-Pokal: «Ich finde es geil»
--  Bitcoin'de hareketlilik sürüyor
--  İsrail, BM Koordinatörü'nün vizesini iptal etti
--  Gözler Kabine'de: Gündem asgari ücret!
--  Así está hoy Darío Giordano, el esposo de Romina Yan y padre de sus 3 hijos
--  Днес ще завали дъжд, утре преминава в сняг
--  순천향대학교 부천병원, 권역정신응급의료센터 개소
--  SLAVI BOŽIĆ I SLAVU Srpski zet iz Japana oduševljen našom zemljom: "Kao pravi Srbin, slušam taštu i ženu"
--  'พวงเพ็ชร'บอกเศรษฐกิจตกต่ำ ยอดคนขึ้นภูกระดึงน้อย เลยอยากผลักดันกระเช้าเพิ่มรายได้
--  'ชาดา'ชี้เรื่องยาเสพติดเป็นปัญหาของคนไทยทุกคน ยันกำลังแก้กฏกระทรวง ครอบครอง 5 เม็ด
--  ไม่เกินกำหนด! กรมขนส่ง เผยจีพีเอสความเร็วรถทัวร์ตกข้างทาง ก่อนเกิดเหตุวิ่งแค่ 88 กม./ชม
--  รัฐบาลเชิญชวนเปิดประสบการณ์ท่องเที่ยวพิพิธภัณฑ์ในยามค่ำคืน 48 แห่งทั่วประเทศ
--  বগুড়ায় খড়বোঝাই ট্রাকে আগুন
--  กองกำลังกะเหรี่ยงคะยายึดค่ายทหารเมียนมาเมืองชาดอว์ได้แล้ว
+-  김두관 국회의원, 행안부·교육부 특별교부세 20여억 원 확보
+-  Chief Minister Choices: 3 రాష్ట్రాల్లోనూ కొత్త వారికే అవకాశం,సీఎం అభ్యర్థిపై బీజేపీ మేధోమథనం
+-  Phiên họp Chính phủ thường kỳ tháng 11: Thảo luận nhiều nội dung quan trọng
+-  Sports bodies ask IOC to allow Russians as neutrals for 2024 Olympics
+-  올해 마약사범 2만명 넘어 '역대 최다'… 20대 이하 34% 차지
+-  [속보] 법원"아이폰 사용자에 7만원 배상"… 고의 '성능저하’ 일부 인정
+-  골드만삭스 “내년 코스피 2,800선 도달”… 수출 호조에 ‘비중확대’ 제시
+-  Danas oko 17 časova stiže neverovatan preokret! Mesec ulazi u Vagu - 3 znaka neka se spreme
+-  홍천군 송전탑 반대 대책위 “홍천군에 단 한 개의 송전탑도 세울 수 없다"
+-  강원이주여성상담소, 7일 이주여성가정폭력 실태 현황 및 제도개선 방안 토론회
+-  철원DMZ마켓 운영협의회 장학금 기탁
+-  정선군 노인지도자 연찬회 개최
+-  정선 남부주민(주) 하이원SC 등 3개업체 이웃돕기 1000만원씩 기탁
+-  영월 내성라이온스클럽 주천사랑봉사회에 17㎏ 세탁건조기 1대 기증
+-  2023 인제군자원봉사자대회
+-  평창군산림조합 땔감 지원
+-  한림대 LINC 3.0 사업단, ‘2023학년도 제1회 한림산학인재 공모전’ 개최
+-  한림대, ‘2023학년도 2학기 캡스톤디자인 경진대회’ 개최
+-  양양군여성단체협의회 여성리더 역량강화교육
+-  신승주 양양군보건소장 기부금 전달
+-  춘천명동로타리클럽, 어르신 전기매트 전달
+-  강원특별자치도 사회서비스원, 강원돌봄 네트워크 간담회 개최
+-  속초 사랑의 김치 전달
+-  동해·삼척 ‘수소 저장·운송 클러스터’ 사업, 정부 예비타당성조사 통과
+-  강원농협, 원주서 결혼이민여성 1대1 맞춤형 농업교육 간담회 개최
+-  동해시 쓰레기 처리 매년 130억 이상 지출… 대책마련 시급
+-  野 “또 특수통 검사인가”…방통위원장 김홍일 지명 철회 촉구
+-  For Revanth Reddy, Sonia Gandhi is ‘Mother of Telangana’, but he has ‘better DNA’ because KCR’s Kurmi caste ancestors came from Bihar
+-  [MD포토] 사운드 트랙 #2, '시즌2로 돌아 왔어요'
+-  원주 DB, 오는 8일 스쿨데이 이벤트 진행…"다채로운 행사 실시"
+-  ‘슈돌’ 찐건나블리, 센시 3D 컬러링북으로 미술놀이 즐겨…
+-  "한글 유니폼이 이강인 열풍의 척도!"…이강인 영입 후 PSG 서포터즈 20% 상승, '세계에서 가장 많이 팔린 유니폼은 음바페가 아니야!'
+-  박명수 "시상식 참여 안 한 지 5년…자존심 상해서 안 간다" 너스레 [라디오쇼]
+-  이정후 NYY행 급부상? "대화 나눴다" 적극적 움직임…악마의 에이전트와 만난 캐시먼 단장
+-  딥엘, ‘SC23’서 슈퍼컴퓨터 시스템 순위 34위 차지
+-  트레드링스, 삼양·오뚜기·빙그레 등에 ‘쉽고’ 공급 계약 체결
+-  가비아, ‘하이브리드 클라우드’ 서비스 출시
+-  현대오토에버, 23년 지역사회공헌인정제 최고 등급 획득
+-  한컴 김연수 대표 “동생 구속 건, 한컴과 무관한 일” 선 그어
+-  “이상민 의원과 뜻 함께” 민주 대전 유성을 시·구의원들 동반탈당
+-  명사와 함께하는 백제역사 문화탐방, 내년에 만나요
+-  금산 진산면 역사문화 들여다본다
+-  서천군 물김 초매식 개최… 올해 목표 4만 2000t
+-  청양 농촌자원 활용한 치유농업 키우자
+-  대학도시 천안 상징하는 ‘유니브시티 천안’ 업무표장 등록
+-  75세 이상 음성 여성들이 전하는 삶의 이야기
+-  괴산군, 농식품바우처 시범사업 4년 연속 선정
+-  어린이 관광·콘텐츠 강화 위해 뭉쳤다
+-  한국영상대 작품전시회 ‘백색소음-공명’ 눈길
+-  [국민연금 Q&A] 일시금으로 받은 경우, 반납하고 매월 연금으로 받을 수 없나?
