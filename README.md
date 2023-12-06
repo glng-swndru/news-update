@@ -1,11 +1,11 @@
 # Latest News
--  [조국 “김건희 연말 선물로 ‘명품백’ 수사 추가 특검법 드려야”
--  [대구 달서구, 올해 기족친화기관 5회 연속 선정
--  [영양군, 자작나무숲 이동통신기지국 개통
--  Tur İçin En Çok Tercih Edilen Yerleri Açıkladı, Günübirlikçileri Uyardı: Dolandırıcılara Dikkat
--  Ünlü yıldız zayıflama ilacı yüzünden hastanelik oldu!
--  В пятницу пройдет первое заседание ЦИК, посвященное президентской кампании
--  طلب سماعه بعد الوفاة.. قصة تسجيل صوتي تركه الفنان فريد شوقي لبناته الخمسة
--  Odisha Cabinet Amends MSME Policy To Pave Way For Swift Approvals And Environmental Responsibility
--  National Handloom Expo Underway In Bhopal Till Dec 15
--  Apple Exploring Markets In India, Japan & Korea To Expand Manufacturing Base
+-  CM Stalin: மிக்ஜாம் புயலால் வடியாத வெள்ள நீர்: ஒப்புக்கொண்ட முதலமைச்சர் ஸ்டாலின்!
+-  Balwant Singh Rajoana| ਕੇਂਦਰ ਨੂੰ ਅਲਟੀਮੇਟਮ, ਰਾਜੋਆਣਾ ਨੂੰ ਲੈ ਕੇ ਜਥੇਦਾਰ ਨੇ ਲਏ ਇਹ ਵੱਡੇ ਫੈਸਲੇ
+-  बंद होने वाली है SBI की मोटी कमाई कराने वाली स्कीम, जानिये कितने बचे हैं दिन
+-  Aday Adayı, Aday, Seçim, Başkan, hizmet....
+-  Karatay’da Tabiat Mektebi hayata geçiyor
+-  – النيابة العامة تأمر بحبس تشكيل عصابي ، شرع في الاستيلاء على 40 مليون دينار من مصرف الجمهورية .
+-  Lula skipping Milei's inauguration
+-  Lula skipping Milei's inauguration
+-  Lula skipping Milei's inauguration
+-  Lula skipping Milei's inauguration
