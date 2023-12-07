@@ -1,11 +1,11 @@
 # Latest News
--  Presidente Abinader anuncia 2.5 millones de dominicanos se beneficiarán con la entrega bonos navideños
--  Cientos se manifiestan en Perú al cumplirse un año de Boluarte y tras la excarcelación de Fujimori
--  UAE asks UN Security Council to vote Friday on demand for Gaza ceasefire
--  بلديات بلجيكية تتلقى أوامر بسحب الجنسية من المولودين من أبوين فلسطينيين
--  UAW says over 1,000 workers at VW plant in Tennessee have signed cards seeking union representation
--  Власти Норвегии из-за притока украинских беженцев урезали им детские пособия
--  Two charged with murder of Canadian entrepreneur Daniel Langlois and partner in Dominica
--  Diyarbakır’da çöken binada kimsenin olmadığı belirlendi
--  Police release CCTV of two men who allegedly stole ring from dead woman’s body
--  Ukrajinci blokiraju Ruse na OI - čak i pod neutralnom zastavom
+-  زلزال عنيف يضرب المكسيك وسكان العاصمة يهرعون للشوارع
+-  [경기도-네이버 협업… ‘공공정보 특화’ 검색 서비스 제공
+-  [디지털도어록 10개 중 4개 안전기준 부적합
+-  [이준석, 전광훈 찾아간 원희룡에 “행보에 신중 기하길”
+-  [경기도, 보육과 안전분야등 3종 데이터 분석 상시 서비스 구축
+-  ["태국 가면 꼭 탔는데"…태국 교통수단 '이것' 사라진다
+-  [경기도, 3년간 디지털 성착취물 2만건 확인·신고
+-  [온라인서 소상공인 우수제품 최대 20% 싸게 산다…서울시 ‘슈퍼서울위크’ 개최
+-  [성남시, 정보보안 2년 연속 1위 선정
+-  [공수처 구속영장 5전 5패…‘뇌물 혐의’ 경무관 영장 기각
