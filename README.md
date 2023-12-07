@@ -1,51 +1,51 @@
 # Latest News
--  동해소방서, 겨울철 건축 공사장 화재안전지도 실시
--  홍천 이상화 씨 성품기탁
--  이선혜·박하은 모녀 성금 기탁
--  ‘친윤’ 험지출마 내건 국민의힘 혁신위 ‘공천혁신’ 한계
--  Genshin Impact 4.3 Release Date: When & Where To Watch Live Streaming in India?
--  Тарғибот тадбирлари давом этмоқда
--  Google search data shows Aussies are keen to use AI to make money
--  Sladić magistrirao: 'Koliko god me šamarala Bosna i dalje sam patriota'
--  Animal Box Office Collection Day 6: Ranbir Kapoor Film Mints ₹313 Cr In India
--  Шефът на "Пирогов": Всякаква намеса на болницата в политически борби не е приемлива
--  LDG: Khớp lệnh ‘khủng' gần 15% vốn: NĐT nhỏ lẻ bắt đáy hay 'cá mập' ra tay?
--  CC1: Lê Bảo Anh - Phó Chủ tịch HĐQT, Tổng Giám đốc - đã mua 13.711.827 CP
--  Rogério Ceni garante permanência no Bahia e Ademir fala em "alegria inexplicável"
--  Kiedy zrobi się cieplej? W pogodzie widać odwilż, temperatura będzie "na plusie"
--  Burkina Faso : La langue française reléguée au statut de “langue de travail”
--  Zbog skuplje struje poskupile cijene karata za strance na Trebevićkoj žičari
--  Eurostoxx futures -0.5% in early European trading
--  美 공화 대선후보 4차 TV토론…경쟁자들 헤일리 집중 공격
--  Баскетбол от Евролигата, плуване и фигурно пързаляне по телевизията днес
--  충북교육청 '탄소중립 실현' 학교환경교육 비전 선포식
--  Countries uphold commitment to UN peacekeeping at Ghana meeting; Pakistan warns of new challenges
--  Noa Darvich, la última joya de la fábrica de talento Leaderbrock
--  محمود محيي الدين: مقايضة الديون بالعمل المناخي آلية هامة للدول النامية
--  MoIP conducts first meeting of IAC
--  A. Armonaitė: Laisvės partija liks valdančiojoje koalicijoje tol, kol bus arčiau sprendimų
--  Ukrainos pajėgos sako numušusios 15 rusų dronų
--  [신간] 대통령의 요리사
--  Ma a TV-ben: Angol bajnokik és spanyol kupameccsek is lesznek élőben
--  Видео на живо: Заседание на Народното събрание
--  NAŠI PREDLOZI: "Tip" - tiket za četvrtak
--  İran bəyan etdi: Heyvanları göndərdik, ardınca...
--  В России восьмиклассница устроила стрельбу в школе и совершила самоубийство-ОБНОВЛЕНО
--  책임감 커진 '신인왕' 한화 문동주 "내년에 더 잘해야겠다"
--  Flex Fuel Engine Market Research Covers Top Players, Segment, Statistics and Forecast Report (2023-2030)
--  Trešdien uz Latvijas ceļiem noticis daudz avāriju, bet tikai divās cietuši cilvēki
--  Oväntat litet överskott för staten
--  Aircraft Ground Support Equipment Market worth $7.87 billion by 2030, growing at a CAGR of 6.29% - Exclusive Report by 360iResearch
--  Global Cotton Comforter Market Will Generate Record Revenue by 2028
--  Telecom Millimeter Wave Technology Market Forecast: Anticipated 20.78% CAGR Growth, Projecting Global Market Valuation to Reach US$ 3.13 Billion by 2029.
--  SK그룹 인사, "부회장 승진 없이 50대 리더로 물갈이"
--  Indian Food and Beverages Market Surges to USD 622.67 Billion by 2029, Boasting a Remarkable CAGR of 11.05%
--  Otomobil satışlarında '6 ay ve 6 bin kilometre sınırı' uzatıldı
--  Konya'da aranan 93 şahıs yakalandı
--  Konya'da kaçakçılık operasyonu: 3 gözaltı
--  Doğum günü kutlamasından dönerken kazada hayatını kaybetti
--  Indian-origin media veteran Dr Samir Shah named new BBC chairman
--  Zevende editie van de Winter3Daagse
--  Sinopsis dan Daftar Pemeran Soundtrack #2, Drama Korea Baru dengan Kisah Cinta yang Bikin Baper
--  Ratusan Caleg PKS Jatim Teken Pakta Integritas, Wujud Komitmen kepada Rakyat
--  박문수 초상과 짖고 있는 삽살개가 전하는 '황극탕평'…이덕화 오디오 가이드
+-  Rental homes' value to drop 16% by end 2024: ABN Amro
+-  हिमपातले लिमी आउजाउ बन्द
+-  कथाकार पराजुलीको ‘ड्रिमी आइज’ सार्वजनिक
+-  ठमेलका चोकमा सिसी क्यामरा जडान
+-  अर्थतन्त्रमा सुधारको अनुभूति हुँदै : प्रधानमन्त्री
+-  “제주형 행정체제개편 주민투표 예정대로 진행”
+-  साहसिक पर्यटन ‘ट्रेकिङ’: बढ्दो आकर्षण, केही चुनौती
+-  تعز.. قيادة اللواء 22 ميكا تزور أسر الشهداء
+-  UP: No mandatory Urdu test for sub-registrar jobs now, Yogi Adityanath govt to replace Urdu and Persian words with Hindi on registry documents
+-  ইঁদুরের গর্তে জমির ধান, কৃষকেরা ক্ষতিগ্রস্ত
+-  보령시, 34개 민·관 사회서비스기관 탄소중립 에너지전환 위해 뜻 모아
+-  광주시, 이웃돕기 공개방송 모금행사 진행
+-  강원도, 도시재생·스마트시티 역량강화 워크숍 개최
+-  대구시교육청, 대구미래역량교육 설명회 개최
+-  광주시, 민선8기 공약사업 보고회 개최 ‘시민과의 약속이행 순항’
+-  강원도, 인구감소 대응 우수사례 선정
+-  광주시, 행안부 특별교부세 24억원 확보
+-  군위군 명예읍면장 위촉식 성황
+-  강원도, ‘도루묵 자원회복 사업' 재추진
+-  광주도시관리공사 ‘한국서비스품질우수기업 인증’ 최초 획득
+-  안성시, ‘2023년 기본형 공익직불금’ 지급
+-  태백·삼척 조기폐광 고용위기지역 지정 추진
+-  고양시 정발산동, 제설봉사단 발대식 개최
+-  원주시, ‘2023년 강원 물가안정관리 최우수 기관’ 선정
+-  원주소방서, 요양병원·요양시설 피난 공동대응 대책 교육
+-  KB금융, 그룹 홈페이지 전면 개편
+-  이상일 용인시장, 자립준비청년들에 반기문 전 유엔사무총장 서명 담긴 저서 전달
+-  [마감시황] 글로벌 주식시장과 동조…코스피·코스닥 모두 하락
+-  양구군, 국회 자살 예방 우수지자체 2년 연속 선정
+-  HF공사, 국민체육진흥공단과 감사업무 MOU
+-  [SK사단] SK하이닉스 곽노정, 단독대표 체제…AI 인프라 역량강화
+-  성남시, 가천대 학생들과 ‘우리동네 힙스토어’ 키운다
+-  강강술래, 100% 국내산 유기농 쌀 전통주 '강술' 출시
+-  양구군, 내년 3월까지 제5차 미세먼지 계절 관리제 추진
+-  Bibliotheek Nieuwegein organiseert boetevrije week
+-  Apple: la empresa que transformó la tecnología
+-  House of Janaan Celebrates Grand Opening, Unveiling Fusion of Tradition and Modernity
+-  Совфед: выбора президента РФ пройдут 17 марта
+-  وزير الكهرباء يبحث مع القائم بأعمال السفارة الصينية تعزيز التعاون في مجال الطاقة
+-  Выборы президента будут впервые проходить в столь токсичной геополической обстановке
+-  Major hospitals struggle to recruit pediatricians
+-  K-dramas, beauty, food have gone viral on TikTok in 2023
+-  Trade minister bets on semiconductors, shipbuilding, cars for 2024
+-  Minister laments poor allocation to disability commission in 2024 budget
+-  – محكمة جنايات طرابلس تقضي بحبس مدير عام مستشفى الشويرف القروي ونائبه ومفوض أداة التنفيذ.
+-  ChatGPT’ye ağzına geleni söyleyen Musk’tan, Google’ın yapay zekasına tebrik
+-  Radujte sa ako deti! Ako sa dá mať detskú radosť aj v dospelosti?
+-  KONIEC DOHADOM! Šoubiznis má nový MILENECKÝ PÁR
+-  Mustin iso omistaja vähensi omistustaan
+-  ‘ในหลวง-พระราชินี’ เสด็จฯ ฝึกซ้อมแข่งเรือใบ ‘ภูเก็ต คิงส์คัพรีกัตต้า’
