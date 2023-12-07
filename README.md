@@ -1,11 +1,51 @@
 # Latest News
--  Tensión y malhumor por bloqueo en el ‘Libre’
--  Inflación repunta a 4.32% y rompe tendencia a la baja
--  Se rinden supuestos combatientes de Hamas al norte de Gaza
--  Apura AMLO reformas a GN, al PJ y electoral
--  Ordenan a mando de Sedena acudir a declarar en caso Pegasus
--  BBC Producer Launches Investigation into Maryam Moshiri’s On-Air Gesture Controversy
--  Granata JNA ubila Srpkinju, hosovci dotrčali do tijela: Svjedok ispričao što je uslijedilo
--  Oglasio se HNS oko odluke koja puno toga mijenja za Vatrene
--  Воведувањето дневна евтина тарифа значи двојно поевтина цена на електрична енергија, вели Ковачевски
--  فانتازي.. كيف تستثمر في خط وسط وهجوم أرسنال؟
+-  EU-Staatsanwaltschaft erwartet deutlichen Anstieg von Verfahren
+-  Kering : acompte sur dividende au titre de l'exercice 2023
+-  GTT : conclut un accord avec le groupe de construction navale chinois CSCC
+-  Kering versera un acompte sur dividende de 4,50 euros par action le 17 janvier
+-  مصر تحمّل «العراقيل الإسرائيلية» مسؤولية تباطؤ المساعدات إلى غزة
+-  Lutto per i fan di Peaky Blinders: è morto a soli 65 anni l’attore e poeta Benjamin Zephaniah
+-  फ्लैग डे फंड में से 212 सैनिकों को 17.75 लाख रुपए की वित्तीय सहायता दीः जौडामाजरा
+-  ہماری کوتاہیاں، غلطیاں اور کمزوریاں ہی تباہی کی وجہ ہوں گی،اگر سندھو رک گیا تو یہ حضرت انسان کی بھی بربادی ہو گی،یہ ہے میرے دوست کی داستان حیات
+-  Bela, il ritiro e le lacrime di Mike: "Il 2024 sarà il mio ultimo anno"
+-  La FIVB ha deciso i calendari 2025/2028 dell'attività internazionale
+-  Al Khelaifi clamoroso: "Elkann mi ha chiamato, la Juve torna nell'Eca"
+-  Medicina e Scienza dello Sport: a UniCamillus i campioni mondiali
+-  Cerca moto online: ne trova una, ma è quella che gli avevano rubato
+-  Il faut sauver la synagogue de Sousse
+-  Гълъб Донев: Добрите управленски решения идват в резултат на внимателен анализ и диалог с гражданското общество
+-  Χρήστου: Πέρασε στον τελικό στα 100μ. ύπτιο στο ευρωπαϊκό 25άρας στο Οτοπένι
+-  Khaby, matrimonio in vista Wendy mostra l’anello del sì
+-  Lo sorprendieron cuando abusaba de una niña de cinco años
+-  Александър Везенков с Икар за "Впечатляващо представяне"
+-  Agwai: One Party State Not Good For Democracy
+-  Legendarni talijanski gradski automobil dobiva nasljednika, a proizvodit će se u našem susjedstvu
+-  Adele onthult dat ze haar eigen hit niet meer kan horen en door welke collega ze doodsbang was bij concert
+-  Animal: Who is Shafina Shah? get to know Bobby Deol`s second wife in the movie
+-  Maharashtra: Twelve transgenders booked for assaulting cop in Pandharpur
+-  HELLENiQ Energy: Ξεκινάει η διάθεση μετοχών του Ομίλου στο Χρηματιστήριο – Στο 10% το πακέτο που ανακοινώθηκε
+-  Freddie Flintoff smiles as he enjoys his birthday night out after suffering horror injuries in Top Gear crash
+-  Freddie Flintoff smiles as he enjoys his birthday night out after suffering horror injuries in Top Gear crash
+-  NASS to remove tertiary institutions from IPPIS – Speaker
+-  Fusion gets a bipartisan boost
+-  Росатом начал изготовление оборудования для наземной АСММ в Якутии
+-  White House delays banning menthol cigarettes yet again: When is the next target date?
+-  Cumhurbaşkanı Erdoğan Yunanistan'dan ayrıldı
+-  ПРЕТЕПАН ЗАТВОРЕНИК во Идризово
+-  É falso que governo tenha criado “Ceia para Todos” em parceria com a Seara; conteúdo leva a golpe
+-  Beneteau : plus forte baisse du SBF 120 et du SRD à la clôture du jeudi 7 décembre 2023-
+-  Econocom Group Se : Econocom et Lifelines référencés, pour les solutions d'automatisation des flux par robots mobiles autonomes (AMR)
+-  Aynur Dadaşova: “Deyirlər ki, kasıb olduğum üçün onların toylarına gedirəm”
+-  Kering annonce le versement d'un acompte sur dividende de EUR4,50
+-  ЕС призвал Китай воздерживаться от применения силы против Тайваня
+-  В ЦСКА 1948 мечтаят за нов финал за купата
+-  Tempi di Fraternità: lotte di base e dialogo interreligioso in cinquant’anni di pubblicazioni
+-  İstanbul'da üniversiteli olmanın maliyeti açıklandı: Asgari ücret öğrenciye bile yetmiyor
+-  Kommentar: In NRW gerät der vorzeitige Kohleausstieg 2030 in Gefahr
+-  ضبط 30 متهماً على ذمة 26 قضية جنائية
+-  Schatten über Lichterfest: Viele Ängste und Sorgen
+-  Promoção “The Game Awards” na PlayStation Store
+-  انتخابات الرئاسة.. خطوات إدلاء الناخب بصوته داخل لجنة الاقتراع
+-  В РПЦ заявили, что священников-предателей на Украине нужно простить после их покаяния
+-  Momirović: CEFTA tržište je važno za srpsku privredu
+-  Roy Keane ‘wouldn’t be sure’ about Marcus Rashford as he questions Man Utd star’s desire and future at Old Trafford
