@@ -1,51 +1,51 @@
 # Latest News
--  'ACL 16강 확정' 포항, J조예선 마지막 경기 우한과 무승부
--  포항시, 호미반도 해양보호구역 확대·신규 지정 주민설명회 개최
--  15살 어린 여경 머리 밀치고 부적절 발언…감봉 1개월 처분 ‘적법’
--  아이코리아 영천시지회, 사랑의 연탄 500장 취약가구에 직접 배달
--  포항문인협회 ‘포항문학 통권 50호 특별호’ 발간
--  화원농협 영농회, 15개 노인복지회관에 유류비 1200만원 지원
--  금복문화재단, 영양군 인재육성장학회에 장학금 1000만원 기탁
--  문경서 경상북도 무형문화재 사기장 공개·전시행사 이어져
--  동국대 WISE캠퍼스 '경주형 세계시민교육 초청강연' 성료
--  FUESSVFL: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
--  FUEMAVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
--  E1VFVN30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEBFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEVFVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
--  FUEDCMID: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEFCV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEKIV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEIP100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEMAV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUESSV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEMAVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUESSVFL: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUESSV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEVN100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  FUEVFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
--  HNA: Bản cáo bạch
--  CII: Thông báo về ngày ĐKCC tham dự ĐHĐCĐ bất thường năm 2023
--  Mangsa banjir di Pasir Mas makin menurun
--  Foro Penal informa sobre la detención de Roberto Abdul-Hadi, presidente de Súmate
--  Noisy, disruptive, distracted: Australian classrooms among world’s worst
--  Noisy, disruptive, distracted: Australian classrooms among world’s worst
--  Noisy, disruptive, distracted: Australian classrooms among world’s worst
--  Noisy, disruptive, distracted: Australian classrooms among world’s worst
--  프리미엄 데킬라 ‘1800 크리스탈리노’, 스페셜 기프트 패키시 출시
--  앤유PC방, 농심 레드포스 PC아레나 브랜드 지속 확장
--  에몬스, 24년 S/S시즌 가구 디자인 트렌드 발표회 개최
--  중부발전 인천발전본부, 복지 사각지대 해소 위한 "에너지기업 합동 행복 나눔 희망 드림" 진행
--  김완선, 히트곡 담은 베스트 리메이크 앨범 발표
--  TCU aprova renegociação entre governo e quatro termelétricas
--  Бетіс - Реал: де і коли дивитися онлайн матч 16 туру Ла-Ліги 09.12.2023
--  쉐보레 트랙스 크로스오버, 美 '베스트10 트럭 & SUV' 선정
--  «أخطر ظاهرة جوية».. معلومات عن الضباب بعد تحذير الأرصاد منه الأيام المقبلة
--  김관영 전북지사, 중소기업·소상공인과 소통 지속
--  Estos son los horarios de cortes de luz en Ecuador por provincia para este jueves, 7 de diciembre
--  हमास नेता ने पाकिस्तान को क्यों कहा बहादुर? यहूदियों को बताया मुसलमानों का सबसे बड़ा दुश्मन
--  Stony Brook wins 81-63 against Stonehill
--  Clark’s 35 points and key assists help fourth-ranked Iowa escape Iowa State 67-58
--  13일 이주은 피아니스트 독주회
--  오영훈 “제주특별법 당장 개정 안 돼도 행정체제 주민투표 예정대로”
+-  "매 경기가 역사"…NH농협카드, PBA 팀리그 최다 10연승 신기록 '1강 우뚝'
+-  '우승 기념' LG 트윈스-LG전자 홈브루 콜라보 '챔피언 패키지' 출시...300대 한정 판매
+-  ‘만점 활약→부상’ 무한반복... ‘日 수비 에이스’, 종아리 문제로 최소 3~4주 이탈
+-  [K리그 핫피플] 뒤가 없는 ‘돌직구’ 임관식 감독의 화끈했던 4개월, “새 시즌에도 공격축구”… 2024년 안산의 모습은?
+-  AMD, 데이터센터부터 PC 포괄하는 신규 AI 솔루션 발표
+-  United States Agro Textile Market, Competition, Forecast and Opportunities, 2018-2028F
+-  Caricatura: Aprobada Reforma a la Salud (I)
+-  전·현직 아이돌 메인보컬 서바이벌…엠넷 '빌드업' 론칭
+-  서울시립미술관 "공유…대화 합시다"…공공 미팅~퍼포먼스 진행
+-  고성군, 자체생산 겨울꽃 '팬지·꽃양배추' 분양
+-  Video: Agrede a mujer arrancando su retrovisor lateral en la fila del puente
+-  대구 11월 5째주 코로나19 양성자 294명…전주比 4명↓
+-  윤 지지율, 3%p 내린 32%…장관 출마 '긍정 32% vs 부정 59%'[NBS]
+-  الأعمال الغنائية لنخبة من شعراء مصر بالمسرح الكبير
+-  نشرة منتصف الليل| انتظام الملاحة بقناة السويس.. والتموين تسعى لحل أزمة السكر
+-  كيف تختار الطريقة الصحيحة لتنظيف بشرتك؟
+-  민주 김원종, 남원·임실·순창 출마…“분열 극복할 인물 필요한 때”
+-  Southeast Raleigh mentorship groups look to expand reach after high school stabbing
+-  McDonald’s mahu capai 50,000 restoran menjelang 2027
+-  VERIFYING claims from the fourth Republican presidential primary debate
+-  Ordenan cancelar captura contra Cabeza de Vaca por delincuencia organizada y operaciones ilícitas
+-  Tarek El Moussa’s Struggle with Alcoholism at Age 19: A Reflective Look
+-  William Yekrop: Fifth immigration detainee arrested after being released following High Court ruling
+-  민주 "김홍일 방통위원장 지명은 방송장악 선전포고…철회해야"
+-  Caricatura: La prueba que nos PISA
+-  Erdogan to call for energy cooperation with Cyprus in Greek talks
+-  배달의민족, 소상공인 위해 '1050억원 규모' 대출 지원
+-  윤송아 작가, 더현대 킨텍스점 갤러리H 개인전 개최
+-  김호중, 팬들 위한 자기 관리? "경환이 형처럼 될 수 있어"('한 살이라도 어릴 때')
+-  하나은행, 하나원큐앱 전용 '모임통장 서비스' 출시
+-  라이즈, 데뷔 100일 기념 첫 팬미팅, 티켓 오픈 1분 만 전석 매진
+-  롯데카드, ‘Triple in LOCA’ 카드 출시…월 최대 3만원 맞춤 할인
+-  뉴진스 해린, 초근접샷에도 빛나는 극강의 비주얼
+-  오뚜기, '소통' 콘셉트로 홈페이지 개편…기업 브랜딩·이용자 편의성 강화
+-  "우리WON뱅킹" 12월 7일 캐시워크 퀴즈 정답 공개
+-  롯데건설, 임직원 사내벤처 육성 나서
+-  유진투자증권, '유진AI애널리스트'로 종합자산관리 경쟁력 업그레이드
+-  요양보호사, 사회복지사 처우 개선
+-  América de Cali: 10 penales en el semestre, todos fueron gol
+-  ‘อุ๊งอิ๊ง’ แจงงบ ‘ซอฟต์พาวเวอร์’ เคลียร์ปม ‘สงกรานต์’ ปัดสาดน้ำทั้งเดือน
+-  Minister unveils educational reforms, including digitalisation and exam grade revision, in upcoming pilot programme
+-  일진전기, 송전 핵심기술 HVDC 케이블 개발 완료
+-  김포시, 서울시와 기후동행카드 업무협약 체결
+-  김포시농업기술센터, 제16기 김포엘리트농업대학 졸업식
+-  Christie slams Ramaswamy: 'Most obnoxious blowhard in America'
+-  Former House Speaker Kevin McCarthy to Resign From Congress
+-  양천 목동 9단지 재건축 확정…정밀안전진단 통과
+-  Dolph Ziggler & More Set For MCW Fan Jam 2
+-  Pasang Foto Eddy Hiariej, Aldila Sutjiadi Mengeluh Biaya Tiket Pesawat ke SEA Games dan Asian Games Belum Diganti
+-  Fourth Republican debate LIVE: Chris Christie calls Trump a 'dictator' and mocks candidates for treating him like 'Voldemort' and not attacking him
