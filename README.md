@@ -1,51 +1,51 @@
 # Latest News
--  Guyana ordusuna helikopter Venezuela sınırında kayboldu
--  İşgalci İsrail abluka altında tuttuğu Gazze'ye girişine müsaade ettiği yakıtın miktarını artırdı
--  Yemen'deki Husiler İsrail'i balistik füzeyle hedef aldı: Saldırı sonrası Eylat kentinde sirenler çaldı
--  “Biz sülhü müharibə ilə gətirdik”
--  В Бурятии при взлете у Ту-204 загорелся двигатель
--  Terapi gav effekt vid klimatångest
--  Terapi gav effekt vid klimatångest
--  رقم مميز لـ مكتوميناي مع مانشستر يونايتد في البريميرليج
--  Thủ tướng: Lúc khó khăn, doanh nghiệp bất động sản vẫn muốn giữ giá bán thì đã có trách nhiệm chung chưa?
--  Bất đồng trong dự báo khả năng Fed giảm lãi suất trong năm 2024
--  양주시, 지방공공기관 구조개혁 평가 ‘우수지자체’선정
--  의정부시 소재 ㈜대산엘리베이터, 컵라면 200상자 기부
--  남동구의회 이철상 의원 발의 ‘통행금지·제한구역 지정 조례’ 원안 가결
--  의정부시 소재 경기도의료원, 생필품 50상자 기부 사랑릴레이 동참
--  인천경제청, 송도국제도시 공원 4곳에 전기차 급속충전기 설치 본격 가동
--  의정부시 녹양동, 송암교회 백미 100kg 기탁
--  Weniger unerlaubte Einreisen nach Deutschland
--  From Nail Can Hill to the world: Ollie reflects on rise to World Cup pro
--  Nintendo Switch・麻雀牌中毒パズル『上海LEGEND』発売。協力プレイにも対応で“サンソフト史上最高難易度”のやりごたえ
--  [코오롱제약] 의약품 회수에 관한 공표
--  Vai zobu rentgens kaitē tavai veselībai?
--  Bakıda zəlzələ oldu
--  L’art pictural en partage
--  Céline de Abreu ouvre une galerie éphémère
--  Conseil municipal : pôle santé, médiathèque à l’ordre du jour
--  3 CVA : le long chemin de la pédagogie
--  Au conseil municipal
--  Un week-end maussade pour Madiran
--  "Ferme ta gueule !" Larcher se lâche sur Mélenchon
--  The Game cricket tipping: Early bird winner William McCauley snares $5K prize, with more money up for grabs
--  The Game cricket tipping: Early bird winner William McCauley snares $5K prize, with more money up for grabs
--  Швеция ва АҚШ мудофаа соҳасида ҳамкорлик шартномаси тузди.
--  Оғир атлетика бўйича Руслан Нуриддинов спорт маркази ташкил этилади.
--  World Athletics Россия спортчиларини Олимпия ўйинларига киритмайди.
--  Haval Ўзбекистон бозорида моделлар ассортиментини кенгайтирмоқда.
--  Sagarpali VSS shines in national webinar
--  אחרי שאיבדה את הוריה בטבח, מרב סבירסקי נלחמת שלא יפקירו את אחיה בעזה
--  Майк Тайсон неожиданно высказался про бой Усик-Фьюри
--  Azərbaycanda zəlzələ baş verib
--  McDonald's eyes big expansion, plans CosMc's small-chain pilot
--  Kinas export ökar
--  PM Anwar says there should be no more excuses for delays in projects for people in Sabah
--  다시보는 대한늬우스 (81. 12. 07)
--  Jurado de Nevada acusa a seis republicanos que declararon a Donald Trump ganador
--  Regierung: Nein zu gesetzlichem Mindestlohn
--  제주 자율주행 산업 활성화 위해 도내 학생 육성
--  Дождь перейдет в снег: синоптики предупредили о гололедице
--  رقم سلبي تاريخي لـ تشيلسي بعد الهزيمة أمام مانشستر يونايتد
--  Metrobüs reklam panosuna çarptı: 1 yaralı
--  專家觀察：千禧世代、Z世代投資新手常見七大錯誤
+-  ارتفاع العقود الآجلة للنفط الخام خلال الدورة الآسيوية
+-  "الأرصاد" يتوقع سماءً غائمة وضبابًا على مكة وتبوك وهذه المناطق
+-  Erfolgreicher Einstieg mit Wagyus #fleischrind #wagyu
+-  Neue Einzugsbleche nötig: John Deere 2056 HillMaster für 64.500 Euro #maschinedestages #gebrauchtmaschine
+-  عاجل.. حساب المواطن يكشف عن شرط استمرار الدعم للخريجين
+-  니치 향수 브랜드 오르오브, 주현영과 함께한 화보 공개
+-  इन्टरपोलको महासभामा सहभागी भई प्रहरी महानिरीक्षक स्वदेश फिर्ता
+-  सरकारले मिर्गौला प्रत्यारोपण लागि चार लाखसम्म सहुलियत दिने
+-  प्रयोगविहीन भ्युटावर
+-  मलमूत्रले उपचार !
+-  बन्द नगरपालिका खुलाउन वार्ता
+-  प्रधानमन्त्रीसँग शिष्टाचार भेट
+-  "Musk kommer inte ge sig"
+-  Statesboro leaders looking for feedback on comprehensive plan for the future
+-  영주 소백산서 산불...진화헬기 투입 진화 중
+-  Russlands Krieg: US-Republikaner blockieren weitere Hilfen für die Ukraine
+-  Koffee with Karan: Kiara Advani calls Sidharth Malhotra a "SULKER", reveals Shershaah style proposal in Rome
+-  No decision made on Savannah-Chatham County Public School System rezoning
+-  Ältere Spätaussiedler und Juden könnten Geld bekommen
+-  Petrol beş ayın en düşüğüne yakın
+-  Alphabet unveils long-awaited Gemini AI model
+-  [부고] 고재술(전남도교육청 감사관)씨 별세
+-  באר שבע לא מוצאת תשובות: "מגוחך לדבר, חייבים לעצור את כדור השלג"
+-  Юридические аспекты войны с террором. Интервью с адвокатом Марком Пери
+-  청도교육지원청, ‘정보사회에서 인간다움을 추구하는 교육 방향’ 특강
+-  한국건강관리협회, 학대피해아동 보호 위한 후원금 전달
+-  화성시의회 기획행정위, 수원·화성·오산 과학화예비군훈련장 방문
+-  구미시, 고향사랑기부 ‘3억원 달성’ 감사이벤트 진행
+-  Polizist bei Böllerwurf rund um Volleyballspiel verletzt
+-  여주에너지서비스, 지역 쌀 구매해 ESG 경영실천
+-  서초 아이들 운동하며 탄소중립 실천 배워요
+-  В Баку произошло землетрясение
+-  आगरा किले का हाल: उखड़ा प्लास्टर, दीवारों पर दरारें और निकले पत्थर; दुर्दशा की कहानी बयां कर रहा ये हाल
+-  중국 수출, 6개월만에 플러스 성장...기저효과 영향
+-  देश की खबरें | प्रियंका गांधी ने गाजा पर ‘निर्मम बमबारी’ की निंदा की, सरकार से सही का साथ देने को कहा
+-  本物はどっち？木彫り作家「キボリノコンノ」さんが激ムズクイズ絵本を発売
+-  Lottery Sambad Result Today 7 December: আজ বৃহস্পতিবার, পশ্চিমবঙ্গ ডিয়ার লটারি সংবাদ রেজাল্ট জানুন অনলাইনে
+-  7. Dezember 1923: Edwin Hubbles größte Entdeckung vor 100 Jahren
+-  Troubled abattoir Cedar Meats at centre of $130 million debt dispute
+-  She’s been an avocado and a Vegemite jar and YouTube can’t get enough
+-  Генчо Генчев, кмет на община Свищов: Изграждането на АМ „Русе-Велико Търново“ и скоростна отсечка към Свищов е от съществено значение за региона - Труд
+-  She’s been an avocado and a Vegemite jar and YouTube can’t get enough
+-  Ukraine-Krieg: Geht Putins Kalkül am Ende auf?
+-  Toxická těžba v Amazonii: "Je brutální. Ničí mozky nenarozených dětí," říká politička
+-  Skepse narůstá. Ukrajina je na tom nejhůř od začátku války, varuje polský analytik
+-  Begriper inte majoritetens regionpolitiker vad de gör?
+-  Губернатор представил медицинскому сообществу главу воронежского минздрава
+-  Las gestoras internacionales afrontan su segundo año de sequía de venta de fondos en España
+-  Antoni Fernández: (Caja Ingenieros): “La fortaleza de nuestro modelo es que aquí los clientes son también los dueños”
+-  '대전 서구갑 출마' 이영선 "세대교체로 지역 성과 완성해야"
