@@ -1,4 +1,15 @@
 # Latest News
+-  ‘สุทิน’สั่งสอบเชือดย้อนหลัง คลิปเก่าปี64ทหารตั้งแถวรับนักท่องเที่ยวจีน
+-  ‘ทหาร’หนี้บาน!สุทินพบเจอยึดทรัพย์อื้อ สแตนด์บายรอสนับสนุนกำลังแก้หนี้นอกระบบ
+-  ‘영양제 캡슐·사탕 포장지’ 속 가루, 마약이었다
+-  한덕수 “알뜰폰 요금 선택 기회 확대…각종 규제 혁파”
+-  검찰, 대유위니아 압수수색…수백억원대 ‘임금체불’ 혐의
+-  Jandyala Guru Fir*ing | ਪੁੱਤ ਨੂੰ ਬਚਾਉਣ ਆਏ ਪਿਓ ਦੇ ਮਾਰੀ ਗੋਲੀ ਫਿਰ ਬਦਮਾਸ਼ ਹੋ ਗਏ ਫਰਾਰ
+-  طائرات وأسلحة.. "مصراوي"، في جولة بالجناح الصيني بـ"إيديكس 2023"
+-  Қонун ҳужжатлари мазмун-моҳиятига бағишланган давра суҳбати
+-  [종합] 인천 이어 김포도 합류...순항하는 '기후동행카드'
+-  Quán ăn Hàn Quốc làm content quá "nhây" khiến dân mạng không thể ngồi yên, cứ 5h chiều là "dậy sóng"
+-  China: Xi Jinping s-a întâlnit cu Ursula von der Leyen şi Charles Michel
 -  ارتفاع العقود الآجلة للنفط الخام خلال الدورة الآسيوية
 -  "الأرصاد" يتوقع سماءً غائمة وضبابًا على مكة وتبوك وهذه المناطق
 -  Erfolgreicher Einstieg mit Wagyus #fleischrind #wagyu
@@ -11,12 +22,18 @@
 -  मलमूत्रले उपचार !
 -  बन्द नगरपालिका खुलाउन वार्ता
 -  प्रधानमन्त्रीसँग शिष्टाचार भेट
+-  Mumtaz-Asha का 'शहरी बाबू' मचा रहा धूम, गाने की शूटिंग पर खुश नहीं थीं हीरोइन
+-  Russlands Krieg: US-Republikaner blockieren weitere Hilfen für die Ukraine
+-  Semifinales Apertura 2023 AL MOMENTO: América domina al San Luis en el Alfonso Lastras
 -  "Musk kommer inte ge sig"
+-  Morbi: મોરબીના નકલી ટોલનાકામાં તપાસનું નાટક, FIR નોંધાયાના 3 દિવસ થયા છતાં આરોપીઓને નથી પકડી શકી પોલીસ
 -  Statesboro leaders looking for feedback on comprehensive plan for the future
 -  영주 소백산서 산불...진화헬기 투입 진화 중
 -  Russlands Krieg: US-Republikaner blockieren weitere Hilfen für die Ukraine
 -  Koffee with Karan: Kiara Advani calls Sidharth Malhotra a "SULKER", reveals Shershaah style proposal in Rome
 -  No decision made on Savannah-Chatham County Public School System rezoning
+-  Revealed! What goes inside Bachchan family’s private WhatsApp group
+-  경기도, ‘1인 가구 포털’ 구축
 -  Ältere Spätaussiedler und Juden könnten Geld bekommen
 -  Petrol beş ayın en düşüğüne yakın
 -  Alphabet unveils long-awaited Gemini AI model
@@ -30,22 +47,5 @@
 -  Polizist bei Böllerwurf rund um Volleyballspiel verletzt
 -  여주에너지서비스, 지역 쌀 구매해 ESG 경영실천
 -  서초 아이들 운동하며 탄소중립 실천 배워요
+-  मुर्गों के साथ खड़ी है फ्रेंच सरकार, वो कितना भी चिल्लाए, नहीं होगी शिकायत!
 -  В Баку произошло землетрясение
--  आगरा किले का हाल: उखड़ा प्लास्टर, दीवारों पर दरारें और निकले पत्थर; दुर्दशा की कहानी बयां कर रहा ये हाल
--  중국 수출, 6개월만에 플러스 성장...기저효과 영향
--  देश की खबरें | प्रियंका गांधी ने गाजा पर ‘निर्मम बमबारी’ की निंदा की, सरकार से सही का साथ देने को कहा
--  本物はどっち？木彫り作家「キボリノコンノ」さんが激ムズクイズ絵本を発売
--  Lottery Sambad Result Today 7 December: আজ বৃহস্পতিবার, পশ্চিমবঙ্গ ডিয়ার লটারি সংবাদ রেজাল্ট জানুন অনলাইনে
--  7. Dezember 1923: Edwin Hubbles größte Entdeckung vor 100 Jahren
--  Troubled abattoir Cedar Meats at centre of $130 million debt dispute
--  She’s been an avocado and a Vegemite jar and YouTube can’t get enough
--  Генчо Генчев, кмет на община Свищов: Изграждането на АМ „Русе-Велико Търново“ и скоростна отсечка към Свищов е от съществено значение за региона - Труд
--  She’s been an avocado and a Vegemite jar and YouTube can’t get enough
--  Ukraine-Krieg: Geht Putins Kalkül am Ende auf?
--  Toxická těžba v Amazonii: "Je brutální. Ničí mozky nenarozených dětí," říká politička
--  Skepse narůstá. Ukrajina je na tom nejhůř od začátku války, varuje polský analytik
--  Begriper inte majoritetens regionpolitiker vad de gör?
--  Губернатор представил медицинскому сообществу главу воронежского минздрава
--  Las gestoras internacionales afrontan su segundo año de sequía de venta de fondos en España
--  Antoni Fernández: (Caja Ingenieros): “La fortaleza de nuestro modelo es que aquí los clientes son también los dueños”
--  '대전 서구갑 출마' 이영선 "세대교체로 지역 성과 완성해야"
