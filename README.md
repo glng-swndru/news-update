@@ -1,51 +1,51 @@
 # Latest News
--  Putin: Batılı ülkelerdeki seçkinler kendi müttefiklerini de sömürüyor
--  New York borsası yükselişte
--  BM: İsrail Gazze'deki sağlık sistemine karşı acımasız bir savaş ilan etti
--  Meta Gözetim Kurulu, İsrail ve Gazze ile ilgili paylaşımları incelemeye aldı
--  ANIMAL से क्लैश के बावजूद ‘SAM बहादुर’ की कमाई 33 करोड़ के पार, जानें आज का कलेक्शन
--  Iċ-ċiklisti tal-LifeCycle Challenge 2023 itemmu l-isfida b’suċċess mal-wasla tagħhom f’Kuala Lumpur
--  Dickens Fair en Santa Run in Bennekom: Dit is het volledige programma
--  ‘एनिमल’ से भी ज्यादा हिंसक होगा इसका सीक्वल ‘एनिमल पार्क’, पढ़ें निर्देशक संदीप रेड्डी वांगा ने क्या कहा…
--  '나솔사계' 모솔남 만난 세 솔로녀 나이・직업은?…백합 "이상형 '응팔' 정봉이"
--  넷플릭스, '오징어 게임2' 세트 일부 선공개…황동혁 감독 "새로운 게임 기대"
--  12기 영식, '나솔사계' 솔로녀 몰표 인기남 등극…국화, 1:2 데이트
--  Culemborg opent crisisnoodopvang voor Oekraïners
--  Musk targets investment of $1bn in xAI
--  رئيس جامعة الأقصر يشهد فعاليات اليوم الثاني من دورة TOT لإعداد المدربين
--  Под Рязанью во время тренировки сотрудников Росгвардии сработало взрывное устройство
--  Ομόνοια: Οι επιδόσεις των έξι δανεικών
--  वीडियो: पाकिस्तान के बाद अब सिर पर ट्रॉली लेकर भागे भारतीय खिलाड़ी, साउथ अफ्रीका पहुंचते ही देखें क्या हुआ
--  The Tip To Remember For Making Pie Dough At A High Altitude
--  לאחר יומיים: בוטל צו הסגירה המינהלי למרכול מחסני שוק בנשר
--  زلزال بقوة 5.6 درجات يضرب أذربيجان
--  El español Manuel Arroyo, nuevo vicepresidente ejecutivo de Coca-Cola
--  Петровска и Агелер на вежбата “Храбар партнер 23” – се извежбува со оклопните возила „Страјкер“ кои ќе бидат дел од капацитетите на македонската Армија
--  Wolfgang Grupp: „Dass ein Benko Zehn-Milliarden-Kredite bekommt, ist für mich nicht nachvollziehbar“
--  PICTURES: A festive Camphill celebration at Knockdrinna in Kilkenny
--  Cap sur 2024 pour RTL : voici tout ce qui vous attend !
--  Weitere weiße Tigerdame erhält Zuhause in Rheinland-Pfalz
--  Karnerta: Erweiterter Produktrückruf aufgrund falscher Etikettierung
--  Tältä näyttävät Ukrainan uudet asepyynnöt: Hornet-hävittäjiä, Apache-taistelukoptereita, C-17-kalustoa ja muuta
--  PSV-trainer Peter Bosz eist ook tegen Heerenveen vanavond volledige focus: ‘Het wordt elke keer moeilijker’
--  Ikën ministri i Emigracionit/ Krizë tjetër në qeverinë Sunak
--  T20 World Cup 2024 : ICC ने लॉन्च किया नया लोगो, जानें क्या दर्शाता है डिजाइन और पैटर्न
--  Lichtjes in Krimpense kerstboom weer ontstoken
--  Kerstmarkt in Woerdense Bekenlaan als herdenking, 'omdat we Abbo zo missen'
--  IN PICTURES: The life and times of iconic Pogues star Shane MacGowan
--  Güterbeförderungsgewerbe: Kollektivvertragslöhne steigen um 9,6 Prozent
--  WATCH: BBC newsreader red-faced live on air after sticking middle finger up at camera
--  Coppa Italia Primavera: ora c’è l’Inter sulla strada del Torino
--  ضابط إسرائيلي: تدمير أنفاق غزة سيستغرق أشهرا
--  القسام تفجر فتحة نفق في قوة إسرائيلية
--  Gioventù, spensieratezza e sangue sudamericano: Toro, ecco il Frosinone
--  السعودية : سقوط طائرة تدريب عسكرية ومصرع طاقمها
--  İstanbul'da trafik durma noktasına geldi: Yoğunluk yüzde 90'a dayandı
--  Batman Valiliği duyurdu: Selde zarar gören: iş yerlerine 35,2 milyon destek
--  Her detay tek tek tasarlandı: Ümraniye Belediyesi'nden engelli bireyler için yeni yaşam merkezi
--  Bakan Şimşek rezervlerindeki rekor artışı değerlendirdi: Programımızın en önemli hedeflerinden birini gerçekleştiriyoruz
--  円相場 一時1ドル=144円台 3カ月ぶり円高水準
--  Пальинья — об интересе «Баварии»: «Все, что должно произойти в январе, произойдет»
--  Three climbers solve the 'last great problem in the Himalayas'
--  Russia sets presidential election date, Vladimir Putin looks set for fifth term
--  ICC ने प्लेयर ऑफ द मंथ के लिए इन तीन खिलाड़ियों को किया नॉमिनेट, लिस्ट में ये भारतीय खिलाड़ी भी होगा शामिल
+-  Сурхондарёда ҳам метан газ қуйиш шохобчалари иш вақтига чеклов киритилди.
+-  Шавкат Мирзиёев: Конституцияни тўғридан тўғри қўллаш амалиётига ўтишимиз зарур.
+-  Қозоғистонда Тўқаев зарбасидан сўнг урилган гол видеоси монтаж қилинди .
+-  Weihnachtsmarkt in Norderstedt 2023: Öffnungszeiten, Highlights, Parken
+-  AWESOME FUN FIND & LAST-MINUTE HOLIDAY GIFT/STOCKING-STUFFER FOR KIDS: HEART-WARMING CHILDREN'S BOOK ABOUT KINDNESS, ANIMAL RESCUE & LOVE
+-  Dánsky parlament prijal nový zákon: Zakazuje pálenie Koránu
+-  '헌신-혹사의 아이콘' 브루노 페르난데스, 2023년 유럽 출신 중 출전 시간 1위 달성
+-  Bir fenomen daha gözaltına alındı! Bu sefer 'müstehcenlik' nedeniyle...
+-  Forbes назвал главу Еврокомиссии самой влиятельной женщиной
+-  Detienen en Madrid a un profesor de árabe que captaba a menores para Daesh
+-  Paddy McGuinness says his 'money has run out' as he discusses his return to touring for first time in six years to 'build it back up' after Top Gear axe
+-  Экспортеры в октябре продали свыше 90% валютной выручки
+-  Vigilance raid unearths widespread irregularities in vet hospitals
+-  I'm A Celebrity's Nella Rose to return to smash hit YouTube series Tapped Out for series three in early 2024
+-  Чалов рассказал о предложении Головина поиграть вместе в «Монако»
+-  البرلمان الدنماركي يقرّ قانونًا يحظر إحراق المصحف
+-  وصول نمر جديد إلى مركز إكثار النمر العربي في الطائف
+-  عاجل.. الدفاع: استشهاد طاقم طائرة مقاتلة سقطت أثناء مهمة تدريبية بالمنطقة الشرقية
+-  تحذيرات واسعة من أغرب عملية احتيال في الكويت
+-  أمانة جدة: إغلاق جزئي مؤقت لطريق المدينة المنورة غداً
+-  EU-China-Gipfel: offene Diskussionen, dürftige Resultate
+-  EU-China-Gipfel: offene Diskussionen, dürftige Resultate
+-  سكان «النيل الأبيض» يخشون امتداد القتال إلى ولايتهم
+-  Ia Wadendal: Leasa elbil för en tusenlapp i månaden – det vore något
+-  BRI Life Raih Penghargaan Best Digital Finance 2023
+-  Sverige till VM-semifinal i innebandy – efter ny kross
+-  Masdar Advances 10GW Africa Growth Plan to Unlock Energy Transition in Six Sub-Saharan Nations
+-  Balacera en la colonia Doctores de la CDMX deja un muerto y tres heridos
+-  تن هاغ: يونايتد أرسل ما يريده لجماهيره
+-  Keine strafrechtlichen Folgen nach schwerem Schlittelunfall
+-  Consuelo Duval niega uso de IA en robo de su casa: ‘Ninguna novela ha sido más difícil que esta’
+-  Nya ägare till 80-talshus i Bergeforsen – 1 800 000 kronor blev priset
+-  Oriental : Plus de 400 millions de DH pour le développement humain en 2023
+-  Science expo: A blend of imagination and scientific bent of mind
+-  'Lady in red' seen around the world in iconic image from Nova festival terror attack reveals astonishing story of her survival, seeing her friends killed and how her daughter 'foresaw danger'... as she dons famous shawl again for the first time
+-  'Lady in red' seen around the world in iconic image from Nova festival terror attack reveals astonishing story of her survival, seeing her friends killed and how her daughter 'foresaw danger'... as she dons famous shawl again for the first time
+-  Louis Tomlinson's sisters Lottie, Phoebe and Daisy remember their late mother Johannah with heartbreaking tributes... seven years after her death from leukaemia aged 43
+-  Forte secousse sismique d’une magnitude de 4,6 sur l’échelle de Richter à Marrakech et ses environs !
+-  Институт Pantone назвал персиковый главным цветом 2024 года
+-  Robbie Gould announces his retirement
+-  Autistic six-year-old Zayn Rayyan laid to rest
+-  British poet and political activist Benjamin Zephaniah dies at age 65
+-  House-hunters left baffled by “crack den” up for sale for whopping £200k
+-  الادعاء الإيطالي يطالب بوقف بوغبا 4 أعوام
+-  Inflacja w Chile zaskoczyła “skalą” wzrostu
+-  Blueshift Launches Free CDP Starter For Cross-Channel Engagement
+-  "فايننشال تايمز": الدمار شمال غزة كدمار مدن ألمانيا خلال الحرب العالمية الثانية
+-  Fisheries university gets new VC
+-  السعودية ترفع مستهدف مشاركة المرأة في سوق العمل إلى 40 % بحلول 2030
+-  Heartwarming moment Prince William surprises woman on the street during charity walk in memory of her daughter, 16, who took her own life
