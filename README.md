@@ -1,51 +1,51 @@
 # Latest News
--  '리버풀 초비상' 반 다이크 파트너, 십자인대 파열 부상으로 시즌 아웃 유력
--  [MOM대로해] ‘손흥민vs보웬 득점왕 경쟁’ 맨시티 고꾸라졌다! ‘토트넘 상위권 도약 기회’
--  स्वास्थ्यमन्त्री बस्नेतद्वारा ‘पोइजन सूचना केन्द्र’ को उद्घाटन
--  गोली लागेर प्वालैप्वाल भएको पोल बेनी ल्याइँदै
--  एनसेलको शेयर खरिदबिक्री प्रकरणको अनुसन्धान गर्नैपर्छ : सभामुख
--  नयाँ डिजाइनपछि ग्वार्को फ्लाइओभरको काम द्रुत गतिमा
--  गोरखापत्रकर्मी शिवा तामाङ सम्मानित
--  'เจนี่'สาดความแซ่บ นุ่งเดรสแดงอวดความเซ็กซี่
--  بھارت،26 سالہ ڈاکٹر شاہانہ نے جہیز کے تقاضے پر اپنی زندگی کا خاتمہ کر لیا
--  Warnstreiks der GDL: Keine weitere Bahnstreiks über die Feiertage
--  Stórleikarinn óþekkjanlegur í sínu nýjasta hlutverki
--  Guide: What Time Is The Game Awards 2023?
--  Xi Jinping i-a primit în vizită pe șefii UE cu un avertisment și un duș rece
--  港股｜恒指低位反覆 郭Sir見喘定苗頭 但要企上呢個位先確認
--  Salarisverschil tussen mannen en vrouwen daalt verder, maar kloof blijft
--  Empty Birmingham New Street shop given fresh hope as big chain declares its plans
--  Action plan to tackle smoking levels in town
--  Budget de l’ISIE : 192 millions de dinars pour les élections de 2024, mais à quoi servent-ils ?
--  Словения купува немски системи за противовъздушна отбрана
--  UŽIVO Plenković: Imamo dogovor za Dinamov stadion, Crkva će dobiti 10 lokacija
--  신한은행, LG CNS와 글로벌 금융 디지털·IT 사업 업무 협약
--  이찬원, 오늘(7일) 콘서트 라이브 앨범 발매…'가는 세월' 등 5곡 수록
--  Шахматистките спечели наградата за отбор на годината
--  I fjor styrtet flytypen i Beiarn - nå setter USA maskinen på bakken
--  Главком ВМФ РФ заявил о возросших угрозах в Арктике из-за расширения НАТО
--  Til Schweiger über Vorwürfe zu Setbedinungen: "Ich bin mit mir im Reinen"
--  Profil entrepreneurial du Maroc : Ce que révèle l'enquête
--  Plenković ima dobre vijesti: Otkrio novosti o prosvjedima seljaka i stadionu na Maksimiru
--  Message Royal à l'occasion du 75è anniversaire de la Déclaration universelle des droits de l’Homme
--  परिनिर्वाण दिवस पर हुई प्रभारी डीएम की अध्यक्षता में हुई पुष्पांजलि सभा
--  A avut loc lansarea WiNet@UNI – un pod digital transfrontalier între Universitățile Tehnice din Iași și Republica Moldova
--  Ситуация на рынке труда усложняется: какие сектора устойчивы к кризису?
--  Leggjast al­farið gegn frum­varpi um for­gangs­orku
--  Пиян рецидивист налетя на шофьор на автобус в Пловидв, арестуваха го
--  Σοκ στις ΗΠΑ: 12χρονη πυροβόλησε τον αδελφό της κατά λάθος στο κεφάλι σε κυνήγι και τον σκότωσε
--  Konyalı John Wick Konya'yı tanıttı. Görüntüleri sosyal medyada viral oldu
--  ৩৩৮ থানার ওসিকে বদলির প্রস্তাবে অনুমোদন দিল ইসি
--  Pétrole : Prix du baril au 06 Décembre 2023
--  Украина из-за дефицита в энергосистеме запросила аварийную помощь у трех стран
--  Khu thương mại tự do sẽ kết nối kinh tế Hải Phòng với chuỗi cung ứng toàn cầu
--  ĐURĐINA JAUKOVIĆ: Itanin gest me je obradovao; Uvijek može bolje, ali moramo zadržati žar i borbenost!
--  COP28: Nigeria secures over $5bn commitment for adaptation fund
--  BBC-presentator steekt middelvinger op: 'Was aan het dollen met collega's'
--  Dự án kết nối giao thông Hải Phòng - Quảng Ninh không thiếu vốn, chỉ lo thiếu mặt bằng sạch
--  ОАЭ распространили в СБ ООН проект резолюции, требующей прекращения огня в секторе Газа
--  Mrsic: "Supimos mantener el basketaverage"
--  ‘Hanging Gardens’ Director Ahmed Yassin Al Daradji Teases New Project, in Which a Theater Director Offends Saddam Hussein (EXCLUSIVE)
--  ‘Hanging Gardens’ Director Ahmed Yassin Al Daradji Teases New Project, in Which a Theater Director Offends Saddam Hussein (EXCLUSIVE)
--  KAKO SMO MI ENGLEZI UPLAŠILI PIKSIJA I OSTALE! Lineker nas ponizio na Marakani: Trebalo je da vidite Jugoslovene...
--  Sergei Dragunov osztja a pofonokat a legújabb Tekken 8 kedvcsinálón
+-  Bellanova punta il Frosinone: l’esterno è in continua crescita
+-  Les comptes d'épargne en Suisse sont rémunérés à 0,8% en moyenne
+-  천안시장애인체육회, 천안시 장애인체육상 시상식 개최
+-  천안시어린이집연합회 민간분과, ‘우리아이 수호천사 되어주기’ 후원금 전달
+-  천안시, 노인의료돌봄 통합지원 보건복지부장관 기관표창
+-  천안시 서북구, 천안서북경찰서 무인민원발급기 설치·운영
+-  서산시, 제10회 서산 관광사진 공모전 전시회 개최
+-  서산소방서, 공동주택 옥상문 자동개폐장치 설치 당부
+-  홍성군, 공공부문 온실가스 감축 전국 최우수기관 선정
+-  Azerbaidzhanissa ennenaikaiset presidentinvaalit helmikuussa
+-  Stif : introduction en bourse sur Euronext Growth Paris
+-  POLL | Are you worried about drinking tap water as report shows 46% poor quality?
+-  Nová zelená úsporám bude pro víc lidí. I s přídavkem na dítě
+-  News24 | Two charged with kidnapping after 14 undocumented minors found on bus in Kimberley
+-  News24 | kykNET TV presenter, two others in court accused of swindling more than R30m from steelworks company
+-  Europska unija postavila još jedan veliki zahtjev pred Apple
+-  Gwiazda Ekstraklasy nie traci nadziei. Marzy o debiucie w reprezentacji Polski
+-  Genç yetenek Enis Destan yıldızını parlatıyor
+-  Cumhurbaşkanı Erdoğan: Yunanistan ile yeni bir dönem güçlenerek başlıyor
+-  Mobilya imalathanesinde çıkan yangın hasara yol açtı
+-  TikTok ekibi TBMM Dijital Mecralar Komisyonunda! Yayman: Muhakkak yaş filtresinin sıkı bir şekilde uygulanmasını istiyoruz
+-  Abluka altındaki Gazze Şeridi'nin kuzeyindeki hastaneler hizmet dışı kaldı
+-  Nicolas Pepe'nin dönüş tarihi belli oldu
+-  Başkan Erdoğan'la görüşen Yunanistan Cumhurbaşkanı Sakelaropulu'dan Türkiye mesajı
+-  İran ve Katar'dan Guterres'in Gazze için önerilerine destek
+-  Dev derbinin hakemi belli oldu! Beşiktaş-Fenerbahçe maçını Atilla Karaoğlan yönetecek
+-  VERBUND : und Masdar prüfen großangelegte Erzeugung von grünem Wasserstoff in Spanien.
+-  Altın için kritik gün yarın! "Altın fiyatlarını kimse tutamaz"
+-  Aileler Arti ve Yaş'ın evliliği için karar kıldı
+-  “내부 추천 라디오 진행자 성향 운운하며 어렵다는 발언 확인돼”
+-  언론노조 연합뉴스지부 "선장이 모든 문제 악화시키는 장본인"
+-  Blick zurück nach vorn - Wolfgang Niedecken auf Zeitreise
+-  പ്രഭാസ് കൽക്കി പ്രഭു, കമൽഹാസൻ കാളി എന്ന അസുരൻ, 600 കോടിയുടെ ‘കൽക്കി 2898 AD’ എപ്പോൾ റിലീസ് ചെയ്യും
+-  Arkadaş Evinde Tüyler Ürperten İşkence İçin İstenen Cezalar Belli Oldu
+-  Андижонда сифати кафолатланмаган ҳамда қалбаки дори воситалари савдосига чек қўйилди
+-  Конституциявий-ҳуқуқий асослар соҳалар ривожига хизмат қилади
+-  “Ўзкимёсаноат” АЖ тизимидаги учта корхона “Коррупцияга қарши курашиш менежмент тизими” халқаро аудитдан муваффақиятли ўтди
+-  ЖССТ: Безгак касаллиги ўтган йили 600 мингдан зиёд кишининг ҳаётига зомин бўлди
+-  Бакалавриат ва магистратура йўналишида АҚШда таҳсил олиш мумкин
+-  Gani Gërmia shfaqet me dorë të lënduar në BBVK
+-  “Ўзагросуғурта” АЖ да Конституция сабоқлари (+видео)
+-  December Holidays in Pakistan Bring Double Celebration
+-  Thyssenkrupp schwach - Bericht über Probleme bei Stahlgesprächen
+-  Viral: కుక్క, పిల్లి వల్లే ఘోరం.. ఈ ఫొటోలోని తండ్రీకొడుకులిద్దరూ.. ఒకరి తర్వాత మరొకరు ఎలా చనిపోయారంటే..!
+-  Milan Radoičić i još 11 osoba na Interpolovoj poternici zbog dodađaja u Banjskoj
+-  Bukmeikeri prognozē, kura no trim dāmām uzvarēs šovā "X Faktors"
+-  Nigerian Man Finally Graduates After Spending 12-Year In University (Photos)
+-  Revolutionizing Home and Small Business Printing: Introducing the Brother Print & Cut Inkjet Printer
+-  3e journée de la société sénégalaise de gastro entérologie et d'hépatologie : des échanges sur les urgences prévues du 7 au 9 décembre à Dakar
+-  លោកជំទាវ ពេជ ចន្ទមុន្នី៖ ពិធីបុណ្យរំលឹកគុណអង្គរ រួមចំណែកដល់ការផ្សព្វផ្សាយពីសក្តានុពលវប្បធម៌ និងទេសចរណ៍កម្ពុជា
