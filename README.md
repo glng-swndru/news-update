@@ -1,51 +1,51 @@
 # Latest News
--  मंत्री की गिरफ्तारी के बाद बंगाल में खाद्यान्न खरीद के लिए किसानों के पंजीकरण में भारी गिरावट : नेता प्रतिपक्ष
--  מרקו פה לא: החשבון הפתוח של בלינלי עם מכבי תל אביב
--  Sanna Ukkola Show: Miten Suomi varautuu Venäjän ilkeyksiin?
--  Santos relegated for first time in 111-year history
--  Thử thách cực đại cho ngành nông lâm nghiệp Malaysia
--  Nafoods Group vào danh sách những nhà tuyển dụng hàng đầu Việt Nam
--  Juventus-Star Pogba drohen vier Jahre Dopingsperre
--  Defensa de Zepeda presentó “testigo clave” con antecedentes penales
--  Ola de calor: Estas son las razas de perros más sensibles a las altas temperaturas y así se puede prevenir problemas en su salud
--  Présidentielle 2024: la DGE estime que l'amende de 138 milliards ne peut pas freiner Karim Wade
--  Hase/Volodin führt bei Grand Prix-Finale
--  Les pays occidentaux veulent contraindre l'Ouganda à accepter l’homosexualité (autorités)
--  Ministerio de Salud alerta sobre lote de medicamentos falsificados en venta: esto es lo que debes saber
--  الإعلامي فادي مطر يعقد دورة (تركيز الصوت والإلقاء) في مؤسسة الإذاعة والتلفزيون
--  عمان الأهلية تستضيف المدير التنفيذي لفولبرايت الأردن
--  لومينوس لايف + توقع اتفاقية تقديم خدمات الأمن مع شركة النشامى
--  خبير يحذر من كارثة تسعى لها إسرائيل نحو مصر
--  معهد العناية بصحة الأسرة ينظم فعاليات في حملة الـ 16 يوما لمناهضة العنف
--  „Manager Magazin“: Audi will an Formel-1-Projekt festhalten
--  4 bộ phận trên cơ thể chuyển màu đen sạm cảnh báo tế bào ung thư
--  SteadyMD Report Identifies 3 Trends That Will Shape Healthcare Landscape in 2024
--  Профессор Лачуга призвал нарастить производство молока и говядины в России
--  Pro-Palestine activists stage blockade at BAE Systems over weapons manufacturing for Israel
--  Karan Johar gushes over Alia Bhatt and Ranveer Singh's 'terrific' conversational chemistry: "Last time I witnessed this magic was with Shah Rukh Khan and Kajol back in '98 and 2001"
--  The Archies: Khushi Kapoor receives heartwarming praises from industry insiders for her role as Betty Cooper
--  Amitabh Bachchan bestows the title of “Rizz” upon Agastya Nanda and Abhishek; see pic
--  Lin Laishram shares their Mumbai Reception Invite post marriage with Randeep Hooda
--  Ranveer Singh steals the spotlight in a monochrome Valentino ensemble at the Archies premiere
--  BREAKING: After the blockbuster success of Gadar 2, Ameesha Patel bags Hatak; to play a cop for the first time
--  Sara Ali Khan shares nostalgic reflections as Sushant Singh Rajput starrer Kedarnath celebrates 5th anniversary; watch
--  Manushi Chhillar dazzles her way in green gown for Ralph Lauren event in Jaipur
--  Košická zoo v snahe ušetriť predáva niektoré zvieratá, zrušila aj tradičné akcie
--  مديرة مؤسسة الثقافات الثلاث للمتوسط : المغرب يمتلك موروثا ثقافيا “رائعا”
--  Ковачевски: Инвестираме во науката, тоа е влог во иднината на младите и развојот на државата
--  Expresidente Fujimori está en libertad: dejó la cárcel y fue a casa de su hija Keiko
--  Banco Nacional y El Siglo premian el talento infantil
--  윤 대통령, '2023 눈꽃 동행축제' 개막식 참석[뉴시스Pic]
--  От Евроспорт отсякоха: Григор Димитров е...
--  Toeleven naar kerst: verkoop kerstbomen in volle gang
--  Recht op energietoeslag? Aanvraag start binnenkort
--  Inwoners ontvangen button met afbeelding van de 'Engel van Culemborg'
--  Gelderlandfabriek versterkt organisatie en gaat volgende fase in
--  Caminhoneiro filma colisão entre duas carretas em rodovia federal que deixou dois feridos; veja
--  FMCT's 'It's a Wonderful Life: The Musical' has George Bailey singing a new tune
--  Srebrna Pytia dla Opinia24 za sondaż przedwyborczy dla Wyborcza.pl
--  Sean Dyche shares what 'Unlucky' Dele Alli told him about Everton injury this week
--  रसोई से लेकर दोपहिया वाहन वर्कशॉप तक, केरल की तीन महिलाओं के सपनों को मिले पंख
--  รมว.เกษตรฯ ชี้ "ผิดกฎหมาย" ชาวนาไทยลักลอบปลูก "ข้าวเวียดนาม"
--  เปิดใจ "ครูชัยยศ" ถูกปลดจากราชการ ยันขอเป็นครูอาสาให้เด็กๆ
--  Meclis, TikTok için harekete geçti! İlk açıklama geldi
+-  SANOFI : Barclays handhaaft koopadvies
+-  SANOFI: Barclays mantiene la raccomandazione Buy
+-  Isaksen va ko: quanti infortuni in casa Lazio
+-  Barclays belässt Sanofi auf 'Overweight' - Ziel 95 Euro
+-  Massiver Umbau bei BASF - 2500 Mitarbeiter betroffen
+-  Emery refuses to label surging Villa as title contenders
+-  The 95p copycat ketchup shoppers say is ‘better than Heinz’ and can save you £80 a year
+-  [‘광주다움 통합돌봄’ “광저우 국제도시혁신상 최고상 수상”…보편적 돌봄의 시대 개척
+-  [김포시 맑은물사업소, 일반 수도 운영‧관리 실태 평가 ‘최우수 등급’
+-  [인천교통공사 최우수 기관사 이상준 씨 선정
+-  ["강제로 했어요" 그녀 본 남자들…줄줄이 쇠고랑 차고 인생 망칠 뻔
+-  [ŽT] „Jie užlipo ant to pačio grėblio...“ Ždanovas skelbia didžiulę Ukrainos pergalę (Video)
+-  MUNICH RE : UBS is Neutraal over het aandeel
+-  MUNICH RE: UBS mantiene la raccomandazione Neutral
+-  O jei taip ir Lietuvoje? Latvijoje beprotiškas pasiūlymas, ką reikia padaryti Rusijos pasienyje
+-  ALLIANZ SE : UBS handhaaft koopadvies
+-  UBS belässt Munich Re auf 'Neutral'
+-  ALLIANZ SE: UBS è per il Buy
+-  Franco ancora più forte, è ai massimi dal 2015 sull'euro
+-  UBS belässt Allianz SE auf 'Buy'
+-  Internationally Recognized Advertising Studio Calls for Industry Reform as UN Climate Change Conference Convenes
+-  Gotov je prosvjed svinjogojaca
+-  Əli Əsədov qərar imzaladı
+-  Aluta parties nearly ruined Size 8’s life
+-  Yotta Data Services collabore avec NVIDIA pour catalyser la transformation de l'IA en Inde
+-  김하성 "지속적인 공갈·협박으로 고소"↔"상습적으로 폭행당했다" 양 측의 엇갈린 주장
+-  Natation: Ponti en or et Bollin en bronze aux Européens en petit bassin
+-  Serie A: quatre ans de suspension requis contre Paul Pogba
+-  Natation: Ponti domine les séries du 200m papillon
+-  Sports Awards: Marco Odermatt pour un triplé, lutte incertaine du côté féminin
+-  Open d'Australie: Wawrinka de la partie pour le 10e anniversaire de son sacre
+-  Super League: Yverdon sombre à St-Gall; le SLO mal payé au Wankdorf
+-  Ada Berger får pris av Akademien
+-  UBS keurt fusie tussen UBS AG en Credit Suisse AG goed
+-  UBS approva la fusione di UBS AG e Credit Suisse AG
+-  UBS genehmigt den Zusammenschluss von UBS AG und Credit Suisse AG
+-  VELIKI PROBLEM ZA CRVENU ZVEZDU: Jedan od najboljih igrača završio polusezonu
+-  អង់គ្លេស​ប្តេជ្ញា​​មិនឲ្យ​កើតឡើង​ម្តងទៀត​ពី​គ្រោះមហន្តរាយនៅ Hillsborough
+-  New Setbacks Further Postpone Brazil’s Crucial Sports Betting Bill
+-  Amazon Boxing Day 2023 deals: What to expect this December
+-  Erzurum'da akademisyen odasında ölü bulundu
+-  Sapiens to Participate in the 26th Annual Needham Growth Conference on January 17 & 18, 2024
+-  WDH/Stahlkonzern Salzgitter verlängert Vertrag mit Vorstand Groebler
+-  TBMM Başkanı Numan Kurtulmuş'tan HEDEP'e ziyaret
+-  (uznemirujuće) Rusija: Učenica donela oružje u školu, pucala na drugove iz razreda, pa izvršila samoubistvo
+-  €20m for new wastewater plants in Craughwell and Clarinbridge
+-  裏金疑惑 安倍派事務総長にも還流
+-  中國出口回升曇花一現？匯豐銀：外部對中製產品需求疲軟
+-  Sır perdesi aralandı. Başından tabancayla vurularak öldürülmüştü
+-  SV Meppen zu Gast bei Bremer SV: Bremer SV gegen Meppen live!
