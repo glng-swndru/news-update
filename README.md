@@ -1,11 +1,11 @@
 # Latest News
--  Rescatan a un senderista tras sufrir una caída en Güímar
--  [서울시, 모아타운 6곳 심의 통과…강서·강동·관악 일대 7000가구 공급
--  [“겨울인데 따뜻하네” 전국 기온 올라 포근…낮 최고 15∼20도
--  [EU-중국 “상호이익 증진” 공감…우크라 등 현안엔 ‘신경전’
--  카자흐스탄 (유)신라인-임실 기업 제품생산 MOU 체결 등 '금빛 성과'
--  Ponovo zadrhtalo tlo u Srbiji
--  自公 防衛装備品の輸出 ウクライナ以外にも拡大 政府に提言へ
--  As Dusk Falls listado para a PS5 e PS4
--  Armenia and Azerbaijan vow to 'normalise relations' and exchange POWs in joint statement
--  Forest Whitaker’s Ex-Wife Keisha Nash-Whitaker Dies: Actress, Producer Was 51
+-  ΕΛ.ΑΣ.: Ανθρωποκυνηγητό για τον εντοπισμό του δράστη στο Ρέντη - Διασωληνωμένος ο αστυνομικός
+-  Vakbonden stappen uit overleg vroegpensioenregeling zwaar werk
+-  Grote spoorstaking in Duitsland begonnen, veel hinder verwacht
+-  Barendrecht wil alsnog opvanglocatie bij grens met Rotterdam
+-  Google-moeder Alphabet stijgt op Wall Street na lancering AI-model
+-  Johan Derksen voor het eerst in top 3 Media100, Arjen Lubach op 1
+-  Israëlische media delen beelden van Palestijnse gevangenen
+-  Fresno Unified’s Health Insurer Creating Headaches for Some Retirees
+-  طوني خليفة: لستُ محبوبًا بين زملائي.. وأتمتع بكاريزما جماهيرية
+-  وزير الطيران يهنئ العاملين باليوم العالمي.. ويدعوهم بالمشاركة الإيجابية في الانتخابات
