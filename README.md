@@ -1,51 +1,51 @@
 # Latest News
--  Heerde hult zich in Kerstsfeer
--  박지성 전북현대FC 디랙터, 전주시청 찾아 고향사랑기부
--  전주 전라초, 인도네시아 교사 파견 다문화 수업 성황리 마쳐
--  quot;더 머물러 달라quot; 요청 거절 요양보호사 흉기로 찌른 70대 lsquo;징역 6년rsquo;
--  quot;성관계 영상 지울게quot; 전 여자친구 돈 뜯은 30대 구속기소
--  한기대 로봇 활용 아이디어 경진대회 최우수상middot;우수상 수상
--  국민은행, 우아한형제들과 '상생금융' 위한 업무협약 체결
--  킨드릴, 고객의 생성형 AI 도입 가속화 위해 AWS와 협력
--  [DD퇴근길] SK그룹 세대교체…구글 만능AI '제미나이' 공개
--  덱스터스튜디오, 영화 '서울의 봄' 디지털 색보정 참여
--  CJ대한통운, ‘5G특화망’으로 업무생산성·비용절감 두마리 토끼 잡았다
--  코웨이, 제30회 기업혁신대상 ‘산업부 장관상’ 수상
--  인텔 랩, ‘NeurIPS 2023’서 AI 혁신 연구 프로젝트 31건 발표
--  “첨단특화단지 키우자”…양향자 ‘K-칩스법’ 시즌2 발의
--  В Курске 39-летняя женщина угнала служебный велосипед у доставщика еды
--  Ege Denizi için fırtına uyarısı. Yarın geliyor, cumartesi gününe kadar sürecek
--  How to let Google Assistant wait on hold for you on your Google Pixel phone
--  구글, 멀티모달 기반 ‘제미나이 AI’ 모델 발표
--  [인사] 구름, 금융권 출신 곽경주 CSO 선임
--  킨드릴, AWS와 협력해 고객 생성형 AI 도입 가속화 지원
--  AWS, ‘제로 ETL’ 통합 기능 4가지 발표…간편한 데이터 액세스·분석 지원
--  이통3사-KCTV제주방송, 제주와 우도 연결하는 해저 광케이블 구축
--  타이거컴퍼니 김범진 대표, 기술혁신 유공자 중기부 장관 표창 수상
--  Bakan Özhaseki 'Olası İstanbul depremine ilişkin projeleri açıklayacağız' diyerek tarih verdi
--  İYİ Parti'de istifalar durmak bilmiyor: Akşener'e kızdı partisinden istifa etti
--  Bakan Koca: Gazze'de Sahra hastanesi konusunda mutabık kalındı
--  Bakan Işıkhan’dan son dakika asgari ücret mesajı: Milyonlarca çalışan bu haberi bekliyordu Kabine sonrası açıkladı
--  Türkiye ekonomisi için 2024 yılını işaret ettiler: Çok hareketli olacak 100 milyar dolarlık yatırım çekebilir
--  Manchester United-Chelsea: 2-1
--  Seven celebrities who’d be f**ked if it wasn’t for Christmas
--  Söluhagnaður af hlutabréfum 57 milljarðar
--  Pep Guardiola admits Manchester City are ‘struggling’ after Aston Villa defeat
--  نايف أكرد: طوطنهام فريق مخيف ومواجهته تحدٍ مختلف
--  В Орле у двух мужчин изъяли более 100 пакетиков с наркотиками
--  Исследователи обнаружили, что у мужчин из Узбекистана самый высокий в мире уровень тестостерона
--  Владимирские роженицы временно не смогут рожать в ОПЦ
--  Süper Lig maçları yayınlanmayacak mı? Yayıncı kuruluştan flaş karar
--  한-네덜란드 '반도체 동맹' 구축 나선다
--  8일 강릉 낮 최고 ‘19도’… 주말까지 포근한 봄 날씨 이어져
--  춘천농업협동조합, 도장애인종합복지관 통해 장애인 가정 난방비 지원
--  태백 반지씽씽 행복데이 지금처럼 함께 행사
--  강릉항 낚시꾼으로 북적
--  원주시 건강생활실천협의회 정기회의
--  원주중앙라이온스클럽 연탄 4000장 배달
--  로드FC 자율방범 합동순찰대 호신술 교육
--  성주음향 최윤길 대표 국수 기탁
--  춘천시 보건복지부 장관상
--  제2기 동트는 동해대학, 졸업식 열어 지역리더 38명 배출
--  신경호 교육감, 학교 밖 청소년 대상 졸업식 강원교육감 최초 참가
--  강원조달청, 춘천 세원산업, 평창 프라코 조달청장 표창
+-  נזקים של מליונים וגידולים שלא נקטפים: המשבר של החקלאים בעוטף עזה
+-  "בתקופה הכי קשה קיבלתי את המתנה הגדולה של חיי"
+-  "אבא שלנו הפך להיות דני קושמרו, אמא שלנו אדווה דדון"
+-  "בשבת השחורה העמיקה ההבנה שאין לנו בית אחר חוץ מישראל"
+-  "השינוי הגדול היה בהבנה שלי שמשהו לא טוב קורה לנו"
+-  Crédit bancaire : évolution des indicateurs à fin octobre
+-  한수원-NH농협금융지주, 탄소중립 경제 구축 위한 업무협약
+-  7 Yıldır Aranan 'Abi' Adana'da Yakalandı
+-  นายกฯ หวังกดค่าไฟงวดใหม่ 4.10 บาทต่อหน่วย
+-  ใช้จ่ายไม่คึกคัก หวั่นเกิดเงินฝืด จี้รัฐกระตุ้นเศรษฐกิจเร่งด่วน
+-  «Зачем комментировать балабола?» Легенда российского ММА «разоблачил» известного бойца из Казахстана
+-  Cáfolja az Orbán-kormányt a Pfizer
+-  학부모단체·마을강사 견제하는 경남도의회 교육위
+-  Iranian Navy delegation visits Military Institute named after Heydar Aliyev (PHOTO)
+-  창원 간첩단 사건...구속 9개월 만에 보석으로 풀려나
+-  소아과 전공의 부족에 '연차 내고 오픈런' 일상 될라
+-  함안군 가야읍서 변압기 불...노동자 2명 화상
+-  학교폭력 사안 조사, 전담 조사관이 맡는다
+-  박종훈 경남교육감, 미국서 '미래 교육' 업무 협의
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  Хотин-қизлар ва эркаклар ҳуқуқлари тенглигининг кафолатланиши жамият тараққиётига хизмат қилади
+-  [광주 광산구 “감사제도 잘못 쓰면 독, 공정성 확보해야”…강한솔 의원 지적
+-  Тренер озвучил два ключевых аспекта победы казахстанского бойца в чемпионском поединке
+-  Mordplanerna kopplas till gängen
+-  Dishub Bantul Fasilitasi Bus Sekolah Gratis Tahun Depan, Ini Rencana Rutenya
+-  Zwei festliche Konzerte
+-  Geld für Kindertafel und Kinderhospiz
+-  Höhere Erlöse aus Brennholzverkauf erwartet
+-  Verfassungsschutz beobachtet Würzburger Burschenschaft Teutonia
+-  L’OM en danger pour son mercato ?
+-  Manchester United Manager Erik Ten Hag Axed Marcus Rashford And Anthony Martial and Here's Why
+-  Ten Hag krijgt lucht in Engelse pers en ontvangt torenhoog cijfer na Chelsea-clash
+-  I. Alijev vypísal predčasné prezidentské voľby na február 2024
+-  Kuryenin ölümüne neden olan Somali Cumhurbaşkanı'nın oğlu hakkında yeni karar
+-  Vartotojai pasipiktinę: sukčiai pinigus vilioja per vieną keliautojų itin mėgstamą programėlę
+-  Kietos merginos. „Apgauti okupantus padėjo modelio išvaizda.“ FSB skelbia paiešką
+-  قرار جديد للحكومة المصرية بشأن إقامة الأجانب بصورة غير شرعية
+-  Keluarga Alung Sempat Halangi Ayah Fitria Saat Temukan Jasad Anaknya: ‘Jangan Diributin’
+-  Leif och Billy flyttar och förlänger succéshow
+-  “มูลนิธิร่วมด้วยช่วยกันสำนึกรักบ้านเกิด” ประกาศผู้ชนะเกษตรกรสำนึกรักบ้านเกิดปี66
+-  Åkte ur för första gången – slutade med kaos
+-  Попова раскрыла дату первого выявления микоплазменной инфекции в России
+-  L’Accord de 1968 entre l’Algérie et la France : Un Débat qui Secoue la Politique Française
+-  بعد غياب طويل.. ميريام فارس تدعو للسلام بجلسة تصوير جريئة شاهدوا كيف بدت (صور)
+-  Pyhäjärvi-Säätiö kannusti ja tuki yli sadallatuhannella vuoden 2023 aikana
+-  Labourer jailed 7 months for stealing three turkeys
+-  त्रिविमा शीतकालीन कक्षा सञ्चालन
+-  ५२५ को आँखा जाँच गर्दा ७० मा मोतीबिन्दु
+-  Cyclisme : Lafay peut-il dominer Pogacar et Evenepoel ?
