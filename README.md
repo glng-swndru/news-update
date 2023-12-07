@@ -1,51 +1,51 @@
 # Latest News
--  생방송 대한민국 1부 (1453회)
--  '타격왕' 손아섭, 한은회 '최고의 선수상' 수상… 문동주는 최고의 신인상(종합)
--  라미란-염혜란-장윤주-안은진, 무적의 '덕벤져스'
--  로드FC 9연승 노리는 '래퍼 파이터' 이정현, "이길수는 나보다 레벨이 한참 아래"
--  Президент США Джо Байден "впал в отчаяние" из-за планов Трампа
--  Shock at sudden death of rising Aussie athletics star Zulqarnain Haider, 14, who held multiple records
--  Induk Facebook & Instagram Segera Kenalkan Fitur Watermarking, buat Transparansi
--  🔴 إنهيار معنويات القحاتة أمر طبيعي.. فقد مروا بتجربة سيئة للغاية
--  В ВТБ предложили три меры против непредсказуемости решений ЦБ по ставке
--  «Ложный друг аналитика»: как приблизить прогнозы ЦБ к реальности
--  Youtuber dipenjara sengaja hempaskan pesawat demi raih tontonan
--  Женщины перечислили мужчинам неочевидные факты о своих телах
--  Kasus Cacar Monyet di Jakarta Terkendali, Bertambah Dua di Awal Desember
--  В России высказались о сроках возвращения на Олимпиаду
--  Kryal Castle joust’s with the best
--  Better access for leisure centre
--  SPD-Parteitag ab Freitag: Nach zwei Jahren Ampel wieder SPD pur – auf dem Papier
--  SPD-Parteitag ab Freitag: Nach zwei Jahren Ampel wieder SPD pur – auf dem Papier
--  Här är superkameran som ser allt
--  Seleksi Petugas Haji 2024 Dibuka, Ini Tips dan Kemampuan yang Diperlukan
--  B.C. rinks into championship round at Canadian Sr. Curling Finals in Vernon
--  Jang Nara dan Son Ho Jun Kembali Berpasangan di Drama My Happy Ending
--  권익위 "상반기 R&D 사업비·보조금 등 부정수급 418억 원 환수"
--  고용부, 가사서비스 공식 홈페이지 '가사랑' 오픈…청소·돌봄 지원 한곳에
--  ¡Otra goleada!
--  올해 상반기 공공재정 부정수급 418억 환수…제재부가금 200억 부과
--  Jakimowicz o odejściu Holeckiej z TVP. Połączyły ich trudne doświadczenia z dziećmi. "Pełna empatii"
--  Friday focus: Inside mail plus best bets for Canterbury, Scone
--  Moni kärsii sanomiskrapulasta – Reija Könönen päätti avata suunsa ja kertoo nyt, mitä rohkeudesta seurasi
--  “내년에 OK 저축은행은 꼭 이기고 싶네요”
--  B. com Vacancy in EY
--  Само в "24 часа" на 7 декември: Книжка за кола с ръчни скорости след нов изпит, ако е взета първо за автоматик
--  Här är superkameran som ser allt
--  Hasil Sensus Pertanian 2023 Diharapkan Jadi Basis Kebijakan Pemerintahan Mendatang
--  Toyota Ingin Mobil Mesin Bensin Tetap Ada Lewat Teknologi Hidrogen
--  Gwyneth Paltrow Tampil Dramatis Berbalut Gaun Vintage dari Valentino di Fashion Awards 2023
--  Ben Becker: „Man hat mich neulich als alten weißen Mann bezeichnet“
--  Kota Terbaik di Eropa Buat Pecinta Kuliner, Paris Paling Teratas
--  My Place
--  Dr seeks community help for cancer battle
--  "وضعية الدعم".. ما سر جلوس مضيفات الطيران على أيديهن عند الإقلاع والهبوط؟
--  WI vs ENG, 2nd ODI: Sam Curran Redemption as England Thrash West Indies to Level Series
--  বৃষ্টির কারণে খেলা শুরু হতে দেরি
--  Asistente de Guimarães pasa cuenta de cobro: “Fue un fracaso total”
--  Singe mum loses $2,300 to Singpost SMS scam
--  與혁신위, 조기 해산…인요한 “尹·김기현에 감사”
--  동아쏘시오홀딩스, 'ISO/IEC' 전환심사 및 사후심사 통과
--  ഫാഷൻ പാഷനാണോ? പഠിക്കാം എൻഐഎഫ്ടിയിൽ, ഇപ്പോൾ അപേക്ഷിക്കാം
--  [프로필] 최성원 광동제약 대표이사 회장
--  गर्भसँग जोडिएको क्यान्सर
+-  Guyana ordusuna helikopter Venezuela sınırında kayboldu
+-  İşgalci İsrail abluka altında tuttuğu Gazze'ye girişine müsaade ettiği yakıtın miktarını artırdı
+-  Yemen'deki Husiler İsrail'i balistik füzeyle hedef aldı: Saldırı sonrası Eylat kentinde sirenler çaldı
+-  “Biz sülhü müharibə ilə gətirdik”
+-  В Бурятии при взлете у Ту-204 загорелся двигатель
+-  Terapi gav effekt vid klimatångest
+-  Terapi gav effekt vid klimatångest
+-  رقم مميز لـ مكتوميناي مع مانشستر يونايتد في البريميرليج
+-  Thủ tướng: Lúc khó khăn, doanh nghiệp bất động sản vẫn muốn giữ giá bán thì đã có trách nhiệm chung chưa?
+-  Bất đồng trong dự báo khả năng Fed giảm lãi suất trong năm 2024
+-  양주시, 지방공공기관 구조개혁 평가 ‘우수지자체’선정
+-  의정부시 소재 ㈜대산엘리베이터, 컵라면 200상자 기부
+-  남동구의회 이철상 의원 발의 ‘통행금지·제한구역 지정 조례’ 원안 가결
+-  의정부시 소재 경기도의료원, 생필품 50상자 기부 사랑릴레이 동참
+-  인천경제청, 송도국제도시 공원 4곳에 전기차 급속충전기 설치 본격 가동
+-  의정부시 녹양동, 송암교회 백미 100kg 기탁
+-  Weniger unerlaubte Einreisen nach Deutschland
+-  From Nail Can Hill to the world: Ollie reflects on rise to World Cup pro
+-  Nintendo Switch・麻雀牌中毒パズル『上海LEGEND』発売。協力プレイにも対応で“サンソフト史上最高難易度”のやりごたえ
+-  [코오롱제약] 의약품 회수에 관한 공표
+-  Vai zobu rentgens kaitē tavai veselībai?
+-  Bakıda zəlzələ oldu
+-  L’art pictural en partage
+-  Céline de Abreu ouvre une galerie éphémère
+-  Conseil municipal : pôle santé, médiathèque à l’ordre du jour
+-  3 CVA : le long chemin de la pédagogie
+-  Au conseil municipal
+-  Un week-end maussade pour Madiran
+-  "Ferme ta gueule !" Larcher se lâche sur Mélenchon
+-  The Game cricket tipping: Early bird winner William McCauley snares $5K prize, with more money up for grabs
+-  The Game cricket tipping: Early bird winner William McCauley snares $5K prize, with more money up for grabs
+-  Швеция ва АҚШ мудофаа соҳасида ҳамкорлик шартномаси тузди.
+-  Оғир атлетика бўйича Руслан Нуриддинов спорт маркази ташкил этилади.
+-  World Athletics Россия спортчиларини Олимпия ўйинларига киритмайди.
+-  Haval Ўзбекистон бозорида моделлар ассортиментини кенгайтирмоқда.
+-  Sagarpali VSS shines in national webinar
+-  אחרי שאיבדה את הוריה בטבח, מרב סבירסקי נלחמת שלא יפקירו את אחיה בעזה
+-  Майк Тайсон неожиданно высказался про бой Усик-Фьюри
+-  Azərbaycanda zəlzələ baş verib
+-  McDonald's eyes big expansion, plans CosMc's small-chain pilot
+-  Kinas export ökar
+-  PM Anwar says there should be no more excuses for delays in projects for people in Sabah
+-  다시보는 대한늬우스 (81. 12. 07)
+-  Jurado de Nevada acusa a seis republicanos que declararon a Donald Trump ganador
+-  Regierung: Nein zu gesetzlichem Mindestlohn
+-  제주 자율주행 산업 활성화 위해 도내 학생 육성
+-  Дождь перейдет в снег: синоптики предупредили о гололедице
+-  رقم سلبي تاريخي لـ تشيلسي بعد الهزيمة أمام مانشستر يونايتد
+-  Metrobüs reklam panosuna çarptı: 1 yaralı
+-  專家觀察：千禧世代、Z世代投資新手常見七大錯誤
