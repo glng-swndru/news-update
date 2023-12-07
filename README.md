@@ -1,11 +1,51 @@
 # Latest News
--  أرمينيا وأذربيجان تتعهدان بخطوات لبناء الثقة وتطبيع العلاقات
--  Vritet djali i ministrit izraelit në Rripin e Gazës
--  Selçuk Bayraktar açıkladı: ChatGPT’ye Türk rakip geliyor
--  Başakşehir, Şanlıurfaspor'u geçerek tur atladı
--  Ligue 1, pronostico e quote di Montpellier-Lens: l'analisi dell'incontro
--  Aniversario de altura con “Pasarela 261 Código Moda” edición 10
--  Thimo Vink eerste aanwinst Lunteren
--  Cyclone Michaung Update: বাংলায় ৩০০, চেন্নাইয়ে ৭০০! 'পয়সাটা বেশি তাই আসি', বললেন পরিযায়ী
--  Another CCC activist abducted, tortured – opposition says
--  Këto qytete janë më pak të sigurta në Europë
+-  Detienen a la empleada de Consuelo Duval por robo
+-  Egipat: Palestinci moraju odrediti budućnost Gaze, ali za razgovore je prerano
+-  La diáspora de la crisis: Cuando emigrar se convierte en oportunidad
+-  Startup AI dla lotnictwa zebrał 34 mln USD. Chce współpracy z rządem USA
+-  Aseguran que Eduardo Feinmann empujó la salida de Jonatan Viale de LN+
+-  Fresh twist in bitter Dail row as Mattie McGrath plans to make garda complaint about Aodhan O’Riordain
+-  Auchan investe um milhão de euros em loja no Porto
+-  Various News: Notes From Sukeban Debut in Miami, Billie Starkz Set for Highspots Virtual Signing
+-  Pendientes legales deben ser resueltos para luego elaborar borrador de la CICIH, señala Alice Shackelford
+-  Пукнатини в западната подкрепа са ново предизвикателство за Киев
+-  Russell Crowe, Rami Malek and Michael Shannon to lead historical drama Nuremberg
+-  Russell Crowe, Rami Malek and Michael Shannon to lead historical drama Nuremberg
+-  علاج يخفف أعراض مرض الزهايمر…تعرف عليه
+-  Gerard Piqué sufre una nueva caída y es blanco de burlas
+-  Meksika’da 5.8 büyüklüğünde deprem
+-  Neden?
+-  Aman Allah’ım bu Erdoğan o Erdoğan mı?
+-  Devlet Tiyatrosu mu, Korku Tiyatrosu mu?
+-  Ekonomide üç maymunları oynuyoruz
+-  Sinyal istihbaratına karşı koyma
+-  Sandık Kokusu umut verdi
+-  PISA sonuçları
+-  CHP, millî birliği garanti etmeli
+-  İsrail gazetesinin Türkiye iddiası!
+-  Savaş, intikamdan işgale dönüştü
+-  В Калязине Тверской области появилась возможность быстро зарядить электромобиль
+-  На Дону в частном доме после пожара обнаружили труп
+-  Дагестанский боец сразится за честь России в Бангкоке
+-  Tiembla en Puebla; se siente en CDMX
+-  Depende de Morena reducción de jornada laboral, acusa PRI
+-  Vende lo poco que le regalan para sobrevivir
+-  Vinculan a proceso a 3 acusados de tráfico de personas
+-  Mazzarri: "Il vecchio me è andato in pensione. Non voglio fare più considerazioni sugli arbitri"
+-  تشكيل الأهلي المتوقع لمواجهة شباب بلوزداد الجزائري
+-  قرار عاجل من الزمالك بتوجيه الشكر لهذا المدرب
+-  Bloodstock festival adds Carcass, Sylosis, Satyricon and more to 2024 lineup
+-  İsrailli esir Netanyahu'nun yüzüne karşı anlattı: Hamas'tan değil İsrail'in saldırılarından korktuk
+-  Bir kilometrelik alana yayıldılar: Japonya’da binlerce balık kıyıya vurdu
+-  Guterres BM Şartı’nın 99. maddesini devreye sokmuştu: BMGK Gazze gündemiyle acil toplanacak
+-  اعتراف دولي جديد.. المغرب على رأس لجنة الوقاية من الجريمة والعدالة الجنائية
+-  Milwaukee Bucks - Indiana Pacers, en directo | NBA
+-  Justiça do Rio destitui presidente da CBF, nomeia interventor e determina novas eleições
+-  MLB 이적시장에서 느껴지는 ‘한일 격차’ [김재호의 페이오프피치]
+-  Prof. Dr. Haydar Baş: Hayber Fethi’nin ardındaki hikmetler -1
+-  Erdoğan kıyamet kopmasın istiyor
+-  MasterChef yarışmasında kriz yaratan hata; Acun Ilıcalı telefona sarılıp açık açık uyardı
+-  Soccer-Rio court removes CBF president from office and appoints interim president
+-  News criptovalute: Arrivano 10 nuove crypto su Coincall!
+-  Record Newspapers Player of the Year: Plano’s Waleed Johnson carried team to playoffs, capped stellar career
+-  Sterling Fire’s Keep the Wreath Red campaign begins
