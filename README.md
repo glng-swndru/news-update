@@ -1,11 +1,11 @@
 # Latest News
--  Мицин: Доволен съм от времето си
--  Déthié FALL, un stratège à la conquête du pouvoir
--  Raphael canta 'Victoria'
--  «La cultura es lo que me ha mantenido vivo estos 90 años»
--  #kritika Iz odličnosti klasike v predvidljivost
--  Setor de abate de aves é o que mais emprega imigrantes no Brasil, diz relatório
--  한화, 호주와 '레드백' 장갑차 3조원대 수출계약 체결
--  حددها رئيس "الاستعلامات".. 333 مؤسسة ومنظمة تتابع الانتخابات الرئاسية
--  كيف تحافظين على بشرتك مشرقة في الشتاء؟
--  FG, Groups’ Project Creates Jobs For 14,155 Persons in Niger Delta
+-  طبيب يحذر من «سرعة دقات القلب».. جرس إنذار لمرض خطير
+-  Autoridades deben reforzar medidas para evitar accidentes por manipulación de pólvora: Procuraduría
+-  Come rimanere attivi durante le vacanze di Natale
+-  Startling admission amid Mark Nawaqanitawase move
+-  Startling admission amid Mark Nawaqanitawase move
+-  Man charged with murder following stabbing
+-  Man charged with murder following stabbing
+-  임영웅, 부산 하늘빛 물들 준비됐나? 오늘(8일) 'IM HERO' 부산공연 개최
+-  신한투자증권, 업무처리 기능 강화 챗봇 서비스 개시
+-  수협은행, 제주도·중진공과 ‘제주 수산물 수출 활성화 업무협약’ 체결
