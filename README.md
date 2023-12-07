@@ -1,11 +1,51 @@
 # Latest News
--  FM Jilani hails Danish parliament bill prohibiting Quran desecration
--  Янги ижтимоий соҳа бинолари ишга тушди
--  Саломова Гавҳар Aбдиназаровнанинг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
--  Aбдуназаров Ўткир Сайдуллаевичнинг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
--  Норкулова Шахноза Тулкиновнанинг филология фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Жумақулова Шахноза Қудрат қизининг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
--  Smajo Bešo: Borba za istinu o BiH - od pakla Dretelja do kraljevske palače!
--  Habló la Tacones
--  Ivica Dačić na Palama otvara Počasni konzulat Srbije
--  Justiça do Rio remove Ednaldo Rodrigues da presidência da CBF
+-  Meclis'te Torba Teklif Mesaisi
+-  AVASK unveils new strategic growth with appointment of new CEO Bojan Gajic and enhanced global tech-enabled services.
+-  AC Hotel and Element Portland Beaverton Welcome Holiday Travelers
+-  MILICA PAVLOVIĆ OGORČENA NA ACU LUKASA! Žestoko oplela po folkeru i optužila za PREVARU: Neću više da budem budala!
+-  جيش الاحتلال: مقتل نجل رئيس الأركان السابق في جباليا.. وندفع ثمنا كبيرا لحرب غزة
+-  Jaguars QB Trevor Lawrence returns to practice, taking another step toward playing at Browns
+-  Stručnjaci upozoravaju, Zemlja je u velikom problemu: Prijete nam razne katastrofe
+-  Markus Mörl: NDW-Star angegriffen und ins Gesicht geschlagen
+-  3 أضرار عند توصيل الهاتف في الشاحن طول الليل.. مخاطر لا تتوقعها
+-  Marani a Tuttosport.com: "Pronti per le riforme, la C non genera debiti e vara un piano giovani"
+-  Juventus-Napoli, la probabile formazione di Allegri
+-  Quote e pronostico di Hoffenheim-Bochum: occhio al "ritardo"
+-  Соскин: для Украины 2024 год без поддержки США станет катастрофой
+-  Deputy ministry for migration faces legal and staffing challenges
+-  Руските войски използват в Украйна нов дрон камикадзе
+-  Sports ethics committee reviews match fixing red notice findings
+-  Suspenden visitas en el Cereso 3 de Juárez por operativos
+-  Ignora Nadal si 2024 será su último año en activo
+-  Capturan a presunto homicida en Cuauhtémoc
+-  Acuerdan colaboración económica entre Chihuahua y Aurora, Colorado
+-  România se alătură demersurilor de a condamna încercările Federaţiei Ruse de interferenţă în procesele politice din state democratice
+-  EXACTA SYSTEMS® TO POWER HISTORICAL HORSE RACING AT DERBY CITY GAMING DOWNTOWN IN LOUISVILLE, KY
+-  Chemotherapy Induced Anemia Pipeline Analysis (2023) Covering Clinical Trials, Emerging Therapies, FDA, EMA, and PMDA Approvals, Competitive Landscape | Zydus Cadila, FibroGen (Roxadustat), SBI Pharmaceuticals
+-  El PP de Lugo presenta una treintena de propuestas para los presupuestos de 2024
+-  Κύπελλο Ελλάδας: Έκρηξη Βόλου - «Ντροπή για την ελληνική διαιτησία, η αποχή να γίνει διαρκείας»
+-  Evroliga odredila sudije za duel Baskonije i Crvene zvezde
+-  Chevy Chase, 80, FALLS OFF STAGE at National Lampoon's Christmas Vacation event after arriving onstage in a wheelchair - one day after insisting he's in 'amazing' shape
+-  Започват проверки за нерегламентирани превози на пътници по празниците
+-  EUA anunciam exercícios militares aéreos com Exército da Guiana
+-  غالاردو: الإصابات والأرهاق مشكلة الإتحاد
+-  Designer praises Kate Middleton for her 'support and recognition' as she's invited to the royal's Christmas carol concert after creating earrings in memory of her teenage cousin who took her own life
+-  Live-Blog zum GDL-Bahnstreik am 8.12. in Hannover: Welche Züge fahren?
+-  سون هيونج مين يقود تشكيل توتنهام لمواجهة ويست هام بالدوري الإنجليزي
+-  After This Wild Fact Was Shared On TikTok, Some People Are Admitting They Had No Idea Rachel McAdams Played Regina George In "Mean Girls"
+-  العنابي يخطف تعادل بطعم الفوز من الاخضر العدني
+-  İsrail basını: 7 Ekim'den bu yana 370 bin İsrailli ülkesini terk etti
+-  İYİ Parti'de bir deprem daha: Niğde İl Başkanı İbrahim Uzun 'yönetime saygısızlık yapıldı' diyerek görevinden istifa etti
+-  Οι 3 καταθέσεις του ιδιοκτήτη του Όλιβερ, η πρόχειρη ταφή στην Αράχωβα και οι αντιφάσεις στους χρόνους
+-  Kobilšek o COP28: Ob vstopu v drugi teden pogajanj stopnjevanje pritiskov in pričakovanj
+-  Premier: na moje polecenie minister finansów podpisze rozporządzenie w sprawie 0 proc. VAT na żywność
+-  Argentyna powstrzymuje banki od gromadzenia dolarów. Dewaluacja się zbliża
+-  Ważne, chociaż było niewiążące
+-  Branża TLS nie chce przejechać się na długach
+-  Długi cień kryzysu energetycznego kładzie się na niemieckim przemyśle
+-  Duńczycy z Holendrami szykują inwestycje w porcie Gdynia
+-  Mieszkania sprzedają się coraz drożej
+-  Mariusz Książek inwestuje w scale-upy. Ruszyło Avivo Capital
+-  Iran zaprasza Polskę do współpracy w petrochemii
+-  Z jakimi problemami zmagają się polskie firmy
+-  BNP Paribas AM podpowiada, w co inwestować w 2024 r.
