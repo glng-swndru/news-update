@@ -1,11 +1,11 @@
 # Latest News
--  Dark cloud of unsavoury involvement in high-profile cases hangs over SANDF
--  How climate change threatens global agriculture
--  Kwezanamuhla: UMsimang uxoshwe yinkohlakalo kwi-ANC
--  Italy's anti-doping tribunal chases four-year ban for Pogba
--  İsrail Gazze'de Şuheda el-Aksa Hastanesi çevresini bombaladı
--  Pokemon fans are just learning about this wild “corny” name pun
--  Two dead, another critically injured, after head-on crash in San Pablo
--  Canlı yayında yaptığı tuvalet canlandırması olay olmuştu! Katil annenin cinayeti neden işlediği ortaya çıktı! Kan donduran detay
--  Après les JO 2024, les Franciliens pourront-ils enfin profiter des transports fonctionnels ?
--  Pola mjesta u finalu popunjeno: Još njih osam bori se za daljnje putovanje u 'Supertalentu'
+-  FM Jilani hails Danish parliament bill prohibiting Quran desecration
+-  Янги ижтимоий соҳа бинолари ишга тушди
+-  Саломова Гавҳар Aбдиназаровнанинг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
+-  Aбдуназаров Ўткир Сайдуллаевичнинг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
+-  Норкулова Шахноза Тулкиновнанинг филология фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Жумақулова Шахноза Қудрат қизининг филология фанлари бўйича фалсафа доктори (PhD) диссертацияси иши ҳимояси тўғрисида
+-  Smajo Bešo: Borba za istinu o BiH - od pakla Dretelja do kraljevske palače!
+-  Habló la Tacones
+-  Ivica Dačić na Palama otvara Počasni konzulat Srbije
+-  Justiça do Rio remove Ednaldo Rodrigues da presidência da CBF
