@@ -1,11 +1,11 @@
 # Latest News
--  সারা দেশে ৩৩৮ থানার ওসি বদলি
--  Costa reitera que último Conselho de Ministros teve lugar na “capital da descentralização”
--  Dos gallegos detenidos se identifican con documentos de la República del Menda Lerenda
--  A la veille de recevoir ce dimanche son Prix Nobel de Chimie, Dr. Moungi Bawendi célébré par l’ambassade de Tunisie à Stockholm
--  Why has England's Premier League gone goal crazy?
--  Aston Villa's title credentials face tough Arsenal test
--  התיקו של מכבי חיפה, ליגת העל והשגרה החדשה: "מחוץ לקווים"
--  Sgomberato un bene confiscato alla mafia alla Zona Industriale di Catania
--  Aveiro: PSP deteve assaltante dentro de escola
--  Beszipuzott tinik sebesítették meg az ismert ügyvédet a budapesti villamoson
+-  Tensión y malhumor por bloqueo en el ‘Libre’
+-  Inflación repunta a 4.32% y rompe tendencia a la baja
+-  Se rinden supuestos combatientes de Hamas al norte de Gaza
+-  Apura AMLO reformas a GN, al PJ y electoral
+-  Ordenan a mando de Sedena acudir a declarar en caso Pegasus
+-  BBC Producer Launches Investigation into Maryam Moshiri’s On-Air Gesture Controversy
+-  Granata JNA ubila Srpkinju, hosovci dotrčali do tijela: Svjedok ispričao što je uslijedilo
+-  Oglasio se HNS oko odluke koja puno toga mijenja za Vatrene
+-  Воведувањето дневна евтина тарифа значи двојно поевтина цена на електрична енергија, вели Ковачевски
+-  فانتازي.. كيف تستثمر في خط وسط وهجوم أرسنال؟
