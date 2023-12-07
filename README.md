@@ -1,51 +1,51 @@
 # Latest News
--  철강 vs 조선, 하반기 후판가 협상 연내 끝낸다…소폭 하향될듯
--  Pembunuh Ayah dan Anak di Maros Masih DPO, AKBP Awaluddin Minta Hal Ini ke Masayarakat
--  ต้องจับตา ‘เงินเฟ้อ’ ลดลงติดต่อกันเป็นเดือนที่ 2 และต่ำสุดในรอบ 33 เดือน
--  [“남편이 마약했다”폭로한 아나운서…‘이정섭 검사 비위 의혹’ 제보자로 검찰 출석
--  [주식카톡방 완전무료 선언” 파격결정
--  [올해 말까지 전세계 가입자 중 20%가 5G…북미 지역 강세
--  [김덕현 연천군수 “맞춤형 농업정책으로 농업의 지속성장을 이루겠다”
--  [가구 평균 자산 5억2727만원 11년 만에 첫 감소..."집값 하락이 원인"
--  [2심도 “김건희 통화녹음 공개한 서울의소리, 1000만원 배상하라”
--  [中 11월 수출, 전년대비 0.5%↑…7개월만에 증가세
--  Taylor Swift named Time’s ‘Person of the Year,’ capping her record-breaking 2023
--  Xuất khẩu gặp khó, Trung Quốc chuyển hướng chiến lược
--  Kinh tế thế giới sẽ suy thoái trong năm 2024?
--  VLA: Thông báo giao dịch quyền mua - Nguyễn Thu Hà - Phó Giám đốc
--  DVM: Nghị quyết Hội đồng quản trị
--  LVBP: Bravos y Águilas le dieron otro golpe a los líderes
--  Global Portable Patient Monitoring Systemr Market Analysis By Major Manufacturers and Competitive landscape 2023-2029
--  Automotive Data Cables Market Worth USD 20.0 Billion In 2031 | Acome Group, Aptiv , Belden Incorporated, Coficab Group
--  ผู้ช่วยเลขาฯ สภาผู้บริโภค ระบุรถทัวร์ชน อาจเกิดจากสภาพรถ-สภาพแวดล้อม
--  "หมอกฤตไท" มะเร็งปอด โยงวิจัยฝุ่น PM 2.5 พบป่วย 1.2 แสนคน
--  ผบ.ตร.สั่งจับแก๊งทวงหนี้บุกพังร้านส้มตำ เหตุไม่พอใจลูกหนี้ลงทะเบียนแก้หนี้
--  애월읍 지역 '브로콜리 검은무늬병' 발생 요주의
--  강원의료기기 산업발전 위한 '2023 의료기기인의 밤' 성료
--  Manual Paint Spray Machine Market Share, Top Companies, Revenue and Forecast by 2032
--  Agastya Nanda shares hilarious story behind him leaving social media
--  Future of Global Automotive 3D Displays Market During Geopolitical Unrest and Inflation 2023 to 2029
--  두산 양찬열, 7년 연애 끝에 10일 웨딩마치..."아내 덕에 어려운 시기 이겨냈다"
--  ‘역대급 콜라보, 어린이 팬들 저격’... 인터밀란, 트랜스포머 유니폼 출시
--  Япония и Россия договорились по квотам на вылов рыбы в 200-мильной зоне
--  Ярославцев порадовали приятной статистикой
--  Golpe a la historia: Santos descendió por primera vez a la segunda división
--  2 katlı evde yangın çıktı. İtfaiye ekipleri yardıma koştu
--  На Сахалин придет снежный циклон
--  La devastación en Gaza podría compararse con la ocasionada durante la II Guerra Mundial
--  Cartas de lectores: Rocco y sus hermanos
--  Cartas de lectores: Liberalismo, corporativismo y cambio climático
--  Cartas de lectores: Quito secular
--  Mark Zuckerberg tiết lộ lý do từ bỏ thói quen chạy bộ, gợi ý môn thể thao mới hấp dẫn cả về thể chất, trí tuệ, sự tập trung
--  Cartas de lectores: Felicitaciones a la vicepresidenta por ir a Israel
--  Cartas de lectores: La TV y su influencia en los jóvenes
--  Khảo sát hơn 500.000 người phát hiện 1 cách kéo dài tuổi thọ hiệu quả chính là hạn chế tiêu thụ 1 loại gia vị
--  Quedó definido el Once titular
--  En la Asamblea surge un súbito interés por enjuiciar a Wilman Terán
--  Is Battlefield Earth The Worst Movie Ever Made? (The Answer Is Nope).
--  ミック・シューマッハが語るメルセデスF1チームのリザーブで学んだ教訓
--  4 Bocah Tewas Diduga Dibunuh Ayah, Penyebab Kematian Masih Diselidiki
--  Windshield AR Heads-Up Displays (HUD) Market Size, Growth, Forecast 2023-2029 (By Type, By application, By Company)
--  UN chief uses rare power to warn of impending humanitarian catastrophe in Gaza
--  PAN Bangkitkan Semangat Minum Susu Bareng Puluhan Artis
--  Netanyahu: Kuşattık, onu bulmamız an meselesi!
+-  생방송 대한민국 1부 (1453회)
+-  '타격왕' 손아섭, 한은회 '최고의 선수상' 수상… 문동주는 최고의 신인상(종합)
+-  라미란-염혜란-장윤주-안은진, 무적의 '덕벤져스'
+-  로드FC 9연승 노리는 '래퍼 파이터' 이정현, "이길수는 나보다 레벨이 한참 아래"
+-  Президент США Джо Байден "впал в отчаяние" из-за планов Трампа
+-  Shock at sudden death of rising Aussie athletics star Zulqarnain Haider, 14, who held multiple records
+-  Induk Facebook & Instagram Segera Kenalkan Fitur Watermarking, buat Transparansi
+-  🔴 إنهيار معنويات القحاتة أمر طبيعي.. فقد مروا بتجربة سيئة للغاية
+-  В ВТБ предложили три меры против непредсказуемости решений ЦБ по ставке
+-  «Ложный друг аналитика»: как приблизить прогнозы ЦБ к реальности
+-  Youtuber dipenjara sengaja hempaskan pesawat demi raih tontonan
+-  Женщины перечислили мужчинам неочевидные факты о своих телах
+-  Kasus Cacar Monyet di Jakarta Terkendali, Bertambah Dua di Awal Desember
+-  В России высказались о сроках возвращения на Олимпиаду
+-  Kryal Castle joust’s with the best
+-  Better access for leisure centre
+-  SPD-Parteitag ab Freitag: Nach zwei Jahren Ampel wieder SPD pur – auf dem Papier
+-  SPD-Parteitag ab Freitag: Nach zwei Jahren Ampel wieder SPD pur – auf dem Papier
+-  Här är superkameran som ser allt
+-  Seleksi Petugas Haji 2024 Dibuka, Ini Tips dan Kemampuan yang Diperlukan
+-  B.C. rinks into championship round at Canadian Sr. Curling Finals in Vernon
+-  Jang Nara dan Son Ho Jun Kembali Berpasangan di Drama My Happy Ending
+-  권익위 "상반기 R&D 사업비·보조금 등 부정수급 418억 원 환수"
+-  고용부, 가사서비스 공식 홈페이지 '가사랑' 오픈…청소·돌봄 지원 한곳에
+-  ¡Otra goleada!
+-  올해 상반기 공공재정 부정수급 418억 환수…제재부가금 200억 부과
+-  Jakimowicz o odejściu Holeckiej z TVP. Połączyły ich trudne doświadczenia z dziećmi. "Pełna empatii"
+-  Friday focus: Inside mail plus best bets for Canterbury, Scone
+-  Moni kärsii sanomiskrapulasta – Reija Könönen päätti avata suunsa ja kertoo nyt, mitä rohkeudesta seurasi
+-  “내년에 OK 저축은행은 꼭 이기고 싶네요”
+-  B. com Vacancy in EY
+-  Само в "24 часа" на 7 декември: Книжка за кола с ръчни скорости след нов изпит, ако е взета първо за автоматик
+-  Här är superkameran som ser allt
+-  Hasil Sensus Pertanian 2023 Diharapkan Jadi Basis Kebijakan Pemerintahan Mendatang
+-  Toyota Ingin Mobil Mesin Bensin Tetap Ada Lewat Teknologi Hidrogen
+-  Gwyneth Paltrow Tampil Dramatis Berbalut Gaun Vintage dari Valentino di Fashion Awards 2023
+-  Ben Becker: „Man hat mich neulich als alten weißen Mann bezeichnet“
+-  Kota Terbaik di Eropa Buat Pecinta Kuliner, Paris Paling Teratas
+-  My Place
+-  Dr seeks community help for cancer battle
+-  "وضعية الدعم".. ما سر جلوس مضيفات الطيران على أيديهن عند الإقلاع والهبوط؟
+-  WI vs ENG, 2nd ODI: Sam Curran Redemption as England Thrash West Indies to Level Series
+-  বৃষ্টির কারণে খেলা শুরু হতে দেরি
+-  Asistente de Guimarães pasa cuenta de cobro: “Fue un fracaso total”
+-  Singe mum loses $2,300 to Singpost SMS scam
+-  與혁신위, 조기 해산…인요한 “尹·김기현에 감사”
+-  동아쏘시오홀딩스, 'ISO/IEC' 전환심사 및 사후심사 통과
+-  ഫാഷൻ പാഷനാണോ? പഠിക്കാം എൻഐഎഫ്ടിയിൽ, ഇപ്പോൾ അപേക്ഷിക്കാം
+-  [프로필] 최성원 광동제약 대표이사 회장
+-  गर्भसँग जोडिएको क्यान्सर
