@@ -1,11 +1,51 @@
 # Latest News
--  عاجل.. إذا كان ابنك مدمنًا للسوشيال ميديا.. كيف تحافظ على صحته العقلية؟
--  6 إجراءات تسهم في الحد من استخدام البنزين والانبعاثات
--  아산시의회 문화환경위원회, 2024년도 업무계획 청취
--  대전보건환경연구원, 감염병 매개체 감시사업 우수기관 선정
--  아산시의회 건설도시위원회, '2024년도 업무계획' 청취
--  평택도시공사, 재난역량 향상 위한 체험중심 재난교육 실시
--  송파구, ‘겨울방학 대학생 행정인턴’ 60명 모집
--  평택시의회, 명사 초청 강연회 개최
--  종로구, 언 마음 녹이는 ‘이웃사랑 훈풍’ 분다
--  대전시, ‘2023 대전디자인페스타’ 개막식 개최
+-  'ACL 16강 확정' 포항, J조예선 마지막 경기 우한과 무승부
+-  포항시, 호미반도 해양보호구역 확대·신규 지정 주민설명회 개최
+-  15살 어린 여경 머리 밀치고 부적절 발언…감봉 1개월 처분 ‘적법’
+-  아이코리아 영천시지회, 사랑의 연탄 500장 취약가구에 직접 배달
+-  포항문인협회 ‘포항문학 통권 50호 특별호’ 발간
+-  화원농협 영농회, 15개 노인복지회관에 유류비 1200만원 지원
+-  금복문화재단, 영양군 인재육성장학회에 장학금 1000만원 기탁
+-  문경서 경상북도 무형문화재 사기장 공개·전시행사 이어져
+-  동국대 WISE캠퍼스 '경주형 세계시민교육 초청강연' 성료
+-  FUESSVFL: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
+-  FUEMAVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
+-  E1VFVN30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEBFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEVFVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
+-  FUEDCMID: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEFCV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEKIV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEIP100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEMAV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUESSV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEMAVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUESSVFL: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUESSV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEVN100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  FUEVFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 07/12/2023
+-  HNA: Bản cáo bạch
+-  CII: Thông báo về ngày ĐKCC tham dự ĐHĐCĐ bất thường năm 2023
+-  Mangsa banjir di Pasir Mas makin menurun
+-  Foro Penal informa sobre la detención de Roberto Abdul-Hadi, presidente de Súmate
+-  Noisy, disruptive, distracted: Australian classrooms among world’s worst
+-  Noisy, disruptive, distracted: Australian classrooms among world’s worst
+-  Noisy, disruptive, distracted: Australian classrooms among world’s worst
+-  Noisy, disruptive, distracted: Australian classrooms among world’s worst
+-  프리미엄 데킬라 ‘1800 크리스탈리노’, 스페셜 기프트 패키시 출시
+-  앤유PC방, 농심 레드포스 PC아레나 브랜드 지속 확장
+-  에몬스, 24년 S/S시즌 가구 디자인 트렌드 발표회 개최
+-  중부발전 인천발전본부, 복지 사각지대 해소 위한 "에너지기업 합동 행복 나눔 희망 드림" 진행
+-  김완선, 히트곡 담은 베스트 리메이크 앨범 발표
+-  TCU aprova renegociação entre governo e quatro termelétricas
+-  Бетіс - Реал: де і коли дивитися онлайн матч 16 туру Ла-Ліги 09.12.2023
+-  쉐보레 트랙스 크로스오버, 美 '베스트10 트럭 & SUV' 선정
+-  «أخطر ظاهرة جوية».. معلومات عن الضباب بعد تحذير الأرصاد منه الأيام المقبلة
+-  김관영 전북지사, 중소기업·소상공인과 소통 지속
+-  Estos son los horarios de cortes de luz en Ecuador por provincia para este jueves, 7 de diciembre
+-  हमास नेता ने पाकिस्तान को क्यों कहा बहादुर? यहूदियों को बताया मुसलमानों का सबसे बड़ा दुश्मन
+-  Stony Brook wins 81-63 against Stonehill
+-  Clark’s 35 points and key assists help fourth-ranked Iowa escape Iowa State 67-58
+-  13일 이주은 피아니스트 독주회
+-  오영훈 “제주특별법 당장 개정 안 돼도 행정체제 주민투표 예정대로”
