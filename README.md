@@ -1,11 +1,51 @@
 # Latest News
--  이무생, 유쾌한 브이
--  공명, 여심 저격 포즈
--  박병은 '소시민 형사'
--  News24 | Here are the Daily Lotto numbers
--  News24 | New law will block excuses to avoid deportation to Rwanda - UK prime minister
--  Netikėta paslaptis. Kodėl Ukraina nesunaikina Krymo tilto
--  4 أبراج تواجه تحديات في العمل قبل نهاية العام.. من بينهم العقرب
--  في الشتاء.. وصفة سحرية تقلل التوتر وتعزز الطاقة
--  "مخالفة اللوائح".. الأهلي يخاطب اتحاد الكرة بشأن حسين الشحات والشيبي
--  البيت الأبيض: اتهام إسرائيل لحماس باستخدام العنف الجنسي أقرب للتصديق
+-  Başakşehir'den ilginç 'maç saati tepkisi'
+-  Белгија го забранува влезот на израелските доселеници на Западниот брег вклучени во насилството
+-  Bahnstreik in Nordhessen läuft: NVV mit Details zum Notfallplan – was fährt, was steht still?
+-  [담양군, ‘향촌변호사’ 위촉 … 대면 무료 법률상담 제공
+-  [담양 특색 담은 고향사랑 답례품 눈길
+-  [빛고을 광주 겨울밤, ‘빛’으로 물들다
+-  [“올해 마지막 ‘남도달밤야시장’ 놀러오세요”
+-  [“단순한 금융혜택 넘어 단계별 종합대책 강구해야”
+-  [호남대 공자학원, 중문연맹 디지털교육 ‘골든 클래스’ 수상
+-  Govt taking steps to bring improvement in gas, power sector: Ali
+-  Standout Las Vegas Ad Creative Joins B&P as Executive Creative Director
+-  Restructuring plan underway to privatize airline, sick units: Fawad
+-  Jon Voight Signs With Gersh
+-  مونديال الأندية من شواطئ ريو دي جانيرو إلى ساحل العروس
+-  [오늘의 주요일정]경기북부(12월8일 금요일)
+-  [오늘의 주요일정]부산(12월 8일 금요일)
+-  [오늘의 주요일정]제주(12월8일 금요일)
+-  경기남부 포근…하늘도 맑아
+-  [오늘의 주요일정]울산(12월8일 금요일)
+-  [오늘의 주요일정]인천·김포·부천(12월8일 금요일)
+-  [오늘의 주요일정]금융·증권(12월8일 금요일)
+-  본조비도 반했다…뮤지컬 '스쿨오브락' 아역배우는?
+-  [오늘의 주요 일정]전북(12월8일 금요일)
+-  [오늘의 주요 일정]경남(12월8일 금요일)
+-  '주류 희생' 공관위에 넘긴 김기현에 당 내 '혁신 좌초' 책임론 제기
+-  [오늘의 주요일정]경제(12월8일 금요일)
+-  '돈 봉투' 의혹 정점 송영길, 오늘 출석…'묵비권' 시사
+-  은퇴하면 월 적정 생활비 324만원인데…가구 54% "준비 부족"
+-  [오늘의 주요일정]정치(12월8일 금요일)
+-  [오늘의 주요일정]국회(12월8일 금요일)
+-  GATE Energy, Woodside Trion FPU 시운전 수주
+-  SC To Deliver Judgement On Pleas Challenging Abrogation Of Article 370 On Monday
+-  Corteva Agriscience Launches SpadinTM For Aphid Control
+-  Warum sich der Eurokurs zum US-Dollar etwas stärker zeigt
+-  Rechtsstreit: Harry besorgt um Sicherheit der Kinder
+-  ФФМ ќе воведе ВАР во македонскиот фудбал
+-  Minério de ferro sobe no curto prazo com estímulos da China, mas sustentação de preços é incerta
+-  بطولة ودية لأندية الطائرة الليبية قبل انطلاق الموسم الجديد
+-  Filman la cinta 'Venganza Silenciosa' en México
+-  Abrazan estrellas el bolero
+-  Integrarán casillas nacidos en marzo y abril
+-  Andrea Fay Friedman ist tot: "Law and Order"-Star mit nur 53 Jahren verstorben
+-  Describieron el terror en la Universidad de Nevada tras tiroteo que dejó tres muertos
+-  Desperation grows among Palestinians as Hamas, Israel battle
+-  EE.UU. sanciona a dos individuos por hacer campañas de ciberespionaje para Rusia
+-  Kodak Black Arrested For Cocaine Possession Weeks After Disturbing Interview
+-  'They don't care, they will hurt you': Winter Haven gang member arrested for drive-by shooting
+-  Perrie Edwards takes her son Axel, two, to see her Madame Tussauds waxwork for the first time... but the toddler seems less than convinced
+-  Dutch chip supplier ASM International to invest $324 million in new Arizona HQ
+-  Como fazer bolão da Mega da Virada 2023?
