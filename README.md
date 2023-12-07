@@ -1,51 +1,11 @@
 # Latest News
--  Adequate seed stocks to satisfy anticipated demand: SeedCo International
--  Spiropali: Drejtësia duhet të thotë fjalën e saj për veprat penale të opozitës në Kuvend
--  ردا على تضامنه مع حفيدته.. رسالة خاصة من جد الشهيدة «روح الروح» لـ«كوكا»
--  Si do të jetë muaji i fundit i vitit? Horoskopi MUJOR për të gjitha shenjat
--  Golden Boy: un premio anche per l'esports
--  Lampard til Bandaríkjanna?
--  Life Heater Reviews "Must Read" Don`t Purchase LifeHeater Portable Heater Until
--  Alpha Heater Reviews "UK UPDATED" EXPOSED Must Read! Consumer Reports Before Buy
--  Biden Peringatkan Pasukan AS Bisa Turun ke Medan Perang Melawan Rusia
--  Wir brauchen eine Wehrpflicht – aber eine andere
--  CANiK EDEX’23 Fuarında Afrika Pazarına Güçlü Giriş Yaptı
--  ЕУ сака стабилни и заемно корисни односи со Кина, Пекинг бара од Брисел заедно да одговорат на глобалните предизвици
--  ГД приняла законы о сохранении пособия в случае раннего выхода мамы из декрета
--  6 thực phẩm gây hại cho não nếu ăn quá nhiều, BS Mỹ khuyên nên tránh: Nhiều người lại coi như ‘mỹ vị’
--  Няма шега, няма измама: Гонзо представя книга...
--  Bolje korištenje podataka može ostvariti više uspjeha na radnom mjestu
--  Jogos do Euro 2024 transmitidos pelos canais em sinal aberto e pela Sport TV
--  NAYARA CERUTTI – Homens, como aparentar 10 anos mais jovem
--  Saslušan zbog saobraćajne nesreće: Sumnja se da je vozio pod dejstvom narkotika, jedna osoba poginula
--  Alertă meteo: codul galben de vreme rea a fost prelungit. Zonele în care se anunță fenomene periculoase
--  GDL: Bahnstreik von Donnerstagabend bis Freitag - auch S-Bahnen und Regionalzüge betroffen
--  “Rezultate më të dobëta se në 2018”, Berisha për raportin e PISA: Shkatërruan arsimin
--  Full moons: everything you need to know until 2024
--  Фабриката за цигари край Пазарджик изнасяла и в чужбина, щетите към бюджета са над 8 млн. лв.
--  Deux plaintes pour agression sexuelle, "Complément d'enquête"... On fait le point sur les accusations visant Gérard Depardieu
--  Governo lança programa para construir casas de acolhimento para população LGBTQIA+ em risco
--  ODRASLI U BEDI, SAD UŽIVAJU U LUKSUZU! Đoganijevi nisu štedeli za opremanje stana: Skockali smo ga kao da smo na Beverli Hilsu!
--  ZVEZDA JOŠ UVEK BEZ BREJKA Sferopulosov sastanak sa igračima posle Valensije
--  3 Dampak Iklim Apabila Bumi Alami Kenaikan Suhu di Atas 1,5 Derajat Celcius
--  এবার হংকং ও ম্যাকাউয়ের ঋণমান কমানোর সতর্কতা জারি করল মুডিস
--  Adema gaat met EU praten over tegenvallende subidies voor boeren
--  La Inteligencia Artificial censura una foto de morcillas alistanas por "violenta"
--  Kehadiran Pesantren di Tiap Desa di Pasuruan Perkuat Tingkat Pendidikan Lebih Berakhlak
--  Vrasja në Fier, krushqia e prishur dyshohet se çoi në ekzekutimin e 41-vjeçarit
--  Kimmo Kapanen om "Ante" Karlssons framtid: "Ni kan spekulera"
--  'You’re just trying to survive': UNLV student recaps harrowing active shooter situation
--  Braverman slams ‘unworkable’ new Rwanda bill
--  «Image erholt sich» - Fleischbranche wieder zuversichtlicher
--  Nasty C Boasts Of Being Best Rapper In Africa
--  الحوض الشرقي.. هامش التنمية وتنمية الهامش..!
--  Uhapšeni opasni banditi u Šapcu! Divljali po Valjevu, krali, lomili i pretili
--  Ale kino! Wszyscy patrzą szeroko otwartymi oczami i nikt nie chrumka
--  السعودية وروسيا تعززان الاستثمارات والتعاون الدفاعي
--  From ‘Dil Dil Pakistan’ to ‘Mera Dil Badal De’: Honoring Junaid Jamshed on His 7th Death Anniversary
--  Uhapšen strani državljanin zbog dječje pornografije
--  ‘I never get this stuff’ fume M&S shoppers over 12 days of Christmas freebies branded ‘a con’ and ‘utter rubbish’
--  Josan González pide "estar a un nivel competitivo excelso” para sorprender al Barça
--  ‘เฉลิมชัย’ ขอเวลาคิด 1-2 วัน หลัง 21 สส.ประชาธิปัตย์ เชิญนั่งหัวหน้าพรรค
--  Ruta de atención por quemados
--  В Подмосковье запустили опрос по улучшению организации досуга в парках
+-  Kredi hacmi bir haftada 85 milyar 876 Milyon lira arttı
+-  중기중앙회-두바이상의 백두포럼 열어 기업 간 협력 논의
+-  셀트리온헬스케어 ‘허쥬마’ 뉴질랜드서 보조금 받는다
+-  부동산 불황에 가구당 자산 2000만 원 ‘뚝’
+-  인천지법, 전여친에 고소당하자 합의 요구하며 스토킹한 40대 실형
+-  FC안양 이우형 감독 퇴진 팀 테크니컬 디렉터로 전환
+-  로하스·쿠에바스 다시 합류 kt 위즈, 내년 외인 전력 든든
+-  K리그2서 수원더비 현실화 위기
+-  화성FC 상복 터졌네
+-  장애인 스포츠 인권 기초부터 열공
