@@ -1,11 +1,51 @@
 # Latest News
--  Was wäre, wenn man gerne Landwirt würde? – Das ist nichts für Träumer! #bauernhof #bauer
--  Казахстан планирует продлить запрет на экспорт нефтепродуктов автотранспортом еще на полгода
--  Atti vandalici reiterati agli orti urbani di Librino – FOTO
--  สถาบัน IOD มอบรางวัล CAC Change Agent Award 2023 ให้แก่ซีพี ออลล์ต่อเนื่องปีที่ 3
--  بن ثنيان: ملف الأسرى ملف إنساني ونحث كافة الأطراف لتحقيق مبدأ "الكل مقابل الكل"
--  Faiths gather at Federation Square to celebrate Hanukkah
--  Faiths gather at Federation Square to celebrate Hanukkah
--  S'pore & China to establish mutual 30-day visa-free entry travel arrangement: Lawrence Wong
--  Bekçilerin hastaneye gitmesi için ikna edemediği evsiz, ölü bulundu
--  Bebek firarda! 2 yaşındaki bebek evden kaçtı, mahalle alarma geçti
+-  Kickoff | Bafana complaints heard, CAF to take action in Rwanda
+-  Kickoff | Sundowns already 'smelling' another league title? Rulani responds
+-  Facebook-Instagram પર નહી મળે આ ફિચર, કંપનીએ બંધ કરવાની કરી જાહેરાત
+-  চীনের ঋণমান আভাস কমাল মুডিস, ঋণ–সংকটের প্রভাব
+-  New Officers in Tealngana: కొత్త ప్రభుత్వంలో ఇంటెలిజెన్స్ చీఫ్ గా బి.శివధర్ రెడ్డి - సీఎం ప్రిన్సిపల్ సెక్రటరిగా శేషాద్రి
+-  আইসিসির মাসসেরার মনোনয়নে বাংলাদেশের নাহিদা ও ফারজানা
+-  Kerstshow aan boord
+-  3D Snow Depth Measurement and Snow Management Market Size in 2023 To 2029 | Hexagon AB, Leica, Autodesk, Spheron-VR AG, 3D Systems Corporation, Perceptron, Creaform, RIEGL Laser Measurement Systems GmbH, Maptek
+-  무음으로 장애인 관련 보도 영상을 봤더니 이런 문제 나왔다
+-  [영상] 야당 의원이 마음 와닿았던 대법원장 후보자의 청문회 서면 답변
+-  ‘CJ ENM 업무방해’ 혐의 안형준 MBC 사장 불기소
+-  Tea Market Trends: Brewing Success in a Steeped Industry 2029
+-  GH, 광교 기회캠퍼스 건립사업 설계공모 추진
+-  경기도, 똑버스 확대·대곡~소사선 개통 등 ‘1시간 출퇴근’ 정책 달성
+-  유진선 용인시의원 2023 대한민국 공공성실천 대상 의정대상
+-  양평군 새마을회지도자 올 마무리 대회…청운면새마을회, 읍면평가 대상
+-  의정부시, 재정위기 극복 추진과제 총 54건 ‘재정운용 종합대책’에 반영키로
+-  ‘꽃의 전설-빛으로 꽃피다’ 8~9일 수원시 정조테마공연장서 선봬
+-  인천시, 아동 중심 마이코플라스마 페렴균 감염증 급증에 개인 위생 수칙 준수 강조
+-  제22대 국회의원선거의 지역구 예비후보자 등록 오는 12일부터 시작
+-  인천시 남동구의회 ‘청소년 통행금지구역·통행제한구역 지정 및 운영에 관한 조례’ 제정
+-  인천시 동구, 2년 연속 교통안전지수 전국 1위
+-  인천시 강화군, 겨울철 농업재해 선제 대응 나서
+-  인천시 연수구보건소, 한파 대비 취약계층 방문건강관리 활동 실시
+-  인천시 남동구, 행안부 공공기관 구조혁신 평가 ‘우수지자체’ 선정
+-  인천시 동구, 내년 3천258억 원 예산안 편성
+-  인천시 계양구, 공공폐수처리시설 운영관리 실태 평가 2년 연속 ‘우수 관리기관’ 선정
+-  인천시 상수도, 화학사고 대응 능력 강화에 필요한 합동훈련 진행
+-  인천시, 아동학대 예방교육 강사 역량 강화해 시민의식 개선
+-  [기호일보 만평] 알현
+-  ঢাকা বিশ্ববিদ্যালয়ের ভর্তি পরীক্ষার আবেদন ফি বাড়ছেই, যে ব্যাখ্যা কর্তৃপক্ষের
+-  Passwordless Authentication Market Paves the Way for Secure and Frictionless Access, Projected to Surpass USD 456.79 billion by 2030 with a CAGR of 29.1%
+-  Sjellin lumturi në jetën e të gjithëve: Katër shenja të horoskopit e kanë këtë dhunti
+-  पूरे देश में फेमस है भिंड के पेड़े, शुद्ध घी और मावे से होते है तैयार
+-  Miratohet në pak minuta “Buxheti 2024”, mbyllet seanca mes tymueseve dhe shpërthimeve
+-  Con rể Phú Quang được phong NSND: Gia thế "khủng", là Phó giám đốc trẻ nhất lịch sử Học viện Âm nhạc Quốc gia
+-  Bank Rosji oczekuje niższych zysków rosyjskich banków w 2024 roku
+-  TSUE wypowiedział się w sprawie przedawnienia i odsetek
+-  Space Planning Software Market: Is The Potential Turnaround of the Decade Coming| Accuruent, ONEDOOR, JDA Software Group
+-  Renault chce obniżyć koszt produkcji aut elektrycznych o 50 proc. do 2027 roku
+-  Kuss-Skandal: Neue Vorwürfe gegen Luis Rubiales
+-  Frauen-WM 2027: DFB setzt bei Bewerbung auf wirtschaftliche Garantien
+-  Frauen-WM 2027: DFB setzt bei Bewerbung auf wirtschaftliche Garantien
+-  Hybrid Dual-Clutch Transmission Market 2023 | Futuristic Technology- Magna International, ZF, Nissan, Dana Incorporated, Bosch Mobility, Volkswagen, Punch Powertrain
+-  £11,300 warning issued to millions of UK households with a mortgage
+-  Gujarat News : ગુજરાતમાં વિદ્યાર્થીઓ ભણતર માટે કરી રહ્યા છે મોતની સવારી
+-  사단법인 한기범희망나눔, 6일 '후원의 밤' 나눔의 행사 개최
+-  '황재균♥' 지연, 깜짝 이벤트에 '눈물 글썽'…"나 울어" [마데핫리뷰]
+-  "이강인 포함 PSG 젊은 친구들, 창의성 부족해!"…PSG의 자살골, '창의성 대장 베라티를 왜 쫓아낸 거야?'
+-  "최성국 2세 출산 촬영, 내 아이보다 공들여 아내에 미안"…'조선의 사랑꾼' CP 고백 [일문일답]
