@@ -1,51 +1,51 @@
 # Latest News
--  الموعد والمميزات.. "إنفاذ" يُعلن عن مزاد الشريط التجاري شمال الرياض
--  إندار صيني ضد كوارث مناخية.. وتُسونامي يهدد 11 دولة في المتوسط
--  ​Lésés par le PEJA, les artisans de Saint-Louis, découragés, se révoltent
--  Fuera de peligro el cazador herido de bala este miércoles en Mondoñedo
--  Uzmanından inmede hayat kurtaran öneri
--  Wie beim Eishockey: Schiris bereiten sich auf Neuerungen nach VAR-Einsatz vor
--  Выборы президента России 2024: стала известна дата
--  Находящиеся за рубежом россияне не смогут проголосовать на выборах президента РФ электронно
--  Orbán Viktor elrendelte: leáll a közigazgatás
--  UGC recognises Ramdev’s Bhartiya Shiksha Board for higher studies
--  La Copa NBA: en busca de un pleno en Las Vegas
--  La cuarta Ruta de los Belenes se extiende hasta dieciséis localizaciones
--  수입 하이브리드차 판매량, 처음 가솔린차 넘어
--  [화물캠페인] 브레이크 조절
--  COP28: Day 7 was all about cities and transport
--  ناسا تحتفل بمرور 25 عاماً على تشغيل محطة الفضاء الدولية
--  "12월도 뜨겁다" 게임사들, 연말 대목 맞춰 오프라인 행사 전개
--  Nevjerojatni Dončić ispisao povijest NBA triple-doubleom
--  Three Donegal animal welfare charities receive funding
--  Jedan predmet u kuhinji nikada niste oprali, a tu najčešće živi salmonela, upozoravaju stručnjaci
--  خسائر اقتصاد إسرائيل... تعوض ما عدا الثقة
--  Cruz Roja ha brindado 31 567 atenciones
--  İstanbul'da yeni yıl hazırlıkları
--  Animal Actress Tripti Dimri on Intimate Scenes With Ranbir Kapoor
--  Jennifer Lopez to star in ‘Kiss of the Spider Woman’ feature film adaptation
--  Borsa güne yükselişle başladı
--  İşçileri taşıyan servis kaza yaptı: 9 yaralı
--  Osman Müftüoğlu yazdı: Hipotiroid mi, depresyon mu?
--  Altında hareketlilik sürüyor!
--  Teplé počasie ušetrilo plyn, ľudia spotrebovali menej
--  Pratima Bhattacharjee promoted to Front Office Manager at Conrad Bengaluru
--  Elon Musk, xAI için 1 milyar dolar topluyor
--  Brigade Group eyeing expansion in Collaboration with Accor Group
--  French Merlot paired with lamb galoutis? Chennai hosts Bordeaux’s famous wines
--  Rising sports star Zulqarnain Haider, 14, suddenly dies as tributes paid to ‘phenomenal’ young athlete
--  Ascom remporte un contrat en Allemagne
--  Park Ji Hoon’s Love Song for Illusion Trailer Teases a Tragic Love Story
--  Elaboran catálogo para promover productos
--  Sağlık Bakanlığı'ndan skandala skandal cevap. Yeniçağ yazarı Fatih Ergin'in Suriyelilerin SGK'yı hortumladığını ortaya çıkarmıştı
--  Skanska signs contract amendment for data center in Arizona, USA, for USD 67M, about SEK 710M
--  Cricket Equipment Market to grow by USD 2,536.35 from 2023 to 2028; Market is fragmented due to the presence of prominent companies like Adidas AG, Beat All Sports and British Cricket Balls Ltd., and many more - Technavio
--  大量のイワシなど打ち上がる 函館
--  الأمم المتحدة: حصيلة الاستجابة للنداء العاجل بشأن غزة 405 ملايين دولار
--  The 6 Most Important Web3, Blockchain And Cryptocurrency Trends In 2024
--  S-OIL, 고객과 함께 모은 주유 포인트로 청소년 자립 지원
--  영광군, 경찰 연계 모의훈련으로 비상상황 대처 능력 향상
--  Dottern satte i halsen – 112 svarade inte
--  Palmeiras na krilih Endricka ubranil naslov, Santos prvič izpadel
--  Palmeiras na krilih Endricka ubranil naslov, Santos prvič izpadel
--  Звезда «Дома-2» обвинила в изнасиловании спасшего ее после ДТП мужчину
+-  Alistan la exposición: Jesús Reyes Heroles en la tinta de 13 caricaturistas
+-  El Banco de México observa sistema financiero fuerte
+-  Hasta el último aliento, vida silvestre resiste muro en la frontera
+-  Fabregas a Como? Stesso passo di Longo, ora il test Modena
+-  Nba, Doncic leggendario contro Fontecchio. Embiid batte Gallinari
+-  Germania, tutti pazzi per la Coppa: quante squadre di Serie B e C!
+-  Iaquinta, buon sangue non mente: dalla Juve alla D è caccia al gol
+-  Dybala e Oriana, perché si parla di crisi? Cos'è successo
+-  Od 1. januara i ruski dijamanti pod sankcijama
+-  Asgari ücrete Erdoğan müjdesi
+-  Fresh disruption to train services as drivers strike again
+-  Openreach hits milestone in bid to connect 25m premises to ultrafast broadband
+-  Waitrose customers turn to 'comfort foods' chicken Kyiv and beer-battered fish
+-  Cash usage has grown for first time in a decade, British Retail Consortium finds
+-  World-class agri genomics center to rise in PH university
+-  푸드테크 스타트업 크레오코리아, ‘에이트 키친’으로 식당 구인난과 인건비 문제 해결
+-  Facebook Messenger: les conversations seront désormais chiffrées, comme sur Whatsapp
+-  Borba protiv terorizma prioritet za Evropsku uniju i Europol
+-  Exposure to PFAS may affect bone health in adolescents & young adults
+-  '청년이어드림' 60만원 지원금 제공… 제주 청년정책 본격화
+-  "ชัชชาติ" สั่งลิสต์รายชื่อเจ้าหนี้รายใหญ่ในชุมชนแก้หนี้นอกระบบ
+-  Organize o seu dia e trate dos presentes de uma só vez
+-  अधिकृतको बिहेमा गाईवस्तुलाई भोज
+-  पेरुका पूर्व राष्ट्रपति फुजिमोरी रिहा
+-  पश्चिम सेती प्रसारण लाइन छिट्टै निर्माण गरिने
+-  लोपहुँदै माझी समुदायको मौलिक संस्कृति बाजा
+-  जापानका प्रधानमन्त्री किशिदाले सत्तारुढ दलको नेताबाट राजीनामा दिने
+-  आर्थिक संकट समाधान गर्न सरकार लाग्नुपर्छ : अध्यक्ष ओली
+-  Indonezja: Zakończono akcję poszukiwania ofiar erupcji wulkanu
+-  МВД: в результате стрельбы в брянской гимназии ранены четыре человека
+-  Jadwal Persebaya Surabaya vs Persija Jakarta di Liga 1, Simak Persiapan Terkini Kedua Tim
+-  Nouvelle alliance: Renault et Nissan veulent rassurer sur leurs projets
+-  TRENDUMFRAGE/DAX zum Handelsende 0,3% niedriger erwartet
+-  DD: ams-OSRAM AG
+-  Mitsubishi Pajero thế hệ mới có thể đẹp như thế này, dự kiến cuối năm sau ra mắt
+-  Người chơi gốc Việt chiến thắng Squid Game, vượt mặt 455 đối thủ giành hơn 110 tỷ đồng!
+-  Ngân hàng báo cáo gì với Thủ tướng việc 'ế' gói tín dụng 120.000 tỷ?
+-  JDC, 제주첨단과학기술단지 분양입주기업과 간담회 개최
+-  경기도, quot;4분기 재정집행 적극 노력quot; 31개 시군에 당부
+-  김동연 quot;선제적middot;창의적 복지 모형, 경기도에서 만들고 싶다quot;
+-  국립 전주박물관에 보관된 '창덕궁' 금표가 뜻하는 것은?
+-  전주서 지방소멸 대응 및 해법 모색 심포지엄 개최
+-  Sena (UBT) leader Priyanka Chaturvedi questions BJP`s contribution towards J&K
+-  Maharashtra govt presents supplementary demands worth Rs 55,520 cr
+-  PM Modi cites poll win data to assert BJP most preferred party for governance
+-  Proud moment as Garba shines on global stage: Amit Shah on UNESCO recognition
+-  Sparzinsen der Schweizer Banken weisen deutliche Unterschiede auf
+-  BJP using Sharmistha Mukherjee to defame Rahul Gandhi, says Vijay Wadettiwar
+-  1万円超えでも予約注文で完売のショートケーキも ローソンがさまざまなクリスマスケーキを発表
+-  Tammelan kolaripaikalla tapahtui myös toinen onnettomuus – Törmääjä pakeni paikalta, poliisi kaipaa havaintoja
