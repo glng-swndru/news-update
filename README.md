@@ -1,11 +1,51 @@
 # Latest News
--  طبيب يحذر من «سرعة دقات القلب».. جرس إنذار لمرض خطير
--  Autoridades deben reforzar medidas para evitar accidentes por manipulación de pólvora: Procuraduría
--  Come rimanere attivi durante le vacanze di Natale
--  Startling admission amid Mark Nawaqanitawase move
--  Startling admission amid Mark Nawaqanitawase move
--  Man charged with murder following stabbing
--  Man charged with murder following stabbing
--  임영웅, 부산 하늘빛 물들 준비됐나? 오늘(8일) 'IM HERO' 부산공연 개최
--  신한투자증권, 업무처리 기능 강화 챗봇 서비스 개시
--  수협은행, 제주도·중진공과 ‘제주 수산물 수출 활성화 업무협약’ 체결
+-  NAHCON Sets up C’Ttee On Feeding, Accommodation Rules
+-  How Wike Remains Relevant in Rivers Politics
+-  P&G’s Exit: MAN, LCCI Predict Doomsday for Nigeria
+-  Muslims Defy Death Curse, Throng Osun Mosque for Jumat Prayer
+-  NABDA Makes Case for Crop Biofortification to Combat Malnutrition
+-  IATA: Aviation Loan Interest, Premium in Nigeria Highest in the World
+-  Realidade virtual
+-  مؤسسات يهودية تطالب بايدن بوقف إطلاق النار في غزة
+-  بلينكن: نعمل لعودة الهدنة وحماس ترفض
+-  Il Milan ci spera, Leao prova a recuperare per l'Atalanta. Intanto si muove il mercato per gennaio
+-  Bill Belichick to be guest picker on ESPN’s ‘College GameDay’ for Army-Navy
+-  부산middot;울산 종일 맑고 대기 건조hellip;주말에는 기온 올라 포근
+-  GB Foods Restates Commitment to Nigeria’s Agric Devt
+-  Reps to Probe Air Nigeria, Address Air Crashes
+-  6 عوامل تتسبب في ضعف شخصية الطفل
+-  الإطاحة بـ 5 أشخاص لاعتدائهم على آخر في المنطقة الشرقية
+-  EPHRAIM HARDCASTLE: Robert Jenrick once encouraged hundreds of foreign artists, dancers and writers to come to Britain... But now clarions his passion for immigration curbs
+-  Bioskopski program DKC Beograd proglašen najboljim u Evropi
+-  Lajčak na samitu „EU-Zapadni Balkan“: Evropska unija posle dužeg vremena spremna za proširenje
+-  Not your typical Virgen de Guadalupe photo exhibit, Latino theater and more things to do
+-  Can 2024 Budget Renew Our Hope?
+-  Donald Trump Paid 'About' $400,000 to Witness
+-  Астрономы предсказали магнитную бурю на Земле на Новый год
+-  Lien Firefox serait au bord du gouffre avec une part de marché qui baisse vers le seuil critique de 2%
+-  Lien Le prof qui recense les accidents du travail
+-  Everton beats Newcastle 3-0 and moves out of the Premier League relegation zone
+-  ACF Rejects DHQ’s Response to Kaduna Bombing
+-  Major change to money in Australia today: What you need to know
+-  Tottenham 1-2 West Ham: Spurs lacked conviction - Ange Postecoglou
+-  Everton 3-0 Newcastle: Sean Dyche's side in 'psychologically massive' climb out of bottom three
+-  Tottenham 1-2 West Ham: Win at Spurs is huge for West Ham - David Moyes
+-  Canada report finds cyber threat activities targeting elections on the rise worldwide
+-  Lautaro conferma, rinnoverebbe con l'Inter anche oggi... Intanto Bastoni fa ritorno in campo
+-  Harry Kewell poised to replace Muscat in Japan: reports
+-  Boeing signals two-month delay to 737 production ramp-up, sources say
+-  Celebs went for black and white... with very little underneath: SHANE WATSON gives her fashion verdict on the Chanel Metiers d'Art show in Manchester
+-  West Ham fights back to beat Tottenham 2-1 in the Premier League
+-  [박찬일 셰프가 개발한 순천형 특화음식 시식회 열다
+-  [광주시 채무 눈덩이 “2조원 육박”…‘지방재정 위기관리 주의 단계근접’
+-  [델타항공 “한국기업 美투자 증가..애틀랜타 대거 증편”
+-  [김광수 포스코플로우 대표 “3대 혁신 프로젝트 완수, 글로벌 종합물류회사 도약”
+-  [LG엔솔, 폴란드 기업에 3년간 20만개 모듈 공급…“상용차 시장 공략”
+-  [IMM PE, 김유진·유헌석 파트너 승진…엑시트 성과 반영
+-  [[부고]박태훈씨(뉴스1 선임기자) 모친상
+-  [파키스탄 동물원 호랑이 우리서 남성 사망한채 발견
+-  [‘전현희 표적감사 의혹’ 유병호 9일 공수처 출석
+-  [세븐틴·투모로우바이투게더, 빌보드 재팬 휩쓸었다
+-  [“네이버, 일방적 포털 퇴출 부당해”…언론사 첫 승리
+-  [마포구, 주요명소 마포순환열차버스 운행…1일 이용권 자유 승·하차
+-  [“노후 시장에 새 활력” 기업은행, 인천축산물 시장 ‘환경 개선’ 지원
