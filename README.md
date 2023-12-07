@@ -1,11 +1,11 @@
 # Latest News
--  DFB gründet AG Stadionsicherheit - Reaktion von Fan-Kommission
--  В Полоцком районе мужчина избил гаишника
--  Kiew spricht von 28 000 Zivilisten in russischer Gefangenschaft
--  Eskalation vor dem Weihnachtsfrieden - Bahn-Warnstreik hat begonnen
--  Impulsará Canacintra la innovación en las Mipymes
--  Realizan posada a niños de Balleza
--  Paulista A3: Atacante retorna ao União Suzano e confia em acesso: ‘Estamos preparados’
--  Paris: Vivendi revient dans le CAC 40, Worldline en sort
--  Cuarte de Huerva da la bienvenida a la Navidad con villancicos y una chocolatada
--  ISRAELE: Figlio di ministro israeliano ucciso in scontri a Gaza
+-  Pilar Woloszyn confiesa que cocina: estas son las crudas verdades de su nuevo libro culinario
+-  هيئات أممية: وضع غزة الإنساني كارثي
+-  نتنياهو معزيا أيزنكوت: (أنا وسارة نشعر بالحزن)
+-  لاتغفل عنها.. أبرز الاختلافات بين لحم طيور الحبش والدجاج
+-  وصول مساعدات طبية للمستشفى الأردني (2) جنوب غزة
+-  المقاومة أبكت مسؤولا حربيا إسرائيلا دما بمصرع نجله - فيديو
+-  المقاومة أبكت مسؤولا حربيا إسرائيلا دما بمصرع نجله -فيديو
+-  Mayor Gondek will not participate in Calgary’s menorah lighting citing event’s ‘political intentions’
+-  Syyttäjä: Mies tappoi puolisonsa työntämällä tämän parvekkeelta alas
+-  Syyttäjä: Mies tappoi puolisonsa työntämällä tämän parvekkeelta alas
