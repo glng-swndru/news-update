@@ -1,11 +1,11 @@
 # Latest News
--  ΕΛ.ΑΣ.: Ανθρωποκυνηγητό για τον εντοπισμό του δράστη στο Ρέντη - Διασωληνωμένος ο αστυνομικός
--  Vakbonden stappen uit overleg vroegpensioenregeling zwaar werk
--  Grote spoorstaking in Duitsland begonnen, veel hinder verwacht
--  Barendrecht wil alsnog opvanglocatie bij grens met Rotterdam
--  Google-moeder Alphabet stijgt op Wall Street na lancering AI-model
--  Johan Derksen voor het eerst in top 3 Media100, Arjen Lubach op 1
--  Israëlische media delen beelden van Palestijnse gevangenen
--  Fresno Unified’s Health Insurer Creating Headaches for Some Retirees
--  طوني خليفة: لستُ محبوبًا بين زملائي.. وأتمتع بكاريزما جماهيرية
--  وزير الطيران يهنئ العاملين باليوم العالمي.. ويدعوهم بالمشاركة الإيجابية في الانتخابات
+-  "정호 형과 상의"… '타격왕' 손아섭, 2024시즌 홈런 증가 노린다
+-  김혜수, 독보적인 아우라
+-  ['입시 비리' 조민, 오늘 법정 선다…무혐의 입증 가능할까
+-  [용인시, 지방공공기관 구조개혁 우수 지자체 평가서 ‘장려’
+-  [용인시, 화훼농가 1곳, 공기열 냉난방시설 지원
+-  Detectives investigate Melbourne restaurant fire
+-  Detectives investigate Melbourne restaurant fire
+-  President for promoting investment in human resource to benefit from natural resources
+-  Survey of 1,200 doctors points to lengthy health-care wait times in Canada
+-  Ett derby där alla reglage stod på max
