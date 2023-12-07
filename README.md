@@ -1,51 +1,51 @@
 # Latest News
--  Gaziantep'te iki aylık bebeğini öldüresiye dövdü: Sanık babanın cezası belli oldu
--  Die Arbeitslosenquote in Graubünden steigt auf 1,2 Prozent
--  Engadiner Bauunternehmen blitzen im Kernpunkt vor Gericht ab
--  Chińskie myśliwce naruszyły linię mediany Cieśniny Tajwańskiej
--  Četiri načina na koje sami sebi stojite na putu ka sreći u ljubavi
--  Boeren gaan voor uitgebreide uitkoop. Geen interesse in algemene regeling tegen stikstofuitstoot
--  António Costa defende reforço da parceria entre Governo e sector social e solidário
--  Immobilier : les taux d'intérêts continuent d'augmenter
--  Investigație jurnalistică. Armata israeliană, responsabilă de lovitura soldată cu moartea unui jurnalist Reuters
--  Serving female prison officer arrested during major gardai drugs bust
--  Escuela de Yoga: anulan la elevación a juicio, la causa vuelve a foja a cero y los acusados, cerca del sobreseimiento
--  ARD-„Deutschlandtrend“: Kanzler Scholz so unbeliebt wie nie - Ampel-Umfragewerte im freien Fall
--  VIDEO: Presentadora de BBC provoca momento viral al hacer gesto obsceno en plena transmisión
--  Las primeras imágenes de cientos de milicianos palestinos rendidos ante el ejército israelí
--  LUPIO ČOVEKA PO GLAVI Zbog poteza Ace Lukas na svom nastupu MIŠLJENJA SU PODELJENA: Snimak postao viralan na mrežama (Video)
--  ایس ایچ اوز اپنے اپنے علاقوں میں منشیات فروشوں کے خلاف کاروائی تیز کریں جس ایس.ایچ۔او نے منشیات فروشوں کے خلاف کاروائی نہیں کی ان کے خلاف سخت محکمانہ کاروائی عمل میں لائی جائیگی۔ڈی پی او قمرحیات
--  تفاصيل مصرع نجل مسؤول عسكري صهيوني كبير بغزة
--  استقالة فهد الخيطان من إدارة الإعلام في الديوان الملكي
--  تجدد الاشتباكات بين المقاومة والاحتلال في خان يونس
--  Что будет, если сдерживаться и не пукать? Врач дала ответ
--  إليتشيف: التعاون الدولي ضروري لتحقيق أهداف المناخ
--  Bombazo: La drástica decisión de Riquelme con un histórico de Boca
--  Insólito: robó un auto, lo chocó y fue detenido en Godoy Cruz
--  Orosz hackertámadás áldozatává váltak brit politikusok
--  Bybit na czele zielonej rewolucji po wyśmienitym debiucie giełdowym ekosystemu blockchainowego 5ire
--  Vona Gábor: Simicska sosem rakott pénzt a Jobbikba, de megnyitotta előttünk a birodalmát
--  Ukraina elektrības trūkuma dēļ pieslēgusies vairāku valstu elektrotīkliem
--  مسيرة إسرائيلية تستهدف أحد مراكز الدفاع المدني في القطاع الغربي
--  Wiesbadens Wahrzeichen mit Wasserschaden
--  Washington Post për protestën e opozitës: Socialistët bllokuan komisionet hetimore!
--  В ДНР учредили региональное отделение организации "Новая формация"
--  غزواني يضع حجر الأساس لطريق اشميم - انبيكت لحواش
--  Экспорт кондитерской продукции из РФ в 2023 году может достигнуть $1,7 млрд
--  Philosoph Konrad Paul Liessmann mit Ehrenkreuz ausgezeichnet
--  King Charles gets Santa's seal of approval as he meets Father Christmas at festive market: One's at the 'very top of the good list'
--  "Металлоинвест" выплатит дивиденды за девять месяцев в размере 0,259 рубля на акцию
--  Gobierno de México recompra 480 mdd en bonos del aeropuerto cancelado de Texcoco
--  El incómodo comentario de Jorge Pietrasanta tras el gol de Julián Quiñones contra San Luis
--  Cotentin. Ça va bouger dans cette commune pour le marché de Noël
--  إسرائيل في بحارنا.. فما هو دورنا ؟| كتب سالم المسعودي
--  Finska AKT inleder blockad för att stödja Teslaanställda i Sverige
--  في حوارها مع موفد (وال) ببيكين: مسؤولة بإذاعة الصين الدولية تشيد بمهنية وكالة الأنباء الليبية وتدعوها لتوقيع اتفاقية تعاون في مجال تبادل الأخبار.
--  في تصريح خاص لـ(وال) : رئيس مركز الدراسات الصيني العربي للإصلاح يدعوا بلاده لخلق فضاء تنموي واسع مع ليبيا.
--  بطاقة التأهل الثانية للمجموعة السادسة في دوري أبطال أوروبا في انتظار مباريات الاربعاء القادم.
--  تعرف على حكام الجولة الخامسة والسادسة للدوري الليبي الممتاز لكرة القدم.
--  النقابة العامة للعاملين بالمنطقة الحرة مصراتة تحمل الحكومة تبعات قرارها القاضي بتشكيل مجلس أمناء المنطقة الحرة و تطالبها بسحب القرار فورا .
--  الدبيبة يبحث مع المجلس الاستشاري الماليزي التعاون في المجالات الاقتصادية والتعليمية.
--  Республиканцы в нижней палате Конгресса США представили резолюцию об импичменте Байдена
--  ‘What will happen to my child?’: The tough question families on NDIS want answered
--  ‘What will happen to my child?’: The tough question families on NDIS want answered
+-  عضو حملة حازم عمر: هيكلة الاقتصاد وزيادة الاستثمار الزراعي والصناعي أولوية لدى مرشحنا
+-  سعر الدولار اليوم الخميس مقابل الجنيه في 10 بنوك مع نهاية التعاملات
+-  ارتفاع حصيلة القتلى بين الجنود الإسرائيليين في غزة إلى 87
+-  ممثل حملة "يمامة": الدولة لا تنتبه لحصر زراعات القمح.. ونحتاج لمجلس للإصلاح الزراعي
+-  تضم 411 مؤسسة.. ننشر القائمة السوداء للكيانات الوهمية بالتعليم العالي
+-  عضو حملة فريد زهران: نحن بحاجة إلى سياسة مختلفة للتعامل مع الدين العام وسعر العملة
+-  الحكومة بغزة: 17177 شهيدًا بينهم 7739 طفلًا و7700 مفقود
+-  ضد فريقه السابق.. طارق حامد يسجل أول أهدافه في الدوري السعودي (فيديو)
+-  الدفاع السعودية: سقوط طائرة "إف-15 إس إيه" ومقتل طاقمها
+-  كأس العالم للأندية.. ماذا حقق نجوم الزمالك بعد الانتقال إلى الأهلي؟
+-  بالفيديو.. تفاصيل 4 حروب شنتها إسرائيل على غزة خلال 15 عامًا
+-  الديوان الملكي السعودي يعلن وفاة الأمير مقدم طيار طلال بن عبد العزيز
+-  Why BJP gets offended when someone questions EVMs: Bhupesh Baghel
+-  Vers une hausse des taux d’intérêts, la BCEAO a augmenté son taux directeur à 0,25%
+-  Pumas está obligado a ganar la Ida ante Tigres
+-  Rehabilitan refinería... ¡no produce gasolinas!
+-  Salen en busca del pase a Playoffs
+-  Inician comparecencias de directores con regidores
+-  Nuevo Casas Grandes, Moris y Uriachi sin órgano interno de control
+-  Celebra Rusia que Senado de EU bloqueara ayuda a Ucrania
+-  Denuncian paso peatonal despintado en Nombre de Dios
+-  Cierran carriles centrales del periférico por reparaciones
+-  Dará AMLO 'certificados' de posesión a damnificados
+-  Lawsuit says Meta exposes children to exploitation
+-  Bahn-Streik ab Donnerstagabend (7.12.2023): Lokführer legen Arbeit nieder
+-  Wspomnienie miasta zamknąłem we flakonie perfum
+-  Agencję rezerw czekają zmiany
+-  Biznes stoi na zakręcie
+-  Komentarz po sesji: Próba korekty
+-  Danimarka'dan yasa geçti! Aşırı sağcılardan tepki gelse de Kur'an-ı Kerim yakılması yasaklandı
+-  Google, Chrome tarayıcısına yeni bir özellik getirdi
+-  Bahçeli açıkladı: 30 büyükşehirde ortak adayla gireceğiz!
+-  Duvarı delerek girdikleri 10 dairede ne var yok götürdüler
+-  Netanyahu’dan Lübnan’a tehdit
+-  BM: Gazze'deki durumun nereye varacağını hiçbirimiz göremiyoruz
+-  Washington Post çalışanları 1970'lerden bu yana ilk defa grev yaptı
+-  Bayraktar TB3 SİHA 11'inci uçuş testini başarıyla tamamladı
+-  1000 km na rowerze, czyli nietypowy sposób popularyzacji podróży do Polski
+-  Suraj Estate Developers IPO: Check issue date, size and other details
+-  Történelem teszt egy kis csavarral: számolásra is szükség lesz
+-  ΑΝΤΙΔΡΑΣΗ ΣΑ ΠΙΝΤΟ: «Άνθρωποι που δεν έχουν επιτυχία στην καριέρα τους ως προπονητές, είναι καλύτερα να σταματήσουν να μιλούν για μένα»
+-  Zuhal Olcay'dan çarpıcı evlilik itirafı. 3 kez evlenip boşanmıştı
+-  CryptoQuant Says Bitcoin Rally Will Continue, Announces 2024 Price Target! Warned About Correction in the Short Term!
+-  PUNA SALA U KRUŠEVCU: Održava se predizborni skup liste "Aleksandar Vučić - Srbija ne sme da stane" (FOTO/VIDEO)
+-  المودعون اللبنانيون يتخوفون من تحميلهم الخسائر كاملةً
+-  Zoo visitor found dead after staff see tiger ‘holding a shoe in its mouth’
+-  আম্পায়ার্স কমিটির চেয়ারম্যানের বিরুদ্ধে বিসিবি সভাপতিকে চিঠি
+-  Organizations bridging the gap where EBT falls short
+-  САЩ изпращат самолети в Гвиана, която е заплашена от Венецуела
+-  Hatay'da seyir halindeki araç alev alev yandı
