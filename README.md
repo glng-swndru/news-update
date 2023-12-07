@@ -1,51 +1,11 @@
 # Latest News
--  Former TV channel boss takes overdose amid bullying allegations
--  Боки-13: Прво селфи во слобода по четири години затвор
--  FETÖ'nün firari 'emniyet mahrem imamı' Ankara'da saklandığı adreste yakalandı
--  توضيح من أبشر بشأن مواعيد تقييم المرور
--  الوحدات يتنفس الصعداء بإسقاط معان
--  مسيرة لمستوطنين يطالبون بطرد الأوقاف الاردنية من الاقصى - فيديو
--  WM-Viertelfinale nah: Deutsche Handballerinnen mit Sieg gegen Rumänien
--  Avatar Filmlerinden Esinlenen Açık Dünya Oyun Avatar: Frontiers of Pandora Çıktı! İşte Fiyatı, Sistem Gereksinimleri ve İlk Yorumlar
--  GTA 6, GTA 5'ten 12 Yıl Sonra Çıkacak: Peki, Bu Gibi Oyunların Piyasaya Sürülmesi Neden Çok Uzun Sürüyor?
--  World Renowned Cancer Researchers From Spain and U.S. Join Forces to Address Critical Needs and Challenges in Women’s Cancer Research
--  Geluidsoverlast van spelende kinderen? Dat is om te gillen!
--  Carín León y su “Colmillo de Leche” en el top 50 de mejores álbumes del 2023
--  Кнайсль: Путин — интеллигентнейший джентльмен, каких я встречала немного
--  Tri HNL kluba u igri za igrača koji je igrao u Bundesligi?
--  As fortes palavras que custam a Jorge Costa 17 dias de suspensão
--  LIVE: geen Stengs bij Feyenoord, Slot laat middenvelder basisdebuut maken
--  San Juan de Lurigancho tendrá el cine más avanzado del país
--  Andrew Tate tells Piers Morgan he ‘gave him Covid’ in shocking exchange
--  Tesla’s head of Dojo supercomputer is out, possibly over issues with next-gen
--  Астрофизики разгадали причину аномального поведения нейтронных звезд
--  واشنطن تدرس اتفاق "لبناني - إسرائيلي" بشأن الحدود!
--  CES 2024: Hisense prezentuje przyszłość technologii wyświetlania
--  Bravery Gaming, LLC Launches New COAM Games in Georgia Via Exclusive Partnership with Gaming Arts, LLC
--  Los vídeos con humanos digitales ganan popularidad gracias a la inteligencia artificial
--  ¿Qué son los geoparques mundiales de la UNESCO y cómo cambian la enseñanza de la geología?
--  Impulsan jornadas urológicas en beneficio de pacientes en el estado mexicano de Oaxaca
--  ¿Estamos consiguiendo educar en igualdad?
--  القسام: دمرنا 135 آلية عسكرية إسرائيلية في الـ72 ساعة الماضية
--  Headline inflation increased in November, after 9 months of decline
--  Man Who Murdered Drew Carey's Ex-Fiancée Sentenced To Life In Prison Without Parole
--  9to5Mac Daily: December 7, 2023 – New Macs and iPads coming soon, more
--  Fiscalía antidopaje pide 4 años de suspensión para Paul Pogba
--  AMLO culpa a la oposición de inflar cifras de “falsos” desaparecidos
--  McDonald's Sets New Targets in Growth Strategy
--  COP28 enfrenta negociações difíceis para ações pelo clima
--  Mu-Del Electronics, an Ironwave Technologies company, Receives Production Contract for Navy Surveillance Program
--  WM-Viertelfinale nah: Deutsche Handballerinnen mit Sieg gegen Rumänien
--  „Google“: naujasis DI - galingiausias pasaulyje (Video)
--  „Beveik 90 % iš 68 milijardų dolerių...“ Sensacinga žinia. Kas nutiko Ukrainai skirtiems pinigams (Foto)
--  [ŽT] „Dabar bus šakės...“ Rusijoje panika. Skelbiama, kad Ukraina slapta gavo ypatingą ginklą
--  [ŽT] Kas nutiko pradingusiam Kinijos ministrui. „Politico“ sužinojo šiurpią paslaptį
--  Συντριβή μαχητικού αεροσκάφους στη Σαουδική Αραβία - Νεκροί οι δύο επιβαίνοντες
--  Paulista A2: São Bento anuncia zagueiro vindo do Figueirense para 2024
--  Las sequías de ayer, de hoy y de mañana
--  ‘I won millions on Squid Game but I had conflicting feelings’
--  Natalia Kukulska otwiera się na temat terapii. "Potrzebowałam takiego wsparcia"
--  Малолетничка удрена од возило на булевар „Србија“, пренесена е во болница
--  صحافی جان محمد قتل کیس میں 8 ملزمان کے سر کی قیمت مقرر کرنے کی سفارش
--  Pharmacie, Sanofi : le moine apothicaire
--  الجيش الإسرائيلي يكشف هوية عضوين في حركة "حماس" ادعى أنه قتلهما في غزة
+-  Sancti Spíritus: Homenaje eterno a los mártires internacionalistas (+fotos)
+-  Sejm przyjął ustawę o ochronie odbiorców energii w I poł. 2024 r.
+-  Kapolri Mutasi 500-an Perwira, Ada Nama Adi Vivid, Andi Rian Djajadi Hingga Hengki Haryadi
+-  Oglasio se Ahmedhodžić nakon što je odbio nositi LGBT boje: Ponosan sam, Alhamdulillah
+-  Instalingo : Le substitut du procureur de la République de Sousse suspendu
+-  Lo último de WhatsApp te permitirá enviar audios que se «autodestruyen»
+-  Отказавшийся от флага России чемпион мира отреагировал на слова Рамзана Кадырова о Владимире Путине
+-  Son dakika! Azerbaycan ve Ermenistan'dan barış anlaşması
+-  Letterkenny Season 12 Trailer Shows off the Canadian Comedy’s Final Season
+-  Gwyneth Paltrow hasn’t seen ‘Avengers: Endgame’: “I stopped watching Marvel movies at some point”
