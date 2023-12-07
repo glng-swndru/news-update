@@ -1,51 +1,51 @@
 # Latest News
--  Появилось видео из гимназии Брянска во время устроенного школьницей расстрела
--  티몬, 식품 PB '베리밸류'로 가성비 트렌드 공략
--  Cuối năm, người dân cần cảnh giác trước cạm bẫy tín dụng đen
--  30대 여의사, 5명 살리고 하늘 나라로
--  [의료24시] 분당서울대병원, 상급종합병원 건강검진센터 최초 AI 보이스봇 도입
--  La Grande Braderie de la Mode de AIDES, le bon plan shopping engagé de cette fin d'année à Paris
--  İkinci El Otomobillerde 6 Ay/6000 Km Sınırı ve Sıfırından Pahalıya 2. El Satma Yasağı 1 Temmuz'a Kadar Uzatıldı"En Ucuz Tesla" Olacak Model 2 Hakkında Açıklama: "Aklınızı Başınızdan Alacak"İkinci El Otomobillerde 6 Ay/6000 Km Sınırı ve Sıfırından Pahalıya 2. El Satma Yasağı 1 Temmuz'a Kadar Uzatıldı
--  Giám đốc Sở Lao động Thương binh và Xã hội tỉnh Phú Thọ có phiếu "tín nhiệm cao" thấp nhất
--  अष्ट्रेलियाको आर्थिक वृद्धि तेस्रो त्रैमासिकमा ०.२ प्रतिशतमा घट्यो
--  L'un des plus anciens marchés de Noël du Cotentin a lieu ce week-end
--  Πρόγραμμα «REACT» της Κωτσόβολος: «Μαζί, για έναν Καλύτερο Κόσμο!»
--  ВТБ завершит интеграцию «Открытия» к концу 2024 года
--  В Великом Новгороде пройдут мероприятия ко Дню Героев Отечества
--  В Польше испугались превращения Украины во второй Афганистан
--  LIVE BLOG: Ο Ταγίπ Ερντογάν στην Αθήνα - Λεπτό προς λεπτό η επίσκεψη του Τούρκου προέδρου
--  Google Removes Scam Loan Apps: கடன் வழங்குவதாக இந்தியர்களை மிரட்டி, ஏமாற்றிய கந்துவட்டி லோன் செயலிகள் பிளே ஸ்டோரில் இருந்து அதிரடி நீக்கம்: கூகுள் தடாலடி செயல்.!
--  فتاة رفضت دخول رجل المصعد معها ولكنه اصر على الدخول.. مفاجأة بشأن ما حدث بينهما بالمصعد
--  خبير تكنولوجي ينصح بوضع الراوتر فى تلك الأماكن فى المنزل وستنبهر بسرعة النت
--  انتبه.. علامات لو ظهرت علي ابنك ستكون مؤشر لإدمانه الألعاب الإلكترونية
--  ليست السعودية.. هذه الدولة تمتلك اكبر احتياطي من النقد الأجنبي وتستطيع تغيير الموازين بضغطة زر
--  التشيك تسجل 2000 حالة إصابة بكوفيد يومياً
--  يؤخر الشيخوخة ويخفض خطر الإصابة بالسكري.. الكشف عن 5 أنواع من الشاي وأكثرها فائدة للصحة
--  أطعمة تساهم في زيادة تدفق الدم إلى الأوعية الدموية
--  الصين: بدء تشغيل أعمق مختبر فيزيائي تحت الأرض على مستوى العالم
--  "C'est extraordinaire" : au cœur de la plantation de la première forêt urbaine de Paris
--  Mangaluru ‘Shashti Mahotsav’: Muslim vendors allege temple administration not allowing them to set up stalls
--  지난해 가구소득 평균 6762만원…1억원 넘는 가구 비중은 20%
--  PS5: Sonys Nishino hebt die Vorteile gegenüber einem PC hervor
--  함안군자원봉사센터, 고령운전자 안전운행 캠페인 진행
--  밀양교육지원청, 밀양교육행정협의회 정기회
--  함안군 안전협의체, 칠원읍 여성의용소방대와 간담회 개최
--  고성 청년-청소년 공유 간담회
--  양산시 소주동, 복지사각지대 발굴 캠페인
--  양산시 덕계동, 저소득계층 겨울이불 후원
--  하동군, 장애인 일자리사업 확대 추진
--  남해군, 경남도 자원봉사대회서 다수 수상
--  검찰, 거제시장 수사·재판서 신뢰 타격
--  China e União Europeia devem contribuir juntas para a estabilidade global, afirma Xi Jinping
--  한 총리, 육군훈련소 방문…"국민의 생명 내 손으로 지킨다는 신념으로"
--  거창 남하면 공유냉장고에 기부 이어져
--  양산시 하북면새마을회, 사랑의 김장 나눔
--  Musk's SpaceX To Sell Insider Shares At $175 Bn Valuation: Report
--  Erik Aresta smúti za Haščákovou. Barborka bude so mnou na každom vystúpení, hovorí
--  Τσιάρτας: «Δεν έχω λόγο να μην συγκρίνω τον εαυτό μου με τον Λιονέλ Μέσι»
--  Kickoff | Angry Klopp hits out at 'ignorant' comment aimed at him
--  Oväntat stort lyft för Kinas valutareserv
--  Tanınmış şairə ağır itki
--  Öncelikli hedef ligde kalmak!
--  How To Delete Check-Ins On Facebook
--  [종합] 바이든 방문 3개월 만에 시진핑도 베트남 방문
+-  प्रस्तावित राजदूत र न्यायाधीशविरुद्ध ११ वटा उजुरी
+-  रोकिएन महिलामाथिको शृङ्खलाबद्ध हिंसा
+-  आलु उत्पादन प्रवर्द्धनमा तीन करोडको लगानी
+-  पञ्चासेमा बालाचतुर्दशी मेला
+-  Ender Saraç'a skandal iddia!
+-  Yılmaz Büyükerşen'den 'adaylık' açıklaması: Kendimi yaşlı hissetmiyorum!
+-  Milyonlarca emekliyi ilgilendiriyor! Yaş şartını giriş tarihini belirliyor
+-  TÜİK açıkladı: Sağlık harcamalarında yüzde 71,5 artış
+-  Süper Lig'de 15. hafta heyecanı yarın başlıyor
+-  Cumhurbaşkanı Erdoğan Yunanistan'da
+-  대전시 동구, 올해 고향사랑기부제 목표액 조기 달성
+-  허태정 전 대전시장, 유성을 출사표 quot;현 정권middot;탈당한 이상민 심판quot;
+-  대전시 탑립middot;전민지구 개발제한구역 해제 조건부 의결
+-  한국거래소 대전혁신성장센터 문 열고 본격 운영
+-  대전시 중구, 전세계약 주의사항 등 피해예방 교육
+-  가톨릭대 대전성모병원 QI경진대회 개최hellip;병동1팀 최우수
+-  대전시 서구, 행안부 특별교부세 16억 원 추가 확보
+-  김순호 구례군수, 시정연설 통해 2024년도 군정 비전 제시
+-  구례군, 탄소중립 흙 살리기 중장기 발전계획 연구용역 최종보고회
+-  이낙연, 이재명 회동설에 quot;사진 한 장 찍는 거면 의미 없다quot;
+-  임태희 quot;기존학교 + 공유학교, 경기도 공교육 전체 모델quot;
+-  [금융IT이노베이션] 알테어, "금융사 위한 실시간 BI 기술 제공은 우리만 가능"
+-  네이버, 사우디 디지털 전환 사업 속도…현지 기업과 협력
+-  글로벌 여행 플랫폼 ‘클룩’, 2760억원 규모 시리즈E+ 투자 유치
+-  SK(주) C&C, 2024년 조직 개편 및 임원 인사 단행
+-  Google Pixel Fold and Tablet now let you force apps into specific aspect ratios
+-  Azerbaycan'da 5,6 büyüklüğünde deprem meydana geldi
+-  Karamanlı üreticiler, elmanın büyükşehirlerde 4 katı fazla fiyata satılmasından rahatsız!
+-  Peynirin lezzetine lezzet katan mağara: Divle Obruk Mağarası
+-  Akşener’e kızdı, İYİ Parti’den istifa etti
+-  From comedy to Christmas bazaar: Three exciting things to do in Mumbai
+-  Perfectly Snug Smart Topper Review: Worth the Cost?
+-  Live-in relationship `dangerous disease`, should be law against it: BJP MP in LS
+-  Nufarm CBD Gummies Reviews “UPDATED” Must Read This Before Purchase
+-  Revanth Reddy sworn in as Telangana CM
+-  Black Falcon Drone Reviews "MUST READ" Before BUY This Black Falcon 4K Drone!
+-  Алиев назначил внеочередные президентские выборы в Азербайджане
+-  Pertukaran Pengerusi UMNO Terengganu penuhi aspirasi rakyat
+-  Muxuu Ten Hag Ka Yidhi Gushii Ay Kooxdiisu Ka Gaadhay Chelsea.
+-  كشف سر ارتفاع عدد القتلى الضباط في جيش الاحتلال
+-  조해진 의원, '2023 대한민국 한센대상 특별상' 수상
+-  طقس بارد نسبياً الخميس
+-  Gobind beri sumbangan pada keluarga Zayn Rayyan
+-  أسعار العملات مقابل الريال القطري
+-  Fortnite down updates — Servers disabled to prepare for new LEGO update – downtimes revealed
+-  انتخاب التونسي هيكل بن محفوظ في منصب قاض بالمحكمة الجنائية الدولية
+-  Today's 'Wordle' #901 Answer, Clues and Tips for Thursday, December 7 Game
+-  Bahn will jeden fünften Fernzug fahren lassen
+-  Vianočné trhy budú v Špačinciach, Vlčkovciach, Chtelnici aj v ďalších obciach
+-  महाराष्ट्र विधानसभा के शीतकालीन सत्र का पहला दिन:सरकार ने पेश किए 5 बिल, विरोध में विपक्ष फल-सब्जी की माला पहनकर पहुंचा
