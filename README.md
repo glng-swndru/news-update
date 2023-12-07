@@ -1,51 +1,51 @@
 # Latest News
--  Sıfır otomobillerde dev indirim ve yüzde 0 kredi kampanyası… Tüm markaları sıraladık, işte avantajlar
--  Ο Γκουτέρες χρησιμοποίησε το άρθρο 99 του Καταστατικού Χάρτη του ΟΗΕ - Έντονος εκνευρισμός στο Ισραήλ
--  경상북도장애인체육회, 장애인체육 스포츠발전을 위한 워크숍 개최
--  EPL 득점 3위 손흥민·4위 황희찬, 나란히 연속 득점포 정조준
--  김하성 "공갈 협박당했다" 같이 뛰던 후배 야구선수 고소
--  Nikola Jokic has career-worst shooting performance as Nuggets fall to Clippers in Jamal Murray’s return
--  quot;창원지역 층간소음 차음 막아라quot;
--  전남교육청 감사관은 왜 사망했나?hellip;평소 온화하고 쾌활했으나 극단 선택 '의문'
--  Mysterious Star at Heart of Milky Way Appears to Be From Alien Galaxy
--  김영석 전 해양수산부 장관, 22대 총선 출사표
--  Giá xe KIA Sorento tháng 12/2023: Tụt không "phanh"
--  Mọi tranh chấp biển cần giải quyết bằng các biện pháp hòa bình theo UNCLOS
--  وفيات الـيوم الخميس
--  العلماء يزعمون: الزواج قد يرفع ضغط الدم حقا!
--  مخاوف إسرائيلية من تهريب الأسرى إلى مصر
--  ريال مدريد يمهل مبابي 15 يوما كفرصة أخيرة
--  10 نصائح لتحقيق حلم السعادة في مرحلة التقاعد
--  Cuiabá goleia o Athletico-PR e termina o Brasileirão na 12ª posição
--  2024戒掉呆美元定存？專家3大理由建議這樣投資
--  داخل جامعة في لاس فيغاس.. هجوم مسلح يخلف 3 قتلى
--  Santos perde para o Fortaleza na Vila Belmiro e é rebaixado no campeonato Brasileiro
--  Corinthians bate o Coritiba por 2 a 0 e encerra sua participação no Brasileirão na 13ª colocação
--  Top Olympians join highschool students advocating for changes to 2032 Brisbane Olympics
--  Kort sagt om trafik, Agnes, politik, bussar
--  Yazarların Trabzonspor yorumları
--  На 7 декември 1941 г. Япония напада военноморската база Пърл Харбър на Хавайските острови
--  Husilerden İsrail'e mesaj: Balistik füzeyle hedef aldık
--  فایق: سیاست‌های استبدادی طالبان افغانستان را در انزوای بین‌المللی قرار داده است
--  В ВТБ заявили о планах увеличить сеть офисов на 40% за три года
--  Guten-Morgen-Grüße am Donnerstag, 07.12.2023: Whatsapp-Sprüche und Bilder zum Verschicken
--  Wheat pauses after hitting 4-month high on US sales to China
--  לחנוכה, ולכל יום אחר בשנה: לביבות תירס שהילדים הכי אוהבים
--  דיווח: חמאס "הלשין" על הג'יהאד האסלאמי כדי להטעות את ישראל
--  Alvaro Fidalgo deja atrás la goleada a San Luis y sólo piensa en que el América levante la '14'
--  Executive Director Madhivanan Balakrishnan Resigns From IDFC First Bank
--  Hyundai Motor, tek tekerlekli tahrik sistemini tanıttı
--  Phẫu thuật não chữa khỏi bệnh động kinh khi người bệnh ở trạng thái tỉnh táo
--  Депутатите решават кога да отпадне дерогацията за "Лукойл"
--  Consumidores mostrarán cautela para festejos de fin de año
--  देश की खबरें | अयोग्यता याचिकाओं पर सुनवाई के लिए अतिरिक्त समय देना होगा: महाराष्ट्र विधानसभा अध्यक्ष नार्वेकर
--  Giảm chi phí, tăng thu nhập, tài xế xe ôm công nghệ chuyển sang xe điện VinFast
--  'Les da vergüenza decir que son del PRI'
--  Singtel develops next-generation artificial intelligence data centre to meet demand
--  Colossus hits continue for Viridis as Brazil project grows
--  (사)한기범희망나눔, ‘후원의 밤’ 나눔 자리 마련
--  서부발전, 오만 태양광사업 PF 계약 서명
--  Chine: rebond surprise des exportations mais reprise encore fragile
--  Готов ли е бизнесът в САЩ за Тръмп 2.0?
--  LS전선, 유럽 북해 해상풍력 HVDC 케이블 본계약
--  SK이노 계열, 대대적 임원 인사·조직개편…내년 불확실성 대응
+-  강원교육, ‘수능 성적 하위권’ 탈출 실패… 2024학년도 수능 채점 결과 발표
+-  로보컵 아시아퍼시픽 2023 평창 개막
+-  [속보] '역대급 불수능' 국영수 모두 어려웠다… 전 영역 만점자 1명
+-  강원사회복지공동모금회, 도내 취약계층 가구 5000곳에 난방비 지원
+-  홍천군번영회 송년의 밤
+-  NH농협양양군지부 농협 성금
+-  해송라이온스 이웃돕기성금
+-  양양 명륜중 총동문회 회장 이·취임식
+-  횡성 마옥리 경로회관 준공
+-  경동대 사회공헌센터, 독거노인 가정 위한 ‘정 나눔 봉사’
+-  원주 반곡아이파크아파트 제7호 천사아파트 현판 제막
+-  삼척 양말 기탁
+-  상지대, 이종석 전 통일부장관 초청 안보 특강
+-  한일현대시멘트 영월공장 연탄배달 봉사활동
+-  농협화천군지부 장학금 기탁
+-  원주 들꽃가든, 독거어르신 김장 지원금 100만원 전달
+-  화천읍 주민자치프로그램 발표회
+-  원주 우산동 청년 수학여행 1기 사례발표회
+-  국민의힘 춘천시갑 당협위원회 연탄나눔 봉사
+-  새강릉새마을금고 물품 후원
+-  한림성심대, 기말고사 간식데이 행사 진행
+-  도체육회 회원종목단체 전무이사협 양구사회복지협에 사람의 연탄 기부
+-  도교육청, 2023 강원학교운동부지도자 역량강화 연수
+-  [Health 건강] "4시간 이상 휴대폰 사용 청소년, 정신건강·약물 위험 높다"
+-  노용호 의원, 한국산업단지공단과 춘천서 '사랑의 연탄 나눔 봉사 활동' 진행
+-  횡성 둔내면 인구 30년만에 6000명 넘어섰다
+-  제주마을-기업 손잡고 상생일자리 창출 ‘한마음’
+-  빔소프트웨어, 데이터 보안 ‘제로 트러스트 모델’ 도입
+-  [인사] SK스퀘어
+-  SK스퀘어, '듀얼 CIO' 체제로…반도체 투자전문성 강화
+-  Brezilya'dan AB'ye 'serbest ticaret anlaşması' çağrısı
+-  Османи во Брисел за завршниот скрининг состанок помеѓу ЕУ и Северна Македонија и за Самитот ЕУ-Западен Балкан
+-  Krösche kritisiert Eintracht-Schönspieler
+-  Federal Bank Raises Fixed Deposit Rates For Residents & Non-Residents
+-  MGNREGA Funds Release To West Bengal Stopped Due To Non-compliance Of Centre's Directives: Govt
+-  Revanth Reddy Set to Take Oath As Telangana's New Chief Minister, 12 Ministers To Join In
+-  Instant Noodles Market to Reach USD 81.96 Bn by 2029, emerging at a CAGR of 5.94 percent and forecast 2023-2029
+-  Blake Lively’s Praise for Taylor Swift and Beyoncé for Empowering Women
+-  US man faces court over Wieambilla police shootings
+-  US man faces court over Wieambilla police shootings
+-  US man faces court over Wieambilla police shootings
+-  AMOLED Flexible Display Devices Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
+-  Nekad kriminalac, danas maneken: Barcelona angažirala hrvatskog glumca za novu reklamu
+-  엔씨소프트, '제22회 정보보호 대상' 과기정통부 장관상 수상
+-  KB금융 홈페이지 새 단장, 편의성 및 접근성 제고 위해 UI/UX 전면 개편
+-  Neodoljiv kolač s jabukama i orasima poslužite uz kavu ili čaj
+-  Full speed ahead for nuclear subs with US breakthrough in sight
+-  Full speed ahead for nuclear subs with US breakthrough in sight
+-  Full speed ahead for nuclear subs with US breakthrough in sight
+-  นายอำเภอแม่ฮ่องสอน ลงพื้นที่ตรวจเยี่ยมโครงการแก้ไขปัญหาสัญชาติ และสถานะบุคคล
