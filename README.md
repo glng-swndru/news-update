@@ -1,51 +1,11 @@
 # Latest News
--  İYİ Parti'deki istifa sonrası çok konuşulacak çıkış: İmamoğlu satın aldı
--  Maaşı bağlanmayan EYT'liye önemli uyarı
--  라파스, mRNA 마이크로니들 백신패치 본격 개발 착수
--  Участок федеральной трассы на Сахалине закрыли из-за непогоды
--  From overgrown and neglected to a renovated mid-century marvel
--  국회 앞 모인 전세사기 피해자들 "연내 특별법 개정해야" 호소
--  रमजान के इफ्तार को दुनिया में मिला बड़ा सम्मान, ईरान और तुर्की की कोशिश लाई रंग
--  IIT BHU में नौकरी का मौका, पुस्तकालय अधीक्षक सहित विभिन्न पदों के लिए जल्द करें अप्लाई
--  창원시, 일자리 창출 우수기업 5개사 표창
--  Libertadores-2024 conhece brasileiros da fase de grupos e tem 42 classificados; veja quem disputa as 5 vagas restantes
--  São Paulo encaminha saída de cria de Cotia e dá sequência a plano para 2024
--  Bruno Henrique vai sair do Flamengo? Atacante dá resposta direta e crava futuro no clube
--  Renato Gaúcho recorda lance polêmico que poderia ter dado título brasileiro ao Grêmio: 'Tivemos mais vitórias que o Palmeiras'
--  Com 1º gol de Vera, Corinthians fecha com vitória sobre Coritiba
--  Suárez se despede com 2 gols, e Grêmio vira sobre o Fluminense
--  São Paulo vence, e Flamengo termina em 4º no Brasileirão
--  Vasco consegue vitória heroica em São Januário e escapa da queda
--  Botafogo perde e termina fora da fase de grupos da Libertadores
--  Tiquinho faz forte desabafo e pede desculpas: 'A gente também sonhou bastante'
--  O drama em 10 atos: como Botafogo perdeu o título 'mais ganho' da história do Brasileirão?
--  Veja quanto seu time faturou de premiação pela posição no Brasileirão
--  Palmeiras e São Paulo farão final da Supercopa do Brasil; veja quando será
--  Rodada maluca deixa 3 torcidas desesperadas e tem 6 trocas na degola até queda do Santos; veja a linha do tempo
--  Neymar manda recado de apoio após rebaixamento do Santos; veja mensagem
--  Santos sofre 1º rebaixamento da história e se junta a grupo dos grandes a cair para a Série B; relembre todas as quedas
--  Palmeiras ganha Brasileiro pela 1ª vez fora do eixo Rio-São Paulo
--  Palmeiras bate recorde com maior virada dos pontos corridos
--  Quanto Palmeiras ganhou em prêmios por títulos em 2023
--  Abel exalta elenco do Palmeiras e deixa dúvida no ar: 'Não sei se tenho energia para continuar a tirar o máximo deles'
--  Leila diz que terá conversa com Abel sobre futuro: 'Farei o possível e o impossível'
--  Os 7 atos que fizeram Palmeiras levar o Brasileirão pelo 2º ano seguido
--  How this maverick investor pulled off a $20 million (legal) corporate heist
--  How this maverick investor pulled off a $20 million (legal) corporate heist
--  [인사] 한국수자원공사
--  Animal वाले रणबीर के ऑन कैमरा पापा के हाथ में दिखा ये फोन, खरीद सकते हैं आप भी
--  Le PSG au cœur d’une guerre sur le mercato ?
--  에스파 '베터 띵스', 美 뉴욕타임즈 '2023 베스트송' 선정
--  Катастрофа на бул. "Ломско шосе" в София, след опит за дрифт
--  UN Secretary-General playing into hands of Hamas, must resign: Israeli Ambassador
--  الحرب على غزة في يومها الـ62 .. لحظة بلحظة
--  കണ്ണീരോടെയാണ് ഈ തിരക്കഥ പൂര്‍ത്തിയാക്കിയതെന്ന് തിരക്കഥാകൃത്ത് അഭിമുഖത്തില്‍ പറയുന്നുണ്ട്, കണ്ണീരോടെയല്ലാതെ ഈ സിനിമ കണ്ടു തീര്‍ക്കാന്‍ സാധിക്കുകയുമില്ല
--  Đen Vâu bảo việc tốt thì ai cũng làm được
--  Người xưng "đại đức Thích Tâm Phúc" bị bắt, đối mặt hình thức xử lý nào?
--  '최태원 장녀' 최윤정, SK바이오팜 임원 승진…'최연소 임원'
--  Tiroteos en EE.UU.: detienen a acusado de matar a sus padres y cuatro personas más a tiros en Texas
--  Giám đốc Sở Y tế Cần Thơ chỉ có 34% phiếu 'tín nhiệm cao'
--  Парламент Сальвадора продлил режим ЧП для борьбы с преступностью до 2024 года
--  [인사] SK이노베이션
--  Τίμπεργουλβς - Σπερς 102-94: Οι λύκοι... δάγκωσαν ξανά (vid)
--  Экспорт рыбопродукции из Приморья в Китай вырос на 28 процентов
+-  'ท่านอ้น' บุกร้าน 'เจ๊ไฝ' ชิมไข่เจียวปู บอกอร่อยทุกจาน-สมชื่อ
+-  โจรแสบขโมยน้ำอัดลมร้านค้าริมถนนเหลือแต่น้ำเปล่าหลบหนีลอยนวล
+-  Повлияет ли на таджикский рынок подорожание риса в Казахстане?
+-  71 border pillars of no-men&#039;s land being repaired
+-  Sensex, Nifty snap seven-day rally; Hindustan Unilever, Bharti Airtel major laggards
+-  Ļoti sausa roku āda ziemā - seši vienkārši līdzekļi, ko darīt (+ ko nedarīt)
+-  [오피셜] ‘안양과 결별’ 이우형 감독직 물러난다! ‘테크니컬 디렉터로 보직 변경’
+-  '아이언 터틀' 박준용, 10일 무니즈 상대로 韓 최초 UFC 5연승 도전...박현성은 데뷔전 출격
+-  SON 캡틴이 다시 작성하는 주장의 품격! “공감하는 리더야! 강압적인 건 시대에 뒤떨어져”
+-  EU Agrees On Rules For AI, Including ChatGPT
