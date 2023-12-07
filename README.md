@@ -1,11 +1,51 @@
 # Latest News
--  House bought with stolen Phala Phala money sold to Namibian national, court told
--  Some Diepsloot residents again accuse law enforcement of tardy response to crime
--  Struggle veteran Mavuso Msimang cuts ties with ANC
--  Judgment reserved in EFF bid to halt another disciplinary hearing against MPs
--  PDP Decries Bombing Of Kaduna Community, Seeks Investigation, Compensation
--  In Pursuit of the Future ‘Faker’: Esports Teams Launch Academies Amid Financial Struggles
--  On je "opasnost po svetski mir"?
--  What’s on this weekend
--  Tourism potential of Philippines, Korea discussed at GBF
--  Don’t Destabilise Ondo, Parties Warn Political Actors
+-  "엔비디아 H100 1.6배 성능" AMD, 데이터센터 AI GPU, 인스팅트 MI300 라인업 출시
+-  네오위즈, '디제이맥스 리스펙트V' 신규 DLC 'V 익스텐션 5' 출시
+-  델 테크놀로지스, AMD 인스팅트 가속기 탑재한 서버 선보이며 생성형 AI를 위한 개방형 생태계 확장
+-  앱코, 공간 활용이 용이한 USB 타입 사운드바 'S600' 출시
+-  앱코, 새롭게 돌아온 블루투스 진공관 스피커 'S2000RVBT CLASSIC' 출시
+-  반려견 동반 가능한 친환경 애플 스토어? 미리 가본 '애플 스토어 하남'
+-  स्थायी बन्ध्याकरण गर्नेमा पुरुषभन्दा महिला बढी
+-  ९९.०४ प्रतिशत पुनरावेदनको अन्तिम निर्णय
+-  समायोजन भएका विद्यालयका ७५ जना शिक्षकको दरबन्दी मिलान
+-  जलवायु चुनौतीको सामना गर्न प्रकृतिमा आधारित समाधानका उपाय अवलम्बनमा जोड
+-  بسبب المقاطعة.. ستاربكس الأمريكية تخسر 12 مليار دولار في 20 يومًا
+-  Με υψηλό κίνητρο υποδέχεται τη Ρεάλ ο Παναθηναϊκός
+-  Reese, Internet-Star, Drama: Der "gigantische" Pokal-Abend von Hertha BSC
+-  Priyanka Gandhi Vadra slams `merciless bombing` of Gaza
+-  `You are rizz`: Amitabh Bachchan uses Oxford`s word of the year
+-  Israel PM Netanyahu says `only matter of time` until Hamas chief is found
+-  Más de dos meses fuera de Cuba, fuera también de la libreta de racionamiento
+-  Ko to hoće u Skupštinu Srbije: Na izbornim listama (ponovo) najviše ekonomista i pravnika
+-  Полиция нашла у жителя Запорожской области два ПТРК
+-  Руската авиация използва най-новото си оръжие срещу ВСУ в тунелите на Авдеевския коксохимически завод
+-  Παπαμιχαήλ και Γραμματικοπούλου στα προημιτελικά του διπλού στο Μοντεβιδέο
+-  Siết phân lô bán nền tác động thế nào đến thị trường bất động sản?
+-  РИА Новости: в Петербурге четыре человека пострадали при взрыве в котельной
+-  Berberde sıra beklerken husumetlisi tarafından tabancayla vuruldu; o anlar kamerada
+-  Kaçak silah ticareti yapan ve depolarında cephanelik ele geçirilen 3 şüpheli serbest bırakıldı
+-  Üzerine tomruk devrilen kamyon sürücüsü öldü
+-  Motorine indirim geldi! Konya'da motorin ne kadar oldu?
+-  Evlenmek isterken 102 bin lira ve 50 gram altınından oldu!
+-  Süper Lig'de 15. hafta heyecanı yarın tek maçla başlayacak
+-  이운성 완주군청 노조 위원장, 건전노사관계 구축 유공 대통령상
+-  그림책 속 캐릭터와 동심의 만남hellip;금암도서관, 내년 2월 말까지 인형 전시
+-  창원시, 겨울방학 대학생 아르바이트 참여자 모집
+-  경남투자경제진흥원, 외국인투자 본격 확대
+-  완주군, 약국middot;식당 등 '치매안심가게' 12곳 추가 지정
+-  농협중앙회, 농업 올 인 원(All In One) 빅데이터 플랫폼 'N허브' 오픈
+-  전북 농어촌公, 창립 115주년 quot;농어업의 지속가능한 미래 실현quot; 다짐
+-  완주군, 감사원 자체감사활동 심사서 '최고등급' 달성
+-  정원호 전북은행 노조위원장 연임 성공hellip;99.03% '압도적 지지'
+-  익산 명품 탑마루 농산물, 서울 시장을 사로잡다
+-  경기도-경기남부경찰-LH, '여성폭력 피해자 안전 지원' 협약
+-  Amerika i politika: Udarac za Zelenskog i Netanjahua - Senat odbio zakon o pomoći Ukrajini i Izraelu
+-  창원시의회 건설해양농림위, 축산종합방역소 준공식 참석
+-  Komentář: Rusko fašistickým státem? Je to s ním ještě horší
+-  LGES, KAIST enable EVs to go 900 km on single charge
+-  Auction house Phillips appoints new regional director of Korea
+-  मौद्रिक नीति मात्र दोषी छैन
+-  Ταινίες Πρώτης Προβολής: «Η Τελευταία Παμπ» και «Ο Μαέστρος»
+-  Kyoto Animasyon stüdyosu saldırganı için idam cezası talebi
+-  İstanbul'da yoğun trafik
+-  Yeni 200 TL banknotlar tedavüle verildi
