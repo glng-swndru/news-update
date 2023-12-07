@@ -1,51 +1,51 @@
 # Latest News
--  Alistan la exposición: Jesús Reyes Heroles en la tinta de 13 caricaturistas
--  El Banco de México observa sistema financiero fuerte
--  Hasta el último aliento, vida silvestre resiste muro en la frontera
--  Fabregas a Como? Stesso passo di Longo, ora il test Modena
--  Nba, Doncic leggendario contro Fontecchio. Embiid batte Gallinari
--  Germania, tutti pazzi per la Coppa: quante squadre di Serie B e C!
--  Iaquinta, buon sangue non mente: dalla Juve alla D è caccia al gol
--  Dybala e Oriana, perché si parla di crisi? Cos'è successo
--  Od 1. januara i ruski dijamanti pod sankcijama
--  Asgari ücrete Erdoğan müjdesi
--  Fresh disruption to train services as drivers strike again
--  Openreach hits milestone in bid to connect 25m premises to ultrafast broadband
--  Waitrose customers turn to 'comfort foods' chicken Kyiv and beer-battered fish
--  Cash usage has grown for first time in a decade, British Retail Consortium finds
--  World-class agri genomics center to rise in PH university
--  푸드테크 스타트업 크레오코리아, ‘에이트 키친’으로 식당 구인난과 인건비 문제 해결
--  Facebook Messenger: les conversations seront désormais chiffrées, comme sur Whatsapp
--  Borba protiv terorizma prioritet za Evropsku uniju i Europol
--  Exposure to PFAS may affect bone health in adolescents & young adults
--  '청년이어드림' 60만원 지원금 제공… 제주 청년정책 본격화
--  "ชัชชาติ" สั่งลิสต์รายชื่อเจ้าหนี้รายใหญ่ในชุมชนแก้หนี้นอกระบบ
--  Organize o seu dia e trate dos presentes de uma só vez
--  अधिकृतको बिहेमा गाईवस्तुलाई भोज
--  पेरुका पूर्व राष्ट्रपति फुजिमोरी रिहा
--  पश्चिम सेती प्रसारण लाइन छिट्टै निर्माण गरिने
--  लोपहुँदै माझी समुदायको मौलिक संस्कृति बाजा
--  जापानका प्रधानमन्त्री किशिदाले सत्तारुढ दलको नेताबाट राजीनामा दिने
--  आर्थिक संकट समाधान गर्न सरकार लाग्नुपर्छ : अध्यक्ष ओली
--  Indonezja: Zakończono akcję poszukiwania ofiar erupcji wulkanu
--  МВД: в результате стрельбы в брянской гимназии ранены четыре человека
--  Jadwal Persebaya Surabaya vs Persija Jakarta di Liga 1, Simak Persiapan Terkini Kedua Tim
--  Nouvelle alliance: Renault et Nissan veulent rassurer sur leurs projets
--  TRENDUMFRAGE/DAX zum Handelsende 0,3% niedriger erwartet
--  DD: ams-OSRAM AG
--  Mitsubishi Pajero thế hệ mới có thể đẹp như thế này, dự kiến cuối năm sau ra mắt
--  Người chơi gốc Việt chiến thắng Squid Game, vượt mặt 455 đối thủ giành hơn 110 tỷ đồng!
--  Ngân hàng báo cáo gì với Thủ tướng việc 'ế' gói tín dụng 120.000 tỷ?
--  JDC, 제주첨단과학기술단지 분양입주기업과 간담회 개최
--  경기도, quot;4분기 재정집행 적극 노력quot; 31개 시군에 당부
--  김동연 quot;선제적middot;창의적 복지 모형, 경기도에서 만들고 싶다quot;
--  국립 전주박물관에 보관된 '창덕궁' 금표가 뜻하는 것은?
--  전주서 지방소멸 대응 및 해법 모색 심포지엄 개최
--  Sena (UBT) leader Priyanka Chaturvedi questions BJP`s contribution towards J&K
--  Maharashtra govt presents supplementary demands worth Rs 55,520 cr
--  PM Modi cites poll win data to assert BJP most preferred party for governance
--  Proud moment as Garba shines on global stage: Amit Shah on UNESCO recognition
--  Sparzinsen der Schweizer Banken weisen deutliche Unterschiede auf
--  BJP using Sharmistha Mukherjee to defame Rahul Gandhi, says Vijay Wadettiwar
--  1万円超えでも予約注文で完売のショートケーキも ローソンがさまざまなクリスマスケーキを発表
--  Tammelan kolaripaikalla tapahtui myös toinen onnettomuus – Törmääjä pakeni paikalta, poliisi kaipaa havaintoja
+-  Ropa naftowa najtańsza od ponad 5 miesięcy
+-  Import miedzi do Chin najwyżej od dwóch lat
+-  Charging Times, Energy Use Goes Way Up When It’s Free
+-  Κάρι: Το τρίποντο-μαχαιρία στους Μπλέιζερς (vid)
+-  Meta開始全面加密臉書、IG訊息，引發隱憂
+-  Exportações da China sobem pela primeira vez em sete meses
+-  Which Cryptos are leading the investment pack in 2023? Stacks, Bitcoin Cash, and VC Spectra analyzed
+-  西區區議會2023候選人名單｜地區委員會及地方選區選舉投票一覽
+-  Дмитрию Биволу предлагали переехать в Казахстан
+-  Aumento de casos de HIV entre os jovens preocupa e expõe os excessos
+-  LG Elec joins governing body of SOAFEE
+-  «Манчестер Сити» сделал предложение Месси. Подробности
+-  ESG卓越企業大獎 2023｜阿里巴巴集團
+-  জাপার সঙ্গে আসন ভাগাভাগি নয়, রাজনৈতিক আলোচনা: ওবায়দুল কাদের
+-  Αυτό είναι που ισχύει με Παναγή…
+-  책임은 있으나 처벌은 않는다? '故 김용균 사건' 서부발전 대표 무죄 확정
+-  금천구의회, 제247회 정례회 구정질문 3일차 날카로운 질문 공세
+-  남동구의회 정재호 의원 발의 ‘사회복지시설 생활자 학대 예방 및 피해자 보호 조례’ 원안 가결
+-  용인특례시의회 유진선 의원, 의정대상 수상
+-  인천지방중소벤처기업청, 8~10일 소상공인 제품 특별판매전 개최... 잡화 뷰티 식품 판매
+-  김원태 행정자치위원장, ‘2023년 서울 청소년 지도자의날’ 행사 격려 방문
+-  화성시의회, 제226회 제2차 본회의 개회
+-  화성시복지재단, 중증장애인생산품 우수구매기관 특별상 수상
+-  고광민 의원, 유휴교실 느는데... 교육청은 교실 활용기준 마련 안해
+-  Merkez Bankası'ndan TL mesajı
+-  Bakan Tekin duyurdu: Öğretmenlere müjde! 18 Aralık'ta başlıyor...
+-  기후변화 시대, 풍수해 대응방안 찾자 …서울시, ‘생태도시포럼’ 개최
+-  SPC파스쿠찌, 크리스마스 시즌 케이크 5종 출시
+-  Aktien Asien/Pazifik: Verluste - Starker Yen und schwacher Ölpreis belasten
+-  Warum dieses Gastspiel von Mannheim bei den Ice Tigers besonders wichtiges ist
+-  Algérie France : Paris change de position sur l’accord de 68
+-  Sự thật bất ngờ khi nấu ăn bằng lò vi sóng hàng ngày
+-  Brigade Group eyeing expansion in collaboration with Accor Group
+-  Fortune Hotels secures deal for two exclusive properties in Kochi
+-  Sobi ny sektorfavorit hos Handelsbanken
+-  Sister of Limerick man Jason Corbett reacts to 'nightmare' over killers' release date
+-  South East Water pays out £2.3m in dividends amid widened losses and Ofwat probe
+-  Romero reminded about discipline before Spurs return
+-  طقس الخميس… أجواء باردة وصقيع بعدد من الجهات
+-  Peter Bosz wil niets horen over besliste titelstrijd: ‘Iedereen wil PSV de eerste punten afpakken’
+-  СМИ: предсказание Путина о США и Украине начинает сбываться
+-  Jubilant Pavol Hammel: Neveril som, že sa dá uživiť hudbou. Na hudobnej scéne je už 60 rokov
+-  Aumentam os interessados: Arsenal segue Gyökeres
+-  Manchester United performance among best in league this season, Erik ten Hag struck gold - Opinion
+-  Lições do brasileirão
+-  未完の「武器」 攻めの形は多様でも 練度低く「みんなで共通意識を」
+-  Hoje vai ser notícia
+-  زلزال بقوة 5.6 درجات يضرب بحر قزوين بأذربيجان
+-  Storsala rekryterar CFO från SBB
+-  7 loại quả giàu vitamin C mùa đông nên ăn nhiều vì cực bổ phổi, lại đẹp da
