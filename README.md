@@ -1,11 +1,11 @@
 # Latest News
--  מצרים הזהירה את ישראל: נהירת פלסטינים לשטחנו תפגע ביחסים
--  Železničar ispao iz CEV kupa
--  Βίντεο από τα επεισόδια έξω από το κλειστό στον Ρέντη που τραυματίστηκε αστυνομικός (vid)
--  Minecraft'a Rakip Olacak LEGO Fortnite Piyasaya Sürüldü: Nasıl Oynayacağınızı Anlattık
--  El Hareketleriyle Uzaktan Kontrol Edilebilen Telefon Realme GT5 Pro Tanıtıldı
--  Conheça o alfaiate que veste o papa e vende perfumes para a comunidade gay
--  GTA Turk City'yi Yapan Arkadaşa GTA 6 Fragmanını İncelettik! Düşünceleri Neler?
--  Molecular fossils study sheds light on feeding strategy shift in ancient life
--  京都府が授業料補助を拡充へ 中間層への補助額引き上げ、近畿各府県の通学者にも
--  ولي العهد يُجري اتصالاً هاتفياً بنظيره الكويتي
+-  Fluglärm bleibt mit F-35A-Kampfjets etwa gleich laut wie mit F/A-18
+-  “보스턴, 김하성에게 관심…샌디에이고 페이컷 계속된다면” 514억원 GG 또 트레이드설 ‘간과 못해’
+-  DA SE NE POKAJETE Evo kako da znate da li ste spremni za zajednički život s partnerom, jedan uslov je posebno važan
+-  البيت الأبيض: مسيرات وصواريخ الحوثيين عطلت الملاحة فى البحر الأحمر
+-  مسيرة استفزازية للمستوطنين الإسرائيليين فى البلدة القديمة بالقدس
+-  "المؤتمر" يختتم فعالياته من الدقهلية لدعم المرشح عبدالفتاح السيسى
+-  التنسيقية تلتقى عددا من النقابات لصياغة برنامج انتخابى لمرشحى الرئاسة
+-  التنسيقية تشارك بمؤتمر أكاديمية السادات لتشجيع المشاركة فى الانتخابات
+-  النائب زكى عباس: التعامل مع المناطق العشوائية كان تحديا كبيرا أمام الدولة
+-  حازم عمر يدلى بصوته فى الانتخابات الرئاسية بالقاهرة الجديدة الأحد المقبل
