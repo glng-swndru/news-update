@@ -1,51 +1,11 @@
 # Latest News
--  נזקים של מליונים וגידולים שלא נקטפים: המשבר של החקלאים בעוטף עזה
--  "בתקופה הכי קשה קיבלתי את המתנה הגדולה של חיי"
--  "אבא שלנו הפך להיות דני קושמרו, אמא שלנו אדווה דדון"
--  "בשבת השחורה העמיקה ההבנה שאין לנו בית אחר חוץ מישראל"
--  "השינוי הגדול היה בהבנה שלי שמשהו לא טוב קורה לנו"
--  Crédit bancaire : évolution des indicateurs à fin octobre
--  한수원-NH농협금융지주, 탄소중립 경제 구축 위한 업무협약
--  7 Yıldır Aranan 'Abi' Adana'da Yakalandı
--  นายกฯ หวังกดค่าไฟงวดใหม่ 4.10 บาทต่อหน่วย
--  ใช้จ่ายไม่คึกคัก หวั่นเกิดเงินฝืด จี้รัฐกระตุ้นเศรษฐกิจเร่งด่วน
--  «Зачем комментировать балабола?» Легенда российского ММА «разоблачил» известного бойца из Казахстана
--  Cáfolja az Orbán-kormányt a Pfizer
--  학부모단체·마을강사 견제하는 경남도의회 교육위
--  Iranian Navy delegation visits Military Institute named after Heydar Aliyev (PHOTO)
--  창원 간첩단 사건...구속 9개월 만에 보석으로 풀려나
--  소아과 전공의 부족에 '연차 내고 오픈런' 일상 될라
--  함안군 가야읍서 변압기 불...노동자 2명 화상
--  학교폭력 사안 조사, 전담 조사관이 맡는다
--  박종훈 경남교육감, 미국서 '미래 교육' 업무 협의
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  Хотин-қизлар ва эркаклар ҳуқуқлари тенглигининг кафолатланиши жамият тараққиётига хизмат қилади
--  [광주 광산구 “감사제도 잘못 쓰면 독, 공정성 확보해야”…강한솔 의원 지적
--  Тренер озвучил два ключевых аспекта победы казахстанского бойца в чемпионском поединке
--  Mordplanerna kopplas till gängen
--  Dishub Bantul Fasilitasi Bus Sekolah Gratis Tahun Depan, Ini Rencana Rutenya
--  Zwei festliche Konzerte
--  Geld für Kindertafel und Kinderhospiz
--  Höhere Erlöse aus Brennholzverkauf erwartet
--  Verfassungsschutz beobachtet Würzburger Burschenschaft Teutonia
--  L’OM en danger pour son mercato ?
--  Manchester United Manager Erik Ten Hag Axed Marcus Rashford And Anthony Martial and Here's Why
--  Ten Hag krijgt lucht in Engelse pers en ontvangt torenhoog cijfer na Chelsea-clash
--  I. Alijev vypísal predčasné prezidentské voľby na február 2024
--  Kuryenin ölümüne neden olan Somali Cumhurbaşkanı'nın oğlu hakkında yeni karar
--  Vartotojai pasipiktinę: sukčiai pinigus vilioja per vieną keliautojų itin mėgstamą programėlę
--  Kietos merginos. „Apgauti okupantus padėjo modelio išvaizda.“ FSB skelbia paiešką
--  قرار جديد للحكومة المصرية بشأن إقامة الأجانب بصورة غير شرعية
--  Keluarga Alung Sempat Halangi Ayah Fitria Saat Temukan Jasad Anaknya: ‘Jangan Diributin’
--  Leif och Billy flyttar och förlänger succéshow
--  “มูลนิธิร่วมด้วยช่วยกันสำนึกรักบ้านเกิด” ประกาศผู้ชนะเกษตรกรสำนึกรักบ้านเกิดปี66
--  Åkte ur för första gången – slutade med kaos
--  Попова раскрыла дату первого выявления микоплазменной инфекции в России
--  L’Accord de 1968 entre l’Algérie et la France : Un Débat qui Secoue la Politique Française
--  بعد غياب طويل.. ميريام فارس تدعو للسلام بجلسة تصوير جريئة شاهدوا كيف بدت (صور)
--  Pyhäjärvi-Säätiö kannusti ja tuki yli sadallatuhannella vuoden 2023 aikana
--  Labourer jailed 7 months for stealing three turkeys
--  त्रिविमा शीतकालीन कक्षा सञ्चालन
--  ५२५ को आँखा जाँच गर्दा ७० मा मोतीबिन्दु
--  Cyclisme : Lafay peut-il dominer Pogacar et Evenepoel ?
+-  Was wäre, wenn man gerne Landwirt würde? – Das ist nichts für Träumer! #bauernhof #bauer
+-  Казахстан планирует продлить запрет на экспорт нефтепродуктов автотранспортом еще на полгода
+-  Atti vandalici reiterati agli orti urbani di Librino – FOTO
+-  สถาบัน IOD มอบรางวัล CAC Change Agent Award 2023 ให้แก่ซีพี ออลล์ต่อเนื่องปีที่ 3
+-  بن ثنيان: ملف الأسرى ملف إنساني ونحث كافة الأطراف لتحقيق مبدأ "الكل مقابل الكل"
+-  Faiths gather at Federation Square to celebrate Hanukkah
+-  Faiths gather at Federation Square to celebrate Hanukkah
+-  S'pore & China to establish mutual 30-day visa-free entry travel arrangement: Lawrence Wong
+-  Bekçilerin hastaneye gitmesi için ikna edemediği evsiz, ölü bulundu
+-  Bebek firarda! 2 yaşındaki bebek evden kaçtı, mahalle alarma geçti
