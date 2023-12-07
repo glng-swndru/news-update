@@ -1,11 +1,51 @@
 # Latest News
--  또 손흥민에게 기회가 왔다! 홀란드·살라 2경기 연속 동반 골 침묵, SON '추격 찬스'
--  "공격진에 신선함 필요했다"→선발 출격 오현규, 멀티골로 로저스 감독에 보답
--  '박지수 20득점·강이슬 14득점' KB, BNK 썸 제압...'6연승+공동 1위' 두 마리 토끼 잡았다
--  ФСБ задържа украински агент за терористичната атака срещу критична руска инфраструктура
--  سفير سلطنة عُمان يزور جامعة البترا
--  Jarkko Saarimäki nimitettiin Traficomin pääjohtajaksi
--  Jarkko Saarimäki nimitettiin Traficomin pääjohtajaksi
--  Netflix viewers horrified by ‘one of the most unusual murder plots they’ve ever heard’
--  โยนถังเซฟเกม! Langgui ไทม์มิ่งสุดเป๊ะ พา EDG ชนะ Trace Esports 2-0 ในศึก Wild Rift League Asia Season 2
--  Cost of BBC licence fee is going up again next year
+-  دولة تعلن انتشار عدوى فيروسية شديدة تنتقل عبر الهواء
+-  اوروبا تدعم تفعيل المادة 99 من الميثاق الأممي
+-  Djurgårdens Albin Grewe stängs av igen
+-  СМИ: Минтуризма Индонезии предложило отменить визы для россиян и граждан еще 19 стран
+-  مفاجأة طبية.. هرمونات السعادة وراء زيادة الوزن.."تفتح الشهية"
+-  تنبيه عاجل بشأن تنفيذ التحويلة المرورية بتقاطع طريق "الظهران – الجبيل"
+-  حقيقة تأثير الضمان الاجتماعي على دعم حساب المواطن
+-  وزير الصناعة والثروة المعدنية: دعمنا الصادرات بـ 10 مليارات ريال في 2023..
+-  للمنشآت والأفراد.. "الغذاء والدواء" تطلق خدمة "أذونات استيراد وفسح الدواء
+-  '마음 따뜻한 이들의 동네' 익산시 마동hellip;한 동네에서 두 개의 자원봉사상 받아
+-  '토트넘에게 희소식' 손흥민 애착 인형, 마침내 훈련 복귀...뉴캐슬전부터 출전 가능
+-  Video | Beekse Bergen filmt geboorte olifantenkalf
+-  Acuerdo comercial Mercosur-UE en vilo en cumbre sudamericana en Brasil
+-  Один сотрудник Росгвардии погиб в результате срабатывания взрывного устройства на полигоне
+-  Events tomorrow – DEC. 8: Dr. B.R. Ambedkar Research And Extension Centre, Manasagangothri
+-  Коэффициент младенческой смертности в УрФО опустился ниже допандемийного уровня
+-  Night shifts affect young people with low education level the most
+-  Christie says he 'had enough' of Ramaswamy's 'garbage' during debate
+-  4 Russian soldiers were charged with war crimes for allegedly torturing and mock executing a US civilian in Ukraine
+-  Falleció una gloria del deporte nacional: El legendario Víctor Davalillo
+-  Pokemon TCG Combined Powers Premium Collection: Release window, Johto Legendaries, more
+-  '4연승 질주' 창원LG 단독 2위 도약
+-  고성서 대통령배 전국씨름왕선발대회 막 올려
+-  경남체육회 전국체전 다관왕 성취상 수상
+-  대만 아시아야구선수권서 빛난 NC 유망주들
+-  وہاب ریاض نے حارث رؤف کو پاکستان کرکٹ ٹیم کیلئے کیوں اہم قرار دیا؟
+-  El Papá Noel «más grande de España» está en la plaza de Las Batallas de Jaén
+-  Palta: A technology company focused on health and well-being
+-  Cyprus Stock Exchange advocates for sustainable development
+-  Best WSP Swarm loadout for Warzone Season 1
+-  Pengusulan Pj Bupati Luwu Disorot, Dewan Protes Urutan Nama di Surat Tak Sesuai Hasil Voting
+-  42-Jähriger tötete wohl in religiösem Wahn: Neues zum tödlichen Angriff auf Lüner (67) in Dortmunder LWL-Klinik
+-  Forudser prisfald på populære vare
+-  Sulmi terrorist në Kosovë/Interpol lëshon urdhër arrest për Milan Radoiçiç
+-  Esposo de Marilina internado por una varicela vai que le agarró
+-  Путин оценил значение расширения контактов с другими странами
+-  Revanth Reddy takes charge as Telangana CM, holds first cabinet meeting
+-  Бивш служител на отбор от НФЛ е обвинен в кражба на над 22 милиона долара
+-  'Indultan' a la Plaza México y vuelven corridas de toros
+-  Amenazan a funcionarios del IMSS con mensaje y un ejecutado
+-  Será un jueves soleado; máxima de 26 grados
+-  'Pisa es neoliberal', dice AMLO
+-  Con la motivación a tope
+-  Arrolla América a San Luis y está virtualmente en la Final
+-  В усадьбе Мураново откроется новогодняя выставка о "Щелкунчике"
+-  '히알루론산 점안제', 약평위에서 결론 지연‥급여기준 추가 검토
+-  Events tomorrow – DEC. 8: Mysore Builders Charitable Trust (MBCT) – Builders Association of India (BAI), Mysore Centre
+-  “É um ovo de Colombo”. Nova academia para capacitar empresários terá sede no Porto
+-  Под Рязанью на занятиях по огневой подготовке сработало взрывное устройство
+-  Indonesia Drafts Ethical Guidelines for Responsible AI Development
