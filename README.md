@@ -1,11 +1,11 @@
 # Latest News
--  New figures show 4 times more traffic accidents in A'dam 1 day ahead of 30 km/h speed limit
--  תחקיר: צלם רויטרס שנהרג בלבנון נפגע בהפגזה של צה"ל
--  המאורות החסרים: הדלקת נרות עצובה ב"כיכר החטופים"
--  최근 EPL 4경기 '무-무-무-패'해놓고…'농담이 과하십니다 감독님~꿈깨세요'→'트레블 2연패 후 은퇴' 空約한 과르디올라
--  Umrl je britanski pesnik in aktivist Benjamin Zephaniah
--  Umrl je britanski pesnik in aktivist Benjamin Zephaniah
--  Remaining portion of GHS Road between P.M. Rao Road and Sharavu Temple Road to be widened and concreted
--  Estas fueron las 25 páginas más buscadas en Wikipedia en 2023
--  Kickoff | R1.1bn Barcelona star set for shock January exit?
--  Citypress | Agro-processing and storage battery component industries to replace Mpumalanga coal jobs
+-  Európska únia navrhuje sprísniť pravidlá v oblasti dobrých životných podmienok zvierat
+-  Vanuatu zasiahlo silné zemetrasenie: Hrozí aj príchod cunami
+-  Crna Gora na braniku latinice u Pridnjestrovlju: Vlada uvela sankcije progoniteljima latiničnog pisma, čeka li ista sudbina Hrvate i Ukrajince?
+-  "ידעתי שאנשי המילואים רתומים ונחושים, אך לא הבנתי עד כמה"
+-  Encuentran a ejecutado en arroyo al norte de la ciudad
+-  Pide Fiscalía 60 años de cárcel para "El Bryan"
+-  Ivanka Trump shows off her slender legs in a revealing white mini dress as she and Jared Kushner hit the town in Miami for Art Basel - before hanging out with TikTok sensation Alix Earle and NFL star Braxton Berrios
+-  Hagenaar aangehouden voor handel in zwaar vuurwerk
+-  Berlijn en Parijs 'voor 90 procent eens' over begrotingsregels
+-  Mensenrechten staan onder druk door nieuwe dreigingen, en dit geldt ook voor de vrijheid van religie
