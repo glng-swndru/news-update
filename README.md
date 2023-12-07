@@ -1,51 +1,11 @@
 # Latest News
--  강원교육, ‘수능 성적 하위권’ 탈출 실패… 2024학년도 수능 채점 결과 발표
--  로보컵 아시아퍼시픽 2023 평창 개막
--  [속보] '역대급 불수능' 국영수 모두 어려웠다… 전 영역 만점자 1명
--  강원사회복지공동모금회, 도내 취약계층 가구 5000곳에 난방비 지원
--  홍천군번영회 송년의 밤
--  NH농협양양군지부 농협 성금
--  해송라이온스 이웃돕기성금
--  양양 명륜중 총동문회 회장 이·취임식
--  횡성 마옥리 경로회관 준공
--  경동대 사회공헌센터, 독거노인 가정 위한 ‘정 나눔 봉사’
--  원주 반곡아이파크아파트 제7호 천사아파트 현판 제막
--  삼척 양말 기탁
--  상지대, 이종석 전 통일부장관 초청 안보 특강
--  한일현대시멘트 영월공장 연탄배달 봉사활동
--  농협화천군지부 장학금 기탁
--  원주 들꽃가든, 독거어르신 김장 지원금 100만원 전달
--  화천읍 주민자치프로그램 발표회
--  원주 우산동 청년 수학여행 1기 사례발표회
--  국민의힘 춘천시갑 당협위원회 연탄나눔 봉사
--  새강릉새마을금고 물품 후원
--  한림성심대, 기말고사 간식데이 행사 진행
--  도체육회 회원종목단체 전무이사협 양구사회복지협에 사람의 연탄 기부
--  도교육청, 2023 강원학교운동부지도자 역량강화 연수
--  [Health 건강] "4시간 이상 휴대폰 사용 청소년, 정신건강·약물 위험 높다"
--  노용호 의원, 한국산업단지공단과 춘천서 '사랑의 연탄 나눔 봉사 활동' 진행
--  횡성 둔내면 인구 30년만에 6000명 넘어섰다
--  제주마을-기업 손잡고 상생일자리 창출 ‘한마음’
--  빔소프트웨어, 데이터 보안 ‘제로 트러스트 모델’ 도입
--  [인사] SK스퀘어
--  SK스퀘어, '듀얼 CIO' 체제로…반도체 투자전문성 강화
--  Brezilya'dan AB'ye 'serbest ticaret anlaşması' çağrısı
--  Османи во Брисел за завршниот скрининг состанок помеѓу ЕУ и Северна Македонија и за Самитот ЕУ-Западен Балкан
--  Krösche kritisiert Eintracht-Schönspieler
--  Federal Bank Raises Fixed Deposit Rates For Residents & Non-Residents
--  MGNREGA Funds Release To West Bengal Stopped Due To Non-compliance Of Centre's Directives: Govt
--  Revanth Reddy Set to Take Oath As Telangana's New Chief Minister, 12 Ministers To Join In
--  Instant Noodles Market to Reach USD 81.96 Bn by 2029, emerging at a CAGR of 5.94 percent and forecast 2023-2029
--  Blake Lively’s Praise for Taylor Swift and Beyoncé for Empowering Women
--  US man faces court over Wieambilla police shootings
--  US man faces court over Wieambilla police shootings
--  US man faces court over Wieambilla police shootings
--  AMOLED Flexible Display Devices Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
--  Nekad kriminalac, danas maneken: Barcelona angažirala hrvatskog glumca za novu reklamu
--  엔씨소프트, '제22회 정보보호 대상' 과기정통부 장관상 수상
--  KB금융 홈페이지 새 단장, 편의성 및 접근성 제고 위해 UI/UX 전면 개편
--  Neodoljiv kolač s jabukama i orasima poslužite uz kavu ili čaj
--  Full speed ahead for nuclear subs with US breakthrough in sight
--  Full speed ahead for nuclear subs with US breakthrough in sight
--  Full speed ahead for nuclear subs with US breakthrough in sight
--  นายอำเภอแม่ฮ่องสอน ลงพื้นที่ตรวจเยี่ยมโครงการแก้ไขปัญหาสัญชาติ และสถานะบุคคล
+-  All New Honda Accord RS e:HEV Sudah Bisa Dipesan, Harga Rp 959 Jutaan
+-  고양시, 대화동 새말·왕산 어린이공원 환경 개선
+-  통영해경, 2년 연속 최우수 함정 및 파출소 선정
+-  K-문화테마파크 영주 선비세상에 열리는 ‘겨울왕국’
+-  춘천시립예술단, ‘헨델-메시아’ 공연으로 2023년 마무리
+-  계명문화대 뷰티크리에이터학부, ‘K-BEAUTY World Contest Expo 대회’ 전원 수상
+-  성산구, ㈜에스앤케이컴퍼니 사랑의 성금 기탁
+-  한국도로공사서비스, ‘연탄에 희망까지’ 봉사활동 참여
+-  양주시, 지방공공기관 구조개혁 평가 ‘우수지자체’ 선정
+-  달성군청, 2023년 산불 방지 평가 ‘최우수’ 선정
