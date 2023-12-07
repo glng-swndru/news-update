@@ -1,11 +1,11 @@
 # Latest News
--  Japanse voetbaltraditie bij vv Lekkerkerk in ere hersteld
--  Knipselarchief Marianne Vos te zien bij Streekarchief Langstraat Heusden Altena
--  Trivia Tunes: Only time Pritam-Amit Kumar collaborated and the song became a chartbuster
--  Dunki: "Special role was crafted for Vicky Kaushal", reveals Rajkumar Hirani
--  Koffee With Karan 8: Kiara Advani talks about Sidharth Malhotra’s tapping watch shot at wedding; says, “This was an edited shot”
--  Siddharth Roy Kapur felicitated at CineAsia Awards 2023: "Deeply humbled"
--  Gaz : Chariot s’allie avec Energean sur des licences offfshore au Maroc
--  17 млрд сўмлик даъво тадбиркорлар фойдасига қаноатлантирилди
--  Имконият, маҳорат ва муваффақият
--  Жиззах политехника институти халқаро рейтингда илгарилади
+-  Analistas ven repunte de inflación para finales de este año
+-  Bce: economisti vedono tagli dei tassi per 75 pb nel 2024, il primo a giugno
+-  Ученые: Младенцы не поддаются зрительным иллюзиям, в которые верят взрослые
+-  U Novom Zagrebu izgorio automobil, sumnja se da je požar podmetnut
+-  Industrie drosselt Produktion erneut - Längste Durststrecke seit 2008
+-  В Беларуси закрепляются новые избирательные цензы для кандидатов в президенты
+-  Bllokimi i Kuvendit, PS ndryshon rregulloren: Deputetët rrezikojnë deri në 60 ditë përjashtim nëse ndezin tymuese apo konfliktohen me Gardën
+-  Ζεράρ Ντεπαρντιέ: Νέες καταγγελίες για σεξουαλικά ανάρμοστη συμπεριφορά
+-  Veteraanien iltahuudon Linnan juhlissa tulkinnut Niilo Vunneli, 100, on ollut Outokummussa monessa mukana – elämäntyönsä hän teki metsäalalla
+-  Soccerladuma | Pirates Open Interest In Former Chiefs Target?
