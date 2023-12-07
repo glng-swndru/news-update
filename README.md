@@ -1,51 +1,51 @@
 # Latest News
--  SANOFI : Barclays handhaaft koopadvies
--  SANOFI: Barclays mantiene la raccomandazione Buy
--  Isaksen va ko: quanti infortuni in casa Lazio
--  Barclays belässt Sanofi auf 'Overweight' - Ziel 95 Euro
--  Massiver Umbau bei BASF - 2500 Mitarbeiter betroffen
--  Emery refuses to label surging Villa as title contenders
--  The 95p copycat ketchup shoppers say is ‘better than Heinz’ and can save you £80 a year
--  [‘광주다움 통합돌봄’ “광저우 국제도시혁신상 최고상 수상”…보편적 돌봄의 시대 개척
--  [김포시 맑은물사업소, 일반 수도 운영‧관리 실태 평가 ‘최우수 등급’
--  [인천교통공사 최우수 기관사 이상준 씨 선정
--  ["강제로 했어요" 그녀 본 남자들…줄줄이 쇠고랑 차고 인생 망칠 뻔
--  [ŽT] „Jie užlipo ant to pačio grėblio...“ Ždanovas skelbia didžiulę Ukrainos pergalę (Video)
--  MUNICH RE : UBS is Neutraal over het aandeel
--  MUNICH RE: UBS mantiene la raccomandazione Neutral
--  O jei taip ir Lietuvoje? Latvijoje beprotiškas pasiūlymas, ką reikia padaryti Rusijos pasienyje
--  ALLIANZ SE : UBS handhaaft koopadvies
--  UBS belässt Munich Re auf 'Neutral'
--  ALLIANZ SE: UBS è per il Buy
--  Franco ancora più forte, è ai massimi dal 2015 sull'euro
--  UBS belässt Allianz SE auf 'Buy'
--  Internationally Recognized Advertising Studio Calls for Industry Reform as UN Climate Change Conference Convenes
--  Gotov je prosvjed svinjogojaca
--  Əli Əsədov qərar imzaladı
--  Aluta parties nearly ruined Size 8’s life
--  Yotta Data Services collabore avec NVIDIA pour catalyser la transformation de l'IA en Inde
--  김하성 "지속적인 공갈·협박으로 고소"↔"상습적으로 폭행당했다" 양 측의 엇갈린 주장
--  Natation: Ponti en or et Bollin en bronze aux Européens en petit bassin
--  Serie A: quatre ans de suspension requis contre Paul Pogba
--  Natation: Ponti domine les séries du 200m papillon
--  Sports Awards: Marco Odermatt pour un triplé, lutte incertaine du côté féminin
--  Open d'Australie: Wawrinka de la partie pour le 10e anniversaire de son sacre
--  Super League: Yverdon sombre à St-Gall; le SLO mal payé au Wankdorf
--  Ada Berger får pris av Akademien
--  UBS keurt fusie tussen UBS AG en Credit Suisse AG goed
--  UBS approva la fusione di UBS AG e Credit Suisse AG
--  UBS genehmigt den Zusammenschluss von UBS AG und Credit Suisse AG
--  VELIKI PROBLEM ZA CRVENU ZVEZDU: Jedan od najboljih igrača završio polusezonu
--  អង់គ្លេស​ប្តេជ្ញា​​មិនឲ្យ​កើតឡើង​ម្តងទៀត​ពី​គ្រោះមហន្តរាយនៅ Hillsborough
--  New Setbacks Further Postpone Brazil’s Crucial Sports Betting Bill
--  Amazon Boxing Day 2023 deals: What to expect this December
--  Erzurum'da akademisyen odasında ölü bulundu
--  Sapiens to Participate in the 26th Annual Needham Growth Conference on January 17 & 18, 2024
--  WDH/Stahlkonzern Salzgitter verlängert Vertrag mit Vorstand Groebler
--  TBMM Başkanı Numan Kurtulmuş'tan HEDEP'e ziyaret
--  (uznemirujuće) Rusija: Učenica donela oružje u školu, pucala na drugove iz razreda, pa izvršila samoubistvo
--  €20m for new wastewater plants in Craughwell and Clarinbridge
--  裏金疑惑 安倍派事務総長にも還流
--  中國出口回升曇花一現？匯豐銀：外部對中製產品需求疲軟
--  Sır perdesi aralandı. Başından tabancayla vurularak öldürülmüştü
--  SV Meppen zu Gast bei Bremer SV: Bremer SV gegen Meppen live!
+-  EastEnders Christmas trailer hints at explosive twist for The Six – and it’s all to do with the bells
+-  Европейският град, в който данъци вече се плащат с криптовалута
+-  Exploring the Genuine Romantic Connection Between Jeremy Allen White and Rosalia
+-  Helium (HNT) Price Prediction 2023-2030: Will HNT Price Hit $10 Soon?
+-  '한때 UCL 결승까지 갔는데...' 포체티노, 첼시에서 더욱 빨라 돌아가는 '몰락의 시계'
+-  Мега звездата на Сакраменто реагира, докато Везенков "кърти мивки" в САЩ (СНИМКИ)
+-  강원특별자치도 도루묵 종자방류 재개
+-  여야 현역의원 물갈이 본격 시동…컷오프 상향조정
+-  ‘박사방’ 조주빈, 강제추행 혐의 2심도 징역 4개월…42년에 추가
+-  내년 3월부터 교사 대신 ‘전담 조사관’이 학폭 조사… 교육계 환영과 우려 교차
+-  도사회서비스원 성과공유 및 우수사례 보고회
+-  한동훈, ‘총선 출마’ 언급한 野 박용진에 “뜬금없다”
+-  극단 백우61 ‘애로원 탈출기’, 9일 춘천 아트팩토리:봄
+-  원주 리디머 기도사역연구소 개원
+-  한대희 작가 개인전 ‘위’, 오는 10일까지
+-  Créditos Anses: mala noticia para los trabajadores en relación de dependencia
+-  노인회 도연합회 강대규 고문변호사 위촉
+-  Vladimir Zelensky confirmó que asistirá a la asunción de Javier Milei
+-  올해의 한기총 기자상에 송상원(크로스뉴스) 기자
+-  Twiinsky s dcérkami zbalili kufre! Prečo odišli zo Slovenska?
+-  Opatovského dcérka je MEGA šikovná: Naozaj sa TOTO učí ako deväťročná?
+-  Audi hält offenbar an Formel-1-Plänen fest
+-  Audi hält offenbar an Formel-1-Plänen fest
+-  Výbuch a záplavy vo vykričanej dovolenkovej destinácii boháčov! Krajina vyhlásila stav núdze
+-  بتهمة "سب الرئيس".. إدانة ناشط سياسي بالسجن والتغريم
+-  Ολαφ Σολτς: Για πρώτη φορά καγκελάριος στην εβραϊκή Γιορτή των Φώτων
+-  Goranboyda konfrans keçirilib - FOTO
+-  Polizeibericht 7. Dezember: Brand in Taucha, Stemmhammer gestohlen, Von der Fahrbahn abgekommen
+-  Pesë fanellat më të shitura te Barcelona – përfshihen dy lojtare të ekipit të femrave
+-  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
+-  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
+-  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
+-  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 7 décembre – LeBron James offre un titre à Cleveland
+-  ANA NIKOLIĆ PRIZNALA DA PRAVI PROBLEME PORODICI Jednu stvar joj nisu dopustili: Zato sam ovakva!
+-  Lamborghini Revuelto Supercar : सुसाट अन् बेफाम धावणारी Lamborghini Revuelto Supercar भारतात लाँच; किंमत ऐकून भुवया उंचावतील!
+-  Chhattisgarh Apex Bank Result 2023, Download Result Link
+-  WiMi Developed Explainable Artificial Intelligence (XAI)-based fNIRS Neuroimage Classification
+-  AI startup Pimento raises €3M to tackle creative challenges faced by creative teams; Know more
+-  G. Nausėda sieks antrosios prezidento kadencijos
+-  2023 SABCS - TransThera announces an oral presentation of tinengotinib clinical data in breast cancer
+-  Antalya'da satılık iş yeri!
+-  Ortlieb als Trainingsschnellste in Speed-Start in St. Moritz
+-  Thị trường rung lắc mạnh, nhà đầu tư cá nhân tranh thủ "lên tàu", mua ròng gần 719 tỷ đồng
+-  Ayazağa Depoculuk Ve Lojistik Anonim Şirketi kuruldu!
+-  Sunod kaya ang BoRa sa KathNiel?
+-  Dramatic moment climber caught up in terrifying avalanche rescued during snow blizzard
+-  Onderzoek naar wateroverlast Bloemendal gaat maanden duren
+-  Chelsea favourite singled out for ‘really weak defending’ before Man Utd’s winner
+-  Hizbullah İsrail'e yeni saldırılar düzenledi
+-  İsrail, Gazze'de saldırılarını artırarak sürdürüyor
