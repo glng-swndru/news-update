@@ -1,7 +1,47 @@
 # Latest News
+-  The 3 Best Nasdaq Stocks to Buy in December
+-  午夜时分，奥克兰Albany发生不明原因死亡事件
+-  重磅！“新加坡和中国将互免签证”
+-  澳联储本月不加息！通胀明显回落，但仍将“坚定控制通胀”
+-  直降12.5℃ “中国最冷小镇”开启-34℃“速冻模式”
+-  捷星机票大促销！将增加15万个座位，准点率和取消率的表现越来越好
+-  刘德华结婚15年首次澄清：妻子不叫“朱丽倩”
+-  热搜第一！春晚吉祥物被质疑“AI合成”，官方回应了
+-  ASB表示，家庭成本上涨速度终于将在明年放缓...
+-  新西兰新政府上台，对于租赁市场的所有变化在这里
+-  奥克兰房市稳健复苏：11月成交量增长13%，均价涨8%，高端市场活跃！
+-  奥克兰交通局今夏将修复550公里道路，资金削减交通安全如何保障？
+-  林俊杰舞蹈片段被恶搞 是否构成侵权
+-  Pelin Akil'e tatlı sürpriz!
+-  Armağan Çağlayan AVM çalışanlarına bağırdı!
+-  Eda Ece'den hamilelik paylaşımı!
+-  Aleyna Tilki isyan etti!
+-  “He will soon be sacked” Romano delivers big update on Pochettino’s future and explains what Chelsea’s owners are banking on
+-  Epic Games anuncia a Lego X Fortnite
 -  Come rimanere attivi durante le vacanze di Natale
+-  Gobierno trabaja de manera ardua para impulsar el desarrollo del turismo comunitario
+-  Bidders for SriLankan Airlines get more time
+-  Apparel manufacturing industry asserts importance of vertical integration, improved Govt. policy support
+-  Кола се вряза в магазин в София
+-  Lacklustre run at CSE continues; turnover drops to 2 week low
+-  부산시, 아이돌봄서비스 우수기관 5곳 선정
+-  Dyche: Hefðum tapað svona leik á síðasta tímabili
+-  JNE: 940 jóvenes de Cajamarca votarán en Elecciones Municipales Complementarias 2024
+-  By: movie theater
+-  Arson suspect was delusional when he saturated apartment with gasoline and planned to set it on fire, psychiatrist testifies
+-  Video showed her throwing food at a Chipotle worker. Here’s her punishment
+-  Come rimanere attivi durante le vacanze di Natale
+-  Maykel: "Desde pequeñito dando guerra"
+-  أوحيدة: مبادرة باتيلي لن تأتي بنتيجة وهي فقط لخلط الأوراق وتسفيه لما تم التوافق عليه
+-  البيت الأبيض: إذا توقفت الحرب على غزة فإن حماس ستظل تشكل تهديدا.. لا موعد لإنهاء الهجوم الإسرائيلي
 -  «التباوي والحويج» يبحثان سبل مجابهة مخاطر الهجرة غير الشرعية
+-  Conservative MP ejected from House of Commons for calling Trudeau a ‘liar’
+-  بن عطية: لا حل إلا بحكومة جديدة وانتخابات
+-  Десподов спечели дузпа за ПАОК
+-  الدبيبة يتابع مع السفير الروسي عددا من الملفات السياسية والاقتصادية بين البلدين
+-  13ème édition des Universités Africaines de la Communication de Ouagadougou (UACO) : Le Niger comme pays invité d’honneur
 -  Come rimanere attivi durante le vacanze di Natale
+-  The top five UK Christmas window displays named
 -  "상대를 안해서, 타격왕 유리하지 않았나"…'아듀 페디!' 20승-200K 에이스 향한 손아섭의 유쾌한 작별인사
 -  "살아서 또 볼 수 있을까" 기안84X포르피, 뭉클한 작별 인사…통역없어도 통하는 '찐친' (어서와)[MD리뷰]
 -  있지(ITZY), 아침에도 눈부시게 빛나는 미모!
