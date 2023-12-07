@@ -1,51 +1,51 @@
 # Latest News
--  प्रस्तावित राजदूत र न्यायाधीशविरुद्ध ११ वटा उजुरी
--  रोकिएन महिलामाथिको शृङ्खलाबद्ध हिंसा
--  आलु उत्पादन प्रवर्द्धनमा तीन करोडको लगानी
--  पञ्चासेमा बालाचतुर्दशी मेला
--  Ender Saraç'a skandal iddia!
--  Yılmaz Büyükerşen'den 'adaylık' açıklaması: Kendimi yaşlı hissetmiyorum!
--  Milyonlarca emekliyi ilgilendiriyor! Yaş şartını giriş tarihini belirliyor
--  TÜİK açıkladı: Sağlık harcamalarında yüzde 71,5 artış
--  Süper Lig'de 15. hafta heyecanı yarın başlıyor
--  Cumhurbaşkanı Erdoğan Yunanistan'da
--  대전시 동구, 올해 고향사랑기부제 목표액 조기 달성
--  허태정 전 대전시장, 유성을 출사표 quot;현 정권middot;탈당한 이상민 심판quot;
--  대전시 탑립middot;전민지구 개발제한구역 해제 조건부 의결
--  한국거래소 대전혁신성장센터 문 열고 본격 운영
--  대전시 중구, 전세계약 주의사항 등 피해예방 교육
--  가톨릭대 대전성모병원 QI경진대회 개최hellip;병동1팀 최우수
--  대전시 서구, 행안부 특별교부세 16억 원 추가 확보
--  김순호 구례군수, 시정연설 통해 2024년도 군정 비전 제시
--  구례군, 탄소중립 흙 살리기 중장기 발전계획 연구용역 최종보고회
--  이낙연, 이재명 회동설에 quot;사진 한 장 찍는 거면 의미 없다quot;
--  임태희 quot;기존학교 + 공유학교, 경기도 공교육 전체 모델quot;
--  [금융IT이노베이션] 알테어, "금융사 위한 실시간 BI 기술 제공은 우리만 가능"
--  네이버, 사우디 디지털 전환 사업 속도…현지 기업과 협력
--  글로벌 여행 플랫폼 ‘클룩’, 2760억원 규모 시리즈E+ 투자 유치
--  SK(주) C&C, 2024년 조직 개편 및 임원 인사 단행
--  Google Pixel Fold and Tablet now let you force apps into specific aspect ratios
--  Azerbaycan'da 5,6 büyüklüğünde deprem meydana geldi
--  Karamanlı üreticiler, elmanın büyükşehirlerde 4 katı fazla fiyata satılmasından rahatsız!
--  Peynirin lezzetine lezzet katan mağara: Divle Obruk Mağarası
--  Akşener’e kızdı, İYİ Parti’den istifa etti
--  From comedy to Christmas bazaar: Three exciting things to do in Mumbai
--  Perfectly Snug Smart Topper Review: Worth the Cost?
--  Live-in relationship `dangerous disease`, should be law against it: BJP MP in LS
--  Nufarm CBD Gummies Reviews “UPDATED” Must Read This Before Purchase
--  Revanth Reddy sworn in as Telangana CM
--  Black Falcon Drone Reviews "MUST READ" Before BUY This Black Falcon 4K Drone!
--  Алиев назначил внеочередные президентские выборы в Азербайджане
--  Pertukaran Pengerusi UMNO Terengganu penuhi aspirasi rakyat
--  Muxuu Ten Hag Ka Yidhi Gushii Ay Kooxdiisu Ka Gaadhay Chelsea.
--  كشف سر ارتفاع عدد القتلى الضباط في جيش الاحتلال
--  조해진 의원, '2023 대한민국 한센대상 특별상' 수상
--  طقس بارد نسبياً الخميس
--  Gobind beri sumbangan pada keluarga Zayn Rayyan
--  أسعار العملات مقابل الريال القطري
--  Fortnite down updates — Servers disabled to prepare for new LEGO update – downtimes revealed
--  انتخاب التونسي هيكل بن محفوظ في منصب قاض بالمحكمة الجنائية الدولية
--  Today's 'Wordle' #901 Answer, Clues and Tips for Thursday, December 7 Game
--  Bahn will jeden fünften Fernzug fahren lassen
--  Vianočné trhy budú v Špačinciach, Vlčkovciach, Chtelnici aj v ďalších obciach
--  महाराष्ट्र विधानसभा के शीतकालीन सत्र का पहला दिन:सरकार ने पेश किए 5 बिल, विरोध में विपक्ष फल-सब्जी की माला पहनकर पहुंचा
+-  Employers plan to spend less on wage increases next year
+-  “술안주 안 만들어 준다” 모친 폭행해 숨지게 한 40대 중형
+-  초등생 간음하고 성착취물 유포 시도 20대 실형
+-  “기초자치단체 기능·사무 배분 시 ‘중복 금지-보충성 원칙’ 준수해야”
+-  제주도정 핵심 사업 '수소트램 도입' 급제동
+-  기다림의 시간 견디고 예술로 꽃피우다
+-  Girl, 14, shoots fellow pupil dead at Russian school before killing herself
+-  Man wanted in Germany arrested
+-  Opinion | The Fizzled Endeavour to Divide North and South in Indian Politics
+-  Sarah rennes ned av meldinger om hjelp til jul: – Det stopper ikke
+-  'Soundtrack #2' tells classic yet realistic love story
+-  From Board Games To Learning Simulations: The Evolution Of Strategic Thinking Training
+-  Казахстанский нокаутер получил непобежденного соперника на третий бой в профи
+-  Agricultural Pheromones Market Expected to Reach USD 8.2 Billion by 2028, Fueled by Growing Demand for Sustainable Pest Management
+-  Abschiebe-Debatte in Großbritannien: Chaos im Tory-Kabinett
+-  Procurement Analytics Market Size, Share, Growth, Trends and Forecast 2026
+-  “제주자치경찰 우수모델 전국으로 확산해야”
+-  기초자치단체 부활시 제주도-기초단체 사무배분 첫 논의
+-  현수막 난립 막기 제주가 앞장
+-  제주도 행정규제 재검토 기한 감축
+-  제22대 국회의원선거 지역구 예비후보 등록 시작
+-  화려한 유람선 다녀도 물속엔 쓰레기 가득한 제주바다 고발
+-  도교육청 대화 손짓도 평가절하 ‘유보통합 반발 격화’
+-  ‘항일독립운동으로 퇴학’ 제주고 김만제·이두일·홍성옥 늦은 졸업
+-  ‘1600여 명 재소자 학살’ 잊혀진 역사 돼선 안 돼
+-  제주자치경찰, 취약계층 침입범죄 방범시설 설치 사업 확대
+-  Automotive Lighting Market Size Worth $28.5 Billion in 2027, at a CAGR of 5.3%
+-  지연수 "거짓 방송 의혹 제기한 A씨 벌금형 선고…아들과 제주도서 생활 중"
+-  KG 모빌리티 "제60회 무역의 날 10억불 수출탑 수상"
+-  메르세데스-벤츠 코리아 "1월까지 필수 점검 항목 무상 점검 서비스"
+-  하이트진로, ‘진로 X 빵빵이’ 캐릭터 협업 팝업스토어 오픈
+-  현대차그룹 "이동약자를 위한 모빌리티 지원"
+-  유통업계, '제철 딸기'에 풍덩 빠졌다…시즌 메뉴 출시
+-  MINI 코리아 "온라인 한정 판매 모델 ‘MINI 메이필드 에디션’ 출시"
+-  미래에셋증권, 하트하트오케스트라 초청 ‘미래에셋증권 런치콘서트’ 개최
+-  기아 "EV9, 유럽 안전성 평가서 최고 안전 등급 획득"
+-  [게임소식] 스토브인디, VR 게임 '크로스파이어: 시에라 스쿼드' 출시 외
+-  High End Server Market| Global Industry Analysis, Market Size, Share, Trends, Analysis, Growth and Forecast, 2024 - 2028
+-  키움영웅전 11월 정규전 마무리, 상승장에 평균 수익률 역대 최고
+-  Fighting between Israel and Hamas rages in Gaza's second-largest city, blocking aid from population
+-  Farm Equipment Market's $136.3 Billion Projection by 2028
+-  Duville Estates' Riverdale Pune: Where Elegance Meets Tranquility
+-  Presspulse.io: The Newest Hottest Thing in News Distribution
+-  Artificial Lift Market Projected to Reach $9.0 Billion by 2028
+-  Oil and Gas Pumps Market is Projected to Reach $10.9 billion by 2028 | Leading key players are Atlas Copco AB; Flowserve Corporation; Sulzer Ltd ; KSB SE & Co. KGaA; Nikkiso Co., Ltd
+-  FitScaleX Reviews: Do Not Buy FitScale X Smart Scale Until You Have Read This!
+-  مجموعة السبع تدعو لتحرك عاجل لمواجهة الأزمة الإنسانية في غزة
+-  Aircraft Nacelle & Thrust Reverser Market worth $4.44 billion by 2030, growing at a CAGR of 7.32% - Exclusive Report by 360iResearch
+-  L'Europe ouvre en baisse avant une salve d'indicateurs
+-  Stabbing suspect arrested
