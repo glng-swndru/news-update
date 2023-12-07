@@ -1,11 +1,11 @@
 # Latest News
--  Kredi hacmi bir haftada 85 milyar 876 Milyon lira arttı
--  중기중앙회-두바이상의 백두포럼 열어 기업 간 협력 논의
--  셀트리온헬스케어 ‘허쥬마’ 뉴질랜드서 보조금 받는다
--  부동산 불황에 가구당 자산 2000만 원 ‘뚝’
--  인천지법, 전여친에 고소당하자 합의 요구하며 스토킹한 40대 실형
--  FC안양 이우형 감독 퇴진 팀 테크니컬 디렉터로 전환
--  로하스·쿠에바스 다시 합류 kt 위즈, 내년 외인 전력 든든
--  K리그2서 수원더비 현실화 위기
--  화성FC 상복 터졌네
--  장애인 스포츠 인권 기초부터 열공
+-  또 손흥민에게 기회가 왔다! 홀란드·살라 2경기 연속 동반 골 침묵, SON '추격 찬스'
+-  "공격진에 신선함 필요했다"→선발 출격 오현규, 멀티골로 로저스 감독에 보답
+-  '박지수 20득점·강이슬 14득점' KB, BNK 썸 제압...'6연승+공동 1위' 두 마리 토끼 잡았다
+-  ФСБ задържа украински агент за терористичната атака срещу критична руска инфраструктура
+-  سفير سلطنة عُمان يزور جامعة البترا
+-  Jarkko Saarimäki nimitettiin Traficomin pääjohtajaksi
+-  Jarkko Saarimäki nimitettiin Traficomin pääjohtajaksi
+-  Netflix viewers horrified by ‘one of the most unusual murder plots they’ve ever heard’
+-  โยนถังเซฟเกม! Langgui ไทม์มิ่งสุดเป๊ะ พา EDG ชนะ Trace Esports 2-0 ในศึก Wild Rift League Asia Season 2
+-  Cost of BBC licence fee is going up again next year
