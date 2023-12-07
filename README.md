@@ -1,51 +1,51 @@
 # Latest News
--  희귀의약품 지출 규모 천차만별‥"고가·저가 의약품, 다른 관리 정책 필요"
--  ﻿한화글로벌, 바이오 소부장 시장 진출…"안정적 사업 기반 구축할 것"
--  2024년上 전공의 모집, '가정의학과' 빅5 모두 미달
--  與-政 의협 투쟁-협상 투트랙 비판…"진정성 결여"
--  ম্যানসিটিকে প্রিমিয়ার লিগ রাজত্বের শেষ দেখালো ভিলা
--  순천시, ‘순천 특화음식 시식회’ 개최
--  신영재 홍천군수, 정부세종청사 방문 현안사업 협의
--  إسبانية تروي كواليس إسلام والدها.. ما علاقة الشيخ عبدالباسط عبدالصمد؟
--  Republican debate splits over transgender kid surgeries: ‘Mutilating these minors’
--  Revanth Rddy: సీఎం రేవంత్ రెడ్డి ఇంటిదగ్గర సందడి వాతావరణం
--  Ho Ching named among Forbes’ 100 most powerful women in the world
--  UN flays Kaduna bombing as protesters storm N’Assembly, demand minister’s resignation
--  Guatemala – Liga Nacional: Comunicaciones vs Xelajú Semifinal 2
--  ‘RHONJ’ star Danielle Cabral slams Ozempic users: ‘Run on a f—king treadmill’
--  Serving holiday cheer
--  Guastatoya y Zacapa darán todo para llegar a la final
--  ‘예술로 아름다운 세상’ 2023 대전예술인대회 성료
--  Video: Sujeto dispara contra ladrones de autopartes en Colombia
--  Suelta panista en debate: 'Morena y MC son amantes'
--  Rechazan ternas para cubrir dos vacantes en el INAI
--  Superan los mil 42 mdp recaudación del predial
--  Better access to life-saving drug
--  বৃষ্টিতে বিলম্বিত দ্বিতীয় দিনের খেলা
--  El beneficio de la guerra: Cómo los conflictos impulsan la economía de Estados Unidos
--  Nach Befreiung von Hamas-Geiseln: "Die Hamas muss sich ergeben"
--  강북구의회, ‘강북구 로컬브랜드상권 활성화 위한 정책방안 연구용역’ 최종 보고회 개최
--  임정옥 양천구의원, 2023년 자립생활페스티벌 우수 구의원 부문 수상
--  삼성SDI, 소형·전자재료사업부장 교체…전고체배터리 사업팀 신설
--  공정위, 올리브영 행사독점 행위 강요에 철퇴 …19억원 과징금
--  "인생 잘못 살았다"…'필로폰 투약' 남태현·서민재, 징역 구형→선처호소 [MD현장](종합)
--  안치홍 보상선수가 KIA 마운드를 뒤흔들까…23세 호주 유학생의 구슬땀, 예비 5선발 ‘가능성 타진’
--  박명수 "♥한수민, 쌍수 할까 고민…지금 자체가 좋아, 화장도 안 했으면" [라디오쇼]
--  [MD포토] 김택연 '아마특별상 수상'
--  리헤이 "'그 분' 덕분에 댄서 됐는데…무대 끝난 뒤 내 이름 불러줘 충격" [내 귀에 띵곡]
--  [MD포토] 김택연 '손아섭 선배 상대로 초구는 직구'
--  [MD포토] 김택연 '최고의 아마추어 선수'
--  [MD포토] 문동주 '최고의 신인상 수상'
--  [MD포토] 문동주 '올 시즌 신인상 싹쓸이'
--  [MD포토] 문동주 '최원호 감독에게 받는 최고의 신인상'
--  [MD포토] 노시환 '최고의 타자상 수상'
--  [MD포토] 노시환 '최고의 타자는 바로 나'
--  [MD포토] 노시환 '최고의 타자상, 벌써 7번째 수상'
--  세계 최고의 MF의 롤 모델은 맨유 레전드? "어릴 적 가장 큰 영향을 끼쳤다고 말하고 싶은 선수"
--  Toetusraha väljapetmises süüdi jäänud hooldekeskuse omanik pöördus ringkonnakohtusse
--  Venezuela'da 13 muhalif hakkında yakalama kararı
--  Will meet Amit Shah, Jaishankar over refugees issue, says Mizoram CM designate Lalduhoma
--  Lo ngại lãng phí và ách tắc tại cây xăng do xuất hoá đơn từng lần bán hàng
--  [언론계 역사 속 오늘] 1968년 12월7일 ‘신동아 필화사건2’
--  More from Bank of Japan Governor Ueda - important for wages to keep rising
--  TP.HCM sẽ trả 100 triệu đồng/tháng cho chuyên gia, nhà khoa học
+-  철강 vs 조선, 하반기 후판가 협상 연내 끝낸다…소폭 하향될듯
+-  Pembunuh Ayah dan Anak di Maros Masih DPO, AKBP Awaluddin Minta Hal Ini ke Masayarakat
+-  ต้องจับตา ‘เงินเฟ้อ’ ลดลงติดต่อกันเป็นเดือนที่ 2 และต่ำสุดในรอบ 33 เดือน
+-  [“남편이 마약했다”폭로한 아나운서…‘이정섭 검사 비위 의혹’ 제보자로 검찰 출석
+-  [주식카톡방 완전무료 선언” 파격결정
+-  [올해 말까지 전세계 가입자 중 20%가 5G…북미 지역 강세
+-  [김덕현 연천군수 “맞춤형 농업정책으로 농업의 지속성장을 이루겠다”
+-  [가구 평균 자산 5억2727만원 11년 만에 첫 감소..."집값 하락이 원인"
+-  [2심도 “김건희 통화녹음 공개한 서울의소리, 1000만원 배상하라”
+-  [中 11월 수출, 전년대비 0.5%↑…7개월만에 증가세
+-  Taylor Swift named Time’s ‘Person of the Year,’ capping her record-breaking 2023
+-  Xuất khẩu gặp khó, Trung Quốc chuyển hướng chiến lược
+-  Kinh tế thế giới sẽ suy thoái trong năm 2024?
+-  VLA: Thông báo giao dịch quyền mua - Nguyễn Thu Hà - Phó Giám đốc
+-  DVM: Nghị quyết Hội đồng quản trị
+-  LVBP: Bravos y Águilas le dieron otro golpe a los líderes
+-  Global Portable Patient Monitoring Systemr Market Analysis By Major Manufacturers and Competitive landscape 2023-2029
+-  Automotive Data Cables Market Worth USD 20.0 Billion In 2031 | Acome Group, Aptiv , Belden Incorporated, Coficab Group
+-  ผู้ช่วยเลขาฯ สภาผู้บริโภค ระบุรถทัวร์ชน อาจเกิดจากสภาพรถ-สภาพแวดล้อม
+-  "หมอกฤตไท" มะเร็งปอด โยงวิจัยฝุ่น PM 2.5 พบป่วย 1.2 แสนคน
+-  ผบ.ตร.สั่งจับแก๊งทวงหนี้บุกพังร้านส้มตำ เหตุไม่พอใจลูกหนี้ลงทะเบียนแก้หนี้
+-  애월읍 지역 '브로콜리 검은무늬병' 발생 요주의
+-  강원의료기기 산업발전 위한 '2023 의료기기인의 밤' 성료
+-  Manual Paint Spray Machine Market Share, Top Companies, Revenue and Forecast by 2032
+-  Agastya Nanda shares hilarious story behind him leaving social media
+-  Future of Global Automotive 3D Displays Market During Geopolitical Unrest and Inflation 2023 to 2029
+-  두산 양찬열, 7년 연애 끝에 10일 웨딩마치..."아내 덕에 어려운 시기 이겨냈다"
+-  ‘역대급 콜라보, 어린이 팬들 저격’... 인터밀란, 트랜스포머 유니폼 출시
+-  Япония и Россия договорились по квотам на вылов рыбы в 200-мильной зоне
+-  Ярославцев порадовали приятной статистикой
+-  Golpe a la historia: Santos descendió por primera vez a la segunda división
+-  2 katlı evde yangın çıktı. İtfaiye ekipleri yardıma koştu
+-  На Сахалин придет снежный циклон
+-  La devastación en Gaza podría compararse con la ocasionada durante la II Guerra Mundial
+-  Cartas de lectores: Rocco y sus hermanos
+-  Cartas de lectores: Liberalismo, corporativismo y cambio climático
+-  Cartas de lectores: Quito secular
+-  Mark Zuckerberg tiết lộ lý do từ bỏ thói quen chạy bộ, gợi ý môn thể thao mới hấp dẫn cả về thể chất, trí tuệ, sự tập trung
+-  Cartas de lectores: Felicitaciones a la vicepresidenta por ir a Israel
+-  Cartas de lectores: La TV y su influencia en los jóvenes
+-  Khảo sát hơn 500.000 người phát hiện 1 cách kéo dài tuổi thọ hiệu quả chính là hạn chế tiêu thụ 1 loại gia vị
+-  Quedó definido el Once titular
+-  En la Asamblea surge un súbito interés por enjuiciar a Wilman Terán
+-  Is Battlefield Earth The Worst Movie Ever Made? (The Answer Is Nope).
+-  ミック・シューマッハが語るメルセデスF1チームのリザーブで学んだ教訓
+-  4 Bocah Tewas Diduga Dibunuh Ayah, Penyebab Kematian Masih Diselidiki
+-  Windshield AR Heads-Up Displays (HUD) Market Size, Growth, Forecast 2023-2029 (By Type, By application, By Company)
+-  UN chief uses rare power to warn of impending humanitarian catastrophe in Gaza
+-  PAN Bangkitkan Semangat Minum Susu Bareng Puluhan Artis
+-  Netanyahu: Kuşattık, onu bulmamız an meselesi!
