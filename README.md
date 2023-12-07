@@ -1,51 +1,51 @@
 # Latest News
--  ‘สุทิน’สั่งสอบเชือดย้อนหลัง คลิปเก่าปี64ทหารตั้งแถวรับนักท่องเที่ยวจีน
--  ‘ทหาร’หนี้บาน!สุทินพบเจอยึดทรัพย์อื้อ สแตนด์บายรอสนับสนุนกำลังแก้หนี้นอกระบบ
--  ‘영양제 캡슐·사탕 포장지’ 속 가루, 마약이었다
--  한덕수 “알뜰폰 요금 선택 기회 확대…각종 규제 혁파”
--  검찰, 대유위니아 압수수색…수백억원대 ‘임금체불’ 혐의
--  Jandyala Guru Fir*ing | ਪੁੱਤ ਨੂੰ ਬਚਾਉਣ ਆਏ ਪਿਓ ਦੇ ਮਾਰੀ ਗੋਲੀ ਫਿਰ ਬਦਮਾਸ਼ ਹੋ ਗਏ ਫਰਾਰ
--  طائرات وأسلحة.. "مصراوي"، في جولة بالجناح الصيني بـ"إيديكس 2023"
--  Қонун ҳужжатлари мазмун-моҳиятига бағишланган давра суҳбати
--  [종합] 인천 이어 김포도 합류...순항하는 '기후동행카드'
--  Quán ăn Hàn Quốc làm content quá "nhây" khiến dân mạng không thể ngồi yên, cứ 5h chiều là "dậy sóng"
--  China: Xi Jinping s-a întâlnit cu Ursula von der Leyen şi Charles Michel
--  ارتفاع العقود الآجلة للنفط الخام خلال الدورة الآسيوية
--  "الأرصاد" يتوقع سماءً غائمة وضبابًا على مكة وتبوك وهذه المناطق
--  Erfolgreicher Einstieg mit Wagyus #fleischrind #wagyu
--  Neue Einzugsbleche nötig: John Deere 2056 HillMaster für 64.500 Euro #maschinedestages #gebrauchtmaschine
--  عاجل.. حساب المواطن يكشف عن شرط استمرار الدعم للخريجين
--  니치 향수 브랜드 오르오브, 주현영과 함께한 화보 공개
--  इन्टरपोलको महासभामा सहभागी भई प्रहरी महानिरीक्षक स्वदेश फिर्ता
--  सरकारले मिर्गौला प्रत्यारोपण लागि चार लाखसम्म सहुलियत दिने
--  प्रयोगविहीन भ्युटावर
--  मलमूत्रले उपचार !
--  बन्द नगरपालिका खुलाउन वार्ता
--  प्रधानमन्त्रीसँग शिष्टाचार भेट
--  Mumtaz-Asha का 'शहरी बाबू' मचा रहा धूम, गाने की शूटिंग पर खुश नहीं थीं हीरोइन
--  Russlands Krieg: US-Republikaner blockieren weitere Hilfen für die Ukraine
--  Semifinales Apertura 2023 AL MOMENTO: América domina al San Luis en el Alfonso Lastras
--  "Musk kommer inte ge sig"
--  Morbi: મોરબીના નકલી ટોલનાકામાં તપાસનું નાટક, FIR નોંધાયાના 3 દિવસ થયા છતાં આરોપીઓને નથી પકડી શકી પોલીસ
--  Statesboro leaders looking for feedback on comprehensive plan for the future
--  영주 소백산서 산불...진화헬기 투입 진화 중
--  Russlands Krieg: US-Republikaner blockieren weitere Hilfen für die Ukraine
--  Koffee with Karan: Kiara Advani calls Sidharth Malhotra a "SULKER", reveals Shershaah style proposal in Rome
--  No decision made on Savannah-Chatham County Public School System rezoning
--  Revealed! What goes inside Bachchan family’s private WhatsApp group
--  경기도, ‘1인 가구 포털’ 구축
--  Ältere Spätaussiedler und Juden könnten Geld bekommen
--  Petrol beş ayın en düşüğüne yakın
--  Alphabet unveils long-awaited Gemini AI model
--  [부고] 고재술(전남도교육청 감사관)씨 별세
--  באר שבע לא מוצאת תשובות: "מגוחך לדבר, חייבים לעצור את כדור השלג"
--  Юридические аспекты войны с террором. Интервью с адвокатом Марком Пери
--  청도교육지원청, ‘정보사회에서 인간다움을 추구하는 교육 방향’ 특강
--  한국건강관리협회, 학대피해아동 보호 위한 후원금 전달
--  화성시의회 기획행정위, 수원·화성·오산 과학화예비군훈련장 방문
--  구미시, 고향사랑기부 ‘3억원 달성’ 감사이벤트 진행
--  Polizist bei Böllerwurf rund um Volleyballspiel verletzt
--  여주에너지서비스, 지역 쌀 구매해 ESG 경영실천
--  서초 아이들 운동하며 탄소중립 실천 배워요
--  मुर्गों के साथ खड़ी है फ्रेंच सरकार, वो कितना भी चिल्लाए, नहीं होगी शिकायत!
--  В Баку произошло землетрясение
+-  İYİ Parti'deki istifa sonrası çok konuşulacak çıkış: İmamoğlu satın aldı
+-  Maaşı bağlanmayan EYT'liye önemli uyarı
+-  라파스, mRNA 마이크로니들 백신패치 본격 개발 착수
+-  Участок федеральной трассы на Сахалине закрыли из-за непогоды
+-  From overgrown and neglected to a renovated mid-century marvel
+-  국회 앞 모인 전세사기 피해자들 "연내 특별법 개정해야" 호소
+-  रमजान के इफ्तार को दुनिया में मिला बड़ा सम्मान, ईरान और तुर्की की कोशिश लाई रंग
+-  IIT BHU में नौकरी का मौका, पुस्तकालय अधीक्षक सहित विभिन्न पदों के लिए जल्द करें अप्लाई
+-  창원시, 일자리 창출 우수기업 5개사 표창
+-  Libertadores-2024 conhece brasileiros da fase de grupos e tem 42 classificados; veja quem disputa as 5 vagas restantes
+-  São Paulo encaminha saída de cria de Cotia e dá sequência a plano para 2024
+-  Bruno Henrique vai sair do Flamengo? Atacante dá resposta direta e crava futuro no clube
+-  Renato Gaúcho recorda lance polêmico que poderia ter dado título brasileiro ao Grêmio: 'Tivemos mais vitórias que o Palmeiras'
+-  Com 1º gol de Vera, Corinthians fecha com vitória sobre Coritiba
+-  Suárez se despede com 2 gols, e Grêmio vira sobre o Fluminense
+-  São Paulo vence, e Flamengo termina em 4º no Brasileirão
+-  Vasco consegue vitória heroica em São Januário e escapa da queda
+-  Botafogo perde e termina fora da fase de grupos da Libertadores
+-  Tiquinho faz forte desabafo e pede desculpas: 'A gente também sonhou bastante'
+-  O drama em 10 atos: como Botafogo perdeu o título 'mais ganho' da história do Brasileirão?
+-  Veja quanto seu time faturou de premiação pela posição no Brasileirão
+-  Palmeiras e São Paulo farão final da Supercopa do Brasil; veja quando será
+-  Rodada maluca deixa 3 torcidas desesperadas e tem 6 trocas na degola até queda do Santos; veja a linha do tempo
+-  Neymar manda recado de apoio após rebaixamento do Santos; veja mensagem
+-  Santos sofre 1º rebaixamento da história e se junta a grupo dos grandes a cair para a Série B; relembre todas as quedas
+-  Palmeiras ganha Brasileiro pela 1ª vez fora do eixo Rio-São Paulo
+-  Palmeiras bate recorde com maior virada dos pontos corridos
+-  Quanto Palmeiras ganhou em prêmios por títulos em 2023
+-  Abel exalta elenco do Palmeiras e deixa dúvida no ar: 'Não sei se tenho energia para continuar a tirar o máximo deles'
+-  Leila diz que terá conversa com Abel sobre futuro: 'Farei o possível e o impossível'
+-  Os 7 atos que fizeram Palmeiras levar o Brasileirão pelo 2º ano seguido
+-  How this maverick investor pulled off a $20 million (legal) corporate heist
+-  How this maverick investor pulled off a $20 million (legal) corporate heist
+-  [인사] 한국수자원공사
+-  Animal वाले रणबीर के ऑन कैमरा पापा के हाथ में दिखा ये फोन, खरीद सकते हैं आप भी
+-  Le PSG au cœur d’une guerre sur le mercato ?
+-  에스파 '베터 띵스', 美 뉴욕타임즈 '2023 베스트송' 선정
+-  Катастрофа на бул. "Ломско шосе" в София, след опит за дрифт
+-  UN Secretary-General playing into hands of Hamas, must resign: Israeli Ambassador
+-  الحرب على غزة في يومها الـ62 .. لحظة بلحظة
+-  കണ്ണീരോടെയാണ് ഈ തിരക്കഥ പൂര്‍ത്തിയാക്കിയതെന്ന് തിരക്കഥാകൃത്ത് അഭിമുഖത്തില്‍ പറയുന്നുണ്ട്, കണ്ണീരോടെയല്ലാതെ ഈ സിനിമ കണ്ടു തീര്‍ക്കാന്‍ സാധിക്കുകയുമില്ല
+-  Đen Vâu bảo việc tốt thì ai cũng làm được
+-  Người xưng "đại đức Thích Tâm Phúc" bị bắt, đối mặt hình thức xử lý nào?
+-  '최태원 장녀' 최윤정, SK바이오팜 임원 승진…'최연소 임원'
+-  Tiroteos en EE.UU.: detienen a acusado de matar a sus padres y cuatro personas más a tiros en Texas
+-  Giám đốc Sở Y tế Cần Thơ chỉ có 34% phiếu 'tín nhiệm cao'
+-  Парламент Сальвадора продлил режим ЧП для борьбы с преступностью до 2024 года
+-  [인사] SK이노베이션
+-  Τίμπεργουλβς - Σπερς 102-94: Οι λύκοι... δάγκωσαν ξανά (vid)
+-  Экспорт рыбопродукции из Приморья в Китай вырос на 28 процентов
