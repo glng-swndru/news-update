@@ -1,51 +1,11 @@
 # Latest News
--  Un cuento de Navidad, el musical: tiempo de redimirnos
--  [경북교육장학회, 아버지 간 이식한 양희찬 학생 격려
--  [재건축 초과이익 환수제 완화법, 법사위 통과 했다
--  Kerstconcert 'A Ceremony of Carols' in Van Cappellenhuis
--  היינות הללו: המלצות שתייה להדלקת נרות
--  גונדואן מצפה מנאגלסמן "לדרוש יותר": "אפשר וצריך לזכות ביורו"
--  Aare Oodua Mourns Victims Of Army Drones Attack In Kaduna, Wants Compensation
--  Stiže 'mirnije' vrijeme u BiH, temperature će ići i do 15 stepeni
--  Nesër Kongresi i PS-së, Çuçi: Ja pse do të jetë i jashtëzakonshëm
--  Rijnmond: в Нидерландах умерла старейшая жительница в возрасте 110 лет
--  शिक्षामा आधुनिकीकरण आवश्यक छ : पूर्व शिक्षा मन्त्री जोशी
--  अछाम र सुर्खेत सिमानामा पर्ने जङ्गलघाटको पुल तोकिएकै स्थानमा बन्ने
--  नारायणी नदीमा क्रुजसिप पुनः सञ्चालनमा
--  धौलागिरी हिमाल
--  आगलागीमा परी थप एकको मृत्यु
--  2024 masa untuk Kerajaan Perpaduan laksana reformasi – Pakar
--  Тысячу улиц осветят в Шымкенте
--  20 Stesen Parol Daerah selia banduan jalani program pemulihan komuniti
--  Ping An of China CSI HK Dividend ETF（3070.HK）Won Yinghua Award*
--  Influencerka prerobila staré dvere na absolútne jedinečný kúsok! Minula pritom minimum peňazí
--  Sviatky u hviezdnej Kim Kardashian: V kúpeľni má les z vianočných stromčekov a každé ráno... TOTO je EXTRÉM!
--  Uterák ako sukňa? Za bizarný kúsok Balenciaga by si dal 700 eur, s lacnejším riešením prišla IKEA
--  Roklina Suchá Belá v Slovenskom raji je pre popadané stromy uzavretá
--  Novým riaditeľom nemocncie v Prešove je Smatana: Šarníka ministerka odvolala
--  Generálny riaditeľ Slovenskej inšpekcie životného prostredia Jenčo sa vzdáva funkcie riaditeľa
--  Máte ešte ružový vodičák? Pozor na to, na konci roka im končí platnosť
--  Sneženie spôsobilo problémy v doprave aj v Maďarsku: Hasiči zasahovali i v Budapešti
--  Poslanci Národnej rady prerokujú zmeny týkajúce sa envirozáťaží v skrátenom legislatívnom konaní
--  Kako je govorio mitropolit Amfilohije: Do 1918. Srba je u Crnoj Gori bilo 95%, ostalo su bili Albanci (VIDEO)
--  Büyüme tahminlerini artırdılar! Uluslararası kuruluşlar Türk ekonomisinden umutlu
--  Tokio pragaro nebuvo seniai. Kas vyksta Bachmute
--  [ŽT] Koks išradingumas! Kaip Rusijoje karinį komisariatą sprogdino (Foto)
--  Internautai eina iš proto dėl naujo bulvių skutimo būdo: lengvai ir tobulai (Video)
--  Una historia insólita llevada al cómic
--  Neįtikėtini įvykiai. „Su-24“ pilotai atsisako pulti Ukrainą. „Teplinskis rėkia apsiputodamas...“
--  Kaip pagerinti metabolizmą ir sveikatą po 40–ies?
--  '셀틱 주전이 보인다' 오현규, 하이버니언전 멀티골 → 평점 8.3점...로저스 감독 "그는 훌륭했다!"
--  Монсон: следующее поколение чемпионов в UFC и Bellator будет именно из России
--  [ŽT] Stebi jau kelias dienas. Krymo partizanai aptiko tai, apie ką nežinojo
--  Logan Hutsko klar för MoDo
--  Corona-Zahlen im Landkreis das Unterallgäu aktuell: Die Coronavirus-Daten im Überblick
--  Thousands to lose their jobs as VW slashes $11 billion in costs
--  Corona-Zahlen im Landkreis das Ostallgäu aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Corona-Zahlen im Landkreis Lindau (Bodensee) aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Neu-Ulm aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Landkreis Günzburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Corona-Zahlen im Landkreis Dillingen a.d.Donau aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  A FOMO-jelenség és káros hatásai az önbizalomra
--  Müzeye dönüştürülen tarihi hamamda kahve yolculuğu
--  Corona-Zahlen im Landkreis Augsburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Motorcyclist & pillion crash into back of stationary lorry at Yishun Dam
+-  2 men hold 2 umbrellas to shelter JJ Lin from heavy rain outside ArtScience Museum
+-  Ўзбекистонда камбағалликни қисқартириш бўйича қўлланилаётган Хитой тажрибаси ўзини оқлаяптими? – Мутахассис билан суҳбат
+-  8 декабрь куни мамлакатимизнинг аксарият ҳудудларида ёғингарчилик бўлиши (ёмғир, қор) кутилмоқда
+-  Хотин-қизларга зўравонлик қилганлар билан қандай ишлаш керак?
+-  Конституция – келажак пойдевори
+-  Хориж матбуоти Ўзбекистон ҳақида
+-  Ўқувчиларга байрам туҳфаси
+-  KERING : Deutsche Bank handhaaft koopadvies
+-  Derry Chamber urges people to buy local and support the city centre
