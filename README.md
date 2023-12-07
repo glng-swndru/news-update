@@ -1,51 +1,11 @@
 # Latest News
--  Pse BDI nuk e do Spasovskin për president?
--  4 أبراج تواجه صعوبات مالية في عام 2024.. هل أنت منهم؟
--  أول تعليق من حماس على حصار الاحتلال منزل السنوار في خان يونس
--  قبل الصمت الانتخابي.. مسيرة بالسيارات لدعم الرئيس السيسى في جنوب سيناء
--  "أنت الحياة".. محافظ سوهاج يتفقد القافلة التنموية في قرية البلابيش- صور
--  إشادة دولية.. ختام فعاليات المعرض الدولى الثالث للصناعات الدفاعية "إيديكس 2023"
--  متخصصة في الشأن الإسرائيلي: الفترة المقبلة ستشهد اشتعالًا كبيرًا في المنطقة
--  عقار جديد لعلاج سرطان المبيض.. أستاذ بـ"طب قصر العيني" يعلن التفاصيل
--  "لا نفكر في كأس العالم".. الشناوي يتحدث عن مواجهة شباب بلوزداد الجزائري
--  على الطريقة البدوية.. مهرجان سباق الهجن لدعم الرئيس السيسي في جنوب سيناء - صور
--  اللاعبون بشر.. مارسيل كولر يكشف الفرق بين الموسم الماضي والحاضر
--  11 عامًا من الصراع.. قضايا الدولة تحصل على حُكم للدولة بشأن استغلال "منجم السكري"
--  عودة موديست.. قائمة الأهلي لمواجهة شباب بلوزداد الجزائري
--  بعد إقالته من تدريب قطر. 3 أسباب تمنع كيروش من العودة إلى مصر
--  عشرات اليمنيين يواجهون مصيرًا مجهولاً في غزة
--  Amnesty: Israeli attack that killed Reuters journalist, wounded others must be investigated as a war crime
--  Inside Phillip Schofield’s past seven months out of the public eye from reunion with co-star to mother’s hospital vigil
--  Ytterligare avhopp från SBB:s styrelse
--  Samantha Armytage stuns with makeup-free holiday selfie
--  Trump recurre la decisión de la jueza que rechazó que tenga inmunidad presidencial
--  Stellantis Will Build Battery Swapping Stations For A Five-Minute Full Charge
--  US expresses support for Guyana’s sovereignty amid border tensions with Venezuela
--  Montadoras preveem crescimento de 4,7% na produção de veículos em 2024, e de 7% nas vendas
--  Israel gegen den Rest der Welt?
--  Διαιτησία: Στο ΠΑΟΚ – Βόλος ακυρώνεται γκολ για επιθετικό φάουλ που έπρεπε αρχικά να μετρήσει, αλλά μετά να ακυρωθεί! (vid)
--  Biden Accuses GOP of 'Political Blackmail' to Secure US Border (Roseanne Barr & Sen. Mike Lee FTW)
--  There's No Way Flaxseed Masks Are Better Than Botox, Right?
--  Acidente en la Jiménez-Torreón deja tráiler calcinado
--  Impacta motociclista vs malla de contención; resulta con lesiones
--  'Ella baila sola' de Peso Pluma, la mejor canción de 2023, según Rolling Stone
--  Κατερίνα Στικούδη: Χορεύει στον 7ο μήνα της εγκυμοσύνης & δέχεται απαράδεκτα τοξικά σχόλια (εικόνες)
--  Un champion du monde lance un appel du pied à l’OL en direct
--  To so najboljše letalske družbe na svetu za leto 2023
--  PENTAGON KONAČNO PRIZNAO Poznato gde lete američki dronovi
--  Саммит ЕС-Китай уперся в Россию и Украину
--  영화 '시민덕희' 주역들, 화기애애한 분위기
--  Back pain? Bum knee? Be prepared to wait for a physical therapist
--  Back pain? Bum knee? Be prepared to wait for a physical therapist
--  Cerca de 900 privados de libertad reciben asistencia psicológica
--  Jey Mammon: "Voy a Córdoba a hacer mis personajes y a contar cómo viví estos meses de cancelación"
--  McDonald’s startuje z siecią spinoff. CosMc’s otworzy się już wkrótce
--  Hund in NRW: Tier wurde tagelang eingesperrt – Halter bekommt fette Strafe
--  الحالة الجوية.. استنفار على نطاق واسع لـ6 أيام
--  Virginia desmente boato de envolvimento com Neymar
--  ODBIJAO SAM DA ODRASTEM: Miodrag Dragičević je pred velikim izazovom, osvrnuo se na teške momente, a ovoga se najviše PLAŠIO
--  Multi-millionaire Tommy Mallett admits to controversial parenting style revealing he’s ‘spoilt son Brody so badly’
--  Terrorverfahren gegen Angreifer von Paris eingeleitet – das ist über ihn bekannt
--  'Peach Fuzz' é a cor do ano de 2024 escolhida pela Pantone
--  Lawsuit accuses NCAA of antitrust violation in college athlete transfer rule
--  Recuerdan sobrevivientes ataque a Pearl Harbor en 82 aniversario
+-  מצרים הזהירה את ישראל: נהירת פלסטינים לשטחנו תפגע ביחסים
+-  Železničar ispao iz CEV kupa
+-  Βίντεο από τα επεισόδια έξω από το κλειστό στον Ρέντη που τραυματίστηκε αστυνομικός (vid)
+-  Minecraft'a Rakip Olacak LEGO Fortnite Piyasaya Sürüldü: Nasıl Oynayacağınızı Anlattık
+-  El Hareketleriyle Uzaktan Kontrol Edilebilen Telefon Realme GT5 Pro Tanıtıldı
+-  Conheça o alfaiate que veste o papa e vende perfumes para a comunidade gay
+-  GTA Turk City'yi Yapan Arkadaşa GTA 6 Fragmanını İncelettik! Düşünceleri Neler?
+-  Molecular fossils study sheds light on feeding strategy shift in ancient life
+-  京都府が授業料補助を拡充へ 中間層への補助額引き上げ、近畿各府県の通学者にも
+-  ولي العهد يُجري اتصالاً هاتفياً بنظيره الكويتي
