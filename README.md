@@ -1,51 +1,51 @@
 # Latest News
--  Een cadeautje voor alle vrijwilligers
--  Cyrus et Herez vont fusionner
--  ราชกิจจาฯแพร่ประกาศแต่งตั้งที่ปรึกษา-เลขา'รองปธ.สภาฯคนที่ 1'
--  حزب الله يستهدف تجمعا لجنود إسرائيليين
--  بلدية غزة: العطش يجتاح شمال القطاع
--  الكشف عن رؤية فرنسية سعودية لإنهاء الحرب بغزة
--  أوكسفام: إسرائيل تنفذ حملة عقاب جماعي بغزة
--  الصليب الأحمر: الأرقام لا تعكس حجم مأساة سكان غزة
--  البرلمان الدنماركي يقر قانونا يحظر إحراق المصحف
--  פרסום ראשון: הקאמבק של טיילור מלכוב והאקס סוף סוף הושלם
--  القسام : دمرنا 79 آلية في 72 ساعة
--  EU-Kommission will Bürger und Umwelt besser vor Chemikalien schützen
--  Petrolio: è in rialzo a New York a 70 dollari
--  Политолог Войко: Киев деморализован из-за вероятности остаться без помощи США
--  Lovren: Ovo je najgora momčad u kojoj sam igrao, rekli smo jedni drugima svašta
--  Inside the remarkable life of Benjamin Zephaniah: How the world renowned poet served time in a borstal and then prison for burglary - before turning his life around to become a Peaky Blinders star and Yugoslavian pop sensation
--  Le Maire: con Germania intesa al 90% su modifiche a Patto Ue
--  Rupert Murdoch's granddaughter Charlotte Freud reveals her apartment was burgled and thieves did something inside that shocked her: 'These people are animals'
--  زرمبادلہ کے ذخائر میں مزید 23 کروڑ 70 لاکھ ڈالرز کی کمی
--  Mehr als das Doppelte der ursprünglichen Kalkulation: Kosten für Stuttgart 21 steigen auf rund 11 Milliarden Euro
--  MIDDAY BRIEFING - Unternehmen und -2-
--  MIDDAY BRIEFING - Unternehmen und Märkte
--  Thermador : FMR LLC dépasse les 5%
--  Petites et moyennes capitalisations : il est trop tôt pour crier victoire (Sycomore AM)
--  «Аэрофлот» заявил о проблемах с оформлением билетов из-за сбоя в Leonardo
--  ‘Nobody Should Tell Me Kaduna Bombing Was A Mistake, It Is Intentional’ – Gumi Fires Military
--  Dacia Duster, Artık "Renault Duster" Olarak Satılacak: İşte İlk Fotoğrafı
--  Evde İnternet Paketi Seçerken Nelere Dikkat Etmeliyiz?
--  مركز النقل المتكامل في أبوظبي يدشن أسطول حافلات تعمل بالطاقة الكهربائية بالتزامن مع COP28
--  Symboliczny wzrost liczby nowych bezrobotnych w USA
--  Zagraniczni inwestorzy wracają do Turcji po sześciu latach
--  «Ο Εξορκιστής»: Η πιο τρομακτική ταινία όλων των εποχών επιστρέφει έπειτα από 50 χρόνια
--  Strajk pracowników Tesli rozlewa się na inne kraje. Związki zawodowe z Norwegii i Danii dołączają do protestów
--  Met dit legaat regel je je erfenis fiscaal zo gunstig mogelijk
--  47 Kampung Percontohan Moderasi Beragama tersebar di Aceh
--  [대경경자청, 영천첨단부품소재산업지구 혁신생태계협의회 한마당 개최
--  [피프티 피프티, 틱톡 글로벌 ‘더 플레이리스트’ 1위…‘히트메이커’엔 블랙핑크 3위
--  ["식당 근무 2개월형을 선고한다" 갑질 30대女에게 명판결
--  Что делать, когда не знаешь, что делать дальше: инструкции и советы психолога
--  Tom Hanks y George Clooney hablan sobre el ‘rizz’ o carisma: ‘Si dices que lo tienes, no lo tienes’
--  McDonald's testet neues Getränkeketten-Konzept in den USA
--  حكيمي، صلاح و أوسيمين في القائمة النهائية للمرشحين لجائزة أفضل لاعب في إفريقيا 2023.
--  Euro NCAP nenavadno ostro do zavajanja in prakse proizvajalcev
--  Two-day Forensic Fair begins at JSS Medical College
--  BIN Pasundan Menang Atas PDAM Tirta Bhagasasi Bekasi
--  وفيات الخميس 7 ديسمبر 2023
--  Ανησυχία Πρ. Χριστοδουλίδη για νομοθεσία εκποιήσεων - «Δεν θα υπογράψω νόμο που θα βάζει σε κίνδυνο την οικονομία»
--  Putin dice que Rusia ha demostrado ser capaz de “responder a los desafíos más complejos”
--  Britischer Dichter Benjamin Zephaniah gestorben
--  Longsor Susulan Berpotensi Terjang Desa Bencoy di Sukabumi, BNPB Usulkan Relokasi
+-  Vedang Raina to Aditi Saigal, meet the other talented members of Archie`s gang!
+-  Telangana: 12 ministers take oath along with new CM Revanth Reddy
+-  TV actor Bhupinder Singh arrested for allegedly firing at his neighbours
+-  Peaky Blinders actor and poet Benjamin Zephaniah passes away at 65
+-  Sferopulos: Baskonija je u seriji pobeda, nemamo mnogo vremena za oporavak
+-  Telekom Srbija: Maksimalno transparentno
+-  Gobierno nacional da paso importante para garantizar recursos a familias venezolanas
+-  WATCH: Animal Actress Tripti Dimri Picks Virat Kohli As Her 'Favourite Cricketer in the World'
+-  창원LG 마레이, 한 라운드 150점-150리바운드-50도움 새역사
+-  Rajinikanth's Poes Garden Residence In Chennai Affected By Cyclone Michaung, Fan Shares Chilling Footage
+-  Irene Paredes vuelve lesionada de la selección pese al aviso del Barça a la Federación
+-  Surgical Navigation Systems Market Key Manufacturers Development Trends and Competitive Analysis 2030
+-  المقاومة نعت شهيدا ثانيا اليوم...!
+-  6 حقائق حول اعتناء المرأة بصحة الصدر
+-  Car Camera Cleaning Systems Market Report 2023 Business Scenario, Growth and Opportunities and Forecast by 2032
+-  Einnahmen erhöhen, Ausgaben senken
+-  Telefonische Krankschreibung: Arbeitgeber gegen Gesundheitsministerin
+-  Statt Geschenken: Spenden an die Tafel
+-  Räuber überfallen Mann in Klein-Auheimer Tiefgarage
+-  Zvizdić: Neka svjetlost Menore donese mir, dobro i radost u vaše domove
+-  Redukovanje broja predmeta na eksternim maturama u TK
+-  Priopćenje za javnost ŽO HDZ-a BiH Središnja Bosna
+-  Delić donio Pravilnik za jačanje kvaliteta usluga u pet ustanova socijalnog zbrinjavanja u FBiH
+-  Sarajevska berza - Pad vrijednosti indeksa BIFX
+-  Journalists should be legally protected and treated as persons engaged in work of public interest
+-  Direktor FBI iduće sedmice u posjeti Indiji
+-  Zeljković: Savez će podržati izgradnju južne tribine stadiona Grbavica
+-  Vlada TK - Nastavljen proces ulaganja u revitalizaciju UKC Tuzla
+-  Mostar: Sastanak Interresornog stručnog tima za prevenciju i sprečavanje nasilja u školama
+-  Najave događaja za 08.12. 2023. godine (petak)
+-  Izrael zabranio povratak u školu oslobođenom 14-godišnjem Palestincu
+-  U Sportsko-rekreacionom centru 'Gaz' u Hrenovici otvoreno odbojkaško igralište
+-  Hrvatska: Završili prosvjedi svinjogojaca, raspušteni svi prosvjedni punktovi
+-  Talijanska opera uvrštena na popis kulturne baštine UNESCO-a
+-  Održan sastanak Pododbora za pravdu, slobodu i sigurnost između EU i BiH (VIDEO)
+-  Milking Robots Market Size, Predicting Revenue impact Opportunities | Growing at a CAGR of 15.3%
+-  Asiantuntijat: Näin Suomelle käy, kun talous hiipuu
+-  Οι επτά λόγοι που πρέπει να κοιμάσαι στη δουλειά
+-  Huslistka Barbora Botošová krstila v Bratislave svoj druhý album a bolo to Roshambo
+-  Ľudí vydesilo žriebä, ktoré sa narodilo so zvláštnou deformáciou: Pozrite, čo má v strede čela!
+-  Opevnené mesto v púšti: Pakistanský Derawar odolal desiatkam útokov
+-  Anita Soul miluje Vianoce: Do videoklipu Vianočný zázrak si pozvala rodinu a blízkych priateľov
+-  Erika Rein a Isama Zing ukázali inú tvár slovenského popu. Pozrite si videoklip hihi.
+-  DZ potrdil Jožeta Novaka ter Franca Propsa za ministra
+-  News24 | Zimbabwe says it just made a significant gas discovery – but not everyone is gassed up about it
+-  Natale, regali comprati online? Occhio alle truffe sulle spedizioni
+-  Alpha-Methylstyrene Market worth $702.46 million by 2030, growing at a CAGR of 4.66% - Exclusive Report by 360iResearch
+-  An app for electronic registration of political entities via 'e-Elections' portal presented today
+-  Medienhaus Main-Echo lädt zum Weihnachtssingen
+-  Sakız Adası nerede, nasıl gidilir, kapıda vize var mı? Sakız Adası’nın gezilecek yerleri neler? İşte özellikleri, konaklama, yemekleri, nüfusu…
