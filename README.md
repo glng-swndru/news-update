@@ -1,51 +1,51 @@
 # Latest News
--  Parlamentarii pun tunurile pe colegii lor scandalagii. Vor da o lege prin care să îi scoată cu jandarmii din plen
--  Pohľad na dcérku (10) známej markizáčky vám vyrazí dych: TOTO si vyžadovalo veľa odvahy!
--  Šokujúce čo urobili LEKÁRI pacientovi s RAKOVINOU! Je toto možné? Hnev a bezmocnosť RODINY, kam to ešte zájde?
--  Migranti, a Gradisca la Regione punta su un servizio di vigilanza da 100 mila euro
--  Para Conceição ver. Avançado do FC Porto B foi melhor do mês na II Liga
--  „Deutschlandtrend“: Vertrauen in Scholz sinkt auf Rekordtief
--  Roménia abre canal de navegação noturna para exportar cereais ucranianos
--  Persbericht expositie van de Kunstexpress in de IJsvogel
--  Google Drive lanza una función para recuperar tus archivos borrados
--  Összehozná Orbánt és Zelenszkijt az ukrán elnöki hivatal, Szijjártó nem volt elragadtatva az ötlettől
--  Bankruptcies for North Dakota and western Minnesota for Dec. 9, 2023
--  Archäologischer Fund: Amateure machen spektakuläre Entdeckung
--  "J'ai tout quitté" : Fanny (Le Meilleur Pâtissier) dévoile sa reconversion professionnelle depuis sa participation
--  Nia Künzer wird DFB-Sportdirektorin: «Wieder Titel gewinnen»
--  Bürger klagen gegen Atommüll-Zwischenlager in Gundremmingen
--  Heino Ferch: Mit Politthriller auf Welternährung aufmerksam machen
--  Фермердан 2,2 миллиард сўм маблағ ундирилади
--  Касаба уюшма аъзолари юриш марафонида
--  California's nonpartisan legislative analyst says state faces record $68 billion budget deficit
--  Some Conservatives Angered as House Negotiators Drop Abortion Restrictions, Extend Surveillance Powers in Defense Bill Talks
--  Dünyaca Ünlü Fransız Aktöre İkinci Kez Taciz Suçlaması
--  Виталий БУЯЛЬСКИЙ: «Для нас каждый матч как финал»
--  Odličan početak Europskog prvenstva: Hrvatsko finale i tri medalje u prvom danu natjecanja
--  Првото селфи на слобода, објави Боки 13
--  Seksueel geweld van Hamas tegen vrouwen op 7 oktober: geen makkelijk onderzoek
--  Achmea wil ook praten met claimclubs na woekerpolisdeal ASR
--  De Jonge laat hertellingszaak bij verkiezingen onderzoeken
--  Oekraïne roept burgers op elektriciteit te besparen
--  Redding in zicht voor die andere beroemde scheve toren in Italië: de Garisenda in Bologna
--  De roemruchte jubelton wordt ruim overtroffen door de miljarden uit de familiehypotheek
--  В "Укренерго" попередили українців про складний період
--  Programas ponen los medicamentos sin usar en manos de pacientes que los necesitan
--  FETÖ'nün 'Emniyet Mahrem İmamı' Yakalandı!
--  Vorwürfe der Volksverhetzung: Daniel Halemba wird zum Fall für die AfD-Spitze
--  Krieg in Nahost: Irans Präsident fordert in Moskau Stopp der Angriffe auf Gaza
--  Russian girl shoots several classmates, leaving 1 dead, before killing herself
--  ¿No sabes qué regalar en el intercambio navideño de la oficina? Aquí te damos opciones
--  Инвестиции в Красноярский край в 2023 году составят рекордные 900 млрд рублей
--  Joven llegó de rodillas ante la Virgen
--  A Jonatan Viale lo corrieron de LN+ y explotan las redes
--  Shark Attack Dutch Bros: Top 5 Nutritional Benefits Compared
--  Au bout de combien de km une voiture électrique compense-t-elle son empreinte carbone ? Le 20H vous répond
--  Formel-1-Ermittlungen gegen Mercedes-Teamchef eingestellt
--  Formel-1-Ermittlungen gegen Mercedes-Teamchef eingestellt
--  Velepec und das maximale Risiko: Warum Deutschlands Biathleten plötzlich so bärenstark sind
--  Men's world golf number two Rory McIlroy claims the introduction of rules to roll back the distance balls travel by January 2028 will make the sport more entertaining to watch at the top level
--  Circulação na Ponte 25 de Abril condicionada de sábado para domingo
--  Ameliyata giren belediye başkanı hayatını kaybetti
--  हरियाणा में दिख रहा विकसित भारत संकल्प यात्रा का असर : डॉ. सतीश खोला
--  Black Alabama man, 24, tasered by white cop shouting 'shut your b**** ass up' is freed from jail and planning $20 million lawsuit as his scowling mugshot is released
+-  Mimimi Games ještě vydají dvě DLC pro Shadow Gambit: The Cursed Crew
+-  Bizneset të “urritur” për punonjës/ Resulaj: Reforma në pagë do përmirësojë situatën, buxheti konfirmoi qëndrueshmërinë ekonomike
+-  Kurs jena z największym wzrostem od prawie roku. Dolar i euro w dół. Zmiany na rynku walut
+-  Андижонда тантанали тадбир бўлиб ўтди
+-  Хонработ обод гўшага айланди
+-  Сурхондарёда газ қўйиш шохобчалари иш вақтига чеклов киритилди
+-  News24 | Will AI lead to the age of wisdom or despair in South Africa?
+-  News24 Business | Dan Marokane set to be appointed as Eskom CEO
+-  La acalorada situación dentro de un avión que obligó a pilotos a aterrizar de emergencia en Florida
+-  Доделени 87 договори во вредност од 51 милион денари за поддршка на малите семејни винарии
+-  VIDEO/ Ky është momenti kur vritet me plumb në qafë Erjon Javori
+-  Adryelson despista sobre transferência ao Lyon
+-  Justiça do Rio afasta Ednaldo Rodrigues da presidência da CBF
+-  Jürgen Klopp'dan çok sert tepki! 'Sen bir cahilsin'
+-  Presents that won't need a return trip: A gift guide for globetrotters who like to travel in style
+-  Chevy Chase, 80, FALLS OFF STAGE at National Lampoon's Christmas Vacation event after arriving onstage in a wheelchair - one day after insisting he's in 'amazing' shape
+-  Gefängnis statt Bußgeld: Dieses Vergehen ist Alltag auf Autobahnen – doch Verkehrsteilnehmern droht dafür Knast!
+-  САЩ са предупредили Израел да не отговаря на атаките на йеменските бунтовници
+-  مبارك الحجرف: سأستجوب وزير المالية خلال الأيام القادمة
+-  100ft-high tickling stick compared to a giant loo brush and a kebab rotisserie will tower over Liverpool city centre as part of plans for museum dedicated to the late comedian Sir Ken Dodd
+-  Adele dazzles in pinstripe suit as she leads the glamour with Dua Lipa and Camila Cabello at The Hollywood Reporter's Women In Entertainment Gala in Beverly Hills
+-  Laz Kızı'nın ardından düğmeye bastılar! Bir fenomen daha müstehcenlik sebebiyle gözaltına aldını!
+-  Dieses Hausmittel hilft enorm stark bei Erkältungen – wir alle haben es griffbereit
+-  Avec Lego Fortnite, le géant du jouet et Epic Games veulent élargir leur public
+-  20 очков Курича и дабл-дабл Эртеля помогли «Зениту» обыграть «Самару»
+-  Verkehrszeichen verschneit? An DIESE Schilder musst du dich nun nicht mehr halten
+-  No afecta suspensión actuar en entrevistas por magistraturas
+-  Desmontan rehiletes en la Victoria
+-  Cameo celebs appear to have been punked by Russian propaganda trolls
+-  Aprueba Congreso construcción de Celda 3 del relleno sanitario
+-  Hausmittel statt Eiskratzen: So schnell und einfach sind deine Autoscheiben frei!
+-  Two Competing FISA Reform Proposals Advance in the House
+-  El Comando Sur de EEUU realiza en Guyana ejercicio aéreo en medio de crisis con Venezuela
+-  Neues Verkehrsschild: Verstößt du dagegen, musst du zahlen oder wirst abgeschleppt
+-  Detached house sells in Palo Alto for $3.2 million
+-  LeBron James calls out gun laws after UNLV mass shooting kills 3 near venue of Lakers' next game
+-  Kirchensteuer: DAS passiert wirklich mit Ihrem Geld
+-  N4 Pharma salue une recherche "encourageante" sur le siRNA
+-  Anel Ahmedhodžić se oglasio nakon što je odbio nositi kapitensku traku u duginim bojama
+-  Wordle 902 Word of the Day for Today: Hints, Clues and Answer for 8 December
+-  Afturelding – FH kl. 19.30, bein lýsing
+-  Paşinyandan hərbçilərin azad edilməsi ilə bağlı paylaşım
+-  Mann gestorben: 21-Jähriger muss nach tödlichem Böller-Unfall in Hennef ins Gefängnis
+-  Se upp när EU vill styra ägandet
+-  Hartmann AG aus Heidenheim bekommt neuen Finanzchef
+-  Can You Buy a Money Order With a Gift Card?
+-  iOS 17.2 Adds NameDrop-Like Feature for Sharing Boarding Passes, Movie Tickets, and More
+-  "Probao sam sa ženom ranije, nije loše...": Milan Milošević urnebesnim komentarom nasmejao gledoce
+-  Ein Tauchbad für Orchideen hat drei Vorteile
+-  Spotlio AS publie ses résultats pour le deuxième trimestre clos le 31 octobre 2023
