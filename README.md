@@ -1,51 +1,51 @@
 # Latest News
--  [SK사단] SKT, AI·글로벌 역량 집중…유영상 "AI 피라미드 극대화"
--  강화군, 우수 농산물 직거래 큰 ‘호응’
--  [인사] SK이노베이션 계열
--  원광대병원, 몽골 국립 제1병원·아치 국제병원 의료인 초청 연수 수료
--  ‘2023 초등연맹우수선수 선발전 및 최강전 전국 초등학교태권도대회’ 성료
--  옹진, 자월면 우편취급국 개국
--  여야, 오는 20·28일 본회의 개최… 예산안·민생법안 처리
--  एनसेलको शेयर खरिद बिक्री छानबिन गर्न सरकारद्धारा समिति गठन
--  यस्ता छन् आजको मन्त्रिपरिषद्का निर्णय
--  अष्ट्रेलियाको आर्थिक वृद्धि तेस्रो त्रैमासिकमा ०.२ प्रतिशतमा घट्यो
--  AKD overblows RW’s yahapalanaya debt
--  Whoâ€™s going to be the most expensive overseas buy at the WPL auction?
--  Who’s going to be the most expensive overseas buy at the WPL auction?
--  ฝนตกถนนลื่นกระบะตู้ทึบเสียหลักพลิกคว่ำลงข้างถนนคนขับดับคาที่
--  ปักหมุดรอ! กทม. จัดกิจกรรม ชมดาวกลางกรุง สุดยิ่งใหญ่ 23 ธ.ค.นี้
--  'เทพไท'ประกาศขอแสดงความเห็นครั้งสุดท้าย ปมเลือกหัวหน้าพรรค ปชป.
--  นิตยสาร Time ยก'เทย์เลอร์ สวิฟต์'เป็นบุคคลแห่งปี 2023 คนแรกของสายงานด้านศิลปะ
--  นักท่องเที่ยวเสียงแตกสร้างกระเช้าไฟฟ้าชึ้นภูกระดึง ห่วงอาชีพลูกหาบ-ร้านค้าตกงานพรึ่บ
--  เปิดสาเหตุ 'พลายเดือน' ลูกช้างป่า เสียชีวิต พบระบบทางเดินอาหารผิดปกติ
--  UN chief uses rare power to warn of humanitarian catastrophe in Gaza, calls for immediate ceasefire
--  '입대 D-5' 정국, 태몽도 '황금'이었다…"지금 가장 빛나고 있는 시기" [마데핫리뷰]
--  '멀티골 오현규, 피지컬 능력 증명→고정 선발 출전해야 한다'…셀틱 레전드 제안
--  박지원, 까칠했다가 귀여웠다가 "왜 이렇게 설레지"[혼례대첩]
--  Firefighting pilot escapes as chopper fills with water
--  Will Have to Put in Extra Hours to Hear Disqualification Pleas: Maharashtra Speaker Narwekar
--  Klingbeil: Entscheidung in Haushaltskrise noch dieses Jahr
--  Die Frau im Fokus: Lärm und eine Hauptfigur bei Republikaner-Debatte
--  Sunrise star Nat Barr opens up on emotional family moment: ‘Packed the tissues’
--  Santos: carro de jogador é queimado após rebaixamento no Brasileirão
--  'Sanctions may apply': Canberra's 'biggest club' amasses significant debt
--  X user faces backlash for spreading rumors of Aishwarya Rai-Abhishek Bachchan’s separation
--  Manifestation A69 : mobilisation massive prévue dans le Tarn ce samedi 9 décembre
--  HLB, 코스피 이전 청신호…글로벌 의결권 자문사 ISS '가결 권고'
--  [종합] 영주 소백산 산불 1시간10분만에 큰 불길 잡아
--  ++ Warnstreik bei der Bahn ++ Rhein weiter gesperrt ++ Entflohener Mörder schickt Video ++
--  Tiago Nunes fala em 'destruição mental' do Botafogo na reta final
--  Incomprensible: la Fenamac, sin entusiasmo
--  Hielo MUY delgado
--  Palmeiras é campeão brasileiro com justiça
--  Γουόριορς - Μπλέιζερς 110-106: Ο Κάρι κράτησε όρθιο το Γκόλντεν Στέιτ (vid)
--  공정위, CJ올리브영에 19억 과징금·고발 결정…"시장지배적지위 남용행위 해당안돼"
--  PM Dahal, US senior national security official meet
--  Unleashing Creativity: Transforming Handmade Sketch Photos with CapCut’s Online Photo Editor
--  [프로필]이용욱 SK실트론 사장
--  الرحاوي: انخفاض الفرشة المائية
--  [포천소식] 포천시립박물관 건립 지원 대학생 서포터즈 모집 등
--  ADRAP launches fellowship for journalists
--  Nächster Warnstreik bei der Bahn beginnt
--  G7’den Gazze için “insani ara” çağrısı
--  Ini Plus Minus Antara Sistem Penggerak FWD dan RWD
+-  Sıfır otomobillerde dev indirim ve yüzde 0 kredi kampanyası… Tüm markaları sıraladık, işte avantajlar
+-  Ο Γκουτέρες χρησιμοποίησε το άρθρο 99 του Καταστατικού Χάρτη του ΟΗΕ - Έντονος εκνευρισμός στο Ισραήλ
+-  경상북도장애인체육회, 장애인체육 스포츠발전을 위한 워크숍 개최
+-  EPL 득점 3위 손흥민·4위 황희찬, 나란히 연속 득점포 정조준
+-  김하성 "공갈 협박당했다" 같이 뛰던 후배 야구선수 고소
+-  Nikola Jokic has career-worst shooting performance as Nuggets fall to Clippers in Jamal Murray’s return
+-  quot;창원지역 층간소음 차음 막아라quot;
+-  전남교육청 감사관은 왜 사망했나?hellip;평소 온화하고 쾌활했으나 극단 선택 '의문'
+-  Mysterious Star at Heart of Milky Way Appears to Be From Alien Galaxy
+-  김영석 전 해양수산부 장관, 22대 총선 출사표
+-  Giá xe KIA Sorento tháng 12/2023: Tụt không "phanh"
+-  Mọi tranh chấp biển cần giải quyết bằng các biện pháp hòa bình theo UNCLOS
+-  وفيات الـيوم الخميس
+-  العلماء يزعمون: الزواج قد يرفع ضغط الدم حقا!
+-  مخاوف إسرائيلية من تهريب الأسرى إلى مصر
+-  ريال مدريد يمهل مبابي 15 يوما كفرصة أخيرة
+-  10 نصائح لتحقيق حلم السعادة في مرحلة التقاعد
+-  Cuiabá goleia o Athletico-PR e termina o Brasileirão na 12ª posição
+-  2024戒掉呆美元定存？專家3大理由建議這樣投資
+-  داخل جامعة في لاس فيغاس.. هجوم مسلح يخلف 3 قتلى
+-  Santos perde para o Fortaleza na Vila Belmiro e é rebaixado no campeonato Brasileiro
+-  Corinthians bate o Coritiba por 2 a 0 e encerra sua participação no Brasileirão na 13ª colocação
+-  Top Olympians join highschool students advocating for changes to 2032 Brisbane Olympics
+-  Kort sagt om trafik, Agnes, politik, bussar
+-  Yazarların Trabzonspor yorumları
+-  На 7 декември 1941 г. Япония напада военноморската база Пърл Харбър на Хавайските острови
+-  Husilerden İsrail'e mesaj: Balistik füzeyle hedef aldık
+-  فایق: سیاست‌های استبدادی طالبان افغانستان را در انزوای بین‌المللی قرار داده است
+-  В ВТБ заявили о планах увеличить сеть офисов на 40% за три года
+-  Guten-Morgen-Grüße am Donnerstag, 07.12.2023: Whatsapp-Sprüche und Bilder zum Verschicken
+-  Wheat pauses after hitting 4-month high on US sales to China
+-  לחנוכה, ולכל יום אחר בשנה: לביבות תירס שהילדים הכי אוהבים
+-  דיווח: חמאס "הלשין" על הג'יהאד האסלאמי כדי להטעות את ישראל
+-  Alvaro Fidalgo deja atrás la goleada a San Luis y sólo piensa en que el América levante la '14'
+-  Executive Director Madhivanan Balakrishnan Resigns From IDFC First Bank
+-  Hyundai Motor, tek tekerlekli tahrik sistemini tanıttı
+-  Phẫu thuật não chữa khỏi bệnh động kinh khi người bệnh ở trạng thái tỉnh táo
+-  Депутатите решават кога да отпадне дерогацията за "Лукойл"
+-  Consumidores mostrarán cautela para festejos de fin de año
+-  देश की खबरें | अयोग्यता याचिकाओं पर सुनवाई के लिए अतिरिक्त समय देना होगा: महाराष्ट्र विधानसभा अध्यक्ष नार्वेकर
+-  Giảm chi phí, tăng thu nhập, tài xế xe ôm công nghệ chuyển sang xe điện VinFast
+-  'Les da vergüenza decir que son del PRI'
+-  Singtel develops next-generation artificial intelligence data centre to meet demand
+-  Colossus hits continue for Viridis as Brazil project grows
+-  (사)한기범희망나눔, ‘후원의 밤’ 나눔 자리 마련
+-  서부발전, 오만 태양광사업 PF 계약 서명
+-  Chine: rebond surprise des exportations mais reprise encore fragile
+-  Готов ли е бизнесът в САЩ за Тръмп 2.0?
+-  LS전선, 유럽 북해 해상풍력 HVDC 케이블 본계약
+-  SK이노 계열, 대대적 임원 인사·조직개편…내년 불확실성 대응
