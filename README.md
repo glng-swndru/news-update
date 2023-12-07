@@ -1,51 +1,51 @@
 # Latest News
--  EU-Staatsanwaltschaft erwartet deutlichen Anstieg von Verfahren
--  Kering : acompte sur dividende au titre de l'exercice 2023
--  GTT : conclut un accord avec le groupe de construction navale chinois CSCC
--  Kering versera un acompte sur dividende de 4,50 euros par action le 17 janvier
--  مصر تحمّل «العراقيل الإسرائيلية» مسؤولية تباطؤ المساعدات إلى غزة
--  Lutto per i fan di Peaky Blinders: è morto a soli 65 anni l’attore e poeta Benjamin Zephaniah
--  फ्लैग डे फंड में से 212 सैनिकों को 17.75 लाख रुपए की वित्तीय सहायता दीः जौडामाजरा
--  ہماری کوتاہیاں، غلطیاں اور کمزوریاں ہی تباہی کی وجہ ہوں گی،اگر سندھو رک گیا تو یہ حضرت انسان کی بھی بربادی ہو گی،یہ ہے میرے دوست کی داستان حیات
--  Bela, il ritiro e le lacrime di Mike: "Il 2024 sarà il mio ultimo anno"
--  La FIVB ha deciso i calendari 2025/2028 dell'attività internazionale
--  Al Khelaifi clamoroso: "Elkann mi ha chiamato, la Juve torna nell'Eca"
--  Medicina e Scienza dello Sport: a UniCamillus i campioni mondiali
--  Cerca moto online: ne trova una, ma è quella che gli avevano rubato
--  Il faut sauver la synagogue de Sousse
--  Гълъб Донев: Добрите управленски решения идват в резултат на внимателен анализ и диалог с гражданското общество
--  Χρήστου: Πέρασε στον τελικό στα 100μ. ύπτιο στο ευρωπαϊκό 25άρας στο Οτοπένι
--  Khaby, matrimonio in vista Wendy mostra l’anello del sì
--  Lo sorprendieron cuando abusaba de una niña de cinco años
--  Александър Везенков с Икар за "Впечатляващо представяне"
--  Agwai: One Party State Not Good For Democracy
--  Legendarni talijanski gradski automobil dobiva nasljednika, a proizvodit će se u našem susjedstvu
--  Adele onthult dat ze haar eigen hit niet meer kan horen en door welke collega ze doodsbang was bij concert
--  Animal: Who is Shafina Shah? get to know Bobby Deol`s second wife in the movie
--  Maharashtra: Twelve transgenders booked for assaulting cop in Pandharpur
--  HELLENiQ Energy: Ξεκινάει η διάθεση μετοχών του Ομίλου στο Χρηματιστήριο – Στο 10% το πακέτο που ανακοινώθηκε
--  Freddie Flintoff smiles as he enjoys his birthday night out after suffering horror injuries in Top Gear crash
--  Freddie Flintoff smiles as he enjoys his birthday night out after suffering horror injuries in Top Gear crash
--  NASS to remove tertiary institutions from IPPIS – Speaker
--  Fusion gets a bipartisan boost
--  Росатом начал изготовление оборудования для наземной АСММ в Якутии
--  White House delays banning menthol cigarettes yet again: When is the next target date?
--  Cumhurbaşkanı Erdoğan Yunanistan'dan ayrıldı
--  ПРЕТЕПАН ЗАТВОРЕНИК во Идризово
--  É falso que governo tenha criado “Ceia para Todos” em parceria com a Seara; conteúdo leva a golpe
--  Beneteau : plus forte baisse du SBF 120 et du SRD à la clôture du jeudi 7 décembre 2023-
--  Econocom Group Se : Econocom et Lifelines référencés, pour les solutions d'automatisation des flux par robots mobiles autonomes (AMR)
--  Aynur Dadaşova: “Deyirlər ki, kasıb olduğum üçün onların toylarına gedirəm”
--  Kering annonce le versement d'un acompte sur dividende de EUR4,50
--  ЕС призвал Китай воздерживаться от применения силы против Тайваня
--  В ЦСКА 1948 мечтаят за нов финал за купата
--  Tempi di Fraternità: lotte di base e dialogo interreligioso in cinquant’anni di pubblicazioni
--  İstanbul'da üniversiteli olmanın maliyeti açıklandı: Asgari ücret öğrenciye bile yetmiyor
--  Kommentar: In NRW gerät der vorzeitige Kohleausstieg 2030 in Gefahr
--  ضبط 30 متهماً على ذمة 26 قضية جنائية
--  Schatten über Lichterfest: Viele Ängste und Sorgen
--  Promoção “The Game Awards” na PlayStation Store
--  انتخابات الرئاسة.. خطوات إدلاء الناخب بصوته داخل لجنة الاقتراع
--  В РПЦ заявили, что священников-предателей на Украине нужно простить после их покаяния
--  Momirović: CEFTA tržište je važno za srpsku privredu
--  Roy Keane ‘wouldn’t be sure’ about Marcus Rashford as he questions Man Utd star’s desire and future at Old Trafford
+-  Gaziantep'te iki aylık bebeğini öldüresiye dövdü: Sanık babanın cezası belli oldu
+-  Die Arbeitslosenquote in Graubünden steigt auf 1,2 Prozent
+-  Engadiner Bauunternehmen blitzen im Kernpunkt vor Gericht ab
+-  Chińskie myśliwce naruszyły linię mediany Cieśniny Tajwańskiej
+-  Četiri načina na koje sami sebi stojite na putu ka sreći u ljubavi
+-  Boeren gaan voor uitgebreide uitkoop. Geen interesse in algemene regeling tegen stikstofuitstoot
+-  António Costa defende reforço da parceria entre Governo e sector social e solidário
+-  Immobilier : les taux d'intérêts continuent d'augmenter
+-  Investigație jurnalistică. Armata israeliană, responsabilă de lovitura soldată cu moartea unui jurnalist Reuters
+-  Serving female prison officer arrested during major gardai drugs bust
+-  Escuela de Yoga: anulan la elevación a juicio, la causa vuelve a foja a cero y los acusados, cerca del sobreseimiento
+-  ARD-„Deutschlandtrend“: Kanzler Scholz so unbeliebt wie nie - Ampel-Umfragewerte im freien Fall
+-  VIDEO: Presentadora de BBC provoca momento viral al hacer gesto obsceno en plena transmisión
+-  Las primeras imágenes de cientos de milicianos palestinos rendidos ante el ejército israelí
+-  LUPIO ČOVEKA PO GLAVI Zbog poteza Ace Lukas na svom nastupu MIŠLJENJA SU PODELJENA: Snimak postao viralan na mrežama (Video)
+-  ایس ایچ اوز اپنے اپنے علاقوں میں منشیات فروشوں کے خلاف کاروائی تیز کریں جس ایس.ایچ۔او نے منشیات فروشوں کے خلاف کاروائی نہیں کی ان کے خلاف سخت محکمانہ کاروائی عمل میں لائی جائیگی۔ڈی پی او قمرحیات
+-  تفاصيل مصرع نجل مسؤول عسكري صهيوني كبير بغزة
+-  استقالة فهد الخيطان من إدارة الإعلام في الديوان الملكي
+-  تجدد الاشتباكات بين المقاومة والاحتلال في خان يونس
+-  Что будет, если сдерживаться и не пукать? Врач дала ответ
+-  إليتشيف: التعاون الدولي ضروري لتحقيق أهداف المناخ
+-  Bombazo: La drástica decisión de Riquelme con un histórico de Boca
+-  Insólito: robó un auto, lo chocó y fue detenido en Godoy Cruz
+-  Orosz hackertámadás áldozatává váltak brit politikusok
+-  Bybit na czele zielonej rewolucji po wyśmienitym debiucie giełdowym ekosystemu blockchainowego 5ire
+-  Vona Gábor: Simicska sosem rakott pénzt a Jobbikba, de megnyitotta előttünk a birodalmát
+-  Ukraina elektrības trūkuma dēļ pieslēgusies vairāku valstu elektrotīkliem
+-  مسيرة إسرائيلية تستهدف أحد مراكز الدفاع المدني في القطاع الغربي
+-  Wiesbadens Wahrzeichen mit Wasserschaden
+-  Washington Post për protestën e opozitës: Socialistët bllokuan komisionet hetimore!
+-  В ДНР учредили региональное отделение организации "Новая формация"
+-  غزواني يضع حجر الأساس لطريق اشميم - انبيكت لحواش
+-  Экспорт кондитерской продукции из РФ в 2023 году может достигнуть $1,7 млрд
+-  Philosoph Konrad Paul Liessmann mit Ehrenkreuz ausgezeichnet
+-  King Charles gets Santa's seal of approval as he meets Father Christmas at festive market: One's at the 'very top of the good list'
+-  "Металлоинвест" выплатит дивиденды за девять месяцев в размере 0,259 рубля на акцию
+-  Gobierno de México recompra 480 mdd en bonos del aeropuerto cancelado de Texcoco
+-  El incómodo comentario de Jorge Pietrasanta tras el gol de Julián Quiñones contra San Luis
+-  Cotentin. Ça va bouger dans cette commune pour le marché de Noël
+-  إسرائيل في بحارنا.. فما هو دورنا ؟| كتب سالم المسعودي
+-  Finska AKT inleder blockad för att stödja Teslaanställda i Sverige
+-  في حوارها مع موفد (وال) ببيكين: مسؤولة بإذاعة الصين الدولية تشيد بمهنية وكالة الأنباء الليبية وتدعوها لتوقيع اتفاقية تعاون في مجال تبادل الأخبار.
+-  في تصريح خاص لـ(وال) : رئيس مركز الدراسات الصيني العربي للإصلاح يدعوا بلاده لخلق فضاء تنموي واسع مع ليبيا.
+-  بطاقة التأهل الثانية للمجموعة السادسة في دوري أبطال أوروبا في انتظار مباريات الاربعاء القادم.
+-  تعرف على حكام الجولة الخامسة والسادسة للدوري الليبي الممتاز لكرة القدم.
+-  النقابة العامة للعاملين بالمنطقة الحرة مصراتة تحمل الحكومة تبعات قرارها القاضي بتشكيل مجلس أمناء المنطقة الحرة و تطالبها بسحب القرار فورا .
+-  الدبيبة يبحث مع المجلس الاستشاري الماليزي التعاون في المجالات الاقتصادية والتعليمية.
+-  Республиканцы в нижней палате Конгресса США представили резолюцию об импичменте Байдена
+-  ‘What will happen to my child?’: The tough question families on NDIS want answered
+-  ‘What will happen to my child?’: The tough question families on NDIS want answered
