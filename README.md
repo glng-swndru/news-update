@@ -1,51 +1,51 @@
 # Latest News
--  Ropa naftowa najtańsza od ponad 5 miesięcy
--  Import miedzi do Chin najwyżej od dwóch lat
--  Charging Times, Energy Use Goes Way Up When It’s Free
--  Κάρι: Το τρίποντο-μαχαιρία στους Μπλέιζερς (vid)
--  Meta開始全面加密臉書、IG訊息，引發隱憂
--  Exportações da China sobem pela primeira vez em sete meses
--  Which Cryptos are leading the investment pack in 2023? Stacks, Bitcoin Cash, and VC Spectra analyzed
--  西區區議會2023候選人名單｜地區委員會及地方選區選舉投票一覽
--  Дмитрию Биволу предлагали переехать в Казахстан
--  Aumento de casos de HIV entre os jovens preocupa e expõe os excessos
--  LG Elec joins governing body of SOAFEE
--  «Манчестер Сити» сделал предложение Месси. Подробности
--  ESG卓越企業大獎 2023｜阿里巴巴集團
--  জাপার সঙ্গে আসন ভাগাভাগি নয়, রাজনৈতিক আলোচনা: ওবায়দুল কাদের
--  Αυτό είναι που ισχύει με Παναγή…
--  책임은 있으나 처벌은 않는다? '故 김용균 사건' 서부발전 대표 무죄 확정
--  금천구의회, 제247회 정례회 구정질문 3일차 날카로운 질문 공세
--  남동구의회 정재호 의원 발의 ‘사회복지시설 생활자 학대 예방 및 피해자 보호 조례’ 원안 가결
--  용인특례시의회 유진선 의원, 의정대상 수상
--  인천지방중소벤처기업청, 8~10일 소상공인 제품 특별판매전 개최... 잡화 뷰티 식품 판매
--  김원태 행정자치위원장, ‘2023년 서울 청소년 지도자의날’ 행사 격려 방문
--  화성시의회, 제226회 제2차 본회의 개회
--  화성시복지재단, 중증장애인생산품 우수구매기관 특별상 수상
--  고광민 의원, 유휴교실 느는데... 교육청은 교실 활용기준 마련 안해
--  Merkez Bankası'ndan TL mesajı
--  Bakan Tekin duyurdu: Öğretmenlere müjde! 18 Aralık'ta başlıyor...
--  기후변화 시대, 풍수해 대응방안 찾자 …서울시, ‘생태도시포럼’ 개최
--  SPC파스쿠찌, 크리스마스 시즌 케이크 5종 출시
--  Aktien Asien/Pazifik: Verluste - Starker Yen und schwacher Ölpreis belasten
--  Warum dieses Gastspiel von Mannheim bei den Ice Tigers besonders wichtiges ist
--  Algérie France : Paris change de position sur l’accord de 68
--  Sự thật bất ngờ khi nấu ăn bằng lò vi sóng hàng ngày
--  Brigade Group eyeing expansion in collaboration with Accor Group
--  Fortune Hotels secures deal for two exclusive properties in Kochi
--  Sobi ny sektorfavorit hos Handelsbanken
--  Sister of Limerick man Jason Corbett reacts to 'nightmare' over killers' release date
--  South East Water pays out £2.3m in dividends amid widened losses and Ofwat probe
--  Romero reminded about discipline before Spurs return
--  طقس الخميس… أجواء باردة وصقيع بعدد من الجهات
--  Peter Bosz wil niets horen over besliste titelstrijd: ‘Iedereen wil PSV de eerste punten afpakken’
--  СМИ: предсказание Путина о США и Украине начинает сбываться
--  Jubilant Pavol Hammel: Neveril som, že sa dá uživiť hudbou. Na hudobnej scéne je už 60 rokov
--  Aumentam os interessados: Arsenal segue Gyökeres
--  Manchester United performance among best in league this season, Erik ten Hag struck gold - Opinion
--  Lições do brasileirão
--  未完の「武器」 攻めの形は多様でも 練度低く「みんなで共通意識を」
--  Hoje vai ser notícia
--  زلزال بقوة 5.6 درجات يضرب بحر قزوين بأذربيجان
--  Storsala rekryterar CFO från SBB
--  7 loại quả giàu vitamin C mùa đông nên ăn nhiều vì cực bổ phổi, lại đẹp da
+-  Giuntoli, Pompilio e Micheli: Juventus-Napoli e il calciomercato dirigenti
+-  Sarri diventa Allegri: il riscatto Lazio grazie al corto muso
+-  La parità non può aspettare: la nuova campagna di TIM
+-  Why Perth pitch may have more spice than Warner’s challengers
+-  Why Perth pitch may have more spice than Warner’s challengers
+-  임종석, 민주 내홍 심화에 "만남과 소통으로 단합될 것…역할하겠다"
+-  Χαοτικό ντιμπέιτ των Ρεπουμπλικάνων χωρίς τον Τραμπ: Προσβολές, προσωπικές επιθέσεις και σπαρταριστές ατάκες
+-  মিরপুরের বৃষ্টিতে ভেজা শালিক এবং ‘সময় যেন কাটে না’র গল্প
+-  Extragalaktischer Besucher: Mysteriöses Objekt suchte sich Weg ins Herz der Milchstraße
+-  V. Obradović: Formirati tim da preispita Šapićeve tendere, napravio je od Starog dvora svoju tvrđavu
+-  NA speaker urges Pakistanis to enthusiastically participate in upcoming elections
+-  玉晶光11月營收月減1.5%
+-  Без македонски претставник на Евровизија 2024 во Малме
+-  禾伸堂11月營收月增2.1%
+-  金像電11月營收月增2.4%
+-  Pierre Ronden, houder medaille van verdienste van de gemeente Ede, overleden
+-  Ünlü CEO'dan kriptoya sert sözler
+-  안전 교육도시 안산 실현…시, 민·관 합동 TF 구성
+-  VIDEO/ Bardhi i përjashtuar, nxjerr pamjet nga Kuvendi: 43 gardistë në sallë
+-  경남정보대, '총장이 쏜다' 기말고사 학생 응원 이벤트
+-  Roosters get even with rugby
+-  Capewell joins Warriors
+-  Olakau'atu re-signs with Sea Eagles
+-  광주, 지방세 납세 정보 제공 탁상 달력 배포
+-  과천시, 고3 대상 ‘예비사회인 위한 축제한마당’ 개최
+-  파주, 문산 노을길에 크리스마스트리 점등
+-  안양시 “기습 한파·대설에도 인명피해·시민불편 최소화”
+-  경기도, 택지·공공주택지구 입주지원 협의회 운영
+-  경기보건환경硏, 친환경인증농산물 검사 부적합 1건
+-  경기도 ‘아동급식지원 플랫폼’ 성공적 운영
+-  성남시의회 행정교육위원회, 2024년도 예산안 심사 의결
+-  용인시, 반도체 신도시 광역교통대책 정부와 협의해 신속 진행키로
+-  가천대 길병원 자회사 가천누리 창립 9주년 기념식
+-  평택시, ‘2023년 혁신 협업 우수사례’ 시상식 개최
+-  용인시, ‘안전문화살롱’ 열어 시민안전보험 활성화 논의
+-  광명시, KTX광명역~목동 일반좌석버스 노선 신설
+-  안산시의회 송바우나 의장, 이중언어말하기 대회 수상 원곡고 천미래 학생 격려
+-  화성시의회, 제226회 제2차 정례회 제2차 본회의 개회
+-  의왕시, ‘아이돌봄서비스 제공기관 평가’ 여가부 장관상 수상
+-  강원특별자치도, 외국인늘리기 팔 걷어 붙였다
+-  윤대통령, 다음 주 네덜란드 순방… '반도체 동맹' 총력
+-  포항TP 경북SW진흥본부, 지역 SW핵심인재 육성 앞장
+-  윤대통령, 순방 후 외교·안보 라인 개각 고심
+-  포항시, ‘찾아가는 전세 피해 지원 상담 센터’ 운영
+-  윤대통령 "네덜란드 순방 때 방산 수출 새 기회"
+-  유진선 의원, 2023 대한민국 공공성실천 대상 시상식서 의정대상 수상
+-  비상교육-구로구, 2024학년도 대입 정시 설명회 개최…합격 전략 강연
+-  CJ올리브영 최악 면했다…공정위, 과징금 19억 부과
+-  상용화 앞둔 티맥스에이아이 STT 엔진, 성능 우수성 입증
+-  오뚜기, '프레스코 크림 파스타소스' 2종 출시
