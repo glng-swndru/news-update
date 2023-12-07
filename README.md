@@ -1,11 +1,51 @@
 # Latest News
--  "정호 형과 상의"… '타격왕' 손아섭, 2024시즌 홈런 증가 노린다
--  김혜수, 독보적인 아우라
--  ['입시 비리' 조민, 오늘 법정 선다…무혐의 입증 가능할까
--  [용인시, 지방공공기관 구조개혁 우수 지자체 평가서 ‘장려’
--  [용인시, 화훼농가 1곳, 공기열 냉난방시설 지원
--  Detectives investigate Melbourne restaurant fire
--  Detectives investigate Melbourne restaurant fire
--  President for promoting investment in human resource to benefit from natural resources
--  Survey of 1,200 doctors points to lengthy health-care wait times in Canada
--  Ett derby där alla reglage stod på max
+-  "단타로 10분에 1700만원"→미노이, 주식 투자 비화 "'재능 있네?' 싶어 크게 들어갔다가…" [마데핫리뷰](종합)
+-  "그는 김민재에 이어 유럽 5대 클럽에 입성할 것!"…英 전설은 "이름은 어렵지만 슈퍼스타가 될 선수" 확신, 몸값 최소 1410억! 누구일까?
+-  '1월17일을 기다려라'→징계중인 특급 ST '삭제한 게시물'에 아스널팬들 흥분했다…토트넘-맨유-첼시 등도 눈독
+-  'ERA 무려 7.18 폭망에도'... 오타니 라이벌 日 복귀는 없다, 보라스 "2~3개 구단 제의 받았다"
+-  [MD포토] 있지 예지 '새벽 미모도 빛나네'
+-  Visions of Anwar inspire Khawaja before Pakistan Tests
+-  Terpilih Jadi Ketum ASKALSI, Suharyoto Dorong Pentingnya SKKL
+-  Responsable ministerial se reunió con hijo del presidente luso por presunto trato de favor
+-  «Аэрофлот» восстановил систему бронирования билетов
+-  Venezuela y su ley para gobernar en remoto el área bajo litigio con Guyana
+-  Battery swapping is great for EV fleets, but can it work for consumers?
+-  Pensión del Bienestar 2023: éstas son las personas que les toca inscribirse hoy 7 de diciembre
+-  Fink di BlackRock reagisce alle critiche mosse all'azienda nel dibattito repubblicano
+-  BlackRock's Fink reageert na kritiek op bedrijf in Republikeins debat
+-  Fink von BlackRock wehrt sich gegen Kritik an dem Unternehmen in der Debatte der Republikaner
+-  Damages for wrongful dismissal in a fixed term contract
+-  EDITORIAL COMMENT: Enjoy responsibly, stay safe during festive season
+-  Samupindi rises again, unleashes Christmas present
+-  Safe shelters transform survivors’ lives
+-  Open letter to JT
+-  Namaste Zimbabwe: A blissful experience of Indian culture
+-  Defensoría escogerá a representantes de usuarios del transporte público
+-  BLABBERMOUTH: This bozo is just a menace to society
+-  La oposición venezolana exige al Gobierno información del paradero de activista detenido
+-  Los detalles de la inauguración de las nuevas oficinas de la AFA en Miami: del sentido discurso de Claudio Tapia a las estrellas en el evento
+-  Who are the World Sport Star contenders?
+-  Valor de cierre del dólar en Nicaragua este 7 de diciembre de USD a NIO
+-  Οι Black Friday συνεχίζονται στο CDKeylord: Windows 10/11 keys με 11€!
+-  Manicaland Prince invades Mutare
+-  GZU promotes rural industrialisation in Buhera
+-  Yellen asegura que inversiones de China en México no generan 'inquietud' para EEUU
+-  New study on vapes challenges belief that adolescents experience less severe withdrawal symptoms
+-  Tobacco uptake declines by 28 percent
+-  치솟는 물가에 대충싼 점심도시락…'호흡기 감염' 부른다
+-  Does your child have a bad teacher?
+-  Euro: cotización de cierre hoy 7 de diciembre en Nicaragua
+-  TCE aponta déficit orçamentário e emite parecer contrário à aprovação das contas da gestão Emanuel Pinheiro
+-  McDonald's estrena CosMc´s, una franquicia propia centrada en las bebidas
+-  What to consider before taking the second-home plunge
+-  Hollyoaks icon Jacqui McQueen returns after TEN years - but fans won't recognise her!
+-  Masters of the Air: ecco il nuovo trailer della serie Apple TV prodotta da Steven Spielberg e Tom Hanks
+-  Guyana confirma la muerte de cinco personas a bordo de un helicóptero en la frontera con Venezuela
+-  Ozuna y El Rubio Acordeón rinden tributo al merengue típico con ‘La Propuesta’
+-  Los indígenas canadienses eligen a una nueva lideresa tras meses de agría polémica
+-  La Compañía Nacional de Danza inunda de romanticismo el Teatro de la Zarzuela en el estreno de 'La Sylphide'
+-  Stanisław Karczewski na emeryturze dorobił 260 tys. zł. Co w oświadczeniach innych senatorów?
+-  Avatar 3 no tendrá este título divertidísimo que se rumorea
+-  정기선 HD현대 부회장, 내년 CES 참가…새 비전 밝힌다
+-  'Sick': Wisconsin Governor Tony Evers Vetoes Bill Banning Child Transitions
+-  현대차그룹에서 유일하게 인기 유지한 전기차는?
