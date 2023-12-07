@@ -1,11 +1,11 @@
 # Latest News
--  Motorcyclist & pillion crash into back of stationary lorry at Yishun Dam
--  2 men hold 2 umbrellas to shelter JJ Lin from heavy rain outside ArtScience Museum
--  Ўзбекистонда камбағалликни қисқартириш бўйича қўлланилаётган Хитой тажрибаси ўзини оқлаяптими? – Мутахассис билан суҳбат
--  8 декабрь куни мамлакатимизнинг аксарият ҳудудларида ёғингарчилик бўлиши (ёмғир, қор) кутилмоқда
--  Хотин-қизларга зўравонлик қилганлар билан қандай ишлаш керак?
--  Конституция – келажак пойдевори
--  Хориж матбуоти Ўзбекистон ҳақида
--  Ўқувчиларга байрам туҳфаси
--  KERING : Deutsche Bank handhaaft koopadvies
--  Derry Chamber urges people to buy local and support the city centre
+-  Aeroporto em Sorriso tem leve crescimento na movimentação de passageiros; número de voos diminui
+-  WhatsApp pronto permitirá a los usuarios de iPhone compartir y escuchar música con amigos durante una videollamada
+-  [검찰, ‘해직교사 특채’ 조희연 교육감 2심서도 징역 2년 구형
+-  ["이 편지, 받아본 적 있어?" 사라지는 '이것' 뜻밖에 인기…직접 써보니
+-  [차량서 극단 선택 시도하다 구출된 20대…차주 살해 용의자로 긴급체포
+-  منح مجانية.. 7 خطوات للتقديم في برنامج المدرب المعتمدة بالمجلس الأعلى للجامعات
+-  58 سائحا في جولة حرة على كورنيش النيل ببني سويف
+-  فرصة نادرة.. المرأة المسلسلة تظهر في سماء الأرض هذا الأسبوع
+-  محافظ القليوبية يستقبل أعضاء البنك الزراعي المصري
+-  توصيلة الموت.. جزار استدرج سائق وذبحه للاستيلاء على "توكتوك"
