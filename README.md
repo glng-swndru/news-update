@@ -1,11 +1,51 @@
 # Latest News
--  Analistas ven repunte de inflación para finales de este año
--  Bce: economisti vedono tagli dei tassi per 75 pb nel 2024, il primo a giugno
--  Ученые: Младенцы не поддаются зрительным иллюзиям, в которые верят взрослые
--  U Novom Zagrebu izgorio automobil, sumnja se da je požar podmetnut
--  Industrie drosselt Produktion erneut - Längste Durststrecke seit 2008
--  В Беларуси закрепляются новые избирательные цензы для кандидатов в президенты
--  Bllokimi i Kuvendit, PS ndryshon rregulloren: Deputetët rrezikojnë deri në 60 ditë përjashtim nëse ndezin tymuese apo konfliktohen me Gardën
--  Ζεράρ Ντεπαρντιέ: Νέες καταγγελίες για σεξουαλικά ανάρμοστη συμπεριφορά
--  Veteraanien iltahuudon Linnan juhlissa tulkinnut Niilo Vunneli, 100, on ollut Outokummussa monessa mukana – elämäntyönsä hän teki metsäalalla
--  Soccerladuma | Pirates Open Interest In Former Chiefs Target?
+-  건설협회 대전시회, 적십자사에 성금 1000만원 쾌척
+-  나부터 실천해요… 시민 개개인 기부 참여 절실
+-  지상 60층 은행1구역 건축·경관심의 통과… 대전 마천루 시대 열리나
+-  [국가무형문화재를 그리다] 면천두견주
+-  건축심의 통과에 재개발 순풍… 대전 ‘원도심 활성화’ 기대
+-  Third suspect arrested for three fatal shootings in Rotterdam; Second suspect released
+-  Shocking rise in GBV deaths, cases
+-  The Game Awards 2023: Hideo Kojima Spotted in LA Before The Event, and More
+-  1800 yıllık oda mezarlar bulundu
+-  Şenol Güneş sessizliğini bozdu!
+-  Кметът на Русе обсъди важни проекти за града с мисията на Световната банка
+-  MSB duyurdu: Teröre ağır darbe!
+-  CEO de JPMorgan eliminaría las criptomonedas si formara parte del Gobierno
+-  Na základňu v Kambodži prvýkrát dorazili čínske vojnové lode
+-  Experti po 85 rokoch objavili stratené kamery slávnych prieskumníkov: Fascinujúce FOTO vtedajšieho sveta
+-  Veľké porovnanie cien: Najlacnejšie vianočné trhy si užijete v Krakove
+-  Lucia z Farmy priznala DROGY: Trvalo to ROKY… Začala už v 14-tich!
+-  Pri Spišskej Belej zrazilo auto chodca: Nemal reflexné prvky
+-  ด่วน! 21 สส.ดัน "เฉลิมชัย" นั่งหัวหน้าพรรคประชาธิปัตย์คนที่ 9
+-  กบง.ตรึงราคาก๊าซหุงต้ม ที่ 423 บาทต่อถัง อีก 3 เดือน
+-  Ministerstvo zdravotníctva pri kategorizácii nemocníc koná v zmysle zákona
+-  Σταθακόπουλος: «Ο Ερντογάν έχει βάλει το προσωπείο της φιλίας - Αυτό τον εξυπηρετεί αυτή τη στιγμή»
+-  Гитарист Пугачевой Левшин рассказал, чего не хотела афишировать певица
+-  Μπάρμαν εξομολογούνται ποια ποτά αποφεύγουν να πίνουν
+-  Kabir Singh, Animal And The Pandemic Of Alpha Masculinity
+-  İrəvana səfər edən azərbaycanlı sirləri açdı: “Ermənilər orada məni…”
+-  Srpski pasoš za genija
+-  Radja Nainggolan Cedera, COO Bhayangkara FC Sumardji Pastikan Kondisinya Tidak Parah
+-  Νεβάδα: Καθηγητής που δεν κατάφερε να βρει δουλειά στο Πανεπιστήμιο ο δράστης του τριπλού φονικού
+-  Richter verhängt Gefängnisstrafe - Rentner (81) fährt trotz Sehbehinderung weiter Auto und verursacht schweren Unfall
+-  Ölpreise stabilisieren sich vorerst nach deutlichen Verlusten
+-  Campionati Europei di Atletica Leggera di Roma 2024: in vendita i biglietti Premium
+-  فرضية لتفويج المعتمرين خلال الأمطار وكوارث السيول
+-  Thorir: Systemet er ikke fair play
+-  В Италии показали видео побега Усса
+-  Ambasada Rusije u BiH - Pozivamo strane u BiH da pokažu mudrost, strpljenje, kompromisni pristup
+-  В ближайшие дни на бывшем калужском заводе «Volvo» запустят производство грузовиков
+-  Univerzitet u Zenici otvorio Kancelariju za savjetovanje u oblasti rodne ravnopravnosti
+-  Busch: Kao država vjerske raznolikosti BiH mora regulisati, štititi i promovirati slobodu vjere
+-  Alijev raspisuje vanredne izbore nakon pobjede u Karabahu
+-  Stojanović: Otpad je neizbježan proizvod poslovanja i trebamo ga tretirati kao resurs
+-  Russian Embassy in BiH: We invite parties in BiH to show wisdom, patience, and a compromise approach
+-  Busch: As a state of religious diversity BiH must regulate, protect and promote freedom of religion
+-  Komšić: Neka blagdan Hanuka bude nadahnuće za poruku zajedništva, uvažavanja i pravednosti
+-  New K-Drama Queen of Divorce: Lee Ji-Ah, Kang Ki-Young’s First Look Revealed
+-  الانضباط: تغريم المعز علي وبونجاح وإيقاف اومارو ولفت نظر السد
+-  Komšić: May the holiday of Hanukkah be an inspiration for messages of unity, respect and justice
+-  Los rebeldes hutíes de Yemen muestran el vídeo del secuestro de un barco israelí
+-  BBC Breakfast’s Nina Warhurst mortified after being caught out for lunch in very unusual outfit
+-  Песков: Путин на форуме "Россия зовет!" пообщается с наследным принцем Омана
