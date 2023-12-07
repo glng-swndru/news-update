@@ -1,11 +1,11 @@
 # Latest News
--  Pilar Woloszyn confiesa que cocina: estas son las crudas verdades de su nuevo libro culinario
--  هيئات أممية: وضع غزة الإنساني كارثي
--  نتنياهو معزيا أيزنكوت: (أنا وسارة نشعر بالحزن)
--  لاتغفل عنها.. أبرز الاختلافات بين لحم طيور الحبش والدجاج
--  وصول مساعدات طبية للمستشفى الأردني (2) جنوب غزة
--  المقاومة أبكت مسؤولا حربيا إسرائيلا دما بمصرع نجله - فيديو
--  المقاومة أبكت مسؤولا حربيا إسرائيلا دما بمصرع نجله -فيديو
--  Mayor Gondek will not participate in Calgary’s menorah lighting citing event’s ‘political intentions’
--  Syyttäjä: Mies tappoi puolisonsa työntämällä tämän parvekkeelta alas
--  Syyttäjä: Mies tappoi puolisonsa työntämällä tämän parvekkeelta alas
+-  Yunanistan'ın geri ittiği 18 düzensiz göçmen kurtarıldı
+-  Cumhurbaşkanı Erdoğan, yurda döndü
+-  Jurgen Klopp'tan muhabire sert tepki!
+-  Reisi: İsrail'in Filistin'deki saldırıları soykırım ve insanlık suçudur
+-  Azerbaycan ile Ermenistan arasında yeni anlaşma
+-  Continuará Congreso procesos de magistraturas hasta conformación de terna
+-  Invitan a solicitar material de construcción y apoyo para el frío
+-  Presentan testimonios en audiencia Aras
+-  Trabajan en limpieza del arroyo El Saucito
+-  Dictan prisión de 60 años a "El Bryan"
