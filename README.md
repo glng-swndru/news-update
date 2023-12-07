@@ -1,11 +1,11 @@
 # Latest News
--  Fluglärm bleibt mit F-35A-Kampfjets etwa gleich laut wie mit F/A-18
--  “보스턴, 김하성에게 관심…샌디에이고 페이컷 계속된다면” 514억원 GG 또 트레이드설 ‘간과 못해’
--  DA SE NE POKAJETE Evo kako da znate da li ste spremni za zajednički život s partnerom, jedan uslov je posebno važan
--  البيت الأبيض: مسيرات وصواريخ الحوثيين عطلت الملاحة فى البحر الأحمر
--  مسيرة استفزازية للمستوطنين الإسرائيليين فى البلدة القديمة بالقدس
--  "المؤتمر" يختتم فعالياته من الدقهلية لدعم المرشح عبدالفتاح السيسى
--  التنسيقية تلتقى عددا من النقابات لصياغة برنامج انتخابى لمرشحى الرئاسة
--  التنسيقية تشارك بمؤتمر أكاديمية السادات لتشجيع المشاركة فى الانتخابات
--  النائب زكى عباس: التعامل مع المناطق العشوائية كان تحديا كبيرا أمام الدولة
--  حازم عمر يدلى بصوته فى الانتخابات الرئاسية بالقاهرة الجديدة الأحد المقبل
+-  أرمينيا وأذربيجان تتعهدان بخطوات لبناء الثقة وتطبيع العلاقات
+-  Vritet djali i ministrit izraelit në Rripin e Gazës
+-  Selçuk Bayraktar açıkladı: ChatGPT’ye Türk rakip geliyor
+-  Başakşehir, Şanlıurfaspor'u geçerek tur atladı
+-  Ligue 1, pronostico e quote di Montpellier-Lens: l'analisi dell'incontro
+-  Aniversario de altura con “Pasarela 261 Código Moda” edición 10
+-  Thimo Vink eerste aanwinst Lunteren
+-  Cyclone Michaung Update: বাংলায় ৩০০, চেন্নাইয়ে ৭০০! 'পয়সাটা বেশি তাই আসি', বললেন পরিযায়ী
+-  Another CCC activist abducted, tortured – opposition says
+-  Këto qytete janë më pak të sigurta në Europë
