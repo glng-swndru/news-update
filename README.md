@@ -1,51 +1,51 @@
 # Latest News
--  "단타로 10분에 1700만원"→미노이, 주식 투자 비화 "'재능 있네?' 싶어 크게 들어갔다가…" [마데핫리뷰](종합)
--  "그는 김민재에 이어 유럽 5대 클럽에 입성할 것!"…英 전설은 "이름은 어렵지만 슈퍼스타가 될 선수" 확신, 몸값 최소 1410억! 누구일까?
--  '1월17일을 기다려라'→징계중인 특급 ST '삭제한 게시물'에 아스널팬들 흥분했다…토트넘-맨유-첼시 등도 눈독
--  'ERA 무려 7.18 폭망에도'... 오타니 라이벌 日 복귀는 없다, 보라스 "2~3개 구단 제의 받았다"
--  [MD포토] 있지 예지 '새벽 미모도 빛나네'
--  Visions of Anwar inspire Khawaja before Pakistan Tests
--  Terpilih Jadi Ketum ASKALSI, Suharyoto Dorong Pentingnya SKKL
--  Responsable ministerial se reunió con hijo del presidente luso por presunto trato de favor
--  «Аэрофлот» восстановил систему бронирования билетов
--  Venezuela y su ley para gobernar en remoto el área bajo litigio con Guyana
--  Battery swapping is great for EV fleets, but can it work for consumers?
--  Pensión del Bienestar 2023: éstas son las personas que les toca inscribirse hoy 7 de diciembre
--  Fink di BlackRock reagisce alle critiche mosse all'azienda nel dibattito repubblicano
--  BlackRock's Fink reageert na kritiek op bedrijf in Republikeins debat
--  Fink von BlackRock wehrt sich gegen Kritik an dem Unternehmen in der Debatte der Republikaner
--  Damages for wrongful dismissal in a fixed term contract
--  EDITORIAL COMMENT: Enjoy responsibly, stay safe during festive season
--  Samupindi rises again, unleashes Christmas present
--  Safe shelters transform survivors’ lives
--  Open letter to JT
--  Namaste Zimbabwe: A blissful experience of Indian culture
--  Defensoría escogerá a representantes de usuarios del transporte público
--  BLABBERMOUTH: This bozo is just a menace to society
--  La oposición venezolana exige al Gobierno información del paradero de activista detenido
--  Los detalles de la inauguración de las nuevas oficinas de la AFA en Miami: del sentido discurso de Claudio Tapia a las estrellas en el evento
--  Who are the World Sport Star contenders?
--  Valor de cierre del dólar en Nicaragua este 7 de diciembre de USD a NIO
--  Οι Black Friday συνεχίζονται στο CDKeylord: Windows 10/11 keys με 11€!
--  Manicaland Prince invades Mutare
--  GZU promotes rural industrialisation in Buhera
--  Yellen asegura que inversiones de China en México no generan 'inquietud' para EEUU
--  New study on vapes challenges belief that adolescents experience less severe withdrawal symptoms
--  Tobacco uptake declines by 28 percent
--  치솟는 물가에 대충싼 점심도시락…'호흡기 감염' 부른다
--  Does your child have a bad teacher?
--  Euro: cotización de cierre hoy 7 de diciembre en Nicaragua
--  TCE aponta déficit orçamentário e emite parecer contrário à aprovação das contas da gestão Emanuel Pinheiro
--  McDonald's estrena CosMc´s, una franquicia propia centrada en las bebidas
--  What to consider before taking the second-home plunge
--  Hollyoaks icon Jacqui McQueen returns after TEN years - but fans won't recognise her!
--  Masters of the Air: ecco il nuovo trailer della serie Apple TV prodotta da Steven Spielberg e Tom Hanks
--  Guyana confirma la muerte de cinco personas a bordo de un helicóptero en la frontera con Venezuela
--  Ozuna y El Rubio Acordeón rinden tributo al merengue típico con ‘La Propuesta’
--  Los indígenas canadienses eligen a una nueva lideresa tras meses de agría polémica
--  La Compañía Nacional de Danza inunda de romanticismo el Teatro de la Zarzuela en el estreno de 'La Sylphide'
--  Stanisław Karczewski na emeryturze dorobił 260 tys. zł. Co w oświadczeniach innych senatorów?
--  Avatar 3 no tendrá este título divertidísimo que se rumorea
--  정기선 HD현대 부회장, 내년 CES 참가…새 비전 밝힌다
--  'Sick': Wisconsin Governor Tony Evers Vetoes Bill Banning Child Transitions
--  현대차그룹에서 유일하게 인기 유지한 전기차는?
+-  Premier League: Trippier patzt, Newcastle verliert - Tottenham gibt Führung ab
+-  Bosz verbaasd door 'bijzonder record': 'Dat niemand dat gelukt is...'
+-  ‘88분간 1슈팅’ 손흥민, 평점은 고군분투 알아줬다[토트넘-웨스트햄]
+-  로메로 돌아왔는데도 졌다… 토트넘, 충격의 5G 1무4패
+-  ‘손흥민 있었어?’ 경기 주도해도 최전방 활용 못한 토트넘
+-  정수정 '인형 미모'
+-  Curiosity Mars’ta ‘saz kılıfı’ keşfetti! Görenler gözlerine inanamadı… Bilim insanları o cismi araştırıyor
+-  Burnaby's Shadbolt Centre showcasing folk, jazz and 'wordless' wonder to start 2024
+-  [용인고교 통학안전, ‘통학차량 승하차구역’ 설치
+-  [용인 ‘언남동 토끼굴’…AI 스마트 방범 CCTV 설치
+-  [동탄 집값 이상기류…분상제 아파트도 140가구 무더기 미계약 [부동산360]
+-  [용인 기흥구 보건소, 건강계단 조성
+-  ["어묵 국물 좀.." 10조 재산 이재용 회장도 어묵 국물은 못참지
+-  [용인 신봉동, 전세사기 예방 교육
+-  [결국 美의회서 막힌 우크라 지원안…“‘탈레반-아프간 점령’ 재현 될 수도” [디브리핑]
+-  [적자회사 늘어나는 자산운용업계…54%가 ‘마이너스’ [투자360]
+-  [이동훈 풀무원푸드앤컬처 대표, ‘일회용품 제로 챌린지’ 동참
+-  ["우리도 직접 간호해요"…조무사 주장에 간호사들 '화들짝' 왜?
+-  Republican 'Reckoning': GOP Must Win Over Undecided Moderates to Clinch 2024 Victory
+-  [롯데마트·슈퍼 ‘1,8ℓ’대용량 위스키 출시…하이볼 60잔 제조 가능
+-  Ultranationalistische betogers botsen met politie in Jeruzalem
+-  Introducing the Simplified Mammoth App: A Fresh Approach to Mastodon
+-  Scathing cricket feud adds fresh twist
+-  عاجل.. مساند يكشف أحقية مكتب الاستقدام في طلب هوية المواطنين
+-  앰배서더의 로머 와이키키, 오아후의 새로운 지역 호텔 컨셉 도입
+-  Infobird Co., Ltd Regains Compliance with Nasdaq Minimum Bid Price Requirement
+-  Webull Securities Australia Launches Moneybull, Currently Offering a 5.4% Yield on Idle Cash
+-  الجمعة 24 جمادى الأولى.. مواقيت الصلاة في مكة والمدينة وجميع مناطق المملكة
+-  Comarca de Brasnorte-MT prorroga inscrição para o processo de Serviço Social e Psicologia
+-  150 anos: revitalização da galeria de vice-presidentes marca história do Poder Judiciário
+-  Polícia Civil prende em flagrante autor de tentativa de homicídio no norte de MT
+-  Dino é o primeiro senador indicado para ministro do STF desde 1994
+-  Govt, Catholic schools score high in G7 exams
+-  NYC woman, 55, killed by teen tenant in fight over unpaid rent: cops
+-  West Ham United ganó por 2-1 en su visita a Tottenham
+-  Conférence des Parties (COP28) : Les dirigeants des banques multilatérales de développement étudient les possibilités de combler le déficit de financement du secteur de la nature et de l’eau
+-  Itacitinib Emerging Drug Insights and Market Forecasts, 2019-2032: An Orally Bioavailable Inhibitor of Janus-associated Kinase 1 (JAK1) with Potential Antineoplastic and Immunomodulating Activities
+-  Pelvic Floor Diagnostics Market to grow by USD 161.81 million from 2023 to 2028; North America to account for 36% of market growth- Technavio
+-  Putin ve Reisi Moskova’da bir araya geldi
+-  Προβλέψεις για όλα τα Ζώδια, 08/12: Ευχάριστες σκέψεις
+-  Tory Saboteurs and Rwanda Scheme: Election Success Hinges on Halting Illegal Migrants
+-  박종민의 디카詩-
+-  [MD포토] 있지 예지 '새벽에도 완벽한 미모를'
+-  "독립운동가 집안 부잣집 도련님→톱 ★→사업 실패" 장계현, 파란만장 인생史 공개[특종세상](종합)
+-  [MD포토] 있지 유나 '와인빛 헤어 찰랑찰랑'
+-  [MD포토] 있지 유나 '발걸음 조차 슬림'
+-  [MD포토] 있지 유나 '여배우 출국 느낌 물씬'
+-  [MD포토] 있지 유나 '예뻐도 너무 예쁘네'
+-  [MD포토] 있지 유나 '새벽에도 이런 미모가 가능하네'
+-  [MD포토] 있지 유나 '감탄사가 나오는 비주얼'
