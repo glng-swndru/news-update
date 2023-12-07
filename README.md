@@ -1,11 +1,11 @@
 # Latest News
--  Aeroporto em Sorriso tem leve crescimento na movimentação de passageiros; número de voos diminui
--  WhatsApp pronto permitirá a los usuarios de iPhone compartir y escuchar música con amigos durante una videollamada
--  [검찰, ‘해직교사 특채’ 조희연 교육감 2심서도 징역 2년 구형
--  ["이 편지, 받아본 적 있어?" 사라지는 '이것' 뜻밖에 인기…직접 써보니
--  [차량서 극단 선택 시도하다 구출된 20대…차주 살해 용의자로 긴급체포
--  منح مجانية.. 7 خطوات للتقديم في برنامج المدرب المعتمدة بالمجلس الأعلى للجامعات
--  58 سائحا في جولة حرة على كورنيش النيل ببني سويف
--  فرصة نادرة.. المرأة المسلسلة تظهر في سماء الأرض هذا الأسبوع
--  محافظ القليوبية يستقبل أعضاء البنك الزراعي المصري
--  توصيلة الموت.. جزار استدرج سائق وذبحه للاستيلاء على "توكتوك"
+-  Japanse voetbaltraditie bij vv Lekkerkerk in ere hersteld
+-  Knipselarchief Marianne Vos te zien bij Streekarchief Langstraat Heusden Altena
+-  Trivia Tunes: Only time Pritam-Amit Kumar collaborated and the song became a chartbuster
+-  Dunki: "Special role was crafted for Vicky Kaushal", reveals Rajkumar Hirani
+-  Koffee With Karan 8: Kiara Advani talks about Sidharth Malhotra’s tapping watch shot at wedding; says, “This was an edited shot”
+-  Siddharth Roy Kapur felicitated at CineAsia Awards 2023: "Deeply humbled"
+-  Gaz : Chariot s’allie avec Energean sur des licences offfshore au Maroc
+-  17 млрд сўмлик даъво тадбиркорлар фойдасига қаноатлантирилди
+-  Имконият, маҳорат ва муваффақият
+-  Жиззах политехника институти халқаро рейтингда илгарилади
