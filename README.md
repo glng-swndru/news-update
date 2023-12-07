@@ -1,51 +1,51 @@
 # Latest News
--  Giuntoli, Pompilio e Micheli: Juventus-Napoli e il calciomercato dirigenti
--  Sarri diventa Allegri: il riscatto Lazio grazie al corto muso
--  La parità non può aspettare: la nuova campagna di TIM
--  Why Perth pitch may have more spice than Warner’s challengers
--  Why Perth pitch may have more spice than Warner’s challengers
--  임종석, 민주 내홍 심화에 "만남과 소통으로 단합될 것…역할하겠다"
--  Χαοτικό ντιμπέιτ των Ρεπουμπλικάνων χωρίς τον Τραμπ: Προσβολές, προσωπικές επιθέσεις και σπαρταριστές ατάκες
--  মিরপুরের বৃষ্টিতে ভেজা শালিক এবং ‘সময় যেন কাটে না’র গল্প
--  Extragalaktischer Besucher: Mysteriöses Objekt suchte sich Weg ins Herz der Milchstraße
--  V. Obradović: Formirati tim da preispita Šapićeve tendere, napravio je od Starog dvora svoju tvrđavu
--  NA speaker urges Pakistanis to enthusiastically participate in upcoming elections
--  玉晶光11月營收月減1.5%
--  Без македонски претставник на Евровизија 2024 во Малме
--  禾伸堂11月營收月增2.1%
--  金像電11月營收月增2.4%
--  Pierre Ronden, houder medaille van verdienste van de gemeente Ede, overleden
--  Ünlü CEO'dan kriptoya sert sözler
--  안전 교육도시 안산 실현…시, 민·관 합동 TF 구성
--  VIDEO/ Bardhi i përjashtuar, nxjerr pamjet nga Kuvendi: 43 gardistë në sallë
--  경남정보대, '총장이 쏜다' 기말고사 학생 응원 이벤트
--  Roosters get even with rugby
--  Capewell joins Warriors
--  Olakau'atu re-signs with Sea Eagles
--  광주, 지방세 납세 정보 제공 탁상 달력 배포
--  과천시, 고3 대상 ‘예비사회인 위한 축제한마당’ 개최
--  파주, 문산 노을길에 크리스마스트리 점등
--  안양시 “기습 한파·대설에도 인명피해·시민불편 최소화”
--  경기도, 택지·공공주택지구 입주지원 협의회 운영
--  경기보건환경硏, 친환경인증농산물 검사 부적합 1건
--  경기도 ‘아동급식지원 플랫폼’ 성공적 운영
--  성남시의회 행정교육위원회, 2024년도 예산안 심사 의결
--  용인시, 반도체 신도시 광역교통대책 정부와 협의해 신속 진행키로
--  가천대 길병원 자회사 가천누리 창립 9주년 기념식
--  평택시, ‘2023년 혁신 협업 우수사례’ 시상식 개최
--  용인시, ‘안전문화살롱’ 열어 시민안전보험 활성화 논의
--  광명시, KTX광명역~목동 일반좌석버스 노선 신설
--  안산시의회 송바우나 의장, 이중언어말하기 대회 수상 원곡고 천미래 학생 격려
--  화성시의회, 제226회 제2차 정례회 제2차 본회의 개회
--  의왕시, ‘아이돌봄서비스 제공기관 평가’ 여가부 장관상 수상
--  강원특별자치도, 외국인늘리기 팔 걷어 붙였다
--  윤대통령, 다음 주 네덜란드 순방… '반도체 동맹' 총력
--  포항TP 경북SW진흥본부, 지역 SW핵심인재 육성 앞장
--  윤대통령, 순방 후 외교·안보 라인 개각 고심
--  포항시, ‘찾아가는 전세 피해 지원 상담 센터’ 운영
--  윤대통령 "네덜란드 순방 때 방산 수출 새 기회"
--  유진선 의원, 2023 대한민국 공공성실천 대상 시상식서 의정대상 수상
--  비상교육-구로구, 2024학년도 대입 정시 설명회 개최…합격 전략 강연
--  CJ올리브영 최악 면했다…공정위, 과징금 19억 부과
--  상용화 앞둔 티맥스에이아이 STT 엔진, 성능 우수성 입증
--  오뚜기, '프레스코 크림 파스타소스' 2종 출시
+-  Появилось видео из гимназии Брянска во время устроенного школьницей расстрела
+-  티몬, 식품 PB '베리밸류'로 가성비 트렌드 공략
+-  Cuối năm, người dân cần cảnh giác trước cạm bẫy tín dụng đen
+-  30대 여의사, 5명 살리고 하늘 나라로
+-  [의료24시] 분당서울대병원, 상급종합병원 건강검진센터 최초 AI 보이스봇 도입
+-  La Grande Braderie de la Mode de AIDES, le bon plan shopping engagé de cette fin d'année à Paris
+-  İkinci El Otomobillerde 6 Ay/6000 Km Sınırı ve Sıfırından Pahalıya 2. El Satma Yasağı 1 Temmuz'a Kadar Uzatıldı"En Ucuz Tesla" Olacak Model 2 Hakkında Açıklama: "Aklınızı Başınızdan Alacak"İkinci El Otomobillerde 6 Ay/6000 Km Sınırı ve Sıfırından Pahalıya 2. El Satma Yasağı 1 Temmuz'a Kadar Uzatıldı
+-  Giám đốc Sở Lao động Thương binh và Xã hội tỉnh Phú Thọ có phiếu "tín nhiệm cao" thấp nhất
+-  अष्ट्रेलियाको आर्थिक वृद्धि तेस्रो त्रैमासिकमा ०.२ प्रतिशतमा घट्यो
+-  L'un des plus anciens marchés de Noël du Cotentin a lieu ce week-end
+-  Πρόγραμμα «REACT» της Κωτσόβολος: «Μαζί, για έναν Καλύτερο Κόσμο!»
+-  ВТБ завершит интеграцию «Открытия» к концу 2024 года
+-  В Великом Новгороде пройдут мероприятия ко Дню Героев Отечества
+-  В Польше испугались превращения Украины во второй Афганистан
+-  LIVE BLOG: Ο Ταγίπ Ερντογάν στην Αθήνα - Λεπτό προς λεπτό η επίσκεψη του Τούρκου προέδρου
+-  Google Removes Scam Loan Apps: கடன் வழங்குவதாக இந்தியர்களை மிரட்டி, ஏமாற்றிய கந்துவட்டி லோன் செயலிகள் பிளே ஸ்டோரில் இருந்து அதிரடி நீக்கம்: கூகுள் தடாலடி செயல்.!
+-  فتاة رفضت دخول رجل المصعد معها ولكنه اصر على الدخول.. مفاجأة بشأن ما حدث بينهما بالمصعد
+-  خبير تكنولوجي ينصح بوضع الراوتر فى تلك الأماكن فى المنزل وستنبهر بسرعة النت
+-  انتبه.. علامات لو ظهرت علي ابنك ستكون مؤشر لإدمانه الألعاب الإلكترونية
+-  ليست السعودية.. هذه الدولة تمتلك اكبر احتياطي من النقد الأجنبي وتستطيع تغيير الموازين بضغطة زر
+-  التشيك تسجل 2000 حالة إصابة بكوفيد يومياً
+-  يؤخر الشيخوخة ويخفض خطر الإصابة بالسكري.. الكشف عن 5 أنواع من الشاي وأكثرها فائدة للصحة
+-  أطعمة تساهم في زيادة تدفق الدم إلى الأوعية الدموية
+-  الصين: بدء تشغيل أعمق مختبر فيزيائي تحت الأرض على مستوى العالم
+-  "C'est extraordinaire" : au cœur de la plantation de la première forêt urbaine de Paris
+-  Mangaluru ‘Shashti Mahotsav’: Muslim vendors allege temple administration not allowing them to set up stalls
+-  지난해 가구소득 평균 6762만원…1억원 넘는 가구 비중은 20%
+-  PS5: Sonys Nishino hebt die Vorteile gegenüber einem PC hervor
+-  함안군자원봉사센터, 고령운전자 안전운행 캠페인 진행
+-  밀양교육지원청, 밀양교육행정협의회 정기회
+-  함안군 안전협의체, 칠원읍 여성의용소방대와 간담회 개최
+-  고성 청년-청소년 공유 간담회
+-  양산시 소주동, 복지사각지대 발굴 캠페인
+-  양산시 덕계동, 저소득계층 겨울이불 후원
+-  하동군, 장애인 일자리사업 확대 추진
+-  남해군, 경남도 자원봉사대회서 다수 수상
+-  검찰, 거제시장 수사·재판서 신뢰 타격
+-  China e União Europeia devem contribuir juntas para a estabilidade global, afirma Xi Jinping
+-  한 총리, 육군훈련소 방문…"국민의 생명 내 손으로 지킨다는 신념으로"
+-  거창 남하면 공유냉장고에 기부 이어져
+-  양산시 하북면새마을회, 사랑의 김장 나눔
+-  Musk's SpaceX To Sell Insider Shares At $175 Bn Valuation: Report
+-  Erik Aresta smúti za Haščákovou. Barborka bude so mnou na každom vystúpení, hovorí
+-  Τσιάρτας: «Δεν έχω λόγο να μην συγκρίνω τον εαυτό μου με τον Λιονέλ Μέσι»
+-  Kickoff | Angry Klopp hits out at 'ignorant' comment aimed at him
+-  Oväntat stort lyft för Kinas valutareserv
+-  Tanınmış şairə ağır itki
+-  Öncelikli hedef ligde kalmak!
+-  How To Delete Check-Ins On Facebook
+-  [종합] 바이든 방문 3개월 만에 시진핑도 베트남 방문
