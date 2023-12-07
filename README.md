@@ -1,51 +1,11 @@
 # Latest News
--  Rental homes' value to drop 16% by end 2024: ABN Amro
--  हिमपातले लिमी आउजाउ बन्द
--  कथाकार पराजुलीको ‘ड्रिमी आइज’ सार्वजनिक
--  ठमेलका चोकमा सिसी क्यामरा जडान
--  अर्थतन्त्रमा सुधारको अनुभूति हुँदै : प्रधानमन्त्री
--  “제주형 행정체제개편 주민투표 예정대로 진행”
--  साहसिक पर्यटन ‘ट्रेकिङ’: बढ्दो आकर्षण, केही चुनौती
--  تعز.. قيادة اللواء 22 ميكا تزور أسر الشهداء
--  UP: No mandatory Urdu test for sub-registrar jobs now, Yogi Adityanath govt to replace Urdu and Persian words with Hindi on registry documents
--  ইঁদুরের গর্তে জমির ধান, কৃষকেরা ক্ষতিগ্রস্ত
--  보령시, 34개 민·관 사회서비스기관 탄소중립 에너지전환 위해 뜻 모아
--  광주시, 이웃돕기 공개방송 모금행사 진행
--  강원도, 도시재생·스마트시티 역량강화 워크숍 개최
--  대구시교육청, 대구미래역량교육 설명회 개최
--  광주시, 민선8기 공약사업 보고회 개최 ‘시민과의 약속이행 순항’
--  강원도, 인구감소 대응 우수사례 선정
--  광주시, 행안부 특별교부세 24억원 확보
--  군위군 명예읍면장 위촉식 성황
--  강원도, ‘도루묵 자원회복 사업' 재추진
--  광주도시관리공사 ‘한국서비스품질우수기업 인증’ 최초 획득
--  안성시, ‘2023년 기본형 공익직불금’ 지급
--  태백·삼척 조기폐광 고용위기지역 지정 추진
--  고양시 정발산동, 제설봉사단 발대식 개최
--  원주시, ‘2023년 강원 물가안정관리 최우수 기관’ 선정
--  원주소방서, 요양병원·요양시설 피난 공동대응 대책 교육
--  KB금융, 그룹 홈페이지 전면 개편
--  이상일 용인시장, 자립준비청년들에 반기문 전 유엔사무총장 서명 담긴 저서 전달
--  [마감시황] 글로벌 주식시장과 동조…코스피·코스닥 모두 하락
--  양구군, 국회 자살 예방 우수지자체 2년 연속 선정
--  HF공사, 국민체육진흥공단과 감사업무 MOU
--  [SK사단] SK하이닉스 곽노정, 단독대표 체제…AI 인프라 역량강화
--  성남시, 가천대 학생들과 ‘우리동네 힙스토어’ 키운다
--  강강술래, 100% 국내산 유기농 쌀 전통주 '강술' 출시
--  양구군, 내년 3월까지 제5차 미세먼지 계절 관리제 추진
--  Bibliotheek Nieuwegein organiseert boetevrije week
--  Apple: la empresa que transformó la tecnología
--  House of Janaan Celebrates Grand Opening, Unveiling Fusion of Tradition and Modernity
--  Совфед: выбора президента РФ пройдут 17 марта
--  وزير الكهرباء يبحث مع القائم بأعمال السفارة الصينية تعزيز التعاون في مجال الطاقة
--  Выборы президента будут впервые проходить в столь токсичной геополической обстановке
--  Major hospitals struggle to recruit pediatricians
--  K-dramas, beauty, food have gone viral on TikTok in 2023
--  Trade minister bets on semiconductors, shipbuilding, cars for 2024
--  Minister laments poor allocation to disability commission in 2024 budget
--  – محكمة جنايات طرابلس تقضي بحبس مدير عام مستشفى الشويرف القروي ونائبه ومفوض أداة التنفيذ.
--  ChatGPT’ye ağzına geleni söyleyen Musk’tan, Google’ın yapay zekasına tebrik
--  Radujte sa ako deti! Ako sa dá mať detskú radosť aj v dospelosti?
--  KONIEC DOHADOM! Šoubiznis má nový MILENECKÝ PÁR
--  Mustin iso omistaja vähensi omistustaan
--  ‘ในหลวง-พระราชินี’ เสด็จฯ ฝึกซ้อมแข่งเรือใบ ‘ภูเก็ต คิงส์คัพรีกัตต้า’
+-  Brokerages Bullish On Paytm Stock As Company Expands Loan Portfolio
+-  India Has Not Fully Capitalised On Advantages Of Trade Decoupling: Report
+-  Bank of India Plans To Generate Rs 4,500 Cr Through QIP
+-  Govt forms high-level committee to probe Ncell share sale issue
+-  신한은행, LG CNS와 글로벌 금융 디지털사업 업무협약 체결
+-  [금융IT 이노베이션] 전산 장애 피해 규모 50억 이상…“쉐어플렉스는 자신있다”
+-  [구룡마을 판자촌 주민들 강남 아파트에 들어간다 [부동산360]
+-  [“기프트카드를 또 잔뜩 사네?”…휴가 중 발동한 촉! 범죄 막았다
+-  [기재부, 재정운용위 "2월 지역활성화 투자펀드 프로젝트 선정 차질 없이 추진"
+-  [검찰, ‘분신 택시기사’ 회사 대표에 구속영장 청구
