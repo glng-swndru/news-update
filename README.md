@@ -1,11 +1,51 @@
 # Latest News
--  Brokerages Bullish On Paytm Stock As Company Expands Loan Portfolio
--  India Has Not Fully Capitalised On Advantages Of Trade Decoupling: Report
--  Bank of India Plans To Generate Rs 4,500 Cr Through QIP
--  Govt forms high-level committee to probe Ncell share sale issue
--  신한은행, LG CNS와 글로벌 금융 디지털사업 업무협약 체결
--  [금융IT 이노베이션] 전산 장애 피해 규모 50억 이상…“쉐어플렉스는 자신있다”
--  [구룡마을 판자촌 주민들 강남 아파트에 들어간다 [부동산360]
--  [“기프트카드를 또 잔뜩 사네?”…휴가 중 발동한 촉! 범죄 막았다
--  [기재부, 재정운용위 "2월 지역활성화 투자펀드 프로젝트 선정 차질 없이 추진"
--  [검찰, ‘분신 택시기사’ 회사 대표에 구속영장 청구
+-  الموعد والمميزات.. "إنفاذ" يُعلن عن مزاد الشريط التجاري شمال الرياض
+-  إندار صيني ضد كوارث مناخية.. وتُسونامي يهدد 11 دولة في المتوسط
+-  ​Lésés par le PEJA, les artisans de Saint-Louis, découragés, se révoltent
+-  Fuera de peligro el cazador herido de bala este miércoles en Mondoñedo
+-  Uzmanından inmede hayat kurtaran öneri
+-  Wie beim Eishockey: Schiris bereiten sich auf Neuerungen nach VAR-Einsatz vor
+-  Выборы президента России 2024: стала известна дата
+-  Находящиеся за рубежом россияне не смогут проголосовать на выборах президента РФ электронно
+-  Orbán Viktor elrendelte: leáll a közigazgatás
+-  UGC recognises Ramdev’s Bhartiya Shiksha Board for higher studies
+-  La Copa NBA: en busca de un pleno en Las Vegas
+-  La cuarta Ruta de los Belenes se extiende hasta dieciséis localizaciones
+-  수입 하이브리드차 판매량, 처음 가솔린차 넘어
+-  [화물캠페인] 브레이크 조절
+-  COP28: Day 7 was all about cities and transport
+-  ناسا تحتفل بمرور 25 عاماً على تشغيل محطة الفضاء الدولية
+-  "12월도 뜨겁다" 게임사들, 연말 대목 맞춰 오프라인 행사 전개
+-  Nevjerojatni Dončić ispisao povijest NBA triple-doubleom
+-  Three Donegal animal welfare charities receive funding
+-  Jedan predmet u kuhinji nikada niste oprali, a tu najčešće živi salmonela, upozoravaju stručnjaci
+-  خسائر اقتصاد إسرائيل... تعوض ما عدا الثقة
+-  Cruz Roja ha brindado 31 567 atenciones
+-  İstanbul'da yeni yıl hazırlıkları
+-  Animal Actress Tripti Dimri on Intimate Scenes With Ranbir Kapoor
+-  Jennifer Lopez to star in ‘Kiss of the Spider Woman’ feature film adaptation
+-  Borsa güne yükselişle başladı
+-  İşçileri taşıyan servis kaza yaptı: 9 yaralı
+-  Osman Müftüoğlu yazdı: Hipotiroid mi, depresyon mu?
+-  Altında hareketlilik sürüyor!
+-  Teplé počasie ušetrilo plyn, ľudia spotrebovali menej
+-  Pratima Bhattacharjee promoted to Front Office Manager at Conrad Bengaluru
+-  Elon Musk, xAI için 1 milyar dolar topluyor
+-  Brigade Group eyeing expansion in Collaboration with Accor Group
+-  French Merlot paired with lamb galoutis? Chennai hosts Bordeaux’s famous wines
+-  Rising sports star Zulqarnain Haider, 14, suddenly dies as tributes paid to ‘phenomenal’ young athlete
+-  Ascom remporte un contrat en Allemagne
+-  Park Ji Hoon’s Love Song for Illusion Trailer Teases a Tragic Love Story
+-  Elaboran catálogo para promover productos
+-  Sağlık Bakanlığı'ndan skandala skandal cevap. Yeniçağ yazarı Fatih Ergin'in Suriyelilerin SGK'yı hortumladığını ortaya çıkarmıştı
+-  Skanska signs contract amendment for data center in Arizona, USA, for USD 67M, about SEK 710M
+-  Cricket Equipment Market to grow by USD 2,536.35 from 2023 to 2028; Market is fragmented due to the presence of prominent companies like Adidas AG, Beat All Sports and British Cricket Balls Ltd., and many more - Technavio
+-  大量のイワシなど打ち上がる 函館
+-  الأمم المتحدة: حصيلة الاستجابة للنداء العاجل بشأن غزة 405 ملايين دولار
+-  The 6 Most Important Web3, Blockchain And Cryptocurrency Trends In 2024
+-  S-OIL, 고객과 함께 모은 주유 포인트로 청소년 자립 지원
+-  영광군, 경찰 연계 모의훈련으로 비상상황 대처 능력 향상
+-  Dottern satte i halsen – 112 svarade inte
+-  Palmeiras na krilih Endricka ubranil naslov, Santos prvič izpadel
+-  Palmeiras na krilih Endricka ubranil naslov, Santos prvič izpadel
+-  Звезда «Дома-2» обвинила в изнасиловании спасшего ее после ДТП мужчину
