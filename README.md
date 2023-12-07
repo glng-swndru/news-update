@@ -1,51 +1,11 @@
 # Latest News
--  عضو حملة حازم عمر: هيكلة الاقتصاد وزيادة الاستثمار الزراعي والصناعي أولوية لدى مرشحنا
--  سعر الدولار اليوم الخميس مقابل الجنيه في 10 بنوك مع نهاية التعاملات
--  ارتفاع حصيلة القتلى بين الجنود الإسرائيليين في غزة إلى 87
--  ممثل حملة "يمامة": الدولة لا تنتبه لحصر زراعات القمح.. ونحتاج لمجلس للإصلاح الزراعي
--  تضم 411 مؤسسة.. ننشر القائمة السوداء للكيانات الوهمية بالتعليم العالي
--  عضو حملة فريد زهران: نحن بحاجة إلى سياسة مختلفة للتعامل مع الدين العام وسعر العملة
--  الحكومة بغزة: 17177 شهيدًا بينهم 7739 طفلًا و7700 مفقود
--  ضد فريقه السابق.. طارق حامد يسجل أول أهدافه في الدوري السعودي (فيديو)
--  الدفاع السعودية: سقوط طائرة "إف-15 إس إيه" ومقتل طاقمها
--  كأس العالم للأندية.. ماذا حقق نجوم الزمالك بعد الانتقال إلى الأهلي؟
--  بالفيديو.. تفاصيل 4 حروب شنتها إسرائيل على غزة خلال 15 عامًا
--  الديوان الملكي السعودي يعلن وفاة الأمير مقدم طيار طلال بن عبد العزيز
--  Why BJP gets offended when someone questions EVMs: Bhupesh Baghel
--  Vers une hausse des taux d’intérêts, la BCEAO a augmenté son taux directeur à 0,25%
--  Pumas está obligado a ganar la Ida ante Tigres
--  Rehabilitan refinería... ¡no produce gasolinas!
--  Salen en busca del pase a Playoffs
--  Inician comparecencias de directores con regidores
--  Nuevo Casas Grandes, Moris y Uriachi sin órgano interno de control
--  Celebra Rusia que Senado de EU bloqueara ayuda a Ucrania
--  Denuncian paso peatonal despintado en Nombre de Dios
--  Cierran carriles centrales del periférico por reparaciones
--  Dará AMLO 'certificados' de posesión a damnificados
--  Lawsuit says Meta exposes children to exploitation
--  Bahn-Streik ab Donnerstagabend (7.12.2023): Lokführer legen Arbeit nieder
--  Wspomnienie miasta zamknąłem we flakonie perfum
--  Agencję rezerw czekają zmiany
--  Biznes stoi na zakręcie
--  Komentarz po sesji: Próba korekty
--  Danimarka'dan yasa geçti! Aşırı sağcılardan tepki gelse de Kur'an-ı Kerim yakılması yasaklandı
--  Google, Chrome tarayıcısına yeni bir özellik getirdi
--  Bahçeli açıkladı: 30 büyükşehirde ortak adayla gireceğiz!
--  Duvarı delerek girdikleri 10 dairede ne var yok götürdüler
--  Netanyahu’dan Lübnan’a tehdit
--  BM: Gazze'deki durumun nereye varacağını hiçbirimiz göremiyoruz
--  Washington Post çalışanları 1970'lerden bu yana ilk defa grev yaptı
--  Bayraktar TB3 SİHA 11'inci uçuş testini başarıyla tamamladı
--  1000 km na rowerze, czyli nietypowy sposób popularyzacji podróży do Polski
--  Suraj Estate Developers IPO: Check issue date, size and other details
--  Történelem teszt egy kis csavarral: számolásra is szükség lesz
--  ΑΝΤΙΔΡΑΣΗ ΣΑ ΠΙΝΤΟ: «Άνθρωποι που δεν έχουν επιτυχία στην καριέρα τους ως προπονητές, είναι καλύτερα να σταματήσουν να μιλούν για μένα»
--  Zuhal Olcay'dan çarpıcı evlilik itirafı. 3 kez evlenip boşanmıştı
--  CryptoQuant Says Bitcoin Rally Will Continue, Announces 2024 Price Target! Warned About Correction in the Short Term!
--  PUNA SALA U KRUŠEVCU: Održava se predizborni skup liste "Aleksandar Vučić - Srbija ne sme da stane" (FOTO/VIDEO)
--  المودعون اللبنانيون يتخوفون من تحميلهم الخسائر كاملةً
--  Zoo visitor found dead after staff see tiger ‘holding a shoe in its mouth’
--  আম্পায়ার্স কমিটির চেয়ারম্যানের বিরুদ্ধে বিসিবি সভাপতিকে চিঠি
--  Organizations bridging the gap where EBT falls short
--  САЩ изпращат самолети в Гвиана, която е заплашена от Венецуела
--  Hatay'da seyir halindeki araç alev alev yandı
+-  DFB gründet AG Stadionsicherheit - Reaktion von Fan-Kommission
+-  В Полоцком районе мужчина избил гаишника
+-  Kiew spricht von 28 000 Zivilisten in russischer Gefangenschaft
+-  Eskalation vor dem Weihnachtsfrieden - Bahn-Warnstreik hat begonnen
+-  Impulsará Canacintra la innovación en las Mipymes
+-  Realizan posada a niños de Balleza
+-  Paulista A3: Atacante retorna ao União Suzano e confia em acesso: ‘Estamos preparados’
+-  Paris: Vivendi revient dans le CAC 40, Worldline en sort
+-  Cuarte de Huerva da la bienvenida a la Navidad con villancicos y una chocolatada
+-  ISRAELE: Figlio di ministro israeliano ucciso in scontri a Gaza
