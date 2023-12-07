@@ -1,11 +1,51 @@
 # Latest News
--  نائب محافظ بورسعيد يتبرع بالدم لصالح أهل غزة- صور
--  بعد وفاته.. ما مصير مقعد النائب خليفة رضوان داخل البرلمان؟
--  الصحة في غزة: ارتفاع عدد الشهداء إلى 17177شخصًا
--  الانتخابات الرئاسية.. محافظ أسوان يتأكد من جاهزية اللجان
--  معركة الذهب.. جثة ومصابان فى مشاجرة بالأسلحة النارية بأسوان
--  الاحتلال يعلن مقتل إسرائيلي جراء قصف من جنوب لبنان
--  الصحة بغزة: نسبة الإشغال في مستشفيات القطاع بلغت 206%
--  بحضور مليون و300 ألف مواطن.. مراكز الشباب تنظم 410 فعاليات للمشاركة في الانتخابات الرئاسية- صور
--  شهود عيان: الاحتلال يحاصر 7 آلاف فلسطيني داخل مدرسة ببيت لاهيا
--  مدرب الزمالك يعود لقيادة المران بعد الحصول على الرخصة التدريبية
+-  La inflación en México repunta al 4,32 % en noviembre y rompe con racha descendiente
+-  Se cumplen 232 años del nacimiento del prócer Ambrosio Plaza
+-  Johnson shown evidence of 'let the virus rip' comments after denying it was his phrase – video
+-  Тикнизян назвал Санкт-Петербург футбольной столицей
+-  Presidente ecuatoriano Daniel Noboa preside una sesión del Consejo de Seguridad en la ONU
+-  UŽIVO, SRBIJA - POLJSKA: Rukometašice nemaju izbora! Pobeda imperativ protiv Poljakinja
+-  Los países de Latinoamérica en las pruebas PISA: que continuaron otros mejoraron su desempeño
+-  Tata Motors Lobbies India Not To Lower EV Import Taxes
+-  Vandalizan gimnasio de taekwondo en Apure pese a que cerca tiene un módulo policial (FOTOS)
+-  Путин предложил президенту Ирана обсудить ситуацию в Палестине
+-  Ўзбекистонда малакали кадрлар захирасини шакллантириш қандай мезонлар асосида амалга оширилади?
+-  VIDÉO - Gaza : l'armée israélienne traque le cerveau des attaques du 7 octobre
+-  Япония Украинага 4,5 миллиард доллар ажратади
+-  توقيف موظف بالبشير زور تحويلات مرضى لمستشفى الأردنية
+-  اشتباكات بالأسلحة الثقيلة شمالي قطاع غزة
+-  قوات الاحتلال تحاصر مدرسة تؤوي آلاف النازحين ببيت لاهيا
+-  الاحتلال يعتقل نازحين فلسطينيين ويجردهم من ملابسهم بغزة - فيديو
+-  Ўзбекистон халқига байрам табриги
+-  انتخابات رئاسية في روسيا آذار المقبل
+-  El primo del expresidente Mauricio Macri, Jorge Macri, asume como alcalde de Buenos Aires
+-  Solicitudes recurrentes de subsidio por desempleo en EE.UU. caen a 1,86M
+-  Bárbara Rey, así hablaba de Corinna Larsen hace unos meses
+-  В Приморье китайский турист пытался вывезти клыки кашалота и бивни мамонта
+-  عاجل .. البرلمان الدنماركي يقرّ قانونًا يحظر إحراق المصحف
+-  Andrés Pastrana se despachó contra Nicolás Maduro: este fue el motivo que desató la furia del expresidente
+-  Russia school shooting leaves 1 dead, multiple injured
+-  When Bobby Deol was shocked to hear his father call him `chalu` on KWK
+-  DRDO scientist held for leaking secrets to Pak intelligence denied bail
+-  Južna Koreja šalje olimpijce na obuku kod svojih marinaca
+-  Ebonyi Police Command has zero tolerance for extortion – CP
+-  Bigg Boss 17: K-pop star Aoora to enter Salman Khan`s reality TV show, watch
+-  Ленинградцы смогут написать антикоррупционный диктант до 15 декабря
+-  על רקע המשבר בענף הנדל"ן: החברה החרדית מתגייסת
+-  דרמה בעולם הטלוויזיה: התכנים של קשת 12 ירדו מהפלטפורמות של yes?
+-  כוכב 'הפטריוטים' תחת מתקפה קשה: "איזה איש פח אשפה"
+-  אלירז שדה בהצעה מפתיעה: "אולי כדאי לתקצב כספי שוחד"
+-  נשיא לשכת הקבלנים זועם: "ההצתה המאוחרת של רשות מקרקעי ישראל"
+-  מקומם: סטודנטים הללו את מחבלי החמאס וכינו אותם "לוחמי חופש"
+-  ג'ודי ניר מוזס מתפוצצת: "הכסף הולך למשתמטים ואוכלי חינם"
+-  ינון מגל מגיב לפיצוץ הראיון: "לא טוב לו, יום טוב לו"
+-  בוגי יעלון תוקף את רה"מ נתניהו: "צריך להחליף אותו מיד!"
+-  הקריפטו היומי: הדוג'קוין מתרסק, הביטקיון נותר על כ-43 אלף דולר
+-  השכר הגרוע בישראל נחשף: זה המקצוע בו תרוויחו 5,844 שקל
+-  רשת 13 בהפתעת ענק: זו התוכנית שתעלה בשני הקרוב
+-  שר החינוך יואב קיש תוקף: "ביזיון שאין כדוגמתו"
+-  PSG'nin Yıldızı İki Maç Kaçıracak!
+-  Аргентина пригласила Россию на инаугурацию нового президента
+-  Navigating The Supply Chain Reset
+-  BJP Issues Three-line Whip For All Its MPs To Be Present In Lok Sabha Tomorrow
+-  Indian Equities Slide On Thursday Ahead Of RBI’s Monetary Policy Decision
