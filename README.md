@@ -1,51 +1,11 @@
 # Latest News
--  Reportan camión volcado en cercanías al redondel Integración
--  New York Democrats pick former Rep. Tom Suozzi to run for George Santos's seat
--  ŽRTVE UROŠA BLAŽIĆA I DALJE NEMAJU MIRA! Majka masovnog ubice povukla potez koji je šokirao javnost
--  Carla Moreau découvre en direct de TPMP que Kevin Guedj l'attaque en justice pour "préserver sa réputation et son honneur"
--  Marcelo oficializa demissão do Governo
--  (VIDEO). ¡Puede contar la historia! Un hombre arrastrado por el raudal fue salvado por tres héroes
--  تركيا تشارك لأول مرة في معرض "إيديكس 2023" -(فيديو)
--  مسؤول بالبيت الأبيض: لا نطالب إسرائيل بوقف الحرب ولم نعط موعدًا لإنهاء العمليات
--  صور.. الوادي الجديد تدشن حملة التبرع بالدم لصالح فلسطين
--  حفرة بعمق 15 مترًا وفأس.. بلاغ يقود لجريمة التنقيب عن آثار فى الدقهلية
--  الخارجية الأمريكية: نعمل في سبيل العودة إلى الهدنة ولكن حماس من ترفض
--  بـ500 جنيه.. تفاصيل دورة ترجمة باللغة الصينية بجامعة حلوان
--  طوني خليفة: فرض المثلية على الشعوب استفزاز ولست مع التعرض للمثليين بعنصرية
--  الخارجية البريطانية: نؤيد حق إسرائيل في الدفاع عن نفسها مع التقيد بالقانون الدولي
--  حظك اليوم وتوقعات الأبراج 8-12: استقرار مادي لهذا البرج.. والجوزاء احذر التبذير
--  Stellantis va réduire sa production de SUV à Détroit en raison des règles californiennes en matière d'émissions polluantes
--  Professors identified as 2 victims killed in deadly UNLV shooting, authorities say
--  Jess wright unveils lavish Â£2 million Essex residence during xmas
--  Lego Fortnite launches with more players than every Fortnite battle royale mode combined
--  Datafolha: Lula é aprovado por 38% em cenário estável após 11 meses
--  México aprueba la comercialización de vacunas anticovid de Pfizer y Moderna
--  River Street to become 'Community Improvement District'
--  Certifica Oxford University Press al diplomado de inglés de la FFyL
--  Se reúne AMLO con empresarios tras sismo
--  Consulta la portada correspondiente al día 8 de diciembre de 2023
--  My patience with Rwanda plan delay has worn thin - Sunak
--  PSNI: Jon Boutcher says 7% pay rise will be implemented
--  Passengers stuck for hours on Elizabeth Line after cables damaged
--  Conor McGregor faces criticism after online rap battle
--  One of UK's largest mosques in east London is suddenly evacuated after 'bomb threat'
--  Passengers trapped in darkness on Elizabeth Line for 2 hours frantically 'bang on windows'
--  Britain is put on flood alert as heavy rainfall causes chaos
--  Rugby hero Kevin Sinfield smashes epic marathon challenge for Motor Neurone Disease
--  Jeremy Vine issues a sarcastic apology after angry clash with driver in shock video
--  Tamaulipas refuerza asistencia turística en carreteras
--  IKEA introduces progressive new polices so employees can “bring their whole selves to work”
--  Body found near Botanic Gardens in Christchurch
--  우리카드, 대한항공 잡고 선두 질주…현대건설 6연승
--  صراع جنوني في البريميرليج.. ترتيب الدوري الإنجليزي بعد خسارة توتنهام
--  Minnesota reprimands physician assistant for secret use of ivermectin to treat COVID
--  Deluge of violent threats ‘could take down a democracy’
--  Viajar por Argentina es un 61% más caro que en 2022
--  Alcohol-free bar owner says options aplenty as party season heats up
--  美대학서 '구직실패' 교수 대낮총격…4명 사상
--  하루종일 얼어있는 몸…겨울 체온 유지·상승 시키는 법 3
--  Evan Karagias Set For Court Date Next Month On Simple Assault Charges
--  Amazon Canada’s ’15 days of gift cards’ deal is your stocking-stuffer solution
--  VEST HEM ŠOKIRAO TOTENHEM: Everton bolji od Njukasla
--  صورة : إيدي هاو يواسي تريبير بعد الخسارة من إيفرتون
--  Spotify’s Chief Financial Officer Paul Vogel To Step Down In March
+-  Presidente Abinader anuncia 2.5 millones de dominicanos se beneficiarán con la entrega bonos navideños
+-  Cientos se manifiestan en Perú al cumplirse un año de Boluarte y tras la excarcelación de Fujimori
+-  UAE asks UN Security Council to vote Friday on demand for Gaza ceasefire
+-  بلديات بلجيكية تتلقى أوامر بسحب الجنسية من المولودين من أبوين فلسطينيين
+-  UAW says over 1,000 workers at VW plant in Tennessee have signed cards seeking union representation
+-  Власти Норвегии из-за притока украинских беженцев урезали им детские пособия
+-  Two charged with murder of Canadian entrepreneur Daniel Langlois and partner in Dominica
+-  Diyarbakır’da çöken binada kimsenin olmadığı belirlendi
+-  Police release CCTV of two men who allegedly stole ring from dead woman’s body
+-  Ukrajinci blokiraju Ruse na OI - čak i pod neutralnom zastavom
