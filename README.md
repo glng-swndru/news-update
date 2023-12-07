@@ -1,51 +1,51 @@
 # Latest News
--  EastEnders Christmas trailer hints at explosive twist for The Six – and it’s all to do with the bells
--  Европейският град, в който данъци вече се плащат с криптовалута
--  Exploring the Genuine Romantic Connection Between Jeremy Allen White and Rosalia
--  Helium (HNT) Price Prediction 2023-2030: Will HNT Price Hit $10 Soon?
--  '한때 UCL 결승까지 갔는데...' 포체티노, 첼시에서 더욱 빨라 돌아가는 '몰락의 시계'
--  Мега звездата на Сакраменто реагира, докато Везенков "кърти мивки" в САЩ (СНИМКИ)
--  강원특별자치도 도루묵 종자방류 재개
--  여야 현역의원 물갈이 본격 시동…컷오프 상향조정
--  ‘박사방’ 조주빈, 강제추행 혐의 2심도 징역 4개월…42년에 추가
--  내년 3월부터 교사 대신 ‘전담 조사관’이 학폭 조사… 교육계 환영과 우려 교차
--  도사회서비스원 성과공유 및 우수사례 보고회
--  한동훈, ‘총선 출마’ 언급한 野 박용진에 “뜬금없다”
--  극단 백우61 ‘애로원 탈출기’, 9일 춘천 아트팩토리:봄
--  원주 리디머 기도사역연구소 개원
--  한대희 작가 개인전 ‘위’, 오는 10일까지
--  Créditos Anses: mala noticia para los trabajadores en relación de dependencia
--  노인회 도연합회 강대규 고문변호사 위촉
--  Vladimir Zelensky confirmó que asistirá a la asunción de Javier Milei
--  올해의 한기총 기자상에 송상원(크로스뉴스) 기자
--  Twiinsky s dcérkami zbalili kufre! Prečo odišli zo Slovenska?
--  Opatovského dcérka je MEGA šikovná: Naozaj sa TOTO učí ako deväťročná?
--  Audi hält offenbar an Formel-1-Plänen fest
--  Audi hält offenbar an Formel-1-Plänen fest
--  Výbuch a záplavy vo vykričanej dovolenkovej destinácii boháčov! Krajina vyhlásila stav núdze
--  بتهمة "سب الرئيس".. إدانة ناشط سياسي بالسجن والتغريم
--  Ολαφ Σολτς: Για πρώτη φορά καγκελάριος στην εβραϊκή Γιορτή των Φώτων
--  Goranboyda konfrans keçirilib - FOTO
--  Polizeibericht 7. Dezember: Brand in Taucha, Stemmhammer gestohlen, Von der Fahrbahn abgekommen
--  Pesë fanellat më të shitura te Barcelona – përfshihen dy lojtare të ekipit të femrave
--  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
--  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
--  Paul Pogba mit positivem Doping-Test: Staatsanwaltschaft fordert vier Jahre Sperre
--  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 7 décembre – LeBron James offre un titre à Cleveland
--  ANA NIKOLIĆ PRIZNALA DA PRAVI PROBLEME PORODICI Jednu stvar joj nisu dopustili: Zato sam ovakva!
--  Lamborghini Revuelto Supercar : सुसाट अन् बेफाम धावणारी Lamborghini Revuelto Supercar भारतात लाँच; किंमत ऐकून भुवया उंचावतील!
--  Chhattisgarh Apex Bank Result 2023, Download Result Link
--  WiMi Developed Explainable Artificial Intelligence (XAI)-based fNIRS Neuroimage Classification
--  AI startup Pimento raises €3M to tackle creative challenges faced by creative teams; Know more
--  G. Nausėda sieks antrosios prezidento kadencijos
--  2023 SABCS - TransThera announces an oral presentation of tinengotinib clinical data in breast cancer
--  Antalya'da satılık iş yeri!
--  Ortlieb als Trainingsschnellste in Speed-Start in St. Moritz
--  Thị trường rung lắc mạnh, nhà đầu tư cá nhân tranh thủ "lên tàu", mua ròng gần 719 tỷ đồng
--  Ayazağa Depoculuk Ve Lojistik Anonim Şirketi kuruldu!
--  Sunod kaya ang BoRa sa KathNiel?
--  Dramatic moment climber caught up in terrifying avalanche rescued during snow blizzard
--  Onderzoek naar wateroverlast Bloemendal gaat maanden duren
--  Chelsea favourite singled out for ‘really weak defending’ before Man Utd’s winner
--  Hizbullah İsrail'e yeni saldırılar düzenledi
--  İsrail, Gazze'de saldırılarını artırarak sürdürüyor
+-  Asalanka’s half-century in vain as Bangla Tigers edge Chennai Braves
+-  FMP vratio igrača zbog kog su ratovali Nebojša Čović i Zoran Savić
+-  Путин пригласил султана Омана посетить Россию
+-  প্রথমবারের মতো বাংলাদেশ ও আর্জেন্টিনার মধ্যে কৃষি সহযোগিতায় সমঝোতা
+-  Dinja Ewropa: Is-sigurtà fit-toroq hija priorità għall-PE kif ukoll għal Malta
+-  Суд арестовал начальника штаба СОБР «Рысь» по делу об участии в ОПГ
+-  ষড়যন্ত্র মোকাবিলায় সবাইকে সতর্ক থাকতে হবে: বাহাউদ্দিন নাছিম
+-  Mash: доходы сбежавшей из России Лободы упали в 300 млн раз
+-  L’Algérie et l’Égypte, Leaders Africains dans l’Exploration des Hydrocarbures : La Course aux Ressources Énergétiques
+-  पार्टी बनाउन मोह त्याग्न सक्नुपर्छ : महामन्त्री शर्मा
+-  कोहलपुरमा महिला क्रिकेट एकेडेमी बनाइने
+-  त्रिविको दीक्षान्त समारोहमा कर्मचारी सङ्घ सहभागी नहुने
+-  नेपाल पुलिस क्लब सेमिफाइनलमा
+-  दशौँ राष्ट्रिय खेलकुद निर्धारित मितिमै : मन्त्री लिम्बु
+-  الطقس صحو مع رياح خفيفة إلى معتدلة السرعة غدا
+-  Jehovah’s Witnesses expelled a member for criticising child sex abuse policy
+-  Общностният център за деца и семейства във Варна продължава да функционира по нов проект
+-  Избраха ръководствата и съставите на комисиите към ОбС-Варна
+-  طلب تعجيزي يقرب ألفونسو ديفيز من ريال مدريد
+-  عقدة الرياضيات.. ما هي وكيف يمكنك التغلب عليها
+-  2026 World Cup Qualifiers: CAF take action in Rwanda after Zimbabwe, SA lodged a complaint
+-  الاحتلال يستولي على 500 دونم من اراضي القدس
+-  Zvezda bez najbitnijeg igrača u večitom derbiju?! Sluti na kraj polusezone
+-  Ange Postecoglou: Tym klubem w Football Managerze wygrałem Ligę Mistrzów. Wybrałem go ze względu na nazwę
+-  Pokemon Emerald fans praise decades-old detail that saves players money
+-  Windows 10’s extended lifeline: Paid security updates post 2025
+-  'Não vou me despedir de ninguém': como foi o discurso de Abel no vestiário após a conquista do Brasileiro com o Palmeiras
+-  Yunus Mallı ve Bruno gol hasretini dindirdi
+-  TikTok henüz kapatılmayacak ama kendine çeki düzen verecek
+-  Hakan Keleş: Sivas maçını kazanmalıyız
+-  Muhammed Semih Kocatürk: Çocukluk hayalimi gerçekleştirdim
+-  Gençler olarak sıkı çalışıyoruz
+-  Türkçe'deki en uzun kelimeyi biliyor musunuz?
+-  Diyarbakır’da 5 katlı ağır hasarlı bina çöktü; arama kurtarma çalışması başlatıldı
+-  Davutoğlu: Her partiyle görüşürüz
+-  Labour leaders react to Kokori’s death
+-  Inflacja w Meksyku znów podskoczyła, ale bazowa utrzymuje spadkowy trend
+-  Pokemon Go player shares key tip to tackle “cursed” Mateo odds
+-  McDonald’s Plots Rapid Growth With 10,000 New Stores, Loyalty Expansion
+-  Irene Paredes regresa lesionada de la selección y se suma a la enfermería azulgrana
+-  Gaudenzi insinúa más integración ATP-WTA, apuesta por Arabia Saudí y advierte a los Grand Slam
+-  Nevil ljut na Matića: Najveća izdaja
+-  Elin Toona kuusk promenaadil sai küünlad külge
+-  Retailers Report Growth of Cash Use for 1st time in Decade
+-  Barmeni otkrili koja pića nikad ne naručuju, smučit će vam se kad vidite zašto: 'Nikad ne znate što ćete dobiti'
+-  La CPG et le Groupe Chimique Tunisien bénéficiaires en 2022 et 2023
+-  यूपी इवनिंग बुलेटिन:भैंस ने किया गोबर...मर गया बच्चा; केरल की टीचर से रेप; राजभर बोले-योगी को रात में गुलदस्ता देते हैं अखिलेश; VIDEO में 10 बड़ी-खबरें
+-  شروط تمويل الأسرة من بنك التنمية.. الحد الأقصى للدخل والعمر
+-  روبوت طبي يجري أولى عملياته الجراحية في هذه الدولة
+-  ماذا سيحصل لك عند استخدام الهاتف لأقل من ساعتين يوميًا؟
