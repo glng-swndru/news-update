@@ -1,11 +1,51 @@
 # Latest News
--  চুয়েটে স্থাপত্য উৎসবে নান্দনিকতার ছোঁয়া
--  «السوشيال ميديا» تنقذ حلم أشرف «شيف البيتزا».. اشتكى قلة الزبائن فكانت المفاجأة
--  Sahil kenarında gömülü insan iskeleti bulundu
--  Erciyes Kayak Merkezi, İngiltere basınında yer aldı
--  A nova conta governista pró-Flávio Dino
--  Prince Harry's decision to decline wedding invite 'appreciated' by family
--  ASEAN ile Çin, Japonya ve Güney Kore, acil finans programı oluşturmak için işbirliği yapacak
--  Van annelerinin evlat nöbetine bir aile daha katıldı
--  Dusan Tadic derbi öncesi iddialı konuştu! "Fenerbahçe'yi şampiyon yapmaya geldim"
--  Erzurum'un Aziziye ilçesinde yol kenarında ceset bulundu
+-  Een cadeautje voor alle vrijwilligers
+-  Cyrus et Herez vont fusionner
+-  ราชกิจจาฯแพร่ประกาศแต่งตั้งที่ปรึกษา-เลขา'รองปธ.สภาฯคนที่ 1'
+-  حزب الله يستهدف تجمعا لجنود إسرائيليين
+-  بلدية غزة: العطش يجتاح شمال القطاع
+-  الكشف عن رؤية فرنسية سعودية لإنهاء الحرب بغزة
+-  أوكسفام: إسرائيل تنفذ حملة عقاب جماعي بغزة
+-  الصليب الأحمر: الأرقام لا تعكس حجم مأساة سكان غزة
+-  البرلمان الدنماركي يقر قانونا يحظر إحراق المصحف
+-  פרסום ראשון: הקאמבק של טיילור מלכוב והאקס סוף סוף הושלם
+-  القسام : دمرنا 79 آلية في 72 ساعة
+-  EU-Kommission will Bürger und Umwelt besser vor Chemikalien schützen
+-  Petrolio: è in rialzo a New York a 70 dollari
+-  Политолог Войко: Киев деморализован из-за вероятности остаться без помощи США
+-  Lovren: Ovo je najgora momčad u kojoj sam igrao, rekli smo jedni drugima svašta
+-  Inside the remarkable life of Benjamin Zephaniah: How the world renowned poet served time in a borstal and then prison for burglary - before turning his life around to become a Peaky Blinders star and Yugoslavian pop sensation
+-  Le Maire: con Germania intesa al 90% su modifiche a Patto Ue
+-  Rupert Murdoch's granddaughter Charlotte Freud reveals her apartment was burgled and thieves did something inside that shocked her: 'These people are animals'
+-  زرمبادلہ کے ذخائر میں مزید 23 کروڑ 70 لاکھ ڈالرز کی کمی
+-  Mehr als das Doppelte der ursprünglichen Kalkulation: Kosten für Stuttgart 21 steigen auf rund 11 Milliarden Euro
+-  MIDDAY BRIEFING - Unternehmen und -2-
+-  MIDDAY BRIEFING - Unternehmen und Märkte
+-  Thermador : FMR LLC dépasse les 5%
+-  Petites et moyennes capitalisations : il est trop tôt pour crier victoire (Sycomore AM)
+-  «Аэрофлот» заявил о проблемах с оформлением билетов из-за сбоя в Leonardo
+-  ‘Nobody Should Tell Me Kaduna Bombing Was A Mistake, It Is Intentional’ – Gumi Fires Military
+-  Dacia Duster, Artık "Renault Duster" Olarak Satılacak: İşte İlk Fotoğrafı
+-  Evde İnternet Paketi Seçerken Nelere Dikkat Etmeliyiz?
+-  مركز النقل المتكامل في أبوظبي يدشن أسطول حافلات تعمل بالطاقة الكهربائية بالتزامن مع COP28
+-  Symboliczny wzrost liczby nowych bezrobotnych w USA
+-  Zagraniczni inwestorzy wracają do Turcji po sześciu latach
+-  «Ο Εξορκιστής»: Η πιο τρομακτική ταινία όλων των εποχών επιστρέφει έπειτα από 50 χρόνια
+-  Strajk pracowników Tesli rozlewa się na inne kraje. Związki zawodowe z Norwegii i Danii dołączają do protestów
+-  Met dit legaat regel je je erfenis fiscaal zo gunstig mogelijk
+-  47 Kampung Percontohan Moderasi Beragama tersebar di Aceh
+-  [대경경자청, 영천첨단부품소재산업지구 혁신생태계협의회 한마당 개최
+-  [피프티 피프티, 틱톡 글로벌 ‘더 플레이리스트’ 1위…‘히트메이커’엔 블랙핑크 3위
+-  ["식당 근무 2개월형을 선고한다" 갑질 30대女에게 명판결
+-  Что делать, когда не знаешь, что делать дальше: инструкции и советы психолога
+-  Tom Hanks y George Clooney hablan sobre el ‘rizz’ o carisma: ‘Si dices que lo tienes, no lo tienes’
+-  McDonald's testet neues Getränkeketten-Konzept in den USA
+-  حكيمي، صلاح و أوسيمين في القائمة النهائية للمرشحين لجائزة أفضل لاعب في إفريقيا 2023.
+-  Euro NCAP nenavadno ostro do zavajanja in prakse proizvajalcev
+-  Two-day Forensic Fair begins at JSS Medical College
+-  BIN Pasundan Menang Atas PDAM Tirta Bhagasasi Bekasi
+-  وفيات الخميس 7 ديسمبر 2023
+-  Ανησυχία Πρ. Χριστοδουλίδη για νομοθεσία εκποιήσεων - «Δεν θα υπογράψω νόμο που θα βάζει σε κίνδυνο την οικονομία»
+-  Putin dice que Rusia ha demostrado ser capaz de “responder a los desafíos más complejos”
+-  Britischer Dichter Benjamin Zephaniah gestorben
+-  Longsor Susulan Berpotensi Terjang Desa Bencoy di Sukabumi, BNPB Usulkan Relokasi
