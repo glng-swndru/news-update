@@ -1,51 +1,11 @@
 # Latest News
--  CTC: Báo cáo tài chính bán niên năm 2023
--  ABI: Quyết định chấp thuận thay đổi đăng ký giao dịch cổ phiếu CTCP Bảo hiểm Ngân hàng Nông nghiệp (MCK: ABI)
--  HTC: Thông báo về ngày đăng ký cuối cùng để thực hiện quyền nhận cổ tức bằng tiền đợt 2 năm 2023
--  LHC: Đính chính Báo cáo tài chính quý 3/ 2023
--  HPT: Ngày 08/12/2023, Thông báo ngày giao dịch đầu tiên đăng ký giao dịch bổ sung của CTCP Dịch vụ Công nghệ tin học HPT
--  HSA: Thay đổi giấy đăng ký kinh doanh
--  EVFTA giúp nâng cao chất lượng nông sản xuất khẩu sang EU
--  Thâm hụt thương mại của Mỹ gia tăng trong tháng 10
--  ‘We want visa’: Yongah Hill detainees stage protest after High Court ruling
--  ‘We want visa’: Yongah Hill detainees stage protest after High Court ruling
--  They flunked or got ‘nightmare’ ATARs. Now they’re CEOs and masters grads
--  Ahora sí: programación oficial de las finales de la Liga BetPlay
--  They flunked or got ‘nightmare’ ATARs. Now they’re CEOs and masters grads
--  Gelungene Operation: Ex-SPD-Vorsitzender Franz Müntefering hat eine neue Herzklappe
--  나는자연인이다, 제누(GENU) 스테비아 단백질 커피 등장
--  광명시, ‘MZ세대 그리고 적극행정’ 주제로 직원 100여명에 역량 강화 교육
--  부천시, 자동차관리 모범사업자 8개 업체 지정증·표지판 전달
--  광명 시민참여커뮤니티 위원들, 시흥시 정왕동 일대 민관협치 사례 벤치마킹
--  광명시 평생학습원, ‘소비로 보는 2024년 대한민국’ 주제 최지혜 박사 특강
--  고양특례시 이동환 시장, 싱가포르 ‘에이알티시(ARTC)’ 방문…투자유치 협력 논의
--  파주시, ‘환경순환센터 현대화사업’본격 시동…2026년 준공 목표
--  강진군, 특별교부세 28억 원 확보 쾌거
--  청송군, 5,553억원 규모 2023년 3회추경 예산안 군의회 제출
--  고성군, 인구감소 대응 우수사례 ‘지역특화형 비자 시범사업’ 행정안전부 장관상 수상
--  담양군, 촘촘한 장애인 복지정책 ‘화제’
--  여수시, 디지털 시뮬레이션 기반 여수산단 공정혁신 강화
--  김덕현 연천군수, 청년농업인과 소통간담회 개최
--  장흥군, ‘2차 특별교부세’ 25억원 확보... 현안사업 탄력
--  ‘이러다 망한다’…日, 저출산에 “자녀 3명 이상시 대학 등록금 면제”
--  추운데 운동을 따로?…손쉽게 할 수 있는 ‘틈새운동’ 3
--  20대 남성 2명 승용차서 극단선택 시도…차량 소유주 여성은 숨진 채 발견
--  와이프 빼고 다 바꾸겠다더니…‘용두사미’로 끝난 인요한 혁신위
--  창당 초읽기? 이낙연 “양당 폭주에 대한민국 낭패 당할 수도”
--  ‘김건희 통화 녹취공개’ 서울의소리, 2심도 “김 여사에 1000만원 배상하라”
--  Тошкент вилоятида 34 нафар жиноий гуруҳ аъзолари қўлга олинди.
--  Россияда ноқонуний қўлга киритилган маълумотлар базасидан фойдаланган журналистлар 10 йилгача қамалиши мумкин.
--  ОТБ Ўзбекистонга корхоналар ва иқтисодий ўсишни рағбатлантириш учун 100 млн доллар ажратди.
--  Câmara rejeita urgência para suspender restrições ao registro de armas; acompanhe
--  TSE e Anatel assinam acordo para combater fraudes feitas com IA
--  Câmara aprova pena maior para importunação sexual em táxi ou aplicativo de transporte
--  Suerte, gobernador
--  Se logró y de qué forma: ¡Junior, otra vez finalista!
--  Manchester City slump to fourth after defeat at Villa, Liverpool win
--  Пентагон: США и Украина договорились о совместном производстве оружия
--  Cuatro jugadores de Alajuelense encabezan 11 ideal de la Copa Centroamericana
--  Chine-Les exportations ont progressé en novembre, les importations déclinent
--  Soiza, preso por planes sociales: «¿Saben cómo llamaba al área mía? La de los enfermos mentales»
--  Vuelve el debate por los plazos judiciales: otro fallo contra el Código Procesal Penal de Neuquén
--  El Consejo de la Magistratura investigará al juez penal de Roca acusado de hostigamiento
--  Conocé dónde están los parques de energía renovable más productivos del país
+-  파주시, '환경순환센터 현대화사업' 본격 시동hellip;2026년 준공
+-  리얼 120Hz 게이밍 TV의 등장! 더함 스마트 65형 QLED 구글시네마TV
+-  ดวงตาเห็นธรรมแล้ว!‘ไบรท์ ชินวัตร’สารภาพคดี112 ศาลสั่งจำคุก 3 ปี รอลงอาญา
+-  ‘อิตาลี’ส่อไม่ไปต่อกับ‘1แถบ1เส้นทาง’ หลังเข้าร่วม 4 ปี พบ‘จีน’ได้ประโยชน์มากกว่า
+-  Janie បញ្ចេញឈុត​ក្រហម​អបអរ​បុណ្យ​ណូអែល តែហ្វេនលើកសរសើរសម្រស់ស្អាតខុសមុនឆ្ងាយ
+-  Doden door schietpartij op Amerikaanse universiteit
+-  Oud-president Fujimori van Peru vrijgelaten
+-  영화 '시민덕희' 기대하세요
+-  LS전선, 1.5조원 규모 유럽 북해 해상풍력 HVDC 케이블 계약 체결
+-  LS Cable & System Lands 1.5 Trillion Won Contract for HVDC Cables with TenneT Offshore
