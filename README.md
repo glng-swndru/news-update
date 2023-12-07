@@ -1,11 +1,51 @@
 # Latest News
--  Európska únia navrhuje sprísniť pravidlá v oblasti dobrých životných podmienok zvierat
--  Vanuatu zasiahlo silné zemetrasenie: Hrozí aj príchod cunami
--  Crna Gora na braniku latinice u Pridnjestrovlju: Vlada uvela sankcije progoniteljima latiničnog pisma, čeka li ista sudbina Hrvate i Ukrajince?
--  "ידעתי שאנשי המילואים רתומים ונחושים, אך לא הבנתי עד כמה"
--  Encuentran a ejecutado en arroyo al norte de la ciudad
--  Pide Fiscalía 60 años de cárcel para "El Bryan"
--  Ivanka Trump shows off her slender legs in a revealing white mini dress as she and Jared Kushner hit the town in Miami for Art Basel - before hanging out with TikTok sensation Alix Earle and NFL star Braxton Berrios
--  Hagenaar aangehouden voor handel in zwaar vuurwerk
--  Berlijn en Parijs 'voor 90 procent eens' over begrotingsregels
--  Mensenrechten staan onder druk door nieuwe dreigingen, en dit geldt ook voor de vrijheid van religie
+-  Bigg Boss 17 Wild Card: अब सलमान खान के शो में इस पॉपुलर साउथ कोरियाई सिंगर की होने वाली है वाइल्ड कार्ड एंट्री
+-  MARIA VAI COM OS OUTROS
+-  Wetter in NRW: Experte mit unheilvoller Prognose – „Das geht nicht gut“
+-  גל איזנקוט, בנו של השר איזנקוט, נפל בקרב ברצועת עזה
+-  Post Office busines rescue plan approved
+-  GB-Fragilisé, Sunak défend son plan d'envoi de demandeurs d'asile au Rwanda
+-  Fernanda Hansen y el complejo momento que vivió luego de ser hospitalizada: “Se da en 0.3% de los casos”
+-  Израелски тенкови го опколија бегалскиот камп Џабалија
+-  Slavonku kojoj se čudi cijeli svijet ni hladnoća nije spriječila da pokaže svoju raskoš, a nemojte da vas zavaraju njezini zimski dodaci!
+-  बॉक्स ऑफिस: रणबीर कपूर की फिल्म एनिमल ने महज छह दिनों में 300 करोड़ रुपये का आंकड़ा छू लिया
+-  Vice Co-CEO Hozefa Lokhandwala To Exit
+-  Patient allegedly locked in cupboard for seven hours by nurse
+-  “Reptiles Argentina Exótico”: el grupo que vendía tarántulas, serpientes y escorpiones por la web y los enviaba por encomienda
+-  Cumhurbaşkanı Erdoğan'dan Miçotakis'e Gazze'nin tarihini anlatan kitap hediye etti
+-  My wife is going to spend Christmas in hospital – I’m relieved because it will save on spiralling bills
+-  Cyprus sees surge in Covid-19 cases
+-  Forscher steigen in Vulkan hinab – was sie dort finden, ist nicht zu fassen
+-  Renault va fabriquer le SUV Duster en Turquie
+-  Pierre & Vacances : Forte croissance attendue en 2024 pour les résidences de tourisme et villages vacances (Xerfi)
+-  Apple issues grave warning on user privacy to promote its own data protection
+-  Réparabilité des smartphones : ce modèle a obtenu la note ultime de 10/10
+-  Linie 13 nach Hemmingen: Kommentar zur Stadtbahneröffnung
+-  Deens parlement akkoord met wet die koranverbrandingen verbiedt
+-  Capturan a pandillero mientras pasaba por un control vehicular en San Miguel
+-  Kaizer Chiefs Juniors Celebrate Triple Glory
+-  Vogue Williams gives fans sneak peek look into lavish pad with new luxurious feature
+-  Karni Sena chief murder: पत्नी ने दर्ज कराई शिकायत; FIR में डीजीपी अशोक गहलोत का नाम
+-  Переносьте прання на нічні години: Уряд звернувся до українців через дефіцит електроенергії
+-  Fans convinced I’m A Celeb stars are ‘given extra food’ after spotting ‘clue’ on show
+-  Ceviche peruano: prepara el plato que es patrimonio cultural inmaterial de la humanidad
+-  منافس الأهلي المحتمل.. مدافع اتحاد جدة يغادر مباراة ضمك مصابا
+-  Евролидерите в Пекин: Китай и ЕС трябва да бъдат партньори, а не съперници
+-  Neue Studie - In der Vorweihnachtszeit passieren die meisten Einbrüche - wie Sie sich schützen
+-  The tech billionaires trying to hack longevity and live forever
+-  Brooks Yurachek returning home to play for Razorbacks
+-  Government, City of Zagreb and Church reach agreement on new city stadium
+-  मध्य प्रदेश में केंद्रीय विद्यालय के प्रिंसिपल रिश्वत लेते गिरफ्तार - MP KVS NEWS
+-  Chronique - La prochaine grande nouveauté en matière de prestations de retraite pourrait bien être la plus ancienne : la pension traditionnelle.
+-  Tauwetter in Leipzig: Diese Fußballspiele wurden für das Wochenende abgesagt
+-  14.000 Unterschriften: Volksbegehren gegen das Gendern in Baden-Württemberg
+-  Aadhaar Card: इस आसान प्रक्रिया से अपने आधार कार्ड को नए मोबाइल नंबर से लिंक करें
+-  Suspendido el comisario provincial de la Policía Nacional de Tenerife por una denuncia por malos tratos
+-  ООН: незаконный наркооборот поднялся на рекордно высокий уровень
+-  I played Lego Fortnite before it was released – & it might be as massive as the battle royale
+-  I played Lego Fortnite before it was released – & it might be as massive as the battle royale
+-  Wer sind sie wirklich?: Verdener Persönlichkeiten im „Museums-Talk“
+-  Hintergrund: Kein Stillstand trotz fehlenden Haushalts
+-  ΠΑΟΚ: «Πρώτη» για Ζίβκο Ζίβκοβιτς στα γκολπόστ
+-  Гендиректор «СПБ биржи» встретился с частными инвесторами
+-  Rheinland-Pfalz legt Beschwerde ein - Nächster Meilenstein: Grundsteuer landet vor Bundesfinanzhof
