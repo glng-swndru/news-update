@@ -1,51 +1,51 @@
 # Latest News
--  델테크놀로지스, AMD 인스팅트 가속기 탑재 서버 선봬
--  لجنة تنظيم البورصة تدرس إجراءات تطوير السوق
--  30 أخصائيا بتندوف قريبا من أجل دراسة وضع أقطاب طبية
--  الحكومة تسارع في تنفيذ تعليمات الرئيس تبون
--  الجزائر حققت السبق في الابتكار واقتصاد المعرفة
--  تحوّل عميق.. وحلمٌ يتحقق في عهد الرئيس تبون
--  تعزيز مشاركة المرأة والشباب في التجارة الإفريقية
--  Woman admits to catfishing her best friend's husband so she can catch him cheating - but is it fair on him?
--  광동제약, 임원인사 단행…최성원 대표이사 회장 승진
--  Klook Completes US$210 Million Funding, Embarks on a New Era of Profitable Growth
--  아이클레이, 글로벌 거래소 IndoEX에 ‘Iklay’ 상장
--  Myanmars Zentralbank legt Devisenkurse nicht mehr fest
--  Centrale bank van Myanmar stelt niet langer wisselkoersen vast
--  La banca centrale del Myanmar non fisserà più i tassi forex
--  Desmond Bane scores career-high 49 points, Grizzlies send Pistons to 18th straight loss
--  Desmond Bane scores career-high 49 points, Grizzlies send Pistons to 18th straight loss
--  Türk halısında yürüme yarışı
--  İnşaat projeleri için ortak fonda el sıkıştılar
--  Erzurum'a 3 milyarlık temizlik kağıdı yatırımı
--  Sınıf anneliği kaldırıldı
--  Así es la moneda de México para celebrar los 200 años de relación con EU
--  Foreign Minister Jaishankar ने सूरीनाम के अपने समकक्ष से की वार्ता
--  Noida : महिला को आत्महत्या के लिए उकसाने के आरोप में पति गिरफ्तार
--  Quema del diablo en Guatemala: cuáles son las zonas en donde aumentará el tránsito y cuáles son las recomendaciones
--  Maharashtra: राज्यपाल ने विद्यार्थियों की पर्याप्त नींद के लिए स्कूल के समय में बदलाव का सुझाव दिया
--  Deplorable: personal de Serenazgo discrimina a pareja LGBT en Los Olivos [VIDEO]
--  तृणमूल ने ममता बनर्जी के बारे में भाजपा नेता की टिप्पणी की निंदा की
--  ¿Ya huele a Navidad? Expertos explican si existe este peculiar olor
--  Police camo pants are back (but this time it's the SQ)
--  SANOFI-L'ACCENT MIS SUR LA R&D VISE À AUGMENTER DE 50 % LES ESSAIS DE PHASE III EN 2024 ET 2025
--  PAGASA Releases Latest Weather Update for Thursday (December 7, 2023)
--  Fiji Business Briefs: ANZ survey, Drua sponsorship deal, Raine & Horne reopens
--  한국IT여성센터-마이스링크, 일자리 해결 맞손
--  Антонов: США потеряли связь с реальностью, рассуждая о столкновении с Россией
--  국제대회도 가능…고려대 세종캠에 ‘스포츠 콤플렉스’ 들어섰다
--  Boat of Garten spectacular will raise cash for the strath's needy
--  ឯកឧត្ដម ហ៊ុន ម៉ានី ៖ ការកើនឡើងចំនួនសមាជិក-សមាជិកា ស.ស.យ.ក បង្ហាញពីការបំពេញតួនាទីដ៏សកម្មក្នុងដំណើរប្រព្រឹត្តទៅ នៃសង្គម
--  Polska może być mocna w sztucznej inteligencji. Rzuciły się na nią start-upy
--  정기선 부회장, CES서 육·해상 통합 사업 전략 공개
--  Communiqué de presse : Sanofi sur la voie du leadership mondial en immunologie avec un pipeline transformé pour accélérer sa croissance grâce à un nombre record de lancements de blockbusters potentiels
--  Авиарейсы на север Хабаровского края перенесли на сутки
--  Horoscope December 07: Taurus and Gemini will be successful in money matters
--  "매 경기가 역사"…NH농협카드, PBA 팀리그 최다 10연승 신기록 '1강 우뚝'
--  '우승 기념' LG 트윈스-LG전자 홈브루 콜라보 '챔피언 패키지' 출시...300대 한정 판매
--  ‘만점 활약→부상’ 무한반복... ‘日 수비 에이스’, 종아리 문제로 최소 3~4주 이탈
--  [K리그 핫피플] 뒤가 없는 ‘돌직구’ 임관식 감독의 화끈했던 4개월, “새 시즌에도 공격축구”… 2024년 안산의 모습은?
--  AMD, 데이터센터부터 PC 포괄하는 신규 AI 솔루션 발표
--  Rivas tiene en la mira los campeonatos en EU
--  Presidente Abinader encabeza consejo de ministros y directores
--  Why NPFL keepers aren’t ready for AFCON – Aiyenugba
+-  منها توفير الوظائف.. تعرف على أبرز 6 مشاريع في ميزانية المملكة 2024
+-  '익산middot;군산 통합' 이슈 22대 총선판 새 쟁점 부상할까
+-  고상진 익산발전연구원장 quot;익산middot;군산 통합으로 지역소멸 대응quot; 익산갑 출마선언
+-  오산시, 145개 체납법인 사업장 운영실태 조사
+-  DK아시아, 인천시 서구청에 쌀 350포 기부
+-  महिलाको सबलीकरण
+-  बाँकेको दशगजाका ७१ सीमास्तम्भको मर्मत सुरु
+-  एउटै गाउँबाट साढे दुई करोडको बीउ आलु बिक्री
+-  जनस्वास्थ्यमा महत्वपूर्ण फड्को
+-  과천시, 내년 예산안 4961억원 편성hellip;올해 본예산보다 8.3%uarr;
+-  न्यायिक विजयको सन्देश
+-  [삼양식품, ‘무역의날’ 대통령·산업장관표창 수상
+-  [김기현 ‘중진 희생’ 혁신안 안 받았다
+-  [[속보] 국민의힘 혁신위, 오늘 활동 종료…“尹께 감사”
+-  [민주, 8일 본회의 쌍특검법 강행 보류
+-  [신세계 ‘K-푸드’로 베트남 입맛 잡는다
+-  [국민은행, 우아한형제들과 ‘소상공인’ 대상 상생금융 지원 협약
+-  [[지금 구청은] 관철동 일대 담배꽁초수거함 설치
+-  [이현재 하남시장 “교통안전 대책 강화해 교통안전도 제고하겠다”
+-  चिसोले जमेको पञ्चकुुण्ड तालमा रमाउँदै पर्यटक
+-  [김포시민도 서울 ‘기후동행카드’ 쓴다
+-  [[지금 구청은] 구민 ‘탄소제로 환경운동회’ 개최
+-  [“인사철이라 말도 못하고” 경찰 초과수당 부족 ‘부글부글’
+-  [檢 '마약 혐의' 남태현·서민재에 징역 2년·1년6개월 구형
+-  [박정훈 해병 前 수사단장 “항명죄 성립안돼…외압 규명해야”
+-  [알바비까지 코인투자에 올인하는 MZ
+-  [인천경제청, 기업 연구소 공개 모집
+-  ["34세 女 의사, 5명 살리고 하늘의 별이 되다"
+-  [“술 40병 살게요” 편의점 직원 창고 가두고 계산대 털어간 30대女
+-  [尹국정지지도 3%p 내린 32%…부동산·경제 평가 하락[NBS]
+-  [이성의 만능은 따뜻한 감성으로 보완되어야 한다 [조원경의 현인들의 경제적 조언]
+-  [경영계 “ESG공시, 현실맞는 기준 필요” 정부 “도입 초기 기업부담 최소화 검토”
+-  ["승마선수인데 임신해 출전 못해" 전청조 이 사기 투자사기와 병합
+-  [화승코퍼레이션, ‘KOMERI 친환경 기술 센터’와 기술 협력
+-  [세계반도체 매출 “내년 13.1% 증가”
+-  [“필터에 소금 넣었을 뿐인데” 바이러스·곰팡이 오염 완벽제거
+-  [챗GPT 오류...‘개인정보 줄줄이 쏟아내’
+-  [“무늬만 인공지능” AI 워싱 허위마케팅 주의보
+-  [LG엔솔 ‘주행 900㎞’ 배터리 기술 확보
+-  [이재명 “尹정권 입법권력까지 장악하면 과거로 돌아가…민주당 역할 크다”
+-  [구글·오픈AI·AI동맹으로 재편된 ‘AI 패권경쟁’
+-  [“7개월간 전·월세, 매매계약 2건”...붕괴된 빌라 생태계
+-  [전기산업 수출, 올해 150억달러 역대 최대
+-  [소피 멤버된 LG전자, 미래차 솔루션 개발
+-  [사건이냐 사고냐… 유동규 트럭추돌 미스터리
+-  [방문규 “내년 반도체 수출 18% 증가 빠른 회복”
+-  [HD현대, 육상으로 비전 넓힌다…내년 CES서 ‘사이트 트랜스포메이션’ 공개
+-  [볼보코리아, 난지도 노을공원에 나무 1400그루 기부
+-  [삼성전자 내년 CES서 ‘모두를 위한 AI’ 발표
+-  [삼성SDI ‘전고체 배터리 사업화 추진팀’ 신설
