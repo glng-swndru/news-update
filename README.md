@@ -1,7 +1,21 @@
 # Latest News
+-  Eskalation vor Weihnachten - Deutsche Bahn-Warnstreik hat begonnen
+-  "시메오네 감독 덕분에 지도자가 되고 싶다"...ATM 출신 DF의 충성심
+-  Aaj Ka Mesh Tarot Card: मेष राशि वाले रूके हुए कार्यों पर दें ध्यान, कारोबार में उधारी करने से बचें
+-  Ковачевски: Повторно ќе бидам премиер!
+-  Juicio a Walter Bento: el ex juez volverá a declarar y anticipó que responderá preguntas
+-  Rodney Writes On Henry Merryll’s Adventurous Cycling Trip from Lanka to London
+-  Maj. Gen. G. A. Chandrasiri: Guiding Sri Lanka’s aviation triumph
+-  Fearless fighter Freddy honoured with ‘Order of Timor-Leste’
 -  Kim Basinger : qui est sa fille unique Ireland Baldwin ?
+-  VIDEO: Navijači Panathinaikosa nisu zaboravili Hezonju, ovacije za Hrvata
+-  Tol Jogja-Solo akan Difungsikan Selama Nataru
+-  Χριστούγεννα στο ΜΙΝΙΟΝ: Η ιστορία του πρώτου πολυκαταστήματος στην Aθήνα
+-  Medida que caducará por decisão de Lira é inspirada em projeto de rival
 -  Defensor del Pueblo tilda de cínica declaración del Eln sobre secuestros
 -  Colombia y la Unión Europea empiezan a negociar un acuerdo de colaboración y cooperación
+-  Aktien New York Schluss: KI-Schwergewichte treiben Nasdaq-Börse an
+-  Izbio požar na imanju kod Bijeljine, usporen saobraćaj
 -  İşgalci İsrail ordusu, Batı Şeria'da 5 Filistinliyi yaraladı
 -  Ergin Ataman ve Cumhurbaşkanı Recep Tayyip Erdoğan bir araya geldi! "Türk-Yunan dostluğu ve basketbol üzerine konuştuk"
 -  ABD'den Guyana ile Venezuela arasındaki sınır anlaşmazlığı hakkında açıklama
@@ -9,3 +23,29 @@
 -  BM: Sudan'daki çatışmalarda 12 bin 190 kişi öldürüldü
 -  حرب السودان تخلّف 12 ألف قتيل و6 ملايين مشرد
 -  Razotkrivena Brankova zavođenja, a on se brani: 'Nisam kontaktirao druge žene onih pet dana na moru'
+-  Canadian firms paying ‘significantly’ more in ransomware attacks: data
+-  Bilićev igrač napravio neviđenu glupost i skrivio penal. Pogledajte bizaran potez
+-  Samanyolu çevresindeki galaksileri yutacak!
+-  Herkes sokağa döküldü! Meksika'da korkutan deprem
+-  FIA zet onderzoek naar Toto Wolff en zijn vrouw voor lekken informatie niet door
+-  النعيمي يعزي ملك البحرين بوفاة عيسى بن مبارك بن حمد
+-  Eisregen und Temperaturen bis Minus 15 Grad – das kommt auf Österreich am Wochenende zu
+-  This is the 'center' of Arkansas, according to Census population data
+-  روسيا تدعم جهود باتيلي لإجراء الانتخابات الليبية بقوانين عادلة
+-  Erik ten Hag has a clear response when asks if he regrets actions over Jadon Sancho
+-  CHIPOTLE MEXICAN GRILL TO ANNOUNCE FOURTH QUARTER AND FULL YEAR 2023 RESULTS ON FEBRUARY 6, 2024
+-  [1보] 뉴욕증시, 일제히 상승 마감…나스닥 1.37%↑
+-  Şiir gibi siyaset
+-  فيلم "أحلام العصر" يحقق تفاعلًا في عرضه الأول بمهرجان البحر الأحمر
+-  İsrail ordusu bir gazeteciyi daha alıkoydu
+-  Este viernes habrá campeón: se juega la final entre La Florida y Chacarita
+-  سعود بن صقر يعزي ملك البحرين بوفاة عيسى بن مبارك بن حمد
+-  Salajland na holivudski način: Jamie Foxx ukrasio imanje tisućama lampica
+-  "המאסטרו" הופך סיפור על גאון יהודי חתיך ומתוסבך לממתק שהקהל משתגע ממנו
+-  Treba li Šibeniku aerodrom? Lokalni HDZ-ovac kaže, 'sve ovisi': 'Imamo desetke mladih obitelji, ne bi voljeli da nam se rasele tek tako'
+-  GameStop mit durchwachsenen Zahlen - GameStop-Aktie verzeichnet dennoch zweistelligen Aufschläge
+-  واشنطن: إيران متورطة في هجمات الحوثيين
+-  Superenalotto, numeri combinazione vincente oggi 7 dicembre 2023
+-  The Last of Us Part 2 Remastered pre-order guide
+-  Zieke Nuis moet wereldbekerwedstrijd in Polen aan zich voorbij laten gaan
+-  Zieke Nuis moet wereldbekerwedstrijd in Polen aan zich voorbij laten gaan
