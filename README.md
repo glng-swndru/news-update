@@ -1,51 +1,11 @@
 # Latest News
--  Bellanova punta il Frosinone: l’esterno è in continua crescita
--  Les comptes d'épargne en Suisse sont rémunérés à 0,8% en moyenne
--  천안시장애인체육회, 천안시 장애인체육상 시상식 개최
--  천안시어린이집연합회 민간분과, ‘우리아이 수호천사 되어주기’ 후원금 전달
--  천안시, 노인의료돌봄 통합지원 보건복지부장관 기관표창
--  천안시 서북구, 천안서북경찰서 무인민원발급기 설치·운영
--  서산시, 제10회 서산 관광사진 공모전 전시회 개최
--  서산소방서, 공동주택 옥상문 자동개폐장치 설치 당부
--  홍성군, 공공부문 온실가스 감축 전국 최우수기관 선정
--  Azerbaidzhanissa ennenaikaiset presidentinvaalit helmikuussa
--  Stif : introduction en bourse sur Euronext Growth Paris
--  POLL | Are you worried about drinking tap water as report shows 46% poor quality?
--  Nová zelená úsporám bude pro víc lidí. I s přídavkem na dítě
--  News24 | Two charged with kidnapping after 14 undocumented minors found on bus in Kimberley
--  News24 | kykNET TV presenter, two others in court accused of swindling more than R30m from steelworks company
--  Europska unija postavila još jedan veliki zahtjev pred Apple
--  Gwiazda Ekstraklasy nie traci nadziei. Marzy o debiucie w reprezentacji Polski
--  Genç yetenek Enis Destan yıldızını parlatıyor
--  Cumhurbaşkanı Erdoğan: Yunanistan ile yeni bir dönem güçlenerek başlıyor
--  Mobilya imalathanesinde çıkan yangın hasara yol açtı
--  TikTok ekibi TBMM Dijital Mecralar Komisyonunda! Yayman: Muhakkak yaş filtresinin sıkı bir şekilde uygulanmasını istiyoruz
--  Abluka altındaki Gazze Şeridi'nin kuzeyindeki hastaneler hizmet dışı kaldı
--  Nicolas Pepe'nin dönüş tarihi belli oldu
--  Başkan Erdoğan'la görüşen Yunanistan Cumhurbaşkanı Sakelaropulu'dan Türkiye mesajı
--  İran ve Katar'dan Guterres'in Gazze için önerilerine destek
--  Dev derbinin hakemi belli oldu! Beşiktaş-Fenerbahçe maçını Atilla Karaoğlan yönetecek
--  VERBUND : und Masdar prüfen großangelegte Erzeugung von grünem Wasserstoff in Spanien.
--  Altın için kritik gün yarın! "Altın fiyatlarını kimse tutamaz"
--  Aileler Arti ve Yaş'ın evliliği için karar kıldı
--  “내부 추천 라디오 진행자 성향 운운하며 어렵다는 발언 확인돼”
--  언론노조 연합뉴스지부 "선장이 모든 문제 악화시키는 장본인"
--  Blick zurück nach vorn - Wolfgang Niedecken auf Zeitreise
--  പ്രഭാസ് കൽക്കി പ്രഭു, കമൽഹാസൻ കാളി എന്ന അസുരൻ, 600 കോടിയുടെ ‘കൽക്കി 2898 AD’ എപ്പോൾ റിലീസ് ചെയ്യും
--  Arkadaş Evinde Tüyler Ürperten İşkence İçin İstenen Cezalar Belli Oldu
--  Андижонда сифати кафолатланмаган ҳамда қалбаки дори воситалари савдосига чек қўйилди
--  Конституциявий-ҳуқуқий асослар соҳалар ривожига хизмат қилади
--  “Ўзкимёсаноат” АЖ тизимидаги учта корхона “Коррупцияга қарши курашиш менежмент тизими” халқаро аудитдан муваффақиятли ўтди
--  ЖССТ: Безгак касаллиги ўтган йили 600 мингдан зиёд кишининг ҳаётига зомин бўлди
--  Бакалавриат ва магистратура йўналишида АҚШда таҳсил олиш мумкин
--  Gani Gërmia shfaqet me dorë të lënduar në BBVK
--  “Ўзагросуғурта” АЖ да Конституция сабоқлари (+видео)
--  December Holidays in Pakistan Bring Double Celebration
--  Thyssenkrupp schwach - Bericht über Probleme bei Stahlgesprächen
--  Viral: కుక్క, పిల్లి వల్లే ఘోరం.. ఈ ఫొటోలోని తండ్రీకొడుకులిద్దరూ.. ఒకరి తర్వాత మరొకరు ఎలా చనిపోయారంటే..!
--  Milan Radoičić i još 11 osoba na Interpolovoj poternici zbog dodađaja u Banjskoj
--  Bukmeikeri prognozē, kura no trim dāmām uzvarēs šovā "X Faktors"
--  Nigerian Man Finally Graduates After Spending 12-Year In University (Photos)
--  Revolutionizing Home and Small Business Printing: Introducing the Brother Print & Cut Inkjet Printer
--  3e journée de la société sénégalaise de gastro entérologie et d'hépatologie : des échanges sur les urgences prévues du 7 au 9 décembre à Dakar
--  លោកជំទាវ ពេជ ចន្ទមុន្នី៖ ពិធីបុណ្យរំលឹកគុណអង្គរ រួមចំណែកដល់ការផ្សព្វផ្សាយពីសក្តានុពលវប្បធម៌ និងទេសចរណ៍កម្ពុជា
+-  GGD-rapport Ter Apel: volle afvalbakken, vieze wc's en matrassen
+-  Is het nieuwe Europese migratiepact de doorbraak? Dat valt tegen, zegt Europarlementariër Tineke Strik
+-  Buitenlandminister Blinken: VS steunen soevereiniteit Guyana
+-  'Heb ik het podium stiekem nodig voor bevestiging of erkenning?' Arjan Zantingh over leiderschap
+-  Facebookberichten voortaan standaard versleuteld
+-  Minister vindt loonkloof onacceptabel en wil snel met wet komen
+-  Braverman: migratie kan Britse Conservatieven de kop kosten
+-  I’m A Celeb fans ‘work out’ out the ‘real reason’ Nick Pickard was axed – insisting ‘it’s just not fair’
+-  'บิ๊กป๊อด'สั่งผู้ตรวจ ทส.เรียกถกแก้ปัญหาช้างป่าเขตฯสลักพระกาญจนบุรี
+-  แจ้งข้อหาค้ามนุษย์2ผัวเมียแม่เล้าบังคับเด็กหญิงวัย14ค้ากามฟันผู้ซื้อบริการอีก8ราย
