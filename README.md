@@ -1,51 +1,51 @@
 # Latest News
--  건설협회 대전시회, 적십자사에 성금 1000만원 쾌척
--  나부터 실천해요… 시민 개개인 기부 참여 절실
--  지상 60층 은행1구역 건축·경관심의 통과… 대전 마천루 시대 열리나
--  [국가무형문화재를 그리다] 면천두견주
--  건축심의 통과에 재개발 순풍… 대전 ‘원도심 활성화’ 기대
--  Third suspect arrested for three fatal shootings in Rotterdam; Second suspect released
--  Shocking rise in GBV deaths, cases
--  The Game Awards 2023: Hideo Kojima Spotted in LA Before The Event, and More
--  1800 yıllık oda mezarlar bulundu
--  Şenol Güneş sessizliğini bozdu!
--  Кметът на Русе обсъди важни проекти за града с мисията на Световната банка
--  MSB duyurdu: Teröre ağır darbe!
--  CEO de JPMorgan eliminaría las criptomonedas si formara parte del Gobierno
--  Na základňu v Kambodži prvýkrát dorazili čínske vojnové lode
--  Experti po 85 rokoch objavili stratené kamery slávnych prieskumníkov: Fascinujúce FOTO vtedajšieho sveta
--  Veľké porovnanie cien: Najlacnejšie vianočné trhy si užijete v Krakove
--  Lucia z Farmy priznala DROGY: Trvalo to ROKY… Začala už v 14-tich!
--  Pri Spišskej Belej zrazilo auto chodca: Nemal reflexné prvky
--  ด่วน! 21 สส.ดัน "เฉลิมชัย" นั่งหัวหน้าพรรคประชาธิปัตย์คนที่ 9
--  กบง.ตรึงราคาก๊าซหุงต้ม ที่ 423 บาทต่อถัง อีก 3 เดือน
--  Ministerstvo zdravotníctva pri kategorizácii nemocníc koná v zmysle zákona
--  Σταθακόπουλος: «Ο Ερντογάν έχει βάλει το προσωπείο της φιλίας - Αυτό τον εξυπηρετεί αυτή τη στιγμή»
--  Гитарист Пугачевой Левшин рассказал, чего не хотела афишировать певица
--  Μπάρμαν εξομολογούνται ποια ποτά αποφεύγουν να πίνουν
--  Kabir Singh, Animal And The Pandemic Of Alpha Masculinity
--  İrəvana səfər edən azərbaycanlı sirləri açdı: “Ermənilər orada məni…”
--  Srpski pasoš za genija
--  Radja Nainggolan Cedera, COO Bhayangkara FC Sumardji Pastikan Kondisinya Tidak Parah
--  Νεβάδα: Καθηγητής που δεν κατάφερε να βρει δουλειά στο Πανεπιστήμιο ο δράστης του τριπλού φονικού
--  Richter verhängt Gefängnisstrafe - Rentner (81) fährt trotz Sehbehinderung weiter Auto und verursacht schweren Unfall
--  Ölpreise stabilisieren sich vorerst nach deutlichen Verlusten
--  Campionati Europei di Atletica Leggera di Roma 2024: in vendita i biglietti Premium
--  فرضية لتفويج المعتمرين خلال الأمطار وكوارث السيول
--  Thorir: Systemet er ikke fair play
--  В Италии показали видео побега Усса
--  Ambasada Rusije u BiH - Pozivamo strane u BiH da pokažu mudrost, strpljenje, kompromisni pristup
--  В ближайшие дни на бывшем калужском заводе «Volvo» запустят производство грузовиков
--  Univerzitet u Zenici otvorio Kancelariju za savjetovanje u oblasti rodne ravnopravnosti
--  Busch: Kao država vjerske raznolikosti BiH mora regulisati, štititi i promovirati slobodu vjere
--  Alijev raspisuje vanredne izbore nakon pobjede u Karabahu
--  Stojanović: Otpad je neizbježan proizvod poslovanja i trebamo ga tretirati kao resurs
--  Russian Embassy in BiH: We invite parties in BiH to show wisdom, patience, and a compromise approach
--  Busch: As a state of religious diversity BiH must regulate, protect and promote freedom of religion
--  Komšić: Neka blagdan Hanuka bude nadahnuće za poruku zajedništva, uvažavanja i pravednosti
--  New K-Drama Queen of Divorce: Lee Ji-Ah, Kang Ki-Young’s First Look Revealed
--  الانضباط: تغريم المعز علي وبونجاح وإيقاف اومارو ولفت نظر السد
--  Komšić: May the holiday of Hanukkah be an inspiration for messages of unity, respect and justice
--  Los rebeldes hutíes de Yemen muestran el vídeo del secuestro de un barco israelí
--  BBC Breakfast’s Nina Warhurst mortified after being caught out for lunch in very unusual outfit
--  Песков: Путин на форуме "Россия зовет!" пообщается с наследным принцем Омана
+-  सुदूरपश्चिम महोत्सवको तयारी पूरा
+-  Lučka uprava Ploče i tvrtka Markoja dobile gotovo milijun eura iz europskih fondova za projekt 5G pametne luke
+-  Hrvatski Telekom i Crnogorski Telekom s Ericssonom Nikolom Teslom ugovorili suradnju u implementaciji Ericsson dual-mode 5G Core za 4G/5G jezgrenu mrežu
+-  Holzpreise steigen wieder – Waldbesitzer bleiben pessimistisch #holzpreise
+-  Mahfud Md Bilang Anak Muda yang Tidak Golput Matang dalam Berpikir dan Bersikap
+-  Seyşeller’de şiddetli patlama ve sel: OHAL ilan edildi
+-  Şenol Güneş aldığı teklifi açıkladı: Çalışmaktan gurur duyarım
+-  Eskişehir'de belediye ekipleri "çöp ev"den 45 ton atık çıkardı
+-  리디, 제3회 'K-스토리 공모전' 대상 '악의 고해소' 선정
+-  [인디이콘의 경제M] 21세기 대항해 시대 1편
+-  SKT, 2024년 정기 임원인사·조직개편 단행…﻿글로벌 AI 컴퍼니 도약 본격화(상보)
+-  [가봤다] 경기권 첫 애플스토어 '애플 하남'…'힙함' 대신 '따뜻함' 채웠다
+-  [같이사소] 크리스마스 선물부터 여행 계획까지...쿠팡-위메프 기획전으로 '준비 끝'
+-  SK(주) C&C, 디지털 신사업 키우고 글로벌 사업 확장 나선다
+-  SK스퀘어 법률 전문가 정재헌 사장, SKT CSR·PR 총괄 대외협력 맡는다
+-  SK하이닉스, HBM에 화력 집중…'AI 인프라' 조직 신설
+-  CJ올리브네트웍스 'SW창의캠프' 교육부 장관상 수상
+-  안랩, 임직원 기부 캠페인으로 모은 물품 2000여 점 굿윌스토어에 전달
+-  코웨이, ESG 활동 인정받았다…산업통상자원부 장관상 쾌거
+-  넥슨, 16일 상암에서 '서든어택' 축제 연다
+-  [테크M 리포트] 헥토파이낸셜, 해외송금·STO 앞세워 '제2 도약' 노린다
+-  [변화의 신호탄 TL] 탈 리니지-탈 확률형...엔씨소프트 야심작 '쓰론 앤 리버티(TL)' 정식 출시
+-  내년에도 멈추지 않는 유영상 SKT 대표…글로벌 AI 중심으로 조직 재정비(종합)
+-  [변화의 신호탄 TL] 오픈월드 정복 나선 엔씨소프트...'쓰론 앤 리버티(TL)'는 무엇이 다를까
+-  [글로벌] 메타-IBM 등 50개사 'AI 동맹' 결성...AI 오픈소스 위해 '맞손'
+-  [변화의 신호탄 TL] 엔씨소프트 멀티플랫폼 전환의 시작 '쓰론 앤 리버티(TL)'
+-  [글로벌] 브랜슨 "추가 투자 않겠다"...英 우주 관광기업 '버진 갤럭틱' 주가 급락
+-  '로스트아크' 론칭 5주년 기념, 역대 최대 페스타 열린다
+-  [글로벌] 인텔, 2조8000억원 배상 면했다...특허 침해 항소심서 승소
+-  VR게임 '크로스파이어: 시에라 스쿼드', 인디게임 플랫폼 스토브인디 통해 출시
+-  [카드뉴스] 데이터 플랫폼과 AI를 더한 '미래 건강 예측 솔루션' 공개
+-  '라그나로크 비긴즈', CBT 3번 거쳐 마침내 국내 출시
+-  중고나라 안전 결제 '중고나라 페이', 출시 2년 간 거래액 11배 늘었다
+-  엔씨소프트 신작 'TL', 돌비 애트모스 OST로 유저 귀 사로잡는다
+-  Дърво се свлече на крайбрежната алея във Варна
+-  코빗에 귀환한 '위믹스'...업비트·빗썸도 복귀할까
+-  Foire aux savoirs de Tenkodogo : Bilan et clôture de la mise en œuvre du programme de coopération bilatérale 2019-2023 de Enabel dans le Centre-est
+-  Curvy Botswana lady causes a commotion as she goes to the streets almost NAKED to celebrate culture – See trending PHOTOs.
+-  FIA replaces masculine language with gender-neutral terms in F2 and F3 rulebooks | Formula 2
+-  2,3 Millionen Beschäftigte arbeiten nur noch von zu Hause
+-  Real Madrid Beri Tenggat Kylian Mbappe hingga 15 Januari 2024
+-  الحرب على غزة: قصف مكثف للاحتلال واشتباكات في عدة محاور
+-  Quiniela HOY: RESULTADOS de Nacional y Provincia del jueves 7 de noviembre
+-  Lakota Schools weigh options as district continues growing and needing space
+-  România, printre țările care au înregistrat cea mai mare creștere economică anuală din UE în trimestrul 3
+-  V Žilinskom kraji majú zrušiť 11 staníc záchrannej zdravotnej služby, župa s tým nesúhlasí
+-  진주시 중앙동지역자율방재단 ‘한파대비 활동’ 실시
+-  밀양시새마을회 지도자대회…우수지도자 표창
+-  경남조달청, 레미콘 제조기업 동절기 수급상황 점검
+-  NH농협은행 경남본부, ‘사랑의 김장나눔’ 봉사
