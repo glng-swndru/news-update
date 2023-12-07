@@ -1,51 +1,51 @@
 # Latest News
--  Başakşehir'den ilginç 'maç saati tepkisi'
--  Белгија го забранува влезот на израелските доселеници на Западниот брег вклучени во насилството
--  Bahnstreik in Nordhessen läuft: NVV mit Details zum Notfallplan – was fährt, was steht still?
--  [담양군, ‘향촌변호사’ 위촉 … 대면 무료 법률상담 제공
--  [담양 특색 담은 고향사랑 답례품 눈길
--  [빛고을 광주 겨울밤, ‘빛’으로 물들다
--  [“올해 마지막 ‘남도달밤야시장’ 놀러오세요”
--  [“단순한 금융혜택 넘어 단계별 종합대책 강구해야”
--  [호남대 공자학원, 중문연맹 디지털교육 ‘골든 클래스’ 수상
--  Govt taking steps to bring improvement in gas, power sector: Ali
--  Standout Las Vegas Ad Creative Joins B&P as Executive Creative Director
--  Restructuring plan underway to privatize airline, sick units: Fawad
--  Jon Voight Signs With Gersh
--  مونديال الأندية من شواطئ ريو دي جانيرو إلى ساحل العروس
--  [오늘의 주요일정]경기북부(12월8일 금요일)
--  [오늘의 주요일정]부산(12월 8일 금요일)
--  [오늘의 주요일정]제주(12월8일 금요일)
--  경기남부 포근…하늘도 맑아
--  [오늘의 주요일정]울산(12월8일 금요일)
--  [오늘의 주요일정]인천·김포·부천(12월8일 금요일)
--  [오늘의 주요일정]금융·증권(12월8일 금요일)
--  본조비도 반했다…뮤지컬 '스쿨오브락' 아역배우는?
--  [오늘의 주요 일정]전북(12월8일 금요일)
--  [오늘의 주요 일정]경남(12월8일 금요일)
--  '주류 희생' 공관위에 넘긴 김기현에 당 내 '혁신 좌초' 책임론 제기
--  [오늘의 주요일정]경제(12월8일 금요일)
--  '돈 봉투' 의혹 정점 송영길, 오늘 출석…'묵비권' 시사
--  은퇴하면 월 적정 생활비 324만원인데…가구 54% "준비 부족"
--  [오늘의 주요일정]정치(12월8일 금요일)
--  [오늘의 주요일정]국회(12월8일 금요일)
--  GATE Energy, Woodside Trion FPU 시운전 수주
--  SC To Deliver Judgement On Pleas Challenging Abrogation Of Article 370 On Monday
--  Corteva Agriscience Launches SpadinTM For Aphid Control
--  Warum sich der Eurokurs zum US-Dollar etwas stärker zeigt
--  Rechtsstreit: Harry besorgt um Sicherheit der Kinder
--  ФФМ ќе воведе ВАР во македонскиот фудбал
--  Minério de ferro sobe no curto prazo com estímulos da China, mas sustentação de preços é incerta
--  بطولة ودية لأندية الطائرة الليبية قبل انطلاق الموسم الجديد
--  Filman la cinta 'Venganza Silenciosa' en México
--  Abrazan estrellas el bolero
--  Integrarán casillas nacidos en marzo y abril
--  Andrea Fay Friedman ist tot: "Law and Order"-Star mit nur 53 Jahren verstorben
--  Describieron el terror en la Universidad de Nevada tras tiroteo que dejó tres muertos
--  Desperation grows among Palestinians as Hamas, Israel battle
--  EE.UU. sanciona a dos individuos por hacer campañas de ciberespionaje para Rusia
--  Kodak Black Arrested For Cocaine Possession Weeks After Disturbing Interview
--  'They don't care, they will hurt you': Winter Haven gang member arrested for drive-by shooting
--  Perrie Edwards takes her son Axel, two, to see her Madame Tussauds waxwork for the first time... but the toddler seems less than convinced
--  Dutch chip supplier ASM International to invest $324 million in new Arizona HQ
--  Como fazer bolão da Mega da Virada 2023?
+-  Pse BDI nuk e do Spasovskin për president?
+-  4 أبراج تواجه صعوبات مالية في عام 2024.. هل أنت منهم؟
+-  أول تعليق من حماس على حصار الاحتلال منزل السنوار في خان يونس
+-  قبل الصمت الانتخابي.. مسيرة بالسيارات لدعم الرئيس السيسى في جنوب سيناء
+-  "أنت الحياة".. محافظ سوهاج يتفقد القافلة التنموية في قرية البلابيش- صور
+-  إشادة دولية.. ختام فعاليات المعرض الدولى الثالث للصناعات الدفاعية "إيديكس 2023"
+-  متخصصة في الشأن الإسرائيلي: الفترة المقبلة ستشهد اشتعالًا كبيرًا في المنطقة
+-  عقار جديد لعلاج سرطان المبيض.. أستاذ بـ"طب قصر العيني" يعلن التفاصيل
+-  "لا نفكر في كأس العالم".. الشناوي يتحدث عن مواجهة شباب بلوزداد الجزائري
+-  على الطريقة البدوية.. مهرجان سباق الهجن لدعم الرئيس السيسي في جنوب سيناء - صور
+-  اللاعبون بشر.. مارسيل كولر يكشف الفرق بين الموسم الماضي والحاضر
+-  11 عامًا من الصراع.. قضايا الدولة تحصل على حُكم للدولة بشأن استغلال "منجم السكري"
+-  عودة موديست.. قائمة الأهلي لمواجهة شباب بلوزداد الجزائري
+-  بعد إقالته من تدريب قطر. 3 أسباب تمنع كيروش من العودة إلى مصر
+-  عشرات اليمنيين يواجهون مصيرًا مجهولاً في غزة
+-  Amnesty: Israeli attack that killed Reuters journalist, wounded others must be investigated as a war crime
+-  Inside Phillip Schofield’s past seven months out of the public eye from reunion with co-star to mother’s hospital vigil
+-  Ytterligare avhopp från SBB:s styrelse
+-  Samantha Armytage stuns with makeup-free holiday selfie
+-  Trump recurre la decisión de la jueza que rechazó que tenga inmunidad presidencial
+-  Stellantis Will Build Battery Swapping Stations For A Five-Minute Full Charge
+-  US expresses support for Guyana’s sovereignty amid border tensions with Venezuela
+-  Montadoras preveem crescimento de 4,7% na produção de veículos em 2024, e de 7% nas vendas
+-  Israel gegen den Rest der Welt?
+-  Διαιτησία: Στο ΠΑΟΚ – Βόλος ακυρώνεται γκολ για επιθετικό φάουλ που έπρεπε αρχικά να μετρήσει, αλλά μετά να ακυρωθεί! (vid)
+-  Biden Accuses GOP of 'Political Blackmail' to Secure US Border (Roseanne Barr & Sen. Mike Lee FTW)
+-  There's No Way Flaxseed Masks Are Better Than Botox, Right?
+-  Acidente en la Jiménez-Torreón deja tráiler calcinado
+-  Impacta motociclista vs malla de contención; resulta con lesiones
+-  'Ella baila sola' de Peso Pluma, la mejor canción de 2023, según Rolling Stone
+-  Κατερίνα Στικούδη: Χορεύει στον 7ο μήνα της εγκυμοσύνης & δέχεται απαράδεκτα τοξικά σχόλια (εικόνες)
+-  Un champion du monde lance un appel du pied à l’OL en direct
+-  To so najboljše letalske družbe na svetu za leto 2023
+-  PENTAGON KONAČNO PRIZNAO Poznato gde lete američki dronovi
+-  Саммит ЕС-Китай уперся в Россию и Украину
+-  영화 '시민덕희' 주역들, 화기애애한 분위기
+-  Back pain? Bum knee? Be prepared to wait for a physical therapist
+-  Back pain? Bum knee? Be prepared to wait for a physical therapist
+-  Cerca de 900 privados de libertad reciben asistencia psicológica
+-  Jey Mammon: "Voy a Córdoba a hacer mis personajes y a contar cómo viví estos meses de cancelación"
+-  McDonald’s startuje z siecią spinoff. CosMc’s otworzy się już wkrótce
+-  Hund in NRW: Tier wurde tagelang eingesperrt – Halter bekommt fette Strafe
+-  الحالة الجوية.. استنفار على نطاق واسع لـ6 أيام
+-  Virginia desmente boato de envolvimento com Neymar
+-  ODBIJAO SAM DA ODRASTEM: Miodrag Dragičević je pred velikim izazovom, osvrnuo se na teške momente, a ovoga se najviše PLAŠIO
+-  Multi-millionaire Tommy Mallett admits to controversial parenting style revealing he’s ‘spoilt son Brody so badly’
+-  Terrorverfahren gegen Angreifer von Paris eingeleitet – das ist über ihn bekannt
+-  'Peach Fuzz' é a cor do ano de 2024 escolhida pela Pantone
+-  Lawsuit accuses NCAA of antitrust violation in college athlete transfer rule
+-  Recuerdan sobrevivientes ataque a Pearl Harbor en 82 aniversario
