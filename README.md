@@ -1,51 +1,51 @@
 # Latest News
--  Сурхондарёда ҳам метан газ қуйиш шохобчалари иш вақтига чеклов киритилди.
--  Шавкат Мирзиёев: Конституцияни тўғридан тўғри қўллаш амалиётига ўтишимиз зарур.
--  Қозоғистонда Тўқаев зарбасидан сўнг урилган гол видеоси монтаж қилинди .
--  Weihnachtsmarkt in Norderstedt 2023: Öffnungszeiten, Highlights, Parken
--  AWESOME FUN FIND & LAST-MINUTE HOLIDAY GIFT/STOCKING-STUFFER FOR KIDS: HEART-WARMING CHILDREN'S BOOK ABOUT KINDNESS, ANIMAL RESCUE & LOVE
--  Dánsky parlament prijal nový zákon: Zakazuje pálenie Koránu
--  '헌신-혹사의 아이콘' 브루노 페르난데스, 2023년 유럽 출신 중 출전 시간 1위 달성
--  Bir fenomen daha gözaltına alındı! Bu sefer 'müstehcenlik' nedeniyle...
--  Forbes назвал главу Еврокомиссии самой влиятельной женщиной
--  Detienen en Madrid a un profesor de árabe que captaba a menores para Daesh
--  Paddy McGuinness says his 'money has run out' as he discusses his return to touring for first time in six years to 'build it back up' after Top Gear axe
--  Экспортеры в октябре продали свыше 90% валютной выручки
--  Vigilance raid unearths widespread irregularities in vet hospitals
--  I'm A Celebrity's Nella Rose to return to smash hit YouTube series Tapped Out for series three in early 2024
--  Чалов рассказал о предложении Головина поиграть вместе в «Монако»
--  البرلمان الدنماركي يقرّ قانونًا يحظر إحراق المصحف
--  وصول نمر جديد إلى مركز إكثار النمر العربي في الطائف
--  عاجل.. الدفاع: استشهاد طاقم طائرة مقاتلة سقطت أثناء مهمة تدريبية بالمنطقة الشرقية
--  تحذيرات واسعة من أغرب عملية احتيال في الكويت
--  أمانة جدة: إغلاق جزئي مؤقت لطريق المدينة المنورة غداً
--  EU-China-Gipfel: offene Diskussionen, dürftige Resultate
--  EU-China-Gipfel: offene Diskussionen, dürftige Resultate
--  سكان «النيل الأبيض» يخشون امتداد القتال إلى ولايتهم
--  Ia Wadendal: Leasa elbil för en tusenlapp i månaden – det vore något
--  BRI Life Raih Penghargaan Best Digital Finance 2023
--  Sverige till VM-semifinal i innebandy – efter ny kross
--  Masdar Advances 10GW Africa Growth Plan to Unlock Energy Transition in Six Sub-Saharan Nations
--  Balacera en la colonia Doctores de la CDMX deja un muerto y tres heridos
--  تن هاغ: يونايتد أرسل ما يريده لجماهيره
--  Keine strafrechtlichen Folgen nach schwerem Schlittelunfall
--  Consuelo Duval niega uso de IA en robo de su casa: ‘Ninguna novela ha sido más difícil que esta’
--  Nya ägare till 80-talshus i Bergeforsen – 1 800 000 kronor blev priset
--  Oriental : Plus de 400 millions de DH pour le développement humain en 2023
--  Science expo: A blend of imagination and scientific bent of mind
--  'Lady in red' seen around the world in iconic image from Nova festival terror attack reveals astonishing story of her survival, seeing her friends killed and how her daughter 'foresaw danger'... as she dons famous shawl again for the first time
--  'Lady in red' seen around the world in iconic image from Nova festival terror attack reveals astonishing story of her survival, seeing her friends killed and how her daughter 'foresaw danger'... as she dons famous shawl again for the first time
--  Louis Tomlinson's sisters Lottie, Phoebe and Daisy remember their late mother Johannah with heartbreaking tributes... seven years after her death from leukaemia aged 43
--  Forte secousse sismique d’une magnitude de 4,6 sur l’échelle de Richter à Marrakech et ses environs !
--  Институт Pantone назвал персиковый главным цветом 2024 года
--  Robbie Gould announces his retirement
--  Autistic six-year-old Zayn Rayyan laid to rest
--  British poet and political activist Benjamin Zephaniah dies at age 65
--  House-hunters left baffled by “crack den” up for sale for whopping £200k
--  الادعاء الإيطالي يطالب بوقف بوغبا 4 أعوام
--  Inflacja w Chile zaskoczyła “skalą” wzrostu
--  Blueshift Launches Free CDP Starter For Cross-Channel Engagement
--  "فايننشال تايمز": الدمار شمال غزة كدمار مدن ألمانيا خلال الحرب العالمية الثانية
--  Fisheries university gets new VC
--  السعودية ترفع مستهدف مشاركة المرأة في سوق العمل إلى 40 % بحلول 2030
--  Heartwarming moment Prince William surprises woman on the street during charity walk in memory of her daughter, 16, who took her own life
+-  Researchers show that hydrogen sulfide regulates the neural circuit for respiration
+-  Tiny, focused shocks can help patients overcome heart arrhythmia
+-  How to earn & use Clan Favor in Avatar: Frontiers of Pandora
+-  Fulgor Basket: sesta vittoria consecutiva!
+-  Com gramados do Brinco e do CT em reforma, Guarani avalia cidades para pré-temporada
+-  पानी के स्रोतों और इस्तेमाल के नियमन और निगरानी पर ढीला ढाला रवैया, 15 राज्यों ने केवल अपनाया केंद्र का मॉडल भूजल कानून...
+-  Иван Таков: А след някой и друг ден, като навали 10 см сняг в София, пак ще има хаос и ще се чудят какво се е случило
+-  [속보] 수 천만 원대 뇌물 수수한 공무원 이번에는 상습도박까지 드러나 lsquo;또 다른 충격rsquo;
+-  See how a local mechanic modified a Probox and branded it Tamubug (PHOTOs).
+-  dss+ Names Alistair Cox as New Board Chair
+-  Funny Phrase Of The Day
+-  Researchers develop a promising gene-editing strategy for spinal muscular atrophy
+-  Presidentti Niinistöltä tunteikas päivitys: ”Olemme kiitollisia”
+-  Cirkus, kabaret, dekadence i nahota. S Cirkem La Putyka si odpočinete v euforii
+-  طيران العدو الإسرائيلي ينفذ غارتين على محيط بلدة عيتا الشعب
+-  Vahdettin'i Savunan İlahiyatçının Arşivinden FETÖ Çıktı!
+-  Zločesti dečko tenisa otišao korak dalje, otvorio profil na 18+ stranici: 'Postalo je još luđe, pridružite mi se'
+-  Euron försvagades marginellt mot dollarn
+-  Tiroteo Universidad Nevada: Profesor mató a tres personas
+-  Минцифры представит стратегию развития "Почты России" в I квартале
+-  In the Wake of a Sex Scandal, a Moms for Liberty Co-Founder’s Career Is Crumbling
+-  Bono Arrendamiento: aprueban 134 nuevos subsidios para familias en Piura
+-  Elite colleges scramble to backtrack after evading questions about antisemitism
+-  "Союзмультфильм" выпустит куклы с самыми популярными принцессами киностудии
+-  Нетаниягу на севере: "Если "Хизбалла" развяжет войну – Бейрут превратится в Газу"
+-  The Most Visible Man-Made Structure From Space Is In Spain
+-  Usuarios en redes sociales reportan temblor en varios estados de Venezuela este #7Dic
+-  Bakan Göktaş: Aile yapısını daha da güçlendirmek hepimizin ortak amacı
+-  ManU-Dortmund arasında yılın takası!
+-  Güzergah 1500 metre kısalacak! Yağdonduran Tüneli hizmete açıldı
+-  Belçika'dan Gazze'ye insani yardım
+-  Gaziantep FK, tur biletini uzatmalarda aldı
+-  Google Playstore Delete 17 apps : गूगल प्लेस्टोरने हटवले 'हे' 17 Apps; तुम्हीही 'या' Apps वापरत करत होता? आताच चेक करा!
+-  Kassam Tugayları 2 İsrail askerini hedef aldıklarını açıladı
+-  Guía práctica para hacer un arrollado de panceta
+-  ¿Cómo funcionan y cuánto cuestan las mantas térmicas usadas por el chavismo en el glaciar Humboldt?
+-  XV de France : Retour surprise confirmé pour Galthié ?
+-  Митрополит Тихон намерен написать книгу о святителе Луке Крымском и Сталине
+-  Tingle Creek at Sandown: Get £40 in free bets to spend on horse racing with Betfair
+-  Fuengirola: Hjallis Harkimon Jasmine-rakkaan suru: Aviomies kuoli viime kesänä
+-  АИДТ считает необходимым принятие закона о развитии промышленности товаров для детей
+-  House GOP releases Biden impeachment inquiry resolution ahead of planned vote
+-  В РКН заявили, что обезличенные данные могут быть восстановлены
+-  Azalina: Opposition MPs’ support for PM does not violate Anti-Party Hopping Act
+-  США не считают, что принятие в СБ ООН новых документов поможет ситуации в Газе
+-  Премьер Украины призвал граждан экономить электричество из-за дефицита мощностей
+-  Cameroun :: Emmanuel Wafo,Une Certaine Idée Du Patronat :: Cameroon
+-  지키려는 AZ, 뺏으려는 암젠·삼바에피스 ... ‘솔리리스’ 시장 ‘대격돌’
+-  China unveils design for nuclear-powered container ship
+-  Avatar: Frontiers of Pandora mission list: how many campaign missions are there?
