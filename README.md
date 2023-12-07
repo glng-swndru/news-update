@@ -1,51 +1,11 @@
 # Latest News
--  İşte en çok havaalanı olan 20 ülke, ABD ilk sırada, Türkiye 20. Sırada bile değil
--  Nurse speaks out about violent workplace incident and staff injuries
--  Nurse speaks out about violent workplace incident and staff injuries
--  Primera dama de San Francisco: “Si todos compartimos el mismo municipio, ¿por qué no ayudarnos entre nosotros?”
--  IonOpticks and Newomics broaden chromatography accessibility for Agilent mass specs, with Shimadzu pending
--  Anak Terpapar Asap Rokok Berisiko Kena Mycoplasma Pneumoniae
--  Cur i bhfeidhm Acht na dTeangacha Oifigiúla 2003
--  Gobierno compensa a empresas eléctricas que dieron descuentos en facturas
--  Payasos conmemoran su día nacional
--  ¡La buena acción del día! Hombre se encuentra 300 dólares en un cajero y los devuelve
--  Oswald’s eyes on the prize
--  Người gầy vẫn mỡ máu cao: Bác sĩ chỉ ra 4 ‘thủ phạm’, trong đó 3 điều cuối có thể thay đổi được
--  Andrew Scott reveals how acting gave him the confidence to come out
--  몬스터 에너지, 옵티멈존PC카페와 손잡고 마케팅 활동 추진
--  [뉴욕증시] 美 민간 고용 둔화에 3대 지수 모두 하락 마감
--  동원 금천미트 '대통령상 한우' 낙찰…올해 9058만원 '최고가'
--  이마트, K푸드 쥐고 베트남 공략…3호점 오픈
--  Alberto Fujimori salió de prisión tras recibir indulto del Tribunal Constitucional de Perú (Video)
--  Los tres colegios judíos de Colombia donde estudiaron los Gilinski, el chef Rausch y Simón Brand
--  TVET berkualiti lahir tenaga kerja berkemahiran tinggi
--  Israelske styrker slår fire palæstinensere ihjel på Vestbredden
--  ‘It’s harder to hit a moving target’: The remarkable evolution of Taylor Swift laid bare in Time’s Person of the Year Interview
--  Israelske styrker slår fire palæstinensere ihjel på Vestbredden
--  Meta’s AI Image Generator Trained on 1.1 Billion Instagram and Facebook Photos
--  Bersama lahirkan belia berwawasan
--  Resguardan agentes policiacos y Ejército el Cereso 3
--  Sam Curran and Jos Buttler return to form as England level series in Antigua
--  Sam Curran and Jos Buttler return to form as England level series in Antigua
--  Alberto Fujimori dejó el penal de Barbadillo tras fallo del TC: mira AQUÍ imágenes de su salida
--  Actor ALAN CUMMING reveals he was ‘groomed’ and almost SEXUALLY assaulted by Chimpanzee co-star because they’d become too ‘connected’ while filming hit 1997 movie Buddy
--  2 cầu thủ nào được chấm điểm cao nhất trận M.U vs Chelsea 2-1?
--  'Confessou um crime de corrupção. Pois bem, corrupto é', diz deputado Renato Freitas sobre presidente da Assembleia Legislativa do Paraná
--  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
--  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
--  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
--  Aston Villan kotivoittojen sarja sai jatkoa, kun birminghamilaiset kaatoivat hallitsevan mestarin Manchester Cityn
--  Tiến độ bổ nhiệm, xếp lương mới cho giáo viên vì sao chậm?
--  Malay: We speak it, because it is ours
--  AI 也懂設計新藥，阿斯特捷利康簽約 2.47 億美元與 Absci 合作研發抗癌藥物
--  強化與日本合作，輝達黃仁勳考慮在日本設立 AI 研發基地
--  Major League Rugby’s New York Ironworkers join Toronto Arrows in folding
--  Tiroteo en universidad de Nevada deja ‘varias víctimas’, dicen autoridades
--  ヤンキースとメッツ 山本由伸投手の獲得に向け動き加速
--  DIDDY is sued by a fourth woman who claims she was violently gang raped by the hip-hop mogul and two friends at his New York studio when she was 17 (PHOTOs)
--  Rombongan Kedutaan Thai lawat CDC
--  Where GOP candidates stand on conflicts in Israel, Ukraine, China
--  33 Gifts That Are Perfect For the 40-Something Woman in Your Life
--  Where GOP candidates stand on conflicts in Israel, Ukraine, China
--  Permintaan Global Turun, PMI Manufaktur ikut Merosot
--  تفوق طائرتنا الشاطئية في الجولة العالمية
+-  ‘อุ๊งอิ๊ง’ ตอบชัดปมนิรโทษกรรม ลั่นเราต้องหาจุดหยุดความขัดแย้งของทุกคน!
+-  Israël noemt VN-chef 'een bedreiging voor de wereldvrede'
+-  Brand in kerk in Rotterdam, deel van dak ingestort
+-  Verdachte van doden toerist in Parijs aangeklaagd voor terrorisme
+-  ABN AMRO ziet huurwoningen verder in waarde dalen in 2024
+-  장민호, '뉴욕→LA' 첫 북미 투어 개최…감동 예고
+-  KTV 대한뉴스 7 (131회)
+-  ‘손흥민이 토트넘이 아닌 아스널이 어울린다?’ 팬들 쓰러지는 소리, “완벽한 공격수 될 것”
+-  롯데건설, 임직원 사내벤처 육성 나선다
+-  ‘오현규 3경기 만에 선발 출격→멀티골로 존재감 과시’ 셀틱은 하이버니언 4-1 박살!
