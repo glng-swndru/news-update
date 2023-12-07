@@ -1,51 +1,11 @@
 # Latest News
--  Vedang Raina to Aditi Saigal, meet the other talented members of Archie`s gang!
--  Telangana: 12 ministers take oath along with new CM Revanth Reddy
--  TV actor Bhupinder Singh arrested for allegedly firing at his neighbours
--  Peaky Blinders actor and poet Benjamin Zephaniah passes away at 65
--  Sferopulos: Baskonija je u seriji pobeda, nemamo mnogo vremena za oporavak
--  Telekom Srbija: Maksimalno transparentno
--  Gobierno nacional da paso importante para garantizar recursos a familias venezolanas
--  WATCH: Animal Actress Tripti Dimri Picks Virat Kohli As Her 'Favourite Cricketer in the World'
--  창원LG 마레이, 한 라운드 150점-150리바운드-50도움 새역사
--  Rajinikanth's Poes Garden Residence In Chennai Affected By Cyclone Michaung, Fan Shares Chilling Footage
--  Irene Paredes vuelve lesionada de la selección pese al aviso del Barça a la Federación
--  Surgical Navigation Systems Market Key Manufacturers Development Trends and Competitive Analysis 2030
--  المقاومة نعت شهيدا ثانيا اليوم...!
--  6 حقائق حول اعتناء المرأة بصحة الصدر
--  Car Camera Cleaning Systems Market Report 2023 Business Scenario, Growth and Opportunities and Forecast by 2032
--  Einnahmen erhöhen, Ausgaben senken
--  Telefonische Krankschreibung: Arbeitgeber gegen Gesundheitsministerin
--  Statt Geschenken: Spenden an die Tafel
--  Räuber überfallen Mann in Klein-Auheimer Tiefgarage
--  Zvizdić: Neka svjetlost Menore donese mir, dobro i radost u vaše domove
--  Redukovanje broja predmeta na eksternim maturama u TK
--  Priopćenje za javnost ŽO HDZ-a BiH Središnja Bosna
--  Delić donio Pravilnik za jačanje kvaliteta usluga u pet ustanova socijalnog zbrinjavanja u FBiH
--  Sarajevska berza - Pad vrijednosti indeksa BIFX
--  Journalists should be legally protected and treated as persons engaged in work of public interest
--  Direktor FBI iduće sedmice u posjeti Indiji
--  Zeljković: Savez će podržati izgradnju južne tribine stadiona Grbavica
--  Vlada TK - Nastavljen proces ulaganja u revitalizaciju UKC Tuzla
--  Mostar: Sastanak Interresornog stručnog tima za prevenciju i sprečavanje nasilja u školama
--  Najave događaja za 08.12. 2023. godine (petak)
--  Izrael zabranio povratak u školu oslobođenom 14-godišnjem Palestincu
--  U Sportsko-rekreacionom centru 'Gaz' u Hrenovici otvoreno odbojkaško igralište
--  Hrvatska: Završili prosvjedi svinjogojaca, raspušteni svi prosvjedni punktovi
--  Talijanska opera uvrštena na popis kulturne baštine UNESCO-a
--  Održan sastanak Pododbora za pravdu, slobodu i sigurnost između EU i BiH (VIDEO)
--  Milking Robots Market Size, Predicting Revenue impact Opportunities | Growing at a CAGR of 15.3%
--  Asiantuntijat: Näin Suomelle käy, kun talous hiipuu
--  Οι επτά λόγοι που πρέπει να κοιμάσαι στη δουλειά
--  Huslistka Barbora Botošová krstila v Bratislave svoj druhý album a bolo to Roshambo
--  Ľudí vydesilo žriebä, ktoré sa narodilo so zvláštnou deformáciou: Pozrite, čo má v strede čela!
--  Opevnené mesto v púšti: Pakistanský Derawar odolal desiatkam útokov
--  Anita Soul miluje Vianoce: Do videoklipu Vianočný zázrak si pozvala rodinu a blízkych priateľov
--  Erika Rein a Isama Zing ukázali inú tvár slovenského popu. Pozrite si videoklip hihi.
--  DZ potrdil Jožeta Novaka ter Franca Propsa za ministra
--  News24 | Zimbabwe says it just made a significant gas discovery – but not everyone is gassed up about it
--  Natale, regali comprati online? Occhio alle truffe sulle spedizioni
--  Alpha-Methylstyrene Market worth $702.46 million by 2030, growing at a CAGR of 4.66% - Exclusive Report by 360iResearch
--  An app for electronic registration of political entities via 'e-Elections' portal presented today
--  Medienhaus Main-Echo lädt zum Weihnachtssingen
--  Sakız Adası nerede, nasıl gidilir, kapıda vize var mı? Sakız Adası’nın gezilecek yerleri neler? İşte özellikleri, konaklama, yemekleri, nüfusu…
+-  نائب محافظ بورسعيد يتبرع بالدم لصالح أهل غزة- صور
+-  بعد وفاته.. ما مصير مقعد النائب خليفة رضوان داخل البرلمان؟
+-  الصحة في غزة: ارتفاع عدد الشهداء إلى 17177شخصًا
+-  الانتخابات الرئاسية.. محافظ أسوان يتأكد من جاهزية اللجان
+-  معركة الذهب.. جثة ومصابان فى مشاجرة بالأسلحة النارية بأسوان
+-  الاحتلال يعلن مقتل إسرائيلي جراء قصف من جنوب لبنان
+-  الصحة بغزة: نسبة الإشغال في مستشفيات القطاع بلغت 206%
+-  بحضور مليون و300 ألف مواطن.. مراكز الشباب تنظم 410 فعاليات للمشاركة في الانتخابات الرئاسية- صور
+-  شهود عيان: الاحتلال يحاصر 7 آلاف فلسطيني داخل مدرسة ببيت لاهيا
+-  مدرب الزمالك يعود لقيادة المران بعد الحصول على الرخصة التدريبية
