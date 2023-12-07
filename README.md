@@ -1,51 +1,51 @@
 # Latest News
--  Kickoff | Bafana complaints heard, CAF to take action in Rwanda
--  Kickoff | Sundowns already 'smelling' another league title? Rulani responds
--  Facebook-Instagram પર નહી મળે આ ફિચર, કંપનીએ બંધ કરવાની કરી જાહેરાત
--  চীনের ঋণমান আভাস কমাল মুডিস, ঋণ–সংকটের প্রভাব
--  New Officers in Tealngana: కొత్త ప్రభుత్వంలో ఇంటెలిజెన్స్ చీఫ్ గా బి.శివధర్ రెడ్డి - సీఎం ప్రిన్సిపల్ సెక్రటరిగా శేషాద్రి
--  আইসিসির মাসসেরার মনোনয়নে বাংলাদেশের নাহিদা ও ফারজানা
--  Kerstshow aan boord
--  3D Snow Depth Measurement and Snow Management Market Size in 2023 To 2029 | Hexagon AB, Leica, Autodesk, Spheron-VR AG, 3D Systems Corporation, Perceptron, Creaform, RIEGL Laser Measurement Systems GmbH, Maptek
--  무음으로 장애인 관련 보도 영상을 봤더니 이런 문제 나왔다
--  [영상] 야당 의원이 마음 와닿았던 대법원장 후보자의 청문회 서면 답변
--  ‘CJ ENM 업무방해’ 혐의 안형준 MBC 사장 불기소
--  Tea Market Trends: Brewing Success in a Steeped Industry 2029
--  GH, 광교 기회캠퍼스 건립사업 설계공모 추진
--  경기도, 똑버스 확대·대곡~소사선 개통 등 ‘1시간 출퇴근’ 정책 달성
--  유진선 용인시의원 2023 대한민국 공공성실천 대상 의정대상
--  양평군 새마을회지도자 올 마무리 대회…청운면새마을회, 읍면평가 대상
--  의정부시, 재정위기 극복 추진과제 총 54건 ‘재정운용 종합대책’에 반영키로
--  ‘꽃의 전설-빛으로 꽃피다’ 8~9일 수원시 정조테마공연장서 선봬
--  인천시, 아동 중심 마이코플라스마 페렴균 감염증 급증에 개인 위생 수칙 준수 강조
--  제22대 국회의원선거의 지역구 예비후보자 등록 오는 12일부터 시작
--  인천시 남동구의회 ‘청소년 통행금지구역·통행제한구역 지정 및 운영에 관한 조례’ 제정
--  인천시 동구, 2년 연속 교통안전지수 전국 1위
--  인천시 강화군, 겨울철 농업재해 선제 대응 나서
--  인천시 연수구보건소, 한파 대비 취약계층 방문건강관리 활동 실시
--  인천시 남동구, 행안부 공공기관 구조혁신 평가 ‘우수지자체’ 선정
--  인천시 동구, 내년 3천258억 원 예산안 편성
--  인천시 계양구, 공공폐수처리시설 운영관리 실태 평가 2년 연속 ‘우수 관리기관’ 선정
--  인천시 상수도, 화학사고 대응 능력 강화에 필요한 합동훈련 진행
--  인천시, 아동학대 예방교육 강사 역량 강화해 시민의식 개선
--  [기호일보 만평] 알현
--  ঢাকা বিশ্ববিদ্যালয়ের ভর্তি পরীক্ষার আবেদন ফি বাড়ছেই, যে ব্যাখ্যা কর্তৃপক্ষের
--  Passwordless Authentication Market Paves the Way for Secure and Frictionless Access, Projected to Surpass USD 456.79 billion by 2030 with a CAGR of 29.1%
--  Sjellin lumturi në jetën e të gjithëve: Katër shenja të horoskopit e kanë këtë dhunti
--  पूरे देश में फेमस है भिंड के पेड़े, शुद्ध घी और मावे से होते है तैयार
--  Miratohet në pak minuta “Buxheti 2024”, mbyllet seanca mes tymueseve dhe shpërthimeve
--  Con rể Phú Quang được phong NSND: Gia thế "khủng", là Phó giám đốc trẻ nhất lịch sử Học viện Âm nhạc Quốc gia
--  Bank Rosji oczekuje niższych zysków rosyjskich banków w 2024 roku
--  TSUE wypowiedział się w sprawie przedawnienia i odsetek
--  Space Planning Software Market: Is The Potential Turnaround of the Decade Coming| Accuruent, ONEDOOR, JDA Software Group
--  Renault chce obniżyć koszt produkcji aut elektrycznych o 50 proc. do 2027 roku
--  Kuss-Skandal: Neue Vorwürfe gegen Luis Rubiales
--  Frauen-WM 2027: DFB setzt bei Bewerbung auf wirtschaftliche Garantien
--  Frauen-WM 2027: DFB setzt bei Bewerbung auf wirtschaftliche Garantien
--  Hybrid Dual-Clutch Transmission Market 2023 | Futuristic Technology- Magna International, ZF, Nissan, Dana Incorporated, Bosch Mobility, Volkswagen, Punch Powertrain
--  £11,300 warning issued to millions of UK households with a mortgage
--  Gujarat News : ગુજરાતમાં વિદ્યાર્થીઓ ભણતર માટે કરી રહ્યા છે મોતની સવારી
--  사단법인 한기범희망나눔, 6일 '후원의 밤' 나눔의 행사 개최
--  '황재균♥' 지연, 깜짝 이벤트에 '눈물 글썽'…"나 울어" [마데핫리뷰]
--  "이강인 포함 PSG 젊은 친구들, 창의성 부족해!"…PSG의 자살골, '창의성 대장 베라티를 왜 쫓아낸 거야?'
--  "최성국 2세 출산 촬영, 내 아이보다 공들여 아내에 미안"…'조선의 사랑꾼' CP 고백 [일문일답]
+-  '리버풀 초비상' 반 다이크 파트너, 십자인대 파열 부상으로 시즌 아웃 유력
+-  [MOM대로해] ‘손흥민vs보웬 득점왕 경쟁’ 맨시티 고꾸라졌다! ‘토트넘 상위권 도약 기회’
+-  स्वास्थ्यमन्त्री बस्नेतद्वारा ‘पोइजन सूचना केन्द्र’ को उद्घाटन
+-  गोली लागेर प्वालैप्वाल भएको पोल बेनी ल्याइँदै
+-  एनसेलको शेयर खरिदबिक्री प्रकरणको अनुसन्धान गर्नैपर्छ : सभामुख
+-  नयाँ डिजाइनपछि ग्वार्को फ्लाइओभरको काम द्रुत गतिमा
+-  गोरखापत्रकर्मी शिवा तामाङ सम्मानित
+-  'เจนี่'สาดความแซ่บ นุ่งเดรสแดงอวดความเซ็กซี่
+-  بھارت،26 سالہ ڈاکٹر شاہانہ نے جہیز کے تقاضے پر اپنی زندگی کا خاتمہ کر لیا
+-  Warnstreiks der GDL: Keine weitere Bahnstreiks über die Feiertage
+-  Stórleikarinn óþekkjanlegur í sínu nýjasta hlutverki
+-  Guide: What Time Is The Game Awards 2023?
+-  Xi Jinping i-a primit în vizită pe șefii UE cu un avertisment și un duș rece
+-  港股｜恒指低位反覆 郭Sir見喘定苗頭 但要企上呢個位先確認
+-  Salarisverschil tussen mannen en vrouwen daalt verder, maar kloof blijft
+-  Empty Birmingham New Street shop given fresh hope as big chain declares its plans
+-  Action plan to tackle smoking levels in town
+-  Budget de l’ISIE : 192 millions de dinars pour les élections de 2024, mais à quoi servent-ils ?
+-  Словения купува немски системи за противовъздушна отбрана
+-  UŽIVO Plenković: Imamo dogovor za Dinamov stadion, Crkva će dobiti 10 lokacija
+-  신한은행, LG CNS와 글로벌 금융 디지털·IT 사업 업무 협약
+-  이찬원, 오늘(7일) 콘서트 라이브 앨범 발매…'가는 세월' 등 5곡 수록
+-  Шахматистките спечели наградата за отбор на годината
+-  I fjor styrtet flytypen i Beiarn - nå setter USA maskinen på bakken
+-  Главком ВМФ РФ заявил о возросших угрозах в Арктике из-за расширения НАТО
+-  Til Schweiger über Vorwürfe zu Setbedinungen: "Ich bin mit mir im Reinen"
+-  Profil entrepreneurial du Maroc : Ce que révèle l'enquête
+-  Plenković ima dobre vijesti: Otkrio novosti o prosvjedima seljaka i stadionu na Maksimiru
+-  Message Royal à l'occasion du 75è anniversaire de la Déclaration universelle des droits de l’Homme
+-  परिनिर्वाण दिवस पर हुई प्रभारी डीएम की अध्यक्षता में हुई पुष्पांजलि सभा
+-  A avut loc lansarea WiNet@UNI – un pod digital transfrontalier între Universitățile Tehnice din Iași și Republica Moldova
+-  Ситуация на рынке труда усложняется: какие сектора устойчивы к кризису?
+-  Leggjast al­farið gegn frum­varpi um for­gangs­orku
+-  Пиян рецидивист налетя на шофьор на автобус в Пловидв, арестуваха го
+-  Σοκ στις ΗΠΑ: 12χρονη πυροβόλησε τον αδελφό της κατά λάθος στο κεφάλι σε κυνήγι και τον σκότωσε
+-  Konyalı John Wick Konya'yı tanıttı. Görüntüleri sosyal medyada viral oldu
+-  ৩৩৮ থানার ওসিকে বদলির প্রস্তাবে অনুমোদন দিল ইসি
+-  Pétrole : Prix du baril au 06 Décembre 2023
+-  Украина из-за дефицита в энергосистеме запросила аварийную помощь у трех стран
+-  Khu thương mại tự do sẽ kết nối kinh tế Hải Phòng với chuỗi cung ứng toàn cầu
+-  ĐURĐINA JAUKOVIĆ: Itanin gest me je obradovao; Uvijek može bolje, ali moramo zadržati žar i borbenost!
+-  COP28: Nigeria secures over $5bn commitment for adaptation fund
+-  BBC-presentator steekt middelvinger op: 'Was aan het dollen met collega's'
+-  Dự án kết nối giao thông Hải Phòng - Quảng Ninh không thiếu vốn, chỉ lo thiếu mặt bằng sạch
+-  ОАЭ распространили в СБ ООН проект резолюции, требующей прекращения огня в секторе Газа
+-  Mrsic: "Supimos mantener el basketaverage"
+-  ‘Hanging Gardens’ Director Ahmed Yassin Al Daradji Teases New Project, in Which a Theater Director Offends Saddam Hussein (EXCLUSIVE)
+-  ‘Hanging Gardens’ Director Ahmed Yassin Al Daradji Teases New Project, in Which a Theater Director Offends Saddam Hussein (EXCLUSIVE)
+-  KAKO SMO MI ENGLEZI UPLAŠILI PIKSIJA I OSTALE! Lineker nas ponizio na Marakani: Trebalo je da vidite Jugoslovene...
+-  Sergei Dragunov osztja a pofonokat a legújabb Tekken 8 kedvcsinálón
