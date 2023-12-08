@@ -1,51 +1,11 @@
 # Latest News
--  Parliament Winter Session Live: महुआ मोइत्रा पर संसद में संग्राम, पेश होगी एथिक्स कमेटी की रिपोर्ट
--  नाबालिग लड़की से बलात्कार के दोषी को आजीवन कारावास की सजा
--  भारत के पहले बुलेट ट्रेन स्टेशन की झलक आयी सामने, Ashwini Vaishnaw ने शेयर की वीडियों, सांस्कृतिक विरासत के साथ आधुनिक वास्तुकला का समावेश
--  Jammu and Kashmir संबंधी दो विधेयकों को लेकर मोदी सरकार के विरोध में उतरे अधिकतर कश्मीरी नेता
--  Maharashtra : एक महिला ने 10-वर्षीय बेटे के साथ दुष्कर्म किए जाने का आरोप लगाया, मामला दर्ज
--  Jags employee charged with stealing $22M gambled away 99% of funds, plans guilty plea, lawyer says
--  “위안부는 매춘” 류석춘, 대학 징계 불복소송 2심도 패소
--  이준석 “안철수, 상대할 가치 없어…목탁 소리나 들어라”
--  조희대 대법원장 임명안 국회 통과…74일간의 공백 사태 해소
--  देश में पहली बारः महिला से पुरुष बने युवक ने की शादी, बहन की सहेली को बनाया पत्नी, Transgender Marriage की
--  Who will be the CM: BJP ने तय किए पर्यवेक्षक, खट्टर की मौजूदगी में रविवार को विधायक चुनेंगे मुख्य्मंत्री
--  MP Politics: डोडियार ने CM के सामने जताई मंत्री बनने की इच्छा, MLA बनने वाले सबसे गरीब उम्मीदवार हैं कमलेश्वर
--  Burhanpur News: इस तह बच सकते हैं साइबर अपराधों से, पुलिस ने प्रोफेसर बन कालेज स्टूडेंट्स को दिए ये टिप्स
--  MP News: छिंदवाड़ा में गलत इंजेक्शन लगने से मरीज की हुई मौत, डॉक्टर ने नहर में फेंका शव
--  Pro Kabaddi League: पैंथर्स और वारियर्स का पीकेएल मुकाबला ड्रॉ
--  EVO KAKVO NAS VRIJEME OČEKUJE DANAS!
--  Pogodovao zagrebačkoj tvrtki, muljao s oružjem, dobio 3 godine zatvora. Bio je ministar obrane, ranije i časnik u Zadru
--  Inter Miami की तरफ से हांगकांग में मैच खेलेंगे Lionel Messi
--  Горящий дом в поселке Вырица тушили 12 пожарных
--  কাদের সিদ্দিকীর হলফনামায় ভোটারদের দেওয়া প্রতিশ্রুতি পূরণ করতে না পারার আক্ষেপ
--  Yakup Köse yazdı: 'Tarafsız gazetecilerde' matem var
--  Okan Buruk kritik maç öncesi uyardı! "Bu bizim liderlik maçımız"
--  8 декабря в Йошкар-Оле нельзя парковаться у Дома дружбы народов
--  Fahrettin Koca’dan doktorlara sendikasızlaşma çağrısı!
--  ২৭৯টি যানবাহন ও স্থাপনায় অগ্নিসংযোগ ও ভাঙচুর
--  İstanbul'da terör örgütü DEAŞ operasyonunda 8 zanlı yakalandı
--  Deniz ulaşımına hava muhalefeti! İDO ve BUDO seferleri iptal
--  US figure skater Ilia Malinin lands quad axel to take lead at Grand Prix Finals in Beijing
--  MGM Açıkladı! Gaziantep'te hava durumu... 8 Aralık 2023 Cuma Gaziantep'te saatlik ve 5 günlük hava durumu
--  삼성선물 신임 대표이사에 김선 삼성생명 경영지원실장
--  Резултати от НХЛ
--  Азербайджан отправил очередную помощь
--  Калужские хоккеисты готовятся к очередному матчу в «Космосе»
--  „Da li je sve ovo moralo da nam se dogodi“: Izložba i razgovor sa Dragoljubom Zamurovićem
--  Naxçıvan Sığorta больше нет
--  Erdoğan Bayraktar'dan Cumhurbaşkanı Erdoğan'ı kızdıracak çıkış
--  Uzmanlar, hamilelikte gribe karşı aşı yaptırılması konusunda uyardı
--  Источник сообщил о задержании нескольких человек после стрельбы в Брянске
--  БНХАУ газар дор 2,4 мянган метрийн гүнд лаборатори байгуулжээ
--  Data Plays A Pivotal Role Across All Sectors, Say Experts
--  Ingenuity In Motion To Serve Stakeholders For Market Leadership
--  Market Cheers RBI’s Dovish Stance; Nifty And Sensex Trade All-time High
--  ONDC, Paytm Will Serve As A Catalogue For The World: Vijay Shekhar
--  Unchanged Rates: Key Takeaways For Housing Sector
--  Ponegde magla, radar kod "Jugoalata": Šta se dešava u saobraćaju u Novom Sadu
--  Trivić: Dodik ne brani narod nego svoje milijarde
--  Janji Anies-Cak Imin: Pembangunan Infrastruktur hingga Berantas Mafia Daging
--  กลับมาแล้ว!แม่เต่ามะเฟืองขึ้นวางไข่ที่หาดท้ายเหมือง118ฟองรังแรกของปี 66-67
--  Bayraktar Akıncı'dan süpersonik füze atış testi
--  คลังส่งร่าง‘เงินกู้ดิจิทัลวอลเล็ต’ให้กฤษฎีกาแล้ว ‘ภูมิธรรม’ลุ้นเดินหน้าเป็นใบเบิกทาง ศก.บูม
+-  I did my Christmas shopping at Guardian for less than S$100 & my friends still like me
+-  Įveikia depresiją, mirties baimę ir virusus: kokia galia slypi apkabinimuose
+-  [ŽT] „Tai tikrai blogos naujienos.“ To dar nėra buvę nuo karo pradžios. Kas nutiko Ukrainai
+-  „Baikalo-Amūro magistralės sprogimas atskleistas.“ Skelbiamos stebinančios detalės
+-  Dauguma žmonių bijo tai pasakyti. Atskleista pagrindinė sėkmingų žmonių frazė
+-  Netikėta. Pirmą kartą nuo karo pradžios. „Stiprus politinis gestas“. Kur vyksta Zelenskis
+-  Teollisuuden tilaukset ovat laskussa jo yhdeksättä kuukautta
+-  ชวนชมปรากฎการณ์แสงสีสุดยิ่งใหญ่ริมเจ้าพระยา ‘ไอคอนสยาม รุ่งโรจน์ด้วยวิจิตรแห่งศรัทธา’ ตลอดเดือนธ.ค.
+-  “Baku Steel Company” dünya lideri olan “SAP SE” şirkəti ilə əməkdaşlığa başlayır
+-  BJP appoints central observers as suspense over new CMs in 3 states continues
