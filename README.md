@@ -1,11 +1,11 @@
 # Latest News
--  [원룸 건물주 큰일났다…'월 20만원 기숙사 5만호' 민주당 공약 나온다
--  CKP avslöjade lotterihärva – tre personer misstänks ha håvat in närmare en miljon euro
--  ВС России за неделю сбили пять самолётов и 224 БПЛА украинской армии
--  Ulaganje u korporativnu kulturu postaje ključno za privlačenje novih zaposlenika
--  Life-threatening XTC pill with high doses of MDMA in circulation in the Netherlands
--  ধনী দেশের তুলনায় বাংলাদেশ স্বস্তিতে আছে: শিক্ষামন্ত্রী
--  Spotify CEO Daniel Ek sure sounds like he's blaming his 1,500 job cuts on fake work and amateur execs
--  الصحة بالحكومة الليبية تبحث سبل تفعيل أقسام الطوارئ 24 ساعة
--  Kickoff | Chiefs issue update on key defender
--  Neverovatna 30-časovna vožnja vozom rasproda se za nekoliko minuta
+-  Η ΑΕΚ θέλει Έλληνες, οι Έλληνες θέλουν να γυρίσουν;
+-  ‘General Hospital’ Star Billy Miller’s Cause Of Death Revealed
+-  L'EPF de Zurich veut s'implanter en Allemagne dans le numérique
+-  แม่นเหมือนจับวาง! Pan เอาท์เพลย์ ยิงหลับโดนจนพา WHG ชนะ 2-1 KBG ในศึก Wild Rift League Asia Season 2
+-  Gold Buffalo US coin donated anonymously raises over £1,000 for Scotland’s Charity Air Ambulance
+-  ‘궁금한 이야기 Y’, 학교 선배는 왜 SNS 계정을 사칭 했나
+-  جرائم العدوان في مثل هذا اليوم 8 ديسمبر
+-  ‘궁금한 이야기 Y’, 그녀는 왜 남의 작물을 훔치는 것인가
+-  اعتراف صهيوني بسقوط ضحايا في صفوفه والسبب قصف بالخطأ
+-  Marquez, Valentino Rossi e il retroscena Yamaha: il “no” dopo il 2015
