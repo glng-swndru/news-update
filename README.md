@@ -1,51 +1,51 @@
 # Latest News
--  Даяна Ястремская – Маккартни Кесслер. Смотреть онлайн. LIVE трансляция
--  Германия — Может ли гололедица быть уважительной причиной опоздания в офис?
--  “Kukavičije jaje” za Srbiju
--  प्रेमको 'आइडिया' मा रमाउने लेखकको किताब
--  김용욱(삼척출신)·박정균(홍천출신)·유지영(강릉출신) 농협 상무 임용
--  «Повесить на шею»: назван тайный план США насчет Украины
--  Chińskie Politburo deklaruje wzmocnienie polityki fiskalnej zwiększającej popyt
--  Drugie życie gry Render Cube’a
--  Tusk: nowy rok zacznie się od wypłaty 800+ i 30 proc. podwyżek dla nauczycieli
--  Wiadomo już kto pokieruje Europejskim Bankiem Inwestycyjnym
--  Start-upy chcą być transgraniczne. W ekspansji napotykają bariery
--  12月8日は有機農業の日「虫はつくわ病気は出るわ」試行錯誤の17年…土づくりが打開策に 持続可能な農業に注目！
--  Australien und Papua-Neuguinea unterzeichnen „historisches“ Sicherheitsabkommen
--  Гоциридзе: Партия Мелия будет серьезной оппозиционной партией
--  Bahnstreik läuft: Heute starke Einschränkungen in Norddeutschland
--  Путин назвал долгом знать и чтить Героев Отечества
--  भारतीय सांसद महुआ मोइत्राको लोकसभा सदस्यता रद्द
--  Γυρίσματα για το επίσημο τραγούδι της ΚΟΠ για την τελική φάση του EURO 2024 K17
--  Gaza-Krieg: Israel macht weiter Jagd auf Hamas-Chef Sinwar
--  Gaza-Krieg: Israel macht weiter Jagd auf Hamas-Chef Sinwar
--  Более 300 вентиляционных шахт коллекторов обновили в Москве
--  トリカブト混入事件で起訴された元・診療放射線技師の男 3年前にも同様の犯行に及んだ疑いで再逮捕
--  Повістки у спортзалах: Закарпатський ТЦК зробив заяву
--  Ρεβεγιόν με ...νεράκι αντί για σαμπάνια - «Χρυσός» και ο αφρώδης οίνος
--  Corona-Zahlen im Landkreis Altenburger Land aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Jon Rahm conmociona el mundo del Golf al fichar por la Liga saudí
--  Corona-Zahlen im Landkreis Greiz aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  Kadetkinje u grupi 1 Lige B
--  Corona-Zahlen im Saale-Orla-Kreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  ΕΛ.ΑΣ.: Απαγόρευση μετακίνησης οπαδών του Ολυμπιακού για Καρδίτσα μετά την επίθεση στα ΜΑΤ
--  Families could be spending too much on phone bills, experts say
--  "It's a big responsibility." | Creating Avatar: Frontiers of Pandora
--  "It's a big responsibility." | Creating Avatar: Frontiers of Pandora
--  Corona-Zahlen im Saale-Holzland-Kreis aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  Corona-Zahlen im Landkreis Saalfeld-Rudolstadt aktuell: Aktuelle Daten zum Coronavirus
--  Dutch police arrest a Syrian accused of sexual violence and other crimes in Syria’s civil war
--  Retrial for Olympian's brother over bungled drug plot
--  Corona-Zahlen im Landkreis Sonneberg aktuell: Neuinfektionen für Landkreis Sonneberg, Thüringen und Deutschland
--  Corona-Zahlen im Landkreis Weimarer Land aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  Former Labor minister left injured after Emirates flight hit turbulance
--  ВЦИОМ: Владимиру Путину доверяют 78,5% жителей России
--  Sharp's affordable all-in-one systems are bringing budget convenience to your home
--  Corona-Zahlen im Ilm-Kreis aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Hildburghausen aktuell: Aktuelle Daten zum Coronavirus
--  Dohoda s lékaři podepsána
--  Wer ins 1&1-Netz wechselt - und wie
--  Mehr als fünf Kilo schweres Baby in Bremen geboren
--  Compagnie Plastic Omnium : Distinction décernée à Plastic Omnium pour ses relations actionnaires
--  Peter van der Vorst: Matthijs moet zich houden aan Mediapact
--  Vriendin Mallorca-slachtoffer: Carlo mag nooit vergeten worden
+-  Aviation Minister Scindia Urges Airlines to Exercise Self-Regulation on Airfares
+-  IT, Banks Lead Nifty And Sensex To Close On Record-high
+-  Ndërsa Rita Ora do të prezantojë programin, Bebe Rexha do të performojë në natën e ndërrimit të viteve në ‘Times Square”
+-  200.000 KM za nabavku savremenog UZ aparata u Kabinetu za akušerstvo Opće bolnice
+-  India News | Over 2.9 Lakh Vacancies Filled Up in Indian Railways in Last Five Years Till Sept 30
+-  How To Watch Samp Army vs New York Strikers, Abu Dhabi T10 2023 Qualifier 1 Live Streaming Online: Get Telecast Details of T10 Cricket Match With Timing in IST
+-  Modasa estima crecer 20% el próximo año
+-  Jude Bellingham is the Golden Boy and will be hoping he’s more Lionel Messi than Renato Sanches
+-  Avalanche (AVAX) Leads Monthly Crypto Gains; InQubeta (QUBE) Gains Twitter Community’s Favor.
+-  «Ювентус» — «Наполи»: прямая трансляция матча Серии А
+-  AHRT Sudah Kantongi Nama Pembalap untuk Musim Depan, Siapa Saja?
+-  Bećiragić: Neko izgleda namjerno plasira lažne vijesti
+-  Terkini: Adu Janji Kampanye, Ganjar Bantu UMKM, Gibran Benahi Lingkungan Kumuh, Anies Bangun Jalur Kereta Kalimantan
+-  Mahua Moitra 'Cash for Query' Case: 'Ethics Panel Decided To Hang Me Without Proof', Says TMC MP After Expulsion From Lok Sabha (Watch Videos)
+-  Cómo se prepara Javier Milei para el día de su asunción presidencial
+-  Nadia Calvino nova predsjednica EIB-a
+-  অবশেষে নগ্ন দৃশ্যে অভিনয় নিয়ে মুখ খুললেন তৃপ্তি
+-  الطشة: لن نسمح بتكرار حادثة الميموني مرة أخرى
+-  FC Bayern: Jamal Musiala vor Comeback gegen Eintracht Frankfurt
+-  Broadcom gaat VMware EUC en Carbon Black afstoten
+-  Ben jij al aangesloten bij het cybersecurityforum van Nederland?
+-  無綫《獎門人》屢提網購平台贊助商 涉違廣告守則 通訊局發勸喻
+-  Historie, sfeer en verhalen tijdens IJsselstein by night
+-  PM inicia operação final de ano com aumento de 30% NO efetivo em Sinop
+-  Mahua Moitra: 'আমি এর শেষ দেখে ছাড়ব', আরও ৩০ বছর বিজেপির বিরুদ্ধে লড়ার হুঙ্কার মহুয়ার
+-  Şırnak’ta minibüsler çarpıştı: 16 yaralı
+-  Sosyal medya fenomeni Gizem Bağdaçiçek serbest bırakıldı
+-  Meteorolojiden kuvvetli yağış ve kar uyarısı
+-  Yozgat'ta şarampole devrilen otomobildeki 3 kişi öldü, 3 kişi yaralandı
+-  Шавкат Рахмонов пригрозил своему сопернику перед боем
+-  Conferenza stampa Pioli: le parole del tecnico alla vigilia dell’Atalanta
+-  DİSK asgari ücret tutumunu açıkladı: İlk kez bu yıl rakam açıklamıyoruz
+-  El PP pide que el presidente de EFE sea elegido por el Congreso y no tenga vínculos políticos
+-  Win 10 Irish Heritage Trees! Join our Ugly Christmas Sweater competition
+-  Чем Германия может помочь сельскому хозяйству Таджикистана?
+-  Ngành chăn nuôi và thú y Bình Định hướng tới quản lý 4.0
+-  VEA: Nghị quyết Hội đồng quản trị về việc ký phụ lục hợp đồng với bên có liên quan (Công ty TNHH MTV Động cơ và Máy nông nghiệp Miền Nam)
+-  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 11/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 08/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 08/12/2023
+-  TIP: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Phan Anh Dũng
+-  FUEVFVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
+-  FUESSVFL: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
+-  Miluješ ich, no naživo im to až tak nejde? Títo speváci sú lepší pred kamerou ako na koncerte
+-  SFC: Cập nhật, bổ sung tài liệu họp ĐHĐCĐ thường niên năm 2023
+-  Dünyanın En Çirkin İnsanı Ölü Bulundu
+-  Abrar Ahmed Suffer Injury Scare Pakistan Ahead of First Test Match Against Australia
+-  Bund will Hauseigentümer nach schweren Erdbeben zur Kasse bitten
+-  Soccerladuma | Sundowns Look To Send Attacker To PSL Club?
+-  Rritet profiti i bankave komerciale, për 10 muaj fituan 141 milionë euro
