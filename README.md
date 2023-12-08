@@ -1,11 +1,11 @@
 # Latest News
--  Fransız aşırı sağcı milletvekili Le Pen yargılanacak
--  Yabancılar turizme yatırım yapmıyor, peki neden…
--  14 قتيلا بحريق هائل في العراق (فيديو)
--  Acuciante salvaguardar cordillera norte de Valles Centrales
--  الوكرة ينجو من فخ «العميد»
--  نظرة مستقبلية إيجابية للبنوك القطرية
--  Putin je samo trebao čekati da se saveznici umore od davanja pomoći... I dočekao je!
--  Canarias, a la cabeza en el acoso escolar: el 10% del alumnado lo sufre
--  Pobladores de Texcaltitlán, Edomex, se enfrenta con presuntos miembros de grupo criminal
--  Los nazarenos conmemoran la fiesta de la Inmaculada
+-  토트넘의 ‘다이어 방출 계획’ 급제동…무리뉴가 영입 후보 명단에서 제외
+-  More On Bryan Danielson Giving Fines In AEW Over Social Media Posts
+-  రైతులను ఆదుకోండి: టీడీపీ, సీపీఐ
+-  [“연말 특수 노린다”…유통업계는 ‘12월의 전쟁’ 중[언박싱]
+-  [“동원 맞지?” 난리난 사진 한장 ‘이재용 떡볶이’ 왜?[김영상의 오지랖]
+-  [경쟁사에 퇴짜맞고 호주선 “화웨이요?”…한화의 레드백 성공 뒷이야기 [비즈360]
+-  [칼 빼든 최태원…인적쇄신·한일협력으로 반도체·배터리 ‘드라이브’ [비즈360]
+-  Governor Tamilisai : గోమూత్రం కాదు అవి గోముద్ర రాష్ట్రాలు
+-  Prvá agentúra z veľkej trojky zhoršuje Slovensku rating
+-  ”Love Story”-skådespelaren Ryan O'Neal död
