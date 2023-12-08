@@ -1,51 +1,51 @@
 # Latest News
--  Izbornik hrvatskih rukometašica uoči Kameruna: “Bez podcjenjivanja, ali želimo odmoriti neke od ključnih igračica”
--  قافلة "فلسطين قضيتنا" الطبية تنطلق من ميدان الشهداء بطرابلس إلى غزة
--  Валентина Димитрова с добро представяне на спринта в Хохфилцен
--  Vacuna Moderna vs. COVID: ¿A partir de cuándo y dónde podrás comprar la dosis en México?
--  ترتيبات ما بعد العدوان؟!
--  ইউনেসকোর সাংস্কৃতিক ঐতিহ্যের স্বীকৃতি পেল ইফতার
--  Асен Василев от Брюксел: До февруари ще получим 700 милиона евро по ПВУ
--  القوات المسلحة السودانية: نحن جيش عريق لا يمكن أن يرتكب جرائم الحرب كالمليشيا المتمردة الإرهابية
--  PREPUNA HALA U VRANjU: Predizborni skup liste "Aleksandar Vučić - Srbija ne sme da stane" (FOTO/VIDEO)
--  Detienen a la madre ebria del bebé encerrado en un coche aparcado en Córdoba
--  ذي نيشين: لماذا يركز الإعلام الأمريكي على تدمير حماس ويتجاهل عدوان "إسرائيل"؟
--  Canadiens honour Caroline Ouellete's Hall of Fame hockey career
--  55 yaşlı kişi özünü asdı
--  "الأونروا": 273 استشهدوا داخل مراكز الإيواء في غزة منذ بدء العدوان
--  Libros que Importan viaja a las tres capitales aragonesas
--  „All eure Gesichter“ im Kino: Versöhnung ist nur eine Option - Filmkritik
--  Beliebter TV-Sender soll zurückkehren – mit Unterstützung von Dazn und ServusTV
--  জলাশয় ভরাট করে টিস্যু কালচার ল্যাব নির্মাণ বন্ধে প্রধানমন্ত্রীর হস্তক্ষেপ কামনা
--  Stocking stuffers for kids that aren’t candy
--  News24 Business | Hundreds held at Joburg mine, while Wesizwe workers continue underground protest
--  Cancillería: peruana que se encontraba en Gaza logró evacuar a Egipto junto a su familia
--  News24 | Around 60 injured as bus goes off Long Tom Pass in Mpumalanga
--  U JAGODINI NAPADNUTI AKTIVISTI SNS: "Nije nam prvi put da nam se dešavaju ovakve stvari"
--  ТАЛАТ ЏАФЕРИ ЌЕ БИДЕ ТЕХНИЧКИ ПРЕМИЕР
--  Пожар в кафе в Нижнем Новгороде локализовали
--  Jury finds Frank Cao guilty in death of Nuns' Island woman
--  João Pedro Sousa garante que Famalicão é "melhor equipa que há um mês"
--  מכבי ראשל"צ נעצרה אחרי שישה ניצחונות, רמת השרון עלתה לפסגה
--  Kitten stolen from Waterloo pet store has been safely recovered
--  'They threatened to break my neck’ – Farmers living in fear of trespassers
--  Panne de la ligne B du métro à Rennes : un préavis de grève a été déposé
--  Hoe De Langstraat de Duitse toerist weet te lokken: ‘We zien een enorme groei’
--  Adorable turtle bed where you sleep in the shell is TikTok’s latest obsession
--  SEIU Local 2: Sobeys’ refusal to offer fair wages could mean a national boycott and significant lost revenue at Lawtons Drugs
--  Nueva avenida Coronel Rafael Fernández Domínguez impregnará mayor desarrollo económico y social a SDE
--  Uskoro otvorenje školskog igrališta škole „Stjepan Sarkotić“ u Sincu
--  Оранжевый уровень опасности из-за мороза в Москве продлили
--  Say No To Mutoriro
--  Man freaked out after being told his fiancé's family tradition for their wedding night
--  VIDEO. Noël au Mans pour les plus démunis et les sans-abri : « ça me sort de mon isolement »
--  GLASOM SVETU PRENOSIO ZVUKE SVOJE ZEMLjE I RODNOG KRAJA: Crna Gora posthumno odlikuje pevača Zorana Kalezića
--  Путин поручил увеличить объемы финансирования для инновационных продуктов
--  Anger Over Why Owner Dumped Dog at Shelter to Be Euthanized: 'Good Grief'
--  – Jeg vet hva jeg skal gjøre som pensjonist
--  Julián Calero: "No vamos a ir con el rabo entre las piernas"
--  Destinan 30 mdp al fondo para la sequía
--  Ivanović: Proces evropskih integracija Crne Gore može se okončati tokom mandata 44. Vlade
--  قطعة بـ10 جنيهات لمشاهدة مباراة الأهلي وبلوزداد الجزائري.. اتفرج في البيت
--  De Sinaloa el ejecutado en campo menonita de Cuauhtémoc
--  1922 Konyaspor’da Baharoğlu dönemi
+-  Your SoCal Weather Report For Friday, Dec 8: Stay Ready For Wildfire Risks
+-  El frío cobró su primera víctima, indigente falleció tirado sobre una banqueta
+-  Evropski tužilac sumnjiči bivšu ministarku Hrvatske za trošenje evropskog novca u privatne svrhe
+-  Refuerza Seguridad Vial operativo contra abusones en filas a El Paso
+-  Ruskim sportistima dozvoljen nastup na Olimpijadi
+-  New Ybor mass shooting suspects make 1st court appearances
+-  Curtea Supremă a Finlandei blochează extrădarea în Ucraina a fondatorului unei unități Wagner, din cauză că închisorile sunt supraaglomerate și s-ar putea confrunta cu tratament inuman
+-  Juan Grabois: Me llamó Milei para solidarizarse y me pareció sincero
+-  Muere la actriz Itziar Castro, conocida por su papel de “Goya” en la serie Vis a Vis; tenía 46 años
+-  Poliittinen lakko ei saa ymmärrystä salolaisyrityksissä – ”Tällä ammutaan vain omaan jalkaan”
+-  Hamas osudio fotografiju skinutih Palestinaca okruženih izraelskim vojnicima
+-  Guerre Hamas-Israël : Le Hamas a-t-il profité en bourse de l'attaque du 7 octobre ? Des experts écartent l'hypothèse
+-  Guerre Israël-Hamas : Entre mobilisation acharnée et équilibre familial, la double vie des proches d'otages
+-  Un mannequin de 21 ans, élu plus bel homme d'Italie, plaque tout pour devenir prêtre
+-  Izraelski helikopter promašio metu i greškom ubio svog vojnika
+-  मुलुक परिवर्तन गर्न कांग्रेस परिवर्तन हुनु जरुरी छ: डा. कोइराला
+-  Қозоғистонда 46 кончи ҳалок бўлган кўмир шахтаси хорижлик инвестордан қайтариб олинди .
+-  ХОҚ россиялик ва беларуслик спортчиларга 2024 йилги Олимпиадада нейтрал мақомда иштирок этишга рухсат берди .
+-  Хитой дунёдаги «энг илғор» ядро реакторини ишга туширди .
+-  Messi, uno de los candidatos al premio The Best de la FIFA
+-  Rama: “21 Janari” i mbyllur në prokurorinë e Tiranës, drejtësia e re do e zbulojë
+-  América vs. San Luis: Miguel Layún no ve el juego definido y hace un llamado a la afición
+-  Freigericht: Vier katholische Kitas entwickeln gemeinsam mit zwei Einrichtungen aus Rodenbach und Langenselbold ein Konzept für Gewaltschutz
+-  Страшный нокаут «лицом вперед» состоялся на турнире по ММА в России. Видео
+-  Vilebrequin: retour sur les trois concepts phares du duo
+-  Twitch, Top Gear: après l'arrêt de leur chaîne, les Vilebrequin dévoilent leurs projets
+-  Offre canon ou erreur d'affichage sur le Samsung Galaxy S23 ?
+-  Les Vilebrequin arrêtent leur programme sur Youtube après six ans
+-  Jeu vidéo de l'année 2023, principales annonces... Voici ce qu'il faut retenir des Game Awards
+-  Comment utiliser les messages audio éphèmères sur Whatsapp?
+-  Ce mini projecteur est utilisable partout pour un prix inférieur à 70 euros
+-  Intelligence artificielle: Google a un peu triché dans sa vidéo de présentation de Gemini
+-  GTA 6, Game Awards: la folle semaine du jeu vidéo avec Lox et Chris Klippel
+-  Le Samsung Galaxy S23 Ultra est à prix canon, ne manquez pas cette remise folle
+-  C'est le moment de craquer pour l'iPhone 15 avec cette promotion inédite
+-  Fatih Portakal canlı yaynında açıkladı! "Asgari ücret bu rakamın altına düşmeyecek..."
+-  Weather Update: শনিবার থেকেই রাজ্য়ে ফিরতে পারে শীত। ABP Ananda Live
+-  US economy adds 199,000 jobs as unemployment rate falls slightly
+-  Critics decry Ohio's proposed ban on gender-affirming care for trans youth
+-  Betting firm Flutter to list on New York stock exchange in January
+-  Betting firm Flutter to list on New York stock exchange in January
+-  NFL playoff race: Eagles and Cowboys renew rivalry with stakes sky high
+-  US economy adds 199,000 jobs as unemployment rate falls slightly
+-  Critics decry Ohio's proposed ban on gender-affirming care for trans youth
+-  NFL playoff race: Eagles and Cowboys renew rivalry with stakes sky high
+-  Application Lifecycle Management Market worth $7.38 billion by 2030, growing at a CAGR of 7.56% - Exclusive Report by 360iResearch
+-  Opportunities galore as Harmanpreet looks to build team for T20 World Cup
+-  [Trailer] Après Brangelina, Donald Glover et Maya Erskine deviennent “Mr. & Mrs. Smith”
+-  Beşiktaş, Fenerbahçe maçı için kamp kadrosunu açıkladı
+-  Hamas: İsrail'in Ömeri Camisi'ni bombalaması medeniyete karşı nefretinin kanıtıdır
