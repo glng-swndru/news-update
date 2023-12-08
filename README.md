@@ -1,51 +1,51 @@
 # Latest News
--  Axel Springer zamknie serwis Upday. Teksty generować będzie sztuczna inteligencja
--  В Молдавии фермеры объявили о смене формата протеста
--  The importance and power of a great stage name
--  Coveo Named a Leader in 2023 Cognitive Search Platform
--  Geek Festival: evento se desarrollará en el Circuito Mágico del Agua donde podrás conocer a los actores de One Pice de Netflix
--  Galatasaraylı Cenk Ergün'den şampiyonluk açıklaması
--  Bodrum'da belediye ekipleri yağmur mesaisinde
--  Морозы до минус 50 градусов прогнозируются до вторника в Сибири
--  Public-private housing partnerships are the future
--  Uraufführung von „The Breathshow“: Maren Strack übt das Atmen und feiert das Leben
--  Aktion „Hand in Hand helfen“: Lebensmittel im Wert von 1700 Euro für die Tafel
--  500 M€ d’investissements pour le port de commerce de Brest dans les dix ans
--  Volkmarser Bürgermeister schlägt mit Haushaltsplanentwurf auch Steuererhöhungen vor
--  IND-W vs ENG-W 2nd T20: India looks to bounce back against England
--  Aresep tramitará rebajas de ¢75 en gasolina regular y ¢58 en diésel para enero
--  Regis Prograis vs Devin Haney odds: Betting preview & tips
--  Kabras RFC welcome back Kenya 7s trio and Uganda duo for Nondies date
--  ආසියානු සංවර්ධන බැංකුවෙන් තවත් ඩොලර් මිලියන 200ක ණයක්
--  Dental Tourism Market is Predicted to Surpass USD 21.5 Billion by 2031
--  Durante patrullaje por pasos clandestinos hallan a un hombre calcinado en Arenillas
--  Haushaltsloch gefährdet Finanzierung: 600.000 Jobs hängen an der Klimawende
--  Gaza : La situation sanitaire est « au-delà de l’imaginable », selon l’OMS
--  Entenda como é realizada a inseminação artificial
--  Buscan a Melany, de 14 años; desapareció el 6 de dicembre en Saltillo
--  I'm A Celebrity's Danielle Harold 'is close to tears' as she reunites with her old campmates after being eliminated from the jungle
--  Романцев: нынешнее поколение тренеров ушло далеко вперёд
--  El huancaíno Marco Huamán otra vez es convocado a la Selección Peruana Sub 23
--  Strefa Czystego Transportu. Bocheński: W decyzji władz Warszawy nie ma logiki
--  Bruktbil kan ikkje lenger seljast «som den er»
--  Biogas-Betreiber fordern in Helmighausen Bürokratieabbau von MdB Dilcher
--  Песков: решение Путина участвовать в президентских выборах - мировая новость
--  Chef der Kreisabfallwirtschaft ist gefeuert
--  Däne will E-Auto-Batterie mit Toaster vorheizen – und fackelt Auto samt Carport ab
--  BN sudah tidak relevan?
--  Ireland’s green skills gap is putting climate goals at risk
--  The Veronicas' Jessica Origliasso speaks out after sharing 'triggering' video of a huge spider crawling over her face that horrified social media
--  Καλάθι των Χριστουγέννων: Σε ισχύ από τις 13 Δεκεμβρίου - Τα προϊόντα που περιλαμβάνει
--  Symphonic’s Women Empowerment+ Program doubled this year
--  Uitspraak in kort geding: noodopvang Uden mag niet open van de rechter
--  Bahnstreik in Hessen: Kaum S-Bahnen und Regionalzüge heute unterwegs - leere Bahnhöfe
--  Avião que saiu de BH e iria para Rondônia muda trajeto e pousa em Sinop após mau tempo
--  Gerentes del Gobierno Regional de Arequipa se van a retiro espiritual para rendir cuentas
--  Певец Обломов готов за $20 тысяч выступить для россиян на нейтральной территории
--  Laboratory Freezers Market to Reach USD 6.47 Billion by 2030, Growing at a CAGR of 4.5 %
--  Getting Griner Out: The inside story of her arrest, detainment and release from Russia
--  Na Žďársku prověří největší mikroelektrárnu na biomasu
--  "مرض خطير" يداهم القاضي الرحيم
--  ЕС направил пограничников на финско-российскую границу
--  Ca sĩ Cao Thái Sơn nói điều này sau vụ ô tô của mình va chạm với tàu lửa tại TP. Đà Lạt
--  Staatsanwalt verlangt Haftstrafen für junge Männer
+-  Paula Pera, ganadora del 'Rompe Colombia 2023'
+-  Dutch parliament publishes Spotify playlist with MPs' favorite song
+-  Acusado por homicidio y otros cargos el conductor responsable del trágico accidente de bus
+-  Senat zdecydował ws. ustawy o in vitro. „PiS rozleciał się w głosowaniu”
+-  Frank Ocean Enthusiastically Dances to New Song Snippet in Recording Studio Video
+-  Desivá teória o Tutanchamónových trúbkach: Vraj vyvolali druhú svetovú vojnu! Ich smrtiaca kliatba pretrváva dodnes
+-  Erika Rein a Isama Zing ukázali inú tvár slovenského popu. Pozrite si videoklip hihi.
+-  Portugalský hrad Silves je nádherný, milovníci zvierat však zaplačú
+-  Z búrliváka Charlieho Sheena je INÝ MUŽ: Opísal moment, keď navždy sekol s chľastom!
+-  Každý deň vám dáme darček, ktorý sa bude páčiť aj blízkym: Zažite advent plný prekvapení
+-  Polícia obvinila muža, ktorý v Bratislave výbušninou poškodil auto
+-  Igor Matovič víta slová prezidentky, očakával by od nej väčšiu aktivitu
+-  Top tips from John Lewis to keep pets happy and safe at Christmas
+-  UK regulators are now looking at Microsoft's partnership with OpenAI
+-  Wybory prezydenckie w Rosji. Putin podjął decyzję
+-  Wybory prezydenckie w Rosji. Putin podjął decyzję
+-  Wybory prezydenckie w Rosji. Putin podjął decyzję
+-  Uskoro izveštaj REM-a o radu televizija u kampanji: Tim ne stiže da obradi sve podatke
+-  RSE: EU će pozvati sve države Zapadnog Balkana da uvedu sankcije Rusiji
+-  Se ensañan con hombre y lo golpean hasta matarlo
+-  МОК допустил россиян до Олимпийских игр-2024 в нейтральном статусе
+-  Arrolla y mata a mujer, luego se da la fuga
+-  Israel dice haber atacado infraestructura militar de Hamás en Universidad Al Azhar de Gaza
+-  Lepa Brena rasprodala je i drugi koncert u Areni Zagreb pa odmah najavila i treći, evo kad je novi termin!
+-  "REZULTATI SU PAKAO, NIJE ZA ZEZANJE" Evo zbog čega je Teodora napustila Elitu
+-  إسرائيل تعلن مقتل رهينة وتدمير بنى تحتية لحماس في غزة
+-  Shah Rukh Khan praises Hrithik Roshan, Deepika Padukone`s `Fighter` teaser
+-  Dharmendra Birthday 2023: Salman Khan posts heartfelt birthday tribute
+-  ក្រសួងការបរទេស បញ្ជាក់ជាថ្មី នូវការប្តេជ្ញាចិត្តឥតងាករេរបស់កម្ពុជា ក្នុងការលើកកម្ពស់សិទ្ធិមនុស្ស
+-  เก็บได้ทั้งปี!!! ครูเกษียณปลูก'ฝรั่งสาลีทองไร้เมล็ด'สร้างรายได้
+-  Межрелигиозный совет России призвал силовиков уважать верующих и их святыни
+-  Uručene nagrade najboljima na Kvarnerskom danu turizma: “Srce mi je veliko kao kuća!”
+-  Yılbaşında piyasaya sürülecekti. Kaçak alkol operasyonu
+-  God of War Ragnarok : surprise aux Game Awards avec l'annonce du DLC Valhalla
+-  Piyasaların beklediği veri açıklandı: ABD'de tarım dışı istihdam beklentiyi aştı
+-  BIO JE ZAPANJEN RAZMERAMA RATNIH ZLOČINA NAD SRBIMA: Ovaj Nemac bitno je uticao na promenu negativne slike o Srbiji u Evropi! FOTO
+-  Putin will seek another presidential term, aiming to extend his grip on Russia
+-  הסיפור שאינו נגמר: לקראת משחקו ה-1,200 של כריסטיאנו רונאלדו
+-  Главы Минобороны стран Вишеградской группы поддержали Украину и Израиль
+-  Gwyneth Paltrow Recalls Being Told ‘Iron Man’ Would “Feel Like Doing An Indie Film”: “We Improvised Almost Every Scene Of That Movie”
+-  Ádám Zoltán-ügy: 20 oktató követeli, hogy vegyék vissza a kirúgott docenst
+-  Esken und Klingbeil: SPD-Krise: Warum die Partei ihre Chefs trotzdem schätzt
+-  កម្ពុជា ស្នើឱ្យពន្លឿន ការអនុវត្តខ្សែក្រវាត់ អភិវឌ្ឍន៍សេដ្ឋកិច្ច មេគង្គ-ឡានឆាង
+-  APR: Obavezna e-registracija višestruko uvećala broj firmi osnovanih elektronski
+-  وسیم اکرم نے حارث رؤف کو عظیم کرکٹر بننے کے لیے اہم ترین مشورہ دے دیا
+-  Dominican Republic’s historic sancocho: A near miss for world record
+-  Premio mayor de Mega Millions sube a $395 millones ¿Cuándo juega?
+-  Læknastofur sækja í sig veðrið
+-  Kādreizējais Rīgas “Dinamo” galvenais treneris okupantu līgas klubam vairs nav vajadzīgs
+-  Schalke-Sponsoren sind in großer Sorge: Geheimtreffen mit Axel Hefer
