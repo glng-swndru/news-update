@@ -1,51 +1,11 @@
 # Latest News
--  NGK doen stapje terug in contacten met christelijk-gereformeerden: 'We willen CGK ruimte bieden'
--  Rapport: niet-stemmers Rotterdam weinig vertrouwen in politiek
--  Rechter haalt streep door opvang 300 asielzoekers in Uden
--  Abdel zit in de gevangenis en verdient veertig euro per week. 'De kosten voor mijn huis lopen gewoon door'
--  Amerikaanse arbeidsmarkt groeit harder dan verwacht
--  VN-experts tegen lidstaten: doe alles voor wapenstilstand Gaza
--  SWOV: succes 30 km-wegen hangt af van inrichting rijbanen
--  „Jei trumpai, tai ne lavonas iš šaldytuvo, bet...“ – detalės apie Putino būklę
--  [ŽT] Skelbiama visiška kovinė parengtis. Prasideda mobilizacija (Foto)
--  „ES atėjo momentas, kai reikia kažką keisti.“ Kas laukia Orbano
--  Denizde cesedi bulunan kişi, borsada 2.5 milyon TL kaybetmiş!
--  Ümit Özdağ: Akşener’den geri dönüş olmadı, bekliyoruz
--  עשרות מחבלים חוסלו, בהם חלק משדרת הפיקוד: פשיטת אוגדה 98 על חאן יונס | תיעוד
--  Walter Mazzarri Bicara Arti Duel Klasik Juventus Kontra Napoli
--  EE.UU. prohíbe importaciones de otras tres empresas chinas por los trabajos forzados
--  Ким Бейсинджър навърши 70 след блестяща кариера и два развода
--  Assistants d'eurodéputés du FN : Marine Le Pen, le parti et 26 personnes renvoyés en procès
--  Noile BMW X5 și X6: performanță îmbunătățită și tehnologie avansată
--  Plano Methodist’s annual cookie walk Saturday
--  А що, я вам маю пояснювати причини?: тренер збірної України різко відповідав на запитання єдиного українського журналіста, акредитованого на ЧС
--  Preisverleihung in der Flora: Games-Studio gewinnt in Köln den Deutschen Entwicklerpreis – und muss schließen
--  Dahnil Anzar Simanjuntak Ungkap Prabowo Sempat Minta Restu Jokowi Sebelum Jadi Capres
--  4-те зодии, които са против брака
--  Fan-favorite Outer Wilds is back on Switch with the Archaeologist Edition
--  Nicolo Zaniolo dönecek mi? Metin Öztürk açıkladı
--  Borrell, Filistinlilere yönelik şiddet eylemleri gerçekleştirenlere karşı AB'nin önlem almasını isteyecek
--  Türkiye'nin davayı yakından takip etmesine dikkati çekti: Ailelerin yüreğine su serptiniz
--  Bakan Fidan mevkidaşı Antony Blinken ile görüşecek
--  DSÖ: Sudan'da 6,8 milyon kişi yerinden edildi
--  Paul Pogba'ya bir kötü haber de Juventus'tan
--  Cuma namazı sonrası İsrail'i protesto ettiler
--  Aboga Saúl Hernández por la educación mexicana
--  Instalan nuevo sistema de riego en el talud Jorge Barousse
--  234 Fahrten ohne Führerschein: Bewährungsstrafe für Mitarbeiter des Ordnungsamts in Berlin
--  Hunter Biden fue acusado de fraude fiscal por la Justicia Federal de Estados Unidos
--  P&G: Obi explains why investors are running away from Nigeria
--  The story of inflatable Santas and how they’ve blown up in one N.S. neighbourhood
--  Opinion | Gaspillage : mettre vraiment fin aux emballages uniques
--  Raphaels Mutter wünscht sich eine Auszeit
--  Каори Сакамото поведе след кратката програма на финала на турнира Гран При по фигурно пързаляне
--  В КХЛ рассказали о планах понизить возраст НСА
--  2 SMNI anchor `aarborin’ ng abogado sa Kamara
--  Mountaineers object to plan to demolish Jimmy Savile's former cottage
--  Halkbank, Kulüpler Dünya Şampiyonası'nda yarı finalde!
--  Кличко назвав попередню причину підтоплення тунелю метро
--  يخصص وقتًا معينًا للصلاة على النبي ﷺ فهل هذا صحيح؟ "الخثلان" يُجيب
--  Galatasaray'da Nicolo Zaniolo için beklenen açıklama geldi
--  Ricardo Quaresma'dan Beşiktaş sözleri
--  Dolar ve tahviller yükseldi, altın fiyatları düştü
--  Emine Erdoğan: Türkiye milli gelirine oranla dünyanın en cömert ülkesi
+-  Wall Street opent licht lager na belangrijk banenrapport VS
+-  Macron: de Notre-Dame wordt over precies een jaar heropend
+-  Dopis Santovi: Ukrajinci předali Američanům seznam zbraní, které by rádi dostali
+-  Ton-up Avishka puts SSC in command
+-  "GLEDAO SAM GA NA PLAŽI, NE MOŽE DA DIGNE STOLIČICU" Tramp: Bajden je u lošem fizičkom stanju i okružen je okrutnim ljudima
+-  Başkan Pekyatırmacı, Cuma Buluşmaları'nda Bedir Mahallesi'nde vatandaşlarla bir araya geldi
+-  Corona-Zahlen im Landkreis Region Hannover aktuell: Neuinfektionen für Landkreis Region Hannover, Niedersachsen und Deutschland
+-  Euroligue: Monaco renversera-t-il Zalgiris pour faire oublier sa défaite à Belgrade? Réponse ce vendredi soir
+-  Nenechám se umlčet. Bartošová okomentovala konec dua s Witowskou ve Spotlight
+-  Corona-Zahlen im Landkreis Wolfenbüttel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
