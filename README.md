@@ -1,11 +1,51 @@
 # Latest News
--  استشهاد مؤسس حملة (نحن لسنا أرقام)
--  اتهام نجل بايدن بالتهرب الضريبي
--  من الأقرب لاعتلاء عرش كرة القدم؟
--  Aparatoso choque en el periférico De la Juventud
--  Postergan explicación por cifras de personas desaparecidas
--  ताप्लेजुङको उच्च हिमाली क्षेत्रमा हिमपात हुँदा किसान खुसी
--  जथाभावी शतबीज नछर्न पशुपति क्षेत्र विकास कोषको आग्रह
--  पर्यटकको रोजाइमा महाकाली पुल
--  पार्टीमा साझा धारणसहित जनताको मुद्दा उठाउन आवश्यक छ: सभापति थापा
--  Sabor danas raspravlja o sudjelovanju hrvatskih vojnika u aktivnostima NATO-a u Poljskoj, Mađarskoj i Bugarskoj
+-  Microsoft нашла фейковые видео звезд Голливуда о «наркомании Зеленского»
+-  Gözler zam pazarlığına çevrildi: İşte asgari ücreti belirleyecek 3 madde!
+-  Kuryelik mesleğine yeni düzenleme geliyor
+-  Bakan Yerlikaya duyurdu! Yılbaşı öncesi 81 ilde operasyon
+-  Guyana ordusuna ait helikopterin düşmesi sonucu 5 asker öldü
+-  İstanbul'da binanın çatısında yangın çıktı
+-  BM Genel Kurulu, Filistin lehine 5 kararı kabul etti
+-  Beyaz Saray: Gazze'de yeni bir insani ara yakın değil
+-  İETT otobüsünü iterek durdurmak isteyen şoför aracın altında kaldı
+-  İstanbul'da taksi takla attı: 1 yaralı
+-  Oyuncu Filiz Taçbaş, belediye başkanlığı için aday adayı oldu!
+-  Kocaeli'nde bariyerleri aşan tır karşı şeritte durabildi!
+-  Miray Daner'den sosyal medya yorumu
+-  İstanbul'da ambulansa yol vermeyen sürücüye ceza!
+-  Dolar-Euro kuru bugün ne kadar? (Serbest piyasada döviz fiyatları)
+-  Jandarma Genel Komutanlığı 29 devlet memuru ve 11 sözleşmeli personel alacak!
+-  Gram altın fiyatı bugün ne kadar? (Serbest piyasada altın fiyatları)
+-  Kız arkadaşının kaburgasını kırdı, adli kontrol şartıyla serbest bırakıldı!
+-  Karayollarında son durum
+-  Deutsche Bahn: Streik legt Deutschland lahm – diese Reisenden trifft es besonders schlimm
+-  Bursa'daki markette 9 yaşındaki kız taciz edildi
+-  곤지암렌탈샵 '겨울이야기', 보유장비 및 의류 신상품 교체 완료 및 이벤트 진행
+-  오산시, 2023년 하반기 수돗물평가위원회 개최
+-  스코코, 지문과 화질을 동시에 잡은 지문방지 AR 보호필름출시
+-  매직큐브, ‘2023년도 경기도 유망중소기업’ 인증서 및 현판 수여 받아
+-  한국중소기업발전협회X신한투자증권X디폰, 업무협약 통해 IPO 본격 착수
+-  ‘신건호멸치’, 2023 한국소비자베스트브랜드대상 1위 수상
+-  '나를 두고 아리랑'의 작곡가 겸 가수 김중신 별세
+-  제니하우스 22주년 자선기부행사 참석한 배우 임세미, ‘따뜻한 미소’
+-  İsrail hərbçiləri Bakiratı həbs etdi
+-  충남도의회 김명숙 의원, 공직선거법 위반 혐의 2심 당선 무효형
+-  Мениджърът на Тотнъм след загубата от Уест Хем: Липсваше ни увереност в наказателното поле на съперника
+-  Intra-day update: rupee sees marginal gain against US dollar
+-  Ambadas Danve : आमच्यासोबत असताना देशद्रोही, तुमच्यासोबत देशभक्त? दानवेंचा फडणवीसांना सवाल
+-  मुहासे कैसे दूर करें जाने घरेलू नुस्खे
+-  Tom Swift Season 1 Streaming: Watch & Stream Online via HBO Max
+-  Will Mahua Moitra Be Expelled From Lok Sabha? Ethics Panel Report To Be Tabled In Parliament Today
+-  Končno prihajajo dobre novice!
+-  في يومها الـ63..الحرب على غزة لحظة بلحظة
+-  하이로닉 "브이로리프팅 HIFU+RF 결합 시술 시너지 효과 입증"
+-  WhatsApp Rolling Out Disappearing Voice Messages Globally. How To Use It
+-  Sanjay Raut Khichdi Scam : कोविड काळातील खिचडी घोटाळ्याचे धागेदोरे राऊतांच्या कुटुंबापर्यंत?
+-  Опрос "Mаарива": "Ционут Датит" снова над электоральным барьером за счет мандатов "Ликуда" и "Махане Мамлахти"
+-  Anwar Usman Absen saat Pengucapan Sumpah Hakim MK Ridwan Mansyur di Istana Negara
+-  संसद से इस्तीफा देने वाले भाजपा सांसदों को घर खाली करने का नोटिस
+-  معظم المصارف ستذهب الى الإفلاس إذا أُقرّت هذه الموازنة!
+-  Why Investors Are Running Away From Nigeria — Peter Obi
+-  3 nəfərin öldüyü hadisə ilə bağlı təsirli fakt...
+-  Confirma Fitch nota crediticia con perspectiva estable de México
+-  Google Unveils Powerful New AI Said to Out-Think ChatGPT
