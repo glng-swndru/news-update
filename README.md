@@ -1,51 +1,51 @@
 # Latest News
--  Lekárka prezradila, čo sa stane s vaším telom, ak prestanete mať sex: Hrozivé následky CELIBÁTU
--  Fitting into flannel fashion: A style guide for Mumbai`s ever-changing weather
--  India calls outcomplicity in "suppressing activities of transnational criminals"
--  Biden holds talks with Netanyahu, emphasises `critical need to protect civilians
--  Dharmendra Birthday 2023: Esha Deol shares candid pictures with `darling papa`
--  Earthquake of magnitude 5.8 jolts Mexico
--  "India strategic partner but those behind assassination plot need to be..."
--  PM Modi cannot be forced to take actions contrary to Indian interests: Putin
--  Džūlija Robertsa atklāj, kāda tagad izskatās viņas jaunā pasaule
--  푸라닭치킨, 12월 '먹보드 TOP 100' 이벤트 진행
--  조오순 화성시의원 “쌍봉산 근린공원, ‘쌍봉산 3.1만세공원’으로 바꿔야”
--  [인사] 호반그룹
--  대전시, ‘제50회 관광의 날 기념행사’ 개최
--  진주경찰서, 노인일자리참여자 대상 교통안전 및 보이스피싱 예방교육 실시
--  한국타이어 독점 공급 ‘2023 한국 12시 쿠웨이트’ 대회 개최
--  진주시 명석면 농민회, 직접 기른 ‘나눔 쌀 ’기부로 이웃 사랑 실천
--  대전시, 2023년 제18회 대전 자원봉사자의 날 기념식 개최
--  의왕시, 버스정류장 겨울 한파대피소로 활용
--  대전시, 2024년 고향사랑기부제 답례품 공급업체 선정
--  진주시 명석면, 산불 진화 모의훈련 실시
--  진주시, 2023년 농어업인수당 12월31일까지 사용 당부
--  대전시, 2035 도시재생전략계획 수립 공청회 개최
--  상일조경나무병원(주), 상주시장학회 장학금 기탁
--  이석봉 대전시 경제과학부시장 퇴임
--  국립낙동강생물자원관, 인권영향평가 5년 연속 ‘우수’ 등급 달성
--  강원도교육청 교육연수원 횡성분원, 미래 역량 강화 직무연수 실시
--  양산시, 행정안전부 주관 ‘국민행복민원실’ 재인증
--  진주미래인재학습지원센터, 제11기 꿈키움봉사단 워크숍 개최
--  강원도교육청, 2023년 마지막 인스타그램 이벤트 진행
--  하나은행, 군인공제회와 '퇴직급여 대여' MOU
--  서울 화곡·둔촌동 등 6곳, 모아타운 심의 통과…주택 7000호 공급
--  김해시, 제18회 경남자원봉사자대회 대거 수상
--  우리은행, 내년 첫 국민연금 받는 1961년생 대상 이벤트
--  국립춘천숲체원, 마을 안전공동체 운영 통한 안전보건 개선 활동 추진
--  EU-Beitrittsverhandlungen: Selenskyj wartet auf EU-Entscheidung
--  Plasminogen Activator Inhibitor 1 drugs in development, 2023
--  The Game Awards 2023 - Baldur's Gate 3 walks off with Game of the Year and five other awards
--  सडकले पदमार्ग मासिएपछि धुलो र धुवाँले पर्यटकलाई सास्ती
--  सुनसान बन्दै नार्पाभूमि
--  चुहावट नियन्त्रणले बढ्यो नगरको आम्दानी
--  बन्दीपुरकी एक महिला छोरी सहित बेपत्ता
--  नारायणगढ–बुटवल सडक : आधा काम पनि सकिएन
--  जनताका समस्या र चाहनाको सूची तयार गरौँ : नेत्री गुरुङ
--  बराहक्षेत्रको कात्तिकेमेलामा झण्डै चार लाख तीर्थालु
--  N Sulphoglucosamine Sulphohydrolase drugs in development, 2023
--  CJ라이브시티 사업 정상화, 안 하는 걸까 못 하는 걸까
--  434억 대 147억...尹정부, 엑스포에 文의 3배 쓰고 참패했다
--  Veteran Bollywood actor Junior Mehmood dies of stomach cancer at 68
--  Leptin Receptor drugs in development, 2023
--  AWS, 서플라이 체인 위한 신규 기능 발표…공급망 최적화 지원
+-  Cae presunto extorsionador ligado a La Unión Tepito; le encontraron droga
+-  Taiwán detecta un globo de China cerca de la isla
+-  NY Subliners vs LA Guerrillas Betting Tips & Predictions
+-  Joint Himalayan Declaration handed over to President
+-  Black Myth: Wukong gets August 2024 release date
+-  অন্তরঙ্গ মুহূর্তের দৃশ্য নিয়ে আলোচনায় তৃপ্তি
+-  'Your body knows': Raiders star opens up on why this is his last NRL season
+-  ‘AP didn’t utilise funds for control of narcotics’
+-  Rò rỉ clip MONO vừa nhảy vừa hát cực sung siêu hit trong quân ngũ
+-  Monster Hunter Wilds - Die Jagd geht im Jahr 2025 weiter
+-  Le pari gagnant - 08/12/2023
+-  Muere motociclista tras ser embestido por automóvil qué volcó en la VCarranza
+-  Fueron plagiados de balneario jóvenes de Celaya, revela FGE
+-  'Reducción de jornada laboral pone en riesgo a microempresas'
+-  Израиль подвергся обстрелу со стороны Сирии и Ливана
+-  Former Karnataka Minister Kimmane Ratnakar urges RSS to distribute copies of Manusmriti so that its supporters realise what the text actually states
+-  Woodstock High School graduate composes song to be performed by students Thursday
+-  Woodland boys, Earlville girls notch Thursday night road wins: The Times Area Roundup
+-  Hunter Biden hit with federal charges for evading tax
+-  [서울교통공사, 사당별관 휴게공간 리모델링…7일 개소식
+-  [특허청, 지식재산으로 유망스타트업에 날개
+-  [“공갈 협박” vs “상습 폭행”…야구선수 김하성·임혜동 진실공방
+-  [조폐공사, 한국감사인대회 '사회적가치 실현 최우수' 등 3개 부문 수상 영예
+-  Τζον Λένον: «Ή από αεροπορικό δυστύχημα θα πάω ή από σφαίρα τρελού θαυμαστή μου»
+-  백악관 "이스라엘에 가자지구 공세 시한 제시 안했다"
+-  Daftar Tim yang Lolos ke Babak Grand Final Livoli Divisi Utama 2023
+-  Народные приметы на 9 декабря: что нельзя делать в этот день
+-  Oswego girls bowlers stay unbeaten in SPC duals: Record Newspapers sports roundup for Thursday, Dec. 7
+-  Самолет, экстренно вернувшийся из-за неисправности в Новосибирск, задержали на 7 часов
+-  अर्थमन्त्रीको सुझावपछि मौद्रिक नीति खुकुलो आउने
+-  ¿Liberación de Alberto Fujimori pondría en riesgo a los TLC con la Unión Europea y Estados Unidos?
+-  Какие церковные православные праздники нас ожидают 9 декабря
+-  Slumping Ducks lose to the Chicago Blackhawks
+-  Esta es la razón por la que la Selección Mexicana cambió de rival dos veces en el sorteo de Copa América 2024
+-  Какие международные праздники и памятные дни нас ожидают 9 декабря
+-  Какие праздники отмечают 9 декабря
+-  GDE JE SKRIVENO BLAGO KLANA VELJE NEVOLJE? Čekaju suđenje za pranje para sa ženama, a gradom se širi priča o MILIONIMA ZAKOPANIM U NJIVAMA
+-  Vino G Bastian Kaget dan Kehilangan Atas Meninggalnya Yayu Unru
+-  PMGC-2023: Дэлхийн аваргын финалд Монголын гурван баг тоглоно
+-  Nam Em tiết lộ đã lên chức mẹ, nói lời xin lỗi con khiến dân mạng xôn xao
+-  اقتحامات إسرائيلية ليلية تقض مضاجع الفلسطينيين بالضفة
+-  Гороскоп на 9 декабря 2023 года: что обещают астрологи
+-  Kim Jong Un Menangis Minta Wanita Korut Melahirkan Banyak Anak
+-  Black Magic are top of the ladder after round three win
+-  Включите свет: в Москве начали производить светодиоды для наружного и внутреннего освещения
+-  CSU-Spitzenkandidat: EVP-Chef Weber will Verbrenner-Aus kippen
+-  Siudy Garrido bailó su magia flamenca en Guatemala
+-  Liga Élite de Béisbol: Gallos aseguran duelo ante las Avispas
+-  Народные приметы на 9 декабря: что нельзя делать в этот день
+-  Какие церковные православные праздники нас ожидают 9 декабря
