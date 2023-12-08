@@ -1,11 +1,11 @@
 # Latest News
--  القسام تفجر منزلا تحصن فيه عشرات من جنود الاحتلال
--  المقاومة تلحق خسائر كبيرة بجيش الاحتلال
--  تعرض أسير أردني لاعتداء وحشي في سجون الاحتلال
--  الاحتلال يعترف بفشله في الوصول إلى جندي أسير
--  (القاضي الرحيم) يعلن إصابته بالسرطان - فيديو
--  المقاومة تكشف تفاصيل فشل تحرير الاسير ساعر باروخ - فيديو
--  نوع من البذور قادر على خفض خطر الإصابة بسرطان الثدي
--  SDP dismisses involvement in rumoured coalition against Tinubu
--  ‘Party animal’ tennis star Nick Kyrgios hits Miami Art Week, but may stay in because, ‘I don’t know when to stop’
--  SHMÚ varuje pred hmlou v niektorých častiach Slovenska
+-  Sysinternals Suite 2023.07.12
+-  Denmark Announces Groundbreaking US$6.5 Million Contribution to Education Cannot Wait to Scale-Up Education Response to the Climate Crisis
+-  علماء يبتكرون روبوتات صغيرة جدًا تساعد في التئام الجروح
+-  5 طرق بسيطة تحميك من الإصابة بالسكري.. تعرف عليها
+-  장혜영middot;박지현, 이준석 겨냥 quot;'집게손 논란' 편승 정치인, 지도자 자격없어quot;
+-  '김건희 특검법' 발의 엿새만에, 영부인은 천연덕스레 '명품백'을 받고 있었다
+-  진중권 quot;이해찬의 '최소 과반, 최대 200석' 발언, 허풍 아니다quot;
+-  Как Джорджина Родригес и Криштиану Роналду украсили дом к Рождеству. Видео
+-  Israel defiende la detención masiva de gazatíes en su intento de acabar con Hamás
+-  Israel defiende la detención masiva de gazatíes en su intento de acabar con Hamás
