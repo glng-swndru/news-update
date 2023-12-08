@@ -1,11 +1,11 @@
 # Latest News
--  충남도, 2조8000억 항만 개발 밑그림
--  충북도 재향군인회, 임·직원 연찬회
--  홍성군, 3기 유소년 승마단 단원 모집
--  홍성소방서, 충남도 소방관서 청렴도 평가 ‘1위’ 영예
--  예산군, 2023년 제3회 추가 경정 예산 9239억원 확정
--  예산소방서 ‘작은 영화관’서 직장 교육
--  논산시, 건양대 사거리~은진면 교촌리 왕복 4차로 개통
--  National Assembly approves Supreme Court chief justice nominee
--  KDIC chief vows to strengthen crisis response monitoring system
--  Mexiko zasiahlo zemetrasenie s magnitúdou 5,8: Škody zatiaľ neboli hlásené
+-  "딸기 비싸서" 카페 시즌 음료 가격 인상…뷔페도 2인 30만원 육박
+-  세븐틴, 빌보드 日 연간 차트 싹쓸이
+-  [게임소식] 넥슨, 팀 기반 FPS 게임 '더 파이널스' 글로벌 출시 외
+-  방탄소년단 정국, 日 레코드협회 ‘플래티넘’ 인증 획득…"솔로로는 처음"
+-  샤이니 민호, 첫 팬 콘서트 포스터 공개…기대 UP
+-  चक्रवात मिचोंग ने मचाई तबाही, केंद्र सरकार ने बढ़ाया मदद का हाथ
+-  Hamann schäumt vor Wut: Nagelsmanns Stadionbesuch mit Freundin spaltet Experten
+-  ABD Büyükelçiliğine roketli saldırı
+-  La reunión entre Sánchez y Feijóo queda condenada a una foto por el choque sobre contenidos y metodología
+-  Ornitologa padomi, kā pareizi pabarot putnus ziemā
