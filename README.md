@@ -1,51 +1,11 @@
 # Latest News
--  Los Angeles Lakers e Indiana Pacers fazem grande final da NBA Cup; assista pela ESPN no Star+
--  Fredag eftermiddag lander et tal som kan rykke markedet: 'Navnet siger det jo meget godt'
--  #CANLI Cumhurbaşkanı Erdoğan açıklamalarda bulunuyor
--  Осуденик вознемирувал и демнел обвинителка, па заврши во притвор
--  Rəqqasə Fatimənin avtomobili yandı: “Gözəllik üçün etmişdim”
--  Не му оди географија: Фримпонг го утна македонското знаме (ВИДЕО)
--  The Year in 'Sensitive Content'
--  The Year in 'Sensitive Content'
--  Israel Says It Detained Hundreds of Terrorism Suspects in Gaza
--  Israel Says It Detained Hundreds of Terrorism Suspects in Gaza
--  World's Stinkiest Cheese Hits Supermarket Shelves in Britain
--  World's Stinkiest Cheese Hits Supermarket Shelves in Britain
--  Sähkövikoja ja jäätyneitä ovia – Kysyimme, miten Lappeenrannan joukkoliikenne pärjää pakkasilla
--  अतिक्रमित घर टहरा हटाउन सुरु
--  एनसेल प्रकरणमा राजनीतिक र प्रशासनिक नेतृत्वको साँठगाँठ छ : महामन्त्री थापा
--  भारतबाट ल्याइएका अवैध राँगा नियन्त्रणमा
--  अवैध दुई केजी सुनसहित तीन जना पक्राउ
--  Burriana acoge la exposición ‘El Universo Playmobil’
--  Russia's Vladimir Putin says he will run for President again in 2024
--  بالصور.. 15 خريجًا في الدفعة الأولى من المعسكرات العُمانية السعودية الرقمية
--  Fenerbahçe'de şaşırtan ayrılık. Resmen açıklandı
--  Timișoara, orașul pionier al Europei în transportul cu tramvaie trase de cai
--  Ünlü şarkıcı hastalığını açıkladı!
--  DİSK'ten asgari ücret açıklaması
--  Prisca Chesang, ganadora de la San Silvestre, suspendida tras dar positivo
--  Рақобат қўмитаси Yandex Go'нинг бозордаги устун мавқейини тан олди.
--  Η ΑΠΟΣΤΟΛΗ της ΑΕΛ
--  Meteoroloji’den 8 il için kuvvetli sağanak uyarısı. Yer yer kar şeklinde olacak
--  Putin will seek another presidential term in Russia, extending his rule of over two decades
--  Không yêu cầu xuất trình sổ hộ khẩu, tạm trú khi làm thủ tục hành chính về bảo hiểm
--  OVO JE ARKANOVA ĆERKA ANĐELA! Dobio ju je sa GLUMICOM, volela je ŽESTOKOG MOMKA, a evo u kakvim odnosima je sa Ražnatovićima
--  الرواية الأمازيغية في الريف: من السرد القديم إلى الرواية الجديدة
--  TP.HCM kêu gọi đầu tư 41 dự án theo phương thức PPP
--  Žena skidala stare tapete u kući i otkrila tajnu poruku ispisanu preko cijelog zida: 'Ponovo ćemo je sakriti'
--  Nepričakovana smrt lihtenštajnskega princa Constantina
--  सोमासी विद्यालय में विद्यार्थियों को किया स्वेटर वितरण
--  Burgemeester Den Bosch niet vervolgd, OM seponeert aangiften
--  Another 46 archaeological pieces returned to Mexico from U.S.
--  Sắp xếp vị trí việc làm nhưng không làm tăng biên chế
--  Diogo Ribeiro bate recorde nacional e está nas 'meias' dos Europeus de piscina curta
--  Light No Fire: Everything we know so far about the next game from No Man’s Sky developer
--  Ra mắt bộ công cụ đánh giá chuyển đổi số quốc gia ngành công nghiệp hỗ trợ
--  LTG: Nghị quyết Đại hội đồng cổ đông bất thường lần 1 năm 2023
--  UK antitrust regulator reviewing Microsoft, OpenAI partnership
--  Burgemeester Den Bosch niet vervolgd voor Marokkanen-uitspraak
--  التحقيق في العثور على جثة شاب أسفل عقار بالجيزة
--  Κασσελάκης για τον τραυματισμένο αστυνομικό: «Η σημαία της ασφάλειας που διαφήμιζε η κυβέρνηση έχει υποσταλεί εδώ και καιρό»
--  Камоцци высказался о возможном назначении Рибалты на должность спортивного директора «Спартака»
--  Вышел новый трейлер боевика «Годзилла и Конг: Новая империя»
--  RADNIKA RASKOMADALA DROBILICA: Užasavajući snimak, završio u mašini sa 80 tona otpada, policija nije mogla da pronađe telo (VIDEO)
+-  André Rieu en Wonka in bioscoop
+-  Events today – Dec. 8: Indian Heritage Cities Network
+-  СМИ: О передвижениях ликвидированного предателя Кивы знали всего двое
+-  NEW: Top chanters headline Soul Jah Love commemoration
+-  VIC: CBTT về việc phát hành cổ phiếu ESOP
+-  “The corruption level just keeps increasing. How can we keep trusting this VAR when they are not doing the right thing. We cannot keep on doing this.” – Chelsea defender criticizes VAR following an incident against Manchester United and the FA are planning to take action about this whole situation.
+-  IND vs SA 1st T20I: साउथ अफ्रीका के खिलाफ पहले टी20 मुकाबले में इन दिग्गजों के साथ मैदान में उतर सकती हैं टीम इंडिया, प्लेइंग इलेवन पर एक नजर
+-  Reiganas apsiverstų kape - kas vyksta JAV Senate
+-  [ŽT] Didžiulis gaisras Kryme. „30 tūkstančių gyventojų be dujų.“ Kas vyksta (Video)
+-  [ŽT] „100 000. Jie imsis sabotažo.“ Skelbiamas slaptas įsiskverbimas į JAV. Kas vyksta (Video)
