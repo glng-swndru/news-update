@@ -1,11 +1,51 @@
 # Latest News
--  Deze kabeldieven slaan slag van tienduizend euro; politie deelt beelden bij Opsporing Verzocht (video)
--  제주도 아시아국가들과 에너지·관광 등 연대 협력 강화
--  전국 17개 시·도 부단체장들 모여 '빈집 활용 방안' 모색
--  정당한 교사의 교육활동 보장 방안은?
--  Aussie breaking star wows crowd
--  Bakan Göktaş: 'Ödemeleri bugün yatırıyoruz'
--  Матвейчев убежден, что безопасность на выборах президента обеспечат по всей РФ
--  Kickoff | Man Utd put R4.3bn trio 'up for sale'
--  Kickoff | 'We are not married to any of our players ' - Riveiro issues stern warning to Prates players
--  Viranomainen varoittaa: Lidlin kauppojen hyllyiltä vedettiin pois jouluinen elintarvike
+-  Telefonisch spreekuur voor hulp bij gebruik van het openbaar vervoer
+-  Edwin Grünholz verlengt contract bij Kozakken Boys: 'De juiste stap'
+-  Une analyse du Prof. Rafaâ Ben Achour : Le statut en droit international du territoire palestinien
+-  Miško ruošos ateitis: Kaip akumuliatorinis pjūklas keičia žaidimą
+-  I’m A Celeb Winner Revealed Days Before Live Final After Fans Spot Secret Eviction Clue
+-  স্কুইড গেম: ৫০ কোটি টাকা জিতলেন ৫৫ বছরের নারী
+-  विदुर नीति में पंडित और पांडित्या के बारे में विशिष्ट बातें
+-  Bakan Göktaş açıkladı: Bugün hesaplara yatacak
+-  İsrail Savaş Kabinesi'ndeki Eisenkot'un asker oğlu Gazze'de öldürüldü
+-  लुम्बिनीलाई बौद्ध अनुसन्धान केन्द्रका रुपमा स्थापित गर्न आग्रह
+-  티피링크, 16채널 비디오 녹화기 ‘비지 NVR2016H’ 출시
+-  AGG: Nghị quyết HĐQT về việc chấp thuận bảo lãnh cho toàn bộ nghĩa vụ của CTCP Đầu tư BĐS Lê Gia
+-  C47: Nghị quyết HĐQT về việc thông qua kết quả đợt phát hành cổ phiếu để trả cổ tức năm 2022
+-  HNX: Kết quả giao dịch Trái phiếu doanh nghiệp ngày 08/12/2023
+-  HTC: Ngày đăng ký cuối cùng trả cổ tức bằng tiền mặt
+-  VLA: Thông báo thay đổi số lượng cổ phiếu có quyền biểu quyết đang lưu hành
+-  KLF: CBTT kết quả cuộc họp ĐHĐCĐ bất thường năm 2023 lần thứ nhất
+-  Gautam Rode And Pankhuri Awasthy Share Fun Clips With Their Twins Radhya, Raditya
+-  Melonjak Tak Wajar, Saham Petrosea dan Chandra Asri Dipantau Ketat BEI
+-  Elon Musk issues warning to Taylor Swift as singer is crowned Person of the Year: 'I speak from experience'
+-  Медведев предупредува: Ќе се пролеат реки кpв ако…
+-  우리금융, '핀셋형' 조직개편…은행 신사업제휴추진부 신설
+-  Financiering ambitieuze plannen Elia nog vraagteken
+-  কিউই শিবিরে নাঈম হাসানের জোড়া আঘাত
+-  নিষিদ্ধ হতে পারে ব্রাজিলের ফুটবল!
+-  সৌদি আরবে যুদ্ধবিমান বিধ্বস্ত, নিহত ২
+-  ৮ রান লিড নিয়ে থামল নিউজিল্যান্ড
+-  আগামী সপ্তাহে কমবে তাপমাত্রা
+-  Alperen Duymaz iddialı diziyle el sıkıştı
+-  Navi Mumbai: 'Mentally Unstable' Beggar Smashes Beer Bottle on Girl's Head, Stabs Her With Broken Pieces
+-  After Animal, Tripti Dimri To Share Screen With Prabhas In Sandeep Reddy Vanga's Spirit? Here's What We Know
+-  By: Lily Baker
+-  Why a Woman Broke Up with Her Boyfriend for Not Bringing Toilet Paper When Needed
+-  Bude to mať dohru? Kolíková otvorene, či sa obáva prešetrenia prípadu smrti generála Lučanského (video)
+-  X Factor 2023: vincitore, bordata Morgan, addio Dargen, omaggio ad Ambra
+-  Situasi Terkini Malaysia yang Kembali Dihantam Kenaikan Kasus COVID-19
+-  Izraelske snage ubile pet Palestinaca na Zapadnoj obali
+-  Hakim MK Ridwan Mansyur Ucapkan Sumpah Jabatan di Depan Jokowi
+-  Borsa svizzera: ultima seduta settimana apre in rialzo
+-  Deutsche Bank hebt Airbus auf 'Buy' und Ziel auf 152 Euro
+-  Soccerladuma | Okocha Gets Behind Pitso For Top African Job
+-  Bu zam ocakları tek tek söndürecek! Mutfak tüpü yine zamlandı: İşte güncel tüp fiyatları
+-  خوشخبری ،ڈالر سستا ہوگیا ، قیمت جانیں خبر میں
+-  중학생이 카페 화장실서 불법촬영...늘어나는 몰카 범죄
+-  총선 전선서 중진 이탈한 대전 野…표심 확보 변수 부상
+-  Depremde hasar gören yedi katlı bina yıkım sırasında çöktü
+-  PM Modi Set to Launch Mission 2024 from Varanasi, Inaugurate Projects Worth Rs 1,000 Crore
+-  At Close of Business December 8 2023
+-  नई जेनेरशन महिंद्रा बोलेरो अगले 3-4 सालों में होगी लॉन्च
+-  Sister of Ruth Perry says Ofsted has not apologised for ‘causing’ her death
