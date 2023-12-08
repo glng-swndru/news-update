@@ -1,51 +1,51 @@
 # Latest News
--  Soccerladuma | Ten Hag Makes Major Sancho Claim After Fallout
--  Retoman audiencia masiva de Aras
--  Homicidios baten récord en 2021; países de AL lideran lista
--  Maquilas y construcción elevan el PIB a récord
--  Debe prevalecer legalidad en TEPJF: Gálvez
--  Continúan comparecencias de directores municipales con regidores
--  Busca Putin un quinto mandato en Rusia
--  Organizan posada a niñas y niños en Baquiriacha, Balleza
--  最受矚目的新一代男神！《小曉》劉俊謙：演戲的最大價值，就是透過角色認識自己
--  日本少子化，仍有私校搶破頭也難進！除敢給薪資，有什麼可借鏡？
--  2024跨年去哪？煙火地點、演唱會卡司，北中南活動一次看
--  台積電設廠，德國半導體補貼不會跳票？默克：「通常」會實現
--  Dausa Minor Rape: রাজস্থানে ধর্ষিতা ৫ বছরের শিশুকন্যা, ভিডিয়োতে শুনুন পুলিশের বক্তব্য
--  «مخاوف التهجير»... هل تدفع علاقات مصر وإسرائيل إلى «مُفترق طُرق»؟
--  عاصفة فولف تثير الجدل… وهاميلتون يدعو للتغيير في فيا
--  Primeiro-ministro da Hungria defende que Ucrânia é "um dos países mais corruptos do mundo"
--  The Rundown: Tom Cruise, Send Me The Holiday Cake
--  Sprema se akcija vraćanja Boysa iz Grčke: Ključna stvar se skriva, a spominje se aranžman avionom
--  Dışişleri Bakanı Fidan: Sorun artık İsraillileri ve Filistinlileri aşıyor
--  Мицин остана осми във финала на 200 м бътърфлай, Ное Понти спечели златото
--  Semifinales Apertura 2023: Qué necesitan Xelajú, Comunicaciones, Zacapa y Guastatoya para clasificar a la final
--  Southern Africa – Visit by Chrysoula Zacharopoulou (11-18.12.23)
--  Ukraine – France condemns Russian missile strikes in Ukraine (08.12.23)
--  Armenia / Refugees from Nagorno-Karabakh – France announces €15 million in additional aid (08.12.23)
--  Israel/ Palestinian Territories – Construction of housing units in East Jerusalem (08.12.23)
--  Armenia/Azerbaijan - Q&A (08.12.23)
--  Kevin Kühnert zum SPD-Generalsekretär wiedergewählt
--  PPK asegura que no fugará si le permiten viajar para control médico: “Regresaré”
--  La propuesta de El Salvador para atraer inversión en bitcóin con programa de visas
--  Bahnstreik: Deutsche Bahn will am Samstag das normale Angebot fahren
--  Neue Werke in Indien: So versucht Apple den Exit aus China
--  La extraña enfermedad que se propaga en Uruguay y que tiene en alerta a los expertos
--  E-ticaret üzerinden sahte dekontla 400 bin TL'lik vurgun: Eş zamanlı operasyonlarla yakalanan beş şüpheli tutuklandı
--  Venezuela entregó ante la Caricom resultados del referendo consultivo
--  El 2023, año en que la prolongada sequía disparó las alarmas en el canal de Panamá
--  Coach rechtfertigt sich: Terzic droht der Krisen-BVB endgültig zu entgleiten
--  Odvoz otpada u Zagrebu još uvijek otežan
--  Pregnant woman in Kentucky sues for the right to get an abortion
--  Itt a vég: feladhatják a harcot az ukrán katonák, döbbenetes fordulat
--  Pauline (Mariés au premier regard) : son adorable déclaration pour les six mois de sa fille Valentina
--  Bundesrat will mit Anpassung der Medikamentenmargen Kosten sparen
--  I got the shock of my life going through my late wife’s belongings
--  Transferts : L'OM reçoit une première réponse de ce crack
--  I got the shock of my life going through my late wife’s belongings
--  Élections européennes. Dans six mois, le scrutin : quels seront les grands thèmes de la campagne ?
--  Élections européennes. Dans six mois, le scrutin : quels seront les grands thèmes de la campagne ?
--  Celtic star Mikey Johnston ‘arguably most talented player that’s EVER come out system here’ says Brendan Rodgers
--  Widow of Console founder Paul Kelly pleads guilty to fraud probe charge as she appears in court
--  Foutje, bedankt: gemeente maakt bijna zes ton teveel energietoeslag over
--  മലപ്പുറം സ്വദേശി റിയാദിൽ അന്തരിച്ചു
+-  Raad gaat zelf voorstel maken voor giften na een calamiteit
+-  6 koraka za održavanje smislenih i produktivnih sastanaka
+-  El HispaNICE exige transparencia con metodología más allá de ministerios
+-  오타니, 토론토행 비행기 탑승하나… 美 기자, 오타니 캐나다행 암시
+-  AWZ-Vorschau: So geht es ab Montag, 11.12.2023 weiter
+-  „Berlin – Tag & Nacht“-Vorschau: So geht es ab Montag, 11.12.2023 weiter
+-  ¡Ten cuidado! Sigue estas recomendaciones del IMSS en el uso y manejo de calentones
+-  İkinci 'Laz kızı' vakası: Sosyal medyadan müstehcen paylaşıma gözaltı
+-  WhatsApp, kendini imha eden sesli mesajları "resmi olarak" kullanıma sundu
+-  বগুড়ায় গরুর মেলা
+-  Karlson: SAD su krive za smrt jedne generacije Ukrajinaca
+-  A Fun Spider-Man: Into The Spider-Verse Theory Just Got Shot Down By Phil Lord And Chris Miller: ‘That One Is A Happy Accident’
+-  Koncert povodom 90 godina od rođenja kompozitora Vojina Komadine: Zahtjevnost koja osvaja
+-  తనకల్లును కరువు మండలంగా ప్రకటించాలి
+-  Meghan Markle und Prinz Harry: Ist DIESER Royal ihre letzte Brücke zurück nach London?
+-  CELA DVORANA ZANEMELA:PALA PROSIDBA NA KONCERTU ŽELJKA VASIĆA! Nećete verovati šta je budući mladoženja uradio
+-  Customer sparks FIERCE debate after questioning whether it's 'wrong' not to TIP when you get takeout... so, what do YOU think?
+-  Okan Buruk'tan 4 değişiklik
+-  CDC warns of more infectious mpox strain
+-  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
+-  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
+-  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
+-  Küçük Tunahan'a köpek saldırısının boyutu: Vücudunda parçalanmayan yer yok
+-  ధరణి ఉద్యోగుల చేతివాటంపై ఎక్కడి వారు అక్కడే..
+-  Unlikely Underdogs: Pacers vs. LeBron’s Lakers in NBA Season Tournament Championship
+-  Ryan Gosling kindly helps a fan to her feet as a barrier falls over outside In Conversation about Barbie Q&A event at BFI Southbank
+-  Delhi Cabinet Shuffle: AAP Minister Kailash Gahlot Loses Law Portfolio to Atishi Day After Lt Guv Recalls Files
+-  Natation (championnat d’Europe en petit bassin): "Un pas énorme l'année des Jeux", Gastaldello en or sur 100m
+-  Innert gut einer Woche zehn Wölfe im Wallis abgeschossen
+-  AI-powered 'Nudify' apps that digitally undress fully-clothed teenage girls are soaring in popularity
+-  Forum Editorial: Doug Burgum faced long odds in his presidential race, but ran for the right reasons
+-  చట్టాలపై అవగాహన పెంచుకోవాలి
+-  Liveticker: Ukraine-Krieg aktuell – alle News (Freitag, 08.12.2023)
+-  Liebschaft unter Richtern: Kieler Anwalt wirft Kammer in Itzehoe Befangenheit vor
+-  La Reale Mutua Fenera Chieri ’76 torna a Firenze per la sfida col Bisonte
+-  La 3a di ritorno si apre con Cremona-Olbia
+-  Think He Has Started to Run on The Pitch: Pep Guardiola Gives Kevin De Bruyne's Injury Update
+-  Sikandar Raza nears Virat Kohli T20I record
+-  Man Tells Wife to Stop ‘Using Him Like an ATM’ After She Demands Half His Gambling Winnings
+-  House Democrats push White House on easing free contraceptive access
+-  Unerwartetes Wendemanöver: Airbus A330 meldet Luftnotlage über der Nordsee – Flug auf 10.000 Metern Höhe abgebrochen
+-  Call Of Duty developers take offence at Kratos’ The Game Awards joke
+-  The Sacrifice Game and The Holdovers are 2023’s best Christmas double feature
+-  SD-toppar attackerades på nattklubb i Göteborg
+-  Yeni Şafak'ın sevilen serisi Hafıza'nın yeni sezondaki yedinci bölümü yayında: Tapınakçılar Hollywood'u nasıl ele geçirdi?
+-  Muslera cezalı duruma düştü: Sivasspor maçında oynayamayacak
+-  Galatasaray'da yıldızlar neden kadroya alınmadı?
+-  Holiday photo hunt: How fast can you find Santa's missing red hat?
+-  So steht Holstein Kiel zum geplanten Investoren-Einstieg bei der DFL
+-  Das SEZ: Jetzt droht dem nächsten DDR-Palast der Abriss
