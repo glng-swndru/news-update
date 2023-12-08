@@ -1,11 +1,51 @@
 # Latest News
--  Sri Lanka among top fastest-growing tourism destinations in 2024
--  SL needs system change based on paradigm shift – Janaka Ratnayake
--  Planters call for urgent reforms on sustainable commercial forestry management to offset looming fuelwood shortage
--  President holds talks with Global Tamil Forum, Buddhist monastics
--  CSE ends week on the up
--  Historic step towards setting up Independent Commission for Truth, Unity and Reconciliation
--  Sri Lanka’s first revolving restaurant and banquet hall opens
--  ADB approves $ 200 m to sustain economic stabilisation efforts in Sri Lanka
--  오타니 6억달러 안팎에 토론토행? 확정 아니야…로버츠 돌출발언, 다저스 악재되나
--  NBA In-Season Tournament: How to Watch & Stream the Championship Live from Anywhere
+-  ¡TERRIBLES NOTICIAS PARA CHIVAS! REGRESAN dos de los peores delanteros de la Liga MX a sus filas | FICHAJES 2024
+-  América vs. San Luis: Qué canal transmite y en dónde ver EN VIVO Y EN DIRECTO el duelo por la Vuelta de las Semifinales de la Liga MX
+-  Era socio de ‘El Vaiven’ el ejecutado en bar de la Zona Dorada
+-  Dejan abandonada camioneta con reporte de robo en Parral
+-  Ampliación del relleno sanitario continúa pese a amparo: Bonilla
+-  Avanza construccion de primaria nueva en Vistas de San Guillermo
+-  Investigan hallazgo de un cráneo humano a orillas del río Paraná
+-  ABŞ PUA-sını itirdi
+-  Gol Gatti, l’assist di Cambiaso è un cioccolatino e il difensore fulmina Meret – VIDEO
+-  In Pictures: Out and about at the Limerick Civic Trust Christmas lunch
+-  Baldur’s Gate 3 Honour Mode is traumatizing players: “My heart couldn’t take this”
+-  Teška nesreća u Slavoniji: Dvoje ljudi poginulo u stravičnom sudaru
+-  Raila urges international allies to stop Kenya Kwanza excesses
+-  Wife of banker facing charges before US court accuses Kenya police, civil society of failing to help her
+-  Mercato Juve, Van Bommel esce allo scoperto sul suo baby talento: «Sarà difficile trattenerlo»
+-  Bank bosses face sanctions for forex manipulation in probe
+-  EACC goes after Uhuru men over botched Sh6 billion Telkom sale
+-  ХаRIZZма - ХаRIZZма - тайна съставка, за да си успешен
+-  Probabili formazioni Atalanta Milan: le possibili scelte di Pioli
+-  とんこつスープに超極細麺が特徴 ラーメン鶴亀堂が5周年キャンペーン 12月8～10日開催 - 沖縄タイムス＋プラス ニュース
+-  토트넘 안방 3연패에 신난 아스널 레전드…“조금씩 제 자리로 돌아가는 중” 조롱
+-  River choca con Central en la semifinal de la Copa de la Liga: formaciones, hora y TV
+-  Handbalsters winnen op WK ook ruim van Oekraïne en mogen zich gaan opmaken voor kwartfinale tegen topland
+-  O.Próximo.-EEUU veta una resolución en el Consejo de Seguridad de la ONU para pedir un alto el fuego humanitario en Gaza
+-  Težak sudar u Hrvatskoj, dvoje poginulo
+-  Norge klar for VM-kvartfinale: Nora Mørk med jubelbrøl
+-  Овчинников — об обучении Мостового на тренера: пример и образец для многих
+-  MP asegura que las elecciones “deberían de anularse” por supuestas irregularidades en actas de votaciones por parte del TSE
+-  Главным событием телесезона на ТЭФИ назвали работу военкоров ВГТРК в зоне СВО
+-  “El COG no está autorizado para funcionar como Comité Olímpico Nacional”: La contundente carta que el COI le envió a Jorge Rodas
+-  Криштиану Роналду сделал заявление после 1200-й игры
+-  "La sanction n'est pas à la hauteur": l'avocate de la famille Paty déçue après les condamnations de six adolescents
+-  Hollywood star 'set for Strictly's 2024 series after making surprise studio audience appearance and telling bosses they'd love to compete on the show'
+-  طلال چوہدری نے آئندہ الیکشن کیلئے پارٹی سے ٹکٹ نہ مانگنے کا کہہ دیا
+-  Prefeitura de Marília suspende concessão do Daem à iniciativa privada
+-  Gatti ci ha preso gusto: il difensore sblocca Juve-Napoli. Bianconeri avanti 1-0
+-  Best Elite Fast TMs in Pokemon Go: Top moves to upgrade
+-  Mast Mein Rehne Ka Streaming: Watch & Stream Online via Amazon Prime Video
+-  США заблокировали в СБ ООН резолюцию ОАЭ о немедленном прекращении огня в Газе
+-  Liverpool, Klopp preoccupato per le condizioni di Mac Allister: "Non ha un bell'aspetto"
+-  «Una enfermedad terminal»: Baby Etchecopar movilizó a todos los televidentes con el análisis que dejó en A24
+-  Gazze'de insani ateşkes olacak mı? ABD'de veto
+-  هذه آخر معلومة عن الـ100 ألف ليرة الجديدة
+-  If You Decorate It, They Will Come
+-  Tourists paying for tickets to attend Indian weddings
+-  Cartão dos bombeiros já disponível em digital no smartphone…
+-  Xinhua Silk Road : Le festival de collecte de glace commence à Harbin, dans le nord de la Chine
+-  Motociclista choca contra camión de obras y pierde la vida
+-  Téléthon: si ce petit garçon de deux ans peut marcher, c'est grâce aux dons et à la recherche
+-  'Stranger Things' Prepares to Begin Production on Show's Final Season in New Year
