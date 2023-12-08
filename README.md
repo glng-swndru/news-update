@@ -1,11 +1,11 @@
 # Latest News
--  ​Oustaz Oumar Sall est libre !
--  ​Déficit de formation en psychologie : l’UGB veut combler le gap
--  [ŽT] „Nu ką, p****e, patiko Ukraina?“. Žuvęs okupantas tapo tikru lobiu (Video)
--  [ŽT] Venesueloje audra. Atskrenda JAV naikintuvai (Foto)
--  „THAAD?! Jie išprotėjo?“ Slaptos derybos su JAV. Ko paprašė Ukraina
--  „Turėsime palikti Avdijivką.“ 3-4 bangos. „Aidar“ kuopos vadas skelbia, kas nutiko (Video)
--  „Putinas turi vieną ar pusantro mėnesio.“ Kas pastatyta ant kortos
--  „Rusija imasi žaidimo. Pasaulis liepsnoja“
--  Royal Christmas concert pays tribute to John Lennon on anniversary of his death
--  Rare eclipse: Asteroid will pass in front of bright star Betelgeuse Monday
+-  "التعاون الإسلامي" تدين جريمة الاحتلال في مخيمة الفارعة وتوجه رسالة لمجلس الأمن
+-  عاجل.. "الأرصاد" يُحذر من شبورة مائية وضباب بهذه المناطق لـ 9 صباحًا
+-  فعلوا هذا الأمر.. شرطة الرياض تلقي القبض على 3 أشخاص
+-  Committee appointed to conduct independent probe on Chinese fertiliser ship
+-  SL’s passport ranking reflective of its foreign policy – Eran
+-  China supports SME poultry owners with egg incubators
+-  President asks plantation industry to finalise higher wage before New Year
+-  Feriados y asuetos 2024 en Guatemala: cómo serán los descansos y cuántos fines de semana largos tendrá el año
+-  Vancouver mining giant Teck Resources investing in wind-assist for cargo vessel
+-  الإعلام العبري: إصابة 40 جنديا بغزة خلال 24 ساعة
