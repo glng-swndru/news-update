@@ -1,11 +1,51 @@
 # Latest News
--  Wall Street opent licht lager na belangrijk banenrapport VS
--  Macron: de Notre-Dame wordt over precies een jaar heropend
--  Dopis Santovi: Ukrajinci předali Američanům seznam zbraní, které by rádi dostali
--  Ton-up Avishka puts SSC in command
--  "GLEDAO SAM GA NA PLAŽI, NE MOŽE DA DIGNE STOLIČICU" Tramp: Bajden je u lošem fizičkom stanju i okružen je okrutnim ljudima
--  Başkan Pekyatırmacı, Cuma Buluşmaları'nda Bedir Mahallesi'nde vatandaşlarla bir araya geldi
--  Corona-Zahlen im Landkreis Region Hannover aktuell: Neuinfektionen für Landkreis Region Hannover, Niedersachsen und Deutschland
--  Euroligue: Monaco renversera-t-il Zalgiris pour faire oublier sa défaite à Belgrade? Réponse ce vendredi soir
--  Nenechám se umlčet. Bartošová okomentovala konec dua s Witowskou ve Spotlight
--  Corona-Zahlen im Landkreis Wolfenbüttel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Hrvatska udruga digitalnih izdavača osnovala tim za factchecking
+-  Sport | Tackle height lowered at SA schools, club rugby levels in search of player safety
+-  News24 | 'Ethically grounded.' Eskom's new CEO confirmed
+-  Financiación y Primaria, prioridades parlamentarias para la XV legislatura
+-  We might finally know when Apple plans to unveil its USB-C Magic Keyboard, Trackpad, and Mouse
+-  „Dieser starke Schneefall war ungewöhnlich“
+-  Hiszpanie chcą podkraść Polsce wielki talent. Już zainicjowali pierwsze kontakty
+-  Euro: cotización de apertura hoy 8 de diciembre en Costa Rica
+-  Burcu Esmersoy: Evin içinde hep ‘Kocam, kocam’ diye dolaşırım
+-  El papa reza ante un antiguo icono protector de los romanos
+-  Syn zmarłego opozycjonisty Jacka Jerza kwestionuje ustalenia IPN
+-  CDU, FDP und AfD in Thüringen: Aus „Einzelfällen“ wird Methode
+-  Dólar: cotización de apertura hoy 8 de diciembre en Costa Rica
+-  La UE extiende sanciones a personas vinculadas a crisis de seguridad en la RD del Congo
+-  „FAZ“: Fresenius will Reha-Kliniken verkaufen
+-  Bonus Demografi Perkuat Industri Gim di Indonesia
+-  Genshin Impact version 4.3 livestream codes
+-  Путин поручил выделить не менее 250 млн руб. на томограф для центра им. Д. Рогачева
+-  Plantea AMLO consulta en CDMX sobre corridas de toros
+-  Manuel Estrada, el ejecutado en bar 'El Vago'
+-  Detran aprimora fiscalização e recupera 153 veículos roubados em sete meses
+-  Путин поручил выделить 500 млн рублей онкоцентру Хабаровского края
+-  Силы ПВО Израиля перехватили "подозрительную цель", летевшую из Ливана
+-  Ei vieläkään sopua EU:n uusista velkasäännöistä – Yhä kolme kiistakapulaa
+-  생리대에 마약 숨겨 반입한 30대, 항소심에서도 징역 5년…300만원에 결국
+-  Ray Romano Joins Netflix Show From Dead to Me Creator
+-  Putin comunica a militares condecorados que se presentará a la reelección de 2024
+-  Pandina : la Fiat Panda électrique à moins de 25 000 euros provoque la colère des Italiens
+-  Who Is the New CM Of Rajasthan? राजस्थान के सीएम पर सस्पेंस बरकरार, वसुंधरा राजे और बालकनाथ ने JP नड्डा से की मुलाकात
+-  Валентина Димитрова взе точки в трети пореден старт от Световната купа
+-  Пасечник заявил, что объем пахотных земель в ЛНР вырос почти до 1 млн га с 2022 года
+-  Geen jubelton, maar toch een huis dankzij een familiehypotheek: zo werkt het
+-  Фильм о лыжнице-чемпионке Елене Вяльбе получил Гран-при фестиваля "Герои большой страны"
+-  Jovanović: Glas za Narodnu stranku je siguran izbor da ljudi žive dobro i normalno
+-  5 نصائح مهمة لتخزين البصل في الشتاء.. هيبقى فريش
+-  „Peaky Blinders“-Star Benjamin Zephaniah verstorben
+-  Meat alternatives could feed humans more sustainably
+-  Little sailor, big adventures
+-  Doctor Who's Russell T. Davies Teases a New, Controversial Mythology
+-  Ryan Reynolds teams up with Samsung Canada for SickKids Foundation holiday campaign
+-  Après quatre ans et demi de travaux, BD West va retrouver son local historique rue Saint-Gilles
+-  This Plot Twist in the T.J. Holmes, Amy Robach Drama Is the Messiest One Yet
+-  Weiterer Schritt für neues Kali-Bergwerk in Nordthüringen
+-  Smart’s new MPV spied in China, to launch in 2024
+-  Airport worker sacked for scrawling swear word on baby boy’s suitcase
+-  Geschenke für „Zwerg Nase“ dank Glööcklers Glühweingläsern
+-  Lauterbach: Krankschreibung für Kinder erst am vierten Tag
+-  Significativa jura de un excombatiente: "Para que ningún argentino bien nacido admire a Thatcher"
+-  Ohne erkrankte Preuß: Deutsche Biathletinnen verpassen Top-Ergebnis
+-  Découvrir la face cachée d'Agen grâce à l'association CEDP47
