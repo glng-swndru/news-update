@@ -1,11 +1,51 @@
 # Latest News
--  Horaires, manèges, nouveautés : ce qu’il faut savoir sur l’American Lunapark qui commence à Brest
--  DA, IFP say their service delivery pact is fruitful in parts of KZN
--  Load shedding dropping to Stage 2 on Sat, suspended on Sun – Eskom
--  As many as 60 people injured in Mpumalanga bus crash, confirm paramedics
--  Kulelisonto: Uyenqatshelwe ibheyili ubhongoza wePhala Phala
--  GP Health Dept unveils memorial wall for 12 nurses who died in Boksburg blast
--  SPD-Parteitag:
--  Χωρίς οργανωμένους η Νέα Σαλαμίνα αφού δήλωσαν αποχή
--  Ein Jahr vor Wiedereröffnung: Macron besucht Baustelle Notre Dame
--  רק לא להפסיד: ברק בכר ועומרי גלזר יהיו חתומים על שיא עולמי?
+-  Soccerladuma | Ten Hag Makes Major Sancho Claim After Fallout
+-  Retoman audiencia masiva de Aras
+-  Homicidios baten récord en 2021; países de AL lideran lista
+-  Maquilas y construcción elevan el PIB a récord
+-  Debe prevalecer legalidad en TEPJF: Gálvez
+-  Continúan comparecencias de directores municipales con regidores
+-  Busca Putin un quinto mandato en Rusia
+-  Organizan posada a niñas y niños en Baquiriacha, Balleza
+-  最受矚目的新一代男神！《小曉》劉俊謙：演戲的最大價值，就是透過角色認識自己
+-  日本少子化，仍有私校搶破頭也難進！除敢給薪資，有什麼可借鏡？
+-  2024跨年去哪？煙火地點、演唱會卡司，北中南活動一次看
+-  台積電設廠，德國半導體補貼不會跳票？默克：「通常」會實現
+-  Dausa Minor Rape: রাজস্থানে ধর্ষিতা ৫ বছরের শিশুকন্যা, ভিডিয়োতে শুনুন পুলিশের বক্তব্য
+-  «مخاوف التهجير»... هل تدفع علاقات مصر وإسرائيل إلى «مُفترق طُرق»؟
+-  عاصفة فولف تثير الجدل… وهاميلتون يدعو للتغيير في فيا
+-  Primeiro-ministro da Hungria defende que Ucrânia é "um dos países mais corruptos do mundo"
+-  The Rundown: Tom Cruise, Send Me The Holiday Cake
+-  Sprema se akcija vraćanja Boysa iz Grčke: Ključna stvar se skriva, a spominje se aranžman avionom
+-  Dışişleri Bakanı Fidan: Sorun artık İsraillileri ve Filistinlileri aşıyor
+-  Мицин остана осми във финала на 200 м бътърфлай, Ное Понти спечели златото
+-  Semifinales Apertura 2023: Qué necesitan Xelajú, Comunicaciones, Zacapa y Guastatoya para clasificar a la final
+-  Southern Africa – Visit by Chrysoula Zacharopoulou (11-18.12.23)
+-  Ukraine – France condemns Russian missile strikes in Ukraine (08.12.23)
+-  Armenia / Refugees from Nagorno-Karabakh – France announces €15 million in additional aid (08.12.23)
+-  Israel/ Palestinian Territories – Construction of housing units in East Jerusalem (08.12.23)
+-  Armenia/Azerbaijan - Q&A (08.12.23)
+-  Kevin Kühnert zum SPD-Generalsekretär wiedergewählt
+-  PPK asegura que no fugará si le permiten viajar para control médico: “Regresaré”
+-  La propuesta de El Salvador para atraer inversión en bitcóin con programa de visas
+-  Bahnstreik: Deutsche Bahn will am Samstag das normale Angebot fahren
+-  Neue Werke in Indien: So versucht Apple den Exit aus China
+-  La extraña enfermedad que se propaga en Uruguay y que tiene en alerta a los expertos
+-  E-ticaret üzerinden sahte dekontla 400 bin TL'lik vurgun: Eş zamanlı operasyonlarla yakalanan beş şüpheli tutuklandı
+-  Venezuela entregó ante la Caricom resultados del referendo consultivo
+-  El 2023, año en que la prolongada sequía disparó las alarmas en el canal de Panamá
+-  Coach rechtfertigt sich: Terzic droht der Krisen-BVB endgültig zu entgleiten
+-  Odvoz otpada u Zagrebu još uvijek otežan
+-  Pregnant woman in Kentucky sues for the right to get an abortion
+-  Itt a vég: feladhatják a harcot az ukrán katonák, döbbenetes fordulat
+-  Pauline (Mariés au premier regard) : son adorable déclaration pour les six mois de sa fille Valentina
+-  Bundesrat will mit Anpassung der Medikamentenmargen Kosten sparen
+-  I got the shock of my life going through my late wife’s belongings
+-  Transferts : L'OM reçoit une première réponse de ce crack
+-  I got the shock of my life going through my late wife’s belongings
+-  Élections européennes. Dans six mois, le scrutin : quels seront les grands thèmes de la campagne ?
+-  Élections européennes. Dans six mois, le scrutin : quels seront les grands thèmes de la campagne ?
+-  Celtic star Mikey Johnston ‘arguably most talented player that’s EVER come out system here’ says Brendan Rodgers
+-  Widow of Console founder Paul Kelly pleads guilty to fraud probe charge as she appears in court
+-  Foutje, bedankt: gemeente maakt bijna zes ton teveel energietoeslag over
+-  മലപ്പുറം സ്വദേശി റിയാദിൽ അന്തരിച്ചു
