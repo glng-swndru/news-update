@@ -1,51 +1,51 @@
 # Latest News
--  Prima della Scala, Marco Vizzardelli: “Urlerei di nuovo ‘viva l’Italia antifascista’, è lapalissiano. Inquietante che io sia stato identificato”
--  Zvezda poziva na Mladost: Ko dođe može da osvoji auto
--  Waterschap in de winter
--  에버턴 벤치 신세인데 토트넘이 원한다…‘감독이 찾던 유형의 센터백’
--  Dad brought back to life after heart attack during charity football match at Falkirk Stadium
--  Kim są współcześni architekci-aktywiści? „Ryzyko jest wysokie. Popełniamy błędy”
--  প্রতিমন্ত্রীর আয় কমলেও সম্পদ বেড়েছে আড়াই গুণ
--  Choco Bloom ΑΛΛΑΤΙΝΗ: Ίδια απόλαυση, νέα συσκευασία
--  Fransk kærlighed blev til had. Nu betaler Margrethe Vestager prisen
--  Fransk kærlighed blev til had. Nu betaler Margrethe Vestager prisen
--  אברג'יל ימשיך לפתוח בחוד אשדוד, טישיירה יהיה בסגל הפועל פ"ת
--  שומרון גברה על גלבוע/גליל בהארכה, ניצחון דרמטי לנתניה על נהריה
--  אברהם מונדר מציין יום הולדת בשבי, בתו ששוחררה: "הלב נצבט שהוא לא איתנו"
--  Orbanova odlučna poruka: Podrška Srbiji ako EU uključi Ohridski sporazum u poglavlja
--  Revolutionizing Beauty and Wellness: Anastasiia Hortman’s Journey with Hortman Clinics
--  Construções dos quatro novos Hospitais Regionais avançaram em 2023; veja status das obras
--  Comissão aprova projeto que reforça proibição da tese de legítima defesa da honra em crimes de feminicídio
--  El papa vuelve a asomarse a la ventana del Vaticano tras su bronquitis y pide la paz
--  Autista fiúval üvöltözött a szolnoki buszsofőr egy becsomagolt szendvics miatt
--  Синджента е основен избор на зеленчукопроизводителите, защото се доказа като надежден партньор
--  الوحدة العامة لحماية الطفل بالشرقية تنظم ندوات توعوية بخطورة الختان
--  Playful Wife Hilariously Asserts Dominance in Wardrobe Choices Over Husband
--  Koštao ga neuspeh u kvalifikacijama za EP: Crna Gora bez selektora
--  Gaz Dolum Tesisindeki Patlamada Tutuklanan Baba Ve Oğlu Serbest
--  Callejón sobre Gustavo Sofovich y Marcela Tinayre: "Debe haber pasado algo muy grave"
--  Nicolae Ciucă: este nevoie să ne protejăm Constituţia împotriva mişcărilor politice care îi subminează valorile
--  Konyaspor Teknik Direktörü Hakan Keleş: Biz elimizden geleni yapmaya çalışıyoruz
--  Selçuk Üniversitesi ‘Yaşam Kapsülü’ projesiyle birincilik ödülü aldı
--  Konya'da Şebiarus törenleri devam ediyor
--  Appeals court deems competition commissioner’s appointment legal
--  Derthona, l’angolo di coach Rabbolini
--  New HIV and STI screening mobile service launches in Leinster
--  Bitcoin su Bloomberg | “Merita presenza in portafoglio”
--  Bay Area News Group girls athlete of the week: Nat Javier, Christopher basketball
--  उत्तराखंड ग्लोबल इंवेस्टर्स समिट में बोले पीएम मोदी- ‘मेक इन इंडिया’ की तरह ‘वेड इन इंडिया’ मूवमेंट चलना चाहिए
--  Curator: meerdere partijen interesse in bedrijf achter Perry Sport
--  Achterhoekse kampeerders moeten plaatsmaken voor 'digital nomads'
--  Heel Scandinavië keert zich nu tegen Tesla om Zweeds cao-conflict
--  'Tijdens de formatie komt het stikstofprobleem levensgroot terug'
--  Kako je opozicija vodila kampanju: Bez plana i programa, samo da se sruši Vučić VIDEO
--  Hãy tránh xa 3 loại thực phẩm "cướp canxi" này, ăn càng nhiều xương càng giòn, dễ gãy
--  Booty Patrol Truck Driver Arrested By Actual Police
--  Mercato : L’OL passe à la vitesse supérieure pour son entraîneur
--  Drought in Spain: Fruit and vegetable stocks in areas like the Costa Blanca plummet by up to 25% after months of virtually no rainfall
--  Dit Limburgse bedrijf maakt achtbanen: 'Vroeger lag de focus vooral op G-krachten, nu meer op de beleving'
--  Porasla nezaposlenost
--  A9 closed in both directions near Pitlochry due to vehicle fire
--  Διμερής συνεκπαίδευση Ελλάδας και Η.Π.Α. στο πλαίσιο της στρατιωτικής συνεργασίας
--  Шавкат Рахмонов объяснил любовь казахов к лошадям и конине
--  Meteoroloji'den kuvvetli yağış uyarısı
+-  الصحة بغزة: الاحتلال اعتاد سرقة أعضاء جثامين الشهداء وهناك تحقيقات توثق
+-  رئيس جهاز "بدر": سرعة بدء تشغيل المركز الطبي لخدمة المنتقلين بسكن العاملين بالعاصمة الإدارية
+-  "بعد شهر".. تحقيقات تؤكد أن دبابة إسرائيلية "قتلت وأصابت" صحفيين في لبنان
+-  "ضهري اتكسر".. انهيار وبكاء أحمد حلمي في جنازة شقيقه داخل مسجد ناصر ببنها- فيديو وصور
+-  - نائب وزير الآثار: نتوقع تحقيق السياحة رقما غير مسبوق نهاية العام الجاري
+-  بالصور- افتتاح 3 مساجد جديدة بتكلفة 8 ملايين جنيه بالبحيرة
+-  جيش الاحتلال: مقتل 2 من جنودنا أحدهما قائد دبابة وإصابة آخر بغزة
+-  تشكيلات سريعة وإمكانيات لوجيستية.. وزير الداخلية يتابع خطة تأمين الانتخابات الرئاسية 2024
+-  بالصور- الكشف على 2075 مواطنا في قافلة طبية ببني سويف
+-  رجل يكتشف إصابته بسىرطان البنكرياس بهذه الطريقة- احذر الأعراض
+-  الزمالك بالزي الأساسي في مواجهة ساجرادا بالكونفدرالية
+-  BM'den büyük rezalet! Gazzeli çocuklara yiyecek yerine oyuncak hamburger gönderdiler
+-  Comenius en Krimpenerwaard College samen in actie voor de voedselbank
+-  Minden idők legjobban várt játéka? A GTA 6 már az előzetesével is rekordokat döntöget
+-  Mogelijke leider handel verdovende middelen opgepakt
+-  Volleyball Nations League 2024: le sedi e le date della fase a gironi
+-  "Il guardiolismo è in crisi? Merito di una soluzione che arriva dall'Italia"
+-  ‘This has to be an inside job’: Home Depot customer tries to return $472 Christmas tree. Store says it’s already been returned
+-  Selena Gomez Pacari Benny Blanco, Minta Fans Tak Rusak Momen Bahagia
+-  इतने हजार की SIP से अमेरिका पढ़ेगा आपका बच्चा, जन्म के साथ ही शुरू करें निवेश
+-  TRAGICKÝ KONIEC PÁTRANIA Janku našli MŔTVU! HRÔZA, čo sa stalo, pomôcť jej už NEDOKÁZALI
+-  Fiscalía ejecuta operativo contra estafadores, delincuentes comunes y pandilleros
+-  Συμβουλές για να προλάβετε το hangover των γιορτών
+-  NOAA Maps Reveal How El Niño Will Impact US Rain and Snow This Winter
+-  رسميًا.. بوتين يترشح لانتخابات الرئاسة في روسيا 2024
+-  حقن الدهون تقلل من خطر الإصابة بسرطان الأمعاء
+-  Loren Allred reveals what it’s like to sing as Aerith in the ‘Final Fantasy 7 Rebirth’ theme song
+-  PF incinera mais de três toneladas de maconha
+-  Nuovi finanziamenti contro il rischio idrogeologico: quanto prende ogni Comune
+-  Dodici chili di marijuana in garage e 3mila euro nella credenza, 29enne arrestato a Nesima
+-  Carol singing contest on Dec. 10
+-  Formel 1: Verstappen muss sich hüten! Weltmeister bekommt deutliche Ansage
+-  Major Finnish power plants to strike on December 14 in response to government policies
+-  Обстрел Ашкелона и населенных пунктов, граничащих с сектором Газы
+-  Bajatović (SPS): Orden Rusije obavezuje na razvijanje bratskih odnosa dve države
+-  متشبثا بسلطته..بوتين يبلغ قائد الجيش رغبته الترشح لانتخابات الرئاسة في مارس 2024
+-  Aktien New York Ausblick: Leichte Verluste erwartet nach US-Jobdaten
+-  Aus des Kindergelds: So ist die Kindergrundsicherung ab 2025 geregelt
+-  Jokowi Tugasi Sri Mulyani Cek Hasil Temuan BPK
+-  Tiada penderaan fizikal terhadap Zayn Rayyan
+-  Тбилисский международный аэропорт не смог принять несколько рейсов
+-  शाहरुख खान की विरासत आगे बढ़ाएंगी सुहाना, पहली फिल्म में कितना असर छोड़ पाईं?
+-  Juventus Next Gen-Pineto, designato l’arbitro del match
+-  En Yüksek 5. Enflasyon! "Asgari Ücretin 2 Buçuk Katı Kadar Kart Borcu Var İnsanların"
+-  Why do people hate ‘America’s Team’?: A history of Dallas Cowboys memes
+-  Vivir en guerra
+-  Seminar on women in Rotary
+-  Samotność jest groźna dla zdrowia. Zbadano, jak wpływa na organizm
+-  Огромната инвестиция на Microsoft в OpenAI попада под погледа на британски регулатор
+-  What Kind Of Cars Are These?
