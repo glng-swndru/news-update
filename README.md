@@ -1,11 +1,11 @@
 # Latest News
--  I found 40-year-old secret hidden in my Ford Capri… dismantling the motor has been nothing but a GOLDMINE
--  Padre de Ronald Acuña Jr rompe el silencio tras su polémica con Nivaldo Rodríguez (Video)
--  SKT, 영양군과 MOU…천문 전용 콘텐츠 서비스 ‘맞손’
--  عبداللهيان لغوتيريس: للإسراع بإيجاد الردع ضد الجرائم الإسرائيلية وفتح معبر رفح فورًا
--  الخارجية الأميركية دانت استهداف سفارتها وقواتها في بغداد: للتحقيق الفوري بالهجمات واعتقال مرتكبيها
--  نائب مندوب روسيا بالأمم المتحدة: أميركا حكمت بالموت على عشرات آلاف المدنيين في فلسطين
--  "الإنتربول": توقيف 281 شخصا بجرائم اتجار بالبشر وفساد وإنقاذ 149 ضحية بعملية دولية
--  "سرايا القدس": استهداف تمركز قوة مشاة إسرائيلية بمحيط دوتان وإيقاع أفرادها بين قتيل وجريح
--  "حزب الله": استهداف دشمة موقع رامية بالأسلحة المناسبة وسقوط من بداخلها بين قتيل وجريح
--  Atalanta x Milan: onde assistir, escalações e arbitragem
+-  Mark Rutte wenst Nederlandse televisie 'veel Matthijs' toe
+-  '서울의 봄' 600만 넘었다…꺾이지 않는 흥행 기세
+-  '열녀박씨' 이세영♥배인혁, 소름 돋는 '운명 교차 엔딩'…7.4% 자체 최고 시청률 경신 [어젯밤TV]
+-  경륜경정총괄본부, '제1회 공공브랜드 대상' 2개 부문 우수상 수상
+-  Amerikaanse acteur Ryan O'Neal (82) overleden
+-  '39살에도 바이에른 뮌헨에서 슈퍼 서브 가능'→5년 후 바이에른 뮌헨 예상 베스트11…김민재는 제외
+-  Pixel Watch updated with Personal Safety Tiles
+-  الجوع بعد ساعتين من تناول الوجبة.. تعرف على الأسباب
+-  Tertelan air ketuban, kanak-kanak perlu penjagaan rapi
+-  Got 1 min? Meet Covid, the canine surfer of Veracruz
