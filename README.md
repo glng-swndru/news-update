@@ -1,11 +1,11 @@
 # Latest News
--  André Rieu en Wonka in bioscoop
--  Events today – Dec. 8: Indian Heritage Cities Network
--  СМИ: О передвижениях ликвидированного предателя Кивы знали всего двое
--  NEW: Top chanters headline Soul Jah Love commemoration
--  VIC: CBTT về việc phát hành cổ phiếu ESOP
--  “The corruption level just keeps increasing. How can we keep trusting this VAR when they are not doing the right thing. We cannot keep on doing this.” – Chelsea defender criticizes VAR following an incident against Manchester United and the FA are planning to take action about this whole situation.
--  IND vs SA 1st T20I: साउथ अफ्रीका के खिलाफ पहले टी20 मुकाबले में इन दिग्गजों के साथ मैदान में उतर सकती हैं टीम इंडिया, प्लेइंग इलेवन पर एक नजर
--  Reiganas apsiverstų kape - kas vyksta JAV Senate
--  [ŽT] Didžiulis gaisras Kryme. „30 tūkstančių gyventojų be dujų.“ Kas vyksta (Video)
--  [ŽT] „100 000. Jie imsis sabotažo.“ Skelbiamas slaptas įsiskverbimas į JAV. Kas vyksta (Video)
+-  [원룸 건물주 큰일났다…'월 20만원 기숙사 5만호' 민주당 공약 나온다
+-  CKP avslöjade lotterihärva – tre personer misstänks ha håvat in närmare en miljon euro
+-  ВС России за неделю сбили пять самолётов и 224 БПЛА украинской армии
+-  Ulaganje u korporativnu kulturu postaje ključno za privlačenje novih zaposlenika
+-  Life-threatening XTC pill with high doses of MDMA in circulation in the Netherlands
+-  ধনী দেশের তুলনায় বাংলাদেশ স্বস্তিতে আছে: শিক্ষামন্ত্রী
+-  Spotify CEO Daniel Ek sure sounds like he's blaming his 1,500 job cuts on fake work and amateur execs
+-  الصحة بالحكومة الليبية تبحث سبل تفعيل أقسام الطوارئ 24 ساعة
+-  Kickoff | Chiefs issue update on key defender
+-  Neverovatna 30-časovna vožnja vozom rasproda se za nekoliko minuta
