@@ -1,11 +1,51 @@
 # Latest News
--  토트넘의 ‘다이어 방출 계획’ 급제동…무리뉴가 영입 후보 명단에서 제외
--  More On Bryan Danielson Giving Fines In AEW Over Social Media Posts
--  రైతులను ఆదుకోండి: టీడీపీ, సీపీఐ
--  [“연말 특수 노린다”…유통업계는 ‘12월의 전쟁’ 중[언박싱]
--  [“동원 맞지?” 난리난 사진 한장 ‘이재용 떡볶이’ 왜?[김영상의 오지랖]
--  [경쟁사에 퇴짜맞고 호주선 “화웨이요?”…한화의 레드백 성공 뒷이야기 [비즈360]
--  [칼 빼든 최태원…인적쇄신·한일협력으로 반도체·배터리 ‘드라이브’ [비즈360]
--  Governor Tamilisai : గోమూత్రం కాదు అవి గోముద్ర రాష్ట్రాలు
--  Prvá agentúra z veľkej trojky zhoršuje Slovensku rating
--  ”Love Story”-skådespelaren Ryan O'Neal död
+-  Cada ciudadano pagará 33 euros más en tasas e impuestos en 2024 hasta alcanzar los 691 euros
+-  El abrazo del oso del carnaval a La Isleta
+-  Tavyron de 24 años preso por agredir a su hijastro de17 años
+-  Play is the thing
+-  Los nuevos dueños dan un paso más para reflotar el Santa Clara Golf de Otura
+-  Премьер Украины обвинил власти Киева в затоплении метро
+-  Strong quake rattles North Canterbury area
+-  La Fiscalía de Guatemala declara «nulas» las elecciones presidenciales
+-  La Fiscalía de Guatemala declara «nulas» las elecciones presidenciales
+-  El libro que reescribió la historia de Granada
+-  Modernizing Legacy Systems Is Ultimately User-Centered Work
+-  MIAMI: Grupos piden RD y once países apoyo para «frenar» De Santis
+-  Pepe Escobar: A paciência estratégica Rússia-China extinguirá o fogo na Ásia Ocidental?
+-  Jeziv snimak nesreće u Rumenci: Automobil sleteo s puta posle sudara, u potpunosti smrskan: Policija i Hitna pomoć na terenu (video)
+-  High-profile attacks on Derek Chauvin and Larry Nassar put spotlight on violence in federal prisons
+-  Strong quake rattles North Canterbury area
+-  One of Alienware’s best pre-built gaming PCs has a $400 discount
+-  Norte se arma de mantas y agua caliente para combatir el frío
+-  استمرار القصف.. ارتفاع عدد ضحايا العدوان على غزة لـ 17500 شهيد
+-  Nearly half of men think they can safely land a plane in an emergency, survey finds
+-  Teguise adquirirá radares móviles y alcoholímetros para controlar el tráfico
+-  22 puestos navideños en el solar de Ginory
+-  9 dicembre 2001, Ronaldo torna al gol dopo 749 giorni. A fine stagione vincerà il Mondiale
+-  Obras Públicas del Cabildo rehabilitará la Casa de Los Arroyo
+-  Horoskop am 09.12.23: Ihr Tageshoroskop für den 09. Dezember
+-  …con Carmine Gautieri
+-  Guterres skuša doseči premirje
+-  Orlando Magic - Detroit Pistons, en directo | NBA
+-  Gradnja Emonike v začetku leta 2024
+-  Ko čakalne vrste niso zgolj slaba šala
+-  Retro božični bazar v Pegleznu
+-  Philadelphia 76ers - Atlanta Hawks, en directo | NBA
+-  As Weather Extremes Increase in 2023, Global Weirding Becomes a Better Term
+-  Rušenje nadvoza nad Dunajsko cesto in poglabljanje železnice
+-  Тази Коледа с розова елха
+-  "La historia nos muestra que el Mercosur es un bloque sólido y que sabe adaptarse"
+-  Nepreslišano: Grega Repovž, odgovorni urednik
+-  Európa preberá od USA úlohu jastraba voči Číne. Hrozí sankciami napriek závislosti na Pekingu
+-  PRONOS PARIS RMC Le nul du jour du 9 décembre – Liga - Espagne
+-  Genießen Sie Eis aus Leidenschaft bei Venezia und Coccato
+-  Charlotte Hornets - Toronto Raptors, en directo | NBA
+-  Acertijo visual: ¿Dónde están las llaves ocultas? desafiá tu visión y descubrilo
+-  Uravnoteževanje je uničilo nacionalko
+-  #portret Beti Hohler, novoizvoljena sodnica na mednarodnem kazenskem sodišču
+-  „Wir holen die Kuh vom Eis“ - Dein Problemlöser vor Ort mit der bkk melitta hmr
+-  After Buying Elton John’s Condo, an Art Collector Lists His Spectacular Atlanta Mansion
+-  En ny luke er åpnet! Se dagens premie
+-  Türchen 9: 2 Karten für Schwarzlicht-Minigolf
+-  Πρωτοσέλιδα αθλητικών εφημερίδων για το Σάββατο 9 Δεκεμβρίου 2023
+-  Pierre Arditi transporté en urgence absolue à l'hôpital après un nouveau malaise sur scène
