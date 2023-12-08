@@ -1,11 +1,11 @@
 # Latest News
--  De la pluie, cette nuit sur toute la Tunisie
--  They might send your stress levels through the roof - but the key to living a long life is having more children, study says
--  IATO urges PM Modi to initiate steps to revive inbound tourism
--  Minor Hotels welcomes Sandie Johannessen as new Group Director of Spa and Wellness – Asia
--  Hansgrohe Group receives German Sustainability Award 2024
--  NEW: RBZ, Mutapa Investment Fund bosses appointed
--  Isa Pantoja se sincera sobre su embarazo: "Mi madre no estaba"
--  'Dealing in these types of drugs is becoming more and more common... people can die'
--  من هو أبو حسين فرحات؟.. الفصائل الفلسطينية أهدته تدمير آلية إسرائيلية
--  Renato Augusto recebe sondagens e vive incômodo com bastidores do Corinthians
+-  ​Oustaz Oumar Sall est libre !
+-  ​Déficit de formation en psychologie : l’UGB veut combler le gap
+-  [ŽT] „Nu ką, p****e, patiko Ukraina?“. Žuvęs okupantas tapo tikru lobiu (Video)
+-  [ŽT] Venesueloje audra. Atskrenda JAV naikintuvai (Foto)
+-  „THAAD?! Jie išprotėjo?“ Slaptos derybos su JAV. Ko paprašė Ukraina
+-  „Turėsime palikti Avdijivką.“ 3-4 bangos. „Aidar“ kuopos vadas skelbia, kas nutiko (Video)
+-  „Putinas turi vieną ar pusantro mėnesio.“ Kas pastatyta ant kortos
+-  „Rusija imasi žaidimo. Pasaulis liepsnoja“
+-  Royal Christmas concert pays tribute to John Lennon on anniversary of his death
+-  Rare eclipse: Asteroid will pass in front of bright star Betelgeuse Monday
