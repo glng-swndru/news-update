@@ -1,11 +1,11 @@
 # Latest News
--  Η ΑΕΚ θέλει Έλληνες, οι Έλληνες θέλουν να γυρίσουν;
--  ‘General Hospital’ Star Billy Miller’s Cause Of Death Revealed
--  L'EPF de Zurich veut s'implanter en Allemagne dans le numérique
--  แม่นเหมือนจับวาง! Pan เอาท์เพลย์ ยิงหลับโดนจนพา WHG ชนะ 2-1 KBG ในศึก Wild Rift League Asia Season 2
--  Gold Buffalo US coin donated anonymously raises over £1,000 for Scotland’s Charity Air Ambulance
--  ‘궁금한 이야기 Y’, 학교 선배는 왜 SNS 계정을 사칭 했나
--  جرائم العدوان في مثل هذا اليوم 8 ديسمبر
--  ‘궁금한 이야기 Y’, 그녀는 왜 남의 작물을 훔치는 것인가
--  اعتراف صهيوني بسقوط ضحايا في صفوفه والسبب قصف بالخطأ
--  Marquez, Valentino Rossi e il retroscena Yamaha: il “no” dopo il 2015
+-  Venedig: Auto stürzt in Kanal – Mindestens drei Tote
+-  SRBIJA DOBILA PROTIVNIKE I U MUŠKOJ KONKURENCIJI Evo protiv koga će naši odbojkaši u Ligi nacija
+-  Kumbaro në Kongres: 9.53 milionë turistë të huaj kanë vizituar Shqipërinë deri në nëntor
+-  Bodrum’u sağanak vurdu. Dereler taştı ağaçlar devrildi
+-  Selena Gomez danced around with new boyfriend in a music video four years ago
+-  I Want Viewers To Feel It: Sanjana Sanghi On Stream Of Emotions In Kadak Singh
+-  Cobre Panamá solicita la terminación de contratos de más de 4,000 colaboradores
+-  Jamestown Celebrates Topping Out of One Times Square Redevelopment
+-  Saira Banu pens heartfelt note on Dharmendra’s 88th birthday; says, “I always treasure the joy of knowing you”
+-  EXCLUSIVE: Upendra Limaye on the underwear scene in Animal, “Even a regional actor might not have done the scene, which Ranbir Kapoor did”
