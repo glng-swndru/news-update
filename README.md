@@ -1,51 +1,51 @@
 # Latest News
--  Aviation Minister Scindia Urges Airlines to Exercise Self-Regulation on Airfares
--  IT, Banks Lead Nifty And Sensex To Close On Record-high
--  Ndërsa Rita Ora do të prezantojë programin, Bebe Rexha do të performojë në natën e ndërrimit të viteve në ‘Times Square”
--  200.000 KM za nabavku savremenog UZ aparata u Kabinetu za akušerstvo Opće bolnice
--  India News | Over 2.9 Lakh Vacancies Filled Up in Indian Railways in Last Five Years Till Sept 30
--  How To Watch Samp Army vs New York Strikers, Abu Dhabi T10 2023 Qualifier 1 Live Streaming Online: Get Telecast Details of T10 Cricket Match With Timing in IST
--  Modasa estima crecer 20% el próximo año
--  Jude Bellingham is the Golden Boy and will be hoping he’s more Lionel Messi than Renato Sanches
--  Avalanche (AVAX) Leads Monthly Crypto Gains; InQubeta (QUBE) Gains Twitter Community’s Favor.
--  «Ювентус» — «Наполи»: прямая трансляция матча Серии А
--  AHRT Sudah Kantongi Nama Pembalap untuk Musim Depan, Siapa Saja?
--  Bećiragić: Neko izgleda namjerno plasira lažne vijesti
--  Terkini: Adu Janji Kampanye, Ganjar Bantu UMKM, Gibran Benahi Lingkungan Kumuh, Anies Bangun Jalur Kereta Kalimantan
--  Mahua Moitra 'Cash for Query' Case: 'Ethics Panel Decided To Hang Me Without Proof', Says TMC MP After Expulsion From Lok Sabha (Watch Videos)
--  Cómo se prepara Javier Milei para el día de su asunción presidencial
--  Nadia Calvino nova predsjednica EIB-a
--  অবশেষে নগ্ন দৃশ্যে অভিনয় নিয়ে মুখ খুললেন তৃপ্তি
--  الطشة: لن نسمح بتكرار حادثة الميموني مرة أخرى
--  FC Bayern: Jamal Musiala vor Comeback gegen Eintracht Frankfurt
--  Broadcom gaat VMware EUC en Carbon Black afstoten
--  Ben jij al aangesloten bij het cybersecurityforum van Nederland?
--  無綫《獎門人》屢提網購平台贊助商 涉違廣告守則 通訊局發勸喻
--  Historie, sfeer en verhalen tijdens IJsselstein by night
--  PM inicia operação final de ano com aumento de 30% NO efetivo em Sinop
--  Mahua Moitra: 'আমি এর শেষ দেখে ছাড়ব', আরও ৩০ বছর বিজেপির বিরুদ্ধে লড়ার হুঙ্কার মহুয়ার
--  Şırnak’ta minibüsler çarpıştı: 16 yaralı
--  Sosyal medya fenomeni Gizem Bağdaçiçek serbest bırakıldı
--  Meteorolojiden kuvvetli yağış ve kar uyarısı
--  Yozgat'ta şarampole devrilen otomobildeki 3 kişi öldü, 3 kişi yaralandı
--  Шавкат Рахмонов пригрозил своему сопернику перед боем
--  Conferenza stampa Pioli: le parole del tecnico alla vigilia dell’Atalanta
--  DİSK asgari ücret tutumunu açıkladı: İlk kez bu yıl rakam açıklamıyoruz
--  El PP pide que el presidente de EFE sea elegido por el Congreso y no tenga vínculos políticos
--  Win 10 Irish Heritage Trees! Join our Ugly Christmas Sweater competition
--  Чем Германия может помочь сельскому хозяйству Таджикистана?
--  Ngành chăn nuôi và thú y Bình Định hướng tới quản lý 4.0
--  VEA: Nghị quyết Hội đồng quản trị về việc ký phụ lục hợp đồng với bên có liên quan (Công ty TNHH MTV Động cơ và Máy nông nghiệp Miền Nam)
--  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 11/12/2023
--  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 08/12/2023
--  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 08/12/2023
--  TIP: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Phan Anh Dũng
--  FUEVFVND: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
--  FUESSVFL: Thông báo về việc niêm yết và giao dịch chứng chỉ quỹ ETF thay đổi niêm yết
--  Miluješ ich, no naživo im to až tak nejde? Títo speváci sú lepší pred kamerou ako na koncerte
--  SFC: Cập nhật, bổ sung tài liệu họp ĐHĐCĐ thường niên năm 2023
--  Dünyanın En Çirkin İnsanı Ölü Bulundu
--  Abrar Ahmed Suffer Injury Scare Pakistan Ahead of First Test Match Against Australia
--  Bund will Hauseigentümer nach schweren Erdbeben zur Kasse bitten
--  Soccerladuma | Sundowns Look To Send Attacker To PSL Club?
--  Rritet profiti i bankave komerciale, për 10 muaj fituan 141 milionë euro
+-  เอาอยู่ทุกลุค! มัดรวมแฟชั่นสุดปังของ'พิม พิมประภา'
+-  ตม.รวบแล้ว‘สาวจีน’ไลฟ์สดนานา แฝงขายของออนไลน์ จ่อขึ้นแบล็กลิสต์ห้ามเข้าประเทศ
+-  Peiling: meeste Duitsers hebben geen begrip voor spoorstaking
+-  De politieke podcast I Gedoe over zetels, onwennigheid en afscheid. De ins en outs van de nieuwe Kamer
+-  Europese Investeringsbank (EIB) krijgt Spaanse als baas
+-  'Despacito'-rapper Daddy Yankee stopt met muziek en richt zich volledig op God: 'Christus leeft in mij'
+-  XR blokkeert weg in Europoort, protest tegen vervuilende haven
+-  Ruim veertig van de tachtig nieuwe Kamerleden oefenen zich voorlopig vooral in nikszeggendheid
+-  Trimbos: xtc-pillen met gevaarlijke hoeveelheid MDMA in omloop
+-  Μητσοτάκης στα εγκαίνια του έργου ύδρευσης στην Καρδίτσα: Χρέος μας να διορθώσουμε τις παθογένειες
+-  للاشتباه بالاحتيال المالي.. إحالة 92 وسيطًا عقاريًا للجهات المختصة
+-  Scubic na rede de parceiros da Portugal Ventures
+-  Ovo je spisak poznatih koji su podržali listu "Aleksandar Vučić - Srbija ne sme da stane": Među njima su Nikola Rokvić, Milica Pavlović, Saša Matić
+-  이혜성, 물오른 화사한 미모…러블리 그 자체
+-  '백반기행' 심이영 "최원영과 결혼 10년 차, 여전히 심쿵♥"
+-  조응천 quot;깡패 잡던 김홍일, 전문성 필요한 방송통신 현안 풀 수 있나quot;
+-  Mission Start Ab: Prime Video announces series empower promising start-ups
+-  Mahua Moitra`s expulsion `black day` for Parliament: CPI(M)
+-  Dharmendra birthday 2023: Hema Malini pens adorable birthday wish for husband
+-  Dharmendra turns 88, cuts 7-tier cake with fans
+-  Het Relatieloket is er voor iedereen met relatieproblemen!
+-  17. TTI İzmir Fuarı başladı
+-  Netherlands issues travel warning for Paris citing terrorism threats
+-  Unique Green Film Festival, Forum on Biodiversity Conservation and Climate Action to be organised first time in Kathmandu
+-  NEW VIRTUAL MARKETPLACE FOR MANUFACTURED HOUSING IN MICHIGAN
+-  Dikkat... O yol trafiğe kapatılacak...
+-  Who is Oprah’s Partner Stedman Graham?
+-  Parlament začne o rozsiahlej novele Trestného zákona rokovať ešte v piatok
+-  Preminuo mladić kojeg je majka zapalila, prethodno pokušala zapaliti još dvojicu sinova
+-  Svećenik Mostarsko-duvanjske biskupije don Željko Majić imenovan banjolučkim biskupom
+-  Grci puštaju na slobodu uhapšene navijače Dinama?
+-  This Week in Policy & Public Interest News: 11 Stories You Need to See
+-  Μαρινάκης για επεισόδια στο Ρέντη: «Οι πράξεις πλέον θα είναι περισσότερες»- Δεν κάνουμε βήμα πίσω
+-  ڈریپ نے انسولین کی مزید 5 پروڈکٹس کی رجسٹریشن کی منظوری دیدی
+-  Mahua Moitra Reaction : माझ्याविरोधात कोणतेही पुरावे नाहीत, ही भाजपचीच खेळी, खासदारकी रद्द झाल्यानंतर महुआ मोईत्रा यांची पहिली प्रतिक्रिया
+-  Hus på 138 kvadratmeter sålt i Örebro – priset: 5 550 000 kronor
+-  Hus på 138 kvadratmeter sålt i Örebro – priset: 5 550 000 kronor
+-  V Saudskej Arábii vyrastie ďalší veľkolepý projekt, sľubuje luxusné bývanie aj rozprávkové výhľady
+-  Dosis de Pfizer y Moderna: Vacuna anticovid, lista para venta
+-  Top 7: La UNAM, entre plagas, plagios y sucesión
+-  Hidalgo recupera a Obeng contra el Racing de Ferrol: “Esto va de ganar, es lo único que nos vale”
+-  Αύξηση της βίας στα σχολεία σύμφωνα και με την ΕΛΜΕ
+-  सडक निर्माण सुरु गराउन समिति निर्माण
+-  महिला तथा बालबालिका विभाग खारेज
+-  संविधान र व्यवस्थाको विरुद्धमा आवाज उठ्नु दुर्भाग्य : रमेश लेखक
+-  जनताका मौलिक संस्कृतिको संरक्षण गर्नुपर्छ : पूर्वप्रधानमन्त्री खनाल
+-  गोरखापत्रकर्मी अर्याललाई मातृ शोक
+-  नवजीवन सहकारीको शेयर पूँजी ५० करोड
+-  जनताको आस्था र विश्वास नै न्यायपालिकाको पुँजी हो : प्रधानन्यायाधीश श्रेष्ठ
+-  एलपीएल : युथ अफ टिकापुर र धनगढी स्पोर्ट्स विजयी
