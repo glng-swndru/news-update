@@ -1,51 +1,51 @@
 # Latest News
--  Kontroversi RUU DKJ, Bamus Betawi Inginkan Wakil Gubernur Jakarta Representasi Putra Betawi
--  How much do Tier 3 Amazon employees make?
--  The Whispering Shadows: A Riveting Tale of Darkness and Deception
--  Traverse City Man Arrested for Operating Narcotics Hub
--  김성철 심판위원 ‘가족들에게 감사해’ [MK포토]
--  Alden Richards On It’s Showtime, Allan K Reacts
--  출근길 전장연 시위로 혜화역 무정차 통과…8명 연행
--  윤재옥, ‘서해 피살’ 감사 결과에 “文정부, 반인권·야만적 폭력행위”
--  이재명 “與, 전세사기 피해자 고통 외면…특별법 개정 13일 결론내야”
--  속옷만 입고 무릎 꿇은 남성들…가자지구서 찍힌 의문의 영상
--  [포토뉴스] 독감 이어 폐렴 확산 우려…다시 돌아온 마스크
--  베일 벗은 신작 TL…엔씨소프트 주가는 10%대 하락
--  총선 ‘야당 승리해야’ 51%…尹 집권 후 최고치 [한국갤럽]
--  입 연 오픈AI 전 이사회 멤버 “올트먼 해임 이유는 신뢰 부족”
--  ‘수원 714억 전세사기’ 부부 檢 송치…아들은 불구속 송치
--  Nintendo fans rush to grab three games landing on the Switch for free – & you can get them now
--  Nintendo fans rush to grab three games landing on the Switch for free – & you can get them now
--  أوحيدة: مبادرة باتيلي لن تأتي بنتيجة وهي فقط لخلط الأوراق وتسفيه لما تم التوافق عليه
--  Klopp slams TV presenter for kick-off comment
--  Boss Ten Hag ‘very pleased’ with Man Utd’s 2-1 win over Chelsea
--  France superstar Paul Pogba faces 4-year ban for doping
--  No Kyrgios, Raducanu in Aus Open entry list
--  This Mumbai event will see experts discussing solutions for a sustainable future
--  Russian lawmakers clear path for Putin’s fifth term as prez
--  Christmas 2023: Attend these events in Mumbai to bring in the festive cheer
--  Hamas threatens violence if Chanukah march not stopped
--  New album created for a musical in Japan explores being a dreamer in Mumbai
--  Cyclone Michaung: PM nod for release of Rs 450 cr to Tamil Nadu
--  Probe panel formed on US inputs on national security: Jaishankar
--  Alia Bhatt raises glam quotient with her looks at Red Sea Film Festival
--  新世代手機雲端備份（林國誠）
--  Court remands co-accused in NAB custody in Gujrat corruption case
--  김성철 심판 ‘일구회 심판상’ [MK포토]
--  What is the lowest starting pay at Amazon?
--  Dine and Dish: Cafe Lafayette in Exeter
--  Sampai sekarang masih belajar berlakon – Fazlina Ahmad Daud
--  Alex mangsa stigma ‘keluarga Marquez’
--  The Game Awards 2023: ‘God of War: Ragnarok’ Returns With Free DLC ‘Valhalla’ On 12 Dec
--  Investment banks to put $10 billion into projects aimed at interconnecting South America
--  Happy Birthday Dharmendra: Journey to Stardom, Family Life, 5 Iconic Movies, and Best Dialogues
--  TV 속 그 즉석밥…CJ제일제당 햇반솥반, '어쩌다사장3' 제작 지원
--  엔씨 'TL', 가벼운 BM과 묵직한 컨트롤로 무장…이용자 반응 뜨겁다
--  ‘크라운해태-웰컴저축은행 초반 선두권‘ PBA 팀리그, 4라운드 우승 경쟁 점화
--  I think my mother-in-law has a serious credit card problem. Do you have any advice?
--  Woman killed in Canyon County rollover crash
--  Elon Musk Loves Playing Video Games But Still Won’t Play GTA 6: Here’s The Reason
--  Microsoft May Be Working On an AI Edition of Windows
--  Early Bitcoin Ordinals Art Sells for Record $450,000
--  The Palestinian Authority Can’t Govern Gaza After the War
--  AFI picks ‘Barbie,’ ‘Oppenheimer’ among 10 best films of 2023
+-  내년 모바일 시장 전망 “틱톡 전성시대…마이크로블로깅 앱 고전”
+-  퀘스트, 소외 이웃 무료급식 ‘밥퍼나눔’ 봉사활동 참여
+-  누리플렉스, 에너지 데이터 기반 서비스 모델 연구개발 성과보고회 가져
+-  보건의료통합봉사회, 대구 구암동 행정복지센터에 ‘함께, 나눔’ 점자 구급함 전달
+-  [금융IT이노베이션] 엔시큐어, "변화하는 IAM 환경에 맞는 보안 필요"
+-  인크로스, '메타 에이전시 퍼스트 어워즈'서 5년 연속 수상
+-  조주완 LG전자 사장 "즐겁고 높은 성과 내는 회사 만들 것"
+-  네이버, 인공지능·첨단 기술로 소외 없는 디지털 환경 구축 이어간다
+-  통신3사 CEO 2.0 시대…성장 한계 돌파할 해법은 ‘AI’
+-  샌즈랩, 독일 프라운호퍼 연구소와 기술협약 체결
+-  퀘스트, 소외된 이웃과 함께한 무료급식 ‘밥퍼나눔’ 봉사활동 참여
+-  네이버클라우드, 에듀테크 플랫폼 ‘웨일 스페이스’로 서강대 미래형 교육 지원
+-  원스토어, 청소년보호 유공자 여성가족부장관 표창 수상
+-  퀘스트, 소외된 이웃과 함께한 무료급식 ‘밥퍼나눔’ 봉사활동 참여
+-  Varun Beverages Share Price Live blog for 08 Dec 2023
+-  ពីរ​នាក់​ឪពុក​-​កូនចូល​ព្រៃ​ដក​គម​ក្រវាញត្រូវ​ខ្លាឃ្មុំ​១ក្បាល​ខាំ
+-  Yes Bank Share Price Live blog for 08 Dec 2023
+-  Campus Activewear Share Price Live blog for 08 Dec 2023
+-  Vodafone Idea Share Price Live blog for 08 Dec 2023
+-  El sabroso perreo de José Siri con su primer jonrón en la Lidom 2023
+-  Mumbai Crime News: अधेंरीमध्ये वेश्याव्यवसायाच्या रॅकेटचा पर्दाफाश, 12 वर्षाच्या मुलीची केली सुटका
+-  Bajaj Finserv Share Price Live blog for 08 Dec 2023
+-  Sbi Share Price Live blog for 08 Dec 2023
+-  Coal India Share Price Live blog for 08 Dec 2023
+-  Bandhan Bank Share Price Live blog for 08 Dec 2023
+-  L&T Share Price Live blog for 08 Dec 2023
+-  SRF Share Price Live blog for 08 Dec 2023
+-  Natco Pharma Share Price Live blog for 08 Dec 2023
+-  Asian Paint Share Price Live blog for 08 Dec 2023
+-  MMTC Share Price Live blog for 08 Dec 2023
+-  Gujarat State Fertilizers & Chemicals Share Price Live blog for 08 Dec 2023
+-  Suzlon Share Price Live blog for 08 Dec 2023
+-  Full-Life Technologies Breaks Ground for GMP Manufacturing Facility in Belgium to Advance Its End-to-end Solution for Radiopharmaceuticals
+-  2023 Yidan Prize Summit, 변화를 일깨우는 혁신적인 아이디어 탐구
+-  2023 Spotify Wrapped: How the world listened to Mandopop this year
+-  Aon Releases the China Best ESG Employers Award List for 2023
+-  FPT Vietnam and Faeger to jointly support businesses in developing green agriculture in Vietnam
+-  We Heard You! Enhanced Sun Protection for Indonesia: AXIS-Y Introduces The Complete No-Stress Physical Sunscreen Ver.3
+-  The East Asian Cultural Capital 2023 - The year of activities in Chengdu, China came to a successful conclusion
+-  2023 Advantech Embedded-IoT World Partner Conference
+-  문화예술 필독서 ‘예술시장 스케치북’ 출간
+-  Adani Ent Share Price Live blog for 08 Dec 2023
+-  '겨우 17살' 전유진이 부른 노래가 불륜 미화곡이라고? 팩트체크 해보니
+-  "음바페는 9번을 싫어해! 이강인을 9번에 넣어라"…과거 9번 불만으로 감독과 불화 겪은 음바페, 이번에 또? "엔리케는 9번 LEE와 경기하고 싶어할 것"
+-  “이렇게 마를수가” 40kg 살 뺀 오프라 윈프리, 체중감량 비결 공개[해외이슈]
+-  [MD포토] 일구상 시상식 참석한 김인식 전 감독
+-  엔하이픈(ENHYPEN), 시크함이 묻어나는 출근길!
+-  [MD포토] 선, 후배들과 이야기 나누는 이대호
+-  '서머퀸' 권은비 日 '스마트폰을 떨어뜨렸을 뿐인데' 주연, "일본어 감정 표현 뛰어나" 극찬[공식]
+-  [MD포토] 염경엽 감독 '(이)택근이 오랜만이야!'
