@@ -1,51 +1,11 @@
 # Latest News
--  與, '총선서 서울 49곳 중 6곳만 우세' 분석에 뒤숭숭
--  조희대 대법원장 후보 임명동의안 국회 통과… '사법 공백' 해소
--  與, '묵비권 행사' 송영길에 "86 운동권 민낯 적나라"
--  [속보] 노란봉투법·방송3법, 국회 재투표서 폐기
--  라메디텍, '레이저 채혈기' 중동·동남아·유럽 시장 확장 가속화
--  인천시자살예방센터, 캠핑장협회와 자살예방 관련 업무협약
--  국세청, 웹툰 공모전 시상식 개최
--  [마감시황] 코스피·코스닥, 美 증시 훈풍에 상승 마감
--  Public disorder suspect, 60, dead after being found unresponsive in Rotterdam jail cell
--  Soccerladuma | Letsholonyane Sets Sights On CAF A Licence
--  לסרינה וויליאמס יש טיפ מטורף לריפוי כוויות שמש. האם הוא עובד?
--  상담사 당신의 마음은 안녕하십니까?
--  우리 지역 청렴 인물을 영화로 만나다
--  경남교육청, 하반기 직업교육 혁신지구 공동연수회
--  América trollea al Atlético San Luis, pero lo hace con tema altruista
--  Semifinales Vuelta: ¿Qué necesita cada equipo para llegar a la Final?
--  गौतम अडानी दूसरे सबसे अमीर भारतीय
--  Renshaw makes huge statement win ton
--  Renshaw makes huge statement win ton
--  On a Festive Note: The ultimate gift guide for the fragrance fanatic
--  BM savaşın bilançosunu gözler önüne serdi: Sudan'daki çatışmalarda kayıp 12 bin 190 kişi
--  डायबिटीज मरीजों के लिए खुशखबरी! इस खास बैंडेज से जल्द ठीक होंगे घाव
--  Motorine 2 günde ikinci indirim
--  En güzel, anlamlı, yeni, kısa ve uzun cuma mesajları ve sözleri
--  'Çengel-4' operasyonlarında 25 bin 603 litre kaçak ve sahte içki ele geçirildi
--  बाजार ने तेजी को विराम दिया और समेकन में प्रवेश किया
--  Aksaray'da evin banyosundan cephanelik çıktı
--  Aksaray'da polisten kaçan ehliyetsiz sürücüye 17 bin 973 TL ceza
--  Aksaray’da bıçaklı kavgada 1 kişi yaralandı
--  Staj sigortası, annelere emeklilik kapısı açıyor
--  Sonia Gandhi`s Birthday: Here`s how Sonia rose through ranks in Indian politics
--  Selena Gomez confirms Benny Blanco romance
--  Nicki Minaj's Met Gala outfit 'cemented' decision to get breast reduction
--  Diplo blasts revenge porn lawsuit as being part of a 'smear campaign'
--  Charlie Sheen doesn't recognise 'alien version' of himself after six years sober
--  8 tipov na zníženie nadúvania, najmä pri menštruácii
--  La « Marketplace﻿ Business France », nouvelle vitrine numérique de l'export français
--  Opinion | Délais de paiement : pour une réduction à trente jours
--  Jade Frommer, de l'espace à la jungle
--  Drone Volt : A suivre aujourd'hui
--  Epic, bu hafta normalde 368 TL olan iki oyunu ücretsiz veriyor
--  AB'den Çin'e ambargo çağrısı: Rus ordusuna satışları durdurun
--  Verletzter am Berliner Alexanderplatz: Mann mit Stichverletzungen auf U-Bahnsteig entdeckt
--  Attenzione a questi 2 BTP, stessa identica scadenza ma con rendimenti differenti: ecco dove sta il trucco
--  शेयर बाजार में तेजी, सेंसेक्स 119 अंक बढ़कर 69,640 पर खुला
--  더함, MT9612, 구글OS 담은 제로베젤 QLED IPS 75형 UHD TV 출시
--  لجنة المسابقات بالوادي تقر هزيمة فريق نادي سيئون بنتيجة 3 / 0 في بطولة كأس حضرموت للشباب
--  Ligg steget före på nyårsnatten
--  Ligg steget före på nyårsnatten
--  Ada Lonjakan Kasus Covid-19, Dinkes DKI: Warga Usia 50 Tahun Ke Atas Harus Sudah Vaksinasi Dosis ke-4
+-  충남도, 2조8000억 항만 개발 밑그림
+-  충북도 재향군인회, 임·직원 연찬회
+-  홍성군, 3기 유소년 승마단 단원 모집
+-  홍성소방서, 충남도 소방관서 청렴도 평가 ‘1위’ 영예
+-  예산군, 2023년 제3회 추가 경정 예산 9239억원 확정
+-  예산소방서 ‘작은 영화관’서 직장 교육
+-  논산시, 건양대 사거리~은진면 교촌리 왕복 4차로 개통
+-  National Assembly approves Supreme Court chief justice nominee
+-  KDIC chief vows to strengthen crisis response monitoring system
+-  Mexiko zasiahlo zemetrasenie s magnitúdou 5,8: Škody zatiaľ neboli hlásené
