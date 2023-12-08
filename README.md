@@ -1,11 +1,51 @@
 # Latest News
--  الدوري السعودي.. رباعية النصر وهدف محمد شريف
--  الخارجية ترد على أنباء دخول أجانب من قطاع غزة إلى مصر عبر معبر رفح
--  مندوب الجامعة العربية: نتوقع فيتو أمريكي لعرقلة مشروع القرار العربي بشأن غزة
--  وزير الخارجية: الوضع الحالي في غزة لا يمكن استمراره
--  أمريكا تستخدم حق الفيتو في الاعتراض على وقف إطلاق نار إنساني بغزة
--  بالفيديو.. فنانون ومشاهير يوجهون رسالة مهمة للمصريين
--  طوني خليفة: كان نفسي أعمل عمرة.. وكل الأديان تصب في مكان واحد
--  InventionHome® Announces New Invention— Side Shelf Fishing Seat
--  Iceland boss taunts loan sharks firm by apologising for taking business off them
--  EEUU veta en la ONU un alto el fuego humanitario inmediato para Gaza
+-  Sinop: ampliação do fórum trabalhista proporciona criar a 3ª vara
+-  [투숙객 심박수·호흡까지 지켜본다…日 신개념 ‘숙면’ 호텔 등장 예고
+-  The Tesla Cybertruck Could Be a Serious Danger to Pedestrians and Cyclists, Experts Say
+-  وزير الخارجية يعلق على فشل قرار مجلس الأمن بخصوص وقف الحرب
+-  Erdogan: Spemni smo da sprečimo dalje krvoproliće
+-  Apoteker giver uberettigede Ozempic-tilskud uden lægers viden
+-  Apoteker giver uberettigede Ozempic-tilskud uden lægers viden
+-  Acusado de espancar e ameaçar companheira com arma de fogo é preso no Nortão
+-  Einsatz im Atlantik - Salzburger Wasserretter wurden auf Kuba zu Helden
+-  기사 제목 앞에 ‘변화’ ‘액션’이 달린 이유는
+-  Best noise-cancelling headphones of 2023
+-  A Fazenda | Próxima Roça será dupla e formada com cinco peões
+-  Selena Gomez continues to flaunt 'B' ring on THAT finger as she grabs coffee - after wild social media commentary about new Benny Blanco romance
+-  I'm A Celebrity's Josie Gibson snaps at Nigel Farage as she gives in and lets him do Bushtucker Trial because 'he wants the airtime' and needs 'to prove himself to the nation'
+-  من هو مائور كوهين بعد قتله على يد الفصائل الفلسطينية؟.. أحد أقارب مسؤول إسرائيلي
+-  FC Metz : Les premières images de Amara Diouf, arrivé au club (2 photos)
+-  Гоффенгайм розібрався з Бохумом у 14 турі Бундесліги
+-  Pogledajte kako je Lepa Brena izgledala 2005. godine, tada je bila u gostima kod naše popularne pjevačice!
+-  Apple cuts off Beeper Mini’s access after launch of service that brought iMessage to Android
+-  Homicidio en el Hospital Nacional Psiquiátrico
+-  Snapdragon 8 Gen 4 pode trazer apenas núcleos de alto desempenho
+-  Matheus Gonçalves projeta retorno ao Flamengo: 'Mais maduro e preparado'
+-  «Αρτοποιείο-φυλακή» ανακαλύφθηκε στην αρχαία Πομπηία (pics)
+-  Borićemo se za svakog čoveka! Vučić zagrmeo: Da slavimo 17. uveče i da nastavimo da podižemo Srbiju! (VIDEO)
+-  Vučić: "Važne odluke se donose na osnovu dela" VIDEO
+-  Alberto Fernández: «No estoy aquí para cargar culpas en otros»
+-  Qysea's modular FiFish E-GO comes apart for easier underwater droning
+-  Desmatamento no Cerrado cresce 238% em novembro
+-  Amy Winehouse: gravadora lança LP duplo de 'Live At Glastonbury 2007'
+-  EFCC arraigns businessman for alleged $39,554 fraud
+-  USA lägger in veto mot humanitär vapenvila i Gaza
+-  USA lägger in veto mot humanitär vapenvila i Gaza
+-  يونس طه يعود ليسجل هدف الثاني في ثلاثة ايام
+-  Israel-News: Aktuelle Nachrichten zum Krieg in Nahost (Freitag, 08.12.2023)
+-  Abai anak sehingga maut, polis tahan pasangan suami isteri
+-  Uživo: Trojkaški rafal Baskonije ne prestaje - Baskonija – Crvena zvezda 84:79 (39. minut, video)
+-  Les Franciliens exclus des JO de Paris ? - 08/12
+-  滋賀県職員のボーナス増える 平均支給額はどれくらい？
+-  Hideo Kojima Documentary Connecting Worlds Will Stream Exclusively on Disney+
+-  تحریم های تازه امریکا؛ دو مقام بلند پایه حکومت طالبان نیز شامل فهرست هستند
+-  Appeals court narrows Trump gag order in election case
+-  Edmonton Events: Three to See includes Sole Providers sneaker art, Cikwes and Wilf Perreault
+-  Waffenstillstands-Resolution zu Gaza gescheitert
+-  Le Pen, Zimmetine Para Geçirme Gerekçesiyle Yargılanacak
+-  еремки і Голосіїв без метро. Що трапилось з "синьою" гілкою метрополітену
+-  تأهل الثنائي القطري جاسم وهزيم المريخي لنهائيات بطولة كأس سمو الأمير للبولينج
+-  MMA star suffers horror eye injury and pulled out of PFL Europe’s $100,000 finale fight to crown Brit champ
+-  Nikolini Ćaćić novo zlato na Zagreb Grand Prixu
+-  Michigan teen gets life for killing 4 in school attack
+-  Louise Thompson shares throwback photos of herself with brother Sam alongside supportive letter that never made it into the I'm A Celebrity jungle
