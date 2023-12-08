@@ -9,3 +9,43 @@
 -  Maqedonia shënon Ditën e “Shën Klimenti i Ohrit”
 -  L’urgence Pour Le Cameroun :: Cameroon
 -  Lancement de la Première Édition du Forum Marocain des Industries Culturelles et Créatives (ICC)
+-  DIRECT. OM: les infos et la conférence de presse de Gattuso et Vitinha avant Lorient
+-  Национальная администрация туризма начала новую маркетинговую кампанию на туристической платформе Expedia
+-  Plus de TER, plus de TGV en 2024: la Bretagne met le paquet dans le train avec la SNCF
+-  Alia Bhatt: रेड सी फिल्म फेस्टिवल में आलिया भट्ट का ग्लैमरस अवतार, Photos
+-  ทหารพรานผาเมือง มอบผ้าห่มกันหนาว พร้อมยาสามัญประจำบ้านให้กับประชาชน
+-  KT&G 이사회, 사장 선임 관련 이사회 규정 개정
+-  호남선 상징 목포역사 확 바뀐다… 2028년 준공
+-  KB금융 ‘다우존스 지속가능경영지수’서 8년 연속 월드지수 편입
+-  한화, 호주와 '레드백 장갑차' 최종 계약… "첫 수출 기획 방산 제품 결실"
+-  Górniczy gigant zapowiada zmniejszenie produkcji w przyszłym roku
+-  Cyberpunk 2077 nagrodzony na The Game Awards
+-  Cena ropy na drodze do siódmej tygodniowej zniżki z rzędu
+-  Konsolidacja cen złota w wyczekiwaniu na dane
+-  Аккредитацию IТ-фирмы аннулируют за некорректное раскрытие налоговой тайны
+-  오현규에게 MOM 트로피 전달한 셀틱 동료→"맹활약 자격 충분했다"
+-  "120만 관중보다, 우승보다 어려운 계약" 타 구단 오퍼 없는 임찬규, 언제 사인할까 [MD청담]
+-  한예슬, '악연' 故김용호 사망에 "새 삶 살 수 있었을 텐데 기회마저 잃어"
+-  "젖꼭지는 아니고…" 김재중 '공항준수' 직접 언급→김준수 '흑역사 사진' 급해명 [마데핫리뷰](종합)
+-  임종룡 우리금융 회장, 인사 키워드 ‘안정’…은행 ‘CIB그룹’으로 기업고객 정조준
+-  "47세 메시가 2034 월드컵에 출전하길 바란다" 인판티노 FIFA 회장의 황당(?) 발언
+-  Kickoff | Chiefs come up against ‘worst nightmare’ again
+-  أمستردام تقيد الحد الأقصى للسرعة في معظم شوارع المدينة بـ30 كم بالساعة
+-  Gold sees slight decline in Pakistan
+-  مدرب إيفرتون يتحدث عن الفوز الكبير على نيوكاسل
+-  HÜDA PAR hainlerin adının her yere verilmesini istedi
+-  Will Korea avoid hard landing in housing market?
+-  Seoul awards honorary citizenship to outstanding foreign residents
+-  K-pop's appeal reflected in global accolades
+-  Эксперт Стрельцов объяснил, почему упал экспорт металлов из России в Китай
+-  Many hands make lights work: Finding Brisbane’s best Christmas displays
+-  Many hands make lights work: Finding Brisbane’s best Christmas displays
+-  [인사] 우리금융지주·우리은행
+-  Baltarusių žurnalistė skundžiasi dėl nepratęsto leidimo gyventi Lietuvoje: nagrinėjimą sustabdė
+-  Jalur Lintas Sulawesi di Gorontalo Akan Ditutup Sementara, Begini Penjelasan Polisi
+-  Viinarallin loppu? Latvia nostaa alkoholiveroa
+-  Ekka evolution: Farm show, events, music festivals ... and sport?
+-  Ekka evolution: Farm show, events, music festivals ... and sport?
+-  Queensland’s youth justice strategy will expire before it’s replaced
+-  Danimarka miraton ligjin që ndalon djegien e Kuranit
+-  인도서 발견된 새 개구리종, 오리처럼 '꽥꽥' 운다
