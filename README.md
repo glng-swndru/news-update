@@ -1,51 +1,11 @@
 # Latest News
--  쉴 때 누워만 있는 당신…우울감·불면증 위험 커진다
--  [김회룡의 시사 TOON]
--  Davíð við Andra: Ekki til í að taka þátt í að skrifa einhverja rómantíska sorgarsögu
--  Tìm thấy cục pin sản xuất năm 2010 trong mộ cổ 2.200 năm, chuyên gia hét lớn: “Gọi cảnh sát ngay”
--  Ako sa na Vianoce neutrhnúť z reťaze? Podľa odborníčok na stravovanie koláče nie sú hriech
--  Zarosené okná dokážu potrápiť: Zatočte s nimi ešte dnes!
--  Preskúmaj slávny bunker z čias studenej vojny: Stavíme sa, že na poschodí sa zľakneš aj ty!
--  Tejpovanie nosa? Táto influencerka to robí ako svoju večernú rutinu, dôvod ťa pobaví!
--  Kto je Khaby Lame? Nepovedal zatiaľ jediné slovo, aj tak je najlepší TikToker na svete!
--  Modelky bez nôh či s jazvami? Tieto krásky búrajú mýty, svet ich miluje!
--  Flexking bude legenda jak Messi: Týmto videoklipom spustil predaj nového albumu
--  B.C. jury finds Ibrahim Ali guilty of first-degree murder in 2017 teen slaying
--  “Los cargos están adjudicados, el material electoral es inalterable”: Gabriel Medrano, exmagistrado del TSE
--  Vladimir Putin's Presidential Election Rival Fears for Life
--  Why being cold is good for your brain, sleep and waistline... And it helped my son after his first-floor plunge
--  WEST MINING ANNOUNCES PRIVATE PLACEMENT
--  Ceaip resuelve 96 asuntos de transparencia de entidades públicas en sesión ordinaria
--  Mercado 2024: ¿Cuánto le costaría a Cruz Azul fichar a Lorenzo Faravelli y Lautaro Díaz?
--  دراسة تكشف: تناول الكاكاو يحميك من هذا المرض
--  PBCO Financial Corporation Announces Securities Portfolio Repositioning
--  Постпред: КНР разочарована вето США на проект резолюции по сектору Газа в СБ ООН
--  Así es el Ugly Poncho Bacacho 2023. ¿Cuánto cuesta?
--  EEUU obstruye resolución de Consejo de Seguridad de ONU para exigir tregua humanitaria inmediata en Gaza
--  JBPN Sarawak tunggu penilaian COVID-19 KKM sebelum kemuka SOP
--  Gli Stati Uniti hanno messo il veto su una risoluzione del Consiglio di Sicurezza dell’ONU che chiedeva il cessate il fuoco nella Striscia di Gaza
--  Shane MacGowan's widow carries on dancing into the night as 300 guests including Johnny Depp and Nick Cave attend wake for legendary singer in modest thatched-roof pub
--  Antes de la asunción de Javier Milei, mirá los invitados de Andy Kusnetzoff en PH
--  VEČE ZA PAMĆENJE U VRANJU Folklorni ansambl "Sevdah" i gosti iz Severne Makedonije oduševili publiku u pozorištu "Bora Stanković"
--  Kamloops assault prompts search for 2 persons of interest
--  ¡Van por unas fiestas decembrinas sin incidentes! Arranca SSPM operativo Guadalupe-Reyes en Mazatlán
--  تنبيه عاجل حول كيفية نقل معلومات الجواز لمقيم خارج المملكة
--  'Love Story' Actor Ryan O'Neal Dead at 82
--  49ers vs. Seahawks: QB Geno Smith a game-time decision due to groin injury
--  DOJAVA O BOMBAI U DISKOTECI: U toku evakuacija objekta u Novom Sadu
--  GigaFarm akan dibina di Dubai Food Tech Valley
--  Love Storysta ja Barry Lyndonista tunnettu näyttelijä Ryan O'Neal on kuollut 82-vuotiaana
--  Love Storysta ja Barry Lyndonista tunnettu näyttelijä Ryan O'Neal on kuollut 82-vuotiaana
--  تقييم دانيلو في مباراة يوفنتوس ونابولي
--  Nightlife community mourns club luminary Rocco Ancarola
--  Ibrahim Ali guilty of first-degree murder in death of Burnaby girl: jury
--  Trick Williams On His Current Status In WWE NXT, Starting Off With Carmelo Hayes
--  Cuadra Fernández expulsó a Javi Guerra por decirle "¡eres malísimo!", según el acta
--  Askar, polis dipenjara kerana tinggalkan tugas kini dibebaskan
--  Invitan a 'Jornadas Educativas del Tatuaje'
--  Guardia Nacional omite alto y provoca choque
--  Global Industrial Centrifuge Market Shows Resilience, Projected to Reach $11.32 Billion by 2027
--  76 Best Gifts for Teens in 2023 That Are TikTok-Approved
--  Saber salir, saber despedir
--  Betis - Real Madrid | La Liga mira al Benito Villamarín
--  La temporada baja se acorta: el buen tiempo en otoño impulsa el turismo y el PIB
+-  I found 40-year-old secret hidden in my Ford Capri… dismantling the motor has been nothing but a GOLDMINE
+-  Padre de Ronald Acuña Jr rompe el silencio tras su polémica con Nivaldo Rodríguez (Video)
+-  SKT, 영양군과 MOU…천문 전용 콘텐츠 서비스 ‘맞손’
+-  عبداللهيان لغوتيريس: للإسراع بإيجاد الردع ضد الجرائم الإسرائيلية وفتح معبر رفح فورًا
+-  الخارجية الأميركية دانت استهداف سفارتها وقواتها في بغداد: للتحقيق الفوري بالهجمات واعتقال مرتكبيها
+-  نائب مندوب روسيا بالأمم المتحدة: أميركا حكمت بالموت على عشرات آلاف المدنيين في فلسطين
+-  "الإنتربول": توقيف 281 شخصا بجرائم اتجار بالبشر وفساد وإنقاذ 149 ضحية بعملية دولية
+-  "سرايا القدس": استهداف تمركز قوة مشاة إسرائيلية بمحيط دوتان وإيقاع أفرادها بين قتيل وجريح
+-  "حزب الله": استهداف دشمة موقع رامية بالأسلحة المناسبة وسقوط من بداخلها بين قتيل وجريح
+-  Atalanta x Milan: onde assistir, escalações e arbitragem
