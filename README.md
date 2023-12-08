@@ -1,51 +1,51 @@
 # Latest News
--  दैनिक राशिफल 8 दिसंबर 2023
--  Airport worker sacked after man lands in Cyprus with ‘c–t’ written on suitcase
--  NELLY BARREDA RIBERO(Q.E.P.D.)
--  Scottish city named among worst in the UK for a festive night out
--  MARÍA del ROSARIO GALLINO de CARDOZO(Q.E.P.D.)
--  E frikshme, mjekët heqin 60 krimba nga sytë e një pacienteje
--  ESTELA MARÍA ERRO SAVIO de PASCALE(Q.E.P.D
--  Рабије Мурати и Антонио Митриќески добитници на државната награда „Св. Климент Охридски“
--  ESTELA MARÍA ERRO SAVIO de PASCALE(Q.E.P.D.)
--  Donald Tusk o swoim nowym gabinecie: W tym rządzie nie będzie żadnych dwuznaczności
--  Nat'l security advisers of S. Korea, Japan discuss NK threat
--  Yoon appoints new Supreme Court chief justice
--  Nat'l Assembly adopts resolution on N. Korea-Russia arms trade
--  Footballer Hwang's sister-in-law indicted for disclosing his private videos
--  Korea, US tighten partnerships in chip, battery, AI
--  महिलाविरुद्धका हिंसा रोक्न सचेतना कार्यक्रम व्यापक बनाउनुपर्ने
--  معلومات عن شقيق الفنان أحمد حلمي بعد رحيله.. اعتادا المزاح معا
--  La ministre du Commerce veut rassurer « les hommes d’affaires qui opèrent dans la légalité » et les assurer du soutien de l’Etat
--  ¿Cuáles son las «serias complicaciones» para exportar a Argentina que denunció Lacalle Pou?
--  Rajavartiolaitos otti terrorismirikoksista epäillyn Tordenin säilöön
--  Конституцията мина на първо четене, очакват я обаче множество промени
--  College of Medicine inducts 32 physiotherapists
--  Tote bei Zusammenstößen mit Israels Armee im Westjordanland
--  دجال العصر| كتب محمد ناصر العاقل
--  Istraživanje pokazalo: Polovina mladih želi da napusti Kolašin
--  Kal Ka Rashifal: किसको मिलेगा रोजगार? किसकी जिंदगी की बाधाएं होंगी दूर, जानें- अपना राशिफल
--  Air Asia के बॉस ने दूसरी एयरलाइंस की फ्लाइट में भरी उड़ान, मामला जान अब लोग ले रहे मजे
--  Salto propone diversas actividades en la Víspera Navideña
--  '서울 6곳 우세' 분석에 뒤집힌 여당…"용산에 도끼상소해야"
--  الوئام تنشر النص الكامل لخطاب رئيس الجمهورية في افتتاح مهرجان مدائن التراث بولاتة
--  Toquero pide abordar "cuanto antes" la apertura de la UCI del Hospital Reina Sofía
--  Supercomputer predicts THREE transfer signings that Man Utd should make in January to transform their stuttering season
--  اعتباراً من نيسان المقبل.. ماذا سيشهد مطار بيروت؟
--  شركاء إسرائيل
--  Vistara winter sale is on, one-way ticket fares start from ₹1,923; Check details
--  ERDOGAN: Isporuke ruskog gasa Evropi i Balkanu dogovorene sa Putinom
--  Bmw giù dalle Grazie: indaga la Polizia locale
--  Fears over school support staff cuts in Dumfries and Galloway
--  Lewandowski a jövőjéről beszélt
--  Stock Markets Mostly Rise Before US Jobs
--  Още четири земетресения край Симитли
--  Kein Land tut genug für Einhaltung der 1,5-Grad-Grenze
--  Se realizó lanzamiento de temporada de cruceros 2023 – 2024 en Montevideo
--  Effondrement Des Immeubles Au Cameroun : L'ifpct Propose Une Solution Idoine :: Cameroon
--  Cameroun :: Histoire De Can 2019 À 2023 Une Affaire De " Cadors" :: Cameroon
--  BLACKPINK’s Lisa Attended Rapper Jay Z’s Birthday In Paris? Find Out
--  Hamil 18 Minggu, Allyssa Soebandono Ungkap Perubahan yang Terjadi Pada Dirinya
--  Znate li ko je Zeničanin Otto Lang? Pionir američkog skijanja, četiri puta nominovan za Oskara!
--  Dünyanın En Soğuk Yeri Orası! Sıcaklık Eksi 50 Dereceye Düştü
--  Deivis Shomo, një nga themeluesit e CityRiddler paralajmëron: Tirana së shpejti pjesë e platformës inovative CityRiddler
+-  Los Angeles Lakers e Indiana Pacers fazem grande final da NBA Cup; assista pela ESPN no Star+
+-  Fredag eftermiddag lander et tal som kan rykke markedet: 'Navnet siger det jo meget godt'
+-  #CANLI Cumhurbaşkanı Erdoğan açıklamalarda bulunuyor
+-  Осуденик вознемирувал и демнел обвинителка, па заврши во притвор
+-  Rəqqasə Fatimənin avtomobili yandı: “Gözəllik üçün etmişdim”
+-  Не му оди географија: Фримпонг го утна македонското знаме (ВИДЕО)
+-  The Year in 'Sensitive Content'
+-  The Year in 'Sensitive Content'
+-  Israel Says It Detained Hundreds of Terrorism Suspects in Gaza
+-  Israel Says It Detained Hundreds of Terrorism Suspects in Gaza
+-  World's Stinkiest Cheese Hits Supermarket Shelves in Britain
+-  World's Stinkiest Cheese Hits Supermarket Shelves in Britain
+-  Sähkövikoja ja jäätyneitä ovia – Kysyimme, miten Lappeenrannan joukkoliikenne pärjää pakkasilla
+-  अतिक्रमित घर टहरा हटाउन सुरु
+-  एनसेल प्रकरणमा राजनीतिक र प्रशासनिक नेतृत्वको साँठगाँठ छ : महामन्त्री थापा
+-  भारतबाट ल्याइएका अवैध राँगा नियन्त्रणमा
+-  अवैध दुई केजी सुनसहित तीन जना पक्राउ
+-  Burriana acoge la exposición ‘El Universo Playmobil’
+-  Russia's Vladimir Putin says he will run for President again in 2024
+-  بالصور.. 15 خريجًا في الدفعة الأولى من المعسكرات العُمانية السعودية الرقمية
+-  Fenerbahçe'de şaşırtan ayrılık. Resmen açıklandı
+-  Timișoara, orașul pionier al Europei în transportul cu tramvaie trase de cai
+-  Ünlü şarkıcı hastalığını açıkladı!
+-  DİSK'ten asgari ücret açıklaması
+-  Prisca Chesang, ganadora de la San Silvestre, suspendida tras dar positivo
+-  Рақобат қўмитаси Yandex Go'нинг бозордаги устун мавқейини тан олди.
+-  Η ΑΠΟΣΤΟΛΗ της ΑΕΛ
+-  Meteoroloji’den 8 il için kuvvetli sağanak uyarısı. Yer yer kar şeklinde olacak
+-  Putin will seek another presidential term in Russia, extending his rule of over two decades
+-  Không yêu cầu xuất trình sổ hộ khẩu, tạm trú khi làm thủ tục hành chính về bảo hiểm
+-  OVO JE ARKANOVA ĆERKA ANĐELA! Dobio ju je sa GLUMICOM, volela je ŽESTOKOG MOMKA, a evo u kakvim odnosima je sa Ražnatovićima
+-  الرواية الأمازيغية في الريف: من السرد القديم إلى الرواية الجديدة
+-  TP.HCM kêu gọi đầu tư 41 dự án theo phương thức PPP
+-  Žena skidala stare tapete u kući i otkrila tajnu poruku ispisanu preko cijelog zida: 'Ponovo ćemo je sakriti'
+-  Nepričakovana smrt lihtenštajnskega princa Constantina
+-  सोमासी विद्यालय में विद्यार्थियों को किया स्वेटर वितरण
+-  Burgemeester Den Bosch niet vervolgd, OM seponeert aangiften
+-  Another 46 archaeological pieces returned to Mexico from U.S.
+-  Sắp xếp vị trí việc làm nhưng không làm tăng biên chế
+-  Diogo Ribeiro bate recorde nacional e está nas 'meias' dos Europeus de piscina curta
+-  Light No Fire: Everything we know so far about the next game from No Man’s Sky developer
+-  Ra mắt bộ công cụ đánh giá chuyển đổi số quốc gia ngành công nghiệp hỗ trợ
+-  LTG: Nghị quyết Đại hội đồng cổ đông bất thường lần 1 năm 2023
+-  UK antitrust regulator reviewing Microsoft, OpenAI partnership
+-  Burgemeester Den Bosch niet vervolgd voor Marokkanen-uitspraak
+-  التحقيق في العثور على جثة شاب أسفل عقار بالجيزة
+-  Κασσελάκης για τον τραυματισμένο αστυνομικό: «Η σημαία της ασφάλειας που διαφήμιζε η κυβέρνηση έχει υποσταλεί εδώ και καιρό»
+-  Камоцци высказался о возможном назначении Рибалты на должность спортивного директора «Спартака»
+-  Вышел новый трейлер боевика «Годзилла и Конг: Новая империя»
+-  RADNIKA RASKOMADALA DROBILICA: Užasavajući snimak, završio u mašini sa 80 tona otpada, policija nije mogla da pronađe telo (VIDEO)
