@@ -1,11 +1,11 @@
 # Latest News
--  대전시-출연연 TLO 기업 성장지원 협의회 개최
--  강원랜드사회공헌재단, 2023년 사업 성과 공유회 ‘감사의 날’ 개최
--  시흥소방서, 전국 통제단 운영 및 동원령 우수사례 발표대회 ‘2위’
--  “어려운 이웃 위해 써주세요”... 서울 강서에 쏟아진 온정
--  hy, '잇츠온 샐러드' 누적 500만개 판매
--  하나손해보험, 아동복지시설 선덕원 봉사활동
--  IBK기업은행, 중소기업 인수합병 중개 채널 'IBK M&A 센터' 오픈
--  [속보] '선거법 위반' 이병노 담양군수 1심서 당선무효형
--  11월 채권금리 급락…긴축 종료 기대감
--  [속보] 조희대 대법원장 후보자 임명동의안 국회 통과
+-  Alasan Ini Buat Messi Tolak Bersaing dengan Ronaldo di Liga Pro Saudi
+-  Denmark Larang Pembakaran Alquran
+-  Unsupervised child fell from first floor Fife window while woman ‘chatted online’
+-  Perth paedophile who fitted spy cam to woman’s clothes spared jail
+-  Ile kosztuje euro? Kurs euro do złotego PLN/EUR 08.12.2023
+-  Число погибших в секторе Газа превысило 17 тысяч, - Минздрав Палестины
+-  Ile kosztuje dolar? Kurs dolara do złotego PLN/USD 08.12.2023
+-  US criticizes Israel on Gaza civilian toll as UN to hear ceasefire demand
+-  Market bets for 2024 thrown into chaos by US recession conundrum
+-  Tap dancing to table service: Dean Park Hotel restaurant manager says ‘entertaining’ is key to success
