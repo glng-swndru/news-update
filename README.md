@@ -1,51 +1,51 @@
 # Latest News
--  새로운선택-세 번째 권력, 제3지대 '빅텐트' 신당 공동 창당 선언
--  '동계 전지훈련 메카' 강진군, 전국 규모 대회 유치로 지역경제에 활기
--  정읍시의회 이복형, 오승현 의원 희망한국 국민대상 수상
--  경북대, 답정너 논란 quot;금오공대 통합, 전적으로 부정할 수 없어quot;
--  포항시 재향군인회 청년단 안보행사 lsquo;성료rsquo;
--  인천시, 청라-북항 간 연결도로 11일 추가 개통
--  김포시, 15일 서울 편입 '대시민 소통의 장' 개최
--  울진군,lsquo;제5차 미세먼지 계절관리제rsquo; 시행
--  경기주택도시공사 '광교 기회캠퍼스' 건립사업 설계 공모
--  [INTERVIEW] Ex-NIS chief rules out bad intel as cause of Korea's failed expo bid
--  S. Korea to stage computer-simulated Taegeuk military drills next week
--  National Assembly to hold revote on 4 vetoed bills
--  Bond sales rise in November
--  Korea to begin dismantlement process for Kori-1 power plant next year
--  India, De Beers seek clarity, flexibility on G7's Russian diamond ban
--  Manufacturing Sector Significantly Contributing To Economy, India's Q2 Growth Highest In World: FM
--  Food Prices In India Likely To Inch Up In November: Report
--  เด็กจิตอาสาทาสีกำแพง “แต้มสีเติมฝัน” ทำความดีในวันที่ไม่มีพ่อ
--  홍준표 “대통령 은혜 입고도 양지 ‘분당’에만 몰려…총선 이기기 힘들어”
--  10월 경상수지 68억 달러 흑자…수출 14개월 만에 증가
--  ‘한동훈 테마주’ 끝 모를 상승세…두 번 거래 막혀도 ‘급등’
--  [단독] “이낙연, 측근들에 ‘실무적으로 신당 준비하라’ 지시”
--  與 ‘서울 6석’에 화들짝…지도부 “근거 없어, 다시 작성”
--  中 연이은 ‘수출제한’에…농식품부 “비료원료 확보 부담 없어”
--  계파 갈등 의식? 민주, 전략공관위원장에 4선 ‘정세균계’ 안규백 임명
--  وزير الاتصالات الفلسطيني: أدعو الشعوب العربية إلى مقاطعة بضائع الدول الداعمة للاحتلال
--  أرحومة يلتقي العشرة الأوائل الموفدين من قبل الحكومة الليبية للأردن
--  Pemerintah China dan Singapura Sepakati Bebas Visa Mulai 2024
--  인제서 발굴 6·25전쟁 유해는 18세 조도형 하사, 72년 만에 가족 품으로
--  [속보] 여야 "예산안 20일 본회의까지 처리" 공식 합의
--  Cina Mulai Reaktor Nuklir Generasi Keempat Pertama di Dunia, Berbahayakah?
--  Frente Frío 16 se aproxima: ¿Cuándo llegará a México y qué estados ‘congelará’?
--  เชียงใหม่ เปิดการแข่งขันกีฬานักเรียน นักศึกษาฯครั้งที่ 43
--  Faeser: Grenzkontrollen werden zwei Monate verlängert
--  Faeser: Grenzkontrollen werden zwei Monate verlängert
--  Kıbrıs’ta satışa önlem geliyor
--  Thông tin mới nhất vụ cô giáo bị nhóm học sinh dồn vào góc lớp, ném dép
--  Səhnəyə elə geyimə çıxdı ki, hamı onu lüt sandı
--  Bills coach Sean McDermott 'cited 9/11 attacks as example of TEAMWORK in 2019 speech,' unnamed sources say - with the Buffalo boss later apologizing for his astonishing choice of words
--  MyCTC Janjikan Konten Kreator Bisa FYP & Dapat Cuan Tambahan
--  [[리더스카페] 명품받아야 ‘진짜 프러포즈’...2030 “가짜사랑마저 고프다”
--  [LGU+ 글로벌 오픈랜 성과공유회 참여...국내 첫 3년 연속
--  [[리더스카페] 루돌프는 백화점 사은품이었다...크리스마스에 얽힌 ‘황당한’ 진실
--  [알츠하이머 조기 진단길 열린다
--  [유영상 대표 연임한 SKT “AI사업·글로벌 역량 강화”
--  [[한눈에 읽는 신간] 스토리테크 전쟁, 정상동물, 미래경제 지식사전
--  [쏘카, 자연어처리 최고권위학회 ‘EMNLP’ 우수상
--  [유일 수능 만점자 유리아 “전교 1등 못해봤는데, 얼떨떨”
--  [조주완 “모두가 다니고 싶은 즐거운 회사 만들 것”
--  [포스코그룹, 유튜브 공모전 75편 수상작 발표
+-  ผบ.ทอ.สั่งตรวจสอบข้อเท็จจริง สห.แต่งเครื่องตั้งแถวรับนักท่องเที่ยวจีน
+-  순천향대중앙의료원-KOICA, 엘살바도르 1차 보건 강사양성 교육
+-  우리아이들병원, 구로구에 따뜻한 겨울나기 성금 전달
+-  중앙대광명병원, 한국정맥경장영양학회 영양집중지원팀 인증 획득
+-  ﻿강남나누리병원 제6대 임재현 병원장 취임
+-  글로우 '브리더블 비비크림' 신규 색상 2종 출시
+-  핏펫, 2023 베스트 어워즈 '반려동물 인기브랜드' 기획전
+-  고대안암병원 김영훈 교수, 남북보건의료교육재단 이사장 취임
+-  필립스코리아, 스마트 환자 모니터링 포럼 성료
+-  루닛, 'AI로 폐결핵 진단 효과 향상' 연구 결과 글로벌 저널 게재
+-  딥노이드, 필리핀 시작으로 의료 인공지능 해외사업 본격화
+-  용인세브란스병원 박진영 소장, 보건복지부 장관 표창 수상
+-  경희의료원 디지털헬스센터 연동건 교수, 보건복지부 장관 표창
+-  Italien: Rentnerin landet wegen hoher Wasserrechnung auf Intensivstation
+-  भ्रष्टाचार नियन्त्रणमा इच्छाशक्ति
+-  विधि व्यवस्थापनको प्रयास
+-  मुग्लिन–पोखरा सडक विस्तारः पूर्वी खण्डमा नौ किमी कालोपत्र
+-  गैरकानुनी भर्तीको जोखिम
+-  제주-우도 구간 해저 광케이블 깔렸다
+-  중앙청년지원센터, 청년센터 종사자 대상 '보이는 정책라디오' 성황리에 진행
+-  Elon Musk Luncurkan Chatbot Grok ke Pelanggan X Premium+, Pesaing ChatGPT
+-  Nabestaanden Carlo krijgen woord in hoger beroep Mallorcazaak
+-  Scholen hebben weer Paarse Vrijdag
+-  “나도 반복되는 부상이 지긋지긋해!”... 유리몸도 아까운 ‘日 수비 에이스’의 울분
+-  로메로 돌아왔음에도 또 역전패...더욱 그리워지는 '제2의 반 다이크' 판 더 펜
+-  Maple Leafs beat Senators in regulation, but lose Woll in the process
+-  الامارات | مليون دولار مجموع جوائز البطولة العالمية للرياضات الالكترونية بأبوظبي
+-  الجزيرة .. ثقافة وإعلام ولكن
+-  【無色透名祭Ⅱ参加曲】激烈なバンドサウンドに心奪われる！キタニタツヤも高く評価、隠れた無名の才能による秀作「暴奏」
+-  Arkane Lyon announces a new Blade game
+-  乳幼児と過ごす年末年始は飾り物やプレゼントの誤飲に注意！消費者庁が注意喚起
+-  Shillong Teer Result TODAY, December 8 LIVE: Winning Numbers for Shillong Teer, Morning Teer, Juwai Teer, Khanapara Teer, Night Teer, & More
+-  Earthquake in central Mexico shakes capital city
+-  [TGA 2023] A God of War Ragnarök is fejest ugrik a roguelite műfajba
+-  Fliesst Hamas-Geld durch die Schweiz?
+-  Der neue Rabbiner steht fest
+-  Subvention beschlossen
+-  SG Finnentrop/Bamenohl – FC Brünninghausen: Sonntag, 15.00 Uhr
+-  Brandenburger Tor leuchtet
+-  Israels Wut auf das Rote Kreuz
+-  Entschuldigung
+-  Ruhestand
+-  Oficializaron días y horarios de la última fecha
+-  Lebenswerk
+-  «Ich möchte keine Judentum-Aktivistin sein»
+-  Wie im Labyrinth
+-  Syyttäjien jutturuuhkat ovat hieman helpottuneet
+-  Vaalikone on avattu – löydä oma ehdokkaasi Mediakonserni Keskisuomalaisen presidentinvaalikoneesta
+-  Jokowi Bicara Perpanjangan Izin Usaha Freeport hingga 2061, Ini Kata Kadin Indonesia
+-  Indonesia Akan Jadi Basis Produksi Setir Kanan untuk Chery Omoda E5
