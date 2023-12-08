@@ -1,11 +1,11 @@
 # Latest News
--  Costa Rica’s Japdeva Scores Tariff Increase: A Financial Lifeline or Just a Drop in the Ocean?
--  Empresarios pesimistas sobre situación de su empresa por primera vez en más de 3 años
--  Bo Nix tells prospective players why they should come to Oregon
--  بالصور.. حفل بمواصفات عالمية لحملة مانحي الأمل بحضور صفاء أبو السعود وحفيدة شارلي شابلن
--  Calls for Australians to report ransomware attacks
--  Soccer-Ronaldo marks his 1,200th game in style as Al-Nassr bounce back
--  تدشين الأستوديو الجديد القار لاذاعة تونس الثقافية.
--  Soccer-Juventus back on top after clinical win against wasteful Napoli
--  Tajne svemira (8.12.2023.)
--  The Titans place punter Ryan Stonehouse on IR with season-ending injury
+-  Pdci Rda: Guikahué songerait-il à sa retraite politique ?
+-  Country Singer Wade Bowen Knew Partnering With Fire Country Was A 'Great Idea,' And Has A Specific Hope In Mind For Fans After Live Show
+-  Muere el actor Ryan O’Neal, protagonista de ‘Love Story’, a los 82 años
+-  VIDEO Riječanin zabio gol u važnoj pobjedi, pa je kasnije napustio igru zbog ozljede
+-  [걸어서 세계 속으로] 독일에 가을이 오면...
+-  "KAD GUDALO GUDI, KOSOVO SE BUDI": Guslari pred punom salom Kolarčeve zadužbine napravili spektakl za pamćenje (FOTO)
+-  Área projetada de plantio de algodão em Mato Grosso cresce 3,2%
+-  Skandal um Royals-Buch: Britischer Autor enthüllt die ganze Wahrheit
+-  Spirit Airlines passenger becomes a viral sensation after bringing his own PARACHUTE on a flight: 'The smartest idea I've ever seen'
+-  Šestero tinejdžera osuđeno zbog uloge u ubojstvu nastavnika 2020.
