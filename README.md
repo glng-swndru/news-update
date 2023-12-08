@@ -1,11 +1,51 @@
 # Latest News
--  भुटानी शरणार्थी शिविर बस्तीमा परिणत भएको गुनासो
--  ‘शिक्षा, स्वास्थ्य, कृषिलाई प्राथमिकता दिइने छ’
--  김석훈 국민의힘 안산상록갑 당협위원장, ‘안산학연구원 창립 제16주년 기념 창립기념식’ 참석
--  Dukung Peningkatan Recycle Rate di 15 titik secara Nasional, Le Minerale Serahkan Tambahan Mobil Penjemputan Plastik dan Galon PET ke POPI
--  Sonia Gandhi`s birthday: Interesting facts about former Congress president
--  Sonia Gandhi`s birthday: Here are some top quotes of former Congress president
--  Post breakup, Himanshi Khurana shares personal chat with Asim Riaz
--  プラスチック漁網をサングラスに！リサイクルで推進し2万5000本以上を販売 イギリスで新たなプラごみ対策
--  Mengenal Universe Ticket, Seleksi 82 Kontestan Pencarian Calon Anggota Grup K-Pop
--  Emma Stone, Mark Ruffalo, Willem Dafoe Praise ‘Poor Things’ Filmmaker Yorgos Lanthimos: “He’s a Beautiful Director”
+-  Musk’s New Startup To Roll Out AI ‘Grok’ For X’s Premium+ Subscribers
+-  The Year That Was For Generative AI— And The Shape Of Things To Come
+-  Ethics Panel Report On TMC MP Mahua Moitra To Be Tabled In Lok Sabha
+-  RBI To Reveal Monetary Policy Today, Another Pause In Repo Rate Most Likely
+-  일구대상은 '최강야구', '특별 공로상-후배 A씨 고소' 김하성은 불참(종합)
+-  Gazze için ‘satıyorum!’
+-  Müebbet isteniyor
+-  Thieves try to rob ATM using gas cutter, notes burnt
+-  Power crisis raises product costs by 40% – Report
+-  ឃាត់ខ្លួនជនពាក់ព័ន្ធចំនួន ៧១នាក់ ក្នុងបទល្មើសគ្រឿងញៀនទូទាំងប្រទេសថ្ងៃទី ០៧ ធ្នូម្សិលមិញ!
+-  Man sets himself on fire at friend’s house in Bengaluru
+-  [홍콩의 중국화…주재 영사관·국제기구 부동산 임차 연장 시 中승인 필요
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [다니엘 린데만, 한국인 여성과 결혼…전현무 사회
+-  [비·김태희 집 ‘초인종’ 여러번 눌러…‘스토킹 혐의’ 40대女의 최후
+-  [전기硏, 中企 소재·부품 개발 핵심인프라 구축
+-  [인천관광공사, 시 산하 공기업 최초 4년 연속 ‘사회공헌’ 수상
+-  [주식카톡방 완전무료 선언” 파격결정
+-  [“소아과 오픈런은 엄마들 브런치 타임 탓?” 동료 실언에 뿔난 소아과 의사들, 왜?
+-  [쿠첸, 공식 브랜드 홈페이지 리뉴얼 오픈
+-  [관세청, 관세 분석의 ‘국제 표준’ 선도
+-  [술에 취해 비틀대다 차도로 넘어져 시내버스에 깔린 40대 사망
+-  EV Group Brings Revolutionary Layer Transfer Technology to HVM
+-  [“마트에서 45일간 생존”…6억원 거머쥔 男, 대체 무슨 일?
+-  [산림청, 12월 이달의 임산물 ‘옻나무’ 선정
+-  [‘김포시의 서울 편입‘ 여론 한 곳에… ‘김포시 대시민 소통의 장’ 개최
+-  El DLC de Final Fantasy XVI: Echoes of the Fallen está disponible hoy mismo
+-  NJC declines Adeleke’s request to replace Osun CJ, sacks state’s High Court judge
+-  소아과 오픈런이 엄마들 브런치 때문?… 소청과 "우봉식 사퇴하라"
+-  Google Gemini is a game-changer for messages
+-  Google Gemini is a game-changer for messages
+-  El azar en el sorteo estuvo a favor de Bielsa y de Uruguay: buen grupo, viaja poco y no se cruza con Argentina hasta la final
+-  Don’t demoralise farmers, AP Minister Kakani tells Chandrababu Naidu
+-  No hay plata: 10 lecciones para comunicar economía en tiempos de Milei
+-  ‘역대급 불수능’ 2024학년도 수능 성적표 배부…전영역 만점자 1명
+-  조응천 “이재명과 통화…‘뭐가 문제라서 시끄럽게 구냐’로 들려”
+-  Reuters' Issam Abdallah covered world's biggest events with bravery and insight
+-  Sale de Atlético Nacional y le gusta a Tulio Gómez
+-  「需高關稅保護」，塔塔汽車遊說印度政府別為特斯拉降稅
+-  GTFO is getting a final update, bringing the game to a close with Rundown 8
+-  Reflow Soldering System Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
+-  Hello Games unveils massive open-world multiplayer game, Light No Fire
+-  Kaji Video Kader PAN Joget di Kantor Kemendag, Bawaslu: Jangan Sampai Gak Tahu Aturan
+-  ผจก.ประปาชี้แจงชาวบ้านขอเวลา 3 เดือนในการแก้ไขระบบกลับมาสมบูรณ์อีกครั้ง
+-  김영환 충북지사, 세계한인무역협회장과 협력 방안 논의
+-  ЗСУ продовжують наступати на лівому березі Херсонщини: аналіз ISW
+-  BDA proposes Rs 3,650/sqft for Karanth Layout
+-  Tottenham Hotspur vs West Ham United 1-2 di Liga Inggris, Son Heung-min: Kami Terlalu Lembek
+-  서대문자연사박물관, 관람객과 소통하는 도슨트 로봇 도입
+-  Anak bekas ketua tentera Israel maut bertempur dengan Hamas di Gaza
