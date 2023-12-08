@@ -1,51 +1,11 @@
 # Latest News
--  Nepredstaviteľné týranie dieťaťa: Matka mesiace väznila syna v klietke pre psa, umučila ho takmer na smrť
--  Dom jedného z najznámejších Američanov takmer skončil v plameňoch! Šialenú ženu zastavili policajti v civile
--  Kleurrijke lichtjestour trekt door Lunteren
--  Uldriķa vārtu guvums un rezultatīva piespēle sekmē "Cambuur" uzvaru
--  House Republicans successfully include provision to ban Defense Department from funding 'disinformation' industry
--  SAD stavile veto na rezoluciju SB UN o momentalnom prekidu vatre u Gazi
--  Paramount PARA shares jump after reports of takeover interest
--  Wall Street finit la semaine sur une note positive
--  No Christmas crab: California’s commercial Dungeness season delayed again
--  Stórsigrar Noregs og Hollands
--  Meet the 27-year-old 'water buffalo' negotiating California's claim to the evaporating Colorado River
--  What to watch this weekend in Olympic sports
--  كرم جبر: التصويت في الاقتراع الرئاسي انتخاب للدولة ودفاع عن أمنها القومي
--  Galatasaray, 3 puanı 3 golle aldı
--  Irak'ta yangın: 14 ölü
--  İsrail'den itiraf gibi açıklama: Başarısız olduk
--  ABD, Gazze'de kana doymuyor! Acilen insani ateşkes tasarısına veto
--  Samsunspor deplasmanda farklı galip
--  BM Gazze'deki sefaleti vurguladı: Siviller çaresiz, insanlar aç, gıda yok
--  عاجل.. الدانمارك تعتمد قانونا حول الإساءة للمصحف.. و"التعاون الإسلامي" تصدر بيانا
--  السبت 25 جمادى الأولى.. مواقيت الصلاة في مكة والمدينة وجميع المناطق
--  Διευκρινιστική δήλωση του εκπροσώπου του τουρκικού υπουργείου Εξωτερικών για τις βίζες σε ελληνικά νησιά
--  В Sony назвали преимущества консолей над ПК
--  Ο Ολυμπιακός επέστρεψε στις νίκες κόντρα στη Μπάγερν Μονάχου – Δε πλήρωσε τη χαλάρωση
--  Abogado afirma que Venezuela tiene la oportunidad de defender el Esequibo
--  '손흥민 마저 부상 당하면 토트넘 TOP4 재진입은 불가능'→포스테코글루 "부상 확신 할 수 없다"
--  韓 최초 GG→폭행 진실공방→시상식 불참→은사 재회 불발 '이게 무슨 일인가'... 김하성 암울한 연말
--  김우빈, 김장하러 오면서 '꾸꾸' 착장…이광수 "신발 점점 뾰족해져" [콩콩팥팥]
--  '특임대 지원' BTS 뷔 "레펠 무섭지만, 부딪히고 싶어 간다"…직접 밝힌 이유 [MD이슈]
--  Una mujer murió en pleno acto sexual en un motel de Colombia
--  Kisii RFC hand Omari debut for Citam clash
--  Aktien New York Schluss: Nach Arbeitsmarktdaten legen Kurse zu
--  LIVE TJ - JUVENTUS-NAPOLI 1-0 - Colpo di testa di Gatti, la Juve sblocca il match!
--  Ομόνοια: Εξέλιξη με τον αδερφό του Ουζόχο
--  DIY χριστουγεννιάτικες γυάλες
--  Bond set at $500,000 for Sen. Kevin Cramer’s son in crash that killed deputy
--  Falla eléctrica registrada en el Zulia se originó en la línea Yaracuy- El Tablazo
--  Višković: Šmit će morati da svedoči u sudskom procesu protiv Dodika
--  Kodak Black arrested on drug charges in California
--  Thousands of tons of dead sardines, mackerel wash ashore in northern Japan
--  Ο Ολυμπιακός έκανε τη δουλειά απέναντι στην Μπάγερν στο ρελαντί και ξαναμπήκε στην οκτάδα
--  Woman charged with trying to burn Martin Luther King Jr. birthplace
--  Coastal Renaissance return to service now expected in early March, BC Ferries says
--  Элла Памфилова нашла исторические корни многодневного голосования
--  RB Lipsk walczy o piłkarza z Bayernem Monachium. I jest pierwszy z ofertą
--  Tokyo Disneyland apologizes for Minnie Mouse skirt-lifting incident
--  Handball: ThSV Eisenach gewinnt Ostderby gegen DHfK Leipzig
--  The 35+ Best Gifts for Any Dad (According to a Cool Dad)
--  Vārti Marenim un Buncim, piespēles Džeriņam, Freibergam un Eglem
--  ЕС рассматривает ввод дополнительных ограничений против российского и белорусского бизнеса
+-  الدوري السعودي.. رباعية النصر وهدف محمد شريف
+-  الخارجية ترد على أنباء دخول أجانب من قطاع غزة إلى مصر عبر معبر رفح
+-  مندوب الجامعة العربية: نتوقع فيتو أمريكي لعرقلة مشروع القرار العربي بشأن غزة
+-  وزير الخارجية: الوضع الحالي في غزة لا يمكن استمراره
+-  أمريكا تستخدم حق الفيتو في الاعتراض على وقف إطلاق نار إنساني بغزة
+-  بالفيديو.. فنانون ومشاهير يوجهون رسالة مهمة للمصريين
+-  طوني خليفة: كان نفسي أعمل عمرة.. وكل الأديان تصب في مكان واحد
+-  InventionHome® Announces New Invention— Side Shelf Fishing Seat
+-  Iceland boss taunts loan sharks firm by apologising for taking business off them
+-  EEUU veta en la ONU un alto el fuego humanitario inmediato para Gaza
