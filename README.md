@@ -1,51 +1,11 @@
 # Latest News
--  Your SoCal Weather Report For Friday, Dec 8: Stay Ready For Wildfire Risks
--  El frío cobró su primera víctima, indigente falleció tirado sobre una banqueta
--  Evropski tužilac sumnjiči bivšu ministarku Hrvatske za trošenje evropskog novca u privatne svrhe
--  Refuerza Seguridad Vial operativo contra abusones en filas a El Paso
--  Ruskim sportistima dozvoljen nastup na Olimpijadi
--  New Ybor mass shooting suspects make 1st court appearances
--  Curtea Supremă a Finlandei blochează extrădarea în Ucraina a fondatorului unei unități Wagner, din cauză că închisorile sunt supraaglomerate și s-ar putea confrunta cu tratament inuman
--  Juan Grabois: Me llamó Milei para solidarizarse y me pareció sincero
--  Muere la actriz Itziar Castro, conocida por su papel de “Goya” en la serie Vis a Vis; tenía 46 años
--  Poliittinen lakko ei saa ymmärrystä salolaisyrityksissä – ”Tällä ammutaan vain omaan jalkaan”
--  Hamas osudio fotografiju skinutih Palestinaca okruženih izraelskim vojnicima
--  Guerre Hamas-Israël : Le Hamas a-t-il profité en bourse de l'attaque du 7 octobre ? Des experts écartent l'hypothèse
--  Guerre Israël-Hamas : Entre mobilisation acharnée et équilibre familial, la double vie des proches d'otages
--  Un mannequin de 21 ans, élu plus bel homme d'Italie, plaque tout pour devenir prêtre
--  Izraelski helikopter promašio metu i greškom ubio svog vojnika
--  मुलुक परिवर्तन गर्न कांग्रेस परिवर्तन हुनु जरुरी छ: डा. कोइराला
--  Қозоғистонда 46 кончи ҳалок бўлган кўмир шахтаси хорижлик инвестордан қайтариб олинди .
--  ХОҚ россиялик ва беларуслик спортчиларга 2024 йилги Олимпиадада нейтрал мақомда иштирок этишга рухсат берди .
--  Хитой дунёдаги «энг илғор» ядро реакторини ишга туширди .
--  Messi, uno de los candidatos al premio The Best de la FIFA
--  Rama: “21 Janari” i mbyllur në prokurorinë e Tiranës, drejtësia e re do e zbulojë
--  América vs. San Luis: Miguel Layún no ve el juego definido y hace un llamado a la afición
--  Freigericht: Vier katholische Kitas entwickeln gemeinsam mit zwei Einrichtungen aus Rodenbach und Langenselbold ein Konzept für Gewaltschutz
--  Страшный нокаут «лицом вперед» состоялся на турнире по ММА в России. Видео
--  Vilebrequin: retour sur les trois concepts phares du duo
--  Twitch, Top Gear: après l'arrêt de leur chaîne, les Vilebrequin dévoilent leurs projets
--  Offre canon ou erreur d'affichage sur le Samsung Galaxy S23 ?
--  Les Vilebrequin arrêtent leur programme sur Youtube après six ans
--  Jeu vidéo de l'année 2023, principales annonces... Voici ce qu'il faut retenir des Game Awards
--  Comment utiliser les messages audio éphèmères sur Whatsapp?
--  Ce mini projecteur est utilisable partout pour un prix inférieur à 70 euros
--  Intelligence artificielle: Google a un peu triché dans sa vidéo de présentation de Gemini
--  GTA 6, Game Awards: la folle semaine du jeu vidéo avec Lox et Chris Klippel
--  Le Samsung Galaxy S23 Ultra est à prix canon, ne manquez pas cette remise folle
--  C'est le moment de craquer pour l'iPhone 15 avec cette promotion inédite
--  Fatih Portakal canlı yaynında açıkladı! "Asgari ücret bu rakamın altına düşmeyecek..."
--  Weather Update: শনিবার থেকেই রাজ্য়ে ফিরতে পারে শীত। ABP Ananda Live
--  US economy adds 199,000 jobs as unemployment rate falls slightly
--  Critics decry Ohio's proposed ban on gender-affirming care for trans youth
--  Betting firm Flutter to list on New York stock exchange in January
--  Betting firm Flutter to list on New York stock exchange in January
--  NFL playoff race: Eagles and Cowboys renew rivalry with stakes sky high
--  US economy adds 199,000 jobs as unemployment rate falls slightly
--  Critics decry Ohio's proposed ban on gender-affirming care for trans youth
--  NFL playoff race: Eagles and Cowboys renew rivalry with stakes sky high
--  Application Lifecycle Management Market worth $7.38 billion by 2030, growing at a CAGR of 7.56% - Exclusive Report by 360iResearch
--  Opportunities galore as Harmanpreet looks to build team for T20 World Cup
--  [Trailer] Après Brangelina, Donald Glover et Maya Erskine deviennent “Mr. & Mrs. Smith”
--  Beşiktaş, Fenerbahçe maçı için kamp kadrosunu açıkladı
--  Hamas: İsrail'in Ömeri Camisi'ni bombalaması medeniyete karşı nefretinin kanıtıdır
+-  Ceny poriadne vzrástli: Najdrahšími mestami na svete sú Singapur a Zürich
+-  BIZARNÝ OUTFIT tehotnej krásky: Bruško obalené v zlate!
+-  Polícia obvinila 58-ročného muža, po rozchode prenasledoval bývalú priateľku
+-  Ekrem İmamoğlu'ndan Akşener'in eleştirilerine yanıt geldi
+-  Ideas para decorar de forma original el árbol de Navidad
+-  "Peligroso y discriminatorio": Los gobiernos de la UE aceleran la presión para permitir la vigilancia policial mediante inteligencia artificial
+-  Independent Commission for Truth, Unity & Reconciliation to be established
+-  Kriselt es schon bei Jona Steinig und "Love Island"-Alessa?
+-  Aston Villa v Arsenal 8/1 Bet Builder: Get Watkins to score, Saka to score or assist, Kamara 1+ foul and McGinn fouled with Paddy Power
+-  „...bus atvežta daugiau karių...“ Kremlius perspėja Suomiją. Estija, Latvija ir Lietuva pasirengė
