@@ -1,11 +1,11 @@
 # Latest News
--  Beşiktaşlı Vincent Aboubakar, Fenerbahçe maçlarında ekstra motive oluyor
--  Özgür Özel, Muharrem İnce hakkında konuştu: 'Belediye başkanı ol' denmez
--  Leading Australian Fire Safety Engineering and Testing Consultancy Warringtonfire Australia Joins Jensen Hughes
--  Karoglan o ozljedi Hajdukovog prvotimca: Ne izgleda dobro
--  تفاصيل مباراة ريال مدريد ضد ريال بيتيس
--  نيفيز: حققنا المطلوب أمام الطائي في الدوري السعودي
--  Зеленский подписал «антикоррупционные» законы для выполнения рекомендаций ЕС
--  Recuperan 987 autos con denuncias de hurto y robo
--  Procès de Monique Olivier : un policier met en doute "l'implication" du couple Fourniret dans l'affaire Mouzin
--  Jubilarni 160. dan: SDT još nije reagovalo na Đukanovićeve mjesečne „harače“ od 300.000 evra
+-  القسام تفجر منزلا تحصن فيه عشرات من جنود الاحتلال
+-  المقاومة تلحق خسائر كبيرة بجيش الاحتلال
+-  تعرض أسير أردني لاعتداء وحشي في سجون الاحتلال
+-  الاحتلال يعترف بفشله في الوصول إلى جندي أسير
+-  (القاضي الرحيم) يعلن إصابته بالسرطان - فيديو
+-  المقاومة تكشف تفاصيل فشل تحرير الاسير ساعر باروخ - فيديو
+-  نوع من البذور قادر على خفض خطر الإصابة بسرطان الثدي
+-  SDP dismisses involvement in rumoured coalition against Tinubu
+-  ‘Party animal’ tennis star Nick Kyrgios hits Miami Art Week, but may stay in because, ‘I don’t know when to stop’
+-  SHMÚ varuje pred hmlou v niektorých častiach Slovenska
