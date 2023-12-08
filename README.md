@@ -1,51 +1,51 @@
 # Latest News
+-  쉴 때 누워만 있는 당신…우울감·불면증 위험 커진다
+-  [김회룡의 시사 TOON]
+-  Davíð við Andra: Ekki til í að taka þátt í að skrifa einhverja rómantíska sorgarsögu
+-  Tìm thấy cục pin sản xuất năm 2010 trong mộ cổ 2.200 năm, chuyên gia hét lớn: “Gọi cảnh sát ngay”
+-  Ako sa na Vianoce neutrhnúť z reťaze? Podľa odborníčok na stravovanie koláče nie sú hriech
+-  Zarosené okná dokážu potrápiť: Zatočte s nimi ešte dnes!
+-  Preskúmaj slávny bunker z čias studenej vojny: Stavíme sa, že na poschodí sa zľakneš aj ty!
+-  Tejpovanie nosa? Táto influencerka to robí ako svoju večernú rutinu, dôvod ťa pobaví!
+-  Kto je Khaby Lame? Nepovedal zatiaľ jediné slovo, aj tak je najlepší TikToker na svete!
+-  Modelky bez nôh či s jazvami? Tieto krásky búrajú mýty, svet ich miluje!
+-  Flexking bude legenda jak Messi: Týmto videoklipom spustil predaj nového albumu
+-  B.C. jury finds Ibrahim Ali guilty of first-degree murder in 2017 teen slaying
+-  “Los cargos están adjudicados, el material electoral es inalterable”: Gabriel Medrano, exmagistrado del TSE
+-  Vladimir Putin's Presidential Election Rival Fears for Life
+-  Why being cold is good for your brain, sleep and waistline... And it helped my son after his first-floor plunge
+-  WEST MINING ANNOUNCES PRIVATE PLACEMENT
+-  Ceaip resuelve 96 asuntos de transparencia de entidades públicas en sesión ordinaria
+-  Mercado 2024: ¿Cuánto le costaría a Cruz Azul fichar a Lorenzo Faravelli y Lautaro Díaz?
+-  دراسة تكشف: تناول الكاكاو يحميك من هذا المرض
+-  PBCO Financial Corporation Announces Securities Portfolio Repositioning
+-  Постпред: КНР разочарована вето США на проект резолюции по сектору Газа в СБ ООН
+-  Así es el Ugly Poncho Bacacho 2023. ¿Cuánto cuesta?
+-  EEUU obstruye resolución de Consejo de Seguridad de ONU para exigir tregua humanitaria inmediata en Gaza
+-  JBPN Sarawak tunggu penilaian COVID-19 KKM sebelum kemuka SOP
+-  Gli Stati Uniti hanno messo il veto su una risoluzione del Consiglio di Sicurezza dell’ONU che chiedeva il cessate il fuoco nella Striscia di Gaza
+-  Shane MacGowan's widow carries on dancing into the night as 300 guests including Johnny Depp and Nick Cave attend wake for legendary singer in modest thatched-roof pub
+-  Antes de la asunción de Javier Milei, mirá los invitados de Andy Kusnetzoff en PH
+-  VEČE ZA PAMĆENJE U VRANJU Folklorni ansambl "Sevdah" i gosti iz Severne Makedonije oduševili publiku u pozorištu "Bora Stanković"
+-  Kamloops assault prompts search for 2 persons of interest
+-  ¡Van por unas fiestas decembrinas sin incidentes! Arranca SSPM operativo Guadalupe-Reyes en Mazatlán
 -  تنبيه عاجل حول كيفية نقل معلومات الجواز لمقيم خارج المملكة
+-  'Love Story' Actor Ryan O'Neal Dead at 82
+-  49ers vs. Seahawks: QB Geno Smith a game-time decision due to groin injury
+-  DOJAVA O BOMBAI U DISKOTECI: U toku evakuacija objekta u Novom Sadu
+-  GigaFarm akan dibina di Dubai Food Tech Valley
+-  Love Storysta ja Barry Lyndonista tunnettu näyttelijä Ryan O'Neal on kuollut 82-vuotiaana
+-  Love Storysta ja Barry Lyndonista tunnettu näyttelijä Ryan O'Neal on kuollut 82-vuotiaana
+-  تقييم دانيلو في مباراة يوفنتوس ونابولي
+-  Nightlife community mourns club luminary Rocco Ancarola
+-  Ibrahim Ali guilty of first-degree murder in death of Burnaby girl: jury
+-  Trick Williams On His Current Status In WWE NXT, Starting Off With Carmelo Hayes
+-  Cuadra Fernández expulsó a Javi Guerra por decirle "¡eres malísimo!", según el acta
+-  Askar, polis dipenjara kerana tinggalkan tugas kini dibebaskan
 -  Invitan a 'Jornadas Educativas del Tatuaje'
 -  Guardia Nacional omite alto y provoca choque
--  Hollywood-skuespilleren Ryan O'Neal er død - 82 år
--  Patriots waive Ty Montgomery after claiming Christian Elliss
--  진짜 ‘마약 김밥’ 만들었다…재배한 대마로 음식한 20대
--  War in the Middle East usually makes oil prices spike. Why isn't that happening now?
--  War in the Middle East usually makes oil prices spike. Why isn't that happening now?
--  The U.S. has vetoed a Gaza cease-fire resolution in the U.N. Security Council
--  The U.S. has vetoed a Gaza cease-fire resolution in the U.N. Security Council
--  Israelis near Lebanon border caught between Israeli and Hezbollah fighting
--  British government pushes ahead with plan to deport undocumented migrants to Rwanda
--  British government pushes ahead with plan to deport undocumented migrants to Rwanda
--  Israelis near Lebanon border caught between Israeli and Hezbollah fighting
--  'Latkes Con Salsa' melds Hanukkah favorites with Latin rhythms
--  'Latkes Con Salsa' melds Hanukkah favorites with Latin rhythms
--  Putin will seek another presidential term, aiming to extend his grip on Russia
--  Putin will seek another presidential term, aiming to extend his grip on Russia
--  'Scorsese says The Red Shoes is in his DNA': Thelma Schoonmaker on her life and work with Michael Powell and his friend Marty
--  The real Saltburn – and 10 more scene-stealing stately homes from films
--  Gérard Depardieu documentary shows 'vile' footage of sexist behaviour
--  ‘A Male’ (Un Varón) Review: A Young Boy Aches to Avoid Becoming a Hardened Man in Colombian Christmas Tale
--  Labor market plows ahead
--  Julia Roberts Turned Down Meg Ryan’s ‘You’ve Got Mail’ Role Amid Rom-Com Streak, Says ‘My Best Friend’s Wedding’ Warrants a Sequel
--  Getafe supera 1-0 a Valencia en juego con tres expulsados y un gol crucial en la Liga de España
--  6 Heartfelt Gifts for Singers You Can Give Year-Round, According to Pop Singer LÉON
--  Govt eyes different funding models to build new hospitals
--  غارتان إسرائيليتان على جنوب لبنان
--  تجنبها..أطعمة لا ينبغي أبداً تناولها مع البرتقال!
--  Guterres'ten Gazze'de ateşkes baskısı: ABD vetosuna tepki
--  ما هي الأطعمة الغنية بالدهون الصحية؟
--  Save The Children: İngiltere, Gazze'deki çocukların yaşayacağı dehşetin suç ortağıdır
--  [인터뷰] 신민아 "푸근한 '3일의 휴가', 솔직해서 좋았죠"
--  Taylor Swift’s Eras Tour is the first tour to gross over $1 billion, Pollstar says
--  Ai Act, sulle regole per l’intelligenza artificiale raggiunto l’accordo in Europa. Breton: “Momento storico, il meglio deve ancora venire”
--  Régimen firma acuerdos para “situaciones de emergencia” con Bielorrusia, aliado de Putin
--  أمطار غزيرة.. الأرصاد تنبه لتقلبات في الأحوال الجوية بدءا من الثلاثاء
--  Parque de diversão no Barigui inaugura neste sábado (9)
--  McCarthy declares support for Trump in 2024
--  Irak tacha de "acto terrorista" el ataque con cohetes contra Embajada de EE.UU. en Bagdad
--  “TikTok es adictivo”: el duro informe que revela el impacto de la red social en la salud mental y la privacidad de los argentinos
--  Fernández: "Si algo me reprocho es no acabar con la grieta que nos enfrenta"
--  ජාතික සංහිඳියාවට අහිතකර ලෙස විශ්වාසනීයත්වය පිළිබඳ පරතරය වර්ධනය වේ
--  Which Mexican singer’s hit is Rolling Stone’s song of the year?
--  Brasil y Paraguay incineran 3.800 toneladas de marihuana en lo que va de 2023
--  Luciana Fuster tiene fecha de llegada a Perú luego de ganar Miss Grand International 2023 y brillar por Asia
--  Govt eyes different funding models to build new hospitals
--  Gov. Yusuf appoints 21 permanent secretaries
--  La UE pacta la ley de inteligencia artificial
--  El top de series más vistas en Prime Video México
+-  Global Industrial Centrifuge Market Shows Resilience, Projected to Reach $11.32 Billion by 2027
+-  76 Best Gifts for Teens in 2023 That Are TikTok-Approved
+-  Saber salir, saber despedir
+-  Betis - Real Madrid | La Liga mira al Benito Villamarín
+-  La temporada baja se acorta: el buen tiempo en otoño impulsa el turismo y el PIB
