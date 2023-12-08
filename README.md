@@ -1,51 +1,51 @@
 # Latest News
--  Dobro ćete razmisliti hoćete li opet kupiti pravo božićno drvce: Pogledajte što je ova žena pronašla u svom primjerku
--  Myth busting the viral 'Irish castle island'
--  Remembering a 1961 childhood Christmas in Ireland
--  The best places in Ireland to celebrate Christmas
--  경기도, 시스템반도체 기업 지원 '우수기술사업화 사례발표회' 개최
--  김동연 지사, 보육인 2천명 만나 "가장 좋은 보육환경 위해 노력"
--  경기도, '푸드테크 산업 발전 협의체 구축 간담회' 개최
--  경기도, 시군 우수사례 발굴·공유… 도민 안전 강화
--  인천시, 21대 국회 임기 내 ‘인천고법 유치’ 총력… 관련 법률안 조속 처리 건의
--  한국공인중개사협회 경기남부지부, 33개 지회와 '사랑의 봉사활동' 실시
--  [인사] 농협중앙회 경기본부·NH농협은행 경기본부
--  용인시의회 문화복지위, 내년 예산 121억 삭감… 민선 8기 사업 차질 빚나
--  Sinterklaas(feest) op De Spreng
--  Tierra y Mar: el nuevo icono de la brasa en Ferrol
--  'Türkiye Ada'dan çekilirse' deyip açıkladı: Filistin'dekine benzer olaylar yaşanabilir
--  Güney Kore: Kuzey Kore fabrikalarımızı izinsiz kullanıyor
--  Galatasaray-Adana Demirspor maçının VAR hakemi Koray Gençerler
--  Avrupa Parlamentosunda yolsuzluk skandalı! AB Yüksek Temsilcisi Borrell bile engel olamadı
--  Başkan Erdoğan'dan "F-16" tepkisi: Tutturmuşlar 'İsveç'te İsveç'... Senin kongren varsa, benim de parlamentom var
--  Bakan Kacır: İHA üretiminde dünya lideriyiz
--  Bartın-Kastamonu kara yolunda heyelan
--  İstanbul'da motokuryeye çarparak ölümüne neden olan sürücü hakkında yakalama kararı
--  AK Parti'den Tunç Soyer'e tepki: Bu yalanı söylemekten bıkmadınız mı?
--  Kahramanmaraş'ta terör örgütü PKK'ya yönelik operasyon
--  Ο παράδεισος των κυριών επόμενα επεισόδια: Τέλος Μιράντα – Ντίνος – Πάει στην αγκαλιά του Φώτη
--  Los cóndores ya se habrán ido
--  مقتل جندي إسرائيلي أسير لدى حماس.. وكشف كواليس ما حدث
--  انتخابات الرئاسة في مصر.. بدء فترة الصمت الانتخابي
--  Innovadora clínica odontológica se abre en la UPS, sede Cuenca
--  Global Dairy Protein Ingredients Market Forecast 2023-2028 Under Inflation
--  It's Important to Reduce Supply Chain Interruptions Accelerates the Growth of the Global Additive Manufacturing in Aerospace and Defense Sector
--  Healthy Meal Delivery Services Market Expecting Huge Demand in Upcoming Years with a CAGR of 17.6%| HelloFresh (Germany), Freshly (United States), Sun Basket (United States), Blue Apron (United States)
--  Lyall Cameron insists Dundee’s main focus is to avoid relegation battle
--  «هدف»: دعم النقل «وصول» لا يتطلب تسجيل دخول أسبوعي في النظام
--  Top 7: Hechos delictivos de mayor impacto en 2023 en la CDMX
--  Top 7: Activan la diplomacia durante 2023
--  Reunión de alto nivel: Con grupo especial, combatirán fentanilo
--  México y EU pactan vigilar las inversiones; impulsan intercambio de información
--  Parliament Winter Session 2023: Trinamool MP Mahua Moitra Expelled From Lok Sabha
--  Platform gifts Hackathon winners
--  FedEx invests USD 100 million to foster job growth and innovation in Hyderabad’s Tech Hub
--  Healthcare Chatbots Market Is Driven By Healthcare Chatbots In Various Industries, Need To Increasing Demand For Automated Customer Service & Improved Patient Engagement
--  심평원, 5년 연속 지역사회공헌 기관 인정받아
--  Complément d'enquête : comment revoir l'émission sur Gérard Depardieu ?
--  Un poco de cielo azul
--  Полицията със засилени мерки за опазване на обществения ред за студентския празник във Варна
--  Черно море планира лагер в Турция
--  Коцев иска забрана на старите коли в центъра на Варна
--  Условна за варненски насилник, пребил с ритници бившата си жена
--  Прибраха колите на двама дрогирани шофьори за ден във Варненско
+-  Kuyumculardan kesme altın uyarısı!
+-  Savcılıktan Somali cumhurbaşkanının oğlu hakkında yakalama kararı
+-  TCMB Başkanı Erkan açıkladı: 10 kat artış gösterdi
+-  İSKİ İstanbul'daki baraj doluluk oranını açıkladı
+-  Profesör uyardı: Herkes her an uyuz olabilir!
+-  Kavun yiyen 8 kişi öldü
+-  Saygı Öztürk yazdı: Kadınlarımızın öldürülmediği, şiddete uğramadığı gün yok!
+-  السلطة الفلسطينية تعمل مع أمريكا حول خطة لإدارة قطاع غزة بعد الحرب
+-  السفارة الأمريكية ببغداد: نحتفظ بحق الدفاع عن النفس وحماية موظفينا بأي مكان في العالم
+-  إعلام عبري: محو كثير من المعلومات بسبب هجوم سيبراني على أرشيف إسرائيل
+-  "الأرصاد": أمطار تصل لرعدية بهذه المناطق الساعات المقبلة
+-  مدبولي يطالب بتوفير آليات لتمويل استثمارات المشروعات الخضراء
+-  رمضان عبدالرازق خطيبا.. نقل شعائر صلاة الجمعة من مسجد محمد علي بالقلعة
+-  وزير الري: حظر زراعة الأرز بمحافظتين وإجراءات قانونية تجاه المخالفين
+-  وزير الصحة ينعي رائدة ريفية توفيت أثناء عملها في وحدة صحية بـ«كفر الشيخ»
+-  شعائر صلاة الجمعة من مسجد محمد علي بالقلعة - بث مباشر
+-  الحكومة: المنشور المتداول بعدم الذهاب للمستشفى حال الشعور بأعراض كورونا مزيف
+-  على رأسهم محسن وأكرم.. 11 غيابا يضرب الأهلي في مواجهة شباب بلوزداد
+-  انخفاض 10 جنيهات في سعر الذهب اليوم الجمعة ببداية التعاملات
+-  "هل وقع كمدير فني؟".. تعليق ناري من شبانة بشأن تعاقد الزمالك مع معتمد جمال
+-  البطاطس تصل لـ 15 جنيهًا.. أسعار الخضروات والفاكهة بسوق الجملة بالعبور
+-  أسعار الأسماك والمأكولات البحرية في سوق العبور اليوم الجمعة
+-  Werken in de Texelse natuur!
+-  As Dusk Falls: Narratives Adventure erscheint mit exklusiven Features für die PS5
+-  El nuevo queso que arrasa en Mercadona: famoso en Italia y con tanta proteína como un chuletón
+-  Jadro sa dostalo medzi preferované investície EÚ, zaslúžilo sa o to aj Slovensko
+-  'เป้ย ปานวาด'สลัดลุคสุดแซ่บ อวดความหวานหน้าเด็กสุดๆ
+-  เสี่ยงติดคุก 17 ปี! ลูกชาย‘โจ ไบเดน’ถูกฟ้องเลี่ยงภาษี 1.4 ล้านดอลลาร์
+-  เดี๋ยวค่อยเติม! พรุ่งนี้น้ำมัน'เบนซิน'ลดราคา 'ดีเซล'คงเดิม
+-  ช่วยพ่อเฒ่าวัย80ชาวสบเมยตกเข้าไปหาของป่าหาย2วันพบตกเขาบาดเจ็บ
+-  В Германии выбрали слово года
+-  Dick de Kock neemt afscheid van Huurderstichting Langs de Lek
+-  Veel belangstelling in Molenlanden voor opfriscursus autorijden voor senioren
+-  Geen cadeautjes tijdens kaartavond in Wijngaarden
+-  वेबकूफ क्विज : इस हफ्ते कितनी बार फेक न्यूज के शिकार हुए आप ?
+-  NEM Zagreb 2023: Warner Bros. Discovery, RTL Mađarska i TVP u finalu NEM Awardsa
+-  DoubleTree by Hilton Şanlıurfa’nın Ticari Müdürü Seda Rastgeldi Gülen oldu
+-  NIPA “2024년에도 K-ICT 성장 적극 지원할 것”
+-  Çanakkale İl Kültür ve Turizm Müdürlüğü'ne vekaleten Çağman Esirgemez atandı
+-  90 %. Tai išgelbėjo JAV karinę pramonę nuo žlugimo. Kas nutiko Ukrainai skirtiems pinigams? (Foto)
+-  [ŽT] „Kažkas atskrido ir viską n****i apvertė.“ Kas lieka po HIMARS smūgio (Video)
+-  [ŽT] Sensacingi vaizdai. „Hamas“ teroristai masiškai pasiduoda IDF (Foto, Video)
+-  [ŽT] Oficialiai patvirtinta. „Windows 10“ galas. Teks paploninti pinigines
+-  „Tai GALI PABAIGTI Amerikos, kaip supervalstybės, dienas.“ Ryžtingas smūgis paskandintų JAV laivyną (Infografikas)
+-  Organizmui trūksta jodo: apie pavojų sveikatai išduoda ne tik šąlančios kojos
+-  [ŽT] „Nežinau, iš kur Umerovas gavo šiuos duomenis...“ Ždanovas skelbia, kiek gynybos linijų įveikė Ukraina (Video)
+-  Atrodo, kad mūsų galaktika pateko į didžiulę tuščią tuštumą (Video)
+-  גם בני ריינה עם מחווה לחטופים: תשחק עם מדי חוץ מול מכבי פ"ת
+-  אוניברסיטת פנסילבניה תאבד 100 מיליון דולר: "מתירה קריאות לאלימות נגד יהודים"
+-  Po Sibirą klaidžioja apspangę lokiai. Kas vyksta
