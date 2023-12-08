@@ -1,51 +1,11 @@
 # Latest News
--  Янги 2024 йил: “Asialuxe Travel”дан ҳеч қандай тўхтовларсиз учиш мумкин бўлган энг яхши йўналишлар.
--  Киберҳужумлар: АҚШ ва Британия икки россияликка нисбатан санкциялар киритди.
--  Киев электр энергияси тақчиллиги туфайли қўшниларидан ёрдам сўради.
--  Тошкент халқаро аэропорти учиб кетиш залига кузатувчиларнинг кириши вақтинча чекланади .
--  Хорижда оғир аҳволга тушиб қолган 443 нафар фуқаро Ўзбекистонга қайтарилди.
--  МЧС доставит еще 20 тонн гуманитарной помощи в сектор Газа
--  LeBron James masterclass lifts Lakers into NBA in-season tournament final
--  Nahost: Israels Bodenoffensive im Gazastreifen lässt palästinensischen Zivilisten kaum noch Zufluchtsorte
--  Nahost: Israels Bodenoffensive im Gazastreifen lässt palästinensischen Zivilisten kaum noch Zufluchtsorte
--  민주당 부산, 내년 총선 예비후보 등록부터 총력전
--  부산항 북항 변전소 화재로 직원 1명 연기 마셔 병원 이송
--  완주 고산지역 고질적 축산악취 저감 의원middot;주민middot;업체 머리 맞대
--  순천시, 현업 공사 책임자 대상 안전보건 특별교육
--  '전국 최대 생산' 고흥군, 2024년산 '물김' 본격 출하
--  [경기도의회 소식] quot;북부 공공의료기관 경기도 재정 지원 필요quot;
--  대우건설, 안산 주공6단지 출사표…"36년 안산의 동반자"
--  Hybridní Li-Ion akumulátor ONE Gemini v BMW iX: nabídne 185 kWh a dojezd 978 km
--  iQIYI's Chief Content Officer at Asia TV Forum: Driving Premium Chinese Content to Global Prominence
--  CStone Announces NMPA Approval of Sugemalimab as First-line Treatment for Esophageal Squamous Cell Carcinoma
--  Putting women on a pedestal: Melbourne to erect Vida Goldstein statue
--  Putting women on a pedestal: Melbourne to erect Vida Goldstein statue
--  다시보는 대한늬우스 (68. 12. 08)
--  EXCLUSIVE: Phillip Schofield REFUSED to take part in ITV probe into affair with This Morning runner
--  AI 확산… 전남 이어 전북산 가금육 등 제주 반입 금지
--  उच्च रक्तचाप नियन्त्रणका उपायबारे काभ्रेमा छलफल
--  कोटिलामा बेलिब्रीज निर्माण
--  Actor Junior Mehmood Dies After Long Battle With Cancer
--  RBA’s new 2.5 per cent inflation target could keep rates higher for longer
--  Ο ΣΥΡΙΖΑ βάζει φρένο στις αντιπαραθέσεις με στελέχη της Νέας Αριστεράς
--  기업은행, 중소기업 M&A 채널 'IBK M&A센터' 오픈
--  대전시 정무직 부시장 후보자 자진사퇴, 건강때문?
--  8-ми декември: Студентите празнуват
--  1100 متطوع لزيادة الغطاء النباتي في محمية الإمام عبد العزيز بن محمد
--  25th Attorney-General’s Conference
--  금호석유화학그룹, 환경·안전 분야 역량강화 총력
--  [인사] 한국수력원자력
--  Nárok na vdovský důchod se prodlouží. I lidem, kterým už dávno zanikl
--  Harms: Pfeiffer wird sich „Anforderungen stellen müssen“
--  “El Croata”, acusado de ser el dueño de una de las mayores cuevas ilegales, volverá a la cárcel
--  Hoffnung auf schnellere Hilfe für Gaza
--  Forbes: новые механизированные бригады ВСУ получат устаревшую советскую технику
--  [TGA 2023] Penge-játékon ügyködnek a Deathloop alkotói
--  Negen aanklachten tegen presidentszoon Hunter Biden
--  Tottenham'dan durdurulamayan çöküş!
--  넥슨, 팀 기반 FPS 게임 ‘더 파이널스’ 글로벌 정식 출시
--  'US, Canada Cannot Help...': SFJ Leader Pannun to PM Modi, India in Fresh Threat
--  เลขา ป.ป.ช.แจง "ครูชัยยศ" ถูกปลด เหตุเซ็นรับรองค่าอาหารเป็นเท็จ
--  'Fake news': Cong on reports of Kamal Nath quitting as MP unit chief
--  넥슨, '더 게임 어워드'에서 글로벌 기대작 4종 게임정보 공개
--  Baldur's Gate 3 is officially available for Xbox Series X|S consoles
+-  LG Energy Solution Drives Collaboration with ICPT for Electric Commercial Vehicles in Poland
+-  Estudian tráfico de drogas y su relación con asesinatos
+-  कैश फॉर क्वेरी मामला- महुआ मोइत्रा के खिलाफ आचार समिति आज लोक सभा में पेश करेगी रिपोर्ट
+-  In-Season Tournament : les Lakers explosent les Pelicans 133-89 et se qualifient pour la finale !
+-  LeBron James a lâché une dinguerie cette nuit : 30 points en 23 minutes, à 9/12 dont 4/4 du parking et 8/8 aux lancers
+-  ΣΥΡΙΖΑ: Κανονικά συνέδριο 23 - 25 Φεβρουαρίου - Πώς αποτιμούν Κασσελάκης και Νέα Αριστερά την επίσκεψη Ερντογάν
+-  Stew’s Buffy The Vampire Slayer Retrospective: Season 3, Episodes 21 – 22
+-  La realidad supera ampliamente a la ficción
+-  RBI ने रेपो दर 6.5 प्रतिशत पर स्थिर रखी
+-  Όσα έγιναν στη συνάντηση Μητσοτάκη- Ερντογάν: Πώς αποτιμά η Αθήνα τα νέα δεδομένα και τι δείχνει η στάση της Άγκυρας
