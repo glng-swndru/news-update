@@ -1,51 +1,11 @@
 # Latest News
--  브릭메이트, 자체 개발 게임 美 성과
--  파주시, 위기이웃 발굴지원 평가 ‘장려상’ 수상
--  담철곤 오리온그룹 회장, 사위에게 오리온 주식 1만4000주 증여
--  의정부시 경기의정부지역자활센터 카페사업단, 식약처 위생등급평가 최고등급
--  NH투자증권 "크래프톤, 내년 하반기 본격 모멘텀…목표가 14% 상향"
--  신안군 스마트빌리지 챔피언에 오르다
--  평택시, 12월 자동차세 2기분 194억 원 부과 고지
--  Tetangga Kontrakan Maut Jagakarsa: P Marah Jika Anak-anaknya Diberi Makan oleh Orang Lain
--  Här är fredagens aktierekar
--  Tokayev Ermənistana səfər edəcək
--  Defensieminister VS dringt bij Israël aan op hulp voor Gaza
--  Berburu Sembako di Pasar Murah Kota Bandung
--  Seychelles declara el estado de emergencia por inundaciones y una explosión en una fábrica
--  Neçə ağır yaralı qazimizin müalicəsi davam edir?
--  التصعيد الاقليمي يغذي الصراع السياسي الداخلي في العراق
--  Putin behauptet - Bündnis mit dem Iran wendet das Blatt im Krieg
--  Puca na sve strane: Evropa sad i Demokrate u klinču oko bezbjednosnog sektora!
--  Dishub Pastikan tidak Ada Ganjil-Genap di Jakarta Saat Libur Nataru
--  İlham Əliyev Avropa Şurasının Baş katibini qəbul etdi
--  Lady Vendor Sells Bot-ong to Fund Children’s Education
--  '우상을 파괴하라' 고전회화의 재해석
--  거장 지휘자 명성 뒤에 … 결점 많은 한 인간이 있었다
--  [MBN] 개그맨 5인방의 마지막 호주
--  [MBN] 이혼 전문 변호사들의 가방 속
--  "나는 누구인가, 답하기 위해 글을 썼죠"
--  김경희 민화작가, 개인전 ‘어랑어랑 오봉아리랑’ 연다
--  លោក អ៊ូ តារា៖“អ្នកលេងគុន”ជាព្រឹត្តិការណ៍មួយធ្វើឡើងដើម្បីផ្សព្វផ្សាយ និងការយល់ដឹងកាន់តែច្បាស់អំពីគុនល្បុក្កតោ
--  عن "حزب الله".. ماذا قالت وزيرة إسرائيليّة؟
--  Legendarna "Otimačica" sve je zaprepastila izgledom lica: Više ne sliči na sebe, a pamtimo je kao jednu od najljepših zvijezda sapunica!
--  [알립니다] 머니쇼는 계속된다…11일부터 다시보기 서비스
--  분양가 싼데 年2%대 대출지원까지 … 수방사 청약 열기 이을 '산타의 선물'
--  Kariņa privātie lidojumi starptautiskā līmenī nav skandāls, norāda politoloģe
--  ‘입시 비리’ 조민 첫 공판 출석…“성실히 재판 임하겠다”
--  واشنطن ترجّح خسارة كييف للنزاع مع روسيا في حال انقطاع المساعدات الأمريكية
--  Kuyumculardan ’kesme altın’ uyarısı!
--  تتصدّرها مباراة النّجم السّاحلي و الهلال السوداني…برنامج أبرز مواجهات اليوم الجمعة و النّقل التلفزي
--  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
--  Земетресение с магнитуд 5,8 край бреговете на Соломоновите острови
--  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
--  “Burada şübhəli məqam axtarmaq düşmənçilikdir”
--  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
--  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
--  Daftar Beasiswa LPDP 2024, Pahami Masa Pengabdian dan Sanksi Bagi yang Melanggar
--  Edese baptistengemeente organiseert TOP 2000 dienst met liveband
--  Life | A traumatic event can change the course of a child’s life, but there are ways parents can protect them
--  Global RTLS in Healthcare Market is projected to reach the value of USD 8.11 Billion by 2030
--  Završen festival mladih recitatora u Nikšiću: Asiјa Ećo neprikosnovena po svim kriteriјumima
--  পতাকাবিহীন ব্যক্তিগত গাড়িতে কোটালিপাড়ায় শেখ হাসিনা
--  Медведев заявил о реальной угрозе прямого столкновения России и НАТО
--  Jokowi Tegaskan Presiden dan Wapres Dipilih Rakyat, Saiful Mujani Bilang Gibran Dicalonkan Elite
+-  Мебелсозлик кластери ташкил этилди
+-  Тарбия - энг олий қадрият (+видео)
+-  שבת בספרד: ריאל מדריד תבטיח שבוע נוסף בפסגה עם ניצחון שישי רצוף?
+-  שבת באיטליה: משחק נוח לאינטר, מילאן שוב תחגוג על אטאלנטה?
+-  ไปชม'ดอกสร้อยสยามพรรณ'สวยงามระย้าหนึ่งเดียวที่สวนพฤกษศาสตร์บ้านร่มเกล้า
+-  ประกาศศักดาทั่วโลก! ‘นายกฯ’ปลื้มดัน‘มวยไทย’ขึ้นซอฟต์พาวเวอร์อันดับ 1
+-  'แต้ว ณฐพร'ในชุดเดรสเกาะอก แชะภาพสุดหวานละมุน
+-  KOMANDANTI VOJSKE POGINULI NA GRANICI VENECUELE I GVAJANE: Helikopter nestao sa radara, 5 mrtvih, drama iznad spornog regiona
+-  Donosimo veliku galeriju i dašak atmosfere: Extravagant proslavio 20. rođendan!
+-  When Kareena Kapoor called Sharmila Tagore a `game changer` in Bollywood
