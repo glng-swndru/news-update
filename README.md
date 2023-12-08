@@ -1,51 +1,51 @@
 # Latest News
--  ¡TERRIBLES NOTICIAS PARA CHIVAS! REGRESAN dos de los peores delanteros de la Liga MX a sus filas | FICHAJES 2024
--  América vs. San Luis: Qué canal transmite y en dónde ver EN VIVO Y EN DIRECTO el duelo por la Vuelta de las Semifinales de la Liga MX
--  Era socio de ‘El Vaiven’ el ejecutado en bar de la Zona Dorada
--  Dejan abandonada camioneta con reporte de robo en Parral
--  Ampliación del relleno sanitario continúa pese a amparo: Bonilla
--  Avanza construccion de primaria nueva en Vistas de San Guillermo
--  Investigan hallazgo de un cráneo humano a orillas del río Paraná
--  ABŞ PUA-sını itirdi
--  Gol Gatti, l’assist di Cambiaso è un cioccolatino e il difensore fulmina Meret – VIDEO
--  In Pictures: Out and about at the Limerick Civic Trust Christmas lunch
--  Baldur’s Gate 3 Honour Mode is traumatizing players: “My heart couldn’t take this”
--  Teška nesreća u Slavoniji: Dvoje ljudi poginulo u stravičnom sudaru
--  Raila urges international allies to stop Kenya Kwanza excesses
--  Wife of banker facing charges before US court accuses Kenya police, civil society of failing to help her
--  Mercato Juve, Van Bommel esce allo scoperto sul suo baby talento: «Sarà difficile trattenerlo»
--  Bank bosses face sanctions for forex manipulation in probe
--  EACC goes after Uhuru men over botched Sh6 billion Telkom sale
--  ХаRIZZма - ХаRIZZма - тайна съставка, за да си успешен
--  Probabili formazioni Atalanta Milan: le possibili scelte di Pioli
--  とんこつスープに超極細麺が特徴 ラーメン鶴亀堂が5周年キャンペーン 12月8～10日開催 - 沖縄タイムス＋プラス ニュース
--  토트넘 안방 3연패에 신난 아스널 레전드…“조금씩 제 자리로 돌아가는 중” 조롱
--  River choca con Central en la semifinal de la Copa de la Liga: formaciones, hora y TV
--  Handbalsters winnen op WK ook ruim van Oekraïne en mogen zich gaan opmaken voor kwartfinale tegen topland
--  O.Próximo.-EEUU veta una resolución en el Consejo de Seguridad de la ONU para pedir un alto el fuego humanitario en Gaza
--  Težak sudar u Hrvatskoj, dvoje poginulo
--  Norge klar for VM-kvartfinale: Nora Mørk med jubelbrøl
--  Овчинников — об обучении Мостового на тренера: пример и образец для многих
--  MP asegura que las elecciones “deberían de anularse” por supuestas irregularidades en actas de votaciones por parte del TSE
--  Главным событием телесезона на ТЭФИ назвали работу военкоров ВГТРК в зоне СВО
--  “El COG no está autorizado para funcionar como Comité Olímpico Nacional”: La contundente carta que el COI le envió a Jorge Rodas
--  Криштиану Роналду сделал заявление после 1200-й игры
--  "La sanction n'est pas à la hauteur": l'avocate de la famille Paty déçue après les condamnations de six adolescents
--  Hollywood star 'set for Strictly's 2024 series after making surprise studio audience appearance and telling bosses they'd love to compete on the show'
--  طلال چوہدری نے آئندہ الیکشن کیلئے پارٹی سے ٹکٹ نہ مانگنے کا کہہ دیا
--  Prefeitura de Marília suspende concessão do Daem à iniciativa privada
--  Gatti ci ha preso gusto: il difensore sblocca Juve-Napoli. Bianconeri avanti 1-0
--  Best Elite Fast TMs in Pokemon Go: Top moves to upgrade
--  Mast Mein Rehne Ka Streaming: Watch & Stream Online via Amazon Prime Video
--  США заблокировали в СБ ООН резолюцию ОАЭ о немедленном прекращении огня в Газе
--  Liverpool, Klopp preoccupato per le condizioni di Mac Allister: "Non ha un bell'aspetto"
--  «Una enfermedad terminal»: Baby Etchecopar movilizó a todos los televidentes con el análisis que dejó en A24
--  Gazze'de insani ateşkes olacak mı? ABD'de veto
--  هذه آخر معلومة عن الـ100 ألف ليرة الجديدة
--  If You Decorate It, They Will Come
--  Tourists paying for tickets to attend Indian weddings
--  Cartão dos bombeiros já disponível em digital no smartphone…
--  Xinhua Silk Road : Le festival de collecte de glace commence à Harbin, dans le nord de la Chine
--  Motociclista choca contra camión de obras y pierde la vida
--  Téléthon: si ce petit garçon de deux ans peut marcher, c'est grâce aux dons et à la recherche
--  'Stranger Things' Prepares to Begin Production on Show's Final Season in New Year
+-  Nepredstaviteľné týranie dieťaťa: Matka mesiace väznila syna v klietke pre psa, umučila ho takmer na smrť
+-  Dom jedného z najznámejších Američanov takmer skončil v plameňoch! Šialenú ženu zastavili policajti v civile
+-  Kleurrijke lichtjestour trekt door Lunteren
+-  Uldriķa vārtu guvums un rezultatīva piespēle sekmē "Cambuur" uzvaru
+-  House Republicans successfully include provision to ban Defense Department from funding 'disinformation' industry
+-  SAD stavile veto na rezoluciju SB UN o momentalnom prekidu vatre u Gazi
+-  Paramount PARA shares jump after reports of takeover interest
+-  Wall Street finit la semaine sur une note positive
+-  No Christmas crab: California’s commercial Dungeness season delayed again
+-  Stórsigrar Noregs og Hollands
+-  Meet the 27-year-old 'water buffalo' negotiating California's claim to the evaporating Colorado River
+-  What to watch this weekend in Olympic sports
+-  كرم جبر: التصويت في الاقتراع الرئاسي انتخاب للدولة ودفاع عن أمنها القومي
+-  Galatasaray, 3 puanı 3 golle aldı
+-  Irak'ta yangın: 14 ölü
+-  İsrail'den itiraf gibi açıklama: Başarısız olduk
+-  ABD, Gazze'de kana doymuyor! Acilen insani ateşkes tasarısına veto
+-  Samsunspor deplasmanda farklı galip
+-  BM Gazze'deki sefaleti vurguladı: Siviller çaresiz, insanlar aç, gıda yok
+-  عاجل.. الدانمارك تعتمد قانونا حول الإساءة للمصحف.. و"التعاون الإسلامي" تصدر بيانا
+-  السبت 25 جمادى الأولى.. مواقيت الصلاة في مكة والمدينة وجميع المناطق
+-  Διευκρινιστική δήλωση του εκπροσώπου του τουρκικού υπουργείου Εξωτερικών για τις βίζες σε ελληνικά νησιά
+-  В Sony назвали преимущества консолей над ПК
+-  Ο Ολυμπιακός επέστρεψε στις νίκες κόντρα στη Μπάγερν Μονάχου – Δε πλήρωσε τη χαλάρωση
+-  Abogado afirma que Venezuela tiene la oportunidad de defender el Esequibo
+-  '손흥민 마저 부상 당하면 토트넘 TOP4 재진입은 불가능'→포스테코글루 "부상 확신 할 수 없다"
+-  韓 최초 GG→폭행 진실공방→시상식 불참→은사 재회 불발 '이게 무슨 일인가'... 김하성 암울한 연말
+-  김우빈, 김장하러 오면서 '꾸꾸' 착장…이광수 "신발 점점 뾰족해져" [콩콩팥팥]
+-  '특임대 지원' BTS 뷔 "레펠 무섭지만, 부딪히고 싶어 간다"…직접 밝힌 이유 [MD이슈]
+-  Una mujer murió en pleno acto sexual en un motel de Colombia
+-  Kisii RFC hand Omari debut for Citam clash
+-  Aktien New York Schluss: Nach Arbeitsmarktdaten legen Kurse zu
+-  LIVE TJ - JUVENTUS-NAPOLI 1-0 - Colpo di testa di Gatti, la Juve sblocca il match!
+-  Ομόνοια: Εξέλιξη με τον αδερφό του Ουζόχο
+-  DIY χριστουγεννιάτικες γυάλες
+-  Bond set at $500,000 for Sen. Kevin Cramer’s son in crash that killed deputy
+-  Falla eléctrica registrada en el Zulia se originó en la línea Yaracuy- El Tablazo
+-  Višković: Šmit će morati da svedoči u sudskom procesu protiv Dodika
+-  Kodak Black arrested on drug charges in California
+-  Thousands of tons of dead sardines, mackerel wash ashore in northern Japan
+-  Ο Ολυμπιακός έκανε τη δουλειά απέναντι στην Μπάγερν στο ρελαντί και ξαναμπήκε στην οκτάδα
+-  Woman charged with trying to burn Martin Luther King Jr. birthplace
+-  Coastal Renaissance return to service now expected in early March, BC Ferries says
+-  Элла Памфилова нашла исторические корни многодневного голосования
+-  RB Lipsk walczy o piłkarza z Bayernem Monachium. I jest pierwszy z ofertą
+-  Tokyo Disneyland apologizes for Minnie Mouse skirt-lifting incident
+-  Handball: ThSV Eisenach gewinnt Ostderby gegen DHfK Leipzig
+-  The 35+ Best Gifts for Any Dad (According to a Cool Dad)
+-  Vārti Marenim un Buncim, piespēles Džeriņam, Freibergam un Eglem
+-  ЕС рассматривает ввод дополнительных ограничений против российского и белорусского бизнеса
