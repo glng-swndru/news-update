@@ -1,11 +1,11 @@
 # Latest News
--  "딸기 비싸서" 카페 시즌 음료 가격 인상…뷔페도 2인 30만원 육박
--  세븐틴, 빌보드 日 연간 차트 싹쓸이
--  [게임소식] 넥슨, 팀 기반 FPS 게임 '더 파이널스' 글로벌 출시 외
--  방탄소년단 정국, 日 레코드협회 ‘플래티넘’ 인증 획득…"솔로로는 처음"
--  샤이니 민호, 첫 팬 콘서트 포스터 공개…기대 UP
--  चक्रवात मिचोंग ने मचाई तबाही, केंद्र सरकार ने बढ़ाया मदद का हाथ
--  Hamann schäumt vor Wut: Nagelsmanns Stadionbesuch mit Freundin spaltet Experten
--  ABD Büyükelçiliğine roketli saldırı
--  La reunión entre Sánchez y Feijóo queda condenada a una foto por el choque sobre contenidos y metodología
--  Ornitologa padomi, kā pareizi pabarot putnus ziemā
+-  İstanbul'da dehşet! Genç kızı dakikalarca darp ettiler
+-  Sultangazi'de arıza yapan İETT otobüsü geri geri kaydı; motoru inceleyen şoför altında kaldı
+-  Jandarma Genel Komutanlığı 29 devlet memuru ve 11 sözleşmeli personel alacak
+-  Küvette bebeğini yıkayan anne epilepsi krizi geçirdi, bebek hayatını kaybetti
+-  AK Parti'nin İstanbul için aday yarışı kızıştı! İki isim ön plana çıktı
+-  Çift başlı dünyaya gelen buzağı, 1 saat yaşadı
+-  India Bans Onion Exports Till March 2024
+-  Tata Motors Urges Govt To Not Lower EV Import Duties To Safeguard Domestic Players
+-  Gujarat Govt Inks MoU With AAI For Development Of Various Airports In State
+-  Buletinul de identitate poate fi livrat la domiciliu prin MDelivery. Cum poți solicita acest serviciu și cât costă
