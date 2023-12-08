@@ -1,11 +1,51 @@
 # Latest News
--  Alasan Ini Buat Messi Tolak Bersaing dengan Ronaldo di Liga Pro Saudi
--  Denmark Larang Pembakaran Alquran
--  Unsupervised child fell from first floor Fife window while woman ‘chatted online’
--  Perth paedophile who fitted spy cam to woman’s clothes spared jail
--  Ile kosztuje euro? Kurs euro do złotego PLN/EUR 08.12.2023
--  Число погибших в секторе Газа превысило 17 тысяч, - Минздрав Палестины
--  Ile kosztuje dolar? Kurs dolara do złotego PLN/USD 08.12.2023
--  US criticizes Israel on Gaza civilian toll as UN to hear ceasefire demand
--  Market bets for 2024 thrown into chaos by US recession conundrum
--  Tap dancing to table service: Dean Park Hotel restaurant manager says ‘entertaining’ is key to success
+-  भाजपा ने राजस्थान, मध्य प्रदेश और छत्तीसगढ़ के लिए केंद्रीय पर्यवेक्षकों की नियुक्ति की ,यहां पढ़े
+-  오산시 "수두 유행 가능성… 개인 위생 철저히 관리하세요"
+-  "함께 성장하자"… 경기도중소기업CEO연합회, '중소기업·소상공인의 날' 개최
+-  신세계프라퍼티-식약처, 안전한 외식 환경 조성 위해 '맞손'
+-  शाहरुख बोले : डंकी' में मेरे किरदार के लिए ईमानदारी, देशभक्ति अहम
+-  Akaryakıtta tabela değişti! Motorinde iki günde iki indirim... 8 Aralık 2023 güncel benzin motorin ve LPG fiyatları...
+-  Frequency Conversion Heat Pump Drye Market Size, Growth, Forecast 2023-2029 (By Type, By application, By Company)
+-  Zwaarbewapend arrestatieteam valt woning in Ede binnen en arresteert man (video)
+-  Bram van der Beek benoemd als nieuwe wethouder gemeente Ede
+-  Már az Eurostat is vizsgálja, hogyan számolja a KSH az inflációt
+-  Jimmy Kimmel Pulls Epic Prank On George Santos With Some 'Ridiculous' Cameo Requests
+-  으뜸50안경 덕계점 신규 오픈 맞이 행사 진행
+-  Anti-Ageing Treatment Market worth $67.73 billion by 2030, growing at a CAGR of 5.04% - Exclusive Report by 360iResearch
+-  '될놈될 정석' 뷔, 올인 본능 폭발 "난 내 감을 믿는다"…유승호와 게임 결과는? [런닝맨]
+-  900억 MF→첫 시즌부터 망할 것 같은데..."미래의 플랜에 있어 중요한 선수" 감독은 그를 믿는다
+-  '갤런-켈리-E-로드' 3선발 구축…애리조나, 통산 82승 좌완과 4년 1045억 계약
+-  '극대노' 클루셉스키, 1-2 역전패 후 심판에 돌진→경고까지...무엇이 그를 분노하게 했나?
+-  ‘듄2’ 드니 빌뇌브 감독, “박찬욱 ‘헤어질 결심’ 정말 좋았다”(인터뷰)
+-  Cameroun :: Présidentielle 2025: Jean Michel Nintcheu Appelle À La Mutualisation Des Forces De L'opposition :: Cameroon
+-  Automotive Voice Recognition System Market 2023 - By Growth, Business Trends, Share And Forecasts To 2032
+-  Furfural Derivatives Market Disclosing Latest Advancement 2023 to 2028 Russo-Ukrainian War
+-  Ev sahiplerine kara haber: Kiracınızı bu şekilde evden çıkaramazsınız! Cezası var!
+-  Pendler aufgepasst am Freitagmorgen: Große Glättegefahr auf Hessens Straßen
+-  Fresh-keeping Refrigerator Market Overview: 2019-2029 Gross Revenue vs. Net Revenue Reporting
+-  Platter Substrate Materials Market to Garner $687.3 Thousand, Globally, By 2030 at 7.8% CAGR, Says Allied Market Research
+-  Yalan ortaya çıktı: Ölü bebek için gerçek değil oyuncak demişlerdi!
+-  Безработен преподавате е стрелецът в университета в Невада
+-  Surgical Instrument Tracking Systems Market Size, Share, Price, Trends, Growth, Analysis, Report and Forecast 2024-2032
+-  Desperation grows among Palestinians trapped with little aid as Israel battles Hamas in Gaza
+-  לברון עשה היסטוריה, האם: "MVP? זו בכלל לא צריכה להיות שאלה"
+-  ג'ייק כהן: "נצטרך לתת את המשחק הכי טוב שלנו כדי לנצח"
+-  CBS: productie Nederlandse industrie verder gedaald
+-  Taiwan: Chinese ballon gesignaleerd voor kust
+-  রাফায় নিরাপদ আশ্রয়ের খোঁজে ফিলিস্তিনিরা
+-  Yash 19: Film title, release date and first look of Rocking Star’s next film out! Watch
+-  Over 60% of engineers made it to civil services in 2017-21; Male dominates the list
+-  WC govt wants NHI Bill sent back to National Assembly for more consideration
+-  EFF hails Saldanha Bay by-election win, eyes future success in WC
+-  अमेरिका में मानव तस्करी के आरोप में भारतीय मोटल मैनेजर को जेल
+-  日 정어리 떼죽음에…中 누리꾼 “핵폐수 방류 때문”
+-  30~50대 남성 절반이 ‘비만’…“흡연 줄고 음주 늘었다”
+-  자산운용사 실적 양극화…순이익 19% 늘었지만 절반은 적자
+-  여야, 20일 본회의서 내년 예산안 처리 합의…“민생법안 연내 처리 노력”
+-  [단독]‘당정관계 변화’부터 ‘혁신위 자체 희생’까지…사장된 ‘與 혁신안’은?
+-  통일부 “北, 개성공단 시설 30여개 무단 가동…재산권 지속 침해”
+-  비명계, ‘공천·전대룰’ 개정에 강력 반발…“공천 탈락시킬 의도”
+-  마이코플라스마 폐렴 우려 진화 나선 정부…“직전 유행과 다르지 않아”
+-  “정명석이 감옥에서 살다 죽든, 내가 죽든 끝장을 낼 것”
+-  층간소음 갈등 잦아들까…기준 미달 시 ‘준공 불허’
+-  Growth of Light Wave Furnace Market, Revenue, Manufacturers Income, Sales, Market Trend Report Archives in 2023
