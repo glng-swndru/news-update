@@ -1,11 +1,51 @@
 # Latest News
--  Sysinternals Suite 2023.07.12
--  Denmark Announces Groundbreaking US$6.5 Million Contribution to Education Cannot Wait to Scale-Up Education Response to the Climate Crisis
--  علماء يبتكرون روبوتات صغيرة جدًا تساعد في التئام الجروح
--  5 طرق بسيطة تحميك من الإصابة بالسكري.. تعرف عليها
--  장혜영middot;박지현, 이준석 겨냥 quot;'집게손 논란' 편승 정치인, 지도자 자격없어quot;
--  '김건희 특검법' 발의 엿새만에, 영부인은 천연덕스레 '명품백'을 받고 있었다
--  진중권 quot;이해찬의 '최소 과반, 최대 200석' 발언, 허풍 아니다quot;
--  Как Джорджина Родригес и Криштиану Роналду украсили дом к Рождеству. Видео
--  Israel defiende la detención masiva de gazatíes en su intento de acabar con Hamás
--  Israel defiende la detención masiva de gazatíes en su intento de acabar con Hamás
+-  Clausura Bonilla festival de inclusión en Gimnasio de Deporte Adaptado
+-  Tendrá Movimiento Ciudadano candidatos de Morena y Nueva Alianza
+-  Diletta Leotta: «La Juve vuole strappare lo scudetto al Napoli. Danilo? E’ fondamentale»
+-  المقاومة تنشر مشاهد من إفشال عملية تحرير الجندي الإسرائيلي الأسير ومقتله بغزة
+-  "أي حد تاني مش دايم".. الحضري يوجه رسالة لطارق حامد بعد قرار اعتزاله
+-  أمريكا تبلغ مجلس الأمن معارضتها وقف إطلاق النار في غزة
+-  هذا ما يحدث لجسمك عند تناول الكاكاو الساخن.. و3 فئات ممنوعة منه
+-  "إياتا": 4 مخاطر تواجه شركات الطيران رغم تحقيق الأرباح
+-  هذا ما يحدث لجسمك عند تناول الفول على الإفطار
+-  David Popovici: „Mi-ar plăcea să câştig aurul acasă, dar nu e cel mai important lucru de pe Pământ”
+-  Shreyanka Patil: ‘My goal is always about winning the World Cup’
+-  Κυριάκος Μητσοτάκης: Ολοκληρώθηκε η συνάντηση με τον Ρούτε στην Ολλανδία
+-  Metropola europeană care vrea să tripleze tarifele pentru parcarea SUV-urilor: „Este o formă de justiție socială“
+-  Lucas Lucco anuncia que vai dar uma pausa na carreira: 'Até conseguir me recuperar'
+-  "Schlein lo vuole candidare": il nome esplosivo, cosa sta succedendo dietro le quinte Pd
+-  Jonathan Majors begged accuser to avoid hospital, warning of possible 'investigation,' messages show
+-  Yuhuuda maxaa ka raacay howlgal ay rabeen inay Maxabiis ku soo furtaan
+-  Savannah Police Department seeks missing man
+-  Was Amazon hacked? Here’s why users are panicking about Amazon Lockers
+-  El trucazo definitivo para limpiar tu piscina de lona y evitar el moho
+-  Negen maanden op pad met Ton van Veen, de topman die van Jumbo weer een ‘aanvaller’ moet maken
+-  Дунёдаги энг бадавлат оилалар номи эълон қилинди .
+-  1 in 5 young Americans think Holocaust was a myth
+-  След месеци търсене: Астронавти откриха, изгубен в космоса домат
+-  Twenty-six people charged after cops injured in Niddrie bonfire night chaos
+-  Elevate A Cup Of Hot Chocolate With A Drop Of Orange Extract
+-  Overvoltage Protection Device Market Size, CAGR, Ongoing Trends 2024-2031
+-  Italiaan houdt Corné van Kessel van de zege in Ciclocross del Ponte
+-  The 26 best T-shirts for men in 2023
+-  Darts fan spotted wearing mask of sex fiend Ted Hankey to world championships
+-  Evolving insights in blood-based liquid biopsies for prostate cancer interrogation
+-  Dallas na poti, kaj bo tokrat pričaral Luka Dončić?
+-  Risultati Serie A: gli aggiornamenti sulla 15ª giornata
+-  Japanac nije razgovarao sa suprugom 20 godina, otkrio i zašto (VIDEO)
+-  Punya Rambut Lebat, Piyu Padi Reborn Kini Tak Lagi Suka Pakai Topi
+-  В Україні відреагували на відмову Фінляндії в екстрадиції неонациста
+-  Why Jeremy Strong Is “Terrified” to Return to Broadway
+-  Fence Installation Service Market Size, CAGR, Ongoing Trends 2024-2031
+-  Süper Lig : Mbaye Niang (Adana Demirspor) buteur contre Galatasaray
+-  LILLEY UNLEASHED: Trudeau is gearing to run against Trump!
+-  Grate satsar på kvalitet – får Naglerpriset
+-  US rapper Kodak Black detained
+-  Think twice before scanning a QR code — here's why.
+-  Oleggio, da Gazzada ricomincia il girone di ritorno
+-  Facundo Gonzalez, Pirlo torna a parlare del difensore Juve: "Deve giocare"
+-  Telekommunikation: Start im Mini-Format: 1&1 gibt sein Handynetz frei
+-  Telekommunikation: Start im Mini-Format: 1&1 gibt sein Handynetz frei
+-  الاتحاد الأوروبي يدرج قائد القسام محمد الضيف على قوائم "الإرهاب"
+-  Floor Cleaning Maintenance Market Size, CAGR, Ongoing Trends 2024-2031
+-  EEUU reitera su negativa a un alto el fuego inmediato en Gaza
