@@ -1,51 +1,51 @@
 # Latest News
--  Frustra una suspensión la libertad de Lozoya
--  바다서 건져 올린 보물, '닻돌'의 비밀이 드러나다
--  LGC: Thông báo ngày ĐKCC chốt danh sách cổ đông để chi trả cổ tức bằng tiền
--  RDP: Thông báo ngày ĐKCC để thực hiện quyền tham dự ĐHCĐ bất thường năm 2024
--  CTF: Quy chế nội bộ về quản trị công ty sửa đổi
--  CTF: Điều lệ công ty sửa đổi
--  RDP: Nghị quyết HĐQT về việc triệu tập ĐHĐCĐ bất thường năm 2024
--  CTF: Nghị quyết và Biên bản họp ĐHĐCĐ bất thường năm 2023
--  CVIC2303: Thông báo ngày ĐKCC để thực hiện quyền do đáo hạn
--  CVIC2303: Quyết định hủy niêm yết chứng quyền có bảo đảm
--  CTPB2303: Quyết định chấp thuận hủy niêm yết chứng quyền có bảo đảm
--  Light No Fire, il nuovo gioco di Hello Games, si mostra ai TGA 2023
--  Global Iron & Steel Mills and Ferroalloy Market Experiences Robust Growth, Anticipated to Reach $1403.27 Billion by 2027
--  The Finals é lançado para PC e consoles
--  مارس الرياضة بأمان.. احذرها عند الإصابة بنزلة البرد
--  Литва Абрамовичнинг фарзандларига фуқаролик берилгани ҳолатини текширмоқда.
--  Ўзбекистон давлат хизматчилари билимини оширишда Британия билан ҳамкорлик қилади.
--  Supermarket giant's 'weird' interview request
--  『GUILTY GEAR -STRIVE-』追加キャラ「エルフェルト」発表、本日のアプデと同時に飛び入り参戦へ。既存キャラに新技追加も
--  В Москве группа неизвестных ограбила машину
--  Who Gets Engaged in the ‘Bachelor in Paradise’ Season 9 Finale? Updates on the Couples
--  ТОП-3: где в Карелии выше всего ценят труд
--  Galaxy S24 Ultra ’da 2 TB’lık depolama alanı sunmayacak
--  Two decades behind bars for man who took part in meth-fuelled home invasions
--  قصة أنجمت !!
--  Премьер Японии Кисида покинул фракцию из-за скандала
--  Iran lancar kapsul bawa haiwan ke orbit
--  Former Edo Governor, Osunbor Announces Governorship Bid For 2024
--  33 регион заключил 9 соглашений с инвесторами на 8,5 млрд рублей
--  Eagles set for three-nation pre-Cote d’Ivoire 2024 tournament in Abu Dhabi
--  В Ярославле автомобиль с женщиной и детьми попал под товарняк
--  Osimhen, Oshoala in final shortlists for CAF awards
--  Konsolosluk aracıyla çarpmış
--  Sevgilisini bağlamak için enerji istedi
--  İstanbul’da 280 vaatten 46’sı hayata geçirilebildi: Vaatler tek tek sorulacak
--  KKTC’de siyonist işgale yasal önlem
--  Türkiye’nin doğalgaz ihracatında büyük artış
--  Binlerce kıza yardım ettik
--  Edirne’yi salgın korkusu sardı
--  Temas grubu Gazze için devrede 10 mesaj iletilecek
--  Her aileden bir çocuğu rehin alıyorlar
--  Staj sigortası annelere emeklilik kapısı açıyor
--  Καιρός: Προειδοποίηση της ΕΜΥ για καταιγίδες σε αρκετές περιοχές – Η πρόγνωση για το Σαββατοκύριακο
--  Варна, 1399 г. Гибелта на Добруджанското деспотство - Труд
--  Nacvičování sletové skladby s sebou nese i práci na sobě samé, říká Machů
--  Melissa Broder’s mystical desert song to the power of love
--  Heatwave sweeps the nation as unwanted rain hits south
--  De gör morgondagen bättre
--  Kappeli tiiviimmin käyttöön
--  Kas eestlane on tõesti nii loll, et ainult keeld aitab?
+-  Lekárka prezradila, čo sa stane s vaším telom, ak prestanete mať sex: Hrozivé následky CELIBÁTU
+-  Fitting into flannel fashion: A style guide for Mumbai`s ever-changing weather
+-  India calls outcomplicity in "suppressing activities of transnational criminals"
+-  Biden holds talks with Netanyahu, emphasises `critical need to protect civilians
+-  Dharmendra Birthday 2023: Esha Deol shares candid pictures with `darling papa`
+-  Earthquake of magnitude 5.8 jolts Mexico
+-  "India strategic partner but those behind assassination plot need to be..."
+-  PM Modi cannot be forced to take actions contrary to Indian interests: Putin
+-  Džūlija Robertsa atklāj, kāda tagad izskatās viņas jaunā pasaule
+-  푸라닭치킨, 12월 '먹보드 TOP 100' 이벤트 진행
+-  조오순 화성시의원 “쌍봉산 근린공원, ‘쌍봉산 3.1만세공원’으로 바꿔야”
+-  [인사] 호반그룹
+-  대전시, ‘제50회 관광의 날 기념행사’ 개최
+-  진주경찰서, 노인일자리참여자 대상 교통안전 및 보이스피싱 예방교육 실시
+-  한국타이어 독점 공급 ‘2023 한국 12시 쿠웨이트’ 대회 개최
+-  진주시 명석면 농민회, 직접 기른 ‘나눔 쌀 ’기부로 이웃 사랑 실천
+-  대전시, 2023년 제18회 대전 자원봉사자의 날 기념식 개최
+-  의왕시, 버스정류장 겨울 한파대피소로 활용
+-  대전시, 2024년 고향사랑기부제 답례품 공급업체 선정
+-  진주시 명석면, 산불 진화 모의훈련 실시
+-  진주시, 2023년 농어업인수당 12월31일까지 사용 당부
+-  대전시, 2035 도시재생전략계획 수립 공청회 개최
+-  상일조경나무병원(주), 상주시장학회 장학금 기탁
+-  이석봉 대전시 경제과학부시장 퇴임
+-  국립낙동강생물자원관, 인권영향평가 5년 연속 ‘우수’ 등급 달성
+-  강원도교육청 교육연수원 횡성분원, 미래 역량 강화 직무연수 실시
+-  양산시, 행정안전부 주관 ‘국민행복민원실’ 재인증
+-  진주미래인재학습지원센터, 제11기 꿈키움봉사단 워크숍 개최
+-  강원도교육청, 2023년 마지막 인스타그램 이벤트 진행
+-  하나은행, 군인공제회와 '퇴직급여 대여' MOU
+-  서울 화곡·둔촌동 등 6곳, 모아타운 심의 통과…주택 7000호 공급
+-  김해시, 제18회 경남자원봉사자대회 대거 수상
+-  우리은행, 내년 첫 국민연금 받는 1961년생 대상 이벤트
+-  국립춘천숲체원, 마을 안전공동체 운영 통한 안전보건 개선 활동 추진
+-  EU-Beitrittsverhandlungen: Selenskyj wartet auf EU-Entscheidung
+-  Plasminogen Activator Inhibitor 1 drugs in development, 2023
+-  The Game Awards 2023 - Baldur's Gate 3 walks off with Game of the Year and five other awards
+-  सडकले पदमार्ग मासिएपछि धुलो र धुवाँले पर्यटकलाई सास्ती
+-  सुनसान बन्दै नार्पाभूमि
+-  चुहावट नियन्त्रणले बढ्यो नगरको आम्दानी
+-  बन्दीपुरकी एक महिला छोरी सहित बेपत्ता
+-  नारायणगढ–बुटवल सडक : आधा काम पनि सकिएन
+-  जनताका समस्या र चाहनाको सूची तयार गरौँ : नेत्री गुरुङ
+-  बराहक्षेत्रको कात्तिकेमेलामा झण्डै चार लाख तीर्थालु
+-  N Sulphoglucosamine Sulphohydrolase drugs in development, 2023
+-  CJ라이브시티 사업 정상화, 안 하는 걸까 못 하는 걸까
+-  434억 대 147억...尹정부, 엑스포에 文의 3배 쓰고 참패했다
+-  Veteran Bollywood actor Junior Mehmood dies of stomach cancer at 68
+-  Leptin Receptor drugs in development, 2023
+-  AWS, 서플라이 체인 위한 신규 기능 발표…공급망 최적화 지원
