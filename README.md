@@ -1,11 +1,11 @@
 # Latest News
--  Ливанга таҳдид, Мадуронинг «сиёсий трюки» ва муқаддас китобларни ёқишни тақиқлаган Дания — кун дайжести .
--  Байденнинг ўғли 1,4 млн доллар солиқ тўлашдан бўйин товлаганликда айбланди .
--  SPD-Parteitag: Delegierte überstimmen Parteispitze und fordern Vermögensabgabe
--  Seat at the table: How women have entered corporate boardrooms and carved out a space for themselves
--  Bruno Pogliano asumió su tercer mandato en El Bolsón y repasó su gestión
--  The US Army just got its first delivery of the new missile that will replace its powerful ATACMS
--  Potresne fotografije: Hrabri reporter iz Gaze Motaz Azaiza za dva mjeseca skoro skroz osijedio
--  Juric: “Non chiudo al rinnovo ma ora non ci penso”
--  ŽARIO I PALIO SCENOM: Kako je Deen izgledao na početku muzičke karijere
--  Hamas osudio Izrael zbog fotografija zatočenih Palestinaca u donjem rublju: ‘Ovo je gnjusno!‘; Zgrožen i Crveni križ
+-  Kickoff | 'If we can get Pitso, he would add great value'
+-  Zaskakujące wieści na temat księcia Harry'ego. "Tęskni za światem, który zostawił"
+-  Namiesto rozprávky prišlo rozčarovanie: Z dubajského princa sa vykľul podvodník, Češka mu poslala tisíce eur
+-  فيديو: أهداف مباراة الهلال والطائي
+-  11a giornata spalmata su tre giorni
+-  Monferrato Basket, sfida ad alta tensione con Vigevano
+-  Igor Agil Volley: test importante contro Legnano
+-  Netanyahu'dan savaş sonrasına yönelik açıklama
+-  Hamas, çok sayıda esirin İsrail saldırılarında öldüğünü açıkladı
+-  Al Coni il Premio Andrea Fortunato: “vince" Thiago Motta. Ma non finisce qui
