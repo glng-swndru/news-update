@@ -1,51 +1,51 @@
 # Latest News
--  مسيرات حاشدة تندد بالعدوان على غزة - صور
--  انقاذ 6 اشخاص إثر حريق منزل في شفا بدران
--  ডেঙ্গু আক্রান্ত হয়ে আরও ৭ জনের মৃত্যু
--  Motta, Salernitana-Bologna: "Zirkzee o Van Hooijdonk davanti. Orsolini..."
--  Klopp: "Un nuovo centrale? Non ce lo lasceranno sotto l'albero di Natale"
--  Venezuela participará por primera vez en estas dos competencias a nivel global
--  Zapečaćeno 18 objekata, pronađeno 40 neprijavljenih radnika: Kažnjeni sa 269.150 KM
--  OL: Pierre Sage ne se voit pas comme un homme "du futur"
--  CEO da Intel realizará uma apresentação durante a CES 2024
--  La météo pour ce samedi 9 décembre 2023
--  Klopp: Recite mi koji klub prodaje najboljeg stopera, takav može igrati kod nas
--  Caley Thistle’s Duncan Ferguson named November’s top Championship boss
--  IG Metall: Kundenstruktur und Produkte sprechen im Insolvenzverfahren für Fronberg Guss
--  Варненското езеро е силно замърсено, чистят го с минерали от Родопите
--  WINBET отново с награда True Leaders за най - успешна компания в бранша
--  Hoy es la audiencia de requerimiento de prisión preventiva para Wanda del Valle
--  Воспитанники «Зенит-Чемпионики» провели совместную тренировку с командой клуба
--  How to get Marble in LEGO Fortnite
--  Gran Hermano: se conoció la cifra de dinero que se llevará el ganador de esta nueva edición
--  Dunkerque, Marseille... L'Etat veut renforcer les moyens pour lutter contre les trafics dans les ports
--  'Türk balını birinciliğe taşıyacağız'
--  Cotentin. Un projet de fusion entre deux communes est lancé
--  NAB summons Bushra Bibi in Toshakhana case
--  Με τετράδα ή με τον... ξεχασμένο η ΑΕΚ
--  Influencer que foi preso por divulgar nudes da namorada é homenageado por deputado na AL-MT
--  Интрига с участием Владимира Путина в выборах держалась до конца церемонии награждения
--  Íme két "magyar Mona Lisa” az aukciósházak decemberi kínálatában
--  Ika Natassa Akui Reza Rahadian Jadi Narasumber Riset Novel Heartbreak Motel
--  Pecuária é principal vetor de derrubada de vegetação na América do Sul
--  Шавкат Рахмонов рассказал о своей популярности в Казахстане
--  Video | Beelden van Palestijnse gevangenen in ondergoed gaan rond
--  Leandro Zdero jura este sábado por la mañana como nuevo gobernador del Chaco
--  Odette, 100 ans avec le sourire, a commencé le travail à 14 ans et a vaincu trois cancers
--  وزير الصحة يزور مستشفى شن جن بالصين للاطلاع على تجربة المستشفيات الذكية
--  Après les bombardements, les Gazaouis cherchent leurs effets personnels sous les décombres
--  চাকরিপ্রার্থীদের আটকে রেখে নির্যাতন, ছাত্রলীগের ৬ নেতা-কর্মীর বিরুদ্ধে মামলা
--  Katër shprehi efektive të ngrënies për të humbur pesë kilogramë brenda një muaji
--  Dubai: Neubauer: Räume für Protest auf Weltklimakonferenz werden kleiner
--  US embassy in Baghdad attacked with rockets, no casualties
--  Chelsea performances have dropped but young squad needs time – Pochettino
--  Wolff says lawyers talking to FIA after compliance climbdown
--  Leones doblegó a Caribes en el primer duelo de la serie en el "Chico" (+Video)
--  Lucha contra la corrupción en Venezuela, en tela de juicio
--  „Pioneers of Pagonia“ im Vorab-Test: Gut gewuselt
--  Gemeinsame Sache von CDU, FDP und AfD in Thüringen: Aus „Einzelfällen“ wird Methode
--  Acto de asunción de Rodrigo Buteler en Cipolletti: cuándo y cómo será
--  Blacklist Coffee Roasters, Anchor, and Woolworths are among the Winners of the 2023 - 2024 World Branding Awards
--  Why Is Avid Bioservices (CDMO) Stock Down 18% Today?
--  مجلس نمایندگان آمریکا از سنا خواست تا لایحه منع خرید نفت ایران توسط چین را تصویب کند
--  Германците не се задоволни од Шолц, покажува анкета
+-  NGK doen stapje terug in contacten met christelijk-gereformeerden: 'We willen CGK ruimte bieden'
+-  Rapport: niet-stemmers Rotterdam weinig vertrouwen in politiek
+-  Rechter haalt streep door opvang 300 asielzoekers in Uden
+-  Abdel zit in de gevangenis en verdient veertig euro per week. 'De kosten voor mijn huis lopen gewoon door'
+-  Amerikaanse arbeidsmarkt groeit harder dan verwacht
+-  VN-experts tegen lidstaten: doe alles voor wapenstilstand Gaza
+-  SWOV: succes 30 km-wegen hangt af van inrichting rijbanen
+-  „Jei trumpai, tai ne lavonas iš šaldytuvo, bet...“ – detalės apie Putino būklę
+-  [ŽT] Skelbiama visiška kovinė parengtis. Prasideda mobilizacija (Foto)
+-  „ES atėjo momentas, kai reikia kažką keisti.“ Kas laukia Orbano
+-  Denizde cesedi bulunan kişi, borsada 2.5 milyon TL kaybetmiş!
+-  Ümit Özdağ: Akşener’den geri dönüş olmadı, bekliyoruz
+-  עשרות מחבלים חוסלו, בהם חלק משדרת הפיקוד: פשיטת אוגדה 98 על חאן יונס | תיעוד
+-  Walter Mazzarri Bicara Arti Duel Klasik Juventus Kontra Napoli
+-  EE.UU. prohíbe importaciones de otras tres empresas chinas por los trabajos forzados
+-  Ким Бейсинджър навърши 70 след блестяща кариера и два развода
+-  Assistants d'eurodéputés du FN : Marine Le Pen, le parti et 26 personnes renvoyés en procès
+-  Noile BMW X5 și X6: performanță îmbunătățită și tehnologie avansată
+-  Plano Methodist’s annual cookie walk Saturday
+-  А що, я вам маю пояснювати причини?: тренер збірної України різко відповідав на запитання єдиного українського журналіста, акредитованого на ЧС
+-  Preisverleihung in der Flora: Games-Studio gewinnt in Köln den Deutschen Entwicklerpreis – und muss schließen
+-  Dahnil Anzar Simanjuntak Ungkap Prabowo Sempat Minta Restu Jokowi Sebelum Jadi Capres
+-  4-те зодии, които са против брака
+-  Fan-favorite Outer Wilds is back on Switch with the Archaeologist Edition
+-  Nicolo Zaniolo dönecek mi? Metin Öztürk açıkladı
+-  Borrell, Filistinlilere yönelik şiddet eylemleri gerçekleştirenlere karşı AB'nin önlem almasını isteyecek
+-  Türkiye'nin davayı yakından takip etmesine dikkati çekti: Ailelerin yüreğine su serptiniz
+-  Bakan Fidan mevkidaşı Antony Blinken ile görüşecek
+-  DSÖ: Sudan'da 6,8 milyon kişi yerinden edildi
+-  Paul Pogba'ya bir kötü haber de Juventus'tan
+-  Cuma namazı sonrası İsrail'i protesto ettiler
+-  Aboga Saúl Hernández por la educación mexicana
+-  Instalan nuevo sistema de riego en el talud Jorge Barousse
+-  234 Fahrten ohne Führerschein: Bewährungsstrafe für Mitarbeiter des Ordnungsamts in Berlin
+-  Hunter Biden fue acusado de fraude fiscal por la Justicia Federal de Estados Unidos
+-  P&G: Obi explains why investors are running away from Nigeria
+-  The story of inflatable Santas and how they’ve blown up in one N.S. neighbourhood
+-  Opinion | Gaspillage : mettre vraiment fin aux emballages uniques
+-  Raphaels Mutter wünscht sich eine Auszeit
+-  Каори Сакамото поведе след кратката програма на финала на турнира Гран При по фигурно пързаляне
+-  В КХЛ рассказали о планах понизить возраст НСА
+-  2 SMNI anchor `aarborin’ ng abogado sa Kamara
+-  Mountaineers object to plan to demolish Jimmy Savile's former cottage
+-  Halkbank, Kulüpler Dünya Şampiyonası'nda yarı finalde!
+-  Кличко назвав попередню причину підтоплення тунелю метро
+-  يخصص وقتًا معينًا للصلاة على النبي ﷺ فهل هذا صحيح؟ "الخثلان" يُجيب
+-  Galatasaray'da Nicolo Zaniolo için beklenen açıklama geldi
+-  Ricardo Quaresma'dan Beşiktaş sözleri
+-  Dolar ve tahviller yükseldi, altın fiyatları düştü
+-  Emine Erdoğan: Türkiye milli gelirine oranla dünyanın en cömert ülkesi
