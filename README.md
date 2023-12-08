@@ -1,11 +1,51 @@
 # Latest News
--  Мебелсозлик кластери ташкил этилди
--  Тарбия - энг олий қадрият (+видео)
--  שבת בספרד: ריאל מדריד תבטיח שבוע נוסף בפסגה עם ניצחון שישי רצוף?
--  שבת באיטליה: משחק נוח לאינטר, מילאן שוב תחגוג על אטאלנטה?
--  ไปชม'ดอกสร้อยสยามพรรณ'สวยงามระย้าหนึ่งเดียวที่สวนพฤกษศาสตร์บ้านร่มเกล้า
--  ประกาศศักดาทั่วโลก! ‘นายกฯ’ปลื้มดัน‘มวยไทย’ขึ้นซอฟต์พาวเวอร์อันดับ 1
--  'แต้ว ณฐพร'ในชุดเดรสเกาะอก แชะภาพสุดหวานละมุน
--  KOMANDANTI VOJSKE POGINULI NA GRANICI VENECUELE I GVAJANE: Helikopter nestao sa radara, 5 mrtvih, drama iznad spornog regiona
--  Donosimo veliku galeriju i dašak atmosfere: Extravagant proslavio 20. rođendan!
--  When Kareena Kapoor called Sharmila Tagore a `game changer` in Bollywood
+-  Najdłuższa przecena ropy od pięciu lat
+-  بريد المغرب يصدر طابعا بريديا خاصا تخليدا للذكرى 75 للإعلان العالمي لحقوق الإنسان
+-  بسبب الوجبات الجاهزة.. 9 علامات تُنذر بالتعرض لـ"التسمم الغذائي"
+-  Tízből négy magyar antiszociális munkaidőben dolgozik
+-  Eminönü-Alibeyköy seferleri durdu: Tramvay hattında ulaşım sağlanamıyor
+-  İsrail güçleri Batı Şeria'daki El-Faria Mülteci Kampı'nda 6 Filistinliyi katletti
+-  Ali Palabıyık kariyerini bitiren maçı açıkladı
+-  Yahudi lobisine tokat gibi cevap: Bir haftada 10 milyondan fazla kişi kaydoldu
+-  복지부, 유한양행 3개 사업장 ‘2023 지역사회공헌’ 인정기업 선정
+-  [의료24시] 한의계 “한의사 RAT 합법판결 항소한 질병청에 분노”
+-  Korea to expand visa benefits to accelerate inbound tourism
+-  कांग्रेस सांसद के ठिकानों पर हुई आयकर की छापेमारी, 200 करोड़ कैश बरामद
+-  BLOG/Jusos fordern Scholz zu neuem Regierungsstil auf
+-  Aktien Frankfurt Eröffnung: Abwarten vor US-Arbeitsmarktbericht
+-  Hanouka à l'Élysée : les drôles de pas d’Emmanuel Macron
+-  Monster Hunter Wilds v roce 2025
+-  انتظام حركة السيارات بمحاور وميادين القاهرة والجيزة.. النشرة المرورية
+-  الابنة انتحرت والأب قُطعت جثته.. زوجة لعوب تسببت في مقتل ابنتها وزوجها
+-  برلماني يطالب الحكومة بتكثيف الرقابة على الأسواق وضبط محتكري السلع
+-  الداخلية تواصل المرحلة الـ 24 من مبادرة "كلنا واحد" لتوفيرالسلع الغذائية
+-  لعدم التزامها بقرار الغلق.. تحرير 218 مخالفة للمحلات خلال 24 ساعة
+-  في يوم واحد.. سحب 2218 رخصة قيادة لعدم تركيب الملصق الإلكتروني
+-  ما هي فوائد استخدام الهاتف لمدة ساعتين يوميا؟
+-  الأرصاد تحدد الظواهر الجوية المسيطرة على الساعات المقبلة
+-  كيف تحمي نفسك من الأمراض التنفسية في فصل الشتاء؟
+-  제주도, 1회용 컵 보증금제 형평성 문제 해소 시행령 개정 요청
+-  News24 | Sandton shooting: Three men arrested for businessman's hit-style murder
+-  Batsman obliterates world record with 43-ball 193, bowler allows over 36 an over in T10 madness
+-  Honoured to be Sydney Cricket Groundâ€™s Life-member, says Steve Waugh
+-  Glenn Maxwell ruled out of next match after injuring forearm in Brisbane
+-  [박정림 KB증권 대표 ‘라임 중징계’ 불복 금융위와 소송전
+-  [타타대우상용차, 고객만족도 최우수 정비소에 ‘베스트 모터스’ 선정
+-  [담양군, 근로자 대상 ‘고향사랑기부제 캠페인’ 추진
+-  [광주시, ‘2023년 광주시 10대 뉴스’ 선정 온라인 투표 진행
+-  [김춘성 조선대 총장 8일 취임
+-  [영유아 보육·교육 사무, 교육부로 일원화
+-  [하남시, 경기도 시·군종합평가에서 2년 연속 우수기관
+-  [한국앤컴퍼니, 11일부터 단기과열종목 [투자360]
+-  [ŽT] Netikėta žinia. Skelbiama, kad Kadyrovo kovotojai užpuolė Belgorodo sritį (Video)
+-  Baldur's Gate 3 is de grote winnaar van The Game Awards 2023
+-  Fuchs ernennt Timo Reister zum stellvertretenden CEO
+-  Frankowicze mają nowy atut
+-  Že za uvod derbi kroga
+-  זיו אריה: "התנצלתי בפני יוסי אבוקסיס, הוא קיבל את ההתנצלות"
+-  Où trouver un marché de Noël près de Nogent-le-Rotrou les 9 et 10 décembre ?
+-  美하원, 하버드·MIT 반유대주의 공식 조사 착수
+-  Адвокат Тордена подтвердила освобождение россиянина в Финляндии
+-  Vodi li zajednička rezolucija Azerbajdžana i Armenije prema trajnom miru: Razmijenjeni su i ratni zarobljenici
+-  개인정보위, 개인정보 기술 우수기업 현장 간담회 개최
+-  부담 확 낮춘 갤럭시 S23 FE, Z세대 사로잡을까
