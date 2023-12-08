@@ -1,51 +1,51 @@
 # Latest News
--  الصحة بغزة: الاحتلال اعتاد سرقة أعضاء جثامين الشهداء وهناك تحقيقات توثق
--  رئيس جهاز "بدر": سرعة بدء تشغيل المركز الطبي لخدمة المنتقلين بسكن العاملين بالعاصمة الإدارية
--  "بعد شهر".. تحقيقات تؤكد أن دبابة إسرائيلية "قتلت وأصابت" صحفيين في لبنان
--  "ضهري اتكسر".. انهيار وبكاء أحمد حلمي في جنازة شقيقه داخل مسجد ناصر ببنها- فيديو وصور
--  - نائب وزير الآثار: نتوقع تحقيق السياحة رقما غير مسبوق نهاية العام الجاري
--  بالصور- افتتاح 3 مساجد جديدة بتكلفة 8 ملايين جنيه بالبحيرة
--  جيش الاحتلال: مقتل 2 من جنودنا أحدهما قائد دبابة وإصابة آخر بغزة
--  تشكيلات سريعة وإمكانيات لوجيستية.. وزير الداخلية يتابع خطة تأمين الانتخابات الرئاسية 2024
--  بالصور- الكشف على 2075 مواطنا في قافلة طبية ببني سويف
--  رجل يكتشف إصابته بسىرطان البنكرياس بهذه الطريقة- احذر الأعراض
--  الزمالك بالزي الأساسي في مواجهة ساجرادا بالكونفدرالية
--  BM'den büyük rezalet! Gazzeli çocuklara yiyecek yerine oyuncak hamburger gönderdiler
--  Comenius en Krimpenerwaard College samen in actie voor de voedselbank
--  Minden idők legjobban várt játéka? A GTA 6 már az előzetesével is rekordokat döntöget
--  Mogelijke leider handel verdovende middelen opgepakt
--  Volleyball Nations League 2024: le sedi e le date della fase a gironi
--  "Il guardiolismo è in crisi? Merito di una soluzione che arriva dall'Italia"
--  ‘This has to be an inside job’: Home Depot customer tries to return $472 Christmas tree. Store says it’s already been returned
--  Selena Gomez Pacari Benny Blanco, Minta Fans Tak Rusak Momen Bahagia
--  इतने हजार की SIP से अमेरिका पढ़ेगा आपका बच्चा, जन्म के साथ ही शुरू करें निवेश
--  TRAGICKÝ KONIEC PÁTRANIA Janku našli MŔTVU! HRÔZA, čo sa stalo, pomôcť jej už NEDOKÁZALI
--  Fiscalía ejecuta operativo contra estafadores, delincuentes comunes y pandilleros
--  Συμβουλές για να προλάβετε το hangover των γιορτών
--  NOAA Maps Reveal How El Niño Will Impact US Rain and Snow This Winter
--  رسميًا.. بوتين يترشح لانتخابات الرئاسة في روسيا 2024
--  حقن الدهون تقلل من خطر الإصابة بسرطان الأمعاء
--  Loren Allred reveals what it’s like to sing as Aerith in the ‘Final Fantasy 7 Rebirth’ theme song
--  PF incinera mais de três toneladas de maconha
--  Nuovi finanziamenti contro il rischio idrogeologico: quanto prende ogni Comune
--  Dodici chili di marijuana in garage e 3mila euro nella credenza, 29enne arrestato a Nesima
--  Carol singing contest on Dec. 10
--  Formel 1: Verstappen muss sich hüten! Weltmeister bekommt deutliche Ansage
--  Major Finnish power plants to strike on December 14 in response to government policies
--  Обстрел Ашкелона и населенных пунктов, граничащих с сектором Газы
--  Bajatović (SPS): Orden Rusije obavezuje na razvijanje bratskih odnosa dve države
--  متشبثا بسلطته..بوتين يبلغ قائد الجيش رغبته الترشح لانتخابات الرئاسة في مارس 2024
--  Aktien New York Ausblick: Leichte Verluste erwartet nach US-Jobdaten
--  Aus des Kindergelds: So ist die Kindergrundsicherung ab 2025 geregelt
--  Jokowi Tugasi Sri Mulyani Cek Hasil Temuan BPK
--  Tiada penderaan fizikal terhadap Zayn Rayyan
--  Тбилисский международный аэропорт не смог принять несколько рейсов
--  शाहरुख खान की विरासत आगे बढ़ाएंगी सुहाना, पहली फिल्म में कितना असर छोड़ पाईं?
--  Juventus Next Gen-Pineto, designato l’arbitro del match
--  En Yüksek 5. Enflasyon! "Asgari Ücretin 2 Buçuk Katı Kadar Kart Borcu Var İnsanların"
--  Why do people hate ‘America’s Team’?: A history of Dallas Cowboys memes
--  Vivir en guerra
--  Seminar on women in Rotary
--  Samotność jest groźna dla zdrowia. Zbadano, jak wpływa na organizm
--  Огромната инвестиция на Microsoft в OpenAI попада под погледа на британски регулатор
--  What Kind Of Cars Are These?
+-  Axel Springer zamknie serwis Upday. Teksty generować będzie sztuczna inteligencja
+-  В Молдавии фермеры объявили о смене формата протеста
+-  The importance and power of a great stage name
+-  Coveo Named a Leader in 2023 Cognitive Search Platform
+-  Geek Festival: evento se desarrollará en el Circuito Mágico del Agua donde podrás conocer a los actores de One Pice de Netflix
+-  Galatasaraylı Cenk Ergün'den şampiyonluk açıklaması
+-  Bodrum'da belediye ekipleri yağmur mesaisinde
+-  Морозы до минус 50 градусов прогнозируются до вторника в Сибири
+-  Public-private housing partnerships are the future
+-  Uraufführung von „The Breathshow“: Maren Strack übt das Atmen und feiert das Leben
+-  Aktion „Hand in Hand helfen“: Lebensmittel im Wert von 1700 Euro für die Tafel
+-  500 M€ d’investissements pour le port de commerce de Brest dans les dix ans
+-  Volkmarser Bürgermeister schlägt mit Haushaltsplanentwurf auch Steuererhöhungen vor
+-  IND-W vs ENG-W 2nd T20: India looks to bounce back against England
+-  Aresep tramitará rebajas de ¢75 en gasolina regular y ¢58 en diésel para enero
+-  Regis Prograis vs Devin Haney odds: Betting preview & tips
+-  Kabras RFC welcome back Kenya 7s trio and Uganda duo for Nondies date
+-  ආසියානු සංවර්ධන බැංකුවෙන් තවත් ඩොලර් මිලියන 200ක ණයක්
+-  Dental Tourism Market is Predicted to Surpass USD 21.5 Billion by 2031
+-  Durante patrullaje por pasos clandestinos hallan a un hombre calcinado en Arenillas
+-  Haushaltsloch gefährdet Finanzierung: 600.000 Jobs hängen an der Klimawende
+-  Gaza : La situation sanitaire est « au-delà de l’imaginable », selon l’OMS
+-  Entenda como é realizada a inseminação artificial
+-  Buscan a Melany, de 14 años; desapareció el 6 de dicembre en Saltillo
+-  I'm A Celebrity's Danielle Harold 'is close to tears' as she reunites with her old campmates after being eliminated from the jungle
+-  Романцев: нынешнее поколение тренеров ушло далеко вперёд
+-  El huancaíno Marco Huamán otra vez es convocado a la Selección Peruana Sub 23
+-  Strefa Czystego Transportu. Bocheński: W decyzji władz Warszawy nie ma logiki
+-  Bruktbil kan ikkje lenger seljast «som den er»
+-  Biogas-Betreiber fordern in Helmighausen Bürokratieabbau von MdB Dilcher
+-  Песков: решение Путина участвовать в президентских выборах - мировая новость
+-  Chef der Kreisabfallwirtschaft ist gefeuert
+-  Däne will E-Auto-Batterie mit Toaster vorheizen – und fackelt Auto samt Carport ab
+-  BN sudah tidak relevan?
+-  Ireland’s green skills gap is putting climate goals at risk
+-  The Veronicas' Jessica Origliasso speaks out after sharing 'triggering' video of a huge spider crawling over her face that horrified social media
+-  Καλάθι των Χριστουγέννων: Σε ισχύ από τις 13 Δεκεμβρίου - Τα προϊόντα που περιλαμβάνει
+-  Symphonic’s Women Empowerment+ Program doubled this year
+-  Uitspraak in kort geding: noodopvang Uden mag niet open van de rechter
+-  Bahnstreik in Hessen: Kaum S-Bahnen und Regionalzüge heute unterwegs - leere Bahnhöfe
+-  Avião que saiu de BH e iria para Rondônia muda trajeto e pousa em Sinop após mau tempo
+-  Gerentes del Gobierno Regional de Arequipa se van a retiro espiritual para rendir cuentas
+-  Певец Обломов готов за $20 тысяч выступить для россиян на нейтральной территории
+-  Laboratory Freezers Market to Reach USD 6.47 Billion by 2030, Growing at a CAGR of 4.5 %
+-  Getting Griner Out: The inside story of her arrest, detainment and release from Russia
+-  Na Žďársku prověří největší mikroelektrárnu na biomasu
+-  "مرض خطير" يداهم القاضي الرحيم
+-  ЕС направил пограничников на финско-российскую границу
+-  Ca sĩ Cao Thái Sơn nói điều này sau vụ ô tô của mình va chạm với tàu lửa tại TP. Đà Lạt
+-  Staatsanwalt verlangt Haftstrafen für junge Männer
