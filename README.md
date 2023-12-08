@@ -1,51 +1,11 @@
 # Latest News
--  Cae presunto extorsionador ligado a La Unión Tepito; le encontraron droga
--  Taiwán detecta un globo de China cerca de la isla
--  NY Subliners vs LA Guerrillas Betting Tips & Predictions
--  Joint Himalayan Declaration handed over to President
--  Black Myth: Wukong gets August 2024 release date
--  অন্তরঙ্গ মুহূর্তের দৃশ্য নিয়ে আলোচনায় তৃপ্তি
--  'Your body knows': Raiders star opens up on why this is his last NRL season
--  ‘AP didn’t utilise funds for control of narcotics’
--  Rò rỉ clip MONO vừa nhảy vừa hát cực sung siêu hit trong quân ngũ
--  Monster Hunter Wilds - Die Jagd geht im Jahr 2025 weiter
--  Le pari gagnant - 08/12/2023
--  Muere motociclista tras ser embestido por automóvil qué volcó en la VCarranza
--  Fueron plagiados de balneario jóvenes de Celaya, revela FGE
--  'Reducción de jornada laboral pone en riesgo a microempresas'
--  Израиль подвергся обстрелу со стороны Сирии и Ливана
--  Former Karnataka Minister Kimmane Ratnakar urges RSS to distribute copies of Manusmriti so that its supporters realise what the text actually states
--  Woodstock High School graduate composes song to be performed by students Thursday
--  Woodland boys, Earlville girls notch Thursday night road wins: The Times Area Roundup
--  Hunter Biden hit with federal charges for evading tax
--  [서울교통공사, 사당별관 휴게공간 리모델링…7일 개소식
--  [특허청, 지식재산으로 유망스타트업에 날개
--  [“공갈 협박” vs “상습 폭행”…야구선수 김하성·임혜동 진실공방
--  [조폐공사, 한국감사인대회 '사회적가치 실현 최우수' 등 3개 부문 수상 영예
--  Τζον Λένον: «Ή από αεροπορικό δυστύχημα θα πάω ή από σφαίρα τρελού θαυμαστή μου»
--  백악관 "이스라엘에 가자지구 공세 시한 제시 안했다"
--  Daftar Tim yang Lolos ke Babak Grand Final Livoli Divisi Utama 2023
--  Народные приметы на 9 декабря: что нельзя делать в этот день
--  Oswego girls bowlers stay unbeaten in SPC duals: Record Newspapers sports roundup for Thursday, Dec. 7
--  Самолет, экстренно вернувшийся из-за неисправности в Новосибирск, задержали на 7 часов
--  अर्थमन्त्रीको सुझावपछि मौद्रिक नीति खुकुलो आउने
--  ¿Liberación de Alberto Fujimori pondría en riesgo a los TLC con la Unión Europea y Estados Unidos?
--  Какие церковные православные праздники нас ожидают 9 декабря
--  Slumping Ducks lose to the Chicago Blackhawks
--  Esta es la razón por la que la Selección Mexicana cambió de rival dos veces en el sorteo de Copa América 2024
--  Какие международные праздники и памятные дни нас ожидают 9 декабря
--  Какие праздники отмечают 9 декабря
--  GDE JE SKRIVENO BLAGO KLANA VELJE NEVOLJE? Čekaju suđenje za pranje para sa ženama, a gradom se širi priča o MILIONIMA ZAKOPANIM U NJIVAMA
--  Vino G Bastian Kaget dan Kehilangan Atas Meninggalnya Yayu Unru
--  PMGC-2023: Дэлхийн аваргын финалд Монголын гурван баг тоглоно
--  Nam Em tiết lộ đã lên chức mẹ, nói lời xin lỗi con khiến dân mạng xôn xao
--  اقتحامات إسرائيلية ليلية تقض مضاجع الفلسطينيين بالضفة
--  Гороскоп на 9 декабря 2023 года: что обещают астрологи
--  Kim Jong Un Menangis Minta Wanita Korut Melahirkan Banyak Anak
--  Black Magic are top of the ladder after round three win
--  Включите свет: в Москве начали производить светодиоды для наружного и внутреннего освещения
--  CSU-Spitzenkandidat: EVP-Chef Weber will Verbrenner-Aus kippen
--  Siudy Garrido bailó su magia flamenca en Guatemala
--  Liga Élite de Béisbol: Gallos aseguran duelo ante las Avispas
--  Народные приметы на 9 декабря: что нельзя делать в этот день
--  Какие церковные православные праздники нас ожидают 9 декабря
+-  넥슨, 팀 기반 FPS 게임 ‘더 파이널스’ 글로벌 정식 출시
+-  เลขา ป.ป.ช.แจง "ครูชัยยศ" ถูกปลด เหตุเซ็นรับรองค่าอาหารเป็นเท็จ
+-  여야, 오는 20일까지 예산안 처리에 합의… 민생법안, 연내 처리 속도
+-  씨티은행, 아시아머니지 선정 '한국 최우수 인터내셔널 은행'
+-  시흥도시공사, 2024년 경영계획 수립 및 경영평가 대응 워크숍 개최
+-  강원이주여성상담소, 이주여성가정폭력 실태현황 및 제도개선 방안 토론회 개최
+-  陳真咬甩趙家賢左耳後遭「私了」案 傳道人及修女指涉案律師樓男文員有正義感
+-  英國升學︱Bruern Abbey School SEN專屬學校表現出色
+-  Guyana ordusuna ait helikopter düştü: Beş asker hayatını kaybetti
+-  Terör devleti İsrail'in Gazze'deki katliamları korkunç boyutlara ulaştı: Can kaybı 17 bini aştı
