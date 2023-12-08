@@ -1,51 +1,11 @@
 # Latest News
--  Muere Ryan O´Neal a los 82 años
--  Transcript of statement by CSIS director Vigneault during town hall meeting for staff
--  Montreal’s light-rail network ‘ready for winter’
--  Åklagarattack i Guatemala liknas vid statskupp
--  Une entente pour la relance de Medicago
--  Stranger Things Season 5 Production Start Date Set for Netflix Show
--  Zampini ironico: «Vittoria per interrompere la striscia di scudetti onesti altrui»
--  Conferenza stampa Mazzarri LIVE post Juve Napoli: le sue dichiarazioni
--  Palmeiras destrona São Paulo e agora sobra na liderança histórica do Bola de Prata
--  Corinthians decide por saídas de Renato Augusto, Gil e Giuliano para 2024 e inicia reformulação no elenco
--  El Real Zaragoza se trae un punto agridulce de Cornellá (1-1)
--  Présidentielle 2024 : Amadou Ba va rencontrer des Sénégalais de la Diaspora
--  Elderly people struggling to afford heating should visit their local pub to stay warm, says celeb chef Tom Kerridge
--  Elderly people struggling to afford heating should visit their local pub to stay warm, says celeb chef Tom Kerridge
--  Truck crushes motorcycle passenger to death in Ogun
--  Mnangagwa appoints new RBZ governor
--  Marvin Humes is sixth campmate voted off I’m A Celebrity…Get Me Out Of Here!
--  Parks Canada accepts recommendations from review into out-of-control fire in Banff
--  Izrael oznámil, že pokus o záchranu rukojemníkov sa v Pásme Gazy nepodaril
--  أشياء يجب أن تعرفها قبل شراء ساعة جديدة
--  إصابة 3 جنود لبنانيين في قصف إسرائيلي
--  الاتحاد الأوروبي يدرج الضيف ونائبه على قوائم الإرهاب
--  Jadwal KRL Solo-Jogja Hari Ini 9 Desember 2023
--  Horarios, accesos, ingresos y entradas: la información de servicio para River-Rosario Central en Córdoba
--  Bulgaria approves more military aid for Ukraine
--  284,076 kredi të shpejta në vitin 2022
--  창녕군, 2024년 노인 일자리사업 참여자 2405명 모집
--  Posle Barse u Bolonji pao i Makabi: Šengelija i Belineli vodili Virtus do velike pobede
--  Debakl Francuza na svom terenu: Valensija uhvatila ritam, posle Zvezde "pao" i Asvel
--  İskoçya Eski Başbakanı Salmond'tan, Erdoğan'ın tarihi sloganına övgü dolu sözler!
--  Malik Cunningham, Kevin Harris revert to Patriots’ practice squad following Week 14
--  Nagy Márton: Töretlen a bizalom a magyar gazdaság felé
--  Hatay'da feci kaza: Motosiklet sürücüsü can verdi
--  Katil İsrail'den kan dondurucu sözler! "Onlar insan değil, diri diri gömülmeli"
--  Hoffenheim, 5 hafta sonra kazandı
--  Fenerbahçe Beko deplasmanda kayıp!
--  Подоляк: мобилизация на Украине будет проходить сложно
--  VfL Bochum: Trainer Thomas Letsch sofort nach Spiel in Hoffenheim abgereist
--  VfL Bochum: Trainer Thomas Letsch sofort nach Spiel in Hoffenheim abgereist
--  Estas son las noticias más leídas este viernes en Diario de Pontevedra
--  Melbourne Renegades youngster hits massive ball over SCG members’ stand against Sydney Sixers in BBL loss
--  'Spiralling humanitarian nightmare' in Gaza decried; US blocks UN demand for ceasefire
--  “When Van Halen’s first record came out, I was so proud of them – it was awesome. But did Eddie Van Halen affect my playing style? No”: Dave Meniketti on turning down Frampton, and how Y&T might’ve been bigger if they’d opened for themselves
--  Baltimore suspends light rail services for emergency inspections
--  Ugolini: «Perdere Giuntoli, Spalletti e Kim ha condizionato i primi mesi del Napoli»
--  Democrats want to tighten rules for weapons given to foreign countries as US supports Israel
--  Electric vehicles yield reliability concerns in new study
--  Australia Selatan dilanda kebakaran belukar
--  Lautaro Díaz es duda en Independiente del Valle para la final de la Liga Pro
--  조해진, 국정감사 최우수 국회의원 의정활동 대상 수상
+-  Fransız aşırı sağcı milletvekili Le Pen yargılanacak
+-  Yabancılar turizme yatırım yapmıyor, peki neden…
+-  14 قتيلا بحريق هائل في العراق (فيديو)
+-  Acuciante salvaguardar cordillera norte de Valles Centrales
+-  الوكرة ينجو من فخ «العميد»
+-  نظرة مستقبلية إيجابية للبنوك القطرية
+-  Putin je samo trebao čekati da se saveznici umore od davanja pomoći... I dočekao je!
+-  Canarias, a la cabeza en el acoso escolar: el 10% del alumnado lo sufre
+-  Pobladores de Texcaltitlán, Edomex, se enfrenta con presuntos miembros de grupo criminal
+-  Los nazarenos conmemoran la fiesta de la Inmaculada
