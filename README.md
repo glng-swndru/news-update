@@ -1,51 +1,51 @@
 # Latest News
--  Musk’s New Startup To Roll Out AI ‘Grok’ For X’s Premium+ Subscribers
--  The Year That Was For Generative AI— And The Shape Of Things To Come
--  Ethics Panel Report On TMC MP Mahua Moitra To Be Tabled In Lok Sabha
--  RBI To Reveal Monetary Policy Today, Another Pause In Repo Rate Most Likely
--  일구대상은 '최강야구', '특별 공로상-후배 A씨 고소' 김하성은 불참(종합)
--  Gazze için ‘satıyorum!’
--  Müebbet isteniyor
--  Thieves try to rob ATM using gas cutter, notes burnt
--  Power crisis raises product costs by 40% – Report
--  ឃាត់ខ្លួនជនពាក់ព័ន្ធចំនួន ៧១នាក់ ក្នុងបទល្មើសគ្រឿងញៀនទូទាំងប្រទេសថ្ងៃទី ០៧ ធ្នូម្សិលមិញ!
--  Man sets himself on fire at friend’s house in Bengaluru
--  [홍콩의 중국화…주재 영사관·국제기구 부동산 임차 연장 시 中승인 필요
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [다니엘 린데만, 한국인 여성과 결혼…전현무 사회
--  [비·김태희 집 ‘초인종’ 여러번 눌러…‘스토킹 혐의’ 40대女의 최후
--  [전기硏, 中企 소재·부품 개발 핵심인프라 구축
--  [인천관광공사, 시 산하 공기업 최초 4년 연속 ‘사회공헌’ 수상
--  [주식카톡방 완전무료 선언” 파격결정
--  [“소아과 오픈런은 엄마들 브런치 타임 탓?” 동료 실언에 뿔난 소아과 의사들, 왜?
--  [쿠첸, 공식 브랜드 홈페이지 리뉴얼 오픈
--  [관세청, 관세 분석의 ‘국제 표준’ 선도
--  [술에 취해 비틀대다 차도로 넘어져 시내버스에 깔린 40대 사망
--  EV Group Brings Revolutionary Layer Transfer Technology to HVM
--  [“마트에서 45일간 생존”…6억원 거머쥔 男, 대체 무슨 일?
--  [산림청, 12월 이달의 임산물 ‘옻나무’ 선정
--  [‘김포시의 서울 편입‘ 여론 한 곳에… ‘김포시 대시민 소통의 장’ 개최
--  El DLC de Final Fantasy XVI: Echoes of the Fallen está disponible hoy mismo
--  NJC declines Adeleke’s request to replace Osun CJ, sacks state’s High Court judge
--  소아과 오픈런이 엄마들 브런치 때문?… 소청과 "우봉식 사퇴하라"
--  Google Gemini is a game-changer for messages
--  Google Gemini is a game-changer for messages
--  El azar en el sorteo estuvo a favor de Bielsa y de Uruguay: buen grupo, viaja poco y no se cruza con Argentina hasta la final
--  Don’t demoralise farmers, AP Minister Kakani tells Chandrababu Naidu
--  No hay plata: 10 lecciones para comunicar economía en tiempos de Milei
--  ‘역대급 불수능’ 2024학년도 수능 성적표 배부…전영역 만점자 1명
--  조응천 “이재명과 통화…‘뭐가 문제라서 시끄럽게 구냐’로 들려”
--  Reuters' Issam Abdallah covered world's biggest events with bravery and insight
--  Sale de Atlético Nacional y le gusta a Tulio Gómez
--  「需高關稅保護」，塔塔汽車遊說印度政府別為特斯拉降稅
--  GTFO is getting a final update, bringing the game to a close with Rundown 8
--  Reflow Soldering System Market Opportunities, Sales, Revenue, Gross Margin & Trends Analysis Report 2023
--  Hello Games unveils massive open-world multiplayer game, Light No Fire
--  Kaji Video Kader PAN Joget di Kantor Kemendag, Bawaslu: Jangan Sampai Gak Tahu Aturan
--  ผจก.ประปาชี้แจงชาวบ้านขอเวลา 3 เดือนในการแก้ไขระบบกลับมาสมบูรณ์อีกครั้ง
--  김영환 충북지사, 세계한인무역협회장과 협력 방안 논의
--  ЗСУ продовжують наступати на лівому березі Херсонщини: аналіз ISW
--  BDA proposes Rs 3,650/sqft for Karanth Layout
--  Tottenham Hotspur vs West Ham United 1-2 di Liga Inggris, Son Heung-min: Kami Terlalu Lembek
--  서대문자연사박물관, 관람객과 소통하는 도슨트 로봇 도입
--  Anak bekas ketua tentera Israel maut bertempur dengan Hamas di Gaza
+-  Frustra una suspensión la libertad de Lozoya
+-  바다서 건져 올린 보물, '닻돌'의 비밀이 드러나다
+-  LGC: Thông báo ngày ĐKCC chốt danh sách cổ đông để chi trả cổ tức bằng tiền
+-  RDP: Thông báo ngày ĐKCC để thực hiện quyền tham dự ĐHCĐ bất thường năm 2024
+-  CTF: Quy chế nội bộ về quản trị công ty sửa đổi
+-  CTF: Điều lệ công ty sửa đổi
+-  RDP: Nghị quyết HĐQT về việc triệu tập ĐHĐCĐ bất thường năm 2024
+-  CTF: Nghị quyết và Biên bản họp ĐHĐCĐ bất thường năm 2023
+-  CVIC2303: Thông báo ngày ĐKCC để thực hiện quyền do đáo hạn
+-  CVIC2303: Quyết định hủy niêm yết chứng quyền có bảo đảm
+-  CTPB2303: Quyết định chấp thuận hủy niêm yết chứng quyền có bảo đảm
+-  Light No Fire, il nuovo gioco di Hello Games, si mostra ai TGA 2023
+-  Global Iron & Steel Mills and Ferroalloy Market Experiences Robust Growth, Anticipated to Reach $1403.27 Billion by 2027
+-  The Finals é lançado para PC e consoles
+-  مارس الرياضة بأمان.. احذرها عند الإصابة بنزلة البرد
+-  Литва Абрамовичнинг фарзандларига фуқаролик берилгани ҳолатини текширмоқда.
+-  Ўзбекистон давлат хизматчилари билимини оширишда Британия билан ҳамкорлик қилади.
+-  Supermarket giant's 'weird' interview request
+-  『GUILTY GEAR -STRIVE-』追加キャラ「エルフェルト」発表、本日のアプデと同時に飛び入り参戦へ。既存キャラに新技追加も
+-  В Москве группа неизвестных ограбила машину
+-  Who Gets Engaged in the ‘Bachelor in Paradise’ Season 9 Finale? Updates on the Couples
+-  ТОП-3: где в Карелии выше всего ценят труд
+-  Galaxy S24 Ultra ’da 2 TB’lık depolama alanı sunmayacak
+-  Two decades behind bars for man who took part in meth-fuelled home invasions
+-  قصة أنجمت !!
+-  Премьер Японии Кисида покинул фракцию из-за скандала
+-  Iran lancar kapsul bawa haiwan ke orbit
+-  Former Edo Governor, Osunbor Announces Governorship Bid For 2024
+-  33 регион заключил 9 соглашений с инвесторами на 8,5 млрд рублей
+-  Eagles set for three-nation pre-Cote d’Ivoire 2024 tournament in Abu Dhabi
+-  В Ярославле автомобиль с женщиной и детьми попал под товарняк
+-  Osimhen, Oshoala in final shortlists for CAF awards
+-  Konsolosluk aracıyla çarpmış
+-  Sevgilisini bağlamak için enerji istedi
+-  İstanbul’da 280 vaatten 46’sı hayata geçirilebildi: Vaatler tek tek sorulacak
+-  KKTC’de siyonist işgale yasal önlem
+-  Türkiye’nin doğalgaz ihracatında büyük artış
+-  Binlerce kıza yardım ettik
+-  Edirne’yi salgın korkusu sardı
+-  Temas grubu Gazze için devrede 10 mesaj iletilecek
+-  Her aileden bir çocuğu rehin alıyorlar
+-  Staj sigortası annelere emeklilik kapısı açıyor
+-  Καιρός: Προειδοποίηση της ΕΜΥ για καταιγίδες σε αρκετές περιοχές – Η πρόγνωση για το Σαββατοκύριακο
+-  Варна, 1399 г. Гибелта на Добруджанското деспотство - Труд
+-  Nacvičování sletové skladby s sebou nese i práci na sobě samé, říká Machů
+-  Melissa Broder’s mystical desert song to the power of love
+-  Heatwave sweeps the nation as unwanted rain hits south
+-  De gör morgondagen bättre
+-  Kappeli tiiviimmin käyttöön
+-  Kas eestlane on tõesti nii loll, et ainult keeld aitab?
