@@ -1,51 +1,51 @@
 # Latest News
--  내년 모바일 시장 전망 “틱톡 전성시대…마이크로블로깅 앱 고전”
--  퀘스트, 소외 이웃 무료급식 ‘밥퍼나눔’ 봉사활동 참여
--  누리플렉스, 에너지 데이터 기반 서비스 모델 연구개발 성과보고회 가져
--  보건의료통합봉사회, 대구 구암동 행정복지센터에 ‘함께, 나눔’ 점자 구급함 전달
--  [금융IT이노베이션] 엔시큐어, "변화하는 IAM 환경에 맞는 보안 필요"
--  인크로스, '메타 에이전시 퍼스트 어워즈'서 5년 연속 수상
--  조주완 LG전자 사장 "즐겁고 높은 성과 내는 회사 만들 것"
--  네이버, 인공지능·첨단 기술로 소외 없는 디지털 환경 구축 이어간다
--  통신3사 CEO 2.0 시대…성장 한계 돌파할 해법은 ‘AI’
--  샌즈랩, 독일 프라운호퍼 연구소와 기술협약 체결
--  퀘스트, 소외된 이웃과 함께한 무료급식 ‘밥퍼나눔’ 봉사활동 참여
--  네이버클라우드, 에듀테크 플랫폼 ‘웨일 스페이스’로 서강대 미래형 교육 지원
--  원스토어, 청소년보호 유공자 여성가족부장관 표창 수상
--  퀘스트, 소외된 이웃과 함께한 무료급식 ‘밥퍼나눔’ 봉사활동 참여
--  Varun Beverages Share Price Live blog for 08 Dec 2023
--  ពីរ​នាក់​ឪពុក​-​កូនចូល​ព្រៃ​ដក​គម​ក្រវាញត្រូវ​ខ្លាឃ្មុំ​១ក្បាល​ខាំ
--  Yes Bank Share Price Live blog for 08 Dec 2023
--  Campus Activewear Share Price Live blog for 08 Dec 2023
--  Vodafone Idea Share Price Live blog for 08 Dec 2023
--  El sabroso perreo de José Siri con su primer jonrón en la Lidom 2023
--  Mumbai Crime News: अधेंरीमध्ये वेश्याव्यवसायाच्या रॅकेटचा पर्दाफाश, 12 वर्षाच्या मुलीची केली सुटका
--  Bajaj Finserv Share Price Live blog for 08 Dec 2023
--  Sbi Share Price Live blog for 08 Dec 2023
--  Coal India Share Price Live blog for 08 Dec 2023
--  Bandhan Bank Share Price Live blog for 08 Dec 2023
--  L&T Share Price Live blog for 08 Dec 2023
--  SRF Share Price Live blog for 08 Dec 2023
--  Natco Pharma Share Price Live blog for 08 Dec 2023
--  Asian Paint Share Price Live blog for 08 Dec 2023
--  MMTC Share Price Live blog for 08 Dec 2023
--  Gujarat State Fertilizers & Chemicals Share Price Live blog for 08 Dec 2023
--  Suzlon Share Price Live blog for 08 Dec 2023
--  Full-Life Technologies Breaks Ground for GMP Manufacturing Facility in Belgium to Advance Its End-to-end Solution for Radiopharmaceuticals
--  2023 Yidan Prize Summit, 변화를 일깨우는 혁신적인 아이디어 탐구
--  2023 Spotify Wrapped: How the world listened to Mandopop this year
--  Aon Releases the China Best ESG Employers Award List for 2023
--  FPT Vietnam and Faeger to jointly support businesses in developing green agriculture in Vietnam
--  We Heard You! Enhanced Sun Protection for Indonesia: AXIS-Y Introduces The Complete No-Stress Physical Sunscreen Ver.3
--  The East Asian Cultural Capital 2023 - The year of activities in Chengdu, China came to a successful conclusion
--  2023 Advantech Embedded-IoT World Partner Conference
--  문화예술 필독서 ‘예술시장 스케치북’ 출간
--  Adani Ent Share Price Live blog for 08 Dec 2023
--  '겨우 17살' 전유진이 부른 노래가 불륜 미화곡이라고? 팩트체크 해보니
--  "음바페는 9번을 싫어해! 이강인을 9번에 넣어라"…과거 9번 불만으로 감독과 불화 겪은 음바페, 이번에 또? "엔리케는 9번 LEE와 경기하고 싶어할 것"
--  “이렇게 마를수가” 40kg 살 뺀 오프라 윈프리, 체중감량 비결 공개[해외이슈]
--  [MD포토] 일구상 시상식 참석한 김인식 전 감독
--  엔하이픈(ENHYPEN), 시크함이 묻어나는 출근길!
--  [MD포토] 선, 후배들과 이야기 나누는 이대호
--  '서머퀸' 권은비 日 '스마트폰을 떨어뜨렸을 뿐인데' 주연, "일본어 감정 표현 뛰어나" 극찬[공식]
--  [MD포토] 염경엽 감독 '(이)택근이 오랜만이야!'
+-  새로운선택-세 번째 권력, 제3지대 '빅텐트' 신당 공동 창당 선언
+-  '동계 전지훈련 메카' 강진군, 전국 규모 대회 유치로 지역경제에 활기
+-  정읍시의회 이복형, 오승현 의원 희망한국 국민대상 수상
+-  경북대, 답정너 논란 quot;금오공대 통합, 전적으로 부정할 수 없어quot;
+-  포항시 재향군인회 청년단 안보행사 lsquo;성료rsquo;
+-  인천시, 청라-북항 간 연결도로 11일 추가 개통
+-  김포시, 15일 서울 편입 '대시민 소통의 장' 개최
+-  울진군,lsquo;제5차 미세먼지 계절관리제rsquo; 시행
+-  경기주택도시공사 '광교 기회캠퍼스' 건립사업 설계 공모
+-  [INTERVIEW] Ex-NIS chief rules out bad intel as cause of Korea's failed expo bid
+-  S. Korea to stage computer-simulated Taegeuk military drills next week
+-  National Assembly to hold revote on 4 vetoed bills
+-  Bond sales rise in November
+-  Korea to begin dismantlement process for Kori-1 power plant next year
+-  India, De Beers seek clarity, flexibility on G7's Russian diamond ban
+-  Manufacturing Sector Significantly Contributing To Economy, India's Q2 Growth Highest In World: FM
+-  Food Prices In India Likely To Inch Up In November: Report
+-  เด็กจิตอาสาทาสีกำแพง “แต้มสีเติมฝัน” ทำความดีในวันที่ไม่มีพ่อ
+-  홍준표 “대통령 은혜 입고도 양지 ‘분당’에만 몰려…총선 이기기 힘들어”
+-  10월 경상수지 68억 달러 흑자…수출 14개월 만에 증가
+-  ‘한동훈 테마주’ 끝 모를 상승세…두 번 거래 막혀도 ‘급등’
+-  [단독] “이낙연, 측근들에 ‘실무적으로 신당 준비하라’ 지시”
+-  與 ‘서울 6석’에 화들짝…지도부 “근거 없어, 다시 작성”
+-  中 연이은 ‘수출제한’에…농식품부 “비료원료 확보 부담 없어”
+-  계파 갈등 의식? 민주, 전략공관위원장에 4선 ‘정세균계’ 안규백 임명
+-  وزير الاتصالات الفلسطيني: أدعو الشعوب العربية إلى مقاطعة بضائع الدول الداعمة للاحتلال
+-  أرحومة يلتقي العشرة الأوائل الموفدين من قبل الحكومة الليبية للأردن
+-  Pemerintah China dan Singapura Sepakati Bebas Visa Mulai 2024
+-  인제서 발굴 6·25전쟁 유해는 18세 조도형 하사, 72년 만에 가족 품으로
+-  [속보] 여야 "예산안 20일 본회의까지 처리" 공식 합의
+-  Cina Mulai Reaktor Nuklir Generasi Keempat Pertama di Dunia, Berbahayakah?
+-  Frente Frío 16 se aproxima: ¿Cuándo llegará a México y qué estados ‘congelará’?
+-  เชียงใหม่ เปิดการแข่งขันกีฬานักเรียน นักศึกษาฯครั้งที่ 43
+-  Faeser: Grenzkontrollen werden zwei Monate verlängert
+-  Faeser: Grenzkontrollen werden zwei Monate verlängert
+-  Kıbrıs’ta satışa önlem geliyor
+-  Thông tin mới nhất vụ cô giáo bị nhóm học sinh dồn vào góc lớp, ném dép
+-  Səhnəyə elə geyimə çıxdı ki, hamı onu lüt sandı
+-  Bills coach Sean McDermott 'cited 9/11 attacks as example of TEAMWORK in 2019 speech,' unnamed sources say - with the Buffalo boss later apologizing for his astonishing choice of words
+-  MyCTC Janjikan Konten Kreator Bisa FYP & Dapat Cuan Tambahan
+-  [[리더스카페] 명품받아야 ‘진짜 프러포즈’...2030 “가짜사랑마저 고프다”
+-  [LGU+ 글로벌 오픈랜 성과공유회 참여...국내 첫 3년 연속
+-  [[리더스카페] 루돌프는 백화점 사은품이었다...크리스마스에 얽힌 ‘황당한’ 진실
+-  [알츠하이머 조기 진단길 열린다
+-  [유영상 대표 연임한 SKT “AI사업·글로벌 역량 강화”
+-  [[한눈에 읽는 신간] 스토리테크 전쟁, 정상동물, 미래경제 지식사전
+-  [쏘카, 자연어처리 최고권위학회 ‘EMNLP’ 우수상
+-  [유일 수능 만점자 유리아 “전교 1등 못해봤는데, 얼떨떨”
+-  [조주완 “모두가 다니고 싶은 즐거운 회사 만들 것”
+-  [포스코그룹, 유튜브 공모전 75편 수상작 발표
