@@ -1,11 +1,51 @@
 # Latest News
--  İstanbul'da dehşet! Genç kızı dakikalarca darp ettiler
--  Sultangazi'de arıza yapan İETT otobüsü geri geri kaydı; motoru inceleyen şoför altında kaldı
--  Jandarma Genel Komutanlığı 29 devlet memuru ve 11 sözleşmeli personel alacak
--  Küvette bebeğini yıkayan anne epilepsi krizi geçirdi, bebek hayatını kaybetti
--  AK Parti'nin İstanbul için aday yarışı kızıştı! İki isim ön plana çıktı
--  Çift başlı dünyaya gelen buzağı, 1 saat yaşadı
--  India Bans Onion Exports Till March 2024
--  Tata Motors Urges Govt To Not Lower EV Import Duties To Safeguard Domestic Players
--  Gujarat Govt Inks MoU With AAI For Development Of Various Airports In State
--  Buletinul de identitate poate fi livrat la domiciliu prin MDelivery. Cum poți solicita acest serviciu și cât costă
+-  Vaste kracht kondigt vertrek aan bij SDV Barneveld
+-  Dolardan yeni rekor!
+-  Bakan Yerlikaya duyurdu: Yılbaşı öncesi baskın!
+-  Ahmet Hakan yazdı: Yeteneksiz bayan Seçil Erzan!
+-  Borsa güne yükselişle başladı
+-  Beyaz Saray'dan İran'a suçlama
+-  WhatsApp'a yeni özellik daha!
+-  Antalyaspor, Fatih Karagümrük'ü konuk edecek
+-  Metro İstanbul duyurdu: Seferlerde aksaklıklar yaşanıyor
+-  NRB unveils first quarterly review of monetary policy
+-  ULOVILI ČUDOVIŠTE: Njih petorica sjedili na njemu, jedva ga savladali!
+-  Selena Gomez teases diamond engagement ring after confirming Benny Blanco romance
+-  Son Heung-Min blasts ‘soft’ Tottenham after defeat to West Ham United
+-  Нови обвиненија против синот на Бајден
+-  Sjajni bh. karatista babi za rođendan poklonio putovanje na umru: Ne uzimajte roditelje zdravo za gotovo
+-  סוכל ניסיון חדירה לישראל: מחבלי חיזבאללה זוהו מתקרבים לגבול - וחוסלו
+-  "אין בשום מקום בעולם חוק שמסדיר שאיבת זרע מהרוג"
+-  Russian crime ‘lord’ declared persona non grata in north
+-  مروحية صهيونية تقتل جنديا محتلا
+-  5 شهداء برصاص الاحتلال في مخيم الفارعة
+-  Hundreds of people gather on Dam Square in Amsterdam for national Hanukkah celebration
+-  Comisión integró ternas para elegir relatores
+-  "Un nadó un arbre": l'hospital d'Olot ja ha arribat als 400
+-  ‘Maa Durga Aa Gayi Hai’, A Confident Mahua Moitra Strodes Into Parliament Amid ‘Expulsion’ Clouds
+-  "Русские витязи" сообщили новые подробности о сопровождении борта президента РФ
+-  Tarihi Kentler Birliğinden Konak’a iki ödül birden
+-  Gobierno presenta resultados en materia de transparencia
+-  Ukraine says Kharkiv hit by several Russian missiles
+-  Diez normas para el correcto uso de las patinetas
+-  '변호사비 대납' 이병노 전남 담양군수, 1심서 당선무효형 선고
+-  قرعة كوبا أمريكا 2023.. مواجهات من العيار الثقيل
+-  Деян Кирилов: Напрежението е при съперника
+-  छ महीनामा प्राधिकरणले बेच्यो रु १५ अर्ब २४ करोडको बिजुली
+-  "Je continue à défendre la cause des femmes" : accusé de violences conjugales, Stéphane Plaza dit avoir "la conscience tranquille"
+-  CHP Genel Başkanı Özgür Özel, Kılıçdaroğlu'nu ziyaret edecek
+-  Libros amigos (I)
+-  Ντορέττα Παπαδημητρίου: Είναι απότομη η αλλαγή όταν τα παιδιά μεγαλώνουν και φεύγουν από το σπίτι
+-  Ranking the trees: van karig aangeklede takken tot de hysterische boom van Richard Groenendijk
+-  Publicis Groupe: La creatividad está en el centro de todo proceso
+-  EUREX/Bund-Future leicht im Minus
+-  EUREX/Bund-Future leicht im Minus
+-  Házenkářky potřebují zázrak. První překážkou na trnité cestě do čtvrtfinále je Španělsko
+-  Να μπει ένα ΤΕΛΟΣ στον κατήφορο/Ενισχυμένο το πλάνο Τσολάκη-Σκέμπρι
+-  ‘Why can’t I sleep?’ 7 common reasons from an ex-insomniac and sleep coach
+-  JSW Steel foreign subsidiary to raise $145 mn from long-term bonds; stock rises
+-  Revanth Reddy: కేసీఆర్ ఆరోగ్యంపై సీఎం రేవంత్ రెడ్డి ఆరా
+-  Подготовка спасателей и пожарная техника. Синявский о направлениях сотрудничества Беларуси и Кубы
+-  Nekdanje britanske policiste obsodili zaradi rasističnih sporočil o članih kraljeve družine
+-  ថ្ងៃនេះ! ករណីឆ្លងកូវីដ-១៩៖​ មានអ្នកឆ្លងថ្មី​​ ០១នាក់,​ មានអ្នកជាសះស្បើយ​​​​​​​​​​​​​​​ ០១នាក់​ និងគ្មាន​អ្នកជំងឺស្លាប់​
+-  DTD: Ngày 14/12/2023, Thông báo ngày giao dịch đầu tiên cổ phiếu niêm yết bổ sung
