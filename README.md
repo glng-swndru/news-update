@@ -1,11 +1,11 @@
 # Latest News
--  نتنياهو يهاجم اشتيه : السلطة الفلسطينية ليست الحل
--  Beurzen New York positief het weekend in na sterk banenrapport
--  Verenigde Staten verwerpen onmiddellijk bestand in Gazastrook
--  Organisatie: behandelcentra longcovid moeten er komen
--  VIDEO: Pogledajte gol kojim je Juventus srušio Napolu u derbiju kola u Italiji i privremeno preuzeo vrh
--  Son 24 saatte Soroka Hastanesine 40 yaralı asker nakledildi
--  Arab Leaders Urge US to Demand Ceasefire in Israel-Hamas War
--  Nordjapan: Tausende Tonnen Sardinen an Strand angeschwemmt
--  Rusya: Ukrayna'da askeri havaalanının altyapısına yönelik saldırı düzenledik
--  Vučić ubire simpatije Škodom starom 17 godina: Ide koliko hoćeš, bježim od osiguranja
+-  Costa Rica’s Japdeva Scores Tariff Increase: A Financial Lifeline or Just a Drop in the Ocean?
+-  Empresarios pesimistas sobre situación de su empresa por primera vez en más de 3 años
+-  Bo Nix tells prospective players why they should come to Oregon
+-  بالصور.. حفل بمواصفات عالمية لحملة مانحي الأمل بحضور صفاء أبو السعود وحفيدة شارلي شابلن
+-  Calls for Australians to report ransomware attacks
+-  Soccer-Ronaldo marks his 1,200th game in style as Al-Nassr bounce back
+-  تدشين الأستوديو الجديد القار لاذاعة تونس الثقافية.
+-  Soccer-Juventus back on top after clinical win against wasteful Napoli
+-  Tajne svemira (8.12.2023.)
+-  The Titans place punter Ryan Stonehouse on IR with season-ending injury
