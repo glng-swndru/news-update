@@ -1,51 +1,51 @@
 # Latest News
--  Torturing people in custody is not acceptable
--  Njarðvík - Keflavík, staðan er 45:54
--  فيلم حسن المصري.. إيراداته تجاوزت 5 ملايين
--  مباراة النصر والرياض تشهد رقما قياسيا لـ كريستيانو رونالدو
--  مودرن فيوتشر يخوض مرانه الأول في الجزائر لمواجهة اتحاد العاصمة
--  كريستيانو رونالدو لا يتوقف.. ترتيب هدافي الدوري السعودي
--  النصر السعودي يهزم الرياض ويٌضمد جراح الديربي
--  أنشيلوتي يُعلن قائمة ريال مدريد لمباراة ريال بيتيس في الدوري الإسباني
--  كولر: الثقة هي ما يحتاجها لاعبي الأهلي الفترة المقبلة
--  الجمبازالفني يحصد 13 ميدالية فى بطولة الجمهورية
--  أهداف الشوط الأول من مباراة النصر والرياض.. فيديو
--  الزمالك يفوز على هليوبوليس في دوري الطائرة سيدات
--  Volley League γυναικών: Τοπικό ντέρμπι ανάμεσα σε ΠΑΟΚ και Άρη στη Θεσσαλονίκη
--  Bakan Şimşek başkanlığında Finansal İstikrar Komitesi toplandı! Finansal istikrarda emin adımlarla...
--  Ovacionada por los niños, la argentina Inés Garland ganó el máximo premio a la literatura infantil de Italia
--  Misstu toppsætið eftir mikla spennu
--  Master PDF Editor 5.9.81
--  Ψηφίστηκε κατά πλειοψηφία το ν/σ "Αναδιάρθρωση Πολιτικής Προστασίας" - Β. Κικίλιας: "Η Πολιτική Προστασία αναβαθμίζεται"
--  Sex und Luxus, aber keine Steuern: Hunter Biden angeklagt
--  Make Fish Tacos In A Flash With Canned Tuna
--  Gang in ski masks target Keanu Reeves in latest celebrity home burglary
--  Ακόμη ένα γκολ ο Κοσίδης, έφτασε τα πέντε στη σεζόν (vid)
--  Fransk domstol dømmer teenagere for rolle i drab på lærer
--  How Fruit Punch and Fruit Juice Labels Dupe Health-Conscious Shoppers
--  Fransk domstol dømmer teenagere for rolle i drab på lærer
--  Contestação sobe de tom na Luz: Schmidt alvo da fúria dos adeptos
--  News24 | Here are the Daily Lotto numbers
--  Marcela Tauro reveló todas las mujeres famosas con las que salió Nico Occhiato
--  Pokus o záchranu rukojemníkov sa v Pásme Gazy nepodaril, konštatoval Izrael
--  Τουλάχιστον 10 νεκροί και πολλοί τραυματίες σε ισραηλινό βομβαρδισμό στη Χαν Γιούνις, αναφέρουν Παλαιστίνιοι αξιωματούχοι
--  Niedawno grał dla Bayernu. A teraz wbił mu szpilkę
--  أكسيوس عن مسؤول إسرائيلي رفيع: نتوقع أن ننهي عمليتنا في مدينة خانيونس جنوبي قطاع غزة خلال 3 إلى 4 أسابيع
--  USA a Mexiko chcú spoločne usporiadať ženské MS v roku 2027
--  Νίκη βάλσαμο για Απόλλωνα όμως πρέπει να έχει και συνέχεια
--  Gram altın için İslam Memiş'ten çarpıcı tahmin! "Altın altın çağını yaşayacak" deyip rakam verdi
--  В Минске прошел показ спектакля "12" Центра театра и кино Никиты Михалкова
--  Чемпиона UFC в весе Шавката Рахмонова «задушил» известный футболист. Видео
--  Venezolanos son los migrantes con mayor nivel educativo en EEUU, pero no tienen los mejores ingresos
--  La historia de amor entre Taylor Swift y Travis Kelce no es lo que parece
--  Skróty meczów 1/8 finału Fortuna Pucharu Polski. Wpadka Legii, dalej grają Lech, Pogoń czy Raków [WIDEO]
--  Ministro de Seguridad señala que el 70 % de casos de homicidios múltiples han sido resueltos
--  37ème édition des Journées de l’Entreprise de l’IACE : Enjeux pour la résilience des Entreprises face aux chocs Géopolitiques
--  برنامج سياحي للمشاركين في المؤتمر الدولي الـ19 لجراحي الأسنان بالأقصر
--  Ново щастие за Нидал Алгафари! Най-прекрасната новина
--  Finansal İstikrar Komitesi, Mehmet Şimşek başkanlığında toplandı
--  Русия почна нова голяма военна кампания в Украйна
--  Beşiktaş Başkanı Hasan Arat, derbi öncesi oyuncularla görüştü
--  В Дагестане планируют развивать ж/д инфраструктуру на популярных у туристов маршрутах
--  Uddamålsseger för Ockra hemma mot Ore
--  Uddamålsseger för Ockra hemma mot Ore
+-  Burgemeester: volgend jaar schadefonds voor ondernemers Ter Apel
+-  Zes tieners veroordeeld voor hun rol bij onthoofding leraar Paty
+-  Akkoord binnen EU over weren Russisch gas uit pijpleidingen
+-  Na 410 jaar weer een pauselijke gouden roos voor beroemde Maria-icoon, maar niemand weet waarom
+-  Biden demanded wealthy ‘pay their fair share’ — while Hunter ducked taxman
+-  تاحیات نا اہلی کا قانون ختم ہو چکا، ن لیگی رہنما کا دعویٰ
+-  El feriado arrancó con movimiento de público en Las Grutas
+-  Researcher offers increased understanding of corrosion in lime kilns fired with biofuel
+-  Researchers unveil comprehensive collection of rhodamine-based fluorescent dyes
+-  Michael Onwenu led Patriots’ efforts to neutralize Steelers star defender T.J. Watt
+-  Teens convicted for conspiracy to murder French teacher
+-  Μιχάλης Κατσούρης: «Είμαστε απογοητευμένοι», αναφέρει ο αδελφός του για την αποφυλάκιση 30 Κροατών
+-  Ski-Sensation: Hirscher gibt Renn-Comeback
+-  Do you know who's posting photos of your child on social media?
+-  iPhone 16: Rumored AI-powered Siri to bring this new feature
+-  Governments can spy via smartphone push notifications, Apple and Google confirm
+-  The TikTok aesthetics and trends that ruled 2023
+-  Best Lego deal: Select Minecraft Lego sets are up to 36% off at Amazon as of Dec. 7.
+-  iPhone 16: Rumored AI-powered Siri to bring this new feature
+-  Grill inside with this smokeless stovetop for just $18
+-  Best Lego deal: Select Minecraft Lego sets are up to 36% off at Amazon as of Dec. 7.
+-  Peach Fuzz is Pantone's Color of the Year, and Motorola Razr's new hue
+-  The TikTok aesthetics and trends that ruled 2023
+-  Mashable threw down an epic holiday bash this year — and you can watch the recap here.
+-  Peach Fuzz is Pantone's Color of the Year, and Motorola Razr's new hue
+-  Do you know who's posting photos of your child on social media?
+-  Mashable threw down an epic holiday bash this year — and you can watch the recap here.
+-  Grill inside with this smokeless stovetop for just $18
+-  Governments can spy via smartphone push notifications, Apple and Google confirm
+-  NYT's The Mini crossword answers for December 8
+-  The best Gag City posts on X, in honor of Pink Friday 2
+-  'Earth Mama' director Savanah Leaf on the realities of the foster care system
+-  NYT's The Mini crossword answers for December 8
+-  Turn your TV into an art gallery for $39.99
+-  'Earth Mama' director Savanah Leaf on the realities of the foster care system
+-  Netflix's 'Leave the World Behind' takes a swipe at Tesla
+-  Turn your TV into an art gallery for $39.99
+-  Wisconsin vs. U of A basketball livestreams: Game time, streaming deals, and more
+-  Best cloud storage deal: 80% off Koofr
+-  Netflix's 'Leave the World Behind' takes a swipe at Tesla
+-  KU vs. Mizzou basketball livestreams: Game time, streaming deals, and more
+-  Wisconsin vs. U of A basketball livestreams: Game time, streaming deals, and more
+-  Is 'Killers of the Flower Moon' streaming? Here's how to watch the Scorsese film online.
+-  Best cloud storage deal: 80% off Koofr
+-  How to watch the Navy vs. Army football without cable: kickoff time, streaming deals, and more
+-  KU vs. Mizzou basketball livestreams: Game time, streaming deals, and more
+-  Is 'Killers of the Flower Moon' streaming? Here's how to watch the Scorsese film online.
+-  These rad holiday gifts are really having a moment
+-  How to watch the Navy vs. Army football without cable: kickoff time, streaming deals, and more
+-  Sex workers are cloning themselves with AI to make sexy chatbots
