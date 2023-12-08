@@ -1,51 +1,51 @@
 # Latest News
--  Nichelino: vandalizzata ancora una volta la targa di Valentino Mazzola
--  У СПБ Биржи появится новый устав
--  Kankan : les acteurs des médias tiennent une rencontre d’échange et de mise au point
--  Seçil Erzan'ın yazışmaları ortaya çıktı
--  Власти Молдовы заблокировали искажающие информацию медиа
--  Óriási rendőrségi razzia indul: fókuszban az ittas vezetők
--  Conspiracy theorist Huig Plug sentenced to 9 months in jail for stalking and defamation
--  Hekmatyar claims US sent list to IEA to form inclusive government
--  На вооружение ЦВО поступили радиостанции стратегического управления
--  Mungesë meritokracie dhe paga të ulëta, tregu i punës ‘dekurajon’ të rinjtë në vend
--  Cosmetic surgeon reveals four easy tips for losing weight over the holidays - WITHOUT following a special diet or fitness routine
--  Вайлдер розповів, коли завершить кар'єру
--  Temblor HOY en México: Últimas noticias de la actividad sísmica AL MOMENTO | 8 de diciembre
--  FT: чеченское руководство Danone в России ведёт бизнес профессионально
--  Erdogan: O ratifikaciji švedskog članstva u NATO-u odlučit će turski parlament
--  FAO kasım ayı verilerini paylaştı: Küresel gıda fiyatları değişmedi
--  В Костроме подвели итоги Года педагога и наставника
--  Русковска: Истрагата треба допрва да утврди која е вистинската позадина на случајот со Вања и Панче
--  Francuska lobira da Mario Draghi bude novi čelnik Evropske komisije
--  Житель Великих Лук ушел за сигаретами и пропал
--  Яндекс Такси потратит более 4 млрд рублей на привлечение водителей в декабре
--  The NBA In-Season Tournament Is Giving Us a Dream Finale
--  ‘Grim’ and bizarre scenes as Willie Mullins’ horse wins by 100 lengths after rival stops to a walk
--  Деменко: поражение в матче с «Крыльями» нанесёт психологический удар по «Спартаку»
--  Uposlenici u Kantonu Sarajevo imaju 300 KM prosječno veću platu od ostatka države
--  Centre offers more wheat from FCI in open market, screws on stockists tightened
--  Experts advise SMEs
--  Полицейские установили личности водителей, погибших в Комсомольском районе
--  La insoportable y peligrosa contaminación sónica
--  Why is #elon #musk’s Grok chatbot so unfunny?
--  Módosul a bírósági ügyvitel
--  Tuomiot | Kartonkitehtaan ex-johdolle ehdolliset vankeustuomiot – Kuopion kaupungilla yhä miljoonien saatavat Premium Boardin jäljiltä
--  DNO DNA Evo kako je opozicija vodila izbornu kampanju (VIDEO)
--  Venezuela ile Guyana gerilimine ABD tatbikatla dahil oldu
--  김천 일반산단에 튜닝안전기술원 준공
--  Agjenda e reformës territoriale, Mazniku: Bashkitë kanë nevojë për mbështetje, synojmë të jenë agjentë të zhvillimit ekonomik
--  Trapas v Downing Street 10. Premiéry Británie a Nizozemska nechtěli pustit dovnitř
--  ВККС объявила конкурс на должность председателя Ростовского облсуда
--  Dólar paralelo se mantiene en alza este 8Dic: Así se cotizó
--  Sachsen spricht sich für die Aufnahme von EU-Beitrittsverhandlungen mit der Ukraine aus
--  UPSC Mains Result 2023: யு.பி.எஸ்.சி. மெயின் தேர்வு முடிவுகள் வெளியீடு
--  Yuri Meirelles é eliminado e dá adeus ao prêmio de R$ 1,5 milhão de ‘A Fazenda’
--  تقرير امريكي يرصد انتشاراً متزايداً لبكتيريا "خطيرة" في أوكرانياً: مواطنوها يحملونها الى أوروبا
--  Horóscopo semanal: previsão dos signos de 11 a 17 de dezembro de 2023
--  Thousands of tons of dead sardines wash ashore in northern Japan
--  Thousands of tons of dead sardines wash ashore in northern Japan
--  Could Tyreek Hill become the first EVER wideout to win MVP? Explosive Dolphins star is on course to set the receiving yards record - and another Super Bowl is in reach - but 49ers QB Brock Purdy currently leads the way
--  Britney Spears will NEVER reconcile with her father Jamie 'dead or alive' - even in the wake of his leg amputation... after he hurt her 'in ways that are not even imaginable'
--  عبدالجليل: تفعيل أقسام الطوارئ 24 ساعة يخفف العبء على المستشفيات
--  Λίγοι μπορούν να συγκριθούν μαζί του
+-  Prima della Scala, Marco Vizzardelli: “Urlerei di nuovo ‘viva l’Italia antifascista’, è lapalissiano. Inquietante che io sia stato identificato”
+-  Zvezda poziva na Mladost: Ko dođe može da osvoji auto
+-  Waterschap in de winter
+-  에버턴 벤치 신세인데 토트넘이 원한다…‘감독이 찾던 유형의 센터백’
+-  Dad brought back to life after heart attack during charity football match at Falkirk Stadium
+-  Kim są współcześni architekci-aktywiści? „Ryzyko jest wysokie. Popełniamy błędy”
+-  প্রতিমন্ত্রীর আয় কমলেও সম্পদ বেড়েছে আড়াই গুণ
+-  Choco Bloom ΑΛΛΑΤΙΝΗ: Ίδια απόλαυση, νέα συσκευασία
+-  Fransk kærlighed blev til had. Nu betaler Margrethe Vestager prisen
+-  Fransk kærlighed blev til had. Nu betaler Margrethe Vestager prisen
+-  אברג'יל ימשיך לפתוח בחוד אשדוד, טישיירה יהיה בסגל הפועל פ"ת
+-  שומרון גברה על גלבוע/גליל בהארכה, ניצחון דרמטי לנתניה על נהריה
+-  אברהם מונדר מציין יום הולדת בשבי, בתו ששוחררה: "הלב נצבט שהוא לא איתנו"
+-  Orbanova odlučna poruka: Podrška Srbiji ako EU uključi Ohridski sporazum u poglavlja
+-  Revolutionizing Beauty and Wellness: Anastasiia Hortman’s Journey with Hortman Clinics
+-  Construções dos quatro novos Hospitais Regionais avançaram em 2023; veja status das obras
+-  Comissão aprova projeto que reforça proibição da tese de legítima defesa da honra em crimes de feminicídio
+-  El papa vuelve a asomarse a la ventana del Vaticano tras su bronquitis y pide la paz
+-  Autista fiúval üvöltözött a szolnoki buszsofőr egy becsomagolt szendvics miatt
+-  Синджента е основен избор на зеленчукопроизводителите, защото се доказа като надежден партньор
+-  الوحدة العامة لحماية الطفل بالشرقية تنظم ندوات توعوية بخطورة الختان
+-  Playful Wife Hilariously Asserts Dominance in Wardrobe Choices Over Husband
+-  Koštao ga neuspeh u kvalifikacijama za EP: Crna Gora bez selektora
+-  Gaz Dolum Tesisindeki Patlamada Tutuklanan Baba Ve Oğlu Serbest
+-  Callejón sobre Gustavo Sofovich y Marcela Tinayre: "Debe haber pasado algo muy grave"
+-  Nicolae Ciucă: este nevoie să ne protejăm Constituţia împotriva mişcărilor politice care îi subminează valorile
+-  Konyaspor Teknik Direktörü Hakan Keleş: Biz elimizden geleni yapmaya çalışıyoruz
+-  Selçuk Üniversitesi ‘Yaşam Kapsülü’ projesiyle birincilik ödülü aldı
+-  Konya'da Şebiarus törenleri devam ediyor
+-  Appeals court deems competition commissioner’s appointment legal
+-  Derthona, l’angolo di coach Rabbolini
+-  New HIV and STI screening mobile service launches in Leinster
+-  Bitcoin su Bloomberg | “Merita presenza in portafoglio”
+-  Bay Area News Group girls athlete of the week: Nat Javier, Christopher basketball
+-  उत्तराखंड ग्लोबल इंवेस्टर्स समिट में बोले पीएम मोदी- ‘मेक इन इंडिया’ की तरह ‘वेड इन इंडिया’ मूवमेंट चलना चाहिए
+-  Curator: meerdere partijen interesse in bedrijf achter Perry Sport
+-  Achterhoekse kampeerders moeten plaatsmaken voor 'digital nomads'
+-  Heel Scandinavië keert zich nu tegen Tesla om Zweeds cao-conflict
+-  'Tijdens de formatie komt het stikstofprobleem levensgroot terug'
+-  Kako je opozicija vodila kampanju: Bez plana i programa, samo da se sruši Vučić VIDEO
+-  Hãy tránh xa 3 loại thực phẩm "cướp canxi" này, ăn càng nhiều xương càng giòn, dễ gãy
+-  Booty Patrol Truck Driver Arrested By Actual Police
+-  Mercato : L’OL passe à la vitesse supérieure pour son entraîneur
+-  Drought in Spain: Fruit and vegetable stocks in areas like the Costa Blanca plummet by up to 25% after months of virtually no rainfall
+-  Dit Limburgse bedrijf maakt achtbanen: 'Vroeger lag de focus vooral op G-krachten, nu meer op de beleving'
+-  Porasla nezaposlenost
+-  A9 closed in both directions near Pitlochry due to vehicle fire
+-  Διμερής συνεκπαίδευση Ελλάδας και Η.Π.Α. στο πλαίσιο της στρατιωτικής συνεργασίας
+-  Шавкат Рахмонов объяснил любовь казахов к лошадям и конине
+-  Meteoroloji'den kuvvetli yağış uyarısı
