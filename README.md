@@ -1,11 +1,11 @@
 # Latest News
--  Denuncian vecinos de La Popular escombro y basura en las calles
--  Repunta 20% venta de autos nuevos aquí
--  Piden a comisionados dejar de repartirse el INAI
--  Calvarese: «Mano Di Lorenzo? Tocco involontario, non punibile» – FOTO
--  샤넬 오픈런은 저리가라…새벽부터 ‘애플 하남’ 달려 가야하는 이유
--  Ljuba Bergamelli to Honor Cathy Berberian in Recital at Nuova Consonanza Festival
--  Cayo ladrón de minisúper de Vista Alegre
--  Gisele Bundchen and Tom Brady have "navigated their co-parenting relationship really well"
--  Alfons skipt af velli eftir hálftíma - Elías Már snéri aftur á völlinn í sigri
--  Hoffenheim - Bochum: Eiskalte TSG beendet VfL-Serie
+-  نتنياهو يهاجم اشتيه : السلطة الفلسطينية ليست الحل
+-  Beurzen New York positief het weekend in na sterk banenrapport
+-  Verenigde Staten verwerpen onmiddellijk bestand in Gazastrook
+-  Organisatie: behandelcentra longcovid moeten er komen
+-  VIDEO: Pogledajte gol kojim je Juventus srušio Napolu u derbiju kola u Italiji i privremeno preuzeo vrh
+-  Son 24 saatte Soroka Hastanesine 40 yaralı asker nakledildi
+-  Arab Leaders Urge US to Demand Ceasefire in Israel-Hamas War
+-  Nordjapan: Tausende Tonnen Sardinen an Strand angeschwemmt
+-  Rusya: Ukrayna'da askeri havaalanının altyapısına yönelik saldırı düzenledik
+-  Vučić ubire simpatije Škodom starom 17 godina: Ide koliko hoćeš, bježim od osiguranja
