@@ -1,51 +1,51 @@
 # Latest News
--  Vaste kracht kondigt vertrek aan bij SDV Barneveld
--  Dolardan yeni rekor!
--  Bakan Yerlikaya duyurdu: Yılbaşı öncesi baskın!
--  Ahmet Hakan yazdı: Yeteneksiz bayan Seçil Erzan!
--  Borsa güne yükselişle başladı
--  Beyaz Saray'dan İran'a suçlama
--  WhatsApp'a yeni özellik daha!
--  Antalyaspor, Fatih Karagümrük'ü konuk edecek
--  Metro İstanbul duyurdu: Seferlerde aksaklıklar yaşanıyor
--  NRB unveils first quarterly review of monetary policy
--  ULOVILI ČUDOVIŠTE: Njih petorica sjedili na njemu, jedva ga savladali!
--  Selena Gomez teases diamond engagement ring after confirming Benny Blanco romance
--  Son Heung-Min blasts ‘soft’ Tottenham after defeat to West Ham United
--  Нови обвиненија против синот на Бајден
--  Sjajni bh. karatista babi za rođendan poklonio putovanje na umru: Ne uzimajte roditelje zdravo za gotovo
--  סוכל ניסיון חדירה לישראל: מחבלי חיזבאללה זוהו מתקרבים לגבול - וחוסלו
--  "אין בשום מקום בעולם חוק שמסדיר שאיבת זרע מהרוג"
--  Russian crime ‘lord’ declared persona non grata in north
--  مروحية صهيونية تقتل جنديا محتلا
--  5 شهداء برصاص الاحتلال في مخيم الفارعة
--  Hundreds of people gather on Dam Square in Amsterdam for national Hanukkah celebration
--  Comisión integró ternas para elegir relatores
--  "Un nadó un arbre": l'hospital d'Olot ja ha arribat als 400
--  ‘Maa Durga Aa Gayi Hai’, A Confident Mahua Moitra Strodes Into Parliament Amid ‘Expulsion’ Clouds
--  "Русские витязи" сообщили новые подробности о сопровождении борта президента РФ
--  Tarihi Kentler Birliğinden Konak’a iki ödül birden
--  Gobierno presenta resultados en materia de transparencia
--  Ukraine says Kharkiv hit by several Russian missiles
--  Diez normas para el correcto uso de las patinetas
--  '변호사비 대납' 이병노 전남 담양군수, 1심서 당선무효형 선고
--  قرعة كوبا أمريكا 2023.. مواجهات من العيار الثقيل
--  Деян Кирилов: Напрежението е при съперника
--  छ महीनामा प्राधिकरणले बेच्यो रु १५ अर्ब २४ करोडको बिजुली
--  "Je continue à défendre la cause des femmes" : accusé de violences conjugales, Stéphane Plaza dit avoir "la conscience tranquille"
--  CHP Genel Başkanı Özgür Özel, Kılıçdaroğlu'nu ziyaret edecek
--  Libros amigos (I)
--  Ντορέττα Παπαδημητρίου: Είναι απότομη η αλλαγή όταν τα παιδιά μεγαλώνουν και φεύγουν από το σπίτι
--  Ranking the trees: van karig aangeklede takken tot de hysterische boom van Richard Groenendijk
--  Publicis Groupe: La creatividad está en el centro de todo proceso
--  EUREX/Bund-Future leicht im Minus
--  EUREX/Bund-Future leicht im Minus
--  Házenkářky potřebují zázrak. První překážkou na trnité cestě do čtvrtfinále je Španělsko
--  Να μπει ένα ΤΕΛΟΣ στον κατήφορο/Ενισχυμένο το πλάνο Τσολάκη-Σκέμπρι
--  ‘Why can’t I sleep?’ 7 common reasons from an ex-insomniac and sleep coach
--  JSW Steel foreign subsidiary to raise $145 mn from long-term bonds; stock rises
--  Revanth Reddy: కేసీఆర్ ఆరోగ్యంపై సీఎం రేవంత్ రెడ్డి ఆరా
--  Подготовка спасателей и пожарная техника. Синявский о направлениях сотрудничества Беларуси и Кубы
--  Nekdanje britanske policiste obsodili zaradi rasističnih sporočil o članih kraljeve družine
--  ថ្ងៃនេះ! ករណីឆ្លងកូវីដ-១៩៖​ មានអ្នកឆ្លងថ្មី​​ ០១នាក់,​ មានអ្នកជាសះស្បើយ​​​​​​​​​​​​​​​ ០១នាក់​ និងគ្មាន​អ្នកជំងឺស្លាប់​
--  DTD: Ngày 14/12/2023, Thông báo ngày giao dịch đầu tiên cổ phiếu niêm yết bổ sung
+-  브릭메이트, 자체 개발 게임 美 성과
+-  파주시, 위기이웃 발굴지원 평가 ‘장려상’ 수상
+-  담철곤 오리온그룹 회장, 사위에게 오리온 주식 1만4000주 증여
+-  의정부시 경기의정부지역자활센터 카페사업단, 식약처 위생등급평가 최고등급
+-  NH투자증권 "크래프톤, 내년 하반기 본격 모멘텀…목표가 14% 상향"
+-  신안군 스마트빌리지 챔피언에 오르다
+-  평택시, 12월 자동차세 2기분 194억 원 부과 고지
+-  Tetangga Kontrakan Maut Jagakarsa: P Marah Jika Anak-anaknya Diberi Makan oleh Orang Lain
+-  Här är fredagens aktierekar
+-  Tokayev Ermənistana səfər edəcək
+-  Defensieminister VS dringt bij Israël aan op hulp voor Gaza
+-  Berburu Sembako di Pasar Murah Kota Bandung
+-  Seychelles declara el estado de emergencia por inundaciones y una explosión en una fábrica
+-  Neçə ağır yaralı qazimizin müalicəsi davam edir?
+-  التصعيد الاقليمي يغذي الصراع السياسي الداخلي في العراق
+-  Putin behauptet - Bündnis mit dem Iran wendet das Blatt im Krieg
+-  Puca na sve strane: Evropa sad i Demokrate u klinču oko bezbjednosnog sektora!
+-  Dishub Pastikan tidak Ada Ganjil-Genap di Jakarta Saat Libur Nataru
+-  İlham Əliyev Avropa Şurasının Baş katibini qəbul etdi
+-  Lady Vendor Sells Bot-ong to Fund Children’s Education
+-  '우상을 파괴하라' 고전회화의 재해석
+-  거장 지휘자 명성 뒤에 … 결점 많은 한 인간이 있었다
+-  [MBN] 개그맨 5인방의 마지막 호주
+-  [MBN] 이혼 전문 변호사들의 가방 속
+-  "나는 누구인가, 답하기 위해 글을 썼죠"
+-  김경희 민화작가, 개인전 ‘어랑어랑 오봉아리랑’ 연다
+-  លោក អ៊ូ តារា៖“អ្នកលេងគុន”ជាព្រឹត្តិការណ៍មួយធ្វើឡើងដើម្បីផ្សព្វផ្សាយ និងការយល់ដឹងកាន់តែច្បាស់អំពីគុនល្បុក្កតោ
+-  عن "حزب الله".. ماذا قالت وزيرة إسرائيليّة؟
+-  Legendarna "Otimačica" sve je zaprepastila izgledom lica: Više ne sliči na sebe, a pamtimo je kao jednu od najljepših zvijezda sapunica!
+-  [알립니다] 머니쇼는 계속된다…11일부터 다시보기 서비스
+-  분양가 싼데 年2%대 대출지원까지 … 수방사 청약 열기 이을 '산타의 선물'
+-  Kariņa privātie lidojumi starptautiskā līmenī nav skandāls, norāda politoloģe
+-  ‘입시 비리’ 조민 첫 공판 출석…“성실히 재판 임하겠다”
+-  واشنطن ترجّح خسارة كييف للنزاع مع روسيا في حال انقطاع المساعدات الأمريكية
+-  Kuyumculardan ’kesme altın’ uyarısı!
+-  تتصدّرها مباراة النّجم السّاحلي و الهلال السوداني…برنامج أبرز مواجهات اليوم الجمعة و النّقل التلفزي
+-  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
+-  Земетресение с магнитуд 5,8 край бреговете на Соломоновите острови
+-  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
+-  “Burada şübhəli məqam axtarmaq düşmənçilikdir”
+-  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
+-  Kaptenens dom efter tränarbytet: ”Bra för gruppen”
+-  Daftar Beasiswa LPDP 2024, Pahami Masa Pengabdian dan Sanksi Bagi yang Melanggar
+-  Edese baptistengemeente organiseert TOP 2000 dienst met liveband
+-  Life | A traumatic event can change the course of a child’s life, but there are ways parents can protect them
+-  Global RTLS in Healthcare Market is projected to reach the value of USD 8.11 Billion by 2030
+-  Završen festival mladih recitatora u Nikšiću: Asiјa Ećo neprikosnovena po svim kriteriјumima
+-  পতাকাবিহীন ব্যক্তিগত গাড়িতে কোটালিপাড়ায় শেখ হাসিনা
+-  Медведев заявил о реальной угрозе прямого столкновения России и НАТО
+-  Jokowi Tegaskan Presiden dan Wapres Dipilih Rakyat, Saiful Mujani Bilang Gibran Dicalonkan Elite
