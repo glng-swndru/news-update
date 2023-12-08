@@ -1,51 +1,11 @@
 # Latest News
--  Raad gaat zelf voorstel maken voor giften na een calamiteit
--  6 koraka za održavanje smislenih i produktivnih sastanaka
--  El HispaNICE exige transparencia con metodología más allá de ministerios
--  오타니, 토론토행 비행기 탑승하나… 美 기자, 오타니 캐나다행 암시
--  AWZ-Vorschau: So geht es ab Montag, 11.12.2023 weiter
--  „Berlin – Tag & Nacht“-Vorschau: So geht es ab Montag, 11.12.2023 weiter
--  ¡Ten cuidado! Sigue estas recomendaciones del IMSS en el uso y manejo de calentones
--  İkinci 'Laz kızı' vakası: Sosyal medyadan müstehcen paylaşıma gözaltı
--  WhatsApp, kendini imha eden sesli mesajları "resmi olarak" kullanıma sundu
--  বগুড়ায় গরুর মেলা
--  Karlson: SAD su krive za smrt jedne generacije Ukrajinaca
--  A Fun Spider-Man: Into The Spider-Verse Theory Just Got Shot Down By Phil Lord And Chris Miller: ‘That One Is A Happy Accident’
--  Koncert povodom 90 godina od rođenja kompozitora Vojina Komadine: Zahtjevnost koja osvaja
--  తనకల్లును కరువు మండలంగా ప్రకటించాలి
--  Meghan Markle und Prinz Harry: Ist DIESER Royal ihre letzte Brücke zurück nach London?
--  CELA DVORANA ZANEMELA:PALA PROSIDBA NA KONCERTU ŽELJKA VASIĆA! Nećete verovati šta je budući mladoženja uradio
--  Customer sparks FIERCE debate after questioning whether it's 'wrong' not to TIP when you get takeout... so, what do YOU think?
--  Okan Buruk'tan 4 değişiklik
--  CDC warns of more infectious mpox strain
--  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
--  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
--  Kommentar zur IOC-Entscheidung pro Russland: Das kann die Ukraine nicht akzeptieren
--  Küçük Tunahan'a köpek saldırısının boyutu: Vücudunda parçalanmayan yer yok
--  ధరణి ఉద్యోగుల చేతివాటంపై ఎక్కడి వారు అక్కడే..
--  Unlikely Underdogs: Pacers vs. LeBron’s Lakers in NBA Season Tournament Championship
--  Ryan Gosling kindly helps a fan to her feet as a barrier falls over outside In Conversation about Barbie Q&A event at BFI Southbank
--  Delhi Cabinet Shuffle: AAP Minister Kailash Gahlot Loses Law Portfolio to Atishi Day After Lt Guv Recalls Files
--  Natation (championnat d’Europe en petit bassin): "Un pas énorme l'année des Jeux", Gastaldello en or sur 100m
--  Innert gut einer Woche zehn Wölfe im Wallis abgeschossen
--  AI-powered 'Nudify' apps that digitally undress fully-clothed teenage girls are soaring in popularity
--  Forum Editorial: Doug Burgum faced long odds in his presidential race, but ran for the right reasons
--  చట్టాలపై అవగాహన పెంచుకోవాలి
--  Liveticker: Ukraine-Krieg aktuell – alle News (Freitag, 08.12.2023)
--  Liebschaft unter Richtern: Kieler Anwalt wirft Kammer in Itzehoe Befangenheit vor
--  La Reale Mutua Fenera Chieri ’76 torna a Firenze per la sfida col Bisonte
--  La 3a di ritorno si apre con Cremona-Olbia
--  Think He Has Started to Run on The Pitch: Pep Guardiola Gives Kevin De Bruyne's Injury Update
--  Sikandar Raza nears Virat Kohli T20I record
--  Man Tells Wife to Stop ‘Using Him Like an ATM’ After She Demands Half His Gambling Winnings
--  House Democrats push White House on easing free contraceptive access
--  Unerwartetes Wendemanöver: Airbus A330 meldet Luftnotlage über der Nordsee – Flug auf 10.000 Metern Höhe abgebrochen
--  Call Of Duty developers take offence at Kratos’ The Game Awards joke
--  The Sacrifice Game and The Holdovers are 2023’s best Christmas double feature
--  SD-toppar attackerades på nattklubb i Göteborg
--  Yeni Şafak'ın sevilen serisi Hafıza'nın yeni sezondaki yedinci bölümü yayında: Tapınakçılar Hollywood'u nasıl ele geçirdi?
--  Muslera cezalı duruma düştü: Sivasspor maçında oynayamayacak
--  Galatasaray'da yıldızlar neden kadroya alınmadı?
--  Holiday photo hunt: How fast can you find Santa's missing red hat?
--  So steht Holstein Kiel zum geplanten Investoren-Einstieg bei der DFL
--  Das SEZ: Jetzt droht dem nächsten DDR-Palast der Abriss
+-  Supermicro, AMD Instinct MI300 시리즈 가속기 지원으로 AI 및 GPU 랙 규모 솔루션 확장
+-  Kickoff | Tau's Al Ahly drop points for second CAFCL clash
+-  PISA & Besinnlichkeit: Weihnachtliches Gemäkel
+-  Regresan el tiempo a 1659 y representan la fundación de Ciudad Juárez
+-  Convive Alcalde de Cuauhtémoc con Guardias Escolares
+-  ¿Golpeador de mujeres? Acusan al cantante Alemán de violentar a su novia tras exhibir pruebas en redes
+-  ميتروفيتش يقترب من رونالدو..الهلال يعزز صدارته للدوري السعودي
+-  Пет лица повредени во сообраќајка на патот Штип-Радовиш
+-  Oldest Fortress in the World Discovered by Archaeologists
+-  Apple seeds tvOS 17.2 RC 2 ahead of the official release
