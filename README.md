@@ -1,51 +1,11 @@
 # Latest News
--  Burgemeester: volgend jaar schadefonds voor ondernemers Ter Apel
--  Zes tieners veroordeeld voor hun rol bij onthoofding leraar Paty
--  Akkoord binnen EU over weren Russisch gas uit pijpleidingen
--  Na 410 jaar weer een pauselijke gouden roos voor beroemde Maria-icoon, maar niemand weet waarom
--  Biden demanded wealthy ‘pay their fair share’ — while Hunter ducked taxman
--  تاحیات نا اہلی کا قانون ختم ہو چکا، ن لیگی رہنما کا دعویٰ
--  El feriado arrancó con movimiento de público en Las Grutas
--  Researcher offers increased understanding of corrosion in lime kilns fired with biofuel
--  Researchers unveil comprehensive collection of rhodamine-based fluorescent dyes
--  Michael Onwenu led Patriots’ efforts to neutralize Steelers star defender T.J. Watt
--  Teens convicted for conspiracy to murder French teacher
--  Μιχάλης Κατσούρης: «Είμαστε απογοητευμένοι», αναφέρει ο αδελφός του για την αποφυλάκιση 30 Κροατών
--  Ski-Sensation: Hirscher gibt Renn-Comeback
--  Do you know who's posting photos of your child on social media?
--  iPhone 16: Rumored AI-powered Siri to bring this new feature
--  Governments can spy via smartphone push notifications, Apple and Google confirm
--  The TikTok aesthetics and trends that ruled 2023
--  Best Lego deal: Select Minecraft Lego sets are up to 36% off at Amazon as of Dec. 7.
--  iPhone 16: Rumored AI-powered Siri to bring this new feature
--  Grill inside with this smokeless stovetop for just $18
--  Best Lego deal: Select Minecraft Lego sets are up to 36% off at Amazon as of Dec. 7.
--  Peach Fuzz is Pantone's Color of the Year, and Motorola Razr's new hue
--  The TikTok aesthetics and trends that ruled 2023
--  Mashable threw down an epic holiday bash this year — and you can watch the recap here.
--  Peach Fuzz is Pantone's Color of the Year, and Motorola Razr's new hue
--  Do you know who's posting photos of your child on social media?
--  Mashable threw down an epic holiday bash this year — and you can watch the recap here.
--  Grill inside with this smokeless stovetop for just $18
--  Governments can spy via smartphone push notifications, Apple and Google confirm
--  NYT's The Mini crossword answers for December 8
--  The best Gag City posts on X, in honor of Pink Friday 2
--  'Earth Mama' director Savanah Leaf on the realities of the foster care system
--  NYT's The Mini crossword answers for December 8
--  Turn your TV into an art gallery for $39.99
--  'Earth Mama' director Savanah Leaf on the realities of the foster care system
--  Netflix's 'Leave the World Behind' takes a swipe at Tesla
--  Turn your TV into an art gallery for $39.99
--  Wisconsin vs. U of A basketball livestreams: Game time, streaming deals, and more
--  Best cloud storage deal: 80% off Koofr
--  Netflix's 'Leave the World Behind' takes a swipe at Tesla
--  KU vs. Mizzou basketball livestreams: Game time, streaming deals, and more
--  Wisconsin vs. U of A basketball livestreams: Game time, streaming deals, and more
--  Is 'Killers of the Flower Moon' streaming? Here's how to watch the Scorsese film online.
--  Best cloud storage deal: 80% off Koofr
--  How to watch the Navy vs. Army football without cable: kickoff time, streaming deals, and more
--  KU vs. Mizzou basketball livestreams: Game time, streaming deals, and more
--  Is 'Killers of the Flower Moon' streaming? Here's how to watch the Scorsese film online.
--  These rad holiday gifts are really having a moment
--  How to watch the Navy vs. Army football without cable: kickoff time, streaming deals, and more
--  Sex workers are cloning themselves with AI to make sexy chatbots
+-  Senior National Squash finals on Sunday
+-  Chandigarh News: नशे के खिलाफ अलख जगाने 90 किलाेमीटर की पैदल यात्रा करेंगे लेखक खुशवंत सिंह
+-  El Cisneros quiere ingresar más puntos a costa de un Manacor que se juega la Copa
+-  ÍBV - Stjarnan, staðan er 28:19
+-  Consulta pública de La Ley Orgánica para la defensa del Esequibo en Monagas
+-  Chandigarh News: रिश्वत मामले में गिरफ्तार सब इंस्पेक्टर हुसैन अख्तर ने दायर की जमानत याचिका
+-  Acidente na estrada Mury-Lumiar deixa uma pessoa ferida
+-  Njarðvík - Keflavík, staðan er 58:81
+-  ŠTO JE JOKIĆ U NBA, TO JE STOJAČIĆ U BASKETU 3x3: Srbin dobio MVP nagradu za 2023. godinu
+-  Chandigarh News: भारतीय रेलवे की शिकायत पर 15 साल पुराने मामले में केस दर्ज
