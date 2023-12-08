@@ -1,11 +1,51 @@
 # Latest News
--  The IOC confirms Russian athletes can compete at Paris Olympics with approved neutral status
--  The UN secretary-general invoked &#039;Article 99&#039; to push for a Gaza cease-fire. What exactly is it?
--  KITHのホリデーコレクション『Kithmas 2023™』
--  Pipeline explosion causes sinkhole, disrupts Santiago de los Caballeros
--  12 Celebrities Who Were Also Serious Race Car Drivers
--  Лідерка французьких ультраправих Ле Пен постане перед судом
--  Coffee shop at Serangoon Central to sell for S$40.5M
--  Spotify CEO blames layoffs on fake work, pushes out CFO who just cashed in $9.4M in stock
--  기안84, 충격의 누런 안마의자 "엉덩이 종기 터져"…전현무 "X 싼 게 나아" [나혼산](MD리뷰)
--  فرنسا تجمد مساعداتها للبنان لفرض حل لـ«أزمة الفراغ» في الجيش
+-  Izbornik hrvatskih rukometašica uoči Kameruna: “Bez podcjenjivanja, ali želimo odmoriti neke od ključnih igračica”
+-  قافلة "فلسطين قضيتنا" الطبية تنطلق من ميدان الشهداء بطرابلس إلى غزة
+-  Валентина Димитрова с добро представяне на спринта в Хохфилцен
+-  Vacuna Moderna vs. COVID: ¿A partir de cuándo y dónde podrás comprar la dosis en México?
+-  ترتيبات ما بعد العدوان؟!
+-  ইউনেসকোর সাংস্কৃতিক ঐতিহ্যের স্বীকৃতি পেল ইফতার
+-  Асен Василев от Брюксел: До февруари ще получим 700 милиона евро по ПВУ
+-  القوات المسلحة السودانية: نحن جيش عريق لا يمكن أن يرتكب جرائم الحرب كالمليشيا المتمردة الإرهابية
+-  PREPUNA HALA U VRANjU: Predizborni skup liste "Aleksandar Vučić - Srbija ne sme da stane" (FOTO/VIDEO)
+-  Detienen a la madre ebria del bebé encerrado en un coche aparcado en Córdoba
+-  ذي نيشين: لماذا يركز الإعلام الأمريكي على تدمير حماس ويتجاهل عدوان "إسرائيل"؟
+-  Canadiens honour Caroline Ouellete's Hall of Fame hockey career
+-  55 yaşlı kişi özünü asdı
+-  "الأونروا": 273 استشهدوا داخل مراكز الإيواء في غزة منذ بدء العدوان
+-  Libros que Importan viaja a las tres capitales aragonesas
+-  „All eure Gesichter“ im Kino: Versöhnung ist nur eine Option - Filmkritik
+-  Beliebter TV-Sender soll zurückkehren – mit Unterstützung von Dazn und ServusTV
+-  জলাশয় ভরাট করে টিস্যু কালচার ল্যাব নির্মাণ বন্ধে প্রধানমন্ত্রীর হস্তক্ষেপ কামনা
+-  Stocking stuffers for kids that aren’t candy
+-  News24 Business | Hundreds held at Joburg mine, while Wesizwe workers continue underground protest
+-  Cancillería: peruana que se encontraba en Gaza logró evacuar a Egipto junto a su familia
+-  News24 | Around 60 injured as bus goes off Long Tom Pass in Mpumalanga
+-  U JAGODINI NAPADNUTI AKTIVISTI SNS: "Nije nam prvi put da nam se dešavaju ovakve stvari"
+-  ТАЛАТ ЏАФЕРИ ЌЕ БИДЕ ТЕХНИЧКИ ПРЕМИЕР
+-  Пожар в кафе в Нижнем Новгороде локализовали
+-  Jury finds Frank Cao guilty in death of Nuns' Island woman
+-  João Pedro Sousa garante que Famalicão é "melhor equipa que há um mês"
+-  מכבי ראשל"צ נעצרה אחרי שישה ניצחונות, רמת השרון עלתה לפסגה
+-  Kitten stolen from Waterloo pet store has been safely recovered
+-  'They threatened to break my neck’ – Farmers living in fear of trespassers
+-  Panne de la ligne B du métro à Rennes : un préavis de grève a été déposé
+-  Hoe De Langstraat de Duitse toerist weet te lokken: ‘We zien een enorme groei’
+-  Adorable turtle bed where you sleep in the shell is TikTok’s latest obsession
+-  SEIU Local 2: Sobeys’ refusal to offer fair wages could mean a national boycott and significant lost revenue at Lawtons Drugs
+-  Nueva avenida Coronel Rafael Fernández Domínguez impregnará mayor desarrollo económico y social a SDE
+-  Uskoro otvorenje školskog igrališta škole „Stjepan Sarkotić“ u Sincu
+-  Оранжевый уровень опасности из-за мороза в Москве продлили
+-  Say No To Mutoriro
+-  Man freaked out after being told his fiancé's family tradition for their wedding night
+-  VIDEO. Noël au Mans pour les plus démunis et les sans-abri : « ça me sort de mon isolement »
+-  GLASOM SVETU PRENOSIO ZVUKE SVOJE ZEMLjE I RODNOG KRAJA: Crna Gora posthumno odlikuje pevača Zorana Kalezića
+-  Путин поручил увеличить объемы финансирования для инновационных продуктов
+-  Anger Over Why Owner Dumped Dog at Shelter to Be Euthanized: 'Good Grief'
+-  – Jeg vet hva jeg skal gjøre som pensjonist
+-  Julián Calero: "No vamos a ir con el rabo entre las piernas"
+-  Destinan 30 mdp al fondo para la sequía
+-  Ivanović: Proces evropskih integracija Crne Gore može se okončati tokom mandata 44. Vlade
+-  قطعة بـ10 جنيهات لمشاهدة مباراة الأهلي وبلوزداد الجزائري.. اتفرج في البيت
+-  De Sinaloa el ejecutado en campo menonita de Cuauhtémoc
+-  1922 Konyaspor’da Baharoğlu dönemi
