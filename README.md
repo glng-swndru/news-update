@@ -1,11 +1,51 @@
 # Latest News
--  “Forbes” onları dünyanın ən güclü qadınları seçdi
--  8 معلومات عن إعصار ميتشونج.. أغرق مدينة هندية بأكملها وقتل 13 شخصا
--  Ari Bragi og Dóróthea eiga von á syni
--  '손흥민 절친' 에버턴 MF의 특급 모델 여친…'파격적이고 난해한 의상'에 팬들은 환호
--  Pep Guardiola issues apology to Kalvin Phillips with comments set to put Newcastle and Liverpool on alert
--  ریونیو اینڈ اسٹیٹ ڈیپارٹمنٹ خیبرپختونخوا میں تحصیلدار کی آسامیوں کے لئے مقابلے کے امتحان کا اعلان،خیبرپختونخوا پبلک سروس کمیشن نے شیڈول جاری کردیا
--  „Imagini abjecte” cu sexismul lui Gerard Depardieu. Oameni din industria cinematografică franceză spun că nu vor mai lucra cu actorul
--  Gemeinderat Heimbuchenthal in Kürze
--  Es wird um jeden Baum gekämpft
--  Unterführung in Gemünden wieder zugänglich
+-  Anushka shines in Moratuwa SCâ€™s title win
+-  Anushka shines in Moratuwa SC’s title win
+-  'I'm a 58-year-old virgin and will never touch a man - I love being the breadwinner'
+-  Images show dozens of Palestinians captured by Israel, blindfolded and stripped down
+-  Blind psychic Baba Vanga's frightening solar storm prophecy may have already come true
+-  Shane MacGowan funeral: Bono and Johnny Depp to pay tribute to The Pogues star in mass
+-  Australia attack: Man 'very seriously injured' after shark savages his leg at beach
+-  Inside Saddam Hussein's dirt-ridden underground lair where he hid before capture
+-  [“한·일·중 대학생 노래로 하나 돼”…동명대, ‘3POP 노래 발표회’ 성료
+-  [테너 이정현의 스페셜 EP앨범 '새날의 노래' 발매…일본 정상급 작사가 ‘마츠이 고로’의 '시간의 어딘가에서'에 수록
+-  [The Westin Surabaya, 만화 캐릭터 Minions와 콜라보 발표
+-  [비오팜, 이수형 공동대표 선임…건기식 시장 영업 강화
+-  [국악방송 한글날 특집 다큐, 이달의 PD상 수상
+-  Левица:Историчарите ги бојкотираат учебниците по концепција на Царовска
+-  „A fost șocul vieții mele”. O femeie care locuiește de 42 de ani în Marea Britanie trebuie să părăsească Regatul, după ce un e-mail i-a ajuns în spam
+-  Yanıkömeroğlu’nun istifası Akşener’i üzdü: En son ayrılacak arkadaşımdı
+-  Za rekonstrukciju dionice pruge Bar – Golubovci Crnoj Gori dodatnih 112,6 miliona eura
+-  Za rekonstrukciju dionice pruge Bar – Golubovci Crnoj Gori dodatnih 112,6 miliona eura
+-  블핑 리사 닮은꼴 등장…'나는 솔로' 18기 면면
+-  Συνέδριο SPD στη σκιά δημοσιονομικής κρίσης
+-  Road closed as girl airlifted to hospital after 'concern for safety'
+-  AALCO Annual Arbitration Forum 2023 successfully held in Hong Kong for the first time
+-  Menarini Group Presents New Progression-Free Survival Data from EMERALD Clinical Study of ORSERDU® (Elacestrant) in Clinically Relevant Subgroups of Patients with ER+, HER2- Metastatic Breast Cancer (
+-  HH Global discloses environmental impact through CDP
+-  Ouwe Sunderklaas traditie die al eeuwen bestaat
+-  Yoshimar Yotún: “Quiero ser ídolo, que una tribuna del Gallardo tenga mi nombre”
+-  Best Buy's New Weekend Sale Has Record Low Prices on MacBook Pro and MacBook Air
+-  Tribunalul Iași iese în stradă. Care sunt revendicările personalului auxiliar și conex din instituție
+-  Τουρκία: Στις ΗΠΑ ο υπουργός Εξωτερικών, Χακάν Φιντάν
+-  Иззеха недекларирана валута за над 900 000 лева на "Капитан Андреево"
+-  Controverse uriașe pe pensii. Ministrul de Finanțe, chemat la raport pentru "ordonanța trenuleț" - La ce concluzii s-a ajuns
+-  BREAKING: Beware of Fake Naira Notes In Circulation, CBN Warns
+-  “Eternos blanquiazules”: Alianza Lima conmemoró a los mártires de la tragedia del Fokker
+-  Wisła Kraków zdecydowana w sprawie nowego trenera? To będzie kluczowe
+-  Raspored sahrana za subotu, 9. decembar
+-  Με πέντε αλλαγές ο Απόλλωνας για την επιστροφή στις νίκες
+-  Test Lenovo Legion Go : une console originale, mais préférez peut-être ses concurrentes
+-  Test Garmin Quatix 7 Pro : sans doute la meilleure montre GPS pour la navigation aquatique
+-  Les tribulations touristiques de trois copines
+-  Paul Pogba contrôlé positif à la testostérone: Quatre ans de suspension requis contre l'international français
+-  Armée d'un fusil à pompe, une adolescente de 14 ans tue une camarade de classe en Russie et se suicide : cinq
+-  Une grande partie des volontaires du Service National Universel victimes d'une fuite de données
+-  Rugby - Régionale 1 : exclu du championnat, le Foyer Laïque du Haut-Vernet attend des explications et sera sur
+-  Mort de Thomas à Crépol - "Je me sens en danger" : depuis la mort de l'adolescent, la maire de Romans-sur-Isèr
+-  Pixel : Google annonce une mise à jour de l'appareil photo et d'autres nouveautés
+-  Une fusillade fait trois morts et un blessé sur un campus universitaire de Las Vegas : le suspect a été abattu
+-  Comment faire face à la révolution du secteur automobile ?
+-  L'Apple Watch pourrait être dotée d'une lampe de poche
+-  Sa nourrice "était en train de payer à la caisse" : installée dans sa poussette, une fillette de 2 ans échappe
+-  SNCF : bonne nouvelle, les prix des billets de trains Ouigo et Intercités n'augmenteront pas en 2024
