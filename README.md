@@ -1,11 +1,51 @@
 # Latest News
--  New chair for Gawler Business Development Group
--  Rotary farewells a friend
--  Jarryd Goundrey bringing the laughs to Gawler
--  Man Utd vann tvöfalt í nóvember - Ten Hag besti þjálfarinn
--  KPK Perpanjang Penahanan Syahrul Yasin Limpo
--  La nouvelle plateforme de marque de la RAM présentée aux opérateurs touristiques
--  Analiza la imagen y determina el valor de cada objeto en este reto matemático
--  Last Sentinel è l’ambizioso gioco di Tencent per console
--  Община Варна реши проблема с транспорта на децата от Специалното училище за ученици с нарушено зрение „Проф. д-р Иван Шишманов“
--  Another Midsummer DUO en route to Italy - three more to be shipped shortly
+-  Nichelino: vandalizzata ancora una volta la targa di Valentino Mazzola
+-  У СПБ Биржи появится новый устав
+-  Kankan : les acteurs des médias tiennent une rencontre d’échange et de mise au point
+-  Seçil Erzan'ın yazışmaları ortaya çıktı
+-  Власти Молдовы заблокировали искажающие информацию медиа
+-  Óriási rendőrségi razzia indul: fókuszban az ittas vezetők
+-  Conspiracy theorist Huig Plug sentenced to 9 months in jail for stalking and defamation
+-  Hekmatyar claims US sent list to IEA to form inclusive government
+-  На вооружение ЦВО поступили радиостанции стратегического управления
+-  Mungesë meritokracie dhe paga të ulëta, tregu i punës ‘dekurajon’ të rinjtë në vend
+-  Cosmetic surgeon reveals four easy tips for losing weight over the holidays - WITHOUT following a special diet or fitness routine
+-  Вайлдер розповів, коли завершить кар'єру
+-  Temblor HOY en México: Últimas noticias de la actividad sísmica AL MOMENTO | 8 de diciembre
+-  FT: чеченское руководство Danone в России ведёт бизнес профессионально
+-  Erdogan: O ratifikaciji švedskog članstva u NATO-u odlučit će turski parlament
+-  FAO kasım ayı verilerini paylaştı: Küresel gıda fiyatları değişmedi
+-  В Костроме подвели итоги Года педагога и наставника
+-  Русковска: Истрагата треба допрва да утврди која е вистинската позадина на случајот со Вања и Панче
+-  Francuska lobira da Mario Draghi bude novi čelnik Evropske komisije
+-  Житель Великих Лук ушел за сигаретами и пропал
+-  Яндекс Такси потратит более 4 млрд рублей на привлечение водителей в декабре
+-  The NBA In-Season Tournament Is Giving Us a Dream Finale
+-  ‘Grim’ and bizarre scenes as Willie Mullins’ horse wins by 100 lengths after rival stops to a walk
+-  Деменко: поражение в матче с «Крыльями» нанесёт психологический удар по «Спартаку»
+-  Uposlenici u Kantonu Sarajevo imaju 300 KM prosječno veću platu od ostatka države
+-  Centre offers more wheat from FCI in open market, screws on stockists tightened
+-  Experts advise SMEs
+-  Полицейские установили личности водителей, погибших в Комсомольском районе
+-  La insoportable y peligrosa contaminación sónica
+-  Why is #elon #musk’s Grok chatbot so unfunny?
+-  Módosul a bírósági ügyvitel
+-  Tuomiot | Kartonkitehtaan ex-johdolle ehdolliset vankeustuomiot – Kuopion kaupungilla yhä miljoonien saatavat Premium Boardin jäljiltä
+-  DNO DNA Evo kako je opozicija vodila izbornu kampanju (VIDEO)
+-  Venezuela ile Guyana gerilimine ABD tatbikatla dahil oldu
+-  김천 일반산단에 튜닝안전기술원 준공
+-  Agjenda e reformës territoriale, Mazniku: Bashkitë kanë nevojë për mbështetje, synojmë të jenë agjentë të zhvillimit ekonomik
+-  Trapas v Downing Street 10. Premiéry Británie a Nizozemska nechtěli pustit dovnitř
+-  ВККС объявила конкурс на должность председателя Ростовского облсуда
+-  Dólar paralelo se mantiene en alza este 8Dic: Así se cotizó
+-  Sachsen spricht sich für die Aufnahme von EU-Beitrittsverhandlungen mit der Ukraine aus
+-  UPSC Mains Result 2023: யு.பி.எஸ்.சி. மெயின் தேர்வு முடிவுகள் வெளியீடு
+-  Yuri Meirelles é eliminado e dá adeus ao prêmio de R$ 1,5 milhão de ‘A Fazenda’
+-  تقرير امريكي يرصد انتشاراً متزايداً لبكتيريا "خطيرة" في أوكرانياً: مواطنوها يحملونها الى أوروبا
+-  Horóscopo semanal: previsão dos signos de 11 a 17 de dezembro de 2023
+-  Thousands of tons of dead sardines wash ashore in northern Japan
+-  Thousands of tons of dead sardines wash ashore in northern Japan
+-  Could Tyreek Hill become the first EVER wideout to win MVP? Explosive Dolphins star is on course to set the receiving yards record - and another Super Bowl is in reach - but 49ers QB Brock Purdy currently leads the way
+-  Britney Spears will NEVER reconcile with her father Jamie 'dead or alive' - even in the wake of his leg amputation... after he hurt her 'in ways that are not even imaginable'
+-  عبدالجليل: تفعيل أقسام الطوارئ 24 ساعة يخفف العبء على المستشفيات
+-  Λίγοι μπορούν να συγκριθούν μαζί του
