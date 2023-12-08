@@ -1,51 +1,51 @@
 # Latest News
--  Kuyumculardan kesme altın uyarısı!
--  Savcılıktan Somali cumhurbaşkanının oğlu hakkında yakalama kararı
--  TCMB Başkanı Erkan açıkladı: 10 kat artış gösterdi
--  İSKİ İstanbul'daki baraj doluluk oranını açıkladı
--  Profesör uyardı: Herkes her an uyuz olabilir!
--  Kavun yiyen 8 kişi öldü
--  Saygı Öztürk yazdı: Kadınlarımızın öldürülmediği, şiddete uğramadığı gün yok!
--  السلطة الفلسطينية تعمل مع أمريكا حول خطة لإدارة قطاع غزة بعد الحرب
--  السفارة الأمريكية ببغداد: نحتفظ بحق الدفاع عن النفس وحماية موظفينا بأي مكان في العالم
--  إعلام عبري: محو كثير من المعلومات بسبب هجوم سيبراني على أرشيف إسرائيل
--  "الأرصاد": أمطار تصل لرعدية بهذه المناطق الساعات المقبلة
--  مدبولي يطالب بتوفير آليات لتمويل استثمارات المشروعات الخضراء
--  رمضان عبدالرازق خطيبا.. نقل شعائر صلاة الجمعة من مسجد محمد علي بالقلعة
--  وزير الري: حظر زراعة الأرز بمحافظتين وإجراءات قانونية تجاه المخالفين
--  وزير الصحة ينعي رائدة ريفية توفيت أثناء عملها في وحدة صحية بـ«كفر الشيخ»
--  شعائر صلاة الجمعة من مسجد محمد علي بالقلعة - بث مباشر
--  الحكومة: المنشور المتداول بعدم الذهاب للمستشفى حال الشعور بأعراض كورونا مزيف
--  على رأسهم محسن وأكرم.. 11 غيابا يضرب الأهلي في مواجهة شباب بلوزداد
--  انخفاض 10 جنيهات في سعر الذهب اليوم الجمعة ببداية التعاملات
--  "هل وقع كمدير فني؟".. تعليق ناري من شبانة بشأن تعاقد الزمالك مع معتمد جمال
--  البطاطس تصل لـ 15 جنيهًا.. أسعار الخضروات والفاكهة بسوق الجملة بالعبور
--  أسعار الأسماك والمأكولات البحرية في سوق العبور اليوم الجمعة
--  Werken in de Texelse natuur!
--  As Dusk Falls: Narratives Adventure erscheint mit exklusiven Features für die PS5
--  El nuevo queso que arrasa en Mercadona: famoso en Italia y con tanta proteína como un chuletón
--  Jadro sa dostalo medzi preferované investície EÚ, zaslúžilo sa o to aj Slovensko
--  'เป้ย ปานวาด'สลัดลุคสุดแซ่บ อวดความหวานหน้าเด็กสุดๆ
--  เสี่ยงติดคุก 17 ปี! ลูกชาย‘โจ ไบเดน’ถูกฟ้องเลี่ยงภาษี 1.4 ล้านดอลลาร์
--  เดี๋ยวค่อยเติม! พรุ่งนี้น้ำมัน'เบนซิน'ลดราคา 'ดีเซล'คงเดิม
--  ช่วยพ่อเฒ่าวัย80ชาวสบเมยตกเข้าไปหาของป่าหาย2วันพบตกเขาบาดเจ็บ
--  В Германии выбрали слово года
--  Dick de Kock neemt afscheid van Huurderstichting Langs de Lek
--  Veel belangstelling in Molenlanden voor opfriscursus autorijden voor senioren
--  Geen cadeautjes tijdens kaartavond in Wijngaarden
--  वेबकूफ क्विज : इस हफ्ते कितनी बार फेक न्यूज के शिकार हुए आप ?
--  NEM Zagreb 2023: Warner Bros. Discovery, RTL Mađarska i TVP u finalu NEM Awardsa
--  DoubleTree by Hilton Şanlıurfa’nın Ticari Müdürü Seda Rastgeldi Gülen oldu
--  NIPA “2024년에도 K-ICT 성장 적극 지원할 것”
--  Çanakkale İl Kültür ve Turizm Müdürlüğü'ne vekaleten Çağman Esirgemez atandı
--  90 %. Tai išgelbėjo JAV karinę pramonę nuo žlugimo. Kas nutiko Ukrainai skirtiems pinigams? (Foto)
--  [ŽT] „Kažkas atskrido ir viską n****i apvertė.“ Kas lieka po HIMARS smūgio (Video)
--  [ŽT] Sensacingi vaizdai. „Hamas“ teroristai masiškai pasiduoda IDF (Foto, Video)
--  [ŽT] Oficialiai patvirtinta. „Windows 10“ galas. Teks paploninti pinigines
--  „Tai GALI PABAIGTI Amerikos, kaip supervalstybės, dienas.“ Ryžtingas smūgis paskandintų JAV laivyną (Infografikas)
--  Organizmui trūksta jodo: apie pavojų sveikatai išduoda ne tik šąlančios kojos
--  [ŽT] „Nežinau, iš kur Umerovas gavo šiuos duomenis...“ Ždanovas skelbia, kiek gynybos linijų įveikė Ukraina (Video)
--  Atrodo, kad mūsų galaktika pateko į didžiulę tuščią tuštumą (Video)
--  גם בני ריינה עם מחווה לחטופים: תשחק עם מדי חוץ מול מכבי פ"ת
--  אוניברסיטת פנסילבניה תאבד 100 מיליון דולר: "מתירה קריאות לאלימות נגד יהודים"
--  Po Sibirą klaidžioja apspangę lokiai. Kas vyksta
+-  Даяна Ястремская – Маккартни Кесслер. Смотреть онлайн. LIVE трансляция
+-  Германия — Может ли гололедица быть уважительной причиной опоздания в офис?
+-  “Kukavičije jaje” za Srbiju
+-  प्रेमको 'आइडिया' मा रमाउने लेखकको किताब
+-  김용욱(삼척출신)·박정균(홍천출신)·유지영(강릉출신) 농협 상무 임용
+-  «Повесить на шею»: назван тайный план США насчет Украины
+-  Chińskie Politburo deklaruje wzmocnienie polityki fiskalnej zwiększającej popyt
+-  Drugie życie gry Render Cube’a
+-  Tusk: nowy rok zacznie się od wypłaty 800+ i 30 proc. podwyżek dla nauczycieli
+-  Wiadomo już kto pokieruje Europejskim Bankiem Inwestycyjnym
+-  Start-upy chcą być transgraniczne. W ekspansji napotykają bariery
+-  12月8日は有機農業の日「虫はつくわ病気は出るわ」試行錯誤の17年…土づくりが打開策に 持続可能な農業に注目！
+-  Australien und Papua-Neuguinea unterzeichnen „historisches“ Sicherheitsabkommen
+-  Гоциридзе: Партия Мелия будет серьезной оппозиционной партией
+-  Bahnstreik läuft: Heute starke Einschränkungen in Norddeutschland
+-  Путин назвал долгом знать и чтить Героев Отечества
+-  भारतीय सांसद महुआ मोइत्राको लोकसभा सदस्यता रद्द
+-  Γυρίσματα για το επίσημο τραγούδι της ΚΟΠ για την τελική φάση του EURO 2024 K17
+-  Gaza-Krieg: Israel macht weiter Jagd auf Hamas-Chef Sinwar
+-  Gaza-Krieg: Israel macht weiter Jagd auf Hamas-Chef Sinwar
+-  Более 300 вентиляционных шахт коллекторов обновили в Москве
+-  トリカブト混入事件で起訴された元・診療放射線技師の男 3年前にも同様の犯行に及んだ疑いで再逮捕
+-  Повістки у спортзалах: Закарпатський ТЦК зробив заяву
+-  Ρεβεγιόν με ...νεράκι αντί για σαμπάνια - «Χρυσός» και ο αφρώδης οίνος
+-  Corona-Zahlen im Landkreis Altenburger Land aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Jon Rahm conmociona el mundo del Golf al fichar por la Liga saudí
+-  Corona-Zahlen im Landkreis Greiz aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  Kadetkinje u grupi 1 Lige B
+-  Corona-Zahlen im Saale-Orla-Kreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  ΕΛ.ΑΣ.: Απαγόρευση μετακίνησης οπαδών του Ολυμπιακού για Καρδίτσα μετά την επίθεση στα ΜΑΤ
+-  Families could be spending too much on phone bills, experts say
+-  "It's a big responsibility." | Creating Avatar: Frontiers of Pandora
+-  "It's a big responsibility." | Creating Avatar: Frontiers of Pandora
+-  Corona-Zahlen im Saale-Holzland-Kreis aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  Corona-Zahlen im Landkreis Saalfeld-Rudolstadt aktuell: Aktuelle Daten zum Coronavirus
+-  Dutch police arrest a Syrian accused of sexual violence and other crimes in Syria’s civil war
+-  Retrial for Olympian's brother over bungled drug plot
+-  Corona-Zahlen im Landkreis Sonneberg aktuell: Neuinfektionen für Landkreis Sonneberg, Thüringen und Deutschland
+-  Corona-Zahlen im Landkreis Weimarer Land aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  Former Labor minister left injured after Emirates flight hit turbulance
+-  ВЦИОМ: Владимиру Путину доверяют 78,5% жителей России
+-  Sharp's affordable all-in-one systems are bringing budget convenience to your home
+-  Corona-Zahlen im Ilm-Kreis aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Hildburghausen aktuell: Aktuelle Daten zum Coronavirus
+-  Dohoda s lékaři podepsána
+-  Wer ins 1&1-Netz wechselt - und wie
+-  Mehr als fünf Kilo schweres Baby in Bremen geboren
+-  Compagnie Plastic Omnium : Distinction décernée à Plastic Omnium pour ses relations actionnaires
+-  Peter van der Vorst: Matthijs moet zich houden aan Mediapact
+-  Vriendin Mallorca-slachtoffer: Carlo mag nooit vergeten worden
