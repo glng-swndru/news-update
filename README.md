@@ -1,51 +1,11 @@
 # Latest News
--  Bringing Classical Physics Into The Modern World With Galileo’s Leaning Tower Of Pisa Experiment
--  Fintiri presents 2024 budget estimate of N225.8bn in Adamawa
--  Fokke Obbema bij Perron-3 in gesprek over de mens en zijn verhaal
--  Котовський здобув золото на етапі Кубка світу у Фінляндії
--  Updated systemic lupus erythematosus management recommendations
--  Ataul na P200k ang halaga, ipina-raffle sa Christmas party ng isang samahan
--  బదిలీల్లో పక్షపాత వైఖరి సరికాదు
--  Најголемите хитови на ПМГ вечерва во Станица 26
--  సికిల్‌సెల్‌ ఎనీమియాను గుర్తించండి
--  పోక్సో కేసులో 20 ఏళ్ల జైలు
--  Aseguran al ‘Jerry’ armado en Alamedas
--  Será el lunes encendido de árbol navideño en Plaza Mayor
--  Rishikesh News: एयरपोर्ट पर गर्मजोशी से भाजपा नेताओं से मिले प्रधानमंत्री मोदी
--  Rishikesh News: बढ़ती आबादी को पर्याप्त स्वास्थ्य सेवाएं नहीं दे पा रहा सीएचसी डोईवाला
--  Gurugram News: नवादा गांव में 13 करोड़ की लागत के विकास कार्यों का शिलान्यास
--  Gurugram News: महिला कर्मचारियों की सुरक्षा के लिए एडीसी ने दिलाई शपथ
--  Gurugram News: ऑनलाइन टास्क देकर युवती से सवा 4 लाख ठगे
--  Auraiya News: 2500 धारकों के राशनकार्ड किए गए निलंबित
--  Auraiya News: अवैध अतिक्रमण हटवाने उतरे नगर पंचायत अधिकारी
--  Auraiya News: फफूंद माइटी लायंस एवं डी-टेक वॉरियर्स ने जीते लीग मैच
--  Auraiya News: अटल आश्रय गृह के सामने विकसित होगा हॉट-बाजार
--  Muzaffarnagar News: आतिशबाजी से दुकान में लगी आग, दो लाख के कपड़े जले
--  Muzaffarnagar News: भोपा (मुजफ्फरनगर) - प्रेमी युगल ने जहर खाया, दोनों की मौत
--  Palwal News: कष्ट निवारण समिति की बैठक में गैर हाजिर रहने वाले अधिकारियों पर कार्रवाई के आदेश
--  Slegið á fingur dómara vegna rangfærslu
--  ప్రపంచానికి మార్గదర్శనం చేసేది సనాతన ధర్మమే
--  ఇద్దరు దొంగల అరెస్ట్‌
--  Helene Fischer und Shirin David: „Atemlos“ stürzt in den Charts ab
--  Helene Fischer und Shirin David: „Atemlos“ stürzt in den Charts ab
--  అంత చేసినా..ఎందుకిలా జరిగింది?
--  مفاجأة صادمة بشأن الفيروس الغامض في الصين.. مقاوم لجميع الأدوية
--  شاهد.. هطول أمطار ليلية غزيرة على المظيلف بمنطقة مكة
--  اسعار العملات اليوم الجمعة.. الإسترليني يسجل 4.74 ريال
--  وزير الخارجية: هدفنا الأساسي وقف الاعتداءات الإرهابية على غزة
--  రైతు కన్నీరు పెడుతుంటే ఆడుదాం ఆంధ్ర అంటారా?
--  మన్యంపై మంచు దుప్పటి
--  Q&A: How serious is FDA warning about revolutionary blood-cancer treatment?
--  NESTAO IVICA GOLUBOVIĆ (39): Svaki trag mu se gubi u nedelju uveče u Prijepolju, porodica moli za pomoć
--  Сейсмологи предупредили об очень высоком риске сильного землетрясения в районе Стамбула
--  Промоција на спотот за песната „Темна Гора” од бендот „Авелина“
--  Tunisie – Ouverture d’une instruction judiciaire concernant Al Karama Holding
--  నేటినుంచి మావుళ్లమ్మ మూల విరాట్‌ దర్శనం నిలిపివేత
--  LIVE | Pustertal und Bozen im Fernduell um Platz 6
--  పోలీసుల అదుపులో నిందితులు?
--  అన్నదాతలను ఆదుకోవాలి
--  Marie-Hélène Thoraval (maire de Romans-sur-Isère): "Je n'ai pas peur (...) Je ne suis pas protégée à titre personnel, je ne demande rien"
--  Ziraat Türkiye Kupası'nda kuralar çekildi!
--  Μάικ Τζέιμς: Ξεπέρασε τον Ναβάρο, έγινε 3ος σκόρερ στη EuroLeague
--  Zielony rząd Morawieckiego. Te miasta muszą opracować plan adaptacji do „zmian klimatu”. Przyjęto projekt
--  Consiliul Uniunii Europene a aprobat PNRR-ul Ungariei şi prima plată către Budapesta
+-  Beşiktaşlı Vincent Aboubakar, Fenerbahçe maçlarında ekstra motive oluyor
+-  Özgür Özel, Muharrem İnce hakkında konuştu: 'Belediye başkanı ol' denmez
+-  Leading Australian Fire Safety Engineering and Testing Consultancy Warringtonfire Australia Joins Jensen Hughes
+-  Karoglan o ozljedi Hajdukovog prvotimca: Ne izgleda dobro
+-  تفاصيل مباراة ريال مدريد ضد ريال بيتيس
+-  نيفيز: حققنا المطلوب أمام الطائي في الدوري السعودي
+-  Зеленский подписал «антикоррупционные» законы для выполнения рекомендаций ЕС
+-  Recuperan 987 autos con denuncias de hurto y robo
+-  Procès de Monique Olivier : un policier met en doute "l'implication" du couple Fourniret dans l'affaire Mouzin
+-  Jubilarni 160. dan: SDT još nije reagovalo na Đukanovićeve mjesečne „harače“ od 300.000 evra
