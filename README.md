@@ -1,11 +1,51 @@
 # Latest News
--  Circus Dinogad doorbreekt stilistische grenzen, het debuutalbum kent een grote afwisseling
--  Barbra Streisand is leuk en wars van valse schijn. Maar hoe kijkt ze nu aan tegen haar 'kille' moeder?
--  COA: dertig asielzoekers voor de nacht naar opvang Stadskanaal
--  Schutter Las Vegas stuurde poederbrief naar andere universiteit
--  Blinken: Israël moet meer doen om burgers in Gaza te beschermen
--  코레일, 목포·장성역 등 5개 역사 개량 사업 추진
--  국민연금 월 300만원 넘게 받는 부부 1000쌍 돌파
--  [인사] 세아그룹
--  한진 조현민, 창립 78주년 맞아 '사랑의 연탄나눔'
--  쿠첸, B2C‧B2B 동시 공략…공식 브랜드 홈페이지 리뉴얼 오픈
+-  Kontroversi RUU DKJ, Bamus Betawi Inginkan Wakil Gubernur Jakarta Representasi Putra Betawi
+-  How much do Tier 3 Amazon employees make?
+-  The Whispering Shadows: A Riveting Tale of Darkness and Deception
+-  Traverse City Man Arrested for Operating Narcotics Hub
+-  김성철 심판위원 ‘가족들에게 감사해’ [MK포토]
+-  Alden Richards On It’s Showtime, Allan K Reacts
+-  출근길 전장연 시위로 혜화역 무정차 통과…8명 연행
+-  윤재옥, ‘서해 피살’ 감사 결과에 “文정부, 반인권·야만적 폭력행위”
+-  이재명 “與, 전세사기 피해자 고통 외면…특별법 개정 13일 결론내야”
+-  속옷만 입고 무릎 꿇은 남성들…가자지구서 찍힌 의문의 영상
+-  [포토뉴스] 독감 이어 폐렴 확산 우려…다시 돌아온 마스크
+-  베일 벗은 신작 TL…엔씨소프트 주가는 10%대 하락
+-  총선 ‘야당 승리해야’ 51%…尹 집권 후 최고치 [한국갤럽]
+-  입 연 오픈AI 전 이사회 멤버 “올트먼 해임 이유는 신뢰 부족”
+-  ‘수원 714억 전세사기’ 부부 檢 송치…아들은 불구속 송치
+-  Nintendo fans rush to grab three games landing on the Switch for free – & you can get them now
+-  Nintendo fans rush to grab three games landing on the Switch for free – & you can get them now
+-  أوحيدة: مبادرة باتيلي لن تأتي بنتيجة وهي فقط لخلط الأوراق وتسفيه لما تم التوافق عليه
+-  Klopp slams TV presenter for kick-off comment
+-  Boss Ten Hag ‘very pleased’ with Man Utd’s 2-1 win over Chelsea
+-  France superstar Paul Pogba faces 4-year ban for doping
+-  No Kyrgios, Raducanu in Aus Open entry list
+-  This Mumbai event will see experts discussing solutions for a sustainable future
+-  Russian lawmakers clear path for Putin’s fifth term as prez
+-  Christmas 2023: Attend these events in Mumbai to bring in the festive cheer
+-  Hamas threatens violence if Chanukah march not stopped
+-  New album created for a musical in Japan explores being a dreamer in Mumbai
+-  Cyclone Michaung: PM nod for release of Rs 450 cr to Tamil Nadu
+-  Probe panel formed on US inputs on national security: Jaishankar
+-  Alia Bhatt raises glam quotient with her looks at Red Sea Film Festival
+-  新世代手機雲端備份（林國誠）
+-  Court remands co-accused in NAB custody in Gujrat corruption case
+-  김성철 심판 ‘일구회 심판상’ [MK포토]
+-  What is the lowest starting pay at Amazon?
+-  Dine and Dish: Cafe Lafayette in Exeter
+-  Sampai sekarang masih belajar berlakon – Fazlina Ahmad Daud
+-  Alex mangsa stigma ‘keluarga Marquez’
+-  The Game Awards 2023: ‘God of War: Ragnarok’ Returns With Free DLC ‘Valhalla’ On 12 Dec
+-  Investment banks to put $10 billion into projects aimed at interconnecting South America
+-  Happy Birthday Dharmendra: Journey to Stardom, Family Life, 5 Iconic Movies, and Best Dialogues
+-  TV 속 그 즉석밥…CJ제일제당 햇반솥반, '어쩌다사장3' 제작 지원
+-  엔씨 'TL', 가벼운 BM과 묵직한 컨트롤로 무장…이용자 반응 뜨겁다
+-  ‘크라운해태-웰컴저축은행 초반 선두권‘ PBA 팀리그, 4라운드 우승 경쟁 점화
+-  I think my mother-in-law has a serious credit card problem. Do you have any advice?
+-  Woman killed in Canyon County rollover crash
+-  Elon Musk Loves Playing Video Games But Still Won’t Play GTA 6: Here’s The Reason
+-  Microsoft May Be Working On an AI Edition of Windows
+-  Early Bitcoin Ordinals Art Sells for Record $450,000
+-  The Palestinian Authority Can’t Govern Gaza After the War
+-  AFI picks ‘Barbie,’ ‘Oppenheimer’ among 10 best films of 2023
