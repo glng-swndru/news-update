@@ -1,51 +1,11 @@
 # Latest News
--  Italy’s anti-doping tribunal chases four-year ban for Pogba
--  Raza stars with bat and ball as Zimbabwe win thriller
--  Herşey dahil Umre pazarına da girdi
--  Külföldi középiskolába mennétek? Itt kell bejelentenetek az Oktatási Hivatal számára
--  De la salade verte en sachet contaminée par la listeria rappelée dans toute la France
--  Erdoğan: Sinop’ta inşa edilecek nükleer santralden Yunanistan’a da imkan tanıyabiliriz
--  Konya'da Vuslat'ın 750. yıl dönümünde Mevlana dostlarına sahlep ikramı
--  DİSK asgari ücret tutumunu açıkladı: İlk kez bu yıl rakam açıklamıyoruz
--  De la euforia al frenazo: la vivienda cierra un 2023 con parón y encara un 2024 incierto
--  “위치선정 진짜 예술이네” 리버풀 레전드도 ‘황희찬’ 숭배→“슈팅 타이밍도 미쳤어!”
--  Russia and Saudi Arabia urge all OPEC+ powers to join oil cuts
--  Συναγερμός στο Χαλάνδρι: Ύποπτος φάκελος στάλθηκε σε χώρο γραφείων - Περιείχε σκόνη
--  Siz yatağın hangi tarafında yatarsınız
--  Index smashes through 66,000-mark at PSX
--  Türkiyə ChatGPT-yə rəqib süni intellekt layihəsi hazırlayır
--  Puchar Polski: Pary 1/4 finału rozlosowane. Lech Poznań w hicie [OFICJALNIE]
--  CTF: Thông báo thay đổi nhân sự công ty
--  HOSE: Số liệu quản lý sở hữu của nhà đầu tư nước ngoài 11/12/2023
--  DPG: CBTT về việc trúng thầu xây dựng cầu Mộc Hóa, Sa Đéc, Hồng Ngự, Mỏ Cày
--  MDA: Công bố thông tin về việc nhận được đơn từ nhiệm thành viên hội đồng quản trị của ông Nguyễn Trường Linh
--  MDA: Nghị quyết HĐQT về việc chốt danh sách cổ đông thực hiện quyền tham dự ĐHĐCĐ bất thường năm 2024
--  BAF: Nghị quyết và Biên bản kiểm phiếu ĐHĐCĐ lấy ý kiến cổ đông bằng văn bản
--  HTG: Thông báo ngày ĐKCC tạm ứng cổ tức năm 2023 bằng tiền
--  PPC: Thông báo ngày ĐKCC lấy ý kiến cổ đông bằng văn bản
--  VET: Nghị quyết Hội đồng quản trị
--  SAB: Thông báo ngày ĐKCC tạm ứng cổ tức năm 2023 bằng tiền
--  TDF: Nghị quyết Hội đồng quản trị
--  HVN: Giải trình biến động lợi nhuận sau thuế năm 2022 kiểm toán và lộ trình khắc phục bị kiểm soát
--  HVN: Link công bố tài liệu họp ĐHĐCĐ thường niên năm 2023
--  Tres ejercicios muy sencillos para reducir la barriga sin salir de casa
--  Xinhua Silk Road: Ice collecting festival kicks off in NE. China's Harbin
--  Замесиха името на проф. Петров в интернет измама
--  Who Was Patricia Navarro-Velez? First UNLV Mass Shooting Victim Identified as Assistant Professor in Accounting Department Who was Mom-of-Four
--  Top Academics Urge Government to Incorporate AI into South African Schools
--  Jelang Laga Aston Villa vs Arsenal di Liga Inggris, Mikel Arteta Puji Unai Emery
--  Court acquits Ahad Cheema in assets beyond income case
--  En Turquie, l'inflation demeure élevée malgré la hausse des taux d'intérêt
--  Pista de hielo sí, agua no
--  – أسعار النفط تهبط بنحو ( 10) في المئة منذ إعلان أوبك+ عن خفض الإنتاج الطوعي .
--  Lögreglan leitar enn að árásarmönnum
--  Президент Литвы поручил провести проверку законности получения гражданства детьми Романа Абрамовича
--  Chinese fighters, weather balloon cross Taiwan Strait a month before election
--  الأطر والفاعلون السياسيون في "لمدن" يؤكدون تمسكهم بنهج رئيس الجمهورية محمد ولد الشيخ الغزواني
--  Инвестициите в текстилната фирма “Велбъжд” са в намаляване на разходите за енергия
--  Animal Box Office: Has an excellent trend in Week 1, stays over Rs. 25 crores mark on Thursday
--  Se salta un semáforo y choca contra un coche de la Policía Nacional
--  Donald Tusk odkrywa karty
--  Pétrole : les tensions s'accentuent entre le Venezuela et le Guyana
--  Tai oro gynybos revoliucija! Kokį stebuklą JAV perduoda Ukrainai
--  [ŽT] „50 000...“ Bus didžiulis skandalas. Ką gabena Vokietijos laivas į didžiausią JAV karinę bazę (Foto, žemėlapis)
+-  News24 | R537 million theft: Hildegard Steenkamp to spend 50 years behind bars for stealing from her employer
+-  Life | 'Jozi stands together': Trevor Noah and Tyla bond over global success and a curious common interest
+-  Свечников пропустил матч с «Калгари» в НХЛ из-за травмы
+-  Ford: Νέα τεχνολογία συμβάλλει στην αποφυγή ατυχημάτων από το άνοιγμα πόρτας
+-  Nur zwei Ausfälle: Bayern kann gegen Frankfurt personell fast aus dem Vollen schöpfen
+-  Vorbereitungen für die Lichterfahrt in Haltern: Viele Bilder vom Schmücken
+-  Keisha Whitaker (†51) soll an Magersucht verstorben sein
+-  Жога подтвердил заявление Путина о намерении переизбираться на новый срок
+-  Przewaga popytu na europejskim rynku akcji
+-  Tusk: wiele na to wskazuje, że Glapiński sprawował swoją funkcję niezgodnie z konstytucją i zasadami prawa
