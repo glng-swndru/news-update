@@ -1,51 +1,51 @@
 # Latest News
+-  تنبيه عاجل حول كيفية نقل معلومات الجواز لمقيم خارج المملكة
+-  Invitan a 'Jornadas Educativas del Tatuaje'
+-  Guardia Nacional omite alto y provoca choque
+-  Hollywood-skuespilleren Ryan O'Neal er død - 82 år
+-  Patriots waive Ty Montgomery after claiming Christian Elliss
+-  진짜 ‘마약 김밥’ 만들었다…재배한 대마로 음식한 20대
+-  War in the Middle East usually makes oil prices spike. Why isn't that happening now?
+-  War in the Middle East usually makes oil prices spike. Why isn't that happening now?
+-  The U.S. has vetoed a Gaza cease-fire resolution in the U.N. Security Council
+-  The U.S. has vetoed a Gaza cease-fire resolution in the U.N. Security Council
+-  Israelis near Lebanon border caught between Israeli and Hezbollah fighting
+-  British government pushes ahead with plan to deport undocumented migrants to Rwanda
+-  British government pushes ahead with plan to deport undocumented migrants to Rwanda
+-  Israelis near Lebanon border caught between Israeli and Hezbollah fighting
+-  'Latkes Con Salsa' melds Hanukkah favorites with Latin rhythms
+-  'Latkes Con Salsa' melds Hanukkah favorites with Latin rhythms
+-  Putin will seek another presidential term, aiming to extend his grip on Russia
+-  Putin will seek another presidential term, aiming to extend his grip on Russia
+-  'Scorsese says The Red Shoes is in his DNA': Thelma Schoonmaker on her life and work with Michael Powell and his friend Marty
+-  The real Saltburn – and 10 more scene-stealing stately homes from films
+-  Gérard Depardieu documentary shows 'vile' footage of sexist behaviour
+-  ‘A Male’ (Un Varón) Review: A Young Boy Aches to Avoid Becoming a Hardened Man in Colombian Christmas Tale
+-  Labor market plows ahead
+-  Julia Roberts Turned Down Meg Ryan’s ‘You’ve Got Mail’ Role Amid Rom-Com Streak, Says ‘My Best Friend’s Wedding’ Warrants a Sequel
+-  Getafe supera 1-0 a Valencia en juego con tres expulsados y un gol crucial en la Liga de España
+-  6 Heartfelt Gifts for Singers You Can Give Year-Round, According to Pop Singer LÉON
+-  Govt eyes different funding models to build new hospitals
+-  غارتان إسرائيليتان على جنوب لبنان
+-  تجنبها..أطعمة لا ينبغي أبداً تناولها مع البرتقال!
+-  Guterres'ten Gazze'de ateşkes baskısı: ABD vetosuna tepki
+-  ما هي الأطعمة الغنية بالدهون الصحية؟
+-  Save The Children: İngiltere, Gazze'deki çocukların yaşayacağı dehşetin suç ortağıdır
+-  [인터뷰] 신민아 "푸근한 '3일의 휴가', 솔직해서 좋았죠"
+-  Taylor Swift’s Eras Tour is the first tour to gross over $1 billion, Pollstar says
+-  Ai Act, sulle regole per l’intelligenza artificiale raggiunto l’accordo in Europa. Breton: “Momento storico, il meglio deve ancora venire”
+-  Régimen firma acuerdos para “situaciones de emergencia” con Bielorrusia, aliado de Putin
+-  أمطار غزيرة.. الأرصاد تنبه لتقلبات في الأحوال الجوية بدءا من الثلاثاء
+-  Parque de diversão no Barigui inaugura neste sábado (9)
+-  McCarthy declares support for Trump in 2024
+-  Irak tacha de "acto terrorista" el ataque con cohetes contra Embajada de EE.UU. en Bagdad
+-  “TikTok es adictivo”: el duro informe que revela el impacto de la red social en la salud mental y la privacidad de los argentinos
+-  Fernández: "Si algo me reprocho es no acabar con la grieta que nos enfrenta"
+-  ජාතික සංහිඳියාවට අහිතකර ලෙස විශ්වාසනීයත්වය පිළිබඳ පරතරය වර්ධනය වේ
 -  Which Mexican singer’s hit is Rolling Stone’s song of the year?
--  حريق في سكن جامعي بأربيل يودي بحياة 14 شخصا بينهم طلاب وأساتذة (شاهد)
--  Indeksy S&P 500 i Nasdaq najwyżej od stycznia 2022 r. Amerykańskie akcje w górę
--  US vetoes Security Council resolution calling for Gaza ceasefire
--  King Abdulaziz Falconry Festival a ‘beloved event’
--  Muslim candidate for US Congress says Americans want to see humanity in responses to Gaza war
--  Israeli fire injures 3 Lebanese soldiers: medical source
--  Why did Israel fail to foil Hamas attack plot despite specific warnings?
--  Al-Dawsari, Mitrovic on target as Al-Hilal beat Al-Tai
--  Champions Ahly drop more points in pursuit of 12th title
--  نشرة منتصف الليل| السيسي يتفقد أعمال تطوير طرق ومحاور بالقاهرة.. والأرصاد تحدد موعد سقوط الأمطار الغزيرة
--  الاستخدامات السلمية.. اتفاق جديد بين "المحطات النووية" و"مؤسسة الإمارات"
--  الدوري الإنجليزي.. مواعيد مباريات اليوم والقنوات الناقلة
--  Il affole le mercato, l’OM menacé ?
--  [[헤럴드 운세] 2023년 12월 09일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [주행 질감 매력…기본기에 충실한 ‘줄임의 미학’ [시승기-2023년형 ID.4]
--  [송파구, 배우 이장우와 함께 어르신들께 따뜻한 식사 나눔
--  [서울 지지도 與가 앞서는데 ‘우세’ 6곳?…관건은 ‘중도-무당층’[數싸움]
--  [송영길,"8개월째 수사,그렇게 중대한 범죄냐”…‘검찰,구속영장 청구 검토’
--  ¡Se salvó! Ricky Martin no enfrentará cargos de agresión sexual contra su sobrino
--  Útok s nulovými stratami: Rusi zostali verní svojej povesti, otrávili sa vodkou od nepriateľa
--  Apple Computer Check Signed by Steve Jobs Sells for $46,000
--  Pravdivý príbeh: Na novú prácu som sa tešila, prišlo ale trpké sklamanie
--  Deoria News: फिर सक्रिय हुए भू-माफिया, देवरहा बाबा आश्रम चारागाह की 200 एकड़ जमीन पर कब्जा
--  Deoria News: हवलदार की जमीन पर भू-माफिया का कब्जा, बाउंड्री तोड़ कर दी प्लाटिंग
--  Deoria News: इंस्पेक्टर मांग रहे 43 इंच का एलईडी टीवी, नहीं देने पर रिश्तेदारों को थाने में बैठाया
--  Deoria News: हत्यारोपी बीएसएफ जवान सहित तीन को आजीवन कारावास की सजा
--  Deoria News: जमीन बेचने के नाम पर पैसा हड़पने में एक पर केस दर्ज
--  Deoria News: सुबह में कोहरा, दिन में सर्द हवा ने बढ़ाई ठंड
--  Deoria News: भटनी को हरा भाटपाररानी ने जीता नमो कबड्डी का खिताब
--  Deoria News: 400 मीटर दौड़ में जान्हवी प्रथम, द्वितीय रहीं शिवानी
--  Deoria News: सौ मीटर दौड़ में ज्योति और समीर बने विजेता
--  Deoria News: काली पट्टी बांधकर कोटेदारों ने गांव में किया राशन वितरण
--  Deoria News: सीएचसी ले जाते समय महिला ने एंबुलेंस में बच्चे को दिया जन्म
--  Deoria News: ट्रक की चपेट में आने से वृद्ध घायल, केस दर्ज
--  Deoria News: युवती का अश्लील वीडियो सोशल मीडिया पर वायरल करने वाले युवक को भेजा गया जेल
--  Deoria News: फर्जीवाड़ा कर तीसरी बार बनवा रहे थे पासपोर्ट, दो गिरफ्तार
--  Deoria News: युवकों के दो गुटों में मारपीट, पुलिस ने लाठी पटक खदेड़ा
--  Deoria News: मखाना खेती की शुरुआत करने वाला पूर्वांचल का पहला जिला बना देवरिया
--  Deoria News: उद्घाटन मैच में नेपाल ने गोरखपुर को दी मात
--  Deoria News: मेडिकल कॉलेज में कदम-कदम पर जाल, व्यवस्था को चुनौती दे रहे दलाल
--  أسعار ومواصفات سيارات ألفا روميو 2024.. لأفضل تجربة قيادة
--  Stocken Sie heute mit dem „STADDI“ Ihr Geschenkbudget auf!
--  Ovako su EU istražitelji otkrili Žalac i njene večere: "Dođite na kat, ona je dama"
--  Zielinski: "Ci rifaremo e torneremo grandi. Con il Braga per vincere"
--  Samsung CU8000 TV review
--  週末暖熱飆30度！日夜溫差達16度 下週二再變天
--  الهلال الاحمر الليبي يدعو المواطنين الى عدم الانجرار وراء الاخبار أو التعليمات التي تروجها صفحات غير رسمية .
--  Petro compartió con Roger Waters luego de su concierto en Bogotá: Hablaron de sus afinidades en el rock y su apoyo a Palestina
--  جامعة طرابلس تعلن تعليق الدراسة السبت 9 ديسمبر 2023 .
+-  Brasil y Paraguay incineran 3.800 toneladas de marihuana en lo que va de 2023
+-  Luciana Fuster tiene fecha de llegada a Perú luego de ganar Miss Grand International 2023 y brillar por Asia
+-  Govt eyes different funding models to build new hospitals
+-  Gov. Yusuf appoints 21 permanent secretaries
+-  La UE pacta la ley de inteligencia artificial
+-  El top de series más vistas en Prime Video México
