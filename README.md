@@ -1,11 +1,11 @@
 # Latest News
--  Supermicro, AMD Instinct MI300 시리즈 가속기 지원으로 AI 및 GPU 랙 규모 솔루션 확장
--  Kickoff | Tau's Al Ahly drop points for second CAFCL clash
--  PISA & Besinnlichkeit: Weihnachtliches Gemäkel
--  Regresan el tiempo a 1659 y representan la fundación de Ciudad Juárez
--  Convive Alcalde de Cuauhtémoc con Guardias Escolares
--  ¿Golpeador de mujeres? Acusan al cantante Alemán de violentar a su novia tras exhibir pruebas en redes
--  ميتروفيتش يقترب من رونالدو..الهلال يعزز صدارته للدوري السعودي
--  Пет лица повредени во сообраќајка на патот Штип-Радовиш
--  Oldest Fortress in the World Discovered by Archaeologists
--  Apple seeds tvOS 17.2 RC 2 ahead of the official release
+-  ’پی ٹی آئی کو الیکشن سے باہر نہیں رکھنا چاہیے، ن لیگ کو شکست نظر آرہی ہے‘
+-  New CDC director urges Americans to mask-up AGAIN over Christmas as Covid and other viruses spread - despite mounting evidence they don't work
+-  Elsenfelder Kläuschenmarkt bietet drei Tage weihnachtliches Programm
+-  Jákob Zoltán használati tárgyként kezeli 200 milliós Ferrariját
+-  17490 شهيداً في غزة بينهم 7870 طفلاً
+-  Mondiale per Club: Perugia vince la Pool A e vola in semifinale
+-  C'è il Colosseo sulla official T-shirt Joma di Acea Run Rome The Marathon
+-  Toro, Juric e il futuro: "Rinnovo? Due settimane fa ero esonerato"
+-  Tygr, kterého choval zápasník Karel Vémola, má odstraněné drápy
+-  Coppa Italia di Sitting: vernissage ad Ancona
