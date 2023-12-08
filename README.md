@@ -1,11 +1,11 @@
 # Latest News
--  Venedig: Auto stürzt in Kanal – Mindestens drei Tote
--  SRBIJA DOBILA PROTIVNIKE I U MUŠKOJ KONKURENCIJI Evo protiv koga će naši odbojkaši u Ligi nacija
--  Kumbaro në Kongres: 9.53 milionë turistë të huaj kanë vizituar Shqipërinë deri në nëntor
--  Bodrum’u sağanak vurdu. Dereler taştı ağaçlar devrildi
--  Selena Gomez danced around with new boyfriend in a music video four years ago
--  I Want Viewers To Feel It: Sanjana Sanghi On Stream Of Emotions In Kadak Singh
--  Cobre Panamá solicita la terminación de contratos de más de 4,000 colaboradores
--  Jamestown Celebrates Topping Out of One Times Square Redevelopment
--  Saira Banu pens heartfelt note on Dharmendra’s 88th birthday; says, “I always treasure the joy of knowing you”
--  EXCLUSIVE: Upendra Limaye on the underwear scene in Animal, “Even a regional actor might not have done the scene, which Ranbir Kapoor did”
+-  New chair for Gawler Business Development Group
+-  Rotary farewells a friend
+-  Jarryd Goundrey bringing the laughs to Gawler
+-  Man Utd vann tvöfalt í nóvember - Ten Hag besti þjálfarinn
+-  KPK Perpanjang Penahanan Syahrul Yasin Limpo
+-  La nouvelle plateforme de marque de la RAM présentée aux opérateurs touristiques
+-  Analiza la imagen y determina el valor de cada objeto en este reto matemático
+-  Last Sentinel è l’ambizioso gioco di Tencent per console
+-  Община Варна реши проблема с транспорта на децата от Специалното училище за ученици с нарушено зрение „Проф. д-р Иван Шишманов“
+-  Another Midsummer DUO en route to Italy - three more to be shipped shortly
