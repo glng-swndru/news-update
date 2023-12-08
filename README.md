@@ -1,51 +1,51 @@
 # Latest News
--  Azerbeidzjan waarschijnlijk gastland voor volgende klimaattop
--  Palestijnse autoriteiten: 6 doden bij aanval Israël op Westoever
--  AEX-index iets hoger in afwachting banenrapport VS
--  De Volksbank-topman Gribnau vertrekt in april na vier jaar
--  AWS, 서플라이 체인 지원하는 4가지 신규 기능 발표
--  NEA sells Rs 15.4 billion worth of power to India during monsoon this year
--  MPC Keeps Key Policy Rates Unchanged: Expert Views On Liquidity Adjustment Facility
--  Maqedonia shënon Ditën e “Shën Klimenti i Ohrit”
--  L’urgence Pour Le Cameroun :: Cameroon
--  Lancement de la Première Édition du Forum Marocain des Industries Culturelles et Créatives (ICC)
--  DIRECT. OM: les infos et la conférence de presse de Gattuso et Vitinha avant Lorient
--  Национальная администрация туризма начала новую маркетинговую кампанию на туристической платформе Expedia
--  Plus de TER, plus de TGV en 2024: la Bretagne met le paquet dans le train avec la SNCF
--  Alia Bhatt: रेड सी फिल्म फेस्टिवल में आलिया भट्ट का ग्लैमरस अवतार, Photos
--  ทหารพรานผาเมือง มอบผ้าห่มกันหนาว พร้อมยาสามัญประจำบ้านให้กับประชาชน
--  KT&G 이사회, 사장 선임 관련 이사회 규정 개정
--  호남선 상징 목포역사 확 바뀐다… 2028년 준공
--  KB금융 ‘다우존스 지속가능경영지수’서 8년 연속 월드지수 편입
--  한화, 호주와 '레드백 장갑차' 최종 계약… "첫 수출 기획 방산 제품 결실"
--  Górniczy gigant zapowiada zmniejszenie produkcji w przyszłym roku
--  Cyberpunk 2077 nagrodzony na The Game Awards
--  Cena ropy na drodze do siódmej tygodniowej zniżki z rzędu
--  Konsolidacja cen złota w wyczekiwaniu na dane
--  Аккредитацию IТ-фирмы аннулируют за некорректное раскрытие налоговой тайны
--  오현규에게 MOM 트로피 전달한 셀틱 동료→"맹활약 자격 충분했다"
--  "120만 관중보다, 우승보다 어려운 계약" 타 구단 오퍼 없는 임찬규, 언제 사인할까 [MD청담]
--  한예슬, '악연' 故김용호 사망에 "새 삶 살 수 있었을 텐데 기회마저 잃어"
--  "젖꼭지는 아니고…" 김재중 '공항준수' 직접 언급→김준수 '흑역사 사진' 급해명 [마데핫리뷰](종합)
--  임종룡 우리금융 회장, 인사 키워드 ‘안정’…은행 ‘CIB그룹’으로 기업고객 정조준
--  "47세 메시가 2034 월드컵에 출전하길 바란다" 인판티노 FIFA 회장의 황당(?) 발언
--  Kickoff | Chiefs come up against ‘worst nightmare’ again
--  أمستردام تقيد الحد الأقصى للسرعة في معظم شوارع المدينة بـ30 كم بالساعة
--  Gold sees slight decline in Pakistan
--  مدرب إيفرتون يتحدث عن الفوز الكبير على نيوكاسل
--  HÜDA PAR hainlerin adının her yere verilmesini istedi
--  Will Korea avoid hard landing in housing market?
--  Seoul awards honorary citizenship to outstanding foreign residents
--  K-pop's appeal reflected in global accolades
--  Эксперт Стрельцов объяснил, почему упал экспорт металлов из России в Китай
--  Many hands make lights work: Finding Brisbane’s best Christmas displays
--  Many hands make lights work: Finding Brisbane’s best Christmas displays
--  [인사] 우리금융지주·우리은행
--  Baltarusių žurnalistė skundžiasi dėl nepratęsto leidimo gyventi Lietuvoje: nagrinėjimą sustabdė
--  Jalur Lintas Sulawesi di Gorontalo Akan Ditutup Sementara, Begini Penjelasan Polisi
--  Viinarallin loppu? Latvia nostaa alkoholiveroa
--  Ekka evolution: Farm show, events, music festivals ... and sport?
--  Ekka evolution: Farm show, events, music festivals ... and sport?
--  Queensland’s youth justice strategy will expire before it’s replaced
--  Danimarka miraton ligjin që ndalon djegien e Kuranit
--  인도서 발견된 새 개구리종, 오리처럼 '꽥꽥' 운다
+-  Dobro ćete razmisliti hoćete li opet kupiti pravo božićno drvce: Pogledajte što je ova žena pronašla u svom primjerku
+-  Myth busting the viral 'Irish castle island'
+-  Remembering a 1961 childhood Christmas in Ireland
+-  The best places in Ireland to celebrate Christmas
+-  경기도, 시스템반도체 기업 지원 '우수기술사업화 사례발표회' 개최
+-  김동연 지사, 보육인 2천명 만나 "가장 좋은 보육환경 위해 노력"
+-  경기도, '푸드테크 산업 발전 협의체 구축 간담회' 개최
+-  경기도, 시군 우수사례 발굴·공유… 도민 안전 강화
+-  인천시, 21대 국회 임기 내 ‘인천고법 유치’ 총력… 관련 법률안 조속 처리 건의
+-  한국공인중개사협회 경기남부지부, 33개 지회와 '사랑의 봉사활동' 실시
+-  [인사] 농협중앙회 경기본부·NH농협은행 경기본부
+-  용인시의회 문화복지위, 내년 예산 121억 삭감… 민선 8기 사업 차질 빚나
+-  Sinterklaas(feest) op De Spreng
+-  Tierra y Mar: el nuevo icono de la brasa en Ferrol
+-  'Türkiye Ada'dan çekilirse' deyip açıkladı: Filistin'dekine benzer olaylar yaşanabilir
+-  Güney Kore: Kuzey Kore fabrikalarımızı izinsiz kullanıyor
+-  Galatasaray-Adana Demirspor maçının VAR hakemi Koray Gençerler
+-  Avrupa Parlamentosunda yolsuzluk skandalı! AB Yüksek Temsilcisi Borrell bile engel olamadı
+-  Başkan Erdoğan'dan "F-16" tepkisi: Tutturmuşlar 'İsveç'te İsveç'... Senin kongren varsa, benim de parlamentom var
+-  Bakan Kacır: İHA üretiminde dünya lideriyiz
+-  Bartın-Kastamonu kara yolunda heyelan
+-  İstanbul'da motokuryeye çarparak ölümüne neden olan sürücü hakkında yakalama kararı
+-  AK Parti'den Tunç Soyer'e tepki: Bu yalanı söylemekten bıkmadınız mı?
+-  Kahramanmaraş'ta terör örgütü PKK'ya yönelik operasyon
+-  Ο παράδεισος των κυριών επόμενα επεισόδια: Τέλος Μιράντα – Ντίνος – Πάει στην αγκαλιά του Φώτη
+-  Los cóndores ya se habrán ido
+-  مقتل جندي إسرائيلي أسير لدى حماس.. وكشف كواليس ما حدث
+-  انتخابات الرئاسة في مصر.. بدء فترة الصمت الانتخابي
+-  Innovadora clínica odontológica se abre en la UPS, sede Cuenca
+-  Global Dairy Protein Ingredients Market Forecast 2023-2028 Under Inflation
+-  It's Important to Reduce Supply Chain Interruptions Accelerates the Growth of the Global Additive Manufacturing in Aerospace and Defense Sector
+-  Healthy Meal Delivery Services Market Expecting Huge Demand in Upcoming Years with a CAGR of 17.6%| HelloFresh (Germany), Freshly (United States), Sun Basket (United States), Blue Apron (United States)
+-  Lyall Cameron insists Dundee’s main focus is to avoid relegation battle
+-  «هدف»: دعم النقل «وصول» لا يتطلب تسجيل دخول أسبوعي في النظام
+-  Top 7: Hechos delictivos de mayor impacto en 2023 en la CDMX
+-  Top 7: Activan la diplomacia durante 2023
+-  Reunión de alto nivel: Con grupo especial, combatirán fentanilo
+-  México y EU pactan vigilar las inversiones; impulsan intercambio de información
+-  Parliament Winter Session 2023: Trinamool MP Mahua Moitra Expelled From Lok Sabha
+-  Platform gifts Hackathon winners
+-  FedEx invests USD 100 million to foster job growth and innovation in Hyderabad’s Tech Hub
+-  Healthcare Chatbots Market Is Driven By Healthcare Chatbots In Various Industries, Need To Increasing Demand For Automated Customer Service & Improved Patient Engagement
+-  심평원, 5년 연속 지역사회공헌 기관 인정받아
+-  Complément d'enquête : comment revoir l'émission sur Gérard Depardieu ?
+-  Un poco de cielo azul
+-  Полицията със засилени мерки за опазване на обществения ред за студентския празник във Варна
+-  Черно море планира лагер в Турция
+-  Коцев иска забрана на старите коли в центъра на Варна
+-  Условна за варненски насилник, пребил с ритници бившата си жена
+-  Прибраха колите на двама дрогирани шофьори за ден във Варненско
