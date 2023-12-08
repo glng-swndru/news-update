@@ -1,11 +1,11 @@
 # Latest News
--  المرصد الوطني للتشغيل: أكثر من مليون تونسي يشتغلون في القطاع غير المنظّم
--  이차전지 세이프티 솔루션 기업 이닉스, 코스닥 상장 추진
--  기업은행, 중소기업 인수합병 채널 'IBK M&A센터' 오픈
--  KZN disaster teams respond to storm-affected families
--  하이브IM ‘별이되어라2’, 이용자 손잡고 막바지 담금질
--  ZAMOŚĆ: Trylogia Zamojska. Dziś spotkanie z dr Jackiem Feduszką w Mazagranie.
--  BIŁGORAJ: Mikołajkowy festyn charytatywny. Zebrano ponad 10 tys. zł
--  TERESZPOL: Rodzinne warsztaty świąteczne. Można się zapisywać
--  BIŁGORAJ: Wyraź to w PIXEL-Ach! Konkurs grafiki komputerowej rozstrzygnięty
--  BIŁGORAJ: Kolaż Bożonarodzeniowy w BCK
+-  Azerbeidzjan waarschijnlijk gastland voor volgende klimaattop
+-  Palestijnse autoriteiten: 6 doden bij aanval Israël op Westoever
+-  AEX-index iets hoger in afwachting banenrapport VS
+-  De Volksbank-topman Gribnau vertrekt in april na vier jaar
+-  AWS, 서플라이 체인 지원하는 4가지 신규 기능 발표
+-  NEA sells Rs 15.4 billion worth of power to India during monsoon this year
+-  MPC Keeps Key Policy Rates Unchanged: Expert Views On Liquidity Adjustment Facility
+-  Maqedonia shënon Ditën e “Shën Klimenti i Ohrit”
+-  L’urgence Pour Le Cameroun :: Cameroon
+-  Lancement de la Première Édition du Forum Marocain des Industries Culturelles et Créatives (ICC)
