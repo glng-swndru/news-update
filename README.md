@@ -1,51 +1,51 @@
 # Latest News
--  Korba Crime: क्राइम ब्रांच का फर्जी अधिकारी बनकर लोगों से कर रहा था अवैध वसूली, पुलिस ने किया गिरफ्तार
--  Bà cụ 70 tuổi bị nhận nhầm là U40 vì quá trẻ: Tất cả là nhờ duy trì 3 thói quen trong hơn 20 năm
--  Europäische Union: Künstliche Intelligenz soll stärker geregelt werden
--  No. 2 Montana wins in OT to reach FCS football semifinals
--  شرطة ذي قار تلقي القبض على شخص يطلق الرصاص في الهواء
--  Kılıçdaroğlu'ndan Özgür Özel'e İmamoğlu'ndan kurtulma tavsiyesi: Güven kongresi yap
--  Linus Larsson: Feministhatet i tv-spelsvärlden har fått våldsamma följder
--  Modri angeli v najbolj žlahtnem pomenu. 28 policistov rešilo 286 ljudi
--  Bilim fuarı büyük ilgi gördü
--  Auto-Dimming Mirror Market worth $2.55 billion by 2030, growing at a CAGR of 4.45% - Exclusive Report by 360iResearch
--  Punjab News: सोना न चांदी, कपूरथला में डेढ़ लाख रुपये की सिगरेट चोरी, सीसीटीवी में पूरी घटना कैद, आप भी देखें
--  KCR elected leader of BRS Legislature Party
--  Perampok Bersenjata Serang Bus Klub Sunshine Stars, Ini Reaksi Federasi Sepak Bola Nigeria
--  PenCom recovers 24.8bn unremitted fund
--  Lungi Ngidi ruled out of India series with injury
--  Skadesplagede Kyrgios melder afbud til Australian Open
--  No pressure on Gollings, says Mazey
--  Pelaku Pembunuhan Ayah dan Anak Masih DPO, Resmob Polda Bantu Polres Maros
--  ["이스라엘군, 칸 유니스 맹공 3∼4주 이어질 것"
--  Какие церковные православные праздники нас ожидают 10 декабря
--  BIHAMK: Obustavljen saobraćaj na magistralnom putu Jajce-Banja Luk
--  Какие международные праздники и памятные дни нас ожидают 10 декабря
--  Yeni Dacia Duster, Renault logosuyla üretilecek
--  부산 강서구, 에코델타시티 신설 법정동 명칭 선정 추진
--  Aleksandra Prijović in razkošje v Zagrebu
--  Какие праздники отмечают 10 декабря
--  Olivia Wilde plant mit „Naughty“ weiteres Regieprojekt
--  Gambhir Big Statement on Kohli vs Naveen Fight- ‘No One Can Walkd Over My…’
--  Гороскоп на 10 декабря 2023 года: что обещают астрологи
--  Weiterer Dämpfer für die Wärmewende? Bundesamt stoppt mehrere Förderprogramme
--  সুন্দরবনের বাওয়ালি থেকে সফল খামারি শাহাজান
--  안동국제컨벤션센터 ‘청년작가 특별기획전’ 개막
--  [일월선사 오늘의 운세] 2023년 12월 10일 일요일 띠별 운세
--  김형동 의원, 중앙선 KTX-이음 '안동역에서 서울역까지' 운행
--  영주시, ‘경북전문대 농산물가공과정' 수료식 개최
--  포항문화원, 경북도 최우수 문화원상 수상 영예
--  포항시새마을회, 경북도새마을지도자대회서 최우수표창 수상
--  영주로타리클럽, 하망동에 수해 피해 이재민 돕기 물품 기탁
--  포항시, 경상북도 에너지대상 '우수상' 수상
--  [부고] 박진규 전 영천시장 별세
--  Ronaldo 1200. maçında 868. golünü attı
--  180 MILIONA ULOŽENO U OŠ "NIKOLA TESLA" - 8 novih učionica, 6 novih kabineta, kantina, razglas... I TO NIJE SVE
--  จากกันด้วยดี! “บอย ปกรณ์”บอกสาเหตุไม่ต่อสัญญาข่อง3
--  Президент Ильхам Алиев: Развитие нашей энергетики перешло от нефти к газу
--  Sürücüler dikkat: İşte kara yollarında durum
--  Народные приметы на 10 декабря: что нельзя делать в этот день
--  الأرصاد تحدد حالة الطقس ودرجات الحرارة المتوقعة لـ6 أيام مقبلة
--  कांग्रेस नेता के घर से मिले 225 करोड़: भाजपा प्रदेश अध्यक्ष बोले- पाई-पाई लौटानी होगी... ये मोदी की गारंटी है
--  Восемь с половиной лет получил житель Велижа за местную коноплю
--  Какие церковные православные праздники нас ожидают 10 декабря
+-  Europe reaches deal on world's first comprehensive AI rules
+-  U ispunjenom Domu kulture Nogometni klub Vinodol obilježio značajan jubilej
+-  Bahnverkehr nach Streik wieder angelaufen - hohe Auslastung erwartet
+-  Kakav doživljaj! Mislio da na udici ima velikog goluba, a na kraju izvukao kapitalnog gofa!
+-  Jeste li kada pokušali izraditi vlastitu panulu? Evo recepta za siguran uspjeh i bogat ulov
+-  عاجل.. توقعات طقس اليوم: برد وسيول وأمطار غزيرة على هذه المناطق
+-  NBA: Εξαιρετικός o Σάσα Βεζένκοφ, έκανε ρεκόρ πόντων στη νίκη των Κινγκς
+-  En Sarthe, les chiens aussi ont droit à leur marché de Noël
+-  La mairie de quartier Nantes Nord va déménager en fin d'année 2024
+-  DNA testiyle gelen 3 milyar lira servet! Miras savaşı kızıştı: Babamın hikayesini sürdürmek istiyorum
+-  Ilustrativo final del iraní Tabatabaei
+-  Aroldis Chapman: récord Guinness de pitcheo más rápido
+-  Las vueltas
+-  El Rey del hit
+-  Adegan ‘softporn’ bawah meja, Amir Ahnaf teruk dikecam
+-  Oroscopo Branko oggi, sabato 9 dicembre 2023: le previsioni segno per segno
+-  אחרי השימוע על אנטישמיות: עשרות חברי קונגרס דורשים לפטר את נשיאות האוניברסיטאות
+-  מ"החיים עצמם" ועד "אלה החיים": קריסת המותג ביבי
+-  "Bizim enerji sahəsinin inkişafı neft hasilatından təbii qaz istehsalına keçid edib"
+-  Кириенко назвала обезличиванием решение МОК о допуске россиян на Олимпиаду
+-  नॉक-आउट मेन खो-खो टूर्नामेंट में मुंगेर के 6 लोग शामिल:पटना में चल रहा है लीग, कई कॉलेज के छात्र-छात्राएं ले रही हिस्सा
+-  Mirjana Marinić nova predsjednica Kluba Sušačana
+-  Μητσοτάκης - Ερντογάν: "Ήρεμα νερά" και ανοικτά ερωτήματα
+-  OpenAI working with ex-Twitter India head to navigate AI landscape: report
+-  Bakıda ana körpəsini taksidə qoyub getdi
+-  पन्ध्र बिघामा गरिएको गाँजाखेती नष्ट
+-  पर्यटन विकासका लागि गुरु योजना तयार गर्न निर्देशन
+-  जनतासँग जोड्न सकेमात्र कांग्रेस परिवर्तन हुन्छ : डा.कोइराला
+-  दशौँ राष्ट्रिय खेलकुदको समन्वय बैठक सम्पन्न
+-  華燈背後的光污染｜公民社會
+-  Malta complains to EU over Irish gambling proposals - report
+-  Οι 5 φορολογικές παρεμβάσεις που θα ενισχύσουν τα δημόσια έσοδα
+-  جادون سانشو وحلم يصعب تحقيقه بوجود تين هاج
+-  মানবাধিকার দিবসে শিক্ষার্থীদের ভাবনা
+-  그러다 ‘너 혼자’ 산다?…女 원하는 신랑감은 178cm·연봉 6천, 신붓감은?
+-  內華達州校園槍擊︱第3名罹難者身份曝光 69歲日裔女副教授身中多槍亡
+-  Barbora Seidlová: Brno se mnou ladí ve stejné tónině
+-  Biz buna müvəffəq olmuşuq
+-  珍惜生命｜尖沙咀男子酒店房間自刎身亡
+-  Atchannaidu: వైసీపీ ప్రభుత్వ అసమర్థతను టీడీపీకి అంటగడతారా?
+-  2024 میں پاکستان میں انٹرنیٹ کی فائیو جی سروس دستیاب ہوگی، ڈاکٹر عمر سیف
+-  Avropada Azərbaycan qazına böyük ehtiyac var
+-  Marraige: బీజేపీ ఎమ్మెల్యే వివాహానికి గ్రాండ్ ప్లాన్.. 4 నగరాల్లో రిసెప్షన్, 3 లక్షల మంది అతిథులు
+-  В Херсоне объект критической инфраструктуры получил повреждения
+-  ตามมาร์ค! สาธิตประกาศลาออก ลั่นอุดมการณ์ ปชป. เปลี่ยนไป
+-  تفاصيل مباراة الأهلي أمام الرائد في الدوري السعودي
+-  Highlights : les 41 points de Kawhi Leonard face au Jazz !
+-  Ketua BEM UGM Gielbran Dipuji Layak Jadi Wapres Ketimbang Gibran, "Ini Anak Beraninya Bukan Main"
+-  Pisa-tulokset ennakoivat karuja aikoja suomalaisille – Muutos on vielä mahdollinen
+-  कौन हैं धीरज साहू? जिनके यहां मिला 300 करोड़ से अधिक कैश
