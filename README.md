@@ -1,51 +1,11 @@
 # Latest News
--  Telangana BJP's oath ‘boycott’ threat as Akbaruddin Owaisi appointed pro-tem Speaker
--  12-Year-Olds Charged After Woman Beaten Unconscious at Public Transit Station
--  Bracket Revealed For WWE US Championship Tournament On SmackDown
--  [에이티즈, 英 오피셜 2위…BTS·블랙핑크 이어 K-팝 최고 순위
--  Tesla Cybertruck: con un diseño exterior poco convencional y... poco seguro para peatones, según especialistas
--  화성소방서 “빈 드럼통 절단 폭발 사고 주의”
--  굽네몰, 겨울 신메뉴 ‘찰떡구이 3종’ 정식 출시…천원대 특가 이벤트
--  한미일 안보실장 "北 비핵화 이행 공조 강화… 가짜뉴스 공작도"
--  बेरुजु फर्स्योटमा समितिले बढायो सक्रियता
--  सुत्केरीलाई भाले कोसेली
--  कीर्तिपुरमा केबुलकार निर्माणको माग
--  Мировые цены на продовольствие в ноябре снизились на 10,7% - ФАО
--  Tỉnh nhỏ nhất, giàu có hàng đầu Việt Nam được quy hoạch trực thuộc TW, có 4 thành phố trước năm 2030
--  Qəzzada 2 ayda 75 jurnalist ölüb
--  الأرصاد تحذر المواطنين من الظواهر الجوية المتوقعة خلال أيام
--  Tập đoàn đa quốc gia tái sinh nhựa tới 50 vòng đời, cải thiện đời sống cho hàng ngàn lao động Việt
--  President aims to make agriculture produce five per cent of GDP
--  내일 일요일도 포근…낮 최고기온 11∼19도
--  Piden ayuda a la comunidad, familias que perdieron todo en incendio
--  Respons Butet Usai Diadukan ke Bareskrim soal Dugaan Hoax Intimidasi
--  Animal Box Office Collection : रणबीरच्या 'अ‍ॅनिमल'ने बॉक्स ऑफिसवर पाडला पैशांचा पाऊस! देशात 300 तर जगभरात 500 कोटींचा टप्पा पार; जाणून घ्या आठ दिवसांचं कलेक्शन
--  Kyrgios officially out of Australian Open
--  Khảo sát 35.000 người phát hiện bài kiểm tra dự đoán tuổi thọ cực đơn giản, ai cũng có thể thực hiện ở bất kỳ đâu
--  EU agrees to first-of-its-kind comprehensive AI regulations
--  VIDEO: Enfrentamiento entre civiles y la Familia Michoacana deja 11 muertos en Texcaltitlán
--  김제 용지면 산란계 농장에서 조류인플루엔자 H5형 항원 검출
--  Capital: Passerini asume con un equipo que garantiza la continuidad en el municipio
--  Alcaldes se reúnen en “Cumbre Mundial Municipalista 2023” en CDMX
--  ¡Nueva, pero misteriosa, señal de Cruz Azul! “Hay proyecto y un solo objetivo: la Décima”
--  유난히 내성적이었던 이성민…"현장서 '안녕하세요'도 못해 스태프들 오해" [마데핫리뷰]
--  하나원큐, 10일 BNK전서 ‘하나원큐 파트너스데이’ 개최
--  '입대 D-3' 정국, 황금빛 인기ing…英 오피셜 앨범·싱글 차트 5주 연속 차트인
--  '1192억에 팔아먹고 날로 다시 먹으려는 클럽'…염치없는 '스왑딜' 추진, 통할까?
--  방예담, 공식 팬덤명은 BY:D(바이디)…"가장 소중한 존재"
--  Tillverkade termosbomber – åtalas
--  Live stream: Catch 35 games from WPA 19&U male, female state nationals
--  Cricket-Healy named Australia captain across all three formats
--  Burgemeester van Vlaardingen sluit woningen wegens explosies
--  Poetin wil minstens tot 2030 president blijven
--  한미일 "가짜뉴스 공작에도 대응, 민주사회 근간 지키기"
--  164 нови случая на коронавирус, почина един заразен
--  Son dakika: Kocaeli’de palet fabrikasında yangın
--  After Israel-Hamas Truce, Agony Remains for Hostage Families
--  Mahfud Bicara OTT Tanpa Cukup Bukti, KPK Minta Tunjukkan Contohnya
--  TikTok: ¿De qué trata la tendencia del Programa Angel Tree?
--  Schweizer Crispr und Vertex erhalten Zulassung für die USA
--  U.S., South Korean and Japanese national security advisers meet to discuss North Korean threat
--  Carr sale del protocolo de conmoción y está listo para volver con los Saints frente a los Panthers
--  Kyrgios officially out of Australian Open
--  Jean Ferrari sobre la situación de Fossati: “Hay plazos y se va a respetar eso”
+-  आदित्य-एल1 ने ली सूर्य की पहली फुल-डिस्क तस्वीर, 11 अलग रंगों में दिखा सूरज- Photos
+-  Kandy SC face Army SC at Panagoda today
+-  “손흥민 몸상태, 더 지켜봐야 한다”…뉴캐슬전 출전 불투명
+-  아스널 중원 보강 청신호…바르사, ‘제2의 부스케츠’ 영입전 철수한다
+-  ফরিদপুর-৩: আ.লীগের শামীমের প্রার্থিতা বাতিলে এ কে আজাদের আপিল
+-  Magic send Pistons to 19th straight loss with 123-91 home victory
+-  Sexy! Shraddha Kapoor Exudes Charm And Glow In A Low-Neck Satin Dress, Hot Video Goes Viral
+-  TP.HCM khó đạt thu ngân sách năm 2023?
+-  Hải Phòng bố trí hơn 19.900 tỷ đồng vốn đầu tư công cho năm 2024
+-  Lãi suất TPDN gấp 3 lần ngân hàng: Bài học vỡ nợ vẫn còn 'nóng hổi'
