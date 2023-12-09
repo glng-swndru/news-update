@@ -1,51 +1,51 @@
 # Latest News
--  News24 | Here are the Daily Lotto numbers
--  Erdogan denounces UN ‘Israel protection council’
--  الصحة: الدفع بـ 1700 سيارة إسعاف بمحيط لجان الانتخابات الرئاسية
--  مندوب الاحتلال بمجلس الأمن: الأمين العام للأمم المتحدة لا يدين الإرهاب ولا يستحق منصبه
--  بيان عاجل من الخارجية بشأن المواطنين المصريين المتواجدين في غزة
--  مكافأة لمدير مدرسة ومظلات.. محافظ الوادي الجديد يتفقد لجان انتخابات الرئاسة
--  منها "برايل".. تسهيلات قدمتها الهيئة الوطنية للانتخابات لذوي الهمم
--  3 أبراج يلاحقها الأزمات والمصاعب في عام 2024.. هل أنت منهم؟
--  أستون فيلا يفوز.. وأرسنال يفقد صدارة الدوري الإنجليزي لصالح ليفربول
--  చేపలు పట్టడానికెళ్లి.. విద్యుదాఘాతంతో యువకుడి దుర్మరణం
--  Bolnice u Ukrajini suočene sa zarazom koja se smatra globalnom prijetnjom
--  Pak disappointed over UNSC’s failure to call for ceasefire in Gaza
--  Tuzlanski učenici osvojili 22 medalje na 15. međunarodnoj olimpijadi naučnih projekata BOSEPO
--  انطلاق مؤتمر الاستثمار الصيني - السعودي الثلاثاء المقبل
--  Vreme koje vam je potrebno da zaspite otkriva vaše zdravstveno stanje
--  సర్పంచ్‌లంతా సంఘటితంగా పోరాటం సాగించాలి
--  الخارجية الأردنية: استشهاد مواطنة أردنية وزوجها الغزي وأفراد عائلتها
--  Turkey's Erdogan accuses West of 'barbarism' over Gaza
--  Shiloh: What will happen if Abioye leaves Living Faith – Bishop Oyedepo
--  Soccerladuma | Arsenal Denied Top Spot After Loss To Emery's Villa
--  Путин отметил вклад главы Эрмитажа Пиотровского в сбережение духовного наследия
--  12న వాహనాల వేలం
--  Imran moves LHC against ECP
--  Junior hockey: Rockets trekking through prairies, Silverbacks blank Vees
--  There's a change buried in Baldur's Gate 3's latest patch that makes it easier than ever to recruit both of its mutually exclusive companions⁠—without breaking the game
--  مدير عام مصلحة الأحوال المدنية والسجل المدني بتعز اسكندر المخلافي سيتم إصدار البطاقة الذكية بداية العام الجديد 2024م
--  أرسنال يفرط في قمة الدوري الإنجليزي بالسقوط أمام أستون فيلا
--  Detaje nga përplasja me armë mes hajdutëve dhe policisë, njëri prej tyre përplasi efektivin me makinë (VIDEO)
--  Zonguldak'ta ikinci büyük heyelan yaşandı. İş makineleri göçük altında kaldı
--  "İsrailə gedən gəmilərə mane olacağıq"
--  'Beskorisni' organ koji liječnici često uklanjaju navodno je ključ u borbi za rak
--  Peritos muito preocupados com a segurança da pick-up Tesla Cybertruck
--  IDF: Πρέπει να αυξήσουμε την πίεση στη Γάζα, το δίκτυο της Χαμάς καταρρέει
--  Vorum eitthvað daufar
--  Simge Sağın'dan hastalık açıklaması. 'Sahneden inmek zorunda kaldım'
--  ఎకరానికి రూ.30 వేల నష్టపరిహారం చెల్లించాలి : గొల్లపల్లి
--  El COI alienta a que Rusia a siga atacando Ucrania
--  La Cos a San Marzano, il Latte Dolce ospita la Nocerina
--  ¡Sorpresa! Germán Cano reveló su fanatismo detrás del fútbol
--  20 కిలోల గంజాయి స్వాధీనం
--  Oroscopo Paolo Fox di oggi 10 dicembre 2023: le previsioni segno per segno
--  'Mooi weer voetballer' Nehkomi Veldt maakt het verschil in slecht weer
--  Voetballers schitteren in Netflix-serie: 'Die Koreanen waren wel heel erg fit'
--  Waa Maxay Sababta Uu Bruno Fernandes Ku Seegi Doono Kulanka Liverpool.
--  המבצע הסודי נחשף: כך חולצו 180 מיליון שקל במזומן מלב עזה
--  גוגל מצהירה: התקלה בגוגל דרייב טופלה, האם הסאגה באמת מאחורינו?
--  משבר ביחסים בין אמזון לפייפאל: זו הסיבה שמניית החברה בירידה
--  החשוד בהצתת אוהל משפחות החטופים: בן 59 מאזור קריית גת
--  סטטיק שבר את הרשת: מה איחל לחטופים ולחיילים?
--  תיעוד מלב ג'באליה: המחבלים הכינו מארב - וחוסלו על ידי כוחותינו
+-  ضبط 7183 متسولاً في الأردن منذ بداية العام
+-  جيش الاحتلال الإسرائيلي يؤكد مقتل ابن شقيقة آيزنكوت في غزة
+-  الدفاع المدني ينقذ شخصاً سقط داخل بئر ماء
+-  جرش : اشهار جمعية أبناء البرج الخيرية
+-  الضفة الغربية.. 275 شهيدا فلسطينيا منذ 7 أكتوبر الماضي
+-  رئيس مجلس الأمن القومي للاحتلال: المعركة في غزة ستستمر شهورا
+-  ندوة في إربد تناقش المآلات المتوقعة لعملية طوفان الأقصى
+-  إدارة بايدن تستخدم صلاحيات الطوارئ لتزويد الاحتلال بالذخائر
+-  إطلاق البرنامج التدريبي للدعم النفسي والمساندة الإنسانية في الكوارث والأزمات
+-  استشهاد أردنية وزوجها الغزي وجميع أفراد عائلتها في غزة
+-  مظاهرة لعائلات الأسرى في تل أبيب
+-  وقفة تضامنية في الزرقاء دعماً لصمود غزة ورفضا لسياسة التهجير
+-  مسؤول أميركي مستقيل يندد ببيع الأسلحة للاحتلال
+-  قرار مصري بشأن الراغبين في الخروج من غزة عبر معبر رفح
+-  نتنياهو يشيد بالفيتو الأمريكي
+-  Silkeborg overlever FCK-pres og spiller sig i semifinalen
+-  Bloodied Emi Martinez pumps up Villa Park crowd and takes on Kai Havertz after getting boot to the eye
+-  Mircea Geoană afirmă că intrarea Ucrainei, Moldovei, Georgiei în UE și NATO este calea ca România să "evadeze" de la periferia Europei
+-  '호러쇼는 감당할 수 없어' 무리뉴, 다이어 영입 명단에서 제외
+-  Satakiloiset siskot -tähti kantaa kuolleen miehensä tuhkia mukanaan
+-  Zonguldak'ta ikinci kez toprak kayması meydana geldi
+-  Oxlade Chamberlain: Fenerbahçe bizden üstündü
+-  Arsenal legend Dennis Bergkamp reveals plan to buy League One club in shock takeover
+-  R. Dominicana exige en COP28 acción frente a cambio climático
+-  Afrika'da Fransa karşıtlığı sürüyor... Resmi dil olmaktan çıkarıldı
+-  Edin Dzeko: Bu takımla gurur duyuyorum
+-  İşgalci İsrail, Gazze'de 97 askerini kaybetti
+-  Derbi zaferi sonrası Fenerbahçe'den paylaşım!
+-  İran'dan çarpıcı 'nükleer' iddiası... "ABD satın aldı"
+-  İşgalci İsrail gazetecileri hedef aldı
+-  Zimbabve halkı sandık başında
+-  Beşiktaş'ta Aboubakar krizi! Taraftar isyan etti
+-  Sakaryaspor, Girensunspor engelini geçti
+-  Szymanski: Herkes büyük kulüp futbolcusu gibi oynadı
+-  Mert Günok, takım arkadaşlarına isyan etti!
+-  Rıza Çalımbay'dan sert sözler! "Kendilerine çeki düzen vermeleri gerekiyor"
+-  Üstün zeka testi: 9 saniyede 311 kişiden 7'si 8 baykuşu görebildi! Zeki olanlar bile şaşırıyor…
+-  İsmail Kartal: Kendimize yakışır futbolla kazandık
+-  Çelik tencere ve tava parlatmanın pratik yöntemleri! Meğer bu kadar basitmiş
+-  Miguel Crespo: Dengeli bir şampiyonluk yarışı oluyor
+-  Bazı iller beyaza büründü... Kartpostallık kar manzaraları
+-  Gazze'ye 100 tırlık insani yardım gönderildi
+-  Oxlade-Chamberlain: Sorumluluk almak lazım
+-  Kwakman verbaasd door Hato-moment: 'Ik vind het rood, waar slaat het op?'
+-  Gece Felaketi! Feci Kazada 14 Kişi Yaralandı!
+-  В Саратовской области загорелся вагон электрички
+-  «الوزارية العربية الإسلامية» تطالب بسرعة التحرك لحماية المدنيين في غزة
+-  Mikil óánægja með verðhækkun Disney Plus – „Áskrift sagt upp, bless“
+-  🔴الصراع الإلزامي
+-  2 women injured in London, Ont. hit and run: police
