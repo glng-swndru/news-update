@@ -1,51 +1,51 @@
 # Latest News
--  Injury to captain mars Dewi Stars' excellent cup win against Llechryd
--  Mandić se susreo sa Erdoganom u Turskoj
--  Antigo Reitor Renato Araújo homenageado pela UA com o título de Professor Emérito
--  Erden Timur yine büyük oynuyor. Galatasaray'dan Real Madrid'in yıldızına teklif
--  Stal met hondenkennel in brand in Oijen, dieren in veiligheid gebracht
--  В СРЗП сообщили о разработке проекта о федеральном статусе многодетной семьи
--  Copying Karnataka model, Congress launches free travel for women, health insurance in Andhra
--  LIVE | Leger Israël komt opnieuw met massale evacuatie-oproep, Gaza meldt 133 doden in één dag
--  Man omgekomen bij flatbrand in Arnhem, ook elders in stad grote brand
--  Нацрт-резолуција на СЗО: Израел мора да ги почитува хуманитарните обврски
--  Almost 40% of People With Dementia Don't Seem to Know They Have It
--  Scholz beschwört Geschlossenheit der SPD: Wird so bleiben
--  Air Pollution Combat : ভারতে বায়ুদূষণ রোধে বিশেষ উদ্যোগ বিশ্বব্যাঙ্কের
--  Connection to people for transforming NC: Leader Koirala
--  Olaf Scholz im Haushaltsstreit der Ampel: Bürgergelderhöhung wird nicht zurückgenommen
--  Prince Harry loses bid to have publisher’s libel defence thrown out
--  Russians, Belarusians to participate at Paris Olympics as neutrals
--  Asgari ücrette kritik gün! Gözler pazartesi bu toplantıda
--  Cumhurbaşkanı Yardımcısı Yılmaz 'Canlar Buluşması'nda
--  Глава Курчатовского института: ученые СГ воодушевлены решением Путина об участии в выборах
--  ABD'nin BM Güvenlik Konseyi veto kararına Avrupa ülkelerinden tepki
--  Asgari ücret pazarlığı pazartesi başlıyor
--  US, Japan, South Korea step up efforts to counter North Korea cyber-threats
--  Vrijeme je prehlade i gripe, liječnik objasnio kada je potrebno potražiti pomoć
--  Scots charity stunned by discovery of rare coin worth £1500
--  ইতিহাসের এই দিনে: পতাকা পেল ইউরোপীয় জোট
--  ÖB:s svar om USA-avtalet: ”Ökar säkerhet”
--  IMD to find out exact location of Cyclone Michaung’s landfall
--  IL: Asiantuntija kehottaa luomaan varasuunnitelman Trumpin varalta
--  Avslöjade i test – får inte tävla i Östersund
--  다니엘 헤니♥루 쿠마가이, 달달한 신혼 근황 '포착'
--  Dünya'nın en sıcak yılı 2024 olacak
--  Yeni doğan bebeklere hastanede kimlik çıkarılabiliyor
--  Osman Müftüoğlu yazdı: Sırtımızda yük var!
--  La primera Navidad tras la Sareb
--  Türkiye Tenis Ligi Finalleri, 18-24 Aralık'ta Başlıyor
--  Canfod enaid Caerdydd
--  La situation des étudiants tunisiens en Roumanie objet d’une rencontre entre Nabil Ammar et Luminița-Teodora Odobescu
--  Rede da 'Operação Admiral' lucra 80 milhões em 6 anos a fugir ao IVA
--  Премьер Индии заявил, что рост ВВП отражает реформы в стране за последние 10 лет
--  Stradiņa slimnīcā pirmo reizi Latvijā un Baltijā veikta unikāla sirds operācija
--  باجة: أمطار غزيرة..أعلها في عمدون
--  “Plain Air” në Muzeun Kombëtar, piktorët e peisazhit në një ekspozitë të përbashkët
--  DVA ČUDNA OTKRIĆA U CENTRU BEOGRADA U ISTOM DANU! Pronađen tajanstveni hodnik, a na drugom kraju ulice ŠOK
--  'मिचौंग' चक्रवात से कहर से चुनावी जीत के जश्न तक, तस्वीरों में ऐसा दिखा इस हफ्ते का भारत
--  Avlyser: – Julenissen kommer til å bli klissblaut
--  (VIDEO) DARKO LAZIĆ NAPRAVIO RAJ U BRESTAČU Pevač pokazao kako je okitio dvorište, napravio iznenađenje sa sina i ćerku pred praznike, SVE SVETLUCA
--  Dovolacie konanie v kauze Gašparoviča a Vičana má byť vo štvrtok
--  Bacuľka z RUŽE vyvolala ošiaľ: Brutálna ZMENA... Dala sa na BLOND a vyzerá ako Kardashianka!
--  Nový trend v manikúre: Čím sú populárne jelly nails, ktoré sú návratom do deväťdesiatok?
+-  وزارة الحرس الوطني تعلن عن حاجتها لشغل العديد من الوظائف الصحية
+-  구미도서관, 2027년 신축middot;이전 예정
+-  신현성 HS법무법인 대표 변호사 출판기념회 열고 총선 가속도
+-  '총선 출사표 준비' 이석봉 대전시 경제과학부시장 퇴임
+-  김기웅 서천군수 시정연설 ldquo;군민과 함께 미래로, 도전하는 서천rdquo;
+-  إيران تحذر من «انفجار» إقليمي بعد الفيتو الأميركي ضدّ وقف النار في غزة
+-  החבר הקרוב של ג'סטין ביבר: האם לסלינה גומז יש בויינפרד חדש?
+-  Juez prohíbe en EE.UU. separar a familias migrantes en la frontera durante 8 años
+-  Red Bull, dubbio Horner: “Statisticamente non credo sia possibile…”
+-  Nader Jindaoui, l'influencer diventato calciatore dell’Hertha: la storia incredibile
+-  Thomas Gottschalk nach „Wetten, dass ..?“ für RTL-Show im Gespräch
+-  Abu Dhabi Shopping Fiesta launched with ‘Mall Millionaire’ Campaign
+-  Yerlikaya: Eğer sokaklarımızda huzur olacaksa, sizlerin sayesinde olacak
+-  Kombes Budhi Herdi Susianto Dapat Jabatan Lagi, Terlibat Kasus Ferdy Sambo Turut Sebarkan Skenario Palsu
+-  نادي الصقور السعودي والهيئة الملكية لمحافظة العلا يعلنان مسارات «كأس العلا للصقور»
+-  Watch I’m a Celeb’s Nigel, Tony, Sam and Josie take on the Cyclone in first-look at iconic trial
+-  Dukai Regina kislánya 1 éves lett: Olivia übercuki a szülinapos fotón anyukája karjában
+-  В Тайване зафиксировали приближение к острову летательных аппаратов и кораблей Китая
+-  Asgari ücret pazarlığı pazartesi başlıyor: İşte masadaki rakamlar
+-  Pozivi za glasanje na izborima do ponedeljka u ponoć
+-  MUŽ HELENE TOPALOVIĆ BIO U BRAKU SA NAŠOM VODITELJKOM Sa njom ima dete i nisu u dobrim odnosima - Jednom mu je zapretila TUŽBOM
+-  Corona-Zahlen im Landkreis St. Wendel aktuell: Neuinfektionen für Landkreis St. Wendel, Saarland und Deutschland
+-  Amasya'da art arda 4 kaza: 5 kişi yaralandı
+-  TAKSISTI U MILANU VARAJU TURISTE, A IMAJU OVU RAZRAĐENU ŠEMU: "Startna cena 7.70 evra, PROBLEM NASTAJE na pola puta do apartmana"
+-  منع مغاربة الخارج من إرسال أمتعتهم المستعملة إلى المغرب يسائل وزارة المالية
+-  U godinu dana promet industrije manji za 5,1%
+-  Corona-Zahlen im Saarpfalz-Kreis aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Landkreis Saarlouis aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Neunkirchen aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Merzig-Wadern aktuell: Die Coronavirus-Daten im Überblick
+-  استشهاد 133 فلسطينيًا في هجمات الاحتلال على غزة خلال الساعات الـ24 الماضية
+-  لعدم تركيب الملصق.. سحب 1721 رخصة قيادة في 24 ساعة
+-  إطلاق نار على اثنين من موظفي الحرس الوطني الروسي في موسكو
+-  حماس تدين إفشال واشنطن مشروع قرار بمجلس الأمن لوقف إطلاق النار في غزة
+-  الداخلية: ضبط 549 دراجة نارية لعدم ارتداء الخوذة
+-  متروكة ومتهالكة في الشوارع.. رفع 49 سيارة ودراجة نارية بالقاهرة والجيزة
+-  إصابات جراء غارة جوية إسرائيلية على بلدة في جنوب لبنان
+-  أوكسفام: حق النقض "مسمار في نعش مصداقية واشنطن"
+-  على رأسهم شلبي.. 7 غيابات تضرب الزمالك في مواجهة ساجرادا الأنجولي
+-  شهادات مزورة.. ضبط تشكيل عصابي لإدارة كيان تعليمي وهمي بالإسكندرية
+-  تناول هذه الأطعمة في الوجبات الـ 3 الرئيسية تحارب الزهايمر
+-  مهيب عبدالهادي يفجر مفاجأة بشأن انتقال رمضان صبحي للزمالك
+-  انتخابات الرئاسة واجب وطني.. تفاصيل جهود وأنشطة "التعليم العالي" خلال أسبوع
+-  احذر .. قائمة بالأطعمة التي تزيد خطر الإصابة بالسرطان
+-  التشكيل المتوقع لليفربول في مواجهة كريستال بالاس
+-  "الزمالك يحتاج لاعب مثله".. حسام حسن يتحدث عن وجهة رمضان صبحي المقبلة
+-  Corona-Zahlen in Regionalverband Regionalverband Saarbrücken aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Oberallgäu aktuell: Neuinfektionen für Landkreis Oberallgäu, Bayern und Deutschland
+-  I’m only buying Christmas presents for myself and my dog this year – I’ve even treated myself to a £145k flat
+-  Corona-Zahlen im Landkreis Donau-Ries aktuell: Neuinfektionen für Landkreis Donau-Ries, Bayern und Deutschland
