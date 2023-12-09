@@ -1,11 +1,11 @@
 # Latest News
--  롯데백화점 창원점, '창원소방본부장 우수상'
--  旅行裝備｜節日外遊旺季 智選3大旅行隨身伴
--  İstanbul'un dönüşüm yol haritası belli oldu
--  Църквата почита зачатието на Света Анна, вижте кои празнуват днес
--  Тежко гостуване във Враца предстои за Левски днес
--  Bakan Fidan'dan Gazze için barış diplomasisi: ABD'li mevkidaşı Blinken ile görüştü
--  IOC Bolehkan Atlet Rusia dan Belarus Tampil di Olimpiade 2024 dengan Bendera Netral
--  क्रिकेट के सभी प्रारूपों में ऑस्ट्रेलियाई महिला टीम की पूर्णकालिक कप्तान बनीं एलिसा हीली
--  Regulations on minimum service levels during strikes come into force
--  Around 500 jobs at risk at Nationwide in head office shake-up
+-  بـ3 مكونات منزلية.. تخلص من رائحة الأحذية الكريهة في الشتاء
+-  Jauh-jauh dari Solo, Gibran Cuma Bicara 2 Menit di Cilincing
+-  تصعيد واسع جنوباً يسابق الوساطة الأمنية الفرنسية
+-  中 소비자물가 2개월 연속 마이너스…디플레이션 우려
+-  U centru Dubrovnika adaptira se čak tisuću kvadrata nekadašnje tvornice! Evo što će sve tamo biti i kako će izgledati
+-  Ekman-Larsson med i toppen bland NHL:s backar
+-  US again blocks UN Security Council resolution demanding Gaza ceasefire
+-  Will Smith Steps Out With Mystery Woman Resembling Jada Pinkett Smith
+-  [부고] 서동원 바른세상병원장(대한축구협회 의무분과위원장) 빙모상
+-  『ファイナルファンタジーXVI（FF16）』無料アプデで忠狼トルガルの「心の声」を見れるように。クライヴやおやつのこと考えたり、仲間の死を悲しんだり
