@@ -1,11 +1,11 @@
 # Latest News
--  L'Union européenne parvient à un accord pour encadrer l'intelligence artificielle
--  Rixe mortelle dans le Val-d'Oise: un adolescent de 17 ans incarcéré pour assassinat
--  Predsjednik Azerbajdžana: "Armenci se mogu vratiti u Karabah, ali bod jednim uvjetom"
--  साइकल डोर्‍याउँदै थोरोङ्ला पास छिचोल्दा!
--  Pramod Bhagat, Sukant Kadam meet President Droupadi Murmu
--  क्या फ्लैक्स सीड्स खाने से ब्रेस्ट कैंसर का खतरा होता है कम? क्या कहती है रिसर्च
--  Erdogan-allieret kræver fred i Mellemøsten før Nato-ja til Sverige
--  مصري يقتل زوجته بسبب سؤال واحد
--  نصائح لإنشاء مطبخ يلبي احتياجاتك ويعكس شخصيتك
--  7 تمارين تُخلصك من الدوالي نهائياً
+-  تموين الإسكندرية: حملات متزامنة على المخابز البلدية تسفر عن تحرير 74 محضرا
+-  “래쉬포드, 너 완전 ‘마샬’이야” 리버풀 레전드의 역대급 악평→“외국인 용병처럼 대충 뛰네”
+-  Thane NIA Raid : एनआयएच्या कारवाईमुळे गाव बंद; अनेक घरांमध्ये चौकशी सुरू
+-  "Vlahović je dominirao protiv Napolija"
+-  Japonya'dan İsrail protestosu : 'Gazze’de soykırıma son verin'
+-  Kovassa vireessä oleva Mikael Granlund valittiin NHL:ssä viikon pelaajaksi
+-  الانتخابات الرئاسية.. الدقهلية تستقبل غدا في 24 لجنة 4 ملايين و562 ألف ناخب
+-  Deretan Bisnis Inul Daratista: Dulu Honornya Cuma Rp20 Ribu, Kini Punya Harta Ratusan Miliar
+-  Sapin de Noël. Etouffement, chute, allergies : les gestes pour éviter les risques avec les enfants
+-  VTT. Près de Pont-Audemer, Maël Denommey a enchaîné épreuves et podiums cette saison
