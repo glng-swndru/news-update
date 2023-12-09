@@ -1,11 +1,51 @@
 # Latest News
--  31-28. El Cisne se hunde fuera de casa
--  Veiligheidsadviseur Israël: 7000 Palestijnse militanten gedood
--  Aydın'da otomobiller çarpışı: Yedi yaralı
--  I won the first ever PDC World Darts Championship but I was threatened with losing my house and never got my trophy back
--  Leigh-Anne Pinnock stuns in shimmering sheer dress as she leads the glam at Jingle Bell Ball
--  How to watch Devin Haney vs. Regis Prograis: Live stream the fight
--  Loksins búinn að finna nýtt heimili eftir langa dvöl á hóteli – Fjölskyldan getur nú flutt til landsins
--  Christmas cheer for children’s home
--  U.N. AI Advisory Panel Holds 1st In-Person Meeting; U.N. Chief Stresses Importance of Intl Discussions on AI
--  Zimbabwe has a lot to teach the world in HIV/Aids fight – UNAIDS
+-  لعبة هايك.. قصة أطفال للكاتب محمد مندور في معرض القاهرة الدولي للكتاب
+-  L'Inter fa poker all'Udinese e torna al comando: controsorpasso alla Juve
+-  Alyson Hannigan lost 20 pounds of ‘both weight and emotional baggage’ on ‘DWTS’
+-  Hollingsworth's fast start, Ejim's double-double lead No. 23 Gonzaga women past Rice 80-72
+-  Шарангович в матче с «Нью-Джерси» забил в меньшинстве, отличившись впервые с 25 ноября
+-  Khloe Breaks Silence, Addresses Controversies Trailing Her Recent Podcast
+-  ITV I'm A Celeb's Ant and Dec issue 'public safety announcement' and fans 'can't believe'
+-  Video/ Inter i papërmbajtshëm! Poker ndaj Udineses e parakalim i ri ndaj Juventus
+-  Abmas has 16 points and seven assists to lead No. 12 Texas past Houston Christian 77-50
+-  SRBI PONOVO NAJBOLJI NA SVETU: Basketaši Uba osvojili titulu na Završnom turniru u Džedi
+-  Wird er jetzt zum Gegenspieler der Potsdamer Linken?: Hans-Jürgen Scharfenberg verlässt die Partei
+-  Tucker Carlson Starts Subscription Website, Promises Exclusive Content
+-  L'Inter è un robot da vittoria: schiantata l'Udinese, la Juve torna seconda
+-  Il Psg non si ferma più: Nantes ko e ottavo successo consecutivo!
+-  MŚ w piłce ręcznej. Polki nie zagrają w ćwierćfinale
+-  Gemini: Google's Breakthrough AI and Responsible Use
+-  Interpol lo buscaba por caso de producción y distribución de pornografía
+-  Costa Rica, Ecuador, Panamá y República Dominicana hacen un llamado a las autoridades en Guatemala
+-  PSG-Nantes: Barcola ouvre son compteur à Paris et répond aux critiques
+-  South of England Inter-Counties in Oxford called off due to ‘unsafe course’
+-  Rule of YCP MLAs : జీ హుజూర్‌ అంటేనే..
+-  Jada Pinkett y la bofetada que salvó su matrimonio
+-  Ofrece Fideapech créditos a productores agrícolas
+-  ‘Station 19’ Cast Saluted By Shonda Rhimes, Who Thanks Them For “The Magic, The Moments, And The Memories”
+-  Paríž sa na výhru poriadne nadrel, Škriniar chýbal v základnej zostave
+-  How to watch Regis Prograis vs Devin Haney boxing online or on TV
+-  В генштабе ЦАХАЛ заявили о распаде системы управления ХАМАС в секторе Газа
+-  కోర్టు ధిక్కరణ కేసులో ఆరోగ్యశాఖ ముఖ్యకార్యదర్శికి నోటీసులు
+-  На Западе нашли "безопасного" преемника Зеленского
+-  Galli: «Partita giocata male, a questo Milan manca una cosa»
+-  Une star pour oublier Mbappé, le PSG peut tout perdre
+-  Tripulante de navio pesqueiro regastado pela Força Aérea a 19 km da costa
+-  2024 vote could bring electoral college distortions to the forefront
+-  Xiaomi Band 8 Pro Genshin Impact Gift Box Launched with Special Customisations
+-  지석진 환갑여행 떠난 '런닝맨'…"웃기면서도 울컥해"
+-  Japanese baseball star joins LA Dodgers after signing record contract
+-  విద్యుత్‌పై కౌంటర్‌ డిలీట్‌
+-  Thousands of pro-Palestine protesters call for immediate ceasefire
+-  „Anatomie eines Falls“ dominierte den Europäischen Filmpreis
+-  Thousands join pro-Palestine march across London
+-  'Last Night Was A Dream': Halle Bailey Went Full Disney Princess Again For The Color Purple Premiere
+-  ‘Godzilla Minus One’ broke box office records
+-  The best way to destroy Hamas is by attacking its financial networks, and it'll cost fewer lives
+-  Japanese ace signs $1B MLB deal
+-  Japanese ace signs $1B MLB deal
+-  Tesna pobeda PSŽ-a nad Nantom: Kolo Muani u završnici presudio bivšem klubu
+-  Berliner Elsenbrücke von Umweltaktivisten blockiert
+-  Inter ponovo prvi, Udineze lako nadigran
+-  కాంగ్రెస్‌ ఎమ్మెల్యేలు అమ్ముడుపోరు..
+-  Koniec miesiąca miodowego dla Śląska Wrocław. Problemy zaczynają się piętrzyć
