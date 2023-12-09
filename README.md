@@ -1,51 +1,51 @@
 # Latest News
--  Banco de la Nación confirma pago de devolución de Fonavi
--  Photos Of Masquerades From Ibeno, Akwa Ibom State
--  ¿Vivir bien con diabetes? Sí se puede con estos 4 pilares
--  Ouderwets feest met 17e Dickens fair in Bennekom
--  কাপ্তান বাজারে সপ্তাহব্যাপী আবাসন মেলার উদ্বোধন
--  ২৪ ঘণ্টায় ইসরায়েলি বাহিনীর হামলায় ১৩৩ ফিলিস্তিনি নিহত
--  আইনশৃঙ্খলা ইসি নয়, স্বরাষ্ট্র মন্ত্রণালয় দেখছে: ইসি সচিব
--  ‘গণতন্ত্র ছাড়া উন্নয়ন অর্থবহ হয় না’
--  পাঁচ দিনে ইসিতে আবেদন ৫৬১, আপিল শুনানি শুরু রবিবার
--  ব্যারিস্টার মইনুল হোসেন আর নেই
--  Explosion at business premises in Vlaardingen, mayor orders building to close
--  تعادل سلبي ينهي لقاء نفط ميسان ونفط البصرة في دوري نجوم العراق
--  القنوات الناقلة لمباراة الترجي و​​بترو أتلتيكو في دوري أبطال أفريقيا 2024
--  T&T’s Nicholas Romany grabs Barbados Fun Mile title
--  ABŞ, Cənubi Koreya və Yaponiya razılığa gəldi
--  Suudi Arabistan'dan Lionel Messi itirafı
--  Gogamedi Murder: కర్ణిసేన చీఫ్ హత్య కేసులో తొలి అరెస్టు
--  Fiscalía en Ica: policías en alerta ante situaciones de riesgo en el sector Barrio Chino
--  Ašeradens komentē Saeimā pieņemto 2024. gada budžetu
--  Kızılcık Şerbeti 43. bölüm fragmanı yayınlandı mı? Kızılcık Şerbeti yeni bölüm ne zaman?
--  Menarini Group, 새로운 무진행 생존 데이터 발표
--  मनोरंजक कॉमेडी फिल्म ‘अनी हाओ मिट्टी पाओ’ ओटीटी प्लेटफॉर्म चौपाल पर रिलीज हो गई
--  Update៖ សហរដ្ឋអាមេរិក វេតូ ទៅលើការអំពាវនាវរបស់ UN ឲ្យមានបទឈប់បាញ់គ្នា នៅក្នុងតំបន់ហ្គាហ្សា
--  Netflix : cette comédie sur un tueur en série avec Robert Pattinson ne verra jamais le jour
--  ERÜ’de ameliyatlar ‘robot’ ile yapılacak
--  À Nantes, les avions n’arrivent plus à atterrir et font demi-tour à cause de la pluie et du vent
--  "يونيسف": أطفال غزة في أخطر مكان بالعالم
--  Map reveals iconic UK filming locations – was a movie shot in your town?
--  मोहम्मद आशिक बने ‘मास्टरशेफ इंडिया’ के विजेता, ट्रॉफी के साथ मिला लाखों रुपये का इनाम
--  Isabelle Morizet avec Philippe Lellouche
--  طريقة استخدام الفازلين والقرنفل لتطويل الشعر وانبات الفراغات والقضاء على الصلع الوراثي في 7 أيام
--  סקר חדש חושף: מעמדו הפוליטי של הנשיא ביידן נמצא בנקודה החלשה ביותר של הנשיאות שלו
--  לוחם תועד משחית חנות בעזה; דו"צ: "מוקיעים ומגנים"
--  أقوى من إبرة الانسولين.. عشبة جبارة رخيصة الثمن متوفرة في كل مطبخ تخفض السكر التراكمي خلال دقائق!
--  מתכונן לעתיד: התפקיד החדש והמיוחד של דקל קינן
--  CHP lideri Özgür Özel, Almanya Başkanı Olaf Scholz ile buluştu
--  Why Did Global-e Stock Soar 75% In 2023?
--  Ender Saraç cinsel istismar için montaj dedi Bakanlık'tan açıklama geldi
--  Тренер «Спартака» Слишкович: «Крылья» были демотивированы, они не понимали, как вернуться в игру»
--  Künstliche Intelligenz soll in EU stärker geregelt werden: Worauf hat sich die EU geeinigt?
--  Запад подталкивает Японию к фактическому пересмотру итогов Второй мировой войны
--  The Top Tip To Prevent A Dry Pre-Cooked Spiral Ham
--  Fifa bekräftar: De vill arrangera fotbolls-VM 2027
--  Fifa bekräftar: De vill arrangera fotbolls-VM 2027
--  Nostalgic! Netizens lost in nostalgia as Farhan Akhtar reaches the famous Dil Chahta Hai spot, writes an emotional note
--  Artvin’de karaya oturan geminin onarım çalışması sürüyor
--  រុស្ស៊ី ថា ការធ្វើឱ្យជន់លិចតំបន់ហ្គាហ្សា នឹងក្លាយជាឧក្រិដ្ឋកម្មសង្គ្រាម
--  A la cancha
--  Markopoulo Park: Πέντε ελληνικές κούρσες και τρία ΣΚΟΡ τη Δευτέρα
--  वरिष्ठ कांग्रेस नेता वीरेंद्र कुमार ‘बिंदु’ ने थामा आम आदमी पार्टी का दामन
+-  علاج فعّال للسيطرة على الربو الحاد
+-  زيلينسكي يحث القوات الأوكرانية على المبادرة في القتال
+-  كيفية الدردشة عبر الرسائل القصيرة على Microsoft Teams
+-  Geen brug van plantenresten in Bergse wijk: ‘Niet sterk genoeg en ontwikkelaar failliet’
+-  Weihnachtstimmung in Berching: Romantischer Markt am dritten Adventswochenende
+-  Velburgs Bürgermeister zieht Bilanz: Gemeinsam Herausforderungen gemeistert und Zukunft gestaltet
+-  Diese Bücher sind anders, sie passen prima untern Weihnachtsbaum: Hier die Tipps der Redaktion
+-  Diese Bücher sind anders, sie passen prima untern Weihnachtsbaum: Hier die Tipps der Redaktion
+-  Red Sea film Festival 2023 : Les Filles d’Olfa inaugure “Asharq Documentary Award”
+-  7 آيات قرآنية لعلاج النسيان احرص على ترديدها
+-  El Círculo apaga 125 velas
+-  Wo schmeckts am besten? Wir trinken Probe auf dem Weihnachtsmarkt in Schwabach
+-  'It's So Messed Up' - Woman Put on Adderall Aged 7 Beats 28-Year Addiction
+-  Child Psychologist Reveals The One Thing To Tell Kids Questioning Santa
+-  College Football Sportsboook Promos: Grab $3,800 Bonuses for Army-Navy
+-  A vérfagyasztó P.T.-hez fog kapcsolódni Kodzsima új horror-alkotása?
+-  Viele Einrichtungen in Treuchtlingen sind weiterhin nicht barrierefrei
+-  Brighton and Hove Albion - Burnley, en directo | Premier League
+-  Top Stories: iOS 17.2 Coming Soon, New iPads in Early 2024, and More
+-  Manchester United - Bournemouth, en directo | Premier League
+-  Warum Söder Beckstein einen "blöden Hund" nannte - und was Renate Schmidt Frau Baerbock rät
+-  Mit 94 Jahren regelmäßig im Fitnessstudio: "Krafttraining ist ein Jungbrunnen"
+-  L’ASSE annonce ses deux prochains transferts
+-  Apple @ Work: The new iMac is fantastic, but Apple forgot one thing for business users
+-  Sheffield United - Brentford, en directo | Premier League
+-  Mit 94 Jahren regelmäßig im Fitnessstudio: "Krafttraining ist ein Jungbrunnen"
+-  Wolverhampton Wanderers - Nottingham Forest, en directo | Premier League
+-  Projev prezidenta Pavla: Karel Schwarzenberg miloval svoji vlast. Odchází velká osobnost moderních dějin
+-  Di Francesco: “Affronteremo una squadra in grande condizione fisica e psicologica”
+-  (经济观察)中国—欧盟领导人会晤：反对“脱钩断链”
+-  Vlog | 坐上中国电动巴士去迪拜气候大会会场
+-  【中国那些事儿】外媒：中国稳居全球最大货物贸易出口国地位
+-  综述：老-中合作论坛嘉宾热议共建“一带一路”开启新阶段
+-  中国在联合国气候变化大会上推动应对气候变化南南合作受赞扬
+-  专访：欧中经贸合作良好势头应保持并继续得到强化——访西班牙经济学家胡里奥·塞瓦略斯
+-  亿缕阳光|退伍不褪色 欢迎回家
+-  东南西北小店青年素描：站在风口 立于潮头
+-  “三个统筹”“稳”“进”“立”“破” 关键词里传递2024年中国经济工作新动向
+-  冬季呼吸道疾病高发 如何合理膳食提高免疫力?
+-  新华时评：继往开来，推动中欧关系迈上新台阶
+-  破浪前行 高质量发展迈出坚实步伐丨10个月消费38.54万亿！澎湃动力彰显中国经济韧性
+-  “数字+”撬动产业升级 “云上种菜”带动农民增收致富
+-  节日效应显现、消费需求增加 各地科学施策守好群众“菜篮子”
+-  便民服务“暖”助企行动“惠” 为经济社会发展“添”动力
+-  迪拜气候大会｜综述：中国与中东国家携手应对气候变化
+-  纳米比亚开国总统：中企为纳米比亚可持续发展注入活力
+-  短评：这一票，让美国站在了和平的对立面
+-  美国否决安理会巴以停火决议草案 多国表示失望
+-  解码“河南造”——择“新”处立 向“绿”处行
+-  多举措方便患儿就诊 让群众在家门口享受便捷医疗服务
