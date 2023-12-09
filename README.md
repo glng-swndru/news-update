@@ -1,11 +1,51 @@
 # Latest News
--  Cyprus Business Now
--  गुरुङ संस्कृतिमा विवाह गर्न बेलायती देखि तनहुँमा(फोटो फिचर)
--  Limitations of Microsoft Edge Copilot AI in Summarizing YouTube Videos
--  UNHCR Tegaskan Cuitan Minta Rohingya Diberi KTP dan Pulau Adalah Hoax
--  Background am Gespréich vum 9. Dezember: Gilbert Pregno, Joëlle Christen a Jean-Louis Zeien
--  Colombia avanza en la construcción del primer buque-hospital con inversión de $77.500 millones
--  Gobierno fortalece la búsqueda de 477 militares y policías desaparecidos en Colombia
--  Forero advierte sobre vencimiento de vacunas para la COVID-19 sin utilización
--  Iván Velásquez, ministro de defensa, revela que el ELN mantiene a 38 personas secuestradas
--  В Ярославле началась реконструкция Ленинского рынка
+-  Seçil Erzan telefonu kapattım sandı banka kaydetti! Dava dosyasına giren görüşme
+-  Bakan Yerlikaya: 'İskoçlar Çetesi' çökertildi
+-  Esequibo krizi tırmanıyor! Maduro: Petrol, gaz ve maden işletmeciliği için lisans verdim
+-  DNEVNI HOROSKOP za 9. decembar: Blizanci “lutaju”, Djevice na ivici da uđu u raspravu, Rak u centru pažnje, a vi?
+-  Bakan Yerlikaya paylaştı: İskoçlar Çetesi çökertildi! Elebaşı dahil 38 şüpheli yakalandı
+-  Jelle (74) maakte als kind rookbommen en werd hoogleraar: ‘Stop met beeld van luie puber die niet luistert’
+-  NASA’s Hubble Space Telescope is back online
+-  Tauro y CAI en busca de la gloria en la LPF
+-  Somalí procedente de Panamá era buscado por terrorismo
+-  En 2023 decomisaron más de 30 mil kilos de droga en Panamá
+-  ¡Increíble! Niña imputada por robo a trabajador
+-  Muere niño de 10 años al cruzar en cable un río comarcal
+-  ¡Identificados! Supuesta banda criminal detrás de robo a joyería
+-  Tips para sorprender a tu pareja a distancia
+-  Don Adán Arcia Marín y su mente prodigiosa
+-  75 aniversario de los derechos humanos
+-  El derecho de iniciativa y de referéndum
+-  Fallo minero: un hito en la política
+-  Panorama difícil en el cuadrilátero
+-  Boricua va por el récord de montas en Serie del Caribe
+-  Fidel Escobar en busca de otra final en Costa Rica
+-  Christiansen quiere dar la sorpresa en la Copa América
+-  Penonomé se engalana para recibir la final de la LPF
+-  Resaca del Día de la madre
+-  Nicolle Fergunson soltó el ballet por los deportes
+-  La mató mientras dormía en su cuarto, el Día de la Madre
+-  Infidencias y confidencias del 9 de diciembre de 2023
+-  Габриел в Париж: България и Франция имат отлични отношения
+-  5 Hero Fighter yang Efektif Counter Estes Mobile Legends, Heal-nya Nggak Masalah
+-  Einzelhandel: Alnatura eröffnet neuen Bio-Supermarkt in Hamburg
+-  САУ «Мста-С» ВС РФ поразила пункт временной дислокации ВСУ под Купянском
+-  מזג האוויר: יום שבת חורפי, בתחילת השבוע מתחמם
+-  KKM siasat dakwaan pesakit meninggal dunia tidak diberi rawatan tepat
+-  تخدم مزارعي مطروح.. عيادات بيطرية متنقلة وتوزيع شتلات الزيتون مجانًا
+-  Sektor agrikomoditi sumbang terbesar pendapatan negara
+-  Son dakika! 'İskoçlar'a 'kafes' operasyonu: Bir çete daha çökertildi
+-  Park Hang-seo Bongkar Alasan Vietnam Suka Naturalisasi Pemain Berposisi Kiper
+-  Neuer Auftrag: Milliarden-Deal: Airbus sticht mit neuem Flieger Boeing aus
+-  أعضاء «الوزارية العربية الإسلامية» يرفضون «تجزئة القضية الفلسطينية»
+-  Черно море и Славия се изправят един срещу друг в интригуващ сблъсък на “Тича”
+-  Левски ще надига глава срещу буксуващия Ботев (Враца)
+-  Formula 1 Pelajari Penggunaan Mesin Hidrogen untuk Seri Balap Internasional
+-  Market Pass: Έως πότε μπορείτε να κάνετε την αίτηση
+-  "포스테코글루 오른팔 떠난다!"… '부상 병동+5G 무승+5위 추락+손흥민 이탈'에 이은 큰 타격, "토트넘 최대 위기 다가온다"
+-  이무생(Lee Moo-Saeng) "너나 잘하세요"…이영애와 첫 촬영 때 자신에게 훈계 [MD동영상]
+-  Against The Storm Thunders to Release Today
+-  Prabowo-Gibran Campaign Team Responds to Abuse of Power
+-  Ώρα αποφάσεων Μητσοτάκη για τη βία στα γήπεδα - Εισηγήσεις ακόμη και για διακοπή του πρωταθλήματος
+-  Canelo: El rey soy yo y puedo hacer lo que se me pegue la gana
+-  ตร.สุรินทร์ไล่ล่ากระบะเลี้ยวตัดหน้า จยย.แม่ลูกพุ่งชนสาหัสแล้วหลบหนี
