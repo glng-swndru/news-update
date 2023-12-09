@@ -1,11 +1,11 @@
 # Latest News
--  מודריץ' זעם על החילוף, אנצ'לוטי: "תוצאה טובה במגרש קשה"
--  מורעבים, ללא תרופות ובחרדה תמידית: עדויות השבים מהתופת שהוקרנו בכיכר החטופים
--  Cumhurbaşkanı Erdoğan Haliç Kongre Merkezi'nde TOTBİD üyelerini kabul etti
--  MAÇ SONUCU| Beşiktaş 1-3 Fenerbahçe
--  Six TTC subway stations closed this weekend
--  Mariana Rodríguez, esposa de Samuel García, se registra para la alcaldía de Monterrey
--  Health Tips: దానిమ్మ రసం ఉపయోగాలు తెలిస్తే మీరు జీవితంలో డాక్టర్ దగ్గరకు వెళ్లే పని ఉండదు..
--  YouTube «комментлар»ни паузага қўйиш имкониятини жорий қилди.
--  Amra Džeko podijelila simpatičnu snimku slavlja u kući nakon gola Edina
--  Bahn startet neuen Fahrplan: Mehr Züge, mehr Nachtverkehr und teurere Tickets
+-  Los motociclistas que usan casco tienen un 73% menos de mortalidad en accidentes
+-  הכוכב האדום חוגגת שיא עולמי, בכר: "נחמד להיות חלק מהיסטוריה"
+-  "סבא מכר מאפים מעגלת תינוק, היום יש לנו 60 סניפים ומפעל"
+-  استشاري يحذر: مقطع إخراج حجر من عين مريض تدليس وفبركة وكذب
+-  Kärppien mahtikiristä jäi jäljelle vain paha mieli – Tuukka Tieksola puijasi vanhaa seuraansa: "Kiekot löysivät kovalla prosentilla verkkoomme"
+-  Klimaatactivisten vergroenen Canal Grande
+-  “قذارة جديدة تضاف إلى نفايات العالم”.. زارا ZARA تروج لمنتجاتها بأكفان وجثث فلسطينيين!
+-  Batņa gūst divus vārtus uzvarētā Somijas čempionāta spēlē
+-  Vince Russo on Dealing With the Politics of WCW’s Locker Room, Has No Regrets
+-  Heather Graham, 53, Sizzles in Steamy Sex Scene in Thrilling New Film
