@@ -1,51 +1,11 @@
 # Latest News
--  Europe reaches deal on world's first comprehensive AI rules
--  U ispunjenom Domu kulture Nogometni klub Vinodol obilježio značajan jubilej
--  Bahnverkehr nach Streik wieder angelaufen - hohe Auslastung erwartet
--  Kakav doživljaj! Mislio da na udici ima velikog goluba, a na kraju izvukao kapitalnog gofa!
--  Jeste li kada pokušali izraditi vlastitu panulu? Evo recepta za siguran uspjeh i bogat ulov
--  عاجل.. توقعات طقس اليوم: برد وسيول وأمطار غزيرة على هذه المناطق
--  NBA: Εξαιρετικός o Σάσα Βεζένκοφ, έκανε ρεκόρ πόντων στη νίκη των Κινγκς
--  En Sarthe, les chiens aussi ont droit à leur marché de Noël
--  La mairie de quartier Nantes Nord va déménager en fin d'année 2024
--  DNA testiyle gelen 3 milyar lira servet! Miras savaşı kızıştı: Babamın hikayesini sürdürmek istiyorum
--  Ilustrativo final del iraní Tabatabaei
--  Aroldis Chapman: récord Guinness de pitcheo más rápido
--  Las vueltas
--  El Rey del hit
--  Adegan ‘softporn’ bawah meja, Amir Ahnaf teruk dikecam
--  Oroscopo Branko oggi, sabato 9 dicembre 2023: le previsioni segno per segno
--  אחרי השימוע על אנטישמיות: עשרות חברי קונגרס דורשים לפטר את נשיאות האוניברסיטאות
--  מ"החיים עצמם" ועד "אלה החיים": קריסת המותג ביבי
--  "Bizim enerji sahəsinin inkişafı neft hasilatından təbii qaz istehsalına keçid edib"
--  Кириенко назвала обезличиванием решение МОК о допуске россиян на Олимпиаду
--  नॉक-आउट मेन खो-खो टूर्नामेंट में मुंगेर के 6 लोग शामिल:पटना में चल रहा है लीग, कई कॉलेज के छात्र-छात्राएं ले रही हिस्सा
--  Mirjana Marinić nova predsjednica Kluba Sušačana
--  Μητσοτάκης - Ερντογάν: "Ήρεμα νερά" και ανοικτά ερωτήματα
--  OpenAI working with ex-Twitter India head to navigate AI landscape: report
--  Bakıda ana körpəsini taksidə qoyub getdi
--  पन्ध्र बिघामा गरिएको गाँजाखेती नष्ट
--  पर्यटन विकासका लागि गुरु योजना तयार गर्न निर्देशन
--  जनतासँग जोड्न सकेमात्र कांग्रेस परिवर्तन हुन्छ : डा.कोइराला
--  दशौँ राष्ट्रिय खेलकुदको समन्वय बैठक सम्पन्न
--  華燈背後的光污染｜公民社會
--  Malta complains to EU over Irish gambling proposals - report
--  Οι 5 φορολογικές παρεμβάσεις που θα ενισχύσουν τα δημόσια έσοδα
--  جادون سانشو وحلم يصعب تحقيقه بوجود تين هاج
--  মানবাধিকার দিবসে শিক্ষার্থীদের ভাবনা
--  그러다 ‘너 혼자’ 산다?…女 원하는 신랑감은 178cm·연봉 6천, 신붓감은?
--  內華達州校園槍擊︱第3名罹難者身份曝光 69歲日裔女副教授身中多槍亡
--  Barbora Seidlová: Brno se mnou ladí ve stejné tónině
--  Biz buna müvəffəq olmuşuq
--  珍惜生命｜尖沙咀男子酒店房間自刎身亡
--  Atchannaidu: వైసీపీ ప్రభుత్వ అసమర్థతను టీడీపీకి అంటగడతారా?
--  2024 میں پاکستان میں انٹرنیٹ کی فائیو جی سروس دستیاب ہوگی، ڈاکٹر عمر سیف
--  Avropada Azərbaycan qazına böyük ehtiyac var
--  Marraige: బీజేపీ ఎమ్మెల్యే వివాహానికి గ్రాండ్ ప్లాన్.. 4 నగరాల్లో రిసెప్షన్, 3 లక్షల మంది అతిథులు
--  В Херсоне объект критической инфраструктуры получил повреждения
--  ตามมาร์ค! สาธิตประกาศลาออก ลั่นอุดมการณ์ ปชป. เปลี่ยนไป
--  تفاصيل مباراة الأهلي أمام الرائد في الدوري السعودي
--  Highlights : les 41 points de Kawhi Leonard face au Jazz !
--  Ketua BEM UGM Gielbran Dipuji Layak Jadi Wapres Ketimbang Gibran, "Ini Anak Beraninya Bukan Main"
--  Pisa-tulokset ennakoivat karuja aikoja suomalaisille – Muutos on vielä mahdollinen
--  कौन हैं धीरज साहू? जिनके यहां मिला 300 करोड़ से अधिक कैश
+-  ‘Arrest anyone protesting on my behalf’ – Kogi SDP guber candidate, Ajaka (Video)
+-  Üzüm üreticilerine müjde!
+-  Emin Çölaşan yazdı: Asgari ücret tiyatrosu!
+-  لن تتخيل تأثير حب الشباب على حالتك النفسية والاجتماعية
+-  Devotion A Story Of Love And Desire Season 2 Release Date: Cancelled Or Renewed?
+-  Drought continues: De La Salle’s bid for eighth state title falls short as Spartans lose to Mission Viejo
+-  I Captured The Tyrant’s Heart Chapter 28 Release Date: Official Update
+-  My Hero Academia Chapter 409 Release Date: Spoilers, Recap & More
+-  ‘അങ്ങനെ അവസാനം അത് സംഭവിച്ചു’; വിവാഹ ഗോസിപ്പിൽ പ്രതികരണവുമായി റെനീഷയും വിഷ്ണുവും
+-  Το Βαρωσιώτικο ντέρμπι «βάφτηκε» «ερυθρόλευκο»
