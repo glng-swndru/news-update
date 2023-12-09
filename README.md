@@ -1,11 +1,11 @@
 # Latest News
--  Invasie grote barmsijzen
--  Ukraiński parlament apeluje o otwarcie negocjacji o członkostwie w Unii Europejskiej
--  Bakan Kacır'dan İsrail zulmüne tepki
--  طعنه ولاذ بالهرب.. جريمة قتل في المرج
--  محافظ القليوبية يتفقد الاستعدادات النهائية للانتخابات الرئاسية من داخل مركز السيطرة
--  الانتخابات الرئاسية.. ننشر أسماء وأماكن لجان تصويت الوافدين بالإسكندرية
--  الاحتلال الإسرائيلي يشن قصف مدفعي على عدد من قرى جنوب لبنان اليوم
--  مواد غذائية وطبية.. "الصحفيين" و"مصر الخير" تدشنان شحنة مساعدات لأهالي غزة
--  مشاجرة تنتهي بجثة قتيل في عين شمس
--  ضبط 3 أشخاص لاتهامهم بالإتجار بالعملة خارج نطاق السوق المصرفي
+-  Muğla'da 22 kaçak göçmen yakalandı
+-  Samsunspor evinde dört köşe!
+-  İsmail Kartal'dan Djiku ve liderlik açıklaması!
+-  لونين يتصدى لأول فرص ريال بيتيس
+-  [COP28서 열린 RewirEd Summit, 기후 행동 교육의 새 지평 열다
+-  [Menarini Group, 새로운 무진행 생존 데이터 발표
+-  EN IMAGES – Italie : une "boulangerie-prison" découverte sur le site archéologique de Pompéi
+-  “15분 도시는 가로수 살리기서 시작”
+-  Jetten wants the Netherlands to cooperate internationally against fossil subsidies
+-  Russland: Versteckte Anti-Putin-Botschaft auf Werbetafeln von Nawalny-Unterstützern
