@@ -1,51 +1,51 @@
 # Latest News
--  Barcelona kann Real Madrid Tabellenführung retten
--  Müller verspricht Reaktion auf Debakel - «Wutmotor angehen»
--  Sánchez clama en Berlín por un socialismo europeo unido contra el "odio letal" de la ultraderecha
--  الجميل يختتم زيارته الأميركيّة: تحركات "حماس" في لبنان تشكّل تحديًا للدولة وللبنانيين
--  Chiny: nie ma szans na sukces COP28 bez rozwiązania w sprawie paliw kopalnych
--  ΑΕΚ Λάρνακας:"Ίσως από τα καλύτερα παιχνίδια της ΑΕΚ τη φετινή σεζόν"
--  Die SPD stärkt ihrem Kanzler den Rücken
--  Localizan hombre sin vida en arroyo de la Campesina
--  Denuncian en redes caso de puma envenenado
--  Detienen a sujeto armado en las Quintas Carolinas
--  יותר הפסדי בית מכל תקופת פרגוסון: השפל החדש של מנצ'סטר יונייטד
--  “Informar desde Gaza es arriesgar la vida”
--  Вышел трейлер первого сезона ремейка "Мистер и миссис Смит"
--  Κολοσσός-Προμηθέας 114-109: Το απίθανο φινάλε της κανονικής διάρκειας στη ματσάρα της Ρόδου (vid)
--  Tarihi eser kaçakçısı baba-oğul-torun yakalandı 46 sikke ele geçirildi
--  Bayern Munique sofre primeira derrota e é goleado em Frankfurt
--  Kontroverze při výhře Sparty. Penalta! Tak ne, přímý kop a červená pro Vitíka. Měl ji vidět i Štěpánek, ujišťuje expert
--  عسير: إحباط تهريب 350 كيلوغراما من «القات»
--  Overzicht | Gevechten Gaza zwellen aan, 'VS medeplichtig aan oorlogsmisdaden'
--  Multi-year high Greed floods back into crypto market; Why does it matter?
--  Sparta kjørte over Vålerenga på Jordal
--  V živo: Šeško čaka na priložnost na derbiju, katastrofa Bayerna
--  Handtekinn undir áhrifum við vínbúð
--  Neftçalada məktəbdə yanğın oldu
--  Bundesparteitag: Die SPD stärkt ihrem Kanzler den Rücken
--  Bundesparteitag: Die SPD stärkt ihrem Kanzler den Rücken
--  Rapper 2 Chainz Hospitalized After Miami Car Accident
--  Shqiptarja Edit Shkreli betohet si gjyqtare në Nju Jork LAJME 09/12/2023 18:04 Edit Shkreli, një shqiptare që jeton në Shtetet e Bashkuara të Amerikës, të premten është betuar si gjyqtare pranë Gjykatës Supreme të Bronx në New York. Për këtë ka shkruar ish-drejtori i Policisë së Shqipërisë, Gledis Nano, i cili ka qenë i ftuar në ceremoni. Nano ka shkruar se Shkreli do të jetë gjyqtarja e parë shqiptare në gjykatën Amerikane. Të ftuar në këtë ceremoni kanë qenë edhe konsulli i Kosovës në Nju Jork, Blerim Reka dhe përfaqësues të komunitetit shqiptar. Njoftim për betimin e Edit Shkrelit ka bërë edhe Konsullata e Kosovës në Nju Jork. “Dje, në Gjykatën Supreme të Bronksit, në ceremoninë e betimit të gjyqtares Edit Shkreli, të parës gjyqtare shqiptaro-amerikane të Nju Jorkut. Në mesin e folësve tjerë si: Jamaal T. Bailey, Nathalia Fernandez, e Kevin Thomas, (senatorë të shtetit të Nju Jorkut) dhe gjyqtarëve Roëan D. Wilson, Doris M. Gonzales dhe Matthew Parker- Raso, në emër të Konsulatës së Përgjithshme të Republikës së Kosovës, i urova gjyqtares Shkreli detyrën e re, si një arritje që na bën krenar të gjithë shqiptarëve”, shkruan Konsullata.
--  Aumentan las enfermedades respiratorias en Sinaloa, pero hay cero casos de COVID-19: Salud
--  اللبنانية نورا المرعبي تحصد الميدالية الذهبية وجائزة المنظمة العالمية للملكية الفكرية للمخترعين
--  В Германии роботы помогают убирать и подавать еду с гостиницах и ресторанах
--  POBEDNICA POPULARNOG NETFLIKSOVOG RIJALITIJA NIJE VIDELA NI PENI OD NAGRADE! Besna je na produkciju: "Stara sam i želim u PENZIJU"
--  ‘The Peasants‘ Co-Creator Hugh Welchman Talks Genesis Of Ambitious Animated Literary Adaption – Contenders International
--  Kokosy na ľade. Blackhawks povolali do NHL Jamajčana
--  Beşiktaş'a penaltı şoku! Taraftar yıkıldı
--  ABD Dışişleri Bakanı Blinken'dan Bakan Fidan ile görüşmesine dair açıklama
--  El Valladolid se aferra a la épica frente a un 'peleón' Amorebieta
--  Liga: le Real freiné par le Bétis Séville d’Ezzalzouli (1-1)
--  "الأرصاد": إنذار أحمر لأهالي منطقة مكة .. أمطار غزيرة وسيول تستمر لساعات
--  مكافحة المخدرات: ضبط أردني بتبوك وسوري في الجوف
--  Mash: Вера Брежнева готова выступать на корпоративах только при заклеенных видеокамерах
--  Bellingham no es suficiente en el Villamarín
--  بيتيس يعطل ريال مدريد ويهدد صدارته
--  CO2-Fake: Die Sonne als Feindbild
--  Mourinho se defiende: “No ofendí al árbitro Marcenaro, nunca he cuestionado su calidad”
--  MHP, Saffet Sancaklı'nın istifasını istedi
--  Соболев оставил сообщение в соцсетях после победы над "Крыльями Советов"
--  La probabile formazione del Torino: Ricci prende il posto di Linetty
--  Zjarr në një spital në Itali, humbin jetën 3 persona
--  Τι άλλαξε ο Κόσκελα;
+-  تسهيلات للمواطنين.. خطة وزارة الداخلية لتأمين الانتخابات الرئاسية (فيديو)
+-  وزير الصحة يوجه بتيسير مشاركة العاملين بالقطاع الصحي في الانتخابات الرئاسية
+-  بدء غرفة عمليات حملة المرشح الرئاسي فريد زهران لمتابعة الانتخابات
+-  "بعد نجله بيومين".. الاحتلال يعلن مقتل ابن شقيق وزير بحكومة الحرب في غزة
+-  بـ 3 خطوات.. كيف يمكنك الاستعلام عن لجنتك الانتخابية؟
+-  الصحة الفلسطينية: استشهاد شاب برصاص الاحتلال الإسرائيلي في الضفة
+-  متحدث ائتلاف النزاهة يكشف تفاصيل متابعة الانتخابات الرئاسية
+-  وزير العدل الفلسطيني: "الفيتو" الأمريكي ضد وقف إطلاق النار بغزة يجعلها شريكًا لإسرائيل في جرائمها
+-  مانشستر يونايتد يسقط أمام بورنموث بثلاثية نظيفة
+-  لقاء الخميسي تفاجئ جماهير الزمالك في مواجهة ساجرادا الأنجولي (صورة)
+-  "من حق الكبير يتدلع".. كيف علق الجمهور على أرقام صلاح القياسية
+-  "ديون وحسد".. 4 أبراج عليها الحذر في بداية الأسبوع الثاني من ديسمبر
+-  WPL Auction 2024: ఐపీఎల్‌ వేలంలో తెలంగాణ అమ్మాయి, గుజరాత్‌ టీమ్‌లోకి త్రిష
+-  Ünlü oyuncu sahnede kaza geçirdi!
+-  Europe agrees landmark AI regulation deal
+-  Britney verloor haar zus aan drugs en haar vader aan kanker. 'Als ik een kist zag, brak het zweet me uit'
+-  ING ziet grote verschillen tussen spaarbuffers van Nederlanders
+-  'Voor moreel leiderschap moet je je een betere wereld willen voorstellen. Kan Europa dat?'
+-  Paulista A3: Desportivo Brasil se reforça com zagueiro formado no Fortaleza
+-  Man Utd booed off pitch by furious fans after latest humiliation as fans call it ‘sort of result that gets you sacked’
+-  नोकऱ्यांच्या बाबतीत 2023 हे वर्ष खूपच वाईट, IT क्षेत्राला सर्वाधिक फटका
+-  Boston - Arizona. Pastrňákův tým hraje v příhodném čase proti zvedající se Arizoně
+-  400 personas y 110 casas afectadas deja desbordamiento de río en Muisne, según balance de Servicio de Riesgos
+-  Ljudi s 'najvrjednijom' krvnom grupom ne bi trebali konzumirati ove namirnice: Jedna stvar je važna
+-  Tűzifa, ajándékcsomag, utalvány – így segítenek karácsony közeledtével a DK-s polgármesterek
+-  Heena Khan:टीवी एक्ट्रेस हीना खान ने व्हाइट ड्रेस में कराया फोटोशूट, देखें तस्वीरें
+-  MAFS star Ella Morgan leaves little to the imagination in plunging glitzy dress on wild night out
+-  Los goles de Juric y Salazar resuelven el atasco del Real Valladolid ante el Amorebieta
+-  WSJ: Bajdenov rejting na najnižem nivou do sada, prvi put kaska za Trampom
+-  Reifen-Problem nach Lügen-Prozess - Droht Gil Ofarim jetzt neuer Ärger?
+-  Heidenheims Beste glänzt mit Vorlagen: „Fuß ist Gold wert“
+-  Antti Aallon hypyt jäivät tasapaksuiksi Klingenthalissa – Geiger katkaisi Kraftin voittosarjan mäkihypyn maailmancupissa
+-  Martina Velarde dice que lloró y vomitó durante el 23-J para sacar el escaño
+-  ALEKSANDAR ŠAPIĆ &quot;Kosovo i Metohiju čuvamo mudrošću&quot;
+-  U nedjelju kiša i snijeg, izdan žuti alarm. U novom tjednu i dalje dosta oblaka i kiše
+-  DOSTA IZNENAĐENJA U PREMIJER LIGI Bornmut razbio Junajted u Mančesteru
+-  Mornar ostao na začelju, Cedevita Olimpija u finišu riješila meč
+-  Bingöl'de sağanak yağış kazaya neden oldu
+-  Manchester United se obrukao na Old Traffordu, Bournemouth slavi veliku pobjedu
+-  Ο νέος δικαστικός χάρτης και οι τροποποιήσεις στον Ποινικό Κώδικα τα κυρίαρχα θέματα της συνέλευσης της Ένωσης Εισαγγελέων Ελλάδος
+-  Princ Hari će morati na sud
+-  Selena Gomez admits getting this cosmetic procedure whilst defending her new romance on social media
+-  Baku miatt is támadja Lewis Hamilton az FIA-t
+-  دولت کسی حد تک خوشی مہیا کر سکتی ہے، آپ اسکے بغیر بھی خوش رہ سکتے ہیں،خوشی اور شادمانی کی سلطنت خیالات اور احساسات میں واقع ہے
+-  NAPRAVITE SAMI Dašak somota obogatiće vaš dom uoči praznika, ovi ukrasi se prave za tili čas, a izgledaju svetski!
+-  Vučić na TV Pink: Orban je iskren prijatelj i čovek koji voli Srbiju - za to kapa dole i beskrajno mu hvala
+-  UW Board of Regents Reject Deal to Freeze DEI Positions
+-  "أموالنا لنا" في اليوم العالمي للفساد: عقاب المافيا الممسكة بالمال والقضاء ليست مستحيلة!
+-  Erster Sieg nach 105 Tagen - „Wir haben Union-Berlin-Fußball gespielt“
+-  No passengers insured when plane slid off runway at Tonga airport
