@@ -1,11 +1,51 @@
 # Latest News
--  저무는 세계화 시대, K배터리 부담도 커진다 [최준영의 경제 바로읽기]
--  अब इतना सस्ता हो गया iPhone 14, बंपर डिस्काउंट के बाद खरीदना हुआ आसान
--  Toyota sähköistyy Euroopassa – Tällainen on Urban SUV, joka tulee ensi vuonna sähköautojen suosikkiluokkaan
--  Shahana suicide case: Accused Dr Ruwise’s kin to be arraigned
--  KL vieraili maassa, jossa pelätään nyt Putinin kostoa
--  News24 Business | OPINION | The results are in: How a 4-day week can help SA tackle jobs challenges
--  안드레 무니즈 ‘지켜봐주세요’ [MK포토]
--  Thu nhập người lao động các đơn vị chế biến gỗ đạt 9,150 triệu đồng/người/tháng năm 2023
--  Nhiệt điện Phú Mỹ nâng cao kỹ năng xử lý sự cố cho vận hành viên
--  Timberwolves top Grizzlies 127-103 for sixth straight win
+-  Extended Reality To Add $250 Billion To Indian Economy: Report
+-  My Father Wanted To Confer Bharat Ratna On Manmohan Singh: Sharmistha Mukherjee
+-  Adani Total Gas on Target To install 75,000 EV Charging Stations By 2030: Gautam Adani
+-  Paramedics dispute to go to tribunal as registration lapse looms
+-  Paramedics dispute to go to tribunal as registration lapse looms
+-  中企업계 "상생협력법 본회의 통과 환영…불공정거래 근절 발판"
+-  임창욱 명예회장, 대상홀딩스우 주가 급등 후 장내 매도
+-  복지부, 한의약 육성 통해 '세계화 추진'
+-  '마에스트라' 오늘(9일) 첫 방송…이영애, 단원들과 기싸움 '팽팽'
+-  Nhiệt độ toàn cầu có thể tăng vượt ngưỡng 1,5 độ C trong năm tới
+-  Cô gái ngoài 20 tuổi đã có tới 300 viên sỏi thận vì 2 thói xấu rất nhiều người trẻ mắc
+-  “ชัยชนะ” มอง “เฉลิมชัย” เหมาะสมนั่งหัวหน้า ปชป.
+-  리버풀, ‘전설의 아들’ 영입 협상 시작…496억 앞세워 유벤투스 제친다
+-  Consejería Jurídica Federal impugna fallo sobre extinción de fideicomisos
+-  দারুণ ব্যাটিংয়ে চতুর্থ দিন শুরু বাংলাদেশের
+-  VIDEO: Novia impacta con atrevido vestido en su boda; así reaccionó el novio
+-  Tử vi 12 cung hoàng đạo ngày 9/12: Sư Tử cẩn thận bị lừa gạt
+-  Meta sử dụng 1,1 tỷ ảnh để huấn luyện AI, có khả năng trong số đó bao gồm ảnh của chính bạn
+-  Dabigi assumes duty as 42nd Commissioner of Police in Kaduna
+-  Минобороны сообщило о сбитом тараном дроне ВСУ «Баба Яга»
+-  Jojo terus gegar dunia, menang KO ke atas dalam masa 36 saat
+-  गोरखनाथ, गोरखा र पर्यटन
+-  प्रकृतिको चमत्कार एलोस्टोन राष्ट्रिय निकुञ्ज
+-  सांसदलाई प्रशिक्षण दिएर संसद्मा पठाउनुपर्छ : पाण्डे
+-  हृदयरोग उपचारका साक्षी
+-  आगलागीबाट एक घर जल्यो
+-  कष्टकर यात्राको सम्झना (कविता)
+-  गजल
+-  तराईमा बाक्लो हुस्सुसँगै चिसो बढ्यो
+-  Hà Nội thanh tra việc chậm đóng bảo hiểm tại 45 doanh nghiệp
+-  В России создали беспилотники для ледовой проводки и маркировки айсбергов
+-  मुख्यमंत्री के नाम पर कल लगेगी मुहर! वसुंधरा-बालकनाथ या कोई और, यहां जानें
+-  दिल्ली में फरिश्ते स्कीम को लेकर सुप्रीम कोर्ट में पहुंची ‘एलजी बनाम सरकार’ की लड़ाई, जानिए पूरा मामला
+-  مشروع قرار بمنظمة الصحة العالمية بشأن الوضع الإنساني الكارثي في غزة
+-  इंटरव्यू: विधानसभा चुनाव में हार के बाद बिखरे विपक्ष के लिए क्या हो 2024 की रणनीति? एक्सपर्ट ने बताया प्लान
+-  अटापट्टू से डॉटिन तक… इन धाकड़ खिलाड़ियों पर ऑक्शन में होगी झमाझम पैसों की बारिश!
+-  ‘จุรินทร์’เชื่อเลือกหัวหน้า ปชป.เรียบร้อย ระบุการแข่งขันในพรรคเป็นเรื่องปกติ
+-  केशवानंद भारती केस : वो सुप्रीम फैसला जिसने खींच दी थी संसद की लक्ष्मण रेखा, भड़क गईं थीं इंदिरा गांधी
+-  Bán tải Kia cùng cỡ Ranger, Hilux chốt sản xuất năm sau: Xuất xưởng khoảng 130.000 xe/năm, sẽ bán ở nhiều nước
+-  Pedestrian hit, killed by driver in South San Jose
+-  “อภิสิทธิ์” ไม่รู้ “ชวน” จะเสนอชื่อ บอกรอให้ถึงเวลา
+-  সায়মা ওয়াজেদ পুতুলের জন্মদিন আজ
+-  Ícone da literatura infantil, Ruth Rocha lança novo livro aos 92 anos e faz sessão de autógrafos na Livraria da Vila
+-  Latvijas tirgotāji brīdina, ka varētu pieaugt olīveļļas cenas
+-  Natal da Disney Grátis em SP: encontros ao vivo com Mickey, Minnie, Donald e Pateta acontecem no Shopping Tietê Plaza
+-  Mais de 20 atrações com desconto: é a Black Friday da diversão e turismo em São Paulo
+-  Marcelo Paz renuncia à presidência do Fortaleza para integrar SAF
+-  Gaza fighting intensifies, US vetoes Security Council demand for ceasefire
+-  Porziņģis atgriežas ar 19 punktiem jau pirmajā puslaikā un uzvaru pār "Knicks"
+-  Presenta diputada segundo informe de actividades
