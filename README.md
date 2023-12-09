@@ -1,51 +1,51 @@
 # Latest News
--  나폴리는 김민재가 너무나도 그립다... “KIM이 떠난 이후 실수 고쳐줄 사람이 없어”
--  Tutkijan synkkä arvio: Ukraina ei ole enää erityinen lännen silmissä
--  EXCLUSIVO
--  14 fallecidos es el saldo de enfrentamiento entre civiles y estructura criminal en México
--  ভোট চাওয়ায় উপজেলা চেয়ারম্যানের বক্তব্য থামিয়ে দিলেন ইউএনও, পরে জরিমানা
--  MIMORIADNE Ivan má TÝRAŤ len 18-ročné dievča! Desivé DETAILY, hrôza, čo jej robí: Zúfalá prosba o POMOC
--  Trpké priznanie komičky Simony Salátovej: Spomienky na Vianoce z detstva jej nahnali slzy do očí!
--  F1, Verstappen teme la Ferrari: "Ecco cosa mi aspetto..."
--  La 4a Coppa Italia di sitting la alza la Cedacri Cesena
--  Come si comportano gli italiani a Natale? Non benissimo: quanto spreco! Ma si può rimediare
--  Esposito scatenato, Pirlo risorge. Colpo Cremonese, in 10 stende il Venezia
--  Inspiratie en ideeën voor Ouwe Sunderklaas
--  Sánchez avala al canciller Scholz en plena crisis de la socialdemocracia alemana
--  Julio Casares é reeleito presidente do São Paulo e diz que vai continuar 'caminhada de reconstrução'
--  Bourse universitaire 2023/2024 : une importante annonce pour les étudiants
--  Mâncarea preferată a românilor, otravă pentru inimă! Dr. Virgiliu Stroescu: E ipsos pe vase
--  Політехніка-Галичина вдруге в сезоні перемогла Київ-Баскет у Суперлізі
--  Uzależnienie od pornografii. Seksuolog: Oglądają ją już 11-latkowie!
--  Aos 81 anos, Paul McCartney atrai jovens da Geração Z em shows no Brasil
--  Redução drástica nas receitas, elenco inchado e calendário enxuto: veja os principais desafios do Santos na Série B de 2024
--  VIDEO: Bayernu prijeti katastrofa, Eintracht vodi s 3:1 na poluvremenu
--  Lula recebe telefonema de Maduro em meio a tensões entre Venezuela e Guiana
--  Полицијата трага по 22-годишна девојка во Скопје
--  Boletim médico atualiza real estado de saúde de Zé Neto
--  Anabel Belloso dice que el FMLN tiene amor para cambiar el país
--  Kaduna bomb tragedy: Reps laments loss of lives, urges Military to be cautious on drone attack
--  Yeni nazir müavini kollektivə təqdim olundu
--  Ailesiyle tartışıp eşeğe binerek evi terk etti: Ekipler zihinsel engelli genç için seferber oldu
--  El Espanyol no puede ante un Zaragoza con 10
--  Himanta Biswa Sarma Feeding Giraffe: ছোট্ট জিরাফ পারিজাত-কে দুধ খাওয়াচ্ছেন হিমন্ত বিশ্ব শর্মা, গুয়াহাটি চিড়িয়াখানার ভিডিয়ো
--  Prabowo Hadiri Puncak Perayaan HUT ke-9 PSI di Semarang
--  Mützenich warnt vor der AfD: „Hört gut zu, was in unserem Land passiert“
--  신수지, 밀착 운동복 입고 놀라운 허리 꺾기 '깜짝'…"유연성 살아있네"
--  Inameh prevé lloviznas dispersas en el país
--  Donald Trump Legal Move Spells 'Danger Dead Ahead,' Former Prosecutor Warns
--  Torcedor do Wolverhampton é condenado a seis meses de prisão por atos racistas a Ferdinand
--  Teška saobraćajna nesreća kod Kruševca: Jedna osoba poginula na licu mesta
--  Denuncian que Roberto Abdul, presidente de Súmate, fue presentado a escondidas ante tribunal contra terrorismo en El Helicoide
--  Ganjar-Mahfud Bakal Tegaskan Komitmen Penegakan Hukum dan HAM di Debat Perdana
--  Warum Werder-Kapitän Friedl gegen Augsburg fehlt
--  Bez “lošeg momka” na Australijan openu
--  Sean Canney raises concerns over Fodder Scheme for Shannon Callows
--  Man Utd 'are finished' as fans slam disgraceful defending for Bournemouth goal
--  UFOs: how astronomers are searching the sky for alien probes near Earth
--  Facemask mandatory sa BuCor
--  Education should look to the way artists are embracing AI, instead of turning its back on the technology
--  Nākamā gada veselības nozares kopējais budžets būs 1,88 miljardi eiro
--  ‘ไอซ์ พาริส’ ชวนเเฟนๆ กว่าร้อยชีวิต จัดปาร์ตี้หมูกระทะ
--  بلينكن يجري مباحثات مع نظرائه من دول عربية وإسلامية
--  Magaly Medina a Dorita Orbegoso por criticar a Samahara Lobatón: “También ha tenido líos con el padre de su hijo”
+-  Cena olivového oleja prudko stúpa pre sucho a slabú úrodu v Španielsku
+-  الثلاثاء.. بدء المؤتمر العلمي الرابع لتكنولوجيا الذكاء الاصطناعي
+-  [ŽT] „Tai nebus įprasta bausmė...“ Girkinas pagaliau suprato, kas jo laukia (Video)
+-  Nord-Kivu : reprise des combats entre M23 et groupes armés locaux à Mufunyi Shanga
+-  Серебряный призер Олимпиады в прыжках с шестом Сидорова завершила карьеру
+-  🎥 | Michiel Kramer niet herkent door Engelse TikTokker: ‘Voor wie speel je?’
+-  Fortnite Is Reviving Rock Band — With a Little Help From the Weeknd
+-  مصرع طفل وإصابة والده في حادث بقنا
+-  مطور عقاري: تثبيت سعر الدولار معيار أساسي في تصدير العقارات
+-  Moet er een grens aan rijkdom worden gesteld? Dit draagt 'de geur van de communistische heilstaat'
+-  Erdogan veroordeelt veto VS tegen wapenstilstand Gaza
+-  CGO: Cijena korupcije se plaća na svakom koraku
+-  Jens Adams tevreden met tweede plaats achter Wout van Aert: “In het begin had ik nog iets over”
+-  লিভারপুলের নাটকীয় জয়ে সালাহর ‘ডাবল সেঞ্চুরি’
+-  Beer shortage in Karnataka? Bira, Carlsberg, others to suffer as govt halts third shift operations
+-  Что почем на декабрьской Комаровке?
+-  Iran tvrdi da su beskorisni pokušaji da se obnovi nuklearni sporazum
+-  بالصور... الجيش الإسرائيلي يعثر على أنفاق في شرق غزة
+-  Demi Leluhur, Demi Nenek Moyang, Bolehkah Bersumpah Seperti Demikian?
+-  Goðsögnin gefur sterklega í skyn að skórnir séu að fara á hilluna – ,,Gæti verið minn síðasti leikur“
+-  الخارجية الفلسطينية تطالب بتدخل دولي عاجل لوقف جريمة التطهير العرقي في القدس
+-  Отступил. В США заметили неожиданные перемены в поведении Зеленского
+-  حزب الله يستهدف مقر قيادة بثكنة برانيت الإسرائيلية
+-  265 ألف طلب إسرائيلي لحمل سلاح بالضفة خلال شهرين
+-  Second man charged with murder of 23-year-old nursing assistant Odhran Kelly
+-  Reactivación turística en Acapulco: Abren show de clavados en La Quebrada
+-  Semifinales Liga MX vuelta ¿Dónde ver y a qué hora?
+-  Tennis : Nadal de retour, Federer sort du silence
+-  BREAKING NEWS: The Supercomputer that predicted Argentina to win the World Cup in 2022 has finally predicted where Chelsea will finish this Season.
+-  [오늘의 운세] 12월 10일 오늘의 띠별 운세
+-  김범석 펜스 직격 2루타+타이페이돔 개장 1호포 폭발 'LG가 기대할 만 하네'
+-  6살 때 ‘세계에서 가장 예쁜 축구 스타 딸’→15년후 세계적인 톱 모델 됐다→아빠는 EPL서 뛴 블론도
+-  Großflächiger Stromausfall in Mainz
+-  Еще 100 россиян покинули Газу
+-  Петър Костадинов: Ние не сме фаворити за първото място - Труд
+-  Tarabov zákon o envirozáťažiach problém podľa Stohlovej nevyrieši, podáva pozmeňujúci návrh
+-  Arema FC Menang Atas Persis Solo
+-  Las Palmas sale vivo del asedio albiazul
+-  Cochin Shipyard pushes for indigenous fabrication partners
+-  Chinnajeeyar Swamy: కేసీఆర్‌ని పరామర్శించిన చిన్నజీయర్ స్వామి
+-  उस रात एक सर्जरी हुई और फिर… लखनऊ का वो अस्पताल जिसे लोग आज भी ‘भूतिया’ बोलते हैं!
+-  هذه تسعيرة دولار السوق الموازية عصراً
+-  क्या दानिश अली को राहुल गांधी के गले लगना भारी पड़ गया? जानें कांग्रेस से इतना चिढ़ी क्यों हैं मायावती
+-  Gowls ta’ Apap u Bruno jagħtu rebħa meritata lil Hibernians fuq Valletta
+-  Tunisie: La création d’un fonds national pour la réforme éducative fait débat à l’ARP
+-  Il Lions club Siracusa Aretusa e il Siracusa Calcio 1924 alla pediatria dell’Umberto I
+-  Bećirović sa Scholzom: Dodik je izgovorio laž, Njemačka je uz BIH
+-  महुआ मोइत्रा का मामला राहुल गांधी से कैसे अलग? सांसदी जाने के बाद अब क्‍या हैं ऑप्‍शन
+-  महुआ मोइत्रा का मामला राहुल गांधी से कैसे अलग? सांसदी जाने के बाद अब क्‍या हैं ऑप्‍शन
+-  बुलेटप्रूफ जैकेट, हाई सिक्योरिटी रूम होने के बाद सुखदेव गोगामेड़ी क्यों कर गए ऐसी लापरवाही? दंग कर देगा फैक्टर
