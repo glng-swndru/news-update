@@ -1,11 +1,11 @@
 # Latest News
--  השדר עקץ: "רונאלדו מבקיע מדי משחק, ואני לא זוכר מתי מסי בכלל שיחק"
--  Полиция проверяет жестокое избиение девочками подруги в школьном туалете Новосибирска
--  Ölüme Kalkan El! Gazze İçin Acil İnsani Yardımı ABD Veto Etti!
--  “عبد الجليل”: تفعيل مجلس المرافق الصحية التعليمية تيسيرًا على أعضاء هيئة التدريس بجامعة بنغازي
--  Do súboja s Pellegrinim a Korčokom môže ísť len známa osobnosť, uvádza publicista Hrabko
--  Mladistvý strelec z Michiganu dostal za vraždu štyroch spolužiakov doživotie
--  Lámete si hlavu nad predčasným dôchodkom? Expert má uplne jasno v tom, či treba konať už teraz
--  Roger Schmidt krijgt flesje naar zijn hoofd: voormalig PSV-coach onder druk bij Benfica
--  Костромским бойцам СВО предоставили 149 земельных участков
--  มติ ปชป.เลือก "เฉลิมชัย" เป็นหัวหน้าพรรคประชาธิปัตย์ คนใหม่
+-  HUAWEI MatePad Pro 13.2 จะเปิดตัวในระดับโลก วันที่ 12 ธันวาคมนี้
+-  TENISKOJ LEGENDI SE VRATIO RAK: Obratila se čitavom svetu! Otkrila užasnu vest, pa poslala važnu poruku
+-  Eski Şişelerde Kabartmalı Yazılar Olmasının Ardında Yatan Hayat Kurtarıcı Sebep
+-  У Трампа больше шансов добиться мира в Газе, чем у Байдена, пишут СМИ
+-  Das Ende grüner Träume: Keine Förderung von Wärmepumpen im Januar
+-  White House Mocks Putin Re-Election Bid
+-  Dating app users falling prey to criminals in South Africa
+-  Well-performed galloper looks to be Clear Choice for Nowra Cup
+-  Кулинарни блогъри разкриват тайните си за вкусна Коледа
+-  Race-by-race preview and tips for Nowra on Sunday
