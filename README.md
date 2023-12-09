@@ -1,11 +1,51 @@
 # Latest News
--  Día Internacional contra la Corrupción: por qué se celebra cada 9 de diciembre
--  হাতল না ধরে সাইকেল চালালেন ১৩০ কিমি
--  Российские войска поразили две бригады ВСУ на краснолиманском направлении
--  Vegetable Price: உயரும் காய்கறிகளின் விலை.. ரூ. 300 -யை நெருங்கும் ஒரு கிலோ பூண்டு.. இன்றைய விலை பட்டியல் இதோ..
--  भैँसीपालनमा यादव समुदायको आकर्षण
--  क्यान्सर विरुद्धको लडाइँमा सार्क राष्ट्रका विज्ञहरू एक ठाउँमा उभिनु पर्छ : स्वास्थ्य मन्त्री बस्नेत
--  तपाईं रिटायर्ड हुनुभएको हो ?
--  ভারত-বাংলাদেশ যৌথ সামরিক কমান্ড
--  Bigg Boss 7 Telugu: శివాజీని గెలిపించిన హౌజ్‌మేట్స్ - తాను నమ్మే సూత్రం అదేనట!
--  Nicole Neumann y Manu Urcera confirmaron su embarazo en plena boda: el emotivo momento
+-  Lo primero que veas en este sencillo test te dirá si eres una persona organizada
+-  Estos son los números de la suerte para hoy sábado 9 de diciembre
+-  Гороскоп для всех знаков зодиака на 9 декабря: прогноз и советы на день
+-  한미일 안보실장 “北 비핵화 위한 공조 강화” 합의
+-  한화, 외인 에이스 페냐와 최대 105만 달러 재계약
+-  하나원큐, 10일 BNK전서 ‘하나원큐 파트너스데이’ 진행
+-  Tog restaurangbild – fick nota på 631 000 kronor
+-  Estas son las ciudades más caras y más baratas de Latinoamérica, Buenos Aires está en la lista
+-  This Song Connected Elvis Presley to His Gospel Roots
+-  Pleasant Hill neighborhood locked down for a second time in less than 24 hours
+-  Dragon men's basketball fends off Bemidji State to remain undefeated
+-  ’มาดามเดียร์‘ โพสต์ภาพย้ำจุดยืน ประเทศไทย-ประชาธิปไตย-ประชาชน
+-  REVEALED: Shohei Ohtani was NOT aboard private jet from Anaheim to Toronto as disappointed Blue Jays fans learn the flight in question was really carrying Shark Tank's Robert Herjavec
+-  Elektroniikkakoira on poliisin uusin apuri, eritekoirat ovat nuuskineet jo pari vuotta
+-  Elektroniikkakoira on poliisin uusin apuri, eritekoirat ovat nuuskineet jo pari vuotta
+-  주식 양도세 기준 두고 왜 난리인가 봤더니…
+-  Llega Milei (con muchas incógnitas), tras un mal gobierno de Fernández
+-  Por qué consumimos más en Navidad y cómo evitarlo con la ayuda de la neurociencia
+-  El chico del sombrero blanco
+-  Otra forma de entender la educación superior
+-  La inclusión de los discapacitados en la agenda del papa Francisco
+-  Comienza un nuevo ciclo
+-  Iniciativa estudiantil digna de ser imitada
+-  “Se puede hacer humor con todo, dentro de lo que el humorista pueda y la ley permita”
+-  "LA에서 왔어요"…'샵사이다' 홀리데이 팝업스토어 오픈
+-  Los productores, a la espera del “plan Milei”
+-  Regional Amateur: última fecha para los equipos zonales que buscan la clasificación
+-  맹승지, 비키니 입고 온천욕…반전 글래머 몸매[★핫픽]
+-  Bronny James hits the practice court ahead of his anticipated NCAA debut for USC on Sunday five months after LeBron's son suffered cardiac arrest
+-  City Puasa Kemenangan, Guardiola: Mungkin Butuh Tantangan
+-  Polisi Ringkus 2 Pelaku Pengeroyokan Pemuda di Makassar
+-  Uji Kalibrasi Bandara Internasional Dhoho Kediri
+-  नेपाल–अङ्ग्रेज युद्ध बुटवलको लडाइँ
+-  Прогноз погоды на 9 декабря: понижение температуры, местами дожди
+-  Mobile Grünabfallentsorgung landet in der Tonne
+-  Fadel Muhammad Minta Pejabat Publik Fasilitasi Kebutuhan Rakyat
+-  Kia revela una nueva versión de su modelo más popular
+-  A cinco años de la Ley Justina: cómo sigue su implementación y qué cambió
+-  Robo de comercios y automóviles: en barrio San Martín crece la preocupación
+-  Κινούμαι Ηλεκτρικά 2: Πόσο ισχύει το πρόγραμμα
+-  Carne vacuna: ¿qué viene de ahora en más?
+-  B.C. lawyer facing U.S. money laundering, fraud charges suspended by law society
+-  Relief to ACC Ltd: MCA reckons treatment of Calendar Year as Financial Year, imposes no penalty for Delay in Filing Annual Returns
+-  Live: Black Caps vs Bangladesh - second test, day four in Dhaka
+-  Ecuador en la Copa América 2024: A revertir el pésimo desempeño en ese torneo
+-  Llegó el futuro ¿como lo imaginábamos?: los autos podrán usar ChatGPT
+-  Presidentinvaalikone: Valtaosa ehdokkaista haluaisi Naton toimintoja Suomeen
+-  Reality Lengua y bola: La oportunidad para mostrar el talento al narrar fútbol
+-  Haminan parhaat pitsat | Haminan Sunrise salaa kastikereseptinsä eikä hyljeksi ananasta – "Jos pitsassa ei ole hyvää taikinaa, ei ole hyvää pitsaakaan"
+-  Haluat siis presidentiksi? – Mediakonserni Keskisuomalaisen uusi podcast syväluotaa presidenttiehdokkaat
