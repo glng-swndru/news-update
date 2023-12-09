@@ -1,11 +1,51 @@
 # Latest News
--  Common arthritis drug suppress the progression of type 1 diabetes
--  New York’s $54 million pot haul shows legal weed dreams up in smoke
--  ARD-Mittagsmagazin ab 2024 aus Leipzig: Mittel gegen Beitragskritiker?
--  대만 스타트업, SWITCH 2023 참가
--  अध्यक्ष पद पर सर्वाधिक 6 प्रत्याशियों ने लिया पर्चा
--  Phoebe Litchfield, 20-Year-Old Auctioned By Gujarat Giants For 1 Crore In WPL Auction 2024
--  El Zaragoza CFF y la S.D. Huesca se enfrentan en un emocionante derbi aragonés
--  Drake Menghidupkan Kembali Taman Hiburan Fantasi yang Terbengkalai
--  Alta Fidelidad. Babasónicos en el museo: detrás de todo cuadro se esconde un videoclip
--  فؤاد تشارك في الحدث الجانبي للتوأمة بين مبادرتي الرئاستين المصرية والإماراتية لـCOP27 وCOP28
+-  Enième report pour l’examen de l’affaire Omar Laabidi
+-  En karizmatik baba! Burak Özçivit ile oğlu Karan gezmelerde!
+-  İstanbul ekonomi zirvesi bugün sona eriyor
+-  Orlić: Đilasova grupa učestvuje na 49 mesta, toliko o "snazi" FOTO
+-  Brnabić: Za opoziciju i tajkunske medije Berić je košarkaška legenda, a Nikola Jokić je niko i ništa VIDEO
+-  El papa Francisco dice que al mirar al belén no podemos dejar de pensar en el drama en Tierra Santa
+-  Zuma Film Festival a springboard for Economic growth in FCT – Wike
+-  Quiniela HOY: RESULTADOS de Nacional y Provincia del sábado 9 de diciembre
+-  أفل الّذي استحضر الإشراق والعزة والشجاعة طيلة حياته (رثاء)
+-  Pats Pulpit Off-Topic Activities: Weekend open thread
+-  Lue tästä 5 kiinnostavaa juttua viikolta: Konttilan yrittäjää ja työntekijää odottaa häätö, miten käy eläinten?
+-  Animal Box Office: Ranbir Kapoor starrer likely to become the 1st movie to clock Rs. 100 cr. in the second weekend
+-  Animal Box Office: Film emerges as Ranbir Kapoor’s highest worldwide grosser
+-  Animal Box Office: Ranbir Kapoor starrer surpasses Tiger Zinda Hai worldwide; next target is Sultan
+-  Animal Box Office: Ranbir Kapoor and Sandeep Reddy Vanga's film consolidates its BLOCKBUSTER status, crosses Rs. 20 crores mark again on second Friday
+-  «اليونيسيف»: قطاع غزة أخطر مكان في العالم للأطفال
+-  Giáo viên ở TP.HCM đánh học sinh lớp 8 gãy xương vai
+-  الصفدي: استمرار الحرب على غزة سيشعل المنطقة
+-  كتائب القسام تستهدف غرف قيادة للاحتلال جنوب غزة
+-  Cornejo le advirtió a Milei que respaldará el ajuste si no toca los recursos de Mendoza
+-  عباس : الفيتو الامريكي عمل عدواني وغير اخلاقي
+-  Μαχμούτ Αμπάς: Συνεργός οι ΗΠΑ στα "εγκλήματα πολέμου" του Ισραήλ
+-  Арабский канал заявил, что война Израиля с ХАМАС продлится долго
+-  "Io Valgo": Sorso scende in piazza per i diritti dei disabili
+-  Zimbabwe captain Sikandar Raza receives two-match ban
+-  Kyrgios annuncia il forfait all'Australian Open: "È una grande delusione"
+-  La Gatti cam, quello che non hai visto: la reazione dopo Juventus-Napoli
+-  Cabral, dito medio ai tifosi. Schmidt tuona, polveriera Benfica
+-  McKennie: “Alla Juve ho imparato a non correre come un pollo senza testa”
+-  Google Maps Can Tell You How Busy A Store Is At The Very Moment: Here’s How?
+-  Štyri bežné chyby pri zdobení vianočného stromčeka: Robíte ich aj vy? Môžu vás vyjsť pekne draho
+-  Čínske záhrady Su-čou sú dokonalým pohladením pre dušu, prvé vznikli už 600 rokov pred Kristom
+-  Pre západné Slovensko platia výstrahy pred vetrom a snehovými jazykmi
+-  미국 가주서 18세에 검사된 한국계 청년 화제
+-  Кирил Петков: Ако за нещо мога да бъда обвиняван, със сигурност не е, че не си отстоявам на принципите
+-  عاجل.. حساب المواطن.. إيداع دعم ديسمبر بعد ساعات وهذا رابط الاستعلام
+-  وفاة وإصابة 32 طالبا وأستاذا في حريق بجامعة عربية
+-  «Россия распадется в третий раз»
+-  Российский боец закрыл сослуживцев от польской мины и остался жив
+-  Ở huyện này của tỉnh Quảng Bình, sản phẩm OCOP bán qua sàn thương mại điện tử, mạng xã hội rất hút khách
+-  Negen agenten gewond bij wilde achtervolging in Vlaanderen
+-  ГДБОП свали от интернет фейк рекламата с президента Румен Радев
+-  ऑस्कर विनिंग डायरेक्टर को 'चचेरी बहन' से हुआ प्यार, 14 साल की उम्र से थे साथ
+-  סהר ברוך בן ה-25 שנחטף מבארי לרצועת עזה נרצח על ידי מחבלי חמאס
+-  לא חושב על גנט: השינויים שמכין רובי קין לקראת בני סכנין
+-  Ingatkan Kader di Sumba, Zulhas: Tak Ada Waktu Bersantai, Harus Kerja Keras
+-  Żywiec: Ksiądz bp Piotr Greger konsekrował trzy dziewice
+-  জনগণের সেবক হওয়ার লক্ষ্যে কাজ করছে পুলিশ: আইজিপি
+-  Трэвел-блогер предупредил туристов о новой схеме обмана на улицах
+-  Тошкент халқаро аэропорти реконструкциядан сўнг қандай кўринишга эга бўлади? Фото ва видео
