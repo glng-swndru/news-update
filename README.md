@@ -1,51 +1,51 @@
 # Latest News
--  Šćepanović, Radulović i Brajović dobitnici nagrade "Deveti...
--  المنظمة الوطنية لمكافحة الفساد تحتفل باليوم العالمى لمكافحة الفساد
--  الشيخ بن حبريش يستقبل رئيس وعدد من أعضاء فريق زعيم العيق الفائز ببطولة الوفاء
--  ОН: Убиствата достигнаа рекордно високо ниво во 2021 година
--  Glumci Katarina Baban i Slavko Sobin ispričali toplu božićnu priču: Predstava „Šapice“ ispunila Dom kulture najmlađima!
--  Bingöl’de kamyonet kaza yaptı
--  Германия — Новогодние каникулы на Восточно-Фризских островах: успеть «последней лошадью»
--  פנים מול פנים, בין המבנים והסמטאות: הלוחמים נתקלים במארב - ומחסלים את המחבלים
--  Beşiktaş evinde kazandı
--  Edinburgh'da Filistin'e destek yürüyüşünde İsrail'e tepki: İşgali durdurun, soykırımı desteklemeyin!
--  Joao Carlos Valado Tralhao: Takımımız beraber mücadele ederek kazandı
--  Bakan Kacır: TÜBİTAK Destek Programları kapsamında 52 milyon lira kaynak sağladık
--  Ankara’da başıboş köpekler bir çocuğu resmen parçaladı. Mansur Yavaş'tan açıklama
--  Filistin halkına yapılan zulme doktorlardan protesto
--  وول ستريت جورنال: ترامب يتقدم على بايدن في استطلاعات الانتخابات الأمريكية 2024
--  السمك بـ 7 جنيهات واللحمة 170.. أسعار السلع المدعمة في منافذ التموين بجنوب سيناء
--  المقاومة تخوض معارك من مسافة صفر مع قوات الاحتلال غرب جباليا
--  وزير النقل يتابع معدلات تنفيذ القطار الكهربائي السريع (العين السخنة- العلمين- مطروح)
--  قبل زفافه بأشهر.. "شريف" سافر روسيا لدراسة الطب فقتلته قذيفة
--  "الصحفيين" تُشكل غرفة عمليات لمتابعة الانتخابات الرئاسية
--  أهالي قرية طنان بالقليوبية يشيعون جثمان المبتهل ضياء الناظر
--  خبير أبراج يتوقع نتيجة مباراة الزمالك وساجرادا في الكونفدرالية.. مفاجأة
--  الانتخابات الرئاسية.. تجهيزات غير مسبوقة بمقار اللجان في بورسعيد- فيديو وصور
--  "مبلغ كبير".. إبراهيم سعيد يكشف راتب معتمد جمال مع الزمالك بعد توقيع العقود
--  مدرب فيوتشر: النادي لا يتحمل الضغط وهذا السبب لن يمنعنا من اللعب الهجومي
--  حارس مرمى فيوتشر: اعتدنا الحضور الجماهير من الأهلي والزمالك
--  Liverpool musel otáčať. Na pôde Crystal Palace rozhodol v samom závere
--  ВИДЕО: Нов Бахмут, нова кланица: Русите испраќаат дури и инвалиди, трпат страшни загуби, но го опколија градот
--  Montevideo lanza el estacionamiento tarifado a través de WhatsApp
--  Машков объявил о сборе группы избирателей по выдвижению Путина
--  Knapp seger för Brynäs på hemmaplan mot Arboga
--  Farsa u Dubaiju: dok samitom paradiraju lobisti fosilnih goriva, znanstvenici vrište: ‘Granica od 1,5 stupnja je mrtva!‘
--  Науседа наградил лауреатов гражданской инициативы «Сила Литвы» («Lietuvos galia»)
--  Švajčiarka dosiahla životný úspech, Remeňová preteky nedokončila
--  Nevreme će sutra okovati Srbiju, upaljena 2 meteoalarma: Evo kako će se kretati po satima, u ovim delovima očekuje se sneg (foto)
--  System of intelligence — generative AI at the app layer
--  Milan al bivio con un pensiero a Newcastle. Leao solo in Champions
--  Frosinone, Di Francesco: "Toro da Europa. Barrenechea out? Ho un'idea..."
--  "Acho que ninguém sabia disso": Timothée Chalamet e Olivia Colman revelam "mimos" que levaram do set de Wonka
--  Para ver hoje à noite com a família: O melhor filme da Disney dos últimos anos
--  HLV Vũ Hồng Việt tiết lộ lý do trận nào Thép xanh Nam Định cũng... thủng lưới
--  Lazio, Zaccagni ci ha preso gusto: altro gol di tacco per l'arciere
--  هذا ما يحدث للجسم عند تناول الفجل الأحمر يومياً!
--  حرب مستعرة بين رشيدة طليب واللوبي الصهيوني
--  هل شوربة الكوارع تزيد القدرة الجنسية؟
--  تعرف على قائمة (اطعمة السعادة)
--  لاعب مانشستر: لا يحق للنساء الحديث عن كرة القدم
--  لماذا يجب خلع الاحذية قبل دخول المنزل؟
--  الوحدات يهزم الفيصلي ويقترب من لقب دوري الشباب
--  القسام توقع قوتين للاحتلال بكمينين
+-  News24 Business | Apps that use AI to undress women in photos soaring in use
+-  Partijvoorzitter SP: heel verdrietig dat Lilian vertrekt
+-  Liverpool vira contra Palace no fim e 'secará' o Arsenal para ser líder
+-  Inhopparen frälste Liverpool på tilläggstid
+-  Katso kuvat | Vihreän makasiinin joulutori veti pientä ja isompaa kävijää – Lappeenrantalaiset Korhoset löysivät unelmiensa ovikoristeen
+-  Prisión preventiva para "la bebecita del crimen"
+-  Galatasaray, Kopenhag maçı hazırlıklarına başladı
+-  가평군 청평면, 구 철도부지 공영주차장 탈바꿈
+-  ¡Y seguimos con más sobre la Madre!
+-  Administrative corruption close to zero: Mujahid
+-  JNJ aclara que la suspensión de Patricia Benavides no fue un “proceso exprés”
+-  Отца школьницы, стрелявшей в Брянске, заподозрили в доведении до самоубийства
+-  ولد الغزواني يعود إلى انواكشوط بعد الإشراف على افتتاح مهرجان التراث فى شرق موريتانيا
+-  Länder-Beschäftigte bekommen 3000 Euro und 5,5 Prozent mehr Lohn
+-  SPD-Parteitag fordert indirekt Aussetzung der Schuldenbremse für 2024
+-  Miniso, la exitosa idea de objetos simples y baratos que hizo millonario al japonés que se la inventó
+-  “Haddii Reernimada Hoos Loo Dhigin Qaranimada Kor Loo Qaadin Somaliland-ta Rabtay Ma Noqonayso…”Maayar Mooge
+-  La Unión Eléctrica pronostica una afectación de 48 MW en el horario pico de este sábado
+-  شاهد.. سحب المزن تزين سماء بحرة في مكة المكرمة
+-  Fredspristagaren hungerstrejkar på Nobeldagen
+-  Scholz beschwört Zusammenhalt der SPD - Parteitag feiert den Kanzler
+-  I made steak using 3 different appliances, and my air fryer produced the worst results
+-  البرلمان العربي: صمت المجتمع الدولي على جرائم الاحتلال تجعله شريكا
+-  Man dies almost eight months after traffic accident
+-  Taraba si podal Remišovú: Výsmech z rozpravy kvôli jeho vlastnému menu, no aj on sám si nedal pozor!
+-  La familia bogotana que le hace botas al Ejército y las puso de moda entre jóvenes gringos
+-  كريس إيفرت تعلن إصابتها بمرض السرطان مرة أخرى
+-  Fredspristagaren hungerstrejkar på Nobeldagen
+-  Acer Predator Connect W6d teszt - router, nem csak gamereknek
+-  Scots urged to apply for DWP £300 cost of living payment
+-  Choque entre dos camiones deja un muerto y un herido en Sánchez, Samaná
+-  Karan Johar attends Rani Mukerji's daughter Adira Chopra's birthday bash with Yash, Roohi; Jeh, aunt Alia Bhatt seen too
+-  ΠΑΣΟΚ: Ολομέτωπη επίθεση στην κυβέρνηση - «Επικοινωνιακά τα κόλπα τα αγιοβασιλιάτικα καλάθια»
+-  أبو تريكة: أردت هدفًا أفضل لصلاح أمام كريستال بالاس
+-  Maraykanka Oo Diiday Xabad Jooninta Isreal Iyo Falastiiniyiinta Oo Looga Codaynayay Golaha Qaramada Midoobay
+-  पीएम मोदी ने विकास भारत संकल्प यात्रा के लाभार्थियों से की बात, कहा- चुनाव जीतने से पहले लोगों का दिल जीतना जरूरी
+-  Durchbruch im Tarifstreit des öffentlichen Dienstes der Länder
+-  Bahnverkehr nach Warnstreik wieder im Lot - Jetzt Fahrplanwechsel
+-  التعاون الإسلامي يستنكر إخفاق مجلس الأمن في التصويت لوقف الحرب
+-  União Europeia fecha acordo sobre regulamentação da inteligência artificial
+-  União Europeia fecha acordo sobre regulamentação da inteligência artificial
+-  União Europeia fecha acordo sobre regulamentação da inteligência artificial
+-  Шествие в поддержку вступления в ЕС в Тбилиси
+-  Протаранивший столб в Москве водитель умер за рулём из-за отрыва тромба
+-  Was sind die bahnbrechenden KI-Vorschriften in Europa?
+-  Wat zijn de baanbrekende AI-regels van Europa?
+-  Frente unida contra a OPEP para o fim dos combustíveis fósseis
+-  Cologix Grows Canadian Presence with Acquisitions and
+-  "PIROTEHNIKA UBIJA ŽIVOTINJE, POVREĐUJE DECU" Zagreb i još 43 hrvatska grada i opštine neće imati vatromet za Novu godinu
+-  „Offen für Migration“ und „Kein Abbau des Sozialstaates“: Scholz kämpft um die Herzen seiner Genossen
