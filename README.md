@@ -1,11 +1,51 @@
 # Latest News
--  أستون فيلا يُسقط أرسنال ويحقق رقماً قياسياً بالدوري الإنكليزي
--  كلوب يعترف: ليفربول لعب 76 دقيقة سيئة للغاية
--  الاحتلال: أميركا لم تضع قيودا بشأن مدة الحرب بغزة
--  أنشيلوتي راض على التعادل أمام بيتيس
--  Anadolu Otoyolu'nda kar yağışı etkili oldu!
--  Altavoz Fest 2023: programación y agrupaciones que encabezarán el festival en Medellín
--  بيان عاجل من حساب المواطن بشأن مستحقات شهر ديسمبر
--  Семь человек пострадали в результате аварии внутри тоннеля в американском Питтсбурге
--  أوديجارد: أستون فيلا فريق رائع
--  Najboljše družabne igre za praznični čas in vso družino
+-  Pierre Arditi : Le comédien fait un malaise en pleine représentation…
+-  Teslas will be able to automatically call 911 if you get in a crash
+-  الإمارات تدعم قطاع الصحة في إفريقيا ب 220 مليون دولار
+-  Poznati detalji puštanja BBB-a na slobodu: Jamčevinu uplaćivali i neki hrvatski igrači, a evo kada će se navijači vratiti kući
+-  From a cat’s festive hazards to a horse’s lameness – your pet queries answered
+-  Tuzla'da feci kaza! Kontrolden çıkan araç şarampole uçtu
+-  The English seaside town with a starring role in the new Wonka film – as well as a famous theme park
+-  My budget-friendly version of a tropical island getaway – on Tenerife’s ‘unspoiled sister’
+-  Dads of Drowned NY Kids Sue City for Ignoring Red Flags
+-  Five ways to untie yourself from firms’ unnecessary fees and help save £1,454 a year
+-  I’m 26 and my hairline is receding, am I too young to have hair transplant? Dr Jeff answers your health questions
+-  Demba Touré (coach adjoint DSC) après le nul entre Jamono et DSC : « On n’a pas su concrétiser nos occasions malheureusement… »
+-  Şimdi gerçekleri konuşma zamanı! Koç, boğa, ikizler, yengeç, başak, oğlak, yay ve kovalar... İşte 10 Aralık 2023 günlük burç y
+-  «الإمارات للطبيعة» تقدّم مبادرات للعمل المناخي
+-  קבינט המלחמה מתכנס; צה"ל תוקף בדרום לבנון
+-  AKP MKYK Üyesi Hayati İnanç hakkında suç duyurusu. Adnan Oktar örgütüne yardım ve yargıya müdahale iddiası
+-  From herbal medicine to manuka honey, we test three products to soothe winter lurgies
+-  Fimmtándi heimasigurinn í röð (myndskeið)
+-  Vikings offensive coordinator Wes Phillips arrested on suspicion of DWI
+-  Vikings fans, purple-clad Rat Packs from all over, take over Las Vegas Strip
+-  Vikings fans, purple-clad Rat Packs from all over, take over Las Vegas Strip
+-  Vikings-Raiders preview: Can Justin Jefferson's return end skid?
+-  Vikings-Raiders preview: Can Justin Jefferson's return end skid?
+-  Jordan Love, awful-to-awesome QB, is leading Packers toward playoffs
+-  Jordan Love, awful-to-awesome QB, is leading Packers toward playoffs
+-  Vikings' offseason decisions may hinge on final five games of season
+-  Vikings' offseason decisions may hinge on final five games of season
+-  Vikings offensive coordinator Wes Phillips arrested on suspicion of DWI
+-  Causes, how to protect yourself & treatment… answers to common questions about prostate cancer that could save your life
+-  13 Great Deals on Headphones, Wireless Earbuds, and Gaming Headsets
+-  13 Great Deals on Headphones, Wireless Earbuds, and Gaming Headsets
+-  Conmoción en Colombia por el feminicidio de joven de 14 años que fue hallada desmembrada
+-  Penn president Elizabeth Magill resigns after a week of intense backlash
+-  Ολυμπιακός: Το πρώτο ζητούμενο για τον Καρβαλιάλ και η κρισιμότητα του «τελικού» με τη Μπάτσκα Τόπολα
+-  'Neither of us is going anywhere': Jada Pinkett Smith vows she'll never leave Will Smith
+-  Le chef de la diplomatie espagnole, José Manuel Albares, attendu au Maroc
+-  "Bruno je namerno dobio karton, da ne igra protiv Liverpula"
+-  لقاء سويدان تحث المواطنين على المشاركة في الانتخابات الرئاسية: شعب مصر عظيم وواع
+-  ماجد السويدي: سنحقق نتيجة طموحة في 12 ديسمبر
+-  Πινγκ πονγκ: Πρόκριση με πρωτιά για τον Παναθηναϊκό στο Europe Trophy ανδρών
+-  Biden pierde ante Trump en un sondeo de ‘The Wall Street Journal’ en el que su popularidad sigue en caída
+-  Nur 1:1: FC St. Pauli patzt beim VfL Osnabrück
+-  الرعاية الصحية مسؤولة عن 5% من الانبعاثات
+-  The Twang to play Christmas gigs for hometown fans
+-  Council to crackdown on dog fouling across Dudley borough
+-  Football fan jailed after racially abusing Rio Ferdinand
+-  MUŠKARAC SA DVOJNIM DRŽAVLJANSTVOM OPTUŽEN ZA ZAGOVARANJE NACIZMA! Evo do kada će ostati u pritvoru
+-  Educación activa un plan para reforzar el razonamiento matemático
+-  Claude Surprenant : la réouverture d’un dossier épineux
+-  Maske tragen! - Dringende Corona-Warnung von Lauterbach
