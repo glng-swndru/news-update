@@ -1,11 +1,51 @@
 # Latest News
--  تموين الإسكندرية: حملات متزامنة على المخابز البلدية تسفر عن تحرير 74 محضرا
--  “래쉬포드, 너 완전 ‘마샬’이야” 리버풀 레전드의 역대급 악평→“외국인 용병처럼 대충 뛰네”
--  Thane NIA Raid : एनआयएच्या कारवाईमुळे गाव बंद; अनेक घरांमध्ये चौकशी सुरू
--  "Vlahović je dominirao protiv Napolija"
--  Japonya'dan İsrail protestosu : 'Gazze’de soykırıma son verin'
--  Kovassa vireessä oleva Mikael Granlund valittiin NHL:ssä viikon pelaajaksi
--  الانتخابات الرئاسية.. الدقهلية تستقبل غدا في 24 لجنة 4 ملايين و562 ألف ناخب
--  Deretan Bisnis Inul Daratista: Dulu Honornya Cuma Rp20 Ribu, Kini Punya Harta Ratusan Miliar
--  Sapin de Noël. Etouffement, chute, allergies : les gestes pour éviter les risques avec les enfants
--  VTT. Près de Pont-Audemer, Maël Denommey a enchaîné épreuves et podiums cette saison
+-  Allegri, “lo stregone di Livorno”: Juve-Napoli regala il meme definitivo
+-  Valorant, le Shopify Rebellion sono le nuove campionesse del mondo
+-  Целта ни остава приемане на еврото от 1 януари 2024 г., категоричен е Асен Василев
+-  สู้รบกันหนัก! เมียนมาโจมตีทางอากาศกองกำลังกะเหรี่ยงในลอยก่อว์
+-  Lichtjes in grote kerstboom in centrum van Capelle ontstoken
+-  Fijiana makes flying start in Cape Town
+-  TGA-díjátadó: ez lett 2023 játéka
+-  Signa-Gruppe: Tochterunternehmen stellt weitere Insolvenzanträge in Aussicht
+-  DRAMA as a flamboyant Nigerian ‘Mbaba’ releases PHOTOs and names of multiple ladies that he has had SEX with – Mzee anapenda nyama mbichi(LOOK).
+-  VIDEO Najpoznatiji reklamni pano na svijetu i simbol Los Angelesa slavi 100. rođendan
+-  "C'est une grosse perte" : Agathe Lecaron ("Les Maternelles") réagit au départ de Benjamin Muller pour la matinale de Bruce Toussaint sur TF1
+-  Telangana BJP MLAs boycott oath-taking event over Akbaruddin Owaisi; Union minister reacts: 'Insult'
+-  Vrhovni sud Teksasa: Nema abortusa za žene sa rizičnom trudnoćom
+-  6 French teenagers convicted over 2020 school teacher's killing
+-  Topolotni talas u Australiji, Sidnej "gori" na 40 stepeni
+-  “일요일도 포근해요” 낮 최고 19도…강원 영동 5~10mm 비 소식
+-  직장인 10명 중 4.5명 “나도 꼰대 될까 두려워”…꼰대의 특징은
+-  정선 덕천리서 산불 발생…1시간여 만에 진화 완료
+-  Δημοσκόπηση GPO: Στο 2,5% η Νέα Αριστερά – Παραμένει πρώτη η ΝΔ, κάτω από 10% ο ΣΥΡΙΖΑ
+-  FOTO Imamo račun: Ovako Šeks i Šarić jedu i piju, a grad Otok plaća: 'Vratio sam novac...'
+-  Kahramanmaraş, Gaziantep, Malatya ve Adıyaman için bir uyarı daha geldi. Çok zor bir süreç. Gece de tehlikeli
+-  Ўзбекистон президентининг махсус вакили ва Эстония вакили Афғонистон бўйича учрашув ўтказди.
+-  Бахтиёр Саидов Анналена Бербок билан учрашди.
+-  Испанияда дерби, Англияда Эмери «Арсенал»дан қасос олмоқчи. Ҳафта ўйинлари анонси.
+-  Suff-Fahrt nach Weihnachtsfeier? Zwei Verletzte bei Unfall im Norden
+-  Hrvatski isporučitelj tehnologije za nuklearnu industriju INETEC prebacio se na Infor CloudSuite Industrial Enterprise
+-  VIDEO: nacgvardi Hersonas apgabalā iznīcina krievu okupantu kravas automašīnas
+-  الیکشن میں سلیکشن کی گئی تو عوام کا اعتماد پارلیمانی نظام سے اٹھ جائیگا، بی این پی
+-  Wetter in Brandenburg am 9./10. Dezember: Aktuelle Temperaturen und Wetteraussichten
+-  عاجل.. التقديم ينتهي غدًا.. فرص عمل شاغرة بوزارة المالية
+-  كشف تفاصيل جديدة عن حادثة سوران وتحديد هوية الضحايا (صور)
+-  Azərbaycanda zəfəran PROBLEMİ
+-  Καλάθι του Αι Βασίλη: Κατατέθηκε στη Βουλή η τροπολογία για τη σύσταση και το 2023
+-  Filip Zubčić konkurira za najbolji rezultat u veleslalomu nakon dvije godine! Odermatt vodi
+-  Modri sigurni protiv fenjeraša! Sosa preskače dio priprema, dobio je poziv u reprezentaciju
+-  Wararbixin:- Xidhiidhka Ruushka Iyo Dalalka Africa Oo Sii Xoogaysanaya
+-  Brit fighter jets on secret spy mission ‘spot Iran-backed terrorists handing over weapons to Hamas & Hezbollah’
+-  Kickoff | Timm highlights self-introspection in Swallows win
+-  Yerel seçimler için süreç işliyor: AK Parti Aday Tespit Komisyonu oluşturuldu
+-  ‘نوازشریف صاحب ‘ کہہ کر فواد چوہدری نے بڑی بات کہہ دی
+-  Afera e inceneratorit të Tiranës, 4 në pranga, një në kërkim
+-  Президент Беларуси посещает с официальным визитом страны Африки
+-  СПЧ: В IT-сфере растет уровень подверженности коррупции
+-  Pilot „otvorio dušu“: Posada laže putnike kada let kasni
+-  Dalibor Petko je Nives nahranio vrućom hrenovkom na Adventu
+-  La ressortissante française Coline Fay interrogée par le juge Mamadou Seck
+-  "Tatort"-Schauspieler : Axel Milberg "braucht die Unsichtbarkeit" und verrät, wo er gerne sterben würde
+-  Love Story filmiyle ünlenmişti: Ryan O'Neal 82 yaşında hayata veda etti
+-  Ancora pioggia e neve: le regioni a rischio
+-  Kawasaki W175 Street debuts in India at Rs 1.35 lakh
