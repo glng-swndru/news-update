@@ -1,51 +1,11 @@
 # Latest News
--  Antalya-Konya karayolunda yoğun kar: Ağır tonajlı araçların geçişi yasaklandı
--  Bolat- Raimondo görüşmesinde Türkiye-ABD ticaret ilişkilerinin geliştirilmesi ele alındı
--  De kerstklassieker van Frank Capra in Theater de Fransche School
--  Take a look at this funky electric van and 6 other cool vehicles at this year's London EV show
--  Поскъпване на горивата още от първия ден на новата година
--  Hospital Billing Software Market Study: An Emerging Hint of Opportunity 2023 to 2029
--  Güney Kore, Kuzey Kore'ye karşı ABD ve Japonya ile işbirliğini güçlendirecek
--  Böyle duyurdular: Atina ziyareti tüm Avrupa'yı etkileyecek
--  Kenan Yıldız için ayrılık iddiası!
--  Kocaeli'deki yangın kontrol altına alındı
--  Yılmaz: Son dönemde Alevi-Bektaşi vatandaşlarımıza yönelik önemli adımlar attık
--  Gedenkstätte für Juden mit antijüdischen Symbolen beschmiert
--  VW води преговори с Renault за евтиния си електромобил
--  Food Cost Accounting Software Market Comprehensive Insight by Growth Rate, Industry Status, Forecast till 2029
--  ارتفاع أسعار الحديد اليوم السبت في الأسواق (موقع رسمي)
--  رئيس "عربية النواب": مشاركة المصريين في الانتخابات الرئاسية ستكون الأكبر في تاريخ مصر
--  نائب رئيس "إياتا": مصر لعبت دورًا مهمًا في تنظيم الحركة الجوية خلال حرب غزة
--  Man found half-eaten by zoo tigers after one of the apex predators was seen with a shoe in its mouth
--  Anak aligator putih, mata biru
--  (VIDEO) Pogledajte pregled vijesti: Podgoricom iz dana u dan
--  Automotive Dampers Market worth $5.50 billion by 2030, growing at a CAGR of 4.43% - Exclusive Report by 360iResearch
--  Shiba Inu Lead Shytoshi Kusama Confirms Over $1 Million In SHIB And BONE Burn
--  Литературный критик и профессор ВШЭ Андрей Немзер скончался на 67-м году жизни
--  HEDEP: Diyanet Kürtçeyi bir kez daha yok saydı
--  Ignacio Galán: "Triplicar las renovables a 2030 es factible y movilizará inversiones por 2,2 billones de dólares anuales”
--  Der SPD-Parteitag und ein Ventil namens Lindner
--  Stagecoach offering big discounts on bus tickets this month
--  Jakarta Health Office Confirms 80 Covid-19 Cases between November and December
--  「世界との差を感じた」現役高校生Jリーガー ロアッソ熊本・道脇豊選手 けが乗り越え臨んだW杯 来シーズンへの思いとは
--  MFF blev mästare med ett spel som gav eko runt jordklotet
--  Trotz Schlaganfall: Neuseeländerin Ashleigh Hoeta ist die stärkste Frau der Welt
--  MFF blev mästare med ett spel som gav eko runt jordklotet
--  ダジャレかよ…RAZERのゲーミングRAZORでスカッとしようぜ
--  Candi Prambanan Dikunjungi 18.700 Umat Hindu yang Melakukan Peribadatan sepanjang 2023
--  人気作家がしのぎを削るなか、4度目の1位を獲得したのは…？ 「週刊文春ミステリーベスト10」を発表！
--  Komentar Mateja Fišerja: Aleksandra copatarica
--  Näin nyky-Nokiaan sijoitettu tonni on sulanut – Osta ja pidä -sijoittaja on menettänyt satasia osinkojenkin jälkeen
--  脱衣所で使うものぜんぶ持ち運ぶ。コクヨがサウナグッズを作りました
--  Vier Ausfälle: Paderborn ersatzgeschwächt zum HSV
--  Vilnius Christmas tree over the years – photos
--  Brnabić: Srbija jedna od sedam evropskih zemalja u programu kompjuterske obrade podataka za CERN
--  Data Visualization for Large Screen Software Market 2023 Perception, Extension and Predicted Trends 2029
--  FC Schalke 04: Fans wegen Ouedraogo in heller Aufregung – Top-Klub macht ernst
--  Cyprus Communist Initiative launched
--  ليبيا.. شركة البريقة توصي بالحد الأدنى من العاملين تحسبا للتقلبات الجوية
--  Essonne : les deux pôles d'Evry et Massy enfin reliés par le tram train T12
--  Anti-phishing Software Market A Comprehensive Analysis and Emerging Opportunities and Challenges for 2029
--  Who is Erica Mcgraw? Everything to Know About Her Love Life!
--  Rathenow: Havelländer Rassegeflügelzüchter kritisieren Auflagen des Veterinärwesens
--  Ex-Intendantin Schlesinger: Mir tun die Geschehnisse im RBB leid
+-  Vučić sutra na ceremoniji obeležavanja početka rada interkonektora Srbija-Bugarska
+-  Federer: Nadam se da će Đoković igrati koliko god želi
+-  ZVV Ede kent weg om handhaving eredivisie te realiseren
+-  금태섭 quot;김홍일 소년 가장 홍보? 구한말에나 있을 법한 시대착오적 홍보quot;
+-  초등학교 '서울의 봄' 단관 취소hellip;극우 유튜버 '좌빨' 공격 후 quot;승리했다quot;
+-  MEXICO: Al menos 14 muertos en un enfrentamiento entre civiles
+-  Police investigate bikie-related brawl outside of Perth concert
+-  Police investigate bikie-related brawl outside of Perth concert
+-  Altın jenerasyon geliyor! A Milli Takım'ın gelecekteki yıldızlarının ortak özelliği herkesi şaşırttı
+-  Ezt nem láttuk jönni: Ózd díszpolgára lett Majka
