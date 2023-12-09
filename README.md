@@ -1,11 +1,11 @@
 # Latest News
--  Kocaeli Milletvekili Saffet Sancaklı, MHP'den istifa etti
--  Edin Dzeko: Keşke Szymanski asistimi değerlendirseydi
--  İzmir'de Yunanistan'ın geri ittiği 95 düzensiz göçmen kurtarıldı
--  Bursalı gençler "Genç Türkiye Forumu"nda bir araya geldi
--  İsmail Kartal'dan şampiyonluk sözleri! "Domine ettik"
--  Sebastian Szymanski: Nasıl kaçırdığımı bilmiyorum
--  Zimbabve'de halk sandık başına gitti
--  Mert Günok'tan takım arkadaşlarına tepki!
--  Fransız hegemonyasına başkaldırı! Fransızcayı resmi dil olmaktan çıkardılar
--  Heyelanda kapanan kara yolunda ulaşım tek şeritten sağlanmaya başladı
+-  فتاة فلسطينية تعاتب العالم قبل استشهادها
+-  EEUU alerta de enfermedad transmitida por una garrapata a viajeros provenientes de México
+-  ضبط 3 اشخاص في تهم مختلفة في بنغازي
+-  UPenn president's fate hangs in balance as angry board convenes for emergency meeting
+-  Lagos Is Breathtaking At Night Through The Lens Of Niyi Fagbemi, Take A Look At It
+-  «سدايا» تُكرم الفائزين بالمسابقة العالمية للذكاء الاصطناعي للشباب «WAICY»
+-  Venezuela y Colombia se enfrentan en amistoso, con la vista en Copa América y Preolímpico
+-  Franskt massgripande av misstänkta pedofiler
+-  سلطات تركيا تصدر مذكرة توقيف دولية بحق نجل الرئيس الصومالي
+-  NOVAKA PITALI DA LI JE ANTIVAKSER: O odgovoru Đokovića BRUJAĆE CELA PLANETA! (VIDEO)
