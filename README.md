@@ -1,11 +1,11 @@
 # Latest News
--  Crisis en los hospitales de Venezuela: las tareas extras que deben hacer las madres con hijos internados
--  Soccerladuma | Johnson Highlights One Issue With Chiefs' Win Over PLK City
--  Bayern Mnichov utrpěl ve Frankfurtu debakl
--  Kuwait mulls family visas launch in 2024
--  Miguel Mateos, Emanero y Magui Olave cerrarán hoy la noche del Festival de Folclore, en Choele
--  Casey Wilson Says Tim Allen Was "F***ing Rude" On The Set Of "The Santa Clauses"
--  الهلال الأحمر القطري يطلق قافلة "القلوب الصغيرة" في موريتانيا
--  Zangeres en schrijfster Lenny Kuhr in Israël: 'Mijn kleinkinderen telden de raketinslagen, als spel'
--  عبدالله الرواحي يحصد لقبًا عالميًا مشتركًا بعد الفوز بـ"الشرق الأوسط للراليات"
--  Presidente da Alerj, Rodrigo Bacellar, recebe colar do Mérito Judiciário
+-  ปชป.กระเพื่อมหนัก!! 'สรรเพชญ'ขอทบทวนบทบาทตัวเอง ชี้คำขวัญที่ไม่เหมือนเดิมอีกต่อไป
+-  Junior WC Hockey: Odisha’s Amandeep Lakra Nets 2 In 10-1 Win; India Book Dutch Date In Quarterfinals
+-  Berisha: Të angazhuar në betejën pa kthim për shpëtimin e demokracisë dhe shoqërisë shqiptare
+-  Two Killed, One Injured In Bike-Scooter Collision In Odisha’s Kendrapada
+-  Ψήφος εμπιστοσύνης στο πλάνο «πράσινης» μετάβασης της HELLENiQ ENERGY
+-  Police searching for antisemitic suspect in NYC hate crime assault
+-  Американские конгрессмены потребовали уволить трех ректоров за антисемитизм
+-  عاجل.. خطوات إكمال بيانات المنشأة في تأميناتي أعمال
+-  بالفديو.. حالة مطرية غزيرة جنوب شرق مكة
+-  غدًا.. فتح باب التسجيل في جوائز المنتدى السعودي للإعلام
