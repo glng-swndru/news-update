@@ -1,51 +1,51 @@
 # Latest News
--  Tyla and Nasty C kick off 'Hey Neighbour Festival' with a bang
--  NPA confident of a conviction in Phala Phala burglary case
--  Nyati: Generation recovery one of key focus areas for new Eskom CEO Dan Marokane
--  'An honour to be chosen to lead Eskom' - newly appointed CEO Dan Marokane
--  Funding model to cover 'missing middle' at least 10 years away - Nzimande
--  Deforestation hits record low in Brazilian Amazon in November
--  Bakan Özhaseki: "Adıyaman'ı ayağa kaldıracağız"
--  Tràn lan hội nhóm vỡ nợ làm liều, xúi giục tự tử... trên mạng xã hội
--  제주를 사랑하는 고민이 더 나은 제주를 만드는 힘으로
--  İngiltere’de Başbakanlar kapıda kaldı
--  Во следните шест месеци изменет режим на сообраќај на патот Прилеп-Битола
--  Scandale à l’Elysée : Célébration de Hanouka et laïcité en France
--  News24 | A record 282 million people are undernourished in Africa due to climate change, FAO reports
--  بالصور: تكدُّس النفايات عند طريق السفينة جنوب شرق الناصرية
--  Congresista estadounidense le dice a Giammattei que aún "hay tiempo" para "retroceder"
--  Соработка на Народната банка со централната банка на Австрија за спроведување на најдобрите практики при управувањето со податоците
--  WhatsApp Introduces 'View Once' Feature For Voice Notes
--  Messenger Finally Gets End-to-end Encryption By Default
--  Čaj od bijelog luka i mente pomaže kod prehlade
--  Mitos y leyendas cobran vida en Medellín en un desfile carnavalesco y ancestral
--  Pogba torna a sorridere… a Dubai! Ed è con un ex Juventus – FOTO
--  VIDEO Požar u bolnici kod Rima. Troje mrtvih, evakuirani pacijenti
--  Lakon Petruk Dadi Ratu Dipentaskan Saat Dies Natalis ke-68 Universitas Sanata Dharma
--  СДСМ: Мицкоски да излезе пред граѓаните и да одговори за средбите со Палевски
--  İş makinesinin darbesiyle 10 katlı bina yerle bir oldu
--  SAD, Južna Koreja i Japan za jači međunarodni pritisak na Sjevernu...
--  Près de Caen, sur fond de violences conjugales, il rend l'ambiance "invivable chez lui"
--  গাজায় যুদ্ধবিরতির দাবিতে আরব বিশ্বে দেশে দেশে বিক্ষোভ
--  Ice Magic 2023 gets revamped entry system & larger space to avoid repeat of 2022's long wait times
--  Várják a mesélőket és a meséket a dombegyháziak esténként
--  Les jardins de la Bresle gèrent des chantiers d'insertion en faisant de l'écologie à Bouttencourt
--  Vitré : des sacs à dos de l'avent pour aider les femmes en situation précaire
--  Спикер Тулоблдумы Воробьев поддержал участие Путина в выборах 2024 года
--  Morbihan : une voiture et un poids-lourd se percutent, un enfant grièvement blessé
--  One injured in shooting at Habaraduwa
--  התמרון מעמיק: צה"ל חיסל חוליה בבי"ס, ואיתר פירים תת קרקעיים שבאחת מהם הותקנה מעלית
--  Защо зелето няма пазар у нас и каква е цената му?
--  S. Korea, US agree to enhance cooperation in semiconductors, next-gen tech
--  Шведские школы готовы полностью запретить использование мобильных телефонов
--  '서울의 봄' 600만 관객 돌파…'천만 영화' 향해 질주
--  Ce collectif vous aide à ouvrir une épicerie participative dans votre village
--  Kocaeli Rallisinin startını Büyükakın verdi
--  Jalani Latihan Mandiri Jelang Piala Asia 2023, Perut 'Roti Sobek' Asnawi Mangkualam Dipuji Netizen
--  صلاح يحلم باستعادة عرشه الأفريقي في حفل الأفضل بالقارة السمراء
--  Калининградцам рассказали о мерах поддержки детства, отцовства и материнства
--  역전패의 달인... 토트넘, 이기고 있는 상황에서 승점 16점 ↓ →최근 5경기 1무 4패
--  Slováci, pozor: 13. dôchodky môžu byť výrazne vyššie. Dosahovať by mali takmer 800 eur
--  President of the Republic of Kenya Receives Credentials of the State of Qatar's Ambassador
--  Prime Minister and Minister of Foreign Affairs Participates in Talks Session Between Arab-Islamic Summit Ministerial Committee with United States State Secretary
--  Eritrea: Strong effort to ensure safe blood supply
+-  รถขน11บังกลาเทศลอบเข้าไทยหนี จนท.ไล่ล่าหลุดโค้งพลิกคว่ำหวิดหมู่
+-  ยายวัย72เริ่มไม่ไหว โรครุมเร้า ไม่อยากทิ้งแมว50ชีวิต วอนผู้ใจบุญรับเลี้ยงต่อ
+-  ปิดเกม'ปชป.สตอรี่'!!! 'เดชอิศม์'มาตามนัดนั่งเลขาฯปชป.-ตั้ง 13 รองหน.พรรคยุค'เฉลิมชัย'
+-  Prix du Pétrole : Une Chute Libre Sans Fin
+-  [이란, 이·하마스 휴전결의 美 거부에 ‘엄포’…“중동 폭발할 것”
+-  Taiwan-Canada ties surge as supporters tout trade, politics and shared values
+-  Soccerladuma | Waiting Game For Chiefs & Downs On Mayo
+-  ليبيا تنفق على الفرد 958 دولار سنوياً في قطاع الصحة
+-  Zakes Bantwini releases his last-ever album!
+-  Bakan Bolat'a ABD'li mevkidaşından tebrik
+-  Türkiye'den eğitime dev yatırım: 1,7 trilyon lira
+-  ARMA 8x8 Türkiye'de ilk kez envantere girdi
+-  Pendikspor, Kayserispor deplasmanında
+-  Kırmızı et sektörüne yönelik inceleme başladı! Rekabet Kurumu Başkanı Küle ayrıntılar anlattı
+-  Beşiktaş'tan derbi biletleri için açıklama
+-  Türkiye'de üretilip Avrupa'ya gönderiliyor
+-  Bakan Bolat- Raimondo görüşmesiyle ilgili Ticaret Bakanlığı'ndan açıklama
+-  Stort lyft för USA-diesel till Europa
+-  महिला की आंखों में से निकाले गए 60 जिंदा कीड़े, देखकर डॉक्टर हैरान!
+-  AB, yapay zekaya katı kurallar getiriyor
+-  Parasta ovat kaverit ja askarteleminen – Pyhärannan seurakunta vuokrasi Ihoden kerhotilan testamenttivaroilla
+-  Accords tuniso-roumains dans l’enseignement supérieur, la formation professionnelle et l’emploi
+-  İkinci El Araba Satışında Yeni Dönem: Otomobil Firmaları Kampanya Yarışına Başladı
+-  Elma ja Greta pääsivät mukaan Lasten itsenäisyyspäivän juhlaan – pääministerin kättely jännitti
+-  Europe reaches deal on world’s first comprehensive AI rules
+-  Juve-Napoli, fischia CalVARese: Orsato miglior arbitro d’Europa
+-  AI will create more jobs than it kills
+-  Ryan O‘Neal ist tot: „Love Story“-Schauspieler mit 82 Jahren gestorben
+-  Daily horoscope for December 9, 2023
+-  Israel-Hamas war: Gaza hammered with bombardments, Hamas dubs US veto blocking ceasefire 'inhumane'
+-  Eating out and Partygate: Covid inquiry questions Sunak should prepare for
+-  ยาบ้าไม่เกิน 5 เม็ด บำบัดได้ไม่ต้องติดคุก
+-  الدوري الممتاز .. التعادل الإيجابي يسود لقاء البشائر والاتحاد المصراتي
+-  Surrealing in the Years: President Conor is unlikely, but we're still in for a long two years
+-  Hyundai Sonata 2024: precios de toda la gama
+-  Rapid hofft auf das Ende der Serie gegen Salzburg
+-  Découvrez le Grand JT des territoires du samedi 9 décembre
+-  Tottenham v Newcastle odds boost: Get 4/1 on Son 2+ shots on target and Romero 1+ foul with Sky Bet
+-  Šťastné slovo: Chcete zpátky Babiše? „Projekt Strach“ nemusí fungovat věčně
+-  BVB-U19 ohne Weltmeister-Trio gegen Bayer Leverkusen: Live-Ticker zum Spitzenspiel
+-  Crystal Palace v Liverpool odds boost: Get 5/1 on Salah to have 2+ shots on target and Alexander-Arnold to commit 1+ foul with Sky Bet
+-  BVB-U19 ohne Weltmeister-Trio gegen Bayer Leverkusen: Live-Ticker zum Spitzenspiel
+-  Probabili formazioni Atalanta Milan: un solo cambio per Pioli
+-  Moves to tackle ongoing anti-social behaviour in Kilgetty
+-  Hedvigs vän försvinner spårlöst en dag
+-  Hedvigs vän försvinner spårlöst en dag
+-  "Il n’y en a qu’un qui dirige, c’est Christian Estrosi": Pierre-Paul Léonelli est l'invité de "L'Interview à la une"
+-  Hur är det med vårt dricksvatten i Västerås?
+-  Change unlikely to come to the public service
+-  Hur är det med vårt dricksvatten i Västerås?
