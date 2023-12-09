@@ -1,51 +1,51 @@
 # Latest News
--  Aufstellungen: So spielen Eintracht Frankfurt und der FC Bayern - Bundesliga
--  Vincenzo Mollica: “Mi manca il volto di mia moglie”
--  Bild: россияне зашли в Авдеевку с нового направления
--  Tajna misija pod okriljem primirja u Gazi: Prebacili 900.000 novčanica
--  [한예슬, ‘악연’ 故김용호 언급 “진심으로 안타깝고 불쌍”
--  [“윤석열·이재명으론 답 없다” 이낙연 신당 창당 시사
--  87% des Français considèrent que les personnes exerçant des responsabilités sont corrompues
--  انتخابات الرئاسة.. تعرف على مهام رئيس الجمهورية
--  UFC star Ian Garry 'cautious' about travelling to America for UFC 296 as Irishman worries for safety of his family after recent controversy surrounding his wife and her book 'How to be a WAG'
--  Änderungen 2024: Was ändert sich für Autofahrende?
--  Borussia Dortmund: Transfers im Winter? Kehl-Aussagen lassen aufhorchen
--  Passengers face hours of delays after Gatwick Airport...
--  Promotion folle sur le Samsung Galaxy S23 Ultra chez E.Leclerc, ça ne va pas durer
--  مؤمن زكريا يعود للزمالك بعد 9 سنوات
--  Man United vs Bournemouth - Premier League: Live score team news and updates as Erik ten Hag's side look to build on win over Chelsea plus updates from the rest of Saturday's 3pm kick-offs
--  3 observations after Sixers pull away late, earn back-and-forth win over Hawks
--  3 observations after Sixers pull away late, earn back-and-forth win over Hawks
--  MLB Network reporter apologizes for 'inaccurate' Ohtani report
--  Giants QB Tommy DeVito hilariously ranks Italian foods: 'You can do anything with a cutlet'
--  MLB Network reporter apologizes for 'inaccurate' Ohtani report
--  Giants QB Tommy DeVito hilariously ranks Italian foods: 'You can do anything with a cutlet'
--  Ζάκυνθος: Σκοτώθηκε πατέρας ανήλικου παιδιού που καταπλακώθηκε από τρακτέρ
--  राम मंदिर तक बन रहे फोर लेन का 90 प्रतिशत काम हुआ पूरा
--  Hrvatski gradovi odustaju od vatrometa, umesto toga ekološki svetlosni efekti bez buke
--  Míchel: "Si pensamos que podemos jugar de tú a tú contra el Barça será imposible ganar"
--  LNG-Terminal vor Rügen: Bund gibt Milliarden-Garantie für Bau
--  Interview mit EU-Abgeordneter Hannah Neumann zu »Katargate«: »Was zur Hölle passiert hier?«
--  Poslední cesta knížete: lidé zpívali koledu, minul paláce a spočine na Orlíku
--  El tiempo: Aisladas lluvias en la costa norte oriental
--  Slovenské skipasy poriadne zdraželi: Vieme, koľko zaplatíš v najväčších strediskách (VEĽKÝ PREHĽAD)
--  U of I Extension to hold fall garden program Oct. 24 in Walnut
--  No ‘single solution’ for energy transition, says Opec chief
--  Crystal Palace are denied a penalty against Liverpool as VAR check lasting over THREE MINUTES rules Will Hughes fouled Wataru Endo to spare Virgil van Dijk's blushes
--  Crystal Palace are denied a penalty against Liverpool as VAR check lasting over THREE MINUTES rules Will Hughes fouled Wataru Endo to spare Virgil van Dijk's blushes
--  'DSI'รับเป็นคดีพิเศษ!! บุกตรวจยึดคืนพื้นที่ป่าแหล่งท่องเที่ยว'สวิตเซอร์แลนด์ แดนจะนะ'
--  โยมนำ'เจ้าแพนเค้ก'มาถวายตั้งแต่ตัวเท่ากำปั้น ตอนนี้หนักกว่า 120 โล บอกหมูป่าไซส์มินิ
--  Peru to ring in the Christmas season on Dec. 2
--  هالاند الأطول والشحات الأكثر مشاركة في مونديال الأندية
--  Paderborn und Bamberg: Papst Franziskus ernennt neue Erzbischöfe
--  Aji Santoso Ingin Persikabo 1973 Pangkas Jarak dengan Persita
--  Умер легендарный актер "золотого века" Болливуда Мехмуд
--  Regresa a su tierra natal
--  Aumentarán tarifa de la Troncal en 2024
--  Einstimmiger Beschluss: SPD-Parteitag fordert indirekt Aussetzung der Schuldenbremse für 2024
--  Delegado enfrentó a Familia Michoacana y murió como héroe
--  SPD-Parteitag fordert indirekt Aussetzung der Schuldenbremse
--  Où partir au soleil en hiver ?
--  Desastres naturales dejan pérdidas de US$ 269.000 millones en 2023
--  Ισραήλ: Στρατιώτης βανδαλίζει κατάστημα στη Τζαμπαλίγια - «Ανάρμοστη συμπεριφορά, το διερευνούμε» λένε οι IDF - Βίντεο
--  Mysore Medical College Centenary : My Memories – 1
+-  Banco de la Nación confirma pago de devolución de Fonavi
+-  Photos Of Masquerades From Ibeno, Akwa Ibom State
+-  ¿Vivir bien con diabetes? Sí se puede con estos 4 pilares
+-  Ouderwets feest met 17e Dickens fair in Bennekom
+-  কাপ্তান বাজারে সপ্তাহব্যাপী আবাসন মেলার উদ্বোধন
+-  ২৪ ঘণ্টায় ইসরায়েলি বাহিনীর হামলায় ১৩৩ ফিলিস্তিনি নিহত
+-  আইনশৃঙ্খলা ইসি নয়, স্বরাষ্ট্র মন্ত্রণালয় দেখছে: ইসি সচিব
+-  ‘গণতন্ত্র ছাড়া উন্নয়ন অর্থবহ হয় না’
+-  পাঁচ দিনে ইসিতে আবেদন ৫৬১, আপিল শুনানি শুরু রবিবার
+-  ব্যারিস্টার মইনুল হোসেন আর নেই
+-  Explosion at business premises in Vlaardingen, mayor orders building to close
+-  تعادل سلبي ينهي لقاء نفط ميسان ونفط البصرة في دوري نجوم العراق
+-  القنوات الناقلة لمباراة الترجي و​​بترو أتلتيكو في دوري أبطال أفريقيا 2024
+-  T&T’s Nicholas Romany grabs Barbados Fun Mile title
+-  ABŞ, Cənubi Koreya və Yaponiya razılığa gəldi
+-  Suudi Arabistan'dan Lionel Messi itirafı
+-  Gogamedi Murder: కర్ణిసేన చీఫ్ హత్య కేసులో తొలి అరెస్టు
+-  Fiscalía en Ica: policías en alerta ante situaciones de riesgo en el sector Barrio Chino
+-  Ašeradens komentē Saeimā pieņemto 2024. gada budžetu
+-  Kızılcık Şerbeti 43. bölüm fragmanı yayınlandı mı? Kızılcık Şerbeti yeni bölüm ne zaman?
+-  Menarini Group, 새로운 무진행 생존 데이터 발표
+-  मनोरंजक कॉमेडी फिल्म ‘अनी हाओ मिट्टी पाओ’ ओटीटी प्लेटफॉर्म चौपाल पर रिलीज हो गई
+-  Update៖ សហរដ្ឋអាមេរិក វេតូ ទៅលើការអំពាវនាវរបស់ UN ឲ្យមានបទឈប់បាញ់គ្នា នៅក្នុងតំបន់ហ្គាហ្សា
+-  Netflix : cette comédie sur un tueur en série avec Robert Pattinson ne verra jamais le jour
+-  ERÜ’de ameliyatlar ‘robot’ ile yapılacak
+-  À Nantes, les avions n’arrivent plus à atterrir et font demi-tour à cause de la pluie et du vent
+-  "يونيسف": أطفال غزة في أخطر مكان بالعالم
+-  Map reveals iconic UK filming locations – was a movie shot in your town?
+-  मोहम्मद आशिक बने ‘मास्टरशेफ इंडिया’ के विजेता, ट्रॉफी के साथ मिला लाखों रुपये का इनाम
+-  Isabelle Morizet avec Philippe Lellouche
+-  طريقة استخدام الفازلين والقرنفل لتطويل الشعر وانبات الفراغات والقضاء على الصلع الوراثي في 7 أيام
+-  סקר חדש חושף: מעמדו הפוליטי של הנשיא ביידן נמצא בנקודה החלשה ביותר של הנשיאות שלו
+-  לוחם תועד משחית חנות בעזה; דו"צ: "מוקיעים ומגנים"
+-  أقوى من إبرة الانسولين.. عشبة جبارة رخيصة الثمن متوفرة في كل مطبخ تخفض السكر التراكمي خلال دقائق!
+-  מתכונן לעתיד: התפקיד החדש והמיוחד של דקל קינן
+-  CHP lideri Özgür Özel, Almanya Başkanı Olaf Scholz ile buluştu
+-  Why Did Global-e Stock Soar 75% In 2023?
+-  Ender Saraç cinsel istismar için montaj dedi Bakanlık'tan açıklama geldi
+-  Тренер «Спартака» Слишкович: «Крылья» были демотивированы, они не понимали, как вернуться в игру»
+-  Künstliche Intelligenz soll in EU stärker geregelt werden: Worauf hat sich die EU geeinigt?
+-  Запад подталкивает Японию к фактическому пересмотру итогов Второй мировой войны
+-  The Top Tip To Prevent A Dry Pre-Cooked Spiral Ham
+-  Fifa bekräftar: De vill arrangera fotbolls-VM 2027
+-  Fifa bekräftar: De vill arrangera fotbolls-VM 2027
+-  Nostalgic! Netizens lost in nostalgia as Farhan Akhtar reaches the famous Dil Chahta Hai spot, writes an emotional note
+-  Artvin’de karaya oturan geminin onarım çalışması sürüyor
+-  រុស្ស៊ី ថា ការធ្វើឱ្យជន់លិចតំបន់ហ្គាហ្សា នឹងក្លាយជាឧក្រិដ្ឋកម្មសង្គ្រាម
+-  A la cancha
+-  Markopoulo Park: Πέντε ελληνικές κούρσες και τρία ΣΚΟΡ τη Δευτέρα
+-  वरिष्ठ कांग्रेस नेता वीरेंद्र कुमार ‘बिंदु’ ने थामा आम आदमी पार्टी का दामन
