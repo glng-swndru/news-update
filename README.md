@@ -1,11 +1,51 @@
 # Latest News
--  권은비·최예나·김민주, 의문의 男과 전화 통화? '설렘 기류' 폭발 [전지적 참견 시점]
--  फुङ्लिङमा आगलागी, पाँच लाख बराबरको क्षति
--  स्वर्ण पदक विजेता गुरुङको सम्मान
--  भ्रष्टाचार बढ्नुमा मुख्य दोषी राजनीतिक नेतृत्व : मुख्यमन्त्री जम्कट्टेल
--  ‘नेपालगञ्ज वाकाथन’ सुरु
--  Metastatic HER2-Positive Breast Cancer Market Share, Epidemiology, Analysis & Trends 2024-2034
--  Honda Beat 2024 trang bị cực đỉnh không kém SH, giá bán chưa đến 32 triệu đồng đe dọa Air Blade
--  Кандидат из холодильника
--  กระบะเสียหลักตกร่องข้างถนนมุดท่อระบายน้ำพังยับเจ็บ 3 รายพบขวดเบียร์ในรถ
--  'เศรษฐา'ลั่นไม่เห็นด้วยขึ้นค่าแรงน้อยเกิน เปรียบขึ้นค่าแรง 3 จังหวัดใต้ซื้อไข่ลูกนึงยังไม่ได้
+-  민주, ‘음주·폭력 전과’ 강도형 후보 지명에 “국민 무시한 것”
+-  문재인 “합의 파기와 대화 중단이 북한 핵발전 촉진시켜”
+-  [조성진의 가창신공] 오한승, 동아방송예술대 실용음악과 교수
+-  [르세라핌, 스포티파이 ‘위클리 톱 송 글로벌’ 6주 연속 차트인
+-  Rokiškėnų algos keliais šimtais eurų mažesnės nei šalies vidurkis
+-  [포토] 사랑의 온도 25.9도 ‘더 높여 주세요’
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Európska únia a parlament sa dohodli na prvom komplexnom zákone o umelej inteligencii
+-  Súd uznal vinnou šesticu tínedžerov v súvislosti s vraždou učiteľa, dostali podmienečné tresty
+-  Las vueltas
+-  استشهاد المئات بمراكز الإيواء ودماء هائل بالقطاع الصحي في غزة (إنفوغراف)
+-  Warme winterweken in Culemborg
+-  El nuevo fondo de pérdidas y daños solo cubre el 0,2% necesario
+-  El nuevo fondo de pérdidas y daños solo cubre el 0,2% necesario
+-  Marchés de Noël, stations de ski, animations... Que faire à Toulouse ce week-end ?
+-  Centre Bois-Larris, cambrioleurs de Nabilla, vendeurs de CBD... Les infos de la semaine dans l'Oise
+-  On dirait un temple maya : c'est quoi cette étrange pyramide sur la route de l'Espagne ?
+-  Près de Nice. Ce marché de Noël est l'un des plus beaux des Alpes-Maritimes
+-  Beed Crime News : जमिनीचा वाद विकोपाला गेला, पाच मामांच्या मारहाणीत भाच्याचा जीव गेला; बीड जिल्ह्यातील धक्कादायक घटना
+-  La ganadería supone el 12% de todas las emisiones de carbono
+-  La ganadería supone el 12% de todas las emisiones de carbono
+-  NHRC notice to Manipur govt, DGP over killings in gun fight
+-  مقتل امرأة على يد زوجها في الضالع
+-  आगरा की दीप्ती ,पूनम की जगह पक्की, क्या आरुषि और श्वेता की भी चमकेगी किस्मत?
+-  Leipzig: Georg-Schumann-Straße soll fit für breitere Straßenbahnen werden
+-  Meghan Markle's ex-pal Jessica Mulroney subtly snubs her amid race row
+-  Євросоюз дійшов згоди щодо регулювання штучного інтелекту
+-  Rothes’ Fraser Robertson looks to overcome injury issues as Huntly’s Brodie Allen tries to impress new boss
+-  Óttar Guðmundsson skrifar: Skakki turninn í Písa
+-  Friends Ally MacDonald and Steven Mackay become foes as Brora Rangers face Nairn County
+-  Inverurie dealership owner on driving business forward for 40 years while raising £1m for charity
+-  Jail for two-time Fochabers drink-driver who hit temporary traffic lights
+-  HebCelt: Artist programmer Michelle Shields is bringing the wow factor to Stornoway festival
+-  L'expérimentation Village-à-venir lancée par le Département du Lot fait des petits...
+-  Lons-le-Saunier. Et si vous veniez courir en musique pour la fin de l'année
+-  Dix choses à savoir sur Napoléon Ier et Fontainebleau
+-  A 1h de Paris, ce village avec son célèbre château a tout pour émerveiller les visiteurs
+-  Xiaomi Band 8 Pro รุ่นพิเศษ Genshin Impact เปิดตัวทางการ ราคาราว 2,790 บาท
+-  Ross Laidlaw says Derek Adams has made Ross County intent on looking up Premiership table
+-  Қандай қилиб совуқ ҳавога нисбатан чидамли бўлиш мумкин?.
+-  Ўзбекистон ва Швеция Афғонистонда инфратузилма лойиҳаларини амалга ошириш масаласини кўриб чиқди.
+-  Liveticker: Dynamo Dresden gegen SpVgg Unterhaching
+-  Песков: Путин ҳали сайловда номзод сифатида рўйхатдан ўтмади.
+-  Sri Lanka to host 37th Asia Pacific Regional Conference of FAO
+-  Discovering a secret magical winter wonderland in ‘fairy woods’ near New Deer
+-  New SNP Western Isles chief wants to encourage more women into male-dominated council
+-  The Flying Pigs: Massive cost of feeding former Edinburgh pandas is bamboozling
+-  Formartine United’s Julian Wade wants goals to keep him warm this winter
+-  Jacqueline Wake Young: ‘Epic trek for Coffeemate gave me newfound respect for St Kilda foragers’
+-  कोशी प्रदेशमा पहिलो पटक एआई तालिम सुरु
