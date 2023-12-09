@@ -1,51 +1,11 @@
 # Latest News
--  השחקן ריאן אוניל ("סיפור אהבה") הלך לעולמו בגיל 82
--  تمهيدًا لضربها.. الولايات المتحدة ترصد أهدافًا أولية لمواقع مليشيا الحوثي
--  Appel à candidatures pour le conseil municipal des jeunes de Msamboro
--  CCIC celebra su tradicional cena navideña
--  ร.17 ตรวจความพร้อม ชป.บรรเทาสาธารณภัย ประจำสัปดาห์
--  Bodrumda yangın: Korku dolu anlar yaşandı
--  İsrail gece boyu Gazze'yi kana boyadı: Çok sayıda şehit ve yaralı var
--  Herbs benefits: ఈ ఆయుర్వేద మూలికలతో..మీ ఆరోగ్యం పదిలం
--  Robbed, Silenced, and Betrayed: Why Gazans Turned Away From Hamas
--  Northern Ireland’s growing confidence
--  ร.17 พัน.2 พร้อมรบ พร้อมใจ ลุยภัยทุกพื้นที่
--  СК опроверг данные о смерти ребенка во Владивостоке из-за корейской еды
--  YouTube Luncurkan Fitur Jeda Komentar, Apa Itu?
--  Crowds bake at Sydney concerts as mercury soars
--  CIF state football championships: Friday’s scores, Saturday’s schedule
--  Turki Tegaskan Lagi Solusi Dua Negara untuk Atasi Konflik Israel-Palestina
--  Bobby Deol: ਬੌਬੀ ਦਿਓਲ ਦਾ ਬੇਟਾ ਆਰੀਆਮਨ ਦਿਓਲ ਵੀ ਬਾਲੀਵੁੱਡ 'ਚ ਕਰਨ ਜਾ ਰਿਹਾ ਐਂਟਰੀ, ਐਨੀਮਲ ਐਕਟਰ ਨੇ ਕੀਤਾ ਕਨਫਰਮ
--  BARCLAYS PLC SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Barclays PLC - BCS
--  ROBLOX SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF OVER $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Roblox Corporation - RBLX
--  CHARGEPOINT SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against ChargePoint Holdings, Inc. - CHPT
--  DOLLAR GENERAL SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuits Against Dollar General Corporation - DG
--  FISKER SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: Kahn Swick & Foti, LLC Reminds Investors with Losses in Excess of $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Fisker Inc. - FSR
--  LIVEPERSON SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against LivePerson, Inc. - LPSN
--  ADAPTHEALTH SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against AdaptHealth Corp. - AHCO
--  Ogun places N50m bounty on killers of finance director
--  الصحة العالمية: أكثر من ٣٠٪ من النساء يعانين من مشاكل بعد الولادة
--  Dhoni Daughter: ధోని కుమార్తె స్కూల్, ఫీజు వివరాలు మీకు తెలుసా?
--  [양주 지식산업센터 공사장서 20대 근로자 추락사
--  Gibran Hadiri Deklarasi Dukungan Buruh Pelabuhan di Cilincing
--  'K푸드' 인기…경북 농산물 수출 '연간 1조원 시대' 활짝
--  Gia Streaming: Watch & Stream Online via HBO Max
--  ব্যতিক্রমী র‌্যাম্প শো, ‘মডেল’ হয়ে হেঁটেছে সুসজ্জিত গরু
--  كيف تبدو رائحة الفضاء؟!
--  আওয়ামী লীগ নেতার হলফনামায় লেখা ‘জাতীয় পার্টির প্রার্থী হতে ইচ্ছুক’
--  เตรียมความพร้อมของกำลังพล ยุทโธปกรณ์
--  बेहद खूबसूरत है मैसूर का ये गार्डन, एक बार जरूर जाएं
--  George and Gillespie go toe-to-toe, Petrovsky nets OT winner
--  كيف نحصل على ألوان أعيننا؟
--  Baldur’s Gate III คว้ารางวัลเกมแห่งปีจาก The Game Awards 2023 พร้อมรายชื่อเกมที่รับรางวัลในสาขาอื่นๆ
--  एनआयएची आयसीसवर मोठी कारवाई, देशभरात 44 ठिकाणांवर एनआयएचं धाडसत्र
--  هل للعزلة فوائد على الصحة؟!
--  Federal Appeals Court Strikes Down Parts of New York Gun Law, Upholds Others
--  ร.17 พัน.3 ในพระองค์ฯ ตรวจความพร้อมของหมวดเตรียมพร้อม
--  Morning Headlines 9th December : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा Morning News
--  मुखुन्डो
--  Govt. curb mercenary recruitment through local agents
--  Beşiktaş Fenerbahçe derbisinin ilk 11'leri belli oldu. Rıza Çalımbay ve İsmail Kartal'dan flaş kararlar
--  US embassy in Baghdad struck with mortars as attacks escalate
--  В ХАМАС заявили, что армия Израиля разрушила Великую мечеть в Газе
--  Dolmabahçe'de dev düello! İşte Beşiktaş-Fenerbahçe derbisinin ilk 11'leri
+-  한미일 "북 비핵화·군사협력 금지 의무 재확인"
+-  Delhi cabinet reshuffle: Atishi gets Law department
+-  India`s economic growth linked to progress of entire world: PM Modi
+-  West Bengal: Ten newborns die within 24 hours at Murshidabad hospital
+-  मोठी बातमी! पिंपरी चिंचवडच्या आगीत सहा कामगारांचा होरपळून मृत्यूप्रकरणी गुन्हा दाखल
+-  Union Cabinet Authorises Rs 2,500 Crore For Interest Equalisation Scheme
+-  Government Approves 100% Packaging of Food Grains In Diversified Jute Bags
+-  Onde assistir aos jogos de hoje (9/12/2023)
+-  Marca de cerveja é anunciada como patrocinadora da Copa América de 2024 e terá Messi como embaixador
+-  Harry Tuntut Fasilitas Keamanan, Sebut Inggris Tak Aman
