@@ -1,11 +1,11 @@
 # Latest News
--  فتاة فلسطينية تعاتب العالم قبل استشهادها
--  EEUU alerta de enfermedad transmitida por una garrapata a viajeros provenientes de México
--  ضبط 3 اشخاص في تهم مختلفة في بنغازي
--  UPenn president's fate hangs in balance as angry board convenes for emergency meeting
--  Lagos Is Breathtaking At Night Through The Lens Of Niyi Fagbemi, Take A Look At It
--  «سدايا» تُكرم الفائزين بالمسابقة العالمية للذكاء الاصطناعي للشباب «WAICY»
--  Venezuela y Colombia se enfrentan en amistoso, con la vista en Copa América y Preolímpico
--  Franskt massgripande av misstänkta pedofiler
--  سلطات تركيا تصدر مذكرة توقيف دولية بحق نجل الرئيس الصومالي
--  NOVAKA PITALI DA LI JE ANTIVAKSER: O odgovoru Đokovića BRUJAĆE CELA PLANETA! (VIDEO)
+-  البطولة الإحترافية 1: شباب السوالم يتفوق على ضيفه اتحاد تواركة 1-0
+-  Premier League: FC Liverpool springt mit Sieg gegen Crystal Palace an die Tabellenspitze
+-  Ukrajinski parlament pozvao EU da otvore pristupne pregovore
+-  Gazze'de can kaybı 17 bin 700'e yükseldi
+-  Premier League: Η Άστον Βίλα «γκρέμισε» την Άρσεναλ από την κορυφή και θυμίζει... Λέστερ!
+-  Šeško preživel pravo dramo in se veselil na derbiju, katastrofa Bayerna
+-  Zvanično otvorena ski sezona na Bjelašnici
+-  ఆయన తీరే అంత!
+-  Below Deck Med’s Lily Davison supports fan calling her Season 8 co-stars “b*tches”
+-  రైతుల పంట రుణాలు తక్షణం రద్దు చేయాలి
