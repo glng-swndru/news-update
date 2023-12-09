@@ -1,11 +1,51 @@
 # Latest News
--  Inzaghi: "Risposta alla Juve? Non dobbiamo pensare a cosa fanno gli altri"
--  Adolescente de 14 años que fue hallada desmembrada cerca de un taller
--  Arsenal Tumbang di Markas Aston Villa, Klasemen Papan Atas Liga Inggris Sengit
--  NBA: El récord de Victor Wembanyama no frena la caída en picada de los Spurs
--  Yolcu taşıdığı otobüsü gelin arabası oldu
--  Stórbrotið mark fyrir botnliðið (myndskeið)
--  As 10 melhores séries lançadas em novembro
--  Stovky Izraelčanov v Tel Avive vyzývali na prepustenie rukojemníkov
--  Museu Nacional prevê R$ 90 milhões via Lei Rouanet em nova etapa de reforma para reabrir em 2026
--  Trafikolycka med flera fordon
+-  قراصنة يخترقون منظمات متعددة في ولايات أميركية
+-  Sunak's Migration Headache Continues to Linger
+-  Aussies nail first day of Sevens in Cape Town
+-  Aussies nail first day of Sevens in Cape Town
+-  Des fonds d'investissement dévolus aux énergies renouvelables
+-  Avec Aleph Alpha, l'Allemagne croit en ses chances dans la course à l'intelligence artificielle
+-  تسلا تواجه الغرامة بسبب انتهاكات السلامة.. تعرف على التفاصيل
+-  36 % من المصابين بالخرف لا يعرفون أنهم مصابون به
+-  Shohei Ohtani to Join Dodgers on Record $700 Million Deal
+-  Tom Sandoval Shares Why He Didn't Join Ariana & Lala Hookup
+-  The Heartbreaking True Story Of Ryan O'Neal And Farrah Fawcett's Relationship
+-  Concerned Strictly Come Dancing fans ask same question about red mark on Dianne Buswell's shoulder
+-  'RHOBH' Alum Teddi Mellencamp on LVP Trying to "Produce" Her
+-  Dave Robb, Longtime Hollywood Labor Reporter, Dies at 74
+-  Doctor Who fans hit out at 'bi regeneration' twist as they all ask same question
+-  Watch WWE Event Online Free on Peacock
+-  'RHOBH' Alum Teddi Mellencamp on LVP Trying to "Produce" Her
+-  Shohei Ohtani to Join Dodgers on Record $700 Million Deal
+-  Tom Sandoval Shares Why He Didn't Join Ariana & Lala Hookup
+-  The Heartbreaking True Story Of Ryan O'Neal And Farrah Fawcett's Relationship
+-  Concerned Strictly Come Dancing fans ask same question about red mark on Dianne Buswell's shoulder
+-  Dave Robb, Longtime Hollywood Labor Reporter, Dies at 74
+-  Doctor Who fans hit out at 'bi regeneration' twist as they all ask same question
+-  Watch WWE Event Online Free on Peacock
+-  L'UE se pose en pionnière dans l'encadrement de l'intelligence artificielle
+-  Bénie soit Beyoncé, prêtresse de la libération
+-  Bougie de Hanouka : Macron accusé de tout côté d'avoir enfreint la "sacro-sainte" laïcité
+-  Le goût salé est étonnamment mystérieux
+-  En Corée du Sud, un suicide toutes les quarante minutes et beaucoup de tabous
+-  En Pologne, à défaut d'une légalisation de l'IVG, les féministes visent la dépénalisation
+-  Penser et parler le possible avec le conditionnel
+-  Mark Rutte place ses pions à Bruxelles
+-  Au Niger, une économie de la débrouille dans un pays sous blocus
+-  Diminutive and mysterious, the Pentagon's X-37B set to launch again
+-  Diminutive and mysterious, the Pentagon's X-37B set to launch again
+-  'Silent Night' review: John Woo's comeback needs more juice
+-  'Silent Night' review: John Woo's comeback needs more juice
+-  Where to Eat in and Around Gillette Stadium
+-  Where to Eat in and Around Gillette Stadium
+-  OUCH! Community Notes LEVELS Karine Jean-Pierre's 'Biden Job Creation' Brag
+-  Bari Weiss's Issues Kill Orders Carried Out By The IDF - Totally Sane People
+-  Twitter Memes Kevin McCarthy into Oblivion for Saying 'Democrats Look Like America'
+-  Watch President Biden Invent an Entirely New Amount of Money (Maybe This Was The Big Guy's Cut)
+-  Miranda Devine Reminds NY Times (and Others) Why Hunter Biden Indictments Don't Link to Joe
+-  Breaking: Actor Ryan O'Neal Dead At 82
+-  X User Asks Question of 2A Community and is Unprepared for Response
+-  Friday Fun: We Give You #FluteGuy
+-  Friday Fun: Homeowner Finds Exterminator's Notebook, Hilarity Ensues
+-  OUCH! Community Notes LEVELS Karine Jean-Pierre's 'Biden Job Creation' Brag
+-  Bari Weiss's Issues Kill Orders Carried Out By The IDF - Totally Sane People
