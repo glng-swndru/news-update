@@ -1,11 +1,11 @@
 # Latest News
--  In-Season Tournament – Finale : la preview de Lakers – Pacers
--  The Archies: Zoya Akhtar calls nepotism debate around the film `banal`
--  عمليّات مكثّفة للحزب.. موقعٌ إسرائيليّ يتعرض للقصف
--  Year Ender 2023: एक धार्मिक यात्रा और हिंसा की आग में जल उठा नूंह, जानें दंगे की खौफनाक कहानी
--  الحوثيون يعلنون منع مرور السفن إلى الاحتلال
--  চুলের বৃদ্ধি বাড়াবে এই ভেষজ হেয়ার প্যাক
--  Važan sastanak u Nišu: Vučić sutra sa Alijevim, Radevom i Žiofreom
--  Ovo je motiv pucnjave u Novom Sadu! Policija intenzivno traga za počiniocem!
--  صنعاء تحذّر السفن المتجهة إلى إسرائيل
--  حاولوا التسلل إلى أمريكا.. المكسيك تعتقل 5 إيرانيين
+-  Crisis en los hospitales de Venezuela: las tareas extras que deben hacer las madres con hijos internados
+-  Soccerladuma | Johnson Highlights One Issue With Chiefs' Win Over PLK City
+-  Bayern Mnichov utrpěl ve Frankfurtu debakl
+-  Kuwait mulls family visas launch in 2024
+-  Miguel Mateos, Emanero y Magui Olave cerrarán hoy la noche del Festival de Folclore, en Choele
+-  Casey Wilson Says Tim Allen Was "F***ing Rude" On The Set Of "The Santa Clauses"
+-  الهلال الأحمر القطري يطلق قافلة "القلوب الصغيرة" في موريتانيا
+-  Zangeres en schrijfster Lenny Kuhr in Israël: 'Mijn kleinkinderen telden de raketinslagen, als spel'
+-  عبدالله الرواحي يحصد لقبًا عالميًا مشتركًا بعد الفوز بـ"الشرق الأوسط للراليات"
+-  Presidente da Alerj, Rodrigo Bacellar, recebe colar do Mérito Judiciário
