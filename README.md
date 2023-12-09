@@ -1,11 +1,11 @@
 # Latest News
--  Reducción de jornada laboral, en el centro del debate
--  Aplazarían baja a las tasas ante posible inflación
--  대구진짜웨딩박람회, 다양한 정보 담은 웨딩박람회 9일, 10일 이틀간 진행 예정
--  Iz Grčke je izašlo prvih 20 pripadnika Bad Blue Boysa
--  Trực tiếp MU 0-0 Bournemouth: Trận đấu bắt đầu
--  BE arrin marrëveshjen për rregullimin me ligj të inteligjencës artificiale
--  Ce milliardaire sud-africain a gagné 300 millions de dollars en 10 jours
--  이성민, 유재석 재산 1조설 듣고는 '깜짝'…"이 형, 세상 돌아가는 것 몰라"('핑계고')
--  장원영, 다리 꼰 채…포즈는 '당당 보스' 미소는 '귀염 뽀짝'
--  Войната в Газа се отрази в трафика на летище Варна
+-  Invasie grote barmsijzen
+-  Ukraiński parlament apeluje o otwarcie negocjacji o członkostwie w Unii Europejskiej
+-  Bakan Kacır'dan İsrail zulmüne tepki
+-  طعنه ولاذ بالهرب.. جريمة قتل في المرج
+-  محافظ القليوبية يتفقد الاستعدادات النهائية للانتخابات الرئاسية من داخل مركز السيطرة
+-  الانتخابات الرئاسية.. ننشر أسماء وأماكن لجان تصويت الوافدين بالإسكندرية
+-  الاحتلال الإسرائيلي يشن قصف مدفعي على عدد من قرى جنوب لبنان اليوم
+-  مواد غذائية وطبية.. "الصحفيين" و"مصر الخير" تدشنان شحنة مساعدات لأهالي غزة
+-  مشاجرة تنتهي بجثة قتيل في عين شمس
+-  ضبط 3 أشخاص لاتهامهم بالإتجار بالعملة خارج نطاق السوق المصرفي
