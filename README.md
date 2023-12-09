@@ -1,51 +1,51 @@
 # Latest News
--  “정치적 대안 불가피, 준비 막 시작했다”…신당 띄우는 이낙연
--  Prince Harry fails to lure King Charles with 'emotional blackmail'
--  춘천서 로또 2등 당첨…1097회 1등 7명, 당첨금 각 38억6429만원
--  SP-leider Lilian Marijnissen stapt op
--  Soccerladuma | Starting XI: PLK City v Chiefs
--  [두산 포수 박유연, 음주운전 ‘면허정지’ 뒤늦게 들통나
--  [中서 팔리는 스타벅스·루이싱 커피서 발암물질 검출
--  [1097회 로또 번호 ‘14, 33, 34, 35, 37, 40’…1등 7명, 38.6억씩 받는다
--  [아내와 ‘초대남’ 성관계 영상 SNS에 올린 공무원…실형 면해, 왜?
--  Илғорлар тақдирланди
--  VIDEO Više mrtvih u požaru u bolnici kod Rima, 200 ljudi evakuirano
--  Wüst rechnet nicht mit Neuwahl : „Es wäre gut, wenn die SPD stärker aufgestellt wäre“
--  Tenisin efsane ismi Chris Evert ikinci kez kansere yakalandı
--  UP Warriorz Players Full List, WPL Auction 2024: Here's the Updated UPW Squad
--  الانتخابات الرئاسية.. 497 لجنة فرعية تنتظر الناخبين في بني سويف
--  أبرز تحركات البنك المركزي للحد من استنزاف الدولار بالبنوك في 2023
--  وزيرة البيئة ونظيرتها الألمانية تترأسان جلسة تسريع الشراكة لـ"الحلول القائمة على الطبيعة" ENACT
--  القسام: استهدفنا دبابة ميركافا إسرائيلية في خان يونس بقذيفة الياسين 105
--  كراسي متحركة ومولدات كهرباء.. الأقصر تجهز 179 لجنة للانتخابات الرئاسية
--  أعراض نقص فيتامين ب 12 في العين.. 3 علامات لا تتجاهلها
--  O inusitado herói do Manchester United que mantém acesas esperanças do time na temporada
--  Por que Declan Rice pode ser motivo para Arsenal não repetir queda da última temporada
--  Como Ancelotti 'reinventou' Valverde mais uma vez para superar problemas com lesões no Real Madrid
--  Mbappé tem que ajudar na defesa ou 'craque não marca'? Comentaristas da ESPN opinam sobre polêmica no PSG
--  أحمد الطيب: كنت أتمنى أن تسمح اللوائح بإعارة شيكابالا للأهلي في كأس العالم
--  O trio ex-São Paulo, Corinthians e Fluminense que tenta interromper boa fase do PSG e o que você precisa assistir pela ESPN no Star+
--  نقابات تعليمية تعلن الإضراب عن العمل لمدة تسعة أيام
--  "Tratá de cuidar los modales", le dura advertencia de Lacalle Pou a un dirigente opositor
--  Royal Challengers Bangalore Players Full List, WPL Auction 2024: Here's the Updated RCB Squad
--  «Όταν έχεις την ευκαιρία να πας στον ΑΠΟΕΛ, θα την αρπάξεις...»
--  Kickoff | Starting XIs: Polokwane City v Chiefs
--  Antalyaspor yenilmezlik serisini 6 maça çıkardı
--  Alta na exportação de carne suína gera lucro milionário para SC
--  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
--  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
--  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
--  VUČIĆ OBJAVIO: Kada žena stane, stala je cela porodica (VIDEO)
--  Ronan O’Gara makes emotional admission about celebrating La Rochelle’s European Champions Cup win with his sick mother
--  Segir Liverpool þurfa þetta til að verða Englandsmeistari í vor
--  भारत की अर्थव्यवस्था सबसे तेज गति से बढ़ने वाली अर्थव्यवस्था - उपराष्ट्रपति
--  Mathews: California’s most important 2024 election affects India
--  کولیسٹرول، وزن اور فالج کے خطرے میں کمی سمیت کاجو کے دس حیران کن فوائد
--  СМИ: финский посол связался с Трампом, для уточнения его позиции по НАТО
--  Ganho com reforma tributária pode não ser suficiente para bancar fundos a médio prazo, diz IFI
--  Entrada de professores negros em universidades públicas é abaixo de 1%
--  Ўзбекистон ва БАА вакиллари давлат хизматларини кўрсатиш соҳасини такомиллаштиришни муҳокама қилди.
--  انطلاق مباراة ليفربول و كريستال بالاس في الدوري الانجليزي
--  Bakan Özhaseki: 'Adları zikredildiği halde hiç çalışma yapmayanlar var'
--  Lokales: Kosten für Sanierung der Badewelt Waikiki im Kreis Greiz um ein Vielfaches gestiegen
--  Brazilsko čudo od deteta može da igra za Hrvatsku
+-  Prinzessin Kate: Royaler Witzbold! Er stahl der Prinzessin von Wales glatt die Show
+-  로또 12월 9일 제1097회 당첨번호와 1등 판매지역은?
+-  '야신' 김성근 감독, '뉴스룸' 출연한다…10일 방송
+-  쇼트트랙 김건우·김길리, ISU 월드컵 3차 1500m 동반 金…3개 대회 연속 금빛 질주
+-  이세희, 간절 호소 "나한테 돈 쓰지마요"→"물가 얼마나 올랐는데 여기에…" 울컥 팬사랑 [MD픽](종합)
+-  역시 MVP! 조엘 엠비드 괴력 발휘, 7경기 연속 30P 이상 기록 '득점 선두'
+-  '2420억 자산가' 아델 '영국 복귀 거부…LA 정착' → 남편과 돈 때문 아니었다 [해외이슈]
+-  BBC Breakfast's Naga Munchetty leaves viewers in hysterics with an X-rated joke while hosting Have I Got News For You
+-  Hitan razgovor Putina i predsednika Egipta: Rešenje samo uz priznanje palestinske države
+-  Two mystery ‘ghost ships’ wash up on beach and tourists start climbing on them
+-  เปิด 5 อันดับจังหวัดลงทะเบียนหนี้นอกระบบ ยอดพุ่ง 8.27 หมื่นราย กว่า 4.36 พันล้าน
+-  Cumhurbaşkanı Erdoğan: Adil bir dünya ABD ile mümkün değil
+-  Murat Ülker Beverly Hills 'Gucci Cafe' Goyasını okurlarıyla paylaştı
+-  Antalyaspor-Fatih Karagümrük: 2-1
+-  Igreja: Diocese de Aveiro ordenou sete diáconos permanentes
+-  BSP suspends Danish Ali from the party over “anti-party” activities
+-  Colisão em Águeda provocou ferimentos em três pessoas, uma das quais ficou em estado grave
+-  Партиите поделени за изборот на Џафери: СДСМ го прифаќа, ВМРО-ДПМНЕ гледа ДУИзација на државата
+-  Cuiabá atinge média de público superior a 16 mil torcedores durante o Campeonato Brasileiro
+-  New Music: Manuel Muzic — PHOTOS
+-  פוטין הכריז שיתמודד שוב "לבקשתו" של קצין: "אין דרך אחרת"
+-  Northern senators donate to families of Kaduna bombing victims
+-  Autoridade Palestiniana responsabiliza EUA por sangue derramado em Gaza
+-  רמזי ספורי בישל, אנטליאספור ממשיכה ברצף ההצלחות בטורקיה
+-  הפועל אום אל פאחם פיטרה את ניר ברקוביץ', שהגיב: "נגמר הסיוט"
+-  Nach privater Nachricht: Bochum-Trainer verlässt fluchtartig das Stadion
+-  Nouvelle disparition en Lot-et-Garonne: la gendarmerie lance un appel à témoins
+-  En Seine-et-Marne, le lieutenant Mathieu Joly investit dans son commandement de la brigade d'Esbly
+-  Un concert pour les vitraux de l'église Saint-Gervais Saint-Protais d'Etrépagny
+-  Perros-Guirec. Tarifs des ports en hausse pour 2024 : les plaisanciers réagissent
+-  Troje povređenih u saobraćajnoj nezgodi u centru Čačka
+-  Holiday Discount Alert: OPPO Slashes Prices of Their Phones to Celebrate Christmas
+-  Özgür Özel, Almanya Başkanı Olaf Scholz İle Buluştu
+-  10 أطعمة غنية بالحديد لشتاء دافئ.. تعرف عليها
+-  I'm A Celebrity's Tony Bellew breaks down in tears as wife reveals reason he is doing ITV show
+-  Erick Thohir Tegaskan tak akan Berhenti Berantas Korupsi di BUMN
+-  Upozorenje sa samita COP28: Ovo su posljednje šanse da spasimo budućnost naše djece
+-  Hakkında hapis cezası bulunan FETÖ'cü eski emniyet müdürü Kocaeli'de yakalandı
+-  亞錦賽》1分差驚險擊敗菲律賓 台灣隊連6屆闖冠軍戰
+-  عملود غائب والمترجي يدشن العودة
+-  From lickable wallpaper to three-course dinner gum: As Wonka hits cinemas, MailOnline reveals the memorable foods from Charlie and the Chocolate Factory that are now a REALITY
+-  Гулрухсор Президент гранти соҳибаси
+-  ХДПнинг энг фаол депутати
+-  Una ex de Daniel Osvaldo contó los secretos escandalosos de su relación
+-  Израел удари Газа след ветото на САЩ
+-  Lopetegi blizu angažmana u Premijer ligi
+-  Gibran Blusukan di Cempaka Putih
+-  This is a test from PRN Test - 7:45
+-  Survei Indikator: PPP Tidak Lolos ke DPR
+-  Bundesregierung geht von getöteter deutscher Familie in Gaza aus
