@@ -1,11 +1,51 @@
 # Latest News
--  Muğla'da 22 kaçak göçmen yakalandı
--  Samsunspor evinde dört köşe!
--  İsmail Kartal'dan Djiku ve liderlik açıklaması!
--  لونين يتصدى لأول فرص ريال بيتيس
--  [COP28서 열린 RewirEd Summit, 기후 행동 교육의 새 지평 열다
--  [Menarini Group, 새로운 무진행 생존 데이터 발표
--  EN IMAGES – Italie : une "boulangerie-prison" découverte sur le site archéologique de Pompéi
--  “15분 도시는 가로수 살리기서 시작”
--  Jetten wants the Netherlands to cooperate internationally against fossil subsidies
--  Russland: Versteckte Anti-Putin-Botschaft auf Werbetafeln von Nawalny-Unterstützern
+-  나폴리는 김민재가 너무나도 그립다... “KIM이 떠난 이후 실수 고쳐줄 사람이 없어”
+-  Tutkijan synkkä arvio: Ukraina ei ole enää erityinen lännen silmissä
+-  EXCLUSIVO
+-  14 fallecidos es el saldo de enfrentamiento entre civiles y estructura criminal en México
+-  ভোট চাওয়ায় উপজেলা চেয়ারম্যানের বক্তব্য থামিয়ে দিলেন ইউএনও, পরে জরিমানা
+-  MIMORIADNE Ivan má TÝRAŤ len 18-ročné dievča! Desivé DETAILY, hrôza, čo jej robí: Zúfalá prosba o POMOC
+-  Trpké priznanie komičky Simony Salátovej: Spomienky na Vianoce z detstva jej nahnali slzy do očí!
+-  F1, Verstappen teme la Ferrari: "Ecco cosa mi aspetto..."
+-  La 4a Coppa Italia di sitting la alza la Cedacri Cesena
+-  Come si comportano gli italiani a Natale? Non benissimo: quanto spreco! Ma si può rimediare
+-  Esposito scatenato, Pirlo risorge. Colpo Cremonese, in 10 stende il Venezia
+-  Inspiratie en ideeën voor Ouwe Sunderklaas
+-  Sánchez avala al canciller Scholz en plena crisis de la socialdemocracia alemana
+-  Julio Casares é reeleito presidente do São Paulo e diz que vai continuar 'caminhada de reconstrução'
+-  Bourse universitaire 2023/2024 : une importante annonce pour les étudiants
+-  Mâncarea preferată a românilor, otravă pentru inimă! Dr. Virgiliu Stroescu: E ipsos pe vase
+-  Політехніка-Галичина вдруге в сезоні перемогла Київ-Баскет у Суперлізі
+-  Uzależnienie od pornografii. Seksuolog: Oglądają ją już 11-latkowie!
+-  Aos 81 anos, Paul McCartney atrai jovens da Geração Z em shows no Brasil
+-  Redução drástica nas receitas, elenco inchado e calendário enxuto: veja os principais desafios do Santos na Série B de 2024
+-  VIDEO: Bayernu prijeti katastrofa, Eintracht vodi s 3:1 na poluvremenu
+-  Lula recebe telefonema de Maduro em meio a tensões entre Venezuela e Guiana
+-  Полицијата трага по 22-годишна девојка во Скопје
+-  Boletim médico atualiza real estado de saúde de Zé Neto
+-  Anabel Belloso dice que el FMLN tiene amor para cambiar el país
+-  Kaduna bomb tragedy: Reps laments loss of lives, urges Military to be cautious on drone attack
+-  Yeni nazir müavini kollektivə təqdim olundu
+-  Ailesiyle tartışıp eşeğe binerek evi terk etti: Ekipler zihinsel engelli genç için seferber oldu
+-  El Espanyol no puede ante un Zaragoza con 10
+-  Himanta Biswa Sarma Feeding Giraffe: ছোট্ট জিরাফ পারিজাত-কে দুধ খাওয়াচ্ছেন হিমন্ত বিশ্ব শর্মা, গুয়াহাটি চিড়িয়াখানার ভিডিয়ো
+-  Prabowo Hadiri Puncak Perayaan HUT ke-9 PSI di Semarang
+-  Mützenich warnt vor der AfD: „Hört gut zu, was in unserem Land passiert“
+-  신수지, 밀착 운동복 입고 놀라운 허리 꺾기 '깜짝'…"유연성 살아있네"
+-  Inameh prevé lloviznas dispersas en el país
+-  Donald Trump Legal Move Spells 'Danger Dead Ahead,' Former Prosecutor Warns
+-  Torcedor do Wolverhampton é condenado a seis meses de prisão por atos racistas a Ferdinand
+-  Teška saobraćajna nesreća kod Kruševca: Jedna osoba poginula na licu mesta
+-  Denuncian que Roberto Abdul, presidente de Súmate, fue presentado a escondidas ante tribunal contra terrorismo en El Helicoide
+-  Ganjar-Mahfud Bakal Tegaskan Komitmen Penegakan Hukum dan HAM di Debat Perdana
+-  Warum Werder-Kapitän Friedl gegen Augsburg fehlt
+-  Bez “lošeg momka” na Australijan openu
+-  Sean Canney raises concerns over Fodder Scheme for Shannon Callows
+-  Man Utd 'are finished' as fans slam disgraceful defending for Bournemouth goal
+-  UFOs: how astronomers are searching the sky for alien probes near Earth
+-  Facemask mandatory sa BuCor
+-  Education should look to the way artists are embracing AI, instead of turning its back on the technology
+-  Nākamā gada veselības nozares kopējais budžets būs 1,88 miljardi eiro
+-  ‘ไอซ์ พาริส’ ชวนเเฟนๆ กว่าร้อยชีวิต จัดปาร์ตี้หมูกระทะ
+-  بلينكن يجري مباحثات مع نظرائه من دول عربية وإسلامية
+-  Magaly Medina a Dorita Orbegoso por criticar a Samahara Lobatón: “También ha tenido líos con el padre de su hijo”
