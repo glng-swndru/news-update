@@ -1,51 +1,51 @@
 # Latest News
--  ضبط 7183 متسولاً في الأردن منذ بداية العام
--  جيش الاحتلال الإسرائيلي يؤكد مقتل ابن شقيقة آيزنكوت في غزة
--  الدفاع المدني ينقذ شخصاً سقط داخل بئر ماء
--  جرش : اشهار جمعية أبناء البرج الخيرية
--  الضفة الغربية.. 275 شهيدا فلسطينيا منذ 7 أكتوبر الماضي
--  رئيس مجلس الأمن القومي للاحتلال: المعركة في غزة ستستمر شهورا
--  ندوة في إربد تناقش المآلات المتوقعة لعملية طوفان الأقصى
--  إدارة بايدن تستخدم صلاحيات الطوارئ لتزويد الاحتلال بالذخائر
--  إطلاق البرنامج التدريبي للدعم النفسي والمساندة الإنسانية في الكوارث والأزمات
--  استشهاد أردنية وزوجها الغزي وجميع أفراد عائلتها في غزة
--  مظاهرة لعائلات الأسرى في تل أبيب
--  وقفة تضامنية في الزرقاء دعماً لصمود غزة ورفضا لسياسة التهجير
--  مسؤول أميركي مستقيل يندد ببيع الأسلحة للاحتلال
--  قرار مصري بشأن الراغبين في الخروج من غزة عبر معبر رفح
--  نتنياهو يشيد بالفيتو الأمريكي
+-  Anel Ahmedhodzics nobb – vägrade regnbågsbindeln
+-  '이제는 못 참는다' 토트넘, '995억 먹튀' 히샬리송에 대한 인내심 잃었다! 사우디 매각 고려
+-  심판이 갑자기 선수에게 흉기 난동→폐에 구멍... 선수는 무사 생존
+-  Bennekom ondermaats bij Voorwaarts
+-  АҚШ Давлат департаменти Исроилга 106 миллион долларлик ҳарбий техника сотишга рухсат берди.
+-  Етарли ёрдамсиз дунё шунчаки ўлишимизга имкон беради - Зеленская.
+-  الوحدة يفوز على الأخدود بثنائية في دوري روشن
+-  Oakland: Security guard fatally shot at convenience store near Lake Merritt Friday
 -  Silkeborg overlever FCK-pres og spiller sig i semifinalen
--  Bloodied Emi Martinez pumps up Villa Park crowd and takes on Kai Havertz after getting boot to the eye
--  Mircea Geoană afirmă că intrarea Ucrainei, Moldovei, Georgiei în UE și NATO este calea ca România să "evadeze" de la periferia Europei
--  '호러쇼는 감당할 수 없어' 무리뉴, 다이어 영입 명단에서 제외
--  Satakiloiset siskot -tähti kantaa kuolleen miehensä tuhkia mukanaan
--  Zonguldak'ta ikinci kez toprak kayması meydana geldi
--  Oxlade Chamberlain: Fenerbahçe bizden üstündü
--  Arsenal legend Dennis Bergkamp reveals plan to buy League One club in shock takeover
--  R. Dominicana exige en COP28 acción frente a cambio climático
--  Afrika'da Fransa karşıtlığı sürüyor... Resmi dil olmaktan çıkarıldı
--  Edin Dzeko: Bu takımla gurur duyuyorum
--  İşgalci İsrail, Gazze'de 97 askerini kaybetti
--  Derbi zaferi sonrası Fenerbahçe'den paylaşım!
--  İran'dan çarpıcı 'nükleer' iddiası... "ABD satın aldı"
--  İşgalci İsrail gazetecileri hedef aldı
--  Zimbabve halkı sandık başında
--  Beşiktaş'ta Aboubakar krizi! Taraftar isyan etti
--  Sakaryaspor, Girensunspor engelini geçti
--  Szymanski: Herkes büyük kulüp futbolcusu gibi oynadı
--  Mert Günok, takım arkadaşlarına isyan etti!
--  Rıza Çalımbay'dan sert sözler! "Kendilerine çeki düzen vermeleri gerekiyor"
--  Üstün zeka testi: 9 saniyede 311 kişiden 7'si 8 baykuşu görebildi! Zeki olanlar bile şaşırıyor…
--  İsmail Kartal: Kendimize yakışır futbolla kazandık
--  Çelik tencere ve tava parlatmanın pratik yöntemleri! Meğer bu kadar basitmiş
--  Miguel Crespo: Dengeli bir şampiyonluk yarışı oluyor
--  Bazı iller beyaza büründü... Kartpostallık kar manzaraları
--  Gazze'ye 100 tırlık insani yardım gönderildi
--  Oxlade-Chamberlain: Sorumluluk almak lazım
--  Kwakman verbaasd door Hato-moment: 'Ik vind het rood, waar slaat het op?'
--  Gece Felaketi! Feci Kazada 14 Kişi Yaralandı!
--  В Саратовской области загорелся вагон электрички
--  «الوزارية العربية الإسلامية» تطالب بسرعة التحرك لحماية المدنيين في غزة
--  Mikil óánægja með verðhækkun Disney Plus – „Áskrift sagt upp, bless“
--  🔴الصراع الإلزامي
--  2 women injured in London, Ont. hit and run: police
+-  La Amazonía brasileña registra la menor deforestación en cinco años
+-  ДТП в Азербайджане
+-  Erstmals überhaupt! Unglückliche Premiere für den HSV
+-  Brasil precisa fazer o trabalho de casa para atrair turismo internacional, defende fundador do Vila Galé
+-  Yemen'deki Husiler: İsrail'e giden gemilerin geçişini engelleyeceğiz
+-  زندگی بچانے والی ادویات کی قلت، مریض پریشان
+-  Israel-Palestine war multiplies Arab suspicions of the West
+-  „Turime naują tikslą – nuskandinti kažką didesnio“
+-  [ŽT] „Pirmoji tokia ataka.“ Košmaras rusų užnugaryje. Ką padarė SBU (Video)
+-  Special investigation group arrests 12 men in human trafficking
+-  Fotos: más de 500 niños han recibido juguetes en Baruta por parte del concejal Luis Aguilar
+-  – شركة الخدمات العامة : ارتفاع منسوب المياه داخل وادي المجينين .
+-  SPD krytykuje swoją wcześniejszą politykę wobec Rosji
+-  As Bosniaks, we have a duty to speak up for Gaza
+-  Seine-et-Marne: un adolescent de 17 ans meurt après un refus d'obtempérer à scooter, deux enquêtes ouvertes
+-  ChatGPT rédige une loi... et elle est adoptée
+-  The FDA just approved the first gene editing therapy for sickle cell anemia, but it'll cost $2.2 million per person
+-  Нокаутом закончился бой боксера из Казахстана и «Гордости России»
+-  Tigres vs Pumas: Pronóstico y picks gratis; liguilla del AP23
+-  Сергеев — о победе над «Пари НН»: «Три очка не пахнут, двигаемся дальше»
+-  EPL Wrap: Palace coach criticises Liverpool star after ‘harsh’ red card; Villa make history in win
+-  تعرف على سعر الصرف وبيع العملات مساء السبت بالـعاصمة عدن
+-  Nuclear power deserves a place in the clean energy mix
+-  UŽIVO Severina u Superstaru: Stvar je ukusa, a zna se da ja nemam ukusa
+-  Eintracht Frankfurt 5-1 Bayern Münih (ÖZET)
+-  Yolun karşısına geçmek isteyen kadını hayattan kopardı
+-  Netanyahu: Pravedan rat za eliminaciju Hamasa se nastavlja
+-  „Anatomie eines Falls“ gewinnt in Berlin Drehbuchpreis
+-  جیل سے گھبرا کر ملک چھوڑ کر بھاگ جانے والے عوام کا سامنا نہیں کرسکتے،پیپلز پارٹی رہنما کا اعلان
+-  Champions Cup: Bulls 27 Saracens 16 - match report
+-  [KDL 통신] 광동, 드리프트 최강팀 등극...창단 후 첫 우승컵 들어 올렸다
+-  [현장습격] "어차피 우승은 광동?"...KDL 초대 챔피언 가려진 역사적인 날
+-  [e스포츠人] '에결 괴물' 모드로 광동 우승 이끈 맏형 노준현
+-  Mideast ministers in Ottawa to discuss Israel-Hamas war with Joly, Trudeau
+-  Conservative Parents Raise Teens with Better Mental Health: Study
+-  🎥 | Dusan Tadic en Sebastian Szymanski beslissen Turkse topper
+-  Four Republican presidential candidates face off in fiery debate
+-  Makabryczny wypadek na drodze S7. Bus zahaczył o ciężarówkę i dachował. Dwoje dzieci w szpitalu
+-  Guardavidas rescatan con vida a dos niños que fueron arrastrados por una corriente en Metalío
+-  Meten preso a sujeto que abusó de su propia hija adolescente en Soyapango
+-  UNICEF faces major challenges 77 years on
