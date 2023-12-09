@@ -1,11 +1,51 @@
 # Latest News
--  Ranveer Singh on board to play Ranbir Kapoor`s father in Brahmastra 2?
--  Za novu godinu čak 44 grada i općine bez vatrometa. Prvi koji su rekli odlučno NE? Mali Lošinj
--  Green Onion: सर्दियों में हरा प्याज खाने से आपकी हड्डियां हो जाएंगी लोहे जैसी मजबूत, जानें इसके अन्य फायदों के बारे में
--  جوليا بطرس تستعيد أغنية "يما مويل الهوى" بصوتها
--  بالصورة- ابن زينة وأحمد عز يخضع لعملية جراحية
--  قبلة حمو بيكا لزوجته تثير الجدل.. وطريقة استعراضها لمجوهراتها تعرضها للهجوم
--  يسرا تتألق بفستان من تصميم إيلي صعب وهذا سعره
--  هل للعزلة فوائد على الصحة؟!
--  الاحتلال يقصف شرق مدينة رفح
--  عائلة عربية على رأس قائمة أغنى عائلات العالم
+-  Soccerladuma | Chiefs Defender To Return?
+-  Pojavila se snimka nereda u Zagrebu nakon utakmice Hajduka, ozlijeđena tri policajca
+-  Auto fährt gegen 70-Jährigen: Mann schwer verletzt
+-  Azərbaycanın Belarusa göndərdiyi yeni səfirin DOSYESİ
+-  Kruté obvinenia Moskvy z Kyjeva: Rusi zabíjajú vlastných vojakov dronmi, TOTO je dôvod
+-  Manželia mali dlhé roky na záhrade obľúbenú ozdobu: Desivá pravda o nej, hrozilo im nebezpečenstvo!
+-  Slováci míňajú online rekordné sumy. Čo objednávajú viac ako minulý rok?
+-  Takto sa pohli ceny palív na slovenských čerpačkách: Hodnota ropy klesá už celé týždne!
+-  Zvezda obara svetski rekord
+-  Buka Puasa Ditetapkan Sebagai Warisan Budaya Tak Benda
+-  Hamilton biztos benne, 2024-ben közelebb kerülnek a Red Bullhoz
+-  Президент Ильхам Алиев назначил новых послов Азербайджана в Молдове и Румынии
+-  ŠTA OČEKIVATI OD OSOBE KOJA MI JE SLOMILA POLA FACE: Šavija strahuje zbog ovoga, oglasila se za Alo! uoči suđenja sa Karićem
+-  US vetoes Security Council ceasefire demand as Gaza war intensifies
+-  Hamas: ABD İsrail'in daha fazla katliam yapması için veto hakkını kullandı
+-  Контролира ли BG-ALERT съзнанието чрез ниски честоти?
+-  ΟΦΗ: Επίσημο το τέλος του Νταμπράουσκας
+-  Insuficiência cardíaca. Quem está mais em risco?
+-  Nadal oćelavio zbog Đokovića!
+-  NBA Top 10 : tout parait si petit avec Victor Wembanyama
+-  Azerbaijan appoints ambassador to Belarus - decree
+-  NRW: Talente des 1. FC Köln in Horror-Unfall verwickelt ++ Mutter und Tochter tot!
+-  TALA O LE PASEFIKA
+-  حصري - ضبط كمية مهولة من الادوية المهربة والغير مرخصة بمطار عدن الدولي وجهات نافذة تضغط لإخراجها
+-  کراچی، دن دہاڑے نجی بینک سے امریکی ڈالر لیکر نکلنے والا شہری لوٹ لیا گیا
+-  إصابات جراء غارة إسرائيلية على جنوب لبنان
+-  Israeli drone strike in Syria killed three Hezbollah members
+-  Gibran Kembali Bicara Soal Dana Abadi Pesantren
+-  'สพฐ.'ออกประกาศ'ลดการบ้าน เพิ่มการเรียนรู้'หวังให้นักเรียนได้เรียนรู้อย่างมีความสุข
+-  IBA лишила членства четыре европейские национальные ассоциации
+-  JÕULUKUUL KOJU | Kassipoeg eksles sõiduteel autode vahel, kuid keegi ei peatunud tema aitamiseks...
+-  Megszületett a döntés: Európa megregulázná a mesterséges intelligenciát
+-  Bajdenova administracija zahteva da se odobri prodaja granata Izraelu
+-  Wedding anniversary: Handre Pollard’s message to Marise left fans praying for them [pictures]
+-  عاجل.. هل تسجيل الزوجة في التأمينات يسقط العائلة من حساب المواطن؟
+-  Das datas dos apoios às novidades para desempregados: Os temas da semana
+-  สหรัฐฯ ใช้สิทธิ "วีโต" ขวางหยุดยิงในกาซา
+-  บทวิเคราะห์การแข่งขัน Wild Rift League Asia Season 2 สัปดาห์ที่ 6 วันที่ 4
+-  Football féminin: le cri du coeur de Wendie Renard sur le calendrier surchargé
+-  Research explores generation Z: Today's youth are happier, more responsible, and ambitious
+-  ปีนี้ไม่หนาว ดอกบัวออกเยอะเก็บได้นาน เกษตรกรยิ้มสร้างรายได้วันละ 1,500 บาท
+-  AK Parti Aday Tespit Komisyonu oluşturuldu
+-  FCM-træner om sit tophold: Der er meget mere i det hold
+-  İsrailli savaş muhabirine göre Şucaiyye, "Orta Doğu'nun en tehlikeli mahallelerinden biri"
+-  FCM-træner om sit tophold: Der er meget mere i det hold
+-  Un histórico Wembanyama no impide que Spurs igualen su peor racha con 16 derrotas seguidas
+-  Clima en Chile: temperatura y probabilidad de lluvia para Temuco este 9 de diciembre
+-  Gelnhausen: Naschbaum im Rathaus am Obermarkt - Süße Idee zur Weihnachtszeit
+-  На захватившего в заложники помощницу сенатора завели два уголовных дела
+-  MISTERIOZNE POJAVE NA NEBU IZNAD PANČEVA I UŽICA Oblaci crveni ko krv, evo o čemu se radi (FOTO)
