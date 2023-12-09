@@ -1,51 +1,11 @@
 # Latest News
--  `Nostalgia` review: An intriguing character study of a man haunted by his past
--  뉴욕증시, 고용 둔화·연착륙 기대에 상승…국제유가, 7거래일 만에 상승
--  Cuestiones económicas y las empresas familiares
--  México va bien en lo económico
--  El mito de la zona sur del país
--  Ducati Diavel for Bentley, Simak Detailnya!
--  Trading places – why Labour shouldn't emulate Bidenomics
--  Despite her flaws, Liz Truss was ahead of her time
--  A Labour government will be a disaster – just look at Wales
--  Half of England's football stadiums should be housing
--  Starmer's embrace of Thatcher is no harmless exercise in political cross-dressing
--  SAD, Južna Koreja i Japan snažnije će djelovati protiv sjevernokorejske prijetnje
--  Ranveer Singh : 'ब्रह्मास्त्र 2'मध्ये 'देव'च्या भूमिकेत दिसणार रणवीर सिंह? दीपिका पादुकोणसोबत स्क्रीन शेअर करणार
--  "มาดามเดียร์" คุณสมบัติไม่ครบ พลาดชิงเก้าอี้ หน.ประชาธิปัตย์
--  کراچی: سردی کی شدت اور فضائی آلودگی میں اضافہ ہوگیا
--  В Киеве после аварии в метро начали расследование
--  부안해경, 내년 3월까지 '선박 연료유 황 함유량' 점검
--  Las noticias de Cruz Azul hoy: Guillermo Martínez, Carlos Salcedo e Iván Alonso
--  Sydney bakes in hottest day in three years
--  Επεισόδια στου Ρέντη: «Κυκλώνουν» τους δράστες της δολοφονικής επίθεσης στον αστυνομικό των ΜΑΤ
--  Penulis Agus Noor Ungkap Kondisi Stafnya yang Diminta Polisi Beri Pernyataan Pers
--  ایم کیو ایم کا پنجاب میں الیکشن کی تیاریوں کا آغاز، ٹکٹ تقسیم کیلئے 8 رکنی بورڈ قائم
--  Particuliere eigenaar kapt vijftien bomen aan de Oisterwijkse Lind, B-team wil strengere regels
--  인천 서구 노래방서 술 시킨 뒤 '주류 판매' 신고한 손님들
--  Поворот на восток: В ЦСР дали прогноз по развитию международных грузопотоков до 2030 года
--  Tea vs Coffee: ਚਾਹ ਜਾਂ ਕੌਫੀ, ਦੋਵਾਂ ਵਿੱਚੋਂ ਸਿਹਤ ਲਈ ਕਿਹੜੀ ਫਾਇਦੇਮੰਦ?
--  Bakan Yerlikaya duyurdu: İskoçlar çetesi çökertildi
--  “모두 이재학PD라 불러, 실제 연출하니까”
--  방정환 ‘어린이’ 계승한 ‘개똥이네놀이터’는 어떤 잡지?
--  ¡Ya no llegaron con la Virgen! Peregrinos resultan lesionados tras aparatoso choque en la Izúcar-Acatlán
--  أربع مواجهات في ختام الجولة الثامنة لدوري نجوم العراق لكرة القدم
--  This New-Moon-in-Sagittarius Bath Ritual Will Inspire Ideas
--  This New-Moon-in-Sagittarius Bath Ritual Will Inspire Ideas
--  ‘Joviale gastheer’ zat in de bijstand, maar werkte ook in restaurant van zoons: gemeente voor ruim 2 ton benadeeld
--  Marcus case – därför förtjänar han priset igen
--  Bulgaristan Türkiye’den irmik ve bulgur alacak! Üreticiler için altın kapı açıldı: Tedarikçiler…
--  Catat Nih, Jadwal Terbaru Penyeberangan Kapal Feri Rute Merak-Bakauheni Hari Ini
--  Marcus case – därför förtjänar han priset igen
--  Berobat di Depok Hanya Tunjukan KTP Bisa Rawat Inap Hingga Bersalin
--  سلامتی کونسل: امریکا نے غزہ میں جنگ بندی کیلئے پیش کردہ قرارداد ویٹو کر دی
--  Circulation. Accéder aux marchés de Noël, une vraie galère en Alsace
--  Soultz. Des cuvées spéciales en soutien à Cécile Kohler, détenue en Iran
--  Grand format. Il y a 41 ans, le FC Mulhouse battait Valenciennes et accédait à la 1re Division
--  Attentat de Strasbourg. Mettre plus d'humanité dans l'indemnisation des victimes
--  Neuf-Brisach. Un Noël 100 % fait main ce week-end
--  Santé. Les virus respiratoires en hausse : l'Alsace a le record du Covid en France
--  Politique. Droit local des cultes en Alsace-Moselle : tempête dans un verre d'eau bénite
--  Есть ли у Путина двойники?
--  В село Земетчино приехал "Ревизор": как в 1930-е колхозников приобщали к театру
--  신민아 “저희 엄마처럼 친구 같은 엄마 되고파”
+-  권은비·최예나·김민주, 의문의 男과 전화 통화? '설렘 기류' 폭발 [전지적 참견 시점]
+-  फुङ्लिङमा आगलागी, पाँच लाख बराबरको क्षति
+-  स्वर्ण पदक विजेता गुरुङको सम्मान
+-  भ्रष्टाचार बढ्नुमा मुख्य दोषी राजनीतिक नेतृत्व : मुख्यमन्त्री जम्कट्टेल
+-  ‘नेपालगञ्ज वाकाथन’ सुरु
+-  Metastatic HER2-Positive Breast Cancer Market Share, Epidemiology, Analysis & Trends 2024-2034
+-  Honda Beat 2024 trang bị cực đỉnh không kém SH, giá bán chưa đến 32 triệu đồng đe dọa Air Blade
+-  Кандидат из холодильника
+-  กระบะเสียหลักตกร่องข้างถนนมุดท่อระบายน้ำพังยับเจ็บ 3 รายพบขวดเบียร์ในรถ
+-  'เศรษฐา'ลั่นไม่เห็นด้วยขึ้นค่าแรงน้อยเกิน เปรียบขึ้นค่าแรง 3 จังหวัดใต้ซื้อไข่ลูกนึงยังไม่ได้
