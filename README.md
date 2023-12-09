@@ -1,51 +1,11 @@
 # Latest News
--  A musical soiree
--  강원, ‘첫 승격도전’ 김포 잡고 ‘8시즌 연속’ K리그1 잔류[승강 PO 2차전]
--  News24 Business | The four biggest challenges confronting Eskom’s new boss
--  Naučnici izračunali posle koliko godina države počinju da propadaju
--  Eurocross, parla il ct La Torre: "Crippa dovrà essere il solito leone"
--  La Juve operaia di Gatti, la risposta di Allegri agli snob e il rebus Vlahovic
--  Diretta Atalanta-Milan ore 18: dove vederla in tv, in streaming e probabili formazioni
--  Diretta Verona-Lazio ore 15: dove vederla in tv, in streaming e probabili formazioni
--  Juve Next Gen-Pineto: diretta tv Sky, formazioni, dove vederla in streaming
--  Welternährungsprogramm: Versorgung der Menschen in Gaza ist „nicht mehr haltbar“
--  Ruotsalais­laulaja Pernilla Wahlgren: Salahäät!
--  Marea Britanie investighează investiţia uriaşă a Microsoft în OpenAI, creatoarea ChatGPT
--  Izbori u Srbiji: Na četiri lokacije će se glasati u Crnoj Gori
--  «Ўзкимёсаноат» яна бир халқаро рейтингни қўлга киритди.
--  L’artiste mahorais Boaz s’expose en solo à la MJC de Tsoundzou
--  Қуйи Чирчиқда обод маҳаллалар яна биттага кўпайди
--  Пиротехника воситалари ушлаб қолинди
--  10 декабрь куни кутилаётган об-ҳаво маълумоти
--  World Athletics россиялик енгил атлетикачиларни Париждаги ўйинларга киритмайди.
--  Фидойилар эътироф этилди
--  Diabetes drug may lower colorectal cancer risk: Study
--  Oprezno u višim predjelima zbog poledice
--  Mind-blowing moment Mudgee driver cheated death when a lightning strike exploded the tree beside his Hyundai Getz: 'Off to buy a lottery ticket!'
--  Incendio all'ospedale di Tivoli, quattro vittime e 200 pazienti evacuati
--  ŠTA SE DEŠAVA SA NIKOLOM? Jokić neprepoznatljiv, nastavlja se agonija Nagetsa
--  В Кемеровской области парк электропоездов обновится почти на 70% до 2030 года
--  실체도 없는 ‘집게손 논란’, 한 편의 코미디였다 [김동진의 다른 시선]
--  Za Novu godinu čak 44 grada i općine bez vatrometa
--  "Вопросы без ясных ответов" - ПВС для бездомных животных в Рудном открыли год назад. Что изменилось?
--  Prohíben la separación de familias migrantes en la frontera
--  Army man held for involvement in dealing with military arms and ammos
--  Umfragen: So viele Menschen wie nie sind mit Scholz und Ampel unzufrieden
--  Времето денеска сончево и студено, попладне облачноста ќе се зголемува
--  Deforestation hits record low in Brazilian Amazon in November
--  Kesineni Nani: రైతులను చాలా నిర్లక్ష్యంగా గాలికొదిలేశారు
--  5.0-magnitude quake hits Kermadec Islands region -- USGS
--  5.1-magnitude quake hits 230 km W of Puerto Chacabuco, Chile -- USGS
--  EU strikes deal on landmark AI law
--  Hatayspor, Başakşehir karşısına çıkıyor: Volkan Demirel olmayacak!
--  Kirjos ne igra na Australijan openu
--  Венгрия намерена выступать против приема Украины в ЕС
--  Ove vežbe najbolje su za zdravlje mozga
--  Ölümü tefekkür etmek gerekir
--  MEŠTANI PETROVCA NA MLAVI U STRAHU OD ZEMLjOTRESA: Stručnjak otkriva zašto je ovaj deo Srbije često na udaru i ima li razloga za brigu
--  NAŠI PREDLOZI: "Tip" - tiket za subotu
--  &quot;Sestro, sredi se&quot;: Monah Arsenije o ženama koje muževi varaju
--  Оккупанты ложками едят снег в кустах возле Авдеевки
--  How flaxseeds can help reduce breast cancer risk
--  Texas Supreme Court halts order allowing emergency abortion
--  Cabinet Gives Nod To Additional Allocation Of Rs 2500 Cr For Extension Of IES Till 30 June, 2024
+-  ‘유리몸’ 토미야스에 인내심 바닥…아스널, 결국 독일 수비수 영입 박차
+-  VERT pasiūlė permokos grąžinimo grafiką. Buitiniai vartotojai pinigus atgautų per 2,5 metų
+-  Neįtikėtina žinia. „Jie pasirengę ir laukia. Sprogmenų užteks visam Juodosios jūros laivynui“
+-  „Tai sukels nacionalinę katastrofą. Aukų skaičius bus beprotiškas...“ Skelbia visišką žlugimą
+-  Byra Rusijos civilinė aviacija. Kas įvyko per pirmąsias aštuonias gruodžio dienas
+-  „Greitai jie pradės „kristi“. Tai neišvengiama. Ir juose sėdės ne „vankos iš Peredriščensko“
+-  SSS Retirement Benefit Requirements — A Guide on Qualifications & Documents Needed
+-  Kawasaki W175 Street: कावासाकी बाइक खरीदना हुआ आसान, 1.5 लाख से भी कम है कीमत
+-  Polisten kaçan ehliyetsiz sürücüye de araç sahibine de ceza kesildi
+-  Gas Stations Eye Oil Price Rollback on Tuesday (December 12, 2023)
