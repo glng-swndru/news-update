@@ -1,11 +1,51 @@
 # Latest News
--  HUAWEI MatePad Pro 13.2 จะเปิดตัวในระดับโลก วันที่ 12 ธันวาคมนี้
--  TENISKOJ LEGENDI SE VRATIO RAK: Obratila se čitavom svetu! Otkrila užasnu vest, pa poslala važnu poruku
--  Eski Şişelerde Kabartmalı Yazılar Olmasının Ardında Yatan Hayat Kurtarıcı Sebep
--  У Трампа больше шансов добиться мира в Газе, чем у Байдена, пишут СМИ
--  Das Ende grüner Träume: Keine Förderung von Wärmepumpen im Januar
--  White House Mocks Putin Re-Election Bid
--  Dating app users falling prey to criminals in South Africa
--  Well-performed galloper looks to be Clear Choice for Nowra Cup
--  Кулинарни блогъри разкриват тайните си за вкусна Коледа
--  Race-by-race preview and tips for Nowra on Sunday
+-  A musical soiree
+-  강원, ‘첫 승격도전’ 김포 잡고 ‘8시즌 연속’ K리그1 잔류[승강 PO 2차전]
+-  News24 Business | The four biggest challenges confronting Eskom’s new boss
+-  Naučnici izračunali posle koliko godina države počinju da propadaju
+-  Eurocross, parla il ct La Torre: "Crippa dovrà essere il solito leone"
+-  La Juve operaia di Gatti, la risposta di Allegri agli snob e il rebus Vlahovic
+-  Diretta Atalanta-Milan ore 18: dove vederla in tv, in streaming e probabili formazioni
+-  Diretta Verona-Lazio ore 15: dove vederla in tv, in streaming e probabili formazioni
+-  Juve Next Gen-Pineto: diretta tv Sky, formazioni, dove vederla in streaming
+-  Welternährungsprogramm: Versorgung der Menschen in Gaza ist „nicht mehr haltbar“
+-  Ruotsalais­laulaja Pernilla Wahlgren: Salahäät!
+-  Marea Britanie investighează investiţia uriaşă a Microsoft în OpenAI, creatoarea ChatGPT
+-  Izbori u Srbiji: Na četiri lokacije će se glasati u Crnoj Gori
+-  «Ўзкимёсаноат» яна бир халқаро рейтингни қўлга киритди.
+-  L’artiste mahorais Boaz s’expose en solo à la MJC de Tsoundzou
+-  Қуйи Чирчиқда обод маҳаллалар яна биттага кўпайди
+-  Пиротехника воситалари ушлаб қолинди
+-  10 декабрь куни кутилаётган об-ҳаво маълумоти
+-  World Athletics россиялик енгил атлетикачиларни Париждаги ўйинларга киритмайди.
+-  Фидойилар эътироф этилди
+-  Diabetes drug may lower colorectal cancer risk: Study
+-  Oprezno u višim predjelima zbog poledice
+-  Mind-blowing moment Mudgee driver cheated death when a lightning strike exploded the tree beside his Hyundai Getz: 'Off to buy a lottery ticket!'
+-  Incendio all'ospedale di Tivoli, quattro vittime e 200 pazienti evacuati
+-  ŠTA SE DEŠAVA SA NIKOLOM? Jokić neprepoznatljiv, nastavlja se agonija Nagetsa
+-  В Кемеровской области парк электропоездов обновится почти на 70% до 2030 года
+-  실체도 없는 ‘집게손 논란’, 한 편의 코미디였다 [김동진의 다른 시선]
+-  Za Novu godinu čak 44 grada i općine bez vatrometa
+-  "Вопросы без ясных ответов" - ПВС для бездомных животных в Рудном открыли год назад. Что изменилось?
+-  Prohíben la separación de familias migrantes en la frontera
+-  Army man held for involvement in dealing with military arms and ammos
+-  Umfragen: So viele Menschen wie nie sind mit Scholz und Ampel unzufrieden
+-  Времето денеска сончево и студено, попладне облачноста ќе се зголемува
+-  Deforestation hits record low in Brazilian Amazon in November
+-  Kesineni Nani: రైతులను చాలా నిర్లక్ష్యంగా గాలికొదిలేశారు
+-  5.0-magnitude quake hits Kermadec Islands region -- USGS
+-  5.1-magnitude quake hits 230 km W of Puerto Chacabuco, Chile -- USGS
+-  EU strikes deal on landmark AI law
+-  Hatayspor, Başakşehir karşısına çıkıyor: Volkan Demirel olmayacak!
+-  Kirjos ne igra na Australijan openu
+-  Венгрия намерена выступать против приема Украины в ЕС
+-  Ove vežbe najbolje su za zdravlje mozga
+-  Ölümü tefekkür etmek gerekir
+-  MEŠTANI PETROVCA NA MLAVI U STRAHU OD ZEMLjOTRESA: Stručnjak otkriva zašto je ovaj deo Srbije često na udaru i ima li razloga za brigu
+-  NAŠI PREDLOZI: "Tip" - tiket za subotu
+-  &quot;Sestro, sredi se&quot;: Monah Arsenije o ženama koje muževi varaju
+-  Оккупанты ложками едят снег в кустах возле Авдеевки
+-  How flaxseeds can help reduce breast cancer risk
+-  Texas Supreme Court halts order allowing emergency abortion
+-  Cabinet Gives Nod To Additional Allocation Of Rs 2500 Cr For Extension Of IES Till 30 June, 2024
