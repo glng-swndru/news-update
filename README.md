@@ -1,11 +1,51 @@
 # Latest News
--  Pobladores frenan extorsión de cártel; 14 muertos, tras enfrentamiento en Edomex
--  Ninguna familia de migrantes podrá ser separada al ingresar a E.U
--  I'm A Celebrity's Tony Bellew splashed out on an £88,000 luxury car before heading into the jungle - as he makes it to the final four
--  Véto : Les Etats-Unis bloquent l'appel à un cessez-le-feu humanitaire à Gaza
--  Vanessa Feltz reveals she is a woman on a mission and has gone out 330 nights in a row because finding a man 'is a numbers game'
--  Добра и лоша новина за Григор Димитров
--  피겨 김현겸, 주니어 GP 파이널 銀…한국 남자 최고 성적
--  JUST NU: Linn Svahns succé
--  Életfogytiglanit kapott a 17 éves michigani fiú, aki négy osztálytársával végzett
--  '세계적 거장' 올리버 스톤 "차기작 소재도 '원자력', 정치적 이슈 아냐" [뉴스룸] (종합)
+-  Antalya-Konya karayolunda yoğun kar: Ağır tonajlı araçların geçişi yasaklandı
+-  Bolat- Raimondo görüşmesinde Türkiye-ABD ticaret ilişkilerinin geliştirilmesi ele alındı
+-  De kerstklassieker van Frank Capra in Theater de Fransche School
+-  Take a look at this funky electric van and 6 other cool vehicles at this year's London EV show
+-  Поскъпване на горивата още от първия ден на новата година
+-  Hospital Billing Software Market Study: An Emerging Hint of Opportunity 2023 to 2029
+-  Güney Kore, Kuzey Kore'ye karşı ABD ve Japonya ile işbirliğini güçlendirecek
+-  Böyle duyurdular: Atina ziyareti tüm Avrupa'yı etkileyecek
+-  Kenan Yıldız için ayrılık iddiası!
+-  Kocaeli'deki yangın kontrol altına alındı
+-  Yılmaz: Son dönemde Alevi-Bektaşi vatandaşlarımıza yönelik önemli adımlar attık
+-  Gedenkstätte für Juden mit antijüdischen Symbolen beschmiert
+-  VW води преговори с Renault за евтиния си електромобил
+-  Food Cost Accounting Software Market Comprehensive Insight by Growth Rate, Industry Status, Forecast till 2029
+-  ارتفاع أسعار الحديد اليوم السبت في الأسواق (موقع رسمي)
+-  رئيس "عربية النواب": مشاركة المصريين في الانتخابات الرئاسية ستكون الأكبر في تاريخ مصر
+-  نائب رئيس "إياتا": مصر لعبت دورًا مهمًا في تنظيم الحركة الجوية خلال حرب غزة
+-  Man found half-eaten by zoo tigers after one of the apex predators was seen with a shoe in its mouth
+-  Anak aligator putih, mata biru
+-  (VIDEO) Pogledajte pregled vijesti: Podgoricom iz dana u dan
+-  Automotive Dampers Market worth $5.50 billion by 2030, growing at a CAGR of 4.43% - Exclusive Report by 360iResearch
+-  Shiba Inu Lead Shytoshi Kusama Confirms Over $1 Million In SHIB And BONE Burn
+-  Литературный критик и профессор ВШЭ Андрей Немзер скончался на 67-м году жизни
+-  HEDEP: Diyanet Kürtçeyi bir kez daha yok saydı
+-  Ignacio Galán: "Triplicar las renovables a 2030 es factible y movilizará inversiones por 2,2 billones de dólares anuales”
+-  Der SPD-Parteitag und ein Ventil namens Lindner
+-  Stagecoach offering big discounts on bus tickets this month
+-  Jakarta Health Office Confirms 80 Covid-19 Cases between November and December
+-  「世界との差を感じた」現役高校生Jリーガー ロアッソ熊本・道脇豊選手 けが乗り越え臨んだW杯 来シーズンへの思いとは
+-  MFF blev mästare med ett spel som gav eko runt jordklotet
+-  Trotz Schlaganfall: Neuseeländerin Ashleigh Hoeta ist die stärkste Frau der Welt
+-  MFF blev mästare med ett spel som gav eko runt jordklotet
+-  ダジャレかよ…RAZERのゲーミングRAZORでスカッとしようぜ
+-  Candi Prambanan Dikunjungi 18.700 Umat Hindu yang Melakukan Peribadatan sepanjang 2023
+-  人気作家がしのぎを削るなか、4度目の1位を獲得したのは…？ 「週刊文春ミステリーベスト10」を発表！
+-  Komentar Mateja Fišerja: Aleksandra copatarica
+-  Näin nyky-Nokiaan sijoitettu tonni on sulanut – Osta ja pidä -sijoittaja on menettänyt satasia osinkojenkin jälkeen
+-  脱衣所で使うものぜんぶ持ち運ぶ。コクヨがサウナグッズを作りました
+-  Vier Ausfälle: Paderborn ersatzgeschwächt zum HSV
+-  Vilnius Christmas tree over the years – photos
+-  Brnabić: Srbija jedna od sedam evropskih zemalja u programu kompjuterske obrade podataka za CERN
+-  Data Visualization for Large Screen Software Market 2023 Perception, Extension and Predicted Trends 2029
+-  FC Schalke 04: Fans wegen Ouedraogo in heller Aufregung – Top-Klub macht ernst
+-  Cyprus Communist Initiative launched
+-  ليبيا.. شركة البريقة توصي بالحد الأدنى من العاملين تحسبا للتقلبات الجوية
+-  Essonne : les deux pôles d'Evry et Massy enfin reliés par le tram train T12
+-  Anti-phishing Software Market A Comprehensive Analysis and Emerging Opportunities and Challenges for 2029
+-  Who is Erica Mcgraw? Everything to Know About Her Love Life!
+-  Rathenow: Havelländer Rassegeflügelzüchter kritisieren Auflagen des Veterinärwesens
+-  Ex-Intendantin Schlesinger: Mir tun die Geschehnisse im RBB leid
