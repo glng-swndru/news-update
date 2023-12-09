@@ -1,11 +1,11 @@
 # Latest News
--  Implementarán autopsias 'sociopsicológicas'
--  Enseñan a maestros a incluir a estudiantes con discapacidad
--  Zonguldak'ta heyalan. Hastane yolu çöktü. Tanı merkezi kapatıldı
--  देश की खबरें | भाजपा किसानों की समस्याओं को 11 दिसंबर को पश्चिम बंगाल में प्रदर्शन करेगी
--  देश की खबरें | 10 दिसंबर : ‘अंतरराष्ट्रीय मानवाधिकार दिवस’ के तौर पर मनाया जाने वाला दिन
--  Bećirović se danas sastaje sa Scholzom
--  Congress Trolls Amit Shah: अमित शाह के शतरंज खेलने पर कांग्रेस ने किया ट्रोल, व्हाइट को व्हाइट के खिलाफ खड़ा कर रहे गृह मंत्री
--  창원시 나누미 가족봉사단, 8개월간 자원봉사 활동 수료식
--  완주군 과학산단 입주 ㈜가온셀, 사우디 공장 착공 최종 계약 체결
--  King's cousin Sarah Chatto and her heartthrob son Arthur join royal family at Kate Middleton's carol concert
+-  Türk vatandaşları için Yunan adalarında kapıda vize dönemi: Detaylar belli oldu!
+-  Nebbia a Milano, le suggestive immagini del Naviglio Grande avvolto dalla scighera
+-  Ftuv propondrá a la vicepresidencia creación del instituto de previsión social del sector universitario
+-  Valhalla: DLC gratuito de God of War Ragnarök está a chegar
+-  GOP presidential candidates weigh in on January debate participation
+-  चुनाव से पहले बड़ी गड़बड़ी, 19 हजार वोटरों की फोटो एक जैसी; अभी नोटिस जा रहा है भेजा
+-  Leikkimökin poltto johti hälytykseen Luumäellä
+-  Milli bilardocu Tolgahan Kiraz’dan bronz madalya
+-  मुर्दाघर में लाशों के बीच काम करती है ये लड़की, खूबसूरती देखकर लोग नहीं करते भरोसा
+-  Na današnji smo dan svi bili ‘ludi‘, pao je Brazil na Svjetskom prvenstvu, uživajte u velikoj galeriji povijesne fešte
