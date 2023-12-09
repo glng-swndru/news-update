@@ -1,11 +1,51 @@
 # Latest News
--  Kal Ka Kark Rashifal: कर्क राशि वाले आर्थिक स्थिति ठीक करने के लिए गरीबों में बांटें कंबल, कड़ा परिश्रम करें
--  Bournemouth make history with comprehensive victory over Man Utd at Old Trafford
--  एनटी अॅवॉर्ड्स सोहळ्यात एबीपी माझाची बाजी..प्रोग्रामिंग विभागात पुरस्कारांचा चौकार
--  Bigg Boss 17: सलमान खान के शो से बेघर हुईं सना रईस खान, जनता ने दिखाया बाहर का रास्ता
--  Sancho sagður vilja fá annað tækifæri
--  Imaculada Conceição: D. José Traquina convida a «renovar» a humanidade
--  Man Utd slump to humiliating home defeat to Bournemouth
--  Mikä Ruotsin tähteä vaivaa? ”Voi jäädä ulos joukkueesta”
--  Esed rejimi İdlib'de sivillere saldırdı: Beş ölü 38 yaralı
--  Gedson ve Umut Meraş derbiyi tamamlayamadı
+-  Barcelona kann Real Madrid Tabellenführung retten
+-  Müller verspricht Reaktion auf Debakel - «Wutmotor angehen»
+-  Sánchez clama en Berlín por un socialismo europeo unido contra el "odio letal" de la ultraderecha
+-  الجميل يختتم زيارته الأميركيّة: تحركات "حماس" في لبنان تشكّل تحديًا للدولة وللبنانيين
+-  Chiny: nie ma szans na sukces COP28 bez rozwiązania w sprawie paliw kopalnych
+-  ΑΕΚ Λάρνακας:"Ίσως από τα καλύτερα παιχνίδια της ΑΕΚ τη φετινή σεζόν"
+-  Die SPD stärkt ihrem Kanzler den Rücken
+-  Localizan hombre sin vida en arroyo de la Campesina
+-  Denuncian en redes caso de puma envenenado
+-  Detienen a sujeto armado en las Quintas Carolinas
+-  יותר הפסדי בית מכל תקופת פרגוסון: השפל החדש של מנצ'סטר יונייטד
+-  “Informar desde Gaza es arriesgar la vida”
+-  Вышел трейлер первого сезона ремейка "Мистер и миссис Смит"
+-  Κολοσσός-Προμηθέας 114-109: Το απίθανο φινάλε της κανονικής διάρκειας στη ματσάρα της Ρόδου (vid)
+-  Tarihi eser kaçakçısı baba-oğul-torun yakalandı 46 sikke ele geçirildi
+-  Bayern Munique sofre primeira derrota e é goleado em Frankfurt
+-  Kontroverze při výhře Sparty. Penalta! Tak ne, přímý kop a červená pro Vitíka. Měl ji vidět i Štěpánek, ujišťuje expert
+-  عسير: إحباط تهريب 350 كيلوغراما من «القات»
+-  Overzicht | Gevechten Gaza zwellen aan, 'VS medeplichtig aan oorlogsmisdaden'
+-  Multi-year high Greed floods back into crypto market; Why does it matter?
+-  Sparta kjørte over Vålerenga på Jordal
+-  V živo: Šeško čaka na priložnost na derbiju, katastrofa Bayerna
+-  Handtekinn undir áhrifum við vínbúð
+-  Neftçalada məktəbdə yanğın oldu
+-  Bundesparteitag: Die SPD stärkt ihrem Kanzler den Rücken
+-  Bundesparteitag: Die SPD stärkt ihrem Kanzler den Rücken
+-  Rapper 2 Chainz Hospitalized After Miami Car Accident
+-  Shqiptarja Edit Shkreli betohet si gjyqtare në Nju Jork LAJME 09/12/2023 18:04 Edit Shkreli, një shqiptare që jeton në Shtetet e Bashkuara të Amerikës, të premten është betuar si gjyqtare pranë Gjykatës Supreme të Bronx në New York. Për këtë ka shkruar ish-drejtori i Policisë së Shqipërisë, Gledis Nano, i cili ka qenë i ftuar në ceremoni. Nano ka shkruar se Shkreli do të jetë gjyqtarja e parë shqiptare në gjykatën Amerikane. Të ftuar në këtë ceremoni kanë qenë edhe konsulli i Kosovës në Nju Jork, Blerim Reka dhe përfaqësues të komunitetit shqiptar. Njoftim për betimin e Edit Shkrelit ka bërë edhe Konsullata e Kosovës në Nju Jork. “Dje, në Gjykatën Supreme të Bronksit, në ceremoninë e betimit të gjyqtares Edit Shkreli, të parës gjyqtare shqiptaro-amerikane të Nju Jorkut. Në mesin e folësve tjerë si: Jamaal T. Bailey, Nathalia Fernandez, e Kevin Thomas, (senatorë të shtetit të Nju Jorkut) dhe gjyqtarëve Roëan D. Wilson, Doris M. Gonzales dhe Matthew Parker- Raso, në emër të Konsulatës së Përgjithshme të Republikës së Kosovës, i urova gjyqtares Shkreli detyrën e re, si një arritje që na bën krenar të gjithë shqiptarëve”, shkruan Konsullata.
+-  Aumentan las enfermedades respiratorias en Sinaloa, pero hay cero casos de COVID-19: Salud
+-  اللبنانية نورا المرعبي تحصد الميدالية الذهبية وجائزة المنظمة العالمية للملكية الفكرية للمخترعين
+-  В Германии роботы помогают убирать и подавать еду с гостиницах и ресторанах
+-  POBEDNICA POPULARNOG NETFLIKSOVOG RIJALITIJA NIJE VIDELA NI PENI OD NAGRADE! Besna je na produkciju: "Stara sam i želim u PENZIJU"
+-  ‘The Peasants‘ Co-Creator Hugh Welchman Talks Genesis Of Ambitious Animated Literary Adaption – Contenders International
+-  Kokosy na ľade. Blackhawks povolali do NHL Jamajčana
+-  Beşiktaş'a penaltı şoku! Taraftar yıkıldı
+-  ABD Dışişleri Bakanı Blinken'dan Bakan Fidan ile görüşmesine dair açıklama
+-  El Valladolid se aferra a la épica frente a un 'peleón' Amorebieta
+-  Liga: le Real freiné par le Bétis Séville d’Ezzalzouli (1-1)
+-  "الأرصاد": إنذار أحمر لأهالي منطقة مكة .. أمطار غزيرة وسيول تستمر لساعات
+-  مكافحة المخدرات: ضبط أردني بتبوك وسوري في الجوف
+-  Mash: Вера Брежнева готова выступать на корпоративах только при заклеенных видеокамерах
+-  Bellingham no es suficiente en el Villamarín
+-  بيتيس يعطل ريال مدريد ويهدد صدارته
+-  CO2-Fake: Die Sonne als Feindbild
+-  Mourinho se defiende: “No ofendí al árbitro Marcenaro, nunca he cuestionado su calidad”
+-  MHP, Saffet Sancaklı'nın istifasını istedi
+-  Соболев оставил сообщение в соцсетях после победы над "Крыльями Советов"
+-  La probabile formazione del Torino: Ricci prende il posto di Linetty
+-  Zjarr në një spital në Itali, humbin jetën 3 persona
+-  Τι άλλαξε ο Κόσκελα;
