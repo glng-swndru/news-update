@@ -1,11 +1,11 @@
 # Latest News
--  ABD'de terör devleti İsrail'e tepkiler giderek artıyor
--  DSÖ: Gazze'deki El-Avde Hastanesi'nde iki sağlık personeli görevi başında öldürüldü
--  Filistinli müzik grubundan Ankara konseri: Çok sayıda dinleyici katıldı
--  Tres comisionados se postulan a la presidencia del Inai
--  We’ll make Tinubu our hero if he releases Kanu – Igbo youths
--  สถานการณ์ตลาดหุ้นลอนดอน: Footsie ปิดสูงสุดในรอบ 7 สัปดาห์ หุ้นพลังงานพุ่งขึ้นสนับสนุนตลาด
--  „Bares für Rares“: Goldschatz aus Düsseldorf – Händler pulverisieren Experten-Schätzung
--  Tiefsee-Forscher stoßen auf mysteriöse goldene Kuppel – „Können sie nicht identifizieren“
--  Επιβεβαιώθηκε ο θάνατος Ισραηλινού ομήρου μετά από αποτυχημένη επιχείρηση απελευθέρωσης στη Γάζα
--  Zawodnik Śląska Wrocław . „Jednym dryblingiem mija dwóch rywali”
+-  أستون فيلا يُسقط أرسنال ويحقق رقماً قياسياً بالدوري الإنكليزي
+-  كلوب يعترف: ليفربول لعب 76 دقيقة سيئة للغاية
+-  الاحتلال: أميركا لم تضع قيودا بشأن مدة الحرب بغزة
+-  أنشيلوتي راض على التعادل أمام بيتيس
+-  Anadolu Otoyolu'nda kar yağışı etkili oldu!
+-  Altavoz Fest 2023: programación y agrupaciones que encabezarán el festival en Medellín
+-  بيان عاجل من حساب المواطن بشأن مستحقات شهر ديسمبر
+-  Семь человек пострадали в результате аварии внутри тоннеля в американском Питтсбурге
+-  أوديجارد: أستون فيلا فريق رائع
+-  Najboljše družabne igre za praznični čas in vso družino
