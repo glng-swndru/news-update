@@ -1,11 +1,51 @@
 # Latest News
--  한미일 "북 비핵화·군사협력 금지 의무 재확인"
--  Delhi cabinet reshuffle: Atishi gets Law department
--  India`s economic growth linked to progress of entire world: PM Modi
--  West Bengal: Ten newborns die within 24 hours at Murshidabad hospital
--  मोठी बातमी! पिंपरी चिंचवडच्या आगीत सहा कामगारांचा होरपळून मृत्यूप्रकरणी गुन्हा दाखल
--  Union Cabinet Authorises Rs 2,500 Crore For Interest Equalisation Scheme
--  Government Approves 100% Packaging of Food Grains In Diversified Jute Bags
--  Onde assistir aos jogos de hoje (9/12/2023)
--  Marca de cerveja é anunciada como patrocinadora da Copa América de 2024 e terá Messi como embaixador
--  Harry Tuntut Fasilitas Keamanan, Sebut Inggris Tak Aman
+-  손흥민 새 파트너, 유벤투스에서 데려온다…브라이튼과 쟁탈전 불가피
+-  स्वर्ण पदक विजेता गुरुङको सम्मान
+-  भुक्तानी रोकिँदा दुध बिक्री हुन छाड्यो
+-  जुगल फेदीको गुम्बा, क्याङसिङ, अम्बा खर्कमा बल्यो बिजुली
+-  성중립 화장실이 불법촬영 온상? 직접 써보니 '아닌데요'?
+-  고려middot;거란전쟁이 '한민족'을 만들었다고?
+-  극우파들의 득세, 역사는 역주행하는가?
+-  유럽 100개 이상 기업이 나서서 '자연복원법' 통과를 요구한 이유
+-  Yankees 'in the market for pitching' after landing Juan Soto
+-  Ex-Yankee Cameron Maybin claims team's no facial-hair rule is 'wack', hinders them in free agency
+-  What Yankees, Mets are up against in bid to land Japanese star Yoshinobu Yamamoto
+-  Yankees 'in the market for pitching' after landing Juan Soto
+-  What Yankees, Mets are up against in bid to land Japanese star Yoshinobu Yamamoto
+-  내야 수비가 허약한 메이저리그 팀들, 김하성에 눈독
+-  Michael King found out Yankees traded him for Juan Soto in 'bizarre' fashion
+-  Yankees bringing back Billy McKinney, Anthony Misiewicz in depth additions
+-  2 vợ chồng đại gia trên cùng chuyến bay nhưng trái ngược: Vợ chồng Cường Đô La giản dị, nhà Minh Nhựa miệt mài check-in
+-  Michael King found out Yankees traded him for Juan Soto in 'bizarre' fashion
+-  Yankees reliever Ron Marinaccio's wedding a wild, fist-pumping scene
+-  Yankees bringing back Billy McKinney, Anthony Misiewicz in depth additions
+-  What will the Yankees batting order look like with Juan Soto?
+-  Yankees reliever Ron Marinaccio's wedding a wild, fist-pumping scene
+-  Aaron Judge will hold down center field for Yankees: Brian Cashman
+-  What will the Yankees batting order look like with Juan Soto?
+-  Ex-Yankee Cameron Maybin claims team's no facial-hair rule is 'wack', hinders them in free agency
+-  Aaron Judge will hold down center field for Yankees: Brian Cashman
+-  '13시간 묵비권 행사' 송영길 “돈 봉투 수사는 정치적 기획수사”
+-  Hà Nội: Thường xuyên rà soát, sẵn sàng ứng phó với mọi diễn biến thiên tai xảy ra
+-  В Челябинской области при пожаре погибли двое детей
+-  In Photos: India This Week
+-  Bobby Deol opens up on Bollywood debut of his sons Aryamann and Dharam
+-  US vetoes UN resolution calling for immediate ceasefire in Gaza
+-  Glen or Glenda Streaming: Watch & Stream Online via Amazon Prime Video
+-  Six shops gutted in Batmaloo blaze
+-  El impactante casamiento y anuncio de Nicole Neumann y Manu Urcera
+-  Triển khai mô hình điểm Hội Nông dân tham gia xử lý rác thải sinh hoạt nông thôn tại Ea Kar, Đắk Lắk
+-  Scientists identify effective nutrition labels for India’s diverse population
+-  Optical Illusion: ऊंट सवार को तो ढूंढ लेंगे, पर उसके साथी को खोजने में घूम जाएगा दिमाग
+-  ديبالا يواصل لمعانه في سماء نجوم أوروبا
+-  印度製造業重鎮暴雨釀災 鴻海、和碩已復工
+-  Собянин поддержал решение Путина пойти на выборы в 2024 году
+-  Spor yazarları Galatasaray - Yukatel Adana Demirspor maçını değerlendirdi
+-  What your bank statement says about you: Aussie mortgage broker on tiny details that will stop you from buying first home
+-  Mahua Moitra's Political Odyssey: From Banker to Parliamentarian and Explosive Exit
+-  Union-Trainer Bjelica dosiert neue Impulse
+-  Как да възстановим изтрити снимки в Android телефон
+-  وزيرة الهجرة: مصر تمتلك مقومات استثمارية لا يمكن منافستها
+-  محمود محيي الدين: سد فجوة تمويل صندوق المناخ يستلزم دور أكبر للقطاع الخاص
+-  Israel Strikes Gaza After Failed UN Ceasefire Bid
+-  Several tax levies being considered for March 2024 election in Warren County
