@@ -1,51 +1,51 @@
 # Latest News
--  Pierre Arditi : Le comédien fait un malaise en pleine représentation…
--  Teslas will be able to automatically call 911 if you get in a crash
--  الإمارات تدعم قطاع الصحة في إفريقيا ب 220 مليون دولار
--  Poznati detalji puštanja BBB-a na slobodu: Jamčevinu uplaćivali i neki hrvatski igrači, a evo kada će se navijači vratiti kući
--  From a cat’s festive hazards to a horse’s lameness – your pet queries answered
--  Tuzla'da feci kaza! Kontrolden çıkan araç şarampole uçtu
--  The English seaside town with a starring role in the new Wonka film – as well as a famous theme park
--  My budget-friendly version of a tropical island getaway – on Tenerife’s ‘unspoiled sister’
--  Dads of Drowned NY Kids Sue City for Ignoring Red Flags
--  Five ways to untie yourself from firms’ unnecessary fees and help save £1,454 a year
--  I’m 26 and my hairline is receding, am I too young to have hair transplant? Dr Jeff answers your health questions
--  Demba Touré (coach adjoint DSC) après le nul entre Jamono et DSC : « On n’a pas su concrétiser nos occasions malheureusement… »
--  Şimdi gerçekleri konuşma zamanı! Koç, boğa, ikizler, yengeç, başak, oğlak, yay ve kovalar... İşte 10 Aralık 2023 günlük burç y
--  «الإمارات للطبيعة» تقدّم مبادرات للعمل المناخي
--  קבינט המלחמה מתכנס; צה"ל תוקף בדרום לבנון
--  AKP MKYK Üyesi Hayati İnanç hakkında suç duyurusu. Adnan Oktar örgütüne yardım ve yargıya müdahale iddiası
--  From herbal medicine to manuka honey, we test three products to soothe winter lurgies
--  Fimmtándi heimasigurinn í röð (myndskeið)
--  Vikings offensive coordinator Wes Phillips arrested on suspicion of DWI
--  Vikings fans, purple-clad Rat Packs from all over, take over Las Vegas Strip
--  Vikings fans, purple-clad Rat Packs from all over, take over Las Vegas Strip
--  Vikings-Raiders preview: Can Justin Jefferson's return end skid?
--  Vikings-Raiders preview: Can Justin Jefferson's return end skid?
--  Jordan Love, awful-to-awesome QB, is leading Packers toward playoffs
--  Jordan Love, awful-to-awesome QB, is leading Packers toward playoffs
--  Vikings' offseason decisions may hinge on final five games of season
--  Vikings' offseason decisions may hinge on final five games of season
--  Vikings offensive coordinator Wes Phillips arrested on suspicion of DWI
--  Causes, how to protect yourself & treatment… answers to common questions about prostate cancer that could save your life
--  13 Great Deals on Headphones, Wireless Earbuds, and Gaming Headsets
--  13 Great Deals on Headphones, Wireless Earbuds, and Gaming Headsets
--  Conmoción en Colombia por el feminicidio de joven de 14 años que fue hallada desmembrada
--  Penn president Elizabeth Magill resigns after a week of intense backlash
--  Ολυμπιακός: Το πρώτο ζητούμενο για τον Καρβαλιάλ και η κρισιμότητα του «τελικού» με τη Μπάτσκα Τόπολα
--  'Neither of us is going anywhere': Jada Pinkett Smith vows she'll never leave Will Smith
--  Le chef de la diplomatie espagnole, José Manuel Albares, attendu au Maroc
--  "Bruno je namerno dobio karton, da ne igra protiv Liverpula"
--  لقاء سويدان تحث المواطنين على المشاركة في الانتخابات الرئاسية: شعب مصر عظيم وواع
--  ماجد السويدي: سنحقق نتيجة طموحة في 12 ديسمبر
--  Πινγκ πονγκ: Πρόκριση με πρωτιά για τον Παναθηναϊκό στο Europe Trophy ανδρών
--  Biden pierde ante Trump en un sondeo de ‘The Wall Street Journal’ en el que su popularidad sigue en caída
--  Nur 1:1: FC St. Pauli patzt beim VfL Osnabrück
--  الرعاية الصحية مسؤولة عن 5% من الانبعاثات
--  The Twang to play Christmas gigs for hometown fans
--  Council to crackdown on dog fouling across Dudley borough
--  Football fan jailed after racially abusing Rio Ferdinand
--  MUŠKARAC SA DVOJNIM DRŽAVLJANSTVOM OPTUŽEN ZA ZAGOVARANJE NACIZMA! Evo do kada će ostati u pritvoru
--  Educación activa un plan para reforzar el razonamiento matemático
--  Claude Surprenant : la réouverture d’un dossier épineux
--  Maske tragen! - Dringende Corona-Warnung von Lauterbach
+-  Hyundai Tucson mení tvár, facelift zasiahol hlavne vnútro
+-  זו אגדה אופטימית ורומנטית, משעשעת ומלאת הברקות - על מציאות ישראלית מאוד מכוערת
+-  בכתבה הכי מעניינת ששודרה בחודשיים הללו, לי נעים הצליחה היכן שכשלו כל עמיתיה לחדשות
+-  Paris'te işgalci İsrail'in Gazze'deki katliamlarına yönelik tepki gösterisi düzenlendi
+-  Edin Dzeko gol krallığında zirve yarışını sürdürüyor
+-  Dusan Tadic asist krallığında zirvede!
+-  ODIK verliest van directe concurrent
+-  SDV Barneveld gaat na winst op AZSV met goed gevoel winterstop in
+-  Haddad diz que Brasil fecha 2023 com a criação de 2 milhões de empregos formais
+-  Dikkat! Grip mevsimi geldi: Uzmanlardan önemli çağrı
+-  Kings, coach Brown esalta Sasha Vezenkov: Non è il classico rookie, avrà sempre più spazio
+-  Tri sestre Sipović osvojile tri srebra u karateu
+-  Weihnachts-Gottesdienste im TV: Sendetermine im Überblick
+-  Serie A, che Inter a San Siro! Poker all'Udinese e primato in classifica
+-  Shohei Ohtani Signs Record $700 Million Deal With Dodgers
+-  دراسة تحذر: نخر الأنف يسبب مرضاً دماغياً خطيراً
+-  Олимпийский чемпион Батыргазиев завоевал первый в истории титул чемпиона мира IBA среди профи
+-  The women's Black Sticks have made a winning start to their two-test series with the USA in Charlotte
+-  Angelina Jolie diz não conseguir viver livremente após se separar de Brad Pitt
+-  Fact Check: The Truth About Haley's History on Child Genital Mutilation
+-  Atacan a militares y policías en Malinalco
+-  Avanza barrido y aretado en municipios serranos
+-  Conoce a los finalistas por consejerías del Ichitaip
+-  La Miss Universo conquista la gala “We Are All Humane” con un deslumbrante vestido
+-  Russia to hold 2024 presidential voting in areas annexed from Ukraine too? Kyiv warns
+-  Большегруз перекрыл трассу Сортавала
+-  تقييم واتكينز مع أستون فيلا أمام أرسنال
+-  В Тверской области пропал мужчина со шрамом на лице
+-  Annoncé au PSG, son mercato s’emballe !
+-  Zaharova: Rusija da čini sve što može da procesuira zločine genocida
+-  Miguel’s season-high 20 points lift South Florida past Florida State, 88-72
+-  Irre Aktion mitten auf der A40 in Duisburg – Autofahrer reiben sich verwundert die Augen
+-  Pangstart for Carlsen i Champions Chess-finalen
+-  Ana Paula deixa o Mundial de Handebol por entorse no joelho
+-  Венгерские автоперевозчики проведут протесты на границе с Украиной
+-  Аталанта дотиснула Мілан, Інтер розгромив Удінезе: результати 15 туру Серії А
+-  Vrαsja e Liridona Ademajt, policia arreston një të dyshuar për dhënien e armës
+-  Em decisão equilibrada, Barcellos é reeleito presidente do Internacional para mais três anos
+-  EEUU insta a partes libias a unirse a iniciativa de la ONU para proceso electoral
+-  Marcelo Teixeira é eleito presidente do Santos pela terceira vez
+-  Marcel Ciolacu, anunț crucial despre intrarea României în spațiul Schengen: Am spart gheața! Austria și-a flexibilizat poziția
+-  Tim Voli Putri Gresik Petrokimia Pupuk Indonesia Juara Livoli Divisi Utama 2023, Kalahkan TNI AU di Final
+-  Μπέσσυ Μάλφα: «Ένα αμάξι έκανε όπισθεν και χτύπησε την πεθερά μου, έπεσε με το κεφάλι»
+-  Inter 4 - 0 Udinese (MAÇ SONUCU - ÖZET)
+-  ΘΑ ΜΠΟΡΕΣΟΥΝ ΝΑ ΣΥΝΥΠΑΡΞΟΥΝ
+-  Ascendieron a 12 los muertos por abrupto colapso de una mina en la Gran Sabana
+-  Moss scores 21 as Toledo downs Northern Iowa 84-80
+-  Após confusão na Vila Belmiro, Marcelo Teixeira é eleito novo presidente do Santos
+-  Médicos denunciam suspeita de fraude em prova de residência da Santa Casa em SP
+-  تقييم لوكاس دين في مباراة أستون فيلا وأرسنال
