@@ -1,11 +1,51 @@
 # Latest News
--  Za převaděčství padaly nízké tresty, situace se ale obrací
--  القسام: أجهزنا على قوتين خاصتين إسرائيليتين في غزة
--  44% حصة البنوك.. 80.8 مليار جنيه تمويلات للقطاع متناهي الصغر حتى سبتمبر
--  الرئيس التركي: جزارو غزة سيحاكمون أمام الجنائية الدولية عاجلًا أم آجلًا
--  بعد إقالة شوقي غريب.. طلعت محرم مديرا فنيا للمقاولون العرب
--  أحمد سليمان يستقبل مؤمن زكريا في نادي الزمالك لهذا السبب (صور)
--  Anger utslagen i kvartsfinal: ”Skitdåligt”
--  İstikrar Ne Demek: Hayatımızın Vazgeçilmez Unsurlarından Biri
--  Sara Ali Khan and Kartik Aaryan reunite on Bhool Bhulaiyaa 3; shooting begins February 2024
--  فی تولہ سونا ہزاروں روپے سستا ہوگیا
+-  Odermatt schafft in Val d’Isère das Triple
+-  Attivisti jinġabru quddiem il-Qorti biex jitolbu għall-ħelsien tal-El Hiblu 3
+-  Intl Anti Corruption Day Event Held At Charar Sharief
+-  CS Reviews Progress Of Ongoing VBSY With DCs And District Prabharis
+-  Đặng Văn Lâm sai lầm, Bình Định thua đau Thanh Hoá
+-  Perdió el control, chocó contra un cartel y abandonó su auto en cercanías a la autovía
+-  Israel pounds Gaza targets after US vetos rare UN ceasefire bid
+-  Σαλαμίνα: «Γιατί δεν έκαναν κάτι όσοι άκουγαν καυγάδες;» - Ξέσπασε η αδερφή της 43χρονης
+-  أرسنال يتسلح بإحصائية رائعة قبل مواجهة أستون فيلا
+-  Näillä keinoilla organisaatiot onnistuivat vähentämään sairauspoissaoloihin liittyviä työkyvyttömyyskustannuksia
+-  Bürgerstiftung Stadt Selm: Vorstandsvorsitzender zieht sich zurück
+-  Jambon Nedir: Lezzet Dolu Bir Tanıtım
+-  A Bull Market Is Coming: 1 Stock That Could Soar Up to 78% in 2024, According to Wall Street
+-  Okupile se Barakude pred EP: ‘Sjetimo se Splita, želim novu medalju’
+-  Recuperan cuerpos de los 5 militares de Guyana muertos en accidente aéreo
+-  Lambaréné : Incarcéré pour avoir dénoncé le racket des hommes en treillis
+-  Χειροπέδες σε 4 διακινητές που μετέφεραν 69 μετανάστες
+-  Eski Devlet Klasik Türk Müziği Korosu'nun şefi Prof. Dr. Nevzat Atlığ vefat etti
+-  Travis Kelce Rencanakan Perayaan Spesial untuk Ultah Taylor Swift
+-  Milatović: Snažna podrška inicijativama usmjerenim na razvoj
+-  COP28서 열린 RewirEd Summit, 기후 행동 교육의 새 지평 열다
+-  Dal gesto di Osimhen al tweet di Pistocchi: Juve-Napoli regala sempre polemiche
+-  В Днепропетровской области экстренно отключилась ЛЭП
+-  Poznati odvjetnici o slučaju Marija Banožića: ‘Previše je tu neuobičajenih stvari, ovo ne šalje dobru poruku‘
+-  İzmir'de Gezilecek Yerler: Renkli Bir Ege Macerası
+-  İzafi Ne Demek? - Açıklama ve Örnekler
+-  Захарова назвала бессмысленным навязывание «корейского сценария» по Украине
+-  Rose Street car park in Inverness is full as it undergoes maintenance
+-  Durchbruch im Tarifstreit des öffentlichen Dienstes der Länder
+-  مصر.. "مهندس" ينهي حياة والديه وشقيقه وصاحبه بطريقة مروعة لسبب غريب !
+-  عاجل.. الداخلية تعلن عن تنفيذ حكم الشرع في مواطن بحائل وتكشف جريمته
+-  ‘Travelling Family’ Busted At Sevilla Airport
+-  Getting It Done: The Week in D.I.Y. & Indie Music
+-  VÍDEO: Bolsonaro diz que Jorginho é seu “governador favorito” em viagem para posse de Milei
+-  Fußgänger auf Bundesstraße von Auto erfasst und gestorben
+-  Bahçeli'den Saffet Sancaklı'ya 'ihraç' göndermesi: Tercih kendisinin
+-  Hamás tacha de «crimen atroz» bombardeo israelí que destruyó la Gran Mezquita de Gaza
+-  5,509 vulnerable households benefit from USAID cash transfer project in Zamfara
+-  İyonik Bağ Nedir: Kimyasal Bağların Temel İlkesi
+-  Atılay Canel: Yediğimiz gol Süper Lig'de tarihe geçecek gol
+-  Chelsea boss Mauricio Pochettino reveals cheat code ahead of Everton clash as he blasts players over Man Utd blunder
+-  Chelsea boss Mauricio Pochettino reveals cheat code ahead of Everton clash as he blasts players over Man Utd blunder
+-  ব্যারিস্টার মইনুল হোসেন মারা গেছেন
+-  L'Union européenne trouve un accord de régulation de l'intelligence artificielle
+-  France 2030 : à Toulouse, Emmanuel Macron va proposer de « nouveaux défis » aux entrepreneurs
+-  Comment Bercy et Bruxelles veulent simplifier les normes critiquées par les entreprises
+-  L'Espagnole Nadia Calviño, première femme à la tête de la Banque européenne d'investissement
+-  Bataille du pétrole au Guyana : « Celui qui joue avec le Venezuela se brûle » (Maduro)
+-  NB I: Egyértelmű, mi lesz a Paks-Fradi nem várt szuperrangadó vége - legalábbis a Csakfoci-olvasók szerint
+-  WPL auction: Who is Kashvee Gautam, record-breaking player to earn more than Harmanpreet Kaur in bidding war?
