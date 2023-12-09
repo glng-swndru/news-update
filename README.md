@@ -1,11 +1,11 @@
 # Latest News
--  Se perfila Marko Cortés al Senado vía plurinominal
--  Diguncang Gempa 4.0 Magnitudo, 105 Rumah Warga Sukabumi Rusak
--  Dışişleri Bakanı Fidan: Gazze konusunda artık ABD yalnız kaldı
--  DNA ile 3 milyar liralık servetin ortağı oldular
--  [글로벌] AMD, 인스팅트 MI300 시리즈 출시..."AI 반도체 시장 경쟁 가열"
--  [글로벌] MS, GPT-4 터보 장착한 '코파일럿' 업데이트..."구글에 견제구"
--  [크립토 주간 브리핑] 2년만에 6000만원 돌파한 비트코인, 1년만에 재상장된 위믹스
--  [글로벌] 페이스북 '메시지 암호화' 전면 시행...인스타그램도 내년부터 적용
--  Motociclista quedó herido de gravedad tras impactarse con vehículo en Tepic
--  Guerre entre Israël et le Hamas : les États-Unis mettent leur veto à "un cessez-le-feu humanitaire immédiat" à Gaza
+-  Cyprus Business Now
+-  गुरुङ संस्कृतिमा विवाह गर्न बेलायती देखि तनहुँमा(फोटो फिचर)
+-  Limitations of Microsoft Edge Copilot AI in Summarizing YouTube Videos
+-  UNHCR Tegaskan Cuitan Minta Rohingya Diberi KTP dan Pulau Adalah Hoax
+-  Background am Gespréich vum 9. Dezember: Gilbert Pregno, Joëlle Christen a Jean-Louis Zeien
+-  Colombia avanza en la construcción del primer buque-hospital con inversión de $77.500 millones
+-  Gobierno fortalece la búsqueda de 477 militares y policías desaparecidos en Colombia
+-  Forero advierte sobre vencimiento de vacunas para la COVID-19 sin utilización
+-  Iván Velásquez, ministro de defensa, revela que el ELN mantiene a 38 personas secuestradas
+-  В Ярославле началась реконструкция Ленинского рынка
