@@ -1,11 +1,11 @@
 # Latest News
--  ‘Arrest anyone protesting on my behalf’ – Kogi SDP guber candidate, Ajaka (Video)
--  Üzüm üreticilerine müjde!
--  Emin Çölaşan yazdı: Asgari ücret tiyatrosu!
--  لن تتخيل تأثير حب الشباب على حالتك النفسية والاجتماعية
--  Devotion A Story Of Love And Desire Season 2 Release Date: Cancelled Or Renewed?
--  Drought continues: De La Salle’s bid for eighth state title falls short as Spartans lose to Mission Viejo
--  I Captured The Tyrant’s Heart Chapter 28 Release Date: Official Update
--  My Hero Academia Chapter 409 Release Date: Spoilers, Recap & More
--  ‘അങ്ങനെ അവസാനം അത് സംഭവിച്ചു’; വിവാഹ ഗോസിപ്പിൽ പ്രതികരണവുമായി റെനീഷയും വിഷ്ണുവും
--  Το Βαρωσιώτικο ντέρμπι «βάφτηκε» «ερυθρόλευκο»
+-  השדר עקץ: "רונאלדו מבקיע מדי משחק, ואני לא זוכר מתי מסי בכלל שיחק"
+-  Полиция проверяет жестокое избиение девочками подруги в школьном туалете Новосибирска
+-  Ölüme Kalkan El! Gazze İçin Acil İnsani Yardımı ABD Veto Etti!
+-  “عبد الجليل”: تفعيل مجلس المرافق الصحية التعليمية تيسيرًا على أعضاء هيئة التدريس بجامعة بنغازي
+-  Do súboja s Pellegrinim a Korčokom môže ísť len známa osobnosť, uvádza publicista Hrabko
+-  Mladistvý strelec z Michiganu dostal za vraždu štyroch spolužiakov doživotie
+-  Lámete si hlavu nad predčasným dôchodkom? Expert má uplne jasno v tom, či treba konať už teraz
+-  Roger Schmidt krijgt flesje naar zijn hoofd: voormalig PSV-coach onder druk bij Benfica
+-  Костромским бойцам СВО предоставили 149 земельных участков
+-  มติ ปชป.เลือก "เฉลิมชัย" เป็นหัวหน้าพรรคประชาธิปัตย์ คนใหม่
