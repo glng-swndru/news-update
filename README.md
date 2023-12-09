@@ -1,11 +1,11 @@
 # Latest News
--  ورطة كبيرة لـ«جوجل» بعد إطلاق «Gemini».. فشل في إجابة الأسئلة
--  Cameroun :: Convention Du Mrc: Plus De 10 000 Délégués Présents Ce Jour Au Palais Des Congrès De Yaoundé (Texte Et Vidéo) :: Cameroon
--  YCP government : ప్రాజెక్టుల నిర్వహణలో వైసీపీ ప్రభుత్వం నిర్లక్ష్యం
--  김혜수(Kim Hye-Soo), '자타공인 드레스 여신'…레드카펫을 수놓은 금빛 드레스 [MD동영상]
--  엠마 스톤의 파격 변신…19금 영화 '가여운 것들', R등급 위해 수위조절까지 [해외이슈]
--  ‘서울의 봄’ 박해준, “황정민이 폭주기관차라면 나는 기관사”[MD인터뷰](종합)
--  "전재산 잃었다!" 전세 사기 피해 입은 ★들 '예방법 공유'[MD포커스]
--  올해 은퇴한 아스널 천재 MF ‘5G 무승 토트넘 조롱’↔‘지난 시즌 248일 1위하고 우승 못한 바보팀은 어디?’ 맞불→'Bottle Job'논쟁
--  అందరికీ రామ్‌ రామ్‌
--  الصحة العالمية: الهجمات مستمرة على المرافق الصحية بغزة
+-  Accessible toilets have inaccessible washbasins: study
+-  توقعات الأبراج وحظك اليوم 10-12: ترقية في طريقك.. ومشروع جديد
+-  Jović posle gola: Vraćam se polako u formu
+-  Liz Magill resigns as University of Pennsylvania president following backlash over congressional antisemitism testimony
+-  Anh nông dân ở Đà Nẵng đam mê nuôi con vật lạ, thích ăn chuối chín, thu lãi cao
+-  Kate & William make bold ‘announcement’ with ‘powerful signal’ in Christmas card photo, a body language expert claims
+-  'Super, super special' Salah brings up 200 Reds goals
+-  'Super, super special' Salah brings up 200 Reds goals
+-  Who is in the I’m A Celebrity 2023 final?
+-  Royal Family reveals Christmas cards – as William beams with family in stylish snap & King dons regal Coronation robe
