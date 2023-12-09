@@ -1,51 +1,51 @@
 # Latest News
+-  תיעוד: מטוס של ארקיע נחת בנתב"ג ברקע יירוטים של כיפת ברזל
+-  שיא היסטורי לאסטון וילה, ארטטה התלונן: "השער של האברץ חוקי"
+-  PS Plus Extra Loses 9 Great PS5, PS4 Games Next Month
+-  Streit eskaliert: Zwei Männer in Hagen durch Schüsse schwer verletzt – Täter auf der Flucht
+-  VIDEOTIP Rýchly recept na domáci vaječný likér: Na ten z obchodu úplne zabudnete
+-  Borussia Dortmund: Fans haben genug – folgt jetzt der große Knall?
+-  Недовольство в отношении Нетаньяху не утихает в Израиле
+-  Volleyball-Bundesliga:SC Potsdam unterliegt Stuttgart im Spitzenspiel mit 0:3
+-  STAT+: CAR-T, recently used in a lupus patient, helps other autoimmune patients, too, in small study
+-  İsmail Kartal'dan maç sonu değerlendirmesi: Kendimize yakışır futbolla galip geldik
+-  Tom Waits Honors Nicolas Cage with Rare Public Appearance
+-  بعد الفيتو الأمريكي.. إسرائيل تكثف تهجير سكان خان يونس
+-  Atalanta, Gasperini: "Lookman non è un mostro. Sui fischi a Muriel..."
+-  Avigliana lotta per tutta la gara ma cede a Pancalieri
+-  ΑΕΚ – Μαρούσι 91-89: Νίκη με συγκλονιστικό φινάλε και buzzer beater για την Ένωση στην Basket League
+-  Inzaghi, la risposta sulla Juve e sulla pressione: "L'Inter è abituata..."
+-  Großer BVB-Kampf beim 2:3 gegen Leipzig: Doch die Lage bei Borussia Dortmund bleibt angespannt
+-  ‘Autobiography’ Director Makbul Mubarak Says Indonesia’s Oscar Entry Is “About Loyalty And Legacy” – Contenders International
+-  Poet, actor and activist Benjamin Zephaniah dies at age 65
+-  Richard Riakporhe 'can't wait' to fight Chris Billam-Smith vs Mateusz Masternak winner
+-  Jude Bellingham scores again but Real Madrid held 1-1 away at Real Betis
+-  Man City Women 2-1 Aston Villa Women: Lauren Hemp scores twice to seal comeback win to take City second
+-  Livingston 0-1 Hibs: Martin Boyle fires Hibs to victory as Livi suffer seventh straight defeat
+-  Blackburn Rovers 0-2 Leeds United: Dan James and Crysencio Summerville score in victory
+-  Aston Villa are Premier League title contenders if they beat Arsenal on Saturday, says Paul Merson
+-  England head coach Jess Thirlby backs younger players and seeks improvement for second South Africa match
+-  Mikel Arteta exclusive interview: Declan Rice's aura, Kai Havertz's intelligence and why Arsenal's best is yet to come
+-  Jon Rahm joining LIV may lead to harmony in golf, says Butch Harmon
+-  Aston Vila pobedila Arsenal - 15. uzastopna pobeda na domaćem terenu u Premijer ligi
+-  Πότε ξεκινά το εορταστικό ωράριο, αναλυτικά οι ώρες και οι Κυριακές με ανοιχτά καταστήματα
+-  BAHAR SE ZAHVALJIVAO DJECI KOJA SU GA SPASILA! Nasmijan posle teške pobjede Zvezde: Biće ovo sve dobro!
+-  2 Chainz Hospitalized After Car Accident in Miami: What You Need to Know
+-  تفاصيل مصرع كوهين آيزنكوت في غزة
+-  Vučić: Nikakvo pismo nije stiglo
+-  Nach Roter Karte im Top-Spiel: BVB-Trainer Terzic kritisiert Abwehr-Boss Hummels
+-  Политик Филиппо: США скоро откажутся от Украины и сожгут её дотла
+-  عزیر بلوچ کی بریت کا فیصلہ چیلنج کر دیا گیا
+-  Посол Ирана назвал достойной позицию России по палестино-израильскому конфликту
+-  Министр обороны Израиля заявил об уничтожении в Газе сотен командиров ХАМАС
+-  Mikel Arteta’s Early Exit Before Arsenal’s Loss Prompts Speculation of Locker Room Fallout
 -  Anel Ahmedhodzics nobb – vägrade regnbågsbindeln
+-  Muxuu Mikel Arteta Ka Yidhi Guuldaradii Kooxdiisa Kala Kulantay Aston Villa.
+-  Murió reconocido anestesiólogo al caer al vacío durante falla eléctrica en el estado Bolívar
+-  Silver Dollar City's "An Old Time Christmas" named America's Best Holiday Event
+-  Artificial intelligence robots plugged into pensioners' homes as someone to chat to
+-  Arranca la era libertaria de Milei
 -  '이제는 못 참는다' 토트넘, '995억 먹튀' 히샬리송에 대한 인내심 잃었다! 사우디 매각 고려
--  심판이 갑자기 선수에게 흉기 난동→폐에 구멍... 선수는 무사 생존
--  Bennekom ondermaats bij Voorwaarts
--  АҚШ Давлат департаменти Исроилга 106 миллион долларлик ҳарбий техника сотишга рухсат берди.
--  Етарли ёрдамсиз дунё шунчаки ўлишимизга имкон беради - Зеленская.
--  الوحدة يفوز على الأخدود بثنائية في دوري روشن
--  Oakland: Security guard fatally shot at convenience store near Lake Merritt Friday
--  Silkeborg overlever FCK-pres og spiller sig i semifinalen
--  La Amazonía brasileña registra la menor deforestación en cinco años
--  ДТП в Азербайджане
--  Erstmals überhaupt! Unglückliche Premiere für den HSV
--  Brasil precisa fazer o trabalho de casa para atrair turismo internacional, defende fundador do Vila Galé
--  Yemen'deki Husiler: İsrail'e giden gemilerin geçişini engelleyeceğiz
--  زندگی بچانے والی ادویات کی قلت، مریض پریشان
--  Israel-Palestine war multiplies Arab suspicions of the West
--  „Turime naują tikslą – nuskandinti kažką didesnio“
--  [ŽT] „Pirmoji tokia ataka.“ Košmaras rusų užnugaryje. Ką padarė SBU (Video)
--  Special investigation group arrests 12 men in human trafficking
--  Fotos: más de 500 niños han recibido juguetes en Baruta por parte del concejal Luis Aguilar
--  – شركة الخدمات العامة : ارتفاع منسوب المياه داخل وادي المجينين .
--  SPD krytykuje swoją wcześniejszą politykę wobec Rosji
--  As Bosniaks, we have a duty to speak up for Gaza
--  Seine-et-Marne: un adolescent de 17 ans meurt après un refus d'obtempérer à scooter, deux enquêtes ouvertes
--  ChatGPT rédige une loi... et elle est adoptée
--  The FDA just approved the first gene editing therapy for sickle cell anemia, but it'll cost $2.2 million per person
--  Нокаутом закончился бой боксера из Казахстана и «Гордости России»
--  Tigres vs Pumas: Pronóstico y picks gratis; liguilla del AP23
--  Сергеев — о победе над «Пари НН»: «Три очка не пахнут, двигаемся дальше»
--  EPL Wrap: Palace coach criticises Liverpool star after ‘harsh’ red card; Villa make history in win
--  تعرف على سعر الصرف وبيع العملات مساء السبت بالـعاصمة عدن
--  Nuclear power deserves a place in the clean energy mix
--  UŽIVO Severina u Superstaru: Stvar je ukusa, a zna se da ja nemam ukusa
--  Eintracht Frankfurt 5-1 Bayern Münih (ÖZET)
--  Yolun karşısına geçmek isteyen kadını hayattan kopardı
--  Netanyahu: Pravedan rat za eliminaciju Hamasa se nastavlja
--  „Anatomie eines Falls“ gewinnt in Berlin Drehbuchpreis
--  جیل سے گھبرا کر ملک چھوڑ کر بھاگ جانے والے عوام کا سامنا نہیں کرسکتے،پیپلز پارٹی رہنما کا اعلان
--  Champions Cup: Bulls 27 Saracens 16 - match report
--  [KDL 통신] 광동, 드리프트 최강팀 등극...창단 후 첫 우승컵 들어 올렸다
--  [현장습격] "어차피 우승은 광동?"...KDL 초대 챔피언 가려진 역사적인 날
--  [e스포츠人] '에결 괴물' 모드로 광동 우승 이끈 맏형 노준현
--  Mideast ministers in Ottawa to discuss Israel-Hamas war with Joly, Trudeau
--  Conservative Parents Raise Teens with Better Mental Health: Study
--  🎥 | Dusan Tadic en Sebastian Szymanski beslissen Turkse topper
--  Four Republican presidential candidates face off in fiery debate
--  Makabryczny wypadek na drodze S7. Bus zahaczył o ciężarówkę i dachował. Dwoje dzieci w szpitalu
--  Guardavidas rescatan con vida a dos niños que fueron arrastrados por una corriente en Metalío
--  Meten preso a sujeto que abusó de su propia hija adolescente en Soyapango
--  UNICEF faces major challenges 77 years on
+-  "РВ": В зоне СВО ликвидирован наемник из Шри-Ланки по прозвищу "Дантист"
+-  En vivo: así está la Legislatura a minutos de la asunción de Cornejo y Casado
+-  "Lacra social": Marcelino Iglesias se despidió de Guaymallén con una fuerte carta contra el populismo
