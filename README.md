@@ -1,11 +1,11 @@
 # Latest News
--  Accessible toilets have inaccessible washbasins: study
--  توقعات الأبراج وحظك اليوم 10-12: ترقية في طريقك.. ومشروع جديد
--  Jović posle gola: Vraćam se polako u formu
--  Liz Magill resigns as University of Pennsylvania president following backlash over congressional antisemitism testimony
--  Anh nông dân ở Đà Nẵng đam mê nuôi con vật lạ, thích ăn chuối chín, thu lãi cao
--  Kate & William make bold ‘announcement’ with ‘powerful signal’ in Christmas card photo, a body language expert claims
--  'Super, super special' Salah brings up 200 Reds goals
--  'Super, super special' Salah brings up 200 Reds goals
--  Who is in the I’m A Celebrity 2023 final?
--  Royal Family reveals Christmas cards – as William beams with family in stylish snap & King dons regal Coronation robe
+-  Inzaghi: "Risposta alla Juve? Non dobbiamo pensare a cosa fanno gli altri"
+-  Adolescente de 14 años que fue hallada desmembrada cerca de un taller
+-  Arsenal Tumbang di Markas Aston Villa, Klasemen Papan Atas Liga Inggris Sengit
+-  NBA: El récord de Victor Wembanyama no frena la caída en picada de los Spurs
+-  Yolcu taşıdığı otobüsü gelin arabası oldu
+-  Stórbrotið mark fyrir botnliðið (myndskeið)
+-  As 10 melhores séries lançadas em novembro
+-  Stovky Izraelčanov v Tel Avive vyzývali na prepustenie rukojemníkov
+-  Museu Nacional prevê R$ 90 milhões via Lei Rouanet em nova etapa de reforma para reabrir em 2026
+-  Trafikolycka med flera fordon
