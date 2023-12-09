@@ -1,51 +1,11 @@
 # Latest News
--  تسهيلات للمواطنين.. خطة وزارة الداخلية لتأمين الانتخابات الرئاسية (فيديو)
--  وزير الصحة يوجه بتيسير مشاركة العاملين بالقطاع الصحي في الانتخابات الرئاسية
--  بدء غرفة عمليات حملة المرشح الرئاسي فريد زهران لمتابعة الانتخابات
--  "بعد نجله بيومين".. الاحتلال يعلن مقتل ابن شقيق وزير بحكومة الحرب في غزة
--  بـ 3 خطوات.. كيف يمكنك الاستعلام عن لجنتك الانتخابية؟
--  الصحة الفلسطينية: استشهاد شاب برصاص الاحتلال الإسرائيلي في الضفة
--  متحدث ائتلاف النزاهة يكشف تفاصيل متابعة الانتخابات الرئاسية
--  وزير العدل الفلسطيني: "الفيتو" الأمريكي ضد وقف إطلاق النار بغزة يجعلها شريكًا لإسرائيل في جرائمها
--  مانشستر يونايتد يسقط أمام بورنموث بثلاثية نظيفة
--  لقاء الخميسي تفاجئ جماهير الزمالك في مواجهة ساجرادا الأنجولي (صورة)
--  "من حق الكبير يتدلع".. كيف علق الجمهور على أرقام صلاح القياسية
--  "ديون وحسد".. 4 أبراج عليها الحذر في بداية الأسبوع الثاني من ديسمبر
--  WPL Auction 2024: ఐపీఎల్‌ వేలంలో తెలంగాణ అమ్మాయి, గుజరాత్‌ టీమ్‌లోకి త్రిష
--  Ünlü oyuncu sahnede kaza geçirdi!
--  Europe agrees landmark AI regulation deal
--  Britney verloor haar zus aan drugs en haar vader aan kanker. 'Als ik een kist zag, brak het zweet me uit'
--  ING ziet grote verschillen tussen spaarbuffers van Nederlanders
--  'Voor moreel leiderschap moet je je een betere wereld willen voorstellen. Kan Europa dat?'
--  Paulista A3: Desportivo Brasil se reforça com zagueiro formado no Fortaleza
--  Man Utd booed off pitch by furious fans after latest humiliation as fans call it ‘sort of result that gets you sacked’
--  नोकऱ्यांच्या बाबतीत 2023 हे वर्ष खूपच वाईट, IT क्षेत्राला सर्वाधिक फटका
--  Boston - Arizona. Pastrňákův tým hraje v příhodném čase proti zvedající se Arizoně
--  400 personas y 110 casas afectadas deja desbordamiento de río en Muisne, según balance de Servicio de Riesgos
--  Ljudi s 'najvrjednijom' krvnom grupom ne bi trebali konzumirati ove namirnice: Jedna stvar je važna
--  Tűzifa, ajándékcsomag, utalvány – így segítenek karácsony közeledtével a DK-s polgármesterek
--  Heena Khan:टीवी एक्ट्रेस हीना खान ने व्हाइट ड्रेस में कराया फोटोशूट, देखें तस्वीरें
--  MAFS star Ella Morgan leaves little to the imagination in plunging glitzy dress on wild night out
--  Los goles de Juric y Salazar resuelven el atasco del Real Valladolid ante el Amorebieta
--  WSJ: Bajdenov rejting na najnižem nivou do sada, prvi put kaska za Trampom
--  Reifen-Problem nach Lügen-Prozess - Droht Gil Ofarim jetzt neuer Ärger?
--  Heidenheims Beste glänzt mit Vorlagen: „Fuß ist Gold wert“
--  Antti Aallon hypyt jäivät tasapaksuiksi Klingenthalissa – Geiger katkaisi Kraftin voittosarjan mäkihypyn maailmancupissa
--  Martina Velarde dice que lloró y vomitó durante el 23-J para sacar el escaño
--  ALEKSANDAR ŠAPIĆ &quot;Kosovo i Metohiju čuvamo mudrošću&quot;
--  U nedjelju kiša i snijeg, izdan žuti alarm. U novom tjednu i dalje dosta oblaka i kiše
--  DOSTA IZNENAĐENJA U PREMIJER LIGI Bornmut razbio Junajted u Mančesteru
--  Mornar ostao na začelju, Cedevita Olimpija u finišu riješila meč
--  Bingöl'de sağanak yağış kazaya neden oldu
--  Manchester United se obrukao na Old Traffordu, Bournemouth slavi veliku pobjedu
--  Ο νέος δικαστικός χάρτης και οι τροποποιήσεις στον Ποινικό Κώδικα τα κυρίαρχα θέματα της συνέλευσης της Ένωσης Εισαγγελέων Ελλάδος
--  Princ Hari će morati na sud
--  Selena Gomez admits getting this cosmetic procedure whilst defending her new romance on social media
--  Baku miatt is támadja Lewis Hamilton az FIA-t
--  دولت کسی حد تک خوشی مہیا کر سکتی ہے، آپ اسکے بغیر بھی خوش رہ سکتے ہیں،خوشی اور شادمانی کی سلطنت خیالات اور احساسات میں واقع ہے
--  NAPRAVITE SAMI Dašak somota obogatiće vaš dom uoči praznika, ovi ukrasi se prave za tili čas, a izgledaju svetski!
--  Vučić na TV Pink: Orban je iskren prijatelj i čovek koji voli Srbiju - za to kapa dole i beskrajno mu hvala
--  UW Board of Regents Reject Deal to Freeze DEI Positions
--  "أموالنا لنا" في اليوم العالمي للفساد: عقاب المافيا الممسكة بالمال والقضاء ليست مستحيلة!
--  Erster Sieg nach 105 Tagen - „Wir haben Union-Berlin-Fußball gespielt“
--  No passengers insured when plane slid off runway at Tonga airport
+-  מודריץ' זעם על החילוף, אנצ'לוטי: "תוצאה טובה במגרש קשה"
+-  מורעבים, ללא תרופות ובחרדה תמידית: עדויות השבים מהתופת שהוקרנו בכיכר החטופים
+-  Cumhurbaşkanı Erdoğan Haliç Kongre Merkezi'nde TOTBİD üyelerini kabul etti
+-  MAÇ SONUCU| Beşiktaş 1-3 Fenerbahçe
+-  Six TTC subway stations closed this weekend
+-  Mariana Rodríguez, esposa de Samuel García, se registra para la alcaldía de Monterrey
+-  Health Tips: దానిమ్మ రసం ఉపయోగాలు తెలిస్తే మీరు జీవితంలో డాక్టర్ దగ్గరకు వెళ్లే పని ఉండదు..
+-  YouTube «комментлар»ни паузага қўйиш имкониятини жорий қилди.
+-  Amra Džeko podijelila simpatičnu snimku slavlja u kući nakon gola Edina
+-  Bahn startet neuen Fahrplan: Mehr Züge, mehr Nachtverkehr und teurere Tickets
