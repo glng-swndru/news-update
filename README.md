@@ -1,11 +1,51 @@
 # Latest News
--  احذر هذه التغييرات في أظافرك.. علامة على مرض الكلى المزمن
--  "عقوبات قاسية".. إبراهيم سعيد يكشف ما فعله الخطيب مع لاعبي بعد التعادل مع بلوزداد
--  موعد سوبر اليد بين الأهلي والزمالك والقناة الناقلة
--  Glücksspirale: Gewinnzahlen und Sieger-Chance (Samstag, 09.12.2023)
--  Lotto heute, das ist der Jackpot - alle Gewinnzahlen am Samstag, 09.12.2023
--  Büyük Balıkların Savaşı: Dünyanın En Değerli Şirketleri ve Varlıklarına Kıyasla Kripto Varlık Piyasası Nasıl Bir Konumda?
--  Wout van Aert: “Eerder geschrokken na mijn eerste crosstraining dan dat ik zin kreeg in de cross”
--  Prakash Shendge : मराठा आमदार राजू नवघरेंना हरवणार, आता 156 आमदार राहिलेत, प्रकाश शेंडगेंनी मराठा आमदारांविरुद्ध रणशिंग फुंकलं
--  (فيتو أمريكي) يعيق مشروع قرار لوقف إطلاق النار بغزة
--  Kratos Modern Zamanlarda da Acımıyor: Call of Duty Geliştiricileri, Oyuna Yönelik Gelen Şakaya Cevap Verdi
+-  سرايا القدس تقصف قوات إسرائيلية بالهاون
+-  تفسيرات رؤيا الحصان في المنام
+-  AKTUÁLNE Pre nehodu auto a kamióna je cesta I/66 v obci Babiná neprejazdná
+-  Na Pražskom hrade sa začal pohreb Karla Schwarzenberga, prišla aj prezidentka Čaputová
+-  Kickoff | Pep: Why Man City are not the best team in the world
+-  Nederland wil internationaal samenwerken tegen fossiele subsidies
+-  Noors staatsfonds: Tesla moet arbeidsrechten respecteren
+-  Advies NGK: geef geestelijke verzorger status van kerkelijk werker. 'Zij hebben kerken iets te bieden'
+-  طريقة تحديث التخصص في اختبار الرخص المهنية للوظائف التعليمية 1445
+-  Molly-Mae looks every inch the snow bunny as she models PrettyLittleThing ski edit with buys from £8
+-  This party-perfect £40 rhinestone clutch bag is a bargain alternative to celeb-loved £390 Cult Gaia bag
+-  River Island's 'statement' faux fur 'coat of the season' is perfect for day to night
+-  Inside Jamie Oliver and wife Jools' £6m Essex home they share with 5 kids
+-  You can get an extra £10 off No7 half-price skincare gift sets in little-known deal
+-  Charley Webb steps out post-breakup in a daring £32 micro disco 'belt' skirt
+-  Inside the My Mum, Your Dad stars' big night out as they reunite in Edinburgh
+-  Holly Willoughby 'terrified' and 'in a right state' over Dancing On Ice decision
+-  'I suffered secret panic attack on MAFS and asked welfare staff to stop my wedding'
+-  Aldi have released a £3.49 wine so good they have had to put a bottle limit on it
+-  Michelle Keegan looks so cosy in 'stunning' winter coat that can be worn two ways
+-  Inside Made in Chelsea's Ruby Adler's love life from co-star ex to heartbreaking split
+-  Celebs' luxury homes in 'UK's happiest place to live' – Giovanna Fletcher to Amanda Holden
+-  "I don't get excited about Christmas as I have SAD- I never celebrate it"
+-  'We didn't serve any booze at our wedding - if any guests complained they wouldn't be true friends'
+-  Three-ingredient gluten free Yorkshire puddings 'so good you won't know the difference'
+-  2 simple but sensational gin cocktails that are perfect for Christmas
+-  Goggia-Brignone sul podio nella discesa a St.Moritz. Shiffrin trionfo da record
+-  Abatir trata
+-  「柏油海洋」蔓延！美11城市取消最低停車位規定
+-  Así Luisa Ortega Díaz protegía a las bandas criminales, según Maduro (VIDEO)
+-  Football-Ligue 1 France/Montpellier : Der Zakarian s’emporte contre la Coupe d’Afrique des Nations
+-  Un cementerio que es una ruina: "La gente no se puede enterrar ahí"
+-  Bobby Brazier's gran banned from Strictly audience over bitter family feud but is desperate to watch grandson in the dance final
+-  Großer Andrang auf Dortmunds City: Parkhäuser sind schon am Mittag voll
+-  Brand in Italiaans ziekenhuis kost drie mensen het leven
+-  Anass Kobry is among the best doctors of dental surgery and Influnser
+-  이무진, 쌍커풀 수술 해명 "오해 풀고 싶다"('아는 형님')
+-  «يديعوت أحرونوت»: 5 آلاف جندي إسرائيلي جريح بينهم 2000 معاق
+-  Garantiza Claudia Sheinbaum el segundo piso de la 4T: Liz Arroyo
+-  Santa Run 2023 in Bennekom levert bijna 10.000 euro op voor goede doel
+-  Mouni Roy speaks about physical violence in relationship on `Temptation Island`
+-  Randeep Hooda: CAT made me realise my life long ambition to play a Sikh role
+-  المكان الأكثر تلوثًا في المنزل.. حيثما اعتقدت ربما
+-  Kancelarija za KiM: Razbijena stakla na ambulanti u Suvom Dolu kod Kosovske Mitrovice
+-  Bon plan Samsung : le Galaxy S23 est à un prix bas, foncez chez Amazon
+-  On vous raconte la vie courte et scandaleuse de Raymond Radiguet
+-  Okçuluk Salon Federasyon Kupası Antalya'da düzenlenecek
+-  Fastag slashes toll plaza wait by 93% to 47 seconds, govt tells World Bank | Here’s how
+-  Asgari ücret belli oldu mu? 2024 asgari ücret ne kadar kaç TL olacak?
+-  Агутин рассказал о срочной операции
