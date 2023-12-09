@@ -1,51 +1,51 @@
 # Latest News
--  Naukowcy stworzyli tanią i wydajną aparaturę do pozyskiwania wody z powietrza
--  Congés Payés en Arrêt Maladie : Une Transformation Majeure Attendue
--  SDS '55 laat het afweten tegen Barneveld en verliest
--  Nigerian Rapper, Reminisce, Recalls First Major Rejection in Music Journey
--  BC Nokia kompuroi taas kotonaan
--  ఎన్నికలకు సిద్ధంకండి : శిరీష
--  Борисов – премиер, а Пеевски - вицепремиер
--  రాజీయే రాజమార్గం
--  Oğuzda avtomobil aşdı: yaralılar var
--  „Vos 60 000 iš 1 000 000...“ Žlunga viskas. Smūgis Ukrainai
--  [ŽT] Jie to nesitikėjo. Rusai pasibaisėję, kas nutiko su Š. Korėjos amunicija (Foto)
--  [ŽT] „Mes išsiųsime jūsų dėdes, pusbrolius ir sūnus kovoti su Rusija.“ Audra JAV. Ką paskelbė Pentagonas
--  Pasaulyje raudona riba. „Esame ant slenksčio, kai mus kontroliuos tik vienas žmogus“
--  Skottlossning i Södertälje – minst en skadad
--  Kongresi i SPD gjermane, Rama: Scholz përtëriu Procesin e Berlinit, të përkushtuar në bashkëpunim
--  రైతులకు ఇబ్బంది లేకుండా ధాన్యం కొనుగోలు
--  Nwankwo Lauds Soludo’s Massive Roads Infrastructure, Operation Zero Potholes
--  تشكيلة الوداد أمام سيمبا
--  Emigracioni dhe ndryshimi i stilit të jetesës ulin konsumin e bukës
--  ఉల్లాసంగా.. ఉత్సాహంగా..
--  Smutná správa z Česka: Zomrel známy herec (†80)... Hral v Princeznej ze mlejna!
--  Šokujúci nález tesne vedľa školy: Vojaci objavili obrovský sklad zbraní, ktorý evidentne patril teroristom!
--  Ginuwine Addressed The Whole "Fo Shiz" Justin Timberlake Drama From Britney Spears's Book
--  Isco’s long and winding road towards redemption
--  విద్యుత్‌ శాఖ ఈఈపై చర్యలు తీసుకోవాలి
--  Tankki tyhjeni ja kahden maalin johto piiputti tappioksi – Tuto sysäsi RoKin kolmen pelin tappioputkeen
--  Wechsel-Missverständnis: Werner versteht Thorups Ärger
--  Más de 100 kilómetros en la penúltima etapa
--  Big B reportedly unfollowing Aishwarya Rai on Instagram raises eyebrows
--  VIDEO | El Liverpool “puede hacer algo especial”, dice Salah
--  Delhi Excise Policy case: AAP MP Sanjay Singh urges special court to release him on bail
--  Biden flubs spending boast, invents new number in latest gaffe
--  దైవ సాక్షిగా ..
--  “Caribe catarinense” e praia secreta: 5 praias paradisíacas em SC para visitar no verão
--  మహిథా సాధికారత కోసం ఉచిత ప్రయాణం
--  మహిళలు అన్ని రంగాల్లో రాణించాలి
--  మంత్రి రోజా ప్రత్యేక పూజలు
--  Waa Maxay Sababta Bruno Fernandes Looga Ganaaxay Ciyaarta Liverpool?
--  Nu måste Strömsbro få hjälp av Hudik
--  Nu måste Strömsbro få hjälp av Hudik
--  లోక్‌ అదాలత్‌లో 513 కేసుల పరిష్కారం
--  Alexandre Pires ignorou possível origem ilegal de R$ 1,3 milhão, afirma PF
--  DNEVNI HOROSKOP ZA NEDELJU, 10. DECEMBAR Device već pod uticajem Retrogradnog Merkura, Blizanci da se okrenu sebi, a šta je sa Lavovima?
--  Bayern-Debakel: Lothar Matthäus glaubte an Radio-Panne
--  В США рассказали о просьбе Зеленского к американским политикам
--  Derrota clara de la UD Melilla juvenil en tierras jerezanas
--  Robson insists Aberdeen 'got what they deserved' after Hearts victory
--  نعم لرفع نقاط الجبايات| كتب ابتسام سالم الناصر
--  الألم في 3 أماكن بالجسم علامة على الإصابة بـ سرطان البروستاتا
--  فلوس وسعادة.. 6 أبراج الأكثر حظا في شهر نوفمبر
+-  EU legt kunstmatige intelligentie aan banden: hoe gevaarlijker de toepassing, hoe strenger de regels
+-  Klimaattop in Dubai gaat gebukt onder tweeslachtigheid. 'Er moet nog veel gebeuren'
+-  ERDOGAN JASAN: Pravedan svet je moguć, ali ne sa Amerikom
+-  Handball-WM: Deutsche Frauen im Viertelfinale
+-  Handball-WM: Deutsche Frauen im Viertelfinale
+-  Ҳарбийлар Путинни кўндирди, Ғазода эркаклар ечинтирилди, Украина раҳбариятида бўлиниш – ҳафта дайжести.
+-  Ўзбекистоннинг Полшадаги янги элчиси иш бошлади.
+-  Нодирбек Абдусатторов Champions Chess Tour 2023 финал босқичида иштирок этади.
+-  بورنموث يهزم مانشستر يونايتد بثلاثية
+-  ريال مدريد يتعثر أمام بيتيس في الليغا
+-  Украинские власти заявили о повреждении склада при ударе в Никополе
+-  Wordle Today (#903): Wordle answer and hints for December 9
+-  Jakirović: Na poluvremenu smo imali žustar razgovor, a pratimo kako igraju Čavlina i Živković...
+-  ورشة عمل تناقش أهمية استخدام مستودعات البنوك الحيوية في حفظ العينات البيولوجية
+-  المستشار مسعد أبو سعدة رئيسًا لغرفة انتخابات الرئاسة في الإسكندرية والبحيرة ومطروح
+-  خبير استراتيجي عن استخدام أمريكا حق الفيتو: "بايدن خسر كتير"
+-  جوتيريش: القانون الدولي الإنساني مُلزِم في جميع الأوقات ولا يمكن تطبيقه انتقائيًا
+-  حدث في 8 ساعات| انطلاق الانتخابات الرئاسية خلال ساعات.. وقرار من الكهرباء بشأن خطة تخفيف الأحمال
+-  نتنياهو يشيد بالموقف الأمريكي في مجلس الأمن الدولي الرافض لوقف إطلاق النار
+-  أمطار رعدية.. الأرصاد تكشف حالة الطقس خلال فترة الانتخابات الرئاسية
+-  ضبط 6 ركاب يهربون مواد مخدرة من إنجلترا وفرنسا والإمارات بمطار القاهرة
+-  "نحس وحسد".. هؤلاء الأبراج عرضة للتحديات والأزمات مع بداية 2024
+-  الزمالك يفوز على ساجرادا الأنجولي ويضع قدما في ربع نهائي الكونفدرالية
+-  NYT Connections today: answers and hints for Saturday, December 9
+-  شملت 6 وزراء وقادة عسكريين.. عقوبات بريطانية أمريكية تستهدف نظام الأسد
+-  Salernitana, Inzaghi: "Raggiunta media da salvezza. Dia, ho una cosa da dire"
+-  Serie A, Roma-Fiorentina: quote e pronostico del match
+-  Pronostici Liga, statistiche e quote di Barcellona-Girona
+-  Guyana recuperó los cuerpos de los cinco militares muertos en accidente de helicóptero
+-  Smith nousi antisankarista sankariksi – JYP katkaisi kolmen peräkkäistappion sarjansa
+-  Gəncədə mənzildə meyit tapıldı
+-  'Jack', el can que ubicó indicios en una zona bajo investigación
+-  Who Is Benny Blanco? Get to Know More About Selena Gomez's New Boyfriend
+-  Marocchino: “Gatti è imprevedibile”
+-  Нетаньяху поддержал позицию США по резолюции Совбеза ООН по сектору Газа
+-  FTDES – SNJT : « Face aux atrocités à Gaza, la Déclaration universelle des droits de l’homme n’a plus de sens »
+-  «Зенит» одержал победу и сместил «Краснодар» с первого места в РПЛ
+-  Milatović: Zoran Kalezić ostaće upamćen kao jedan od najvećih crnogorskih umjetnika
+-  Iranische Nobelpreisträgerin Mohammadi geht für drei Tage in den Hungerstreik
+-  Iranische Nobelpreisträgerin Mohammadi geht für drei Tage in den Hungerstreik
+-  "C’est une première tranche qui prépare l’avenir": Isola 2000 lance sa saison avec un tout nouveau front de neige
+-  RANjEN SUDIJA SA UEFA LICENCOM: Rat u Izraelu uzima sve veći danak
+-  Nestašni princ Louis ponovno u središtu pažnje: Pogledajte što je radio na božićnom koncertu...
+-  Novogodišnja čarolija u pevačevom domu, sve sija: Evo kako je Darko Lazić okitio dvorište svoje kuće u Brestaču (FOTO)
+-  Un homme interpellé dans le cadre d'une opération anti-stups à la Frayère, ce vendredi
+-  Friedensnobelpreis für Narges Mohammadi: Eine Kämpferin für Freiheit, die kein Gefängnis aufhalten
+-  Friedensnobelpreis für Narges Mohammadi: Eine Kämpferin für Freiheit, die kein Gefängnis aufhalten
+-  Taylor Swift and Selena Gomez Ditch Their Men For Miniskirts on a Girls' Night Out
+-  Friedensnobelpreis für Narges Mohammadi: Eine Kämpferin für Freiheit, die kein Gefängnis aufhalten
+-  Otvorena džamija u Donjim Humcima
