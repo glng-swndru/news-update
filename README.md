@@ -1,51 +1,51 @@
 # Latest News
--  उच्च अदालतमा ‘सेवाग्राही टाईम कार्ड’ लागू
--  मौद्रिक नीतिको समीक्षाबाट अर्थतन्त्र सुधारमा सहयोग पुग्ने
--  ६९ जनाले लिए स्थायी बन्ध्याकरण सेवा
--  चार वर्षपछि सौराहामा हात्ती महोत्सवको तयारी
--  Largest "Christmas tree" in the country lights up for the 25th time
--  مسئول إسرائيلي: نحتاج من 3 لـ4 أسابيع لاستكمال هجومنا الحالي في خان يونس
--  Bacak pıhtısına dikkat, ölüme götürebilir
--  등 뒤에서 공격 당한 손흥민→뉴캐슬전 출전 불투명…포스테코글루 "부상 지켜보겠다"
--  '오드벤처' 컴백→MCND, 일본 팬미팅 개최 확정했다
--  "퍼디낸드는 항상 잘했는가? 스탐은? 히피아는? 반 다이크는 세계 최고 수비수다!"…세계적 명장은 그렇게 자기 선수를 보호한다
--  9 وجبات خفيفة تساعدك بالحصول على نوم هادئ
--  وباء الحصبة يغزو دولة أوروبية.. 2000 إصابة
--  احمرار تحت العين يُشير إلى العديد من الأمراض
--  '내친 김에 아스널까지 잡을까?' 토트넘·맨시티 꺾은 애스턴 빌라, 선두 아스널에 도전장
--  5 آلاف جندي إسرائيلي جرحوا منذ 7 أكتوبر
--  موسم استثنائي يقرب الأهلي من لقب أفضل ناد في أفريقيا
--  A single lotto ticket is now worth $8,250,000 after tonight's draw
--  Altena-verdediger Brian de Graaf is vertrouwen niet verloren: 'Winst op Sparta'30 zal zorgen verkleinen'
--  Украина начала переговоры c американцами о поставках других западных самолетов кроме F-16
--  UK abstains on UN vote demanding ceasefire in Gaza
--  Иран предупредил о риске "неконтролируемого взрыва" ситуации на Ближнем Востоке
--  Momirović: Cilj Vlade Srbije da omogući bolje poslovanje srpskim kompanijama
--  Двух браконьеров осудили за ловлю креветки на Донузлаве
--  Siracusa, la storia di Amel: amazzone non vedente che nei cavalli ha scoperto la felicità
--  Gaziantep'te 2011 model Ford Transit connect kapalı kasa van icradan satılıktır (çoklu satış)
--  경기TP, 스마트제조 컨설턴트 간담회 개최
--  멕시카나치킨, 펩시, 롯데칠성과 함께 창립 34주년 기념 경품 이벤트 진행
--  Delovi Novog Sada od jutros bez grejanja, normalizacija oko 11 sati
--  Erste Bilder nach Geständnis: Gil Ofarim hat nun kurze Haare
--  Spolupracovníci Alexeja Navaľného sú znepokojení jeho zdravím a prerušením kontaktu
--  Alkoholizirani muškarac narušavao javni red i mir pa vrijeđao i omalovažavao policijske službenike
--  В Калининградской области оцифруют труды Иммануила Канта
--  Zemřel herec Ryan O'Neal
--  مهمة أفريقية للزمالك.. جدول مباريات اليوم السبت
--  Revanth Reddy: ఆరోగ్యశ్రీ, మహాలక్ష్మి, చేయూత పథకాలను ప్రారంభించిన రేవంత్..
--  Squid Game, la vincintrice del reality attacca Netflix: “Voglio i miei 4,56 milioni”
--  В Краснодаре на две недели перенесли дату повышения проезда в маршрутках
--  МЧС поздравило "Россию сегодня" с 10-летием
--  Băng cướp giật bị bắt vì hình xăm của cô gái 20 tuổi
--  Шведские школы готовы полностью запретить использование мобильных телефонов
--  HAMAS OSUDIO AMERIČKI VETO: Nemoralan i nehuman stav
--  Умер звезда Голливуда Райан О'Нил
--  69 человек погибли на пожарах в Псковской области за 11 месяцев
--  Pemutihan Pajak Kendaraan Bermotor DKI Jakarta Masih Berlangsung Sampai Akhir Tahun
--  "אנשים מתייחסים לכלבים כאל בני משפחה - כעת זה עמד במבחן הקשה ביותר"
--  Янги масканлар ишга тушди
--  Боғистонликлар учун байрам совғаси
--  Қишлоқ хўжалиги фидойиларига эҳтиром кўрсатилди
--  Capres Cawapres Mana yang Pro dengan Gaya Hidup Less Sugar?
--  Barış Alper, Ferdi Kadıoğlu gibi olur mu?
+-  Hviezdny Kevin Costner sa z rozvodu spamätal expresne rýchlo: Randí so známou speváčkou!
+-  AKTUÁLNE Vianoce Slovákov sú OHROZENÉ! Množstvo e-shopov je na hranici hromadného KRACHU: Vieme, čo je za tým
+-  Štáty Európskej únie schválili pre Maďarsko pomoc vo výške takmer jednej miliardy eur
+-  Ahmed Hachani reçoit le vice-président de la Banque mondiale à la Kasbah
+-  İsrailin yarıçılpaq götürdüyü əsirlər kimlərdir?
+-  रारामा चार महिनामा चार हजार पर्यटक
+-  Anthrax may now spread after 684 cases, four deaths, in Zambia
+-  HS: Varusmiesten kestävyyskunnossa isot erot alueellisesti – hyväkuntoisia löytyy enemmän kaupungeista
+-  Chinas Wirtschaft rutscht tiefer in die Deflation
+-  40 घंटे में 7 दिन का सस्पेंस होगा खत्म, तीन राज्यों को मिलेगा नया मुख्यमंत्री!
+-  Soccerladuma | Man Utd Urged To Sack Ten Hag
+-  Automotive Air Intake Manifold Market worth $71.51 billion by 2030, growing at a CAGR of 6.62% - Exclusive Report by 360iResearch
+-  Кабмин выделит 285 млн рублей регионам на интеллектуальные дорожные системы
+-  مرصد الأزهر يعلق على الصهيونية الدينية ودور الحاخامات فى استئناف إبادة الفلسطينيين
+-  Umno veep: Isham Jalil sacked following actions deemed threatening to party
+-  انتخابات الرئاسة 2024.. عناوين المقار الانتخابية فى 6 أكتوبر والشيخ زايد
+-  Afrika'da HIV (AIDS) aşı denemeleri durduruldu
+-  KING ICT je u 2023. rastao 10 posto i postao jedan od ključnih NATO cyber security partnera
+-  النشرة المرورية.. انتظام حركة السيارات واختفاء التكدس من القاهرة والجيزة
+-  نقابة العاملين بالقطاع الخاص تطالب أعضائها بالمشاركة فى انتخابات الرئاسة
+-  Nova snimka sukoba Torcide i policije. Gađali ih kantama, u obračunu ozlijeđena 3 policajca
+-  50 yıl sonra sokaklar yenilendi esnafın yüzü güldü
+-  الصحة تعلن صدور اللائحة المالية لصندوق التعويض عن مخاطر المهن الطبية
+-  Ψηφιακή Κάρτα Εργασίας: Πού επικεντρώνονται οι έλεγχοι για την αδήλωτη εργασία
+-  وزارة الأوقاف تكشف عن جهودها فى تحسين أحوال الأئمة فى عهد الرئيس السيسى
+-  Interior Ministry detains a group of persons suspected of illegal possession of weapons and drugs in Toktogul district
+-  Olaf Scholz: Parteitagsrede im Livestream
+-  طلاب جامعة القاهرة شاركوا فى افتتاح فعاليات المعرض الدولى "إيديكس 2023"
+-  Strategie în alb și negru - Ediția din 9 decembrie 2023
+-  Joulun paras juustokakku – Vain 3 raaka-aineen täyte
+-  Bewegung nach Corona, Grippe oder Erkältung: Diese Regeln sollten Sie beachten
+-  अब गांव-गांव में ‘गारंटी’ की धूम, विकसित भारत योजना के लाभार्थियों से बोले PM मोदी
+-  Five Countries Keen To Expand Trade Ties With Punjab
+-  India's Startup Ecosystem Drops To 5th Place Globally In Funding Rankings: Report
+-  بعثة منتخب ناشئى الطائرة تتوجه إلى ليبيا للمشاركة فى بطولة أمم أفريقيا
+-  Solusi Persoalan Harga Cabai, Jateng Bakal Perluas Lahan Tanam
+-  Man dies after being found 'unresponsive' on coastal path
+-  أبطال الجمباز الفني يحصدون 4 ذهبيات وفضية فى بطولة الجمهورية تحت 9 سنوات
+-  한미일, '대북 新이니셔티브' 추진…北 군사협력·외화벌이 차단
+-  Film dengan Rating Tertinggi yang Sedang Tayang di Bioskop Desember Ini
+-  이스라엘 국방 "가자지구서 하마스 붕괴 시작 징후 보여"
+-  Ενθουσιασμός στην Τουρκία για τις επισκέψεις στα ελληνικά νησιά - Η διαδικασία
+-  [국민의힘 “송영길, 국민의 인내심 시험…386 운동권 정치인의 오만”
+-  [“임신 축하” 女리포터 뱃살 조롱한 男시청자…“암으로 자궁절제” 고백에 뭇매
+-  Jacek Sasin: Żadna komisja śledcza nie będzie niebezpieczna dla PiS-u
+-  Mừng sinh nhật, Shopee tung ưu đãi giảm đến 90% và loạt chương trình giải trí đặc sắc
+-  구글 AI '제미나이' 시연 논란...'이스라엘-하마스 전쟁' 답변 회피
+-  Otomobilden hayalet gösterge paneli ve konsol takımını çaldı: Yakalandı
+-  9 غيابات فى صفوف الزمالك قبل مواجهة ساجرادا الأنجولى الليلة.. تعرف عليها
+-  Seoul says Japan inaction means ‘comfort women’ court ruling upheld
