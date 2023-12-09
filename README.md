@@ -1,11 +1,51 @@
 # Latest News
--  Vučić sutra na ceremoniji obeležavanja početka rada interkonektora Srbija-Bugarska
--  Federer: Nadam se da će Đoković igrati koliko god želi
--  ZVV Ede kent weg om handhaving eredivisie te realiseren
--  금태섭 quot;김홍일 소년 가장 홍보? 구한말에나 있을 법한 시대착오적 홍보quot;
--  초등학교 '서울의 봄' 단관 취소hellip;극우 유튜버 '좌빨' 공격 후 quot;승리했다quot;
--  MEXICO: Al menos 14 muertos en un enfrentamiento entre civiles
--  Police investigate bikie-related brawl outside of Perth concert
--  Police investigate bikie-related brawl outside of Perth concert
--  Altın jenerasyon geliyor! A Milli Takım'ın gelecekteki yıldızlarının ortak özelliği herkesi şaşırttı
--  Ezt nem láttuk jönni: Ózd díszpolgára lett Majka
+-  Injury to captain mars Dewi Stars' excellent cup win against Llechryd
+-  Mandić se susreo sa Erdoganom u Turskoj
+-  Antigo Reitor Renato Araújo homenageado pela UA com o título de Professor Emérito
+-  Erden Timur yine büyük oynuyor. Galatasaray'dan Real Madrid'in yıldızına teklif
+-  Stal met hondenkennel in brand in Oijen, dieren in veiligheid gebracht
+-  В СРЗП сообщили о разработке проекта о федеральном статусе многодетной семьи
+-  Copying Karnataka model, Congress launches free travel for women, health insurance in Andhra
+-  LIVE | Leger Israël komt opnieuw met massale evacuatie-oproep, Gaza meldt 133 doden in één dag
+-  Man omgekomen bij flatbrand in Arnhem, ook elders in stad grote brand
+-  Нацрт-резолуција на СЗО: Израел мора да ги почитува хуманитарните обврски
+-  Almost 40% of People With Dementia Don't Seem to Know They Have It
+-  Scholz beschwört Geschlossenheit der SPD: Wird so bleiben
+-  Air Pollution Combat : ভারতে বায়ুদূষণ রোধে বিশেষ উদ্যোগ বিশ্বব্যাঙ্কের
+-  Connection to people for transforming NC: Leader Koirala
+-  Olaf Scholz im Haushaltsstreit der Ampel: Bürgergelderhöhung wird nicht zurückgenommen
+-  Prince Harry loses bid to have publisher’s libel defence thrown out
+-  Russians, Belarusians to participate at Paris Olympics as neutrals
+-  Asgari ücrette kritik gün! Gözler pazartesi bu toplantıda
+-  Cumhurbaşkanı Yardımcısı Yılmaz 'Canlar Buluşması'nda
+-  Глава Курчатовского института: ученые СГ воодушевлены решением Путина об участии в выборах
+-  ABD'nin BM Güvenlik Konseyi veto kararına Avrupa ülkelerinden tepki
+-  Asgari ücret pazarlığı pazartesi başlıyor
+-  US, Japan, South Korea step up efforts to counter North Korea cyber-threats
+-  Vrijeme je prehlade i gripe, liječnik objasnio kada je potrebno potražiti pomoć
+-  Scots charity stunned by discovery of rare coin worth £1500
+-  ইতিহাসের এই দিনে: পতাকা পেল ইউরোপীয় জোট
+-  ÖB:s svar om USA-avtalet: ”Ökar säkerhet”
+-  IMD to find out exact location of Cyclone Michaung’s landfall
+-  IL: Asiantuntija kehottaa luomaan varasuunnitelman Trumpin varalta
+-  Avslöjade i test – får inte tävla i Östersund
+-  다니엘 헤니♥루 쿠마가이, 달달한 신혼 근황 '포착'
+-  Dünya'nın en sıcak yılı 2024 olacak
+-  Yeni doğan bebeklere hastanede kimlik çıkarılabiliyor
+-  Osman Müftüoğlu yazdı: Sırtımızda yük var!
+-  La primera Navidad tras la Sareb
+-  Türkiye Tenis Ligi Finalleri, 18-24 Aralık'ta Başlıyor
+-  Canfod enaid Caerdydd
+-  La situation des étudiants tunisiens en Roumanie objet d’une rencontre entre Nabil Ammar et Luminița-Teodora Odobescu
+-  Rede da 'Operação Admiral' lucra 80 milhões em 6 anos a fugir ao IVA
+-  Премьер Индии заявил, что рост ВВП отражает реформы в стране за последние 10 лет
+-  Stradiņa slimnīcā pirmo reizi Latvijā un Baltijā veikta unikāla sirds operācija
+-  باجة: أمطار غزيرة..أعلها في عمدون
+-  “Plain Air” në Muzeun Kombëtar, piktorët e peisazhit në një ekspozitë të përbashkët
+-  DVA ČUDNA OTKRIĆA U CENTRU BEOGRADA U ISTOM DANU! Pronađen tajanstveni hodnik, a na drugom kraju ulice ŠOK
+-  'मिचौंग' चक्रवात से कहर से चुनावी जीत के जश्न तक, तस्वीरों में ऐसा दिखा इस हफ्ते का भारत
+-  Avlyser: – Julenissen kommer til å bli klissblaut
+-  (VIDEO) DARKO LAZIĆ NAPRAVIO RAJ U BRESTAČU Pevač pokazao kako je okitio dvorište, napravio iznenađenje sa sina i ćerku pred praznike, SVE SVETLUCA
+-  Dovolacie konanie v kauze Gašparoviča a Vičana má byť vo štvrtok
+-  Bacuľka z RUŽE vyvolala ošiaľ: Brutálna ZMENA... Dala sa na BLOND a vyzerá ako Kardashianka!
+-  Nový trend v manikúre: Čím sú populárne jelly nails, ktoré sú návratom do deväťdesiatok?
