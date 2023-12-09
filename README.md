@@ -1,51 +1,11 @@
 # Latest News
--  De jeugd heeft de toekomst bij de vv Heerde
--  El Barcelona cierra el año con una cómoda victoria en Croacia
--  عمرو أديب: أحمد حلمي يمر بظروف صعبة جدا
--  ABD'de İsrail'e öfke seli
--  Two Arab Israeli brothers shot dead in suspected double homicide in northern Israeli city of Haifa
--  VIDEO | Nathaniel Méndez-Laing anota su quinto gol con el Derby County y mantiene su paso firme en la League One
--  „Ich würde lieber zu dem zurückkehren, was ich vorher gemacht habe“ - Gen-Z-Arbeitnehmerin nimmt Führungsrolle an und sehnt sich sofort zurück
--  Front Commun Syndical : La Grève Générale Illimitée Plane sur le Milieu Scolaire
--  RewirEd Summit faz história na COP28 ao trazer a educação à vanguarda da ação climática para impactar bilhões de crianças e jovens ao redor do mundo
--  Nicaragua defiende justicia climática: "Los países capitalistas deben cumplir con sus compromisos"
--  오타니, 10년 7억달러에 LA 다저스행! 미국 프로스포츠 최대규모 계약 ‘초대박’
--  “김재환까지 살리면 킹정” 강정호 스쿨 2호 수강생 등장…타격 꼴찌에 10홈런, 2024년 절박하다
--  안성훈 "우승상금 5억, 부모님께 '자가' 집 선물"…이찬원도 '엄지 척' [MD리뷰]
--  Pfiffe im Volkspark! HSV-Heimserie reißt –dabei fand sich sogar der Gegner schlecht
--  Niko ne veruje šta je radio za volanom!? Reprezentativac Brazila poginuo u stravičnoj saobraćajki!
--  RJ Mall builder’s son Ehsan Dhoni arrested
--  संस्कृत व संस्कार ही भविष्य में करेंगे मार्गदर्शन : एलजी
--  Đoković o prijateljstvu sa Federerom i Nadalom
--  Barry Robson a happy man as Aberdeen see off Hearts with late winner
--  Sixteen drivers to be charged with impaired driving following police road checks
--  Bar, bench should work together for justice: CM Baqar
--  Messi y Linda Caicedo, candidatos al The Best
--  Burna Boy Opens Up on Industry Hatred: “Hated by Inferiors, No Superiors”
--  Sindh, Balochistan Governors discuss inter-provincial cooperation
--  الانتخابات الرئاسية.. ضياء رشوان يدعو المصريين للمشاركة: مارس حقك لصنع واختيار حاكمك
--  Women to get designated spaces for prayers in Sindh mosques
--  Πόλο: Αντίο με ήττα από το EURO Cup για τον Απόλλωνα Σμύρνης
--  Εύκολο πέρασμα της ΑΕΚ από την Πάφο
--  البايرن يمنح عمر مرموش رقما تاريخيا مع فرانكفورت
--  Real Madrid empató con Betis y dejó en el limbo su liderato
--  Jammu News: फेंसिंग के अंडर-17 आयु वर्ग में लड़कों और लड़कियों के ट्रायल करवाए
--  Media can play key role in promoting human rights by sensitising general public, says Info Minister
--  تتويج ناصر العطية بثلاثة ألقاب في حفل جوائز الاتحاد الدولي للسيارات 2023
--  Pablo Berger gana con 'Robot Dreams' el premio a la mejor animación europea
--  Jan Vapaavuori ei ymmärrä KOK:n Venäjä-päätöksen lietsomia boikottipuheita: "Urheiluliikkeeltä vaaditaan nyt itse asiassa paljon enemmän kuin muilta yhteiskunnallisilta instituutioilta"
--  なんと、ワクチンは「病気にかからない薬」じゃなかった…！じつは、「免疫を活性化」させて、感染しても「重症化させない」ことが本当のお役目
--  Fire engulfs shops in Gulshan Mimar
--  Jammu News: जिले के 90 केंद्रों में 35 हजार से अधिक युवा देंगे पंचायत सचिव की परीक्षा
--  Lar do grupo Orpea admite que não tem licença para funcionar
--  Kickoff | Ramovic: Early goal would've changed the game
--  اللواء الدويري : ينتحلون شخصيتي
--  Ήταν αγνώριστος…
--  الاحتلال يقصف منزلا بمحيط سوق المغازي وسط غزة
--  Venezuela y Guyana celebrarán una reunión de alto nivel para tratar su disputa territorial
--  Severe northwest gales and heavy rain warnings for lower North Island
--  خبير عسكري يتوقع مصير الحرب الإسرائيلية على غزة: “الاحتلال يتهور في قراراته” (فيديو)
--  ΤΙ ΛΕΝΕ ΟΙ ΦΙΛΟΙ ΤΗΣ ΑΕΛ
--  Avgifts­endring på bruktbiler: – Prisene vil gå ned
--  Jammu News: 18वीं कैडेट नेशनल फेंसिंग चैंपियनशिप और 31वीं जूनियर नेशनल चैंपियनशिप के लिए ट्रायल
--  Robber killed in encounter, woman shot by husband in separate incidents
+-  ABD'de terör devleti İsrail'e tepkiler giderek artıyor
+-  DSÖ: Gazze'deki El-Avde Hastanesi'nde iki sağlık personeli görevi başında öldürüldü
+-  Filistinli müzik grubundan Ankara konseri: Çok sayıda dinleyici katıldı
+-  Tres comisionados se postulan a la presidencia del Inai
+-  We’ll make Tinubu our hero if he releases Kanu – Igbo youths
+-  สถานการณ์ตลาดหุ้นลอนดอน: Footsie ปิดสูงสุดในรอบ 7 สัปดาห์ หุ้นพลังงานพุ่งขึ้นสนับสนุนตลาด
+-  „Bares für Rares“: Goldschatz aus Düsseldorf – Händler pulverisieren Experten-Schätzung
+-  Tiefsee-Forscher stoßen auf mysteriöse goldene Kuppel – „Können sie nicht identifizieren“
+-  Επιβεβαιώθηκε ο θάνατος Ισραηλινού ομήρου μετά από αποτυχημένη επιχείρηση απελευθέρωσης στη Γάζα
+-  Zawodnik Śląska Wrocław . „Jednym dryblingiem mija dwóch rywali”
