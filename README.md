@@ -1,51 +1,51 @@
 # Latest News
+-  استمرار اقتحامات الاحتلال للضفة الغربية
+-  انخفاض ملموس وأجواء باردة بأغلب المناطق
+-  «غراء فائق الفعالية» لتعبيد الطرق
+-  تشات جي بي تي سهل الخداع
+-  에이티즈, 정규 2집 英 오피셜 앨범차트 2위…4세대 그룹 최초
+-  전현무, 다니엘 결혼식서 뽐낸 의리 "신부 훌륭한 분, 행복하길"
+-  백경열 도장애인체육회 사무처장, 제13대 전국 시도장애인체육회 사무처장협의회장 선출
+-  Expertos instan a intensificar la vigilancia en áreas afectadas por minería ilegal
+-  대기실 간 목적은 ‘옷’…“전광훈과 교류 계획도 없다”
+-  [한미, 바이오 경제 연구에 1000만 달러 지원…반도체 공동연구 확대
+-  Mehmet Metiner ‘tarafını’ belli etti! İsim Verdi
+-  Felvételi 2024: ilyen a Szegedi Tudományegyetem pontszámítása
+-  Noël 2023: sur Amazon, comment éviter de passer commande chez un autre revendeur
+-  Weihnachtsmärkte 2023, die nach Weihnachten noch geöffnet haben
+-  Oto zarobki skoczków w tym sezonie. Znamy stawki
+-  Bournemouth star Antoine Semenyo on life under Andoni Iraola and facing Man Utd
+-  (FOTO) LUNA ĐOGANI OVAKO PRIPREMA TRPEZU ZA SLAVU "Spremamo se", ćerka joj pomaže, gosti će PRSTE DA POLIŽU
+-  „Das Warten auf den Eingriff war für mich die Hölle“
+-  Kitajski čudežni deček priporoča lenarjenje
+-  Hämeenlinnan torilla järjestetään sunnuntaina mielenosoitus Palestiinan ja rauhan puolesta
+-  Dak Prescott renace; Dallas busca la corona del Este de la NFC
+-  Havertz reencuentra la 'ruta del gol' tras su reconversión... en lateral izquierdo: "He trabajado duro para volver"
+-  Калфин: Няма нужда от увеличаване на възрастта за пенсиониране
+-  Gülse Birsel'e Sordular: Çeşme'nin Yarısı Size Mi Ait?
+-  Eskişehir'deki o misafirhane için kayıtlar devam ediyor
+-  രക്തം പമ്പുചെയ്യാൻ ഹൃദയം ഉപയോഗിക്കുന്ന മർദ്ദം അന്തരീക്ഷത്തിലാണ് പ്രയോഗിച്ചിരുന്നതെങ്കിൽ എത്ര മീറ്റർ ഉയരത്തിൽ രക്തം പമ്പു ചെയ്യും ?
+-  Cea mai frumoasă înotătoare a Ungariei, cu ochii pe David Popovici: ”Încă este foarte tânăr”
+-  Mexico raids and closes 31 pharmacies in Ensenada that were selling fentanyl-laced pills
+-  روبن نيفيس يكشف عن تأثير المال على قرار لعبه في السعودية
+-  Moradabad: मकान के ताले तोड़कर लाखों की चोरी, सीसीटीवी में कैद हो गए चोर, पुलिस कर रही जांच
+-  Realizan concierto de la Orquesta Sinfónica Infantil y Juvenil de Cuautlancingo en Parque Mágico
+-  देश की खबरें | महुआ बैंकर का करियर छोड़ राजनीति में आईं, संसद पहुंचीं और फिर निष्कासन
+-  Hướng tới Đại hội VIII Hội NDVN: Nông dân một xã An Giang khá giàu lên nhờ được tiếp sức
+-  Hema Malini plants a romantic kiss on husband Dharmendra's cheeks on his 88th birthday celebrations [View Pic]
+-  Ujjain: क्रिकेट बैट से प्राचार्य ने की बच्चों की पिटाई, वीडियो हुआ जमकर वायरल, अब शिक्षा विभाग करेगा कार्रवाई
+-  ISIS Conspiracy Case: NIA Raids 44 Locations In Karnataka, Maharashtra, 13 Held
+-  ICSI Set to Introduce International Sustainability Standards, Says President Manish Gupta
 -  Seçil Erzan telefonu kapattım sandı banka kaydetti! Dava dosyasına giren görüşme
 -  Bakan Yerlikaya: 'İskoçlar Çetesi' çökertildi
 -  Esequibo krizi tırmanıyor! Maduro: Petrol, gaz ve maden işletmeciliği için lisans verdim
--  DNEVNI HOROSKOP za 9. decembar: Blizanci “lutaju”, Djevice na ivici da uđu u raspravu, Rak u centru pažnje, a vi?
--  Bakan Yerlikaya paylaştı: İskoçlar Çetesi çökertildi! Elebaşı dahil 38 şüpheli yakalandı
--  Jelle (74) maakte als kind rookbommen en werd hoogleraar: ‘Stop met beeld van luie puber die niet luistert’
--  NASA’s Hubble Space Telescope is back online
--  Tauro y CAI en busca de la gloria en la LPF
--  Somalí procedente de Panamá era buscado por terrorismo
--  En 2023 decomisaron más de 30 mil kilos de droga en Panamá
--  ¡Increíble! Niña imputada por robo a trabajador
--  Muere niño de 10 años al cruzar en cable un río comarcal
--  ¡Identificados! Supuesta banda criminal detrás de robo a joyería
--  Tips para sorprender a tu pareja a distancia
--  Don Adán Arcia Marín y su mente prodigiosa
--  75 aniversario de los derechos humanos
--  El derecho de iniciativa y de referéndum
--  Fallo minero: un hito en la política
--  Panorama difícil en el cuadrilátero
--  Boricua va por el récord de montas en Serie del Caribe
--  Fidel Escobar en busca de otra final en Costa Rica
--  Christiansen quiere dar la sorpresa en la Copa América
--  Penonomé se engalana para recibir la final de la LPF
--  Resaca del Día de la madre
--  Nicolle Fergunson soltó el ballet por los deportes
--  La mató mientras dormía en su cuarto, el Día de la Madre
--  Infidencias y confidencias del 9 de diciembre de 2023
--  Габриел в Париж: България и Франция имат отлични отношения
--  5 Hero Fighter yang Efektif Counter Estes Mobile Legends, Heal-nya Nggak Masalah
--  Einzelhandel: Alnatura eröffnet neuen Bio-Supermarkt in Hamburg
--  САУ «Мста-С» ВС РФ поразила пункт временной дислокации ВСУ под Купянском
--  מזג האוויר: יום שבת חורפי, בתחילת השבוע מתחמם
--  KKM siasat dakwaan pesakit meninggal dunia tidak diberi rawatan tepat
--  تخدم مزارعي مطروح.. عيادات بيطرية متنقلة وتوزيع شتلات الزيتون مجانًا
--  Sektor agrikomoditi sumbang terbesar pendapatan negara
--  Son dakika! 'İskoçlar'a 'kafes' operasyonu: Bir çete daha çökertildi
--  Park Hang-seo Bongkar Alasan Vietnam Suka Naturalisasi Pemain Berposisi Kiper
--  Neuer Auftrag: Milliarden-Deal: Airbus sticht mit neuem Flieger Boeing aus
--  أعضاء «الوزارية العربية الإسلامية» يرفضون «تجزئة القضية الفلسطينية»
--  Черно море и Славия се изправят един срещу друг в интригуващ сблъсък на “Тича”
--  Левски ще надига глава срещу буксуващия Ботев (Враца)
--  Formula 1 Pelajari Penggunaan Mesin Hidrogen untuk Seri Balap Internasional
--  Market Pass: Έως πότε μπορείτε να κάνετε την αίτηση
--  "포스테코글루 오른팔 떠난다!"… '부상 병동+5G 무승+5위 추락+손흥민 이탈'에 이은 큰 타격, "토트넘 최대 위기 다가온다"
--  이무생(Lee Moo-Saeng) "너나 잘하세요"…이영애와 첫 촬영 때 자신에게 훈계 [MD동영상]
--  Against The Storm Thunders to Release Today
--  Prabowo-Gibran Campaign Team Responds to Abuse of Power
--  Ώρα αποφάσεων Μητσοτάκη για τη βία στα γήπεδα - Εισηγήσεις ακόμη και για διακοπή του πρωταθλήματος
--  Canelo: El rey soy yo y puedo hacer lo que se me pegue la gana
--  ตร.สุรินทร์ไล่ล่ากระบะเลี้ยวตัดหน้า จยย.แม่ลูกพุ่งชนสาหัสแล้วหลบหนี
+-  কিউইদের ১৩৭ রানের টার্গেট দিলো টাইগারা
+-  Fire breaks at soap powder godown in Chennai; goods worth Rs 100 crore damaged
+-  Васил Велев за бюджета: Заложен е силно оптимистичен ръст на БВП
+-  In Andhra Pradesh’s Chittoor, Variety Of Stone Carvings Available At Affordable Prices
+-  Kenali Gejala Pneumonia pada Anak
+-  Israel Hamas War: इजरायल के विदेश मंत्री का आरोप, 'हमास का पक्ष ले रहे हैं संयुक्त राष्ट्र प्रमुख'
+-  Israel strikes Gaza after failed United Nations ceasefire bid
+-  Gauri Lankesh: గౌరీ లంకేష్ హత్య కేసులో కీలక పరిణామం.. నిందితుడికి బెయిల్ మంజూరు చేసిన కర్ణాటక హైకోర్టు
+-  स्पेन में पांच देशों के टूर्नामेंट के लिये भारतीय टीम का ऐलान
+-  [날씨쏙 과학쏙] 수도권에서 규모 5.4 지진이 발생한다면?
