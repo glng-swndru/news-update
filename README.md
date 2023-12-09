@@ -1,11 +1,51 @@
 # Latest News
--  Teurer in Europa, billiger nach Südamerika – die Flugpreis-Prognose
--  Amarra Anaya lugar en el Senado como plurinominal
--  Bayern Múnich es goleado por el Eintracht Frankfurt
--  Es Barbie muy polifacética
--  VIDEO: Enfrentamiento entre campesinos y La Familia Michoacana
--  Investors and Traders Hold High Expectations for Cryptocurrency Amid Recent Rallies
--  CEDEVITA PRODUŽILA AGONIJU MORNARA: Barani i dalje imaju samo jedan trijumf u regionalnom takmičenju
--  Senzacionalna Aston Villa nakon Manchester Cityja pobijedila i Arsenal
--  ΒΙΝΤΕΟ: Η Άστον Βίλα χαστούκισε και την Άρσεναλ και έστειλε στην κορυφή τη Λίβερπουλ!
--  スキーモーグルW杯第3戦 女子 柳本2位 男子 堀島3位
+-  News24 | Here are the Daily Lotto numbers
+-  Erdogan denounces UN ‘Israel protection council’
+-  الصحة: الدفع بـ 1700 سيارة إسعاف بمحيط لجان الانتخابات الرئاسية
+-  مندوب الاحتلال بمجلس الأمن: الأمين العام للأمم المتحدة لا يدين الإرهاب ولا يستحق منصبه
+-  بيان عاجل من الخارجية بشأن المواطنين المصريين المتواجدين في غزة
+-  مكافأة لمدير مدرسة ومظلات.. محافظ الوادي الجديد يتفقد لجان انتخابات الرئاسة
+-  منها "برايل".. تسهيلات قدمتها الهيئة الوطنية للانتخابات لذوي الهمم
+-  3 أبراج يلاحقها الأزمات والمصاعب في عام 2024.. هل أنت منهم؟
+-  أستون فيلا يفوز.. وأرسنال يفقد صدارة الدوري الإنجليزي لصالح ليفربول
+-  చేపలు పట్టడానికెళ్లి.. విద్యుదాఘాతంతో యువకుడి దుర్మరణం
+-  Bolnice u Ukrajini suočene sa zarazom koja se smatra globalnom prijetnjom
+-  Pak disappointed over UNSC’s failure to call for ceasefire in Gaza
+-  Tuzlanski učenici osvojili 22 medalje na 15. međunarodnoj olimpijadi naučnih projekata BOSEPO
+-  انطلاق مؤتمر الاستثمار الصيني - السعودي الثلاثاء المقبل
+-  Vreme koje vam je potrebno da zaspite otkriva vaše zdravstveno stanje
+-  సర్పంచ్‌లంతా సంఘటితంగా పోరాటం సాగించాలి
+-  الخارجية الأردنية: استشهاد مواطنة أردنية وزوجها الغزي وأفراد عائلتها
+-  Turkey's Erdogan accuses West of 'barbarism' over Gaza
+-  Shiloh: What will happen if Abioye leaves Living Faith – Bishop Oyedepo
+-  Soccerladuma | Arsenal Denied Top Spot After Loss To Emery's Villa
+-  Путин отметил вклад главы Эрмитажа Пиотровского в сбережение духовного наследия
+-  12న వాహనాల వేలం
+-  Imran moves LHC against ECP
+-  Junior hockey: Rockets trekking through prairies, Silverbacks blank Vees
+-  There's a change buried in Baldur's Gate 3's latest patch that makes it easier than ever to recruit both of its mutually exclusive companions⁠—without breaking the game
+-  مدير عام مصلحة الأحوال المدنية والسجل المدني بتعز اسكندر المخلافي سيتم إصدار البطاقة الذكية بداية العام الجديد 2024م
+-  أرسنال يفرط في قمة الدوري الإنجليزي بالسقوط أمام أستون فيلا
+-  Detaje nga përplasja me armë mes hajdutëve dhe policisë, njëri prej tyre përplasi efektivin me makinë (VIDEO)
+-  Zonguldak'ta ikinci büyük heyelan yaşandı. İş makineleri göçük altında kaldı
+-  "İsrailə gedən gəmilərə mane olacağıq"
+-  'Beskorisni' organ koji liječnici često uklanjaju navodno je ključ u borbi za rak
+-  Peritos muito preocupados com a segurança da pick-up Tesla Cybertruck
+-  IDF: Πρέπει να αυξήσουμε την πίεση στη Γάζα, το δίκτυο της Χαμάς καταρρέει
+-  Vorum eitthvað daufar
+-  Simge Sağın'dan hastalık açıklaması. 'Sahneden inmek zorunda kaldım'
+-  ఎకరానికి రూ.30 వేల నష్టపరిహారం చెల్లించాలి : గొల్లపల్లి
+-  El COI alienta a que Rusia a siga atacando Ucrania
+-  La Cos a San Marzano, il Latte Dolce ospita la Nocerina
+-  ¡Sorpresa! Germán Cano reveló su fanatismo detrás del fútbol
+-  20 కిలోల గంజాయి స్వాధీనం
+-  Oroscopo Paolo Fox di oggi 10 dicembre 2023: le previsioni segno per segno
+-  'Mooi weer voetballer' Nehkomi Veldt maakt het verschil in slecht weer
+-  Voetballers schitteren in Netflix-serie: 'Die Koreanen waren wel heel erg fit'
+-  Waa Maxay Sababta Uu Bruno Fernandes Ku Seegi Doono Kulanka Liverpool.
+-  המבצע הסודי נחשף: כך חולצו 180 מיליון שקל במזומן מלב עזה
+-  גוגל מצהירה: התקלה בגוגל דרייב טופלה, האם הסאגה באמת מאחורינו?
+-  משבר ביחסים בין אמזון לפייפאל: זו הסיבה שמניית החברה בירידה
+-  החשוד בהצתת אוהל משפחות החטופים: בן 59 מאזור קריית גת
+-  סטטיק שבר את הרשת: מה איחל לחטופים ולחיילים?
+-  תיעוד מלב ג'באליה: המחבלים הכינו מארב - וחוסלו על ידי כוחותינו
