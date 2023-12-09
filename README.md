@@ -1,51 +1,51 @@
 # Latest News
--  В Венгрии раскритиковали новый украинский закон о нацменьшинствах
--  Carmen Jaquier Says ‘Thunder’ Took The Present Back To The Past – Contenders International
--  احذر المخبوزات في وجبة الإفطار.. أطعمة لا تبدأ بها يومك - كارثة صحية
--  قذيفة إسرائيلية تصيب برجًا إسبانيا للمراقبة تابع لليونيفيل في لبنان
--  "الصحفيين" تدعو لمواجهة مخطط إبادة وتهجير الشعب الفلسطيني
--  مرصد الأزهر: مشاهد تجريد النازحين الفلسطينيين من ملابسهم وصمة عار في جبين الإنسانية
--  الدوري السعودي.. تعادل الأهلي وفوز الوحدة
--  Grupo de 47 brasileiros e familiares consegue deixar a Faixa de Gaza
--  Forgotten ex-Premier League star who left three years ago without kicking a ball targeting transfer return in January
--  Alex Jones: Elon Musk lässt über Rückkehr von Verschwörungstheoretiker zu X abstimmen
--  Inclusión en el mundo corporativo: el lifestyle empresarial abraza la diversidad
--  Presidente do Eurogrupo confia em acordo este ano sobre regras equilibradas para défice e dívida
--  Soccerladuma | Riveiro Gives Special Praise To Bucs Defenders
--  Unha muller excarcerada en Boiro e un ferido en Cee tras unha colisión de seis coches
--  Essequibo : réunion « de haut niveau » en vue entre le Venezuela et le Guyana
--  Минздрав Палестины: число погибших в Газе превысило 17 тысяч человек
--  Netanyahu tells Biden Israel will act militarily against Yemen's Houthis if US wont: report
--  Giants rule out Evan Neal, list Dexter Lawrence as questionable
--  VA Democrat featured in streamed sex acts online says she’s the victim: ‘My entire life was rocked'
--  This is the year for Hannukah to shine brighter with our Jewish identity and pride
--  Shoehei Ohtani Signs 10-Year Deal with L.A. Dodgers for $700 Million, The Highest Deal in MLB History!
--  Pucnjava u Švedskoj: Ranjene tri osobe, napadač još na slobodi
--  Neestrup i studiet: 'Det er et kæmpe problem'
--  Nach Veto im UN-Weltsicherheitsrat: Zehntausende demonstrieren in London für Gaza-Waffenstillstand
--  Venezuela navrhuje Guyane stretnutie na vysokej úrovni venované sporu o Esequibu
--  Shohei Ohtani agrees to $700 million, 10-year contract with Los Angeles Dodgers
--  Betano ou Betfair: descubra qual o melhor site de apostas
--  POTRESNA SUDBINA TINEJDŽERKE RANJENE U MASAKRU KOD MLADENOVCA: Živi sa majkom sa 35.000 dinara, ostala bez bubrega222222
--  Чемпион мира Гаджимагомедов одержал третью победу на профессиональном ринге
--  Nekateri krajani Letuša in Rečice napovedujejo, da se bodo proti selitvi borili tudi po pravni poti
--  Amerikan basınından çarpıcı iddia: ABD, İsrail'e yıl sonuna kadar süre verdi
--  Bayern Münih darmadağın: 5 gollü mağlubiyet!
--  Petro, Gazze'de insani ateşkes istenilen karar tasarısını veto eden ABD'yi kınadı
--  إيران تحاكم دبلوماسياً سويدياً
--  Spektakl u derbiju: Lajpcig bolji od Dortmunda
--  „Denn sie wissen nicht, was passiert“: Jauch kommt an seine Grenzen – „Ich finde das nicht in Ordnung“
--  Quiénes eran las víctimas del choque fatal sobre la Ruta 151, en Cinco Saltos
--  İklim aktivistleri Venedik'teki 'Büyük Kanal'ı yeşile boyadı
--  Indulto a quem comete crimes contra a humanidade é afronta à democracia
--  Amber Alert issued for missing child in Surrey, B.C.
--  Presidente de Ucrania viajará a Argentina para asistir a asunción presidencial de Milei
--  Das Polster schrumpft: FCK im Abstiegskampf
--  قصواء الخلالي: الجميع يراهن على وعي الشعب المصري في هذه المرحلة
--  Anne-Sophie Pelletier, exclue de La France insoumise, contre-attaque : plainte en diffamation et dénonciation de pratiques antidémocratiques
--  خبراء: المجتمع الإسرائيلي لن يتحمل الخسائر وسيصرخ أولا
--  El Sima Granada encadena la tercera derrota consecutiva
--  Jorge García, Tamara Frías y Alba Vázquez se llevan el oro en el Andaluz
--  Γιατί όλος ο κόσμος έχει τα μάτια απόψε στο Λας Βέγκας;
--  Odbojkaši Mornara među četiri u Kupu Crne Gore
--  Lottoarvonnassa jakoon liuta pieniä voittoja – katso oikea rivi
+-  Shohei Ohtani agrees to record $700 million, 10-year contract with Dodgers
+-  South Africa and New Zealand lose but still advance to Cape Town Sevens quarters
+-  'Here We Go' 로마노 인증, "리그 우승 주역 GK 부상으로 잃은 바르사, 내년 1월 새 골키퍼 영입 계획 없다!"
+-  Elvis' 24 lead Dayton over Troy 82-70
+-  Towson wins 89-73 against UMBC
+-  Chelsea virðist hafa engar áhyggjur af FFP – Tilbúnir að gera hann að þeim dýrasta í sögu félagsins
+-  Rogers' 19 lead American over VMI 77-69
+-  Reid's 25 lead Youngstown State past Western Michigan 72-68
+-  EastEnders spoilers: Shocking scenes as Jack lashes out at Ricky and Amy
+-  OVO DO SADA NISTE ZNALI O MIRZI SELIMOVIĆU: Otkriveni nepoznati DETALJI iz njegovog života, mnogi će biti u ŠOKU
+-  Hidrogen Hijau Diklaim Akan Jadi Bahan Bakar di Masa Depan
+-  ‘Designer Shrooms’ Could Be Coming as Scientists Unlock Genetics of Magic Mushrooms
+-  ఆసీస్‌ కెప్టెన్‌గా అలీసా హీలీ
+-  Polki nie wyrzuciły Danii z MŚ
+-  Zonguldak'ta üst üste iki heyelan! Göçük altında kaldılar
+-  Sveriges handbollsdamer klara för kvartsfinal i VM
+-  12 مركز إيواء تحت الحصار
+-  ఫైనల్లో అశ్విని జోడీ
+-  International bodies reject moves to block Guatemala president-elect from taking office
+-  Misteriozni počinitelj mjesecima bušio autogume: Policija se šokirala kad ga je snimila kamerom
+-  NETANIJAHU ZAHVALIO AMERICI NA ULOŽENOM VETU U UN: Izrael će nastaviti da radi na eliminaciji Hamasa
+-  Újabb vereség, egy jó félidő kevés volt női kéziseinknek a vb-társházigazdák ellen
+-  Dely hat találattal, a HSA NEKA pedig vereséggel búcsúzott az évtől
+-  La Selección Mexicana enfrentará a RIVAL DE LUJO previo a la Copa América 2024
+-  Top foto dňa (9. december 2023): Noc krampusov, Žampa bez bodov aj módna prehliadka pre psov
+-  V. Guimarães-Sporting, 3-2 (destaques)
+-  Kötü gidişat sürüyor: Kopenhag'a bir şok daha!
+-  రెండో టెస్టు కివీ్‌సదే
+-  Sverige vände mot Ungern – klart för VM-kvart
+-  Grand Prix d'Orléans : victoire de Manon Apithy-Brunet, 5 médailles françaises
+-  [Football] Christopher Martins marque, mais pour les autres…
+-  Two shot in North Oakland residence early Saturday morning
+-  Dortmund, RB Leipzig'i geçemedi
+-  Netanyahu'ya karşı yeniden ayaklandılar
+-  Batı Trakyalı Türklerin yaşadığı ayrımcılığa değindi: Yunan okuluna verilen destek Türk okuluna verilmedi
+-  Nema predblagdanskog ludila, vozači autobusa ‘pričaju bajke’, a uslužnost i čekanje su nepoznanica
+-  “შენი ხმა ევროკავშირს” – ფოტორეპორტაჟი მარშიდან
+-  Sverige klart för kvartsfinal i VM – besegrade Ungern
+-  Ustanovljen Međunarodni dan krompira
+-  Tomás Handel e o triunfo: "Isto tem de ser normal no Vitória"
+-  JEDNOM NEDELJNO VOLIM DA POPIJEM PIVO DOK SAM U KADI: Ovih 10 neobičnih rituala imaju ljudi dok se TUŠIRAJU! Da li i vi to radite?
+-  "Det var många tankar som gick i huvudet"
+-  Orphanage abuse survivor says ‘sloppy record keeping’ left him with THREE different birthdays
+-  'Ecocide': How war and climate change are often linked
+-  Drámai végjátékban az Oroszlány volt a szerencsésebb
+-  هنري ووستر: لا نضع لإسرائيل توقيتاً صارماً لإنهاء الحرب
+-  Do you use a bucket in the shower to save water? This award-winning young inventor has found a better solution
+-  MSC Cruises Japan awarded Cruise of the Year Grand Prix 2023
+-  We embrace Chigyu, the most controversial beef bowl in Japan
+-  "'BRAT JE DONEO SNAJPER" Bogdan Bogdanović raspametio najboljeg igrača Atlante, Tre Jang oduševljen igrom Srbina protiv Filadelfije
