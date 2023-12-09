@@ -1,51 +1,51 @@
 # Latest News
--  손흥민 새 파트너, 유벤투스에서 데려온다…브라이튼과 쟁탈전 불가피
--  स्वर्ण पदक विजेता गुरुङको सम्मान
--  भुक्तानी रोकिँदा दुध बिक्री हुन छाड्यो
--  जुगल फेदीको गुम्बा, क्याङसिङ, अम्बा खर्कमा बल्यो बिजुली
--  성중립 화장실이 불법촬영 온상? 직접 써보니 '아닌데요'?
--  고려middot;거란전쟁이 '한민족'을 만들었다고?
--  극우파들의 득세, 역사는 역주행하는가?
--  유럽 100개 이상 기업이 나서서 '자연복원법' 통과를 요구한 이유
--  Yankees 'in the market for pitching' after landing Juan Soto
--  Ex-Yankee Cameron Maybin claims team's no facial-hair rule is 'wack', hinders them in free agency
--  What Yankees, Mets are up against in bid to land Japanese star Yoshinobu Yamamoto
--  Yankees 'in the market for pitching' after landing Juan Soto
--  What Yankees, Mets are up against in bid to land Japanese star Yoshinobu Yamamoto
--  내야 수비가 허약한 메이저리그 팀들, 김하성에 눈독
--  Michael King found out Yankees traded him for Juan Soto in 'bizarre' fashion
--  Yankees bringing back Billy McKinney, Anthony Misiewicz in depth additions
--  2 vợ chồng đại gia trên cùng chuyến bay nhưng trái ngược: Vợ chồng Cường Đô La giản dị, nhà Minh Nhựa miệt mài check-in
--  Michael King found out Yankees traded him for Juan Soto in 'bizarre' fashion
--  Yankees reliever Ron Marinaccio's wedding a wild, fist-pumping scene
--  Yankees bringing back Billy McKinney, Anthony Misiewicz in depth additions
--  What will the Yankees batting order look like with Juan Soto?
--  Yankees reliever Ron Marinaccio's wedding a wild, fist-pumping scene
--  Aaron Judge will hold down center field for Yankees: Brian Cashman
--  What will the Yankees batting order look like with Juan Soto?
--  Ex-Yankee Cameron Maybin claims team's no facial-hair rule is 'wack', hinders them in free agency
--  Aaron Judge will hold down center field for Yankees: Brian Cashman
--  '13시간 묵비권 행사' 송영길 “돈 봉투 수사는 정치적 기획수사”
--  Hà Nội: Thường xuyên rà soát, sẵn sàng ứng phó với mọi diễn biến thiên tai xảy ra
--  В Челябинской области при пожаре погибли двое детей
--  In Photos: India This Week
--  Bobby Deol opens up on Bollywood debut of his sons Aryamann and Dharam
--  US vetoes UN resolution calling for immediate ceasefire in Gaza
--  Glen or Glenda Streaming: Watch & Stream Online via Amazon Prime Video
--  Six shops gutted in Batmaloo blaze
--  El impactante casamiento y anuncio de Nicole Neumann y Manu Urcera
--  Triển khai mô hình điểm Hội Nông dân tham gia xử lý rác thải sinh hoạt nông thôn tại Ea Kar, Đắk Lắk
--  Scientists identify effective nutrition labels for India’s diverse population
--  Optical Illusion: ऊंट सवार को तो ढूंढ लेंगे, पर उसके साथी को खोजने में घूम जाएगा दिमाग
--  ديبالا يواصل لمعانه في سماء نجوم أوروبا
--  印度製造業重鎮暴雨釀災 鴻海、和碩已復工
--  Собянин поддержал решение Путина пойти на выборы в 2024 году
--  Spor yazarları Galatasaray - Yukatel Adana Demirspor maçını değerlendirdi
--  What your bank statement says about you: Aussie mortgage broker on tiny details that will stop you from buying first home
--  Mahua Moitra's Political Odyssey: From Banker to Parliamentarian and Explosive Exit
--  Union-Trainer Bjelica dosiert neue Impulse
--  Как да възстановим изтрити снимки в Android телефон
--  وزيرة الهجرة: مصر تمتلك مقومات استثمارية لا يمكن منافستها
--  محمود محيي الدين: سد فجوة تمويل صندوق المناخ يستلزم دور أكبر للقطاع الخاص
--  Israel Strikes Gaza After Failed UN Ceasefire Bid
--  Several tax levies being considered for March 2024 election in Warren County
+-  آخر تطورات العملية العسكرية الروسية في أوكرانيا /09.12.2023/
+-  لحظة بلحظة.. الحرب على غزة في يومها الـ64
+-  Bidenomics Forcing Third of Americans to Punch Overtime Clock to Fund Holidays, Survey Shows
+-  В Раде заявили, что Россия может совсем лишить Украину промышленности
+-  Везенков със страхотен мач за Сакраменто, направи личен рекорд
+-  İletişim Bilimleri Fakültesi UM Türkiye ekibini ağırladı
+-  សត្វក្រៀលដ៏កម្រ ២ក្បាល ចុះលេងនៅបឹងធម្មជាតិអន្លង់ព្រីងស្ថិតក្នុងស្រុកកំពង់ត្រាចដំបូងគេក្នុងឆ្នាំនេះ
+-  14 câu chuyện về các món ăn Giáng Sinh truyền thống
+-  “ยอดไอคิว” หืดจับเบียดชนะ “อิลยาส” “อวตาร” แรงต่อคว้าชัย 3 ไฟต์ติด
+-  Perjalanan 25 Tahun BUMA dalam Memperkuat Industri Pertambangan
+-  18-year-old dead after shooting near 23rd and Center; man arrested
+-  Neue Chefin des Startup-Verbands fordert „Kultur des Muts“
+-  В аэропортах Москвы задержали более 20 рейсов, ещё два отменили
+-  Kocaeli'nde fabrika yangını: Diğer binalara da sıçradı!
+-  Nigeria losing best brains to “Japa syndrome” — AfDB president
+-  Канчельскис отреагировал на новость о своем будущем после увольнения из «Тобола»
+-  Missing Reports: China’s Elusive Footprint in Global Robotic Showdowns
+-  Tesla Cybertruck’s Stiff Structure, Sharp Design Raise Safety Concerns -Experts
+-  Currency Rate In Pakistan - Dollar, Euro, Pound, Riyal Rates On 9 December 2023
+-  Eskişehir’in Sosyo Kültürel Yapısı” konuşuldu
+-  เริ่มแล้ว! ประชุมใหญ่วิสามัญ เลือกหัวหน้าพรรคประชาธิปัตย์ คนที่ 9
+-  Sukses Tahan Imbang PSM di GBH, Mario Gomez Protes Keras Pinalti untuk Tuan Rumah
+-  Wow, Really?? Thankfully, NJ Drivers Are Least Likely to do This Dumb Thing
+-  Jacobson snipes twice in Wheaties shootout win
+-  두산 박유연, 음주운전 적발 사실 숨겼다가 들통…“다음 주 징계위 개최”
+-  [MD포토] 사랑팀 '우리가 선제골'
+-  [MD포토] 슛팅하는 열매팀 김홍현 '통합축구 올스타전' 득점왕 노린다!
+-  [MD포토] 2023 스페셜올림픽코리아 K리그 통합축구 올스타전 화이팅!
+-  레알에서는 월클→맨유 이적 후 폭망…바란-카세미루, 살생부 명단 올랐다
+-  [MD포토] 볼 뺏기는 임상혁 '열매팀 쉽지 않네'
+-  '마이 데몬' 김유정X송강, 입덕 부정기 끝? 계약 결혼 돌입…'눈호강 비주얼' 웨딩 스틸 공개
+-  [MD포토] 사랑팀 임상혁 '스페셜올림픽코리아 선수들과 즐거운 시간'
+-  [MD포토] 돌파하는 임상혁 '진지하게'
+-  [MD포토] 임상혁 '사랑팀의 골잡이'
+-  안성훈 "우승상금 5억, 부모님 집 지어…차도 바꿔드렸다"→이찬원 "효자가수" 칭찬 [불후의명곡]
+-  [MD포토] 스페셜올림픽코리아 홍보대사 이정현 '밝은 미소로'
+-  [MD포토] 홍보대사 이정현 '빛나는 미소'
+-  [MD포토] 이정현 '스페셜올림픽 코리아 홍보대사 임명'
+-  [MD포토] 이정현 '스페셜올림픽코리아 홍보대사로 빛나는 미소'
+-  [MD포토] 이정현 '선수 여러분 화이팅 하세요'
+-  [MD포토] 이정현 '선수 여러분 화이팅 하세요!'
+-  СК опроверг данные о смерти восьмиклассника во Владивостоке из-за кимчи
+-  Prediksi Manchester United vs Bournemouth di Liga Inggris Malam Ini: Jadwal, H2H, Kondisi Tim, Perkiraan Formasi
+-  [민주, 음주운전·폭력 전과 강도형 후보 지명에 “대놓고 국민 무시한 것”
+-  ["한국인은 모두 천재입니까?"…17살에 韓 소년, 변호사 합격에 美 '발칵'
+-  Jobs For The Boys As Mnangagwa Moves Mangudya, Replaces Him With Business Ally
+-  Team Cariñito Tu Terror: Mauricio Mesones reveló cómo nació su histórico club de fans de El Gran Chef Famosos
+-  Het Woord van vandaag: Raad jij het woord van de dag?
+-  Extreme hitte in Australië: ruim 40 graden in Sydney, 15 graden meer dan normaal
+-  8 очков Марченко, Чинахова и Воронкова позволили «Коламбусу» победить «Сент-Луис»
