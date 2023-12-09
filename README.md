@@ -1,11 +1,11 @@
 # Latest News
--  UNICEF: Gazze Şeridi çocuklar için dünyanın en tehlikeli yeri haline geldi
--  Bakan Ersoy: Turizmde bu yılı rekorlarla kapatıyoruz
--  Trabzonspor'un Gaziantep FK kadrosu belli oldu
--  Trabzonspor'dan Mete Kalkavan tepkisi: Kurduğunuz kirli düzeni yerle bir edeceğiz!
--  Pooštreni uvjeti: Banke mogu tražiti i dodatno pokriće za stambeni kredit. Evo u čemu je stvar
--  पहली नजर में ही मान लिया था पत्नी, बहन के ससुराल की उस लड़की पर ऐसे फिदा हुए थे पंकज त्रिपाठी
--  HfK-Vorsitzende Majorczyk - Krisenmodus? Bitte helfen Sie dennoch!
--  EK snažan partner Crnoj Gori u procesu pristupanja Uniji
--  Tv-dokumentar tegner rosenrødt billede af Christiania: Det er som »Korsbæk på Christianshavn«
--  Hundreds of Georgians march in support of country’s candidacy for European Union membership
+-  Implementarán autopsias 'sociopsicológicas'
+-  Enseñan a maestros a incluir a estudiantes con discapacidad
+-  Zonguldak'ta heyalan. Hastane yolu çöktü. Tanı merkezi kapatıldı
+-  देश की खबरें | भाजपा किसानों की समस्याओं को 11 दिसंबर को पश्चिम बंगाल में प्रदर्शन करेगी
+-  देश की खबरें | 10 दिसंबर : ‘अंतरराष्ट्रीय मानवाधिकार दिवस’ के तौर पर मनाया जाने वाला दिन
+-  Bećirović se danas sastaje sa Scholzom
+-  Congress Trolls Amit Shah: अमित शाह के शतरंज खेलने पर कांग्रेस ने किया ट्रोल, व्हाइट को व्हाइट के खिलाफ खड़ा कर रहे गृह मंत्री
+-  창원시 나누미 가족봉사단, 8개월간 자원봉사 활동 수료식
+-  완주군 과학산단 입주 ㈜가온셀, 사우디 공장 착공 최종 계약 체결
+-  King's cousin Sarah Chatto and her heartthrob son Arthur join royal family at Kate Middleton's carol concert
