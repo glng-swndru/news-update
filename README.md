@@ -1,51 +1,11 @@
 # Latest News
--  ABD'den BM'de skandal karar: Gazze ateşkesini veto ettiler
--  İçişleri Bakanı Ali Yerlikaya duyurdu: İskoçlar Çetesi çökertildi
--  Asgari ücret için 2'li veri o rakama işaret ediyor! Başkan Erdoğan'dan doğrudan talimat
--  Siyonist İsrail kana doymadı
--  Ryan Gosling opens up on sequel to `Barbie`
--  OpenAI Hits Mute Button, Offers No Details On Altman’s Ouster
--  When Policy Is Given Utmost Priority, One Can See Its Outcomes: PM Modi At InFinity Forum
--  BW Businessworld Supply Chain Competitiveness Summit & Awards 2023: Top Achievers
--  Годишната инфлација во Германија 3,2 отсто во ноември
--  EU legt gezichtsherkenning aan banden en sluit akkoord over regels voor AI, als eerste ter wereld
--  Automotive Aerodynamics Market worth $40.22 billion by 2030, growing at a CAGR of 5.93% - Exclusive Report by 360iResearch
--  Europa je izgubila AI utrku, ali još stigne dobiti onu za kvantno računalstvo
--  Customer Relationship Management Market to Reach $96.39 Billion by 2027, Fueled by Enhanced Customer Engagement Strategies
--  HRUBIESZÓW: Międzynarodowe spotkanie mikołajkowe z Rolling Kids Projekt. Prezenty od szwajcarskich wolontariuszy (zdjęcia)
--  22 ஆண்டுக்கு பின் வெளியான ‘ஆளவந்தான்’ - வெடி வெடித்துக் கொண்டாடிய கமல் ரசிகர்கள்
--  Alain Juppé et le 14 janvier 2011
--  Пропадна спасувачката операција за ослободување на израелските заложници
--  Punjab News: ਪ੍ਰਤਾਪ ਬਾਜਵਾ ਨੇ ਪੀਐਮ ਮੋਦੀ 'ਤੇ ਪੰਜਾਬ ਦੇ ਹੱਕ ਮਾਰਨ ਦਾ ਲਾਇਆ ਇਲਜ਼ਾਮ, ਅਟਾਰੀ ਵਾਹਗਾ ਬਾਰਡਰ ਖੋਲ੍ਹਣ ਦੀ ਕੀਤੀ ਮੰਗ
--  KPK Duga Eko Darmanto Beli Mobil Mewah dari Uang Hasil Gratifikasi
--  Filling and Closing System Market: Regaining Its Glory| AMS Filling Systems, Bickel & Wolf, COLANAR
--  درونات روسية جديدة تظهر في منطقة العملية العسكرية الخاصة
--  جرحى في قصف إسرائيلي على منزل في دير البلح وسط غزة
--  كوريا الشمالية تصف المساعدة العسكرية لأوكرانيا بأنها جريمة حرب
--  الوزارية المشتركة تعقد جلسة مباحثات رسمية مع وزير الخارجية الأميركي
--  بالفيديو.. هبوط اضطراري لطائرة روسية بعد حريق مخيف
--  5 عادات سيئة تسبب حب الشباب
--  الأسير الأردني عمار مرضي الحويطات يفقد وعيه بعد اعتداء قوات سجون الاحتلال عليه
--  الجيش الإسرائيلي يعلن قصف مقار قيادية لحزب الله في لبنان
--  الاحتلال يصيب شابا ويعتقله وشقيقه في دورا جنوب الخليل
--  البرلمان العربي يشارك بمتابعة الانتخابات الرئاسية المصرية
--  انكماش التضخم في الصين بأسرع وتيرة منذ 3 سنوات
--  قوات الاحتلال تحاصر يعبد وتقتحم قرى وبلدات جنوب جنين
--  "ناشيونال إنتريست": ليس أمام اليابان خيار آخر سوى أن تصبح قوة نووية
--  فرنسا.. لوبان تمثل أمام المحكمة بتهمة سوء استخدام المال العام
--  وزارة الصحة بغزة: 71 شهيدا وصلوا مستشفى شهداء الأقصى
--  Pozimi v gore? Predvsem po pameti! Ne glede na misel na atraktivne fotografije.
--  Introduction to Rainbow Depot and the Non-Binary Flag
--  Emotion Detection and Recognition Market Surges as AI Values Emotional Intelligence - 2031
--  Hajduk na Dinamo ide jako oslabljen: Protiv Lokomotive im se ozlijedio ključni igrač, a ostali su i bez još jednog važnog aduta
--  Aston Villa - Arsenal maçı ne zaman, saat kaçta, hangi kanalda?
--  Antalya'da Yaya Geçidinde Facia!
--  Automotive Additives Market worth $24.61 billion by 2030, growing at a CAGR of 6.52% - Exclusive Report by 360iResearch
--  WPL Auction 2024: ਮਹਿਲਾ ਪ੍ਰੀਮੀਅਰ ਲੀਗ ਲਈ ਸਜਿਆ ਬਾਜ਼ਾਰ, 165 'ਚੋਂ 30 ਖਿਡਾਰੀਆਂ ਦੀ ਚਮਕੇਗੀ ਕਿਸਮਤ
--  ABD Ticaret Bakanı Raimondo Bakan Bolat ile görüştü
--  Rıdvan Dilmen'den Galatasaraylı iki isme büyük övgü: Hayran kaldım
--  Власти ДНР поздравили страну с Днем героев Отечества
--  Deluje bizarno, ali ima logično objašnjenje koje je efikasno: Neobičan trik za kuvana jaja!
--  В поселке Искателей перекрывают несколько улиц
--  法國推強制穿校服大規模實驗 盼改善校園問題
--  30-talshus i Ervalla får nya ägare – prislappen: 3 000 000 kronor
+-  Ranveer Singh on board to play Ranbir Kapoor`s father in Brahmastra 2?
+-  Za novu godinu čak 44 grada i općine bez vatrometa. Prvi koji su rekli odlučno NE? Mali Lošinj
+-  Green Onion: सर्दियों में हरा प्याज खाने से आपकी हड्डियां हो जाएंगी लोहे जैसी मजबूत, जानें इसके अन्य फायदों के बारे में
+-  جوليا بطرس تستعيد أغنية "يما مويل الهوى" بصوتها
+-  بالصورة- ابن زينة وأحمد عز يخضع لعملية جراحية
+-  قبلة حمو بيكا لزوجته تثير الجدل.. وطريقة استعراضها لمجوهراتها تعرضها للهجوم
+-  يسرا تتألق بفستان من تصميم إيلي صعب وهذا سعره
+-  هل للعزلة فوائد على الصحة؟!
+-  الاحتلال يقصف شرق مدينة رفح
+-  عائلة عربية على رأس قائمة أغنى عائلات العالم
