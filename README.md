@@ -1,11 +1,11 @@
 # Latest News
--  البطولة الإحترافية 1: شباب السوالم يتفوق على ضيفه اتحاد تواركة 1-0
--  Premier League: FC Liverpool springt mit Sieg gegen Crystal Palace an die Tabellenspitze
--  Ukrajinski parlament pozvao EU da otvore pristupne pregovore
--  Gazze'de can kaybı 17 bin 700'e yükseldi
--  Premier League: Η Άστον Βίλα «γκρέμισε» την Άρσεναλ από την κορυφή και θυμίζει... Λέστερ!
--  Šeško preživel pravo dramo in se veselil na derbiju, katastrofa Bayerna
--  Zvanično otvorena ski sezona na Bjelašnici
--  ఆయన తీరే అంత!
--  Below Deck Med’s Lily Davison supports fan calling her Season 8 co-stars “b*tches”
--  రైతుల పంట రుణాలు తక్షణం రద్దు చేయాలి
+-  Teurer in Europa, billiger nach Südamerika – die Flugpreis-Prognose
+-  Amarra Anaya lugar en el Senado como plurinominal
+-  Bayern Múnich es goleado por el Eintracht Frankfurt
+-  Es Barbie muy polifacética
+-  VIDEO: Enfrentamiento entre campesinos y La Familia Michoacana
+-  Investors and Traders Hold High Expectations for Cryptocurrency Amid Recent Rallies
+-  CEDEVITA PRODUŽILA AGONIJU MORNARA: Barani i dalje imaju samo jedan trijumf u regionalnom takmičenju
+-  Senzacionalna Aston Villa nakon Manchester Cityja pobijedila i Arsenal
+-  ΒΙΝΤΕΟ: Η Άστον Βίλα χαστούκισε και την Άρσεναλ και έστειλε στην κορυφή τη Λίβερπουλ!
+-  スキーモーグルW杯第3戦 女子 柳本2位 男子 堀島3位
