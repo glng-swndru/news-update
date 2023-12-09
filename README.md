@@ -1,51 +1,11 @@
 # Latest News
--  Cena olivového oleja prudko stúpa pre sucho a slabú úrodu v Španielsku
--  الثلاثاء.. بدء المؤتمر العلمي الرابع لتكنولوجيا الذكاء الاصطناعي
--  [ŽT] „Tai nebus įprasta bausmė...“ Girkinas pagaliau suprato, kas jo laukia (Video)
--  Nord-Kivu : reprise des combats entre M23 et groupes armés locaux à Mufunyi Shanga
--  Серебряный призер Олимпиады в прыжках с шестом Сидорова завершила карьеру
--  🎥 | Michiel Kramer niet herkent door Engelse TikTokker: ‘Voor wie speel je?’
--  Fortnite Is Reviving Rock Band — With a Little Help From the Weeknd
--  مصرع طفل وإصابة والده في حادث بقنا
--  مطور عقاري: تثبيت سعر الدولار معيار أساسي في تصدير العقارات
--  Moet er een grens aan rijkdom worden gesteld? Dit draagt 'de geur van de communistische heilstaat'
--  Erdogan veroordeelt veto VS tegen wapenstilstand Gaza
--  CGO: Cijena korupcije se plaća na svakom koraku
--  Jens Adams tevreden met tweede plaats achter Wout van Aert: “In het begin had ik nog iets over”
--  লিভারপুলের নাটকীয় জয়ে সালাহর ‘ডাবল সেঞ্চুরি’
--  Beer shortage in Karnataka? Bira, Carlsberg, others to suffer as govt halts third shift operations
--  Что почем на декабрьской Комаровке?
--  Iran tvrdi da su beskorisni pokušaji da se obnovi nuklearni sporazum
--  بالصور... الجيش الإسرائيلي يعثر على أنفاق في شرق غزة
--  Demi Leluhur, Demi Nenek Moyang, Bolehkah Bersumpah Seperti Demikian?
--  Goðsögnin gefur sterklega í skyn að skórnir séu að fara á hilluna – ,,Gæti verið minn síðasti leikur“
--  الخارجية الفلسطينية تطالب بتدخل دولي عاجل لوقف جريمة التطهير العرقي في القدس
--  Отступил. В США заметили неожиданные перемены в поведении Зеленского
--  حزب الله يستهدف مقر قيادة بثكنة برانيت الإسرائيلية
--  265 ألف طلب إسرائيلي لحمل سلاح بالضفة خلال شهرين
--  Second man charged with murder of 23-year-old nursing assistant Odhran Kelly
--  Reactivación turística en Acapulco: Abren show de clavados en La Quebrada
--  Semifinales Liga MX vuelta ¿Dónde ver y a qué hora?
--  Tennis : Nadal de retour, Federer sort du silence
--  BREAKING NEWS: The Supercomputer that predicted Argentina to win the World Cup in 2022 has finally predicted where Chelsea will finish this Season.
--  [오늘의 운세] 12월 10일 오늘의 띠별 운세
--  김범석 펜스 직격 2루타+타이페이돔 개장 1호포 폭발 'LG가 기대할 만 하네'
--  6살 때 ‘세계에서 가장 예쁜 축구 스타 딸’→15년후 세계적인 톱 모델 됐다→아빠는 EPL서 뛴 블론도
--  Großflächiger Stromausfall in Mainz
--  Еще 100 россиян покинули Газу
--  Петър Костадинов: Ние не сме фаворити за първото място - Труд
--  Tarabov zákon o envirozáťažiach problém podľa Stohlovej nevyrieši, podáva pozmeňujúci návrh
--  Arema FC Menang Atas Persis Solo
--  Las Palmas sale vivo del asedio albiazul
--  Cochin Shipyard pushes for indigenous fabrication partners
--  Chinnajeeyar Swamy: కేసీఆర్‌ని పరామర్శించిన చిన్నజీయర్ స్వామి
--  उस रात एक सर्जरी हुई और फिर… लखनऊ का वो अस्पताल जिसे लोग आज भी ‘भूतिया’ बोलते हैं!
--  هذه تسعيرة دولار السوق الموازية عصراً
--  क्या दानिश अली को राहुल गांधी के गले लगना भारी पड़ गया? जानें कांग्रेस से इतना चिढ़ी क्यों हैं मायावती
--  Gowls ta’ Apap u Bruno jagħtu rebħa meritata lil Hibernians fuq Valletta
--  Tunisie: La création d’un fonds national pour la réforme éducative fait débat à l’ARP
--  Il Lions club Siracusa Aretusa e il Siracusa Calcio 1924 alla pediatria dell’Umberto I
--  Bećirović sa Scholzom: Dodik je izgovorio laž, Njemačka je uz BIH
--  महुआ मोइत्रा का मामला राहुल गांधी से कैसे अलग? सांसदी जाने के बाद अब क्‍या हैं ऑप्‍शन
--  महुआ मोइत्रा का मामला राहुल गांधी से कैसे अलग? सांसदी जाने के बाद अब क्‍या हैं ऑप्‍शन
--  बुलेटप्रूफ जैकेट, हाई सिक्योरिटी रूम होने के बाद सुखदेव गोगामेड़ी क्यों कर गए ऐसी लापरवाही? दंग कर देगा फैक्टर
+-  Perfilan a Mariana Rodríguez para Alcaldía de Monterrey
+-  Ha entregado México sólo 21% de agua a EU
+-  Comienza operativo policial en el Santuario de Guadalupe
+-  Localizan persona sin vida en calles de Cuauhtémoc
+-  Golpean a periodista de NCG; culpan a delegado regional de Bienestar
+-  Aumentan ataques en Gaza tras veto de EU de cese al fuego
+-  Beşiktaş - Fenerbahçe maçının ilk 11'leri belli oldu
+-  Samsunspor'dan Kasımpaşa'ya 4 gol!
+-  الشبلي: دعوة باتيلي للأطراف الخمسة الرئيسية في ليبيا للاجتماع لن تؤدي إلى نتيجة
+-  Product Analytics Market Reach USD 76.7 Billion by 2031 | Top Players such as - Mixpanel, Medallia, Amplitude & Pendo.io
