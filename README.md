@@ -1,51 +1,51 @@
 # Latest News
--  استمرار اقتحامات الاحتلال للضفة الغربية
--  انخفاض ملموس وأجواء باردة بأغلب المناطق
--  «غراء فائق الفعالية» لتعبيد الطرق
--  تشات جي بي تي سهل الخداع
--  에이티즈, 정규 2집 英 오피셜 앨범차트 2위…4세대 그룹 최초
--  전현무, 다니엘 결혼식서 뽐낸 의리 "신부 훌륭한 분, 행복하길"
--  백경열 도장애인체육회 사무처장, 제13대 전국 시도장애인체육회 사무처장협의회장 선출
--  Expertos instan a intensificar la vigilancia en áreas afectadas por minería ilegal
--  대기실 간 목적은 ‘옷’…“전광훈과 교류 계획도 없다”
--  [한미, 바이오 경제 연구에 1000만 달러 지원…반도체 공동연구 확대
--  Mehmet Metiner ‘tarafını’ belli etti! İsim Verdi
--  Felvételi 2024: ilyen a Szegedi Tudományegyetem pontszámítása
--  Noël 2023: sur Amazon, comment éviter de passer commande chez un autre revendeur
--  Weihnachtsmärkte 2023, die nach Weihnachten noch geöffnet haben
--  Oto zarobki skoczków w tym sezonie. Znamy stawki
--  Bournemouth star Antoine Semenyo on life under Andoni Iraola and facing Man Utd
--  (FOTO) LUNA ĐOGANI OVAKO PRIPREMA TRPEZU ZA SLAVU "Spremamo se", ćerka joj pomaže, gosti će PRSTE DA POLIŽU
--  „Das Warten auf den Eingriff war für mich die Hölle“
--  Kitajski čudežni deček priporoča lenarjenje
--  Hämeenlinnan torilla järjestetään sunnuntaina mielenosoitus Palestiinan ja rauhan puolesta
--  Dak Prescott renace; Dallas busca la corona del Este de la NFC
--  Havertz reencuentra la 'ruta del gol' tras su reconversión... en lateral izquierdo: "He trabajado duro para volver"
--  Калфин: Няма нужда от увеличаване на възрастта за пенсиониране
--  Gülse Birsel'e Sordular: Çeşme'nin Yarısı Size Mi Ait?
--  Eskişehir'deki o misafirhane için kayıtlar devam ediyor
--  രക്തം പമ്പുചെയ്യാൻ ഹൃദയം ഉപയോഗിക്കുന്ന മർദ്ദം അന്തരീക്ഷത്തിലാണ് പ്രയോഗിച്ചിരുന്നതെങ്കിൽ എത്ര മീറ്റർ ഉയരത്തിൽ രക്തം പമ്പു ചെയ്യും ?
--  Cea mai frumoasă înotătoare a Ungariei, cu ochii pe David Popovici: ”Încă este foarte tânăr”
--  Mexico raids and closes 31 pharmacies in Ensenada that were selling fentanyl-laced pills
--  روبن نيفيس يكشف عن تأثير المال على قرار لعبه في السعودية
--  Moradabad: मकान के ताले तोड़कर लाखों की चोरी, सीसीटीवी में कैद हो गए चोर, पुलिस कर रही जांच
--  Realizan concierto de la Orquesta Sinfónica Infantil y Juvenil de Cuautlancingo en Parque Mágico
--  देश की खबरें | महुआ बैंकर का करियर छोड़ राजनीति में आईं, संसद पहुंचीं और फिर निष्कासन
--  Hướng tới Đại hội VIII Hội NDVN: Nông dân một xã An Giang khá giàu lên nhờ được tiếp sức
--  Hema Malini plants a romantic kiss on husband Dharmendra's cheeks on his 88th birthday celebrations [View Pic]
--  Ujjain: क्रिकेट बैट से प्राचार्य ने की बच्चों की पिटाई, वीडियो हुआ जमकर वायरल, अब शिक्षा विभाग करेगा कार्रवाई
--  ISIS Conspiracy Case: NIA Raids 44 Locations In Karnataka, Maharashtra, 13 Held
--  ICSI Set to Introduce International Sustainability Standards, Says President Manish Gupta
--  Seçil Erzan telefonu kapattım sandı banka kaydetti! Dava dosyasına giren görüşme
--  Bakan Yerlikaya: 'İskoçlar Çetesi' çökertildi
--  Esequibo krizi tırmanıyor! Maduro: Petrol, gaz ve maden işletmeciliği için lisans verdim
--  কিউইদের ১৩৭ রানের টার্গেট দিলো টাইগারা
--  Fire breaks at soap powder godown in Chennai; goods worth Rs 100 crore damaged
--  Васил Велев за бюджета: Заложен е силно оптимистичен ръст на БВП
--  In Andhra Pradesh’s Chittoor, Variety Of Stone Carvings Available At Affordable Prices
--  Kenali Gejala Pneumonia pada Anak
--  Israel Hamas War: इजरायल के विदेश मंत्री का आरोप, 'हमास का पक्ष ले रहे हैं संयुक्त राष्ट्र प्रमुख'
--  Israel strikes Gaza after failed United Nations ceasefire bid
--  Gauri Lankesh: గౌరీ లంకేష్ హత్య కేసులో కీలక పరిణామం.. నిందితుడికి బెయిల్ మంజూరు చేసిన కర్ణాటక హైకోర్టు
--  स्पेन में पांच देशों के टूर्नामेंट के लिये भारतीय टीम का ऐलान
--  [날씨쏙 과학쏙] 수도권에서 규모 5.4 지진이 발생한다면?
+-  `Nostalgia` review: An intriguing character study of a man haunted by his past
+-  뉴욕증시, 고용 둔화·연착륙 기대에 상승…국제유가, 7거래일 만에 상승
+-  Cuestiones económicas y las empresas familiares
+-  México va bien en lo económico
+-  El mito de la zona sur del país
+-  Ducati Diavel for Bentley, Simak Detailnya!
+-  Trading places – why Labour shouldn't emulate Bidenomics
+-  Despite her flaws, Liz Truss was ahead of her time
+-  A Labour government will be a disaster – just look at Wales
+-  Half of England's football stadiums should be housing
+-  Starmer's embrace of Thatcher is no harmless exercise in political cross-dressing
+-  SAD, Južna Koreja i Japan snažnije će djelovati protiv sjevernokorejske prijetnje
+-  Ranveer Singh : 'ब्रह्मास्त्र 2'मध्ये 'देव'च्या भूमिकेत दिसणार रणवीर सिंह? दीपिका पादुकोणसोबत स्क्रीन शेअर करणार
+-  "มาดามเดียร์" คุณสมบัติไม่ครบ พลาดชิงเก้าอี้ หน.ประชาธิปัตย์
+-  کراچی: سردی کی شدت اور فضائی آلودگی میں اضافہ ہوگیا
+-  В Киеве после аварии в метро начали расследование
+-  부안해경, 내년 3월까지 '선박 연료유 황 함유량' 점검
+-  Las noticias de Cruz Azul hoy: Guillermo Martínez, Carlos Salcedo e Iván Alonso
+-  Sydney bakes in hottest day in three years
+-  Επεισόδια στου Ρέντη: «Κυκλώνουν» τους δράστες της δολοφονικής επίθεσης στον αστυνομικό των ΜΑΤ
+-  Penulis Agus Noor Ungkap Kondisi Stafnya yang Diminta Polisi Beri Pernyataan Pers
+-  ایم کیو ایم کا پنجاب میں الیکشن کی تیاریوں کا آغاز، ٹکٹ تقسیم کیلئے 8 رکنی بورڈ قائم
+-  Particuliere eigenaar kapt vijftien bomen aan de Oisterwijkse Lind, B-team wil strengere regels
+-  인천 서구 노래방서 술 시킨 뒤 '주류 판매' 신고한 손님들
+-  Поворот на восток: В ЦСР дали прогноз по развитию международных грузопотоков до 2030 года
+-  Tea vs Coffee: ਚਾਹ ਜਾਂ ਕੌਫੀ, ਦੋਵਾਂ ਵਿੱਚੋਂ ਸਿਹਤ ਲਈ ਕਿਹੜੀ ਫਾਇਦੇਮੰਦ?
+-  Bakan Yerlikaya duyurdu: İskoçlar çetesi çökertildi
+-  “모두 이재학PD라 불러, 실제 연출하니까”
+-  방정환 ‘어린이’ 계승한 ‘개똥이네놀이터’는 어떤 잡지?
+-  ¡Ya no llegaron con la Virgen! Peregrinos resultan lesionados tras aparatoso choque en la Izúcar-Acatlán
+-  أربع مواجهات في ختام الجولة الثامنة لدوري نجوم العراق لكرة القدم
+-  This New-Moon-in-Sagittarius Bath Ritual Will Inspire Ideas
+-  This New-Moon-in-Sagittarius Bath Ritual Will Inspire Ideas
+-  ‘Joviale gastheer’ zat in de bijstand, maar werkte ook in restaurant van zoons: gemeente voor ruim 2 ton benadeeld
+-  Marcus case – därför förtjänar han priset igen
+-  Bulgaristan Türkiye’den irmik ve bulgur alacak! Üreticiler için altın kapı açıldı: Tedarikçiler…
+-  Catat Nih, Jadwal Terbaru Penyeberangan Kapal Feri Rute Merak-Bakauheni Hari Ini
+-  Marcus case – därför förtjänar han priset igen
+-  Berobat di Depok Hanya Tunjukan KTP Bisa Rawat Inap Hingga Bersalin
+-  سلامتی کونسل: امریکا نے غزہ میں جنگ بندی کیلئے پیش کردہ قرارداد ویٹو کر دی
+-  Circulation. Accéder aux marchés de Noël, une vraie galère en Alsace
+-  Soultz. Des cuvées spéciales en soutien à Cécile Kohler, détenue en Iran
+-  Grand format. Il y a 41 ans, le FC Mulhouse battait Valenciennes et accédait à la 1re Division
+-  Attentat de Strasbourg. Mettre plus d'humanité dans l'indemnisation des victimes
+-  Neuf-Brisach. Un Noël 100 % fait main ce week-end
+-  Santé. Les virus respiratoires en hausse : l'Alsace a le record du Covid en France
+-  Politique. Droit local des cultes en Alsace-Moselle : tempête dans un verre d'eau bénite
+-  Есть ли у Путина двойники?
+-  В село Земетчино приехал "Ревизор": как в 1930-е колхозников приобщали к театру
+-  신민아 “저희 엄마처럼 친구 같은 엄마 되고파”
