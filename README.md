@@ -1,51 +1,51 @@
 # Latest News
--  Presidente ad honórem del INDES participó en el festejo de Metapán BC
--  Javier Milei asumirá como presidente de Argentina este domingo
--  Snatched! Anele Mdoda shows off slim summer body [photos]
--  11.000 LJUDI U SARAJEVU NA KONCERTU TEE TAIROVIĆ! Naša kamera snimila šta je pevačica radila svega par sekundi pre POČETKA
--  Odbojkašice Rijeke nakon četiri pobjede bolno prizemljene od Karlovčanki
--  2 Chainz Hospitalized After Miami Car Crash: Get the Details
--  “Hay un incremento”: ¡Ya van 13! personas quemadas por cuetes esta temporada en Sinaloa
--  Coupe du monde de handball : C’est terminé entre le Sénégal et le Monténégro
--  U 87. godini preminula pijanistica i pedagoginja Pavica Gvozdić
--  Deprem uzmanı İstanbul’un ‘güvenli’ ve ‘güvensiz’ bölgelerini açıkladı
--  Murió Ryan O’Neal, protagonista de “Love Story”
--  Fallece una persona en una colisión frontal entre dos vehículos en Lepe (Huelva)
--  Carlos Guberman, un experto en Presupuesto, será el secretario de Hacienda del gobierno de Milei
--  İsrail, Gazze Şeridi'nde 5 askerinin daha öldüğünü duyurdu
--  Es falso afirmar que ningún país amplió tanto como Colombia las UCI durante la pandemia
--  [HONG KONG INVESTOR SUMMIT 개회 2일 차 맞아
--  Нетанјаху: Праведната војна за елиминација на Хамас продолжува
--  Elon Musk faz enquete para saber se deve dar espaço a Alex Jones, notório negacionista
--  Anuncian primera preselección para enfrentar al Inter Miami de Messi
--  Milei habla con Felipe VI sobre cómo puede colaborar España con Argentina, según canciller
--  MP abriu inquérito ao caso das gémeas no dia em que a PGR foi a Belém falar com o Presidente da República sobre António Costa
--  Aile boyu tarihi eser kaçakçısıymış ! Baba, oğul, torun...
--  IPC 283 - आम रास्ता में अवरोध लगाना, बाधा उत्पन्न करना, क्या कानूनी कार्रवाई होगी, पढ़िए
--  Upcoming Intel, AMD and Arm CPUs at risk of new side-channel attack, researchers say
--  Iran houdt familie Mahsa Amini op weg naar prijsuitreiking tegen op vliegveld
--  Andrés Ultreras recibe la Presidencia del Colegio de Contadores del Sur de Sinaloa
--  Ncuti Gatwa makes his Doctor Who debut as the 15th Time Lord alongside David Tennant in drama-packed special with a very unexpected twist
--  Ncuti Gatwa makes his Doctor Who debut as the 15th Time Lord alongside David Tennant in drama-packed special with a very unexpected twist
--  Jamie Redknapp names the player Arsenal are missing after Aston Villa defeat
--  VM-febern har börjat – svenskt publikrekord
--  Shohei Ohtani agrees $700MILLION, 10-year Los Angeles Dodgers deal
--  WWE icon CM Punk drops massive NXT Deadline hint hours before huge show
--  Chinese coast guard 'shoots water cannons at Filipino boat' near Beijing-controlled Scarborough Shoal in latest incident in South China sea
--  Chinese coast guard 'shoots water cannons at Filipino boat' near Beijing-controlled Scarborough Shoal in latest incident in South China sea
--  Los precios de los agroalimentos se multiplicaron por 3,4 veces en noviembre
--  Zelenski viaja a Argentina para la inauguración de Milei
--  Πόσος κόσμος πήγε στο «ΑΛΦΑΜΕΓΑ»
--  ٹریکٹر ٹرالی الٹ گئی،کانسٹیبل جاں بحق
--  Galatasaray basketbolda yine mağlup
--  EU advierte a turistas mexicanos sobre enfermedad transmitida por garrapatas
--  Live Eredivisie | AZ leidt tegen Almere City, Cillessen blundert bij NEC
--  Shohei Ohtani agrees to record $700 million 10-year contract with Dodgers
--  VÍDEO: a derrota do Sporting em Guimarães em 60 segundos
--  Coran brûlé : Le parlement du Danemark acte une décision importante
--  Ukraine says any Russian presidential voting in its occupied regions would be ‘null and void’
--  Košarkašice FSV-a nedodirljive na domaćem terenu, Riječanke svladale i Zadranke
--  “이정후가 김하성과 절친이라서 계약한다고 하기엔…” 샌디에이고 1순위 아니다? SF는 탈락했나
--  Representante de agroexportadoras de Ica expresó preocupación por manifestaciones en el sector de Barrio Chino
--  Princess Charlene of Monaco looks glamorous in sequined silver dress as she poses with Santa at a charity event
--  Perfect Pienaar powers Cheetahs to big away win
+-  В Венгрии раскритиковали новый украинский закон о нацменьшинствах
+-  Carmen Jaquier Says ‘Thunder’ Took The Present Back To The Past – Contenders International
+-  احذر المخبوزات في وجبة الإفطار.. أطعمة لا تبدأ بها يومك - كارثة صحية
+-  قذيفة إسرائيلية تصيب برجًا إسبانيا للمراقبة تابع لليونيفيل في لبنان
+-  "الصحفيين" تدعو لمواجهة مخطط إبادة وتهجير الشعب الفلسطيني
+-  مرصد الأزهر: مشاهد تجريد النازحين الفلسطينيين من ملابسهم وصمة عار في جبين الإنسانية
+-  الدوري السعودي.. تعادل الأهلي وفوز الوحدة
+-  Grupo de 47 brasileiros e familiares consegue deixar a Faixa de Gaza
+-  Forgotten ex-Premier League star who left three years ago without kicking a ball targeting transfer return in January
+-  Alex Jones: Elon Musk lässt über Rückkehr von Verschwörungstheoretiker zu X abstimmen
+-  Inclusión en el mundo corporativo: el lifestyle empresarial abraza la diversidad
+-  Presidente do Eurogrupo confia em acordo este ano sobre regras equilibradas para défice e dívida
+-  Soccerladuma | Riveiro Gives Special Praise To Bucs Defenders
+-  Unha muller excarcerada en Boiro e un ferido en Cee tras unha colisión de seis coches
+-  Essequibo : réunion « de haut niveau » en vue entre le Venezuela et le Guyana
+-  Минздрав Палестины: число погибших в Газе превысило 17 тысяч человек
+-  Netanyahu tells Biden Israel will act militarily against Yemen's Houthis if US wont: report
+-  Giants rule out Evan Neal, list Dexter Lawrence as questionable
+-  VA Democrat featured in streamed sex acts online says she’s the victim: ‘My entire life was rocked'
+-  This is the year for Hannukah to shine brighter with our Jewish identity and pride
+-  Shoehei Ohtani Signs 10-Year Deal with L.A. Dodgers for $700 Million, The Highest Deal in MLB History!
+-  Pucnjava u Švedskoj: Ranjene tri osobe, napadač još na slobodi
+-  Neestrup i studiet: 'Det er et kæmpe problem'
+-  Nach Veto im UN-Weltsicherheitsrat: Zehntausende demonstrieren in London für Gaza-Waffenstillstand
+-  Venezuela navrhuje Guyane stretnutie na vysokej úrovni venované sporu o Esequibu
+-  Shohei Ohtani agrees to $700 million, 10-year contract with Los Angeles Dodgers
+-  Betano ou Betfair: descubra qual o melhor site de apostas
+-  POTRESNA SUDBINA TINEJDŽERKE RANJENE U MASAKRU KOD MLADENOVCA: Živi sa majkom sa 35.000 dinara, ostala bez bubrega222222
+-  Чемпион мира Гаджимагомедов одержал третью победу на профессиональном ринге
+-  Nekateri krajani Letuša in Rečice napovedujejo, da se bodo proti selitvi borili tudi po pravni poti
+-  Amerikan basınından çarpıcı iddia: ABD, İsrail'e yıl sonuna kadar süre verdi
+-  Bayern Münih darmadağın: 5 gollü mağlubiyet!
+-  Petro, Gazze'de insani ateşkes istenilen karar tasarısını veto eden ABD'yi kınadı
+-  إيران تحاكم دبلوماسياً سويدياً
+-  Spektakl u derbiju: Lajpcig bolji od Dortmunda
+-  „Denn sie wissen nicht, was passiert“: Jauch kommt an seine Grenzen – „Ich finde das nicht in Ordnung“
+-  Quiénes eran las víctimas del choque fatal sobre la Ruta 151, en Cinco Saltos
+-  İklim aktivistleri Venedik'teki 'Büyük Kanal'ı yeşile boyadı
+-  Indulto a quem comete crimes contra a humanidade é afronta à democracia
+-  Amber Alert issued for missing child in Surrey, B.C.
+-  Presidente de Ucrania viajará a Argentina para asistir a asunción presidencial de Milei
+-  Das Polster schrumpft: FCK im Abstiegskampf
+-  قصواء الخلالي: الجميع يراهن على وعي الشعب المصري في هذه المرحلة
+-  Anne-Sophie Pelletier, exclue de La France insoumise, contre-attaque : plainte en diffamation et dénonciation de pratiques antidémocratiques
+-  خبراء: المجتمع الإسرائيلي لن يتحمل الخسائر وسيصرخ أولا
+-  El Sima Granada encadena la tercera derrota consecutiva
+-  Jorge García, Tamara Frías y Alba Vázquez se llevan el oro en el Andaluz
+-  Γιατί όλος ο κόσμος έχει τα μάτια απόψε στο Λας Βέγκας;
+-  Odbojkaši Mornara među četiri u Kupu Crne Gore
+-  Lottoarvonnassa jakoon liuta pieniä voittoja – katso oikea rivi
