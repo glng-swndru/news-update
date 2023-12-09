@@ -1,11 +1,11 @@
 # Latest News
--  بـ3 مكونات منزلية.. تخلص من رائحة الأحذية الكريهة في الشتاء
--  Jauh-jauh dari Solo, Gibran Cuma Bicara 2 Menit di Cilincing
--  تصعيد واسع جنوباً يسابق الوساطة الأمنية الفرنسية
--  中 소비자물가 2개월 연속 마이너스…디플레이션 우려
--  U centru Dubrovnika adaptira se čak tisuću kvadrata nekadašnje tvornice! Evo što će sve tamo biti i kako će izgledati
--  Ekman-Larsson med i toppen bland NHL:s backar
--  US again blocks UN Security Council resolution demanding Gaza ceasefire
--  Will Smith Steps Out With Mystery Woman Resembling Jada Pinkett Smith
--  [부고] 서동원 바른세상병원장(대한축구협회 의무분과위원장) 빙모상
--  『ファイナルファンタジーXVI（FF16）』無料アプデで忠狼トルガルの「心の声」を見れるように。クライヴやおやつのこと考えたり、仲間の死を悲しんだり
+-  Se perfila Marko Cortés al Senado vía plurinominal
+-  Diguncang Gempa 4.0 Magnitudo, 105 Rumah Warga Sukabumi Rusak
+-  Dışişleri Bakanı Fidan: Gazze konusunda artık ABD yalnız kaldı
+-  DNA ile 3 milyar liralık servetin ortağı oldular
+-  [글로벌] AMD, 인스팅트 MI300 시리즈 출시..."AI 반도체 시장 경쟁 가열"
+-  [글로벌] MS, GPT-4 터보 장착한 '코파일럿' 업데이트..."구글에 견제구"
+-  [크립토 주간 브리핑] 2년만에 6000만원 돌파한 비트코인, 1년만에 재상장된 위믹스
+-  [글로벌] 페이스북 '메시지 암호화' 전면 시행...인스타그램도 내년부터 적용
+-  Motociclista quedó herido de gravedad tras impactarse con vehículo en Tepic
+-  Guerre entre Israël et le Hamas : les États-Unis mettent leur veto à "un cessez-le-feu humanitaire immédiat" à Gaza
