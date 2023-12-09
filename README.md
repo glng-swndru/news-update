@@ -1,51 +1,11 @@
 # Latest News
--  Hyundai Tucson mení tvár, facelift zasiahol hlavne vnútro
--  זו אגדה אופטימית ורומנטית, משעשעת ומלאת הברקות - על מציאות ישראלית מאוד מכוערת
--  בכתבה הכי מעניינת ששודרה בחודשיים הללו, לי נעים הצליחה היכן שכשלו כל עמיתיה לחדשות
--  Paris'te işgalci İsrail'in Gazze'deki katliamlarına yönelik tepki gösterisi düzenlendi
--  Edin Dzeko gol krallığında zirve yarışını sürdürüyor
--  Dusan Tadic asist krallığında zirvede!
--  ODIK verliest van directe concurrent
--  SDV Barneveld gaat na winst op AZSV met goed gevoel winterstop in
--  Haddad diz que Brasil fecha 2023 com a criação de 2 milhões de empregos formais
--  Dikkat! Grip mevsimi geldi: Uzmanlardan önemli çağrı
--  Kings, coach Brown esalta Sasha Vezenkov: Non è il classico rookie, avrà sempre più spazio
--  Tri sestre Sipović osvojile tri srebra u karateu
--  Weihnachts-Gottesdienste im TV: Sendetermine im Überblick
--  Serie A, che Inter a San Siro! Poker all'Udinese e primato in classifica
--  Shohei Ohtani Signs Record $700 Million Deal With Dodgers
--  دراسة تحذر: نخر الأنف يسبب مرضاً دماغياً خطيراً
--  Олимпийский чемпион Батыргазиев завоевал первый в истории титул чемпиона мира IBA среди профи
--  The women's Black Sticks have made a winning start to their two-test series with the USA in Charlotte
--  Angelina Jolie diz não conseguir viver livremente após se separar de Brad Pitt
--  Fact Check: The Truth About Haley's History on Child Genital Mutilation
--  Atacan a militares y policías en Malinalco
--  Avanza barrido y aretado en municipios serranos
--  Conoce a los finalistas por consejerías del Ichitaip
--  La Miss Universo conquista la gala “We Are All Humane” con un deslumbrante vestido
--  Russia to hold 2024 presidential voting in areas annexed from Ukraine too? Kyiv warns
--  Большегруз перекрыл трассу Сортавала
--  تقييم واتكينز مع أستون فيلا أمام أرسنال
--  В Тверской области пропал мужчина со шрамом на лице
--  Annoncé au PSG, son mercato s’emballe !
--  Zaharova: Rusija da čini sve što može da procesuira zločine genocida
--  Miguel’s season-high 20 points lift South Florida past Florida State, 88-72
--  Irre Aktion mitten auf der A40 in Duisburg – Autofahrer reiben sich verwundert die Augen
--  Pangstart for Carlsen i Champions Chess-finalen
--  Ana Paula deixa o Mundial de Handebol por entorse no joelho
--  Венгерские автоперевозчики проведут протесты на границе с Украиной
--  Аталанта дотиснула Мілан, Інтер розгромив Удінезе: результати 15 туру Серії А
--  Vrαsja e Liridona Ademajt, policia arreston një të dyshuar për dhënien e armës
--  Em decisão equilibrada, Barcellos é reeleito presidente do Internacional para mais três anos
--  EEUU insta a partes libias a unirse a iniciativa de la ONU para proceso electoral
--  Marcelo Teixeira é eleito presidente do Santos pela terceira vez
--  Marcel Ciolacu, anunț crucial despre intrarea României în spațiul Schengen: Am spart gheața! Austria și-a flexibilizat poziția
--  Tim Voli Putri Gresik Petrokimia Pupuk Indonesia Juara Livoli Divisi Utama 2023, Kalahkan TNI AU di Final
--  Μπέσσυ Μάλφα: «Ένα αμάξι έκανε όπισθεν και χτύπησε την πεθερά μου, έπεσε με το κεφάλι»
--  Inter 4 - 0 Udinese (MAÇ SONUCU - ÖZET)
--  ΘΑ ΜΠΟΡΕΣΟΥΝ ΝΑ ΣΥΝΥΠΑΡΞΟΥΝ
--  Ascendieron a 12 los muertos por abrupto colapso de una mina en la Gran Sabana
--  Moss scores 21 as Toledo downs Northern Iowa 84-80
--  Após confusão na Vila Belmiro, Marcelo Teixeira é eleito novo presidente do Santos
--  Médicos denunciam suspeita de fraude em prova de residência da Santa Casa em SP
--  تقييم لوكاس دين في مباراة أستون فيلا وأرسنال
+-  31-28. El Cisne se hunde fuera de casa
+-  Veiligheidsadviseur Israël: 7000 Palestijnse militanten gedood
+-  Aydın'da otomobiller çarpışı: Yedi yaralı
+-  I won the first ever PDC World Darts Championship but I was threatened with losing my house and never got my trophy back
+-  Leigh-Anne Pinnock stuns in shimmering sheer dress as she leads the glam at Jingle Bell Ball
+-  How to watch Devin Haney vs. Regis Prograis: Live stream the fight
+-  Loksins búinn að finna nýtt heimili eftir langa dvöl á hóteli – Fjölskyldan getur nú flutt til landsins
+-  Christmas cheer for children’s home
+-  U.N. AI Advisory Panel Holds 1st In-Person Meeting; U.N. Chief Stresses Importance of Intl Discussions on AI
+-  Zimbabwe has a lot to teach the world in HIV/Aids fight – UNAIDS
