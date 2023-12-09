@@ -1,11 +1,51 @@
 # Latest News
--  38-jähriger Mann vermisst: Polizei Hannover-Döhren sucht nach Zeugen
--  "생활백서 키친타올" 12월 9일 캐시워크 퀴즈 정답 공개
--  Wettervorhersage: Viel Regen und Hochwasser im Süden erwartet
--  Savastan0 CC: Redefining Success Underground
--  ราชกิจจาฯ ประกาศระเบียบเปลี่ยน ส.ป.ก.4-01 เป็น "โฉนดเพื่อการเกษตร"
--  Tarifstreit: Arbeitgeber des öffentlichen Dienstes einigen sich mit Gewerkschaften
--  Tarifstreit: Arbeitgeber des öffentlichen Dienstes einigen sich mit Gewerkschaften
--  Ashwini-Tanisha pair enters Guwahati Masters final
--  India showed capability of getting world to agree on something: S Jaishankar
--  Immigration boss warns new officers against graft
+-  “정치적 대안 불가피, 준비 막 시작했다”…신당 띄우는 이낙연
+-  Prince Harry fails to lure King Charles with 'emotional blackmail'
+-  춘천서 로또 2등 당첨…1097회 1등 7명, 당첨금 각 38억6429만원
+-  SP-leider Lilian Marijnissen stapt op
+-  Soccerladuma | Starting XI: PLK City v Chiefs
+-  [두산 포수 박유연, 음주운전 ‘면허정지’ 뒤늦게 들통나
+-  [中서 팔리는 스타벅스·루이싱 커피서 발암물질 검출
+-  [1097회 로또 번호 ‘14, 33, 34, 35, 37, 40’…1등 7명, 38.6억씩 받는다
+-  [아내와 ‘초대남’ 성관계 영상 SNS에 올린 공무원…실형 면해, 왜?
+-  Илғорлар тақдирланди
+-  VIDEO Više mrtvih u požaru u bolnici kod Rima, 200 ljudi evakuirano
+-  Wüst rechnet nicht mit Neuwahl : „Es wäre gut, wenn die SPD stärker aufgestellt wäre“
+-  Tenisin efsane ismi Chris Evert ikinci kez kansere yakalandı
+-  UP Warriorz Players Full List, WPL Auction 2024: Here's the Updated UPW Squad
+-  الانتخابات الرئاسية.. 497 لجنة فرعية تنتظر الناخبين في بني سويف
+-  أبرز تحركات البنك المركزي للحد من استنزاف الدولار بالبنوك في 2023
+-  وزيرة البيئة ونظيرتها الألمانية تترأسان جلسة تسريع الشراكة لـ"الحلول القائمة على الطبيعة" ENACT
+-  القسام: استهدفنا دبابة ميركافا إسرائيلية في خان يونس بقذيفة الياسين 105
+-  كراسي متحركة ومولدات كهرباء.. الأقصر تجهز 179 لجنة للانتخابات الرئاسية
+-  أعراض نقص فيتامين ب 12 في العين.. 3 علامات لا تتجاهلها
+-  O inusitado herói do Manchester United que mantém acesas esperanças do time na temporada
+-  Por que Declan Rice pode ser motivo para Arsenal não repetir queda da última temporada
+-  Como Ancelotti 'reinventou' Valverde mais uma vez para superar problemas com lesões no Real Madrid
+-  Mbappé tem que ajudar na defesa ou 'craque não marca'? Comentaristas da ESPN opinam sobre polêmica no PSG
+-  أحمد الطيب: كنت أتمنى أن تسمح اللوائح بإعارة شيكابالا للأهلي في كأس العالم
+-  O trio ex-São Paulo, Corinthians e Fluminense que tenta interromper boa fase do PSG e o que você precisa assistir pela ESPN no Star+
+-  نقابات تعليمية تعلن الإضراب عن العمل لمدة تسعة أيام
+-  "Tratá de cuidar los modales", le dura advertencia de Lacalle Pou a un dirigente opositor
+-  Royal Challengers Bangalore Players Full List, WPL Auction 2024: Here's the Updated RCB Squad
+-  «Όταν έχεις την ευκαιρία να πας στον ΑΠΟΕΛ, θα την αρπάξεις...»
+-  Kickoff | Starting XIs: Polokwane City v Chiefs
+-  Antalyaspor yenilmezlik serisini 6 maça çıkardı
+-  Alta na exportação de carne suína gera lucro milionário para SC
+-  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
+-  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
+-  Olaf Scholz' Rede auf dem SPD-Parteitag: Gelassenheit statt Krisenmodus
+-  VUČIĆ OBJAVIO: Kada žena stane, stala je cela porodica (VIDEO)
+-  Ronan O’Gara makes emotional admission about celebrating La Rochelle’s European Champions Cup win with his sick mother
+-  Segir Liverpool þurfa þetta til að verða Englandsmeistari í vor
+-  भारत की अर्थव्यवस्था सबसे तेज गति से बढ़ने वाली अर्थव्यवस्था - उपराष्ट्रपति
+-  Mathews: California’s most important 2024 election affects India
+-  کولیسٹرول، وزن اور فالج کے خطرے میں کمی سمیت کاجو کے دس حیران کن فوائد
+-  СМИ: финский посол связался с Трампом, для уточнения его позиции по НАТО
+-  Ganho com reforma tributária pode não ser suficiente para bancar fundos a médio prazo, diz IFI
+-  Entrada de professores negros em universidades públicas é abaixo de 1%
+-  Ўзбекистон ва БАА вакиллари давлат хизматларини кўрсатиш соҳасини такомиллаштиришни муҳокама қилди.
+-  انطلاق مباراة ليفربول و كريستال بالاس في الدوري الانجليزي
+-  Bakan Özhaseki: 'Adları zikredildiği halde hiç çalışma yapmayanlar var'
+-  Lokales: Kosten für Sanierung der Badewelt Waikiki im Kreis Greiz um ein Vielfaches gestiegen
+-  Brazilsko čudo od deteta može da igra za Hrvatsku
