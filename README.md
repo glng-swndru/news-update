@@ -1,11 +1,11 @@
 # Latest News
--  Congreso da luz verde a celda 3 del Relleno Sanitario
--  Fomentan cooperación económica entre ciudades
--  Matan a líder del grupo criminal 'Los Rusos' en Acapulco
--  Buscará Lilly Téllez reelección en el Senado
--  Veta EEUU proyecto de resolución para alto al fuego en Gaza
--  Bulan Mungkin Masuki Periode Geologi Baru Akibat Aktivitas Manusia
--  牙科醫生招聘｜起薪$65,875 附政府工入職條件+申請方法
--  Weekend Wishlist: We're getting festive from velvet party dresses and red suits to cosy Christmas jumpers
--  15 retro games adults once loved that will make the perfect Christmas gift for kids
--  Festive New Look dress makes me feel like a Bond girl and it's only £35
+-  Día Internacional contra la Corrupción: por qué se celebra cada 9 de diciembre
+-  হাতল না ধরে সাইকেল চালালেন ১৩০ কিমি
+-  Российские войска поразили две бригады ВСУ на краснолиманском направлении
+-  Vegetable Price: உயரும் காய்கறிகளின் விலை.. ரூ. 300 -யை நெருங்கும் ஒரு கிலோ பூண்டு.. இன்றைய விலை பட்டியல் இதோ..
+-  भैँसीपालनमा यादव समुदायको आकर्षण
+-  क्यान्सर विरुद्धको लडाइँमा सार्क राष्ट्रका विज्ञहरू एक ठाउँमा उभिनु पर्छ : स्वास्थ्य मन्त्री बस्नेत
+-  तपाईं रिटायर्ड हुनुभएको हो ?
+-  ভারত-বাংলাদেশ যৌথ সামরিক কমান্ড
+-  Bigg Boss 7 Telugu: శివాజీని గెలిపించిన హౌజ్‌మేట్స్ - తాను నమ్మే సూత్రం అదేనట!
+-  Nicole Neumann y Manu Urcera confirmaron su embarazo en plena boda: el emotivo momento
