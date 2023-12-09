@@ -1,51 +1,51 @@
 # Latest News
--  Hviezdny Kevin Costner sa z rozvodu spamätal expresne rýchlo: Randí so známou speváčkou!
--  AKTUÁLNE Vianoce Slovákov sú OHROZENÉ! Množstvo e-shopov je na hranici hromadného KRACHU: Vieme, čo je za tým
--  Štáty Európskej únie schválili pre Maďarsko pomoc vo výške takmer jednej miliardy eur
--  Ahmed Hachani reçoit le vice-président de la Banque mondiale à la Kasbah
--  İsrailin yarıçılpaq götürdüyü əsirlər kimlərdir?
--  रारामा चार महिनामा चार हजार पर्यटक
--  Anthrax may now spread after 684 cases, four deaths, in Zambia
--  HS: Varusmiesten kestävyyskunnossa isot erot alueellisesti – hyväkuntoisia löytyy enemmän kaupungeista
--  Chinas Wirtschaft rutscht tiefer in die Deflation
--  40 घंटे में 7 दिन का सस्पेंस होगा खत्म, तीन राज्यों को मिलेगा नया मुख्यमंत्री!
--  Soccerladuma | Man Utd Urged To Sack Ten Hag
--  Automotive Air Intake Manifold Market worth $71.51 billion by 2030, growing at a CAGR of 6.62% - Exclusive Report by 360iResearch
--  Кабмин выделит 285 млн рублей регионам на интеллектуальные дорожные системы
--  مرصد الأزهر يعلق على الصهيونية الدينية ودور الحاخامات فى استئناف إبادة الفلسطينيين
--  Umno veep: Isham Jalil sacked following actions deemed threatening to party
--  انتخابات الرئاسة 2024.. عناوين المقار الانتخابية فى 6 أكتوبر والشيخ زايد
--  Afrika'da HIV (AIDS) aşı denemeleri durduruldu
--  KING ICT je u 2023. rastao 10 posto i postao jedan od ključnih NATO cyber security partnera
--  النشرة المرورية.. انتظام حركة السيارات واختفاء التكدس من القاهرة والجيزة
--  نقابة العاملين بالقطاع الخاص تطالب أعضائها بالمشاركة فى انتخابات الرئاسة
--  Nova snimka sukoba Torcide i policije. Gađali ih kantama, u obračunu ozlijeđena 3 policajca
--  50 yıl sonra sokaklar yenilendi esnafın yüzü güldü
--  الصحة تعلن صدور اللائحة المالية لصندوق التعويض عن مخاطر المهن الطبية
--  Ψηφιακή Κάρτα Εργασίας: Πού επικεντρώνονται οι έλεγχοι για την αδήλωτη εργασία
--  وزارة الأوقاف تكشف عن جهودها فى تحسين أحوال الأئمة فى عهد الرئيس السيسى
--  Interior Ministry detains a group of persons suspected of illegal possession of weapons and drugs in Toktogul district
--  Olaf Scholz: Parteitagsrede im Livestream
--  طلاب جامعة القاهرة شاركوا فى افتتاح فعاليات المعرض الدولى "إيديكس 2023"
--  Strategie în alb și negru - Ediția din 9 decembrie 2023
--  Joulun paras juustokakku – Vain 3 raaka-aineen täyte
--  Bewegung nach Corona, Grippe oder Erkältung: Diese Regeln sollten Sie beachten
--  अब गांव-गांव में ‘गारंटी’ की धूम, विकसित भारत योजना के लाभार्थियों से बोले PM मोदी
--  Five Countries Keen To Expand Trade Ties With Punjab
--  India's Startup Ecosystem Drops To 5th Place Globally In Funding Rankings: Report
--  بعثة منتخب ناشئى الطائرة تتوجه إلى ليبيا للمشاركة فى بطولة أمم أفريقيا
--  Solusi Persoalan Harga Cabai, Jateng Bakal Perluas Lahan Tanam
--  Man dies after being found 'unresponsive' on coastal path
--  أبطال الجمباز الفني يحصدون 4 ذهبيات وفضية فى بطولة الجمهورية تحت 9 سنوات
--  한미일, '대북 新이니셔티브' 추진…北 군사협력·외화벌이 차단
--  Film dengan Rating Tertinggi yang Sedang Tayang di Bioskop Desember Ini
--  이스라엘 국방 "가자지구서 하마스 붕괴 시작 징후 보여"
--  Ενθουσιασμός στην Τουρκία για τις επισκέψεις στα ελληνικά νησιά - Η διαδικασία
--  [국민의힘 “송영길, 국민의 인내심 시험…386 운동권 정치인의 오만”
--  [“임신 축하” 女리포터 뱃살 조롱한 男시청자…“암으로 자궁절제” 고백에 뭇매
--  Jacek Sasin: Żadna komisja śledcza nie będzie niebezpieczna dla PiS-u
--  Mừng sinh nhật, Shopee tung ưu đãi giảm đến 90% và loạt chương trình giải trí đặc sắc
--  구글 AI '제미나이' 시연 논란...'이스라엘-하마스 전쟁' 답변 회피
--  Otomobilden hayalet gösterge paneli ve konsol takımını çaldı: Yakalandı
--  9 غيابات فى صفوف الزمالك قبل مواجهة ساجرادا الأنجولى الليلة.. تعرف عليها
--  Seoul says Japan inaction means ‘comfort women’ court ruling upheld
+-  Tyla and Nasty C kick off 'Hey Neighbour Festival' with a bang
+-  NPA confident of a conviction in Phala Phala burglary case
+-  Nyati: Generation recovery one of key focus areas for new Eskom CEO Dan Marokane
+-  'An honour to be chosen to lead Eskom' - newly appointed CEO Dan Marokane
+-  Funding model to cover 'missing middle' at least 10 years away - Nzimande
+-  Deforestation hits record low in Brazilian Amazon in November
+-  Bakan Özhaseki: "Adıyaman'ı ayağa kaldıracağız"
+-  Tràn lan hội nhóm vỡ nợ làm liều, xúi giục tự tử... trên mạng xã hội
+-  제주를 사랑하는 고민이 더 나은 제주를 만드는 힘으로
+-  İngiltere’de Başbakanlar kapıda kaldı
+-  Во следните шест месеци изменет режим на сообраќај на патот Прилеп-Битола
+-  Scandale à l’Elysée : Célébration de Hanouka et laïcité en France
+-  News24 | A record 282 million people are undernourished in Africa due to climate change, FAO reports
+-  بالصور: تكدُّس النفايات عند طريق السفينة جنوب شرق الناصرية
+-  Congresista estadounidense le dice a Giammattei que aún "hay tiempo" para "retroceder"
+-  Соработка на Народната банка со централната банка на Австрија за спроведување на најдобрите практики при управувањето со податоците
+-  WhatsApp Introduces 'View Once' Feature For Voice Notes
+-  Messenger Finally Gets End-to-end Encryption By Default
+-  Čaj od bijelog luka i mente pomaže kod prehlade
+-  Mitos y leyendas cobran vida en Medellín en un desfile carnavalesco y ancestral
+-  Pogba torna a sorridere… a Dubai! Ed è con un ex Juventus – FOTO
+-  VIDEO Požar u bolnici kod Rima. Troje mrtvih, evakuirani pacijenti
+-  Lakon Petruk Dadi Ratu Dipentaskan Saat Dies Natalis ke-68 Universitas Sanata Dharma
+-  СДСМ: Мицкоски да излезе пред граѓаните и да одговори за средбите со Палевски
+-  İş makinesinin darbesiyle 10 katlı bina yerle bir oldu
+-  SAD, Južna Koreja i Japan za jači međunarodni pritisak na Sjevernu...
+-  Près de Caen, sur fond de violences conjugales, il rend l'ambiance "invivable chez lui"
+-  গাজায় যুদ্ধবিরতির দাবিতে আরব বিশ্বে দেশে দেশে বিক্ষোভ
+-  Ice Magic 2023 gets revamped entry system & larger space to avoid repeat of 2022's long wait times
+-  Várják a mesélőket és a meséket a dombegyháziak esténként
+-  Les jardins de la Bresle gèrent des chantiers d'insertion en faisant de l'écologie à Bouttencourt
+-  Vitré : des sacs à dos de l'avent pour aider les femmes en situation précaire
+-  Спикер Тулоблдумы Воробьев поддержал участие Путина в выборах 2024 года
+-  Morbihan : une voiture et un poids-lourd se percutent, un enfant grièvement blessé
+-  One injured in shooting at Habaraduwa
+-  התמרון מעמיק: צה"ל חיסל חוליה בבי"ס, ואיתר פירים תת קרקעיים שבאחת מהם הותקנה מעלית
+-  Защо зелето няма пазар у нас и каква е цената му?
+-  S. Korea, US agree to enhance cooperation in semiconductors, next-gen tech
+-  Шведские школы готовы полностью запретить использование мобильных телефонов
+-  '서울의 봄' 600만 관객 돌파…'천만 영화' 향해 질주
+-  Ce collectif vous aide à ouvrir une épicerie participative dans votre village
+-  Kocaeli Rallisinin startını Büyükakın verdi
+-  Jalani Latihan Mandiri Jelang Piala Asia 2023, Perut 'Roti Sobek' Asnawi Mangkualam Dipuji Netizen
+-  صلاح يحلم باستعادة عرشه الأفريقي في حفل الأفضل بالقارة السمراء
+-  Калининградцам рассказали о мерах поддержки детства, отцовства и материнства
+-  역전패의 달인... 토트넘, 이기고 있는 상황에서 승점 16점 ↓ →최근 5경기 1무 4패
+-  Slováci, pozor: 13. dôchodky môžu byť výrazne vyššie. Dosahovať by mali takmer 800 eur
+-  President of the Republic of Kenya Receives Credentials of the State of Qatar's Ambassador
+-  Prime Minister and Minister of Foreign Affairs Participates in Talks Session Between Arab-Islamic Summit Ministerial Committee with United States State Secretary
+-  Eritrea: Strong effort to ensure safe blood supply
