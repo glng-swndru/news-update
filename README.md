@@ -1,11 +1,51 @@
 # Latest News
--  Crna Gora sve bliža VIDEO
--  لوگ مجھے فون پر یمنیٰ زیدی سے شادی کی مبارک باد دیتے رہے، احمد علی اکبر
--  सुनहरे साल से कम नहीं रहा 2023, रिकॉर्ड लेवल पर पहुंचा गोल्ड और सिल्वर प्राइस
--  Triumph Unleashed: Here is how T-Series marketing team's strategic moves propel Animal to success
--  EXCLUSIVE: Saloni Batra shares her experience with Anil Kapoor in Animal; says, “He was like a buddy to all of us”
--  EXCLUSIVE: Animal’s production designer Suresh Selvarajan reveals the process of making the ICONIC war machine gun: “We took almost 4-5 months to make the gun. We also made 15,000-16,000 dummy bullets. Almost 100 people worked quite hard to bring the gun to life”
--  Animal: Rashmika Mandanna describes Geetanjali as ‘the only force at home holding her family together’ in her latest social media post
--  Bobby Deol opens up about his resurgence as an actor; says, “I am the new Gabbar Singh and Mogambo”
--  Vicky Kaushal shares heartfelt anniversary wish to Katrina Kaif; watch
--  Shreya Chaudhry lands a campaign for Lakmé!
+-  Aufstellungen: So spielen Eintracht Frankfurt und der FC Bayern - Bundesliga
+-  Vincenzo Mollica: “Mi manca il volto di mia moglie”
+-  Bild: россияне зашли в Авдеевку с нового направления
+-  Tajna misija pod okriljem primirja u Gazi: Prebacili 900.000 novčanica
+-  [한예슬, ‘악연’ 故김용호 언급 “진심으로 안타깝고 불쌍”
+-  [“윤석열·이재명으론 답 없다” 이낙연 신당 창당 시사
+-  87% des Français considèrent que les personnes exerçant des responsabilités sont corrompues
+-  انتخابات الرئاسة.. تعرف على مهام رئيس الجمهورية
+-  UFC star Ian Garry 'cautious' about travelling to America for UFC 296 as Irishman worries for safety of his family after recent controversy surrounding his wife and her book 'How to be a WAG'
+-  Änderungen 2024: Was ändert sich für Autofahrende?
+-  Borussia Dortmund: Transfers im Winter? Kehl-Aussagen lassen aufhorchen
+-  Passengers face hours of delays after Gatwick Airport...
+-  Promotion folle sur le Samsung Galaxy S23 Ultra chez E.Leclerc, ça ne va pas durer
+-  مؤمن زكريا يعود للزمالك بعد 9 سنوات
+-  Man United vs Bournemouth - Premier League: Live score team news and updates as Erik ten Hag's side look to build on win over Chelsea plus updates from the rest of Saturday's 3pm kick-offs
+-  3 observations after Sixers pull away late, earn back-and-forth win over Hawks
+-  3 observations after Sixers pull away late, earn back-and-forth win over Hawks
+-  MLB Network reporter apologizes for 'inaccurate' Ohtani report
+-  Giants QB Tommy DeVito hilariously ranks Italian foods: 'You can do anything with a cutlet'
+-  MLB Network reporter apologizes for 'inaccurate' Ohtani report
+-  Giants QB Tommy DeVito hilariously ranks Italian foods: 'You can do anything with a cutlet'
+-  Ζάκυνθος: Σκοτώθηκε πατέρας ανήλικου παιδιού που καταπλακώθηκε από τρακτέρ
+-  राम मंदिर तक बन रहे फोर लेन का 90 प्रतिशत काम हुआ पूरा
+-  Hrvatski gradovi odustaju od vatrometa, umesto toga ekološki svetlosni efekti bez buke
+-  Míchel: "Si pensamos que podemos jugar de tú a tú contra el Barça será imposible ganar"
+-  LNG-Terminal vor Rügen: Bund gibt Milliarden-Garantie für Bau
+-  Interview mit EU-Abgeordneter Hannah Neumann zu »Katargate«: »Was zur Hölle passiert hier?«
+-  Poslední cesta knížete: lidé zpívali koledu, minul paláce a spočine na Orlíku
+-  El tiempo: Aisladas lluvias en la costa norte oriental
+-  Slovenské skipasy poriadne zdraželi: Vieme, koľko zaplatíš v najväčších strediskách (VEĽKÝ PREHĽAD)
+-  U of I Extension to hold fall garden program Oct. 24 in Walnut
+-  No ‘single solution’ for energy transition, says Opec chief
+-  Crystal Palace are denied a penalty against Liverpool as VAR check lasting over THREE MINUTES rules Will Hughes fouled Wataru Endo to spare Virgil van Dijk's blushes
+-  Crystal Palace are denied a penalty against Liverpool as VAR check lasting over THREE MINUTES rules Will Hughes fouled Wataru Endo to spare Virgil van Dijk's blushes
+-  'DSI'รับเป็นคดีพิเศษ!! บุกตรวจยึดคืนพื้นที่ป่าแหล่งท่องเที่ยว'สวิตเซอร์แลนด์ แดนจะนะ'
+-  โยมนำ'เจ้าแพนเค้ก'มาถวายตั้งแต่ตัวเท่ากำปั้น ตอนนี้หนักกว่า 120 โล บอกหมูป่าไซส์มินิ
+-  Peru to ring in the Christmas season on Dec. 2
+-  هالاند الأطول والشحات الأكثر مشاركة في مونديال الأندية
+-  Paderborn und Bamberg: Papst Franziskus ernennt neue Erzbischöfe
+-  Aji Santoso Ingin Persikabo 1973 Pangkas Jarak dengan Persita
+-  Умер легендарный актер "золотого века" Болливуда Мехмуд
+-  Regresa a su tierra natal
+-  Aumentarán tarifa de la Troncal en 2024
+-  Einstimmiger Beschluss: SPD-Parteitag fordert indirekt Aussetzung der Schuldenbremse für 2024
+-  Delegado enfrentó a Familia Michoacana y murió como héroe
+-  SPD-Parteitag fordert indirekt Aussetzung der Schuldenbremse
+-  Où partir au soleil en hiver ?
+-  Desastres naturales dejan pérdidas de US$ 269.000 millones en 2023
+-  Ισραήλ: Στρατιώτης βανδαλίζει κατάστημα στη Τζαμπαλίγια - «Ανάρμοστη συμπεριφορά, το διερευνούμε» λένε οι IDF - Βίντεο
+-  Mysore Medical College Centenary : My Memories – 1
