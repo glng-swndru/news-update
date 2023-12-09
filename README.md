@@ -1,51 +1,11 @@
 # Latest News
--  [중국 소비자물가지수, 두달 연속 마이너스
--  Court win for 'comfort women' upheld after Japan decides not to appeal ruling in damages suit
--  Israeli images showing Palestinian detainees in underwear spark outrage
--  Russian athletes back in doping spotlight after Paris Olmypics green light
--  मुंबईत जुहू बीच सफाई मोहिमेदरम्यान CM Eknath Shinde यांनी घेतला ट्रॅक्टर चालवण्याचा आनंद (Watch Video)
--  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del sábado 9 de diciembre minuto a minuto
--  【今日の1枚】月を横断飛行 クウェート
--  Ποιες είναι οι επόμενες εταιρείες real estate που θα εισαχθούν στο Χ.Α.
--  YPF: de la crisis de la pandemia al desafío exportador de Vaca Muerta
--  '서울의봄' 흥행 속 현실 해석 놓고 여야 정치권 공방도 치열
--  Συρία: Επτά μέλη δυνάμεων προσκείμενων στον Άσαντ σκοτώθηκαν σε επίθεση του ISIS
--  Lương hưu sẽ thay đổi như thế nào sau cải cách tiền lương?
--  Όλες οι νέες αλλαγές στο συντάξεις, εισφορές και επιδόματα
--  Honda Beat 2024 trang bị cực đỉnh không kém SH, giá bán chưa đến 32 triệu đồng đe dọa Air Blade
--  Ông Tập Cận Bình thăm Việt Nam với danh nghĩa Tổng Bí thư, Chủ tịch nước đến 3 lần là điều đặc biệt
--  Fetus Of Baby Girl Found In Plastic Bag: लोकमान्य टिळक रुग्णालयाच्या आवारात कचऱ्यात प्लास्टिकच्या पिशवीत सापडला मुलीचा गर्भ; तपास सुरू
--  George's race against time as Billingham baby desperately needs new heart for Christmas
--  Seven discounts PIP claimants could qualify for - saving some extra cash this winter
--  Norovirus shuts three wards at James Cook University Hospital in 'biggest outbreak for four years'
--  Frankland prisoner left 'shivering in cell without TV and vape' after power cut, says Middlesbrough mum
--  Proposed Hartlepool nuclear plant marks 'huge opportunity' for region, bosses say
--  Maxi's Mates: Inside the stray dog shelter just one or two pups away from 'breaking point'
--  Grinning Guisborough coffee thief behind bars for Christmas
--  Family slam gran's former care home after she was found with dirty feet and room with 'faeces' stains
--  Coatham Arena bid and scrapped controversial parking scheme among this week's planning updates
--  Flights, meals and hotels: Cash-strapped council racked up annual bill of almost £8m on corporate purchase cards
--  Bully ex cracked girlfriend's head with cockles jar leaving her unconscious in 'appalling' file of abuse
--  Thug kicked pregnant partner in stomach shouting 'I'm going to boot the baby out of you'
--  पेंडुलम डाउजिंग से भी एग्जिट पोल संभव हैं
--  PNB Announcement: 18 दिसंबर से पहले तुरंत कर लें अपने खाते से जुड़ा ये काम, नहीं तो बंद हो जाएगा आपका खाता
--  WANTIFO Launches Hair Dryer DualCare with Advanced Plasma Ionic Tech
--  Νέο τοπίο στις αγοραπωλησίες ακινήτων – Άκυρα τα συμβόλαια εφόσον περιλαμβάνουν μετρητά, εκτός και αν έχουν υπάρξει προσύμφωνα προ της 8ης Δεκεμβρίου
--  Αγία Άννα: Σήμερα 09 Δεκεμβρίου τιμάται η σύλληψη της Αγίας Άννης
--  Makna Al Masih untuk Dajjal dan Nabi Isa
--  94 израелски войници са били убити в битките в Газа от началото на войната
--  "ชัยชนะ" พร้อมโหวต "มาดามเดียร์" ชิงเก้าอี้ หน.ประชาธิปัตย์
--  [영화 ‘오펜하이머’, ‘히로시마 폭격’ 日서도 내년 극장 개봉
--  ["3000원이던 배달료 갑자기 올랐다" 소리없이 지갑 터는 ‘스텔스플레이션’[머니뭐니]
--  [진짜 마약 넣은 '마약 김밥' 만든 20대男
--  [프로야구 한화, 11승 페냐와 105만달러에 재계약
--  ["다시 사귀자"…70대 전여친 전동휠체어 망가뜨린 60대 스토커
--  Avanza justicia menstrual para niñas en CDMX
--  Τι λένε τα ζώδια για σήμερα Σάββατο 9 Δεκεμβρίου 2023
--  Godda News: योजना का नहीं मिला लाभ, मुख्यमंत्री के आदेश पर गोड्डा जिला समाज कल्याण पदाधिकारी निलंबित
--  IQ Test: మీరు నిజంగా తెలివైన వారైతే.. ఈ ఫొటోలో దాగి ఉన్న 'డబ్ల్యూ'ను 11 సెకన్లలోపు కనిపెట్టండి? చూద్దాం!
--  Check Credit Card Balance: अब बैंक जाने की जरूरत नहीं, घर बैठे चेक करें क्रेडिट कार्ड बैलेंस, जानें तरीका
--  이석봉 대전시 경제과학부시장 퇴임
--  [포토] 대전시, 2023 대전세종충남 융합 플라자 개최
--  ‘전현희 표적감사 의혹’ 유병호, 공수처 출석…피의자 조사
--  대전시, D-유니콘 프로젝트 성과 공유
+-  저무는 세계화 시대, K배터리 부담도 커진다 [최준영의 경제 바로읽기]
+-  अब इतना सस्ता हो गया iPhone 14, बंपर डिस्काउंट के बाद खरीदना हुआ आसान
+-  Toyota sähköistyy Euroopassa – Tällainen on Urban SUV, joka tulee ensi vuonna sähköautojen suosikkiluokkaan
+-  Shahana suicide case: Accused Dr Ruwise’s kin to be arraigned
+-  KL vieraili maassa, jossa pelätään nyt Putinin kostoa
+-  News24 Business | OPINION | The results are in: How a 4-day week can help SA tackle jobs challenges
+-  안드레 무니즈 ‘지켜봐주세요’ [MK포토]
+-  Thu nhập người lao động các đơn vị chế biến gỗ đạt 9,150 triệu đồng/người/tháng năm 2023
+-  Nhiệt điện Phú Mỹ nâng cao kỹ năng xử lý sự cố cho vận hành viên
+-  Timberwolves top Grizzlies 127-103 for sixth straight win
