@@ -1,51 +1,51 @@
 # Latest News
--  Extended Reality To Add $250 Billion To Indian Economy: Report
--  My Father Wanted To Confer Bharat Ratna On Manmohan Singh: Sharmistha Mukherjee
--  Adani Total Gas on Target To install 75,000 EV Charging Stations By 2030: Gautam Adani
--  Paramedics dispute to go to tribunal as registration lapse looms
--  Paramedics dispute to go to tribunal as registration lapse looms
--  中企업계 "상생협력법 본회의 통과 환영…불공정거래 근절 발판"
--  임창욱 명예회장, 대상홀딩스우 주가 급등 후 장내 매도
--  복지부, 한의약 육성 통해 '세계화 추진'
--  '마에스트라' 오늘(9일) 첫 방송…이영애, 단원들과 기싸움 '팽팽'
--  Nhiệt độ toàn cầu có thể tăng vượt ngưỡng 1,5 độ C trong năm tới
--  Cô gái ngoài 20 tuổi đã có tới 300 viên sỏi thận vì 2 thói xấu rất nhiều người trẻ mắc
--  “ชัยชนะ” มอง “เฉลิมชัย” เหมาะสมนั่งหัวหน้า ปชป.
--  리버풀, ‘전설의 아들’ 영입 협상 시작…496억 앞세워 유벤투스 제친다
--  Consejería Jurídica Federal impugna fallo sobre extinción de fideicomisos
--  দারুণ ব্যাটিংয়ে চতুর্থ দিন শুরু বাংলাদেশের
--  VIDEO: Novia impacta con atrevido vestido en su boda; así reaccionó el novio
--  Tử vi 12 cung hoàng đạo ngày 9/12: Sư Tử cẩn thận bị lừa gạt
--  Meta sử dụng 1,1 tỷ ảnh để huấn luyện AI, có khả năng trong số đó bao gồm ảnh của chính bạn
--  Dabigi assumes duty as 42nd Commissioner of Police in Kaduna
--  Минобороны сообщило о сбитом тараном дроне ВСУ «Баба Яга»
--  Jojo terus gegar dunia, menang KO ke atas dalam masa 36 saat
--  गोरखनाथ, गोरखा र पर्यटन
--  प्रकृतिको चमत्कार एलोस्टोन राष्ट्रिय निकुञ्ज
--  सांसदलाई प्रशिक्षण दिएर संसद्मा पठाउनुपर्छ : पाण्डे
--  हृदयरोग उपचारका साक्षी
--  आगलागीबाट एक घर जल्यो
--  कष्टकर यात्राको सम्झना (कविता)
--  गजल
--  तराईमा बाक्लो हुस्सुसँगै चिसो बढ्यो
--  Hà Nội thanh tra việc chậm đóng bảo hiểm tại 45 doanh nghiệp
--  В России создали беспилотники для ледовой проводки и маркировки айсбергов
--  मुख्यमंत्री के नाम पर कल लगेगी मुहर! वसुंधरा-बालकनाथ या कोई और, यहां जानें
--  दिल्ली में फरिश्ते स्कीम को लेकर सुप्रीम कोर्ट में पहुंची ‘एलजी बनाम सरकार’ की लड़ाई, जानिए पूरा मामला
--  مشروع قرار بمنظمة الصحة العالمية بشأن الوضع الإنساني الكارثي في غزة
--  इंटरव्यू: विधानसभा चुनाव में हार के बाद बिखरे विपक्ष के लिए क्या हो 2024 की रणनीति? एक्सपर्ट ने बताया प्लान
--  अटापट्टू से डॉटिन तक… इन धाकड़ खिलाड़ियों पर ऑक्शन में होगी झमाझम पैसों की बारिश!
--  ‘จุรินทร์’เชื่อเลือกหัวหน้า ปชป.เรียบร้อย ระบุการแข่งขันในพรรคเป็นเรื่องปกติ
--  केशवानंद भारती केस : वो सुप्रीम फैसला जिसने खींच दी थी संसद की लक्ष्मण रेखा, भड़क गईं थीं इंदिरा गांधी
--  Bán tải Kia cùng cỡ Ranger, Hilux chốt sản xuất năm sau: Xuất xưởng khoảng 130.000 xe/năm, sẽ bán ở nhiều nước
--  Pedestrian hit, killed by driver in South San Jose
--  “อภิสิทธิ์” ไม่รู้ “ชวน” จะเสนอชื่อ บอกรอให้ถึงเวลา
--  সায়মা ওয়াজেদ পুতুলের জন্মদিন আজ
--  Ícone da literatura infantil, Ruth Rocha lança novo livro aos 92 anos e faz sessão de autógrafos na Livraria da Vila
--  Latvijas tirgotāji brīdina, ka varētu pieaugt olīveļļas cenas
--  Natal da Disney Grátis em SP: encontros ao vivo com Mickey, Minnie, Donald e Pateta acontecem no Shopping Tietê Plaza
--  Mais de 20 atrações com desconto: é a Black Friday da diversão e turismo em São Paulo
--  Marcelo Paz renuncia à presidência do Fortaleza para integrar SAF
--  Gaza fighting intensifies, US vetoes Security Council demand for ceasefire
--  Porziņģis atgriežas ar 19 punktiem jau pirmajā puslaikā un uzvaru pār "Knicks"
--  Presenta diputada segundo informe de actividades
+-  השחקן ריאן אוניל ("סיפור אהבה") הלך לעולמו בגיל 82
+-  تمهيدًا لضربها.. الولايات المتحدة ترصد أهدافًا أولية لمواقع مليشيا الحوثي
+-  Appel à candidatures pour le conseil municipal des jeunes de Msamboro
+-  CCIC celebra su tradicional cena navideña
+-  ร.17 ตรวจความพร้อม ชป.บรรเทาสาธารณภัย ประจำสัปดาห์
+-  Bodrumda yangın: Korku dolu anlar yaşandı
+-  İsrail gece boyu Gazze'yi kana boyadı: Çok sayıda şehit ve yaralı var
+-  Herbs benefits: ఈ ఆయుర్వేద మూలికలతో..మీ ఆరోగ్యం పదిలం
+-  Robbed, Silenced, and Betrayed: Why Gazans Turned Away From Hamas
+-  Northern Ireland’s growing confidence
+-  ร.17 พัน.2 พร้อมรบ พร้อมใจ ลุยภัยทุกพื้นที่
+-  СК опроверг данные о смерти ребенка во Владивостоке из-за корейской еды
+-  YouTube Luncurkan Fitur Jeda Komentar, Apa Itu?
+-  Crowds bake at Sydney concerts as mercury soars
+-  CIF state football championships: Friday’s scores, Saturday’s schedule
+-  Turki Tegaskan Lagi Solusi Dua Negara untuk Atasi Konflik Israel-Palestina
+-  Bobby Deol: ਬੌਬੀ ਦਿਓਲ ਦਾ ਬੇਟਾ ਆਰੀਆਮਨ ਦਿਓਲ ਵੀ ਬਾਲੀਵੁੱਡ 'ਚ ਕਰਨ ਜਾ ਰਿਹਾ ਐਂਟਰੀ, ਐਨੀਮਲ ਐਕਟਰ ਨੇ ਕੀਤਾ ਕਨਫਰਮ
+-  BARCLAYS PLC SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Barclays PLC - BCS
+-  ROBLOX SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF OVER $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Roblox Corporation - RBLX
+-  CHARGEPOINT SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against ChargePoint Holdings, Inc. - CHPT
+-  DOLLAR GENERAL SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuits Against Dollar General Corporation - DG
+-  FISKER SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: Kahn Swick & Foti, LLC Reminds Investors with Losses in Excess of $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against Fisker Inc. - FSR
+-  LIVEPERSON SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against LivePerson, Inc. - LPSN
+-  ADAPTHEALTH SHAREHOLDER ALERT BY FORMER LOUISIANA ATTORNEY GENERAL: KAHN SWICK & FOTI, LLC REMINDS INVESTORS WITH LOSSES IN EXCESS OF $100,000 of Lead Plaintiff Deadline in Class Action Lawsuit Against AdaptHealth Corp. - AHCO
+-  Ogun places N50m bounty on killers of finance director
+-  الصحة العالمية: أكثر من ٣٠٪ من النساء يعانين من مشاكل بعد الولادة
+-  Dhoni Daughter: ధోని కుమార్తె స్కూల్, ఫీజు వివరాలు మీకు తెలుసా?
+-  [양주 지식산업센터 공사장서 20대 근로자 추락사
+-  Gibran Hadiri Deklarasi Dukungan Buruh Pelabuhan di Cilincing
+-  'K푸드' 인기…경북 농산물 수출 '연간 1조원 시대' 활짝
+-  Gia Streaming: Watch & Stream Online via HBO Max
+-  ব্যতিক্রমী র‌্যাম্প শো, ‘মডেল’ হয়ে হেঁটেছে সুসজ্জিত গরু
+-  كيف تبدو رائحة الفضاء؟!
+-  আওয়ামী লীগ নেতার হলফনামায় লেখা ‘জাতীয় পার্টির প্রার্থী হতে ইচ্ছুক’
+-  เตรียมความพร้อมของกำลังพล ยุทโธปกรณ์
+-  बेहद खूबसूरत है मैसूर का ये गार्डन, एक बार जरूर जाएं
+-  George and Gillespie go toe-to-toe, Petrovsky nets OT winner
+-  كيف نحصل على ألوان أعيننا؟
+-  Baldur’s Gate III คว้ารางวัลเกมแห่งปีจาก The Game Awards 2023 พร้อมรายชื่อเกมที่รับรางวัลในสาขาอื่นๆ
+-  एनआयएची आयसीसवर मोठी कारवाई, देशभरात 44 ठिकाणांवर एनआयएचं धाडसत्र
+-  هل للعزلة فوائد على الصحة؟!
+-  Federal Appeals Court Strikes Down Parts of New York Gun Law, Upholds Others
+-  ร.17 พัน.3 ในพระองค์ฯ ตรวจความพร้อมของหมวดเตรียมพร้อม
+-  Morning Headlines 9th December : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा Morning News
+-  मुखुन्डो
+-  Govt. curb mercenary recruitment through local agents
+-  Beşiktaş Fenerbahçe derbisinin ilk 11'leri belli oldu. Rıza Çalımbay ve İsmail Kartal'dan flaş kararlar
+-  US embassy in Baghdad struck with mortars as attacks escalate
+-  В ХАМАС заявили, что армия Израиля разрушила Великую мечеть в Газе
+-  Dolmabahçe'de dev düello! İşte Beşiktaş-Fenerbahçe derbisinin ilk 11'leri
