@@ -1,51 +1,51 @@
 # Latest News
--  Lo primero que veas en este sencillo test te dirá si eres una persona organizada
--  Estos son los números de la suerte para hoy sábado 9 de diciembre
--  Гороскоп для всех знаков зодиака на 9 декабря: прогноз и советы на день
--  한미일 안보실장 “北 비핵화 위한 공조 강화” 합의
--  한화, 외인 에이스 페냐와 최대 105만 달러 재계약
--  하나원큐, 10일 BNK전서 ‘하나원큐 파트너스데이’ 진행
--  Tog restaurangbild – fick nota på 631 000 kronor
--  Estas son las ciudades más caras y más baratas de Latinoamérica, Buenos Aires está en la lista
--  This Song Connected Elvis Presley to His Gospel Roots
--  Pleasant Hill neighborhood locked down for a second time in less than 24 hours
--  Dragon men's basketball fends off Bemidji State to remain undefeated
--  ’มาดามเดียร์‘ โพสต์ภาพย้ำจุดยืน ประเทศไทย-ประชาธิปไตย-ประชาชน
--  REVEALED: Shohei Ohtani was NOT aboard private jet from Anaheim to Toronto as disappointed Blue Jays fans learn the flight in question was really carrying Shark Tank's Robert Herjavec
--  Elektroniikkakoira on poliisin uusin apuri, eritekoirat ovat nuuskineet jo pari vuotta
--  Elektroniikkakoira on poliisin uusin apuri, eritekoirat ovat nuuskineet jo pari vuotta
--  주식 양도세 기준 두고 왜 난리인가 봤더니…
--  Llega Milei (con muchas incógnitas), tras un mal gobierno de Fernández
--  Por qué consumimos más en Navidad y cómo evitarlo con la ayuda de la neurociencia
--  El chico del sombrero blanco
--  Otra forma de entender la educación superior
--  La inclusión de los discapacitados en la agenda del papa Francisco
--  Comienza un nuevo ciclo
--  Iniciativa estudiantil digna de ser imitada
--  “Se puede hacer humor con todo, dentro de lo que el humorista pueda y la ley permita”
--  "LA에서 왔어요"…'샵사이다' 홀리데이 팝업스토어 오픈
--  Los productores, a la espera del “plan Milei”
--  Regional Amateur: última fecha para los equipos zonales que buscan la clasificación
--  맹승지, 비키니 입고 온천욕…반전 글래머 몸매[★핫픽]
--  Bronny James hits the practice court ahead of his anticipated NCAA debut for USC on Sunday five months after LeBron's son suffered cardiac arrest
--  City Puasa Kemenangan, Guardiola: Mungkin Butuh Tantangan
--  Polisi Ringkus 2 Pelaku Pengeroyokan Pemuda di Makassar
--  Uji Kalibrasi Bandara Internasional Dhoho Kediri
--  नेपाल–अङ्ग्रेज युद्ध बुटवलको लडाइँ
--  Прогноз погоды на 9 декабря: понижение температуры, местами дожди
--  Mobile Grünabfallentsorgung landet in der Tonne
--  Fadel Muhammad Minta Pejabat Publik Fasilitasi Kebutuhan Rakyat
--  Kia revela una nueva versión de su modelo más popular
--  A cinco años de la Ley Justina: cómo sigue su implementación y qué cambió
--  Robo de comercios y automóviles: en barrio San Martín crece la preocupación
--  Κινούμαι Ηλεκτρικά 2: Πόσο ισχύει το πρόγραμμα
--  Carne vacuna: ¿qué viene de ahora en más?
--  B.C. lawyer facing U.S. money laundering, fraud charges suspended by law society
--  Relief to ACC Ltd: MCA reckons treatment of Calendar Year as Financial Year, imposes no penalty for Delay in Filing Annual Returns
--  Live: Black Caps vs Bangladesh - second test, day four in Dhaka
--  Ecuador en la Copa América 2024: A revertir el pésimo desempeño en ese torneo
--  Llegó el futuro ¿como lo imaginábamos?: los autos podrán usar ChatGPT
--  Presidentinvaalikone: Valtaosa ehdokkaista haluaisi Naton toimintoja Suomeen
--  Reality Lengua y bola: La oportunidad para mostrar el talento al narrar fútbol
--  Haminan parhaat pitsat | Haminan Sunrise salaa kastikereseptinsä eikä hyljeksi ananasta – "Jos pitsassa ei ole hyvää taikinaa, ei ole hyvää pitsaakaan"
--  Haluat siis presidentiksi? – Mediakonserni Keskisuomalaisen uusi podcast syväluotaa presidenttiehdokkaat
+-  [중국 소비자물가지수, 두달 연속 마이너스
+-  Court win for 'comfort women' upheld after Japan decides not to appeal ruling in damages suit
+-  Israeli images showing Palestinian detainees in underwear spark outrage
+-  Russian athletes back in doping spotlight after Paris Olmypics green light
+-  मुंबईत जुहू बीच सफाई मोहिमेदरम्यान CM Eknath Shinde यांनी घेतला ट्रॅक्टर चालवण्याचा आनंद (Watch Video)
+-  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del sábado 9 de diciembre minuto a minuto
+-  【今日の1枚】月を横断飛行 クウェート
+-  Ποιες είναι οι επόμενες εταιρείες real estate που θα εισαχθούν στο Χ.Α.
+-  YPF: de la crisis de la pandemia al desafío exportador de Vaca Muerta
+-  '서울의봄' 흥행 속 현실 해석 놓고 여야 정치권 공방도 치열
+-  Συρία: Επτά μέλη δυνάμεων προσκείμενων στον Άσαντ σκοτώθηκαν σε επίθεση του ISIS
+-  Lương hưu sẽ thay đổi như thế nào sau cải cách tiền lương?
+-  Όλες οι νέες αλλαγές στο συντάξεις, εισφορές και επιδόματα
+-  Honda Beat 2024 trang bị cực đỉnh không kém SH, giá bán chưa đến 32 triệu đồng đe dọa Air Blade
+-  Ông Tập Cận Bình thăm Việt Nam với danh nghĩa Tổng Bí thư, Chủ tịch nước đến 3 lần là điều đặc biệt
+-  Fetus Of Baby Girl Found In Plastic Bag: लोकमान्य टिळक रुग्णालयाच्या आवारात कचऱ्यात प्लास्टिकच्या पिशवीत सापडला मुलीचा गर्भ; तपास सुरू
+-  George's race against time as Billingham baby desperately needs new heart for Christmas
+-  Seven discounts PIP claimants could qualify for - saving some extra cash this winter
+-  Norovirus shuts three wards at James Cook University Hospital in 'biggest outbreak for four years'
+-  Frankland prisoner left 'shivering in cell without TV and vape' after power cut, says Middlesbrough mum
+-  Proposed Hartlepool nuclear plant marks 'huge opportunity' for region, bosses say
+-  Maxi's Mates: Inside the stray dog shelter just one or two pups away from 'breaking point'
+-  Grinning Guisborough coffee thief behind bars for Christmas
+-  Family slam gran's former care home after she was found with dirty feet and room with 'faeces' stains
+-  Coatham Arena bid and scrapped controversial parking scheme among this week's planning updates
+-  Flights, meals and hotels: Cash-strapped council racked up annual bill of almost £8m on corporate purchase cards
+-  Bully ex cracked girlfriend's head with cockles jar leaving her unconscious in 'appalling' file of abuse
+-  Thug kicked pregnant partner in stomach shouting 'I'm going to boot the baby out of you'
+-  पेंडुलम डाउजिंग से भी एग्जिट पोल संभव हैं
+-  PNB Announcement: 18 दिसंबर से पहले तुरंत कर लें अपने खाते से जुड़ा ये काम, नहीं तो बंद हो जाएगा आपका खाता
+-  WANTIFO Launches Hair Dryer DualCare with Advanced Plasma Ionic Tech
+-  Νέο τοπίο στις αγοραπωλησίες ακινήτων – Άκυρα τα συμβόλαια εφόσον περιλαμβάνουν μετρητά, εκτός και αν έχουν υπάρξει προσύμφωνα προ της 8ης Δεκεμβρίου
+-  Αγία Άννα: Σήμερα 09 Δεκεμβρίου τιμάται η σύλληψη της Αγίας Άννης
+-  Makna Al Masih untuk Dajjal dan Nabi Isa
+-  94 израелски войници са били убити в битките в Газа от началото на войната
+-  "ชัยชนะ" พร้อมโหวต "มาดามเดียร์" ชิงเก้าอี้ หน.ประชาธิปัตย์
+-  [영화 ‘오펜하이머’, ‘히로시마 폭격’ 日서도 내년 극장 개봉
+-  ["3000원이던 배달료 갑자기 올랐다" 소리없이 지갑 터는 ‘스텔스플레이션’[머니뭐니]
+-  [진짜 마약 넣은 '마약 김밥' 만든 20대男
+-  [프로야구 한화, 11승 페냐와 105만달러에 재계약
+-  ["다시 사귀자"…70대 전여친 전동휠체어 망가뜨린 60대 스토커
+-  Avanza justicia menstrual para niñas en CDMX
+-  Τι λένε τα ζώδια για σήμερα Σάββατο 9 Δεκεμβρίου 2023
+-  Godda News: योजना का नहीं मिला लाभ, मुख्यमंत्री के आदेश पर गोड्डा जिला समाज कल्याण पदाधिकारी निलंबित
+-  IQ Test: మీరు నిజంగా తెలివైన వారైతే.. ఈ ఫొటోలో దాగి ఉన్న 'డబ్ల్యూ'ను 11 సెకన్లలోపు కనిపెట్టండి? చూద్దాం!
+-  Check Credit Card Balance: अब बैंक जाने की जरूरत नहीं, घर बैठे चेक करें क्रेडिट कार्ड बैलेंस, जानें तरीका
+-  이석봉 대전시 경제과학부시장 퇴임
+-  [포토] 대전시, 2023 대전세종충남 융합 플라자 개최
+-  ‘전현희 표적감사 의혹’ 유병호, 공수처 출석…피의자 조사
+-  대전시, D-유니콘 프로젝트 성과 공유
