@@ -1,11 +1,11 @@
 # Latest News
--  Olaf Scholz: Geschlossenheit ist Grundlage des Erfolgs
--  Nach dem Warnstreik kommt der neue Fahrplan – das ändert sich bei der Bahn
--  Heart Attack Death: 24 વર્ષની આ અભિનેત્રીનું હાર્ટ અટેકના કારણે નિધન, ઇન્સ્ટા પર આ હતી છેલ્લી પોસ્ટ
--  Die US-Wirtschaft brummt – doch niemand will das wahrhaben
--  Ціханоўская ў ЗША сустрэлася з прадстаўнікамі краін у МВФ
--  Meftal SPAS : सावधान! मेफ्टाल स्पास पेनकिलर खाताय? सरकारकडून धोक्याचा इशारा
--  Chystají se USA vstoupit do války?
--  „Atsidurs siaubingoje padėtyje.“ Dabar Gajana to gailisi (Foto)
--  Unikali operacija! Ukrainiečių įžūlumas nepaliko rusams jokių šansų (Video)
--  “Stari, pusti petarde, pokanje je čist' mim'!"
+-  Pobladores frenan extorsión de cártel; 14 muertos, tras enfrentamiento en Edomex
+-  Ninguna familia de migrantes podrá ser separada al ingresar a E.U
+-  I'm A Celebrity's Tony Bellew splashed out on an £88,000 luxury car before heading into the jungle - as he makes it to the final four
+-  Véto : Les Etats-Unis bloquent l'appel à un cessez-le-feu humanitaire à Gaza
+-  Vanessa Feltz reveals she is a woman on a mission and has gone out 330 nights in a row because finding a man 'is a numbers game'
+-  Добра и лоша новина за Григор Димитров
+-  피겨 김현겸, 주니어 GP 파이널 銀…한국 남자 최고 성적
+-  JUST NU: Linn Svahns succé
+-  Életfogytiglanit kapott a 17 éves michigani fiú, aki négy osztálytársával végzett
+-  '세계적 거장' 올리버 스톤 "차기작 소재도 '원자력', 정치적 이슈 아냐" [뉴스룸] (종합)
