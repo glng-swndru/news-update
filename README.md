@@ -1,11 +1,11 @@
 # Latest News
--  Sóc Trăng bàn giao 5 mỏ cát cho 4 nhà thầu khai thác thi công cao tốc
--  A Pennsylvaniai Egyetem rektorának lemondását követeli az egyik legnagyobb támogatója
--  হলিউডের অ্যাস্ট্রা অ্যাওয়ার্ডের জন্য মনোনীত শাহরুখের ‘জওয়ান’
--  Diretta Aston Villa-Arsenal ore 18.30: dove vederla in tv, in streaming e probabili formazioni
--  Shimla-Kalka Railway: Journey Through Time on the Historic Tracks of the Himalayas
--  Prognoza pogody
--  Unsur ‘soft porn’ dalam penulisan boleh menjadi barah
--  Increased revenue for FNPF
--  बैंक कर्मियों ने किया रक्तदान शिविर का आयोजन
--  Rusija izdala poternicu za rusko-američkom novinarkom Mašom Gesen
+-  Η Μαρίν Λεπέν θα δικαστεί για κατάχρηση κονδυλίων της ΕΕ
+-  Šarićev dabl-dabl u senci dvoboja Karija i Šaja - Micić i Pokuševski bez minuta VIDEO
+-  Guatemala'da devlet başkanı seçiminde idari usulsüzlük iddiası
+-  Rıza Çalımbay derbi için emir verdi! "Kaleyi gördüğünüz yerden vurun"
+-  Meteoroloji'den 36 il için sarı ve turuncu kodlu uyarı
+-  Trabzonspor'un 15. hafta rakibi Gaziantep FK
+-  Bahçeli'den İsveç'in NATO üyeliğine Filistin şartı
+-  Köylüler ile çete arasında kanlı çatışma: 11 ölü
+-  Sofia Vergara looks carefree in a gray bomber and lounge pants as she's seen after a contractor claimed she didn't pay for $1.7M of work
+-  China deflation accelerated in November: official data
