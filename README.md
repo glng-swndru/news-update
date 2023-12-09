@@ -1,11 +1,11 @@
 # Latest News
--  Los motociclistas que usan casco tienen un 73% menos de mortalidad en accidentes
--  הכוכב האדום חוגגת שיא עולמי, בכר: "נחמד להיות חלק מהיסטוריה"
--  "סבא מכר מאפים מעגלת תינוק, היום יש לנו 60 סניפים ומפעל"
--  استشاري يحذر: مقطع إخراج حجر من عين مريض تدليس وفبركة وكذب
--  Kärppien mahtikiristä jäi jäljelle vain paha mieli – Tuukka Tieksola puijasi vanhaa seuraansa: "Kiekot löysivät kovalla prosentilla verkkoomme"
--  Klimaatactivisten vergroenen Canal Grande
--  “قذارة جديدة تضاف إلى نفايات العالم”.. زارا ZARA تروج لمنتجاتها بأكفان وجثث فلسطينيين!
--  Batņa gūst divus vārtus uzvarētā Somijas čempionāta spēlē
--  Vince Russo on Dealing With the Politics of WCW’s Locker Room, Has No Regrets
--  Heather Graham, 53, Sizzles in Steamy Sex Scene in Thrilling New Film
+-  Lunteren zorgt voor stunt bij koploper Nieuw Utrecht
+-  Activan brigadas azules para recuperación de plazas en Maturín
+-  Pólvora y agua caliente, principales causas en quemaduras de niños en Honduras
+-  ‘I’m not doing this to have a crack at rugby’: Why Wallabies star couldn’t say no to Roosters
+-  How ego and fear fuelled the rise of artificial intelligence
+-  How ego and fear fuelled the rise of artificial intelligence
+-  Beautiful, ugly or offensive? This artist’s work polarises
+-  ‘I’m not doing this to have a crack at rugby’: Why Wallabies star couldn’t say no to Roosters
+-  Beautiful, ugly or offensive? This artist’s work polarises
+-  Abatieron pobladores de Texcaltitlán a 10 criminales
