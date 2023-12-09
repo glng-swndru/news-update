@@ -1,11 +1,11 @@
 # Latest News
--  "Proglasite vanredno stanje u Nemačkoj"
--  Jokić nije bio spreman za šalu VIDEO
--  이상민 장관 quot;제주 행정체제 개편, 주민 요청 시 적극 검토quot;
--  Indian Jewellery Industry To Resume Rough Diamond Imports After Dec 15
--  يديعوت أحرونوت: إصابة نحو 5000 جندي إسرائيلي بينهم 2000 بإعاقة بحرب غزة
--  اتصال هاتفي.. السيسي وبوتين يبحثان سبل وقف إطلاق النار في غزة
--  "إضافة كبيرة".. بركات يعلق على اعتزال طارق حامد اللعب الدولي
--  الانتخابات الرئاسية 2024.. فراشة وإنارة وكراسي متحركة بلجان الدقهلية
--  بيراميدز بالزي الأساسي في مواجهة صنداونز بدوري أبطال أفريقيا
--  علامة في الذراع تكشف ارتفاع مستويات السكر بالدم- انتبه
+-  Common arthritis drug suppress the progression of type 1 diabetes
+-  New York’s $54 million pot haul shows legal weed dreams up in smoke
+-  ARD-Mittagsmagazin ab 2024 aus Leipzig: Mittel gegen Beitragskritiker?
+-  대만 스타트업, SWITCH 2023 참가
+-  अध्यक्ष पद पर सर्वाधिक 6 प्रत्याशियों ने लिया पर्चा
+-  Phoebe Litchfield, 20-Year-Old Auctioned By Gujarat Giants For 1 Crore In WPL Auction 2024
+-  El Zaragoza CFF y la S.D. Huesca se enfrentan en un emocionante derbi aragonés
+-  Drake Menghidupkan Kembali Taman Hiburan Fantasi yang Terbengkalai
+-  Alta Fidelidad. Babasónicos en el museo: detrás de todo cuadro se esconde un videoclip
+-  فؤاد تشارك في الحدث الجانبي للتوأمة بين مبادرتي الرئاستين المصرية والإماراتية لـCOP27 وCOP28
