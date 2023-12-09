@@ -1,51 +1,11 @@
 # Latest News
--  Kashmir: Police constable shot at by suspected militants in Srinagar
--  Luis Suárez no quiere confirmar que llegará al Inter Miami de Messi
--  Beşiktaş'ta Salih ve Gedson oyuna devam edemedi
--  Gary Neville shares five-word reaction immediately after Manchester United defeat to Bournemouth
--  Lazio, Sarri: “Non abbiamo preso tiri in porta. Il gol di Ngonge…”
--  انفجار خط وقود في الصحراء الغربية شمالي المنيا
--  الصحة بغزة: قناصة الاحتلال قتلوا عددًا من النساء الحوامل بمستشفى كمال عدوان
--  توقعات بتثبيت الفائدة وترقب لبيانات الفيدرالي لقراءة مؤشرات الخفض في 2024
--  السجن 3 سنوات للمتهم بسرقة 460 ألف جنيه من مصفف شعر بالجيزة
--  بعد استلامها المشروعات.. مهام شركات الصيانة المسؤولة عن شقق الإسكان الاجتماعي
--  الهجرة تنشر فيديوهات لتعريف أبناء المصريين بالخارج بالتاريخ والحضارة
--  جيش الاحتلال يعلن مقتل وإصابة 17 من جنوده خلال المعارك اليوم بغزة
--  تداعيات حرب غزة على العقيدة الصهيونية
--  خالد الجندي: المشاركة في الانتخابات الرئاسية شهادة يحاسب عليها العبد -(فيديو)
--  هل يؤثر تناول البيض على صحة القلب؟- لن تتوقع ما يحدث
--  وزيرة الهجرة تكشف لـ"مصراوي" سبب الإقبال الكثيف للمصريين بالخارج على الانتخابات الرئاسية
--  أول تعليق من محمد صلاح عن رقمه القياسي
--  Los tesoros que deja el paso del tiempo
--  Beveik nebesirodo. Su kuo Putinas praleidžia daugiausiai laiko
--  [ŽT] Sudaužytas „Boeing 727“. Paaiškėjo saugiausios vietos lėktuve (Video)
--  Tamsioji šlovės pusė. Senovės Egipte šventųjų beždžionių gyvenimas nebuvo lengvas
--  Israel: China dececionada com veto dos EUA na ONU a cessar-fogo em Gaza
--  [ŽT] „15 km zona.“ Situacija blogėja. Pradedama evakuacija prie Dniepro
--  Πέγκυ Τρικαλιώτη: Η Φραντζέσκα μού έχει αλλάξει όλη τη ζωή, είναι συνέχεια στο μυαλό μου
--  Meglepő adatokat közölt Karácsony Gergely
--  Neuspešno reševanje, 25-letni talec je mrtev
+-  Scheikundige Henk Buck dacht aids uit de wereld te kunnen helpen – het bleek het einde van zijn carrière
+-  دراسة تفجر مفاجأة بشأن الأسبرين!
+-  تناول الفول على الريق يضبط السكر ويحمي القلب ويعالج 5 أمراض خطيرة
+-  اذهب للطبيب فورا.. علامات تنذر أن شرايينك مغطاة بالدهون والكوليسترول
+-  Russland-Wahlen: Ukraine verurteilt Wahl-Pläne Moskaus für besetzte Gebiete
 -  Genieten op de Winterfair bij Kulturhus Wekerom en de kerstmarkt in Lunteren
--  Scheidsrechter de gebeten hond bij Ede/Victoria
--  Eingestellte Ermittlungen gegen Ex-Bauamtsleiter der Stadt Gelnhausen: Litzinger legt Beschwerde ein
--  V Moldave nad Bodvou budú opäť miestne občianske hliadky
--  DESIVÁ TRAGÉDIA Ľudka ZOMRELA pod kolesami VLAKU, vlastným telom ZACHRÁNILA kamarátku Eriku! Mrazivé SVEDECTVÁ o sekundách hrôzy
--  Češka okrádala krajanov v Egypte o státisíce: Brala zálohy na výlety a apartmány, no k realizácii už nedošlo!
--  هل ارتفعت أسعار السلع في الأردن بسبب العدوان الاسرائيلي على غزة؟ .. الحكومة تجيب
--  وزير البيئة يلتقي الأمين التنفيذي بالوكالة لاتفاقية التنوع الحيوي
--  سرايا القدس تستهدف قوة إسرائيلية شرقي خانيونس
--  أمن غزة يحذر من أجهزة تجسس ألقاها الاحتلال في أنحاء القطاع
--  تفاصيل الحالة الجوية يوم الاحد- تحذيرات
--  يديعوت أحرونوت: 2000 جندي صهيوني مصاب بحرب غزة تم تصنيفهم على أنهم معاقون
--  قرار اميركي صادم بشأن اسرائيل
--  الارصاد : انقلاب على حالة الطقس وامطار غزيرة بهذا الموعد
--  حزب الله يقصف ثكنة برانيت وموقع الناقورة البحري
--  الحوثيون يعلنون منع مرور السفن إلى إسرائيل
--  صحة غزة: ارتفاع عدد الشهداء إلى 17700
--  الاحتلال يُعلن مقتل 5 ضباط وجنود في غزة وعدد القتلى الاجمالي يرتفع لـ 102
--  القسام تكشف عن عمليات مزلزلة مساء اليوم - بيان
--  يونيسيف: غزة هو أخطر مكان في العالم بالنسبة للطفل
--  محاضرة تثني على تماسك الجبهة الداخلية وصمود أهل قطاع غزة
--  Μπήκε σε περιπέτειες παραμονές των Χριστουγέννων - Οι πληροφορίες που έφεραν τη σύλληψη 28χρονου στην Κοζάνη
--  La vignetta del giorno
--  PS: Carneiro diz que só ele pode impedir vitória da direita nas Legislativas
+-  Rekolekcje „Pociągnij mnie za sobą!”
+-  BGL Ligue: Péiteng léisst Miersch keng Chance
+-  Ancora Bellingham ma non basta: Real frenato a casa Betis
+-  الخليج اليوم .. بيان جديد من الديوان الأميري بشأن صحة أمير الكويت
