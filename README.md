@@ -1,51 +1,51 @@
 # Latest News
--  Tối đến, giới trẻ "lên đồ" và chen chúc trên con phố đẹp nhất Hà Nội dịp Giáng sinh
--  FICHAJES 2024: Cruz Azul mejora oferta de Chivas por Guillermo Martínez
--  «La guagua hace mucha falta» en San Nicolás
--  El gasto social subirá un 1,52% en 2024 y se situará por encima de los 34 millones de euros
--  La Orquesta Comunitaria de Gran Canaria reivindica la zarzuela
--  Венесуэла и Гайана проведут переговоры об Эссекибо
--  Las «pioneras» que han alcanzado el generalato
--  Manchester United Dipecundangi Bournemouth 0-3, Begini Reaksi Erik ten Hag dan Bruno Fernandes
--  "Anatomie eines Falls" räumt beim Europäischen Filmpreis ab
--  «Los profesores huyen porque el trato diario con las aulas provoca ansiedad y estrés»
--  «Los profesores huyen porque el trato diario con las aulas provoca ansiedad y estrés»
--  قديروف: لا أحد أجدر من بوتين لقيادة روسيا
--  تراند اليوم : أفضل جدول كيتو دايت لمدة شهر للمبتدئين 2024 رجيم خسارة الوزن
--  تراند اليوم : أفضل مواقع العاب PC كاملة 2024 للكمبيوتر
--  Lotería Nacional de Panamá EN VIVO: resultados domingo 10 de diciembre y ver números
--  Canmore feral rabbit cull called off after disease decimates population
--  «La vivienda vacacional tiene que tener un límite»
--  Бойцы РФ уничтожили спецназовца из Шри-Ланки по прозвищу «Дантист» в ДНР
--  San Bartolomé adjudica el arreglo del aparcamiento junto a la iglesia
--  Θεσσαλονίκη: Επεισόδια μεταξύ αντιεξουσιαστών και ΜΑΤ έξω από το Αριστοτέλειο Πανεπιστήμιο
--  Harry Kane tịt ngòi, Bayern Munich thua trận đầu tiên tại Bundesliga
--  شاهد ماذا فعل ثعبان كوبرا عندما تفاجأ بشباب سعوديين يتناولون الطعام في البر!!
--  هل "شوربة الكوارع" تساعد على استعادة الكولاجين بالجسم؟.. بالفيديو "طبيب" يجيب
--  Se retoma la obra del hotel de lujo que irá junto a Los Ancones
--  Se enfrenta a 16 años por quemar la casa de su ex con cuatro personas más dentro
--  A juicio el protésico acusado de haber abusado sexualmente de una niña en su consulta
--  Watch: TVXQ Is As Passionate As Ever In Fun “Amazing Saturday” Preview
--  하나은행, 외국환 지식 경연대회 ‘골든벨 전국체전’ 결선 진행
--  '충격의 5실점'→김민재 저조한 '평점 6.2점'...뮌헨, 프랑크푸르트에 1-5로 무너지며 시즌 첫 패
--  '마이 데몬' 계약 부부 된 송강♥김유정, 기습 입맞춤 엔딩…"네가 죽는 게 싫어서"
--  Nach Venezuelas Säbelrasseln: Krisengipfel mit Maduro und Ali angekündigt
--  Con Jairo Concha: así fue el segundo día de exámenes médicos en Alianza Lima
--  محمد عبدالواحد: عقوبة الزمالك ضد الثلاثي الموقوف لتهدئة الرأي العام
--  El túnel de acceso a la caverna de Salto de Chira empieza a excavarse en enero
--  В Уэльсе семья дважды провела похороны родственника из-за ошибки, пишут СМИ
--  Debate due over copper wire closure
--  Tall ships organiser scoops prestigious award
--  Top Viewed Wikipedia Pages of 2023: Oppenheimer and Matthew Perry
--  Artenara tiene lista su fábrica para crear energía con biomasa
--  Every phone call is a goodbye, says Vancouver resident with family in Gaza
--  الخليج اليوم .. أنور قرقاش يعلق على "الفيتو" الأمريكي ضد مشروع قرار إماراتي طالب بوقف إطلاق النار في غزة
--  Free Fire: agenda semanal para hoy hasta el 11 diciembre de 2023; tutorial para ganar diamantes gratis
--  No cometas este error antes de las grandes comidas navideñas
--  No cometas este error antes de las grandes comidas navideñas
--  No cometas este error antes de las grandes comidas navideñas
--  "성실 상환 차주도 힘들다"…은행권 상생금융 '역차별' 논란
--  부동산 PF 후폭풍 예고…증권, 내년 6월 만기 12조원
--  «Hemos blanequado el paisaje de la esclavitud sexual desde la infancia»
--  노원, 촘촘한 관리로 주민만족 지역사회서비스 완성한다.
--  강동구, 민·관 함께 한파 취약계층 안전 챙겨
+-  ldquo;포항in 최병욱을 아세요rdquo;...북 콘서트 lsquo;성황rsquo;
+-  Belasan Murid SMAN 26 Jakarta Diduga Jadi Korban Perundungan Kakak Kelas
+-  Con orgoglio Busto va prima sotto poi batte Bergamo
+-  Sconfitta casalinga per Moncalieri contro la capolista Derthona
+-  إنتشار فيروس جديد في سورية و تسجيل حالتي وفاة
+-  Towie’s Amber Turner shows off her flawless figure as she models revealing lacy lingerie
+-  [건설장비 전시회가 된 CES…HD현대·두산이 내세울 무기는? [비즈360]
+-  [‘돈가뭄’에 대부업서 급전 빌린 가구주 비중 ‘8%턱밑’…4년만에 상승
+-  BBC Breakfast’s Naga Munchetty stuns viewers with X-rated joke while hosting Have I Got News For You
+-  健康網》「蜜蘋果」可遇不可求！ 半透明因糖化不完全
+-  مشروب ساخن شهير يقلل من خطرالتدهور المعرفي
+-  Premier League | Everton vs. Chelsea, con Moisés Caicedo: horarios y ‘streaming’ para ver en vivo por la fecha 16 este 10 de diciembre
+-  América: Este fue el primer partido profesional del club
+-  어린 프로 선수들의 일탈, 운동보다 인성이 먼저
+-  Presidente Abinader inaugura nuevas instalaciones del Instituto de Seguridad Social de las FA
+-  Crew race to 2-goal lead in 1st half, hold on to beat LAFC 2-1 for 3rd MLS Cup
+-  Robert Kraft's appearance on College GameDay sends mixed signals about the future
+-  Serie A de Italia: Lautaro Martínez, golazo y figura en Inter
+-  Leaders PSG beat Nantes to stretch winning run to eight
+-  Más de 12,300 habitantes beneficiados con pavimentación de calle en La Palma, Chalatenango
+-  Father of American jailed in Ukraine blames Biden — RT World News
+-  Эрдоган назвал невозможным справедливый мир на Ближнем Востоке с США
+-  Bộ trưởng Công Thương: Cần "đoạn tuyệt" xuất khẩu tiểu ngạch sang Trung Quốc
+-  Crew race to 2-goal lead in 1st half, hold on to beat LAFC 2-1 for 3rd MLS Cup
+-  Milei definió su Gabinete económico que incluye a funcionarios massistas
+-  Calon Istri Egy Maulana Vikri, Adiba Khanza Kuliah Dimana? Sukses Pikat Hati Pemain Indonesia Termahal
+-  From heatwaves to record rainfall, wild weather set to stay
+-  Two nabbed over botched 560kg cocaine import off WA
+-  Copa de la Liga 2023: Platense eliminó a Godoy Cruz y clasificó a la gran final
+-  Expert Reveals Why Dimming The Sun Could Be Vital For The Planet
+-  Sujeto prende bengala en plena proyección de la película ‘Muchachos’ en Argentina
+-  Gemini dà i super poteri a Recorder: cosa serve per i riassunti audio
+-  University of Pennsylvania President Resigns from Her Post as Pressure Grows
+-  Murder probe after woman dies near house fire
+-  Cuál es el retoque estético íntimo que se realizó Benjamín Vicuña y que quedó al descubierto
+-  This 32-inch LG gaming monitor is down to $187
+-  22 DINARA PO KILOGRAMU Država ovo nudi po subvencionisanim cenama
+-  Tuyên Quang: Hơn 5.100ha trồng cam, Hàm Yên đánh thức "mỏ vàng" 100 tỷ đồng
+-  ДНР 18 раз за сутки попала под обстрел ВСУ
+-  Arteta: Arsenal Tak Pantas Kalah
+-  Adiba Khanza dan Egy Maulana Vikri Menikah Hari Ini
+-  Tràn lan xe đạp điện trôi nổi
+-  Def Leppard, Journey announce co-headlining 2024 tour
+-  Iraqi militia says attack on US embassy in Baghdad ‘is just the beginning’
+-  TOP NEWS Ore 24 - L'Inter vince e si riprende la vetta, Inzaghi: "Ora la Real Sociedad"
+-  Esposos compran el departamento de sus sueños, viajaron para amueblarlo y una explosión les quitó la vida: pensaban mudarse cuando se jubilaran
+-  NOVA ŠANSA ZA KONTROLU ZDRAVLJA: Besplatni preventivni pregledi u Loznici
+-  Be well, work well
+-  'The Kidnapping of Mark Twain' book review: Sepia-tinted Suspense
+-  "국제유가·환율 주춤"…동남아 항공권 지금 살까?
