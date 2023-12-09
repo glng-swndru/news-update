@@ -1,51 +1,11 @@
 # Latest News
--  علاج فعّال للسيطرة على الربو الحاد
--  زيلينسكي يحث القوات الأوكرانية على المبادرة في القتال
--  كيفية الدردشة عبر الرسائل القصيرة على Microsoft Teams
--  Geen brug van plantenresten in Bergse wijk: ‘Niet sterk genoeg en ontwikkelaar failliet’
--  Weihnachtstimmung in Berching: Romantischer Markt am dritten Adventswochenende
--  Velburgs Bürgermeister zieht Bilanz: Gemeinsam Herausforderungen gemeistert und Zukunft gestaltet
--  Diese Bücher sind anders, sie passen prima untern Weihnachtsbaum: Hier die Tipps der Redaktion
--  Diese Bücher sind anders, sie passen prima untern Weihnachtsbaum: Hier die Tipps der Redaktion
--  Red Sea film Festival 2023 : Les Filles d’Olfa inaugure “Asharq Documentary Award”
--  7 آيات قرآنية لعلاج النسيان احرص على ترديدها
--  El Círculo apaga 125 velas
--  Wo schmeckts am besten? Wir trinken Probe auf dem Weihnachtsmarkt in Schwabach
--  'It's So Messed Up' - Woman Put on Adderall Aged 7 Beats 28-Year Addiction
--  Child Psychologist Reveals The One Thing To Tell Kids Questioning Santa
--  College Football Sportsboook Promos: Grab $3,800 Bonuses for Army-Navy
--  A vérfagyasztó P.T.-hez fog kapcsolódni Kodzsima új horror-alkotása?
--  Viele Einrichtungen in Treuchtlingen sind weiterhin nicht barrierefrei
--  Brighton and Hove Albion - Burnley, en directo | Premier League
--  Top Stories: iOS 17.2 Coming Soon, New iPads in Early 2024, and More
--  Manchester United - Bournemouth, en directo | Premier League
--  Warum Söder Beckstein einen "blöden Hund" nannte - und was Renate Schmidt Frau Baerbock rät
--  Mit 94 Jahren regelmäßig im Fitnessstudio: "Krafttraining ist ein Jungbrunnen"
--  L’ASSE annonce ses deux prochains transferts
--  Apple @ Work: The new iMac is fantastic, but Apple forgot one thing for business users
--  Sheffield United - Brentford, en directo | Premier League
--  Mit 94 Jahren regelmäßig im Fitnessstudio: "Krafttraining ist ein Jungbrunnen"
--  Wolverhampton Wanderers - Nottingham Forest, en directo | Premier League
--  Projev prezidenta Pavla: Karel Schwarzenberg miloval svoji vlast. Odchází velká osobnost moderních dějin
--  Di Francesco: “Affronteremo una squadra in grande condizione fisica e psicologica”
--  (经济观察)中国—欧盟领导人会晤：反对“脱钩断链”
--  Vlog | 坐上中国电动巴士去迪拜气候大会会场
--  【中国那些事儿】外媒：中国稳居全球最大货物贸易出口国地位
--  综述：老-中合作论坛嘉宾热议共建“一带一路”开启新阶段
--  中国在联合国气候变化大会上推动应对气候变化南南合作受赞扬
--  专访：欧中经贸合作良好势头应保持并继续得到强化——访西班牙经济学家胡里奥·塞瓦略斯
--  亿缕阳光|退伍不褪色 欢迎回家
--  东南西北小店青年素描：站在风口 立于潮头
--  “三个统筹”“稳”“进”“立”“破” 关键词里传递2024年中国经济工作新动向
--  冬季呼吸道疾病高发 如何合理膳食提高免疫力?
--  新华时评：继往开来，推动中欧关系迈上新台阶
--  破浪前行 高质量发展迈出坚实步伐丨10个月消费38.54万亿！澎湃动力彰显中国经济韧性
--  “数字+”撬动产业升级 “云上种菜”带动农民增收致富
--  节日效应显现、消费需求增加 各地科学施策守好群众“菜篮子”
--  便民服务“暖”助企行动“惠” 为经济社会发展“添”动力
--  迪拜气候大会｜综述：中国与中东国家携手应对气候变化
--  纳米比亚开国总统：中企为纳米比亚可持续发展注入活力
--  短评：这一票，让美国站在了和平的对立面
--  美国否决安理会巴以停火决议草案 多国表示失望
--  解码“河南造”——择“新”处立 向“绿”处行
--  多举措方便患儿就诊 让群众在家门口享受便捷医疗服务
+-  UNICEF: Gazze Şeridi çocuklar için dünyanın en tehlikeli yeri haline geldi
+-  Bakan Ersoy: Turizmde bu yılı rekorlarla kapatıyoruz
+-  Trabzonspor'un Gaziantep FK kadrosu belli oldu
+-  Trabzonspor'dan Mete Kalkavan tepkisi: Kurduğunuz kirli düzeni yerle bir edeceğiz!
+-  Pooštreni uvjeti: Banke mogu tražiti i dodatno pokriće za stambeni kredit. Evo u čemu je stvar
+-  पहली नजर में ही मान लिया था पत्नी, बहन के ससुराल की उस लड़की पर ऐसे फिदा हुए थे पंकज त्रिपाठी
+-  HfK-Vorsitzende Majorczyk - Krisenmodus? Bitte helfen Sie dennoch!
+-  EK snažan partner Crnoj Gori u procesu pristupanja Uniji
+-  Tv-dokumentar tegner rosenrødt billede af Christiania: Det er som »Korsbæk på Christianshavn«
+-  Hundreds of Georgians march in support of country’s candidacy for European Union membership
