@@ -1,51 +1,11 @@
 # Latest News
--  รถขน11บังกลาเทศลอบเข้าไทยหนี จนท.ไล่ล่าหลุดโค้งพลิกคว่ำหวิดหมู่
--  ยายวัย72เริ่มไม่ไหว โรครุมเร้า ไม่อยากทิ้งแมว50ชีวิต วอนผู้ใจบุญรับเลี้ยงต่อ
--  ปิดเกม'ปชป.สตอรี่'!!! 'เดชอิศม์'มาตามนัดนั่งเลขาฯปชป.-ตั้ง 13 รองหน.พรรคยุค'เฉลิมชัย'
--  Prix du Pétrole : Une Chute Libre Sans Fin
--  [이란, 이·하마스 휴전결의 美 거부에 ‘엄포’…“중동 폭발할 것”
--  Taiwan-Canada ties surge as supporters tout trade, politics and shared values
--  Soccerladuma | Waiting Game For Chiefs & Downs On Mayo
--  ليبيا تنفق على الفرد 958 دولار سنوياً في قطاع الصحة
--  Zakes Bantwini releases his last-ever album!
--  Bakan Bolat'a ABD'li mevkidaşından tebrik
--  Türkiye'den eğitime dev yatırım: 1,7 trilyon lira
--  ARMA 8x8 Türkiye'de ilk kez envantere girdi
--  Pendikspor, Kayserispor deplasmanında
--  Kırmızı et sektörüne yönelik inceleme başladı! Rekabet Kurumu Başkanı Küle ayrıntılar anlattı
--  Beşiktaş'tan derbi biletleri için açıklama
--  Türkiye'de üretilip Avrupa'ya gönderiliyor
--  Bakan Bolat- Raimondo görüşmesiyle ilgili Ticaret Bakanlığı'ndan açıklama
--  Stort lyft för USA-diesel till Europa
--  महिला की आंखों में से निकाले गए 60 जिंदा कीड़े, देखकर डॉक्टर हैरान!
--  AB, yapay zekaya katı kurallar getiriyor
--  Parasta ovat kaverit ja askarteleminen – Pyhärannan seurakunta vuokrasi Ihoden kerhotilan testamenttivaroilla
--  Accords tuniso-roumains dans l’enseignement supérieur, la formation professionnelle et l’emploi
--  İkinci El Araba Satışında Yeni Dönem: Otomobil Firmaları Kampanya Yarışına Başladı
--  Elma ja Greta pääsivät mukaan Lasten itsenäisyyspäivän juhlaan – pääministerin kättely jännitti
--  Europe reaches deal on world’s first comprehensive AI rules
--  Juve-Napoli, fischia CalVARese: Orsato miglior arbitro d’Europa
--  AI will create more jobs than it kills
--  Ryan O‘Neal ist tot: „Love Story“-Schauspieler mit 82 Jahren gestorben
--  Daily horoscope for December 9, 2023
--  Israel-Hamas war: Gaza hammered with bombardments, Hamas dubs US veto blocking ceasefire 'inhumane'
--  Eating out and Partygate: Covid inquiry questions Sunak should prepare for
--  ยาบ้าไม่เกิน 5 เม็ด บำบัดได้ไม่ต้องติดคุก
--  الدوري الممتاز .. التعادل الإيجابي يسود لقاء البشائر والاتحاد المصراتي
--  Surrealing in the Years: President Conor is unlikely, but we're still in for a long two years
--  Hyundai Sonata 2024: precios de toda la gama
--  Rapid hofft auf das Ende der Serie gegen Salzburg
--  Découvrez le Grand JT des territoires du samedi 9 décembre
--  Tottenham v Newcastle odds boost: Get 4/1 on Son 2+ shots on target and Romero 1+ foul with Sky Bet
--  Šťastné slovo: Chcete zpátky Babiše? „Projekt Strach“ nemusí fungovat věčně
--  BVB-U19 ohne Weltmeister-Trio gegen Bayer Leverkusen: Live-Ticker zum Spitzenspiel
--  Crystal Palace v Liverpool odds boost: Get 5/1 on Salah to have 2+ shots on target and Alexander-Arnold to commit 1+ foul with Sky Bet
--  BVB-U19 ohne Weltmeister-Trio gegen Bayer Leverkusen: Live-Ticker zum Spitzenspiel
--  Probabili formazioni Atalanta Milan: un solo cambio per Pioli
--  Moves to tackle ongoing anti-social behaviour in Kilgetty
--  Hedvigs vän försvinner spårlöst en dag
--  Hedvigs vän försvinner spårlöst en dag
--  "Il n’y en a qu’un qui dirige, c’est Christian Estrosi": Pierre-Paul Léonelli est l'invité de "L'Interview à la une"
--  Hur är det med vårt dricksvatten i Västerås?
--  Change unlikely to come to the public service
--  Hur är det med vårt dricksvatten i Västerås?
+-  L'Union européenne parvient à un accord pour encadrer l'intelligence artificielle
+-  Rixe mortelle dans le Val-d'Oise: un adolescent de 17 ans incarcéré pour assassinat
+-  Predsjednik Azerbajdžana: "Armenci se mogu vratiti u Karabah, ali bod jednim uvjetom"
+-  साइकल डोर्‍याउँदै थोरोङ्ला पास छिचोल्दा!
+-  Pramod Bhagat, Sukant Kadam meet President Droupadi Murmu
+-  क्या फ्लैक्स सीड्स खाने से ब्रेस्ट कैंसर का खतरा होता है कम? क्या कहती है रिसर्च
+-  Erdogan-allieret kræver fred i Mellemøsten før Nato-ja til Sverige
+-  مصري يقتل زوجته بسبب سؤال واحد
+-  نصائح لإنشاء مطبخ يلبي احتياجاتك ويعكس شخصيتك
+-  7 تمارين تُخلصك من الدوالي نهائياً
