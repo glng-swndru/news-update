@@ -1,11 +1,11 @@
 # Latest News
--  ‘유리몸’ 토미야스에 인내심 바닥…아스널, 결국 독일 수비수 영입 박차
--  VERT pasiūlė permokos grąžinimo grafiką. Buitiniai vartotojai pinigus atgautų per 2,5 metų
--  Neįtikėtina žinia. „Jie pasirengę ir laukia. Sprogmenų užteks visam Juodosios jūros laivynui“
--  „Tai sukels nacionalinę katastrofą. Aukų skaičius bus beprotiškas...“ Skelbia visišką žlugimą
--  Byra Rusijos civilinė aviacija. Kas įvyko per pirmąsias aštuonias gruodžio dienas
--  „Greitai jie pradės „kristi“. Tai neišvengiama. Ir juose sėdės ne „vankos iš Peredriščensko“
--  SSS Retirement Benefit Requirements — A Guide on Qualifications & Documents Needed
--  Kawasaki W175 Street: कावासाकी बाइक खरीदना हुआ आसान, 1.5 लाख से भी कम है कीमत
--  Polisten kaçan ehliyetsiz sürücüye de araç sahibine de ceza kesildi
--  Gas Stations Eye Oil Price Rollback on Tuesday (December 12, 2023)
+-  Sóc Trăng bàn giao 5 mỏ cát cho 4 nhà thầu khai thác thi công cao tốc
+-  A Pennsylvaniai Egyetem rektorának lemondását követeli az egyik legnagyobb támogatója
+-  হলিউডের অ্যাস্ট্রা অ্যাওয়ার্ডের জন্য মনোনীত শাহরুখের ‘জওয়ান’
+-  Diretta Aston Villa-Arsenal ore 18.30: dove vederla in tv, in streaming e probabili formazioni
+-  Shimla-Kalka Railway: Journey Through Time on the Historic Tracks of the Himalayas
+-  Prognoza pogody
+-  Unsur ‘soft porn’ dalam penulisan boleh menjadi barah
+-  Increased revenue for FNPF
+-  बैंक कर्मियों ने किया रक्तदान शिविर का आयोजन
+-  Rusija izdala poternicu za rusko-američkom novinarkom Mašom Gesen
