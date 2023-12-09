@@ -1,11 +1,51 @@
 # Latest News
--  Türk vatandaşları için Yunan adalarında kapıda vize dönemi: Detaylar belli oldu!
--  Nebbia a Milano, le suggestive immagini del Naviglio Grande avvolto dalla scighera
--  Ftuv propondrá a la vicepresidencia creación del instituto de previsión social del sector universitario
--  Valhalla: DLC gratuito de God of War Ragnarök está a chegar
--  GOP presidential candidates weigh in on January debate participation
--  चुनाव से पहले बड़ी गड़बड़ी, 19 हजार वोटरों की फोटो एक जैसी; अभी नोटिस जा रहा है भेजा
--  Leikkimökin poltto johti hälytykseen Luumäellä
--  Milli bilardocu Tolgahan Kiraz’dan bronz madalya
--  मुर्दाघर में लाशों के बीच काम करती है ये लड़की, खूबसूरती देखकर लोग नहीं करते भरोसा
--  Na današnji smo dan svi bili ‘ludi‘, pao je Brazil na Svjetskom prvenstvu, uživajte u velikoj galeriji povijesne fešte
+-  Šćepanović, Radulović i Brajović dobitnici nagrade "Deveti...
+-  المنظمة الوطنية لمكافحة الفساد تحتفل باليوم العالمى لمكافحة الفساد
+-  الشيخ بن حبريش يستقبل رئيس وعدد من أعضاء فريق زعيم العيق الفائز ببطولة الوفاء
+-  ОН: Убиствата достигнаа рекордно високо ниво во 2021 година
+-  Glumci Katarina Baban i Slavko Sobin ispričali toplu božićnu priču: Predstava „Šapice“ ispunila Dom kulture najmlađima!
+-  Bingöl’de kamyonet kaza yaptı
+-  Германия — Новогодние каникулы на Восточно-Фризских островах: успеть «последней лошадью»
+-  פנים מול פנים, בין המבנים והסמטאות: הלוחמים נתקלים במארב - ומחסלים את המחבלים
+-  Beşiktaş evinde kazandı
+-  Edinburgh'da Filistin'e destek yürüyüşünde İsrail'e tepki: İşgali durdurun, soykırımı desteklemeyin!
+-  Joao Carlos Valado Tralhao: Takımımız beraber mücadele ederek kazandı
+-  Bakan Kacır: TÜBİTAK Destek Programları kapsamında 52 milyon lira kaynak sağladık
+-  Ankara’da başıboş köpekler bir çocuğu resmen parçaladı. Mansur Yavaş'tan açıklama
+-  Filistin halkına yapılan zulme doktorlardan protesto
+-  وول ستريت جورنال: ترامب يتقدم على بايدن في استطلاعات الانتخابات الأمريكية 2024
+-  السمك بـ 7 جنيهات واللحمة 170.. أسعار السلع المدعمة في منافذ التموين بجنوب سيناء
+-  المقاومة تخوض معارك من مسافة صفر مع قوات الاحتلال غرب جباليا
+-  وزير النقل يتابع معدلات تنفيذ القطار الكهربائي السريع (العين السخنة- العلمين- مطروح)
+-  قبل زفافه بأشهر.. "شريف" سافر روسيا لدراسة الطب فقتلته قذيفة
+-  "الصحفيين" تُشكل غرفة عمليات لمتابعة الانتخابات الرئاسية
+-  أهالي قرية طنان بالقليوبية يشيعون جثمان المبتهل ضياء الناظر
+-  خبير أبراج يتوقع نتيجة مباراة الزمالك وساجرادا في الكونفدرالية.. مفاجأة
+-  الانتخابات الرئاسية.. تجهيزات غير مسبوقة بمقار اللجان في بورسعيد- فيديو وصور
+-  "مبلغ كبير".. إبراهيم سعيد يكشف راتب معتمد جمال مع الزمالك بعد توقيع العقود
+-  مدرب فيوتشر: النادي لا يتحمل الضغط وهذا السبب لن يمنعنا من اللعب الهجومي
+-  حارس مرمى فيوتشر: اعتدنا الحضور الجماهير من الأهلي والزمالك
+-  Liverpool musel otáčať. Na pôde Crystal Palace rozhodol v samom závere
+-  ВИДЕО: Нов Бахмут, нова кланица: Русите испраќаат дури и инвалиди, трпат страшни загуби, но го опколија градот
+-  Montevideo lanza el estacionamiento tarifado a través de WhatsApp
+-  Машков объявил о сборе группы избирателей по выдвижению Путина
+-  Knapp seger för Brynäs på hemmaplan mot Arboga
+-  Farsa u Dubaiju: dok samitom paradiraju lobisti fosilnih goriva, znanstvenici vrište: ‘Granica od 1,5 stupnja je mrtva!‘
+-  Науседа наградил лауреатов гражданской инициативы «Сила Литвы» («Lietuvos galia»)
+-  Švajčiarka dosiahla životný úspech, Remeňová preteky nedokončila
+-  Nevreme će sutra okovati Srbiju, upaljena 2 meteoalarma: Evo kako će se kretati po satima, u ovim delovima očekuje se sneg (foto)
+-  System of intelligence — generative AI at the app layer
+-  Milan al bivio con un pensiero a Newcastle. Leao solo in Champions
+-  Frosinone, Di Francesco: "Toro da Europa. Barrenechea out? Ho un'idea..."
+-  "Acho que ninguém sabia disso": Timothée Chalamet e Olivia Colman revelam "mimos" que levaram do set de Wonka
+-  Para ver hoje à noite com a família: O melhor filme da Disney dos últimos anos
+-  HLV Vũ Hồng Việt tiết lộ lý do trận nào Thép xanh Nam Định cũng... thủng lưới
+-  Lazio, Zaccagni ci ha preso gusto: altro gol di tacco per l'arciere
+-  هذا ما يحدث للجسم عند تناول الفجل الأحمر يومياً!
+-  حرب مستعرة بين رشيدة طليب واللوبي الصهيوني
+-  هل شوربة الكوارع تزيد القدرة الجنسية؟
+-  تعرف على قائمة (اطعمة السعادة)
+-  لاعب مانشستر: لا يحق للنساء الحديث عن كرة القدم
+-  لماذا يجب خلع الاحذية قبل دخول المنزل؟
+-  الوحدات يهزم الفيصلي ويقترب من لقب دوري الشباب
+-  القسام توقع قوتين للاحتلال بكمينين
