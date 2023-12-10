@@ -1,51 +1,51 @@
 # Latest News
--  Telangana CM Revanth Reddy Calls on KCR at Yashoda Hospital
--  Kickoff | Segolela: A good dancer knows to leave the stage
--  Jay Shah refuses to give clarity on Rohit Sharmaâ€™s return as India T20I captain
--  Jay Shah refuses to give clarity on Rohit Sharma’s return as India T20I captain
--  हिमाली क्षेत्रमा सुकुम्वासी हुने दर बढ्न थालेकोप्रति चिन्ता
--  नागरिकलाई टोलमै पुगेर सेवा
--  Everything happens so quick, I can’t believe it the Chelsea of last two seasons, I need to speak the truth the manager and new owners are clueless, Chelsea who is set to depart to Newcastle blast owner and manager in an interview pochettino won’t be happy with it
--  용인 4050 경제인 포럼 출범 "용인, 세계적 반도체 도시로"
--  TOP 25 : महत्वाच्या 25 बातम्यांचा वेगवान आढावा : टॉप 25 न्यूज : 10 डिसेंबर 2023 : ABP Majha
--  Annesinin twerk yaptığını gören çocuğun müdahalesi sosyal medyayı salladı
--  রিমার্ক এইচবি লিমিটেড এর স্ট্র্যাটেজিক পার্টনার্স মিটে পরীমনি-অপু বিশ্বাস
--  이대성·양재민 코리안더비 성사, 미카와 연거푸 승리, 장민국도 나고야 2연전 정상 출전
--  ফরিদপুর-১ আসনে স্বতন্ত্র প্রার্থী দোলনের মনোনয়ন বৈধ ঘোষণা
--  Rusia are un nou „câlcâi al lui Ahile”. Tactica pentru penetrarea sistemului de apărare aeriană a Kievului, dezvăluită de un milblogger
--  “한국의 이 여자는 비욘세와 동급”…전세계 ‘엔터 여성파워’ 100인에 선정
--  축적(蓄積)의 시간
--  "אהובה שלי": עדן חסון מקדיש שיר חדש לאמו אסתר
--  הפועל פתח תקוה לא נרגעת: "לקחו לנו שתי נקודות יקרות"
--  אבישי כהן: "לקחתי קשה מאוד את נפילת המחנך שלי. אנחנו לא נישבר"
--  Zonguldak'ta heyelanda göçük altında kalan anne ve oğlun bulunması için çalışma yürütülüyor
--  Tokat'ta kamyona arkadan çarpan minibüsteki 5 kişi öldü
--  Kahramanlar-33 operasyonlarında bölücü terör örgütüne ait çok miktarda mühimmat ele geçirildi
--  Israel-Newsblog: Israel: Bisher etwa 7000 Hamas-Terroristen getötet
--  SP za rukometašice: Hrvatice savladale Kamerun, još su u igri za četvrtfinale
--  Pataudi Palace: ਸੈਫ ਅਲੀ ਖਾਨ ਦੇ ਪਟੌਦੀ ਪੈਲੇਸ 'ਚ ਇਕ-ਦੋ ਨਹੀਂ ਸਗੋਂ 150 ਕਮਰੇ, ਕੀਮਤ ਜਾਣ ਕੇ ਹੋ ਜਾਓਗੇ ਹੈਰਾਨ!
--  Fajardo leads early BPC race; Injured Braimoh at the forefront of Best Import derby
--  Vidamuyarchi: மீண்டும் துவங்கியது 'விடாமுயற்சி' படப்பிடிப்பு! அஜர்பைஜானில் கால்பதித்த படக்குழு - வெளியான நியூ அப்டேட்
--  Kenan İmirzalıoğlu 'Yılın Erkeği' seçildi, konuşması gündem oldu!
--  BES ile ilgili genelge yayımlandı
--  İki grup arasında bıçaklı kavga
--  Тревога на севере Израиля
--  Nothing Phone 2a : नथिंग कंपनीचा बजेट फ्रेंडली फोन, भन्नाट फिचर्स लीक; लवकरच होणार लाँच
--  현대차, 글로벌 수소 모빌리티 생태계 확산 위한 다자간 MOU 체결
--  V ormoškem obratu Carthaga od aprila izdelali tisoč počitniških kombijev
--  I’m A Celeb fans rage at bosses after Josie Gibson reveals ‘showdown’ with co-star was axed from screens
--  Psikolog Sebut Masyarakat Masih Keliru Anggap KDRT Urusan Pribadi
--  Filipinler, gemilerine müdahale eden Çin'i kınadı
--  Mısırlı seçmenler yeni Cumhurbaşkanı'nı seçmek için sandık başına gitti
--  Enerji Piyasası Düzenleme Kurumu 20 şirkete lisans verdi
--  Göçük altında kalan anne ve oğlundan ilk kötü haber geldi!
--  ‘시골 소년’이 연 7억불 신기원… 챔프 꿈 좇아 지연 조항도
--  "LAD 산하 마이너팀에 대해 묻더라"… 오타니, 지속가능한 강팀 원했다
--  Cagliari, rubano la cassa del bar del residence e nascondono droga in camera: arrestati
--  इरानद्वारा १३ हजार अवैध अफगान आप्रवासी निष्कासित
--  Lauterbach dreht wieder am Rad: Lasst Euch impfen, sonst fällt Weihnachten aus!
--  “Temos notado melhoria no cumprimento das regras de governance”
--  خضدار کے بعد ملتان اور لاہور میں بھی دھماکے، بچہ جاں بحق، متعدد افراد زخمی
--  ‘더라이브 폐지 반대’ ‘박민 퇴출’ 시청자청원만 20개… 답변 기한 임박했다
--  7 out of 10 Highest paid CEOs in India hail from IT sector. Check the full list
--  Gazzetta - Gatti ha voglia di resistere alle sirene inglesi
+-  인제서 한미연합 KCTC 훈련…장병 4200여명·전투장비 300여대 투입
+-  Rangers’ Barclay Goodrow remains in New York after taking puck to face
+-  איגוד הטניס השיק את פרויקט "מחבט לכל ילד"
+-  5,99 Euro Versandkosten für 85-Cent-Brief: Eventim-Kunde beschwert sich beim Verbraucherschutz
+-  Musk says conspiracy theorist Alex Jones will be reinstated on X after poll
+-  Ada Perbaikan di Jembatan Cikunir Tasikmalaya, Bus dan Truk Diminta Cari Jalur Lain
+-  „Haltlos“: Bürgermeister wehrt sich gegen Vorwürfe von „Unna braucht Eis“
+-  “Sabah” basketbol klubu baş məşqçisi ilə yollarını ayırdı
+-  أبرزهم عادل إمام ولبلبة.. تعرف على لجان بعض الفنانين المشاركين في الانتخابات الرئاسية
+-  Bei Elsenfeld von der Fahrbahn abgekommen - 35-Jähriger stirbt im Krankenhaus
+-  कर्नाटक क्राइम: पति-पत्नी ने पहले बेटी की हत्या की और फिर मौत को गले लगा लिया, सुसाइड नोट से खुला घटना का राज
+-  Explosion in Essener Mehrfamilienhaus: Frau rettet sich durch Sprung aus einem Fenster
+-  Bank Indonesia Bangun Tugu Rupiah Berdaulat di Perbatasan
+-  Tangguh rai ulang tahun perkahwinan, Che Ta ‘tumpas’ lagi dengan Covid
+-  انتخابات الرئاسة.. وزير التموين: أمامنا فرصة حقيقية ومستقبل مصر مرتبط بنا جميعا
+-  Aydın'da iki otomobilin çarpıştığı kazada 11 kişi yaralandı
+-  Konya'da "Mevlana" konulu yarışmanın birincilik para ödülü Filistin'e gönderilecek
+-  Konyaspor, Süper Lig'de yarın Sivasspor'u konuk olacak
+-  Anne ve kucağındaki oğlunun öldüğü kazada cip sürücüsü tutuklandı
+-  Konyaspor ile Sivasspor 28. randevuda
+-  Şanlıurfa’da geline bir valiz dolusu altın takıldı
+-  소아 비만은 성인 비만의 위험 신호
+-  Mehr Durchblick bei Girokonto-Kosten
+-  Pronađeni u stanu bez svijesti: žena (58) je preminula, muškarac (60) je teško ozlijeđen, nalazi su u bolnici
+-  الصين: سفن يابانية دخلت بصورة غير قانونية المياه المتنازع عليها
+-  Semana clave en el Gobierno: la Ley de Amnistía y la de 'Solo sí es sí', protagonistas del primer pleno de control
+-  IACD 2023: CSO calls for strengthening of anti-corruption laws, review of NEITI
+-  Čínský rover objevil na Marsu podivné pohřbené struktury
+-  ‘Absolutely crazy’ Chelsea star would grab team-mates’ private parts in dressing room
+-  정명근 화성시장, "의료 서비스에 소외되는 지역이 없도록 적극 지원하겠다"
+-  Weihnachtsmarkt 2023 in Konstanz: Öffnungszeiten und Programm
+-  Ebben a félmillió forintos cipőben bulizott Szabó Zsófi szombat éjjel
+-  विदेश मंत्री जयशंकर ने फिलिस्तीनी प्रधानमंत्री से फोन पर बात की, गाजा और वेस्ट बैंक पर चर्चा की
+-  Fragata francesa abate dois drones oriundos do Iémen no mar Vermelho
+-  Tre teenagere er ramt af skud i en forstad til Stockholm
+-  Weihnachtsmärkte in Heidelberg 2023: Öffnungszeiten, Orte und alle Infos
+-  Как распорядятся бюджетом в 2024 году в Мангистау
+-  محافظ القليوبية يتابع غرفة عمليات الانتخابات الرئاسية
+-  Israel Hamas War : 1400 साल पुरानी मस्जिद क्षतिग्रस्त, मरने वालों की संख्या 18 हजार के करीब; अमेरिका इजरायल को 14 हजार गोले भेजेगा
+-  СДСМ: Зошто Мицкоски молчи за средбите со Палевски, што крие?
+-  নির্বাচন বানচালের প্রচেষ্টা চালাচ্ছে বিএনপি-জামায়াত: সজীব ওয়াজেদ
+-  Weihnachtsmärkte 2023 in Baden-Württemberg: Öffnungszeiten und Infos im Überblick
+-  Überflutete Straßen wegen hoher Flusspegel im Kreis Donau-Ries
+-  FAVBET Premijer liga: Alkar produžetkom protiv Dubrave prekinuo negativan niz
+-  Wann finden die Weihnachtsmärkte in Stuttgart 2023 statt? Öffnungszeiten und Infos
+-  Azərbaycan bayrağı Təbrizdə dağa həkk edildi
+-  وزير المالية عقب الإدلاء بصوته في انتخابات الرئاسة: المصريون يكتبون تاريخا في الممارسة الديمقراطية
+-  Windows 12'yi destekleyen bilgisayar sayısı Windows 11'den daha az olacak: İşte sebebi
+-  التعاون الدولي والبنك الدولي يعلنان شراكة جديدة لتشجيع الابتكار وتوطين التكنولوجيا الحديثة في الزراعة
+-  Weihnachtsmarkt Esslingen 2023: Öffnungszeiten, Programm und Parkmöglichkeiten
