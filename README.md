@@ -1,11 +1,11 @@
 # Latest News
--  Sürün kurtulun
--  Guterres, ABD'nin veto kararına tepki gösterdi: BM'nin otoritesi zedelendi
--  VfB Stuttgart - B. Leverkusen, en directo | Bundesliga
--  Prof Moyo tears into Coltart
--  CAI es tricampeón del fútbol panameño
--  İsrail ordusu, Gazze'de yaralanan 559 askerini tahliye etti
--  Hamas, unsurlarının teslim olduğu iddiasını yalanladı: Kassam kahramanları teslim olmaz
--  Davinson Sanchez'den transfer itirafı! "Falcao'yu aradım"
--  Bakan Koca: Zonguldak'ta heyelan sonucu yaralanan 23 yaralının 17'si taburcu edildi, 6'sının tedavisi sürüyor
--  Netanyahu veto kararı ve mühimmat desteği için destekcisi Biden'a teşekkür etti
+-  Auto uit de Lek bij Schoonhoven getakeld
+-  Davinson Sanchez ve Hakim Ziyech döndü
+-  Meteoroloji saat verdi: Üç kent için kuvvetli yağış uyarısı
+-  Отца устроившей стрельбу в Брянске школьницы арестовали на два месяца
+-  प्रकाश दाहाल स्मृति ब्याडमिन्टन पुसमा
+-  ‘काठमाडौँवासीलाई मेलम्चीको पानी खुवाउन ढिलो गर्नुहुँदैन’
+-  नेपाल सुपर लिग : चितवनलाई हराउँदै ललितपुर शीर्षस्थानमा
+-  خبر سيء.. أسعار مجموعة من الأجهزة الكهربائية ذات الاستعمال الواسع ستشهد ارتفاعا ملحوظا بدءا من يناير
+-  فنانون ينعون عازف الجوق الملكي محمد عمار
+-  صرف الدرهم "يتقلب" أمام الأورو والدولار
