@@ -1,51 +1,11 @@
 # Latest News
--  “อนุทิน”นำทีมบุกผับเถื่อนกับ”ปฏิบัติการเลียบด่วน Cleaning”
--  [중형 SUV 20만 시대…판매 2위 싼타페, 1위는? [여車저車]
--  ["돈 많음 제일 살기 좋다며"…韓 부자 해외 이탈, 세계 7위
--  [SK온, ‘정보보호산업 발전’ 장관상…배터리 업계 최초
--  [‘야구괴물’ 오타니, 10년 7억달러 역대 최고액에 다저스行
--  "ราชทัณฑ์" ชี้แจงปมผู้ต้องขังหญิงทะเลาะวิวาท ยันไม่มีใช้กระจกทำร้าย
--  "10월 야구에 온 것을 환영해"… 오타니 영입에 다저스 팬 잇몸만개
--  7억달러인데… 오타니, 다저스행에 日 반응 “돈보다 승리를 우선으로 생각했다”
--  FT아일랜드, 10일 컬래버 음원 '마중' 발매
--  文書助理招聘｜起薪$14,735 附政府工入職條件+申請方法
--  Red Wings' Dylan Larkin lay motionless after taking hit to head, helped off ice following scary scene
--  Anatomy of a Fall wint beste film bij European Film Awards
--  Taylor Swift-Tour brengt meer dan een miljard dollar op
--  Lung linh sắc màu văn hóa các dân tộc nơi thượng nguồn sông Đà
--  ルイス・ハミルトン メルセデスF1代表夫妻へのFIAの態度は「容認できない」
--  'Frieren', capítulo 15: fecha de estreno, horarios y dónde ver el anime ONLINE
--  Sechs Verletzte bei Explosion in Wohnhaus in Essen
--  경주 안강읍서 역주행 오토바이, 승용차 충돌...70대 오토바이 운전자 숨져
--  Une nouveauté ultra-pratique débarque sur WhatsApp
--  Un vaste réseau d'IPTV démantelé, et certains clients pourraient être condamnés
--  IPL 2024 to begin from March end, WPL likely to be held in one city, says BCCI secretary Jay Shah
--  عرض أولاد العالية في ثاني أيام مهرجان الشارقة للمسرح الصحراوي (صور)
--  Loi immigration : la Défenseure des droits critique le texte « d'une gravité majeure pour les droits fondamentaux »
--  Contabilizan 12 muertos tras colapso de mina en Bolívar: Balance oficial
--  В ВСУ заявили о готовности сдать позиции
--  [인사] NH농협은행
--  [인사] NH농협손해보험
--  [인사] NH농협생명
--  롯데온 수장 된 박익진 신임 대표, ‘아픈 손가락’ 오명 털어낼 수 있을까?
--  하나은행, '2023 외국환 골든벨 전국체전' 개최
--  SK온, 배터리 업계 최초 '정보보호 공시' 장관상 수상
--  Musk considering reinstating Alex Jones on X
--  Vietnam Airlines khẳng đinh tục triển khai mạnh mẽ Đề án tái cơ cấu để phục hồi năng lực tài chính
--  وكيل أول النواب: مشاركة المصريين فى الانتخابات الرئاسية ستكون غير مسبوقة
--  #apple responds to the Beeper iMessage saga: ‘We took steps to protect our users’
--  Atlet Rusia dan Belarus Bisa Bertanding di Olimpiade Paris 2024, tapi ...
--  В Херсонской области БПЛА ВДВ поразили около 20 единиц техники ВСУ
--  謝子涵拚立委「廟會狂響」造勢 九天戰鼓助陣
--  Chappell nails Aussie selectors over missed call
--  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
--  Dragon Lee Wins NXT North American Title at Deadline
--  'Do carro, não sobrou nada', conta Zé Neto sobre acidente de carro em MG
--  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
--  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
--  Vea la especial propuesta de matrimonio apadrinada por Melendi (+Video)
--  제주경찰청, 범죄피해자 12명에 2400만원 지원
--  Giải ngân hơn 11 tỷ đồng cho các hộ cận nghèo ở Vạn Ninh
--  МО РФ сообщило об уничтожении 20 единиц техники ВСУ за неделю на правом берегу Днепра
--  足球》開賽7分鐘隊長就進球 兵工廠一分不敵阿斯頓維拉
--  [MLB] 9224억원 사나이 된 오타니... 다저스와 10년 계약
+-  कुराभन्दा काम महत्त्वपूर्ण
+-  १० वर्षअघिको आर्थिक अभियानबाट: पोखरा १५ वर्षपछि दक्षिण एशियाकै प्रमुख पर्यटकीय गन्तव्य
+-  बैंकिङ क्षेत्र अर्थतन्त्रको साझेदार: बैंकिङ भ्रम चिर्नु सबैको दायित्व होइन र ?
+-  कृषि जग्गामा स्वामित्व हुने महिला ३४.४ प्रतिशत
+-  भरतपुर महानगरको ल्याण्डफिल साइट निर्माण अन्योलमा
+-  नाश्ते के लिए वजन घटाने: वजन बढ़ने से हैं परेशान तो अपने नाश्ते में शामिल करें ये खाना
+-  경기도, 연말 철도건설공사 종합 점검… 110건 지적사항 확인·조치
+-  화성시, 제1회 공공브랜드대상 2관왕 쾌거
+-  화성시, 자원봉사자의 날 기념식 개최
+-  화성시-화성시 의료나눔 봉사단, 취약계층 건강돌봄위한 업무협약 체결
