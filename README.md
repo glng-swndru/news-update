@@ -1,51 +1,11 @@
 # Latest News
--  طريقة واعدة لامتصاص ثاني أكسيد الكربون
--  Toscana, trovati due cadaveri in poche ore: uno non aveva la testa
--  חלאילי האריך חוזה במכבי חיפה עד 2027: "הגשמת חלום"
--  Jugoslovenska republikanska stranka – mala partiјa velikih ideјa (1): Činili јe vodeći srpski intelektualci
--  Natural resources minister: Suggested mechanism for new water tariffs to be brought Cabinet next week
--  Kaşla göz arasında 30 bin TL değerinde yılbaşı bileti çaldı: Hırsızlık anı kameraya yansıdı
--  Sukob u Gazi narušio kredibilitet Vijeća sigurnosti UN-a
--  Mama June pleads for prayers for daughter Anna ‘Chickadee’ Cardwell as cancer worsens
--  호반그룹 신입사원, ‘사랑의 연탄 나눔’ 봉사활동 진행
--  এক দিনের ব্যবধানে পেঁয়াজের দাম বেড়ে দ্বিগুণ
--  الاحتلال يستهدف خطوط المياه والطرق الرئيسية بهدف إعاقة حركة المدنيين بين خان يونس ورفح
--  Përplasje me armë mes efektivëve dhe grabitësve, një polic në spital! Çfarë ndodhi mbrëmë në Prush, si shpëtuan autorët
--  Sarah Lahbati Shares Bible Verse About Giving Thanks Amid Recent Issues
--  Российский полузащитник "Аталанты" Миранчук намерен покинуть клуб
--  Woman charged after four brothers killed in a fire two years ago
--  Самая новогодняя еда: что можно купить в белорусских магазинах только сейчас
--  Bawaslu Desak KPU Segera Klarifikasi Isu Kebocoran Data DPT Pemilu
--  DA LI MOŽE DA ČUVA KUĆU I LAJE? PRVI ROBO-PAS IZ ČAČKA! Nazvali ga Bobi, evo kako je nastao, a u toku je njegova DRESURA
--  Военный ВСУ спрогнозировал последствия потери Авдеевки Украиной
--  Glasfaser-Baustellen in Waldsassen in der Winterpause
--  Who is Vishnu Deo Sai? Former Union Minister And BJP's CM Pick For Chhattisgarh
--  Prezident İlham Əliyev: Şərqi Avropa Qrupuna daxil olan ölkələrin COP29-la bağlı Azərbaycanın namizədliyini dəstəkləməsi dostluğumuzun nümunəsidir
--  名人雜誌丨李施嬅爆料：我會變到好乞人憎 角色遭打壓有共鳴 受打工仔歡迎
--  দুর্নীতির শীর্ষে পাকিস্তানি পুলিশ
--  הוותיקים: אפל הכניסה לרשימה את iPhone SE המקורי ואת iPad Pro דור שני
--  สวยงาม “หาดทรายขาว” แม่น้ำสาละวิน พร้อมต้อนรับฤดูแห่งการท่องเที่ยว
--  Dissent Pakistani journalist Imran Riaz Khan nominated for Human Rights Award
--  Συνελήφθη ο δράστης της επίθεσης κατά αστυνομικού στον Ρέντη
--  Спад в цените на употребяваните автомобили
--  بيراميدز يصطدم بـ صن داونز وتوتنهام يواجه نيوكاسل.. جدول مباريات اليوم الأحد بالمواعيد والقنوات الناقلة
--  Zara Dikecam Publik, Tampilkan Iklan yang Dinilai Menghina Genosida Gaza
--  ONLINE: Štafeta 4x6 km žien dnes (Hochfilzen, Svetový pohár v biatlone 2023/24) LIVE
--  Президент Ильхам Алиев: Инициированные и реализованные нами проекты в значительной степени изменили энергетическую карту Евразии
--  वेस्टइंडीज ने इंग्लैंड को घर पर धोया, 25 साल बाद मिली शर्मनाक हार
--  Nawazuddin Siddiqui wishes daughter Shora with a cute video
--  "J’ai tellement le trac" : Hélène Rollès (Les Mystères de l'amour) explique pourquoi elle ne souhaite plus sortir d’album
--  Drunk driver tries to run away from KZN traffic cops
--  Ali Yerlikaya’dan tartışma yaratan soruya yanıt: Deprem bağışları nerede?
--  Crise de l'Essequibo : les présidents du Venezuela et du Guyana vont se rencontrer
--  Sára Sándorra emlékezünk - A kiváló rendező anno Kapuváron gyógyult
--  Les Égyptiens aux urnes pour une présidentielle acquise au sortant Abdel Fattah al-Sissi
--  🔴 En direct : une frégate française abat en mer Rouge deux drones venant du Yémen
--  Prix Nobel de la paix : Narges Mohammadi, une vie pour la défense des droits humains en Iran
--  COP28 : une "petite minorité de pays" bloque les progrès sur les fossiles, selon le Vanuatu
--  Monitorean caída de talud causada por filtraciones en trabajos de Epsas
--  晨光追擊│ 「贏科超影」老馬火猛
--  Police nab armed trio in Clare Estate, Durban
--  Jesper Boqvist jättematch - låg bakom allt
--  '김대중재단' 경북지부 출범...추진위원장 장세용 전 구미시장
--  कमाल का पत्ता, सब्जी में मसाला, बीमारी में औषधि, शुगर, गैस, खांसी का दुश्मन
+-  Remake-et kap a Brothers: A Tale of two Sons indie kaland
+-  Génocide contre les palestiniens : L’Administration Biden trempée
+-  Bateau percuté et canon à eau déployé : bataille navale entre la Chine et les Philippines
+-  Sebastian Fabijański wyśmiany po gali Fame MMA. Internauci w formie [MEMY]
+-  [ŽT] Košmaras rusų užnugaryje. Ten buvo Rusijos armijos vadovybė, daug technikos, amunicijos ir degalų. Ką padarė SBU (Video)
+-  [ŽT] Rusams į rankas pateko ypatingas „Leopard-2A4“. Tokia įranga montuojama tik nuo 2023 metų liepos (Video)
+-  „Nepaprastai sveika daržovė.“ Sulėtina virškinimą, apsaugo nuo diabeto
+-  Mokslininkai patobulino kalėdinę eglutę, kad po švenčių reikėtų mažiau tvarkytis
+-  [ŽT] 5 NATO straipsnio aktyvavimas. Galingas Vašingtono pareiškimas
+-  „Puola desantas su BMD-4.“ Audra už Dniepro. Daugybė „200“ ir „300“ (Video)
