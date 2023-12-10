@@ -1,11 +1,11 @@
 # Latest News
--  "לירות בתומכי הכיבוש": נפתחה חקירה נגד שר בכיר ברשות הפלסטינית בחשד להסתה
--  نائب محافظ بورسعيد يدلي بصوته في الانتخابات الرئاسية 2024
--  مانشستر سيتي يحبط مفاجأة لوتون تاون في 3 دقائق ويعود للانتصارات
--  Stuttgart - Leverkusen: Wirtz kontert Führich
--  Stuttgart - Leverkusen: Wirtz kontert Führich
--  Блинкен: США хотят видеть больше усилий Израиля в гуманитарной сфере
--  Inter back on top of Serie A after big win over Udinese
--  Everton win again as Abdoulaye Doucoure and Lewis Dobbin down toothless Chelsea
--  Foot mondial : résultats des matches du dimanche 10 décembre (vidéos)
--  Water supply woes persist in Tshwane after an Eskom power failure
+-  Maharashtra: Medical student jumps in front of train to end life in Nagpur
+-  اعداء العلم والاسلام يفجرون جامعة مدنية - فيديو
+-  DSÖ: Gazze'de hiçbir yer ve hiç kimse güvende değil
+-  Putin ve Netanyahu arasında görüşme
+-  Başakşehir, Hatayspor'dan 3 puanı 1 golle aldı
+-  Gençlerbirliği, Göztepe'den fark yedi
+-  «الصحة» العالمية تعتمد قراراً يدعو لإرسال مساعدات فورية إلى غزة
+-  تدشين المرحلة الثانية من برنامج الامتياز التجاري
+-  9 اتفاقيات لإنشاء مشروعات صناعية ‏في "مجمع لدائن" بصحار بـ88 مليون دولار
+-  Bansos UMKM Hingga Rp 4 Miliar Disalurkan di Kabupaten Bandung
