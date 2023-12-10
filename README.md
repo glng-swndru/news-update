@@ -1,51 +1,11 @@
 # Latest News
--  В Африке продолжают издеваться над Лукашенко
--  Arkansas Football Recruiting Report with Otis Kirk (12-10-23)
--  シーホークスQBスミスが鼠径部負傷で欠場、ドリュー・ロックが先発へ
--  LEGENDA PARTIZANA PREUZIMA CRNU GORU! Dejan Savićević prelomio: Njegova velika želja seda na klupu Sokolova
--  حرس الحدود يحبط تهريب 140 كيلو جرامًا من المخدرات في جازان
--  عاجل.. حساب المواطن يوضح كيف يستفيد العاطل من الدعم الشهري
--  Pročitajte što vam ovoga ponedjeljka donosi Večernji list BiH
--  Man killed in Saturday morning crash on I-90 near Worthington
--  Костадиновска-Стојчевска: Очекувам во следниве две недели пратениците да го изгласаат Законот за употреба на македонскиот јазик
--  Are electric cars really better for the environment?
--  Port Hacourt-Based Photographer, Wildshot Dies In Tragic Auto Crash
--  Glasgow dancer Stevie Doc wins theatre role in Mamma Mia finale
--  Estos audífonos Beats Studio 3 son ideales para regalar a los fanáticos del buen audio y están a mitad de precio en Amazon México
--  ARP : Adoption du Projet de Loi de Finances 2024 dans sa totalité
--  Focus op het ‘moreel falen’ van Israël is disproportioneel
--  Kurukshetra News: सालासर खाटू श्याम यात्रा में भजनों पर झूमे श्रद्धालु
--  Automóveis: Qual a marca com mais acidentes registados?
--  “No hay alternativa al ajuste”: 5 frases del primer y duro discurso de Javier Milei como presidente argentino
--  Limerick District League weekend junior soccer round-up
--  قرار جزائري صارم بعد استبعاد محرز من المنافسة على الكرة الذهبية الإفريقية في حفل "الكاف" بالمغرب
--  Milei firma su primer decreto presidencial para reducir el número de ministerios en Argentina
--  Who is in the Strictly Come Dancing 2023 final?
--  La OMS ve imposible cumplir sin una tregua la resolución sobre la ayuda a Gaza
--  Et interkulturelt perspektiv på funksjonshemninger
--  Giełdowe spółki domagają się liberalizacji rynku gazu w Polsce
--  সাবেক আইজিপি বীর মুক্তিযোদ্ধা নূরুল আনোয়ারের ইন্তেকাল, আইজিপির শোক
--  The Unexpected Sinister Swerve of Polite Society
--  Cheminée : quatre choses à savoir absolument sur le ramonage
--  Cena złota na rozdrożu
--  Soundcore Motion 300 Bluetooth speaker and Ninja Blast portable blender make great gifts under $100
--  Strictly Come Dancing eliminates tenth contestant as judges disagree after 'tough' dance-off
--  Aresep seguirá en apuros por tener directiva incompleta
--  Zakupy Polaków w internecie pod lupą
--  Editor’s Letter: Inside Robb Report’s Ultimate Gift Guide Issue
--  GPW próbuje ożywić rynek GlobalConnect
--  Biznes nad Wisłą zaczyna doceniać potencjał sztucznej inteligencji. Nie widzi jednak ryzyka
--  «Чикаго» — «Вашингтон»: смотреть трансляцию матча НХЛ (видео бесплатно онлайн)
--  [이투데이 말투데이] 하필성문(下筆成文)/블랙마켓
--  Szef Fitch Ratings: zmiana rządu nie pociągnie w górę ratingu Polski
--  [황근의 시선] 정쟁수단 된 방통委 임계점 왔다
--  Inwestowanie w świecie zmian cyklicznych i strukturalnych
--  [플라자] ‘서울의 봄’이 불러온 ‘영화계의 봄’
--  "자동차보험료 2.5~3%대 급격 인하 전망"…부작용은 어쩌나
--  Nieudana szarża grupy OPEC+
--  [사설] 공부도 바쁜데 허위 집필진 판별까지 해야 하나
--  Počela blagdanska groznica, iseljenici jačaju kupovnu moć žitelja BiH
--  [노무 톡!] 회사 영업비밀 관리에 신중을
--  [데스크 시각] 의료용 마약 규제, 환자도 고려해야
--  WIG20 z rekordem
--  소상공인 저금리 대환대출, 목표액 13%…금융위 '3차 개편' 검토
+-  Edin Visca: Trabzonspor'da çok mutluyum
+-  Remplacement des membres de la CENA par Macky Sall: les griefs de la Commission de la CEDEAO
+-  Accusation de financements qataris : Mimi Touré blanchit Ousmane Sonko
+-  Βαθμολογία Basket League: Έκανε το 10/10 με δυσκολία ο Παναθηναϊκός
+-  Las reacciones políticas a decreto que deroga multas a consumidores de drogas
+-  How Cute Will Jemima Osunde Look In A K-Drama? Find Out Here
+-  Gunners juara Brunei Fastpitch Softball Open 2023
+-  కంభం చెరువుగట్టుపై కాపుల వనభోజనాలు
+-  حملة فريد زهران: التغطية الإعلامية لانتخابات الرئاسة التزمت بالحياد والموضوعية
+-  ‘Pianoforte’ Goes Inside A Heart-Pounding Music Competition Where Young Performers Confront “High Stakes And High Emotions” – Contenders Documentary
