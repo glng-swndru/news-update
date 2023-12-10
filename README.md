@@ -1,51 +1,11 @@
 # Latest News
--  '수비 붕괴' 뮌헨, 프랑프푸르트에 1-5 대패... 리그 1위 탈환 실패
--  बहुवर्षीय आयोजनाको आधार तयार
--  रुसी सेनामा भर्ती भएका अभिषेक सम्पर्कविहीन
--  मनोमालिन्यले नगर सभा हुन सकेन
--  छाडियो माछाका भुरा
--  जनशक्ति अभावले काममा ढिलाइ
--  Tornado en Tennessee deja 3 muertos y 23 heridos
--  Galería: Espectacular celebración en Plaza de la Mexicanidad
--  Selena Gomez confesses to cosmetic procedure
--  Global Incubation Innovation Forces Gather in Lingang for World Top-Performing Incubator Forum 2023
--  수원특례시의회, 위원회별 2024년도 본예산안 예비심사 및 조례안 등 안건심사
--  “도민 크리에이터 육성으로 제주 알리자”
--  যুক্তরাষ্ট্রে টর্নেডোয় নিহত ৬, বিদ্যুৎহীন হাজারও মানুষ
--  Врач призвал отказаться от некоторых продуктов белого цвета
--  Tennis : Nadal et Djokovic dépassés ? Il dévoile leurs successeurs
--  안산시 단원구, 겨울철 미세먼지 저감 운행차 배출가스 점검
--  الهلال هذا الموسم … بعيد بفارق شاسع عن بقية أندية دوري روشن
--  Elliott scores in stoppage time and Liverpool beats Palace 2-1 to move to top of Premier League
--  Новая инклюзивная площадка «Работа без границ» заработала на Вологодчине
--  제미나이 논란과 발전 - 구글의 최신 AI 프론티어
--  한국사과연합회, 유·초·중·고·특수학교 116여 곳 '세척사과 무상공급'
--  Stradiņa slimnīcā smadzeņu ķirurgiem palīdz robots
--  ISRO Recruitment 2023: Application open for 54 Technician B posts
--  Petrol - Diesel Rates Today: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
--  전안균 회장 quot;지역경제 근간 소상공인 희망 위해 더욱 도와 주시길quot;
--  NIA Raid: आईएसआईएस के बड़े आतंकी गिरोह का पर्दाफाश, महाराष्ट्र और कर्नाटक में 44 जगहों पर एनआईए की छापेमारी; 15 आतंकी गिरफ्तार
--  काशवी और वृंदा पर हुई रुपयों की बारिश; डब्ल्यूपीएल नीलामी में चंडीगढ़ की काशवी सबसे महंगी खिलाड़ी बनीं
--  Εορταστικό ωράριο: Ποιες Κυριακές θα είναι ανοιχτά τα καταστήματα
--  Intendentes afines a Figueroa asumieron en Chos Malal, Junín de los Andes y Villa La Angostura
--  জাতীয় ভ্যাট দিবস আজ
--  안양도시공사, 5년 연속 독서경영 우수직장 인증 획득
--  Morning briefing: BJP mulling over CMs in 3 states; Article 370 verdict keeps J&K on edge; and all the latest news
--  Pemkot Tindaklanjuti Laporan Jalan Ambles di Kota Malang
--  Назван простой способ улучшить здоровье за пару часов
--  안산소방, 다문화 전문의용소방대장 봉사상 수상
--  韓·中 바둑 1위, 내일 신안서 격돌
--  Spices and Benefits : जेवणाच्या चवीबरोबरच 'हे' मसाले आरोग्याचा खजिना; वाचा त्यांचे उपयोग आणि फायदे
--  Jorge “Fatura” Broun, el último arquero de Maradona que fue figura ante River y hace soñar a Rosario Central
--  ZICTA Directs Airtel Zambia to Compensate Subscribers for Network Outages
--  เฉลยแล้ว! เลขเด็ด คุณหญิงงามใจ งวด 16 ธ.ค. 66 วิ่ง 5 เตรียมเก็บทรัพย์
--  Ulsan Film Hamka & Siti Raham (Vol 2): Inspiratif, Banyak Momen Mengharukan
--  경기도 '신축 반지하주택 금지' 제도개선 노력 통했다
--  Đi thăm bạn trai, cô gái bị trói, cướp tài sản trong khách sạn
--  Jayden Daniels gana el Trofeo Heisman tras una gran temporada sin alcanzar los playoffs
--  «Вашингтон» — «Рейнджерс»: видеообзор матча НХЛ
--  Doãn Hải My thừa nhận từng thử trò chuyện và gặp gỡ Văn Hậu trước khi cả 2 có mối quan hệ khác, nhưng không phải là người thứ ba
--  Dân thường chiếm 61% trường hợp chết chóc ở Gaza do không kích của Israel
--  Những bức thư tình Pháp bị quên từ thế kỷ 18
--  French Military Downs Two Drones Headed from Yemen Over Red Sea
--  Iraq’s Kataeb Hezbollah vows more attacks on US forces
+-  Kazuchika Okada To Team With Motor City Machine Guns For TNA Return
+-  VIDEO: बाबर आजम के ‘चाचा’ की हुई जमकर धुनाई, एक ओवर में ही दिए इतने रन कि मच गया हाहाकार
+-  SK, 아시아 최초 '자발적 탄소배출권 시장' 확대 위한 연합체 구축
+-  성 김 前 주한 美대사 현대차 '자문역' 맡아...'국제정세 대응'이 목적
+-  LG엔솔, 중국 제외 글로벌 배터리시장서 선두...SK온과 삼성SDI는 4·5위
+-  Queensland Premier Annastacia Palaszczuk shared never before seen photos ahead of retirement
+-  Apple iPad: अगले साल लॉन्च होंगे सबसे सस्ते iPad! धूम मचाने की तैयारी में एपल
+-  UFC 박준용, 통한의 판정패… 韓선수 최다 연승 '4'에서 멈추다
+-  전소연, 압도적인 카리스마 눈빛 발산
+-  아직 이정후도 남았다… 이정후-김하성 vs 오타니, 꿈의 무대 서울에서 열릴까
