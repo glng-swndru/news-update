@@ -1,51 +1,51 @@
 # Latest News
--  Bangladesh – A tough media battleground for Sheikh Hasina
--  Gig tribute, acara menyadur lagu mega dan indie perdana
--  du unveils eco-friendly free Tourist SIM to accelerate sustainable connectivity
--  ЦСКА: Денят настъпи
--  DFB-Pokal: Auslosung Viertelfinale: Wo läuft die Ziehung heute live im Free-TV und Livestream?
--  Planerbar? Bah!
--  Emirates dévoile sa carte des vins pour 2024
--  Girlfriend gate: German media pundits trade barbs over head coach Julian Nagelsmann
--  PC-Netzteile: Wie viel Watt und welches 80Plus-Zertifikat hat euer Netzteil?
--  Adventski kalendar recepata: Šape, kolačići koji mirišu na djetinjstvo
--  Crna plijesan s prozora: Ovo je način kako je napokon ukloniti
--  Ipari és építőipari adatok érkeznek
--  „Es gibt keinen Raum, um zu trauern“: Junge Palästinenser in Berlin über ihre Wut und ihre Trauer
--  Τίποτα δεν είναι δεδομένο
--  Sedam jednostavnih vježbi koje će transformirati tijelo u četiri tjedna
--  Trener otkrio tri važna razloga zašto biste trebali pustiti psa da njuška u šetnji
--  В России отреагировали на нашумевший поступок «наследницы» Елены Исинбаевой
--  Hubungan Kerajaan Perpaduan baik, tebuk atap akan gagal – Anwar
--  Elodie e Annalisa insieme sul palco: il duetto scatena il pubblico al concerto
--  विष्णुदेव साय बने छत्तीसगढ़ के नए CM, अमित शाह ने 9 नवंबर को किया था ये वादा
--  Bigg Boss 7 Tamil: விஷ்ணுவை டார்கெட் செய்த கமல்; கவலையோடு காணப்படும் பூர்ணிமா; சுவாரஸ்யத்தில் பிக்பாஸ்
--  Румен Радев: Не е нормално парламент с ниско обществено доверие да посяга на Конституцията
--  Pogledajte zašto se navijači Arsenala žale da su pokradeni protiv Aston Ville
--  Sensacyjne wieści ws. perełki z lidera Ekstraklasy. Hitowy transfer już zimą!?
--  ريال مدريد يستأنف تدريباته استعداداً للقاء يونيون برلين
--  PVV-Kamerlid Martin Bosma wil ook Kamervoorzitter worden
--  Man dood gevonden in woning Oss, twee vrouwen opgepakt
--  Lui è la persona giusta, ma ci siamo incontrati nel momento sbagliato
--  Boysi: Svi troškovi za našu braću u Grčkoj plaćeni iz donacija
--  Atleti russi alle Olimpiadi, l'Ucraina valuta il boicottaggio
--  إطلاق شركة نيوم للغذاء "توبيان" لإنشاء أنظمة غذائية مستدامة
--  إنذار أصفر من أمطار غزيرة على مكة وهذه المناطق لـ 9 مساءً
--  عاجل.. الخدمات الطبية للقوات المسلحة توفر وظائف شاغرة
--  إعادة تأهيل وتشغيل وصيانة محطات المعالجة في الرياض بتكلفة تجاوزت 2.18 مليار ريال
--  La sangre de Grífols vuelve a circular
--  บุกยิงกลางสนามแข่งบอลในคูคตก่อนหนี ตร.รู้ตัว-เร่งติดตาม
--  IVICA NESTAO PRE 7 DANA U PRIJEPOLJU - I DALJE GA NEMA! Porodica očajna: Sve je ostavio pored kompjutera i samo izašao
--  昌明政府周年庆抽奖 女子中大奖赢公寓单位
--  18.5 مليار ريال صادرات القطاع الخاص القطري في الأشهر التسعة الأولى من العام الحالي
--  Sepultura lägger ned – efter 40 år
--  Sepultura lägger ned – efter 40 år
--  Sepultura lägger ned – efter 40 år
--  Sassari, Gavina cerca il fratello dato in adozione 37 anni fa: «Mia madre morì e ce lo portarono via»
--  La Rochelle : il faudra rallonger le quai de la gare de la Porte Dauphine
--  Pēc nedēļas "Baltic Grand Prix 2023" ar Pasaules kausu Standartdejās profesionāļu divīzijā
--  کانال قوش‌تپه مورد توجه گردشگران
--  Chhattisgarh: కొత్త సీఎంగా గిరిజన నేత విష్ణు దేవ్ సాయి
--  „The Masked Singer“ am Sonntag, 10.12.2023: Wer ist raus? Sendetermine und weitere Infos zu Staffel 9
--  Financement adaptation et atténuation du changement climatique dans l’Uemoa: Le marché financier appelé à apporter sa contribution
--  مفاوضات بين إيران والسعودية لتسيير رحلات جوية مباشرة
+-  Mahasiswa Mudah Terlilit Utang Pinjol? OJK Beri Saran
+-  הבמאית והמחזאית עדנה מזי"א ("משחקים בחצר האחורית") הלכה לעולמה בגיל 74
+-  משבר החקלאות מחריף, והפיצויים לא מגיעים: "נזק של מיליוני שקלים"
+-  האם תמונות המחבלים המושפלים מועילות לישראל - או מזיקות לה?
+-  קייליני יפרוש אחרי ההפסד? "השגתי דברים גדולים משחלמתי עליהם"
+-  KH Acep Adang Ruhiat Ajak Santri Dukung Pemenangan Anies-Muhaimin
+-  Mira Lugo ▶ Sara González, Marcos Calles y Jaime Caravaca
+-  Okan Buruk'un Kopenhag planı!
+-  Dominik Livakocvic'ten bir ilk
+-  BBC Strictly Come Dancing's Anton Du Beke under fire as fans all make same complaint
+-  Kaufland rettet Real-Filialen – diese Standorte sind betroffen
+-  Зўравонликка нисбатан муросасизлик муҳитини яратиш зарур
+-  Андижонда микро ГЭСлар қурилмоқда
+-  Scholz odmietol škrty v sociálnych dávkach, napriek rozpočtovej kríze
+-  Ľudí vydesili roje kobyliek, obávajú sa apokalypsy: Mrazivá podobnosť s pasážami z Biblie, toto musíte vidieť!
+-  Kirgizská metropola Biškek vás vráti v čase: Každý kút stále pripomína sovietske časy
+-  Black lives matter. Do Palestinian lives matter?
+-  Ako krajina máme vážny problém s preplnenosťou väzníc: GRAF, z ktorého ide strach, opäť sme v nelichotivom popredí
+-  Live Eredivisie | Go Ahead treft FC Utrecht en kan Ajax weer inhalen op ranglijst
+-  Janev: Marrëveshja e ekstradimit me Turqinë lë të kuptohet për dorëzimin e shpejtë të Palevskit
+-  Grenada has golden beaches a secret rum that won't give you a hangover – and it works
+-  Akhannouch: le gouvernement s’emploie à la mettre en œuvre l’État social selon la volonté royale
+-  The Asus Zenfone 10 and ROG Ally get price cuts on Amazon Germany
+-  Sambons stöd på plats: ”Han har gjort allt han kan”
+-  "قتل زوجته بضربها ودفعها على الجدار".. داخلية السعودية تعلن إعدام العتيبي قصاصا وتكشف سبب تأجيل استيفاء الحكم
+-  Video | Kat springt van elektriciteitspaal om aan reddingswerker te ontkomen
+-  Movilización rojiblanca en Granada: «Estaremos unos mil hinchas del Athletic»
+-  New Coca-Cola Christmas truck tour date revealed - see if it's your town
+-  Nanotechnology Now – Press Release: A color-based sensor to emulate skin’s sensitivity: In a step toward more autonomous soft robots and wearable technologies, EPFL researchers have created a device that uses color to simultaneously sense multiple mechanical and temperature stimuli
+-  [ŽT] Iškviesti kinologai. Maskvoje „Senis Šaltis“ išgąsdino rusus
+-  [ŽT] Blokada visoje Europoje. Konfliktas su Lenkija pereina į naują lygį
+-  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
+-  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
+-  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
+-  ¿A qué hora ver Colombia vs. Venezuela en partido amistoso internacional?
+-  “Qarabağ” dünya reytinqində gerilədi
+-  Formazioni ufficiali Roma Milan femminile: le scelte di Corti
+-  Loja mais antiga de fogos de artifício resiste chegando à 3ª geração
+-  Gaziantep'in Sağlık Saçan Yemeği 'ŞİVEYDİZ'! Antep usulü şiveydiz çorbası tarifi ve malzemeleri!
+-  Lotto-König Chico schlackert mit den Ohren: Männer blechen diese irre Summe für einen Tag mit ihm
+-  '제2의 라파엘 바란'...토트넘 아닌 맨유가 영입전 선두!→이적료 '660억'
+-  데뷔 14년 만에 처음이야, 찬스 잡은 '잠실 아이돌, 도루왕'은 골든글러브까지 훔칠 수 있을까 [유진형의 현장 1mm]
+-  '통영 큰 손' 송지효 "배우자 한 끼에 100만 원까지 가능"…김종국 "네 남편 부럽다" 감탄 [런닝맨]
+-  “오타니 에이전트, 연락 한 번 안 해” 억만장자 구단주도 7억달러 있는데…정말 뉴욕에는 ‘무관심’
+-  Quiénes son los jubilados del Seguro Social que cobrarán primero los 4,822 dólares con el COLA 2024
+-  AI and Robotics: The future that awaits us
+-  Borussia Dortmund: Experte spricht nach Brunner-Hammer Klartext – „Wieso soll er das nicht machen?
+-  Karatay'da Ovakavağı Sosyal Tesisi hizmete açıldı
+-  Kayseri'de inşaat halindeki binada göçük: 3 yaralı
+-  Telefon kilidiniz zekanızı ele veriyor!
