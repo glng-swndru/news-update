@@ -1,11 +1,51 @@
 # Latest News
--  Auto op z'n kop te water aan Burgemeester Van Reenensingel
--  Auto uit de Lek bij Schoonhoven getakeld
--  Rain hampers third day proceedings
--  Chalitha placed 19th
--  FSL focus on 43 foreign-origin players for football national pool
--  Tunisie – Visite surprise de la ministre de la Justice au centre pénitentiaire de la Mornaguia
--  Be part of the Christmas decorations
--  AK Parti Sözcüsü Çelik: Batılı devletlerin çoğu çocuk katilleriyle el sıkışarak ikiyüzlülük sergiliyor
--  SON에게 ‘주장’ 내준 뒤 토트넘 커리어 끝난 레전드, 뉴캐슬 입단 가능성 ↑
--  Soccerladuma | 'Pirates Played Well Against TS Galaxy But....'
+-  Vozači, ovo morate znati! Kako biste spriječili najčešći zimski kvar na autu, jednu stvar obavezno provjerite
+-  Music exec says artists who make physical records during the climate crisis are “hypocritical”
+-  אימרן אולד עומאר עשוי לפתוח לראשונה בהרכב הפועל באר שבע
+-  Znepokojujúce VIDEO dievčatka: Veď má totálne zamorenú hlavu! Už len pri pozeraní vás začne svrbieť pokožka
+-  Svojou riekou už chcem kráčať po prúde, hovorí Lenka Dusilová pred návratom na Slovensko
+-  OBRAZOM: Najväčším pestovateľom štipľavých čili papričiek je India
+-  ZOMREL slovenský spevák (†36) : Prvé slová zdrvenej MANŽELKY
+-  Lazanja paketići (video)
+-  Esto es lo que podría pasarte si consumes bebidas energéticas todos los días: el serio aviso de dos nutricionistas
+-  Ankara'da bir kadın eski eşi tarafından boğazı kesilerek öldürüldü
+-  Mevlâna yılında Şebiarus…
+-  محمد صلاح ينافس ميسي ورونالدو على جائزة أفضل لاعب في العالم 2023
+-  Falezlerden Denize Düşen Adama 30 Dakika Kalp Masajı!
+-  Dvije strašne ozljede na radu u Istri: Eksplodirala plinska boca, vatra radniku zahvatila glavu i šake
+-  אושרה הקפאת שכר הח"כים עד 2025: "צריכים לתת דוגמה"
+-  אחרי שהוצאה מהקבר: בנתיחת גופתו של יובל קסטלמן נמצאו קליע ורסיסים
+-  Weekweerbericht | Regenachtige week onderbroken door droge periode
+-  شركة المياه: فتح مسارات بمناطق عين زارة وعرادة وشرفة الملاحة
+-  Erkan Kandemir: Türkiye’nin dört bir tarafında Cumhur İttifakı'nın bayrağı dalgalanacak
+-  Los mejores memes de la asunción presidencial de Javier Milei: “Hermosa mañana, ¿verdad?
+-  COP28｜環保人士「染綠」威尼斯大運河 抗議氣候大會無進展
+-  Somali Cumhurbaşkanı'nın oğlunun karıştığı kazaya dair açıklama! Soruşturma başladı
+-  Η Κυβέρνηση θα ανακοινώσει για 250ή φορά μέτρα για τη βία! Υπάρχει εμπιστοσύνη;
+-  ‘Etthukelli Povalanipisthunde’from ‘Naa Saami Ranga’ is a peppy melody
+-  Çështja Hakimi komplikohet: gruaja që e akuzon për përd*unim konfirmon të gjitha akuzat
+-  علامة تجارية شهيرة تروج لمنتجاتها بأكفان شهداء غزة.. دعوة جديدة للمقاطعة
+-  Frane Barbarić počeo rušiti vilu na Hvaru
+-  Hasarlı binanın kolonundan çıkanlar 'Yuh artık' dedirtti! Böylesi görülmedi, meğer işçiler...
+-  Yılbaşı hazırlıkları başladı! Uludağ'da konaklama bedeli dudak uçuklattı
+-  Why Unai Emery didn't shake hands with Mikel Arteta or any of Arsenal bench
+-  "Je ne l'ai pas tué": Adam Driver revient avec humour sur la mort de Han Solo dans "Star Wars"
+-  Femke Kok ziet dat Miho Takagi dikke seconde sneller is op de 1000 meter in Polen
+-  জীবন রক্ষায় খেজুরের রস না খাওয়ার পরামর্শ
+-  Zelenskyj oväntat till Argentina
+-  وزير الكهرباء يدلي بصوته في الانتخابات الرئاسية 2024.. صور
+-  التعاون الدولي تشارك مبادرة "جيل بلا حدود" في إطلاق برنامج النمو الأخضر
+-  "وكيل الشيوخ" عقب تصويتها: كل من شارك أو سيشارك بالانتخابات "فائز"
+-  وزير التجارة والصناعة يدلي بصوته في الانتخابات الرئاسية بمدينة 6 أكتوبر
+-  مجلس جامعة حلوان الطارئ يحث على المشاركة الإيجابية في الانتخابات الرئاسية
+-  سعر الذهب المعلن بموقع البورصة المصرية اليوم الأحد 10 ديسمبر
+-  بلجنة المغتربين.. محافظ كفر الشيخ يدلي بصوته في الانتخابات الرئاسية - صور
+-  البورصة تتراجع 2% مع نهاية تعاملات اليوم الأحد
+-  وزير الري يبحث مع مسؤولة باليونسكو" تطوير منظومة الري والصرف بواحة سيوة
+-  رئيس تجارية الجيزة يدعو منتسبي الغرفة للمشاركة في الانتخابات الرئاسية
+-  خالد الجندي يستشهد بحديث نبوي لتشجيع المواطنين على التصويت في الانتخابات
+-  رئيس البورصة يدلي بصوته في الانتخابات الرئاسية
+-  وزير التعليم يكرِّم طالبَين حصلا على المركز الثالث عالميًّا بمسابقة "ucmas" الدولية -صور
+-  تهديد هذا الثنائي.. موقف رباعي الأهلي المصاب من مونديال الأندية قبل السفر للسعودية
+-  الأمين المساعد لـ"مستقبل وطن": التصويت في الانتخابات الرئاسية بنيان للأمن القومي المصري
+-  خالد مرتجي رئيسا لبعثة الأهلي في كأس العالم للأندية
