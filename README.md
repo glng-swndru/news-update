@@ -1,11 +1,11 @@
 # Latest News
--  Exodus "Become the traveler": sci-fi akční RPG, kde bude mít velký vliv dilatace času
--  오타니는 우승에 진심이다…본인 요청으로 연봉 지연 지급, 다저스 대권 도전 위한 보강 가능하다
--  '토니-오시맨-데 헤아까지'...겨울 핫매물 'Best 11' 등장→EPL 클럽 관심 폭발
--  "1월 이적시장에서 떠날 것 같아"...누가 먼저 떠날까? '경질 위기 감독이냐 언해피 월클 CB이냐'
--  LG 단장과 임찬규의 유쾌한 신경전 …시상식 무대에서라도 사인을, "도장을 집에.." [곽경훈의 현장]
--  Stephen Fry had multiple fractures after falling off stage
--  PM Modi to launch `Viksit Bharat @2047: Voice of Youth` on Monday
--  Sanya Malhotra dances at sister`s sangeet, shares photos from haldi
--  Animal worldwide B.O collection day 9: Ranbir Kapoor-starrer earns Rs 660 crores
--  Çocuklar arasındaki gizli tehlike: Akran zorbalığı
+-  Zastrašujuće upozorenje znanstvenika, detektirali su promjene u atmosferi: 'Ovog nije bilo 14 milijuna godina'
+-  প্রার্থিতা ফিরে পেলেন ডলি সায়ন্তনী
+-  Soccerladuma | Motupa Eager To Bounce Back In Jan
+-  تسبب القلق أو تفاقمه… تجنب هذه الأطعمة
+-  الكويت.. الحبس سنتين لمصري وهندي وضعا كاميرا في حمام نساء
+-  ما تأثيرات حمامات الثلج على الصحة؟
+-  مديرية مكافحة التسول ضبطت 671 متسولا الشهر الماضي
+-  Dy fëmijët e Liridona Ademajt merren në përkujdesje nga Suedia
+-  Германия — Лаутербах призывает к вакцинации против «Короны»
+-  Emine Erdoğan: İsrail, Filistin'de açıkça insanlık suçu işliyor
