@@ -1,51 +1,51 @@
 # Latest News
--  Netherlands residents have little trust in ChatGPT; Trust in algorithms plummeting
--  Hong Kong opposition party leaders detained en route to local election protest
--  Prince William and Princess Kate have released their official Christmas card photograph
--  Rokiškio rajone dviejuose automobiliuose rastos vogtos medinės paletės
--  Osobe s ovom krvnom grupom ni pod razno ne smiju piti kafu: Nije nimalo naivno, može biti okidač bolesti
--  Naujas soc. tinklų hitas. Putinas „eina“ į prezidentus. „Paprašė Žoga“ (Video)
--  [ŽT] „Tai būtų išdavystė!“ Zalužnas rengia taikos derybas su Gerasimovu?
--  As a beauty editor I'm sceptical of hyped-up products, but Rare Beauty's Soft Pinch Liquid Blush is *that* good
--  Ahmet Hakan yazdı: İsrail protestosu vakur, haysiyetli ve galeyandan uzak olmalı
--  31 yıl hapis cezası bulunan12 yıllık firari yakalandı!
--  Kahramanlar devrede! Bakan Yerlikaya duyurdu: İnlerini başlarına yıkacağız
--  I swapped HIIT workouts for home Barre - and can't believe the difference in my strength and fitness levels
--  Bolognan Garisendan torni jo liian kalteva – yli 800-vuotias rakennus yritetään pelastaa
--  Aydın'da jandarmadan terör operasyonu: 5 yıl hükümlü PKK'lı yakalandı
--  'Bow stacking' is the new hair trend that social-media experts are predicting to be *major* news in 2024
--  İbrahim Güneş yazdı: Köpekler mi, çocuklar mı?
--  Μεγαλώνουν οι επιφυλάξεις της Δύσης για την Ουκρανία
--  NOVA PUCNjAVA U AMERICI: Ima žrtava
--  Tuštėjimo metas: Šakių rajono mokykla pirkėjo nerado, bandys dar kartą
--  Kirchenaustritte in Aalen: Wie tief steckt die katholische Kirche in der Krise?
--  Eva Anca: “A las mujeres les cuesta más perder peso por cuestiones fisiológicas”
--  Onnittelemme | Leena Ojamaa on Imatran seudun Pelastakaa Lapset ry:n uusi puheenjohtaja: "Olen tiukka äiti"
--  Pourquoi renégocier son crédit immobilier malgré la hausse des taux ?
--  Noch zwei Wochen bis Heiligabend: 10 Geschenkideen bis zu 100 Euro
--  Suomen valtion pitää tukea etätyöskentelyä
--  7 things that make your home smell and how to fix them
--  Reportaje | Zumo y mermelada para poner en valor la manzana de la comarca de Ortegal
--  VREME JE DA SITI POBEDI: Četa Pepa Gvardiole ''posti'' više od mesec dana u Premijer ligi
--  Lyžovačka na východnom Slovensku: Vypadli Plejsy a Kojšovka (servis bez Tatier)
--  Lakers vei ensimmäisen NBA Cupin
--  Henry Kissinger a champion of war not peace
--  Cyprus Business Now: weekly wrap-up
--  [일월선사 오늘의 운세] 2023년 12월 11일 월요일 띠별 운세
--  2023 경북포럼 영주지역 토론회 13일 개최
--  영진전문대 유아교육과, 학사학위 전공심화과정 졸업논문발표회 성료
--  '2023 지진위기대응 아카데미' 12일 개최
--  조희대 대법원장 취임…사법수장 공백 사태 74일 만에 해소
--  상주 사벌국면 오이재배 비닐하우스 화재…2개 동 불에 타
--  [소소한 일상이야기] 저녁의 시선으로
--  수능 수학 1등급 자연계열 학생 96.5% 추정
--  Lejkersi ispisali istoriju - Lebron podigao pehar VIDEO
--  Test električnog automobila: MG4 - da li je vožnja na struju postala održiva? VIDEO
--  대구 경신고, 수능 전국 수석 · 대구지역 수석 동시 배출
--  "Газпром" подает газ для Европы через Украину в объеме 42,2 млн куб. м через "Суджу"
--  Danas počinje festival filma o ljudskim pravima „Ubrzaj“
--  Врачи заявили о пользе завтрака с орехами для сердца
--  Nên mua cà rốt sạch hay còn dính bùn đất?
--  Akciјa u čast 19. decembra: Dok krv daјem, ne dam da suza kane
--  VIDEO: Kane strelil prvý gól za Detroit. Som hrdý, že nosím tento dres, vyhlásil
--  Who is Eskom’s newly appointed CEO?
+-  Фарғонадаги хонадондан 79,2 минг дона пиротехника воситалари топилди.
+-  Электр ва иссиқлик таъминоти учун масъул бўлган икки муҳим обектга табиий газ етказиб бериш имкониятлари яхшиланди.
+-  «Ливерпул»да яна камбэк, «Бавария» Франкфуртда хўрланди, «Реал» тўхтатилди. Кун ўйинлари.
+-  Στο “Αμμόχωστος” με μοναδικό στόχο το “διπλό”
+-  Adiba Khanza Resmi Menikah dengan Egy Maulana Vikri, Penuh Haru
+-  보령교육지원청, 조리실무사외 4개 직종 24명 교육공무직원 신규채용
+-  대천2동 자율방범대, 연말 맞아‘컵라면 50박스’기탁
+-  인구감소! 지방소멸! 농공단지 활성화 ‘한목소리’
+-  당진시민축구단 ‘플레이 투게더상’ 수상
+-  당진시 합덕읍 지역사회보장協, 장학금 전달
+-  김기웅 서천군수, 마량위판장 물김 초매식
+-  한밭대, 지역 전략산업 멘토링 Lab 운영 협의체 구성
+-  충남대병원 정현태 상임감사, ‘NO EXIT’ 캠페인 동참
+-  대전평생교육진흥원, ‘사랑의 빵’ 나눔
+-  대전세종관광기업 성과공유회 및 관광두레 이음데이 개최
+-  대전문화재단, 예술기부활성화를 위한 '후원자의 날' 성료
+-  대전대, 대학혁신지원사업 성과공유회 개최
+-  대전과학기술대, 산학클러스터 워크숍 개최
+-  대전 창업열린공간, 성과보고회 및 패밀리 Day 개최
+-  건보공단, 노인보호전문기관과 간담회 개최
+-  최민호 세종시장 시민체감형 정책 빛났다
+-  금산교육지원청 2024학년도 초등학교 입학생을 위한 예비보호자 교육
+-  건양대 간호대학 양선이 교수 국제학술대회 ‘Best Abstract Award’ 수상
+-  제42회 금산세계인삼축제 내년 10월 3일부터 13일까지 11일간 개최
+-  건양대 간호대학 석사과정 마친 중국 유학생 17명 발전기금 기탁 및 스승 위해 사은행사
+-  전국 도시가스사 동절기 안전대책 회의
+-  친명계 장기수 국회공직자윤리위원 출판기념회 성료
+-  상명대, 가족참여 재미있는 창의형 AI·SW 충남지역 초등캠프 성료
+-  천안시-충남교육청-천안교육지원청, 행복교육지구 2기 협약 체결
+-  천안시-충남교육청-천안교육지원청, 다함께돌봄센터 확충 ‘손잡아’
+-  천안시, ‘충청남도 드론 영상·사진 공모전’ 우수상 수상
+-  천안 원도심 도시재생 마스터플랜 수립용역 최종보고회 개최
+-  비단고을그린케어 금산군 제원면 국화차 기탁
+-  Stroese natuurliefhebber vindt volop leven in dood bos
+-  ‘มาริโอ้’ เผยรัก 9 ปี มีแพลนแต่งงานหรือไม่ ?
+-  ‘สุระ’ วอนทุกฝ่ายต้องตกผลึกก่อนแก้รัฐธรรมนูญ
+-  Gaabor will Launch New Products on December 12
+-  “다른 사람은 몰라도 제주도민들 만큼은 기억해야죠”
+-  10 декабрь — Ўзбекистон Республикаси Давлат мадҳияси қабул қилинган кун
+-  Texas verklagt Pharmakonzern Pfizer wegen falscher Behauptungen zu Corona-Impfstoffen
+-  Genç kadın evinin balkonunda ölü bulundu
+-  Soccerladuma | 'Protect The Young Baartman!'
+-  34 אלף שקל פחות: עוד יבואנית חשמליות מורידה מחירים
+-  Destinasi Ekowisata dengan Pemandangan Misterius
+-  អាមេរិក រារាំងការអំពាវនាវ ឲ្យមានបទឈប់បាញ់ នៅហ្គាហ្សា
+-  ¿Ecoansiedad? La COP28 tiene un lugar prohibido para hablar de cambio climático
+-  Дали ова треба да се примени и за киднаперите на Вања? Со „Законот на Тијана“ во Србија за убиство на дете следува доживотен затвор
+-  KPGA(한국프로골프협회)의 정권교체? 재벌 총수 구자철 제치고 회장에 오른 ‘평민’ 김원섭
+-  “최전방 부대 연봉 중견기업 수준으로”…2027년 소위 4990만원
+-  중국, 필리핀과 남중국해서 ‘충돌’…어선에 물대포 대응
