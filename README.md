@@ -1,11 +1,51 @@
 # Latest News
--  Programa Recytec recolhe mais de 75 toneladas de resíduos eletrônicos em Mato Grosso
--  Bijnor News: गन्ना पेराई की रफ्तार से गेहूं बुवाई ने पकड़ी तेजी
--  Bijnor News: बिजली लाइनों का कायाकल्प, नए तारों में सरपट दौड़ेगा करंट
--  Bijnor News: एक करोड़ 75 लाख क्विंटल का लगाया अतिरिक्त गन्ना सट्टा
--  Bijnor News: बेमिसाल प्राकृतिक सौंदर्य का स्थल है रामगंगा बांध परियोजना
--  Bijnor News: बेवफा निकला प्रेमी, महिला ने की आत्मदाह की कोशिश
--  Bijnor News: टॉर्च जलाकर इलाज कराने का उप मुख्यमंत्री ने लिया संज्ञान
--  Bijnor News: एक साथ उठी दंपती की अर्थी, हर आंख हुई नम
--  Bijnor News: प्राचीन कुएं की दीवार के विवाद में दो पक्षों में संघर्ष
--  Bijnor News: न्यायाधीशों की टीम ने क्रिकेट में डीएम इलेवन को हराया
+-  SPD will „Superreiche“ zur Kasse bitten - FDP-Mann kontert SPD-Plan: „Man besteuert hier nichts anderes als Arbeitsplätze“
+-  مظهر شاهين يدلي بصوته في الانتخابات الرئاسية.. ويؤكد: استحقاق دستوري مهم في مرحلة دقيقة
+-  رئيس جامعة الجلالة والعاملين برفقة الطلاب أثناء الإدلاء بأصواتهم في الانتخابات الرئاسية
+-  غلق باب التصويت أمام الناخبين في أول أيام الانتخابات الرئاسية
+-  الساعة الأخيرة.. إقبال متوسط في نهاية اليوم الأول لانتخابات الرئاسة بالمنيا (صور)
+-  بالصور.. إقبال ملحوظ من مواطني القليوبية على انتخابات الرئاسة قبل انتهاء اليوم الأول للتصويت
+-  الدكتورة مايا مرسي تدلي بصوتها فى الانتخابات الرئاسية بالدقي
+-  هذا ما يحدث للجسم عند تناول معلقتين من عسل النحل على الريق.. لن تتوقع
+-  مطران بورسعيد: الشعب المصري ضرب مثالا في الوطنية والوعي
+-  مُعمر ذهب للجنته مشيًا على الأقدام.. الشيخ عودة يُدلي بصوته في الانتخابات الرئاسية
+-  Kończ waść, wstydu oszczędź
+-  Deweloperzy zwiększyli ofertę, ale ceny mieszkań ciągle rosną
+-  Jakie korzyści podatkowe mogą uzyskać wierzyciele
+-  Jakie rodzaje e-faktoringu są popularne wśród MŚP
+-  Chcesz wykluczyć wspólnika? To nie będzie proste
+-  LuxVet ruszył z zakupami w regionie
+-  BM BNP Paribas: Na polskie obligacje może być za późno
+-  Bechtel przygotowuje się do budowy elektrowni z polskimi firmami
+-  Po artykule PB śledczy prześwietlą syndyka
+-  Twoja kariera nie kończy się na jednej porażce
+-  Giełdowi górnicy nie czują hossy na złocie
+-  Beşiktaşlı oyuncuya şok tehdit: 'Ne olacağını göreceksin'
+-  Fan stirbt auf Tribüne: Spiel zwischen Granada und Bilbao abgebrochen
+-  Fan stirbt auf Tribüne: Spiel zwischen Granada und Bilbao abgebrochen
+-  Koliko novca je Aleksandra Prijović zaradila u Zagrebu? Svota je takva da ćete dva puta morati da PREBROJITE NULE
+-  COP28: Uso eficiente da água e transição energética são prioridades da política agrícola
+-  إنفوغرافيك| تعرف على القطع الأثرية التي استرجعتها ليبيا خلال الثلاثة أعوام الماضية
+-  Deze kleermaker is geliefd in Voorthuizen: 'Dit werk is mijn speeltuin, ik ben er verliefd op'
+-  Muški organ može pokazati koliko će dugo njegov ‘vlasnik’ živjeti: Ovo je snažna naznaka prerane smrti
+-  Beware of iPhone 'one twelve' social media trend
+-  Sıfır araba almak isteyenler dikkat: Bu fiyatta son günler! En ucuz otomobil fiyatları dondu kaldı, yerinde sayıyor
+-  Höchst brisant: Die geplante Zerstörung Deutschlands und Europas
+-  Navijači Rijeke transparentom dali potporu Sopiću u “slučaju Selahi”
+-  Murtosa: IMI familiar com dedução reforçada
+-  ARD und ZDF: CDU-Kommission für weitreichende Reformen
+-  ARD und ZDF: CDU-Kommission für weitreichende Reformen
+-  Turn Leftover Pulp Into Extra-Flavorful Fruit Leather
+-  Türkiye Halk Temsilcileri Meclisi, Ankara'da Temsilcilerini Seçti
+-  Μάρκος: Έκτος σε κούρσα με παγκόσμιο ρεκόρ στα 800μ. ελεύθερο στο ευρωπαϊκό 25άρας
+-  الجيش السوداني يعلن تعرض موكب للصليب الأحمر لإطلاق نار و"الدعم السريع" تتهمه بقتل اثنين
+-  VCE results 2023 LIVE updates: Victorian Year 12 students receive results
+-  VCE results 2023 LIVE updates: Victorian Year 12 students receive results
+-  VCE results 2023 LIVE updates: Victorian Year 12 students receive results
+-  VCE results 2023 LIVE updates: Victorian Year 12 students receive results
+-  VCE results 2023 LIVE updates: Victorian Year 12 students receive results
+-  قيرغيزستان تستلم 96 طفلا وامرأة من مسلحي "داعش" المحتجزين شرقي سوريا
+-  Arda Turan atılan sloganlara çok sinirlendi. Tribüne koştu taraftarlarla tartıştı!
+-  "أونروا" تتهم إسرائيل بالتمهيد لتهجير جماعي للفلسطينيين من غزة
+-  Industrial hemp (Cannabis sativa): An ancient remedy for ailing Sri Lankan economy
+-  Abbie had vroeger te maken met huiselijk geweld en deelt online zijn verhaal: ‘Wil kleine Abbie’s helpen’
