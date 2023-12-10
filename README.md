@@ -1,11 +1,51 @@
 # Latest News
--  Discover the Deeper Plot and Message in ‘Squid Game’ Season 2
--  Ronnie minura sa KathNiel hiwalayan
--  2023 청소년 길거리 농구대회 성황
--  Dave Grohl’s Acts of Kindness: Feeding the Homeless During Foo Fighters’ Australia Tour Off-Day
--  Northern Lights for Ardeshir Trophy
--  Power of Ambedkar
--  САЩ ще помагат на Аржентина в преговорите с МВФ и в развиването на литиевата индустрия
--  데이트 폭력·이별 살인, 그 속에 어른거리는 남친의 두 얼굴 [정락인의 사건 속으로]
--  Explore England’s Luxurious 5-Star Euro 2024 Base with 45 Holes of Golf as Southgate Plans to Avoid Baden-Baden WAGs Circus
--  Aid groups warn of mass starvation in Gaza
+-  '수비 붕괴' 뮌헨, 프랑프푸르트에 1-5 대패... 리그 1위 탈환 실패
+-  बहुवर्षीय आयोजनाको आधार तयार
+-  रुसी सेनामा भर्ती भएका अभिषेक सम्पर्कविहीन
+-  मनोमालिन्यले नगर सभा हुन सकेन
+-  छाडियो माछाका भुरा
+-  जनशक्ति अभावले काममा ढिलाइ
+-  Tornado en Tennessee deja 3 muertos y 23 heridos
+-  Galería: Espectacular celebración en Plaza de la Mexicanidad
+-  Selena Gomez confesses to cosmetic procedure
+-  Global Incubation Innovation Forces Gather in Lingang for World Top-Performing Incubator Forum 2023
+-  수원특례시의회, 위원회별 2024년도 본예산안 예비심사 및 조례안 등 안건심사
+-  “도민 크리에이터 육성으로 제주 알리자”
+-  যুক্তরাষ্ট্রে টর্নেডোয় নিহত ৬, বিদ্যুৎহীন হাজারও মানুষ
+-  Врач призвал отказаться от некоторых продуктов белого цвета
+-  Tennis : Nadal et Djokovic dépassés ? Il dévoile leurs successeurs
+-  안산시 단원구, 겨울철 미세먼지 저감 운행차 배출가스 점검
+-  الهلال هذا الموسم … بعيد بفارق شاسع عن بقية أندية دوري روشن
+-  Elliott scores in stoppage time and Liverpool beats Palace 2-1 to move to top of Premier League
+-  Новая инклюзивная площадка «Работа без границ» заработала на Вологодчине
+-  제미나이 논란과 발전 - 구글의 최신 AI 프론티어
+-  한국사과연합회, 유·초·중·고·특수학교 116여 곳 '세척사과 무상공급'
+-  Stradiņa slimnīcā smadzeņu ķirurgiem palīdz robots
+-  ISRO Recruitment 2023: Application open for 54 Technician B posts
+-  Petrol - Diesel Rates Today: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
+-  전안균 회장 quot;지역경제 근간 소상공인 희망 위해 더욱 도와 주시길quot;
+-  NIA Raid: आईएसआईएस के बड़े आतंकी गिरोह का पर्दाफाश, महाराष्ट्र और कर्नाटक में 44 जगहों पर एनआईए की छापेमारी; 15 आतंकी गिरफ्तार
+-  काशवी और वृंदा पर हुई रुपयों की बारिश; डब्ल्यूपीएल नीलामी में चंडीगढ़ की काशवी सबसे महंगी खिलाड़ी बनीं
+-  Εορταστικό ωράριο: Ποιες Κυριακές θα είναι ανοιχτά τα καταστήματα
+-  Intendentes afines a Figueroa asumieron en Chos Malal, Junín de los Andes y Villa La Angostura
+-  জাতীয় ভ্যাট দিবস আজ
+-  안양도시공사, 5년 연속 독서경영 우수직장 인증 획득
+-  Morning briefing: BJP mulling over CMs in 3 states; Article 370 verdict keeps J&K on edge; and all the latest news
+-  Pemkot Tindaklanjuti Laporan Jalan Ambles di Kota Malang
+-  Назван простой способ улучшить здоровье за пару часов
+-  안산소방, 다문화 전문의용소방대장 봉사상 수상
+-  韓·中 바둑 1위, 내일 신안서 격돌
+-  Spices and Benefits : जेवणाच्या चवीबरोबरच 'हे' मसाले आरोग्याचा खजिना; वाचा त्यांचे उपयोग आणि फायदे
+-  Jorge “Fatura” Broun, el último arquero de Maradona que fue figura ante River y hace soñar a Rosario Central
+-  ZICTA Directs Airtel Zambia to Compensate Subscribers for Network Outages
+-  เฉลยแล้ว! เลขเด็ด คุณหญิงงามใจ งวด 16 ธ.ค. 66 วิ่ง 5 เตรียมเก็บทรัพย์
+-  Ulsan Film Hamka & Siti Raham (Vol 2): Inspiratif, Banyak Momen Mengharukan
+-  경기도 '신축 반지하주택 금지' 제도개선 노력 통했다
+-  Đi thăm bạn trai, cô gái bị trói, cướp tài sản trong khách sạn
+-  Jayden Daniels gana el Trofeo Heisman tras una gran temporada sin alcanzar los playoffs
+-  «Вашингтон» — «Рейнджерс»: видеообзор матча НХЛ
+-  Doãn Hải My thừa nhận từng thử trò chuyện và gặp gỡ Văn Hậu trước khi cả 2 có mối quan hệ khác, nhưng không phải là người thứ ba
+-  Dân thường chiếm 61% trường hợp chết chóc ở Gaza do không kích của Israel
+-  Những bức thư tình Pháp bị quên từ thế kỷ 18
+-  French Military Downs Two Drones Headed from Yemen Over Red Sea
+-  Iraq’s Kataeb Hezbollah vows more attacks on US forces
