@@ -1,11 +1,51 @@
 # Latest News
--  Kazuchika Okada To Team With Motor City Machine Guns For TNA Return
--  VIDEO: बाबर आजम के ‘चाचा’ की हुई जमकर धुनाई, एक ओवर में ही दिए इतने रन कि मच गया हाहाकार
--  SK, 아시아 최초 '자발적 탄소배출권 시장' 확대 위한 연합체 구축
--  성 김 前 주한 美대사 현대차 '자문역' 맡아...'국제정세 대응'이 목적
--  LG엔솔, 중국 제외 글로벌 배터리시장서 선두...SK온과 삼성SDI는 4·5위
--  Queensland Premier Annastacia Palaszczuk shared never before seen photos ahead of retirement
--  Apple iPad: अगले साल लॉन्च होंगे सबसे सस्ते iPad! धूम मचाने की तैयारी में एपल
--  UFC 박준용, 통한의 판정패… 韓선수 최다 연승 '4'에서 멈추다
--  전소연, 압도적인 카리스마 눈빛 발산
--  아직 이정후도 남았다… 이정후-김하성 vs 오타니, 꿈의 무대 서울에서 열릴까
+-  معرض الرياض للسيارات يكشف عن سيارة كيا K3 لأول مرة بالشرق الأوسط
+-  Abre Luis Miguel nuevas fechas en México para 2024
+-  Fakultas Psikologi UIN Jakarta Terbaik se-Indonesia Versi SCImago
+-  الإفراط في تناول هذا المشروب يصيبك بالكبد الدهني
+-  Indonesia's Airport on High Alert to Prevent COVID-19 Entry
+-  Progres PLTP Lumut Balai di Sumsel Mencapai 25 Persen, PGE Optimistis Pembangkit Beroperasi Tahun Depan
+-  ”Jag var tio år första gången jag tänkte på att ta mitt liv”
+-  Terör devleti İsrail Batı Şeria'da gece boyu kan kusturdu
+-  NYT назвала главный страх Европы из-за прихода Трампа к власти
+-  Phát hiện loài ếch mới có tiếng kêu quạc quạc như vịt
+-  Trung Quốc là nước có vốn đầu tư lớn nhất vào Bắc Giang
+-  Fischer prangern „Aal-Gemetzel“ bei Hochrhein-Kraftwerk an
+-  Biathletinnen hoffen auf Steigerung mit der Staffel
+-  ইউনেসকোকে ফিলিস্তিনের ঐতিহাসিক স্থাপনা রক্ষার আহ্বান হামাসের
+-  Lasikaton unelma
+-  ما يحتاجه جمهور الأهلي من رياض محرز
+-  2 सुपरस्टार्स से रहा अफेयर, तोड़ी सगाई, इस हसीना ने क्यों की शादी से तौबा?
+-  中二選區熱戰 林右昌陪林靜儀霧峰掃街 攤商喊「台灣加油！」
+-  La locomotiva elettrica che rivoluziona lo Stretto: a chi serve il Ponte?
+-  বহুনির্বাচনি প্রশ্ন (২১-২৭) : পরিচ্ছদ ৩৪ | বাংলা ২য় পত্র - এসএসসি ২০২৪
+-  내년도 종축·액상정액 공급가격 결정
+-  Las ‘Águilas’ pierden la semifinal de vuelta vs. San Luis, pero ‘vuelan’ a la final de la Liga MX
+-  งานฉลองครบรอบ 30 ปี กาดคำพลาซ่าแม่ฮ่องสอน
+-  蔡英文手作「撐基隆」雨傘 挺鄭文婷進國會撐起民主自由
+-  SC debars defaulter mining firms from tender process
+-  Is this New Jersey Christmas Tradition Going Away?
+-  Streching U.S. patience, time is running out on Israel's campaign against Hamas in Gaza
+-  Да кажем най-после сбогом на Паметника на Съветската армия
+-  رونالدو من صنعها … أهم ميزة في النصر هذا الموسم
+-  توخيل يؤكد اهتمام بايرن ميونخ بضم رونالد أراوخو
+-  Italialaisella ihmistikkarilla oli pyykkipäivä – ahtoi povensa Versacen uikkareihin
+-  ये रिकॉर्ड बनाएगा ‘डंकी’ को ब्लॉकबस्टर? शाहरुख खान की बादशाहत को मिलेगा नया मुकाम
+-  Eva Máziková odhalila intímnosti so skupinou ABBA: Relax v saune sa nečakane zmenil!
+-  साल 2023 ने गौतम अडानी को दिया तगड़ा झटका, हिंडनबर्ग के भूत ने किया बर्बाद
+-  Näkymättömät sankarit: Harrastamisen kalleus on haaste sekä seuroille että pelaajille
+-  Om kommunalt VA – smäll för ekonomin
+-  Jussi Tukiainen ratkoo paikallisten ongelmia radiossa – Kaikkea elämässään tehneelle miehelle psykologia on elämäntapa
+-  Mengenal Ikan Belida Si Punggung Pisau yang Nyaris Punah
+-  Sam Prince net worth: How much is Made in Chelsea star worth?
+-  Så blev Haglöfs gängens arbetskläder
+-  Basildon ageing council homes in urgent need of repairs
+-  "Ensin keskustelua, sitten päätöksiä" – Seutuyhteistyön tilanne ja tulevaisuus huolestuttavat päättäjiä Forssan seudulla
+-  Bildung: OGS-Ausbau in Mülheim: „Die Eltern sind stark verunsichert“
+-  Unai Emery and Mikel Arteta both hold back after Aston Villa beat Arsenal
+-  Salah Pilih Bahan Detergen Celana Dalam Bisa Sebabkan Masalah Hormon bagi Wanita
+-  Konsumen Indonesia Bisa Manfaatkan Google Built in di All New Honda Accord RS e:HEV
+-  Pääkirjoitus | Ay-liike kiristää lakkoruuviaan kääntääkseen työmarkkinoita tuulettavan hallituksen pään
+-  Israel Lanjutkan Serangan setelah AS Melindunginya dengan Veto di DK PBB
+-  Kava ne prebudi le telesa in duha, prebudi tudi kožo in ohranja njen mladostni videz
+-  Merja Nykänen jätti suorittamisen ja palkkatyön hypätessään hyvinvointiyrittäjäksi – "Ei voi odottaa, että loma tulee ja sitten palaudun"
