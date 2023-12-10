@@ -1,51 +1,51 @@
 # Latest News
--  Eyüpspor'da gerilim! Teknik Direktörü Arda Turan, tribünlerle tartıştı
--  Granada-Athletic Bilbao maçında bir taraftar hayatını kaybetti
--  إنفوغرافيك| الإنفاق لبعض القطاعات والجهات التابعة لها من 01 يناير إلى 30 نوفمبر 2023
--  Crucial VAT debate on Sunday halted due to lack of quorum
--  Budget 2024 improves transparency in IMF program progress
--  Janaka Ratnayake faults Power Minister for outage
--  Two probes launched into country wide power outage
--  Air Arabia launches direct flights to Sri Lanka from Abu Dhabi
--  Exports powerhouse Hayleys Group sweeps 17 Presidential Export Awards
--  Second half rally takes Kandy and CR through to remain unbeaten
--  Deadline for RfQ for SLT extended till 12 January
--  CH shock Havies
--  Port City Colombo’s festive Christmas carols tonight
--  President unveils plans to depoliticise and revolutionise Sri Lanka Cricket by 2030
--  Aitken Spence Travels welcomes three cruise ships in a single day at Colombo Port
--  కాంగ్రెస్‌ ఎమ్మెల్యేల కొనుగోలుకు యత్నం
--  WS 우승 3회 베테랑 윌 스미스, 1년 500만$에 KC행
--  Letter: Embrace love, not war
--  Pep Guardiola: İsyan etmeliyiz
--  Filistin hükümeti: Hamas siyasi haritanın bir parçası ve İsrail bunu yok edemez
--  Good Day Cooks: True Food Kitchen
--  Pine Hills Parade showcases community pride
--  NJ Now: Challenges in our schools, food systems
--  Washington Capitals spread holiday cheer with toy drive
--  Virginia Rep. Abigail Spanberger joins On The Hill to discuss her run for governor
--  House Republicans look to formally impeach President Joe Biden
--  A behind-the-scenes look at the Capital One Arena changeover
--  UK risks 'returning to Victorian age' as poverty gap no better than after 2008 crash
--  Woman, 27, killed in horror crash named as three others fight for life in hospital
--  Outrage as pro-Palestine protester spotted 'carrying The Final Solution placard'
--  Girls, 13 and 14, arrested after Jewish woman 'violently robbed' in 'terrifying' incident
--  'I used to go door-to-door enforcing the BBC TV licence and it was terrifying'
--  BBC was 'inconsistent' and 'unreliable' as judge orders release of Martin Bashir emails
--  Police arrest suspect over alleyway murder of 45-year-old man who was killed after leaving East Finchley Tube Station nearly 40 years ago
--  Police arrest suspect over alleyway murder of 45-year-old man who was killed after leaving East Finchley Tube Station nearly 40 years ago
--  Emilio Serrano conquista por mineras el XXII Concurso de cante
--  17 مصابا في اصطدام قطارين بإيطاليا
--  سكني يوضح آلية الاطلاع على أراضي المخططات السكنية وحجز الوحدات
--  En vivo: Javier Milei le tomó juramento a sus ministros sin TV ni periodistas
--  Gary Neville dismisses ‘nonsense’ idea of sacking Man Utd boss Erik ten Hag
--  I'm A Celeb's Tony Bellew brands disgusting Stakeout trial 'a disgrace' as he bids to win a luxury meal as the final gets underway: 'You're all a*******s!'
--  Poruke u Utisku nedelje: Opozicija pobeđuje ako građani izađu, u Beogradu se lomi sudbina Srbije
--  Israel is trying to force Gazans into Egypt – UN official — RT World News
--  Sigit, L’Équipementier Italien, S’Implante en Algérie : Un Nouveau Souffle pour l’Industrie Automobile
--  Andrea Legarreta enamora a sus fans con un atrevido escote
--  Protests At UN Climate Talks See 'Shocking Level Of Censorship'
--  Protests At UN Climate Talks See 'Shocking Level Of Censorship'
--  조희대 대법원장 취임…‘재판지연’ 해결 관심 집중
--  A merger between Cigna and Humana that would have created a gigantic $140 billion healthcare conglomerate has been called off
--  Jurčić: Moraju se upaliti alarmi na svim razinama u Dinamu
+-  “진정한 주장의 모습!” 손흥민, 1골 2도움→평점 9.5점…토트넘, 뉴캐슬 4-1 누르고 5G 무승 탈출
+-  Encenderán hoy árbol navideño
+-  잠실 파크리오·트리지움 국평 경매 나와 ... 1차에 매각은 어려울 듯
+-  JTC 2023: "Mute" du Koweïtien Slimane Bassem remporte le Tanit d'or
+-  [40억 전세, 2200만원 월세…불황 대한민국 맞나요? [부동산360]
+-  [올해 사자성어 ‘견리망의’ 뭐길래…홍준표 “참 부끄럽고 부끄럽다”
+-  [“아직 회복전인데”…유니클로 2년연속 순이익보다 많은 배당
+-  5 Ofertas increíbles en Amazon que te sorprenderán
+-  Argentina firmará mañana su acceso a la OCDE, anuncia la nueva canciller
+-  Manchester United gæti gefið Phillips líflínu
+-  Skildi eins árs dóttur eftir hjá ættingjum og hvarf – Kennsl borin á líkamsleifar 40 árum seinna
+-  Girona u gostima pobijedila Barcelonu i zauzela prvo mjesto španske La Lige
+-  VIDEO Čudesna Girona razbila Barcelonu! Čvrsto drži vrh lige
+-  Setahun Menikah, Erina Gudono ke Kaesang Pangarep: Pernikahan jadi Kolaborasi Mimpi Berdua
+-  Coronation Street spoilers: Crisis for Evelyn as Roy is suddenly taken ill
+-  LaLiga: Girona, victorie uriașă în fața Barcelonei
+-  EastEnders spoilers: Sharon’s wedding dress disaster revealed as the Christmas murder plot thickens
+-  సిద్దూ ప్రభుత్వం ఏ క్షణమైనా కూలిపోవచ్చు!
+-  Гол Довбика допоміг Жироні перемогти Барселону: результати матчів 16 туру Ла-Ліги
+-  Justin Jefferson catches two passes, then heads to locker room with chest injury
+-  Pertamina Lakukan Langkah Penting untuk Wujudkan Target Nol Emisi Karbon
+-  Anxious wait over as Victorian students receive their ATAR results
+-  Piden liberar a los "inocentes" detenidos en la lucha contra las pandillas en El Salvador
+-  윤 대통령, 오늘 네덜란드 국빈 방문…이재용·최태원 동행
+-  VIDEO Doček Hane u Sinju: Ona zapjevala, svirali harmoniku, a gradonačelnik održao govor
+-  Μπαρτσελόνα - Τζιρόνα 2-4: Την ξεγύμνωσε με τεσσάρα και έμεινε μόνη πρώτη! (vid)
+-  جيرونا يواصل المعجزة.. قهر برشلونة بنتيجة تاريخية وتصدر الليغا
+-  'Não há dinheiro nem alternativa ao ajuste': 5 frases do primeiro discurso de Milei como presidente da Argentina
+-  سعر ومواصفات OnePlus 12 – مميزات وعيوب ون بلس 12
+-  Νέο τζακ ποτ στο Τζόκερ: Μοιράζει €1,8 εκατ. την Τρίτη (12/12)
+-  Milei le tomó juramento a los nueve ministros que integran el gabinete de Gobierno
+-  Britanski političar kaže da bi pregovori s Putinom bili šamar za bogati i naoružani NATO. ‘Mogu li oni ikoga zaštititi?‘
+-  Tylan Wallace 76-yard punt return for TD gives Ravens 37-31 OT win over Rams
+-  Gani Adams Marries Ex-Beauty Queen In Lagos (Photos)
+-  Woman whose PHOTO is being circulated as one of those FRANCIS VAN-LARE slept with speaks as she releases her chats with him
+-  Los cuentos infantiles como discurso público
+-  Biden pozvao Zelenskog na hitan sastanak u Washington
+-  A TikToker Tried McDonald's CosMc's For The First Time & The Menu Looks Unreal (VIDEO)
+-  Police charge man with performing indecent act
+-  Anime „der Junge und der Reiher“ auf Nummer der US-Kinocharts
+-  Anime „der Junge und der Reiher“ auf Nummer der US-Kinocharts
+-  Anime „der Junge und der Reiher“ auf Nummer der US-Kinocharts
+-  Werdegang & Privates - Alle Infos zu Schlagersängerin Beatrice Egli
+-  Forskarna om jättedjuret: ”En undervattens-t-rex”
+-  ¡Infeliz! Golpea brutalmente a su esposa y la manda al hospital en Granjas del Sur
+-  సీఎం క్యాంప్‌ ఆఫీసుగా ఎంసీఆర్‌హెచ్‌ఆర్‌డీసీ?
+-  Kalender Bali Senin 11 Desember 2023: Baik untuk Menebang Kayu & Memuja Pitra, Hindari
+-  Kayseri'de meydana gelen zincirleme trafik kazası! Korkunç kazada 1 kişi yaralandı
+-  A round up of this weekend's rugby results
+-  A Fiorentina kettős emberelőnyben sem tudott nyerni
