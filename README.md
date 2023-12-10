@@ -1,11 +1,51 @@
 # Latest News
--  أبو عبيدة : لن يستطيع احد تحرير جندي واحد الا بشروطنا
--  Want to work in The Netherlands? See here
--  2:0 - Hartberg überwintert nach Sieg gegen WAC auf Platz 4
--  C.J. Stroud bizarrely compared to Taylor Swift and LeBron James by Kyle Long, who picks the rookie Houston Texans quarterback as his player of the season for a superb first year in NFL
--  McDonald’s security guard sacked after mopping where homeless man was sitting
--  ‘Umagogo sent Rick Ross to buy bread’ – Kwesta opens up about working with the American rapper [watch]
--  EDUKACIJA UČENIKA PARAĆINSKOG MEŠ-A: Poseta međunarodnoj izložbi u Beogradu (FOTO)
--  الوطنية للانتخابات: 5 ملايين مُستعلم عن مكان تصويته في انتخابات الرئاسة
--  مصرع شاب إثر سقوط ونش عملاق عليه أثناء تأدية عمله في بورسعيد
--  El gesto de Alberto y la reacción de Cristina cuando se volvieron a cruzar en el Congreso
+-  Teilabschnitt der Alten Brunnengasse wegen Umzug gesperrt
+-  Heavy fighting across Gaza as Israel presses ahead with renewed US military and diplomatic support
+-  At COP28, sticking points remain on fossil fuels and adapting to climate as talks near crunch time
+-  Leona Maguire and Lucas Glover in contention at Grant Thornton Invitational ahead of final round in Florida
+-  "القسام": تمكّنا من التدمير الكلي أو الجزئي لـ 180 آلية إسرائيلية خلال 10 أيام
+-  Igora Štimca sreli smo tamo gdje ga nismo očekivali, prije nekoliko dana imao je operaciju srca, evo u kakvoj je formi
+-  Matija Cvek u utrci za još jedan ‘Zlatni Studio‘: ‘Mogu reći samo neka pobjedi najbolji, ipak su tu Grašo, Tony...‘
+-  Спрогнозированы экстремальная жара и засухи в Европе
+-  Makron ponovio podršku Ukrajini za pristupne pregovore o članstvu u EU
+-  Karamoh: “Oggi servivano punti, ora due partite importantissime”
+-  المنافع الاجتماعية.. بين الغني والفقير
+-  رمال متحركة يغرق فيها المنطق
+-  Dôvera by namiesto odvodov zvýšila platbu štátu, Union zdravotná poisťovňa pripomína pripoistenie
+-  Fortuna og HB Køge deler i porten i 'subtop-opgør'
+-  Впечатляващо! Карлос Насар с нов световен рекорд във вдигането на тежести
+-  2. Bundesliga, 16. Spieltag: Schalke siegt nach Fan-Chaos in Rostock
+-  – السفارة الأمريكية : ( 15.5 ) مليون دولار مساعدات لليبيا بعد الفيضانات التي اجتاحت درنة وعدد من المناطق المجاورة لها مؤخرا .
+-  Hamas'ın askeri gücü işgalci İsrail'i şaşırttı: Çatışmalar aylarca sürebilir
+-  وماذا بعد يا أمريكا؟!
+-  El Atlético pide la hora ante un bravo Almería
+-  El Atlético pide la hora ante un bravo Almería
+-  Sony prepara la rivoluzione e sarebbe pronta ad abbandonare la gamma Xperia
+-  Ismail Barlov briljirao u Zagrebu, SPID-u osam medalja
+-  Gazze'de sağlık sistemi çöktü: Hastanede sedye kalmadı, hastalar koridorlara taşındı
+-  Detroves Travels welcomes an Incentive Group from France
+-  Delhi Famous Rabdi: रबड़ी खाने के हैं शौकीन, दिल्ली में यहां मिलेगी लच्छेदार
+-  Planulo krovište u Mokošici, na terenu vatrogasci s 5 vozila
+-  Southampton set to beat multiple rivals to Irish teen sensation Joe O’Brien-Whitmarsh for six-figure fee
+-  ﻿Ніцца - Реймс 2:1: огляд матчу ВІДЕО
+-  Gruppe will Rettung der Sehstation in Selm: „Wir denken an eine kleine Bürgerinitiative“
+-  Trener Mario Kovačević uspješno operisan
+-  حان الوقت
+-  Lech Poznań szuka nowego szkoleniowca
+-  UŽIVO VARAŽDIN - OSIJEK 1:1 VAR izrežirao utakmicu, obje momčadi traže pobjedu
+-  Milei toma juramento como nuevo presidente de Argentina
+-  Бугарија да ги гарантира правата на македонската етничка заедница: Извештај на Комитетот за елиминација на расна дискриминација при ОН
+-  सालभर में ही टूट गई शादी, टाइगर श्रॉफ की मां संग जुड़ा नाम, खूब मचा बवाल
+-  Fuertes lluvias dejan dos muertos y más de 300 personas sin hogar en el estado de Río de Janeiro
+-  Izuzetno otkriće u Viminacijumu
+-  Kontroverzni Marijan iz 'Ljubav je na selu' je zbog Patty sve prodao i preselio u 'rajski grad' na Tajland: 'Uhvatila je moje srce'
+-  Indonesian Teachers Association Calls for Teacher Governance to be Improved
+-  Eichelsbacher Gnadenhof für Hunde sucht neues Zuhause im Kreis Miltenberg
+-  Lovci u Srbiji pronašli obezglavljeno tijelo u fazi raspadanja
+-  بعد إستهداف برج مراقبة لـ"اليونيفيل"... تيننتي يوضّح!
+-  Neuen Krankentransportwagen für Katastrophenschutz im Main-Tauber-Kreis übergeben
+-  Caso Albergues: Confirman condena a exfuncionaria del Senniaf por permitir abuso a niño
+-  VEČERA ZA 340 DINARA KOJA SE SPREMA ZA POLA SATA: Napravite pitu od koje će se najesti cela porodica, a koju domaćice obožavaju
+-  Hüttlingen dankt den Mitwirkenden des Jubiläumsbuches
+-  A "béke" nevében uszítják Orbán Viktort az EU ellen, és biztatják Putyinhoz dörgölőzésre
+-  Şalva Papuaşvili Azərbaycana gəldi
