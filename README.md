@@ -1,51 +1,11 @@
 # Latest News
--  [법원 “연가 사용 중에는 근로자 취업규칙 위반 적용 어려워”
--  [세븐틴 에스쿱스, 유기동물 보호소에 5000만 원 기부
--  [정부, AI 확산에 18개 시군 산란계 농장 특별방역 시행
--  [농식품부, 농업환경보전 대상에 ‘홍천 고양산아람마을’ 선정
--  [“변함없는 지원 약속”…바이든, 12일 젤렌스키 백악관 전격 초청
--  [‘연말 이벤트’ 경제정책방향 발표, 내년 1월 유력…최상목 데뷔 무대될 듯
--  [20대이하 주택담보대출 연체율 2년째 가장 높아
--  [신상진 성남시장 내년 사자성어 ‘제구포신(除舊布新)’ 선정
--  [[이홍석의 시선고정]‘절체절명’에 놓인 제2공항철도… 반드시 반영돼야
--  [“난 가족들의 ATM이었다”…30년 넘은 ‘연금캐럴’ 머라이어 캐리 고백
--  [성남시, 올해 매월 1600여 명 조기 치매 검진받아
--  [경기도, 생애최초 주택구입 취득세 감면조건 위반 1518건 적발
--  [경기도 예방가능 외상사망률 9.1%, 2018년 대비 절반 이상 감소
--  [경기도,올해 글로벌 행보 빛났다
--  [경기도, 구리시 종합감사 결과 발표…5건의 기관경고 처분
--  [내년 경제정책방향 발표 최상목 후보자 데뷔 무대 되나
--  عضو مجلس الأهلي: موديست لم يُختبر حتى الآن
--  إطلاق نار واشتباكات عنيفة في محيط موقع عسكري إسرائيلي في نابلس
--  حظك اليوم وتوقعات الأبراج 11-12: أزمة مالية لهذا البرج.. وتحذير لهؤلاء
--  مستشار الرئيس للصحة يكشف أسباب انتشار نزلات البرد وطرق الوقاية منها
--  رصدنا سلبيات غير مؤثرة.. حملة فريد زهران: الانتخابات الرئاسية الحالية أفضل من السابقة
--  عصام شيحة: اليوم الأول للانتخابات الرئاسية انتهى دون عنف للمرة الأولى
--  لم نرصد أي مخالفات.. محافظ الشرقية: إقبال غير مسبوق بلجان انتخابات الرئاسة
--  Κολομβία: Η κυβέρνηση καταργεί τα πρόστιμα για την κατοχή μικροποσοτήτων ναρκωτικών
--  رد فعل مورينيو بعد تعادل روما أمام فيورنتينا
--  Google Claims EU Break Up Threat Is ‘Flawed’
--  Meteorenzwerm Geminiden bereikt hoogtepunt
--  '인간극장' 산골 위봉마을에는 두 얼굴(?)의 목사가 산다
--  Halkett says he must be patient for Hearts chance - and Scotland hope
--  “오타니, 2028 올림픽을 홈구장서 하겠네” 日매체 ‘행복회로 풀가동’
--  7억달러 오타니가 ‘연봉 지급 유예’라니… 日 반응 “오타니가 손해”
--  St Mirren star Ayunga refutes Rangers boss Clement's new father theory
--  Descubren canteras de etapa final del imperio Inca
--  오타니 다저스행 전한 日 '무료'신문, 현지서 약 ‘2만원’에 되팔린다
--  تقييم باريديس مع روما أمام فيورنتينا
--  Independiente del Valle vs. Liga de Quito: empate 0- 0 en el primer tiempo
--  Vikings receiver Justin Jefferson leaves Raiders game with chest injury
--  Soccerladuma | History-Makers Girona Sink Barca To Reclaim Top Spot
--  Incêndio em habitação provoca dois desalojados em Ourique
--  Corporate Ladder: your weekly guide to executive appointments in South Australia
--  Matt O’Riley says Celtic were BULLIED by Kilmarnock and lacked courage in Rugby Park defeat
--  Man Utd vs Bayern Munich: Kane and Co look to shatter United’s Champions League dreams in huge match – stream, TV, teams
--  انهيار برشلونة أمام جيرونا …دليل على شيء واحد!
--  الاحتلال يحتجز 142 أسيرة من غزة بينهن رضيعات
--  الإثنين 27 جمادى الأولى.. 12 ساعة بين صلاتي الفجر والمغرب في الرياض
--  Kaza yapan sürücü kayıplara karıştı
--  Rodrigo tinha as 'Chaves' da goleada sem espinhas do Estoril na Amoreira
--  Trump não vai testemunhar segunda-feira no julgamento por fraude fiscal
--  Trump Abruptly Pulled Out Of Testifying In Court In The Chillest Way Possible (Which Is To Say With An Epic All-Caps Meltdown)
--  Roma-Fiorentina risultato: 1-1 gol di Martinez Quarta e Lukaku
+-  Superioridad rojiblanca antes de la tragedia
+-  Cameroun :: Camrail : Trafic Fc Remporte La Coupe Saint Eloi 2023 :: Cameroon
+-  Las dos malas noticias que recibió Dani Alves mientras espera el juicio por presunta violación
+-  Police ask for public's help as teenager, 14, missing - last seen at Manchester Victoria Station
+-  Police ramp up Christmas patrols in Greater Manchester town struck by yob violence this summer
+-  Vlasnik tabloida, bivši Stefanovićev čovek: Ko je Aleksandar Papić, koji se dovodi u vezu sa „pismom Vučiću“
+-  Nica drži korak sa PSŽ, Obamejang gura sve bolji Marsej
+-  El Huesca gana su primer partido en casa, ante el Ferrol
+-  رؤية تنوه بشأن تعمق السحب الماطرة نحو مناطق جديدة
+-  ITV I'm A Celebrity viewers say same thing moments after Nigel Farage's exit over Sam and Tony moment
