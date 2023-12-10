@@ -1,51 +1,51 @@
 # Latest News
+-  लैगिंक हिंसा विरुद्धको १६ दिने अभियान समापन
+-  इरानद्वारा १३ हजार अवैध अफगान आप्रवासी निष्कासित
+-  आफैंले बोकेको बन्दुक पड्किँदा एकको मृत्यु
+-  Layún pide apoyo para el América en la final: 'El Estadio Azteca debe ser un infierno'
+-  Gustavo Leal quiere ver al América Campeón: 'Mi apoyo va a estar con André'
+-  حملات لمقاطعة (زارا) لاستغلالها مجازر غزة في التسويق
+-  الأوقاف تعلن بدء التسجيل الأولي للراغبين بالحج
+-  عاجل.. إيداع حساب المواطن لشهر ديسمبر والاستعلام الآن برقم الهوية
+-  كن قدوة لأطفالك في 10 خطوات
+-  استعدادًا للأمطار.. أمانة العاصمة المقدسة ترفع درجة الطوارئ وتُحذر
+-  Yargıtay’dan primle çalışanlara kötü haber
+-  El posible RIVAL del América en la Gran Final de la Liga MX
+-  Hakan Çalhanoğlu hem attı hem attırdı... Inter, kendi evinde çok farklı!
+-  দুই বছর পর ওয়েস্ট ইন্ডিজ দলে রাসেল
+-  Beren Saat, İstanbul İçin Son Çağrı'daki sevişme sahnesi hakkında ilk kez konuştu
+-  여준석 워싱턴대전 9분간 2점·1R-1AS·1블록, 곤자가대 5점차 분패
+-  Fenomeno Shiba Inu ma il Bitcoin Rimane il Re delle Criptovalute
+-  LeBron James et Anthony Davis offrent la première Coupe NBA de l'histoire aux Lakers
+-  Yılın Erkeği seçilen Kenan İmirzalıoğlu: 'Mesele erkek olmak değil, mesele beyefendi olmak'
+-  「東洋の魔女」寺山恵美子氏死去
+-  Agri-commodities exports decline to 17.93 lakh tonnes in Sept: APEDA
+-  Merja Nykänen jätti suorittamisen ja palkkatyön hypätessään hyvinvointiyrittäjäksi – "Ei voi odottaa, että loma tulee ja sitten palaudun"
+-  Kochov Tucson rozhodol 23 sekúnd pred koncom. Slovák bol na ľade
+-  Dobre vesti za Partizan: Vraća se bitan igrač
+-  (FOTO) Ovo je LUKSUZNA VILA Ace Pejovića od 800.000 EVRA: Prava je PALATA, pevačeva kuća grmi od skupoće
+-  Махачев оценил битву взглядов Яна и Макгрегора: «Надо было дать ему один раз»
+-  Napravite gel protiv podočnjaka od kave sami! Sve sastojke već imate u kuhinji
+-  ‘การบินไทย’ พร้อมรับผิดชอบ-เยียวยา เหตุผู้โดยสารโดนเครื่องดื่มร้อนหกรด
+-  L’école de la vie avec le Parc Naturel Régional des Causses du Quercy
+-  Prabowo Soroti Upah Murah: Bangsa Indonesia Tidak Mau Jadi Bangsa UMR
+-  საქართველოს შეუძლია ევროკავშირის გვერდში დგომის იმედი ჰქონდეს
+-  Stängd gräns oroar rysk minoritet i Finland
+-  Кучеров возглавил гонку снайперов текущего сезона НХЛ
+-  Fantastis! Segini Mahar yang Diberikan Egy Maulana Vikri Buat Adiba Khanza
+-  Apa Itu Tabungan BRI Simpel, Apa Kelebihannya?
+-  Prima del Milan c'è il Tottenham: Newcastle in campo alle 17:30 a Londra
+-  EFCC decries rise in land fraud, cybercrime in Southeast
+-  Baldırıkara nedir ne işe yarar? İşte yanıtı...
+-  미국 정부, 이스라엘에 포탄 보내기 위해 ‘의회 패싱’
+-  Elon Musk đã sai khi nghĩ Cybertruck sẽ trở thành ‘cỗ máy in tiền’: Giá bản đắt nhất bị đội lên 100.000 USD, KOLs trải nghiệm ‘bóc phốt’ thực tế khác xa quảng cáo
+-  Tényleg beleőszülhetünk a feszültségbe
+-  Шарангович отличился в матче НХЛ с передачи Соловьева
+-  Türkiyədə 78 terror yuvası MƏHV EDİLDİ
+-  قصف إسرائيلي كثيف على غزة
+-  Electrify Canada Switches To kWh Pricing
 -  Meteoroloji'den sağanak, kar ve fırtına uyarısı!
 -  Basketbol karşılaşmalarına ZBEÜ ev sahipliği yapacak
 -  Bakan Şimşek: TL'de kan kaybı durdu
+-  Чорноморець зіграє з Колосом, Ворскла прийме Рух: розклад матчів УПЛ
 -  غدًا.. صالون أوبرا دمنهور الثقافي يحتفى باليوم العالمي لذوى الإعاقة
--  Drew Barrymore tells why she hates men who nap a lot
--  Kajal Aggarwal pens sweet birthday wish for her "favourite person" dad Vinay
--  [“5년 남은 것 아니었어”…지구 기온 1.5도 상승 내년에 뚫린다
--  [[리얼푸드] ‘세사민 주목’ 대만에서 늘어나는 수면보조제
--  [[리얼푸드] 한국 스타일 외식으로 눈 돌리는 태국 기업들
--  [[리얼푸드] 파라과이, 25년 만에 대미 소고기 수출 재개
--  [경주시, 식물원(라원) 2025년 하반기 개관…동궁원과 시너지 효과 기대
--  [[리얼푸드] 기업 문의 많은 베트남 건기식 시장 트렌드는?
--  [대구시, 축산물도매시장 폐쇄 공고
--  ['견리망의', 교수가 뽑은 올해 사자성어…“이로움 보니 의로움 잊어”
--  दुग्ध उत्पादक किसानों द्वारा दर वृद्धि को लेकर आंदोलन...
--  Τον Μαρτίνεθ τον θέλει μεγάλη ομάδα της Ισπανίας!
--  央行 12/14 理監事會，專家估利率連 3 凍須留意通膨預期
--  ทองคำ: ไม่ต้องมองย้อนกลับไปเมื่อโลหะสีเหลืองมีราคาทะลุ 2,100 ดอลลาร์
--  Mugoša za "Vijesti": Potrebno socijaldemokratsko okupljanje
--  إصابة أسطورة التنس الأمريكية كريس إيفرت بالسرطان مجددا
--  Siyonist soykırıma arka çıkan ABD'ye tüm dünyada büyük öfkeye neden oldu
--  Fırtına çıkış peşinde
--  BREAKING NEWS: Todd Boehly is Set to Sign two FORMER Chelsea FLOP players who have scored more goals than Erling Haaland this Season. I think the will be a Good replacement for Nicolas Jackson
--  Cyprus agency empowers businesses, startups, and development projects
--  Tales from the coffeeshop: Who is really in charge in Cyprus?
--  ‘놀던언니’ 게스트 이지현, “‘X맨’ 녹화하고 혼자 화장실서 울었다”…비하인드 공개
--  Fenerbahçe’de 10 isim derbi heyecanı yaşadı
--  Caretaker CM Grants License Token Holders a Three-Day Fine Exemption
--  Do Sparty mě lanařili dvakrát, přiznal Jágr. Pražané prý na Kladno nechtěli jezdit
--  Rising star sheds tears over subbing
--  Rising star sheds tears over subbing
--  قهرمانی تیم نیویارک سترایکرز در رقابت‌های 10 آوره‌ ابوظبی
--  بدء التسجيل للراغبين بأداء الحج لموسم 2024 إلكترونيا (رابط)
--  Andrej Milović, ministar pravde u Vladi Crne Gore
--  Annastacia Palaszczuk resigns as Queensland premier - video
--  Vokiečių ekspertas: ant karo slenksčio nesame, bet Rusija sieks didinti spaudimą NATO
--  Netanjahu o decyzji USA w Radzie Bezpieczeństwa ONZ. „Inne kraje również muszą zrozumieć”
--  SKT, '2023 DJSI 월드지수' 편입
--  Almonds: నానబెట్టిన vs నానబెట్టని బాదం.. రెండింటీలో ఏదీ బెస్ట్.. తెలియాలంటే ఇది చదవండి!
--  UP Road Accident: यूपी में कार-ट्रक की टक्कर में आठ लोगों की जलकर मौत
--  الحرب على غزة في يومها الـ65.. لحظة بلحظة
--  Timnas Pastikan AMIN Siap Hadapi Debat: Terbiasa Didesak dan Dislepet Anak Muda
--  Kaune šeštadienio vakarą degė automobilis
--  ČETIRI OSOBE POVREĐENE Dve saobraćajne nesreće u Beogradu
--  Qué hacer antes de fin de año para pagar menos a Hacienda en la declaración de la Renta
--  تحریک انصاف چھوڑنے والے ندیم افضل چن نے عمران خان کیخلاف گواہی دینے سے انکار کردیا
--  Sobe para 12 número de mortos em desabamento de mina na Venezuela
--  Spor yazarları Beşiktaş-Fenerbahçe derbisini yorumladı! "Ne yapsalar boş"
--  Odobreno ideјno rјešenje rekonstrukciјe obјekta na Srbini: Zadužbinska škola vraća se namјeni
--  Selena Gomez Confirms Romance With Benny Blanco
