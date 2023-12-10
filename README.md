@@ -1,51 +1,51 @@
 # Latest News
--  एभीएम टेबल टेनिस लिग च्याम्पियन
--  'हिमाली क्षेत्रमा सुकुम्बासीकाे सङ्ख्या बढ्दो'
--  यू–१९ एसिया कप : अफगानिस्तानविरुद्ध पहिले फिल्डिङ गर्दै नेपाल
--  सामूहिक भोज खाएका एकको मृत्यु, २९ बिरामी
--  गुल्मीमा ३४ लाख बक्यौता रकम असुल
--  Armed police respond to incident in Christchurch
--  “개딸 명칭 공식파기, 이제부터 개딸은 없다”…이재명 팬카페 개설자, 청원 올려
--  수원축협, 2023년 핵심비이자이익 BEST CEO 선정
--  하동군, 특별교부세 26억 원 추가 확보
--  남해 살아보기 여행 상품 만족도 98%
--  남해 사촌해수욕장, 전국 우수 해수욕장 선정
--  주민 발의 '거제시 하청 노동자 지원 조례' 제정 눈앞
--  창녕군, 교동과 송현동고분군 세계유산 등재 기념식 개최
--  거창군, 민선 8기 청년 공약사업에 속도
--  KAI, 회전익 무전기 성능개량사업 계약 체결
--  고성군, 감염병 예방관리사업 최우수 표창
--  함양군, 올해 신규사업비 1234억 확보
--  양산 동부지역, 학생 국악 교육 중심으로 발돋움
--  지리산 케이블카 1000억대 사업비 현실성 공방
--  양산시, 애물단지 전락 유원지시설에 골머리
--  [사진뉴스] 진주축산농협 가축시장 '다시 찾은 활기'
--  밀양송전탑대책위, 서울에서 '탈핵 탈송전탑 낭독회'
--  한미일이 대북 압박 강조한 날, 문재인 quot;대화가 북핵 고도화 시간 벌어준 것 아냐quot;
--  국힘 혁신위 '빈손' 종료hellip;'김기현 사퇴' 요구 봇물
--  Rare White Alligator Video: फ्लोरिडा के जू में जन्मा नीली आंखों वाला सफ़ेद रंग का घड़ियाल, देखें वीडियो
--  Гладков: более 5 тысяч белгородских школьников написали декабрьское сочинение
--  NBA taurės finale – dominavęs Davisas, MVP LeBronas bei pergalingas „Lakers“ spurtas
--  우상호·이성헌 없는 24년 만의 총선, 서대문갑 다음 '선수'는?
--  Деница Симеонова: Изключително важно е да следваме план "Подготвени за 55"
--  Investoren-Einstieg in der Bundesliga? Union Berlin wohl gegen Abstimmung am Montag
--  Wut-Zettel stellt „Schneemannkiller“ an den Pranger: „Es ist so viel kaputt in den Leuten“
--  Kiwi bei „Masked Singer“ enthüllt – jetzt packt er über die Masken-Panne aus!
--  Министр обороны Украины заявил о наработках, которые позволят киевскому режиму захватить Крым
--  DFB-Pokal 2023/24 Viertelfinal-Auslosung Ergebnisse: Wer spielt gegen Stuttgart, Leverkusen und Co.?
--  МЧС: спецборт доставил 100 россиян из Египта в Москву
--  5 ميداليات لمنتخب المصارعة في البطولة العربية
--  世界人權地圖：人權表現最佳國家有「它」，台灣排名第17！
--  越南電子簽助攻！台觀光客年增8倍，成第3大旅客來源國
--  Ma adják át a Nobel-díjakat Stockholmban
--  Keď je najväčšou drámou to, či sa podarí likérový špic. Prečo aj vy pozeráte Pečie celé Slovensko
--  Mladi slovenski odbojkar v Italijo, njegov nekdanji klub pa po pravico na sodišče
--  Ta zelenjava je bolj zdrava kuhana kot surova
--  전국 첫 트로트 부르는 경남트롯합창단 "희망을 노래해요"
--  Через шторми у США загинули щонайменше 6 осіб
--  '알파인 스키' 시프린, 월드컵 통산 91승…여자 활강 우승
--  Глава университета Пенсильвании уволилась из-за обвинений в антисемитизме
--  Anthony Davis a écrabouillé les Pacers : 41 points, 20 rebonds, 5 passes et 4 contres !
--  ‘마리아 그림’에 황금장미 봉헌한 교황···400년만에 전통 되살려
--  Impact Wrestling News: David Penzer Exiting Impact, Thanked by Scott D’Amore After Final Resolution, Impact vs. AAA Video Highlights
--  Форвард «Оттавы» Тарасенко стал первой звездой матча с «Детройтом»
+-  'Dune: Part Two': most challenging but proud work, says director Denis Villeneuve
+-  Doubts grow over shareholder activism on Samsung C&T
+-  Korea to raise salaries of front-line junior officers; NCOs by up to 30% by 2027
+-  280 düzensiz göçmen yakalandı
+-  Cuba thwarts terrorist plot by South Florida man who arrived by jetski, state-run media says
+-  В США усомнились в полномочиях Зеленского
+-  U velikoj akciji uhićeno 80 pedofila, među njima i zastupnik i dvojica školskih profesora
+-  WHL roundup: Hadland helps Wheat Kings blitz Blazers 6-2
+-  Elämä hymyilee syyrialaiselle nuorelleparille, joka asettui hiljattain Ilomantsiin – tällainen on heidän tarinansa
+-  উত্তাল সমুদ্রে অপূর্ব, চমকে দিলেন ৩০ সেকেন্ডে
+-  Sudoku medium: December 10, 2023
+-  How Does a Video Go Viral on TikTok? Decoding the Virality Formula
+-  Columbus Crew osvojio treći naslov prvaka u MLS ligi, Stipe Biuk ponovo nije igrao
+-  Sri Lanka Skipper Chamari Athapaththu unpicked in WPL auction 2024
+-  Небольшой снег и гололедицу прогнозируют сегодня в Беларуси
+-  Jawaban Fuji saat Diinterogasi Soal Biaya Nongkrong Bareng Gengnya
+-  नेप्सेमा दास्रो सक्रिट ब्रेक, ४० मिनेटको लागि शेयर कारोबार बन्द
+-  রেকর্ড ভেঙে পাগলা মসজিদের দানবাক্সে মিললো ৬ কোটি ৩২ লাখ টাকা
+-  রনির সঙ্গী চঞ্চল চৌধুরী
+-  Kolo Muani snatches victory for PSG as Monaco move back into top two
+-  Tai žlugimas. „Iš Rusijos orbitos traukiasi paskutiniai NVS „fragmentai“
+-  [ŽT] „Varteliai uždaryti.“ Armėnija spjovė Simonian. Kas nutiko
+-  Netikėta žinia. ISW skelbia, ką užėmė Rusija
+-  Rusija nervinasi. „Tai geopolitinis pažeminimas. Tai įtakos praradimas.“ Kas nutiko su „Askold“
+-  To griebiasi daugelis ir veltui! Priemonės, kurios gali dar labiau pabloginti jūsų pagirias
+-  [프로필] 장경민 농협손해보험 부사장
+-  ДОСЬЕ: К 90-летию основания Президентской библиотеки Республики Беларусь
+-  Detaljan popis: Donosimo veliki vodič radnih vremena trgovina i šoping centara nedjeljom
+-  [프로필] 유지영 농협손해보험 부사장
+-  صدور لائحة اللجان "الوطنية والقطاعية" في غرف التجارة
+-  No cometas este error antes de las grandes comidas navideñas
+-  SSM pantau peniaga TikTok
+-  [프로필] 남궁관철 농협손해보험 부사장
+-  Bisera Veletanlić: Sa puno uvažavanja i poštovanja sam stala iza pokretača ProGlasa
+-  Horóscopo de hoy domingo 10 de diciembre del 2023
+-  一起白頭到老！高齡網紅重現電影名場景 超甜互動閃瞎千萬人
+-  Halvår med ny terrorlag - inget åtal
+-  Llamado de embajadores preocupados
+-  紀念美麗島事件44週年 賴清德：率領台灣避免走入中國失去全世界
+-  Šíp: Nechci dloubat do vosích hnízd. Politiky si už nezvu, nejsou zvyklí improvizovat
+-  В Ленобласти с 2024 года запустят электронную социальную карту для многодетных семей
+-  Codeword: December 10, 2023
+-  On this day in 2017: Man City edge derby victory to equal Premier League record
+-  Halvår med ny terrorlag - inget åtal
+-  #AccaddeOggi: 10 dicembre 1927, il Nobel per la Letteratura a Grazia Deledda
+-  Compositor nacido en México triunfa en The Game Awards 2023
+-  “사익의 시대”…교수들이 뽑은 올해의 사자성어는
+-  Cyprus businesses embrace digital platforms
+-  বিজয় দিবসে ‘কন্যা’র ব্যতিক্রমী উদ্যোগ
+-  Srbija protiv Evrope
