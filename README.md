@@ -1,51 +1,11 @@
 # Latest News
--  수지, 독보적 첫사랑 비주얼…청순 자태 뽐내
--  "美 여성 스포츠리그 전체 연봉 넘어"… '7억달러' 오타니의 엄청난 계약규모
--  에쓰오일 샤힌프로젝트 순항...한걸음 더 간 '석유화학 대전환'
--  दर्दनाक: गोद में मासूम का शव, पीछे पांच अर्थियां... दीवार ढहने की घटना में किसी ने मां तो किसी ने खोई पत्नी
--  브이케이프론티어, 베트남 AMASCO와 ‘한국 맞춤형 간병인 양성 및 파견사업’ MOU 체결
--  Samsonov solid as Maple Leafs blank Predators 4-0
--  Good cause calling itself ‘fourth emergency service’ launches Christmas campaign
--  Matthews scores twice, Samsonov makes 19 saves as Maple Leafs blank Predators 4-0
--  รวบแล้ว ผู้ต้องขังตัดโซ่ตรวนหนี พบยังซ่อนตัวใน รพ.
--  Nghỉ việc ở tuổi 23, chàng trai chuyển về ngoại ô sửa nhà thật đẹp: Giờ tôi đã tự do, còn kiếm được nhiều hơn
--  IND vs SA Live Streaming: टी20 मैच से शुरू होगा भारत का दक्षिण अफ्रीका दौरा, जानें फ्री में कैसे देखें मुकाबला
--  बढ्दै अड लट कारोबार: असोजको तुलनामा कात्तिकमा ३६ करोडभन्दा बढीको किनबेच
--  अव्यावहारिक राजस्व नीतिको मार बजारमा: वारिका सुनसान, पारि खचाखच
--  गाँजालाई ‘नियन्त्रित वैधता’ दिन सिफारिश
--  난민으로 받아줬더니, 몰래 대마 키우고 흡연…판매까지 했는지 수사
--  Morgan State routs NCCAA member Virginia-Lynchburg 120-50
--  تراند اليوم : بتر قدم مخرج مصري شهير بعد تعرضه لأزمة صحية
--  খুব ইচ্ছা ছিল একজন নারীকে আমি প্রধান বিচারপতি করে যাবো
--  Lebih Mudah, Ini Cara Bayar IndiHome Lewat BRImo
--  진주시, 올해 최고경영자상에 손민·문대근 대표 선정
--  L'OM boucle un transfert, «c'est une grande surprise»
--  Hattulan uusi rakennusjärjestys on vihdoin valmistumassa – Toiveena on, etteivät projektit jatkossa kaatuisi byrokratiaan
--  Tràn lan xe đạp điện trôi nổi
--  Tom Brady and Irina Shayk Reunite in Miami: Post-Breakup Get-Together
--  평택농악 김용래 예능보유자, 문화유산보호 유공자 문화훈장(文化勳章) 수훈
--  BRI Liga 1: Leonardo Medina Siap Ditendang dari Kursi Pelatih Persis Solo, Kondisi Tim Tidak Ada Kemajuan
--  Самая дешевая новая квартира в Нижнем Новгороде продается за 2,8 миллиона рублей
--  US skips congressional review to approve emergency sale of tank shells to Israel
--  Mưu kế 'bẫy ngược' người vợ ngoại tình
--  Problem with our society is we only listen to ourselves: CJI Chandrachud
--  พยากรณ์อากาศประจำวันอาทิตย์ที่ 10 ธันวาคม 2566
--  환경부, '택배 과대포장 규제' 시행 앞두고 '갈등 관리' 나서
--  The Satanic Temple sets up public display inside Iowa Capitol building: 'Very dark, evil force'
--  小S超敢問「這包是真的？」王思佳瞬間黑臉爆氣回擊全被拍
--  জরাজীর্ণ ভবন সংস্কার করুন
--  WFI elections set to be held on Dec 21, results on same day
--  जिंदा जले 8 बराती: डंपर से टकराने के बाद फंसा सेंट्रल लॉक, आग बुझी तो राख हो गए थे शरीर; टुकड़ों में निकाले शव
--  যে প্রক্রিয়ায় পেঁয়াজের দাম দ্বিগুণ হয়ে গেল
--  El truco definitivo para combatir los dolores por cólicos menstruales, con ingredientes del hogar
--  Día de la Restauración Democrática: hace 40 años Raúl Alfonsín asumía como presidente de la Nación
--  Sour Grapes: Japan Battles To Protect Premium Fruits
--  Israeli Forces Push Into Southern Gaza
--  부산시, 마이코플라스마 폐렴균 감염증 확산 모니터링
--  Najwyższy kontrakt w historii sportu. Shohei Ohtani zarobi 700 mln dolarów
--  India to be USD 5 trillion economy by end of 2025: Shah
--  ব্রাহ্মণবাড়িয়ায় পুলিশকে কামড়ে পালালো হত্যা মামলার আসামি
--  เช็ก! มาตรการขยายเวลาถึงตี 4 ผับ-บาร์ ต้องเตรียมอะไรบ้าง เริ่ม 15 ธ.ค. นี้
--  Mỹ Tâm nói chuyện lấy chồng trong đêm diễn ở Hạ Long, nhắc thẳng 'chú rể giấu mặt' làm điều này
--  Ukraine's Zelensky travelling to Argentina, hopes to win Global South's support
--  В ЕАО сняли ограничение движения междугородных автобусов
+-  이건태 변호사, 출판기념회 열고 총선 출마 공식화
+-  전북은행, 창립 제54주년 기념식 개최hellip;quot;지역사회와 적극 소통quot;
+-  Delhi: स्वाद में जंक फूड को फेल कर रहे मोटे अनाज से बने उत्पाद, देश ही नहीं, विदेशों से आए लोग भी इनके मुरीद
+-  Hus på Gånarps backaväg sålt för andra gången sedan 2021
+-  Floods: Pasir Mas evacuees unchanged at 62
+-  Se pintará de blanco
+-  Apple Shutters Third-Party Apps that Enabled iMessage on Android
+-  Mỹ gấp rút bổ sung kho dự trữ dầu
+-  दुर्घटनामा शिक्षक र लेखापालको मृत्यु
+-  निर्वाचन निष्ठा प्रवर्धनको घोषणा
