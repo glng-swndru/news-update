@@ -1,11 +1,11 @@
 # Latest News
--  Salkić: Izmišljate optužbe na račun onih nad kojim su oni koje veličate počinili genocid
--  フェンシング男子フルーレW杯 団体戦 日本は4位
--  AK Parti Sözcüsü Çelik'ten Batı'ya Gazze tepkisi
--  Amazonas encerra campanha de vacinação contra a gripe na sexta; veja grupos prioritários
--  বাইডেনের চেয়ে এগিয়ে ট্রাম্প
--  Традиционното Коледно надиграване в Русе събра стотици почитатели на фолклора
--  Vor Abstimmung über Asylpolitik: Ex-Staatsminister attackiert Sunak
--  5 thực phẩm khiến huyết khối dễ tích tụ hơn cả thịt mỡ, người Việt thích vẫn thích ăn mỗi ngày
--  Memorijalni uspon na Bjelašnicu: Sjećanje na sedmoricu stradalih planinara
--  Zwei Menschen aus Fassadengondel an Hochhaus gerettet
+-  Gaziantep FK - Trabzonspor maçı ne zaman? Saat kaçta ve hangi kanalda canlı yayınlanacak? | Trendyol Süper Lig
+-  Mondihome Kayserispor 2-0 Siltaş Yapı Pendikspor (MAÇ SONUCU-ÖZET) | Kayserispor'un bileği bükülmüyor!
+-  Leijona vaelteli italialaiskaupungin kaduilla – karkasi paikallisesta sirkuksesta
+-  Gebrek! Liza Hanim layak jadi juara – Hetty Koes Endang
+-  2. Bundesliga, 16. Spieltag:
+-  DZ Crack Épisode #5 : Rafik Belghali
+-  Zbulohet kur do martohet Dafina Zeqiri, jo më shumë se 100 të ftuar në ceremoni
+-  The best kids movies on Netflix right now
+-  Human Rights protection fundamental responsibility
+-  Zbardhet dosja e inceneratorit të Tiranës, kompjuteri i Klodian Zotos zbërtheu lidhjet e tij me zyrtarët
