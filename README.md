@@ -1,11 +1,11 @@
 # Latest News
--  نائب المدير التنفيذي للعمل الإنساني في اليونيسف: لا مكان آمنا في غزة الآن ولا بد من وضع حد لهذا الجنون
--  Soccerladuma | Who Is The Signing Of The PSL Season?
--  Soccerladuma | Man Utd Put Three 'Highest Earners' Up For Sale
--  BBC Strictly Come Dancing viewers 'shocked' as spoiler reveals bottom two, 'sad' exit and three finalists
--  Četvorica mladića u Puli napali vršnjaka, tukli ga pa vozili u prtljažniku, prijavljeni su zbog nasilja
--  الجيش الإسرائيلي: مدفعيتنا موجودة داخل قطاع غزة لأول مرة منذ بدء العملية البرية
--  Об аварии на трубопроводе отчитался аким Актау
--  Weather warning issued for Greater Manchester ahead of Storm Fergus
--  Corona-Zahlen im Landkreis Teltow-Fläming aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Spree-Neiße aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  বিএনপির নতুন কর্মসূচি ঘোষণা
+-  גיורא ענבר: "אם יש מישהו שיכול לצאת מזה, זה ניב שטייף"
+-  İsrail ordusu, Batı Şeria'da aralarında kadınlarında bulunduğu 30 Filistinliyi gözaltına aldı
+-  "Acil durum" hükmünü devreye soktular! İsrail'in soykırım sponsoru ABD'den 106,5 milyon dolarlık silah satışına onay
+-  המכון לחקר האנטישמיות חושף: כיצד קטאר מזרימה למערב טריליון דולר
+-  İki ülke arasındaki 24 yıllık anlaşmazlık Türkiye'nin çabalarıyla çözüldü
+-  নতুন ফ্লোর প্রাইসে জিপিএই ইস্পাত
+-  Expert hails Gov. Mbah for ambitious 2024 Budget, but says projections unrealistic
+-  Ligne 11 du métro : une pétition contre le nom de la nouvelle station Serge Gainsbourg
+-  প্রকৌশল বিশ্ববিদ্যালয়ে ভর্তি–ইচ্ছুকদের জন্য ৫ পরামর্শ
