@@ -1,11 +1,11 @@
 # Latest News
--  김해시 탄소중립 생활실천, 올해 가장 잘한 단체는 어디일까
--  민홍철·김정호 발의 '도시철도법'·'자연재해대책법', 국회 통과
--  Rıdvan Dilmen: Lig tarihinde böyle bir şey görmedim
--  'New initiative on NK' lacks balanced strategy: experts
--  Kohei Nawa goes 'cosmic' in his disturbingly mesmerizing world
--  Methods to avoid YouTube, Netflix restrictions go viral
--  Leaders of Samsung, SK to visit Netherlands for chip alliance
--  Fintechs vie to be next internet-only bank in Korea
--  Kickoff | Bafana striker warns Pyramids ahead of Downs clash
--  Will government extend fuel tax cuts?
+-  한국가스공사 3~4쿼터 3점슛 8방, 3점슛의 소노 또 무너뜨렸다, 김낙현 18점, 소노 충격의 3연패
+-  '태계일주3' 기안84X덱스, 아프리카 격투장서 '복싱 데뷔전'
+-  정말 예상하지 못했을까? '경질 위기' 맨유 감독, "몇 주간 자신을 향한 비난에 놀랐다"
+-  '인가' 태연, 출연 없이 '투 엑스' 첫 1위…에이티즈·백호 컴백-원팩트 데뷔 [종합]
+-  V pohoriach platí mierne lavínové nebezpečenstvo: Horskí záchranári upozorňujú, že sa bude zvyšovať
+-  Dvaja muži boli v Austrálii obvinení z účasti na dovoze 560 kilogramov kokaínu
+-  Najaktuálnejšia PREDPOVEĎ na Vianoce a Nový rok! MODELY ukazujú ako to bude so SNEHOM
+-  Qəzza zolağında döyüşlər daha iki ay DAVAM EDƏCƏK
+-  أحمد موسى يشيد بإقبال المواطنين على لجان الانتخابات في الإسكندرية: مشهد رائع
+-  U AMERICI KAO DA SU SE VRATA PAKLA OTVORILA! Strašni prizori tornada, ostavljao za sobom PUSTOŠ! Među poginulima i dete (VIDEO)
