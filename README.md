@@ -1,11 +1,51 @@
 # Latest News
--  한국가스공사 3~4쿼터 3점슛 8방, 3점슛의 소노 또 무너뜨렸다, 김낙현 18점, 소노 충격의 3연패
--  '태계일주3' 기안84X덱스, 아프리카 격투장서 '복싱 데뷔전'
--  정말 예상하지 못했을까? '경질 위기' 맨유 감독, "몇 주간 자신을 향한 비난에 놀랐다"
--  '인가' 태연, 출연 없이 '투 엑스' 첫 1위…에이티즈·백호 컴백-원팩트 데뷔 [종합]
--  V pohoriach platí mierne lavínové nebezpečenstvo: Horskí záchranári upozorňujú, že sa bude zvyšovať
--  Dvaja muži boli v Austrálii obvinení z účasti na dovoze 560 kilogramov kokaínu
--  Najaktuálnejšia PREDPOVEĎ na Vianoce a Nový rok! MODELY ukazujú ako to bude so SNEHOM
--  Qəzza zolağında döyüşlər daha iki ay DAVAM EDƏCƏK
--  أحمد موسى يشيد بإقبال المواطنين على لجان الانتخابات في الإسكندرية: مشهد رائع
--  U AMERICI KAO DA SU SE VRATA PAKLA OTVORILA! Strašni prizori tornada, ostavljao za sobom PUSTOŠ! Među poginulima i dete (VIDEO)
+-  Telangana CM Revanth Reddy Calls on KCR at Yashoda Hospital
+-  Kickoff | Segolela: A good dancer knows to leave the stage
+-  Jay Shah refuses to give clarity on Rohit Sharmaâ€™s return as India T20I captain
+-  Jay Shah refuses to give clarity on Rohit Sharma’s return as India T20I captain
+-  हिमाली क्षेत्रमा सुकुम्वासी हुने दर बढ्न थालेकोप्रति चिन्ता
+-  नागरिकलाई टोलमै पुगेर सेवा
+-  Everything happens so quick, I can’t believe it the Chelsea of last two seasons, I need to speak the truth the manager and new owners are clueless, Chelsea who is set to depart to Newcastle blast owner and manager in an interview pochettino won’t be happy with it
+-  용인 4050 경제인 포럼 출범 "용인, 세계적 반도체 도시로"
+-  TOP 25 : महत्वाच्या 25 बातम्यांचा वेगवान आढावा : टॉप 25 न्यूज : 10 डिसेंबर 2023 : ABP Majha
+-  Annesinin twerk yaptığını gören çocuğun müdahalesi sosyal medyayı salladı
+-  রিমার্ক এইচবি লিমিটেড এর স্ট্র্যাটেজিক পার্টনার্স মিটে পরীমনি-অপু বিশ্বাস
+-  이대성·양재민 코리안더비 성사, 미카와 연거푸 승리, 장민국도 나고야 2연전 정상 출전
+-  ফরিদপুর-১ আসনে স্বতন্ত্র প্রার্থী দোলনের মনোনয়ন বৈধ ঘোষণা
+-  Rusia are un nou „câlcâi al lui Ahile”. Tactica pentru penetrarea sistemului de apărare aeriană a Kievului, dezvăluită de un milblogger
+-  “한국의 이 여자는 비욘세와 동급”…전세계 ‘엔터 여성파워’ 100인에 선정
+-  축적(蓄積)의 시간
+-  "אהובה שלי": עדן חסון מקדיש שיר חדש לאמו אסתר
+-  הפועל פתח תקוה לא נרגעת: "לקחו לנו שתי נקודות יקרות"
+-  אבישי כהן: "לקחתי קשה מאוד את נפילת המחנך שלי. אנחנו לא נישבר"
+-  Zonguldak'ta heyelanda göçük altında kalan anne ve oğlun bulunması için çalışma yürütülüyor
+-  Tokat'ta kamyona arkadan çarpan minibüsteki 5 kişi öldü
+-  Kahramanlar-33 operasyonlarında bölücü terör örgütüne ait çok miktarda mühimmat ele geçirildi
+-  Israel-Newsblog: Israel: Bisher etwa 7000 Hamas-Terroristen getötet
+-  SP za rukometašice: Hrvatice savladale Kamerun, još su u igri za četvrtfinale
+-  Pataudi Palace: ਸੈਫ ਅਲੀ ਖਾਨ ਦੇ ਪਟੌਦੀ ਪੈਲੇਸ 'ਚ ਇਕ-ਦੋ ਨਹੀਂ ਸਗੋਂ 150 ਕਮਰੇ, ਕੀਮਤ ਜਾਣ ਕੇ ਹੋ ਜਾਓਗੇ ਹੈਰਾਨ!
+-  Fajardo leads early BPC race; Injured Braimoh at the forefront of Best Import derby
+-  Vidamuyarchi: மீண்டும் துவங்கியது 'விடாமுயற்சி' படப்பிடிப்பு! அஜர்பைஜானில் கால்பதித்த படக்குழு - வெளியான நியூ அப்டேட்
+-  Kenan İmirzalıoğlu 'Yılın Erkeği' seçildi, konuşması gündem oldu!
+-  BES ile ilgili genelge yayımlandı
+-  İki grup arasında bıçaklı kavga
+-  Тревога на севере Израиля
+-  Nothing Phone 2a : नथिंग कंपनीचा बजेट फ्रेंडली फोन, भन्नाट फिचर्स लीक; लवकरच होणार लाँच
+-  현대차, 글로벌 수소 모빌리티 생태계 확산 위한 다자간 MOU 체결
+-  V ormoškem obratu Carthaga od aprila izdelali tisoč počitniških kombijev
+-  I’m A Celeb fans rage at bosses after Josie Gibson reveals ‘showdown’ with co-star was axed from screens
+-  Psikolog Sebut Masyarakat Masih Keliru Anggap KDRT Urusan Pribadi
+-  Filipinler, gemilerine müdahale eden Çin'i kınadı
+-  Mısırlı seçmenler yeni Cumhurbaşkanı'nı seçmek için sandık başına gitti
+-  Enerji Piyasası Düzenleme Kurumu 20 şirkete lisans verdi
+-  Göçük altında kalan anne ve oğlundan ilk kötü haber geldi!
+-  ‘시골 소년’이 연 7억불 신기원… 챔프 꿈 좇아 지연 조항도
+-  "LAD 산하 마이너팀에 대해 묻더라"… 오타니, 지속가능한 강팀 원했다
+-  Cagliari, rubano la cassa del bar del residence e nascondono droga in camera: arrestati
+-  इरानद्वारा १३ हजार अवैध अफगान आप्रवासी निष्कासित
+-  Lauterbach dreht wieder am Rad: Lasst Euch impfen, sonst fällt Weihnachten aus!
+-  “Temos notado melhoria no cumprimento das regras de governance”
+-  خضدار کے بعد ملتان اور لاہور میں بھی دھماکے، بچہ جاں بحق، متعدد افراد زخمی
+-  ‘더라이브 폐지 반대’ ‘박민 퇴출’ 시청자청원만 20개… 답변 기한 임박했다
+-  7 out of 10 Highest paid CEOs in India hail from IT sector. Check the full list
+-  Gazzetta - Gatti ha voglia di resistere alle sirene inglesi
