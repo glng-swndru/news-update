@@ -1,51 +1,11 @@
 # Latest News
--  오타니가 고교시절 계획한 'WS 우승'… 다저스에서는 이룰까[초점]
--  [기호일보 만평] 힘든일
--  A 15 éves magyar diákok 8 százaléka nem érzi magát biztonságban az iskolában, 5 százalék pedig a saját osztálytermében sem
--  Uwe Ochsenknecht alias "Der Kiwi" bei „The Masked Singer“ ausgeschieden
--  Potada derbi heyecanı!
--  Malatya'da seyir halindeki yolcu otobüsü alev aldı
--  Malatya'da aşırı yağışla göçük meydana gelen köprü trafiğe kapatıldı
--  Galatasaray'dan müjde! Davinson Sanchez ilk 11'e dönüyor
--  Galatasaray'da sürpriz Ndombele gelişmesi! Fransız devi talip oldu
--  Kaçak diş laboratuvarı operasyonunda 7 şüpheli yakalandı
--  صدر کی آفر پر میں نے عمران خان کو منع کیا، پھر عارف علوی کو بنایا گیا، پرویز خٹک
--  जन्मदिन
--  Creek, Phoenix rise to end tough week by beating Kings
--  'I lost more than four stone in less than a year - this is how I did it'
--  코인거래소 내년 7월부터 예치금도 이용료 지급해야
--  Зимните спортове доминират днешния ефир
--  제3국 차량용 요소 5천t 추가계약…4.3개월분 추가 확보
--  ‘ธรรมนัส’ ปล่อยรถไฟเที่ยวปฐมฤกษ์ ส่งสินค้าเกษตรไทยไปจีน รัสเซีย และยุโรป
--  Rintamalla leimahti: Venäjä hyökkää useista kohdista
--  Врач предупредил о вреде слишком частого мытья рук
--  محمد حسین شہید کا 52 واں یوم شہادت، پاک فوج کے سربراہان کا خراج عقیدت
--  Bologna: Das sind die wichtigsten Sehenswürdigkeiten
--  ВСУ контратаковали к западу от Работиного: анализ ISW
--  India Post GDS Result 2023 Fifth Merit List Released, Steps to Check
--  כוהנת היוגה שאיבדה את בעלה נבחרה כשגרירה של תוסף תזונה
--  كابيتال بنك يدعم فعالية جمعية الحياة لتأهيل ورعاية المعوقين
--  بتر قدم مخرج مصري شهير إثر أزمة صحية
--  العبداللات: رؤية ملكية ونهج حكومي بتعزيز منظومة الحقوق والحريات بالأردن
--  لتجميد الخبز مخاطر محتملة.. تعرف عليها
--  সিলেটে তেলের সন্ধান, দৈনিক মিলবে ৬০০ ব্যারেল
--  진주, 사봉농공단지 내 구내식당 준공
--  진주-산청 교류 넘어 상생의 길로
--  Πρίγκιπας Γουίλιαμ, Κέιτ Μίντλετον και τα παιδιά τους χαλαροί στην χριστουγεννιάτικη κάρτα – «Εστεμμένοι» Κάρολος και Καμίλα
--  Taylor Swift's 'Eras Tour' is the first tour to gross over USD 1 billion, says Pollstar
--  The family home 'destroyed' after storm rips off builder's 'awful' roof
--  I-P: Vasta kuudesosa koirista on ilmoitettu rekisteriin – Aika käy vähiin
--  News24 | Test of strength in depth as Proteas face India in Durban
--  W poniedziałek wszystko się wyjaśni. Wiemy, jak będzie pracował Sejm
--  Υψηλή πληρότητα στους χειμερινούς προορισμούς το δεκαπενθήμερο των εορτών
--  Météo Alpes du Sud: de belles éclaircies malgré quelques nuages et un risque d'averses
--  The best winter walks to do in Greater Manchester
--  희림건축, 압구정 3구역 설계권 투표서 또다시 낙점
--  Mısır’da Cumhurbaşkanlığı seçimleri için oy verme işlemi başladı
--  Anne ve kucağındaki oğlunun öldüğü kazada cip sürücüsü tutuklandı
--  Лейкерс виграли внутрішньосезонний турнір НБА
--  P. Karşıyaka ligde üst üste 6. galibiyetini aldı
--  Polski legendarny klub nad przepaścią. Morawiecki obiecał pieniądze, a ich nie ma
--  "Ulusal Bitki Besleme ve Gübre Yönetimi" sempozyumuna yoğun ilgi
--  Adana Hacı Sabancı Organize Sanayi Bölgesi 50 yaşında
--  Krieg in Nahost: Israel: Schon 7000 Hamas-Terroristen getötet – Offensive im Süden des Gazastreifens
+-  김해시 탄소중립 생활실천, 올해 가장 잘한 단체는 어디일까
+-  민홍철·김정호 발의 '도시철도법'·'자연재해대책법', 국회 통과
+-  Rıdvan Dilmen: Lig tarihinde böyle bir şey görmedim
+-  'New initiative on NK' lacks balanced strategy: experts
+-  Kohei Nawa goes 'cosmic' in his disturbingly mesmerizing world
+-  Methods to avoid YouTube, Netflix restrictions go viral
+-  Leaders of Samsung, SK to visit Netherlands for chip alliance
+-  Fintechs vie to be next internet-only bank in Korea
+-  Kickoff | Bafana striker warns Pyramids ahead of Downs clash
+-  Will government extend fuel tax cuts?
