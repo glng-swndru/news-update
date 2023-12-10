@@ -1,11 +1,11 @@
 # Latest News
--  Kho Gaye Hum Kahan: Ananya, Siddhant starrer promises coming-of-age drama
--  Wenn Kinderlachen die Wohnung füllt
--  Αποθεώθηκαν στην Κροατία οι πρώτοι αποφυλακισθέντες Bad Blue Boys
--  Odisha Chief Minister Naveen Patnaik Inaugurates the 1st Odisha Concours D’Elegance first-of-its-kind vintage and classic car exhibition in Bhubaneswar
--  Kano pillars beat Sokoto 14-1 to set up quarter final clash with Lagos
--  الأنبا بافلي وكهنة المنتزه يدلون بأصواتهم في الانتخابات الرئاسية بالإسكندرية - صور
--  شهداء الأقصى: نخوض اشتباكات مباشرة مع الاحتلال في جباليا
--  بعد هبوط التضخم.. توقعات بتثبيت الفائدة بالمركزي إلا في حالة واحدة
--  حياة كريمة: إقبال شديد على اللجان خلال اليوم الأول من الانتخابات الرئاسية
--  النائب أحمد عبد الجواد يدلي بصوته في الانتخابات الرئاسية بالعاصمة الإدارية الجديدة
+-  UNILEVER PLC : Jefferies verlaagt advies
+-  Goldman prevé que los recortes de tipos del BOE se producirán a un "ritmo más rápido"
+-  RECKITT : Jefferies verlaagt het advies naar Verkopen
+-  Kickoff | Rulani: Only Sundowns brought the intensity
+-  Эҳтиёт бўлинг “А” йўлакда жарима қўллаш бошланган (+видео)
+-  الصحة العالمية تتبنى قرارا يدعو إلى تقديم مساعدات فورية لغزة
+-  Gazze'de can kaybı 18 bine yükseldi
+-  بن حبتور يفتتح اللقاء التشاوري لشركاء العمل السكاني
+-  تونسي اكتشف بالصدفة أنه ابن غزة.. الناجي الوحيد من عائلته من مجزرة صبرا وشاتيلا
+-  Calcio, il Siracusa sbatte sulla Vibonese: 2 a 2 al De Simone e il Trapani scappa a +4
