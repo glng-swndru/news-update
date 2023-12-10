@@ -1,6 +1,40 @@
 # Latest News
+-  إيفرتون يهزم تشيلسي والسيتي ينتصر
+-  القسام: قتلنا 40 جندياً إسرائيلياً ودمرنا 44 آلية
+-  Rodiona Kuruca 12 punkti neglābj Mursijas vienību no zaudējuma ACB spēlē
+-  “오타니는 다저블루, 샌프란시스코는 이정후” 7억달러 재벌 놓쳤지만…세상은 넓고 FA는 많다
+-  Latinoamérica necesita invertir hasta 4,9% del PIB anual para cumplir metas climáticas
+-  التزاما بالاضراب.. الأمن العام يتوقف عن استقبال كافة المعاملات غدا
+-  UDES NA MILOŠU VELIKOM Nesreća se desila verovatno zbog preticanja, sudarila se tri vozila
+-  Antiszemitizmussal vádolták meg: lemondatták a Pennsylvaniai Egyetem elnökét
+-  1 dead, 1 hospitalized in fatal Edgewater shooting Sunday morning
+-  ITV I'm A Celebrity 2023 final live results as winner crowned King of the Jungle
+-  11 დეკემბერს ვოლოდიმირ ზელენსკი აშშ-ის პრეზიდენტს ჯო ბაიდენს შეხვდება
+-  Bhopal: HC Holds ACS Health, NIC Officials Guilty Of Contempt Of Court
+-  American chocolatier and suspected accomplice charged with murder of Canadian Daniel Langlois and partner in Dominica
+-  Για ανθρωποκτονία από αμέλεια κατηγορείται ο ιδιοκτήτης των σκυλιών που κατασπάραξαν την 50χρονη στη Θεσσαλονίκη
+-  Hubschrauber kreist über Wertheim
+-  Sağlık Bakanı Koca duyurdu: İstanbul'da ambulansa yol vermeyen sürücüye gereken ceza verildi
+-  La Grande-Verrière. Contrôler et sensibiliser les chasseurs à la sécurité
+-  Laugh, Dance And Enjoy The Sunny Days With Your Loved Ones
+-  I'm A Celebrity final LIVE: Nigel Farage, Tony Bellew and Sam Thompson battle for King of the Jungle, as favourite to win is revealed after Josie Gibson's exit
+-  Tıra arkadan çarpan otomobil kağıt gibi ezildi!
+-  Полісся проведе збір в Іспанії
+-  Fundusz Kościelny do likwidacji? Nowy rząd może mieć spory problem
+-  Fundusz Kościelny do likwidacji? Nowy rząd może mieć spory problem
+-  Efter återbud – Elvenes får chansen i Tre Kronor
+-  Efter återbud – Elvenes får chansen i Tre Kronor
+-  SC Preußen Münster vs. SC Verl: Doppelpacker Batmaz! Verl fährt ohne Punkte aus Münster nach Hause
+-  Νέα δεδομένα για τον θάνατο του Όλιβερ – Επεσε θύμα αγέλης σκύλων
+-  Analysts: Trump Immunity Appeal Provides Chance to Stave Off Election Trial
+-  Desolater HC Empor Rostock verliert gegen den SC DHfK Leipzig II
 -  جيوش الذباب تجتاح دولة عربية
+-  Atzori: "Il Milan come il Napoli di quest'anno. L'Inter è l'unica che sta mantenendo le aspettative"
 -  دوام جزئي وراتب يومي.. "ناقل إكسبريس" تعلن حاجتها لموظفين
+-  Indígena morre durante confronto com a PM em São João das Missões
+-  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
+-  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
+-  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
 -  أستاذ علم اجتماع: اصطحاب الأطفال للجان الانتخاب يغرس فيهم الإيجابية والمشاركة
 -  عروسان يتركان حفل زفافهما للمشاركة في الانتخابات الرئاسية بالأقصر
 -  غرفة عمليات الانتخابات الرئاسية بنقابة الصحفيين تتلقى 3 شكاوى
@@ -9,43 +43,9 @@
 -  بالصور.. عريس وعروسة يدليان بصوتيهما في واحة الخارجة بالوادي الجديد
 -  الصليب الأحمر: سقوط قتلى ومصابين في هجوم على قافلة إنسانية أثناء إجلاء مدنيين في السودان
 -  إغلاق باب التصويت في اليوم الأول للانتخابات الرئاسية.. ومحافظ الدقهلية يشكر المواطنين
--  Papa pozdravio napore za normalizaciju odnosa između Jermenije i...
--  Производители оружия заявили о глобальном дефиците пороха
--  آزاد کشمیر میں انسانی حقوق کی وزارت قائم کریں گے، انسانی حقوق کے عالمی دن کے موقع پر صدر آزاد کشمیر بیرسٹر سلطان محمود کا پیغام
--  Expert om årets Nobelmeny: Härligt obstinat
--  [아름다운가게] 13일 창원서 장애인 리폼 의복 패션쇼
--  한빛라이온스클럽 장애인체육상 도지사 표창
--  [희망을 잇다] 김유상·송재석·최정헌 김해시의원 동참
--  "Fenêtre sur la Palestine" à la 6ème édition du Festival du Film d'El Gouna
--  Israeli farmers are watching their life's work being destroyed
--  [새얼굴] 조대익 마산공고 총동창회장
--  경남교육청 〈어른 김장하〉 영화 관람
--  경남교육청·두산연강재단 장학금 지급
--  창원 사파중 도서관 '나혜림 작가와 만남'
--  "İsrail, Hamas'ın Silah Gücü Karşısında Şaşkın"
--  المركز الوطني للأرصاد يطلق المرحلة الثالثة من البرنامج التوعوي بالمناخ
--  OPS To CBN: Fix Customs Duty Rate At 20%l Less Than Official Exchange Rate
--  Strictly’s Vito Coppola in tears over Ellie Leach’s beautiful confession
--  POTRESAN SNIMAK IZ VETERINARSKE AMBULANTE U BEOGRADU Prestravljen pas cvili, a devojka u poslednjem trenutku uspeva da ga spasi eutanazije: Pozadina ove priče je sve razbesnela (VIDEO)
--  Israel: OMS aprova resolução que apela a ajuda humanitária imediata para Gaza
--  Roma, Dybala costretto al cambio: Mourinho in ansia
--  تراجع سعر الدولار واليورو والاسترليني في ختام تعاملات السوق الموازي
--  Forensics team spotted combing Scots street as police cordon in place
--  بينهنّ رضيعات.. الاحتلال الإسرائيلي يحتجز 142 فلسطينية من غزة
--  Kareem Hunt touchdown gives Browns 21-7 lead over Jaguars
--  Edin Visca: Trabzonspor'da çok mutluyum
--  По заветам «Ливерпуля»: гол Кривцова на 90-й минуте принёс «Краснодару» победу над ЦСКА в 18-м туре РПЛ
--  Texans cut Jets lead to 14-6 on final play of third quarter
--  Bell-Haynes castiga las desconexiones azulgranas
--  Remplacement des membres de la CENA par Macky Sall: les griefs de la Commission de la CEDEAO
--  Sevens champs lap up pool party
--  Sevens champs lap up pool party
--  Accusation de financements qataris : Mimi Touré blanchit Ousmane Sonko
--  Kovaçevski: Nëse VMRO nuk propozon ministrat e saj në qeverinë teknike, lë njollë në procesin zgjedhor
--  Nueva imprudencia al volante en Tenerife: todo por un vídeo
--  Abdullah Avcı: "Geçen haftaki mağlubiyetten sonra deplasmanda kazanmak çok önemli"
--  Sophia Thomalla und Alex Zverev sind Weihnachten im Flugzeug
--  VLADIMIR ORLIĆ NA INAUGURACIJI PREDSEDNIKA ARGENTINE: Za nastavak jačanja tradicionalnog prijateljstva (FOTO)
--  Bu tuvalet kağıdı numarası ,tüm banyonuzu tazeleyecek ve tüm gün güzel kokmasını sağlayacak:
--  Awantura w TVP Info. "Ja nie chcę kąsać kolegów z TVN-u"
--  Village in Ireland hit by ‘possible tornado’ as homes and cars seriously damaged
+-  SVAKA KUĆA ĆE DA IMA VEĆE PLATE I MNOGO VEĆE PENZIJE Ključna poruka Aleksandra Vučića na skupu &quot;Srbija ne sme da stane&quot;
+-  3 Hypergrowth Stocks to Buy Heading Into 2024
+-  Katasztrofális az egészségügyi helyzet Gázában
+-  توقف الأعمال في المرافئ اللبنانية كافة غدا
+-  Mun kveðja Barcelona næsta sumar – Aðeins spilað sjö leiki og heldur til Sádi
+-  Primavera | Monza-Inter 1-1: gol e highlights
