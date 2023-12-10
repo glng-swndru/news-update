@@ -1,11 +1,51 @@
 # Latest News
--  Yang tidak Boleh Dilakukan Orang Tua Ketika Marah dengan Anak
--  Priešui jokių šansų. Ukrainoje naudojama unikalaus taiklumo sistema (Video)
--  Antrininkai, memai ir Monroe
--  Mes galėtume būti nuodingi. Netikėtas atradimas: turime genus, kurie leidžia gaminti nuodus
--  „Kitos išeities nėra.“ Rusijoje užimamas oro uostas (Video)
--  [ŽT] „Lengva pergalė prie Avdijivkos?“ Pereinama prie plano B
--  [ŽT] „Mums reikia.“ Argumentai „įspūdingi“. Rusija svajoja užimti du Ukrainos regionus (Video)
--  BTS’s RM Says Goodbye To Fans In Heartfelt Letter Ahead Of Military Enlistment
--  Mitropolit Joanikije: Vrlo često se zavađamo, a ne znamo zbog čega, takav je čovjek, sklon padovima, zabludama…
--  O (belo) golo de Kikas que acabou com as dúvidas no Estrela-Boavista
+-  Kevin Hart’s NBA alt-broadcast on ESPN takes awkward turn with Patrick Beverley’s Josh Giddey question
+-  Novi alarm za Tomislava Tomaševića
+-  Sour grapes: Japan battles to protect premium fruits
+-  Fogo de Chao moving into ground floor of Three World Trade Center
+-  Avoid These Major Christmas Faux Pas at All Costs
+-  Guadeloupe : une journaliste écartée de l’antenne après une interview tendue de Jordan Bardella
+-  رئيس انتقالي أبين يلتقي نجل الشهيد محمد كريد الجعدني
+-  إنجاز جديد .. فريق بحثي يحصل على براءة اختراع في مجال صناعة الأدوية من مخلفات التمور
+-  Евродепутатът Петър Витанов: Подписката може да роди нова партия - Труд
+-  كتائب القسام: نؤكد مقتل 40 جنديا كما أوقعنا عشرات آخرين بين قتيل وجريح إثر استهداف قوات الاحتلال المتوغلة
+-  Las Guerreras se despiden del Mundial y prácticamente del preolímpico
+-  Жителям Ленобласти пообещали метель и до -18 градусов 11 декабря
+-  Video: las primeras imágenes de Javier Milei en el sillón de Rivadavia
+-  В Тверской области на «Золотом кольце» лоб в лоб столкнулись легковушки
+-  مكتب نتانياهو: إسرائيل ساعدت في إحباط هجوم أمرت به إيران على إسرائيليين في قبرص
+-  يديعوت أحرنوت تتراجع عن نشر عدد جرحى الجيش الإسرائيلي في غزة تحت ضغط الرقابة العسكرية
+-  البابا ينظر بأمل كبير للعلاقات بين أرمينيا وأذربيجان: لا يزال هناك الكثير يتعين القيام به بشأن حقوق الإنسان
+-  وزير التربية: إقفال المدارس والثانويات الرسمية والخاصة يوم غد الإثنين تضامنا مع الشعب الفلسطيني
+-  استهداف مركز للجيش في الوزاني ولا اصابات والقصف الاسرائيلي يطال الاطراف الشرقية لبلدة بليدا
+-  ميقاتي اعلن اقفال كل الإدارات العامة والمؤسسات غدا تجاوباً مع الدعوة العالمية من أجل غزة
+-  النشرة: الجيش الاسرائيلي يلقي قنابل مضيئة في أجواء الحدود المقابلة لبلدة حولا ووادي هونين ومركبا
+-  النشرة: جريح جراء حادث دراجة نارية على الاوتستراد العربي
+-  المرتضى: اقفال جميع الدوائر والمعالم الأثرية التابعة لوزارة الثقافة غداً الإثنين تضامناً مع غزّة
+-  Iran tries Swedish EU employee for ‘spying for Israel’ – judiciary
+-  Police arrests 33 illegal migrants
+-  Priskorá radosť zo snehových vločiek: Obrovský teplotný ZVRAT, krátko pred sviatkami sa až šokantne oteplí
+-  Самая сексуальная спортсменка мира показала фото в обтягивающем топе
+-  Асен Василев: Договорът с „Боташ“ е неизгоден за България - Труд
+-  "Хамас": Нито един заложник няма да напусне Газа жив без преговори
+-  Al menos 800 hectáreas calcinadas y 7 heridos en varios incendios en zona central de Chile
+-  Bakan Özhaseki: Deprem bölgesinde şehirlerimizi birlikte inşa ediyoruz
+-  Doğum borçlanması ve askerlik borçlanması olanları ilgilendiren haber
+-  England women beaten by India in last T20 international
+-  برعاية انتقالي أبين.. جمعية الأمل لرعاية وتأهيل المكفوفين بالمحافظة تقيم فعالية احتفالية بمناسبة اليوم العالمي للمعاق
+-  Survivor takımları belli oldu! All Star kadrosunda kimler var?
+-  Nigel Farage Plans Political Comeback Following I’m A Celebrity Triumph
+-  Pochettino sends clear message to Chelsea board
+-  Skor Indeks HAM 2023 Turun Jadi 3,2 Versi Setara, Ini Kata Menkumham
+-  Ceyhun Bayramov Belçikaya getdi
+-  Texas Supreme Court places hold on lower court order allowing woman to obtain an abortion
+-  İspanya'da maç ertelendi! Bir taraftar hayatını kaybetti
+-  Elon Musk Reinstates Far-right Conspiracy Theorist Alex Jones On X
+-  Sancho Ramírez, los pilares del Reino
+-  Strömsbrotränaren: ”Man vill dra nåt gammalt över sig”
+-  WATCH: Thousands of dolphins seen near Algoa Bay
+-  Köhler glänzt mit Gold und Silber
+-  الوكيل مفتاح يدشن خدمة إصدار البطاقة الشخصية الذكية بمأرب
+-  בלחץ ארה"ב: הקבינט צפוי לדון במנגנון שיאפשר העברת כל כספי המסים לרשות
+-  YouTuber's girlfriend is shot by her ex-boyfriend as harrowing footage shows them hiding from gunman moments before he turns weapon on himself
+-  Wünsch und Wilkens die Dosenöffner für TSV Daverden
