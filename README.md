@@ -1,11 +1,11 @@
 # Latest News
--  בזמן המלחמה: מטוס אל על חצה לשטח לבנון
--  Einstieg von DFL-Investor? Stimmung vor Milliarden-Entscheidung angespannt
--  ARD und ZDF: CDU-Kommission für weitreichende Reformen
--  18-Jähriger nach Weihnachtsfeier im Schnee eingeschlafen
--  Дечо Дечев: За ПП здравната каса е банка или банкомат - Труд
--  EM ANGOLA OS DIREITOS HUMANOS JÁ MORRERAM E ESTÃO ENTERRADOS
--  Watford boss Ismael pleased to see two key team qualities
--  Bart en Cindy verloren kindje aan eind van zwangerschap: 'Sem hoort gewoon bij ons'
--  “Anthony Edwards is One”: Carmelo Anthony Confesses His Confidence in Dwyane Wade-Like Timberwolves Star, Lists His Other Favorite Youngsters
--  Moto acuática y pistolas: Los medios del presunto terrorista denunciado por el régimen
+-  Update on Rebel’s AEW Status
+-  Лион разби Тулуза за втора победа във Франция за сезона
+-  Wie die Fortschritte in der Biologie im Tessin die Medizin revolutionieren
+-  دراسة توضح تأثير الكربوهيدرات المعقدة في إنقاص الوزن
+-  Woman adopts adorable puppy dropped by eagle – only to discover it wasn't a dog at all
+-  Jaka se pone las botas en el Bizkaia
+-  Marius Sumudica: Ülkede herkes futbolu biliyor herkes teknik direktör
+-  Netanyahu'nun oğlundan alçak provokasyon: PKK'nın sözcülüğüne soyundu
+-  Android app that allowed users access to iPhones’ most prized feature is shut down by Apple
+-  Android app that allowed users access to iPhones’ most prized feature is shut down by Apple
