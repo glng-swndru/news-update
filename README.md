@@ -1,51 +1,51 @@
 # Latest News
--  Un proyecto europeo revela que el 70% de los antibióticos prescritos podrían ser innecesarios
--  “우산 필수” 전국 흐리고 비…강원 산지 최대 30㎝ 이상 폭설
--  삼척·강원북부산지에 호우주의보… 북부산지 대설주의보 유지
--  '손흥민 1골 2도움' 토트넘, 6경기 만의 승리…뉴캐슬 4-1 대파
--  윤 대통령, 오늘 네덜란드 국빈 방문…‘반도체 동맹’ 강화
--  국민의힘 혁신위, 오늘 조기 종료… 최고위에 혁신안 종합 보고
--  Adolescente de 14 años de Salcedo cumple 45 días desaparecido
--  美, 의약품 특허 개혁 드라이브 예고 ... 시밀러 업체 수혜?
--  에티버스 IT 종합 교육 센터 ‘에티버스러닝’ 교대 캠퍼스 개소
--  Keseruan Kaleb J Duet Bareng Pemenang Yamaha Youth Festival Medan
--  美 매체 “오타니 7억달러 계약, 야구가 안 망했다는 것 보여줘”
--  [KB손해보험, 5년 연속 ‘지역사회공헌 인정기업’ 선정
--  [KAIST, 미생물 활용 플라스틱 생산·분해 친환경기술 제시
--  [2년 넘게 멈춘 인천 옹진군 유일한 산부인과 백령병원 재개
--  [인천시, 광고제 3관왕 달성… 마케팅 기획력 우수성 인정 받아
--  [인천지역 환경분야 불법 행위 해마다 늘어
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [이제훈 홈플러스 사장, ‘노 엑시트(NO EXIT)’ 캠페인 참여
--  البحث على المفقودين: إجمالي العينات المأخوذة من الجثامين مجهولة الهوية في درنة 5621 عينة
--  This year's four-character Chinese idiom chosen
--  Be skeptical about QR codes, warns the FTC
--  Le patron de la NBA jubile avec Wembanyama
--  On the Road: Still dry
--  Girona faz grande jogo, vence Barcelona e assume liderança, enquanto Tottenham derrota Newcastle; confira resumão
--  콘진원, 日서 '더 어울림 in 도쿄' 개최…신기술융합콘텐츠 전시
--  엔비디아 CEO, 베트남에 반도체 기지 설립 추진
--  Mina da Braskem em Maceió se rompe: o que acontece agora?
--  Heavy traffic on M5 Motorway at Preston as crash sparks congestion
--  Nessuna rete e un punto a testa. Frosinone e Torino non si fanno male allo Stirpe
--  «Αγορά ησυχίας»: Το ισραηλινό σχέδιο που στήριξε τη Χαμάς
--  A Fazenda | Yuri e Nathalia têm reencontro com beijo ao vivo na "Hora do Faro"
--  아르헨 밀레이 취임..."1만5000% 인플레 직면...'충격' 조치만이 살길"
--  방문규 장관, 경제안보공급망 관계장관회의 참석
--  인사 나누는 방문규 장관과 고광효 관세청장
--  Tudingan PDIP soal Prabowo Bukan Jokowi Dibalas TKN
--  경제안보공급망 관계장관회의 참석한 김윤상 조달청장
--  경제안보공급망 관계장관회의 참석한 방문규 장관
--  명지대학교, 경기도용인교육지원청 연계 ‘지도 역량 강화 교사연수’ 개최
--  박진 외교장관, 경제안보공급망 관계장관회의 참석
--  10X bỏ trường chuyên để du học, quyết định ‘gap year’ đi vòng quanh thế giới
--  DRŽAVLJANIN BiH UHAPŠEN U NEMAČKOJ: Čudno se ponašao na stanici, bio je nervozan - Kada su ga pretresli, ODMAH MU STAVILI LISICE
--  Florida Joker anklager Rockstar for å ha brukt hans bilde uten samtykke.
--  Veja a lista de perguntas que vencedora do 'Quem Quer Ser Um Milionário' respondeu
--  Os signos dos personagens do filme Tá Escrito
--  Ban công rộng chưa đến 10m2 khiến dân mạng trầm trồ: Không gian xanh mướt, hoa trái 4 mùa sai trĩu quả
--  飲酒運転の摘発、熊本県内4年ぶり増加 「重大な犯罪」県警が年末年始前に呼びかけ
--  Diego Moreno y otro gol clave sin ser titular
--  (VIDEO). La triste historia de una joven pastelera y enferma que pide una familia para sus mascostas
--  'May December' Considered a Comedy by Golden Globes, Decision Leaves Fans Baffled - Read Reactions!
--  El Gobierno calibrará hoy la oposición de las comunidades del PP a sus cesiones a Cataluña
+-  아워홈 컨세션, 제철 식재료 활용 겨울 신메뉴 4종 출시
+-  [08:13 가상자산] 美 12월 FOMC 앞두고 관망세
+-  시흥시소래빛도서관, 추위 녹일 따뜻한 독서프로그램 ‘풍성’
+-  [인사] 한미글로벌
+-  시흥시, 시정연구원 설립한다... 행안부 허가받아
+-  동원, HMM 매각 공정성 문제 제기…"법적 대응도 불사"
+-  덱스, 번아웃 증상 고백 "너무 감사한 상황임에도 지쳤던 것 같아" [태계일주3]
+-  삼성화재 다이렉트 착, 운전자보험 ‘3300’ 플랜 출시
+-  박순천, '전원일기 수남이' 강현종과 20년여만 눈물의 재회 (회장님댁)[오늘밤TV]
+-  임영웅, 부산 3일간 하늘빛으로…고퀄리티 무대→적극 소통까지
+-  '측면에서도 탁월했다'→'뉴캐슬 폭격' 손흥민, 현지 매체 MOM-최고 평점 싹쓸이
+-  ‘리그 10호골’ 손흥민, ‘BBC 이주의 팀’ 선정… “SON이 트리피어 교체시켰다!”
+-  تراند اليوم : ماذا يحدث لجسمك عند تناول المعكرونة يومياً!
+-  تراند اليوم : بالفيديو.. عضو مجلس شورى يكشف تفاصيل مقترح مخالفة مرورية تسمى "غضب الطريق".. ويوضح المقصود بها
+-  Prospect of a white Christmas uncertain
+-  FARMA VENEZUELA abre sede en Maracaibo
+-  الجغبير : ارتفاع الإقبال على الصناعة المحلية بشكل ملحوظ
+-  الحرب على غزة ألغت 90% من الحجوزات السياحية في الاردن
+-  لبيد: أفضل طريقة لتدمير حماس هي مهاجمة مصادرها المالية
+-  Does Canned Tuna Need To Be Rinsed Before Eating?
+-  For Easy Holiday Party Cleanup, Use Kitchen Tools That Serve Dual Purposes
+-  ไม่เชื่อถือ! ‘แม่ยกปชป.’ ประกาศ ‘หยุดพัก’ เลิกปกป้องพรรคเก่าแก่
+-  Al Nassr vs. Al Shabab EN VIVO con Cristiano vía DSports (DIRECTV) por la Copa de Campeones
+-  Delincuentes se robaron un taxi en Merca Panamá
+-  Trump no volverá a declarar en el juicio por fraude en Nueva York
+-  Power cuts and flood alerts: Latest situation in Greater Manchester as region is hit by 24 hours of weather chaos
+-  BBC Strictly Come Dancing's Shirley Ballas dismisses 'bias' despite results show move
+-  BBC Strictly Come Dancing contestant says 'I adore you' moments after emotional Annabel Croft boot
+-  BBC Strictly Come Dancing's Craig Revel Horwood goes against fellow judges after fans spot 'issue' before Annabel Croft exit
+-  Conoce por qué Yailin la más viral cerró sus redes sociales
+-  Who is in the BBC Strictly Come Dancing 2023 final? Three couples vying for the Glitterball confirmed
+-  Man City 'set sights' on Club Brugge winger Tajon Buchanan and other transfer rumours
+-  Diogo Dalot blasted for 'disrespecting' Manchester United teammate as Bruno Fernandes defended
+-  Who won I'm A Celebrity 2023 after Tony Bellew, Sam Thompson and Nigel Farage final?
+-  Motorway closed amid flooding for second night in a row
+-  Police appeal for help in search for 14-year-old girl missing for two days
+-  ITV I'm A Celebrity viewers spot same issue with Tony Bellew's time in jungle
+-  ITV I'm A Celebrity fans react as Sam Thompson crowned 2023 winner after all-male final causes divide
+-  ITV I'm A Celebrity 'clue' that named Sam, Tony and Nigel as final three weeks ago
+-  ITV I'm A Celebrity viewers say same thing moments after Nigel Farage's exit over Sam and Tony moment
+-  Pep Guardiola provides Erling Haaland injury update as Jack Grealish addresses Man City crisis talk
+-  ITV I'm A Celebrity fans say 'it sent me' as they're stunned by moment in Sam Thompson's final trial
+-  Italie: au moins 17 blessés légers après une collision entre deux trains dans le nord-est du pays
+-  حط له السم في السندويتش".. تفاصيل مقتل طفل على يد زميله بأكتوبر
+-  حملة المرشح الرئاسي عبدالسند يمامة: الإقبال على الانتخابات غير مشهود
+-  فوائد الطين الطبي للبشرة .. تعرفي عليها
+-  مع اقتراب رحيل موديست الأهلي يتحرك لضم المهاجم المغربي في يناير
+-  هل يعود للدوري المصري.. طارق حامد يحسم موقفه من الانتقال إلى الزمالك
+-  Tri-State Area residents celebrating Hanukkah pleading for release of more hostages from Gaza
+-  Washington Post: ABD kendi yasalarını gözetmeden İsrail'e on binlerce ton bomba verdi
