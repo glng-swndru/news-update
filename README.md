@@ -1,11 +1,11 @@
 # Latest News
--  쯔위, 압도적 화사 미모…매끈 각선미 눈길
--  '7억달러' 오타니, ‘연봉 지급 유예’ 선택… 다저스, 추가 영입할까[초점]
--  [軍, 최전방 소위 2027년까지 연봉 5000만원 추진
--  [“대학만 들어가면 그만? 문과선택 후 자퇴도”…대입유리 미적분·기하 수학 1등급 절대다수
--  [현대차, SK E&S 등과 수소 모빌리티 생태계 확산 ‘맞손’
--  Otomobil şarampole yuvarlandı, 4 kişi yaralandı
--  Gia thế kín tiếng của nữ nghệ sĩ cải lương trẻ tuổi vừa được phong tặng NSND
--  Resultados Lotto Activo EN VIVO: animalitos ganadores de HOY, 10 de diciembre
--  Hà Nội: Lớp vỏ bọc hoàn hảo của ‘nữ quái’ lừa đảo người dân hàng tỷ đồng
--  ‘I want him in the team’: Waugh says Green should be new opener to replace retiring Warner
+-  Discover the Deeper Plot and Message in ‘Squid Game’ Season 2
+-  Ronnie minura sa KathNiel hiwalayan
+-  2023 청소년 길거리 농구대회 성황
+-  Dave Grohl’s Acts of Kindness: Feeding the Homeless During Foo Fighters’ Australia Tour Off-Day
+-  Northern Lights for Ardeshir Trophy
+-  Power of Ambedkar
+-  САЩ ще помагат на Аржентина в преговорите с МВФ и в развиването на литиевата индустрия
+-  데이트 폭력·이별 살인, 그 속에 어른거리는 남친의 두 얼굴 [정락인의 사건 속으로]
+-  Explore England’s Luxurious 5-Star Euro 2024 Base with 45 Holes of Golf as Southgate Plans to Avoid Baden-Baden WAGs Circus
+-  Aid groups warn of mass starvation in Gaza
