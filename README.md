@@ -1,51 +1,51 @@
 # Latest News
--  Tendrá MC alta cantidad de perfiles provenientes de otros partidos
--  Pisces Horoscope Today 10 December 2023 : खर्चावर नियंत्रण ठेवा, पैशांचा गैरवापर करू नका; मीन राशीसाठी आजचा सल्ला
--  Thomas Müller rues Bayern Munich’s individual mistakes in 5-1 loss to Eintracht Frankfurt
--  신영재 홍천군수, 취임 이후 용문~홍천 광역철도 유치에 전념
--  춘천숲자연휴양림 운영 적임자 공개모집
--  원주소방서, 불조심 강조의 달 화재예방 기여 단체 표창
--  동해시, 초고령화시대 노인일자리 확대 추진
--  삼척 도계리, 통합공공임대주택 후보지로 최종 선정
--  평창서 파리나무십자가 소년합창단 특별초청공연
--  제천시 '희망2024나눔캠페인' 사랑의 온도탑 제막
--  BGF리테일, '아동안전 시민상' 시상
--  보령스포츠파크 에어돔무산위기… 보령시의회 공유재산심의서 부결
--  – رئيس مجلس النواب يبحث مع رئيس النقابة العامة لموظفي العدل ملفات تخص النقابة وموظفيها والتي من ضمنها زيادة المرتبات .
--  Ajker Rashifal, 10 December 2023: স্বাস্থ্য থেকে পরিবার,চাকরি থেকে ব্যবসা,কেমন যাবে আপনার দিন? জানুন আজকের রাশিফল
--  경기도교육청, 학부모와 함께하는 '돌봄홈커밍데이' 운영
--  India News | J-k: Legal Action Initiated Against Two People for Spreading Hate on Social Media in Ganderbal
--  Lelaki Indonesia maut ditimpa pokok balak
--  Production agricole : Ndogal Tadjele un grenier qui peine à s’assouvir
--  ¿Los hermanos Korioto en la Liga 1? C. A. Mannucci y la imagen que hace referencia 2 de sus jugadores
--  Confirmation New Zealand athlete Braden Currie has successfully secured his qualification for the Ironman World Championships 70.3 to be held in Taupo next year
--  Imputan a tres personas con cuatro tipo de delitos por atacar a conductor de plataforma
--  Details On What Will Open and Close Tonight’s AEW Collision
--  حماس تشيد بقرار الحوثيين منع مرور السفن إلى موانئ الاحتلال وتصفه بـ"الشجاع"
--  Taller en Cali donde ocurrió crimen de menor denuncia amenazas
--  DAN HODGES: Are the Tories really about to put in a call to Boris Johnson and his jungle foe Nigel Farage?
--  [영암군, 행안부 특교세 34억 추가 확보
--  [‘서울 3.35명 vs 세종 1.28명’ 5년간 신규 개업의원 71% 수도권에
--  [“고객이 최우선” 제주항공, 소비자중심경영 인증 획득
--  DAN HODGES: Are the Tories really about to put in a call to Boris Johnson and his jungle foe Nigel Farage?
--  ['강서쇼크' 참패 충격 못벗는 與…지지율 답보에 당 술렁
--  World News | COP28: Multilateral Development Banks Publish First Common Principles for Nature-positive Finance
--  Belgian, Port Houston and Partners Sign Memorandum of Understanding on Energy Transition Cooperation
--  EMILY PRESCOTT: Racing presenter Francesca Cumani found herself stuck in the snow near her Lake District home
--  Депутат Рады: ВСУ отправляют ограниченно годных призывников в штурмовики
--  Les pronos hippiques du dimanche 10 décembre 2023
--  सुखदेव सिंह गोगामेड़ी हत्याकांड - दो मुख्य आरोपी रोहित राठौड़ और नितिन फौजी गिरफ्तार
--  Redemption match for Fiji in quarters
--  Iván Duque arremetió contra Petro por decreto sobre dosis mínima: “Otra medida en favor del crimen”
--  คุยกัน 7 วันหน : เอไอทำแรงงานเก้าอี้สั่น แถมนักศึกษาไอทีตกงาน
--  सर्दी के मौसम में किसान करें इन सब्जियों की खेती, हो जाएंगे मालामाल
--  ยิปซี 12 นักษัตร พยากรณ์ : ระหว่างวันที่ 10 - 16 ธันวาคม พ.ศ. 2566
--  World News | Imran Khan Approaches Lahore Court to Challenge Pakistan Election Commission's Contempt Proceedings
--  Benjamin Zephaniah, Poet, Actor, and Activist, Dies at 65
--  الدوري الإيطالي: إنتر يستعيد الصدارة برباعية في أودينيزي
--  Corey Taylor 2024 North American Tour Announcement
--  Las mejores películas de 2023, según John Waters
--  Салах: Виждам манталитет на победители
--  Strictly Judge Shirley threatens to name the 'misogynistic bullies' who conspired to destroy her career
--  Cremaron los restos de Florencia Aranguren, la argentina asesinada en Brasil, y se disponen a repatriar sus cenizas a Buenos Aires
--  Como descobrir o IP de alguém pelo WhatsApp
+-  “อนุทิน”นำทีมบุกผับเถื่อนกับ”ปฏิบัติการเลียบด่วน Cleaning”
+-  [중형 SUV 20만 시대…판매 2위 싼타페, 1위는? [여車저車]
+-  ["돈 많음 제일 살기 좋다며"…韓 부자 해외 이탈, 세계 7위
+-  [SK온, ‘정보보호산업 발전’ 장관상…배터리 업계 최초
+-  [‘야구괴물’ 오타니, 10년 7억달러 역대 최고액에 다저스行
+-  "ราชทัณฑ์" ชี้แจงปมผู้ต้องขังหญิงทะเลาะวิวาท ยันไม่มีใช้กระจกทำร้าย
+-  "10월 야구에 온 것을 환영해"… 오타니 영입에 다저스 팬 잇몸만개
+-  7억달러인데… 오타니, 다저스행에 日 반응 “돈보다 승리를 우선으로 생각했다”
+-  FT아일랜드, 10일 컬래버 음원 '마중' 발매
+-  文書助理招聘｜起薪$14,735 附政府工入職條件+申請方法
+-  Red Wings' Dylan Larkin lay motionless after taking hit to head, helped off ice following scary scene
+-  Anatomy of a Fall wint beste film bij European Film Awards
+-  Taylor Swift-Tour brengt meer dan een miljard dollar op
+-  Lung linh sắc màu văn hóa các dân tộc nơi thượng nguồn sông Đà
+-  ルイス・ハミルトン メルセデスF1代表夫妻へのFIAの態度は「容認できない」
+-  'Frieren', capítulo 15: fecha de estreno, horarios y dónde ver el anime ONLINE
+-  Sechs Verletzte bei Explosion in Wohnhaus in Essen
+-  경주 안강읍서 역주행 오토바이, 승용차 충돌...70대 오토바이 운전자 숨져
+-  Une nouveauté ultra-pratique débarque sur WhatsApp
+-  Un vaste réseau d'IPTV démantelé, et certains clients pourraient être condamnés
+-  IPL 2024 to begin from March end, WPL likely to be held in one city, says BCCI secretary Jay Shah
+-  عرض أولاد العالية في ثاني أيام مهرجان الشارقة للمسرح الصحراوي (صور)
+-  Loi immigration : la Défenseure des droits critique le texte « d'une gravité majeure pour les droits fondamentaux »
+-  Contabilizan 12 muertos tras colapso de mina en Bolívar: Balance oficial
+-  В ВСУ заявили о готовности сдать позиции
+-  [인사] NH농협은행
+-  [인사] NH농협손해보험
+-  [인사] NH농협생명
+-  롯데온 수장 된 박익진 신임 대표, ‘아픈 손가락’ 오명 털어낼 수 있을까?
+-  하나은행, '2023 외국환 골든벨 전국체전' 개최
+-  SK온, 배터리 업계 최초 '정보보호 공시' 장관상 수상
+-  Musk considering reinstating Alex Jones on X
+-  Vietnam Airlines khẳng đinh tục triển khai mạnh mẽ Đề án tái cơ cấu để phục hồi năng lực tài chính
+-  وكيل أول النواب: مشاركة المصريين فى الانتخابات الرئاسية ستكون غير مسبوقة
+-  #apple responds to the Beeper iMessage saga: ‘We took steps to protect our users’
+-  Atlet Rusia dan Belarus Bisa Bertanding di Olimpiade Paris 2024, tapi ...
+-  В Херсонской области БПЛА ВДВ поразили около 20 единиц техники ВСУ
+-  謝子涵拚立委「廟會狂響」造勢 九天戰鼓助陣
+-  Chappell nails Aussie selectors over missed call
+-  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
+-  Dragon Lee Wins NXT North American Title at Deadline
+-  'Do carro, não sobrou nada', conta Zé Neto sobre acidente de carro em MG
+-  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
+-  QMJHL roundup: Masse posts shutout as Oceanic blank Remparts 4-0
+-  Vea la especial propuesta de matrimonio apadrinada por Melendi (+Video)
+-  제주경찰청, 범죄피해자 12명에 2400만원 지원
+-  Giải ngân hơn 11 tỷ đồng cho các hộ cận nghèo ở Vạn Ninh
+-  МО РФ сообщило об уничтожении 20 единиц техники ВСУ за неделю на правом берегу Днепра
+-  足球》開賽7分鐘隊長就進球 兵工廠一分不敵阿斯頓維拉
+-  [MLB] 9224억원 사나이 된 오타니... 다저스와 10년 계약
