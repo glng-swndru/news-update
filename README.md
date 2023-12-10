@@ -1,11 +1,51 @@
 # Latest News
--  TSLA Stock Forecast: This Year Was Kind to Tesla. Why 2024 Won’t Be.
--  El antillano Rangel Ravelo se suma a Cardenales
--  "NEMOJTE DA GINETE ZA SINVARA" Netanijahu: Predaja desetine Hamasovih teorista je početak kraja Hamasa
--  Gazze’de can kaybı 18 bine yaklaştı
--  Adıyaman'da 2 otomobil kafa kafaya çarpıştı: 3 ölü, 3 ağır yaralı
--  Gaziantep'te Trabzonspor fırtınası!
--  రమణీయం.. రామదాసు రథోత్సవం
--  فرنسا تسقط مسيّرتين في البحر الأحمر
--  الصحة: 13 نصيحة مهمة لقيادة صحية آمنة على الطريق
--  عاجل.. تنبيه مهم من حساب المواطن لمن لم ينزل له الدعم الشهري
+-  El desprecio al orden y la ley
+-  Asciende a casi 18.000 el número de muertes en Gaza por los ataques israelíes
+-  “Dağlıq Qarabağ”ın ləğvi qaçılmaz idi”
+-  బొగ్గు ఉత్పత్తిలో వేగం పెంచండి
+-  Eskalirao rat Hezbolaha i Izraela
+-  Milei saluda a sus seguidores desde el balcón de la Casa Rosada en Argentina
+-  Focus '07 MO15-1 Kampioen, meiden winnen alle wedstrijden
+-  Los Pumas 7′s vencieron a Australia y ganaron el Seven de Ciudad del Cabo
+-  Gnabry sofre lesão no tendão e desfalca o Bayern de Munique na Liga dos Campeões
+-  చెక్కభజనకు జాతీయ స్థాయి అవార్డు
+-  Dalla gioia all’incubo del dolore: giovane mamma muore un mese e mezzo dopo il parto, si indaga
+-  Desetkovana Cibona slavila u Zadru
+-  Pablo Berger gana con 'Robot Dreams' el premio a la mejor animación europea
+-  అందుబాటులో ఉంటూ సేవకుడిలా పనిచేస్తా..
+-  I’m a WAG but it’s not as glam as people think – I’m always cold supporting my beau and don’t even have a Range Rover
+-  Presidente Daniel Noboa dialoga con Volodimir Zelenski, quien agradece a Ecuador por su apoyo ante la invasión de Rusia a Ucrania
+-  అర్ధరాత్రి అరాచకంపై జిల్లా ఎస్పీ సీరియస్‌
+-  Die Augsburger Panther gehen gegen Ingolstadt in die Knie
+-  Лукашенко прибыл с визитом в Кению
+-  నష్టపోయిన రైతులను ప్రభుత్వం ఆదుకోవాలి
+-  Ni el de Perón ni un Valiant: el auto que eligió Javier Milei para su asunción
+-  Лукашэнка прыляцеў у Кенію. Гандаль з гэтай краінай у Беларусі мізэрны, але ёсьць нюанс
+-  ‘ఆరోగ్యశ్రీ’తో పేదలందరికీ మెరుగైన వైద్యం
+-  Πάλι αυτός…
+-  People think I’m only with my man because he’s a famous gamer but it’s true love – I don’t care that he’s paralysed
+-  జీతాలెప్పుడు?.. జగనన్నా!
+-  Cómo es el bastón presidencial de Javier Milei: todos los detalles
+-  Yolanda Díaz tiene la 'culebrilla' en el lado izquierdo del cuello
+-  AMC Cancels 6 TV Shows in 2023, Renews 1 More, & Announces 1 Is Ending
+-  Orosz Barbara gyakorlatilag felismerhetetlen újabb képein
+-  Juan Carlos Villena: el perfil del probable nuevo fiscal de la Nación y sus retos pendientes
+-  ప్రజల నమ్మకాన్ని వమ్ము చేయను..
+-  Kantersieg für die Wasserballer des SV Weiden
+-  محافظ المنوفية: استمرار التوافد على اللجان الانتخابية
+-  Il Museo della Shoah di Roma pronto fra tre anni: “Per non dimenticare. Soprattutto i nostri errori”
+-  Eskaliralo nasilje između Izraela i libanonskog Hezbolaha
+-  అన్నదమ్ముల్లా కలిసి అభివృద్ధి చేస్తాం
+-  Son of Celtic legend once got ‘kitted out’ in Rangers gear for Christmas night out, reveals former teammate
+-  ఉత్సాహంగా కార్తీక వనసమారాధనలు
+-  Trabajadores del Banco de la Nación anuncian paro de 24 horas para el 11 de diciembre
+-  Hurrikaani kukisti Hurmoksen
+-  West African leaders recognise Niger’s junta but say sanctions will remain
+-  Soccerladuma | SuperSport's Woes In CAF Confed Cup Continues
+-  OYAK VE TCC arasındaki 740 milyon dolarlık işbirliğinde imzalar atıldı
+-  مسيرات لحزب مستقبل وطن بكفر الشيخ لدعم السيسي في الانتخابات الرئاسية
+-  Interview mit Werbeikone Friedrich Liechtenstein vor Weihnachtskonzert in Potsdam
+-  Повеќе од 22.000 напади во Газа од почетокот на војната
+-  Megdőlt a rövidpályás úszás legrégebbi világrekordja
+-  PKL 2023-24: Haryana Steelers Beat Dabang Delhi Despite Naveen's Super Show
+-  Argentyna: nowy prezydent zapowiada terapię szokową w gospodarce
