@@ -1,51 +1,11 @@
 # Latest News
--  Tottenham'dan Newcastle'a dört dörtlük tarife!
--  Eyüpspor dört köşe!
--  Desetkovana Cibona nastavlja s čudima, pao je Zadar u Višnjiku!
--  Eagle-eyed fans left baffled by bizarre difference to Brennan Johnson’s Tottenham kit during Newcastle clash
--  Bilimsel sürecin oluşumu
--  5 Must-Have Gadgets to Bring to a New Condo
--  Çin, Long March roketleriyle 500. fırlatışını yaptı
--  İsrail'den İran'a flaş hamle
--  YÖK Başkanı Özvar, bilim insanlarını İsrail'in baskı ve saldırılarına karşı tavır almaya çağırdı
--  Futebol / 2ª Liga: Oliveirense perde no Restelo (1-0)
--  الاتحاد العمالي العام أعلن الإضراب العام غداً
--  کراچی : بٹیر کی یخنی سے سردی بھگائیں
--  الدوري الالماني : قمّة ليفركوزن وشتوتغارت تنتهي بالتعادل
--  الحفل الختامي السنوي لبرامج ومشاريع جمعية مُعين لتأهيل الأحداث والمُعرَّضين للانحراف
--  The looming threat of antimicrobial resistance
--  Achtung Nutzer! PlayStation löscht gekaufte Inhalte aus Bibliotheken
--  Λάκης Γαβαλάς: Έχω επενδύσει πάρα πολλά χρήματα στη μόδα και θέλω να είναι σεβαστή, όπως και ό,τι την αφορά
--  Karleuša pjevala bolesna: 'Na pozornicu sam se jedva popela. Htjeli su mi poslije zvati hitnu..'
--  Slik procijenjena na 15.000 dolara, sada prodata za 14 miliona dolara
--  ¡La mejor hallaca es la que hace mi mamá!: Hay cinco claves básicas para que así sea
--  Amanda Bynes talks face tattoos on podcast premiere after debuting new look
--  Стало известно, чем свадьба опасна для здоровья
--  Új állatfajt fedeztek fel Magyaroszágon
--  SV Somborn verpflichtet Markus Glock als Trainer
--  Australia’s Sutherland tops Women’s Premier League auction
--  Παναθηναϊκός: Η αντίδραση των φίλων του «τριφυλλιού» για τα σενάρια περί κεκλεισμένων των θυρών
--  COP28 Climate Summit President Has ‘Direct Conflict of Interest,’ Al Gore Says
--  Actual green actions speak louder than words
--  Po konkursach w Klingenthal tylko jeden polski skoczek może być zadowolony
--  Антъни Блинкън подкрепи продажбата на боеприпаси на Израел без одобрението на Конгреса на САЩ
--  Jastrzębski Węgiel pokonany! Projekt Warszawa górą w szlagierze PlusLigi
--  Фризьор посочи нещата, които съсипват косата и как да ги избегнем
--  Aussie sevens women triumph again but men lose final
--  Auch mit fast nichts kann man Leben retten
--  Nikolaustage und Weihnachtswerkstatt lockten
--  Fotoclub spendet an Lohrer Tafel
--  CM चुनने में देरी का मतलब नया चेहरा, जानिए क्या है BJP का ट्रेंड?
--  राज्यसभा में नमाज को लेकर बड़ा फैसला, 30 मिनट का मिलने वाला अतिरिक्त ब्रेक हटाया गया
--  यूपी से चुनाव प्रचार शुरू कर पीएम मोदी को चुनौती या कांग्रेस को मैसेज दे रहे हैं नीतीश, ‘खेला’ समझ‍िए
--  मुझे अकेला छोड़ कहां जा रहा है, मैं भी साथ आ रहा हूं… छोटे भाई की मौत के 15 मिनट बाद बड़े ने भी छोड़ी दुनिया
--  सुखदेव सिंह गोगामेड़ी की 200 करोड़ की संपत्ति! तीन पत्नियों के दावे के बाद क्या हो सकता है प्रॉपर्टी विवाद?
--  Lavrov: Mnogo smo jači nego prije sukoba
--  MP News: सीएम शिवराज सिंह ने बताया क्यों किया ‘राम-राम’ नाम का ट्वीट, क्या हैं उनके राम राम के मायने
--  Indore News: मैरी कॉम ने कहा कड़ी मेहनत करें, कबीर बेदी बोले कल्पनाशीलता भी जरूरी
--  В двух областях на юге Украины объявили воздушную тревогу
--  Who Will Be The CM: कल फिर चौंका सकते हैं मोदी-शाह, इन छह में से एक हो सकती है संभावना
--  MP News: दमोह पहुंचे प्रहलाद पटेल ने मीडिया से की चर्चा, कहा- धन्यवाद से नहीं उतार सकते जनता का कर्ज
--  Sehore: बुधनी में तेज गति से दौड़ रहे कंटेनर ने बाइक को मारी टक्कर, दो युवकों की मौके पर मौत
--  Richarlison acaba com o jogo, Tottenham massacra Newcastle e volta a vencer na Premier League
--  Polizei: Mehrere Verletzte bei Ausschreitungen in Rostock
+-  Ex-NUPENG Leader Reveals Kokori’s Last Wish For Nigeria
+-  Premier League: Manchester City schlägt Luton - Chelsea verliert gegen Everton
+-  Premier League: Manchester City schlägt Luton - Chelsea verliert gegen Everton
+-  Sexuelle Gewalt verharmlost? ZDF wirft Böhmermann-Sendung aus Mediathek
+-  'PSV oriënteert zich op 'extra zes', Babadi mogelijk in gesprek met andere clubs'
+-  שר לשעבר בממשלת חמאס לתושבי עזה: "תתנגדו לחבורת סינוואר, תנו לנו לחיות"
+-  전설이 된 손흥민, 8시즌 연속 EPL 두자리숫자 득점 달성
+-  ‘골-도움 만능’ 손흥민, EPL 홈페이지 메인도 점령[토트넘-뉴캐슬]
+-  2골 넣은 히샬리송 있어도 손흥민 압도적 득표로 MOM 선정
+-  جولة مسائية لمحافظ أسوان للاطمئنان على سير العملية الانتخابية
