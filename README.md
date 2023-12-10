@@ -1,11 +1,51 @@
 # Latest News
--  বিএনপির নতুন কর্মসূচি ঘোষণা
--  גיורא ענבר: "אם יש מישהו שיכול לצאת מזה, זה ניב שטייף"
--  İsrail ordusu, Batı Şeria'da aralarında kadınlarında bulunduğu 30 Filistinliyi gözaltına aldı
--  "Acil durum" hükmünü devreye soktular! İsrail'in soykırım sponsoru ABD'den 106,5 milyon dolarlık silah satışına onay
--  המכון לחקר האנטישמיות חושף: כיצד קטאר מזרימה למערב טריליון דולר
--  İki ülke arasındaki 24 yıllık anlaşmazlık Türkiye'nin çabalarıyla çözüldü
--  নতুন ফ্লোর প্রাইসে জিপিএই ইস্পাত
--  Expert hails Gov. Mbah for ambitious 2024 Budget, but says projections unrealistic
--  Ligne 11 du métro : une pétition contre le nom de la nouvelle station Serge Gainsbourg
--  প্রকৌশল বিশ্ববিদ্যালয়ে ভর্তি–ইচ্ছুকদের জন্য ৫ পরামর্শ
+-  Bangladesh – A tough media battleground for Sheikh Hasina
+-  Gig tribute, acara menyadur lagu mega dan indie perdana
+-  du unveils eco-friendly free Tourist SIM to accelerate sustainable connectivity
+-  ЦСКА: Денят настъпи
+-  DFB-Pokal: Auslosung Viertelfinale: Wo läuft die Ziehung heute live im Free-TV und Livestream?
+-  Planerbar? Bah!
+-  Emirates dévoile sa carte des vins pour 2024
+-  Girlfriend gate: German media pundits trade barbs over head coach Julian Nagelsmann
+-  PC-Netzteile: Wie viel Watt und welches 80Plus-Zertifikat hat euer Netzteil?
+-  Adventski kalendar recepata: Šape, kolačići koji mirišu na djetinjstvo
+-  Crna plijesan s prozora: Ovo je način kako je napokon ukloniti
+-  Ipari és építőipari adatok érkeznek
+-  „Es gibt keinen Raum, um zu trauern“: Junge Palästinenser in Berlin über ihre Wut und ihre Trauer
+-  Τίποτα δεν είναι δεδομένο
+-  Sedam jednostavnih vježbi koje će transformirati tijelo u četiri tjedna
+-  Trener otkrio tri važna razloga zašto biste trebali pustiti psa da njuška u šetnji
+-  В России отреагировали на нашумевший поступок «наследницы» Елены Исинбаевой
+-  Hubungan Kerajaan Perpaduan baik, tebuk atap akan gagal – Anwar
+-  Elodie e Annalisa insieme sul palco: il duetto scatena il pubblico al concerto
+-  विष्णुदेव साय बने छत्तीसगढ़ के नए CM, अमित शाह ने 9 नवंबर को किया था ये वादा
+-  Bigg Boss 7 Tamil: விஷ்ணுவை டார்கெட் செய்த கமல்; கவலையோடு காணப்படும் பூர்ணிமா; சுவாரஸ்யத்தில் பிக்பாஸ்
+-  Румен Радев: Не е нормално парламент с ниско обществено доверие да посяга на Конституцията
+-  Pogledajte zašto se navijači Arsenala žale da su pokradeni protiv Aston Ville
+-  Sensacyjne wieści ws. perełki z lidera Ekstraklasy. Hitowy transfer już zimą!?
+-  ريال مدريد يستأنف تدريباته استعداداً للقاء يونيون برلين
+-  PVV-Kamerlid Martin Bosma wil ook Kamervoorzitter worden
+-  Man dood gevonden in woning Oss, twee vrouwen opgepakt
+-  Lui è la persona giusta, ma ci siamo incontrati nel momento sbagliato
+-  Boysi: Svi troškovi za našu braću u Grčkoj plaćeni iz donacija
+-  Atleti russi alle Olimpiadi, l'Ucraina valuta il boicottaggio
+-  إطلاق شركة نيوم للغذاء "توبيان" لإنشاء أنظمة غذائية مستدامة
+-  إنذار أصفر من أمطار غزيرة على مكة وهذه المناطق لـ 9 مساءً
+-  عاجل.. الخدمات الطبية للقوات المسلحة توفر وظائف شاغرة
+-  إعادة تأهيل وتشغيل وصيانة محطات المعالجة في الرياض بتكلفة تجاوزت 2.18 مليار ريال
+-  La sangre de Grífols vuelve a circular
+-  บุกยิงกลางสนามแข่งบอลในคูคตก่อนหนี ตร.รู้ตัว-เร่งติดตาม
+-  IVICA NESTAO PRE 7 DANA U PRIJEPOLJU - I DALJE GA NEMA! Porodica očajna: Sve je ostavio pored kompjutera i samo izašao
+-  昌明政府周年庆抽奖 女子中大奖赢公寓单位
+-  18.5 مليار ريال صادرات القطاع الخاص القطري في الأشهر التسعة الأولى من العام الحالي
+-  Sepultura lägger ned – efter 40 år
+-  Sepultura lägger ned – efter 40 år
+-  Sepultura lägger ned – efter 40 år
+-  Sassari, Gavina cerca il fratello dato in adozione 37 anni fa: «Mia madre morì e ce lo portarono via»
+-  La Rochelle : il faudra rallonger le quai de la gare de la Porte Dauphine
+-  Pēc nedēļas "Baltic Grand Prix 2023" ar Pasaules kausu Standartdejās profesionāļu divīzijā
+-  کانال قوش‌تپه مورد توجه گردشگران
+-  Chhattisgarh: కొత్త సీఎంగా గిరిజన నేత విష్ణు దేవ్ సాయి
+-  „The Masked Singer“ am Sonntag, 10.12.2023: Wer ist raus? Sendetermine und weitere Infos zu Staffel 9
+-  Financement adaptation et atténuation du changement climatique dans l’Uemoa: Le marché financier appelé à apporter sa contribution
+-  مفاوضات بين إيران والسعودية لتسيير رحلات جوية مباشرة
