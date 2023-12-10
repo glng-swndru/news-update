@@ -1,51 +1,51 @@
 # Latest News
--  Туркияда ОАВда сунъий интеллектни бошқариш форуми ташкил қилинади
--  Ўзбекистон ва БАА: давлат хизматларини ривожлантириш бўйича ҳамкорлик қилинади
--  Япония император хоними 60 ёшда
--  “Далмунобод”даги хурсандчилик
--  Покистон журналистлари раҳбари ОАВни тинчликни тарғиб қилишга чақирмоқда
--  Илм олинг, уни ҳеч ким сиздан тортиб ололмайди
--  ยิปซีพยากรณ์ดวงรายวัน ประจำวันอาทิตย์ที่ 10 ธันวาคม 2566​
--  [‘대치동 1위·1등급’ 남발하더니…거짓 광고한 학원들, 과징금 철퇴
--  [“사장님 잡혀가면 회사 망한다”…50인미만 사업장 10곳 중 9곳 “중대재해처벌법 준비 안돼”
--  ["'뺨 맞고 목 졸려'…직장인 15.3％ 폭행·폭언 경험"
--  [[리얼푸드] ‘청량함 찾아요’ 브라질 슈퍼마켓 소비 변화
--  [[리얼푸드] 일본, 캐릭터 협업한 식품 매출 '쑥쑥'
--  [[리얼푸드] 메타버스 콘텐츠 활용하는 일본의 식품 마케팅
--  [[리얼푸드] 의약품 공급망 위기인 프랑스, 식물성 건강보조제 인기
--  [[리얼푸드] 美 월마트 매출 상승…저렴한 가격 찾는 미국인들
--  [현실판 ‘화차’ 뿌리뽑는다…금감원, ‘불법채권 추심’ 대부업자 특별점검
--  [GH,하남교산 기업이전단지 토지 보상착수
--  Sporting continua a sofrer como antes
--  Un político y su mujer baleados en Renacimiento
--  Los enviaron tras las rejas por intentar asesinar a Indriver en Las Mañanitas
--  Detenido por hurtar vehículo de empresa de cableado eléctrico
--  Matan de 4 balazos a ‘Otto' cuando llegaba a su casa en Pedregal
--  Debacle del Bayern ante el Eintracht en la Bundesliga
--  El Real Madrid deja el liderato en el aire
--  Iverson Molinar se marcha para los Capitanes
--  ‘Manudos' confían en el milagro
--  Inicia la Fiesta hípica
--  Ohtani elige a los Dodgers de Los Ángeles
--  Murillo aún no se lo cree
--  Un púgil que tambalea desde el primer asalto
--  Diciembre distinto, con sabor a comunidad
--  Necesidad de reflexionar (1)
--  Derechos Humanos
--  Nitzia se inspira en crear decoraciones mágicas
--  Acércate, no tengas miedo
--  Tiro en la cabeza en medio de celebración por Día de la Madre
--  La mandó a matar pensando que era bruja
--  Se formó la botadera en una universidad
--  ‘Una vida Bárbara’: violencia machista ante la mirada impasible de la sociedad española
--  ‘결승골 기점’ 이강인, 평가 엇갈렸다... PSG 최고 평점부터 “가치를 제대로 보여주지 못했다” 혹평까지
--  'SON과 호흡은 좋지만...' 786억 웨일스 신성 FW, '리그 1골'에 불과한 득점력 개선은 필수
--  ‘TN govt should probe why it took 4 days for flood water to recede’
--  Yön uutiskooste | Kaurismäen Kuolleet lehdet jäi ilman palkintoja, Nobelin rauhanpalkinnon saaja uuteen nälkälakkoon iranilaisvankilassa
--  Death In bottles: Toxic herbal cocktails snuffing life out of Nigerians
--  Harga Emas Hari Ini Stabil, Trennya Menurun dalam Sepekan Terakhir
--  Partai Pelita Deklarasi Dukung Anies-Imin Menang Pilpres 2024
--  חיל האוויר תקף אתרים צבאיים שבהם פעלו מחבלי חיזבאללה; בעזה - מחבלים מורידים נשקם ונכנעים
--  תיעוד מרגש: גם בלב הקרבות - הקצינים הבכירים שלא ויתרו על הדלקת נרות חנוכה
--  השכול של כולנו
--  פתרון בעזה? כדי להימנע מחזרה לדפוסי החשיבה הישנים - צריך להכיר בשורש הבעיה
+-  नेपाल वार एसोसिएसनको राष्ट्रिय गोष्ठी सौराहामा सुरु
+-  फुटबलर सावित्रालाई काठमाडौँ युरोको सम्मान
+-  Pulwama Attack Mastermind Kidnapped: पुलवामा हमले का आरोपी औरंगजेब पाकिस्तान में किडनैप, मोस्ट वांटेड आतंकी को उठाकर ले गए बंदूकधारी
+-  Thane Crime: पतीला जीवंत जाळण्याचा प्रयत्न, घरगुती वादातून कृत्य; 61 वर्षीय महिलेविरोधात गुन्हा दाखल
+-  كيف يؤثر اضطراب الدورة الشهرية لدى النساء على صحة القلب؟
+-  القومي للطفل يحتفل باليوم العالمي لمكافحة الفساد بعرض بكره أجمل
+-  Kathmandu Valley cooling down, Temperature dips to 6.0°C on Sunday
+-  제주, 동계시즌 동남아 대상 홍보 마케팅 강화
+-  제주 아파트 경매 물량 대거 늘어
+-  WI vs ENG: इंग्लैंड के खिलाफ वेस्टइंडीज की पावर-पैक टीम घोषित, तीन धुरंदर खिलाडियों की वापसी, देखें स्क्वाड
+-  Amritsar News: ਕਿਸਾਨ ਲੀਡਰ ਪੰਧੇਰ ਨੇ ਖੋਲ੍ਹੀ ਨਸ਼ਿਆਂ ਦੀ ਪੋਲ, ਚਿੱਟੇ ਨਾਲ ਰੱਜੀ ਕੁੜੀ ਦੀ ਵੀਡੀਓ ਕੀਤੀ ਸ਼ੇਅਰ
+-  Infidencias y confidencias del 10 de diciembre del 2023
+-  Les Lakers dominent les Pacers et remportent le In-Season Tournament ! (123-109)
+-  Elon Musk Makes Very Rare Appearance With His Son X Æ A-12 During Father-Son Outing at Football Game
+-  Profil dan Agama Iriana Jokowi, Ritual Berdoanya Dibongkar Kaesang
+-  Weerbericht | Code geel in noordelijke kustgebieden door zware windstoten
+-  Λέσβος - Γύρω από το ρακοκάζανο της Ανεμώτιας ανθούν τα όνειρα για το χωριό
+-  'Fake news' claims open up new front in Middle East war
+-  Πατήσια: Φωτιά σε διαμέρισμα – Απομακρύνθηκαν οι ένοικοι
+-  Zonguldak'ta art arda heyelan: Anne ve oğlu aranıyor! Bölgedeki riskli evler tahliye edildi
+-  Latest News | USFDA Pulls Up Intas Pharma for Manufacturing Lapses at Ahmedabad Plant
+-  Девин Хейни победил Реджиса Прогрейса и стал чемпионом в первом легком весе по версии WBC
+-  Ezúttal Kerkez volt a nap magyar PL-hőse, záporoznak a 8-asok
+-  تشريع أوروبي غير مسبوق لتنظيم عالم الذكاء الاصطناعي
+-  وطن واپس جانے والے افغان باشندوں کی تعداد 4 لاکھ سے تجاوز کر گئی
+-  Susanne Nyström: Korta arbetsdagen för alla som inte kan jobba hemifrån
+-  NYT: Европа опасается развала НАТО в случае победы Трампа на выборах
+-  ΗΠΑ: Έξι νεκροί έπειτα από σφοδρές καταιγίδες στο Τενεσί
+-  समाजकंटकांचा हेतू आरक्षण मिळवणे नसून अशांतता पसरवणे आहे : गोपीचंद पडळकर
+-  Sports News | Eintracht Frankfurt Routs Bayern Munich 5-1 for Defending Champ's First Bundesliga Defeat
+-  Επιβεβαιώνεται ο θάνατος 25χρονου ισραηλινού ομήρου στη Λωρίδα της Γάζας
+-  Latest News | EU Carbon Tax to Hurt Global Trade, Not to Stop Carbon Leakage: GTRI
+-  الخليج اليوم .. البرهان: "إعلان جدّة" أولوية للحل السلمي ولـ"إيقاد" دور أساسي لانها الأقرب لفهم واقع السودان
+-  الخليج اليوم .. الكشف عن الكرة الرسمية لكأس العالم للأندية 2023 بالسعودية
+-  Priset borde vara i dollar eller euro
+-  I ovo je anksioznost! 6 znakova o kojima ne pričamo, a često se dešavaju
+-  Novače, da li si antivakser? Novinar pokušao da isprovocira Đokovića, a ovo je Noletov odgovor! (VIDEO)
+-  Novakovu i Jeleninu jelku smo poslednji put videli 2018. godine: Evo kako su je Đokovići tada ukrasili (FOTO)
+-  Priset borde vara i dollar eller euro
+-  Priset borde vara i dollar eller euro
+-  Market Pass: Έως πότε παρατείνεται η προθεσμία για τις αιτήσεις
+-  （專訪）白岩瑠姬嘆選秀太辛苦！JO1出道陷低潮「誰會喜歡我」
+-  Visite Du President Brice Oligui Nguema Au Cameroun : Que Retenir ? :: Cameroon
+-  Le Congrès Extraordinaire Des Vutés, Manifestation De La Force D'un Peuple Du Cameroun :: Cameroon
+-  Girl Sleeps With Snake: अपने चारों ओर सांप से लिपटकर सोती है ये छोटी सी लड़की, वीडियो देख लोग दंग
+-  面對世局變化挑戰大 蔡英文：賴清德蕭美琴是最好人選
+-  ‘นิกร’ ยัน ‘ทำประชามติแก้รธน.’ ไม่ช้าเหตุใช้กลไลรัฐสภาช่วย
+-  이상민 장관, 제주 행정체제 개편 주민투표 요청하면 적극 검토
+-  제주 우주산업 첫 제주투자진흥지구 지정 추진 '주목'
+-  Zwei-Euro-Münze für 99.000 Euro gehandelt – irrer Preis lässt Sammler aufhorchen
