@@ -1,11 +1,51 @@
 # Latest News
--  رغم فقدان ذراعيها.. بركة تصوت بقدمها في الانتخابات الرئاسية بالإسكندرية (صور)
--  متحدث الخارجية: 14 منظمة عالمية وإقليمية تتابع الانتخابات الرئاسية في مصر
--  غرفة العمليات الرئيسية بالإسكندرية: لا شكاوى في أول أيام الانتخابات الرئاسية (صور)
--  لميس الحديدي تعلق على إحالة الفنانة لبلبة للتحقيق في واقعة تصويتها مرتين
--  محافظ المنيا: انتهاء أول أيام انتخابات الرئاسة دون معوقات
--  رئيسة القومي للمرأة تستقبل رئيس بعثة جامعة الدول العربية لمتابعة الانتخابات الرئاسية
--  مايا مرسي تشيد بتصدر المرأة المصرية للمشهد الانتخابي في اليوم الأول
--  رويترز: الأمم المتحدة تصوت الثلاثاء على مطلب لوقف إطلاق النار في غزة
--  'O agressor não pode ser a vítima', diz Ana Hickmann ao responder fãs no Instagram
--  AB’de 29 milyona yaklaşan yatak kapasitesinin üçte biri iki ülkede
+-  Eyüpspor'da gerilim! Teknik Direktörü Arda Turan, tribünlerle tartıştı
+-  Granada-Athletic Bilbao maçında bir taraftar hayatını kaybetti
+-  إنفوغرافيك| الإنفاق لبعض القطاعات والجهات التابعة لها من 01 يناير إلى 30 نوفمبر 2023
+-  Crucial VAT debate on Sunday halted due to lack of quorum
+-  Budget 2024 improves transparency in IMF program progress
+-  Janaka Ratnayake faults Power Minister for outage
+-  Two probes launched into country wide power outage
+-  Air Arabia launches direct flights to Sri Lanka from Abu Dhabi
+-  Exports powerhouse Hayleys Group sweeps 17 Presidential Export Awards
+-  Second half rally takes Kandy and CR through to remain unbeaten
+-  Deadline for RfQ for SLT extended till 12 January
+-  CH shock Havies
+-  Port City Colombo’s festive Christmas carols tonight
+-  President unveils plans to depoliticise and revolutionise Sri Lanka Cricket by 2030
+-  Aitken Spence Travels welcomes three cruise ships in a single day at Colombo Port
+-  కాంగ్రెస్‌ ఎమ్మెల్యేల కొనుగోలుకు యత్నం
+-  WS 우승 3회 베테랑 윌 스미스, 1년 500만$에 KC행
+-  Letter: Embrace love, not war
+-  Pep Guardiola: İsyan etmeliyiz
+-  Filistin hükümeti: Hamas siyasi haritanın bir parçası ve İsrail bunu yok edemez
+-  Good Day Cooks: True Food Kitchen
+-  Pine Hills Parade showcases community pride
+-  NJ Now: Challenges in our schools, food systems
+-  Washington Capitals spread holiday cheer with toy drive
+-  Virginia Rep. Abigail Spanberger joins On The Hill to discuss her run for governor
+-  House Republicans look to formally impeach President Joe Biden
+-  A behind-the-scenes look at the Capital One Arena changeover
+-  UK risks 'returning to Victorian age' as poverty gap no better than after 2008 crash
+-  Woman, 27, killed in horror crash named as three others fight for life in hospital
+-  Outrage as pro-Palestine protester spotted 'carrying The Final Solution placard'
+-  Girls, 13 and 14, arrested after Jewish woman 'violently robbed' in 'terrifying' incident
+-  'I used to go door-to-door enforcing the BBC TV licence and it was terrifying'
+-  BBC was 'inconsistent' and 'unreliable' as judge orders release of Martin Bashir emails
+-  Police arrest suspect over alleyway murder of 45-year-old man who was killed after leaving East Finchley Tube Station nearly 40 years ago
+-  Police arrest suspect over alleyway murder of 45-year-old man who was killed after leaving East Finchley Tube Station nearly 40 years ago
+-  Emilio Serrano conquista por mineras el XXII Concurso de cante
+-  17 مصابا في اصطدام قطارين بإيطاليا
+-  سكني يوضح آلية الاطلاع على أراضي المخططات السكنية وحجز الوحدات
+-  En vivo: Javier Milei le tomó juramento a sus ministros sin TV ni periodistas
+-  Gary Neville dismisses ‘nonsense’ idea of sacking Man Utd boss Erik ten Hag
+-  I'm A Celeb's Tony Bellew brands disgusting Stakeout trial 'a disgrace' as he bids to win a luxury meal as the final gets underway: 'You're all a*******s!'
+-  Poruke u Utisku nedelje: Opozicija pobeđuje ako građani izađu, u Beogradu se lomi sudbina Srbije
+-  Israel is trying to force Gazans into Egypt – UN official — RT World News
+-  Sigit, L’Équipementier Italien, S’Implante en Algérie : Un Nouveau Souffle pour l’Industrie Automobile
+-  Andrea Legarreta enamora a sus fans con un atrevido escote
+-  Protests At UN Climate Talks See 'Shocking Level Of Censorship'
+-  Protests At UN Climate Talks See 'Shocking Level Of Censorship'
+-  조희대 대법원장 취임…‘재판지연’ 해결 관심 집중
+-  A merger between Cigna and Humana that would have created a gigantic $140 billion healthcare conglomerate has been called off
+-  Jurčić: Moraju se upaliti alarmi na svim razinama u Dinamu
