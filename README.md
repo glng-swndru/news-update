@@ -1,51 +1,51 @@
 # Latest News
--  लैगिंक हिंसा विरुद्धको १६ दिने अभियान समापन
--  इरानद्वारा १३ हजार अवैध अफगान आप्रवासी निष्कासित
--  आफैंले बोकेको बन्दुक पड्किँदा एकको मृत्यु
--  Layún pide apoyo para el América en la final: 'El Estadio Azteca debe ser un infierno'
--  Gustavo Leal quiere ver al América Campeón: 'Mi apoyo va a estar con André'
--  حملات لمقاطعة (زارا) لاستغلالها مجازر غزة في التسويق
--  الأوقاف تعلن بدء التسجيل الأولي للراغبين بالحج
--  عاجل.. إيداع حساب المواطن لشهر ديسمبر والاستعلام الآن برقم الهوية
--  كن قدوة لأطفالك في 10 خطوات
--  استعدادًا للأمطار.. أمانة العاصمة المقدسة ترفع درجة الطوارئ وتُحذر
--  Yargıtay’dan primle çalışanlara kötü haber
--  El posible RIVAL del América en la Gran Final de la Liga MX
--  Hakan Çalhanoğlu hem attı hem attırdı... Inter, kendi evinde çok farklı!
--  দুই বছর পর ওয়েস্ট ইন্ডিজ দলে রাসেল
--  Beren Saat, İstanbul İçin Son Çağrı'daki sevişme sahnesi hakkında ilk kez konuştu
--  여준석 워싱턴대전 9분간 2점·1R-1AS·1블록, 곤자가대 5점차 분패
--  Fenomeno Shiba Inu ma il Bitcoin Rimane il Re delle Criptovalute
--  LeBron James et Anthony Davis offrent la première Coupe NBA de l'histoire aux Lakers
--  Yılın Erkeği seçilen Kenan İmirzalıoğlu: 'Mesele erkek olmak değil, mesele beyefendi olmak'
--  「東洋の魔女」寺山恵美子氏死去
--  Agri-commodities exports decline to 17.93 lakh tonnes in Sept: APEDA
--  Merja Nykänen jätti suorittamisen ja palkkatyön hypätessään hyvinvointiyrittäjäksi – "Ei voi odottaa, että loma tulee ja sitten palaudun"
--  Kochov Tucson rozhodol 23 sekúnd pred koncom. Slovák bol na ľade
--  Dobre vesti za Partizan: Vraća se bitan igrač
--  (FOTO) Ovo je LUKSUZNA VILA Ace Pejovića od 800.000 EVRA: Prava je PALATA, pevačeva kuća grmi od skupoće
--  Махачев оценил битву взглядов Яна и Макгрегора: «Надо было дать ему один раз»
--  Napravite gel protiv podočnjaka od kave sami! Sve sastojke već imate u kuhinji
--  ‘การบินไทย’ พร้อมรับผิดชอบ-เยียวยา เหตุผู้โดยสารโดนเครื่องดื่มร้อนหกรด
--  L’école de la vie avec le Parc Naturel Régional des Causses du Quercy
--  Prabowo Soroti Upah Murah: Bangsa Indonesia Tidak Mau Jadi Bangsa UMR
--  საქართველოს შეუძლია ევროკავშირის გვერდში დგომის იმედი ჰქონდეს
--  Stängd gräns oroar rysk minoritet i Finland
--  Кучеров возглавил гонку снайперов текущего сезона НХЛ
--  Fantastis! Segini Mahar yang Diberikan Egy Maulana Vikri Buat Adiba Khanza
--  Apa Itu Tabungan BRI Simpel, Apa Kelebihannya?
--  Prima del Milan c'è il Tottenham: Newcastle in campo alle 17:30 a Londra
--  EFCC decries rise in land fraud, cybercrime in Southeast
--  Baldırıkara nedir ne işe yarar? İşte yanıtı...
--  미국 정부, 이스라엘에 포탄 보내기 위해 ‘의회 패싱’
--  Elon Musk đã sai khi nghĩ Cybertruck sẽ trở thành ‘cỗ máy in tiền’: Giá bản đắt nhất bị đội lên 100.000 USD, KOLs trải nghiệm ‘bóc phốt’ thực tế khác xa quảng cáo
--  Tényleg beleőszülhetünk a feszültségbe
--  Шарангович отличился в матче НХЛ с передачи Соловьева
--  Türkiyədə 78 terror yuvası MƏHV EDİLDİ
--  قصف إسرائيلي كثيف على غزة
--  Electrify Canada Switches To kWh Pricing
--  Meteoroloji'den sağanak, kar ve fırtına uyarısı!
--  Basketbol karşılaşmalarına ZBEÜ ev sahipliği yapacak
--  Bakan Şimşek: TL'de kan kaybı durdu
--  Чорноморець зіграє з Колосом, Ворскла прийме Рух: розклад матчів УПЛ
--  غدًا.. صالون أوبرا دمنهور الثقافي يحتفى باليوم العالمي لذوى الإعاقة
+-  Kyrie Irving souffre d’une contusion au talon : plus de peur que de mal pour Uncle Drew ?
+-  В столице Кабардино-Балкарии отремонтировали 15 км автодорог
+-  News24 Business | SA spends over R11bn on solar in just three months
+-  [“또 혁신안? 사고는 계속 터지는데”…LH독점 공공주택사업 민간개방 추진
+-  [한-인도 수교 50주년…尹대통령 "전략적 파트너십 강화하길 기대"
+-  [‘헛된 노력’ 일생 바친 사람입니다…당신도 인생 걸 용기 있나요?
+-  [경북도의회 예결특위, 내년도 경북도·경북교육청 예산안 심사 마무리
+-  Rafael 'Divino' Espinoza es nuevo campeón del mundo en peso pluma
+-  Las mejores técnicas básicas de manejo en dos ruedas
+-  31 yıl hükümlü firari 12 sene sonra ele geçirildi
+-  Yardım etmek için taksiye aldı! Sonrasında dehşeti yaşadı
+-  MKE Ankaragücü'nün rakibi Çaykur Rizespor
+-  Ege'de balık ihracatı 1 milyar doları aştı: En fazla ihracat İtalya ve İngiltere'ye oldu
+-  Kassam Tugayları 5 İsrailli askeri öldürdü! Irkçı Ben-Gvir olayı ağlayarak duyurdu
+-  Zonguldak'ta heyelan sonucu yıkılan evde enkaz altında kalan 2 kişiyi kurtarma çalışması sürüyor
+-  İzmir'de 280 düzensiz göçmen yakalandı
+-  Dusan Tadic şov yaptı! 1 asist 1 gol ile derbide parladı
+-  Aydın'ın Buharkent ilçesinde jandarmadan uyuşturucu operasyonu: 1 tutuklama
+-  Polda Lampung Tahan Komika Aulia Rakhman yang Dilaporkan Menghina Nabi Muhammad
+-  10 декабря на выставке «Россия» пройдет День Чеченской Республики
+-  하태경 “김기현 사퇴가 답”
+-  尹대통령 “네덜란드·美·日과 반도체 협력 대폭 강화”
+-  [단독] 지지부진한 부산 오시리아 관광단지에 ‘충격 요법’ 가한다
+-  NYT: европейские чиновники опасаются, что Трамп-президент развалит НАТО
+-  恒地李家傑李家誠到票站投票 籲市民踴躍參加
+-  Kashmir continues to reel under sub-zero temperatures
+-  Polisi Pastikan Temuan Potongan Payudara di Surabaya Bukan Kasus Mutilas
+-  Hình ảnh so sánh 10 năm trước và hiện tại của Mỹ Tâm gây chú ý, nữ ca sĩ thay đổi ra sao mà khiến netizen ngỡ ngàng?
+-  West Bengal: Probe Ordered After 14 Infants Die at Murshidabad Hospital
+-  Жителей Калужской области предупреждают об аномально-холодной погоде
+-  화성시, '제1회 공공브랜드대상' 2관왕 수상
+-  How the Jean Paul Sofia public inquiry exposed a ‘self-regulated’ construction industry
+-  Výbuch v obytnom dome v nemeckom Essene: Zranili sa tri osoby
+-  Filipíny a Čína sa navzájom obviňujú zo zrážky plavidiel v Juhočínskom mori
+-  Hnutie Slovensko čaká popoludní snem: Má si voliť aj predsedu
+-  Persib vs Persik: Bojan Hodak Enggan Maung Bandung Jemawa
+-  Zonguldak'ta heyelan sonucu yıkılan evde enkaz altında kalan 2 kişiyi kurtarma çalışması sürüyor
+-  לאור המחאה, איגוד השידור האירופי מבהיר: "ישראל עומדת בכללי האירוויזיון והיא תשתתף בו"
+-  הלייקרס חגגו את הזכייה בגביע: "כשדייויס משחק ככה, הוא הטוב ב-NBA"
+-  Калининградцы собрали более 1000 посылок для участников спецоперации
+-  ABD'nin soykıma kalkan tek eli! BMGK'da skandal karar! Tepki yağdı: Utancın simgesi
+-  Жители Дашково-Песочни пожаловались на гул в небе в ночь на 10 декабря
+-  [포토에세이] 대한민국 최고 브랜드 '울진대게' 첫 위판....활기되찾은 죽변항
+-  Названы победители «Битвы клубов» в Туле
+-  Οι τηλεοπτικές μεταδόσεις της ημέρας
+-  '3 nhiều - 1 ít' trong ăn uống của nhiều người Việt khiến thận hao mòn, suy teo lúc nào không hay
+-  Polar Vortex hladi veliki dio Europe, stiglo upozorenje: Spušta se prava ledara, upaljen meteolarm
+-  صادرات هيونداي وكيا من المتوقع أن تصل إلى مليونين وحدة في عام 2023
+-  육군총장, 한미연합 KCTC 현장지도…"이길 태세 강화해야"
+-  윤 대통령 "네덜란드·미국·일본과 반도체 협력 대폭 강화할 것"
