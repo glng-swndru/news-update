@@ -1,51 +1,51 @@
 # Latest News
--  היסטוריה בלאס וגאס: לוס אנג'לס לייקרס מחזיקת גביע ה-NBA
--  الليلة.. وهابيات تضيء معهد الموسيقي
--  '런닝맨' 유재석, 스태프까지 울렸다…지석진 환갑 여행서 '눈물의 축사'
--  “(이)용규 계약합니다…해줘야 할 일 많아요” 영웅들의 리빌딩? 베테랑 존중, 젊다고 능사 아니다
--  Se reune alcalde con comerciantes en 'Cruzada por tu Mercado'
--  Entre abucheos, América es finalista
--  Urge Morena ratificación de Godoy
--  В Костромской области открыто движение по мосту через реку Мера
--  NASA Discovers New Galaxy with Potential for Life
--  School teacher, accountant killed in Chitwan road accident
--  Two people killed in Arghakhanchi road accident
--  Điều gì khiến chứng khoán Việt Nam bị khối ngoại bán ròng hơn 19.000 tỷ đồng từ đầu năm 2023?
--  RPP Nepal CWC meeting today
--  Nga đã khoét lỗ hổng trong lệnh trừng phạt của phương Tây như thế nào?
--  Tea industry in a crisis, say stakeholders
--  Weapon of Choice Streaming: Watch & Stream Online via Netflix
--  ঘন কুয়াশায় নিয়ন্ত্রণ হারিয়ে আইল্যান্ডে ধাক্কা, নিহত ২
--  From ‘Accidental Anna’ to Labor legend: The rise of Annastacia Palaszczuk
--  CNN: Венесуэла и Гайана договорились о встрече на высоком уровне по вопросу региона Эссекибо
--  High School Football Season Ends With 2A and A Champions Crowned
--  방심 경계한 김승기 소노 감독 “마음가짐 하나에 승·패 갈려” [MK현장]
--  [“가상자산 경제적가치 있고, 전자적거래 가능해야”…가상자산 범위확정, NFT·예금토큰은 제외
--  [尹 정부 에너지정책 홀대?…임기 3개월도 안 된 산업부 장관 총선 차출 가능성[세종백블]
--  «Колорадо» уступил «Филадельфии», Просветов пропустил пять шайб
--  শক্ত প্রতিদ্বন্দ্বী নেই, খুলনার ৬টি আসনে নির্ভার আওয়ামী লীগ
--  춘천문화재단, 공연 플랫폼 축제 '봄식당' 기획안 경진대회 참가자 모집
--  군 초급간부 연봉 ‘중견기업’ 수준 오른다…2027년까지 최대 30% 인상
--  Anthony Davis Leads Lakers To NBA In-Season Tournament Title, 123-109 Over Pacers
--  Более 2,2 тысячи вологжан проверили здоровье на рабочем месте
--  Администрация Президента РФ похвалила ярославского политика за поддержку
--  Davis dominates In-Season Tournament Final
--  Davis dominates In-Season Tournament Final
--  Davis dominates In-Season Tournament Final
--  Davis dominates In-Season Tournament Final
--  Davis dominates In-Season Tournament Final
--  Davis dominates In-Season Tournament Final
--  Army holds on with goal-line stand in final seconds, beats Navy 17-11
--  Lindgren, Capitals power past Rangers to spoil Laviolette's return to Washington
--  Lautaro Martinez Kandidat Terkuat Peraih Sepatu Emas Serie A Liga Italia
--  Denker scores 18 in Idaho’s 63-62 win over Utah Tech
--  은행권, 고금리 자영업자에 최대 150만원 환급 검토
--  Tokat'ta katliam gibi kaza! Kamyona arkadan çarptı: Beş kişi öldü
--  [단독] 재벌家 동네에 짓다만 집터…구청은 “허가” 법원은 “무효” [법조인싸]
--  Ten Hag blasts ‘inconsistent’ Man Utd after Bournemouth misery
--  Pese al pase a la final la afición abuchea al América
--  لائبریری سے لی گئی کتاب 119 سال بعد لوٹا دی گئی
--  Metro prep basketball roundup for Saturday, Dec. 9
--  В Угличе создатели деревянной крепости спилили музейные липы
--  From The River To The Sea
--  BYU basketball: No. 14 Cougars go cold at Huntsman Center, get upset by Runnin’ Utes
+-  넷플릭스 티빙 이어 유튜브마저 가격 인상… 우회방법 찾는 사람들
+-  As Fog Shrouds Delhi, Overall Aqi Slips To ‘Very Poor’ Category
+-  Primavera, oggi c’è il Cagliari
+-  La probabile formazione del Frosinone: in attacco Soulè e Cheddira
+-  'Cây tỷ đô' của Việt Nam bất ngờ được Malaysia mạnh tay thu mua: xuất khẩu tăng nóng gần 300% trong tháng 10, bỏ túi hơn 5 triệu USD
+-  "수년간 공포에 떨었던 날이 찾아왔다"…에인절스 떠나 다저스와 '7억 달러' 계약, 에인절스는 씁쓸한 이별
+-  DKZ 재찬, 서울→타이베이 달궜다…데뷔 첫 팬미팅 투어 순항
+-  임상협, '밝은 미소'로 통합축구 올스타전 참가..."내년에 핑계 없다고 생각·귀네슈 감독 세계적 명장"
+-  시즌 첫 연승 노리는 강혁 한국가스공사 감독 대행 “외곽 수비에 치중할 것…신승민 잘했으면” [MK현장]
+-  Thủ tướng Chính phủ Phạm Minh Chính: Cần Thơ phải đi lên bằng chính nội lực của mình
+-  त्रिभुवन विमानस्थलबाट फेरि ६ किलो ५६५ ग्राम सुन बरामद
+-  हृदयमा छ तिर्सना कतै
+-  Meer treinen in nieuwe dienstregeling, maar OV nog lang niet op oude niveau
+-  যবিপ্রবিতে চাকরিপ্রার্থীদের আটকে মারধরের ঘটনায় তদন্ত কমিটি
+-  "การบินไทย" แจงเร่งสอบ-พร้อมรับผิดชอบผู้โดยสารถูกน้ำร้อนหกใส่
+-  이웃 여성에 481차례 전화한 스토킹범 법정 구속
+-  🔴 سقوط حمدوك والمليشيا بدون برشوت
+-  2023 ist das Jahr der Klimarekorde: Extrem ist das neue Normal
+-  I år blir det jul i Erikas orangeri
+-  El Conicet estrenó una nueva sede para investigar en Neuquén
+-  Lucka tio i Gävles konstadventskalender
+-  মুশফিকের পাশে বিসিবি
+-  Javisst har byarna flyttats
+-  I år blir det jul i Erikas orangeri
+-  Dieser Filmstar soll Sharon Stone in ihrem Biopic spielen
+-  Mänskliga rättigheter – jubileum med utmaningar
+-  Finstere Gesellen in den Gassen von Kastelruth
+-  Lucka tio i Gävles konstadventskalender
+-  호주 외인 허리 부상→오늘도 결장…그러나 틸리카이넨은 걱정 없다 “임동혁은 韓 최고의 아포짓” [MK인천]
+-  ভাঙা সেতু সংস্কার হয়নি
+-  The long story of #RhodesMustFall
+-  আঙুর ফল সমাচার
+-  K리그1 득점왕 주민규 후배사랑도 ‘베스트’
+-  ‘김포 서울 편입’ 열 올리는 與… 대전·충남 혁신도시는 잊히나
+-  중부내륙특별법 국회 통과… 충북의 힘 통했다
+-  “페기물을 수소에너지로”…현대차, 수소생태계 구축 사례 공유
+-  যুক্তরাষ্ট্রের শীর্ষ বিশ্ববিদ্যালয়ের প্রেসিডেন্টের পদত্যাগ
+-  中 "내년 5% 성장률 사수할까" 재정부양이 '핵심'
+-  دعاة وعلماء وادي حضرموت يؤكدون أن فلسطين أرض وقف إسلامية مقدسة
+-  Anambra records 97 road crashes, 35 deaths in 11 months – FRSC
+-  Аргентину предостерегли от поддержки Украины в угоду США
+-  Bülent Timurlenk'ten derbi sonrası Rıza Çalımbay'a şok eleştiri!
+-  "الأسرى العراة".. جريمة بربرية نكراء تفضح الهمجية الصهيونية.. وتكشف للعالم بشاعة الاحتلال
+-  2 Chainz rushed to the hospital after accident on Miami highway
+-  Bill Belichick Brings Out His Comical Side While Supporting the Navy in a Special Way
+-  Wellington Phoenix draw with Melbourne Victory but should their first goal have stood?
+-  "금융권 횡재세 도입 신중해야···재산권 침해 등 법률리스크 있어"
+-  भगवान शांतिनाथजी के जिनालय में स्नात्र पूजा आज
+-  "무이자 할부 중단"...카드사 불황에 소비자 혜택 '뚝'
+-  Судья ударил футболиста ножом во время матча и попытался скрыться
