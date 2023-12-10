@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | Revealed: Two Man Utd Stars Racked R1.7m In Late Fines
--  פשוט וואו: לא תאמינו איך אופרה ווינפרי נראית היום. כך היא עשתה את זה
--  לידור כהן כבש משחק שני ברציפות, קבוצתו ספגה הפסד כואב
--  "המלחמה בסרטן לא נגמרת - גם כשיש מלחמה בעזה"
--  המנהל המקצועי של באיירן מינכן: "נראה איך דניאל פרץ יתפתח"
--  המוסד: השתתפנו בסיכול תשתית טרור איראנית שתכננה לפגוע בישראלים בקפריסין
--  בשורות טובות: ציונים גבוהים ליינות מישראל בטעימה השנתית של WINE SPECTATOR
--  Kletsnatte maar gezellige kersteditie Oogst- & Streekmarkt 'Proef de Krimpenerwaard'
--  Schuurbrand aan de Lekdijk bij Nieuw-Lekkerland
--  Huzurevinde stajyer genç kıza cinsel saldırı: Kan donduran detaylar, 'pes' dedirten pişkin savunma
+-  농협생명, GA설계사 전용 영업지원 모바일 플랫폼 'GA+' 출시
+-  Başkentte emeklilerden miting
+-  “El Payaso”, criminal abatido por civiles en Texcaltitlán, era objetivo prioritario en Edomex: fiscalía local
+-  下剋上球児 ゲスト出演にＳＮＳ沸く
+-  KidZania Surabaya Latih Belasan Anak Kembangkan Leadership
+-  กองทัพอิสราเอลร้องขอชาวเมืองอพยพออกจาก "คาน ยูนิส"
+-  من پسند افراد کو ٹکٹ دینے کا الزام، ن لیگ کے رہنما پارٹی رکنیت سے مستعفی
+-  Murat Ülker 'Sanat düzendir' diyerek anlattı: Çirkinliğin olduğu yerde sanat var mıdır?
+-  Bakan Özhaseki 'Şimdi sıra sizde' diyerek paylaştı: Deprem bölgesinde şehirlerimizi birlikte inşa ediyoruz
+-  Rang Mirage Art Gallery Unveils "She/Her" Event By Pavani Nagpal
+-  North Korea Boosts Satellite Capability, To Launch More
+-  Historic Day For Rajahmundry, Says Scindia After Laying Foundation Stone Of Airport's New Terminal Building
+-  Former Union Minister Vishnu Deo Sai Will Be New Chhattisgarh CM
+-  Présidentielles en Égypte : Abdelfattah Al-Sissi vers un troisième mandat
+-  Nu skriver Jan Guillou som han vill
+-  Journée internationale des droits de l'homme : des défenseurs locaux jugent « chaotique » les droits humains au Nord-Kivu
+-  بعد استبعاد محرز وبونو.. من الأوفر حظا للفوز بالكرة الذهبية الإفريقية بين صلاح وأوسيمين وحكيمي؟
+-  El problema matemático que a Napoleón le urgía resolver y que tiene aplicaciones en economía, meteorología e IA
+-  Troubled retailer Sears quietly reopens two stores. What is behind the comeback?
+-  אחרי 23 שנה: גיא גודס סגר מעגל ומונה למאמן הפועל חיפה
+-  Bericht der Energieagentur: COP-Beschlüsse reichen noch nicht für 1,5-Grad-Ziel
+-  Judge orders BBC to release emails related to Martin Bashir’s Diana interview
+-  Is Upstart Stock a Buy?
+-  A importância dos parcelamentos importam para micros e pequenos negócios
+-  शादी में विदाई के समय दुल्हन पीछे की ओर क्यों फेंकती है चावल? जानें इस रस्म की मान्यता
+-  FPÖ – Amesbauer zu Schengen: Für wie dumm halten Nehammer, Karner und Co. die Österreicher eigentlich?
+-  Neighbours' stars Gayle and Gillian Blakeney unrecognisable 30 years on
+-  Nilüfer’in sultanları evinde galip
+-  Vittne i Södertälje: ”Tänkte nej, inte igen”
+-  An American divorcee, a devastating family rift and a life in exile… no, NOT Harry and Meghan: how Edward VIII caused one of the biggest crises in the history of the monarchy
+-  An American divorcee, a devastating family rift and a life in exile… no, NOT Harry and Meghan: how Edward VIII caused one of the biggest crises in the history of the monarchy
+-  Till och med i Silicon Valley är boken helig
+-  Hansa Rostock gegen Schalke 04 im OZ-Liveticker: Ausgeglichene Partie
+-  Петър Витанов: Има очакване сред хората президентът да направи партия
+-  Education Ministry wants report from Cheras boarding school on bullying of runaway student, says deputy minister
+-  Огромна драма в разтърси семейство Шумахер
+-  HRCSL to launch 3 very important guidelines and recommendations in view of Int l Human Rights Day
+-  Los parques de bomberos de Barreiros y Vilalba atenderán este domingo las incidencias del de Viveiro
+-  Letters, Dec. 10: University of Alberta takes role of the Grinch for the holidays
+-  Ættleiddu og urðu svo ófrísk – „Fjögur börn undir fimm mánaða aldri er mikil áskorun“
+-  30 Years Ago, an Iconic Sci-Fi Shooter Changed Video Games Forever
+-  Unen Café Tacvba y Plastilina Mosh fuerzas por Acapulco
+-  Pumas va por la misión de remontar con todo en contra
+-  Petróleo, la clave de la pugna entre Venezuela y Guyana
+-  'El Payaso', de sicario a cabecilla
+-  Beneficios de tomar magnesio todas las noches
+-  Ασφαλής θέση στο αεροπλάνο - Μια expert την αποκαλύπτει (όχι, δεν είναι αυτή που πιστεύεις)
+-  Guardiola: Nas će se kritizirati ako ne osvojimo PL, to je nepravedno
+-  Meta will launch Threads in the European Union on December 14th
+-  नहीं बढ़ रहा सिबिल स्कोर तो आज से शुरू कर दीजिए ये 5 काम, फिर बैंक वाले घर आकर देंगे लोन
