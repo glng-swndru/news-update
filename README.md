@@ -1,51 +1,51 @@
 # Latest News
--  معرض الرياض للسيارات يكشف عن سيارة كيا K3 لأول مرة بالشرق الأوسط
--  Abre Luis Miguel nuevas fechas en México para 2024
--  Fakultas Psikologi UIN Jakarta Terbaik se-Indonesia Versi SCImago
--  الإفراط في تناول هذا المشروب يصيبك بالكبد الدهني
--  Indonesia's Airport on High Alert to Prevent COVID-19 Entry
--  Progres PLTP Lumut Balai di Sumsel Mencapai 25 Persen, PGE Optimistis Pembangkit Beroperasi Tahun Depan
--  ”Jag var tio år första gången jag tänkte på att ta mitt liv”
--  Terör devleti İsrail Batı Şeria'da gece boyu kan kusturdu
--  NYT назвала главный страх Европы из-за прихода Трампа к власти
--  Phát hiện loài ếch mới có tiếng kêu quạc quạc như vịt
--  Trung Quốc là nước có vốn đầu tư lớn nhất vào Bắc Giang
--  Fischer prangern „Aal-Gemetzel“ bei Hochrhein-Kraftwerk an
--  Biathletinnen hoffen auf Steigerung mit der Staffel
--  ইউনেসকোকে ফিলিস্তিনের ঐতিহাসিক স্থাপনা রক্ষার আহ্বান হামাসের
--  Lasikaton unelma
--  ما يحتاجه جمهور الأهلي من رياض محرز
--  2 सुपरस्टार्स से रहा अफेयर, तोड़ी सगाई, इस हसीना ने क्यों की शादी से तौबा?
--  中二選區熱戰 林右昌陪林靜儀霧峰掃街 攤商喊「台灣加油！」
--  La locomotiva elettrica che rivoluziona lo Stretto: a chi serve il Ponte?
--  বহুনির্বাচনি প্রশ্ন (২১-২৭) : পরিচ্ছদ ৩৪ | বাংলা ২য় পত্র - এসএসসি ২০২৪
--  내년도 종축·액상정액 공급가격 결정
--  Las ‘Águilas’ pierden la semifinal de vuelta vs. San Luis, pero ‘vuelan’ a la final de la Liga MX
--  งานฉลองครบรอบ 30 ปี กาดคำพลาซ่าแม่ฮ่องสอน
--  蔡英文手作「撐基隆」雨傘 挺鄭文婷進國會撐起民主自由
--  SC debars defaulter mining firms from tender process
--  Is this New Jersey Christmas Tradition Going Away?
--  Streching U.S. patience, time is running out on Israel's campaign against Hamas in Gaza
--  Да кажем най-после сбогом на Паметника на Съветската армия
--  رونالدو من صنعها … أهم ميزة في النصر هذا الموسم
--  توخيل يؤكد اهتمام بايرن ميونخ بضم رونالد أراوخو
--  Italialaisella ihmistikkarilla oli pyykkipäivä – ahtoi povensa Versacen uikkareihin
--  ये रिकॉर्ड बनाएगा ‘डंकी’ को ब्लॉकबस्टर? शाहरुख खान की बादशाहत को मिलेगा नया मुकाम
--  Eva Máziková odhalila intímnosti so skupinou ABBA: Relax v saune sa nečakane zmenil!
--  साल 2023 ने गौतम अडानी को दिया तगड़ा झटका, हिंडनबर्ग के भूत ने किया बर्बाद
--  Näkymättömät sankarit: Harrastamisen kalleus on haaste sekä seuroille että pelaajille
--  Om kommunalt VA – smäll för ekonomin
--  Jussi Tukiainen ratkoo paikallisten ongelmia radiossa – Kaikkea elämässään tehneelle miehelle psykologia on elämäntapa
--  Mengenal Ikan Belida Si Punggung Pisau yang Nyaris Punah
--  Sam Prince net worth: How much is Made in Chelsea star worth?
--  Så blev Haglöfs gängens arbetskläder
--  Basildon ageing council homes in urgent need of repairs
--  "Ensin keskustelua, sitten päätöksiä" – Seutuyhteistyön tilanne ja tulevaisuus huolestuttavat päättäjiä Forssan seudulla
--  Bildung: OGS-Ausbau in Mülheim: „Die Eltern sind stark verunsichert“
--  Unai Emery and Mikel Arteta both hold back after Aston Villa beat Arsenal
--  Salah Pilih Bahan Detergen Celana Dalam Bisa Sebabkan Masalah Hormon bagi Wanita
--  Konsumen Indonesia Bisa Manfaatkan Google Built in di All New Honda Accord RS e:HEV
--  Pääkirjoitus | Ay-liike kiristää lakkoruuviaan kääntääkseen työmarkkinoita tuulettavan hallituksen pään
--  Israel Lanjutkan Serangan setelah AS Melindunginya dengan Veto di DK PBB
--  Kava ne prebudi le telesa in duha, prebudi tudi kožo in ohranja njen mladostni videz
--  Merja Nykänen jätti suorittamisen ja palkkatyön hypätessään hyvinvointiyrittäjäksi – "Ei voi odottaa, että loma tulee ja sitten palaudun"
+-  MP BJP waits for high command’s ‘googly’ as CM race hangs in balance
+-  Tories 'fighting like rats in a sack' threaten to drag the UK down, Starmer says
+-  Proud Alan Sheehan awaiting news on Swansea City's manager search as he revels in Rotherham United win
+-  Inside Wales' top hotels at Christmas as gorgeous decorations create festive magic
+-  Crowds march through Cardiff city centre calling for end to violence in Gaza
+-  First look at Love Island: All Stars as trailer confirms host and date
+-  The most polluted places in Wales revealed including one area of outstanding beauty
+-  The two Welsh villages named among the UK's most magical, snowy, hidden gem winter destinations
+-  BBC Strictly studio reduced to tears over Johannes Radebe's poignant Annabel Croft message
+-  ITV I'm A Celebrity 2023 finalists confirmed as seventh campmate gets voted off
+-  Royals reveal 2023 Christmas card images as King and Queen's reflects coronation
+-  ITV I'm A Celebrity viewers 'bitter' over semi-final after 'painful' show opening
+-  BBC Strictly's Craig Revel Horwood gives rare standing ovation after 'best in 20 years' dance
+-  Bridgend market re-opens in temporary location after concrete closure
+-  'Scary' and 'spiralling' costs of school agency staff
+-  Newborn baby's body discovered prompting cop murder probe
+-  England international shown red card for 'reckless' clearout on Welsh-qualified star
+-  Wales co-captain crosses for four tries as Ospreys start Europe with a win
+-  ڈاکٹر ذاکر نائیک کی موت کی افواہیں کیوں پھیلیں
+-  Wangaratta lands recruiting coup, signing ex-AFL player Patrick Naish
+-  Why Michael Strahan Divorced His First Wife (& Where They Stand Today)
+-  Royal fans gush over Wales's stylish Christmas family photo – with George almost as tall as his mother, Charlotte exuding confidence and Louis on his best behaviour
+-  Royal fans gush over Wales's stylish Christmas family photo – with George almost as tall as his mother, Charlotte exuding confidence and Louis on his best behaviour
+-  Strictly Come Dancing fans spot 'clue' to 'tensions' on show dropped by Motsi Mabuse after Annabel dance
+-  Strictly Come Dancing fans spot 'clue' to 'tensions' on show dropped by Motsi Mabuse after Annabel dance
+-  'Anatomy of a Fall' Wins Best Film at European Film Awards
+-  'Anatomy of a Fall' Wins Best Film at European Film Awards
+-  Former General Hospital Stars Who Have Tragically Passed Away
+-  Former General Hospital Stars Who Have Tragically Passed Away
+-  I'm A Celebrity's latest evictee excited 'to see my little boy'
+-  Strictly Come Dancing 'fix' complaints minutes into semi-final as Tess Daly and Claudia Winkleman announce new format
+-  Strictly Come Dancing 'fix' complaints minutes into semi-final as Tess Daly and Claudia Winkleman announce new format
+-  Mob Life From the Wives' and Daughters' POV
+-  Mob Life From the Wives' and Daughters' POV
+-  All The Details You Missed
+-  I'm A Celebrity's latest evictee excited 'to see my little boy'
+-  All The Details You Missed
+-  Why Michael Strahan Divorced His First Wife (& Where They Stand Today)
+-  Kolo Muani avant PSG-Dortmund : «C'est notre vie qui est en jeu»
+-  Why Jayden Daniels won the Heisman Trophy
+-  Why Jayden Daniels won the Heisman Trophy
+-  SantaCon takes over Manhattan for 25th annual bar crawl
+-  Football: Spanish La Liga results - 2nd update
+-  ทำไมราคา XRP ถึงขึ้นในวันนี้? การซื้อคืนจำนวนมากของ Ripple อาจมีคำตอบ
+-  سجل قوي لـ ماوريسيو بوتشيتينو أمام إيفرتون
+-  Hjerneforskning skal gi oss bedre kunstig intelligens
+-  Gaza death toll tops 17,700; Yemen rebels threaten ship traffic to Israel
+-  В Индии в ДТП погибли восемь человек
+-  Derick and Jill Dillard Believe the IBLP Helped Jim Bob Duggar Keep His Media Empire Rolling For So Long
+-  Venezuela ve Guyana ihtilaflı Esequibo bölgesini yüz yüze görüşecek
