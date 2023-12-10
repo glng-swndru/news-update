@@ -1,51 +1,51 @@
 # Latest News
+-  Už sme si mysleli, že to skončilo, no opäť sa otvárajú brány covidu: Potomok omikronu JN.1 sa dostal do Európy!
+-  압타바이오, 코로나19 치료제 미국 2상 중단…운영·대상자 등록 제약 요인
+-  지역의료 선택 핵심 요인은 '경험'…임상실습 확대해야
+-  "LASA, 시스템 관점에서 바라봐야"…명확한 가이드라인 필요성↑
+-  혈전 이슈 '헴리브라'…영아 대상 예방 치료효과 재확인
+-  의료계 반발 속 시작된 '비급여 보고제도'‥그만한 '가치' 있었다
+-  '약가인하 집행정지 환수' 첫 사례 나올까…피엠지제약 주목
+-  ﻿"리바로젯, 안전성이 확보된 고강도 LDL-C 강하전략”
+-  유한양행 '렉라자' 마지막 퍼즐만 남았다…'조건부허가' 삭제 완료
+-  Sub-14 do Palmeiras goleia Cruzeiro e conquista a Copa Umbro pela segunda vez
+-  Susana Werner anuncia nova separação com Júlio César. Saiba o motivo!
+-  "الصحة العالمية" تجدد دعوتها لوقف إطلاق النار في غزة وتقديم المساعدات
+-  لتحسين المشهد الحضري.. إزالة 67 موقعًا مخالفًا شرق الرياض
+-  Hafizi shuplakë Tiranës: Nuk e kuptoj më si skuadër
+-  Германия — Запрет на приобретение препаратов как способ удержать от суицида
+-  EKSPLOZIJE U ODESI Objavljeno upozorenje o vazdušnom napadu
+-  RUSI JAVLJAJU Lazetić išao da gleda Soči
+-  Pide Arzobispo Sánchez Espinoza por migrantes y peregrinos poblanos (VIDEO)
+-  Названы регионы – лидеры по скорости накопления на первый взнос по ипотеке
+-  Eduardo Estrella: Vamos a la calle a buscar votos para Luis Abinader 24-7
+-  Arogyashri : ఆస్పత్రులతో ఆటలు!
+-  Adana Demirspor'da maaş krizi! Yıldızlar takımdan ayrılıyor
+-  Biden yönetimini topa tuttu: Sorumsuzluk olur
+-  ספילברג יתעד עדויות של ניצולי הטבח: "לא דמיינתי שאראה כזו ברבריות"
+-  Nanaimo lawyer disbarred for misconduct relating to 2018 sexual assault
+-  أمر قضائي يعيد الأميرة ديانا للأضواء.. «فضيحة المقابلة» تنكأ الذكريات
+-  2023 Nobel Ödülleri sahiplerini buldu
+-  فريق سعودي يُشارك مع الزمالك ونادٍ إماراتي ببطولة ودية
+-  Gino Cecchettin, il messaggio da Fabio Fazio: "Uomini, dite ti amo" - Video
+-  ميناء إيلات: تهديدات الحوثيين منعت وصول سفن تحمل مركبات
+-  أبرز تطورات اليوم الـ65 من الحرب على غزة
+-  Photos & Video: Tree Tops II Christmas Concert
+-  كيف تُزيد الحرب من وطأة التحديات المناخية؟.. المنطقة العربية نموذجاً
+-  Gözler asgari ücret zammında! Milyonlarca vatandaş bugünü bekliyor
+-  DFB-Pokal-Auslosung: Das sind die Spiele im Viertelfinale
+-  VIDEO: Michelle Renaud y Matías Novoa se casaron; así fue su íntima boda
+-  The Story Behind Chrysler's Merger With Fiat
+-  Снег придет на смену морозам в Карелии 11 декабря
+-  Vídeo | Facundo: “Usted y yo sabemos que eso no era posible”
+-  మరో కాళేశ్వరం కానున్న పోలవరం: నాగోతు
 -  고병원성 AI, 호남 뚫리고 충청 확산…산란계농장 특별관리
 -  尹대통령, 네덜란드 방문…‘반도체 동맹’ 강화
 -  [오늘날씨] 전국 흐리고 많은 비…강원 산지엔 ‘대설’
 -  특화특구 성과공유회…부산남구 대통령상 수상
--  Rize'de sokak köpeklerinin saldırısına uğrayan çocuk yaralandı
--  Vali Gül duyurdu! İstanbul'da fahiş fiyatla ekmek satan 822 fırın tespit edildi
--  Biden invita a Zelenski a Washington después del bloqueo de la oposición a nuevas ayudas a Kiev
--  الدفاع الروسية: مقتل 350 جنديا أوكرانيا في العمليات العسكرية
--  Maxi licenziamenti nei call center con la fine del mercato tutelato
--  Trump says he actually won’t testify in his own defense at NY civil fraud trial: ‘Nothing more to say’
--  [미리보는 증시재료] '파월의 입'에 쏠린 관심…금리인하 회수 힌트 나와
--  Arequipa: Controlan incendio forestal que consumió 15 hectáreas de flora en la parte alta del distrito de Cayma
--  Biden invites Zelensky to White House amid push for Congress to approve more aid
--  Evo u kakvom je stanju Jelena Karleuša nakon što joj je pozlilo
--  Enormes colas para coger la guagua en Tenerife Sur al final del mayor puente del año
--  Bruce Lehrmann trial enters final week
--  Generators Struggle as Power Failure Hits Nairobi Airport
--  Ange Postecoglou hails ‘really important’ Richarlison after brace in Spurs win
--  Ace Steel Recalls His Favorite Moments While Working in AEW & ROH
--  Miracle moment baby trapped inside wreckage of overturned car after crash is saved
--  Piden ayuda a Estados Unidos para censurar a los Ordinals de Bitcoin
--  Hey Joe ! du 10/12/2023
--  Νέα στοιχεία για τα επεισόδια στου Ρέντη: «Χτυπήθηκε και από μολότοφ ο αστυνομικός» - Το προφίλ του «καθοδηγητή» των χούλιγκαν
--  عاجل.. تعليق الدراسة الحضورية غدًا بجميع مدارس الغايل
--  هل الشعور بالقلق أمر سييء دائماً؟ استشاري نفسي يجيب
--  El Barça arrolla al Huesca en un monólogo en la primera parte
--  Mann bedroht Nachbarn mit Schwert
--  Days After Bachelor In Paradise Finale, One Couple Has Already Announced Their Breakup Due To ‘Multiple Infidelities’
--  Capturan en Guna Yala a supuestos traficantes de migrantes
--  CANLI TAKİP | Katil İsrail Gazze'de ölüm yağdırıyor: BM okuluna bombalı saldırı
--  Zach Wilson leads Jets to upset win over Texans in return as starter
--  Nainital News: पांच साल बाद कोर्ट के आदेश पर एजेंसी संचालकों पर मुकदमा
--  Yamuna Nagar News: गोबिंदपुरी, वर्कशॉप व जिमखाना क्लब रोड का 6.94 करोड़ से होगा सुंदरीकरण
--  McDonald's is on an absolute tear lately. Here's what it's planning as part of its new growth strategy.
--  ‘7억달러’ 오타니에 MLB 스타들도 휘둥그레 “바닥에 박힌 내 턱 뽑아줘”
--  "토론토행 오보가 고통 가중시켜"… 토론토 담당기자, 오타니 LAD행에 좌절
--  손흥민, EPL 통산 득점-도움 모두 20위권 진입
--  تقرير: واشنطن تخطط لتوسيع قوة المهام بعد هجمات الحوثيين
--  В Сыктывкаре из-за пожара в многоэтажном доме эвакуировали 90 жильцов
--  O misterioso drone espacial não tripulado X-37B do Pentágono
--  Planes para fabricar armas en Ucrania sólo beneficiarán a la "propaganda occidental"
--  Sergio Peña exigió no comparar a Reynoso con Gareca: "No todo el mundo lo va a lograr"
--  Përplasen dy trena në Itali, raportohet për 17 të plagosur
--  São Paulo anuncia contratação do atacante Erick como o primeiro reforço para 2024
--  The moment students find out their VCE results
--  The moment students find out their VCE results
--  Trumps tvärvändning – kommer inte att vittna
--  محافظ القليوبية يشيد بمستوى التنظيم وتأمين اللجان في اليوم الأول للانتخابات الرئاسية
--  Jake Browning throws for 275 yards in Bengals' 34-14 rout of Colts
--  Svenskduons jätteklättring – blev trea
+-  Rakuten makes first mobile foray into Europe as debt overhangs firm
+-  Bewildered RTE Fair City viewers all call Mairead ‘fool’ as she forgives Orla
+-  محافظ بورسعيد يعرب عن فخره بالشكل المشرف لليوم الأول للانتخابات الرئاسية
+-  Nick Wayne on Working With Christian Cage, Learning From His Promos
+-  Trapani suona la nona sinfonia: Urania Milano annichilita
+-  "التنمية السياحي" ينظم ثالث جولاته التعريفية تحت شعار "اكتشف بُعد الأحساء"
