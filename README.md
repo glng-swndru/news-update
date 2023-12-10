@@ -1,11 +1,51 @@
 # Latest News
--  Lübnan 1 günlük tatil kararıyla Gazze için küresel grev çağrısına destek verdi
--  Gol düellosunda kazanan Marsilya!
--  Derek Carr gets screamed at by Saints center Erik McCoy as frustration boils
--  Emergency Special Session of UNGA to Discuss Gaza to Be Resumed on Tuesday
--  Anuncian horarios de las misas por festejos guadalupanos
--  Angelina Jolie se ozbiljno razboljela od stresa. Planira odseliti Hollywooda na drugi kraj svijeta: 'Da opet biram, ne bih bila glumica'
--  Javier Milei Braces Argentines for Economic Shock as He Takes Office
--  These 5 Electronic Learning Kits Are Perfect For Kids
--  베테랑 포수 오스틴 헤지스, 1년 400만$에 클리블랜드행
--  Tylan Wallace’s overtime punt return touchdown gives Ravens thrilling win over Rams
+-  I migliori smartphone 'entry level' da regalare a Natale
+-  Per Natale regala un orologio o uno smartwatch in super offerta
+-  In cerca di un regalo originale per Natale? Impastatrici, macchine del caffè e frullatori a prezzi eccezionali
+-  승리 세리머니로 ‘케이로스 감독 몸짓’ 따라한 GK→'빼박증거'에 뉴캐슬 팬들 ‘극대노’→GK는 평생 ‘뉴캐슬 라이벌’팀 전전 ‘한이 맺혔다’
+-  방탄소년단 RM·뷔, 오늘(11일) 입대…국방의 의무 다한다 "챕터 2 기대해달라" [MD이슈](종합)
+-  이동건 7세 딸 로아, 이별에 눈물 뚝뚝…"아빠랑 헤어지니까 속상해" 스튜디오 '눈물' [미우새](종합)
+-  지로나, 바르셀로나 원정서 4-2 격파→프리메라리가 선두 등극
+-  그렇게 수원만 강등이 됐다
+-  라트비아서 사망…故 김기덕 감독, 오늘(11일) 3주기
+-  세븐틴 에스쿱스, 유기동물 보호소에 5천만원 기부…"따뜻한 손길 감사"
+-  Aitken Spence Travels welcomes three cruise ships in a single day at Colombo Port
+-  There IS time for a pre-party tweakment!
+-  Są informacje o stanie zdrowia Masternaka. Poważny uraz, lekarz reaguje
+-  'Bullsh*t': MP's scathing response to pushback over highway tunnel saga
+-  Rams' 37-31 road loss in overtime to the Baltimore Ravens by the numbers
+-  Czat inwestorski z Baked Games
+-  Roma s dva crvena kartona remizirala protiv Fiorentine
+-  Kickoff | Barca thrashed by surprise LaLiga leaders
+-  שוטר איים על חברו באקדח כי רצה לגלות לו מה קורה בסרט "אהבה בשחקים"
+-  צילמה את עצמה כמעט טובעת בצונאמי - וממשיכה לחייך למצלמה
+-  גורדון רמזי חשף את הטריק והסודות להכנת סטייק מושלם
+-  דוגמנית העירום שנכנסה לכלא התאהבה והפכה לבת הזוג של הסוהרת
+-  חיסול ממוקד: פיניש אדיר לבולטימור, שיקגו הפתיעה את דטרויט
+-  I’m A Celebrity in on-air blunder as producer appears in the camp just seconds after Nigel Farage is eliminated
+-  First Vulcan launch likely to slip to January
+-  UFFICIALE: Renate, arriva la svolta in panchina: esonerato l'allenatore Pavanel
+-  McCarthy says America doesn't want 'retribution' from Trump
+-  박형준 부산시장 "동절기 민생안정 종합대책 추진"
+-  СМИ: американцы не одобряют действия Байдена в конфликте на Ближнем Востоке
+-  Американский сенатор пожалел о блокировке Вашингтоном резолюции ОО по Газе
+-  В Дагестане в 2023 году посев овощных культур увеличился на 42%
+-  裏金疑惑の議員 追及に「頭悪い」
+-  Get your tickets for Woolworths Carols in the Domain
+-  Спикер Палаты представителей Конгресса США встретится с Зеленским 12 декабря
+-  El Girona da el golpe ante el Barça y es líder en solitario
+-  Again, ECOWAS leaders set up committee to negotiate with Niger junta
+-  부산시·동명대, 부산 그린스타트업타운 조성 추진
+-  C.J. Stroud in concussion protocol after late blow in Texans' loss vs Jets
+-  [EPL] 손흥민 10호골 + 3, 4호도움... 최고평점 받고 MOTM 뽑히고
+-  El enigmático mensaje de Carlos Zambrano en medio de rumores de su posible salida de Alianza Lima
+-  e-Sportime (11/12): Κατέβασε την ηλεκτρονική εφημερίδα – Είμαστε αυτοί που μας κυβερνούν
+-  이미경 CJ ENM 부회장, '2023 엔터테인먼트 여성 파워 100인' ... 아시아인 최초 3년 연속 선정
+-  Cuti Romero, en un partido casi perfecto en Tottenham: defensa férrea y una patada al borde de la expulsión
+-  Fiscal General no está internada en el Hospital Militar, dice el Ejército
+-  Mor til dræbt betjent: - Som om man er ligeglad
+-  SPORTS AGENDA: Man United's incoming investor Sir Jim Ratcliffe takes a swipe at drama queen Bruno Fernandes in his book... while Arsenal celebrated Declan Rice's winner at Luton as if 'they'd won the Premier League'
+-  Majlis penyampaian Hadiah Nobel diadakan di Stockholm dan Oslo
+-  Joshua Zirkzee goud waard voor Bologna, Celtic onderuit op kunstgras in Kilmarnock
+-  Krunic Fenerbahce, dalla Turchia: Milan disposto a cedere il bosniaco. Questa la cifra
+-  Az utolsó tánc
