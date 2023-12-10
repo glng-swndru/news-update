@@ -1,11 +1,51 @@
 # Latest News
--  नेप्सेमा तेस्रो सर्किट ब्रेक, ६ प्रतिशत बढेपछि आजको लागि शेयर कारोबार बन्द
--  (UŽIVO) Izrael nastavlja sa ofanzivom; Broj poginulih Palestinaca u Gazi premašio 17.700
--  Akademik Miro Vuksanović za BORBU: Vjekovima se zna ko u Crnoj Gori živi; Nesloga Srba i Crnogoraca je najbolji dokaz da su svi oni Srbi!
--  عائلة بريطانية تحرق جثمان قريبها المتوفي مرتين!
--  فلكي يحذر من أمرين مهمين ستتعرض لهم اليمن
--  تاکید اوتونبایوا بر حمایت از حقوق بشر در افغانستان
--  Affaire Pegasus : le Maroc collectionne les revers judiciaires en Europe
--  Darum war der "Renaissance"-Film für Beyoncé so schwierig
--  الاحتلال يبث مقاطع مفبركة على أنها لاستلام شخص يحمل سلاحا في غزة
--  ٤ أولويات لدى بري.. ما هي؟
+-  Netherlands residents have little trust in ChatGPT; Trust in algorithms plummeting
+-  Hong Kong opposition party leaders detained en route to local election protest
+-  Prince William and Princess Kate have released their official Christmas card photograph
+-  Rokiškio rajone dviejuose automobiliuose rastos vogtos medinės paletės
+-  Osobe s ovom krvnom grupom ni pod razno ne smiju piti kafu: Nije nimalo naivno, može biti okidač bolesti
+-  Naujas soc. tinklų hitas. Putinas „eina“ į prezidentus. „Paprašė Žoga“ (Video)
+-  [ŽT] „Tai būtų išdavystė!“ Zalužnas rengia taikos derybas su Gerasimovu?
+-  As a beauty editor I'm sceptical of hyped-up products, but Rare Beauty's Soft Pinch Liquid Blush is *that* good
+-  Ahmet Hakan yazdı: İsrail protestosu vakur, haysiyetli ve galeyandan uzak olmalı
+-  31 yıl hapis cezası bulunan12 yıllık firari yakalandı!
+-  Kahramanlar devrede! Bakan Yerlikaya duyurdu: İnlerini başlarına yıkacağız
+-  I swapped HIIT workouts for home Barre - and can't believe the difference in my strength and fitness levels
+-  Bolognan Garisendan torni jo liian kalteva – yli 800-vuotias rakennus yritetään pelastaa
+-  Aydın'da jandarmadan terör operasyonu: 5 yıl hükümlü PKK'lı yakalandı
+-  'Bow stacking' is the new hair trend that social-media experts are predicting to be *major* news in 2024
+-  İbrahim Güneş yazdı: Köpekler mi, çocuklar mı?
+-  Μεγαλώνουν οι επιφυλάξεις της Δύσης για την Ουκρανία
+-  NOVA PUCNjAVA U AMERICI: Ima žrtava
+-  Tuštėjimo metas: Šakių rajono mokykla pirkėjo nerado, bandys dar kartą
+-  Kirchenaustritte in Aalen: Wie tief steckt die katholische Kirche in der Krise?
+-  Eva Anca: “A las mujeres les cuesta más perder peso por cuestiones fisiológicas”
+-  Onnittelemme | Leena Ojamaa on Imatran seudun Pelastakaa Lapset ry:n uusi puheenjohtaja: "Olen tiukka äiti"
+-  Pourquoi renégocier son crédit immobilier malgré la hausse des taux ?
+-  Noch zwei Wochen bis Heiligabend: 10 Geschenkideen bis zu 100 Euro
+-  Suomen valtion pitää tukea etätyöskentelyä
+-  7 things that make your home smell and how to fix them
+-  Reportaje | Zumo y mermelada para poner en valor la manzana de la comarca de Ortegal
+-  VREME JE DA SITI POBEDI: Četa Pepa Gvardiole ''posti'' više od mesec dana u Premijer ligi
+-  Lyžovačka na východnom Slovensku: Vypadli Plejsy a Kojšovka (servis bez Tatier)
+-  Lakers vei ensimmäisen NBA Cupin
+-  Henry Kissinger a champion of war not peace
+-  Cyprus Business Now: weekly wrap-up
+-  [일월선사 오늘의 운세] 2023년 12월 11일 월요일 띠별 운세
+-  2023 경북포럼 영주지역 토론회 13일 개최
+-  영진전문대 유아교육과, 학사학위 전공심화과정 졸업논문발표회 성료
+-  '2023 지진위기대응 아카데미' 12일 개최
+-  조희대 대법원장 취임…사법수장 공백 사태 74일 만에 해소
+-  상주 사벌국면 오이재배 비닐하우스 화재…2개 동 불에 타
+-  [소소한 일상이야기] 저녁의 시선으로
+-  수능 수학 1등급 자연계열 학생 96.5% 추정
+-  Lejkersi ispisali istoriju - Lebron podigao pehar VIDEO
+-  Test električnog automobila: MG4 - da li je vožnja na struju postala održiva? VIDEO
+-  대구 경신고, 수능 전국 수석 · 대구지역 수석 동시 배출
+-  "Газпром" подает газ для Европы через Украину в объеме 42,2 млн куб. м через "Суджу"
+-  Danas počinje festival filma o ljudskim pravima „Ubrzaj“
+-  Врачи заявили о пользе завтрака с орехами для сердца
+-  Nên mua cà rốt sạch hay còn dính bùn đất?
+-  Akciјa u čast 19. decembra: Dok krv daјem, ne dam da suza kane
+-  VIDEO: Kane strelil prvý gól za Detroit. Som hrdý, že nosím tento dres, vyhlásil
+-  Who is Eskom’s newly appointed CEO?
