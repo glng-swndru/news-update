@@ -1,11 +1,11 @@
 # Latest News
--  カトーレック、アマタシティ・ラヨン工業団地の新物流センター竣工
--  Guardiola'dan Haaland'ın sağlık durumu ile ilgili açıklama
--  Bakan Tunç: Somali Cumhurbaşkanının oğlunun karıştığı kazada olay yerini inceleyen polisler hakkında soruşturma açıldı
--  Nice 2 golle 3 puanı kaptı
--  Navijači Dinama stigali iz Grčke, u Zagrebu dočekani bakljadom
--  গাজা থেকে ফিলিস্তিনিদের উৎখাত করতে চায় ইসরায়েল: জর্ডান
--  Der hører ingen herregård med, men den adelige titel sælger han for en halv million, og en del af overskuddet vil gå til beskyttelse af jøder
--  애스턴 빌라처럼? 라리가 지로나, 바르셀로나 상대 승리 도전…선두 탈환 가능할까
--  "꿈에서라도, 너무 보고 싶어"…이상민, 母 유골함에 머리 맞대고 오열 [미우새](종합)
--  Šutaj Eštok je za zrušenie Úradu špeciálnej prokuratúry, bývalý minister Mikulec na to nevidí dôvod
+-  BM'den Gazze'deki kitlesel göçün yayılmasını önlemek için 'acil ateşkes' çağrısı
+-  सैन्य इंजीनियरिंग का चमत्कार था ये एयरबेस, न्यूक्लियर अटैक को भी सकता था झेल!
+-  Hapšenja u Beogradu, zaplenjeno 130 kg marihuane
+-  Жўраева Дилдора Рустамовнанинг қишлоқ хўжалиги фанлари фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Қишлоқ хўжалиги фидойилари тақдирланди
+-  Захидова Зулфия Халилуллаевнанинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Омонова Мухлиса Дўстназар қизининг педагогика фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  “Олмазор” oбод масканга айланди
+-  Қишлоқ хўжалиги соҳаси ходимлари шарафланди
+-  Spirit wint ook in Zeeland
