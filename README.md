@@ -1,51 +1,51 @@
 # Latest News
--  [엄정화 “女배우, 35살 넘으면 ‘엄마’ 연기했다”…그런 K드라마의 ‘쎈 언니’ 변화
--  [동대문구, 퇴직예정자 재취업 지원
--  [따뜻함 가득한 북촌한옥마을 연말연시…‘계동마님댁 동지맞이’ 행사
--  [與 인요한 혁신위, ‘조기 종료’ 이유는?
--  [‘PF 폭탄’ 터질라…한달새 금융·건설사 5곳 신용도 하향 [투자360]
--  [‘73년생 한동훈’ 출간에 박수영 “좌파 가스라이팅에 혜안 제시”
--  [미국인 10명중 6명, 이스라엘 지원하는 정책에 “부정적”
--  [삼성바이오로직스, 지속가능경영 월드 지수 3년 연속 편입
--  [동대문구, 14일부터 수산물 방사능 검사 실시
--  [[헤럴드 운세] 2023년 12월 11일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  루닛, 국제학술지에 ‘AI로 폐결핵 진단 향상’ 논문 게재
--  Cerita Bivitri Susanti Tolak Tawaran KPU Jadi Panelis Debat Capres
--  الحوثيون يجبرون سفينة متجهة لإسرائيل على التراجع
--  Comparsa de morenada sorprende al ensayar bajo la lluvia en Puno: “La neumonía”
--  Új szereplők bukkantak fel az BTC-ETH csörtében - Elképesztő hozamok a láthatáron?
--  Apni Party conducts membership drive in Jammu East
--  TNWS to raise issues of colony before CS
--  E os destaques tecnológicos da semana que passou foram…
--  У женщины в глазах обнаружили десятки живых червей-паразитов
--  Комплексующий из-за размера пениса полицейский устроил драку в секс-шопе
--  TJ - La Juve su un talento del Kosovo
--  TV Ratings December 10, 2023: Fans got festive with a Christmas special of The Hundred with Andy Lee, topping prime-time entertainment
--  Wow! 6 Secretly Amazing Towns to Retire in New Jersey!
--  A Kiflitől lesz boldog a karácsony! (x)
--  SNL gets blowback for 'vile' skit focusing on GOP lawmaker instead of college presidents' testimony
--  英特爾宣布完成 PowerVia 背部供電技術發展，並將領先業界推出
--  Basen o socialnem dialogu
--  Xavi says Barcelona played well against Girona
--  Terpopuler Bisnis: Profil Dirut Baru Waskita Karya hingga Janji Kaesang BPJS Gratis Realistis?
--  3 Kreasi Resep Tamagoyaki untuk Sarapan, Telur Dadar Gulung Khas Jepang
--  “홍상혁, 더 잘할 수 있다” 스커드 미사일 기대감 크다…데뷔 첫 4G 연속 10+점, 만년 유망주 꼬리표 떼나
--  Manchester City Kembali ke Jalur Kemenangan, Ini yang Diucapkan Pep Guardiola ke Pemain di Ruang Ganti
--  Waspada Perlintasan Kereta Sebidang Saat Berkendara Selama Libur Nataru
--  Top 3 Dunia: Korea Utara Kecam Veto AS hingga Keuangan Warga AS Bakal Terseok-seok
--  Kofein ni nadomestek za počitek in spanje
--  Španija in Slovenija skupaj k priznanju Palestine?
--  3점 되찾은 이현중…호주 언론 “10+득점 가능” [농구]
--  Kritični do združitve ljubljanskih vrtcev
--  Police arrests 2 hardcore cattle lifters
--  Iran lancar dron peluru berpandu udara-ke-udara
--  Podeljene evropske filmske nagrade
--  일본축구전설 32년 경력 마무리…판페르시도 메시지
--  Tử vi thứ 2 ngày 11/12/2023 của 12 con giáp: Tý gặp xáo trộn, Tị vượng tài
--  Schengen: Avstrijci rahljajo svoj veto glede vstopa Romunije in Bolgarije
--  Podnebni vrh COP 28: Raznoteri interesi v vrelem podnebnem loncu
--  Konglomerat za varstvo otrok
--  Še o Wagnerju, Izraelcih in Ameriki
--  그의 입이 바빠지면 경기 먹구름 드리운다?[지식人 지식in]
+-  [에이티즈, 美 빌보드 앨범 차트 1위…K-팝 그룹 7번째
+-  [중구 한전 지상기기함, 아트갤러리로 변신
+-  [물에 잠긴 車, 100m 바다수영해 운전자 구한 이 정체는…‘해양 경찰’이었다
+-  [관악구, 내년 상반기 ‘동행일자리’ 415명 모집
 -  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  무릎만 문제인가 했는데 음주운전 은폐라니…백업 포수 카드 하나 잃은 두산, 제로베이스 경쟁에도 악영향 [MK이슈]
+-  권은비, 日 단독 팬미팅 성료…뜨거운 무대+팬서비스 '팬심 저격'
+-  '열린음악회' 스테이씨, 상큼 매력+열정 무대로 전한 긍정 에너지
+-  누리플랜, 유상증자 일반청약 경쟁률 910:1 기록… "청약금액 3252억원 몰려"
+-  압타바이오, 코로나19 치료제 개발 미국 임상2상 자진 중단
+-  Frankfurt benam Bayern
+-  حرب غزة: مستشفى "العودة" لا يزال محاصرا
+-  Return of the ‘consultocracy’ – how cutting public service jobs to save costs usually backfires
+-  Pro-Palestine protesters show at 17 Ave. S.W. park despite police warning
+-  ¿Por qué no jugó Edson Álvarez en el partido West Ham vs. Fulham?
+-  Milei toma posesión como presidente: "No hay alternativa al ajuste ni al shock"
+-  منتدى الدوحة: مطالبات بوقف إطلاق النار وانتقادات لمجلس الأمن
+-  FOTO Michal Hudák ukázal NOVÚ PRIATEĽKU: S blondínkou Lenkou prišiel na finále Talentu
+-  Tony Bellew has hilarious reaction as he celebrates Everton win in front of Chelsea fan Sam Thompson
+-  Práce s papírem se prodraží. Digitalizace šetří čas a peníze
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Can you spot the kid swimming? Aussie nurse’s warning on one major mistake parents make
+-  Anna "Chickadee" Cardwell, "Here Comes Honey Boo Boo" star, dies at 29
+-  Edy Smol será vocero de precampaña de Clara Brugada, ¿quién es el conductor?
+-  Jak by dnes vypadala daň z příjmu, kdyby se počítala ze superhrubé mzdy
+-  Bakan Tunç'tan kurye cinayeti sorusuna yanıt: Gündem Filistin
+-  حرب غزة: منظمة الصحة العالمية تتبنى قرارا يدعو لتقديم مساعدات فورية للقطاع
+-  Girona no afloja: goleó al Barcelona y es líder en España por delante del Real Madrid
+-  Após o bis de golos, o de assistências. Rodrigo Gomes serve golo de Heri
+-  Vasco Seabra: «Parabéns aos nossos jogadores, é este o caminho»
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Ankara'da silahlar konuştu! Gerçekleşen silahlı saldırıda bir kişi hayatını kaybetti
+-  Gaza war having 'catastrophic' health impact — WHO chief
+-  Italia: Dybala se lesiona y preocupa a Roma
+-  Gaza war having ‘catastrophic’ health impact: WHO chief
+-  Israel’s Netanyahu calls on Hamas militants to ‘surrender now’
+-  Eddie Howe questions Newcastle United squad capacity after Tottenham Hotspur hammering
+-  Kingdom’s Olympic committee VP announces third edition of Saudi Games for 2024
+-  La Scuola Barese di Commercio: Un Percorso di Innovazione e Sviluppo per il commercio locale. Il progetto del DUC di Bari sarà presentato lunedì 11 dicembre
+-  Menina de quatro anos desaparece de dentro de casa no RJ
+-  Krevde å kutte i bilfrie bydeler. Nå kritiseres fagfolkene bak planene.
+-  世界の産業チェーン・サプライチェーンの安定と円滑化を共同で維持
+-  SPRM, Petronas lapor terus kepada Agong
+-  ¿Qué elementos son necesarios en una mochila de emergencia?
+-  The unique Aussie experience that should be on everyone’s bucket list
+-  New Power skipper Rozee signs long-term AFL deal
+-  New Power skipper Rozee signs long-term AFL deal
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Reality star Sam Thompson is crowned King Of The Jungle: I'm A Celebrity fan favourite says 'all my dreams have come true' as he beats boxing legend Tony Bellew in the final two after politician Nigel Farage finished third
+-  एनसेल छानबिन समितिले ३० दिनभित्रै प्रतिवेदन बुझाउने
+-  «Não chega serem bons profissionais à semana e depois bloquearem ao fim de semana»
