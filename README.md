@@ -1,11 +1,11 @@
 # Latest News
--  [VIDEO] Llegaron los arbolitos de la mina (Caricaturas)
--  Galatasaray'ı endişelendiren transfer, Planlar alt üst oldu!
--  Bisher bester Karriere-Erfolg: Skilangläuferin Carl holt dritten Platz
--  13 नंबर अशुभ क्‍यों माना जाता है? जानें इसके पीछे का रहस्‍य
--  La région du Centre domine la Coupe Inter régions du ministre en charge des sports
--  Charlie Brooker, Writer and Television Presenter
--  Kolíková žiada dôkazy na rušenie Úradu špeciálnej prokuratúry, podľa Gašpara ich zverejnia
--  أستون فيلا يوقف قطار أرسنال
--  Unfall bei Neukieritzsch: Seat mit Mutter und Kind landet im Graben
--  Генинспектор Бундесвера: ФРГ поставит Украине 200 тысяч снарядов в 2024 году
+-  Auto op z'n kop te water aan Burgemeester Van Reenensingel
+-  Auto uit de Lek bij Schoonhoven getakeld
+-  Rain hampers third day proceedings
+-  Chalitha placed 19th
+-  FSL focus on 43 foreign-origin players for football national pool
+-  Tunisie – Visite surprise de la ministre de la Justice au centre pénitentiaire de la Mornaguia
+-  Be part of the Christmas decorations
+-  AK Parti Sözcüsü Çelik: Batılı devletlerin çoğu çocuk katilleriyle el sıkışarak ikiyüzlülük sergiliyor
+-  SON에게 ‘주장’ 내준 뒤 토트넘 커리어 끝난 레전드, 뉴캐슬 입단 가능성 ↑
+-  Soccerladuma | 'Pirates Played Well Against TS Galaxy But....'
