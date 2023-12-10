@@ -1,11 +1,11 @@
 # Latest News
--  Pliosaur discovery: Gigantic skull of sea monster is found on the cliffs of Dorset's Jurassic Coast
--  Colombia deroga un decreto que limita las capacidades de la Policía contra el microtráfico
--  Ratna kalvarija ličkog sela Čanak neraskidivo vezana uz riječke branitelje: Jači i od zime i od agresora
--  Coraima Gómez pidió no llamar 'clásico' al partido Alianza vs. Universitario en vóley
--  'Unfair, Really Surprised': Anjum Chopra on Athapaththu going unsold at WPL Auction
--  I won The Apprentice and this is how much contact we have with Lord Sugar after the series: Harpreet Kaur reveals how often she speaks to the business tycoon
--  Olivia Rodrigo flashes her toned midriff in a glittering green crop top and flared trousers as she departs Saturday Night Live
--  ما مصير مدرب أهلي جدة بعد تذبذب النتائج؟ رئيس النادي يرد
--  The Weeknd dans Fortnite : skins, prix, et plus encore
--  متى يكون التسجيل في التأمينات إجبارياً للعمال والموظفين؟
+-  Salkić: Izmišljate optužbe na račun onih nad kojim su oni koje veličate počinili genocid
+-  フェンシング男子フルーレW杯 団体戦 日本は4位
+-  AK Parti Sözcüsü Çelik'ten Batı'ya Gazze tepkisi
+-  Amazonas encerra campanha de vacinação contra a gripe na sexta; veja grupos prioritários
+-  বাইডেনের চেয়ে এগিয়ে ট্রাম্প
+-  Традиционното Коледно надиграване в Русе събра стотици почитатели на фолклора
+-  Vor Abstimmung über Asylpolitik: Ex-Staatsminister attackiert Sunak
+-  5 thực phẩm khiến huyết khối dễ tích tụ hơn cả thịt mỡ, người Việt thích vẫn thích ăn mỗi ngày
+-  Memorijalni uspon na Bjelašnicu: Sjećanje na sedmoricu stradalih planinara
+-  Zwei Menschen aus Fassadengondel an Hochhaus gerettet
