@@ -1,11 +1,11 @@
 # Latest News
--  Азербайджан. "Нефтчи" обыграл "Туран-Товуз". Богомольский снова остался в запасе
--  Россия. "Оренбург" с Сиваковым и Капленко разошелся миром с "Сочи"
--  "Славию" покинул Алексей Антилевский
--  Украина. "Колос" с Золотовым уступил "Черноморцу"
--  Венгрия. "Диошдьёр" с Климовичем взял верх над "Кишвардой"
--  Мельников расстался со "Славией"
--  Руслан Юденков: "Мактаарал" хочет продолжить сотрудничество, но я жду конца года"
--  IND vs SA, 1st T20I: Durban encounter called off due to persistent rains
--  Silva, Grealish score as City fight back to beat Luton
--  Jaclyn Victor, juara segala bintang All Stars Gegar Vaganza
+-  "לירות בתומכי הכיבוש": נפתחה חקירה נגד שר בכיר ברשות הפלסטינית בחשד להסתה
+-  نائب محافظ بورسعيد يدلي بصوته في الانتخابات الرئاسية 2024
+-  مانشستر سيتي يحبط مفاجأة لوتون تاون في 3 دقائق ويعود للانتصارات
+-  Stuttgart - Leverkusen: Wirtz kontert Führich
+-  Stuttgart - Leverkusen: Wirtz kontert Führich
+-  Блинкен: США хотят видеть больше усилий Израиля в гуманитарной сфере
+-  Inter back on top of Serie A after big win over Udinese
+-  Everton win again as Abdoulaye Doucoure and Lewis Dobbin down toothless Chelsea
+-  Foot mondial : résultats des matches du dimanche 10 décembre (vidéos)
+-  Water supply woes persist in Tshwane after an Eskom power failure
