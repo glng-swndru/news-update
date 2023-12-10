@@ -1,51 +1,51 @@
 # Latest News
--  KVÍZ z histórie, ktorý otestuje vaše vedomosti: Všetky otázky by ste mali zvládnuť ľavou zadnou
--  สภาพอากาศวันนี้ ไทยตอนบนมีหมอกในตอนเช้า ภาคใต้ฝนตกหนักบางแห่ง
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Status
--  Jehovah’s Getuigen klagen de staat aan voor discriminatie na onderzoek over seksueel misbruik
--  Full List Of Those Expected To Appear Before House As Reps Begins 2024 Budget Defence Today
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Pahang, Sabah dicadang tapak pelancaran roket
--  Sudar dva voza na severu Italije: Povređeno 17 osoba, istraga u toku
--  Search called off for missing 72-year-old South Tampa woman
--  South Korea’s Hybrid Vehicle Registrations Hit Record High, Sparking Buzz Around Upcoming Models
--  Jocoro da un paso importante de cara a la final y Alianza y Águila complican la serie
--  Байден пригласил Зеленского в Вашингтон - Офис президента
--  Las «vergonzosas» juergas de los primeros ministros
--  Vikings' Jefferson returns, then exits with injury
--  Rishi Sunak starts make-or-break week with eight-hour Covid inquiry grilling
--  China's crude imports fell to a four-month low in November; decline in domestic demand
--  ردود أفعال قوية بعد الخسارة من الزعيم.. غليان في الريان
--  Se entregan familias migrantes a patrulla fronteriza
--  “롯데쇼핑, 소비침체에도 문제 없다…내년 실적 모멘텀 지속”
--  الرعاية: أسباب فسيولوجية وراء «الاكتئاب الشتوي»
--  على هامش المنتدى.. رئيس الغرفة يبحث دعم التعاون التجاري وتعزيز الاستثمارات
--  الحمادي يستعرض العلاقات مع مسؤولي عدة دول
--  المريخي يجتمع مع مسؤولين مشاركين بالمنتدى
--  قطر الخيرية تطلق مبادرة «10 طائرات إغاثية لأجل فلسطين»
--  «عنة إكسبو» تعيد الزوار إلى زمان «اللؤلؤ»
--  «درب الساعي» يطلق فعاليات نوعية احتفاء باليوم الوطني
--  خبراء بيئيون ومربو حلال لـ «العرب»: «الغويف» خطر على الزرع والضرع
--  مقاومة جباليا والشجاعية تعوق التوغل الإسرائيلي شمالي غزة
--  فوز طلابنا ببرونزيتين في أولمبياد العلوم للناشئين بتايلاند
--  قطر تدين الاستهداف المتعمد للمستشفيات في غزة
--  Гуардиола: Понякога не постигаме резултатите, когато заслужавахме
--  'K방산', 수출 위해 모든 정보 한곳에서 제공한다
--  Ikea Unveils New Home Fitness Collection
--  Infant’s body discovered in New Bedford park, DA’s office says
--  Seres que esperan
--  Bruce Lehrmann defamation trial live: final week of evidence to hear from Brittany Higgins family, police and lip reading expert
--  Roma-Fiorentina, Mourinho non parla nel post gara: il tecnico furioso
--  Manchester United given injury boost as Casemiro returns to training ahead of Bayern Munich and Liverpool clashes
--  ¿Cuál es el nuevo monto máximo para solicitar créditos de Yape?
--  تناولها ولن تندم .. هذا النوع من المكسرات كنز مذهل تعالج 9 أمراض خطيرة؟
--  اكتشفي طريقة طبيعية للحصول على بشرة بيضاء خالية من التصبغات والتجاعيد!
--  Vikings receiver Justin Jefferson leaves game against Raiders, taken to local hospital out of precaution
--  앤시스코리아, '한국에서 가장 일하기 좋은 기업' 3년 연속 선정
--  Shattering Its Previous Records by a Significant Margin... Riyadh International Philosophy Conference 2023 Concludes Its Activities for This Year
--  USI Collaborates with Customer to Launch IP66-Rated Rugged Industrial Tablet, Meeting High Efficiency Demands for On-Site Work
--  “이번 주 원·달러 환율, 11월 CPI·FOMC 앞두고 변동성 확대…1280~1320원 예상”
--  Kurt Russell On The “Tombstone” ‘Mystery’
--  이정후 떠나면 KBO 현역 통산타율 1위인데…정작 GG가 없다? 33세 ‘비운의 사나이’ 되나
--  [이길우 변호사의 호크아이2] 지금 당장 운전자보험을 갱신해야 하는 첫 번째 이유
+-  Un proyecto europeo revela que el 70% de los antibióticos prescritos podrían ser innecesarios
+-  “우산 필수” 전국 흐리고 비…강원 산지 최대 30㎝ 이상 폭설
+-  삼척·강원북부산지에 호우주의보… 북부산지 대설주의보 유지
+-  '손흥민 1골 2도움' 토트넘, 6경기 만의 승리…뉴캐슬 4-1 대파
+-  윤 대통령, 오늘 네덜란드 국빈 방문…‘반도체 동맹’ 강화
+-  국민의힘 혁신위, 오늘 조기 종료… 최고위에 혁신안 종합 보고
+-  Adolescente de 14 años de Salcedo cumple 45 días desaparecido
+-  美, 의약품 특허 개혁 드라이브 예고 ... 시밀러 업체 수혜?
+-  에티버스 IT 종합 교육 센터 ‘에티버스러닝’ 교대 캠퍼스 개소
+-  Keseruan Kaleb J Duet Bareng Pemenang Yamaha Youth Festival Medan
+-  美 매체 “오타니 7억달러 계약, 야구가 안 망했다는 것 보여줘”
+-  [KB손해보험, 5년 연속 ‘지역사회공헌 인정기업’ 선정
+-  [KAIST, 미생물 활용 플라스틱 생산·분해 친환경기술 제시
+-  [2년 넘게 멈춘 인천 옹진군 유일한 산부인과 백령병원 재개
+-  [인천시, 광고제 3관왕 달성… 마케팅 기획력 우수성 인정 받아
+-  [인천지역 환경분야 불법 행위 해마다 늘어
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [이제훈 홈플러스 사장, ‘노 엑시트(NO EXIT)’ 캠페인 참여
+-  البحث على المفقودين: إجمالي العينات المأخوذة من الجثامين مجهولة الهوية في درنة 5621 عينة
+-  This year's four-character Chinese idiom chosen
+-  Be skeptical about QR codes, warns the FTC
+-  Le patron de la NBA jubile avec Wembanyama
+-  On the Road: Still dry
+-  Girona faz grande jogo, vence Barcelona e assume liderança, enquanto Tottenham derrota Newcastle; confira resumão
+-  콘진원, 日서 '더 어울림 in 도쿄' 개최…신기술융합콘텐츠 전시
+-  엔비디아 CEO, 베트남에 반도체 기지 설립 추진
+-  Mina da Braskem em Maceió se rompe: o que acontece agora?
+-  Heavy traffic on M5 Motorway at Preston as crash sparks congestion
+-  Nessuna rete e un punto a testa. Frosinone e Torino non si fanno male allo Stirpe
+-  «Αγορά ησυχίας»: Το ισραηλινό σχέδιο που στήριξε τη Χαμάς
+-  A Fazenda | Yuri e Nathalia têm reencontro com beijo ao vivo na "Hora do Faro"
+-  아르헨 밀레이 취임..."1만5000% 인플레 직면...'충격' 조치만이 살길"
+-  방문규 장관, 경제안보공급망 관계장관회의 참석
+-  인사 나누는 방문규 장관과 고광효 관세청장
+-  Tudingan PDIP soal Prabowo Bukan Jokowi Dibalas TKN
+-  경제안보공급망 관계장관회의 참석한 김윤상 조달청장
+-  경제안보공급망 관계장관회의 참석한 방문규 장관
+-  명지대학교, 경기도용인교육지원청 연계 ‘지도 역량 강화 교사연수’ 개최
+-  박진 외교장관, 경제안보공급망 관계장관회의 참석
+-  10X bỏ trường chuyên để du học, quyết định ‘gap year’ đi vòng quanh thế giới
+-  DRŽAVLJANIN BiH UHAPŠEN U NEMAČKOJ: Čudno se ponašao na stanici, bio je nervozan - Kada su ga pretresli, ODMAH MU STAVILI LISICE
+-  Florida Joker anklager Rockstar for å ha brukt hans bilde uten samtykke.
+-  Veja a lista de perguntas que vencedora do 'Quem Quer Ser Um Milionário' respondeu
+-  Os signos dos personagens do filme Tá Escrito
+-  Ban công rộng chưa đến 10m2 khiến dân mạng trầm trồ: Không gian xanh mướt, hoa trái 4 mùa sai trĩu quả
+-  飲酒運転の摘発、熊本県内4年ぶり増加 「重大な犯罪」県警が年末年始前に呼びかけ
+-  Diego Moreno y otro gol clave sin ser titular
+-  (VIDEO). La triste historia de una joven pastelera y enferma que pide una familia para sus mascostas
+-  'May December' Considered a Comedy by Golden Globes, Decision Leaves Fans Baffled - Read Reactions!
+-  El Gobierno calibrará hoy la oposición de las comunidades del PP a sus cesiones a Cataluña
