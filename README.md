@@ -1,51 +1,51 @@
 # Latest News
--  넷플릭스 티빙 이어 유튜브마저 가격 인상… 우회방법 찾는 사람들
--  As Fog Shrouds Delhi, Overall Aqi Slips To ‘Very Poor’ Category
--  Primavera, oggi c’è il Cagliari
--  La probabile formazione del Frosinone: in attacco Soulè e Cheddira
--  'Cây tỷ đô' của Việt Nam bất ngờ được Malaysia mạnh tay thu mua: xuất khẩu tăng nóng gần 300% trong tháng 10, bỏ túi hơn 5 triệu USD
--  "수년간 공포에 떨었던 날이 찾아왔다"…에인절스 떠나 다저스와 '7억 달러' 계약, 에인절스는 씁쓸한 이별
--  DKZ 재찬, 서울→타이베이 달궜다…데뷔 첫 팬미팅 투어 순항
--  임상협, '밝은 미소'로 통합축구 올스타전 참가..."내년에 핑계 없다고 생각·귀네슈 감독 세계적 명장"
--  시즌 첫 연승 노리는 강혁 한국가스공사 감독 대행 “외곽 수비에 치중할 것…신승민 잘했으면” [MK현장]
--  Thủ tướng Chính phủ Phạm Minh Chính: Cần Thơ phải đi lên bằng chính nội lực của mình
--  त्रिभुवन विमानस्थलबाट फेरि ६ किलो ५६५ ग्राम सुन बरामद
--  हृदयमा छ तिर्सना कतै
--  Meer treinen in nieuwe dienstregeling, maar OV nog lang niet op oude niveau
--  যবিপ্রবিতে চাকরিপ্রার্থীদের আটকে মারধরের ঘটনায় তদন্ত কমিটি
--  "การบินไทย" แจงเร่งสอบ-พร้อมรับผิดชอบผู้โดยสารถูกน้ำร้อนหกใส่
--  이웃 여성에 481차례 전화한 스토킹범 법정 구속
--  🔴 سقوط حمدوك والمليشيا بدون برشوت
--  2023 ist das Jahr der Klimarekorde: Extrem ist das neue Normal
--  I år blir det jul i Erikas orangeri
--  El Conicet estrenó una nueva sede para investigar en Neuquén
--  Lucka tio i Gävles konstadventskalender
--  মুশফিকের পাশে বিসিবি
--  Javisst har byarna flyttats
--  I år blir det jul i Erikas orangeri
--  Dieser Filmstar soll Sharon Stone in ihrem Biopic spielen
--  Mänskliga rättigheter – jubileum med utmaningar
--  Finstere Gesellen in den Gassen von Kastelruth
--  Lucka tio i Gävles konstadventskalender
--  호주 외인 허리 부상→오늘도 결장…그러나 틸리카이넨은 걱정 없다 “임동혁은 韓 최고의 아포짓” [MK인천]
--  ভাঙা সেতু সংস্কার হয়নি
--  The long story of #RhodesMustFall
--  আঙুর ফল সমাচার
--  K리그1 득점왕 주민규 후배사랑도 ‘베스트’
--  ‘김포 서울 편입’ 열 올리는 與… 대전·충남 혁신도시는 잊히나
--  중부내륙특별법 국회 통과… 충북의 힘 통했다
--  “페기물을 수소에너지로”…현대차, 수소생태계 구축 사례 공유
--  যুক্তরাষ্ট্রের শীর্ষ বিশ্ববিদ্যালয়ের প্রেসিডেন্টের পদত্যাগ
--  中 "내년 5% 성장률 사수할까" 재정부양이 '핵심'
--  دعاة وعلماء وادي حضرموت يؤكدون أن فلسطين أرض وقف إسلامية مقدسة
--  Anambra records 97 road crashes, 35 deaths in 11 months – FRSC
--  Аргентину предостерегли от поддержки Украины в угоду США
--  Bülent Timurlenk'ten derbi sonrası Rıza Çalımbay'a şok eleştiri!
--  "الأسرى العراة".. جريمة بربرية نكراء تفضح الهمجية الصهيونية.. وتكشف للعالم بشاعة الاحتلال
--  2 Chainz rushed to the hospital after accident on Miami highway
--  Bill Belichick Brings Out His Comical Side While Supporting the Navy in a Special Way
--  Wellington Phoenix draw with Melbourne Victory but should their first goal have stood?
--  "금융권 횡재세 도입 신중해야···재산권 침해 등 법률리스크 있어"
--  भगवान शांतिनाथजी के जिनालय में स्नात्र पूजा आज
--  "무이자 할부 중단"...카드사 불황에 소비자 혜택 '뚝'
--  Судья ударил футболиста ножом во время матча и попытался скрыться
+-  Туркияда ОАВда сунъий интеллектни бошқариш форуми ташкил қилинади
+-  Ўзбекистон ва БАА: давлат хизматларини ривожлантириш бўйича ҳамкорлик қилинади
+-  Япония император хоними 60 ёшда
+-  “Далмунобод”даги хурсандчилик
+-  Покистон журналистлари раҳбари ОАВни тинчликни тарғиб қилишга чақирмоқда
+-  Илм олинг, уни ҳеч ким сиздан тортиб ололмайди
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันอาทิตย์ที่ 10 ธันวาคม 2566​
+-  [‘대치동 1위·1등급’ 남발하더니…거짓 광고한 학원들, 과징금 철퇴
+-  [“사장님 잡혀가면 회사 망한다”…50인미만 사업장 10곳 중 9곳 “중대재해처벌법 준비 안돼”
+-  ["'뺨 맞고 목 졸려'…직장인 15.3％ 폭행·폭언 경험"
+-  [[리얼푸드] ‘청량함 찾아요’ 브라질 슈퍼마켓 소비 변화
+-  [[리얼푸드] 일본, 캐릭터 협업한 식품 매출 '쑥쑥'
+-  [[리얼푸드] 메타버스 콘텐츠 활용하는 일본의 식품 마케팅
+-  [[리얼푸드] 의약품 공급망 위기인 프랑스, 식물성 건강보조제 인기
+-  [[리얼푸드] 美 월마트 매출 상승…저렴한 가격 찾는 미국인들
+-  [현실판 ‘화차’ 뿌리뽑는다…금감원, ‘불법채권 추심’ 대부업자 특별점검
+-  [GH,하남교산 기업이전단지 토지 보상착수
+-  Sporting continua a sofrer como antes
+-  Un político y su mujer baleados en Renacimiento
+-  Los enviaron tras las rejas por intentar asesinar a Indriver en Las Mañanitas
+-  Detenido por hurtar vehículo de empresa de cableado eléctrico
+-  Matan de 4 balazos a ‘Otto' cuando llegaba a su casa en Pedregal
+-  Debacle del Bayern ante el Eintracht en la Bundesliga
+-  El Real Madrid deja el liderato en el aire
+-  Iverson Molinar se marcha para los Capitanes
+-  ‘Manudos' confían en el milagro
+-  Inicia la Fiesta hípica
+-  Ohtani elige a los Dodgers de Los Ángeles
+-  Murillo aún no se lo cree
+-  Un púgil que tambalea desde el primer asalto
+-  Diciembre distinto, con sabor a comunidad
+-  Necesidad de reflexionar (1)
+-  Derechos Humanos
+-  Nitzia se inspira en crear decoraciones mágicas
+-  Acércate, no tengas miedo
+-  Tiro en la cabeza en medio de celebración por Día de la Madre
+-  La mandó a matar pensando que era bruja
+-  Se formó la botadera en una universidad
+-  ‘Una vida Bárbara’: violencia machista ante la mirada impasible de la sociedad española
+-  ‘결승골 기점’ 이강인, 평가 엇갈렸다... PSG 최고 평점부터 “가치를 제대로 보여주지 못했다” 혹평까지
+-  'SON과 호흡은 좋지만...' 786억 웨일스 신성 FW, '리그 1골'에 불과한 득점력 개선은 필수
+-  ‘TN govt should probe why it took 4 days for flood water to recede’
+-  Yön uutiskooste | Kaurismäen Kuolleet lehdet jäi ilman palkintoja, Nobelin rauhanpalkinnon saaja uuteen nälkälakkoon iranilaisvankilassa
+-  Death In bottles: Toxic herbal cocktails snuffing life out of Nigerians
+-  Harga Emas Hari Ini Stabil, Trennya Menurun dalam Sepekan Terakhir
+-  Partai Pelita Deklarasi Dukung Anies-Imin Menang Pilpres 2024
+-  חיל האוויר תקף אתרים צבאיים שבהם פעלו מחבלי חיזבאללה; בעזה - מחבלים מורידים נשקם ונכנעים
+-  תיעוד מרגש: גם בלב הקרבות - הקצינים הבכירים שלא ויתרו על הדלקת נרות חנוכה
+-  השכול של כולנו
+-  פתרון בעזה? כדי להימנע מחזרה לדפוסי החשיבה הישנים - צריך להכיר בשורש הבעיה
