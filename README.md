@@ -1,11 +1,11 @@
 # Latest News
--  "אם האיום של החות'ים יתממש המחירים יזנקו ב-30%"
--  LIVE Primavera Torino-Cagliari: formazioni e prepartita in diretta
--  Kate a William zverejnili VIANOČNÝ POZDRAV na rok 2023: Meghan pri pohľade na TOTO pukne od zlosti!
--  Na verejnosť prišiel prvý PRIESKUM aktuálnej vlády: Týmto ministrom ľudia veria najviac, Pellegrini môže byť spokojný
--  Civilný konvoj na Filipínach musel prerušil plavbu, sledovali ho čínske lode
--  Viele kommen nicht über die Runden - Arm auf Mallorca: Alleinerziehende verdient im Sommer 1500 Euro, im Winter 400
--  الوطنية للانتخابات تعلن عن راحة لمدة ساعة باللجان الانتخابية
--  الاحتلال: نواصل عملياتنا في خان يونس معقل يحيي السنوار
--  صور| رئيس قضايا الدولة يدلي بصوته في الانتخابات الرئاسية
--  Pemuda PAS Pahang terus pacu misi tawan negeri
+-  Sürün kurtulun
+-  Guterres, ABD'nin veto kararına tepki gösterdi: BM'nin otoritesi zedelendi
+-  VfB Stuttgart - B. Leverkusen, en directo | Bundesliga
+-  Prof Moyo tears into Coltart
+-  CAI es tricampeón del fútbol panameño
+-  İsrail ordusu, Gazze'de yaralanan 559 askerini tahliye etti
+-  Hamas, unsurlarının teslim olduğu iddiasını yalanladı: Kassam kahramanları teslim olmaz
+-  Davinson Sanchez'den transfer itirafı! "Falcao'yu aradım"
+-  Bakan Koca: Zonguldak'ta heyelan sonucu yaralanan 23 yaralının 17'si taburcu edildi, 6'sının tedavisi sürüyor
+-  Netanyahu veto kararı ve mühimmat desteği için destekcisi Biden'a teşekkür etti
