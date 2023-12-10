@@ -1,11 +1,51 @@
 # Latest News
--  أيمن يونس: صوتك بالانتخابات الرئاسية يدل على قيمتك في بلدك
--  '통합축구 올스타전을 빛낸' 베테랑 이창용, 안양서 은퇴할까? "협상 진행 중, 마지막 팀 됐으면..."
--  이영애도 안 통했다…'열녀박씨' 이세영, '마이데몬'→'마에스트라' 꺾고 흥행 독주 [MD픽]
--  '입대 D-1' 뷔, 삭발+선글라스 사진 공개…"로망이었다" [종합]
--  يحيى عبدالله يحيي أغاني التراث من أمام اللجان الانتخابية بشمال سيناء
--  [“이제훈·윤성빈 무슨 사이?”…알고보니 나란히 ‘착한 기부’ 정부賞 수상
--  [김기흥 전 대통령실 부대변인, 내년 총선 출마 신호탄 북콘서트 ‘성료’
--  [경북도, 사이소 매출액 사상 첫 400억원 돌파
--  300 Rohingya Muslims fleeing Myanmar arrive in Indonesia after weeks at sea
--  نجوم هوليوود يشاركون أحمد سعد أغنية (وسع وسع)
+-  Soccerladuma | Starting XI: Sundowns v Pyramids
+-  Hekkensluiter Dronrijp verrast titelkandidaat Zeerobben en pakt eerste punt: 'Goud waard voor de moraal'
+-  IPCA e decisões de juros pelo Copom, Fomc e BCE: confira o que acompanhar na semana
+-  إقبال كبير من المواطنين على للمشاركة في الانتخابات بلجان حدائق القبة.. صور
+-  بالصور- انتشار عناصر الشرطة النسائية أمام اللجان بالدقهلية
+-  الجيش الإسرائيلي: إصابة جنديين بهجوم مسيرات لحزب الله
+-  قيادات الطيران المدني تشارك في الانتخابات الرئاسية في لجان مطار القاهرة
+-  رئيس جهاز حماية المستهلك يُدلي بصوته في الانتخابات الرئاسية المصرية ٢٠٢٤
+-  الانتخابات الرئاسية.. يوم من حياة 100 مليون مصري (مشاهد خاصة)
+-  نتنياهو: لا يمكن لألمانيا وفرنسا الضغط على إسرائيل لوقف الحرب
+-  مفاجأة.. خبير أبراج يتوقع نتيجة مباراة بيراميدز وصن داونز في دوري أبطال إفريقيا
+-  على كرسى متحرك.. مطران الفيوم يدلى بصوته فى الانتخابات الرئاسية
+-  الصحة: 46 عيادة طبية ثابتة و17 متنقلة خلال أيام انتخابات الرئاسة
+-  رئيس جامعة حلوان ومجلس الجامعة يدلون بأصواتهم في الانتخابات الرئاسية
+-  LEGO-Fortnite, Rocket Racing und Fortnite Festival: Das steckt in den drei neuen Modi
+-  مفاجأة بشأن الجندي الإسرائيلي صاحب إهداء التفجير لابنته.. ماذا حدث؟
+-  8 Afgan göçmen yakalandı, 3 kişi tutuklandı
+-  Fenerbahçe maçında sakatlanmışlardı... Beşiktaş'tan Gedson Fernades ve Umut Meraş açıklaması!
+-  Ali Babacan'ın annesi son yolculuğuna uğurlandı
+-  Karaman POMEM'de 373 polis adayı mezun oldu
+-  Okuma yazma bilmeden imza attı hayatı karardı
+-  झण्डै २९ तोला सुनका गरगहनासहित दुई जना पक्राउ
+-  10 วัน ยอดหนี้นอกระบบทะลุ 4.46 พันล้าน คนลงทะเบียนกว่า 8.45 หมื่นราย
+-  NASA se pohvalila neobičnim pronalaskom u svemiru: Pogledajte što su našli i zašto su toliko oduševljeni
+-  Serbia-Bulgaria gas interconnector - long planned project - minister (update)
+-  Dalku Doorasho Ayuu Galayaa Waana In Loo Diyaar Galoobaa” Gudoomiye Faysal Cali Waraabe
+-  রোববার ফ্লোর প্রাইস ভেঙ্গেছে ৩ কোম্পানির শেয়ার
+-  مشعال ملک کا شوہر یاسین ملک کو بھارتی جیل میں زہر دیے جانے پر تشویش کا اظہار
+-  María Corina denuncia “agresión de sedes, bloqueos de cuentas bancarias y amenaza con órdenes de captura”
+-  Navalny camp sets strategy to disrupt Putin’s path to new term
+-  Каракачанов: България стана тотално олигархична държава
+-  Wieder Überfall auf Tankstelle in Hannover: Kassierer in der List mit Messer verletzt
+-  तरबार नाचको संरक्षणमा युवा सक्रिय
+-  सञ्चार क्षेत्रको विकासमा गम्भीर हुनुपर्छ : सभामुख मण्डल
+-  ‘No money can buy loyalty’: CSK pacer Matheesha Pathirana shares cryptic post amid rumours of being approached by rival IPL team
+-  CFL uživo: Počelo na DG areni, Budućnosti bod dovoljan za jesenju...
+-  Состоялась встреча Президента Ильхама Алиева с Президентом Болгарии Руменом Радевым один на один
+-  Мужчины рассказали о неожиданных причинах разрыва отношений
+-  Andalucía es reconocido por su Plan de Atención a Enfermedades Raras
+-  El freno al acoso laboral en sanidad pasa por incluir el mobbing en la baja
+-  Albares llegará el miércoles a Marruecos para reforzar las relaciones políticas y comerciales
+-  Albares llegará el miércoles a Marruecos para reforzar las relaciones políticas y comerciales
+-  Filmmakers Behind Israel’s 2024 Oscar Submission To Tell Story Of All-Female Tank Unit Which Defended Against October 7 Terror Attacks
+-  Doctor Who Christmas Special 2023 - Everything you need to know
+-  England sink to 25-year low as fallen World Cup champions lose to team that didn't even qualify
+-  'First team to win it': Davis backs up LeBron with dominant display as Lakers take down Pacers to claim NBA Cup
+-  'It's bouncing ridiculously': BBL clash ends in farce as Geelong pitch deemed unsafe just six overs in
+-  Bruno bags four, Irankunda can't hide emotions as Reds slip again, Western in crisis
+-  Four-naroli! Striker makes Socceroos case with 100th A-League goal as Victory defeat Wanderers in epic
+-  3 signs debt is running your life, even if it doesn't feel like it
