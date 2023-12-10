@@ -1,51 +1,51 @@
 # Latest News
+-  이정후 떠나면 KBO 현역 통산타율 1위인데…정작 GG가 없다? 33세 ‘비운의 사나이’ 되나
+-  [이길우 변호사의 호크아이2] 지금 당장 운전자보험을 갱신해야 하는 첫 번째 이유
+-  약속 지킨 최수종, 최고 시청률 10.9% 돌파 [고려 거란 전쟁](종합)
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Justice : proche de Delly Sesanga, Lens Omelonga, communicateur d'Envol, relâché de Makala
+-  عاجل.. والدة المفقود راكان المطيري تروي قصة اختفائه قبل 7 سنوات .. وسر تركها للرياض (فيديو)
+-  لأول مرة.. شركة أوروبية تستخدم الأمونيا النقي كوقود للناقلات البحرية
+-  خطة شاملة.. إسناد تشغيل المدارس لشركة تطوير العام المقبل
+-  Unos 8.500 vehículos se matricularán en la ciudad en 2024
+-  Pepito López, la vida detrás del rostro de Los Labradores
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Numerology: अंक ज्योतिष के अनुसार जानिए 5, 14 और 23 तारीख को जन्मे व्यक्ति के लिए कैसा रहेगा साल 2024
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Rivalry renewed as Greyhounds hold on against Knights
+-  Estoril goleia Chaves e abre três pontos da zona de rebaixamento do Campeonato Português
+-  "رمت عيالها التوأم في النيل وحصلتهم".. كواليس جريمة بشعة في الجيزة
+-  بعد تورط الفنانة لبلبة في التصويت مرتين.. ماذا يقول القانون؟
+-  تعيين مدربًا جديدًا لفريق سلة الزمالك خلفًا لـ أحمد مرعي.. صور
+-  Có đối tượng tài trợ, lôi kéo người dân đi khiếu nại ở Thái Bình
+-  Trump says he will not testify in New York fraud trial
+-  La molina de José María Gil; a expensas de las instituciones oficiales
+-  Arreglos en la estación de guaguas de Playa Blanca
+-  El parque eólico marino Timanfaya; a expensas de la evaluación ambiental
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Nick McKenzie says the “public deserve to know the truth” with Stan Original Documentary Revealed: Ben Roberts-Smith Truth On Trial
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  «Todo lo que viene de la recogida selectiva se trata correctamente»
+-  Exposición 'Mujeres de Tierra y Sal'
+-  Miguel Gutiérrez: "Claro que creemos que podemos ganar esta Liga"
+-  В Ливане будут закрыты все учреждения и школы в знак солидарности с палестинцами
+-  El paro baja en los seis municipios en relación a finales de 2022
+-  Muere Anna "Chickadee" Cardwell, de 'Here Comes Honey Boo Boo', a los 29 años
+-  El IICA expresa su compromiso para apoyar al nuevo Gobierno de Argentina
+-  Fe y Alegría donó juguetes y ropa a niños del hospital Ranuárez Balza en Guárico
+-  California coffee shop fires employees involved in antisemitic behavior towards Jewish customer
+-  Франція підтримає вступ України до ЄС - Макрон
 -  [에이티즈, 美 빌보드 앨범 차트 1위…K-팝 그룹 7번째
 -  [중구 한전 지상기기함, 아트갤러리로 변신
 -  [물에 잠긴 車, 100m 바다수영해 운전자 구한 이 정체는…‘해양 경찰’이었다
 -  [관악구, 내년 상반기 ‘동행일자리’ 415명 모집
+-  Turbulent: „Zwei Weihnachtsmänner sind einer zu viel“
+-  Reality star Sam Thompson is crowned King Of The Jungle: I'm A Celebrity fan favourite says 'all my dreams have come true' as he beats boxing legend Tony Bellew in the final two after politician Nigel Farage finished third
+-  Who is Sean Penn's new Aussie girlfriend? Meet actress Nathalie Kelley, 39, who turned her back on Hollywood to become a climate and indigenous activist... following 63-year-old's split from fellow Australian Leila George, 31
+-  Sia admits to liposuction in candid message to fans two months after revealing she had facelift: 'I want to be truthful'
+-  PGA Tour selects Fenway group among private investors. More talks planned with Saudis
+-  Marlborough 'stop the chop' group disbanded after 20 years
 -  Idee make up Natale: beauty tips e idee per un trucco di tendenza
 -  권은비, 日 단독 팬미팅 성료…뜨거운 무대+팬서비스 '팬심 저격'
 -  '열린음악회' 스테이씨, 상큼 매력+열정 무대로 전한 긍정 에너지
--  누리플랜, 유상증자 일반청약 경쟁률 910:1 기록… "청약금액 3252억원 몰려"
--  압타바이오, 코로나19 치료제 개발 미국 임상2상 자진 중단
--  Frankfurt benam Bayern
--  حرب غزة: مستشفى "العودة" لا يزال محاصرا
--  Return of the ‘consultocracy’ – how cutting public service jobs to save costs usually backfires
--  Pro-Palestine protesters show at 17 Ave. S.W. park despite police warning
--  ¿Por qué no jugó Edson Álvarez en el partido West Ham vs. Fulham?
--  Milei toma posesión como presidente: "No hay alternativa al ajuste ni al shock"
--  منتدى الدوحة: مطالبات بوقف إطلاق النار وانتقادات لمجلس الأمن
--  FOTO Michal Hudák ukázal NOVÚ PRIATEĽKU: S blondínkou Lenkou prišiel na finále Talentu
--  Tony Bellew has hilarious reaction as he celebrates Everton win in front of Chelsea fan Sam Thompson
--  Práce s papírem se prodraží. Digitalizace šetří čas a peníze
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Can you spot the kid swimming? Aussie nurse’s warning on one major mistake parents make
--  Anna "Chickadee" Cardwell, "Here Comes Honey Boo Boo" star, dies at 29
--  Edy Smol será vocero de precampaña de Clara Brugada, ¿quién es el conductor?
--  Jak by dnes vypadala daň z příjmu, kdyby se počítala ze superhrubé mzdy
--  Bakan Tunç'tan kurye cinayeti sorusuna yanıt: Gündem Filistin
--  حرب غزة: منظمة الصحة العالمية تتبنى قرارا يدعو لتقديم مساعدات فورية للقطاع
--  Girona no afloja: goleó al Barcelona y es líder en España por delante del Real Madrid
--  Após o bis de golos, o de assistências. Rodrigo Gomes serve golo de Heri
--  Vasco Seabra: «Parabéns aos nossos jogadores, é este o caminho»
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Ankara'da silahlar konuştu! Gerçekleşen silahlı saldırıda bir kişi hayatını kaybetti
--  Gaza war having 'catastrophic' health impact — WHO chief
--  Italia: Dybala se lesiona y preocupa a Roma
--  Gaza war having ‘catastrophic’ health impact: WHO chief
--  Israel’s Netanyahu calls on Hamas militants to ‘surrender now’
--  Eddie Howe questions Newcastle United squad capacity after Tottenham Hotspur hammering
--  Kingdom’s Olympic committee VP announces third edition of Saudi Games for 2024
--  La Scuola Barese di Commercio: Un Percorso di Innovazione e Sviluppo per il commercio locale. Il progetto del DUC di Bari sarà presentato lunedì 11 dicembre
--  Menina de quatro anos desaparece de dentro de casa no RJ
--  Krevde å kutte i bilfrie bydeler. Nå kritiseres fagfolkene bak planene.
--  世界の産業チェーン・サプライチェーンの安定と円滑化を共同で維持
--  SPRM, Petronas lapor terus kepada Agong
--  ¿Qué elementos son necesarios en una mochila de emergencia?
--  The unique Aussie experience that should be on everyone’s bucket list
--  New Power skipper Rozee signs long-term AFL deal
--  New Power skipper Rozee signs long-term AFL deal
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Reality star Sam Thompson is crowned King Of The Jungle: I'm A Celebrity fan favourite says 'all my dreams have come true' as he beats boxing legend Tony Bellew in the final two after politician Nigel Farage finished third
--  एनसेल छानबिन समितिले ३० दिनभित्रै प्रतिवेदन बुझाउने
--  «Não chega serem bons profissionais à semana e depois bloquearem ao fim de semana»
