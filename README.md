@@ -1,51 +1,51 @@
 # Latest News
--  인제서 한미연합 KCTC 훈련…장병 4200여명·전투장비 300여대 투입
--  Rangers’ Barclay Goodrow remains in New York after taking puck to face
--  איגוד הטניס השיק את פרויקט "מחבט לכל ילד"
--  5,99 Euro Versandkosten für 85-Cent-Brief: Eventim-Kunde beschwert sich beim Verbraucherschutz
--  Musk says conspiracy theorist Alex Jones will be reinstated on X after poll
--  Ada Perbaikan di Jembatan Cikunir Tasikmalaya, Bus dan Truk Diminta Cari Jalur Lain
--  „Haltlos“: Bürgermeister wehrt sich gegen Vorwürfe von „Unna braucht Eis“
--  “Sabah” basketbol klubu baş məşqçisi ilə yollarını ayırdı
--  أبرزهم عادل إمام ولبلبة.. تعرف على لجان بعض الفنانين المشاركين في الانتخابات الرئاسية
--  Bei Elsenfeld von der Fahrbahn abgekommen - 35-Jähriger stirbt im Krankenhaus
--  कर्नाटक क्राइम: पति-पत्नी ने पहले बेटी की हत्या की और फिर मौत को गले लगा लिया, सुसाइड नोट से खुला घटना का राज
--  Explosion in Essener Mehrfamilienhaus: Frau rettet sich durch Sprung aus einem Fenster
--  Bank Indonesia Bangun Tugu Rupiah Berdaulat di Perbatasan
--  Tangguh rai ulang tahun perkahwinan, Che Ta ‘tumpas’ lagi dengan Covid
--  انتخابات الرئاسة.. وزير التموين: أمامنا فرصة حقيقية ومستقبل مصر مرتبط بنا جميعا
--  Aydın'da iki otomobilin çarpıştığı kazada 11 kişi yaralandı
--  Konya'da "Mevlana" konulu yarışmanın birincilik para ödülü Filistin'e gönderilecek
--  Konyaspor, Süper Lig'de yarın Sivasspor'u konuk olacak
--  Anne ve kucağındaki oğlunun öldüğü kazada cip sürücüsü tutuklandı
--  Konyaspor ile Sivasspor 28. randevuda
--  Şanlıurfa’da geline bir valiz dolusu altın takıldı
--  소아 비만은 성인 비만의 위험 신호
--  Mehr Durchblick bei Girokonto-Kosten
--  Pronađeni u stanu bez svijesti: žena (58) je preminula, muškarac (60) je teško ozlijeđen, nalazi su u bolnici
--  الصين: سفن يابانية دخلت بصورة غير قانونية المياه المتنازع عليها
--  Semana clave en el Gobierno: la Ley de Amnistía y la de 'Solo sí es sí', protagonistas del primer pleno de control
--  IACD 2023: CSO calls for strengthening of anti-corruption laws, review of NEITI
--  Čínský rover objevil na Marsu podivné pohřbené struktury
--  ‘Absolutely crazy’ Chelsea star would grab team-mates’ private parts in dressing room
--  정명근 화성시장, "의료 서비스에 소외되는 지역이 없도록 적극 지원하겠다"
--  Weihnachtsmarkt 2023 in Konstanz: Öffnungszeiten und Programm
--  Ebben a félmillió forintos cipőben bulizott Szabó Zsófi szombat éjjel
--  विदेश मंत्री जयशंकर ने फिलिस्तीनी प्रधानमंत्री से फोन पर बात की, गाजा और वेस्ट बैंक पर चर्चा की
--  Fragata francesa abate dois drones oriundos do Iémen no mar Vermelho
--  Tre teenagere er ramt af skud i en forstad til Stockholm
--  Weihnachtsmärkte in Heidelberg 2023: Öffnungszeiten, Orte und alle Infos
--  Как распорядятся бюджетом в 2024 году в Мангистау
--  محافظ القليوبية يتابع غرفة عمليات الانتخابات الرئاسية
--  Israel Hamas War : 1400 साल पुरानी मस्जिद क्षतिग्रस्त, मरने वालों की संख्या 18 हजार के करीब; अमेरिका इजरायल को 14 हजार गोले भेजेगा
--  СДСМ: Зошто Мицкоски молчи за средбите со Палевски, што крие?
--  নির্বাচন বানচালের প্রচেষ্টা চালাচ্ছে বিএনপি-জামায়াত: সজীব ওয়াজেদ
--  Weihnachtsmärkte 2023 in Baden-Württemberg: Öffnungszeiten und Infos im Überblick
--  Überflutete Straßen wegen hoher Flusspegel im Kreis Donau-Ries
--  FAVBET Premijer liga: Alkar produžetkom protiv Dubrave prekinuo negativan niz
--  Wann finden die Weihnachtsmärkte in Stuttgart 2023 statt? Öffnungszeiten und Infos
--  Azərbaycan bayrağı Təbrizdə dağa həkk edildi
--  وزير المالية عقب الإدلاء بصوته في انتخابات الرئاسة: المصريون يكتبون تاريخا في الممارسة الديمقراطية
--  Windows 12'yi destekleyen bilgisayar sayısı Windows 11'den daha az olacak: İşte sebebi
--  التعاون الدولي والبنك الدولي يعلنان شراكة جديدة لتشجيع الابتكار وتوطين التكنولوجيا الحديثة في الزراعة
--  Weihnachtsmarkt Esslingen 2023: Öffnungszeiten, Programm und Parkmöglichkeiten
+-  No denunciar nos convierte en cómplices de la injusticia
+-  समय अगावै फुल्दै लालीगुराँस, लोप हुँदै पैयुँ
+-  شادية تصطحب حفيدها في انتخابات الرئاسة: «أصريت أجيبه ليدرك أهمية المشاركة»
+-  Les prix des matières premières suggèrent que les vents contraires macroéconomiques mondiaux ne sont pas écartés
+-  عاجل.. خطوات تقديم اعتراض حساب المواطن على الدفعة الجديدة 1445
+-  بشرى لذوي الهمم.. "مايكروسوفت" تطرح تطبيقًا لمساعدة المكفوفين وضعاف البصر
+-  بعد 8 أشهر.. العثور على الطماطم المفقودة في محطة الفضاء الدولية
+-  December 15th Releases: ‘ஃபைட் கிளப்’ முதல் ‘கண்ணகி’ வரை.. டிசம்பர் 15 ஆம் தேதி வெளியாகும் படங்களின் லிஸ்ட்!
+-  투자혹한기에 200억 투자유치? ... 뭐 하는 ‘금융 스타트업’?[내일은 유니콘]
+-  Боевая работа артиллеристов группировки «Восток» под Клещеевкой — видео
+-  Ballando con le stelle, Wanda Nara lecca Pasquale La Rocca: “Oggi mi ha detto che sono bellissima” | VIDEO
+-  চার ভাষায় ‘খালাস’, যে চরিত্রে দেখা যাবে মোশাররফকে
+-  One dies, 29 taken ill after consuming meal at reception
+-  Earthquakes and Nepal: From the Beginning
+-  Igman dočekuje Tuzlu, hercegovački derbi također na rasporedu
+-  올해의 사자성어 ‘견리망의’…“나라 전체가 각자도생 싸움판”
+-  12년 제자리 서비스 발전법 의료 영리화 조항 빼고 '속도'
+-  핀테크, 자체 신용평가로 고객 넓힌다
+-  Олтин ва кумуш арзонлашди, Bitcoin нархи эса ўсишда давом этмоқда - халқаро молия бозори шарҳи.
+-  Икки хил полиция идораси ва иккита пул бирлиги амал қиладиган Бойқўнғир – дунёдаги илк космодром қандай қурилган эди?.
+-  Thủ tướng: Tạo nguồn lực từ cơ chế, chính sách "thay vì đi xin tiền"
+-  Plenković progovorio o Bad Blue Boysima: Objasnio zašto im je država platila jamčevinu
+-  Hrvat postao prvak Europe: Pomeo konkurenciju, nanizao ih je sve po redu
+-  Drought: Govt goes for broke
+-  Экоактивисты окрасили воду Большого канала в Венеции в зелёный цвет
+-  Farmers need to grow small grains, sunflower
+-  ‘เชาว์’ สวดยับ เหยียบตระบัดสัตย์ขึ้นหัวหน้าพรรค ดักคอ ‘เฉลิมชัย’ 2 โควตารมต.รัฐบาล
+-  রিহ্যাবে পাঠানো হয়েছে আদম তমিজী হককে, প্রতিবেদন অনুযায়ী ব্যবস্থা
+-  New NS timetable starts today, over 1,800 additional trains per week
+-  BSP Chief Announces Nephew Akash Anand As Political Successor
+-  Champions Cup ; "Le Stade Toulousain nous a volé quelques trophées !" Un Sud-Africain de La Rochelle rêve de retrouver Toulouse en finale
+-  Atwoli wants Ruto to fire Treasury CS Ndung’u
+-  Offenbar nicht angeschnallt: Junge Autofahrerin gerät in Gegenverkehr – Notarzt kann nicht mehr helfen
+-  Бостон обіграв Арізону, Вегас розгромив Даллас: результати матчів НХЛ
+-  İzmir'de 280 düzensiz göçmen yakalandı, 7 organizatör tutuklandı
+-  «Проект» проанализировал, когда Путин дистанцировался, а когда нет
+-  Etiyopya'dan Türkiye'ye: Kahvenin tarladan fincana serüveni
+-  Prvi put otkriveno gde živi Aco Pejović! Raskošna vila u Beogradu vredna 800.000 evra
+-  Một người đàn ông chi gần 2.000 tỷ nắm giữ toà tháp cao thứ 3 Tp.HCM
+-  예사롭지 않은 독감 환자 확산세...유행 기준으로는 역대급
+-  I played alongside ‘genius’ Ballon d’Or contender – he smoked cigarettes in the showers at half-time
+-  I played alongside ‘genius’ Ballon d’Or contender – he smoked cigarettes in the showers at half-time
+-  საია: 2022 წელს კანონმდებლობა კიდევ უფრო გაფართოვდა სახელმწიფოს უფლებამოსილება თვალთვალსა და მიყურადებასთან დაკავშირებით
+-  Bakan Uraloğlu: Dünyada yılın en iyi projesi 1915 Çanakkale Köprüsü oldu
+-  [경남도립미술관 소장품 산책] 8. 우리가 이미 알고 있는 가치(과거)로부터 새로움을 창출하는 작가, 김지평
+-  Elek ve kalbura çizdiği resimler ile Filistin'deki insanlık dramını anlattı
+-  Beyoğlu'nda 12 saat süren hırsızlık
+-  Over 300 Rohingya Muslims fleeing Myanmar arrive in Indonesia’s Aceh region after weeks at sea
+-  '엑스포 유치 실패' 여론조사서 정부·여당에 차게 식은 PK 민심
+-  İsrail'e tepki gösterilerinde ifade özgürlüğünü savunan Pensilvanya Üniversitesi Rektörü baskılar karşısında istifa etti
