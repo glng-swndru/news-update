@@ -1,11 +1,11 @@
 # Latest News
--  Auto uit de Lek bij Schoonhoven getakeld
--  Davinson Sanchez ve Hakim Ziyech döndü
--  Meteoroloji saat verdi: Üç kent için kuvvetli yağış uyarısı
--  Отца устроившей стрельбу в Брянске школьницы арестовали на два месяца
--  प्रकाश दाहाल स्मृति ब्याडमिन्टन पुसमा
--  ‘काठमाडौँवासीलाई मेलम्चीको पानी खुवाउन ढिलो गर्नुहुँदैन’
--  नेपाल सुपर लिग : चितवनलाई हराउँदै ललितपुर शीर्षस्थानमा
--  خبر سيء.. أسعار مجموعة من الأجهزة الكهربائية ذات الاستعمال الواسع ستشهد ارتفاعا ملحوظا بدءا من يناير
--  فنانون ينعون عازف الجوق الملكي محمد عمار
--  صرف الدرهم "يتقلب" أمام الأورو والدولار
+-  [VIDEO] Llegaron los arbolitos de la mina (Caricaturas)
+-  Galatasaray'ı endişelendiren transfer, Planlar alt üst oldu!
+-  Bisher bester Karriere-Erfolg: Skilangläuferin Carl holt dritten Platz
+-  13 नंबर अशुभ क्‍यों माना जाता है? जानें इसके पीछे का रहस्‍य
+-  La région du Centre domine la Coupe Inter régions du ministre en charge des sports
+-  Charlie Brooker, Writer and Television Presenter
+-  Kolíková žiada dôkazy na rušenie Úradu špeciálnej prokuratúry, podľa Gašpara ich zverejnia
+-  أستون فيلا يوقف قطار أرسنال
+-  Unfall bei Neukieritzsch: Seat mit Mutter und Kind landet im Graben
+-  Генинспектор Бундесвера: ФРГ поставит Украине 200 тысяч снарядов в 2024 году
