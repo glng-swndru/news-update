@@ -1,51 +1,51 @@
 # Latest News
+-  KVÍZ z histórie, ktorý otestuje vaše vedomosti: Všetky otázky by ste mali zvládnuť ľavou zadnou
+-  สภาพอากาศวันนี้ ไทยตอนบนมีหมอกในตอนเช้า ภาคใต้ฝนตกหนักบางแห่ง
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Status
+-  Jehovah’s Getuigen klagen de staat aan voor discriminatie na onderzoek over seksueel misbruik
+-  Full List Of Those Expected To Appear Before House As Reps Begins 2024 Budget Defence Today
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  Pahang, Sabah dicadang tapak pelancaran roket
+-  Sudar dva voza na severu Italije: Povređeno 17 osoba, istraga u toku
+-  Search called off for missing 72-year-old South Tampa woman
+-  South Korea’s Hybrid Vehicle Registrations Hit Record High, Sparking Buzz Around Upcoming Models
+-  Jocoro da un paso importante de cara a la final y Alianza y Águila complican la serie
+-  Байден пригласил Зеленского в Вашингтон - Офис президента
+-  Las «vergonzosas» juergas de los primeros ministros
+-  Vikings' Jefferson returns, then exits with injury
+-  Rishi Sunak starts make-or-break week with eight-hour Covid inquiry grilling
+-  China's crude imports fell to a four-month low in November; decline in domestic demand
+-  ردود أفعال قوية بعد الخسارة من الزعيم.. غليان في الريان
+-  Se entregan familias migrantes a patrulla fronteriza
+-  “롯데쇼핑, 소비침체에도 문제 없다…내년 실적 모멘텀 지속”
+-  الرعاية: أسباب فسيولوجية وراء «الاكتئاب الشتوي»
+-  على هامش المنتدى.. رئيس الغرفة يبحث دعم التعاون التجاري وتعزيز الاستثمارات
+-  الحمادي يستعرض العلاقات مع مسؤولي عدة دول
+-  المريخي يجتمع مع مسؤولين مشاركين بالمنتدى
+-  قطر الخيرية تطلق مبادرة «10 طائرات إغاثية لأجل فلسطين»
+-  «عنة إكسبو» تعيد الزوار إلى زمان «اللؤلؤ»
+-  «درب الساعي» يطلق فعاليات نوعية احتفاء باليوم الوطني
+-  خبراء بيئيون ومربو حلال لـ «العرب»: «الغويف» خطر على الزرع والضرع
+-  مقاومة جباليا والشجاعية تعوق التوغل الإسرائيلي شمالي غزة
+-  فوز طلابنا ببرونزيتين في أولمبياد العلوم للناشئين بتايلاند
+-  قطر تدين الاستهداف المتعمد للمستشفيات في غزة
+-  Гуардиола: Понякога не постигаме резултатите, когато заслужавахме
+-  'K방산', 수출 위해 모든 정보 한곳에서 제공한다
+-  Ikea Unveils New Home Fitness Collection
+-  Infant’s body discovered in New Bedford park, DA’s office says
+-  Seres que esperan
+-  Bruce Lehrmann defamation trial live: final week of evidence to hear from Brittany Higgins family, police and lip reading expert
+-  Roma-Fiorentina, Mourinho non parla nel post gara: il tecnico furioso
+-  Manchester United given injury boost as Casemiro returns to training ahead of Bayern Munich and Liverpool clashes
+-  ¿Cuál es el nuevo monto máximo para solicitar créditos de Yape?
+-  تناولها ولن تندم .. هذا النوع من المكسرات كنز مذهل تعالج 9 أمراض خطيرة؟
+-  اكتشفي طريقة طبيعية للحصول على بشرة بيضاء خالية من التصبغات والتجاعيد!
+-  Vikings receiver Justin Jefferson leaves game against Raiders, taken to local hospital out of precaution
+-  앤시스코리아, '한국에서 가장 일하기 좋은 기업' 3년 연속 선정
+-  Shattering Its Previous Records by a Significant Margin... Riyadh International Philosophy Conference 2023 Concludes Its Activities for This Year
+-  USI Collaborates with Customer to Launch IP66-Rated Rugged Industrial Tablet, Meeting High Efficiency Demands for On-Site Work
+-  “이번 주 원·달러 환율, 11월 CPI·FOMC 앞두고 변동성 확대…1280~1320원 예상”
+-  Kurt Russell On The “Tombstone” ‘Mystery’
 -  이정후 떠나면 KBO 현역 통산타율 1위인데…정작 GG가 없다? 33세 ‘비운의 사나이’ 되나
 -  [이길우 변호사의 호크아이2] 지금 당장 운전자보험을 갱신해야 하는 첫 번째 이유
--  약속 지킨 최수종, 최고 시청률 10.9% 돌파 [고려 거란 전쟁](종합)
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Justice : proche de Delly Sesanga, Lens Omelonga, communicateur d'Envol, relâché de Makala
--  عاجل.. والدة المفقود راكان المطيري تروي قصة اختفائه قبل 7 سنوات .. وسر تركها للرياض (فيديو)
--  لأول مرة.. شركة أوروبية تستخدم الأمونيا النقي كوقود للناقلات البحرية
--  خطة شاملة.. إسناد تشغيل المدارس لشركة تطوير العام المقبل
--  Unos 8.500 vehículos se matricularán en la ciudad en 2024
--  Pepito López, la vida detrás del rostro de Los Labradores
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Numerology: अंक ज्योतिष के अनुसार जानिए 5, 14 और 23 तारीख को जन्मे व्यक्ति के लिए कैसा रहेगा साल 2024
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Rivalry renewed as Greyhounds hold on against Knights
--  Estoril goleia Chaves e abre três pontos da zona de rebaixamento do Campeonato Português
--  "رمت عيالها التوأم في النيل وحصلتهم".. كواليس جريمة بشعة في الجيزة
--  بعد تورط الفنانة لبلبة في التصويت مرتين.. ماذا يقول القانون؟
--  تعيين مدربًا جديدًا لفريق سلة الزمالك خلفًا لـ أحمد مرعي.. صور
--  Có đối tượng tài trợ, lôi kéo người dân đi khiếu nại ở Thái Bình
--  Trump says he will not testify in New York fraud trial
--  La molina de José María Gil; a expensas de las instituciones oficiales
--  Arreglos en la estación de guaguas de Playa Blanca
--  El parque eólico marino Timanfaya; a expensas de la evaluación ambiental
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  Nick McKenzie says the “public deserve to know the truth” with Stan Original Documentary Revealed: Ben Roberts-Smith Truth On Trial
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  «Todo lo que viene de la recogida selectiva se trata correctamente»
--  Exposición 'Mujeres de Tierra y Sal'
--  Miguel Gutiérrez: "Claro que creemos que podemos ganar esta Liga"
--  В Ливане будут закрыты все учреждения и школы в знак солидарности с палестинцами
--  El paro baja en los seis municipios en relación a finales de 2022
--  Muere Anna "Chickadee" Cardwell, de 'Here Comes Honey Boo Boo', a los 29 años
--  El IICA expresa su compromiso para apoyar al nuevo Gobierno de Argentina
--  Fe y Alegría donó juguetes y ropa a niños del hospital Ranuárez Balza en Guárico
--  California coffee shop fires employees involved in antisemitic behavior towards Jewish customer
--  Франція підтримає вступ України до ЄС - Макрон
--  [에이티즈, 美 빌보드 앨범 차트 1위…K-팝 그룹 7번째
--  [중구 한전 지상기기함, 아트갤러리로 변신
--  [물에 잠긴 車, 100m 바다수영해 운전자 구한 이 정체는…‘해양 경찰’이었다
--  [관악구, 내년 상반기 ‘동행일자리’ 415명 모집
--  Turbulent: „Zwei Weihnachtsmänner sind einer zu viel“
--  Reality star Sam Thompson is crowned King Of The Jungle: I'm A Celebrity fan favourite says 'all my dreams have come true' as he beats boxing legend Tony Bellew in the final two after politician Nigel Farage finished third
--  Who is Sean Penn's new Aussie girlfriend? Meet actress Nathalie Kelley, 39, who turned her back on Hollywood to become a climate and indigenous activist... following 63-year-old's split from fellow Australian Leila George, 31
--  Sia admits to liposuction in candid message to fans two months after revealing she had facelift: 'I want to be truthful'
--  PGA Tour selects Fenway group among private investors. More talks planned with Saudis
--  Marlborough 'stop the chop' group disbanded after 20 years
--  Idee make up Natale: beauty tips e idee per un trucco di tendenza
--  권은비, 日 단독 팬미팅 성료…뜨거운 무대+팬서비스 '팬심 저격'
--  '열린음악회' 스테이씨, 상큼 매력+열정 무대로 전한 긍정 에너지
