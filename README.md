@@ -1,11 +1,11 @@
 # Latest News
--  Fed v decembri s najväčšou pravdepodobnosťou úrokové sadzby nezmení
--  Amasya'da kontrolden çıkan tır yan yattı: 2 yaralı
--  Gazzelinin eline silah vererek propagandaya girişen İsrail'in çirkin oyunu deşifre oldu
--  Avrupa basınında gündem Fenerbahçe "Derbinin kahramanı Dusan Tadic"
--  E-basket platform to be ready in the summer
--  Soccerladuma | Chiefs’ Current Transfer Hit Rate
--  Llegan dos cayucos a Gran Canaria y El Hierro con 127 personas
--  El PP culpa al Ayuntamiento de La Zubia de que no haya aún luces de Navidad
--  Vidyut Jammwal’s Himalayan retreat goes viral, fans say ‘Jai Ho Baba Vidyut ki’
--  Nara Lokesh: '3 నెలల్లో ప్రజా ప్రభుత్వం' - అధికారంలోకి వస్తే ఉద్యోగాల కల్పనే ప్రధాన లక్ష్యమన్న నారా లోకేశ్
+-  أيمن يونس: صوتك بالانتخابات الرئاسية يدل على قيمتك في بلدك
+-  '통합축구 올스타전을 빛낸' 베테랑 이창용, 안양서 은퇴할까? "협상 진행 중, 마지막 팀 됐으면..."
+-  이영애도 안 통했다…'열녀박씨' 이세영, '마이데몬'→'마에스트라' 꺾고 흥행 독주 [MD픽]
+-  '입대 D-1' 뷔, 삭발+선글라스 사진 공개…"로망이었다" [종합]
+-  يحيى عبدالله يحيي أغاني التراث من أمام اللجان الانتخابية بشمال سيناء
+-  [“이제훈·윤성빈 무슨 사이?”…알고보니 나란히 ‘착한 기부’ 정부賞 수상
+-  [김기흥 전 대통령실 부대변인, 내년 총선 출마 신호탄 북콘서트 ‘성료’
+-  [경북도, 사이소 매출액 사상 첫 400억원 돌파
+-  300 Rohingya Muslims fleeing Myanmar arrive in Indonesia after weeks at sea
+-  نجوم هوليوود يشاركون أحمد سعد أغنية (وسع وسع)
