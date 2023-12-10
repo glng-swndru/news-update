@@ -1,11 +1,11 @@
 # Latest News
--  Maharashtra: Medical student jumps in front of train to end life in Nagpur
--  اعداء العلم والاسلام يفجرون جامعة مدنية - فيديو
--  DSÖ: Gazze'de hiçbir yer ve hiç kimse güvende değil
--  Putin ve Netanyahu arasında görüşme
--  Başakşehir, Hatayspor'dan 3 puanı 1 golle aldı
--  Gençlerbirliği, Göztepe'den fark yedi
--  «الصحة» العالمية تعتمد قراراً يدعو لإرسال مساعدات فورية إلى غزة
--  تدشين المرحلة الثانية من برنامج الامتياز التجاري
--  9 اتفاقيات لإنشاء مشروعات صناعية ‏في "مجمع لدائن" بصحار بـ88 مليون دولار
--  Bansos UMKM Hingga Rp 4 Miliar Disalurkan di Kabupaten Bandung
+-  אוהד גרנאדה חטף התקף לב ביציע ומת, המשחק מול בילבאו הופסק
+-  Oficial: Deportivo Cali anuncia la salida de Teo Gutiérrez y dos jugadores más
+-  "Днес ще уча каквото искам": едно по-различно училище
+-  Ministerio Economía cree 2024 promete mejores resultado que 2023
+-  Гьозтепе на Станимир Стоилов продължава да мачка в Турция
+-  INDW vs ENGW: Shreyanka Patil, Saika Ishaque Spin Web Around England Batters as India Win by 5 Wickets
+-  Bills head coach Sean McDermott gets roasted on SNL after report claims he used 9/11 attacks as an example of TEAMWORK in 2019 speech
+-  Hat die “Bild” etwa kein Herz für jouwatch?
+-  [TGA 2023] Egy élmény lesz elveszni a Light No Fire gigantikus világában
+-  Bürgermeister gesucht: Bei der Stichwahl in Niederkassel läuft die Auszählung
