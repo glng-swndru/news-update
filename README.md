@@ -1,51 +1,11 @@
 # Latest News
--  Truckonomics: Russia's 2023 HGV Sales Smash Records
--  عُمان قالت كلمتها في مؤتمر المناخ "COP 28"
--  نعم سعادة السفيرة.. صوت عُمان مسموع في واشنطن
--  المقاطعة العُمانية.. وصناعة البدائل المستدامة
--  الطوفان وسفينة المقاومة
--  بلے کے نشان کے بغیر الیکشن ہوئے تو مزید کشیدگی پھیلے گی، تحریک انصاف
--  Viral Video: ఈ కుక్క టాలెంట్ చూస్తే షాకైపోవాల్సిందే..!
--  Radican proyecto de ley que obligaría a candidatos presidenciales a asistir a debates
--  Argentina: Ultraliberalul Javier Milei a depus jurământul în calitate de preşedinte
--  VIDEO: Manchester City teškom mukom slavio kod novog prvoligaša, Chelsea potonuo u Liverpoolu
--  Schaijkse omwonenden A50 zitten in de herrie, maar voelen zich niet gehoord of gezien
--  Live Eredivisie | Heracles mist vanaf stip kans op gelijkmaker tegen Vitesse
--  Descubre qué te tiene deprimido en este test visual, según lo primero que viste
--  Володимир Зеленски разговаря с Виктор Орбан в Аржентина
--  „Ataka prieš Ukrainą buvo klaida.“ Sensacingas pokytis Rusijoje. Ką skelbia propaganda (Video)
--  Karo prezidentas. Trys Putino signalai Vakarams (Video)
--  Xəzər dənizi regionunda iqlim dəyişmələri mövzusunda tədbir keçirildi
--  To ease inflation, Neda backs logistics relief
--  Viering Ouwe Sunderklaas op Texel
--  Τα δόντια του θα διέλυαν και καρχαρία: Ο «τρόμος των ωκεανών» θα σε κάνει να μην ξαναπάς στα βαθιά
--  Rwandans feel 'unfairly denigrated' by battle over asylum plan, say experts
--  Jenrick denies he wants to be Tory leader as he leads Rwanda rebels against Sunak
--  The £200m midfield driving Aston Villa's bid to shock Arsenal and co
--  Earl Spencer says BBC managers are 'hiding behind' lawyers over Martin Bashir's Princess Diana interview
--  How I'm A Celebrity could boost Nigel Farage's political ambitions
--  6 takeaways for England after ODI series defeat to West Indies
--  What the expected interest rate freeze means for your money
--  Rishi Sunak predicted his own party's downfall
--  Blade : pourquoi faut-il suivre de (très) près le chasseur de vampire cette année ?
--  Noël : 5 idées de cadeaux à offrir aux adeptes de pop culture et de beaux livres
--  Le rappeur phénomène Jul sort (encore) un nouvel album
--  Sur YouTube, les créateurs peuvent maintenant mettre en pause les commentaires sur leurs vidéos
--  Soft robotics : les promesses de la robotique molle
--  McDonald's se lance dans l'intelligence artificielle générative avec Google
--  Schwimm-EM: Gold für Bernhard Reitshammer
--  এবার ১৫ দিন ধরে চলবে বই উৎসব
--  Naia passengers reach 41.2M, flights reach 257k in 11 mos
--  Karikó Katalin és Krausz Ferenc átvette a Nobel-díjat (videó) – frissül
--  Hansa Rostock - Schalke 04: Entsetzen nach Fan-Krawallen
--  Fans say ‘action Jackson always fighting’ as Chelsea striker involved in furious brawl after 2-0 defeat at Everton
--  SM-brons för Sundsvallsboxare
--  NG’s Oct gross borrowings soars 23.4% to ₱225B–BTr
--  Північ Донеччини залишилась без електроенергії
--  STRAVA I UŽAS NA HORGOŠU Paleta pala na vozača kamiona, na mestu ostao mrtav
--  Wielkiej Brytanii grozi powrót do różnic w poziome życia z czasów wiktoriańskich
--  Old church in Dorset to undergo 'urgent' roof repairs
--  David Attenborough: Dorset sea monster subject of new show
--  Michelle Mone defends herself & husband in public fightback
--  Bournemouth restaurant told 'major improvement' needed
--  PICTURES: Runton Road's stunning Christmas lights 2023
+-  Азербайджан. "Нефтчи" обыграл "Туран-Товуз". Богомольский снова остался в запасе
+-  Россия. "Оренбург" с Сиваковым и Капленко разошелся миром с "Сочи"
+-  "Славию" покинул Алексей Антилевский
+-  Украина. "Колос" с Золотовым уступил "Черноморцу"
+-  Венгрия. "Диошдьёр" с Климовичем взял верх над "Кишвардой"
+-  Мельников расстался со "Славией"
+-  Руслан Юденков: "Мактаарал" хочет продолжить сотрудничество, но я жду конца года"
+-  IND vs SA, 1st T20I: Durban encounter called off due to persistent rains
+-  Silva, Grealish score as City fight back to beat Luton
+-  Jaclyn Victor, juara segala bintang All Stars Gegar Vaganza
