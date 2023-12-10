@@ -1,11 +1,51 @@
 # Latest News
--  Okula sığınan Filistinliler İsrail'in katliamına uğradı! Hareket edenleri keskin nişancılarla hedef aldılar
--  Alkollü sürücü trafik ışıklarında duran araçlara çarptı
--  Nuh Albayrak yazdı: Bizim de Filistinlilere borcumuz var!
--  '푸르지오'는 부산·인천서 왜 흥행에 실패했을까
--  WWE NXT New Year’s Evil Set for January 2 on USA Network
--  "الأرصاد" يتوقع أمطارًا على مكة وضبابًا على 6 مناطق
--  بعد ساعات من بدء الإيداع.. تنبيه عاجل من حساب المواطن بخصوص دفعة ديسمبر
--  패-패-패…아스널-맨유-B.뮌헨 등 강팀들 잇달아 패배→'12월의 악몽'…텐 하흐 '위태위태'
--  김준호, 호주서 카드 긁다 '도난방지' 전화까지…인증샷 굴욕 [독박투어]
--  '황인범 데뷔골' 즈베즈다, 홈 122경기 무패→ 레알 누르고 세계 신기록 달성
+-  היסטוריה בלאס וגאס: לוס אנג'לס לייקרס מחזיקת גביע ה-NBA
+-  الليلة.. وهابيات تضيء معهد الموسيقي
+-  '런닝맨' 유재석, 스태프까지 울렸다…지석진 환갑 여행서 '눈물의 축사'
+-  “(이)용규 계약합니다…해줘야 할 일 많아요” 영웅들의 리빌딩? 베테랑 존중, 젊다고 능사 아니다
+-  Se reune alcalde con comerciantes en 'Cruzada por tu Mercado'
+-  Entre abucheos, América es finalista
+-  Urge Morena ratificación de Godoy
+-  В Костромской области открыто движение по мосту через реку Мера
+-  NASA Discovers New Galaxy with Potential for Life
+-  School teacher, accountant killed in Chitwan road accident
+-  Two people killed in Arghakhanchi road accident
+-  Điều gì khiến chứng khoán Việt Nam bị khối ngoại bán ròng hơn 19.000 tỷ đồng từ đầu năm 2023?
+-  RPP Nepal CWC meeting today
+-  Nga đã khoét lỗ hổng trong lệnh trừng phạt của phương Tây như thế nào?
+-  Tea industry in a crisis, say stakeholders
+-  Weapon of Choice Streaming: Watch & Stream Online via Netflix
+-  ঘন কুয়াশায় নিয়ন্ত্রণ হারিয়ে আইল্যান্ডে ধাক্কা, নিহত ২
+-  From ‘Accidental Anna’ to Labor legend: The rise of Annastacia Palaszczuk
+-  CNN: Венесуэла и Гайана договорились о встрече на высоком уровне по вопросу региона Эссекибо
+-  High School Football Season Ends With 2A and A Champions Crowned
+-  방심 경계한 김승기 소노 감독 “마음가짐 하나에 승·패 갈려” [MK현장]
+-  [“가상자산 경제적가치 있고, 전자적거래 가능해야”…가상자산 범위확정, NFT·예금토큰은 제외
+-  [尹 정부 에너지정책 홀대?…임기 3개월도 안 된 산업부 장관 총선 차출 가능성[세종백블]
+-  «Колорадо» уступил «Филадельфии», Просветов пропустил пять шайб
+-  শক্ত প্রতিদ্বন্দ্বী নেই, খুলনার ৬টি আসনে নির্ভার আওয়ামী লীগ
+-  춘천문화재단, 공연 플랫폼 축제 '봄식당' 기획안 경진대회 참가자 모집
+-  군 초급간부 연봉 ‘중견기업’ 수준 오른다…2027년까지 최대 30% 인상
+-  Anthony Davis Leads Lakers To NBA In-Season Tournament Title, 123-109 Over Pacers
+-  Более 2,2 тысячи вологжан проверили здоровье на рабочем месте
+-  Администрация Президента РФ похвалила ярославского политика за поддержку
+-  Davis dominates In-Season Tournament Final
+-  Davis dominates In-Season Tournament Final
+-  Davis dominates In-Season Tournament Final
+-  Davis dominates In-Season Tournament Final
+-  Davis dominates In-Season Tournament Final
+-  Davis dominates In-Season Tournament Final
+-  Army holds on with goal-line stand in final seconds, beats Navy 17-11
+-  Lindgren, Capitals power past Rangers to spoil Laviolette's return to Washington
+-  Lautaro Martinez Kandidat Terkuat Peraih Sepatu Emas Serie A Liga Italia
+-  Denker scores 18 in Idaho’s 63-62 win over Utah Tech
+-  은행권, 고금리 자영업자에 최대 150만원 환급 검토
+-  Tokat'ta katliam gibi kaza! Kamyona arkadan çarptı: Beş kişi öldü
+-  [단독] 재벌家 동네에 짓다만 집터…구청은 “허가” 법원은 “무효” [법조인싸]
+-  Ten Hag blasts ‘inconsistent’ Man Utd after Bournemouth misery
+-  Pese al pase a la final la afición abuchea al América
+-  لائبریری سے لی گئی کتاب 119 سال بعد لوٹا دی گئی
+-  Metro prep basketball roundup for Saturday, Dec. 9
+-  В Угличе создатели деревянной крепости спилили музейные липы
+-  From The River To The Sea
+-  BYU basketball: No. 14 Cougars go cold at Huntsman Center, get upset by Runnin’ Utes
