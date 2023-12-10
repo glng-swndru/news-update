@@ -1,11 +1,11 @@
 # Latest News
--  Superioridad rojiblanca antes de la tragedia
--  Cameroun :: Camrail : Trafic Fc Remporte La Coupe Saint Eloi 2023 :: Cameroon
--  Las dos malas noticias que recibió Dani Alves mientras espera el juicio por presunta violación
--  Police ask for public's help as teenager, 14, missing - last seen at Manchester Victoria Station
--  Police ramp up Christmas patrols in Greater Manchester town struck by yob violence this summer
--  Vlasnik tabloida, bivši Stefanovićev čovek: Ko je Aleksandar Papić, koji se dovodi u vezu sa „pismom Vučiću“
--  Nica drži korak sa PSŽ, Obamejang gura sve bolji Marsej
--  El Huesca gana su primer partido en casa, ante el Ferrol
--  رؤية تنوه بشأن تعمق السحب الماطرة نحو مناطق جديدة
--  ITV I'm A Celebrity viewers say same thing moments after Nigel Farage's exit over Sam and Tony moment
+-  Senator Warren calls out Apple for shutting down Beeper’s ‘iMessage to Android’ solution
+-  2023시즌 경정 최강자 가린다…그랑프리 13일 개막
+-  شاهد.. أمطار كثيفة على حي المرجان بجدة (فيديو متداول)
+-  لمساعدة المكفوفين.. مايكروسوفت تطلق تطبيقا يعمل بـ 36 لغة العام المقبل
+-  Russian TV channel makes a huge gaffe by broadcasting appeal to spy for Britain
+-  Ariana Grande Signs New Management Deal After Parting Ways with Scooter Braun
+-  [단독]대한체육회, 스포츠윤리센터 징계안 40%도 이행 안 했다
+-  9 kişi kalan Roma, 1 puanla ayrıldı!
+-  Biden'ın insanlık dışı kararlarını mercek altına aldılar: Yasalar çiğnendi
+-  Girona, deplasmanda Barcelona'yı 4 golle yendi!
