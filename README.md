@@ -1,51 +1,11 @@
 # Latest News
--  No denunciar nos convierte en cómplices de la injusticia
--  समय अगावै फुल्दै लालीगुराँस, लोप हुँदै पैयुँ
--  شادية تصطحب حفيدها في انتخابات الرئاسة: «أصريت أجيبه ليدرك أهمية المشاركة»
--  Les prix des matières premières suggèrent que les vents contraires macroéconomiques mondiaux ne sont pas écartés
--  عاجل.. خطوات تقديم اعتراض حساب المواطن على الدفعة الجديدة 1445
--  بشرى لذوي الهمم.. "مايكروسوفت" تطرح تطبيقًا لمساعدة المكفوفين وضعاف البصر
--  بعد 8 أشهر.. العثور على الطماطم المفقودة في محطة الفضاء الدولية
--  December 15th Releases: ‘ஃபைட் கிளப்’ முதல் ‘கண்ணகி’ வரை.. டிசம்பர் 15 ஆம் தேதி வெளியாகும் படங்களின் லிஸ்ட்!
--  투자혹한기에 200억 투자유치? ... 뭐 하는 ‘금융 스타트업’?[내일은 유니콘]
--  Боевая работа артиллеристов группировки «Восток» под Клещеевкой — видео
--  Ballando con le stelle, Wanda Nara lecca Pasquale La Rocca: “Oggi mi ha detto che sono bellissima” | VIDEO
--  চার ভাষায় ‘খালাস’, যে চরিত্রে দেখা যাবে মোশাররফকে
--  One dies, 29 taken ill after consuming meal at reception
--  Earthquakes and Nepal: From the Beginning
--  Igman dočekuje Tuzlu, hercegovački derbi također na rasporedu
--  올해의 사자성어 ‘견리망의’…“나라 전체가 각자도생 싸움판”
--  12년 제자리 서비스 발전법 의료 영리화 조항 빼고 '속도'
--  핀테크, 자체 신용평가로 고객 넓힌다
--  Олтин ва кумуш арзонлашди, Bitcoin нархи эса ўсишда давом этмоқда - халқаро молия бозори шарҳи.
--  Икки хил полиция идораси ва иккита пул бирлиги амал қиладиган Бойқўнғир – дунёдаги илк космодром қандай қурилган эди?.
--  Thủ tướng: Tạo nguồn lực từ cơ chế, chính sách "thay vì đi xin tiền"
--  Plenković progovorio o Bad Blue Boysima: Objasnio zašto im je država platila jamčevinu
--  Hrvat postao prvak Europe: Pomeo konkurenciju, nanizao ih je sve po redu
--  Drought: Govt goes for broke
--  Экоактивисты окрасили воду Большого канала в Венеции в зелёный цвет
--  Farmers need to grow small grains, sunflower
--  ‘เชาว์’ สวดยับ เหยียบตระบัดสัตย์ขึ้นหัวหน้าพรรค ดักคอ ‘เฉลิมชัย’ 2 โควตารมต.รัฐบาล
--  রিহ্যাবে পাঠানো হয়েছে আদম তমিজী হককে, প্রতিবেদন অনুযায়ী ব্যবস্থা
--  New NS timetable starts today, over 1,800 additional trains per week
--  BSP Chief Announces Nephew Akash Anand As Political Successor
--  Champions Cup ; "Le Stade Toulousain nous a volé quelques trophées !" Un Sud-Africain de La Rochelle rêve de retrouver Toulouse en finale
--  Atwoli wants Ruto to fire Treasury CS Ndung’u
--  Offenbar nicht angeschnallt: Junge Autofahrerin gerät in Gegenverkehr – Notarzt kann nicht mehr helfen
--  Бостон обіграв Арізону, Вегас розгромив Даллас: результати матчів НХЛ
--  İzmir'de 280 düzensiz göçmen yakalandı, 7 organizatör tutuklandı
--  «Проект» проанализировал, когда Путин дистанцировался, а когда нет
--  Etiyopya'dan Türkiye'ye: Kahvenin tarladan fincana serüveni
--  Prvi put otkriveno gde živi Aco Pejović! Raskošna vila u Beogradu vredna 800.000 evra
--  Một người đàn ông chi gần 2.000 tỷ nắm giữ toà tháp cao thứ 3 Tp.HCM
--  예사롭지 않은 독감 환자 확산세...유행 기준으로는 역대급
--  I played alongside ‘genius’ Ballon d’Or contender – he smoked cigarettes in the showers at half-time
--  I played alongside ‘genius’ Ballon d’Or contender – he smoked cigarettes in the showers at half-time
--  საია: 2022 წელს კანონმდებლობა კიდევ უფრო გაფართოვდა სახელმწიფოს უფლებამოსილება თვალთვალსა და მიყურადებასთან დაკავშირებით
--  Bakan Uraloğlu: Dünyada yılın en iyi projesi 1915 Çanakkale Köprüsü oldu
--  [경남도립미술관 소장품 산책] 8. 우리가 이미 알고 있는 가치(과거)로부터 새로움을 창출하는 작가, 김지평
--  Elek ve kalbura çizdiği resimler ile Filistin'deki insanlık dramını anlattı
--  Beyoğlu'nda 12 saat süren hırsızlık
--  Over 300 Rohingya Muslims fleeing Myanmar arrive in Indonesia’s Aceh region after weeks at sea
--  '엑스포 유치 실패' 여론조사서 정부·여당에 차게 식은 PK 민심
--  İsrail'e tepki gösterilerinde ifade özgürlüğünü savunan Pensilvanya Üniversitesi Rektörü baskılar karşısında istifa etti
+-  Yargıtay'dan emsal karar: Okuryazar olmayan kişide attığı imzadan sorumlu olacak
+-  Paredes: ABD, Kanada ve İspanya'yı bırakıp Türkiye'ye odaklanmaya karar verdik
+-  Masallıda yol qəzası - 2 piyada öldü
+-  6/49 LOTTO RESULT Today, Sunday, December 10, 2023
+-  रैथाने उत्पादन प्रवर्धनका लागि हाटबजार
+-  एनिमल की सक्सेस के बीच वायरल हुआ फिल्म का रैप-अप वीडियो
+-  I’m A Celebrity star ‘set to earn MILLIONS’ as they spark bidding war with TV bosses
+-  Candlelight Christmas
+-  Rayo Vallecano - Celta Vigo maçı ne zaman? Saat kaçta ve hangi kanalda? | İspanya La Liga
+-  Pojavili se dokazi: Miroslav Aleksić bio najbliži saradnik Mlađana Dinkića
