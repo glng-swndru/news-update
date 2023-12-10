@@ -1,11 +1,11 @@
 # Latest News
--  Yapay zeka kontrol altına alınacak: AB kararını verdi! Katı kurallar geliyor
--  Beşiktaş'tan Gedson Fernandes ve Umut Meraş açıklaması: Yırtık tespit edildi
--  Cameroun :: Paul Biya Is Back :: Cameroon
--  Cameroun :: Démarrage Imminent De La Construction Du Chemin De Fer Mbalam- Kribi :: Cameroon
--  La Vraie Déstabilisation Du Cameroun: Qui L'eût Crû ? :: Cameroon
--  Śląsk Wrocław dopina zimowy transfer. Skrzydłowy już po testach
--  Champions League: Manchester United gegen den FC Bayern im TV und Livestream sehen
--  مدرب حراس المنتخب الأوليمبي السابق يدلي بصوته في الانتخابات الرئاسية
--  Mayor wants to talk to XR about greening the port of Rotterdam
--  सिन्धुलीका स्थानीय तहमा आधारभूत अस्पताल बन्दै
+-  Fed v decembri s najväčšou pravdepodobnosťou úrokové sadzby nezmení
+-  Amasya'da kontrolden çıkan tır yan yattı: 2 yaralı
+-  Gazzelinin eline silah vererek propagandaya girişen İsrail'in çirkin oyunu deşifre oldu
+-  Avrupa basınında gündem Fenerbahçe "Derbinin kahramanı Dusan Tadic"
+-  E-basket platform to be ready in the summer
+-  Soccerladuma | Chiefs’ Current Transfer Hit Rate
+-  Llegan dos cayucos a Gran Canaria y El Hierro con 127 personas
+-  El PP culpa al Ayuntamiento de La Zubia de que no haya aún luces de Navidad
+-  Vidyut Jammwal’s Himalayan retreat goes viral, fans say ‘Jai Ho Baba Vidyut ki’
+-  Nara Lokesh: '3 నెలల్లో ప్రజా ప్రభుత్వం' - అధికారంలోకి వస్తే ఉద్యోగాల కల్పనే ప్రధాన లక్ష్యమన్న నారా లోకేశ్
