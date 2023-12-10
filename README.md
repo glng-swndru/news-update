@@ -1,11 +1,11 @@
 # Latest News
--  Yargıtay'dan emsal karar: Okuryazar olmayan kişide attığı imzadan sorumlu olacak
--  Paredes: ABD, Kanada ve İspanya'yı bırakıp Türkiye'ye odaklanmaya karar verdik
--  Masallıda yol qəzası - 2 piyada öldü
--  6/49 LOTTO RESULT Today, Sunday, December 10, 2023
--  रैथाने उत्पादन प्रवर्धनका लागि हाटबजार
--  एनिमल की सक्सेस के बीच वायरल हुआ फिल्म का रैप-अप वीडियो
--  I’m A Celebrity star ‘set to earn MILLIONS’ as they spark bidding war with TV bosses
--  Candlelight Christmas
--  Rayo Vallecano - Celta Vigo maçı ne zaman? Saat kaçta ve hangi kanalda? | İspanya La Liga
--  Pojavili se dokazi: Miroslav Aleksić bio najbliži saradnik Mlađana Dinkića
+-  8. yargı paketinin detayları netleşti: Adli para cezaları ve denetimli serbestliği de içeren 105 madde değişiyor
+-  Siyonist baskı Pensilvanya Üniversitesi Rektörünü istifaya sürükledi
+-  Kaip „Šiauliai“ išgyvena penkerius metus nematytą sezono startą?
+-  Спречен нелегален внес на 84 часовници касио и 7650 парчиња накит
+-  티아라 출신 아름, 이혼 및 재혼 발표 "소송 끝나는 대로 결혼"
+-  '티처스' 전현무, 질풍노도 사춘기 시절 고백 "엄마가 그냥 싫었다"
+-  [심층기획] 역대 강원 총선을 통해 본 '신당바람'과 당선가능성
+-  Tuổi xế chiều đầy bình lặng của ca sĩ đầu tiên được phong tặng danh hiệu Nghệ sĩ Nhân dân
+-  11 декабр куни ҳам айрим ҳудудларда қор ёғиши кутилмоқда.
+-  Tether congela wallet presenti in lista SDN di OFAC
