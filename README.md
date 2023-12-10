@@ -1,11 +1,51 @@
 # Latest News
--  Gaziantep FK - Trabzonspor maçı ne zaman? Saat kaçta ve hangi kanalda canlı yayınlanacak? | Trendyol Süper Lig
--  Mondihome Kayserispor 2-0 Siltaş Yapı Pendikspor (MAÇ SONUCU-ÖZET) | Kayserispor'un bileği bükülmüyor!
--  Leijona vaelteli italialaiskaupungin kaduilla – karkasi paikallisesta sirkuksesta
--  Gebrek! Liza Hanim layak jadi juara – Hetty Koes Endang
--  2. Bundesliga, 16. Spieltag:
--  DZ Crack Épisode #5 : Rafik Belghali
--  Zbulohet kur do martohet Dafina Zeqiri, jo më shumë se 100 të ftuar në ceremoni
--  The best kids movies on Netflix right now
--  Human Rights protection fundamental responsibility
--  Zbardhet dosja e inceneratorit të Tiranës, kompjuteri i Klodian Zotos zbërtheu lidhjet e tij me zyrtarët
+-  Kızıldeniz'de tansiyon yükseliyor! İsrail dünyayı böyle tehdit etti
+-  Kartal’dan muhteşem zafer
+-  Clean-up begins after 6 killed, neighborhoods damaged in severe Tennessee storms
+-  Don`t let Bhujbal fulfil dream of creating rift between Marathas & OBCs: Jarange
+-  ‘Bigg Boss 17’: Vicky Jain indulges in a heated argument with Arun & Abhishek
+-  Found: the tomato that was lost in space
+-  De uitslagen, doelpuntenmakers en verslagen van het amateurvoetbal
+-  Video/ Najdovski ngatërron portën, William arrin Tiranën në shtesë: Laçi rikuperon dy gola, për një pikë
+-  İsrailli uzmandan itiraf gibi açıklama: Ordu şaşkına döndü
+-  Galatasaray deplasmanda galip!
+-  İstanbul'da İsrail'in Gazze'ye yönelik saldırıları protesto edildi
+-  Driver arrested during Windsor impaired-driving crackdown
+-  Român tâlhărit de doi travestiți, într-un salon de masaj: „Aveau părul lung și păreau femei”
+-  Μύδροι Τραμπ κατά Μπάιντεν - «Οι κατηγορίες σου άνοιξαν το κουτί της Πανδώρας, πρόσεχε τι εύχεσαι»
+-  «الطيران المدني»: الملاحة الجوية في مطار الكويت الدولي تسير بشكل طبيعي رغم الضباب
+-  ‘충격’ 맨유, 퍼거슨의 21년보다 지난 10년간 PL 홈 경기 패배가 더 많다
+-  “제발 손흥민한테 패스해!”... 토트넘, 뉴캐슬전 앞두고 과거 사진 업로드→ 팬들은 SON ‘기습 숭배’
+-  “제발 손흥민한테 패스해!”... 토트넘, 뉴캐슬전 앞두고 과거 사진 업로드→ 팬들은 SON ‘기습 숭배’
+-  “ 스포츠 매개 협력 강화 문화·교육·관광 교류 확대를”
+-  교수들이 꼽은 올해 사자성어 ‘견리망의’(見利忘義)
+-  강원대·한림대 총장 역임 이상주 전 부총리 별세
+-  도체육회 박광수 감독, 세팍타크로 국가대표 감독 발탁
+-  ‘0.08초차’ 스켈레톤 정승기 월드컵 생애 첫 금
+-  한국스키장경영협 한부모·다문화 가족 초청 스키캠프 성료
+-  2년 만에 또 극적 잔류 드라마…가브리엘 멀티골 팀 살렸다
+-  벼랑끝 격전 직관 강원도민·나르샤 함성 ‘들썩’
+-  [월요마당] 비극 그리고 안전을 위한 책무
+-  [춘천문인협회 회원 시] 나무 타는 냄새는 나를 울린다
+-  [사설] 춘천 주요 현안 연내 마무리해야
+-  [명경대] 12·12 이후
+-  [사설] 자살사망률 3위 안전망 강화를
+-  불수능 성적표 ‘한숨’ 수시 최저등급 걱정에 벌써 재수 고민
+-  도내 외국인노동자 4명 중 1명 ‘탈강원’ 꿈꾼다
+-  가을부터 오락가락…12월 때아닌 봄 날씨 ‘이상기후’ 실감
+-  오늘 양양서 청년과 함께하는 강원농업 미래 워크숍
+-  최철규 강원랜드 사회공헌재단 이사장 활동 돌입
+-  동해~청량리 KTX 첫·막차 29일부터 증편 운행
+-  춘천바이오산업진흥원 ‘공정채용 우수기관 인증’
+-  [알림] 2023년 지역경제세미나
+-  김용욱 농협은행 부행장 임명…중앙회 강원본부장에 김경록
+-  강원농협 도·농 협동 농촌체험학습 ‘호평’
+-  전국산림경영지도 사업 다각화·임업인 소득지원 다짐
+-  춘천 진화기술공사 등 5개 기업 강원특자도 백년기업 인증서 수여
+-  고금리·매수 심리 위축…도내 아파트 낙찰가율 하락
+-  직장후배 신체 만져 추행한 40대 징역형 집유
+-  아내 살해 교통사고 위장 부사관 항소
+-  소주병 들고 경찰차 막아선 ‘케어’ 전 대표 징역4년 구형
+-  아내 유서 쓰도록 강요하고 폭행 일삼은 70대 징역형
+-  “지난밤 마셨는데…” 대낮 음주측정기 불자 ‘면허정지’
+-  주말 강릉 기온 20도 이상
