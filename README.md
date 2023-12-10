@@ -1,51 +1,11 @@
 # Latest News
--  ‘손흥민 리그 3호 도움’ 토트넘, 뉴캐슬에 1-0 앞서(전반 26분)
--  ‘손흥민 멀티 도움’ 터졌다!... 토트넘, 뉴캐슬에 2-0 리드(전반 38분)
--  한미약품 항암신약 ‘벨바라페닙’ 로슈 ‘티센트릭’과도 찰떡궁합
--  جيش الاحتلال يقر بمقتل ضابط في معارك غزة
--  Slávneho herca nafotili s brutálnou KRÁSKOU: Ehm, pred pár mesiacmi sa ešte túlil k inej!
--  Argentína potrebuje reformy, deklaroval po inaugurácii jej nový prezident
--  JELENI KARLEUŠI POZLILO USRED NASTUPA Nastala drama, pevačica se hitno oglasila
--  James Gunn Shares Thoughts On Shazam! Fury Of The Gods’ End-Credits Scene And Whether It Fits Into The DCU
--  Serie A: Επιστροφή στις νίκες για τη Μόντσα, μοιρασιά για Τορίνο και Φροζινόνε
--  News24 | Monday's weather: Rainy start to the week with thunderstorms, hail over parts of SA
--  Collegno Basket sconfitta sul difficile campo di Saronno
--  Zoff: “Allegri è straordinario. L’Inter è più forte ma questa Juventus...”
--  Lo Stoccarda ci prova, il Leverkusen non molla: Xabi Alonso a +4 sul Bayern
--  Giaguari Torino: i risultati delle giovanili
--  Genoa ko, Gila amaro: "Ripresa dominata. Messias con la Juve? Va gestito"
--  Hugo Lindell enda målskytt när VIK Hockey föll
--  Samantha Ruth Prabhu announces her new production house Tralala Moving Pictures
--  Income Tax raids: Jharkhand BJP stages protests demanding arrest of Congress MP
--  Live Ventures to Release Fiscal Full Year 2023 Financial
--  Tuga u Španjolskoj: Navijač preminuo nakon što je doživio srčani udar na utakmici...
--  Kickoff | AmaTuks deny Baroka top spot
--  Terugkeer van de winterkou zit er voorlopig niet in
--  В четырех областях Украины объявили воздушную тревогу
--  Παναθηναϊκός: Με Γκραντ στην 12άδα κόντρα στον ΠΑΟΚ
--  القنابل اليدوية والمقذوفات في المنازل خطر يُهدد حياة الُأسر| كتب علي أحمد غيثان
--  Blinken: Učiniti više na zaštiti civila u Gazi
--  Zəfər Paradı “Tək Yumruq” olduğumuzu göstərən bir gün idi
--  VUČIĆ O POVRATKU MLADIH U SRBIJU: Pozivam sve da se vrate
--  Нови композиции и от девойките за Европейското по художествена гимнастика догодина
--  Zanu PF wins Beitbridge West Parly seat
--  కిక్కిరిసిన బస్సు
--  TS NEWS: జహీరాబాద్‌లో దారుణం.. పసికందు మృతదేహాన్ని పీకుతిన్న కుక్కులు, పందులు
--  Patrik Laine toipunut pelikuntoon – jäällä illan ottelussa
--  Patrik Laine toipunut pelikuntoon – jäällä illan ottelussa
--  – مدير مكتب المرور طرابلس : لم يتم تسجيل حالات غرق لأي سيارة على إمتداد الطريق السريع .
--  مانشستر سيتي يقلب تأخره ويفوز على لوتون تاون في الدوري الإنجليزي
--  بالصور.. رئيس جامعة المنيا يدلي بصوته في الانتخابات الرئاسية
--  لتجنب نزلات البرد.. 3 أطعمة تمدك بـ"فيتامين سي"
--  "كنا نستحق الفوز".. باتشيكو يتحدث عن تعادل بيراميدز مع صن داونز
--  رئيس مجلس القضاء الأعلى يدلي بصوته في الانتخابات
--  المقاومة تنشر مشاهد من التصدي لقوات الاحتلال في بعض مناطق خان يونس
--  Poznati polufinalisti Prve YU Planet Studentske lige
--  Лише люди з винятковим IQ побачать гуску серед лебедів за 10 секунд: нелегка головоломка
--  Evo što vas očekuje na domaćim programima: Svi su šokirani jer su saznali Manuelovu sudbinu...
--  ضبط مواطن بحوزته حطب محلي معروض للبيع في مكة..وباكستاني بـ"شبو" في تبوك
--  هل يلزم حجز موعد عبر أبشر في حالة فقدان الهوية الوطنية؟
--  عاجل.. "دفعة ديسمبر" .. الأكثر تداولا على حساب المواطن (تفاصيل وتنبيهات)
--  Förlust för Hedemora mot formstarka Valbo
--  Förlust för Hedemora mot formstarka Valbo
--  محلل سياسي: في بلدنا فقط تُرتكب الجرائم علناً!
+-  المياه الوطنية: تأهيل وتشغل 4 محطات معالجة بيئية في الرياض
+-  مشهد مروع لحفرة تبتلع سيارة بعاصمة عربية
+-  Unión Eléctrica no pronostica afectaciones por déficit de generación
+-  সিলেট কৃষি বিশ্ববিদ্যালয়ে ঢাবি চলচ্চিত্র সংসদের দশম ক্যাম্পাস স্ক্রিনিং সম্পন্ন
+-  Đoković ili Federer sa 36 godina? "Razlika je velika, Rodžer to nije uradio"
+-  Топ 10 на любимите коледни филми: Защо обичаме да ги гледаме?
+-  Bayer Leverkusen: Xabi Alonso mit Kabinen-Donnerwetter in Stuttgart
+-  Jonstorp starkast – avgjorde i förlängningen mot Nittorp
+-  Omstridde Milei svors in som president
+-  Konya'da akran zorbalığı! 16 yaşındaki genç kız, akranı iki kız tarafından bıçaklandı
