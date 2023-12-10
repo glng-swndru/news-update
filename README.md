@@ -1,11 +1,11 @@
 # Latest News
--  BM'den Gazze'deki kitlesel göçün yayılmasını önlemek için 'acil ateşkes' çağrısı
--  सैन्य इंजीनियरिंग का चमत्कार था ये एयरबेस, न्यूक्लियर अटैक को भी सकता था झेल!
--  Hapšenja u Beogradu, zaplenjeno 130 kg marihuane
--  Жўраева Дилдора Рустамовнанинг қишлоқ хўжалиги фанлари фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Қишлоқ хўжалиги фидойилари тақдирланди
--  Захидова Зулфия Халилуллаевнанинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Омонова Мухлиса Дўстназар қизининг педагогика фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  “Олмазор” oбод масканга айланди
--  Қишлоқ хўжалиги соҳаси ходимлари шарафланди
--  Spirit wint ook in Zeeland
+-  Pliosaur discovery: Gigantic skull of sea monster is found on the cliffs of Dorset's Jurassic Coast
+-  Colombia deroga un decreto que limita las capacidades de la Policía contra el microtráfico
+-  Ratna kalvarija ličkog sela Čanak neraskidivo vezana uz riječke branitelje: Jači i od zime i od agresora
+-  Coraima Gómez pidió no llamar 'clásico' al partido Alianza vs. Universitario en vóley
+-  'Unfair, Really Surprised': Anjum Chopra on Athapaththu going unsold at WPL Auction
+-  I won The Apprentice and this is how much contact we have with Lord Sugar after the series: Harpreet Kaur reveals how often she speaks to the business tycoon
+-  Olivia Rodrigo flashes her toned midriff in a glittering green crop top and flared trousers as she departs Saturday Night Live
+-  ما مصير مدرب أهلي جدة بعد تذبذب النتائج؟ رئيس النادي يرد
+-  The Weeknd dans Fortnite : skins, prix, et plus encore
+-  متى يكون التسجيل في التأمينات إجبارياً للعمال والموظفين؟
