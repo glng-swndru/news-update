@@ -1,11 +1,51 @@
 # Latest News
--  "야마모토 영입 앞서있어"… 다저스, 오타니 이어 NPB 최고투수까지 품나
--  ‘8시즌 연속 10골+’ 손흥민, EPL 역사상 7번째 인물이 되다
--  '진행 시켜'… '속보' 오타니 영입한 다저스, 양키스와 트레이드 추진
--  오타니가 떠난 빈자리 日 최고 투수가 채운다?…"야마모토, LAA에서 에이스 역할 할 수 있다"
--  "두 가지 게임을 한다는데..." 오타니 계약 뒷이야기, 그래서 다저스는 더 데려오고 싶었다
--  As bodas de diamante da Declaração Universal dos Direitos Humanos
--  Plan pour rétablir l'autorité parentale: "Condamner pénalement quelqu'un parce que son fils a fait quelque chose me paraît difficile dans un État de droit", réagit Frédéric Péchenard (LR)
--  Plan pour rétablir l'autorité parentale: "On responsabilise les parents", déclare Maud Bregeon (Renaissance)
--  Plan pour rétablir l'autorité parentale: "Ceux qui sont ciblés, ce sont les familles les plus précaires", dénonce Benjamin Lucas (Générations)
--  Projet de loi immigration: "Sur la régularisation des sans-papiers, on arrive à un compromis", affirme le député Renaissance Christophe Weissberg
+-  CJ그룹 인사 '초읽기'…오너 4세 이선호 경영보폭 주목
+-  '협력 아시아' 렌탈가전 빅4, 동남아 '러시'…말레이시아 승부
+-  تعرف على الأسباب الرئيسية لألم البطن
+-  مفاجأة صادمة بالبيت الأبيض.. هذا ما كشفه عن مخزون الأسلحة والذخيرة
+-  ديبالا يتعرض للإصابة ويغادر الملعب
+-  Victoria Pearls off the mark in T20 Women’s World Cup Qualifiers in Entebbe
+-  What happens to your health if you stop having sex?
+-  İç Çamaşırlarıyla Dikkat Çeken Kadın, Kadıköy’de Yeniden Yürüdü!
+-  Официјално: Митрески ќе биде нов спикер, а Зечевиќ шеф на изборниот штаб на СДСМ
+-  61% من الأميركيين لا يوافقون على سياسة بايدن تجاه الحرب على غزة
+-  قوات الاحتلال تقتحم بلدة يعبد غرب جنين
+-  Dit zijn finalisten van Expeditie Robinson
+-  עדיין מושלמת: עירוני רמת גן הביסה 71:94 את עירוני קרית אתא
+-  Accordeonata schenkt podium aan Dorpshuis Lekkerkerk
+-  Trabajadores del Banco de la Nación anuncian paro de 24 horas
+-  Po kibernetinės atakos KTU kreipsis į policiją
+-  Un inel în valoare de 750.000 de euro, dispărut în hotelul Ritz din Paris, a fost găsit în sacul unui aspirator
+-  FC Bayern: Matthäus kritisiert Kimmich und wirft Tuchel „Ausrede“ vor
+-  FC Bayern: Matthäus kritisiert Kimmich und wirft Tuchel „Ausrede“ vor
+-  Biden kutsui Zelenskyin Valkoiseen taloon
+-  هتخلي الكحة مستمرة.. 5 أخطاء شائعة ابتعد عنها عند الإصابة بنزلات البرد
+-  Ο Νετανιάχου καλεί τη Χαμάς να παραδοθεί: «Αυτή είναι η αρχή του τέλους τους»
+-  KRIJE SE! Oglasila se sestra Bojane Pavlović i raskrinkala njenu devojku iz spoljnog sveta, skandal neviđenih razmera
+-  Ratificación de Ernestina Godoy: ¿Cuándo se define su futuro en la Fiscalía de CDMX y qué necesita?
+-  جيرونا يضيف الهدف الثاني في شباك برشلونة
+-  Man (20) fietst zonder licht op snelweg bij Waalwijk, tot grote schrik van automobilisten
+-  Gevaar AI is niet geweken ondanks nieuwe regels vanuit Brussel: ‘Een veelkoppig monster’
+-  Gevaar AI is niet geweken ondanks nieuwe regels vanuit Brussel: ‘Een veelkoppig monster’
+-  The UN’s net-zero food plan to save the 1.5-degree goal, combat climate ‘doomisim’ — Global Issues
+-  Bakasetas: Maç 6-7'ye giderdi
+-  Rusya: İsrail'in Hamas'ı gerekçe göstererek Filistin halkını toplu cezalandırması kabul edilemez
+-  Trezeguet: Bana gol atacaksın demişti
+-  Gary Lineker'den çarpıcı VAR açıklaması!
+-  FOTO Prvi Bradleyji krenuli iz Rijeke u Slavonski Brod
+-  نتائج قرعة ربع نهائي كأس ألمانيا
+-  Kort möte för Zelenskyj och Orbán
+-  Kort möte för Zelenskyj och Orbán
+-  Miguel Gutiérrez adelanta de nuevo al Girona
+-  L'afició del Girona es fa sentir a Montjuïc
+-  Betta Edu: Tinubu Made Great Choice For The Poor – Reps Deputy Spokesman
+-  Partizan 1949 i Mornar 7 u četvrtfinalu
+-  Motosikletlinin ölümüne sebep olan alkollü sürücü tutuklandı
+-  Байдън покани Зеленски на среща в Белия дом във вторник
+-  'GCC-China FTA soon; plans afoot to upgrade pact with Singapore'
+-  Desenho original de Astérix fica sem comprador por problema legal
+-  James Cameron helped Titanic save “a million dollars” by casting short extras
+-  وكالة الأنباء الفلسطينية: عشرات القتلى في مخيم جباليا ومستشفيات خان يونس تواجه المزيد من الضغوط
+-  Princess Eugenie on working and parenting: ‘I tend to scream into a pillow’
+-  Biden će u utorak ugostiti Volodimira Zelenskog
+-  Srpsko nacinalno veće Kosova i Metohije: Crni božur Vučiću, Srpskoj listi i Rakočeviću
