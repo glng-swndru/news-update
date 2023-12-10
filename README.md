@@ -1,51 +1,11 @@
 # Latest News
--  BVB-Fans protestieren gegen DFL-Investor: Watzke will bei Scheitern eigenen Weg gehen
--  Stream It Or Skip It: ‘Yes, Chef! Christmas’ On Lifetime, Where Tia Mowry Cooks Up Some Holiday Cheer, And Also Cake Boss Is There
--  Bergüzar Korel Seda Sayan'ın izinden gidiyor! 'Ben çorap kadınıyım'
--  Dirk Kuyt maakt einde aan geruchten: in het geheim getrouwd met Kate Ruinemans
--  HS basketball player, older brother beat up coach after game for getting benched
--  Refus d'obtempérer en Seine-et-Marne: après le passager, le conducteur du scooter est également décédé
--  Krieg in Nahost: Hunger quält Menschen in Gaza ‒ Israel sieht Hamas angezählt
--  బావాజీనగర్‌లో కార్డెన్‌సెర్చ్‌
--  2023 Nobel Ödülleri sahiplerini buldu
--  Fenerbahçe, TFF'ye rapor gönderdi! Hakem Atilla Karaoğlan..
--  İstanbul'da fahiş fiyatla satış yapan ekmek fırınlarına tutanak
--  «Краснодар» ни потерпел ни одного домашнего поражения в РПЛ в 2023 году
--  Eyüpspor: Bu ligde herkesin herkesi yenebileceğini görmüş olduk
--  İrfan Buz: Net bir skorla kaybettik
--  ఈ వారం వివిధ కార్యక్రమాలు 11 12 2023
--  Футболисты "Краснодара" вышли в лидеры чемпионата России
--  ნიკა მელია: ეს ქვეყანა არ დარჩება ივანიშვილისად და ვერ გახდება კეზერაშვილ-მერაბიშვილის
--  గుట్టలో భక్తుల కోలాహలం
--  Wisła Kraków: Dwa kluby zainteresowane Ángelem Rodado. Jeden z Ekstraklasy
--  Sopić: Onaj tko nije naučio gubiti, neka doma štrika
--  1,61,628
--  Vulin opet prijeti: Vrijeme je da se formira 'srpski svet'
--  ‘토트넘 올시즌 첫 PK 성공자’ 손흥민 여유 “케인 다시 불러줄까”
--  S’ka punëtorë, biznesi thirrje: Hapni ambasadë në Indi dhe Bangladesh
--  Associations : l’ARP accorde des privilèges fiscaux
--  Jamie Carragher aims dig at Chelsea fans after they lose to Everton
--  Ministrul de Finanțe, sub presiune la final de an. Liberalii cer finanțare pentru investiții publice și decontarea facturilor la lucrări
--  120 Weinsorten an einem Abend beim Remstaler Weintreff
--  Zavidovići nekadašnji hotel Kristal u plamenu
--  Serbija atidarė dujotiekį, kad sumažintų priklausomybę nuo rusiškų dujų
--  Eurolygos klubų mūšyje Italijoje – „Emporio Armani“ pergalė
--  هذا ما يحدث لك عند استعمال الهاتف المحمول لأقل من ساعتين يوميًا
--  Trump à frente de Biden para eleições presidenciais de 2024
--  Црвено-бели гостују Меги (понедељак, 18)
--  "لدعم غزة"... دعوةٌ من بيرم
--  رئيس الأرجنتين الجديد يصدم مواطنيه.. لا مال لدينا ولابد من إصلاح مؤلم
--  Horoscop luni, 11 decembrie. O zodie vrea răzbunare. Scorpionii primesc un avertisment
--  Bryan Adams über Begegnung mit Prinzessin Diana
--  Ace Steel On The Aftermath of All Out Brawl, CM Punk’s WWE Return
--  Ananya Pandey : నవ యవ్వనం
--  Emprender siendo estudiante: Cinco pasos para comenzar tu propio negocio
--  Libra Daily Horoscope Today, December 11, 2023 advices money management
--  Omladinski lideri/ke u zajednici – Lokalni omladinski servisi u ZDK
--  El categórico comentario de Jorge Rial sobre la complicidad entre Cristina Fernández y Javier Milei durante la asunción
--  Kayseri'de inşaat iskelesinin çökmesi sonucu 3 işçi yaralandı
--  3 gündür haber alınamayan yaşlı adamdan üzen haber
--  Доктор медицинских наук объяснил, чем грозит физическая нагрузка при минусовой температуре
--  Dignity, freedom and justice for all
--  Pucano na automobil na putu Peć-Rožaje: Uhapšene dvije osobe zbog pokušaja ubistva
--  Luca Banchi: Nel finale punto a punto le recriminazioni sono molte
+-  Programa Recytec recolhe mais de 75 toneladas de resíduos eletrônicos em Mato Grosso
+-  Bijnor News: गन्ना पेराई की रफ्तार से गेहूं बुवाई ने पकड़ी तेजी
+-  Bijnor News: बिजली लाइनों का कायाकल्प, नए तारों में सरपट दौड़ेगा करंट
+-  Bijnor News: एक करोड़ 75 लाख क्विंटल का लगाया अतिरिक्त गन्ना सट्टा
+-  Bijnor News: बेमिसाल प्राकृतिक सौंदर्य का स्थल है रामगंगा बांध परियोजना
+-  Bijnor News: बेवफा निकला प्रेमी, महिला ने की आत्मदाह की कोशिश
+-  Bijnor News: टॉर्च जलाकर इलाज कराने का उप मुख्यमंत्री ने लिया संज्ञान
+-  Bijnor News: एक साथ उठी दंपती की अर्थी, हर आंख हुई नम
+-  Bijnor News: प्राचीन कुएं की दीवार के विवाद में दो पक्षों में संघर्ष
+-  Bijnor News: न्यायाधीशों की टीम ने क्रिकेट में डीएम इलेवन को हराया
