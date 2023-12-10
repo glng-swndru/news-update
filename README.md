@@ -1,11 +1,51 @@
 # Latest News
--  Ex-NUPENG Leader Reveals Kokori’s Last Wish For Nigeria
--  Premier League: Manchester City schlägt Luton - Chelsea verliert gegen Everton
--  Premier League: Manchester City schlägt Luton - Chelsea verliert gegen Everton
--  Sexuelle Gewalt verharmlost? ZDF wirft Böhmermann-Sendung aus Mediathek
--  'PSV oriënteert zich op 'extra zes', Babadi mogelijk in gesprek met andere clubs'
--  שר לשעבר בממשלת חמאס לתושבי עזה: "תתנגדו לחבורת סינוואר, תנו לנו לחיות"
--  전설이 된 손흥민, 8시즌 연속 EPL 두자리숫자 득점 달성
--  ‘골-도움 만능’ 손흥민, EPL 홈페이지 메인도 점령[토트넘-뉴캐슬]
--  2골 넣은 히샬리송 있어도 손흥민 압도적 득표로 MOM 선정
--  جولة مسائية لمحافظ أسوان للاطمئنان على سير العملية الانتخابية
+-  BVB-Fans protestieren gegen DFL-Investor: Watzke will bei Scheitern eigenen Weg gehen
+-  Stream It Or Skip It: ‘Yes, Chef! Christmas’ On Lifetime, Where Tia Mowry Cooks Up Some Holiday Cheer, And Also Cake Boss Is There
+-  Bergüzar Korel Seda Sayan'ın izinden gidiyor! 'Ben çorap kadınıyım'
+-  Dirk Kuyt maakt einde aan geruchten: in het geheim getrouwd met Kate Ruinemans
+-  HS basketball player, older brother beat up coach after game for getting benched
+-  Refus d'obtempérer en Seine-et-Marne: après le passager, le conducteur du scooter est également décédé
+-  Krieg in Nahost: Hunger quält Menschen in Gaza ‒ Israel sieht Hamas angezählt
+-  బావాజీనగర్‌లో కార్డెన్‌సెర్చ్‌
+-  2023 Nobel Ödülleri sahiplerini buldu
+-  Fenerbahçe, TFF'ye rapor gönderdi! Hakem Atilla Karaoğlan..
+-  İstanbul'da fahiş fiyatla satış yapan ekmek fırınlarına tutanak
+-  «Краснодар» ни потерпел ни одного домашнего поражения в РПЛ в 2023 году
+-  Eyüpspor: Bu ligde herkesin herkesi yenebileceğini görmüş olduk
+-  İrfan Buz: Net bir skorla kaybettik
+-  ఈ వారం వివిధ కార్యక్రమాలు 11 12 2023
+-  Футболисты "Краснодара" вышли в лидеры чемпионата России
+-  ნიკა მელია: ეს ქვეყანა არ დარჩება ივანიშვილისად და ვერ გახდება კეზერაშვილ-მერაბიშვილის
+-  గుట్టలో భక్తుల కోలాహలం
+-  Wisła Kraków: Dwa kluby zainteresowane Ángelem Rodado. Jeden z Ekstraklasy
+-  Sopić: Onaj tko nije naučio gubiti, neka doma štrika
+-  1,61,628
+-  Vulin opet prijeti: Vrijeme je da se formira 'srpski svet'
+-  ‘토트넘 올시즌 첫 PK 성공자’ 손흥민 여유 “케인 다시 불러줄까”
+-  S’ka punëtorë, biznesi thirrje: Hapni ambasadë në Indi dhe Bangladesh
+-  Associations : l’ARP accorde des privilèges fiscaux
+-  Jamie Carragher aims dig at Chelsea fans after they lose to Everton
+-  Ministrul de Finanțe, sub presiune la final de an. Liberalii cer finanțare pentru investiții publice și decontarea facturilor la lucrări
+-  120 Weinsorten an einem Abend beim Remstaler Weintreff
+-  Zavidovići nekadašnji hotel Kristal u plamenu
+-  Serbija atidarė dujotiekį, kad sumažintų priklausomybę nuo rusiškų dujų
+-  Eurolygos klubų mūšyje Italijoje – „Emporio Armani“ pergalė
+-  هذا ما يحدث لك عند استعمال الهاتف المحمول لأقل من ساعتين يوميًا
+-  Trump à frente de Biden para eleições presidenciais de 2024
+-  Црвено-бели гостују Меги (понедељак, 18)
+-  "لدعم غزة"... دعوةٌ من بيرم
+-  رئيس الأرجنتين الجديد يصدم مواطنيه.. لا مال لدينا ولابد من إصلاح مؤلم
+-  Horoscop luni, 11 decembrie. O zodie vrea răzbunare. Scorpionii primesc un avertisment
+-  Bryan Adams über Begegnung mit Prinzessin Diana
+-  Ace Steel On The Aftermath of All Out Brawl, CM Punk’s WWE Return
+-  Ananya Pandey : నవ యవ్వనం
+-  Emprender siendo estudiante: Cinco pasos para comenzar tu propio negocio
+-  Libra Daily Horoscope Today, December 11, 2023 advices money management
+-  Omladinski lideri/ke u zajednici – Lokalni omladinski servisi u ZDK
+-  El categórico comentario de Jorge Rial sobre la complicidad entre Cristina Fernández y Javier Milei durante la asunción
+-  Kayseri'de inşaat iskelesinin çökmesi sonucu 3 işçi yaralandı
+-  3 gündür haber alınamayan yaşlı adamdan üzen haber
+-  Доктор медицинских наук объяснил, чем грозит физическая нагрузка при минусовой температуре
+-  Dignity, freedom and justice for all
+-  Pucano na automobil na putu Peć-Rožaje: Uhapšene dvije osobe zbog pokušaja ubistva
+-  Luca Banchi: Nel finale punto a punto le recriminazioni sono molte
