@@ -1,11 +1,11 @@
 # Latest News
--  Remake-et kap a Brothers: A Tale of two Sons indie kaland
--  Génocide contre les palestiniens : L’Administration Biden trempée
--  Bateau percuté et canon à eau déployé : bataille navale entre la Chine et les Philippines
--  Sebastian Fabijański wyśmiany po gali Fame MMA. Internauci w formie [MEMY]
--  [ŽT] Košmaras rusų užnugaryje. Ten buvo Rusijos armijos vadovybė, daug technikos, amunicijos ir degalų. Ką padarė SBU (Video)
--  [ŽT] Rusams į rankas pateko ypatingas „Leopard-2A4“. Tokia įranga montuojama tik nuo 2023 metų liepos (Video)
--  „Nepaprastai sveika daržovė.“ Sulėtina virškinimą, apsaugo nuo diabeto
--  Mokslininkai patobulino kalėdinę eglutę, kad po švenčių reikėtų mažiau tvarkytis
--  [ŽT] 5 NATO straipsnio aktyvavimas. Galingas Vašingtono pareiškimas
--  „Puola desantas su BMD-4.“ Audra už Dniepro. Daugybė „200“ ir „300“ (Video)
+-  نائب المدير التنفيذي للعمل الإنساني في اليونيسف: لا مكان آمنا في غزة الآن ولا بد من وضع حد لهذا الجنون
+-  Soccerladuma | Who Is The Signing Of The PSL Season?
+-  Soccerladuma | Man Utd Put Three 'Highest Earners' Up For Sale
+-  BBC Strictly Come Dancing viewers 'shocked' as spoiler reveals bottom two, 'sad' exit and three finalists
+-  Četvorica mladića u Puli napali vršnjaka, tukli ga pa vozili u prtljažniku, prijavljeni su zbog nasilja
+-  الجيش الإسرائيلي: مدفعيتنا موجودة داخل قطاع غزة لأول مرة منذ بدء العملية البرية
+-  Об аварии на трубопроводе отчитался аким Актау
+-  Weather warning issued for Greater Manchester ahead of Storm Fergus
+-  Corona-Zahlen im Landkreis Teltow-Fläming aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Spree-Neiße aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
