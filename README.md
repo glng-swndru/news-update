@@ -1,11 +1,51 @@
 # Latest News
+-  جيوش الذباب تجتاح دولة عربية
+-  دوام جزئي وراتب يومي.. "ناقل إكسبريس" تعلن حاجتها لموظفين
+-  أستاذ علم اجتماع: اصطحاب الأطفال للجان الانتخاب يغرس فيهم الإيجابية والمشاركة
+-  عروسان يتركان حفل زفافهما للمشاركة في الانتخابات الرئاسية بالأقصر
+-  غرفة عمليات الانتخابات الرئاسية بنقابة الصحفيين تتلقى 3 شكاوى
+-  بالزفة.. عروسان يدليان بصوتيهما في الانتخابات الرئاسية بقنا
+-  موظفو المصرية للمطارات يدلون بأصواتهم بالانتخابات الرئاسية
+-  بالصور.. عريس وعروسة يدليان بصوتيهما في واحة الخارجة بالوادي الجديد
+-  الصليب الأحمر: سقوط قتلى ومصابين في هجوم على قافلة إنسانية أثناء إجلاء مدنيين في السودان
+-  إغلاق باب التصويت في اليوم الأول للانتخابات الرئاسية.. ومحافظ الدقهلية يشكر المواطنين
+-  Papa pozdravio napore za normalizaciju odnosa između Jermenije i...
+-  Производители оружия заявили о глобальном дефиците пороха
+-  آزاد کشمیر میں انسانی حقوق کی وزارت قائم کریں گے، انسانی حقوق کے عالمی دن کے موقع پر صدر آزاد کشمیر بیرسٹر سلطان محمود کا پیغام
+-  Expert om årets Nobelmeny: Härligt obstinat
+-  [아름다운가게] 13일 창원서 장애인 리폼 의복 패션쇼
+-  한빛라이온스클럽 장애인체육상 도지사 표창
+-  [희망을 잇다] 김유상·송재석·최정헌 김해시의원 동참
+-  "Fenêtre sur la Palestine" à la 6ème édition du Festival du Film d'El Gouna
+-  Israeli farmers are watching their life's work being destroyed
+-  [새얼굴] 조대익 마산공고 총동창회장
+-  경남교육청 〈어른 김장하〉 영화 관람
+-  경남교육청·두산연강재단 장학금 지급
+-  창원 사파중 도서관 '나혜림 작가와 만남'
+-  "İsrail, Hamas'ın Silah Gücü Karşısında Şaşkın"
+-  المركز الوطني للأرصاد يطلق المرحلة الثالثة من البرنامج التوعوي بالمناخ
+-  OPS To CBN: Fix Customs Duty Rate At 20%l Less Than Official Exchange Rate
+-  Strictly’s Vito Coppola in tears over Ellie Leach’s beautiful confession
+-  POTRESAN SNIMAK IZ VETERINARSKE AMBULANTE U BEOGRADU Prestravljen pas cvili, a devojka u poslednjem trenutku uspeva da ga spasi eutanazije: Pozadina ove priče je sve razbesnela (VIDEO)
+-  Israel: OMS aprova resolução que apela a ajuda humanitária imediata para Gaza
+-  Roma, Dybala costretto al cambio: Mourinho in ansia
+-  تراجع سعر الدولار واليورو والاسترليني في ختام تعاملات السوق الموازي
+-  Forensics team spotted combing Scots street as police cordon in place
+-  بينهنّ رضيعات.. الاحتلال الإسرائيلي يحتجز 142 فلسطينية من غزة
+-  Kareem Hunt touchdown gives Browns 21-7 lead over Jaguars
 -  Edin Visca: Trabzonspor'da çok mutluyum
+-  По заветам «Ливерпуля»: гол Кривцова на 90-й минуте принёс «Краснодару» победу над ЦСКА в 18-м туре РПЛ
+-  Texans cut Jets lead to 14-6 on final play of third quarter
+-  Bell-Haynes castiga las desconexiones azulgranas
 -  Remplacement des membres de la CENA par Macky Sall: les griefs de la Commission de la CEDEAO
+-  Sevens champs lap up pool party
+-  Sevens champs lap up pool party
 -  Accusation de financements qataris : Mimi Touré blanchit Ousmane Sonko
--  Βαθμολογία Basket League: Έκανε το 10/10 με δυσκολία ο Παναθηναϊκός
--  Las reacciones políticas a decreto que deroga multas a consumidores de drogas
--  How Cute Will Jemima Osunde Look In A K-Drama? Find Out Here
--  Gunners juara Brunei Fastpitch Softball Open 2023
--  కంభం చెరువుగట్టుపై కాపుల వనభోజనాలు
--  حملة فريد زهران: التغطية الإعلامية لانتخابات الرئاسة التزمت بالحياد والموضوعية
--  ‘Pianoforte’ Goes Inside A Heart-Pounding Music Competition Where Young Performers Confront “High Stakes And High Emotions” – Contenders Documentary
+-  Kovaçevski: Nëse VMRO nuk propozon ministrat e saj në qeverinë teknike, lë njollë në procesin zgjedhor
+-  Nueva imprudencia al volante en Tenerife: todo por un vídeo
+-  Abdullah Avcı: "Geçen haftaki mağlubiyetten sonra deplasmanda kazanmak çok önemli"
+-  Sophia Thomalla und Alex Zverev sind Weihnachten im Flugzeug
+-  VLADIMIR ORLIĆ NA INAUGURACIJI PREDSEDNIKA ARGENTINE: Za nastavak jačanja tradicionalnog prijateljstva (FOTO)
+-  Bu tuvalet kağıdı numarası ,tüm banyonuzu tazeleyecek ve tüm gün güzel kokmasını sağlayacak:
+-  Awantura w TVP Info. "Ja nie chcę kąsać kolegów z TVN-u"
+-  Village in Ireland hit by ‘possible tornado’ as homes and cars seriously damaged
