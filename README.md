@@ -1,51 +1,11 @@
 # Latest News
--  Фарғонадаги хонадондан 79,2 минг дона пиротехника воситалари топилди.
--  Электр ва иссиқлик таъминоти учун масъул бўлган икки муҳим обектга табиий газ етказиб бериш имкониятлари яхшиланди.
--  «Ливерпул»да яна камбэк, «Бавария» Франкфуртда хўрланди, «Реал» тўхтатилди. Кун ўйинлари.
--  Στο “Αμμόχωστος” με μοναδικό στόχο το “διπλό”
--  Adiba Khanza Resmi Menikah dengan Egy Maulana Vikri, Penuh Haru
--  보령교육지원청, 조리실무사외 4개 직종 24명 교육공무직원 신규채용
--  대천2동 자율방범대, 연말 맞아‘컵라면 50박스’기탁
--  인구감소! 지방소멸! 농공단지 활성화 ‘한목소리’
--  당진시민축구단 ‘플레이 투게더상’ 수상
--  당진시 합덕읍 지역사회보장協, 장학금 전달
--  김기웅 서천군수, 마량위판장 물김 초매식
--  한밭대, 지역 전략산업 멘토링 Lab 운영 협의체 구성
--  충남대병원 정현태 상임감사, ‘NO EXIT’ 캠페인 동참
--  대전평생교육진흥원, ‘사랑의 빵’ 나눔
--  대전세종관광기업 성과공유회 및 관광두레 이음데이 개최
--  대전문화재단, 예술기부활성화를 위한 '후원자의 날' 성료
--  대전대, 대학혁신지원사업 성과공유회 개최
--  대전과학기술대, 산학클러스터 워크숍 개최
--  대전 창업열린공간, 성과보고회 및 패밀리 Day 개최
--  건보공단, 노인보호전문기관과 간담회 개최
--  최민호 세종시장 시민체감형 정책 빛났다
--  금산교육지원청 2024학년도 초등학교 입학생을 위한 예비보호자 교육
--  건양대 간호대학 양선이 교수 국제학술대회 ‘Best Abstract Award’ 수상
--  제42회 금산세계인삼축제 내년 10월 3일부터 13일까지 11일간 개최
--  건양대 간호대학 석사과정 마친 중국 유학생 17명 발전기금 기탁 및 스승 위해 사은행사
--  전국 도시가스사 동절기 안전대책 회의
--  친명계 장기수 국회공직자윤리위원 출판기념회 성료
--  상명대, 가족참여 재미있는 창의형 AI·SW 충남지역 초등캠프 성료
--  천안시-충남교육청-천안교육지원청, 행복교육지구 2기 협약 체결
--  천안시-충남교육청-천안교육지원청, 다함께돌봄센터 확충 ‘손잡아’
--  천안시, ‘충청남도 드론 영상·사진 공모전’ 우수상 수상
--  천안 원도심 도시재생 마스터플랜 수립용역 최종보고회 개최
--  비단고을그린케어 금산군 제원면 국화차 기탁
--  Stroese natuurliefhebber vindt volop leven in dood bos
--  ‘มาริโอ้’ เผยรัก 9 ปี มีแพลนแต่งงานหรือไม่ ?
--  ‘สุระ’ วอนทุกฝ่ายต้องตกผลึกก่อนแก้รัฐธรรมนูญ
--  Gaabor will Launch New Products on December 12
--  “다른 사람은 몰라도 제주도민들 만큼은 기억해야죠”
--  10 декабрь — Ўзбекистон Республикаси Давлат мадҳияси қабул қилинган кун
--  Texas verklagt Pharmakonzern Pfizer wegen falscher Behauptungen zu Corona-Impfstoffen
--  Genç kadın evinin balkonunda ölü bulundu
--  Soccerladuma | 'Protect The Young Baartman!'
--  34 אלף שקל פחות: עוד יבואנית חשמליות מורידה מחירים
--  Destinasi Ekowisata dengan Pemandangan Misterius
--  អាមេរិក រារាំងការអំពាវនាវ ឲ្យមានបទឈប់បាញ់ នៅហ្គាហ្សា
--  ¿Ecoansiedad? La COP28 tiene un lugar prohibido para hablar de cambio climático
--  Дали ова треба да се примени и за киднаперите на Вања? Со „Законот на Тијана“ во Србија за убиство на дете следува доживотен затвор
--  KPGA(한국프로골프협회)의 정권교체? 재벌 총수 구자철 제치고 회장에 오른 ‘평민’ 김원섭
--  “최전방 부대 연봉 중견기업 수준으로”…2027년 소위 4990만원
--  중국, 필리핀과 남중국해서 ‘충돌’…어선에 물대포 대응
+-  Hayvanlar üzerinde test ettiği projeyle kanser hücrelerini yok etti
+-  Jesús Reyes Heroles, un político de razón
+-  Dakshina Kannada police unearth bitumen siphoning racket, arrest 10
+-  مدير عام اليونيدو: «COP28» يقدم حلولاً للتنمية المستدامة في البلدان النامية
+-  Foreign national held with six kg gold from TIA
+-  Nicolás Casariego, escritor, autor de 'Rayografía': "La modestia no está de moda hoy en día. Ni en el fútbol ni en nada”
+-  अप्पर सोलु हाइड्रोको आठौं वार्षिक साधारण सभा पुस २६ मा
+-  সোমবার স্পট মার্কেটে যাচ্ছে ইস্টার্ণ কেবলস
+-  India's power consumption grows nearly 9% to 1,099.90 billion units in April-November
+-  Severe storms kill six, injure 23 in US
