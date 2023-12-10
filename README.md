@@ -1,51 +1,51 @@
 # Latest News
--  I migliori smartphone 'entry level' da regalare a Natale
--  Per Natale regala un orologio o uno smartwatch in super offerta
--  In cerca di un regalo originale per Natale? Impastatrici, macchine del caffè e frullatori a prezzi eccezionali
--  승리 세리머니로 ‘케이로스 감독 몸짓’ 따라한 GK→'빼박증거'에 뉴캐슬 팬들 ‘극대노’→GK는 평생 ‘뉴캐슬 라이벌’팀 전전 ‘한이 맺혔다’
--  방탄소년단 RM·뷔, 오늘(11일) 입대…국방의 의무 다한다 "챕터 2 기대해달라" [MD이슈](종합)
--  이동건 7세 딸 로아, 이별에 눈물 뚝뚝…"아빠랑 헤어지니까 속상해" 스튜디오 '눈물' [미우새](종합)
--  지로나, 바르셀로나 원정서 4-2 격파→프리메라리가 선두 등극
--  그렇게 수원만 강등이 됐다
--  라트비아서 사망…故 김기덕 감독, 오늘(11일) 3주기
--  세븐틴 에스쿱스, 유기동물 보호소에 5천만원 기부…"따뜻한 손길 감사"
--  Aitken Spence Travels welcomes three cruise ships in a single day at Colombo Port
--  There IS time for a pre-party tweakment!
--  Są informacje o stanie zdrowia Masternaka. Poważny uraz, lekarz reaguje
--  'Bullsh*t': MP's scathing response to pushback over highway tunnel saga
--  Rams' 37-31 road loss in overtime to the Baltimore Ravens by the numbers
--  Czat inwestorski z Baked Games
--  Roma s dva crvena kartona remizirala protiv Fiorentine
--  Kickoff | Barca thrashed by surprise LaLiga leaders
--  שוטר איים על חברו באקדח כי רצה לגלות לו מה קורה בסרט "אהבה בשחקים"
--  צילמה את עצמה כמעט טובעת בצונאמי - וממשיכה לחייך למצלמה
--  גורדון רמזי חשף את הטריק והסודות להכנת סטייק מושלם
--  דוגמנית העירום שנכנסה לכלא התאהבה והפכה לבת הזוג של הסוהרת
--  חיסול ממוקד: פיניש אדיר לבולטימור, שיקגו הפתיעה את דטרויט
--  I’m A Celebrity in on-air blunder as producer appears in the camp just seconds after Nigel Farage is eliminated
--  First Vulcan launch likely to slip to January
--  UFFICIALE: Renate, arriva la svolta in panchina: esonerato l'allenatore Pavanel
--  McCarthy says America doesn't want 'retribution' from Trump
--  박형준 부산시장 "동절기 민생안정 종합대책 추진"
--  СМИ: американцы не одобряют действия Байдена в конфликте на Ближнем Востоке
--  Американский сенатор пожалел о блокировке Вашингтоном резолюции ОО по Газе
--  В Дагестане в 2023 году посев овощных культур увеличился на 42%
--  裏金疑惑の議員 追及に「頭悪い」
--  Get your tickets for Woolworths Carols in the Domain
--  Спикер Палаты представителей Конгресса США встретится с Зеленским 12 декабря
--  El Girona da el golpe ante el Barça y es líder en solitario
--  Again, ECOWAS leaders set up committee to negotiate with Niger junta
--  부산시·동명대, 부산 그린스타트업타운 조성 추진
--  C.J. Stroud in concussion protocol after late blow in Texans' loss vs Jets
--  [EPL] 손흥민 10호골 + 3, 4호도움... 최고평점 받고 MOTM 뽑히고
--  El enigmático mensaje de Carlos Zambrano en medio de rumores de su posible salida de Alianza Lima
--  e-Sportime (11/12): Κατέβασε την ηλεκτρονική εφημερίδα – Είμαστε αυτοί που μας κυβερνούν
--  이미경 CJ ENM 부회장, '2023 엔터테인먼트 여성 파워 100인' ... 아시아인 최초 3년 연속 선정
--  Cuti Romero, en un partido casi perfecto en Tottenham: defensa férrea y una patada al borde de la expulsión
--  Fiscal General no está internada en el Hospital Militar, dice el Ejército
--  Mor til dræbt betjent: - Som om man er ligeglad
--  SPORTS AGENDA: Man United's incoming investor Sir Jim Ratcliffe takes a swipe at drama queen Bruno Fernandes in his book... while Arsenal celebrated Declan Rice's winner at Luton as if 'they'd won the Premier League'
--  Majlis penyampaian Hadiah Nobel diadakan di Stockholm dan Oslo
--  Joshua Zirkzee goud waard voor Bologna, Celtic onderuit op kunstgras in Kilmarnock
--  Krunic Fenerbahce, dalla Turchia: Milan disposto a cedere il bosniaco. Questa la cifra
--  Az utolsó tánc
+-  [법원 “연가 사용 중에는 근로자 취업규칙 위반 적용 어려워”
+-  [세븐틴 에스쿱스, 유기동물 보호소에 5000만 원 기부
+-  [정부, AI 확산에 18개 시군 산란계 농장 특별방역 시행
+-  [농식품부, 농업환경보전 대상에 ‘홍천 고양산아람마을’ 선정
+-  [“변함없는 지원 약속”…바이든, 12일 젤렌스키 백악관 전격 초청
+-  [‘연말 이벤트’ 경제정책방향 발표, 내년 1월 유력…최상목 데뷔 무대될 듯
+-  [20대이하 주택담보대출 연체율 2년째 가장 높아
+-  [신상진 성남시장 내년 사자성어 ‘제구포신(除舊布新)’ 선정
+-  [[이홍석의 시선고정]‘절체절명’에 놓인 제2공항철도… 반드시 반영돼야
+-  [“난 가족들의 ATM이었다”…30년 넘은 ‘연금캐럴’ 머라이어 캐리 고백
+-  [성남시, 올해 매월 1600여 명 조기 치매 검진받아
+-  [경기도, 생애최초 주택구입 취득세 감면조건 위반 1518건 적발
+-  [경기도 예방가능 외상사망률 9.1%, 2018년 대비 절반 이상 감소
+-  [경기도,올해 글로벌 행보 빛났다
+-  [경기도, 구리시 종합감사 결과 발표…5건의 기관경고 처분
+-  [내년 경제정책방향 발표 최상목 후보자 데뷔 무대 되나
+-  عضو مجلس الأهلي: موديست لم يُختبر حتى الآن
+-  إطلاق نار واشتباكات عنيفة في محيط موقع عسكري إسرائيلي في نابلس
+-  حظك اليوم وتوقعات الأبراج 11-12: أزمة مالية لهذا البرج.. وتحذير لهؤلاء
+-  مستشار الرئيس للصحة يكشف أسباب انتشار نزلات البرد وطرق الوقاية منها
+-  رصدنا سلبيات غير مؤثرة.. حملة فريد زهران: الانتخابات الرئاسية الحالية أفضل من السابقة
+-  عصام شيحة: اليوم الأول للانتخابات الرئاسية انتهى دون عنف للمرة الأولى
+-  لم نرصد أي مخالفات.. محافظ الشرقية: إقبال غير مسبوق بلجان انتخابات الرئاسة
+-  Κολομβία: Η κυβέρνηση καταργεί τα πρόστιμα για την κατοχή μικροποσοτήτων ναρκωτικών
+-  رد فعل مورينيو بعد تعادل روما أمام فيورنتينا
+-  Google Claims EU Break Up Threat Is ‘Flawed’
+-  Meteorenzwerm Geminiden bereikt hoogtepunt
+-  '인간극장' 산골 위봉마을에는 두 얼굴(?)의 목사가 산다
+-  Halkett says he must be patient for Hearts chance - and Scotland hope
+-  “오타니, 2028 올림픽을 홈구장서 하겠네” 日매체 ‘행복회로 풀가동’
+-  7억달러 오타니가 ‘연봉 지급 유예’라니… 日 반응 “오타니가 손해”
+-  St Mirren star Ayunga refutes Rangers boss Clement's new father theory
+-  Descubren canteras de etapa final del imperio Inca
+-  오타니 다저스행 전한 日 '무료'신문, 현지서 약 ‘2만원’에 되팔린다
+-  تقييم باريديس مع روما أمام فيورنتينا
+-  Independiente del Valle vs. Liga de Quito: empate 0- 0 en el primer tiempo
+-  Vikings receiver Justin Jefferson leaves Raiders game with chest injury
+-  Soccerladuma | History-Makers Girona Sink Barca To Reclaim Top Spot
+-  Incêndio em habitação provoca dois desalojados em Ourique
+-  Corporate Ladder: your weekly guide to executive appointments in South Australia
+-  Matt O’Riley says Celtic were BULLIED by Kilmarnock and lacked courage in Rugby Park defeat
+-  Man Utd vs Bayern Munich: Kane and Co look to shatter United’s Champions League dreams in huge match – stream, TV, teams
+-  انهيار برشلونة أمام جيرونا …دليل على شيء واحد!
+-  الاحتلال يحتجز 142 أسيرة من غزة بينهن رضيعات
+-  الإثنين 27 جمادى الأولى.. 12 ساعة بين صلاتي الفجر والمغرب في الرياض
+-  Kaza yapan sürücü kayıplara karıştı
+-  Rodrigo tinha as 'Chaves' da goleada sem espinhas do Estoril na Amoreira
+-  Trump não vai testemunhar segunda-feira no julgamento por fraude fiscal
+-  Trump Abruptly Pulled Out Of Testifying In Court In The Chillest Way Possible (Which Is To Say With An Epic All-Caps Meltdown)
+-  Roma-Fiorentina risultato: 1-1 gol di Martinez Quarta e Lukaku
