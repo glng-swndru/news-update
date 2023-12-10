@@ -1,51 +1,11 @@
 # Latest News
--  MP BJP waits for high command’s ‘googly’ as CM race hangs in balance
--  Tories 'fighting like rats in a sack' threaten to drag the UK down, Starmer says
--  Proud Alan Sheehan awaiting news on Swansea City's manager search as he revels in Rotherham United win
--  Inside Wales' top hotels at Christmas as gorgeous decorations create festive magic
--  Crowds march through Cardiff city centre calling for end to violence in Gaza
--  First look at Love Island: All Stars as trailer confirms host and date
--  The most polluted places in Wales revealed including one area of outstanding beauty
--  The two Welsh villages named among the UK's most magical, snowy, hidden gem winter destinations
--  BBC Strictly studio reduced to tears over Johannes Radebe's poignant Annabel Croft message
--  ITV I'm A Celebrity 2023 finalists confirmed as seventh campmate gets voted off
--  Royals reveal 2023 Christmas card images as King and Queen's reflects coronation
--  ITV I'm A Celebrity viewers 'bitter' over semi-final after 'painful' show opening
--  BBC Strictly's Craig Revel Horwood gives rare standing ovation after 'best in 20 years' dance
--  Bridgend market re-opens in temporary location after concrete closure
--  'Scary' and 'spiralling' costs of school agency staff
--  Newborn baby's body discovered prompting cop murder probe
--  England international shown red card for 'reckless' clearout on Welsh-qualified star
--  Wales co-captain crosses for four tries as Ospreys start Europe with a win
--  ڈاکٹر ذاکر نائیک کی موت کی افواہیں کیوں پھیلیں
--  Wangaratta lands recruiting coup, signing ex-AFL player Patrick Naish
--  Why Michael Strahan Divorced His First Wife (& Where They Stand Today)
--  Royal fans gush over Wales's stylish Christmas family photo – with George almost as tall as his mother, Charlotte exuding confidence and Louis on his best behaviour
--  Royal fans gush over Wales's stylish Christmas family photo – with George almost as tall as his mother, Charlotte exuding confidence and Louis on his best behaviour
--  Strictly Come Dancing fans spot 'clue' to 'tensions' on show dropped by Motsi Mabuse after Annabel dance
--  Strictly Come Dancing fans spot 'clue' to 'tensions' on show dropped by Motsi Mabuse after Annabel dance
--  'Anatomy of a Fall' Wins Best Film at European Film Awards
--  'Anatomy of a Fall' Wins Best Film at European Film Awards
--  Former General Hospital Stars Who Have Tragically Passed Away
--  Former General Hospital Stars Who Have Tragically Passed Away
--  I'm A Celebrity's latest evictee excited 'to see my little boy'
--  Strictly Come Dancing 'fix' complaints minutes into semi-final as Tess Daly and Claudia Winkleman announce new format
--  Strictly Come Dancing 'fix' complaints minutes into semi-final as Tess Daly and Claudia Winkleman announce new format
--  Mob Life From the Wives' and Daughters' POV
--  Mob Life From the Wives' and Daughters' POV
--  All The Details You Missed
--  I'm A Celebrity's latest evictee excited 'to see my little boy'
--  All The Details You Missed
--  Why Michael Strahan Divorced His First Wife (& Where They Stand Today)
--  Kolo Muani avant PSG-Dortmund : «C'est notre vie qui est en jeu»
--  Why Jayden Daniels won the Heisman Trophy
--  Why Jayden Daniels won the Heisman Trophy
--  SantaCon takes over Manhattan for 25th annual bar crawl
--  Football: Spanish La Liga results - 2nd update
--  ทำไมราคา XRP ถึงขึ้นในวันนี้? การซื้อคืนจำนวนมากของ Ripple อาจมีคำตอบ
--  سجل قوي لـ ماوريسيو بوتشيتينو أمام إيفرتون
--  Hjerneforskning skal gi oss bedre kunstig intelligens
--  Gaza death toll tops 17,700; Yemen rebels threaten ship traffic to Israel
--  В Индии в ДТП погибли восемь человек
--  Derick and Jill Dillard Believe the IBLP Helped Jim Bob Duggar Keep His Media Empire Rolling For So Long
--  Venezuela ve Guyana ihtilaflı Esequibo bölgesini yüz yüze görüşecek
+-  겨울엔 뭐 먹지? 순천의 겨울味(미)학
+-  수원특례시의회 김기정 의장, 제18차 대한민국특례시의회의장협의회 정례회의 참석
+-  경기도의회 김정호·서성란 의원, 경기보육인대회 공로패 수상
+-  경기도의회 여·야, 경기북부특별자치도 설치 ‘한 뜻’
+-  Vinto il bando del Pnrr. Profumi e colori entrano in biblioteca
+-  Patiala News: ਪੰਜਾਬ ਵਿੱਚ ਟੈਕਸ ਚੋਰਾਂ ਦੀ ਸ਼ਾਮਤ! ਪੰਜਾਬ ਸਰਕਾਰ ਨੇ ਆਈਆਈਟੀ ਹੈਦਰਾਬਾਦ ਕੋਲੋਂ ਮੰਗਵਾਇਆ 'ਯੰਤਰ'
+-  정장 한 벌이 9만9900원?…고물가에 ‘갓성비’ 엠아이수트 인기 급등
+-  Mit positiven Gedanken das eigene Wunschleben manifestieren – ist das möglich?
+-  Mit positiven Gedanken das eigene Wunschleben manifestieren – ist das möglich?
+-  Mit positiven Gedanken das eigene Wunschleben manifestieren – ist das möglich?
