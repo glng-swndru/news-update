@@ -1,51 +1,11 @@
 # Latest News
--  مشاهد لتصدي القسام لقوات الاحتلال في خان يونس - فيديو
--  الاحتلال يعترف بمصرع جندي واصابة آخرين
--  Javier Milei inauguró su presidencia prometiendo "comenzar la reconstrucción de Argentina"
--  Dr Anish Shah takes over as FICCI President for 2023-24
--  BRUTÁLNA TRAGÉDIA Zomrel mladý HUMORISTA, ľudia jeho vtipy milovali! Svoj POSLEDNÝ zápas nestihol: Čo sa stalo? Mrazivé DETAILY nešťastia
--  COP28: Bahrain announces 30 pc reduction in emissions by 2035
--  На Международной выставке "Россия" прошли дни ЛНР и Чечни
--  Κοντά στον οργανωτή των επεισοδίων στου Ρέντη οι Αρχές - Το «σύνθημα» για να ξεκινήσει η δολοφονική επίθεση κατά αστυνομικών
--  Straffseger för Örnsköldsvik Hockey hemma mot Bodens HF
--  Straffseger för Örnsköldsvik Hockey hemma mot Bodens HF
--  Naveen Jindal led Jindal Steel & Power honoured with CSR Excellence Award
--  Hoogeveen stort na rust opnieuw in
--  Norweger Jon Fosse mit Literaturnobelpreis geehrt
--  في اليوم العالمي لحقوق الإنسان.. جحيم الحوثي يسلب حياة اليمنيين
--  Достижения Новгородского университета привели в пример ректорам российских вузов
--  Un supporter meurt en Espagne pendant le match Grenade - Athletic Bilbao
--  Bloomberg: Presencia de Chevron en Venezuela podría estar en riesgo ante disputa por el Esequibo
--  Rising Māori star takes centre stage in rendition of Disney classic
--  Podstawowy piłkarz rywala Legii Warszawa niezdolny do gry
--  Голдобин и Порядин не смогут участвовать в Кубке Первого канала из-за микротравм
--  NVWA: juice cures still contain unjustified medical claims
--  В Госдуме России отреагировали на возможный бойкот Украиной Олимпиады-2024
--  Tatum O'Neal 'misses' late father Ryan O'Neal in touching homage
--  CHP lideri Özgür Özel'den Ali Babacan'a taziye ziyareti
--  'There is no money': Firebrand Argentina president Javier Milei warns the economy needs 'shock' therapy as he is inaugurated in front of cheering crowds in Buenos Aires
--  لبنان يعلن غلق الإدارات والمؤسسات غداً تضامنا مع الشعب الفلسطيني وأهل الجنوب
--  Así fueron los últimos momentos de Michel Dayana González antes del feminicidio
--  Costa Rican Coffee-Rubbed Pork: A Surfer’s Delight Post-Wave Riding
--  גווארדיולה נמנע מרצף חסר תקדים, גריליש: "המאמן הטוב בעולם"
--  Δηλώσεις Μαρμούκ: «Είμαστε μια οικογένεια στην Ανόρθωση / Θέλω να ευχαριστήσω τον κόσμο»
--  Σχεδόν 18.000 οι νεκροί Παλαιστίνιοι στη Γάζα – Το τελευταίο 24ωρο σκοτώθηκαν 297
--  Ποια ήταν η 50χρονη που κατασπάραξαν σκυλιά στη Θεσσαλονίκη
--  Χάθηκαν τα ίχνη 25χρονου από την κατοικία του στη Λεμεσό (pic)
--  Parma-Palermo 3-3 LE PAGELLE | Charpentier decisivo, Bernabé ovunque
--  Samsun'da feci kaza: Çok sayıda yaralı var
--  ЛНР и Чечня продемонстрировали свои достижения на выставке «Россия»
--  "Tout est faux, je suis innocent" : accusé de viols, Cauet dit être victime d'une "tentative d'extorsion en bande organisée"
--  Ada Peran Barack Obama di Balik Mencekamnya Film Leave the World Behind
--  Prince Harry urged to get 'comfortable' with California life amid 'uncertain future'
--  Bakan Özhaseki'den Kayserispor'a prim açıklaması. Trabzonsporlular çok kızmıştı
--  سعودی خاتون کو تیزاب پلا کر ہلاک کرنے والی غیرملکی خاتون کو سزائے موت
--  BILDESERIE: Nissevandring i Drøbak
--  “Hizbullah” İsrailin 7 hərbi məntəqəsinə hücum edib
--  DSV-Adler weiter bärenstark: Karl Geiger fliegt fulminant zum Doppelsieg
--  El River Plate de Salomón Rondón quedó eliminado de la Copa de la Liga
--  Lieferung alter Modelle möglich: Kiew verhandelt über Schwedens Gripen-Kampfjets
--  „Crnogorci su teški u dogovorima, svi se moramo držati plana“: Hrvatski narkokartel sarađivao sa Zvicerovim „Kavčanima“?
--  ¿Cuándo debuta León en el Mundial de Clubes 2023 y contra quién juega?
--  I thought I had the flu — it was a flesh-eating disease that ravaged my butt
--  Titanic's James Cameron reveals the sneaky (and cheap) trick he used to make the set look even bigger while studio was panicking over skyrocketing budget
+-  Yang tidak Boleh Dilakukan Orang Tua Ketika Marah dengan Anak
+-  Priešui jokių šansų. Ukrainoje naudojama unikalaus taiklumo sistema (Video)
+-  Antrininkai, memai ir Monroe
+-  Mes galėtume būti nuodingi. Netikėtas atradimas: turime genus, kurie leidžia gaminti nuodus
+-  „Kitos išeities nėra.“ Rusijoje užimamas oro uostas (Video)
+-  [ŽT] „Lengva pergalė prie Avdijivkos?“ Pereinama prie plano B
+-  [ŽT] „Mums reikia.“ Argumentai „įspūdingi“. Rusija svajoja užimti du Ukrainos regionus (Video)
+-  BTS’s RM Says Goodbye To Fans In Heartfelt Letter Ahead Of Military Enlistment
+-  Mitropolit Joanikije: Vrlo često se zavađamo, a ne znamo zbog čega, takav je čovjek, sklon padovima, zabludama…
+-  O (belo) golo de Kikas que acabou com as dúvidas no Estrela-Boavista
