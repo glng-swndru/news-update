@@ -1,11 +1,11 @@
 # Latest News
--  Lazetić gledao Soči u Rusiji - da li će preuzeti najgori tim lige?
--  Van Basten racconta: «Dopo il mio ritiro Ibrahimovic mi provocò»
--  “Situacija sve gora”
--  Car expert reveals incredible secret feature that saves the day when your fuel cap gets stuck
--  People smugglers offering illegal migrants festive discounts on Channel crossings
--  Sudački ekspert otkrio gdje je Bel pogriješio u dvoboju Hajduka: Komentirao je i sporne odluke s utakmice Dinamo - Rudeš
--  Dos hombres fueron imputados por homicidio doloso agravado y asociación ilícita
--  VIDEO / Sada možete kupiti mirisne svijeće s aromom benzina i dizela
--  Kickoff | Sekhukhune denied back-to-back Confed Cup wins
--  إنتخاب ريم محجوب رئيسة لحزب آفاق تونس
+-  رغم فقدان ذراعيها.. بركة تصوت بقدمها في الانتخابات الرئاسية بالإسكندرية (صور)
+-  متحدث الخارجية: 14 منظمة عالمية وإقليمية تتابع الانتخابات الرئاسية في مصر
+-  غرفة العمليات الرئيسية بالإسكندرية: لا شكاوى في أول أيام الانتخابات الرئاسية (صور)
+-  لميس الحديدي تعلق على إحالة الفنانة لبلبة للتحقيق في واقعة تصويتها مرتين
+-  محافظ المنيا: انتهاء أول أيام انتخابات الرئاسة دون معوقات
+-  رئيسة القومي للمرأة تستقبل رئيس بعثة جامعة الدول العربية لمتابعة الانتخابات الرئاسية
+-  مايا مرسي تشيد بتصدر المرأة المصرية للمشهد الانتخابي في اليوم الأول
+-  رويترز: الأمم المتحدة تصوت الثلاثاء على مطلب لوقف إطلاق النار في غزة
+-  'O agressor não pode ser a vítima', diz Ana Hickmann ao responder fãs no Instagram
+-  AB’de 29 milyona yaklaşan yatak kapasitesinin üçte biri iki ülkede
