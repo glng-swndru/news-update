@@ -1,11 +1,51 @@
 # Latest News
--  Senator Warren calls out Apple for shutting down Beeper’s ‘iMessage to Android’ solution
--  2023시즌 경정 최강자 가린다…그랑프리 13일 개막
--  شاهد.. أمطار كثيفة على حي المرجان بجدة (فيديو متداول)
--  لمساعدة المكفوفين.. مايكروسوفت تطلق تطبيقا يعمل بـ 36 لغة العام المقبل
--  Russian TV channel makes a huge gaffe by broadcasting appeal to spy for Britain
--  Ariana Grande Signs New Management Deal After Parting Ways with Scooter Braun
--  [단독]대한체육회, 스포츠윤리센터 징계안 40%도 이행 안 했다
--  9 kişi kalan Roma, 1 puanla ayrıldı!
--  Biden'ın insanlık dışı kararlarını mercek altına aldılar: Yasalar çiğnendi
--  Girona, deplasmanda Barcelona'yı 4 golle yendi!
+-  [엄정화 “女배우, 35살 넘으면 ‘엄마’ 연기했다”…그런 K드라마의 ‘쎈 언니’ 변화
+-  [동대문구, 퇴직예정자 재취업 지원
+-  [따뜻함 가득한 북촌한옥마을 연말연시…‘계동마님댁 동지맞이’ 행사
+-  [與 인요한 혁신위, ‘조기 종료’ 이유는?
+-  [‘PF 폭탄’ 터질라…한달새 금융·건설사 5곳 신용도 하향 [투자360]
+-  [‘73년생 한동훈’ 출간에 박수영 “좌파 가스라이팅에 혜안 제시”
+-  [미국인 10명중 6명, 이스라엘 지원하는 정책에 “부정적”
+-  [삼성바이오로직스, 지속가능경영 월드 지수 3년 연속 편입
+-  [동대문구, 14일부터 수산물 방사능 검사 실시
+-  [[헤럴드 운세] 2023년 12월 11일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  루닛, 국제학술지에 ‘AI로 폐결핵 진단 향상’ 논문 게재
+-  Cerita Bivitri Susanti Tolak Tawaran KPU Jadi Panelis Debat Capres
+-  الحوثيون يجبرون سفينة متجهة لإسرائيل على التراجع
+-  Comparsa de morenada sorprende al ensayar bajo la lluvia en Puno: “La neumonía”
+-  Új szereplők bukkantak fel az BTC-ETH csörtében - Elképesztő hozamok a láthatáron?
+-  Apni Party conducts membership drive in Jammu East
+-  TNWS to raise issues of colony before CS
+-  E os destaques tecnológicos da semana que passou foram…
+-  У женщины в глазах обнаружили десятки живых червей-паразитов
+-  Комплексующий из-за размера пениса полицейский устроил драку в секс-шопе
+-  TJ - La Juve su un talento del Kosovo
+-  TV Ratings December 10, 2023: Fans got festive with a Christmas special of The Hundred with Andy Lee, topping prime-time entertainment
+-  Wow! 6 Secretly Amazing Towns to Retire in New Jersey!
+-  A Kiflitől lesz boldog a karácsony! (x)
+-  SNL gets blowback for 'vile' skit focusing on GOP lawmaker instead of college presidents' testimony
+-  英特爾宣布完成 PowerVia 背部供電技術發展，並將領先業界推出
+-  Basen o socialnem dialogu
+-  Xavi says Barcelona played well against Girona
+-  Terpopuler Bisnis: Profil Dirut Baru Waskita Karya hingga Janji Kaesang BPJS Gratis Realistis?
+-  3 Kreasi Resep Tamagoyaki untuk Sarapan, Telur Dadar Gulung Khas Jepang
+-  “홍상혁, 더 잘할 수 있다” 스커드 미사일 기대감 크다…데뷔 첫 4G 연속 10+점, 만년 유망주 꼬리표 떼나
+-  Manchester City Kembali ke Jalur Kemenangan, Ini yang Diucapkan Pep Guardiola ke Pemain di Ruang Ganti
+-  Waspada Perlintasan Kereta Sebidang Saat Berkendara Selama Libur Nataru
+-  Top 3 Dunia: Korea Utara Kecam Veto AS hingga Keuangan Warga AS Bakal Terseok-seok
+-  Kofein ni nadomestek za počitek in spanje
+-  Španija in Slovenija skupaj k priznanju Palestine?
+-  3점 되찾은 이현중…호주 언론 “10+득점 가능” [농구]
+-  Kritični do združitve ljubljanskih vrtcev
+-  Police arrests 2 hardcore cattle lifters
+-  Iran lancar dron peluru berpandu udara-ke-udara
+-  Podeljene evropske filmske nagrade
+-  일본축구전설 32년 경력 마무리…판페르시도 메시지
+-  Tử vi thứ 2 ngày 11/12/2023 của 12 con giáp: Tý gặp xáo trộn, Tị vượng tài
+-  Schengen: Avstrijci rahljajo svoj veto glede vstopa Romunije in Bolgarije
+-  Podnebni vrh COP 28: Raznoteri interesi v vrelem podnebnem loncu
+-  Konglomerat za varstvo otrok
+-  Še o Wagnerju, Izraelcih in Ameriki
+-  그의 입이 바빠지면 경기 먹구름 드리운다?[지식人 지식in]
+-  Idee make up Natale: beauty tips e idee per un trucco di tendenza
+-  무릎만 문제인가 했는데 음주운전 은폐라니…백업 포수 카드 하나 잃은 두산, 제로베이스 경쟁에도 악영향 [MK이슈]
