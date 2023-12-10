@@ -1,11 +1,51 @@
 # Latest News
--  شابة تعاني من حساسية غامضة تجاه الضحك والبكاء والروائح
--  Cedric Bakambu: Efsane bir kulüpte oynuyorum
--  Türkiye ve Yunanistan arasında yeni dönem! 3. ülke detayı dikkat çekti
--  Muslera hakeme isyan etti: Fenerbahçe'ye veremiyorsunuz
--  "Asrın felaketi" sonrası Türkiye ve Çin'den işbirliği kararı
--  Beşiktaş'taki terör saldırısının şehitleri unutulmadı: 7'nci yılında şehitler Edirnekapı'da anıldı
--  Yatırım turunun yeni durağı... Bakan Şimşek 2 trilyon doları yöneten isimlerle görüşecek
--  2 ay süren takibin ardından düzenlenen operasyonda binlerce sahte parfüm ele geçirildi
--  الاحتلال يعتقل 44 فلسطينيا بالضفة الغربية والقدس
--  قرارات جديد من الاتحاد الأوروبي بخصوص الذكاء الاصطناعي
+-  PM Dahal pledges to implement NHRC recommendations
+-  نیو یارک اسٹرائیکرز نے ٹی ٹین لیگ کا ٹائٹل جیت لیا
+-  Több millió gyerek találkozhat e-cigarettával kapcsolatos hirdetésekkel
+-  Ware aus Zustellerwagen in Steinfeld gestohlen
+-  पुल बन्न नसक्दा आवत–जावतमा समस्या
+-  استشاري تغذية سريرية يدعو للنوم في الشتاء من 7 إلى 10 ساعات لهذا السبب (فيديو)
+-  Giornata Mondiale dei Diritti Umani
+-  استحکام پارٹی پنجاب اسمبلی کے 44 حلقوں پر ن لیگ سے سیٹ ایڈ جسٹمنٹ کی خواہش مند
+-  Ako zo zlého sna: Ministerka a poslankyňa sa zasekli vo výťahu, Cigániková všetko vysielala na sociálnu sieť
+-  대전 경제부시장 내정자 자진사퇴… 인선 지연 불가피
+-  ‘창업기업 패밀리데이’에서 찾은 열정
+-  여행
+-  국민의힘-김영환 지사 신뢰 깨졌나
+-  중단없는 중구 발전을 위해!
+-  “오창산단관리공단 정상화 서둘러야”
+-  바이오경제를 향한 힘쎈 충남의 도전
+-  “문화유산 향유·소통 기틀 마련”
+-  청주시의회 예결위 정상화 끝내 불발
+-  ‘관광 중심’ 대전 원도심 가보니… “볼만하네” “성심당 빼고 그닥”
+-  V Egypte sa začali prezidentské voľby: Sísí sa uchádza o tretí mandát
+-  원산도 오섬 아일랜즈, 최고 브랜드 ‘인정’
+-  자살률 1위 오명 벗을 정신질환 관리 요원
+-  세종시, 일본 공무원 초청해 한·일 지방정부 교류 협력 방안 모색
+-  내일 예비후보자 등록, 22대 총선 막 올랐다
+-  관광객 불러모으는 대전… 미래 관광비전 제시할 때
+-  SNS 입소문 탄 ‘대전 명소’ 관광객 발길 붙들 그랜드 플랜 세워야
+-  “볼 게 없네” 관광객 체류시간 짧은 대전… 민·관 협력 중장기 전략 마련해야
+-  관광업계 뒷받침할 킬러콘텐츠 발굴 절실
+-  21세기 디지털 시대, 홀로 있을 때 신독
+-  이동진 건양사이버대 총장 “지역사회가 자랑스러워 하는 경쟁력 갖춘 대학 목표”
+-  예산 반토막에 충남 베이밸리 홍보 제동
+-  여야 깊은 갈등의 골… 예산안 험로 예상
+-  충북 친환경 에너지 메카로 우뚝
+-  Liverpool forward Mohamed Salah joins elite list with 150th Premier League goal
+-  Халқимизнинг мангу қўшиғи
+-  الوكالة الوطنية: قصف مدفعي على المنطقة بين الناقورة وعلما الشعب
+-  POČINjE SA RADOM GASNI INTERKONEKTOR: Predsednik Vučić domaćin Alijevu i Radevu
+-  Путин высказался о чествовании нациста в канадском парламенте
+-  Le Magasin Sephora sur les Champs-Elysées réouvre. Les clients israéliens adorent ce magasin.
+-  [ŽT] „Vagis, žudikas, Rusijos gėda.“ Tikslo nepasiekė. Kas nutiko prieš Kadyrovą protestavusiam vyrui (Video)
+-  Fantastiškos kainos kolonėlė! Didžiulė galia, 5 garsiakalbiai, milžiniška baterija, BT5.0, IPX6 ir kt. (Video, „ZEALOT S67“)
+-  Paslaptingasis reiškinys. Kodėl nieko neprisimename iš savo ankstyvosios vaikystės?
+-  [ŽT] Skrido iš Lietuvos. Dėl neatpažinto objekto Vokietija pakėlė naikintuvus (Foto)
+-  Panama Canal backlogs threatens iPhone and other gadget deliveries in time for Christmas
+-  „Lenkai visiškai atitrūko nuo realybės.“ Kariai fronte pajuto blokados pasekmes
+-  Tony Bellew's wife Rachael reveals she is shocked that the champion boxer is in the I'm A Celebrity final: 'The kids want him to win'
+-  Bahnverkehr: Zahlreiche Änderungen zum Fahrplanwechsel
+-  Most jött a hír: egy celeb exe a szamurájkardok ámokfutó!
+-  Fortes précipitations: 4 départements en vigilance orange pluie-inondation ou crues
+-  Trabzonspor'dan Transfer Atağı!
