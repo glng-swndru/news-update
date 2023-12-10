@@ -1,11 +1,11 @@
 # Latest News
--  V ďalšom období bude pomoc s energiami adresnejšia, uviedla Saková
--  Kamióny stále čakajú v dlhých kolónach na poľských hraniciach s Ukrajinou
--  90th Annual Meeting of KUWJ
--  ‘The Golden Bachelor’: Theresa Nist Allegedly Spilled That Producers Want the Same Women to Return for a Different Lead
--  타격왕 놓친 구자욱, 골든글러브로 아쉬움 달랠까
--  ‘오타니 vs 김하성’ 빅매치...서울서 MLB 개막전 열린다
--  여자열드컵 유치 ‘유럽 vs 남미 vs 북중미’
--  [결혼] 신랑 오명우 ♥ 신부 김경민
--  인간 미각 모방 인공 전자혀 시스템 개발
--  경산시, 아이돌봄서비스 전국 최우수기관 선정
+-  Soccerladuma | Revealed: Two Man Utd Stars Racked R1.7m In Late Fines
+-  פשוט וואו: לא תאמינו איך אופרה ווינפרי נראית היום. כך היא עשתה את זה
+-  לידור כהן כבש משחק שני ברציפות, קבוצתו ספגה הפסד כואב
+-  "המלחמה בסרטן לא נגמרת - גם כשיש מלחמה בעזה"
+-  המנהל המקצועי של באיירן מינכן: "נראה איך דניאל פרץ יתפתח"
+-  המוסד: השתתפנו בסיכול תשתית טרור איראנית שתכננה לפגוע בישראלים בקפריסין
+-  בשורות טובות: ציונים גבוהים ליינות מישראל בטעימה השנתית של WINE SPECTATOR
+-  Kletsnatte maar gezellige kersteditie Oogst- & Streekmarkt 'Proef de Krimpenerwaard'
+-  Schuurbrand aan de Lekdijk bij Nieuw-Lekkerland
+-  Huzurevinde stajyer genç kıza cinsel saldırı: Kan donduran detaylar, 'pes' dedirten pişkin savunma
