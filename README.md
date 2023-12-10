@@ -1,51 +1,11 @@
 # Latest News
--  إيفرتون يهزم تشيلسي والسيتي ينتصر
--  القسام: قتلنا 40 جندياً إسرائيلياً ودمرنا 44 آلية
--  Rodiona Kuruca 12 punkti neglābj Mursijas vienību no zaudējuma ACB spēlē
--  “오타니는 다저블루, 샌프란시스코는 이정후” 7억달러 재벌 놓쳤지만…세상은 넓고 FA는 많다
--  Latinoamérica necesita invertir hasta 4,9% del PIB anual para cumplir metas climáticas
--  التزاما بالاضراب.. الأمن العام يتوقف عن استقبال كافة المعاملات غدا
--  UDES NA MILOŠU VELIKOM Nesreća se desila verovatno zbog preticanja, sudarila se tri vozila
--  Antiszemitizmussal vádolták meg: lemondatták a Pennsylvaniai Egyetem elnökét
--  1 dead, 1 hospitalized in fatal Edgewater shooting Sunday morning
--  ITV I'm A Celebrity 2023 final live results as winner crowned King of the Jungle
--  11 დეკემბერს ვოლოდიმირ ზელენსკი აშშ-ის პრეზიდენტს ჯო ბაიდენს შეხვდება
--  Bhopal: HC Holds ACS Health, NIC Officials Guilty Of Contempt Of Court
--  American chocolatier and suspected accomplice charged with murder of Canadian Daniel Langlois and partner in Dominica
--  Για ανθρωποκτονία από αμέλεια κατηγορείται ο ιδιοκτήτης των σκυλιών που κατασπάραξαν την 50χρονη στη Θεσσαλονίκη
--  Hubschrauber kreist über Wertheim
--  Sağlık Bakanı Koca duyurdu: İstanbul'da ambulansa yol vermeyen sürücüye gereken ceza verildi
--  La Grande-Verrière. Contrôler et sensibiliser les chasseurs à la sécurité
--  Laugh, Dance And Enjoy The Sunny Days With Your Loved Ones
--  I'm A Celebrity final LIVE: Nigel Farage, Tony Bellew and Sam Thompson battle for King of the Jungle, as favourite to win is revealed after Josie Gibson's exit
--  Tıra arkadan çarpan otomobil kağıt gibi ezildi!
--  Полісся проведе збір в Іспанії
--  Fundusz Kościelny do likwidacji? Nowy rząd może mieć spory problem
--  Fundusz Kościelny do likwidacji? Nowy rząd może mieć spory problem
--  Efter återbud – Elvenes får chansen i Tre Kronor
--  Efter återbud – Elvenes får chansen i Tre Kronor
--  SC Preußen Münster vs. SC Verl: Doppelpacker Batmaz! Verl fährt ohne Punkte aus Münster nach Hause
--  Νέα δεδομένα για τον θάνατο του Όλιβερ – Επεσε θύμα αγέλης σκύλων
--  Analysts: Trump Immunity Appeal Provides Chance to Stave Off Election Trial
--  Desolater HC Empor Rostock verliert gegen den SC DHfK Leipzig II
--  جيوش الذباب تجتاح دولة عربية
--  Atzori: "Il Milan come il Napoli di quest'anno. L'Inter è l'unica che sta mantenendo le aspettative"
--  دوام جزئي وراتب يومي.. "ناقل إكسبريس" تعلن حاجتها لموظفين
--  Indígena morre durante confronto com a PM em São João das Missões
--  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
--  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
--  Braunschweig: Vier Polizisten verletzt bei Einmsatz auf Weihnachtsfeier
--  أستاذ علم اجتماع: اصطحاب الأطفال للجان الانتخاب يغرس فيهم الإيجابية والمشاركة
--  عروسان يتركان حفل زفافهما للمشاركة في الانتخابات الرئاسية بالأقصر
--  غرفة عمليات الانتخابات الرئاسية بنقابة الصحفيين تتلقى 3 شكاوى
--  بالزفة.. عروسان يدليان بصوتيهما في الانتخابات الرئاسية بقنا
--  موظفو المصرية للمطارات يدلون بأصواتهم بالانتخابات الرئاسية
--  بالصور.. عريس وعروسة يدليان بصوتيهما في واحة الخارجة بالوادي الجديد
--  الصليب الأحمر: سقوط قتلى ومصابين في هجوم على قافلة إنسانية أثناء إجلاء مدنيين في السودان
--  إغلاق باب التصويت في اليوم الأول للانتخابات الرئاسية.. ومحافظ الدقهلية يشكر المواطنين
--  SVAKA KUĆA ĆE DA IMA VEĆE PLATE I MNOGO VEĆE PENZIJE Ključna poruka Aleksandra Vučića na skupu &quot;Srbija ne sme da stane&quot;
--  3 Hypergrowth Stocks to Buy Heading Into 2024
--  Katasztrofális az egészségügyi helyzet Gázában
--  توقف الأعمال في المرافئ اللبنانية كافة غدا
--  Mun kveðja Barcelona næsta sumar – Aðeins spilað sjö leiki og heldur til Sádi
--  Primavera | Monza-Inter 1-1: gol e highlights
+-  "야마모토 영입 앞서있어"… 다저스, 오타니 이어 NPB 최고투수까지 품나
+-  ‘8시즌 연속 10골+’ 손흥민, EPL 역사상 7번째 인물이 되다
+-  '진행 시켜'… '속보' 오타니 영입한 다저스, 양키스와 트레이드 추진
+-  오타니가 떠난 빈자리 日 최고 투수가 채운다?…"야마모토, LAA에서 에이스 역할 할 수 있다"
+-  "두 가지 게임을 한다는데..." 오타니 계약 뒷이야기, 그래서 다저스는 더 데려오고 싶었다
+-  As bodas de diamante da Declaração Universal dos Direitos Humanos
+-  Plan pour rétablir l'autorité parentale: "Condamner pénalement quelqu'un parce que son fils a fait quelque chose me paraît difficile dans un État de droit", réagit Frédéric Péchenard (LR)
+-  Plan pour rétablir l'autorité parentale: "On responsabilise les parents", déclare Maud Bregeon (Renaissance)
+-  Plan pour rétablir l'autorité parentale: "Ceux qui sont ciblés, ce sont les familles les plus précaires", dénonce Benjamin Lucas (Générations)
+-  Projet de loi immigration: "Sur la régularisation des sans-papiers, on arrive à un compromis", affirme le député Renaissance Christophe Weissberg
