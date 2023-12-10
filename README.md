@@ -1,51 +1,11 @@
 # Latest News
--  Mahasiswa Mudah Terlilit Utang Pinjol? OJK Beri Saran
--  הבמאית והמחזאית עדנה מזי"א ("משחקים בחצר האחורית") הלכה לעולמה בגיל 74
--  משבר החקלאות מחריף, והפיצויים לא מגיעים: "נזק של מיליוני שקלים"
--  האם תמונות המחבלים המושפלים מועילות לישראל - או מזיקות לה?
--  קייליני יפרוש אחרי ההפסד? "השגתי דברים גדולים משחלמתי עליהם"
--  KH Acep Adang Ruhiat Ajak Santri Dukung Pemenangan Anies-Muhaimin
--  Mira Lugo ▶ Sara González, Marcos Calles y Jaime Caravaca
--  Okan Buruk'un Kopenhag planı!
--  Dominik Livakocvic'ten bir ilk
--  BBC Strictly Come Dancing's Anton Du Beke under fire as fans all make same complaint
--  Kaufland rettet Real-Filialen – diese Standorte sind betroffen
--  Зўравонликка нисбатан муросасизлик муҳитини яратиш зарур
--  Андижонда микро ГЭСлар қурилмоқда
--  Scholz odmietol škrty v sociálnych dávkach, napriek rozpočtovej kríze
--  Ľudí vydesili roje kobyliek, obávajú sa apokalypsy: Mrazivá podobnosť s pasážami z Biblie, toto musíte vidieť!
--  Kirgizská metropola Biškek vás vráti v čase: Každý kút stále pripomína sovietske časy
--  Black lives matter. Do Palestinian lives matter?
--  Ako krajina máme vážny problém s preplnenosťou väzníc: GRAF, z ktorého ide strach, opäť sme v nelichotivom popredí
--  Live Eredivisie | Go Ahead treft FC Utrecht en kan Ajax weer inhalen op ranglijst
--  Janev: Marrëveshja e ekstradimit me Turqinë lë të kuptohet për dorëzimin e shpejtë të Palevskit
--  Grenada has golden beaches a secret rum that won't give you a hangover – and it works
--  Akhannouch: le gouvernement s’emploie à la mettre en œuvre l’État social selon la volonté royale
--  The Asus Zenfone 10 and ROG Ally get price cuts on Amazon Germany
--  Sambons stöd på plats: ”Han har gjort allt han kan”
--  "قتل زوجته بضربها ودفعها على الجدار".. داخلية السعودية تعلن إعدام العتيبي قصاصا وتكشف سبب تأجيل استيفاء الحكم
--  Video | Kat springt van elektriciteitspaal om aan reddingswerker te ontkomen
--  Movilización rojiblanca en Granada: «Estaremos unos mil hinchas del Athletic»
--  New Coca-Cola Christmas truck tour date revealed - see if it's your town
--  Nanotechnology Now – Press Release: A color-based sensor to emulate skin’s sensitivity: In a step toward more autonomous soft robots and wearable technologies, EPFL researchers have created a device that uses color to simultaneously sense multiple mechanical and temperature stimuli
--  [ŽT] Iškviesti kinologai. Maskvoje „Senis Šaltis“ išgąsdino rusus
--  [ŽT] Blokada visoje Europoje. Konfliktas su Lenkija pereina į naują lygį
--  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
--  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
--  Francuska fregata zaatakowana na Morzu Czerwonym. To kolejny atak dronów
--  ¿A qué hora ver Colombia vs. Venezuela en partido amistoso internacional?
--  “Qarabağ” dünya reytinqində gerilədi
--  Formazioni ufficiali Roma Milan femminile: le scelte di Corti
--  Loja mais antiga de fogos de artifício resiste chegando à 3ª geração
--  Gaziantep'in Sağlık Saçan Yemeği 'ŞİVEYDİZ'! Antep usulü şiveydiz çorbası tarifi ve malzemeleri!
--  Lotto-König Chico schlackert mit den Ohren: Männer blechen diese irre Summe für einen Tag mit ihm
--  '제2의 라파엘 바란'...토트넘 아닌 맨유가 영입전 선두!→이적료 '660억'
--  데뷔 14년 만에 처음이야, 찬스 잡은 '잠실 아이돌, 도루왕'은 골든글러브까지 훔칠 수 있을까 [유진형의 현장 1mm]
--  '통영 큰 손' 송지효 "배우자 한 끼에 100만 원까지 가능"…김종국 "네 남편 부럽다" 감탄 [런닝맨]
--  “오타니 에이전트, 연락 한 번 안 해” 억만장자 구단주도 7억달러 있는데…정말 뉴욕에는 ‘무관심’
--  Quiénes son los jubilados del Seguro Social que cobrarán primero los 4,822 dólares con el COLA 2024
--  AI and Robotics: The future that awaits us
--  Borussia Dortmund: Experte spricht nach Brunner-Hammer Klartext – „Wieso soll er das nicht machen?
--  Karatay'da Ovakavağı Sosyal Tesisi hizmete açıldı
--  Kayseri'de inşaat halindeki binada göçük: 3 yaralı
--  Telefon kilidiniz zekanızı ele veriyor!
+-  Fenerbahçe'ye Diego Rossi piyangosu! Kanarya'ya 1 milyon dolarlık bonus
+-  ตระบัดสัตย์! ‘เชาว์’ ฟาด ‘เฉลิมชัย’ จะหาความน่าเชื่อถือจากไหน ลั่น ‘2 โควตา รมต.’ ใครแอบหวัง
+-  Az Arsenalnál, a Barcánál és a Milannál működik, Magyarországon esély sincs rá
+-  Landes : Un élevage porcin menacé de fermeture après la diffusion d'images de maltraitance
+-  Accro au café ? Pourquoi votre première tasse à jeun dès le réveil n'est pas du tout une bonne idée
+-  A jamais les premiers ! Les Lakers et LeBron James remportent la nouvelle Coupe NBA
+-  Egypte : Les bureaux de votes ouverts pour une présidentielle acquise au sortant Sissi
+-  Etats-Unis : Entraîné par le Français Wilfried Nancy, le Columbus Crew sacré champion de MLS
+-  JO de Paris 2024 : Éric Ciotti juge « en l'état très risquée » la cérémonie d'ouverture sur la Seine
+-  Bečić: Jutrošnja akcija pokazuje našu odlučnost da se suprostavimo svim oblicima kriminala bez obzira na njihovu pripadnost ili uticaj
