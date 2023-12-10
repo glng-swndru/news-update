@@ -1,11 +1,11 @@
 # Latest News
--  지역 현안 해결을 위해 군장병이 나섰다
--  홍천군 반려동물 놀이터 조성사업 추진
--  [속보] 윤 대통령 “반도체는 한국과 네덜란드 협력의 핵심”
--  KTX 동해선, 29일부터 매일 2편 증편… 주민·관광객 불편 해소 기대
--  김경식 감독 ‘정선의 이야기’ 대상… 정선군 ‘보고싶다 정선아’ 광고제 시상
--  [“우울증, 디지털 치료기가 해법될까?” 과기부, 확증 임상시험 착수
--  [‘새차살 때 1% 캐시백 좋았는데’…무이자에 캐시백까지 구매혜택 줄이는 신용카드사
--  [‘이병선 디지털트윈플랫폼’…올 겨울 제설 성공할까
--  [제3국 차량용 요소 5000t 추가계약…확보량 4.3개월분 늘어
--  [경상원, 파주 권역 ‘찾아가는 골목상권 사업설명회’ 개최
+-  Bakan Yerlikaya paylaştı: 12 ilde terör örgütünün kış yapılanmasına darbe
+-  부산 시민들 “2035 엑스포 재도전해야…시민 성금도 내겠다”
+-  Terkini: Kaesang Janjikan Iuran BPJS Kesehatan Gratis, Anies Belum Pasti Batalkan IKN
+-  Punjab News: लुधियाना में अरविंद केजरीवाल और भगवंत मान आज, सुरक्षा के कड़े इंतजाम, कई रूट डायवर्ट
+-  Lucu Pooll.. Saat Emak-emak Merayu Gus Iqdam, Katanya Tersihir Kegantengan Suami Ning Nila
+-  Machine of the Year
+-  Monthly active users of Instagram, Facebook declining amid fake news, scams
+-  3 more Chinese companies added to US import ban over Uygur forced labor concerns
+-  Sismos en Guatemala hoy, 10 de diciembre - vía INSIVUMEH: ¿a qué hora y dónde ocurrieron los sismos?
+-  BSF, Punjab police recover Pak drone with narcotics in Amritsar
