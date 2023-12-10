@@ -1,51 +1,11 @@
 # Latest News
--  नेपाल वार एसोसिएसनको राष्ट्रिय गोष्ठी सौराहामा सुरु
--  फुटबलर सावित्रालाई काठमाडौँ युरोको सम्मान
--  Pulwama Attack Mastermind Kidnapped: पुलवामा हमले का आरोपी औरंगजेब पाकिस्तान में किडनैप, मोस्ट वांटेड आतंकी को उठाकर ले गए बंदूकधारी
--  Thane Crime: पतीला जीवंत जाळण्याचा प्रयत्न, घरगुती वादातून कृत्य; 61 वर्षीय महिलेविरोधात गुन्हा दाखल
--  كيف يؤثر اضطراب الدورة الشهرية لدى النساء على صحة القلب؟
--  القومي للطفل يحتفل باليوم العالمي لمكافحة الفساد بعرض بكره أجمل
--  Kathmandu Valley cooling down, Temperature dips to 6.0°C on Sunday
--  제주, 동계시즌 동남아 대상 홍보 마케팅 강화
--  제주 아파트 경매 물량 대거 늘어
--  WI vs ENG: इंग्लैंड के खिलाफ वेस्टइंडीज की पावर-पैक टीम घोषित, तीन धुरंदर खिलाडियों की वापसी, देखें स्क्वाड
--  Amritsar News: ਕਿਸਾਨ ਲੀਡਰ ਪੰਧੇਰ ਨੇ ਖੋਲ੍ਹੀ ਨਸ਼ਿਆਂ ਦੀ ਪੋਲ, ਚਿੱਟੇ ਨਾਲ ਰੱਜੀ ਕੁੜੀ ਦੀ ਵੀਡੀਓ ਕੀਤੀ ਸ਼ੇਅਰ
--  Infidencias y confidencias del 10 de diciembre del 2023
--  Les Lakers dominent les Pacers et remportent le In-Season Tournament ! (123-109)
--  Elon Musk Makes Very Rare Appearance With His Son X Æ A-12 During Father-Son Outing at Football Game
--  Profil dan Agama Iriana Jokowi, Ritual Berdoanya Dibongkar Kaesang
--  Weerbericht | Code geel in noordelijke kustgebieden door zware windstoten
--  Λέσβος - Γύρω από το ρακοκάζανο της Ανεμώτιας ανθούν τα όνειρα για το χωριό
--  'Fake news' claims open up new front in Middle East war
--  Πατήσια: Φωτιά σε διαμέρισμα – Απομακρύνθηκαν οι ένοικοι
--  Zonguldak'ta art arda heyelan: Anne ve oğlu aranıyor! Bölgedeki riskli evler tahliye edildi
--  Latest News | USFDA Pulls Up Intas Pharma for Manufacturing Lapses at Ahmedabad Plant
--  Девин Хейни победил Реджиса Прогрейса и стал чемпионом в первом легком весе по версии WBC
--  Ezúttal Kerkez volt a nap magyar PL-hőse, záporoznak a 8-asok
--  تشريع أوروبي غير مسبوق لتنظيم عالم الذكاء الاصطناعي
--  وطن واپس جانے والے افغان باشندوں کی تعداد 4 لاکھ سے تجاوز کر گئی
--  Susanne Nyström: Korta arbetsdagen för alla som inte kan jobba hemifrån
--  NYT: Европа опасается развала НАТО в случае победы Трампа на выборах
--  ΗΠΑ: Έξι νεκροί έπειτα από σφοδρές καταιγίδες στο Τενεσί
--  समाजकंटकांचा हेतू आरक्षण मिळवणे नसून अशांतता पसरवणे आहे : गोपीचंद पडळकर
--  Sports News | Eintracht Frankfurt Routs Bayern Munich 5-1 for Defending Champ's First Bundesliga Defeat
--  Επιβεβαιώνεται ο θάνατος 25χρονου ισραηλινού ομήρου στη Λωρίδα της Γάζας
--  Latest News | EU Carbon Tax to Hurt Global Trade, Not to Stop Carbon Leakage: GTRI
--  الخليج اليوم .. البرهان: "إعلان جدّة" أولوية للحل السلمي ولـ"إيقاد" دور أساسي لانها الأقرب لفهم واقع السودان
--  الخليج اليوم .. الكشف عن الكرة الرسمية لكأس العالم للأندية 2023 بالسعودية
--  Priset borde vara i dollar eller euro
--  I ovo je anksioznost! 6 znakova o kojima ne pričamo, a često se dešavaju
--  Novače, da li si antivakser? Novinar pokušao da isprovocira Đokovića, a ovo je Noletov odgovor! (VIDEO)
--  Novakovu i Jeleninu jelku smo poslednji put videli 2018. godine: Evo kako su je Đokovići tada ukrasili (FOTO)
--  Priset borde vara i dollar eller euro
--  Priset borde vara i dollar eller euro
--  Market Pass: Έως πότε παρατείνεται η προθεσμία για τις αιτήσεις
--  （專訪）白岩瑠姬嘆選秀太辛苦！JO1出道陷低潮「誰會喜歡我」
--  Visite Du President Brice Oligui Nguema Au Cameroun : Que Retenir ? :: Cameroon
--  Le Congrès Extraordinaire Des Vutés, Manifestation De La Force D'un Peuple Du Cameroun :: Cameroon
--  Girl Sleeps With Snake: अपने चारों ओर सांप से लिपटकर सोती है ये छोटी सी लड़की, वीडियो देख लोग दंग
--  面對世局變化挑戰大 蔡英文：賴清德蕭美琴是最好人選
--  ‘นิกร’ ยัน ‘ทำประชามติแก้รธน.’ ไม่ช้าเหตุใช้กลไลรัฐสภาช่วย
--  이상민 장관, 제주 행정체제 개편 주민투표 요청하면 적극 검토
--  제주 우주산업 첫 제주투자진흥지구 지정 추진 '주목'
--  Zwei-Euro-Münze für 99.000 Euro gehandelt – irrer Preis lässt Sammler aufhorchen
+-  지역 현안 해결을 위해 군장병이 나섰다
+-  홍천군 반려동물 놀이터 조성사업 추진
+-  [속보] 윤 대통령 “반도체는 한국과 네덜란드 협력의 핵심”
+-  KTX 동해선, 29일부터 매일 2편 증편… 주민·관광객 불편 해소 기대
+-  김경식 감독 ‘정선의 이야기’ 대상… 정선군 ‘보고싶다 정선아’ 광고제 시상
+-  [“우울증, 디지털 치료기가 해법될까?” 과기부, 확증 임상시험 착수
+-  [‘새차살 때 1% 캐시백 좋았는데’…무이자에 캐시백까지 구매혜택 줄이는 신용카드사
+-  [‘이병선 디지털트윈플랫폼’…올 겨울 제설 성공할까
+-  [제3국 차량용 요소 5000t 추가계약…확보량 4.3개월분 늘어
+-  [경상원, 파주 권역 ‘찾아가는 골목상권 사업설명회’ 개최
