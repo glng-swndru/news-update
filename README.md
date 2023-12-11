@@ -1,11 +1,51 @@
 # Latest News
--  الحاخام جو بايدن وإخوانه.. أين الدين وأين السياسة؟!
--  Cumhuriyetimizin 100. yılında halk müziği seçkisi: Reviş Konseri
--  التشرة اليومية | موجز لأهم الأخبار المحلية والعالمية
--  10 минг соат қоидаси – шунча вақтда исталган нарсани ўрганиб олса бўладими?.
--  Қирғизистонда 200 га яқин давлат хизматчиси жиноий гуруҳлар билан алоқаси учун ишдан бўшатилди .
--  ОТБ Ўзбекистондаги қишлоқ йўлларини яхшилашга 240 млн доллар ажратади.
--  Техникумларда кредит-модул тизими йўлга қўйилади .
--  Bisschoppen en oversten reageren op kritiek misbruikprocedures
--  En Paso Cerrito, detectaron vacunas contra encefalomielitis equina trasladadas ilegalmente
--  মিয়ানমার জান্তার ভারত সীমান্তবর্তী ফাঁড়ি দখল করলো বিদ্রোহীরা
+-  Man, 40, who slept in tent at Boon Lay HDB corridor for 5 months, has moved into his rental flat
+-  Mogelijk tijdelijk gebruik rijbaan voor fietsers op de Bovenbuurtweg
+-  Autentické zábery ožratého vodiča! S obrovským rachotom sa rútil centrom mesta
+-  Coming out Billie Eilish: Nebolo to jasné? Neuvedomila som si, že to ľudia nevedia
+-  Slávna speváčka pribrala: Už stihla podstúpiť aj liposukciu!
+-  Odkryte tajomstvá dávnej minulosti. Archeologické parky odhaľujú, ako žili naši predkovia
+-  Je to tu! Úrad verejného zdravotníctva zverejnil aktuálne čísla a odhad vývoja: Smerujeme do epidémie
+-  Hana Ivković postala je 'Superstar'! Riješite anketu i pokažite koji je finalist u vašim očima pobjednik showa!
+-  Na začiatku zimy pokračovali výdatné zrážky, ktoré trvajú asi dva mesiace
+-  Avec ce pneu de Hyundai, vous allez vite oublier la corvée des chaînes à neige
+-  Epic recognised as ‘Fastest Fixed Internet Network in Cyprus’
+-  New COP28 draft text does not mention phase out of fossil fuels
+-  News24 | WATCH | Why these women use the anti-HIV pill and vaginal ring
+-  سپریم کورٹ: جسٹس اعجاز الاحسن نے بینچز کی تشکیل پر تحفظات کا اظہار کردیا
+-  Brandweer redt katten uit vuilcontainer in IJsselstein
+-  بعد دفعة صواريخ كبيرة.. القسام تجدد قصف تل أبيب
+-  بالصور.. نساء حزب النور يصوتن في الانتخابات الرئاسية
+-  بالصور.. شاومي تفاجئ السوق بـ 3 هواتف اقتصادية بأسعار رخيصة
+-  سرايا القدس تؤكد مقتل وإصابة جميع أفراد آلية إسرائيلية شرق غزة
+-  شعبة الخضروات بعد ارتفاع أسعار البصل القديم: "المقور أرخص"
+-  الوطنية للانتخابات تعلن عودة التصويت باللجان الانتخابية
+-  خريطة الأسعار اليوم: انخفاض العدس والجبن والبلطي وارتفاع الذهب والمسلى
+-  سرايا القدس تؤكد مقتل وإصابة جميع أفراد آلية إسرائيلية شرق غزة
+-  أبو عبيدة والدحدوح وأصليح ضمن أبرز كلمات البحث على جوجل بفلسطين في 2023
+-  مصرع طفل في انقلاب سيارة عمال بالصف
+-  10 فوائد صحية لشرب الشاي و5 أضرار لتناوله بكميات زائدة
+-  مشروب صحي يخلصك من السموم والوزن الزائد وأمراض الكبد
+-  Amazon Yılın Son Fırsatları: Termoslar
+-  دنیا کے بدقسمت ترین بولر کے ساتھ پیش آنے والا واقعہ انٹرنیٹ پر وائرل
+-  이적한 지 98일밖에 안 됐는데... 前 맨유 수비수, 갑작스러운 1군 명단 제외 통보
+-  Google Chrome is adding a feature that creates custom browser themes with AI
+-  'Rohit Sharma is a fit player', conditioning coach praises Indian captain amid criticism
+-  Sanità, Schillaci “Mali maggiori diseguaglianze e liste d'attesa”
+-  Гороскоп на 2024 рік для Дів: прогноз від Макса Гордєєва
+-  Мария Габриел благодари на посланика на Чехия у нас за подкрепата за Шенген
+-  משבר הפועלים הפלסטינים - הזדמנות להחליף דיסקט
+-  עידן קוולר התנצל בפני האב השכול שהוריד משידור; יושעה מהגשת אקטואליה
+-  חברת המד-טק אינספירה טכנולוגיות ממנה את ד"ר דן גורפיל כיועץ רפואי
+-  הסטארטאפ CitrusX מגייס עובדים
+-  זהבי: "השער הכי יפה? זה כמו לבחור איזה ילד אתה אוהב יותר"
+-  أحمد السقا يدلي بصوته فى الإسكندرية خلال ثاني أيام انتخابات الرئاسة 2024
+-  Besimi: Buxheti i vitit 2024 është pjesë e strategjisë së gjerë për rimëkëmbjen dhe përshpejtimin e rritjes
+-  Upoznavanje sa našim tržištem – Voge motocikli
+-  A new model that allows robots to re-identify and follow human users
+-  Live updates as prison officer goes on trial for 'inappropriate relationship' with inmate
+-  مسيرة للفرق الطبية بقنا لدعم الانتخابات الرئاسية
+-  روسيا: واشنطن أجرت ابحاثاً حول كورونا بين 2016 و2020
+-  Climate Justice is the Responsibility of the Wealthier Nations, Says Bangladesh Climate Envoy — Global Issues
+-  ٹیسٹ سیریز: بولر ساجد خان کو آسٹریلیا بھجوانے کے انتظامات شروع
+-  Соперник Шавката Рахмонов сделал громкое заявление перед их боем
