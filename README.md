@@ -1,51 +1,11 @@
 # Latest News
--  Венесуэла накаляет обстановку, а в посольство Беларуси невозможно дозвониться
--  ¡Atención, Sinaloa! Ya hay fecha de pago para Jóvenes Construyendo el Futuro y para el Sembrando Vida
--  Qalmaqallı “Sea Breeze işi”ndə tərəflər barışsa da...
--  Monika Gruber mit »Ohne Worte« in der Aschaffenburger Frankenstolz Arena
--  "Lagerfeuerklavier"-Abend im Aschaffenburger Hofgarten-Kabarett
--  Stimmungsvolle Fotos mit Gespür für Bildkomposition in Klingenberger Galerie Kunstraum
--  Darmstadt-Dieburg: Besuchsverbot an den Kreiskliniken
--  Investigan muertes por melón nacional
--  Video: Largas filas para ir a El Paso
--  Alistan feria de ambulantes en Plaza de Armas
--  Dalle critiche al record: ecco la rivincita di Vanja. Rabbia Bellanova sui social
--  „Ме силуваа мене и ќерка ми, а син ми го натераа да гледа“ – исповед на Украинки брутално малтретирани од руски војници
--  Lange wachtrij voor parkeerautomaat: 'Kom op, opschieten'
--  Soccerladuma | Reacting To Neville Saying Man Utd Sacking Ten Hag Would Be 'Nonsense'
--  Kral 2. Abdullah: Mesele Ürdün'e zarar verilerek çözülemez
--  Violencia en Tolima: una monja recibió disparos en su cabeza y su cuñado fue asesinado
--  Új pénzérmét bocsát ki a jegybank
--  Stephen A Smith accuses Patrick Mahomes of 'embarrassing himself' following the Chiefs' defeat by the Bills... after the QB furiously protested late offside call against Kadarius Toney
--  China Uses Inhumane System of ‘Collective Punishment’ to Target Families of Rights Defenders: Report
--  Galaxy Watch 6 : chute de prix sur la version 4G de la montre Samsung
--  Teacher jailed indefinitely for refusing to 'call a boy a girl': Enoch Burke who wouldn't use trans pupil's pronouns won't be released until he stays away from his old school - and the 'country is behind him'
--  Neuropsikiatri analizon Naim Murselin: Nuk e “zbusnin” as fëmijët, psikopat
--  ¡Nueva iniciativa! AMLO va por eliminación de organismos autónomos
--  Prince George, Princess Charlotte and Prince Louis volunteer at a baby bank as Kate Middleton keeps her promise to bring her children to the centre supporting struggling parents
--  Urgent warning to drivers over fake parking apps being advertised on Google that trick you into paying HUNDREDS for unwanted subscriptions - here's how to spot them
--  A 'severe recession' may be coming in 2024 as the stock market, job market flash warning signs, strategist says
--  Survei Poltracking Indonesia: Elektabilitas Prabowo-Gibran Menguat di Jawa Tengah
--  Chevy Chase has a Christmas Vacation reunion with Beverly D'Angelo, Randy Quaid and Miriam Flynn... after falling off a stage in New York
--  الاتحاد السعودي يرحب بوصول الأهلي إلى جدة
--  خلال الفترة المسائية.. إقبال كبار السن والسيدات والأقباط على التصويت في أسوان
--  La retribución de los consejeros del Ibex cae un 23% en 2022
--  Clothing giant Zara faces backlash as pro-Palestinian activists accuse it of 'mocking' deaths in Gaza with an advertising campaign that features mannequin wrapped in white plastic and surrounded by rubble
--  Clothing giant Zara faces backlash as pro-Palestinian activists accuse it of 'mocking' deaths in Gaza with an advertising campaign that features mannequin wrapped in white plastic and surrounded by rubble
--  Steven Spielberg breaks his silence on Hamas' brutal Oct 7 attack against Israel saying: 'I never imagined I would see such unspeakable barbarity against Jews in my lifetime'
--  Steven Spielberg breaks his silence on Hamas' brutal Oct 7 attack against Israel saying: 'I never imagined I would see such unspeakable barbarity against Jews in my lifetime'
--  Prince George, Princess Charlotte and Prince Louis volunteer at a baby bank as Kate Middleton keeps her promise to bring her children to the centre supporting struggling parents
--  Is it cheaper to use an electric heater or put the central heating on?
--  Chef is found guilty of murdering mother-of-four Claire Holland who vanished without a trace after leaving a pub more than a decade ago
--  Российский ПТРК «несанкционированно» выпустил ракету после попадания из украинского дрона
--  СМИ: Израиль потребовал контроля на ливано-израильской границе со стороны США и Франции
--  Kao kod Džejmsa Bonda: Gume sa “lancima” za sneg koji se aktiviraju pritiskom na dugme (VIDEO)
--  Oranje Lionesses to face world champions Spain in Nations League semis; Olympics spot at stake
--  Spain’s Affectionate Ritual: The Two-Kiss Greeting
--  Costco remata Apple AirPods a un precio que no podrás imaginar
--  ¿Adiós al mundo de la música? Enrique Iglesias revela si se retirará
--  'Ou a gente se dá conta da importância das eleições ou colocaremos nossos inimigos para fazer o que nunca farão', diz Lula
--  فيديو.. محافظ البحر الأحمر: لجان الوافدين تشهد كثافة كبيرة لليوم الثاني بالانتخابات الرئاسية 2024
--  Bjelica vor Real: «Werden perfektes Spiel machen müssen»
--  Mali: Svi će dobiti novac do kraja nedelje
--  BRSC Asks Events To Use Transportation Plans
+-  Bay Area Travel: A holiday weekend getaway to Sausalito
+-  Nu ryker våra klassiker: ”Märks när man handlar”
+-  Hiter in učinkovit način nameščanja lučk na smrečico
+-  Schweizer Dividendenaktien: Diese Titel haben Investoren für 2024 im Fokus
+-  V peti dimenziji je drugače kot v tretji, v kateri večinoma živimo
+-  To je boljše od viagre (in brez stranskih učinkov)
+-  Tako lahko v sušilnem stroju varno posušimo superge
+-  President Ilham Aliyev redrawing Eurasia's energy map- Azerbaijan ensures Serbia's gas access
+-  Hati-Hati Saat Memasang Baliho Caleg, Pria Ini Tewas
+-  VÍDEO: 'La sociedad de la nieve', de Bayona, nominada a mejor película de habla no inglesa en los Globos de Oro
