@@ -1,11 +1,51 @@
 # Latest News
--  Carbon Nanomaterials Market Analysis, Trends, Growth, Research And Forecast 2032
--  فاعلية بجامعة القاهرة على أنغام "قالوا إيه علينا دولا" للحث على المشاركة الانتخابات الرئاسية
--  أمطار وسيول وانخفاض حرارة.. تحذيرات من الأرصاد بشأن طقس الساعات المقبلة
--  [‘서해피격’ 유족 “文정부, 거짓평화로 국민 우롱…책임 물어야”
--  [계명대, 글로컬 시대의 공공외교 주제로 심포지엄 개최
--  על רקע האלימות הגואה: "תקדים מסוכן" עומד להיקבע בליגת האלופות
--  [IT클로즈업] “끓는 물 속 개구리였다”…달라진 김범수의 진짜 반성문
--  이낙연, 연일 '신당' 펌프질 quot;귀국 후 5개월 기다렸지만hellip;quot;
--  제주도의회, 인사청문 대상 7명으로 구체화
--  가자 '반나체 연행자' 대부분이 민간인hellip;내부서 하마스 비난 목소리도
+-  ICTbusiness TV: Upravljanje korisnicima uz napredna softverska rješenja
+-  Серена Уильямс и ее муж стали первыми звездами получившими Tesla Cybertruck
+-  In Waldshut (D) beginnt Prozess zum Tötungsdelikt von Jestetten
+-  Im Glarnerland gibt es grosse Lawinengefahr
+-  Ex-Bischof Bernard Genoud wegen sexueller Handlungen beschuldigt
+-  [ŽT] „Jis rėmėsi tokia idėja nuo pat šio karo pradžios“
+-  To dar nebuvo. Europoje aptiko aukso monetą su Jėzaus veidu (Foto)
+-  „Jis mirė!“ Z-kanaluose panika. Skelbiama, ką sumedžiojo Ukraina
+-  [ŽT] Aukščiausios kokybės mūšio vaizdai. Kas dedasi Gazos labirintuose (Video)
+-  Kiek pinigų prekybos centre išleistų Kevinas iš „Vienas namuose“ 2023 metais (Video)
+-  Les Knicks pourraient associer Evan Fournier à Immanuel Quickley dans un package lors de la trade deadline
+-  [ŽT] Į Ukrainą atvyko nauji RSK savanoriai. Tarp jų – ir „Wagner“. Kas vyksta
+-  Bradley Beal (enfin) de retour demain soir contre les Warriors ?
+-  Au Tréport, des graffs mettent à l'honneur la mer et les pêcheurs
+-  Yeni psikolojik hap sahası
+-  Pacers, iki yönlü atletik forvet arayışında
+-  Ragbi maçında skandal! Filistin bayrağını Yunan bayrağıyla sansürlediler
+-  Fransa'da, Müslüman öğrencilerin eğitim gördüğü liseye kamu desteği kesildi
+-  Asgari ücret maratonu başladı! Bakan Işıkhan: Çalışanımız enflasyona ezdirilmeyecek
+-  Diyanet İşleri Başkanı Erbaş: Batı, artık iflas etmiştir
+-  FIFA Kulüpler Dünya Kupası başlıyor
+-  İlkokul öğrencisine köpek saldırısı! AK Partili Özcan: Olayın en büyük sorumlusu Mansur Yavaş'tır
+-  Diferenca mes tij dhe babait tim nuk ka ekzistuar kurrë”, Anila kujton mes lotësh vjehrrin e ndjerë
+-  Jalur Puncak Bogor Bakal Terapkan Ganjil Genap Saat Nataru
+-  Čas na doručení dárků se krátí. Termíny, kdy je nejpozději odeslat pod stromeček
+-  8 pieces of original furniture return to Reddick Mansion in Ottawa
+-  News24 Business | Post Office will no longer pay out social grants
+-  News24 | SA's Louis Oosthuizen outduels compatriot Charl Schwartzel to win Alfred Dunhill Championship
+-  Во Риека: Се преврте товарен воз полн со жито, работниците избегаа во последен момент
+-  ‘억울함’ 드러낸 ‘등산로 너클 살인범’ 최윤종…사형 구형
+-  24 Hours in Police Custody viewers left ‘sick to their stomach’ after ‘vile’ criminal commits vicious assault on woman
+-  24 Hours in Police Custody viewers left ‘sick to their stomach’ after ‘vile’ criminal commits vicious assault on woman
+-  صندوق قطر للتنمية يبحث سبل التعاون مع برنامج الأمم المتحدة الإنمائي
+-  بأعلام مصر.. مسلم ومسيحي إيد واحدة في لجان الانتخابات الرئاسية بالغربية
+-  Afrique : Lorsque les monnaies locales s’impriment ailleurs !
+-  صاحب السمو يستقبل الوزراء المشاركين في مؤتمر الطاقة العربي الثاني عشر
+-  राजस्थान में सीएम फेस को लेकर हलचल तेज, राजे पर बिफरे राजेंद्र राठौड़
+-  Themapark voeding verdeelt Gelderse politiek
+-  حاملين أعلام مصر.. احتفالات على أنغام الأغاني الوطنية بلجان الانتخابات الرئاسية بفيصل
+-  TV lovers warned BBC iPlayer has stopped working on some boxes – check yours now
+-  TV lovers warned BBC iPlayer has stopped working on some boxes – check yours now
+-  Alasan Gerakan Fatah di Palestina Serukan Pemogokan Massal Hari Ini
+-  (Видео) Се појави снимка од разговорот меѓу Зеленски и Орбан: „Разговаравме многу директно“
+-  “Sədərək”də satılan bu malların mənbəyi üzə çıxdı
+-  Масштабные учения КСИР
+-  "Eu son nas viñetas tal cal son na vida real"
+-  انتخابات الرئاسة.. مساعدة فاعلة من الشرطة النسائية لكبار السن وذوي الاحتياجات الخاصة بالقاهرة
+-  Održana Skupština političkog pokreta 'Za nove generacije'
+-  초록우산 어린이재단 강원후원회 송년회 및 2023 산타원정대 발대식 개최
+-  권성동, 주식 양도세 기준 완화 반대한 한겨례와 설전 “오류와 억측으로 점철된 비난“
