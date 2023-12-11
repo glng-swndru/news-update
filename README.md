@@ -1,51 +1,51 @@
 # Latest News
--  Daň z nemovitostí stoupne. Experti řekli, jak ji dál vylepšit
--  จับ 11 ชาวบังกลาเทศ ใช้ไทยเป็นทางผ่านปลายทาง "มาเลเซีย"
--  ‘I’ve got no dramas’: Lyon extends olive branch to Johnson
--  ‘I’ve got no dramas’: Lyon extends olive branch to Johnson
--  নিজেকে আকর্ষণীয় করে তোলার এই ৭ বৈজ্ঞানিক উপায় জানতেন?
--  Ten titles to delight the littlest readers this Christmas
--  Firms keep hiring despite downturn in business activity
--  City of Glasgow College: row over lecturer's 'Nazi' symbols
--  সিটির পর এবার উড়ন্ত আর্সেনালকে থামাল অ্যাস্টন ভিলা
--  South African Bell sounds early warning in Classic Rally
--  '쟤 왜 출전시켰어?'…SON에게 무너진 잉글랜드 국대 윙백→뉴캐슬 감독도 비난
--  "꿈에서라도 보고 싶어"…이상민→정형돈, 눈물의 사모곡에 '애도 물결' [종합]
--  '미끼' 백진희(Baek Jin-hee), "성폭력 피해자 주영이가 되기 위해 매일 일기 썼다" [MD동영상]
--  에이드리븐, ‘2023 올해의 광고 PR상’ 금상 수상
--  박명수 "박원도 '토크 콘서트' 참여…게스트만 30명, 고척돔 예약금 걸겠다" [라디오쇼](종합)
--  '알쓸별잡' 김상욱 교수 ‘라디오스타’ 출연, “악마의 속삭임에 넘어갔다”
--  대한항공xSSG 랜더스, 인천사회복지공동모금회에 공동 기부금 전달
--  Princess Diana's 1995 BBC interview with Martin Bashir
--  Princess Diana's 1995 BBC interview with Martin Bashir
--  "서울살기 힘드네"...서울 아파트 월세 평균 100만원 돌파
--  구미도시공사, 고아폐수처리장 '최우수 운영시설' 선정
--  OPEC Pursues Charm Offensive at COP28, for Youths
--  2년 전 SON 밟았던 그 선수! 토트넘, 올 시즌 PL ‘1분 출전’ 수비수 노린다
--  21-Year-Old SDF Personnel Arrested on Suspicion of Killing Elderly Man in Kyoto: “I would have Killed Anyone”
--  양산·양산목련·통도라이온스클럽, 식료품 후원
--  영산대, 챌린지 비 스마트 사업 완료
--  대선주조, 브랜드 이미지 제고 위해 경성대와 산학협력
--  경남교육청, 전문상담사 역량 강화 연수
--  경남교육청, 하반기 직업교육 혁신지구 공동연수회
--  경남교육청, 제5회 경남인권포럼 개최
--  KoELSA 문병연 상임감사 사회공헌활동
--  건강보험공단, 금연·절주 대학생 서포터즈 수료식
--  경남농협 2023년 상호금융 우수직원 표창
--  Соперник Шавката Рахмонова объяснил происхождение своего прозвища
--  포항시, '호미곶 한민족 해맞이 축전' 준비 상황보고회 개최
--  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
--  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
--  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
--  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
--  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
--  After `The Archies` release, Agastya Nanda joins grandfather Amitabh Bachchan to
--  SC to pronounce judgment on pleas challenging abrogation of Article 370 today
--  Once Dheeraj Sahu joins BJP...: Chaturvedi after Shah`s jibe at INDIA bloc
--  TN govt allocates 1 cr for cleaning work of schools in cyclone-affected areas
--  Dnešok je svetovým dňom rozchodov: Odborníčky radia, čo robiť, aby vám pred Vianocami neskrachoval vzťah
--  ARM CEO fears humans could lose control of AI
--  삼척시, 재난현장조치 행동매뉴얼 담당 부서 '재난안전통신망' 확충
--  We're on track to eliminate hepatitis C, but stigma remains and reinfection is a risk
--  Thưởng Tết Nguyên đán 2024: Bắt đầu có những doanh nghiệp công bố con số
--  गौतम गंभीर से श्रीसंत से तकरार पर किया गया सवाल, विवाद से झाड़ लिया पत्ता
+-  גורמים מדיניים: "בסוף ינואר תתקיים הערכת מצב מחודשת - עד אז תימשך הלחימה"
+-  בונים על ואקום שלטוני, נושאים עיניים לזירות אחרות: כך ייראה היום שאחרי אצל חמאס
+-  הותר לפרסום: ארבעה לוחמים נפלו בקרבות ברצועת עזה
+-  חרבות ברזל, בינה מלאכותית ודני קושמרו: אז מה הישראלים חיפשו השנה?
+-  גם היום: "יריד האור" לתמיכה בעסקי הדרום והצפון ממשיך
+-  "זה סיפור מופלא עם מזל גדול": המבצע להחזרת התפילין
+-  मध्य प्रदेश का मुख्यमंत्री कौन, आज चुनेंगे विधायक
+-  Türkiye ile Yunanistan arasında 2. köprü! Detaylar netleşti
+-  Savcıyı öldürmek için kiralık katil tuttular!
+-  नेतन्याहू ने हमास के लोगों से आत्मसमर्पण करने का किया आह्वान
+-  Krieg gegen die Ukraine: So ist die Lage
+-  השוק יזנק? זו התחזית של סיטיגרופ למדד S&P 500 לשנה הבאה
+-  הסיבה לאנטישמיות? קטאר מעבירה עד טריליון דולר לאוניברסיטאות בארה"ב
+-  야놀자, '놀자, 계산적으로' 캠페인으로 쿠폰 2억7000만장 뿌렸다
+-  SKT '두뇌톡톡', 치매 이환율 대폭 낮췄다..."노인 위한 AI 서비스 고도화"
+-  토스 앱으로 택시·전기자전거·킥보드 탄다
+-  카카오, 지속가능성 평가지수 'DJSI 월드' 3년 연속 편입
+-  네이버페이, 5억원 혜택 담은 연말결산 이벤트 진행
+-  당근, 거래 희망 장소 1순위 '지하철역'
+-  멜론, 2023 연말결산 발표...정국·아이브·뉴진스 인기
+-  쪽방촌에 온기 전한 토스뱅크...5000만원 상당 기부
+-  카카오뱅크, '신용대출 비교하기' 출시
+-  IPX, '라인프렌즈 스퀘어 성수' 개점...인기 굿즈 '한가득'
+-  크래프톤, 글로벌 AI 학회 '뉴립스'에 논문 5편 등재
+-  [테크M 이슈] 2년10개월만에 크루 앞에 서는 김범수….카카오 민심 다지기 직접 나섰다
+-  '컴투스 글로벌 콘텐츠문학상 2023' 대상에 '전송된 이들을 위한 안내서' 선정
+-  [크립토 브리핑] 1주일째 횡보 중인 비트코인...美 기준금리 동결 '유력'
+-  "더현대 서울 오픈런" 크리스마스 맞은 백화점...나들이&데이트 명소로 '우뚝'
+-  "지형 파괴 액션 통했다"...슈팅게임 새 이정표 쓰는 '더 파이널스', 동접 24만 '순항'
+-  롯데정보통신 코튼시드, '롯데월드타워∙몰'서 NFT 스탬프 이벤트
+-  블록체인 기업 비피엠지, 컴투스 '엑스플라' 밸리데이터 합류
+-  대웅제약 '류프로라이드' 주사제 개발 돌입…美 항암제 시장 도전
+-  یمنیٰ زیدی سے شادی کی قیاس آرائیوں پر احمد علی اکبر کا جواب
+-  عمران خان کی تین اور شاہ محمود کی دو کیسز میں ضمانتیں منظور
+-  RSUD Otista Bandung Siap Layani Caleg Stres
+-  Pressestimme: 'Frankfurter Allgemeine Zeitung' zu Ampelkoalition
+-  Ukrainos oro pajėgos numušė 8 rusų raketas, nukreiptas į Kyjivą
+-  ที่ปรึกษารองนายกฯ ยัน ทักษิณไม่มีอภิสิทธิ์ชน รักษาตัวเป็นไปตามระเบียบ
+-  Hoover's Shades Mountain Elementary School closed on Monday
+-  Pressestimme: 'Augsburger Allgemeine' zu EU-Regulierung Künstliche Intelligenz
+-  ดาราดัง โต้กลับทันที หลังมีคอมเมนต์ ชวนเข้าใจผิด ใช้ยาเสพติดลดน้ำหนัก ?
+-  Pressestimme: 'Straubinger Tagblatt/Landshuter Zeitung' zu SPD
+-  Pressestimme: 'Münchner Merkur' zu EU-Sanierungszwang
+-  بشراكة استراتيجية مع جامعة دبي ومنظمة الإيسيسكو
+-  Pressestimme: 'Südwest Presse' zu Parteitag der SPD
+-  Pressestimme: 'Frankfurter Rundschau' zu Krieg Israels gegen die Hamas
+-  Pressestimme: 'Rhein-Zeitung' zu Scholz/Haushalt
+-  Pressestimme: 'Leipziger Volkszeitung' zu Ampel-Koalition
+-  Pressestimme: 'Märkische Oderzeitung' zu 75. Geburtstag der FDP
+-  Pressestimme: 'Südkurier' zu Lauterbach/Corona
