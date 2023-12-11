@@ -1,51 +1,11 @@
 # Latest News
--  صواريخ من لبنان تستهدف مستوطنة المطلة
--  Infotografável
--  Why Kim Jong-un, Vladimir Putin and Xi Jinping are all pleading for more babies
--  Stawka zwrotu akcyzy w paliwie rolniczym w 2024 r. - 1,46 zł za litr
--  Sejm wybrał Donalda Tuska na premiera
--  Aukcja obligacji 3-letnich USA „poszła źle”
--  Klienci rzucają firmy bez ESG
--  O domingo em que Bolsonaro morreu
--  Contrasting trajectories for key players in Asia-Pacific in 2023
--  Haryana Weather: रेवाड़ी में 6.5 डिग्री पर न्यूनतम पारा, पिछले साल का टूटा रिकॉर्ड, जानिए आने वालों का अपडेट
--  Samo četiri sata! Jeziva situacija sa stranim plaćenicima u Ukrajini izazvala je šok u SAD
--  Vikings offensive coordinator Wes Phillips' status with team uncertain after arrest
--  Mediengruppe Pressedruck verstärkt sich
--  Franelero asesinó a señor tras discutir por estacionamiento en CDMX
--  İtalya Başbakanı Meloni, Ukrayna konusunda geri adım atmalarının hata olacağını söyledi
--  Galatasarays træner afviser manglende respekt: Kan lide FCK
--  &quot;RODBINA NE MOŽE DA MI OPROSTI NI NAKON 5 GOINA&quot; Mladenci jednim postupkom razbesneli familiju: &quot;To je sumanuto&quot;
--  VOJNA POMOĆ UKRAJINI BLOKIRANA! Hitno se oglasio Borelj
--  Crean un organoide cerebral capaz de reconocer el habla humana
--  Zur innerparteilichen Diskussion: FDP stimmt über Ampel-Ausstieg ab
--  Prins Harry skal betale sagsudgifter i strid mod britisk avis
--  Vålerenga-kapteinen bryter tausheten: – Kastet opp 15 ganger
--  AMLO lanza ‘Gran Guía’ del Tren Maya: ¿Qué información tiene para los viajeros?
--  הפועל תל אביב תפגוש את וולבס: "ההכנה שלנו רחוקה מאידיאלית"
--  Olycka på E16 påverkar trafiken
--  Olycka på E16 påverkar trafiken
--  Olycka på E16 påverkar trafiken
--  Aleksej Navaljni: Lider ruske opozicije „udaljen iz zatvora“
--  AK Parti'li Aydın: ABD, BM'yi kendi menfaatlerine göre kurmuş
--  قبل شهر من مشاركته في كأس آسيا.. منتخب لبنان يعلن عن مدربه الجديد
--  Gazze'de can kaybı 18 bin 205'e yükseldi
--  Muere un joven español en la guerra de Ucrania
--  Selena Gomez Reveals 6-Month Relationship with Benny Blanco
--  UK leader faces a Parliament in revolt over Rwanda plan
--  أبوظبي تعيد هيكلة الليث
--  Zavirite u LUKSUZNU KUĆU Sonje i Nikole Lazetića na Avali - od dekoracije zastaje dah: Ona sama okitila jelku od 3 metra pa pokazala finalni rezultat
--  MME contesta acusações da Folha sobre importação de energia venezuelana e aponta interesses econômicos do jornal
--  Fabio Capello skeptiskt till Zlatan: ”Vad kan han göra?”
--  After The Masked Singer's Ginuwine Was Compared To Brian McKnight, He Told Us His Reaction To The 'Crazy Guesses'
--  Pakistan, Azerbaijan agree to enhance economic cooperation
--  Record 78,320 waiting for residency decision as Dutch immigration backlog soars
--  Man convicted of fatally shooting DJ at Rotterdam metro station
--  Empoignade avec Patterson : Le verdict de la Fédération anglaise est tombé pour Nicolas Jackson
--  Rómskym deťom sa na Slovensku odopiera rovný prístup k vzdelaniu, upozorňuje Amnesty International Slovensko
--  Imanol: «Si especulamos, perdemos seguro»
--  Šibenčani svoj greentavi advent smatraju najboljim u Dalmaciji. Napravili smo đir, ekipa gušta: ‘Sve je lipo, leđero...‘
--  Anadolu Efes-Fenerbahçe Beko maçının ardından
--  Batman’da silahlı saldırıda yaralanan çocuğun tedavisi sürüyor
--  Sanar a través de las gemas: Efectos de las piedras preciosas en la salud y la mente
--  Spezia, il nome nuovo per l'attacco arriva dalla Grecia: piace Sporar del Panathinaikos
+-  رئيس هيئة الأركان يبحث مع وزير القوات الجوية الأمريكية التعاون بالمجال العسكري
+-  الصناعات العسكرية تعلن عن وظائف شاغرة في عدة مجالات بالرياض
+-  BM: Genel Sekreter, Sudan'daki konvoy saldırısı karşısında dehşete düştü
+-  Rusya'dan ABD'nin BMGK'de Gazze'de ateşkes tasarısını veto etmesine tepki
+-  In beeld: IJsbaan Friends on Ice in Ede centrum weer geopend
+-  Tunis : Manifestation pro-Palestine devant Zara
+-  Estrazione Superenalotto oggi 11 dicembre 2023: i numeri vincenti
+-  جوائز الكاف.. لامين كمارا يتوج كأفضل لاعب شاب
+-  مكتب الشؤون البلدية في "أمل" يستنكر الهمجية الإسرائيلية
+-  Απόλλων: Λανθασμένη τάση και «αυτογκόλ» λόγω Ποντικού
