@@ -1,51 +1,51 @@
 # Latest News
--  파도 사진 찍는 진사들
--  빗물 고인 이호포구 산책
--  유보통합 소통의 장 개최
--  제주 신혼부부 1000쌍 가까이 줄어…맞벌이 최고
--  Filistin Kızılayı insani yardım yüklü 100 kamyonu teslim aldı
--  Şampiyonlar Ligi'nde 6. hafta yarın başlıyor
--  İskoçya Başbakanı Yusuf'un Cumhurbaşkanı Erdoğan'la görüşmesi İngiltere'yi rahatsız etti
--  Sanayi üretiminde yüzde 1,1'lik artış
--  Cumhurbaşkanı Erdoğan 369 tesisin açılışını yapacak
--  Cari denge ekim ayında 5.6 milyar dolar fazla verdi
--  إضراب شامل في الضفة الغربية احتجاجا على استمرار الحرب على قطاع غزة
--  „În România intră produse din lapte care nu au văzut laptele”. Ministrul Agriculturii are un sfat pentru români
--  기정예산 2775억 ‘싹둑’ 제주도 정리추경 심사 돌입
--  가정폭력 피해자 진술 반복 고충 경감
--  Kickoff | Pyramids coach: We deserved better against Sundowns
--  Центар за обуки на администрацијата, тестирања за новите државни административци
--  Kickoff | 'He has all the conditions to be an exceptional player'
--  Veľké FINÁLE jojkárskeho Talentu: Hudák prvýkrát ukázal NOVÚ lásku a... TOTO je VÍŤAZ!
--  SHMÚ upozorňuje na hmlu, poľadovicu, snehové jazyky i vietor na horách
--  Vodiči, POZOR! ZLODEJI za pár sekúnd KRADNÚ autá už aj na SLOVENSKU: Vynašli NOVÚ neviditeľnú TECHNIKU! Vieme, ako sa chrániť
--  Vianočný kávový test: Ako vybrať darček pre každého kávičkára
--  Rodičov pobúril vulgárny odkaz na letisku: Pozrite, čo na kufor ich malého syna napísal pracovník
--  36-åring startar nytt företag i Örnsköldsvik
--  В «Динамо» подтвердили интерес «Црвены Звезды» к Бувачу
--  Экс-замглавы МО Украины сообщила о сложном положении ВСУ на пяти направлениях
--  '로메로랑 같이 서면 선수들 실려 나간다' 토트넘, ‘더티 플레이 장인’, 에버튼 벤치 수비수 영입 고려
--  김혜성, 2023 KBO 페어플레이상 수상자로 선정...키움, 2년 연속 수상자 배출
--  '더비 라이벌로 간다고?' 맨시티 계륵 MF, 맨유 최우선 영입 대상 됐다
--  8만5천달러→60만 달러 '코리안드림' 이룬 도슨, 키움과 2024시즌 재계약 체결
--  안산, 유소년 테크니컬 세미나 개최… 경기력 리뷰와 계획 공유
--  한미약품 “백혈병 신약 ‘투스페티닙’, 단독·병용요법 모두 효과 탁월”
--  국내 조선 3사, 해외 생산 거점 확보 나서…일부에선 기술유출 우려
--  Sarajevo najefikasnije u 17. kolu, najveća posjeta na Grbavici
--  임형철 국고국장 “연물별발행 기존 ±5%에서 ±3%로 축소”
--  إيكاترينا.. من هي منافسة بوتين في سباق الكرملين؟
--  عمان العربية السابعة محلياً وضمن أول 500 جامعة على مستوى العالم في تصنيف Green Metric
--  ممثلو الادعاء الأمريكي يطلبون عدم تأجيل محاكمة ترامب
--  Daily News Briefing
--  Cristiano Ronaldo foi o atleta mais pesquisado no Google nos últimos 25 anos
--  Nowi siatkarze w klubach PlusLigi. Transfery w trakcie sezonu 2023/24
--  Uniforme à l'école : Perpignan concernée, date de début, durée, tenue, coût pour les familles... on en sait plus de l'expérimentation voulue par Gabriel Attal
--  동서발전,‘2023년 안전문화대상’국무총리 표창 수상
--  국회 과학기술정보통신위, 통신비 지출 절감 정책 토론회 개최
--  경기도, “노후계획도시 특별법, 국회 통과 환영”
--  Дневен хороскоп за понеделник, 11-ти декември 2023-та
--  Wapenbord en chocoladeletters van en voor buren IHC en Kinderdijk
--  'Muziek op School' weer van start in Giessenburg
--  How removing bureaucracy in recruitment saved EKSUTH from Japa effect – CMD
--  Slovensko: Agentura Fitch snížila rating o jeden stupeň na „A-“
--  Посол в Израиле заявил, что несколько десятков россиян ещё не вышли из Газы
+-  [기업법률리그 41] 가상자산과 강제집행
+-  인천대 송영준 교수연구팀, 데이터 처리 가능 DNA storage 성공적 구현
+-  "지역소멸 위기, 고향사랑 열풍으로 넘는다"
+-  KB국민은행, 국민지갑 가입자 14개월만에 500만명 돌파
+-  신한금융, 국내 금융그룹 최초 11년 연속 DJSI 월드지수 편입
+-  전남도, 벼 경영 안정대책비 570억원
+-  LG유플러스, 한국토요타자동차와 전기차 충전 인프라 확대 나서
+-  현대차·기아, 형상기억합금 이용한 스노우 체인 일체형 타이어 기술 공개
+-  고흥나누리상담센터, 여성 폭력 피해 통합상담소 국비 지원 선정
+-  현대차그룹 6개사, 글로벌 지속가능경영 경쟁력 인정
+-  나주시, 2023년산 공공비축미 9574톤 매입
+-  보성군-농협유통, 보성키위 유통망 확대 맞손
+-  동구 ‘음주폐해예방사업 우수사례 평가’ 보건복지부 장관 표창 수상
+-  중구 “효드림 복지카드 사용 서두르세요”
+-  무안군, 남악 중앙공원 크리스마스트리 설치
+-  부평구, 성탄절·연말연시 케이크 판매업소 지도점검 실시
+-  계양구노인복지관, 2023년 평생교육사업 종강식 ‘청춘드림(DREAM)’ 성료
+-  서구 ‘치매관리사업 우수사례 경진대회’ 보건복지부 장관상 수상
+-  남동구, 2023년 평생학습 성과공유회 개최
+-  ‘2024 영광 방문의 해’ 슬로건 공모
+-  옹진군, 자월도 국사봉 봉수대 복원 공사 마쳐
+-  서구, 가정역 스마트도서관 개관... 365일 대출·반납 가능
+-  중구, 어르신 폐렴구균 무료 예방접종 실시
+-  장흥군, 연말 인재 육성 장학금 기부 ‘풍성’
+-  인천시립소년소녀합창단 창단 추진
+-  옹진 섬 마을 유일한 산부인과 백령병원 진료 재개
+-  인천시, 광고제 3관왕 달성… 마케팅 기획력·우수성 인정받아
+-  광주시 동구 ‘광주쿡폴리 미래의 식탁’
+-  구례군, 제1회 평생학습 박람회
+-  19일까지 ‘2023년 광양시 10대 뉴스’ 설문조사
+-  곡성군, 한의약 건강 증진사업 성료
+-  신안군, 작은 섬 여객선 터미널 바다 전망 카페 운영
+-  중랑구의회, 2024년도 예산안 심사 예결특위 구성
+-  화순군, 도시재생 상생협력상가·교리 북카페 입점자 모집
+-  동대문구이문체육문화센터, (주)글로벌비즈텍과 업무협약 체결
+-  강북구, 제5차 미세먼지 계절관리제 시행
+-  서대문구, 청소년안전망&꿈드림 보고대회 ‘수고했어, 올해도’ 개최
+-  중랑구, 올해 10대 뉴스 선정
+-  양천구, 국민영양관리시행계획 평가 ‘우수기관’ 선정
+-  금천구, 독산로 분전함 11곳에 공공디자인 적용
+-  관악구, 20년 후 미래를 꿈꾸다… ‘2040 도시발전구상’ 마련
+-  마포구 홍대 레드로드, 로드 갤러리로 변신
+-  강서구, 화곡6동 모아타운 주민설명회 개최
+-  구로구, 옥외광고물 수준향상 평가 우수기관 선정
+-  마을버스 강북05번 도봉구 창3동 달린다
+-  종로구, 전국 최초 ‘스마트 인파관리 시스템’ 내년 관내 전역으로 확대
+-  성동구, 노인일자리 참여자 2175명 모집
+-  동대문구, 퇴직예정 직원 재취업지원서비스 교육 실시
+-  김포시의회 한종우 의원 발의… 김포시 건축조례 일부개정조례안 가결
+-  성남시의회 제289회 제2차 정례회 폐회
