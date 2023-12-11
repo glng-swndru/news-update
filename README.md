@@ -1,11 +1,11 @@
 # Latest News
--  „Po tokios gėdos Teplinskis turi atsistatydinti.“ Košmaras Krynkuose. Kas nutiko (Video)
--  Tyrimas šokiruoja: paslaptingas ryšys tarp kačių auginimo ir šizofrenijos yra realus
--  [ŽT] „Mane pasodins.“ Arestovyčius skelbia apie sugrįžimą į Ukrainą
--  Plaukų nekirpo nuo 14 metų. Kaip atrodo ilgiausius plaukus pasaulyje turinti moteris (Video)
--  Повалиха тежащ четвърт тон глиган край Кърджали
--  Altın haftaya hareketli başladı!
--  Altın merkez bankalarının kararlarını bekliyor
--  Takla atan araçtan burnu bile kanamadan çıktı
--  Политолог: Предстои изкуствено напрегнат пазарлък преди ротацията
--  Awal lagi Tok Ram dah tahu siapa juara GV10
+-  "الأرصاد": طقس اليوم دافئ والرؤية تتحسن تدريجياً..و"العظمى": 29
+-  مجلس الأمة ينظر غداً في استقالة نائب رئيس ديوان المحاسبة
+-  정권 교체 앞둔 폴란드, 한국산 무기계약 취소할까
+-  كيف تتجنب حرقة المعدة؟
+-  غرفة تجارة الأردن: إنترنت الأشياء يدعم فرص النمو الاقتصادي
+-  الفاصوليا البيضاء تقي من سرطان القولون
+-  ارتـفـاع أسـعـار النـفـط عالـميـا
+-  تدابير وقائية لمتاعب الشتاء الصحية
+-  Progress of ECRL project stands at over 56pc, says Anthony Loke
+-  [여수산단 오염물질 배출값 조작 4년여 함흥차사
