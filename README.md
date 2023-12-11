@@ -1,51 +1,51 @@
 # Latest News
--  تحذير من 4 عواقب وخيمة للاستحمام بالماء الساخن خلال الشتاء
--  ينتهى السبت.. التسجيل في برامج اللغة الإنجليزية للجميع حضوريا وعن بُعد
--  В России началась разработка плана восстановления Мариуполя на 2024 год
--  Katliam destekçisi Blinken İsrail'e acil olarak yapılan tank mühimmatı satışını savunup Kongre'ye çağrıda bulundu
--  ABD Dışişleri Bakanı Blinken: Gazze'deki katliamın ne zaman biteceğine İsrail karar verecek
--  İtalya'da iki tren çarpıştı: Kazada 17 kişi yaralandı tüm seferler durduruldu
--  Kassam Tugayları: 48 saatte 40 İsrail askerini öldürüp 44 askeri aracı imha ettik
--  जम्मू-कश्मीर से अनुच्छेद 370 को निरस्त करने पर फैसला: SC ने कहा-अनुच्छेद 370 एक अस्थायी प्रावधान
--  힐튼, 우마나 발리와 함께 동남아시아에 LXR 호텔 & 리조트 공식 오픈
--  Израиль послал жесткий сигнал Путину
--  Γνωστό φάρμακο για τη ρευματοειδή αρθρίτιδα επιβραδύνει την εξέλιξη του διαβήτη τύπου 1
--  청소년 해방구 ‘야호 존’…광주시교육청 공약사업
--  Anthony Albanese and Jodie Haydon's holiday surprise: PM kicks off five days of summer off with a celebrity twist - at a gig no-one would expect of trendy leader
--  2 Unit Kerja Pemprov Jatim Raih Penghargaan Zona Integritas Predikat WBK
--  Australia A smashing Sri Lanka twice in one day, David Warner plucked from obscurity and Andrew Johns playing for NSW - inside the early days of T20 cricket in Australia
--  Stars feature on NFL coverage
--  Seçil Erzan’ın avukatı konuştu
--  [벡톤디킨슨코리아] 의료기기 회수에 관한 공표
--  Over 50 Last-Minute Christmas Gifts for When Going to the Shops Isn’t an Option
--  Белый дом активизирует усилия в Конгрессе по помощи Украине
--  How Sun’s December 17 Transit Will Impact These Zodiac Signs
--  Korban Pembunuhan Sadis di Wonogiri Diracun Lewat Es Teh Manis
--  Guwahati: ‘Bharaghar’ actor Jayanta Das hospitalised in critical condition
--  '뒤뜨리장, 뽁닥양지, 수꾸때비' 정의훈 시인, 동해안 사투리 담은 방언집 출간 화제
--  [부음] 김익록 춘천 퇴계중 교감 모친상
--  횡성 주요 관광지 유료 관광객수 대폭 증가
--  평창군 AI·IoT기반 어르신 건강관리사업 보건복지부장관 표창 수상
--  제11회협회장기 강원특별자치도 바둑대회 성황리 종료
--  새홍천·홍천진달래로타리클럽 연탄 배달 봉사
--  가톨릭관동대 학생방범대 성과공유회
--  강릉봉사단체 십시일반 사랑의 김장나눔행사
--  강원여성경영인협회 강릉시지회 연탁 기탁
--  원주 중앙동 주민자치위·한라대, 사랑나눔 김장김치 배달
--  홍천군자원봉사자대회
--  남면 재향군인회 성금 기탁
--  권선개발 성금 기탁
--  양구 장인희 씨 이웃돕기성금 기탁
--  재경철원군민회장 장학기금 기탁
--  정선군종합사회복지관 정선군시설관리공단 자원봉사활동
--  평창군 적십자 봉사원대회 열려
--  전국이·통장연합중앙회 동해시지회, 2023 송년의 밤 실시
--  횡성jci 사랑의 연탄전달
--  원주 소초면 주민들, 악취 해소 및 친환경 에너지타운 건립 촉구
--  인감증명서 110여년만에 온라인 발급 도입
--  강릉 여성·아동 등 사회적약자 인권 네트워크 발족
--  [속보] 김기현 "모든 기득권 내려놓겠다… 사즉생 각오로 국민 목소리에 답할 것"
--  МЧС России доставит 17,5 тонны гумпомощи для населения Газы
--  לביבות תפוחי אדמה קלות להכנה
--  מרק בטטה עם הפתעות טעימות
--  סטארבקס מול העיניים, בתור התחלה: מקדונלד'ס השיקה את CosMc's
+-  Beyazlaştırılmış zencileri de kurtaracağız
+-  Göçmen kaçakçılarına göz açtırılmıyor! 8 kişi tutuklandı
+-  Potada derbi heyecanı!
+-  Rusya'dan Kiev'e balistik füze saldırısı
+-  Археологи обнаружили инновационное седло древних монголов
+-  엔씨소프트, 박병무 VIG파트너스 대표 영입… 공동대표 체제 전환
+-  올해 마지막 11번가 십일절, 500여개 타임딜 최대 72% 할인
+-  SC upholds abrogation of Article 370, says it wasn’t a permanent provision
+-  沒禮貌的email讓人看了就火大！職場信件最好避開10大NG行為
+-  무신사, 연말 맞이 ‘크리스마스 박싱데이’ 진행
+-  [ACL 기자회견] 울산 에이스 엄원상, “경우의 수 따지지 않고 이기겠다”
+-  '다이어보다는 확실히 낫다' 데이비스, 결정적인 태클로 실점 방지 → 판 더 펜 공백 최소화...현지 매체 "탄탄한 수비 선보였다"
+-  "로메로는 미쳤어"...3경기 출전 정지→ 또 '살인 태클', 전직 PL 선수들 분노 폭발
+-  Sondaż: Ponad 40 proc. Polaków chce, by ministrowie Morawieckiego oddali pensje i odprawy
+-  Lunch with top entrepreneurs
+-  活動速遞｜花園道三號聖誕亮燈 中環最美戶外打卡位 10米高聖誕樹/星海樓梯
+-  Israel presses ahead in battle against Hamas in southern Gaza
+-  Libertarian Argentine president to unleash shock therapy amidst fiscal crisis
+-  Avropa İttifaqı İrəvanı məyus etdi: erməni hərbçilərinə təlim keçməyəcəyik
+-  Na severovýchode Talianska sa zrazili vlaky, ľahšie zranenia utrpelo 17 ľudí
+-  Bývalý prezident Trump oznámil, že dnes nebude vypovedať pred súdom v New Yorku
+-  진화하는 영화관…콘서트·스포츠 중계로 '단체 관람' 욕망 건드려
+-  Americká stíhačka F-16 sa zrútila do Žltého mora, pilot sa bezpečne katapultoval
+-  PHOTO GALLERY: Scenes From the 2023 Future Leaders in Convenience Summit
+-  Autoridades electas asumirán el 14 y 15 de enero
+-  ഐഎഫ്എഫ്കെയിലും നിറഞ്ഞ ആളുമായി ‘കാതൽ’
+-  Kalıcı yaz saati uygulamasında flaş gelişme
+-  Alicia Keys Helped Surprise Ciara's Daughter Sienna at 'The Color Purple' Premiere
+-  Sandra Hüller: Deutsche Schauspielerin erhält US-Kritikerpreis für „The Zone of Interest“
+-  Sandra Hüller: Deutsche Schauspielerin erhält US-Kritikerpreis für „The Zone of Interest“
+-  হয় টাকা দিন, না হলে বিদায় নিন: মোদিকে মমতা
+-  कर्नाटक: बेंगलुरु समेत 12 जिलों में दो दिनों तक बारिश की भविष्यवाणी
+-  과천시, 안심식당 지정업소 모집
+-  2023년도 경상북도의회 정책연구위원회 정기총회
+-  안동댐 주변지역 발전 위한 정책토론회 개최
+-  김광열 영덕군수, 수원서 영덕사과 홍보·판촉 행사
+-  의성군, 지역특화형 비자 시범사업 송년행사
+-  성주소방서, 메타버스 플랫폼 활용한 회의
+-  청송초교, 학부모회 학교참여사업 김장 담그기 체험활동
+-  Allu Arjun, Mahesh Babu, Prabhas meet Netflix CEO Ted Sarandos: ‘Blown away by their dedication to craft’
+-  Bunu yapanların hemen tapuya gitmesi gerekiyor! Ev sahipleri ve kiracılar sakın gözden kaçırmayın!
+-  САЩ: Действията на Китай са опасни
+-  Feci kaza! İki tren çarpıştı
+-  Los planes urbanos
+-  [최춘식 “혜택 받은 중진들이 지도부 흔들어…전쟁 중엔 장수 안 바꿔”
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [‘한동훈·이정재’ 사진 덕 봤다…임세령 지분가치↑·임창욱 회장 20억원 현금화
+-  [나토 주재 8개국 대표, 13~15일 방한…인태지역 안보 협의
+-  [더 시에나 그룹, 고객이 기부한 만큼 호텔도 기부하는 특별한 오케스트라 후원
+-  [매수, 매도 다 알려주는 무료 ‘주식카톡방’ 의 등장
