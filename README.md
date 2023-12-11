@@ -1,11 +1,11 @@
 # Latest News
--  가을 빛, 여기 머물다 서산의 가을
--  Wit-lof wint Vegan Award 2023
--  Krijuesi i Wikipeadia: ChatGPT është vegël e tmerrshme e inteligjencës artificiale
--  Art Market
--  Bank of Maharashtra Set To Issue Rs 1,000 Cr Bonds On 12 Dec
--  India's Supreme Court Upholds Abrogation Of Article 370
--  COP28: UNICEF's 'Green Rising' To Mobilise Youth For Climate Action
--  ASI Likely To File Gyanvapi Survey Report In Varanasi Court Today
--  [‘K-방산’을 지켜라…국정원 주도 ‘방산침해 대응협의회’ 개최
--  [㈜하나은행, 동신대에 발전기금 5000만원 기부
+-  Sam Bahadur Box Office Collection Day 10: Vicky Kaushal Movie Surges, Earns $6 Million
+-  Aboubakar krizi hortladı. Beşiktaş’ta işleri karıştıran karar
+-  Russia: Israel using Hamas attack as justification to collectively punish Gaza
+-  How more people are indulging in Southeast Asian bakes, Turkish delights: Report
+-  SC upholds abrogation of Article 370: Five key points of apex court`s verdict
+-  Andrei Kuzmenko suscite l'intérêt de quelques équipes
+-  C'est Kovacevic qui devrait être échangé, plutôt que Matheson
+-  SLBAM : Pas toujours facile être rétrogradé, ça prend du temps et une adaptation
+-  Juraj Slafkovsky avoue qu'Arber Xhekaj lui a donné quelques conseils pour se battre
+-  Méditation sur la glace : Devon Levi a dû se plier à la LNH
