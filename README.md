@@ -1,51 +1,51 @@
 # Latest News
--  मोहन यादव: संघ के करीबी, 2013 में बने विधायक अब मध्य प्रदेश के मुख्यमंत्री
--  #CANLI Cumhurbaşkanı Erdoğan: Biz eserleriyle, yatırımlarıyla, projeleriyle konuşan bir hükümetiz
--  Eti Bakır'ın yeni Ar-Ge Merkezi Samsun'u küresel üs haline getirecek
--  '2017년 한 풀었다' 박건우, 첫 GG 솔직 소감 "이정후가 없어서 받을 수 있지 않았나는 생각도..."
--  "산초에 진절머리가 난다!"…텐 하흐 인내심 한계→산초 방출 위한 '놀라운 스왑딜' 추진! '바르셀로나 994억 윙어와 바꾸자'
--  "악플? 가만히 있지 않을 것"…솔비·정유미·유재석, ★들 당당하고 강해졌다 [MD이슈]
--  대학가 나체 활보 30대 남성, 마약 검사 양성 반응
--  На улице Промышленной в Рязани задержали 36-летнего закладчика
--  "다시 태어나도 아빠 딸로"…신주아, 돌아가신 父에 마지막 인사 [전문]
--  Wo ist Alexej Nawalny? Aufenthaltsort seit sechs Tagen unbekannt
--  Timothée Chalamet poses with Hugh Grant at Wonka's LA premiere, Kylie Jenner gives red carpet a miss. See pics
--  Euroopan vaarallisimpiin lukeutuva ydinlaitos kärsii ongelmista – Ydinonnettomuus toisi säteilypilven Suomen ylle 15–18 tunnissa
--  В Орловской области увеличится прожиточный минимум на 2024 год
--  ΠΑΟΚ: Τα παιχνίδια που θα παίξει κεκλεισμένων των θυρών
--  Rc auto, stangata in arrivo: nel 2024 rincari di 500 euro
--  Citypress | Tragedy on the R37: Chikunga appeals for road safety as festive season approaches
--  The death penalty is alive and well in Tanzania
--  India Set to Host WAIPA World Investment Conference From Dec 11-14
--  ONDC Collaborates With MSME Mart, 2 Lakh MSMEs Onboarded: MoS Som Parkash
--  ‘หมอดูดัง’ เปิด 5 ราศีดวงดีข้ามปี ดวงปังโดดเด่นมาก ชีวิตรุ่งเรือง เช็กเลย!
--  Evasion fiscale : Les créateurs de contenu dans le collimateur du fisc
--  Mattinata tra i disagi per i pendolari delle Ferrovie Sud-Est: cancellati numerosi treni nel Barese
--  김하성, 임혜동 추가 고소 “유튜브 발언 사실 아냐”
--  Llega un cambio de tiempo extraordinario a España: Aemet avisa a estas zonas por un fenómeno extremo
--  Lantaarnpaal aan Bazeldijk in Hoogblokland valt om door harde wind
--  Winterwonderland on Wheels in Andel valt in de smaak
--  A99 bei München - Frau gebärt Kind auf der Autobahn
--  Presentan proyecto para modificar el CONES: “Que ya no sea juez y parte”
--  Mysteriöse Bluttat - Mann (40) vor Lokal angeschossen
--  Gaza, un piano per il dopoguerra: "Al lavoro team voluto da Netanyahu"
--  متحدہ عرب امارات سے پاکستانیوں نے نومبر میں کتنا زرمبادلہ بھیجا ؟ جانیے
--  Tusk pritet të bëhet kryeministër i ri i Polonisë
--  «Δεν ήταν δυνατόν να προβλέψω ότι θα άνοιγαν τρύπα» -Τι υποστήριξε ο ιδιοκτήτης των σκύλων που κατασπάραξαν την 50χρονη
--  Φρίκη στο Βέλγιο: 36χρονη δολοφονήθηκε με 200 μαχαιριές από τον πρώην σύντροφό της
--  Flixbus stand auf A5 in Niederösterreich in Flammen
--  En vivo: Javier Milei ya está en Casa Rosada para la reunión de Gabinete
--  6 thói quen tiêu dùng có hại dẫn đến cảnh thu nhập cao đến mấy cũng không giàu nổi
--  Texels kampioenschap Unihockey 2023
--  وزيرة خارجية ألمانيا: نتوقع من إسرائيل أن تتبنى استراتيجية لتخفيف معاناة الفلسطينيين
--  Sinan Akçıl’ın dava açtığı vatandaş: Özür mektubu yazmayı kabul ettim parayı az buldu
--  Deutsche Bahn: So bekommt der Bahnvorstand seine Boni
--  Oroscopo Paolo Fox di domani per Ariete, Toro, Gemelli, Cancro, Leone e Vergine | Martedì 12 dicembre 2023
--  عاجل.. "هيئة التطوير" تكشف حقيقة المعلومات المتداولة حول أراضي مشروع الدرعية
--  "روشن" تفوز بجائزة أفضل استخدام للتكنولوجيا في قمة "big 5" العالمية
--  یمنیٰ زیدی کی پہلی فلم کا ٹریلر جاری،دیکھیں خبر میں
--  Oroscopo Paolo Fox di domani per Bilancia, Scorpione, Sagittario, Capricorno, Acquario e Pesci | Martedì 12 dicembre 2023
--  Fix: Nagelsmann findet Gegner für EM-Testspiele im März
--  Salute, Schillaci: “Vogliamo sanità migliore per cittadini e operatori sanitari”
--  Tredje förvärvet klart – Brage tar in målvakt från grannklubben
--  Tredje förvärvet klart – Brage tar in målvakt från grannklubben
+-  Animal Box Office: Ranbir Kapoor starrer emerges as third all-time highest second Sunday grosser
+-  Animal Box Office: Ranbir Kapoor starrer emerges as the second all-time fastest Rs. 400 cr grosser; beats Pathaan, Gadar 2 and Baahubali 2
+-  Animal Box Office: Ranbir Kapoor starrer emerges as the first ‘Adults Only’ certified Rs. 400 crores grosser
+-  Animal Box Office: Ranbir Kapoor makes his debut in Rs. 400 Crores Club
+-  Animal Box Office: Film emerges as Ranbir Kapoor's all-time highest second weekend grosser
+-  Animal Box Office: Rashmika Mandanna makes her entry in the Rs. 400 Crores Club
+-  Ponsse manufactures its 20,000th forest machine
+-  2023 SABCS | Laekna Reports Afuresertib Phase Ib Breast Cancer Study Results
+-  LISTEN | ANC being ‘bewitched’ to weaken it, says Mbalula, again vows to end load-shedding, joblessness
+-  Una chajariense y otra joven de Federal, segundas en torneo de paddle en Mar del Plata
+-  IEC wants to ensure independent candidates not disenfranchised on ballot
+-  Decision expected on alleged Parly arsonist Mafe's mental state to stand trial
+-  Cabinet greenlights PetroSA partnership with Gazprombank to restart WC refinery
+-  Leones del Caracas derrota a Magallanes
+-  Coordinación de Transporte y Vialidad de Alcaldía de Valera entrega credenciales a mototaxis
+-  Marinarul român ținut ostatic de luna trecută de rebelii Houthi ar putea veni acasă înainte de sărbători
+-  Sumar urge al PP a que rompa con Vox por las "peligrosísimas declaraciones" de Abascal
+-  Delfí Geli: "¿Ganar La Liga? No estamos en esta batalla"
+-  Heru Budi Dampingi Jokowi Resmikan Stasiun Pompa Ancol Sentiong untuk Kendalikan Banjir Jakarta
+-  Marlaska insta a Feijóo a romper los pactos con Vox tras el discurso de odio de Abascal
+-  COP28: entering the home straight
+-  UN marks 75 years of human rights declaration in shadow of Gaza
+-  Sunak battles to unite divided party in pivotal week
+-  Video Detik-detik Bocah Dijambret Ojol hingga Terseret Motor di Jaksel
+-  لحج .. رئيس انتقالي تبن الوعل يتفقد سير الامتحانات في عدد من مدارس زايدة والشقعة بالوادي الاعظم
+-  El juicio por el origen de la fortuna de Rato se aplaza al 15 de diciembre
+-  মহাখালী ফিলিং স্টেশনে বিস্ফোরণ: নিহতের সংখ্যা বেড়ে ৪
+-  Juodienė: pavėžėjimo paslaugos laukta 20 metų, tačiau jai stinga sklaidos, kyla iššūkių
+-  Sunak pide disculpas en la investigación oficial sobre la pandemia a familias de víctimas
+-  Our Father: How Many Children Does Dr. Donald Cline Have?
+-  মাদারীপুরে ভিটামিন ‘এ’ প্লাস ক্যাম্পেইন মঙ্গলবার
+-  Ni luces, ni árbol, ni mercadillo: la celebración de la Navidad se apaga en Belén
+-  Alasan TKN Prabowo-Gibran Kumpulkan Aktivis 98 Jelang Debat Capres Besok
+-  برگزاری رقابت‌های قهرمانی فوتبال در زون شمال
+-  Huawei speaks to Audi and Mercedes about investing in its smart car firm
+-  Olimpijski pobjednik će izgubiti veliki ugled: Optužen za silovanje maloljetnice
+-  Écoles à Gisors : de gros travaux à Paul Eluard
+-  Following embarrassment, BJP initiates measures to improve floor co-ordination among members in Karnataka
+-  Isa Pantoja recuerda cómo se enteró que era adoptada
+-  Albert, hundido en 'GH VIP' tras el rechazo de Pilar y las palabras de Susana: "¿Pero esto qué es?"
+-  Albert, hundido en 'GH VIP' tras el rechazo de Pilar y las palabras de Susana: "¿Pero esto qué es?"
+-  พปชร. แจง "สมรักษ์"ลาออก ก่อนคดีล่วงละเมิดสาว 17ปี
+-  ระทึก! ตร.ปิดล้อมสยบชายยิงปืนในหมู่บ้านดังสมุทรปราการ
+-  RSS ने अनुच्छेद 370 पर सुप्रीम कोर्ट के फैसले का किया स्वागत
+-  Amyl Guard Reviews (Customer Honest Warning Exposed) Is Nutraville Amylase
+-  Ikaria Lean Belly Juice Reviews (Customer Honest Warning Revealed) Ingredients
+-  В Казахстане под руинами обрушившегося здания остаются три человека
+-  Disparition inquiétante en Lorraine : la femme de 59 ans retrouvée morte
+-  Élections municipales à Montlaur : l’ancien maire ne participera pas au deuxième tour
+-  The Palace’s awkward attempt to address Meghan Markle’s concerns
