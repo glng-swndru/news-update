@@ -1,51 +1,51 @@
 # Latest News
--  Nelegálny odpad zo 4 krajín Európskej únie poslali z hranice naspäť, malo ísť o ilegálny prevoz do Rumunska
--  Zoznam jedál, ktorým sa kardiológovia vo veľkom vyhýbajú: Desivé dôvody prečo
--  Staviame udržateľne: Akú izoláciu použiť pod zelenú strechu?
--  Žena si na vyšetrenie magnetickou rezonanciou vzala zbraň, kruto na to doplatila: Poriadny trapas!
--  Jediná chyba a všetci mohli byť popravení: Fascinujúci príbeh úteku z KĽDR
--  Kolaps jojkárskej herečky počas natáčania: BOJ O ŽIVOT… Okamžitá OPERÁCIA!
--  Арести в Дупница по разследване за фалшиви болнични листове
--  بالفيديو... هذا ما فعلته السفن في مرفأ طرابلس لمدّة 5 دقائق اليوم!
--  Ce Xiaomi Redmi Note 12 Pro est à prix immanquable avec cette remise
--  [‘자유지수 최하위권’ 北이 발간한 ‘인권 백서’…“미국·서방이 무참히 인권 유린”
--  [“박지성도 장미란처럼?” 국민의힘 영입설에 입연 박지성…“가능성 無”
--  [삼성 계열사 일부 노조도 뭉쳤다…‘초기업 노조’ 설립 추진
--  [배달앱도 OTT도 ‘쿠팡천하’…멤버십 효과에 고물가 ‘무풍지대’
--  [종이빨대 업체들, 공동판매 시작…“도산위긴데 정부대책 없어”
--  [김하성, “상습 폭행” 주장 임혜동 명예훼손 추가 고소
--  [이낙연, 이상민과 회동…“훌륭한 분들 모아 세력화 필요”
--  [LCM Partners, Julian Schiller를 자본 솔루션 총괄로 임명
--  [Azentio Software, IBSi Global FinTech Innovation Awards 2023 수상
--  [Vantage Markets, 2023 Professional Trader Awards에서 3관왕 달성
--  [비나밀크, 지속 가능성에 대한 헌신 강조
--  [BBC 스튜디오, '블루이(Bluey)'의 국내 확장
--  [CGTN: 중국과 베트남, 인적 유대 강화에 더욱 힘쓰기로
--  “오나나 진짜 잘 팔았네”... 뮌헨에서 온 대체자, 15경기 10클린시트 신기록 달성
--  Studenten organiseren De Samenspeelbril in speeltuin Kloosterplantsoen
--  Fortalecer derechos
--  金手指丨陳家樂掂梁朝偉獲讚「夠薑」 周家怡與影帝偶像有動作戲直呼：好正！
--  Erling Haaland’s absence sends Dream Team gaffers into meltdown – how to react to prolific poacher’s injury
--  Fervor Guadalupano congrega a feligreses y ferieros en El Llano
--  Repunta 56% intoxicación por plaguicidas en el año
--  Prevé Canacope más carestía en 2024
--  Expected PS Plus December 2023 Extra and Premium games reveal date with leaks
--  Obligatie: Nederland haalt ruim 3,2 miljard op
--  Julänglar i Motala – en av fem som får julgåva
--  Et si vous habitiez dans une maison en carton recyclé ?
--  舞台「悲別」やまぬ拍手 富良野市民「幻の盆踊り」出演 カーテンコールに倉本さんも
--  FIFA Kulüpler Dünya Kupası'nda heyecan başlıyor!
--  Трајанов бара oд МВР информација за убиствата на Вања и Панче
--  Bakanlık uyardı: Emlak ilanlarına dikkat!
--  Zeytinyağı kalite yarışması başlıyor
--  Galatasaray'ın Danimarka ekiplerine karşı dikkat çeken performansı
--  Arbitrage NBA : comment l’améliorer ? || #LaGrosseQuestion
--  국힘 총선참패 전망 놓고 조선 중앙 문화일보까지 잇달아 경고한 이유
--  ‘북한 연대사 삭제’ 국정원 요청에 의결 번복한 방심위, 법원이 제동 걸었다
--  Tesla överklagar i skyltstriden
--  Em lao vào cứu anh trai bị điện giật, cả 2 bị thương nặng
--  Ne samo da su ga u Opatiji uhvatili kako vozi sa 2,21 promila već mu je i vozačka istekla još 2020. godine
--  Apple shuts down app that let Android users send blue-bubble texts to iPhones
--  생방송 대한민국 2부 (1476회)
--  Više od 6000 zaposlenika jedne hrvatske kompanije sudjelovalo u ispisivanju božićnih čestitki svojim susjedima
--  MARKT USA/Etwas leichter erwartet - Macy's mit Kaufangebot +19%
+-  मोहन यादव: संघ के करीबी, 2013 में बने विधायक अब मध्य प्रदेश के मुख्यमंत्री
+-  #CANLI Cumhurbaşkanı Erdoğan: Biz eserleriyle, yatırımlarıyla, projeleriyle konuşan bir hükümetiz
+-  Eti Bakır'ın yeni Ar-Ge Merkezi Samsun'u küresel üs haline getirecek
+-  '2017년 한 풀었다' 박건우, 첫 GG 솔직 소감 "이정후가 없어서 받을 수 있지 않았나는 생각도..."
+-  "산초에 진절머리가 난다!"…텐 하흐 인내심 한계→산초 방출 위한 '놀라운 스왑딜' 추진! '바르셀로나 994억 윙어와 바꾸자'
+-  "악플? 가만히 있지 않을 것"…솔비·정유미·유재석, ★들 당당하고 강해졌다 [MD이슈]
+-  대학가 나체 활보 30대 남성, 마약 검사 양성 반응
+-  На улице Промышленной в Рязани задержали 36-летнего закладчика
+-  "다시 태어나도 아빠 딸로"…신주아, 돌아가신 父에 마지막 인사 [전문]
+-  Wo ist Alexej Nawalny? Aufenthaltsort seit sechs Tagen unbekannt
+-  Timothée Chalamet poses with Hugh Grant at Wonka's LA premiere, Kylie Jenner gives red carpet a miss. See pics
+-  Euroopan vaarallisimpiin lukeutuva ydinlaitos kärsii ongelmista – Ydinonnettomuus toisi säteilypilven Suomen ylle 15–18 tunnissa
+-  В Орловской области увеличится прожиточный минимум на 2024 год
+-  ΠΑΟΚ: Τα παιχνίδια που θα παίξει κεκλεισμένων των θυρών
+-  Rc auto, stangata in arrivo: nel 2024 rincari di 500 euro
+-  Citypress | Tragedy on the R37: Chikunga appeals for road safety as festive season approaches
+-  The death penalty is alive and well in Tanzania
+-  India Set to Host WAIPA World Investment Conference From Dec 11-14
+-  ONDC Collaborates With MSME Mart, 2 Lakh MSMEs Onboarded: MoS Som Parkash
+-  ‘หมอดูดัง’ เปิด 5 ราศีดวงดีข้ามปี ดวงปังโดดเด่นมาก ชีวิตรุ่งเรือง เช็กเลย!
+-  Evasion fiscale : Les créateurs de contenu dans le collimateur du fisc
+-  Mattinata tra i disagi per i pendolari delle Ferrovie Sud-Est: cancellati numerosi treni nel Barese
+-  김하성, 임혜동 추가 고소 “유튜브 발언 사실 아냐”
+-  Llega un cambio de tiempo extraordinario a España: Aemet avisa a estas zonas por un fenómeno extremo
+-  Lantaarnpaal aan Bazeldijk in Hoogblokland valt om door harde wind
+-  Winterwonderland on Wheels in Andel valt in de smaak
+-  A99 bei München - Frau gebärt Kind auf der Autobahn
+-  Presentan proyecto para modificar el CONES: “Que ya no sea juez y parte”
+-  Mysteriöse Bluttat - Mann (40) vor Lokal angeschossen
+-  Gaza, un piano per il dopoguerra: "Al lavoro team voluto da Netanyahu"
+-  متحدہ عرب امارات سے پاکستانیوں نے نومبر میں کتنا زرمبادلہ بھیجا ؟ جانیے
+-  Tusk pritet të bëhet kryeministër i ri i Polonisë
+-  «Δεν ήταν δυνατόν να προβλέψω ότι θα άνοιγαν τρύπα» -Τι υποστήριξε ο ιδιοκτήτης των σκύλων που κατασπάραξαν την 50χρονη
+-  Φρίκη στο Βέλγιο: 36χρονη δολοφονήθηκε με 200 μαχαιριές από τον πρώην σύντροφό της
+-  Flixbus stand auf A5 in Niederösterreich in Flammen
+-  En vivo: Javier Milei ya está en Casa Rosada para la reunión de Gabinete
+-  6 thói quen tiêu dùng có hại dẫn đến cảnh thu nhập cao đến mấy cũng không giàu nổi
+-  Texels kampioenschap Unihockey 2023
+-  وزيرة خارجية ألمانيا: نتوقع من إسرائيل أن تتبنى استراتيجية لتخفيف معاناة الفلسطينيين
+-  Sinan Akçıl’ın dava açtığı vatandaş: Özür mektubu yazmayı kabul ettim parayı az buldu
+-  Deutsche Bahn: So bekommt der Bahnvorstand seine Boni
+-  Oroscopo Paolo Fox di domani per Ariete, Toro, Gemelli, Cancro, Leone e Vergine | Martedì 12 dicembre 2023
+-  عاجل.. "هيئة التطوير" تكشف حقيقة المعلومات المتداولة حول أراضي مشروع الدرعية
+-  "روشن" تفوز بجائزة أفضل استخدام للتكنولوجيا في قمة "big 5" العالمية
+-  یمنیٰ زیدی کی پہلی فلم کا ٹریلر جاری،دیکھیں خبر میں
+-  Oroscopo Paolo Fox di domani per Bilancia, Scorpione, Sagittario, Capricorno, Acquario e Pesci | Martedì 12 dicembre 2023
+-  Fix: Nagelsmann findet Gegner für EM-Testspiele im März
+-  Salute, Schillaci: “Vogliamo sanità migliore per cittadini e operatori sanitari”
+-  Tredje förvärvet klart – Brage tar in målvakt från grannklubben
+-  Tredje förvärvet klart – Brage tar in målvakt från grannklubben
