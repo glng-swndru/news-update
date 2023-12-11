@@ -1,11 +1,51 @@
 # Latest News
--  [힐튼, 우마나 발리와 함께 동남아시아에 LXR 호텔 & 리조트 공식 오픈
--  [예술인 고용보험 3년 만에 21만명 가입…내달 2일까지 자진신고
--  [층간소음 새아파트 입주 못한다…심각하면 단지명도 공개 [부동산360]
--  [충남도, 청소년 안전·저상버스 등 인권 증진 방향 공유
--  [사업전환도 대중소 상생으로…중기부,제1호 대중소 상생형 공동사업전환 승인
--  [‘보이스피싱 예방’ 솔선한 농협은행…금융위원장 표창 수상
--  [“18세에 다시 혼자”…삼성, 2만 명의 보호청소년 자립에 손 내밀다
--  [‘친중 진영’만 나온 홍콩 구의원선거…투표율 27.54% ‘역대 최저’
--  [이준석 "내년 여당 83~87석...김기현 당연히 물러나야"
--  [폴란드 하원의장 “前정부 계약 무효 가능성”…K방산 불똥 우려
+-  وفيات الاردن الإثنين 11 - 12 - 2023
+-  الاحتلال: مقتل أكثر من 100 جندي منذ بداية العملية بغزة
+-  طريقة تحضير الكنافة على الطريقة السورية
+-  الاحتلال: اعتراض 8 صواريخ أطلقت من لبنان
+-  Asgari ücrette kritik gün! Komisyon toplanıyor
+-  รวบคาค่าย "ทหารธุรการ"ผันตัว ค้ายาไอซ์ รับโทษหนัก 3 เท่า
+-  Indiana Fever win WNBA draft lottery for No. 1 pick for second straight season
+-  कामना सेवा विकास बैंकको ५ लाखभन्दा बढी कित्ता संस्थापक शेयर विक्रीमा
+-  Police to crack down on election law violations ahead of general elections
+-  Gov't to not authorize apartment completion unless inter-floor noise level meets standards
+-  मकर जितुमाया सुरी हाईड्रोपावरले पुस २३ गते बोलायो साधारण सभा, सर्वसाधारणतर्फ सञ्चालक निर्वाचित हुने
+-  [영상] 정청래 “윤 대통령이 김건희 특검을 수용한다면 어떤 일이 벌어질까?”
+-  “○○초등학교 아이들 다 죽이겠다”…인천 학부모 채팅방 발칵, 왜?
+-  MGM Duyurdu! Gaziantep'te yaşayan vatandaşlar Dikkat! Bugün Hava Yine Yağmurlu. 11 Aralık Pazartesi Gaziantep'te Hava Durumu
+-  Синоптики оголосили в Києві І рівень небезпеки
+-  Mocny spadek cen ofertowych na brytyjskim rynku mieszkaniowym
+-  프랑스가 밀어주는 AI스타트업 미스트랄, 7개월만에 3조가치 기업
+-  ‘You will see actual Babar Azam now’: Gautam Gambhir's big prediction for former Pak skipper ahead of Australia series
+-  Vətən Müharibəsinin ali təhsilli veteranı məktəbə xadimə götürdülər
+-  CGTN: Китай и Вьетнам наблюдают более тесные связи между людьми
+-  త్వరలో తెలంగాణ హోంశాఖ ప్రక్షాళన
+-  81 ilde operasyon: Arama kaydı bulunan 4 bin 951 firari yakalandı
+-  [뉴스핌 라씨로] 덕산네오룩스, 퀸텀닷 디스플레이 소재 개발 중...품질인증 테스트 진행
+-  Climate crisis and its adverse impact on sports
+-  [ACL 기자회견] 한일전 앞둔 홍명보 감독, “홈에서 승리하고 시즌 마치겠다”
+-  Kamu-koira kuoli järkyttävällä tavalla
+-  CLAT Result 2024: Grievances filing process begins today at 12 noon
+-  엔씨, 사상 첫 공동대표 전환…김택진·박병무 체제
+-  В Югре при столкновении двух легковушек погибли 4 человека и 2 пострадали
+-  Shiba Inu Adds Another Zero; Analyst Warns of Major Resistance
+-  NielsenIQ: Hong Kong Leading the Vacation Bucket List for Mainland Tourists
+-  아이를 위한 아빠로션, 데일리파파 올인원로션 출시 예정
+-  방역전문기업 ‘엔에스클린닥터‘, 2023 한국소비자베스트브랜드대상 1위 수상
+-  에이팜건강 쁘띠앤, ‘2023 쁘띠앤 고객 감사제’ 이벤트 오픈
+-  숭실사이버대, ‘송년음악회’ 개최
+-  한국열린사이버대 평생교육원, 종합미용면허증 1학기 1차 12월 개강반 수강생 모집
+-  ‘(유)세익’, 2023 한국소비자베스트브랜드대상 1위
+-  이근재 한국유권자총연맹 국정감사 대회장, 올해를 빛낸 국정감사 최우수 국회의원 대상 시상 수여
+-  최진호 안산시의원 발의 ‘의회 지방공무원 복무 조례 개정안’, 상임위 통과
+-  안성시, ‘제5차 미세먼지 관리제’ 클린앤쿨링로드 운영
+-  설호영 안산시의원 발의 ‘市 인구정책 기본 조례안’ 상임위 통과
+-  선현우 안산시의원 발의 ‘어르신 무상교통 지원 조례 개정안’ 상임위 통과
+-  가평군 설악면 농업인협, 15개 단체 정성모아 12년째 이웃돕기 성금기탁
+-  구리 소상공인연합회-청년내일센터, 판로개척 등 업무협약 체결
+-  Automotive Plastic Fasteners Market worth $5.49 billion by 2030, growing at a CAGR of 4.40% - Exclusive Report by 360iResearch
+-  আজ টাঙ্গাইল হানাদার মুক্ত দিবস
+-  Сперцян вышел на восьмое место по голевым передачам за «Краснодар»
+-  Automobilist verliest controle over het stuur en belandt met auto in sloot op Midden-Brabantweg
+-  [배현진, 하태경·김웅 저격 “본인 무능 100번 자성해도 모자라”
+-  [코이카 신임 상임이사에 김동호·손정미 선임…4인 이사 체제
