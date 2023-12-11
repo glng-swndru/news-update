@@ -1,51 +1,11 @@
 # Latest News
--  Beyazlaştırılmış zencileri de kurtaracağız
--  Göçmen kaçakçılarına göz açtırılmıyor! 8 kişi tutuklandı
--  Potada derbi heyecanı!
--  Rusya'dan Kiev'e balistik füze saldırısı
--  Археологи обнаружили инновационное седло древних монголов
--  엔씨소프트, 박병무 VIG파트너스 대표 영입… 공동대표 체제 전환
--  올해 마지막 11번가 십일절, 500여개 타임딜 최대 72% 할인
--  SC upholds abrogation of Article 370, says it wasn’t a permanent provision
--  沒禮貌的email讓人看了就火大！職場信件最好避開10大NG行為
--  무신사, 연말 맞이 ‘크리스마스 박싱데이’ 진행
--  [ACL 기자회견] 울산 에이스 엄원상, “경우의 수 따지지 않고 이기겠다”
--  '다이어보다는 확실히 낫다' 데이비스, 결정적인 태클로 실점 방지 → 판 더 펜 공백 최소화...현지 매체 "탄탄한 수비 선보였다"
--  "로메로는 미쳤어"...3경기 출전 정지→ 또 '살인 태클', 전직 PL 선수들 분노 폭발
--  Sondaż: Ponad 40 proc. Polaków chce, by ministrowie Morawieckiego oddali pensje i odprawy
--  Lunch with top entrepreneurs
--  活動速遞｜花園道三號聖誕亮燈 中環最美戶外打卡位 10米高聖誕樹/星海樓梯
--  Israel presses ahead in battle against Hamas in southern Gaza
--  Libertarian Argentine president to unleash shock therapy amidst fiscal crisis
--  Avropa İttifaqı İrəvanı məyus etdi: erməni hərbçilərinə təlim keçməyəcəyik
--  Na severovýchode Talianska sa zrazili vlaky, ľahšie zranenia utrpelo 17 ľudí
--  Bývalý prezident Trump oznámil, že dnes nebude vypovedať pred súdom v New Yorku
--  진화하는 영화관…콘서트·스포츠 중계로 '단체 관람' 욕망 건드려
--  Americká stíhačka F-16 sa zrútila do Žltého mora, pilot sa bezpečne katapultoval
--  PHOTO GALLERY: Scenes From the 2023 Future Leaders in Convenience Summit
--  Autoridades electas asumirán el 14 y 15 de enero
--  ഐഎഫ്എഫ്കെയിലും നിറഞ്ഞ ആളുമായി ‘കാതൽ’
--  Kalıcı yaz saati uygulamasında flaş gelişme
--  Alicia Keys Helped Surprise Ciara's Daughter Sienna at 'The Color Purple' Premiere
--  Sandra Hüller: Deutsche Schauspielerin erhält US-Kritikerpreis für „The Zone of Interest“
--  Sandra Hüller: Deutsche Schauspielerin erhält US-Kritikerpreis für „The Zone of Interest“
--  হয় টাকা দিন, না হলে বিদায় নিন: মোদিকে মমতা
--  कर्नाटक: बेंगलुरु समेत 12 जिलों में दो दिनों तक बारिश की भविष्यवाणी
--  과천시, 안심식당 지정업소 모집
--  2023년도 경상북도의회 정책연구위원회 정기총회
--  안동댐 주변지역 발전 위한 정책토론회 개최
--  김광열 영덕군수, 수원서 영덕사과 홍보·판촉 행사
--  의성군, 지역특화형 비자 시범사업 송년행사
--  성주소방서, 메타버스 플랫폼 활용한 회의
--  청송초교, 학부모회 학교참여사업 김장 담그기 체험활동
--  Allu Arjun, Mahesh Babu, Prabhas meet Netflix CEO Ted Sarandos: ‘Blown away by their dedication to craft’
--  Bunu yapanların hemen tapuya gitmesi gerekiyor! Ev sahipleri ve kiracılar sakın gözden kaçırmayın!
--  САЩ: Действията на Китай са опасни
--  Feci kaza! İki tren çarpıştı
--  Los planes urbanos
--  [최춘식 “혜택 받은 중진들이 지도부 흔들어…전쟁 중엔 장수 안 바꿔”
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [‘한동훈·이정재’ 사진 덕 봤다…임세령 지분가치↑·임창욱 회장 20억원 현금화
--  [나토 주재 8개국 대표, 13~15일 방한…인태지역 안보 협의
--  [더 시에나 그룹, 고객이 기부한 만큼 호텔도 기부하는 특별한 오케스트라 후원
--  [매수, 매도 다 알려주는 무료 ‘주식카톡방’ 의 등장
+-  한국아스트라제네카, 포시가 내년 상반기 국내 공급 중단
+-  소래역사관, 유무형문화재 활용 '남동구 문화재 특별전' 개최
+-  [경기도의원 릴레이 인터뷰] 기획재정위원회 이채영 의원
+-  ‘女 감금 성폭행 시도’ 30대男, 훨체어 타고 영장심사 “죄송하다”
+-  이정재가 유증 참여하는 ‘와이더플래닛’, 또 30% 급등
+-  삼성증권 PB, 고객돈 수십억원 횡령 사실 드러나 경찰 수사
+-  유튜브 ‘한국 차별’ 논란 다시 떠올랐다…‘디지털 이민’ 가는 이유는
+-  ‘YS 손자’ 김인규, 부산 출마 선언…“김영삼 계승 국민의힘, 민주화 본류”
+-  ‘네덜란드行’ 尹에…野 “‘떡볶이 논란’ 며칠 만에 ‘기업인 동원’ 갑질”
+-  ‘제2연평해전 주역’ 이희완 보훈부 차관 취임…“국가보훈 드높일 것”
