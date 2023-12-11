@@ -1,51 +1,11 @@
 # Latest News
--  Animal Box Office: Ranbir Kapoor starrer emerges as third all-time highest second Sunday grosser
--  Animal Box Office: Ranbir Kapoor starrer emerges as the second all-time fastest Rs. 400 cr grosser; beats Pathaan, Gadar 2 and Baahubali 2
--  Animal Box Office: Ranbir Kapoor starrer emerges as the first ‘Adults Only’ certified Rs. 400 crores grosser
--  Animal Box Office: Ranbir Kapoor makes his debut in Rs. 400 Crores Club
--  Animal Box Office: Film emerges as Ranbir Kapoor's all-time highest second weekend grosser
--  Animal Box Office: Rashmika Mandanna makes her entry in the Rs. 400 Crores Club
--  Ponsse manufactures its 20,000th forest machine
--  2023 SABCS | Laekna Reports Afuresertib Phase Ib Breast Cancer Study Results
--  LISTEN | ANC being ‘bewitched’ to weaken it, says Mbalula, again vows to end load-shedding, joblessness
--  Una chajariense y otra joven de Federal, segundas en torneo de paddle en Mar del Plata
--  IEC wants to ensure independent candidates not disenfranchised on ballot
--  Decision expected on alleged Parly arsonist Mafe's mental state to stand trial
--  Cabinet greenlights PetroSA partnership with Gazprombank to restart WC refinery
--  Leones del Caracas derrota a Magallanes
--  Coordinación de Transporte y Vialidad de Alcaldía de Valera entrega credenciales a mototaxis
--  Marinarul român ținut ostatic de luna trecută de rebelii Houthi ar putea veni acasă înainte de sărbători
--  Sumar urge al PP a que rompa con Vox por las "peligrosísimas declaraciones" de Abascal
--  Delfí Geli: "¿Ganar La Liga? No estamos en esta batalla"
--  Heru Budi Dampingi Jokowi Resmikan Stasiun Pompa Ancol Sentiong untuk Kendalikan Banjir Jakarta
--  Marlaska insta a Feijóo a romper los pactos con Vox tras el discurso de odio de Abascal
--  COP28: entering the home straight
--  UN marks 75 years of human rights declaration in shadow of Gaza
--  Sunak battles to unite divided party in pivotal week
--  Video Detik-detik Bocah Dijambret Ojol hingga Terseret Motor di Jaksel
--  لحج .. رئيس انتقالي تبن الوعل يتفقد سير الامتحانات في عدد من مدارس زايدة والشقعة بالوادي الاعظم
--  El juicio por el origen de la fortuna de Rato se aplaza al 15 de diciembre
--  মহাখালী ফিলিং স্টেশনে বিস্ফোরণ: নিহতের সংখ্যা বেড়ে ৪
--  Juodienė: pavėžėjimo paslaugos laukta 20 metų, tačiau jai stinga sklaidos, kyla iššūkių
--  Sunak pide disculpas en la investigación oficial sobre la pandemia a familias de víctimas
--  Our Father: How Many Children Does Dr. Donald Cline Have?
--  মাদারীপুরে ভিটামিন ‘এ’ প্লাস ক্যাম্পেইন মঙ্গলবার
--  Ni luces, ni árbol, ni mercadillo: la celebración de la Navidad se apaga en Belén
--  Alasan TKN Prabowo-Gibran Kumpulkan Aktivis 98 Jelang Debat Capres Besok
--  برگزاری رقابت‌های قهرمانی فوتبال در زون شمال
--  Huawei speaks to Audi and Mercedes about investing in its smart car firm
--  Olimpijski pobjednik će izgubiti veliki ugled: Optužen za silovanje maloljetnice
--  Écoles à Gisors : de gros travaux à Paul Eluard
--  Following embarrassment, BJP initiates measures to improve floor co-ordination among members in Karnataka
--  Isa Pantoja recuerda cómo se enteró que era adoptada
--  Albert, hundido en 'GH VIP' tras el rechazo de Pilar y las palabras de Susana: "¿Pero esto qué es?"
--  Albert, hundido en 'GH VIP' tras el rechazo de Pilar y las palabras de Susana: "¿Pero esto qué es?"
--  พปชร. แจง "สมรักษ์"ลาออก ก่อนคดีล่วงละเมิดสาว 17ปี
--  ระทึก! ตร.ปิดล้อมสยบชายยิงปืนในหมู่บ้านดังสมุทรปราการ
--  RSS ने अनुच्छेद 370 पर सुप्रीम कोर्ट के फैसले का किया स्वागत
--  Amyl Guard Reviews (Customer Honest Warning Exposed) Is Nutraville Amylase
--  Ikaria Lean Belly Juice Reviews (Customer Honest Warning Revealed) Ingredients
--  В Казахстане под руинами обрушившегося здания остаются три человека
--  Disparition inquiétante en Lorraine : la femme de 59 ans retrouvée morte
--  Élections municipales à Montlaur : l’ancien maire ne participera pas au deuxième tour
--  The Palace’s awkward attempt to address Meghan Markle’s concerns
+-  QL One, Asia’s Largest Training and Coaching Company Set to Host Edition 2 of PROFICORN on 20-21 December 2023
+-  Brahmaputra Valley Film Festival 2023: 5 Major Attractions One Cannot Afford to Miss This Year
+-  Pharmacy Bazar Announces Expansion Plans and Strategic Partnership with Axis Bank
+-  MAHE, Manipal Expanding Horizons: PhD Admissions Now Accessible Across Varied Disciplines
+-  Rodic Consultants Celebrates International Mountain Day with Trekking Expedition, Emphasizes Mountain Conservation and Well-being
+-  بالصور.. وزير الكهرباء السابق يدلي بصوته في الانتخابات الرئاسية
+-  سعر الذهب اليوم الاثنين في مصر يواصل الارتفاع بمنتصف التعاملات
+-  بطريرك الأقباط الكاثوليك يدعو المؤسسات الكنسية لحث المواطنين على التصويت في الانتخابات
+-  هذا ما يحدث لهم.. هؤلاء الأشخاص ممنوعون من تناول الجبن القريش
+-  Indonesia's No.1 coocaa TV Share Honors of Guinness World Record Achievement with Consumers in 12.12 Event
