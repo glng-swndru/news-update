@@ -1,11 +1,51 @@
 # Latest News
+-  «Пьяный командир сказал: Автоматы и бронежилеты соберете с мертвых»
+-  Borsa: le azioni di Singapore in calo all'apertura di lunedi
+-  '손흥민 측면 재배치' 포스테코글루 "쏘니는 여전히 최고의 피니셔"
+-  '이게 슛이야?' 비카리오의 조롱→뉴캐슬 ST "예의가 없다, 어린 애야?" 분노...경기 후 충돌까지
+-  '서울의 봄', 천만 타이틀이 코앞…700만 돌파
+-  서울사이버대 웹문예창작학과, ‘제3회 웹소설 2만자 공모전’ 개최
+-  Tiết lộ sự thật về mối quan hệ của Nga và Hamas
+-  이제는 돌풍이 아니다... 지로나, 구단 역사상 바르셀로나 상대 첫 승리→1위 도약
+-  More Than 500 Electric Vehicles Recalled in New Zealand
+-  আমি ভেঙে পড়ার মানুষ নই: পরীমণি
+-  Dramática lesión de Jesús Molina ante Tigres: salió en camilla y entre lágrimas
+-  Día del Tango: por qué se celebra cada 11 de diciembre en Argentina
+-  ‘ทบทวนขึ้นค่าแรงขั้นต่ำ’ ส่อเค้าวุ่น ไตรภาคีฝ่ายลูกจ้าง หวั่นผิดกม. แรงงานเตรียมหารือครม. พรุ่งนี้
+-  [글로벌] 이탈 광고주들 “머스크의 X는 싫다”…“X는 추락할 것” 경고
+-  تراند اليوم : بالفيديو: صانع محتوى يكشف سبب لبس الرجال للكعب العالي في القرن التاسع.. وأول من ارتداه في التاريخ
+-  Goldman Sachs-Ausblick: So geht es mit Inflation, Leitzins und Aktienmarkt in 2024 weiter
+-  Brittany Higgins’ confronting statement after alleged rape
+-  Nghỉ sinh cuối năm, mẹ bỉm sữa ở Hà Nội "hoa mắt chóng mặt" với danh sách chi tiêu Tết cho gia đình
+-  4 Langkah Dinas Kesehatan DKI Jakarta Mengerem Kasus Covid-19
+-  흥국생명, '소비자중심경영' 2회 연속 인증
+-  흥국화재, 2회 연속 '소비자중심경영 인증' 획득
+-  KB손해보험, 5년 연속 '지역사회공헌 인정기업' 선정
+-  김철주 생보협회장 "시장 포화 등 생보산업 중대한 위기 직면"
+-  Liveblog: ++ Selenskyj: "Offenes" Gespräch mit Orban ++
+-  Dinas Kesehatan DKI Temukan 2 Kasus Kematian Positif COVID-19
+-  [11일 수원시] '다문화정책 추진 소통 간담회' 개최 등
+-  산자부, 원전 기자재 기업 대상 선금 특례제 시행
+-  AndaSeat Unveils a Festive Collection of Gaming Gear: Gaming in a Winter Wonderland
+-  동영관광, ‘디샤인’과 안정적이고 효율적인 운영을 위한 업무협약(MOU) 체결
+-  Crisis de salmonela en EU y Canadá: Melones contaminados matan a 8 personas y enferman a más de 230
+-  Kobayashi Pharmaceutical sees highest patent filings and grants during July in Q3 2023
+-  BTS: Taehyung y Jungkook se lucen sin camiseta y con la cabeza rapada antes de ir al Ejército
+-  Eisai sees highest patent filings and grants during July in Q3 2023
+-  김철주 생보협회장 취임…"보험사 본업경쟁력 강화"
+-  Indonesia Ketua Aliansi Mangrove Dunia, Erick Thohir: Komitmen Restorasi dan Konservasi Lingkungan
 -  크몽, ‘2023 크몽어워즈’ 개최…각 분야 프리랜서 한자리에
+-  Con vật này xấu xí, nhìn sợ khiếp vía nhưng là đặc sản nổi tiếng, được ví như “thần dược” dành cho quý ông
+-  Иран обвини шведския дипломат от ЕС в престъпление, което се наказва със смърт
+-  Ginkgo Bioworks sees highest patent filings and grants during August in Q3 2023
+-  Kaza yapan sürücü aracı bırakıp kaçtı
 -  청소년母 "이혼한 아버지, 여친 생기자 나 몰래 이사 가버려"('고딩엄빠4')
 -  키움, '흥부자' 도슨과 재계약… 총액 60만달러[오피셜]
 -  "12월이 성수기"…유통업계, '위스키' 행사 열고 이색 메뉴 선봬
 -  삼표산업, 레미콘 제조공정 ‘AI 실용화’ 적용
+-  «Зеркало недели»: в Киеве слышны мощные взрывы, объявлена воздушная тревога
+-  ALX Oncology sees highest patent filings and grants during July in Q3 2023
 -  МО: Су-34 уничтожил солдат ВСУ на Краснолиманском направлении
 -  Where To Get VICE Magazine In Australia
+-  At UN Climate Talks, Cameras Are Everywhere. Many Belong to Emirati Company with a Murky History
 -  이오플로우 "합병 무산됐지만, 메드트로닉 측 소송 상황 주시"
--  駐韓美軍F-16戰機黃海墜毀 機師彈射逃生獲救
--  ฝุ่นPM2.5 กลับแล้ว พบ 71 พื้นที่เริ่่มมีผลต่อสุขภาพ
