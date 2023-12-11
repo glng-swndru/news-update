@@ -1,11 +1,11 @@
 # Latest News
--  "الأهلي فاروس" تتوقع تثبيت الفائدة بالمركزي إذا لم ينخفض الجنيه قريبا
--  بعد ارتفاعه.. ماذا حدث لسعر الذهب اليوم الاثنين في مصر بتعاملات المساء؟
--  "الوطنية للانتخابات": استمرار عمل جميع اللجان الفرعية حتى وجود آخر ناخب في المجمع الانتخابي
--  "어릴 때 상상했던 상이…" 생애 첫 GG 수상한 노시환, 그의 목표는 최다 수상이다 [MD삼성동]
--  "الوطنية للانتخابات": تصويت 45% من المقيدين بقاعدة الناخبين فى انتخابات الرئاسة
--  López Obrador muestra «respeto a la familia» por la muerte de la madre de ‘El Chapo’
--  'Barbie' lidera con nueve menciones las candidaturas de cine en los Globos de Oro
--  "Barbie" lidera indicações ao Globo de Ouro, logo à frente de "Oppenheimer"
--  Polish Parliament Passes Vote of No Confidence in Morawiecki’s Government
--  Coritiba anuncia volante Arilson, destaque do Criciúma, como a segunda contratação para 2024
+-  Incontro della Fed di mercoledì: cosa succederà?
+-  Soccerladuma | 'A Coach Has To Find A Way…'
+-  Dashcam für unter 60 Euro: Mehr Sicherheit im Angebot bei Amazon
+-  [농협 울산영업부, 고객만족도 최우수사무소 선정
+-  [울산항만공사, ESG 우수사례 5건 선정…“ESG 경영 강화”
+-  [무학, 소주 좋은데이 화이트 크리스마스 한정판 출시
+-  Teden z Luno: Vstop Lune v kozoroga nas bo ozemljil, streznil
+-  Every Chevy You Can Buy In 2024
+-  Orosz hírszerzés: Zelenszkijt kirúgnák a hatalomból
+-  Denée Benton Reveals How History Inspired — and Stymied — Peggy Scott’s ‘Gilded Age’ Season 2 Storylines
