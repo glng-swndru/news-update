@@ -1,11 +1,11 @@
 # Latest News
--  رئيس هيئة الأركان يبحث مع وزير القوات الجوية الأمريكية التعاون بالمجال العسكري
--  الصناعات العسكرية تعلن عن وظائف شاغرة في عدة مجالات بالرياض
--  BM: Genel Sekreter, Sudan'daki konvoy saldırısı karşısında dehşete düştü
--  Rusya'dan ABD'nin BMGK'de Gazze'de ateşkes tasarısını veto etmesine tepki
--  In beeld: IJsbaan Friends on Ice in Ede centrum weer geopend
--  Tunis : Manifestation pro-Palestine devant Zara
--  Estrazione Superenalotto oggi 11 dicembre 2023: i numeri vincenti
--  جوائز الكاف.. لامين كمارا يتوج كأفضل لاعب شاب
--  مكتب الشؤون البلدية في "أمل" يستنكر الهمجية الإسرائيلية
--  Απόλλων: Λανθασμένη τάση και «αυτογκόλ» λόγω Ποντικού
+-  163. dan: SDT još nije reagovalo na Đukanovićeve mjesečne „harače“ od 300.000 evra
+-  Inwestorzy wskazali największe zagrożenie dla rynków w 2024 roku
+-  Opublikowano rozporządzenia zw. z opłatami za jednorazowy plastik
+-  Sanja i Jan o zlatnom gumbu u 'Supertalentu': 'Došlo je i naše vrijeme. To je nagrada radu...'
+-  Açores. PAN diz que marcação de eleições antecipadas era "expectável"
+-  Milan, sta per concludersi un 2023 da incubo: tutti i numeri del pessimo anno solare rossonero
+-  Casa di proprietà sempre più difficile da avere: colpa dei tassi e i mancati aiuti
+-  Soccerladuma | Official: Tau Beats Downs Star To Big CAF Award
+-  Chelsea ‘ready to let Conor Gallagher LEAVE’ despite him captaining side days ago with shock rival keen on transfer
+-  Tories have ‘successfully’ scapegoated carbon price in affordability crisis: Trudeau
