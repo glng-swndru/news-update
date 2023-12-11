@@ -1,51 +1,51 @@
 # Latest News
--  Ropa znów zdrożała
--  Surreal wonders in ‘Boy and the Heron’
--  [오늘의 별자리 운세] 2023년 12월 12일 화요일
--  [오늘날씨] 오전까지 전국 눈·비 소식… 강풍 주의
--  [오늘의 운세] 2023년 12월 12일 화요일(음력 10월 30일/일진:갑진(甲辰)/띠별·생년월일 운세)
--  В Тамбове ожидаются полуметровые сугробы
--  FILIP RODIĆ O ANALENI BERBOK: Nemački "zeleni" podučavaju "zelene" u Srbiji u kakvoj smo opasnosti
--  Белгородец из села с введенным ЧС полгода не получает компенсацию за съем жилья
--  Video: un intendente fue atropellado por un motociclista en una competición
--  A 24 horas de desaparecido hay esperanza de poder encontrar con vida a Alonso en El Jitzámuri: Alcalde
--  المغرب ونيجيريا يحصدان جوائز معتبرة خلال الحفل السنوي للكاف
--  رسميًا.. فيكتور أوسيمين أفضل لاعب في أفريقيا 2023
--  בעקבות איום ארה"ב: תתאפשר כניסת פלסטינים בעלי אזרחות אמריקנית לישראל
--  RVSHVD on Finding His Old-School Roots in ‘Small Town Talk’
--  Gemeente wil hardrijders op De Steeg in Schijndel tegengaan: en daarom wordt de weg veranderd
--  مدة عقد مبابي مع باريس سان جيرمان حال وافق على تجديد عقده
--  Carlos Pineda: “Tenemos que ganar los dos partidos en la final”
--  Halil Umut Meler'e yumruklu saldırı: Bakan Tunç sorumlular hakkında soruşturma başlatıldığını duyurdu
--  Türk futbol kamuoyundan hakeme saldırıya büyük tepki
--  Jeff Bezos is leaving behind a Seattle real estate empire worth as much as $190 million. Take a look at all the lavish properties he owns across the US.
--  Cotação do Brent para entrega em fevereiro sobe 0,25% para 76,03 dólares
--  Dose de reforço da vacina Bivalente contra Covid-19 começa a ser aplicada em Lucas do Rio Verde
--  Caminhada pacífica marca movimento pela eliminação da violência contra a mulher
--  MPMT denuncia 22 pessoas e requer reparação de R$ 57,5 milhões
--  Marcos Rogério declara voto contrário à indicação de Flávio Dino ao STF
--  Capitães do Granada e do Athletic homenageiam adepto falecido
--  'He is a dangerous man' — Fort Hare University murder suspect denied bail
--  Bakan Tunç: Meler'e yönelik saldırıyla ilgili soruşturma başlatılmıştır
--  Ross County captain admits it was a bad day at office for ‘flat’ Staggies
--  Empoli, Cambiaghi: "Ci è mancato qualcosa per concludere. Sinceramente volevo crossare"
--  TRILLIUM TALK: Bonnie and the jets
--  Talvihoito ei pyri kesäkeleihin
--  آخر فرصة أمام مبابي للإنضمام إلى ريال مدريد !
--  5 najsretnijih znakova Zodijaka u 2024. godini – Talenti Riba izlaze na vidjelo, Bikovi stabilno rastu
--  Jennifer Aniston Describes Matthew Perry’s Final Days Before His Death: ‘He Was Really Healthy’
--  Пензенский «Дизель» проиграл питерскому «СКА-Нева»
--  ‘Barbie’ Takes Half Of Golden Globes’ Original Song Nominations For 2024
--  „Jį išgelbėjo ukrainietis...“ Paaiškėjo netikėta paslaptis. Kodėl rusas šaukštu valgė sniegą (Video)
--  „Pažiūrėkite į Lenkiją. Europa turi skubiai ruošis.“ RUSI ekspertas pasibaisėjęs, ką padarė Vokietija
--  Valgė kirmėles ir gyvą žiurkę. Košmaras rusų nelaisvėje
--  Maricá: Inscrições para o ‘Passaporte Técnico’ começam nesta terça-feira (12/12)
--  Ukrainos naudai. „Greit gabens sunkiąją techniką.“ Kas vyksta prie Dnipro
--  Global Media Group abre programa de rescisões por mútuo acordo
--  "10개 받겠다"… '17년만 한화 3루 GG' 노시환, 당찬 포부 밝혔다
--  Fábio Santos faz coro por Gabigol no Corinthians: 'Estou fazendo a maior função para o malandro vir...'
--  Vivek Ramaswamy was the target of death threats in New Hampshire that led to FBI arrest, campaign says
--  Vanderpump Rules Season 11 trailer shockingly reveals Scheana kissed Schwartz
--  İki TIR arasında sıkışan otomobil akordiyon gibi oldu: 1 ölü, 1 yaralı
--  España intenta mitigar el recorte de días de pesca en el Mediterráneo
--  Produžen rok za nagradni konkurs za najbolje u ruralnom turizmu
+-  Cumhurbaşkanı Erdoğan'dan Halil Umut Meler için açıklama!
+-  최대 구멍을 ‘최다득표 황금장갑’으로 바꿨다… 오스틴 골든글러브의 가치
+-  ‘은퇴’ 100골 공격수 양동현이 말하는 바야돌리드-프로 입단 [양동현 은퇴 인터뷰上]
+-  '2년 연속 GG' 오지환, 임찬규 계약 요구 "딱!빡!끝! 해주셨으면"
+-  الأمم المتحدة: الوضع الإنساني في 2024 «قاتم»
+-  Sorteo de Copa del Rey de dieciseisavos: equipos, bombos y cómo funciona
+-  Turqia cakton 40 ditë paraburgim për të dyshuarin për vrasjen e dyfishtë në Maqedoninë e Veriut
+-  SAD poslale poruku o novim sankcijama, oglasila se i Ambasada u BiH
+-  Victor Osimhen, il Principe è diventato Re: è il miglior calciatore africano dell’anno
+-  Turismo inicia su plataforma Malecones de Fiesta en diversas provincias, con destacados artistas del país
+-  A method for production of organic–inorganic tin halide perovskites for optoelectronic devices
+-  Muharrem İnce’nin çevresindeki siyaset esnafı ve köprüden önceki son çıkış
+-  Γη της ελιάς: Η Αθηνά πηγαίνει στο Σούνιο κι εκεί η Μαρία της έχει ετοιμάσει μια μεγάλη έκπληξη
+-  Météo: les températures attendues le mardi 12 décembre
+-  'Eyes Everywhere': Congress Is About to Vote to Expand Mass Surveillance of Americans, Experts Warn
+-  Sverige vann – och slipper möta Danmark
+-  2023 CAF Award: Asisat Oshoala Wins Record 6th Women’s Player Of The Year
+-  Millions Flocked To Online For Black Friday Deals As JB Hi Fi Traffic Surges
+-  AKP Faruk Koca’yı ihraç etme kararı aldı
+-  Sverige vann – och slipper möta Danmark
+-  Sverige vann – och slipper möta Danmark
+-  Danmark seiret – kan møte Norge i semifinalen
+-  Mark Zuckerberg Sold a Big Chunk of Meta Platforms Stock. Should Investors Worry?
+-  Legătura dintre bullying și suicid. Ce spun psihologii despre cazul celor două fete din Hunedoara care s-au sinucis
+-  Füredi luxushotelben pózoltak a Miss Balaton bombázói - fotók
+-  Qué se sabe de la enorme criatura marina que apareció muerta en una playa de California y causó sorpresa
+-  Athæfi Mourinho í gær vakti mikla athygli – Sjón er sögu ríkari
+-  Implante com células-tronco ajuda a tratar diabetes tipo 1
+-  Daniel Ricciardo quiere el puesto de Checo Pérez: "Es mi sueño"
+-  El gobierno de Joe Biden eleva la presión para intentar blindar la jura de Bernardo Arévalo
+-  “2024’te uluslararası bir sigorta şirketi olacağız”
+-  Mikro kirleticiler canlı türlerini tehdit ediyor
+-  Hacı Gaydan: Menderes neden mi idam edildi?
+-  Enerjisini güneşten alarak doğal atıktan yakıt üretiyor
+-  Mevcut sistemle emekçi açlıktan kurtulamaz!
+-  Beşler Grup’un yılsonu ihracat hedefi 200 milyon $
+-  Güler Sabancı'ya Avrupa Film Akademisi'nden ‘Sürdürülebilirlik Ödülü'
+-  Yan sanayi ihracatı tüm zamanların zirvesine çıktı
+-  Türk turizmi, Çin pazarından 10 milyon turist çekebilir
+-  Boyada hacim 1 milyon tona yaklaştı
+-  PSG’nin % 12.5’i artık Amerikalıların
+-  Küresel ekonomideki karamsarlık işten çıkarma dalgasını büyütüyor
+-  Aziz Karaca: Soykırım üçüncü ayında engelsiz devam ediyor
+-  Kaipara streamlines consents
+-  “Kasada para yok, kemer sıkmak şart olacak”
+-  Ak Yatırım, kripto para platformu Stablex’in çoğunluk hissesini aldı
+-  Mağduriyetler en kısa sürede çözülecek
+-  İş dünyası adil düzenlemeler ve vergi politikaları bekliyor
+-  "Bulgur ihracatında kotanın 100 bin tona çıkarılmasını istiyoruz"
+-  Újabb forrásból növekedhet jelentősen a Pensum Group
