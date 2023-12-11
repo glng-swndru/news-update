@@ -1,51 +1,51 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan'dan Halil Umut Meler için açıklama!
--  최대 구멍을 ‘최다득표 황금장갑’으로 바꿨다… 오스틴 골든글러브의 가치
--  ‘은퇴’ 100골 공격수 양동현이 말하는 바야돌리드-프로 입단 [양동현 은퇴 인터뷰上]
--  '2년 연속 GG' 오지환, 임찬규 계약 요구 "딱!빡!끝! 해주셨으면"
--  الأمم المتحدة: الوضع الإنساني في 2024 «قاتم»
--  Sorteo de Copa del Rey de dieciseisavos: equipos, bombos y cómo funciona
--  Turqia cakton 40 ditë paraburgim për të dyshuarin për vrasjen e dyfishtë në Maqedoninë e Veriut
--  SAD poslale poruku o novim sankcijama, oglasila se i Ambasada u BiH
--  Victor Osimhen, il Principe è diventato Re: è il miglior calciatore africano dell’anno
--  Turismo inicia su plataforma Malecones de Fiesta en diversas provincias, con destacados artistas del país
--  A method for production of organic–inorganic tin halide perovskites for optoelectronic devices
--  Muharrem İnce’nin çevresindeki siyaset esnafı ve köprüden önceki son çıkış
--  Γη της ελιάς: Η Αθηνά πηγαίνει στο Σούνιο κι εκεί η Μαρία της έχει ετοιμάσει μια μεγάλη έκπληξη
--  Météo: les températures attendues le mardi 12 décembre
--  'Eyes Everywhere': Congress Is About to Vote to Expand Mass Surveillance of Americans, Experts Warn
--  Sverige vann – och slipper möta Danmark
--  2023 CAF Award: Asisat Oshoala Wins Record 6th Women’s Player Of The Year
--  Millions Flocked To Online For Black Friday Deals As JB Hi Fi Traffic Surges
--  AKP Faruk Koca’yı ihraç etme kararı aldı
--  Sverige vann – och slipper möta Danmark
--  Sverige vann – och slipper möta Danmark
--  Danmark seiret – kan møte Norge i semifinalen
--  Mark Zuckerberg Sold a Big Chunk of Meta Platforms Stock. Should Investors Worry?
--  Legătura dintre bullying și suicid. Ce spun psihologii despre cazul celor două fete din Hunedoara care s-au sinucis
--  Füredi luxushotelben pózoltak a Miss Balaton bombázói - fotók
--  Qué se sabe de la enorme criatura marina que apareció muerta en una playa de California y causó sorpresa
--  Athæfi Mourinho í gær vakti mikla athygli – Sjón er sögu ríkari
--  Implante com células-tronco ajuda a tratar diabetes tipo 1
--  Daniel Ricciardo quiere el puesto de Checo Pérez: "Es mi sueño"
--  El gobierno de Joe Biden eleva la presión para intentar blindar la jura de Bernardo Arévalo
--  “2024’te uluslararası bir sigorta şirketi olacağız”
--  Mikro kirleticiler canlı türlerini tehdit ediyor
--  Hacı Gaydan: Menderes neden mi idam edildi?
--  Enerjisini güneşten alarak doğal atıktan yakıt üretiyor
--  Mevcut sistemle emekçi açlıktan kurtulamaz!
--  Beşler Grup’un yılsonu ihracat hedefi 200 milyon $
--  Güler Sabancı'ya Avrupa Film Akademisi'nden ‘Sürdürülebilirlik Ödülü'
--  Yan sanayi ihracatı tüm zamanların zirvesine çıktı
--  Türk turizmi, Çin pazarından 10 milyon turist çekebilir
--  Boyada hacim 1 milyon tona yaklaştı
--  PSG’nin % 12.5’i artık Amerikalıların
--  Küresel ekonomideki karamsarlık işten çıkarma dalgasını büyütüyor
--  Aziz Karaca: Soykırım üçüncü ayında engelsiz devam ediyor
--  Kaipara streamlines consents
--  “Kasada para yok, kemer sıkmak şart olacak”
--  Ak Yatırım, kripto para platformu Stablex’in çoğunluk hissesini aldı
--  Mağduriyetler en kısa sürede çözülecek
--  İş dünyası adil düzenlemeler ve vergi politikaları bekliyor
--  "Bulgur ihracatında kotanın 100 bin tona çıkarılmasını istiyoruz"
--  Újabb forrásból növekedhet jelentősen a Pensum Group
+-  日本人の80%が接種…コロナワクチンによる免疫、どれくらい記憶されている？
+-  Zelenski exhibe "desesperación" al buscar un acercamiento con Milei y América Latina
+-  BMW M3 Engine Teardown Shows The Consequences Of Suspected Over-Revving
+-  86 صحفياً فلسطينياً استشهدوا في غزة
+-  CAF Awards 2023 : Meilleur joueur africain de l’année, Victor Osimhen succède à Sadio Mané
+-  Sánchez rechaza la limitación de mandatos y compara su historia con el 'mito de Sísifo'
+-  العودة إلى خيار المقاومة !
+-  Man charged after small 'homemade improvised explosive device' detonated outside Centretown home
+-  Cumhurbaşkanı Erdoğan'dan Halil Umut Meler'e geçmiş olsun paylaşımı: Şiddetin sporda barınmasına izin vermeyeceğiz
+-  Cumhurbaşkanı Erdoğan'dan hakeme saldırıya tepki: "İzin vermeyeceğiz"
+-  Rögle sparkar Cam och Chris Abbott
+-  Halil Umut Meler'e saldıran Ankaragücü Başkanı Faruk Koca hakkında AK Parti'den ihraç kararı
+-  Handball-WM der Frauen: Deutschland erleidet Niederlage gegen Dänemark - Im Viertelfinale gegen Schweden
+-  Check your numbers: Winning $50M gold ball lotto ticket sold in Calgary
+-  غارةٌ إسرائيليّة على الخيام... وإحتراق منزل!
+-  Trump amplia liderança nas pesquisas em Iowa antes da primeira disputa republicana
+-  Liberal pró-UE Donald Tusk será o novo premiê da Polônia
+-  Guyana has the fastest growing offshore oil development 'in the history of the world,' energy expert says
+-  Richarlison recupera bom futebol após cirurgia e recebe elogios no Tottenham
+-  الأمن يحذر من تشكل الضباب في ساعات المساء والصباح
+-  86 صحفيا فلسطينيا استشهدوا في غزة
+-  Gustavo Scarpa volta aos planos do Atlético
+-  طوابير للحصول على مياه مالحة غرب مدينة غزة
+-  Netanyahu crea un grupo secreto para abordar los planes de posguerra en Gaza
+-  Los bancos centrales de varios países acumulan grandes cantidades de oro, según un reporte
+-  Chris Billam-Smith RETAINS his WBO cruiserweight world title after Mateusz Masternak retires with a...
+-  Mick Jagger's Girlfriend Melanie Hamrick Shares Rare Photos With Their 7-Year-Old Son Deveraux
+-  Reasons behind CM Punk's shock NXT Deadline appearance are revealed - as WWE fans eagerly await a...
+-  Thomas Tuchel warns Man United that Harry Kane 'is looking forward to' crucial Champions League...
+-  Grateful Bronny James thanks his parents, doctors, coaches and teammates after making his college...
+-  Australia A smashing Sri Lanka twice in one day, David Warner plucked from obscurity and Andrew...
+-  AFLW great Daisy Pearce beats Dani Laidley as she makes a HUGE career move after trolls tried to...
+-  Young Travis Kelce fan has an adorable (and hilarious) reaction to finding out Chiefs superstar is...
+-  CHRIS WHEELER: Erik ten Hag is a man who has run out of answers ahead of a critical week. The Man...
+-  Minnesota Vikings seal ugly 3-0 win over the Raiders in lowest NFL scoreline since 2007... as both...
+-  Kieron Dyer makes first appearance back on Sky Sports after he revealed to Mail Sport the 'miracle'...
+-  Romelu Lukaku is shown a straight RED CARD for nine-man Roma during 1-1 draw with Fiorentina (who...
+-  So-called boxing fans hit Ebanie Bridges with awful X-rated slurs after her shock loss in world...
+-  CHRIS SUTTON: Bruno Fernandes tried to play Hollywood passes and ended up in Hartlepool... he's the...
+-  Footy star Junior Amone learns his fate after being found guilty of 'appalling' rooftop hammer...
+-  Premiership-winning footy star SHOCKS in pro boxing debut after being forced to quit the AFL when he...
+-  LaLiga clash between Granada and Athletic Bilbao postponed after fan dies in the stands... with game...
+-  Man United's situation is dire and Newcastle need help but both CAN qualify, what each team needs to...
+-  Tennis star Novak Djokovic reveals his Wimbledon final defeat to Carlos Alcaraz 'p****d' him off as...
+-  Reece James has missed 35 matches in the last FOUR seasons due to hamstring issues and hasn't played...
+-  Taylor Swift is all smiles cheering on the Kansas City Chiefs alongside WWE star Baron Corbin, but...
+-  Handball-WM der Frauen: Deutschland erleidet Niederlage gegen Dänemark - Im Viertelfinale gegen Schweden
+-  Resultados de la Primitiva del lunes 11 de diciembre de 2023
+-  Sunak faces irreconcilable demands as Tory MPs split ahead of Rwanda vote
+-  Football: Italian Serie A table
