@@ -1,51 +1,51 @@
 # Latest News
--  «Пьяный командир сказал: Автоматы и бронежилеты соберете с мертвых»
--  Borsa: le azioni di Singapore in calo all'apertura di lunedi
--  '손흥민 측면 재배치' 포스테코글루 "쏘니는 여전히 최고의 피니셔"
--  '이게 슛이야?' 비카리오의 조롱→뉴캐슬 ST "예의가 없다, 어린 애야?" 분노...경기 후 충돌까지
--  '서울의 봄', 천만 타이틀이 코앞…700만 돌파
--  서울사이버대 웹문예창작학과, ‘제3회 웹소설 2만자 공모전’ 개최
--  Tiết lộ sự thật về mối quan hệ của Nga và Hamas
--  이제는 돌풍이 아니다... 지로나, 구단 역사상 바르셀로나 상대 첫 승리→1위 도약
--  More Than 500 Electric Vehicles Recalled in New Zealand
--  আমি ভেঙে পড়ার মানুষ নই: পরীমণি
--  Dramática lesión de Jesús Molina ante Tigres: salió en camilla y entre lágrimas
--  Día del Tango: por qué se celebra cada 11 de diciembre en Argentina
--  ‘ทบทวนขึ้นค่าแรงขั้นต่ำ’ ส่อเค้าวุ่น ไตรภาคีฝ่ายลูกจ้าง หวั่นผิดกม. แรงงานเตรียมหารือครม. พรุ่งนี้
--  [글로벌] 이탈 광고주들 “머스크의 X는 싫다”…“X는 추락할 것” 경고
--  تراند اليوم : بالفيديو: صانع محتوى يكشف سبب لبس الرجال للكعب العالي في القرن التاسع.. وأول من ارتداه في التاريخ
--  Goldman Sachs-Ausblick: So geht es mit Inflation, Leitzins und Aktienmarkt in 2024 weiter
--  Brittany Higgins’ confronting statement after alleged rape
--  Nghỉ sinh cuối năm, mẹ bỉm sữa ở Hà Nội "hoa mắt chóng mặt" với danh sách chi tiêu Tết cho gia đình
--  4 Langkah Dinas Kesehatan DKI Jakarta Mengerem Kasus Covid-19
--  흥국생명, '소비자중심경영' 2회 연속 인증
--  흥국화재, 2회 연속 '소비자중심경영 인증' 획득
--  KB손해보험, 5년 연속 '지역사회공헌 인정기업' 선정
--  김철주 생보협회장 "시장 포화 등 생보산업 중대한 위기 직면"
--  Liveblog: ++ Selenskyj: "Offenes" Gespräch mit Orban ++
--  Dinas Kesehatan DKI Temukan 2 Kasus Kematian Positif COVID-19
--  [11일 수원시] '다문화정책 추진 소통 간담회' 개최 등
--  산자부, 원전 기자재 기업 대상 선금 특례제 시행
--  AndaSeat Unveils a Festive Collection of Gaming Gear: Gaming in a Winter Wonderland
--  동영관광, ‘디샤인’과 안정적이고 효율적인 운영을 위한 업무협약(MOU) 체결
--  Crisis de salmonela en EU y Canadá: Melones contaminados matan a 8 personas y enferman a más de 230
--  Kobayashi Pharmaceutical sees highest patent filings and grants during July in Q3 2023
--  BTS: Taehyung y Jungkook se lucen sin camiseta y con la cabeza rapada antes de ir al Ejército
--  Eisai sees highest patent filings and grants during July in Q3 2023
--  김철주 생보협회장 취임…"보험사 본업경쟁력 강화"
--  Indonesia Ketua Aliansi Mangrove Dunia, Erick Thohir: Komitmen Restorasi dan Konservasi Lingkungan
--  크몽, ‘2023 크몽어워즈’ 개최…각 분야 프리랜서 한자리에
--  Con vật này xấu xí, nhìn sợ khiếp vía nhưng là đặc sản nổi tiếng, được ví như “thần dược” dành cho quý ông
--  Иран обвини шведския дипломат от ЕС в престъпление, което се наказва със смърт
--  Ginkgo Bioworks sees highest patent filings and grants during August in Q3 2023
--  Kaza yapan sürücü aracı bırakıp kaçtı
--  청소년母 "이혼한 아버지, 여친 생기자 나 몰래 이사 가버려"('고딩엄빠4')
--  키움, '흥부자' 도슨과 재계약… 총액 60만달러[오피셜]
--  "12월이 성수기"…유통업계, '위스키' 행사 열고 이색 메뉴 선봬
--  삼표산업, 레미콘 제조공정 ‘AI 실용화’ 적용
--  «Зеркало недели»: в Киеве слышны мощные взрывы, объявлена воздушная тревога
--  ALX Oncology sees highest patent filings and grants during July in Q3 2023
--  МО: Су-34 уничтожил солдат ВСУ на Краснолиманском направлении
--  Where To Get VICE Magazine In Australia
--  At UN Climate Talks, Cameras Are Everywhere. Many Belong to Emirati Company with a Murky History
--  이오플로우 "합병 무산됐지만, 메드트로닉 측 소송 상황 주시"
+-  '괴물' 쿠로카와 소야·히이라기 히나타, 20~21일 내한 행사 확정
+-  मनाङमा पुल र बाटो अलपत्र
+-  के यूका एक हजार आठ सय विद्यार्थी दीक्षित हुँदै
+-  हिमाली क्षेत्र फरक, जीवनशैली समान
+-  फलाम खानी उत्खननको लागि पुनः अध्ययन गरिँदै
+-  कर्णालीमा बालबालिकाको क्षेत्रमा लगानी न्यून
+-  Liga 1: Persib Bandung Kalah 0-2 dari Persik Kediri, Beckham Canangkan Kebangkitan vs Bali United
+-  한미약품 혁신신약 '투스페티닙', 단독·병용요법 모두 효과 탁월
+-  안과 사업 진출하는 제일약품, 더뎌진 매출 상승 탄력 받을까
+-  Central California Blood Center partners with Valley Children’s Hospital to host pop-up blood donation opportunities
+-  Central California Blood Center partners with Valley Children’s Hospital to host pop-up blood donation opportunity
+-  Central California Blood Center partners with Valley Children’s Hospital to host pop-up blood donation opportunity
+-  Aucklanders to support the fight against exotic caulerpa
+-  Washington exhorte Pékin à cesser tout comportement "dangereux" en mer de Chine méridionale
+-  «Нас уничтожают». Российские спортсмены отказались ехать на Олимпиаду-2024 на условиях МОК
+-  US F-16 fighter jet crashes in S. Korea during training exercise, reports Yonhap
+-  Hasto Bantah Pernyataannya Sendiri Soal Netralitas Aparat, Teddy Gusnaidi: Asik Nonton Drama Terbaru
+-  Nastavlja se Advent u Gospiću, evo što nas očekuje!
+-  Аюулт үзэгдэл, ослын улмаас 298 хүн нас барж, 3524 иргэн гэмтжээ
+-  Manchester United di Ujung Jurang, Terancam Gugur dari Liga Champions dan Tak Masuk Liga Europa
+-  Bolick heads to NLEX, Trollano to San Miguel in three-team trade
+-  El pequeño pueblo con playas casi vírgenes a las que aún no llega el turismo masivo
+-  Krönika: Min fru brukar säga att jag kunde bo i en papplåda – och hon har rätt
+-  HBL:s julkalender lucka 11: I vilken förort har Pia Ingström vuxit upp?
+-  Heboh, Marshanda dan Vicky Prasetyo Pacaran? Aldi Taher: Insya Allah Sah
+-  SLST: চাকরিপ্রার্থীদের ও শিক্ষামন্ত্রীর বৈঠক নিয়ে মধ্যস্থতা কুণালের, রাজনৈতির মহলে শুরু জলঘোলা
+-  Familjen Hellberg missnöjda med tandvården i Esbo, saknar den svenska servicen som fanns i Grankulla
+-  Reidar Wasenius säljer sin röst som AI
+-  대기업 집단 내부거래, 작년 275조원…최고 비중은 셀트리온
+-  Xinhua Silk Road: 하얼빈에서 얼음 채집 축제 열려
+-  KOSA, SW 전략물자 수출제도 대응설명회…기업 대응 안내서 배포
+-  유수교역, 미국 재활용 노하우 도입…알루미늄스크랩 가공 선진화 기술 교류
+-  Arctech se distingue lors de la première exposition China International Supply Chain Expo, en tant que seule entreprise de solutions de trackers solaires et de systèmes de montage
+-  Air Arabia Abu Dhabi commences direct flights to Colombo
+-  Bt Merah tenants cook in common corridor
+-  我要讚佢│82歲光叔成最年長毅行者 感謝兒子陪伴走過艱苦路段
+-  [수원시 마을버스 요금, 100원 인상
+-  [尹, 이재용-최태원 동행 ‘반도체 동맹’ 네덜란드로…올해 마지막 세일즈 외교 [용산실록]
+-  [‘UAE 초청’ WTO 주요국 통상장관 회의…내년 각료회의 의제 논의
+-  [농식품부, 국산밀 생산단지대회 대상에 한국우리밀농협
+-  [화성시, 축산분야 지원사업 신청 접수
+-  [또래 ‘전치 11주’ 만든 ‘천안 집단폭행’ 가해 여중생들, 재판行
+-  [尹, 네덜란드 국빈 방문...‘반도체 동맹’ 강화
+-  [화성시외국인복지센터 사업보고회
+-  [조민 “수능 공부해본 적 없어…20대 용돈 일주일에 10만원”
+-  [안산시 일동 주차난 해소…부설주차장 개방 협약
+-  ["순금이다" 가짜 금목걸이 금은방에 팔아 6000만원 챙긴 간 큰 20대
+-  [안산시, 청년도전지원사업 성과보고회…56명 취·창업 성공
+-  [광명시, 안양천 지방정원 조성 ‘가속도
+-  [네덜란드 국빈방문하는 윤석열 대통령 [이상섭의 포토가게]
