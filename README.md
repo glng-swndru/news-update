@@ -1,11 +1,11 @@
 # Latest News
--  한국아스트라제네카, 포시가 내년 상반기 국내 공급 중단
--  소래역사관, 유무형문화재 활용 '남동구 문화재 특별전' 개최
--  [경기도의원 릴레이 인터뷰] 기획재정위원회 이채영 의원
--  ‘女 감금 성폭행 시도’ 30대男, 훨체어 타고 영장심사 “죄송하다”
--  이정재가 유증 참여하는 ‘와이더플래닛’, 또 30% 급등
--  삼성증권 PB, 고객돈 수십억원 횡령 사실 드러나 경찰 수사
--  유튜브 ‘한국 차별’ 논란 다시 떠올랐다…‘디지털 이민’ 가는 이유는
--  ‘YS 손자’ 김인규, 부산 출마 선언…“김영삼 계승 국민의힘, 민주화 본류”
--  ‘네덜란드行’ 尹에…野 “‘떡볶이 논란’ 며칠 만에 ‘기업인 동원’ 갑질”
--  ‘제2연평해전 주역’ 이희완 보훈부 차관 취임…“국가보훈 드높일 것”
+-  „Po tokios gėdos Teplinskis turi atsistatydinti.“ Košmaras Krynkuose. Kas nutiko (Video)
+-  Tyrimas šokiruoja: paslaptingas ryšys tarp kačių auginimo ir šizofrenijos yra realus
+-  [ŽT] „Mane pasodins.“ Arestovyčius skelbia apie sugrįžimą į Ukrainą
+-  Plaukų nekirpo nuo 14 metų. Kaip atrodo ilgiausius plaukus pasaulyje turinti moteris (Video)
+-  Повалиха тежащ четвърт тон глиган край Кърджали
+-  Altın haftaya hareketli başladı!
+-  Altın merkez bankalarının kararlarını bekliyor
+-  Takla atan araçtan burnu bile kanamadan çıktı
+-  Политолог: Предстои изкуствено напрегнат пазарлък преди ротацията
+-  Awal lagi Tok Ram dah tahu siapa juara GV10
