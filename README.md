@@ -1,11 +1,11 @@
 # Latest News
--  À Quimper, pour louer son logement à des touristes, il faut désormais s’enregistrer
--  Inbraak snackbar op Harselaar: 'Kleingeld weg, maar veelvoud aan schade'
--  À Vannes, disparue depuis le 30 novembre, elle est de retour chez elle
--  OBOREN MOTOCIKLISTA U nesreći u Kruševcu učestvovala i dva automobila (VIDEO)
--  Oficial: Programación de la Gran Final
--  Menarini Group Presented Initial Safety and Efficacy Data from Phase 1b/2 ELEVATE and ELECTRA Combination Studies of ORSERDU® (Elacestrant) in Patients with ER+, HER2- Metastatic Breast Cancer (mBC) a
--  Tata Power urges all to Embrace Mother Earth, Love Our Planet and Switch to Green and Clean Energy
--  SC verdict on Article 370: Decision will strengthen national unity, says RSS
--  Footwear hurled at BJP MLC: Unidentified Maratha activists booked in Indapur
--  Директорът на ЦРУ заплаши Ирак със "сериозни последствия", ако атаките срещу базите на САЩ продължат
+-  Roban en la plaza de Bueu pescado y marisco por valor de 3.000 euros
+-  ప్రైవేటు ఆస్పత్రి ముందు మృతదేహంతో ఆందోళన
+-  Shakira, Bizarrap y Peso Pluma, encabezan búsquedas en español de EEUU en Google en 2023
+-  Minsa confirma una defunción por dengue, en total van 14 muertos
+-  La ineludible importancia de la educación
+-  Haciendo amigos
+-  ‘It was just a symbol’ — axed EFF Merafong chief whip on ANC/EFF T-shirt swap blunder
+-  జాతీయ స్థాయి పోటీలకు విద్యార్థుల ఎంపిక
+-  Presentes que 'falam' inglês? WOOK não pode perder
+-  Simone surge com cabelo loiro e impressiona com macacão que valoriza a cintura em gravação de DVD. Foto!
