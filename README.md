@@ -1,11 +1,51 @@
 # Latest News
--  Куди цьогоріч тікали на зимівлю росіяни: перелік країн
--  Thanh khoản bất ngờ giảm mạnh, cổ phiếu phân hóa
--  Atina Bildirgesi neden başarıya ulaşmalı?
--  #CANLI Cumhurbaşkanı Yardımcısı Yılmaz açıklamalarda bulunuyor
--  Joburg EMS on high alert as city braces for inclement weather
--  Due to water scarcity in Sandton, 'Momo's Magical Adventures' put on hold
--  Hostage situation at Modder East mine 'still a volatile situation' - Gold One
--  최대 격전지 유격수 GG… '34표차' 박찬호 제친 오지환, 2년 연속 골든글러브 수상
--  SC's Verdict On Abrogation Of Article 370 Is Beacon Of Hope: PM Modi
--  Record Cash Seizure Of Rs 351 Cr In Income Tax Raids On Odisha Distillery, Owned by Congress MP's Family
+-  Tri tipy na vianočné darčeky s dokonalou konektivitou
+-  Desivé zábery na VIDEU: Dopravné lietadlo pristáva uprostred raketového útoku Hamasu na Tel Aviv
+-  Katastrofalno stanje belgijske obrane zbog Ukrajine: Nedostaje strjeljiva, general tvrdi da bi morali gađati neprijatelja kamenjem
+-  Azerbaijan to get into France's media field - Azerbaijani political expert (PHOTO/VIDEO)
+-  הפוליטיקה של הרשתות החברתיות
+-  (ВИДЕО) Гир: Не постои план Б, уставните промени мора да се реализираат
+-  Белорусским безвизом с начала года воспользовались почти 400 тыс. иностранцев
+-  Rimini: „Frecciarossa“ kollidiert mit Regionalzug
+-  Mes, governo in crisi: la Lega non vuole firmare, Forza Italia dice sì
+-  راجستھان: دلت شخص پر حملہ کرنے کے الزام میں بی جے پی ایم ایل اے کے خلاف کیس درج
+-  Μπενζεμά: Με Μαρσέλο, τον εαυτό του και χωρίς Μέσι-Ρονάλντο η κορυφαία 11άδα του (vid)
+-  रुसी सेनामा भर्ती हुने नेपालीको संख्या २ सय
+-  유보통합 '깜깜이 정보'에 제주 유치원 교사들 반발
+-  성산고 “학생들에게 다양한 취업기회 있어야...특성화고 전환 필요”
+-  Simović uvjeren da Vujačić nema veze sa podmetanjem eksploziva...
+-  Sector empresarial estima crecimiento de 2% en 2024
+-  Disputa por Milpa Alta; batalla electoral por las alcaldías
+-  Patricio Pron, literatura con carácter de resistencia
+-  與 친윤 초선들, 서병수·하태경에 "내부총질·엑스맨" 집중포화
+-  홍준표 "백마 탄 기사는 어디에···나라는 왜 이리 혼탁하고 어지러운지"
+-  La Suisse et la Tunisie signent un accord facilitant les investissements suisses dans des projets de protection du climat en Tunisie
+-  Steffi Lemke im "Frühstart": "Wir müssen sparen, aber auch zu unserer Verantwortung stehen"
+-  Milli Savunma Bakanı Güler: İsrail'in saldırıları artık vahşete dönüştü
+-  Barcelona 2-4 Girona (ÖZET)
+-  Yargıtay kararının ardından HEDEP yine ismini değiştirdi
+-  [한국기행] 내 인생, 빨간 맛 1부-불볼락 잡던 날
+-  [세계테마기행] 알프스의 심장 오스트리아 1부-알프스에서 사는 법
+-  [생방송 투데이 맛집] ‘양념소갈비’ 맛집
+-  Cevdet Yılmaz: 2024 yılı büyüme tahmini yüzde 4
+-  Манджгаладзе: Права человека для России ничего не значат, поэтому важно, чтобы виновные не остались безнаказанными
+-  İsrail'in Gazze'deki asker kaybı artıyor
+-  İstanbul barajlarındaki son durum
+-  Bakan Güler'den İsrail'e sert tepki: Kabul etmemiz mümkün değil
+-  Zara'nın tartışmalı kampanyasına açıklama geldi!
+-  Trezeguet, Gaziantep FK'ye karşı kalitesini gösterdi
+-  All eyes on Polish parliament as Tusk set to become PM
+-  Pop up Jelka – projekt, ki v ospredje postavlja manj izpostavljene kvalitetne oblikovalske izdelke
+-  Pop up Jelka – projekt, ki v ospredje postavlja manj izpostavljene kvalitetne oblikovalske izdelke
+-  Inflation jumped to 5.07% in October 2023
+-  Mordanschlag in Berlin?: Unbekannte schießen Boxer nieder
+-  นักลงทุนเผ่น! คณบดีเศรษฐศาสตร์มธ. ชี้ขึ้นค่าแรง 400 ยังไม่เหมาะ กระทบ SME มีปัญหาย้ายฐานลงทุน
+-  Britain’s M&G invests in crypto derivatives platform GFO-X
+-  Oil extends gains on US strategic reserve purchases
+-  Los segovianos pagarán en 2024 una media de 20 euros más por la tasa de basuras
+-  Másfélszer magasabb az influenzaszerű tünetekkel orvoshoz fordulók aránya, mint 2022-ben
+-  Cybersecurity funding programme launched for Cypriot SMEs
+-  Portugal licita el mayor parque fotovoltaico flotante de Europa
+-  Prof. Dr. Bedirhanoğlu'nda yeni konutlar için uyarı! 2023'teyiz ama hala kolon miktarı az!
+-  Канчельскис заявил, что МЮ кровь из носа нужна победа в матче с «Баварией»
+-  「５５か所の刺し傷、執拗で凄惨な犯行」母親殺害の男に懲役１０年求刑 弁護側は無罪主張 広島地裁
