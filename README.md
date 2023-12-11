@@ -1,51 +1,11 @@
 # Latest News
--  The Family Circumstances of the Irregular Witch Season 1 Episode 12 Release Date & Time on Crunchyroll
--  MGI Expands Presence in Latin America with New Partnerships with Genos Médica and TCL Group
--  경주시의회 의원연구단체 ‘신라연희문화발굴단’ 정책연구용역 최종보고회
--  Güngören'de iki grup arasında çıkan silahlı kavgada 1 kişi öldü
--  Pressad i skolfrågan – men trots alla nej: ”Det finns alternativ”
--  В КНДР назвали учения Южной Кореи и США "бесполезной бравадой"
--  هروب مساجين من احد سجون ذمار.. واتهامات بين القيادات الحوثية بتهريبهم
--  Gujarat: બે દિવસ બાદ રાજ્યમાં વધશે ઠંડીનું જોર, અમદાવાદમાં 16.2 ડિગ્રી તાપમાન નોંધાયુ
--  경륜 그랑프리 29일 개막! 훈련지별 특선급 대세 분석
--  [CULTURE] K-pop's appeal reflected in global accolades 글로벌 신드롬에서 드러난 K팝 인기
--  В ДТП с поездом в Алтайском крае погибли два человека
--  দূষণে শীর্ষ ঢাকার বাতাস আজ ‘ঝুঁকিপূর্ণ’
--  I am firmly against body-shaming humour: Actor Satish
--  Костромские пожарные спасли от огня дом культуры в поселке Палкино
--  Ярославцев предупредили, что новый год им придется встретить в компании с магнитными бурями
--  MLA Disqualification: राष्ट्रवादीत असताना तुमच्या एबी फॉर्मवर सही कोण करायचं? सामंत म्हणाले, पक्षावर विश्वास होता, सही कधी पाहिलीच नाही
--  Woman, 2 children in critical condition after incident in Scarborough
--  Мобилизованным из Владимирского региона дадут по 100 тысяч рублей
--  رمضان 2024.. بدء تجهيزات مسلسل "عتبات البهجة" بطولة يحيى الفخرانى
--  ব্যারিস্টার মইনুলের জানাজায় অংশ নিয়ে যা বললেন প্রধান বিচারপতি
--  تهديد بالحبس والغرامة..مقاضاة لبلبة لتصويتها في الإنتخابات الرئاسية مرتين| لميس الحديدي تعلق
--  «Думская»: командование ВСУ совершает преступление, отправляя войска через Днепр
--  오리온, ‘마켓오 치즈톡 달콤치즈맛’ 선보여
--  S-OIL, ‘2023 올해의 영웅소방관’ 7명 시상...‘최고 영웅 소방관’에 권태진 소방위
--  نقابة الصحفيين الفلسطينيين: 160 جريمة بحق الصحفيين خلال شهر
--  Un paciente del IESS derivado ha sido rechazado por cinco clínicas
--  Cartas de lectores: Promesa de Navidad
--  Cartas de lectores: Cambio de rumbo urgente
--  Trina Solar en la lista de las 50 principales empresas innovadoras de Forbes China
--  টিভিতে আজকের খেলা (১১ ডিসেম্বর ২০২৩)
--  Cartas de lectores: No va más la marca de huevos Indaves
--  Horóscopo de hoy, lo que deparan los astros este 11 de diciembre
--  Habs prospect Owen Beck ready to share wisdom at Canada’s world junior selection camp
--  Habs prospect Owen Beck ready to share wisdom at Canada’s world junior selection camp
--  Мэс, хийн буу гаргаж, танхайрсан иргэдэд холбогдох хэргийг шүүхэд шилжүүлжээ
--  Kollision in umstrittenem Gebiet: USA werfen China "gefährliches Verhalten" vor
--  Politik greift ein – Zalando-Retouren könnten dich bald Geld kosten
--  Macaulay Culkin enjoys afternoon out with his fiancee Brenda Song and their two young sons at LA park... after he emotionally revealed she gives him 'purpose'
--  Heavily-tattooed Aussie bloke Troy Tukuniu who beachgoers can't stop looking breaks his silence - and explains that gun tatt above his crotch
--  Call of the Wilde: Montreal Canadiens fall to the Nashville Predators
--  Stocks to Watch: Tata Motors, Cipla, Zomato, GMR Airports, Mazagon Dock, and Others
--  ‘El Chinamo’ 2023: ‘¡Una bulla, chinameros!’ fue el llamado para el fiestón
--  مصدر سوري: الدفاعات الجوية تتصدى لقصف صاروخي أسرائيلي لمحيط دمشق
--  Savico (SVC) sắp giải thể CTCP Dịch vụ Ô tô Cần Thơ
--  속초해경 구조대 대원, 2023 해경 인재상·생명존중 대상 수상
--  '겨울 트래킹 명소' 철원 한탄강 물윗길 서울서 홍보
--  강원대병원 ‘노쇼 환자' 국립대병원 중 최다
--  Resmi! TikTok Shop Buka Lagi, Besok Uji Coba
--  Từ dự án "An toàn thực phẩm vì sự phát triển": Chuyển biến từ các tác nhân chuỗi rau, thịt ở Hà Nội
--  প্রথমবার বাবার সংবাদ সম্মেলনে এসে যা বললেন চঞ্চলপুত্র শুদ্ধ
+-  "ชัยธวัช" รอจังหวะอภิปรายรัฐ หลังถกงบฯปี 67
+-  ‘Loco’ Wagner, Renato Rossini Jr y Milene Vázquez se salvaron de la sentencia en El Gran Chef Famosos: La Revancha
+-  Daisy Pearce to combine Seven commentary with new coaching gig
+-  Daisy Pearce to combine Seven commentary with new coaching gig
+-  Christine Brown Gushes Over the Moment She Fell in Love With New Husband David Woolley
+-  Meri Brown Explains Why She Doesn’t Trust Robyn ‘Implicitly’ Amid Kody Drama
+-  Yankees working on trade with Dodgers to rebuild bullpen depth
+-  Ananya reveals she paid for her sister`s tuition with her first big paycheck
+-  Office fashion tips: Tailored for your style and comfort
+-  Фарғонада гуруҳбозликка алоқадор шахслар безорилик устида ушланди
