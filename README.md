@@ -1,11 +1,51 @@
 # Latest News
--  Jesse Puljujärvi skriver try-out med Pittsburgh Penguins
--  ‘제2 명낙대전’ 발발하나…폭풍전야 민주당
--  머스크, 9·11 조작 ‘음모론자’ X계정 복구…“사람들 의견대로”
--  ‘사립초 통폐합’ 시동 건다…내년도 입학생 35만 명, ‘급감’ 현실화
--  경찰 “지드래곤 마약 수사 마무리 단계…이선균은 추가 소환 검토”
--  조희대 대법원장 취임…“재판 지연 해결할 것”
--  JPMorgan streicht SAP von 'Analayst Focus List' - 'Overweight'
--  ঘাড়ের কালচে দাগ
--  Almaniyadan etiraf: "Amerika onsuz da bunu edəcək” deyəcəyimiz vaxt bitdi
--  40 Jahre „Drombuschs“, „Monaco Franze“, „Formel Eins“: Deutschlands letztes Jahr ohne Privatfernsehen
+-  KOSA, 행정 전산망 마비 등 공공SW사업 현안 토론회 개최
+-  최태원 SK 회장, 현장경영 박차…미국 찍고 유럽까지 광폭 행보
+-  부고도 이용하는 스미싱… 까딱하다간 속는다
+-  AI사업단, AI 기업들과 파운데이션 모델 공동개발 협약
+-  طريقة عمل الكيكة الإسفنجية الهشة.. تعرف على سر ارتفاعها
+-  ABD'ye ait F-16 savaş uçağı düştü
+-  ABD'li Senatör Bernie Sanders’dan veto kararına tepki: İnsani ateşkes çağrısında bulunan BM kararı veto edilmemelidir
+-  بدء تصويت اليوم الثاني في الانتخابات الرئاسية 2024 بمحافظة بورسعيد
+-  송기섭 진천군수 급변하는 지역발전 패러다임 강조
+-  Presentación de un manual técnico para gestionar el oxígeno en la bodega
+-  `Salaar Part 1: Ceasefire`: CBFC passes Prabhas-starer with `A` certificate
+-  Two security personnel injured in IED blast in Chhattisgarh’s Sukma
+-  Стол теннисчиларимиз Қозоғистонда зафар қучди
+-  Mole occupata, Po verde, messa interrotta: Torino in balia dei ragazzi del clima
+-  Article 370: జమ్మూ కశ్మీర్‌లో ఆ సమయానికల్లా ఎన్నికలు నిర్వహించాలి.. ఈసీని ఆదేశించిన సుప్రీంకోర్టు
+-  زلزال بقوة 5.5 ريختر يضرب مقاطعة بابوا بإندونيسيا
+-  انتخاب 9 أعضاء لمجلس إدارة «أسمنت الشرقية»
+-  الذهب يهبط مع صعود الدولار والأنظار على اجتماعات البنوك المركزية
+-  البنك المركزي الصيني يضخ 363 مليار يوان في النظام المصرفي
+-  "الشؤون الإسلامية" تنظم كلمات أسبوعية بجوامع ومساجد الدمام
+-  ㈜고스트패스-㈜애니락, AI 생체인증 스마트락 개발 위한 업무협약
+-  안민석 의원 "국립대병원 노쇼 심각 1 년반새 96 만 명" 지적
+-  성남시, 내년도 노인 일자리 지원사업 참여 희망자 7681명 모집
+-  경기도교육청, 자유학기 온라인 콘서트 개최
+-  시흥시 시정연구원, 내년 하반기 설립 행안부 ‘허가’ 얻어
+-  부천교육청, 12일 학생·학부모·시민들 대상 ‘저녁 돌봄 DAY’ 진행
+-  박봉규(한국토지주택공사 인천지역본부장)씨 빙모상
+-  광명시, 오는 19일 ‘2023 지방자치 어워드’ 시상식 개최
+-  안양 만안청소년관, 12일부터 ‘2024년 겨울특강’ 총 51개 강좌 모집
+-  ‘2023년 광명시 10대 뉴스’ 오는 18일까지 시민 온라인 투표 진행
+-  오산시-오산경찰서, ‘가정폭력·성폭력 공동대응팀’ 업무협약 체결
+-  군포시의회, 그림책꿈마루· 철쭉축제 예산 증액 "긴축재정 역행" 비판
+-  안양과천교육청, 교육행정직에 2024학년도 학교회계 기본지침 연수 진행
+-  NH농협 광명지부·광명농협, 쌀·라면 서울남부보호관찰소에 기부
+-  광명시 ‘국제안전도시’ 공인 공식 선포…ISCCC와 협정서 체결
+-  박승원 광명시장, 광명제11R구역 재개발사업 지구 민·관 합동 안전점검 참여
+-  광주소방서, ‘내 옆에 소화기’ 릴레이 챌린지 출발
+-  성남 중원청소년관, ‘썸썸스페이스’ 참여 5개팀 성과보고회 개최
+-  성남도시개발공사, 소비자중심경영 인증 3회 연속 획득
+-  성남중원경찰서, 중원구 자율방범연합대 법정단체 출범식가져
+-  Lastik botta yardım çığlığı: 136 göçmen ölümden son anda kurtarıldı
+-  لجان الزمالك تفتح أبوابها لاستقبال الناخبين في اليوم الثاني للانتخابات الرئاسية 2024
+-  প্রতিবছর মশার কামড়ে কত লোক মারা যায় জানলে অবাক হবেন
+-  Empoli - Lecce maçı ne zaman, saat kaçta, hangi kanalda?
+-  Костадинов за бития общински съветник: Ще се видим в съда, става въпрос за клевета
+-  Van’da uyuşturucu operasyonu: 161 kilo 500 gram uyuşturucu ele geçirildi
+-  OTARASITE SE BOLA Popijte ovaj čaj ujutru i ceo dan nećete imati glavobolju, pravi se od 2 namirnice
+-  Borsa İstanbul’da 4 hisse güne tedbirlerle başladı: İşte o hisseler...
+-  Thị trường dự báo ít biến động trong tháng 12, nhóm cổ phiếu nào tiềm năng?
+-  Soccerladuma | Report: Tau Set To Win Major CAF Prize
