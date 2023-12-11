@@ -1,11 +1,11 @@
 # Latest News
--  셀트리온 ‘유플라이마’ 이어 ‘베그젤마’도 美 Ventegra 처방집 등재
--  Der Öschberghof será la base de la selección española durante la Eurocopa de Alemania
--  Глава Аргентины Милей обещал Зеленскому провести саммит по Украине
--  صلاح وحكيمي يخسران جائزة اللاعب الأفضل.. تعرف على هوية الفائزين بجوائز الاتحاد الإفريقي
--  Opvallende aantijging Waterreus over Steijn bij Ajax: 'Dat komt in mij op'
--  Bachelorette: Jennifer Saro und Fynn wohnen nicht mehr zusammen
--  Thilini acquitted and released from cheque fraud case
--  WPL snub for Chamari Athapaththu
--  US Special Rep for racial equity and justice in town
--  Chalitha Pushpika ends on 11th position at Malaysian Amateur Open
+-  Mexico president to push forward anti-vape bill
+-  أسوأ من ألمانيا في الحرب العالمية الثانية.. بوريل: الدمار في غزة كارثي ومروع
+-  Bizar incident in Turks voetbal: woedende voorzitter slaat scheidsrechter neer
+-  Family of police officer killed in Wieambilla shooting mark anniversary
+-  Family of police officer killed in Wieambilla shooting mark anniversary
+-  Kyle Richards brings Morgan Wade to Kathy Hilton’s Christmas party after Mauricio Umansky split
+-  Parliament green lights 18% VAT hike
+-  Can government deliver end to homelessness for veterans this Christmas?
+-  OPINION: Reflecting on 75 Years Since the Convention on the Prevention and Punishment of the Crime of Genocide was Adopted at U.N.
+-  Sonko, victime d’un nouveau malaise au Cap Manuel
