@@ -1,11 +1,51 @@
 # Latest News
--  Bay Area Travel: A holiday weekend getaway to Sausalito
--  Nu ryker våra klassiker: ”Märks när man handlar”
--  Hiter in učinkovit način nameščanja lučk na smrečico
--  Schweizer Dividendenaktien: Diese Titel haben Investoren für 2024 im Fokus
--  V peti dimenziji je drugače kot v tretji, v kateri večinoma živimo
--  To je boljše od viagre (in brez stranskih učinkov)
--  Tako lahko v sušilnem stroju varno posušimo superge
--  President Ilham Aliyev redrawing Eurasia's energy map- Azerbaijan ensures Serbia's gas access
--  Hati-Hati Saat Memasang Baliho Caleg, Pria Ini Tewas
--  VÍDEO: 'La sociedad de la nieve', de Bayona, nominada a mejor película de habla no inglesa en los Globos de Oro
+-  Kuwait Special Olympics takes center stage at regional Leadership Conference in Cairo
+-  CBK Bonds and Related Tawarruq Announcements
+-  Hombre se transportaba en auto con doble fondo
+-  FIFA Club World Cup kicks off in Jeddah
+-  Konyasporlu futbolcular seremoniye minik semazenlerle çıktı
+-  Bayern brings anger and unbeaten record to Man United in Champions League after 5-1 loss
+-  Switzerland shaken: Dangerous gunman on the loose sparks large-scale manhunt
+-  Agustín Auzmendi con propuesta para abandonar al Motagua
+-  Açores/crise: “É o que eu esperava”, afirma Bolieiro no fim da reunião do Conselho de Estado
+-  Aktien Frankfurt Schluss: Nächster Dax-Rekord in Notenbank-Woche
+-  Bruker to timer av arbeidsdagen til å lade. – Det blir en ladekrise
+-  Kommentar zur DFL-Abstimmung: Sprengkraft
+-  Dareu A950 Pro 4k review: Small brand, big features
+-  UŽIVO! MEGA - ZVEZDA: Crveno-beli protiv gradskog rivala leče španske rane!
+-  PROCENITE SAMI! PENAL ZA RADNIČKI UZBURKAO STRASTI: Fudbaleri Partizana se nikako nisu mirili sa odlukom sudije Ivkovića VIDEO
+-  Kampf um Winnetous Erbe: Erster Film erschien vor 60 Jahren
+-  Sánchez tacha de "extraordinariamente graves" las palabras de Abascal, que Feijóo ve "lamentables"
+-  Pokemon Go Mega Glalie Raid guide: Weaknesses & best counters
+-  俄烏戰爭｜俄羅斯實施新法例 被禁出境者接通知需5天內交出護照
+-  Jack Black Surprises Jonas Brothers Audience With 'Super Mario Bros. Movie' Song 'Peaches'
+-  أفضل لاعب في مباراة الهلال والتعاون
+-  Olivia Rodrigo fans “beg” for acting return after SNL appearance
+-  Путин призвал не занижать цены при расселении из аварийных домов
+-  Lethal Company has just solved arachnophobia with words, literally
+-  I shkëputur prej vitesh nga Shqipëria dhe muzika, Vedat Ademi tregon jetën e re në SHBA: Si e morëm vendimin për të ikur
+-  בעקבות הסתירה בגרסאות: מח"ש תחקור את הצוות שטיפל במותו של יובל קסטלמן
+-  האוצר גייס 4.4 מיליארד שקל - הנפקת האג"ח השבועי הגבוהה בכל הזמנים
+-  Mbi 1.1 milionë aplikime për shërbime elektronike në e-Albania
+-  Kapal KM Kelud Manjakan Penumpang Mudik Nataru dengan Fasilitas Bioskop dan Rental PS
+-  Employee Experience: Catalisador da cultura organizacional
+-  Consumer organisation plans to approach court for removal of encroachments on water bodies in Coimbatore
+-  El Internacional femenino inicia su caminar en el Álvarez Claro
+-  La ULL, en contra de la implantación de una nueva universidad privada en Canarias
+-  Presek isplate za srednjoškolce! Siniša Mali: Svi će dobiti novac do kraaja nedelje
+-  Trofeo regionale Jumping Horse Endas Sicilia, vince Equiclub Cinisi
+-  Neuer Standort: Der 1. FC Normannia Gmünd hat das Laichle im Blick
+-  'Barbenheimer' tops Golden Globes nominations
+-  Senate body unanimously passes resolution condemning Israeli atrocities against Palestinians
+-  Applications open for admission to e-Rozgaar training program
+-  Baldur’s Gate 3: Can you romance multiple companions?
+-  Czech companies keen for collaboration in Pakistan’s mining, energy, chemical sectors: Envoy
+-  Epic Games dreams of bringing Nintendo characters to Fortnite
+-  MD SML removes as per laws, service rules of company
+-  Белый дом: Байден и Зеленский намерены обсудить ситуацию на поле боя
+-  LongHorn Steakhouse celebrates 20 years fighting hunger in Tampa Bay
+-  Şimşek: 2024'ten itibaren yıllık enflasyon düşecek
+-  PSI termina o dia no ‘vermelho, com EDP Renováveis a perder quase 4%
+-  Congress says debate on Article 370 is over with SC ruling, demands restoration of statehood, immediate polls
+-  Frequency sparking a sound healing renaissance
+-  Sánchez tacha de "extraordinariamente graves" las palabras de Abascal, que Feijóo ve "lamentables"
