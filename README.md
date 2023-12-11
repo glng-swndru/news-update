@@ -1,51 +1,51 @@
 # Latest News
--  Tri tipy na vianočné darčeky s dokonalou konektivitou
--  Desivé zábery na VIDEU: Dopravné lietadlo pristáva uprostred raketového útoku Hamasu na Tel Aviv
--  Katastrofalno stanje belgijske obrane zbog Ukrajine: Nedostaje strjeljiva, general tvrdi da bi morali gađati neprijatelja kamenjem
--  Azerbaijan to get into France's media field - Azerbaijani political expert (PHOTO/VIDEO)
--  הפוליטיקה של הרשתות החברתיות
--  (ВИДЕО) Гир: Не постои план Б, уставните промени мора да се реализираат
--  Белорусским безвизом с начала года воспользовались почти 400 тыс. иностранцев
--  Rimini: „Frecciarossa“ kollidiert mit Regionalzug
--  Mes, governo in crisi: la Lega non vuole firmare, Forza Italia dice sì
--  راجستھان: دلت شخص پر حملہ کرنے کے الزام میں بی جے پی ایم ایل اے کے خلاف کیس درج
--  Μπενζεμά: Με Μαρσέλο, τον εαυτό του και χωρίς Μέσι-Ρονάλντο η κορυφαία 11άδα του (vid)
--  रुसी सेनामा भर्ती हुने नेपालीको संख्या २ सय
--  유보통합 '깜깜이 정보'에 제주 유치원 교사들 반발
--  성산고 “학생들에게 다양한 취업기회 있어야...특성화고 전환 필요”
--  Simović uvjeren da Vujačić nema veze sa podmetanjem eksploziva...
--  Sector empresarial estima crecimiento de 2% en 2024
--  Disputa por Milpa Alta; batalla electoral por las alcaldías
--  Patricio Pron, literatura con carácter de resistencia
--  與 친윤 초선들, 서병수·하태경에 "내부총질·엑스맨" 집중포화
--  홍준표 "백마 탄 기사는 어디에···나라는 왜 이리 혼탁하고 어지러운지"
--  La Suisse et la Tunisie signent un accord facilitant les investissements suisses dans des projets de protection du climat en Tunisie
--  Steffi Lemke im "Frühstart": "Wir müssen sparen, aber auch zu unserer Verantwortung stehen"
--  Milli Savunma Bakanı Güler: İsrail'in saldırıları artık vahşete dönüştü
--  Barcelona 2-4 Girona (ÖZET)
--  Yargıtay kararının ardından HEDEP yine ismini değiştirdi
--  [한국기행] 내 인생, 빨간 맛 1부-불볼락 잡던 날
--  [세계테마기행] 알프스의 심장 오스트리아 1부-알프스에서 사는 법
--  [생방송 투데이 맛집] ‘양념소갈비’ 맛집
--  Cevdet Yılmaz: 2024 yılı büyüme tahmini yüzde 4
--  Манджгаладзе: Права человека для России ничего не значат, поэтому важно, чтобы виновные не остались безнаказанными
--  İsrail'in Gazze'deki asker kaybı artıyor
--  İstanbul barajlarındaki son durum
--  Bakan Güler'den İsrail'e sert tepki: Kabul etmemiz mümkün değil
--  Zara'nın tartışmalı kampanyasına açıklama geldi!
--  Trezeguet, Gaziantep FK'ye karşı kalitesini gösterdi
--  All eyes on Polish parliament as Tusk set to become PM
--  Pop up Jelka – projekt, ki v ospredje postavlja manj izpostavljene kvalitetne oblikovalske izdelke
--  Pop up Jelka – projekt, ki v ospredje postavlja manj izpostavljene kvalitetne oblikovalske izdelke
--  Inflation jumped to 5.07% in October 2023
--  Mordanschlag in Berlin?: Unbekannte schießen Boxer nieder
--  นักลงทุนเผ่น! คณบดีเศรษฐศาสตร์มธ. ชี้ขึ้นค่าแรง 400 ยังไม่เหมาะ กระทบ SME มีปัญหาย้ายฐานลงทุน
--  Britain’s M&G invests in crypto derivatives platform GFO-X
--  Oil extends gains on US strategic reserve purchases
--  Los segovianos pagarán en 2024 una media de 20 euros más por la tasa de basuras
--  Másfélszer magasabb az influenzaszerű tünetekkel orvoshoz fordulók aránya, mint 2022-ben
--  Cybersecurity funding programme launched for Cypriot SMEs
--  Portugal licita el mayor parque fotovoltaico flotante de Europa
--  Prof. Dr. Bedirhanoğlu'nda yeni konutlar için uyarı! 2023'teyiz ama hala kolon miktarı az!
--  Канчельскис заявил, что МЮ кровь из носа нужна победа в матче с «Баварией»
--  「５５か所の刺し傷、執拗で凄惨な犯行」母親殺害の男に懲役１０年求刑 弁護側は無罪主張 広島地裁
+-  Google Year in Search 2023 in India: चांद्रयान-3, तुर्की भूकंप, मणिपूर यांसह या वर्षी इंटरनेटवर काय काय झाले सर्च? घ्या जाणून
+-  शख्स ने ऑर्डर किया 20,000 रुपये का हेडफोन, मिला टूथपेस्ट, अनबॉक्सिंग वीडियो वायरल होने के बाद अमेज़न ने दी प्रतिक्रिया
+-  HDP'li Semra Güzel'in yargılanmasına devam edildi: Fotoğrafları inkar etmiyorum
+-  CAS озвучил решение по вердикту скандального дела Камилы Валиевой
+-  SolarEdge (Tel-Aviv), cotée au Nasdaq, est sur le point de perdre sa place dans l’indice le plus suivi au monde.
+-  Las elecciones y la posverdad
+-  SEPAH genişmiqyaslı hərbi təlim keçirdi
+-  Centre Unveils National Policy To Upgrade Old Wind Turbines
+-  Carros que já foram usados pela Presidência da República por R$ 18 mil em Leilão
+-  قسم العلوم السياسية في كلية الاقتصاد والعلوم السياسية جامعة عدن ينفذ تدريب حول : المناظرة..لطلاب العلوم السياسية
+-  Poljska redateljica koju su žestoko napadali radi njezina filma o migrantima: Europa je lijena, bez mašte i hrabrosti
+-  تنبه عاجل لـ "المرور" بشأن القيادة في الظروف الجوية المتقلبة
+-  كم من الوقت يجب أن تبقى في الحمام؟.. احذر هذه المخاطر
+-  Proper Nutrition and Weight Loss Diet – How to Implement It?
+-  शाहजहांपुर साइकिल क्लब के तत्वावधान में बच्चो ने चलाई साइकिल
+-  ऊंट उत्सव में विरासत को बचाने हेतु संदेश देने के लिए इंटेक सहभागिता निभायेगा
+-  “Beşiktaş” 5 əsas futbolçusunu komandadan uzaqlaşdırdı
+-  Campagna di Raccolta Fondi per la ricostruzione del Centro per la Vita Indipendente di Gaza City
+-  83%-ის აზრით, დეპრესია და შფოთვითი აშლილობა მოსახლეობისთვის პრობლემაა – NDI
+-  COSMO Pharmaceuticals-Aktie klettert: COSMO und Medtronic vertiefen Partnerschaft bei KI-gesteuerter Behandlung
+-  Olivier Vallet, PDG de Docaposte : « Le positionnement de Numspot est pertinent sur le marché »
+-  Park Seoham Bebas Wamil, Langsung Tebar Pesona Lewat Foto-foto Terbaru
+-  دورة تدريبية للكادرات النسوية حول القرار الاممي (1325) بأبين
+-  Elon Musk sa po roku vracia na trón, znovu je najbohatším mužom na svete
+-  Германия — Черный день для страны
+-  Maďarsko stále hrozí vetom. Nad samitom EÚ a pomocou Ukrajine sa vznáša Orbánov tieň, píše Politico
+-  ゲーム版「スーサイド・スクワッド』の公式トレーラー「No More Heroes」が公開！
+-  “Ay bala, saçımı niyə yolursunuz?!“
+-  Δικαστική Αστυνομία: Τι σημαίνει η απόρριψη με κωδικό 001, 002 ή 003
+-  В Госдуму внесли проект о запрете взыскания кредитов в новых регионах
+-  Kickoff | Pitso reveals job he would consider taking 'if offered'
+-  Игорь Сопов: Большинство голосов псковский губернатор на прошедших выборах получил через ДЭГ
+-  Due gol dopo il 90', il Parma di Pecchia fa festa. Al Palermo non basta un super Brunori
+-  Франция и Нидерландия са 1/4-финалисти на Мондиала по хандбал
+-  Automotive lobby wants 30 km/h speed limits in all Dutch city centers
+-  Proveedores e infraestructura, ‘talón de Aquiles’ de las empresas
+-  Сашко Кадиев се връща на екран, ще го гледаме всяка вечер
+-  Leyendas que han hecho grande al club blanco Real Madrid Baloncesto
+-  Poznati dalmatinski ugostitelji radili ‘na crno‘, a Županija im je htjela dati novu koncesiju!? Sve je ipak odgođeno
+-  Η κίνηση που επιβεβαίωσε την μαγκιά του Γκαγιέγο
+-  Nueve detenidos en Valencia por explotar sexualmente y dar palizas a varias mujeres
+-  Nueve detenidos en Valencia por explotar sexualmente y dar palizas a varias mujeres
+-  Снегопады будут идти на Вологодчине всю неделю
+-  Dürr: Fester Wille, in Bundesregierung zu bleiben
+-  اليافعي: تعطيل عمل القضاء في عدن مؤشر خطير
+-  Google Year in Search 2023 in India: ভারতে গুগলে খোঁজ খোঁজ রব 'চন্দ্রযান-৩' কে নিয়ে, গুগল সার্চে সেরা দশে মণিপুরও
+-  الليرة التركية تسجل انخفاضاً قياسياً مقابل الدولار
+-  HCP: l’économie marocaine en hausse de 4,4% en 2022
+-  Feyenoord warned over Celtic party with ultras by MAYOR but club won't 'tar every fan with the same brush'
+-  Petrolífera indonésia cancela encomenda a Moçambique para gás natural
