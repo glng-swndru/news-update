@@ -1,51 +1,51 @@
 # Latest News
--  Unión Eléctrica no pronostica afectaciones por déficit de capacidad de generación
--  Introducing the second annual Daily Dot Hall of Fame
--  전공의단체 "소청과 기피는 불확실한 미래·수련환경 탓"
--  CM Mohan Yadav Video Viral: तलवारबाजी में माहिर हैं एमपी के नए सीएम मोहन यादव, मुख्यमंत्री का पुराना वीडियो वायरल
--  Drama en un bar de Oviedo: muere un hombre al caerse por las escaleras cuando iba al baño
--  "1시간에 50만원"…'억 소리' 나는 입시 상담 금액에 단속 강화
--  У комплексі на Закарпатті виявили імперські символи Угорщини (фото)
--  Cameroun :: Innocent Djonthé : " Créer Des Écoles De Formations Professionnelles Adaptées Aux Sourds-Muets" :: Cameroon
--  Koffee With Karan Season 8 Episode 8: Aditya Roy Kapur, Arjun Kapoor to join Karan Johar’s Show
--  "미성년자예요 신고하면 영업정지"…술값 16만여원 먹튀 고등학생들
--  Business News | Stock Market Powers Through Challenges, Nifty Gains 5.5 Per Cent
--  Disputa por el Esequibo: “Somos hermanos en ambos lados de la frontera”
--  Путин анонсировал передачу ВМФ трех стратегических ракетоносцев
--  Latest News | Piyush Goyal to Chair Board of Trade Meeting on Dec 17
--  Quetta police arrest PTI activist Khadijah Shah in murder case
--  ‘It’s destiny!’ – Travis Kelce predicted epic lateral pass play two months ago on his podcast with brother Jason
--  U četvrtak sjednica Odbora povodom PISA testiranja
--  FM to examine Oban cancer care cut
--  مقاومون يطلقون النار تجاه مستوطنة شرق جنين
--  6 أمور يجب معرفتها لتجنب الحوادث المميتة لسخان المياه
--  Kiderült, ki tervezte Karikó Katalin ruháját a Nobel-díjátadóra - fotó
--  طهران : يجمعنا مع اسرائيل رفض حل الدولتين
--  পাঁচ দিন ধরে ১৫ বাস আটক, আলোচনা হলেও সমাধান হচ্ছে না
--  Gazans say hunger is growing, fuelling fears of exodus into Egypt
--  AVISO: 14.12., 11:00 Uhr: Pressekonferenz zur Täglichen Bewegungseinheit
--  সালথায় আওয়ামী লীগ-স্বতন্ত্র প্রার্থীর সমর্থকদের সংঘর্ষ, পুলিশসহ আহত ২০
--  EverFitX home gym treadmill, fitness pump, and rowing machine in one compact design
--  "문명은 길따라 발전"...이장우 시장, '대전~옥천선 영동 연장' 나섰다
--  وزير الخارجية الإيراني: القاسم المشترك بين إيران وإسرائيل عدم إيمانهما بحل الدولتين لحل القضية الفلسطينية
--  La campaña 'El Mundo' recala en Hornachuelos para concienciar sobre la importancia del reciclaje de envases
--  Cardi B Confirms Breakup From Offset, Reveals She's 'Been Single for a Minute Now'
--  ‎محافظ الأحساء يستقبل إدارة نادي العيون الرياضي
--  Golden Globes Nominations 2024: Margot Robbie, Selena Gomez & More
--  कांग्रेस ने राज्य सभा में कहा, जम्मू-कश्मीर भारत का हिस्सा, इसका पूरा श्रेय नेहरू को
--  Sports News | We Can Win 200 Medals in 2030 Asian Para Games: Thakur
--  Rosol nafi umum sokong Perdana Menteri esok
--  Víme, kde ušetříte statisíce. Elektromobily zlevňují, do Česka míří i nové modely
--  بعد رجال التعليم..مهنيو الصحة يطالبون بزيادة عامة في الأجر لا تقل عن 3000 درهم
--  अज्ञात वाहन ने सवारियों से भरे टेंपो को मारी टक्कर, दो की मौके पर मौत
--  Gunman on run after killing two in Swiss town: police
--  Google Trends 2023: वर्ल्ड कप के साल में भी IPL सुपरहिट, लोगों ने 2023 में क्या ‘खेल’ किया?
--  Sakupili 20 miliona za državnu kasu
--  В России обвиняют Украину в подготовке провокации
--  Медведев: Запад по сути вступил с Россией в военный конфликт
--  Uttar Pradesh Shocker: UP Electricity Department Workers Trashed in Fatehpur's Lalauli, Disturbing Video Surfaces
--  23 медала за България във втория ден на турнира по спортна гимнастикав Нови Сад
--  Torino arrabbiato con gli arbitri, Bellanova: "Avanti insieme contro tutto e tutti"
--  DPRD Surabaya Apresiasi Pemkot Revitalisasi Kawasan Kota Tua
--  Predsednica je prvo priznanje na področju človekovih pravic podelila Katarini Bervar Sternad
--  Fängelse för hantering av smuggelvalpar
+-  SIU, Interpol NCB sign MoU
+-  שהם סימון מונה לסמנכ"ל תגובה לאירועי סייבר בחברת סיגניה
+-  치어리더 이아영, 러블리 섹시 매력 발산…터질 듯한 볼륨감
+-  [단독]포항, 김기동 감독 후임으로 박태하 기술위원장 선임 유력
+-  Donaties voor Stichting TOF en De Rozelaar
+-  Василена Радева: Делото, което НФК води срещу "36 маймуни", сплашва целия културен сектор
+-  [“죽지마, 벌 받기 전에는” 36명 죽인 전신화상 방화범, 끝내 살려낸 日의사
+-  [ŽT] Gali mus visus nustebinti. Karo pabaiga pagal Trumpą
+-  „Užsiknisau į tai atsakinėti. Mes ne kiborgai“ (Foto)
+-  „Situacija pereina į panikos režimą.“ Rusijoje prasideda netikėta audra (Video)
+-  Araç alıp satacakların dikkatine! İkinci el otomobil pazarı çakıldı
+-  Tai dar geriau nei NATO. Pradedamas „Planas B“: Suomija stoja į DCA
+-  BJP ने Mohan Yadav को Madhya Pradesh की कमान सौंप कर Yadav और OBC समाज को बड़ा संदेश दिया है
+-  Şırnak'ta korkutan deprem: Yerin 4 kilometre derinliğinde meydana geldi
+-  Bingöl'de heyelan: Kiğı yolu trafiğe kapandı
+-  Kerry Stokes to pay Nine's court costs for Ben Roberts-Smith defamation trial
+-  Disa pika interesante te dosja e SPAK për inceneratorin e Tiranës
+-  Inter, Pavard brucia le tappe e punta al rientro contro la Lazio
+-  España pide que la Unión Europea traslade su apoyo a Bernardo Arévalo, presidente electo de Guatemala
+-  Hideo Kojima’nın yeni oyununda Silent Hill’e gönderme var!
+-  EU:n Borrell: Toivon, että Euroopan yhtenäisyys ei rikkoudu – Unkarin pelätään estävän päätöksiä tuesta Ukrainalle
+-  Terzić zvao Buvača: Da li je Baharu odzvonilo?
+-  Hollanda Başbakanı Rutte: Gazze'deki durumdan endişeliyiz
+-  Daniel Ives: Apple la “Top Tech Pick” con Obiettivo 250$
+-  Komisyonda bir ilk yaşandı! Yeni asgari ücret için zam pazarlığı başladı
+-  Şırnak'ta deprem
+-  Bakan Kacır: Türkiye'nin büyümesini sağlayacak adımlar atmaya devam edeceğiz
+-  Batı'nın ikiyüzlü tutumuna Azerbaycan örneğini verdi: Bir ibret vesikasıdır
+-  Los mejores centrocampistas jóvenes de EA Sports FC 24 para el Modo Carrera
+-  Nuna MIXX Next review
+-  Pascuas en Guatemala: Por qué San Miguel Dueñas es la tierra de las pascuas y cuánto produce al año
+-  Radomir Lazović: Ako bude potrebno, branićemo izbornu volju građana na ulici
+-  Inside the luxury £1,750-a-night German castle and golf resort where England Wags could stay for Euro 2024
+-  Expert: Finns inget annat alternativ för Sverige
+-  Benfica abre conversas por Rafik Guitane
+-  Insulza y el plebiscito para el Gobierno: “Le dará fuerza o lo debilitará”
+-  Wie kann ich Manchester United gegen FC Bayern live im TV sehen?
+-  Walmart y sus promociones en juguetes, ¿cuáles son?
+-  החשוד בהצתת אוהל מחאת החטופים בירושלים הודה במעשיו
+-  טיל של ווילסון, להטוט של סון ועוד: שערי המחזור בפרמיירליג
+-  מנהל חדש למרינה הגדולה בישראל: שחר גרינדלינגר נבחר למנהל מרינה בהרצליה
+-  Soccerladuma | Sancho Set For Shock Man Utd-Barca Swap Deal?
+-  Казанлък се превърна в сияещ град, пълен с вълшебства и радост за Коледа
+-  Wachttijd voor sociale huurwoning loopt op in Groningen en Drenthe. Is het hier al zo erg als in de Randstad?
+-  Calciomercato Milan, due opzioni per la difesa a gennaio: le ultime
+-  Mercato : Recalé à l’étranger, il choisit l’OM !
+-  Länsimaissa varauduttava Venäjän voimannäyttöön, varoittaa Jarno Limnéll
+-  Državljana Turčije reševali na nevarnem razpotju, ne boste verjeli, kaj kažejo okoliščine
+-  Netanyahu: İran Kuzey Kıbrıs'ı terör için kullanıyor
+-  Dalekovod dobio još jedan veliki posao u Skandinaviji
