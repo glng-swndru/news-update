@@ -1,11 +1,51 @@
 # Latest News
--  도매의무 상설화 임박…사후규제에 ‘알뜰폰 자생’ 숙제로
--  “포털 ‘다음’ 갑질 행위 멈춰라”…인터넷신문업계, 카카오 항의 방문
--  세종시교육청, 마을학교 운영 성과공유회 개최
--  퓨런티어, 무역의날 2000만불 수출의 탑 수상
--  동해해경청, 대마 재배·흡연 20대 러시아인 구속 송치
--  대구은행, 전세보증금반환보증 보증료 지원 실시
--  Британия Ўзбекистонда «яшил» лойиҳаларга сармоя киритишни режалаштиряпти.
--  Боррел Беларус демократик кучларига 30 млн евро миқдорида ёрдам кўрсатилишини эълон қилди.
--  ทันใจ! ระเบียบกรมราชทัณฑ์คุมขังนอกเรือนจำรับ "ทักษิณ"
--  농협은행, 'NH올원뱅크' 고객 편의성 높여 새단장
+-  Huawei’s Core Network Autonomous Driving Network Ranked No.1 by ABI Research
+-  Jason Holder, Kyle Mayers, Nicholas Pooran decline West Indies central contract offers
+-  Former NZ batter Vincent has life ban for match fixing relaxed by ECB
+-  NST Introduces aircraft ground guidance control system utilizing cutting-edge IT technology
+-  US provides $77 million aid to support Afghan refugees in Pakistan
+-  ULFA-I claims responsibility of two grenade blasts in Assam, threatens further attacks
+-  Huawei představuje mobilní 5nm procesor Kirin 9006C s taktem 3,13 GHz
+-  TCL ukázal 27" 8K monitor i dvojitě zakřivený 31" model
+-  Vodou chlazená RTX 4090 od Aceru v sestavě Orion X moc nepřesvědčila: hlučná a horká
+-  Palandöken Kayak Merkezi'nde sezon açıldı
+-  Seneste nyt om krigen i Ukraine og situationen i Rusland – følg med her
+-  Seneste nyt om krigen i Ukraine og situationen i Rusland – følg med her
+-  Itt a teljes lista, ezek a legjobb alapítványi középiskolák Magyarországon 2024-ben
+-  CEFR: Apa jaminan tak bercanggah dengan akidah Islam?
+-  Israel og Hamas er i krig. Her er seneste nyt
+-  Israel og Hamas er i krig. Her er seneste nyt
+-  Prabowo Subianto Promises to Continue Jokowi's Downstream Ambition
+-  Próba stabilizacji notowań ropy
+-  Watch: Members of new K-Pop boy group Ampers&One cover ‘Chaleya’ song ‘Jawan’
+-  Australia announce U19 Cricket WC squad, captain yet to be named
+-  Novi tjedan počinje s južinom i porastom temperature. Doznajte što nas čeka u ostatku tjedna
+-  Horoskop für heute: Montag, 11. Dezember 2023 – für alle Sternzeichen
+-  Annesini öldürüp babasının yanına giderek cinayeti itiraf etti
+-  81 ilde aranan şahıslara yönelik 'Çember' operasyonu: 4 bin 951 firari yakalandı
+-  XRP Price Analysis: XRP Drops Again, Can This Support Hold?
+-  Hegyi Gyula: Hogyan kerülték el a grúzok az ukránok tragédiáját?
+-  Griechenland: Frau von drei Schäferhunden totgebissen
+-  Cottbuser Trampolin-Synchron-Weltmeister Caio Lauxtermann: "Zu wissen, ich bin in einer Sportart der Beste der Welt, ist unbeschreiblich"
+-  Griechenland: Frau von drei Schäferhunden totgebissen
+-  ¿Qué tan efectivo es el romero para el crecimiento del pelo?
+-  FIH Hockey Women’s Junior World Cup: Netherlands beat Argentina on penalties to win fifth title
+-  سرائے عالمگیر: تیز رفتار ٹرک نے دو کاروں کو کچل ڈالا،ایک جاں بحق
+-  Lima Tahun Memimpin Kota Probolingo, Habib Hadi 100 Persen Penuhi Janji
+-  Dollar to PKR – Today USD to Pakistani Rupee
+-  Pacific Island police ministers, delegates enter high-level security talks with China in Beijing
+-  Rocking new dos
+-  Νέα μέτρα για την αντιμετώπιση της οπαδικής βίας ανακοινώνει σήμερα η κυβέρνηση : Τι συζητήθηκε σε σύσκεψη στο Μαξίμου
+-  Po ropu pobasal denar in pobegnil, še vedno ga iščejo
+-  Israeli Soldiers Wounded In Hezbollah Drone Attack
+-  In 14 Stunden an die Seine: Nachtzug Berlin-Paris startet am Montagabend
+-  Dallas Cowboys beat Philadelphia Eagles to draw level in NFC East
+-  Dallas Cowboys beat Philadelphia Eagles to draw level in NFC East
+-  Délégation israélienne de dirigeants professionnels du Cyber. Ygal Unna, ex- directeur général de la Haute autorité du Cyber d’Israël.
+-  Gyvybės langelyje Kaune rasta dvejų metų mergaitė
+-  U Španjolskoj marševi potpore Palestincima na međunarodni dan ljudskih prava
+-  Yağışların ardından Akkaya'da yapay gölet oluştu
+-  So ist die Verkehrslage in der Region Hannover am Montag, 11.12.2023
+-  Hamas: Filistin halkının kendi kaderini tayin etme hakkına bağlıyız
+-  На Київщині є руйнування через ракетний удар
+-  Realizan en Cuba juicio público a ciudadanos que atentaron contra la tranquilidad ciudadana
