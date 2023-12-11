@@ -1,11 +1,11 @@
 # Latest News
--  US in talks with Nvidia about AI chip sales to China – Raimondo
--  NATO Raises Concerns Over Proposed Menthol Ban With Federal Officials
--  The Roots, Queen Latifah and Common to Perform at Inaugural ‘Roots Picnic’ in Los Angeles
--  رونالدو يسجل هدفه الـ 50 في عام 2023
--  Asteroide ocultará a la estrella gigante Betelgeuse este lunes
--  Slovensko sa v roku 2024 pokúsi o dorovnanie priamych platieb farmárom, tvrdí Richard Takáč
--  "Wiadomości" TVP. Och, jak trudno im pożegnać się z władzą. Podwójnie - ze swoją, no i Kaczyńskiego
--  القائد/ خالد العظمي .. أول الضحايا ... وباء متنفذين الأراضي يضرب حضرموت| كتب عبدالله جاحب
--  Julia Roberts (!) and Sam Esmail on ‘Leave the World Behind.’ Plus: Golden Globes Snubs, Surprises, and WTFs.
--  СМИ: страны ЕС не согласовали запрет на продажу России нефтяных танкеров
+-  Snimljen je opaki ‘prst smrti’: Evo što radi svima koji nalete na ovu čudnu pojavu
+-  جامعة جدة تؤجل الاختبارات غداً.. والجامعة الإسلامية: الدراسة عبر "البلاك بورد"
+-  Big Goals, Big Push: Partnership Puts Beth Oil on Path to Success
+-  Evo kada piti kavu, a kada čaj: Svako piće ima svoje prednosti, ali treba paziti na jedno
+-  Neutješna Pijević nakon bolnog poraza: ‘Ovo je tragedija za hrvatski ženski rukomet’
+-  Llega un nuevo evento al mundo de Battlefield 2042
+-  مقال «وإن عدتم عدنا» للكاتب يعقوب الغنيم جامع مانع ماتع..بقلم: مهدي عبد العليم
+-  توتونجي: إيران ترحّب بأي جهد يؤدي لرأب الصدع في المنطقة ولمّ الشمل وتوحيد الرؤى بين دولها
+-  رئيس التحرير بحث مع سفير پيرو تعزيز التعاون الإعلامي
+-  طهبوب: ما يجري في فلسطين حالياً استمرار لنكبة 1948 ولا يمكن تأويله بأي شكل آخر
