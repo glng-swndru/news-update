@@ -1,11 +1,51 @@
 # Latest News
--  "الأرصاد": طقس اليوم دافئ والرؤية تتحسن تدريجياً..و"العظمى": 29
--  مجلس الأمة ينظر غداً في استقالة نائب رئيس ديوان المحاسبة
--  정권 교체 앞둔 폴란드, 한국산 무기계약 취소할까
--  كيف تتجنب حرقة المعدة؟
--  غرفة تجارة الأردن: إنترنت الأشياء يدعم فرص النمو الاقتصادي
--  الفاصوليا البيضاء تقي من سرطان القولون
--  ارتـفـاع أسـعـار النـفـط عالـميـا
--  تدابير وقائية لمتاعب الشتاء الصحية
--  Progress of ECRL project stands at over 56pc, says Anthony Loke
--  [여수산단 오염물질 배출값 조작 4년여 함흥차사
+-  방탄소년단 RM·뷔 오늘(11일) 입대…배웅 위해 완전체 모였다
+-  엔씨소프트, 박병무 VIG파트너스 대표 영입
+-  'Not a minute to lose': Clock ticks on fossil fuel deal at climate summit
+-  İsmail Kartal'ın analizi zaferi getirdi
+-  Aslan gözünü Parken'e çevirdi
+-  Fenerbahçe muhteşem dörtlüyle zirvede
+-  Beşiktaş'tan Aboubakar kararı!
+-  Altın fiyatlarında son durum
+-  İsrail'den Şam'a hava saldırısı
+-  Abdulkadir Selvi yazdı: Erdoğan-Biden hangi konuları konuşacak?
+-  Galatasaray Devler Arenası'nda tur için sahaya çıkıyor!
+-  Yüzlerce araç sorgulandı, binlerce lira ceza yazıldı!
+-  İsmail Kartal maliyetini çıkarttı
+-  오늘의집, 올해 인기 상품 모아 ‘2023 연말 빅세일’ 실시
+-  오아시스마켓, 2023년 연말 감사전…최대 70% 할인
+-  윤종록 전 차관 “중국이 한국 ICT산업 추월…‘소프트파워’ 키워야”
+-  만나코퍼레이션, 소외계층 이웃 100가구에 김장김치 후원
+-  Salernitana-Bologna 1-2: gli emiliani sognano l'Europa
+-  Kickoff | Enraged agent 'places curse' on African star in Europe
+-  Kickoff | Johnson defends under-fire Chiefs star
+-  No security threat due to withdrawal of army personnel at Mihintale – State Minister
+-  Frederic Amani explique pourquoi la campagne électorale est timide jusque-là
+-  구글, 한국서 AI 스타트업 육성 프로그램 진행
+-  Orban u SAD-u lobira za prekid američke pomoći Ukrajini
+-  Woman and baby found dead in suburban home
+-  إقرأ تفاصيل نجاح "تخصصي جدة" في زراعة أقطاب كهربائية داخل الدماغ لمريض باركنسون
+-  Patrick Mahomes caught on mic ripping into refs in X-rated rant at Josh Allen after ‘worst f***ing call’
+-  Najlakši recept za popularne čupavce: Slastica bez koje ne prolaze blagdani i proslave
+-  Drukte op de weg zorgt voor veel files en flink wat extra reistijd
+-  Uskoro izricanje presude za zločine nad Bošnjacima na području Ilijaša
+-  L’Assemblée nationale de la république de Djibouti est désormais membre du parlement international pour la tolérance et la paix (IPTP)
+-  สรุปผลการแข่งขัน ESL One Kuala Lumpur Group A Day 1 รอบแรก
+-  ‘Screaming’ councillor to be suspended for bullying two staff members
+-  ‘Screaming’ councillor to be suspended for bullying two staff members
+-  Viscosity Cup Market Research Report 2023: CAGR, Industry Needs, Competition Analysis
+-  Triptii Dimri After Animal's Success: 'People Are Now Watching Qala, Bulbbul'
+-  WhatsApp: Dieses Feature wurde heimlich eingeführt – aber nur beim iPhone
+-  Izraelski tenkovi pokušavaju prodrijeti dalje u bici kod Kan Younisa
+-  活動速遞｜海港城設「泡泡飄雪」佈置及「幸會聖誕老人」活動賀聖誕
+-  活動速遞｜圍方「胡桃夾子聖誕盛會」 8米高主題城堡 4大驚喜優惠
+-  North America Tour Operator Software Market Competitive Analysis and Overview 2020 to 2027
+-  Доиграват днес прекратения мач заради починал фен в Испания
+-  Tobii Dynavox-ordförande avböjer omval – anser uppdraget slutfört
+-  LANČANI SUDAR NA MOSTU NA ADI Stvaraju se velike gužve (FOTO)
+-  “벌써 노화 시작됐나” 31살 셀레나 고메즈, “보톡스 맞았다” 솔직 고백[해외이슈]
+-  방탄소년단(BTS) '뷔·RM 입대, 전 멤버 함께한 차량 행렬'
+-  '이효리♥' 이상순 "제주도 카페, 조용히 운영될 줄…SNS 생각을 못 했다" [마데핫리뷰]
+-  이현우, 칼 들고 차은우 위협[오늘도 사랑스럽개]
+-  원희룡 "층간소음 기준 지켜온 건설사라면 비용증가·공기지연 없을 것"
+-  여 혁신위 "혁신안 액션에 시차 있기 마련…판단은 지도부가"
