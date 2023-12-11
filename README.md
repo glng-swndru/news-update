@@ -1,11 +1,11 @@
 # Latest News
--  Шенген „отложи“ таксата за пренос на руски газ
--  남양주시, ‘경기도의료원’ 유치 태스크포스(TF) 본격 가동
--  남양주시, 폐목재 무상처리 업무협약 체결
--  최민희 국민소통위원장, 민주당 원팀정신 강조...'최민희TV' 재개
--  Zugunglück in Italien: Züge kollidieren zwischen Bologna und Rimini - mindestens 17 Verletzte
--  В Уругвае перепутали эмблему футбольного клуба «Динамо»
--  16-летняя россиянка Андреева стала «Новичком года» по версии WTA
--  BJP women`s wing stages protests in Latur against Congress MP over cash seizure
--  UNS: Za tri godine više od 1.000 tužbi zbog povrede autorskih prava
--  Anushka Sharma-Virat Kohli wedding anniversary: A look back at their love story
+-  Başıboş köpeklerin saldırısına uğramıştı: İşte Tunahan'ın ilk sözleri
+-  Diyarbakır'da iki grup arasında taşlı sopalı arazi kavgası: 12 yaralı
+-  '활력있는 중산 체험' 번역 전문가 및 외신 공동주제 방문 행사 시작
+-  Lunit Advances to Stage 2 of Australia's National Breast Cancer Screening Project
+-  اللجنة التنفيذية للكاف تجتمع بمراكش قبل انطلاق حفل توزيع الجوائز (صور)
+-  OPEP dice no oponerse al fin de combustibles fósiles, pero no ve realista ponerle fecha
+-  Jug Gaze znova tarča silovitega izraelskega obstreljevanja
+-  ‘PoK belongs to India, nobody can snatch it’: Key highlights of Amit Shah’s address in Rajya Sabha
+-  Eyyub Yaqubov Yaşar Nurinin ailəsini sevindirdi
+-  ברוסיה אישרו: הכוכב האדום בחנה אפשרות להחליף את ברק בכר
