@@ -1,11 +1,11 @@
 # Latest News
--  Sam Bahadur Box Office Collection Day 10: Vicky Kaushal Movie Surges, Earns $6 Million
--  Aboubakar krizi hortladı. Beşiktaş’ta işleri karıştıran karar
--  Russia: Israel using Hamas attack as justification to collectively punish Gaza
--  How more people are indulging in Southeast Asian bakes, Turkish delights: Report
--  SC upholds abrogation of Article 370: Five key points of apex court`s verdict
--  Andrei Kuzmenko suscite l'intérêt de quelques équipes
--  C'est Kovacevic qui devrait être échangé, plutôt que Matheson
--  SLBAM : Pas toujours facile être rétrogradé, ça prend du temps et une adaptation
--  Juraj Slafkovsky avoue qu'Arber Xhekaj lui a donné quelques conseils pour se battre
--  Méditation sur la glace : Devon Levi a dû se plier à la LNH
+-  Jesse Puljujärvi skriver try-out med Pittsburgh Penguins
+-  ‘제2 명낙대전’ 발발하나…폭풍전야 민주당
+-  머스크, 9·11 조작 ‘음모론자’ X계정 복구…“사람들 의견대로”
+-  ‘사립초 통폐합’ 시동 건다…내년도 입학생 35만 명, ‘급감’ 현실화
+-  경찰 “지드래곤 마약 수사 마무리 단계…이선균은 추가 소환 검토”
+-  조희대 대법원장 취임…“재판 지연 해결할 것”
+-  JPMorgan streicht SAP von 'Analayst Focus List' - 'Overweight'
+-  ঘাড়ের কালচে দাগ
+-  Almaniyadan etiraf: "Amerika onsuz da bunu edəcək” deyəcəyimiz vaxt bitdi
+-  40 Jahre „Drombuschs“, „Monaco Franze“, „Formel Eins“: Deutschlands letztes Jahr ohne Privatfernsehen
