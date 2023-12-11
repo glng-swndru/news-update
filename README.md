@@ -1,51 +1,11 @@
 # Latest News
--  १० वर्षअघिको आर्थिक अभियानबाट: असाञ्जलाई आत्मवृत्तान्त लेख्न १३ लाख डलर
--  भूकम्पीय जोखिमको आर्थिक आयाम: क्षति कम गर्न अपनाउनुपर्ने केही उपाय
--  एनसेल खरीदविक्री प्रकरण छानबिन समितिले काम थाल्यो
--  सुक्खायाम लागेसँगै भारतबाट विद्युत् आयात शुरू
--  अस्ट्रेलियाली र क्यानेडेली डलर अभाव
--  강릉 고대설화 기반 뮤지컬 월화전 14~15일 개최
--  12일 찾아가는 청춘양구 노래자랑 왕중왕전
--  봉안묘인가, 봉안당인가… 불법 시설물 철거 논란
--  수산물 방사능 검사 '전부 적합'...홍보.할인행사 펼친다
--  BJP’s tribal face to be Chhattisgarh CM
--  Rajput leader’s murder: Two of the shooters found, arrested
--  Clarification sought from Sahu on ‘unaccounted cash’
--  Jack the reaper!
--  Fernandes apologises for Man Utd’s embarrassment v Bournemouth
--  Storms tear through Tennessee
--  Mahsa Amini’s family can’t travel for prize
--  Protest in Bangladesh over national election
--  민주당 1호 인재영입 ‘기후위기 할동가’ 박지혜 변호사
--  Khách quay lưng với mẫu xe mà Lexus kỳ công chế tạo, tiếc 'đứt ruột' với điều bất ngờ nhiều năm sau
--  «Вашингтон» на выезде обыграл «Чикаго», у Овечкина результативная передача
--  আওয়ামী লীগের যৌথ সভা আজ
--  Economy: Ohaneze Nd'Igbo pledges partnership with manufacturers in the Southeast geopolitical zone
--  Météo Algérie : temps ensoleillé et températures douces pour ce lundi 11 décembre
--  कम कार्बन उत्सर्जन की दिशा में आगे बढ़ने के लिए वित्त जैसे मामले अब भी चुनौती बने हुए हैं: यादव
--  शादी समारोह में व्यक्ति की हत्या के मामले में फरार तीन आरोपी गिरफ्तार
--  मोबाइल का इस्तेमाल करने से रोके जाने पर नागपुर में किशोरी ने की आत्महत्या
--  영월, 한국공공브랜드 대상 수상
--  Зүүн Азийн шатрын АШТ-ээс М.Амилал, Б.Алтантуяа нар мөнгөн медаль хүртжээ
--  Vì sao chủ tịch HĐQT và tổng giám đốc taxi Vinasun cùng xin từ chức?
--  European Central Bank's McCaul speaking on Greece on Monday
--  แปลปกสลาก ‘วันรัฐธรรมนูญ’ หวยงวดนี้ 16 12 66 มีรางวัลที่ 1 ซ่อนอยู่
--  Десантники РФ выбили ВСУ с позиций к северо-западу от Артёмовска
--  Future of Global Hand Rehabilitation Systems Market During Geopolitical Unrest and Inflation 2023 to 2029
--  임희정, 팬들과 함께 3년 연속 선행... 백혈병 환아 위해 2500만원 기부
--  아미 '뷔·RM 입대 오지 말라고 해서 대신 보냈다' [한혁승의 포톡]
--  "쏘니! 어려운 시기, 우리가 리더에게 바라는 모습이다"…포스테코글루의 극찬, "쏘니는 캡틴이고, 그는 그렇게 했다"
--  故 김기덕 감독 오늘(11일) 3주기, ‘미투 논란’ 속 타국에서 쓸쓸히 눈감아[MD이슈](종합)
--  키움, 외국인타자 로니 도슨과 60만달러에 재계약 "KBO에서 다시 뛰게 돼 기쁘다"[오피셜]
--  ‘맨발의 사나이’ 조승환, 인도네시아서 세계 신기록 경신 도전
--  오타니 놓친 토론토에 쏠리는 눈→이정후·류현진 계약 가능성은?
--  '입대 D-1' 뷔, 삭발 사진 공개…'남자는 머리빨' 공식 깨는 훈훈 외모 [MD동영상]
--  'FA 최대어' 오타니는 결정했다…이제 日 최고 투수의 시간, "양키스와 월요일 만난다"
--  오영주 후보자 “대사관-공공기관 연결해 중소기업 수출 성과내겠다”
--  Apple SHUTS Down iMessage App That Works On Android Phones: Know More
--  Mass Burial Planned for Chingola Miners as Death Toll Rises to Eleven
--  China proposes trading cost cuts for mutual funds, to regulate commissions
--  Resuscitation Devices Market Is Anticipated To Grow Further To Nearly USD 12.0 Billion By 2032 | Koninklijke Philips N.V., Medtronic , Physio-Control
--  IND vs SA: ये स्टार करेगा कमाल तो टीम इंडिया जीतेगी सीरीज! 13 हजार रन वाले दिग्गज का दावा
--  Animal BO Collection: एनिमल ने चटाई पठान और जवान को 10वें दिन धूल, इस मामले में दी धोबी पछाड़
--  Vrishchik Saptahik Rashifal: वृश्चिक राशि वाले बड़ा लेन-देन न करें, इस हफ्ते दुश्मन रच सकते हैं साजिश
+-  크몽, ‘2023 크몽어워즈’ 개최…각 분야 프리랜서 한자리에
+-  청소년母 "이혼한 아버지, 여친 생기자 나 몰래 이사 가버려"('고딩엄빠4')
+-  키움, '흥부자' 도슨과 재계약… 총액 60만달러[오피셜]
+-  "12월이 성수기"…유통업계, '위스키' 행사 열고 이색 메뉴 선봬
+-  삼표산업, 레미콘 제조공정 ‘AI 실용화’ 적용
+-  МО: Су-34 уничтожил солдат ВСУ на Краснолиманском направлении
+-  Where To Get VICE Magazine In Australia
+-  이오플로우 "합병 무산됐지만, 메드트로닉 측 소송 상황 주시"
+-  駐韓美軍F-16戰機黃海墜毀 機師彈射逃生獲救
+-  ฝุ่นPM2.5 กลับแล้ว พบ 71 พื้นที่เริ่่มมีผลต่อสุขภาพ
