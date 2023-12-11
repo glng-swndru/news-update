@@ -1,51 +1,11 @@
 # Latest News
--  Хоккейная команда ОрёлГУ одержала две победы на выезде
--  డాన్‌ అవ్వాలనే..!
--  వైభవంగా పద్మనాభతీర్థుల ఆరాధనోత్సవాలు
--  В Конгрессе обвинили Белый дом в нежелании мира на Украине
--  Elon Musk Extends Job Offer to OpenAI's Chief Scientist Sustskever
--  Govt To Introduce Consensus-based Declaration Document On AI: Ashwini Vaishnaw
--  Son dakika! Hakem Halil Umut Meler'e yumruklu saldırı
--  Atresmedia premia a Josie: presentará las pre-campanadas de 'Feliz Año Neox' junto a Valeria Ros
--  This Vermont getaway is a new luxury hotel to love in 2024, according to Forbes
--  Very 5,99 Flash Back, nuova proroga: 120 Giga, minuti, SMS e un mese di ricarica omaggio
--  North Queensland residents preparing for looming Tropical Cyclone Jasper
--  North Queensland residents preparing for looming Tropical Cyclone Jasper
--  Sydney set to endure more sweltering temperatures over coming days
--  Sydney set to endure more sweltering temperatures over coming days
--  Igor Duljaj posle poraza od niškog Radničkog: Moj stav je da ne komentarišem suđenje
--  VASIĆ O DEŠAVANjIMA U JALBOTINI: Izveštajima nadležnih institucija demantovane laži opozicije (VIDEO)
--  7,9 toneladas de drogas fueron decomisadas en menos de 24 horas
--  Samsung revives $1,000 trade-in deal for the Z Fold 5, bringing it down to $650
--  Ministarstvo zdravlja u Gazi: Od početka sukoba Hamasa i Izraela poginulo 18.205 Palestinaca
--  Patricia Benavides solicita a la JNJ que revoque suspensión en su contra
--  Πολωνία: Εξελέγη πρωθυπουργός ο Ντόναλντ Τουσκ - Ανοίγει ο δρόμος για μια νέα φιλοευρωπαϊκή κυβέρνηση
--  Stardew Valley: cómo conseguir gelatina prismática
--  وزير المجالس النيابية: إحالة قانوني أملاك الدولة ووضع اليد لمجلس النواب
--  "الصحفيين" تدعو لساعة احتجاجية.. وتطالب بوقف العدوان الصهيوني والتصدي لمخطط التهجير
--  رئيس الوزراء العراقي: نرفض أي انتهاك للسيادة وملتزمون بحماية المستشارين والبعثات الدبلوماسية
--  نقيب الصحفيين بالإسكندرية يدلي بصوته في الانتخابات الرئاسية (صورة)
--  إعلام عبري: تحركات جديدة لإبرام صفقة تبادل أسرى بين إسرائيل وحماس
--  بالصور.. إقبال كثيف قبيل غلق لجان انتخابات الرئاسة بالوادي الجديد
--  حدث في 8 ساعات| السيسي يوجه بالانتهاء من المشروعات الجديدة .. والحكومة تُقرر استمرار منع تصدير البصل
--  رئيس حزب أبناء مصر: الإقبال على الانتخابات الرئاسية فاق التوقعات
--  الفنانة سميرة أحمد تشيد بدور "القومي للمرأة" في التوعية بالمشاركة في الإنتخابات الرئاسية
--  علامة تظهر عند صعود "السلم" تنذر بتصلب الشرايين- انتبه
--  أول تعليق من الأهلي على الفوز بجائزة أفضل نادي في أفريقيا 2023
--  حفل جوائز "كاف".. المغرب تفوز بجائزة أفضل منتخب أفريقي 2023
--  Special Counsel asks SCOTUS to rule in Trump case
--  Raków Częstochowa interesował się i rozmawiał z ważną postacią z Jagiellonii Białystok [POTWIERDZONE]
--  Dan uživo (11.12.2023)
--  Special Counsel asks SCOTUS to rule in Trump case
--  CAF Awards : le Maroc, équipe africaine de l'année
--  [BREAKING] 2023 CAF Awards: Super Falcons Win Women’s Team Of The Year
--  Argentine police hunt for man who threw bottle at Milei’s parade, injuring bodyguard
--  Navalny team says jailed Putin critic’s whereabouts unknown
--  Maternidade Alfredo da Costa não está a receber grávidas encaminhadas pelo INEM
--  Рокади по високите етажи на bТV
--  Dačić u Kruševcu: Mi smo pouzdan partner SNS-u
--  Belén viviente, mercadillo y festival de corales en La Flota y Vistalegre para celebrar la Navidad
--  Get a dozen Krispy Kreme doughnuts for $1 on Tuesday
--  FCCPC bags 2023 Government Agency of the Year award
--  Get a dozen Krispy Kreme doughnuts for $1 on Tuesday
--  Naval Chief lauds officers for unyielding dedication to motherland's impregnable defence
+-  'O Come, O Come Emmanuel' and the Second Advent of Jesus Christ
+-  Aligarh News: दि अलीगढ़ बार चुनाव के लिए मतदान 21 दिसंबर को, यूपी बार काउंसिल ने नियुक्त किए पर्यवेक्षक
+-  La NBA dévoile la 2023 NBA In-Season All-Tournament Team !
+-  Нардеп пропонує запровадити щоденну молитву за деокупацію України
+-  Geomáticos sugieren alternativas para mejorar el tránsito en San Francisco de Macorís
+-  La nueva regulación europea sobre IA: una ley a la contra
+-  Пересильд и Янковский стали лауреатами премии "Звезда театрала"
+-  Biofortified Bounty
+-  В США из-за скандала с утечкой секретной информации к ответственности привлекли 15 человек
+-  Zełenski gratuluje Tuskowi. "Razem jesteśmy nie do pokonania"
