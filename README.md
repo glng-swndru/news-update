@@ -1,51 +1,11 @@
 # Latest News
--  I film più cercati su Google nel 2023, da Barbie a C’è ancora domani
--  Emil Iversen ikke tatt ut til prøve-VM på hjemmebane.
--  Ďalšia milionárska daň? Vláda chce z vreciek najúspešnejších vybrať 78 miliónov eur
--  طريقة بسيطة لتخفيض مستوى السكر في الدم من دون أدوية
--  Apple stores to start Vision Pro training soon, but that’s not great news to me
--  Čo bude so sadzbami potom, čo sadne inflačný prach
--  Djokovic acusa a Rafa Nadal de "intimidarle" en el vestuario
--  Conferinţa Naţiunilor Unite pentru Comerţ şi Dezvoltare anticipează o scădere de 5% a comerțului mondial
--  دولة أوروبية مهددة بالدمار.. قطط تتجول بشوارعها بعد نموها في مفاعل نووي
--  شاهد.. أمطار غزيرة شمال شرق جدة
--  عاجل.. حساب المواطن يحذر من تقليص مبلغ الدعم في هذه الحالة
--  Локо Пд си върна настроението с класика над Пирин
--  Eropuit in de kerstvakantie? 'Laatste kans om deze expositie te bewonderen'
--  Masterchef Junior emite este martes su programa en el Parque de las Ciencias de Granada
--  Kreuzfahrt-Riese Aida greift zu drastischer Maßnahme – wer sich nicht daran hält, hat ein Problem
--  NTPC Bongaigaon soars high at Public Relations Society of India (PRSI) National Awards 2023
--  Petugas Panwaslu juga Harus Awasi Logistik Pemilu
--  Суд отменил приговор в отношении осуждённого за госизмену ярославца Намазова
--  Strijd om de Europese Gouden Schoen: Santiago Giménez en Vangelis Pavlidis
--  Decembrie de Poveste pentru publicul Operei Comice pentru Copii
--  إبراهيموفيتش يعود إلى فريق ميلان الايطالي كمستشار
--  Baciu, urmărit penal de DNA. Șeful demisionar al CNAS este acuzat de abuz în serviciu
--  BBC o Vučiću: Preoblikovao Srbiju, protivnici ga optužuju da je...
--  MSMEs: Wema Bank advocates financing models to bridge funding gaps
--  [‘부천의 새 얼굴’… 부천시, 새 통합 도시브랜드 선포
--  [헌재 소장, 사랑의열매 희망2024나눔캠페인에 성금 전달
--  [“교장 따님 결혼합니다” 학부모에 문자 돌린 고교…축의금도 받았다
--  Terkuaknya Misteri Potongan Payudara di Surabaya
--  হামলা করলে মামলা হবেই, আর মামলা হলে গ্রেপ্তার: কাদের
--  Proteus Space Expands Advisory Board With Addition of Former Space Force CTIO Kim Crider
--  Terkuaknya Misteri Potongan Payudara di Surabaya
--  Boris listens to people of Grimsby and ditches football hat (for now)
--  YCP: 11 నియోజకవర్గాల్లో వైసీపీ ఇంఛార్జుల మార్పు
--  Private investorer skal fremtidssikre tysk fodbold
--  El Sporting se lanza a por Villalibre, con Karrikaburu en el radar: así está la búsqueda de delantero
--  La Vinotinto Sub-23 no pudo ante Colombia en el amistoso en Miami
--  Exodus: el juego de ciencia ficción de Matthew McConaughey recibe sus primeras secuencias
--  AFRL Seeks Sources of Biomaterial & Bioprocess Technologies for Air Force Asset Sustainment Effort
--  Business-update: Fagboss scorer stor penthouselejlighed ved Nyhavn – eksperter anbefaler myndigheder at se på sagen
--  Kulturoffensive lud zu „Pferdinand will fliegen“ ein
--  Njemačka tvornica dolazi u Osijek i zapošljava oko 300 ljudi: investicija je vrijedna 6 milijuna eura
--  “메시, 47살까지 은퇴하지 마! 2034년 월드컵까지 뛰자”... FIFA 회장의 간곡한 부탁
--  بيان: إسرائيل تحتجز في سجونها 142 أسيرة من غزة بينهن طفلات رضيعات
--  Семејно насилство во Скопје: Жртвата нападната со тврд предмет
--  Hyundai’s 2024 Kona electric is an affordable EV option with starting prices under $33,000
--  The rise of the garage and garden: An increase in secondary TVs
--  Finnest Invests USD 100 Million in Battery Recycling and Odisha Expansion
--  Pakai Helm Khusus, Puan & Menteri ESDM Blusukan ke Tambang Bawah Tanah Freeport
--  Nacala: Renamo boicota eleição e apenas 28.56% dos eleitores foram as urnas
--  MINEDU lanza plataforma digital para la búsqueda de vacantes en colegios de Lima Metropolitana
+-  [안세영-서승재, 배드민턴 올해의 남녀선수 동반 수상 쾌거
+-  [Riyadh International Philosophy Conference 2023, 올해 활동 마무리
+-  ['활력있는 중산 체험' 번역 전문가 및 외신 공동주제 방문 행사 시작
+-  Nieuwe trainingen CapelleDoet voor het nieuwe jaar
+-  Gezellige Winterfair in Zijderveld ondanks het slechte weer
+-  Son 75 años. Una Declaración Universal solo en papel
+-  Los atrapan con las manos en la masa
+-  Guardians of Holme será lançado no Steam em 14 de dezembro
+-  New England Patriots links 12/11/23 - Pats free from playoff hunt; Kraft values good people, loyalty
+-  Autowrak uit de Lek bevat stoffelijk overschot vermiste inwoner Leimuiden
