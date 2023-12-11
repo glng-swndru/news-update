@@ -1,51 +1,51 @@
 # Latest News
--  SIU, Interpol NCB sign MoU
--  שהם סימון מונה לסמנכ"ל תגובה לאירועי סייבר בחברת סיגניה
--  치어리더 이아영, 러블리 섹시 매력 발산…터질 듯한 볼륨감
--  [단독]포항, 김기동 감독 후임으로 박태하 기술위원장 선임 유력
--  Donaties voor Stichting TOF en De Rozelaar
--  Василена Радева: Делото, което НФК води срещу "36 маймуни", сплашва целия културен сектор
--  [“죽지마, 벌 받기 전에는” 36명 죽인 전신화상 방화범, 끝내 살려낸 日의사
--  [ŽT] Gali mus visus nustebinti. Karo pabaiga pagal Trumpą
--  „Užsiknisau į tai atsakinėti. Mes ne kiborgai“ (Foto)
--  „Situacija pereina į panikos režimą.“ Rusijoje prasideda netikėta audra (Video)
--  Araç alıp satacakların dikkatine! İkinci el otomobil pazarı çakıldı
--  Tai dar geriau nei NATO. Pradedamas „Planas B“: Suomija stoja į DCA
--  BJP ने Mohan Yadav को Madhya Pradesh की कमान सौंप कर Yadav और OBC समाज को बड़ा संदेश दिया है
--  Şırnak'ta korkutan deprem: Yerin 4 kilometre derinliğinde meydana geldi
--  Bingöl'de heyelan: Kiğı yolu trafiğe kapandı
--  Kerry Stokes to pay Nine's court costs for Ben Roberts-Smith defamation trial
--  Disa pika interesante te dosja e SPAK për inceneratorin e Tiranës
--  Inter, Pavard brucia le tappe e punta al rientro contro la Lazio
--  España pide que la Unión Europea traslade su apoyo a Bernardo Arévalo, presidente electo de Guatemala
--  Hideo Kojima’nın yeni oyununda Silent Hill’e gönderme var!
--  EU:n Borrell: Toivon, että Euroopan yhtenäisyys ei rikkoudu – Unkarin pelätään estävän päätöksiä tuesta Ukrainalle
--  Terzić zvao Buvača: Da li je Baharu odzvonilo?
--  Hollanda Başbakanı Rutte: Gazze'deki durumdan endişeliyiz
--  Daniel Ives: Apple la “Top Tech Pick” con Obiettivo 250$
--  Komisyonda bir ilk yaşandı! Yeni asgari ücret için zam pazarlığı başladı
--  Şırnak'ta deprem
--  Bakan Kacır: Türkiye'nin büyümesini sağlayacak adımlar atmaya devam edeceğiz
--  Batı'nın ikiyüzlü tutumuna Azerbaycan örneğini verdi: Bir ibret vesikasıdır
--  Los mejores centrocampistas jóvenes de EA Sports FC 24 para el Modo Carrera
--  Nuna MIXX Next review
--  Pascuas en Guatemala: Por qué San Miguel Dueñas es la tierra de las pascuas y cuánto produce al año
--  Radomir Lazović: Ako bude potrebno, branićemo izbornu volju građana na ulici
--  Inside the luxury £1,750-a-night German castle and golf resort where England Wags could stay for Euro 2024
--  Expert: Finns inget annat alternativ för Sverige
--  Benfica abre conversas por Rafik Guitane
--  Insulza y el plebiscito para el Gobierno: “Le dará fuerza o lo debilitará”
--  Wie kann ich Manchester United gegen FC Bayern live im TV sehen?
--  Walmart y sus promociones en juguetes, ¿cuáles son?
--  החשוד בהצתת אוהל מחאת החטופים בירושלים הודה במעשיו
--  טיל של ווילסון, להטוט של סון ועוד: שערי המחזור בפרמיירליג
--  מנהל חדש למרינה הגדולה בישראל: שחר גרינדלינגר נבחר למנהל מרינה בהרצליה
--  Soccerladuma | Sancho Set For Shock Man Utd-Barca Swap Deal?
--  Казанлък се превърна в сияещ град, пълен с вълшебства и радост за Коледа
--  Wachttijd voor sociale huurwoning loopt op in Groningen en Drenthe. Is het hier al zo erg als in de Randstad?
--  Calciomercato Milan, due opzioni per la difesa a gennaio: le ultime
--  Mercato : Recalé à l’étranger, il choisit l’OM !
--  Länsimaissa varauduttava Venäjän voimannäyttöön, varoittaa Jarno Limnéll
--  Državljana Turčije reševali na nevarnem razpotju, ne boste verjeli, kaj kažejo okoliščine
--  Netanyahu: İran Kuzey Kıbrıs'ı terör için kullanıyor
--  Dalekovod dobio još jedan veliki posao u Skandinaviji
+-  News24 | No spectators allowed at Greek football matches until February after volleyball violence
+-  Esnaf, Gazze için iş yerlerine kilit vurdu
+-  Katar Dışişleri Bakanı: Önceliğimiz savaşı sona erdirmek
+-  Çağatay Ulusoy'un son hali şaşırttı!
+-  Mahşerin Dört Atlısı'nın son kurbanı Beşiktaş
+-  Bourse : bonne performance du portefeuille de BKGR
+-  Россияне с запретом на выезд должны сдать загранпаспорта в МВД
+-  Citylink significantly expands Galway to Clifden service
+-  Dodik prozvao partnere: Otkazan sastanak SNSD-a, HDZ-a i Trojke
+-  Mais de 1,4 mil pacientes com HIV abandonaram tratamento em Mato Grosso, alerta secretaria de Saúde
+-  عودة الفراعنة "6 نجوم".. بشرة خير لفيتوريا قبل بداية أمم أفريقيا
+-  بأمر التاريخ.. اتحاد جدة يقطع 87% من الطريق نحو الأهلي
+-  دون أي نقطة إضافية.. كيف يتأهل الزمالك بـ9 نقاط إلى ربع نهائي الكونفدرالية؟
+-  الهيئة الوطنية للانتخابات: توقف الاقتراع في الانتخابات الرئاسية ساعة واحدة لراحة القضاة والموظفين
+-  هبوط طفيف للبورصة مع نهاية تعاملات اليوم الاثنين
+-  صلاح ينافس حكيمي وأوسيمين.. من يستحق التتويج بجائزة أفضل لاعب إفريقي؟
+-  "مواجهة نجوم عالميين".. الشركة المنظمة تكشف تفاصيل معسكر الزمالك في الإمارات
+-  Calcio a 5, Papale (pres. Città di Melilli): “Stiamo facendo bene. Connessioni con altre squadre per il tesseramento di calciatori”
+-  Amateurfußball: Paukenschlag bei Deutz 05 – Trainer Raoul Dia wirft hin
+-  Ura e tragjedisë mbulohet nga lulet dhe lotët, drama në familjen Hoti, nëna e Altinit: Kam humbur tre fëmijë
+-  Zmajice saznale protivnice u baražu za ulazak u A diviziju UEFA Lige nacija, nisu imale sreće
+-  Kerim Arı’nın 'Pir’in Gölgesinde' fotoğraf sergisi beğeni topluyor
+-  Karapınar'da öğrenciler fidanları toprakla buluşturdu
+-  Windows krijgt mogelijk standaard CLI-editor
+-  4 مستشفيات تابعة لوزارة الصحة تحصل على شهادة "مستشفى صديق الطفل"
+-  374 فرصة تطوعية ترفع معدلات التطوع في أمانة العاصمة المقدسة
+-  برنامج التعاون الصناعي في كاوست يدعم مشروعات البحث والتطوير
+-  "الشؤون البلدية" تعلن شروط إصدار التراخيص الإنشائية والتجارية
+-  "لأمن البيئي": ضبط 3 مخالفين بدخول محمية الملك سلمان الملكية وقيادة مركبة دون لوحات
+-  سمو الأمير تركي بن محمد بن فهد يرأس اجتماع مجلس إدارة جمعية "بناء"
+-  جهود تكاملية وتحولات إيجابية بسوق العمل السعودي تخفض معدلات البطالة
+-  مبادرة لتعزيز مشاركة المقاولين المحليين بمشاريع صندوق الاستثمارات العامة
+-  21 مزادا لبيع وتصفية 165 عقارا
+-  ENDISELT KÜLM: ettevõtjad majanduse edendamisel enam riigile ei looda. „Seda oleks praegu palju nõuda.“
+-  مؤشر سوق الأسهم السعودية يغلق مرتفعا اليوم الإثنين
+-  Sunak in crisis as Tory right-wing rebels’ ‘star chamber’ rejects his Rwanda bill
+-  Kolme lasta löysi kuolleen henkilön maastosta Espoossa
+-  Fnam diz que Governo que será incapaz de atrair médicos para o SNS
+-  Terrifying moment ‘portal to HELL opens’ in matter of seconds as metal plant erupts in inferno & causes roof to implode
+-  KIA는 나성범 부상, 롯데는 이대호 은퇴…그 이후 GG 0명, LG는 3명이나 받았는데[MD삼성동]
+-  Muzičko-scenski spektakl "Glasovi Budućnosti i Novi Talas" 12. decembra
+-  META : UBS herhaalt koopadvies voor het aandeel
+-  PR da Bielorrússia no Quénia para reforçar relações e tornear isolamento internacional
+-  Hay 166 denuncias contra ‘montadeudas’
+-  UBS belässt Meta auf 'Buy' - Ziel 425 Dollar
+-  Abhinav Shukla calls out Vidyut Jammwal’s ‘irresponsible act’ in Himalayan retreat photos!
+-  Feyyaz Uçar'dan kadro dışı bırakılan 5 futbolcu için açıklama geldi
+-  Angriff auf Einsatzkräfte: Anklage fordert lebenslange Haft
+-  Majka priznaje da je zavisna od bebi pudera: Troši bočicu dnevno, ali ga ne maže po telu, potpuna neverica
+-  Hurem: Igramo protiv jedne od najboljih selekcija u Evropi
