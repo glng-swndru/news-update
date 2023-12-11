@@ -1,51 +1,11 @@
 # Latest News
--  News24 | No spectators allowed at Greek football matches until February after volleyball violence
--  Esnaf, Gazze için iş yerlerine kilit vurdu
--  Katar Dışişleri Bakanı: Önceliğimiz savaşı sona erdirmek
--  Çağatay Ulusoy'un son hali şaşırttı!
--  Mahşerin Dört Atlısı'nın son kurbanı Beşiktaş
--  Bourse : bonne performance du portefeuille de BKGR
--  Россияне с запретом на выезд должны сдать загранпаспорта в МВД
--  Citylink significantly expands Galway to Clifden service
--  Dodik prozvao partnere: Otkazan sastanak SNSD-a, HDZ-a i Trojke
--  Mais de 1,4 mil pacientes com HIV abandonaram tratamento em Mato Grosso, alerta secretaria de Saúde
--  عودة الفراعنة "6 نجوم".. بشرة خير لفيتوريا قبل بداية أمم أفريقيا
--  بأمر التاريخ.. اتحاد جدة يقطع 87% من الطريق نحو الأهلي
--  دون أي نقطة إضافية.. كيف يتأهل الزمالك بـ9 نقاط إلى ربع نهائي الكونفدرالية؟
--  الهيئة الوطنية للانتخابات: توقف الاقتراع في الانتخابات الرئاسية ساعة واحدة لراحة القضاة والموظفين
--  هبوط طفيف للبورصة مع نهاية تعاملات اليوم الاثنين
--  صلاح ينافس حكيمي وأوسيمين.. من يستحق التتويج بجائزة أفضل لاعب إفريقي؟
--  "مواجهة نجوم عالميين".. الشركة المنظمة تكشف تفاصيل معسكر الزمالك في الإمارات
--  Calcio a 5, Papale (pres. Città di Melilli): “Stiamo facendo bene. Connessioni con altre squadre per il tesseramento di calciatori”
--  Amateurfußball: Paukenschlag bei Deutz 05 – Trainer Raoul Dia wirft hin
--  Ura e tragjedisë mbulohet nga lulet dhe lotët, drama në familjen Hoti, nëna e Altinit: Kam humbur tre fëmijë
--  Zmajice saznale protivnice u baražu za ulazak u A diviziju UEFA Lige nacija, nisu imale sreće
--  Kerim Arı’nın 'Pir’in Gölgesinde' fotoğraf sergisi beğeni topluyor
--  Karapınar'da öğrenciler fidanları toprakla buluşturdu
--  Windows krijgt mogelijk standaard CLI-editor
--  4 مستشفيات تابعة لوزارة الصحة تحصل على شهادة "مستشفى صديق الطفل"
--  374 فرصة تطوعية ترفع معدلات التطوع في أمانة العاصمة المقدسة
--  برنامج التعاون الصناعي في كاوست يدعم مشروعات البحث والتطوير
--  "الشؤون البلدية" تعلن شروط إصدار التراخيص الإنشائية والتجارية
--  "لأمن البيئي": ضبط 3 مخالفين بدخول محمية الملك سلمان الملكية وقيادة مركبة دون لوحات
--  سمو الأمير تركي بن محمد بن فهد يرأس اجتماع مجلس إدارة جمعية "بناء"
--  جهود تكاملية وتحولات إيجابية بسوق العمل السعودي تخفض معدلات البطالة
--  مبادرة لتعزيز مشاركة المقاولين المحليين بمشاريع صندوق الاستثمارات العامة
--  21 مزادا لبيع وتصفية 165 عقارا
--  ENDISELT KÜLM: ettevõtjad majanduse edendamisel enam riigile ei looda. „Seda oleks praegu palju nõuda.“
--  مؤشر سوق الأسهم السعودية يغلق مرتفعا اليوم الإثنين
--  Sunak in crisis as Tory right-wing rebels’ ‘star chamber’ rejects his Rwanda bill
--  Kolme lasta löysi kuolleen henkilön maastosta Espoossa
--  Fnam diz que Governo que será incapaz de atrair médicos para o SNS
--  Terrifying moment ‘portal to HELL opens’ in matter of seconds as metal plant erupts in inferno & causes roof to implode
--  KIA는 나성범 부상, 롯데는 이대호 은퇴…그 이후 GG 0명, LG는 3명이나 받았는데[MD삼성동]
--  Muzičko-scenski spektakl "Glasovi Budućnosti i Novi Talas" 12. decembra
--  META : UBS herhaalt koopadvies voor het aandeel
--  PR da Bielorrússia no Quénia para reforçar relações e tornear isolamento internacional
--  Hay 166 denuncias contra ‘montadeudas’
--  UBS belässt Meta auf 'Buy' - Ziel 425 Dollar
--  Abhinav Shukla calls out Vidyut Jammwal’s ‘irresponsible act’ in Himalayan retreat photos!
--  Feyyaz Uçar'dan kadro dışı bırakılan 5 futbolcu için açıklama geldi
--  Angriff auf Einsatzkräfte: Anklage fordert lebenslange Haft
--  Majka priznaje da je zavisna od bebi pudera: Troši bočicu dnevno, ali ga ne maže po telu, potpuna neverica
--  Hurem: Igramo protiv jedne od najboljih selekcija u Evropi
+-  U17-Weltmeister: Dieses Geschenk bekam Top-Talent Yalcinkaya vom HSV
+-  أنهى حياة يمني بشكل بشع.. تنفيذ حُكم الشرع بأحد الجناة في مكة
+-  4 علامات على اختراق هاتفك.. لا تتجاهلها
+-  سوق الأسهم يرتفع 84 نقطة ويُغلق بعد تداولات بـ 7.5 مليار ريال
+-  Alman rock grubu Scorpions Türkiye'ye geliyor
+-  İYİ Parti'den asgari ücret önerisi
+-  장제원 "이제 잠시 멈추려 한다"...혹시 내년 총선 불출마?
+-  МО: экс-глава ЦРУ Джина Хаспел влияла на расследование причин пандемии COVID-19
+-  MP New CM Mohan Yadav: कौन हैं मोहन यादव? जो होंगे मध्य प्रदेश के नए सीएम, BJP के सरप्राइज ने सबको चौंकाया
+-  Cyclone Jasper to Bring ‘Destructive Winds, Heavy Persistent Rain’ to Queensland
