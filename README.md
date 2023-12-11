@@ -1,11 +1,51 @@
 # Latest News
--  [속보] '친윤 핵심' 장제원, 오늘 국회서 불출마 공식 선언
--  SK그룹, 이웃사랑 성금 120억 기부
--  대전시의회 이상래 의장 “경제 양극화와 고용위기 극복 노력에 감사”
--  시흥시-시흥경찰서-외국인공동체 대표단, 범죄예방 간담회 개최
--  대전교통공사, 2023년 성과공유제 우수사례 선정
--  시흥시, 지역주도형 청년 일자리 사업 ‘성과공유회’ 개최
--  주식회사 수, ESG 우수기업 선정
--  대전시 학교밖청소년지원센터 사업보고대회 개최
--  대전시, 겨울철 호흡기감염병 주의 당부
--  대전시, '2023년 바이오인의 밤' 개최
+-  بدءا من الشهر المقبل.. آلية جديدة لدفع الإيجارات
+-  הלך הבינג': תקלה עולמית בנטפליקס
+-  [강준만의 易地思之] 36년 묵은 ‘공영방송 전쟁’
+-  7 Games From 2023 That Brought Me, Ruby, Back To Life
+-  Team Trump Slams Jack Smith for Appealing to the Supreme Court Trump Helped Appoint
+-  Microsoft e AFL-CIO fecham acordo sobre IA e neutralidade do trabalho
+-  Siguiri : un mort et cinq blessés dans un éboulement, à Mignada
+-  Matan a militar tras emboscada en Múgica, Michoacán
+-  Usan el videoanálisis de grabaciones para combatir al crímen
+-  Bayona, sobre 'La sociedad de la nieve': "El reto era encontrar lo que faltaba por contar"
+-  Austalia's energy minister gives odd Indigenous Acknowledgement speech in Dubai
+-  Ranking de las películas que acaparan la conversación en X para ver esta noche
+-  ¿Qué es la salmonella, bacteria que supuestamente se encontró en melones mexicanos?
+-  Kansas man wanted in Kiowa County double homicide killed one and hid both bodies, police say
+-  Американку Форбс избрали президентом движения Красного Креста
+-  Marina Silva defende avanço da COP sobre fim dos combustíveis fósseis
+-  Prefeitura embarga obra de prolongamento da ferrovia
+-  '친윤 핵심' 장제원, 오늘 오전 총선 불출마 선언 기자회견
+-  Cecily Strong Reportedly Backed Out Of Returning To ‘SNL’ For A Sketch Because It Left Her ‘Uncomfortable’
+-  #google Fiber’s 20-gig service costs $250 per month
+-  مخاوف من انهيار اجتماعي بسبب الجوع بغزة والنزوح لمصر
+-  البنك التجاري يؤسس إطار عمل التمويل المستدام
+-  3 سباقات لنادي السباق والفروسية
+-  الأكاديمية الأولمبية تحتفي بخريجي دبلوم الإدارة الرياضية
+-  انطلاق بطولة قطر الدولية للإسكواش
+-  Doctor Who's 60th Anniversary Is Finally Joining Magic: The Gathering
+-  رادولوفيتش يقود منتخب «الأرز»
+-  Après Mbappé, une autre star prête à snober le Real Madrid ?
+-  Jim Montgomery maps out his message to Bruins’ Matt Poitras amid rookie struggles
+-  Conselho de Ética da Alep recebe pedido de cassação do mandato de Traiano; veja repercussão
+-  '아스널 우승-토트넘 6위-맨유 충격의 9위' 대반전!.....슈퍼컴퓨터의 EPL 최종 순위 예상
+-  경륜경정총괄본부, 온라인 건전문화 콘텐츠 공모전 시상식 개최
+-  방탄소년단(BTS) 뷔 '군인 신분 첫 포착, 판초우의 행진'
+-  '싱글 인 서울', N차 관람 유도하는 엔딩 크레딧→감성 OST
+-  국민은행 “생활밀착형 플랫폼 ‘국민지갑’ 가입자 500만 돌파”
+-  드디어 후방 빌드업 핵심 복귀 임박! 맨유 천군만마 얻는다, 英 매체 "2~3주 안에 경기 출전 가능"
+-  방탄소년단 정국, 입대 당일 새벽 1시 44분에 라이브 켜서 한 말
+-  정영주 "난소암으로 자궁 적출 수술…강제 폐경→성대 파열까지" [4인용식탁](MD리뷰)
+-  "한 경기라도 더 지면 팀 해체"…'최강야구', 벼랑 끝에 몰렸다 [종합]
+-  지아를 이토록 웃게 한 이 남자는 누구지?...달달한 눈빛과 감미로운 키스까지 [유진형의 현장 1mm]
+-  우리카드, 우리원카드 앱 개편으로 ‘우리페이’ 결제 편의성 제고
+-  "디테일 달라, 숨은 고수 찾아다녔다더라" 효과 100% 본 강정호스쿨, 그런데 내년엔 열흘 줄었다
+-  Más que un club de fútbol: Universitario inauguró complejo polideportivo en el estadio Lolo Fernández
+-  Bayern protege a Alphonso Davies: Real Madrid tendrá una dura barrera si quiere ficharlo
+-  ¡El último Messi vs. Ronaldo! Inter Miami confirma amistoso contra Al Nassr
+-  Novo aeroporto? "Este é o grande teste à credibilidade do PSD"
+-  Negociaciones de paz en Colombia: exguerrillera será la nueva intermediaria entre el Gobierno y el ELN
+-  Annual Hanukkah event shunned by Calgary mayor attended by community in massive numbers
+-  카카오벤처스 투자사 10곳 CES 2024 참여
+-  Amnesty slams RCMP for Wet’suwet’en pipeline blockade enforcement in B.C.
