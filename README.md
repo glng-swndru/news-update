@@ -1,11 +1,11 @@
 # Latest News
--  인천시 동구, ‘2023년 음주폐해예방사업 우수사례 평가’ 전국 3위 차지
--  인천시교육청 계양도서관, ‘2024년 겨울독서교실’ 운영
--  인천시교육청 교육과학정보원, 주말 가족 프로그램 ‘과학관에서 실험으로 놀다 가기’ 운영
--  인천시 부평구, 성탄절·연말연시 케이크 판매업소 대상 지도점검 나서
--  인천시 연수구, 인천 최대 크기 대형 LED 전광판 설치
--  신재경 전 대통령비서실 행정관, 국민의힘 인천시당 입당 ‘남동구을’ 출사표
--  인천시 강화군, 럼피스킨 방역대 해제 검사 추진
--  광주시의회, 내년도 예산안 1조 5136억 여 원 수정 가결
--  광주시, 제10대 왕실 도자기 명장에 노영재 씨 선정
--  이규환 분당서울대병원 교수, 제3회 김우중 의료인상 ‘장애인 건강 증진’ 공로 수상
+-  [윤덕우 칼럼] 아! 박근혜 전 대통령
+-  Volvo Retail Experience – თიბისი ჯგუფის მხარდაჭერით, „ვოლვო ქარ საქართველოს“ კონცეპტუალური შოურუმი გაიხსნა
+-  신진서, 구쯔하오 꺾고 LG배 4강 진출…커제와 결승행 경쟁
+-  Zvezda, pa Partizan - "večiti" opet na TV B92
+-  Tokat'ta minibüsün kamyona çarpmasıyla ölen 5 kişinin cenazeleri Sivas'a gönderildi
+-  İstanbul barajlarında doluluk oranı yüzde 40'a ulaştı
+-  Trình cấp thẩm quyền Quảng Ngãi giao khu vực biển xây ống xả thải dự án NM Bột – Giấy VNT19
+-  '금쪽이 그 자체' 루카쿠, 피오렌티나전 전반 초반 득점 → 후반 막판 다이렉트 퇴장...로마는 간신히 1-1 무승부
+-  Katliam destekçisi Biden'a anket şoku: Halkın yüzde 80'i Gazze için aynı düşünüyor
+-  Aslan Danimarka takımlarına karşı 6. sınavında
