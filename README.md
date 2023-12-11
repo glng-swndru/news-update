@@ -1,51 +1,51 @@
 # Latest News
--  La médica internista Patricia Fanlo, consejera de Universidades de Navarra
--  La Universidad de Cádiz busca 21 docentes sanitarios en apenas cinco días
--  Nætursvefn Mikaels og félaga truflaður með flugeldum
--  25. Geleneksel Pelitköy Deve Güreşleri nefes kesti
--  Trump’s power in Washington grows as allies pressure colleagues to admit the primary over
--  The Airtel-Google saga on Taara explained
--  Почётным гражданам Волгограда предоставят компенсацию на оплату счетов за ЖКУ
--  Fallout rises from McCarthy handshake deal with White House
--  Ukraine-La Russie lance de nouvelles attaques dans l'est-armée
--  FPÖ-Gruber zu Festnahme nach Terrorplänen: Gefahr des radikalisierenden Islams ist allgegenwärtig
--  НОК Белоруссии считает дискриминационным участие в Играх без национальных символов
--  Эксперт заявил о невозможности завершить операцию в секторе Газа до Нового года
--  Собянин: акция помощи детям «Добрая ёлка» стартовала в Москве
--  Taraflar masaya oturdu: Asgari ücret görüşmeleri başladı
--  İşgalci İsrail ordusu Gazze'deki çatışmalarda 3 askerinin daha öldürüldüğü duyurdu
--  Asgari ücret görüşmelerinde ilk toplantı başladı
--  Türbeönü Buluşmaları’ Selçuklu Çadırına yoğun ilgi
--  কক্সবাজারে অপহৃত শিশু উদ্ধার, যুবক গ্রেপ্তার
--  Bunu yapanların hemen tapuya gitmesi gerekiyor! Ev sahipleri ve kiracılar sakın gözden kaçırmayın!
--  Déclaration hebdomadaire des transactions sur CCI 2023 12 04 - 2023 12 08
--  Les Vêtements de Sport Gildan annonce des changements à sa direction : Vince Tyra est nommé président et chef de la direction; Glenn Chamandy quitte ses fonctions
--  Itália, França e Alemanha defendem sanções contra Hamas
--  İngiltere Ukrayna'ya gemi gönderiyor!
--  Que papel dos Bancos de Desenvolvimento na transição para as Finanças Sustentáveis
--  WTF: 55GB extra de Internet este Natal! Saiba como ter…
--  It’s Beginning To Look A Lot Like Some Last-Minute Christmas Gifts
--  Skola utrymd efter bombhot
--  [Table ronde] Traite des êtres humains : des survivantes témoignent
--  На Кубани отремонтировали 6,5 тысячи многоквартирных домов за десять лет
--  Zekrom en Pokémon Go: mejores ataques y ¿vale la pena?
--  Heitere und besinnliche Lesung im Bezirksmuseum 15
--  À Dudelange, un Noël au Moyen-Âge
--  How to check Matokeo ya kidato cha nne 2023 haya hapa
--  Бойко Борисов смени 80% от ръководството на ГЕРБ в София
--  Liberadas en Valencia 14 víctimas de explotación sexual
--  В Удмуртии 364 тысячи жителей прошли диспансеризацию и медосмотры с начала года
--  نصية: هناك تيار لا يريد الذهاب إلى انتخابات رئاسية في ليبيا
--  Trump doubles down on 'dictator' remarks at New York Republican gala
--  Datasenterindustrien bortforklarer igjen
--  Terkini Bisnis: Lowongan Kerja Lulusan SMA di Super Air Jet, Cara Mendaftar Jadi Petugas KPPS Pemilu
--  ¡Patos!, la película animada cuestiona la sobreprotección ¿Y tú, qué tipo de papá eres… o serás?
--  焚き火台型ディフューザー。手のひらサイズでコンロにもなる
--  "Đi ngược" với Lý Tử Thất, nữ YouTuber làm video với phong cách "mạnh tay" vẫn hút view ùn ùn
--  Oxxo es la gallina de los huevos de oro: tiendas dan a Femsa la mayor parte de sus ingresos
--  Suomalaista koulumallia myydään Aasiaan, kilpailuvalttina oppilaiden hyvinvointi
--  Ümit Özdağ'dan HAMAS açıklaması
--  Google 2023'ün özetini çıkardı: İşte 2023 yılında Türkiye'de en çok merak edilenler
--  Neues Urteil: Arbeitnehmer könnten auch in der Freizeit verpflichtet sein, eine SMS vom Chef zu lesen
--  29 Ideen für den Bad Wildunger Bürgerhaushalt 2024
--  NEODOLjIVA POSLASTICA: Kesten pire, osvežava, zasladi, a postan je na vodi
+-  Drunk History Season 2 Streaming: Watch & Stream Online via Hulu
+-  5 dicas para recuperar corpo e mente após um fim de semana cansativo
+-  Strateg Morgan Stanley oczekuje krótkoterminowego spadku zysków spółek
+-  Włochy: państwo nigdy nie zbuduje nowych elektrowni jądrowych
+-  Snelle achterstand te veel voor Heerjansdam
+-  "България Еър" подарява 21 двупосочни билета за 21 млади пътешественици
+-  Частно събитие е предизвикало голямото задръстване на Морска гара вчера
+-  Як звільнитися з військової служби за сімейними обставинами: роз’яснення Міноборони
+-  “Тезроқ қарор қабул қилишимиз керак” – Саида Мирзиёева алифбо ислоҳини ортга сурмаслик ҳақида гапирди.
+-  Blerando: Nuk kam puthur kurrë një shqiptare
+-  Princess Cruises Creates Art-Inspired Dining Experience ‘Love by Britto’
+-  ALKARAZ OVO NIKAKO NIJE SMEO DA URADI Španac razbesneo Đokovića, sad se gorko kaje
+-  Migration: Australien will Einwanderungszahlen halbieren
+-  [해설] 창사 이후 첫 공동대표 체제 택한 엔씨…체질 개선 위한 승부수
+-  Vorentscheid: «The Voice»-Kandidat Joel beim Luxemburger ESC-Finale dabei
+-  75 Prozent der Typ-2-Diabetes-Fälle durch ungesunden Lebensstil
+-  Road work for the week of Dec. 11
+-  Stvorila se moćna gomilica londonskih jazz glazbenika, a ovaj genijalni bubnjar jedan je od njih. Bubnjati je počeo s 4 godine
+-  경찰, 박현종 전 bhc 회장 강제수사…횡령·배임 의혹
+-  Pse trenat i bien borive?
+-  Where the original cast of Jonathan Creek are now – from Hollywood blockbusters to Game of Thrones
+-  Lína og Gummi vildu ekki að fólk vissi að þau væru að hittast – „Við sátum meira að segja í sitthvoru lagi í flugvélinni“
+-  Soccerladuma | End Of The Road For South American At Sundowns?
+-  HSV-Heimpleite mit Folgen: Jetzt geht es für Walter auch um seinen Job
+-  Akauntan ditemui maut tanpa seurat benang di Cheras
+-  BREAKING: 27 Rivers Assembly members defect to APC
+-  Sadis, Balita 3 Tahun Diduga Dibanting Kekasih Tantenya Hingga Patah Tulang
+-  Arma e lidhur me vrasjen e dyfishtë është e në ekspertizë, ndarja e më shumë informatave nuk është e mirë për hetimin, thotë Spasovski
+-  Frosinone-Torino, il punto sull’arbitro: Massimi grazia Oyono
+-  ARMISA KUČ: Voljela bih da izbjegnemo Sjevernu Irsku, nije me iznenadio Edvinov uspjeh
+-  Rocchi ferma Massimi dopo gli errori in Frosinone-Torino
+-  （獨家）鍾沛君婚紗照曝光！ 陳布朗公布寶寶性別 被女友1狀況嚇壞
+-  كاسك يا وطن
+-  Campaña dominicana de solidaridad con Cuba condena bloqueo de EU
+-  Венгерские дальнобойщики пускают на границе с Украиной по две машины в час
+-  Wajah Baru Alun-alun Lembang
+-  Приведен бегалец од затвор баран со потерница
+-  Último regalo de Hacienda: te devuelve 4.000 euros si estás en esta lista
+-  EC promotes 19 SIs to ASPs ahead of Jan 7 polls
+-  Këshill ministror në Shkup për korridoret evropiane dhe politikat transportuese
+-  Mercadona abre nuevos centros informáticos en Sevilla, Vigo, Santander y Oporto
+-  Австралија драстично ќе го намали бројот на имигранти што ќе ги прима
+-  Kłopoty, kłopoty Lecha Poznań. Złe wieści
+-  Save on the Google Pixel 8 and 8 Pro with Telia’s Christmas Campaign
+-  Rząd Tuska dokona zmian w TVP jeszcze przed Bożym Narodzeniem?
+-  Kłopoty, kłopoty Lecha Poznań. Złe wieści
+-  Detalji strave kod Komletinaca: Vozač ispao i poklopio ga auto. Putnik odletio na cestu i stradao
+-  Θεσσαλονίκη: Από 18 έως 20 ετών οι χούλιγκαν που επιτέθηκαν και λήστεψαν 22χρονο φίλαθλο άλλης ομάδας
+-  Системы голосования ЛНР и ДНР готовы к проведению президентских выборов
+-  고준위법 표류에…매년 1500억 추가 비용
