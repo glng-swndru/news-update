@@ -1,11 +1,11 @@
 # Latest News
--  미친 경기 나왔다! 양 팀 팬들, 서로에게 폭죽 발사→ 전반전만 무려 78분 진행
--  15 დეკემბრამდე გადაიდო რაჭის ტყეების 3 აქტივისტზე სასამართლოს გადაწყვეტილება
--  РФ отозвала разрешение открыть генконсульство Румынии в Ростове-на-Дону
--  „Nema slobodnog termina, zakasnili ste, imamo mađioničara i mali prostor“: Zašto u Nišu ProGlas nije uspeo da nađe prostor za tribinu?
--  مايكروسوفت تطرح ميزة جديدة لمستخدمي برنامج الـ Word
--  CAF Awards 2023 : Walid Regragui élu meilleur entraîneur de l’année devant Aliou Cissé
--  Eski Yemen savunma bakanının oğluna ev hapsi
--  Man charged over Borehamwood Tesco 'acid attack'
--  అర్ధసత్యాలు..అంకెలు..రాజకీయాలు!
--  Hutch introduces 9-App social media plan with unmatched pricing
+-  US in talks with Nvidia about AI chip sales to China – Raimondo
+-  NATO Raises Concerns Over Proposed Menthol Ban With Federal Officials
+-  The Roots, Queen Latifah and Common to Perform at Inaugural ‘Roots Picnic’ in Los Angeles
+-  رونالدو يسجل هدفه الـ 50 في عام 2023
+-  Asteroide ocultará a la estrella gigante Betelgeuse este lunes
+-  Slovensko sa v roku 2024 pokúsi o dorovnanie priamych platieb farmárom, tvrdí Richard Takáč
+-  "Wiadomości" TVP. Och, jak trudno im pożegnać się z władzą. Podwójnie - ze swoją, no i Kaczyńskiego
+-  القائد/ خالد العظمي .. أول الضحايا ... وباء متنفذين الأراضي يضرب حضرموت| كتب عبدالله جاحب
+-  Julia Roberts (!) and Sam Esmail on ‘Leave the World Behind.’ Plus: Golden Globes Snubs, Surprises, and WTFs.
+-  СМИ: страны ЕС не согласовали запрет на продажу России нефтяных танкеров
