@@ -1,51 +1,51 @@
 # Latest News
+-  صواريخ من لبنان تستهدف مستوطنة المطلة
+-  Infotografável
+-  Why Kim Jong-un, Vladimir Putin and Xi Jinping are all pleading for more babies
+-  Stawka zwrotu akcyzy w paliwie rolniczym w 2024 r. - 1,46 zł za litr
+-  Sejm wybrał Donalda Tuska na premiera
+-  Aukcja obligacji 3-letnich USA „poszła źle”
+-  Klienci rzucają firmy bez ESG
+-  O domingo em que Bolsonaro morreu
+-  Contrasting trajectories for key players in Asia-Pacific in 2023
+-  Haryana Weather: रेवाड़ी में 6.5 डिग्री पर न्यूनतम पारा, पिछले साल का टूटा रिकॉर्ड, जानिए आने वालों का अपडेट
+-  Samo četiri sata! Jeziva situacija sa stranim plaćenicima u Ukrajini izazvala je šok u SAD
+-  Vikings offensive coordinator Wes Phillips' status with team uncertain after arrest
+-  Mediengruppe Pressedruck verstärkt sich
+-  Franelero asesinó a señor tras discutir por estacionamiento en CDMX
+-  İtalya Başbakanı Meloni, Ukrayna konusunda geri adım atmalarının hata olacağını söyledi
+-  Galatasarays træner afviser manglende respekt: Kan lide FCK
+-  &quot;RODBINA NE MOŽE DA MI OPROSTI NI NAKON 5 GOINA&quot; Mladenci jednim postupkom razbesneli familiju: &quot;To je sumanuto&quot;
+-  VOJNA POMOĆ UKRAJINI BLOKIRANA! Hitno se oglasio Borelj
+-  Crean un organoide cerebral capaz de reconocer el habla humana
+-  Zur innerparteilichen Diskussion: FDP stimmt über Ampel-Ausstieg ab
+-  Prins Harry skal betale sagsudgifter i strid mod britisk avis
+-  Vålerenga-kapteinen bryter tausheten: – Kastet opp 15 ganger
+-  AMLO lanza ‘Gran Guía’ del Tren Maya: ¿Qué información tiene para los viajeros?
+-  הפועל תל אביב תפגוש את וולבס: "ההכנה שלנו רחוקה מאידיאלית"
+-  Olycka på E16 påverkar trafiken
+-  Olycka på E16 påverkar trafiken
+-  Olycka på E16 påverkar trafiken
+-  Aleksej Navaljni: Lider ruske opozicije „udaljen iz zatvora“
+-  AK Parti'li Aydın: ABD, BM'yi kendi menfaatlerine göre kurmuş
+-  قبل شهر من مشاركته في كأس آسيا.. منتخب لبنان يعلن عن مدربه الجديد
+-  Gazze'de can kaybı 18 bin 205'e yükseldi
+-  Muere un joven español en la guerra de Ucrania
+-  Selena Gomez Reveals 6-Month Relationship with Benny Blanco
+-  UK leader faces a Parliament in revolt over Rwanda plan
+-  أبوظبي تعيد هيكلة الليث
+-  Zavirite u LUKSUZNU KUĆU Sonje i Nikole Lazetića na Avali - od dekoracije zastaje dah: Ona sama okitila jelku od 3 metra pa pokazala finalni rezultat
+-  MME contesta acusações da Folha sobre importação de energia venezuelana e aponta interesses econômicos do jornal
+-  Fabio Capello skeptiskt till Zlatan: ”Vad kan han göra?”
+-  After The Masked Singer's Ginuwine Was Compared To Brian McKnight, He Told Us His Reaction To The 'Crazy Guesses'
+-  Pakistan, Azerbaijan agree to enhance economic cooperation
 -  Record 78,320 waiting for residency decision as Dutch immigration backlog soars
 -  Man convicted of fatally shooting DJ at Rotterdam metro station
--  Oto drugie imię Donalda Tuska. Jego znaczenie jest naprawdę wyjątkowe
--  Nine Chinese cars scored five stars in Euro NCAP in 2023
--  وزارت داخلہ میں بے نظیر بھٹو کی تصویر کہاں آویزں کر دی گئی؟
--  İsrail'in Doğu Kudüs'te yeni yasa dışı yerleşime onay vermesine AB'den kınama
--  Immigration : la motion de rejet, un camouflet pour Gérald Darmanin
--  В «Оренбурге» рассказали, что Деограсия останется главным тренером команды
--  Kemijärvellä kuvataan kevättalvella 2025 ensi-iltansa saavaa jouluelokuvaa
--  OPEK uspeo? COP28 ne pominje postepeno ukidanje fosilnih goriva
--  Senate frowns at non-completion of road projects by contractors
--  The latest Starfield update is a small one but it fixes an annoying issue with "space rocks"
--  Lost Records: Bloom & Rage címmel jön a Life is Strange fejlesztőinek új kalandja
--  Ancelotti vuelve a ascender a Kepa
--  Dode vissen en vagina in solo-show van Rammstein-frontman vallen in de smaak
--  Jättestjärna försvinner tillfälligt
--  Immigration : tous perdants
--  Threads countdown teases app's potential EU launch
--  High-Risk Pediatric Patients With Antiphospholipid Syndrome Present Risk of Severe Health Issues
--  Interpol detiene a 257 presuntos traficantes de migrantes
--  Tirada Wariyayaasha lagu dilay Gaza tan iyo 7-dii Oktobar
--  Schwarz hagelt der Eisregen: "Panzerballett" zerlegt Weihnachtsklassiker in der Kofferfabrik
--  Automotive Flooring Market worth $1.49 billion by 2030, growing at a CAGR of 5.15% - Exclusive Report by 360iResearch
--  Fietsende meisjes aangerand: ‘Er flitsten allerlei scenario’s door mijn hoofd’
--  Endangered species list grows by 2,000. Climate change is part of the problem
--  आज की ताजा खबर LIVE: राजस्थान में आज बीजेपी विधायक दल की बैठक, सीएम के नाम का हो सकता है ऐलान
--  İŞKUR KURA SONUÇLARI 2023: Sağlık Bakanlığı 419 sürekli işçi alımı kura çekimi ne zaman? Temizlik görevlisi...
--  Empresa japonesa paga R$ 84,5 mil por saca de café do Brasil
--  Пловдивчанка: Пушеща кола направи зверско задръстване
--  Globos de Oro nominan a Taylor Swift tras éxito en cines
--  Justifica Granillo presupuesto de Hacienda ante diputados
--  Pune Traffic Police : ट्रॅफिक पोलिसांच्या चिरीमिरीचा पर्दाफाश,महाराष्ट्राला हादरवणारं स्टिंग ऑपरेशन
--  PÄEVAHOROSKOOP: teisipäev, 12. detsember
--  Hungría: Ucrania sigue sin informar sobre cómo gastó los 80.000 millones de euros proporcionados por la UE
--  Главы МИД Ирана и России обсудили ситуацию в секторе Газа
--  طبی آلات، ادویات کی غیرقانونی خریداری، سابق صوبائی وزیر کو نیب نے طلب کر لیا
--  Von Aloe vera bis Pfennigbaum – wie oft Sie Sukkulenten im Winter gießen sollten
--  Stoppa Sveriges välståndsfall
--  ACTIVE OUTDOORS: Loch Ness run heads for the heart of darkness
--  Mercato : L’OM s’enflamme pour une décision radicale !
--  Parlamentnú stráž ku konfliktu poslancov doteraz nevolali. Hádkam medzi politikmi má dať stopku etický kódex
--  Kotkalainen pelifirma pääsee kurkistamaan Hollywoodiin Netflix-miljoonadiilin ansiosta
--  Nobelpreis: Prinzessin Victoria zieht alle Blicke auf sich!
--  Beslutet taget: Läktartaket på Stora Valla byggs
--  Beslutet taget: Läktartaket på Stora Valla byggs
--  Wiadomo, do kogo zapuka PIP i co skontroluje w 2024 r.
--  Marchés « 100 % solidaires » : le Département de la Gironde et France Bleu repartent en tournée
--  Israel: USA „besorgt“ über Berichte zu Einsatz von weißem Phosphor
--  Prince Harry ordered to pay Daily Mail publisher legal fees for failed court challenge
--  Bigg Boss 17: Abhishek shares his discomfort with Isha & Samarth`s closeness
+-  Empoignade avec Patterson : Le verdict de la Fédération anglaise est tombé pour Nicolas Jackson
+-  Rómskym deťom sa na Slovensku odopiera rovný prístup k vzdelaniu, upozorňuje Amnesty International Slovensko
+-  Imanol: «Si especulamos, perdemos seguro»
+-  Šibenčani svoj greentavi advent smatraju najboljim u Dalmaciji. Napravili smo đir, ekipa gušta: ‘Sve je lipo, leđero...‘
+-  Anadolu Efes-Fenerbahçe Beko maçının ardından
+-  Batman’da silahlı saldırıda yaralanan çocuğun tedavisi sürüyor
+-  Sanar a través de las gemas: Efectos de las piedras preciosas en la salud y la mente
+-  Spezia, il nome nuovo per l'attacco arriva dalla Grecia: piace Sporar del Panathinaikos
