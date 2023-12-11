@@ -1,11 +1,51 @@
 # Latest News
--  India Drugs Regulator Orders Quality Checks On Cough Syrup Ingredient
--  İşte utanç anları! Halil Umut Meler'e rezil saldırı
--  Soykırım ortağı ABD'den İsrail'e "rahatsız edici" tepkisi
--  Faruk Koca'dan saldırıyla ilgili açıklama! "Beynim attı, gözüm karardı!"
--  Almanya'da İsrail destekçisi hükümete sert tepki! Pasaportunu yırttı
--  Türkiye Hakem Derneğinden maçlara çıkmama çağrısı
--  Galatasaray, hakem Meler'e yapılan saldırı nedeniyle Kulüpler Birliği'ni acil toplantıya davet etti
--  Fenerbahçe'den, hakem Halil Umut Meler'e yapılan saldırıya tepki
--  Ankaragücü'nden hakem Halil Umut Meler'e yapılan saldırıya ilişkin açıklama
--  Başhekim, Halil Umut Meler'in son durumunu açıkladı!
+-  Dan libertad provisional a coacusado de Collado
+-  Alternará Mariana campaña y puesto en Gobierno de NL
+-  Comunicará Milei medidas de austeridad económica
+-  Alertan por plataformas educativas débiles de precandidatas
+-  [소아암 어린이들과 롯데월드, 희망의 ‘드림스테이지’ 갈채
+-  [이마트24, 임직원 헌혈 5000회 돌파
+-  [“평균 연봉 1억 ‘킹산직’ 또 오신다” 현대차, 400명 채용문 다시 열었다
+-  [안철수 “내년 총선 55~60석 될까봐 잠이 안 온다” 김기현 직격
+-  VUČIĆ: Putin znao da je dobar potez smanjivanje plata i penzija, ali da je to Srbija morala to da uradi
+-  أحكام بالسجن لمسؤوليْنِ من مركز غسيل الكلى ترهونة لهذه الأسباب
+-  البرد وأمراض القلب.. ما العلاقة؟
+-  The Mandalorian Season 4 is rumored to be a movie
+-  МВФ заявил об отслеживании ситуации с возможным изъятием активов России
+-  VELIKO UPOZORENjE PREDSEDNIKA VUČIĆA: Pakleni plan Đilasove opozocije da Prištinu puste u UN
+-  مديرية الأمن العام تحذر من تشكل الضباب في ساعات المساء والصباح الباكر
+-  Los Tesla llamarán al 911 automáticamente en caso de accidente: las actualizaciones navideñas de la automotriz llegan la próxima semana
+-  Esta Smart TV 4K Xiaomi de 43 pulgadas tiene cupón que la deja en menos de 5,000 pesos en Walmart México e incluye meses sin intereses
+-  House Hustle Gone Wrong: Real Estate Agent’s $16K Fraud Gets Him Arrested
+-  Hakem Halil Umut Meler'e saldırı sonrası TFF olağanüstü toplandı
+-  Prerja e gabuar e thonjve të këmbëve mund të iu shkaktojë rrezik të madh
+-  TikTok laughs at morbid Spider-Man & Gwen Stacy Christmas decoration: “Too soon!”
+-  Lyon. Est-ce la fin du centre-ville, boudé par les familles et qui se vide de ses habitants ?
+-  Social. A nos lecteurs
+-  Météo. Crues ou pluie-inondation : dix départements en vigilance orange
+-  Société. Le gouvernement maintient la Ciivise et nomme l'ex-rugbyman Sébastien Boueilh à sa tête
+-  Ain. En vidéo : chaos sur l'A404 après le contresens mortel
+-  Loire. Pédopornographie : un Panissiérois de 55 ans arrêté
+-  Royaume-Uni. Kate, William et leurs enfants dévoilent leur photo de Noël officielle
+-  Lyon. L'« after » Fête des Lumières : ces lieux où la lumière va rester allumée
+-  Saint-Étienne. Casino : appel à la population pour une manifestation géante dimanche 17 décembre
+-  Ochanomizu Kyoryo Bridge Shortlisted to Become Tangible Cultural Property; Total of 18 Tokyo Structures Recommended by Govt Panel
+-  بعد “هجوم ماسك”.. إكس تسابق الزمن لجذب المعلنين الصغار
+-  Football. OL : Textor et Aulas trouvent un accord pour régler leurs différends financiers
+-  Ain. Deux morts sur l'A404 après un carambolage
+-  Rhône. Ces cinq communes où l'état de catastrophe naturelle vient d'être reconnu
+-  Niemcy wzywają do wspierania Ukrainy. Olaf Scholz mówi o "sygnale"
+-  IMF’s Gopinath warns fragmentation of global economy could cut GDP by 7%
+-  'Trans woman' Nicholas Cepeda trains and showers with teenage girls; community centre calls cops on us instead
+-  Alfredo Cornejo recién asume y tres intendentes peronistas presionan por los fondos millonarios de Portezuelo
+-  Cuatro equipos buscan un milagro en la Champions League
+-  A Rare 55-Year-Old Japanese Whisky From a Ghost Distillery Is Coming to the U.S.
+-  Developer Beedie tapped to build North America’s largest Tesla centre in Vancouver
+-  Zoom Drain Opens First Franchise Location in Delaware
+-  Ibrahimovic Milan, Marianella: «Lo svedese è un’icona come Maldini, è una notizia rassicurante»
+-  Letter: Let's get back to basics in replacing Burnaby's C.G. Brown Pool
+-  Magill's Resignation Is Good Start: U Penn Jewish Students Say Changes Still Needed
+-  Consumo de água e energia em SC deve subir cerca de 10% no verão mais quente da história
+-  Rishi Sunak’s Covid inquiry appearance was a reminder why he was once Britain’s most popular politician
+-  "MILOŠEVIĆ NE MOŽE DA BUDE KRIV ZA BOMBARDOVANjE" Vučić: Rambuje bi svako odbio, niko na svetu ne bi to mogao da prihvati
+-  SCULLY ROYALTY LTD. PUBLISHES RESULTS FOR THE SIX MONTHS ENDED JUNE 30, 2023
