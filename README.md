@@ -1,51 +1,51 @@
 # Latest News
--  Princess Charlotte gushes over 'sweet' children's coat and tiny baby gro featuring red dragons...
--  Attention à ces escrocs qui utilisent des QR Codes pour arnaquer leurs victimes
--  Décarbonation, IA: Macron veut "accélérer" les investissements dans l'innovation
--  Lycées professionnels, cantines, transports... Grève: à quoi s'attendre ce mardi 12 décembre à Nice?
--  Les taxis manifestent contre le covoiturage sanitaire, le gouvernement les invite à discuter en janvier
--  Motion de rejet du projet de loi immigration: voici ce qu'ont voté les députés varois et azuréens
--  On connaît les adversaires de l'OGC Nice et de l'AS Monaco en 32es de finale de Coupe de France
--  Des fusillades liées au narcotrafic à Nîmes au coeur d'un procès
--  Rejet de la loi sur l'immigration: "Les LR n'ont qu'à donner les clés du pays à Marine Le Pen", dénonce Renaud Muselier
--  Rejet de la loi sur l'immigration: "Darmanin a joué les gros bras, il l'a payé aujourd'hui", selon Éric Ciotti le patron des Républicains
--  Avec les records de chaleur de ce lundi, la neige est-elle déjà en train de fondre dans les stations de ski azuréennes?
--  Ouverture du procès de l'assassinat présumé d'un humanitaire français au Guatemala
--  Gérald Darmanin, une grande ambition enlisée au Palais-Bourbon
--  Après Loeb et Ogier, l'opération Rallye Jeunes cherche un autre incroyable talent au Castellet
--  이하이, 성시경과 컬래버 신곡 '골목길' 오늘(12일) 발매…2년 만 컴백
--  '40만 관중' FC서울 겹경사, 마케팅PR팀 윤민수 프로-싱어송라이터 이루리 결혼
--  Rejet de la loi immigration : à l'Assemblée nationale, les oppositions unies sur leur désaccord
--  Amazon Prime members can now get two Odeon cinema tickets for £10
--  Shoppers rush to buy Charlotte Tilbury Magic Cream alternative for under £10 in flash sale
--  Petrol and diesel prices at supermarkets including Tesco, Asda, Sainsbury's and Morrisons
--  'My kids get £20 gifts from Santa and I charge guests for Christmas dinner - I love being a Scrooge'
--  I gifted this anti-wrinkle cream to friends in their 40s and they've never looked back
--  Delivery van drivers say a compliment or a 'thank you' can make their day, study finds
--  John Lewis issues last order dates for Christmas and there's just days to go
--  Best tried and tested party dresses including River Island and PrettyLittleThing
--  Best family board games for 2023 tried and tested
--  We found the best electric heaters on the market in Duux, Swan and Dyson test
--  We rounded up some of the best wines to serve for Christmas dinner
--  Snap up a skiing holiday for less than £300 this winter
--  The £2.65 travel-size perfume that smells like expensive designer brand
--  I got my hands on the popular Mango Christmas jumper and it goes with everything
--  "부동산 잘 모른다"던 유재석의 116억 현금 FLEX…어디에 쓸까? 관심 집중 [MD이슈]
--  No era funcionario público, era un estafador. La Policía lo capturó
--  Ankaragücü Başkanı Faruk Koca, hastanede 24 saat müşahede altında tutulacak
--  Trabzonspor Kulübü Asbaşkanı Zeyyat Kafkas, hakem Halil Umut Meler'i hastanede ziyaret etti
--  TFF Başkanı açıkladı! Ligler süresiz ertelendi
--  反政権ナワリヌイ氏を移送
--  الاتحاد الأوروبي يجيز دواء يعالج سرطانا شائعا لدى النساء
--  [“담배나 사지” 핀잔에 무차별 폭행…징역 20년
--  [“뱀고기가 왜 피자에 나와” 음식 자부심 伊경악, ‘이건 모욕’ 기겁했다
--  [‘분신 사망’ 택시기사 협박한 회사 대표 구속
--  [“독보적 모두시그니처 라인업 확대” 모두투어 내년 경영계획 선포
--  [CJ 찾는 양병내 통상차관보 “수출 장애요인 해결 최선”
--  [중소·중견기업의 내년 지역별 수출 전략은?…글로벌 시장 진출 모색
--  [수교 60주년 교황청 “한반도 평화·화해 위해 노력”
--  [경찰, 박현종 전 bhc 대표 강제수사…공금유용 의혹
--  [NH농협은행, 취약계층 위해 서울시에 4억3300만원 기부
--  [22대 총선, 예비후보자 등록 시작…이어지는 ‘출마 선언’
--  [롯데건설, 신반포12차 수주 총력전…글로벌 건축사와 협업
--  [美 F-35 등 전투기 반도체칩 공장…반도체법 보조금 첫 지원
+-  Neto diz que Gabigol 'vai saber o que é ser ídolo no Corinthians', e atacante agradece carinho: 'Sempre tem palavras legais sobre mim'
+-  South Africa Gunmen Release Abducted Malawian Pastor
+-  توقعات متفائلة للاقتصاد القطري
+-  «التعويذة» تحتفي بالثقافة والتقاليد القطرية
+-  Asisat Oshoala Clinches Record 6th CAF POTY Award as Chiamaka Nnadozie Wins Goalie of the Year
+-  Muy honrosa la visita de Claudia Sheinbaum a Los Mochis para reunirse con pescadores: Gerardo Vargas
+-  Drivers could be fined £2,500 just for standing next to their car at Christmas
+-  [네덜란드 국빈방문]尹, 암스테르담 도착..F-35 호위비행
+-  دوري أبطال أوروبا.. مواعيد مباريات اليوم والقنوات الناقلة
+-  الاتحاد وأوكلاند في مونديال الأندية.. مواعيد مباريات اليوم الثلاثاء والقنوات الناقلة
+-  الموعد والقناة الناقلة لمباراة اتحاد جدة وأوكلاند سيتي في مونديال الأندية
+-  AEW Rampage Rating Ticks Up, Viewership Slightly Down
+-  Actualité : Cinq choses à savoir sur le futur Porsche Macan électrique
+-  Полянский объяснил, что ждёт выпрошенное Зеленским у США оружие
+-  Meta lanzó Imagine para generar imágenes con IA
+-  Govt Confirms Zahara Has Died | BREAKING
+-  Χρηματιστήριο: Σταθεροποιητικό κλείσιμο -Στα 71,733 εκατ. ευρώ ο τζίρος
+-  Wall Street: ανοδικό κλείσιμο με το βλέμμα στον πληθωρισμό
+-  Police appeal for information about stabbing at street racer meet in Waikato
+-  Following road laws should be easy – but your driving IQ is off the charts if you can spot hidden stop sign in 5 secs
+-  زيلينسكي: تأخير المساعدات إلى كييف يحقق «أحلام» بوتين
+-  Comenzó la barrida en Atlético Nacional: confirmaron la salida de cuatro jugadores
+-  This Samsung 32-inch 4K monitor is discounted from $700 to $400
+-  Mónica García no habla de transfugismo en Podemos aunque dice que "se han definido ellos solos"
+-  YA Author Loses Book Deal After Blaming Star Wars Fans for Bizarre Review-Bombing Scheme
+-  Coroners ID two teens that died in Jefferson County crash. An unborn baby also died.
+-  NASA's MAVEN observes the disappearing solar wind
+-  Using gravitational waves to observe thermal effects in binary neutron star mergers
+-  Farmers and ranchers in the Southwestern US face challenges due to human-induced atmospheric warming
+-  Prajavani : ప్రజాదర్బార్‌.. ఇకమీదట ప్రజావాణి
+-  Jota Pe Hernández enfiló baterías contra Gustavo Petro y pidió que se amplíe investigación por financiación de su campaña
+-  ‘Vanderpump Rules’ Is Already Eyeing Its Next Scandoval
+-  Actualité : Bon plan – La manette de jeu Sony DualSense Noire "5 étoiles" à 49,90 €
+-  Actualité : Bon plan – La cafetière Bosch Tassimo Suny TAS3203 "5 étoiles" à 35,00 € (-24%)
+-  Actualité : Bon plan – La manette de jeu Microsoft Xbox Elite Series 2 "5 étoiles" à 149,95 € (-11%)
+-  Дороти Вигинс: Нов почеток после 61 година
+-  Actualité : Bon plan – Le rasoir électrique Philips MG7720/15 Multigroom Bundle Oneblade MG9710/90 "5 étoiles" à 69,99 €
+-  Actualité : Bon plan – Le robot-pâtissier KitchenAid Artisan 5KSM175PS Jaune "5 étoiles" à 489,99 € (-26%)
+-  Actualité : Bon plan – La console de jeu portable Nintendo Switch Lite Gris "5 étoiles" à 196,25 € (-15%)
+-  Actualité : Bon plan – La batterie externe Anker 737 Batterie Externe (PowerCore 24K) "5 étoiles" à 99,99 € (-20%)
+-  Actualité : Bon plan – Les écouteurs & intras filaires 1More Triple Driver "4 étoiles" à 45,11 € (-29%)
+-  Horoskop am 12.12.23: Ihr Tageshoroskop für den 12. Dezember
+-  Уметничко откритие на денот
+-  Pixelスマホでペットの写真がきれいに撮れるようになった
+-  '드라큘라' 김준수, “실수없이 해오려한 12년, 이제는 국내 넘어 일본도 욕심”(인터뷰③)
+-  David Hyde Pierce just didn’t feel like doing more Frasier, alright?
+-  Taking rugby league to the States? It’s already there, baby
+-  Le PSG prend rendez-vous pour le transfert de l’été !
+-  ¿Semana del patrimonio invisible?
+-  '드라큘라' 김준수, “드라큘라 10년, 이제 빨간머리는 은퇴했으면”(인터뷰①)
