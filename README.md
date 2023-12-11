@@ -1,11 +1,51 @@
 # Latest News
--  Leaders meet at UN’s end-of-year dinner at Ledra Palace
--  Скопје нема да биде тажно, ќе блесне на 15 декември – најавува Арсовска
--  Mitchell Robinson (Knicks) va être opéré à la cheville gauche et sera ré-évalué dans 8 à 10 semaines
--  Civilians crushed under rubble as residential buildings, hospitals hit
--  Дональда Туска обрали прем'єр-міністром Польщі
--  DNEVNI HOROSKOP ZA UTORAK, 12. DECEMBAR Ova dva znaka bolje da ostanu kod kuće, čeka ih gomila problema
--  ¿Siente presión para trabajar después de terminar su jornada? A hacerlo, puede ser menos productivo, no más
--  خیبر پختونخوا کابینہ کا اجلاس، متعدد فیصلے، اگلے ایک سال میں پانچ لاکھ تک نوجوانوں کو روزگار کے لئے بیرون ملک بھیجا جائے گا۔
--  'Em hipótese nenhuma' Maduro vai usar território brasileiro para invadir Guiana, avisa José Múcio
--  Conheça as trends mais pesquisadas no Google em 2023
+-  Record 78,320 waiting for residency decision as Dutch immigration backlog soars
+-  Man convicted of fatally shooting DJ at Rotterdam metro station
+-  Oto drugie imię Donalda Tuska. Jego znaczenie jest naprawdę wyjątkowe
+-  Nine Chinese cars scored five stars in Euro NCAP in 2023
+-  وزارت داخلہ میں بے نظیر بھٹو کی تصویر کہاں آویزں کر دی گئی؟
+-  İsrail'in Doğu Kudüs'te yeni yasa dışı yerleşime onay vermesine AB'den kınama
+-  Immigration : la motion de rejet, un camouflet pour Gérald Darmanin
+-  В «Оренбурге» рассказали, что Деограсия останется главным тренером команды
+-  Kemijärvellä kuvataan kevättalvella 2025 ensi-iltansa saavaa jouluelokuvaa
+-  OPEK uspeo? COP28 ne pominje postepeno ukidanje fosilnih goriva
+-  Senate frowns at non-completion of road projects by contractors
+-  The latest Starfield update is a small one but it fixes an annoying issue with "space rocks"
+-  Lost Records: Bloom & Rage címmel jön a Life is Strange fejlesztőinek új kalandja
+-  Ancelotti vuelve a ascender a Kepa
+-  Dode vissen en vagina in solo-show van Rammstein-frontman vallen in de smaak
+-  Jättestjärna försvinner tillfälligt
+-  Immigration : tous perdants
+-  Threads countdown teases app's potential EU launch
+-  High-Risk Pediatric Patients With Antiphospholipid Syndrome Present Risk of Severe Health Issues
+-  Interpol detiene a 257 presuntos traficantes de migrantes
+-  Tirada Wariyayaasha lagu dilay Gaza tan iyo 7-dii Oktobar
+-  Schwarz hagelt der Eisregen: "Panzerballett" zerlegt Weihnachtsklassiker in der Kofferfabrik
+-  Automotive Flooring Market worth $1.49 billion by 2030, growing at a CAGR of 5.15% - Exclusive Report by 360iResearch
+-  Fietsende meisjes aangerand: ‘Er flitsten allerlei scenario’s door mijn hoofd’
+-  Endangered species list grows by 2,000. Climate change is part of the problem
+-  आज की ताजा खबर LIVE: राजस्थान में आज बीजेपी विधायक दल की बैठक, सीएम के नाम का हो सकता है ऐलान
+-  İŞKUR KURA SONUÇLARI 2023: Sağlık Bakanlığı 419 sürekli işçi alımı kura çekimi ne zaman? Temizlik görevlisi...
+-  Empresa japonesa paga R$ 84,5 mil por saca de café do Brasil
+-  Пловдивчанка: Пушеща кола направи зверско задръстване
+-  Globos de Oro nominan a Taylor Swift tras éxito en cines
+-  Justifica Granillo presupuesto de Hacienda ante diputados
+-  Pune Traffic Police : ट्रॅफिक पोलिसांच्या चिरीमिरीचा पर्दाफाश,महाराष्ट्राला हादरवणारं स्टिंग ऑपरेशन
+-  PÄEVAHOROSKOOP: teisipäev, 12. detsember
+-  Hungría: Ucrania sigue sin informar sobre cómo gastó los 80.000 millones de euros proporcionados por la UE
+-  Главы МИД Ирана и России обсудили ситуацию в секторе Газа
+-  طبی آلات، ادویات کی غیرقانونی خریداری، سابق صوبائی وزیر کو نیب نے طلب کر لیا
+-  Von Aloe vera bis Pfennigbaum – wie oft Sie Sukkulenten im Winter gießen sollten
+-  Stoppa Sveriges välståndsfall
+-  ACTIVE OUTDOORS: Loch Ness run heads for the heart of darkness
+-  Mercato : L’OM s’enflamme pour une décision radicale !
+-  Parlamentnú stráž ku konfliktu poslancov doteraz nevolali. Hádkam medzi politikmi má dať stopku etický kódex
+-  Kotkalainen pelifirma pääsee kurkistamaan Hollywoodiin Netflix-miljoonadiilin ansiosta
+-  Nobelpreis: Prinzessin Victoria zieht alle Blicke auf sich!
+-  Beslutet taget: Läktartaket på Stora Valla byggs
+-  Beslutet taget: Läktartaket på Stora Valla byggs
+-  Wiadomo, do kogo zapuka PIP i co skontroluje w 2024 r.
+-  Marchés « 100 % solidaires » : le Département de la Gironde et France Bleu repartent en tournée
+-  Israel: USA „besorgt“ über Berichte zu Einsatz von weißem Phosphor
+-  Prince Harry ordered to pay Daily Mail publisher legal fees for failed court challenge
+-  Bigg Boss 17: Abhishek shares his discomfort with Isha & Samarth`s closeness
