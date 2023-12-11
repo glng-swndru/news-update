@@ -1,51 +1,51 @@
 # Latest News
--  เอเอฟซีสั่งแบน 3 แข้ง "บุรีรัมย์" จากเหตุวุ่นวายหลังเกมกับ "เจ้อเจียง"
--  สัปดาห์ที่ 2 ลงทะเบียน "หนี้นอกระบบ" กว่า 8.27 หมื่นคน มูลหนี้รวม 4.36 พันล้าน
--  Попето със специални благодарности след края на футболната година
--  Presupuesto y recorte de gastos, la causa del conflicto en el TEPJF: Rodríguez Mondragón
--  فريق طبي مصري يجري 10 عمليات لتشوهات قلب أطفال في زليتن
--  하나금융, DJSI 최상위 등급 ‘월드지수’ 2년 연속 편입
--  채권전문가들, 이번주 FOMC 매파 동결…가팔랐던 금리 조정 요인
--  올해 부산항 컨테이너 물동량 2275만TEU '사상 최대' 전망…세계 7위 수준
--  Australians facing critical shortage of dozens of medicines, Therapeutic Goods Administration warns
--  وفاتان داخل مراكز الاقتراع بالانتخابات الرئاسية في مصر
--  غوتيريش: مصداقية مجلس الأمن تضررت
--  49ers' Deommodore Lenoir, Seahawks' DK Metcalf ejected after late scuffle
--  월드'글래스' 리스 제임스, 전반 27분 만에 교체 아웃… "햄스트링에 뭔가 느꼈다"
--  압타바이오 “코로나19 치료제 개발 미국 임상2상 자진 중단”
--  동성제약, 도봉구에 장학금 및 성품 기부
--  [신경과] 삶에서 수면이 중요한 이유
--  Taylor Swift looks downcast as she watches boyfriend Travis Kelce's Chiefs fall behind at the half to the Bills - at the end of a momentous week where she was named TIME's Person of the Year
--  NBM starts renovating Unima, Luanar Basketball courts
--  Football. L'Olympique de Valence perd... 13-0 en Coupe de France féminine !
--  Football . Ligue 1 : comment Alexandre Lacazette a complétement relancé l'OL dans la course au ...
--  Isère - Savoie - Haute-Savoie. Vigilance orange : jusqu'à 24 heures de pluie non-stop... Voici ce qui ...
--  Haute-Savoie. « Vivre avec 600 € est quasiment impossible » : elle est passée d'un emploi à ...
--  Annecy. Un rugbyman de 25 ans victime d'un arrêt cardiaque
--  Drôme. Une mère de famille égorgée devant ses enfants : son ex-conjoint devant les assises
--  Haute-Savoie. Accident mortel à Brenthonne : après une détention provisoire, la conductrice sous ...
--  Drôme. Après l'incendie de leur logement, ce couple de Romanais n'a « nulle part où dormir »
--  Lyon. Éjectée du centre de formation de l'OL : la victoire judiciaire amère de Lina
--  Semifinales Apertura 2023 AL MOMENTO: Pumas busca remontar ante Tigres en el Volcán
--  Smaller parties demand too much share
--  В Москве произошел пожар в Российской государственной библиотеке
--  Gophers land transfer commitments from four players, including Indiana running back
--  Inside Tegan Kynaston's lavish birthday celebrations: Kyle Sandilands splashes the cash to recreate famous club in St. Tropez at a private home in Sydney for his wife as she turns 38
--  “12.12: The Day” Cast Thanks Audiences After Film Surpasses 7 Million Moviegoers In Less Than 20 Days
--  Heavy rain to continue across parts of UK after weekend washout
--  Zardari urges UN to play its role in protecting HRs
--  Banh mi and a new book: What an ER doctor on $86,000 spends in a week
--  Banh mi and a new book: What an ER doctor on $86,000 spends in a week
--  Vợ nội trợ Dubai tiết lộ 6 điều làm chồng triệu phú "phát điên": "Nếu anh làm tổn thương em, em có quyền tiêu tiền của anh tùy thích"
--  BG "Локо" (Новосибирск) с нова победа в Русия
--  Supreme Court May Soon Consider EPA’s Veto of Huge Alaska Mine
--  Humanoid robots are doing some lifting in Amazon's warehouses. But is the human form the ideal shape for the task?
--  [속보] 창원 봉암동서 차량 전복사고...40분째 정체
--  Australian government continues to advertise on X after Elon Musk’s anti-Semitic post
--  [인사] 국민권익위원회
--  Jovem ferida em despiste de carro que capotou em Ponte de Sor
--  Canucks: Why Sam Lafferty has been able to punch his top-six ticket
--  Chemist Warehouse in mega $9BILLION merger: Here's what it means for Aussie customers
--  وجود وشركاء دوليين يدشنون انعقاد القمة النسوية السادسة في عدن
--  عاجل.. رواتب تصل لـ 9 آلاف ريال .. وظائف شاغرة في غرفة المدينة المنورة
--  Autoridades aseguran más de 1.7 millones de dosis de cristal en Altar
+-  物理演算退職シム『Quitting Simulator』発表。退職届を撒き散らし、拳やハンマーで職場と上司を破壊してすっきり退職
+-  Американский истребитель F-16 потерпел крушение в Жёлтом море
+-  “자동차 맡기고 쇼핑”...벤츠·BMW·지프 정비 맛집 떠오른 이곳
+-  Children of imprisoned Iranian activist Narges Mohammadi accept the Nobel Peace Prize on her behalf
+-  Argentine President Milei warns economic shock unavoidable in maiden speech
+-  Israeli tanks reach center of Khan Younis in new storm of southern Gaza
+-  안산시의회 박태순 의원 대표 발의 ‘선감학원 희생자 지원 조례안’ 상임위 통과
+-  한국마사회 안산지사 공모 통해 기부금 앞장
+-  ‘김종필 장남’ 김진 운정장학회 이사장 별세…“지병 앓아”
+-  “이재명 너 밑에선 아무것도 할 생각 없다”…‘원칙과 상식’, 탈당 임박?
+-  20대 이하 주담대 연체율, 8분기 연속 가장 높아…연체액도 최고치
+-  Horoscope Today 11 December: ਮੇਥ, ਕਰਕ, ਤੁਲਾ ਰਾਸ਼ੀ ਵਾਲਿਆਂ ਨੂੰ ਬਿਮਾਰੀਆਂ ਦੇ ਪ੍ਰਤੀ ਰਹਿਣਾ ਹੋਵੇਗਾ ਸਾਵਧਾਨ, ਜਾਣੋ ਅੱਜ ਦਾ ਰਾਸ਼ੀਫਲ
+-  Werribee River turbidity troubles
+-  “‘수박’·‘2찍’은 되고 ‘개딸’은 안 된다?”…野강성당원 ‘명칭파기’ 논란
+-  Leones del Caracas reafirmó su dominio en el año ante Magallanes
+-  Времето днес, прогноза за понеделник, 11 декември: Слънчево утро, заоблачаване в края на деня
+-  В Сыктывкаре полностью ликвидировали пожар в многоквартирном доме
+-  Investment In Mutual Funds: కేవలం రూ.250తో SIP స్టార్ట్‌ చేయొచ్చు, కొత్త ప్లాన్‌ తీసుకొస్తున్న సెబీ
+-  Pembohongan zionis terdedah di Gaza
+-  Heritage sites to be protected
+-  SumUp taps €285M more in growth funding to weather the fintech storm
+-  Western suburbs to greet Indian tourists
+-  Muere joven luego que se lo “tragó” un agujero en la playa
+-  One NZ the latest telecommunications company to cut jobs
+-  임신 중 미세먼지 노출, 당뇨병 위험 2배 이상 증가
+-  2024 AACTA Awards: Two Disney+ series score seven nominations for Australian storytelling
+-  Menebak Masa Depan Klub Shayne Pattynama Usai Berpisah dari Viking FK, Benarkah Akan Bermain di Klub Turki?
+-  Kawasan Bebas Alat Peraga Kampanye di Kota Jogja
+-  Российские десантники выбили ВСУ с позиций к северо-западу от Артемовска
+-  "이웃사랑 실천"…CJ, 사회복지공동모금회에 20억원 전달
+-  AAP dent to Congress: 3 ਸੂਬਿਆਂ 'ਚ ਕਾਂਗਰਸ ਦੇ ਚੋਣ ਹਾਰਨ ਦਾ ਕਾਰਨ ਆਇਆ ਸਾਹਮਣੇ, ਆਮ ਆਦਮੀ ਪਾਰਟੀ ਦਾ ਕੀ ਰਿਹਾ ਰੋਲ ?
+-  I made a festive ‘charcuterie tree’ with $9.99 in Aldi groceries – my finishing touch gave it a real Christmas feel
+-  Daylesford collision charges laid
+-  พลังว่านหางจระเข้ เพื่อการดูแลสุขภาพผิวที่ดี
+-  ดวงชะตา โดย ศ.บัณฑิตกุล : ระหว่างวันที่ 11- 17 ธันวาคม 2566
+-  รู้เรื่องยากับเภสัชจุฬาฯ : ออฟฟิศซินโดรม โรคที่คนไม่ได้ทำงานออฟฟิศก็เป็นได้
+-  จ่าฝูงทีมที่ 6 พรีเมียร์ลีกซีซั่น2023-24
+-  Plaza in ’jeopardy’
+-  Connect with your community by volunteering
+-  Americans rally to win inaugural World Champions Cup
+-  Americans rally to win inaugural World Champions Cup
+-  Americans rally to win inaugural World Champions Cup
+-  Americans rally to win inaugural World Champions Cup
+-  4 Pernyataan Prabowo-Gibran Jawab Ejekan Joget hingga Politik Dinasti
+-  Cuaca Malang Hari ini, Awas Siang Hingga Sore Gerimis dan Hujan Lebat
+-  Guerreiras e Sobreviventes: Câncer não é sentença de morte
+-  Thu hút FDI còn thấp vì tính liên kết chưa hiệu quả
+-  Saksikan Live Streaming SCTV FTV Pagi Spesial: Karma Pemuda Munafik Gila Harta, Tayang Senin 11 Desember 2023 Pukul 08.30 WIB
+-  Sod turned on Public Gardens
+-  À Hong Kong, participation historiquement basse aux élections locales réservées aux «patriotes»
