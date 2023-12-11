@@ -1,51 +1,51 @@
 # Latest News
--  物理演算退職シム『Quitting Simulator』発表。退職届を撒き散らし、拳やハンマーで職場と上司を破壊してすっきり退職
--  Американский истребитель F-16 потерпел крушение в Жёлтом море
--  “자동차 맡기고 쇼핑”...벤츠·BMW·지프 정비 맛집 떠오른 이곳
--  Children of imprisoned Iranian activist Narges Mohammadi accept the Nobel Peace Prize on her behalf
--  Argentine President Milei warns economic shock unavoidable in maiden speech
--  Israeli tanks reach center of Khan Younis in new storm of southern Gaza
--  안산시의회 박태순 의원 대표 발의 ‘선감학원 희생자 지원 조례안’ 상임위 통과
--  한국마사회 안산지사 공모 통해 기부금 앞장
--  ‘김종필 장남’ 김진 운정장학회 이사장 별세…“지병 앓아”
--  “이재명 너 밑에선 아무것도 할 생각 없다”…‘원칙과 상식’, 탈당 임박?
--  20대 이하 주담대 연체율, 8분기 연속 가장 높아…연체액도 최고치
--  Horoscope Today 11 December: ਮੇਥ, ਕਰਕ, ਤੁਲਾ ਰਾਸ਼ੀ ਵਾਲਿਆਂ ਨੂੰ ਬਿਮਾਰੀਆਂ ਦੇ ਪ੍ਰਤੀ ਰਹਿਣਾ ਹੋਵੇਗਾ ਸਾਵਧਾਨ, ਜਾਣੋ ਅੱਜ ਦਾ ਰਾਸ਼ੀਫਲ
--  Werribee River turbidity troubles
--  “‘수박’·‘2찍’은 되고 ‘개딸’은 안 된다?”…野강성당원 ‘명칭파기’ 논란
--  Leones del Caracas reafirmó su dominio en el año ante Magallanes
--  Времето днес, прогноза за понеделник, 11 декември: Слънчево утро, заоблачаване в края на деня
--  В Сыктывкаре полностью ликвидировали пожар в многоквартирном доме
--  Investment In Mutual Funds: కేవలం రూ.250తో SIP స్టార్ట్‌ చేయొచ్చు, కొత్త ప్లాన్‌ తీసుకొస్తున్న సెబీ
--  Pembohongan zionis terdedah di Gaza
--  Heritage sites to be protected
--  SumUp taps €285M more in growth funding to weather the fintech storm
--  Western suburbs to greet Indian tourists
--  Muere joven luego que se lo “tragó” un agujero en la playa
--  One NZ the latest telecommunications company to cut jobs
--  임신 중 미세먼지 노출, 당뇨병 위험 2배 이상 증가
--  2024 AACTA Awards: Two Disney+ series score seven nominations for Australian storytelling
--  Menebak Masa Depan Klub Shayne Pattynama Usai Berpisah dari Viking FK, Benarkah Akan Bermain di Klub Turki?
--  Kawasan Bebas Alat Peraga Kampanye di Kota Jogja
--  Российские десантники выбили ВСУ с позиций к северо-западу от Артемовска
--  "이웃사랑 실천"…CJ, 사회복지공동모금회에 20억원 전달
--  AAP dent to Congress: 3 ਸੂਬਿਆਂ 'ਚ ਕਾਂਗਰਸ ਦੇ ਚੋਣ ਹਾਰਨ ਦਾ ਕਾਰਨ ਆਇਆ ਸਾਹਮਣੇ, ਆਮ ਆਦਮੀ ਪਾਰਟੀ ਦਾ ਕੀ ਰਿਹਾ ਰੋਲ ?
--  I made a festive ‘charcuterie tree’ with $9.99 in Aldi groceries – my finishing touch gave it a real Christmas feel
--  Daylesford collision charges laid
--  พลังว่านหางจระเข้ เพื่อการดูแลสุขภาพผิวที่ดี
--  ดวงชะตา โดย ศ.บัณฑิตกุล : ระหว่างวันที่ 11- 17 ธันวาคม 2566
--  รู้เรื่องยากับเภสัชจุฬาฯ : ออฟฟิศซินโดรม โรคที่คนไม่ได้ทำงานออฟฟิศก็เป็นได้
--  จ่าฝูงทีมที่ 6 พรีเมียร์ลีกซีซั่น2023-24
--  Plaza in ’jeopardy’
--  Connect with your community by volunteering
--  Americans rally to win inaugural World Champions Cup
--  Americans rally to win inaugural World Champions Cup
--  Americans rally to win inaugural World Champions Cup
--  Americans rally to win inaugural World Champions Cup
--  4 Pernyataan Prabowo-Gibran Jawab Ejekan Joget hingga Politik Dinasti
--  Cuaca Malang Hari ini, Awas Siang Hingga Sore Gerimis dan Hujan Lebat
--  Guerreiras e Sobreviventes: Câncer não é sentença de morte
--  Thu hút FDI còn thấp vì tính liên kết chưa hiệu quả
--  Saksikan Live Streaming SCTV FTV Pagi Spesial: Karma Pemuda Munafik Gila Harta, Tayang Senin 11 Desember 2023 Pukul 08.30 WIB
--  Sod turned on Public Gardens
--  À Hong Kong, participation historiquement basse aux élections locales réservées aux «patriotes»
+-  HJSC Eyes Global Markets as Foreign Officials Investigate ACV Technology
+-  효성첨단소재, '다우존스 지속가능경영지수 KOREA' 편입
+-  "7회 연속 CCM 인증" 경동나비엔, 우수 인증기업 명예의 전당 헌액
+-  '1골2도움' 손흥민, BBC 이주의 팀 선정 … 8시즌 연속 두 자릿수 골 달성
+-  머스트잇, 25일까지 '굿바이 세일' ... 5000여 개 명품 브랜드 최대 91% 할인
+-  고 김종필 장남 김진 이사장 자택서 숨진 채 발견
+-  이동환 고양시장, 세계적인 투자가 짐 로저스 회장과 경제자유구역 협력방안 논의
+-  В Духовщине обнаружили фальшивую купюру
+-  Tom Brady keeps it casual in t-shirt and shorts as he heads to the gym in Miami... after night out with Irina Shayk
+-  신한투자증권, 한국 금융주관사단 8500만 달러 김치본드 발행
+-  이스라엘 vs 헤즈볼라, 레바논 국경서 교전 격화
+-  Fiscal General ordena investigar y sancionar a clínica por quemaduras a un bebé de 10 meses tras intervención quirúrgica
+-  LGU+, 플레이몽키와 키즈 콘텐츠 활성화 ‘맞손’…MOU 체결
+-  벤츠, GLC 쿠페 2세대 완전변경 모델 'GLC 300 4MATIC 쿠페' 출시
+-  신영證, '2023 스포트라이트 어워즈' 대상 수상
+-  Chatter grows of a 'dream ticket' of Boris Johnson and Nigel Farage as supporters of the former PM claim 'we need him back more than anything' and the ex-Brexit Party leader leaves I'm A Celebrity in third place
+-  Chatter grows of a 'dream ticket' of Boris Johnson and Nigel Farage as supporters of the former PM claim 'we need him back more than anything' and the ex-Brexit Party leader leaves I'm A Celebrity in third place
+-  Cyclone Jasper to hit coast as category two
+-  Cyclone Jasper to hit coast as category two
+-  आर्टिकल 370 पर देश को 'सुप्रीम' फैसले का इंतजार, अब तक क्या-क्या हुआ?
+-  디지털대성, 주당 200원 현금배당 결정…12년 연속 배당 행진
+-  Бойцы в зоне СВО помогают инженерам улучшить детектор обнаружения БПЛА
+-  Escándalo de un ex Cruz Azul: Teófilo Gutiérrez se lía a golpes con su cuñado en medio de un partido
+-  중국산 항공기 C919, 3대째 항공사에 인도
+-  카카오게임즈, 장애인 게임 접근성 향상 위한 '다가치 게임톡' 행사 실시
+-  먹거리 안전 확보…동대문구, 14일부터 수산물 방사능 검사
+-  Muerte mamá del ‘Chapo’ Guzmán: El último deseo de Consuelo Loera que nunca cumplió
+-  온리원오브, '범프 업 비즈니스' 팬 미팅 성료…'특별한 순간'
+-  شاهد بالفيديو.. مطرب “راب” سوداني يثير ضجة إسفيرية غير مسبوقة بعد ترديده أغنية يقول فيها: (بني السودان على خمس تأكل ما تشبع وتلبس مقطع)
+-  إيفرتون يواصل توهجه ويزيد معاناة تشيلسي
+-  مانشستر سيتي يهزم لوتون تاون بصعوبة في الدوري الانجليزي
+-  معجب يعرض الزواج على إعلامية شهيرة بمطار الكويت
+-  بعد تزايد الانتقادات.. ترمب أريد أن أكون ديكتاتورا يوما واحدا لهذا السبب
+-  وزارة الخارجية: طالبنا بضرورة حذف الإشارة لمشاركة وزير الدولة في الخارجية الإماراتية إلّا أن ذلك لم يحدث
+-  بالصور.. مدير شرطة ولاية نهرالنيل يدشن العمل بمشروع الشرطة الزراعي المحوري للموسم الشتوي بتشريف وزير الإنتاج والموارد الإقتصادية
+-  فضل الله برمة: هذه رسالتي لقوات الشعب المسلحة وقوات الدعم السريع
+-  عبد الماجد: أليس غريباً أن يقف جهاز المخابرات العامة السوداني متفرجاً؟
+-  حكومة النيل الأزرق: موازنة 2024م ملبية لمتطلبات السلام والاستقرار والتنمية
+-  신수지, '아찔' 모노키니 차림으로 해변 질주
+-  '서울의 봄' 20일 만에 700만 돌파… 개봉 3주차 박스오피스 1위 '뜨거운 질주'
+-  동해시, 경로당 10곳 운영 실태 점검
+-  中共開價4.8億策動我中校駕機叛逃 邱國正：有類案定會移送法辦
+-  ยังไงกัน? เพจดังเผย สมรักษ์ คำสิงห์ เซ็นในหย่ากับภรรยาแล้ว!
+-  '개그콘서트' 윤형빈, 격투기 복귀전 고민…김영희의 조언은?
+-  Grandson who helped me fall back in love with Christmas: Since JANET ELLIS's husband died three years ago, she hasn't put up her decorations or sent a card. But in a touching admission, she reveals how it took a teenager to reignite her festive spirit
+-  Tigres vs. Pumas EN VIVO: Sigue la semifinal de vuelta de la Liga MX
+-  जाजरकोट भूकम्पः नौ करोड बराबरको खाद्यान्न क्षति
+-  मानव अधिकारका लागि मिडिया साक्षरता
+-  एनसेल सरकारमा आउन नदिने चलखेल
+-  भ्रष्टाचारविरुद्ध प्रतिबद्धता
