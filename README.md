@@ -1,11 +1,51 @@
 # Latest News
--  [윤덕우 칼럼] 아! 박근혜 전 대통령
--  Volvo Retail Experience – თიბისი ჯგუფის მხარდაჭერით, „ვოლვო ქარ საქართველოს“ კონცეპტუალური შოურუმი გაიხსნა
--  신진서, 구쯔하오 꺾고 LG배 4강 진출…커제와 결승행 경쟁
--  Zvezda, pa Partizan - "večiti" opet na TV B92
--  Tokat'ta minibüsün kamyona çarpmasıyla ölen 5 kişinin cenazeleri Sivas'a gönderildi
--  İstanbul barajlarında doluluk oranı yüzde 40'a ulaştı
--  Trình cấp thẩm quyền Quảng Ngãi giao khu vực biển xây ống xả thải dự án NM Bột – Giấy VNT19
--  '금쪽이 그 자체' 루카쿠, 피오렌티나전 전반 초반 득점 → 후반 막판 다이렉트 퇴장...로마는 간신히 1-1 무승부
--  Katliam destekçisi Biden'a anket şoku: Halkın yüzde 80'i Gazze için aynı düşünüyor
--  Aslan Danimarka takımlarına karşı 6. sınavında
+-  Atatürk Orman Çiftliği'nden kadın kooperatifleri ve üretici birliklerine destek
+-  Zeytinburnu Fotoğraf Yarışması sonuçları açıklandı
+-  Sözde cephane sorumlusu etkisiz hale getirildi
+-  Abdullah Avcı ile deplasman sorun olmaktan çıktı
+-  Depremde 81 kişinin öldüğü binada "özensiz işçilik" tespit edildi
+-  Beşiktaş'tan şok karar!
+-  Dikkat! Meteoroloji'den 3 ile uyarı: Kuvvetli yağacak
+-  TMC leader Mahua Moitra moves Supreme Court against her expulsion from Lok Sabha
+-  Article 370 verdict: Nobody will be happy with SC decision in J&K, says Azad
+-  I-T raids on Odisha distillery enter 6th day, Rs 353 cr recovered so far
+-  `India to take quantum jump during current period, we have to work 24 hs a day`
+-  GentleWave CBD Gummies Controversial Warning 2023-24 Hoax EXPOSED Gentle Wave
+-  How Anushka Sharma and Virat Kohli kept their wedding a secret
+-  Guide to finding the perfect bridal lingerie for the wedding season
+-  पश्चिम बागलुङवासीलाई उत्तरगङ्गा आयोजनाको आश
+-  सर्दियों में घर पर कम मसाले में बनाएं ये वेजिटेबल पनीर, स्वाद लाजवाब होगा
+-  Жанна Бадоева заменит Галкина в шоу «Лучше всех!» на Первом канале
+-  FanDuel to Launch in North Carolina Through PGA Tour Partnership
+-  В Москве воспитатель обнаружила на теле ребенка похожие на ожоги следы
+-  Kaip išvengti mirties nuo diabeto? Mokslininkų atsakymas
+-  الخطة الشاملة شرط لإصلاح المصارف
+-  «Появился новый лозунг МТЗ»
+-  Syrop z buraków na odporność. To się dzieje jak pijesz syrop z buraka! Podpowiadamy, jak zrobić syrop z buraków na odporność 11.12.2023
+-  Dallas zlahka ugnal Philadelphio in se izstrelil na vrh divizije
+-  Dallas zlahka ugnal Philadelphio in se izstrelil na vrh divizije
+-  Джонатан Куик с първа победа над бившия си отбор Лос Анджелис
+-  Chi è Lorenzo Zurzolo, l’attore “tra gli uomini più belli del mondo”
+-  «الاستئناف» بحكم بات: الأطباء وأصحاب المهن لا يشملهم الإفلاس
+-  Promise Omoro wins HOWASA 5km marathon race in Calabar
+-  MNOGI ĆE VAS IZNENADITI: Ovo je 10 najtraženijih pojmova na Vikipediji ove godine
+-  Barbara De Rossi e Simone Fratini si sono sposati: i dettagli delle nozze
+-  Kerstmarkt in Heerjansdam
+-  Sjáðu myndbandið sem Sveppi birti í gær: Eiður Smári logandi hræddur – „Ég held að hjartslátturinn minn sé í svona 186“
+-  ‘LG 외인 첫 황금장갑’ 오스틴, 페타지니 아성 넘어섰다[스한 이슈人]
+-  '이변은 없다' 양의지, GG 통산 9회 수상… 포수 역대 최다 GG 달성
+-  الدبيبة يجدد ترحيبه بمبادرة باتيلي بشأن عقد اجتماع خماسي لحل الخلافات بشأن الانتخابات
+-  CAF Awards 2023: Le football marocain bien placé pour briller à Marrakech
+-  COP28: course contre la montre pour un accord sur l’énergie fossile
+-  Türkiye Dil ve Edebiyat Derneği’nde yeni yönetim
+-  Danimarkalı yönetmenden Filistin’e destek
+-  Devlet sanatçısı Prof. Dr. Nevzat Atlığ vefat etti
+-  Les Experts : Industrie, l'Europe a-t-elle perdu la bataille ? - 11/12
+-  Motokuryelere yönelik yeni düzenleme: Yetki belgesi aranacak süre taahhüdü sona erecek
+-  FW-Generalsekretär Langthaler: Aktuelle, absurde Anträge der 'Grünen Wirtschaft‘ zeigen deutlich die Regierungsuntauglichkeit!
+-  Tak Mau Disungkemi Adiba Khanza, Adab Abidzar Al Ghifari Jadi Sorotan
+-  Kajol: ਕਾਜੋਲ ਨੇ ਲਹਿਰਾਇਆ ਸਾੜੀ ਦਾ ਪੱਲੂ, ਪ੍ਰਸ਼ੰਸਕਾਂ ਦੇ ਦਿਲਾਂ 'ਚ ਵੱਜੀਆਂ ਘੰਟੀਆਂ, ਕਿਹਾ- 'ਤੁਮ ਹੁਸਨ ਪਰੀ...'
+-  조선일보도 우려하는 ‘특수부 검사’ 방통위원장
+-  गावस्कर ने अफ्रीका क्रिकेट बोर्ड पर साधा निशाना, कहा- झूठ बोल रहे….
+-  من داخل الباركينغ.. إطلالة مُثيرة لملكة جمال لبنان السابقة (صور)
+-  Mercedes Rus, nueva Ministra de Seguridad y Justicia: «Tenemos grandes desafíos que tienen que ver con robos y hurtos de autopartes»
