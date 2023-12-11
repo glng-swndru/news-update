@@ -1,51 +1,51 @@
 # Latest News
--  Google Year in Search 2023 in India: चांद्रयान-3, तुर्की भूकंप, मणिपूर यांसह या वर्षी इंटरनेटवर काय काय झाले सर्च? घ्या जाणून
--  शख्स ने ऑर्डर किया 20,000 रुपये का हेडफोन, मिला टूथपेस्ट, अनबॉक्सिंग वीडियो वायरल होने के बाद अमेज़न ने दी प्रतिक्रिया
--  HDP'li Semra Güzel'in yargılanmasına devam edildi: Fotoğrafları inkar etmiyorum
--  CAS озвучил решение по вердикту скандального дела Камилы Валиевой
--  SolarEdge (Tel-Aviv), cotée au Nasdaq, est sur le point de perdre sa place dans l’indice le plus suivi au monde.
--  Las elecciones y la posverdad
--  SEPAH genişmiqyaslı hərbi təlim keçirdi
--  Centre Unveils National Policy To Upgrade Old Wind Turbines
--  Carros que já foram usados pela Presidência da República por R$ 18 mil em Leilão
--  قسم العلوم السياسية في كلية الاقتصاد والعلوم السياسية جامعة عدن ينفذ تدريب حول : المناظرة..لطلاب العلوم السياسية
--  Poljska redateljica koju su žestoko napadali radi njezina filma o migrantima: Europa je lijena, bez mašte i hrabrosti
--  تنبه عاجل لـ "المرور" بشأن القيادة في الظروف الجوية المتقلبة
--  كم من الوقت يجب أن تبقى في الحمام؟.. احذر هذه المخاطر
--  Proper Nutrition and Weight Loss Diet – How to Implement It?
--  शाहजहांपुर साइकिल क्लब के तत्वावधान में बच्चो ने चलाई साइकिल
--  ऊंट उत्सव में विरासत को बचाने हेतु संदेश देने के लिए इंटेक सहभागिता निभायेगा
--  “Beşiktaş” 5 əsas futbolçusunu komandadan uzaqlaşdırdı
--  Campagna di Raccolta Fondi per la ricostruzione del Centro per la Vita Indipendente di Gaza City
--  83%-ის აზრით, დეპრესია და შფოთვითი აშლილობა მოსახლეობისთვის პრობლემაა – NDI
--  COSMO Pharmaceuticals-Aktie klettert: COSMO und Medtronic vertiefen Partnerschaft bei KI-gesteuerter Behandlung
--  Olivier Vallet, PDG de Docaposte : « Le positionnement de Numspot est pertinent sur le marché »
--  Park Seoham Bebas Wamil, Langsung Tebar Pesona Lewat Foto-foto Terbaru
--  دورة تدريبية للكادرات النسوية حول القرار الاممي (1325) بأبين
--  Elon Musk sa po roku vracia na trón, znovu je najbohatším mužom na svete
--  Германия — Черный день для страны
--  Maďarsko stále hrozí vetom. Nad samitom EÚ a pomocou Ukrajine sa vznáša Orbánov tieň, píše Politico
--  ゲーム版「スーサイド・スクワッド』の公式トレーラー「No More Heroes」が公開！
--  “Ay bala, saçımı niyə yolursunuz?!“
--  Δικαστική Αστυνομία: Τι σημαίνει η απόρριψη με κωδικό 001, 002 ή 003
--  В Госдуму внесли проект о запрете взыскания кредитов в новых регионах
--  Kickoff | Pitso reveals job he would consider taking 'if offered'
--  Игорь Сопов: Большинство голосов псковский губернатор на прошедших выборах получил через ДЭГ
--  Due gol dopo il 90', il Parma di Pecchia fa festa. Al Palermo non basta un super Brunori
--  Франция и Нидерландия са 1/4-финалисти на Мондиала по хандбал
--  Automotive lobby wants 30 km/h speed limits in all Dutch city centers
--  Proveedores e infraestructura, ‘talón de Aquiles’ de las empresas
--  Сашко Кадиев се връща на екран, ще го гледаме всяка вечер
--  Leyendas que han hecho grande al club blanco Real Madrid Baloncesto
--  Poznati dalmatinski ugostitelji radili ‘na crno‘, a Županija im je htjela dati novu koncesiju!? Sve je ipak odgođeno
--  Η κίνηση που επιβεβαίωσε την μαγκιά του Γκαγιέγο
--  Nueve detenidos en Valencia por explotar sexualmente y dar palizas a varias mujeres
--  Nueve detenidos en Valencia por explotar sexualmente y dar palizas a varias mujeres
--  Снегопады будут идти на Вологодчине всю неделю
--  Dürr: Fester Wille, in Bundesregierung zu bleiben
--  اليافعي: تعطيل عمل القضاء في عدن مؤشر خطير
--  Google Year in Search 2023 in India: ভারতে গুগলে খোঁজ খোঁজ রব 'চন্দ্রযান-৩' কে নিয়ে, গুগল সার্চে সেরা দশে মণিপুরও
--  الليرة التركية تسجل انخفاضاً قياسياً مقابل الدولار
--  HCP: l’économie marocaine en hausse de 4,4% en 2022
--  Feyenoord warned over Celtic party with ultras by MAYOR but club won't 'tar every fan with the same brush'
--  Petrolífera indonésia cancela encomenda a Moçambique para gás natural
+-  NEPSE sees 15-point dip after Sunday&#039;s 111-point surge; Daily turnover surges to Rs 4.842 billion
+-  RSP parliamentary party meeting to take place at 4:00 pm today
+-  벨킨, 애플 유저 위한 '2in1 맥세이프 무선 충전 독' 출시
+-  세아베스틸 생산하면 중기 부산물 챙겨 재활용…상생형 공동사업전환 승인
+-  SK 최태원, 미국 이어 유럽까지 '글로벌 현장경영' 박차
+-  선명희피자, 시그니처 '매운 바싹 불고기' 피자 선봬
+-  Как не отравиться угарным газом?
+-  [양산시, '1028 지방도 국도 승격' 청신호…제6차 국도·국지도 건설계획 반영 초읽기
+-  [‘초전도체’ 논문 무단 발표 논란…고대 “연구윤리 위반없다”
+-  60 Minutes star Tom Steinfort welcomes a baby girl with wife Claudia and reveals her adorable name
+-  Nigel Farage defends his £1.5million I'm A Celeb fee and admits he couldn't wait for a pint after leaving camp - as he enjoys Guinness with Aussie locals
+-  الذكاء الاصطناعي يكشف أورام المخ بـ 90 ثانية
+-  تحذير خطير للنساء من أوقات الفراغ
+-  Boğa burcu, Akrep ve Balık. Siz 2023 yılında kalın. 2024’e sakın girmeyin. Nedeni açıklandı, üzüleceksiniz
+-  Women’s Rugby World Cup in 2025 to start in Sunderland and end at Twickenham
+-  İşte Avrupa'nın 5 büyük ligindeki son durum
+-  Necip Fazıl Saygı Ödülü sahiplerinden Prof. Dr. Nevzad Atlığ hayatını kaybetti
+-  Szymanski, kariyer sezonunu yaşıyor!
+-  Ferdi Kadıoğlu derbiye damga vurdu
+-  Grings über Trainerjob bei DFB-Frauen: Interessant
+-  Neuer Rundwanderweg zwischen Konnersreuth und Kapplkirche eröffnet
+-  جندوبة: إحباط محاولة تهريب مجموعة من الأبقار
+-  Benjy Weenick: Heartbroken family of 16-year-old passenger who tragically died in a horror crash that left four others badly injured share a powerful message
+-  Un hijo avisa a la Policía Local para frenar un caso de violencia de género en Elche
+-  경기도 예방가능 외상사망률 9.1%, 2018년 대비 절반 이상 감소해
+-  LG, 2001년 이후 22년만의 GG 3명 배출… 최다 득표는 오스틴(종합)
+-  롤렉스 시계부터 황금장갑까지… 오지환의 완벽했던 2023시즌
+-  '전설의 시작'… 노시환, 한화 소속 3루수로 17년만에 GG 수상
+-  '나솔' 17기 현숙, 연인 상철 사생활 영상에 "순간으로 인생 폄하 마음 아파"
+-  '생애 첫 타격왕' 손아섭, 6년만에 GG로 2023시즌 화려한 피날레
+-  Havarie in Deutschland: Kreuzfahrtschiff auf der Elbe in Brand geraten – Passagiere müssen evakuiert werden
+-  Potraga za muškarcem u BiH i dalje u toku: Otišao po ovce i nije se vratio
+-  Delta's COP28 Side Event Shares Experience in Internal Carbon Pricing, Echoing COP28's "Climate Finance" Focus
+-  Konya’da SMA Tip-1 hastası 7 aylık Dilek'in yaşaması için 29 milyon TL'ye ihtiyacı var
+-  Emmerdale spoiler video: Victoria stunned as Jacob makes a big decision about their future
+-  Konya'da 600 konutluk dev proje! Karatay'daki Sedir Park Konutları için ön başvurular başladı!
+-  Tabaković: Transakcije između građana i privrede Srbije i Crne Gore od danas se mogu realizovati direktno
+-  Feuerwehrjugend der Gemeinde Thanstein besteht den Wissenstest
+-  Akiplėšiškas padegimas Kaune: padegėjas „Volkswagen“ užkūrė kitų žmonių akivaizdoje
+-  Pojavila se snimka direktnog razgovora Zelenskog i Orbana
+-  Wegen KI-Anwendungen - Microsoft verdoppelt Cloud-Kapazität in Deutschland
+-  عدد من النواب يسحبون مقترحات فصول كانوا قد تقدموا بها للمجلس
+-  Какие гендерные темы остаются за кадром в медиа Таджикистана?
+-  Оппозиция Японии подаст проект о вотуме недоверия правительству из-за скандала
+-  Parliament decides to debate VAT (Amendment) Bill today (11)
+-  Pekas ut av svenskorna: ”Undviker henne”
+-  Okončan dvosatni protest radnika ArcelorMittala Zenica
+-  Mars'ta tarihi keşif
+-  Surprising Diagnosis: Healthy GP Visit Leads to Emergency Heart Surgery
+-  Milatović: Svakom djetetu pružiti priliku za srećno djetinjstvo
