@@ -1,51 +1,11 @@
 # Latest News
--  Top Googled Movies in 2023
--  [롯데마트 토이저러스 장난감할인 행사…최대 50% 할인
--  [이상민 만난 이낙연 “뜻 같이 하는 훌륭한 분들 모아 세력화 필요”
--  [경북도-동남아 대표 전자상거래 플랫폼 라자다, 업무협약 체결
--  [대구시, 행안부 2023 안전문화대상 국무총리 표창 수상
--  [국방부, 대구시 대구군공항 이전사업 시행자로 지정
--  Diana Durán celebra la temporada navideña con "Lista de Deseos"
--  Avanza la implementación de la medicina tradicional indígena en Panamá
--  Na Wall Street trzecia wzrostowa sesja z rzędu, DJIA najwyżej od prawie 2 lat
--  FT: UE zaproponuje we wtorek wykorzystanie zysków z zamrożonych aktywów Rosji na rzecz Ukrainy
--  Vanderpump Rules Cast Surprised by Shocking Kiss and New Cheating Scandal
--  Демократична спілка угорців України просить Орбана підтримати вступ в ЄС
--  Paula oduševila sve plesom na lancima, a prije je nastupila s Tončijem Huljićem: 'Prebolno'
--  SpaceX se prepara para lanzar el misterioso avión espacial X-37B para el ejército estadounidense
--  Sandra Sully's personal tragedy: 10 News First presenter issues powerful tribute as her dad Sid dies
--  Seyahat için en tehlikeli ülkeler haritası yayınlandı
--  Yunanistan’da konaklama vergisinin adı değişti oranı yükseltildi
--  West Virginia is becoming epicenter of 'deadliest drug threat America has ever faced': Lethal combination of zombie 'tranq' and fentanyl could exacerbate death rate in US' worst-hit state for opioid abuse
--  [VIDEO] En plena graduación apareció su mamá que llegó desde ashá
--  Christmas al fresco! An outdoor feast is the new trend, and it's not just the pigs who'll be in blankets
--  Slash, Billy Gibbons and Myles Kennedy Cover Lynyrd Skynyrd: A Tribute to the Classic Rock Band
--  Пентагон пообещал создать на Украине армию для сдерживания России
--  Звездопад Геминиды в ночь на 14 декабря будет виден над южным горизонтом
--  The cast of Archer share their favorite memories from the show's 14 seasons
--  Israel is Optimistic in Battle Against Hamas as Suffering in Gaza Soars
--  El FMI pide a Ucrania "ambiciosa" reestructuración de deuda comercial en 2024
--  "NEMA RAZLIKE MEĐU OPOZICIJOM" Vučić: Ranije je tu bilo nekakvih ideologija, sada nema ničega više
--  Cartoon
--  Él es el hombre que conquistó a la polémica Carla Giraldo
--  Taylor Swift fan furiously shuts down conservative critic who branded the popstar 'hyper-promiscuous' and 'shameful' by sharing a wholesome story about her first meeting with the music icon
--  Nafnið var gjöf að handan – „Ég vissi alltaf að ég væri öðruvísi“
--  Τζον Κέρι: «Τελευταία ευκαιρία» να περιορίσουμε την άνοδο της θερμοκρασίας στον πλανήτη
--  Alla Goodbye to YCP : వైసీపీకి ఆళ్ల గుడ్‌బై
--  Why Ukraine Is Historically Known As The Breadbasket Of Europe
--  Ministra destaca ética como parte da formação médica de qualidade
--  Especialistas discutem alternativas a tratamentos manicomiais
--  Nova edição de livro traz atualizações sobre Lei Anticorrupção
--  Um em cada quatro jovens relata ter sofrido violência no Brasil
--  Sinfra vistoria MT-251 após deslizamento de terra no Parque Nacional de Chapada dos Guimarães
--  Comissão aprova proposta que obriga hospitais a oferecer leitos separados a mães que perdem filhos
--  Emery’s Aston Villa: The Next Leicester with Players You’d Want to Have a Pint With
--  Google cerrará su servicio de pódcast en abril
--  ¿Dónde ver el Festival de Jonrones de la LVBP en honor a Miguel Cabrera?
--  Google cerrará su servicio de pódcast en abril
--  [AM-PM] 22대 총선 레이스 개막…예비후보 등록 시작 外
--  QUENTIN LETTS: The judge was busy writing something as Rishi Sunak spoke at the Covid Inquiry. Her Christmas cards? Perish the thought
--  Google Revealed What Canadians Searched The Most In 2023 & The Results Are Super Random
--  Trabzonspor Asbaşkanı Kafkas: Yerde atılan tekmelerin hocamızı daha derinden yaraladığını duydum
--  Un nouveau crack en vue, la presse étrangère calme le PSG
--  En Chajarí los conductores reiteran sus infracciones, afirman desde la nueva Coordinación de Tránsito
+-  Holocaust survivors among attendees at White House Hanukkah ceremony
+-  Dogecoin: Here’s How Much Doge Will Trade for on Christmas
+-  صفقة استحواذ لـ«جهاز قطر»
+-  Gnieźnianin paserem? Policja „odtrąbiła sukces”, a jak wygląda prawda?
+-  AI trained on X-rays can diagnose medical issues as accurately as doctors, finds study
+-  All the Jobs AI Is Coming for, According to a UK Study
+-  25 Outfit Ideas for New Year’s Eve if You Don’t Know What to Wear
+-  تقييم أوتافيو مع النصر أمام الشباب
+-  Vučić: Briks nije moguća opcija za Srbiju
+-  Pendarovski: Vučić nije pitao da me stavi u spot, ali mislim da je to gest prijateljstva
