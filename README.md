@@ -1,51 +1,51 @@
 # Latest News
--  HJSC Eyes Global Markets as Foreign Officials Investigate ACV Technology
--  효성첨단소재, '다우존스 지속가능경영지수 KOREA' 편입
--  "7회 연속 CCM 인증" 경동나비엔, 우수 인증기업 명예의 전당 헌액
--  '1골2도움' 손흥민, BBC 이주의 팀 선정 … 8시즌 연속 두 자릿수 골 달성
--  머스트잇, 25일까지 '굿바이 세일' ... 5000여 개 명품 브랜드 최대 91% 할인
--  고 김종필 장남 김진 이사장 자택서 숨진 채 발견
--  이동환 고양시장, 세계적인 투자가 짐 로저스 회장과 경제자유구역 협력방안 논의
--  В Духовщине обнаружили фальшивую купюру
--  Tom Brady keeps it casual in t-shirt and shorts as he heads to the gym in Miami... after night out with Irina Shayk
--  신한투자증권, 한국 금융주관사단 8500만 달러 김치본드 발행
--  이스라엘 vs 헤즈볼라, 레바논 국경서 교전 격화
--  Fiscal General ordena investigar y sancionar a clínica por quemaduras a un bebé de 10 meses tras intervención quirúrgica
--  LGU+, 플레이몽키와 키즈 콘텐츠 활성화 ‘맞손’…MOU 체결
--  벤츠, GLC 쿠페 2세대 완전변경 모델 'GLC 300 4MATIC 쿠페' 출시
--  신영證, '2023 스포트라이트 어워즈' 대상 수상
--  Chatter grows of a 'dream ticket' of Boris Johnson and Nigel Farage as supporters of the former PM claim 'we need him back more than anything' and the ex-Brexit Party leader leaves I'm A Celebrity in third place
--  Chatter grows of a 'dream ticket' of Boris Johnson and Nigel Farage as supporters of the former PM claim 'we need him back more than anything' and the ex-Brexit Party leader leaves I'm A Celebrity in third place
--  Cyclone Jasper to hit coast as category two
--  Cyclone Jasper to hit coast as category two
--  आर्टिकल 370 पर देश को 'सुप्रीम' फैसले का इंतजार, अब तक क्या-क्या हुआ?
--  디지털대성, 주당 200원 현금배당 결정…12년 연속 배당 행진
--  Бойцы в зоне СВО помогают инженерам улучшить детектор обнаружения БПЛА
--  Escándalo de un ex Cruz Azul: Teófilo Gutiérrez se lía a golpes con su cuñado en medio de un partido
--  중국산 항공기 C919, 3대째 항공사에 인도
--  카카오게임즈, 장애인 게임 접근성 향상 위한 '다가치 게임톡' 행사 실시
--  먹거리 안전 확보…동대문구, 14일부터 수산물 방사능 검사
--  Muerte mamá del ‘Chapo’ Guzmán: El último deseo de Consuelo Loera que nunca cumplió
--  온리원오브, '범프 업 비즈니스' 팬 미팅 성료…'특별한 순간'
--  شاهد بالفيديو.. مطرب “راب” سوداني يثير ضجة إسفيرية غير مسبوقة بعد ترديده أغنية يقول فيها: (بني السودان على خمس تأكل ما تشبع وتلبس مقطع)
--  إيفرتون يواصل توهجه ويزيد معاناة تشيلسي
--  مانشستر سيتي يهزم لوتون تاون بصعوبة في الدوري الانجليزي
--  معجب يعرض الزواج على إعلامية شهيرة بمطار الكويت
--  بعد تزايد الانتقادات.. ترمب أريد أن أكون ديكتاتورا يوما واحدا لهذا السبب
--  وزارة الخارجية: طالبنا بضرورة حذف الإشارة لمشاركة وزير الدولة في الخارجية الإماراتية إلّا أن ذلك لم يحدث
--  بالصور.. مدير شرطة ولاية نهرالنيل يدشن العمل بمشروع الشرطة الزراعي المحوري للموسم الشتوي بتشريف وزير الإنتاج والموارد الإقتصادية
--  فضل الله برمة: هذه رسالتي لقوات الشعب المسلحة وقوات الدعم السريع
--  عبد الماجد: أليس غريباً أن يقف جهاز المخابرات العامة السوداني متفرجاً؟
--  حكومة النيل الأزرق: موازنة 2024م ملبية لمتطلبات السلام والاستقرار والتنمية
--  신수지, '아찔' 모노키니 차림으로 해변 질주
--  '서울의 봄' 20일 만에 700만 돌파… 개봉 3주차 박스오피스 1위 '뜨거운 질주'
--  동해시, 경로당 10곳 운영 실태 점검
--  中共開價4.8億策動我中校駕機叛逃 邱國正：有類案定會移送法辦
--  ยังไงกัน? เพจดังเผย สมรักษ์ คำสิงห์ เซ็นในหย่ากับภรรยาแล้ว!
--  '개그콘서트' 윤형빈, 격투기 복귀전 고민…김영희의 조언은?
--  Grandson who helped me fall back in love with Christmas: Since JANET ELLIS's husband died three years ago, she hasn't put up her decorations or sent a card. But in a touching admission, she reveals how it took a teenager to reignite her festive spirit
--  Tigres vs. Pumas EN VIVO: Sigue la semifinal de vuelta de la Liga MX
--  जाजरकोट भूकम्पः नौ करोड बराबरको खाद्यान्न क्षति
--  मानव अधिकारका लागि मिडिया साक्षरता
--  एनसेल सरकारमा आउन नदिने चलखेल
--  भ्रष्टाचारविरुद्ध प्रतिबद्धता
+-  १० वर्षअघिको आर्थिक अभियानबाट: असाञ्जलाई आत्मवृत्तान्त लेख्न १३ लाख डलर
+-  भूकम्पीय जोखिमको आर्थिक आयाम: क्षति कम गर्न अपनाउनुपर्ने केही उपाय
+-  एनसेल खरीदविक्री प्रकरण छानबिन समितिले काम थाल्यो
+-  सुक्खायाम लागेसँगै भारतबाट विद्युत् आयात शुरू
+-  अस्ट्रेलियाली र क्यानेडेली डलर अभाव
+-  강릉 고대설화 기반 뮤지컬 월화전 14~15일 개최
+-  12일 찾아가는 청춘양구 노래자랑 왕중왕전
+-  봉안묘인가, 봉안당인가… 불법 시설물 철거 논란
+-  수산물 방사능 검사 '전부 적합'...홍보.할인행사 펼친다
+-  BJP’s tribal face to be Chhattisgarh CM
+-  Rajput leader’s murder: Two of the shooters found, arrested
+-  Clarification sought from Sahu on ‘unaccounted cash’
+-  Jack the reaper!
+-  Fernandes apologises for Man Utd’s embarrassment v Bournemouth
+-  Storms tear through Tennessee
+-  Mahsa Amini’s family can’t travel for prize
+-  Protest in Bangladesh over national election
+-  민주당 1호 인재영입 ‘기후위기 할동가’ 박지혜 변호사
+-  Khách quay lưng với mẫu xe mà Lexus kỳ công chế tạo, tiếc 'đứt ruột' với điều bất ngờ nhiều năm sau
+-  «Вашингтон» на выезде обыграл «Чикаго», у Овечкина результативная передача
+-  আওয়ামী লীগের যৌথ সভা আজ
+-  Economy: Ohaneze Nd'Igbo pledges partnership with manufacturers in the Southeast geopolitical zone
+-  Météo Algérie : temps ensoleillé et températures douces pour ce lundi 11 décembre
+-  कम कार्बन उत्सर्जन की दिशा में आगे बढ़ने के लिए वित्त जैसे मामले अब भी चुनौती बने हुए हैं: यादव
+-  शादी समारोह में व्यक्ति की हत्या के मामले में फरार तीन आरोपी गिरफ्तार
+-  मोबाइल का इस्तेमाल करने से रोके जाने पर नागपुर में किशोरी ने की आत्महत्या
+-  영월, 한국공공브랜드 대상 수상
+-  Зүүн Азийн шатрын АШТ-ээс М.Амилал, Б.Алтантуяа нар мөнгөн медаль хүртжээ
+-  Vì sao chủ tịch HĐQT và tổng giám đốc taxi Vinasun cùng xin từ chức?
+-  European Central Bank's McCaul speaking on Greece on Monday
+-  แปลปกสลาก ‘วันรัฐธรรมนูญ’ หวยงวดนี้ 16 12 66 มีรางวัลที่ 1 ซ่อนอยู่
+-  Десантники РФ выбили ВСУ с позиций к северо-западу от Артёмовска
+-  Future of Global Hand Rehabilitation Systems Market During Geopolitical Unrest and Inflation 2023 to 2029
+-  임희정, 팬들과 함께 3년 연속 선행... 백혈병 환아 위해 2500만원 기부
+-  아미 '뷔·RM 입대 오지 말라고 해서 대신 보냈다' [한혁승의 포톡]
+-  "쏘니! 어려운 시기, 우리가 리더에게 바라는 모습이다"…포스테코글루의 극찬, "쏘니는 캡틴이고, 그는 그렇게 했다"
+-  故 김기덕 감독 오늘(11일) 3주기, ‘미투 논란’ 속 타국에서 쓸쓸히 눈감아[MD이슈](종합)
+-  키움, 외국인타자 로니 도슨과 60만달러에 재계약 "KBO에서 다시 뛰게 돼 기쁘다"[오피셜]
+-  ‘맨발의 사나이’ 조승환, 인도네시아서 세계 신기록 경신 도전
+-  오타니 놓친 토론토에 쏠리는 눈→이정후·류현진 계약 가능성은?
+-  '입대 D-1' 뷔, 삭발 사진 공개…'남자는 머리빨' 공식 깨는 훈훈 외모 [MD동영상]
+-  'FA 최대어' 오타니는 결정했다…이제 日 최고 투수의 시간, "양키스와 월요일 만난다"
+-  오영주 후보자 “대사관-공공기관 연결해 중소기업 수출 성과내겠다”
+-  Apple SHUTS Down iMessage App That Works On Android Phones: Know More
+-  Mass Burial Planned for Chingola Miners as Death Toll Rises to Eleven
+-  China proposes trading cost cuts for mutual funds, to regulate commissions
+-  Resuscitation Devices Market Is Anticipated To Grow Further To Nearly USD 12.0 Billion By 2032 | Koninklijke Philips N.V., Medtronic , Physio-Control
+-  IND vs SA: ये स्टार करेगा कमाल तो टीम इंडिया जीतेगी सीरीज! 13 हजार रन वाले दिग्गज का दावा
+-  Animal BO Collection: एनिमल ने चटाई पठान और जवान को 10वें दिन धूल, इस मामले में दी धोबी पछाड़
+-  Vrishchik Saptahik Rashifal: वृश्चिक राशि वाले बड़ा लेन-देन न करें, इस हफ्ते दुश्मन रच सकते हैं साजिश
