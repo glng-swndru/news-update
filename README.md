@@ -1,11 +1,11 @@
 # Latest News
--  Montenegro Airlines ostao bez 6,8 miliona evra
--  "Građane" ne zanima Zvezda
--  Indian Stock Market To Surpass Hong Kong For The 7th Position
--  Merchant Bankers, Law Firms To Be Empanelled For Disinvestment: FinMin
--  Karnataka Records Robust GST Collections During Festive Shopping Season
--  Experts Highlight Crucial Skills Required For 21st-Century Careers
--  Saudia Arabia Cinema Industry: Capturing The Imagination Of The Film World
--  Hexagon's Digital Reality Solutions: Unveiling The Power of Technology
--  Dos eventos para no perderse en Ribadeo y A Pontenova
--  Edukativna knjiga za decu 'Za zdrave zube bez muke – četkicu u ruke!' u prodaji
+-  Carbon Nanomaterials Market Analysis, Trends, Growth, Research And Forecast 2032
+-  فاعلية بجامعة القاهرة على أنغام "قالوا إيه علينا دولا" للحث على المشاركة الانتخابات الرئاسية
+-  أمطار وسيول وانخفاض حرارة.. تحذيرات من الأرصاد بشأن طقس الساعات المقبلة
+-  [‘서해피격’ 유족 “文정부, 거짓평화로 국민 우롱…책임 물어야”
+-  [계명대, 글로컬 시대의 공공외교 주제로 심포지엄 개최
+-  על רקע האלימות הגואה: "תקדים מסוכן" עומד להיקבע בליגת האלופות
+-  [IT클로즈업] “끓는 물 속 개구리였다”…달라진 김범수의 진짜 반성문
+-  이낙연, 연일 '신당' 펌프질 quot;귀국 후 5개월 기다렸지만hellip;quot;
+-  제주도의회, 인사청문 대상 7명으로 구체화
+-  가자 '반나체 연행자' 대부분이 민간인hellip;내부서 하마스 비난 목소리도
