@@ -1,51 +1,51 @@
 # Latest News
--  Drunk History Season 2 Streaming: Watch & Stream Online via Hulu
--  5 dicas para recuperar corpo e mente após um fim de semana cansativo
--  Strateg Morgan Stanley oczekuje krótkoterminowego spadku zysków spółek
--  Włochy: państwo nigdy nie zbuduje nowych elektrowni jądrowych
--  Snelle achterstand te veel voor Heerjansdam
--  "България Еър" подарява 21 двупосочни билета за 21 млади пътешественици
--  Частно събитие е предизвикало голямото задръстване на Морска гара вчера
--  Як звільнитися з військової служби за сімейними обставинами: роз’яснення Міноборони
--  “Тезроқ қарор қабул қилишимиз керак” – Саида Мирзиёева алифбо ислоҳини ортга сурмаслик ҳақида гапирди.
--  Blerando: Nuk kam puthur kurrë një shqiptare
--  Princess Cruises Creates Art-Inspired Dining Experience ‘Love by Britto’
--  ALKARAZ OVO NIKAKO NIJE SMEO DA URADI Španac razbesneo Đokovića, sad se gorko kaje
--  Migration: Australien will Einwanderungszahlen halbieren
--  [해설] 창사 이후 첫 공동대표 체제 택한 엔씨…체질 개선 위한 승부수
--  Vorentscheid: «The Voice»-Kandidat Joel beim Luxemburger ESC-Finale dabei
--  75 Prozent der Typ-2-Diabetes-Fälle durch ungesunden Lebensstil
--  Road work for the week of Dec. 11
--  Stvorila se moćna gomilica londonskih jazz glazbenika, a ovaj genijalni bubnjar jedan je od njih. Bubnjati je počeo s 4 godine
--  경찰, 박현종 전 bhc 회장 강제수사…횡령·배임 의혹
--  Pse trenat i bien borive?
--  Where the original cast of Jonathan Creek are now – from Hollywood blockbusters to Game of Thrones
--  Lína og Gummi vildu ekki að fólk vissi að þau væru að hittast – „Við sátum meira að segja í sitthvoru lagi í flugvélinni“
--  Soccerladuma | End Of The Road For South American At Sundowns?
--  HSV-Heimpleite mit Folgen: Jetzt geht es für Walter auch um seinen Job
--  Akauntan ditemui maut tanpa seurat benang di Cheras
--  BREAKING: 27 Rivers Assembly members defect to APC
--  Sadis, Balita 3 Tahun Diduga Dibanting Kekasih Tantenya Hingga Patah Tulang
--  Arma e lidhur me vrasjen e dyfishtë është e në ekspertizë, ndarja e më shumë informatave nuk është e mirë për hetimin, thotë Spasovski
--  Frosinone-Torino, il punto sull’arbitro: Massimi grazia Oyono
--  ARMISA KUČ: Voljela bih da izbjegnemo Sjevernu Irsku, nije me iznenadio Edvinov uspjeh
--  Rocchi ferma Massimi dopo gli errori in Frosinone-Torino
--  （獨家）鍾沛君婚紗照曝光！ 陳布朗公布寶寶性別 被女友1狀況嚇壞
--  كاسك يا وطن
--  Campaña dominicana de solidaridad con Cuba condena bloqueo de EU
--  Венгерские дальнобойщики пускают на границе с Украиной по две машины в час
--  Wajah Baru Alun-alun Lembang
--  Приведен бегалец од затвор баран со потерница
--  Último regalo de Hacienda: te devuelve 4.000 euros si estás en esta lista
--  EC promotes 19 SIs to ASPs ahead of Jan 7 polls
--  Këshill ministror në Shkup për korridoret evropiane dhe politikat transportuese
--  Mercadona abre nuevos centros informáticos en Sevilla, Vigo, Santander y Oporto
--  Австралија драстично ќе го намали бројот на имигранти што ќе ги прима
--  Kłopoty, kłopoty Lecha Poznań. Złe wieści
--  Save on the Google Pixel 8 and 8 Pro with Telia’s Christmas Campaign
--  Rząd Tuska dokona zmian w TVP jeszcze przed Bożym Narodzeniem?
--  Kłopoty, kłopoty Lecha Poznań. Złe wieści
--  Detalji strave kod Komletinaca: Vozač ispao i poklopio ga auto. Putnik odletio na cestu i stradao
--  Θεσσαλονίκη: Από 18 έως 20 ετών οι χούλιγκαν που επιτέθηκαν και λήστεψαν 22χρονο φίλαθλο άλλης ομάδας
--  Системы голосования ЛНР и ДНР готовы к проведению президентских выборов
--  고준위법 표류에…매년 1500억 추가 비용
+-  Nelegálny odpad zo 4 krajín Európskej únie poslali z hranice naspäť, malo ísť o ilegálny prevoz do Rumunska
+-  Zoznam jedál, ktorým sa kardiológovia vo veľkom vyhýbajú: Desivé dôvody prečo
+-  Staviame udržateľne: Akú izoláciu použiť pod zelenú strechu?
+-  Žena si na vyšetrenie magnetickou rezonanciou vzala zbraň, kruto na to doplatila: Poriadny trapas!
+-  Jediná chyba a všetci mohli byť popravení: Fascinujúci príbeh úteku z KĽDR
+-  Kolaps jojkárskej herečky počas natáčania: BOJ O ŽIVOT… Okamžitá OPERÁCIA!
+-  Арести в Дупница по разследване за фалшиви болнични листове
+-  بالفيديو... هذا ما فعلته السفن في مرفأ طرابلس لمدّة 5 دقائق اليوم!
+-  Ce Xiaomi Redmi Note 12 Pro est à prix immanquable avec cette remise
+-  [‘자유지수 최하위권’ 北이 발간한 ‘인권 백서’…“미국·서방이 무참히 인권 유린”
+-  [“박지성도 장미란처럼?” 국민의힘 영입설에 입연 박지성…“가능성 無”
+-  [삼성 계열사 일부 노조도 뭉쳤다…‘초기업 노조’ 설립 추진
+-  [배달앱도 OTT도 ‘쿠팡천하’…멤버십 효과에 고물가 ‘무풍지대’
+-  [종이빨대 업체들, 공동판매 시작…“도산위긴데 정부대책 없어”
+-  [김하성, “상습 폭행” 주장 임혜동 명예훼손 추가 고소
+-  [이낙연, 이상민과 회동…“훌륭한 분들 모아 세력화 필요”
+-  [LCM Partners, Julian Schiller를 자본 솔루션 총괄로 임명
+-  [Azentio Software, IBSi Global FinTech Innovation Awards 2023 수상
+-  [Vantage Markets, 2023 Professional Trader Awards에서 3관왕 달성
+-  [비나밀크, 지속 가능성에 대한 헌신 강조
+-  [BBC 스튜디오, '블루이(Bluey)'의 국내 확장
+-  [CGTN: 중국과 베트남, 인적 유대 강화에 더욱 힘쓰기로
+-  “오나나 진짜 잘 팔았네”... 뮌헨에서 온 대체자, 15경기 10클린시트 신기록 달성
+-  Studenten organiseren De Samenspeelbril in speeltuin Kloosterplantsoen
+-  Fortalecer derechos
+-  金手指丨陳家樂掂梁朝偉獲讚「夠薑」 周家怡與影帝偶像有動作戲直呼：好正！
+-  Erling Haaland’s absence sends Dream Team gaffers into meltdown – how to react to prolific poacher’s injury
+-  Fervor Guadalupano congrega a feligreses y ferieros en El Llano
+-  Repunta 56% intoxicación por plaguicidas en el año
+-  Prevé Canacope más carestía en 2024
+-  Expected PS Plus December 2023 Extra and Premium games reveal date with leaks
+-  Obligatie: Nederland haalt ruim 3,2 miljard op
+-  Julänglar i Motala – en av fem som får julgåva
+-  Et si vous habitiez dans une maison en carton recyclé ?
+-  舞台「悲別」やまぬ拍手 富良野市民「幻の盆踊り」出演 カーテンコールに倉本さんも
+-  FIFA Kulüpler Dünya Kupası'nda heyecan başlıyor!
+-  Трајанов бара oд МВР информација за убиствата на Вања и Панче
+-  Bakanlık uyardı: Emlak ilanlarına dikkat!
+-  Zeytinyağı kalite yarışması başlıyor
+-  Galatasaray'ın Danimarka ekiplerine karşı dikkat çeken performansı
+-  Arbitrage NBA : comment l’améliorer ? || #LaGrosseQuestion
+-  국힘 총선참패 전망 놓고 조선 중앙 문화일보까지 잇달아 경고한 이유
+-  ‘북한 연대사 삭제’ 국정원 요청에 의결 번복한 방심위, 법원이 제동 걸었다
+-  Tesla överklagar i skyltstriden
+-  Em lao vào cứu anh trai bị điện giật, cả 2 bị thương nặng
+-  Ne samo da su ga u Opatiji uhvatili kako vozi sa 2,21 promila već mu je i vozačka istekla još 2020. godine
+-  Apple shuts down app that let Android users send blue-bubble texts to iPhones
+-  생방송 대한민국 2부 (1476회)
+-  Više od 6000 zaposlenika jedne hrvatske kompanije sudjelovalo u ispisivanju božićnih čestitki svojim susjedima
+-  MARKT USA/Etwas leichter erwartet - Macy's mit Kaufangebot +19%
