@@ -1,51 +1,51 @@
 # Latest News
--  Impunes en Chihuahua, 97.1% de delitos
--  2023 KBO 골든글러브 수상자
--  Amora Princess: Ciara ist zum vierten Mal Mama geworden!
--  Pogba í sárum eftir ummæli frá gömlum vini
--  나올 때마다 못하네... ‘日 중원 에이스’ 엔도, 팀 내 최저 평점+하프타임 교체 굴욕
--  Top-Manager bei Signa wegen Verdachts fristlos entlassen
--  Top-Manager bei Signa wegen Verdachts fristlos entlassen
--  استمرار عملية الاقتراع في الانتخابات المصرية لليوم الثاني
--  Velika Britanija: Sunak se suočio s pobunom poslanika zbog...
--  Top-Manager bei Signa wegen Verdachts fristlos entlassen
--  Get tickets to Sarah McLachlan’s 2024 ‘Fumbling Towards Ecstasy’ Tour
--  Take a look back at Timothée Chalamet's most daring 'Wonka'-inspired outfits
--  قريبا.. ميزة جلب الفيديو إلى المساحات الصوتية في منصة إكس
--  New app helps active women understand menstrual cycle for best possible training
--  Macklin Celebrini turning heads at Canada’s world junior camp: ‘He’s already a pro’
--  Bochum: Überfall auf Netto! Täter flüchtet mit Geld
--  1 in 3 US teens ‘almost constantly’ uses social media sites like YouTube, TikTok: study
--  CAF Awards: Amunike shaped my career – Osimhen appreciates former coach
--  Adalet Bakanı Yılmaz Tunç'tan Halil Umut Meler açıklaması: "Soruşturma başlatıldı"
--  Asgari ücrette zam maratonu başladı | 2. toplantı 18 Aralık’ta! Asgari ücret ne kadar olacak?
--  İçişleri Bakanı Ali Yerlikaya'dan Halil Umut Meler açıklaması: "Bu tür olaylar kabul edilemez"
--  Hakem Halil Umut Meler'e saldıranlar gözaltına alındı!
--  Başkan Erdoğan Halil Umut Meler'e yapılan çirkin saldırıyı kınadı!
--  Sportler des Jahres: Freya Burk, Lenny Rubin, HBRS-Fußballer
--  Нижняя палата французского парламента отклонила законопроект об иммиграции
--  Gunmen abduct traditional ruler in Cross River
--  Jangan Terlalu Sering Konsumsi Minuman Soda, Ini Bahayanya untuk Kesehatan
--  Ankaragücü'nden özür mesajı
--  السويد تعلن عدم دعمها لهدنة طويلة الأمد بغزة
--  China’s currency is flexing its muscles
--  China’s currency is flexing its muscles
--  China’s currency is flexing its muscles
--  China’s currency is flexing its muscles
--  Vedení fotbalu mohlo jmenovat Haška. Později ale mimořádné jednání zrušilo
--  MPD Searching For Suspect Who Broke Into Elementary School
--  FT: Lähes puolet amerikkalais­äänestäjistä kokee, että USA tukee Ukrainaa liikaa
--  Foot mondial : sur quelles chaines regarder les matches du mardi 12 décembre ?
--  ‘Miracle’ IDF soldier recalls being shot by Hamas 12 times, then playing dead among fallen comrades
--  وزير دفاع إسرائيل: لا ننوي البقاء في غزة ومنفتحون على الاتفاق مع حزب الله
--  „Leave The World Behind“: Netflix-Blockbuster blendet Hinweis ein – Zuschauer völlig irritiert
--  Desivé správy pre Európu! Zmena klímy spôsobí chaos na celom kontinente: Na pozore sa musia mať aj Slováci
--  Şifa Çolakoğlu: Meclis’in itibarı kalmadı
--  Joe Flacco is doing something no one thought possible
--  Mixco volvió a los entrenamientos
--  Netanyahu crea un grupo secreto para abordar los planes de posguerra en Gaza
--  Police Scotland name 22-year-old who died in crash between car and lorry in Lanarkshire
--  Bürgergeld: Metzger-Meister zornig auf Arbeitslose – „Gehen nicht ans Telefon!“
--  Cody Simpson officially achieves Paris Olympics qualification time to win Queensland 100m butterfly title
--  Aktien New York Schluss: Dow und Nasdaq 100 auf neuem Januar-2022-Hoch
--  Resumen Twitch 2023: Así puedes consultar tu ‘Recap’ de manera fácil
+-  EURO 2032 Türkiye'den alınabilir!
+-  채은성 어디갔어… 페디 누른 오스틴, GG 최다득표 속 숨겨진 비결[초점]
+-  Ofrecen 5 mil dólares de recompensa para hallar a los asesinos de un expolicía venezolano en Miami
+-  La primera marcha contra Javier Milei: “El 20 de diciembre haremos un paro de advertencia”
+-  ¡Saca cuentas! Este es el precio de la canasta básica en los supermercados del país
+-  Le Silence Troublant : L’Inquiétude Grandit Concernant le Sort d’Alexeï Navalny
+-  'एनिमल' पर नहीं थम रहा विवाद, राम गोपाल वर्मा ने 5 प्वॉइंट में समझाई बात
+-  Liberaron en un lugar desconocido de Uruguay a la anaconda más grande encontrada en ese país
+-  Курские предприятия на выставке «Россия» на ВДНХ приглашают на стажировку
+-  Israeli defense chief resists pressure to halt Gaza offensive, says campaign will ’take time’
+-  Buscan garantizar la tranquilidad de los escuinapenses: dan banderazo al operativo Guadalupe-Reyes
+-  Detuvieron a dos hombres que transportaban más de 417 kilos de marihuana
+-  Юрист рассказал, что нужно делать при оформлении на гражданина мошеннического кредита
+-  İnşaat malzemesi sanayisi yerli ürünlerle Türkiye’ye değer katıyor..
+-  Nationalrat will regionalen Personenverkehr verstärkt fördern
+-  سبورتنج يحقق فوزه الأول في بطولة إفريقيا لكرة السلة للسيدات (صور)
+-  إذاعة الاحتلال: الجيش يستخدم قنابل تزن طن في خان يونس بغزة
+-  حملة المرشح السيسي: مشاركة 45%؜ من الناخبين بالانتخابات الرئاسية تعكس وعي المواطنين
+-  These JBL true wireless earbuds are a little less than 50% off today
+-  So viel hat Yeliz Koc im Promi-BB-Container abgenommen!
+-  Canucks swear on Christmas Vacation as top profane holiday flick: Study
+-  Two commissioners swap positions as Gov Radda appoints GM for State Radio
+-  Cristiano Ronaldo llegó a los 50 goles en el 2023 con el Al Nassr
+-  Habitantes de Puerto Píritu sometidos a constantes y largos apagones
+-  Global Youth Issued Statement ahead of the Closing of COP28
+-  Vote now: Bay Area News Group boys athlete of the week
+-  Wall Street renova máximas do ano com inflação e Fed em foco
+-  تسيميكاس: ما يفعله صلاح جنوني
+-  Vera Grabe designada como jefe negociadora del Gobierno en la mesa con el ELN
+-  Wesdome Drilling Continues to Return High Grades Over Mineable Widths From Recently Discovered Zones Both West and East of the Mine Diorite at the Eagle River Mine
+-  Teste de câmera | Fotos com o Galaxy S23 FE chegam perto de topo de linha
+-  Onde assistir aos filmes indicados ao Globo de Ouro 2024?
+-  Câmara reúne 177 assinaturas para instalar CPI do Crime Organizado
+-  Emre Belözoğlu'ndan Halil Umut Meler açıklaması: Çok üzgünüm
+-  Wood Manufacturing Market In Turkey to increase by USD 1.24 billion from 2023 to 2028; The market growth of the residential segment will be significant during the forecast period - Technavio
+-  Wembanyama va provoquer une révolution en NBA ?
+-  Young Thug trial delayed at least a day after co-defendant is stabbed in jail
+-  الجنيه الإسترليني يرتفع مقابل الدولار واليورو
+-  FIAT Brand Celebrates Arrival of All-new, All-electric Fiat (500e)RED in US With 'Inspired' Video
+-  Business Insider「ベンチャーキャピタル業界の新星」2023年版を発表。女性過半数、日本選出ゼロ
+-  Se registró nuevo derrumbe en vía a Machu Picchu; rescataron a turistas
+-  Reencontro de Gigantes: Saiba quem são as lendas confirmadas para o confronto entre São Paulo e Milan
+-  (VIDEO). Miss Tanga muestra sus habilidades con la lengua
+-  Apple’s Dolby Atmos Music bounty could be a disaster for the format
+-  Женщину привязали голой к столбу из-за интрижки сына
+-  В Китае в 500-й раз стартовала ракета семейства Long March
+-  "שוק עוטף" למען חקלאי הדרום והצפון הגיע למרכז הרפואי כרמל
+-  La última de Roger Waters en Colombia: un show enfurecido, floydiano e inolvidable
+-  Juan Carlos Villena asume como nuevo fiscal de la Nación interino
+-  Disney+ And Hulu Combined App Will Offer One Third Of Most Popular Titles In The US: Report
