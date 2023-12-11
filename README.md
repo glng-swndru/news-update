@@ -1,51 +1,51 @@
 # Latest News
--  아워홈 컨세션, 제철 식재료 활용 겨울 신메뉴 4종 출시
--  [08:13 가상자산] 美 12월 FOMC 앞두고 관망세
--  시흥시소래빛도서관, 추위 녹일 따뜻한 독서프로그램 ‘풍성’
--  [인사] 한미글로벌
--  시흥시, 시정연구원 설립한다... 행안부 허가받아
--  동원, HMM 매각 공정성 문제 제기…"법적 대응도 불사"
--  덱스, 번아웃 증상 고백 "너무 감사한 상황임에도 지쳤던 것 같아" [태계일주3]
--  삼성화재 다이렉트 착, 운전자보험 ‘3300’ 플랜 출시
--  박순천, '전원일기 수남이' 강현종과 20년여만 눈물의 재회 (회장님댁)[오늘밤TV]
--  임영웅, 부산 3일간 하늘빛으로…고퀄리티 무대→적극 소통까지
--  '측면에서도 탁월했다'→'뉴캐슬 폭격' 손흥민, 현지 매체 MOM-최고 평점 싹쓸이
--  ‘리그 10호골’ 손흥민, ‘BBC 이주의 팀’ 선정… “SON이 트리피어 교체시켰다!”
--  تراند اليوم : ماذا يحدث لجسمك عند تناول المعكرونة يومياً!
--  تراند اليوم : بالفيديو.. عضو مجلس شورى يكشف تفاصيل مقترح مخالفة مرورية تسمى "غضب الطريق".. ويوضح المقصود بها
--  Prospect of a white Christmas uncertain
--  FARMA VENEZUELA abre sede en Maracaibo
--  الجغبير : ارتفاع الإقبال على الصناعة المحلية بشكل ملحوظ
--  الحرب على غزة ألغت 90% من الحجوزات السياحية في الاردن
--  لبيد: أفضل طريقة لتدمير حماس هي مهاجمة مصادرها المالية
--  Does Canned Tuna Need To Be Rinsed Before Eating?
--  For Easy Holiday Party Cleanup, Use Kitchen Tools That Serve Dual Purposes
--  ไม่เชื่อถือ! ‘แม่ยกปชป.’ ประกาศ ‘หยุดพัก’ เลิกปกป้องพรรคเก่าแก่
--  Al Nassr vs. Al Shabab EN VIVO con Cristiano vía DSports (DIRECTV) por la Copa de Campeones
--  Delincuentes se robaron un taxi en Merca Panamá
--  Trump no volverá a declarar en el juicio por fraude en Nueva York
--  Power cuts and flood alerts: Latest situation in Greater Manchester as region is hit by 24 hours of weather chaos
--  BBC Strictly Come Dancing's Shirley Ballas dismisses 'bias' despite results show move
--  BBC Strictly Come Dancing contestant says 'I adore you' moments after emotional Annabel Croft boot
--  BBC Strictly Come Dancing's Craig Revel Horwood goes against fellow judges after fans spot 'issue' before Annabel Croft exit
--  Conoce por qué Yailin la más viral cerró sus redes sociales
--  Who is in the BBC Strictly Come Dancing 2023 final? Three couples vying for the Glitterball confirmed
--  Man City 'set sights' on Club Brugge winger Tajon Buchanan and other transfer rumours
--  Diogo Dalot blasted for 'disrespecting' Manchester United teammate as Bruno Fernandes defended
--  Who won I'm A Celebrity 2023 after Tony Bellew, Sam Thompson and Nigel Farage final?
--  Motorway closed amid flooding for second night in a row
--  Police appeal for help in search for 14-year-old girl missing for two days
--  ITV I'm A Celebrity viewers spot same issue with Tony Bellew's time in jungle
--  ITV I'm A Celebrity fans react as Sam Thompson crowned 2023 winner after all-male final causes divide
--  ITV I'm A Celebrity 'clue' that named Sam, Tony and Nigel as final three weeks ago
--  ITV I'm A Celebrity viewers say same thing moments after Nigel Farage's exit over Sam and Tony moment
--  Pep Guardiola provides Erling Haaland injury update as Jack Grealish addresses Man City crisis talk
--  ITV I'm A Celebrity fans say 'it sent me' as they're stunned by moment in Sam Thompson's final trial
--  Italie: au moins 17 blessés légers après une collision entre deux trains dans le nord-est du pays
--  حط له السم في السندويتش".. تفاصيل مقتل طفل على يد زميله بأكتوبر
--  حملة المرشح الرئاسي عبدالسند يمامة: الإقبال على الانتخابات غير مشهود
--  فوائد الطين الطبي للبشرة .. تعرفي عليها
--  مع اقتراب رحيل موديست الأهلي يتحرك لضم المهاجم المغربي في يناير
--  هل يعود للدوري المصري.. طارق حامد يحسم موقفه من الانتقال إلى الزمالك
--  Tri-State Area residents celebrating Hanukkah pleading for release of more hostages from Gaza
--  Washington Post: ABD kendi yasalarını gözetmeden İsrail'e on binlerce ton bomba verdi
+-  เอเอฟซีสั่งแบน 3 แข้ง "บุรีรัมย์" จากเหตุวุ่นวายหลังเกมกับ "เจ้อเจียง"
+-  สัปดาห์ที่ 2 ลงทะเบียน "หนี้นอกระบบ" กว่า 8.27 หมื่นคน มูลหนี้รวม 4.36 พันล้าน
+-  Попето със специални благодарности след края на футболната година
+-  Presupuesto y recorte de gastos, la causa del conflicto en el TEPJF: Rodríguez Mondragón
+-  فريق طبي مصري يجري 10 عمليات لتشوهات قلب أطفال في زليتن
+-  하나금융, DJSI 최상위 등급 ‘월드지수’ 2년 연속 편입
+-  채권전문가들, 이번주 FOMC 매파 동결…가팔랐던 금리 조정 요인
+-  올해 부산항 컨테이너 물동량 2275만TEU '사상 최대' 전망…세계 7위 수준
+-  Australians facing critical shortage of dozens of medicines, Therapeutic Goods Administration warns
+-  وفاتان داخل مراكز الاقتراع بالانتخابات الرئاسية في مصر
+-  غوتيريش: مصداقية مجلس الأمن تضررت
+-  49ers' Deommodore Lenoir, Seahawks' DK Metcalf ejected after late scuffle
+-  월드'글래스' 리스 제임스, 전반 27분 만에 교체 아웃… "햄스트링에 뭔가 느꼈다"
+-  압타바이오 “코로나19 치료제 개발 미국 임상2상 자진 중단”
+-  동성제약, 도봉구에 장학금 및 성품 기부
+-  [신경과] 삶에서 수면이 중요한 이유
+-  Taylor Swift looks downcast as she watches boyfriend Travis Kelce's Chiefs fall behind at the half to the Bills - at the end of a momentous week where she was named TIME's Person of the Year
+-  NBM starts renovating Unima, Luanar Basketball courts
+-  Football. L'Olympique de Valence perd... 13-0 en Coupe de France féminine !
+-  Football . Ligue 1 : comment Alexandre Lacazette a complétement relancé l'OL dans la course au ...
+-  Isère - Savoie - Haute-Savoie. Vigilance orange : jusqu'à 24 heures de pluie non-stop... Voici ce qui ...
+-  Haute-Savoie. « Vivre avec 600 € est quasiment impossible » : elle est passée d'un emploi à ...
+-  Annecy. Un rugbyman de 25 ans victime d'un arrêt cardiaque
+-  Drôme. Une mère de famille égorgée devant ses enfants : son ex-conjoint devant les assises
+-  Haute-Savoie. Accident mortel à Brenthonne : après une détention provisoire, la conductrice sous ...
+-  Drôme. Après l'incendie de leur logement, ce couple de Romanais n'a « nulle part où dormir »
+-  Lyon. Éjectée du centre de formation de l'OL : la victoire judiciaire amère de Lina
+-  Semifinales Apertura 2023 AL MOMENTO: Pumas busca remontar ante Tigres en el Volcán
+-  Smaller parties demand too much share
+-  В Москве произошел пожар в Российской государственной библиотеке
+-  Gophers land transfer commitments from four players, including Indiana running back
+-  Inside Tegan Kynaston's lavish birthday celebrations: Kyle Sandilands splashes the cash to recreate famous club in St. Tropez at a private home in Sydney for his wife as she turns 38
+-  “12.12: The Day” Cast Thanks Audiences After Film Surpasses 7 Million Moviegoers In Less Than 20 Days
+-  Heavy rain to continue across parts of UK after weekend washout
+-  Zardari urges UN to play its role in protecting HRs
+-  Banh mi and a new book: What an ER doctor on $86,000 spends in a week
+-  Banh mi and a new book: What an ER doctor on $86,000 spends in a week
+-  Vợ nội trợ Dubai tiết lộ 6 điều làm chồng triệu phú "phát điên": "Nếu anh làm tổn thương em, em có quyền tiêu tiền của anh tùy thích"
+-  BG "Локо" (Новосибирск) с нова победа в Русия
+-  Supreme Court May Soon Consider EPA’s Veto of Huge Alaska Mine
+-  Humanoid robots are doing some lifting in Amazon's warehouses. But is the human form the ideal shape for the task?
+-  [속보] 창원 봉암동서 차량 전복사고...40분째 정체
+-  Australian government continues to advertise on X after Elon Musk’s anti-Semitic post
+-  [인사] 국민권익위원회
+-  Jovem ferida em despiste de carro que capotou em Ponte de Sor
+-  Canucks: Why Sam Lafferty has been able to punch his top-six ticket
+-  Chemist Warehouse in mega $9BILLION merger: Here's what it means for Aussie customers
+-  وجود وشركاء دوليين يدشنون انعقاد القمة النسوية السادسة في عدن
+-  عاجل.. رواتب تصل لـ 9 آلاف ريال .. وظائف شاغرة في غرفة المدينة المنورة
+-  Autoridades aseguran más de 1.7 millones de dosis de cristal en Altar
