@@ -1,51 +1,11 @@
 # Latest News
--  Atatürk Orman Çiftliği'nden kadın kooperatifleri ve üretici birliklerine destek
--  Zeytinburnu Fotoğraf Yarışması sonuçları açıklandı
--  Sözde cephane sorumlusu etkisiz hale getirildi
--  Abdullah Avcı ile deplasman sorun olmaktan çıktı
--  Depremde 81 kişinin öldüğü binada "özensiz işçilik" tespit edildi
--  Beşiktaş'tan şok karar!
--  Dikkat! Meteoroloji'den 3 ile uyarı: Kuvvetli yağacak
--  TMC leader Mahua Moitra moves Supreme Court against her expulsion from Lok Sabha
--  Article 370 verdict: Nobody will be happy with SC decision in J&K, says Azad
--  I-T raids on Odisha distillery enter 6th day, Rs 353 cr recovered so far
--  `India to take quantum jump during current period, we have to work 24 hs a day`
--  GentleWave CBD Gummies Controversial Warning 2023-24 Hoax EXPOSED Gentle Wave
--  How Anushka Sharma and Virat Kohli kept their wedding a secret
--  Guide to finding the perfect bridal lingerie for the wedding season
--  पश्चिम बागलुङवासीलाई उत्तरगङ्गा आयोजनाको आश
--  सर्दियों में घर पर कम मसाले में बनाएं ये वेजिटेबल पनीर, स्वाद लाजवाब होगा
--  Жанна Бадоева заменит Галкина в шоу «Лучше всех!» на Первом канале
--  FanDuel to Launch in North Carolina Through PGA Tour Partnership
--  В Москве воспитатель обнаружила на теле ребенка похожие на ожоги следы
--  Kaip išvengti mirties nuo diabeto? Mokslininkų atsakymas
--  الخطة الشاملة شرط لإصلاح المصارف
--  «Появился новый лозунг МТЗ»
--  Syrop z buraków na odporność. To się dzieje jak pijesz syrop z buraka! Podpowiadamy, jak zrobić syrop z buraków na odporność 11.12.2023
--  Dallas zlahka ugnal Philadelphio in se izstrelil na vrh divizije
--  Dallas zlahka ugnal Philadelphio in se izstrelil na vrh divizije
--  Джонатан Куик с първа победа над бившия си отбор Лос Анджелис
--  Chi è Lorenzo Zurzolo, l’attore “tra gli uomini più belli del mondo”
--  «الاستئناف» بحكم بات: الأطباء وأصحاب المهن لا يشملهم الإفلاس
--  Promise Omoro wins HOWASA 5km marathon race in Calabar
--  MNOGI ĆE VAS IZNENADITI: Ovo je 10 najtraženijih pojmova na Vikipediji ove godine
--  Barbara De Rossi e Simone Fratini si sono sposati: i dettagli delle nozze
--  Kerstmarkt in Heerjansdam
--  Sjáðu myndbandið sem Sveppi birti í gær: Eiður Smári logandi hræddur – „Ég held að hjartslátturinn minn sé í svona 186“
--  ‘LG 외인 첫 황금장갑’ 오스틴, 페타지니 아성 넘어섰다[스한 이슈人]
--  '이변은 없다' 양의지, GG 통산 9회 수상… 포수 역대 최다 GG 달성
--  الدبيبة يجدد ترحيبه بمبادرة باتيلي بشأن عقد اجتماع خماسي لحل الخلافات بشأن الانتخابات
--  CAF Awards 2023: Le football marocain bien placé pour briller à Marrakech
--  COP28: course contre la montre pour un accord sur l’énergie fossile
--  Türkiye Dil ve Edebiyat Derneği’nde yeni yönetim
--  Danimarkalı yönetmenden Filistin’e destek
--  Devlet sanatçısı Prof. Dr. Nevzat Atlığ vefat etti
--  Les Experts : Industrie, l'Europe a-t-elle perdu la bataille ? - 11/12
--  Motokuryelere yönelik yeni düzenleme: Yetki belgesi aranacak süre taahhüdü sona erecek
--  FW-Generalsekretär Langthaler: Aktuelle, absurde Anträge der 'Grünen Wirtschaft‘ zeigen deutlich die Regierungsuntauglichkeit!
--  Tak Mau Disungkemi Adiba Khanza, Adab Abidzar Al Ghifari Jadi Sorotan
--  Kajol: ਕਾਜੋਲ ਨੇ ਲਹਿਰਾਇਆ ਸਾੜੀ ਦਾ ਪੱਲੂ, ਪ੍ਰਸ਼ੰਸਕਾਂ ਦੇ ਦਿਲਾਂ 'ਚ ਵੱਜੀਆਂ ਘੰਟੀਆਂ, ਕਿਹਾ- 'ਤੁਮ ਹੁਸਨ ਪਰੀ...'
--  조선일보도 우려하는 ‘특수부 검사’ 방통위원장
--  गावस्कर ने अफ्रीका क्रिकेट बोर्ड पर साधा निशाना, कहा- झूठ बोल रहे….
--  من داخل الباركينغ.. إطلالة مُثيرة لملكة جمال لبنان السابقة (صور)
--  Mercedes Rus, nueva Ministra de Seguridad y Justicia: «Tenemos grandes desafíos que tienen que ver con robos y hurtos de autopartes»
+-  Куди цьогоріч тікали на зимівлю росіяни: перелік країн
+-  Thanh khoản bất ngờ giảm mạnh, cổ phiếu phân hóa
+-  Atina Bildirgesi neden başarıya ulaşmalı?
+-  #CANLI Cumhurbaşkanı Yardımcısı Yılmaz açıklamalarda bulunuyor
+-  Joburg EMS on high alert as city braces for inclement weather
+-  Due to water scarcity in Sandton, 'Momo's Magical Adventures' put on hold
+-  Hostage situation at Modder East mine 'still a volatile situation' - Gold One
+-  최대 격전지 유격수 GG… '34표차' 박찬호 제친 오지환, 2년 연속 골든글러브 수상
+-  SC's Verdict On Abrogation Of Article 370 Is Beacon Of Hope: PM Modi
+-  Record Cash Seizure Of Rs 351 Cr In Income Tax Raids On Odisha Distillery, Owned by Congress MP's Family
