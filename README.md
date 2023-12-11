@@ -1,11 +1,51 @@
 # Latest News
--  “의료급여 환자 발목 맥파 속도로 심혈관 질환 발생 예측”
--  유전자 편집 치료제 ‘카스거비’ 미국서도 허가 취득 ... 1회 투약 29억 원
--  무정형단백질로 고기능 생체소재 개발
--  갑상선 기능 장애가 노쇠 위험 높여
--  Chàng trai Hà Nội kể chuyện bỏ nhà, bỏ việc sửa "penthouse": Dự tính khoảng 10 triệu, chọn tự tay làm hết để tiết kiệm chi phí
--  광명시, 안양천 지방정원 조성 ‘가속도’
--  광명시 ‘2023년 10대 뉴스’ 시민 온라인 투표 진행
--  남양주시, 2024 경기정원문화 박람회 최종보고회 개최
--  군포시의회, 그림책꿈마루 위탁운영비·군포철쭉축제 예산 증액 비판
--  수원도시공사, 보건복지부로부터 지역사회공헌 인정받아
+-  LGBTQ+ veterans criticise government for scrapping debate on ‘appalling’ gay ban
+-  Kenapa bukan Liza Hanim? Netizen ‘meroyan’ Jaclyn Victor juara
+-  Rishi Sunaks Migrationspolitik erhält prominenten Gegenwind
+-  Bantu Fuji, Sikap Rendah Hati Happy Asmara Tuai Pujian
+-  ¿Les echó la sal? Alan Pulido fue invitado de honor en el Bills vs Chiefs de la NFL
+-  [서울시, 경력보유여성 지원으로 751명 취업·창업성공
+-  [모델솔루션, 글로벌 산업용 AR 디바이스 시장 공략
+-  জেঁকে বসছে শীত
+-  Vodafone 3G network to shutdown across Australia this week as Optus, Telstra to follow
+-  Police investigating after woman, two children found in critical condition in Scarborough
+-  Doha Festival City Sponsors the 4th Edition of the Qatar Balloon Festival
+-  Mata a su esposa y se suicida
+-  ЕС не планирует проведение военных учений с Арменией
+-  Draft Format Debat Capres Cawapres dari KPU Dikritik
+-  Ерларни чиқиндилар билан ифлослантириш БҲМнинг 10 бараваридан 15 бараваригача миқдорда жаримага сабаб бўлади
+-  Bacaan Ayat Seribu Dinar, Pembuka Pintu Rezeki
+-  ‘प्रतिबद्धता अनुसार काम गर्दै छु’
+-  ‘जनता स्वावलम्बी बनाउन लागेका छौँ’
+-  Dónde está la bodega que vende luces navideñas desde 25 pesos en la CDMX
+-  Arrancó “Navidad en mi Ciudad” con encendido del árbol y concierto de Matisse
+-  Aİ Ermənistanla hərbi təlimlər keçirmək niyyətində deyil
+-  Власти Британии создадут структуру надзора за соблюдением санкций против России
+-  Kinabörserna backar – Japan på plus
+-  TikTok announces $1.5 bn deal to restart Indonesia online shopping business
+-  Cuándo fue la úlima vez que El Chapo Guzmán abrazó a su mamá, Consuelo Loera
+-  Εορταστικό ωράριο: Ποιες Κυριακές θα είναι ανοιχτά τα καταστήματα
+-  Расчеты дронов уничтожили позиции ВСУ на Купянском направлении
+-  Comunidad internacional latina presenta felicitaciones a Javier Milei por su victoria en elecciones
+-  Todos los looks de la gala en el Teatro Colón por la asunción de Javier Milei
+-  Tooth Model Market by Types, Applications, Manufacturers, End User - Global Forecast 2023-2029
+-  Driver killed when train crashes into truck on the North Shore line in Geelong
+-  प्रधानमंत्री मोदी आज युवाओं को प्रदान करेंगे नया मंच ‘विकसित भारत@2047: युवाओं की आवाज’
+-  El video de un tipo que cocina camarones en el baño de un avión te dará mucho qué pensar
+-  ‘จุฬา’ เร่งเครื่องอีอีซีเข็นไฮสปีดเชื่อมสามสนามบินตอกเสาเข็ม ม.ค.67
+-  राष्ट्रपति द्रौपदी मुर्मू आज और कल उत्तर प्रदेश में,पहले पहुंचेंगी वाराणसी
+-  Алесандро Флоренци: В сряда или ще влезем в Европа, или ще се съсредоточим изцяло върху Серия “А”
+-  Cuộc sống tối giản của chàng trai 28 tuổi người Nhật: Cả năm chỉ mua đúng 1 món đồ, tiết kiệm hơn 21 triệu/tháng
+-  Агент Мендеш уверен, что 17-летний полузащитник «ПСЖ» Эмери может выиграть «Золотой мяч»
+-  महंगा लोन-महंगे मकान, क्या आप भी नहीं खरीद पा रहे घर, जानें कब बदलेंगे हालात?
+-  Bloody Clash in Mexican Hamlet Kills 4 Villagers and 10 Gunmen, Including Drug Cartel’s Leader
+-  Mit neuen Ritualen raus aus der Weihnachts-Zwickmühle
+-  Erneuerbare Energien: Glänzende Jobchancen für Azubis?
+-  Liniert bis kariert: Eigenes Papier ganz nach Bedarf bedrucken
+-  Im Job: Darf ich Weihnachtsgeschenke von Kunden annehmen?
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
+-  ‘He is really important’: Cripps backs favourite son in selection squeeze
