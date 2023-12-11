@@ -1,51 +1,51 @@
 # Latest News
--  נטפליקס נגד אילון מאסק: מה יקרה ביום שטסלה אוטונומיות ישתגעו
--  טליה טסלר מונתה לסמנכ"ל משאבי האנוש של קבוצת Yael
--  В Таджикистане приняли закон «О сохранении ледников»
--  “Баъзе ҳуқуқҳои инсон, албатта поймол мешаванд”. Сокинони пойтахт оид ба риояи ҳуқуқи инсон дар Тоҷикистон чӣ назар доранд?
--  SC verdict sad & unfortunate; but we have to accept it: Azad
--  Global Digital Asset Management (DAM) Software Market Demand, Research, Monetary Policy, and Top Leading Player to 2028
--  UEFA Şampiyonlar Ligi'nde 6. hafta heyecanı yarın başlıyor
--  O&O-dames drie ver in de prijzen
--  Mısır’da seçim devam ediyor! Sisi ve üç rakibi yarışıyor
--  제주도의회 올해 마지막 회기...4·3평화재단 조례 처리 '주목'
--  Bursa'da patenle ölüme yolculuk
--  Bir başka olur çocukların pazar yeri
--  Bursa'nın şampiyon arıları...
--  Üniversite öğrencilerine silahlı tehdit
--  Kış depresyonu nedir? Belirtileri nelerdir?
--  Yolcu taşıdığı otobüsle nikahına geldi
--  İpek kirpik nedir?
--  Tarihte bugün neler oldu?
--  Sanayi üretimi belli oldu
--  Antalya'da taksicilerin indi-bindi ücreti uygulaması tartışma yaratıyor
--  İşsizlik rakamları açıklandı
--  Tarihte bugün vefat edenler kimler?
--  Tarihte bugün doğan ünlüler kimler?
--  Adana'da bıçaklanıp yolun ortasına atıldı!
--  Cumhurbaşkanı Erdoğan bugün 369 tesisin açılışını yapacak
--  Borsa haftaya yükselişle başladı
--  Kocaeli'de karbonmonoksit gazından etkilenen anne ve 3 çocuğu hastaneye kaldırıldı
--  ABD'ye ait F-16, Güney Kore açıklarında düştü
--  Muğla'da 136 düzensiz göçmen kurtarıldı!
--  Eşinden ayrılan adam kendini yaktı
--  Uluslararası Dağ Günü nedir, ne zaman?
--  UEFA Şampiyonlar Ligi gruplarında son maçlar oynanacak
--  Libya'da AVM'ye aslanla girdi
--  Galatasaray, Kopenhag deplasmanında gruptan çıkma peşinde
--  Bağdat Caddesi'ne yine yarı çıplak çıktı! Melisa Aydınalp'in pankartını yırtıp yere attılar
--  İkinci el araba satışında 6+6'ya devam!
--  Bursa Orhangazi'de ulaşıma 4 Yılda 102 milyonluk yatırım
--  Bursa'da eğlence mekanlarında yılbaşı özel fiyatları ne durumda?
--  Eskişehirspor şampiyonluk yolunda rakip tanımıyor
--  에이럭스, 게임 기반 코딩형 로봇 ‘익사이팅’ 출시
--  Global Meat, Poultry, and Seafood Packaging Market is projected to reach the value of USD 44.27 billion by 2030
--  Nieuwe inspeelshirts Masters Volley Meerkerk van XPRTZ uit Utrecht
--  Offset Refutes Blueface’s Cheating Allegations Amid Cardi B Instagram Drama
--  Nieuwe inspeelshirts Masters Volley Meerkerk van XPRTZ uit Utrecht
--  פאו מתכוננת ל"גמר": "מי שחושב שמכבי חיפה זו משימה קלה, טועה"
--  "הייתי היסטרית והשתניתי. אין לי פחד מהמוות יותר": הריאיון המצמרר של עדנה מזי"א
--  Xavi zabiera głos po blamażu Barcelony. Prosto z mostu o Lewandowskim. Ma dość "obwiniania"
--  El récord del gallego de Etiopía que cambiará las "injustas" ayudas al maratón: "Las zapatillas no corren solas"
--  Uludağ'ın 'Uyuyamayan' ayı ailesi kendilerini rahatsız eden köpeğe saldırdı
--  Jurčić pohvalno o Karoglanu, a kritično o Dinamu: To je znak za paljenje svih alarma
+-  파도 사진 찍는 진사들
+-  빗물 고인 이호포구 산책
+-  유보통합 소통의 장 개최
+-  제주 신혼부부 1000쌍 가까이 줄어…맞벌이 최고
+-  Filistin Kızılayı insani yardım yüklü 100 kamyonu teslim aldı
+-  Şampiyonlar Ligi'nde 6. hafta yarın başlıyor
+-  İskoçya Başbakanı Yusuf'un Cumhurbaşkanı Erdoğan'la görüşmesi İngiltere'yi rahatsız etti
+-  Sanayi üretiminde yüzde 1,1'lik artış
+-  Cumhurbaşkanı Erdoğan 369 tesisin açılışını yapacak
+-  Cari denge ekim ayında 5.6 milyar dolar fazla verdi
+-  إضراب شامل في الضفة الغربية احتجاجا على استمرار الحرب على قطاع غزة
+-  „În România intră produse din lapte care nu au văzut laptele”. Ministrul Agriculturii are un sfat pentru români
+-  기정예산 2775억 ‘싹둑’ 제주도 정리추경 심사 돌입
+-  가정폭력 피해자 진술 반복 고충 경감
+-  Kickoff | Pyramids coach: We deserved better against Sundowns
+-  Центар за обуки на администрацијата, тестирања за новите државни административци
+-  Kickoff | 'He has all the conditions to be an exceptional player'
+-  Veľké FINÁLE jojkárskeho Talentu: Hudák prvýkrát ukázal NOVÚ lásku a... TOTO je VÍŤAZ!
+-  SHMÚ upozorňuje na hmlu, poľadovicu, snehové jazyky i vietor na horách
+-  Vodiči, POZOR! ZLODEJI za pár sekúnd KRADNÚ autá už aj na SLOVENSKU: Vynašli NOVÚ neviditeľnú TECHNIKU! Vieme, ako sa chrániť
+-  Vianočný kávový test: Ako vybrať darček pre každého kávičkára
+-  Rodičov pobúril vulgárny odkaz na letisku: Pozrite, čo na kufor ich malého syna napísal pracovník
+-  36-åring startar nytt företag i Örnsköldsvik
+-  В «Динамо» подтвердили интерес «Црвены Звезды» к Бувачу
+-  Экс-замглавы МО Украины сообщила о сложном положении ВСУ на пяти направлениях
+-  '로메로랑 같이 서면 선수들 실려 나간다' 토트넘, ‘더티 플레이 장인’, 에버튼 벤치 수비수 영입 고려
+-  김혜성, 2023 KBO 페어플레이상 수상자로 선정...키움, 2년 연속 수상자 배출
+-  '더비 라이벌로 간다고?' 맨시티 계륵 MF, 맨유 최우선 영입 대상 됐다
+-  8만5천달러→60만 달러 '코리안드림' 이룬 도슨, 키움과 2024시즌 재계약 체결
+-  안산, 유소년 테크니컬 세미나 개최… 경기력 리뷰와 계획 공유
+-  한미약품 “백혈병 신약 ‘투스페티닙’, 단독·병용요법 모두 효과 탁월”
+-  국내 조선 3사, 해외 생산 거점 확보 나서…일부에선 기술유출 우려
+-  Sarajevo najefikasnije u 17. kolu, najveća posjeta na Grbavici
+-  임형철 국고국장 “연물별발행 기존 ±5%에서 ±3%로 축소”
+-  إيكاترينا.. من هي منافسة بوتين في سباق الكرملين؟
+-  عمان العربية السابعة محلياً وضمن أول 500 جامعة على مستوى العالم في تصنيف Green Metric
+-  ممثلو الادعاء الأمريكي يطلبون عدم تأجيل محاكمة ترامب
+-  Daily News Briefing
+-  Cristiano Ronaldo foi o atleta mais pesquisado no Google nos últimos 25 anos
+-  Nowi siatkarze w klubach PlusLigi. Transfery w trakcie sezonu 2023/24
+-  Uniforme à l'école : Perpignan concernée, date de début, durée, tenue, coût pour les familles... on en sait plus de l'expérimentation voulue par Gabriel Attal
+-  동서발전,‘2023년 안전문화대상’국무총리 표창 수상
+-  국회 과학기술정보통신위, 통신비 지출 절감 정책 토론회 개최
+-  경기도, “노후계획도시 특별법, 국회 통과 환영”
+-  Дневен хороскоп за понеделник, 11-ти декември 2023-та
+-  Wapenbord en chocoladeletters van en voor buren IHC en Kinderdijk
+-  'Muziek op School' weer van start in Giessenburg
+-  How removing bureaucracy in recruitment saved EKSUTH from Japa effect – CMD
+-  Slovensko: Agentura Fitch snížila rating o jeden stupeň na „A-“
+-  Посол в Израиле заявил, что несколько десятков россиян ещё не вышли из Газы
