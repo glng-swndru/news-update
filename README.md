@@ -1,51 +1,11 @@
 # Latest News
--  Huawei’s Core Network Autonomous Driving Network Ranked No.1 by ABI Research
--  Jason Holder, Kyle Mayers, Nicholas Pooran decline West Indies central contract offers
--  Former NZ batter Vincent has life ban for match fixing relaxed by ECB
--  NST Introduces aircraft ground guidance control system utilizing cutting-edge IT technology
--  US provides $77 million aid to support Afghan refugees in Pakistan
--  ULFA-I claims responsibility of two grenade blasts in Assam, threatens further attacks
--  Huawei představuje mobilní 5nm procesor Kirin 9006C s taktem 3,13 GHz
--  TCL ukázal 27" 8K monitor i dvojitě zakřivený 31" model
--  Vodou chlazená RTX 4090 od Aceru v sestavě Orion X moc nepřesvědčila: hlučná a horká
--  Palandöken Kayak Merkezi'nde sezon açıldı
--  Seneste nyt om krigen i Ukraine og situationen i Rusland – følg med her
--  Seneste nyt om krigen i Ukraine og situationen i Rusland – følg med her
--  Itt a teljes lista, ezek a legjobb alapítványi középiskolák Magyarországon 2024-ben
--  CEFR: Apa jaminan tak bercanggah dengan akidah Islam?
--  Israel og Hamas er i krig. Her er seneste nyt
--  Israel og Hamas er i krig. Her er seneste nyt
--  Prabowo Subianto Promises to Continue Jokowi's Downstream Ambition
--  Próba stabilizacji notowań ropy
--  Watch: Members of new K-Pop boy group Ampers&One cover ‘Chaleya’ song ‘Jawan’
--  Australia announce U19 Cricket WC squad, captain yet to be named
--  Novi tjedan počinje s južinom i porastom temperature. Doznajte što nas čeka u ostatku tjedna
--  Horoskop für heute: Montag, 11. Dezember 2023 – für alle Sternzeichen
--  Annesini öldürüp babasının yanına giderek cinayeti itiraf etti
--  81 ilde aranan şahıslara yönelik 'Çember' operasyonu: 4 bin 951 firari yakalandı
--  XRP Price Analysis: XRP Drops Again, Can This Support Hold?
--  Hegyi Gyula: Hogyan kerülték el a grúzok az ukránok tragédiáját?
--  Griechenland: Frau von drei Schäferhunden totgebissen
--  Cottbuser Trampolin-Synchron-Weltmeister Caio Lauxtermann: "Zu wissen, ich bin in einer Sportart der Beste der Welt, ist unbeschreiblich"
--  Griechenland: Frau von drei Schäferhunden totgebissen
--  ¿Qué tan efectivo es el romero para el crecimiento del pelo?
--  FIH Hockey Women’s Junior World Cup: Netherlands beat Argentina on penalties to win fifth title
--  سرائے عالمگیر: تیز رفتار ٹرک نے دو کاروں کو کچل ڈالا،ایک جاں بحق
--  Lima Tahun Memimpin Kota Probolingo, Habib Hadi 100 Persen Penuhi Janji
--  Dollar to PKR – Today USD to Pakistani Rupee
--  Pacific Island police ministers, delegates enter high-level security talks with China in Beijing
--  Rocking new dos
--  Νέα μέτρα για την αντιμετώπιση της οπαδικής βίας ανακοινώνει σήμερα η κυβέρνηση : Τι συζητήθηκε σε σύσκεψη στο Μαξίμου
--  Po ropu pobasal denar in pobegnil, še vedno ga iščejo
--  Israeli Soldiers Wounded In Hezbollah Drone Attack
--  In 14 Stunden an die Seine: Nachtzug Berlin-Paris startet am Montagabend
--  Dallas Cowboys beat Philadelphia Eagles to draw level in NFC East
--  Dallas Cowboys beat Philadelphia Eagles to draw level in NFC East
--  Délégation israélienne de dirigeants professionnels du Cyber. Ygal Unna, ex- directeur général de la Haute autorité du Cyber d’Israël.
--  Gyvybės langelyje Kaune rasta dvejų metų mergaitė
--  U Španjolskoj marševi potpore Palestincima na međunarodni dan ljudskih prava
--  Yağışların ardından Akkaya'da yapay gölet oluştu
--  So ist die Verkehrslage in der Region Hannover am Montag, 11.12.2023
--  Hamas: Filistin halkının kendi kaderini tayin etme hakkına bağlıyız
--  На Київщині є руйнування через ракетний удар
--  Realizan en Cuba juicio público a ciudadanos que atentaron contra la tranquilidad ciudadana
+-  [힐튼, 우마나 발리와 함께 동남아시아에 LXR 호텔 & 리조트 공식 오픈
+-  [예술인 고용보험 3년 만에 21만명 가입…내달 2일까지 자진신고
+-  [층간소음 새아파트 입주 못한다…심각하면 단지명도 공개 [부동산360]
+-  [충남도, 청소년 안전·저상버스 등 인권 증진 방향 공유
+-  [사업전환도 대중소 상생으로…중기부,제1호 대중소 상생형 공동사업전환 승인
+-  [‘보이스피싱 예방’ 솔선한 농협은행…금융위원장 표창 수상
+-  [“18세에 다시 혼자”…삼성, 2만 명의 보호청소년 자립에 손 내밀다
+-  [‘친중 진영’만 나온 홍콩 구의원선거…투표율 27.54% ‘역대 최저’
+-  [이준석 "내년 여당 83~87석...김기현 당연히 물러나야"
+-  [폴란드 하원의장 “前정부 계약 무효 가능성”…K방산 불똥 우려
