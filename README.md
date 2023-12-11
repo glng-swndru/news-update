@@ -1,11 +1,51 @@
 # Latest News
--  La criptoindustria tienta a la banca para acelerar la adopción del bitcóin
--  Mit Anbaugerät: Vervaet Hydro Trike Gülleselbstfahrer für 345.100 Euro #maschinedestages #gebrauchtmaschine
--  Zuckerrüben-Ernte im Schnee: Mit Roder und Maus in den Winter #rübenernte #zuckerrübe
--  Bilder vom BTD Plus pro Sägespaltautomaten für den Lader #brennholz #forst
--  ACX Partners with B3 Connecting Brazil to the Global Carbon Markets
--  ChuanQi IP Launches Teaser Site for
--  인텔, ‘IEDM 2023’서 차세대 반도체 공정 로드맵 공유
--  Disinfecting Cap for Needleless Connector Market Will Create Highest Returns by 2028 along with Russia-Ukraine War Tracking Analysis
--  브랜뉴뮤직, 소속 가수 총출동한 캐롤 오늘 발매 '화이트 크리스마스'
--  온앤오프, 첫 캐나다 투어 포스터 공개
+-  Daň z nemovitostí stoupne. Experti řekli, jak ji dál vylepšit
+-  จับ 11 ชาวบังกลาเทศ ใช้ไทยเป็นทางผ่านปลายทาง "มาเลเซีย"
+-  ‘I’ve got no dramas’: Lyon extends olive branch to Johnson
+-  ‘I’ve got no dramas’: Lyon extends olive branch to Johnson
+-  নিজেকে আকর্ষণীয় করে তোলার এই ৭ বৈজ্ঞানিক উপায় জানতেন?
+-  Ten titles to delight the littlest readers this Christmas
+-  Firms keep hiring despite downturn in business activity
+-  City of Glasgow College: row over lecturer's 'Nazi' symbols
+-  সিটির পর এবার উড়ন্ত আর্সেনালকে থামাল অ্যাস্টন ভিলা
+-  South African Bell sounds early warning in Classic Rally
+-  '쟤 왜 출전시켰어?'…SON에게 무너진 잉글랜드 국대 윙백→뉴캐슬 감독도 비난
+-  "꿈에서라도 보고 싶어"…이상민→정형돈, 눈물의 사모곡에 '애도 물결' [종합]
+-  '미끼' 백진희(Baek Jin-hee), "성폭력 피해자 주영이가 되기 위해 매일 일기 썼다" [MD동영상]
+-  에이드리븐, ‘2023 올해의 광고 PR상’ 금상 수상
+-  박명수 "박원도 '토크 콘서트' 참여…게스트만 30명, 고척돔 예약금 걸겠다" [라디오쇼](종합)
+-  '알쓸별잡' 김상욱 교수 ‘라디오스타’ 출연, “악마의 속삭임에 넘어갔다”
+-  대한항공xSSG 랜더스, 인천사회복지공동모금회에 공동 기부금 전달
+-  Princess Diana's 1995 BBC interview with Martin Bashir
+-  Princess Diana's 1995 BBC interview with Martin Bashir
+-  "서울살기 힘드네"...서울 아파트 월세 평균 100만원 돌파
+-  구미도시공사, 고아폐수처리장 '최우수 운영시설' 선정
+-  OPEC Pursues Charm Offensive at COP28, for Youths
+-  2년 전 SON 밟았던 그 선수! 토트넘, 올 시즌 PL ‘1분 출전’ 수비수 노린다
+-  21-Year-Old SDF Personnel Arrested on Suspicion of Killing Elderly Man in Kyoto: “I would have Killed Anyone”
+-  양산·양산목련·통도라이온스클럽, 식료품 후원
+-  영산대, 챌린지 비 스마트 사업 완료
+-  대선주조, 브랜드 이미지 제고 위해 경성대와 산학협력
+-  경남교육청, 전문상담사 역량 강화 연수
+-  경남교육청, 하반기 직업교육 혁신지구 공동연수회
+-  경남교육청, 제5회 경남인권포럼 개최
+-  KoELSA 문병연 상임감사 사회공헌활동
+-  건강보험공단, 금연·절주 대학생 서포터즈 수료식
+-  경남농협 2023년 상호금융 우수직원 표창
+-  Соперник Шавката Рахмонова объяснил происхождение своего прозвища
+-  포항시, '호미곶 한민족 해맞이 축전' 준비 상황보고회 개최
+-  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
+-  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
+-  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
+-  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
+-  Fire breaks out at Kooyong tennis club weeks before Australian Open stars arrive
+-  After `The Archies` release, Agastya Nanda joins grandfather Amitabh Bachchan to
+-  SC to pronounce judgment on pleas challenging abrogation of Article 370 today
+-  Once Dheeraj Sahu joins BJP...: Chaturvedi after Shah`s jibe at INDIA bloc
+-  TN govt allocates 1 cr for cleaning work of schools in cyclone-affected areas
+-  Dnešok je svetovým dňom rozchodov: Odborníčky radia, čo robiť, aby vám pred Vianocami neskrachoval vzťah
+-  ARM CEO fears humans could lose control of AI
+-  삼척시, 재난현장조치 행동매뉴얼 담당 부서 '재난안전통신망' 확충
+-  We're on track to eliminate hepatitis C, but stigma remains and reinfection is a risk
+-  Thưởng Tết Nguyên đán 2024: Bắt đầu có những doanh nghiệp công bố con số
+-  गौतम गंभीर से श्रीसंत से तकरार पर किया गया सवाल, विवाद से झाड़ लिया पत्ता
