@@ -1,51 +1,51 @@
 # Latest News
--  Christmas 2023 Marks 800th Anniversary of the Nativity's First Recreation by St. Francis
--  Općina Viškovo dijeli poklon-pakete za djecu, evo gdje i kada ih možete preuzeti
--  חי מליגת העל: בני הרצליה - מכבי תל אביב 2:0 (רבע 1)
--  בשעה טובה! דיקלה קיבלה לעולם את בתה השנייה
--  ضعف ويأس وانهزام بخطاب وزير دفاع الكيان
--  شاهد بالفيديو مصير دبابة صهيونية بعد تفجيرها بغزة
--  UK to deploy two Royal Navy minehunter ships to Ukraine for maritime security | World News
--  유재석, 강남 논현동 땅 샀다…‘116억 전액’ 현금 매입
--  Se votaron impedimentos de la reforma laboral, aunque no estaba agendada
--  The Breville Barista Express Is 20% Off Right Now
--  Eugenie Bouchard Stuns in Bikini, Proving She’s Still in Top Shape
--  ABD: İsrail'in beyaz fosfor kullandığı yönündeki haberlerden dolayı endişeliyiz
--  Okan Buruk: Galatasaray için tekrar burada tarih yazmak istiyoruz
--  Los médicos y enfermeros del SAS podrán cobrar un adelanto de la nómina
--  Las fotos de los MIR para animar a sus sucesores: "Merecerá la pena"
--  Hrvati kupuju kao da je Božić već sutra: 'Skupi su pokloni, potrošit ću nekih 600 – 700 eura'
--  El Manchester United, entre otra debacle y una nueva era
--  El Manchester United, entre otra debacle y una nueva era
--  El Manchester United, entre otra debacle y una nueva era
--  El Manchester United, entre otra debacle y una nueva era
--  Oglasili se iz Zare i poručili da je kolekcija osmišljena u julu
--  Azerbaijani, Greek FMs discuss bilateral cooperation (PHOTO)
--  Man dead after crashing into pole in Boonah, Queensland
--  Top Ten Most Searched Games of the Year Revealed by Google
--  Montero niega que exista una negociación bilateral con Cataluña sobre financiación autonómica
--  Montero niega que exista una negociación bilateral con Cataluña sobre financiación autonómica
--  Here’s how WeWoreWhat’s Danielle Bernstein uses 20-year-old blow dryer to get at-home salon blowout
--  Andrew Tate refused access to $12M in seized assets including his Bugatti
--  Opasno po zdravlje: Sarajevo ima najzagađeniji zrak na svijetu
--  Feminicidios preocupan a Cali y Valle del Cauca: así está el panorama en este 2023
--  Nicolas Cage Wraps Thriller ‘The Surfer’ In Australia: First Look Revealed
--  Samuel García aseguró que Tigres sí tendrá nuevo estadio ¿Le creemos?
--  Empowering Women in Cloud Technology
--  Diputado cubano asume presidencia del Parlamento Latinoamericano y Caribeño
--  5 formas divertidas y creativas de utilizar luces inteligentes para entrar en el espíritu festivo
--  Træt af julens mange frokoster? Her er en god grund til at sige nej
--  Træt af julens mange frokoster? Her er en god grund til at sige nej
--  Skvettu vatni á svefnpoka heimilislauss manns
--  JO Paris 2024 : Mehdi Frère en bonne position pour représenter la France sur marathon
--  Partizan poražen u Nišu, Saničanin skrivio jedanaesterac
--  DETALJI HAPŠENJA VUKOTIĆEVOG KUMA NA JAHORINI: Specijalci u akciji "TOKIO", kod Samardžije našli arsenal oružja i skupa kola
--  UŽIVO! PARTIZAN - STUDENTSKI CENTAR: Neverovatan start crno-belih! Smailagić na posebnoj poziciji
--  Süper Lig maçı sonrası hakeme saldırı!
--  Krajnji desničar Wilders slavio na izborima u Nizozemskoj, sad ga čeka još veći izazov
--  [한마당] 정치인과 떡볶이
--  Bezerra quer um candidato próprio do MDB; Janaína vai apoiar Botelho
--  Kraljevičani protiv Pazina propustili skočiti na drugo mjesto uoči pauze, Puljanima jesenska titula
--  CAF Awards 2023 : Les lions de l’Atlas, les meilleurs !
--  Tanović: Sarajevo mora postati metropola i izaći iz okvira kasabe
--  Дагестан увеличивает экспорт шерсти, хотя производство не растет
+-  Хоккейная команда ОрёлГУ одержала две победы на выезде
+-  డాన్‌ అవ్వాలనే..!
+-  వైభవంగా పద్మనాభతీర్థుల ఆరాధనోత్సవాలు
+-  В Конгрессе обвинили Белый дом в нежелании мира на Украине
+-  Elon Musk Extends Job Offer to OpenAI's Chief Scientist Sustskever
+-  Govt To Introduce Consensus-based Declaration Document On AI: Ashwini Vaishnaw
+-  Son dakika! Hakem Halil Umut Meler'e yumruklu saldırı
+-  Atresmedia premia a Josie: presentará las pre-campanadas de 'Feliz Año Neox' junto a Valeria Ros
+-  This Vermont getaway is a new luxury hotel to love in 2024, according to Forbes
+-  Very 5,99 Flash Back, nuova proroga: 120 Giga, minuti, SMS e un mese di ricarica omaggio
+-  North Queensland residents preparing for looming Tropical Cyclone Jasper
+-  North Queensland residents preparing for looming Tropical Cyclone Jasper
+-  Sydney set to endure more sweltering temperatures over coming days
+-  Sydney set to endure more sweltering temperatures over coming days
+-  Igor Duljaj posle poraza od niškog Radničkog: Moj stav je da ne komentarišem suđenje
+-  VASIĆ O DEŠAVANjIMA U JALBOTINI: Izveštajima nadležnih institucija demantovane laži opozicije (VIDEO)
+-  7,9 toneladas de drogas fueron decomisadas en menos de 24 horas
+-  Samsung revives $1,000 trade-in deal for the Z Fold 5, bringing it down to $650
+-  Ministarstvo zdravlja u Gazi: Od početka sukoba Hamasa i Izraela poginulo 18.205 Palestinaca
+-  Patricia Benavides solicita a la JNJ que revoque suspensión en su contra
+-  Πολωνία: Εξελέγη πρωθυπουργός ο Ντόναλντ Τουσκ - Ανοίγει ο δρόμος για μια νέα φιλοευρωπαϊκή κυβέρνηση
+-  Stardew Valley: cómo conseguir gelatina prismática
+-  وزير المجالس النيابية: إحالة قانوني أملاك الدولة ووضع اليد لمجلس النواب
+-  "الصحفيين" تدعو لساعة احتجاجية.. وتطالب بوقف العدوان الصهيوني والتصدي لمخطط التهجير
+-  رئيس الوزراء العراقي: نرفض أي انتهاك للسيادة وملتزمون بحماية المستشارين والبعثات الدبلوماسية
+-  نقيب الصحفيين بالإسكندرية يدلي بصوته في الانتخابات الرئاسية (صورة)
+-  إعلام عبري: تحركات جديدة لإبرام صفقة تبادل أسرى بين إسرائيل وحماس
+-  بالصور.. إقبال كثيف قبيل غلق لجان انتخابات الرئاسة بالوادي الجديد
+-  حدث في 8 ساعات| السيسي يوجه بالانتهاء من المشروعات الجديدة .. والحكومة تُقرر استمرار منع تصدير البصل
+-  رئيس حزب أبناء مصر: الإقبال على الانتخابات الرئاسية فاق التوقعات
+-  الفنانة سميرة أحمد تشيد بدور "القومي للمرأة" في التوعية بالمشاركة في الإنتخابات الرئاسية
+-  علامة تظهر عند صعود "السلم" تنذر بتصلب الشرايين- انتبه
+-  أول تعليق من الأهلي على الفوز بجائزة أفضل نادي في أفريقيا 2023
+-  حفل جوائز "كاف".. المغرب تفوز بجائزة أفضل منتخب أفريقي 2023
+-  Special Counsel asks SCOTUS to rule in Trump case
+-  Raków Częstochowa interesował się i rozmawiał z ważną postacią z Jagiellonii Białystok [POTWIERDZONE]
+-  Dan uživo (11.12.2023)
+-  Special Counsel asks SCOTUS to rule in Trump case
+-  CAF Awards : le Maroc, équipe africaine de l'année
+-  [BREAKING] 2023 CAF Awards: Super Falcons Win Women’s Team Of The Year
+-  Argentine police hunt for man who threw bottle at Milei’s parade, injuring bodyguard
+-  Navalny team says jailed Putin critic’s whereabouts unknown
+-  Maternidade Alfredo da Costa não está a receber grávidas encaminhadas pelo INEM
+-  Рокади по високите етажи на bТV
+-  Dačić u Kruševcu: Mi smo pouzdan partner SNS-u
+-  Belén viviente, mercadillo y festival de corales en La Flota y Vistalegre para celebrar la Navidad
+-  Get a dozen Krispy Kreme doughnuts for $1 on Tuesday
+-  FCCPC bags 2023 Government Agency of the Year award
+-  Get a dozen Krispy Kreme doughnuts for $1 on Tuesday
+-  Naval Chief lauds officers for unyielding dedication to motherland's impregnable defence
