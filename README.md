@@ -1,11 +1,11 @@
 # Latest News
--  U17-Weltmeister: Dieses Geschenk bekam Top-Talent Yalcinkaya vom HSV
--  أنهى حياة يمني بشكل بشع.. تنفيذ حُكم الشرع بأحد الجناة في مكة
--  4 علامات على اختراق هاتفك.. لا تتجاهلها
--  سوق الأسهم يرتفع 84 نقطة ويُغلق بعد تداولات بـ 7.5 مليار ريال
--  Alman rock grubu Scorpions Türkiye'ye geliyor
--  İYİ Parti'den asgari ücret önerisi
--  장제원 "이제 잠시 멈추려 한다"...혹시 내년 총선 불출마?
--  МО: экс-глава ЦРУ Джина Хаспел влияла на расследование причин пандемии COVID-19
--  MP New CM Mohan Yadav: कौन हैं मोहन यादव? जो होंगे मध्य प्रदेश के नए सीएम, BJP के सरप्राइज ने सबको चौंकाया
--  Cyclone Jasper to Bring ‘Destructive Winds, Heavy Persistent Rain’ to Queensland
+-  الحاخام جو بايدن وإخوانه.. أين الدين وأين السياسة؟!
+-  Cumhuriyetimizin 100. yılında halk müziği seçkisi: Reviş Konseri
+-  التشرة اليومية | موجز لأهم الأخبار المحلية والعالمية
+-  10 минг соат қоидаси – шунча вақтда исталган нарсани ўрганиб олса бўладими?.
+-  Қирғизистонда 200 га яқин давлат хизматчиси жиноий гуруҳлар билан алоқаси учун ишдан бўшатилди .
+-  ОТБ Ўзбекистондаги қишлоқ йўлларини яхшилашга 240 млн доллар ажратади.
+-  Техникумларда кредит-модул тизими йўлга қўйилади .
+-  Bisschoppen en oversten reageren op kritiek misbruikprocedures
+-  En Paso Cerrito, detectaron vacunas contra encefalomielitis equina trasladadas ilegalmente
+-  মিয়ানমার জান্তার ভারত সীমান্তবর্তী ফাঁড়ি দখল করলো বিদ্রোহীরা
