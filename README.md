@@ -1,11 +1,11 @@
 # Latest News
--  'O Come, O Come Emmanuel' and the Second Advent of Jesus Christ
--  Aligarh News: दि अलीगढ़ बार चुनाव के लिए मतदान 21 दिसंबर को, यूपी बार काउंसिल ने नियुक्त किए पर्यवेक्षक
--  La NBA dévoile la 2023 NBA In-Season All-Tournament Team !
--  Нардеп пропонує запровадити щоденну молитву за деокупацію України
--  Geomáticos sugieren alternativas para mejorar el tránsito en San Francisco de Macorís
--  La nueva regulación europea sobre IA: una ley a la contra
--  Пересильд и Янковский стали лауреатами премии "Звезда театрала"
--  Biofortified Bounty
--  В США из-за скандала с утечкой секретной информации к ответственности привлекли 15 человек
--  Zełenski gratuluje Tuskowi. "Razem jesteśmy nie do pokonania"
+-  미친 경기 나왔다! 양 팀 팬들, 서로에게 폭죽 발사→ 전반전만 무려 78분 진행
+-  15 დეკემბრამდე გადაიდო რაჭის ტყეების 3 აქტივისტზე სასამართლოს გადაწყვეტილება
+-  РФ отозвала разрешение открыть генконсульство Румынии в Ростове-на-Дону
+-  „Nema slobodnog termina, zakasnili ste, imamo mađioničara i mali prostor“: Zašto u Nišu ProGlas nije uspeo da nađe prostor za tribinu?
+-  مايكروسوفت تطرح ميزة جديدة لمستخدمي برنامج الـ Word
+-  CAF Awards 2023 : Walid Regragui élu meilleur entraîneur de l’année devant Aliou Cissé
+-  Eski Yemen savunma bakanının oğluna ev hapsi
+-  Man charged over Borehamwood Tesco 'acid attack'
+-  అర్ధసత్యాలు..అంకెలు..రాజకీయాలు!
+-  Hutch introduces 9-App social media plan with unmatched pricing
