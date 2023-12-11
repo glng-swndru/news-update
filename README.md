@@ -1,51 +1,51 @@
 # Latest News
--  Dan libertad provisional a coacusado de Collado
--  Alternará Mariana campaña y puesto en Gobierno de NL
--  Comunicará Milei medidas de austeridad económica
--  Alertan por plataformas educativas débiles de precandidatas
--  [소아암 어린이들과 롯데월드, 희망의 ‘드림스테이지’ 갈채
--  [이마트24, 임직원 헌혈 5000회 돌파
--  [“평균 연봉 1억 ‘킹산직’ 또 오신다” 현대차, 400명 채용문 다시 열었다
--  [안철수 “내년 총선 55~60석 될까봐 잠이 안 온다” 김기현 직격
--  VUČIĆ: Putin znao da je dobar potez smanjivanje plata i penzija, ali da je to Srbija morala to da uradi
--  أحكام بالسجن لمسؤوليْنِ من مركز غسيل الكلى ترهونة لهذه الأسباب
--  البرد وأمراض القلب.. ما العلاقة؟
--  The Mandalorian Season 4 is rumored to be a movie
--  МВФ заявил об отслеживании ситуации с возможным изъятием активов России
--  VELIKO UPOZORENjE PREDSEDNIKA VUČIĆA: Pakleni plan Đilasove opozocije da Prištinu puste u UN
--  مديرية الأمن العام تحذر من تشكل الضباب في ساعات المساء والصباح الباكر
--  Los Tesla llamarán al 911 automáticamente en caso de accidente: las actualizaciones navideñas de la automotriz llegan la próxima semana
--  Esta Smart TV 4K Xiaomi de 43 pulgadas tiene cupón que la deja en menos de 5,000 pesos en Walmart México e incluye meses sin intereses
--  House Hustle Gone Wrong: Real Estate Agent’s $16K Fraud Gets Him Arrested
--  Hakem Halil Umut Meler'e saldırı sonrası TFF olağanüstü toplandı
--  Prerja e gabuar e thonjve të këmbëve mund të iu shkaktojë rrezik të madh
--  TikTok laughs at morbid Spider-Man & Gwen Stacy Christmas decoration: “Too soon!”
--  Lyon. Est-ce la fin du centre-ville, boudé par les familles et qui se vide de ses habitants ?
--  Social. A nos lecteurs
--  Météo. Crues ou pluie-inondation : dix départements en vigilance orange
--  Société. Le gouvernement maintient la Ciivise et nomme l'ex-rugbyman Sébastien Boueilh à sa tête
--  Ain. En vidéo : chaos sur l'A404 après le contresens mortel
--  Loire. Pédopornographie : un Panissiérois de 55 ans arrêté
--  Royaume-Uni. Kate, William et leurs enfants dévoilent leur photo de Noël officielle
--  Lyon. L'« after » Fête des Lumières : ces lieux où la lumière va rester allumée
--  Saint-Étienne. Casino : appel à la population pour une manifestation géante dimanche 17 décembre
--  Ochanomizu Kyoryo Bridge Shortlisted to Become Tangible Cultural Property; Total of 18 Tokyo Structures Recommended by Govt Panel
--  بعد “هجوم ماسك”.. إكس تسابق الزمن لجذب المعلنين الصغار
--  Football. OL : Textor et Aulas trouvent un accord pour régler leurs différends financiers
--  Ain. Deux morts sur l'A404 après un carambolage
--  Rhône. Ces cinq communes où l'état de catastrophe naturelle vient d'être reconnu
--  Niemcy wzywają do wspierania Ukrainy. Olaf Scholz mówi o "sygnale"
--  IMF’s Gopinath warns fragmentation of global economy could cut GDP by 7%
--  'Trans woman' Nicholas Cepeda trains and showers with teenage girls; community centre calls cops on us instead
--  Alfredo Cornejo recién asume y tres intendentes peronistas presionan por los fondos millonarios de Portezuelo
--  Cuatro equipos buscan un milagro en la Champions League
--  A Rare 55-Year-Old Japanese Whisky From a Ghost Distillery Is Coming to the U.S.
--  Developer Beedie tapped to build North America’s largest Tesla centre in Vancouver
--  Zoom Drain Opens First Franchise Location in Delaware
--  Ibrahimovic Milan, Marianella: «Lo svedese è un’icona come Maldini, è una notizia rassicurante»
--  Letter: Let's get back to basics in replacing Burnaby's C.G. Brown Pool
--  Magill's Resignation Is Good Start: U Penn Jewish Students Say Changes Still Needed
--  Consumo de água e energia em SC deve subir cerca de 10% no verão mais quente da história
--  Rishi Sunak’s Covid inquiry appearance was a reminder why he was once Britain’s most popular politician
--  "MILOŠEVIĆ NE MOŽE DA BUDE KRIV ZA BOMBARDOVANjE" Vučić: Rambuje bi svako odbio, niko na svetu ne bi to mogao da prihvati
--  SCULLY ROYALTY LTD. PUBLISHES RESULTS FOR THE SIX MONTHS ENDED JUNE 30, 2023
+-  Top Googled Movies in 2023
+-  [롯데마트 토이저러스 장난감할인 행사…최대 50% 할인
+-  [이상민 만난 이낙연 “뜻 같이 하는 훌륭한 분들 모아 세력화 필요”
+-  [경북도-동남아 대표 전자상거래 플랫폼 라자다, 업무협약 체결
+-  [대구시, 행안부 2023 안전문화대상 국무총리 표창 수상
+-  [국방부, 대구시 대구군공항 이전사업 시행자로 지정
+-  Diana Durán celebra la temporada navideña con "Lista de Deseos"
+-  Avanza la implementación de la medicina tradicional indígena en Panamá
+-  Na Wall Street trzecia wzrostowa sesja z rzędu, DJIA najwyżej od prawie 2 lat
+-  FT: UE zaproponuje we wtorek wykorzystanie zysków z zamrożonych aktywów Rosji na rzecz Ukrainy
+-  Vanderpump Rules Cast Surprised by Shocking Kiss and New Cheating Scandal
+-  Демократична спілка угорців України просить Орбана підтримати вступ в ЄС
+-  Paula oduševila sve plesom na lancima, a prije je nastupila s Tončijem Huljićem: 'Prebolno'
+-  SpaceX se prepara para lanzar el misterioso avión espacial X-37B para el ejército estadounidense
+-  Sandra Sully's personal tragedy: 10 News First presenter issues powerful tribute as her dad Sid dies
+-  Seyahat için en tehlikeli ülkeler haritası yayınlandı
+-  Yunanistan’da konaklama vergisinin adı değişti oranı yükseltildi
+-  West Virginia is becoming epicenter of 'deadliest drug threat America has ever faced': Lethal combination of zombie 'tranq' and fentanyl could exacerbate death rate in US' worst-hit state for opioid abuse
+-  [VIDEO] En plena graduación apareció su mamá que llegó desde ashá
+-  Christmas al fresco! An outdoor feast is the new trend, and it's not just the pigs who'll be in blankets
+-  Slash, Billy Gibbons and Myles Kennedy Cover Lynyrd Skynyrd: A Tribute to the Classic Rock Band
+-  Пентагон пообещал создать на Украине армию для сдерживания России
+-  Звездопад Геминиды в ночь на 14 декабря будет виден над южным горизонтом
+-  The cast of Archer share their favorite memories from the show's 14 seasons
+-  Israel is Optimistic in Battle Against Hamas as Suffering in Gaza Soars
+-  El FMI pide a Ucrania "ambiciosa" reestructuración de deuda comercial en 2024
+-  "NEMA RAZLIKE MEĐU OPOZICIJOM" Vučić: Ranije je tu bilo nekakvih ideologija, sada nema ničega više
+-  Cartoon
+-  Él es el hombre que conquistó a la polémica Carla Giraldo
+-  Taylor Swift fan furiously shuts down conservative critic who branded the popstar 'hyper-promiscuous' and 'shameful' by sharing a wholesome story about her first meeting with the music icon
+-  Nafnið var gjöf að handan – „Ég vissi alltaf að ég væri öðruvísi“
+-  Τζον Κέρι: «Τελευταία ευκαιρία» να περιορίσουμε την άνοδο της θερμοκρασίας στον πλανήτη
+-  Alla Goodbye to YCP : వైసీపీకి ఆళ్ల గుడ్‌బై
+-  Why Ukraine Is Historically Known As The Breadbasket Of Europe
+-  Ministra destaca ética como parte da formação médica de qualidade
+-  Especialistas discutem alternativas a tratamentos manicomiais
+-  Nova edição de livro traz atualizações sobre Lei Anticorrupção
+-  Um em cada quatro jovens relata ter sofrido violência no Brasil
+-  Sinfra vistoria MT-251 após deslizamento de terra no Parque Nacional de Chapada dos Guimarães
+-  Comissão aprova proposta que obriga hospitais a oferecer leitos separados a mães que perdem filhos
+-  Emery’s Aston Villa: The Next Leicester with Players You’d Want to Have a Pint With
+-  Google cerrará su servicio de pódcast en abril
+-  ¿Dónde ver el Festival de Jonrones de la LVBP en honor a Miguel Cabrera?
+-  Google cerrará su servicio de pódcast en abril
+-  [AM-PM] 22대 총선 레이스 개막…예비후보 등록 시작 外
+-  QUENTIN LETTS: The judge was busy writing something as Rishi Sunak spoke at the Covid Inquiry. Her Christmas cards? Perish the thought
+-  Google Revealed What Canadians Searched The Most In 2023 & The Results Are Super Random
+-  Trabzonspor Asbaşkanı Kafkas: Yerde atılan tekmelerin hocamızı daha derinden yaraladığını duydum
+-  Un nouveau crack en vue, la presse étrangère calme le PSG
+-  En Chajarí los conductores reiteran sus infracciones, afirman desde la nueva Coordinación de Tránsito
