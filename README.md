@@ -1,51 +1,11 @@
 # Latest News
--  Neto diz que Gabigol 'vai saber o que é ser ídolo no Corinthians', e atacante agradece carinho: 'Sempre tem palavras legais sobre mim'
--  South Africa Gunmen Release Abducted Malawian Pastor
--  توقعات متفائلة للاقتصاد القطري
--  «التعويذة» تحتفي بالثقافة والتقاليد القطرية
--  Asisat Oshoala Clinches Record 6th CAF POTY Award as Chiamaka Nnadozie Wins Goalie of the Year
--  Muy honrosa la visita de Claudia Sheinbaum a Los Mochis para reunirse con pescadores: Gerardo Vargas
--  Drivers could be fined £2,500 just for standing next to their car at Christmas
--  [네덜란드 국빈방문]尹, 암스테르담 도착..F-35 호위비행
--  دوري أبطال أوروبا.. مواعيد مباريات اليوم والقنوات الناقلة
--  الاتحاد وأوكلاند في مونديال الأندية.. مواعيد مباريات اليوم الثلاثاء والقنوات الناقلة
--  الموعد والقناة الناقلة لمباراة اتحاد جدة وأوكلاند سيتي في مونديال الأندية
--  AEW Rampage Rating Ticks Up, Viewership Slightly Down
--  Actualité : Cinq choses à savoir sur le futur Porsche Macan électrique
--  Полянский объяснил, что ждёт выпрошенное Зеленским у США оружие
--  Meta lanzó Imagine para generar imágenes con IA
--  Govt Confirms Zahara Has Died | BREAKING
--  Χρηματιστήριο: Σταθεροποιητικό κλείσιμο -Στα 71,733 εκατ. ευρώ ο τζίρος
--  Wall Street: ανοδικό κλείσιμο με το βλέμμα στον πληθωρισμό
--  Police appeal for information about stabbing at street racer meet in Waikato
--  Following road laws should be easy – but your driving IQ is off the charts if you can spot hidden stop sign in 5 secs
--  زيلينسكي: تأخير المساعدات إلى كييف يحقق «أحلام» بوتين
--  Comenzó la barrida en Atlético Nacional: confirmaron la salida de cuatro jugadores
--  This Samsung 32-inch 4K monitor is discounted from $700 to $400
--  Mónica García no habla de transfugismo en Podemos aunque dice que "se han definido ellos solos"
--  YA Author Loses Book Deal After Blaming Star Wars Fans for Bizarre Review-Bombing Scheme
--  Coroners ID two teens that died in Jefferson County crash. An unborn baby also died.
--  NASA's MAVEN observes the disappearing solar wind
--  Using gravitational waves to observe thermal effects in binary neutron star mergers
--  Farmers and ranchers in the Southwestern US face challenges due to human-induced atmospheric warming
--  Prajavani : ప్రజాదర్బార్‌.. ఇకమీదట ప్రజావాణి
--  Jota Pe Hernández enfiló baterías contra Gustavo Petro y pidió que se amplíe investigación por financiación de su campaña
--  ‘Vanderpump Rules’ Is Already Eyeing Its Next Scandoval
--  Actualité : Bon plan – La manette de jeu Sony DualSense Noire "5 étoiles" à 49,90 €
--  Actualité : Bon plan – La cafetière Bosch Tassimo Suny TAS3203 "5 étoiles" à 35,00 € (-24%)
--  Actualité : Bon plan – La manette de jeu Microsoft Xbox Elite Series 2 "5 étoiles" à 149,95 € (-11%)
--  Дороти Вигинс: Нов почеток после 61 година
--  Actualité : Bon plan – Le rasoir électrique Philips MG7720/15 Multigroom Bundle Oneblade MG9710/90 "5 étoiles" à 69,99 €
--  Actualité : Bon plan – Le robot-pâtissier KitchenAid Artisan 5KSM175PS Jaune "5 étoiles" à 489,99 € (-26%)
--  Actualité : Bon plan – La console de jeu portable Nintendo Switch Lite Gris "5 étoiles" à 196,25 € (-15%)
--  Actualité : Bon plan – La batterie externe Anker 737 Batterie Externe (PowerCore 24K) "5 étoiles" à 99,99 € (-20%)
--  Actualité : Bon plan – Les écouteurs & intras filaires 1More Triple Driver "4 étoiles" à 45,11 € (-29%)
--  Horoskop am 12.12.23: Ihr Tageshoroskop für den 12. Dezember
--  Уметничко откритие на денот
--  Pixelスマホでペットの写真がきれいに撮れるようになった
--  '드라큘라' 김준수, “실수없이 해오려한 12년, 이제는 국내 넘어 일본도 욕심”(인터뷰③)
--  David Hyde Pierce just didn’t feel like doing more Frasier, alright?
--  Taking rugby league to the States? It’s already there, baby
--  Le PSG prend rendez-vous pour le transfert de l’été !
--  ¿Semana del patrimonio invisible?
--  '드라큘라' 김준수, “드라큘라 10년, 이제 빨간머리는 은퇴했으면”(인터뷰①)
+-  محللون: تخفيضات إنتاج النفط قد تحتاج إلى تمديد
+-  عاجل.. قريبا تأشيرة موحدة لدول الخليج على غرار "الشنغن"
+-  شاهد.. حالة مطرية غزيرة على محافظة أملج
+-  Dirigentes de Encuentro Ciudadano rechazan “homofobia destructiva” de los regímenes de Maduro y Putin
+-  La Minusma quitte officiellement le Mali après dix ans de présence
+-  Abiodun Accuses Ogun Monarchs Of Selling Govt. Lands To Indian Hemp Farmers
+-  Intereses creados
+-  소득 3구간까지 로스쿨 등록금 전액 지원
+-  충주시, 국무총리 기관 표창 수상
+-  송기섭 진천군수 민선 8기 군정 추진 성과 발표
