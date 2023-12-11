@@ -1,51 +1,51 @@
 # Latest News
--  Тоттенгем підпише новий контракт про співпрацю з Удоджі
--  Apple releases iOS 17.2 including its new Journal app
--  Acrylic vs Latex Paint: How to Pick the Perfect Interior Paint
--  Kalp eş anlamlısı
--  Trener "studenata": Igrači nisu verovali da mogu da igraju protiv Partizana
--  &quot;SEDELI SMO U NEKOJ KAFANI U RAKOVICI...&quot; Vučić otkrio detalje razgovora sa šeikom Muhamedom, jedno pitanje mu je konstantno postavljao
--  Chavismo instaló la “Comisión Especial” para la defensa de el Esequibo
--  FC Barcelona ze spóźnioną refleksją w sprawie odpuszczonego transferu
--  El Orfeón Donostiarra llega este martes a la sala Mozart del Auditorio
--  Danmark vant sin VM-gruppe – åpner for mulig semifinale mot Norge
--  "J'ai volé son nom" : Axelle Red révèle pourquoi elle a changé son prénom et dévoile l'origine de son pseudonyme
--  İşgalci İsrail'den "Hamas'la esir takasına hazırız" mesajı
--  How to sell a Mac or MacBook
--  Либерално-Демократската партија донесе одлука за приклучување кон Европската коалиција
--  Marechaussee verzaakte bewaking goudvoorraad en keek liever series op zijn Ipad: 100 uur taakstraf
--  Bozdo: Do dilni në protestë? Zusi: Situata me eksportuesit do vetëm një shkëndijë
--  La UCO forma a 50 personas mayores en el uso de internet
--  Toni Peruško otkrio što je htio poručiti s dvije zadnje izvedbe u 'Superstaru': 'To je za sve one odbačene i neshvaćene'
--  VIDÉO - Football : un petit club suscite un incroyable engouement dans le village avec son album de vignettes
--  Sneg i ledena kiša: Meteorolog otkrio gde ih očekujemo
--  Emet'te ayılar 36 kovanı parçaladı, arılar telef oldu
--  В «Сочи» назвали неудовлетворительными результаты команды в первой половине сезона РПЛ
--  Prosecutors say man who entered San Mateo County home of Steph Curry skipped out on initial court date
--  Ankara: U turskim vazdušnim napadima na sever Iraka uništeno 13 kurdskih meta
--  현아, 팔 아니고 종아리야?…소멸 직전 각선미 [MD★스타]
--  KCCA has no room for error against Bright Stars
--  La Academia Pontificia Eclesiástica visita Montilla
--  Successful bidder knows what they want to do with Clubs of Marlborough
--  Arequipa: Un muerto y tres extranjeros heridos al ser baleados en un taller mecánico de Paucarpata
--  ظهرت في حفل تنصيبه.. مَن هي فاطمة فلوريس صديقة رئيس الأرجنتين الجديد؟
--  نبوءة روسية جمعت بين مصري سبعيني ولبنانية ثلاثينية.. الحب لا يعرف المستحيل
--  ¿Embajada de EEUU en Venezuela reanudó operaciones? Lo que se sabe al respecto
--  NZ weather live: Severe thunderstorm watch for several parts of the country
--  Governor wants New Mexico legislators to debate new approach to regulating assault-style weapons
--  Sceny w 9. lidze Europy! Prezydent klubu urządził sędziemu lincz na boisku [WIDEO]
--  Eksperti i ekonomisë: Stop orekseve infrastrukturore, më shumë mbështetje për fermerët
--  Festival Psica abre edição 2023 com shows gratuitos de novos artistas e programação com oficinas e painéis
--  Mitra9 Introduces Kava 2.0
--  Pläne zur Ausweitung von Sonntagsverkäufen sorgen für Kritik
--  Târg de Crăciun organizat de copii cu suflete uriașe. Din banii obținuți: ghiozdane pentru elevii nevoiași FOTO
--  Joy Beune afgeserveerd na rijden zonder transponder: ‘Geestelijke leeftijd van 10’
--  Jong Ajax langs beloften FC Utrecht, FC Den Bosch neemt puntje mee uit Alkmaar
--  Dolphins elevate LB Quinton Bell and OT Ryan Hayes for Monday's game
--  This Is Not a War Against Hamas
--  Потепление придет в Карелию 12 декабря
--  تعليم المدينة المنورة يعلن تعليق الدراسة الحضورية غدًا
--  تعليق الدراسة الحضورية غداً بجامعتي طيبة والإسلامية
--  "الوطني للفعاليات" يطلق مبادرة لتدريب المنظمين على الإسعافات الأولية
--  استثمارات بأكثر من 130 مليار ريال برأس الخير الصناعية
--  بوتين يعلن بناء المزيد من الغواصات النووية.. ماذا تريد روسيا؟
+-  Impunes en Chihuahua, 97.1% de delitos
+-  2023 KBO 골든글러브 수상자
+-  Amora Princess: Ciara ist zum vierten Mal Mama geworden!
+-  Pogba í sárum eftir ummæli frá gömlum vini
+-  나올 때마다 못하네... ‘日 중원 에이스’ 엔도, 팀 내 최저 평점+하프타임 교체 굴욕
+-  Top-Manager bei Signa wegen Verdachts fristlos entlassen
+-  Top-Manager bei Signa wegen Verdachts fristlos entlassen
+-  استمرار عملية الاقتراع في الانتخابات المصرية لليوم الثاني
+-  Velika Britanija: Sunak se suočio s pobunom poslanika zbog...
+-  Top-Manager bei Signa wegen Verdachts fristlos entlassen
+-  Get tickets to Sarah McLachlan’s 2024 ‘Fumbling Towards Ecstasy’ Tour
+-  Take a look back at Timothée Chalamet's most daring 'Wonka'-inspired outfits
+-  قريبا.. ميزة جلب الفيديو إلى المساحات الصوتية في منصة إكس
+-  New app helps active women understand menstrual cycle for best possible training
+-  Macklin Celebrini turning heads at Canada’s world junior camp: ‘He’s already a pro’
+-  Bochum: Überfall auf Netto! Täter flüchtet mit Geld
+-  1 in 3 US teens ‘almost constantly’ uses social media sites like YouTube, TikTok: study
+-  CAF Awards: Amunike shaped my career – Osimhen appreciates former coach
+-  Adalet Bakanı Yılmaz Tunç'tan Halil Umut Meler açıklaması: "Soruşturma başlatıldı"
+-  Asgari ücrette zam maratonu başladı | 2. toplantı 18 Aralık’ta! Asgari ücret ne kadar olacak?
+-  İçişleri Bakanı Ali Yerlikaya'dan Halil Umut Meler açıklaması: "Bu tür olaylar kabul edilemez"
+-  Hakem Halil Umut Meler'e saldıranlar gözaltına alındı!
+-  Başkan Erdoğan Halil Umut Meler'e yapılan çirkin saldırıyı kınadı!
+-  Sportler des Jahres: Freya Burk, Lenny Rubin, HBRS-Fußballer
+-  Нижняя палата французского парламента отклонила законопроект об иммиграции
+-  Gunmen abduct traditional ruler in Cross River
+-  Jangan Terlalu Sering Konsumsi Minuman Soda, Ini Bahayanya untuk Kesehatan
+-  Ankaragücü'nden özür mesajı
+-  السويد تعلن عدم دعمها لهدنة طويلة الأمد بغزة
+-  China’s currency is flexing its muscles
+-  China’s currency is flexing its muscles
+-  China’s currency is flexing its muscles
+-  China’s currency is flexing its muscles
+-  Vedení fotbalu mohlo jmenovat Haška. Později ale mimořádné jednání zrušilo
+-  MPD Searching For Suspect Who Broke Into Elementary School
+-  FT: Lähes puolet amerikkalais­äänestäjistä kokee, että USA tukee Ukrainaa liikaa
+-  Foot mondial : sur quelles chaines regarder les matches du mardi 12 décembre ?
+-  ‘Miracle’ IDF soldier recalls being shot by Hamas 12 times, then playing dead among fallen comrades
+-  وزير دفاع إسرائيل: لا ننوي البقاء في غزة ومنفتحون على الاتفاق مع حزب الله
+-  „Leave The World Behind“: Netflix-Blockbuster blendet Hinweis ein – Zuschauer völlig irritiert
+-  Desivé správy pre Európu! Zmena klímy spôsobí chaos na celom kontinente: Na pozore sa musia mať aj Slováci
+-  Şifa Çolakoğlu: Meclis’in itibarı kalmadı
+-  Joe Flacco is doing something no one thought possible
+-  Mixco volvió a los entrenamientos
+-  Netanyahu crea un grupo secreto para abordar los planes de posguerra en Gaza
+-  Police Scotland name 22-year-old who died in crash between car and lorry in Lanarkshire
+-  Bürgergeld: Metzger-Meister zornig auf Arbeitslose – „Gehen nicht ans Telefon!“
+-  Cody Simpson officially achieves Paris Olympics qualification time to win Queensland 100m butterfly title
+-  Aktien New York Schluss: Dow und Nasdaq 100 auf neuem Januar-2022-Hoch
+-  Resumen Twitch 2023: Así puedes consultar tu ‘Recap’ de manera fácil
