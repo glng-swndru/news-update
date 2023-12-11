@@ -1,11 +1,11 @@
 # Latest News
--  QL One, Asia’s Largest Training and Coaching Company Set to Host Edition 2 of PROFICORN on 20-21 December 2023
--  Brahmaputra Valley Film Festival 2023: 5 Major Attractions One Cannot Afford to Miss This Year
--  Pharmacy Bazar Announces Expansion Plans and Strategic Partnership with Axis Bank
--  MAHE, Manipal Expanding Horizons: PhD Admissions Now Accessible Across Varied Disciplines
--  Rodic Consultants Celebrates International Mountain Day with Trekking Expedition, Emphasizes Mountain Conservation and Well-being
--  بالصور.. وزير الكهرباء السابق يدلي بصوته في الانتخابات الرئاسية
--  سعر الذهب اليوم الاثنين في مصر يواصل الارتفاع بمنتصف التعاملات
--  بطريرك الأقباط الكاثوليك يدعو المؤسسات الكنسية لحث المواطنين على التصويت في الانتخابات
--  هذا ما يحدث لهم.. هؤلاء الأشخاص ممنوعون من تناول الجبن القريش
--  Indonesia's No.1 coocaa TV Share Honors of Guinness World Record Achievement with Consumers in 12.12 Event
+-  'Kersthuisjesactie' Janneke Brouwer doorslaand succes
+-  Leren schaatsen bij Schaats- en Skatevereniging Lek en Linge
+-  Konyaspor'un Kosta Rikalı stoperi Francisco Calvo Beşiktaş'ın radarında
+-  Konya'da eniştesini bıçakla öldüren sanığın yargılanması sürüyor
+-  Asgari Ücret Tespit Komisyonu'nun ilk toplantısı sona erdi
+-  Konya'daki skandalda yeni gelişme! 13 yaşında nişanlandırılan kız, devlet korumasına alındı
+-  Ekmek arasında uyuşturucu ticareti!
+-  Υποβολή αιτήσεων από αλιείς στα Χανιά για τα αλιευτικά σκάφη
+-  Achieve Flawless, Wrinkle-Free Skin in Your 50s with this Natural 2-Ingredient “Botox” Recipe at a Fraction of the Cost
+-  49대 기자협회장에 박종현 후보 당선
