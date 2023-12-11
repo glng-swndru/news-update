@@ -1,11 +1,11 @@
 # Latest News
--  अख्तियारद्वारा सर्वोच्चमा मुद्दा पुनरावेदन
--  बैङ्किङ कसुर मुद्दाका फरार दुई जना पक्राउ
--  प्रदेश निजामती सेवा ऐन संशोधन गर्न बनेको विधेयक पारित
--  राष्ट्रिय एकता र सुशासन कायम राख्न सरकार सफल : महासचिव गुरुङ
--  Európski odborári prídu do Bruselu protestovať proti úspornému programu Európskej únie
--  Rusko sa z Ukrajiny nestiahne, predostrelo jasné podmienky pre mier! Lavrov na adresu Západu ešte pritvrdil
--  2024 predictions redux: data, storage, infrastructure, and services platforms revisited
--  Атаки беспилотников и обстрелы территории России. Карта
--  สถานบันเทิงสู้คดีเยาวชน 17 ปีใช้บริการโยงปม "สมรักษ์"
--  Trénoval s Kildem, miluje motorky jako Hirscher. Kdo je hrdina Andorry Verdú?
+-  كلماته هزت العالم.. حقيقة اختيار جد طفلة «روح الروح» شخصية العام لمجلة «Time»
+-  Konya'da 3 yaşındaki kızını öldürmüştü! Annenin davasında yeni gelişme
+-  Kerim Arı’nın 'Pir’in Gölgesinde' fotoğraf sergisi beğeni kazanıyor
+-  الوعي المُجتمعي والتنمية
+-  יאיר נתניהו לבית המשפט: אני אמנם בנו של ראש הממשלה - אך איני קיצוני
+-  דיווח: ישראל השתמשה בפצצת זרחן מתוצרת אמריקנית בתקיפה בלבנון
+-  Mayoría femenina en las voces sanitarias de los partidos en el Congreso
+-  NIA, 생성형 AI 사회의 현재와 법제적 미래 논의
+-  ‘그랜드 클라우드 컨퍼런스 2023’ 12~14일 개최…클라우드 산업 활성화 도모
+-  El Gobierno de Milei anunciará su primer paquete de medidas económicas
