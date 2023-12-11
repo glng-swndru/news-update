@@ -1,11 +1,51 @@
 # Latest News
--  163. dan: SDT još nije reagovalo na Đukanovićeve mjesečne „harače“ od 300.000 evra
--  Inwestorzy wskazali największe zagrożenie dla rynków w 2024 roku
--  Opublikowano rozporządzenia zw. z opłatami za jednorazowy plastik
--  Sanja i Jan o zlatnom gumbu u 'Supertalentu': 'Došlo je i naše vrijeme. To je nagrada radu...'
--  Açores. PAN diz que marcação de eleições antecipadas era "expectável"
--  Milan, sta per concludersi un 2023 da incubo: tutti i numeri del pessimo anno solare rossonero
--  Casa di proprietà sempre più difficile da avere: colpa dei tassi e i mancati aiuti
--  Soccerladuma | Official: Tau Beats Downs Star To Big CAF Award
--  Chelsea ‘ready to let Conor Gallagher LEAVE’ despite him captaining side days ago with shock rival keen on transfer
--  Tories have ‘successfully’ scapegoated carbon price in affordability crisis: Trudeau
+-  Christmas 2023 Marks 800th Anniversary of the Nativity's First Recreation by St. Francis
+-  Općina Viškovo dijeli poklon-pakete za djecu, evo gdje i kada ih možete preuzeti
+-  חי מליגת העל: בני הרצליה - מכבי תל אביב 2:0 (רבע 1)
+-  בשעה טובה! דיקלה קיבלה לעולם את בתה השנייה
+-  ضعف ويأس وانهزام بخطاب وزير دفاع الكيان
+-  شاهد بالفيديو مصير دبابة صهيونية بعد تفجيرها بغزة
+-  UK to deploy two Royal Navy minehunter ships to Ukraine for maritime security | World News
+-  유재석, 강남 논현동 땅 샀다…‘116억 전액’ 현금 매입
+-  Se votaron impedimentos de la reforma laboral, aunque no estaba agendada
+-  The Breville Barista Express Is 20% Off Right Now
+-  Eugenie Bouchard Stuns in Bikini, Proving She’s Still in Top Shape
+-  ABD: İsrail'in beyaz fosfor kullandığı yönündeki haberlerden dolayı endişeliyiz
+-  Okan Buruk: Galatasaray için tekrar burada tarih yazmak istiyoruz
+-  Los médicos y enfermeros del SAS podrán cobrar un adelanto de la nómina
+-  Las fotos de los MIR para animar a sus sucesores: "Merecerá la pena"
+-  Hrvati kupuju kao da je Božić već sutra: 'Skupi su pokloni, potrošit ću nekih 600 – 700 eura'
+-  El Manchester United, entre otra debacle y una nueva era
+-  El Manchester United, entre otra debacle y una nueva era
+-  El Manchester United, entre otra debacle y una nueva era
+-  El Manchester United, entre otra debacle y una nueva era
+-  Oglasili se iz Zare i poručili da je kolekcija osmišljena u julu
+-  Azerbaijani, Greek FMs discuss bilateral cooperation (PHOTO)
+-  Man dead after crashing into pole in Boonah, Queensland
+-  Top Ten Most Searched Games of the Year Revealed by Google
+-  Montero niega que exista una negociación bilateral con Cataluña sobre financiación autonómica
+-  Montero niega que exista una negociación bilateral con Cataluña sobre financiación autonómica
+-  Here’s how WeWoreWhat’s Danielle Bernstein uses 20-year-old blow dryer to get at-home salon blowout
+-  Andrew Tate refused access to $12M in seized assets including his Bugatti
+-  Opasno po zdravlje: Sarajevo ima najzagađeniji zrak na svijetu
+-  Feminicidios preocupan a Cali y Valle del Cauca: así está el panorama en este 2023
+-  Nicolas Cage Wraps Thriller ‘The Surfer’ In Australia: First Look Revealed
+-  Samuel García aseguró que Tigres sí tendrá nuevo estadio ¿Le creemos?
+-  Empowering Women in Cloud Technology
+-  Diputado cubano asume presidencia del Parlamento Latinoamericano y Caribeño
+-  5 formas divertidas y creativas de utilizar luces inteligentes para entrar en el espíritu festivo
+-  Træt af julens mange frokoster? Her er en god grund til at sige nej
+-  Træt af julens mange frokoster? Her er en god grund til at sige nej
+-  Skvettu vatni á svefnpoka heimilislauss manns
+-  JO Paris 2024 : Mehdi Frère en bonne position pour représenter la France sur marathon
+-  Partizan poražen u Nišu, Saničanin skrivio jedanaesterac
+-  DETALJI HAPŠENJA VUKOTIĆEVOG KUMA NA JAHORINI: Specijalci u akciji "TOKIO", kod Samardžije našli arsenal oružja i skupa kola
+-  UŽIVO! PARTIZAN - STUDENTSKI CENTAR: Neverovatan start crno-belih! Smailagić na posebnoj poziciji
+-  Süper Lig maçı sonrası hakeme saldırı!
+-  Krajnji desničar Wilders slavio na izborima u Nizozemskoj, sad ga čeka još veći izazov
+-  [한마당] 정치인과 떡볶이
+-  Bezerra quer um candidato próprio do MDB; Janaína vai apoiar Botelho
+-  Kraljevičani protiv Pazina propustili skočiti na drugo mjesto uoči pauze, Puljanima jesenska titula
+-  CAF Awards 2023 : Les lions de l’Atlas, les meilleurs !
+-  Tanović: Sarajevo mora postati metropola i izaći iz okvira kasabe
+-  Дагестан увеличивает экспорт шерсти, хотя производство не растет
