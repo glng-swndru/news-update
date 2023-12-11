@@ -1,11 +1,51 @@
 # Latest News
--  Roban en la plaza de Bueu pescado y marisco por valor de 3.000 euros
--  ప్రైవేటు ఆస్పత్రి ముందు మృతదేహంతో ఆందోళన
--  Shakira, Bizarrap y Peso Pluma, encabezan búsquedas en español de EEUU en Google en 2023
--  Minsa confirma una defunción por dengue, en total van 14 muertos
--  La ineludible importancia de la educación
--  Haciendo amigos
--  ‘It was just a symbol’ — axed EFF Merafong chief whip on ANC/EFF T-shirt swap blunder
--  జాతీయ స్థాయి పోటీలకు విద్యార్థుల ఎంపిక
--  Presentes que 'falam' inglês? WOOK não pode perder
--  Simone surge com cabelo loiro e impressiona com macacão que valoriza a cintura em gravação de DVD. Foto!
+-  TBMM Başkanı Kurtulmuş'tan Özgür Özel'e zor soru: Bunların yanında kim vardı?
+-  Resmen açıklandı! Ibrahimovic teknik direktör olarak dönüyor
+-  ABD: İsrail'in beyaz fosfor kullandığı yönündeki haberlerden dolayı endişeliyiz
+-  Niños Mutantes anuncia que 2024 será el año de su despedida
+-  Toronto police arrest anti-Israel protester over alleged assault on officer
+-  En Sinaloa el crimen organizado no extorsiona a los agricultores como pasa en otros estados: Rocha Moya
+-  Zaragoza recordará a las víctimas del incendio de Tapicerías Bonafonte con una placa conmemorativa
+-  Fortnite: Epic Games ainda quer crossover com personagens da Nintendo
+-  Ceny kawy mogą wzrosnąć wskutek suszy w Brazylii
+-  Europejski rynek akcji najwyżej w tym roku
+-  LOT nagrał safety video w Muzeum Narodowym w Warszawie. Film stał się viralem
+-  Predlog zakona o medijih, ki se zavzema za preglednost lastništva in financiranja medijev
+-  Predlog zakona o medijih, ki se zavzema za preglednost lastništva in financiranja medijev
+-  Polens parlament beder EU-venlige Donald Tusk danne ny regering
+-  Polens parlament beder EU-venlige Donald Tusk danne ny regering
+-  Najbolji besplatni VPN-ovi
+-  El teléfono 016 contra la violencia de género recibió en octubre 237 llamadas desde Aragón
+-  Razvoj astroturizma: Na Lastovu održan tečaj astronomije, ovaj otok može privući goste čak i u prosincu
+-  הסיכונים, היתרונות - והבעייתיות הגדולה: כל הפרטים על פצצות זרחן
+-  Equipe catarinense conquista feito inédito na Liga Nacional de Handebol
+-  Braulio: «Mi mercado fuerte está en América»
+-  В США демократа уличили в попытках тайно прекратить дело об импичменте Байдена
+-  watchOS 10.2 now available with watch face tweaks and major Health change
+-  Nema dogovora na vidiku o novoj nizozemskoj vladajućoj koaliciji
+-  Врач предупредила о непоправимых последствиях анального секса
+-  Turkijos grandų mūšyje – „Anadolu Efes“ triumfas
+-  Visitó el Costo japonés y no esperaba encontrar esto
+-  Nadal y Alcaraz disputarán el 3 de marzo de 2024 un partido de exhibición en Las Vegas
+-  I’m a confident big girl, it gets me riled up when trolls say my swimsuits are ‘inappropriate’
+-  Atropellan a tres médicos frente al hospital Bloom
+-  Morate vidjeti papuče Zorana Šprajca! RTL-ovi voditelji pojavili se u kućnim izdanjima koje još niste vidjeli
+-  Why The Chevy 327 Engine Is Referred To As The 'Mighty Mouse'
+-  Advanced MRI technology detects changes in the brain after COVID-19
+-  الوفد: مشاركة الشعب المصري بالانتخابات رسالة قوية وواضحة للعالم
+-  زحام قبل غلق باب التصويت في ثاني أيام انتخابات الرئاسة بالدقهلية
+-  مجدي الجلاد وسط الشباب المنظمين وشباب الحملة الرسمية للمرشح السيسي
+-  أزمة قلبية تنهي حياة ناخب في لجنة مدرسة شلقامي بالمنيا
+-  4 أبراج عليها الحذر الفترة المقبلة "خسارة أموال وفقدان أشخاص"
+-  El Gobierno amenaza al PP con un ajuste más duro para las autonomías si veta en el Senado los objetivos de déficit
+-  تعقد المفاوضات بين البايرن وديفيز
+-  Alemanha passa a adotar postura mais crítica em relação aos ataques israelenses contra Gaza
+-  Tunus, Uluslararası Göç Örgütü'nden Filistin'de ateşkes çağrısında bulunmasını talep etti
+-  iPadOS 17.2 now available to iPad users but lacks Journal app
+-  أرقام سافيتش أمام التعاون
+-  Researchers find promising candidate to treat irreversible lung and eye diseases in extremely premature infants
+-  Trendyol Süper Lig: Konyaspor: 0 - Sivasspor: 1
+-  ‘Shayda’s Noora Niasari Explores A Story Of Adversity And Empowerment Inspired By Her Own Childhood
+-  ¿Te da pena decir "no"? Сientíficos aseguran que es mejor de lo que piensas
+-  Najviša deflacija u Kini u zadnje tri godine
+-  iOS 17.2 is now available with these 18 new features
