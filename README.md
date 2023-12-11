@@ -1,51 +1,51 @@
 # Latest News
--  وفيات الاردن الإثنين 11 - 12 - 2023
--  الاحتلال: مقتل أكثر من 100 جندي منذ بداية العملية بغزة
--  طريقة تحضير الكنافة على الطريقة السورية
--  الاحتلال: اعتراض 8 صواريخ أطلقت من لبنان
--  Asgari ücrette kritik gün! Komisyon toplanıyor
--  รวบคาค่าย "ทหารธุรการ"ผันตัว ค้ายาไอซ์ รับโทษหนัก 3 เท่า
--  Indiana Fever win WNBA draft lottery for No. 1 pick for second straight season
--  कामना सेवा विकास बैंकको ५ लाखभन्दा बढी कित्ता संस्थापक शेयर विक्रीमा
--  Police to crack down on election law violations ahead of general elections
--  Gov't to not authorize apartment completion unless inter-floor noise level meets standards
--  मकर जितुमाया सुरी हाईड्रोपावरले पुस २३ गते बोलायो साधारण सभा, सर्वसाधारणतर्फ सञ्चालक निर्वाचित हुने
--  [영상] 정청래 “윤 대통령이 김건희 특검을 수용한다면 어떤 일이 벌어질까?”
--  “○○초등학교 아이들 다 죽이겠다”…인천 학부모 채팅방 발칵, 왜?
--  MGM Duyurdu! Gaziantep'te yaşayan vatandaşlar Dikkat! Bugün Hava Yine Yağmurlu. 11 Aralık Pazartesi Gaziantep'te Hava Durumu
--  Синоптики оголосили в Києві І рівень небезпеки
--  Mocny spadek cen ofertowych na brytyjskim rynku mieszkaniowym
--  프랑스가 밀어주는 AI스타트업 미스트랄, 7개월만에 3조가치 기업
--  ‘You will see actual Babar Azam now’: Gautam Gambhir's big prediction for former Pak skipper ahead of Australia series
--  Vətən Müharibəsinin ali təhsilli veteranı məktəbə xadimə götürdülər
--  CGTN: Китай и Вьетнам наблюдают более тесные связи между людьми
--  త్వరలో తెలంగాణ హోంశాఖ ప్రక్షాళన
--  81 ilde operasyon: Arama kaydı bulunan 4 bin 951 firari yakalandı
--  [뉴스핌 라씨로] 덕산네오룩스, 퀸텀닷 디스플레이 소재 개발 중...품질인증 테스트 진행
--  Climate crisis and its adverse impact on sports
--  [ACL 기자회견] 한일전 앞둔 홍명보 감독, “홈에서 승리하고 시즌 마치겠다”
--  Kamu-koira kuoli järkyttävällä tavalla
--  CLAT Result 2024: Grievances filing process begins today at 12 noon
--  엔씨, 사상 첫 공동대표 전환…김택진·박병무 체제
--  В Югре при столкновении двух легковушек погибли 4 человека и 2 пострадали
--  Shiba Inu Adds Another Zero; Analyst Warns of Major Resistance
--  NielsenIQ: Hong Kong Leading the Vacation Bucket List for Mainland Tourists
--  아이를 위한 아빠로션, 데일리파파 올인원로션 출시 예정
--  방역전문기업 ‘엔에스클린닥터‘, 2023 한국소비자베스트브랜드대상 1위 수상
--  에이팜건강 쁘띠앤, ‘2023 쁘띠앤 고객 감사제’ 이벤트 오픈
--  숭실사이버대, ‘송년음악회’ 개최
--  한국열린사이버대 평생교육원, 종합미용면허증 1학기 1차 12월 개강반 수강생 모집
--  ‘(유)세익’, 2023 한국소비자베스트브랜드대상 1위
--  이근재 한국유권자총연맹 국정감사 대회장, 올해를 빛낸 국정감사 최우수 국회의원 대상 시상 수여
--  최진호 안산시의원 발의 ‘의회 지방공무원 복무 조례 개정안’, 상임위 통과
--  안성시, ‘제5차 미세먼지 관리제’ 클린앤쿨링로드 운영
--  설호영 안산시의원 발의 ‘市 인구정책 기본 조례안’ 상임위 통과
--  선현우 안산시의원 발의 ‘어르신 무상교통 지원 조례 개정안’ 상임위 통과
--  가평군 설악면 농업인협, 15개 단체 정성모아 12년째 이웃돕기 성금기탁
--  구리 소상공인연합회-청년내일센터, 판로개척 등 업무협약 체결
--  Automotive Plastic Fasteners Market worth $5.49 billion by 2030, growing at a CAGR of 4.40% - Exclusive Report by 360iResearch
--  আজ টাঙ্গাইল হানাদার মুক্ত দিবস
--  Сперцян вышел на восьмое место по голевым передачам за «Краснодар»
--  Automobilist verliest controle over het stuur en belandt met auto in sloot op Midden-Brabantweg
--  [배현진, 하태경·김웅 저격 “본인 무능 100번 자성해도 모자라”
--  [코이카 신임 상임이사에 김동호·손정미 선임…4인 이사 체제
+-  تحذير من 4 عواقب وخيمة للاستحمام بالماء الساخن خلال الشتاء
+-  ينتهى السبت.. التسجيل في برامج اللغة الإنجليزية للجميع حضوريا وعن بُعد
+-  В России началась разработка плана восстановления Мариуполя на 2024 год
+-  Katliam destekçisi Blinken İsrail'e acil olarak yapılan tank mühimmatı satışını savunup Kongre'ye çağrıda bulundu
+-  ABD Dışişleri Bakanı Blinken: Gazze'deki katliamın ne zaman biteceğine İsrail karar verecek
+-  İtalya'da iki tren çarpıştı: Kazada 17 kişi yaralandı tüm seferler durduruldu
+-  Kassam Tugayları: 48 saatte 40 İsrail askerini öldürüp 44 askeri aracı imha ettik
+-  जम्मू-कश्मीर से अनुच्छेद 370 को निरस्त करने पर फैसला: SC ने कहा-अनुच्छेद 370 एक अस्थायी प्रावधान
+-  힐튼, 우마나 발리와 함께 동남아시아에 LXR 호텔 & 리조트 공식 오픈
+-  Израиль послал жесткий сигнал Путину
+-  Γνωστό φάρμακο για τη ρευματοειδή αρθρίτιδα επιβραδύνει την εξέλιξη του διαβήτη τύπου 1
+-  청소년 해방구 ‘야호 존’…광주시교육청 공약사업
+-  Anthony Albanese and Jodie Haydon's holiday surprise: PM kicks off five days of summer off with a celebrity twist - at a gig no-one would expect of trendy leader
+-  2 Unit Kerja Pemprov Jatim Raih Penghargaan Zona Integritas Predikat WBK
+-  Australia A smashing Sri Lanka twice in one day, David Warner plucked from obscurity and Andrew Johns playing for NSW - inside the early days of T20 cricket in Australia
+-  Stars feature on NFL coverage
+-  Seçil Erzan’ın avukatı konuştu
+-  [벡톤디킨슨코리아] 의료기기 회수에 관한 공표
+-  Over 50 Last-Minute Christmas Gifts for When Going to the Shops Isn’t an Option
+-  Белый дом активизирует усилия в Конгрессе по помощи Украине
+-  How Sun’s December 17 Transit Will Impact These Zodiac Signs
+-  Korban Pembunuhan Sadis di Wonogiri Diracun Lewat Es Teh Manis
+-  Guwahati: ‘Bharaghar’ actor Jayanta Das hospitalised in critical condition
+-  '뒤뜨리장, 뽁닥양지, 수꾸때비' 정의훈 시인, 동해안 사투리 담은 방언집 출간 화제
+-  [부음] 김익록 춘천 퇴계중 교감 모친상
+-  횡성 주요 관광지 유료 관광객수 대폭 증가
+-  평창군 AI·IoT기반 어르신 건강관리사업 보건복지부장관 표창 수상
+-  제11회협회장기 강원특별자치도 바둑대회 성황리 종료
+-  새홍천·홍천진달래로타리클럽 연탄 배달 봉사
+-  가톨릭관동대 학생방범대 성과공유회
+-  강릉봉사단체 십시일반 사랑의 김장나눔행사
+-  강원여성경영인협회 강릉시지회 연탁 기탁
+-  원주 중앙동 주민자치위·한라대, 사랑나눔 김장김치 배달
+-  홍천군자원봉사자대회
+-  남면 재향군인회 성금 기탁
+-  권선개발 성금 기탁
+-  양구 장인희 씨 이웃돕기성금 기탁
+-  재경철원군민회장 장학기금 기탁
+-  정선군종합사회복지관 정선군시설관리공단 자원봉사활동
+-  평창군 적십자 봉사원대회 열려
+-  전국이·통장연합중앙회 동해시지회, 2023 송년의 밤 실시
+-  횡성jci 사랑의 연탄전달
+-  원주 소초면 주민들, 악취 해소 및 친환경 에너지타운 건립 촉구
+-  인감증명서 110여년만에 온라인 발급 도입
+-  강릉 여성·아동 등 사회적약자 인권 네트워크 발족
+-  [속보] 김기현 "모든 기득권 내려놓겠다… 사즉생 각오로 국민 목소리에 답할 것"
+-  МЧС России доставит 17,5 тонны гумпомощи для населения Газы
+-  לביבות תפוחי אדמה קלות להכנה
+-  מרק בטטה עם הפתעות טעימות
+-  סטארבקס מול העיניים, בתור התחלה: מקדונלד'ס השיקה את CosMc's
