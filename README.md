@@ -1,51 +1,51 @@
 # Latest News
--  NEPSE sees 15-point dip after Sunday&#039;s 111-point surge; Daily turnover surges to Rs 4.842 billion
--  RSP parliamentary party meeting to take place at 4:00 pm today
--  벨킨, 애플 유저 위한 '2in1 맥세이프 무선 충전 독' 출시
--  세아베스틸 생산하면 중기 부산물 챙겨 재활용…상생형 공동사업전환 승인
--  SK 최태원, 미국 이어 유럽까지 '글로벌 현장경영' 박차
--  선명희피자, 시그니처 '매운 바싹 불고기' 피자 선봬
--  Как не отравиться угарным газом?
--  [양산시, '1028 지방도 국도 승격' 청신호…제6차 국도·국지도 건설계획 반영 초읽기
--  [‘초전도체’ 논문 무단 발표 논란…고대 “연구윤리 위반없다”
--  60 Minutes star Tom Steinfort welcomes a baby girl with wife Claudia and reveals her adorable name
--  Nigel Farage defends his £1.5million I'm A Celeb fee and admits he couldn't wait for a pint after leaving camp - as he enjoys Guinness with Aussie locals
--  الذكاء الاصطناعي يكشف أورام المخ بـ 90 ثانية
--  تحذير خطير للنساء من أوقات الفراغ
--  Boğa burcu, Akrep ve Balık. Siz 2023 yılında kalın. 2024’e sakın girmeyin. Nedeni açıklandı, üzüleceksiniz
--  Women’s Rugby World Cup in 2025 to start in Sunderland and end at Twickenham
--  İşte Avrupa'nın 5 büyük ligindeki son durum
--  Necip Fazıl Saygı Ödülü sahiplerinden Prof. Dr. Nevzad Atlığ hayatını kaybetti
--  Szymanski, kariyer sezonunu yaşıyor!
--  Ferdi Kadıoğlu derbiye damga vurdu
--  Grings über Trainerjob bei DFB-Frauen: Interessant
--  Neuer Rundwanderweg zwischen Konnersreuth und Kapplkirche eröffnet
--  جندوبة: إحباط محاولة تهريب مجموعة من الأبقار
--  Benjy Weenick: Heartbroken family of 16-year-old passenger who tragically died in a horror crash that left four others badly injured share a powerful message
--  Un hijo avisa a la Policía Local para frenar un caso de violencia de género en Elche
--  경기도 예방가능 외상사망률 9.1%, 2018년 대비 절반 이상 감소해
--  LG, 2001년 이후 22년만의 GG 3명 배출… 최다 득표는 오스틴(종합)
--  롤렉스 시계부터 황금장갑까지… 오지환의 완벽했던 2023시즌
--  '전설의 시작'… 노시환, 한화 소속 3루수로 17년만에 GG 수상
--  '나솔' 17기 현숙, 연인 상철 사생활 영상에 "순간으로 인생 폄하 마음 아파"
--  '생애 첫 타격왕' 손아섭, 6년만에 GG로 2023시즌 화려한 피날레
--  Havarie in Deutschland: Kreuzfahrtschiff auf der Elbe in Brand geraten – Passagiere müssen evakuiert werden
--  Potraga za muškarcem u BiH i dalje u toku: Otišao po ovce i nije se vratio
--  Delta's COP28 Side Event Shares Experience in Internal Carbon Pricing, Echoing COP28's "Climate Finance" Focus
--  Konya’da SMA Tip-1 hastası 7 aylık Dilek'in yaşaması için 29 milyon TL'ye ihtiyacı var
--  Emmerdale spoiler video: Victoria stunned as Jacob makes a big decision about their future
--  Konya'da 600 konutluk dev proje! Karatay'daki Sedir Park Konutları için ön başvurular başladı!
--  Tabaković: Transakcije između građana i privrede Srbije i Crne Gore od danas se mogu realizovati direktno
--  Feuerwehrjugend der Gemeinde Thanstein besteht den Wissenstest
--  Akiplėšiškas padegimas Kaune: padegėjas „Volkswagen“ užkūrė kitų žmonių akivaizdoje
--  Pojavila se snimka direktnog razgovora Zelenskog i Orbana
--  Wegen KI-Anwendungen - Microsoft verdoppelt Cloud-Kapazität in Deutschland
--  عدد من النواب يسحبون مقترحات فصول كانوا قد تقدموا بها للمجلس
--  Какие гендерные темы остаются за кадром в медиа Таджикистана?
--  Оппозиция Японии подаст проект о вотуме недоверия правительству из-за скандала
--  Parliament decides to debate VAT (Amendment) Bill today (11)
--  Pekas ut av svenskorna: ”Undviker henne”
--  Okončan dvosatni protest radnika ArcelorMittala Zenica
--  Mars'ta tarihi keşif
--  Surprising Diagnosis: Healthy GP Visit Leads to Emergency Heart Surgery
--  Milatović: Svakom djetetu pružiti priliku za srećno djetinjstvo
+-  Domácí listopadová inflace klesla v souladu s odhady
+-  दुष्प्रचार गरेर जनतालाई भ्रममा पार्ने षड्यन्त्र भइरहेको छ : प्रधानमन्त्री दाहाल
+-  बागलुङका गाउँ-गाउँमा किबी खेतीको लहर
+-  Kerstsamenzijn in De Ark Schoonhoven
+-  ¿Dónde ver en vivo las Mañanitas a la Virgen de Guadalupe 2023?
+-  Atrial Flutter Market to Witness Growth by 2032 | Acutus Medical, ARCA Biopharma, Adagio Medical, Abbott, expected to boost the market
+-  Tears of relief for Albion Park Rail Public School families that receive donated backpacks
+-  Illawarra steel chosen for AUKUS submarine fleet build
+-  Here’s everything I’d ask Nicky Henderson about Constitution Hill and why he won’t run him
+-  নৈশপ্রহরীকে হত্যা করে স্বর্ণের দোকানে ডাকাতি: অস্ত্রসহ ৭ ডাকাত গ্রেফতার
+-  Caustic Soda Market Top Growth Companies Global Growth, Trends, Industry Analysis by 2026
+-  В Тель-Авиве прозвучала воздушная тревога
+-  Majka Nagy Feró pályafutásáról: „Ilyenkor azért kicsit megnyugszom, hogy lesz melóm”
+-  Béton : Attac, les Soulèvements de la Terre et des centaines de collectifs ne veulent plus être les «dindons de Lafarge»
+-  I'm Curious If These Bops Made It On Your Spotify Wrapped This Year
+-  I'm Curious If These Bops Made It On Your Spotify Wrapped This Year
+-  الذهب يهبط مع صعود الدولار وسط ترقب لأسعار الفائدة
+-  ONA JE PRVA UŠLA U STAN NA ZVEZDARI U KOM JE BILA DEVOJČICA U KADI! Policajka danas svedoči protiv Uroša - OCA IZ PAKLA!
+-  Naa Saami Ranga’s First Song Out; Nagarjuna Embraces His Romantic Hero Avatar
+-  رئيس مجلس الوزراء وزير الخارجية يشهد تدشين فعالية اللمحة الإنسانية العالمية لعام 2024
+-  Путин поприветствовал участников форума "Надежда на технологии"
+-  تنسيقيات الأساتذة تقرر العمل يومي الاثنين والثلاثاء ومواصلة الإضراب في بقية الأيام
+-  Tuga kao reakcija na nametnutu idilu
+-  Okullarda 'adabımuaşeret' dersi müfredata alındı
+-  Гаджето на прокурорския син от Перник пребила момиче от ревност, преди да го разлюби
+-  Upassung vum Steierbarème: Chambre des salariés wëll nach méi steierlech Mesuren
+-  PREMINUO POZNATI GLUMAC! Glumio je u preko STO epizoda serije "COMBAT", sin potvrdio tužnu vest
+-  Money Talks: New Chief Ministers Redefine Power With Staggering Assets
+-  SMRŠAO ČAK 20 KILOGRAMA Požgaj se oglasio nakon što je završio u Urgentnom I OTKRIO U KAKVOM JE STANJU: "Organizam nije mogao da izdrži"
+-  Попавший в больницу Пригожин сообщил, что заболел гриппом и пневмонией
+-  Varios heridos a tiros durante últimos días en el Alto Manhattan
+-  Slipknot met nieuwe tour naar Nederland
+-  Slipknot met nieuwe tour naar Nederland
+-  独具光环的直屏旗舰 3399元起魅族21火热售卖中
+-  索尼光喻LYT-900传感器官宣 有望OPPO Find X7中首发搭载
+-  One of Europe’s most popular tourist attractions to reopen next year after being closed for five years
+-  Глава МИД Литвы раскрыл детали нового пакета антироссийских санкций ЕС
+-  الإنصاف يدعو إلى تجاوز حسابات انتخابات مايو
+-  Anthony Martial set to leave Man Utd in FREE transfer after nine years as club make decision on future
+-  충청권 신혼부부 6000여쌍 ‘뚝’… 맞벌이·무주택 일수록 아이 안낳아
+-  최고의 한해 보낸 노시환… 생애 첫 ‘황금 장갑’ 꼈다
+-  Utair опровергла информацию об аварийной посадке самолета во Внуково с опасным грузом
+-  신축 아파트, 층간소음 기준 미달이면 ‘준공 불허’
+-  Mekke sular altında: Müslümanlar, yağışlara rağmen Kabe’de ibadetlerine devam etti
+-  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
+-  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
+-  Vastaus valtuustoaloitteeseen: Rajattomasti kulttuuria lisämaksua vastaan
+-  Rugby-Twickenham to host Women's Rugby World Cup final, opener at Sunderland
+-  Жена потроши колата на шофьор в Първомай
+-  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
