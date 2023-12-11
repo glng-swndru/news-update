@@ -1,11 +1,11 @@
 # Latest News
--  Snimljen je opaki ‘prst smrti’: Evo što radi svima koji nalete na ovu čudnu pojavu
--  جامعة جدة تؤجل الاختبارات غداً.. والجامعة الإسلامية: الدراسة عبر "البلاك بورد"
--  Big Goals, Big Push: Partnership Puts Beth Oil on Path to Success
--  Evo kada piti kavu, a kada čaj: Svako piće ima svoje prednosti, ali treba paziti na jedno
--  Neutješna Pijević nakon bolnog poraza: ‘Ovo je tragedija za hrvatski ženski rukomet’
--  Llega un nuevo evento al mundo de Battlefield 2042
--  مقال «وإن عدتم عدنا» للكاتب يعقوب الغنيم جامع مانع ماتع..بقلم: مهدي عبد العليم
--  توتونجي: إيران ترحّب بأي جهد يؤدي لرأب الصدع في المنطقة ولمّ الشمل وتوحيد الرؤى بين دولها
--  رئيس التحرير بحث مع سفير پيرو تعزيز التعاون الإعلامي
--  طهبوب: ما يجري في فلسطين حالياً استمرار لنكبة 1948 ولا يمكن تأويله بأي شكل آخر
+-  Faruk Koca'nın Halil Umut Meler'e saldırısı sonrası TFF ve MHK'dan flaş karar!
+-  İYİ Parti'den istifa eden Adnan Beker: Seçimlerde Erdoğan'a oy verdim
+-  "Bu olaya karışan herkes bunun bedelini ödeyecek"
+-  وفد من "الحرس القومي العربي" بحث مع سفير الجزائر الاوضاع
+-  [오피셜] ‘1골 2도움 평점 9.5의 손흥민이 제외?’→히샬리송-우도기 포함, 프리미어리그 이 주의 팀 발표
+-  Понад 100 депутатів країн ЄС закликають Конгрес США допомогти Україні
+-  Sarılık neden olur?
+-  Federasyonun gücü boksör başkana yetecek mi? Sedat Kaya yazdı
+-  Lula entra pessoalmente no caso Braskem e chama prefeito de Maceió para reunião no Planalto
+-  IFFHS: Στους κορυφαίους σκόρερ του κόσμου ο Πίττας
