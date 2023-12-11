@@ -1,51 +1,51 @@
 # Latest News
--  ICTbusiness TV: Upravljanje korisnicima uz napredna softverska rješenja
--  Серена Уильямс и ее муж стали первыми звездами получившими Tesla Cybertruck
--  In Waldshut (D) beginnt Prozess zum Tötungsdelikt von Jestetten
--  Im Glarnerland gibt es grosse Lawinengefahr
--  Ex-Bischof Bernard Genoud wegen sexueller Handlungen beschuldigt
--  [ŽT] „Jis rėmėsi tokia idėja nuo pat šio karo pradžios“
--  To dar nebuvo. Europoje aptiko aukso monetą su Jėzaus veidu (Foto)
--  „Jis mirė!“ Z-kanaluose panika. Skelbiama, ką sumedžiojo Ukraina
--  [ŽT] Aukščiausios kokybės mūšio vaizdai. Kas dedasi Gazos labirintuose (Video)
--  Kiek pinigų prekybos centre išleistų Kevinas iš „Vienas namuose“ 2023 metais (Video)
--  Les Knicks pourraient associer Evan Fournier à Immanuel Quickley dans un package lors de la trade deadline
--  [ŽT] Į Ukrainą atvyko nauji RSK savanoriai. Tarp jų – ir „Wagner“. Kas vyksta
--  Bradley Beal (enfin) de retour demain soir contre les Warriors ?
--  Au Tréport, des graffs mettent à l'honneur la mer et les pêcheurs
--  Yeni psikolojik hap sahası
--  Pacers, iki yönlü atletik forvet arayışında
--  Ragbi maçında skandal! Filistin bayrağını Yunan bayrağıyla sansürlediler
--  Fransa'da, Müslüman öğrencilerin eğitim gördüğü liseye kamu desteği kesildi
--  Asgari ücret maratonu başladı! Bakan Işıkhan: Çalışanımız enflasyona ezdirilmeyecek
--  Diyanet İşleri Başkanı Erbaş: Batı, artık iflas etmiştir
--  FIFA Kulüpler Dünya Kupası başlıyor
--  İlkokul öğrencisine köpek saldırısı! AK Partili Özcan: Olayın en büyük sorumlusu Mansur Yavaş'tır
--  Diferenca mes tij dhe babait tim nuk ka ekzistuar kurrë”, Anila kujton mes lotësh vjehrrin e ndjerë
--  Jalur Puncak Bogor Bakal Terapkan Ganjil Genap Saat Nataru
--  Čas na doručení dárků se krátí. Termíny, kdy je nejpozději odeslat pod stromeček
--  8 pieces of original furniture return to Reddick Mansion in Ottawa
--  News24 Business | Post Office will no longer pay out social grants
--  News24 | SA's Louis Oosthuizen outduels compatriot Charl Schwartzel to win Alfred Dunhill Championship
--  Во Риека: Се преврте товарен воз полн со жито, работниците избегаа во последен момент
--  ‘억울함’ 드러낸 ‘등산로 너클 살인범’ 최윤종…사형 구형
--  24 Hours in Police Custody viewers left ‘sick to their stomach’ after ‘vile’ criminal commits vicious assault on woman
--  24 Hours in Police Custody viewers left ‘sick to their stomach’ after ‘vile’ criminal commits vicious assault on woman
--  صندوق قطر للتنمية يبحث سبل التعاون مع برنامج الأمم المتحدة الإنمائي
--  بأعلام مصر.. مسلم ومسيحي إيد واحدة في لجان الانتخابات الرئاسية بالغربية
--  Afrique : Lorsque les monnaies locales s’impriment ailleurs !
--  صاحب السمو يستقبل الوزراء المشاركين في مؤتمر الطاقة العربي الثاني عشر
--  राजस्थान में सीएम फेस को लेकर हलचल तेज, राजे पर बिफरे राजेंद्र राठौड़
--  Themapark voeding verdeelt Gelderse politiek
--  حاملين أعلام مصر.. احتفالات على أنغام الأغاني الوطنية بلجان الانتخابات الرئاسية بفيصل
--  TV lovers warned BBC iPlayer has stopped working on some boxes – check yours now
--  TV lovers warned BBC iPlayer has stopped working on some boxes – check yours now
--  Alasan Gerakan Fatah di Palestina Serukan Pemogokan Massal Hari Ini
--  (Видео) Се појави снимка од разговорот меѓу Зеленски и Орбан: „Разговаравме многу директно“
--  “Sədərək”də satılan bu malların mənbəyi üzə çıxdı
--  Масштабные учения КСИР
--  "Eu son nas viñetas tal cal son na vida real"
--  انتخابات الرئاسة.. مساعدة فاعلة من الشرطة النسائية لكبار السن وذوي الاحتياجات الخاصة بالقاهرة
--  Održana Skupština političkog pokreta 'Za nove generacije'
--  초록우산 어린이재단 강원후원회 송년회 및 2023 산타원정대 발대식 개최
--  권성동, 주식 양도세 기준 완화 반대한 한겨례와 설전 “오류와 억측으로 점철된 비난“
+-  La médica internista Patricia Fanlo, consejera de Universidades de Navarra
+-  La Universidad de Cádiz busca 21 docentes sanitarios en apenas cinco días
+-  Nætursvefn Mikaels og félaga truflaður með flugeldum
+-  25. Geleneksel Pelitköy Deve Güreşleri nefes kesti
+-  Trump’s power in Washington grows as allies pressure colleagues to admit the primary over
+-  The Airtel-Google saga on Taara explained
+-  Почётным гражданам Волгограда предоставят компенсацию на оплату счетов за ЖКУ
+-  Fallout rises from McCarthy handshake deal with White House
+-  Ukraine-La Russie lance de nouvelles attaques dans l'est-armée
+-  FPÖ-Gruber zu Festnahme nach Terrorplänen: Gefahr des radikalisierenden Islams ist allgegenwärtig
+-  НОК Белоруссии считает дискриминационным участие в Играх без национальных символов
+-  Эксперт заявил о невозможности завершить операцию в секторе Газа до Нового года
+-  Собянин: акция помощи детям «Добрая ёлка» стартовала в Москве
+-  Taraflar masaya oturdu: Asgari ücret görüşmeleri başladı
+-  İşgalci İsrail ordusu Gazze'deki çatışmalarda 3 askerinin daha öldürüldüğü duyurdu
+-  Asgari ücret görüşmelerinde ilk toplantı başladı
+-  Türbeönü Buluşmaları’ Selçuklu Çadırına yoğun ilgi
+-  কক্সবাজারে অপহৃত শিশু উদ্ধার, যুবক গ্রেপ্তার
+-  Bunu yapanların hemen tapuya gitmesi gerekiyor! Ev sahipleri ve kiracılar sakın gözden kaçırmayın!
+-  Déclaration hebdomadaire des transactions sur CCI 2023 12 04 - 2023 12 08
+-  Les Vêtements de Sport Gildan annonce des changements à sa direction : Vince Tyra est nommé président et chef de la direction; Glenn Chamandy quitte ses fonctions
+-  Itália, França e Alemanha defendem sanções contra Hamas
+-  İngiltere Ukrayna'ya gemi gönderiyor!
+-  Que papel dos Bancos de Desenvolvimento na transição para as Finanças Sustentáveis
+-  WTF: 55GB extra de Internet este Natal! Saiba como ter…
+-  It’s Beginning To Look A Lot Like Some Last-Minute Christmas Gifts
+-  Skola utrymd efter bombhot
+-  [Table ronde] Traite des êtres humains : des survivantes témoignent
+-  На Кубани отремонтировали 6,5 тысячи многоквартирных домов за десять лет
+-  Zekrom en Pokémon Go: mejores ataques y ¿vale la pena?
+-  Heitere und besinnliche Lesung im Bezirksmuseum 15
+-  À Dudelange, un Noël au Moyen-Âge
+-  How to check Matokeo ya kidato cha nne 2023 haya hapa
+-  Бойко Борисов смени 80% от ръководството на ГЕРБ в София
+-  Liberadas en Valencia 14 víctimas de explotación sexual
+-  В Удмуртии 364 тысячи жителей прошли диспансеризацию и медосмотры с начала года
+-  نصية: هناك تيار لا يريد الذهاب إلى انتخابات رئاسية في ليبيا
+-  Trump doubles down on 'dictator' remarks at New York Republican gala
+-  Datasenterindustrien bortforklarer igjen
+-  Terkini Bisnis: Lowongan Kerja Lulusan SMA di Super Air Jet, Cara Mendaftar Jadi Petugas KPPS Pemilu
+-  ¡Patos!, la película animada cuestiona la sobreprotección ¿Y tú, qué tipo de papá eres… o serás?
+-  焚き火台型ディフューザー。手のひらサイズでコンロにもなる
+-  "Đi ngược" với Lý Tử Thất, nữ YouTuber làm video với phong cách "mạnh tay" vẫn hút view ùn ùn
+-  Oxxo es la gallina de los huevos de oro: tiendas dan a Femsa la mayor parte de sus ingresos
+-  Suomalaista koulumallia myydään Aasiaan, kilpailuvalttina oppilaiden hyvinvointi
+-  Ümit Özdağ'dan HAMAS açıklaması
+-  Google 2023'ün özetini çıkardı: İşte 2023 yılında Türkiye'de en çok merak edilenler
+-  Neues Urteil: Arbeitnehmer könnten auch in der Freizeit verpflichtet sein, eine SMS vom Chef zu lesen
+-  29 Ideen für den Bad Wildunger Bürgerhaushalt 2024
+-  NEODOLjIVA POSLASTICA: Kesten pire, osvežava, zasladi, a postan je na vodi
