@@ -1,11 +1,11 @@
 # Latest News
--  Holocaust survivors among attendees at White House Hanukkah ceremony
--  Dogecoin: Here’s How Much Doge Will Trade for on Christmas
--  صفقة استحواذ لـ«جهاز قطر»
--  Gnieźnianin paserem? Policja „odtrąbiła sukces”, a jak wygląda prawda?
--  AI trained on X-rays can diagnose medical issues as accurately as doctors, finds study
--  All the Jobs AI Is Coming for, According to a UK Study
--  25 Outfit Ideas for New Year’s Eve if You Don’t Know What to Wear
--  تقييم أوتافيو مع النصر أمام الشباب
--  Vučić: Briks nije moguća opcija za Srbiju
--  Pendarovski: Vučić nije pitao da me stavi u spot, ali mislim da je to gest prijateljstva
+-  '인간극장' 목사님의 이중생활 2부 줄거리
+-  창업형 ‘재벌의 봄’은 언제 다시 올까
+-  ‘홍준표 키즈’가 ‘尹대통령 참모’ 거쳐 ‘험지’ 도전하는 까닭
+-  ‘Vanderpump Rules’ Is Already Eyeing Its Next Scandoval
+-  Экс-сотрудница госдепа обвинила США в ситуации на Украине
+-  Construction on Apple campus set to start 2026, new documents show plans for traffic
+-  Controversial YouTube star Shane Dawson and husband Ryland Adams welcome twin sons via surrogate
+-  WorkSafe fine slashed 80% after Richmond business appeals
+-  మల్లన్నకూ శఠగోపం!
+-  Son Dakika... Tüm liglerdeki maçlar süresiz olarak ertelendi
