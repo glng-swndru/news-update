@@ -1,11 +1,11 @@
 # Latest News
--  프로토 승부식 145회차, 2023-24 V리그 남녀부 경기 대상 한경기구매 게임 발매
--  Slowdown in U.S., China raises concerns about Korean economy
--  압타바이오, 코로나19 치료제 개발 美 임상2상 자진 중단
--  셀렌진, 고형암 타겟 ‘CG-3 scFv’ 메소텔린 CAR-T 치료제 美 특허 획득
--  유한양행, ‘렉라자’ 조건부 허가 삭제 완료
--  توزيع مكرمة معالي الوزير الزعوري لتلاميذ دار الفجر لرعاية وتأهيل الايتام بالمكلا
--  Hari Ini, Firli Bahuri Jalani Sidang Praperadilan Perkara Pemerasan SYL di PN Jakarta Selatan
--  Biofachhandel: Nach schwachem Halbjahr kehren Kunden zurück
--  Agribank đồng hành cùng Lễ trao giải Giải báo chí toàn quốc về nông nghiệp, nông dân, nông thôn lần thứ Nhất năm 2023
--  Rangers top red-hot Kings for much needed bounce-back win
+-  “의료급여 환자 발목 맥파 속도로 심혈관 질환 발생 예측”
+-  유전자 편집 치료제 ‘카스거비’ 미국서도 허가 취득 ... 1회 투약 29억 원
+-  무정형단백질로 고기능 생체소재 개발
+-  갑상선 기능 장애가 노쇠 위험 높여
+-  Chàng trai Hà Nội kể chuyện bỏ nhà, bỏ việc sửa "penthouse": Dự tính khoảng 10 triệu, chọn tự tay làm hết để tiết kiệm chi phí
+-  광명시, 안양천 지방정원 조성 ‘가속도’
+-  광명시 ‘2023년 10대 뉴스’ 시민 온라인 투표 진행
+-  남양주시, 2024 경기정원문화 박람회 최종보고회 개최
+-  군포시의회, 그림책꿈마루 위탁운영비·군포철쭉축제 예산 증액 비판
+-  수원도시공사, 보건복지부로부터 지역사회공헌 인정받아
