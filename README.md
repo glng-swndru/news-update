@@ -1,11 +1,11 @@
 # Latest News
--  Faruk Koca'nın Halil Umut Meler'e saldırısı sonrası TFF ve MHK'dan flaş karar!
--  İYİ Parti'den istifa eden Adnan Beker: Seçimlerde Erdoğan'a oy verdim
--  "Bu olaya karışan herkes bunun bedelini ödeyecek"
--  وفد من "الحرس القومي العربي" بحث مع سفير الجزائر الاوضاع
--  [오피셜] ‘1골 2도움 평점 9.5의 손흥민이 제외?’→히샬리송-우도기 포함, 프리미어리그 이 주의 팀 발표
--  Понад 100 депутатів країн ЄС закликають Конгрес США допомогти Україні
--  Sarılık neden olur?
--  Federasyonun gücü boksör başkana yetecek mi? Sedat Kaya yazdı
--  Lula entra pessoalmente no caso Braskem e chama prefeito de Maceió para reunião no Planalto
--  IFFHS: Στους κορυφαίους σκόρερ του κόσμου ο Πίττας
+-  셀트리온 ‘유플라이마’ 이어 ‘베그젤마’도 美 Ventegra 처방집 등재
+-  Der Öschberghof será la base de la selección española durante la Eurocopa de Alemania
+-  Глава Аргентины Милей обещал Зеленскому провести саммит по Украине
+-  صلاح وحكيمي يخسران جائزة اللاعب الأفضل.. تعرف على هوية الفائزين بجوائز الاتحاد الإفريقي
+-  Opvallende aantijging Waterreus over Steijn bij Ajax: 'Dat komt in mij op'
+-  Bachelorette: Jennifer Saro und Fynn wohnen nicht mehr zusammen
+-  Thilini acquitted and released from cheque fraud case
+-  WPL snub for Chamari Athapaththu
+-  US Special Rep for racial equity and justice in town
+-  Chalitha Pushpika ends on 11th position at Malaysian Amateur Open
