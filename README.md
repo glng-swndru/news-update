@@ -1,11 +1,11 @@
 # Latest News
--  محللون: تخفيضات إنتاج النفط قد تحتاج إلى تمديد
--  عاجل.. قريبا تأشيرة موحدة لدول الخليج على غرار "الشنغن"
--  شاهد.. حالة مطرية غزيرة على محافظة أملج
--  Dirigentes de Encuentro Ciudadano rechazan “homofobia destructiva” de los regímenes de Maduro y Putin
--  La Minusma quitte officiellement le Mali après dix ans de présence
--  Abiodun Accuses Ogun Monarchs Of Selling Govt. Lands To Indian Hemp Farmers
--  Intereses creados
--  소득 3구간까지 로스쿨 등록금 전액 지원
--  충주시, 국무총리 기관 표창 수상
--  송기섭 진천군수 민선 8기 군정 추진 성과 발표
+-  متحدث "الحكومة": المشاركة الواسعة في الانتخابات الرئاسية تؤكد وعي المصريين وتمسكهم بحقهم الدستوري
+-  Save Foods investit dans le marché du crédit carbone.
+-  Fancy Number Auction: हिमाचल में 80 लाख की कार के लिए आठ लाख में लिया 0001 नंबर
+-  Shimla: नए गीत से हिमाचल की खूबसूरती की तारीफ कर रहे शहूर पंजाबी गायक सतिंदर सरताज
+-  HPPS: हिमाचल प्रदेश में 244 एचपीएस अधिकारियों की अस्थायी वरिष्ठता सूची जारी
+-  Paddy procurement: हिमाचल में 26 दिसंबर तक जारी रहेगी धान खरीद, किसानों के खातों में जमा किए 48.08 करोड़
+-  Apple New Variety: हिमाचल में नौणी विश्वविद्यालय ने खोजी सेब की नई किस्म, दो महीने पहले मिलेगी फसल
+-  Shimla News: अतुल तिवारी बोले- अभिनय के गुर सीखे बिना फिल्म जगत में न आएं युवा
+-  Ormas Polisikan Agus Rahardjo Buntut Tudingan Intervensi Jokowi di Kasus E-KTP, Begini Kronologinya
+-  Utusan Dewan Keamanan PBB Datangi Perbatasan Mesir dengan Gaza
