@@ -1,11 +1,11 @@
 # Latest News
--  [안세영-서승재, 배드민턴 올해의 남녀선수 동반 수상 쾌거
--  [Riyadh International Philosophy Conference 2023, 올해 활동 마무리
--  ['활력있는 중산 체험' 번역 전문가 및 외신 공동주제 방문 행사 시작
--  Nieuwe trainingen CapelleDoet voor het nieuwe jaar
--  Gezellige Winterfair in Zijderveld ondanks het slechte weer
--  Son 75 años. Una Declaración Universal solo en papel
--  Los atrapan con las manos en la masa
--  Guardians of Holme será lançado no Steam em 14 de dezembro
--  New England Patriots links 12/11/23 - Pats free from playoff hunt; Kraft values good people, loyalty
--  Autowrak uit de Lek bevat stoffelijk overschot vermiste inwoner Leimuiden
+-  "الأهلي فاروس" تتوقع تثبيت الفائدة بالمركزي إذا لم ينخفض الجنيه قريبا
+-  بعد ارتفاعه.. ماذا حدث لسعر الذهب اليوم الاثنين في مصر بتعاملات المساء؟
+-  "الوطنية للانتخابات": استمرار عمل جميع اللجان الفرعية حتى وجود آخر ناخب في المجمع الانتخابي
+-  "어릴 때 상상했던 상이…" 생애 첫 GG 수상한 노시환, 그의 목표는 최다 수상이다 [MD삼성동]
+-  "الوطنية للانتخابات": تصويت 45% من المقيدين بقاعدة الناخبين فى انتخابات الرئاسة
+-  López Obrador muestra «respeto a la familia» por la muerte de la madre de ‘El Chapo’
+-  'Barbie' lidera con nueve menciones las candidaturas de cine en los Globos de Oro
+-  "Barbie" lidera indicações ao Globo de Ouro, logo à frente de "Oppenheimer"
+-  Polish Parliament Passes Vote of No Confidence in Morawiecki’s Government
+-  Coritiba anuncia volante Arilson, destaque do Criciúma, como a segunda contratação para 2024
