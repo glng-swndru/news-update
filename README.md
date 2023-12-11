@@ -1,11 +1,51 @@
 # Latest News
--  Mexico president to push forward anti-vape bill
--  أسوأ من ألمانيا في الحرب العالمية الثانية.. بوريل: الدمار في غزة كارثي ومروع
--  Bizar incident in Turks voetbal: woedende voorzitter slaat scheidsrechter neer
--  Family of police officer killed in Wieambilla shooting mark anniversary
--  Family of police officer killed in Wieambilla shooting mark anniversary
--  Kyle Richards brings Morgan Wade to Kathy Hilton’s Christmas party after Mauricio Umansky split
--  Parliament green lights 18% VAT hike
--  Can government deliver end to homelessness for veterans this Christmas?
--  OPINION: Reflecting on 75 Years Since the Convention on the Prevention and Punishment of the Crime of Genocide was Adopted at U.N.
--  Sonko, victime d’un nouveau malaise au Cap Manuel
+-  Ropa znów zdrożała
+-  Surreal wonders in ‘Boy and the Heron’
+-  [오늘의 별자리 운세] 2023년 12월 12일 화요일
+-  [오늘날씨] 오전까지 전국 눈·비 소식… 강풍 주의
+-  [오늘의 운세] 2023년 12월 12일 화요일(음력 10월 30일/일진:갑진(甲辰)/띠별·생년월일 운세)
+-  В Тамбове ожидаются полуметровые сугробы
+-  FILIP RODIĆ O ANALENI BERBOK: Nemački "zeleni" podučavaju "zelene" u Srbiji u kakvoj smo opasnosti
+-  Белгородец из села с введенным ЧС полгода не получает компенсацию за съем жилья
+-  Video: un intendente fue atropellado por un motociclista en una competición
+-  A 24 horas de desaparecido hay esperanza de poder encontrar con vida a Alonso en El Jitzámuri: Alcalde
+-  المغرب ونيجيريا يحصدان جوائز معتبرة خلال الحفل السنوي للكاف
+-  رسميًا.. فيكتور أوسيمين أفضل لاعب في أفريقيا 2023
+-  בעקבות איום ארה"ב: תתאפשר כניסת פלסטינים בעלי אזרחות אמריקנית לישראל
+-  RVSHVD on Finding His Old-School Roots in ‘Small Town Talk’
+-  Gemeente wil hardrijders op De Steeg in Schijndel tegengaan: en daarom wordt de weg veranderd
+-  مدة عقد مبابي مع باريس سان جيرمان حال وافق على تجديد عقده
+-  Carlos Pineda: “Tenemos que ganar los dos partidos en la final”
+-  Halil Umut Meler'e yumruklu saldırı: Bakan Tunç sorumlular hakkında soruşturma başlatıldığını duyurdu
+-  Türk futbol kamuoyundan hakeme saldırıya büyük tepki
+-  Jeff Bezos is leaving behind a Seattle real estate empire worth as much as $190 million. Take a look at all the lavish properties he owns across the US.
+-  Cotação do Brent para entrega em fevereiro sobe 0,25% para 76,03 dólares
+-  Dose de reforço da vacina Bivalente contra Covid-19 começa a ser aplicada em Lucas do Rio Verde
+-  Caminhada pacífica marca movimento pela eliminação da violência contra a mulher
+-  MPMT denuncia 22 pessoas e requer reparação de R$ 57,5 milhões
+-  Marcos Rogério declara voto contrário à indicação de Flávio Dino ao STF
+-  Capitães do Granada e do Athletic homenageiam adepto falecido
+-  'He is a dangerous man' — Fort Hare University murder suspect denied bail
+-  Bakan Tunç: Meler'e yönelik saldırıyla ilgili soruşturma başlatılmıştır
+-  Ross County captain admits it was a bad day at office for ‘flat’ Staggies
+-  Empoli, Cambiaghi: "Ci è mancato qualcosa per concludere. Sinceramente volevo crossare"
+-  TRILLIUM TALK: Bonnie and the jets
+-  Talvihoito ei pyri kesäkeleihin
+-  آخر فرصة أمام مبابي للإنضمام إلى ريال مدريد !
+-  5 najsretnijih znakova Zodijaka u 2024. godini – Talenti Riba izlaze na vidjelo, Bikovi stabilno rastu
+-  Jennifer Aniston Describes Matthew Perry’s Final Days Before His Death: ‘He Was Really Healthy’
+-  Пензенский «Дизель» проиграл питерскому «СКА-Нева»
+-  ‘Barbie’ Takes Half Of Golden Globes’ Original Song Nominations For 2024
+-  „Jį išgelbėjo ukrainietis...“ Paaiškėjo netikėta paslaptis. Kodėl rusas šaukštu valgė sniegą (Video)
+-  „Pažiūrėkite į Lenkiją. Europa turi skubiai ruošis.“ RUSI ekspertas pasibaisėjęs, ką padarė Vokietija
+-  Valgė kirmėles ir gyvą žiurkę. Košmaras rusų nelaisvėje
+-  Maricá: Inscrições para o ‘Passaporte Técnico’ começam nesta terça-feira (12/12)
+-  Ukrainos naudai. „Greit gabens sunkiąją techniką.“ Kas vyksta prie Dnipro
+-  Global Media Group abre programa de rescisões por mútuo acordo
+-  "10개 받겠다"… '17년만 한화 3루 GG' 노시환, 당찬 포부 밝혔다
+-  Fábio Santos faz coro por Gabigol no Corinthians: 'Estou fazendo a maior função para o malandro vir...'
+-  Vivek Ramaswamy was the target of death threats in New Hampshire that led to FBI arrest, campaign says
+-  Vanderpump Rules Season 11 trailer shockingly reveals Scheana kissed Schwartz
+-  İki TIR arasında sıkışan otomobil akordiyon gibi oldu: 1 ölü, 1 yaralı
+-  España intenta mitigar el recorte de días de pesca en el Mediterráneo
+-  Produžen rok za nagradni konkurs za najbolje u ruralnom turizmu
