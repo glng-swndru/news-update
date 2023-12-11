@@ -1,51 +1,11 @@
 # Latest News
--  Spasovski: Po paguajmë kompensimin për pushim vjetor për vitin 2023 për punonjësit e MPB-së
--  ‘White Lotus’ Star Natasha Rothwell Teases Shocking Season 3
--  Шавкат Мирзиёев: Жадидларнинг миллий давлатчиликка қўшган ҳиссасини ўрганиш долзарблигича қолмоқда.
--  Маҳаллий ишлаб чиқарувчилар қимматбаҳо тошларни Ўзбекистонга олиб киришда ҚҚСдан озод этилиши мумкин.
--  Тошкент–Самарқанд пулли автомагистрали лойиҳаси ишлаб чиқилди.
--  Эрон Маҳса Аминийнинг оиласига Сахаров мукофотини олишга рухсат бермади.
--  Тошкентда жиноят содир этганликда гумонланиб яна 4 киши ушланди.
--  Стокҳолмда Ўзбекистон-Швеция сиёсий маслаҳатлашувлари бўлиб ўтади.
--  Фарғонада ҳаво шарлари фестивалини ўтказиш имконияти ўрганилмоқда.
--  La meilleure classe du Holger 26 dans Warzone : accessoires, atouts, équipements
--  TCL reveals OLED monitor & it’s nothing like what we’ve seen before
--  तीस हजार काठका खम्बा विस्थापन
--  एमाले अछामको अधिवेशन फागुनमा हुने
--  नेप्से परिसूचकमा दोहोरो अङ्कको गिरावट
--  Echo reactions hail “brutal, violent & dark” Marvel series
--  Godzilla Minus One’s budget is even smaller than we thought
--  Only one councillor opposes Albury's Australia Day changes
--  Военное крыло ХАМАС заявило о ракетном ударе по Тель-Авиву
--  MASH: Me digjitalizimin e arsimit, investojmë në zhvillimin e vendit
--  Dykare hittade knark på fartyg i Göteborg
--  Girona y Leverkusen, un estilo para triunfar
--  Глава МИД Бельгии заявила о сложной ситуации на Украине
--  6 French Teenagers Convicted in Connection With 2020 Beheading of Teacher Paty
--  Talk of a Trump dictatorship charges America's political debate
--  Opinion: For Palestinians, the future is being bulldozed
--  YouTuber Hunter Avallone's girlfriend shot by ex-boyfriend, video shows grim aftermath
--  Donald Trump won't testify again at his New York fraud trial
--  Two men caught after botched attempt to retrieve 560kg cocaine off Western Australia coast
--  Elon Musk restores X account of conspiracy theorist Alex Jones
--  メタバースで旅行気分 ANAアプリ
--  Israel-Hamas war: Gaza reports heavy fighting, Israel presses ahead with renewed US military and diplomatic support
--  10 Reasons Why Societies Fail to Respond to Their Greatest Threats
--  10 Reasons Why Societies Fail to Respond to Their Greatest Threats
--  Gailbacher Musikverein krönt Jubiläumsjahr mit gelungenem Adventskonzert
--  Tausende Lichter gegen Antisemitismus zu Chanukka in Frankfurt
--  Kein Dezember wie 2010, kein Jahrhundertwinter
--  Schafbock von Weide gestohlen
--  Mit Pop-Balladen, Rock, Soul und Funk eingeheizt
--  Fünf Verletzte nach Feuer in Kinderzimmer
--  Gräfendorf: Bei Löschversuch verletzt
--  Parovi četvrtfinala Kupa: 'Bili' kod kuće s Varaždinom, Dinamu stiže momčad koja ih je dobila
--  Uji në Shkup është i sigurt për pije
--  Пискарев: более 100 зарубежных медиапроектов заняты дискредитацией выборов в РФ
--  Östlund: Då blir det tråkigare filmer
--  В РФ открыли прием заявок на Первую национальную премию в области профориентации
--  PFA er medunderskriver på brev til toppen i konfliktramt Tesla
--  PFA er medunderskriver på brev til toppen i konfliktramt Tesla
--  OBRM-PDUKM: Talat Xhaferi është i padenjë për postin e kryeministrit
--  Nuevos paros en Bilbobus este martes
--  الميداني الأردني في نابلس يجري عملية نوعية
+-  Montenegro Airlines ostao bez 6,8 miliona evra
+-  "Građane" ne zanima Zvezda
+-  Indian Stock Market To Surpass Hong Kong For The 7th Position
+-  Merchant Bankers, Law Firms To Be Empanelled For Disinvestment: FinMin
+-  Karnataka Records Robust GST Collections During Festive Shopping Season
+-  Experts Highlight Crucial Skills Required For 21st-Century Careers
+-  Saudia Arabia Cinema Industry: Capturing The Imagination Of The Film World
+-  Hexagon's Digital Reality Solutions: Unveiling The Power of Technology
+-  Dos eventos para no perderse en Ribadeo y A Pontenova
+-  Edukativna knjiga za decu 'Za zdrave zube bez muke – četkicu u ruke!' u prodaji
