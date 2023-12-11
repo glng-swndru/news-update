@@ -1,51 +1,51 @@
 # Latest News
--  Domácí listopadová inflace klesla v souladu s odhady
--  दुष्प्रचार गरेर जनतालाई भ्रममा पार्ने षड्यन्त्र भइरहेको छ : प्रधानमन्त्री दाहाल
--  बागलुङका गाउँ-गाउँमा किबी खेतीको लहर
--  Kerstsamenzijn in De Ark Schoonhoven
--  ¿Dónde ver en vivo las Mañanitas a la Virgen de Guadalupe 2023?
--  Atrial Flutter Market to Witness Growth by 2032 | Acutus Medical, ARCA Biopharma, Adagio Medical, Abbott, expected to boost the market
--  Tears of relief for Albion Park Rail Public School families that receive donated backpacks
--  Illawarra steel chosen for AUKUS submarine fleet build
--  Here’s everything I’d ask Nicky Henderson about Constitution Hill and why he won’t run him
--  নৈশপ্রহরীকে হত্যা করে স্বর্ণের দোকানে ডাকাতি: অস্ত্রসহ ৭ ডাকাত গ্রেফতার
--  Caustic Soda Market Top Growth Companies Global Growth, Trends, Industry Analysis by 2026
--  В Тель-Авиве прозвучала воздушная тревога
--  Majka Nagy Feró pályafutásáról: „Ilyenkor azért kicsit megnyugszom, hogy lesz melóm”
--  Béton : Attac, les Soulèvements de la Terre et des centaines de collectifs ne veulent plus être les «dindons de Lafarge»
--  I'm Curious If These Bops Made It On Your Spotify Wrapped This Year
--  I'm Curious If These Bops Made It On Your Spotify Wrapped This Year
--  الذهب يهبط مع صعود الدولار وسط ترقب لأسعار الفائدة
--  ONA JE PRVA UŠLA U STAN NA ZVEZDARI U KOM JE BILA DEVOJČICA U KADI! Policajka danas svedoči protiv Uroša - OCA IZ PAKLA!
--  Naa Saami Ranga’s First Song Out; Nagarjuna Embraces His Romantic Hero Avatar
--  رئيس مجلس الوزراء وزير الخارجية يشهد تدشين فعالية اللمحة الإنسانية العالمية لعام 2024
--  Путин поприветствовал участников форума "Надежда на технологии"
--  تنسيقيات الأساتذة تقرر العمل يومي الاثنين والثلاثاء ومواصلة الإضراب في بقية الأيام
--  Tuga kao reakcija na nametnutu idilu
--  Okullarda 'adabımuaşeret' dersi müfredata alındı
--  Гаджето на прокурорския син от Перник пребила момиче от ревност, преди да го разлюби
--  Upassung vum Steierbarème: Chambre des salariés wëll nach méi steierlech Mesuren
--  PREMINUO POZNATI GLUMAC! Glumio je u preko STO epizoda serije "COMBAT", sin potvrdio tužnu vest
--  Money Talks: New Chief Ministers Redefine Power With Staggering Assets
--  SMRŠAO ČAK 20 KILOGRAMA Požgaj se oglasio nakon što je završio u Urgentnom I OTKRIO U KAKVOM JE STANJU: "Organizam nije mogao da izdrži"
--  Попавший в больницу Пригожин сообщил, что заболел гриппом и пневмонией
--  Varios heridos a tiros durante últimos días en el Alto Manhattan
--  Slipknot met nieuwe tour naar Nederland
--  Slipknot met nieuwe tour naar Nederland
--  独具光环的直屏旗舰 3399元起魅族21火热售卖中
--  索尼光喻LYT-900传感器官宣 有望OPPO Find X7中首发搭载
--  One of Europe’s most popular tourist attractions to reopen next year after being closed for five years
--  Глава МИД Литвы раскрыл детали нового пакета антироссийских санкций ЕС
--  الإنصاف يدعو إلى تجاوز حسابات انتخابات مايو
--  Anthony Martial set to leave Man Utd in FREE transfer after nine years as club make decision on future
--  충청권 신혼부부 6000여쌍 ‘뚝’… 맞벌이·무주택 일수록 아이 안낳아
--  최고의 한해 보낸 노시환… 생애 첫 ‘황금 장갑’ 꼈다
--  Utair опровергла информацию об аварийной посадке самолета во Внуково с опасным грузом
--  신축 아파트, 층간소음 기준 미달이면 ‘준공 불허’
--  Mekke sular altında: Müslümanlar, yağışlara rağmen Kabe’de ibadetlerine devam etti
--  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
--  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
--  Vastaus valtuustoaloitteeseen: Rajattomasti kulttuuria lisämaksua vastaan
--  Rugby-Twickenham to host Women's Rugby World Cup final, opener at Sunderland
--  Жена потроши колата на шофьор в Първомай
--  Milei offers his own version of 'blood, sweat and tears' after taking office in Argentina
+-  Spasovski: Po paguajmë kompensimin për pushim vjetor për vitin 2023 për punonjësit e MPB-së
+-  ‘White Lotus’ Star Natasha Rothwell Teases Shocking Season 3
+-  Шавкат Мирзиёев: Жадидларнинг миллий давлатчиликка қўшган ҳиссасини ўрганиш долзарблигича қолмоқда.
+-  Маҳаллий ишлаб чиқарувчилар қимматбаҳо тошларни Ўзбекистонга олиб киришда ҚҚСдан озод этилиши мумкин.
+-  Тошкент–Самарқанд пулли автомагистрали лойиҳаси ишлаб чиқилди.
+-  Эрон Маҳса Аминийнинг оиласига Сахаров мукофотини олишга рухсат бермади.
+-  Тошкентда жиноят содир этганликда гумонланиб яна 4 киши ушланди.
+-  Стокҳолмда Ўзбекистон-Швеция сиёсий маслаҳатлашувлари бўлиб ўтади.
+-  Фарғонада ҳаво шарлари фестивалини ўтказиш имконияти ўрганилмоқда.
+-  La meilleure classe du Holger 26 dans Warzone : accessoires, atouts, équipements
+-  TCL reveals OLED monitor & it’s nothing like what we’ve seen before
+-  तीस हजार काठका खम्बा विस्थापन
+-  एमाले अछामको अधिवेशन फागुनमा हुने
+-  नेप्से परिसूचकमा दोहोरो अङ्कको गिरावट
+-  Echo reactions hail “brutal, violent & dark” Marvel series
+-  Godzilla Minus One’s budget is even smaller than we thought
+-  Only one councillor opposes Albury's Australia Day changes
+-  Военное крыло ХАМАС заявило о ракетном ударе по Тель-Авиву
+-  MASH: Me digjitalizimin e arsimit, investojmë në zhvillimin e vendit
+-  Dykare hittade knark på fartyg i Göteborg
+-  Girona y Leverkusen, un estilo para triunfar
+-  Глава МИД Бельгии заявила о сложной ситуации на Украине
+-  6 French Teenagers Convicted in Connection With 2020 Beheading of Teacher Paty
+-  Talk of a Trump dictatorship charges America's political debate
+-  Opinion: For Palestinians, the future is being bulldozed
+-  YouTuber Hunter Avallone's girlfriend shot by ex-boyfriend, video shows grim aftermath
+-  Donald Trump won't testify again at his New York fraud trial
+-  Two men caught after botched attempt to retrieve 560kg cocaine off Western Australia coast
+-  Elon Musk restores X account of conspiracy theorist Alex Jones
+-  メタバースで旅行気分 ANAアプリ
+-  Israel-Hamas war: Gaza reports heavy fighting, Israel presses ahead with renewed US military and diplomatic support
+-  10 Reasons Why Societies Fail to Respond to Their Greatest Threats
+-  10 Reasons Why Societies Fail to Respond to Their Greatest Threats
+-  Gailbacher Musikverein krönt Jubiläumsjahr mit gelungenem Adventskonzert
+-  Tausende Lichter gegen Antisemitismus zu Chanukka in Frankfurt
+-  Kein Dezember wie 2010, kein Jahrhundertwinter
+-  Schafbock von Weide gestohlen
+-  Mit Pop-Balladen, Rock, Soul und Funk eingeheizt
+-  Fünf Verletzte nach Feuer in Kinderzimmer
+-  Gräfendorf: Bei Löschversuch verletzt
+-  Parovi četvrtfinala Kupa: 'Bili' kod kuće s Varaždinom, Dinamu stiže momčad koja ih je dobila
+-  Uji në Shkup është i sigurt për pije
+-  Пискарев: более 100 зарубежных медиапроектов заняты дискредитацией выборов в РФ
+-  Östlund: Då blir det tråkigare filmer
+-  В РФ открыли прием заявок на Первую национальную премию в области профориентации
+-  PFA er medunderskriver på brev til toppen i konfliktramt Tesla
+-  PFA er medunderskriver på brev til toppen i konfliktramt Tesla
+-  OBRM-PDUKM: Talat Xhaferi është i padenjë për postin e kryeministrit
+-  Nuevos paros en Bilbobus este martes
+-  الميداني الأردني في نابلس يجري عملية نوعية
