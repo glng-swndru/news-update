@@ -1,51 +1,51 @@
 # Latest News
--  גורמים מדיניים: "בסוף ינואר תתקיים הערכת מצב מחודשת - עד אז תימשך הלחימה"
--  בונים על ואקום שלטוני, נושאים עיניים לזירות אחרות: כך ייראה היום שאחרי אצל חמאס
--  הותר לפרסום: ארבעה לוחמים נפלו בקרבות ברצועת עזה
--  חרבות ברזל, בינה מלאכותית ודני קושמרו: אז מה הישראלים חיפשו השנה?
--  גם היום: "יריד האור" לתמיכה בעסקי הדרום והצפון ממשיך
--  "זה סיפור מופלא עם מזל גדול": המבצע להחזרת התפילין
--  मध्य प्रदेश का मुख्यमंत्री कौन, आज चुनेंगे विधायक
--  Türkiye ile Yunanistan arasında 2. köprü! Detaylar netleşti
--  Savcıyı öldürmek için kiralık katil tuttular!
--  नेतन्याहू ने हमास के लोगों से आत्मसमर्पण करने का किया आह्वान
--  Krieg gegen die Ukraine: So ist die Lage
--  השוק יזנק? זו התחזית של סיטיגרופ למדד S&P 500 לשנה הבאה
--  הסיבה לאנטישמיות? קטאר מעבירה עד טריליון דולר לאוניברסיטאות בארה"ב
--  야놀자, '놀자, 계산적으로' 캠페인으로 쿠폰 2억7000만장 뿌렸다
--  SKT '두뇌톡톡', 치매 이환율 대폭 낮췄다..."노인 위한 AI 서비스 고도화"
--  토스 앱으로 택시·전기자전거·킥보드 탄다
--  카카오, 지속가능성 평가지수 'DJSI 월드' 3년 연속 편입
--  네이버페이, 5억원 혜택 담은 연말결산 이벤트 진행
--  당근, 거래 희망 장소 1순위 '지하철역'
--  멜론, 2023 연말결산 발표...정국·아이브·뉴진스 인기
--  쪽방촌에 온기 전한 토스뱅크...5000만원 상당 기부
--  카카오뱅크, '신용대출 비교하기' 출시
--  IPX, '라인프렌즈 스퀘어 성수' 개점...인기 굿즈 '한가득'
--  크래프톤, 글로벌 AI 학회 '뉴립스'에 논문 5편 등재
--  [테크M 이슈] 2년10개월만에 크루 앞에 서는 김범수….카카오 민심 다지기 직접 나섰다
--  '컴투스 글로벌 콘텐츠문학상 2023' 대상에 '전송된 이들을 위한 안내서' 선정
--  [크립토 브리핑] 1주일째 횡보 중인 비트코인...美 기준금리 동결 '유력'
--  "더현대 서울 오픈런" 크리스마스 맞은 백화점...나들이&데이트 명소로 '우뚝'
--  "지형 파괴 액션 통했다"...슈팅게임 새 이정표 쓰는 '더 파이널스', 동접 24만 '순항'
--  롯데정보통신 코튼시드, '롯데월드타워∙몰'서 NFT 스탬프 이벤트
--  블록체인 기업 비피엠지, 컴투스 '엑스플라' 밸리데이터 합류
--  대웅제약 '류프로라이드' 주사제 개발 돌입…美 항암제 시장 도전
--  یمنیٰ زیدی سے شادی کی قیاس آرائیوں پر احمد علی اکبر کا جواب
--  عمران خان کی تین اور شاہ محمود کی دو کیسز میں ضمانتیں منظور
--  RSUD Otista Bandung Siap Layani Caleg Stres
--  Pressestimme: 'Frankfurter Allgemeine Zeitung' zu Ampelkoalition
--  Ukrainos oro pajėgos numušė 8 rusų raketas, nukreiptas į Kyjivą
--  ที่ปรึกษารองนายกฯ ยัน ทักษิณไม่มีอภิสิทธิ์ชน รักษาตัวเป็นไปตามระเบียบ
--  Hoover's Shades Mountain Elementary School closed on Monday
--  Pressestimme: 'Augsburger Allgemeine' zu EU-Regulierung Künstliche Intelligenz
--  ดาราดัง โต้กลับทันที หลังมีคอมเมนต์ ชวนเข้าใจผิด ใช้ยาเสพติดลดน้ำหนัก ?
--  Pressestimme: 'Straubinger Tagblatt/Landshuter Zeitung' zu SPD
--  Pressestimme: 'Münchner Merkur' zu EU-Sanierungszwang
--  بشراكة استراتيجية مع جامعة دبي ومنظمة الإيسيسكو
--  Pressestimme: 'Südwest Presse' zu Parteitag der SPD
--  Pressestimme: 'Frankfurter Rundschau' zu Krieg Israels gegen die Hamas
--  Pressestimme: 'Rhein-Zeitung' zu Scholz/Haushalt
--  Pressestimme: 'Leipziger Volkszeitung' zu Ampel-Koalition
--  Pressestimme: 'Märkische Oderzeitung' zu 75. Geburtstag der FDP
--  Pressestimme: 'Südkurier' zu Lauterbach/Corona
+-  홍천남면 재향군인회, ‘어려운 이웃돕기’ 후원
+-  영월군, '주택피해 위험목 제거작업' 호평
+-  도공 대전충남본부, '여성 ex-라운지' 첫 선
+-  영월군, 고향사랑기부금 답례품 선정위원회 개최
+-  문경시, 희망2024나눔캠페인 현장모금행사 개최
+-  제27회 속초시립합창단 정기연주회 '합창판소리 수궁가' 개최
+-  전찬성 강원도의원, ‘전국 지방의회 친환경 최우수 의원상’ 수상
+-  영월군, 2023년 도시정원관리사 양성교육 수료식 개최
+-  구자근 국회의원, ‘산업집적법 개정안’ 국회 통과
+-  수성구, ‘제10회 사회복무대상’서 병무청장상 수상
+-  '체크인 영월드 E-케이션', 진로체험 활성화 공모전 최우수상 수상
+-  영월군청소년수련관, 꿈을 키우는 문화예술 탐방
+-  안동시, 어르신이 살기 좋은 ‘고령친화도시 조성’ 용역 착수
+-  의성군, 복지부 치매관리사업 우수사례 경진대회 ‘최우수상’
+-  구미도시공사, 고아폐수처리장 ‘최우수 운영시설’ 선정
+-  [동정] 고재창 태백시의회 의장
+-  울진 금강송면 불영사, 어려운 이웃에 백미 120포 기탁
+-  김철주 제36대 생명보험협회 회장 취임
+-  광주소방서, 차량화재 예방 '내 옆에 소화기' 릴레이 챌린지 추진
+-  KB손보, 5년 연속 '지역사회공헌 인정기업' 선정
+-  광주시, 연말 맞아 위탁가정 가족 소통 프로그램 ‘지구별 가족’ 실시
+-  교촌치킨, ‘치킨에 진심인 사람을 찾습니다’ … ‘교촌찐심기프트’ 이벤트
+-  대성에너지, 장산지역아동센터에 가스기기 후원
+-  [인사] 이베스트투자증권
+-  경찰, 12일부터 총선 불법행위 단속… '선거사범 수사전담팀' 편성
+-  윤대통령, 국빈 방문 네덜란드 출국… 반도체 협력 총력
+-  لبنان يلتزم "بالإضراب العالمي" تضامناً مع غزة والجنوب
+-  عاجل.. "الأرصاد" يُحذر من أمطار غزيرة وجريان السيول على هذه المناطق
+-  مفاجأة لهؤلاء.. توضيح مهم لـ"البلدية" بشأن جنسية التراخيص الإنشائية
+-  ‘요소수 대란’ 막는다…범정부 공급망 컨트롤타워 구축
+-  Triple-zero delay ‘eliminated’ Preston father’s chance of survival
+-  لماذا الاستهداف الإسرائيلي المتكرر لـ"اليونيفيل" والجيش؟
+-  광양시, ‘올해의 10대 뉴스’ 설문조사로 뽑는다
+-  V Vatikanu bo žarelo 350 slovenskih božičnih zvezd
+-  Thangkar Dechen Choling Monastery releases Nepali translation of the book "Live Strong and Happily"
+-  لتخفيف الضغط عليه.. نتانياهو ينجح في شق عائلات أسرى "حماس"
+-  Filistin yönetimine 'ABD ile ilişkileri dondurma' çağrısı
+-  İsrail, Gazze'nin güneyinde yerlerinden edilen sivilleri ikinci göçe zorluyor
+-  Gazze için küresel grev çağrısı: Lübnan'da kamu kurumları bir gün tatil edildi
+-  Dünya Müslüman Alimler Birliğinden Gazze için tüm dünyaya küresel grev çağrısı
+-  오나인솔루션즈, 독일 캐니언 자전거(Canyon Bicycles)에 AI 기반 통합 비즈니스 계획(IBP) 솔루션 구축
+-  롯데건설, ‘롯데캐슬 시그니처 중앙’ 8일 견본주택 오픈
+-  도자센서스 "경기도 도자업체 비중 전국 53%로 최다 분포"
+-  부천지속발전협, 경기도 협의회 창립 25주년 행사서 ‘혁신상’ 수상
+-  연천교육청, 2023 관리자 대상 화해중재 인식제고 연수 실시
+-  West Africa leaders set conditions for lifting Niger sanctions
+-  Zimbabwe opposition to challenge 'sham' vote results
+-  Argentina's Milei warns of 'shock' austerity as he takes office
+-  Israel bombs south Gaza after Hamas hostage threat
+-  Argentina storm to victory in Cape Town Sevens
