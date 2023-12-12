@@ -1,51 +1,51 @@
 # Latest News
--  Birbirlerine 'taahhütler' veren Rusya ve Kuzey Kore arasındaki ilişkide yeni perde
--  Zadravec o optužbama katoličke udruge: ‘Tužno je što postoje ljudi koji se protive umjetnosti’
--  Hrvatski sudac brutalno kažnjen, a proglašen je za najboljeg na svijetu
--  Spekulationen um BVB-Interesse an Stuttgarts Guirassy
--  677 مليار درهم الأصول السائلة في القطاع المصرفي بنهاية الربع الثالث
--  Lens turladı, Sevilla elendi
--  Dost ülkeden Bayraktar TB2 açıklaması: Yakında silahlı kuvvetlerimizin parçası olacak
--  Okan Buruk'tan 4 değişiklik
--  Faruk Koca ve 12 yönetici PFDK'ya sevk edildi!
--  AB'den Netanyahu'ya iki devletli çözüm eleştirisi
--  Rotterdam man convicted of making child pornography in Brazil, Nepal
--  Битиќи од трибината „Повеќе за сите“ во Тетово: Се грижиме за најранливите наши граѓани, за да им обезбедиме социјална сигурност
--  Cameroun :: Il Aurait Eu 90 Ans Ce 12 Décembre 2023. :: Cameroon
--  박성웅, 놓치지 않는 하트
--  '논란의 오타니 디퍼'… 美 매체 "허용되나 옳다고 할수 없어"
--  장률 '훈훈해'
--  Ο ισραηλινός στρατός γεμίζει με θαλασσινό νερό τις σήραγγες της Χαμάς στη Γάζα
--  Saint-Louis : Plaidoyer pour une meilleure intégration de la jeunesse dans les processus électoraux
--  ¿Vida extraterrestre en Júpiter y Saturno?, sus lunas heladas podrían contener la respuesta
--  4.12 مليار ودائع ادخارية جديدة في سبتمبر تجاوزت 266 مليار درهم
--  ¡Van por el mercado internacional! Dan banderazo al muestro de la bahía de Lechuguilla y sus ostiones
--  В Газе обнаружили тела израильских заложников
--  Travis Kelce holds Taylor Swift close in another cuddly pic from post-game holiday party
--  Justin Herbert out for season with Chargers’ playoff hopes hanging by a thread
--  Read Only Memories: Neurodiver eyes spring 2024 release, new trailer debuts
--  Παγκόσμιο Κύπελλο Συλλόγων: Το χαμόγελο και το... κλείσιμο του ματιού της ρέφερι στον Κορονάντο της Αλ Ιτιχάντ (vid)
--  Iconic pop group recreate scene from most famous video 29 years on from number 1 hit – do you know who they are?
--  Jesús Ariel iba en moto y lo subieron a la fuerza a un auto: “levantan” a joven en Badiraguato
--  Τζόκερ έπαιξες; Δείτε τους τυχερούς αριθμούς
--  Your horoscope in Chattanooga neighborhoods
--  Νέο βίντεο ντοκουμέντο μετά τον τραυματισμό του αστυνομικού από φωτοβολίδα στου Ρέντη
--  نیب، اسلام آباد، ملتان اور سکھر میں افسروں کے تبادلے، کون کہاں گیا؟
--  Alex Ubago promete a los venezolanos un viaje al tiempo para recordar 20 años de carrera
--  Live Champions League | Ten Hag jaagt met United op goal tegen Bayern
--  Top jumps jockey faces six-month ban after allegedly testing positive for cocaine
--  Biden Zelenskyille: Avun epääminen Ukrainalta olisi joululahja Putinille
--  Sambhal News: रोजवेज परिचालक ने दिव्यांग दंपती को पीटकर बस से उतारा
--  Mohali News: उल्टी दिशा से वाहन चलाने के महीने में कटे 410 चालान, फिर भी लोग कर रहे उल्लंघन
--  Biden Zelenskyille: Avun epääminen Ukrainalta olisi joululahja Putinille
--  Israel deploys warship to join UK, US & French vessels as Red Sea tensions rage with Iran-backed rebels attacking ships
--  Italia: Giorgio Chiellini se retira del fútbol dejando un legado
--  Troubling Anti-Semitic Sign Found Outside Republican Congressman's Office
--  Заобикаляне на санкции ще води до конфискуване на имущество
--  Dulu Sering Kritik, Ferdinand Tiba-tiba Puji Anies di Debat Capres: Kali Ini Kau Benar
--  Deshalb bewegt sich der Euro zum US-Dollar und Franken kaum
--  Einkunnir Arsenal gegn PSV: Nketiah fær 8
--  PEKARA POKAZUJE NAJSUROVIJU I NAJBRUTALNIJU STRANU ŽIVOTA U IMPERIJI Veliko arheološko otkriće u Pompeji (VIDEO)
--  ¿Cuándo es la Noche de los Museos en Buenos Aires?
--  مونديال الأندية.. رقم "قياسي" لكريم بنزيما في ليلة فوز اتحاد جدة على أوكلاند سيتي
--  Apple introduces new Stolen Device Protection feature with first iOS 17.3 beta
+-  [MD포토] 있지 유나 '와인빛 헤어에 한 번, 눈빛에 한 번 더 취하겠네'
+-  사실상 커리어 로우→'6억엔' 사인…'7억 달러' 오타니에 자극받은 '56홈런' 거포 "ML 진출 마음 더 커져"
+-  [MD포토] 있지 '새벽을 깨우는 아름다움'
+-  [MD포토] 있지 채령 '올블랙으로 시선을 한 몸에'
+-  [MD포토] 있지 예지 '아름다운 데님 패션'
+-  [MD포토] 있지 유나 '새벽에도 완벽한 인형 미모'
+-  [MD포토] 있지 예지 '아름다운 데님 여신'
+-  [MD포토] 있지 채령 '올블랙 아름다운 자태'
+-  [MD포토] 문가영 '코트 속 스키니 몸매'
+-  [MD포토] 문가영 '코트 안은 더 화려해요'
+-  [MD포토] 문가영 '감출 수 없는 선명한 11자 복근'
+-  [MD포토] 이동휘 '나도 하트'
+-  [MD포토] 차주영 '새벽에도 완벽한 아름다움'
+-  2023's Wildest Sci-Fi Show is Bringing Back Its Most Underrated Secret Weapon
+-  SC reserves order on Section 6A of Citizenship Act
+-  2 IAS, 2 JKAS Officers Shifted
+-  وزارة الصحة في غزة: ارتفاع عدد القتلى الفلسطينيين جراء الحرب الإسرائيلية على غزة إلى 18412
+-  Sensacyjne wieści ws. gwiazdy Lecha Poznań. Agent negocjuje z dużym klubem
+-  Omar plea seeking divorce dismissed
+-  Crean computadora con Tejido cerebral humano
+-  العاهل الأردني ونظيره الإسباني يناقشان الجهود لوقف إطلاق النار في غزة
+-  Izraelci počeli pumpati morsku vodu u Hamasove tunele
+-  Suspicious gadget found in Samba
+-  Top New York Court Orders New Congressional Districts In Major Win For Democrats
+-  Pep Gvardiola najavio duel sa Crvenom zvezdom: Igramo protiv velikog kluba, evropske institucije
+-  Jorge Macri pisa fuerte y remueve la cúpula de la Policía de la Ciudad
+-  Handball: Füchse Berlin erreichen in Bietigheim locker Viertelfinale im DHB-Pokal
+-  Woman among 4 held in Bandipora
+-  2 in custody following ‘pedestrian incident’ in northeast Calgary: police
+-  Diego Alonso: "El resultado es cruel"
+-  نتنياهو "يعترف" بالخلاف مع الولايات المتحدة بشأن مستقبل غزة
+-  «Falleció»: angustia en América TV por lo que se escuchó en el ciclo de Mariana Fabbiani
+-  “Ndoshta dhe vetë Rama”- Mërtiri: Dikush i dha garanci Berishës të dilte kundër SPAK
+-  Combating inequality for disaster risk reduction
+-  Night temp stays sub-zero
+-  Carlos Mouriz: "El Sevilla va a poder disfrutar de nuestra fiesta"
+-  Ez durva! Egy férfi a pénisznagyobbítása segítségével szökött meg a börtönből
+-  El petróleo de Texas baja casi 4 %, a 68,61 dólares
+-  Legacy of Hazrat Umar (RA): From Humble Beginnings to Magnificent Leadership
+-  Τι περιείχαν οι φάκελοι για την οπαδική βία που έφτασαν στον Άρειο Πάγο: Χούλιγκανς, μπράβοι, ναρκωτικά
+-  Lula anuncia evento para 8 de janeiro para recordar tentativa de golpe
+-  Organizador de concierto de Romeo Santos cumple condena en El Rodeo II
+-  White House lays out offer on immigration changes in talks with Congress
+-  Temas del día de EFE España del miércoles 13 de diciembre de 2023
+-  Farmer: Mirko Šijan se odvaja od tašte i tasta, otvara svoju farmu pilića, Gocin sin ulazi u biznis sa živinom
+-  Canadians dominate first Professional Women’s Hockey League rosters
+-  Ohtani’s Dodgers contract has $680 million deferred, lowering tax value to $46 million annually
+-  الرئيس الصومالي يستقبل المبعوث الخاص لوزير الخارجية
+-  El once de la jornada
+-  Greg Fergus should not resign if he apologizes and pays fine, NDP say
