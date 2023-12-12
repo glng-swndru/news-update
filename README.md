@@ -1,51 +1,11 @@
 # Latest News
--  אצילי פתח בהרכב אל עין, אך השתולל על הספסל כשהוחלף. צפו
--  Дунёда қизамиқ энг кўп тарқалган мамлакатлар эълон қилинди .
--  Пентагон махфий ҳужжатларининг ошкор этилиши бўйича тергов натижалари эълон қилинди.
--  Soccerladuma | Mauricio Pochettino Tells Chelsea To 'Sell' Seven Players
--  Pizzan vinsælasti heimsendi matur Íslendinga
--  الأزهر يعتمد نتيجة اختبارات الدراسين برواق الجامع الأزهر
--  الأهلي يتفوق على ريال مدريد.. الأندية الأكثر مشاركة في كأس العالم للأندية
--  مال ونجاح وسفر.. 4 أبراج الحظ بيجري وراهم في 2024
--  الناخبون يتحدون الأمطار ويحتشدون في لجان مصر الجديدة قبل ساعات من نهاية التصويت
--  الثالثة على التوالي.. محمد صلاح يفوز بجائزة أفضل لاعب في ليفربول عن شهر نوفمبر
--  بسبب قصف غزة عشوائيًا.. بايدن يطالب نتنياهو بتغيير حكومته الحالية
--  بعد الظهور الأول في مونديال الأندية.. رسالة هامة من إمام عاشور لجماهير الأهلي
--  الوطنية للانتخابات: ملتزمون بالجدول الانتخابي بإعلان نتائج الانتخابات الرئاسية يوم 18 ديسمبر
--  7 صور ترصد سقوط الأمطار على مدينة نصر
--  بينها مناقلة أموال الى انتخابات كوردستان.. حكومة السوداني تتخذ جملة توصيات وقرارات
--  Kabataş-Bağcılar tramvay hattında bakım çalışması
--  The EPIC untold story behind Fairytale of New York
--  Hububat Nedir: Tahıl Tanımı ve Önemi
--  EURGBP breaks above resistance, signaling potential upside momentum
--  الجيش: الضرب بيد من حديد لمن يحاول المساس بأمن الأردن
--  Élection Comex de la FGF : la FIFA ferme sur le maintien des 3 candidatures déjà validées…
--  US Sanctions China, Turkey Firms to Curb Russia War Efforts
--  La riforma fiscale passa in parlamento, in attesa del popolo
--  В Москве допустили примирение между Баку и Ереваном до конца года
--  Алиев о готовности Баку провести COP29
--  Dino diz que não vai perder tempo com Moro antes de sabatina
--  શિયાળામાં વાળ શુષ્ક અને નિર્જીવ થઈ ગયા હોય તો આ રીતે કોફી લગાવો, એક અઠવાડિયામાં જ દેખાશે ફરક
--  Fiji Govt gets executive jet from US
--  China: Milei diz que dá “grande importância” aos laços com Pequim
--  Kenya to scrap visas for all visitors, president says
--  Biden: Izrael počinje gubiti podršku
--  Sony's fantastic WH-1000XM4 wireless headphones are down to $230
--  Save 40% on an Amazon Fire TV Stick with this streamer deal
--  OPINION: ‘They don’t really care about us’
--  Météo : des températures aussi douces à la mi-décembre, est-ce normal ?
--  More Americans than Canadians use alcohol to dull their pain, according to study
--  Over 21,000 Venezuelan migrants registered in Guyana despite bilateral crisis
--  El truco definitivo para quitar el sarro de la pava electrica
--  Do čoho investuje? Staré Mesto bude v roku 2024 hospodáriť so sumou 34,5 milióna eur
--  Još saslušavaju svjedoke u predmetu protiv ljekara Nikole Fatića
--  Italy and Juve Legend Giorgio Chiellini Announces Retirement From Football
--  Optical Illusion: चित्रकाराने केली मोठी चूक, 10 सेकंदात उत्तर सांगाल तर तुम्हाला कडक सॅल्यूट; तर मग आव्हान स्वीकारा
--  Együtt ünnepeltek Devecserben
--  Why are police lights red and blue?
--  Operação da Polícia Federal mira em esquema suspeito de importação e venda ilegal de cigarros eletrônicos
--  Hedge-Fonds-Gruppen klagen gegen die US-Börsenaufsicht SEC, um die Leerverkaufsregeln aufzuheben
--  Hedgefondsgroepen klagen Amerikaanse SEC aan in poging short-selling regels te schrappen
--  Čínský Zhaoxin představuje 8jádrový procesor KX-7000 s frekvencí až 3,7 GHz
--  Premier Ministre de cohabitation : Jordan Bardella se dit « prêt »
--  De förvandlade köket – till en julkalender
+-  Nyt on kova kiekkohuhu - onko tässä Olli Jokisen uusi seura?
+-  Jalkapallotähti palaa Valioliigaan?
+-  Mastercard nombró a Carlos Quintero para dirigir IMC para América Latina y el Caribe
+-  انتخابات الرئاسة.. حشود كبيرة علي اللجان للتصويت في أسوان قبل إغلاق باب التصويت
+-  Las limpiadoras en huelga se manifiestan y siguen las quejas por suciedad en colegios
+-  Spielworks Announces Strategic Funding From The Hashgraph Association to Develop the Web3 Gaming Ecosystem
+-  Shqiptarët dhe serbët kërkojnë depolitizimin e çështjes së personave të pagjetur
+-  URA: Predložićemo povećanja naknada za materijalno obezbjeđenje
+-  Berkshire Hathaway minskar i HP
+-  Suspenderán verificación vehicular en CDMX durante dos semanas
