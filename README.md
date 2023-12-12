@@ -1,51 +1,11 @@
 # Latest News
--  Ketterä vei Mestiksen dramaattisen kärkiottelun nimiinsä
--  Arsenal voitti lohkonsa Mestarien liigassa, La Liga-seura floppasi pahasti
--  Asegura fiscal tener avances en asesinato de conductor en Juárez
--  Deja incendio en Argentina un muerto y 36 hospitalizados
--  Descarta Castañeda que MC apoye iniciativas de AMLO
--  Police watchdog investigating shooting in Kitimat
--  فاروق الباز: مصر يُمكنها توليد الطاقة الشمسية وتصدير الفائض لأوروبا
--  مصر ترد على تصريحات وزير إسرائيلي بشأن تشجيع الفلسطينيين للهجرة خارج غزة
--  انتخابات الرئاسة.. انتهاء التصويت في لجان السويس وبدء الفرز
--  صحيفة أمريكية: جيش الاحتلال بدأ ضخ مياه البحر في أنفاق حماس بغزة
--  زفة وحنة ودبلة علي الصندوق.. باسم وآيات يحتفلان داخل لجنة الانتخابات بأسيوط (صور)
--  الهيئة الوطنية للانتخابات: بدء عمليات الفرز في بعض اللجان الفرعية
--  بالصور.. بدء فرز أصوات الناخبين في الانتخابات الرئاسية 2024
--  هذا يحدث للجسم عند تناول أكثر من كوب شاي في اليوم.. مفأجاة
--  صور الثقافة تطلق فعالياتها بمبادرة "أنت الحياة" بمحافظة البحر الأحمر
--  بعد فترة من الأزمات.. 5 أبراج على موعد مع انفراجات وأحداث سعيدة
--  بدء فرز الأصوات في انتخابات رئاسة الجمهورية بسوهاج (فيديو وصور)
--  البنتاجون: نتشاور مع الحلفاء لتشكيل قوة بحرية لتأمين الملاحة بالبحر الأحمر
--  Jalandhar News: नाबालिग बेटी से शारीरिक छेड़छाड़ में पिता गिरफ्तार
--  Jalandhar News: रंजिश के चलते राजीनामा करने आए दो सैनिक आपस में भिड़े, एक गुट ने की फायरिंग
--  Jalandhar News: थाने में घुसकर एसएचओ से धक्कामुक्की, मुंशी की वर्दी फाड़ी
--  Jalandhar News: अंतरराज्यीय हथियार तस्कर गिरोह का गुर्गा 13 पिस्तौलों के साथ गिरफ्तार
--  Ghaziabad News: लोन माफिया लक्ष्य तंवर की 15 करोड़ की संपत्ति कुर्क
--  Ghaziabad News: हवाला की रकम लूट मामले चौथा आरोपी गिरफ्तार
--  Ghaziabad News: तिलक लगाकर आने पर छात्र को भेजा घर
--  Ghaziabad News: मुन्ना बजरंगी के हत्या आरोपियों को अदालत ने भेजा जेल
--  Ghaziabad News: दोबारा कनेक्शन की ली धनराशि वापस करने का दिया आदेश
--  Mathura News: बेलगाम ई-रिक्शा पर कसी नकेल, रूट और रंग तय
--  Varanasi News: 11707 युवाओं को मिला रोजगार, ऑफर लेटर पाकर खिले चेहरे
--  Varanasi News: छात्रावासों में अवैध रूप से रहने वालों पर होगी कार्रवाई
--  COP28: Παρατάθηκαν οι διαβουλεύσεις για ένα σχέδιο συμφωνίας που θα έχει ευρεία υποστήριξη
--  В Ростове на набережной 22-летняя девушка погибла, упав с многоэтажки
--  शीतकालीन सत्र : विधानसभा के बाहर रोष प्रदर्शन की अनुमति नहीं
--  Chandigarh News: अवैध खनन में जुटे लोगों की खुफिया रिपोर्ट तैयार कर रहा ब्यूरो
--  Timothee Chalamet is dapper in long checked coat with leather trousers and turtleneck as he promotes Wonka in New York
--  Chandigarh News: कड़ाके की ठंड जारी, पांच शहरों के लिए धुंध की चेतावनी
--  Polen: Rechtsradikaler Abgeordneter löscht Chanukka-Leuchter mit Feuerlöscher
--  Türkiye'den Pakistan'daki terör saldırısına kınama
--  Galatasaray'a 123 milyon euroluk süper yıldız! 20 yıl sonra ilk kez! Yer yerinden oynayacak...
--  Oprah Winfrey covers up her newly slender figure in a sparkling coat as she joins the cast of The Color Purple to light the Empire State Building in NYC
--  Inflation or deflation? These 12 things are actually getting cheaper
--  Ankaragücü’nde Yönetim Kurulu Başkanlığına İsmail Mert Fırat seçildi
--  Dışişleri Bakanlığı'ndan Pakistan’daki terör saldırısına kınama
--  Cumhurbaşkanı Erdoğan, Fatih Erbakan’la görüştü
--  Kadın voleybolunda dünyanın en büyüğü Çin'de belli olacak! İşte maç takvimi...
--  CHP grubundan hakem Meler’e ziyaret
--  Biden: İsrail uluslararası toplumun desteğini kaybetmeye başladı
--  ABD’li istihbaratlara Ukrayna'da 315 bin Rus askerinin öldü
--  Bakan Koca: Toplam 182 hasta Türkiye’ye getirildi
--  Kushinagar News: सरकारी योजनाओं की दी जानकारी
+-  News24 | Here are the Daily Lotto numbers
+-  العالم يترقب «الرقصة الأخيرة» بين ميسي ورونالدو
+-  Sevilla Avrupa'ya veda etti
+-  Galatasaray'ın eski yıldızı takımını desteklemek için tribüne geldi
+-  Uno a uno del Real Madrid ante el Union Berlin: Valoración y comentarios
+-  Jennifer Aniston entrega detalles sobre los últimos días de Matthew Perry: “Estaba feliz”
+-  הצעצוע החדש של נתניהו: מה עולה 200,000 שקל בחודש?
+-  נתב"ג בצרות? ירידה של עשרות אחוזים בנוסעים, אבל יש חברה שהפתיעה
+-  ביידן באמירה חריגה: "נתניהו צריך להחליף את הממשלה שלו"
+-  נועה קירל, ברונו מארס וטונה: אלו ההופעות המדוברות ביותר של השנה
