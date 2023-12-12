@@ -1,11 +1,11 @@
 # Latest News
--  "حسن الخاتمة".. وفاة مسن أمام باب مسجد أثناء ذهابه لصلاة الفجر
--  El referéndum por el escudo del Real Valladolid se celebrará entre el 16 y el 18 de diciembre
--  Bayraktar açıkladı: Teknofest 2024’ün hangi ilde yapılacağı belli oldu!
--  La banca española afronta 2024 con los niveles de capital más bajos de Europa
--  Újabb pofont kapott Harry herceg és Meghan Markle
--  Champions League in TV oder Live-Stream: So sehen Sie die CL-Spiele heute am 6. Spieltag live
--  النصيري يقود اشبيلية في مهمة صعبة
--  Google’s Anti-Trust Court Loss is Potential Boon for App Developers
--  "Il mérite le respect" : Jean-Luc Reichmann se confie sur le parcours d’Émilien dans Les 12 coups de midi
--  Sale a la luz el otro "beso con fuerza" de Rubiales a la inglesa Bronze tras la final del Mundial
+-  الأعلى للإعلام يطالب بعدم الاستباق بنشر مؤشرات نتائج الانتخابات الرئاسية
+-  "حفرة 20 متر أسفل عقار".. محاكمة تشكيل عصابي بتهمة التنقيب عن الآثار بالخليفة
+-  رئيس لجنة الانتخابات في طوخ: معظم المشاركة بالانتخابات الرئاسية من الشباب
+-  "حذف فقرة ثم أعاد نشره".. مترجم مارسيل كولر يثير الجدل ببيان غاضب
+-  جيش الاحتلال يعلن استعادة جثتين من غزة في عملية مشتركة مع الشاباك
+-  تحديد موعد جديد لمباراة ليفربول وتشيلسي في قمة الدوري الإنجليزي
+-  كبار السن يشاركون بكثافة في الانتخابات الرئاسية بالفيوم (صور)
+-  حجازي أساسي.. تشكيل اتحاد جدة لمواجهة أوكلاند سيتي في كأس العالم للأندية
+-  محافظة القليوبية تستجيب لمواطن من ذوي الهمم يرغب في المشاركة بالانتخابات (صور)
+-  الشيبي يحصد جائزة لاعب الشهر في بيراميدز .. صور
