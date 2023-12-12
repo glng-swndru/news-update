@@ -1,11 +1,11 @@
 # Latest News
--  Nyt on kova kiekkohuhu - onko tässä Olli Jokisen uusi seura?
--  Jalkapallotähti palaa Valioliigaan?
--  Mastercard nombró a Carlos Quintero para dirigir IMC para América Latina y el Caribe
--  انتخابات الرئاسة.. حشود كبيرة علي اللجان للتصويت في أسوان قبل إغلاق باب التصويت
--  Las limpiadoras en huelga se manifiestan y siguen las quejas por suciedad en colegios
--  Spielworks Announces Strategic Funding From The Hashgraph Association to Develop the Web3 Gaming Ecosystem
--  Shqiptarët dhe serbët kërkojnë depolitizimin e çështjes së personave të pagjetur
--  URA: Predložićemo povećanja naknada za materijalno obezbjeđenje
--  Berkshire Hathaway minskar i HP
--  Suspenderán verificación vehicular en CDMX durante dos semanas
+-  Empresário de Gabigol diz confiar em 'pessoas sérias' do Flamengo e responde sobre negociação com Corinthians
+-  NBC Calls Audible, Dumps Al Michaels for NFL Playoffs
+-  Saudi-Arabian kukkaron nöyrit jälleen selällään - nyt se haluaa Real Madridin tähtipelaajan
+-  صقر بن خالد: خدمة القرآن الكريم شرف عظيم نعتز به
+-  정이랑, 유쾌한 미소
+-  박주현, 눈빛 반짝
+-  영화 '노량' 응원 나선 명량-한산 팀
+-  정시아, '시아버님 응원차 왔어요'
+-  임수향, 영화 '노량' 사랑해주세요~
+-  Streaming para: az EU minden országban ugyanazt a kínálatot akarja, de ez veszélyes!
