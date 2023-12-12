@@ -1,51 +1,11 @@
 # Latest News
--  박광호 퍼시스 대표, '일회용품 제로 챌린지' 동참
--  롯데GRS, ‘버거 뮤직BGM)’ 캠페인 … 대한민국광고대상 ‘은상’ 수상
--  라이온코리아, '아이! 깨끗해' 재생 플라스틱 용기로 리뉴얼
--  일동후디스 '하이뮨 액티브바' 3차 체험단 모집
--  [뉴욕증시] 3대 지수, 연중 고점 경신하며 모두 상승 마감
--  [기고] 마약과의 전쟁
--  르세라핌 ‘Perfect Night’, 美 빌보드 6주 연속 차트인…'롱런 인기' 정석
--  Canarias cierra noviembre con récord de turismo extranjero y supera el nivel de la Primavera Árabe
--  Carne de cerdo a 500 pesos la libra: así viene el fin de año para los cubanos
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  Por error de cálculo trabajadores de Sepyc cobran menos esta quincena, pero la dependencia responderá
--  ¡Llaman a la unidad! Heleodoro Astorga, el nuevo presidente de la Asociación de Propietarios Rurales
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  12월 13일(음력 11월 1일) 오늘의 운세
--  "100-дневната кашлица": Предупреждение за силно заразна инфекция в Европа
--  1인가구 비중 34% '역대 최대'
--  [위장관외과] 지긋지긋한 ‘역류성식도염’ 해결책 없을까
--  Barclay Goodrow’s man-of-steel reputation endures: ‘Mouth in a million pieces’
--  Cómo montar un gimnasio en casa por menos de 50 euros
--  Ordine spiega, facendo alcuni paragoni, il ruolo di Ibrahimovic nel Milan
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  Man and woman charged over alleged murder of beloved doctor
--  Temblor en Perú, sismos del miércoles 13 de diciembre: epicentro y magnitud, según IGP
--  مانشستر يونايتد يخسر من بايرن ميونخ ويودع دوري الأبطال
--  Presidentti Niinistö tapaa muiden Pohjoismaiden pääministerit Oslossa
--  إعلامي سعودي: مواجهة الأهلي واتحاد جدة قمة عربية ونهائي مبكر لمونديال الأندية
--  الزمالك يجهز محمود الونش بمباراة ودية
--  نابولي يتأهل إلى ثمن نهائي دوري الأبطال بثنائية في سبورتنج براجا
--  ناقد سعودي: نفاذ تذاكر مباراة الأهلي واتحاد جدة السعودي
--  Koky Belaunde explica por qué una invitada no debe de vestir de blanco en una boda: “es una falta de cortesía”
--  رئيس اللجنة الأولمبية: مصر تعيش طفرة رياضية كبيرة بفضل دعم الدولة
--  انتر ميلان يتعادل سلبيًا مع ريال سوسيداد في دوري أبطال أوروبا
--  ريال مدريد يقلب الطاولة ويهزم يونيون برلين بثلاثية في دوري الأبطال
--  Why Republicans are pursuing an unfounded impeachment inquiry into Biden
--  الأمير فيصل بن سلمان مستشارا خاصا.. العاهل السعودي يصدر أوامر ملكية جديدة
--  La nueva capital de Egipto, una pirámide del siglo XXI
--  충주시, 분질미 가공시설 준공으로 지역농산물 가공에 새 활력
--  진천군, 광혜원 만세운동 기념탑 건립추진위원회 학술대회 개최
--  공공 온실가스 배출량 코로나 이후 꾸준히 증가…목표는 2045년 '0'
--  5 Berita Terpopuler: Info dari BKN, Honorer Jangan Sepelekan Tahapan Krusial Pengumuman PPPK, Awas Tidak Tuntas
--  Lotofácil, concurso 2977: veja resultado
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  삼성전자, ASML과 초미세 제조공정 공동 개발
--  20 % إنجاز صيانة طريق المدينة المنورة - القصيم
--  Em ano de recordes, Brasil ganha espaço dos Estados Unidos
--  Em ano de recordes, Brasil ganha espaço dos Estados Unidos
--  USD to PHP Exchange Rate Today, Wednesday, December 13, 2023
--  Reducción de jornada laboral: diputados discutirán reforma hasta marzo de 2024
--  Plesne v domácnosti môžu spôsobiť vážne problémy: Ako sa ich zbavíte?
--  Herný newsfilter: Microsoft sa opäť púšťa do súboja s Apple a Googlom
+-  NFL Week 14 Recap, Week 15 Look Ahead, and Betaches
+-  難敵電動化浪潮，廣汽本田宣布裁員 900 人
+-  Байден: США не знают, есть ли заложники в затапливаемых Израилем туннелях
+-  ASML 與三星簽署備忘錄，預計共同在韓國建立研究中心
+-  Argentina devalues its currency and cuts subsidies as part of shock economic measures
+-  US wildlife managers capture wandering Mexican wolf, attempt dating game ahead of breeding season
+-  Be aware of these seasonal road closures in Bonneville County
+-  Dictionary.com’s word of the year is a common one. But it doesn’t mean what you think
+-  Mistral AI Picks ‘Mixture of Experts’ Model to Challenge GPT 3.5
+-  Poll Worker Testifies How Giuliani’s Lies Had Her Life ‘Flipped Upside Down’
