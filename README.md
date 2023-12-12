@@ -1,51 +1,11 @@
 # Latest News
--  '우크라이나 호날두라며?' 무드리크, 1415억 지출했는데 고작 2골...가치도 367억까지 폭락
--  [현장목소리] 울산 홍명보 감독, “16강 동기부여 명확했어”
--  [현장목소리] 16강 이끈 이청용, “3선에 뛰니 어렵더라” 시즌 회고
--  ‘940억 실패작 방출→14골 폭격기 영입’…맨유 공격진 개편 계획 나왔다
--  [오피셜] '토트넘의 현재이자 미래' 우도기, 구단과 2030년까지 재계약
--  News24 | SA targets 'brightest young minds' as Ramaphosa launches Presidential PhD Initiative
--  '기다려! 제라드'…EPL '113골' 손흥민, 다음 추격 상대는 120골 제라드+TOP 20 진입
--  [MD장충] 1세트 24-19→24-26 허탈한 역전패...신영철 감독의 인정, "벤치의 실수 있었다"
--  Tullin pääjohtajaksi 12 hakijaa
--  Sobbing woman realises she wants kids at 38 and feels ‘betrayed by feminism’
--  Zayn Rayyan dibunuh: Polis periksa sekali lagi Blok R malam ini
--  Lewis Hamilton snubbed as McLaren boss names his best three drivers on the Formula 1 grid
--  Wielertalent Uijtdebroeks traint ondanks geschil met BORA al mee bij Visma
--  Wielertalent Uijtdebroeks traint ondanks geschil met BORA al mee bij Visma
--  Wonka : tout ce qu’il faut savoir sur le préquel de Charlie et la Chocolaterie
--  Russia is sending its injured and disabled soldiers back to the front lines to fight
--  Armar Yapı Taahhüt İnşaat Ticaret Anonim Şirketi kuruldu!
--  Kickoff | Chiefs defender ‘books’ AFCON ticket
--  Son dakika! AK Parti'den Faruk Koca hamlesi: 'Kesin ihraç' istemiyle disiplin kuruna sevk edildi
--  Patrulla de la Policía Municipal choca con un auto particular en Culiacán
--  «Потом детей усыновили и они получили другую фамилию»
--  Gran Hermano 2023: el sorpresivo anuncio de Santiago del Moro minutos antes del cierre
--  Brits Lagerhuis stemt over omstreden migratiedeal Rwanda: dit staat op het spel
--  Trafikte dehşeti yaşatmışlardı! Oktay Derelioğlu'na saldıranlara 4 yıl 6'şar aya kadar hapis talebi
--  La UE, Brasil, Costa Rica y Panamá se unen en operativo contra el tráfico ilegal de madera
--  Global Housıng Yapı Anonim Şirketi kuruldu!
--  هل استسلمت شركة بوما لحملات المقاطعة ؟
--  NU+ | VN onderzoekt huisvesting in Nederland: dit moet je weten
--  Un momento cheo de promesas
--  डिजिटल पूर्वाधारको विकासमा नेपाल-भारत सहकार्य आवश्यक छ : मन्त्री शर्मा
--  कपिलवस्तुबाट गैरआवासीय नेपालीलाई नागरिकता
--  What is adjusted gross income?
--  Apex Fintech Solutions Announces Confidential Submission of Draft Registration Statement Related to Proposed Public Offering
--  Ο Σπύρος Ζαννιάς επανεκλέχθηκε στην Ολυμπιακή Επιτροπή της ITF
--  Debat Capres 2024, Anies Baswedan Singgung Gibran dan Sebut Aturan Banyak Ditekuk Sesuai Kepentingan Penguasa
--  Explainer: Why does OPEC oppose the idea of a fossil fuel phase-out at COP28?
--  Versatile Credit Integrates Intellicheck to Enrich Customer Experience with Advanced Identity Validation
--  وزير النقل يناقش مع وزير الأشغال العامة والطرق مشاريع الطرق المتعلقة بقطاع النقل
--  Aile sağlığı merkezini soydular!
--  Ministri evropskih poslova zemalja EU o zaključcima Savjeta vezanim za proširenje
--  With Over Six Million Websites Built, Durable Raises $14 Million Series A to Remove All Barriers to Owning Your Business
--  Human Growth Hormone Market Size, Share & Trends Analysis Report 2023 – ResearchAndMarkets.com
--  Zvijezda filma ‘Sam u kući‘ ima rak, kći pokrenula skupljanje donacija: Ono što je uslijedilo jako ga je dirnulo
--  Malgré la riposte d’Apple, iMessage fait son retour sur Android… mais pour combien de temps ?
--  Enable Releases 2024 State of Volume Rebates Reports for Manufacturers and Distributors
--  Aiolos Bio Strengthens and Expands Leadership Team with Key Appointments
--  Rušenju Rijeke prethodio oštar razgovor u svlačionici, a jedan je igrač pokazao da je najbolja ‘desetka‘ HNL-a
--  Forge Biologics Announces Publication in Human Gene Therapy on a Novel Finding That Changes a Fundamental Understanding of AAV Production
--  Anies Baswedan: Negara Kekuasaan Hukum Diatur oleh Penguasa dan Kita Tidak Inginkan Itu Terjadi
--  Cinta Segitiga Dapat Berdampak Negatif untuk Kesehatan
+-  Lai Châu: Phát huy vai trò các tổ chuyên trách bảo vệ rừng
+-  EU laat AI-ontwikkelaars bepalen of ze moeten voldoen aan strengste regels AI Act
+-  Asesinan a 'El uber más famoso de Juárez' durante transmisión
+-  Volcadura en canal de riego deja 2 muertos
+-  Edgy comedian Daniel Tosh defends 'cancel culture,' says 'there has to be consequences'
+-  الخطاف وخاشقجي: المملكة رائدة في مجال التحول الرقمي ولديها رؤية بعيدة المدى... تعرف على تفاصيل الندوة الحوارية
+-  ألاگ/ رئيس الجمهورية يدشن مقاطع طرقية في عدة ولايات
+-  Amerikanska inflationen bromsade in som förväntat
+-  Finland to reopen two Russia border crossings: PM
+-  Son dakika... Başkan Erdoğan, Fatih Erbakan'ı kabul edecek
