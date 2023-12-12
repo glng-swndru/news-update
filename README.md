@@ -1,51 +1,51 @@
 # Latest News
--  استعدادات قوية وتعليمات من كولر.. تفاصيل مران الأهلي الأول في مونديال الأندية
--  أمطار غزيرة تصل القاهرة.. الأرصاد تعلن طقس الـ6 أيام المقبلة
--  "8 كيلوجرامات ذهب و6 ملايين ليرة".. تفاصيل حفل زفاف أثار الجدل في تركيا
--  في مواجهة الأهلي.. اتحاد جدة يفوز على أوكلاند سيتي ويتأهل للدور الثاني
--  بدء فرز الأصوات في الانتخابات الرئاسية 2024 بلجان محافظة الجيزة
--  موعد مباراة الأهلي والاتحاد في كأس العالم للأندية
--  حكومة الاحتلال: مقتل 19 أسيرًا من بين 135 لا يزالون في غزة
--  وفاة زوج وزيرة الثقافة السابقة إيناس عبد الدايم.. والجنازة غدا
--  حملة "السيسي" توجه الشكر للشعب المصري لمشاركته الكبيرة بالانتخابات
--  12 diétnych tipov do každej kuchyne: Zvládnite Vianoce bez zbytočných kíl navyše
--  West Tigers dismiss entire board
--  Poslanci venovali utorkové rokovanie diskusii o balíku konsolidačných opatrení
--  "Tous les soldats français" auront définitivement quitté le Niger "d'ici le 22 décembre"
--  Komitet Organizacyjny Letnich Igrzysk Olimpijskich w Paryżu z zadowoleniem odebrał decyzję przyjęcia sportowców z Rosji i Białorusi
--  Zvijezda 'Teorije velikog praska' boluje od karcinoma, fanove je zabrinula videom iz bolnice...
--  COVID concerns at Cambridge hospital due to recent resurgence in outbreaks
--  Nach Affärengerüchten: Königin Letizia strahlt auf Event
--  U zhduk para 8 muajsh/ Gjendet domatja e parë e rritur në hapësirë
--  Dentist calls out Smile Direct Club for ‘scamming’ customers
--  Rakitićeva Sevilla 'pala' u drami i ostala bez europskog proljeća: Neće loviti trofej u najdražem im natjecanju
--  A sorte está do seu lado? Conheça a chave do Euromilhões desta 3.ª feira
--  Mondial des clubs : Kanté et Benzema portent Al Ittihad
--  ليبيا.. “دبيبة” يطلع على التصور النهائي للبرنامج الوطني للمياه والصرف الصحي
--  Godina prođe, aparata za magnetnu rezonancu u Bijelom Polju i...
--  Aaj Ka Kark Tarot Card: कर्क राशि वाले अवसरों का लाभ उठाएं. धैर्यपूर्वक आगे बढ़ते रहने से मिलेगी सफलता
--  إسبانيا تضبط 11 طنا من الكوكايين مخبأة في أسماك مجمدة - صور وفيديو
--  الاحتلال يعترف باصابة 600 من قواته منذ بدء العملية البرية
--  صاعقة رعدية تنهي حياة لاعب وتصيب 5 آخرين - فيديو
--  El Oro: Sicarios intentaron matar a una mujer cuando salía de su casa, en Pasaje
--  11 High-Protein Snack Ideas, Straight From Dietitians
--  Ankaragücü'nde Faruk Koca ve 12 isim PFDK'ya sevk edildi
--  Top 4 Employer Branding trend a World Employer Branding Day 2023-ról
--  A kormánypárti Origó kerek-perec kijelentette két propaganda anyag között: káosz várható a Földön 2024 elején
--  Annoncé au PSG, il refuse une offre XXL
--  Δέος: Βρέθηκε το γιγαντιαίο κρανίο του «υποβρύχιου T. Rex» - Ήταν η απόλυτη φονική μηχανή
--  Като искаш да свършиш нещо, просто го правиш, а не търсиш пречки
--  이런 겨울 날씨는 처음…내일 또 호우, 주말에는 강추위
--  Harvard President Claudine Gay keeps job
--  Milei impulsa a José María Zas, exdirector de Amex, como embajador en México
--  MP das Subvenções: sem acordo, apresentação de relatório em comissão é adiada para quarta
--  Pixel Watch December 2023 update rolling out
--  Siguldā sieviete jau otro reizi ugunsgrēkā zaudē mājas
--  Gov Otti presents N567.2 billion 2024 budget to Abia assembly
--  Exposé Donalda Tuska. Nadciąga głęboki reset, który zmieni Polskę nie do poznania [KOMENTARZ]
--  İspanya ve Yunanistan’da kış rezervasyonları beklenenin üzerinde
--  “Kruvaziyer gemi ve yolcu sayılarında kasım itibarıyla yıllık hedef aşıldı”
--  Almanya sağlık bakanı uyardı “Yeni korona dalgası geliyor”
--  Угорщина назвала умову, за якої зніме вето на допомогу Україні
--  BBC EastEnders' Linda Carter devastated by sad family news as Mick's death anniversary looms
--  270-passenger flight stranded over 20 hours on remote military base
+-  Birbirlerine 'taahhütler' veren Rusya ve Kuzey Kore arasındaki ilişkide yeni perde
+-  Zadravec o optužbama katoličke udruge: ‘Tužno je što postoje ljudi koji se protive umjetnosti’
+-  Hrvatski sudac brutalno kažnjen, a proglašen je za najboljeg na svijetu
+-  Spekulationen um BVB-Interesse an Stuttgarts Guirassy
+-  677 مليار درهم الأصول السائلة في القطاع المصرفي بنهاية الربع الثالث
+-  Lens turladı, Sevilla elendi
+-  Dost ülkeden Bayraktar TB2 açıklaması: Yakında silahlı kuvvetlerimizin parçası olacak
+-  Okan Buruk'tan 4 değişiklik
+-  Faruk Koca ve 12 yönetici PFDK'ya sevk edildi!
+-  AB'den Netanyahu'ya iki devletli çözüm eleştirisi
+-  Rotterdam man convicted of making child pornography in Brazil, Nepal
+-  Битиќи од трибината „Повеќе за сите“ во Тетово: Се грижиме за најранливите наши граѓани, за да им обезбедиме социјална сигурност
+-  Cameroun :: Il Aurait Eu 90 Ans Ce 12 Décembre 2023. :: Cameroon
+-  박성웅, 놓치지 않는 하트
+-  '논란의 오타니 디퍼'… 美 매체 "허용되나 옳다고 할수 없어"
+-  장률 '훈훈해'
+-  Ο ισραηλινός στρατός γεμίζει με θαλασσινό νερό τις σήραγγες της Χαμάς στη Γάζα
+-  Saint-Louis : Plaidoyer pour une meilleure intégration de la jeunesse dans les processus électoraux
+-  ¿Vida extraterrestre en Júpiter y Saturno?, sus lunas heladas podrían contener la respuesta
+-  4.12 مليار ودائع ادخارية جديدة في سبتمبر تجاوزت 266 مليار درهم
+-  ¡Van por el mercado internacional! Dan banderazo al muestro de la bahía de Lechuguilla y sus ostiones
+-  В Газе обнаружили тела израильских заложников
+-  Travis Kelce holds Taylor Swift close in another cuddly pic from post-game holiday party
+-  Justin Herbert out for season with Chargers’ playoff hopes hanging by a thread
+-  Read Only Memories: Neurodiver eyes spring 2024 release, new trailer debuts
+-  Παγκόσμιο Κύπελλο Συλλόγων: Το χαμόγελο και το... κλείσιμο του ματιού της ρέφερι στον Κορονάντο της Αλ Ιτιχάντ (vid)
+-  Iconic pop group recreate scene from most famous video 29 years on from number 1 hit – do you know who they are?
+-  Jesús Ariel iba en moto y lo subieron a la fuerza a un auto: “levantan” a joven en Badiraguato
+-  Τζόκερ έπαιξες; Δείτε τους τυχερούς αριθμούς
+-  Your horoscope in Chattanooga neighborhoods
+-  Νέο βίντεο ντοκουμέντο μετά τον τραυματισμό του αστυνομικού από φωτοβολίδα στου Ρέντη
+-  نیب، اسلام آباد، ملتان اور سکھر میں افسروں کے تبادلے، کون کہاں گیا؟
+-  Alex Ubago promete a los venezolanos un viaje al tiempo para recordar 20 años de carrera
+-  Live Champions League | Ten Hag jaagt met United op goal tegen Bayern
+-  Top jumps jockey faces six-month ban after allegedly testing positive for cocaine
+-  Biden Zelenskyille: Avun epääminen Ukrainalta olisi joululahja Putinille
+-  Sambhal News: रोजवेज परिचालक ने दिव्यांग दंपती को पीटकर बस से उतारा
+-  Mohali News: उल्टी दिशा से वाहन चलाने के महीने में कटे 410 चालान, फिर भी लोग कर रहे उल्लंघन
+-  Biden Zelenskyille: Avun epääminen Ukrainalta olisi joululahja Putinille
+-  Israel deploys warship to join UK, US & French vessels as Red Sea tensions rage with Iran-backed rebels attacking ships
+-  Italia: Giorgio Chiellini se retira del fútbol dejando un legado
+-  Troubling Anti-Semitic Sign Found Outside Republican Congressman's Office
+-  Заобикаляне на санкции ще води до конфискуване на имущество
+-  Dulu Sering Kritik, Ferdinand Tiba-tiba Puji Anies di Debat Capres: Kali Ini Kau Benar
+-  Deshalb bewegt sich der Euro zum US-Dollar und Franken kaum
+-  Einkunnir Arsenal gegn PSV: Nketiah fær 8
+-  PEKARA POKAZUJE NAJSUROVIJU I NAJBRUTALNIJU STRANU ŽIVOTA U IMPERIJI Veliko arheološko otkriće u Pompeji (VIDEO)
+-  ¿Cuándo es la Noche de los Museos en Buenos Aires?
+-  مونديال الأندية.. رقم "قياسي" لكريم بنزيما في ليلة فوز اتحاد جدة على أوكلاند سيتي
+-  Apple introduces new Stolen Device Protection feature with first iOS 17.3 beta
