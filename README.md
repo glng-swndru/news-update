@@ -1,51 +1,51 @@
 # Latest News
--  Bölge tercihini yaptı! "Artık Türkiye ile sıkı bağ kuruyorlar"
--  "ABD İsrail konusunda yalnız kaldı" eleştirisine sözcü Miller'dan ironik cevap
--  Lojistik sektöründe "Yeşil Lojistik Belgesi" için başvuru tarihleri belli oldu
--  Bakan Tunç'tan Halil Umut Meler'e yönelik saldırı hakkında açıklama
--  Hakem Meler'i ziyaret eden Bakan Yerlikaya: Adalete inanıyoruz, nereye evrileceğini göreceğiz
--  Hrant Dink cinayetinin tetikçisi Ogün Samast mahkemeye başvurdu
--  İnsani ateşkesi reddeden Amerika'ya karşı 81 ilde tepkiler büyüyor
--  Cumhurbaşkanı Erdoğan'dan hakem Meler talimatı
--  Fransa'da göç yasa tasarısının görüşülmesi reddedildi
--  Trabzonspor, Abdullah Avcı'yla bambaşka!
--  Officers' Choice: Income Tax Search Against ABD That Owns World's Largest Selling Whisky
--  "السعودية والإمارات ستموّلان إعادة إعمار غزة"
--  Schneider Electric To Re-list On Metropolitan Stock Exchange As Per Sebi Directives
--  ‘Merits determination’: SC regrets delay in listing reference against Zulfikar Bhutto’s death sentence
--  100 किलो आटा, 25KG सत्तू... इस दुकान के लिट्टी-चोखा ने मचाई धूम
--  Scouting wenst verzorgingstehuizen een warm hart toe
--  Sonne, Mond und Planeten - Diese Sternschnuppen und Finsternisse erwarten uns 2024
--  Les Houthis attaquent un pétrolier en mer Rouge
--  "نحن في حالة حرب"... عبد الله: هذا أمرٌ غير مقبول!
--  Иван Ченчев, БСП: Очаквахме Паметникът на Съветската армия да се окаже "опасен"
--  Bunlara Dikkat: Evi Olan Tapusu Olan Bir Anda Beş Parasız Kalabilir!
--  इस दुकान पर मिलता है स्पेशल रसगुल्ला, डायबिटीज के मरीज भी खा सकते हैं जमकर
--  FIA F1マドリードGP計画は「まだ特別なステップが行われていない」
--  "수익나면 배당금 나온다"…IFRS17 후속조치 마련
--  मुश्किल में फंसीं सलमान की एक्ट्रेस, जेल जाते-जाते बचीं, कोर्ट से मिला ये आदेश
--  신세계서울병원, 2023 메디컬 코리아 어워드 ‘내시경 수술’ 부문 수상
--  Dit zijn de 5 meest gestelde vragen over waterlekkage: Dekt mijn verzekering de schade?
--  2023 Uganda Rugby Award winners
--  Akkuyu Nükleer'e ilk reaktör için izin çıktı
--  Studie zu Tirzepatid: Deutlicher Jo-Jo-Effekt nach dem Absetzen von Abnehmmittel
--  Studie zu Tirzepatid: Deutlicher Jo-Jo-Effekt nach dem Absetzen von Abnehmmittel
--  Netikėta. „Su kiaušinių dingimu Rusijoje... susijęs Lukašenka.“ Kas vyksta
--  Režimu non stop. „Vyksta įdomūs ir labai keisti dalykai“
--  Rusija ruošiasi karui prieš NATO. ISW skelbia įrodymus
--  Prancis Setop Danai Sekolah Muslim Terbesar karena Ajarkan Etika
--  "늠름하게 경례할게요"…'전원 군백기' 방탄소년단이 전한 '팬사랑' [MD이슈](종합)
--  금새록(Keum Sae Rok), 훈남들 사이에서 함박 미소 활짝!
--  "강남경찰서 접수 확인"…'후배 폭행 진실공방' 김하성, 임혜동 '명예훼손' 추가 고소 [공식입장]
--  "100분 해전"…이순신 3부작 피날레 '노량', 더 커진 스케일→깊은 감동 담았다 [MD현장](종합)
--  비엘헬스케어, 광동제약 임직원 3명 사내이사 선임 예정
--  '日 힙합 여제' 에이위치, '딩고 프리스타일'로 인사…내한 공연 예고
--  유아인 법정서 “직업은 배우입니다”, 대마흡연만 인정…사기혐의는 무엇인가?[MD이슈](종합)
--  “다저스가 야구를 망쳤어” 오타니 8928억원 연금수령? 2024년 연봉 팀 내 17위…역대급 꼼수에 美팬들 ‘충격’
--  '독전2' 측 "티아라 아름 現연인=각본 참여? 크레딧에 이름 없어" [공식입장]
--  [오피셜] 김도균 감독, 수원FC에 '승격-잔류' 남기고 아름답게 이별...서울이랜드 부임 유력
--  "음바페 9번의 광기를 멈춰라!"…엔리케의 명장병? 전문가 추천 "左 음바페-右 이강인으로 하라고!"
--  В Кремле намерены следить за встречей Байдена и Зеленского
--  El PGA Tour suspende a Jon Rahm tras firmar con el LIV Golf
--  সগিরা মোর্শেদ হত্যা মামলা: নিজেদের নির্দোষ দাবি করলেন আসামিরা
--  [종합] 제주4·3평화재단 조례 개정안 도의회 상임위 '통과'
+-  제주 호텔서 전화번호 변작 중계기 발견...경찰 수사
+-  रतन टाटा को इस सरकारी कंपनी ने पछाड़ा, 10 दिन में बनाया रिकॉर्ड
+-  Разведка и обезвреживание: российские сапёры разминировали боеприпасы в ЛНР
+-  PRIME Hydration now available in Cyprus!
+-  Zara regrets ‘misunderstanding’ over photoshoot after Gaza boycott calls
+-  Konya’dan aldığı kaçak Afganları İzmir’e götüren şahıs, yolda yakayı ele verdi
+-  Android Telefonlar, Kullanıcıları Dolandırıcılardan Koruyacak: İşte Yeni "Anti-Oltalama" Özelliğinden İlk Bilgiler
+-  Microsoft, "Sadece Faydalı Teknolojiler Geliştirmek İçin" Çalışanlarıyla Yapay Zekâ Odaklı Toplu Sözleşme İmzaladı
+-  Megújult a hunyai bekötőút
+-  L’Intelligence artificielle, ses défis, ses opportunités et l’ONU ? Un colloque ce mercredi à la faculté des sciences juridiques
+-  Un INAI para todas y todos
+-  News24 Business | SA watchdog to pursue large supplier for allegedly charging hardware store higher prices
+-  Postal strike to delay letters from Santa
+-  الزراعة: مد العمل بقرار وقف تصدير البصل حتى 30 مارس 2024
+-  بعد تناول وجبة دسمة.. 5 طرق صحية تساعدك على الهضم
+-  البورصة ترتفع في بداية تعاملات اليوم الثلاثاء
+-  انخفاض أسعار الطماطم والبطاطس وارتفاع الخيار بسوق العبور اليوم الثلاثاء
+-  Ancient Wisdom Part 33: Eating sesame seeds can lower cholesterol, manage diabetes; know all benefits
+-  Hydrocyclone Separators Market Analysis and Future Prospects for 2030
+-  Biocides Market worth $17.53 billion by 2030, growing at a CAGR of 5.64% - Exclusive Report by 360iResearch
+-  피팅·밸브 분야 선도 기술로 지역 먹거리 책임진다
+-  [2023 창원문화지도] 걸으면서 만나는 전통과 문화예술, 그 응축된 이야기
+-  Песков: финансирование Украины Соединёнными Штатами обречено на фиаско
+-  경남 청년 4% 은둔형 외톨이…"도 지원센터 설립해야"
+-  김수영 국민의힘 도당 부위원장, 창원 마산합포 총선 출마
+-  총선 예비후보 등록…여 "국정 안정론" 야 "정부 심판론"
+-  우주항공청법, 여야 2+2협의체 논의 법안 포함
+-  홍남표 창원시장 '신산업 육성·도시공간 연결' 마산 발전전략 제시
+-  창원시 농어촌 지역 상수도 공급 확대
+-  Aytunç Erkin yazdı: 500 milyar dolarlık altını devlet neden çıkarmıyor?
+-  Ryan vacates NA after emotive pay dispute
+-  Ryan vacates NA after emotive pay dispute
+-  Dončić se posle velikog podviga rugao domaćim navijačima VIDEO
+-  Desingerica napravio haos u Opatiji: Lupao Hrvate patikom po glavi VIDEO
+-  Zeienopruff: Police sicht zwee Täter no gewalttätegem Iwwerfall zu Déifferdeng
+-  Csv Vios 1- EFC 58 1
+-  Huthi-Rebellen greifen norwegischen Öltanker im Roten Meer mit Marschflugkörper an
+-  Government moves to mitigate livestock deaths in Matabeleland North
+-  Spread Spectrum Clock Generator Market - Global Industry Perspective Comprehensive Analysis And Forecast, 2023 - 2029
+-  Distributed Acoustic Sensing (DAS) Market Disclosing Latest Advancement 2023 to 2028 Russo-Ukrainian War
+-  Na programu americká inflace, investoři si před ní věří
+-  Organiser of Vikasit Bharat Yatra booked for flag code violations
+-  NMMC to develop last cell for solid waste disposal at Turbhe landfill
+-  Police names and shames drug dealers
+-  NOVA: ΔΩΡΕΑΝ πρόσβαση στην EON για όλους
+-  Zelenskyi tapaa Yhdysvaltain johtoa myrskyn keskellä – Tästä on kyse
+-  '춘천 -3도' 내일 전국 영하권 '강추위'… 낮 부터 평년기온 회복
+-  Uncharted, grandi notizie per i fan del Nathan Drake di Tom Holland! E arrivano direttamente da Sully
+-  Hertha BSC: Skandal um Cigerci-Klub Ankaragücü, Präsident prügelt Schiri nieder
+-  Vajza 24-vjeçare humbi jetën në aksident/Ish-deputeti Tavo mesazh: Asgjë nuk e zhbën humbjen e madhe të familjes tonë
