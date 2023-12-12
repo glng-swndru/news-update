@@ -1,51 +1,51 @@
 # Latest News
--  윤대통령, 네덜란드 '공식환영식'… 전쟁기념비 헌화도
--  윤대통령, 네덜란드 국왕과 ASML 방문… '클린룸' 첫 공개
--  Bajan 78% bloqueos a vías del ferrocarril
--  Habrá bacheo en 4 colonias este martes
--  A golpes le quitan la vida en Rinconada Oriente
--  Video: Discrimina a mexicana por hablar en español en Disneylandia
--  Murió la persona más longeva de Japón ¡a los 116 años!
--  "On a passé le milliard de vues" : les vidéos de cette cascadeuse française impressionnent
--  Jurista denuncia escándalo en la Federación Nacional de Peloteros Profesionales
--  [지역에서 본 세상]진주시보건소 10년도 안돼 옮기는 까닭
--  [기고]'컴 온 컴 온 마산 스트리트여'노랫말에 관한 제언
--  Tappara näkyy nyt isosti Tampereen katukuvassa - katso kuvat
--  Post soll Anschlusslösung für fast 4000 Entlassene anbieten
--  Renato Cariani diz 'não ter noção' das razões que o tornaram alvo de operação da PF
--  Nollywood Actress Sophie Rammal Responds to Viral Throwback Pictures with WizKid
--  MICM revela decomiso 32.6 millones de unidades de mercancías ilícitas en 2023
--  Europa aprueba la inmunoterapia de Pfizer para el mieloma múltiple
--  강인경, 파격 비키니로 드러낸 청순 섹시미
--  Grzegorz Braun wykluczony z obrad Sejmu. Szymon Hołownia zapowiada wniosek do prokuratury
--  Les Confluences de la Pensée Humaine: Philosopher, Croire, Comprendre
--  Гражданин Грузии использовал онлайн-переводчик при ограблении в Германии
--  Legenda italijanskog fudbala i Juventusa nakon 24 godine karijere odlazi u penziju
--  The Best 2023 : Yassine Bounou parmi les trois finalistes pour le prix du meilleur gardien de but
--  Skausmus jaučiantis Grigonis gali praleisti Eurolygos rungtynes
--  Kargo İade Masrafları Tüketiciye Mi Ait? Ticaret Bakanlığı Açıkladı!
--  Nnadi Nwanneka Sets the Record Straight on Francis Van-lare Allegations
--  “불공정거래 재범률 높아…신상공개·거래제한해야”
--  LES ÉCLAIREURS - Loi immigration: quels scénarios possibles?
--  La Justicia francesa tumba el veto a los aficionados del Sevilla y les permite acceder al estadio
--  "Bridgerton" donne rendez-vous au printemps pour une saison 3 qui fera durer le plaisir sur Netflix
--  The Day Before’s abrupt closure: Financial woes and refund promises
--  Sanremo Giovani, Fellow: "Sarò l'Alieno che vi spiega come affrontare la realtà"
--  בכר: "אארח נגד מנצ'סטר סיטי ילד ששוחרר מהשבי, אבל אביו לא"
--  נתניהו ממשיך לפמפם את קמפיין אוסלו, גם במחיר עימות עם ארה"ב
--  Avatar Grenzen van Pandora beoordeling: Laptop en desktop benchmarks
--  GTA 6: Hacker will auch nach Gefängnis weiter kriminell bleiben
--  Kontroversen um Investoren-Abstimmung bei DFL: Welche Rolle spielte Hannover 96?
--  Herplant van honderden bomen langs de Parklaan
--  توخيل يرى أراوخو قائد دفاع بايرن ميونخ
--  মানিকগঞ্জ জেলা ছাত্রদলের সভাপতি-সম্পাদক গ্রেপ্তার
--  Chine, quelles opportunités d'investissement ? - 12/12
--  Bank of America Unusual Options Activity
--  Sanremo Giovani, Tancredi tra i 12 finalisti: "Una ballad struggente che parla alla mia generazione"
--  Congress SC Cell President Arrested for Alleged Fake Photo of Ayodhya Temple Priest
--  Soccerladuma | Maela’s 'Honest' Assessment Of Mofokeng
--  জাতিসংঘের তত্ত্বাবধানে নির্বাচনের দাবি এবি পার্টির
--  قائد الأركان العامة للجيوش يؤدي زيارة للسنغال
--  CESID: Šta građani mogu da urade ukoliko je ugrožena tajnost glasa na glasačkom mestu
--  İletişim Başkanı Fahrettin Altun: Yunanistan ile ilişkilerimizde yeni bir sayfa açtığımıza inanıyorum
--  Džejla Ramović i Seka Aleksić zapjevale na rođendanu srbijanske influenserice
+-  Programme de la nuit en NBA : Bradley Beal enfin de retour pour les Suns !
+-  Kremlius atmeta JAV susirūpinimą dėl įkalinto opozicijos lyderio A. Navalno
+-  Météo Algérie : Pluie et Baisse des Températures dès Demain – Préparez-vous pour un Changement Soudain !
+-  Twee fatbikers naar ziekenhuis na aanrijding met auto op Julianalaan in Ede
+-  Gemeente start met uitbetalen Energietoeslag 2023
+-  Labour candidate forced to stand down because his novels are ‘too sexy and satanic’
+-  El PNV defiende la oportunidad de la ley de amnistía para acabar con un ciclo traumático
+-  भंग आयोग के पूर्व सचिव जितेंद्र कंवर दूसरी बार गिरफ्तार
+-  Camila Homs se fue del Bailando en medio de llantos, reproches y emoción
+-  Joel Pohjanpaloa vaivaa nyt plantaarifaskiitti
+-  Released COP28 Draft Agreement Omits Call for Fossil Fuel Phaseout
+-  Lanzan una aplicación sobre prevención de cáncer para descargar en dispositivos móviles
+-  Артем Скитов: "Теверов в матче с "Энергетиком-БГУ" мог и хет-трик оформлять"
+-  The Best. Илья Шкурин как лучший футболист Беларуси
+-  Премудров продлил контракт с "Торпедо-БелАЗом"
+-  Ориньо: "Лучший белорусский футболист, на мой взгляд, это Владислав Морозов"
+-  Источник: Невинский может возглавить БАТЭ, если Капский сохранит контроль над клубом
+-  Суперкубок - 25 февраля, высшая лига - с 25 марта по 30 ноября. Стал известен календарь на сезон-2024
+-  Заявочные взносы для команд высшей лиге в 2024 году возрастут почти в два раз
+-  В высшей лиге отменен лимит на молодых футболистов
+-  مركز الدوحة الدولي لحوار الأديان يشارك في المنتدى الإسلامي العالمي بموسكو
+-  Medellín confía en su fortín para controlar a Bacca, remontarle a Junior y salir campeón
+-  Entrevistamos a Jerret West, Jefe de Marketing de Xbox en la Comic Con Experience en Brasil
+-  Prisión preventiva para el presidente de club que atacó a un árbitro en Turquía
+-  Bir Devrin Sonu: Dünyanın En Büyük Oyun Fuarı E3, Bir Daha Düzenlenmeyecek
+-  En Az Üç Çocuk: Dünyanın En Güçlü ve En Zengin Liderleri Neden Sürekli Daha Fazla Çocuk Yapmamızı İstiyor?
+-  ОРГАНИЗАТОРКАТА НА ИЗБОРОТ НА МИС НИКАРАГВА ПОДНЕСЕ ОСТАВКА ОТКАКО ЈА ОБВИНИЈА ДЕКА МЕСТЕЛA ПОБЕДИ НА АНТИВЛАДИНИ УБАВИЦИ
+-  Heino über Hannelore: „Bei jedem Lied denke ich an sie“
+-  Senator Tammy Baldwin Named Winner of 2023 Bone Health Champion Award
+-  Police arrest 80 suspects over cultism, POS fraud in Edo
+-  IDF Shot at Pregnant Civilian Outside Gaza Hospital Under Siege, Staffer Says
+-  News24 | SCA dismisses Zuma bid to appeal invalidation of Downer, Maughan private prosecution
+-  Halil Umut Meler'in babası konuştu: O yumruk atıldığında neler hissettiğini anlattı
+-  حسين الشيخ مستاء من تعبير نتنياهو عن فتحستان
+-  Elevated highway sought instead of underpass for NH 66 between Nanthoor and KPT
+-  ايران : حماس يمكنها الحصول على الأسلحة من السوق السوداء
+-  OVO JE KUĆA SA HEKTAROM ZEMLJE NA ZLATIBORU KOJA JE PRIVUKLA PAŽNJU: Kažu daje je za “male pare” (FOTO)
+-  Jaime Lozano 'HUMILLA' a la Selección Mexicana frente a Estados Unidos
+-  Osun Assembly passes bill extending judges’ retirement age to 70
+-  Basic Paper Dyes Market worth $413.11 million by 2030, growing at a CAGR of 5.17% - Exclusive Report by 360iResearch
+-  নির্বাচনি রিট শুনতে হাইকোর্টের দুটি বেঞ্চ গঠন
+-  Lấy tấn công làm phòng thủ, Lý Thường Kiệt khiến đại quân giặc Tống đại bại tại một nơi ở Bắc Ninh
+-  Charlotte Crosby rushed to hospital after weeks of ill health
+-  Son dakika! Bakan Koca açıkladı: Gazzeli 68 hasta Ankara'ya getirildi
+-  Fallece el intérprete de "China, pasa mi vuelto"
+-  AOSIS Chair Issues Strong Position – Hits Back at “Weak” Commitments in COP28 Presidency’s Draft Text – “We will Not Sign our Death Certificate”
+-  Volvo debuts electric excavator in Indian market
+-  Air France : Votre Voyage à Alger à Partir de 63 Euros – Les Bons Plans de Fin d’Année 2023 !
+-  Anne Hathaway says it’s “lucky” her Barbie movie never got made
+-  Naira scarcity: PoS operators hike charges by 100 per cent
