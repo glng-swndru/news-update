@@ -1,11 +1,51 @@
 # Latest News
--  다올금융그룹, 유해란 프로와 서울재활병원에 3000만원 기부
--  미래에셋증권, 인도 증권사 샤레칸 인수…매입액 4800억원
--  국세청, 오늘 근로장려금 일괄 지급…가구당 평균 47만원
--  1인 가구 월 평균 소득 250만원, 평균 지출 155만원
--  "한국경제 1~2%대 저성장 장기화"
--  부동산 PF 리스크 현실화…저축은행, 내년도 어려워
--  4분기 '자랑스러운 중기인' 김병진·김용현 대표 선정
--  수원시, ‘지구로운 모임 지원사업’ 결과 공유회
--  성남시의회, 제289회 제2차 정례회 폐회…올해 회기 마무리
--  장흥군, 내년 종합사회복지관 내실 운영 지원
+-  Government Implements Quality Control Measures To Safeguard Indian Steel Markets
+-  Oracle's Q3 Revenue Forecast Falls Short Amidst Weak Cloud Spending
+-  [12일 오산시] 드림스타트사업 프로그램 만족도 조사결과 96.9% ‘만족’ 등
+-  Personalistka radí: Tri veci, o ktorých by ste určite mali klamať na pracovnom pohovore
+-  [12일 인천 강화군] 동절기 사회복지시설 안전사고 예방점검 등
+-  Bappenas: Pembangunan IKN Prioritas Nasional
+-  FLC: Thành viên Ban Kiểm soát xin từ nhiệm trước ngày tổ chức ĐHĐCĐ bất thường
+-  البند 17: نهاية "فيلم التمديد"؟
+-  ACL: BG Pathum idam bawa pulang tiga mata
+-  İki hissede brüt takas kararı
+-  SPK'dan HATEK hissesinde bir kişiye 6 ay yasak
+-  Yabancılar BİST'te alım tarafına geçti
+-  Altın ithalatı düşüşte
+-  Hunter Biden pushes for dismissal of gun case, saying law violates 2nd Amendment
+-  Kuurojen liitossa selvitettiin: Nämä sanat tuplakättelijä saattoi sanoa presidentti­parille
+-  Anushka- Virat drop pictures from 6th wedding anniversary celebration
+-  82 per cent of Indian travellers enjoy anonymity during travel
+-  Delhi: Differently-abled boy points toy gun at robbers, makes them flee in panic
+-  Le battaglie dentro la monade leibniziana del Gran Consiglio
+-  ’Medaglie in bacheca, ora penso a Parigi’
+-  Consiglio federale: rinnovo secondo copione o disordinato?
+-  Mnogo uhićenih na demonstracijama u Washingtonu za mir na Bliskom istoku
+-  Zac Efron Dapat Hollywood Walk of Fame, Kenang Kebaikan Matthew Perry
+-  Demo Desak AS Dukung Gencatan Senjata Hamas Israel di Gedung Senat, 51 Orang Ditangkap
+-  Cay đắng đời bà vú của Phổ Nghi: Tưởng số sướng, ai dè ân hận cả đời
+-  ”Liv kan räddas om fler får bättre skydd mot covid”
+-  Preis für kurze Zeit: Deutz-Fahr Agrotron 6145.4 für 103.000 Euro #maschinedestages #gebrauchtmaschine
+-  29 mã cổ phiếu trên UPCoM bị đình chỉ giao dịch từ ngày 15/12
+-  পাঁচ বছরেও শেষ হয়নি সেতুর নির্মাণকাজ
+-  খাগড়াছড়িতে গুলিতে ৪ নেতা-কর্মী নিহত, দাবি ইউপিডিএফের
+-  The Conjuring
+-  İsrail ordusundan beyaz fosfor bombası itirafı: Nefessiz kalarak boğulmaya yol açıyor
+-  İzmir açıklarında 122 düzensiz göçmen kurtarıldı
+-  IMF'den Ukrayna'ya 900 milyon dolarlık ödeme
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Kişi başına milli gelir 12 bin 500 doların üstüne çıkacak
+-  [WATCH] ‘She was having liver problems’: DJ Sbu on Zahara’s struggles
+-  Erdem Can: 'Türk oyuncular hak ettiklerini gösteriyorlar'
+-  Splendid performance by vocalists at music fest
+-  NMC announces another attempt for 2020-21 COVID-affected MBBS batch
+-  Repeat dose of highway pain on way
+-  유엔 무역 기구, 올해 글로벌 무역 5% 감소 전망…내년 전망도 비관적
+-  محور المقاومة يَخرق الخطوط الحمراء الأميركيّة...
+-  How Kylie Jenner and Timothée Chalamet are Supporting One Another Amid Their Busy Schedules
+-  متفوقا على صلاح وحكيمي .. أوسيمين أفضل لاعب في إفريقيا
+-  Urge Gobierno de Argentina ‘rápida investigación’ en agresión a escolta de Milei
+-  원주시, ‘건강보험 빅데이터 기반 진료지원 플랫폼’ 직원 가입 이벤트
+-  철원 대마보건진료소 의료취약지 의료지원 사업 우수상 수상
+-  軍 중·소위 줄이고 중·소령 및 상사 등 6000명 늘린다
+-  동해시 MZ세대 중심 조직 문화 개선 위한 혁신주니어보드 운영 관심
+-  원주 대표 도심간 급행 대중교통 '혁기버스(혁신·기업버스)' 인기
