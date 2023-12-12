@@ -1,51 +1,51 @@
 # Latest News
--  Podanie žiadosti o povolenie pre malé čistiarne odpadových vôd sa predĺži
--  Iniciatíva Ženy ženám vyzbierala na pomoc matkám samoživiteľkám vyše 20-tisíc eur
--  Meteorológovia upozorňujú na hmlu a poľadovicu, v dvoch okresoch hrozia povodne
--  Pri refundáciách z EÚ dodržiavame pravidlo, ktoré platí roky, vyhlásil Ladislav Kamenický
--  المشاط يوجه رسالة عاجلة للقوات المسلحة اليمنية
--  TEKNOFEST 2024 Adana'da yapılacak
--  İtalya'da ırkçı uygulama: Müslümanların ibadet yerleri kapatıldı
--  Flüsse Stepenitz und Dömnitz: Hochwasser in der Prignitz erwartet
--  Dois fazendeiros são presos suspeitos de envolvimento em assassinato de diretor de imobiliária no Nortão
--  Hyundai to launch new Creta EV to take on one of the fastest-growing markets
--  ماذا يحدث لجسمك عند تناول الافوكادو يومياً لمدة 90 يوماً؟
--  Fallece Andy Garcia, humorista y cantante ecuatoriano
--  La Biblioteca Nacional recibió libros sobre el papel de España en la construcción del Canal
--  COP28: Líderes indígenas y sociedad civil exigen al Estado una transición energética justa y comunitaria
--  Rechtse politicus dooft chanoekakaarsjes Pools parlement met brandblusser, mag parlement niet meer in
--  Президентът на Анкарагюджю подаде оставка след боя над съдия
--  «Барыс» официально представил новый тренерский штаб
--  O româncă a jefuit un turist la metroul din Milano. Suma uriașă pe care o avea bărbatul într-o geantă
--  Wegen Sparmaßnahmen: Bezirksamt Neukölln beschließt Haushaltssperre für 2024
--  İsrailli esirlerin aileleri, "7 Ekim başarısızlığının" incelenmesini istiyor
--  Arsenal'dan Galatasaray'a Boey teklifi! Yıldız oyuncusuyla takas
--  Депутат польського Сейму загасив вогнегасником ханукальні свічки (відео)
--  İsrail ordusu: Gazze Şeridi'nde yaralanan İsrail askerlerinin sayısı 600'e yükseldi
--  Autolib': la justice rejette la demande de réparation du groupe Bolloré
--  Renesančna slika z golimi ženskami sprožila krizo na francoski šoli
--  (UŽIVO) KONAČAN RASPLET U LIGI ŠAMPIONA: Sevilja ponovo igra za Ligu Evrope, Junajted mora da sruši Bajern i čeka vesti iz Danske
--  La Tesla Cybertruck tiene un modo para conducir a través del agua
--  NHL:n superlupaus Connor Bedard kohtaa ensi kertaa McDavidin - "Ikäisekseen todella kypsä"
--  Águilas del Zulia disputará sus últimos juegos en el Luis Aparicio durante la temporada regular
--  Los alumnos del IES Juan Antonio Fernández corren para acabar con la leucemia infantil
--  The world of Darkest Dungeon II, the first major DLC “The Binding Blade” released
--  TFF Başkanı Büyükekşi ile İçişleri Bakanı Ali Yerlikaya özel görüşmede!
--  Ticaret Bakanlığından 'kargo iade masrafları' ile ilgili açıklama: Kesinlikle söz konusu değildir
--  Un nuevo vídeo de los vecinos de Salamanca: las ratas campan a sus anchas por la calle
--  Svađa Urše Raukar sa zasutpnicama HDZ-a: ‘Sjetite se fotke iz 2017. Na tome ste dobili izbore!‘
--  Junge SVP mit neuem Vorstand
--  Ймовірність відставки Залужного та Наєва: Умєров розставив крапки над «і»
--  El laberinto de los Kokorev: 20 años a la espera de juicio
--  ACCIONA Energía y El Ganso lanzan las primeras zapatillas del mundo fabricadas con palas eólicas recicladas
--  الرضوان تتأهب وترسانة حزب الله تستعد.. حسين مرتضى يعلن التصعيد ويفجر معلومات تجسسية مخيفة: يا ويلكن!
--  Delta Festival: un événement qui se veut marseillais
--  El 50% de los jóvenes españoles quiere tener un papel más activo en el diseño de las políticas climáticas
--  Revuelo total en América TV por lo que sucedió con Yanina Latorre en LAM: «Siniestra, cínica»
--  Ahmedabad News: अहमदाबाद शहर कांग्रेस के अध्यक्ष हिमतसिंह पटेल ने संभाला पदभार, जानें क्या दी चेतावनी
--  Joachim Göser - ein Macher und Vorwärtsschauer
--  Lammers trakteert op gebak bij Heracles en wordt ontslagen: ‘Verschrikkelijk kloten voor John’
--  I don’t believe my son took his own life
--  Thibau Nys duikt over ruim een week weer het veld in: “De honger is terug”
--  Алпин се раздели със състезателния си директор Давиде Бривио
--  Star Wars KOTOR: Disney afferma di comprendere quanto sia richiesto
+-  אצילי פתח בהרכב אל עין, אך השתולל על הספסל כשהוחלף. צפו
+-  Дунёда қизамиқ энг кўп тарқалган мамлакатлар эълон қилинди .
+-  Пентагон махфий ҳужжатларининг ошкор этилиши бўйича тергов натижалари эълон қилинди.
+-  Soccerladuma | Mauricio Pochettino Tells Chelsea To 'Sell' Seven Players
+-  Pizzan vinsælasti heimsendi matur Íslendinga
+-  الأزهر يعتمد نتيجة اختبارات الدراسين برواق الجامع الأزهر
+-  الأهلي يتفوق على ريال مدريد.. الأندية الأكثر مشاركة في كأس العالم للأندية
+-  مال ونجاح وسفر.. 4 أبراج الحظ بيجري وراهم في 2024
+-  الناخبون يتحدون الأمطار ويحتشدون في لجان مصر الجديدة قبل ساعات من نهاية التصويت
+-  الثالثة على التوالي.. محمد صلاح يفوز بجائزة أفضل لاعب في ليفربول عن شهر نوفمبر
+-  بسبب قصف غزة عشوائيًا.. بايدن يطالب نتنياهو بتغيير حكومته الحالية
+-  بعد الظهور الأول في مونديال الأندية.. رسالة هامة من إمام عاشور لجماهير الأهلي
+-  الوطنية للانتخابات: ملتزمون بالجدول الانتخابي بإعلان نتائج الانتخابات الرئاسية يوم 18 ديسمبر
+-  7 صور ترصد سقوط الأمطار على مدينة نصر
+-  بينها مناقلة أموال الى انتخابات كوردستان.. حكومة السوداني تتخذ جملة توصيات وقرارات
+-  Kabataş-Bağcılar tramvay hattında bakım çalışması
+-  The EPIC untold story behind Fairytale of New York
+-  Hububat Nedir: Tahıl Tanımı ve Önemi
+-  EURGBP breaks above resistance, signaling potential upside momentum
+-  الجيش: الضرب بيد من حديد لمن يحاول المساس بأمن الأردن
+-  Élection Comex de la FGF : la FIFA ferme sur le maintien des 3 candidatures déjà validées…
+-  US Sanctions China, Turkey Firms to Curb Russia War Efforts
+-  La riforma fiscale passa in parlamento, in attesa del popolo
+-  В Москве допустили примирение между Баку и Ереваном до конца года
+-  Алиев о готовности Баку провести COP29
+-  Dino diz que não vai perder tempo com Moro antes de sabatina
+-  શિયાળામાં વાળ શુષ્ક અને નિર્જીવ થઈ ગયા હોય તો આ રીતે કોફી લગાવો, એક અઠવાડિયામાં જ દેખાશે ફરક
+-  Fiji Govt gets executive jet from US
+-  China: Milei diz que dá “grande importância” aos laços com Pequim
+-  Kenya to scrap visas for all visitors, president says
+-  Biden: Izrael počinje gubiti podršku
+-  Sony's fantastic WH-1000XM4 wireless headphones are down to $230
+-  Save 40% on an Amazon Fire TV Stick with this streamer deal
+-  OPINION: ‘They don’t really care about us’
+-  Météo : des températures aussi douces à la mi-décembre, est-ce normal ?
+-  More Americans than Canadians use alcohol to dull their pain, according to study
+-  Over 21,000 Venezuelan migrants registered in Guyana despite bilateral crisis
+-  El truco definitivo para quitar el sarro de la pava electrica
+-  Do čoho investuje? Staré Mesto bude v roku 2024 hospodáriť so sumou 34,5 milióna eur
+-  Još saslušavaju svjedoke u predmetu protiv ljekara Nikole Fatića
+-  Italy and Juve Legend Giorgio Chiellini Announces Retirement From Football
+-  Optical Illusion: चित्रकाराने केली मोठी चूक, 10 सेकंदात उत्तर सांगाल तर तुम्हाला कडक सॅल्यूट; तर मग आव्हान स्वीकारा
+-  Együtt ünnepeltek Devecserben
+-  Why are police lights red and blue?
+-  Operação da Polícia Federal mira em esquema suspeito de importação e venda ilegal de cigarros eletrônicos
+-  Hedge-Fonds-Gruppen klagen gegen die US-Börsenaufsicht SEC, um die Leerverkaufsregeln aufzuheben
+-  Hedgefondsgroepen klagen Amerikaanse SEC aan in poging short-selling regels te schrappen
+-  Čínský Zhaoxin představuje 8jádrový procesor KX-7000 s frekvencí až 3,7 GHz
+-  Premier Ministre de cohabitation : Jordan Bardella se dit « prêt »
+-  De förvandlade köket – till en julkalender
