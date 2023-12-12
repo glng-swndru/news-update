@@ -1,11 +1,51 @@
 # Latest News
--  הוילונד ואנטוני בהרכב מנצ'סטר יונייטד, גלוך ב-11 של זלצבורג
--  מחוקק ימני קיצוני כיבה חנוכייה בפרלמנט הפולני: "פולחן שטני"
--  Jihad mod kirker i Frankrig – vandalisme, Ildspåsættelse og trusler mod kirker og præster
--  محافظ الجيزة يواصل جولاته المسائية لمتابعة توافد المواطنين على لجان الانتخابات
--  المقدم 60 ألف جنيه.. ننشر كراسة شروط شقق الإسكان المتميز (التقديم الأحد المقبل)
--  وزير التعليم العالي يكشف النسب المتوقعة للالتحاق بالجامعات عام 2032
--  إغلاق اللجان الانتخابية وانتهاء التصويت في ثالث أيام انتخابات الرئاسة
--  جيش الاحتلال: مقتل جنديان خلال عملية استعادة جثتي أسيرين في قطاع غزة
--  شعبة الملابس تُعلق على اعتذار "Zara" بعد اتهامها بالسخرية من شهداء غزة
--  بعد تتويج بيرسي تاو بالأفضل داخل أفريقيا.. بيراميدز يرد على الأهلي
+-  بوريطة يستقبل وزير الشؤون الخارجية الغامبي حاملا رسالة إلى جلالة الملك
+-  Konstytucja wcale tego nie wymagała
+-  Magazyny są znowu pupilkiem banków
+-  MF nie radzi sobie z przetargami na kasyna
+-  Rynek najmu szykuje się na zmiany
+-  Kurierzy wpadli w spiralę długów
+-  Granty na rozwój oferty klastrów dla firm
+-  Nastroje w branży HoReCa opadły jak suflet
+-  Czy można ubezpieczyć firmę od wycieku danych
+-  Tetra Pak ściągnął Plastigram do Szczuczyna
+-  Polska Wschodnia: dotacyjne szanse dla firm w 2024 r.
+-  Bitcoinowy fundusz w polskim wydaniu
+-  Jak zwiększać sprzedaż dzięki technologii i automatyzacji
+-  Rynek kontra Fed
+-  THC Pathfinder rozkręci opakowaniowy marketplace
+-  Katowicki TDJ ma nową strategię
+-  Government pushes €280 mil. into improving vulnerable neighborhoods
+-  Llegan las primeras multas a municipios por gastar demasiada agua: 30 sanciones impuestas
+-  La app’ de seguridad ciudadana M7’, radicada en Cornellà, cumple diez años
+-  מתרחבים: הגר משה וניר פור מצפים לילד שני
+-  Rainforest Alliance: Championing sustainability in Sri Lanka’s tea sector
+-  Viol d'une touriste brésilienne au Champ de Mars: un homme interpellé et mis en examen
+-  Abascal arremete contra Feijóo por condenar sus palabras de «colgar de los pies» a Sánchez
+-  »Wenn's im Spessart Weihnacht wird«
+-  Rindenmulch-Experiment gescheitert
+-  Gericht bestätigt Vorkaufsrecht für Grundstück
+-  Letzter Sport-Tag in Karlstadter Halle
+-  iPhone puede grabar videos que se verán en tres dimensiones con gafas de realidad virtual
+-  DANAS JE DATUM OGLEDALA Evo šta znači 12.12. i šta treba obavezno da uradite NA OVAJ DAN da biste ostvarili uspehe na svim poljima
+-  Apex Legends players claim it deserves the hate as they compare it to Warzone
+-  Карпов: «Спартак» и «Динамо» проявляют интерес к сербскому футболисту Луковичу
+-  Semujeres entrega a empresas el distintivo Sinaloa por la igualdad de género en el ámbito laboral
+-  Ο Δημήτρης Πετρόπουλος εξομολογείται: «Χάλασε η συνεργασία όταν αρρώστησα – Δεν ήξερα αν θα ζω μέχρι την πρεμιέρα»
+-  U FK Sarajevo stiglo veliko pojačanje: Potpisao bivši golman Arsenala
+-  ¡A cumplirlos! Coparmex Mazatlán ya tiene sus propósitos de Año Nuevo: canales de riego y Tetakawi
+-  Junts advierte de que la amnistía abre una negociación entre «dos naciones» de «tú a tú»
+-  Kotdwar News: चिलरखाल-लालढांग मोटर मार्ग से होगी सुगम कनेक्टिविटी
+-  Kotdwar News: ‘वन संपदा अमूल्य धरोहर, इसे बचाने की जिम्मेदारी हम सबकी’
+-  Aligarh News: अनिल की रिहाई के लिए बेमियादी धरना तीसरे दिन भी जारी रहा
+-  Aligarh News: मंदिर तोड़ने के प्रयास की एसएसपी से शिकायत
+-  Aligarh News: संपत्ति को लेकर हुए झगड़े में तीसरे दिन हुई रिपोर्ट दर्ज, तीन नामजद
+-  Bhadohi News: स्कूलों में सुविधाएं बढ़ती गईं, घटते गए विद्यार्थी
+-  बोर्ड परीक्षा: केंद्र के मानक में 11 विद्यालय फेल
+-  Bhadohi News: सांस्कृतिक कार्यक्रमों की प्रस्तुति से बच्चों ने मोहा मन
+-  Bhadohi News: सात फीट निकला अजगर, वन विभाग ले गया
+-  सीबीएसई: छह केन्द्रों पर होगी परीक्षा, 11 हजार अभ्यर्थी देंगे इम्तिहान
+-  Bhadohi News: वाराणसी के युवती की अबूझ हाल में मौत, हत्या का आरोप
+-  Bhadohi News: दहेज उत्पीड़न में पति, सास समेत चार को एक साल की सजा
+-  Rewari News: महेंद्रगढ़ व रेवाड़ी के युवा आज भर्ती में लेंगे हिस्सा
+-  Bhadohi News: रात हुई सबसे ठंडी, पारा 10.2 डिग्री तक गिरा
