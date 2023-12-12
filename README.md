@@ -1,51 +1,51 @@
 # Latest News
--  kt wiz, 벤자민과 총액 140만달러 재계약… 외국인 선수 구성 완료[오피셜]
--  맹승지 비키니, 옆에서 보니 더 아찔한 볼륨감
--  Watch: Tamannaah, Vijay dance to `KANK` song at Randeep-Lin reception
--  Comanda Tommy DeVito al triunfo a Giants
--  মালকা বানু ও মনু মিয়ার প্রেম
--  Två personbilar krockade i korsning i Åbo
--  ปปง.แถลงยึดทรัพย์กว่าพันล้าน
--  Rekordmange er begyndt at få førtidspension i år
--  Cyprus Business Now
--  French parliament rejects Macron's immigration bill
--  Award-winning SA musician Zahara passes away at 35
--  Gaza deaths pass 18,200 as battles rage
--  Storm-damaged Clarence Drive reopened to one-way traffic
--  Cabinet approves bill for tabling in Parly to create holding company for SOEs
--  풀무원, '풀무원지구식단' 모델에 이효리 발탁 ... 광고모델은 창사이래 처음
--  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
--  बाइडेन ने इज़राइल के लिए 'अटल समर्थन' का किया दावा
--  Haushaltskrise: Wirtschaft fordert Koalition zu baldiger Einigung auf
--  विदेश की खबरें | यूरोपीय संघ समर्थक डोनाल्ड टस्क पोलैंड के प्रधानमंत्री बने
--  Le probabili formazioni di Union Berlino-Real Madrid: Ancelotti insegue la sesta vittoria
--  Wararkii Ugu Danbeeyey Xaalad cakiran oo ka taagan Khan Yunis koonfurta Qasa
--  Latest Gold-Silver Prices Today: గోల్డ్‌ కొనడానికి కరెక్ట్‌ టైమ్‌ ఇదేనా? - రోజు బంగారం, వెండి కొత్త ధరలు ఇవి
--  Dixon Technologies Secures Major Manufacturing Contract With Lenovo Under Revised PLI Scheme
--  Von Moltke: Olympia hat Leichtathletik „totgemacht“
--  Kekal menteri, Azalina hargai keyakinan PM
--  نواز شریف کی العزیزیہ ریفرنس سزا کیخلاف اپیل پر سماعت آج ہوگی
--  Заведующая российским детсадом уволилась из-за грамот с гербом Украины
--  Bhatkhande varsity- Sri Lankan s finesse to be awarded gold medal in Kathak at 13th Convocation
--  헤어진 여친 집에 몰래 들어가 끔찍한 행동…20대男에 이유 물어보니
--  ثلاثة ألغاز أثرية يمكن للذكاء الاصطناعي حلها قريبا!
--  Vam je všeč? Tako novost pripravlja Porsche. #foto
--  ['2023 대한민국 경제교육대상'에 강원 전인高...단체 부문에선 '예보'
--  [서울대 기숙사 삼거리서 40대 배달기사 마을버스에 치어 숨졌다
--  [현대차그룹 4개사, ‘건강친화기업’ 인증 획득…“임직원 건강 근무 지원”
--  [<신제품·신기술>종근당, 간 건기식 ‘이뮨듀오 밀크시슬 트리플샷’
--  ["화장실 좀 쓸게요"…농가 주택 들어가 돈 훔친 30대
--  [[김태열의 생생건강S펜] "마이코플라즈마 폐렴, 궁금증 A~Z까지"
--  [‘토이플레이션까지…“크리스마스 어쩌나” 한숨 깊어지는 부모들
--  [“주차요금, 차 안에서 내세요” 현대차·기아, 현대百과 카페이 도입 MOU
--  [순천출마 김문수, 소병철·서갑원 등 '모두까기'
--  [“자동차 구매 수요 증가” 中 신에너지차 생산·판매 11월 첫 동시 100만대 돌파
--  [“승인 후 재방문 없어도 됩니다” 부산은행, 비대면 대출전자약정 서비스 확대
--  [퓨저니스트, OKX 점프스타트 선정 발표
--  [부족한 투자금 고민, 월 0.4%대 금리의 더머니스탁론이 해결해드립니다!
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [경과원'스타트업 해외 진출 교두보' G-FAIR KOREA 설명회 개최
--  [곽재선문화재단, 청년작가 공모전 ‘플라이 영 아티스트’ 시작
--  Lawinenabgang in den Dolomiten: Mann wird 300 Meter mitgerissen
--  Travis Kelce, but Not Taylor Swift, Makes Google’s 2023 Year in Trending Searches List
--  В Русском театре Калмыкии откроют творческую мастерскую для детей с ОВЗ
+-  Azercell “Təhlükəsiz internet”in təbliğinə start verir
+-  Man fighting for life after horror 24 hours on Victorian roads
+-  부상 복귀한 우즈, 아들 찰리와 PNC 챔피언십 출전…16일 개막
+-  박지수, 여자프로농구 1·2라운드 MVP 석권…개인 통산 15번째
+-  듀플랜티스·키프예곤 등 6명, 세계육상연맹 올해의 선수에 선정
+-  강성훈·노승열·함정우, PGA 투어 퀄리파잉스쿨 출전
+-  내년 2월 '메호대전' 성사…친선대회서 마이애미-알나스르 격돌
+-  대구광역시장애인체육회 2023 장애체육인의 밤 행사 개최
+-  '우승 멤버' 김천상무 6기의 화려한 마무리, 12일 전역
+-  프로기사 이춘규는 8단, 한상조는 6단으로 승단
+-  진주시, 시설관리공단 초대 이사장에 정상섭 전 국장 내정
+-  네거티브 방식 규제 특례 적용…'지역특구법 시행령' 개정안 의결
+-  DB손보, 시퀀스엔·중벤져스와 중고차 사업 확대 '맞손'
+-  '벤처투자법 시행령' 개정안 국무회의 의결…투자생태계 고도화 기대
+-  신한카드, 대만 라인페이 QR 결제 캐시백 이벤트
+-  SKT, RCS 기반 '채팅+' PC까지 확대
+-  멕시카나 가맹점 우만점 ‘따뜻한 치킨’으로 ‘따뜻한 선행’
+-  진안 유소년승마단, 전북협회장배 '전국대회 대거 입상'
+-  K-GAMES, '게임 인식 제고 위한 교사 연수' 진행
+-  농기계 1위 대동, 원유현 부회장 승진…조직개편 단행
+-  진보당 전권희 익산지역위원장, 익산갑 예비후보 등록
+-  구례군, 산불 예방 총력 ‘산불방지 드론 감시단’ 편성
+-  광주시의회, 내년 예산안 1조5136억원으로 수정 가결
+-  [인사] 미래에셋증권
+-  장성군, ‘2023년 전남형 청년공동체 성과공유회’ 진행
+-  평택시, 미래첨단산업분야 인재 양성을 위한 업무협약 체결
+-  구미대, ‘2023 육군 임관 장기복무 의무부사관’ 전국 최다 합격자 배출
+-  해남군, 65세 이상 대상포진 예방접종 비용 지원
+-  익산 그린바이오 벤처캠퍼스 조성 공사 '첫 삽'
+-  익산시, 폐철도 유휴부지에 도시 숲 조성
+-  허전 익산부시장, 홀로그램 기관·기업 방문해 사업추진 현황 점검
+-  익산시, 도내 최고 난임부부 시술비 지원… 121쌍 성공
+-  진해 신항만 로타리클럽, 독거노인 가구 LED 전등 교체 봉사활동
+-  익산 농기센터, 김제농생명마이스터고와 '우수인력 양성' 업무협약
+-  부천시, 마이코플라즈마 폐렴 적극 대응 나서
+-  [포토] 양심과 함께 버려진 쓰레기들
+-  원광대병원, 한국의료질행상학회 가을학술대회 구연 '우수상'
+-  안성시, 2023년 안성맞춤아카데미 6회차 강연 개최
+-  원광대, 하반기 LINC 3.0 가족회사 Festival 개최
+-  북핵 대응 '3축 체계' 구축 속도낸다… 5년간 349조 투입
+-  거창박물관 ‘새로 찾은 거창 가야’ 특별전
+-  Leaders innovate to elevate
+-  Valtteri Bottaksen syrjäyttänyt George Russell oli F1-kauden pettymys
+-  जुम्लामा शान्ति सुरक्षालाई मजबुत बनाउन सिसी क्यामेरा जडान गरिँदै
+-  No plans of slowing down for Shakib with fresh challenges on the horizon
+-  Мэр Хабаровска Кравчук: выдавшие детям грамоты с символикой Украины захотели уволиться
+-  Семьи потушивших Вечный огонь в Петербурге подростков могут выдворить из России
+-  Ganjar Terima Masukan Apindo: Penegakan Hukum Dukung Pertumbuhan Ekonomi, Seperti Singapura
+-  China’s Xi visits Vietnam in bid to counter US
+-  عقوبة تنتظر مواطنين لتسببهما في وفاة شخص بعد تصادمهما عمدا.. فيديو
