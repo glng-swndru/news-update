@@ -1,11 +1,11 @@
 # Latest News
--  MKE Ankaragücü Kulübü Başkanı Koca istifa etti
--  Konya'da soba faciası: Anne öldü, kızının durumu ağır
--  Kickoff | Pirates target Sekhukhune star
--  Social Media Erupts as Odumodublvck Slams Davido’s Lyrics and Calls Him a “Fool”
--  GTA 6: Trailer bricht Rekorde – Youtube meldet sich zu Wort
--  غدًا.. مؤتمر صحفى للجنة إحياء يوم حضرموت الوطني الـ 20 من ديسمبر
--  مدير تربية المنصورة في زيارة تفقدية للمطبخ الصحي للتغذية المدرسية في ثانوية عدن النموذجية للبنين
--  International Festival of Vietnam Rice Industry - Hau Giang 2023: ‘Green Rice for Life’
--  At COP28, Trump and GOP threaten Biden’s climate promises
--  Comment Stellantis a finalement réussi à convaincre la Bourse
+-  ישנה את מדיניות הרכש בצ'לסי? החוק החדש של הפרמיירליג
+-  إقبال كبير على لجنة "الثانوية بنات" بأكتوبر قبل ساعات من انتهاء التصويت
+-  قبل 3 ساعات من انتهاء التصويت.. إقبال كبير على لجنة مدرسة محمد كريم بالهرم
+-  الاحتلال يحتجز أفراد الطاقم الطبي في مستشفى كمال عدوان بعد اقتحامها بغزة
+-  تريزيجيه يدلي بصوته في الانتخابات الرئاسية 2024
+-  بالفيديو.. الشباب يتصدرون مشهد انتخابات الرئاسة بلجنة الوافدين في المنيا
+-  المقاومة الفلسطينية تستهدف 20 جنديًا وتسقطهم بين قتيل وجريح بغزة
+-  مريض على سرير طبي يدلي بصوته في الانتخابات بكفر الشيخ
+-  72% منهم بكليات العلوم الإنسانية.. قبول 979 ألف طالب في الجامعات خلال العام الأخير
+-  التعليم العالي: قبول نحو 47 ألف طالب في الجامعات الأهلية خلال العام الحالي
