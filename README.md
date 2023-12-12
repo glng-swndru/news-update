@@ -1,11 +1,51 @@
 # Latest News
--  ישנה את מדיניות הרכש בצ'לסי? החוק החדש של הפרמיירליג
--  إقبال كبير على لجنة "الثانوية بنات" بأكتوبر قبل ساعات من انتهاء التصويت
--  قبل 3 ساعات من انتهاء التصويت.. إقبال كبير على لجنة مدرسة محمد كريم بالهرم
--  الاحتلال يحتجز أفراد الطاقم الطبي في مستشفى كمال عدوان بعد اقتحامها بغزة
--  تريزيجيه يدلي بصوته في الانتخابات الرئاسية 2024
--  بالفيديو.. الشباب يتصدرون مشهد انتخابات الرئاسة بلجنة الوافدين في المنيا
--  المقاومة الفلسطينية تستهدف 20 جنديًا وتسقطهم بين قتيل وجريح بغزة
--  مريض على سرير طبي يدلي بصوته في الانتخابات بكفر الشيخ
--  72% منهم بكليات العلوم الإنسانية.. قبول 979 ألف طالب في الجامعات خلال العام الأخير
--  التعليم العالي: قبول نحو 47 ألف طالب في الجامعات الأهلية خلال العام الحالي
+-  شركة هاتف ليبيا تباشر فی ربط شبكة الالياف البصرية الخاصة بمنظومة الملاحة الجوية بمطار اوباري المدني .
+-  تعليق الدوري التركي بعد حادثة الاعتداء على حكم في إحدى المباريات.
+-  التعرف على هوية (3) حالات جديدة من مفقودي 2011 من طرابلس و2014 بدرنة .
+-  المنفي يبحث مع ممثلة المصرف الدولي في ليبيا ملف إعمار درنة والمناطق المتضررة من الفيضانات.
+-  الطرابلسي يؤكد التوصل إلى حل جذري ونهائي للمشاكل التي تواجه المنافذ البرية بين ليبيا و تونس.
+-  اجتماع بلدية غدامس مع جهاز مركز طب الطوارئ لبحث إنشاء غرفة العمليات المختصة بالبلاغات .
+-  وزارة التَّعليم تعقد اجتماعا لِمعدّي أسئلة شهادتَي إتمام مرحلتَي التّعليم الأساسي والثانوي للعام الدِّراسي 2023 - 2024م
+-  وزارة الصناعة والمعادن تشارك في القمة العربية لريادة الأعمال والمشروعات الصغيرة والمتوسطة .
+-  Ecología circular en Vilafamés con el árbol de fiestas
+-  Ministro de Economía dice que “se ralentiza” la inflación y los cubanos lo mandan a callar
+-  ارتفاع حصيلة شهداء غزة إلى 18412
+-  اشتباکات عنیفة فی الشجاعیة وخان یونس
+-  Karbonmonoksit gazı anneyi hayattan kopardı kızının durumu ağır
+-  Terör devleti İsrail hastane bastı: Tüm sağlık personelini tehdit edip sorguladılar
+-  La prevención de riesgos laborales, política transversal del Gobierno de Aragón
+-  АЗС «Роснефть» представила обновленное мобильное приложение
+-  Nicki Minaj brings Gag City to ‘Roblox’
+-  El Cabildo activado el sistema de emergencia del Teleférico del Teide
+-  Temu was the most-downloaded iPhone app in the U.S. in 2023
+-  Перевозчик рассказал о первом автобусе из Петербурга в Хельсиньки
+-  נתניהו מוותר על "כיפת הברזל" של ליברמן
+-  आपात परिस्थितियों से निपटने का युवाओं को प्रशिक्षण दें प्रतिभागी: सुषमा गुप्ता
+-  BEOGRAD JE SPREMAN ZA SPEKTAKL KOJI ĆE SE JOŠ DUGO PAMTITI! Brajan Adams ne zaobilazi Srbiju - po TREĆI PUT je tu
+-  Världsettan skänker exklusiv VM-klocka
+-  South Africa vs India: South Africa vs India Live Cricket Score, Live Score Of Today's Match on NDTV Sports
+-  El juez del 'caso Neurona' concluye que Podemos no se financió de forma ilegal
+-  Tässä he ovat - Suomen ensimmäiset urheilijat Pariisin olympialaisiin valittu
+-  Iguazú desde Colombia: entre cielos y selvas
+-  Windows: Vorsicht vor diesem Update – es legt jetzt reihenweise lahm
+-  LÄSARTEXT: Jubilarer uppvaktades på julfest
+-  Čavara i Efthymiadou: Jačati gospodarsku suradnju BiH i Grčke
+-  Posłowie PiS potępili zachowanie Grzegorza Brauna. Gliński: To jest nie do obrony
+-  Zvanično: Nenad Stefanović više nije trener FMP-a
+-  ‘No is a complete sentence’: S’pore young adults give their best safe sex & dating tips (pun intended)
+-  ग्रेटर महापौर ने गीता कांटेस्ट का पहला फॉर्म भरकर की रजिस्ट्रेशन की शुरुआत
+-  ¿Qué es un Host Club y Cómo caen en prostitución en Japón?
+-  Acordo coletivo pode diminuir jornada sem redução de salário, aprova CAS
+-  Leilão de inservíveis arrecada mais de R$ 1,6 milhão
+-  Polícia Civil prende autores e esclarece homicídios ocorridos em bar e na zona rural de Cáceres
+-  Polícia Civil prende dois fazendeiros investigados por envolvimento em homicídio
+-  Lula: é preciso criminalizar quem divulga fake news sobre vacinas
+-  Sine Municipal oferece 319 oportunidades de emprego nesta terça-feira (12)
+-  Dívida do Fies poderá ser abatida com prestação de serviço público
+-  एनसीआर में ऑन डिमांड लग्ज़री कार चुराने वाले गिरोह के चार बदमाश गिरफ्तार
+-  Maioria do CNJ vota por paridade de gênero para cargos nos tribunais
+-  Prefeitura de Cuiabá reforça orientação sobre veto ao uso de fogos de artifícios que produzam estampido
+-  Natal da Gente 2023 leva espetáculo de neve, mágica e show de lambadão para o bairro Pedra 90
+-  "Es bleibt spannend": Gibt es Schnee zum Fest?
+-  CF Montreal acquires defender Ruan, $500K from D.C. United for Aaron Herrera
+-  Canadian defender Zorhan Bassong signs with Sporting Kansas City
