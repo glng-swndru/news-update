@@ -1,51 +1,51 @@
 # Latest News
--  आईपीएल नीलामी 2024: किस टीम ने बचाए और खर्च किए कितने पैसे? जानिए सभी टीमों का पूरा हाल
--  Einbrecher flüchtet mit Tresor
--  Bücher, lesenswert und wertvoll
--  Hochwasserlage in Bayern weiterhin angespannt
--  Bayern-Initiativen gegen Bürgergeld und Wolf
--  Würzburg: Mann stirbt bei Betriebsunfall
--  Rutte: Fear of Timmermans as new Dutch PM made VVD voters switch to far-right PVV
--  BC government red tape ties hands of search and rescue groups
--  Deal in Maskenprozess: Tandler soll mehr als vier Jahre in Haft
--  फिल्म ‘डंकी’ की रिलीज से पहले माता वैष्णो देवी के दरबार पहुंचे शाहरुख
--  Zara na udaru zbog nove modne kampanje. Ljudi prosvjeduju: 'Iskorištavate mrtve Palestince'
--  सीता–राम विवाह पञ्चमी महोत्सव जनकपुरधाममा सुरु
--  “야구가 끝나면 허무했다…GG 너무 받고 싶었어” KBO 현역 통산타율 1위 예약, 부모님 위해 야구한다 ‘다짐’
--  [팬스타, 대학가요제 스타 ‘샌드페블즈’와 함께하는 부산~오사카 크루즈 운영
--  Żywe choinki z polskich hodowli ozdobiły Starostwo Powiatowe w Gnieźnie
--  [“아빠, 도와줘” 아내 살해한 변호사, 119보다 국회의원 父에 먼저 전화
--  Amanda Bynes Reveals the Plastic Surgery Procedure She's Had Done
--  iPhone 16 लॉन्च से पहले हिला चीन, भारत को फायदा
--  Realmente miramos con desprecio a las personas que tienen acné, según un estudio
--  جيش العدو يعترف بمصرع ضابط وإصابة ثلاثة جنود خلال المعارك في غزة
--  منتخب وزیراعظم کو نااہل قرار دینے کیلئے بنائے گئے مقدمات انجام کو پہنچ گئے، شہباز شریف
--  Nešić: BiH spremna da bude dio kolektivnog sistema bezbjednosti
--  Fallece José María Arias Mosquera, presidente de la Fundación Barrié y último del Banco Pastor
--  Schon 2022 beschlossen: Puma beendet Vertrag mit israelischer Fußball-Nationalmannschaft 2024
--  Cumhurbaşkanı Erdoğan Fatih Erbakanı'ı kabul edecek
--  Hakemlerden toplu istifa
--  इस तरह प्लानिंग कर आप रिटायरमेंट के बाद हर महीने 2.5 लाख रुपये पा सकते हैं, जानिए कैसे
--  Zamfara Rounds Up 2nd Phase Of Free Medical Outreach
--  Manisa'da 64 Gündür Aranıyordu, Mersin'de Bulundu
--  เบสท์ คำสิงห์ เปิดใจ หลังถูก สมรักษ์ ถูกแจ้งความ กระทำอนาจารเด็ก !?
--  Preocupa a EU que Israel esté usando fósforo blanco: Casa Blanca
--  CES 2024: TechCrunch wants to meet your startup
--  Arrestan a pandillero que pretendía evadir la justicia al cubrir sus tatuajes con otros diseños
--  Uhapšen Beranac: Pronađeno pet pušaka i tri pištolja
--  Indian Film Festival of Melbourne honours Shabana Azmi, announces IFFM Baari and 2024 festival dates
--  Makarska prelomila - dosta je apartmanizacije, nema više gradnje! ‘Najvažnija odluka u zadnjih nekoliko desetljeća‘
--  양동근 "'오징어 게임2' 촬영 때마다 비밀유지 서약…삼엄한 분위기'('돌싱포맨')
--  آر جے مال آتشزدگی: تحقیقاتی رپورٹ میں اہم انکشافات، نقصان کا ذمہ دار کون ہے؟
--  Španija: Zaplijenjeno više od sedam tona kokaina, uhapšeno 20 ljudi
--  UNE: se pronostica una afectación de 385 MW en el horario pico de este martes
--  79 Yaşındaki Adam Cinsel İlişkileri Duyulmasın diye Arkadaşını Parçalara Ayırmıştı! Cezası Belli Oldu
--  مناقشة تقرير إنجاز وحدة تمويل المشاريع والمبادرات الزراعية بمأرب
--  Cenitev Plečnikovega stadiona, ki jo je naročil MOL, podobna Pečečnikovi: 18 milijonov
--  Court overturns conviction of former Pakistani premier Nawaz Sharif ahead of parliamentary election
--  Los cinco idiomas más estudiados por los argentinos en 2023
--  Spider-Man 4: Was Anne Hathaway To Play Black Cat in Cancelled Tobey Maguire Movie?
--  हनीमून के लिए अद्भुत जगह है कौसानी गांव
--  Stort hackerangreb rammer Ukraines største mobiloperatør
--  More US aid can't help Ukraine, Kremlin says before Zelenskiy-Biden talks
--  Auf mehr als 11.000 Metern Höhe: Airbus A320 meldet medizinischen Notfall über Deutschland
+-  Suicide bomber attacks police station in northwest Pakistan, killing 23 officers and wounding 32
+-  As COP28 negotiators wrestle with fossil fuels, activists urge them to remember what&#039;s at stake
+-  Рўзиев Алишер Иброимовичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  ЕИ нимани режалаштиряпти?
+-  Маманазаров Мансур Aбдухакимовичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Дуснаев Шерзод Эргашевичнинг Иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Мамадалиев Одилжон Тоировичнинг Иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  7 tegen 7 voetbal S.V. Oosterend
+-  “Тез ёрдам”га энг кўп чақириқлар қайси ҳудуддан бўлмоқда?
+-  Nieuwe suppletie tussen paal 9 en 12 in 2024
+-  Ramaikan Nobar Debat Capres di Sekretariat Timnas AMIN, Pendukung Pede Anies Ungguli Ganjar dan Prabowo
+-  Novi roman Jelene Bačić Alimpić "Poslednji sati" – potpisivanje 12. decembra u SKC-u
+-  Adar Poonawala Buys London’s Most Expensive House; Know The Whopping Cost
+-  حماس تدعو السلطة الفلسطينية إلى تجاوز اتفاقيات أوسلو ووقف التنسيق الأمني مع إسرائيل
+-  IS: Lappilainen matkailuyrittäjä raiskasi naisen Posiolla – hovioikeus ei lieventänyt tuomiota
+-  Yulimar Rojas atleta del año del World Athletics
+-  اقتراب حوت ضخم من زوار شاطئ للسباحة معهم
+-  الاحتلال يقتحم مستشفى كمال عدوان في غزة
+-  بورصة الكويت تغلق على ارتفاع
+-  „Martwa strefa” dla rosyjskich dronów. Ukraina może już szykować grunt pod ofensywę w 2024 r.
+-  Ετοιμοπόλεμος ο Ψάλτης
+-  20 minutes from death: When non-surgical BBL Brazilian Butt Lift fillers go wrong
+-  İYİ Partili vekil disipline sevk edildi
+-  Sakarya'da kokain operasyonu: 3 gözaltı
+-  Sivasspor, ligdeki 4 maçlık galibiyet hasretine son verdi
+-  8 aydır kayıp olan uzay domatesi bulundu
+-  Libatkan Praktisi Kesehatan, UK Petra Eksplorasi Manfaat Potensi Kesehatan Produk UMKM
+-  Marginal rise in COVID-19 cases in Ernakulam
+-  Radosław Sikorski, doświadczony minister
+-  God of War Ragnarök: Valhalla vai exigir download de 7,6 GB
+-  Młodzież niechętnie uczy się przedmiotów ścisłych. Zbadano, co ma na to wpływ
+-  Petrus Soroti Manuver Tim Prabowo Kumpulkan Aktivis '98 dan Korban Penculikan
+-  Бесими: Обезбедени над 700 милиони евра за развојни проекти и реформи од нашите партнери и со прераспределба на буџетски средства
+-  Loi immigration rejetée: "La meilleure option, c'est le retrait du texte et le départ de Gérald Darmanin", déclare Antoine Léaument (LFI)
+-  Los empresarios destacan el potencial del eje Madrid-Valencia para avanzar en la electrificación
+-  Зам.-кметът Павел Попов: На 28 и 29 декември детските градини във Варна ще работят при стандартен режим
+-  Τι συνέβη με τον Χουάνγκ και τον Μαρτίνεθ;
+-  Koar-koar Paling Berpengalaman soal Pelayanan Publik, Ganjar di Debat Capres: Pemerintah Gak Boleh Baperan!
+-  सिद्धार्थ से बुद्ध : एक जागृति का मंचन, गीत-संगीत और नृत्य से संपन्न हुआ सिद्धार्थ का विवाहोत्सव
+-  Större underskott än väntat för Kalmar
+-  OD OVOG DATUMA MOGUĆE POGORŠANJE VREMENA I ZAHLAĐENJE Meteorolog Čubrilo: Sutra nad fenskim delovima Srbije do 18 stepeni
+-  India requests FBI to share intel on Sikh separatists - source
+-  The USD is higher after CPI data. Stocks are still up but off their high levels. Yields up
+-  In neuem Video: So klingen Kate Middleton, George, Charlotte und Louis
+-  Германия: ЕС трябва да убеди Унгария да подкрепи Украйна
+-  Cascadia bullet train stuck at the station as feds dole out big bucks for rail
+-  Presidente de México lamenta fallecimiento de la madre de ‘El Chapo’
+-  42. rocznica wprowadzenia stanu wojennego w Polsce. W Legionowie uroczysta msza święta, a samorządowcy złożą kwiaty pod pomnikiem w parku za ratuszem
+-  Atrium Ljungberg sänker utdelningspolicy
+-  ينفذ في ثلاث ولايات:إنطلاق مشروع تمكين النساء و الهياكل الفلاحية(Efor).
