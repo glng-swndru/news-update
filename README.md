@@ -1,11 +1,11 @@
 # Latest News
--  20 years of LOC Kargil: This is how Abhishek, Ajay, Esha marked milestone year
--  Embid demolirao Vašington i prestigao Barklija VIDEO
--  Oni su sledeći? "Moramo..."
--  अमेरिकी लडाकु विमान दक्षिण कोरियामा दुर्घटनाग्रस्त
--  मैत्रीपूर्ण फुटसल प्रतियोगितामा प्रतिनिधिसभा विजयी
--  इराकी राष्ट्रपति पहिलो पटक साइप्रस भ्रमणमा
--  To warto wiedzieć przed sesją na GPW 12 XII 2023
--  Sagartz zur Sacharow-Preisverleihung 2023: "Jina Mahsa Aminis Vermächtnis für die Frauen im Iran lebt weiter"
--  Μια μικρή Χανιώτισσα ζητά τη βοήθειά μας
--  Rumah Wakaf Distribusikan Alquran Braille ke 21 SLB Sumatera Barat dan Riau
+-  Parents Fulfill Little Daughter’s Candy Cake Dream
+-  RAT U IZRAELU: Južni deo Pojasa Gaze na žestokom udaru; Napad dronovima na Zapadnoj obali, ima i poginulih
+-  Biden alludes to disagreements with Israel’s Netanyahu
+-  33 proc. firm w Polsce planuje zatrudnienie nowych pracowników w I kw. 2024 r.
+-  النائب السابق عمر قراقيش في ذمة الله
+-  زلزال بقوة 5.8 درجة يضرب جزر تونغا الواقعة في جنوب المحيط الهادئ
+-  إصابة فلسطيني برصاص الاحتلال شمال رام الله
+-  المجلس التنفيذي لصندوق النقد يوافق على منح أوكرانيا 900 مليون دولار
+-  شاهد حوت ضخم يقترب من رواد شاطئ للسباحة معهم في أستراليا
+-  الاحتلال يعتقل 6 فلسطينيين ويستولي على مركبات من الخليل
