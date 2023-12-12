@@ -1,11 +1,11 @@
 # Latest News
--  الأعلى للإعلام يطالب بعدم الاستباق بنشر مؤشرات نتائج الانتخابات الرئاسية
--  "حفرة 20 متر أسفل عقار".. محاكمة تشكيل عصابي بتهمة التنقيب عن الآثار بالخليفة
--  رئيس لجنة الانتخابات في طوخ: معظم المشاركة بالانتخابات الرئاسية من الشباب
--  "حذف فقرة ثم أعاد نشره".. مترجم مارسيل كولر يثير الجدل ببيان غاضب
--  جيش الاحتلال يعلن استعادة جثتين من غزة في عملية مشتركة مع الشاباك
--  تحديد موعد جديد لمباراة ليفربول وتشيلسي في قمة الدوري الإنجليزي
--  كبار السن يشاركون بكثافة في الانتخابات الرئاسية بالفيوم (صور)
--  حجازي أساسي.. تشكيل اتحاد جدة لمواجهة أوكلاند سيتي في كأس العالم للأندية
--  محافظة القليوبية تستجيب لمواطن من ذوي الهمم يرغب في المشاركة بالانتخابات (صور)
--  الشيبي يحصد جائزة لاعب الشهر في بيراميدز .. صور
+-  Fiscalía amplía imputación contra Dany Durand
+-  Trouble Staying Dry This January? HOP WTR’s Hired A Hypnotist To Help Consumers Stay Dry
+-  GEEKOM Achieves Remarkable Sales Surge in Third Quarter of 2023
+-  김건희 명품백 함정취재, 계속되는 언론윤리 논란
+-  USA: prokuratorzy chcą 11 lat więzienia dla twórcy spółki Nikola
+-  MFiPR: Polska otrzyma ok. 320 mln franków z Funduszy Szwajcarskich
+-  TBMM'den flaş bütçe kararı!
+-  Far-Right Polish Politician Extinguishes Hanukkah Candles in Shocking Parliament Incident
+-  أوضاع القطاع الزراعي بين عبسي ووزير الزراعة
+-  Sofia di Svezia, abito rosso fuoco (riciclato) e scollatura a cuore: pagelle
