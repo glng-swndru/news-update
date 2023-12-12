@@ -1,51 +1,11 @@
 # Latest News
--  רונה לי שמעון נגד ראש הממשלה נתניהו: "איש מפחיד ומסוכן!"
--  Kina nastavlja dominirati na tržištu industrijskih robota
--  HOSE: Số liệu quản lý sở hữu của nhà đầu tư nước ngoài 13/12/2023
--  Al menos 13 vehículos quemados y un lesionado deja incendio en La Pintana
--  Говори Москва: Наблюдаваме внимателно тази среща
--  Interdicție pentru Mănăstirea Florești din Vaslui. Borșul de pește oferit pomană era infestat cu trei bacterii periculoase
--  "مالوش مكان عندنا".. نجم الزمالك يصدم رمضان صبحي ويطلب ضم هذا اللاعب
--  Walmart worker goes on storewide rampage after they fired her before Christmas
--  मुद्दा मिलाइदिने भनी ९९ लाख बढी ठगी गर्ने पक्राउ
--  एनसेललाई राष्ट्रियकरण गर्नुपर्ने
--  Snježana Schilinger donirala je haljine na ekskluzivnoj večeri
--  शहिद हेमन्त प्रधान स्मृति भलिबल हुने
--  Diputados del partido Colorado y Nacional de la Comisión de Frontera elogian la actuación de la Aduana
--  Graham Dywer appeal against conviction for murder of Elaine O'Hara to be heard in January
--  Saksalaissijoittajien tunnelmat kohenivat jälleen
--  Enghouse erweitert Videokonferenzlösungen
--  Cheating scumbag boyfriend has also lost all his WhatsApps
--  Fugitive fled NC crime scene in a Ferrari, but ended up in a cold river
--  Heritage of India: India’s 16 Most Valuable Intangible Cultural Heritage Recognized by UNESCO
--  Seimas nepritarė siūlymui rengti patariamąjį referendumą dėl plynų miškų kirtimų
--  Ελένη Χατζίδου για Καινούργιου – Μπάρκα: Το θεώρησα έξυπνο με την κούπα αλλά δεν ήξερα τη φιλία τους
--  Ministerio de Trabajo desplegará 700 inspectores para garantizar entrega de aguinaldos
--  New approach overcomes long-standing limitations in optics
--  АСОМ: Ја поздравуваме одлуката на претседателот Пендаровски дека нема да потпише неевропски Закон за игри на среќа
--  তিন সাংবাদিকের বিরুদ্ধে ব্যবস্থা নিতে আবেদনের প্রতিবাদে মানববন্ধন
--  法與情丨關智斌燒親後遺症好驚打火機 鄭融拍劇消暑妙法全靠喱士背心
--  Meram'da hedef: Daima en iyi hizmet
--  Aksaray'da 15 yıl hapsi olan hırsızlık şüphelisi JASAT ekiplerince yakalandı
--  এখন তিনি ৫০০ কোটি টাকার মালিক
--  Will Levis: I trusted what I was seeing and threw to the open guy
--  Wizkid Pays Surprise Visit To MC Oluomo [Video]
--  Cuatro años de cárcel para el patrón del cayuco que arribó a 83 migrantes y un fallecido hasta Canarias
--  Огледална дата 12.12: Ето как да сбъднете желанията си днес
--  Who are the Sidemen? Here are the Top 3 Most Searched on YouTube for 2023
--  Fotos: ellas son las parejas de los humoristas de 'La vuelta al mundo en 80 risas'
--  بالفيديو.. تساقط أمطار غزيرة على شاطئ مستورة شمال جدة
--  تطبيق أفضل المواصفات والمعايير العالمية لصيانة الكعبة المشرفة
--  Calendriers de Noël de La Poste et des pompiers : où va l'argent ?
--  Cô gái sốc khi phát hiện ung thư ở tuổi 24: Tất cả bắt đầu từ một dấu hiệu ở mắt
--  10 علامات مبكرة للإصابة بالأنفلونزا.. كم من الوقت يستغرق ظهور المرض؟
--  Pozivamo sve heroje održive energije: Europski tjedan održive energije vraća se 2024.
--  Kometa Halleya wraca! Od soboty zbliża się do Ziemi
--  এবার বক্সিং ডে টেস্টে ওয়ার্নকে স্মরণ করা হবে যেভাবে
--  Gimik Gemoy Diduga Kerek Popularitas Prabowo-Gibran Jelang Debat Pilpres, Membedah Kata Gimik
--  Il-Qorti tiddikjara li l-ġurnalisti għandhom jingħataw aċċess biex jidħlu jiffilmjaw u jagħmlu intervisti fil-ħabs
--  Xu hướng de-influencing lên ngôi: Khi người tiêu dùng chán các quảng cáo "nói quá" về sản phẩm từ người nổi tiếng
--  "Maçlara çıkmayacağız" Süper Lig hakemlerinden rest!
--  İstanbul'dan getirilen 13 kilo uyuşturucu Sakarya'da ele geçirildi
--  Dondurulmuş ton balığı kutularında ele geçirildi! Tam 11 ton
--  Penelope Cruz'dan Gazze çağrısı
+-  Си Ханойга учди — Ветнамдаги таъсир доираси учун курашда АҚШ билан рақобат давом этади.
+-  «МЮ» ва «ПСЖ» гуруҳда қолиб кетадими? ЕЧЛда сўнгги тур саволлари.
+-  Ўзбекистон ёшлари Дубайдаги COP-28'да.
+-  Na sjeveru Europe postoji možda i najstrašnije groblje ikad: Na njemu nisu pronađeni kosturi
+-  ‘2023 해외자원개발 심포지엄’ 개최
+-  Pronostic Dortmund – PSG : Côtes, analyse... Notre prono pour le match du 13 décembre
+-  حزمة حوافز استثمارية.. وزير السياحة يلتقي أعضاء هيئة تدريس ودارسين بكلية الدفاع الوطني الإماراتية
+-  بالصور- رئيس جامعة الإسكندرية يقود مسيرة لحث الطلاب على المشاركة في الانتخابات
+-  دون تلامس.. نجاح أول رحلة طيران متكاملة باستخدام "الجواز الرقمي" بين إنجلترا وإيطاليا -تفاصيل
+-  "الوطنية للانتخابات": لدينا أدوات لرصد نسب المشاركة في الانتخابات الرئاسية ومنها دفاتر بطاقات الاقتراع
