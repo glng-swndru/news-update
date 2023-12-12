@@ -1,11 +1,51 @@
 # Latest News
--  Hizbullah, İsrail'e ait askeri noktaya saldırı düzenledi
--  Osmaniye'de KOM'dan operasyon: 13 gözaltı
--  Ekonomi devinden ABD ve Çin'e kötü haber! 2024 yılını işaret ettiler
--  İstanbul Havalimanı bir ilke daha imza attı: ACI EUROPE Karbon Akreditasyonu'nda 4. seviyeye ulaştı
--  Messi ve Ronaldo karşı karşıya gelecek!
--  Pakistan'da kışlaya bombalı saldırı! Çok sayıda ölü var
--  Sahte plakalı minibüsle hırsızlık yapan 2 şüpheli gözaltına alındı
--  Magnaður Ronaldo skoraði sitt 50 mark á árinu – Eitt af þessum 50 kom í Laugardalnum
--  Жену врага Кадырова не стали выпускать досрочно
--  В Азербайджане вводится уголовная ответственность за сепаратистскую атрибутику
+-  Torino, Radonjic a un bivio: o cambia, o parte
+-  IIM-Vizag Partners With SIDBI To Offer Courses on Entrepreneurship
+-  ‘영입 원해? 이적료 1,236억 내놔’…토트넘 수비 보강 계획 제동
+-  Туляк выиграл Всероссийские соревнования по шашкам
+-  Iranskim prosvjednicama u Strasbourgu uručena nagrada Saharov
+-  Brojne tvrtke u ovom sektoru u Njemačkoj naveliko gube kupce: “Na vidiku nema poboljšanja”
+-  USA zaniepokojone. Rosja pracuje nad nowym porozumieniem z Iranem
+-  ‘Adakah kami akan bermain atas sawah padi di stadium lain’
+-  Krzysztof Gawkowski oficjalnie kandydatem na ministra cyfryzacji
+-  에코프로 사회공헌 실천 인정
+-  이노스페이스 내년 코스닥 상장 도전
+-  수공, 보츠와나 물관리사업 단독 참여
+-  KBIOHealth 창립기념일 기념식 개최
+-  LG엔솔 `사랑의 김장 나눔'
+-  NH농협은행 충북본부 우수직원 시상
+-  농부 21人 진솔한 이야기 책에 담다
+-  농협은행 충북본부 의료취약계층 진료비 지원
+-  유류세 인하 내년 2월까지 연장 … 국제 유가 변동성 대응
+-  HK이노엔 `케이캡' 안전성 알렸다
+-  16년째 이어온 과학인재 양성
+-  무심천·미호강 친수공간 탈바꿈
+-  자가 증폭 mRNA 백신기술 개발 박차
+-  올바른 공공언어 쓰기 충북교육청 직원 특강
+-  꿀잼청주 배경음악 공모 시상·우수 콘텐츠 에디터 발대
+-  최정훈 충북도의원 `우수의정대상'
+-  학교용지부담금 123억 미전출 지적
+-  구인·구직 일자리 정보 `한눈에'
+-  인성교육 사례나눔회 개최
+-  북이면 새마을부녀회 식료품 기탁
+-  충북청주수퍼마켓협동조합 라면 기탁
+-  “취약계층 학생 교육 격차 해소에 도움되길”
+-  가덕면 관음사 성금 기탁
+-  아침 간편식 개발 메뉴 시식회
+-  미원면 바르게살기위 이불 기탁
+-  청주교육지원청 `학교지원 하나Day' 성료
+-  이혁규 청주교대 총장 상호존중 학교 만들기 캠페인 동참
+-  충북도교육청 학생 사진전
+-  한국자유총연맹 충북지부 안보견학
+-  ㈜블루마운트 테크놀러지 적십자 희망성금
+-  권영주 회장 충북 아너소사이어티 됐다
+-  세명대 사랑의 연탄나눔 봉사활동
+-  충북시민재단 겨울의류 판매 행사
+-  널뛰는 아파트값 … 짙어지는 관망세
+-  청주 하천체육공원 확대
+-  충북도의회 정례회 마무리 `유종의 미'
+-  “김기현 국힘 대표 사퇴해야”
+-  “생계급여, 중위소득 35%로 상향”
+-  총선 예비후보자 등록 첫날 세종 국힘 3·민주 4명 등록
+-  여야 2+2 협의체 회의 개최
+-  연말 新 풍속도 ‘착한 송년회’ 대세
