@@ -1,11 +1,51 @@
 # Latest News
--  Eski bakan Erkan Mumcu Ankara’dan sonra İstanbul’da da otel yaptırıyor
--  Сериозни сътресения и жестоки наказания в ЦСКА 1948!
--  2022 markiert Trendwende bei den Kreisfinanzen
--  Eschauer Rat entscheidet: Valentin Pfeifers Name darf bleiben
--  Besinnliche musikalische Auszeit
--  Ritiro Chiellini, parla Bonucci: "È la storia del calcio italiano"
--  Man Utd vs Bayern Munich LIVE: Latest Champions League updates as Red Devils must beat Germans for any hope of last-16
--  ఆర్టీసీ ఉద్యోగుల సమస్యలను పరిష్కరించండి
--  لبلبة مهددة بالسجن
--  Epic gewinnt gegen Google: Play-Store-Vorherrschaft auf Android ist illegales Monopol
+-  European football clubs risk sanction breaches in Russian transfer deals; investigation
+-  Cibona nastavila s odličnim igrama, sada je uvjerljivo ostvarila plasman u četvrtfinale Kupa
+-  Ricardo Arjona le dice adiós a los escenarios. Su salud está en juego
+-  Borsa Günü Yatay Seyirle Tamamladı
+-  Detenida en Málaga la mujer que denunció al hijo de Conde-Pumpido por un intento de homicidio en Brasil
+-  Los sindicatos acusan a Kristau Eskola de tener «una táctica de dilación del conflicto»
+-  Lok Sabha Approves Rs 1.29 Lakh Cr Supplementary Grants
+-  Ola Electric Prepares For IPO, Aims For $ 8 Bn Valuation
+-  Tata Communications Secures Jaguar Land Rover Digital Transformation Deal
+-  Major Commitments On Food, Agriculture, And Water Day At COP28 Drive Climate Action For 1.5°C Goal
+-  COP28 Makes History With Inaugural Youth Stocktake In Collaboration With YOUNGO, Aiming To Forge Global Legacy In Climate Action
+-  COP28 And International Energy Agency Reaffirm 1.5°C- Aligned Energy Transition
+-  CKS, Esri India Sign MoU To Launch Programme In Geospatial Technology Skilling
+-  Industry Leaders Voice Support For Equitable AI, Urge For Global Partnerships
+-  FBI Chief Seeks NIA Partnership, Says Bureau Aggressively Probing Indian Consulate Attack In San Francisco
+-  Adani Ports To Raise Rs 5,000 Cr Via Non-convertible Debentures
+-  Budaun News: दौड़, लंबीकूद और कबड्डी के ट्रायल 19 से
+-  Budaun News: दौड़ में मोनू और मनीषा ने सबको पीछे छोड़ा
+-  Budaun News: योगासन चार्ट प्रतियोगिता में दीपशिखा प्रथम
+-  Budaun News: अंग्रेजी साहित्यकारों के बारे में दी जानकारी
+-  Budaun News: सीएफओ रामराज यादव उन्नाव ट्रेनिंग सेंटर से संबद्ध
+-  बार एसोसिएशन चुनाव : पुस्तकालय पद का एक नामांकन निरस्त
+-  Budaun News: रोड रोलर की चपेट में आकर बाइक सवार दो लोग घायल
+-  Budaun News: तीन सदस्यीय कमेटी करेगी महिला के शव से आंखें निकालने की जांच
+-  Budaun News: दूसरे दिन भी नहीं पकड़ा जा सका पत्नी का हत्यारोपी
+-  Budaun News: बरेली के तिलक इंटर कॉलेज के दो शिक्षकों के खिलाफ लूट की रिपोर्ट
+-  Budaun News: पेट्रोल पंप का लाइसेंस देने के नाम 19.85 लाख रुपये की ठगी
+-  Agra News: चार सौ मीट्रिक टन यूरिया की और हुई आपूर्ति
+-  Sitapur News: ट्राॅली से टकराई कार, छह घायल
+-  Pilibhit News: 25 लाख का मिनी स्टेडियम बना कूड़ाघर
+-  Budaun News: दहेज की खातिर रिश्ता तोड़ा, चार पर रिपोर्ट
+-  Sitapur News: नालों पर किए अतिक्रमण पर चला बुलडोजर
+-  Pilibhit News: बेसिक स्कूलों के स्टोर व अलमारियों की शोभा बढ़ा रहे फायर सिलिंडर
+-  Budaun News: तीन मस्जिदों के लाउडस्पीकर जब्त, मुअज्जिनों पर रिपोर्ट
+-  Pilibhit News: बरखेड़ा से दिल्ली तक बस का संचालन शुरू, मिली राहत
+-  Una News: ललड़ी और नंगल खुर्द में जांचा 140 लोगों का स्वास्थ्य
+-  Una News: घर के बाहर खड़ी स्कूटी चोरी
+-  Una News: दुकान पर सामान लेने गई नाबालिग लड़की लापता
+-  Mahendragarh-Narnaul News: बिना ऑपरेटर के सरकारी कार्यालयों में बाधित रहे कार्य
+-  Mahendragarh-Narnaul News: धनौंदा जलघर में डूबने से 78 वर्षीय बुजुर्ग की मौत
+-  Mahendragarh-Narnaul News: नारनौल डिपो की 10 बसें रेवाड़ी को देने पर चढ़ा पारा
+-  Mahendragarh-Narnaul News: डीजे बंद करवाने पहुंची पुलिस के साथ मारपीट
+-  Banda News: ट्रक की टक्कर से कोचिंग संचालक की मौत
+-  Banda News: पिकअप की टक्कर से एक की मौत, दूसरा घायल
+-  Banda News: 80 फीसदी बसों में ऑलवेदर बल्व व रिफ्लेक्टिव टेप
+-  इंतजार खत्म: बरेली में चौपुला पुल को अटल सेतु से जोड़ने का काम आज से शुरू, साढ़े तीन महीने बाधित रहेगा यातायात
+-  Bareilly: लखनऊ से मुरादाबाद चल रही जांच, फिर भी नहीं लगा जीआरपी सिपाही की पिस्टल का सुराग
+-  Jind News: टेंडर पूरा होने के कारण दो माह से बंद पड़ी एटीवी रेलवे मशीन
+-  नौ दिनों 90 हलकों में पहुंचेंगी आप की बदलाव यात्रा : आयुष खटकड़
+-  Jind News: भारत सिनेमा के पास गोलियां मारकर हत्या करने के पांच दोषियों को उम्रकैद
