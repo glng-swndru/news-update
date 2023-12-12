@@ -1,11 +1,51 @@
 # Latest News
--  Netflix releases viewing data for the first time. Axed Aussie show was a hit
--  Pressure increases on Israeli government for hostages’ release
--  [오늘날씨] 아침기온 '뚝'… 짙은 안개 주의
--  윤대통령, 뤼터 총리와 정상회담… 반도체 협력 논의
--  Un fármaco puntero para el virus sincitial protagoniza los Premios PAM 2023
--  3 Mid-Cap Stocks to Buy for Their Big-Time Dividends
--  "Singularities don't exist," claims black hole pioneer Roy Kerr
--  "Singularities don't exist," claims black hole pioneer Roy Kerr
--  Van 3,444 querellas por narcomenudeo
--  Recupera Amanda Bynes la confianza tras cirugía estética
+-  To Revive Portland, Officials Seek to Ban Public Drug Use
+-  عاجل.. توكلنا: 4 مميزات لخدمة استعراض بطاقة المتقاعد لعملاء التأمينات
+-  Ondo State: Akeredolu to commence another medical leave abroad, Aiyedatiwa to become acting governor
+-  Grbin: "Smjena ministra i savjetnika ne znači ništa, predložit ćemo raspuštanje Sabora"
+-  Norveška nadigrala Holandiju za polufinale
+-  楽天の滝中投手が滋賀県高島市で野球教室 児童感激「偉大な先輩から学べうれしい」
+-  PlayStation Plus Premium e Extra com desconto de 30%
+-  La Selección Colombia tuvo a Messi como invitado de lujo
+-  StatCan says Mortality Totals Don’t Include MAID Deaths Because WHO Hasn’t Classified the Procedure
+-  Европарламентът отдаде почит на Джина Махса Амини и протестиращите жени в Иран
+-  Dudas en tiempos de escasez hídrica: ¿Qué pasará con el agua en la nueva propuesta constitucional?
+-  ¿Qué pasa con Luis Caputo? Se demoran los anuncios y crece la expectativa
+-  Ovogodišnja božićna akcija šibenskih Agenata dobrote mogla bi biti i posljednja: ‘Jednostavno, nema za sve‘
+-  SLC Major 50-over tournament commences today with 10 matches
+-  House of Janaan celebrates grand opening, unveiling fusion of tradition and modernity
+-  Zimbabweans here for six white ball matches
+-  Signature honours outstanding dealers at ‘Signature Dealer Convention 2023’
+-  Prima Sunrise continues to champion golf in Sri Lanka
+-  FSL dream to put up fully-fledged stadium with FIFA support
+-  Harin revokes appointment of interim committee to SLC
+-  Is the appointment of Jayasuriya and Tharanga beginning of a new partnership?
+-  Manchester United – FC Bayern München im TV und Livestream: Hier siehst du das Spiel live
+-  Fiese Szene von United-Spieler gegen Bayerns Coman – Kane eilt sofort zur Hilfe
+-  早春の風物詩・滋賀の「長浜盆梅展」 樹齢250年の古木が和室に 90鉢を展示へ
+-  Orleans e Bragança critica atuação de Lula na crise de Essequibo
+-  Amerikanci zbog Rusije uveli sankcije stotinama ljudi i kompanija iz Kine, Turske i UAE
+-  Carol McGiffin SLAMS Loose Women after dramatic exit saying ‘it was too woke and I wasn’t welcomed’
+-  OAU Final Year Student Dies In Auto Accident
+-  أوامر ملكية جديدة عن الملك سلمان وولي العهد
+-  강민경, 핫하다…'직각 어깨+각선미' 드러낸 연말 룩 [MD★스타]
+-  بايدن: إسرائيل بدأت تفقد الدعم الدولي ونتنياهو يحتاج لتغيير حكومته
+-  Waitlist for emergency shelter in Massachusetts exceeds 240 families
+-  Debata o ekonomiji: Opozicija smatra da je vlast kriva za inflaciju, vlast navodi da je ona uvezena
+-  Diputada critica a Morena por prolongar discusión de reducción de jornada laboral
+-  Estland: Zweiter Abschnitt der befestigten Grenze zu Russland fertig
+-  عضو المجلس السياسي خالد مكة: أشكر ثقة رئيس التيار الوطني الحّر
+-  Lakers Inaugural NBA In-Season Tournament Victory Posts Record-Setting Audience For Regular Season Game
+-  Water outage will affect 10 areas in Cape Town
+-  BE i kërkon Maqedonisë së Veriut të bëjë reforma të thella në sistemin gjyqësor
+-  Tullamarine boss fined $60,000 for bullying apprentices
+-  Jason Momoa sparks rumours of feud with Nigella Lawson after ‘rude’ TV moment
+-  'Fuego en el cielo', familia capta inquietante video de un supuesto ovni en llamas
+-  Đorđević smatra da je inflacija rezultat loše politike, Vasić – na sceni treba da bude srpski seljak
+-  Scots swingers club in desperate bid to stay open after year-long battle with council
+-  True Anomaly raises $100M to scale space security tech
+-  Демократы призвали республиканцев отложить каникулы ради помощи Украине
+-  京都市上京区のヴォーリズ洋館修理へ 京都府、文化財保護基金の交付先を決める
+-  POSVAĐAO SE SA ŽENOM PA SKOČIO? Novi detalji nesreće na Voždovcu
+-  Napoli, Osimhen nel 2023 protagonista in 31 gol. In Italia solo Lautaro Martinez ha fatto meglio
+-  УПЛ не домовилася про висунення Шевченка в УАФ
