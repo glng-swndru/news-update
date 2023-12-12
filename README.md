@@ -1,51 +1,51 @@
 # Latest News
--  Plekjevrij.nu helpt klant en ondernemer in IJsselstein
--  Nieuw Deli Fresh biedt meer dan kipproducten in IJsselstein
--  Sabotage suspected as more power cuts as north’s airport
--  Asylum seeker dies on board UK barge housing migrants
--  Retai skelbiami duomenys. Atskleisti Ukrainos nuostoliai
--  Pats metas susizgribti dėl bekontakčių mokėjimų: 5 patarimai, kad būtų ne tik patogu, bet ir saugu
--  Prietaisas, kuris padės sumažinti sąskaitas už šildymą: svarbu tinkamai parinkti jo įrengimo vietą
--  [ŽT] Vaisiai, galintys sukelti vėžį ir nevaisingumą - medikų įspėjimas
--  Kalėdiniai apsipirkimai: apklausa liudija lietuvių dosnumą ir gebėjimą taupyti
--  Artėja prie 1 milijono! Legendinis „Bayraktar TB2“ pasiekė naują rekordą (Video)
--  «رأس الخيمة العقارية» توسع شراكتها مع فنادق «إنتركونتيننتال»
--  Tulipa é o escolhido para suceder a Rui Ferreira no comando do Torreense
--  "Come attrae signore deluse dal marito": Vittorio Sgarbi umilia Giuseppe Conte
--  Tapetes são coisa que não falta a esta loja. Saiba onde fica
--  Вступил в силу оправдательный приговор адвокату, обвиняемому по делу о хищении
--  Госдеп: санкции США направлены на пресечение якобы сотрудничества РФ и КНДР
--  Manchester United katastrofin partaalla - edes voitto huippupelistä ei sitä välttämättä pelasta
--  [취재수첩]출근 단상
--  [사설]진주시 뒤늦은 과태료 고지 시민 이익 침해 우려
--  [사설]외국인 노동자 지역사회 정착 위한 정책 필요
--  [서동진의 한뼘] 버려짐?
--  [아침을 열며]폐지 줍는 노인
--  Школы Ульяновска могут отменить занятия для младших классов из-за мороза
--  "Da chi verrà invasa Roma": Baba Vanga, la terrificante profezia sul prossimo anno
--  GNR lança operação para prevenir descargas ilegais em recursos hídricos
--  [겐트대 글로벌캠퍼스, IGC 청소년 멘토링 업무 협약 체결
--  [세계 청년들, COP28 폐막 앞두고 '공동 행동' 촉구 성명 발표
--  [TUCKER CARLSON, 복귀하여 TUCKER CARLSON NETWORK라는 새로운 비디오 서비스 출시
--  [Trina Solar, COP28서 친환경 및 지속 가능 개발 촉구
--  Grupo VITA identificou 64 vítimas de violência sexual na Igreja
--  SPECIJAL ZA IZBORE 2023 – Najveće kvote na sve kandidate i ubedljivo najveća ponuda igara!
--  البرازيل.. اختراق حساب السيدة الأولى على «إكس» والسلطات تفتح تحقيقاً
--  Lanzan una wallet para trading de derivados de bitcoin en Lightning
--  विकसित भारत संकल्प यात्रा 14 दिसंबर से शुरू, शहर में कुल 14 कैम्पों का होगा आयोजन
--  Под Курском на заснеженной объездной трассе легковушка повисла на отбойнике
--  Dime que noooo: Ricardo Arjona anuncia su retiro de los escenarios por una extraña enfermedad
--  Whistleblower testifies about 'gross mismanagement' at federal green fund
--  Year Ender 2023: Unforgettable moments captured through photos
--  برنامج تدريبي جديد لتطوير المواهب المحلية في التنس
--  Juventus-icoon Giorgio Chiellini (39) beëindigt voetballoopbaan: 'Een intense reis'
--  Prepare a carteira! MEO, NOS e Vodafone vão subir os preços…
--  IZ KOLA MU PUCAO U GLAVU, IMA TEŠKE POVREDE! Detalji pucnjave u Šapcu, žrtvu hitno voze za Beograd!
--  "Dê troco a quem mais precisa". Já pode ajudar os outros através de compras na farmácia
--  Onde está Navalny? Apoiantes só sabem que estado de saúde é "grave"
--  ”Mer behövs mot det ekonomiska gapet”
--  These Are The Best Cars For Hot Boxing When The Weed Bomb Hits
--  Valtiovalta ei saa hidastaa merenkulun vihreää siirtymää
--  Gigantyczny skandal w Turcji. Erdogan wkracza do akcji [WIDEO]
--  Oglasio se Car: Korisnik mreže za upoznavanje mu ukrao identitet, Filipov komentar nasmejao sve do suza!
--  Внешний госдолг Грузии в ноябре вырос более чем на $200 млн
+-  윤대통령, 네덜란드 '공식환영식'… 전쟁기념비 헌화도
+-  윤대통령, 네덜란드 국왕과 ASML 방문… '클린룸' 첫 공개
+-  Bajan 78% bloqueos a vías del ferrocarril
+-  Habrá bacheo en 4 colonias este martes
+-  A golpes le quitan la vida en Rinconada Oriente
+-  Video: Discrimina a mexicana por hablar en español en Disneylandia
+-  Murió la persona más longeva de Japón ¡a los 116 años!
+-  "On a passé le milliard de vues" : les vidéos de cette cascadeuse française impressionnent
+-  Jurista denuncia escándalo en la Federación Nacional de Peloteros Profesionales
+-  [지역에서 본 세상]진주시보건소 10년도 안돼 옮기는 까닭
+-  [기고]'컴 온 컴 온 마산 스트리트여'노랫말에 관한 제언
+-  Tappara näkyy nyt isosti Tampereen katukuvassa - katso kuvat
+-  Post soll Anschlusslösung für fast 4000 Entlassene anbieten
+-  Renato Cariani diz 'não ter noção' das razões que o tornaram alvo de operação da PF
+-  Nollywood Actress Sophie Rammal Responds to Viral Throwback Pictures with WizKid
+-  MICM revela decomiso 32.6 millones de unidades de mercancías ilícitas en 2023
+-  Europa aprueba la inmunoterapia de Pfizer para el mieloma múltiple
+-  강인경, 파격 비키니로 드러낸 청순 섹시미
+-  Grzegorz Braun wykluczony z obrad Sejmu. Szymon Hołownia zapowiada wniosek do prokuratury
+-  Les Confluences de la Pensée Humaine: Philosopher, Croire, Comprendre
+-  Гражданин Грузии использовал онлайн-переводчик при ограблении в Германии
+-  Legenda italijanskog fudbala i Juventusa nakon 24 godine karijere odlazi u penziju
+-  The Best 2023 : Yassine Bounou parmi les trois finalistes pour le prix du meilleur gardien de but
+-  Skausmus jaučiantis Grigonis gali praleisti Eurolygos rungtynes
+-  Kargo İade Masrafları Tüketiciye Mi Ait? Ticaret Bakanlığı Açıkladı!
+-  Nnadi Nwanneka Sets the Record Straight on Francis Van-lare Allegations
+-  “불공정거래 재범률 높아…신상공개·거래제한해야”
+-  LES ÉCLAIREURS - Loi immigration: quels scénarios possibles?
+-  La Justicia francesa tumba el veto a los aficionados del Sevilla y les permite acceder al estadio
+-  "Bridgerton" donne rendez-vous au printemps pour une saison 3 qui fera durer le plaisir sur Netflix
+-  The Day Before’s abrupt closure: Financial woes and refund promises
+-  Sanremo Giovani, Fellow: "Sarò l'Alieno che vi spiega come affrontare la realtà"
+-  בכר: "אארח נגד מנצ'סטר סיטי ילד ששוחרר מהשבי, אבל אביו לא"
+-  נתניהו ממשיך לפמפם את קמפיין אוסלו, גם במחיר עימות עם ארה"ב
+-  Avatar Grenzen van Pandora beoordeling: Laptop en desktop benchmarks
+-  GTA 6: Hacker will auch nach Gefängnis weiter kriminell bleiben
+-  Kontroversen um Investoren-Abstimmung bei DFL: Welche Rolle spielte Hannover 96?
+-  Herplant van honderden bomen langs de Parklaan
+-  توخيل يرى أراوخو قائد دفاع بايرن ميونخ
+-  মানিকগঞ্জ জেলা ছাত্রদলের সভাপতি-সম্পাদক গ্রেপ্তার
+-  Chine, quelles opportunités d'investissement ? - 12/12
+-  Bank of America Unusual Options Activity
+-  Sanremo Giovani, Tancredi tra i 12 finalisti: "Una ballad struggente che parla alla mia generazione"
+-  Congress SC Cell President Arrested for Alleged Fake Photo of Ayodhya Temple Priest
+-  Soccerladuma | Maela’s 'Honest' Assessment Of Mofokeng
+-  জাতিসংঘের তত্ত্বাবধানে নির্বাচনের দাবি এবি পার্টির
+-  قائد الأركان العامة للجيوش يؤدي زيارة للسنغال
+-  CESID: Šta građani mogu da urade ukoliko je ugrožena tajnost glasa na glasačkom mestu
+-  İletişim Başkanı Fahrettin Altun: Yunanistan ile ilişkilerimizde yeni bir sayfa açtığımıza inanıyorum
+-  Džejla Ramović i Seka Aleksić zapjevale na rođendanu srbijanske influenserice
