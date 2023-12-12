@@ -1,11 +1,51 @@
 # Latest News
--  Horoscope Today आजचे राशीभविष्य, मंगळवार 12 डिसेंबर 2023: जाणून घ्या तुमच्या राशीनुसार कसा असेल आजचा तुमचा दिवस
--  فيديو: رئيس ناد تركي يلكم حكم مباراة.. واتحاد الكرة يعلّق
--  أميركا: إسرائيل ليست مستثناة من سياستنا بشأن استخدام أسلحتنا
--  "성장+단단해져 올것" '동반입대' 지민X정국, 까까머리 하고 마지막 인사…BTS 전원 군백기 [MD이슈](종합)
--  신한카드, 대만에서 자사 앱으로 ‘라인페이 QR결제’시 캐시백 지급
--  술이 이렇게 무섭습니다…'알콜지옥' 첫 탈락자, 퇴소 후에도 술 마셨다 [종합]
--  경우의 수에 갇혀 기적을 바라는 맨유, 이겨도 챔스 탈락 가능성 ↑
--  Ajker Rashifal, 12 December 2023: স্বাস্থ্য থেকে পরিবার,চাকরি থেকে ব্যবসা,কেমন যাবে আপনার দিন? জানুন আজকের রাশিফল
--  Weston in tears over ugly netball dispute
--  CDC issues travel advisory for Rocky Mountain Spotted Fever
+-  광명시, 감염병 예방위한 찾아가는 손씻기 교육
+-  COSMOTE Smart Office Αpp: Υπηρεσίες τηλεφωνικού κέντρου στο κινητό για μικρομεσαίες επιχειρήσεις
+-  दूसरी जाति की लड़की से प्यार फिर शादी…दलित लड़के के बाप को मार डाला
+-  333 खिलाड़ी मैदान में, 77 स्लॉट खाली, आईपीएल 2024 ऑक्शन के लिए मंच सजकर तैयार
+-  Hải Phòng: Bộ hài cốt trong bể phốt ở Thủy Nguyên là của người phụ nữ giao gas mất tích 13 năm
+-  [글로벌] 우주정거장에서 사라진 토마토 8개월 만에 나타난 수수께끼
+-  One solution to an ageing population? AI workers
+-  One solution to an ageing population? AI workers
+-  महाकाल का आशीर्वाद है…मोहन यादव के घर जश्न का माहौल, परिवार में किसने क्या कहा?
+-  Here Are the Lyrics to Taylor Swift’s ‘Is It Over Now? (Taylor’s Version) (From the Vault)’
+-  काटिए धुर्बे हात्तीका दाह्रा
+-  सेताम्मे हिमाल किन कालो हुँदैछ ?
+-  ‘रुसी सेनामा हुनेको तथ्याङ्क सङ्कलन हुँदै छ’
+-  जाजरकोट भूकम्पः रुकुम पश्चिममा २५ हजार लाभग्राही यकिन
+-  Scary scenes as batter struck in head
+-  38세 맞나?…득점 감각 여전한 호날두, 올해 50호골 채워
+-  여자프로테니스 투어 '올해의 선수'에 세계 1위 시비옹테크
+-  안세영·서승재, 세계배드민턴연맹 '올해의 남녀 선수' 영예
+-  '7억달러' 오타니 연봉은 200만달러…6억8천만달러는 10년후부터
+-  ‘Mini-Disneyland’: Araneta Group reopens Fiesta Carnival in time for Christmas 2023
+-  Phát lộ nhiều sai phạm của Công ty Cổ phần đá Hoàng Mai (HMR) sau khi nổ mìn văng vào nhà dân
+-  وزير شئون المجالس النيابية: انتخابات الرئاسة أولى خطوات بناء الوطن.. والمشاركة فيها واجب وطني
+-  तेरे बाप ने क्यों नहीं दी सोने की चेन…दहेज के लिए महिला को पीट-पीटकर मार डाला
+-  Alleged shoplifter facing theft and firearms charges
+-  Timnas AMIN Harap Relawan Sportif dan Tertib Saat Nonton Debat Capres
+-  El hijo de Flavio Mendoza se lanzó como cantante con un clásico navideño
+-  When Sidharth Shukla shared how being away from his mother for Bigg Boss 'was the toughest part of the show'
+-  [경기도의정 모니터] 김동규 의원 '늘봄학교 예산 편성 등 졸속행정' 질타
+-  New charge filed against man accused of firing shotgun outside New York synagogue
+-  AMLO va contra venta de vapeadores: Esto sabemos de la propuesta presidencial
+-  전북교육청, 주요 학과 지원 가능 점수 발표
+-  Shiv Sena (UBT)'s Sanjay Raut booked for article against PM in party mouthpiece
+-  65 फिल्मों में किया काम, 1 हिट से रातों- रात बना स्टार, फिर हुआ दिवालिया..
+-  क्या आप भी सीधे नल से पी लेते हैं पानी? शख्स ने दिखाई 1 बून्द की असलियत
+-  Habrá un homenaje al andinista mendocino Nacho Lucero y la UNCuyo ofreció hacerlo en sus instalaciones
+-  [중앙기관, 기록관리 전반적 우수…특별행정기관, 국·공립대 간 격차 커
+-  [내년 장기요양보험료율 소득대비 0.92% 확정…내년 182원 상승, 세대당 월평균 1만6860원↑
+-  [소규모 건설 근로자 카드 대신 '앱'으로 출퇴근 기록한다
+-  [4년만에 만난 한중 국세청장, 진출기업 이중과세 상호합의 논의
+-  [‘LPGA신인왕’ 유해란, 후원사와 함께 서울재활병원에 3000만원 기부
+-  [[속보] 장제원 “총선 출마 하지 않겠다…尹정부 성공시켜달라”
+-  [여성 집 숨어있다 성폭행하려던 30대, 휠체어 타고 나와 “정말 죄송”
+-  [[김태열의 생생건강S펜] "스텐트 시술후, 재발방지 요법 '클로피도그렐'이 '아스피린'보다 우수 확인"
+-  [美 뉴욕연은 설문 “1년 뒤 물가 3.4%↑ 기대…2년여 만 최저”
+-  [유아인 마약 첫 재판 “심려 끼쳐 죄송”
+-  [“독도 홍보하게 돈 좀”…가짜 서경덕에 속지 마세요
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [전국 1위 보성산 키위 농협하나로마트 첫 납품
+-  ‘친윤’ 장제원 22대 총선 불출마...“나를 밟고 윤석열 정부 성공시켜달라”
+-  [이재명 “‘서울의 봄’ 저절로 오지 않아…역사 퇴행 막아낼 것”
