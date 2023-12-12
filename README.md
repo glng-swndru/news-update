@@ -1,51 +1,51 @@
 # Latest News
--  حدث فلكي نادر يحدث مرة في العمر.. ما قصة انفجار منكب الجوزاء؟
--  YOİKK, Cumhurbaşkanı Yardımcısı Yılmaz başkanlığında toplandı
--  "UEFA Başkanı aradı" TFF'den Halil Umut Meler açıklaması
--  Güney Çin Denizi'nde sular durulmuyor: Filipinler Çin büyükelçisi bakanlığa çağırıldı
--  Mahmud Abbas'ın Moskova ziyareti için yeni bir tarih belirlenecek
+-  FETÖ'cülere geçit yok: Üç terörist Yunanistan'a kaçarken yakalandı
 -  Baykar'ın İHA test ve geliştirme merkezleri yatırım alanları kapsamına alındı
--  FIFA Başkanı Infantino'dan Halil Umut Meler açıklaması
--  BCL, ΑΕΚ: Το μίνι ντοκιμαντέρ με πρωταγωνιστή τον Πλάθα σε βάζει στα... άδυτα της ομάδας (vid)
--  Prežije rodičovský dôchodok aj v ďalších rokoch? Je diskriminačný a treba s ním niečo robiť, tvrdí Tomáš!
--  Jedinečné riešenia pre váš domov či podnik: TOTO Vám pomôže vytvoriť priestor, ktorý bude odrážať vašu osobnosť a štýl
--  Kvetka Horváthová ukázala dcéru: Wau, doma má takúto veľkú a krásnu slečnu!
--  VIDEOROZHOVOR Topmodelka Kociánová: Na „babinu“ si vždy nájdem čas. Vráťme našim starým rodičom dôstojnosť!
--  Záhadná smrť fotografa celebrít: Odísť mal v spánku, bude smrť vyšetrovať polícia?
--  SIG Weekly Mainline Service Launched Linking Southeast Asia And Middle East
--  New Scheme On Anvil To Boost Electronics Component Manufacturing: MeitY Secretary
--  Willow Wicker Skill Up-Gradation Centre Established In Kachan, J&K
--  DWU Urges Gujarat Govt To Resume ‘Ratnadeep Yojna’ Scheme For Diamond Artisans
--  Special Economic Zone Proposed In Bihar Ahead OF Global Investor Meet
--  Σκρέκας: Στις 15 Δεκεμβρίου το «καλάθι του 'Αη Βασίλη»
--  Ζ. Μπορέλ: Σκηνικό «Αποκάλυψης» στη Γάζα
--  노동계 옹호 민원 MBC 라디오 '행정지도', 잘못 사실 전한 TV조선 '문제없음'
--  방통위원장 후보 김홍일 권익위원장, 언론장악 어떻게 도왔나
--  "팩트체크 지원 중단 정치권 외압 의혹 퍼즐 조각 맞춰지고 있다"
--  ACRODEPRODU dedicarán premiación cronistas del año 2023 al periodista José Suriel
--  Büyükekşi'den EURO 2032 açıklaması: İptal söz konusu değil
--  17 bilişim ve telekomünikasyon firmasına rekabet ihlalinden para cezası istemi
--  Özgür Özel PKK'nın siyasi kolu DEM'den destek isteyecek
--  МВФ спрогнозировал срок окончания конфликта на Украине
--  Ranbir Kapoor Networth : कोट्यवधींचा मालक आहे आलियाचा नवरा; चित्रपटांव्यतिरिक्त रणबीरची कमाई काय?
--  '매호대전 다시 펼쳐진다' 마이애미, 내년 2월 사우디서 알 나스르와 맞대결
--  A-League pitch invader who threw bucket at goalkeeper appeals jail sentence
--  В Кремле заявили, что западная помощь не поможет Украине на поле боя
--  O ano da queda do Governo de maioria absoluta e da crise com eleições
--  Зеленский назвал численность украинских сухопутных войск
--  "صفقة" في فلسطين وأخرى في الجنوب.. هل يسلم الحزب سلاحه مقابل مزارع شبعا؟
--  Hoax call claiming bomb at Raj Bhavan sends Bengaluru cops into tizzy
--  How to Get Tretinoin .05Percent(Retin-A) Online for Glowing Skin [2024]
--  Global pressure mounts for Gaza ceasefire as Israel, US face growing isolation
--  立憲民主党 党の政治資金パーティー開催 当面見送り
--  Bakan Yerlikaya'dan hakem Meler'e ziyaret: Adalete güveniyoruz
--  증평군 관광기념품 공모전 '선애주' 대상
--  LO vill se sänkt ränta så snart det går
--  "별똥별 쇼 보자" 증평 좌구산천문대서 14~15일 유성우 행사
--  Ποινική δίωξη σε βάρος 23 προσώπων για το σιδηροδρομικό δυστύχημα στα Τέμπη
--  VIDEO Reacția virală a echipei din Liga 6 care a aflat că va juca în Cupa Franței cu PSG
--  Стопанин откри кучето си застреляно в Павел баня
--  Виплати та житло для українців у Ірландії: голова уряду розповів, що кардинально зміниться
--  Guerre en Ukraine: "Toute nouvelle aide américaine à Kiev sera un fiasco", estime le Kremlin
--  송인헌 괴산군수, '2023 올해의 지방자치 CEO' 선정
--  Петербургский фонд показал, как загорают нерпы Крошик и Шлиссик
+-  이혼·재혼 동시 발표…티아라 아름, ♥연인 '독전2' 각본가설→양육권 포기 시사까지 [MD이슈]
+-  [MD장충] '11승 최하위→올시즌 벌써 9승' 김상우 감독, "승점 관리는 사치...체력적으로 힘들지만 매경기 승리 목표"
+-  "오타니, 역사 쓰는 모습 지켜볼 수 있어 영광이었다" LAA의 감동 뭉클한 이별사
+-  '김민재 포함 뮌헨 수비진 폭격' 프랑크푸르트 공격진→분데스리가 주간 베스트11 선정
+-  How to Get Tretinoin .05 percent (Retin-A) Online for Glowing Skin [2024]
+-  전청조→허경영 이번엔 '사기 악인'이다…'악인취재기; 사기공화국' 15일 공개
+-  Angola "bate o pé" à OPEP e exige quota de produção acima da meta do OGE
+-  "Teniseri su mršaviji, to je Đokovićeva zasluga"
+-  "Predaju se... Pred slomom su"
+-  Srbija i Mađarska "odnele pobedu": Bugarska ipak ukida takse
+-  Anzeige – Materna 2027: Klarer Kurs auf eine Milliarde Euro Umsatz und Markführerschaft in KI / Unternehmensgruppe präsentiert neue Geschäftsausrichtung "GRIP²" für nachhaltiges Wachstum und Innovation bis 2027
+-  Google predstavlja GenAI rješenje Gemini
+-  Unilever weist "Greenwashing"-Vorwürfe zurück und wird CMA bei Untersuchung unterstützen
+-  Unilever weerlegt 'greenwashing' beschuldigingen, zal CMA helpen bij onderzoek
+-  Fleeing Israel too, Ukrainian Jews seek refuge in Hungary
+-  Le championnat de football turc suspendu après le lynchage d’un arbitre
+-  La Red Europea finaliza 2023 con la incorporación de tres nuevos socios
+-  La Junta reconoce a los profesionales del SAVA por su gran labor en atención
+-  El Gran Juego de la Oca lanza el reto ‘En busca de la lotería de Navidad’
+-  "القوات" لميقاتي: هل تدري ما أنت فاعله؟
+-  Iz mog ugla, Nikolina Kuveljić
+-  Ayaneo Retro Mini PC AM01 review: Punching above its weight
+-  Space News: Four IAF pilots selected as astronaut-designates for 2024 moon mission
+-  بطريقة مميزة.. مذيعة أخبار الـ mtv تكشف جنس مولودها الأول شاهدوا ردة فعلها (فيديو)
+-  IVG dans la Constitution : le projet de loi présenté en Conseil des ministres
+-  Puis-je ramasser du bois en forêt pour me chauffer ? Le 20H vous répond
+-  FUEVFVND: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  FUEVN100: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  FUEMAV30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  FUEKIV30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  FUEKIVFS: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  E1VFVN30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  أولوية "القوات" التمديد... حاصباني: نقوم بما نراه مناسباً!
+-  Vốn FDI của Trung Quốc vào Việt Nam vượt trội trong 5 năm qua
+-  FUEDCMID: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
+-  FUEVN100: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  E1VFVN30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  FUEVFVND: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  FUEMAV30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  FUEKIV30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  FUEKIVFS: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  FUEDCMID: Kết thúc giao dịch hoán đổi ngày 11/12/2023
+-  HNX: Ngày 18/12/2023, ngày giao dịch đầu tiên cổ phiếu đăng ký giao dịch của CTCP Thủy sản Bạc Liêu (BLF)
+-  HNX: Quyết định chấp thuận đăng ký giao dịch cổ phiếu của CTCP Thủy sản Bạc Liêu (BLF)
+-  VOC: Nghị quyết Đại hội đồng cổ đông bất thường năm 2023
+-  VTX: Thông qua hợp đồng khoản vay giữa Công ty và Công ty TNHH MTV Sotrans Logistics
+-  СБУ пришла с обысками в храм канонической УПЦ в Ровно
+-  Acidente entre ônibus e caminhão deixa feridos na PR-444, em Arapongas
