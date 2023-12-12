@@ -1,51 +1,51 @@
 # Latest News
--  Burgemeester Sjors Fröhlich in de klas in Hei- en Boeicop: “hij denkt eraan een jongerenraad te creëren"
--  송기섭 진천군수
--  최재형 보은군수
--  황규철 옥천군수
--  정영철 영동군수
--  송인헌 괴산군수
--  이재영 증평군수
--  조길형 충주시장
--  김문근 단양군수
--  이완섭 서산시장
--  박범인 금산군수
--  이용록 홍성군수
--  최재구 예산군수
--  박상돈 천안시장
--  박경귀 아산시장
--  Soccerladuma | ‘R142m Ngezana Is For Sale, But...'
--  [영상] 불출마 선언 장제원 의원에게 묻고 싶었던 질문은?
--  Israel sanoo silmukan Hamasin ympärillä kiristyneen – "Hamas on hajoamaisillaan"
--  제주올레, 21일 ‘소면 데이’ 팝업 레스토랑
--  Результативный нападающий пополнил клуб чемпионата Казахстана
--  Wirtschaft - Die deutsche Angst vor den Schulden
--  رونالدو يتألّق ويسجّل... ارتفاعٌ بمجموع أهداف "الدون" لعام 2023!
--  Wirtschaft fordert Koalition zu Einigung auf – Neue „Sondervermögen“-Idee von Habeck
--  העבורת בעולם, 12.12: ריאל מדריד הצטרפה למירוץ אחר סנטיאגו חימנס
--  Йеменские хуситы выпустили ракету по химическому танкеру под норвежским флагом
--  Wisata Canyoning, Olahraga yang Cocok di Musim Hujan
--  Mikko Rantanen antoi palaa Ismo Lehkoselle - ”Yhden suomalaisen NHL-pelaajan isä puhui paskaa minusta”
--  La Real, a por un liderato histórico
--  Piden 21 meses de cárcel para los activistas climáticos que arrojaron agua de remolacha al Congreso
--  FT: Η ΕΕ εξετάζει τρόπους να διαθέσει επείγουσα χρηματοδότηση στην Ουκρανία, εκτός του προϋπολογισμού
--  ¿Qué significa vestirse de rojo en Navidad y de blanco en Año Nuevo?
--  "동구 제2도약을 위해"...한현택 전 대전 동구청장 총선 출마
--  LE SSERAFIM’s Sakura says she gets “pretty serious” about ‘Animal Crossing’
--  Претпладне слаб локален дожд и магла, во текот на денот сончево со мала облачност
--  Skullgirls Mobile Version 6.1 Update With Marie’s Full Release, Economy Changes, Quality of Life Improvements, and More Is Out Now
--  Deputy welfare ministry sets up blood drive for festive season
--  Галант: Војната ќе заврши само кога Израел ќе ги постигне своите цели
--  Siete destinos para pasar la Navidad
--  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
--  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
--  박종훈 교육감, 구봉초에서 행복학교를 이야기하다
--  경남교육청, 일반고 교감, 부장교사 연수회 개최
--  „Meine Rücklagen betragen 5,76 Euro“ - Rentnerin (71) gerät nach erfolgreichem Berufsleben in Altersarmut
--  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
--  Siete destinos para pasar la Navidad
--  Siete destinos para pasar la Navidad
--  Бербок: Украинскиот конфликт не смее да „замрзне“
--  مرشح يسقط بسبب سوريا وباسيل
--  Turistas españoles podrán visitar China sin necesitar visado
--  Turistas españoles podrán visitar China sin necesitar visado
+-  “7년 1억5400만달러 전망” 오타니 눈 앞에서 놓친 토론토…FA 외야수 1위, 놓치지 않을거에요
+-  제빙기 스카츠맨, 국내 소셜 미디어 채널 오픈
+-  '충격! 벤제마, 호날두-메시 모욕했다'…왜? '드림팀'에 메날두 모두 제외, '메날두 대신 선택한 FW 2인은 도대체 누구이길래'
+-  류준열(Ryu Jun-yeol), 팬들을 향해 심쿵 손인사♥
+-  고민시·안은진·비비…★들도 '뉴진스 신드롬'에 풍덩 [MD이슈]
+-  NAV: Nghị quyết HĐQT về kết quả HĐKD 11 tháng năm 2023 và ước thực hiện KQHĐKD năm 2023
+-  BMF: Thông báo ngày đăng ký cuối cùng để tổ chức lấy ý kiến cổ đông bằng văn bản
+-  OCB: Thông báo thay đổi nhân sự
+-  TGG: CBTT Quyết định Sở GDHCM về việc hủy niêm yết cổ phiếu TGG
+-  BMF: Nghị quyết Hội đồng quản trị
+-  NO1: CBTT QĐ HĐQT về việc ban hành Quy chế CBTT
+-  TVS: CBTT Nghị quyết HĐQT thông qua triển khai phát hành ESOP
+-  DCM: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Văn Tiến Thanh
+-  Messerangriff am Stadtgarten in Dortmund: Polizei sieht offenbar keinen Zusammenhang zur Nordstadt-Serie
+-  Estimating Software Pricing Models Explained
+-  الحرب على غزة في يومها الـ67 وتداعياتها الميدانية والسياسية.. لحظة بلحظة
+-  우리말 예술축제 2023년 제5회 말모이축제 성료
+-  한국행정학회, ‘보건과 복지 거버넌스 생태계 구축 위한 융합행정’ 동계학술대회 개최
+-  캐나다 ONT 국제학교 청라캠퍼스, 입학 설명회 개최
+-  서강대학교 창업지원단 ‘2023 서강 리더스 투자 브릿지’ 성공적으로 운영
+-  요네즈 켄시 ‘지구본’×미야자키 하야오 ‘그대들은 어떻게 살 것인가’ 뮤직비디오 첫 공개
+-  (사)한국사과연합회, 나폴레옹 과자점과 신제품 디저트 4종 출시
+-  (주)퍼스트에프엔씨, 순직 소방공무원 유가족에 2억 7천만 원 상당의 의류 기부
+-  이노바일, 퍼퓸플레이와 업무협약 체결
+-  디지털마케팅연구회, '2024년 디지털마케팅 트렌드 분석' 세미나 개최
+-  한컴, 결산 배당 위한 '권리주주 확정' 공시
+-  제9회 재단법인 미래와소프트웨어와 함께하는 꿈찾기 캠프 개최
+-  피아이이, 46파이 원통형 배터리 비전 검사 솔루션 개발
+-  AI 규제법 발효 앞둔 EU…HBM 수요에 미칠 영향은? [소부장반차장]
+-  32-рата антарктическа експедиция днес ще получи националния трибагреник от президента
+-  Задава се нова криза за шофьори в градския транспорт във Варна
+-  Сутринта по Черноморието ще е мъгливо, леко затопляне през деня
+-  Završena bitka za starateljstvo Blek Čajne i Tajge
+-  SAD uvele sankcije bivšoj državnoj tužiteljki BiH i bivšem direktoru OSA
+-  Najgori Sparsi u istoriji VIDEO
+-  المصريون يصوتون في آخر أيام الانتخابات الرئاسية
+-  Madhya Pradesh News: मोहन यादव के सीएम बनने पर एमपी से यूपी तक जश्न, जानिए क्या बोले लोग
+-  شاهد تجدد الاشتباكات بجنين وتبادل كثيف لإطلاق النار
+-  İstanbul'da PKK/KCK terör örgütü operasyonunda 5 şüpheli yakalandı
+-  Konya'da 2 firari FETÖ hükümlüsü yakalandı
+-  Bu kadarı da olmaz dedirttti! Belediyenin kasasını ve parasını çaldılar!
+-  Yüksek lisans ve doktora yapan Gazzeli öğrencilerin öğrenim ücreti devlet tarafından karşılanacak
+-  Diyarbakır'da akraba kavgası! Amca ile yeğen birbirine silah çekti: 1 ölü
+-  Dış basında Halil Umut Meler´e yapılan saldırı manşetlere taşındı!
+-  Faruk Koca kimdir? İşte MKE Ankaragücü Başkanı Faruk Koca'nın kariyeriyle ilgili bilgiler
+-  Messi ja Ronaldo kohtaavat jälleen, kun Inter Miami matkaa alkuvuodesta Saudi-Arabiaan
+-  Bursă lunară de 3 000 de lei. Tinerii pot urma un stagiu plătit în domeniul protecției consumatorilor de servicii financiare și al pieței de capital
+-  '솔로지옥3' 오늘(12일) 공개…신선함+원초적인 느낌 살렸다
+-  '포수 최다 GG' 두산 양의지 "솔직히 올해 자신 없었다"[골든글러브 시상식]
+-  김민종, 차량 수리비 선처 미담…롤스로이스 사 ‘무상 수리’ 화답
