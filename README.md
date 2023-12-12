@@ -1,51 +1,11 @@
 # Latest News
--  MHP kampanya çalışmalarını "Birliğin Gücü" temasıyla başlattı
--  Pakistan'da güvenlik noktasına intihar saldırısı! 25 asker hayatını kaybetti
--  Bakan Uraloğlu: Limanlarımıza gelen kruvaziyer gemi ve yolcu sayıları rekor kırdı
--  Saadet Partili vekil Bitmez, Meclis kürsüsünde bayıldı
--  FETÖ'cü yurt dışına kaçarken yakalandı
--  İran Atom Enerjisi Kurumu Başkanı iddiaları doğruladı! ABD satın alıyor
--  서울의봄 12·12쿠데타 44년에 재조명된 원희룡의 전두환 세배
--  Dealing with Trolls: My Husband’s Other Women – Will He Leave Me for Them?
--  אביב גפן: "מרגיש יהודי וישראלי יותר מתמיד, זה זמן לאחדות"
--  NEPSE bounces back with a 36-point gain, overcoming Monday&#039;s 15-Point dip
--  PM Dahal pledges to implement master plan for Ramagrama Stupa Area Development
--  سعر الدولار في السوق السوداء يواصل الصعود.. فكم سجل بتعاملات اليوم؟
--  ممارسة ديمقراطية سليمة.. برلماني: المصريون قدموا للعالم تجربة رائعة في انتخابات الرئاسة
--  لليوم الثالث.. توافد الناخبين على لجان مطار القاهرة للإدلاء بأصواتهم في انتخابات الرئاسة
--  في اليوم الأخير للانتخابات الرئاسية.. زحام أمام اللجان بالأقصر
--  ‬زارها الرئيس.. طبل ومزمار أمام اللجنة الانتخابية بقرية الحصص في الدقهلية
--  "تنسيقية الأحزاب": إقبال كثيف في معظم المحافظات ولا مخالفات مؤثرة باليوم الثالث
--  بالصور- مسيرة حاشدة لتجار بورسعيد للمشاركة في الانتخابات الرئاسية
--  مسؤول الجالية المصرية بشركات "تأمين الأمان" بفرنسا: نعتزم الاستثمار في مصر
--  حملة المرشح الرئاسي حازم عمر تتابع لليوم الثالث عملية التصويت في الانتخابات الرئاسية
--  "رفاق جيرارد حاضرون".. رئيس الشركة المنظمة يكشف كواليس مشاركة الزمالك في دورة أبوظبي
--  بطريقة برايل.. شاهد كيف شارك منتخب المكفوفين فى التصويت بالانتخابات الرئاسية (صور)
--  6 فوائد لا تتوقعها لتناول الفول السوداني في الشتاء
--  متى يشارك فتوح وصبحي؟ مدرب الزمالك ينهي الجدل ويكشف ما فعله معهم
--  تفاصيل فسخ الزمالك التعاقد مع لاعبه المحترف بعد تدخل حسين لبيب
--  Molen De Valk in Montfoort kan binnenkort weer draaien
--  Zack Snyder’s Biggest Regret: Revealing the One Film That Haunts Him
--  Yeni katil "Frankeştayn" uyuşturucular! Eroin'den 300 kat güçlü, zehir ülke ülke yayılmaya başladı, yetkililer uyarıyor
--  Meat Market Size, Industry Share, Price Trends, Demand, Revenue, Report 2023-2028
--  राज्यसभा में आया चुनाव आयुक्तों की नियुक्ति का बिल, कांग्रेस का विरोध
--  Kovačević (Da se struka pita): Nismo dobili priliku za gostovanje na nacionalnoj frekvenciji
--  Animal: Ram Gopal Varma weighs in on Sandeep Reddy Vanga`s latest
--  Indian Film Festival Melbourne (IFFM) honours Shabana Azmi
--  After lagos incident, FAAN warns airport users against patronising touts, giving bribes
--  Домусчиев: Ако само взимаме заеми и вдигаме данъците вървим към гръцкия модел, който е лош пример
--  CBB Capacitors Market will Record Rapid Growth, Trend Analysis till 2028 with Russia-Ukraine War Impact
--  FC Nantes : les deux équipes connaissent leurs adversaires en Coupe de France
--  FUEFCV50: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEBFVND: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEBFVND: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  CMD: Nghị quyết Hội đồng quản trị
--  Giấy chứng nhận chào bán chứng quyền có bảo đảm Chứng quyền TCB/VIETCAP/M/Au/T/A5
--  FUESSV50: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEMAVND: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEIP100: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUESSV30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEFCV50: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  Giấy chứng nhận chào bán chứng quyền có bảo đảm Chứng quyền VHM/VIETCAP/M/Au/T/A3
--  FUESSVFL: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  Giấy chứng nhận chào bán chứng quyền có bảo đảm Chứng quyền VIB/VIETCAP/M/Au/T/A2
+-  Soccerladuma | Official: FIFA Release Statement After Referee Punched In Europe
+-  ব্যবসায়ীদের গুদামে টিআর-কাবিখার চাল, পাচ্ছেন না সুবিধাভোগীরা
+-  Тарнавський повідомив, на яких напрямках ворог почав масований наступ
+-  Regency Front invests 6 million euros in a new furniture production line
+-  „Dschungelcamp“ 2024: Erste Teilnehmer und ein Allstars-Format zum Jubiläum?
+-  Corona-Zahlen im Landkreis Ludwigslust-Parchim aktuell: Inzidenz für Landkreis Ludwigslust-Parchim, Mecklenburg-Vorpommern und Deutschland
+-  Спасатели предупредили об усилении ветра до 20 м/с на Ставрополье
+-  Corona-Zahlen im Landkreis Vorpommern-Greifswald aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Nordwestmecklenburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Segundo período de matrículas da rede estadual de SC vai até esta quarta-feira; veja como se inscrever
