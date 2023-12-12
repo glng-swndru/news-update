@@ -1,51 +1,51 @@
 # Latest News
--  КРАЈНОДЕСНИЧАРСКИ ПРАТЕНИК СО ПРОТИВПОЖАРЕН АПАРАТ ИЗГАСНА СВЕЌИ ЗА ЕВРЕЈСКИОТ ПРАЗНИК ХАНУКА ВО ПОЛСКИОТ ПАРЛАМЕНТ
--  Aerolínea low cost anunció una nueva ruta aérea a Chile desde Buenos Aires
--  Meyiwa trial: Magistrate dismisses 'outrageous' claims by alleged killer
--  Italy and Juve icon Chiellini calls time on playing career
--  From peace to traffic: 'Amapanyaza' officers get an upgrade
--  Palestinian economy severely impacted by Israel-Hamas war: World Bank
--  5 children killed in east DR Congo lightning strike
--  Multi-Party Charter participation doesn't take away independence - IFP
--  Libya sends illegal migrants home to Egypt and Nigeria
--  Curtains are back up for the theatrical Momo's Magical Adventures
--  Kwezanamuhla: Busengcupheni ubukhosi baKwaZulu, kukhunjulwa uZahara
--  The day that was: Mourning Zahara, massive court victory for refugees in SA
--  Rat u Ukrajini koštao Rusiju 315.000 poginulih i ranjenih vojnika
--  예원, 유니크한 청스커트
--  기안84, 노량 파이팅!
--  곽튜브 '수줍'
--  주현영, 노량 엄지척!
--  김재중, 눈부신 비주얼
--  Quem são os ministros de Javier Milei na Argentina
--  منتجات التبغ البديلة: Iqos Ilumaفي طليعة الابتكارات
--  الجيش الإسرائيلي يستعيد جثتي رهينتين ومقتل جنديين في العملية
--  Grealish e companhia treinam para concluir a 1ª fase com 100% de aproveitamento na Sérvia
--  La médica Norak Cruz Dunne será la próxima diputada regional del PSOE
--  "משרד הבריאות לא תפקד ב-7 באוקטובר": ועדה תחקור את פינוי הפצועים בטבח
--  Kadrovska rješenja: Imenovani v.d. direktori Željeznica, Pošte, Binsa ...
--  Netanyahu, ABD'nin 'Gazze Filistinlilere bırakılmalı' görüşüne meydan okudu
--  مقتل جنديين إسرائيليين خلال عملية استعادة جثتين من غزة
--  Pençe-Kilit Operasyonu bölgesinde bir asker şehit oldu
--  أبو حمزة للإسرائيليين: نتنياهو يريد البقاء في الحكم والثمن هو أبناؤكم
--  وصول جرحى ومرضى من غزة إلى تركيا
--  FPF ofrecerá “monto importante” a Juan Reynoso para acabar con su mandato en Perú
--  Popularna Drnišanka počastila se dalekim putovanjem: imala je vremena skočiti u more i pozirati
--  Arsenal maakt eerste doelpunt van de avond: bekijk hier alle goals in de Champions League van vanavond
--  Cuenta atrás para la San Silvestre más animal
--  B.C. woman sues after alleged clerical error delays cancer diagnosis
--  Redevelopment Kleine Berg kicked off
--  Stellar Show in the Sky: Costa Rica’s Prime Viewing of the Geminid Meteor Shower
--  Mindenki visszatérítést kap a katasztrófális The Day Before után
--  داير فيها صعصع.. بوليس مراكش يوقف شخصا حطم زجاج سيارات
--  Noviembre deja un aviso en el Seve Ballesteros
--  Jeremy Allen White was mortified after seeing Zac Efron’s body for ‘The Iron Claw’
--  «Σεισμός» με επιστροφή πρώην άσσου στον Ολυμπιακό!
--  9 DANA NI TRAGA NI GLASA OD IVICE (39) Porodica očajna, sumnja na najgore - uključena i žandarmerija
--  Mario Radić: ‘Ovo je nenormalno, Most surađuje s ljudima koji su ukrali milijardu kuna! Pogledajte samo ta imena...‘
--  Még az augusztusinál is szebb csillaghullásban lehet részed néhány napon belül: ekkor érdemes az eget kémlelni
--  【精神科医が教える】 バズりたがる人の落とし穴 - 精神科医Tomyが教える 30代を悩まず生きる言葉
--  Biden says Israel losing support around the world for Hamas war, suggests Netanyahu make change
--  Patricia Benavides: admiten acción de amparo presentada por la suspendida fiscal contra la JNJ
--  Motorist Ian Stalker who killed Connie McAvoy while test driving high-powered car in Thornliebank jailed
--  Božović: Mnogi bivši funkcioneri DPS-a će doći na red za procesuiranja
+-  Palestinians killed in West Bank’s Jenin, UN to vote on ceasefire
+-  הישראלים שמלמדים רכב לזהות נהג עייף גייסו 7.25 מיליון דולר
+-  Онколог перечислил неочевидные проявления опухоли мозга
+-  В Кировской области могут включить в календарь семь региональных праздников
+-  Netanyahu vows to block Palestinian Authority from Gaza rule
+-  Manchester United-Bayern, le formazioni ufficiali: ten Hag si affida a Hojlund, sfida con Kane
+-  Afar nin oo ku eedeysan dilka laba nin oo wada dhashay oo lagu qabtay Degmada Cadale
+-  Itália é economicamente virtuosa, afirma premiê ao Parlamento
+-  PLENKOVIĆ "Vidjeli smo razotkrivanje MOST-a"; RASPUDIĆ "Hvala na reklami, Plenković je baja"
+-  Post-Polycythemia Vera Myelofibrosis Pipeline Analysis (2023) Covering Clinical Trials, Emerging Therapies, FDA, EMA, and PMDA Approvals, Competitive Landscape | Kartos Therapeutics, Parexel, Incyte, Celgene, Lynk Pharma, Imago BioSciences, Karyopharm
+-  Gífurlegur skortur á algengum verkjalyfjum í landinu – „Vonast er til að lyfin verði fáanleg aftur í kringum áramót“
+-  Zum Prozess gegen Andrea Tandler: Geldgier ist nicht strafbar
+-  TMW News - I segreti del Bologna. Lazio, ripartire con l’Atletico
+-  South Africa to release 2 500 MW nuclear RFP by March, despite electricity plan review
+-  Ramaphosa announces establishment of R1bn Presidential PhD Initiative to drive STI
+-  Eicher enters the local bus market with new 36-seater
+-  Nedbank acquires Eqstra to boost fleet management
+-  Growthpoint lets first two of six Arterial Industrial Estate units in Phase 1
+-  Israel pierde apoyo por ataques en Gaza, dice Biden
+-  Impugna FGR fallo por residencia de Lozoya
+-  “Club Entreprises”: Saweblia, la plateforme qui simplifie le dépannage et la réparation à domicile
+-  Grmoja otkrio: 'Dobivao sam informacije od novinara...Šurovat ću sa svima koji su se spremni pokajati'
+-  Notre sélection de films en DVD à offrir pour les fêtes de fin d’année
+-  الطرابلسي: توصلنا لحل جذري لمشاكل المنافذ البرية بين ليبيا وتونس
+-  Getafe græðir á því sama hvort félagið kaupi Greenwood eða ekki
+-  New parkour classes seek to boost fitness and mental health for young people in Nairn
+-  Biden must end ‘strategic ambiguity’ on Taiwan
+-  Юный курский пианист стал лауреатом международного конкурса имени Шопена
+-  No one goes to a sporting contest just to watch the rain
+-  Miss France 2024 : Maxime Teissier (Miss Languedoc 2023) dévoile son impressionnant résultat aux championnats de France d'équitation
+-  Tter Stegen’s surgeon confirms how much time he’ll miss
+-  Gladys Knight to kick off Farewell Tour in Perth next March
+-  Når må en universitetsrektor gå?
+-  So luftig: Rezept für Tiramisu, das perfekt in die Weihnachtszeit passt
+-  ৩১৪ জন চরমপন্থীর আত্মসমর্পণ, পেলেন ১ লাখ করে টাকাও
+-  Epic trumpets surprise victory in its lawsuit against Google: 'A win for all app developers and consumers around the world'
+-  Оккупант снял колонну российской техники, уничтоженной на подступах к Авдеевке
+-  La loi sur le mécénat fête ses 20 ans en attendant un enrichissement
+-  A Paris, le vote du budget divise au sein même de la majorité d'Anne Hidalgo
+-  Le président de la Société des amis du Louvre sur la sellette
+-  Mistral AI, incarnation des espoirs français dans l'intelligence artificielle
+-  A Blois, parents et professeurs des écoles se battent pour les enfants sans toit
+-  Amazon confronté à une déferlante de « faux livres » générés par intelligence artificielle
+-  Plongée dans les archives de l'esclavage du Lloyd's : comment chercheurs et artistes ont tenté d'humaniser les esclaves réduits à des numéros
+-  Clap de fin pour l'E3, le salon le plus influent de l'industrie du jeu vidéo
+-  Rafael Márquez alza la mano para dirigir al equipo del Barcelona
+-  Analysts: Tusk’s Poland to be ‘Same’ as Kaczyński’s ‘Only Without the Shouting’
+-  Zavlačujejo z zaslišanjem Roberta Goloba
+-  GeForce 546.33 Game Ready: Neuer Treiber optimiert für The Finals und Fortnite [Notiz]
+-  Overactive Bladder Pipeline Analysis (2023) Covering Clinical Trials, Emerging Therapies, FDA, EMA, and PMDA Approvals, Competitive Landscape | Dong-A ST Co., AbbVie, Medytox, Urovant Sciences, Taiho Pharma, Velicept Therapeutics
