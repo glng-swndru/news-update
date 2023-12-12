@@ -1,11 +1,51 @@
 # Latest News
--  Procurement Process For 2,500MW Of Nuclear Energy Given Green Light – Ramokgopa
--  Presidente do Ankaragücü e mais dois agressores de árbitro foram detidos
--  Pelotão da Volta ao Algarve fechado com 'galácticas' Visma-Lease a Bike e INEOS
--  اليوم الأخير.. إقبال كثيف بلجنة الوافدين في العاصمة الإدارية الجديدة
--  TBMM Genel Kurulu, Hasan Bitmez'in rahatsızlığı nedeniyle bugünkü bütçe görüşmelerini yarıda kesti
--  5 آلاف أستاذ باحث سيحالون على التقاعد في أفق 2030.. وزير التعليم العالي : ثروة هائلة خاصنا كيفاش نعوضوها
--  हक्कीलाई चलायमान बनाउन वार्षिक कार्यक्रम सार्वजनिक
--  Мизулина назвала слишком раздутой тему с сериалом «Слово пацана»
--  Коледно градче радва жителите и гостите на Белоградчик
--  زراعة الإسكندرية: المرأة الريفية تتصدر المشهد في الانتخابات الرئاسية
+-  Railcar Leasing Market is to Reach Over US$ 26.5 Billion in 2031, Expanding at a CAGR of 5.4%: TMR Report
+-  Výjazdové rokovania vlády budú bežnou pracovnou metódou kabinetu, uviedol Robert Fico
+-  MIMORIADNE Zmizla 11-ročná školáčka JANKA! Pomôžte ju RODINE nájsť: Nevideli ste ju?
+-  EU agrees tougher rules to seize criminal, sanctioned assets
+-  Rob Favier uit Groot-Ammers verzorgt weer oudejaarsconference
+-  Ameide MO15-1 winterkampioen
+-  Lampionnenoptocht in Giessenburg met de Kerstman
+-  Bamsoet Ajak Masyarakat Menilai Program Kerja Dalam Debat Capres - Cawapres
+-  Hujša poškodba Wendy Holdener
+-  Hujša poškodba Wendy Holdener
+-  SP'li milletvekili Hasan Bitmez'in bayıldığı anda dikkat çeken sözler: Allah'ın gazabı böyle olur işte!
+-  Buğdayın soğuktan etkilenmemesi için 'gübrelemeye dikkat edin' tavsiyesi
+-  Wood Adhesives Market Leading Global Companies and Regional Average Pricing Analysis by 2032
+-  السيد: المُعترض على "وقف النار" شريكٌ مباشر في القتل
+-  NIP arrangerar lan för kvinnor och icke-binära
+-  How Todd Boehly became world’s most generous sports owner as LA Dodgers break MLB record for Ohtani after Chelsea spree
+-  KTMB: Klang Valley Komuter, ETS services disrupted due to crane collapse
+-  Frankfurt (Oder): 15-Jähriger soll Postfiliale mit Schusswaffe überfallen haben
+-  Zoya Akhtar Promotes The Archies On The Daily Show With Kal Penn, Opens Up On Inclusivity In Filmmaking
+-  Lux Express отправит первый рейс из Петербурга в Хельсинки 13 декабря
+-  Banned drink driver Dawid Zywicki who caused death of gran after ploughing into taxi jailed for nine years
+-  كيربي: نعمل لحماية الشحن في البحر الأحمر
+-  ارتفاع عدد شهداء العدوان الإسرائيلي على غزة
+-  Prediksi Starting XI Union Berlin Vs Real Madrid
+-  Cruz Azul consiguió su primer rival para jugar un amistoso previo al Clausura 2024
+-  Soal Korupsi, Anies Dorong UU Perampasan Aset dan Revisi UU KPK
+-  Agenda Kunjungan Presiden Palestina ke Rusia Dijadwalkan Ulang
+-  المليص أميناً لمجلس جامعة المؤسس
+-  إسرائيل: هجمات ميليشيا الحوثي تهديد مباشر لحركة النقل البحري
+-  В Ростовской области почти 150 тысяч человек остались без света
+-  توجّه زوجها بنداء للتدخل لمساعدتها..وزارة الخارجية توضح بشأن الحالة الصحية لتونسية في غ,zة
+-  Жильцов пострадавшего от пожара дома в Вологде разместят в гостиницах и общежитиях
+-  Apareció un año después y se entregó: era buscado por el asesinato de su hijastra
+-  Video | Man gered na nacht in ondergrondse kledingcontainer in Venlo
+-  Takedown Festival 2024 Adds Deijuvhs, Pupil Slicer And More To Lineup
+-  Cayó hombre que asesinó a su hijastra
+-  Росгвардии отныне можно иметь добровольческие формирования
+-  В Бразилии опровергли Зеленского
+-  Haute-Savoie. Un enfant de 3 ans retrouvé décédé à Publier, le père en garde à vue
+-  Exposé premiera Donalda Tuska. "Polacy czują dziś, że mają wpływ na sprawy kraju"
+-  الحوثي يعترف.. فرنسا تُحبط محاولة قرصنة لناقلة نفط نرويجية في باب المندب
+-  BCCI ने U19 World Cup आणि तिरंगी मालिकेसाठी Team India ची केली घोषणा, उदय शरणकडे सघांची कमान
+-  Naujas planas: jei nori būti Vokietijos piliečiu, turi deklaruoti ištikimybę Izraeliui
+-  Politie doet grootschalig onderzoek naar lichaam in auto in Enschede
+-  China gebruikt onmenselijk systeem van ‘collectieve straffen’ tegen families van mensenrechtenverdedigers
+-  Nữ diễn viên Châu Hải My - cả đời được đàn ông theo đuổi nhưng chết trong cô đơn
+-  Se paseaba por la vía teniendo una condenada por violación agravada
+-  NBC: военные США и КНР не смогли наладить прямые контакты после саммита АТЭС
+-  Silicon Carbide Fibers Market Analysis by Advanced Technology, Trends, Forecasts to 2028 & Latest Russia-Ukraine War Analysis
+-  Like a Dragon Infinite Wealth: Enthält verrückte Minispiele aus den Yakuza-Teilen
