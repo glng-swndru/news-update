@@ -1,51 +1,51 @@
 # Latest News
--  PM Kisan Yojana: इन राज्यों के किसानों को मिलते हैं 12,000 रुपये, जानें कैसे उठाएं योजना का लाभ
--  전북대병원, 암 예방 스쿨어택 사업 실시
--  "شاعر وتجربة".. بيت شعر الأقصر يستضيف الشاعر عبد المنعم رمضان
--  Celltrion's Cancer Biosimilar Vegzelma Gains Preferred Status on Ventegra's Formulary
--  Nhiều ngân hàng tiếp tục hạ lãi suất cho vay mua nhà, thấp nhất dưới 6%/năm
--  Sperm whale beached on sandbank at Rockingham Beach has died
--  Cogersa aprueba la subida de tarifas al faltar un concejal del PP de Oviedo
--  El Sanatorio Marítimo "conservará su acceso principal", promete Carmen Moriyón
--  El nuevo plan de digitalización del comercio de Gijón tendrá un programa para fidelizar clientes
--  Los socios del Tenis elegirán en las urnas a su próximo presidente el 18 de enero
--  La fatalidad de dos carabineros
--  La nueva jefatura de Cabueñes potenciará la atención en salud mental y oncología
--  El PP tilda de "despropósito" la falta de "papeles" en contrataciones festivas
--  Barbón, tras el choque con IU por las políticas eólicas: "El Gobierno está engrasado"
--  Brañes, el pueblo que paga el precio de los cuidados al Naranco
--  El carril bus del Principado en El Humedal choca con el fijado en la avenida de la Costa
--  Agenda: qué hacer hoy martes 12 de diciembre en Asturias
--  El tenor de la Ópera de Oviedo, Gaspar Braña, novedad del concierto de Año Nuevo de Avilés
--  Hablan los testigos del accidente mortal en un bar de Oviedo: "Estamos en shock"
--  La cruda realidad eléctrica de Asturias con la transición verde: el hecho histórico que lo confirmó y un futuro incierto
--  La agenda de los Reyes Magos en Oviedo: hablan los tres conocidos ovetenses que les asistirán
--  La afinación
--  La reflexión que abre el reventón turístico del puente en Asturias: "Es nuestro gran reto"
--  Podemos e IU hacen valer su peso en el gobierno de Avilés: sube el dinero para todas sus concejalías
--  "Quiero que todos los concejos asturianos tengan alguna actividad del RIDEA"
--  Emulsa fija en los contratos de limpieza de entes municipales una vía para subir ingresos
--  부천시, 내년 조직개편 인사 119명에 임용장 수여
--  가평군 조종면 체육회, 100만 원 어치 이불·전기요 취약계층에 기탁
--  Vice President Mutale Nalumango in Geneva for Human Rights Forum
--  Qué saber de la escalada en Venezuela y la disputa territorial en Guyana
--  Firefighter dies extinguishing blaze in Sydney's north west
--  Animal में रणबीर ने करवाया Rolls Royce कार में धमाका, खरीदने जाएं तो आएगा इतना खर्च
--  JDC-농협 월동채소로 이웃사랑, 대대적 판촉 행사도 진행
--  कोपका मुद्दा र चुनौती
--  तनहुँ कारागारमा पानीको अभाव
--  लयमा फर्किने आशा
--  हतुवागढी ‘लिफ्ट’ आयोजनाको काम अन्तिम चरणमा
--  Prediksi Manchester United vs Bayern Munchen di Liga Champions: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
--  Sobrepoblación en el Cereso 3 llega a récord
--  Embiste presunto ebrio a peregrinos; mueren 2
--  미디어오늘 장슬기 기자 제1회 Q저널리즘상 수상
--  Apresentador pró-Trump demitido da Fox News terá streaming por US$ 72 anuais
--  “Debemos encontrar una cura”: el largo alegato sobre el COVID de un investigador líder mundial
--  [이복현 “불완전판매, 이사회가 강력 내부통제해달라”
--  [양평군, ‘올해의 10대 뉴스’ 군민 대상 설문조사 실시
--  [GIST “청각장애인 음악 감상 돕는다”
--  [이복현 “불완전판매, 이사회가 강력 내부통제 해달라”
--  [5년간 국방비 348조 투입…다층 방어체계 구축·초급간부 여건 개선
--  [MC몽, 프로듀싱 회사 '원헌드레드' 설립...K팝 제작 나선다
--  [파리 호텔에서 사라진 10억짜리 다이아몬드... 범인은 바로 너! 청소기!
+-  برلمانى: كثافة المشاركة في الانتخابات تكشف وعي وإداراك المصريين
+-  Cientistas usam ultrassom para imprimir em 3D dentro do corpo humano
+-  Fatecs (SP): inscrição do Vestibular 2024/1 termina hoje (12)
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [7살 어린 형님이 내 남편에게 “나 사랑해?”…“가족끼리 그럴 수 있다”는 남편
+-  [이현재 하남시장, 임태희 경기도교육감 면담 교육현안 해결 박차
+-  [“맨날 울었다”…‘암투병 극복’ 어린 女배우 심경고백, 무슨 일 있었길래
+-  '친윤 핵심' 장제원 불출마 선언…김기현 잠행 모드
+-  AMAT, SBTi 탄소배출 감축목표 인증 획득
+-  Tenity Global Market Expansion Program Opens Doors to SEA Growth for Korean Startups
+-  Kintone Recognized for 7th Consecutive Time in Gartner Magic Quadrant for Enterprise Low-Code Application Platforms
+-  CMBB2317: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  '마약 혐의' 유아인 첫 재판 출석…"실망하고 피해본 분들께 죄송"
+-  ‘Gumastos ka’: Netizens rally behind Sarah Lahbati following Annabelle Rama’s remarks
+-  세계유행 홍역 환자, 국내도 올해 8명 발생…"예방접종 중요"
+-  Report: Hamas, Israel have not presented new cease-fire proposal; U.S. says vessel hit by missile from Yemen
+-  La estrategia que obligó a sucumbir a la oposición legislativa de la mano de los alcaldes
+-  L&T Technology Services and bp Sign Multi-Year Engineering Services Partnership
+-  मोठी बातमी! मराठा आरक्षणावर विधानसभेत आज चर्चा होणार, सरकारच्या भूमिकेकडे लक्ष
+-  Juntamos a todos para el spot navideño de Latina: El Gran Chef, Papá en Apuros, periodistas, talentos y hasta ‘Pipoca’
+-  Gempa Dangkal dengan Magnitudo 5,2 Mengguncang Sumbawa Barat
+-  Đại gia bất động sản, siêu thị điện máy bị ngân hàng siết nợ
+-  สืบชะตา เจ้าภาพสร้าง “กุฏิคนึงสุขเกษม”
+-  Ўзбекистоннинг 4 шаҳрида араб ресторанлари очилиши мумкин.
+-  Ўзбекистонда 10 ойда қанча оила ажрашгани маълум бўлди.
+-  Fijiana fourth on SVNS table
+-  ईयर एंडर 2023: चंद्रयान-3 से लेकर अतीक अहमद हत्याकांड तक, 2024 में शामिल घटनाएं
+-  В ДТП в Забайкалье погиб один человек
+-  Papá en Apuros: Julieta se incomodó cuando Stephanie le pidió un sobrino
+-  Earthquake in Afghanistan: अफगानिस्तान में सुबह-सुबह आया भूकंप, 5.2 तीव्रता से कांपी धरती, जानिए कैसे हैं हालात
+-  Goldman Sachs Asset Management sees potential dip in stocks, advises buying
+-  Au Lloyd’s, marché britannique de l’assurance, une plongée dans les archives de l’esclavage
+-  MLA Disqualification Case : शिवसेना आमदार अपात्रता निर्णय वेळेआधीच लागण्याची शक्यता
+-  Καιρός σήμερα: Βροχές σε ανατολικό Αιγαίο, Μακεδονία, Θράκη, Δωδεκάνησα και Κρήτη
+-  प्रभावशाली व्यक्ति ने इंस्टाग्राम पर अपनी श्रद्धांजलि पोस्ट करके आत्महत्या कर ली
+-  গোপালগঞ্জে দুই গ্রুপের সংঘর্ষ, আহত ৩০
+-  Massive explosion rocks hydrocarbon refinery in Iran
+-  Free hockey initiative for women in Pune
+-  U Mumba head coach Mazandarani finds discipline lacking
+-  Christmas 2023: Shweta Tiwari gets into festive mood, decorates tree with daught
+-  ‘It’s been a lifelong dream to play league’: The All Blacks winger training with Souths
+-  ‘It’s been a lifelong dream to play league’: The All Blacks winger training with Souths
+-  LH, 공공주택 사업 민간과 경쟁한다…국토부, 혁신안 발표
+-  「大谷翔平と10年契約」大リーグ ドジャースが正式発表
+-  Horvat scores in OT as Islanders edge Maple Leafs 4-3
+-  عاجل.. تعليق الدراسة الحضورية في هذه المدارس والجامعات اليوم الثلاثاء
+-  غدًا.. مجلس النواب الأمريكي يصوت على عزل بايدن
+-  Пушков резко ответил захотевшему запугать Россию чешскому генералу
+-  तेलंगाना: सीएम बनते ही रेवंत रेड्डी ने पूरे करने शुरू किए वादे, बस किराया फ्री करने के बाद अब किया ये ऐलान
+-  ‘Just weird’: Robert Whittaker readying for UFC 300 blockbuster as rival ’vanishes’ after fight offer
