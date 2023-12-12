@@ -1,51 +1,51 @@
 # Latest News
--  광명시, 감염병 예방위한 찾아가는 손씻기 교육
--  COSMOTE Smart Office Αpp: Υπηρεσίες τηλεφωνικού κέντρου στο κινητό για μικρομεσαίες επιχειρήσεις
--  दूसरी जाति की लड़की से प्यार फिर शादी…दलित लड़के के बाप को मार डाला
--  333 खिलाड़ी मैदान में, 77 स्लॉट खाली, आईपीएल 2024 ऑक्शन के लिए मंच सजकर तैयार
--  Hải Phòng: Bộ hài cốt trong bể phốt ở Thủy Nguyên là của người phụ nữ giao gas mất tích 13 năm
--  [글로벌] 우주정거장에서 사라진 토마토 8개월 만에 나타난 수수께끼
--  One solution to an ageing population? AI workers
--  One solution to an ageing population? AI workers
--  महाकाल का आशीर्वाद है…मोहन यादव के घर जश्न का माहौल, परिवार में किसने क्या कहा?
--  Here Are the Lyrics to Taylor Swift’s ‘Is It Over Now? (Taylor’s Version) (From the Vault)’
--  काटिए धुर्बे हात्तीका दाह्रा
--  सेताम्मे हिमाल किन कालो हुँदैछ ?
--  ‘रुसी सेनामा हुनेको तथ्याङ्क सङ्कलन हुँदै छ’
--  जाजरकोट भूकम्पः रुकुम पश्चिममा २५ हजार लाभग्राही यकिन
--  Scary scenes as batter struck in head
--  38세 맞나?…득점 감각 여전한 호날두, 올해 50호골 채워
--  여자프로테니스 투어 '올해의 선수'에 세계 1위 시비옹테크
--  안세영·서승재, 세계배드민턴연맹 '올해의 남녀 선수' 영예
--  '7억달러' 오타니 연봉은 200만달러…6억8천만달러는 10년후부터
--  ‘Mini-Disneyland’: Araneta Group reopens Fiesta Carnival in time for Christmas 2023
--  Phát lộ nhiều sai phạm của Công ty Cổ phần đá Hoàng Mai (HMR) sau khi nổ mìn văng vào nhà dân
--  وزير شئون المجالس النيابية: انتخابات الرئاسة أولى خطوات بناء الوطن.. والمشاركة فيها واجب وطني
--  तेरे बाप ने क्यों नहीं दी सोने की चेन…दहेज के लिए महिला को पीट-पीटकर मार डाला
--  Alleged shoplifter facing theft and firearms charges
--  Timnas AMIN Harap Relawan Sportif dan Tertib Saat Nonton Debat Capres
--  El hijo de Flavio Mendoza se lanzó como cantante con un clásico navideño
--  When Sidharth Shukla shared how being away from his mother for Bigg Boss 'was the toughest part of the show'
--  [경기도의정 모니터] 김동규 의원 '늘봄학교 예산 편성 등 졸속행정' 질타
--  New charge filed against man accused of firing shotgun outside New York synagogue
--  AMLO va contra venta de vapeadores: Esto sabemos de la propuesta presidencial
--  전북교육청, 주요 학과 지원 가능 점수 발표
--  Shiv Sena (UBT)'s Sanjay Raut booked for article against PM in party mouthpiece
--  65 फिल्मों में किया काम, 1 हिट से रातों- रात बना स्टार, फिर हुआ दिवालिया..
--  क्या आप भी सीधे नल से पी लेते हैं पानी? शख्स ने दिखाई 1 बून्द की असलियत
--  Habrá un homenaje al andinista mendocino Nacho Lucero y la UNCuyo ofreció hacerlo en sus instalaciones
--  [중앙기관, 기록관리 전반적 우수…특별행정기관, 국·공립대 간 격차 커
--  [내년 장기요양보험료율 소득대비 0.92% 확정…내년 182원 상승, 세대당 월평균 1만6860원↑
--  [소규모 건설 근로자 카드 대신 '앱'으로 출퇴근 기록한다
--  [4년만에 만난 한중 국세청장, 진출기업 이중과세 상호합의 논의
--  [‘LPGA신인왕’ 유해란, 후원사와 함께 서울재활병원에 3000만원 기부
--  [[속보] 장제원 “총선 출마 하지 않겠다…尹정부 성공시켜달라”
--  [여성 집 숨어있다 성폭행하려던 30대, 휠체어 타고 나와 “정말 죄송”
--  [[김태열의 생생건강S펜] "스텐트 시술후, 재발방지 요법 '클로피도그렐'이 '아스피린'보다 우수 확인"
--  [美 뉴욕연은 설문 “1년 뒤 물가 3.4%↑ 기대…2년여 만 최저”
--  [유아인 마약 첫 재판 “심려 끼쳐 죄송”
--  [“독도 홍보하게 돈 좀”…가짜 서경덕에 속지 마세요
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [전국 1위 보성산 키위 농협하나로마트 첫 납품
--  ‘친윤’ 장제원 22대 총선 불출마...“나를 밟고 윤석열 정부 성공시켜달라”
--  [이재명 “‘서울의 봄’ 저절로 오지 않아…역사 퇴행 막아낼 것”
+-  '친윤 핵심' 장제원 불출마 선언…김기현 잠행 모드
+-  Police fired 31 shots into armed man's boat in Campbell River marina standoff: IIO report
+-  [포토] '캐나다 국민커피' 팀홀튼, 한국 진출
+-  [MD포토] 방탄소년단 지민·정국 '아미가 입대 응원해'
+-  [MD포토] 아미 응원으로 넘치는 지민·정국 입대 현장
+-  임영웅, AAA 참석…올해는 어떤 상 탈까 '기대감 상승' [MD이슈]
+-  [MD포토] BTS 지민·정국 입대 '아미 응원으로 가득'
+-  [MD포토] 지민·정국 입대 '아미 입대 응원, 신병교육대 담장에도'
+-  모던북스, 강동구립 둔촌도서관과 책쓰기 프로그램 ‘작가가 되는 시간’ 성료
+-  '듄2' 드니 빌뇌브X'노량' 김한민 감독, 두 거장의 특별한 만남
+-  로운, 순수함 가득 로맨스 연기…이렇게 설렐 줄이야
+-  3세트 듀스 만든 김연경의 퀵오픈 …'하지만 마냥 기뻐할 수는 없었다' [곽경훈의 현장]
+-  방탄소년단 지민·뷔 '아미(팬) 없는 아미(군) 입대' [한혁승의 포톡]
+-  "득점왕 문이 열리네요, 쏘니가 들어오죠~"…홀란드 부상으로 이탈→손흥민 최고의 흐름 맹추격→'Again 2022' 기대감↑
+-  박선주 "강박적인 성격, 내 노래조차 못 듣는다" 충격고백 [금쪽상담소]
+-  유아인 측 "최모씨와 대마 흡연 인정"…나머지 혐의는 부인 [MD현장]
+-  “자기는 보톡스 맞아놓고” 셀레나 고메즈, “있는 그대로의 자신을 받아들여라” 뻔뻔?[해외이슈](종합)
+-  ما هي أعراض نقص الكالسيوم في الجسم؟
+-  성남시청소년재단, 첨단기술 기반의 로봇 페스티벌 성황리 마쳐
+-  안산시 옥장 김성운씨, 경기도 제18호 무형문화재 지정
+-  김포농업인, 경기도 참드림 경기미 품평회 최우수상 수상
+-  의왕도시공사 ‘소비자중심경영(CCM) 인증’ 2회 연속 획득
+-  안양시 만안치매안심센터, 쉼터 프로그램 ‘늘푸른 기억교실’ 수료식
+-  KCC글라스 홈씨씨 인테리어, 프리미엄 바닥재 ‘숲 휴가온’ 리뉴얼 출시
+-  "류승룡과 같이 칠할래요?", KCC페인트 신규 광고 선보여
+-  소원이 이뤄지는 마법의 트리 마을... 강서구 ‘마곡 위시 빌리지’ 운영
+-  대성, 18일 스페셜 싱글 '흘러간다' 발매
+-  尹정부 노조 파업 근로손실일수 56만일 … 이전 정부보다 58% 감소
+-  Animal BO Collection: 11वें दिन एनिमल की कमाई में आई गिरावट, 450 करोड़ से एक कदम दूर
+-  돌싱들 재혼 망설이는 이유는 … 男 "빈대 근성 있을까봐", 女 "뒤치다꺼리 할까봐"
+-  Family remember slain officer on anniversary of ‘incomprehensible evil’
+-  ‘엄청난 대인배’... 오시멘, 인종 차별 틱톡 사건 언급, “구단이 아닌 개인의 실수였을 뿐”
+-  SON이 없다고? ‘뉴캐슬전 1골 2도움 맹활약’ 손흥민, PL 16라운드 이주의 팀 ‘제외’
+-  With only five games left ahead of T20 World Cup, auditioning youngsters running out of time
+-  '막을 팀이 없다' NH농협카드, 팀리그 14연승 파죽지세...4라운드 전승 우승 눈앞
+-  [포토] 인사말 하는 이동형 BKR 대표이사
+-  लगानी सम्मेलनअघि नै ‘कन्ट्री रेटिङ’
+-  समाज सेवामा मिस नेपाल वर्ल्ड जोशी
+-  प्रधानमन्त्री प्रचण्ड नवलपरासी आउनुहुँदै
+-  दैवज्ञराज न्यौपाने स्मृति प्रतिष्ठानको सम्मान तथा पुरस्कार कार्यक्रम शनिबार
+-  ‘उच्च हिमाली क्षेत्रमा आर्थिक वर्ष मङ्सिरमा लैजानु पर्छ’
+-  २० वर्षीया मिन्कुदेवीले जन्माइन् तिम्ल्याहा शिशु
+-  Sharnaaz ‘angkut’ kekasih, bekas isteri, anak bercuti di Jepun
+-  세종텔레콤, 메시징 플랫폼 '와이드샷 2.0' 출시…선거문자 특화
+-  Weather Update: Delhi Records Season's Coldest Morning at 6.5°C; Kashmir Freezes in Sub-Zero Temperatures
+-  FTC warns of increasing abuse of QR codes in malware and payment scams
+-  [포토] 한국 진출 배경 설명하는 라파엘 오도리지 RBI그룹 APCA 사장
+-  진시스템 자회사, '고양이 위장염' 진단키트 허가
+-  '마약 상습투약' 유아인 첫 재판…"대마 흡연은 인정, 심려 끼쳐 죄송"
+-  Tierra Brava: Nicole Block dejó la competencia, pero antes desenmascaró a Fabio frente a todos
