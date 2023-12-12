@@ -1,51 +1,51 @@
 # Latest News
--  To Revive Portland, Officials Seek to Ban Public Drug Use
--  عاجل.. توكلنا: 4 مميزات لخدمة استعراض بطاقة المتقاعد لعملاء التأمينات
--  Ondo State: Akeredolu to commence another medical leave abroad, Aiyedatiwa to become acting governor
--  Grbin: "Smjena ministra i savjetnika ne znači ništa, predložit ćemo raspuštanje Sabora"
--  Norveška nadigrala Holandiju za polufinale
--  楽天の滝中投手が滋賀県高島市で野球教室 児童感激「偉大な先輩から学べうれしい」
--  PlayStation Plus Premium e Extra com desconto de 30%
--  La Selección Colombia tuvo a Messi como invitado de lujo
--  StatCan says Mortality Totals Don’t Include MAID Deaths Because WHO Hasn’t Classified the Procedure
--  Европарламентът отдаде почит на Джина Махса Амини и протестиращите жени в Иран
--  Dudas en tiempos de escasez hídrica: ¿Qué pasará con el agua en la nueva propuesta constitucional?
--  ¿Qué pasa con Luis Caputo? Se demoran los anuncios y crece la expectativa
--  Ovogodišnja božićna akcija šibenskih Agenata dobrote mogla bi biti i posljednja: ‘Jednostavno, nema za sve‘
--  SLC Major 50-over tournament commences today with 10 matches
--  House of Janaan celebrates grand opening, unveiling fusion of tradition and modernity
--  Zimbabweans here for six white ball matches
--  Signature honours outstanding dealers at ‘Signature Dealer Convention 2023’
--  Prima Sunrise continues to champion golf in Sri Lanka
--  FSL dream to put up fully-fledged stadium with FIFA support
--  Harin revokes appointment of interim committee to SLC
--  Is the appointment of Jayasuriya and Tharanga beginning of a new partnership?
--  Manchester United – FC Bayern München im TV und Livestream: Hier siehst du das Spiel live
--  Fiese Szene von United-Spieler gegen Bayerns Coman – Kane eilt sofort zur Hilfe
--  早春の風物詩・滋賀の「長浜盆梅展」 樹齢250年の古木が和室に 90鉢を展示へ
--  Orleans e Bragança critica atuação de Lula na crise de Essequibo
--  Amerikanci zbog Rusije uveli sankcije stotinama ljudi i kompanija iz Kine, Turske i UAE
--  Carol McGiffin SLAMS Loose Women after dramatic exit saying ‘it was too woke and I wasn’t welcomed’
--  OAU Final Year Student Dies In Auto Accident
--  أوامر ملكية جديدة عن الملك سلمان وولي العهد
--  강민경, 핫하다…'직각 어깨+각선미' 드러낸 연말 룩 [MD★스타]
--  بايدن: إسرائيل بدأت تفقد الدعم الدولي ونتنياهو يحتاج لتغيير حكومته
--  Waitlist for emergency shelter in Massachusetts exceeds 240 families
--  Debata o ekonomiji: Opozicija smatra da je vlast kriva za inflaciju, vlast navodi da je ona uvezena
--  Diputada critica a Morena por prolongar discusión de reducción de jornada laboral
--  Estland: Zweiter Abschnitt der befestigten Grenze zu Russland fertig
--  عضو المجلس السياسي خالد مكة: أشكر ثقة رئيس التيار الوطني الحّر
--  Lakers Inaugural NBA In-Season Tournament Victory Posts Record-Setting Audience For Regular Season Game
--  Water outage will affect 10 areas in Cape Town
--  BE i kërkon Maqedonisë së Veriut të bëjë reforma të thella në sistemin gjyqësor
--  Tullamarine boss fined $60,000 for bullying apprentices
--  Jason Momoa sparks rumours of feud with Nigella Lawson after ‘rude’ TV moment
--  'Fuego en el cielo', familia capta inquietante video de un supuesto ovni en llamas
--  Đorđević smatra da je inflacija rezultat loše politike, Vasić – na sceni treba da bude srpski seljak
--  Scots swingers club in desperate bid to stay open after year-long battle with council
--  True Anomaly raises $100M to scale space security tech
--  Демократы призвали республиканцев отложить каникулы ради помощи Украине
--  京都市上京区のヴォーリズ洋館修理へ 京都府、文化財保護基金の交付先を決める
--  POSVAĐAO SE SA ŽENOM PA SKOČIO? Novi detalji nesreće na Voždovcu
--  Napoli, Osimhen nel 2023 protagonista in 31 gol. In Italia solo Lautaro Martinez ha fatto meglio
--  УПЛ не домовилася про висунення Шевченка в УАФ
+-  ننشر نص مشروع القرار الذي قدمته مصر للأمم المتحدة بشأن وقف إطلاق النار في غزة
+-  "محمود" يطلب تطليق زوجته: "بتقولي أنا شاكة فيك"
+-  اللجنة العامة بالوادي الجديد تبدأ في "الحصر العددي" (صور)
+-  "لا قطع رؤوس أطفال ولا اغتصاب نساء".. تحقيق يكشف ادعاءات إسرائيل بشأن 7 أكتوبر
+-  مشهد يحبس الأنفاس.. العثور على أفعى سامة بمنزل في مكان غير متوقع
+-  خبير عسكري يتوقع توقف الدعم الأمريكي لإسرائيل في يناير.. ويكشف السبب
+-  نتنياهو: إسرائيل وأمريكا تختلفان بشأن مرحلة ما بعد حماس في غزة
+-  الجوبي يحذّر: مرتفع جوي جديد يضرب اليمن
+-  إطلاق تحالف «نحن من أجل السلام والبيئة»
+-  Lyon: le Rhône et la Saône en crue, certains accès des berges fermés aux piétons et aux cyclistes
+-  لانا نسيبة تؤكد التزام دولة الإمارات بدعم الشعب الفلسطيني
+-  Entre enero y septiembre, FundaRedes registró 130 desaparecidos en diversas regiones de Venezuela
+-  لجنة المقاولات والعقارات
+-  Acusa Xóchitl que AMLO quiere ocultar información
+-  Se desgarró la tráquea por aguantarse un estornudo
+-  Video: Auto queda totalmente calcinado; acababan de pasarle corriente
+-  Pide Congreso pronta resolución de amparos por el relleno
+-  «صناع التغيير» يناقش تحديات الزراعة المستدامة
+-  Benzemalı Al Ittihad, 3 golle turladı
+-  Hamas'tan ABD'ye İsrail vurgusu: Fark etmelerini sağladık
+-  İkinci elde motosiklet kararı
+-  First North-bolaget gör nyemission
+-  లారస్‌ ల్యాబ్స్‌ యూనిట్‌లో తనిఖీలు
+-  Postigo, posible embajador de Argentina en China, destaca potencial de las exportaciones a Asia
+-  ‘Kizz Daniel’s Twitter Request’ The Data Rush and Fans’ Generous Response
+-  Pioli conosceva la situazione di Tonali? Ecco la risposta del tecnico rossonero
+-  Светла Оцетова: Винаги съм съблюдавала е било условията в гребането да бъдат равни за всички състезатели - Труд
+-  جنوب لبنان متوتر.. وقلق أمريكي من «الفسفور الأبيض»
+-  «روما» يسجل ثالث أهدافه بالمونديال مع العميد
+-  3 రోజులు ఆఫీసుకు రావాల్సిందే : ఇన్ఫోసిస్‌
+-  بنزيما يعادل ميسي وسواريز ويقترب من رونالدو
+-  تعاون بين «الاتحاد لخدمات الطاقة» و«مطارات دبي»
+-  Wisconsin lawmakers weigh bipartisan ranked choice voting bill as opponents push to ban the method
+-  Ahí viene la Concentración Navideña: 180 carros decorados desfilarán por las calles de Guamúchil
+-  القصف الإسرائيلي يقترب من «الخط الأحمر» بين غزة ومصر
+-  Season's eatings: Ten VERY different Christmas meals from around the world, from KFC in Japan to pickled herring in Sweden and prawns in Australia
+-  DeSantis’ campaign and allied super PAC face new concerns about legal conflicts, AP sources say
+-  Celeste Muriega y Christian Sancho ya disfrutan de una luna de miel que arrancó con un estresante inconveniente
+-  Régimen de excepción: Reportan más de 200 muertes en las cárceles de El Salvador desde el inicio del plan para combatir a las pandillas
+-  లండన్‌లో రూ.1500 కోట్ల భవంతి..
+-  “Son al margen de la Constitución”: Feliciano Castro avala planteamiento de Rocha de quitar retenes
+-  I'm A Celeb quitter Jamie Lynn Spears admits she had 'no clue what she was about to walk into' ahead of show as she reflects on her relationships with her fellow former jungle campmates
+-  ¡Con más de 500 elementos de seguridad! Arranca el operativo Guadalupe-Reyes en Guasave
+-  ادعموا الاتحاد
+-  Kayla Itsines and Jae Woodroffe take their 11-month-old son to meet Santa Claus... but things don't go according to plan
+-  Krisenstimmung bei "Bauer sucht Frau"-Steffen und Kathrin
+-  “Era un muchachito de 20 años”: Diana Golden pierde a un familiar en la guerra Israel – Hamás
+-  La actriz con raíces colombianas que triunfa con la nueva película de Los juegos del hambre
+-  Палата представителей поддержала проведение расследования по делу об импичменте Байдена
+-  Sainz Borgo celebra el eterno cosmopolitismo y la fresca osadía de David Gistau
