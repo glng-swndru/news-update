@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | Official: FIFA Release Statement After Referee Punched In Europe
--  ব্যবসায়ীদের গুদামে টিআর-কাবিখার চাল, পাচ্ছেন না সুবিধাভোগীরা
--  Тарнавський повідомив, на яких напрямках ворог почав масований наступ
--  Regency Front invests 6 million euros in a new furniture production line
--  „Dschungelcamp“ 2024: Erste Teilnehmer und ein Allstars-Format zum Jubiläum?
--  Corona-Zahlen im Landkreis Ludwigslust-Parchim aktuell: Inzidenz für Landkreis Ludwigslust-Parchim, Mecklenburg-Vorpommern und Deutschland
--  Спасатели предупредили об усилении ветра до 20 м/с на Ставрополье
--  Corona-Zahlen im Landkreis Vorpommern-Greifswald aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Nordwestmecklenburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Segundo período de matrículas da rede estadual de SC vai até esta quarta-feira; veja como se inscrever
+-  Govt Notifies 80 Industry-Specific Discharge Standards To Curb Chemical Waste In Rivers
+-  Tiruppur Exporters’ Association Trained 5,510 New Workers Under SAMARTH Scheme
+-  다니엘 시저, 내한공연 3시간 앞두고 돌연 취소…"예기치 못한 상황"
+-  Najdoktori oftalmolozi 2023.: Dean Šarić, Miro Kalauz i Marin Belak iz klinike Optical Express
+-  Президент Венесуэлы оскорбил Зеленского
+-  Správa deťom: Pellegrini je klamár a Matovič čert
+-  Soccerladuma | Fantastic News For Recovering Foster!
+-  Anzeige – Sommer 2024:: Comedy-Highlights zum Brüllen komisch
+-  Met schaamrood op mijn kaken moet ik bekennen dat ik 50.000 doden alweer vergeten was
+-  भ्रष्ट अधिकारियों को मुख्यमंत्री ममता बनर्जी ने दी ये चेतावनी
+-  Amit Shah doesn`t know history: Rahul Gandhi slams HM over Nehru criticism
+-  La intervención histórica de once toneladas de cocaína confirma el auge de las mafias albanesas
+-  Минфин: вскоре могут принять решение о внесении изменений в льготную ипотеку
+-  В ОКР считают, что лишь единицы из россиян смогут принять участие в Играх в Париже
+-  Германия — Самые дешевые медицинские кассы в 2024 году
+-  Германия — AfD признана в Саксонии правоэкстремистской
+-  Akár 10 órás játékidőt is kihozhatunk a Final Fantasy XVI: The Rising Tide DLC-ből
+-  너무나 치명적 미세먼지 새로운 질병 전파의 경로 ③
+-  소녀의 꿈을 응원하며
+-  왜 물푸레나무였을까?
+-  먹는 순서만 바꿔도 살 빠진다
+-  HBO v decembri: Komiksovka Spider-Man nebude ani náhodou jediným kvalitným filmom, ktorý si pozrieš
+-  Спрятанная бутылка водки привела двух жителей Тверской области на скамью подсудимых
+-  대구은행, 중기대출 시장서 부산은행 맹렬 추격 ‘가사적 성과’
+-  다니엘 시저, 내한공연 3시간 전 취소 "공개할 수 없는 이유" [공식]
+-  박소담 "암 수술 후 목소리 안 나와…촬영하면서도 매일 울었다" [마데핫리뷰]
+-  Las fotos de la increíble mansión de Lionel Messi en Miami: muelle privado, 8 habitaciones y un spa
+-  Column Thijs Zonneveld | Er zou zelfs een appgroep zijn opgericht waarin over Uijtdebroeks werd gelachen
+-  AALCO Annual Arbitration Forum 2023 개최
+-  MINISO Opens 100th US Store in Orlando, Bringing a Pink Blizzard for the Holidays
+-  NaaS Technology and GAC Energy Collaborate on Establishment of a Connected Charging Service Network
+-  Tata Power, 친환경 에너지 전환을 통한 지구 보호 촉구
+-  Наталья Штурм попала в ДТП на севере Москвы: фото певицы
+-  IPL 2024 Auction: 'Won't be Surprised if Mitchell Starc Goes For a Huge Sum of Money' - Aakash Chopra
+-  El Tesoro eleva al 3,62% el interés de las letras a tres meses, máximos desde 2011
+-  'Be extra careful' - Parents warned to keep kids away from certain batteries this Christmas
+-  Mantar toplamaya gitti, bıçaklanarak öldürüldü
+-  CIVIS- Institucionalizovati Rodne studije u obrazovni sistem
+-  News des Tages am 12.12.2023: Simone Thomalla: BH-Blitzer auf dem roten Teppich? / Milzbrand-Alarm in Afrika: 20 Todesfälle!
+-  Osobná zodpovednosť sa vytráca. Zo štátu sa stáva poisťovňa nezodpovednosti Slovákov, vraví zástupca firiem
+-  إحداث قانون جديد للجمعيات.
+-  Zieke Antonie gebruikt een andere kachel en krijgt nu geen tegemoetkoming meer: ‘Bizar’
+-  Польша заявила о требовании мобилизации всего мира из-за Украины
+-  Российские космонавты с борта МКС поздравили сограждан с Днём Конституции
+-  Hidrocapital realizará trabajos en el complejo Taguaza: Suspenderá el servicio de agua por 36 horas
+-  Etiquette expert shares exact time you should attend Xmas party - and it's later than you think
+-  Android reportedly to get a new built-in phishing protection system
+-  Tyrkisk fodboldpræsident anholdt efter angreb på dommer
+-  무역협회 경남본부 창원 동보보육원에 성품
+-  김해시 고령친화도시 인증 현판 제막
