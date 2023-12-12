@@ -1,51 +1,11 @@
 # Latest News
--  UEFA'dan Türk hakemlerine görev
--  Bloomberg: ЕС наметил шаги по использованию доходов от замороженных активов РФ
--  Ian Wright’s brutal Roy Keane anecdote shows what Erik ten Hag’s Manchester United are missing
--  Melhorias na sinalização de trânsito são intensificadas; nova pista da Tarumãs foi um dos locais atendidos
--  Buscas por lubrificantes aumentaram mais de 90% em 5 anos; entenda
--  Prefeito destaca importância de nova vara criminal em Sinop
--  Mesa redonda, sessão solene e oitivas de CPI marcam a semana da Câmara
--  Governo libera volume recorde de crédito a empreendedores mato-grossenses em 2023
--  Vereador propõe mudança em nome de praça para homenagear motorista
--  Писателя Фредерика Бегбедера задержали во Франции
--  This is what Canadians Googled the most in 2023
--  Consternación en Ecuador: sujetos armados irrumpieron en vivienda y masacraron a cuatro niños
--  Campoformido, a fuoco una bifamiliare
--  WoW dev finally confirms what is causing Ashenvale issues in Season of Discovery
--  Bhajan Lal Sharma's Elevation Is Not A Stunner; BJP Appears To Have Planned This Well Before Rajasthan Elections
--  Major shake-up for Irish commuters as Bus Eireann, Irish Rail, Luas and Dublin Bus confirm new timetables for Christmas
--  Ronald Braus niže uspjehe, a uživao je i u društvu fatalne glumice iz ex Yu
--  Guatemala es un paso “infernal” para migrantes en ruta a EEUU, según denuncias
--  Kualifikimi në Euro2024/ Sylvinho në mesin e kandidatëve si trajneri më i mirë i vitit 2023
--  Want to help save lives this Christmas? Donate to a Take One Leave One rail
--  بعد تداولات بـ 6.2 مليار .. مؤشر الأسهم يرتفع 14 نقطة
--  أغرب عقاب.. شاهد ما فعله مدير مدرسة في هذه الدولة بجوالات الطلاب
--  بالأنظمة واللوائح.. منصة "استطلاع" تطرح 32 مشروعاً لأخذ المرئيات بشأنها
--  أخبار السعودية.. الملايين يترقبون مصير حساب المواطن ووظائف برواتب 20 ألف ريال في الرياض
--  عاجل.. اشتراطات الأنشطة التجارية المتنقلة غير الغذائية وأبرز المحظورات (تفاصيل)
--  أمانة العاصمة المقدسة: إرشادات توعية التزموا بها أثناء هطول الأمطار
--  نصيحة لمزارعي البن تسهم في زيادة حجم الثمرة
--  Синоптики рассказали, когда «Ваня» принесет в Москву новые сугробы
--  Milijarderu su Hamasovci ubili kćer na festivalu: ‘Znamo tko su, snimljeni su. Želim mir, ali oni prvo moraju umrijeti‘
--  Emre Belözoğlu'ndan istifa açıklaması!
--  رغم الأمطار.. استمرار توافد الناخبين على مراكز الاقتراع بالإسكندرية- صور
--  الأوروبي للإعمار يدرس إقراض شركة تابعة للسويدي 50 مليون دولار
--  بعثة جامعة الدول العربية تتفقد لجان الانتخابات الرئاسية بالإسكندرية-صور
--  معجزة الخلق.. كيف فشل العلماء في صناعة كومبيوتر يشبه المخ البشري؟
--  "نادي إيه اللي مخطوف".. أحمد سليمان يفاجئ الجميع بهذه الرسالة
--  ‬جد يصطحب أحفاده خلال المشاركة في الانتخابات الرئاسية بالقليوبية
--  "خدوها مني".. شوبير يكشف تطورات جديدة بشأن مشاركة فتوح: معتمد كلمة السر
--  الفوز وحده لا يكفي.. ما هي فرص تأهل مانشستر يونايتد إلى دور الـ16 بدوري الأبطال؟
--  أمطار غزيرة تضرب مدينة السادس من أكتوبر الآن
--  "تاو الذهبي".. من الخروج خلف موسيماني إلى إنجاز تاريخي
--  الوطنية للانتخابات تعلن عودة التصويت باللجان الانتخابية
--  أول نسر يحلق في الألفية.. أوسيمين خامس نيجيري يتوج بجائزة أفضل لاعب إفريقي
--  مدير تعليم جنوب سيناء يقود مسيرة لدعوة المواطنين للمشاركة في الانتخابات
--  اذهب للطبيب فورا.. احذر علامة تكشف الإصابة بمرض خطير يهدد الدماغ
--  العرش الأفريقي ومونديال الأندية.. بطولات الأهلي تنصب تاو الأفضل داخل أفريقيا
--  فانتازي.. والد هالاند يستغنى عن نجله لشراء محمد صلاح
--  Antisémitisme : Harvard décide de ne pas limoger sa présidente
--  وزير التجارة يستعرض مقومات قطاع الصناعات الغذائية بمصر في "فوود أفريكا"
--  J&K orders arrears of 4% Addl DA to its Employees/Pensioners from July 2023
--  Cruzeiro e Gilberto negociam rescisão antecipada, diz site
+-  Procurement Process For 2,500MW Of Nuclear Energy Given Green Light – Ramokgopa
+-  Presidente do Ankaragücü e mais dois agressores de árbitro foram detidos
+-  Pelotão da Volta ao Algarve fechado com 'galácticas' Visma-Lease a Bike e INEOS
+-  اليوم الأخير.. إقبال كثيف بلجنة الوافدين في العاصمة الإدارية الجديدة
+-  TBMM Genel Kurulu, Hasan Bitmez'in rahatsızlığı nedeniyle bugünkü bütçe görüşmelerini yarıda kesti
+-  5 آلاف أستاذ باحث سيحالون على التقاعد في أفق 2030.. وزير التعليم العالي : ثروة هائلة خاصنا كيفاش نعوضوها
+-  हक्कीलाई चलायमान बनाउन वार्षिक कार्यक्रम सार्वजनिक
+-  Мизулина назвала слишком раздутой тему с сериалом «Слово пацана»
+-  Коледно градче радва жителите и гостите на Белоградчик
+-  زراعة الإسكندرية: المرأة الريفية تتصدر المشهد في الانتخابات الرئاسية
