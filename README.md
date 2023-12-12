@@ -1,11 +1,11 @@
 # Latest News
--  Saadet Partili Bitmez'in fenalaşması nedeniyle bugünkü bütçe görüşmeleri yarıda kesildi
--  Finlandiya, Rusya sınırındaki kontrol noktalarını yeniden açıyor
--  Hazine ve Maliye Bakanlığı, 10 milyar liralık kira sertifikası satışı yaptı
--  Bakan Ersoy: Halk kültürü üzerine yapılan her çalışma ciddiyet ve hassasiyetle yürütülmeli
--  İran iddiasına KKTC'den tepki: İnsanlık kasabı Netanyahu Türkiye'yi de hedef almaktadır
--  Bakan Koca'dan Hasan Bitmez'in son durumu hakkında açıklama
--  Necip Fazıl Saygı Ödülü sahiplerinden Prof. Dr. Nevzad Atlığ son yolculuğuna uğurlandı
--  Rachid Ghezzal'dan açıklama
--  İsrail: Husilerin saldırılarına "güç kullanılarak" karşılık verilecek
--  Alioski'den transfer açıklaması!
+-  La difícil historia del imitador de Carin León, ganador de 'Yo me llamo'
+-  [오늘의 운세] 12월 13일 오늘의 띠별 운세
+-  ‘축구인생 세옹지마’…감독에게 찍혔던 CB-MF는 유턴↔지난 시즌 컵대회 우승멤버 ‘3인방’ OUT
+-  "20대의 나, 55살도 좋다"…신애라, 과거 사진첩 열었다 [MD★스타]
+-  عبر البحر.. الكويت تعلن إحباط محاولة تهريب كمية كبيرة من "الحشيش"
+-  تغريم "الوطنية للبناء والتسويق" لمخالفتها قواعد طرح الأوراق المالية
+-  Transfer: Paul Merson reveals fears over Chelsea’s top January target
+-  الصليب الأحمر : ما يشهده شمال غزة أسوأ من قبل الهدنة
+-  Chelsean painajainen jatkuu - kapteeni pitkälle sairauslomalle
+-  The Batman and more DC movies will be free to stream in 2024
