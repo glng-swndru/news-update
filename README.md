@@ -1,51 +1,51 @@
 # Latest News
--  México se llena de gratitud para venerar a su "madrecita", la Virgen de Guadalupe
--  İstanbul'da "Huzur Uygulaması"
--  Meclis Başkanı Kurtulmuş'tan şehit Teğmen Emir için taziye mesajı
--  Şi'den Vietnam ziyaretinde işbirliği mesajı
--  Galatasaray gruptan nasıl çıkar? İşte tüm ihtimaller...
--  Amerikanci tvrde da su Rusi izgubili oko 315.000 vojnika u Ukrajini
--  Google gegen Epic Games: Was Sie jetzt wissen müssen
--  Zelenski stigao u Belu kuću na sastanak sa Bajdenom
--  Złoto znów staniało
--  PKP Cargo: część organizacji związkowych wszczęło spór zbiorowy
--  “Ike pa takuar nipat”, vajza e Mirush Kabashit përlot studion e “Vizioni i Pasdites”
--  US Posts $314 Billion Budget Deficit in November as Spending Surges 17 Percent
--  Mundo Boca: una nueva camiseta para celebrar el día del hincha y recordar el título mundial de 2003
--  37 Pet Food Solutions That Are Paws-itively Purr-fect For Your Furry Kids
--  Beppe Marotta: ‘Lautaro Martinez Has Declared His Love For Inter Milan’
--  Americans are over an impeachment of Biden, as independents flee the cause: poll
--  CCP’s Economic Work Meeting: No Concrete Plan for China’s Recovery
--  PRESIDENTIELLE EN EGYPTE : Un scrutin pour quoi faire ?
--  Intrighi psicologici nell’horror «Home Education» con Julia Ormond e Rocco Fasano
--  Duke’s plans to ‘bulldoze’ allotments and build flats blocked by planning agency
--  منتخب سن 15 يخسر أمام نظيره الإماراتي ببطولة غرب آسيا
--  Davno raskrinkani? Pogledajte što je Filipovićeva savjetnica radila s Grmojom: ‘Nije bilo slučajno’
--  Government wins critical vote to go ahead with Rwanda scheme
--  Mamonas Assassinas em família: Integrante do grupo é interpretado pelo próprio sobrinho em filme
--  Київстар заявив про часткове відновлення послуг
--  A ‘brain organoid’ biochip displayed serious voice recognition and math skills
--  Найбільший пункт пропуску на кордоні з Польщею остаточно відновив роботу
--  TO JE TO, STANIJA PRESEKLA, VIŠE NEMA NAZAD! Objavila FOTKE i svima pokazala koju odluku je donela
--  GM and Komatsu Collaborate on Hydrogen Fuel Cell-Powered Mining Truck
--  Israeli technocrats arrive in Cyprus for corridor talks
--  Zlatan Ibrahimović fait son troisième come-back à l'AC Milan
--  Pierre Sage sera sur le banc de l'OL jusqu'à la trêve
--  Nemanja Football Shop, Football Shirt Vintage, Retrotape, Sport à l'Affiche… le programme complet de notre Incroyable Pop-Up Sport avec TrashTalk à Paris du 14 au 17 décembre!
--  Un record de cartons rouges battu lors d'un match de D2 belge
--  Franck Haise très remonté contre l'interdiction de déplacement des Sévillans
--  Besiktas annonce l'exclusion de 5 joueurs de l'équipe première
--  Manchester United, la peur des défaites de fin d'année
--  Plus de 3500 supporters parisiens attendus à Dortmund
--  Lionel Messi et Cristiano Ronaldo vont s'affronter en 2024
--  Coupe de France (F) : un duel entre l'OL et Montpellier, le PSG chez un petit poucet
--  Supporters de Séville : voyage au bout de l'affaire
--  Les supporters sévillans saisissent le Conseil d'État
--  Quand un journaliste demande à l'entraîneur de Séville s'il joue à la loterie
--  Après la claque reçue à Francfort, Tuchel attend « une réaction » de ses joueurs
--  Best of des buts amateurs du week-end des 9 et 10 décembre 2023 !
--  Grenade-Athletic : le bel hommage au supporter décédé
--  Gianni Infantino s'exprime après les violences en Turquie
--  Le président d'Ankaragücü frappe l'arbitre après un match tendu contre Rizespor
--  Pauleta veut voir Kylian Mbappé rester au PSG
--  Olivier Dall'Oglio prend les rênes de l'ASSE
+-  Ketterä vei Mestiksen dramaattisen kärkiottelun nimiinsä
+-  Arsenal voitti lohkonsa Mestarien liigassa, La Liga-seura floppasi pahasti
+-  Asegura fiscal tener avances en asesinato de conductor en Juárez
+-  Deja incendio en Argentina un muerto y 36 hospitalizados
+-  Descarta Castañeda que MC apoye iniciativas de AMLO
+-  Police watchdog investigating shooting in Kitimat
+-  فاروق الباز: مصر يُمكنها توليد الطاقة الشمسية وتصدير الفائض لأوروبا
+-  مصر ترد على تصريحات وزير إسرائيلي بشأن تشجيع الفلسطينيين للهجرة خارج غزة
+-  انتخابات الرئاسة.. انتهاء التصويت في لجان السويس وبدء الفرز
+-  صحيفة أمريكية: جيش الاحتلال بدأ ضخ مياه البحر في أنفاق حماس بغزة
+-  زفة وحنة ودبلة علي الصندوق.. باسم وآيات يحتفلان داخل لجنة الانتخابات بأسيوط (صور)
+-  الهيئة الوطنية للانتخابات: بدء عمليات الفرز في بعض اللجان الفرعية
+-  بالصور.. بدء فرز أصوات الناخبين في الانتخابات الرئاسية 2024
+-  هذا يحدث للجسم عند تناول أكثر من كوب شاي في اليوم.. مفأجاة
+-  صور الثقافة تطلق فعالياتها بمبادرة "أنت الحياة" بمحافظة البحر الأحمر
+-  بعد فترة من الأزمات.. 5 أبراج على موعد مع انفراجات وأحداث سعيدة
+-  بدء فرز الأصوات في انتخابات رئاسة الجمهورية بسوهاج (فيديو وصور)
+-  البنتاجون: نتشاور مع الحلفاء لتشكيل قوة بحرية لتأمين الملاحة بالبحر الأحمر
+-  Jalandhar News: नाबालिग बेटी से शारीरिक छेड़छाड़ में पिता गिरफ्तार
+-  Jalandhar News: रंजिश के चलते राजीनामा करने आए दो सैनिक आपस में भिड़े, एक गुट ने की फायरिंग
+-  Jalandhar News: थाने में घुसकर एसएचओ से धक्कामुक्की, मुंशी की वर्दी फाड़ी
+-  Jalandhar News: अंतरराज्यीय हथियार तस्कर गिरोह का गुर्गा 13 पिस्तौलों के साथ गिरफ्तार
+-  Ghaziabad News: लोन माफिया लक्ष्य तंवर की 15 करोड़ की संपत्ति कुर्क
+-  Ghaziabad News: हवाला की रकम लूट मामले चौथा आरोपी गिरफ्तार
+-  Ghaziabad News: तिलक लगाकर आने पर छात्र को भेजा घर
+-  Ghaziabad News: मुन्ना बजरंगी के हत्या आरोपियों को अदालत ने भेजा जेल
+-  Ghaziabad News: दोबारा कनेक्शन की ली धनराशि वापस करने का दिया आदेश
+-  Mathura News: बेलगाम ई-रिक्शा पर कसी नकेल, रूट और रंग तय
+-  Varanasi News: 11707 युवाओं को मिला रोजगार, ऑफर लेटर पाकर खिले चेहरे
+-  Varanasi News: छात्रावासों में अवैध रूप से रहने वालों पर होगी कार्रवाई
+-  COP28: Παρατάθηκαν οι διαβουλεύσεις για ένα σχέδιο συμφωνίας που θα έχει ευρεία υποστήριξη
+-  В Ростове на набережной 22-летняя девушка погибла, упав с многоэтажки
+-  शीतकालीन सत्र : विधानसभा के बाहर रोष प्रदर्शन की अनुमति नहीं
+-  Chandigarh News: अवैध खनन में जुटे लोगों की खुफिया रिपोर्ट तैयार कर रहा ब्यूरो
+-  Timothee Chalamet is dapper in long checked coat with leather trousers and turtleneck as he promotes Wonka in New York
+-  Chandigarh News: कड़ाके की ठंड जारी, पांच शहरों के लिए धुंध की चेतावनी
+-  Polen: Rechtsradikaler Abgeordneter löscht Chanukka-Leuchter mit Feuerlöscher
+-  Türkiye'den Pakistan'daki terör saldırısına kınama
+-  Galatasaray'a 123 milyon euroluk süper yıldız! 20 yıl sonra ilk kez! Yer yerinden oynayacak...
+-  Oprah Winfrey covers up her newly slender figure in a sparkling coat as she joins the cast of The Color Purple to light the Empire State Building in NYC
+-  Inflation or deflation? These 12 things are actually getting cheaper
+-  Ankaragücü’nde Yönetim Kurulu Başkanlığına İsmail Mert Fırat seçildi
+-  Dışişleri Bakanlığı'ndan Pakistan’daki terör saldırısına kınama
+-  Cumhurbaşkanı Erdoğan, Fatih Erbakan’la görüştü
+-  Kadın voleybolunda dünyanın en büyüğü Çin'de belli olacak! İşte maç takvimi...
+-  CHP grubundan hakem Meler’e ziyaret
+-  Biden: İsrail uluslararası toplumun desteğini kaybetmeye başladı
+-  ABD’li istihbaratlara Ukrayna'da 315 bin Rus askerinin öldü
+-  Bakan Koca: Toplam 182 hasta Türkiye’ye getirildi
+-  Kushinagar News: सरकारी योजनाओं की दी जानकारी
