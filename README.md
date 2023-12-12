@@ -1,11 +1,11 @@
 # Latest News
--  Си Ханойга учди — Ветнамдаги таъсир доираси учун курашда АҚШ билан рақобат давом этади.
--  «МЮ» ва «ПСЖ» гуруҳда қолиб кетадими? ЕЧЛда сўнгги тур саволлари.
--  Ўзбекистон ёшлари Дубайдаги COP-28'да.
--  Na sjeveru Europe postoji možda i najstrašnije groblje ikad: Na njemu nisu pronađeni kosturi
--  ‘2023 해외자원개발 심포지엄’ 개최
--  Pronostic Dortmund – PSG : Côtes, analyse... Notre prono pour le match du 13 décembre
--  حزمة حوافز استثمارية.. وزير السياحة يلتقي أعضاء هيئة تدريس ودارسين بكلية الدفاع الوطني الإماراتية
--  بالصور- رئيس جامعة الإسكندرية يقود مسيرة لحث الطلاب على المشاركة في الانتخابات
--  دون تلامس.. نجاح أول رحلة طيران متكاملة باستخدام "الجواز الرقمي" بين إنجلترا وإيطاليا -تفاصيل
--  "الوطنية للانتخابات": لدينا أدوات لرصد نسب المشاركة في الانتخابات الرئاسية ومنها دفاتر بطاقات الاقتراع
+-  Davis Cup-hjältarna spelar i Åbo i februari – kan de upprepa årets bedrift?
+-  Hargreaves Lansdown, AJ Bell shares sink as UK regulator warns on charges
+-  Calcio: Messi e CR7 nuova sfida, il 1 febbraio amichevole a Riad
+-  Alista AMLO fin de órganos autónomos
+-  News24 | Turkish football leagues halted after club president punches referee
+-  Habrá cielo mayormente nublado este martes
+-  فرنسا تعلن اسقاط مسيرة كانت تهدد ناقلة في باب المندب
+-  काठमाडौं महानगरपालिका र केयूबिच नीतिगत सम्झौता
+-  पुँजीवाद : भ्रम, वास्तविकता र तथ्य पुस्तक विमोचन
+-  Rama: Brenda 2024 nis ndërtimi i godinës së re të Qendrës Kombëtare të Urgjencës Mjekësore 2
