@@ -1,51 +1,11 @@
 # Latest News
--  Suicide bomber attacks police station in northwest Pakistan, killing 23 officers and wounding 32
--  As COP28 negotiators wrestle with fossil fuels, activists urge them to remember what&#039;s at stake
--  Рўзиев Алишер Иброимовичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  ЕИ нимани режалаштиряпти?
--  Маманазаров Мансур Aбдухакимовичнинг иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Дуснаев Шерзод Эргашевичнинг Иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Мамадалиев Одилжон Тоировичнинг Иқтисодиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  7 tegen 7 voetbal S.V. Oosterend
--  “Тез ёрдам”га энг кўп чақириқлар қайси ҳудуддан бўлмоқда?
--  Nieuwe suppletie tussen paal 9 en 12 in 2024
--  Ramaikan Nobar Debat Capres di Sekretariat Timnas AMIN, Pendukung Pede Anies Ungguli Ganjar dan Prabowo
--  Novi roman Jelene Bačić Alimpić "Poslednji sati" – potpisivanje 12. decembra u SKC-u
--  Adar Poonawala Buys London’s Most Expensive House; Know The Whopping Cost
--  حماس تدعو السلطة الفلسطينية إلى تجاوز اتفاقيات أوسلو ووقف التنسيق الأمني مع إسرائيل
--  IS: Lappilainen matkailuyrittäjä raiskasi naisen Posiolla – hovioikeus ei lieventänyt tuomiota
--  Yulimar Rojas atleta del año del World Athletics
--  اقتراب حوت ضخم من زوار شاطئ للسباحة معهم
--  الاحتلال يقتحم مستشفى كمال عدوان في غزة
--  بورصة الكويت تغلق على ارتفاع
--  „Martwa strefa” dla rosyjskich dronów. Ukraina może już szykować grunt pod ofensywę w 2024 r.
--  Ετοιμοπόλεμος ο Ψάλτης
--  20 minutes from death: When non-surgical BBL Brazilian Butt Lift fillers go wrong
--  İYİ Partili vekil disipline sevk edildi
--  Sakarya'da kokain operasyonu: 3 gözaltı
--  Sivasspor, ligdeki 4 maçlık galibiyet hasretine son verdi
--  8 aydır kayıp olan uzay domatesi bulundu
--  Libatkan Praktisi Kesehatan, UK Petra Eksplorasi Manfaat Potensi Kesehatan Produk UMKM
--  Marginal rise in COVID-19 cases in Ernakulam
--  Radosław Sikorski, doświadczony minister
--  God of War Ragnarök: Valhalla vai exigir download de 7,6 GB
--  Młodzież niechętnie uczy się przedmiotów ścisłych. Zbadano, co ma na to wpływ
--  Petrus Soroti Manuver Tim Prabowo Kumpulkan Aktivis '98 dan Korban Penculikan
--  Бесими: Обезбедени над 700 милиони евра за развојни проекти и реформи од нашите партнери и со прераспределба на буџетски средства
--  Loi immigration rejetée: "La meilleure option, c'est le retrait du texte et le départ de Gérald Darmanin", déclare Antoine Léaument (LFI)
--  Los empresarios destacan el potencial del eje Madrid-Valencia para avanzar en la electrificación
--  Зам.-кметът Павел Попов: На 28 и 29 декември детските градини във Варна ще работят при стандартен режим
--  Τι συνέβη με τον Χουάνγκ και τον Μαρτίνεθ;
--  Koar-koar Paling Berpengalaman soal Pelayanan Publik, Ganjar di Debat Capres: Pemerintah Gak Boleh Baperan!
--  सिद्धार्थ से बुद्ध : एक जागृति का मंचन, गीत-संगीत और नृत्य से संपन्न हुआ सिद्धार्थ का विवाहोत्सव
--  Större underskott än väntat för Kalmar
--  OD OVOG DATUMA MOGUĆE POGORŠANJE VREMENA I ZAHLAĐENJE Meteorolog Čubrilo: Sutra nad fenskim delovima Srbije do 18 stepeni
--  India requests FBI to share intel on Sikh separatists - source
--  The USD is higher after CPI data. Stocks are still up but off their high levels. Yields up
--  In neuem Video: So klingen Kate Middleton, George, Charlotte und Louis
--  Германия: ЕС трябва да убеди Унгария да подкрепи Украйна
--  Cascadia bullet train stuck at the station as feds dole out big bucks for rail
--  Presidente de México lamenta fallecimiento de la madre de ‘El Chapo’
--  42. rocznica wprowadzenia stanu wojennego w Polsce. W Legionowie uroczysta msza święta, a samorządowcy złożą kwiaty pod pomnikiem w parku za ratuszem
--  Atrium Ljungberg sänker utdelningspolicy
--  ينفذ في ثلاث ولايات:إنطلاق مشروع تمكين النساء و الهياكل الفلاحية(Efor).
+-  Madhya Pradesh: Five-year-old boy falls into borewell; rescue operation underway
+-  Армения заявила о глубоком переговорном процессе с Азербайджаном
+-  Дело экс-таможенника Байрамова направили в суд
+-  Выдали ли азербайджанские паспорта Саркису Галстяну и другим?
+-  В Москве обнаружили тело российского дипломата
+-  МВФ прогнозирует спад инфляции в Азербайджане
+-  ВСУ выбили россиян под Горловкой
+-  Эрдоган принял парламентскую делегацию Азербайджана
+-  Apologize or face recall – Constituents tackle Rep for pulling down Gov Alia’s portrait
+-  BVB mit Abwehrsorgen: Das sagt Trainer Edin Terzic zu möglichen Wintertransfers
