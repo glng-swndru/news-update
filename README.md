@@ -1,51 +1,11 @@
 # Latest News
--  마이크로닉스, 공인 e스포츠 용품 특별 할인 행사 진행
--  ยืนยันแล้ว!! ROG Phone 8 Series จะเปิดตัวในวันที่ 16 มกราคม 2024
--  Левски праща свои кадри на обмен с Айнтрахт
--  Nincs elég határvadász
--  Fortnite maker Epic Games wins antitrust battle against Google
--  Znanstvenici zabilježili jedan od najstrašnijih događaja u moru: Ovo masivno čudo uništava sve pred sobom
--  Még a fideszes képviselők sem támogatták, hogy akkugyár épüljön Tatabányán
--  "Die Höhle der Löwen" am 11.12.2023: DHDL-Weihnachtsspecial! Alle Deals, Juroren und Produkte
--  “Paphos Municipality reports illegal sports field reservations
--  Arbitre agressé en Turquie: hospitalisé, le président d’Ankaragücü va être arrêté
--  Хуситите удариха норвежки танкер в Червено море
--  The Air Force disciplined 15 members of the Air National Guard after an internal investigation found that a “lack of supervision” and a “culture of complacency” helped enable a 21-year-old airman to share hundreds of classified documents online in a sprawling leak of U.S. military secrets that rocked the national security establishment this spring.
--  ¡Ya piensa en la Selección! JJ Macías le manda mensaje a Jimmy Lozano
--  Novi Pazar uoči lokalnih izbora – u sedam nacionalnih i jednoj građanskoj koloni
--  Évmilliárdokkal ezelőtti világ nyomaira bukkantak a Puna de Atacama-i sivatagban
--  “Arturo Reyes sigue como técnico de Junior en el 2024”: Fuad Char
--  El fútbol femenino colombiano destaca entre los nominados de la IFFHS
--  Gospodarka Indii ma szansę na 7-proc. wzrost
--  전기안전공사, 복지부 '건강친화기업 우수기관' 선정...장관상 수상
--  أسعار النفط تواصل ارتفاعها والأسواق تترقب بيانات أمريكية
--  Google suffers major blow in battle with Fortnite maker Epic Games
--  Google suffers major blow in battle with Fortnite maker Epic Games
--  В Таджикистане с 1 января цена на электроэнергию вырастет на 16%
--  Юные шахматисты Таджикистана в Дубае выиграли золото и бронзу
--  Jahresrückblicke 2023 in TV und Live-Stream: Zwischen emotional und witzig: Diese TV-Rückblicke dürfen Sie nicht verpassen
--  India’s economy follows China to reach rapid take off
--  Нужен ли чек при безналичной оплате налогов?
--  '민주당 돈봉투 핵심' 송영길 前 보좌관 박용수, 보석 석방
--  Google Play Movies & TV no longer available from Jan 17, 2024
--  KIM은 합격…"산초는 돌문 시절부터 '트러블 메이커'였다"→뮌헨이 영입하지 않은 이유
--  정상훈, 건강기능식품 브랜드 바이오온 모델 발탁
--  '열녀박씨 계약결혼뎐', 한복 디자인 도용 빠른 사과…업체 측 "협조 자막 삽입해주기로" [MD이슈](종합)
--  '상습 마약 투약' 유아인(Yoo Ah-in), 첫 재판 끝나고 그가 남긴 말은? [MD동영상]
--  오늘밤 10시30분… 비트코인 VS 미국 CPI “전망은?”
--  PM Kisan Nidhi Yojana: अब इस तरह आसानी से करें पीएम किसान योजना की ई-केवाईसी, मदद करेगा ये सरकारी ऐप
--  Dana Haji Rp 165 Triliun, Jokowi: Gede Banget, Hati-hati Mengelolanya
--  “Khabib (Nurmagomedov) Is Secretly Really…”: UFC Veteran Reveals Lesser Known Side of the Ex-UFC Champion
--  Pilibhit News: इलाज के लिए दिल्ली ले जाते पुत्र की मौत
--  Pilibhit News: अंडरपास में बांधे जा रहे पशुओं को आरपीएफ जवानों ने हटाया
--  Basti News: विद्यार्थियों को वेबसाइट का झटका, छात्रवृत्ति पर संकट
--  Pilibhit News: पति पर चार दोस्तों से दुष्कर्म कराने का आरोप
--  Pilibhit News: पूरनपुर मिल का पेराई सत्र देर से शुरू होने के विरोध में धरना
--  NFL 2023 Ergebnisse: Dolphins und Packers verlieren völlig überraschend
--  Android va bientôt intégrer une protection anti-hameçonnage pour vous protéger des pirates
--  Sultan Rifat Korban Kabel Optik Sudah Bisa Beraktivitas Normal, Tak Lagi Trauma Naik Sepeda Motor
--  셀트리온헬스 '베그젤마' 美 벤테그라 처방집 등재
--  Alle 20 italiane la conferenza di Pioli e Pulisic al St. James's Park
--  Jamie Dornan: Actor pays tribute to late dad as he receives?????? honorary degree from Queen’s
--  Fighter: Karan Singh Grover`s first look as squadron leader Sartaj Gill out!
--  V skokih zdaj prevladuje nemščina
+-  Israël presse le sud de Gaza, les civils attendent l’aide
+-  Batman'da 14 yaşındaki çocuğa kurşun yağdırdı! Yaşam mücadelesi veriyor
+-  Hakeme saldıran Faruk Koca'dan ilk açıklama: Hatırlamıyorum
+-  लोप हुँदै ठाँटी, पौवा र धर्मशाला
+-  मनाङको तापक्रम माइनस १६, स्थानीय बेँसी झर्न थाले
+-  मादी नदी थुनेर ताल बनाइँदै
+-  ‘कोश टेपा नहर’ को निर्माणले दिएको सन्देश
+-  एनसेलको शेयर बिक्रीविरुद्धको रिटमा सुनुवाइ हुँदै
+-  पर्यटकीय क्षेत्र गाजाको दह पुग्ने सडकको दुरावस्था
+-  Fadime Özkan yazdı: Soykırım pazarlama!
