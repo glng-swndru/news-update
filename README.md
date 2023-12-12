@@ -1,11 +1,51 @@
 # Latest News
--  Fiscalía amplía imputación contra Dany Durand
--  Trouble Staying Dry This January? HOP WTR’s Hired A Hypnotist To Help Consumers Stay Dry
--  GEEKOM Achieves Remarkable Sales Surge in Third Quarter of 2023
--  김건희 명품백 함정취재, 계속되는 언론윤리 논란
--  USA: prokuratorzy chcą 11 lat więzienia dla twórcy spółki Nikola
--  MFiPR: Polska otrzyma ok. 320 mln franków z Funduszy Szwajcarskich
--  TBMM'den flaş bütçe kararı!
--  Far-Right Polish Politician Extinguishes Hanukkah Candles in Shocking Parliament Incident
--  أوضاع القطاع الزراعي بين عبسي ووزير الزراعة
--  Sofia di Svezia, abito rosso fuoco (riciclato) e scollatura a cuore: pagelle
+-  Podanie žiadosti o povolenie pre malé čistiarne odpadových vôd sa predĺži
+-  Iniciatíva Ženy ženám vyzbierala na pomoc matkám samoživiteľkám vyše 20-tisíc eur
+-  Meteorológovia upozorňujú na hmlu a poľadovicu, v dvoch okresoch hrozia povodne
+-  Pri refundáciách z EÚ dodržiavame pravidlo, ktoré platí roky, vyhlásil Ladislav Kamenický
+-  المشاط يوجه رسالة عاجلة للقوات المسلحة اليمنية
+-  TEKNOFEST 2024 Adana'da yapılacak
+-  İtalya'da ırkçı uygulama: Müslümanların ibadet yerleri kapatıldı
+-  Flüsse Stepenitz und Dömnitz: Hochwasser in der Prignitz erwartet
+-  Dois fazendeiros são presos suspeitos de envolvimento em assassinato de diretor de imobiliária no Nortão
+-  Hyundai to launch new Creta EV to take on one of the fastest-growing markets
+-  ماذا يحدث لجسمك عند تناول الافوكادو يومياً لمدة 90 يوماً؟
+-  Fallece Andy Garcia, humorista y cantante ecuatoriano
+-  La Biblioteca Nacional recibió libros sobre el papel de España en la construcción del Canal
+-  COP28: Líderes indígenas y sociedad civil exigen al Estado una transición energética justa y comunitaria
+-  Rechtse politicus dooft chanoekakaarsjes Pools parlement met brandblusser, mag parlement niet meer in
+-  Президентът на Анкарагюджю подаде оставка след боя над съдия
+-  «Барыс» официально представил новый тренерский штаб
+-  O româncă a jefuit un turist la metroul din Milano. Suma uriașă pe care o avea bărbatul într-o geantă
+-  Wegen Sparmaßnahmen: Bezirksamt Neukölln beschließt Haushaltssperre für 2024
+-  İsrailli esirlerin aileleri, "7 Ekim başarısızlığının" incelenmesini istiyor
+-  Arsenal'dan Galatasaray'a Boey teklifi! Yıldız oyuncusuyla takas
+-  Депутат польського Сейму загасив вогнегасником ханукальні свічки (відео)
+-  İsrail ordusu: Gazze Şeridi'nde yaralanan İsrail askerlerinin sayısı 600'e yükseldi
+-  Autolib': la justice rejette la demande de réparation du groupe Bolloré
+-  Renesančna slika z golimi ženskami sprožila krizo na francoski šoli
+-  (UŽIVO) KONAČAN RASPLET U LIGI ŠAMPIONA: Sevilja ponovo igra za Ligu Evrope, Junajted mora da sruši Bajern i čeka vesti iz Danske
+-  La Tesla Cybertruck tiene un modo para conducir a través del agua
+-  NHL:n superlupaus Connor Bedard kohtaa ensi kertaa McDavidin - "Ikäisekseen todella kypsä"
+-  Águilas del Zulia disputará sus últimos juegos en el Luis Aparicio durante la temporada regular
+-  Los alumnos del IES Juan Antonio Fernández corren para acabar con la leucemia infantil
+-  The world of Darkest Dungeon II, the first major DLC “The Binding Blade” released
+-  TFF Başkanı Büyükekşi ile İçişleri Bakanı Ali Yerlikaya özel görüşmede!
+-  Ticaret Bakanlığından 'kargo iade masrafları' ile ilgili açıklama: Kesinlikle söz konusu değildir
+-  Un nuevo vídeo de los vecinos de Salamanca: las ratas campan a sus anchas por la calle
+-  Svađa Urše Raukar sa zasutpnicama HDZ-a: ‘Sjetite se fotke iz 2017. Na tome ste dobili izbore!‘
+-  Junge SVP mit neuem Vorstand
+-  Ймовірність відставки Залужного та Наєва: Умєров розставив крапки над «і»
+-  El laberinto de los Kokorev: 20 años a la espera de juicio
+-  ACCIONA Energía y El Ganso lanzan las primeras zapatillas del mundo fabricadas con palas eólicas recicladas
+-  الرضوان تتأهب وترسانة حزب الله تستعد.. حسين مرتضى يعلن التصعيد ويفجر معلومات تجسسية مخيفة: يا ويلكن!
+-  Delta Festival: un événement qui se veut marseillais
+-  El 50% de los jóvenes españoles quiere tener un papel más activo en el diseño de las políticas climáticas
+-  Revuelo total en América TV por lo que sucedió con Yanina Latorre en LAM: «Siniestra, cínica»
+-  Ahmedabad News: अहमदाबाद शहर कांग्रेस के अध्यक्ष हिमतसिंह पटेल ने संभाला पदभार, जानें क्या दी चेतावनी
+-  Joachim Göser - ein Macher und Vorwärtsschauer
+-  Lammers trakteert op gebak bij Heracles en wordt ontslagen: ‘Verschrikkelijk kloten voor John’
+-  I don’t believe my son took his own life
+-  Thibau Nys duikt over ruim een week weer het veld in: “De honger is terug”
+-  Алпин се раздели със състезателния си директор Давиде Бривио
+-  Star Wars KOTOR: Disney afferma di comprendere quanto sia richiesto
