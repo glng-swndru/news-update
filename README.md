@@ -1,51 +1,51 @@
 # Latest News
--  ننشر نص مشروع القرار الذي قدمته مصر للأمم المتحدة بشأن وقف إطلاق النار في غزة
--  "محمود" يطلب تطليق زوجته: "بتقولي أنا شاكة فيك"
--  اللجنة العامة بالوادي الجديد تبدأ في "الحصر العددي" (صور)
--  "لا قطع رؤوس أطفال ولا اغتصاب نساء".. تحقيق يكشف ادعاءات إسرائيل بشأن 7 أكتوبر
--  مشهد يحبس الأنفاس.. العثور على أفعى سامة بمنزل في مكان غير متوقع
--  خبير عسكري يتوقع توقف الدعم الأمريكي لإسرائيل في يناير.. ويكشف السبب
--  نتنياهو: إسرائيل وأمريكا تختلفان بشأن مرحلة ما بعد حماس في غزة
--  الجوبي يحذّر: مرتفع جوي جديد يضرب اليمن
--  إطلاق تحالف «نحن من أجل السلام والبيئة»
--  Lyon: le Rhône et la Saône en crue, certains accès des berges fermés aux piétons et aux cyclistes
--  لانا نسيبة تؤكد التزام دولة الإمارات بدعم الشعب الفلسطيني
--  Entre enero y septiembre, FundaRedes registró 130 desaparecidos en diversas regiones de Venezuela
--  لجنة المقاولات والعقارات
--  Acusa Xóchitl que AMLO quiere ocultar información
--  Se desgarró la tráquea por aguantarse un estornudo
--  Video: Auto queda totalmente calcinado; acababan de pasarle corriente
--  Pide Congreso pronta resolución de amparos por el relleno
--  «صناع التغيير» يناقش تحديات الزراعة المستدامة
--  Benzemalı Al Ittihad, 3 golle turladı
--  Hamas'tan ABD'ye İsrail vurgusu: Fark etmelerini sağladık
--  İkinci elde motosiklet kararı
--  First North-bolaget gör nyemission
--  లారస్‌ ల్యాబ్స్‌ యూనిట్‌లో తనిఖీలు
--  Postigo, posible embajador de Argentina en China, destaca potencial de las exportaciones a Asia
--  ‘Kizz Daniel’s Twitter Request’ The Data Rush and Fans’ Generous Response
--  Pioli conosceva la situazione di Tonali? Ecco la risposta del tecnico rossonero
--  Светла Оцетова: Винаги съм съблюдавала е било условията в гребането да бъдат равни за всички състезатели - Труд
--  جنوب لبنان متوتر.. وقلق أمريكي من «الفسفور الأبيض»
--  «روما» يسجل ثالث أهدافه بالمونديال مع العميد
--  3 రోజులు ఆఫీసుకు రావాల్సిందే : ఇన్ఫోసిస్‌
--  بنزيما يعادل ميسي وسواريز ويقترب من رونالدو
--  تعاون بين «الاتحاد لخدمات الطاقة» و«مطارات دبي»
--  Wisconsin lawmakers weigh bipartisan ranked choice voting bill as opponents push to ban the method
--  Ahí viene la Concentración Navideña: 180 carros decorados desfilarán por las calles de Guamúchil
--  القصف الإسرائيلي يقترب من «الخط الأحمر» بين غزة ومصر
--  Season's eatings: Ten VERY different Christmas meals from around the world, from KFC in Japan to pickled herring in Sweden and prawns in Australia
--  DeSantis’ campaign and allied super PAC face new concerns about legal conflicts, AP sources say
--  Celeste Muriega y Christian Sancho ya disfrutan de una luna de miel que arrancó con un estresante inconveniente
--  Régimen de excepción: Reportan más de 200 muertes en las cárceles de El Salvador desde el inicio del plan para combatir a las pandillas
--  లండన్‌లో రూ.1500 కోట్ల భవంతి..
--  “Son al margen de la Constitución”: Feliciano Castro avala planteamiento de Rocha de quitar retenes
--  I'm A Celeb quitter Jamie Lynn Spears admits she had 'no clue what she was about to walk into' ahead of show as she reflects on her relationships with her fellow former jungle campmates
--  ¡Con más de 500 elementos de seguridad! Arranca el operativo Guadalupe-Reyes en Guasave
--  ادعموا الاتحاد
--  Kayla Itsines and Jae Woodroffe take their 11-month-old son to meet Santa Claus... but things don't go according to plan
--  Krisenstimmung bei "Bauer sucht Frau"-Steffen und Kathrin
--  “Era un muchachito de 20 años”: Diana Golden pierde a un familiar en la guerra Israel – Hamás
--  La actriz con raíces colombianas que triunfa con la nueva película de Los juegos del hambre
--  Палата представителей поддержала проведение расследования по делу об импичменте Байдена
--  Sainz Borgo celebra el eterno cosmopolitismo y la fresca osadía de David Gistau
+-  Govt.’s digital push snubs Lankan firms via discriminatory VAT vis-à-vis foreign firms
+-  Benzema i družina lako do polufinala SP za klubove
+-  Last moments of 3 teens including boxing champ killed in Coedely crash revealed as dad pays tribute to ‘my baby boy’
+-  Reality TV’s richest couples revealed from I’m A Celeb stars to Love Islanders – and Molly-Mae & Tommy aren’t number 1
+-  Milena Zárate recuerda cómo era su relación con Jonathan Maicelo: “Me dejó tirada en Nueva York” (VIDEO)
+-  Cessar-fogo só beneficia terroristas, diz Israel na ONU
+-  Tampa Bay's Festival of Lights expands drive-thru light display
+-  유한양행 ‘렉라자’ 美 이어 유럽서도 허가신청 ‘초읽기’
+-  “Pyro ist kein Verbrechen!” – Bayern-Fans zeigen Protestbanner
+-  Andreína Bravo prepara una venta de garage en pro de los animales
+-  NYPD Blue Season 8 Streaming: Watch & Stream Online via Hulu
+-  더 확대되는 '적정성 평가'‥'목표 달성'을 위한 방식으로 접근
+-  "의료기관 내 마약 관리 약사 및 수가 가산 필요"
+-  격화되는 '미만성 거대 B세포 림프종' 치료제 시장…다음 주자는?
+-  윤곽 드러낸 5기 상급종병 소요병상수…2천 증가·수도권 집중
+-  '의약품 품질관리' 식약처 방향 따라 울고 웃는 제약업계
+-  의료계 우려 속 시작된 '분석심사'‥심평원 "더 발전시킬 예정"
+-  듀카브 특허 못 넘은 제네릭 제약사, 대법원행 가능성은?
+-  "의협 총파업 투표 비공개 방침, 안팎 신뢰 잃는 방식"
+-  [단독] 영유아 RSV 예방백신 '베이포투스' 국내 상용화 가시권
+-  Justiça nega pedido de Flávio Bolsonaro sobre prestação de contas de ex-sócio em loja de chocolates
+-  Magaly arremete contra Maicelo por agredir a Samantha Batallanos
+-  AM de Lisboa aprova orçamento municipal para 2024 com abstenção de PS e IL
+-  NYPD Blue Season 7 Streaming: Watch & Stream Online via Hulu
+-  “تكالة” يرفض قرار “عقيلة صالح” إنشاء الهيئة العليا للحج والعمرة
+-  The 6 best hair straightening brushes in 2023, tested and reviewed
+-  Formalizan a sujetos por asalto a casa de alcalde de Zapallar y otros robos
+-  NYPD Blue Season 6 Streaming: Watch & Stream Online via Hulu
+-  Vučić održao skup u Novom Pazaru: 'Bošnjaka mora biti više u institucijama Srbije'
+-  Wall Street avança após dados de inflação dos EUA e antes do Fed
+-  Warning: A Fed Rate Cut Is Bad News for Stocks
+-  Former Olmsted County deputy used work time to solicit teens for sex, search warrant claims
+-  Liverpool FC welcomes Orion Innovation as its official digital transformation partner
+-  Au moins 5800 bâtiments menaçant ruine en Tunisie !
+-  Hiljade Slovaka protestovalo protiv planova vlade
+-  "ابن المعلمة" .. أحد "أخطر" تجار المخدرات في بغداد بقبضة الأمن
+-  Bosanac na prevaru uzeo preko 100.000 franaka socijalne pomoći
+-  İsrail'in Gazze'deki tünellere su pompalamaya başladığı iddia edildi
+-  Guyana economic growth estimates of 25%-30% a year are 'very conservative' amid oil production boom, President Ali says
+-  Kυκλοφοριακές ρυθμίσεις στις 14 – 15 Δεκεμβρίου στη Λεωφόρο Κηφισού
+-  B3SA3: B3 discute criação de horário estendido de negociação e ingresso no mercado de recebíveis imobiliários
+-  'Vegan' label may be turning off consumers, as study finds more people will pick up foods called 'healthy'
+-  Consulta la portada correspondiente al día 13 de diciembre de 2023
+-  TÁTO kaviareň sa poriadne vyfarbila: Nenávistné odkazy voči Židom aj nechutný dôkaz na VIDEU
+-  Policajtky si poriadne zavarili: NEUVERÍTE, s kým sa zabávali počas výcviku, pobúrená je celá krajina
+-  Znate li koliko puta Modrić u karijeri nije iskoristio kazneni udarac?
+-  أحمد حجازي يعلق على مواجهة ناديه السابق في كأس العالم للأندية
+-  Jamie Lynn Spears reveals surprising move after making ‘lifelong friends’ in I’m A Celeb
+-  Komentar Gordane Stojiljković: Raje v rejništvo kot k očetu
+-  Roma: lesione al flessore per Dybala, stop di tre settimane
