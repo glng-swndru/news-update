@@ -1,51 +1,51 @@
 # Latest News
--  [한국기행] 내 인생, 빨간 맛 2부-가거도의 맛, 장어국수
--  [세계테마기행] 알프스의 심장 오스트리아 2부-또 다른 알프스, 동 티롤
--  [생방송 투데이 맛집] ‘모둠회’ 맛집
--  서울시의회 제20기 정책위원회 출범, 위원장에 김원중 의원 선출
--  구미경 의원, “시민이 우리 공동체 위해 납부한 세금, 낭비되지 않도록 심도있는 심의할 것”
--  박춘선 시의원, 제5기 예산정책연구위원회 소위원장 선임
--  Samsung is preparing for foldable iPhone and iPad orders from Apple
--  Akshay Kumar plays volleyball with Tiger Shroff, Disha Patani, watch video
+-  Bölge tercihini yaptı! "Artık Türkiye ile sıkı bağ kuruyorlar"
+-  "ABD İsrail konusunda yalnız kaldı" eleştirisine sözcü Miller'dan ironik cevap
+-  Lojistik sektöründe "Yeşil Lojistik Belgesi" için başvuru tarihleri belli oldu
+-  Bakan Tunç'tan Halil Umut Meler'e yönelik saldırı hakkında açıklama
+-  Hakem Meler'i ziyaret eden Bakan Yerlikaya: Adalete inanıyoruz, nereye evrileceğini göreceğiz
+-  Hrant Dink cinayetinin tetikçisi Ogün Samast mahkemeye başvurdu
+-  İnsani ateşkesi reddeden Amerika'ya karşı 81 ilde tepkiler büyüyor
+-  Cumhurbaşkanı Erdoğan'dan hakem Meler talimatı
+-  Fransa'da göç yasa tasarısının görüşülmesi reddedildi
+-  Trabzonspor, Abdullah Avcı'yla bambaşka!
+-  Officers' Choice: Income Tax Search Against ABD That Owns World's Largest Selling Whisky
+-  "السعودية والإمارات ستموّلان إعادة إعمار غزة"
+-  Schneider Electric To Re-list On Metropolitan Stock Exchange As Per Sebi Directives
+-  ‘Merits determination’: SC regrets delay in listing reference against Zulfikar Bhutto’s death sentence
+-  100 किलो आटा, 25KG सत्तू... इस दुकान के लिट्टी-चोखा ने मचाई धूम
+-  Scouting wenst verzorgingstehuizen een warm hart toe
+-  Sonne, Mond und Planeten - Diese Sternschnuppen und Finsternisse erwarten uns 2024
+-  Les Houthis attaquent un pétrolier en mer Rouge
+-  "نحن في حالة حرب"... عبد الله: هذا أمرٌ غير مقبول!
+-  Иван Ченчев, БСП: Очаквахме Паметникът на Съветската армия да се окаже "опасен"
+-  Bunlara Dikkat: Evi Olan Tapusu Olan Bir Anda Beş Parasız Kalabilir!
+-  इस दुकान पर मिलता है स्पेशल रसगुल्ला, डायबिटीज के मरीज भी खा सकते हैं जमकर
+-  FIA F1マドリードGP計画は「まだ特別なステップが行われていない」
+-  "수익나면 배당금 나온다"…IFRS17 후속조치 마련
+-  मुश्किल में फंसीं सलमान की एक्ट्रेस, जेल जाते-जाते बचीं, कोर्ट से मिला ये आदेश
+-  신세계서울병원, 2023 메디컬 코리아 어워드 ‘내시경 수술’ 부문 수상
 -  Dit zijn de 5 meest gestelde vragen over waterlekkage: Dekt mijn verzekering de schade?
--  Labour Market Statistics
--  Nemački tehnološki div u ozbiljnom problemu: Kriza udara sa svih strana, skraćuju radnu nedelju na 35 sati, a onda sledi talas otkaza
--  Worried someone you know has a history of domestic violence? Ask.
--  JHL:n lakko sulkee torstaina Rauman uimahallin – Äijänsuon urheilukeskus pysyy auki
--  Bürgerumfrage 2022: Autofahrer finden, es wird zu viel für den Radverkehr getan
--  "المعاشات" توضح التزامات صاحب العمل في التسجيل والاشتراك عن المؤمن عليه
--  Tiroteio, furto e roubos a mão armada: violência assusta região da Faria Lima, CEP do mercado financeiro no país
--  Zugschubser bestreitet Tötungsabsicht im Hauptbahnhof Zürich
--  Prof. Dr. Oğuz Cem Çelik kimdir? Prof. Dr. Oğuz Cem Çelik ne iş yapmaktadır?
--  Súlyos következményei lettek az iskolakötelezettségi korhatár csökkentésének Magyarországon
--  OnePlus 12, le prime unità hanno problemi di assemblaggio
--  Jelang Debat, Gibran Ziarahi Makam Habib Kwitang dan Blusukan Temui Nelayan
--  Rwanda bill must pass to ensure £290m plan is not ‘waste of money’, says new immigration minister
--  ”Omenapuun alla” ja Anne Meskanen-Barman voittoisa taideyhdistelmä Pikkolan pienten lasten yksikön kutsukilpailussa
--  HNX: Kết quả giao dịch Trái phiếu doanh nghiệp ngày 12/12/2023
--  HDB: Thông báo thay đổi địa điểm PGD Phú Bình - CN Thái Nguyên
--  HAX: CBTT Nghị quyết HĐQT thông qua việc tái cấp HMTD tại VCB Hải Dương
--  CRE: CBTT Nghị quyết HĐQT thông qua việc gia hạn Trái phiếu CRE202001
--  Summer of ’69, and six other sexy songs by unf**kable artists
--  BRI BRILIANPRENEUR Jadi Pembuka Jalan Bagi Produk Pakaian Ini
--  France télévisions supprime de sa programmation l’ensemble des films de Gérard Depardieu : jusqu’où doit aller l’exemplarité ?
--  Faesers Rückführungsquote - 56,5 Prozent der Abschiebungen scheitern
--  حملة السيسي: استمرار عقد غرفة العمليات لمتابعة اليوم الثالث للانتخابات
--  طوابير وحضور نسائي.. إقبال كثيف على لجان الانتخابات بالوراق في اليوم الأخير
--  الصحة: فحص 11.6 مليون مواطن ضمن مبادرة "الأمراض المزمنة والاعتلال الكلوي"
--  Strictly star breaks down in tears during live interview
--  15 pemuda Palestin ditangkap dalam siri penahanan Israel
--  'Is baby No 2 confirmed?': Virat Kohli, Anushka Sharma twin in black, celebrate 6th anniversary ; fans spot Abhishek Upmanyu
--  मुख्यमन्त्री कार्की सवार कारमाथि ढुङ्गा प्रहार
--  OPET DOJAVA O BOMBI U SVIM ŠKOLAMA U BEOGRADU Pretnje ne prestaju, đaci ponovo evakuisani
--  गिद्ध संरक्षणको सन्देश दिन नाटक
--  पाल्पा स्कुल कपको उपाधि होराइजन माविलाई
--  PONOVO DOJAVA O BOMBI U BEOGRADSKIM ŠKOLAMA: Pretnje danima ne prestaju, đaci evakuisani
--  ZNAM JA SVE TAJNE ANĐELOVE MAME IAKO NISAM NJEN NIVO Ovako je Goca Džehva ratovala sa nesuđenom prijom
--  नागरिक सुनुवाइमा प्रहरीकै गुनासो:‘सञ्चार सेवा भरपर्दो नहुँदा घटना न्यूनीकरणमा समस्या’
--  La saliva: una aliada para detectar el dolor en personas con demencia
--  وسائل إعلام إسرائيلية نقلا عن مصادر عسكرية: اعتراض صواريخ أطلقت من لبنان باتجاه سهل الحولة في الجليل الأعلى
--  Renault va vendre jusqu'à 5 % du capital de Nissan
--  EastEnders airs utterly devastating scenes as Linda Carter’s world is destroyed by vile Dean Wicks in brutal move
--  Turkish club president arrested for punching referee
--  Tenesi preokretom iznenadio Majami VIDEO
+-  2023 Uganda Rugby Award winners
+-  Akkuyu Nükleer'e ilk reaktör için izin çıktı
+-  Studie zu Tirzepatid: Deutlicher Jo-Jo-Effekt nach dem Absetzen von Abnehmmittel
+-  Studie zu Tirzepatid: Deutlicher Jo-Jo-Effekt nach dem Absetzen von Abnehmmittel
+-  Netikėta. „Su kiaušinių dingimu Rusijoje... susijęs Lukašenka.“ Kas vyksta
+-  Režimu non stop. „Vyksta įdomūs ir labai keisti dalykai“
+-  Rusija ruošiasi karui prieš NATO. ISW skelbia įrodymus
+-  Prancis Setop Danai Sekolah Muslim Terbesar karena Ajarkan Etika
+-  "늠름하게 경례할게요"…'전원 군백기' 방탄소년단이 전한 '팬사랑' [MD이슈](종합)
+-  금새록(Keum Sae Rok), 훈남들 사이에서 함박 미소 활짝!
+-  "강남경찰서 접수 확인"…'후배 폭행 진실공방' 김하성, 임혜동 '명예훼손' 추가 고소 [공식입장]
+-  "100분 해전"…이순신 3부작 피날레 '노량', 더 커진 스케일→깊은 감동 담았다 [MD현장](종합)
+-  비엘헬스케어, 광동제약 임직원 3명 사내이사 선임 예정
+-  '日 힙합 여제' 에이위치, '딩고 프리스타일'로 인사…내한 공연 예고
+-  유아인 법정서 “직업은 배우입니다”, 대마흡연만 인정…사기혐의는 무엇인가?[MD이슈](종합)
+-  “다저스가 야구를 망쳤어” 오타니 8928억원 연금수령? 2024년 연봉 팀 내 17위…역대급 꼼수에 美팬들 ‘충격’
+-  '독전2' 측 "티아라 아름 現연인=각본 참여? 크레딧에 이름 없어" [공식입장]
+-  [오피셜] 김도균 감독, 수원FC에 '승격-잔류' 남기고 아름답게 이별...서울이랜드 부임 유력
+-  "음바페 9번의 광기를 멈춰라!"…엔리케의 명장병? 전문가 추천 "左 음바페-右 이강인으로 하라고!"
+-  В Кремле намерены следить за встречей Байдена и Зеленского
+-  El PGA Tour suspende a Jon Rahm tras firmar con el LIV Golf
+-  সগিরা মোর্শেদ হত্যা মামলা: নিজেদের নির্দোষ দাবি করলেন আসামিরা
+-  [종합] 제주4·3평화재단 조례 개정안 도의회 상임위 '통과'
