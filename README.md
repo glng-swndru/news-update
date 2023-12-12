@@ -1,51 +1,51 @@
 # Latest News
--  제주 호텔서 전화번호 변작 중계기 발견...경찰 수사
--  रतन टाटा को इस सरकारी कंपनी ने पछाड़ा, 10 दिन में बनाया रिकॉर्ड
--  Разведка и обезвреживание: российские сапёры разминировали боеприпасы в ЛНР
--  PRIME Hydration now available in Cyprus!
--  Zara regrets ‘misunderstanding’ over photoshoot after Gaza boycott calls
--  Konya’dan aldığı kaçak Afganları İzmir’e götüren şahıs, yolda yakayı ele verdi
--  Android Telefonlar, Kullanıcıları Dolandırıcılardan Koruyacak: İşte Yeni "Anti-Oltalama" Özelliğinden İlk Bilgiler
--  Microsoft, "Sadece Faydalı Teknolojiler Geliştirmek İçin" Çalışanlarıyla Yapay Zekâ Odaklı Toplu Sözleşme İmzaladı
--  Megújult a hunyai bekötőút
--  L’Intelligence artificielle, ses défis, ses opportunités et l’ONU ? Un colloque ce mercredi à la faculté des sciences juridiques
--  Un INAI para todas y todos
--  News24 Business | SA watchdog to pursue large supplier for allegedly charging hardware store higher prices
--  Postal strike to delay letters from Santa
--  الزراعة: مد العمل بقرار وقف تصدير البصل حتى 30 مارس 2024
--  بعد تناول وجبة دسمة.. 5 طرق صحية تساعدك على الهضم
--  البورصة ترتفع في بداية تعاملات اليوم الثلاثاء
--  انخفاض أسعار الطماطم والبطاطس وارتفاع الخيار بسوق العبور اليوم الثلاثاء
--  Ancient Wisdom Part 33: Eating sesame seeds can lower cholesterol, manage diabetes; know all benefits
--  Hydrocyclone Separators Market Analysis and Future Prospects for 2030
--  Biocides Market worth $17.53 billion by 2030, growing at a CAGR of 5.64% - Exclusive Report by 360iResearch
--  피팅·밸브 분야 선도 기술로 지역 먹거리 책임진다
--  [2023 창원문화지도] 걸으면서 만나는 전통과 문화예술, 그 응축된 이야기
--  Песков: финансирование Украины Соединёнными Штатами обречено на фиаско
--  경남 청년 4% 은둔형 외톨이…"도 지원센터 설립해야"
--  김수영 국민의힘 도당 부위원장, 창원 마산합포 총선 출마
--  총선 예비후보 등록…여 "국정 안정론" 야 "정부 심판론"
--  우주항공청법, 여야 2+2협의체 논의 법안 포함
--  홍남표 창원시장 '신산업 육성·도시공간 연결' 마산 발전전략 제시
--  창원시 농어촌 지역 상수도 공급 확대
--  Aytunç Erkin yazdı: 500 milyar dolarlık altını devlet neden çıkarmıyor?
--  Ryan vacates NA after emotive pay dispute
--  Ryan vacates NA after emotive pay dispute
--  Dončić se posle velikog podviga rugao domaćim navijačima VIDEO
--  Desingerica napravio haos u Opatiji: Lupao Hrvate patikom po glavi VIDEO
--  Zeienopruff: Police sicht zwee Täter no gewalttätegem Iwwerfall zu Déifferdeng
--  Csv Vios 1- EFC 58 1
--  Huthi-Rebellen greifen norwegischen Öltanker im Roten Meer mit Marschflugkörper an
--  Government moves to mitigate livestock deaths in Matabeleland North
--  Spread Spectrum Clock Generator Market - Global Industry Perspective Comprehensive Analysis And Forecast, 2023 - 2029
--  Distributed Acoustic Sensing (DAS) Market Disclosing Latest Advancement 2023 to 2028 Russo-Ukrainian War
--  Na programu americká inflace, investoři si před ní věří
--  Organiser of Vikasit Bharat Yatra booked for flag code violations
--  NMMC to develop last cell for solid waste disposal at Turbhe landfill
--  Police names and shames drug dealers
--  NOVA: ΔΩΡΕΑΝ πρόσβαση στην EON για όλους
--  Zelenskyi tapaa Yhdysvaltain johtoa myrskyn keskellä – Tästä on kyse
--  '춘천 -3도' 내일 전국 영하권 '강추위'… 낮 부터 평년기온 회복
--  Uncharted, grandi notizie per i fan del Nathan Drake di Tom Holland! E arrivano direttamente da Sully
--  Hertha BSC: Skandal um Cigerci-Klub Ankaragücü, Präsident prügelt Schiri nieder
--  Vajza 24-vjeçare humbi jetën në aksident/Ish-deputeti Tavo mesazh: Asgjë nuk e zhbën humbjen e madhe të familjes tonë
+-  حدث فلكي نادر يحدث مرة في العمر.. ما قصة انفجار منكب الجوزاء؟
+-  YOİKK, Cumhurbaşkanı Yardımcısı Yılmaz başkanlığında toplandı
+-  "UEFA Başkanı aradı" TFF'den Halil Umut Meler açıklaması
+-  Güney Çin Denizi'nde sular durulmuyor: Filipinler Çin büyükelçisi bakanlığa çağırıldı
+-  Mahmud Abbas'ın Moskova ziyareti için yeni bir tarih belirlenecek
+-  Baykar'ın İHA test ve geliştirme merkezleri yatırım alanları kapsamına alındı
+-  FIFA Başkanı Infantino'dan Halil Umut Meler açıklaması
+-  BCL, ΑΕΚ: Το μίνι ντοκιμαντέρ με πρωταγωνιστή τον Πλάθα σε βάζει στα... άδυτα της ομάδας (vid)
+-  Prežije rodičovský dôchodok aj v ďalších rokoch? Je diskriminačný a treba s ním niečo robiť, tvrdí Tomáš!
+-  Jedinečné riešenia pre váš domov či podnik: TOTO Vám pomôže vytvoriť priestor, ktorý bude odrážať vašu osobnosť a štýl
+-  Kvetka Horváthová ukázala dcéru: Wau, doma má takúto veľkú a krásnu slečnu!
+-  VIDEOROZHOVOR Topmodelka Kociánová: Na „babinu“ si vždy nájdem čas. Vráťme našim starým rodičom dôstojnosť!
+-  Záhadná smrť fotografa celebrít: Odísť mal v spánku, bude smrť vyšetrovať polícia?
+-  SIG Weekly Mainline Service Launched Linking Southeast Asia And Middle East
+-  New Scheme On Anvil To Boost Electronics Component Manufacturing: MeitY Secretary
+-  Willow Wicker Skill Up-Gradation Centre Established In Kachan, J&K
+-  DWU Urges Gujarat Govt To Resume ‘Ratnadeep Yojna’ Scheme For Diamond Artisans
+-  Special Economic Zone Proposed In Bihar Ahead OF Global Investor Meet
+-  Σκρέκας: Στις 15 Δεκεμβρίου το «καλάθι του 'Αη Βασίλη»
+-  Ζ. Μπορέλ: Σκηνικό «Αποκάλυψης» στη Γάζα
+-  노동계 옹호 민원 MBC 라디오 '행정지도', 잘못 사실 전한 TV조선 '문제없음'
+-  방통위원장 후보 김홍일 권익위원장, 언론장악 어떻게 도왔나
+-  "팩트체크 지원 중단 정치권 외압 의혹 퍼즐 조각 맞춰지고 있다"
+-  ACRODEPRODU dedicarán premiación cronistas del año 2023 al periodista José Suriel
+-  Büyükekşi'den EURO 2032 açıklaması: İptal söz konusu değil
+-  17 bilişim ve telekomünikasyon firmasına rekabet ihlalinden para cezası istemi
+-  Özgür Özel PKK'nın siyasi kolu DEM'den destek isteyecek
+-  МВФ спрогнозировал срок окончания конфликта на Украине
+-  Ranbir Kapoor Networth : कोट्यवधींचा मालक आहे आलियाचा नवरा; चित्रपटांव्यतिरिक्त रणबीरची कमाई काय?
+-  '매호대전 다시 펼쳐진다' 마이애미, 내년 2월 사우디서 알 나스르와 맞대결
+-  A-League pitch invader who threw bucket at goalkeeper appeals jail sentence
+-  В Кремле заявили, что западная помощь не поможет Украине на поле боя
+-  O ano da queda do Governo de maioria absoluta e da crise com eleições
+-  Зеленский назвал численность украинских сухопутных войск
+-  "صفقة" في فلسطين وأخرى في الجنوب.. هل يسلم الحزب سلاحه مقابل مزارع شبعا؟
+-  Hoax call claiming bomb at Raj Bhavan sends Bengaluru cops into tizzy
+-  How to Get Tretinoin .05Percent(Retin-A) Online for Glowing Skin [2024]
+-  Global pressure mounts for Gaza ceasefire as Israel, US face growing isolation
+-  立憲民主党 党の政治資金パーティー開催 当面見送り
+-  Bakan Yerlikaya'dan hakem Meler'e ziyaret: Adalete güveniyoruz
+-  증평군 관광기념품 공모전 '선애주' 대상
+-  LO vill se sänkt ränta så snart det går
+-  "별똥별 쇼 보자" 증평 좌구산천문대서 14~15일 유성우 행사
+-  Ποινική δίωξη σε βάρος 23 προσώπων για το σιδηροδρομικό δυστύχημα στα Τέμπη
+-  VIDEO Reacția virală a echipei din Liga 6 care a aflat că va juca în Cupa Franței cu PSG
+-  Стопанин откри кучето си застреляно в Павел баня
+-  Виплати та житло для українців у Ірландії: голова уряду розповів, що кардинально зміниться
+-  Guerre en Ukraine: "Toute nouvelle aide américaine à Kiev sera un fiasco", estime le Kremlin
+-  송인헌 괴산군수, '2023 올해의 지방자치 CEO' 선정
+-  Петербургский фонд показал, как загорают нерпы Крошик и Шлиссик
