@@ -1,51 +1,51 @@
 # Latest News
--  [MD포토] 있지 유나 '와인빛 헤어에 한 번, 눈빛에 한 번 더 취하겠네'
--  사실상 커리어 로우→'6억엔' 사인…'7억 달러' 오타니에 자극받은 '56홈런' 거포 "ML 진출 마음 더 커져"
--  [MD포토] 있지 '새벽을 깨우는 아름다움'
--  [MD포토] 있지 채령 '올블랙으로 시선을 한 몸에'
--  [MD포토] 있지 예지 '아름다운 데님 패션'
--  [MD포토] 있지 유나 '새벽에도 완벽한 인형 미모'
--  [MD포토] 있지 예지 '아름다운 데님 여신'
--  [MD포토] 있지 채령 '올블랙 아름다운 자태'
--  [MD포토] 문가영 '코트 속 스키니 몸매'
--  [MD포토] 문가영 '코트 안은 더 화려해요'
--  [MD포토] 문가영 '감출 수 없는 선명한 11자 복근'
--  [MD포토] 이동휘 '나도 하트'
--  [MD포토] 차주영 '새벽에도 완벽한 아름다움'
--  2023's Wildest Sci-Fi Show is Bringing Back Its Most Underrated Secret Weapon
--  SC reserves order on Section 6A of Citizenship Act
--  2 IAS, 2 JKAS Officers Shifted
--  وزارة الصحة في غزة: ارتفاع عدد القتلى الفلسطينيين جراء الحرب الإسرائيلية على غزة إلى 18412
--  Sensacyjne wieści ws. gwiazdy Lecha Poznań. Agent negocjuje z dużym klubem
--  Omar plea seeking divorce dismissed
--  Crean computadora con Tejido cerebral humano
--  العاهل الأردني ونظيره الإسباني يناقشان الجهود لوقف إطلاق النار في غزة
--  Izraelci počeli pumpati morsku vodu u Hamasove tunele
--  Suspicious gadget found in Samba
--  Top New York Court Orders New Congressional Districts In Major Win For Democrats
--  Pep Gvardiola najavio duel sa Crvenom zvezdom: Igramo protiv velikog kluba, evropske institucije
--  Jorge Macri pisa fuerte y remueve la cúpula de la Policía de la Ciudad
--  Handball: Füchse Berlin erreichen in Bietigheim locker Viertelfinale im DHB-Pokal
--  Woman among 4 held in Bandipora
--  2 in custody following ‘pedestrian incident’ in northeast Calgary: police
--  Diego Alonso: "El resultado es cruel"
--  نتنياهو "يعترف" بالخلاف مع الولايات المتحدة بشأن مستقبل غزة
--  «Falleció»: angustia en América TV por lo que se escuchó en el ciclo de Mariana Fabbiani
--  “Ndoshta dhe vetë Rama”- Mërtiri: Dikush i dha garanci Berishës të dilte kundër SPAK
--  Combating inequality for disaster risk reduction
--  Night temp stays sub-zero
--  Carlos Mouriz: "El Sevilla va a poder disfrutar de nuestra fiesta"
--  Ez durva! Egy férfi a pénisznagyobbítása segítségével szökött meg a börtönből
--  El petróleo de Texas baja casi 4 %, a 68,61 dólares
--  Legacy of Hazrat Umar (RA): From Humble Beginnings to Magnificent Leadership
--  Τι περιείχαν οι φάκελοι για την οπαδική βία που έφτασαν στον Άρειο Πάγο: Χούλιγκανς, μπράβοι, ναρκωτικά
--  Lula anuncia evento para 8 de janeiro para recordar tentativa de golpe
--  Organizador de concierto de Romeo Santos cumple condena en El Rodeo II
--  White House lays out offer on immigration changes in talks with Congress
--  Temas del día de EFE España del miércoles 13 de diciembre de 2023
--  Farmer: Mirko Šijan se odvaja od tašte i tasta, otvara svoju farmu pilića, Gocin sin ulazi u biznis sa živinom
--  Canadians dominate first Professional Women’s Hockey League rosters
--  Ohtani’s Dodgers contract has $680 million deferred, lowering tax value to $46 million annually
--  الرئيس الصومالي يستقبل المبعوث الخاص لوزير الخارجية
--  El once de la jornada
--  Greg Fergus should not resign if he apologizes and pays fine, NDP say
+-  الوطنية للانتخابات: تمكين آخر ناخب بجمعية الانتخاب من التصويت ثم الفرز
+-  بدء أعمال الفرز في اللجان الفرعية في بني سويف
+-  الأمم المتحدة: يجب أن تتوقف مذبحة المدنيين الجارية حاليا في قطاع غزة
+-  حزب الوفد يصدر بيانا بعد انتهاء التصويت بانتخابات الرئاسة 2024
+-  "كنتم قد المسئولية".. تنسيقية شباب الأحزاب توجه الشكر للشعب المصري
+-  "ملاقاة نادي القرن".. خليل البلوشي يعلق على فوز اتحاد جدة
+-  مسؤولون أمريكيون: نتنياهو الوحيد من يرفض حكم السلطة الفلسطينية لغزة
+-  "هات اللي بعده".. جماهير الاتحاد تعلق على التأهل ومواجهة الأهلي
+-  Newcastle Milan, i tifosi rossoneri non lasciano la squadra: ecco quanti voleranno in trasferta
+-  Damning new poll reveals Scots more unhappy than ever with SNP after ’16 years of failure’
+-  Ligue des champions : Fulgini délivre Lens, une heure en enfer pour les Nordistes... Les tops et les flops
+-  Old North Coast Hiawatha Amtrak rail line on track to run again
+-  Nicosia Turkish Cypriots join European Coalition of Cities Against Racism
+-  Sindh teachers react to govt’s decision to hand over education boards to commissioners
+-  Britisches Parlament stimmt für Gesetz zu Ruanda-Abschiebungen
+-  Freistaat Sachsen fördert Kooperation des tjg. theater junge generation Dresden mit der Theatergruppe Laika Antwerpen
+-  Minister urges collaborative investment in robust health systems on UHC Day
+-  Anne Hathaway almost played a major villain in Sam Raimi’s Spider-Man 4
+-  Robber killed, man injured in fire exchange
+-  Erling Haalandista kuultiin sekä hyviä että huonoja uutisia
+-  Sergio Ramos teki historiaa Mestareiden liigassa
+-  Rauman Lukolle todella kovan luokan välierävastustaja - Valtteri Filppula ja Sami Vatanen raumalaisten riesaksi
+-  رئيس المجلس الرئاسي يستقبل ممثلة البنك الدولي في ليبيا
+-  Tommy DeVito’s agent issues challenge to Peyton Manning after ‘slimy’ nickname
+-  Distt admin assures protesters to release funds within three days
+-  Kullanıcılar TikTok'ta 10 milyar dolar harcadı
+-  Μπάιντεν σε Ζελένσκι: «Μην τα παρατάτε, θα παραμείνουμε στο πλευρό σας»
+-  Democrats are badly divided on Israel, and GOP isn't making it easier
+-  بثنائية نظيفة الأهلي طرابلس ينتزع صدارة المجموعة الثانية
+-  Pakistani forces capable of destroying enemy: CM Baqar
+-  Kraj! SAD su shvatile, ovako ne može! Bajden saopštio premijeru Izraela užasavajuće vesti
+-  מקורות: עסקת חטופים עוד רחוקה, אך יש שיחות גישוש בסיסיות על פתיחת מו"מ
+-  Ezt mondta a válófélben lévő férjéről Britney Spears
+-  Democrats are badly divided on Israel, and GOP isn't making it easier
+-  André Ramalho en Peter Bosz eensgezind over PSV: ‘Dit heeft het team verdiend’
+-  SimBioSys Presents New Data for Breast Cancer Personalized Medicine Platforms at the 46th Annual San Antonio Breast Cancer Symposium
+-  Best XRK Stalker loadout for Warzone Season 1
+-  RJ Mall fire fact finding report released
+-  Speaker Johnson Says Spying Authority ‘Must Be Dramatically Reformed’
+-  Howard Webb explains Arsenal decision vs Aston Villa after Ian Wright rant
+-  La empresa Avangreen considera que Melilla encaja en sus proyectos
+-  Victoria de Epic sobre Google amenaza sector de tiendas de aplicaciones
+-  Aaj Ka Kanya Tarot Card: कन्या राशि वाले परिवार के लोगों की बातों को अनदेखा न करें. पढ़ें अपना राशिफल
+-  Podemos estar a assistir a pico de infeções e fármaco preventivo só é administrado na Madeira. O que se sabe sobre vírus sincicial respiratório?
+-  “O bicho atacou o coração”: rapaz de sete anos morre vítima de intoxicação alimentar após jantar de almôndegas e arroz
+-  Čim je ušao u "Elitu", krenuo Anitu da muva, a sada ovim pitanjem pokušao Jovanu da spusti
+-  Pogledajte gde su smešteni fudbaleri Sitija (VIDEO)
+-  Ağ Evdə KRİTİK GÖRÜŞ: Zelenski o anı gözləyir, Bayden isə söz verib ki...
+-  «Питтсбург» — «Аризона»: смотреть трансляцию матча НХЛ (видео бесплатно онлайн)
+-  Com sala de espera cheia, diretor do Hospital Dona Estefânia alerta para risco de burnout dos profissionais de saúde
