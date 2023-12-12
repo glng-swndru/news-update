@@ -1,11 +1,51 @@
 # Latest News
--  เตือนเฝ้าระวัง "ไวรัสซิกา" อ.หัวหิน พบป่วยแล้ว 6 คน-เร่งคุมโรค
--  राप्रपा केन्द्रीय समिति बैठक पुस १ देखि ३ गते काठमाडौँमा
--  CLB Phú Thọ “doạ” bỏ giải Hạng Nhất vì... trọng tài
--  MRF: Quyết định chấp thuận đăng ký giao dịch bổ sung
--  CEO FPT chỉ ra 'cơ hội vàng' để Việt Nam trở thành Trung tâm Bán dẫn Thế giới
--  GAS: PV Gas ước lãi cả năm giảm 24% về mức 11.500 tỷ đồng
--  Grlić Radman: Rekao sam u Briselu da BiH treba biti nagrađena
--  Altında endişeli bekleyiş! Rekor sonrası sert geri çekildi...
--  제주 카지노 관광진흥기금 놓고 업계-학계 이견
--  جلالة السلطان يهنئ رئيس كينيا
+-  kt wiz, 벤자민과 총액 140만달러 재계약… 외국인 선수 구성 완료[오피셜]
+-  맹승지 비키니, 옆에서 보니 더 아찔한 볼륨감
+-  Watch: Tamannaah, Vijay dance to `KANK` song at Randeep-Lin reception
+-  Comanda Tommy DeVito al triunfo a Giants
+-  মালকা বানু ও মনু মিয়ার প্রেম
+-  Två personbilar krockade i korsning i Åbo
+-  ปปง.แถลงยึดทรัพย์กว่าพันล้าน
+-  Rekordmange er begyndt at få førtidspension i år
+-  Cyprus Business Now
+-  French parliament rejects Macron's immigration bill
+-  Award-winning SA musician Zahara passes away at 35
+-  Gaza deaths pass 18,200 as battles rage
+-  Storm-damaged Clarence Drive reopened to one-way traffic
+-  Cabinet approves bill for tabling in Parly to create holding company for SOEs
+-  풀무원, '풀무원지구식단' 모델에 이효리 발탁 ... 광고모델은 창사이래 처음
+-  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
+-  बाइडेन ने इज़राइल के लिए 'अटल समर्थन' का किया दावा
+-  Haushaltskrise: Wirtschaft fordert Koalition zu baldiger Einigung auf
+-  विदेश की खबरें | यूरोपीय संघ समर्थक डोनाल्ड टस्क पोलैंड के प्रधानमंत्री बने
+-  Le probabili formazioni di Union Berlino-Real Madrid: Ancelotti insegue la sesta vittoria
+-  Wararkii Ugu Danbeeyey Xaalad cakiran oo ka taagan Khan Yunis koonfurta Qasa
+-  Latest Gold-Silver Prices Today: గోల్డ్‌ కొనడానికి కరెక్ట్‌ టైమ్‌ ఇదేనా? - రోజు బంగారం, వెండి కొత్త ధరలు ఇవి
+-  Dixon Technologies Secures Major Manufacturing Contract With Lenovo Under Revised PLI Scheme
+-  Von Moltke: Olympia hat Leichtathletik „totgemacht“
+-  Kekal menteri, Azalina hargai keyakinan PM
+-  نواز شریف کی العزیزیہ ریفرنس سزا کیخلاف اپیل پر سماعت آج ہوگی
+-  Заведующая российским детсадом уволилась из-за грамот с гербом Украины
+-  Bhatkhande varsity- Sri Lankan s finesse to be awarded gold medal in Kathak at 13th Convocation
+-  헤어진 여친 집에 몰래 들어가 끔찍한 행동…20대男에 이유 물어보니
+-  ثلاثة ألغاز أثرية يمكن للذكاء الاصطناعي حلها قريبا!
+-  Vam je všeč? Tako novost pripravlja Porsche. #foto
+-  ['2023 대한민국 경제교육대상'에 강원 전인高...단체 부문에선 '예보'
+-  [서울대 기숙사 삼거리서 40대 배달기사 마을버스에 치어 숨졌다
+-  [현대차그룹 4개사, ‘건강친화기업’ 인증 획득…“임직원 건강 근무 지원”
+-  [<신제품·신기술>종근당, 간 건기식 ‘이뮨듀오 밀크시슬 트리플샷’
+-  ["화장실 좀 쓸게요"…농가 주택 들어가 돈 훔친 30대
+-  [[김태열의 생생건강S펜] "마이코플라즈마 폐렴, 궁금증 A~Z까지"
+-  [‘토이플레이션까지…“크리스마스 어쩌나” 한숨 깊어지는 부모들
+-  [“주차요금, 차 안에서 내세요” 현대차·기아, 현대百과 카페이 도입 MOU
+-  [순천출마 김문수, 소병철·서갑원 등 '모두까기'
+-  [“자동차 구매 수요 증가” 中 신에너지차 생산·판매 11월 첫 동시 100만대 돌파
+-  [“승인 후 재방문 없어도 됩니다” 부산은행, 비대면 대출전자약정 서비스 확대
+-  [퓨저니스트, OKX 점프스타트 선정 발표
+-  [부족한 투자금 고민, 월 0.4%대 금리의 더머니스탁론이 해결해드립니다!
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [경과원'스타트업 해외 진출 교두보' G-FAIR KOREA 설명회 개최
+-  [곽재선문화재단, 청년작가 공모전 ‘플라이 영 아티스트’ 시작
+-  Lawinenabgang in den Dolomiten: Mann wird 300 Meter mitgerissen
+-  Travis Kelce, but Not Taylor Swift, Makes Google’s 2023 Year in Trending Searches List
+-  В Русском театре Калмыкии откроют творческую мастерскую для детей с ОВЗ
