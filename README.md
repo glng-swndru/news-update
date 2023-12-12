@@ -1,51 +1,51 @@
 # Latest News
--  Palestinians killed in West Bank’s Jenin, UN to vote on ceasefire
--  הישראלים שמלמדים רכב לזהות נהג עייף גייסו 7.25 מיליון דולר
--  Онколог перечислил неочевидные проявления опухоли мозга
--  В Кировской области могут включить в календарь семь региональных праздников
--  Netanyahu vows to block Palestinian Authority from Gaza rule
--  Manchester United-Bayern, le formazioni ufficiali: ten Hag si affida a Hojlund, sfida con Kane
--  Afar nin oo ku eedeysan dilka laba nin oo wada dhashay oo lagu qabtay Degmada Cadale
--  Itália é economicamente virtuosa, afirma premiê ao Parlamento
--  PLENKOVIĆ "Vidjeli smo razotkrivanje MOST-a"; RASPUDIĆ "Hvala na reklami, Plenković je baja"
--  Post-Polycythemia Vera Myelofibrosis Pipeline Analysis (2023) Covering Clinical Trials, Emerging Therapies, FDA, EMA, and PMDA Approvals, Competitive Landscape | Kartos Therapeutics, Parexel, Incyte, Celgene, Lynk Pharma, Imago BioSciences, Karyopharm
--  Gífurlegur skortur á algengum verkjalyfjum í landinu – „Vonast er til að lyfin verði fáanleg aftur í kringum áramót“
--  Zum Prozess gegen Andrea Tandler: Geldgier ist nicht strafbar
--  TMW News - I segreti del Bologna. Lazio, ripartire con l’Atletico
--  South Africa to release 2 500 MW nuclear RFP by March, despite electricity plan review
--  Ramaphosa announces establishment of R1bn Presidential PhD Initiative to drive STI
--  Eicher enters the local bus market with new 36-seater
--  Nedbank acquires Eqstra to boost fleet management
--  Growthpoint lets first two of six Arterial Industrial Estate units in Phase 1
--  Israel pierde apoyo por ataques en Gaza, dice Biden
--  Impugna FGR fallo por residencia de Lozoya
--  “Club Entreprises”: Saweblia, la plateforme qui simplifie le dépannage et la réparation à domicile
--  Grmoja otkrio: 'Dobivao sam informacije od novinara...Šurovat ću sa svima koji su se spremni pokajati'
--  Notre sélection de films en DVD à offrir pour les fêtes de fin d’année
--  الطرابلسي: توصلنا لحل جذري لمشاكل المنافذ البرية بين ليبيا وتونس
--  Getafe græðir á því sama hvort félagið kaupi Greenwood eða ekki
--  New parkour classes seek to boost fitness and mental health for young people in Nairn
--  Biden must end ‘strategic ambiguity’ on Taiwan
--  Юный курский пианист стал лауреатом международного конкурса имени Шопена
--  No one goes to a sporting contest just to watch the rain
--  Miss France 2024 : Maxime Teissier (Miss Languedoc 2023) dévoile son impressionnant résultat aux championnats de France d'équitation
--  Tter Stegen’s surgeon confirms how much time he’ll miss
--  Gladys Knight to kick off Farewell Tour in Perth next March
--  Når må en universitetsrektor gå?
--  So luftig: Rezept für Tiramisu, das perfekt in die Weihnachtszeit passt
--  ৩১৪ জন চরমপন্থীর আত্মসমর্পণ, পেলেন ১ লাখ করে টাকাও
--  Epic trumpets surprise victory in its lawsuit against Google: 'A win for all app developers and consumers around the world'
--  Оккупант снял колонну российской техники, уничтоженной на подступах к Авдеевке
--  La loi sur le mécénat fête ses 20 ans en attendant un enrichissement
--  A Paris, le vote du budget divise au sein même de la majorité d'Anne Hidalgo
--  Le président de la Société des amis du Louvre sur la sellette
--  Mistral AI, incarnation des espoirs français dans l'intelligence artificielle
--  A Blois, parents et professeurs des écoles se battent pour les enfants sans toit
--  Amazon confronté à une déferlante de « faux livres » générés par intelligence artificielle
--  Plongée dans les archives de l'esclavage du Lloyd's : comment chercheurs et artistes ont tenté d'humaniser les esclaves réduits à des numéros
--  Clap de fin pour l'E3, le salon le plus influent de l'industrie du jeu vidéo
--  Rafael Márquez alza la mano para dirigir al equipo del Barcelona
--  Analysts: Tusk’s Poland to be ‘Same’ as Kaczyński’s ‘Only Without the Shouting’
--  Zavlačujejo z zaslišanjem Roberta Goloba
--  GeForce 546.33 Game Ready: Neuer Treiber optimiert für The Finals und Fortnite [Notiz]
--  Overactive Bladder Pipeline Analysis (2023) Covering Clinical Trials, Emerging Therapies, FDA, EMA, and PMDA Approvals, Competitive Landscape | Dong-A ST Co., AbbVie, Medytox, Urovant Sciences, Taiho Pharma, Velicept Therapeutics
+-  الزعبي لـ «الأنباء»: اتفاق أولي مع الجانب الفلبيني على مباشرة التفاوض بشأن عمالة المادتين 18 و20
+-  وزير الشؤون زار هيئة ذوي الإعاقة واستمع للمراجعين
+-  وكيل «الداخلية» كرَّم اللواء خالد الكندري لجهوده الأمنية المتميزة
+-  الحرس الوطني يفتتح مؤتمر القوى البشرية لـ «الشرطة والدرك» بمشاركة وفود 14 دولة
+-  السفير الشريم قدّم أوراق اعتماده إلى رئيس سنغافورة
+-  الكويت: على المجتمع الدولي وضع حد لجرائم الاحتلال
+-  جواهر الدعيج: 4 تعهدات للكويت في مجال حقوق الإنسان
+-  معرفي: نتطلع للمزيد من التعاون مع الجانب البلجيكي أثناء رئاسته الاتحاد الأوروبي
+-  الحميضي: «مرزام» يتوسع إقليمياً بنسخ خليجية تعكس فكرته ورسالته
+-  العروج: استخدام الذكاء الاصطناعي بالجهات الحكومية والخاصة يرفع كفاءة العمل ويزيد الإنتاجية
+-  «الصفا الإنسانية» نفّذت «دفء وأمان» في قيرغيزستان
+-  «هيئة القُصّر» نظمت محاضرة حول «مخاطر انتشار السكري»
+-  الكويت تترأس مجلس أمناء الجامعة الإسلامية التابعة لـ «التعاون الإسلامي»
+-  سميرة الكندري لـ «الأنباء»: وفد الكويت بقمة المناخ تصدى للقرارات المؤثرة على مصلحة الدولة
+-  بالفيديو.. «من الكويت نبدأ.. وإلى الكويت ننتهي» يكرّم 10 شخصيات الثلاثاء
+-  ميلان وباريس ونيوكاسل صراع «البطاقة الواحدة»
+-  أسيري: رفع كفاءة العاملين في مجالات حقوق الإنسان
+-  «الأهلي» رعى فضياً بطولة البادل الثانية لذوي الاحتياجات الخاصة
+-  بالفيديو.. بورسلي: تعميم «القراءة المبسطة» في مرافق الدولة لتمكين ذوي الإعاقة الذهنية
+-  «النخبة العربية الثالثة للتنس» تنطلق في قطر 23 الجاري
+-  بالفيديو.. أحمد الدوسري: «الكهرباء» لديها مشاريع طموحة لتنفيذ «رؤية الكويت 2030» حول الطاقات المتجددة
+-  «طائرة الأصفر» يطيح باليرموك
+-  السفير العماني استقبل رواد «السبلة»: الحضور الكبير يعكس عمق وقوة العلاقات بين الكويت والسلطنة
+-  البيدان: الاتحاد المدرسي نواة عودة الرياضة الكويتية لسابق عهدها
+-  رئيس التحرير بحث التعاون الإعلامي مع سفير إيران
+-  باكستان: مقتل وإصابة العشرات في هجوم انتحاري استهدف قاعدة عسكرية
+-  بعد «الخروج الآسيوي».. الكويت يحوّل تركيزه إلى الجهراء
+-  المساعدات الكويتية لأهالي غزة تتواصل: 40 طناً حملتها الطائرة الإغاثية الـ 39
+-  رئيس الوزراء الماليزي يجري تعديلاً وزارياً موسعاً وسط تراجع شعبيته
+-  جامعة الخليج تهيمن على لقبي «بادل بنك وربة للتعليم العالي»
+-  وكيل العدل بحث التعاون مع مدير مكتب الأمم المتحدة المعني بالمخدرات والجريمة
+-  وزير الخارجية السعودي: الواقع المرير في غزة سيؤثر على مصداقية هيئات الأمم المتحدة
+-  فوز شرفي للعربي على النجمة في «الآسيوية»
+-  «كونا» تصدر نسخة معدلة للدليل الخاص بموظفيها «حقوقهم وواجباتهم»
+-  الجيش الإسرائيلي يقتحم مستشفى كمال عدوان في غزة و«الصحة العالمية» تناشد بحماية المرافق الصحية
+-  معسكر «أزرق اليد» 16 الجاري
+-  الهيئة العامة للقوى العاملة تشارك في معرض «حياتك غالية» بجامعة الكويت
+-  جمعية المكتبات والمعلومات ناقشت استخدام تقنيات الذكاء الاصطناعي في ظل التشريعات الحالية
+-  Far-right Polish MP puts out menorah with fire extinguisher in parliament
+-  Mors-Thy bryder Fredericias superstime i sidste sekund
+-  Kevin Durant to miss another game against Warriors tonight
+-  মার্কিন নিষেধাজ্ঞায় তুরস্ক ও আরব আমিরাতের একাধিক ব্যক্তি–প্রতিষ্ঠান
+-  ఆశ్రమ పాఠశాలల్లో విద్యా ప్రమాణాలు మెరుగుపడాలి
+-  ఉసురు తీసిన అప్పులు
+-  Sportsfreunde: Joe Manganiello und Caitlin genießen NFL-Game
+-  Bomber attacks police station in Pakistan, killing 23
+-  Lionel Messi promociona un buzo de Navidad en su 'store': ¿cuánto vale en pesos?
+-  ఆర్టీసీ ఉద్యోగుల సమస్యలు పరిష్కరించాలి
+-  Test visual: descubre cómo es tu personalidad según qué ves primero en la imagen
+-  Hurja jännitysnäytelmä ja raju sensaatio on valmis - Rauman Lukko puristi CHL:n välieriin
