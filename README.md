@@ -1,51 +1,51 @@
 # Latest News
--  원헌드레드, 차가원·MC몽 설립→박장근 프로듀싱 총괄…글로벌 프로듀싱 회사 출범
--  방탄소년단 정국, 솔로 싱글 ‘세븐’ MV 3억뷰 돌파
--  '사야♥' 심형탁 "일본서 조깅하다 경찰서 갔다"…무슨 일?
--  เปิดมหกรรมศิลปะร่วมสมัยนานาชาติ ‘Thailand Biennale, Chiang Rai 2023
--  Bihar Emergency Number 14432: बिहार पुलिस ने गंभीर अपराधों के लिए नया आपातकालीन टोल फ्री नंबर 14432 जारी किया
--  भूकम्प प्रभावित क्षेत्रको अपेक्षा
--  दुई ठुला चिनी उद्योगले उखु क्रसिङ रोके
--  ऐनमा व्यवस्था, सभामा बेवास्ता
--  Earthquake in Afghanistan: अफगानिस्तान में आज फिर भूकंप के झटके, रिक्टर पैमाने पर 5.2 रही तीव्रता
--  Descartan en Guatemala posibilidad de repetir elecciones
--  गरिबी निवारणतर्फको यात्रा
--  Commuter chaos looms with V/Line workers set to strike
--  ฝีพาย มกช ว. เชียงใหม่สุดยอด คว้ามา 5 ทอง 8 เงิน 9 ทองแดง
--  Hormone Replacement Therapy Market Is Anticipated To Reach USD 119.4 Billion In 2032 | BorgWarner, Continental AG , Ford Motor
--  “올해 반도체 장비 시장 위축…내년부터 본격 반등”
--  El robo de la Mona Lisa: hace 110 años encontraban a La Gioconda, el ícono mundial que se creía perdido
--  India News | Security Heightened at Madhya Pradesh CM Designate Mohan Yadav's Residence
--  Victor Alexandre mostra resultado de treino pesado
--  ขึ้นกางเต๊นท์นอนค้างคืนดอยพุ่ยโค ลงมาตกใจล้อรถหาย
--  "Ростелеком" приступил к восстановлению подводного кабеля связи на Курилах
--  Get in the loop of Gen-Z slang, fashion and lifestyle choices with this podcast
--  All ears for this OG jugalbandi at the Keli Festival in Vashi tomorrow
--  Peek inside a woman’s mind with this solo play at Dr Bhau Daji Lad Museum
--  Mumbai ka chocolate factory
--  Paul Kent tells court that police officer advised him to deny choking attack
--  Reuters: Bergensskip truffet av rakett i Rødehavet
--  Musim Hujan, Pendaki Gunung Gede Diminta Waspada dan Hindari Area Kawah
--  VDP: Thông báo về việc niêm yết và giao dịch cổ phiếu thay đổi niêm yết
--  BFC: Thông báo ngày ĐKCC để thực hiện quyền tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
--  World News | US 'concerned' About Reports That Israel Used White Phosphorus in Lebanon Attack
--  VFG: Thông báo ngày ĐKCC lấy ý kiến cổ đông bằng văn bản
--  Grupo complicado para México en Copa Oro W 2024
--  Bố khoe con gái học cấp 2 vừa tự giác vừa học giỏi nhưng dân tình chỉ "soi" nhan sắc: Xinh thế này không thi hoa hậu thì phí
--  Губернатор Гладков: над Белгородским районом силы ПВО сбили одну воздушную цель
--  Pune Bangalore Highway Accident: पुणे-बंगळुरू महामार्गावर भरधाव ट्रकची ट्रॅक्टरला धडक, दोघांचा जागीच मृत्यू
--  Who Is Rajendra Shukla? From Engineer To Deputy CM Of Madhya Pradesh?
--  Sleep Apnea Device Market Is Anticipated To Grow Up To USD 36.4 Billion By 2032 |AbbVie , Allergan plc, Amgen
--  Nhiều doanh nghiệp trúng mánh 'chạy' dự án của đối tượng lừa đảo
--  藉日本廠攻車用晶片，力積電：已和本田、日產接觸
--  살빼는 약 ‘젭바운드’ 참 좋게 봤는데 ... 투약 중단했더니 ‘말짱 도루묵’
--  Vì sao chưa bỏ room tín dụng?
--  – بدء دورة تدريبية لمدربي لعبة رفع الاثقال المستجدين بطرابلس .
--  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
--  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
--  NYT: Israel chở vali chứa đầy tiền mặt vào Gaza để duy trì quyền lực cho Hamas
--  В России хирурги прооперировали пенсионера с раком полового органа
--  เปิดมหกรรมศิลปะร่วมสมัยนานาชาติ ‘Thailand Biennale, Chiang Rai 2023’
--  विदेश अध्ययनको लहर
--  गाँजाखेतीलाई वैधानिकता
--  १० वर्षअघिको आर्थिक अभियानबाट: नयाँ जहाज नल्याए निगम बन्द हुने
+-  PM Kisan Yojana: इन राज्यों के किसानों को मिलते हैं 12,000 रुपये, जानें कैसे उठाएं योजना का लाभ
+-  전북대병원, 암 예방 스쿨어택 사업 실시
+-  "شاعر وتجربة".. بيت شعر الأقصر يستضيف الشاعر عبد المنعم رمضان
+-  Celltrion's Cancer Biosimilar Vegzelma Gains Preferred Status on Ventegra's Formulary
+-  Nhiều ngân hàng tiếp tục hạ lãi suất cho vay mua nhà, thấp nhất dưới 6%/năm
+-  Sperm whale beached on sandbank at Rockingham Beach has died
+-  Cogersa aprueba la subida de tarifas al faltar un concejal del PP de Oviedo
+-  El Sanatorio Marítimo "conservará su acceso principal", promete Carmen Moriyón
+-  El nuevo plan de digitalización del comercio de Gijón tendrá un programa para fidelizar clientes
+-  Los socios del Tenis elegirán en las urnas a su próximo presidente el 18 de enero
+-  La fatalidad de dos carabineros
+-  La nueva jefatura de Cabueñes potenciará la atención en salud mental y oncología
+-  El PP tilda de "despropósito" la falta de "papeles" en contrataciones festivas
+-  Barbón, tras el choque con IU por las políticas eólicas: "El Gobierno está engrasado"
+-  Brañes, el pueblo que paga el precio de los cuidados al Naranco
+-  El carril bus del Principado en El Humedal choca con el fijado en la avenida de la Costa
+-  Agenda: qué hacer hoy martes 12 de diciembre en Asturias
+-  El tenor de la Ópera de Oviedo, Gaspar Braña, novedad del concierto de Año Nuevo de Avilés
+-  Hablan los testigos del accidente mortal en un bar de Oviedo: "Estamos en shock"
+-  La cruda realidad eléctrica de Asturias con la transición verde: el hecho histórico que lo confirmó y un futuro incierto
+-  La agenda de los Reyes Magos en Oviedo: hablan los tres conocidos ovetenses que les asistirán
+-  La afinación
+-  La reflexión que abre el reventón turístico del puente en Asturias: "Es nuestro gran reto"
+-  Podemos e IU hacen valer su peso en el gobierno de Avilés: sube el dinero para todas sus concejalías
+-  "Quiero que todos los concejos asturianos tengan alguna actividad del RIDEA"
+-  Emulsa fija en los contratos de limpieza de entes municipales una vía para subir ingresos
+-  부천시, 내년 조직개편 인사 119명에 임용장 수여
+-  가평군 조종면 체육회, 100만 원 어치 이불·전기요 취약계층에 기탁
+-  Vice President Mutale Nalumango in Geneva for Human Rights Forum
+-  Qué saber de la escalada en Venezuela y la disputa territorial en Guyana
+-  Firefighter dies extinguishing blaze in Sydney's north west
+-  Animal में रणबीर ने करवाया Rolls Royce कार में धमाका, खरीदने जाएं तो आएगा इतना खर्च
+-  JDC-농협 월동채소로 이웃사랑, 대대적 판촉 행사도 진행
+-  कोपका मुद्दा र चुनौती
+-  तनहुँ कारागारमा पानीको अभाव
+-  लयमा फर्किने आशा
+-  हतुवागढी ‘लिफ्ट’ आयोजनाको काम अन्तिम चरणमा
+-  Prediksi Manchester United vs Bayern Munchen di Liga Champions: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
+-  Sobrepoblación en el Cereso 3 llega a récord
+-  Embiste presunto ebrio a peregrinos; mueren 2
+-  미디어오늘 장슬기 기자 제1회 Q저널리즘상 수상
+-  Apresentador pró-Trump demitido da Fox News terá streaming por US$ 72 anuais
+-  “Debemos encontrar una cura”: el largo alegato sobre el COVID de un investigador líder mundial
+-  [이복현 “불완전판매, 이사회가 강력 내부통제해달라”
+-  [양평군, ‘올해의 10대 뉴스’ 군민 대상 설문조사 실시
+-  [GIST “청각장애인 음악 감상 돕는다”
+-  [이복현 “불완전판매, 이사회가 강력 내부통제 해달라”
+-  [5년간 국방비 348조 투입…다층 방어체계 구축·초급간부 여건 개선
+-  [MC몽, 프로듀싱 회사 '원헌드레드' 설립...K팝 제작 나선다
+-  [파리 호텔에서 사라진 10억짜리 다이아몬드... 범인은 바로 너! 청소기!
