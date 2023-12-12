@@ -1,11 +1,51 @@
 # Latest News
--  News24 | Here are the Daily Lotto numbers
--  العالم يترقب «الرقصة الأخيرة» بين ميسي ورونالدو
--  Sevilla Avrupa'ya veda etti
--  Galatasaray'ın eski yıldızı takımını desteklemek için tribüne geldi
--  Uno a uno del Real Madrid ante el Union Berlin: Valoración y comentarios
--  Jennifer Aniston entrega detalles sobre los últimos días de Matthew Perry: “Estaba feliz”
--  הצעצוע החדש של נתניהו: מה עולה 200,000 שקל בחודש?
--  נתב"ג בצרות? ירידה של עשרות אחוזים בנוסעים, אבל יש חברה שהפתיעה
--  ביידן באמירה חריגה: "נתניהו צריך להחליף את הממשלה שלו"
--  נועה קירל, ברונו מארס וטונה: אלו ההופעות המדוברות ביותר של השנה
+-  استعدادات قوية وتعليمات من كولر.. تفاصيل مران الأهلي الأول في مونديال الأندية
+-  أمطار غزيرة تصل القاهرة.. الأرصاد تعلن طقس الـ6 أيام المقبلة
+-  "8 كيلوجرامات ذهب و6 ملايين ليرة".. تفاصيل حفل زفاف أثار الجدل في تركيا
+-  في مواجهة الأهلي.. اتحاد جدة يفوز على أوكلاند سيتي ويتأهل للدور الثاني
+-  بدء فرز الأصوات في الانتخابات الرئاسية 2024 بلجان محافظة الجيزة
+-  موعد مباراة الأهلي والاتحاد في كأس العالم للأندية
+-  حكومة الاحتلال: مقتل 19 أسيرًا من بين 135 لا يزالون في غزة
+-  وفاة زوج وزيرة الثقافة السابقة إيناس عبد الدايم.. والجنازة غدا
+-  حملة "السيسي" توجه الشكر للشعب المصري لمشاركته الكبيرة بالانتخابات
+-  12 diétnych tipov do každej kuchyne: Zvládnite Vianoce bez zbytočných kíl navyše
+-  West Tigers dismiss entire board
+-  Poslanci venovali utorkové rokovanie diskusii o balíku konsolidačných opatrení
+-  "Tous les soldats français" auront définitivement quitté le Niger "d'ici le 22 décembre"
+-  Komitet Organizacyjny Letnich Igrzysk Olimpijskich w Paryżu z zadowoleniem odebrał decyzję przyjęcia sportowców z Rosji i Białorusi
+-  Zvijezda 'Teorije velikog praska' boluje od karcinoma, fanove je zabrinula videom iz bolnice...
+-  COVID concerns at Cambridge hospital due to recent resurgence in outbreaks
+-  Nach Affärengerüchten: Königin Letizia strahlt auf Event
+-  U zhduk para 8 muajsh/ Gjendet domatja e parë e rritur në hapësirë
+-  Dentist calls out Smile Direct Club for ‘scamming’ customers
+-  Rakitićeva Sevilla 'pala' u drami i ostala bez europskog proljeća: Neće loviti trofej u najdražem im natjecanju
+-  A sorte está do seu lado? Conheça a chave do Euromilhões desta 3.ª feira
+-  Mondial des clubs : Kanté et Benzema portent Al Ittihad
+-  ليبيا.. “دبيبة” يطلع على التصور النهائي للبرنامج الوطني للمياه والصرف الصحي
+-  Godina prođe, aparata za magnetnu rezonancu u Bijelom Polju i...
+-  Aaj Ka Kark Tarot Card: कर्क राशि वाले अवसरों का लाभ उठाएं. धैर्यपूर्वक आगे बढ़ते रहने से मिलेगी सफलता
+-  إسبانيا تضبط 11 طنا من الكوكايين مخبأة في أسماك مجمدة - صور وفيديو
+-  الاحتلال يعترف باصابة 600 من قواته منذ بدء العملية البرية
+-  صاعقة رعدية تنهي حياة لاعب وتصيب 5 آخرين - فيديو
+-  El Oro: Sicarios intentaron matar a una mujer cuando salía de su casa, en Pasaje
+-  11 High-Protein Snack Ideas, Straight From Dietitians
+-  Ankaragücü'nde Faruk Koca ve 12 isim PFDK'ya sevk edildi
+-  Top 4 Employer Branding trend a World Employer Branding Day 2023-ról
+-  A kormánypárti Origó kerek-perec kijelentette két propaganda anyag között: káosz várható a Földön 2024 elején
+-  Annoncé au PSG, il refuse une offre XXL
+-  Δέος: Βρέθηκε το γιγαντιαίο κρανίο του «υποβρύχιου T. Rex» - Ήταν η απόλυτη φονική μηχανή
+-  Като искаш да свършиш нещо, просто го правиш, а не търсиш пречки
+-  이런 겨울 날씨는 처음…내일 또 호우, 주말에는 강추위
+-  Harvard President Claudine Gay keeps job
+-  Milei impulsa a José María Zas, exdirector de Amex, como embajador en México
+-  MP das Subvenções: sem acordo, apresentação de relatório em comissão é adiada para quarta
+-  Pixel Watch December 2023 update rolling out
+-  Siguldā sieviete jau otro reizi ugunsgrēkā zaudē mājas
+-  Gov Otti presents N567.2 billion 2024 budget to Abia assembly
+-  Exposé Donalda Tuska. Nadciąga głęboki reset, który zmieni Polskę nie do poznania [KOMENTARZ]
+-  İspanya ve Yunanistan’da kış rezervasyonları beklenenin üzerinde
+-  “Kruvaziyer gemi ve yolcu sayılarında kasım itibarıyla yıllık hedef aşıldı”
+-  Almanya sağlık bakanı uyardı “Yeni korona dalgası geliyor”
+-  Угорщина назвала умову, за якої зніме вето на допомогу Україні
+-  BBC EastEnders' Linda Carter devastated by sad family news as Mick's death anniversary looms
+-  270-passenger flight stranded over 20 hours on remote military base
