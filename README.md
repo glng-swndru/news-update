@@ -1,51 +1,11 @@
 # Latest News
--  Programme de la nuit en NBA : Bradley Beal enfin de retour pour les Suns !
--  Kremlius atmeta JAV susirūpinimą dėl įkalinto opozicijos lyderio A. Navalno
--  Météo Algérie : Pluie et Baisse des Températures dès Demain – Préparez-vous pour un Changement Soudain !
--  Twee fatbikers naar ziekenhuis na aanrijding met auto op Julianalaan in Ede
--  Gemeente start met uitbetalen Energietoeslag 2023
--  Labour candidate forced to stand down because his novels are ‘too sexy and satanic’
--  El PNV defiende la oportunidad de la ley de amnistía para acabar con un ciclo traumático
--  भंग आयोग के पूर्व सचिव जितेंद्र कंवर दूसरी बार गिरफ्तार
--  Camila Homs se fue del Bailando en medio de llantos, reproches y emoción
--  Joel Pohjanpaloa vaivaa nyt plantaarifaskiitti
--  Released COP28 Draft Agreement Omits Call for Fossil Fuel Phaseout
--  Lanzan una aplicación sobre prevención de cáncer para descargar en dispositivos móviles
--  Артем Скитов: "Теверов в матче с "Энергетиком-БГУ" мог и хет-трик оформлять"
--  The Best. Илья Шкурин как лучший футболист Беларуси
--  Премудров продлил контракт с "Торпедо-БелАЗом"
--  Ориньо: "Лучший белорусский футболист, на мой взгляд, это Владислав Морозов"
--  Источник: Невинский может возглавить БАТЭ, если Капский сохранит контроль над клубом
--  Суперкубок - 25 февраля, высшая лига - с 25 марта по 30 ноября. Стал известен календарь на сезон-2024
--  Заявочные взносы для команд высшей лиге в 2024 году возрастут почти в два раз
--  В высшей лиге отменен лимит на молодых футболистов
--  مركز الدوحة الدولي لحوار الأديان يشارك في المنتدى الإسلامي العالمي بموسكو
--  Medellín confía en su fortín para controlar a Bacca, remontarle a Junior y salir campeón
--  Entrevistamos a Jerret West, Jefe de Marketing de Xbox en la Comic Con Experience en Brasil
--  Prisión preventiva para el presidente de club que atacó a un árbitro en Turquía
--  Bir Devrin Sonu: Dünyanın En Büyük Oyun Fuarı E3, Bir Daha Düzenlenmeyecek
--  En Az Üç Çocuk: Dünyanın En Güçlü ve En Zengin Liderleri Neden Sürekli Daha Fazla Çocuk Yapmamızı İstiyor?
--  ОРГАНИЗАТОРКАТА НА ИЗБОРОТ НА МИС НИКАРАГВА ПОДНЕСЕ ОСТАВКА ОТКАКО ЈА ОБВИНИЈА ДЕКА МЕСТЕЛA ПОБЕДИ НА АНТИВЛАДИНИ УБАВИЦИ
--  Heino über Hannelore: „Bei jedem Lied denke ich an sie“
--  Senator Tammy Baldwin Named Winner of 2023 Bone Health Champion Award
--  Police arrest 80 suspects over cultism, POS fraud in Edo
--  IDF Shot at Pregnant Civilian Outside Gaza Hospital Under Siege, Staffer Says
--  News24 | SCA dismisses Zuma bid to appeal invalidation of Downer, Maughan private prosecution
--  Halil Umut Meler'in babası konuştu: O yumruk atıldığında neler hissettiğini anlattı
--  حسين الشيخ مستاء من تعبير نتنياهو عن فتحستان
--  Elevated highway sought instead of underpass for NH 66 between Nanthoor and KPT
--  ايران : حماس يمكنها الحصول على الأسلحة من السوق السوداء
--  OVO JE KUĆA SA HEKTAROM ZEMLJE NA ZLATIBORU KOJA JE PRIVUKLA PAŽNJU: Kažu daje je za “male pare” (FOTO)
--  Jaime Lozano 'HUMILLA' a la Selección Mexicana frente a Estados Unidos
--  Osun Assembly passes bill extending judges’ retirement age to 70
--  Basic Paper Dyes Market worth $413.11 million by 2030, growing at a CAGR of 5.17% - Exclusive Report by 360iResearch
--  নির্বাচনি রিট শুনতে হাইকোর্টের দুটি বেঞ্চ গঠন
--  Lấy tấn công làm phòng thủ, Lý Thường Kiệt khiến đại quân giặc Tống đại bại tại một nơi ở Bắc Ninh
--  Charlotte Crosby rushed to hospital after weeks of ill health
--  Son dakika! Bakan Koca açıkladı: Gazzeli 68 hasta Ankara'ya getirildi
--  Fallece el intérprete de "China, pasa mi vuelto"
--  AOSIS Chair Issues Strong Position – Hits Back at “Weak” Commitments in COP28 Presidency’s Draft Text – “We will Not Sign our Death Certificate”
--  Volvo debuts electric excavator in Indian market
--  Air France : Votre Voyage à Alger à Partir de 63 Euros – Les Bons Plans de Fin d’Année 2023 !
--  Anne Hathaway says it’s “lucky” her Barbie movie never got made
--  Naira scarcity: PoS operators hike charges by 100 per cent
+-  MKE Ankaragücü Kulübü Başkanı Koca istifa etti
+-  Konya'da soba faciası: Anne öldü, kızının durumu ağır
+-  Kickoff | Pirates target Sekhukhune star
+-  Social Media Erupts as Odumodublvck Slams Davido’s Lyrics and Calls Him a “Fool”
+-  GTA 6: Trailer bricht Rekorde – Youtube meldet sich zu Wort
+-  غدًا.. مؤتمر صحفى للجنة إحياء يوم حضرموت الوطني الـ 20 من ديسمبر
+-  مدير تربية المنصورة في زيارة تفقدية للمطبخ الصحي للتغذية المدرسية في ثانوية عدن النموذجية للبنين
+-  International Festival of Vietnam Rice Industry - Hau Giang 2023: ‘Green Rice for Life’
+-  At COP28, Trump and GOP threaten Biden’s climate promises
+-  Comment Stellantis a finalement réussi à convaincre la Bourse
