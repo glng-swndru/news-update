@@ -1,51 +1,51 @@
 # Latest News
--  되고시스템, 기업 안전관리 플랫폼 '되고세이퍼' 출시 위해 kt cloud와 협력
--  콘진원, 싱가포르 ‘ATF 2023’서 한국공동관 운영…K-콘텐츠 확산 지원
--  NFT 게임 퓨저니스트, OKX 점프스타트 선정
--  래티스, 엔비디아와 에지 AI 가속화…초소형 저전력 FPGA 공급 성과
--  래티스, 미드레인지 FPGA ‘아반트-G·X’ 공개…'성능·전력·크기' 3박자 향상
--  니콘, NPS 회원 초청 ‘원데이 워크숍’ 성료
--  ST, 전천후 AR·VR 겨냥 글로벌 셔터 이미지 센서 출시
--  인피니언, 글로벌 우수 지속가능성 기업 선정
--  영월진로체험지원센터 ‘체크인 영월드 E-케이션’, 교육부 진로체험 활성화 공모전 최우수상
--  [현장컷] 폭설 내린 강릉 삽당령
--  [속보] 조달청 나라장터 사이트 불통 현상… 1시간 넘게 접속 불가
--  춘천 전인고 '대한민국 경제교육대상' 경제부총리상 수상
--  Rocking new dos
--  SSG, 대한항공 점보스와 함께 인천지역 소외 아동 위한 기부금 전달
--  조달청 나라장터 또 ‘먹통’...현재 정상화
--  ‘상습 마약 투약’ 유아인, 첫 재판 출석…“심려 끼쳐 죄송”
--  K-방산 잭팟 무산 위기?…폴란드 ‘무효’ 엄포에 긴장
--  ‘아내 살해’ 대형 로펌 출신 변호사 구속 송치…‘묵묵부답’
--  이복현 원장, 금융지주 의장 만나 "건전 지배구조 확립해야"
--  Fury after Met Police officer tells protesters to take down Israeli flag at Trafalgar Square because 'it's a heritage site' - after force allowed Palestine flags to be flown in London at repeated rallies
--  [대동, 미래사업 강화 조직 개편…원유현 부회장 승진
--  [벤처펀드 투자목적회사 설립 쉬워진다
--  [자율·수평 카카오 기업문화...14년 뒤 부메랑 되다
--  [한중 국세청장, 현지 진출기업 ‘이중과세’ 논의
--  [울진서 겨울철 집중호우로 낙석 300t '와르르'…긴급 복구 나서
--  [3년 치 과태료 고지서가 한꺼번에 왔다 "너무 심한 거 아니오"
--  [[헤럴드광장] 농촌융복합산업, 청년층 위한 기회의 場
--  [최태원 회장, 4개국 돌며 HBM·AI 직접 챙겼다
--  [이재용의 ‘1등 꿈’ 이뤄줄 반도체 ‘슈퍼乙’
--  [동국제강, 극저온철근 상업화 성공
--  [필라델피아 반도체지수 2년만에 최고
--  [[사설] 층간소음 규제, 건설사에 일방적 비용 전가는 없도록
--  [[사설] 예비후보자 등록 시작됐는데도 여전히 ‘깜깜한’ 총선룰
--  [삼성전기 15년연속 ‘DJSI 월드지수’ 편입
--  [보육원 청소년의 자립충전소...‘희망 디딤돌’ 2만명에 새 날개
--  [기업 ‘지정기탁’으로 복지 그늘 걷어내다
--  [LIG넥스원 사장에 공군 출신 신익현 내정
--  [[헤럴드비즈] 비즈니스 기회의 나라, 불가리아
--  [LGD ‘탠덤 OLED’로 글로벌 1위 굳히기
--  [현대트랜시스·파트너사 상생 성과 공유
--  [첫 재판 유아인 ‘마약 혐의 인정하냐’ 질문에 “…”
--  [[부고]이용배(현대로템 대표이사 사장)씨 모친상
--  [‘부실 대출’ 지방은행서 더 늘었다
--  [남시욱 화정평화재단 이사장 ‘제1회 자랑스런 편협인 상’ 수상
--  [KB운용, 국내 첫 미국채30년커버드콜 ETF 출시
--  [수출입銀, 사랑의열매 등에 28억원 후원
--  [운명적 만남 두 엔젤 “난 너보다 남자답고 네 여친보다 섹시해”
--  [미래에셋證, 인도 증권사 쉐어칸 인수
--  [[특징주] LS머트리얼즈 상장 첫날 300%…이차전지 바람타고 2호 따따블 달성
--  [금값 고공행진...젊은층도 골드러시
+-  원헌드레드, 차가원·MC몽 설립→박장근 프로듀싱 총괄…글로벌 프로듀싱 회사 출범
+-  방탄소년단 정국, 솔로 싱글 ‘세븐’ MV 3억뷰 돌파
+-  '사야♥' 심형탁 "일본서 조깅하다 경찰서 갔다"…무슨 일?
+-  เปิดมหกรรมศิลปะร่วมสมัยนานาชาติ ‘Thailand Biennale, Chiang Rai 2023
+-  Bihar Emergency Number 14432: बिहार पुलिस ने गंभीर अपराधों के लिए नया आपातकालीन टोल फ्री नंबर 14432 जारी किया
+-  भूकम्प प्रभावित क्षेत्रको अपेक्षा
+-  दुई ठुला चिनी उद्योगले उखु क्रसिङ रोके
+-  ऐनमा व्यवस्था, सभामा बेवास्ता
+-  Earthquake in Afghanistan: अफगानिस्तान में आज फिर भूकंप के झटके, रिक्टर पैमाने पर 5.2 रही तीव्रता
+-  Descartan en Guatemala posibilidad de repetir elecciones
+-  गरिबी निवारणतर्फको यात्रा
+-  Commuter chaos looms with V/Line workers set to strike
+-  ฝีพาย มกช ว. เชียงใหม่สุดยอด คว้ามา 5 ทอง 8 เงิน 9 ทองแดง
+-  Hormone Replacement Therapy Market Is Anticipated To Reach USD 119.4 Billion In 2032 | BorgWarner, Continental AG , Ford Motor
+-  “올해 반도체 장비 시장 위축…내년부터 본격 반등”
+-  El robo de la Mona Lisa: hace 110 años encontraban a La Gioconda, el ícono mundial que se creía perdido
+-  India News | Security Heightened at Madhya Pradesh CM Designate Mohan Yadav's Residence
+-  Victor Alexandre mostra resultado de treino pesado
+-  ขึ้นกางเต๊นท์นอนค้างคืนดอยพุ่ยโค ลงมาตกใจล้อรถหาย
+-  "Ростелеком" приступил к восстановлению подводного кабеля связи на Курилах
+-  Get in the loop of Gen-Z slang, fashion and lifestyle choices with this podcast
+-  All ears for this OG jugalbandi at the Keli Festival in Vashi tomorrow
+-  Peek inside a woman’s mind with this solo play at Dr Bhau Daji Lad Museum
+-  Mumbai ka chocolate factory
+-  Paul Kent tells court that police officer advised him to deny choking attack
+-  Reuters: Bergensskip truffet av rakett i Rødehavet
+-  Musim Hujan, Pendaki Gunung Gede Diminta Waspada dan Hindari Area Kawah
+-  VDP: Thông báo về việc niêm yết và giao dịch cổ phiếu thay đổi niêm yết
+-  BFC: Thông báo ngày ĐKCC để thực hiện quyền tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
+-  World News | US 'concerned' About Reports That Israel Used White Phosphorus in Lebanon Attack
+-  VFG: Thông báo ngày ĐKCC lấy ý kiến cổ đông bằng văn bản
+-  Grupo complicado para México en Copa Oro W 2024
+-  Bố khoe con gái học cấp 2 vừa tự giác vừa học giỏi nhưng dân tình chỉ "soi" nhan sắc: Xinh thế này không thi hoa hậu thì phí
+-  Губернатор Гладков: над Белгородским районом силы ПВО сбили одну воздушную цель
+-  Pune Bangalore Highway Accident: पुणे-बंगळुरू महामार्गावर भरधाव ट्रकची ट्रॅक्टरला धडक, दोघांचा जागीच मृत्यू
+-  Who Is Rajendra Shukla? From Engineer To Deputy CM Of Madhya Pradesh?
+-  Sleep Apnea Device Market Is Anticipated To Grow Up To USD 36.4 Billion By 2032 |AbbVie , Allergan plc, Amgen
+-  Nhiều doanh nghiệp trúng mánh 'chạy' dự án của đối tượng lừa đảo
+-  藉日本廠攻車用晶片，力積電：已和本田、日產接觸
+-  살빼는 약 ‘젭바운드’ 참 좋게 봤는데 ... 투약 중단했더니 ‘말짱 도루묵’
+-  Vì sao chưa bỏ room tín dụng?
+-  – بدء دورة تدريبية لمدربي لعبة رفع الاثقال المستجدين بطرابلس .
+-  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
+-  Brandfolk gennemsøger murbrokker efter bygningskollaps i New York
+-  NYT: Israel chở vali chứa đầy tiền mặt vào Gaza để duy trì quyền lực cho Hamas
+-  В России хирурги прооперировали пенсионера с раком полового органа
+-  เปิดมหกรรมศิลปะร่วมสมัยนานาชาติ ‘Thailand Biennale, Chiang Rai 2023’
+-  विदेश अध्ययनको लहर
+-  गाँजाखेतीलाई वैधानिकता
+-  १० वर्षअघिको आर्थिक अभियानबाट: नयाँ जहाज नल्याए निगम बन्द हुने
