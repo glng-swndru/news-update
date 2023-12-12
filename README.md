@@ -1,51 +1,11 @@
 # Latest News
--  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 12 décembre – la France éteint Team USA en 2019
--  Türkiye İHA-122 ile yine başardı! Dünyada çok az sayıda ülke sahip
--  ABD'den Rusya'ya uranyum ithalatı yasağı
--  "Seni öldüreceğim"... Saldırıya uğrayan hakem Meler'in ifadesi ortaya çıktı
--  Cezası kesinleşmiş 3 FETÖ'cü Yunanistan'a kaçarken yakalandı
--  İşsizlik Sigortası Fonu 1 ayda 1 milyar 827 milyon lira ödeme yaptı
--  İletişim Başkanı Altun, Türk-Yunan Medya ve Akademi Forumuna video mesajla katıldı: Yunanistan gibi yakın komşularımızla aşılamayacak hiçbir sorunumuz yok
--  Corona-Zahlen in Delmenhorst aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Landkreis Verden aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Landkreis Uelzen aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Stade aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Nefes borusuna şeker kaçan çocuğu, Heimlich manevrası ile kurtardı
--  Tartışan çifte müdahale edince bıçaklandı: Kimseye yardım edemiyorum
--  حسين الشحات: الأهلي أهم من أرقامي القياسية في كأس العالم للأندية
--  Hukukçular yorumladı! Hakeme yumruğun cezası ne olacak?
--  Corona-Zahlen im Heidekreis aktuell: Die Coronavirus-News aus der Region
--  اليوم الثالث للانتخابات.. استمرار توافد المواطنين على لجان العاصمة الإدارية
--  Corona-Zahlen im Landkreis Rotenburg (Wümme) aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  В Херсонской области создадут единую управляющую компанию
--  Филиал «Ярэнерго» обеспечил электроэнергией центральные катки в четырех городах Ярославской области
--  Corona-Zahlen im Landkreis Osterholz aktuell: Aktuelle Daten zum Coronavirus
--  ما هي قدرات سلاح القسام عبوة شواظ؟
--  نتنياهو: السعودية والإمارات ستموّلان إعادة إعمار غزة
--  اللوبي الإسرائيلي يقيل رئيسة جامعة بنسلفانيا
--  Corona-Zahlen im Landkreis Lüneburg aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Harburg aktuell: Die Coronavirus-News aus der Region
--  Κώστας Νεστορίδης: Τα ένδοξα χρόνια στην ΑΕΚ και το τρομερό ρεκόρ του
--  Corona-Zahlen im Landkreis Cuxhaven aktuell: Inzidenz für Landkreis Cuxhaven, Niedersachsen und Deutschland
--  Nya ägare till lantbruksfastighet för 3 995 000 kronor i Söderbärke
--  Corona-Zahlen im Landkreis Celle aktuell: Aktuelle Daten zum Coronavirus
--  В Курской области 13 декабря ожидается снег при 6-градусном морозе
--  Corona-Zahlen im Landkreis Schaumburg aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Nienburg (Weser) aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  Ханан: Не успеа контраофанзивата на Украина
--  Chinhoyi University Student Abducted And Tortured – Mahere
--  Эксперт Беляева объяснила, какие сладкие подарки не нужно дарить детям
--  Corona-Zahlen im Landkreis Holzminden aktuell: Zahlen und Fakten aus der Region
--  Cinghiale ucciso sulla ciclabile, Apas: “Metodi sanguinari ed efferati, ora basta”
--  Corona-Zahlen im Landkreis Hildesheim aktuell: Aktuelle Daten zum Coronavirus
--  เศรษฐกิจโลกขย่มไทย ลุ้นอุตสาหกรรมอาหาร เกษตร ส่งออกปี 67
--  Türkiye'nin en zengin aileleri ve isimleri açıklandı!
--  Corona-Zahlen im Landkreis Hameln-Pyrmont aktuell: Die Coronavirus-News aus der Region
--  На Соборной площади в Твери поставят лошадей, карету и елку
--  Corona-Zahlen im Landkreis Diepholz aktuell: Aktuelle Daten zum Coronavirus
--  Movenpick Hotel Colombo Shines Bright with Christmas Tree Lighting Ceremony
--  iOS 17.2 来了 即将推出的17项新功能
--  Corona-Zahlen im Landkreis Region Hannover aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  荣耀Magic 6参数曝光，配备可变光圈镜头和潜望式长焦
--  Петербургские подростки не смогут купить зажигалки до совершеннолетия
+-  Azule Energy firma acordo Standard Bank para facilidade de crédito aos seus quadros
+-  মান্দায় শেখ রাসেল মিনি শিশু পার্কের সম্প্রসারণ কাজের উদ্বোধন করলেন ডিসি
+-  [일본도 ‘이것’ 때문 골머리…“상담 건수 36년만 최다”
+-  [“대종상 어떻게 되는거야?” 주최측 한국영화인총연합회 ‘파산 선고’
+-  Gold falls spectacularly after Peter Schiff’s ‘spectacular crash’ jab at Bitcoin
+-  Simplifying Paperwork: Mortgage CRM to the Rescue
+-  Krijoi lehtësi për një të dënuar dhe përfitoi 6000 euro, dënohet ish-gjyqtarja e Korçës
+-  Pakistan promises to release 450 stuck Afghan containers
+-  Delphine Batho, seule députée Nupes à avoir voté contre la motion de rejet, s'explique sur LCI
+-  Exclusive: बिना देखें ऑफर करते हैं भाभी का रोल… टीवी इंडस्ट्री पर ये क्या बोल गईं नीत शेट्टी
