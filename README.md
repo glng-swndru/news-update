@@ -1,51 +1,51 @@
 # Latest News
--  피아이이, 46파이 원통형 배터리용 비전검사 솔루션 개발
--  Putinlə Rəisinin görüşü erməniləri qorxutdu: Tehran İrəvanı satacaq, Bakıya yaxınlaşacaq
--  Neko novo doba: U Abu Dhabiju se otvara prva craft pivovara
--  Needlefree Closed System Transfer Device (CSTD) Market Disclosing Latest Advancement 2023 to 2028 Russo-Ukrainian War
--  Supply Chain Finance Market: Optimizing Cash Flow for Enhanced Efficiency and Collaboration 2029
--  "วิปรัฐบาล" จ่อยื่นญัตติด่วนตั้ง กมธ.ศึกษากฎหมายนิรโทษกรรม
--  วุฒิสภา เห็นชอบ "สุเมธ รอยกุลเจริญ" นั่งตุลาการศาล รธน.คนใหม่
--  21 ธ.ค.นี้ ไทยส่งลิงอุรังอุตัง 3 ตัวล็อตสุดท้าย คืนอินโดนีเซีย
--  صندوق الإسكان الاجتماعي يُعلن توجيهات لحاجزي الإعلاني التكميلي من سكن لكل المصريين
--  فريق مناظير "تيودور بلهارس" ينجح في استئصال ورم بالمعدة باستخدام تقنية مبتكرة
--  Bidirectional Electric Vehicle Charger Market worth $4,712.54 million by 2030, growing at a CAGR of 22.55% - Exclusive Report by 360iResearch
--  Is Glen Powell Not Dating Sydney Sweeney but Still ‘Loves Each Other’?
--  Taşınmaz edinerek vatandaşlıkta yeni karar. Resmi Gazete'de yayımlandı
--  Shahjahanpur News: मुख्य सड़क के साथ गलियां भी खोदीं, चौतरफा मुसीबत
--  Fundus Cameras Market Highlighting Enhanced Revenue in the Coming Years 2023-2032 | Canon Inc., Optovue, Inc., Kowa Company, Ltd., Heidelberg Engineering GmbH
--  Bijnor News: पुलिस और बदमाशों के बीच मुठभेड़ में एक हिस्ट्रीशीटर दबोचा
--  Bahraich News: तेंदुए के जबड़े से बच्ची को खींच कर मां ने बचाई जान
--  गड़बड़ी: एक किसान के नाम गन्ने के दो सट्टे
--  Banda News: डायरिया के छह व सांस के सात मरीज भर्ती
--  Julio César se queda en la CARDER
--  Researchers transform captured greenhouse gases into cyclic carbonates with biomass derivatives
--  A method for production of organic–inorganic tin halide perovskites for optoelectronic devices
--  TPS: Nghị quyết Đại hội đồng cổ đông bất thường năm 2023
--  App Creation Software Market 2032 - Trends and Growth, Segmentation and Prominent Competitors Analysis | Wipro Limited, Fujitsu Ltd., Zoho Corporation
--  Reflü mide yanması ve hazımsızlık gibi sindirim sistemi sorunlarına birebir. Bu ot başka ota benzemez
--  سال 2023: پاکستان میں کون سی شخصیات گوگل سرچ لسٹ میں چھائی رہیں
--  The Block fan favourites suffer devastating loss on inner city apartment with stunning views of Sydney Harbour
--  Opća skupština UN-a opet će glasati o rezoluciji o prekidu vatre u Gazi. Što će ovaj put Hrvatska?
--  البنك المركزي الصيني يضخ 414 مليار يوان في النظام المصرفي
--  DTX əməkdaşları Heydər Əliyevin məzarını ziyarət etdilər
--  In gesprek over oorlog Israël en Gaza
--  Bicycle Motors Market worth $18.93 billion by 2030, growing at a CAGR of 5.70% - Exclusive Report by 360iResearch
--  Mort de l'influenceuse Maria Sofia Valim à l'âge de 19 ans après une opération médicale ratée
--  Microsoft Believes Indian Tech Firms Will Play A Key Role In AI Development, Adoption Globally
--  Companion Animal Anti Infective Medicine Market is Anticipated to Record the Rapid Growth and Prominent Players Analysis
--  Евродепутат призывает белорусский режим немедленно освободить Статкевича
--  اکبر ایس بابر کا پی ٹی آئی وکلاء کیخلاف پاکستان بار میں درخواست دینے کا اعلان
--  Rampur: पीएम मोदी पर अभद्र टिप्पणी करने में किसान नेता हसीब गिरफ्तार, जनसभा का वीडियो हुआ था वायरल
--  Heat Exchangers Market Is Driven By Increasing Demand From End-use Industries Such As Automotive | Alfa Laval , API Heat Transfer , Mersen
--  Tegeltija: Priča o suđenju za Borac isforsirana, BiH još zadugo neće igrati u Banjaluci
--  Bahraich News: जाम की समस्या से दिनभर परेशान रहे लोग
--  MMF odobrio 900 miliona dolara za Ukrajinu
--  맨유 가느니 뮌헨 벤치 지킨다…‘남아서 케인한테 멘토링 받을래’
--  Texas’ supreme court strikes down ruling allowing woman to get a medical abortion
--  Yardımcı olursanız...
--  Coca-Cola Truck-Tour 2023: Termine, Städte und Co.: Hier halten die neuen Weihnachtszüge
--  Full šminka bez pudera? Moguće je, isprobajte”demi metodu”
--  НХЛ дисквалифицировала канадца на шесть матчей за удар россиянина по голове
--  Commonwealth Trade and Investment Summit promotes Port City Colombo
--  Shahjahanpur News: हाईवे के निर्माण में लगाई जा रही घटिया ईंट
+-  Burgemeester Sjors Fröhlich in de klas in Hei- en Boeicop: “hij denkt eraan een jongerenraad te creëren"
+-  송기섭 진천군수
+-  최재형 보은군수
+-  황규철 옥천군수
+-  정영철 영동군수
+-  송인헌 괴산군수
+-  이재영 증평군수
+-  조길형 충주시장
+-  김문근 단양군수
+-  이완섭 서산시장
+-  박범인 금산군수
+-  이용록 홍성군수
+-  최재구 예산군수
+-  박상돈 천안시장
+-  박경귀 아산시장
+-  Soccerladuma | ‘R142m Ngezana Is For Sale, But...'
+-  [영상] 불출마 선언 장제원 의원에게 묻고 싶었던 질문은?
+-  Israel sanoo silmukan Hamasin ympärillä kiristyneen – "Hamas on hajoamaisillaan"
+-  제주올레, 21일 ‘소면 데이’ 팝업 레스토랑
+-  Результативный нападающий пополнил клуб чемпионата Казахстана
+-  Wirtschaft - Die deutsche Angst vor den Schulden
+-  رونالدو يتألّق ويسجّل... ارتفاعٌ بمجموع أهداف "الدون" لعام 2023!
+-  Wirtschaft fordert Koalition zu Einigung auf – Neue „Sondervermögen“-Idee von Habeck
+-  העבורת בעולם, 12.12: ריאל מדריד הצטרפה למירוץ אחר סנטיאגו חימנס
+-  Йеменские хуситы выпустили ракету по химическому танкеру под норвежским флагом
+-  Wisata Canyoning, Olahraga yang Cocok di Musim Hujan
+-  Mikko Rantanen antoi palaa Ismo Lehkoselle - ”Yhden suomalaisen NHL-pelaajan isä puhui paskaa minusta”
+-  La Real, a por un liderato histórico
+-  Piden 21 meses de cárcel para los activistas climáticos que arrojaron agua de remolacha al Congreso
+-  FT: Η ΕΕ εξετάζει τρόπους να διαθέσει επείγουσα χρηματοδότηση στην Ουκρανία, εκτός του προϋπολογισμού
+-  ¿Qué significa vestirse de rojo en Navidad y de blanco en Año Nuevo?
+-  "동구 제2도약을 위해"...한현택 전 대전 동구청장 총선 출마
+-  LE SSERAFIM’s Sakura says she gets “pretty serious” about ‘Animal Crossing’
+-  Претпладне слаб локален дожд и магла, во текот на денот сончево со мала облачност
+-  Skullgirls Mobile Version 6.1 Update With Marie’s Full Release, Economy Changes, Quality of Life Improvements, and More Is Out Now
+-  Deputy welfare ministry sets up blood drive for festive season
+-  Галант: Војната ќе заврши само кога Израел ќе ги постигне своите цели
+-  Siete destinos para pasar la Navidad
+-  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
+-  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
+-  박종훈 교육감, 구봉초에서 행복학교를 이야기하다
+-  경남교육청, 일반고 교감, 부장교사 연수회 개최
+-  „Meine Rücklagen betragen 5,76 Euro“ - Rentnerin (71) gerät nach erfolgreichem Berufsleben in Altersarmut
+-  Delfí Geli, presidente del Girona: "Todo esto es una pasada, estamos cambiando la historia"
+-  Siete destinos para pasar la Navidad
+-  Siete destinos para pasar la Navidad
+-  Бербок: Украинскиот конфликт не смее да „замрзне“
+-  مرشح يسقط بسبب سوريا وباسيل
+-  Turistas españoles podrán visitar China sin necesitar visado
+-  Turistas españoles podrán visitar China sin necesitar visado
