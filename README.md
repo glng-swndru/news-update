@@ -1,51 +1,11 @@
 # Latest News
--  Záhada slávneho fotografa duchov: Čelil obvineniu z podvodu, z jeho záberov dodnes mrazí, pozrite
--  FOTOREPORTÁŽ z Kuby: Havana je kráľovnou karibských miest
--  Konflikt na Blízkom východe sa dramatizuje! Moslimskí teroristi zaútočili v medzinárodných vodách na nórsky tanker
--  Najvyšší súd oslobodil exstarostu Kalinkova Štefana Božíka spod obžaloby
--  Navaľnyj sa opäť neukázal na súde! Nikto nevie, kde sa nachádza
--  MSME Share Accounts For 45% In India’s Total Exports: Data
--  Eastern Assam Chamber Opens Office in Dibrugarh Announces Slew Of Initiatives To Drive Economic Growth In Northeast
--  Union Minister Piyush Goyal To Chair Board of Trade meeting on Dec 17
--  WINBET подарява по 50 безплатни завъртания за 5 дни на всички нови клиенти
--  21 човека искат да станат пиар на варненския кмет
--  Авганистан повеќе не е најголемиот производител на опиум
--  اليوم الثالث للانتخابات.. وليد سليمان يدلي بصوته في التجمع الخامس
--  تعيين سهر الدماطي عضوا بمجلس إدارة في الشركة القابضة المصرية الكويتية
--  هيئة البث الإسرائيلية: السفينة التي استهدفها الحوثيون كانت ستصل خلال أسبوعين
--  الاحتلال الإسرائيلي يقتحم مستشفى كمال عدوان في غزة
--  أمطار في الطريق للقاهرة.. الطقس تعلن تحديث تنبؤات حالة الجو
--  الانتخابات الرئاسية.. مسيرة بالأعلام تجوب شوارع بني عبيد فى الدقهلية- صور
--  بعد 8 أشهر من اختفائها.. العثور على ثمرة طماطم ضائعة في الفضاء
--  أطعمة غير متوقعة تحارب الأنيميا ونقص الحديد
--  إسرائيل تعلن اعتراض صاروخ حزب الله تجاه موقع المالكية العسكري
--  International students visit China Eastern Airlines
--  FP Markets, Cricket Brasil 유소년 프로그램 후원으로 CSR 강화
--  FASTER, MORE FLEXIBLE, BETTER QUALITY: JLR TO DIGITALLY TRANSFORM ORGANISATION THROUGH PARTNERSHIP WITH TATA COMMUNICATIONS
--  البنك الأهلي المتحد مصر يفتتح فرعًا جديدًا بمنطقة "تيدا الصينية" بالسخنة
--  Evropska agencija za statistiku odlučila: Ova zemlja je najbolja za život u Evropi
--  Nemanja Nedović MVP
--  Sudan – Attack on a humanitarian convoy (11.12.23)
--  Quiniela Nacional y Provincia HOY: RESULTADOS del martes 12 de diciembre
--  Jitendra Kumar, Shriya Pilagaonkar-starrer `Dry Day` to release on Prime Video
--  Karan Johar to produce romcom with Ibrahim Ali Khan and Khushi Kapoor?
--  Triptii Dimri responds to viral video of her staring at Ranbir Kapoor
--  BJP announces Bhajanlal Sharma as new CM of Rajasthan
--  Amul India`s special shout-out to Zoya Akhtar`s The Archies is winning hearts
--  Watch newlyweds Randeep, Lin get all hyped up dancing to `Patakha Guddi`
--  Nooro Foot Massager Reviews [Controversy]: Don’t Buy Until You Read This
--  Down with ankle injury, Anwar Ali misses cut in Asian Cup probables
--  হত্যার পর প্রেমিকার হাতে লেখা নাম মেহেদি দিয়ে ঢেকে দেয় ‘খুনি’
--  Νεστορίδης: Ο ποδοσφαιρικός κόσμος λέει αντίο στον θρύλο της ΑΕΚ
--  Poginuo radnik na gradilištu autoputa
--  Zakazan duel Messija i Ronalda: Poznat datum meča kojeg svi željno iščekuju
--  이한비 ‘막히다니’ [MK포토]
--  Ashley Cain’s Daughter Azaylia’s Disease: What Was It?
--  Balıkçıları üzecek rapor
--  Србија и Унгарија „победија“, Бугарија ги укинува таксите на рускиот гас
--  Congresistas estadounidenses sobre la visita de Zelenski: "no recibiremos órdenes de él"
--  Dehradun-Delhi expressway: Old road to be left for wildlife movement
--  VIDEO: Bišćanov igrač mogao zabiti za vodstvo, on se odlučio ‘osramotiti’
--  Voz usmrtio dvije osobe kod Mantove
--  Tottenham still keen on Conor Gallagher as Chelsea reportedly consider selling midfielder in January
--  La Filmoteca de Andalucía acoge CorDoc, un nuevo festival cultural
+-  Hizbullah, İsrail'e ait askeri noktaya saldırı düzenledi
+-  Osmaniye'de KOM'dan operasyon: 13 gözaltı
+-  Ekonomi devinden ABD ve Çin'e kötü haber! 2024 yılını işaret ettiler
+-  İstanbul Havalimanı bir ilke daha imza attı: ACI EUROPE Karbon Akreditasyonu'nda 4. seviyeye ulaştı
+-  Messi ve Ronaldo karşı karşıya gelecek!
+-  Pakistan'da kışlaya bombalı saldırı! Çok sayıda ölü var
+-  Sahte plakalı minibüsle hırsızlık yapan 2 şüpheli gözaltına alındı
+-  Magnaður Ronaldo skoraði sitt 50 mark á árinu – Eitt af þessum 50 kom í Laugardalnum
+-  Жену врага Кадырова не стали выпускать досрочно
+-  В Азербайджане вводится уголовная ответственность за сепаратистскую атрибутику
