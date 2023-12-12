@@ -1,11 +1,11 @@
 # Latest News
--  Empresário de Gabigol diz confiar em 'pessoas sérias' do Flamengo e responde sobre negociação com Corinthians
--  NBC Calls Audible, Dumps Al Michaels for NFL Playoffs
--  Saudi-Arabian kukkaron nöyrit jälleen selällään - nyt se haluaa Real Madridin tähtipelaajan
--  صقر بن خالد: خدمة القرآن الكريم شرف عظيم نعتز به
--  정이랑, 유쾌한 미소
--  박주현, 눈빛 반짝
--  영화 '노량' 응원 나선 명량-한산 팀
--  정시아, '시아버님 응원차 왔어요'
--  임수향, 영화 '노량' 사랑해주세요~
--  Streaming para: az EU minden országban ugyanazt a kínálatot akarja, de ez veszélyes!
+-  Eski bakan Erkan Mumcu Ankara’dan sonra İstanbul’da da otel yaptırıyor
+-  Сериозни сътресения и жестоки наказания в ЦСКА 1948!
+-  2022 markiert Trendwende bei den Kreisfinanzen
+-  Eschauer Rat entscheidet: Valentin Pfeifers Name darf bleiben
+-  Besinnliche musikalische Auszeit
+-  Ritiro Chiellini, parla Bonucci: "È la storia del calcio italiano"
+-  Man Utd vs Bayern Munich LIVE: Latest Champions League updates as Red Devils must beat Germans for any hope of last-16
+-  ఆర్టీసీ ఉద్యోగుల సమస్యలను పరిష్కరించండి
+-  لبلبة مهددة بالسجن
+-  Epic gewinnt gegen Google: Play-Store-Vorherrschaft auf Android ist illegales Monopol
