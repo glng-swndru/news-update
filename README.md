@@ -1,51 +1,51 @@
 # Latest News
+-  박광호 퍼시스 대표, '일회용품 제로 챌린지' 동참
+-  롯데GRS, ‘버거 뮤직BGM)’ 캠페인 … 대한민국광고대상 ‘은상’ 수상
+-  라이온코리아, '아이! 깨끗해' 재생 플라스틱 용기로 리뉴얼
+-  일동후디스 '하이뮨 액티브바' 3차 체험단 모집
+-  [뉴욕증시] 3대 지수, 연중 고점 경신하며 모두 상승 마감
+-  [기고] 마약과의 전쟁
+-  르세라핌 ‘Perfect Night’, 美 빌보드 6주 연속 차트인…'롱런 인기' 정석
+-  Canarias cierra noviembre con récord de turismo extranjero y supera el nivel de la Primavera Árabe
+-  Carne de cerdo a 500 pesos la libra: así viene el fin de año para los cubanos
+-  Come realizzare una tavola di Natale sostenibile e amica del pianeta
+-  Por error de cálculo trabajadores de Sepyc cobran menos esta quincena, pero la dependencia responderá
+-  ¡Llaman a la unidad! Heleodoro Astorga, el nuevo presidente de la Asociación de Propietarios Rurales
+-  Come realizzare una tavola di Natale sostenibile e amica del pianeta
+-  12월 13일(음력 11월 1일) 오늘의 운세
+-  "100-дневната кашлица": Предупреждение за силно заразна инфекция в Европа
+-  1인가구 비중 34% '역대 최대'
+-  [위장관외과] 지긋지긋한 ‘역류성식도염’ 해결책 없을까
+-  Barclay Goodrow’s man-of-steel reputation endures: ‘Mouth in a million pieces’
+-  Cómo montar un gimnasio en casa por menos de 50 euros
+-  Ordine spiega, facendo alcuni paragoni, il ruolo di Ibrahimovic nel Milan
+-  Come realizzare una tavola di Natale sostenibile e amica del pianeta
+-  Man and woman charged over alleged murder of beloved doctor
+-  Temblor en Perú, sismos del miércoles 13 de diciembre: epicentro y magnitud, según IGP
+-  مانشستر يونايتد يخسر من بايرن ميونخ ويودع دوري الأبطال
+-  Presidentti Niinistö tapaa muiden Pohjoismaiden pääministerit Oslossa
+-  إعلامي سعودي: مواجهة الأهلي واتحاد جدة قمة عربية ونهائي مبكر لمونديال الأندية
+-  الزمالك يجهز محمود الونش بمباراة ودية
+-  نابولي يتأهل إلى ثمن نهائي دوري الأبطال بثنائية في سبورتنج براجا
+-  ناقد سعودي: نفاذ تذاكر مباراة الأهلي واتحاد جدة السعودي
+-  Koky Belaunde explica por qué una invitada no debe de vestir de blanco en una boda: “es una falta de cortesía”
+-  رئيس اللجنة الأولمبية: مصر تعيش طفرة رياضية كبيرة بفضل دعم الدولة
+-  انتر ميلان يتعادل سلبيًا مع ريال سوسيداد في دوري أبطال أوروبا
+-  ريال مدريد يقلب الطاولة ويهزم يونيون برلين بثلاثية في دوري الأبطال
+-  Why Republicans are pursuing an unfounded impeachment inquiry into Biden
+-  الأمير فيصل بن سلمان مستشارا خاصا.. العاهل السعودي يصدر أوامر ملكية جديدة
+-  La nueva capital de Egipto, una pirámide del siglo XXI
+-  충주시, 분질미 가공시설 준공으로 지역농산물 가공에 새 활력
+-  진천군, 광혜원 만세운동 기념탑 건립추진위원회 학술대회 개최
+-  공공 온실가스 배출량 코로나 이후 꾸준히 증가…목표는 2045년 '0'
+-  5 Berita Terpopuler: Info dari BKN, Honorer Jangan Sepelekan Tahapan Krusial Pengumuman PPPK, Awas Tidak Tuntas
+-  Lotofácil, concurso 2977: veja resultado
+-  Come realizzare una tavola di Natale sostenibile e amica del pianeta
+-  삼성전자, ASML과 초미세 제조공정 공동 개발
+-  20 % إنجاز صيانة طريق المدينة المنورة - القصيم
+-  Em ano de recordes, Brasil ganha espaço dos Estados Unidos
+-  Em ano de recordes, Brasil ganha espaço dos Estados Unidos
+-  USD to PHP Exchange Rate Today, Wednesday, December 13, 2023
+-  Reducción de jornada laboral: diputados discutirán reforma hasta marzo de 2024
 -  Plesne v domácnosti môžu spôsobiť vážne problémy: Ako sa ich zbavíte?
 -  Herný newsfilter: Microsoft sa opäť púšťa do súboja s Apple a Googlom
--  Takto vyzerá poriadna rozlúčka so sezónou: Gleb sa vráti späť až budúci rok
--  Smrť českého hudobníka 9 dní pred jubileom: Problémy s transplantáciou!
--  Prichádzajú zmeny v sumách poistného: Nové cifry sa dotknú TÝCHTO skupín ľudí!
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  Poder Judicial decidirá si revocará o no prisión preventiva contra Pedro Castillo
--  FBI: 'भारतीय वाणिज्य दूतावास पर हमले की गंभीरता से जांच कर रहे', एफबीआई निदेशक ने एनआईए को दिलाया भरोसा
--  Dobrého partnera poznám za čtvrt hodiny
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  Após pressão de servidores, projeto que prevê porte de armas a agentes da Funai avança no Senado
--  عاجل.. مداهمة مفاجئة لمبنى سكني لعمالة مخالفة بالعزيزية.. ماذا وجد بداخله؟
--  تفاصيل وضوابط إلغاء عقد الإيجار.. والآلية الجديدة لدفع الإيجارات
--  Love Island couple hint at secret engagement with cryptic post after jetting to Australia for Christmas
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  Ruling on former SG next year
--  طائرة المنتخب الليبي تحت (17) عاما تستهل مشوارها الأفريقي بثلاثية نظيفة
--  HỘP THƯ NÔNG THÔN XANH: Xác lợn chết nổi lềnh phềnh trên ao tưới tiêu của nông dân
--  جدة تبكي حفيدها الرضيع: وُلد ومات في العدوان
--  في غزة: الغذاء بات حلماً.. والمساعدات نقطة ببحر الاحتياجات
--  Šok! Zelenski beži od Putina, zna se i kada?! Otkrivena lokacija gde će ga Zapad sakriti!
--  “القليب” يشارك في الاجتماع التشاوري الثالث بين مجلس التعليم العالي والسلك الدبلوماسي الأفريقي
--  전북 김제‧완주 가금농장서 고병원성 조류인플루엔자 확진···올 동절기 누적 8건
--  A Missing Jan 6th Suspect Has Been Revealed To Be An ’Internet Pornography Personality’ Who Goes By ‘GodHypnotic,’ Because Of Course
--  Thousands can apply for vouchers for food or energy worth up to £220 NOW in boost for Christmas budgets
--  Manuel Monsalve y emergencias comunales: “La gente necesita autoridades que tomen decisiones que resuelvan problemas”
--  “Es necesario aumentar la demanda de bienes y servicios para reactivar la economía”
--  Danh sách sơ bộ ĐT Việt Nam dự Asian Cup 2023: Nguyễn Filip có tên
--  Come realizzare una tavola di Natale sostenibile e amica del pianeta
--  New Hampshire Broadens Access to 24/7 Online Tutoring
--  Personal técnico del FMI apoya las medidas económicas de Luis Caputo en Argentina
--  ‘What if?’: NFL legend Tom Brady dreams of Montreal Expos career in ad
--  Donald Tusk: zaczyna się w jakimś sensie nowa epoka
--  Denuncian secuestro de 18 personas a manos de la Familia Michoacana en México
--  FINALLY: Mardi Gras Is Banning Cops From Conducting ‘Public Decency Inspections’ At The Parade
--  Virgen del Brezo ampliará su plantilla en 50 trabajadores en los próximos meses
--  इजराइल-हमास युद्ध का अंत नहीं! गाजा पर अलग-थलग पड़े इजराइल-अमेरिका
--  7 điểm cấp đổi giấy phép lái xe tại Hà Nội ở đâu?
--  Here’s Where You Can Buy The PS5 Slim In Australia
--  La juzgan por usurpar la identidad de un amigo para el 'renting' de un vehículo
--  Asaja Palencia califica el año para el sector de «regular» gracias al seguro agrario
--  Cortes de luz se suspenderán por Navidad y Fin de Año, pero aumentarán una hora los demás días
--  El Supremo avala que se veten los pisos turísticos cuando lo prohíba la comunidad de vecinos
--  РФ надеется, что СБ ООН вслед за Генассамблеей сможет потребовать прекращения огня в Газе
--  Business News | Walmart Sourcing Forges Strategic Partnership with Hero Ecotech Ltd. to Boost Resiliency in Bicycle Supply Chain in Time for the Holidays
--  Tres agentes tutores de Palencia, premiados por sus buenas prácticas
--  Le acusan de pegar 43 carteles usando las siglas de una inmobiliaria contra los musulmanes
--  Una mejoría insuficiente del Zunder Palencia en Vitoria
--  La empresa química Sucroal ya exporta 49% de su producción total desde Colombia
--  Here are your Christmas shipping deadlines
