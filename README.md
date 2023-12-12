@@ -1,51 +1,51 @@
 # Latest News
--  La maxi inchiesta sul giro di cocaina allo Sperone, ultime arringhe prima della sentenza per 42 imputati fra cui un agrigentino
--  원주추모공원 봉안당 2년후 9904기 만장… 봉안시설 확보 '비상'
--  АҚШ грин-картасига номзодлар маълумотлар базаси ҳимоясиз сақлангани маълум бўлди.
--  Ўзбекистоннинг 15 та логистика маркази халқаро қуруқлик портлари мақомини олиши мумкин.
--  Осимҳен — Африканинг 2023 йилдаги энг яхши футболчиси, Буну — энг яхши дарвозабон, Рикрокий — энг яхши мураббий.
--  Ҳакамни урган «Анкарагужу» президенти ва яна икки киши ҳибсга олинади.
--  Қатарда Ўзбекистон элчихонаси очилди.
--  भूमिहीनलाई जग्गा उपलब्ध गराउने प्रक्रिया अगाडि बढेन
--  उद्योगी व्यवसायीद्वारा प्रधानमन्त्री, अर्थमन्त्री र गर्भनरलाई ज्ञापनपत्र
--  고려거란전쟁, ‘2023 뉴테크 융합 콘텐츠 대상’ 대상 수상
--  درخواست 3 میلیارد دالری اوچا برای کمک‌های بشری در افغانستان
--  เทศบาลเมืองแพร่ ร่วมกิจกรรม Kick Off ลงทะเบียนบัตรประชาชนใบเดียวรักษาได้
--  동성제약, 712만 달러 규모 베트남 의약품 공급 계약 체결
--  “중간 병기 간암에서 간 절제 치료 효과적”
--  «Музыку зимы» представят на выставке в вологодской филармонии
--  조달청 나라장터 또 먹통…행안부 "전산망 종합대책 논의 박차"
--  Son dakika: 37 ilde Kafes-18 Operasyonu! 39 organize suç yapısı çökertildi
--  PM Modi, Cong chief Kharge greet Sharad Pawar on his 83rd birthday
--  양 볼에 톡톡! 아이돌 겨울 블러셔 연출법, 12월 둘째 주의 뷰티 인스타그램
--  합천, 삼가면 도시재생사업 성과공유회
--  함양보건소, 겨울철 유행 감염병 예방 당부
--  7 Times Nigerian Artists Delighted Us with Hilariously Peculiar Lyrics
--  القيادة المركزية الأمريكية: هجوم على سفينة في البحر الأحمر من مناطق سيطرة الحوثيين
--  [“조리사로 모십니다”…현대그린푸드, 군인장병 대상 채용설명회
--  [안양시, 15년 지난 녹색건축물 보수… 최대 500만원 지원
--  [케이프, 자사주 30만주 취득 결정
--  [하이브, 2023년 투어 매출 전 세계 5위…BTS·뉴진스, 스포티파이·틱톡 장악
--  [KISTI, 과학 지식인프라 ‘사이언스온’ 전면 개편
--  [바이든 “하마스 제거할 때까지 이스라엘 지원할 것”
--  [GS 3년 만에 70개 기업에 투자…허태수의 ‘신사업 특명’ 빛 볼까 [비즈360]
--  [산림청, 탄소흡수원 특성화대학원 운영…전문인력 양성 탄력
--  [은행도 ‘매니저·프로’ 호칭 쓴다…대구은행, 신인사제도 시범 실시
--  [김민석 “꽃길 걸은 분이 왜…‘이낙연 신당론’은 사쿠라 노선”
--  [여수서 2023 한·중·일 이스포츠대회 국가대항전
--  [日, 반도체·배터리 등 생산량 비례해 감세…임금 인상시 혜택 연장
--  [반대매매 위기라면 담보유지비율이 120%인 스탁론으로 해결 가능합니다!
--  [이용호 “김기현, 대표 내려놔야…불출마-험지출마 이유 없다”
--  [대전시, 기업의 혁신성장 지원체계 강화
--  [시진핑, 6년만에 베트남 방문…협력 강화 통해 미국 견제
--  [백경현 구리시장 “다양한 보육서비스 제공, 아이 키우기 가장 좋은 도시 만들겠다”
--  [조달청, 산불진화용 헬기운항 기업 현장 점검
--  [전남도, 산업단지 환경 조성 공모사업 준비 나서
--  Debat Capres 2024 Akan Dikawal 2.120 Personel Gabungan
--  39 organize suç örgütü çökertildi! Ali Yerlikaya açıkladı: 257 kişi yakalandı
--  김현 제22대 안산단원을 국회의원예비후보 출마 기자회견
--  구리문화재단 ‘꿈의 오케스트라 구리’ 제3회 정기연주회 개최
--  Can We Travel To The Other End Of The Earth? Quora Users Answer
--  ABD devi tartışmalı bölgede petrol arıyor! ''Bu duruma sessiz kalmayacağız''
--  Sicherheitsrisiko Straßenbahn?: Zahl der schweren Unfälle mit der Tram steigt in Berlin
--  iQOO 12 Launch in India Today, 12 December 2023: Expected Specs and Price Here
+-  أونصات ذهبية مزوَّرة من العراق وسوريا: الحلّ بالأرقام التسلسلية
+-  पुस २० गते १५ प्रतिशत लाभांश पारित गर्दै चिलिमे जलविद्युत
+-  सानिमा रिलायन्स लाइफकाे संस्थापक र सर्वसाधारणको शेयर स्वामित्व परिमार्जन हुने
+-  엠게임, 29억원 규모 현금배당 결정…주주환원정책 일환
+-  캐나다 대표 커피 '팀홀튼'…'커피 왕국' 韓 상륙
+-  스위밍몬스터, 인공지능 기반 수중 사고 예방 및 수질 관리 모니터링 시스템 도입
+-  방탄소년단 정국·지민, 군 입대 완료…군 공백기 스타트(종합)
+-  צבא ארה"ב: טיל שיוט של החות'ים פגע במכלית בים האדום
+-  Sandiaga Uno Hopes Rohingya Refugees Arrival Won't Tarnish Aceh's Tourism Image
+-  ما هي أسباب استقرار سعر النفط عالميا منذ اكثر من شهرين ؟
+-  Fatehabad News: दहेज हत्या मामले में पति व सास को आजीवन कारावास
+-  Agra News: स्वास्थ्य विभाग घोटाले के आरोपी को जारी कर रहा टेंडर
+-  Bhiwani News: दो बच्चों के साथ मायके गई थी पत्नी, मानसिक तनाव में युवक ने लगाया फंदा
+-  Soccerladuma | SHOCK: League Suspended After Referee Punched & Kicked In Head!
+-  Soccerladuma | Lawal: Pitso Might Not Be Accepted By Nigeria
+-  Fatehabad: भाई को खेत में छोड़ने जा रहे बाइक सवार पर किए चाकू से वार, ये थी हमले की वजह
+-  Bates leads way as Ferns ease to win over Pakistan
+-  Rajasthan BJP legislature party meeting today; suspense over CM to end
+-  Muere joven tras someterse a un trasplante de riñón en Brasil
+-  현대차·기아, 현대백화점과 '카페이' 협약 ... 차량 화면에서 주차요금 결제
+-  อิสราเอลใช้ "ฟอสฟอรัสขาว" ตามแนวปฏิบัติ กม.ระหว่างประเทศ
+-  10 อันดับเศรษฐีหุ้นไทยปี 66 "สารัชถ์ รัตนาวะดี" แชมป์ รวย 1.9 แสนล้านบาท
+-  Loi immigration rejetée: Darmanin en déplacement dans un commissariat du Val-de-Marne ce mardi matin
+-  Agra News: बुजुर्ग अभिभावकों को मिलेगा भरण पोषण
+-  Bhiwani News: शहरवासी लावारिस पशुओं को खुले में नहीं डाल सकेंगे चारा
+-  Agra News: बच्चों को बेहतर भविष्य के लिए तालीम दिलाएं
+-  Down Under stage winner Manly to lead Jayco-AlUla again
+-  Jennifer Anistonilta riipaiseva paljastus Matthew Perryn kuolemasta
+-  El Cupra Formentor es el modelo más vendido de la marca, pero hay un segunda opción que sube como la espuma
+-  Elbeuf : pour payer leur licence, les plus jeunes signent des contrats avec la Ville
+-  Kılıçdaroğlu'nun B planı ortaya çıktı! İmamoğlu'nu böyle yıkacak
+-  "Qalatasaray" üçün taleyüklü oyun
+-  Pacers rebound from in-season tourney final loss, send Pistons to 20th straight defeat
+-  Agra News: प्रधानाध्यापक की जमानत अर्जी खारिज
+-  Opozicija je obećala pobedu – po tome je valja meriti
+-  Comment transformer une voiture diesel en GPL et quels sont les avantages?
+-  Größter „Lotterie“-Gewinn bisher – Österreicher knackt Mega-Jackpot und bittet um „Betreuung“
+-  MP News: फिर एक मासूम हुआ अंधविश्वास का शिकार, गर्म सलाखों से पांच महीने के बच्चे को 21 बार दागा, हालत गंभीर
+-  Fatehabad News: चिकित्सकों की कमी व काम का बोझ पड़ा भारी, वीआरएस ले रहे अधिकारी
+-  The Voice’s Top 9 Artists Tackled Taylor Swift In The Semifinals. Which Trio Did It Best?
+-  Beursagenda: macro-economisch
+-  Météo Paris Île-de-France: un ciel nuageux avec un risque d'averses orageuses, jusqu'à 15°C à Paris
+-  Режим повышенной готовности объявили в Ростове-на-Дону из-за гололёда
+-  Agra News: सात पदों के लिए 22 नामांकन जमा किए गए
+-  গোল্ডেন গ্লোবের মনোনয়ন ঘোষণা, এগিয়ে ‘বার্বি’ ও ‘ওপেনহেইমার’
+-  'A really unbelievable signing': Ian Wright says 'people underestimate' £35m Liverpool player
+-  Tapahtumia 12.12.2023 -
+-  Climat. COP28 : pourquoi l'accord final risque d'être « très décevant »
+-  Bhiwani News: सीसीटीवी फुटेज की जांच में गाड़ी में आए अपहरणकर्ताओं की तलाश में जुटी पुलिस
+-  Ludhiana News: सुबह पेट्रोल पंप से हजारों रुपये की नकदी लूटी शाम को पकड़ा गया
