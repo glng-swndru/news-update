@@ -1,51 +1,51 @@
 # Latest News
--  بوريطة يستقبل وزير الشؤون الخارجية الغامبي حاملا رسالة إلى جلالة الملك
--  Konstytucja wcale tego nie wymagała
--  Magazyny są znowu pupilkiem banków
--  MF nie radzi sobie z przetargami na kasyna
--  Rynek najmu szykuje się na zmiany
--  Kurierzy wpadli w spiralę długów
--  Granty na rozwój oferty klastrów dla firm
--  Nastroje w branży HoReCa opadły jak suflet
--  Czy można ubezpieczyć firmę od wycieku danych
--  Tetra Pak ściągnął Plastigram do Szczuczyna
--  Polska Wschodnia: dotacyjne szanse dla firm w 2024 r.
--  Bitcoinowy fundusz w polskim wydaniu
--  Jak zwiększać sprzedaż dzięki technologii i automatyzacji
--  Rynek kontra Fed
--  THC Pathfinder rozkręci opakowaniowy marketplace
--  Katowicki TDJ ma nową strategię
--  Government pushes €280 mil. into improving vulnerable neighborhoods
--  Llegan las primeras multas a municipios por gastar demasiada agua: 30 sanciones impuestas
--  La app’ de seguridad ciudadana M7’, radicada en Cornellà, cumple diez años
--  מתרחבים: הגר משה וניר פור מצפים לילד שני
--  Rainforest Alliance: Championing sustainability in Sri Lanka’s tea sector
--  Viol d'une touriste brésilienne au Champ de Mars: un homme interpellé et mis en examen
--  Abascal arremete contra Feijóo por condenar sus palabras de «colgar de los pies» a Sánchez
--  »Wenn's im Spessart Weihnacht wird«
--  Rindenmulch-Experiment gescheitert
--  Gericht bestätigt Vorkaufsrecht für Grundstück
--  Letzter Sport-Tag in Karlstadter Halle
--  iPhone puede grabar videos que se verán en tres dimensiones con gafas de realidad virtual
--  DANAS JE DATUM OGLEDALA Evo šta znači 12.12. i šta treba obavezno da uradite NA OVAJ DAN da biste ostvarili uspehe na svim poljima
--  Apex Legends players claim it deserves the hate as they compare it to Warzone
--  Карпов: «Спартак» и «Динамо» проявляют интерес к сербскому футболисту Луковичу
--  Semujeres entrega a empresas el distintivo Sinaloa por la igualdad de género en el ámbito laboral
--  Ο Δημήτρης Πετρόπουλος εξομολογείται: «Χάλασε η συνεργασία όταν αρρώστησα – Δεν ήξερα αν θα ζω μέχρι την πρεμιέρα»
--  U FK Sarajevo stiglo veliko pojačanje: Potpisao bivši golman Arsenala
--  ¡A cumplirlos! Coparmex Mazatlán ya tiene sus propósitos de Año Nuevo: canales de riego y Tetakawi
--  Junts advierte de que la amnistía abre una negociación entre «dos naciones» de «tú a tú»
--  Kotdwar News: चिलरखाल-लालढांग मोटर मार्ग से होगी सुगम कनेक्टिविटी
--  Kotdwar News: ‘वन संपदा अमूल्य धरोहर, इसे बचाने की जिम्मेदारी हम सबकी’
--  Aligarh News: अनिल की रिहाई के लिए बेमियादी धरना तीसरे दिन भी जारी रहा
--  Aligarh News: मंदिर तोड़ने के प्रयास की एसएसपी से शिकायत
--  Aligarh News: संपत्ति को लेकर हुए झगड़े में तीसरे दिन हुई रिपोर्ट दर्ज, तीन नामजद
--  Bhadohi News: स्कूलों में सुविधाएं बढ़ती गईं, घटते गए विद्यार्थी
--  बोर्ड परीक्षा: केंद्र के मानक में 11 विद्यालय फेल
--  Bhadohi News: सांस्कृतिक कार्यक्रमों की प्रस्तुति से बच्चों ने मोहा मन
--  Bhadohi News: सात फीट निकला अजगर, वन विभाग ले गया
--  सीबीएसई: छह केन्द्रों पर होगी परीक्षा, 11 हजार अभ्यर्थी देंगे इम्तिहान
--  Bhadohi News: वाराणसी के युवती की अबूझ हाल में मौत, हत्या का आरोप
--  Bhadohi News: दहेज उत्पीड़न में पति, सास समेत चार को एक साल की सजा
--  Rewari News: महेंद्रगढ़ व रेवाड़ी के युवा आज भर्ती में लेंगे हिस्सा
--  Bhadohi News: रात हुई सबसे ठंडी, पारा 10.2 डिग्री तक गिरा
+-  México se llena de gratitud para venerar a su "madrecita", la Virgen de Guadalupe
+-  İstanbul'da "Huzur Uygulaması"
+-  Meclis Başkanı Kurtulmuş'tan şehit Teğmen Emir için taziye mesajı
+-  Şi'den Vietnam ziyaretinde işbirliği mesajı
+-  Galatasaray gruptan nasıl çıkar? İşte tüm ihtimaller...
+-  Amerikanci tvrde da su Rusi izgubili oko 315.000 vojnika u Ukrajini
+-  Google gegen Epic Games: Was Sie jetzt wissen müssen
+-  Zelenski stigao u Belu kuću na sastanak sa Bajdenom
+-  Złoto znów staniało
+-  PKP Cargo: część organizacji związkowych wszczęło spór zbiorowy
+-  “Ike pa takuar nipat”, vajza e Mirush Kabashit përlot studion e “Vizioni i Pasdites”
+-  US Posts $314 Billion Budget Deficit in November as Spending Surges 17 Percent
+-  Mundo Boca: una nueva camiseta para celebrar el día del hincha y recordar el título mundial de 2003
+-  37 Pet Food Solutions That Are Paws-itively Purr-fect For Your Furry Kids
+-  Beppe Marotta: ‘Lautaro Martinez Has Declared His Love For Inter Milan’
+-  Americans are over an impeachment of Biden, as independents flee the cause: poll
+-  CCP’s Economic Work Meeting: No Concrete Plan for China’s Recovery
+-  PRESIDENTIELLE EN EGYPTE : Un scrutin pour quoi faire ?
+-  Intrighi psicologici nell’horror «Home Education» con Julia Ormond e Rocco Fasano
+-  Duke’s plans to ‘bulldoze’ allotments and build flats blocked by planning agency
+-  منتخب سن 15 يخسر أمام نظيره الإماراتي ببطولة غرب آسيا
+-  Davno raskrinkani? Pogledajte što je Filipovićeva savjetnica radila s Grmojom: ‘Nije bilo slučajno’
+-  Government wins critical vote to go ahead with Rwanda scheme
+-  Mamonas Assassinas em família: Integrante do grupo é interpretado pelo próprio sobrinho em filme
+-  Київстар заявив про часткове відновлення послуг
+-  A ‘brain organoid’ biochip displayed serious voice recognition and math skills
+-  Найбільший пункт пропуску на кордоні з Польщею остаточно відновив роботу
+-  TO JE TO, STANIJA PRESEKLA, VIŠE NEMA NAZAD! Objavila FOTKE i svima pokazala koju odluku je donela
+-  GM and Komatsu Collaborate on Hydrogen Fuel Cell-Powered Mining Truck
+-  Israeli technocrats arrive in Cyprus for corridor talks
+-  Zlatan Ibrahimović fait son troisième come-back à l'AC Milan
+-  Pierre Sage sera sur le banc de l'OL jusqu'à la trêve
+-  Nemanja Football Shop, Football Shirt Vintage, Retrotape, Sport à l'Affiche… le programme complet de notre Incroyable Pop-Up Sport avec TrashTalk à Paris du 14 au 17 décembre!
+-  Un record de cartons rouges battu lors d'un match de D2 belge
+-  Franck Haise très remonté contre l'interdiction de déplacement des Sévillans
+-  Besiktas annonce l'exclusion de 5 joueurs de l'équipe première
+-  Manchester United, la peur des défaites de fin d'année
+-  Plus de 3500 supporters parisiens attendus à Dortmund
+-  Lionel Messi et Cristiano Ronaldo vont s'affronter en 2024
+-  Coupe de France (F) : un duel entre l'OL et Montpellier, le PSG chez un petit poucet
+-  Supporters de Séville : voyage au bout de l'affaire
+-  Les supporters sévillans saisissent le Conseil d'État
+-  Quand un journaliste demande à l'entraîneur de Séville s'il joue à la loterie
+-  Après la claque reçue à Francfort, Tuchel attend « une réaction » de ses joueurs
+-  Best of des buts amateurs du week-end des 9 et 10 décembre 2023 !
+-  Grenade-Athletic : le bel hommage au supporter décédé
+-  Gianni Infantino s'exprime après les violences en Turquie
+-  Le président d'Ankaragücü frappe l'arbitre après un match tendu contre Rizespor
+-  Pauleta veut voir Kylian Mbappé rester au PSG
+-  Olivier Dall'Oglio prend les rênes de l'ASSE
