@@ -1,51 +1,51 @@
 # Latest News
--  3분기 기업 매출 5.2% 감소 ... 제조업만 아니라 서비스도 '먹구름'
--  Ўзбекистон ва ЕИ мамлакатлари ўртасидаги савдо ҳажми 36 фоизга ошди.
--  더반찬 가정간편식 반값 할인...선물, 적립금까지
--  '의료 마이 데이터'로 중증∙응급환자 골든아워 확보
--  오십견의 계절 겨울… 원인과 치료 방법은?
--  부산고려병원 간호간병통합서비스 '2년 연속' 전국 1위
--  극한의 모터사이클 개척자
--  Chính phủ yêu cầu giải ngân vốn đầu tư công đạt ít nhất 95%
--  Thương mại toàn cầu ước tính giảm 1.500 tỉ đô la trong năm 2023
--  [지방자치단체 국제화 공모전서 최우수상 받은 순천시
--  [통일부, 배우 권해효 영화인 조사…"조총련 무단 접촉"
--  [서울시, 北 ‘EMP 위협’ 대비 도시형 방호체계 구축 논의
--  [안산도시공사, ESG 경영위원회 개최
--  [분당정자청소년수련관, 첨단기술 로봇 페스티벌 성료
--  [러시아, 점령한 우크라 땅에서도 대선 투표 실시
--  [용인특례시, 주택정비과 포함 3과 신설 1과 폐지 조직개편
--  [서울시여성가족재단, ‘서울형어린이집’ 우수사례 6곳 선정
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  [이병선 속초시장, “장애인 경제적 부담 덜어준다”
--  Breaking news: Chelsea owner todd Boehly decided to let seven, Chelsea players leave in January transfer window, including Pochettino £38m summer signing
--  [SML-루카스필름 콜라보레이션 ‘SML STAR WARS’, 공개와 동시에 완판
--  Elevii laureaţi la olimpiadele internaţionale vor fi premiaţi la Teatrul Naţional
--  Radhi OAG mahu kekasih habiskan belajar, baru kahwin
--  נקודת שפל חדשה: וושינגטון הובסה ב-45 הפרש, אבדיה קלע 9
--  Four-year-old boy killed in Palakkad; relative found with ‘self-inflicted’ injuries
--  Benzin ve motorin 2023 güncel fiyatları (1 Şubat 2023 akaryakıt fiyatları)
--  Yön uutiskooste | Hallitukselta odotetaan ratkaisua itärajasta, Kittilässä kaikki ihmiset saatu evakuoitua pinnalle kaivoksesta, Danske ennakoi korkojen puolittuvan kahden vuoden aikana
--  嫌伴娘討開門利是難纏 伴郎丟煙霧彈燻出新娘
--  เบสท์ คำสิงห์ เคยพูดไว้ ร้องไห้เยอะที่สุดในชีวิต ให้กับ คุณพ่อสมรักษ์ เพราะอะไร?
--  Masa Kampanye, Satpol PP Tunggu Rekomendasi Bawaslu Tertibkan APK Pemilu 2024
--  Final two members of BTS start mandatory military service
--  손 뻗으면 닿을 듯한 ‘그곳’이 불과 10여 km…‘다크투어 스폿’ 연평도
--  [12일 영덕군] 결혼이민여성 바리스타 과정 수료 등
--  Israel bombs Gaza after warning Hamas nears ‘dissolution’
--  India vs England: Ben Stokes expected to be specialist batter for Test series in India, says managing director Rob Key
--  台股黑馬 ETF 股價衝！哪一檔 ETF 股息配得又高、填得又快？
--  Αλλαγές στον Ποινικό Κώδικα προαναγγέλλει μέσω του newsit.gr ο Γιώργος Φλωρίδης
--  내년부터 5년간 국방비 349조원 투입…방위·전력·부대 집중 투자
--  Inside Pics From Anushka Sharma-Virat Kohli's Wedding Anniversary Celebration
--  HJ중공업 임원진 자사주 8만3248주 매입
--  US Regulatory approval for dog life extention drug paves way for similar treatments for all species
--  किस बैंक ने शुरू किया नारी शक्ति सेविंग अकाउंट, इंश्योरेंस लेकर ये मिलेंगे फायदे
--  [Musical] ‘리진’, 검은 머리 조선 여인의 드라마틱한 삶을 그리다
--  '투자 귀재' 짐 로저스 "한국 경제, 규제 너무 많다"
--  Polisi Selidiki TKP Terjadinya Begal Payudara di Pamulang
--  "소외계층과 따뜻한 연말 보내요"…'스윙유어드림 봉사단' 해단
--  라온시큐어, 국제학생증 협회 임원진과 디지털 ID 적용방안 논의
--  [2023 공동학술대회] 황종성 NIA 원장 "AI 관련 제도개선 서둘러야...AI 도입할 기업 불확실성 해소"
--  [2023 공동학술대회] 김현정 한국IBM 컨설팅 "생성형 AI 잘 활용하려면 기업 환경 먼저 재설계해야"
--  [2023 공동학술대회] 마이크로소프트가 보는 생성형 AI..."데이터와 인간의 직접 대화가 핵심"
+-  인천연구원 "지역 연구개발 성과확산 위해 산·학·연 네트워크 중요"
+-  정읍시, 고병원성 조류인플루엔자 차단 총력
+-  서구, 국토부 ‘2023 건축행정 평가’ 우뚝
+-  남동, 음식물류폐기물 배출환경 개선
+-  계양 인재양성장학교육재단, 제9회 장학생 선발
+-  강화, 겨울철 안전사고 선제적 예방
+-  ‘2023 한중일 이스포츠대회 국가대항전’ 여수서 15일 개최
+-  연수, 구립소년소녀합창단 창단…활동 ‘스타트’
+-  옹진, 2024년 동계 대학생 아르바이트 모집
+-  진도군, 병해충 기상재해 우수사례 경진대회 '최우수 기관상' 수상
+-  인천교육청, 2024학년도 정시모집 대학입학박람회 개최
+-  함평군, 낙지 8800마리 방류… 어업인 소득 증대 기대
+-  미추홀, 제2용정근린공원 흙길 산책로 정비 완료
+-  정선 정진회, 2023년 4분기 정기회의 개최...'정선 발전 모색'
+-  동구, 제8회 구청장배 체조대회 성황리 개최
+-  무안군, 마이코플라즈마폐렴 감염증 주의 당부
+-  동국제강, 극저온철근 첫 판매…프리미엄 시장공략 본격화
+-  한국양곡가공협회 홍천군지부, '희망2024 나눔 캠페인' 성품 기탁
+-  현대자동차, ‘2023 그랜드마스터 인증 평가’ 실시
+-  홍천읍 남성의용소방대, 연탄 나눔과 성금 기탁
+-  리본카, 2024 중고차 업계 성공 키워드 ‘P.E.A.C.H’…투명성 강조
+-  인천교육청, 2024년 인천교육 정책설명회 개최
+-  캐나다에서 빛나는 강릉의 별
+-  '외계+인' 2부, 류준열→김태리 캐릭터 미션 릴레이 영상 공개
+-  "국 없냐" 반찬 투정에 친구 관계 간섭하는 남편 "매를 버는 스타일"('고딩엄빠4')
+-  '마약 181회 상습투약' 유아인 첫 재판
+-  BTS 지민·정국 동반입대
+-  САЩ са „загрижени“ от съобщенията, че Израел е използвал бял фосфор в Ливан
+-  Selenskyj im Weissen Haus erwartet - Die Nacht im Überblick
+-  Preview Manchester United vs Bayern Munchen: Butuh Keajaiban
+-  Ukrajina získá další finanční pomoc od Mezinárodního měnového fondu
+-  The Offspring announce ‘Smash’ 30th anniversary concert
+-  SHOT: женщина спасла двух детей от пожара в Иркутске, выбросив их с 5 этажа
+-  Lima lelaki direman tujuh hari bantu siasat kes bunuh warga Myanmar
+-  中, 경기침체로 대규모 해고 이어져…“파업·시위 대혼란”
+-  ‘It’s Pure Aggression,’ Says Philippine Military Head Aboard Ship Harassed by China
+-  가축분뇨 공공처리시설 증설사업 본격 추진
+-  ‘서귀포시 청년정책협의체’ 청년위원 모집
+-  서귀포시, 대학생 아르바이트 모집
+-  달리는 건강 쿠킹버스 활용 식생활 교육
+-  양산 기영이엔씨·부강, 사랑의 라면 나눔
+-  2023 양산시자원봉사 한마음대회 유공자 시상식
+-  양산 한울회, 이웃돕기성금 100만 원 기부
+-  통도사성보박물관, 제8회 옻밭아카데미 회원전
+-  영산대·한국폴리텍대학 울산캠퍼스 협약
+-  하동 진정초, 주민과 함께하는 연극 축제 열어
+-  김해시도시개발공사, 소비자 중심 경영(CCM) 인증 획득
+-  양산시 원동면, 수연례 행사 개최
+-  경남교육청, 갈등 조정자 역량 강화 연수
+-  함양군 유림면지 출판기념회 개최
