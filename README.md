@@ -1,11 +1,11 @@
 # Latest News
--  NFL Week 14 Recap, Week 15 Look Ahead, and Betaches
--  難敵電動化浪潮，廣汽本田宣布裁員 900 人
--  Байден: США не знают, есть ли заложники в затапливаемых Израилем туннелях
--  ASML 與三星簽署備忘錄，預計共同在韓國建立研究中心
--  Argentina devalues its currency and cuts subsidies as part of shock economic measures
--  US wildlife managers capture wandering Mexican wolf, attempt dating game ahead of breeding season
--  Be aware of these seasonal road closures in Bonneville County
--  Dictionary.com’s word of the year is a common one. But it doesn’t mean what you think
--  Mistral AI Picks ‘Mixture of Experts’ Model to Challenge GPT 3.5
--  Poll Worker Testifies How Giuliani’s Lies Had Her Life ‘Flipped Upside Down’
+-  معلومات عن التهابات تظهر في العين.. مرض مزمن يصيب الغدة الدمعية
+-  Anuncia Gobierno de Milei devaluación de peso argentino
+-  Queda corta disponibilidad de pavo en México
+-  ¡La locura! Piden hasta 83 mil por boletos de la Final
+-  اعتماد قرار أممي بوقف فوري لإطلاق النار في غزة
+-  نبات يعزز القدرات الذهنية والتركيز
+-  احتفاء «ناسا» بالأعياد: صور بديعة لنجم متفجر
+-  ¿No sabes qué hacer con tu gratificación? Sigue estos pasos para aprovecharla
+-  Shangri-La Frontier Season 1 Episode 12 Release Date & Time on Crunchyroll
+-  "미국 가서 韓 빛내야 한다" 고우석 ML 도전, 이대호도 강력 추천했다
