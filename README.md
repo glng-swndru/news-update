@@ -1,11 +1,11 @@
 # Latest News
--  Čo robiť, aby boli MEDOVNÍKY mäkké dlhé týždne? Trik s jablkom pozná každý, tieto FINTY málokto!
--  Acodeco recomienda evitar las compras impulsivas y comparar precios
--  Hombre fue condenado a 13 años de prisión por secuestro
--  It’s criminal – Rio Ferdinand accuses Man United of playing ‘kamikaze football’
--  Napoli, Braga'yı rahat geçti
--  Dries Mertens: Üzgünüz, yazık oldu
--  Nijerya'da silahlı saldırı: 4 asker öldü
--  Kopenhaglı futbolcular konuştu!
--  İspanya alev alev yanıyor: Sıcaklıkta yeni rekor
--  Epic Games, Fortnite y Google: El juicio contra el monopolio ilegal de Google Play
+-  Así puedes utilizar la IA para Navidad: compras, cartas a Papá Noel y tarjetas navideñas
+-  "منظر بديع".. الثلوج تتساقط على مرتفعات تبوك
+-  Liga Mistrzów: Kopenhaga i Napoli z awansem. Manchester United za burtą
+-  Totenhem "blindirao" Udogija
+-  Nový trend v manikúre: Čím sú populárne jelly nails, ktoré sú návratom do deväťdesiatok?
+-  KVÍZ Svet filmu: Spoznáte kultové trháky podľa krátkeho opisu deja?
+-  Samsung, ASML to build memory chip R&D center in Korea
+-  Adrián Pallares y Rodrigo Lussich rompieron el silencio sobre el despido de Virginia Gallardo
+-  Multiplan (MULT3), Melnick (MELK3) e CSU Digital (CSUD3) informam dividendos e JCP
+-  FDA inspecting plant in Ecuador in applesauce lead situation; more children reported sick
