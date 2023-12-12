@@ -1,51 +1,51 @@
 # Latest News
--  FETÖ'cülere geçit yok: Üç terörist Yunanistan'a kaçarken yakalandı
--  Baykar'ın İHA test ve geliştirme merkezleri yatırım alanları kapsamına alındı
--  이혼·재혼 동시 발표…티아라 아름, ♥연인 '독전2' 각본가설→양육권 포기 시사까지 [MD이슈]
--  [MD장충] '11승 최하위→올시즌 벌써 9승' 김상우 감독, "승점 관리는 사치...체력적으로 힘들지만 매경기 승리 목표"
--  "오타니, 역사 쓰는 모습 지켜볼 수 있어 영광이었다" LAA의 감동 뭉클한 이별사
--  '김민재 포함 뮌헨 수비진 폭격' 프랑크푸르트 공격진→분데스리가 주간 베스트11 선정
--  How to Get Tretinoin .05 percent (Retin-A) Online for Glowing Skin [2024]
--  전청조→허경영 이번엔 '사기 악인'이다…'악인취재기; 사기공화국' 15일 공개
--  Angola "bate o pé" à OPEP e exige quota de produção acima da meta do OGE
--  "Teniseri su mršaviji, to je Đokovićeva zasluga"
--  "Predaju se... Pred slomom su"
--  Srbija i Mađarska "odnele pobedu": Bugarska ipak ukida takse
--  Anzeige – Materna 2027: Klarer Kurs auf eine Milliarde Euro Umsatz und Markführerschaft in KI / Unternehmensgruppe präsentiert neue Geschäftsausrichtung "GRIP²" für nachhaltiges Wachstum und Innovation bis 2027
--  Google predstavlja GenAI rješenje Gemini
--  Unilever weist "Greenwashing"-Vorwürfe zurück und wird CMA bei Untersuchung unterstützen
--  Unilever weerlegt 'greenwashing' beschuldigingen, zal CMA helpen bij onderzoek
--  Fleeing Israel too, Ukrainian Jews seek refuge in Hungary
--  Le championnat de football turc suspendu après le lynchage d’un arbitre
--  La Red Europea finaliza 2023 con la incorporación de tres nuevos socios
--  La Junta reconoce a los profesionales del SAVA por su gran labor en atención
--  El Gran Juego de la Oca lanza el reto ‘En busca de la lotería de Navidad’
--  "القوات" لميقاتي: هل تدري ما أنت فاعله؟
--  Iz mog ugla, Nikolina Kuveljić
--  Ayaneo Retro Mini PC AM01 review: Punching above its weight
--  Space News: Four IAF pilots selected as astronaut-designates for 2024 moon mission
--  بطريقة مميزة.. مذيعة أخبار الـ mtv تكشف جنس مولودها الأول شاهدوا ردة فعلها (فيديو)
--  IVG dans la Constitution : le projet de loi présenté en Conseil des ministres
--  Puis-je ramasser du bois en forêt pour me chauffer ? Le 20H vous répond
--  FUEVFVND: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEVN100: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEMAV30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEKIV30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEKIVFS: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  E1VFVN30: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  أولوية "القوات" التمديد... حاصباني: نقوم بما نراه مناسباً!
--  Vốn FDI của Trung Quốc vào Việt Nam vượt trội trong 5 năm qua
--  FUEDCMID: Thông báo thay đổi giá trị tài sản ròng ngày 11/12/2023
--  FUEVN100: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  E1VFVN30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEVFVND: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEMAV30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEKIV30: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEKIVFS: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  FUEDCMID: Kết thúc giao dịch hoán đổi ngày 11/12/2023
--  HNX: Ngày 18/12/2023, ngày giao dịch đầu tiên cổ phiếu đăng ký giao dịch của CTCP Thủy sản Bạc Liêu (BLF)
--  HNX: Quyết định chấp thuận đăng ký giao dịch cổ phiếu của CTCP Thủy sản Bạc Liêu (BLF)
--  VOC: Nghị quyết Đại hội đồng cổ đông bất thường năm 2023
--  VTX: Thông qua hợp đồng khoản vay giữa Công ty và Công ty TNHH MTV Sotrans Logistics
--  СБУ пришла с обысками в храм канонической УПЦ в Ровно
--  Acidente entre ônibus e caminhão deixa feridos na PR-444, em Arapongas
+-  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 12 décembre – la France éteint Team USA en 2019
+-  Türkiye İHA-122 ile yine başardı! Dünyada çok az sayıda ülke sahip
+-  ABD'den Rusya'ya uranyum ithalatı yasağı
+-  "Seni öldüreceğim"... Saldırıya uğrayan hakem Meler'in ifadesi ortaya çıktı
+-  Cezası kesinleşmiş 3 FETÖ'cü Yunanistan'a kaçarken yakalandı
+-  İşsizlik Sigortası Fonu 1 ayda 1 milyar 827 milyon lira ödeme yaptı
+-  İletişim Başkanı Altun, Türk-Yunan Medya ve Akademi Forumuna video mesajla katıldı: Yunanistan gibi yakın komşularımızla aşılamayacak hiçbir sorunumuz yok
+-  Corona-Zahlen in Delmenhorst aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Verden aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Uelzen aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Stade aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Nefes borusuna şeker kaçan çocuğu, Heimlich manevrası ile kurtardı
+-  Tartışan çifte müdahale edince bıçaklandı: Kimseye yardım edemiyorum
+-  حسين الشحات: الأهلي أهم من أرقامي القياسية في كأس العالم للأندية
+-  Hukukçular yorumladı! Hakeme yumruğun cezası ne olacak?
+-  Corona-Zahlen im Heidekreis aktuell: Die Coronavirus-News aus der Region
+-  اليوم الثالث للانتخابات.. استمرار توافد المواطنين على لجان العاصمة الإدارية
+-  Corona-Zahlen im Landkreis Rotenburg (Wümme) aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  В Херсонской области создадут единую управляющую компанию
+-  Филиал «Ярэнерго» обеспечил электроэнергией центральные катки в четырех городах Ярославской области
+-  Corona-Zahlen im Landkreis Osterholz aktuell: Aktuelle Daten zum Coronavirus
+-  ما هي قدرات سلاح القسام عبوة شواظ؟
+-  نتنياهو: السعودية والإمارات ستموّلان إعادة إعمار غزة
+-  اللوبي الإسرائيلي يقيل رئيسة جامعة بنسلفانيا
+-  Corona-Zahlen im Landkreis Lüneburg aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Harburg aktuell: Die Coronavirus-News aus der Region
+-  Κώστας Νεστορίδης: Τα ένδοξα χρόνια στην ΑΕΚ και το τρομερό ρεκόρ του
+-  Corona-Zahlen im Landkreis Cuxhaven aktuell: Inzidenz für Landkreis Cuxhaven, Niedersachsen und Deutschland
+-  Nya ägare till lantbruksfastighet för 3 995 000 kronor i Söderbärke
+-  Corona-Zahlen im Landkreis Celle aktuell: Aktuelle Daten zum Coronavirus
+-  В Курской области 13 декабря ожидается снег при 6-градусном морозе
+-  Corona-Zahlen im Landkreis Schaumburg aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Nienburg (Weser) aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  Ханан: Не успеа контраофанзивата на Украина
+-  Chinhoyi University Student Abducted And Tortured – Mahere
+-  Эксперт Беляева объяснила, какие сладкие подарки не нужно дарить детям
+-  Corona-Zahlen im Landkreis Holzminden aktuell: Zahlen und Fakten aus der Region
+-  Cinghiale ucciso sulla ciclabile, Apas: “Metodi sanguinari ed efferati, ora basta”
+-  Corona-Zahlen im Landkreis Hildesheim aktuell: Aktuelle Daten zum Coronavirus
+-  เศรษฐกิจโลกขย่มไทย ลุ้นอุตสาหกรรมอาหาร เกษตร ส่งออกปี 67
+-  Türkiye'nin en zengin aileleri ve isimleri açıklandı!
+-  Corona-Zahlen im Landkreis Hameln-Pyrmont aktuell: Die Coronavirus-News aus der Region
+-  На Соборной площади в Твери поставят лошадей, карету и елку
+-  Corona-Zahlen im Landkreis Diepholz aktuell: Aktuelle Daten zum Coronavirus
+-  Movenpick Hotel Colombo Shines Bright with Christmas Tree Lighting Ceremony
+-  iOS 17.2 来了 即将推出的17项新功能
+-  Corona-Zahlen im Landkreis Region Hannover aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  荣耀Magic 6参数曝光，配备可变光圈镜头和潜望式长焦
+-  Петербургские подростки не смогут купить зажигалки до совершеннолетия
