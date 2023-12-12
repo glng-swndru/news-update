@@ -1,11 +1,11 @@
 # Latest News
--  합리적 가격 해외 브랜드 ... 국내에 들어오면 왜 비싸지나
--  [유명 男배우 무슨 일? "타이거 우즈 살리더니 나도 살렸다" 파손차량 공개
--  Fuerza del Pueblo anuncia su Comité Nacional de Campaña para las próximas elecciones
--  Autohome Inc. Announces Cash Dividend and Amendment to Dividend Policy
--  Hitterecord in Spanje voor december: bijna 30 graden in Malaga
--  Max is now available to watch on YouTube Primetime Channels
--  LIVE Champions League | Joselu maakt zijn tweede voor Real in Berlijn, Benfica moet scoren bij Salzburg
--  Maioria esmagadora na ONU aprova resolução que exige cessar-fogo em Gaza
--  درنة.. استمرار انتشال جثث ضحايا الفيضان
--  3 Bank Stocks I Wouldn’t Touch With a 10-Foot Pole
+-  President and AKD clash over renewable energy projects
+-  Rs. 165 billion bond auctions bullish on short tenures
+-  Champions League am Dienstag kompakt: Ergebnisse, Spielverläufe, Torschützen
+-  NZ weather live: Storm sends baby dolls flying out the door of Lower Hutt shop
+-  Gladys Knight to bring Farewell Tour to New Zealand in 2024
+-  על רקע לחץ אמריקני: ישראל שוקלת לפתוח את מעבר כרם שלום להכנסת סיוע לעזה
+-  Israel Begins Pumping Seawater Into Hamas Tunnels In Gaza
+-  Champions League: Napoli și FC Copenhaga s-au calificat în optimi – Manchester United, eliminată din Europa
+-  Наполи и Елмас одат во осминафинале, Манчестер јунајтед се збогува со Европа! (ВИДЕО)
+-  Le pagelle dell'Inter - Sanchez e Frattesi si nascondono, Lautaro l'ultimo a provarci
