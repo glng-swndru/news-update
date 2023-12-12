@@ -1,11 +1,51 @@
 # Latest News
--  Lai Châu: Phát huy vai trò các tổ chuyên trách bảo vệ rừng
--  EU laat AI-ontwikkelaars bepalen of ze moeten voldoen aan strengste regels AI Act
--  Asesinan a 'El uber más famoso de Juárez' durante transmisión
--  Volcadura en canal de riego deja 2 muertos
--  Edgy comedian Daniel Tosh defends 'cancel culture,' says 'there has to be consequences'
--  الخطاف وخاشقجي: المملكة رائدة في مجال التحول الرقمي ولديها رؤية بعيدة المدى... تعرف على تفاصيل الندوة الحوارية
--  ألاگ/ رئيس الجمهورية يدشن مقاطع طرقية في عدة ولايات
--  Amerikanska inflationen bromsade in som förväntat
--  Finland to reopen two Russia border crossings: PM
--  Son dakika... Başkan Erdoğan, Fatih Erbakan'ı kabul edecek
+-  आईपीएल नीलामी 2024: किस टीम ने बचाए और खर्च किए कितने पैसे? जानिए सभी टीमों का पूरा हाल
+-  Einbrecher flüchtet mit Tresor
+-  Bücher, lesenswert und wertvoll
+-  Hochwasserlage in Bayern weiterhin angespannt
+-  Bayern-Initiativen gegen Bürgergeld und Wolf
+-  Würzburg: Mann stirbt bei Betriebsunfall
+-  Rutte: Fear of Timmermans as new Dutch PM made VVD voters switch to far-right PVV
+-  BC government red tape ties hands of search and rescue groups
+-  Deal in Maskenprozess: Tandler soll mehr als vier Jahre in Haft
+-  फिल्म ‘डंकी’ की रिलीज से पहले माता वैष्णो देवी के दरबार पहुंचे शाहरुख
+-  Zara na udaru zbog nove modne kampanje. Ljudi prosvjeduju: 'Iskorištavate mrtve Palestince'
+-  सीता–राम विवाह पञ्चमी महोत्सव जनकपुरधाममा सुरु
+-  “야구가 끝나면 허무했다…GG 너무 받고 싶었어” KBO 현역 통산타율 1위 예약, 부모님 위해 야구한다 ‘다짐’
+-  [팬스타, 대학가요제 스타 ‘샌드페블즈’와 함께하는 부산~오사카 크루즈 운영
+-  Żywe choinki z polskich hodowli ozdobiły Starostwo Powiatowe w Gnieźnie
+-  [“아빠, 도와줘” 아내 살해한 변호사, 119보다 국회의원 父에 먼저 전화
+-  Amanda Bynes Reveals the Plastic Surgery Procedure She's Had Done
+-  iPhone 16 लॉन्च से पहले हिला चीन, भारत को फायदा
+-  Realmente miramos con desprecio a las personas que tienen acné, según un estudio
+-  جيش العدو يعترف بمصرع ضابط وإصابة ثلاثة جنود خلال المعارك في غزة
+-  منتخب وزیراعظم کو نااہل قرار دینے کیلئے بنائے گئے مقدمات انجام کو پہنچ گئے، شہباز شریف
+-  Nešić: BiH spremna da bude dio kolektivnog sistema bezbjednosti
+-  Fallece José María Arias Mosquera, presidente de la Fundación Barrié y último del Banco Pastor
+-  Schon 2022 beschlossen: Puma beendet Vertrag mit israelischer Fußball-Nationalmannschaft 2024
+-  Cumhurbaşkanı Erdoğan Fatih Erbakanı'ı kabul edecek
+-  Hakemlerden toplu istifa
+-  इस तरह प्लानिंग कर आप रिटायरमेंट के बाद हर महीने 2.5 लाख रुपये पा सकते हैं, जानिए कैसे
+-  Zamfara Rounds Up 2nd Phase Of Free Medical Outreach
+-  Manisa'da 64 Gündür Aranıyordu, Mersin'de Bulundu
+-  เบสท์ คำสิงห์ เปิดใจ หลังถูก สมรักษ์ ถูกแจ้งความ กระทำอนาจารเด็ก !?
+-  Preocupa a EU que Israel esté usando fósforo blanco: Casa Blanca
+-  CES 2024: TechCrunch wants to meet your startup
+-  Arrestan a pandillero que pretendía evadir la justicia al cubrir sus tatuajes con otros diseños
+-  Uhapšen Beranac: Pronađeno pet pušaka i tri pištolja
+-  Indian Film Festival of Melbourne honours Shabana Azmi, announces IFFM Baari and 2024 festival dates
+-  Makarska prelomila - dosta je apartmanizacije, nema više gradnje! ‘Najvažnija odluka u zadnjih nekoliko desetljeća‘
+-  양동근 "'오징어 게임2' 촬영 때마다 비밀유지 서약…삼엄한 분위기'('돌싱포맨')
+-  آر جے مال آتشزدگی: تحقیقاتی رپورٹ میں اہم انکشافات، نقصان کا ذمہ دار کون ہے؟
+-  Španija: Zaplijenjeno više od sedam tona kokaina, uhapšeno 20 ljudi
+-  UNE: se pronostica una afectación de 385 MW en el horario pico de este martes
+-  79 Yaşındaki Adam Cinsel İlişkileri Duyulmasın diye Arkadaşını Parçalara Ayırmıştı! Cezası Belli Oldu
+-  مناقشة تقرير إنجاز وحدة تمويل المشاريع والمبادرات الزراعية بمأرب
+-  Cenitev Plečnikovega stadiona, ki jo je naročil MOL, podobna Pečečnikovi: 18 milijonov
+-  Court overturns conviction of former Pakistani premier Nawaz Sharif ahead of parliamentary election
+-  Los cinco idiomas más estudiados por los argentinos en 2023
+-  Spider-Man 4: Was Anne Hathaway To Play Black Cat in Cancelled Tobey Maguire Movie?
+-  हनीमून के लिए अद्भुत जगह है कौसानी गांव
+-  Stort hackerangreb rammer Ukraines største mobiloperatør
+-  More US aid can't help Ukraine, Kremlin says before Zelenskiy-Biden talks
+-  Auf mehr als 11.000 Metern Höhe: Airbus A320 meldet medizinischen Notfall über Deutschland
