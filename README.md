@@ -1,51 +1,51 @@
 # Latest News
--  European football clubs risk sanction breaches in Russian transfer deals; investigation
--  Cibona nastavila s odličnim igrama, sada je uvjerljivo ostvarila plasman u četvrtfinale Kupa
--  Ricardo Arjona le dice adiós a los escenarios. Su salud está en juego
--  Borsa Günü Yatay Seyirle Tamamladı
--  Detenida en Málaga la mujer que denunció al hijo de Conde-Pumpido por un intento de homicidio en Brasil
--  Los sindicatos acusan a Kristau Eskola de tener «una táctica de dilación del conflicto»
--  Lok Sabha Approves Rs 1.29 Lakh Cr Supplementary Grants
--  Ola Electric Prepares For IPO, Aims For $ 8 Bn Valuation
--  Tata Communications Secures Jaguar Land Rover Digital Transformation Deal
--  Major Commitments On Food, Agriculture, And Water Day At COP28 Drive Climate Action For 1.5°C Goal
--  COP28 Makes History With Inaugural Youth Stocktake In Collaboration With YOUNGO, Aiming To Forge Global Legacy In Climate Action
--  COP28 And International Energy Agency Reaffirm 1.5°C- Aligned Energy Transition
--  CKS, Esri India Sign MoU To Launch Programme In Geospatial Technology Skilling
--  Industry Leaders Voice Support For Equitable AI, Urge For Global Partnerships
--  FBI Chief Seeks NIA Partnership, Says Bureau Aggressively Probing Indian Consulate Attack In San Francisco
--  Adani Ports To Raise Rs 5,000 Cr Via Non-convertible Debentures
--  Budaun News: दौड़, लंबीकूद और कबड्डी के ट्रायल 19 से
--  Budaun News: दौड़ में मोनू और मनीषा ने सबको पीछे छोड़ा
--  Budaun News: योगासन चार्ट प्रतियोगिता में दीपशिखा प्रथम
--  Budaun News: अंग्रेजी साहित्यकारों के बारे में दी जानकारी
--  Budaun News: सीएफओ रामराज यादव उन्नाव ट्रेनिंग सेंटर से संबद्ध
--  बार एसोसिएशन चुनाव : पुस्तकालय पद का एक नामांकन निरस्त
--  Budaun News: रोड रोलर की चपेट में आकर बाइक सवार दो लोग घायल
--  Budaun News: तीन सदस्यीय कमेटी करेगी महिला के शव से आंखें निकालने की जांच
--  Budaun News: दूसरे दिन भी नहीं पकड़ा जा सका पत्नी का हत्यारोपी
--  Budaun News: बरेली के तिलक इंटर कॉलेज के दो शिक्षकों के खिलाफ लूट की रिपोर्ट
--  Budaun News: पेट्रोल पंप का लाइसेंस देने के नाम 19.85 लाख रुपये की ठगी
--  Agra News: चार सौ मीट्रिक टन यूरिया की और हुई आपूर्ति
--  Sitapur News: ट्राॅली से टकराई कार, छह घायल
--  Pilibhit News: 25 लाख का मिनी स्टेडियम बना कूड़ाघर
--  Budaun News: दहेज की खातिर रिश्ता तोड़ा, चार पर रिपोर्ट
--  Sitapur News: नालों पर किए अतिक्रमण पर चला बुलडोजर
--  Pilibhit News: बेसिक स्कूलों के स्टोर व अलमारियों की शोभा बढ़ा रहे फायर सिलिंडर
--  Budaun News: तीन मस्जिदों के लाउडस्पीकर जब्त, मुअज्जिनों पर रिपोर्ट
--  Pilibhit News: बरखेड़ा से दिल्ली तक बस का संचालन शुरू, मिली राहत
--  Una News: ललड़ी और नंगल खुर्द में जांचा 140 लोगों का स्वास्थ्य
--  Una News: घर के बाहर खड़ी स्कूटी चोरी
--  Una News: दुकान पर सामान लेने गई नाबालिग लड़की लापता
--  Mahendragarh-Narnaul News: बिना ऑपरेटर के सरकारी कार्यालयों में बाधित रहे कार्य
--  Mahendragarh-Narnaul News: धनौंदा जलघर में डूबने से 78 वर्षीय बुजुर्ग की मौत
--  Mahendragarh-Narnaul News: नारनौल डिपो की 10 बसें रेवाड़ी को देने पर चढ़ा पारा
--  Mahendragarh-Narnaul News: डीजे बंद करवाने पहुंची पुलिस के साथ मारपीट
--  Banda News: ट्रक की टक्कर से कोचिंग संचालक की मौत
--  Banda News: पिकअप की टक्कर से एक की मौत, दूसरा घायल
--  Banda News: 80 फीसदी बसों में ऑलवेदर बल्व व रिफ्लेक्टिव टेप
--  इंतजार खत्म: बरेली में चौपुला पुल को अटल सेतु से जोड़ने का काम आज से शुरू, साढ़े तीन महीने बाधित रहेगा यातायात
--  Bareilly: लखनऊ से मुरादाबाद चल रही जांच, फिर भी नहीं लगा जीआरपी सिपाही की पिस्टल का सुराग
--  Jind News: टेंडर पूरा होने के कारण दो माह से बंद पड़ी एटीवी रेलवे मशीन
--  नौ दिनों 90 हलकों में पहुंचेंगी आप की बदलाव यात्रा : आयुष खटकड़
--  Jind News: भारत सिनेमा के पास गोलियां मारकर हत्या करने के पांच दोषियों को उम्रकैद
+-  КРАЈНОДЕСНИЧАРСКИ ПРАТЕНИК СО ПРОТИВПОЖАРЕН АПАРАТ ИЗГАСНА СВЕЌИ ЗА ЕВРЕЈСКИОТ ПРАЗНИК ХАНУКА ВО ПОЛСКИОТ ПАРЛАМЕНТ
+-  Aerolínea low cost anunció una nueva ruta aérea a Chile desde Buenos Aires
+-  Meyiwa trial: Magistrate dismisses 'outrageous' claims by alleged killer
+-  Italy and Juve icon Chiellini calls time on playing career
+-  From peace to traffic: 'Amapanyaza' officers get an upgrade
+-  Palestinian economy severely impacted by Israel-Hamas war: World Bank
+-  5 children killed in east DR Congo lightning strike
+-  Multi-Party Charter participation doesn't take away independence - IFP
+-  Libya sends illegal migrants home to Egypt and Nigeria
+-  Curtains are back up for the theatrical Momo's Magical Adventures
+-  Kwezanamuhla: Busengcupheni ubukhosi baKwaZulu, kukhunjulwa uZahara
+-  The day that was: Mourning Zahara, massive court victory for refugees in SA
+-  Rat u Ukrajini koštao Rusiju 315.000 poginulih i ranjenih vojnika
+-  예원, 유니크한 청스커트
+-  기안84, 노량 파이팅!
+-  곽튜브 '수줍'
+-  주현영, 노량 엄지척!
+-  김재중, 눈부신 비주얼
+-  Quem são os ministros de Javier Milei na Argentina
+-  منتجات التبغ البديلة: Iqos Ilumaفي طليعة الابتكارات
+-  الجيش الإسرائيلي يستعيد جثتي رهينتين ومقتل جنديين في العملية
+-  Grealish e companhia treinam para concluir a 1ª fase com 100% de aproveitamento na Sérvia
+-  La médica Norak Cruz Dunne será la próxima diputada regional del PSOE
+-  "משרד הבריאות לא תפקד ב-7 באוקטובר": ועדה תחקור את פינוי הפצועים בטבח
+-  Kadrovska rješenja: Imenovani v.d. direktori Željeznica, Pošte, Binsa ...
+-  Netanyahu, ABD'nin 'Gazze Filistinlilere bırakılmalı' görüşüne meydan okudu
+-  مقتل جنديين إسرائيليين خلال عملية استعادة جثتين من غزة
+-  Pençe-Kilit Operasyonu bölgesinde bir asker şehit oldu
+-  أبو حمزة للإسرائيليين: نتنياهو يريد البقاء في الحكم والثمن هو أبناؤكم
+-  وصول جرحى ومرضى من غزة إلى تركيا
+-  FPF ofrecerá “monto importante” a Juan Reynoso para acabar con su mandato en Perú
+-  Popularna Drnišanka počastila se dalekim putovanjem: imala je vremena skočiti u more i pozirati
+-  Arsenal maakt eerste doelpunt van de avond: bekijk hier alle goals in de Champions League van vanavond
+-  Cuenta atrás para la San Silvestre más animal
+-  B.C. woman sues after alleged clerical error delays cancer diagnosis
+-  Redevelopment Kleine Berg kicked off
+-  Stellar Show in the Sky: Costa Rica’s Prime Viewing of the Geminid Meteor Shower
+-  Mindenki visszatérítést kap a katasztrófális The Day Before után
+-  داير فيها صعصع.. بوليس مراكش يوقف شخصا حطم زجاج سيارات
+-  Noviembre deja un aviso en el Seve Ballesteros
+-  Jeremy Allen White was mortified after seeing Zac Efron’s body for ‘The Iron Claw’
+-  «Σεισμός» με επιστροφή πρώην άσσου στον Ολυμπιακό!
+-  9 DANA NI TRAGA NI GLASA OD IVICE (39) Porodica očajna, sumnja na najgore - uključena i žandarmerija
+-  Mario Radić: ‘Ovo je nenormalno, Most surađuje s ljudima koji su ukrali milijardu kuna! Pogledajte samo ta imena...‘
+-  Még az augusztusinál is szebb csillaghullásban lehet részed néhány napon belül: ekkor érdemes az eget kémlelni
+-  【精神科医が教える】 バズりたがる人の落とし穴 - 精神科医Tomyが教える 30代を悩まず生きる言葉
+-  Biden says Israel losing support around the world for Hamas war, suggests Netanyahu make change
+-  Patricia Benavides: admiten acción de amparo presentada por la suspendida fiscal contra la JNJ
+-  Motorist Ian Stalker who killed Connie McAvoy while test driving high-powered car in Thornliebank jailed
+-  Božović: Mnogi bivši funkcioneri DPS-a će doći na red za procesuiranja
