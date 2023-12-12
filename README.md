@@ -1,11 +1,11 @@
 # Latest News
--  President and AKD clash over renewable energy projects
--  Rs. 165 billion bond auctions bullish on short tenures
--  Champions League am Dienstag kompakt: Ergebnisse, Spielverläufe, Torschützen
--  NZ weather live: Storm sends baby dolls flying out the door of Lower Hutt shop
--  Gladys Knight to bring Farewell Tour to New Zealand in 2024
--  על רקע לחץ אמריקני: ישראל שוקלת לפתוח את מעבר כרם שלום להכנסת סיוע לעזה
--  Israel Begins Pumping Seawater Into Hamas Tunnels In Gaza
--  Champions League: Napoli și FC Copenhaga s-au calificat în optimi – Manchester United, eliminată din Europa
--  Наполи и Елмас одат во осминафинале, Манчестер јунајтед се збогува со Европа! (ВИДЕО)
--  Le pagelle dell'Inter - Sanchez e Frattesi si nascondono, Lautaro l'ultimo a provarci
+-  UN IZGLASALE REZOLUCIJU O PREKIDU VATRE U POJASU GAZE: Protiv bili Izrael i Sjedinjne Američke Države
+-  Puola saamassa uuden hallituksen – EU-myönteinen kokoonpano voitti parlamentin luottamuksen
+-  Potpuni krah Uniteda, izgubio od Bayerna i ostalo čak i bez EL!
+-  الجمعية العامة للأمم المتحدة تطالب بوقف فوري لإطلاق النار في غزة
+-  Red Devils Sergeant Major’s Fatal Accident During Parachute Training
+-  U čemu ljudi griješe kada kuhaju jaja
+-  Tras extravío de pescadores, Flor Emilia Mena exhorta a “poner mayor atención” en campos pesqueros
+-  Generalna skupština UN usvojila rezoluciju o prekidu vatre u Pojasu Gaze
+-  Cada 2.5 horas nace un niño con labio de paladar hendido; el Pediátrico tiene un área especializada
+-  RAZA RETURNS, TRIO AXED
