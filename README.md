@@ -1,11 +1,51 @@
 # Latest News
--  이동환 고양시장 “노후계획도시 특별법 국회 통과 환영…주민 맞춤형 재건축 탄력 기대”
--  고창군, 올해 ‘세계유산 고인돌유적’ 시굴조사 최종 마무리
--  장흥군, ‘청년공동체 활성화 사업 성과공유회’ 개최
--  파주시, ‘경제자유구역 지정’목표로 용역 착수
--  의정부시, 국민건강보험공단 의정부지사, 저소득가구에 온누리 상품권 100만 원 전달
--  홍천군, 2023년‘홍천군 청년주인수당’도입으로 청년 정책 본격 추진
--  청송군, 과학영농 및 친환경농업 선도
--  11월 아파트 입주율 72.3%, '연중 최고' ... 서울 82.2%→84.9%
--  전남도, 김영록 지사, “혁신 아이디어로 비전 세우고 과감한 실천을”
--  梅西百貨坐擁房產喜迎 58 億美元併購，股價飆近 20%
+-  طال انتظارها.. «فيسبوك» يتيح ميزة تعديل الرسائل في ماسنيجر بعد إرسالها
+-  Wine bottle sparked sport journalist Paul Kent’s domestic violence allegation, court told
+-  [근육질 방시혁 의장, 산타모자 쓰고 야릇한 표정…도대체 무슨일?
+-  [주식카톡방 완전무료 선언” 파격결정
+-  [2년간 없더니 ‘난리’…코로나 풀리자 급증한 이 감염병
+-  [UNIST, 전기전도성 72배 높인 ‘바인더’ 개발…힘쎄고 오래가는 배터리 만든다
+-  [정명근 시장“100만 화성시,스포츠 도시로 도약”
+-  Abogan Cuba y Angola por consolidar relaciones económicas y comerciales
+-  नगरकी छोरीलाई पाँच हजार
+-  दुई सय त्रियानब्बे परिवारलाई लालपुर्जा
+-  गढवा–कालाकाटे सडक निर्माण
+-  Anwar’s Cabinet reshuffle sees the return of Umno’s Jo Ghani, DAP’s Gobind, Amanah’s Dr Dzul
+-  Actor Yoo admits to smoking marijuana in first court hearing
+-  Israels Armee: Kampfgeist von Hamas ist gebrochen
+-  Compassionate Individuals Teach Badjaos How to Read & Write
+-  World Heavyweight Title Match Set For First WWE Raw Of 2024
+-  CHPG2342: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  CHPG2341: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  CFPT2317: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  CFPT2316: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  CACB2307: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  CACB2306: Quyết định chấp thuận niêm yết chứng quyền có bảo đảm
+-  SRF: Thông báo ngày ĐKCC lấy ý kiến cổ đông bằng văn bản
+-  DRL: Thông báo ngày ĐKCC tạm ứng cổ tức đợt 2 năm 2023 bằng tiền
+-  PVS: P/E cao hơn trung bình 5 năm, PVS vẫn được định giá hấp dẫn
+-  CTF: Thông báo giao dịch cổ phiếu của người có liên quan đến người nội bộ Phạm Anh Hưng
+-  VPB: Thông báo về việc niêm yết và giao dịch cổ phiếu thay đổi niêm yết
+-  CTF: Thông báo giao dịch cổ phiếu của người có liên quan đến người nội bộ Nguyễn Văn Thành
+-  Xiaomi launches Redmi 13R 5G, a rebadged Redmi 13C 5G
+-  LOTERÍA Nacional de Panamá, EN VIVO: resultados del Lotto y Pega 3 de HOY, 12 de diciembre
+-  고흥군, 사랑의 땔감 나누기 행사 추진
+-  평창군, 2024 강원 동계청소년올림픽대회 감염병 대응 모의훈련 실시
+-  화순군, 국내산 콩 우수 생산단지 우수상 수상 및 상금 기탁
+-  3 أسباب وراء فوز بونو بجائزة أفضل حارس في أفريقيا
+-  Rombakan Kabinet: Khaled Nordin teraju Kementerian Pertahanan
+-  國民黨北市黨部民調中正萬華輸6％ 鍾小平：所有民調我都贏
+-  ‘Win more games than we lose’: Tigers boss’ ramps up pressure on Benji with bizarre finals pledge
+-  ‘David Warner has been a walking wicket’: Ed Cowan rips into former opening partner
+-  “The Matchmakers” Continues Reign Over Monday-Tuesday Dramas
+-  Abinader afirma que el 23.4% es la tasa de pobreza más baja de la historia
+-  حقيقة عودة ماكسيمان إلى نيوكاسل
+-  La concesión es una necesidad en vías de alto flujo
+-  El premio mayor es para ti, te lo vas a ganar: Lotería de Texas enviará ocho personas al espacio
+-  孫藝真珍藏戲服、經典包包全淪拍賣？不為奶粉錢原因曝光超暖心
+-  الفريق الأنسب لباهبري …الأهلي أم الاتحاد ؟
+-  Fiscalía inicia investigación a dos policías por muerte de Víctor Santisteban durante protestas de enero
+-  'Difficult': Popular ABC show cancelled
+-  Hidden meaning in Cummins' BBL deal
+-  State that travellers are flocking to
+-  Renaissance nudes spark crisis at French school
