@@ -1,51 +1,11 @@
 # Latest News
--  מאמצים להכשיר את מוחמד לפנאתינייקוס. חלאילי יקבל מנוחה
--  בדיוק ככה: ברגע כל כך מבלבל, גורי אלפי הפך את כל הקלישאות על הראש
--  [결혼] 백윤경(대전문화재단 정책홍보팀 과장) 씨 결혼
--  김태흠 충남지사 “국민의힘 혁신 위해 김기현 대표 물러나야”
--  정신재활시설 한빛둥지서 의료봉사활동
--  김돈곤 청양군수, 제4회 대한민국 공헌대상
--  음성 한일중 소리나눔 페스티벌 10주년 음악회 열린다
--  단양군보건의료원 의사 채용 2차 공고
--  민원인이 폭언·폭행하는 상황에선 이렇게!
--  Makina me pedale në formë hotdog-u ka dalur në shitje në një ankand online
--  Neden kilo alınır? İşte şişmanlama nedenleri…
--  애플 오픈런으로 받은 ‘공짜 텀블러’, 중고마켓 거래가격이 무려
--  Si në filmat e James Bond-it, goma me zinxhirë për borë që aktivizohen me shtypjen e një butoni
--  Amino Resin Market Analysis by Advanced Technology, Trends, Forecasts to 2028 & Latest Russia-Ukraine War Analysis
--  „Situation war traumatisierend“: Passagiere erheben schwere Vorwürfe nach abgebrochener Landung in Köln/Bonn
--  Single’s Inferno Season 2 Streaming: Watch & Stream Online via Netflix
--  Conspiracy theorist David Icke’s daughter Kerry dies aged 48 after ‘stoic battle against a long illness’
--  Conspiracy theorist David Icke’s daughter Kerry dies aged 48 after ‘stoic battle against a long illness’
--  Batam health officials step up checks as Covid infections rise in S'pore: Indonesia media
--  [단독]“황교안, 이재명 잡으러 ‘계양을 출마’ 검토”…총선 ‘험지行’ 가닥
--  정형식, ‘김건희 특검’ 尹거부권 충돌 지적에 “개인 아닌 대통령 지위서 해야”
--  한·미, 15일 워싱턴서 2차 NCG 개최…“북핵 억제 강화 방안 협의”
--  [대구24시] 최재훈 달성군수 “신산업 기술이전·맞춤형 사업화 지원 강화”
--  ‘돈봉투 의혹 핵심 피의자’ 송영길 前 보좌관 박용수 보석 석방
--  [산청24시] 겨울 최고 영양간식 ‘지리산 산청곶감’, 초매식 열고 본격 출하
--  Më shumë se gjysma e taksive të njohura të Londrës janë tashmë elektrike
--  Brent petrol fiyatı ne kadar oldu?
--  Bà mẹ Hà Nội thót tim vì con trai lớp 8 bị lừa đảo, nhiều người thở phào: Phải ngàn lần cảm ơn cô giáo
--  Google програла компанії Epic Games: чому це історичне рішення для всіх розробників додатків
--  Dongkuk Steel commercializes cryogenic flexible steel
--  Na toll! 2024 werden noch weniger Wohnungen in Berlin gebaut
--  İrem Derici, Hadise ile polemiğe giren Ece Seçkin'e destek verdi
--  На Украине заявили о повреждении здания в Херсоне
--  [“문화유산 협력하자” 태국서 열린 3번째 한·아세안 회의
--  [광양제철, 車 5억대 분 열연코일 누적 생산량 5억톤
--  [“어려운 이웃에 써달라”…4년간 모든 ‘동전 28만원’ 건넨 기초수급 어르신
--  [78년간 이런 적 없는데…국립중앙박물관, 올해 ‘역대 최다’ 관람객 모았다
--  Norsk fastlands-BNP ökade 0,4 procent i månadstakt
--  [노형욱 전 장관 광주 동남갑 출마 선언
--  Mediterranean Fish Vaccine Market Size, Status, Demands and Business Forecast 2022 to 2030
--  Cameroun :: Christelle Nadia Fotso Envoie Une Lettre Incendiaire À Jean Bruno Tagne :: Cameroon
--  В США лыжник едва не врезался в медведя при спуске по горнолыжному склону
--  Egészen botrányos jelenetekkel ért véget Mocsiék meccse: A klubelnök kiütötte a bírót, a bajnokságot fel is függesztették - fotók, videó
--  Lefevere pleit voor voetbaltransfersysteem na soap rond Uijtdebroeks: “Dit mag geen gewoonte worden”
--  Bakanlık denetleme istemişti: Sınıf anneliği isim değiştirdi
--  Rechtsextremismus: NRW: Verfassungsschutz stuft AfD-Jugendorganisation als Verdachtsfall ein
--  Вижте началото на демонтажа на фигурите на Паметника на съветската армия (Галерия)
--  [특별기고] 미래애셋!
--  [부음] 전진배 JTBC 뉴스콘텐트 부문 대표이사 모친상
--  Bayern Munich Brings Anger And Unbeaten Record To Manchester United in The Champions League After 5-1 Loss
+-  20 years of LOC Kargil: This is how Abhishek, Ajay, Esha marked milestone year
+-  Embid demolirao Vašington i prestigao Barklija VIDEO
+-  Oni su sledeći? "Moramo..."
+-  अमेरिकी लडाकु विमान दक्षिण कोरियामा दुर्घटनाग्रस्त
+-  मैत्रीपूर्ण फुटसल प्रतियोगितामा प्रतिनिधिसभा विजयी
+-  इराकी राष्ट्रपति पहिलो पटक साइप्रस भ्रमणमा
+-  To warto wiedzieć przed sesją na GPW 12 XII 2023
+-  Sagartz zur Sacharow-Preisverleihung 2023: "Jina Mahsa Aminis Vermächtnis für die Frauen im Iran lebt weiter"
+-  Μια μικρή Χανιώτισσα ζητά τη βοήθειά μας
+-  Rumah Wakaf Distribusikan Alquran Braille ke 21 SLB Sumatera Barat dan Riau
