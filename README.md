@@ -1,51 +1,51 @@
 # Latest News
--  Torino, Radonjic a un bivio: o cambia, o parte
--  IIM-Vizag Partners With SIDBI To Offer Courses on Entrepreneurship
--  ‘영입 원해? 이적료 1,236억 내놔’…토트넘 수비 보강 계획 제동
--  Туляк выиграл Всероссийские соревнования по шашкам
--  Iranskim prosvjednicama u Strasbourgu uručena nagrada Saharov
--  Brojne tvrtke u ovom sektoru u Njemačkoj naveliko gube kupce: “Na vidiku nema poboljšanja”
--  USA zaniepokojone. Rosja pracuje nad nowym porozumieniem z Iranem
--  ‘Adakah kami akan bermain atas sawah padi di stadium lain’
--  Krzysztof Gawkowski oficjalnie kandydatem na ministra cyfryzacji
--  에코프로 사회공헌 실천 인정
--  이노스페이스 내년 코스닥 상장 도전
--  수공, 보츠와나 물관리사업 단독 참여
--  KBIOHealth 창립기념일 기념식 개최
--  LG엔솔 `사랑의 김장 나눔'
--  NH농협은행 충북본부 우수직원 시상
--  농부 21人 진솔한 이야기 책에 담다
--  농협은행 충북본부 의료취약계층 진료비 지원
--  유류세 인하 내년 2월까지 연장 … 국제 유가 변동성 대응
--  HK이노엔 `케이캡' 안전성 알렸다
--  16년째 이어온 과학인재 양성
--  무심천·미호강 친수공간 탈바꿈
--  자가 증폭 mRNA 백신기술 개발 박차
--  올바른 공공언어 쓰기 충북교육청 직원 특강
--  꿀잼청주 배경음악 공모 시상·우수 콘텐츠 에디터 발대
--  최정훈 충북도의원 `우수의정대상'
--  학교용지부담금 123억 미전출 지적
--  구인·구직 일자리 정보 `한눈에'
--  인성교육 사례나눔회 개최
--  북이면 새마을부녀회 식료품 기탁
--  충북청주수퍼마켓협동조합 라면 기탁
--  “취약계층 학생 교육 격차 해소에 도움되길”
--  가덕면 관음사 성금 기탁
--  아침 간편식 개발 메뉴 시식회
--  미원면 바르게살기위 이불 기탁
--  청주교육지원청 `학교지원 하나Day' 성료
--  이혁규 청주교대 총장 상호존중 학교 만들기 캠페인 동참
--  충북도교육청 학생 사진전
--  한국자유총연맹 충북지부 안보견학
--  ㈜블루마운트 테크놀러지 적십자 희망성금
--  권영주 회장 충북 아너소사이어티 됐다
--  세명대 사랑의 연탄나눔 봉사활동
--  충북시민재단 겨울의류 판매 행사
--  널뛰는 아파트값 … 짙어지는 관망세
--  청주 하천체육공원 확대
--  충북도의회 정례회 마무리 `유종의 미'
--  “김기현 국힘 대표 사퇴해야”
--  “생계급여, 중위소득 35%로 상향”
--  총선 예비후보자 등록 첫날 세종 국힘 3·민주 4명 등록
--  여야 2+2 협의체 회의 개최
--  연말 新 풍속도 ‘착한 송년회’ 대세
+-  רונה לי שמעון נגד ראש הממשלה נתניהו: "איש מפחיד ומסוכן!"
+-  Kina nastavlja dominirati na tržištu industrijskih robota
+-  HOSE: Số liệu quản lý sở hữu của nhà đầu tư nước ngoài 13/12/2023
+-  Al menos 13 vehículos quemados y un lesionado deja incendio en La Pintana
+-  Говори Москва: Наблюдаваме внимателно тази среща
+-  Interdicție pentru Mănăstirea Florești din Vaslui. Borșul de pește oferit pomană era infestat cu trei bacterii periculoase
+-  "مالوش مكان عندنا".. نجم الزمالك يصدم رمضان صبحي ويطلب ضم هذا اللاعب
+-  Walmart worker goes on storewide rampage after they fired her before Christmas
+-  मुद्दा मिलाइदिने भनी ९९ लाख बढी ठगी गर्ने पक्राउ
+-  एनसेललाई राष्ट्रियकरण गर्नुपर्ने
+-  Snježana Schilinger donirala je haljine na ekskluzivnoj večeri
+-  शहिद हेमन्त प्रधान स्मृति भलिबल हुने
+-  Diputados del partido Colorado y Nacional de la Comisión de Frontera elogian la actuación de la Aduana
+-  Graham Dywer appeal against conviction for murder of Elaine O'Hara to be heard in January
+-  Saksalaissijoittajien tunnelmat kohenivat jälleen
+-  Enghouse erweitert Videokonferenzlösungen
+-  Cheating scumbag boyfriend has also lost all his WhatsApps
+-  Fugitive fled NC crime scene in a Ferrari, but ended up in a cold river
+-  Heritage of India: India’s 16 Most Valuable Intangible Cultural Heritage Recognized by UNESCO
+-  Seimas nepritarė siūlymui rengti patariamąjį referendumą dėl plynų miškų kirtimų
+-  Ελένη Χατζίδου για Καινούργιου – Μπάρκα: Το θεώρησα έξυπνο με την κούπα αλλά δεν ήξερα τη φιλία τους
+-  Ministerio de Trabajo desplegará 700 inspectores para garantizar entrega de aguinaldos
+-  New approach overcomes long-standing limitations in optics
+-  АСОМ: Ја поздравуваме одлуката на претседателот Пендаровски дека нема да потпише неевропски Закон за игри на среќа
+-  তিন সাংবাদিকের বিরুদ্ধে ব্যবস্থা নিতে আবেদনের প্রতিবাদে মানববন্ধন
+-  法與情丨關智斌燒親後遺症好驚打火機 鄭融拍劇消暑妙法全靠喱士背心
+-  Meram'da hedef: Daima en iyi hizmet
+-  Aksaray'da 15 yıl hapsi olan hırsızlık şüphelisi JASAT ekiplerince yakalandı
+-  এখন তিনি ৫০০ কোটি টাকার মালিক
+-  Will Levis: I trusted what I was seeing and threw to the open guy
+-  Wizkid Pays Surprise Visit To MC Oluomo [Video]
+-  Cuatro años de cárcel para el patrón del cayuco que arribó a 83 migrantes y un fallecido hasta Canarias
+-  Огледална дата 12.12: Ето как да сбъднете желанията си днес
+-  Who are the Sidemen? Here are the Top 3 Most Searched on YouTube for 2023
+-  Fotos: ellas son las parejas de los humoristas de 'La vuelta al mundo en 80 risas'
+-  بالفيديو.. تساقط أمطار غزيرة على شاطئ مستورة شمال جدة
+-  تطبيق أفضل المواصفات والمعايير العالمية لصيانة الكعبة المشرفة
+-  Calendriers de Noël de La Poste et des pompiers : où va l'argent ?
+-  Cô gái sốc khi phát hiện ung thư ở tuổi 24: Tất cả bắt đầu từ một dấu hiệu ở mắt
+-  10 علامات مبكرة للإصابة بالأنفلونزا.. كم من الوقت يستغرق ظهور المرض؟
+-  Pozivamo sve heroje održive energije: Europski tjedan održive energije vraća se 2024.
+-  Kometa Halleya wraca! Od soboty zbliża się do Ziemi
+-  এবার বক্সিং ডে টেস্টে ওয়ার্নকে স্মরণ করা হবে যেভাবে
+-  Gimik Gemoy Diduga Kerek Popularitas Prabowo-Gibran Jelang Debat Pilpres, Membedah Kata Gimik
+-  Il-Qorti tiddikjara li l-ġurnalisti għandhom jingħataw aċċess biex jidħlu jiffilmjaw u jagħmlu intervisti fil-ħabs
+-  Xu hướng de-influencing lên ngôi: Khi người tiêu dùng chán các quảng cáo "nói quá" về sản phẩm từ người nổi tiếng
+-  "Maçlara çıkmayacağız" Süper Lig hakemlerinden rest!
+-  İstanbul'dan getirilen 13 kilo uyuşturucu Sakarya'da ele geçirildi
+-  Dondurulmuş ton balığı kutularında ele geçirildi! Tam 11 ton
+-  Penelope Cruz'dan Gazze çağrısı
