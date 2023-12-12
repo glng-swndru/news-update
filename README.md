@@ -1,51 +1,51 @@
 # Latest News
--  Government Implements Quality Control Measures To Safeguard Indian Steel Markets
--  Oracle's Q3 Revenue Forecast Falls Short Amidst Weak Cloud Spending
--  [12일 오산시] 드림스타트사업 프로그램 만족도 조사결과 96.9% ‘만족’ 등
--  Personalistka radí: Tri veci, o ktorých by ste určite mali klamať na pracovnom pohovore
--  [12일 인천 강화군] 동절기 사회복지시설 안전사고 예방점검 등
--  Bappenas: Pembangunan IKN Prioritas Nasional
--  FLC: Thành viên Ban Kiểm soát xin từ nhiệm trước ngày tổ chức ĐHĐCĐ bất thường
--  البند 17: نهاية "فيلم التمديد"؟
--  ACL: BG Pathum idam bawa pulang tiga mata
--  İki hissede brüt takas kararı
--  SPK'dan HATEK hissesinde bir kişiye 6 ay yasak
--  Yabancılar BİST'te alım tarafına geçti
--  Altın ithalatı düşüşte
--  Hunter Biden pushes for dismissal of gun case, saying law violates 2nd Amendment
--  Kuurojen liitossa selvitettiin: Nämä sanat tuplakättelijä saattoi sanoa presidentti­parille
--  Anushka- Virat drop pictures from 6th wedding anniversary celebration
--  82 per cent of Indian travellers enjoy anonymity during travel
--  Delhi: Differently-abled boy points toy gun at robbers, makes them flee in panic
--  Le battaglie dentro la monade leibniziana del Gran Consiglio
--  ’Medaglie in bacheca, ora penso a Parigi’
--  Consiglio federale: rinnovo secondo copione o disordinato?
--  Mnogo uhićenih na demonstracijama u Washingtonu za mir na Bliskom istoku
--  Zac Efron Dapat Hollywood Walk of Fame, Kenang Kebaikan Matthew Perry
--  Demo Desak AS Dukung Gencatan Senjata Hamas Israel di Gedung Senat, 51 Orang Ditangkap
--  Cay đắng đời bà vú của Phổ Nghi: Tưởng số sướng, ai dè ân hận cả đời
--  ”Liv kan räddas om fler får bättre skydd mot covid”
--  Preis für kurze Zeit: Deutz-Fahr Agrotron 6145.4 für 103.000 Euro #maschinedestages #gebrauchtmaschine
--  29 mã cổ phiếu trên UPCoM bị đình chỉ giao dịch từ ngày 15/12
--  পাঁচ বছরেও শেষ হয়নি সেতুর নির্মাণকাজ
--  খাগড়াছড়িতে গুলিতে ৪ নেতা-কর্মী নিহত, দাবি ইউপিডিএফের
--  The Conjuring
--  İsrail ordusundan beyaz fosfor bombası itirafı: Nefessiz kalarak boğulmaya yol açıyor
--  İzmir açıklarında 122 düzensiz göçmen kurtarıldı
--  IMF'den Ukrayna'ya 900 milyon dolarlık ödeme
--  Cumhurbaşkanı Yardımcısı Yılmaz: Kişi başına milli gelir 12 bin 500 doların üstüne çıkacak
--  [WATCH] ‘She was having liver problems’: DJ Sbu on Zahara’s struggles
--  Erdem Can: 'Türk oyuncular hak ettiklerini gösteriyorlar'
--  Splendid performance by vocalists at music fest
--  NMC announces another attempt for 2020-21 COVID-affected MBBS batch
--  Repeat dose of highway pain on way
--  유엔 무역 기구, 올해 글로벌 무역 5% 감소 전망…내년 전망도 비관적
--  محور المقاومة يَخرق الخطوط الحمراء الأميركيّة...
--  How Kylie Jenner and Timothée Chalamet are Supporting One Another Amid Their Busy Schedules
--  متفوقا على صلاح وحكيمي .. أوسيمين أفضل لاعب في إفريقيا
--  Urge Gobierno de Argentina ‘rápida investigación’ en agresión a escolta de Milei
--  원주시, ‘건강보험 빅데이터 기반 진료지원 플랫폼’ 직원 가입 이벤트
--  철원 대마보건진료소 의료취약지 의료지원 사업 우수상 수상
--  軍 중·소위 줄이고 중·소령 및 상사 등 6000명 늘린다
--  동해시 MZ세대 중심 조직 문화 개선 위한 혁신주니어보드 운영 관심
--  원주 대표 도심간 급행 대중교통 '혁기버스(혁신·기업버스)' 인기
+-  3분기 기업 매출 5.2% 감소 ... 제조업만 아니라 서비스도 '먹구름'
+-  Ўзбекистон ва ЕИ мамлакатлари ўртасидаги савдо ҳажми 36 фоизга ошди.
+-  더반찬 가정간편식 반값 할인...선물, 적립금까지
+-  '의료 마이 데이터'로 중증∙응급환자 골든아워 확보
+-  오십견의 계절 겨울… 원인과 치료 방법은?
+-  부산고려병원 간호간병통합서비스 '2년 연속' 전국 1위
+-  극한의 모터사이클 개척자
+-  Chính phủ yêu cầu giải ngân vốn đầu tư công đạt ít nhất 95%
+-  Thương mại toàn cầu ước tính giảm 1.500 tỉ đô la trong năm 2023
+-  [지방자치단체 국제화 공모전서 최우수상 받은 순천시
+-  [통일부, 배우 권해효 영화인 조사…"조총련 무단 접촉"
+-  [서울시, 北 ‘EMP 위협’ 대비 도시형 방호체계 구축 논의
+-  [안산도시공사, ESG 경영위원회 개최
+-  [분당정자청소년수련관, 첨단기술 로봇 페스티벌 성료
+-  [러시아, 점령한 우크라 땅에서도 대선 투표 실시
+-  [용인특례시, 주택정비과 포함 3과 신설 1과 폐지 조직개편
+-  [서울시여성가족재단, ‘서울형어린이집’ 우수사례 6곳 선정
+-  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
+-  [이병선 속초시장, “장애인 경제적 부담 덜어준다”
+-  Breaking news: Chelsea owner todd Boehly decided to let seven, Chelsea players leave in January transfer window, including Pochettino £38m summer signing
+-  [SML-루카스필름 콜라보레이션 ‘SML STAR WARS’, 공개와 동시에 완판
+-  Elevii laureaţi la olimpiadele internaţionale vor fi premiaţi la Teatrul Naţional
+-  Radhi OAG mahu kekasih habiskan belajar, baru kahwin
+-  נקודת שפל חדשה: וושינגטון הובסה ב-45 הפרש, אבדיה קלע 9
+-  Four-year-old boy killed in Palakkad; relative found with ‘self-inflicted’ injuries
+-  Benzin ve motorin 2023 güncel fiyatları (1 Şubat 2023 akaryakıt fiyatları)
+-  Yön uutiskooste | Hallitukselta odotetaan ratkaisua itärajasta, Kittilässä kaikki ihmiset saatu evakuoitua pinnalle kaivoksesta, Danske ennakoi korkojen puolittuvan kahden vuoden aikana
+-  嫌伴娘討開門利是難纏 伴郎丟煙霧彈燻出新娘
+-  เบสท์ คำสิงห์ เคยพูดไว้ ร้องไห้เยอะที่สุดในชีวิต ให้กับ คุณพ่อสมรักษ์ เพราะอะไร?
+-  Masa Kampanye, Satpol PP Tunggu Rekomendasi Bawaslu Tertibkan APK Pemilu 2024
+-  Final two members of BTS start mandatory military service
+-  손 뻗으면 닿을 듯한 ‘그곳’이 불과 10여 km…‘다크투어 스폿’ 연평도
+-  [12일 영덕군] 결혼이민여성 바리스타 과정 수료 등
+-  Israel bombs Gaza after warning Hamas nears ‘dissolution’
+-  India vs England: Ben Stokes expected to be specialist batter for Test series in India, says managing director Rob Key
+-  台股黑馬 ETF 股價衝！哪一檔 ETF 股息配得又高、填得又快？
+-  Αλλαγές στον Ποινικό Κώδικα προαναγγέλλει μέσω του newsit.gr ο Γιώργος Φλωρίδης
+-  내년부터 5년간 국방비 349조원 투입…방위·전력·부대 집중 투자
+-  Inside Pics From Anushka Sharma-Virat Kohli's Wedding Anniversary Celebration
+-  HJ중공업 임원진 자사주 8만3248주 매입
+-  US Regulatory approval for dog life extention drug paves way for similar treatments for all species
+-  किस बैंक ने शुरू किया नारी शक्ति सेविंग अकाउंट, इंश्योरेंस लेकर ये मिलेंगे फायदे
+-  [Musical] ‘리진’, 검은 머리 조선 여인의 드라마틱한 삶을 그리다
+-  '투자 귀재' 짐 로저스 "한국 경제, 규제 너무 많다"
+-  Polisi Selidiki TKP Terjadinya Begal Payudara di Pamulang
+-  "소외계층과 따뜻한 연말 보내요"…'스윙유어드림 봉사단' 해단
+-  라온시큐어, 국제학생증 협회 임원진과 디지털 ID 적용방안 논의
+-  [2023 공동학술대회] 황종성 NIA 원장 "AI 관련 제도개선 서둘러야...AI 도입할 기업 불확실성 해소"
+-  [2023 공동학술대회] 김현정 한국IBM 컨설팅 "생성형 AI 잘 활용하려면 기업 환경 먼저 재설계해야"
+-  [2023 공동학술대회] 마이크로소프트가 보는 생성형 AI..."데이터와 인간의 직접 대화가 핵심"
