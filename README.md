@@ -1,51 +1,51 @@
 # Latest News
--  فلسطينية تعاتب أردوغان: “أين الرئيس الذي نحبه ونفتخر به دائما؟” (فيديو)
--  Nehamer: Austrija neće pristati na započinjanje pregovora o ulasku Ukrajine u EU!
--  리제네론, ‘아일리아’ 시장 방어 소송 남발 ... 한국 바이오기업에 유독 혹독
--  "Най-старата пирамида в света", построена преди 27 000 години, не е направена от хора, твърдят археолози
--  Family of murdered Texas cheerleader Lizbeth Medina react to undocumented migrant’s arrest: ‘He’s no one we know’
--  Que faire dans le 10e arrondissement de Paris ? Nos bons plans et meilleures adresses
--  MKE Ankaragücü Kulübü Başkanı Faruk Koca görevinden istifa etti
--  Cumhurbaşkanı Erdoğan, Yeniden Refah Partisi Genel Başkanı Erbakan'ı kabul etti
--  TBMM Başkanı Kurtulmuş'tan Bitmez'in durumuna ilişkin açıklama
--  Gaynutdin: Filistin'de adil ve kapsamlı barış olmadan, hiç kimsenin güvenliği sağlanamaz
--  Gazze'deki hükümet: İsrail 86 gazeteciyi gerçekleri gizlemek amacıyla öldürdü
--  سخرية واسعة في لبنان بعد غرق مطار بيروت - فيديو
--  Gestor de fortuna de Grupo Romero tiene en la mira a empresas hispanas en EE.UU.
--  Роналдо: Съжалявам, че не преминах в Ал-Насър по-рано
--  “Το περπάτημα κάνει καλό” λέει η Δόμνα Μιχαηλίδου για τα παιδιά που θα αναγκάζονται να περπατούν 1,5 χιλιόμετρο για να πάνε σχολείο, εξαιτίας των συγχωνεύσεων
--  Ídolo da Juventus, Chiellini se aposenta do futebol aos 39 anos
--  Премиър лийг с важно решение за новите договори на играчите
--  Potpisan memorandum o prevenciji i promociji pejzaža otpornih na požare
--  Любомир Кючуков: ЕС подсказва, че е готов да се трансформира в геополитически съюз
--  When Will Beyoncé’s ‘Renaissance’ Movie Be On Digital?
--  توافد جماهير الاتحاد على ملعب الجوهرة
--  SpiceJet loss reduces to ₹449 crore in Q2
--  Dear Avant Gardener Introduces Transform Your Yard Course
--  Rusherking siguió activamente el debut de Gran Hermano
--  109 kvadratmeter stort hus i Motala sålt för 800 000 kronor
--  Община Ямбол приема заявки за фестивала на уникалните танцуващи коледари
--  Инж. Пламен Иванов: През новия поливен сезон ще бъдат осигурени необходимите количества вода за напояване
--  Produženo radno vreme graničnih prelaza Bajmok-Bačalmaš, Rastina-Bačsentđerđ i Bački Vinogradi - Ašothalom
--  كيليني يعلن رسميا نهاية مسيرته الكروية
--  Special Team To Probe Death Of Sushant Singh Rajput’s Ex Manager Disha Salian
--  This weird NYC couple doesn’t want you to read Palestinian children’s books.
--  جدول مباريات الاتحاد في كأس العالم للأندية 2023 والقنوات الناقلة
--  Macaulay Culkin, Brenda Song spark marriage rumors as she wears band with engagement ring
--  NA SPISKU OKO 60 SRBA Kosovska policija im uručuje pozive: Hoće da ih ispituju zbog navodnog RUŠENJA ustavnog poretka
--  DJ Hayden Net Worth: How Much Money Did He Leave Behind?
--  Les pièces de théâtre à voir en avril 2024
--  Egy kupac toboz percek alatt mesebirodalmat varázsol: a legötletesebb dekorok fillérekből
--  Que faire dans le 2e arrondissement de Paris ? Nos bons plans et meilleures adresses
--  TURSKA NEĆE DA IZRUČI VANJINOG UBICU?! Makedonska novinarka otkriva najnovije detalje u slučaju Palevskog: "Zahtevaće TRAMPU"
--  Bullgaria heq taksat për gazin rus, Serbia i hap rrugën monedhës kineze në Ballkanin Perëndimor
--  Tyreek Hill returned to Dolphins' game vs. Titans despite suffering an ankle injury after his wife told him: 'You'd better get your a** back in that game!'
--  Narcos en México cazan y matan policías corruptos que les robaron un cargamento de droga
--  Community Fun in La Herradura
--  Sharing Economy Market Size to Exceed USD 827.1 billion By 2032 | CAGR of 7.7%
--  Encienden Cruz Ecuménica en el Cerro Grande
--  «نمضي نحو الكارثة».. أزيز القصف يفاقم محنة السودان
--  Κιελίνι: Ανακοίνωσε το τέλος της λαμπερής καριέρας του με συγκινητικό video (vid)
--  Rođeni da budu lideri: Ova četiri znaka zodijaka su odlične vođe
--  Tottenham Resmi Tambah Kontrak Jangka Panjang Destiny Udogie
--  Ministar posjetio pretučenog suca, nazvao ga i predsjednik Erdogan
+-  Plekjevrij.nu helpt klant en ondernemer in IJsselstein
+-  Nieuw Deli Fresh biedt meer dan kipproducten in IJsselstein
+-  Sabotage suspected as more power cuts as north’s airport
+-  Asylum seeker dies on board UK barge housing migrants
+-  Retai skelbiami duomenys. Atskleisti Ukrainos nuostoliai
+-  Pats metas susizgribti dėl bekontakčių mokėjimų: 5 patarimai, kad būtų ne tik patogu, bet ir saugu
+-  Prietaisas, kuris padės sumažinti sąskaitas už šildymą: svarbu tinkamai parinkti jo įrengimo vietą
+-  [ŽT] Vaisiai, galintys sukelti vėžį ir nevaisingumą - medikų įspėjimas
+-  Kalėdiniai apsipirkimai: apklausa liudija lietuvių dosnumą ir gebėjimą taupyti
+-  Artėja prie 1 milijono! Legendinis „Bayraktar TB2“ pasiekė naują rekordą (Video)
+-  «رأس الخيمة العقارية» توسع شراكتها مع فنادق «إنتركونتيننتال»
+-  Tulipa é o escolhido para suceder a Rui Ferreira no comando do Torreense
+-  "Come attrae signore deluse dal marito": Vittorio Sgarbi umilia Giuseppe Conte
+-  Tapetes são coisa que não falta a esta loja. Saiba onde fica
+-  Вступил в силу оправдательный приговор адвокату, обвиняемому по делу о хищении
+-  Госдеп: санкции США направлены на пресечение якобы сотрудничества РФ и КНДР
+-  Manchester United katastrofin partaalla - edes voitto huippupelistä ei sitä välttämättä pelasta
+-  [취재수첩]출근 단상
+-  [사설]진주시 뒤늦은 과태료 고지 시민 이익 침해 우려
+-  [사설]외국인 노동자 지역사회 정착 위한 정책 필요
+-  [서동진의 한뼘] 버려짐?
+-  [아침을 열며]폐지 줍는 노인
+-  Школы Ульяновска могут отменить занятия для младших классов из-за мороза
+-  "Da chi verrà invasa Roma": Baba Vanga, la terrificante profezia sul prossimo anno
+-  GNR lança operação para prevenir descargas ilegais em recursos hídricos
+-  [겐트대 글로벌캠퍼스, IGC 청소년 멘토링 업무 협약 체결
+-  [세계 청년들, COP28 폐막 앞두고 '공동 행동' 촉구 성명 발표
+-  [TUCKER CARLSON, 복귀하여 TUCKER CARLSON NETWORK라는 새로운 비디오 서비스 출시
+-  [Trina Solar, COP28서 친환경 및 지속 가능 개발 촉구
+-  Grupo VITA identificou 64 vítimas de violência sexual na Igreja
+-  SPECIJAL ZA IZBORE 2023 – Najveće kvote na sve kandidate i ubedljivo najveća ponuda igara!
+-  البرازيل.. اختراق حساب السيدة الأولى على «إكس» والسلطات تفتح تحقيقاً
+-  Lanzan una wallet para trading de derivados de bitcoin en Lightning
+-  विकसित भारत संकल्प यात्रा 14 दिसंबर से शुरू, शहर में कुल 14 कैम्पों का होगा आयोजन
+-  Под Курском на заснеженной объездной трассе легковушка повисла на отбойнике
+-  Dime que noooo: Ricardo Arjona anuncia su retiro de los escenarios por una extraña enfermedad
+-  Whistleblower testifies about 'gross mismanagement' at federal green fund
+-  Year Ender 2023: Unforgettable moments captured through photos
+-  برنامج تدريبي جديد لتطوير المواهب المحلية في التنس
+-  Juventus-icoon Giorgio Chiellini (39) beëindigt voetballoopbaan: 'Een intense reis'
+-  Prepare a carteira! MEO, NOS e Vodafone vão subir os preços…
+-  IZ KOLA MU PUCAO U GLAVU, IMA TEŠKE POVREDE! Detalji pucnjave u Šapcu, žrtvu hitno voze za Beograd!
+-  "Dê troco a quem mais precisa". Já pode ajudar os outros através de compras na farmácia
+-  Onde está Navalny? Apoiantes só sabem que estado de saúde é "grave"
+-  ”Mer behövs mot det ekonomiska gapet”
+-  These Are The Best Cars For Hot Boxing When The Weed Bomb Hits
+-  Valtiovalta ei saa hidastaa merenkulun vihreää siirtymää
+-  Gigantyczny skandal w Turcji. Erdogan wkracza do akcji [WIDEO]
+-  Oglasio se Car: Korisnik mreže za upoznavanje mu ukrao identitet, Filipov komentar nasmejao sve do suza!
+-  Внешний госдолг Грузии в ноябре вырос более чем на $200 млн
