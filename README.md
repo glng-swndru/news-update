@@ -1,51 +1,11 @@
 # Latest News
--  Fuerza del Pueblo presenta su Comité Nacional de Campaña, Rubén Maldonado será el coordinador
--  Patrick Mahomes Reveals He Regrets Viral Reaction to Chiefs Loss
--  أقل من لمس الكرة في مباراة مانشستر يونايتد وبايرن ميونخ
--  UNO-Generalversammlung für Waffenstillstand im Gazastreifen
--  맨유 ‘충격 조별리그 탈락’, 레알-뮌헨 ‘무패 16강행’(챔스 종합)
--  SA KIM BI VUČIĆ PODELIO SENDVIČ? "Sve moram da čuvam kao malo vode na dlanu"
--  United siger farvel til Europa med nyt CL-nederlag
--  [MD장충] "배구 고단수" 사령탑도, 적장도 극찬!...'명가 부활' 이끄는 '경력직' 쿠바 특급
--  엔하이픈(ENHYPEN), "일본열도 흔들러 출국합니다!"…카리스마 넘치는 출국 현장 [MD동영상]
--  뉴진스(NewJeans) 민지 '공항 조명 꺼주세요. 제 미모로 밝힐게요'
--  "나도 페이스 피싱 有경험자!" 곽정은, 예방법 '공개'[연참]
--  실력이 우선이냐? 비주얼이 먼저냐?…김세정vs효연, 아이돌 선후배의 논쟁
--  "힘드신 한 해였을 것…내년 한 단계 강해질 수 있어" 황금장갑 '9개' 든 포수와 '최다 수상' 감독이 함께 꾸는 꿈
--  세븐틴 디노, 솔로 믹스테이프 '웨이트' 스페셜 영상 공개
--  "지금 만나는 ♥ 有" 이지현, '퀸 오브 당연하지' 귀환[놀던언니]
--  박선주♥강레오, 8년째 별거 중…딸 "셋이 더 어색해" [금쪽상담소](MD리뷰)
--  Woman agrees to drop former SDSU punter Matt Araiza from lawsuit alleging rape
--  Diary of a Book Addict: Eight of the best from 2023
--  Aviation To Gulp N63bn As Minister Wants Extra N81bn For Abuja Second Runway
--  Napoli klar for åttedelsfinale i mesterligaen – slo Braga
--  టీడీపీలో సిటింగులందరికీ సీట్లు!
--  The developer behind one of this year's most anticipated games just shut down after releasing its game on early access to disastrous reviews
--  Cop28, case auto al contrattacco: "Sui carburanti fossili siamo noi le vittime"
--  Chicote Calderón SE PONE REBELDE Y DETIENE NEGOCIACIONES con Chivas por INSÓLITO motivo | FICHAJES 2024
--  Champions: Man Utd va ko con il Bayern, è fuori dall'Europa
--  Emigrar: los trabajos con mayor demanda en país con uno de los mejores salarios del mundo
--  Hilary Duff Pregnant With Baby No. 4
--  Heads of Humanitarian Groups Say Gaza “Nightmare” Is Worst They’ve Ever Seen
--  Zara Tunisie se dédouane de la campagne publicitaire offensante…
--  Comic: Starting new family traditions can ease the stress of the holidays
--  KCC, 2차 연장 혈투 끝 한국가스공사 93-88 격파
--  ¿Qué días estarán cerrados los bancos en el 2024? | Calendario oficial CNBV
--  ‘నాడు-నేడు’లో 2,253 కోట్ల భారీ స్కామ్‌
--  How to Use Your Windows PC or Laptop as a Wi-Fi Hotspot
--  Indagan a servidores de Alcaldía de Medellín por irregularidades en bonos alimentarios
--  Antonio Mohamed renuncia como técnico de Pumas
--  Cómo evitar enfermarte con el frío
--  కాంగ్రెస్‌కు సహకరిస్తూనే ప్రజా సమస్యలపై పోరాటం: కూనంనేని
--  El candidato de Parral por la Alianza será elegido por encuesta
--  Comienza Israel a bombear agua de mar a túneles de Hamas
--  ¡La locura! Piden hasta 83 mil por boletos de la Final
--  Cuestionan revisiones en el Cereso 3
--  عبر «حقيبة سفر القارئ».. تجارب كتابية ملهمة لزوار «كتاب جدة»
--  SON의 영향력은 어디까지… NFL에서 손흥민의 ‘찰칵’ 세레머니 등장!
--  France :: Au-Dela Des Frontieres, L’odyssee De Mariam A Travers L’amour Et Les Differences Culturelles
--  Congo :: Rdc: Landry Mopolo Candidat Depute Municipalite Bandalungwa
--  Prime Minister Anthony Albanese joins Canada and New Zealand to call for Israel-Hamas ceasefire
--  El intrincado laberinto de ir al supermercado: la remarcación no para
--  Tremendo accidente: cinco personas heridas al desplomarse el ascensor de un edificio del Ministerio de Salud
--  قوات الاحتلال تنكل بالمرضى والطواقم الطبية بعد اقتحام مستشفى كمال عدوان بغزة
+-  Čo robiť, aby boli MEDOVNÍKY mäkké dlhé týždne? Trik s jablkom pozná každý, tieto FINTY málokto!
+-  Acodeco recomienda evitar las compras impulsivas y comparar precios
+-  Hombre fue condenado a 13 años de prisión por secuestro
+-  It’s criminal – Rio Ferdinand accuses Man United of playing ‘kamikaze football’
+-  Napoli, Braga'yı rahat geçti
+-  Dries Mertens: Üzgünüz, yazık oldu
+-  Nijerya'da silahlı saldırı: 4 asker öldü
+-  Kopenhaglı futbolcular konuştu!
+-  İspanya alev alev yanıyor: Sıcaklıkta yeni rekor
+-  Epic Games, Fortnite y Google: El juicio contra el monopolio ilegal de Google Play
