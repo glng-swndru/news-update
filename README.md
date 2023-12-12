@@ -1,51 +1,51 @@
 # Latest News
--  Govt Notifies 80 Industry-Specific Discharge Standards To Curb Chemical Waste In Rivers
--  Tiruppur Exporters’ Association Trained 5,510 New Workers Under SAMARTH Scheme
--  다니엘 시저, 내한공연 3시간 앞두고 돌연 취소…"예기치 못한 상황"
--  Najdoktori oftalmolozi 2023.: Dean Šarić, Miro Kalauz i Marin Belak iz klinike Optical Express
--  Президент Венесуэлы оскорбил Зеленского
--  Správa deťom: Pellegrini je klamár a Matovič čert
--  Soccerladuma | Fantastic News For Recovering Foster!
--  Anzeige – Sommer 2024:: Comedy-Highlights zum Brüllen komisch
--  Met schaamrood op mijn kaken moet ik bekennen dat ik 50.000 doden alweer vergeten was
--  भ्रष्ट अधिकारियों को मुख्यमंत्री ममता बनर्जी ने दी ये चेतावनी
--  Amit Shah doesn`t know history: Rahul Gandhi slams HM over Nehru criticism
--  La intervención histórica de once toneladas de cocaína confirma el auge de las mafias albanesas
--  Минфин: вскоре могут принять решение о внесении изменений в льготную ипотеку
--  В ОКР считают, что лишь единицы из россиян смогут принять участие в Играх в Париже
--  Германия — Самые дешевые медицинские кассы в 2024 году
--  Германия — AfD признана в Саксонии правоэкстремистской
--  Akár 10 órás játékidőt is kihozhatunk a Final Fantasy XVI: The Rising Tide DLC-ből
--  너무나 치명적 미세먼지 새로운 질병 전파의 경로 ③
--  소녀의 꿈을 응원하며
--  왜 물푸레나무였을까?
--  먹는 순서만 바꿔도 살 빠진다
--  HBO v decembri: Komiksovka Spider-Man nebude ani náhodou jediným kvalitným filmom, ktorý si pozrieš
--  Спрятанная бутылка водки привела двух жителей Тверской области на скамью подсудимых
--  대구은행, 중기대출 시장서 부산은행 맹렬 추격 ‘가사적 성과’
--  다니엘 시저, 내한공연 3시간 전 취소 "공개할 수 없는 이유" [공식]
--  박소담 "암 수술 후 목소리 안 나와…촬영하면서도 매일 울었다" [마데핫리뷰]
--  Las fotos de la increíble mansión de Lionel Messi en Miami: muelle privado, 8 habitaciones y un spa
--  Column Thijs Zonneveld | Er zou zelfs een appgroep zijn opgericht waarin over Uijtdebroeks werd gelachen
--  AALCO Annual Arbitration Forum 2023 개최
--  MINISO Opens 100th US Store in Orlando, Bringing a Pink Blizzard for the Holidays
--  NaaS Technology and GAC Energy Collaborate on Establishment of a Connected Charging Service Network
--  Tata Power, 친환경 에너지 전환을 통한 지구 보호 촉구
--  Наталья Штурм попала в ДТП на севере Москвы: фото певицы
--  IPL 2024 Auction: 'Won't be Surprised if Mitchell Starc Goes For a Huge Sum of Money' - Aakash Chopra
--  El Tesoro eleva al 3,62% el interés de las letras a tres meses, máximos desde 2011
--  'Be extra careful' - Parents warned to keep kids away from certain batteries this Christmas
--  Mantar toplamaya gitti, bıçaklanarak öldürüldü
--  CIVIS- Institucionalizovati Rodne studije u obrazovni sistem
--  News des Tages am 12.12.2023: Simone Thomalla: BH-Blitzer auf dem roten Teppich? / Milzbrand-Alarm in Afrika: 20 Todesfälle!
--  Osobná zodpovednosť sa vytráca. Zo štátu sa stáva poisťovňa nezodpovednosti Slovákov, vraví zástupca firiem
--  إحداث قانون جديد للجمعيات.
--  Zieke Antonie gebruikt een andere kachel en krijgt nu geen tegemoetkoming meer: ‘Bizar’
--  Польша заявила о требовании мобилизации всего мира из-за Украины
--  Российские космонавты с борта МКС поздравили сограждан с Днём Конституции
--  Hidrocapital realizará trabajos en el complejo Taguaza: Suspenderá el servicio de agua por 36 horas
--  Etiquette expert shares exact time you should attend Xmas party - and it's later than you think
--  Android reportedly to get a new built-in phishing protection system
--  Tyrkisk fodboldpræsident anholdt efter angreb på dommer
--  무역협회 경남본부 창원 동보보육원에 성품
--  김해시 고령친화도시 인증 현판 제막
+-  Kada izabrati "mesh" ruter, a kada klasični Wi-Fi ruter?
+-  고대안산병원 권도영 교수, ICKMDS '최고 포스터 발표상' 수상
+-  가톨릭의대 이순규 교수, 교육부 학술·연구지원사업 우수성과 50선 선정
+-  보건산업진흥원, 신임 기획이사에 홍헌우 前부산식약청장 임명
+-  H+양지병원, 건강과 쾌유 기원 'H+appy 트리' 장식
+-  건국대병원 정홍근 교수, 멕시코 정형외과학회서 기조 강연 펼쳐
+-  우리들병원, '만성질환 관리' 건강강좌 개최
+-  임상용 배아줄기세포에서 최고 수율 도파민 세포 생산 성공
+-  용인세브란스병원, 권역정신응급의료센터 심포지엄 개최
+-  일산차병원, 취약계층 아동에게 겨울철 의류 기부
+-  미즈메디병원, '제20회 QI 경진대회' 개최
+-  부천세종병원, 대국민 환자 안전 증진 활동 전국 2위 선정
+-  이지케어텍, 'AI 폐렴 진단 소프트웨어' 식약처 임상시험계획 승인
+-  '2024년도 병원경영과 의료정책방향' 연수교육 개최
+-  아주대병원 장석준 교수, 아시아부인종양학회 차기 회장 선출
+-  고지혈증 치료제 '스타틴', 천식 악화 위험 낮춘다
+-  현장접수 안하면 진료거부?… 아동병원협회 "행정지도는 과도한 조치"
+-  보건소장 약사도 가능해진다… '지역보건법 개정안' 통과
+-  '중소병원 환자안전 향상방안' 주제 토론회 열린다
+-  가슴이 타는 듯한 통증, 위식도역류증
+-  닥터스피부과의원 신사, 유니세프한국위원회에 기부
+-  메디웨일, 보건복지부 지정 보건신기술(NET) 인증
+-  겨울철 제철 음식, 건강하고 맛있는 다이어트 식단은?
+-  케이메디허브 입주기업 '이롭', 중소벤처기업부 장관상 표창 수상
+-  "의사단체 원내조제, 처방약 배송 주장 철회하라"
+-  건협 경기도지부, 장안구보건소에 장애인 특화차량 지원
+-  Youth pays tribute – lest we forget
+-  Santa’s little Red Cross helpers in Lochgilphead
+-  Former Tesla and Rappi execs’ startup, Vammo, zooms $30M to reshape LatAm’s e-motorcycle sector
+-  Fundraising race continues for Kilmartin Museum
+-  Staff anger at plan to close down Aros
+-  The eventful history of Cairnbaan camp
+-  Mid Argyll police files
+-  Sai phạm trong quản lý đất đai, hàng loạt cán bộ xã bị kỷ luật
+-  Prince William never wears his wedding ring: Here's why
+-  VREME JE ZA SLAVLjE POD VEZUVOM: Šampion mora i može bolje!
+-  Word Game: Dec. 12, 2023
+-  Näpistysreissusta sekava härdelli Hämeenlinnassa – saaliin arvo noin 20 euroa
+-  Bitcoin amplia perdas em meio a novas liquidações e volta aos US$ 41 mil
+-  Islamic Relief: Mit EU-und Baerbock-Kohle gegen Juden hetzen
+-  Competition Authority: Isracard sale to Harel harms competition
+-  What would a second Trump presidency look like? Journalists tackle a political what-if
+-  Dining in Italian style: Can home cooking compete with the local deli’s charm?
+-  পাকিস্তানে জঙ্গি হামলায় ২৩ সেনা নিহত
+-  Conviene comprare casa oggi, con i tassi ai massimi, o conviene aspettare? La risposta non è scontata
+-  Inga extra pengar till kommunerna, enligt nya regeringsprogrammet
+-  नगरका ८८ प्रतिशत मुद्दा फर्स्यौट
+-  स्थानीय लोककला, संस्कृति र परम्पराको संरक्षणमा जोड
+-  एलपीएल : शुक्लाफाँटा र धनगढी एकेडेमी विजयी
+-  विद्यार्थीलाई न्यानो कपडा वितरण
