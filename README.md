@@ -1,11 +1,11 @@
 # Latest News
--  Scotland Becomes First Nation in the UK to Enforce Pavement Parking Ban
--  Polytechnic lecturers flex muscles over unpaid 11 months salaries
--  La UMA adapta su plan de estudios de Medicina a las necesidades de 2030
--  "La ministra puede erigir a España en referencia europea antitabaquismo"
--  Politie arresteert meerdere auto-inbrekers in IJsselstein
--  ABD ve İsrail arasında ipler geriliyor! Netanyahu, Biden'a rest çekti
--  DSÖ'den şarbon salgını uyarısı
--  Selçuk Bayraktar TEKNOFEST 2024'ün yapılacağı ili açıkladı
--  Galatasaray U19, Kopenhag'a farklı mağlup oldu!
--  Synthetix le pone fin a la inflación de su criptomoneda
+-  "حسن الخاتمة".. وفاة مسن أمام باب مسجد أثناء ذهابه لصلاة الفجر
+-  El referéndum por el escudo del Real Valladolid se celebrará entre el 16 y el 18 de diciembre
+-  Bayraktar açıkladı: Teknofest 2024’ün hangi ilde yapılacağı belli oldu!
+-  La banca española afronta 2024 con los niveles de capital más bajos de Europa
+-  Újabb pofont kapott Harry herceg és Meghan Markle
+-  Champions League in TV oder Live-Stream: So sehen Sie die CL-Spiele heute am 6. Spieltag live
+-  النصيري يقود اشبيلية في مهمة صعبة
+-  Google’s Anti-Trust Court Loss is Potential Boon for App Developers
+-  "Il mérite le respect" : Jean-Luc Reichmann se confie sur le parcours d’Émilien dans Les 12 coups de midi
+-  Sale a la luz el otro "beso con fuerza" de Rubiales a la inglesa Bronze tras la final del Mundial
