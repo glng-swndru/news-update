@@ -1,51 +1,11 @@
 # Latest News
--  الوطنية للانتخابات: تمكين آخر ناخب بجمعية الانتخاب من التصويت ثم الفرز
--  بدء أعمال الفرز في اللجان الفرعية في بني سويف
--  الأمم المتحدة: يجب أن تتوقف مذبحة المدنيين الجارية حاليا في قطاع غزة
--  حزب الوفد يصدر بيانا بعد انتهاء التصويت بانتخابات الرئاسة 2024
--  "كنتم قد المسئولية".. تنسيقية شباب الأحزاب توجه الشكر للشعب المصري
--  "ملاقاة نادي القرن".. خليل البلوشي يعلق على فوز اتحاد جدة
--  مسؤولون أمريكيون: نتنياهو الوحيد من يرفض حكم السلطة الفلسطينية لغزة
--  "هات اللي بعده".. جماهير الاتحاد تعلق على التأهل ومواجهة الأهلي
--  Newcastle Milan, i tifosi rossoneri non lasciano la squadra: ecco quanti voleranno in trasferta
--  Damning new poll reveals Scots more unhappy than ever with SNP after ’16 years of failure’
--  Ligue des champions : Fulgini délivre Lens, une heure en enfer pour les Nordistes... Les tops et les flops
--  Old North Coast Hiawatha Amtrak rail line on track to run again
--  Nicosia Turkish Cypriots join European Coalition of Cities Against Racism
--  Sindh teachers react to govt’s decision to hand over education boards to commissioners
--  Britisches Parlament stimmt für Gesetz zu Ruanda-Abschiebungen
--  Freistaat Sachsen fördert Kooperation des tjg. theater junge generation Dresden mit der Theatergruppe Laika Antwerpen
--  Minister urges collaborative investment in robust health systems on UHC Day
--  Anne Hathaway almost played a major villain in Sam Raimi’s Spider-Man 4
--  Robber killed, man injured in fire exchange
--  Erling Haalandista kuultiin sekä hyviä että huonoja uutisia
--  Sergio Ramos teki historiaa Mestareiden liigassa
--  Rauman Lukolle todella kovan luokan välierävastustaja - Valtteri Filppula ja Sami Vatanen raumalaisten riesaksi
--  رئيس المجلس الرئاسي يستقبل ممثلة البنك الدولي في ليبيا
--  Tommy DeVito’s agent issues challenge to Peyton Manning after ‘slimy’ nickname
--  Distt admin assures protesters to release funds within three days
--  Kullanıcılar TikTok'ta 10 milyar dolar harcadı
--  Μπάιντεν σε Ζελένσκι: «Μην τα παρατάτε, θα παραμείνουμε στο πλευρό σας»
--  Democrats are badly divided on Israel, and GOP isn't making it easier
--  بثنائية نظيفة الأهلي طرابلس ينتزع صدارة المجموعة الثانية
--  Pakistani forces capable of destroying enemy: CM Baqar
--  Kraj! SAD su shvatile, ovako ne može! Bajden saopštio premijeru Izraela užasavajuće vesti
--  מקורות: עסקת חטופים עוד רחוקה, אך יש שיחות גישוש בסיסיות על פתיחת מו"מ
--  Ezt mondta a válófélben lévő férjéről Britney Spears
--  Democrats are badly divided on Israel, and GOP isn't making it easier
--  André Ramalho en Peter Bosz eensgezind over PSV: ‘Dit heeft het team verdiend’
--  SimBioSys Presents New Data for Breast Cancer Personalized Medicine Platforms at the 46th Annual San Antonio Breast Cancer Symposium
--  Best XRK Stalker loadout for Warzone Season 1
--  RJ Mall fire fact finding report released
--  Speaker Johnson Says Spying Authority ‘Must Be Dramatically Reformed’
--  Howard Webb explains Arsenal decision vs Aston Villa after Ian Wright rant
--  La empresa Avangreen considera que Melilla encaja en sus proyectos
--  Victoria de Epic sobre Google amenaza sector de tiendas de aplicaciones
--  Aaj Ka Kanya Tarot Card: कन्या राशि वाले परिवार के लोगों की बातों को अनदेखा न करें. पढ़ें अपना राशिफल
--  Podemos estar a assistir a pico de infeções e fármaco preventivo só é administrado na Madeira. O que se sabe sobre vírus sincicial respiratório?
--  “O bicho atacou o coração”: rapaz de sete anos morre vítima de intoxicação alimentar após jantar de almôndegas e arroz
--  Čim je ušao u "Elitu", krenuo Anitu da muva, a sada ovim pitanjem pokušao Jovanu da spusti
--  Pogledajte gde su smešteni fudbaleri Sitija (VIDEO)
--  Ağ Evdə KRİTİK GÖRÜŞ: Zelenski o anı gözləyir, Bayden isə söz verib ki...
--  «Питтсбург» — «Аризона»: смотреть трансляцию матча НХЛ (видео бесплатно онлайн)
--  Com sala de espera cheia, diretor do Hospital Dona Estefânia alerta para risco de burnout dos profissionais de saúde
+-  Netflix releases viewing data for the first time. Axed Aussie show was a hit
+-  Pressure increases on Israeli government for hostages’ release
+-  [오늘날씨] 아침기온 '뚝'… 짙은 안개 주의
+-  윤대통령, 뤼터 총리와 정상회담… 반도체 협력 논의
+-  Un fármaco puntero para el virus sincitial protagoniza los Premios PAM 2023
+-  3 Mid-Cap Stocks to Buy for Their Big-Time Dividends
+-  "Singularities don't exist," claims black hole pioneer Roy Kerr
+-  "Singularities don't exist," claims black hole pioneer Roy Kerr
+-  Van 3,444 querellas por narcomenudeo
+-  Recupera Amanda Bynes la confianza tras cirugía estética
