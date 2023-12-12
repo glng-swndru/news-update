@@ -1,51 +1,11 @@
 # Latest News
--  بمشاركة مديري محفظة صندوق JEDI لرأس المال المبتكر
--  It’s time to bring Belarusians back to the European family they belong to
--  Au Cameroun, Chacun Fait Comme Il Veut, Meme Les Barmans :: Cameroon
--  Is LEGO Fortnite on mobile?
--  Gov. Sani vows to tackle malnutrition, infant, maternal mortality in Kaduna
--  राजस्थान से महारानी की कहानी खत्म, क्या केंद्र में मिलेगा सिंहासन?
--  بدر بن حمد يؤكد لوزيرة خارجية رومانيا ضرورة وقف إطلاق النار في غزة
--  News24 | Militant suicide truck attack kills 23 Pakistani soldiers, in deadliest attack for years
--  News24 | Man dies, another in critical condition, after being caught in rip currents at Milnerton Beach
--  Istraživanje pokazuje da internet produžava život starijim ljudima
--  Cruz Roja de Córdoba ayuda a las personas sin hogar durante las fiestas
--  Dama na visokoj nozi: Ovako živi Tijana Tegeltija koja se na Jahorini nalazila u društvu bjegunca Mladena Samardžije
--  Намаляват наетите на работа в частния сектор в област Смолян през септември
--  Журналист: Чрез културните рецензии, които правя, се опитвам да формирам вкус
--  برعاية وزير الثقافة.. مهرجان الرياض للمسرح ينطلق غداً بعرض 10 مسرحيات فائزة
--  Jokowi Cerita Taktik Bujuk Pangeran Mohammed bin Salman untuk Dapat Kuota Haji Tambahan
--  יואל אמיר ישמש כמנהל משותף של Coface Israel ו-CofaceBdi
--  Cinco muertos al desplomarse un ascensor en un edificio en construcción en Estocolmo
--  Luka Doncic lideró la victoria de Mavericks sobre Grizzlies (Video)
--  Αντιδρούν στην κατάργηση της ΔΕΥΑΒΑ
--  Copa del Rey: emparejamientos y cruces de dieciseisavos de Real Madrid, Barcelona...
--  La polémica por antisemitismo en universidades de EU
--  Recortan educación para los maestros
--  Andrea Montesinos rompe el hielo
--  'Ahorcan' a aerolíneas por costos del AICM
--  Impone crimen sobreprecios en Texcaltitlán
--  Dan jaque mate a Reyes; perfilan a Soto en TEPJF
--  Protege a tus mascotas del uso de pirotecnia
--  DOMiNO Ventures, Aclan Acar'ı stratejiden sorumlu Partner olarak yönetim ekibine dahil etti
--  Quello che dovresti sapere (e forse non sai) per prepararti al meglio alla settimana bianca
--  قرقاش: استغلال معاناة الفلسطينيين «سقوط مخجل»
--  Downing St fox makes its feelings clear about Number 10’s Christmas tree
--  Con dudas y sin autoridades, los organismos nacionales en Mendoza buscan reacomodarse
--  Sarıyer'de 'zehirli mantar' alarmı: 11 kişi tedavi altında
--  Petrol fiyatları için çarpıcı tahmin: Akaryakıt fiyatlarını etkileyecek! 12 Aralık 2023 güncel benzin motorin ve LPG fiyatları...
--  Deze West-Brabantse amateurclubs strijden om overwintering in het bekertoernooi
--  La Fundación Jiménez Díaz recibe el sello dorado de la Joint Commission International, acreditación de seguridad y calidad clínica en el ámbito sanitario
--  Casa lui Vasile Alecsandri va fi reabilitată. Este cea mai veche clădire de patrimoniu din Bacău FOTO
--  VEĽKÝ DEŇ hollywoodskeho fešáka: Túlila sa k nemu mama a... Ehm, čo si to obliekla?!
--  Vláda zrušila neaktuálne či nevykonateľné úlohy
--  Guinea-Bissau president reappoints Geraldo Martins as PM
--  Junge Wienerin - Leonie (16): Tod nach Koks und Sex mit 54-Jährigem
--  Multas de hasta 3.000 euros por los caballos que entraron a la A-8
--  Ermənistan və Ukrayna Prezidentləri görüşdü
--  UK judges get green light to use ChatGPT to help write legal rulings despite risk of it citing fake cases
--  Matevise, İYS ile Shopify Entegrasyonunu hayata geçirdi
--  Google Store’s exclusive 12.12 deals on Google Pixel accessories are live in Singapore
--  Ротенберг — о ФОНБЕТ Матче звезд КХЛ: «Это нужно для популяризации хоккея»
--  Coppia muore nell'incendio di casa, non è stato un incidente: fermato un uomo
--  Endrick, Vitor Roque e Sávio são indicados ao prêmio de melhor jogador do mundo sub-20
+-  Saudi Aramco secures 40% equity stake in Gas & Oil Pakistan
+-  Makabi "reže" troškove - igrači prvi na udaru
+-  الوطنية لحقوق الإنسان: 955 مهاجرًا توفوا قُبالة السواحل الليبية منذُ بداية 2023
+-  Канадага доимий авиақатновлар йўлга қўйиш режалаштирилмоқда — Транспорт вазирлиги.
+-  Тошкентда ушланган шахсларнинг айримлари интернетда ўзининг дабдабали ҳаётини кўз-кўз қилгани айтилди.
+-  Three farmworkers killed, scores injured in deadly Western Cape truck crash
+-  One of Senzo Meyiwa murder-accused nabbed on drug, ammunition charges
+-  Joburg will likely have water this festive - but could change 'within the hour'
+-  Police to clamp down on tavern crime hotspots in Diepsloot over festive season
+-  EFF MPs were removed on the basis of rules, not emotions, Parly hears
