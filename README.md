@@ -1,51 +1,11 @@
 # Latest News
--  [‘김기현 사퇴압박’에 이준석 “싸X지 없는 사람들아, 예의는 갖춰라”
--  Biden-Zelenskiy görüşmesi gerçekleşti: ABD'den 61 milyar dolarlık yardım
--  Suriye'de ABD üslerine füze saldırısı
--  Nijerya'da petrol hırsızlığı durmak bilmiyor: 1 haftada 127 vaka ortaya çıktı
--  BM Genel Kurulu, Gazze için ateşkes çağrısı tasarısını kabul etti
--  Iranski ministar poručio: Izrael i SAD nikada neće pobijediti Hamas
--  West Tigers dismiss entire board
--  El párking de Santa María, a la espera del permiso para las cámaras de seguridad
--  Wild weather lights up Melbourne sky
--  Wild weather lights up Melbourne sky
--  My Style Rocks: Ο Δημήτρης Σκουλός κριτίκαρε σκληρά την Διονυσία Κουκίου
--  How to Watch 'Everything Everywhere All at Once' Online for Free
--  'Memory Cafes' across southeastern Wisconsin helped more than 100 people affected by memory loss in 2023
--  Giorgio Chiellini odpowiednio się przygotował. Ma już porozumienie z klubem
--  Israel Strikes Across Gaza As Offensive Leaves Both It And U.S. Increasingly Isolated
--  Israel Strikes Across Gaza As Offensive Leaves Both It And U.S. Increasingly Isolated
--  Rolfö kan missa viktiga landskamperna
--  Egypt’s Sisi cruises towards victory in subdued election
--  الرئيس التونسي يدعو لتسريع البت في قضايا الاغتيالات
--  Liga MX: ¿cómo le fue a Antonio Mohamed en su estadía en Pumas?
--  Giáo sư nổi tiếng tuyên bố: Người mẹ có trí tuệ cảm xúc càng cao thì càng dễ mất bình tĩnh và con cái sẽ càng ngoan!
--  الأمم المتحدة تعتمد قرارًا يطالب بوقف إطلاق النار في غزة
--  Сейм Польши одобрил правительство Дональда Туска
--  “Mos u dorëzo!”- Edhe pas refuzimit të fondeve për Ukrainën, Biden kërkon durimin e Zelenskyt: Ne do të qëndrojmë pranë jush!
--  Caso gémeas: Lacerda Sales diz que inquérito da Ordem dos Médicos é "inqualificável intromissão"
--  İkinci elde altı ay ve 6 bin kilometre kuralına motosiklet de dahil edildi
--  Magaaladii cows-ka laga cunaayay oo maanta gaadiid raashin sida loo direy+SAWIRRO
--  Hey, Idaho, we Californians are sharing our In-N-Out burger hacks, menu secrets
--  How to nab designer Ralph Lauren socks for a fiver – and they make the perfect stocking fillers
--  (VIDEO). Novia de un popular ‘youtuber’ recibe un escopetazo de su expareja
--  Renault sells Nissan part of its stake to rebalance alliance
--  Pet of the Week: Rosie
--  정부 대책 수립중에 또 멈춘 조달청 전산망 '불안불안'
--  Sidang Praperadilan: Firli Bahuri Diduga Tiga Kali Terima Uang dari SYL, Total 2,8 Miliar
--  UW-Milwaukee professor creates computer algorithm to take humans out of redistricting process
--  Ex-Tokyo Olympics operations executive found guilty of bid-rigging
--  NYC Second Chance Rescue's new shelter prioritizes pets with special needs
--  Marina Silva defende avanço da COP sobre fim dos combustíveis fósseis
--  4 دوافع تقود المملكة لمشاركة العالم الاحتفال بحقوق الإنسان
--  TFF hakeme saldıran Faruk Koca’yı PFDK’ye sevk etti
--  Başaran Düzgün’ün ilk romanı okurla buluştu: Sıradan insanların olağanüstü hikâyeleri
--  Alberto Rodríguez agradece apoyo dedeportistas a candidatura de Abinader
--  আইএমএফের ঋণের দ্বিতীয় কিস্তি পেল বাংলাদেশ
--  Fayetteville paying $200,000 to settle 'hostile environment' claim from former police chief
--  Yhdysvallat: Yli 315 000 venäläistä sotilasta kuollut tai haavoittunut Ukrainan sodassa
--  Yhdysvallat: Yli 315 000 venäläistä sotilasta kuollut tai haavoittunut Ukrainan sodassa
--  Feijóo compara el "fraude" de la amnistía con el golpe del 23-F
--  Major search op for missing fisherman last seen off Louth coast after boat got into trouble stood down until first light
--  Japan, U.S. affirm Osprey's safety 'top priority'
--  Michael Jordan autographed ticket from 1982 championship game up for auction
+-  합리적 가격 해외 브랜드 ... 국내에 들어오면 왜 비싸지나
+-  [유명 男배우 무슨 일? "타이거 우즈 살리더니 나도 살렸다" 파손차량 공개
+-  Fuerza del Pueblo anuncia su Comité Nacional de Campaña para las próximas elecciones
+-  Autohome Inc. Announces Cash Dividend and Amendment to Dividend Policy
+-  Hitterecord in Spanje voor december: bijna 30 graden in Malaga
+-  Max is now available to watch on YouTube Primetime Channels
+-  LIVE Champions League | Joselu maakt zijn tweede voor Real in Berlijn, Benfica moet scoren bij Salzburg
+-  Maioria esmagadora na ONU aprova resolução que exige cessar-fogo em Gaza
+-  درنة.. استمرار انتشال جثث ضحايا الفيضان
+-  3 Bank Stocks I Wouldn’t Touch With a 10-Foot Pole
