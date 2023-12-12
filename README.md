@@ -1,11 +1,51 @@
 # Latest News
--  زبائن صلع سر تٌحرك الشرطة الإيطالية للقبض على مالك صالون حلاقة.. مفاجأة غير متوقعة
--  Ankaragücü Başkanı Faruk Koca görevinden istifa etti!
--  Una fogata para el frío se salió de control: muere adulto mayor tras incendiarse su casa en Los Mochis
--  Ganjar Tanya Kasus Pelanggaran HAM, Prabowo: Itu Tendensius Pak!
--  Mga tsuper walang proteksiyon sa PUV modernization
--  Malore per Zeman: è ricoverato a Pescara
--  Sorpresa Schuurs al Filadelfia: il saluto ai compagni e ai tifosi
--  World Health Organization Accuses Israel of Obstructing Ambulances
--  TUCKER CARLSON, 복귀하여 TUCKER CARLSON NETWORK라는 새로운 비디오 서비스 출시
--  IBM Elects Marianne C. Brown to its Board of Directors
+-  فلسطينية تعاتب أردوغان: “أين الرئيس الذي نحبه ونفتخر به دائما؟” (فيديو)
+-  Nehamer: Austrija neće pristati na započinjanje pregovora o ulasku Ukrajine u EU!
+-  리제네론, ‘아일리아’ 시장 방어 소송 남발 ... 한국 바이오기업에 유독 혹독
+-  "Най-старата пирамида в света", построена преди 27 000 години, не е направена от хора, твърдят археолози
+-  Family of murdered Texas cheerleader Lizbeth Medina react to undocumented migrant’s arrest: ‘He’s no one we know’
+-  Que faire dans le 10e arrondissement de Paris ? Nos bons plans et meilleures adresses
+-  MKE Ankaragücü Kulübü Başkanı Faruk Koca görevinden istifa etti
+-  Cumhurbaşkanı Erdoğan, Yeniden Refah Partisi Genel Başkanı Erbakan'ı kabul etti
+-  TBMM Başkanı Kurtulmuş'tan Bitmez'in durumuna ilişkin açıklama
+-  Gaynutdin: Filistin'de adil ve kapsamlı barış olmadan, hiç kimsenin güvenliği sağlanamaz
+-  Gazze'deki hükümet: İsrail 86 gazeteciyi gerçekleri gizlemek amacıyla öldürdü
+-  سخرية واسعة في لبنان بعد غرق مطار بيروت - فيديو
+-  Gestor de fortuna de Grupo Romero tiene en la mira a empresas hispanas en EE.UU.
+-  Роналдо: Съжалявам, че не преминах в Ал-Насър по-рано
+-  “Το περπάτημα κάνει καλό” λέει η Δόμνα Μιχαηλίδου για τα παιδιά που θα αναγκάζονται να περπατούν 1,5 χιλιόμετρο για να πάνε σχολείο, εξαιτίας των συγχωνεύσεων
+-  Ídolo da Juventus, Chiellini se aposenta do futebol aos 39 anos
+-  Премиър лийг с важно решение за новите договори на играчите
+-  Potpisan memorandum o prevenciji i promociji pejzaža otpornih na požare
+-  Любомир Кючуков: ЕС подсказва, че е готов да се трансформира в геополитически съюз
+-  When Will Beyoncé’s ‘Renaissance’ Movie Be On Digital?
+-  توافد جماهير الاتحاد على ملعب الجوهرة
+-  SpiceJet loss reduces to ₹449 crore in Q2
+-  Dear Avant Gardener Introduces Transform Your Yard Course
+-  Rusherking siguió activamente el debut de Gran Hermano
+-  109 kvadratmeter stort hus i Motala sålt för 800 000 kronor
+-  Община Ямбол приема заявки за фестивала на уникалните танцуващи коледари
+-  Инж. Пламен Иванов: През новия поливен сезон ще бъдат осигурени необходимите количества вода за напояване
+-  Produženo radno vreme graničnih prelaza Bajmok-Bačalmaš, Rastina-Bačsentđerđ i Bački Vinogradi - Ašothalom
+-  كيليني يعلن رسميا نهاية مسيرته الكروية
+-  Special Team To Probe Death Of Sushant Singh Rajput’s Ex Manager Disha Salian
+-  This weird NYC couple doesn’t want you to read Palestinian children’s books.
+-  جدول مباريات الاتحاد في كأس العالم للأندية 2023 والقنوات الناقلة
+-  Macaulay Culkin, Brenda Song spark marriage rumors as she wears band with engagement ring
+-  NA SPISKU OKO 60 SRBA Kosovska policija im uručuje pozive: Hoće da ih ispituju zbog navodnog RUŠENJA ustavnog poretka
+-  DJ Hayden Net Worth: How Much Money Did He Leave Behind?
+-  Les pièces de théâtre à voir en avril 2024
+-  Egy kupac toboz percek alatt mesebirodalmat varázsol: a legötletesebb dekorok fillérekből
+-  Que faire dans le 2e arrondissement de Paris ? Nos bons plans et meilleures adresses
+-  TURSKA NEĆE DA IZRUČI VANJINOG UBICU?! Makedonska novinarka otkriva najnovije detalje u slučaju Palevskog: "Zahtevaće TRAMPU"
+-  Bullgaria heq taksat për gazin rus, Serbia i hap rrugën monedhës kineze në Ballkanin Perëndimor
+-  Tyreek Hill returned to Dolphins' game vs. Titans despite suffering an ankle injury after his wife told him: 'You'd better get your a** back in that game!'
+-  Narcos en México cazan y matan policías corruptos que les robaron un cargamento de droga
+-  Community Fun in La Herradura
+-  Sharing Economy Market Size to Exceed USD 827.1 billion By 2032 | CAGR of 7.7%
+-  Encienden Cruz Ecuménica en el Cerro Grande
+-  «نمضي نحو الكارثة».. أزيز القصف يفاقم محنة السودان
+-  Κιελίνι: Ανακοίνωσε το τέλος της λαμπερής καριέρας του με συγκινητικό video (vid)
+-  Rođeni da budu lideri: Ova četiri znaka zodijaka su odlične vođe
+-  Tottenham Resmi Tambah Kontrak Jangka Panjang Destiny Udogie
+-  Ministar posjetio pretučenog suca, nazvao ga i predsjednik Erdogan
