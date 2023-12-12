@@ -1,51 +1,51 @@
 # Latest News
--  Govt.’s digital push snubs Lankan firms via discriminatory VAT vis-à-vis foreign firms
--  Benzema i družina lako do polufinala SP za klubove
--  Last moments of 3 teens including boxing champ killed in Coedely crash revealed as dad pays tribute to ‘my baby boy’
--  Reality TV’s richest couples revealed from I’m A Celeb stars to Love Islanders – and Molly-Mae & Tommy aren’t number 1
--  Milena Zárate recuerda cómo era su relación con Jonathan Maicelo: “Me dejó tirada en Nueva York” (VIDEO)
--  Cessar-fogo só beneficia terroristas, diz Israel na ONU
--  Tampa Bay's Festival of Lights expands drive-thru light display
--  유한양행 ‘렉라자’ 美 이어 유럽서도 허가신청 ‘초읽기’
--  “Pyro ist kein Verbrechen!” – Bayern-Fans zeigen Protestbanner
--  Andreína Bravo prepara una venta de garage en pro de los animales
--  NYPD Blue Season 8 Streaming: Watch & Stream Online via Hulu
--  더 확대되는 '적정성 평가'‥'목표 달성'을 위한 방식으로 접근
--  "의료기관 내 마약 관리 약사 및 수가 가산 필요"
--  격화되는 '미만성 거대 B세포 림프종' 치료제 시장…다음 주자는?
--  윤곽 드러낸 5기 상급종병 소요병상수…2천 증가·수도권 집중
--  '의약품 품질관리' 식약처 방향 따라 울고 웃는 제약업계
--  의료계 우려 속 시작된 '분석심사'‥심평원 "더 발전시킬 예정"
--  듀카브 특허 못 넘은 제네릭 제약사, 대법원행 가능성은?
--  "의협 총파업 투표 비공개 방침, 안팎 신뢰 잃는 방식"
--  [단독] 영유아 RSV 예방백신 '베이포투스' 국내 상용화 가시권
--  Justiça nega pedido de Flávio Bolsonaro sobre prestação de contas de ex-sócio em loja de chocolates
--  Magaly arremete contra Maicelo por agredir a Samantha Batallanos
--  AM de Lisboa aprova orçamento municipal para 2024 com abstenção de PS e IL
--  NYPD Blue Season 7 Streaming: Watch & Stream Online via Hulu
--  “تكالة” يرفض قرار “عقيلة صالح” إنشاء الهيئة العليا للحج والعمرة
--  The 6 best hair straightening brushes in 2023, tested and reviewed
--  Formalizan a sujetos por asalto a casa de alcalde de Zapallar y otros robos
--  NYPD Blue Season 6 Streaming: Watch & Stream Online via Hulu
--  Vučić održao skup u Novom Pazaru: 'Bošnjaka mora biti više u institucijama Srbije'
--  Wall Street avança após dados de inflação dos EUA e antes do Fed
--  Warning: A Fed Rate Cut Is Bad News for Stocks
--  Former Olmsted County deputy used work time to solicit teens for sex, search warrant claims
--  Liverpool FC welcomes Orion Innovation as its official digital transformation partner
--  Au moins 5800 bâtiments menaçant ruine en Tunisie !
--  Hiljade Slovaka protestovalo protiv planova vlade
--  "ابن المعلمة" .. أحد "أخطر" تجار المخدرات في بغداد بقبضة الأمن
--  Bosanac na prevaru uzeo preko 100.000 franaka socijalne pomoći
--  İsrail'in Gazze'deki tünellere su pompalamaya başladığı iddia edildi
--  Guyana economic growth estimates of 25%-30% a year are 'very conservative' amid oil production boom, President Ali says
--  Kυκλοφοριακές ρυθμίσεις στις 14 – 15 Δεκεμβρίου στη Λεωφόρο Κηφισού
--  B3SA3: B3 discute criação de horário estendido de negociação e ingresso no mercado de recebíveis imobiliários
--  'Vegan' label may be turning off consumers, as study finds more people will pick up foods called 'healthy'
--  Consulta la portada correspondiente al día 13 de diciembre de 2023
--  TÁTO kaviareň sa poriadne vyfarbila: Nenávistné odkazy voči Židom aj nechutný dôkaz na VIDEU
--  Policajtky si poriadne zavarili: NEUVERÍTE, s kým sa zabávali počas výcviku, pobúrená je celá krajina
--  Znate li koliko puta Modrić u karijeri nije iskoristio kazneni udarac?
--  أحمد حجازي يعلق على مواجهة ناديه السابق في كأس العالم للأندية
--  Jamie Lynn Spears reveals surprising move after making ‘lifelong friends’ in I’m A Celeb
--  Komentar Gordane Stojiljković: Raje v rejništvo kot k očetu
--  Roma: lesione al flessore per Dybala, stop di tre settimane
+-  [‘김기현 사퇴압박’에 이준석 “싸X지 없는 사람들아, 예의는 갖춰라”
+-  Biden-Zelenskiy görüşmesi gerçekleşti: ABD'den 61 milyar dolarlık yardım
+-  Suriye'de ABD üslerine füze saldırısı
+-  Nijerya'da petrol hırsızlığı durmak bilmiyor: 1 haftada 127 vaka ortaya çıktı
+-  BM Genel Kurulu, Gazze için ateşkes çağrısı tasarısını kabul etti
+-  Iranski ministar poručio: Izrael i SAD nikada neće pobijediti Hamas
+-  West Tigers dismiss entire board
+-  El párking de Santa María, a la espera del permiso para las cámaras de seguridad
+-  Wild weather lights up Melbourne sky
+-  Wild weather lights up Melbourne sky
+-  My Style Rocks: Ο Δημήτρης Σκουλός κριτίκαρε σκληρά την Διονυσία Κουκίου
+-  How to Watch 'Everything Everywhere All at Once' Online for Free
+-  'Memory Cafes' across southeastern Wisconsin helped more than 100 people affected by memory loss in 2023
+-  Giorgio Chiellini odpowiednio się przygotował. Ma już porozumienie z klubem
+-  Israel Strikes Across Gaza As Offensive Leaves Both It And U.S. Increasingly Isolated
+-  Israel Strikes Across Gaza As Offensive Leaves Both It And U.S. Increasingly Isolated
+-  Rolfö kan missa viktiga landskamperna
+-  Egypt’s Sisi cruises towards victory in subdued election
+-  الرئيس التونسي يدعو لتسريع البت في قضايا الاغتيالات
+-  Liga MX: ¿cómo le fue a Antonio Mohamed en su estadía en Pumas?
+-  Giáo sư nổi tiếng tuyên bố: Người mẹ có trí tuệ cảm xúc càng cao thì càng dễ mất bình tĩnh và con cái sẽ càng ngoan!
+-  الأمم المتحدة تعتمد قرارًا يطالب بوقف إطلاق النار في غزة
+-  Сейм Польши одобрил правительство Дональда Туска
+-  “Mos u dorëzo!”- Edhe pas refuzimit të fondeve për Ukrainën, Biden kërkon durimin e Zelenskyt: Ne do të qëndrojmë pranë jush!
+-  Caso gémeas: Lacerda Sales diz que inquérito da Ordem dos Médicos é "inqualificável intromissão"
+-  İkinci elde altı ay ve 6 bin kilometre kuralına motosiklet de dahil edildi
+-  Magaaladii cows-ka laga cunaayay oo maanta gaadiid raashin sida loo direy+SAWIRRO
+-  Hey, Idaho, we Californians are sharing our In-N-Out burger hacks, menu secrets
+-  How to nab designer Ralph Lauren socks for a fiver – and they make the perfect stocking fillers
+-  (VIDEO). Novia de un popular ‘youtuber’ recibe un escopetazo de su expareja
+-  Renault sells Nissan part of its stake to rebalance alliance
+-  Pet of the Week: Rosie
+-  정부 대책 수립중에 또 멈춘 조달청 전산망 '불안불안'
+-  Sidang Praperadilan: Firli Bahuri Diduga Tiga Kali Terima Uang dari SYL, Total 2,8 Miliar
+-  UW-Milwaukee professor creates computer algorithm to take humans out of redistricting process
+-  Ex-Tokyo Olympics operations executive found guilty of bid-rigging
+-  NYC Second Chance Rescue's new shelter prioritizes pets with special needs
+-  Marina Silva defende avanço da COP sobre fim dos combustíveis fósseis
+-  4 دوافع تقود المملكة لمشاركة العالم الاحتفال بحقوق الإنسان
+-  TFF hakeme saldıran Faruk Koca’yı PFDK’ye sevk etti
+-  Başaran Düzgün’ün ilk romanı okurla buluştu: Sıradan insanların olağanüstü hikâyeleri
+-  Alberto Rodríguez agradece apoyo dedeportistas a candidatura de Abinader
+-  আইএমএফের ঋণের দ্বিতীয় কিস্তি পেল বাংলাদেশ
+-  Fayetteville paying $200,000 to settle 'hostile environment' claim from former police chief
+-  Yhdysvallat: Yli 315 000 venäläistä sotilasta kuollut tai haavoittunut Ukrainan sodassa
+-  Yhdysvallat: Yli 315 000 venäläistä sotilasta kuollut tai haavoittunut Ukrainan sodassa
+-  Feijóo compara el "fraude" de la amnistía con el golpe del 23-F
+-  Major search op for missing fisherman last seen off Louth coast after boat got into trouble stood down until first light
+-  Japan, U.S. affirm Osprey's safety 'top priority'
+-  Michael Jordan autographed ticket from 1982 championship game up for auction
