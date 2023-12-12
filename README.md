@@ -1,11 +1,51 @@
 # Latest News
--  Israël presse le sud de Gaza, les civils attendent l’aide
--  Batman'da 14 yaşındaki çocuğa kurşun yağdırdı! Yaşam mücadelesi veriyor
--  Hakeme saldıran Faruk Koca'dan ilk açıklama: Hatırlamıyorum
--  लोप हुँदै ठाँटी, पौवा र धर्मशाला
--  मनाङको तापक्रम माइनस १६, स्थानीय बेँसी झर्न थाले
--  मादी नदी थुनेर ताल बनाइँदै
--  ‘कोश टेपा नहर’ को निर्माणले दिएको सन्देश
--  एनसेलको शेयर बिक्रीविरुद्धको रिटमा सुनुवाइ हुँदै
--  पर्यटकीय क्षेत्र गाजाको दह पुग्ने सडकको दुरावस्था
--  Fadime Özkan yazdı: Soykırım pazarlama!
+-  피아이이, 46파이 원통형 배터리용 비전검사 솔루션 개발
+-  Putinlə Rəisinin görüşü erməniləri qorxutdu: Tehran İrəvanı satacaq, Bakıya yaxınlaşacaq
+-  Neko novo doba: U Abu Dhabiju se otvara prva craft pivovara
+-  Needlefree Closed System Transfer Device (CSTD) Market Disclosing Latest Advancement 2023 to 2028 Russo-Ukrainian War
+-  Supply Chain Finance Market: Optimizing Cash Flow for Enhanced Efficiency and Collaboration 2029
+-  "วิปรัฐบาล" จ่อยื่นญัตติด่วนตั้ง กมธ.ศึกษากฎหมายนิรโทษกรรม
+-  วุฒิสภา เห็นชอบ "สุเมธ รอยกุลเจริญ" นั่งตุลาการศาล รธน.คนใหม่
+-  21 ธ.ค.นี้ ไทยส่งลิงอุรังอุตัง 3 ตัวล็อตสุดท้าย คืนอินโดนีเซีย
+-  صندوق الإسكان الاجتماعي يُعلن توجيهات لحاجزي الإعلاني التكميلي من سكن لكل المصريين
+-  فريق مناظير "تيودور بلهارس" ينجح في استئصال ورم بالمعدة باستخدام تقنية مبتكرة
+-  Bidirectional Electric Vehicle Charger Market worth $4,712.54 million by 2030, growing at a CAGR of 22.55% - Exclusive Report by 360iResearch
+-  Is Glen Powell Not Dating Sydney Sweeney but Still ‘Loves Each Other’?
+-  Taşınmaz edinerek vatandaşlıkta yeni karar. Resmi Gazete'de yayımlandı
+-  Shahjahanpur News: मुख्य सड़क के साथ गलियां भी खोदीं, चौतरफा मुसीबत
+-  Fundus Cameras Market Highlighting Enhanced Revenue in the Coming Years 2023-2032 | Canon Inc., Optovue, Inc., Kowa Company, Ltd., Heidelberg Engineering GmbH
+-  Bijnor News: पुलिस और बदमाशों के बीच मुठभेड़ में एक हिस्ट्रीशीटर दबोचा
+-  Bahraich News: तेंदुए के जबड़े से बच्ची को खींच कर मां ने बचाई जान
+-  गड़बड़ी: एक किसान के नाम गन्ने के दो सट्टे
+-  Banda News: डायरिया के छह व सांस के सात मरीज भर्ती
+-  Julio César se queda en la CARDER
+-  Researchers transform captured greenhouse gases into cyclic carbonates with biomass derivatives
+-  A method for production of organic–inorganic tin halide perovskites for optoelectronic devices
+-  TPS: Nghị quyết Đại hội đồng cổ đông bất thường năm 2023
+-  App Creation Software Market 2032 - Trends and Growth, Segmentation and Prominent Competitors Analysis | Wipro Limited, Fujitsu Ltd., Zoho Corporation
+-  Reflü mide yanması ve hazımsızlık gibi sindirim sistemi sorunlarına birebir. Bu ot başka ota benzemez
+-  سال 2023: پاکستان میں کون سی شخصیات گوگل سرچ لسٹ میں چھائی رہیں
+-  The Block fan favourites suffer devastating loss on inner city apartment with stunning views of Sydney Harbour
+-  Opća skupština UN-a opet će glasati o rezoluciji o prekidu vatre u Gazi. Što će ovaj put Hrvatska?
+-  البنك المركزي الصيني يضخ 414 مليار يوان في النظام المصرفي
+-  DTX əməkdaşları Heydər Əliyevin məzarını ziyarət etdilər
+-  In gesprek over oorlog Israël en Gaza
+-  Bicycle Motors Market worth $18.93 billion by 2030, growing at a CAGR of 5.70% - Exclusive Report by 360iResearch
+-  Mort de l'influenceuse Maria Sofia Valim à l'âge de 19 ans après une opération médicale ratée
+-  Microsoft Believes Indian Tech Firms Will Play A Key Role In AI Development, Adoption Globally
+-  Companion Animal Anti Infective Medicine Market is Anticipated to Record the Rapid Growth and Prominent Players Analysis
+-  Евродепутат призывает белорусский режим немедленно освободить Статкевича
+-  اکبر ایس بابر کا پی ٹی آئی وکلاء کیخلاف پاکستان بار میں درخواست دینے کا اعلان
+-  Rampur: पीएम मोदी पर अभद्र टिप्पणी करने में किसान नेता हसीब गिरफ्तार, जनसभा का वीडियो हुआ था वायरल
+-  Heat Exchangers Market Is Driven By Increasing Demand From End-use Industries Such As Automotive | Alfa Laval , API Heat Transfer , Mersen
+-  Tegeltija: Priča o suđenju za Borac isforsirana, BiH još zadugo neće igrati u Banjaluci
+-  Bahraich News: जाम की समस्या से दिनभर परेशान रहे लोग
+-  MMF odobrio 900 miliona dolara za Ukrajinu
+-  맨유 가느니 뮌헨 벤치 지킨다…‘남아서 케인한테 멘토링 받을래’
+-  Texas’ supreme court strikes down ruling allowing woman to get a medical abortion
+-  Yardımcı olursanız...
+-  Coca-Cola Truck-Tour 2023: Termine, Städte und Co.: Hier halten die neuen Weihnachtszüge
+-  Full šminka bez pudera? Moguće je, isprobajte”demi metodu”
+-  НХЛ дисквалифицировала канадца на шесть матчей за удар россиянина по голове
+-  Commonwealth Trade and Investment Summit promotes Port City Colombo
+-  Shahjahanpur News: हाईवे के निर्माण में लगाई जा रही घटिया ईंट
