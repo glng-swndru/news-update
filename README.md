@@ -1,11 +1,11 @@
 # Latest News
--  معلومات عن التهابات تظهر في العين.. مرض مزمن يصيب الغدة الدمعية
--  Anuncia Gobierno de Milei devaluación de peso argentino
--  Queda corta disponibilidad de pavo en México
--  ¡La locura! Piden hasta 83 mil por boletos de la Final
--  اعتماد قرار أممي بوقف فوري لإطلاق النار في غزة
--  نبات يعزز القدرات الذهنية والتركيز
--  احتفاء «ناسا» بالأعياد: صور بديعة لنجم متفجر
--  ¿No sabes qué hacer con tu gratificación? Sigue estos pasos para aprovecharla
--  Shangri-La Frontier Season 1 Episode 12 Release Date & Time on Crunchyroll
--  "미국 가서 韓 빛내야 한다" 고우석 ML 도전, 이대호도 강력 추천했다
+-  La mayor disidencia de las Farc renuncia al secuestro con fines económicos
+-  Power cut hits Teviot Valley
+-  Misteri terowong tak siap-siap, apa fungsinya?
+-  RM 20.32 juta projek penstabilan Tebing Sungai Kelantan
+-  Ini Tugas dan Wewenang Komnas HAM, Khususnya Penanganan Pelanggaran HAM Berat
+-  مديرعام قعطبة يناقش مع استشاري محافظة الضالع بالاشغال العامة مشروع برنامج التحزيم بالمديرية
+-  国連総会、ガザで人道的停戦求める決議採択 日本など153カ国賛成
+-  مركز انصاف للحقوق و التنمية تنظم فعالية حول العنف القائم على النوع الاجتماعي بعدن
+-  The South Today Bulletin: Tuesday, December 12
+-  Presidente promulga alterações aos estatutos das ordens de veterinários e nutricionistas
