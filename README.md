@@ -1,11 +1,51 @@
 # Latest News
--  Salvataggio Tomori, miracolo del difensore rossonero: il VIDEO dell’intervento
--  Våldsam press – men Brynäs föll i drama på Hovet
--  Nieuwpoort het altijd weer sfeervolle decor van kaarjesavond
--  Celebrarán día Iberoamericano de la danza
--  Dina Boluarte critica liberación de extranjeros en Pachacamac
--  Damkronorna inleder hemmaturneringen med seger
--  백악관 "한미일, 안보리서 북러 밀착 다룰 것...北미사일 정보공유도 가동"
--  عسكريون إسرائيليون: ارتفاع عدد قتلى جيش الاحتلال سببه تغيير التكتيكات في القتال
--  رحلة سياحية مجانية لـ٥٠ طفل من ذوي الهمم بالأهرامات
--  بعد قرار الفيدرالي.. تثبيت أسعار الفائدة في قطر والإمارات
+-  Yahudi kökenli ABD'li Senatörden Biden'a çağrı: İsrail'e 10,1 milyar dolarlık askeri yardımdan vazgeç
+-  Loewe Launches Micro Multi.amp That Delivers 1,200 Watts Of Power
+-  ברק בכר "גאה בשחקנים", עומרי גלזר צפוי לסיים כשיאן ההצלות
+-  Galatasaray'a 20 milyon euro'luk kötü haber! Transfer planları suya düştü
+-  Fedeindustria entregaron propuestas al Gobierno para el desarrollo del Esequibo
+-  The Perfect Bottle To Give As A $50 Holiday Gift (For Each Type Of Spirit)
+-  Anzeige – Ihr Mülheimer Bäcker: Mehr als nur Brot und Brötchen: Willkommen bei Ihrer Stadtbäckerei Hemmerle
+-  Anzeige – Autohaus B&B: Sensationeller Neuzugang: Der SsangYong Torres erobert die Straßen
+-  Dólar fecha em queda de quase 1% ante real após Fed projetar cortes de juros em 2024
+-  [美, 기준금리 5.25∼5.50% 동결…내년 말 금리 4.6% 전망(종합)
+-  [내년 美 금리인하 시그널에 다우지수 장중 사상최고치 돌파
+-  Luis Silva cantó mientras esperaba en una cola para surtir gasolina en Barinitas
+-  فوائد مذهلة.. أعشاب لا يخلو منها منزلك في الشتاء
+-  Oyo Sports Writers Investiture Olumide Eso SWAN Patron
+-  "الأحوال المدنية" تحصد 3 جوائز في ملتقى أبشر 2023 .. تعرف عليها
+-  Freilaufende Katzen gefährden die Artenvielfalt
+-  Marian Mouriño, primera presidenta en la historia del Celta
+-  Hasiči aktuálne zasahujú pri dopravnej nehode autobusu a auta v Prešove
+-  Clement dice que respetan al Betis, pero que llegan "con ambición y sin nada que perder"
+-  The Fed funds futures market is now pricing in 144 bps in cuts next year
+-  Tems Faces Death Threats Over Pregnancy Rumors, Denies Ever Meeting Future
+-  Powell subraya con cautela que los tipos de interés pueden haber llegado al máximo en EEUU
+-  El BCRA compró USD 282 millones en el mercado, el monto más alto desde julio
+-  Regional Victorians feel vulnerable due to rising crime, low police numbers
+-  Extra protection for patients with new national standards for cosmetic surgery operators
+-  Tesla recalls more than 2 million vehicles across US following investigation into flawed Autopilot system
+-  Global leaders reach deal to 'transition away from fossil fuels' after marathon negotiations at COP28
+-  Lisa Wilkinson to give evidence today in Bruce Lehrmann's defamation action against her
+-  Cybercriminals using small businesses to test stolen credit cards in 'BIN attacks'
+-  Crece la cooperación entre Rusia y Bolivia: firmaron un acuerdo para la explotación de litio en el país sudamericano
+-  GUIA DE COMPRAS
+-  Judge pauses Trump’s Jan. 6 case amid appeal to toss it
+-  UOL NEWS
+-  Oliver Sonne y los jugadores que convocó Juan Reynoso y no debutaron mientras estuvo al mando de la selección peruana
+-  La Casa Blanca matiza a Biden y evita hablar de "bombardeos indiscriminados" en Gaza
+-  Ibaka: "El Madrid es el mejor equipo de Europa, juega un gran baloncesto"
+-  Thompsonas atmetė „Warriors“ kontrakto pasiūlymą
+-  Koji automobili se najviše kvare?
+-  OM appeals against lack of extra jail time for Utrecht tram shooter's crimes in prison
+-  High Court orders demolition of Gulshan Shopping Centre within 30 days
+-  Champions League: Holders Man City end group stage with 100% record
+-  لحظات الرعب المؤلمة.. سائحة توثق مشهدا لقصف غزة من سماء مصر (فيديو)
+-  Njurunda tog hem segern mot AIK Härnösand – William Häglund matchvinnare
+-  DHB Pokal: VfL Gummersbach gewinnt das Achtelfinale gegen Ligakonkurrent Göppingen
+-  Award-Winning Writer Timinipre Ovuru Empowering Authors, Brands through Speechwriting, Publishing
+-  Transfer: Osimhen to sign new Napoli deal with €130m release clause
+-  Royals: DIESE Weihnachtskarten bringen Herzen zum Schmelzen – „Sie sind so groß geworden“
+-  الخارجية الأمريكية توجه رسالة لإسرائيل بشأن الحرب في غزةاليوم الأربعاء، 13 ديسمبر 2023 07:38 مـ
+-  مقتل 7 من المحتجزين المدنيين لدى حماس بقصف مخيم جباليا الأربعاء، 1 نوفمبر 2023 11:16 صـ
+-  انفجارات صاروخية كبيرة تهز تل أبيب الثلاثاء، 31 أكتوبر 2023 08:44 مـ
