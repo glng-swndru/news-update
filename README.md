@@ -1,11 +1,51 @@
 # Latest News
--  Finally, You Can Buy an Apple AirPods Pro USB-C Case Separately
--  Florida mother fears her family will be devastated as trial on trans health care ban begins
--  Georgia election worker tearfully describes fleeing her home after Giuliani's false claims of fraud
--  Doritos thinks we want nacho cheese-flavored booze
--  The NZ aviation industry is making bold climate claims—and risking anti-greenwashing litigation
--  New chemical method advances toward targeted RNA medicine
--  Invasive species threaten marine biodiversity in Danish waters
--  Elisabeth Epps, Bob Marshall removed from Colorado House Judiciary Committee by speaker
--  No Gas for Gamers: Ethereum Scaler Immutable zkEVM Will Let Developers Cover Fees
--  Social Giant Line Raises $140 Million for NFT Push, 'Brown and Friends' Games
+-  Want To Stay Friends With an Ex? An Expert Tells Us How To Do It
+-  [Dr. SON의 슬기로운 재활치료] 테니스엘보, 골프엘보 뭐가 다르고 어떻게 해야 할까
+-  서인국(Seo Inguk), 귀여운 12가지 포즈에 폭발하는 매력
+-  "이찬원, 영양제 먹기보단 술 줄여야" 정희원 교수, 건강 위해 '일침'[옥문아]
+-  지드래곤이 증명한 '사필귀정(事必歸正)' [MD포커스]
+-  '고딩엄빠4' 24시간 남편 잔소리 듣는 육예슬, 우울증 진단 '충격' [종합]
+-  "前여친 2명 바람" 김동완 트라우마 '고백'…김아중 닮은꼴과 '소개팅'[신랑수업]
+-  'ML 사관학교' 키움, 네 번째 메이저리거 배출 '이적료만 555억'…이제 김혜성의 시간이다
+-  박소담(Park So-dam), '갑상샘 유두암' 이겨내고 당당한 발걸음
+-  [MD앱테크] 12월 14일 캐시워크 돈버는 퀴즈 정답
+-  임수정에 블핑 리사 닮은꼴까지…베일 벗은 '나솔' 18기, 역대급 피지컬+비주얼 향연 [종합]
+-  "전세계 男들이 ♥청혼 DM" 하석진 '데블스 플랜' 우승 후일담 공개[라스]
+-  신화 김동완, 소개팅 상대 누군가했더니…'배우 서윤아'였네 [신랑수업] (종합)
+-  Nuôi 40.000 con gà, nông dân U70 ở Quảng Trị lãi 600 triệu/năm
+-  זאיר-אמרי הפך לכובש הצרפתי הצעיר אי פעם: "לא מפחדים מאף אחד"
+-  KPU Segera Tegur TKN karena Gibran 'Ngomporin' Pendukung saat Debat
+-  وزير الموارد البشرية يحتفي في الدرعية بالمشاركين في مؤتمر سوق العمل
+-  تفاصيل اختتام مؤتمر التميز التشغيلي 2023 في نسخة الثانية
+-  الفيدرالي الأمريكي يثبت سعر الفائدة للمرة الثالثة
+-  New research shows how Gen Z tradies want to interact with their brands and suppliers
+-  Soccerladuma | PSG Avoid Shock UCL Group Stage Exit
+-  Un Atleti imparable
+-  La mega firma de abogados que contrataron los salvadoreños dueños del Éxito para cerrar el negocio
+-  Las casas de Iron Man, Barbie y más lugares de películas que puede alquilar para ir de vacaciones
+-  World News | Amid Underlying Tensions, Xi Pushes for 'more Trust' with Vietnam
+-  "لا تدخلوا البيوت من أبوابها".. خبير إسرائيلي يحذر جنود الاحتلال من تكتيكات المقاومة بالشجاعية
+-  توقعات الأبراج وحظك اليوم 14-12: نصيحة لـ برج الثور وتحذير لهؤلاء
+-  "رئيس بعثة العربية": هذا سبب موقف الدول الممتنعة عن التصويت لوقف إطلاق النار بغزة
+-  "بشأن اليوم التالي".. صحيفة إسرائيلية تكشف تفاصيل الخلاف بين واشنطن وتل أبيب
+-  Israel acusa a Hamás de "apoderarse" de un convoy de ayuda humanitaria y disparar a civiles
+-  Vogue Living to celebrate artists and designers with VL50 Awards
+-  Russian missile attack on Kyiv injures more than 50 people
+-  Alberta expands access to Cystic Fibrosis medication to those aged two to five
+-  Der rote Blitz für schlappe 143,50 Euro - und den Punkt obendrauf
+-  ABD'den İsrail'e bir tepki daha! "Bir daha yaşanmamalı"
+-  Milan, Avrupa Ligi biletini geriden gelerek kazandı!
+-  Yozgat'ta pikap devrildi: 1 ölü, 3 yaralı
+-  Teachers at Edmonton Public Schools to consider strike vote in new year
+-  Ozan Tufan attı, Hull City kazandı!
+-  Milan se quedó con el premio de consolación a costa del Newcastle
+-  Một cửa hàng bán sản phẩm mẹ và bé ở Đồng Nai bị thiêu rụi trong đêm
+-  Visionary Education Technology Holdings Group Inc. Announces Results of 2023 Annual General Meeting and Receipt of NASDAQ Extension Letter
+-  Planes de ahorro por autos 0km: definieron cuándo se resolverá el conflicto y la fecha de la sentencia
+-  El Amberes hurga en la herida del Barça y complica el futuro de Xavi
+-  El Amberes hurga en la herida del Barça y complica el futuro de Xavi
+-  하마스 지도자 “자신들‧저항세력 배제한 전후 가자지구 구상은 망상”
+-  美 연준, 기준금리 5.25∼5.50% 동결…내년 3차례 금리 인하 예상
+-  Griezmann y Samu Lino sellan el liderato del Atlético siete años después
+-  Atletico beats Lazio in its 20th straight home win to secure 1st place in Champions League group
+-  ΦΩΤΟΡΕΠΟΡΤΑΖ από το Ανόρθωση-ΕΝΑΔ Πόλης Χρυσοχούς
