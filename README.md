@@ -1,11 +1,51 @@
 # Latest News
--  99x clinches Gold for IT Exports at National Export Awards 2023
--  Colombo stock market takes a breather post-IMF boost
--  Developing countries paid record $ 443.5 b on public debt in 2022: WB
--  Hayleys triumphs in excellence in corporate reporting sweeping most TAGs Awards
--  Govt.’s way is the only way President tells Parliament
--  IMF deal to be renegotiated under a SJB Govt. says Sajith
--  Post-Executive Board support, IMF urges SL to speed up MOUs with external creditors
--  Sajith accuses RW of protecting culprits of SL’s financial collapse
--  BVB als Erster ins Achtelfinale - Remis gegen PSG
--  Florenzi a Sky: «Andiamo avanti con fiducia, sono arrabbiato con Leao per un motivo»
+-  استشهاد 271 بينهم 69 طفلا برصاص الاحتلال في الضفة
+-  قرار مُرتقب من البنك المركزي الأردني بشأن الفوائد على القروض والتسهيلات
+-  بشرى للمقترضين.. رئيس الفيدرالي الأمريكي: لا رفع جديد على أسعار الفوائد
+-  الذهب عالمياً يحلّق ويتجاوز مستويات الـ 2023 دولاراً للأوقية
+-  حماس: معركة طوفان الأقصى تقترب من نهايتها المشرفة
+-  Perang di Gaza demi realisasi rancangan jahat Zionis
+-  وفيات الخميس 14-12-2023
+-  Bolehkah Kabinet baharu selesai masalah negara?
+-  Budi Arie soal Panduan Etik Penggunaan Kecerdasan Buatan: Pokoknya Secepatnya
+-  สภาพอากาศวันนี้ มวลอากาศเย็นปกคลุม ภาคเหนืออุณหภูมิลด 1-2 องศาฯ
+-  Rekap Hasil BWF World Tour Finals 2023 Hari Pertama dan Komentar Para Wakil Indonesia
+-  Брайтон зіграє з Марселем, Бетіс - із Рейнджерс: розклад матчів 6-го туру Ліги Європи
+-  Sharebox Debuts Pop-up XR Box at GITEX Global 2023
+-  [네이처, 2023 과학계 화제의 인물에…‘챗GPT’ 선정
+-  [경기도의 ‘손에 잡히는’ 인구정책. 성과 거뒀나
+-  [화엄사 성보박물관서 '수행 문을 열면서' 전통자수 전시회
+-  [용산구, 하반기 적극행정 우수 공무원 5명 선정…성과상여금 최고등급 부여
+-  [송파구, 석촌호수 아뜰리에서 청년 예술인 합동콘서트 개최
+-  [서초구, 세대공감 웹드라마 ‘일흔다섯 스물하나’ 공개
+-  [경기도 미세먼지 불법배출 56건 적발
+-  [경기도, 노바백스 XBB.1.5 무료 접종
+-  [“귀여운 ‘봉공이’ 이모티콘 무료로 내려받으세요”
+-  [구자열 무협 회장 “韓·네덜란드 협력하면 미래 성장 잠재력 더 높아질 것”
+-  [경콘진, ‘게이머스 밋업’ 세미나 개최
+-  [尹, 한-네덜란드 ‘반도체 동맹’ 넘어 무탄소에너지·원전협력 이끈다 [용산실록]
+-  [경기도교육청 자체 제작 뮤지컬 첫 막 올려
+-  سفير إندونيسيا لدى ليبيا يزور جامعة سرت .
+-  انطلاق بطولة ( شيخ الشهداء لفروسية قفز الحواجز) ببنغازي .
+-  توقيع اتفاقية تدريب بين المشروع الوطني للإدماج والمركز الليبي الكوري .
+-  جلسة حوارية لتعزيز جهود الحد من النفايات البلاستيكية .
+-  الحويج يناقش مع الأمين العام للاتحاد العربي للتأمين آلية عمل البطاقة العربية الموحدة .
+-  1670 Season 1 Episodes 1 to 8 Release Date & Time on Netflix
+-  Để cổ động viên đốt pháo, đội bóng Đức bị phạt hơn 15 tỷ đồng
+-  నాలుగేళ్లలో ఇనుప ఖనిజేతర ఆదాయం 15%: ఎన్‌ఎండీసీ
+-  Congreso EN VIVO: pleno debate moción para remover a la Junta Nacional de Justicia
+-  Cruz Azul presenta de manera oficial a Iván Alonso como su nuevo director deportivo
+-  Canadian man with criminal record killed at a gym in Mexican resort of Cancun
+-  PlayStation. Supuestos hackers revelarán próximo juego de Spiderman 2024
+-  Un juzgado admite que se omitieron imágenes desde el VAR en dos partidos
+-  How Long an AirTag’s Battery Lasts (and How to Change It)
+-  Catatan Bambang Widjojanto untuk Debat Capres Cawapres Isu Pemberantasan Korupsi
+-  Tips Sehat Bikin Gorengan Sendiri di Rumah
+-  مجلس النواب الأميركي يفتح رسمياً تحقيقاً لعزل بايدن
+-  Hasan Bitmezin səhhəti necədir?
+-  Qəzzada ölənlərin sayı 19 minə çatır
+-  Positivo que haya inversiones en energía: presidente del CCE
+-  Revela Oprah Winfrey uso de medicamentos para bajar de peso
+-  ¿Qué aprender en 2024? 10 habilidades laborales en tendencia
+-  عادل عبد الغفار: إدراج 18 جامعة مصرية بتصنيف QS العالمي يعكس تقدم مستوى التعليم العالي
+-  [美 3연속 금리 동결] 파월, '깜짝' 비둘기 발언…"인플레 2% 달성 전에 금리 인하할 것"
