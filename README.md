@@ -1,51 +1,51 @@
 # Latest News
--  Jeu-concours XXL : vis le NBA Paris Game 2024 avec TrashTalk, à l’Accor Hotel Arena !
--  Уночі в небі можна буде побачити надзвичайне природне явище
--  Womöglich letzte Verhandlungsrunde für hessischen Koalitionsvertrag
--  Söder verteidigt Israels Kampf gegen die Hamas
--  Geldstrafe und Fan-Ausschluss auf Bewährung für Eintracht
--  Wasserstände zum Teil gestiegen - am Wochenende Entspannung in Sicht
--  Манчестър Сити с минимален аванс над Цървена звезда на почивката
--  Exsubsecretaria de Vivienda declaró que “el informe se lo entregué al ministro antes que el caso saliera en la prensa”
--  General Motors Did Not Get The Hydrogen Fuel Cell Memo, Either
--  Počeo samit lidera EU i Zapadnog Balkana: Prisustvuje premijerka Ana Brnabić
--  Le Sénat adopte une proposition de loi écologiste pour réattribuer aux plus précaires des voitures destinées à la casse
--  Letterkenny Rovers U9s fundraising for ‘experience of a lifetime’ in Spain
--  ZVEZDA – SITI Hrabri crveno-beli se isprsili pred šampionom Evrope: Projektil klinca napravio razliku, milimetri spečili Nedeljkovića da postane heroj
--  Hertha BSC: Bundesligisten buhlen wohl um Fabian Reese
--  Tajlandska policija zaplijenila 50 miliona tableta metamfetamina
--  الراجحي: المملكة تسعى لتصبح وجهة لأفضل العقول في العالم
--  Two J&K MMA fighters shine in IMMAF Asian Championship, bag bronze medals
--  Китай и Виетнам издигнаха отношенията си до "общност със споделено бъдеще" по време на визитата на Си Дзинпин
--  إسناد تراخيص لوكلاء السيارات: 3 قرارت جديدة
--  Sube el dólar y escalan los precios: los primeros efectos dolorosos del shock económico en Argentina
--  Sube el dólar y escalan los precios: los primeros efectos dolorosos del shock económico en Argentina
--  BIVŠI NAPADAČ PARTIZANA GLEDA NA MARAKANI MEČ ZVEZDA - MANČESTER SITI: Pohvalio se na Instagramu, usledila lavina reakcija Grobara
--  Je Robert Fico nervózny? Poslanci koalície tvrdia, že ľudia nevedia, prečo protestujú (podcast)
--  В Египте заявили, что более 14 тыс. иностранцев эвакуированы из Газы
--  Apple unveils new security feature to safeguard against thieves
--  Gymnastics trials on Dec 15
--  ডলারের দাম আরও ২৫ পয়সা কমানোর সিদ্ধান্ত
--  Fight against terrorism - Meeting on combating Hamas (Paris, 13.12.23)
--  Bayern Münchenilla on tilanne päällä tähtipelaajan kanssa: jatkosopimus tai jättikauppa
--  „Das perfekte Dinner“ in Lübeck: Kandidaten, Menüs, Punkte – die Woche im Überblick
--  FC Barcelonassa kuohuu - managerin lähtölaskenta on käynnissä?
--  Bolivia firma acuerdo con estatal rusa por US$ 450 millones para explotar litio
--  В Удмуртии устранили аварию, оставившую без воды поселок Балезино
--  فريق أنتويرب يصل ملعبه قبل مواجهة برشلونة
--  Jimmy Barnes’ wife gives update after star’s emergency heart surgery
--  Browns place Grant Delpit on IR
--  دعم توظيف 330 ألف سعودي بالقطاع الخاص خلال 10 أشهر
--  Francia promete una sede libre de impuestos en un plan para atraer a la FIFA
--  Indian Exporters On Amazon Global Selling Witness 80% Surge During Black Friday And Cyber Monday Sale
--  Govt Introduces Bill To Amend Central Goods And Services Tax Act In Lok Sabha
--  PI Industries Faces Stock Decline Despite Growth Guidance, Rainbow Agro's Entry Amplifies Market Competition
--  COP28 Presidency Urges Ministerial Support For Urban Climate Action
--  State-owned Manganese Producer MOIL To Form Joint Venture For Mining In Gujarat
--  Defence Ministry Approves Rs 2,800 Cr Rockets For Pinaka Weapon System
--  Enrolments Under Atal Pension Yojana Cross 6 Cr Mark
--  Indices Recover From Day’s Low On Wednesday Ahead Of Fed Meeting
--  MDL Submits Bid For Over Rs 20,000 Cr Project To Build 3 New Kalvari Class Submarines
--  China, Vietnam Hail Upgrade Of Ties; Agree To Boost Security Efforts
--  KVADRAT IDE DO 9 HILJADA EVRA: Ovo mesto u komšiluku proglasili top lokacijom za 2024
--  „Rende“: Pripremamo reizdanje „Palestine“ zbog velikog interesovanja
+-  Moment two 'XL bullies' run loose on street, jump at woman's car and try to attack another pet dog before police seize the animals
+-  Grocery price hikes expected to stop next year, but prices unlikely to fall
+-  تسريب وثائق سرية واستياء مسؤولين أمريكيين .. ماذا يحدث؟
+-  مختص تقني يحذر من برنامج خطير على أجهزة آيفون يشارك صورك مع الآخرين
+-  شاهد.. جريان سيول الحريضة في تهامة عسير
+-  Leonardo DiCaprio enjoys a night of partying with Lottie Moss at London's Chiltern Firehouse - 30 years after he dated her sister Kate
+-  Israelis say Hamas must be crushed despite Gaza casualties, UN rebuke
+-  Emily Ratajkowski wears a puffy jacket over a green sweat suit in NYC... after revealing plans to write a book about divorce from Sebastian Bear-McClard
+-  Drugi ciklus crnogorskog studenskog filma
+-  Argumenti
+-  Kyogo Furuhashi returns to Celtic line-up for Champions League clash with Feyenoord
+-  Educación propone prohibir los móviles en horario lectivo en Primaria y la ESO
+-  Autos: se espera fuerte suba de los precios y caída de las ventas
+-  Mask universitet açmağı planlaşdırır
+-  Jesper Björkman har blivit pappa: ”Fantastiskt”
+-  В Бундестаге призвали Берлин наложить вето на диалог с Киевом о членстве в ЕС
+-  Schlechtes Jahr an der Börse: Rentenfonds stürzen ins Minus - Deutschland verliert relativ wenig
+-  ABD'li e-ticaret şirketi Etsy çalışanlarının yüzde 11'ini işten çıkaracak
+-  La Escuela de Enfermería de Cartagena tendrá plena autonomía universitaria
+-  Danicka Bergeson’s ex faces upgraded murder charges over grisly death days after he was released for earlier attack
+-  HSC, ATAR results 2023 LIVE updates: NSW Year 12 students receive end of year results
+-  New Chinese carmaker Omoda confirms 8 models coming to NZ
+-  Dugo nitko nije tako lijepo pričao o Mamiću kao Tarzan! Najgore je što slično misle mnogi na ovim prostorima...
+-  Sanction, renforts... Les promesses de Gabriel Attal au collège d'Issou se précisent
+-  Bradley Cooper und "Maestro": Dem Blick auf das Genie fehlt etwas
+-  Gebrauchtes kaufen und Gutes tun
+-  Spielen beim Streamer: Welche Möglichkeiten "Netflix Gaming" bringt
+-  Versöhnung ging nicht viral
+-  Klimamythen im SN-Faktencheck: War es in der Arktis heuer sogar zu kalt?
+-  Mangel an Corona-Arznei: Es wurde zu wenig bestellt
+-  copfdg fdgfd
+-  Arnold-Schönberg-Jahr: Neues Hören für Zwölftöniges
+-  Sternschnuppen-Höhepunkt steht bevor
+-  Der Volks-, der Reform- und der Bundeskanzler
+-  Claudia Riegler verlässt ihre Komfortzone
+-  Spannung beim schnellstenDebütantenball
+-  Geht auch Vucics Mehrheit flöten?
+-  Weltklimakonferenz: So reagierten Wissenschaft, Wirtschaft und Umweltschützer auf die Ergebnisse
+-  In der Klause geht der Knopf auf
+-  Andaba 'pisteando' en calles del Centro
+-  Invitan a asistir al Sendero Navideño
+-  Aprueban licitar segunda etapa del Campus Isscuu
+-  Reportan saldo blanco en operativo en Santuario de Guadalupe
+-  Son dakika: Şans Topu çekilişi sonuçları belli oldu! 13 Aralık 2023 Şans Topu bilet sorgulama ekranı!
+-  كيف تؤثر الضوضاء على الأطفال؟
+-  أطعمة مفيدة وأخرى ضارة للدماغ!
+-  واشنطن: السلطة الفلسطينية ليست بوضع يسمح لها بإدارة غزة
+-  Kanzler bei „Farbe bekennen“ - Scholz findet Ampel-Deal „ziemlich gut“ - das Fazit des ARD-Mannes ist knallhart
+-  REPORTAGE - Le Français le plus protégé au monde : regardez comment le GIGN veille sur notre ambassadeur à Bagdad
+-  Etiyopya'da 176 kişi açlıktan hayatını kaybetti
