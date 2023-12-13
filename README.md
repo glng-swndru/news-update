@@ -1,11 +1,11 @@
 # Latest News
--  Cảnh báo thủ đoạn lừa đảo dịp cuối năm
--  "Tình tin đồn" của Anh Đức để lộ hint hẹn hò, có mối quan hệ thân thiết với hội bạn Trấn Thành?
--  Đi thuê 5 triệu/ tháng nhưng chi 30 triệu mua nội thất: Vừa thay đổi decor và trang trí Giáng sinh hết 20 triệu đồng
--  Đảo Rockall, nơi hoang vắng và tuyệt vọng nhất thế giới
--  Phương Mỹ Chi lộ diện hậu lên tiếng tin nhạy cảm, thần sắc ra sao?
--  Miền Bắc sắp đón đợt rét hại dưới 3 độ C, miền Trung mưa to
--  Trần Ngọc Vàng: Tôi rất mừng khi đọc được những lời chê bai
--  Asian Cup 2023: Đội tuyển Iraq bất ngờ "có biến" trước ngày tái đấu tuyển Việt Nam
--  Zara đối mặt với làn sóng tẩy chay vì chiến dịch quảng cáo được cho là gợi nhắc tới xung đột ở dải Gaza
--  Không phải Quang Hải, Văn Hậu đây mới là cầu thủ có giá trị chuyển nhượng cao bậc nhất đội tuyển Việt Nam
+-  Давлат думаси Россия гвардияси ҳақидаги «фейклар» учун жазо чораларини киритди.
+-  Ўзбекистон ва Бангладеш ўртасида авиақатновлар йўлга қўйилади.
+-  Хонадонда электр ускуналаридан ортиқча фойдаланганда автоматик тарзда ўчириб қўйиш амалиёти вақтинча тўхтатилди.
+-  14 декабр кунидан ҳаво ҳарорати кўтарилишни бошлайди.
+-  «Метан заправка»ларга қўшимча чекловлар киритилди.
+-  "김하성 학습곡선 피하고 싶을 것→올스타 재능 갖췄다" 'SF행' 이정후 향한 기대감 폭발
+-  '서울의 봄', 개봉 21일 만에 736만명 봤다…흔들림 없는 흥행세
+-  "300억 가능하지 않냐"…'200억 현금 플렉스' 한 유재석에 조세호 과거 발언 재조명 [MD이슈]
+-  라엘, ‘2023 올리브영 어워즈&페스타’ 참가
+-  '20승-200K MVP' 떠난 NC, 카스타노 영입→총액 85만 달러…"친구들 통해 좋은 얘기 많이 들었다" [공식발표]
