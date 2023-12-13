@@ -1,11 +1,11 @@
 # Latest News
--  Zahara, South Africa`s beloved Afro-soul star dies at 36
--  Volodymyr Zelensky visits Capitol Hill as aid package risks collapse
--  Pakistan suicide bomber attack leaves 22 dead
--  Israel says fighting likely to continue for months
--  Mamata Banerjee to meet PM Modi over financial dues to West Bengal
--  Mass protests in Brussels for better wages and public services
--  Non-procurement of contraceptives claim misleading: Govt
--  China’s Xi Jinping visits Vietnam to bolster ties
--  Data of all illegal migrants not possible: Centre to SC
--  '비자금 의혹' 결말은? 한글과컴퓨터 김상철 회장 아들 구속송치
+-  นักท่องเที่ยวไต้หวันตายในไทย รพ.เอกชนปฏิเสธรักษาส่อผิดกม.
+-  बंगाल देश की अगुवाई करेगा, INDIA गठबंधन की बैठक से पहले बोलीं CM ममता बनर्जी
+-  Sean Darcy signs massive contract extension to tie himself to Fremantle Dockers until at least 2030
+-  Центробанк раскрыл мошенническую схему с обновленной купюрой в 5000 рублей
+-  Moradia Cidadã: Ministério das Cidades vai construir casas para população de rua
+-  Garena Free Fire MAX Redeem Codes for 13 December 2023: Win Rewards and Gifts
+-  Crypto exchange KuCoin to shut in New York, pay $22 million to settle lawsuit
+-  ﻿롯데손해보험, 전자제품 보증기간 연장 보험 100만건 돌파
+-  Muscle Membrey: Big Saint forward super-fit and ‘blossoming’
+-  Muscle Membrey: Big Saint forward super-fit and ‘blossoming’
