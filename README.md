@@ -1,51 +1,51 @@
 # Latest News
--  مرصد حقوقي : وثقنا إنشاء 120 مقبرة جماعية في غزة
--  دلفين يملك إبهامين في اليونان
--  إطلاق مركبة إلى الفضاء 18 الشهر الجاري
--  القسام تبث مشاهدا لاستهداف جنود وآليات الاحتلال - فيديو
--  نيوزويك: إسرائيل هاجمت حتى الآن 25 ألف هدف في غزة
--  تأجيل محاكمة صيدلي بمدينة نصر لاتهامه بهتك عرض سيدات لـ 10 يناير
--  دار الإفتاء تعلن غدًا الخميس أول أيام شهر جمادي الآخرة 1445هجريا
--  6 أبراج فلكية الأكثر حظا مع بداية عام 2024.. أحدهم يحقق أرباح ضخمة
--  مصر وإسبانيا توقعان مذكرة تفاهم لتعزيز التعاون في مجال الري
--  مصرع سيدة وطفل وإصابة ثالث في حادث تصادم بـ"بورسعيد الإسماعيلية"
--  "خرج للشارع متخفيا".. كيف تغيرت حياة مهاجم كوريا بعد مونديال قطر؟
--  Rente ao Couce entrégalle o Foucín de Honra á queixeira Begoña de Fonchave o día 16
--  „Rusija tampa koncentracijos stovykla. Medvedevas visiškai teisus“ (Foto)
--  [ŽT] Nutarė pribaigti. Kas nutiko okupantams gabenant naikintuvą Su-34 (Video)
--  Rusija smogė Kyjivui S-400 sistemomis. Kas žinoma apie šias 48N6 raketas
--  Nustebo net mokslininkai: gali būti, kad ši organizmo dalis padeda kovoti su vėžiu
--  Kremlius įsigijo pavojingą priešą. „Karo policija“ saviems. „Budelių ir aukų“ stovyklos.“ Kas vyksta
--  Internetas pagreitės 5 kartus. Kaip prisijungti?
--  Lotto am Mittwoch: Die Lottozahlen zur Ziehung am 13.12.2023
--  Apple releases standalone USB-C case for AirPods Pro 2 for $99
--  Democratic Lawmaker Interrupts Kamala Harris' Speech, Yells at Vice President
--  My nan tricked me into living in orphanage before breaking into football… I landed big break with Man Utd but got lost
--  대웅제약 ‘나보타’ 만성 편두통 적응증 글로벌 2상 환자 모집 완료
--  Receive the gift of growth at TechCrunch Early Stage 2024
--  Werder Bremen verlängert Vertrag mit Romano Schmid
--  El abogado de la menor tutelada víctima de abusos, satisfecho con la condena del Supremo
--  RB Leipzig - TSG 1899 Hoffenheim im Live-Stream und TV: Der Bullenclub bekommt es am 16.12.2023 mit TSG zutun
--  Joachim Król hält viel vom Auto
--  17 presos por terrorismo yihadista participan en un programa de 'desradicalización'
--  Bourges désignée capitale européenne de la culture 2028
--  Сотрудники ФНС и пивовары обсудили схему скрытого производства пива
--  “No nos van a amedrentar”: referentes políticos repudiaron la amenaza narco que recibió Maximiliano Pullaro
--  Matthew McLennan on Investing In Uncertain Times And Why He Holds A Massive Amount of Gold [ValueNYC 2023]
--  В Дагестане количество обращений по поводу отключения света увеличилось в 30 раз
--  В Костромской области организовали проверку из-за исчезновения двух мальчиков
--  Apuñalan a una joven embarazada en Córdoba
--  Castro apunta a la Segpres y Minsal por desorden político previo al plebiscito
--  Big Brother’s Jenkin reveals secret show feud as housemate brutally ignores WhatsApp group
--  US Supreme Court Agrees to Rule on Abortion Pill Restrictions
--  Big Brother’s Jenkin reveals secret show feud as housemate brutally ignores WhatsApp group
--  Орбан уведомил Мишеля, что Венгрия не поддержит переговоры с Украиной о приеме в ЕС
--  Triệu phú chỉ cách ứng xử khi người thân mượn tiền: Từ chối cho vay nhưng làm 1 điều để không có lần thứ 2
--  Révolution en F1, Alpine pousse un coup de gueule
--  My bedroom performance is pants
--  Odbor za bezbjednost i odbranu 21. decembra razmatra izvještaje...
--  It’s hip to be winning for Oilers’ Sam Gagner after off-season surgery
--  İzmir'de PKK/YPG'ye darbe: 4 kişi tutuklandı
--  İşgalci İsrail 2 gazeteciyi daha öldürdü
--  Sullivan İsrail'e gidiyor
--  Bakan Bayraktar: Yeni bir reform ve yatırım dönemini başlatıyoruz
+-  LS Secretariat writes to home ministry for review of Parliament security
+-  La Policía Nacional desarrolla una operación por supuesto blanqueo y narcotráfico
+-  حكم قضائي ضد الأمير هاري
+-  Please stop huffing your Steam Deck vent fumes, Valve plead, as players obsess over “new Deck smell”
+-  Man, 62, left with 'serious injuries' after van collision
+-  'My mum would have died had I not found her': Woman repeatedly collapsed in 'horrendously hot' home after landlord failings
+-  National Lottery Lotto results LIVE: Numbers for tonight's draw - Wednesday, December 13
+-  Freddie Flintoff pictured smiling in special presentation a year after horror crash
+-  Ramón Díaz pede, e Vasco negocia com Bragantino a compra de Praxedes
+-  Fury as neighbours campaign to stop huge 'ill-thought out' housing development at historic golf club
+-  ITV I'm A Celebrity's Jamie Lynn Spears says she 'wants to move to UK' despite early exit from jungle
+-  Cops seize 140 cannabis plants and 'vacuum pack bags ready to be distributed' in Bury raids
+-  Nearly 40,000 people in Greater Manchester missing out on £3,500 DWP top-up as charity makes plea
+-  Millions over age of 55 risk being £2,643 short of basic income
+-  Tameside teacher was killed in cow attack on family holiday
+-  Poll: Should Manchester and the North bid to host 2026 Commonwealth Games?
+-  Murder accused 'Boy Y' blames co-defendant for 'frenzied' stabbing of Brianna Ghey
+-  ITV I'm A Celebrity's Sam Thompson pictured in emotional reunion with girlfriend Zara McDermott as he lands back in UK
+-  Victim in Salford murder investigation named as police issue update
+-  (ВИДЕО) Јакимовска Панчевска: Доколку Стевчо Јакимовски сака да бара бетонски зданија, нека се слика пред неговите во Карпош, каде направи бетонизација
+-  Força Tática e ROCAM detêm em flagrante 5 pessoas por tráfico em Gravataí
+-  Neue Temperatur-Daten - Hitze-Rekorde in den Alpen
+-  Giornalismo, Axel Springer si allea con OpenAI. Algoritmo riassumerà articoli. Contenuti di editore per allenarsi
+-  Asylum seekers account to 5 per cent of Cyprus’ population
+-  Casino managers in court in north
+-  India News | Schools, Hospital Among 6 Penalised for Ads on Illegal Billboards in Greater Noida
+-  Les recherches sur les effets des médicaments sur la santé de cette scientifique originaire des Pyrénées-Orientales récompensées
+-  Tiroteo en la Tumba Muerto causa pánico; Policía cierra la vía
+-  Hrvatska podržala rezoluciju za humanitarni prekid vatre u Gazi
+-  Bu Şarkılar Şaka mı? Daha Önce Defalarca Dinlemiş Olsak da Hala Sıkılmadan Dinleyebildiğimiz 13 Şarkı
+-  Ministarstvao prelomilo: Svinjokolja je dozvoljena, ali uz određene uvjete
+-  SDP tvrdi da treba raspustiti Sabor i izaći na izbore
+-  Massimo Basile a Scanner: "La MLS ora produce giovani talenti da vendere in Europa"
+-  Central Standard Distillery Again Teams With Hofbräu to Create Limited Run Brandy
+-  Filipovića će zamijeniti Hrvoje Bujanović
+-  Sosyete Polisi Eddie Murphy "Axel Foley" Karakteriyle Kahkaha Tufanı Yaratmak İçin Geri Dönüyor
+-  Dodik: Vučić ima većinsku podršku građana u Republici Srpskoj
+-  Japonya'da maymun çiçeğinden ilk ölüm gerçekleşti
+-  Félix Amador y Claudio Castro se alzan con el certamen de textos teatrales de Lucena
+-  Japon deprem uzmanından İstanbul'daki bazı bölgeler için "yumuşak zemin" uyarısı
+-  “شكشك” يبحث مع مديري الإدارات العامة استمرارية العمل الرقابي والبناء المؤسسي للديوان
+-  Recette de trifle de Noël aux fruits rouges
+-  CARTE - Le parcours de la course cycliste Paris-Nice 2024
+-  Vous allez prendre du plaisir à écrire
+-  Rennes : une collégienne menace son enseignante avec un couteau
+-  La Galerie d'art Bertolotti propose une toute nouvelle exposition !
+-  Bourges sera la ville française Capitale européenne de la culture en 2028
+-  Conseils pour réviser sur le web avant de passer son permis de conduire
+-  EN IMAGES - Les plus belles illuminations de Noël près de chez vous
+-  A GAGNER : Deux invitations pour le match Laval / Auxerre du mardi 19 décembre 2023
