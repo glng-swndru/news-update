@@ -1,51 +1,51 @@
 # Latest News
--  تورم القدمين.. متى يجب عليك أن تشعر بالقلق؟
--  الطاقة الذرية: نموذج المملكة الرقابي يؤكد جاهزيتها لبرامجها النووية
--  REALTY ONE GROUP'S GLOBAL NETWORK OF ONE LUXE, LUXURY REALTORS, GROWS AT RECORD PACE
--  Nicolas Sarkozy : « Il n’existe qu’une seule solution crédible au différend autour du Sahara, celle proposée par le Maroc » !
--  ONO ŠTO ĐOKOVIĆ RADI JE JEDINSTVENO: Ruska teniska legenda očarana Novakom
--  أكسيوس: واشنطن تؤجل بيع بنادق لإسرائيل بسبب عنف المستوطنين بالضفة
--  Trabalhadores argentinos avisam que não ficarão “de braços cruzados” face ao plano econômico de Milei
--  [인사] 신아일보
--  영월 산비탈음악회, ‘청소년과 함께하는 산비탈 음악회’ 개최
--  인제군, 군민안전보험 적극 홍보
--  아산시자원봉사센터, ‘2023년 자원봉사 수요처 대표자 교육 및 간담회’ 실시
--  인제군, 2023년 적극행정 역량강화 교육 실시
--  美 “한미일, 캠프 데이비드 합의대로 北미사일 경보 공유 가동”
--  Euphoria star Sydney Sweeney shows some leg in revealing red dress as she steps out in New York
--  فى زيارة مفاجئة..رئيس «القناة للكهرباء»يتفقد تطوير وتحديث هندسة الشروق
--  وزير الإنتاج الحربي يفاجيء عمال وقيادات "حلوان للمسبوكات" و"حلوان للصناعات الهندسية"
--  المركزي الأمريكي يرفع توقعات نمو الاقتصاد في 2023
--  تصالح بوسي وطليقها هشام ربيع بعد مشاجرة الفندق
--  كسر 2000 دولار.. قفزة في أسعار الذهب عالميا بعد تثبيت الفائدة الأمريكية
--  يونايتد يودع الأبطال.. وكوبنهاغن يتأهل
--  Suç ortağı ABD'den İsrail'e Gazze'deki saldırılardan "endişeliyiz" mesajı
--  Fenerbahçe Kulübü'nden Umut Nayir'e başsağlığı mesajı
--  İYİ Parti'de deprem üstüne deprem! Çok sayıda meclis üyesinin ihracı istendi
--  Zorunlu trafik sigortasında azami artış oranı belli oldu
--  Mevduatta devlet güvencesi 650 bin TL olacak
--  İsrailli büyükelçiden Biden'ın "dünyanın desteğini kaybetti" açıklamasına tepki
--  Havacılık alanında olumlu sinyaller! Türkiye ile Pakistan görüştü
--  Horarios de cortes de luz en Quito: 14 de diciembre de 2023
--  Apple shields push notification data without court order
--  הריאליטי של נטפליקס מותח, מרגש ומלא טוויסטים. לפעמים הוא גם עולה על המקור
--  "נפוליאון" מזלזל בגיבור שלו, באינטליגנציה שלנו ובזמן שלנו
--  היועץ לביטחון לאומי של ביידן נפגש בסעודיה עם בן סלמאן לדון על המלחמה בעזה
--  U Ligi prvaka viđen najkontroverzniji gol sezone, ali sve je po pravilima
--  Veja como ficam seus investimentos com a queda da Selic
--  Veja como ficam seus investimentos com a queda da Selic
--  NC Gov. Roy Cooper looks to final year in office and key priorities
--  Chevy Turbo Engine Teardown Shows Why Coolant And Oil Should Never Mix
--  Oporba napala Fuchsa zbog Zakona o obrazovanju, on se brani: “Ovo je cilj”
--  Europa League: Conoce la programación de los ecuatorianos en el torneo
--  [인사] 한국수력원자력
--  Cafe paid $700k to close down
--  Castilla y León exige una moratoria a la obligación de dar de alta al alumnado de FP en la Seguridad Social
--  남재현 약사 "현실적 도움되는 연구되도록 최선 다할 것"
--  갈수록 세력 키우는 감염병…올해 식약처 대처·대비 어땠나
--  강화되는 글로벌 의료기기 규제…정부 협의체 지원 나선다
--  화이자 vs MSD, 국내 폐렴구균 백신시장 본격 대결 서막
--  심평원의 '자율점검제'‥'예방 효과'는 있지만 '미통보 기관'에는 미미
--  연말 급변하는 제약 시장, 보령에 실적 확대 기회 되나
--  상급종합병원 '45+α개' 가능성 윤곽…政, 올해 내 최종 확정
--  Kovačić: Zvezda nije slučajno u Ligi šampiona
+-  Exum career-night against Lakers
+-  Exum career-night against Lakers
+-  No hay tiempo que perder: FPF y Universitario a contrarreloj por Fossati
+-  Türk Telekom'dan 23 sayı fark!
+-  Fırtına gibi geliyor! Bayraktar TB3'ten heyecanlandıran gelişme: 12'de 12 yaptı
+-  İsrail-ABD gerilimi yükseliyor: 20 bin silahın satışı ertelendi
+-  Lady Gaga Unveils New Children’s Book for Her Littlest Monsters
+-  Dina Boluarte critica a la Fiscalía por liberación de presunto miembro de “Los Hijos de Dios”
+-  Rekord DJIA oraz tegoroczne szczyty S&P500 i Nasdaq dzięki Fed
+-  Minister: 800 plus zostanie wprowadzone od 1 stycznia 2024 r.
+-  VIDEO Muškarac spasio djevojku i psa iz gorućeg stana: "Zgrabio sam je i držao svom snagom"
+-  Wednesday’s Child 11-year-old Ahmadrick dreams of being spoiled by a forever family
+-  KiwiRail may still build ferries despite funding cut
+-  Dinamarca se cita con Noruega y Suecia con Francia en las semifinales del Mundial
+-  Nuevo método para crear baterías para carros más sostenibles, se hacen con madera
+-  Rainibogi snatches medals and breaks records
+-  Snapchat+: Everything you need to know – December 2023
+-  Arranca en Álvaro Obregón operativo "Aliados de Navidad"
+-  Argentina digiere primeras medidas de "shock" de Milei con salto de precios
+-  Por esta razón es posible que cierren 12 delegaciones de la Cruz Roja Mexicana en Edomex
+-  Se siente temblor de magnitud 4.2 en la ciudad de Caldera
+-  Lotto: Mann knackt gleich zwei Mal den Mega-Jackpot – von dieser Summe kann Lotto-König Chico nur träumen
+-  49ers’ re-signed CB Verrett: ‘My heart was always wanting to be here’
+-  Venda de carros novos cai 3% em Mato Grosso e de moto segue em alta
+-  Politécnico de Setúbal leva a academia ao mundo empresarial angolano
+-  Vitályos Eszter: különleges tárlat a Magyar menyasszony
+-  Pela primeira vez, primeira instância da justiça de MT atingiu meta 4 do CNJ
+-  Comissão Judiciária de Adoção se reúne para balanço de 2023
+-  Comissão de Saúde promove debate sobre trombose e embolia
+-  Comissão mista aprova criação do Ministério do Empreendedorismo, da Microempresa e da Empresa de Pequeno Porte
+-  Knicks bring back Taj Gibson to help fill Mitchell Robinson void
+-  Chanceler brasileiro diz que reunião entre Venezuela e Guiana é um passo para o entendimento
+-  Relator estende benefícios para investimentos no comércio de bens e serviços
+-  Prefeitura repagina uniformes da rede municipal de ensino para ano letivo de 2024
+-  Sinfra atualiza portaria e flexibiliza circulação de veículos pesados até o Complexo da Salgadeira; entenda
+-  Vídeo: Deputado da Turquia sofre ataque cardíaco ao criticar Israel
+-  New Zealand Q3 GDP -0.3% q/q (vs. 0.2% expected)
+-  FC Schalke 04: Neues Gesicht im Training – seinen Namen sollten sich die Fans merken
+-  Route Matadi-Kinshasa : la société civile recommande la création d’une déviation pour faciliter le trafic
+-  Толкова много виновни за детето в кокошарника и никой не поема отговорността
+-  9 sertai program JENESYS
+-  UOL PRIME
+-  ¡Buscando la clasificación! Gol de Zaire-Emery para el 1-1 de PSG vs. Dortmund
+-  الحكم يلغي هدف التقدم لمبابي في شباك دورتموند
+-  Luann de Lesseps hints she broke sobriety on ‘RHONY Legacy’ trip: ‘I like to have fun on occasion’
+-  DRAMATIČNA SCENA NA VOŽDOVCU Auto završio na krovu, mladići pokušavaju da ga okrenu nasred puta (VIDEO)
+-  Watch Paula Abdul Lose It Over a ‘Celebrity Wheel of Fortune’ Puzzle
+-  Driver to spend decades in jail after fatal crash
+-  Driver to spend decades in jail after fatal crash
+-  Driver to spend decades in jail after fatal crash
