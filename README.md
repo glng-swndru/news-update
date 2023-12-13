@@ -1,51 +1,51 @@
 # Latest News
--  Yahudi kökenli ABD'li Senatörden Biden'a çağrı: İsrail'e 10,1 milyar dolarlık askeri yardımdan vazgeç
--  Loewe Launches Micro Multi.amp That Delivers 1,200 Watts Of Power
--  ברק בכר "גאה בשחקנים", עומרי גלזר צפוי לסיים כשיאן ההצלות
--  Galatasaray'a 20 milyon euro'luk kötü haber! Transfer planları suya düştü
--  Fedeindustria entregaron propuestas al Gobierno para el desarrollo del Esequibo
--  The Perfect Bottle To Give As A $50 Holiday Gift (For Each Type Of Spirit)
--  Anzeige – Ihr Mülheimer Bäcker: Mehr als nur Brot und Brötchen: Willkommen bei Ihrer Stadtbäckerei Hemmerle
--  Anzeige – Autohaus B&B: Sensationeller Neuzugang: Der SsangYong Torres erobert die Straßen
--  Dólar fecha em queda de quase 1% ante real após Fed projetar cortes de juros em 2024
--  [美, 기준금리 5.25∼5.50% 동결…내년 말 금리 4.6% 전망(종합)
--  [내년 美 금리인하 시그널에 다우지수 장중 사상최고치 돌파
--  Luis Silva cantó mientras esperaba en una cola para surtir gasolina en Barinitas
--  فوائد مذهلة.. أعشاب لا يخلو منها منزلك في الشتاء
--  Oyo Sports Writers Investiture Olumide Eso SWAN Patron
--  "الأحوال المدنية" تحصد 3 جوائز في ملتقى أبشر 2023 .. تعرف عليها
--  Freilaufende Katzen gefährden die Artenvielfalt
--  Marian Mouriño, primera presidenta en la historia del Celta
--  Hasiči aktuálne zasahujú pri dopravnej nehode autobusu a auta v Prešove
--  Clement dice que respetan al Betis, pero que llegan "con ambición y sin nada que perder"
--  The Fed funds futures market is now pricing in 144 bps in cuts next year
--  Tems Faces Death Threats Over Pregnancy Rumors, Denies Ever Meeting Future
--  Powell subraya con cautela que los tipos de interés pueden haber llegado al máximo en EEUU
--  El BCRA compró USD 282 millones en el mercado, el monto más alto desde julio
--  Regional Victorians feel vulnerable due to rising crime, low police numbers
--  Extra protection for patients with new national standards for cosmetic surgery operators
--  Tesla recalls more than 2 million vehicles across US following investigation into flawed Autopilot system
--  Global leaders reach deal to 'transition away from fossil fuels' after marathon negotiations at COP28
--  Lisa Wilkinson to give evidence today in Bruce Lehrmann's defamation action against her
--  Cybercriminals using small businesses to test stolen credit cards in 'BIN attacks'
--  Crece la cooperación entre Rusia y Bolivia: firmaron un acuerdo para la explotación de litio en el país sudamericano
--  GUIA DE COMPRAS
--  Judge pauses Trump’s Jan. 6 case amid appeal to toss it
--  UOL NEWS
--  Oliver Sonne y los jugadores que convocó Juan Reynoso y no debutaron mientras estuvo al mando de la selección peruana
--  La Casa Blanca matiza a Biden y evita hablar de "bombardeos indiscriminados" en Gaza
--  Ibaka: "El Madrid es el mejor equipo de Europa, juega un gran baloncesto"
--  Thompsonas atmetė „Warriors“ kontrakto pasiūlymą
--  Koji automobili se najviše kvare?
--  OM appeals against lack of extra jail time for Utrecht tram shooter's crimes in prison
--  High Court orders demolition of Gulshan Shopping Centre within 30 days
--  Champions League: Holders Man City end group stage with 100% record
--  لحظات الرعب المؤلمة.. سائحة توثق مشهدا لقصف غزة من سماء مصر (فيديو)
--  Njurunda tog hem segern mot AIK Härnösand – William Häglund matchvinnare
--  DHB Pokal: VfL Gummersbach gewinnt das Achtelfinale gegen Ligakonkurrent Göppingen
--  Award-Winning Writer Timinipre Ovuru Empowering Authors, Brands through Speechwriting, Publishing
--  Transfer: Osimhen to sign new Napoli deal with €130m release clause
--  Royals: DIESE Weihnachtskarten bringen Herzen zum Schmelzen – „Sie sind so groß geworden“
--  الخارجية الأمريكية توجه رسالة لإسرائيل بشأن الحرب في غزةاليوم الأربعاء، 13 ديسمبر 2023 07:38 مـ
--  مقتل 7 من المحتجزين المدنيين لدى حماس بقصف مخيم جباليا الأربعاء، 1 نوفمبر 2023 11:16 صـ
--  انفجارات صاروخية كبيرة تهز تل أبيب الثلاثاء، 31 أكتوبر 2023 08:44 مـ
+-  В Турции заявили об «исключительной возможности» для мира между Баку и Ереваном
+-  Eyes turn to possible spring election as N.B. legislature rises for the winter
+-  Paracétamol, morphine... Contre les pénuries, l'Europe publie sa première liste de médicaments vitaux
+-  Irina Shayk feiert Tochter Leas Film- und Red-Carpet-Debüt!
+-  [尹 "반도체, 한-네 협력 상징…신규 원전 사업 협력 지원"
+-  [美, 이스라엘 터널 침수작전 겨냥 “어떤 전술이든 국제법 지켜야”
+-  New Tauranga aquatic centre: $122m upgrade includes three hydroslides
+-  Iz Južne Koreje poručuju: Sjeverna Koreja ima dva izbora - mir ili uništenje
+-  ‘We snappen heel goed dat mensen concretere bewijzen willen zien van engagement ’
+-  EU committed to ending human trafficking in Nigeria – Official
+-  KoSSev: CIK primio odvojena zahteva tri predsednika skupština opština na severu Kosova
+-  Powell sygnalizuje zakończenie podwyżek stóp przez Fed zostawiając sobie furtkę
+-  Komisarz Hahn: KE znajdzie sposób, by udostępnić Polsce 111 mld EUR z funduszy unijnych
+-  Sport24: мошенники пытались вымогать деньги у ветеранов российского футбола
+-  Japonya'da maymun çiçeği virüsünden ilk ölüm kayıtlara geçti
+-  Rohtak News: अभी तक नहीं आई 403 लाइट, गलियों में रहता अंधेरा
+-  China risks falling into a vicious cycle of deflation and debt, Morgan Stanley economist says
+-  Judge in Trump election case pauses court deadlines as appeal is heard on presidential immunity
+-  La Epic Games Store regalará más de 15 juegos, empezando por la colección de ‘Destiny 2’
+-  ‘Captain America: Brave New World’ Hires Scribe Matthew Orton; Additional Shooting Planned For Mid 2024
+-  Lucknow News: परीक्षा से रोकने पर छात्रों ने शुरू की भूख हड़ताल
+-  Ivana Nadal enciende las redes con una microbikini y deja un profundo mensaje
+-  Tiniest free-floating brown dwarf identified by NASA’s Webb
+-  Nacho average liquor: Doritos unveils cheese-flavoured distilled spirit
+-  Nakon ucjene: EU odobrava Mađarskoj 10 milijardi eura
+-  Andra raka för Rekord mot Halmstad
+-  Aaj Ka Mithun Tarot Card: मिथुन राशि वालों को मिल सकती है बड़ी जिम्मेदारी, बढ़ेगी पद प्रतिष्ठा
+-  En plenas fechas decembrinas bajan hasta 30% ventas por cierre de vialidades en la CDMX
+-  «Παρακαλούσε να βγάλουμε την φωτοβολίδα» περιγράφει ο διμοιρίτης του 31χρονου αστυνομικού
+-  Epic Games won its antitrust battle with Google. But what comes next?
+-  ऑटो चलाने की इच्छुक महिलाओं को निशुल्क प्रशिक्षण देगा प्रशासन : डीसी
+-  "Novi momentum da se CG vrati na put pristupanja EU"
+-  Moradabad News: रामपुर में मेंथा के दो कारोबारियों की टैक्स चोरी पकड़ी गई
+-  Фед даде сигнал за край на лихвените повишения и очаква по-ниски лихви през 2024 г.
+-  Taylor Bright Joins Thruline Entertainment As Talent Manager
+-  Eastlink is offering savings on Samsung devices ahead of Boxing Day
+-  Critics Choice Awards im Februar: "Barbie" schreddert bisherigen Nominierungsrekord
+-  اسعار الصرف وبيع العملات الاجنبية مسـاء الاربعاء بالعاصمة عدن
+-  Järkyttävä lastensuojelu­ilmoitus aiheutti perheenäidille suunnatonta kärsimystä – Ilmoittaja tuomittiin
+-  Brightonilla on paikka ostaa espanjalaispelaaja ale-hintaan
+-  ARALIK ENFLASYON RAKAMLARI NE ZAMAN AÇIKLANACAK? Aralık enflasyon rakamları ne zaman açıklanacak?
+-  Песков: Россия продолжает усилия по эвакуации граждан из Газы
+-  Порту - Шахтар 2:1. ОНЛАЙН
+-  How To Find Roller Shells in LEGO Fortnite
+-  El PSOE acusa a un eurodiputado del PP de llamar "hijos de puta" a quienes aplaudían a Sánchez
+-  Moradabad News: नहीं शुरू हुआ पुलिया निर्माण, लोनिवि और ट्रैफिक पुलिस के बीच हुई नोंकझोक
+-  El PSOE acusa a un eurodiputado del PP de llamar "hijos de puta" a quienes aplaudían a Sánchez
+-  Hamas Siyasi Büro Başkanı Heniyye: Hamas'ın olmadığı her türlü senaryo hayaldir
+-  GVARDIOLA NAPUSTIO KONFERENCIJU ZA MEDIJE: Jedno pitanje novinara izbacilo ga je iz takta!
+-  SKN St. Pölten holt mit 0:0 gegen Slavia ersten CL-Punkt
