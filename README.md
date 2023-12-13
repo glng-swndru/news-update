@@ -1,11 +1,51 @@
 # Latest News
--  בקיבוץ ניר יצחק הודיעו: טל חיימי, שהוגדר כחטוף, נרצח ב-7 באוקטובר
--  ארה"ב השהתה עסקת רובים עם ישראל על רקע דאגות בעניין אלימות מצד מתנחלים נגד פלסטינים
--  Donegal organisation awarded under Community Services Programme
--  Rıza Çalımbay'dan kadro dışı açıklaması! ''Herkes saygı göstermeli''
--  Devo, Madness, Descendents, Billy Bragg and more for Punk Rock Bowling 2024 line-up
--  COP28: Deal agreed to transition away from fossil fuels
--  Pitate se zbog čega ste na Zemlji? Evo koja je svrha svakog znaka Zodijaka
--  ‘Barbie’ breaks Critics Choice Award nominations record
--  الحكومة تصادق على قانون لتحديد هوية المشتركين في الاتصالات (البيان)
--  Leonardo DiCaprio conferma: è al lavoro su un nuovo progetto. Sarà il film di Quentin Tarantino?
+-  KWK 8: This is what Aditya finds most attractive about rumoured gf Ananya Panday
+-  맨시티 상대로 황인범만은 포기하지 않았다[UCL]
+-  'LAD 오타니-SD 김하성-SF 이정후-WS준우승 애리조나', 역대급 NL 서부 온다
+-  Justiça condena réu pela morte do cinegrafista Santiago a 12 anos de prisão
+-  Dow jumps more than 400 points, heads to record after Fed leaves rates unchanged
+-  Nordic countries promise Zelenskiy support for Ukraine
+-  Uno a uno del Barcelona ante el Amberes: valoración y comentarios
+-  City beat Red Star Belgrade 3-2 to finish group stage with perfect six wins
+-  New details emerge from heated Juwan Howard incident centered around his son Jace
+-  Starbucks'a silahlı saldırı!
+-  En qué estados sí y en cuáles no puedes nacionalizar un auto chocolate en México, y dónde están los módulos para el trámite
+-  Песков: Путин часто жертвует сном ради рабочей программы
+-  Atlético de Madrid - Lazio, en directo | El partido de la Champions League en vivo
+-  16 Directors Pick 2023’s Best Films: Alfonso Cuarón on ‘Flower Moon,’ Olivia Wilde on ‘Fair Play’ and More
+-  Chihuahuense muestra su talento en la Compañía Nacional de Ópera
+-  Ataque en NCG es un mensaje a alcaldes y funcionarios: Maru
+-  Continuará Israel guerra 'hasta eliminar a Hamás'
+-  Nominees for Destructoid’s Best Xbox game of 2023
+-  Песков заявил, что Киев прекрасно знает, какие красные линии РФ он переступил
+-  مدرب فالينسيا يتنفس الصعداء بعودة املاح
+-  "L’immobilisme, ce n’est pas ma façon d’être": de surveillante à proviseure d'un lycée, le beau parcours de Denise Aguero
+-  Poslanci potrdili zakon o preoblikovanju Vzajemne, zavarovancem 120 evrov
+-  VELIKI INTERVJU S ALEKSANDROM ŠAPIĆEM &quot;Nije lako menjati grad i lomiti navike, ali ja sam izvan zone komfora&quot;
+-  Wie Erdoğans Türkei von der Krise der Globalisierung profitieren will
+-  Paraíso Invernal y Día de Incursiones de Wyrdeer en Pokémon Go: Shiny, bonos y más
+-  Премьер Дагестана обнародовал планы на строительство новой школы
+-  As Media Reckons With AI Giants, Another Major Publisher Takes the Money
+-  PONOSAN SAM NA MOMKE Bahar ne očajava posle poraza Zvezde
+-  GURU Organic Energy Launches Its Fruit Punch in the US on Amazon.com
+-  Песков: график Путина во время избирательной кампании будет насыщен общением с людьми
+-  City pobjedom ispratio Zvezdu iz Europe, Leipzig slavio kod kuće
+-  'He is a nightmare': Tottenham coach states £35m Liverpool player is just ‘quite frightening’
+-  Poliisi antoi tietä jalankulkijalle, viereinen taksi ei – kortti hyllylle
+-  Fed redo för nästa fas efter duvaktigt räntebesked
+-  Around the grounds Sunbury and the Macedon Ranges
+-  Gazze Kasabı Netanyahu dünyayı hiçe saydı: Gazze'ye saldırıya devam edeceğiz
+-  L’addio alla vecchia caldaia conviene: bonus 2024 per case green e sostenibili
+-  Şırnak'ta polis alarma geçti: Kur'an-ı Kerim'i yırtıp küfretti halk ayaklandı
+-  Матей Казийски с 13 точки, Милано с лесна победа над ПАОК за Купата на CEV
+-  World News | New York Removes Medical Debt from Credit Reports
+-  Netflix, 2024’te kütüphanesine katacağı oyunları açıkladı!
+-  City 3 attı, 3 kazandı
+-  Australian sheep and cattle markets finally rally after dismal year
+-  Are Bayern Munich’s bosses unable to see Thomas Tuchel is seeking to get rid of all the team’s leaders?
+-  Το όνειρο του Ζακ Έφρον που έγινε πραγματικότητα - Απέκτησε αστέρι στο «Walk of Fame» του Χόλιγουντ
+-  Zakaz dla Deloitte. Takiej sytuacji w historii polskiego audytu jeszcze nie było
+-  «Βρήκα το τριών μηνών μωρό μου στην κούνια νεκρό»! Συγκλονίζει η σεφ Νίκη Μερκούρη
+-  Stream It Or Skip It: ‘Holiday In The Vineyards’ on Netflix, A Cute Rom-Com About a Rich Guy Who Finds Love At The Winery He’s Been Sent To Take Over
+-  Di Hadapan Mahasiswa, Mahfud MD: Saudara Bisa Pilih Siapa Saja, Yang Penting Tidak Dalam Ancaman
+-  Dos heridos deja operativo de captura contra integrantes del Tren de Aragua
