@@ -1,51 +1,51 @@
 # Latest News
--  Тульская область вошла в топ-10 регионов с ростом налога с зарплат
--  В Сочи обновят 200 тысяч квадратных метров асфальта
--  프리모아, PMO∙FIP 서비스 론칭 … IT 기술파트너 도약 박차
--  농협 임직원, 소액기부캠페인 모금액 1500만원 전달
--  নির্বাচন কমিশন জনগণের ভোটাধিকারের বিরুদ্ধে অবস্থান নিতে চায়: ১২ দলীয় জোট
--  ২৪ ঘণ্টায় ঢাকাসহ সারাদেশে আরও পাঁচ গাড়িতে আগুন
--  হাইকোর্টে ৯ অবকাশকালীন বেঞ্চ গঠন
--  ব্রিটিশ পার্লামেন্টে বিতর্কিত ‘রুয়ান্ডা প্ল্যান’ পাস
--  গাজীপুরে ট্রেন দুর্ঘটনায় তিন তদন্ত কমিটি গঠন
--  জাতীয় পার্টির নির্বাচনে আসা নিয়ে সংশয় থাকতে পারে: ওবায়দুল কাদের
--  সরেজমিন শ্যামবাজার: পাইকারিতে পেঁয়াজের দাম কমলেও প্রভাব নেই খুচরা বাজারে
--  বিজয়ের সূর্য, প্রজন্মের মুষ্ঠিবদ্ধ হাত
--  সিলেট ও বরিশালের কমিশনারসহ পুলিশের ৪ কর্মকর্তার রদবদল
--  জাতীয় নির্বাচন: চতুর্থ দিনের প্রথমার্ধে প্রার্থিতা ফিরে পেলেন ২৬ জন
--  নৌকায় ভোট না দিলে কেন্দ্রে আসতে নিষেধ করেছেন ইউপি চেয়ারম্যান
--  খুলনার পাইকগাছা আদালত কক্ষে আগুন
--  কিশোর বয়সেই অ্যাটর্নি!
--  গাজীপুরের রেললাইন কাটা নির্বাচনবিরোধী ষড়যন্ত্র ও নাশকতা: ওবায়দুল কাদের
--  Korea faces backlash for toughening rules on refugees
--  Mohegan Inspire aims to become Korea's largest entertainment resort leveraging K-pop's global popularity
--  God of War Ragnarök: Valhalla-DLC und Update 5.01 stehen zum Download bereit
--  Warum sprach Jamie Lynn Spears so offen über Britney im TV?
--  Situação de seca fraca aumentou em novembro na região Sul
--  Gubaš: Miting opozicije podsetio na stare dobre devedesete
--  Умер звезда "Доктора Хауса": последние фото Андре Брауэра
--  Apple enhances ecosystem with latest beta updates
--  [신제품] 롯데칠성음료·대상 청정원·더본코리아 외
--  Krankenkasse beklagt sorglosen Umgang mit Schmerzmitteln
--  Söder: AfD nicht verbieten, aber als gesichert rechtsextrem einstufen
--  Zwei Tote und drei Schwerverletzte nach Wohnhausbrand in Offenbach
--  Hilfe für Katze Mimi - Vereine unterstützen bei Kosten für Tierarzt
--  Gaza : L’ONU Réclame un Cessez-le-feu Humanitaire Face à une Situation Catastrophique
--  Điện hóa xe: Cần hỗ trợ giá điện cho trạm sạc
--  Yılan hikayesine dönen İnciraltı yeniden askıda!
--  Радио Китай: Как Китай пробива опитите за "сдържане" с добросъседство и взаимноизгодни проекти
--  Самир Багиров кардинально изменил внешность
--  [상보] COP28, 화석연료 ‘전환’ 촉구 합의 타결
--  VIDEO: Bihar LJP leader’s ‘objectionable’ dance moves on Bhojpuri songs caught on cam
--  Kickoff | Downs star man the best to ever play in the PSL?
--  김소현 경주시의원 "공공도서관 아동 성교육 도서 관리" 촉구
--  [인사] 경북대
--  김하성이 추천했던 '옵트아웃'…이정후로선 '꿩 먹고 알 먹고'
--  프로야구 두산, 음주운전 적발 숨긴 포수 박유연 방출
--  Расписание вестибюлей станции «Зенит» изменится с 15 декабря
--  Россиянам рассказали, как общаться с мошенниками
--  শুক্রবার রিজার্ভে যোগ হবে আইএমএফের ঋণের দ্বিতীয় কিস্তি
--  Chủ tịch nước Võ Văn Thưởng hội kiến Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình
--  Ten Hag sack? Manchester United need to ‘take the f***ing hit’
--  Тяжелые бои на украинском фронте
--  России наука не нужна
+-  [가평군, ‘지방도 364호선 가평-현리 도로개설 사업’ 본격 재추진
+-  [김기현, 국민의힘 대표직 사퇴 “모든 책임과 비판 저의 몫”
+-  [뷰런, 美 CES서 ‘차세대 운전보조 시스템’ 첫 공개
+-  [고양특례시·국립건강보험 일산병원, 업무협약 체결
+-  [“엄마아빠 일터, 함께 둘러보고 체험해 봐요”
+-  [“군인은 3000원 더 비싸요” 무한리필 고깃집, 손님차별 메뉴판 ‘논란’
+-  [위기 때마다 등판하는 구원투수…'유리절벽'에 선 여성 CEO들
+-  Why Vijay Thalapathy's Leo Is A Better Watch Than Ranbir Kapoor's Animal
+-  [의학칼럼] 의학 유전학-5
+-  영주농기센터, 올해 생산 봄감자 보급종 춘기분 신청 접수
+-  영주 우박피해 농가 경영난 해소 '숨통'
+-  [한방칼럼] 겨울철에 특히 좋은 수정과의 효능
+-  [삼촌설] 맛의 방주 울릉도
+-  신순식 구미발전연구소 대표, 국민의힘 구미을 예비후보 등록
+-  Winter Assembly Session : आरोग्य विभागाच्या कारभारावरून सत्ताधारी आणि विरोधकांमध्ये जुंपली
+-  Prince William and Kate Middleton are not happy about the Xmas card photoshop gossip
+-  Open AI to Host Developer Meet At Bengaluru In January
+-  Nhịn hắt hơi khi lái xe, người đàn ông bị xé rách khí quản: Nhà khoa học chỉ ra 'điều nguy hiểm'
+-  Þetta hafði Nostradamus að segja um árið 2024
+-  제주대 의대, 인턴 자리 부족...의사들 수도권 이탈 가중
+-  Bắc Ninh hợp tác đào tạo lĩnh vực logistics
+-  이관섭 대통령실 정책실장, 감귤 경매 현장 참관
+-  LIX: Thông báo ngày ĐKCC tạm ứng cổ tức năm 2023 bằng tiền
+-  OIL chủ động, sẵn sàng đáp ứng nguồn cung xăng dầu trong cao điểm thị trường
+-  VDP: Thông báo ngày ĐKCC tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
+-  PDR: Thông báo về việc giao dịch cổ phiếu thay đổi đăng ký niêm yết
+-  AGR: CBTT Trích lục Nghị quyết HĐQT về điều chỉnh KHKD năm 2023
+-  EIB: CBTT Nghị quyết HĐQT thông qua thay đổi địa điểm PGD Long Xuyên
+-  CHP: Thông báo ngày ĐKCC tạm ứng cổ tức năm 2023 bằng tiền
+-  Sử dụng margin thế nào để nhà đầu tư không 'cháy tài khoản'?
+-  La calima se asienta en Canarias: mantienen la prealerta por posible empeoramiento
+-  Во хрватско училиште ученици користеле дрога на час, полицијата ги привела
+-  أول "خوذة لقراءة الأفكار" في العالم!
+-  Donald Tusk als neuer polnischer Premier vereidigt
+-  Elfogadták a törvényt, eltörlik a munkaköri kötelező orvosi alkalmassági vizsgálatot
+-  9 مئی کے 18 اشتہاریوں کے شناختی کارڈ بلاک کرنے کا فیصلہ
+-  Ekonomi bayangan: Berapa banyak ketirisan dihadapi kerajaan?
+-  На Украине священнику выписали повестку из-за слов «раб Божий»
+-  Tesla unveils 3rd generation humanoid robot Optimus–Gen 2
+-  Know More About ‘Bleph’ Surgery That Actor Amanda Bynes Got Done
+-  سميحة أيوب تعلن انضمامها لمواقع التواصل الاجتماعي
+-  خريطة الأمطار.. تعرف على حالة الطقس حتى يوم الاثنين المقبل
+-  كفر الزيات.. إعلان نتائج الفرز الأولية لانتخابات الرئاسة 2024
+-  نتائج الفرز الأولية في اللجنة العامة بمركز السنطة بالغربية
+-  السيسي على 59 ألفا و73 صوتا.. النتائج الأولية في أبو صوير بالإسماعيلية
+-  بدء تسليم شقق سكن مصر والإسكان المتميز.. اليوم
+-  "السلاح السري".. لعلاج مرض الزهايمر
+-  أدوية التخسيس الجديدة.. حلا سريعًا أم فخًا لزيادة الوزن؟
+-  Limerick GAA stalwart appointed to high profile Croke Park committee
+-  Singapore bids farewell to first locally born panda before return to China
