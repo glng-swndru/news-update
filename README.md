@@ -1,11 +1,11 @@
 # Latest News
--  Why Invest In Multi-asset Allocation Fund
--  Rekabet Kurumu’ndan Meta’ya soruşturma
--  Avukatları 'Dilan Polat'ın ruh hali iyi değil' diyerek açıkladı: Sürekli ağlıyor
--  Beşiktaş, Avrupa'da 242. maçına çıkacak
--  Kamu bankası personelinden 100 milyon dolarlık vurgun
--  Ankara kulisi! Erdoğan kapıları kapatıp Ankara teşkilatına sordu: Mansur Yavaş'ın karşısına kim aday olsun?
--  Fon vurgunu şikayetçilerinin başvurusuna mahkemeden ret
--  MHP lideri Devlet Bahçeli'den milletvekiline özel hediye
--  Konyalı tekvandocu altın madalya istiyor
--  Doğanhisarspor Süper Lig’e çıktı
+-  לראשונה מאז הקטיעה: אביה של בריטני ספירס נצפה על כסא גלגלים
+-  Служба связи Таджикистана и Хуавэй Таджикистан подписали меморандум о сотрудничестве
+-  النادي الصفاقسي يخسر خدمات نجمه في مواجهة الترجي
+-  Viðræðurnar ganga mjög vel
+-  Jakob Frímann vill senda Alþingi í ítarlega naflaskoðun á nýju ári
+-  Grosse promo sur un tapis de course Xiaomi à moins de 250€ chez GeekBuying !
+-  Nicolas Sarkozy soutient la marocanité du Sahara
+-  Valioliiga teki merkittävän päätöksen siirtosummien suhteen
+-  Ukrainalainen olympiamitalisti kritisoi kovin sanoin KOK:n venäläispäätöstä – ”Yli 400 urheilijaa on kuollut”
+-  Global Affairs to relaunch two key language trainings, but only if it has the money to do so
