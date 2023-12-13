@@ -1,11 +1,11 @@
 # Latest News
--  Manchester Unitedille lisää lunta tupaan - taas kaksi pelaajaa sairastuvalle
--  AHL-valmentajan törkykommentti toi pitkän toimitsijakiellon
--  S’pore teen, 14, admits to impregnating girl, 15, instigating her to bury stillborn
--  Novi repertoar bioskopa Cineplexx Big Fashion
--  Elindult a Pioneers of Pagonia, a The Settlers fejlesztőinek új címe
--  TPHCM: Người đi xe đạp tử vong sau va chạm với mô tô phân khối lớn
--  Khu chợ đêm siêu nổi tiếng tại Thái Lan bất ngờ xảy ra cháy lớn, dân mạng và du khách khắp nơi đều lo lắng
--  Vẻ xinh xắn như búp bê của nữ sinh trung học 16 tuổi dễ thương nhất Nhật Bản
--  Mua bán 3 thiếu nữ để cung cấp cho quán karaoke
--  Bắt nam cán bộ xách 1 bánh heroin, 10 kg thuốc phiện
+-  Soccerladuma | OPINION: Johnson The Key To Helping Chiefs Management
+-  Soccerladuma | Inside Chiefs: Fleurs, Dolly & Others
+-  Hububat Sonuç Sektör Bildirgesi yayımlandı
+-  Konya'da uyuşturucu ticareti yapan kişinin yakalanma anı güvenlik kamerasına yansıdı
+-  Konya'da sobadan sızan karbonmonoksit gazından zehirlenen kadın toprağa verildi
+-  ‘Göller Ekspresi’ İzmir ile Isparta arasında gündüz seferlerine başlıyor
+-  Kazan dairesinde mahsur kalan yaban keçisini binadakiler kurtardı
+-  Ankaragücü açıkladı: Adı geçen şahıslar personelimiz değil
+-  Εγγυημένα 5 εκατ. ευρώ από το Πρωτοχρονιάτικο Λαχείο στο φινάλε του 2023
+-  Hamsi kayganası nasıl yapılır? Hamsi kayganası tarifi için malzemeler neler?
