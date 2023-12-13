@@ -1,11 +1,11 @@
 # Latest News
--  Praktična žena na godišnjicu braka pokazala muža: "Oprostiće mi jer mora"
--  외국인 투자자 등록제 31년 만에 폐지…“국내 투자 접근성 제고”
--  미·유럽 성탄절 테러 경계령…“20대 미만 ‘외로운 늑대’ 주의”
--  국힘 ‘1호 영입인재’ 이수정, 수원정 출마…“미성년 등 약자 대변할 것”
--  은행 가계 대출 또 사상 최대치…주담대는 5조원 넘게 늘어
--  제주항공, 삼원가든과 협업 기내식 신메뉴 2종 출시
--  서장훈 "온라인에 나랑 어떻게 사느냐는 반응 많아…"('고딩엄빠4')
--  한화 건설부문, 2023 동반성장지수 '최우수 기업' 선정
--  ‘이재, 곧 죽습니다’ 박소담·서인국→이재욱, 대세 배우들이 전할 '삶과 죽음'(종합)[스한:현장]
--  '뉴진스 소속사' 어도어 민희진 대표, 대통령표창 수상…K-팝 위상 빛내다
+-  Eierkonsentrasjonen i avismarkedet flatet ut i 2022
+-  VSN: Tài liệu họp Đại hội đồng cổ đông
+-  Đưa vào khai thác hai dự án quốc lộ 1 hơn 3.400 tỷ đồng qua các tỉnh Tây Nam Bộ
+-  Юридическият съветник на посолството на САЩ у нас говори за корупцията във Варна
+-  ADB podnosi prognozy dla rozwijających się gospodarek Azji
+-  أرباح الريال من دوري الأبطال
+-  Зимна традиция - 14 морски автори с годишна изложба във Варна
+-  Dutch parliament committed to keep supporting Ukraine after PVV election win
+-  İbrahim Güneş yazdı: Yavaş CHP'yi sabote mi etti?
+-  Bakanlığın motosiklet uygulamasına uymayan işletmelere ceza yağdı
