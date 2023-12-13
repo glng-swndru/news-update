@@ -1,11 +1,11 @@
 # Latest News
--  Draymond Green expulsé pour avoir mis une beigne à Jusuf Nurkic, nouvelle suspension à venir ?
--  Reisewarnungen aktuell: Für diese Länder gibt es Hinweise vom Auswärtigen Amt – 13.12.2023
--  S. Korea pushing to require shrinkflation signs on products for downsizing
--  تحقيق قضائي إسرائيلي باستشهاد أسير تعرض للتعذيب
--  بدء تأثر الأردن بالمـنـخـفـض الجـوي
--  أكثر من 35 إصابة بحادث تدهور حافلة على طريق سلحوب
--  تطورات الحرب على غزة لليوم الـ68
--  مصر: ممارسات إسرائيل تؤكد نيتها تهجير الفلسطينيين خارج أراضيهم
--  中, 韓·日 등 14개국 비자발급 수수료 인하…“제2의 코로나 쇼크 우려”
--  Hampir 30 Tahun Bekerja di Museum, Begini Perjuangan Ni Luh Putu Chandra Dewi
+-  Argentina to devalue peso, slash energy subsidies to fix economic crisis
+-  UK's Sunak sees off revolt to win vote on Rwanda migrant plan
+-  Vietnam boosts China ties as 'bamboo diplomacy' follows US upgrade
+-  Money supply up for 5th month in October amid tightening policy: BOK
+-  Korea, Netherlands to codify 'semiconductor alliance' in summit document
+-  Kakao nominates female CEO
+-  Aquariums to be banned from buying cetaceans for display
+-  Defense chief warns N. Korea of 'hell of destruction' in event of reckless acts
+-  US-sanctioned Korean national under probe by Korean authorities: Seoul official
+-  Байден Киевга 200 млн доллар ёрдам кўрсатишни маъқуллади.
