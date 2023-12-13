@@ -1,11 +1,11 @@
 # Latest News
--  Аль-Иттихад – Окленд Сити – 3:0. Как забил Бензема. Видео голов и обзор
--  श्रीराम सुगर मिल्स सर्वपक्षीय बैठक निष्कर्षविहीन: उद्योगी र कृषक आ–आफ्नै अडानमा
--  कुइने ठूलोखोला आयोजनाको मुख्य सुरुङ छिचोलियो
--  अभियान टिप्स : कार्डविना एटीएमबाट कसरी पैसा निकाल्ने ?
--  “간곡히 호소” 조희연 교육감이 1인 시위 나선 까닭은
--  মানিকগঞ্জ পাক হানাদার মুক্ত দিবস আজ
--  शेखर कोइराला समूहको बैठक बस्दै
--  स्तनपान कक्षविहीन छन् पालिका
--  Wellmania ranked most popular Australian show on Netflix, True Spirit most watched movie
--  DOMS Industries IPO garners ₹537.7 crore from anchor investors ahead of the issue opening
+-  تحذير عاجل.. أمطار متوسطة إلى غزيرة على مكة والشمالية وهذه المناطق
+-  بالتفاصيل.. مسودة نظام إجراءات التراخيص البلدية
+-  Luka Doncic et les Mavs font régner leur loi face aux Lakers (127-125)
+-  'Hộp đen' về OpenAI: Lấy danh startup, huy động vốn, được định giá 86 tỷ USD nhưng lại đăng ký là tổ chức phi lợi nhuận, báo cáo doanh thu… hơn 1 tỷ đồng trong năm 2022
+-  Taksi plakası yerinde sayıyor! Faize konsa 260 bin kiraya verilse 25 bin...
+-  網傳港鐵派「免費全年車票」 引人掃二維碼 港鐵：無推相關項目
+-  陳肇始鍾志平等4人 獲都大頒榮譽博士
+-  Kes bunuh Zayn Rayyan: Pencarian bukti memasuki hari ketujuh
+-  담양군, 전라남도 부패 방지 시책평가 ‘우수기관’ 선정
+-  김성 장흥군수, ‘2023 제4회 대한민국 공헌대상’ 수상
