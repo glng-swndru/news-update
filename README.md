@@ -1,51 +1,51 @@
 # Latest News
--  에픽 vs 구글 반독점금지 소송…에픽이 먼저 웃었다
--  México vio pasar a 1 millón de indocumentados
--  รอเก้อ!! ที่ประชุม กพช. จบเร็ว-ยกเลิกแถลงกะทันหัน ประเด็นลดค่าไฟงวดใหม่
--  В Польше депутат парламента устроил антисемитскую выходку с огнетушителем
--  Nuevos servicios en aplicación FEL
--  Uzmanı detayları paylaştı! Doğal besinlerle kolesterolü düşürmek mümkün...
--  Azoty Puławy z wizytą w Płocku, czyli rywal z najwyższej półki
--  दिल्ली में पिछले साल सड़क हादसों में 1,461 लोगों की मौत हो गई
--  Muxuu Ten Hag Ka Yidhi Guuldaradii Kooxdiisa Ka Soo Gaadhay Bayern Munich.
--  आर्थिक मन्दीको असर, पर्साका १७७ उद्योग बन्द
--  मुक्तिनाथ कृषि कम्पनीको आईपीओ सूचीकृत, कति पायो ओपन रेञ्ज ?
--  हिमालयन ८०–२० म्युचुअल फण्डको इकाई सूचीकृत
--  ‘แอฟ ทักษอร’ ลงรูปคู่ ‘นนกุล’ ลั่นแคปชั่นน่ารัก! ฝ่ายชายโผล่เมนต์ไวมาก
--  홍천군노인복지관 만원의 힘 후원 모임, 꿈 드림 장학사업 나눔 행사
--  12사단 전차대대 강원특별자치도혈액원에 헌혈증 200장 기증
--  네스프레소, 연말을 설레게 만들어 줄 ‘윈터 원더랜드’ 팝업 오픈
--  홍천군, 군인의 날 행사…민·군·관 화합 한마당
--  [마감시황] 코스피·코스닥, 美 12월 FOMC 경계감에 하락 마감
--  제343회 홍천군의회 임시회 제2차 본회의
--  춘천문화재단, 연말 콘서트 '2023 춘베리아 특급열차' 성료
--  '올리브영 어워즈&페스타', K뷰티 컨벤션 자리매김
--  송영길, 檢 구속영장 청구에 "영장 실질 심사 잘 준비"
--  Страна.ua: на Украине священнику выписали повестку из-за слов «раб Божий»
--  Ukraine’s top mobile operator hit by biggest cyberattack of war
--  Dėl perkelto mačo – įniršis Pasvalyje: „Po tokių sprendimų praeina noras dalyvauti LKL“
--  खुदरा मुद्रास्फीति बढ़कर तीन महीने के उच्चतम स्तर 5.55 प्रतिशत पर पहुंच गई
--  Öğrenciyi yaralayan okul müdürü hakkında karar
--  Redoblan capacidad de Inspección General de Trabajo
--  USA: Kein Anstieg bei Joe Bidens Beliebtheitswerten – trotz Wirtschaftsaufschwung
--  N1bn for trip: Stay in your office – Senate slams Trade Minister
--  Elizabeth Struhs: 14 co-accused to stand trial in July after girl allegedly left to die
--  Elizabeth Struhs: 14 co-accused to stand trial in July after girl allegedly left to die
--  '현역가왕' 방송 3회 만에 시청률 11.3%…전유진, 중간점수 '최고점'
--  유지태의 선한 영향력…'템플' 객석 100석 구매해 관객 초청
--  정해인, '갯마을 차차차' 작가·감독 손잡고 로코 도전..'엄마친구아들' 캐스팅
--  연말정산에 고향사랑기부제를 주목하는 이유
--  탄소의 가격은 얼마일까?
--  4·3평화재단 사태 계기 소통 더욱 강화돼야
--  पीएम मोदी एमपी-छत्तीसगढ़ में नई सरकार के शपथ ग्रहण समारोह में शामिल होंगे
--  Kreml zarobił ponad 2,5 mld USD na handlu afrykańskim złotem
--  Kogeneracja przedstawiła politykę dywidendy na lata 2023-2030
--  To warto wiedzieć dziś rano 13 XII 2023
--  בטלפונים החדשים של סמסונג, Galaxy A15/25, יש אי גם לכפתורים בצד
--  Halil Umut Meler taburcu oldu
--  Τζένιφερ Άνιστον για τον θάνατο του Μάθιου Πέρι: «Ήταν υγιής, εκείνο το πρωί είχαμε ανταλλάξει μηνύματα»
--  Detrás de la ventana
--  Crna Gora glasala za humanitarni prekid vatre u Gazi
--  Kickoff | Al Ahly chief: What I told Motsepe at CAF Awards
--  Family member, acquaintance the likely perpetrator in over half of child sex abuse cases
--  خضدار اور ملحقہ علاقوں میں زلزلے کے جھٹکے
+-  DIE HARKE fördert den Waldumbau im Rauhen Busch
+-  Sezonun ilk seferini yapan Turistik Doğu Ekspresi Kars'ta coşkuyla karşılandı
+-  Kataraktın tek tedavisi ameliyattır
+-  Adana'da dehşet! Eski eşini ‘otomobil devri’ tartışmasında yakarak öldürmüş
+-  Soğuktan korunmak için alınan içliklerde yüzde 75 yün oranına dikkat
+-  시프트업, 해외진출유공부문 문체부 장관표창 수상
+-  [타임라인] 승자의 저주...SM 인수부터 대표 교체까지 카카오 잔혹사
+-  Анализатори очакват съществен обрат на пазара на имоти през 2024 година
+-  Srikandi TASPEN Tanam 1.000 Pohon Trembesi & Cemara di Kupang NTT
+-  Istri-Anak Ikut Tewas, Guru SD di Malang Diduga Bunuh Diri karena Utang
+-  كيف عطلت روسيا الأسلحة الأمريكية الفائقة في سماء القرم؟!
+-  Sigma soars as investors rush for a piece of Chemist Warehouse
+-  Sigma soars as investors rush for a piece of Chemist Warehouse
+-  롯리단길서 전국 디저트 맛집 투어
+-  커피 황금비율 추출 … '얼죽아' 전용모드도
+-  뼈 형성·면역기능 강화 도와 성장기 어린이 '숨은 키' 자극
+-  장건강·멘탈케어 동시에 …'쉼'의 열풍 후끈
+-  “이젠 화장할 시간, 30초만에 매진”…전국 ‘코덕’ 다 몰렸다 [르포]
+-  انخفاض أسعار الذهب اليوم الأربعاء وعيار 21 يسجل 209 ريالات
+-  تفاصيل مدهشة.. ابتكار لامثيل له يقرأ الأفكار ويحولها إلى كلمات!
+-  أسعار العملات اليوم الأربعاء.. الإسترليني يسجل 4.71 ريال
+-  عاجل.. تعليق الدراسة في مدارس وجامعات 6 مناطق بالمملكة
+-  WhatsApp-Update verspricht schickeren Status – das ging vorher nur über Umwege
+-  Központi felvételi: ez volt tavaly a negyedikesek mumusfeladata magyarból
+-  UNO-Klimakonferenz ruft zur Abkehr von fossilen Energien auf
+-  MU di Liga Champions Selepas Sir Alex: Banyak Mentok di Fase Grup
+-  Участники COP28 утвердили итоговый документ с призывом к "переходу" от ископаемого топлива
+-  Britische Wirtschaft startet schwach ins Schlussquartal
+-  안성 광선초, 죽산면사무소에 김장김치 50통 기탁
+-  연천 궁평초교, 친환경 딸기 수확·잼 만들기 체험학습 운영
+-  안산시의회 예결특위, 신안산대내 공유재산 부지 구입 타당성 검증 현장활동
+-  안양대 뷰티메디컬디자인학과-키웰, 전문 인력 양성 업무협약
+-  안양시노사민정협, 5개기관별 ‘공동선언 이행상황 보고회’ 열어
+-  서과석 포천시의장, 경기북부시·군의장협서 ‘대진대 의과대학 신설 촉구 결의안’ 상정
+-  안양 안일초, 28일까지 즐거운 독서 ‘메리북 크리스마스!’ 진행
+-  안양 만안청소년관·만안청소년문화의집, 2023년 여가부 공모서 우수 프로그램 선정
+-  가평 행복마을 관리소 6곳, 생활 편의 1672건 등 다양한 서비스 3713건 제공
+-  테코야, 2024 프랑스 파리 선수촌 공기 청정 책임사(社)로 선정
+-  장명희 안양시의원 발의 ‘맨발 걷기 활성화 지원에 관한 조례’ 상임위 통과
+-  이우일 민주당 용인갑 지역위원장 직대 총선 출사표
+-  경기도교육청, 유·초·특수학교 교사 1차 합격자 발표
+-  굿타임포키즈 샴푸 할인 이벤트 진행
+-  Arktis hatte wärmsten Sommer seit Beginn der Messungen
+-  Praznična je tudi avtobusna postaja
+-  Nikad hrabrija izjava! Zelenski pred Bajdenom otkrio šokantne stvari! "Dve trećine..."
+-  Nhịn hắt hơi khi lái xe, người đàn ông bị xé rách khí quản: Nhà khoa học chỉ ra 'điều nguy hiểm'
+-  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
+-  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
+-  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
+-  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
