@@ -1,51 +1,51 @@
 # Latest News
+-  ▶️ Venezuela’da katliam gibi kaza! 16 araç küle döndü: Çok sayıda ölü ve yaralı var
+-  Rama, bisedë me Mitsotakis në Bruksel
+-  Retired Pittsburg detective charged with attempting to kill Pleasant Hill cops
+-  Poor diet quality during adolescence is linked to serious health risks
+-  Sport teki ison ryöstön Helsingissä - Risto Dufva huokaisi syvään helpotuksesta Nordiksella: "Selvittiin"
+-  Venezuela'da zincirleme kaza: Çok sayıda ölü var
+-  Uhkaaja hivuttautui askeleen lähemmäs Helsinki Seagullsia
+-  Marula Mining zegt dat partners in Tanzania nieuwe vergunningen hebben aangevraagd
+-  Marula Mining: Tansania-Partner beantragen neue Lizenzen
+-  Frank Zander optimistisch im Krankenhaus: „Berliner Urgestein geht so schnell nicht kaputt“
+-  DEDA MRAZ OVDE IMA NEOBIČAN PREVOZ Nesvakidašnja dekoracija u Arilju, umesto jelke u centru okićena sekvoja
+-  רובי קין: "יצרנו סביבה בה אנחנו לא מתלוננים. ננסה לנצח"
+-  משפחתו של ג'ושוע לואיטו מולל התבשרה כי נרצח וגופתו נחטפה לעזה
+-  Vikings linebacker Ivan Pace Jr. named NFC Defensive Player of the Week
+-  Jovem morta junto da filha de 1 ano é 15ª vítima de feminicídio na região de Campinas em 2023
+-  Turkish ref punched by club president in horror scenes breaks silence as he finally leaves hospital after vile attack
+-  Nunca pensou que existia um melhor lado para colocar a máquina da loiça
+-  CBN Reassures Public Of Adequate Cash Supply
+-  Race-by-race preview and tips for Thursday meeting at Kembla Grange
+-  류영준→남궁훈→홍은택→정신아…2년간 카카오에 무슨 일이?
+-  Citibank NZ warned over money laundering rules
+-  Nijerya'nın Plateau eyaletinde 13 silahlı çete üyesi öldürüldü
+-  Sage Unternehmenssekretärin verkauft Aktien im Wert von GBP716.400
+-  Secretaresse van Sage verkoopt aandelen ter waarde van GBP716.400
+-  Adana'da kavgada bıçakla yaralanan genç hastanede öldü
+-  Trump Secures Another GOP Senate Endorsement for 2024 Comeback Bid
+-  MÄRKTE USA/Taubenhafte Fed treibt Dow auf Allzeithoch
+-  [1보] 국제유가 상승…WTI 1.25%↑
+-  Tatvan'da 18 yaşındaki genç intihar etti
+-  Aaj Ka Mesh Tarot Card: मेष राशि वालों को परीक्षा में मिलेगी सफलता, आज मिल सकती है अच्छी खबर
+-  Major incident declared as huge ‘explosion’ on South Wales industrial estate sends flames billowing into sky
+-  LIVE MN - Newcastle-Milan (1-0): rossoneri rimasti negli spogliatoi...
+-  Dunedin contractor caught on CCTV not installing insulation
+-  Hanukkah menorah near Lake Merritt destroyed by vandals
+-  'We Have To Endure' - Argentines Stoic As Prices Skyrocket
+-  ‘Criticizing a judge is not illegal’: Charges dropped against San Mateo County man accused of threatening jurist
+-  Feliz desencalla la Penya en un nou final d’infart (83-81)
+-  Снег и потепление придут в Карелию 14 декабря
+-  27 år gammal grav ska öppnas – för att undersöka faderskap
+-  Στη δίνη οικονομικού σκανδάλου το κυβερνών κόμμα στην Ιαπωνία - Σε παραίτηση οδηγούνται κορυφαία στελέχη
+-  Caldera Announces New RIP Software Version 17
 -  ‘Luke Cage’ Star Simone Missick Cast in David Oyelowo Dramedy ‘Government Cheese’ at Apple TV+ (EXCLUSIVE)
--  맨유, 텐 하흐 경질 가능성↑... ‘황희찬 스승’, 강력한 후보로 급부상
--  Geminids meteor shower to peak across UK - here's how to watch it
--  British men first in the world to try new hormone-free male contraceptive pill
--  Kanye West's wife Bianca Censori flashes rare smile as she gets lap-dance from male friend
--  Stacey Solomon's best Christmas crafts and gifts that won't break the bank
--  Erik ten Hag told he's made £400m mess as Man Utd chiefs tot up transfer mistakes
--  Man dies after being hit by car that was being followed by police in Nottingham city centre
--  Meteor shower tonight - the best time to spot stunning Geminids light show in night sky
--  Massive explosion decimates Pennsylvania home – leaving one man hospitalised with horrific burns after he miraculously survived blast
--  Eurovision Song Contest in crisis over Israel's inclusion as fans and artists plan boycott
--  Ryanair launches flash sale with winter sun flights from £15
--  Gethin Jones opens up about depression, therapy and Katherine Jenkins break-up
--  James Bulger's mum says Jon Venables parole denial 'best thing to happen in 30 years'
--  BBC EastEnders' Sharon threatens Kat as she uncovers her secret - but fans 'rumble' Christmas twist
--  Nicola Bulley police 'join forces with cops in search for missing mum Gaynor Lord'
--  Raphael Varane 'can speak to other clubs in three weeks' after Man Utd transfer decision
--  ضبط أحد أفراد تشكيل عصابي قام بسرقة مزرعة مواطن
--  Crystal language empowers AI to design novel materials with desired properties
--  Next-generation nanocatalysts to revolutionize active electron transfer
--  Çinliler bunu da yaptı! Elektrikli minibüs piyasanın altını üstüne getirecek... İç tasarımı da harika
--  Kızılcık Şerbeti'nin fragmanı değiştirildi! Pembe'nin kocasına söyledikleri gözleri yerinden çıkardı: Hevesini alsaydın...
--  Путин подведет итоги 2023 года со всей Россией
--  Kakve poslediće će parlamentarni izbori u Srbiji 17. decembra imati po regionalne odnose?
--  Jonas Brothers regresan a Colombia después de 13 años con un concierto en Bogotá
--  La red social X da fallos y no permite abrir enlaces externos a sus usuarios
--  Le PSG boucle un gros transfert... beaucoup trop tôt ?
--  Une légende de l'OL sort du silence, il jubile
--  Fiasco au PSG, le feuilleton Mbappé relancé ?
--  Une star claque la porte de l'OM, elle dit tout
--  Messi - PSG : Un problème est dénoncé avec Mbappé
--  Le PSG active un transfert inattendu
--  Mourinho interpelle un flop du PSG
--  Mbappé - Haaland : Cette annonce va faire paniquer le PSG
--  PSG : Le boss est clairement identifié
--  «Tout est clair», Mourinho prévient le PSG
--  Pogba peut lancer le mercato de l'OM
--  «Ils sont furieux», son transfert au PSG ne passe pas !
--  تطوير هلام يشفي الجروح بسرعة فائقة
--  Emily Ratajkowski shows off her legs in leather hot pants as she braves New York’s freezing temperatures
--  Yolun karşısına geçmek isterken minibüsün çarpmasıyla öldü
--  マクラーレン アンドレッティF1参入への反対は「提案の理解不足もある」
--  Yamuna Nagar News: महिला की रेलवे स्टेशन पर हुई डिलीवरी, मृत बच्ची को दिया जन्म
--  Velarde: Si El Niño no es fuerte, habría una recuperación importante en 2024
--  Machu Picchu: Venta de entradas 100% online arrancaría este 15 de diciembre
--  لجنة الأهلة.. الجمعة فاتح شهر جمادى الآخرة
--  Sve što trebate znati o isplati naknade za starije osobe: Evo kada kreće i tko ima pravo na naknadu
--  Virginia county approves data center project after 27-hour public hearing
--  Puerto Rico’s restaurant scene has never been better. Here’s why
--  Volunteering in the U.S. is on the decline, reports say
+-  MIND TECHNOLOGY, INC. REPORTS FISCAL 2024 THIRD QUARTER RESULTS
+-  Nine Strive funds will move primary listing from NYSE Arca, Inc. and NASDAQ Stock Market LLC to New York Stock Exchange
+-  GRUPA MLADIĆA PREVRĆE AUTO NASRED PUTA: Dramatičan snimak na Voždovcu nakon saobraćajne nesreće (VIDEO)
+-  Universal Technical Institute, Inc. announces Kevin Prehn as president of Concorde Career Colleges
+-  MAA Appoints Brad Hill to President and Chief Investment Officer
+-  Μητσοτάκης: Η υπόθεση Μπελέρη δεν είναι διμερές θέμα αλλά ζήτημα σεβασμού του κράτους Δικαίου
+-  Pareggia subito il PSG con Zaire-Emery: 1-1 a Dortmund
+-  El Niño: anticipan el momento de la “plenitud” de las lluvias y qué factor jugaría una mala pasada
