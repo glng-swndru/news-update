@@ -1,51 +1,11 @@
 # Latest News
--  동북아외교안보포럼, 강연회 개최…‘한미 핵협의그룹 방향성’ 논의
--  Maroc-Espagne : Albarès loue le partenariatmultidimensionnel
--  Phát huy các động lực để bứt phá trong tăng trưởng kinh tế
--  Зам.-кметът Милена Желева се срещна с директори и ръководства на културни институти в Стара Загора
--  Sharp increase in traffic accidents with fatalities, serious injuries
--  [“경옥고, 홍조완화·조골세포 활성 높여”
--  [임영웅 팬클럽, 서울대병원 넥슨어린이통합케어센터 후원
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  [김경일 파주시장 “교육정책 확대해 아이들과 부모가 행복한 교육도시 조성하겠다”
--  [김기흥 전 대통령실 부대변인, 국힘 인천 연수을 국회의원 예비후보 등록
--  García-Castellón remite por fin a la Sala los recursos del fiscal y de los imputados de ERC en Tsunami Democràtic
--  [용인특례시, 이천시와 반도체 산업 육성·지원 '맞손’
--  [지드래곤 '혐의없음' 불송치, 이선균 협박범은 '신원불명? 가상인물?'
--  [“태양전지 상용화 기대” 성균관대 김한기 교수, 세계 최초 페로브스카이트 태양전지 전용 투명 전극 기술 개발
--  [명지대, '2023 명지인의 밤' 행사 개최
--  [우크라 "개전 이후 러 전사자 34만명 이상"
--  Erling Haaland set to return to training ahead of Club World Cup
--  Treinador do Napoli após derrotar Braga: "Descansámos alguns atletas..."
--  Le Samsung Galaxy A54 n'en fait qu'à sa tête et fait chuter son prix
--  Hadise, başlattığı 'Bebe' polemiğini Turktime'ın sayesinde sona erdirdi!
--  ABD'den Türkiye'ye yaptırım! Blinken'den açıklama: Elimizdeki araçları kullanmaya devam edeceğiz
--  Süper Lig'in kaderi belli oluyor! Gözler TFF ve Kulüpler Birliği'nde
--  Natale 2023, il dono solidale che profuma di buono
--  Германия — Внимание! Опасные желейные медвежата с мелатонином
--  Детройт переміг Сент-Луїс, Тампа-Бей програла Ванкуверу: результати матчів НХЛ
--  Realitatea pieței imobiliare din România, în cădere liberă. Nu se mai vând apartamente, iar dezvoltatorii ”cochetează” cu insolvența
--  Fred Again and Cloudy Parallels Have “Song Of The Week”
--  Adres: Siirt! Aldıkları önlemlere rağmen camiye bir ayda 4’üncü kez hırsız girdi
--  80 yaş üstü her üç kişiden biri Alzheimer hastası
--  Ödüllendireceğini söylediği kız öğrencisine cinsel istismardan yargılanan öğretmenin 22 yıl hapsi istendi
--  Les mémoires d’un haut magistrat, Mabrouk Benmoussa
--  Burdur Gölü kenarına yine moloz ve atık döktüler
--  48 yüzen otel Antalya'da: 59 binden fazla turist geldi
--  Hüdayi Bilim ve Sanat Merkezi'nde değerler eğitiminden robotik kodlamaya birçok ders bir arada
--  Bakan Göktaş: Dizi yapımcılarıyla 'aile' gündemli toplantıda buluşacağız
--  Schweizer Wirtschaft wächst wohl weniger stark als angenommen
--  [포토] ‘데프트’ 김혁규, 주먹을 꽉 쥐고
--  Si spara con la pistola alla testa, 16enne in fin di vita in ospedale
--  В Тульской филармонии пройдет концерт мастеров игры на виолончели и фортепиано
--  UnHerd: Зеленский стал обузой для своих союзников на Западе
--  Rubiales: "Usaron lo de Jenni para desviar la atención de la amnistía"
--  Rubiales: "Usaron lo de Jenni para desviar la atención de la amnistía"
--  Frau in Dortmund getötet: Verdächtiger kannte sie gut
--  L’Algérie s’apprête à accueillir 400 enfants palestiniens blessés pour des soins
--  Pedidos de recuperação judicial explodem no Brasil
--  감정노동 시달리는 공무원 "업무 방해나 폭언 그냥 참는다"
--  대구시와 진흥원, 중국전담여행사 대상 대구관광 팸투어 진행
--  مذكرة تعاون بين "عمان العربية" ومجلس محافظة البلقاء اللامركزية
--  Мицкоски: Колку тие се по злобни во лагите, толку јас сум помотивиран да ги поразиме, смениме и да ја изградиме Македонија
+-  맨시티 찬밥 신세, 유벤투스 아닌 뉴캐슬행 가시화…‘임대 협상 시작’
+-  "Mevcut dünya düzeni insanlar için sürdürülemez"
+-  15 Temmuz Şehitler Köprüsü'nde 8 aracın karıştığı zincirleme kaza
+-  Platin Global 100 Ödülleri bu akşam sahiplerini buluyor!
+-  Kassam Tugayları, İsrail ordusunu tuzağa düşürdü! 5'i subay, 10 asker öldürüldü
+-  Can Atalay'ın ikinci bireysel başvurusu Anayasa Mahkemesi Genel Kurulu'na sevk edildi
+-  Katliama sessiz kaldılar! Dünya karşı çıktı, soykırım destekçileri 'devam' dedi
+-  Türkiye'de sadece Hatay'da yaşıyor! Koruma altında
+-  Pierluigi Collina'dan Halil Umut Meler'e destek
+-  Cumhur İttifakı yerelde işbirliği heyeti son toplantısını bu hafta yapacak
