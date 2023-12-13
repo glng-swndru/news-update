@@ -1,11 +1,11 @@
 # Latest News
--  Niemcy zwiększyły wyraźnie eksport do byłych republik radzieckich
--  Auchan odwoła się od decyzji UOKiK nakładającej ponad 87 mln zł kary
--  Minister Finansów: deficyt w przyszłorocznym budżecie inny niż we wrześniowym projekcie
--  Fitch podtrzymuje prognozę wzrostu PKB Polski
--  Ruotsalaismies kuollut Ukrainassa
--  BLOG/Fuest : Haushaltseinigung ist "Schritt in die richtige Richtung"
--  Ўзбекистонда Ҳонгконг гриппи тарқалгани ва у оддий, мавсумий грипп экани маълум қилинди.
--  La CNMC investiga a varias agencias de viajes por prácticas anticompetitivas
--  Big Bang Theory star Kate Micucci diagnosed with lung cancer, undergoes surgery
--  Trabzonspor'da gol yükünü Bakasetas ve Trezeguet çekiyor
+-  Manchester Unitedille lisää lunta tupaan - taas kaksi pelaajaa sairastuvalle
+-  AHL-valmentajan törkykommentti toi pitkän toimitsijakiellon
+-  S’pore teen, 14, admits to impregnating girl, 15, instigating her to bury stillborn
+-  Novi repertoar bioskopa Cineplexx Big Fashion
+-  Elindult a Pioneers of Pagonia, a The Settlers fejlesztőinek új címe
+-  TPHCM: Người đi xe đạp tử vong sau va chạm với mô tô phân khối lớn
+-  Khu chợ đêm siêu nổi tiếng tại Thái Lan bất ngờ xảy ra cháy lớn, dân mạng và du khách khắp nơi đều lo lắng
+-  Vẻ xinh xắn như búp bê của nữ sinh trung học 16 tuổi dễ thương nhất Nhật Bản
+-  Mua bán 3 thiếu nữ để cung cấp cho quán karaoke
+-  Bắt nam cán bộ xách 1 bánh heroin, 10 kg thuốc phiện
