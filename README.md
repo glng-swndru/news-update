@@ -1,51 +1,11 @@
 # Latest News
--  한-네덜란드, '반도체 동맹' 구축…외교·산업장관 대화체 신설
--  Biglietti Milan Roma: info e dettagli utili per l’acquisto
--  NYT: для Украины настало время критических испытаний
--  فحص الدم يقدر سرعة إصابتك بشيخوخة الأعضاء الداخلية
--  مفتاح وصولك للسعادة.. استراتيجيات عليك انتهاجها
--  ما هي فرص الحمل بتوأم؟
--  CARL ZEISS MEDITEC AG : Hauck & Aufhauser herhaalt koopadvies
--  Hauck Aufhäuser IB belässt Carl Zeiss Meditec auf 'Buy'
--  MB Başkanı Erkan, ihracatçılarla bir araya geldi
--  В движении «Образование для всех» назвали телефон на уроке отвлекающим фактором
--  ہمارے پیاروں کو مبینہ مقابلوں میں مارا جارہا ہے، عدالتوں میں صفائی کا موقع دیا جائے، لواحقین لاپتہ افراد
--  Abazović: Monstat uništio svu propagandu nove Vlade
--  Skandaliczny wybryk Brauna z gaśnicą. Lech Wałęsa dla „Wprost”: Są plusy dodatnie
--  Skandaliczny wybryk Brauna z gaśnicą. Lech Wałęsa dla „Wprost”: Są plusy dodatnie
--  Hagman: "Har byggt självförtroende"
--  Shubman Gill : अख्ख्या पाकिस्तानात एकट्या शुभमन गिलची हवा; बाबर आझम 'प्रिन्स'च्या मागं पुढं सुद्धा नाही!
--  Polis kesan barangan, objek bantu jejak pembunuh Zayn Rayyan
--  Fact Check : सलमान खान और मोहम्मद शमी के मुलाकात की यह फोटो 2019 की है
--  PISA台灣學生閱讀素養升5名！中央大學如何讓孩子棄抖音愛看書？
--  生成式AI不只幫了你我，還有駭客
--  (Видео) Пендаровски: Кај нас се говори со јазикот на корупцијата, дури четвртина од граѓаните подлегнале на притисок
--  上班疲倦、缺乏幹勁時，按壓這個「萬能穴位」恢復能量
--  Народную артистку РСФСР Лужину госпитализировали из-за нарушения ритма сердца
--  E akuzuan për komplot kundër qeverisë, drejtoresha e Miss Universe në Nikaragua jep dorëheqjen
--  Гладков: три человека пострадали при подрыве машины на мине около хутора Высокий
--  Fact Check: महुआ मोइत्रा का यह वीडियो उन्हें लोकसभा से निष्कासित किए जाने के बाद का नहीं है
--  الطقس مشمس ولكن إحذروا الصقيع
--  [尹대통령 "네덜란드와 반도체 동맹으로 세계최고 초격차"
--  [도기욱 경북도의원, 경북도 체육시설 안전관리체계 강화를 위한 조례 제정
--  [‘이것’하면, 뇌 쪼그라든다…‘치매’ 위험 높아져
--  [이수정 “‘암컷’이란 천대 없기를”…최강욱 ‘여성 비하’ 비튼 출사표
--  Zahl der Beschwerden über Post- und Paketunternehmen auch dieses Jahr hoch
--  COP28/Baerbock: Klimakonferenz besiegelt Ende des fossilen Zeitalters
--  Sutra u ponoć počinje izborna tišina
--  Akcija USKOK-a i policije: Uhitili više ljudi u Zagrebu i Karlovcu
--  Свиленски: Искаме изслушване на министъра на културата и на регионалното развитие заради Паметника на Съветската армия - Труд
--  El presidente del Partido Popular Europeo amenaza a Sánchez con una comisión de investigación en la Eurocámara
--  긴장 고조 속 '힘에 의한 평화'로…"도발에 적극 대응"
--  Leģendāra medus piparkūku recepte no “Zāļu sievas piezīmem”
--  Fact Check: 2024 लोकसभा चुनाव के कारण रद्द नहीं हुई राजस्थान और UP बोर्ड परीक्षाएं, वायरल दावा गलत
--  Kabar Baik, Thom Haye Ungkap Siap Bela Timnas Indonesia
--  ضبط مصنع خمور بمحافظة المهرة
--  Terima Aspirasi Masyarakat Riau, Anies Ingatkan Pentingnya Kemenangan di Pileg untuk Jalankan Perubahan
--  曝料OPPO Find X7系列将会搭载天玑和骁龙两种芯片
--  Welsh First Minister Mark Drakeford standing down
--  New CM In 3 States: पूर्व मुख्यमंत्रियों का क्या करती है BJP? राजस्थान से लेकर मध्य प्रदेश और कर्नाटक तक का जानें इतिहास
--  নির্বাচন কমিশন সরকারের বরকন্দাজে পরিণত হয়েছে: মান্না
--  긴장 감도는 내년 한반도…북, 한미 선거 앞두고 도발 가능성
--  Önce şehit törenine sonra HEDEP'in kapısına: CHP Genel Başkanı Özgür Özel'in ikiyüzlü tavrı bir kez daha belgelendi
--  Konya'daki DEAŞ operasyonunda 14 şüpheli yakalandı
+-  חידון הזרים: השחקן עם הכי הרבה הופעות בליגת העל מכל מדינה
+-  區議員有Say | 北區姚銘：人口激增 社區設施交通配套要升級
+-  بيان مهم لـ "التعاون الإسلامي" بشأن قرار المحكمة العليا الهندية تجاه كشمير
+-  التستر التجاري: لا يجوز منح غير السعودي أدوات التصرف المطلق في المنشأة
+-  ما الذي يكشفه التجشؤ عن حالتك الصحية؟
+-  ORACLE CORP : DZ Bank geeft koopadvies
+-  DZ Bank senkt fairen Wert für Oracle auf 120 Dollar - 'Kaufen'
+-  Lekár na urgente vyšetroval opitý, arogantné správanie a jeho alkoholom raziaci dych nahlásila pacientka
+-  Любимого депутата Жириновского исключили из ЛДПР
+-  Konteyner taşımacılığı başladı! İlk gemi yola çıktı
