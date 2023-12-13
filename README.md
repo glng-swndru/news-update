@@ -1,51 +1,51 @@
 # Latest News
--  Legia Warsaw gets $108,000 fine and 5-game away fans ban in Europe for violence at Aston Villa
--  Twitter Hasn't Been 'Enshittified.' It Always Sucked.
--  It's a 'silly notion' that Trump's Georgia case should pause for the election, Willis tells the AP
--  Love of anime inspires family-run Florida restaurant chain Soupa Saiyan
--  A rocky road to more educational equality in sub-Saharan Africa
--  The positions of stars on an ancient navigation device tell us when it was made
--  Advances in nanoscale carrier-based approaches to enhance efficacy of podophyllotoxin
--  Facing low pay, shortages and violence, nearly 60% of surveyed Colorado teachers consider leaving
--  These Scientists Successfully Tested a Robotic Third Arm
--  Delphine Böel, Illegitimate Belgian Princess, Demands Equal Treatment to Her Siblings
--  Θεσσαλονίκη: Φωτιά σε διαμέρισμα - Υλικές ζημιές
--  Researchers call for public inquiry into program to ensure Alberta oilsands cleanup
--  Firefighter dies as inferno razes 40 shops in Enugu
--  Пожар во бараката на Управата на Клиничкиот центар во Скопје
--  FOTO LRH priredio božićni domjenak u jedinstvenom ambijentu. Bio je to poseban doživljaj
--  LE TROMBINOSCOPE - Stanislas Guerini, envoyé spécial d'Emmanuel Macron en Argentine
--  Повече от дузина играчи на Ман Юнайтед пропускат гостуването на Ливърпул
--  Михаилоски од трбината „Повеќе за сите“ во Велес: Со мерките 105 илјади ученици добиваат 1.200 до 1.8000 денари месечно
--  Yhdysvaltojen keskuspankki Fed jätti ohjauskoron odotetusti rauhaan
--  న్యాయమైన డిమాండ్లు పరిష్కరించాలి
--  تعليق تشافي قبل مباراة أنتويرب
--  Newcastle Milan, problemi a Prime nel pre-partita: cosa è successo
--  అభివృద్ధిపై వైసీపీ వ్యాఖ్యలు హాస్యాస్పదం
--  السانت جيمس بارك جاهز لقمة نيوكاسل وميلان
--  80 دقيقة.. النجم الأحمر يحاول التعادل مع مانشستر سيتي
--  Özel-DEM Parti ziyareti: "İşbirliği teklifi yapılmadı, bölgelere göre değerlendirme yapılacak"
--  Najviše od 2008. godine: Cena ovog metala otišla u nebo
--  بايرن ميونيخ يُعلن غياب ثنائي الفريق بسبب الإصابة
--  Tulisa shows off huge new neck tattoo as she gets two new inkings
--  Recent home sales in Greater Boston (Dec. 12)
--  Na Hlavnom námestí v Rimavskej Sobote vykradli na poludnie zlatníctvo, polícia hľadá páchateľa
--  Morbihan : une camionnette couchée sur la RN 166 provoque des ralentissements importants
--  Motosserra de Milei provocará mais inflação, pobreza e recessão
--  Vì sao VFF không phạt ông Gong Oh-kyun?
--  Fed lascia tassi fermi, ma tre tagli nel 2024
--  News24 | Here are your Lotto and Lotto Plus results
--  「課長、部長、役員、社長…」出世レースを駆け上がる人かどうかを試す、たった3つの質問 - とにかく仕組み化
--  Bivša misica osvojila 20 ribica za svoju večeru: 'Fenomenalno!'
--  Algérie : La cheffe du Parti des Travailleurs attaque le Maroc et les Emirats
--  Český premiér Fiala pred summitom EÚ: Rokovania nebudú jednoduché
--  Πυρκαγιά σε αποθήκη στον Βοτανικό – Άνδρας ανασύρθηκε νεκρός
--  تقارير.. برشلونة يراقب غرينوود
--  Shashi Tharoor to inaugurate INTUC convention in Kozhikode
--  Potential gun threat at Penticton mall a false alarm
--  Home Ministry sets up committee to probe Parliament security breach
--  MCD to launch ‘tree census’, employ AI to map green cover
--  Draymond Green y Nikola Jokic, expulsados; los Mavericks frenan a los Lakers
--  Съставите на Роял Антверп и Барселона
--  [ŽT] „Davėm p****ms p***! O, granata! Visiškai nauja! Ačiū“ (Video)
--  "C'est une insulte profondément sexiste":La députée écologiste Cyrielle Chatelain réagit à l'insulte que le député Renaissance Jean-René Cazeneuve aurait proférée à son encontre à l'Assemblée
+-  Aristotelous vows unyielding pursuit for truth about missing persons
+-  Patrick Mahomes claims Chiefs teammate Kadarius Toney's reaction to his mistake will 'define him' - after the wide receiver's winning touchdown was overturned as he was offside
+-  황인범, 맨시티 상대로 챔피언스리그 데뷔골 작렬!
+-  La inflación de noviembre fue del 12,8 por ciento y acumula 160,9 en los últimos 12 meses
+-  Swamp People: Serpent Invasion Season 2 Streaming: Watch & Stream Online via Hulu
+-  RB Leipzig News: Leipzig beendet Champions-League-Gruppenphase mit Sieg
+-  "Уикеда" с предколеден концерт
+-  Endangered Species Act at 50: Almost 60% of Claimed Species ‘Recoveries’ Were Falsely Listed, Western Caucus Foundation Report Shows
+-  AM Best Revises Outlooks to Positive for Definity Financial Corporation and Its Subsidiary
+-  BC Nokia karisti kotipelikammoaan Korihait-voitolla
+-  Business Leaders Shouldn’t Comment On Every Hot Issue, Former CEO Says
+-  Нурсултон Назарбоев дунё ядровий фалокатга ҳар қачонгидан ҳам яқинроқ эканини айтди .
+-  Аргентина ўз валютасини икки баробар девалвация қилди .
+-  Cobalt, Damas ва Labо учун шартномалар декабрнинг иккинчи ярмидан бошлаб берилади.
+-  Нетаняҳуга танбеҳ берган Байден, россияликларни ҳайдаётган Туркия, АҚШдан қуруқ қайтаётган Зеленский — кун дайжести.
+-  Swamp People: Serpent Invasion Season 1 Streaming: Watch & Stream Online via Hulu
+-  Argentina November Inflation Quickened Before Milei Devaluation
+-  RB Leipzig News: Forsbergs Abschieds-Tor: Leipzig besiegt Bern
+-  EN VIVO: Celtic vs. Feyenoord, sigue a Santiago Giménez en la Champions League
+-  Altında Fed tepkisi! 2000 dolar aşıldı
+-  مستشفى إسرائيلي: لدينا 23 جنديا جريحا
+-  غالانت: هناك أثمان لهذه الحرب
+-  هاغاري يبرر ارتفاع عدد الجنود القتلى بغزة
+-  Fogkefével akarta leszúrni az ügyészt egy férfi
+-  Yaz saati uygulaması geri gelecek mi. Açıklama Bakan Bayraktar'dan geldi
+-  Emil Forsberg måltorka över – hjälte mot Young Boys
+-  Fed dle očekávání drží sazby, v příštím roce očekává snížení sazeb o 75 bps
+-  Над 1% от БВП на България през 2022 г. се дължи на парични преводи от емигранти
+-  İBB 229 milyon 900 bin euro borçlanacak
+-  Naucalpan anuncia perforación de más pozos debido a la sequía
+-  The technical levels in play for the major currency pairs after the FOMC decision
+-  Bakan Bayraktar açıkladı: Kalıcı yaz saati uygulaması bitiyor mu?
+-  FED, 2023 yılının son faiz kararını açıkladı!
+-  Little Rock DEA, other agencies arrest 18 in connection with rural pharmacy pill burglaries
+-  اتفاقية بين «العدل» ومكتب الأمم المتحدة لمكافحة المخدرات والجريمة لتعزيز الشراكة المستقبلية
+-  الإبراهيم: تطوير التشريعات الرامية لضمان الالتزام بتطبيق اتفاقية الأمم المتحدة لمكافحة الفساد
+-  الربيعان: استكمال برنامج الحكومة يتطلب هياكل قادرة على نشر ثقافة مؤسسية
+-  المطيري: المسجلون في منصة الحج 45 ألفاً
+-  ديوان حقوق الإنسان: دمج ذوي الإعاقة بسوق العمل
+-  مصادر لـ «الأنباء»: «الأشغال» بصدد توقيع عقد صيانة مركز الفحوصات وضبط الجودة
+-  مصادر لـ «الأنباء»: اتفاق كويتي ـ فلبيني على آلية عمل لإعادة استقدام العمالة
+-  «تكنولوجيا المعلومات»: 3 مشروعات قيد الدراسة مع «غوغل كلاود»
+-  «فجر الشرق 5» نجح في التعامل مع المتفجرات والإخلاء الطبي
+-  6.2 ملايين دينار لتنفيذ مشروع مراقبة الطقس في المطار
+-  الكويت تشارك في اجتماع تنسيقي عربي للإعداد للدورة الوزارية للمنتدى العربي ـ الروسي
+-  المشاركون في مؤتمر قوات الشرطة والدرك: آليات «الحرس» تضاهي المستخدمة في أرقى المؤسسات العسكرية
+-  سالم الشبلي قدم أوراق اعتماده سفيراً مفوضاً لدى جنوب أفريقيا
+-  معرفي بحث تعزيز التعاون الثنائي مع مسؤولة في «خارجية لوكسمبورغ»
+-  نائب وزير الخارجية بحث التعاون مع بعثة الأمم المتحدة لمساعدة العراق «يونامي»
+-  السفارة السعودية أقامت ديوانيتها الديبلوماسية الـ 4
