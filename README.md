@@ -1,51 +1,11 @@
 # Latest News
--  Brindará IMPAS servicios en periodo vacacional
--  News24 | Rebels in eastern DRC agree to ceasefire, raise odds of credible December elections
--  Star Ocean: The Second Story R
--  سماء مصر على موعد مع 120 شهابا في الساعة.. استمتعوا بأفضل زخات العام
--  Saldırıya uğrayan hakem Halil Umut Meler, İzmir'deki evine ulaştı duygu dolu anlar yaşandı!
--  Francia Márquez pide ayuda mundial para la crisis de refugiados que vive el país
--  تشييع جنازة زوج وزيرة الثقافة السابقة بحضور شخصيات عامة (صور)
--  التعليم العالي: إدراج 18 جامعة مصرية بتصنف كيو أس العالمي للاستدامة لعام 2024
--  وزير الزراعة يبحث الاستعدادات القائمة لزراعة العروة الشتوية
--  وزيرة البيئة تهنىء الإمارات على نجاح مؤتمر المناخ (COP28)
--  القسام وسرايا القدس ينصبون كمينًا مشتركًا لجنود إسرائيليين
--  التحقق في مشاجرة بوسي وطليقها داخل فندق بالتجمع الخامس
--  أحمد عيسى: مصر تضع صناعة السياحة على رأس أولوياتها
--  الجيش الإسرائيلي: معارك قوية مع المقاومة مستمرة في الشجاعية
--  "الصحفيين" تنظم وقفة احتجاجية تنديدًا بالعدوان على غزة ورفض مخطط التهجير
--  "تخيلت هدفي في الهلال قبل المباراة".. كهربا يتحدث عن طموح الأهلي في مونديال الأندية
--  سقوط 8 شهداء برصاص الاحتلال الإسرائيلي في جنين
--  "أنا مندهش".. كريستيانو رونالدو ينشر هذه الصورة ويعلق
--  Summoning Hope: Journeying from Foreign Shores to the Hospital – A Prayerful Tale
--  Bride’s Emotional Gratitude to Step-Mother on Wedding Day Melts Hearts Online
--  Polish kickboxer Wrzosek possibly targeted in failed assassination attempt in Breda
--  هيئة النزاهة: نسبة الفساد في القطاع العام متدنية
--  اسعار الذهب في الاردن تواصل الانخفاض
--  الإحصاءات: 46.283 صافي فرص العمل خلال النصف الثاني من 2022
--  بدء تقديم طلبات الاستفادة من بعثات ومنح وقروض جامعية داخلية الأحد
--  الفايز يعزي عشائر المومني
--  الصفدي يلتقي نظيره الايراني
--  Aksaray’da muhtelif suçlara karışan 205 kişi hakkında adli işlem yapıldı, 13 kişi tutuklandı
--  Tüm çiftçileri ilgilendiriyor: Son başvuru tarihi 2 Ocak!
--  E-Home Household Services Holdings Limited Signs New Property Cleaning Contracts with a Total Value of Over RMB 19 Million in the 4th Quarter of 2023
--  Senmiao Technology Announces Ride-Hailing Platform Operating Metrics for November 2023
--  WAT Medical Joins World's Largest Boat Show
--  JSAUX KICK-STARTS IT'S CHRISTMAS EVENT
--  Avature Secures Three Golds in Brandon Hall's Excellence in Technology Awards
--  Immunocan Provides Update on Business Operations, Highlighting Launch of New Gene-edited Mice Generating Fully Human Heavy-chain-only Antibodies and Advances in Partner Pipeline
--  Loyalty Juggernaut (LJI) Recognized in the 2023 Gartner® Market Guide for Loyalty Program Vendors
--  COP28: Angel Yeast's Environmentally Friendly Yeast Protein Empowers Sustainability Development
--  iClick Interactive Asia Group Limited Reports 2023 Half-Year Unaudited Financial Results
--  Slovensku hrozia stámiliónové sankcie, ak v rozpočte nebudú zohľadnené výdavkové limity
--  Płyta „z pozdrowieniami od Ziobry”. Tak Bodnar został przywitany w Ministerstwie Sprawiedliwości
--  Płyta „z pozdrowieniami od Ziobry”. Tak Bodnar został przywitany w Ministerstwie Sprawiedliwości
--  Former Tennis Star David Nalbandian Faces Legal Action Over Hidden Camera Accusations
--  Novia de “Maldito Cris habría contratado a 5 sicarios para asesinar a jefe de la Policía de Perú: ‘Morocota’, ‘Pirueta’, ‘Catarro’ y ‘Cinco Minutos’
--  U sudaru lakše povrijeđene dvije osobe
--  Antalya'da öğrenciyi merdivenden ittiği öne sürülen okul müdürüne 9 bin lira ceza
--  İBB seçim öncesi 150 milyon avro dış borçlanmaya gidiyor
--  Bakan Yumaklı duyurdu: Öğretmenlere 'su verimliliği' eğitimi
--  İngiltere'nin İsrail'e silah satışları Yüksek Mahkemeye taşındı
--  SON DAKİKA HABERİ | Kafes-18 operasyonunda flaş gelişme! Yeşilçam’ın tanınmış ismine uzandı: Gözaltına alındı
--  Tiefgründiges vor Weihnachten
+-  PDN Integrasikan Semua Data
+-  विदेश की खबरें | पाकिस्तान : नौ मई की हिंसा मामले में आम नागरिकों के खिलाफ सैन्य अदालतों में मुकदमा चलाने की मंजूरी
+-  जरुरी जानकारी | गाय गोबर खरीद योजना के तहत ब्लॉक स्तर पर क्लस्टर स्थापित किए जाएंगे: कृषि मंत्री
+-  Crecimiento de Inditex desacelera en tercer trimestre, aunque ganancias baten récord
+-  Parkeermeters Gowthorpeplein Barneveld werken weer, zegt de beheerder
+-  Tesla rolls out software fix after regulators recall more than 2 million cars over Autopilot defect
+-  Najčešće zablude o konzumiranju voća
+-  الملك يعود بعد زيارة عمل إلى مدريد وجنيف
+-  देश की खबरें | विपक्षी दलों ने सर्वदलीय बैठक में संसद की सुरक्षा को लेकर चिंता जताई, जांच की मांग की
+-  देश की खबरें | सुरक्षा में चूक लोकतंत्र के मंदिर के लिए एक गंभीर खतरा : स्टालिन
