@@ -1,51 +1,11 @@
 # Latest News
--  Exum career-night against Lakers
--  Exum career-night against Lakers
--  No hay tiempo que perder: FPF y Universitario a contrarreloj por Fossati
--  Türk Telekom'dan 23 sayı fark!
--  Fırtına gibi geliyor! Bayraktar TB3'ten heyecanlandıran gelişme: 12'de 12 yaptı
--  İsrail-ABD gerilimi yükseliyor: 20 bin silahın satışı ertelendi
--  Lady Gaga Unveils New Children’s Book for Her Littlest Monsters
--  Dina Boluarte critica a la Fiscalía por liberación de presunto miembro de “Los Hijos de Dios”
--  Rekord DJIA oraz tegoroczne szczyty S&P500 i Nasdaq dzięki Fed
--  Minister: 800 plus zostanie wprowadzone od 1 stycznia 2024 r.
--  VIDEO Muškarac spasio djevojku i psa iz gorućeg stana: "Zgrabio sam je i držao svom snagom"
--  Wednesday’s Child 11-year-old Ahmadrick dreams of being spoiled by a forever family
--  KiwiRail may still build ferries despite funding cut
--  Dinamarca se cita con Noruega y Suecia con Francia en las semifinales del Mundial
--  Nuevo método para crear baterías para carros más sostenibles, se hacen con madera
--  Rainibogi snatches medals and breaks records
--  Snapchat+: Everything you need to know – December 2023
--  Arranca en Álvaro Obregón operativo "Aliados de Navidad"
--  Argentina digiere primeras medidas de "shock" de Milei con salto de precios
--  Por esta razón es posible que cierren 12 delegaciones de la Cruz Roja Mexicana en Edomex
--  Se siente temblor de magnitud 4.2 en la ciudad de Caldera
--  Lotto: Mann knackt gleich zwei Mal den Mega-Jackpot – von dieser Summe kann Lotto-König Chico nur träumen
--  49ers’ re-signed CB Verrett: ‘My heart was always wanting to be here’
--  Venda de carros novos cai 3% em Mato Grosso e de moto segue em alta
--  Politécnico de Setúbal leva a academia ao mundo empresarial angolano
--  Vitályos Eszter: különleges tárlat a Magyar menyasszony
--  Pela primeira vez, primeira instância da justiça de MT atingiu meta 4 do CNJ
--  Comissão Judiciária de Adoção se reúne para balanço de 2023
--  Comissão de Saúde promove debate sobre trombose e embolia
--  Comissão mista aprova criação do Ministério do Empreendedorismo, da Microempresa e da Empresa de Pequeno Porte
--  Knicks bring back Taj Gibson to help fill Mitchell Robinson void
--  Chanceler brasileiro diz que reunião entre Venezuela e Guiana é um passo para o entendimento
--  Relator estende benefícios para investimentos no comércio de bens e serviços
--  Prefeitura repagina uniformes da rede municipal de ensino para ano letivo de 2024
--  Sinfra atualiza portaria e flexibiliza circulação de veículos pesados até o Complexo da Salgadeira; entenda
--  Vídeo: Deputado da Turquia sofre ataque cardíaco ao criticar Israel
--  New Zealand Q3 GDP -0.3% q/q (vs. 0.2% expected)
--  FC Schalke 04: Neues Gesicht im Training – seinen Namen sollten sich die Fans merken
--  Route Matadi-Kinshasa : la société civile recommande la création d’une déviation pour faciliter le trafic
--  Толкова много виновни за детето в кокошарника и никой не поема отговорността
--  9 sertai program JENESYS
--  UOL PRIME
--  ¡Buscando la clasificación! Gol de Zaire-Emery para el 1-1 de PSG vs. Dortmund
--  الحكم يلغي هدف التقدم لمبابي في شباك دورتموند
--  Luann de Lesseps hints she broke sobriety on ‘RHONY Legacy’ trip: ‘I like to have fun on occasion’
--  DRAMATIČNA SCENA NA VOŽDOVCU Auto završio na krovu, mladići pokušavaju da ga okrenu nasred puta (VIDEO)
--  Watch Paula Abdul Lose It Over a ‘Celebrity Wheel of Fortune’ Puzzle
--  Driver to spend decades in jail after fatal crash
--  Driver to spend decades in jail after fatal crash
--  Driver to spend decades in jail after fatal crash
+-  أونروا : استشهاد 228 فلسطينيا بقصف لأماكن إيواء تابعة لنا
+-  السيتي يختتم دور المجموعات في دوري الابطال بالعلامة الكاملة - فيديو
+-  Don't expect cost savings from precision medicine, says new research
+-  Moedas: dólar cai forte ante pares globais, após Powell admitir que Fed começou a discutir cortes de juros
+-  ارتفاع أسعار واردات أوروبا من الغاز الطبيعي المسال
+-  1:1 gegen Paris Saint-Germain: Dortmund erreicht als Gruppensieger das Achtelfinale
+-  باريس يتعادل مع دورتموند ويتأهل معه لدور الـ16 في دوري الأبطال
+-  Mental health and addiction now second largest cause of disease in Australia
+-  Η Πόρτο πήρε τον «τελικό» και πέταξε στους «16»
+-  Researcher says men should abstain from drinking at least three months prior to conceiving
