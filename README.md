@@ -1,11 +1,51 @@
 # Latest News
--  Surkea uutinen - Krista Pärmäkoski sivuun maailmancupista
--  Chelsea could SELL Conor Gallagher despite rejecting £40m transfer bids and leaving star surprised with captaincy
--  Estas son las cinco noticias del día en Cantabria
--  Državni tajnik Hrvoje Bujanović imenovan za vršitelja dužnosti ministra gospodarstva
--  "الثروة الزراعية" توقع برنامج تعاون مع بنك التنمية لتمويل المشاريع السمكية
--  زهرة الجود
--  تنفيذ مسح لمخزون ثروة الصفيلح الطبيعي بالوسطى وظفار
--  Madhya Pradesh CM Mohan Yadav`s BIG Action: Bans Meat Sales, Use Of Loudspeakers Beyond Permissible Limit
--  ¡Plato favorito de Nadia Ferreira entre los mejores del mundo!
--  Chân dùng chồng doanh nhân khiến MC Vân Hugo nhận lời yêu chỉ sau 10 ngày, ở nhà biết cắm hoa, nấu cơm cho vợ con
+-  তিন প্রকল্পে ব্যয় বৃদ্ধির প্রস্তাবে অনুমোদন
+-  "الجائزة الثانية على التوالي".. هاري ماجواير أفضل لاعب في الدوري الإنجليزي من رابطة المحترفين
+-  جوارديولا ضمن القائمة النهائية لأفضل مدرب في العالم 2023
+-  'Masti Begins': Akshay Kumar’s 'Welcome To The Jungle' Goes on Floors
+-  زيادة جديدة.. سعر الذهب اليوم الأربعاء في مصر يقترب من رقمه القياسي
+-  Κολοσσός: Επέστρεψε ο Παπαδάκης
+-  KSI calls Jake Paul fight a “waste” of time as ticket sales fall flat
+-  VVGZ JO17-1 kampioen in hoofdklasse
+-  ChatGPT in Jahresliste wichtiger Forschender aufgenommen
+-  COP 28: Delta Gov Oborevwori woos investors in green energy, carbon free technology
+-  مهرجان محمد بن زايد لسباقات الهجن ينطلق 25 ديسمبر
+-  Discover Bank Review 2023
+-  DEBUNKED: Brock Purdy for MVP | The Play Sheet
+-  Vučić: Nigde nisam imao doček kao ovde u Novom Sadu
+-  Skurrile Szene nach Haushaltsfrieden: Scholz und Habeck lassen verdutzten Lindner zurück
+-  Another step closer to giving men the Pill! British men to trial hormone-free contraceptive that experts hope will make pregnancy prevention a 'shared responsibility'
+-  Nijer'deki Fransız askerleri 22 Aralık'a kadar ülkeden çekilecek
+-  Les feux du carrefour Salik vont faire peau neuve contre… quelques embarras de circulation : “les règles de priorité sont applicables”
+-  Investigators from John Byrd's Lab at University of Cincinnati Presented Non-Clinical Summary Data for The Best-in-Class Selective BCL2 Inhibitor Clinical Candidate Developed by Eilean Therapeutics in Collaboration with ChemDiv
+-  Trois retraits immédiats du permis de conduire en 10 jours à Marche-en-Famenne
+-  Hamas killers are carrying children and using them as literal human shields during gun battles, Israel claims, as IDF release footage of terrorists beating Gaza civilians and stealing aid
+-  Miguel Cabrera fue ovacionado en el estadio Monumental (Video)
+-  Ngarukiye found guilty of trying to kill Montreal police officer Sanjay Vig
+-  نقابة الصّحفيين: تواصل نسق الاعتداءات على الصّحفيين
+-  المقاومة توقع 15 جندياً إسرائيلياً في كمين جديد
+-  เจ็ตสกีไทยมีลุ้นแชมป์โลก เปิดศึก’วอเตอร์เจ็ต เวิลด์ ซีรีส์ 2023’วันแรก
+-  DEAR JANE: I refuse to lie to my kids about Santa and NEVER buy them gifts at Christmas - my family says I'm EVIL but I just want my children to grow up in the real world
+-  DEAR JANE: I refuse to lie to my kids about Santa and NEVER buy them gifts at Christmas - my family says I'm EVIL but I just want my children to grow up in the real world
+-  «Ο μπ@στ@ρδ0$ μου έχει σκοτίσει τα @ρχ!δ!@» (vid)
+-  10 IDF soldiers killed in Gaza in one day as Israel hits 250 Hamas targets
+-  لاعبو برشلونة ممنوعون من الاستحمام
+-  Delincuentes roban mercadería valorizada en más de 1500 soles en tienda de Gamarra
+-  ‘Bigg Boss 17’: Munawar Faruqui is the first captain of the season
+-  Бензин в РФ за неделю подешевел на шесть копеек
+-  Oracle Announces Database@Azure Availability for East US Region
+-  Hydrogène vert: Où en est-on ? Les explications de Lotfi Brahim (Vidéo)
+-  UN-Votum mahnt Israel zu Waffenruhe
+-  Krankschreibung in der Kündigungsfrist provoziert Zweifel
+-  Marija i Danijel najbolji u ASCG u 2023.
+-  Hamas killers are carrying children and using them as literal human shields during gun battles, Israel claims, as IDF release footage of terrorists beating Gaza civilians and stealing aid
+-  Sentencian a cadena perpetua a sujeto que abusó de su prima menor de edad
+-  Рамзан Кадыров заявил, что любит жизнь и красивых женщин
+-  Bexheti:Finalizohet edhe një projekt i shumëkërkuar
+-  Яйца куриные за неделю подорожали на 4,6%
+-  Anzeige – Das Weihnachtsspiel: Weltklasse trifft Entertainment in Hamburg
+-  Tesla retiró 2 millones de vehículos con “insuficientes” controles de seguridad de Autopilot
+-  Beloved The Beach Boys musician Jeffrey Foskett dies at age 67 after battle with thyroid cancer: Band's co-founder Brian Wilson confirms heartbreaking news
+-  Beloved The Beach Boys musician Jeffrey Foskett dies at age 67 after battle with thyroid cancer: Band's co-founder Brian Wilson confirms heartbreaking news
+-  Taylor Swift donó un millón de dólares para víctimas de tornados en Tennessee
+-  JAV AT sutinka svarstyti klausimą dėl aborto tablečių ribojimų
