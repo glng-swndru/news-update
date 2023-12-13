@@ -1,51 +1,51 @@
 # Latest News
--  তিন প্রকল্পে ব্যয় বৃদ্ধির প্রস্তাবে অনুমোদন
--  "الجائزة الثانية على التوالي".. هاري ماجواير أفضل لاعب في الدوري الإنجليزي من رابطة المحترفين
--  جوارديولا ضمن القائمة النهائية لأفضل مدرب في العالم 2023
--  'Masti Begins': Akshay Kumar’s 'Welcome To The Jungle' Goes on Floors
--  زيادة جديدة.. سعر الذهب اليوم الأربعاء في مصر يقترب من رقمه القياسي
--  Κολοσσός: Επέστρεψε ο Παπαδάκης
--  KSI calls Jake Paul fight a “waste” of time as ticket sales fall flat
--  VVGZ JO17-1 kampioen in hoofdklasse
--  ChatGPT in Jahresliste wichtiger Forschender aufgenommen
--  COP 28: Delta Gov Oborevwori woos investors in green energy, carbon free technology
--  مهرجان محمد بن زايد لسباقات الهجن ينطلق 25 ديسمبر
--  Discover Bank Review 2023
--  DEBUNKED: Brock Purdy for MVP | The Play Sheet
--  Vučić: Nigde nisam imao doček kao ovde u Novom Sadu
--  Skurrile Szene nach Haushaltsfrieden: Scholz und Habeck lassen verdutzten Lindner zurück
--  Another step closer to giving men the Pill! British men to trial hormone-free contraceptive that experts hope will make pregnancy prevention a 'shared responsibility'
--  Nijer'deki Fransız askerleri 22 Aralık'a kadar ülkeden çekilecek
--  Les feux du carrefour Salik vont faire peau neuve contre… quelques embarras de circulation : “les règles de priorité sont applicables”
--  Investigators from John Byrd's Lab at University of Cincinnati Presented Non-Clinical Summary Data for The Best-in-Class Selective BCL2 Inhibitor Clinical Candidate Developed by Eilean Therapeutics in Collaboration with ChemDiv
--  Trois retraits immédiats du permis de conduire en 10 jours à Marche-en-Famenne
--  Hamas killers are carrying children and using them as literal human shields during gun battles, Israel claims, as IDF release footage of terrorists beating Gaza civilians and stealing aid
--  Miguel Cabrera fue ovacionado en el estadio Monumental (Video)
--  Ngarukiye found guilty of trying to kill Montreal police officer Sanjay Vig
--  نقابة الصّحفيين: تواصل نسق الاعتداءات على الصّحفيين
--  المقاومة توقع 15 جندياً إسرائيلياً في كمين جديد
--  เจ็ตสกีไทยมีลุ้นแชมป์โลก เปิดศึก’วอเตอร์เจ็ต เวิลด์ ซีรีส์ 2023’วันแรก
--  DEAR JANE: I refuse to lie to my kids about Santa and NEVER buy them gifts at Christmas - my family says I'm EVIL but I just want my children to grow up in the real world
--  DEAR JANE: I refuse to lie to my kids about Santa and NEVER buy them gifts at Christmas - my family says I'm EVIL but I just want my children to grow up in the real world
--  «Ο μπ@στ@ρδ0$ μου έχει σκοτίσει τα @ρχ!δ!@» (vid)
--  10 IDF soldiers killed in Gaza in one day as Israel hits 250 Hamas targets
--  لاعبو برشلونة ممنوعون من الاستحمام
--  Delincuentes roban mercadería valorizada en más de 1500 soles en tienda de Gamarra
--  ‘Bigg Boss 17’: Munawar Faruqui is the first captain of the season
--  Бензин в РФ за неделю подешевел на шесть копеек
--  Oracle Announces Database@Azure Availability for East US Region
--  Hydrogène vert: Où en est-on ? Les explications de Lotfi Brahim (Vidéo)
--  UN-Votum mahnt Israel zu Waffenruhe
--  Krankschreibung in der Kündigungsfrist provoziert Zweifel
--  Marija i Danijel najbolji u ASCG u 2023.
--  Hamas killers are carrying children and using them as literal human shields during gun battles, Israel claims, as IDF release footage of terrorists beating Gaza civilians and stealing aid
--  Sentencian a cadena perpetua a sujeto que abusó de su prima menor de edad
--  Рамзан Кадыров заявил, что любит жизнь и красивых женщин
--  Bexheti:Finalizohet edhe një projekt i shumëkërkuar
--  Яйца куриные за неделю подорожали на 4,6%
--  Anzeige – Das Weihnachtsspiel: Weltklasse trifft Entertainment in Hamburg
--  Tesla retiró 2 millones de vehículos con “insuficientes” controles de seguridad de Autopilot
--  Beloved The Beach Boys musician Jeffrey Foskett dies at age 67 after battle with thyroid cancer: Band's co-founder Brian Wilson confirms heartbreaking news
--  Beloved The Beach Boys musician Jeffrey Foskett dies at age 67 after battle with thyroid cancer: Band's co-founder Brian Wilson confirms heartbreaking news
--  Taylor Swift donó un millón de dólares para víctimas de tornados en Tennessee
--  JAV AT sutinka svarstyti klausimą dėl aborto tablečių ribojimų
+-  Bakan Göktaş: Gazze'yi kimsesiz ve çaresiz bırakmamakta kararlıyız
+-  Gazze'de kana doymuyorlar! İsrailli Bakan: Uluslararası destek olsa da olmasa da savaş sürecek
+-  Life | Domestic violence spikes during this time- here's how victims can get help
+-  News24 | Penguin crossing: Celebrating and conserving the pride of Simon's Town
+-  Auch Coman und Mazraoui fehlen Bayern zum Jahresende
+-  Vijay Deverakonda Files Complaint Against YouTuber For Spreading Misinformation
+-  Cette ville de l'Essonne organise son incontournable salon des jeux vidéo
+-  SPD-Abgeordnete Anklam-Trapp neue Landtagsvizepräsidentin
+-  أرباح مالية ضخمة لريال مدريد بعد تأهله لدور الـ 16 من دوري الأبطال بالعلامة الكاملة
+-  بين قابس ونابل: إحباط 7 عمليات تهريب وحجز بضاعة قيمتها تفوق 410 آلاف دينار
+-  سيدي بوزيد: عدم تسجيل أي خروقات انتخابية
+-  So entwickeln sich Bitcoin, Litecoin & Co am Nachmittag am Kryptomarkt
+-  Сычев считает, что «Локомотив» поборется за чемпионство в этом сезоне РПЛ
+-  আন্তর্জাতিক সমর্থন থাক বা না থাক, গাজায় যুদ্ধ চলবে: ইসরায়েলি মন্ত্রী
+-  Read the pitch decks from 21 media and tech startups that helped them raise millions to disrupt entertainment
+-  Serangan Houthi Terhadap Kapal Komersial yang Menuju Israel Meningkat di Laut Merah
+-  سقط من جسر إلى بركة ماء.. ضباط ينقذون سائقًا وكلبيه بعد حادث مروع بأمريكا
+-  Throuple ‘feud’ as David Haye’s girlfriend Sian snubs Helen Flanagan after it’s revealed they’re dating
+-  Companies will soon be able to build internal search engines — with no coding needed — using Google Gemini AI
+-  Quality power service enhances Liaoning Zhen'an seasonal vegetable sales nationwide
+-  CICG met the Future of Zhongshan in Cuiheng New Area
+-  STRADVISION to Unveil Next-Gen '3D Perception Network' and Showcase SVNet Portfolio at CES® 2024
+-  Police. Économie souterraine : un Groupe interministériel de recherche créé à Nîmes
+-  Kickoff | Starting XIs: Sundowns v CT Spurs
+-  عاجل.. بعد اجتياحها للمحال التجارية بمكة.. السيول تداهم المنازل في عرعر
+-  "أوبك" تكشف سبب انخفاض أسعار النفط
+-  بعد نقل ملكية السجل التجاري متى تظهر المنشأة في التأمينات؟
+-  وظائف شاغرة بـ"تخصصي الملك خالد".. التفاصيل ورابط التقديم
+-  Destiny 2: Legacy Collection is free to download and keep this week at the Epic Games Store
+-  Leave the World Behind: What Happened to Archie’s Teeth?
+-  South Africa Aims to Fire Up Economic Growth With Port, Rail Revival
+-  Ravindra Airlangga: Warga Punya Kartu Tani Harus Mudah Mendapat Pupuk Subsidi
+-  Aides poised to lose jobs if bill passes
+-  Tents flooded as Gaza rain worsens misery of displaced families
+-  By: Jermaine Ray
+-  Soccerladuma | Still In Touch With Sam Magalefa - Part 3
+-  Soccerladuma | Starting XI: Sundowns v CT Spurs
+-  Soccerladuma | Insider: How Billiat Turned Down Europe For Chiefs
+-  PC gamers can pick up an incredible game worth £50 for absolutely free – and it’s 85-rated
+-  VIDÉO - Guerre Israël-Hamas : l'armée israélienne aurait commencé à inonder des tunnels à Gaza
+-  오또맘, 꽉 찬 볼륨감부터 힙업까지 대문자 S라인 美친 몸매
+-  Netflix México, estrenos enero 2024: todas las novedades
+-  'Normalmente', del binomio creativo Richard Somente-Julio Llopiz-Casal
+-  Zurückhaltung an Börse Frankfurt am Tag der Fed-Entscheidung: DAX wenig bewegt - Rekord bleibt in Reichweite
+-  Borxhi i jashtëm i Shqipërisë tejkalon nivelin 10 miliardë euro
+-  Nice. Logements sociaux : quelle est cette idée insolite pour en construire plus ?
+-  Кадыров заявил, что его сын должен был убить Журавеля
+-  Turkish leagues to resume next week after attack on referee
+-  El Melilla BC debuta este domingo en casa
+-  Steuerstreit um Wohnungsplattform: Airbnb zahlt 576 Millionen Euro an Italien
