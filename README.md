@@ -1,51 +1,51 @@
 # Latest News
--  Kal Ka Kark Rashifal: कर्क राशि वालों की समाज में होगी वाह-वाही, प्रेम संबंध के मतभेद होंगे दूर
--  Bigg Boss 17: कई बार समझाने के बावजूद अंकिता लोखंडे से हुई गलती, मुनव्वर को मिला सजा देने का अधिकार
--  El cava asegura otro año de récord de ventas a las puertas de la Navidad
--  Schiavi avverte: «Col Newcaste l’esame decisivo, Pioli va avanti per inerzia»
--  „Held að Diljá hafi fundið sinn stað þegar hún fer til Svíþjóðar"
--  بقرار حكومي.. لاعبو برشلونة ممنوعون من الاستحمام في ملعب فريقهم!
--  MP: ठंडे पानी में डाला, पेशाब तक पिलाई… आर्मी जवान ने बुजुर्ग मां-बाप के साथ की क्रूरता
--  مصطفى علوش يتحدث عن "توقيت الحرب الكبرى"!
--  قائد بحجم وطن....| كتب طه بلعيد المرقشي
--  باريديس يتحدث عن شغف جارناتشو برونالدو
--  رئيس الوزراء : شهدنا اليوم حادثاً أليماً
--  لبيد: نتنياهو يعمل على الكذب والتحريض وخلق الكراهية
--  فلسطين النيابية: مشروع تهجير الفلسطينيين لن يمر
--  وزيرا الداخلية والصحة يعودان المصابين بالحادث المروع
--  انكماش اقتصاد بريطانيا بأكثر من المتوقع
--  وظائف شـاغرة ومدعوون للتعيين - اسماء
--  الخزانة الأميركية: الاقتصاد العالمي قد يتأثر إن توسعت الحرب في غزة
--  وصول طائرة مساعدات أردنية جديدة إلى العريش
--  رئيس أركان جيش الاحتلال: ماجرى في الشجاعية حدث صعب
--  الاحتلال يعتقل حارسين للمسجد الأقصى
--  توجيهات ملكية بشأن الوكيل الأول سالم مفتن سالم
--  وفاة الفنان الاردني رضوان الـمـغـربـي - صورة
--  المرصد الأورومتوسطي : وثقنا إنشاء 120 مقبرة جماعية في غزة
--  استشهاد صحفيين اثنين في غزة
--  مسؤول أميركي: "إسرائيل" خسرت حرب المعلومات
--  Watch ChatGPT-powered humanoid robot pose funny, play terrifying ghost
--  Ao volante do Volkswagen ID.7, do KIA EV9 e a nova geração do Dacia Duster
--  TREĆA (NE) SREĆA: Real Madrid ove sezone nije postigao niti jedan pogodak sa bele tačke
--  الإقتصاد اليمني في عامين تحسن طفيف رغم الازمات بفضل دور أحمد المعبقي| كتب معتز عفيف الشيخ
--  Portable Calls For Prayers Days After U.S. Tour
--  Omer Škaljo ponovo na direktorskoj poziciji Zavoda zdravstvenog osiguranja ZDK
--  Cigarettes: découvrez la liste complète des augmentations de prix par marque
--  Shocking Details On Zahara’s Death
--  రైతులను ఆదుకోవడంలో వైసీపీ విఫలం
--  Tesla zbog neispravnog autopilota s tržišta povlači dva milijuna automobila
--  غرف ملابس أنتويرب جاهزة لاستقبال اللاعبين قبل لقاء برشلونة
--  బీఆర్‌ఎస్‌ నేతల చూపు కాంగ్రెస్‌ వైపు
--  Erdődi Katalin vezetheti a Trafót
--  파수, 애자일소다와 손잡고 기업용 생성형AI 협력 가속화
--  "직원들 건강이 우선"…LG유플러스, 건강친화기업 인증 획득
--  카카오모빌리티, 택시 업계와 합의...가맹금 2.8%로 신규 가맹택시 상품 마련, 프로멤버십도 내년 폐지
--  "더 글로리, 6억 시간 봤다고?"...넷플릭스 반기별 시청 보고서 발표
--  블록체인 기초부터 알고 싶으면 '주목'...'블롭'서 100% 전액환불 강의 띄웠다
--  네오플, 중증근육성 희귀질환 병원 건립에 기부금 20억 쾌척
--  తెల్లారినట్టే లేదాయె!
--  VIDEO : Deuxième coup de pied dans la fourmilière des structures publiques et la Réconciliation pénale
--  El Gran Chef Famosos: La Revancha EN VIVO: Natalia Salas reemplazará a José Pelaez en la conducción
--  GESE se compromete con la Teletón 20-30
--  وزير المالية يستقبل بعثة من البنك الدولي
--  గొప్ప విద్యావేత్తగా ఎదగాలి : వీసీ రంగజనార్దన్‌
+-  مرصد حقوقي : وثقنا إنشاء 120 مقبرة جماعية في غزة
+-  دلفين يملك إبهامين في اليونان
+-  إطلاق مركبة إلى الفضاء 18 الشهر الجاري
+-  القسام تبث مشاهدا لاستهداف جنود وآليات الاحتلال - فيديو
+-  نيوزويك: إسرائيل هاجمت حتى الآن 25 ألف هدف في غزة
+-  تأجيل محاكمة صيدلي بمدينة نصر لاتهامه بهتك عرض سيدات لـ 10 يناير
+-  دار الإفتاء تعلن غدًا الخميس أول أيام شهر جمادي الآخرة 1445هجريا
+-  6 أبراج فلكية الأكثر حظا مع بداية عام 2024.. أحدهم يحقق أرباح ضخمة
+-  مصر وإسبانيا توقعان مذكرة تفاهم لتعزيز التعاون في مجال الري
+-  مصرع سيدة وطفل وإصابة ثالث في حادث تصادم بـ"بورسعيد الإسماعيلية"
+-  "خرج للشارع متخفيا".. كيف تغيرت حياة مهاجم كوريا بعد مونديال قطر؟
+-  Rente ao Couce entrégalle o Foucín de Honra á queixeira Begoña de Fonchave o día 16
+-  „Rusija tampa koncentracijos stovykla. Medvedevas visiškai teisus“ (Foto)
+-  [ŽT] Nutarė pribaigti. Kas nutiko okupantams gabenant naikintuvą Su-34 (Video)
+-  Rusija smogė Kyjivui S-400 sistemomis. Kas žinoma apie šias 48N6 raketas
+-  Nustebo net mokslininkai: gali būti, kad ši organizmo dalis padeda kovoti su vėžiu
+-  Kremlius įsigijo pavojingą priešą. „Karo policija“ saviems. „Budelių ir aukų“ stovyklos.“ Kas vyksta
+-  Internetas pagreitės 5 kartus. Kaip prisijungti?
+-  Lotto am Mittwoch: Die Lottozahlen zur Ziehung am 13.12.2023
+-  Apple releases standalone USB-C case for AirPods Pro 2 for $99
+-  Democratic Lawmaker Interrupts Kamala Harris' Speech, Yells at Vice President
+-  My nan tricked me into living in orphanage before breaking into football… I landed big break with Man Utd but got lost
+-  대웅제약 ‘나보타’ 만성 편두통 적응증 글로벌 2상 환자 모집 완료
+-  Receive the gift of growth at TechCrunch Early Stage 2024
+-  Werder Bremen verlängert Vertrag mit Romano Schmid
+-  El abogado de la menor tutelada víctima de abusos, satisfecho con la condena del Supremo
+-  RB Leipzig - TSG 1899 Hoffenheim im Live-Stream und TV: Der Bullenclub bekommt es am 16.12.2023 mit TSG zutun
+-  Joachim Król hält viel vom Auto
+-  17 presos por terrorismo yihadista participan en un programa de 'desradicalización'
+-  Bourges désignée capitale européenne de la culture 2028
+-  Сотрудники ФНС и пивовары обсудили схему скрытого производства пива
+-  “No nos van a amedrentar”: referentes políticos repudiaron la amenaza narco que recibió Maximiliano Pullaro
+-  Matthew McLennan on Investing In Uncertain Times And Why He Holds A Massive Amount of Gold [ValueNYC 2023]
+-  В Дагестане количество обращений по поводу отключения света увеличилось в 30 раз
+-  В Костромской области организовали проверку из-за исчезновения двух мальчиков
+-  Apuñalan a una joven embarazada en Córdoba
+-  Castro apunta a la Segpres y Minsal por desorden político previo al plebiscito
+-  Big Brother’s Jenkin reveals secret show feud as housemate brutally ignores WhatsApp group
+-  US Supreme Court Agrees to Rule on Abortion Pill Restrictions
+-  Big Brother’s Jenkin reveals secret show feud as housemate brutally ignores WhatsApp group
+-  Орбан уведомил Мишеля, что Венгрия не поддержит переговоры с Украиной о приеме в ЕС
+-  Triệu phú chỉ cách ứng xử khi người thân mượn tiền: Từ chối cho vay nhưng làm 1 điều để không có lần thứ 2
+-  Révolution en F1, Alpine pousse un coup de gueule
+-  My bedroom performance is pants
+-  Odbor za bezbjednost i odbranu 21. decembra razmatra izvještaje...
+-  It’s hip to be winning for Oilers’ Sam Gagner after off-season surgery
+-  İzmir'de PKK/YPG'ye darbe: 4 kişi tutuklandı
+-  İşgalci İsrail 2 gazeteciyi daha öldürdü
+-  Sullivan İsrail'e gidiyor
+-  Bakan Bayraktar: Yeni bir reform ve yatırım dönemini başlatıyoruz
