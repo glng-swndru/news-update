@@ -1,51 +1,51 @@
 # Latest News
--  3 cách phân biệt mực tươi và mực đông lạnh, dân sành ăn mới biết
--  Российские мужчины полюбили делать маникюр
--  الأمم المتحدة: قطاع غزة يواجه كارثة صحية
--  גלזר בשער, הכוכב האדום תנסה להיפרד מהמפעל עם ניצחון על סיטי
--  Entrevista Dolores Pérez, gerente hotel del Juguete
--  İklim değişikliğinde aktif görev! Karar alındı: Merkez Türkiye'de kurulacak
--  Bayern Münih'te 4 isimle yollar ayrılıyor
--  Hunter Biden, ABD Temsilciler Meclisinin ifade çağrısına "halka açık olma" şartını koştu
--  Spartak Trnava, Fenerbahçe maçına hazır
--  Dışişleri Bakanı Fidan, Azerbaycan'a gidecek
--  Exportaciones de maquila suman más de US$ 920 millones hasta noviembre
--  Sanem y Can: ¿Can descubrirá que Sanem es la mujer del apasionado beso en la oscuridad?
--  Yawn: Latest CDC fearmongering on COVID hospitalizations falls flat
--  Couple arrested after abused kitten taped in sandwich container tests positive for meth
--  Alumnos de Uspallata recibirán becas para Nivel Secundario en el Liceo Militar General Espejo
--  Evacuan a todos: reportan fuga de amoniaco en planta congeladora del parque Bonfil en Mazatlán
--  Davido tops the list of Nigeria’s most followed celebrities on social media
--  Security Scare As Hail Storm Destroys Whawha Prison
--  Megyn Kelly calls for Taylor Swift ‘boycott’ after singer attends Gaza fundraiser
--  El alcalde de Elche se compromete a impulsar suelo industrial más barato y ampliar el Parque Empresarial a finales de 2024
--  How to watch ‘Taylor Swift: The Eras Tour’ movie: Full streaming info
--  Soccerladuma | Starting XI: AmaZulu v Sekhukhune
--  Soccerladuma | 'Al Ahly Will Beat Benzema & Co.'
--  كتائب القسام تنشر مشاهد جديدة لاستهداف الدبابات والجنود
--  Tontonan Menarik untuk Libur Nataru di Viu dari My Happy Ending hingga Film The Moon
--  قوارب مسلحة تطارد سفينة لمدة 90 دقيقة قبالة سواحل عمان.. ماذا يحدث؟
--  EU-Kommission gibt blockierte Milliarden für Ungarn frei
--  Израел: Пресякохте червената линия, това е подла заплаха срещу световната икономика
--  Slukhål uppstod i centrala Svalöv
--  Rice imports to fall by 5% due to high prices
--  В США заявили о положительном влиянии СВО на российскую армию
--  Poison control calls jump 1,500% due to Ozempic overdoses
--  ITV I’m A Celebrity’s Sam Thompson pictured in emotional reunion with girlfriend Zara McDermott as he lands back in UK
--  Dehşet veren cinayete 13,5 yıl hapis cezası
--  विदेश की खबरें | नवाज शरीफ ने अपने खिलाफ भ्रष्टाचार के मामलों को 'खोखला' बताया
--  Trabzon Havalimanı uçuşlara kapatılıyor!
--  जरुरी जानकारी | एआई पर वैश्विक भागीदारी के सदस्य देशों ने आम सहमति से नयी दिल्ली घोषणा को अपनाया
--  ¿Te gusta comer tamales? Estos son los beneficios que tiene según los nutriólogos
--  Atletico Madrid Lazio streaming e diretta tv: dove vedere la partita di Champions League
--  Kreise: EU-Kommission gibt blockierte Milliarden für Ungarn frei
--  Patientin fahrlässig getötet: Berliner Narkosearzt angeklagt!
--  Apple Watch SE 2 start from $199, AirPods Pro 2 with USB-C $200, more
--  Champions League: Η ώρα και η ημέρα της κλήρωσης για τη φάση των «16»
--  Przyszły zawodnik Bayernu Monachium wyznaje: Miałem oferty z wielu klubów, ale…
--  Inside George Foreman’s amazing car collection up for auction, including a priceless Ford GT and a massive tour bus
--  Fertilizer industry sway to face scrutiny in US bill backed by farmers
--  Newcastle Milan streaming e diretta tv: dove vedere la partita di Champions League
--  Guía laboral para Navidad: 15 dudas razonables sobre cenas de empresa, paga extra o cestas
--  Bla bla Baby: tutto quello che c’è da sapere sul film
--  Comissão de Infraestrutura aprova Seabra Filho para direção da ANM
+-  Anuncia Ficosec programa de atención psicológica en Ceresos
+-  Es el colmo pagar sus instituciones con presupuesto: AMLO
+-  LA CUADRILLA “Qué Plan Qué Show”
+-  Princess Zelda’s new role: Blending nostalgia with modern gaming evolution
+-  Sắp đóng nút giao Nguyễn Văn Linh - Nguyễn Hữu Thọ để xây hầm
+-  Ferrari tặng quà cho người mách hãng những trường hợp vi phạm bản quyền
+-  Sau phản ánh của Tuổi Trẻ, lãnh đạo TP.HCM chỉ đạo đảm bảo an toàn cho nhân viên y tế
+-  Phát hiện cháy rừng tạo ra kim loại cực độc gây ung thư
+-  Thủ tướng Phạm Minh Chính, ông Tập Cận Bình nêu phương hướng trọng tâm hợp tác Việt - Trung
+-  Du học sinh Việt Nam đang ở đâu?
+-  Thủ tướng Phạm Minh Chính sắp đi Nhật Bản
+-  Cùng Susu & Hero ‘Nạp năng lượng - Giữ trái đất xanh’
+-  Triệu tập 11 người kích động, đăng tin sai sự thật về mỏ cát phục vụ cao tốc Bắc - Nam
+-  Bảo hiểm xã hội linh hoạt giải pháp, 'nước rút' nâng số người tham gia
+-  Tổng bí thư Nguyễn Phú Trọng, Tổng bí thư Tập Cận Bình gửi trao trách nhiệm cho người trẻ
+-  Truy tố nguyên giám đốc Sở Xây dựng Đắk Nông và nhiều cán bộ vụ gây sụt lún Khu công nghiệp Nhân Cơ
+-  Gaza hết vắc xin cho trẻ em, Nga giục Liên Hiệp Quốc họp khẩn
+-  Kè Thanh Đa sạt ngày càng nặng, UBND TP.HCM có chỉ đạo khẩn
+-  UBND tỉnh Khánh Hòa kêu gọi 20 tỉ đồng hỗ trợ đội Khánh Hòa
+-  VietinBank Ipay mobile - Ngân hàng số vạn năng
+-  Nissan Terra bị đồn khai tử, sự thật là gì?
+-  Lãi suất huy động xác lập đáy mới: 2,2%/năm
+-  Ngã ở thảm xanh Miss Earth, Lan Anh vẫn thắng giải xuất hiện ấn tượng
+-  Từ 12-12, mang ảnh ra nước ngoài dự thi phải xin phép
+-  Bắt tạm giam một phụ nữ lợi dụng các quyền tự do, dân chủ
+-  Phó thủ tướng Trần Lưu Quang yêu cầu dồn nhân lực, nguồn lực để gỡ 'thẻ vàng' EC
+-  Công Phượng đưa cả gia đình về Việt Nam
+-  Bộ trưởng Nguyễn Kim Sơn mong muốn các trường đại học quân đội đi đầu về đào tạo nhân lực công nghệ
+-  Những dịu dàng trong tranh của nữ họa sĩ từng múa ba lê
+-  Festival tôm Cà Mau đón hơn 40.000 lượt du khách
+-  Siêu xe McLaren 765LT sắp được ngân hàng đưa ra đấu giá, khởi điểm 27,5 tỉ đồng
+-  Một công ty bất động sản lỗ vài trăm tỉ, cổ phiếu sắp hủy niêm yết
+-  Khởi tố ‘chủ nhà’ trong vụ sập mái làm ba người chết
+-  Giao lưu thanh niên gắn kết tình hữu nghị ASEAN - Nhật Bản
+-  Bên trong văn phòng làm việc của BIG4 kiểm toán thế giới: Thích ngồi đâu cũng được, lương cao ngất ngưởng lên đến 15 tỷ
+-  El Consejo de Estado aprueba un déficit fiscal para 2023 mayor que el permitido por la ley
+-  Son dakika! Koca'dan Bitmez'in sağlık durumu ile ilgili açıklama: Düne göre daha ciddi
+-  Prisão preventiva para um dos maiores traficantes de droga de Lisboa
+-  Yeşilçam yıldızı hakkında şok gerçek! Afişe kızıp oyunculuğu bırakmıştı, meğer babasıyla beraber Hababam Sınıfı'nda oynamış
+-  Tỷ trọng cổ phiếu tài chính và bất động sản trên sàn chứng khoán Việt Nam vượt trội các thị trường hàng đầu thế giới
+-  Apel doktorice: Ako imate temperaturu ovoliko dana ne čekajte, idite doktoru
+-  Watch SpaceX Dragon ISS undocking Dec. 15 after delay
+-  Former crime intelligence officer gets life for shooting girlfriend in the head
+-  El Codem convoca unos nuevos Premios de Investigación con 19.000 euros
+-  Primaria reivindica un 25% de presupuesto con nuevos perfiles profesionales
+-  Fed spušta kamate u ožujku ili sredinom 2024.?
+-  Krievu okupantu raķešu triecienos Kijivai cietuši vairāki desmiti cilvēku, tostarp bērni
+-  Президент Молдовы наградила посла Азербайджана
+-  В России разворовывают оборудование Volkswagen
+-  PODD: Påslaget och avslaget – så var Modos vecka
