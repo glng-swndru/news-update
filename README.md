@@ -1,11 +1,51 @@
 # Latest News
--  Fed kritik faiz kararını açıkladı
--  Cumhurbaşkanı Yardımcısı Yılmaz YTAK Programı başvuruları için tarih verdi: 10 yıla varan vadelerle kredi sağlanacak
--  CША приветствуют действия Баку
--  Эстонцы рассказали армянам о плюсах европейской жизни
--  В Армении сомневаются в мире с Баку до конца года
--  גליל עליון רשמה ניצחון בכורה, וקלקלה את הבכורה של גיא גודס
--  50 baklängesmål för ÅIFK då BK trampade gasen i botten
--  LED-Schneewittchen und beleuchtete Bäume
--  Bauwagen für durchreisende Obdachlose
--  Kapuzinerkrippe zurück in Karlstadt
+-  Legia Warsaw gets $108,000 fine and 5-game away fans ban in Europe for violence at Aston Villa
+-  Twitter Hasn't Been 'Enshittified.' It Always Sucked.
+-  It's a 'silly notion' that Trump's Georgia case should pause for the election, Willis tells the AP
+-  Love of anime inspires family-run Florida restaurant chain Soupa Saiyan
+-  A rocky road to more educational equality in sub-Saharan Africa
+-  The positions of stars on an ancient navigation device tell us when it was made
+-  Advances in nanoscale carrier-based approaches to enhance efficacy of podophyllotoxin
+-  Facing low pay, shortages and violence, nearly 60% of surveyed Colorado teachers consider leaving
+-  These Scientists Successfully Tested a Robotic Third Arm
+-  Delphine Böel, Illegitimate Belgian Princess, Demands Equal Treatment to Her Siblings
+-  Θεσσαλονίκη: Φωτιά σε διαμέρισμα - Υλικές ζημιές
+-  Researchers call for public inquiry into program to ensure Alberta oilsands cleanup
+-  Firefighter dies as inferno razes 40 shops in Enugu
+-  Пожар во бараката на Управата на Клиничкиот центар во Скопје
+-  FOTO LRH priredio božićni domjenak u jedinstvenom ambijentu. Bio je to poseban doživljaj
+-  LE TROMBINOSCOPE - Stanislas Guerini, envoyé spécial d'Emmanuel Macron en Argentine
+-  Повече от дузина играчи на Ман Юнайтед пропускат гостуването на Ливърпул
+-  Михаилоски од трбината „Повеќе за сите“ во Велес: Со мерките 105 илјади ученици добиваат 1.200 до 1.8000 денари месечно
+-  Yhdysvaltojen keskuspankki Fed jätti ohjauskoron odotetusti rauhaan
+-  న్యాయమైన డిమాండ్లు పరిష్కరించాలి
+-  تعليق تشافي قبل مباراة أنتويرب
+-  Newcastle Milan, problemi a Prime nel pre-partita: cosa è successo
+-  అభివృద్ధిపై వైసీపీ వ్యాఖ్యలు హాస్యాస్పదం
+-  السانت جيمس بارك جاهز لقمة نيوكاسل وميلان
+-  80 دقيقة.. النجم الأحمر يحاول التعادل مع مانشستر سيتي
+-  Özel-DEM Parti ziyareti: "İşbirliği teklifi yapılmadı, bölgelere göre değerlendirme yapılacak"
+-  Najviše od 2008. godine: Cena ovog metala otišla u nebo
+-  بايرن ميونيخ يُعلن غياب ثنائي الفريق بسبب الإصابة
+-  Tulisa shows off huge new neck tattoo as she gets two new inkings
+-  Recent home sales in Greater Boston (Dec. 12)
+-  Na Hlavnom námestí v Rimavskej Sobote vykradli na poludnie zlatníctvo, polícia hľadá páchateľa
+-  Morbihan : une camionnette couchée sur la RN 166 provoque des ralentissements importants
+-  Motosserra de Milei provocará mais inflação, pobreza e recessão
+-  Vì sao VFF không phạt ông Gong Oh-kyun?
+-  Fed lascia tassi fermi, ma tre tagli nel 2024
+-  News24 | Here are your Lotto and Lotto Plus results
+-  「課長、部長、役員、社長…」出世レースを駆け上がる人かどうかを試す、たった3つの質問 - とにかく仕組み化
+-  Bivša misica osvojila 20 ribica za svoju večeru: 'Fenomenalno!'
+-  Algérie : La cheffe du Parti des Travailleurs attaque le Maroc et les Emirats
+-  Český premiér Fiala pred summitom EÚ: Rokovania nebudú jednoduché
+-  Πυρκαγιά σε αποθήκη στον Βοτανικό – Άνδρας ανασύρθηκε νεκρός
+-  تقارير.. برشلونة يراقب غرينوود
+-  Shashi Tharoor to inaugurate INTUC convention in Kozhikode
+-  Potential gun threat at Penticton mall a false alarm
+-  Home Ministry sets up committee to probe Parliament security breach
+-  MCD to launch ‘tree census’, employ AI to map green cover
+-  Draymond Green y Nikola Jokic, expulsados; los Mavericks frenan a los Lakers
+-  Съставите на Роял Антверп и Барселона
+-  [ŽT] „Davėm p****ms p***! O, granata! Visiškai nauja! Ačiū“ (Video)
+-  "C'est une insulte profondément sexiste":La députée écologiste Cyrielle Chatelain réagit à l'insulte que le député Renaissance Jean-René Cazeneuve aurait proférée à son encontre à l'Assemblée
