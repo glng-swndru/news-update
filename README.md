@@ -1,11 +1,11 @@
 # Latest News
--  [경원선 동두천~연천 전철 12월 16일 개통
--  [버스기사 “폰 보다가” 단풍놀이 초등동창 4명 ‘쾅’ 참변…운전자 구속[종합]
--  [감사인 선임위반 올해 112개사…“회사유형별 규정 준수해야” [투자360]
--  [이미지 쇄신 ‘성공’한 실버타운… 상품 ‘혁신’으로 승부
--  [[헤럴드 운세] 2023년 12월 14일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [지주사 할인은 옛말?…각종 이슈 속 요동치는 주가 [투자360]
--  [남진복 경북도의원 "울릉도에 응급의료 헬기 상주 배치"
--  عمرو عبد العزيز يوجه رسالة صادمة لهؤلاء الفنانات
--  أحمد سعد يستعرض طائرته الخاصة خلال توجهه إلى السعودية-بالصور
--  خالد سرحان يوجه رسالة إلى الشعب السعودي بعد قرصنة صفحته ونسب كلام له
+-  99x clinches Gold for IT Exports at National Export Awards 2023
+-  Colombo stock market takes a breather post-IMF boost
+-  Developing countries paid record $ 443.5 b on public debt in 2022: WB
+-  Hayleys triumphs in excellence in corporate reporting sweeping most TAGs Awards
+-  Govt.’s way is the only way President tells Parliament
+-  IMF deal to be renegotiated under a SJB Govt. says Sajith
+-  Post-Executive Board support, IMF urges SL to speed up MOUs with external creditors
+-  Sajith accuses RW of protecting culprits of SL’s financial collapse
+-  BVB als Erster ins Achtelfinale - Remis gegen PSG
+-  Florenzi a Sky: «Andiamo avanti con fiducia, sono arrabbiato con Leao per un motivo»
