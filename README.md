@@ -1,11 +1,11 @@
 # Latest News
--  맨시티 찬밥 신세, 유벤투스 아닌 뉴캐슬행 가시화…‘임대 협상 시작’
--  "Mevcut dünya düzeni insanlar için sürdürülemez"
--  15 Temmuz Şehitler Köprüsü'nde 8 aracın karıştığı zincirleme kaza
--  Platin Global 100 Ödülleri bu akşam sahiplerini buluyor!
--  Kassam Tugayları, İsrail ordusunu tuzağa düşürdü! 5'i subay, 10 asker öldürüldü
--  Can Atalay'ın ikinci bireysel başvurusu Anayasa Mahkemesi Genel Kurulu'na sevk edildi
--  Katliama sessiz kaldılar! Dünya karşı çıktı, soykırım destekçileri 'devam' dedi
--  Türkiye'de sadece Hatay'da yaşıyor! Koruma altında
--  Pierluigi Collina'dan Halil Umut Meler'e destek
--  Cumhur İttifakı yerelde işbirliği heyeti son toplantısını bu hafta yapacak
+-  Life | Zahara's memorial service details announced
+-  [2023 제주일보 10대 뉴스] 제주형 행정체제 개편 권고안 임박.....넘어야 산 '수두룩'
+-  티웨이항공, 유럽 노선 운항 안전할까…잇단 기체 결함에 우려 목소리↑
+-  Wetter in NRW: Experte mit übler Winterprognose – „Ohje, ohje“
+-  بيطري الغربية: تحصين 207 آلاف رأس ماشية ضد الحمى القلاعية والوادي المتصدع
+-  Əsirlərin nə vaxt dəyişdiriləcəyi bəlli oldu: Sərhədin bu hissəsində...
+-  İran, 32 ülkeyle vizeyi tek taraflı kaldırıyor
+-  15 Temmuz Şehitler Köprüsü'nde kaza
+-  Gazoz fabrikasında korkunç kaza: 2 işçi hayatını kaybetti
+-  Beşiktaş'ta kadro dışı kararının en önemli sebebi ortaya çıktı
