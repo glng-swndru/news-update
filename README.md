@@ -1,11 +1,11 @@
 # Latest News
--  Galatasaray Şampiyonlar Ligi'nde Kopenhag'a yenildi, büyük bir serveti elinin tersiyle itmiş oldu!
--  דריימונד גרין שוב הורחק, אחרי אגרוף ששלח לפניו של נורקיץ'
--  11월 수출입물가 5개월 만에 하락전환
--  포스코이앤씨, 건설업 최초 ‘건강친화기업 인증’ 획득
--  Τα πρωτοσέλιδα των εφημερίδων την Τετάρτη 13 Δεκεμβρίου
--  ‘자라’ 광고 논란...가자지구 희생자 연상시키는 연출
--  “유급휴가 4개월→6개월 반” 도이치은행 한국, 출산육〮아휴직제 전격 확대한다
--  Байден: США приближаются к потере возможности помогать Киеву
--  Zulhas: Lulusan Akademi Metrologi Kemendag Sangat Dibutuhkan Masyarakat
--  En pleine ère de décarbonation, ruée sur… le pétrole de schiste
+-  Draymond Green expulsé pour avoir mis une beigne à Jusuf Nurkic, nouvelle suspension à venir ?
+-  Reisewarnungen aktuell: Für diese Länder gibt es Hinweise vom Auswärtigen Amt – 13.12.2023
+-  S. Korea pushing to require shrinkflation signs on products for downsizing
+-  تحقيق قضائي إسرائيلي باستشهاد أسير تعرض للتعذيب
+-  بدء تأثر الأردن بالمـنـخـفـض الجـوي
+-  أكثر من 35 إصابة بحادث تدهور حافلة على طريق سلحوب
+-  تطورات الحرب على غزة لليوم الـ68
+-  مصر: ممارسات إسرائيل تؤكد نيتها تهجير الفلسطينيين خارج أراضيهم
+-  中, 韓·日 등 14개국 비자발급 수수료 인하…“제2의 코로나 쇼크 우려”
+-  Hampir 30 Tahun Bekerja di Museum, Begini Perjuangan Ni Luh Putu Chandra Dewi
