@@ -1,51 +1,51 @@
 # Latest News
--  Pia ayaw pakabog kay Heart
--  الخارجية تتسلم نسخة من أوراق اعتماد السفيرة الهيلينية
--  Berlin film festival names new head
--  네덜란드와 핵심품목 공급망 협력 MOU…'공급망 대화체' 신설
--  RAB’s Endeavors in Global Peace: Navigating Challenges Amidst Sanctions
--  Ališa opet "udara" na Srbiju FOTO
--  Lionsgate confirms ‘Saw 11’, announces release date
--  Mehmet Büyükekşi: Süper Lig 19 Aralık Salı günü başlıyor
--  CHP'li Özel'in kirli ortaklığı bir kez daha belgelendi: Önce şehit töreni sonra HEDEP ziyareti
--  Умер сценарист «Бандитского Петербурга» Андрей Константинов
--  Appalto maxi diga: le cause giudiziarie fra porto e costruttori per il bando e per il risarcimento riunite in un’unica udienza il 15 febbraio
--  Concerns about Bavuma and Rabada's preparation for first India Test
--  CEOs FOR FUTURE zur COP28: Abkehr von fossilen Energieträgern beschlossen
--  Орбан указал на наивность Запада из-за мечтаний о бессоннице Путина
--  Tesla отзовет более двух миллионов автомобилей
--  韓, 네덜란드 신규 원전 수주 공식 참여…기술 타당성 조사 계약 체결
--  Reconocen a fundador de la Escuela Cruz Azul
--  Barry Keoghan opens up on returning as ‘Joker’ in ‘The Batman – Part II’
--  Hvordan kan Israel- og Palestina-konflikten løses?
--  Pizza julaften? Juletradisjoner i endring
--  Зеленский захотел получить больше ЗРК Patriot
--  I produced one of the greatest world darts championship moments EVER but love to follow my Rangers heroes home and away
--  Yayamanin!DongYan mabentang endorser
--  Allmennhetens tilgang til strandsonen i Sagelva er truet
--  [ŽT] Sprendimas rastas. „Policija jau vietoje.“ Kas vyksta Lenkijos-Ukrainos pasienyje (Video)
--  Канье Уэста обругали в сети за выступление в капюшоне в стиле «Ку-клукс-клана»
--  [ŽT] Reikalai visai blogi? Sunku patikėti, ką rusai siunčia į šturmus
--  Psychologin Katharina Grünewald: Patchwork an Weihnachten: Kann das überhaupt jemals gut werden?
--  Dozens of neo-Nazis in Scotland exposed after cyber attack leaks details
--  وفد من الاتحاد الأوروبي يلتقي الطلبة السوريين في جامعة الزرقاء
--  Atomkraft: Betreiber plant Energiespeicher auf Gelände des AKW Brokdorf
--  Noile măsuri fiscale: fără plăți compensatorii la pensionare. Cu cât cresc pensiile și salariile în 2024
--  Build websites using Midjourney, Chat-GPT and Figma
--  بعد أن كرس ثروته للأعمال الخيرية.. ماذا قال بيل جيتس عن القرآن؟
--  Hus på 82 kvadratmeter från 1962 sålt i Sundsbruk – priset: 1 425 000 kronor
--  IBM predstavio najnaprednije kvantno računalo na svijetu
--  SHINee to perform at S'pore Indoor Stadium on Mar. 2, 2024
--  Бедность в Казахстане побила как минимум 12-летний рекорд, – аналитики
--  ‘New era’: Berlin-Paris sleeper train completes maiden trip
--  إستهداف موقع إسرائيليّ بصاروخ... والعدوّ يردّ بقصف بلدات جنوبيّة
--  Torino, condannato a 6 anni Alex Pompa, il ragazzo che uccise il padre violento per difendere la madre
--  Neuer Dezember-Temperaturrekord in Malaga
--  Petrolimex đào tạo khai thác hệ thống EGAS cho Người dùng chính (Key User)
--  أكبر مستشفى في عدن يفقد أهم أجهزته... ومواطنون يناشدون الوزير بحيبح
--  Partizan ga preporodio - Egzum blista u NBA ligi VIDEO
--  Elektrikli otomobil satışları yeni bir rekor daha kırdı! Çin egemenliği hala sürüyor ama...
--  Aaron Rodgers’ power over Jets will be revealed at 2024 NFL Draft
--  Yenidən maska rejiminə qayıtdılar
--  MasterChef: Timovi će biti izabrani žrebom, spremaće više jela, a dva najbolja tima dobiće imunitet
--  ناشط إسباني: مضايقات “البوليساريو” لن تثنينا عن فضح دعايتها
+-  한-네덜란드, '반도체 동맹' 구축…외교·산업장관 대화체 신설
+-  Biglietti Milan Roma: info e dettagli utili per l’acquisto
+-  NYT: для Украины настало время критических испытаний
+-  فحص الدم يقدر سرعة إصابتك بشيخوخة الأعضاء الداخلية
+-  مفتاح وصولك للسعادة.. استراتيجيات عليك انتهاجها
+-  ما هي فرص الحمل بتوأم؟
+-  CARL ZEISS MEDITEC AG : Hauck & Aufhauser herhaalt koopadvies
+-  Hauck Aufhäuser IB belässt Carl Zeiss Meditec auf 'Buy'
+-  MB Başkanı Erkan, ihracatçılarla bir araya geldi
+-  В движении «Образование для всех» назвали телефон на уроке отвлекающим фактором
+-  ہمارے پیاروں کو مبینہ مقابلوں میں مارا جارہا ہے، عدالتوں میں صفائی کا موقع دیا جائے، لواحقین لاپتہ افراد
+-  Abazović: Monstat uništio svu propagandu nove Vlade
+-  Skandaliczny wybryk Brauna z gaśnicą. Lech Wałęsa dla „Wprost”: Są plusy dodatnie
+-  Skandaliczny wybryk Brauna z gaśnicą. Lech Wałęsa dla „Wprost”: Są plusy dodatnie
+-  Hagman: "Har byggt självförtroende"
+-  Shubman Gill : अख्ख्या पाकिस्तानात एकट्या शुभमन गिलची हवा; बाबर आझम 'प्रिन्स'च्या मागं पुढं सुद्धा नाही!
+-  Polis kesan barangan, objek bantu jejak pembunuh Zayn Rayyan
+-  Fact Check : सलमान खान और मोहम्मद शमी के मुलाकात की यह फोटो 2019 की है
+-  PISA台灣學生閱讀素養升5名！中央大學如何讓孩子棄抖音愛看書？
+-  生成式AI不只幫了你我，還有駭客
+-  (Видео) Пендаровски: Кај нас се говори со јазикот на корупцијата, дури четвртина од граѓаните подлегнале на притисок
+-  上班疲倦、缺乏幹勁時，按壓這個「萬能穴位」恢復能量
+-  Народную артистку РСФСР Лужину госпитализировали из-за нарушения ритма сердца
+-  E akuzuan për komplot kundër qeverisë, drejtoresha e Miss Universe në Nikaragua jep dorëheqjen
+-  Гладков: три человека пострадали при подрыве машины на мине около хутора Высокий
+-  Fact Check: महुआ मोइत्रा का यह वीडियो उन्हें लोकसभा से निष्कासित किए जाने के बाद का नहीं है
+-  الطقس مشمس ولكن إحذروا الصقيع
+-  [尹대통령 "네덜란드와 반도체 동맹으로 세계최고 초격차"
+-  [도기욱 경북도의원, 경북도 체육시설 안전관리체계 강화를 위한 조례 제정
+-  [‘이것’하면, 뇌 쪼그라든다…‘치매’ 위험 높아져
+-  [이수정 “‘암컷’이란 천대 없기를”…최강욱 ‘여성 비하’ 비튼 출사표
+-  Zahl der Beschwerden über Post- und Paketunternehmen auch dieses Jahr hoch
+-  COP28/Baerbock: Klimakonferenz besiegelt Ende des fossilen Zeitalters
+-  Sutra u ponoć počinje izborna tišina
+-  Akcija USKOK-a i policije: Uhitili više ljudi u Zagrebu i Karlovcu
+-  Свиленски: Искаме изслушване на министъра на културата и на регионалното развитие заради Паметника на Съветската армия - Труд
+-  El presidente del Partido Popular Europeo amenaza a Sánchez con una comisión de investigación en la Eurocámara
+-  긴장 고조 속 '힘에 의한 평화'로…"도발에 적극 대응"
+-  Leģendāra medus piparkūku recepte no “Zāļu sievas piezīmem”
+-  Fact Check: 2024 लोकसभा चुनाव के कारण रद्द नहीं हुई राजस्थान और UP बोर्ड परीक्षाएं, वायरल दावा गलत
+-  Kabar Baik, Thom Haye Ungkap Siap Bela Timnas Indonesia
+-  ضبط مصنع خمور بمحافظة المهرة
+-  Terima Aspirasi Masyarakat Riau, Anies Ingatkan Pentingnya Kemenangan di Pileg untuk Jalankan Perubahan
+-  曝料OPPO Find X7系列将会搭载天玑和骁龙两种芯片
+-  Welsh First Minister Mark Drakeford standing down
+-  New CM In 3 States: पूर्व मुख्यमंत्रियों का क्या करती है BJP? राजस्थान से लेकर मध्य प्रदेश और कर्नाटक तक का जानें इतिहास
+-  নির্বাচন কমিশন সরকারের বরকন্দাজে পরিণত হয়েছে: মান্না
+-  긴장 감도는 내년 한반도…북, 한미 선거 앞두고 도발 가능성
+-  Önce şehit törenine sonra HEDEP'in kapısına: CHP Genel Başkanı Özgür Özel'in ikiyüzlü tavrı bir kez daha belgelendi
+-  Konya'daki DEAŞ operasyonunda 14 şüpheli yakalandı
