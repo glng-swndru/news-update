@@ -1,51 +1,11 @@
 # Latest News
--  평택시보건소, 홍역 감시 강화 및 예방접종 당부
--  평택도시공사, 경기도자립지원전담기관에 자립준비청년 후원금 전달
--  경기도 해운물류 청년취업 아카데미 수료식
--  “데이터 기반의 도내 관광지 관리모델 구축해야”
--  감자 신품종 ‘홍지슬플러스’ 상품성 우수
--  Randeep Hooda-Lin Laishram pose with their `babies` ahead of wedding reception
--  Lewis Hamiltonilla pitkä kuiva kausi – riittääkö motivaatio?
--  Electric Range Rovers are hitting the road as waiting lists open
--  區議會選舉2023︱陳國基致函感謝已投票公務員以身作則 履行「雙重責任」
--  How to find PlayStation Wrap-Up 2023: Yearly recap explained
--  Argentina Sharply Devalues Its Currency and Cuts Subsidies as Part of Shock Economic Measures
--  İzmir'de bir evde çıkan yangında emekli astsubay hayatını kaybetti
--  공정위 '망간합금철' 10년 담합 DB메탈 등 4개사에 과징금
--  मैसूरु: नाबालिग नादिनी को गर्भवती करने पर 25 साल की जेल
--  Minneapolis school board approves superintendent contract with Lisa Sayles-Adams
--  太古城單日錄2宗逾千萬成交 業主33年賺「9球」
--  Bailey Smith set to miss entire 2024 AFL season after horror injury blow at Western Bulldogs training
--  Умер актер сериала «Доктор Хаус» Андре Брауэр
--  Dutch Dope Trial: What's The Deal?
--  NASA chia sẻ bức ảnh Mặt Trời mọc được chụp từ ​​không gian vũ trụ
--  Odisha CM Naveen Patnaik attended the grand finale of National Road Safety Short Film Festival 2023
--  आधार कार्ड पर सरकार ने लिया बड़ा फैसला, 14 मार्च तक कर सकेंगे ये काम
--  প্রিমিয়ার লিগে ক্লাব বদলে দ্যুতি ছড়াচ্ছেন যে তারকারা
--  Cierra el parking del Calatrava al no encontrar el Santander un comprador
--  Lini Depan MU Bapuk, Nahas Ten Hag Tidak Punya Banyak Pilihan
--  El Ministerio elige un proyecto de la Catedral como "buena práctica" de difusión del patrimonio
--  El ministro de cultura es un cabo
--  Una multinacional pide 450.000 metros a El Musel para hacer componentes de baterías
--  El aluvión de llamadas sin respuesta para pedir cita médica indigna a los pacientes
--  غزة.. الاحتلال ينكل بالطواقم الطبية في مستشفى كمال عدوان
--  উন্নয়ন গণতন্ত্রের বিকল্প নয়
--  Прогноз погоды на 13 декабря: похолодание, дожди
--  Конгрессвумен Грин: власти могут отправить американских военных на Украину
--  Papá en Apuros: Luna no pudo guardar más el secreto y le confesó a Jhonatan que ella es Tatiana
--  Lokführer: Ab 8. Januar mit längeren Streiks rechnen
--  Doncic, Hardaway led Mavs over Lakers 127-125 in LA’s first game since winning NBA Cup
--  Pha trúng Vietlott hiếm có, 2 người chia nhau 5 tỷ
--  全球百大旅遊城巿香港重返17位 疫情前連續9年名列榜首 一個亞洲城市首入十大
--  Посол Бернс: КНР не заинтересована в сотрудничестве с США по освоению Луны
--  Vídeo | Allan Paul con desplante: “Es la mejor presentadora”
--  E3, Once Gaming's Biggest Stage, Gets Permanent Cancellation: Here's Why
--  Milton Ray Guevara celebra la nueva integración del Tribunal Constitucional
--  [Watch] Family Of 4 Run Over By Pickup Truck, Suspect Apprehended
--  House to vote to condemn college presidents' antisemitism testimony
--  अगले 25 वर्षों में एक महान कर्नाटक का निर्माण करें: राज्यपाल गहलोत
--  NTK Hoàng Ly mang áo dài kỷ lục cùng hàng nghìn người xếp hình bản đồ Việt Nam tại sân Mỹ Đình
--  Fitch: Στασιμότητα στην ανάπτυξη της Ευρωζώνης το 2024 – Ραγδαία επιβράδυνση στο 2,1% παγκοσμίως
--  Kyiv rocked by explosions as 13 people hospitalised in 'rocket attack'
--  財政部據報在港會見銀行家 研提升金融中心地位 滙豐中銀等受邀
--  ‘Throw the book at them’: Family fight for justice as Curtin Uni ‘roof collapse’ builders appear in court
+-  Economy On Right Track, Sitharaman; LS Approves Rs 1.29 Lakh Crore Supplementary Grants
+-  India At UNGA Votes In Favour Of Resolution Demanding Immediate Ceasefire In Gaza
+-  South Central Railway: అయ్యప్ప భక్తులకో గుడ్ న్యూస్.. శబరిమలకు 22 ప్రత్యేక రైళ్లు
+-  [책소개] ‘절반 세대가 온다’…인구 절반의 세대가 몰고 올 충격 해부
+-  다비치보청기, 12월 가격 인상 전 마지막 할인 혜택 제공
+-  돌잔치 파티하우스 플로렌스 군포산본점, 돌상 리뉴얼 이벤트
+-  하남시 오는 15일까지 2024년 주요업무계획 보고회
+-  김기윤 감일·위례 서울편입추진위원장, ‘하남시 편입특별법’ 발의 건의
+-  광명시, ‘통합돌봄서비스’·‘빛나는 마켓’ 등 성과공유회 개최
+-  ["9년전 천원 빌린게 생각나" 여대생의 손편지·음료에 훈훈
