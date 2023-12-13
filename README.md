@@ -1,51 +1,11 @@
 # Latest News
--  AI će bankama uštedjeti 900 milijuna dolara operativnih troškova do 2028
--  בזכות תמיכתו במדינה: פלויד מייוות'ר הוכתר ל"אלוף ישראל"
--  Ei hyvältä näytä, Jarmo Kekäläinen - potku-uhka on päällä
--  Dreyer nennt Beschluss der Klimakonferenz ersten Schritt
--  Rollstuhlfahrer stirbt nach Unfall mit Lkw auf Zebrastreifen
--  Beyoncé Finally Shared ‘Grown Woman’ On Streaming, 10 Years After The Release Of Her Game-Changing Self-Titled Album
--  Brexit: Wollen von der Leyen und Sunak die Briten via Nato in die EU zurückzwingen?
--  కొత్త భూహక్కుల చట్టం రద్దు చేయాలి
--  Amy Winehouse biopic ‘Back to Black’ to release on THIS date
--  María Varela: "Quixen reivindicar o esplendor de Lourizán"
--  The 17 Best Fitness Gifts for The Most Active People You Know: Home Gym Equipment, Clothing and More
--  SITA spustila 6.12. nový podcast o zahraničnej politike s názvom Okno do sveta. Moderátorom je bývalý minister zahraničných vecí Miroslav Wlachovský z Globsecu
--  షార్ట్‌సర్క్యూట్‌తో గడ్డి ట్రాక్టర్‌ దగ్ధం
--  NFL approves regular-season game for Brazil in 2024 in more international expansion
--  Το Gazzetta στην προπόνηση της ΑΕΚ στη «Γιόχαν Κρόιφ Arena» (vids)
--  శాస్త్ర, సాంకేతిక రంగాల్లో నైపుణ్యం పెంచుకోవాలి
--  ‘신혼부부 100만쌍’ 무너질라… 교회 ‘결혼 메신저’ 나섰다
--  [겨자씨] 말 그릇
--  E enjtja do të risjellë reshjet
--  Gestión Ángel Marcano entregó 31 créditos al pueblo emprendedor de Bolívar
--  అధ్యక్షా..
--  In rare display, US-China friendship carries climate summit
--  Eddie Jones out to salvage reputation back in Japan
--  Eddie Jones out to salvage reputation back in Japan
--  Naveen felicitates Young Astronomer Talent Search winners
--  Militares auxilian a persona lesionada en accidente de tránsito en Morazán
--  Kärsämäen sote-palvelujen tuottaminen huhtikuussa Terveystalolta Pohteelle
--  US woman kidnapped in Guatemala with $19K bounty placed on her rescued
--  తాళం వేసి ఉన్న ఇంట్లో చోరీ
--  OpenAI與出版商Axel Springer簽訂首個全球出版協議，將新聞內容用於ChatGPT
--  Более 20 россиян и их родственники пересекли КПП «Рафах» на границе с Газой
--  కార్యకర్తల కృషి అభినందనీయం
--  전국적 학생인권조례 폐지 움직임… 교계 환영
--  ¿Por qué la "fantasía de Zelenski" de crear un centro militar-industrial en Ucrania no ocurrirá?
--  Църкви и училища няма да плащат скъп ток - Труд
--  Music taste didn’t sit well with guests: Man thrashed for stopping DJ from playing Mewati songs
--  Orry opens up about losing 23kgs in just few months, says, `I starved`
--  BFM Bourse : 17h/18h – 13/12
--  Hram glazbe slavi 50. rođendan: KD “Lisinski” sprema bogati trodnevni program
--  مسؤول أميركي: إسرائيل خسرت حرب المعلومات
--  الأشغال: جسم وسطح طريق جرش يخلو من أي عيوب فنية
--  سفيرة إسرائيلية: أوسلو فشلت في 7 أكتوبر
--  Minnie Driver Boldly Admits She Was “Devastated” Watching Matt Damon Receive His Oscar For ‘Good Will Hunting’ Because He Had Just Dumped Her
--  టీడీపీతోనే ప్రజాసమస్యల పరిష్కారం
--  Smallest Rembrandt portraits on display at Rijksmuseum
--  రాష్ట్రంలో ప్రజలకు మెరుగైన పాలన
--  سمير فرج: الانتخابات الرئاسية لم تشهد تواجد الجيش أو الأمن المركزي
--  لضبط الأسعار.. رئيس الوزراء يقرر طباعة الأسعار على أي سلعة يتم إنتاجها
--  معركة الشجاعية.. صدمة جديدة لجيش الاحتلال بسقوط المزيد من قادته بكمائن المقاومة
--  غياب رمضان صبحي.. بيراميدز يعلن قائمة مواجهة بلدية المحلة
+-  Odisha CM Naveen Patnaik Felicitates Winners of the 17th Edition of Young Astronomer Talent Search
+-  Aberdeen have no fear of Eintracht Frankfurt despite them hammering Bayern Munich, says midfielder Dante Polvara
+-  Researchers call for equity in cannabis research
+-  Sleep trackers everywhere: How does one choose?
+-  Rıza Çalımbay: Transfer için erken
+-  Osmani'den Sırbistan'ın yeni saldırılar planladığı iddiası
+-  ManU'da yaprak dökümü başlıyor
+-  #CANLI Cumhurbaşkanı Yardımcısı Yılmaz: Ekonomimiz 13 çeyrektir büyüme kaydediyor
+-  Gaziantep FK, Adana Demirspor'a hazırlanıyor
+-  Dağlıoğlu: Rekabetçiliğin tekrardan tanımlandığı bir süreçten geçiyoruz
