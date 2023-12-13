@@ -1,51 +1,11 @@
 # Latest News
--  Aristotelous vows unyielding pursuit for truth about missing persons
--  Patrick Mahomes claims Chiefs teammate Kadarius Toney's reaction to his mistake will 'define him' - after the wide receiver's winning touchdown was overturned as he was offside
--  황인범, 맨시티 상대로 챔피언스리그 데뷔골 작렬!
--  La inflación de noviembre fue del 12,8 por ciento y acumula 160,9 en los últimos 12 meses
--  Swamp People: Serpent Invasion Season 2 Streaming: Watch & Stream Online via Hulu
--  RB Leipzig News: Leipzig beendet Champions-League-Gruppenphase mit Sieg
--  "Уикеда" с предколеден концерт
--  Endangered Species Act at 50: Almost 60% of Claimed Species ‘Recoveries’ Were Falsely Listed, Western Caucus Foundation Report Shows
--  AM Best Revises Outlooks to Positive for Definity Financial Corporation and Its Subsidiary
--  BC Nokia karisti kotipelikammoaan Korihait-voitolla
--  Business Leaders Shouldn’t Comment On Every Hot Issue, Former CEO Says
--  Нурсултон Назарбоев дунё ядровий фалокатга ҳар қачонгидан ҳам яқинроқ эканини айтди .
--  Аргентина ўз валютасини икки баробар девалвация қилди .
--  Cobalt, Damas ва Labо учун шартномалар декабрнинг иккинчи ярмидан бошлаб берилади.
--  Нетаняҳуга танбеҳ берган Байден, россияликларни ҳайдаётган Туркия, АҚШдан қуруқ қайтаётган Зеленский — кун дайжести.
--  Swamp People: Serpent Invasion Season 1 Streaming: Watch & Stream Online via Hulu
--  Argentina November Inflation Quickened Before Milei Devaluation
--  RB Leipzig News: Forsbergs Abschieds-Tor: Leipzig besiegt Bern
--  EN VIVO: Celtic vs. Feyenoord, sigue a Santiago Giménez en la Champions League
--  Altında Fed tepkisi! 2000 dolar aşıldı
--  مستشفى إسرائيلي: لدينا 23 جنديا جريحا
--  غالانت: هناك أثمان لهذه الحرب
--  هاغاري يبرر ارتفاع عدد الجنود القتلى بغزة
--  Fogkefével akarta leszúrni az ügyészt egy férfi
--  Yaz saati uygulaması geri gelecek mi. Açıklama Bakan Bayraktar'dan geldi
--  Emil Forsberg måltorka över – hjälte mot Young Boys
--  Fed dle očekávání drží sazby, v příštím roce očekává snížení sazeb o 75 bps
--  Над 1% от БВП на България през 2022 г. се дължи на парични преводи от емигранти
--  İBB 229 milyon 900 bin euro borçlanacak
--  Naucalpan anuncia perforación de más pozos debido a la sequía
--  The technical levels in play for the major currency pairs after the FOMC decision
--  Bakan Bayraktar açıkladı: Kalıcı yaz saati uygulaması bitiyor mu?
--  FED, 2023 yılının son faiz kararını açıkladı!
--  Little Rock DEA, other agencies arrest 18 in connection with rural pharmacy pill burglaries
--  اتفاقية بين «العدل» ومكتب الأمم المتحدة لمكافحة المخدرات والجريمة لتعزيز الشراكة المستقبلية
--  الإبراهيم: تطوير التشريعات الرامية لضمان الالتزام بتطبيق اتفاقية الأمم المتحدة لمكافحة الفساد
--  الربيعان: استكمال برنامج الحكومة يتطلب هياكل قادرة على نشر ثقافة مؤسسية
--  المطيري: المسجلون في منصة الحج 45 ألفاً
--  ديوان حقوق الإنسان: دمج ذوي الإعاقة بسوق العمل
--  مصادر لـ «الأنباء»: «الأشغال» بصدد توقيع عقد صيانة مركز الفحوصات وضبط الجودة
--  مصادر لـ «الأنباء»: اتفاق كويتي ـ فلبيني على آلية عمل لإعادة استقدام العمالة
--  «تكنولوجيا المعلومات»: 3 مشروعات قيد الدراسة مع «غوغل كلاود»
--  «فجر الشرق 5» نجح في التعامل مع المتفجرات والإخلاء الطبي
--  6.2 ملايين دينار لتنفيذ مشروع مراقبة الطقس في المطار
--  الكويت تشارك في اجتماع تنسيقي عربي للإعداد للدورة الوزارية للمنتدى العربي ـ الروسي
--  المشاركون في مؤتمر قوات الشرطة والدرك: آليات «الحرس» تضاهي المستخدمة في أرقى المؤسسات العسكرية
--  سالم الشبلي قدم أوراق اعتماده سفيراً مفوضاً لدى جنوب أفريقيا
--  معرفي بحث تعزيز التعاون الثنائي مع مسؤولة في «خارجية لوكسمبورغ»
--  نائب وزير الخارجية بحث التعاون مع بعثة الأمم المتحدة لمساعدة العراق «يونامي»
--  السفارة السعودية أقامت ديوانيتها الديبلوماسية الـ 4
+-  בקיבוץ ניר יצחק הודיעו: טל חיימי, שהוגדר כחטוף, נרצח ב-7 באוקטובר
+-  ארה"ב השהתה עסקת רובים עם ישראל על רקע דאגות בעניין אלימות מצד מתנחלים נגד פלסטינים
+-  Donegal organisation awarded under Community Services Programme
+-  Rıza Çalımbay'dan kadro dışı açıklaması! ''Herkes saygı göstermeli''
+-  Devo, Madness, Descendents, Billy Bragg and more for Punk Rock Bowling 2024 line-up
+-  COP28: Deal agreed to transition away from fossil fuels
+-  Pitate se zbog čega ste na Zemlji? Evo koja je svrha svakog znaka Zodijaka
+-  ‘Barbie’ breaks Critics Choice Award nominations record
+-  الحكومة تصادق على قانون لتحديد هوية المشتركين في الاتصالات (البيان)
+-  Leonardo DiCaprio conferma: è al lavoro su un nuovo progetto. Sarà il film di Quentin Tarantino?
