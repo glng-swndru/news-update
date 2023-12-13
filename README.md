@@ -1,11 +1,11 @@
 # Latest News
--  นักท่องเที่ยวไต้หวันตายในไทย รพ.เอกชนปฏิเสธรักษาส่อผิดกม.
--  बंगाल देश की अगुवाई करेगा, INDIA गठबंधन की बैठक से पहले बोलीं CM ममता बनर्जी
--  Sean Darcy signs massive contract extension to tie himself to Fremantle Dockers until at least 2030
--  Центробанк раскрыл мошенническую схему с обновленной купюрой в 5000 рублей
--  Moradia Cidadã: Ministério das Cidades vai construir casas para população de rua
--  Garena Free Fire MAX Redeem Codes for 13 December 2023: Win Rewards and Gifts
--  Crypto exchange KuCoin to shut in New York, pay $22 million to settle lawsuit
--  ﻿롯데손해보험, 전자제품 보증기간 연장 보험 100만건 돌파
--  Muscle Membrey: Big Saint forward super-fit and ‘blossoming’
--  Muscle Membrey: Big Saint forward super-fit and ‘blossoming’
+-  New law to strengthen police officers' powers in emergencies
+-  Bakery giant SPC's CEO questioned for allegedly forcing bakers to quit labor union
+-  UN calls for immediate ceasefire in Gaza, Biden warns Israel is losing support
+-  Arrest warrant sought for ex-DPK leader over cash-for-votes scandal
+-  KB Financial Group to support startups seeking overseas expansion
+-  [MD포토] 이재, 곧 죽습니다, '이 많은 배우들이 한자리에'
+-  [MD포토] 서인국-박소담, '이재와 죽음의 만남'
+-  상대 감독과 선수들이 몰려와 열렬히 환영한 외인...홈 경기 같았던 수원 원정 [유진형의 현장 1mm]
+-  "바람의 손자, 위대한 별명 중 하나"…'1490억원' 이정후의 초대형 계약, SF행 반긴 美 언론
+-  [MD포토] 고윤정, '굴욕 없는 근접 미모'
