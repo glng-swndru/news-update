@@ -1,11 +1,51 @@
 # Latest News
--  다시보는 대한늬우스 (60. 12. 13)
--  4남매 찐빵집의 기적 / 한 집안 세가족 명장
--  Kakao names Kakaoventures head as new CEO nominee
--  Galatasaray'ı Devler Ligi dışına iten Kopenhag'ın hocası Jacob Neestrup'tan maç sonu olay sözler!
--  דונצ'יץ' ניצח את לברון בקרב הכוכבים, השופט הרס ליוקיץ' את ההצגה
--  השחקן אנדרה ברואר ("רצח מאדום לשחור", "ברוקלין תשע-תשע") מת בגיל 61
--  עדיין במילואים? קבלו את המדריך המלא לזכויות שלכם
--  Noche violenta en Juárez: masacran a tres en vivienda
--  Video: Va La Volpe a la Américas Kings League
--  Asesinan a balazos a exinterno del Cereso
+-  청주축협, 소외계층에 한우고기 800kg 기탁
+-  شاهد.. تضرر المنازل في أحياء عرعر بسبب الأمطار والسيول
+-  레이저옵텍, 하나금융23호스팩과 합병 승인
+-  توحيد سياسات ولوائح أنظمة النقل الذاتي في المملكة
+-  قيس اليوسف يُتوّج الفائزين بجائزة الرؤية الاقتصادية.. 21 ديسمبر
+-  '아마존도 관심'…올리브영 어워즈, K-뷰티 컨벤션으로 발돋움
+-  길거리에 나선 무안군공항반대 범대위
+-  Draymond Green ejected after hitting Suns' Nurkic in face
+-  현대차그룹, 2024 북미 올해의 차 수상 확정
+-  ‘You might have to suck it up’: Faitala-Mariner opens up on difficult season, clears the air on exactly what happened during training drama
+-  عُمان تؤكد مواصلة مكافحة الفساد وتعزيز النزاهة والمساءلة
+-  HIGHLIGHTS: Hamilton's 34 points fuel comeback for South boys basketball on busy night of local hoops
+-  Kinderburgemeester Maren Mourik zet zich in voor speeltuintjes
+-  Realizan el primer decomiso de pirotecnia en el sur de Sinaloa: aseguran 15 kilos en Escuinapa
+-  엔비티, 칩스 X2E 서비스 도입…'자판기 타이쿤' 기능 업데이트
+-  Fallecen 5 niños en el Congo por el impacto de un rayo en su escuela
+-  '멀티 패스웨이 적중' 한국토요타 "라인업 다양화에 최선"
+-  FC Schalke 04: Goldene Eigenschaft oder Taktik? SO kämpft Geraerts gegen das Königsblaue Kabinen-Problem
+-  Aprueban reforma que quita a estados recursos de salud
+-  Arremete Samuel por nombramiento en Auditoría
+-  La reunión de la Fed amenaza con "una pequeña corrección" para bonos y acciones
+-  Schock in Reinickendorf: Aus für die Kult-Kneipe Kastanienwäldchen!
+-  ONLINE: Dúbravka môže vychytať Newcastlu postup v Lige majstrov. Potrebuje pomoc Dortmundu
+-  6 اتفاقيات باستثمارات 38 مليار دولار ضمن "قمّة عُمان للهيدروجين الأخضر"
+-  Gazze katliamcıları bir birine düştü: İsrailli iki bakandan Biden'a yanıt geldi
+-  Filistin konusunda istifaya zorlanan Harvard Rektörüne eski rektörlerden destek
+-  SpaceX postpones launch of U.S. military's secretive X-37B spaceplane
+-  មេដឹកនាំកម្ពុជា-វៀតណាម ប្ដេជ្ញាពន្លឿនការបោះ បង្គោលព្រំដែនឱ្យឆាប់ចប់ ខណៈសល់តែ១៦% ទៀតប៉ុណ្ណោះ
+-  Stellantis Figueruelas producirá hasta cinco modelos distintos el próximo año
+-  „Hallo Deutschland“ besucht Eloy de Jong: Eine traurige Geschichte kommt ans Licht
+-  El 67% de las llamadas al Teléfono del Mayor en Aragón solo quiere conversación
+-  ONLINE: Slovensko s Hrivíkom aj Cehlárikom. Prvým súperom na Kaufland Cupe sú Nóri
+-  محافظ جنوب الباطنة يطلع على المشاريع في وادي المعاول
+-  بايدن يحاول غسل يديه من "دماء الفلسطينيين" استعدادًا للانتخابات الرئاسية
+-  Matsuya beef bowl fukubukuro lucky bag should be purchased with caution
+-  La COP28 propone ir hacia el abandono de los combustibles fósiles en energía
+-  Repossession looms for pricey UK property owners
+-  Q & A: Soprano Linda Ballová On Her Career Path, ‘Salome,’ & the Challenges for Slovak Singers in Europe
+-  Ópera de Oviedo 2023-24 Review: La Traviata
+-  EFCC Declares Former Minister, Agunloye Wanted Over $6 Billion Fraud
+-  У российского побережья произошло сильное подводное землетрясение
+-  Rusia ataca con misiles balísticos Kiev por segunda vez esta semana
+-  Tiroler Festspiele Erl Announces Summer 2024 Season
+-  İBB'de 4 milyar TL'lik vurgun! Sayıştay raporu deşifre etti
+-  लक्ष्मी सनराइज बैंकले प्रस्ताव गर्‍यो लाभांश, बोनस शेयर कति ?
+-  Nice Philharmonic Appoints New Principal Conductor
+-  Bakanlıktan devrim gibi adım! Çalışma saatine ince ayar
+-  श्री इन्भेष्टमेन्ट एण्ड फाइनान्सले नगद लाभांश वितरण गर्ने
+-  Das Christkind verkündet am Weihnachtsmarkt in Deining die frohe Botschaft
+-  Leeds Lieder Festival Announces 2024 Lineup
