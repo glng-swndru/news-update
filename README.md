@@ -1,51 +1,11 @@
 # Latest News
--  ▶️ Venezuela’da katliam gibi kaza! 16 araç küle döndü: Çok sayıda ölü ve yaralı var
--  Rama, bisedë me Mitsotakis në Bruksel
--  Retired Pittsburg detective charged with attempting to kill Pleasant Hill cops
--  Poor diet quality during adolescence is linked to serious health risks
--  Sport teki ison ryöstön Helsingissä - Risto Dufva huokaisi syvään helpotuksesta Nordiksella: "Selvittiin"
--  Venezuela'da zincirleme kaza: Çok sayıda ölü var
--  Uhkaaja hivuttautui askeleen lähemmäs Helsinki Seagullsia
--  Marula Mining zegt dat partners in Tanzania nieuwe vergunningen hebben aangevraagd
--  Marula Mining: Tansania-Partner beantragen neue Lizenzen
--  Frank Zander optimistisch im Krankenhaus: „Berliner Urgestein geht so schnell nicht kaputt“
--  DEDA MRAZ OVDE IMA NEOBIČAN PREVOZ Nesvakidašnja dekoracija u Arilju, umesto jelke u centru okićena sekvoja
--  רובי קין: "יצרנו סביבה בה אנחנו לא מתלוננים. ננסה לנצח"
--  משפחתו של ג'ושוע לואיטו מולל התבשרה כי נרצח וגופתו נחטפה לעזה
--  Vikings linebacker Ivan Pace Jr. named NFC Defensive Player of the Week
--  Jovem morta junto da filha de 1 ano é 15ª vítima de feminicídio na região de Campinas em 2023
--  Turkish ref punched by club president in horror scenes breaks silence as he finally leaves hospital after vile attack
--  Nunca pensou que existia um melhor lado para colocar a máquina da loiça
--  CBN Reassures Public Of Adequate Cash Supply
--  Race-by-race preview and tips for Thursday meeting at Kembla Grange
--  류영준→남궁훈→홍은택→정신아…2년간 카카오에 무슨 일이?
--  Citibank NZ warned over money laundering rules
--  Nijerya'nın Plateau eyaletinde 13 silahlı çete üyesi öldürüldü
--  Sage Unternehmenssekretärin verkauft Aktien im Wert von GBP716.400
--  Secretaresse van Sage verkoopt aandelen ter waarde van GBP716.400
--  Adana'da kavgada bıçakla yaralanan genç hastanede öldü
--  Trump Secures Another GOP Senate Endorsement for 2024 Comeback Bid
--  MÄRKTE USA/Taubenhafte Fed treibt Dow auf Allzeithoch
--  [1보] 국제유가 상승…WTI 1.25%↑
--  Tatvan'da 18 yaşındaki genç intihar etti
--  Aaj Ka Mesh Tarot Card: मेष राशि वालों को परीक्षा में मिलेगी सफलता, आज मिल सकती है अच्छी खबर
--  Major incident declared as huge ‘explosion’ on South Wales industrial estate sends flames billowing into sky
--  LIVE MN - Newcastle-Milan (1-0): rossoneri rimasti negli spogliatoi...
--  Dunedin contractor caught on CCTV not installing insulation
--  Hanukkah menorah near Lake Merritt destroyed by vandals
--  'We Have To Endure' - Argentines Stoic As Prices Skyrocket
--  ‘Criticizing a judge is not illegal’: Charges dropped against San Mateo County man accused of threatening jurist
--  Feliz desencalla la Penya en un nou final d’infart (83-81)
--  Снег и потепление придут в Карелию 14 декабря
--  27 år gammal grav ska öppnas – för att undersöka faderskap
--  Στη δίνη οικονομικού σκανδάλου το κυβερνών κόμμα στην Ιαπωνία - Σε παραίτηση οδηγούνται κορυφαία στελέχη
--  Caldera Announces New RIP Software Version 17
--  ‘Luke Cage’ Star Simone Missick Cast in David Oyelowo Dramedy ‘Government Cheese’ at Apple TV+ (EXCLUSIVE)
--  MIND TECHNOLOGY, INC. REPORTS FISCAL 2024 THIRD QUARTER RESULTS
--  Nine Strive funds will move primary listing from NYSE Arca, Inc. and NASDAQ Stock Market LLC to New York Stock Exchange
--  GRUPA MLADIĆA PREVRĆE AUTO NASRED PUTA: Dramatičan snimak na Voždovcu nakon saobraćajne nesreće (VIDEO)
--  Universal Technical Institute, Inc. announces Kevin Prehn as president of Concorde Career Colleges
--  MAA Appoints Brad Hill to President and Chief Investment Officer
--  Μητσοτάκης: Η υπόθεση Μπελέρη δεν είναι διμερές θέμα αλλά ζήτημα σεβασμού του κράτους Δικαίου
--  Pareggia subito il PSG con Zaire-Emery: 1-1 a Dortmund
--  El Niño: anticipan el momento de la “plenitud” de las lluvias y qué factor jugaría una mala pasada
+-  Rutgers gives Greg Schiano a new contract through the 2030 season
+-  US Fed keeps interest rates high, but does not raise them again
+-  Movenpick Hotel Colombo shines bright with Christmas tree lighting ceremony
+-  Cheers to the season, best of TV shows, and a Smart TV from Dialog Television
+-  Excel World’s Snow World unleashes winter magic in Colombo
+-  Mercantile Football Association celebrate 105th anniversary in grand style
+-  Goonethilleke clinches triple titles at 71st Badminton Nationals; Liyanage wins women’s crown
+-  Current players will achieve great heights says outgoing selection chief
+-  More humiliation for Sri Lanka cricket as U-19 team bows out of Asia Cup
+-  بانون، رحيمي مع بطنا والكرد ثم بوطويل في الكان!
