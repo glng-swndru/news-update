@@ -1,51 +1,11 @@
 # Latest News
--  DIE HARKE fördert den Waldumbau im Rauhen Busch
--  Sezonun ilk seferini yapan Turistik Doğu Ekspresi Kars'ta coşkuyla karşılandı
--  Kataraktın tek tedavisi ameliyattır
--  Adana'da dehşet! Eski eşini ‘otomobil devri’ tartışmasında yakarak öldürmüş
--  Soğuktan korunmak için alınan içliklerde yüzde 75 yün oranına dikkat
--  시프트업, 해외진출유공부문 문체부 장관표창 수상
--  [타임라인] 승자의 저주...SM 인수부터 대표 교체까지 카카오 잔혹사
--  Анализатори очакват съществен обрат на пазара на имоти през 2024 година
--  Srikandi TASPEN Tanam 1.000 Pohon Trembesi & Cemara di Kupang NTT
--  Istri-Anak Ikut Tewas, Guru SD di Malang Diduga Bunuh Diri karena Utang
--  كيف عطلت روسيا الأسلحة الأمريكية الفائقة في سماء القرم؟!
--  Sigma soars as investors rush for a piece of Chemist Warehouse
--  Sigma soars as investors rush for a piece of Chemist Warehouse
--  롯리단길서 전국 디저트 맛집 투어
--  커피 황금비율 추출 … '얼죽아' 전용모드도
--  뼈 형성·면역기능 강화 도와 성장기 어린이 '숨은 키' 자극
--  장건강·멘탈케어 동시에 …'쉼'의 열풍 후끈
--  “이젠 화장할 시간, 30초만에 매진”…전국 ‘코덕’ 다 몰렸다 [르포]
--  انخفاض أسعار الذهب اليوم الأربعاء وعيار 21 يسجل 209 ريالات
--  تفاصيل مدهشة.. ابتكار لامثيل له يقرأ الأفكار ويحولها إلى كلمات!
--  أسعار العملات اليوم الأربعاء.. الإسترليني يسجل 4.71 ريال
--  عاجل.. تعليق الدراسة في مدارس وجامعات 6 مناطق بالمملكة
--  WhatsApp-Update verspricht schickeren Status – das ging vorher nur über Umwege
--  Központi felvételi: ez volt tavaly a negyedikesek mumusfeladata magyarból
--  UNO-Klimakonferenz ruft zur Abkehr von fossilen Energien auf
--  MU di Liga Champions Selepas Sir Alex: Banyak Mentok di Fase Grup
--  Участники COP28 утвердили итоговый документ с призывом к "переходу" от ископаемого топлива
--  Britische Wirtschaft startet schwach ins Schlussquartal
--  안성 광선초, 죽산면사무소에 김장김치 50통 기탁
--  연천 궁평초교, 친환경 딸기 수확·잼 만들기 체험학습 운영
--  안산시의회 예결특위, 신안산대내 공유재산 부지 구입 타당성 검증 현장활동
--  안양대 뷰티메디컬디자인학과-키웰, 전문 인력 양성 업무협약
--  안양시노사민정협, 5개기관별 ‘공동선언 이행상황 보고회’ 열어
--  서과석 포천시의장, 경기북부시·군의장협서 ‘대진대 의과대학 신설 촉구 결의안’ 상정
--  안양 안일초, 28일까지 즐거운 독서 ‘메리북 크리스마스!’ 진행
--  안양 만안청소년관·만안청소년문화의집, 2023년 여가부 공모서 우수 프로그램 선정
--  가평 행복마을 관리소 6곳, 생활 편의 1672건 등 다양한 서비스 3713건 제공
--  테코야, 2024 프랑스 파리 선수촌 공기 청정 책임사(社)로 선정
--  장명희 안양시의원 발의 ‘맨발 걷기 활성화 지원에 관한 조례’ 상임위 통과
--  이우일 민주당 용인갑 지역위원장 직대 총선 출사표
--  경기도교육청, 유·초·특수학교 교사 1차 합격자 발표
--  굿타임포키즈 샴푸 할인 이벤트 진행
--  Arktis hatte wärmsten Sommer seit Beginn der Messungen
--  Praznična je tudi avtobusna postaja
--  Nikad hrabrija izjava! Zelenski pred Bajdenom otkrio šokantne stvari! "Dve trećine..."
--  Nhịn hắt hơi khi lái xe, người đàn ông bị xé rách khí quản: Nhà khoa học chỉ ra 'điều nguy hiểm'
--  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
--  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
--  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
--  ‘Riddled with compromise’: COP28 text backs transition from fossil along with nuclear
+-  Cảnh báo thủ đoạn lừa đảo dịp cuối năm
+-  "Tình tin đồn" của Anh Đức để lộ hint hẹn hò, có mối quan hệ thân thiết với hội bạn Trấn Thành?
+-  Đi thuê 5 triệu/ tháng nhưng chi 30 triệu mua nội thất: Vừa thay đổi decor và trang trí Giáng sinh hết 20 triệu đồng
+-  Đảo Rockall, nơi hoang vắng và tuyệt vọng nhất thế giới
+-  Phương Mỹ Chi lộ diện hậu lên tiếng tin nhạy cảm, thần sắc ra sao?
+-  Miền Bắc sắp đón đợt rét hại dưới 3 độ C, miền Trung mưa to
+-  Trần Ngọc Vàng: Tôi rất mừng khi đọc được những lời chê bai
+-  Asian Cup 2023: Đội tuyển Iraq bất ngờ "có biến" trước ngày tái đấu tuyển Việt Nam
+-  Zara đối mặt với làn sóng tẩy chay vì chiến dịch quảng cáo được cho là gợi nhắc tới xung đột ở dải Gaza
+-  Không phải Quang Hải, Văn Hậu đây mới là cầu thủ có giá trị chuyển nhượng cao bậc nhất đội tuyển Việt Nam
