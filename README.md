@@ -1,11 +1,11 @@
 # Latest News
--  انخفاض أسعار الخيار وارتفاع الملوخية والليمون بسوق العبور اليوم
--  Beşiktaş, Avrupa’daki 242. sınavına prestij için çıkacak
--  Adalet Bakanı Tunç, Azerbaycan-Türkiye Parlamentolararası Dostluk Grubu üyelerini kabul etti
--  Beşiktaş, Avrupa'ya İsviçre'de veda edecek
--  Niğde'de içecek fabrikasında facia: 2 işçi hayatını kaybetti
--  Göksu'dan İmamoğlu'na zor soru: 127 milyar lira CHP Kongresi'nin dizaynında mı kullanıldı?
--  Almanya'da Türkiye paniği: Erdoğan yanlısı bir parti kurulabilir
--  Kocaeli'de tekne battı: Olay yerine çok sayıda ekip sevk edildi
--  Bakan Kacır: Süper bilgisayar devreye alınacak
--  Saint-Nicodème en guerre contre son ancien architecte, le maire de Saint-Connan Jean-Yves Philippe
+-  Why Invest In Multi-asset Allocation Fund
+-  Rekabet Kurumu’ndan Meta’ya soruşturma
+-  Avukatları 'Dilan Polat'ın ruh hali iyi değil' diyerek açıkladı: Sürekli ağlıyor
+-  Beşiktaş, Avrupa'da 242. maçına çıkacak
+-  Kamu bankası personelinden 100 milyon dolarlık vurgun
+-  Ankara kulisi! Erdoğan kapıları kapatıp Ankara teşkilatına sordu: Mansur Yavaş'ın karşısına kim aday olsun?
+-  Fon vurgunu şikayetçilerinin başvurusuna mahkemeden ret
+-  MHP lideri Devlet Bahçeli'den milletvekiline özel hediye
+-  Konyalı tekvandocu altın madalya istiyor
+-  Doğanhisarspor Süper Lig’e çıktı
