@@ -1,51 +1,11 @@
 # Latest News
--  [서울시 쪽방주민 무료치과 1년간 753명 진료 혜택
--  [‘백현동 수사무마’ 브로커 “법무장관·검찰총장에 말하겠다”
--  [‘文정부 마지막 靑대변인’ 박경미, 북콘서트 열고 총선 행보 본격화
--  [산타랠리 안오니 직접 산타 된 파월…오늘 韓증시 선물 받을까 [투자360]
--  [폴란드 새정부 “전 정부 무기도입 계약 존중”…K방산 우려 해소
--  [김건희 여사 “개 식용 금지는 尹대통령 약속…특별법 조속 통과되길”
--  [홍준표 대구시장, 계명대 학생들과 소통의 시간 가져
--  [임병택 시흥시장 “한 사람도 소외되지 않는 따뜻한 복지도시 시흥을 조성하겠다”
--  [‘최고·지금만 할인’ 문구 남발…·라이브커머스 5건 중 1건 위법 소지
--  [‘2023 한국관광의 별’ 경북도 관광지 2곳 선정
--  [“겨울 모기 잡아라” 마포구, 특별방제활동 실시
--  Porto, tur kapısını 5 golle açtı!
--  Devler Ligi'nde günün toplu sonuçları
--  전국 흐리고 눈·비 소식…강원 산지 최대 30㎝ 폭설 ‘주의’
--  尹, 한-네덜란드 비즈니스 포럼… "경제협력 높이 평가"
--  학교폭력, 중학생이 가장 많이 늘었다
--  Is Beyoncé A Billionaire?
--  Coparmex reconoce que 20 días de descanso por paternidad es grave para las empresas
--  ¡Otro megaproyecto! Elon Musk planea establecer su propia universidad en Texas
--  اعترفوا بالفشل أمام كمين الشجاعية.. الاحتلال الإسرائيلي واجه أصعب المعارك داخل غزة
--  French actor Gerard Depardieu stripped of Order of Quebec after obscene documentary remarks
--  Shoppers 'obsessed' with Kmart Australia's $69 mirror that looks just like a famous design worth $4,000
--  Vincula jueza a proceso a Adal ‘N’, presunto feminicida de Yosmi, y lo internan en penal de Piedras Negras
--  రాష్ట్రంలో పెరిగిన చలి తీవ్రత
--  ‘His honour is protected,’ says Faqiri family after Coroner’s inquest
--  باريس سان جيرمان يتأهل لثمن نهائي الأبطال بصعوبة.. ميلان ودع البطولة
--  제주지역 버스 준공영 업체가 유령 정비회사 끼고 기사 징계 논란
--  సీపీఎస్‌ను రద్దు చేయాలి
--  3 شهداء في جنين
--  Barcelona perdió en Amberes, pero pasa a octavos de Champions como primero
--  Gobierno y disidencia de las FARC instalan el mecanismo de verificación de cese al fuego
--  دكتور فيل يدافع بشراسة عن اسرائيل - فيديو
--  Diputados logran aprobar desafuero a Uriel Carmona, fiscal de Morelos
--  NFL vergibt Super Bowl erneut nach Los Angeles
--  Middlesbrough 1-2 Hull: Liam Rosenior's side stage second-half comeback as Liam Delap and Ozan Tufan both score to send the Tigers into play-offs contention
--  尹대통령, 이준 열사 기념관 방문
--  Tragedia w Witkowie: samochód dostawczy potrącił kobietę przechodzącą przez jezdnię
--  Con recursos propios, construirán 2 clínicas en Arteaga en 2024
--  RACHEL MACLEAN: We Tories know what a woman is and will keep on saying so... Women and lesbians have fought for decades to have their rights respected and I will not stand idly by and see these erased
--  RACHEL MACLEAN: We Tories know what a woman is and will keep on saying so... Women and lesbians have fought for decades to have their rights respected and I will not stand idly by and see these erased
--  尹, 네덜란드 참전용사들 만나 "잊지 않겠다"
--  특정 나라 승객에게만 옷 벗으라 요구한 美 항공사 ‘논란’
--  “Se han y se están introduciendo ideologías que atacan fuertemente la vida de la familia”: Obispo
--  قادة المشجعين يبدأون العد التنازلي
--  تدشين المرحلة الأولى للمنصة العقارية
--  Los Racing de Ferrol-Tenerife: Bombarda y otras historias
--  Puno finansiranje za državne škole
--  గోపన్‌పల్లి భూవ్యవహారంలో.. శేరిలింగంపల్లి తహసీల్దార్‌పై వేటు
--  Milei arranca su gobierno con piso de inflación interanual de 160.9% en Argentina
--  «É sempre bom ouvir os adeptos a cantar o nosso nome»
+-  [경원선 동두천~연천 전철 12월 16일 개통
+-  [버스기사 “폰 보다가” 단풍놀이 초등동창 4명 ‘쾅’ 참변…운전자 구속[종합]
+-  [감사인 선임위반 올해 112개사…“회사유형별 규정 준수해야” [투자360]
+-  [이미지 쇄신 ‘성공’한 실버타운… 상품 ‘혁신’으로 승부
+-  [[헤럴드 운세] 2023년 12월 14일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  [지주사 할인은 옛말?…각종 이슈 속 요동치는 주가 [투자360]
+-  [남진복 경북도의원 "울릉도에 응급의료 헬기 상주 배치"
+-  عمرو عبد العزيز يوجه رسالة صادمة لهؤلاء الفنانات
+-  أحمد سعد يستعرض طائرته الخاصة خلال توجهه إلى السعودية-بالصور
+-  خالد سرحان يوجه رسالة إلى الشعب السعودي بعد قرصنة صفحته ونسب كلام له
