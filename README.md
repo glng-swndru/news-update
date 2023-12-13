@@ -1,11 +1,11 @@
 # Latest News
--  Eierkonsentrasjonen i avismarkedet flatet ut i 2022
--  VSN: Tài liệu họp Đại hội đồng cổ đông
--  Đưa vào khai thác hai dự án quốc lộ 1 hơn 3.400 tỷ đồng qua các tỉnh Tây Nam Bộ
--  Юридическият съветник на посолството на САЩ у нас говори за корупцията във Варна
--  ADB podnosi prognozy dla rozwijających się gospodarek Azji
--  أرباح الريال من دوري الأبطال
--  Зимна традиция - 14 морски автори с годишна изложба във Варна
--  Dutch parliament committed to keep supporting Ukraine after PVV election win
--  İbrahim Güneş yazdı: Yavaş CHP'yi sabote mi etti?
--  Bakanlığın motosiklet uygulamasına uymayan işletmelere ceza yağdı
+-  Soccerladuma | 'His Strengths Are...' – Tau Praised Following CAF Award Win
+-  Для граждан Таджикистана есть безопасная работа в России!
+-  Casusluğa görə Aİ-dən qovulan Rusiya diplomatı ATƏT seçki müşahidəçisi kimi Serbiyaya göndərilir
+-  Gazze katil İsrail ordusuna mezar oldu: Son çatışmalarda 5'i subay 8 siyonist asker öldürüldü
+-  Suudi haber sitesi Elaf: Rehine görüşmeleri yeniden başladı
+-  Luke Rao: Young Perth doctor tells court he lied to appease alleged rape victim, didn’t feel sorry or guilty
+-  EPL: Rooney was my worst team-mate – Rio Ferdinand
+-  كتائب القسام تستهدف دبابة في خان يونس
+-  (الفن حرام).. حلا شيحة تفجر زوبعة وتعتذر
+-  China realiza Conferência Central sobre a atividade econômica e traça planos para 2024
