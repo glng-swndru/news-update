@@ -1,51 +1,51 @@
 # Latest News
--  Bratislavská polícia upozorňuje na dopravné obmedzenia pre futbalový zápas
--  Your iPhone Is About to Get a Lot Safer Against Theft
--  Biden considers new border and asylum restrictions as he tries to reach Senate deal for Ukraine aid
--  BP denies ex-CEO Looney a $41 million payout, saying he misled the firm over work relationships
--  Looking back: Woman jumps from car to avoid being hit by train and grain elevator goes up in flames
--  Researchers unveil mechanisms behind ozone pollution in China's Yangtze River Delta
--  A volcano on Hawaii's Big Island is sacred to spiritual practitioners and treasured by astronomers
--  Civilian attacks likely to strengthen Ukrainian resistance, say researchers
--  Just In: Argentina President Javier Milei Devalues Peso by 50%
--  How To AI: Best AI Tools for Writers
--  Solana Meme Coin BONK Down 11% After Coinbase Reveals Plans to List
--  Bavarian Podcast Works: Preview Show — Bayern Munich vs. VfB Stuttgart (Bundesliga)
--  Etek calls for urgent building safety measures
--  La course VTC la plus longue: un couple rentre en Allemagne en Uber après leur visite de Bayonne
--  Italië's Cucinelli verhoogt prognose omzetgroei 2023 opnieuw
--  Italiens Cucinelli hebt Umsatzwachstumsprognose für 2023 erneut an
--  “عبدالجليل” يبحث مع وفد دنماركي سبل التعاون في الاستجابة السريعة للمتضررين من العاصفة دانيال
--  Everyone can see the grumpy old man – but you could have 20/20 vision if you can see his sleeping wife in 11 seconds
--  Soccerladuma | HT Report: Sundowns 2-0 CT Spurs
--  Si do ja vendosin emrin vajzës? Luizi dhe Kiara befasojnë me përgjigjen
--  Orban valmis kehnoon Ukraina-kompromissiin – EU-parlamentin neljä suurinta ryhmää ovat kaikki vastaan
--  «الاتحاد للطيران» تدخل عالم الذكاء الاصطناعي
--  ¡El Deportivo Pereira de Leonel Álvarez daría golpe en el mercado de fichajes!
--  إسرائيل: الحرب ستستمر "مع أو بدون الدعم الدولي"
--  Fearing Feds, Immigrants Ask For Protection
--  Rokiškyje – skraidanti Kalėdų eglė
--  Yaz saati uygulaması devam edecek mi? Bakan Bayraktar açıkladı
--  هنية: أي ترتيبات في غزة دون فصائل المقاومة "وهم وسراب"
--  الكاف يبلغ الوداد بموعد توصله بمنحة الإنقاذ؟
--  ‘Cowardly and despicable’, sheriff tells Islay man
--  Digital Business Should Advance Budgets, Service Providers, And Skills
--  Sustituirá Alondra Martínez a Carlos Hernández en el Implan
--  Video: Denuncian fraude contra Vitas y ADC Servicios Globales
--  Video: Carambola de 9 autos en el Canal por camión 'tirado'
--  ONLINE: Bohemians - Liberec 0:0, po hodině hry sudí vylučuje hostujícího Ghaliho
--  86 donneurs et un chanteur bénévole pour la dernière collecte de sang à L'Aigle
--  Hamarosan jön a Fed idei utolsó kamatdöntése
--  Ricardo Arjona Halts Touring Due to Spinal Issues: ‘I Will Disappear to Invent a Greater Motive Than This One’
--  Oprah Responded To Criticism That Drew Barrymore Was Being Inappropriately Touchy With Her
--  ప్రభుత్వ ఆస్తులను కాపాడాలి
--  Merz-Forderung sei "Mackergeste": Scholz will Vertrauensfrage im Bundestag nicht stellen
--  سباق مهرجان الشيخ زايد للتجديف و«صيد الأسماك للسيدات» السبت
--  నిషేధం ఉన్నా పట్టదా?
--  „Das perfekte Dinner“ in Lübeck – Jürgens schräger Pasta-Tipp: „Die musst du natürlich mit Pattex einschmieren!“
--  Ερυθρός Αστέρας - Μάντσεστερ Σίτι: Σκόραρε με εξαιρετικό τρόπο ο Χάμιλτον στο ντεμπούτο του στο Champions League (vid)
--  Bourgogne-Franche-Comté. « Il faut utiliser tous les leviers, de Dubaï à Dijon »
--  Pavia, detenuti in rivolta danno fuoco ai materassi: due agenti aggrediti. Sappe: “Situazione critica”
--  El aceite de freír, a la gasolinera
--  Dev şirket İtalya'ya milyonlar ödeyecek!
--  PUBG MOBILE celebra comunidade com premiação dos melhores do ano
+-  Jeu-concours XXL : vis le NBA Paris Game 2024 avec TrashTalk, à l’Accor Hotel Arena !
+-  Уночі в небі можна буде побачити надзвичайне природне явище
+-  Womöglich letzte Verhandlungsrunde für hessischen Koalitionsvertrag
+-  Söder verteidigt Israels Kampf gegen die Hamas
+-  Geldstrafe und Fan-Ausschluss auf Bewährung für Eintracht
+-  Wasserstände zum Teil gestiegen - am Wochenende Entspannung in Sicht
+-  Манчестър Сити с минимален аванс над Цървена звезда на почивката
+-  Exsubsecretaria de Vivienda declaró que “el informe se lo entregué al ministro antes que el caso saliera en la prensa”
+-  General Motors Did Not Get The Hydrogen Fuel Cell Memo, Either
+-  Počeo samit lidera EU i Zapadnog Balkana: Prisustvuje premijerka Ana Brnabić
+-  Le Sénat adopte une proposition de loi écologiste pour réattribuer aux plus précaires des voitures destinées à la casse
+-  Letterkenny Rovers U9s fundraising for ‘experience of a lifetime’ in Spain
+-  ZVEZDA – SITI Hrabri crveno-beli se isprsili pred šampionom Evrope: Projektil klinca napravio razliku, milimetri spečili Nedeljkovića da postane heroj
+-  Hertha BSC: Bundesligisten buhlen wohl um Fabian Reese
+-  Tajlandska policija zaplijenila 50 miliona tableta metamfetamina
+-  الراجحي: المملكة تسعى لتصبح وجهة لأفضل العقول في العالم
+-  Two J&K MMA fighters shine in IMMAF Asian Championship, bag bronze medals
+-  Китай и Виетнам издигнаха отношенията си до "общност със споделено бъдеще" по време на визитата на Си Дзинпин
+-  إسناد تراخيص لوكلاء السيارات: 3 قرارت جديدة
+-  Sube el dólar y escalan los precios: los primeros efectos dolorosos del shock económico en Argentina
+-  Sube el dólar y escalan los precios: los primeros efectos dolorosos del shock económico en Argentina
+-  BIVŠI NAPADAČ PARTIZANA GLEDA NA MARAKANI MEČ ZVEZDA - MANČESTER SITI: Pohvalio se na Instagramu, usledila lavina reakcija Grobara
+-  Je Robert Fico nervózny? Poslanci koalície tvrdia, že ľudia nevedia, prečo protestujú (podcast)
+-  В Египте заявили, что более 14 тыс. иностранцев эвакуированы из Газы
+-  Apple unveils new security feature to safeguard against thieves
+-  Gymnastics trials on Dec 15
+-  ডলারের দাম আরও ২৫ পয়সা কমানোর সিদ্ধান্ত
+-  Fight against terrorism - Meeting on combating Hamas (Paris, 13.12.23)
+-  Bayern Münchenilla on tilanne päällä tähtipelaajan kanssa: jatkosopimus tai jättikauppa
+-  „Das perfekte Dinner“ in Lübeck: Kandidaten, Menüs, Punkte – die Woche im Überblick
+-  FC Barcelonassa kuohuu - managerin lähtölaskenta on käynnissä?
+-  Bolivia firma acuerdo con estatal rusa por US$ 450 millones para explotar litio
+-  В Удмуртии устранили аварию, оставившую без воды поселок Балезино
+-  فريق أنتويرب يصل ملعبه قبل مواجهة برشلونة
+-  Jimmy Barnes’ wife gives update after star’s emergency heart surgery
+-  Browns place Grant Delpit on IR
+-  دعم توظيف 330 ألف سعودي بالقطاع الخاص خلال 10 أشهر
+-  Francia promete una sede libre de impuestos en un plan para atraer a la FIFA
+-  Indian Exporters On Amazon Global Selling Witness 80% Surge During Black Friday And Cyber Monday Sale
+-  Govt Introduces Bill To Amend Central Goods And Services Tax Act In Lok Sabha
+-  PI Industries Faces Stock Decline Despite Growth Guidance, Rainbow Agro's Entry Amplifies Market Competition
+-  COP28 Presidency Urges Ministerial Support For Urban Climate Action
+-  State-owned Manganese Producer MOIL To Form Joint Venture For Mining In Gujarat
+-  Defence Ministry Approves Rs 2,800 Cr Rockets For Pinaka Weapon System
+-  Enrolments Under Atal Pension Yojana Cross 6 Cr Mark
+-  Indices Recover From Day’s Low On Wednesday Ahead Of Fed Meeting
+-  MDL Submits Bid For Over Rs 20,000 Cr Project To Build 3 New Kalvari Class Submarines
+-  China, Vietnam Hail Upgrade Of Ties; Agree To Boost Security Efforts
+-  KVADRAT IDE DO 9 HILJADA EVRA: Ovo mesto u komšiluku proglasili top lokacijom za 2024
+-  „Rende“: Pripremamo reizdanje „Palestine“ zbog velikog interesovanja
