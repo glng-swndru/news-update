@@ -1,11 +1,51 @@
 # Latest News
--  What is an RIA & How it Can Help Your Biz
--  How the Exposure of Asbestos Can Affect Your Health Long Term
--  How to Decrease the Chance of Mold Growing After a Flood
--  SAV: Thông báo giao dịch cổ phiếu của tổ chức có liên quan CT E-land Asia Holdings Pte. Ltd
--  TDF: Nghị quyết Hội đồng quản trị
--  Élections 2023 : « Notre Kasaï a été abandonné », Félix Tshisekedi à Mbujimayi
--  SBR: Tài liệu họp Đại hội đồng cổ đông
--  Ủy ban Chứng khoán Nhà nước: Hoàn thiện khung khổ pháp lý cho thị trường chứng khoán
--  VTG: Nghị quyết Hội đồng quản trị
--  ILA: Nghị quyết Hội đồng quản trị
+-  카카오, 단독대표에 정시아 카카오벤처 대표 내정
+-  한국전문신문방송인연합회, 12일 연말 결성 완료
+-  14일부터 외국인 투자자 등록제 폐지..외국인 투자 접근성 제고
+-  남명건설 부도에... 김해 임대아파트 임차인 피해 우려
+-  Во владимирском онкодиспансере появился второй линейный ускоритель
+-  จำคุก 3 ปี "ไบรท์-ชินวัตร" คดี 112 เหตุปราศรัยม๊อบปี 63
+-  “ชุมชนสร้างโรงเรียน โรงเรียนสร้างชุมชน” ทางเลือก-ทางรอดการศึกษา
+-  Cambodia's Women Tuk-tuk Drivers Fighting Prejudice
+-  В Вязьме нашли артиллерийский снаряд
+-  UCL: Newcastle hadapi cabaran sukar
+-  «Попрошайка из Киева»: Антонов подвел итог визита Зеленского в США
+-  UN Adopts Resolution Demanding Humanitarian Ceasefire in Gaza
+-  Entre Gérald Darmanin et Les Républicains, du retour de flamme au retour de bâton
+-  China Shows Off Homegrown C919 Jet In Hong Kong
+-  Siap-siap Seleksi CASN 2024 Dibuka Luas untuk Fresh Graduate, Berapa Formasinya?
+-  Nghệ sĩ 64 tuổi vừa được phong NSƯT: Độc thân, ở nhà thuê, có em trai nổi tiếng
+-  PSG : C’est terminé pour une star de Deschamps ?
+-  Xuất khẩu kỷ lục và những điểm nghẽn của lúa gạo Việt Nam
+-  A magas kockázatok ellenére a vezető vállalatok zöme aktívan használ mesterséges intelligenciát
+-  Việt Nam sẽ phải đối mặt nhiều hơn với các kịch bản lừa đảo do ChatGPT và DeepFake
+-  EE UU comienza las inversiones públicas para impulsar su capacidad de fabricación de chips
+-  Prep hockey roundup for Tuesday, Dec. 12
+-  Армия обороны Израиля сообщила о гибели 113 человек в ходе наземной операции
+-  이준호, 2024년도 화려하게 시작…1월 단독 솔로 콘서트 '다시 만나는 날' 개최 [공식]
+-  전북경찰청 간부, 타지역서 역주행 음주운전하다 적발
+-  지금 디자이너들이 푹 빠진 벨트
+-  संविधान खराब भन्ने नकारात्मक भाष्य निर्माण नगरौँ : सांसद पन्थ
+-  काठमाडौँ महानगरपालिकामा सुर्तीजन्य पदार्थ बिक्रीमा प्रतिबन्ध
+-  Tiga ditahan tapi tiada kaitan bunuh Zayn Rayyan
+-  এআইবিএল মুদরাবা পারপেচ্যুয়াল বন্ডের ট্রাস্টি সভার তারিখ ঘোষণা
+-  이정후, 1억1300만달러 계약에 日 반응 “하위타순에 들어갈 타자인데”
+-  Remaja lelaki maut kereta rempuh belakang lori
+-  Por amplia mayoría, Asamblea General de la ONU favorece un alto al fuego en Gaza
+-  신보, ‘2023년도 데이터산업진흥 유공 대통령 표창’ 수상
+-  Prediksi Borussia Dortmund vs PSG di Liga Champions Malam Ini: Jadwal, Berita Terkini, H2H, Perkiraan Formasi
+-  تقرير: القطب الشمالي شهد أحر صيف هذا العام منذ بدء القياسات
+-  Sunak survives vote on bill to send migrants on one-way trip to Rwanda
+-  Sunak survives vote on bill to send migrants on one-way trip to Rwanda
+-  Sunak survives vote on bill to send migrants on one-way trip to Rwanda
+-  HSU cements historic pay deal for NSW paramedics after threat to cripple triple-0
+-  ‘전기먹는 하마’ AI 때문에...MS, 원전 키우기 나섰다
+-  আইএমএফের ঋণের দ্বিতীয় কিস্তির অর্থের অনুমোদন
+-  A food revolution is happening in the land of ‘fush and chups’
+-  A food revolution is happening in the land of ‘fush and chups’
+-  Андреев: «Смена главного тренера повлияла на результаты «Оренбурга»
+-  Sulit Menang Saat Main di Kandang, Bojan Hodak Bantah Karena Tekanan Bobotoh
+-  TikTok Kuasai Tokopedia, Apa Dampaknya Bagi UMKM RI?
+-  হঠাৎ অসুস্থ ডিপজল, হাসপাতালে ভর্তি
+-  Kanye West's $600-ticketed listening party for new album can now be streamed for free
+-  Антонов заявил, что оружие США "расползается" по миру из-за украинской коррупции
