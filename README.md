@@ -1,51 +1,51 @@
 # Latest News
--  Moment two 'XL bullies' run loose on street, jump at woman's car and try to attack another pet dog before police seize the animals
--  Grocery price hikes expected to stop next year, but prices unlikely to fall
--  تسريب وثائق سرية واستياء مسؤولين أمريكيين .. ماذا يحدث؟
--  مختص تقني يحذر من برنامج خطير على أجهزة آيفون يشارك صورك مع الآخرين
--  شاهد.. جريان سيول الحريضة في تهامة عسير
--  Leonardo DiCaprio enjoys a night of partying with Lottie Moss at London's Chiltern Firehouse - 30 years after he dated her sister Kate
--  Israelis say Hamas must be crushed despite Gaza casualties, UN rebuke
--  Emily Ratajkowski wears a puffy jacket over a green sweat suit in NYC... after revealing plans to write a book about divorce from Sebastian Bear-McClard
--  Drugi ciklus crnogorskog studenskog filma
--  Argumenti
--  Kyogo Furuhashi returns to Celtic line-up for Champions League clash with Feyenoord
--  Educación propone prohibir los móviles en horario lectivo en Primaria y la ESO
--  Autos: se espera fuerte suba de los precios y caída de las ventas
--  Mask universitet açmağı planlaşdırır
--  Jesper Björkman har blivit pappa: ”Fantastiskt”
--  В Бундестаге призвали Берлин наложить вето на диалог с Киевом о членстве в ЕС
--  Schlechtes Jahr an der Börse: Rentenfonds stürzen ins Minus - Deutschland verliert relativ wenig
--  ABD'li e-ticaret şirketi Etsy çalışanlarının yüzde 11'ini işten çıkaracak
--  La Escuela de Enfermería de Cartagena tendrá plena autonomía universitaria
--  Danicka Bergeson’s ex faces upgraded murder charges over grisly death days after he was released for earlier attack
--  HSC, ATAR results 2023 LIVE updates: NSW Year 12 students receive end of year results
--  New Chinese carmaker Omoda confirms 8 models coming to NZ
--  Dugo nitko nije tako lijepo pričao o Mamiću kao Tarzan! Najgore je što slično misle mnogi na ovim prostorima...
--  Sanction, renforts... Les promesses de Gabriel Attal au collège d'Issou se précisent
--  Bradley Cooper und "Maestro": Dem Blick auf das Genie fehlt etwas
--  Gebrauchtes kaufen und Gutes tun
--  Spielen beim Streamer: Welche Möglichkeiten "Netflix Gaming" bringt
--  Versöhnung ging nicht viral
--  Klimamythen im SN-Faktencheck: War es in der Arktis heuer sogar zu kalt?
--  Mangel an Corona-Arznei: Es wurde zu wenig bestellt
--  copfdg fdgfd
--  Arnold-Schönberg-Jahr: Neues Hören für Zwölftöniges
--  Sternschnuppen-Höhepunkt steht bevor
--  Der Volks-, der Reform- und der Bundeskanzler
--  Claudia Riegler verlässt ihre Komfortzone
--  Spannung beim schnellstenDebütantenball
--  Geht auch Vucics Mehrheit flöten?
--  Weltklimakonferenz: So reagierten Wissenschaft, Wirtschaft und Umweltschützer auf die Ergebnisse
--  In der Klause geht der Knopf auf
--  Andaba 'pisteando' en calles del Centro
--  Invitan a asistir al Sendero Navideño
--  Aprueban licitar segunda etapa del Campus Isscuu
--  Reportan saldo blanco en operativo en Santuario de Guadalupe
--  Son dakika: Şans Topu çekilişi sonuçları belli oldu! 13 Aralık 2023 Şans Topu bilet sorgulama ekranı!
--  كيف تؤثر الضوضاء على الأطفال؟
--  أطعمة مفيدة وأخرى ضارة للدماغ!
--  واشنطن: السلطة الفلسطينية ليست بوضع يسمح لها بإدارة غزة
--  Kanzler bei „Farbe bekennen“ - Scholz findet Ampel-Deal „ziemlich gut“ - das Fazit des ARD-Mannes ist knallhart
--  REPORTAGE - Le Français le plus protégé au monde : regardez comment le GIGN veille sur notre ambassadeur à Bagdad
--  Etiyopya'da 176 kişi açlıktan hayatını kaybetti
+-  Estas son las 10 series más vistas de Netflix de enero a junio de 2023
+-  UGT y CCOO convocan ocho jornadas de huelga en Iberia en Navidad
+-  Sergej Jakirović najavio susret protiv Kosovara: “Krećemo punim gasom!”
+-  Hasil BWF World Tour Finals 2023: Wakil Indonesia Tampil Impresif di Hari Pertama
+-  وزير الدفاع الإسرائيلي: الكتيبة 13 في لواء جولاني فقدت الكثير من مقاتليها
+-  Texas Abortion Ruling in Kate Cox Case Keeps Doctors Fearful
+-  В ЕС оценили шансы начала переговоров о вступлении Украины в 20-30%
+-  Лацио отнесе сурова глоба заради феновете си
+-  NGX: Investors gain N214bn as market index crosses 72K mark
+-  Reconocen con la Orden Frank País de Primer Grado a destacado profesor espirituano
+-  Vere i zavere
+-  8 Unusual Montreal Poutine Spots Where You'll Want To Stuff Your Face
+-  Треньорите на Яник Синер №1 на ATP за годината
+-  Reportan avistamiento de un venado desorientado en residencial de Nuevo Cuscatlán
+-  Save $40 on the Samsung SmartThings Station
+-  Petitie gestart om wielerbaan Sportpaleis Alkmaar te behouden
+-  Tehlike adım adım geliyorum dedi! Başkent'teki skandala zemin hazırlayan olaylar...
+-  Poštanski ured Djeda Mraza u Rijeci
+-  ¿River o Boca? En ESPN analizaron qué equipo tuvo la mejor temporada en 2023
+-  This household standard can't be sold in New Jersey anymore
+-  There's a reason why Costco's layout changes constantly — and it's not just to trick you into buying more stuff
+-  Hilary Duff ponosno pokazuje trudnički trbuh
+-  Schlagwerkzeuge! - Bundespolizei hält PSG-Fans auf
+-  Lakko vaikuttaa myös kotiutuviin varusmiehiin – osalla voi olla edessään ylimääräinen yö kasarmilla
+-  La crítica de Monegal: Marcianos, memoria selectiva, ¡lo más bonito!
+-  В Одесі в обіг запустили марку, присвячену захисникам півдня України
+-  Policija došla u školu i kod trojice učenika pronašla drogu
+-  Mε Καστέλ και Κίκο πήρε το… εισιτήριο για τον επόμενο γύρο
+-  ‘Do not swim’: Warning at Auckland beaches due to wastewater contamination
+-  Homem com diploma falso de medicina é preso em Florianópolis
+-  SIJARTO JASAN: Mora postojati jasna razlika između izbeglica i ilegalnih migranata
+-  Enerji Bakanı Bayraktar'dan 'yaz saati' açıklaması: Uygulanmaya devam edilecek
+-  Трамп распродает по кусочкам свой костюм, в котором он был при аресте
+-  Väite: Tom Cruise rakastui venäläis­poliitikon lapseen
+-  Recordings describe Oval Office briefing on fake electors, Jan 6
+-  Iztapalapa Mural program transforms gray into bursts of color
+-  "T'as quoi à cacher?" vs "Enlève ce déguisement, tu ressembles à ton père!": le dialogue hallucinant entre Monique Olivier et son fils devant le tribunal
+-  Match Report: Με Καστέλ και Κίκο άνετο πέρασμα στους «16»
+-  Kampin ampumisen vyyhdissä uusi rikosepäily
+-  తరగతిగదిలోకి దూరి.. విద్యార్థిపై కోతుల దాడి
+-  باحث إسرائيلي: نحن بعيدون عن إسقاط حماس والمقاومة ستستمر حتى بعد اغتيال السنوار
+-  هنية: هذه المعركة البطولية الدائرة في غزة تقترب من نهايتها
+-  سيناتور أمريكي: القصف الإسرائيلي على غزة بقذائفنا يجعلنا شركاء في هذه المجزرة
+-  "غدر وخداع" 3 أبراج عليها الحذر في بداية العام الجديد
+-  حدث في 8 ساعات| عودة العمل بتخفيف الأحمال "ساعتين".. وزيادة الوقود لغزة
+-  Ξεμπέρδεψε με τον Διγενή και περιμένει αντίπαλο ο Οθέλλος (pics)
+-  أمريكا: نية إسرائيل تقليل الإصابات بين المدنيين لكن الواقع أن الآلاف منهم قتلوا
+-  "الأرصاد" تكشف حالة الطقس غدا الخميس.. شبورة كثيفة
+-  Playground in Tuam to remain closed due to Mother and Baby Home excavations
+-  ఆదర్శ పాఠశాలలో ఆధిపత్య పోరు
