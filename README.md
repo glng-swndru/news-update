@@ -1,51 +1,11 @@
 # Latest News
--  عربيات : تنشيط السياحة ستعمل على توظيف الذكاء الاصطناعي بعملها
--  الإعلام المصري يكشف النتائج الأولية للانتخابات الرئاسية في مصر
--  Soccerladuma | Zinnbauer's Raja Only Willing To Play Casablanca Derby On One Condition
--  Uzmanından açıklama: Diyette doğru bilinen yanlışlar
--  Trabzonspor'un gol yollarındaki silahları
--  Nedim Şener yazdı: Gazze kasabı Netanyahu!
--  Fenerbahçe, Avrupa arenasında 266. maçına çıkıyor
--  Juric ritrova Linetty, ma il polacco non è più certo del posto
--  Erdoğan'dan sürpriz görüşme
--  ‘창단 첫 아시아 무대’ 가는 광주, 이정효 감독과 재계약... 2027년까지
--  Nation Brands Index: 2023 report for Northern Ireland
--  Historic deal struck at COP28 to transition away from fossil fuels
--  Heat : Tyler Herro de retour la semaine prochaine ?
--  Les Washington Wizards pourraient déménager dans le nord de l’Etat de Virginie
--  Match EST vs UST : Ou regarder le match de l’Espérance de Tunis vs US Tataouine du 13 décembre ?
--  76% מהארגונים מתכננים להגדיל את הוצאות ה- IT שלהם בתחום ה-Generative AI
--  "חלאילי וחג'ג' לא עוזרים בהגנה, זו נקודת התורפה של מכבי חיפה"
--  My Dearest Actors Namkoong Min, Ahn Eun-Jin To Appear on JTBC Show Knowing Brothers
--  Adam Nawałka potwierdza rozmowy z klubem. „Sympatyczna konwersacja”
--  聯亞新冠疫苗即將上市之際！王長怡母女經營權之爭再起
--  URA predlaže uvećanje svih penzija za 153 eura
--  Security personnel reminded to renew licences by January 31
--  নির্বাচন করতে এসেছি, নাটক করার জন্য আসি নাই: জাপা মহাসচিব
--  Valdība piešķir nepilnus divus miljonus eiro dabas stihiju radīto postījumu likvidēšanai Jēkabpilī un Cēsīs
--  TUTO lähetti lisäselvitykset liigalisenssiin – apua löytyi yllättävältä taholta
--  Dale Hausner and Samuel Dieteman: What did they do & Where are they now?
--  Romkom-koning Hugh Grant speelt een Oempa Loempa: ‘Het was verschrikkelijk!’
--  Argentina: Devaluation and austerity measures announced
--  افتتاح الدورة 12 من المهرجان الدولي لفيلم الطالب بالدار البيضاء
--  Zara owner Inditex reveals 14% sales jump ahead of Christmas
--  Argentina: Devaluation and austerity measures announced
--  Argentina: Devaluation and austerity measures announced
--  Argentina: Devaluation and austerity measures announced
--  Fahmi: MCMC identifies sources of fake message on withdrawing diesel subsidies, information to be handed to police
--  Poor maintenance to blame for sick buildings
--  Argentina devalvuje svou měnu proti dolaru o 50%
--  Oppo Find X7 Pro Kamera Özellikleri Ortaya Çıktı
--  وفد «العمل» و«الخارجية» الفيلبيني زار مركز الإيواء صباح اليوم
--  Mercado 2024: los detalles del contrato de Gonzalo Piovi como refuerzo de Cruz Azul
--  Božićne transakcije: U Hrvatskoj kartice postale popularije od gotovine
--  Schwerer Autounfall im Oberbergischen Kreis: Drei Tote nach Kollision mit Baum
--  Metro Manila LGUs deny unpaid dues to MMDA
--  China Life Insurance Market Trends Report 2023-2028: Emergence of Online Distribution Channel, Rapidly Increasing Aging Population, and Increasing Financial Literacy Boosting Growth
--  Patriots Special Teams Report: Blocked punt a wake-up call for the struggling unit?
--  Google Pixel 8 Pro - mestersége(s) az intelligencia
--  Call to change legal agreements to help first-time buyers in Pembrokeshire
--  Weihnachtsessen zum Mitnehmen: Gans to go oder ganzes Menü? Wo Sie in Dortmund noch bestellen können
--  Beşiktaş'tan Lugano maçı öncesi sakatlık açıklaması!
--  수원시내 한 병원에서 흉기 휘두룬 간병인 체포
--  Video games trade show E3 permanently cancelled by organisers
+-  انخفاض أسعار الخيار وارتفاع الملوخية والليمون بسوق العبور اليوم
+-  Beşiktaş, Avrupa’daki 242. sınavına prestij için çıkacak
+-  Adalet Bakanı Tunç, Azerbaycan-Türkiye Parlamentolararası Dostluk Grubu üyelerini kabul etti
+-  Beşiktaş, Avrupa'ya İsviçre'de veda edecek
+-  Niğde'de içecek fabrikasında facia: 2 işçi hayatını kaybetti
+-  Göksu'dan İmamoğlu'na zor soru: 127 milyar lira CHP Kongresi'nin dizaynında mı kullanıldı?
+-  Almanya'da Türkiye paniği: Erdoğan yanlısı bir parti kurulabilir
+-  Kocaeli'de tekne battı: Olay yerine çok sayıda ekip sevk edildi
+-  Bakan Kacır: Süper bilgisayar devreye alınacak
+-  Saint-Nicodème en guerre contre son ancien architecte, le maire de Saint-Connan Jean-Yves Philippe
