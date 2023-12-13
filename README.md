@@ -1,51 +1,51 @@
 # Latest News
--  El Llevant saca a las calles el espíritu navideño
--  El pacto con Bildu en Pamplona dinamita los puentes de entendimiento entre Gobierno y PP
--  New CCTV shows missing mum Gaynor Lord running from work before spending 30 minutes at cathedral as timeline revealed
--  Luottamus Xi Jingpingin hallintoon rakoilee Kiinassa, sanoo pääekonomisti – Asuntojen hinnat tulevat vauhdilla alas
--  ป.ป.ช.ขอนแก่นอบรม “เยาวชนต้านทุจริต” หลักสูตรระยะสั้น เพิ่มโอกาสศึกษาต่ออุดมศึกษา
--  Fueron estafados, acudieron a la «Reserva Federal Cripto» y los volvieron a estafar
--  위시컴퍼니, 블프 매출 36% 상승…미국서 역대 최대 성과
--  스타트업부터 글로벌 플랫폼까지~ 뷰티산업 주역 한자리
--  닥터포헤어, 2023 올리브영 어워즈페스타서 '오리지널 랩' 오픈
--  한미약품 박재현 대표이사 빙부상
--  한국화이자제약, 건강‧가족친화기업 인증 획득… ESG 경영 강화
--  연세굿데이치과 박정철 원장 'AI 활용 임플란트 보철제작' 강연
--  심평원 학술지 'HIRA Research' 한국연구재단 등재후보지 선정
--  보건산업진흥원, 내부통제 인식강화 교육 실시
--  순천향대천안병원 송준환 센터장, 보건복지부장관 표창 수상
--  의협, 원각사에서 '따뜻한 마음 한 끼 나눔캠페인' 전개
--  건보공단, 공공브랜드대상·2023 올해의 광고PR상 수상
--  삼성서울병원, '건강친화기업' 인증 획득
--  서울성모병원 나도현 임상강사, 희귀질환 국제학술대회 '최우수 초록상' 수상
--  이대서울병원, 전립선암 PSMA PET/CT 검사 도입
--  레이저옵텍, 하나금융23호스팩과 합병 승인
--  건보공단, '데이터 산업진흥 유공기관' 선정
--  엘지유니참, 구미공장에 태양광 패널 "그린에너지 공급"
--  복지부, "전공의 근무시간 현실화 등 수련환경 개선"
--  캐논메디칼, 부산·대구 지역 '공식 초음파 파트너사' 모집
--  서울재활병원-울산과학기술원, 재활의료플랫폼 서비스 공동 연구 '맞손'
--  안전한 복강경 간절제술 위한 기증자 선별 기준 '입증'
--  "몰래 뛰는 부정맥, '확장심전도모니터링'으로 잡는다"
--  Mulher é encontrada morta com arame no pescoço e marcas de facadas em Joinville
--  U Federaciji BiH metalska i elektro industrija u velikim problemima
--  Se oli sitten siinä: Juhamatti Aaltosen sopimus on purettu
--  Problemos su karine pramone. Žlugo planai dėl Tu-214. Kas vyksta
--  [ŽT] „Čia mūsų broliškas kapas - tiek gerų vaikinų žuvo. Štai ką daro karas“ (Video)
--  [ŽT] „Jie išprotėjo!“ Rusų tėvai puolė į isteriją pamatę, kuo darželis apdovanojo vaikus (Foto, Video)
--  [Rekordinė kaina] „Ši 5.1 garso sistema fantastiška. Žiauriai galingi žemi, 360° erdvinis garsas, superinis valdymas ir nuostabi kaina“ (Video, „Ultimea Poseidon D60“)
--  Archeologai aptiko „jaudinantį“ radinį – sako, gali tekti perrašyti vikingų istoriją (Foto)
--  [ŽT] 30 mln. peržiūrų! „Google“ įvardijo populiariausias užklausas per 25 metus. Epinis video
--  „Zelenskis nebe didvyris, ir daug kam nebepatinka“
--  [ŽT] Ukrainoje atkurtas unikalus tankas „Object 14“. Kas žinoma (Foto)
--  Главный судебный пристав региона проводит прием туляков 18 декабря
--  Bitlis'te iş yerinde yangın: Malzemeler çöp oldu
--  Ö-vikssonen får SHL-kontrakt
--  Manchester United loses 1-0 to Bayern Munich and crashes out of the Champions League
--  Créathon TACIR-Tunis du 16 au 18 décembre à Dar Bach Hamba sis la Médina de Tunis
--  Abraj signs deal with TotalEnergies to provide drilling services in Block 12
--  Ехавший в Москву автобус с костромскими учителями врезался в грузовую фуру
--  Team USA affrontera le Soudan du Sud et l’Allemagne à Londres avant les Jeux Olympiques
--  Otomobil istinat duvarına asılı kaldı
--  Bez dogovora Vlade i Sindikata prosvjete oko povećanja plata
--  “Përafrojmë legjislacionin me BE”, Balluku: Synojmë dixhitalizimin e procesit të prokurorimeve
+-  Brindará IMPAS servicios en periodo vacacional
+-  News24 | Rebels in eastern DRC agree to ceasefire, raise odds of credible December elections
+-  Star Ocean: The Second Story R
+-  سماء مصر على موعد مع 120 شهابا في الساعة.. استمتعوا بأفضل زخات العام
+-  Saldırıya uğrayan hakem Halil Umut Meler, İzmir'deki evine ulaştı duygu dolu anlar yaşandı!
+-  Francia Márquez pide ayuda mundial para la crisis de refugiados que vive el país
+-  تشييع جنازة زوج وزيرة الثقافة السابقة بحضور شخصيات عامة (صور)
+-  التعليم العالي: إدراج 18 جامعة مصرية بتصنف كيو أس العالمي للاستدامة لعام 2024
+-  وزير الزراعة يبحث الاستعدادات القائمة لزراعة العروة الشتوية
+-  وزيرة البيئة تهنىء الإمارات على نجاح مؤتمر المناخ (COP28)
+-  القسام وسرايا القدس ينصبون كمينًا مشتركًا لجنود إسرائيليين
+-  التحقق في مشاجرة بوسي وطليقها داخل فندق بالتجمع الخامس
+-  أحمد عيسى: مصر تضع صناعة السياحة على رأس أولوياتها
+-  الجيش الإسرائيلي: معارك قوية مع المقاومة مستمرة في الشجاعية
+-  "الصحفيين" تنظم وقفة احتجاجية تنديدًا بالعدوان على غزة ورفض مخطط التهجير
+-  "تخيلت هدفي في الهلال قبل المباراة".. كهربا يتحدث عن طموح الأهلي في مونديال الأندية
+-  سقوط 8 شهداء برصاص الاحتلال الإسرائيلي في جنين
+-  "أنا مندهش".. كريستيانو رونالدو ينشر هذه الصورة ويعلق
+-  Summoning Hope: Journeying from Foreign Shores to the Hospital – A Prayerful Tale
+-  Bride’s Emotional Gratitude to Step-Mother on Wedding Day Melts Hearts Online
+-  Polish kickboxer Wrzosek possibly targeted in failed assassination attempt in Breda
+-  هيئة النزاهة: نسبة الفساد في القطاع العام متدنية
+-  اسعار الذهب في الاردن تواصل الانخفاض
+-  الإحصاءات: 46.283 صافي فرص العمل خلال النصف الثاني من 2022
+-  بدء تقديم طلبات الاستفادة من بعثات ومنح وقروض جامعية داخلية الأحد
+-  الفايز يعزي عشائر المومني
+-  الصفدي يلتقي نظيره الايراني
+-  Aksaray’da muhtelif suçlara karışan 205 kişi hakkında adli işlem yapıldı, 13 kişi tutuklandı
+-  Tüm çiftçileri ilgilendiriyor: Son başvuru tarihi 2 Ocak!
+-  E-Home Household Services Holdings Limited Signs New Property Cleaning Contracts with a Total Value of Over RMB 19 Million in the 4th Quarter of 2023
+-  Senmiao Technology Announces Ride-Hailing Platform Operating Metrics for November 2023
+-  WAT Medical Joins World's Largest Boat Show
+-  JSAUX KICK-STARTS IT'S CHRISTMAS EVENT
+-  Avature Secures Three Golds in Brandon Hall's Excellence in Technology Awards
+-  Immunocan Provides Update on Business Operations, Highlighting Launch of New Gene-edited Mice Generating Fully Human Heavy-chain-only Antibodies and Advances in Partner Pipeline
+-  Loyalty Juggernaut (LJI) Recognized in the 2023 Gartner® Market Guide for Loyalty Program Vendors
+-  COP28: Angel Yeast's Environmentally Friendly Yeast Protein Empowers Sustainability Development
+-  iClick Interactive Asia Group Limited Reports 2023 Half-Year Unaudited Financial Results
+-  Slovensku hrozia stámiliónové sankcie, ak v rozpočte nebudú zohľadnené výdavkové limity
+-  Płyta „z pozdrowieniami od Ziobry”. Tak Bodnar został przywitany w Ministerstwie Sprawiedliwości
+-  Płyta „z pozdrowieniami od Ziobry”. Tak Bodnar został przywitany w Ministerstwie Sprawiedliwości
+-  Former Tennis Star David Nalbandian Faces Legal Action Over Hidden Camera Accusations
+-  Novia de “Maldito Cris habría contratado a 5 sicarios para asesinar a jefe de la Policía de Perú: ‘Morocota’, ‘Pirueta’, ‘Catarro’ y ‘Cinco Minutos’
+-  U sudaru lakše povrijeđene dvije osobe
+-  Antalya'da öğrenciyi merdivenden ittiği öne sürülen okul müdürüne 9 bin lira ceza
+-  İBB seçim öncesi 150 milyon avro dış borçlanmaya gidiyor
+-  Bakan Yumaklı duyurdu: Öğretmenlere 'su verimliliği' eğitimi
+-  İngiltere'nin İsrail'e silah satışları Yüksek Mahkemeye taşındı
+-  SON DAKİKA HABERİ | Kafes-18 operasyonunda flaş gelişme! Yeşilçam’ın tanınmış ismine uzandı: Gözaltına alındı
+-  Tiefgründiges vor Weihnachten
