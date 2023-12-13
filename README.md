@@ -1,51 +1,51 @@
 # Latest News
--  تقنيات حديثة لخدمة ضيوف الرحمن بالمسجد الحرام
--  Санкции против России не работают? А как же коллапс алюминиевой промышленности?
--  США предают своих союзников: Израиль и Азербайджан
--  디펜딩챔피언 외인 주포 부상 이탈, 그런데 언제 돌아올지 모른다 '교체 카드 꺼낼까'
--  '생일마다 기부한다는' 오마이걸 아린, 어느새 누적금액 1억원 [공식]
--  티니핑월드, 판교 파미어스몰에 오픈…“티니니핑 코스프레도 가능”
--  '조립식 가족' 황인엽·정채연·배현성, 라인업 공개…청춘스타 다 모였네 [공식]
--  AC 밀란 고마워→신이 도운 이강인의 PSG 챔스 16강행
--  KB금융, 무역협회와 ‘글로벌 PoC 프로그램’ 참가 스타트업 선정
--  La dura advertencia del senador libertario que se enojó con Villarruel: "El que las hace, las paga"
--  Heiltsuk family renews call for police discipline 4 years after handcuffing at B.C. bank
--  Orthodontics company SmileDirectClub shuts down
--  Vereadores de Florianópolis aprovam aumento de 48% nos próprios salários
--  5 of the best HBO documentaries you can watch right now
--  Alcalde Pinedo participa en segundo ciclo de inducción para autoridades territoriales en Cali
--  Mila Kunis is seen for the first time in nearly two MONTHS as she models a Christmas sweater... after being slammed for defending Danny Masterson
--  Procuraduría suspendió a exalcalde de Sincelejo por desatención de sus deberes
--  Ako to mohli dopustiť? Slovenský kaštieľ bol klenotom architektúry, dlho už stáť nebude
--  Trasú sa vám ruky alebo často padáte? Môže ísť o vážne ochorenie, ktoré sa prejavuje najmä po 50-ke
--  RECENZIA Vyskúšali sme automatický prekladač Vasco: Oplatí sa na dovolenku aj na vianočné trhy
--  Le Congrès américain ouvre formellement une enquête en destitution de Biden
--  Jennifer Aniston gets in the holiday spirit by decorating her Christmas tree with mini products from her hair care line LolaVie: 'Who needs ornaments?'
--  Cruz Azul anuncia a Iván Alonso como nuevo director deportivo
--  Police donate 1,000 tonnes of fake designer gear to the homeless after huge counterfeit raids
--  Fiscalización se ‘abre paso’ al juicio político a la fiscal Diana Salazar
--  [뉴욕증시] 美 내년 금리 인하 기대에 연고점 갱신하며 상승 마감
--  한화 건설부문, 동반성장지수 '최우수 기업'
--  검찰, '캄보디아 공무원 로비' 혐의 김태오 DGB 회장 징역 4년 구형
--  [부고]조경순(전 대신증권 전무)씨 부친상
--  롯데호텔 서울, 이웃사랑 실천…김치 800㎏ 전달
--  [08:29 가상자산] 美 내년 금리 인하 기대에 상승세
--  [부고] 엄윤찬(우정사업본부 사무관)씨 모친상
--  국제라이온스협회 354-C지구, '사랑의 라면' 나눔
--  한솥도시락, 12월 ‘착한도시락’ 기부 행사 진행
--  Brendan Rodgers elated after Celtic finish lengthy await Champions League win
--  استطلاع رأي: تضاعف نسبة تأييد حماس بالضفة ورفض واسع لعباس
--  Dow hits a record as Wall Street rallies after Fed signals rate cuts in 2024
--  Trump denies media article on NK negotiation plan as 'fake news'
--  Ohio Senate approves bans on gender-affirming care, transgender athletes
--  Santa Elena: Balean a hombre a pocas cuadras de un retén de la Policía, víctima estaba 'limpia'
--  AB, Batı Balkan ülkeleriyle daha fazla iş birliği hedefliyor
--  Après la désillusion de la Coupe du monde, le XV de France cartonne
--  Toronto FC draft choice Charlie Sharp a finalist for MAC Hermann Trophy
--  Toronto FC draft choice Charlie Sharp a finalist for MAC Hermann Trophy
--  CCJ do Senado aprova indicações de Dino e Gonet; escolhas de Lula seguem ao plenário
--  美國科技股收紅，蘋果股價創歷史新高
--  Austerität: «Die Geschichte lässt sich als Waffe gebrauchen»
--  Züri West: Soll nur kommen
--  Party ohne Gewalt: «Wir machen den Leuten nicht ihr Leben kaputt, sondern höchstens eine Nacht»
--  Machtmissbrauch im Spital: Was im OP passiert, bleibt im OP
+-  美 연준, 내년 금리 0.75% 인하 제시...한국 금리는?
+-  KB국민은행, 국토부-HUG와 '전세사기 피해자 지원' 협약
+-  전입신고날 담보대출 받는 집주인 차단…국토부, 6개 은행과 협약
+-  보이스피싱 확실한 예방법…'늘' '꼭' '또'
+-  식약처, 메가커피 '미니언즈 빨대' 수입업체 행정처분 절차
+-  اطلاق نار على فرع ستاربكس في اضنة التركية - فيديو
+-  Thúc đẩy kết nối xuất khẩu nông sản Bình Phước
+-  Áp dụng chuyển đổi số trong sản xuất mang lại hiệu quả cao tại TSHPCo
+-  Petimex tổ chức Đại hội đồng cổ đông nhiệm kỳ 2023 – 2028
+-  Woman Who Defied Alzheimer's Could Show Us How to Avoid It
+-  Zayn Rayyan dibunuh: Polis jumpa stoking, dipercayai boleh jadi petunjuk
+-  «La autocensura no la trabajo de momento»
+-  Modifican criterio para calificar a finalistas por consejerías de Ichitaip
+-  "สมรักษ์" พบตำรวจ ปฏิเสธทุกข้อกล่าวหา ขอโทษชาวไทย-ครอบครัว
+-  [스한:BOX] '서울의 봄' 22일 연속 1위 독주…누적 755만 관객 동원
+-  ‘나는 SOLO’ 데프콘, “피지컬-비주얼 다 몰려"…역대급 조합 감탄
+-  [지난밤TV] '신랑수업' 김동완, 서윤아와 소개팅 "크리스마스에 뭐하세요?"
+-  임영웅, 14일 고양 콘서트 티켓 오픈
+-  كيف رد بايدن على فتح تحقيق بمجلس النواب لعزله؟
+-  Olivia Rodrigo Comforts Cher Backstage at NYC Jingle Ball After the 'Believe' Singer 'Screws Up'
+-  Notre-Dame-des-Neiges office workers' union reaches deal to end 15-month strike
+-  Celebrity chef, GUY FIERI, worth $70m says he won’t give any of his wealth to his children when he dies and they will pay for his funeral from their pockets
+-  Daddy Yankee y Don Omar se reconcilian
+-  У Білому домі розповіли про ситуацію зі схваленням допомоги для України
+-  Penduduk waspada masih berjaga-jaga ancaman banjir
+-  Manchester City Sempurna, RB Leipzig Taklukkan Young Boys
+-  Pulihara jambatan kereta api 100 tahun berpotensi tarik pelancong
+-  Maryland Gov. Moore calls Orioles lease deal 'imminent'
+-  US House of Representatives approves impeachment inquiry into President Biden
+-  Ujian empat beranak hidap kanser, masalah organ
+-  미국 연방대법원, 경구용 낙태약 판매 규제 검토…내년 대선 영향에 주목
+-  The Latest Bad News Is More Reason to Steer Clear of Lucid Stock
+-  ميزة جديدة على آيفون تحمي هاتفك من السرقة والاحتيال
+-  "النواب الأمريكي" يوافق على فتح تحقيق رسمي لعزل "بايدن"
+-  Chuyên gia giáo dục nói: Con bạn có hạnh phúc, thành đạt hay không, bố mẹ phải cho con đủ ba thứ
+-  Во Франции заявили о катастрофе для Зеленского после визита в США
+-  Media Advisory: FHLB Dallas and Catalyst Bank Celebrate the Opening of Refinery Mission Transitional Housing Facility
+-  PetroReconcavo interrompe temporariamente parte da produção no RN
+-  Fire Victim Trust Announces Sale of Remaining 67.7 Million Shares
+-  Jalin kerjasama dengan IPT mampu bangunkan industri
+-  O que é energia renovável? | Tipos, fontes e exemplos
+-  Eu Odeio o Natal | Conheça uma das melhores série natalinas da Netflix
+-  Marcianadas
+-  'Everybody is on the same page': Bucs' run game continues to improve heading into Week 15
+-  3-2. El Barça regala la victoria en Amberes, pero pasa a octavos como primero de grupo
+-  Carnegie Mellon Student Sues Over Prof’s ‘Cruel Campaign of Antisemitic Abuse’
+-  Former Obama advisor David Axelrod says poll showing Biden at record low approval is 'very, very dark'
+-  “복합항암제, 전이성·재발성 고령 위암 환자 생존율 높여”
+-  Simone Biles speaks out on pregnancy rumors after flood of Instagram comments
+-  Man blows up his apartment trying to kill cockroach with insecticide
