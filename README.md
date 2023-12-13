@@ -1,11 +1,11 @@
 # Latest News
--  PDN Integrasikan Semua Data
--  विदेश की खबरें | पाकिस्तान : नौ मई की हिंसा मामले में आम नागरिकों के खिलाफ सैन्य अदालतों में मुकदमा चलाने की मंजूरी
--  जरुरी जानकारी | गाय गोबर खरीद योजना के तहत ब्लॉक स्तर पर क्लस्टर स्थापित किए जाएंगे: कृषि मंत्री
--  Crecimiento de Inditex desacelera en tercer trimestre, aunque ganancias baten récord
--  Parkeermeters Gowthorpeplein Barneveld werken weer, zegt de beheerder
--  Tesla rolls out software fix after regulators recall more than 2 million cars over Autopilot defect
--  Najčešće zablude o konzumiranju voća
--  الملك يعود بعد زيارة عمل إلى مدريد وجنيف
--  देश की खबरें | विपक्षी दलों ने सर्वदलीय बैठक में संसद की सुरक्षा को लेकर चिंता जताई, जांच की मांग की
--  देश की खबरें | सुरक्षा में चूक लोकतंत्र के मंदिर के लिए एक गंभीर खतरा : स्टालिन
+-  Bradley Cooper & Irina Shayk With Daughter Lea: Photos of Their Adorable Family
+-  Why Automattic spent $50M on Texts.com
+-  Supreme Court Will Hear Challenge to Abortion Pill Access
+-  휴스템코리아 김해플랫폼 750만원 상당 쌀 라면 기탁
+-  경남레미콘공업협동조합, 창원시에 이웃돕기 성금 기탁
+-  Spain’s Most ‘Sociable’ Cities
+-  Zelenskyy pleads for Ukraine aid at Capitol and White House, says to US: Our fight is yours
+-  बालयौन दुराचारको आरोपमा शिक्षक प्रकाउ
+-  Tragiczny wypadek w Stalowej Woli. Grzegorz G. skazany
+-  GPM Investments Brings Holiday Cheer to Loyalty Members
