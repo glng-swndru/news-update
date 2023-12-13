@@ -1,51 +1,51 @@
 # Latest News
--  Дорожная полиция обратилась к гражданам
--  Bu kadarı da 'pes' dedirtti! Ankaragücü taraftarı yumrukçu Başkan Faruk Koca için öyle bir eyleme hazırlanıyor ki...
--  Arrestohet 38-vjeçari i shpallur në kërkim, çfarë gjeti policia në banesën e tij
--  Бронегруппа тульских десантников уничтожила пехотинцев ВСУ под Соледаром
--  Machtwechsel vollzogen: Tusks Vereidigung beendet Hängepartie in Polen
--  [“엉덩이 다 보일 뻔” 웨딩드레스 터져 결혼식 ‘망신살’…업체는 “억울하다”
--  [오늘은 영상 10도, 내일은 영하 10도…더웠다 추웠다 겨울 날씨, 도대체 왜 이러는 거야? [지구, 뭐래?]
--  ["국민 세 명중 한명 '통일 불필요', 절반은 내년 북한 도발 세질 것"
--  [檢 '외국공무원 뇌물혐의' 김태오 DGB금융 회장에 징역 4년 구형
--  ["운전중 문자메시지 확인하다 4명 사망 추돌사고 낸 버스기사 구속"
--  Prince Harry et Meghan Markle vont divorcer, prédisent des médiums
--  Врач предупредил об опасности одной популярной группы препаратов для сердца
--  Minni hagnaður hjá Fötum og skóm ehf.
--  سعر الذهب اليوم الأربعاء في مصر يرتفع مع بداية التعاملات
--  البورصة ترتفع مع بداية تعاملات اليوم الأربعاء
--  ارتفاع أسعار الحديد في الأسواق اليوم الأربعاء (موقع رسمي)
--  מהלך היסטורי: "ניו אינגלנד החליטה לשחרר את ביל בליצ'יק"
--  דני הוצ'קו ובית"ר ירושלים הגיעו לסיכום על התרת החוזה
--  أسعار الدواجن في الأسواق اليوم الأربعاء (موقع رسمي)
--  Ekskluzivni duplex apartmani i hotelske sobe u sklopu rezidencijalno-hotelskog kompleksa u Kolašinu
--  Sports Illustrated publisher fires CEO after allegedly getting caught using AI-generated articles
--  La Sociedad Bilbaína premia Jon Rahm con la 'Dama Bilbaína 2023'
--  Суд подтвердил изъятие у экстремистов с Украины предприятий ВПК в России
--  "Солдаты неудачи". Судьба наемников на Украине вызвала шок в СМИ
--  Μεγάλο κεφάλαιο για τον Απόλλωνα
--  Медиум Белозеров дал петербуржцам прогноз для всех знаков зодиака на 2024 год
--  Στο εφετείο για την κράτησή τους οι 3 κατηγορούμενοι για το φόνο Καλογερόπουλου. Αίτημα για εκδίκαση σε άλλη επαρχία
--  Πληροφορίες για το ματς Κυπέλλου με Αγία Νάπα για τους φίλους του Απόλλωνα
--  LUKA JOVIĆ PIOLIJEV DžOKER: Sve je otvoreno u "grupi smrti"
--  Cum explică premierul Ciolacu reducerea inflației în ultimul an
--  Lavrov señala el fracaso de los intentos de aislar a Rusia debido a los numerosos contactos de Putin en el extranjero
--  На Марсе добыли образцы с возможными признаками жизни
--  Ultiem eerbetoon aan eigenares Jumbo van Daalhuizen
--  বুধবার দর বৃদ্ধির শীর্ষ ১০ শেয়ার
--  제주지역 예비후보 5명…총선 행보 본격화
--  ‘김대중과 제주4·3’ 세미나 개최
--  청정 제주바다 파괴 해양오염 고발하는 작품 가득
--  الذهب يفقد بريقه مع ارتفاع الدولار وترقب قرار من «الفيدرالي»
--  (Видео) Царинска управа: Спречен обид за нелегално внесување девизи – скриени под акумулатор
--  Senado sabatina Gonet e Dino hoje; saiba horário, tempo e formato da sessão
--  Gece yarısı evine gidip domuz bağıyla bağlayıp vahşice öldürmüşlerdi! Aysel Bozkurt cinayetinde karar çıktı
--  Insider nimmt Schaeffler-Aktien ins Depot
--  Directors' Dealings: Insider weitet Engagement bei Neon Equity aus
--  Directors' Dealings bei publity: Insider ersteht weitere Anteile
--  Directors' Dealings bei Neon Equity: Führungskraft weitet Engagement aus
--  Publity-Aktie nach Insidertrade
--  OPPO Find X7 series models, SoCs & battery info revealed
--  Baru Keluar Penjara, Ammar Zoni Kini Terciduk Narkoba Lagi, Relapse?
--  В новых регионах определят документы, замещающие паспорт на выборах
--  West Ham United - Freiburg CANLI İZLE, West Ham United - Freiburg maçı bugün mü, saat kaçta, hangi kanalda? UEFA Avrupa Ligi
+-  [EPL 포커스] 로 셀소-쿨루셉스키도 아니다...'숨겨진 매디슨의 대체자'는 바로 '이 선수'
+-  NSG: Báo cáo tài chính năm 2020
+-  FUEKIV30: Kết thúc giao dịch hoán đổi ngày 12/12/2023
+-  FUEKIVFS: Kết thúc giao dịch hoán đổi ngày 12/12/2023
+-  L44: Thông báo thay đổi ngày thanh toán cổ tức năm 2012, 2013 bằng tiền
+-  FUEVN100: Kết thúc giao dịch hoán đổi ngày 12/12/2023
+-  FUEMAV30: Kết thúc giao dịch hoán đổi ngày 12/12/2023
+-  FUEMAV30: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
+-  FUEVN100: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 13/12/2023
+-  QNW: Tài liệu họp Đại hội đồng cổ đông
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 13/12/2023
+-  FUEKIV30: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
+-  FUEKIVFS: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
+-  TSG: Thông báo hủy hợp đồng kiểm toán Báo cáo tài chính năm 2023 đã ký với Công ty TNHH Dịch vụ Tư vấn Tài chính Kế toán và Kiểm toán Nam Việt
+-  TCL: Báo cáo về thay đổi sở hữu của cổ đông lớn America LLC
+-  TIX: Công bố Báo cáo thường niên 2023
+-  POM: Báo cáo kết quả giao dịch cổ phiếu của người có liên quan đến người nội bộ Đỗ Thị Kim Lang
+-  Maja Sever: Postoji niz primjera kako se javnim novcem zarobljavaju mediji
+-  Οι δηλώσεις Μπάιντεν να γίνουν πράξεις, λέει η Οργάνωση για την Απελευθέρωση της Παλαιστίνης
+-  Ακόμη 4 κυπριακές εταιρείες στον κατάλογο κυρώσεων των ΗΠΑ για τη Ρωσία
+-  [한국기행] 내 인생, 빨간 맛 3부-혜연스님과 채개장
+-  [세계테마기행] 알프스의 심장 오스트리아 3부-모차르트 로드
+-  [생방송 투데이 맛집] ‘물갈비’ 맛집
+-  제주지역 초등학교 교사 임용시험 합격선 높아져
+-  서귀산과고 홍경민 학생, 우리은행 채용 시험 합격
+-  3000년 전의 전쟁이 오늘에도 이어지는 비극
+-  "제주도 추경 역대 처음 마이너스...세입 예측, 운용 능력 부족" 지적
+-  حفل أسطوري لخطوبة إعلامية عربية شهيرة
+-  Impractical Jokers Season 7 Streaming: Watch & Stream Online via HBO Max
+-  অস্ট্রেলিয়া দলে দায়িত্ব পেলেন বিশ্বকাপ মাতানো হেড
+-  "מוסיפים עוד חבר לחבורה": הילארי דאף חשפה שהיא בהריון רביעי
+-  עד המלחמה: העיר הישראלית שבין היעדים המחופשים בעולם לחופשה
+-  הדיון על חוק התקציב: המליאה שוממת ושר האוצר לא נוכח
+-  Convicted GBV offender Lorch back from suspension: Orlando Pirates
+-  Kickoff | JUST IN: Pirates' latest on Lorch
+-  Kickoff | Benzema sets sensational new Club World Cup record
+-  Народен правобранител одбележа 25 години од основањето на институцијата
+-  TNUSRB Police Constable Recruitment 2023 Prelims Exam Answer Key Released at tnusrb.tn.gov.in
+-  Голова оргкомітету Олімпіади-2024 підтримав допуск росіян
+-  Mikko Rantanen vakuutti rakastavansa Artturi Lehkosta – "Suomalainen toimittaja vain sattuu olemaan Artturin isä"
+-  José Mourinho z niespodziewanym powrotem do Premier League?!
+-  Росіяни влаштували вибух у власному бліндажі. 18+
+-  Havfram Wind signs contract with RWE for turbine transport and installation support for Nordseecluster offshore wind projects
+-  JLR, TATA COMMUNICATIONS과의 파트너십 통해 디지털 혁신
+-  Live from ASH 2023 | Results from Chinese Studies of Olverembatinib Presented in Oral Report at the ASH Annual Meeting for the Sixth Consecutive Year, Including Data Showing Promising Efficacy in Pati
+-  New Book by Cheung Kong Graduate School of Business Shows How Chinese Companies are Transforming Global Business Through Digitalization and Innovation
+-  Parliament Gas Attack: Major Security Breach In Lok Sabha
+-  US President Biden To Meet Family Members Of American Hostages Held By Hamas
+-  India Shelter Finance IPO Public Bids Start On 13 December To Raise Rs 1200 Cr
