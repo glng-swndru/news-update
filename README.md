@@ -1,11 +1,51 @@
 # Latest News
--  csökkent a brit gazdaság teljesítménye októberben
--  Soccerladuma | Wydad 'Low' On Cash
--  Child’s Christmas ruined as FedEx blamed for missing Pokemon presents
--  عاجل.. ضبط 10 وافدين أثناء عملية تهريب مخدرات كبيرة
--  Kim Jonghyeon (JR) Announces January Comeback Date With 1st Teaser For “Brilliant Seasons”
--  متحدث "أبشر": 360 ألف عملية يقدمها البرنامج يوميا لخدمة 27 مليون مستخدم
--  축구 선수? 모델?…부업으로 연간 8억3000만원 버는 글래머 선수
--  Samsung’s Camera Assistant now available for Galaxy A53 and A54
--  Councillors back Glanyrafon plans despite recommendation for refusal
--  Shoppers face wine shortage on supermarket shelves in weeks – and two types are worst affected
+-  İBB 34 tramvay aracı için 79 milyon 900 bin avro dış borçlanma yapacak
+-  ตร.จ่อเรียก "สมรักษ์" แจ้ง 4 ข้อหา พรากผู้เยาว์-ทำอนาจารคดีหญิง 17 ปี
+-  Aprovecha la Navidad y muéstrate generoso
+-  Aprieta Ohtani contrato para hacer equipo
+-  Acuerdan en COP28 abandonar uso de combustibles fósiles
+-  Gobierno y KCS acuerdan tren de pasajeros en Monterrey
+-  FIFA “The Best coach”: dy italianë sfidojnë teknikun Guardiola, për trofeun e 15 janarit
+-  Prepare esta mezinha e o seu cão nunca mais irá urinar em casa
+-  Dominican Republic reports continued decline in monetary poverty in 2023
+-  We can't wait to binge 'Palm Royale' next year, mainly for the Kaia Gerber fashion content
+-  Emily Ratajkowski's leather micro shorts are a Kate Moss cosplay
+-  Sarah Ferguson, Larry Lamb and other stars bring vital seasonal cheer to those in greatest need
+-  Jennifer Lopez just gave us two incredible Christmas Day outfit ideas
+-  Penelope Cruz, 49, looks better than ever in strappy dress thanks to 'stimulating' workout
+-  Someone just bought 'the world's most expensive Louis Vuitton bag'
+-  A near-death experience made me change my whole life
+-  9 best stocking filler ideas for women: small gifts for her to get extra smiles this Christmas
+-  All the best photos of Prince George, Princess Charlotte and Prince Louis nailing royal protocol with regal charm
+-  A day in the life of a South East paramedic
+-  WithSecure sai muutosneuvottelut käytyä, Suomesta vähenee 26 tehtävää
+-  BBC Strictly Come Dancing's Shirley Ballas set for lifestyle change after new family addition
+-  Aldi shoppers label new ban 'bonkers but some want it 'all the time'
+-  Primark's £10 bag looks just like £690 designer Neous version
+-  Killer says his 'face was cut' in prison after arrest for stabbing friend
+-  New leaders showing 'strength and grip' at improving Liverpool Council - but there is more to do
+-  Wales First Minister Mark Drakeford resigns
+-  Wacky Warehouse offering free entry for restless kids
+-  Suspects named after house broken into and racist abuse shouted
+-  Boy Y tells jury he saw Girl X stab Brianna Ghey
+-  Parole board issues full reasons for keeping Jon Venables behind bars
+-  Erdoğan'dan 'Hanuka Bayramı' mesajı
+-  مغتربون لبوا النداء... طلائع الحركة السياحية بدأت!
+-  Dnešní komentáře Fedu mohou změnit směřování trhu. Dluhopisy získávají na oblibě (Martin Kycelt) (video)
+-  Francuski startup AI zebrał 385 mln EUR na rozwój technologii
+-  Niemcy mocno zwiększyły nadwyżkę na rachunku obrotów bieżących
+-  PGE podpisała umowę na dostawy węgla z PGG o wartości 13,5 mld zł
+-  BULATOVIĆ: Šabački razbojnik Zelenović preklinje ljude da glasaju za Đilasa
+-  ZAHVALjUJUĆI VUČIĆU SRBIJA IDE NAPRED: Moćna poruka Lazara Ristovskog sa skupa u Spensu
+-  Ucrânia? Michel insiste que é preciso chegar à unanimidade sobre adesão
+-  Smoke attack disrupts Indian parliament, four arrested
+-  One man sent 17 million scam SMSes, Australian police say
+-  От “Възраждане” предлагат пълна забрана на рекламата на хазартни игри
+-  US100 roste před rozhodnutím FOMC
+-  Boxing Day Test: Tip your hat in Warne’s memory, get a free heart check-up
+-  Ílhavo: Autarquia apoia construção de lares de idosos com 300 mil euros
+-  Citypress | Police commissioner faces contempt charge for failing to stop attacks on Intercape buses
+-  Citypress | Ramaphosa calls for calm as he's set to appeal ruling that invalidates crowning of King Misuzulu
+-  Rathaus kündigt Einigung zu Inselbühne an: Stadtverwaltung reagiert auf Brandbrief der Bürgerstiftung
+-  Court Sentences Man To Life Imprisonment For Wife’s Murder In Odisha’s Berhampur
+-  „Viasna“: Baltarusijos saugumo tarnybos atliko kratas rinkimų stebėtojų namuose
