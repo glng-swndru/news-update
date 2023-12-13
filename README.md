@@ -1,51 +1,51 @@
 # Latest News
--  [“반바지 입고 무릎 꿇어” 무료과외 해준다더니…과외 학생 허벅지 피멍 들게 때렸다
--  Neue Lieferung Paxlovid vom Gesundheitsministerium bestellt
--  Lloyds digital rangiran u top 10 najboljih tvrtki u Hrvatskoj u osam kategorija
--  Streit in Kölner Südstadt: Männer schießen mit Schreckschusswaffe in Richtung eines 38-Jährigen
--  Von der Leyen: ‘Ukrajina osim političke treba i našu održivu financijsku pomoć‘
--  Коледното градче обединява, но и разединява благоевградчани, вижте защо
--  Florida school board votes for 'deeply saddened' chairwoman to step down due to husband's scandal
--  Comprehensive Guide to Securing Medical Personal Loans
--  Aktien Frankfurt: Käufer im Dax bleiben vor Fed-Signalen am Abend am Zug
--  Костадинов за демонтажа на ПСА: В България има пълна реставрация на фашизма
--  Mate Rimac pohvalio se Neverama spremnima za isporuku: ‘Ova bijela će biti moja...‘
--  BJP state president Annamalai to participate in En Mann En Makkal yatra in Salem
--  Roberta (Bobbi) Rita McFadden
--  Huawei will begin construction of its first European factory in 2024
--  Invest in Uttarakhand Commitment : उत्तराखंड में 44,000 करोड़ रुपये का निवेश ग्राउंडवर्क 30,000 व्यक्तियों के लिए रोजगार पैदा करेगा, प्रस्ताव को धरातल पर उतारने की रणनीति .
--  Zrinjski dočekuje Aston Villu: "Najveći protivnik koji je dolazio u Mostar. Dolazi njihova najjača postava i to je privilegija za nas"
--  Μικρές Κυκλάδες: Αυτό είναι το πιο «ξεχωριστό» μενού της Αθήνας για τα ρεβεγιόν Χριστουγέννων-Πρωτοχρονιάς!
--  Valeo : Met vallen en opstaan: Valeo
--  "الأرصاد" يُحذر سكان تبوك من تساقط الثلوج وانخفاض درجات الحرارة
--  ما الذي يجب أن نأكله ونشربه عندما نكون مرضى؟.. الخبراء يجيبون
--  Theo Hernández se 'transforma' en Lucas: de lateral izquierdo... a central
--  IW: Warme Nebenkosten 43 Prozent höher als vor Ukraine-Krieg
--  Lavrov: Da rešimo ovo jednom za svagda...
--  In the news today: Liberals to talk UN ceasefire stance and AI fears spark concerns
--  В Пензе очистили снег с хоккейных площадок
--  STAT+: Pfizer says 2024 profits will fall far below expectations
--  Bătaie la un liceu de prestigiu din Târgu Jiu. Scandalul a avut loc într-o sală de clasă
--  وزير الصحة يثمن الجهود التّي تبذلها الفرق الطبّية في توفير الرعاية للفلسطينيبن.
--  Ajax zonder Bergwijn, maar met Brobbey tegen AEK Athene: Hato draagt aanvoerdersband
--  Ещё одного специалиста отметили знаком отличия «Князь Серпуховский Владимир Храбрый»
--  Экономический потенциал Псковской области на выставке «Россия» на ВДНХ представят весной
--  From Skylines to Soulful Journeys: Jeevesh Sabharwal's Dual Impact in Real Estate and Faith-Based Tourism
--  Aandelen in afwachtende houding in aanloop naar besluit Fed; olie daalt
--  Aktien verstecken sich vor der Fed-Entscheidung und der Ölpreis sinkt
--  Eco-Friendly Dinnerware for the Modern Host: Introducing GoEco's Compostable Tableware Collection
--  Predivan prizor: Jaslice prvi put u povijesti postavljene na Trgu sv. Marka
--  «Hay que enseñar a los turistas a comer lo que tenemos»
--  Gran Hermano 2024: dos nuevos participantes se sumaron a la casa
--  10 Expert Tips on Picking the Best Exterior Window Styles
--  Basket-ball : pour le CTC Entente Basket Estuaire, tout se jouera dimanche contre l’Union Saint Bruno
--  Travesti cayó tras robar pendrive de un Bolt
--  Pakistani court indictment hits Khan's election bid
--  Nigerian govt unveils roadmap on data protection, targets N125bn revenue
--  Apple iPhone 16 prototype renders leak
--  Udruženje Biogen uz Zelene Srbije za listu broj 2. "Ivica Dačić - premijer Srbije"
--  Ferencvaros, Stankovic: "Fiorentina serena, potrà rischiare di più. Noi sottovalutati"
--  В Пролетарском районе Твери одну из улиц перекрыла фура
--  Киркоров подал в суд на Любовь Успенскую
--  Live blog: Birkirkara, Swieqi to contend 17th edition of the women’s Super Cup
--  Strange Fish Video: समंदर में तैरती रहस्यमय मछली ने किया सबको मोहित, उसके चेहरे से नजरें हटा पाना है मुश्किल
+-  Soccerladuma | In This Week’s Edition Of Soccer Laduma
+-  Mitte-Bundesrätin Viola Amherd ist Bundespräsidentin 2024
+-  PSG Altay'ın genç yıldızına kancayı taktı
+-  تحويل 13 مصابا بحادث سلحوب من جرش الحكومي لمستشفيات أخرى
+-  れいわ 山本代表 “議員のローテーションは見送る”
+-  ‘뮌헨 센터백이 돼라’ 투헬 전화에…바르사 철벽, 이적 가능성 열어놨다
+-  رئيس نادي تركي يواجه عقوبة السجن بعد ضرب الحكم
+-  نواكشوط: جلسة مغلقة لمحاكمة المسيئة للجناب النبوي
+-  Caspar David Friedrich als Vorreiter der Moderne
+-  تشواميني يكشف موعد عودته للتدريبات
+-  Полски депутат изгаси с пожарогасител свещник за Ханука
+-  COP28: Ende des fossilen Zeitalters nicht in Sicht – Anleger ziehen Geld von Erneuerbaren ab
+-  Аксенов: аэропорт Симферополь пока не будет работать
+-  নির্বাচনে লড়তে আত্মীয়স্বজন থেকে ধারদেনা করছেন কোটিপতি প্রার্থী
+-  Posljednji susret pred izbore: Vučić zahvalio Dodiku na izuzetnoj saradnji i podršci
+-  Tarihte ilk büyük salgın hangi döneminde görüldü
+-  Mardin’de trafik kazası: 2 yaralı
+-  Hestnes blir med KFUM opp til Eliteserien
+-  Медведев призвал россиян отдыхать в Африке вместо Европы
+-  Obznanjeno: Evo tko dolazi na čelo ministarstva gospodarstva nakon Filipovićeve smjene
+-  Георгиев: Судскиот совет на јавна седница ќе дискутира за извештајот на оценската мисија на ЕУ
+-  SCC expresa su apoyo a los jueces y acusa a Junts de hacer un "alegato fascista" en el Congreso
+-  La pobreza monetaria bajó 4,0 puntos en República Dominicana en el tercer semestre de 2023
+-  В НАО усилят охрану школ и детских садов
+-  Pablo Saldarriaga cuenta qque Tatiana Astengo le hizo bullying y hasta le mentó la madre en un ensayo
+-  Number of Azerbaijan's women entrepreneurs increases
+-  Bielorrusia alerta de posibles "ataques terroristas" de grupos polacos
+-  Ucrania espera buenas noticias de Europa tras el jarro de agua fría de EEUU
+-  Стаж для выхода на пенсию предложили понизить: в чем суть изменений
+-  Objavljen identitet poginulih izraelskih vojnika u Gazi, proglašeni su herojima u zemlji
+-  Morbihan : soupçonnés d'avoir volé 1500 litres de gasoil dans des bus scolaires
+-  La coalición de Gobierno alemana cierra su mayor crisis en el ecuador de la legislatura
+-  Ascienden a más de 18.600 los palestinos muertos por la ofensiva del Ejército de Israel contra Gaza
+-  Knights of the Old Republic ‘still has a lot of demand,’ Disney exec says
+-  Kogels vlogen naar de auto waar hij inzat: wie is kickbokser Arek Wrzosek?
+-  «Όταν ξεκίνησα στην Μενεγάκη, έπεσε όλο το κατεστημένο να πει: μην βγάζετε ανθρώπους που είναι χοντροί»
+-  IND vs SA, Third T20I: India vs South Africa head-to-head record
+-  Şehit Teğmen Eril Alperen Emir'e veda
+-  Rivers State: Gov Fubara presents 2024 budget to group of 5 Assembly lawmakers
+-  La junta golpista de Mali envía a un delegado a la Cedeao para reforzar sus relaciones
+-  America is on the brink in the first trailer for Alex Garland’s Civil War
+-  المقاومة في غزة تستهدف حشوداً لقوات العدو ودبابات في خان يونس
+-  La farmacéutica Pfizer espera ingresar en 2024 entre 54.234 y 57.015 millones de euros
+-  Sondaggio / Gli arbitraggi hanno davvero tolto punti in classifica al Torino?
+-  Eurodeputados insistem em início de adesão da Ucrânia, Moldova e Bósnia à UE
+-  AB'den kara parayla mücadele adımı
+-  Sindicatos UE esperan acuerdo sobre ley trabajadores plataformas acabe con "salvaje oeste"
+-  Türk Büyükelçiliği Önünde Patlama!
+-  Begini Respons Ganjar Soal Hasil Survei Elektabilitasnya Turun
+-  “The Crown”: ¿a qué hora se estrena la parte 2 de la temporada final en Netflix?
