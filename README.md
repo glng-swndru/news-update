@@ -1,11 +1,51 @@
 # Latest News
--  Rutgers gives Greg Schiano a new contract through the 2030 season
--  US Fed keeps interest rates high, but does not raise them again
--  Movenpick Hotel Colombo shines bright with Christmas tree lighting ceremony
--  Cheers to the season, best of TV shows, and a Smart TV from Dialog Television
--  Excel World’s Snow World unleashes winter magic in Colombo
--  Mercantile Football Association celebrate 105th anniversary in grand style
--  Goonethilleke clinches triple titles at 71st Badminton Nationals; Liyanage wins women’s crown
--  Current players will achieve great heights says outgoing selection chief
--  More humiliation for Sri Lanka cricket as U-19 team bows out of Asia Cup
--  بانون، رحيمي مع بطنا والكرد ثم بوطويل في الكان!
+-  تورم القدمين.. متى يجب عليك أن تشعر بالقلق؟
+-  الطاقة الذرية: نموذج المملكة الرقابي يؤكد جاهزيتها لبرامجها النووية
+-  REALTY ONE GROUP'S GLOBAL NETWORK OF ONE LUXE, LUXURY REALTORS, GROWS AT RECORD PACE
+-  Nicolas Sarkozy : « Il n’existe qu’une seule solution crédible au différend autour du Sahara, celle proposée par le Maroc » !
+-  ONO ŠTO ĐOKOVIĆ RADI JE JEDINSTVENO: Ruska teniska legenda očarana Novakom
+-  أكسيوس: واشنطن تؤجل بيع بنادق لإسرائيل بسبب عنف المستوطنين بالضفة
+-  Trabalhadores argentinos avisam que não ficarão “de braços cruzados” face ao plano econômico de Milei
+-  [인사] 신아일보
+-  영월 산비탈음악회, ‘청소년과 함께하는 산비탈 음악회’ 개최
+-  인제군, 군민안전보험 적극 홍보
+-  아산시자원봉사센터, ‘2023년 자원봉사 수요처 대표자 교육 및 간담회’ 실시
+-  인제군, 2023년 적극행정 역량강화 교육 실시
+-  美 “한미일, 캠프 데이비드 합의대로 北미사일 경보 공유 가동”
+-  Euphoria star Sydney Sweeney shows some leg in revealing red dress as she steps out in New York
+-  فى زيارة مفاجئة..رئيس «القناة للكهرباء»يتفقد تطوير وتحديث هندسة الشروق
+-  وزير الإنتاج الحربي يفاجيء عمال وقيادات "حلوان للمسبوكات" و"حلوان للصناعات الهندسية"
+-  المركزي الأمريكي يرفع توقعات نمو الاقتصاد في 2023
+-  تصالح بوسي وطليقها هشام ربيع بعد مشاجرة الفندق
+-  كسر 2000 دولار.. قفزة في أسعار الذهب عالميا بعد تثبيت الفائدة الأمريكية
+-  يونايتد يودع الأبطال.. وكوبنهاغن يتأهل
+-  Suç ortağı ABD'den İsrail'e Gazze'deki saldırılardan "endişeliyiz" mesajı
+-  Fenerbahçe Kulübü'nden Umut Nayir'e başsağlığı mesajı
+-  İYİ Parti'de deprem üstüne deprem! Çok sayıda meclis üyesinin ihracı istendi
+-  Zorunlu trafik sigortasında azami artış oranı belli oldu
+-  Mevduatta devlet güvencesi 650 bin TL olacak
+-  İsrailli büyükelçiden Biden'ın "dünyanın desteğini kaybetti" açıklamasına tepki
+-  Havacılık alanında olumlu sinyaller! Türkiye ile Pakistan görüştü
+-  Horarios de cortes de luz en Quito: 14 de diciembre de 2023
+-  Apple shields push notification data without court order
+-  הריאליטי של נטפליקס מותח, מרגש ומלא טוויסטים. לפעמים הוא גם עולה על המקור
+-  "נפוליאון" מזלזל בגיבור שלו, באינטליגנציה שלנו ובזמן שלנו
+-  היועץ לביטחון לאומי של ביידן נפגש בסעודיה עם בן סלמאן לדון על המלחמה בעזה
+-  U Ligi prvaka viđen najkontroverzniji gol sezone, ali sve je po pravilima
+-  Veja como ficam seus investimentos com a queda da Selic
+-  Veja como ficam seus investimentos com a queda da Selic
+-  NC Gov. Roy Cooper looks to final year in office and key priorities
+-  Chevy Turbo Engine Teardown Shows Why Coolant And Oil Should Never Mix
+-  Oporba napala Fuchsa zbog Zakona o obrazovanju, on se brani: “Ovo je cilj”
+-  Europa League: Conoce la programación de los ecuatorianos en el torneo
+-  [인사] 한국수력원자력
+-  Cafe paid $700k to close down
+-  Castilla y León exige una moratoria a la obligación de dar de alta al alumnado de FP en la Seguridad Social
+-  남재현 약사 "현실적 도움되는 연구되도록 최선 다할 것"
+-  갈수록 세력 키우는 감염병…올해 식약처 대처·대비 어땠나
+-  강화되는 글로벌 의료기기 규제…정부 협의체 지원 나선다
+-  화이자 vs MSD, 국내 폐렴구균 백신시장 본격 대결 서막
+-  심평원의 '자율점검제'‥'예방 효과'는 있지만 '미통보 기관'에는 미미
+-  연말 급변하는 제약 시장, 보령에 실적 확대 기회 되나
+-  상급종합병원 '45+α개' 가능성 윤곽…政, 올해 내 최종 확정
+-  Kovačić: Zvezda nije slučajno u Ligi šampiona
