@@ -1,11 +1,51 @@
 # Latest News
--  كيف رد اهل جنين على غناء الصهاينة عبر مكبرات مسجد جنين - فيديو
--  افتتاح الطريق الصحراوي من نزول النقب إلى الحميمة
--  بعد وصفها للفن بـ"الحرام".. هكذا اعتذرت حلا شيحة لفناني مصر
--  Sienna Miller (41) in verwachting van tweede dochter
--  Another country Russia invaded is worried a new naval base is going to drag it into the Ukraine war
--  El clima en 2023: el año más caluroso de la historia, con récord de CO2 y sequía extrema
--  Casa das Gaeiras foi cenário para produção de moda da estilista Susana Agostinho
--  Netflix-Hit „Bridgerton“: Alles was Sie über Staffel 3 wissen müssen
--  ХАМАС осудило санкции США и Великобритании в отношении своих членов
--  Celebra UACh a personal con desayuno
+-  3 cách phân biệt mực tươi và mực đông lạnh, dân sành ăn mới biết
+-  Российские мужчины полюбили делать маникюр
+-  الأمم المتحدة: قطاع غزة يواجه كارثة صحية
+-  גלזר בשער, הכוכב האדום תנסה להיפרד מהמפעל עם ניצחון על סיטי
+-  Entrevista Dolores Pérez, gerente hotel del Juguete
+-  İklim değişikliğinde aktif görev! Karar alındı: Merkez Türkiye'de kurulacak
+-  Bayern Münih'te 4 isimle yollar ayrılıyor
+-  Hunter Biden, ABD Temsilciler Meclisinin ifade çağrısına "halka açık olma" şartını koştu
+-  Spartak Trnava, Fenerbahçe maçına hazır
+-  Dışişleri Bakanı Fidan, Azerbaycan'a gidecek
+-  Exportaciones de maquila suman más de US$ 920 millones hasta noviembre
+-  Sanem y Can: ¿Can descubrirá que Sanem es la mujer del apasionado beso en la oscuridad?
+-  Yawn: Latest CDC fearmongering on COVID hospitalizations falls flat
+-  Couple arrested after abused kitten taped in sandwich container tests positive for meth
+-  Alumnos de Uspallata recibirán becas para Nivel Secundario en el Liceo Militar General Espejo
+-  Evacuan a todos: reportan fuga de amoniaco en planta congeladora del parque Bonfil en Mazatlán
+-  Davido tops the list of Nigeria’s most followed celebrities on social media
+-  Security Scare As Hail Storm Destroys Whawha Prison
+-  Megyn Kelly calls for Taylor Swift ‘boycott’ after singer attends Gaza fundraiser
+-  El alcalde de Elche se compromete a impulsar suelo industrial más barato y ampliar el Parque Empresarial a finales de 2024
+-  How to watch ‘Taylor Swift: The Eras Tour’ movie: Full streaming info
+-  Soccerladuma | Starting XI: AmaZulu v Sekhukhune
+-  Soccerladuma | 'Al Ahly Will Beat Benzema & Co.'
+-  كتائب القسام تنشر مشاهد جديدة لاستهداف الدبابات والجنود
+-  Tontonan Menarik untuk Libur Nataru di Viu dari My Happy Ending hingga Film The Moon
+-  قوارب مسلحة تطارد سفينة لمدة 90 دقيقة قبالة سواحل عمان.. ماذا يحدث؟
+-  EU-Kommission gibt blockierte Milliarden für Ungarn frei
+-  Израел: Пресякохте червената линия, това е подла заплаха срещу световната икономика
+-  Slukhål uppstod i centrala Svalöv
+-  Rice imports to fall by 5% due to high prices
+-  В США заявили о положительном влиянии СВО на российскую армию
+-  Poison control calls jump 1,500% due to Ozempic overdoses
+-  ITV I’m A Celebrity’s Sam Thompson pictured in emotional reunion with girlfriend Zara McDermott as he lands back in UK
+-  Dehşet veren cinayete 13,5 yıl hapis cezası
+-  विदेश की खबरें | नवाज शरीफ ने अपने खिलाफ भ्रष्टाचार के मामलों को 'खोखला' बताया
+-  Trabzon Havalimanı uçuşlara kapatılıyor!
+-  जरुरी जानकारी | एआई पर वैश्विक भागीदारी के सदस्य देशों ने आम सहमति से नयी दिल्ली घोषणा को अपनाया
+-  ¿Te gusta comer tamales? Estos son los beneficios que tiene según los nutriólogos
+-  Atletico Madrid Lazio streaming e diretta tv: dove vedere la partita di Champions League
+-  Kreise: EU-Kommission gibt blockierte Milliarden für Ungarn frei
+-  Patientin fahrlässig getötet: Berliner Narkosearzt angeklagt!
+-  Apple Watch SE 2 start from $199, AirPods Pro 2 with USB-C $200, more
+-  Champions League: Η ώρα και η ημέρα της κλήρωσης για τη φάση των «16»
+-  Przyszły zawodnik Bayernu Monachium wyznaje: Miałem oferty z wielu klubów, ale…
+-  Inside George Foreman’s amazing car collection up for auction, including a priceless Ford GT and a massive tour bus
+-  Fertilizer industry sway to face scrutiny in US bill backed by farmers
+-  Newcastle Milan streaming e diretta tv: dove vedere la partita di Champions League
+-  Guía laboral para Navidad: 15 dudas razonables sobre cenas de empresa, paga extra o cestas
+-  Bla bla Baby: tutto quello che c’è da sapere sul film
+-  Comissão de Infraestrutura aprova Seabra Filho para direção da ANM
