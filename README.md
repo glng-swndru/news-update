@@ -1,51 +1,51 @@
 # Latest News
--  [EPL 포커스] 로 셀소-쿨루셉스키도 아니다...'숨겨진 매디슨의 대체자'는 바로 '이 선수'
--  NSG: Báo cáo tài chính năm 2020
--  FUEKIV30: Kết thúc giao dịch hoán đổi ngày 12/12/2023
--  FUEKIVFS: Kết thúc giao dịch hoán đổi ngày 12/12/2023
--  L44: Thông báo thay đổi ngày thanh toán cổ tức năm 2012, 2013 bằng tiền
--  FUEVN100: Kết thúc giao dịch hoán đổi ngày 12/12/2023
--  FUEMAV30: Kết thúc giao dịch hoán đổi ngày 12/12/2023
--  FUEMAV30: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
--  FUEVN100: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
--  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 13/12/2023
--  QNW: Tài liệu họp Đại hội đồng cổ đông
--  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 13/12/2023
--  FUEKIV30: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
--  FUEKIVFS: Thông báo thay đổi giá trị tài sản ròng ngày 12/12/2023
--  TSG: Thông báo hủy hợp đồng kiểm toán Báo cáo tài chính năm 2023 đã ký với Công ty TNHH Dịch vụ Tư vấn Tài chính Kế toán và Kiểm toán Nam Việt
--  TCL: Báo cáo về thay đổi sở hữu của cổ đông lớn America LLC
--  TIX: Công bố Báo cáo thường niên 2023
--  POM: Báo cáo kết quả giao dịch cổ phiếu của người có liên quan đến người nội bộ Đỗ Thị Kim Lang
--  Maja Sever: Postoji niz primjera kako se javnim novcem zarobljavaju mediji
--  Οι δηλώσεις Μπάιντεν να γίνουν πράξεις, λέει η Οργάνωση για την Απελευθέρωση της Παλαιστίνης
--  Ακόμη 4 κυπριακές εταιρείες στον κατάλογο κυρώσεων των ΗΠΑ για τη Ρωσία
--  [한국기행] 내 인생, 빨간 맛 3부-혜연스님과 채개장
--  [세계테마기행] 알프스의 심장 오스트리아 3부-모차르트 로드
--  [생방송 투데이 맛집] ‘물갈비’ 맛집
--  제주지역 초등학교 교사 임용시험 합격선 높아져
--  서귀산과고 홍경민 학생, 우리은행 채용 시험 합격
--  3000년 전의 전쟁이 오늘에도 이어지는 비극
--  "제주도 추경 역대 처음 마이너스...세입 예측, 운용 능력 부족" 지적
--  حفل أسطوري لخطوبة إعلامية عربية شهيرة
--  Impractical Jokers Season 7 Streaming: Watch & Stream Online via HBO Max
--  অস্ট্রেলিয়া দলে দায়িত্ব পেলেন বিশ্বকাপ মাতানো হেড
--  "מוסיפים עוד חבר לחבורה": הילארי דאף חשפה שהיא בהריון רביעי
--  עד המלחמה: העיר הישראלית שבין היעדים המחופשים בעולם לחופשה
--  הדיון על חוק התקציב: המליאה שוממת ושר האוצר לא נוכח
--  Convicted GBV offender Lorch back from suspension: Orlando Pirates
--  Kickoff | JUST IN: Pirates' latest on Lorch
--  Kickoff | Benzema sets sensational new Club World Cup record
--  Народен правобранител одбележа 25 години од основањето на институцијата
--  TNUSRB Police Constable Recruitment 2023 Prelims Exam Answer Key Released at tnusrb.tn.gov.in
--  Голова оргкомітету Олімпіади-2024 підтримав допуск росіян
--  Mikko Rantanen vakuutti rakastavansa Artturi Lehkosta – "Suomalainen toimittaja vain sattuu olemaan Artturin isä"
--  José Mourinho z niespodziewanym powrotem do Premier League?!
--  Росіяни влаштували вибух у власному бліндажі. 18+
--  Havfram Wind signs contract with RWE for turbine transport and installation support for Nordseecluster offshore wind projects
--  JLR, TATA COMMUNICATIONS과의 파트너십 통해 디지털 혁신
--  Live from ASH 2023 | Results from Chinese Studies of Olverembatinib Presented in Oral Report at the ASH Annual Meeting for the Sixth Consecutive Year, Including Data Showing Promising Efficacy in Pati
--  New Book by Cheung Kong Graduate School of Business Shows How Chinese Companies are Transforming Global Business Through Digitalization and Innovation
--  Parliament Gas Attack: Major Security Breach In Lok Sabha
--  US President Biden To Meet Family Members Of American Hostages Held By Hamas
--  India Shelter Finance IPO Public Bids Start On 13 December To Raise Rs 1200 Cr
+-  동북아외교안보포럼, 강연회 개최…‘한미 핵협의그룹 방향성’ 논의
+-  Maroc-Espagne : Albarès loue le partenariatmultidimensionnel
+-  Phát huy các động lực để bứt phá trong tăng trưởng kinh tế
+-  Зам.-кметът Милена Желева се срещна с директори и ръководства на културни институти в Стара Загора
+-  Sharp increase in traffic accidents with fatalities, serious injuries
+-  [“경옥고, 홍조완화·조골세포 활성 높여”
+-  [임영웅 팬클럽, 서울대병원 넥슨어린이통합케어센터 후원
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [김경일 파주시장 “교육정책 확대해 아이들과 부모가 행복한 교육도시 조성하겠다”
+-  [김기흥 전 대통령실 부대변인, 국힘 인천 연수을 국회의원 예비후보 등록
+-  García-Castellón remite por fin a la Sala los recursos del fiscal y de los imputados de ERC en Tsunami Democràtic
+-  [용인특례시, 이천시와 반도체 산업 육성·지원 '맞손’
+-  [지드래곤 '혐의없음' 불송치, 이선균 협박범은 '신원불명? 가상인물?'
+-  [“태양전지 상용화 기대” 성균관대 김한기 교수, 세계 최초 페로브스카이트 태양전지 전용 투명 전극 기술 개발
+-  [명지대, '2023 명지인의 밤' 행사 개최
+-  [우크라 "개전 이후 러 전사자 34만명 이상"
+-  Erling Haaland set to return to training ahead of Club World Cup
+-  Treinador do Napoli após derrotar Braga: "Descansámos alguns atletas..."
+-  Le Samsung Galaxy A54 n'en fait qu'à sa tête et fait chuter son prix
+-  Hadise, başlattığı 'Bebe' polemiğini Turktime'ın sayesinde sona erdirdi!
+-  ABD'den Türkiye'ye yaptırım! Blinken'den açıklama: Elimizdeki araçları kullanmaya devam edeceğiz
+-  Süper Lig'in kaderi belli oluyor! Gözler TFF ve Kulüpler Birliği'nde
+-  Natale 2023, il dono solidale che profuma di buono
+-  Германия — Внимание! Опасные желейные медвежата с мелатонином
+-  Детройт переміг Сент-Луїс, Тампа-Бей програла Ванкуверу: результати матчів НХЛ
+-  Realitatea pieței imobiliare din România, în cădere liberă. Nu se mai vând apartamente, iar dezvoltatorii ”cochetează” cu insolvența
+-  Fred Again and Cloudy Parallels Have “Song Of The Week”
+-  Adres: Siirt! Aldıkları önlemlere rağmen camiye bir ayda 4’üncü kez hırsız girdi
+-  80 yaş üstü her üç kişiden biri Alzheimer hastası
+-  Ödüllendireceğini söylediği kız öğrencisine cinsel istismardan yargılanan öğretmenin 22 yıl hapsi istendi
+-  Les mémoires d’un haut magistrat, Mabrouk Benmoussa
+-  Burdur Gölü kenarına yine moloz ve atık döktüler
+-  48 yüzen otel Antalya'da: 59 binden fazla turist geldi
+-  Hüdayi Bilim ve Sanat Merkezi'nde değerler eğitiminden robotik kodlamaya birçok ders bir arada
+-  Bakan Göktaş: Dizi yapımcılarıyla 'aile' gündemli toplantıda buluşacağız
+-  Schweizer Wirtschaft wächst wohl weniger stark als angenommen
+-  [포토] ‘데프트’ 김혁규, 주먹을 꽉 쥐고
+-  Si spara con la pistola alla testa, 16enne in fin di vita in ospedale
+-  В Тульской филармонии пройдет концерт мастеров игры на виолончели и фортепиано
+-  UnHerd: Зеленский стал обузой для своих союзников на Западе
+-  Rubiales: "Usaron lo de Jenni para desviar la atención de la amnistía"
+-  Rubiales: "Usaron lo de Jenni para desviar la atención de la amnistía"
+-  Frau in Dortmund getötet: Verdächtiger kannte sie gut
+-  L’Algérie s’apprête à accueillir 400 enfants palestiniens blessés pour des soins
+-  Pedidos de recuperação judicial explodem no Brasil
+-  감정노동 시달리는 공무원 "업무 방해나 폭언 그냥 참는다"
+-  대구시와 진흥원, 중국전담여행사 대상 대구관광 팸투어 진행
+-  مذكرة تعاون بين "عمان العربية" ومجلس محافظة البلقاء اللامركزية
+-  Мицкоски: Колку тие се по злобни во лагите, толку јас сум помотивиран да ги поразиме, смениме и да ја изградиме Македонија
