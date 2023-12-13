@@ -1,11 +1,11 @@
 # Latest News
--  김기현, 與 당대표직 사퇴…“모든 상황의 책임은 저 때문”
--  김기현 만난 이준석 “대통령 한 명 바뀌고 당 대표 계속 쫓겨나”
--  “공공기관 빨리 옮기자”던 이재명…‘산업은행 부산行’ 외면
--  한국해과기 동해연구소 성금 기탁
--  父子 어업인 성금 6백만원 기탁
--  울진군 적극`우수 공무원 9명 선발
--  3년간 월 최대 110만원 영농정착금 지급
--  울진... 동해안, 전기요금 축소 방안 등 공론화!
--  Kletzen- und Früchtebrot im Test
--  Зеленський з неанонсованим візитом прибув в Осло
+-  뮌헨 제안에 실망…김민재 동료 재계약 난항에 ‘레알-맨시티 줄섰다‘
+-  5 dự án được vinh danh trong hạng mục Dự án Bền vững của Human Act Prize 2023
+-  Tranh cãi clip cho trẻ ăn thằn lằn chữa hen trên TikTok, chuyên gia nói gì?
+-  Tìm người thân của bé trai sơ sinh bị bỏ lại bên đường
+-  Nhật Bản miễn phí đại học cho nhà đông con
+-  Elon Musk'ın yeni SpaceX planı! Dev şirketleri sollayabilir
+-  Lietuvoje kritiškai trūksta sunkvežimių mechanikų: mokymo įstaigose – pasenusi literatūra ir priemonių trūkumas
+-  Žurnalistės klausimas pribloškė Zelenskį. Kas nutiko
+-  [ŽT] Tai gudrus žaidimas. Orbanas galiausiai sutiks (Video)
+-  „Mes neklausiame, kas jeigu – klausiame kada“. Estija ruošiasi Rusijos invazijai
