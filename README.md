@@ -1,11 +1,51 @@
 # Latest News
--  أونروا : استشهاد 228 فلسطينيا بقصف لأماكن إيواء تابعة لنا
--  السيتي يختتم دور المجموعات في دوري الابطال بالعلامة الكاملة - فيديو
--  Don't expect cost savings from precision medicine, says new research
--  Moedas: dólar cai forte ante pares globais, após Powell admitir que Fed começou a discutir cortes de juros
--  ارتفاع أسعار واردات أوروبا من الغاز الطبيعي المسال
--  1:1 gegen Paris Saint-Germain: Dortmund erreicht als Gruppensieger das Achtelfinale
--  باريس يتعادل مع دورتموند ويتأهل معه لدور الـ16 في دوري الأبطال
--  Mental health and addiction now second largest cause of disease in Australia
--  Η Πόρτο πήρε τον «τελικό» και πέταξε στους «16»
--  Researcher says men should abstain from drinking at least three months prior to conceiving
+-  "นายกฯนิด" ปัดแทรกแซงขึ้นค่าแรงขั้นต่ำ ขอให้ไปทบทวนคิดถึงหัวอกประชาชน
+-  He got was a slap on the wrist.
+-  تشافي: علينا انتقاد أنفسنا
+-  אחרי יותר מעשור ושני ילדים משותפים: קרן פלס ונועם טור נפרדו
+-  Saatchi & Saatchi Australia promotes Toby Aldred to managing director
+-  Twitch’s new guidelines update removes sexual content from homepage
+-  أمريكا توضح الهدف من زيارة مستشار الأمن القومي إلى إسرائيل
+-  Atletico Madrid son 16 turuna lider olarak çıkıyor!
+-  Ölüm grubundan sağ çıkanlar: Borussia Dortmund-PSG!
+-  Adobe shares slide on weaker-than-expected forecast for 2024
+-  NATO Genel Sekreteri tarafından Suudi Arabistan'a ilk ziyaret
+-  อุกอาจกลางพัทยา จ่อยิงลูก บก.นักข่าวและผู้ช่วย เหตุ จยย.ปาดหน้า อาการสาหัส
+-  Justiça nega liminar de Alexandre Corrêa para parar processo por estelionato movido por Ana Hickmann
+-  Zidane troca experiências e joga futebol com pilotos da Alpine em Madri
+-  Patriots vs. Chiefs Wednesday injury report: Demario Douglas among 6 limited for New England
+-  Beyonce gati të bëhet miliardere
+-  MIT blasted for failing to act on antisemitism, Jewish students say ‘bounties’ are offered for their IDs
+-  미국 기준금리 3연속 동결...사실상 금리인상 종료 시사
+-  "우산 꼭 챙기세요"…전국 흐리고 많은 비
+-  이주호 "교육발전특구 통해 교육 현안 큰 방향 지역 단위로 지원"
+-  Nicki Minaj on Bravo’s ‘Watch What Happens Live’: How to Watch Online for Free
+-  رسمياً | الخصوم المحتملين لريال مدريد في دور ال16 من دوري أبطال أوروبا
+-  PSG kæmper sig videre med hjælp fra Milan
+-  PSG kæmper sig videre med hjælp fra Milan
+-  أرقام وإحصائيات مباراة أتليتكو مدريد أمام لاتسيو في دوري أبطال أوروبا
+-  11 titres de consommation discrétionnaire en mouvement lors de la session après-clôture le 13/12/2023
+-  12 titres de soins de santé en mouvement lors de la session après-clôture le 13/12/2023
+-  12 titres industriels en mouvement lors de la session après-clôture le 13/12/2023
+-  12 titres informatiques en mouvement lors de la session après-clôture le 13/12/2023
+-  خصوم برشلونة وريال مدريد المحتملين في ثمن نهائي دوري الأبطال
+-  Halifax Transit welcomes first electric bus, with more to follow
+-  Another cruel comeback sees Newcastle perish in group of death
+-  I’m A Celeb’s Ant and Dec slammed over 'most fake moment' on show as fans spot blunder
+-  คุก 6 ปี "ไอซ์ รักชนก" ม.112-พรบ.คอมพิวเตอร์ฯ ประกันตัวที่ 5 แสน (คลิป)
+-  ‘My phone is blowing up’: Norman speaking to ‘eight to 12’ stars as LIV’s PGA raid set to explode
+-  ตะลึงประตูลับร้านของเก่าขนยาข้ามแดน “อนุทิน” นำทีมจับได้ลอตใหญ่ 50 ล้านเม็ด
+-  تقييم ألميرون في خسارة نيوكاسل أمام ميلان
+-  Get Into The Holiday Spirit And Design Your Cookies As Ugly Christmas Sweaters
+-  Toronto high school on lockdown after reports of person inside with gun
+-  Who has left Big Brother Reindeer Games? All eliminated contestants
+-  Bodenpersonal von Iberia will über Feiertage streiken
+-  Marvel Legends X-Men ’97 Wave 2 may have just spoiled two huge plot points
+-  Mejora tus habilidades en el Summit: Marketing de crisis y reputación online
+-  Bodenpersonal von Iberia will über Feiertage streiken
+-  Bodenpersonal von Iberia will über Feiertage streiken
+-  ‘Best toothbrush’ praised by shoppers for ‘perfect teeth’ is slashed in price: ‘I love it’
+-  Ligue des Champions : Voici les adversaires potentiels du PSG en huitièmes de finale
+-  El otro maleficio del DIM que intentará cortarse con Alfredo Arias
+-  Ridículo del Barça en Amberes
+-  '2심 무기징역' 대전 은행강도 살인범들, 오늘 대법원 선고
