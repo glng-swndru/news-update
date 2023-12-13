@@ -1,11 +1,51 @@
 # Latest News
--  Por ratificación de fiscal, Congreso local se aloja en Donceles
--  Đi thuê 5 triệu/ tháng nhưng chi 30 triệu mua nội thất: Vừa thay đổi decor và trang trí Giáng sinh hết 20 triệu đồng
--  美 의원 “中과의 ‘내러티브 전쟁’ 총공세 펼쳐야…협력해선 안 돼”
--  [전국 기초의회 의장협의회 “지방의회에 조직구성권·예산편성권 줘야”
--  [“초실감 메타버스 구현, 과학계 어밴저스 뭉쳤다”
--  [상상인저축은행 대표에 이재옥 감사 내정…매각 협상 등 과제
--  [국민은행, 국토부와 전세사기 피해자 지원…주담대 이자 0.2%p 감면
--  [대한항공, 1~3월 항공권 할인 행사…노선 증편도
--  [조민이 쓴 에세이 반짝 인기?…10위권 밖으로 추락
--  ['코스닥 새내기' 블루엠텍, 상장 첫날 공모가 대비 168% 상승 마감 [투자360]
+-  남양주시, 2023년 3차 농민기본소득 지급 확정
+-  현대차·기아 "눈 올 때 버튼만 누르면 스노 타이어로 변신"
+-  엔씨 'TL', 이용자 소통 강화…핵심 개선 방향 5가지 소개
+-  고든램지 스트리트 버거, 롯데백화점 인천점에 韓 2호점 연다
+-  배민, 한집배달·알뜰배달 하나로…'배민1플러스' 출시
+-  수출입물가, 국제유가 및 환율 내리며 다섯 달 만에 하락 전환
+-  KB국민은행, 법무법인 광장과 인도네시아 진출 기업 위한 업무협약
+-  '슈링크플레이션' 현실이었다…1년 새 37개 상품 용량 줄어
+-  SR, 9년 연속 무분규 임금 협상…상생협력 선언문 채택
+-  대한항공, 1월~3월 출발 항공권 프로모션…"물가 안정화 기여 기대"
+-  제4회 대한민국 공헌대상, 국회서 성황리에 막내려
+-  맹승지, 수건 한 장 두른 채 '아찔' 스파…와인 먹고 취했나?
+-  FC Bayern: Stimmen von Thomas Tuchel gegen Manchester United
+-  '잠행' 김기현, 이준석과 회동…이낙연 "창당시 제1당 목표"
+-  Shannen Doherty Explains How Her Beef With Charmed Co-Star Alyssa Milano Began
+-  ลดประชากรศัตรูปะการัง “ดาวมงกุฎหนาม” ระบาดรอบเกาะบอน
+-  금융위, 조각투자 방식 신종증권 개설 혁신금융서비스 신규 지정
+-  Müge Anlı’dan Yunus Emre Göçer iddialarına tepki!
+-  아시아증시, FOMC 앞두고 혼조세…닛케이 0.25%↑
+-  "S tobom nikad ne bih popila kafu": Tijana Em posle Ognjenovog neprijatnog pitanja sve iznenadila odgovorom
+-  Six pêcheurs de sardines sauvés au large du Finistère
+-  Rhône: un député déplore les "demi-mesures" du projet de loi immigration, qu'il a rejeté
+-  Why Are Their Different Skincare Requirements Pre and Post Workout? Experts Explain
+-  พบชายเร่ร่อนนอนกลางถนน ญาติมารับตัวด้วย
+-  BWF World Tour Finals 2023: Ini Kunci Fajar/Rian Gebuk Bagas/Fikri
+-  Εγκύκλιος για την εργασία και την αναπληρωματική ανάπαυση κατά τις τρεις τελευταίες Κυριακές του έτους 2023
+-  [퇴근길 날씨] 전국 구름 많다가 흐려져⋯ 다음날 겨울 비
+-  Vijay Kiragandur: డర్టీ పోటీ ఉండకూడదు - ‘డుంకీ’ రిలీజ్‌పై ‘సలార్’ నిర్మాత కామెంట్స్
+-  Arzachena, approvato il bilancio di previsione
+-  زعماء دول غرب البلقان يجتمعون مع نظرائهم من الاتحاد الأوروبي في بروكسل
+-  Petimex tổ chức Đại hội đồng cổ đông nhiệm kỳ 2023 – 2028
+-  Höglander stortrivs i drömkedjan
+-  ‘ซีพีเอฟ’ จัดโครงการ ‘ปันรู้ ปลูกรักษ์’ เปิดห้องเรียนธรรมชาติ ปลูกจิตสำนึกคนรุ่นใหม่ปกป้องสิ่งแวดล้อม
+-  Kako djeca mogu sudjelovati u božićnim pripremama?
+-  Vjenčići za vrata: 15 jednostavnih ideja za sve koji ga žele sami napraviti
+-  Brent petrol düşüyor, varil fiyatı 72,62 dolara geriledi! Akaryakıta indirim gelir mi?
+-  [현장잇슈] "무한리필, 군인은 3천원 더 내라"…'군 장병 추가 요금' 고깃집 논란
+-  સંસદ ભવનની સુરક્ષમાં મોટી ચૂક,અચાનક જ ગેસ સ્પ્રે સાથે યુવક વેલમાં ઘૂસી જતાં હડકંપ
+-  Unija poslodavaca danas predstavlja izvještaj o stvaranju povoljnog ambijenta za održiva preduzeća
+-  'प्रज्ञान'काे लोकार्पण
+-  Dončičs izceļas ar iespaidīgu “double-double”, “Mavericks” apspēlē “Lakers”
+-  Madaxweynaha Ukraine Oo Mareykanka Waydiistay Agab Militari Oo Ku Kacaya $61 Bilyan Oo Doollar.
+-  Raoni Metuktire sur la COP28
+-  Sidledes öppning på Stockholmsbörsen – budrusning i Pagero
+-  В Липецке объявили свободное посещение школ из-за снегопада
+-  L’E3 di Los Angeles, la più importante fiera di videogiochi al mondo, ha chiuso definitivamente
+-  Atasi Pengaruh Perubahan Iklim, Pemerintah Dukung Kerja Sama Lintas Sektor
+-  Un gesto, un portazo y la amonestación: los nervios de Muñoz en el juicio
+-  Минздрав Запорожской области приобрел новую медтехнику для больницы в Токмаке
+-  В Госдуме предложили увеличить выплаты врачам за выявление онкозаболеваний
