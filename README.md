@@ -1,51 +1,11 @@
 # Latest News
--  В Турции заявили об «исключительной возможности» для мира между Баку и Ереваном
--  Eyes turn to possible spring election as N.B. legislature rises for the winter
--  Paracétamol, morphine... Contre les pénuries, l'Europe publie sa première liste de médicaments vitaux
--  Irina Shayk feiert Tochter Leas Film- und Red-Carpet-Debüt!
--  [尹 "반도체, 한-네 협력 상징…신규 원전 사업 협력 지원"
--  [美, 이스라엘 터널 침수작전 겨냥 “어떤 전술이든 국제법 지켜야”
--  New Tauranga aquatic centre: $122m upgrade includes three hydroslides
--  Iz Južne Koreje poručuju: Sjeverna Koreja ima dva izbora - mir ili uništenje
--  ‘We snappen heel goed dat mensen concretere bewijzen willen zien van engagement ’
--  EU committed to ending human trafficking in Nigeria – Official
--  KoSSev: CIK primio odvojena zahteva tri predsednika skupština opština na severu Kosova
--  Powell sygnalizuje zakończenie podwyżek stóp przez Fed zostawiając sobie furtkę
--  Komisarz Hahn: KE znajdzie sposób, by udostępnić Polsce 111 mld EUR z funduszy unijnych
--  Sport24: мошенники пытались вымогать деньги у ветеранов российского футбола
--  Japonya'da maymun çiçeği virüsünden ilk ölüm kayıtlara geçti
--  Rohtak News: अभी तक नहीं आई 403 लाइट, गलियों में रहता अंधेरा
--  China risks falling into a vicious cycle of deflation and debt, Morgan Stanley economist says
--  Judge in Trump election case pauses court deadlines as appeal is heard on presidential immunity
--  La Epic Games Store regalará más de 15 juegos, empezando por la colección de ‘Destiny 2’
--  ‘Captain America: Brave New World’ Hires Scribe Matthew Orton; Additional Shooting Planned For Mid 2024
--  Lucknow News: परीक्षा से रोकने पर छात्रों ने शुरू की भूख हड़ताल
--  Ivana Nadal enciende las redes con una microbikini y deja un profundo mensaje
--  Tiniest free-floating brown dwarf identified by NASA’s Webb
--  Nacho average liquor: Doritos unveils cheese-flavoured distilled spirit
--  Nakon ucjene: EU odobrava Mađarskoj 10 milijardi eura
--  Andra raka för Rekord mot Halmstad
--  Aaj Ka Mithun Tarot Card: मिथुन राशि वालों को मिल सकती है बड़ी जिम्मेदारी, बढ़ेगी पद प्रतिष्ठा
--  En plenas fechas decembrinas bajan hasta 30% ventas por cierre de vialidades en la CDMX
--  «Παρακαλούσε να βγάλουμε την φωτοβολίδα» περιγράφει ο διμοιρίτης του 31χρονου αστυνομικού
--  Epic Games won its antitrust battle with Google. But what comes next?
--  ऑटो चलाने की इच्छुक महिलाओं को निशुल्क प्रशिक्षण देगा प्रशासन : डीसी
--  "Novi momentum da se CG vrati na put pristupanja EU"
--  Moradabad News: रामपुर में मेंथा के दो कारोबारियों की टैक्स चोरी पकड़ी गई
--  Фед даде сигнал за край на лихвените повишения и очаква по-ниски лихви през 2024 г.
--  Taylor Bright Joins Thruline Entertainment As Talent Manager
--  Eastlink is offering savings on Samsung devices ahead of Boxing Day
--  Critics Choice Awards im Februar: "Barbie" schreddert bisherigen Nominierungsrekord
--  اسعار الصرف وبيع العملات الاجنبية مسـاء الاربعاء بالعاصمة عدن
--  Järkyttävä lastensuojelu­ilmoitus aiheutti perheenäidille suunnatonta kärsimystä – Ilmoittaja tuomittiin
--  Brightonilla on paikka ostaa espanjalaispelaaja ale-hintaan
--  ARALIK ENFLASYON RAKAMLARI NE ZAMAN AÇIKLANACAK? Aralık enflasyon rakamları ne zaman açıklanacak?
--  Песков: Россия продолжает усилия по эвакуации граждан из Газы
--  Порту - Шахтар 2:1. ОНЛАЙН
--  How To Find Roller Shells in LEGO Fortnite
--  El PSOE acusa a un eurodiputado del PP de llamar "hijos de puta" a quienes aplaudían a Sánchez
--  Moradabad News: नहीं शुरू हुआ पुलिया निर्माण, लोनिवि और ट्रैफिक पुलिस के बीच हुई नोंकझोक
--  El PSOE acusa a un eurodiputado del PP de llamar "hijos de puta" a quienes aplaudían a Sánchez
--  Hamas Siyasi Büro Başkanı Heniyye: Hamas'ın olmadığı her türlü senaryo hayaldir
--  GVARDIOLA NAPUSTIO KONFERENCIJU ZA MEDIJE: Jedno pitanje novinara izbacilo ga je iz takta!
--  SKN St. Pölten holt mit 0:0 gegen Slavia ersten CL-Punkt
+-  بعد حجب أسلحة.. نتنياهو يُذكّر بايدن بجرائم ارتكبتها أمريكا في ألمانيا واليابان
+-  التصريح بدفن جثمان شاب عثر عليه في ظروف غامضة بمدينة نصر
+-  "أكبر رُتبة منذ الحرب".. مشاهد من جنازات قادة الاحتلال الذين قتلوا في كمين الشجاعية أمس
+-  المعمل المركزى للثروة السمكية يختتم التدريب الميدانى لطلاب كلية التكنولوجيا والتنمية
+-  سقطوا في كمين للمقاومة.. جيش الاحتلال يحقق في مقتل قادته بالشجاعية أمس
+-  ملتقى توظيفي لطلاب الجامعة الألمانية الدولية بمشاركة 60 شركة
+-  [“운명 엇갈렸다” 지드래곤 ‘무혐의’ vs 이선균 ‘3차소환 전망’…‘이것’ 유무 결정적
+-  [기업 10곳 중 9곳 이상 이사회에 ESG위원회 설치…재생에너지 사용·여성임원 증가
+-  [대면 수업 재개 뒤, 학교폭력 10년만 최고치…‘신체폭력’ 다시 늘었다
+-  [영탁 탁쇼2, 공연문화 소외층들 초청, 문화 나눔 훈훈
