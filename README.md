@@ -1,11 +1,11 @@
 # Latest News
--  O market tüm markalarda indirime gitti! 1 ve 5 litrelik yağda %25-45 indirim fırsatı: Duyan koşarak almaya gidiyor
--  Klimatický summit COP28 priniesol nový návrh: Vyzýva ľudstvo na odklon od fosílnych palív!
--  Presiden Jokowi Tinjau Penanaman Padi di Pekalongan
--  함양군, 숲가꾸기 최우수 기관 선정
--  산청 동의보감촌 '과다 예산' 또 도마
--  김해 남명더라우 조기분양전환 추진...임차인-임대인 '견해차'
--  (재)구리문화재단, 구리경찰서와 업무협약(MOU) 체결
--  구리시, 2023년 2기분 자동차세 57억원 부과
--  구리시, 민선8기 공약사업 시민평가단 회의...조정대상 사업 등 논의
--  구리시, 보건복지부 ‘지역복지사업평가’ 5년 연속 우수지자체
+-  Praktična žena na godišnjicu braka pokazala muža: "Oprostiće mi jer mora"
+-  외국인 투자자 등록제 31년 만에 폐지…“국내 투자 접근성 제고”
+-  미·유럽 성탄절 테러 경계령…“20대 미만 ‘외로운 늑대’ 주의”
+-  국힘 ‘1호 영입인재’ 이수정, 수원정 출마…“미성년 등 약자 대변할 것”
+-  은행 가계 대출 또 사상 최대치…주담대는 5조원 넘게 늘어
+-  제주항공, 삼원가든과 협업 기내식 신메뉴 2종 출시
+-  서장훈 "온라인에 나랑 어떻게 사느냐는 반응 많아…"('고딩엄빠4')
+-  한화 건설부문, 2023 동반성장지수 '최우수 기업' 선정
+-  ‘이재, 곧 죽습니다’ 박소담·서인국→이재욱, 대세 배우들이 전할 '삶과 죽음'(종합)[스한:현장]
+-  '뉴진스 소속사' 어도어 민희진 대표, 대통령표창 수상…K-팝 위상 빛내다
