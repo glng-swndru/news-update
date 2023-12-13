@@ -1,51 +1,11 @@
 # Latest News
--  Soccerladuma | In This Week’s Edition Of Soccer Laduma
--  Mitte-Bundesrätin Viola Amherd ist Bundespräsidentin 2024
--  PSG Altay'ın genç yıldızına kancayı taktı
--  تحويل 13 مصابا بحادث سلحوب من جرش الحكومي لمستشفيات أخرى
--  れいわ 山本代表 “議員のローテーションは見送る”
--  ‘뮌헨 센터백이 돼라’ 투헬 전화에…바르사 철벽, 이적 가능성 열어놨다
--  رئيس نادي تركي يواجه عقوبة السجن بعد ضرب الحكم
--  نواكشوط: جلسة مغلقة لمحاكمة المسيئة للجناب النبوي
--  Caspar David Friedrich als Vorreiter der Moderne
--  تشواميني يكشف موعد عودته للتدريبات
--  Полски депутат изгаси с пожарогасител свещник за Ханука
--  COP28: Ende des fossilen Zeitalters nicht in Sicht – Anleger ziehen Geld von Erneuerbaren ab
--  Аксенов: аэропорт Симферополь пока не будет работать
--  নির্বাচনে লড়তে আত্মীয়স্বজন থেকে ধারদেনা করছেন কোটিপতি প্রার্থী
--  Posljednji susret pred izbore: Vučić zahvalio Dodiku na izuzetnoj saradnji i podršci
--  Tarihte ilk büyük salgın hangi döneminde görüldü
--  Mardin’de trafik kazası: 2 yaralı
--  Hestnes blir med KFUM opp til Eliteserien
--  Медведев призвал россиян отдыхать в Африке вместо Европы
--  Obznanjeno: Evo tko dolazi na čelo ministarstva gospodarstva nakon Filipovićeve smjene
--  Георгиев: Судскиот совет на јавна седница ќе дискутира за извештајот на оценската мисија на ЕУ
--  SCC expresa su apoyo a los jueces y acusa a Junts de hacer un "alegato fascista" en el Congreso
--  La pobreza monetaria bajó 4,0 puntos en República Dominicana en el tercer semestre de 2023
--  В НАО усилят охрану школ и детских садов
--  Pablo Saldarriaga cuenta qque Tatiana Astengo le hizo bullying y hasta le mentó la madre en un ensayo
--  Number of Azerbaijan's women entrepreneurs increases
--  Bielorrusia alerta de posibles "ataques terroristas" de grupos polacos
--  Ucrania espera buenas noticias de Europa tras el jarro de agua fría de EEUU
--  Стаж для выхода на пенсию предложили понизить: в чем суть изменений
--  Objavljen identitet poginulih izraelskih vojnika u Gazi, proglašeni su herojima u zemlji
--  Morbihan : soupçonnés d'avoir volé 1500 litres de gasoil dans des bus scolaires
--  La coalición de Gobierno alemana cierra su mayor crisis en el ecuador de la legislatura
--  Ascienden a más de 18.600 los palestinos muertos por la ofensiva del Ejército de Israel contra Gaza
--  Knights of the Old Republic ‘still has a lot of demand,’ Disney exec says
--  Kogels vlogen naar de auto waar hij inzat: wie is kickbokser Arek Wrzosek?
--  «Όταν ξεκίνησα στην Μενεγάκη, έπεσε όλο το κατεστημένο να πει: μην βγάζετε ανθρώπους που είναι χοντροί»
--  IND vs SA, Third T20I: India vs South Africa head-to-head record
--  Şehit Teğmen Eril Alperen Emir'e veda
--  Rivers State: Gov Fubara presents 2024 budget to group of 5 Assembly lawmakers
--  La junta golpista de Mali envía a un delegado a la Cedeao para reforzar sus relaciones
--  America is on the brink in the first trailer for Alex Garland’s Civil War
--  المقاومة في غزة تستهدف حشوداً لقوات العدو ودبابات في خان يونس
--  La farmacéutica Pfizer espera ingresar en 2024 entre 54.234 y 57.015 millones de euros
--  Sondaggio / Gli arbitraggi hanno davvero tolto punti in classifica al Torino?
--  Eurodeputados insistem em início de adesão da Ucrânia, Moldova e Bósnia à UE
--  AB'den kara parayla mücadele adımı
--  Sindicatos UE esperan acuerdo sobre ley trabajadores plataformas acabe con "salvaje oeste"
--  Türk Büyükelçiliği Önünde Patlama!
--  Begini Respons Ganjar Soal Hasil Survei Elektabilitasnya Turun
--  “The Crown”: ¿a qué hora se estrena la parte 2 de la temporada final en Netflix?
+-  استمرار مكاسب مؤشر سوق الأسهم يغلق مرتفعا عند 11401نقطة
+-  95 محطة في 9 مناطق .. والحدود الشمالية تسجّل الأعلى مطرًا بـ 35.5 ملم
+-  أخبار السعودية.. حقيقة استبعاد الابن الموظف من حساب المواطن وإلغاء الانقطاع عن العمل
+-  خدمة جديدة في الجوازات.. "تواصل" تنجز المعاملات التي تعذر تنفيذها
+-  شفاعة أمير منطقة القصيم تعتق رقبة مواطن من القصاص
+-  Sam Thompson’s Emotional Reunion with Zara McDermott
+-  En el sector Fe y Alegría de El Tigre se refugian en las oraciones para poder sobrevivir a la desidia (+Fotos)
+-  Intel Meteor Lake aneb Core Ultra 5 125H proti Ryzenu: slabší CPU, ale silnější GPU
+-  "Eliminisali bi Partizan i bez incidenta u Madridu"
+-  Minambiente aplaude acuerdo de COP28 pero lamenta que se hable de combustibles de transición
