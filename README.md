@@ -1,11 +1,11 @@
 # Latest News
--  İşgalci İsrail bakanlarından Biden'a cevap: Filistin devletinin kurulmasına izin vermeyeceğiz
--  티모시 샬라메 '웡카', 내년 1월31일 국내 개봉
--  김아름, 오늘 겨울 시즌송 '첫 눈' 발표
--  BTS 정국, 美 빌보드 '핫100' 역주행
--  박세미, 아찔한 보디프로필 사진 공개
--  드림캐쳐, 데뷔 7주년 기념 콘서트 개최
--  11월 취업자 27.7만명↑,33개월 연속 증가세 … "고용률은 역대 최고, 실업률은 역대 최저"
--  한재림 연출 '더 에이트 쇼', 류준열·천우희·박정민 등 8人캐스팅
--  BTS 정국, '어셔' 깜짝 등장 퍼포먼스 티저 공개
--  सुनकोशीमा बाँध निर्माण तीव्र
+-  City-based band Inayat`s debut album brings Hindu mythology to the spotlight
+-  Mumbai’s tryst with Christianity
+-  Gamers and industry insiders decode the victory of Baldur’s Gate III
+-  Sarson da season
+-  Rajya Sabha passes bill on CEC and EC appointments, service terms
+-  Benton County honors Officer Kevin Apple two years after his death
+-  抗日將領馮欽哉電視劇被「屈」行賄 西安製片廠兩判敗訴拒登報道歉
+-  한화건설, 동반성장지수 ‘최우수’ 선정
+-  ‘글로벌 인기’ 실감…임영웅, ‘Do or Die’ 빌보드 차트서 8회 연속 차트인
+-  머스크 X, 올해 광고 매출 작년의 반토막 전망...진짜 파산하나
