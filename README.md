@@ -1,11 +1,11 @@
 # Latest News
--  Ljudi koji zadržavaju kihanje dovode se u veliku opasnost: Pogledajte što se dogodilo ovom tipu
--  Rekordbeløb skal genrejse smadret havn på Sjælland: Vi havde frygtet det
--  TSYD'den açıklama: Amigoluk yapan gazetecilere akreditasyon yok!
--  Nel centro di Roma in arrivo un'invasione di nuove gelaterie e pizzerie al taglio
--  '단벌신사' 권영민 감독, 구단 최다 9연승 바라본다 "이 옷 입고 가서 우리카드 이기고 싶다" [MD수원]
--  Наградиха варненци с приза „Посланици на донорството“
--  Пробация за арендатор от Аврен, извършил документно престъпление
--  Amsterdam-based Decodata, a digital data hub for interior products, secures fresh funding
--  A ka rrezik që kur me MPB të udhëheq VMRO të përsëritet skenari 27 prillit?
--  أمطار متوسطة إلى غزيرة على منطقة المدينة المنورة
+-  Ўзбекистон Қизил китобига киритилган ҳайвонларни йўқ қилганлик учун жарималар миқдори 10 бараварга оширилди.
+-  Ўзбекистонда хорижий инвестициялар ҳажмида улуши юқори давлат маълум қилинди.
+-  Байден Исроил халқаро қўлловни йўқотаётганини айтди.
+-  COP28 якуний ҳужжат бўйича келишмовчиликлар туфайли узайтирилди.
+-  “뮌헨은 영입할 때 인성 봐”…‘1200억’ 맨유 문제아, 김민재 새 동료 자격 없다
+-  Şanlıurfa'da, jandarma ile eylem yapan işçiler arasında gerginlik: 20 gözaltı
+-  Pompalı tüfekle köfteciyi vuran şüpheli, eski ortağı çıktı
+-  Kırmızı ışık denetiminde ceza yazılan sürücü: İspatlasınlar geçtiğimi
+-  Üzerine benzin döküp kendini ateşe veren seyyar satıcı yaralandı
+-  Une majorité écrasante à l'Onu a approuvé la résolution de l'Égypte et de la Mauritanie sur Gaza
