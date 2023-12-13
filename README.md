@@ -1,51 +1,11 @@
 # Latest News
--  Nová poľská vláda získala dôveru poslancov Sejmu: Krajina sa vráti na miesto, ktoré jej v Európe patrí, tvrdí Tusk
--  SMUTNÁ SPRÁVA! Herečka (43) zo seriálu Teória veľkého tresku má RAKOVINU PĽÚC
--  Nollywood Actress, Sonia Ogiri Exposes Nigerian Crossdresser Who Secretly Got Married, Expecting Second Child
--  [광주시, 명품강소기업 35개사 육성
--  [이관섭 정책실장, 가락동 농수산물 도매시장 찾아…“물가 안정 최우선”
--  [대만 대선 한달 앞…친미 집권당·친중 제1야당 후보 오차범위 ‘박빙’
--  [해남군“촘촘하게, 두텁게”사회안전망 구축으로 따뜻하게 빛났다
--  [영광군, 2023년 탄소중립 나무심기 평가 ‘대상’ 수상
--  [순천시청서 300m 거리 신축별관 입주할 7개부서 목록
--  [현대지에프홀딩스, ‘기업지배구조보고서 공시우수법인’ 선정 [투자360]
--  [애 낳으면 5억 파격대출…내년 부동산 이렇게나 많이 바뀝니다 [부동산360]
--  [나주시, 영산포에 ‘타오르는 강 문학관’ 조성
--  [강수현 양주시장 “시민이 체감할 수 있는 행정서비스 만들어 가겠다”
--  [[부고] 박재현(한미약품 대표이사) 빙부상
--  [경기 침체·위안화 절하 우려…중국인들 금사재기
--  [故구자학 회장 회고록 출간…딸, 구지은 부회장 집필
--  Close results in Division 3
--  Los grandes protagonistas
--  Enjoyable competition
--  Long-time member honoured at velodrome
--  Ditjen Perkeretaapian Kembangkan Rola, Urai Kemacetan Disebabkan Truk Barang
--  Senator Pentaqonu ittiham etdi: Müharibələrdən doymursunuz
--  Dutch parliament to discuss Cabinet formation status later today
--  Şehit Piyade Teğmen Eril Alperen Emir için Şırnak'ta tören düzenlendi
--  CHP'de "Özel" fotoğrafı krizi
--  "آبل" تختبر ميزة حماية هواتف آيفون المسروقة
--  Respons Debat Perdana, Begini Kata Wakil Ketua DPD PDIP Sulsel
--  Sportprogramma Ede Stad.nl
--  Shukumaan kaamirooyin qarsoon lagu dhex qariyay oo suuqa lagu iibinayo
--  एमपी को मिला अगला मुख्यमंत्री, मोहन यादव ने सीएम पद की ली शपथ
--  3 Hal Penyebab Gagal Seleksi Beasiswa LPDP
--  Motosiklet Satışında Yeni Dönem! Resmi Gazete'de Yayınlandı
--  Hrvatski Telekom osvojio „European Excellence Awards 2023“ nagradu za najbolju europsku društveno odgovornu kampanju
--  UCL: Erik ten Hag wants Manchester United to 'turn attention to Premier League'
--  Google’s epic legal defeat threatens $300 billion app store industry
--  Google’s epic legal defeat threatens $300 billion app store industry
--  Ayah Sultan Harap Kasus Kabel Menjuntai Damai Tanpa Saling Menzalimi
--  Nơi chiếc bóng vàng – Thơ Huỳnh Lê Nhật Tấn
--  منذ 7 أكتوبر.. الأمم المتحدة: نحو 40 ألف من مبانى قطاع غزة تضررت
--  كشفت جزءًا منه.. القانونية النيابية "محتارة" بمحتوى قانون العفو
--  جوارديولا يزف نبأ سعيداً بشأن هالاند
--  Humanitarna izložba 'Božićni put' u dvorcu grofa Jankovića
--  استقرار أسعار النفط على خسارة
--  ‘한국, 전 세계에서 답장 가장 빠르다’...틴더, 올해의 트렌드 발표
--  Taylor je prvi hit napisala s 15: Obitelj se preselila zbog njezine karijere, a u školi su je mrzili...
--  Lạm phát ở quốc gia đông dân nhất thế giới tăng tốc, NHTW có lý do duy trì lãi suất cao
--  Что в новом пакете американской помощи Украине
--  Ganjar Pranowo Talks on Resolving Unemployment During Presidential Debate
--  Sondaggi politici elettorali oggi 13 dicembre 2023: male il Movimento 5 stelle, sale il Partito democratico
--  السفير الروسي: العقوبات الأمريكية لن تساعد زيلينسكي
+-  O market tüm markalarda indirime gitti! 1 ve 5 litrelik yağda %25-45 indirim fırsatı: Duyan koşarak almaya gidiyor
+-  Klimatický summit COP28 priniesol nový návrh: Vyzýva ľudstvo na odklon od fosílnych palív!
+-  Presiden Jokowi Tinjau Penanaman Padi di Pekalongan
+-  함양군, 숲가꾸기 최우수 기관 선정
+-  산청 동의보감촌 '과다 예산' 또 도마
+-  김해 남명더라우 조기분양전환 추진...임차인-임대인 '견해차'
+-  (재)구리문화재단, 구리경찰서와 업무협약(MOU) 체결
+-  구리시, 2023년 2기분 자동차세 57억원 부과
+-  구리시, 민선8기 공약사업 시민평가단 회의...조정대상 사업 등 논의
+-  구리시, 보건복지부 ‘지역복지사업평가’ 5년 연속 우수지자체
