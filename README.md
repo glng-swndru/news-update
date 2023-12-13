@@ -1,11 +1,11 @@
 # Latest News
--  Argentina to devalue peso, slash energy subsidies to fix economic crisis
--  UK's Sunak sees off revolt to win vote on Rwanda migrant plan
--  Vietnam boosts China ties as 'bamboo diplomacy' follows US upgrade
--  Money supply up for 5th month in October amid tightening policy: BOK
--  Korea, Netherlands to codify 'semiconductor alliance' in summit document
--  Kakao nominates female CEO
--  Aquariums to be banned from buying cetaceans for display
--  Defense chief warns N. Korea of 'hell of destruction' in event of reckless acts
--  US-sanctioned Korean national under probe by Korean authorities: Seoul official
--  Байден Киевга 200 млн доллар ёрдам кўрсатишни маъқуллади.
+-  طريقة ورابط معرفة نتائج القبول في كلية الملك خالد العسكرية
+-  رموز جديدة.. "المرور" يطرح مزادًا إلكترونيًا عبر "أبشر"
+-  Eagles can win AFCON but I’m worried about players’ poor attitude –Lawal
+-  Colombia quiere consolidar su proceso ante México
+-  Junior sueña con ser campeón ante el DIM
+-  Lari Marathon 70 KM UI Ultra 2023 Kembali Digelar 17 Desember 2023
+-  ["애들 다 죽일게요" 학부모 단톡방 협박 10대, 교복 차림 법원 출석
+-  [교통안전공단 광주전남본부, “불법행위 화물차 723대 적발”
+-  [이병훈, “저는 민주당 사람, 민주당이라는 배 지킬 것”
+-  [‘공급망 안정 품목’ 185개 지정…특정국 의존도 50%이하 낮춘다
