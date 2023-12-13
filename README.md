@@ -1,11 +1,11 @@
 # Latest News
--  Life | Zahara's memorial service details announced
--  [2023 제주일보 10대 뉴스] 제주형 행정체제 개편 권고안 임박.....넘어야 산 '수두룩'
--  티웨이항공, 유럽 노선 운항 안전할까…잇단 기체 결함에 우려 목소리↑
--  Wetter in NRW: Experte mit übler Winterprognose – „Ohje, ohje“
--  بيطري الغربية: تحصين 207 آلاف رأس ماشية ضد الحمى القلاعية والوادي المتصدع
--  Əsirlərin nə vaxt dəyişdiriləcəyi bəlli oldu: Sərhədin bu hissəsində...
--  İran, 32 ülkeyle vizeyi tek taraflı kaldırıyor
--  15 Temmuz Şehitler Köprüsü'nde kaza
--  Gazoz fabrikasında korkunç kaza: 2 işçi hayatını kaybetti
--  Beşiktaş'ta kadro dışı kararının en önemli sebebi ortaya çıktı
+-  Ljudi koji zadržavaju kihanje dovode se u veliku opasnost: Pogledajte što se dogodilo ovom tipu
+-  Rekordbeløb skal genrejse smadret havn på Sjælland: Vi havde frygtet det
+-  TSYD'den açıklama: Amigoluk yapan gazetecilere akreditasyon yok!
+-  Nel centro di Roma in arrivo un'invasione di nuove gelaterie e pizzerie al taglio
+-  '단벌신사' 권영민 감독, 구단 최다 9연승 바라본다 "이 옷 입고 가서 우리카드 이기고 싶다" [MD수원]
+-  Наградиха варненци с приза „Посланици на донорството“
+-  Пробация за арендатор от Аврен, извършил документно престъпление
+-  Amsterdam-based Decodata, a digital data hub for interior products, secures fresh funding
+-  A ka rrezik që kur me MPB të udhëheq VMRO të përsëritet skenari 27 prillit?
+-  أمطار متوسطة إلى غزيرة على منطقة المدينة المنورة
