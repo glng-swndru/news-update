@@ -1,51 +1,51 @@
 # Latest News
--  남양주시, 2023년 3차 농민기본소득 지급 확정
--  현대차·기아 "눈 올 때 버튼만 누르면 스노 타이어로 변신"
--  엔씨 'TL', 이용자 소통 강화…핵심 개선 방향 5가지 소개
--  고든램지 스트리트 버거, 롯데백화점 인천점에 韓 2호점 연다
--  배민, 한집배달·알뜰배달 하나로…'배민1플러스' 출시
--  수출입물가, 국제유가 및 환율 내리며 다섯 달 만에 하락 전환
--  KB국민은행, 법무법인 광장과 인도네시아 진출 기업 위한 업무협약
--  '슈링크플레이션' 현실이었다…1년 새 37개 상품 용량 줄어
--  SR, 9년 연속 무분규 임금 협상…상생협력 선언문 채택
--  대한항공, 1월~3월 출발 항공권 프로모션…"물가 안정화 기여 기대"
--  제4회 대한민국 공헌대상, 국회서 성황리에 막내려
--  맹승지, 수건 한 장 두른 채 '아찔' 스파…와인 먹고 취했나?
--  FC Bayern: Stimmen von Thomas Tuchel gegen Manchester United
--  '잠행' 김기현, 이준석과 회동…이낙연 "창당시 제1당 목표"
--  Shannen Doherty Explains How Her Beef With Charmed Co-Star Alyssa Milano Began
--  ลดประชากรศัตรูปะการัง “ดาวมงกุฎหนาม” ระบาดรอบเกาะบอน
--  금융위, 조각투자 방식 신종증권 개설 혁신금융서비스 신규 지정
--  Müge Anlı’dan Yunus Emre Göçer iddialarına tepki!
--  아시아증시, FOMC 앞두고 혼조세…닛케이 0.25%↑
--  "S tobom nikad ne bih popila kafu": Tijana Em posle Ognjenovog neprijatnog pitanja sve iznenadila odgovorom
--  Six pêcheurs de sardines sauvés au large du Finistère
--  Rhône: un député déplore les "demi-mesures" du projet de loi immigration, qu'il a rejeté
--  Why Are Their Different Skincare Requirements Pre and Post Workout? Experts Explain
--  พบชายเร่ร่อนนอนกลางถนน ญาติมารับตัวด้วย
--  BWF World Tour Finals 2023: Ini Kunci Fajar/Rian Gebuk Bagas/Fikri
--  Εγκύκλιος για την εργασία και την αναπληρωματική ανάπαυση κατά τις τρεις τελευταίες Κυριακές του έτους 2023
--  [퇴근길 날씨] 전국 구름 많다가 흐려져⋯ 다음날 겨울 비
--  Vijay Kiragandur: డర్టీ పోటీ ఉండకూడదు - ‘డుంకీ’ రిలీజ్‌పై ‘సలార్’ నిర్మాత కామెంట్స్
--  Arzachena, approvato il bilancio di previsione
--  زعماء دول غرب البلقان يجتمعون مع نظرائهم من الاتحاد الأوروبي في بروكسل
--  Petimex tổ chức Đại hội đồng cổ đông nhiệm kỳ 2023 – 2028
--  Höglander stortrivs i drömkedjan
--  ‘ซีพีเอฟ’ จัดโครงการ ‘ปันรู้ ปลูกรักษ์’ เปิดห้องเรียนธรรมชาติ ปลูกจิตสำนึกคนรุ่นใหม่ปกป้องสิ่งแวดล้อม
--  Kako djeca mogu sudjelovati u božićnim pripremama?
--  Vjenčići za vrata: 15 jednostavnih ideja za sve koji ga žele sami napraviti
--  Brent petrol düşüyor, varil fiyatı 72,62 dolara geriledi! Akaryakıta indirim gelir mi?
--  [현장잇슈] "무한리필, 군인은 3천원 더 내라"…'군 장병 추가 요금' 고깃집 논란
--  સંસદ ભવનની સુરક્ષમાં મોટી ચૂક,અચાનક જ ગેસ સ્પ્રે સાથે યુવક વેલમાં ઘૂસી જતાં હડકંપ
--  Unija poslodavaca danas predstavlja izvještaj o stvaranju povoljnog ambijenta za održiva preduzeća
--  'प्रज्ञान'काे लोकार्पण
--  Dončičs izceļas ar iespaidīgu “double-double”, “Mavericks” apspēlē “Lakers”
--  Madaxweynaha Ukraine Oo Mareykanka Waydiistay Agab Militari Oo Ku Kacaya $61 Bilyan Oo Doollar.
--  Raoni Metuktire sur la COP28
--  Sidledes öppning på Stockholmsbörsen – budrusning i Pagero
--  В Липецке объявили свободное посещение школ из-за снегопада
--  L’E3 di Los Angeles, la più importante fiera di videogiochi al mondo, ha chiuso definitivamente
--  Atasi Pengaruh Perubahan Iklim, Pemerintah Dukung Kerja Sama Lintas Sektor
--  Un gesto, un portazo y la amonestación: los nervios de Muñoz en el juicio
--  Минздрав Запорожской области приобрел новую медтехнику для больницы в Токмаке
--  В Госдуме предложили увеличить выплаты врачам за выявление онкозаболеваний
+-  Тульская область вошла в топ-10 регионов с ростом налога с зарплат
+-  В Сочи обновят 200 тысяч квадратных метров асфальта
+-  프리모아, PMO∙FIP 서비스 론칭 … IT 기술파트너 도약 박차
+-  농협 임직원, 소액기부캠페인 모금액 1500만원 전달
+-  নির্বাচন কমিশন জনগণের ভোটাধিকারের বিরুদ্ধে অবস্থান নিতে চায়: ১২ দলীয় জোট
+-  ২৪ ঘণ্টায় ঢাকাসহ সারাদেশে আরও পাঁচ গাড়িতে আগুন
+-  হাইকোর্টে ৯ অবকাশকালীন বেঞ্চ গঠন
+-  ব্রিটিশ পার্লামেন্টে বিতর্কিত ‘রুয়ান্ডা প্ল্যান’ পাস
+-  গাজীপুরে ট্রেন দুর্ঘটনায় তিন তদন্ত কমিটি গঠন
+-  জাতীয় পার্টির নির্বাচনে আসা নিয়ে সংশয় থাকতে পারে: ওবায়দুল কাদের
+-  সরেজমিন শ্যামবাজার: পাইকারিতে পেঁয়াজের দাম কমলেও প্রভাব নেই খুচরা বাজারে
+-  বিজয়ের সূর্য, প্রজন্মের মুষ্ঠিবদ্ধ হাত
+-  সিলেট ও বরিশালের কমিশনারসহ পুলিশের ৪ কর্মকর্তার রদবদল
+-  জাতীয় নির্বাচন: চতুর্থ দিনের প্রথমার্ধে প্রার্থিতা ফিরে পেলেন ২৬ জন
+-  নৌকায় ভোট না দিলে কেন্দ্রে আসতে নিষেধ করেছেন ইউপি চেয়ারম্যান
+-  খুলনার পাইকগাছা আদালত কক্ষে আগুন
+-  কিশোর বয়সেই অ্যাটর্নি!
+-  গাজীপুরের রেললাইন কাটা নির্বাচনবিরোধী ষড়যন্ত্র ও নাশকতা: ওবায়দুল কাদের
+-  Korea faces backlash for toughening rules on refugees
+-  Mohegan Inspire aims to become Korea's largest entertainment resort leveraging K-pop's global popularity
+-  God of War Ragnarök: Valhalla-DLC und Update 5.01 stehen zum Download bereit
+-  Warum sprach Jamie Lynn Spears so offen über Britney im TV?
+-  Situação de seca fraca aumentou em novembro na região Sul
+-  Gubaš: Miting opozicije podsetio na stare dobre devedesete
+-  Умер звезда "Доктора Хауса": последние фото Андре Брауэра
+-  Apple enhances ecosystem with latest beta updates
+-  [신제품] 롯데칠성음료·대상 청정원·더본코리아 외
+-  Krankenkasse beklagt sorglosen Umgang mit Schmerzmitteln
+-  Söder: AfD nicht verbieten, aber als gesichert rechtsextrem einstufen
+-  Zwei Tote und drei Schwerverletzte nach Wohnhausbrand in Offenbach
+-  Hilfe für Katze Mimi - Vereine unterstützen bei Kosten für Tierarzt
+-  Gaza : L’ONU Réclame un Cessez-le-feu Humanitaire Face à une Situation Catastrophique
+-  Điện hóa xe: Cần hỗ trợ giá điện cho trạm sạc
+-  Yılan hikayesine dönen İnciraltı yeniden askıda!
+-  Радио Китай: Как Китай пробива опитите за "сдържане" с добросъседство и взаимноизгодни проекти
+-  Самир Багиров кардинально изменил внешность
+-  [상보] COP28, 화석연료 ‘전환’ 촉구 합의 타결
+-  VIDEO: Bihar LJP leader’s ‘objectionable’ dance moves on Bhojpuri songs caught on cam
+-  Kickoff | Downs star man the best to ever play in the PSL?
+-  김소현 경주시의원 "공공도서관 아동 성교육 도서 관리" 촉구
+-  [인사] 경북대
+-  김하성이 추천했던 '옵트아웃'…이정후로선 '꿩 먹고 알 먹고'
+-  프로야구 두산, 음주운전 적발 숨긴 포수 박유연 방출
+-  Расписание вестибюлей станции «Зенит» изменится с 15 декабря
+-  Россиянам рассказали, как общаться с мошенниками
+-  শুক্রবার রিজার্ভে যোগ হবে আইএমএফের ঋণের দ্বিতীয় কিস্তি
+-  Chủ tịch nước Võ Văn Thưởng hội kiến Tổng Bí thư, Chủ tịch nước Trung Quốc Tập Cận Bình
+-  Ten Hag sack? Manchester United need to ‘take the f***ing hit’
+-  Тяжелые бои на украинском фронте
+-  России наука не нужна
