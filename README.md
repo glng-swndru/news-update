@@ -1,11 +1,51 @@
 # Latest News
--  ทีดีอาร์ไอชี้ การศึกษาแย่ทุกทักษะ ทำคะแนน PISA เด็กไทยลดต่อเนื่อง
--  My daughter, 3, was mauled by a Staffy-cross at a play date – her injuries were so bad my partner couldn’t look at her
--  Win a range of Christmas presents with The Sun Play this December
--  Taraba verí, že sa čoskoro nájde efektívne riešenie regulácie veľkých šeliem
--  Najdivokejšie konšpiračné teórie, aké kedy kto počul: Pozor, tej ôsmej veria aj mnohí Slováci!
--  Úplná apokalypsa: Najdesivejšie mesto duchov je v Turecku
--  Najhoršie Vianoce Andrey Verešovej: STRACH o mamu… RAKOVINA pečene!
--  Do aktuálnej schôdze Národnej rady SR pribudol návrh štátneho rozpočtu: Rokovať sa bude až do polnoci!
--  Daqo New Energy's Subsidiary Xinjiang Daqo Announces Investment Agreement to Establish Polysilicon and Silicon Metal Project to Integrate Upstream Supply
--  Emeren Group Announces Results of Annual General Meeting
+-  В Ереване заявили об обсуждении с Баку отвода войск от границы
+-  Трамп опережает Байдена, но американцы хотят других
+-  Российский писатель назвал российских солдат «отстоями»
+-  Rebel alliance reaffirms commitment to ending Myanmar ‘dictatorship’
+-  Two Germans to go on trial in Russian spying case
+-  Japan PM to sack four ministers over graft claims
+-  El Oppidum de Sierra Boyera en la última edición de Los Miércoles en el Museo
+-  Marido que agrediu esposa em posto de gasolina de Blumenau será investigado por 3 crimes
+-  Të vlerësohet kontributi i grave malësore në luftë për liri
+-  KORREKTUR OTS0097: Deckenbacher: Öffentlicher Dienst unverzichtbar für unser Land – Attraktivierung und faire Entlohnung essenziell
+-  Loles López considera "vomitivo" el apuñalamiento a una embarazada en Fuente Palmera
+-  Yemen’s Houthis warn ships in Red Sea to avoid travel to Palestinian territories
+-  김영진, 김치 나눔•급식봉사 현장 방문
+-  "U Crnoj Gori tabloidi ne kreiraju javno mnjenje"
+-  Popular Hill Country Pizza Debuting Brick and Mortar
+-  NZSA comfortable with Radius' related party dealings
+-  Damning A-G report on Government infrastructure programmes
+-  Cook Strait ferry project dumped as costs rise
+-  Gaziantep'te Motorsiklet Satacaklar Dikkat! Resmi Gazete’de yayımlandı..
+-  US-Wahl 2024: Prominente Unterstützung für Nikki Haley
+-  ג'יימס פלדין: "כשהגענו למגרש היו פיצוצים. הרגיעו אותנו שזו אש שלנו"
+-  בקטלוניה קבעו: שחקני ברצלונה לא יוכלו להתקלח בחדר ההלבשה
+-  New BBC chair Samir Shar says Gary Lineker's tweet about Grant Shapps appears to breach broadcaster's social media guidelines
+-  UN says satellite images show 18% of Gaza infrastructure destroyed since war
+-  একনজর: সারা দিন বিশ্বে যা ঘটল
+-  Νίκος Κουρής – Έλενα Τοπαλίδου: Αντιδράσεις για την πιρουέτα – «Είναι θέμα αισθητικής, ασέβεια»
+-  El Supremo absuelve al único condenado por la trama de Extranjería de la Carioca
+-  Magallanes consigue un importante triunfo tras vencer a Águilas
+-  노조미 “피싱, OT 환경도 중단시킬 수 있다”
+-  Libertad con cargos para la madre que abandonó a su bebé en un coche en Córdoba
+-  Florian Hempel vor der Darts-WM – wie sich der „Kölsche Jung“ vorbereitet
+-  Kremlin slams US ‘interference’ on Navalny case
+-  Hurtado augura que en Córdoba habrá que hacer "una importante devolución" de Fondos Edusi
+-  Mark Drakeford RESIGNS as First Minister of Wales saying ‘the time has now come’
+-  El sector eléctrico español tuvo un superávit de 6.190 millones de euros en 2022
+-  Developers react to the death of E3
+-  Gesunde Kühe sind die Voraussetzung für eine nachhaltige Milchproduktion
+-  ভারতের সংসদে ঢুকে দুই তরুণের হুলুস্থুল কাণ্ড
+-  Argentina, dopo il giuramento arrivano le prime misure shock di Milei
+-  Jamie Carragher rips into Erik ten Hag and accuses him of 'clutching at straws' - after the Man United boss insisted they 'didn't deserve to lose' as they were dumped out of the Champions League by Bayern Munich
+-  Spain charges arbitrator who awarded $15 billion to sultan’s heirs in Malaysia dispute
+-  TFF Başkanı açıkladı: Ligler 19 Aralık'ta başlıyor
+-  ¿Qué fue de los colaboradores de 'Crónicas Marcianas'? De Rocío Madrid a Mariano Mariano
+-  New European train service linking top holiday hotspots launching next year
+-  За една година порасна бројот на Македонци кои аплицирале за бугарски пасоши, апликации има и од граѓани на Албанија и Србија
+-  Hovedfokuset i Avatar 3 vil være karakterdybde.
+-  More than 50 people injured in nighttime Russian missile attack on Ukrainian capital
+-  Robot Tesla Optimus Gen 2: o 30 % rychlejší chůze i lepší tanečky
+-  預防腦退化丨高血壓增患認知障礙症率 4大醒腦運動減風險 散步也有效
+-  Stadtwerke Aschaffenburg steuern 2024 ins Minus
