@@ -1,11 +1,51 @@
 # Latest News
--  Egy korábbi Rockstar fejlesztő elárulta, hogy miért késik PC-re a GTA 6
--  Fernando Hierro 'renuncia' a su puesto como asesor de la FMF
--  NSG: Báo cáo tài chính năm 2022
--  CMD: Thông báo ngày đăng ký cuối cùng dự kiến để tạm ứng cổ tức đợt 2 năm 2023 bằng tiền
--  BMJ: Thay đổi giấy đăng ký kinh doanh
--  DAS: Công bố thông tin về việc cổ phiếu của công ty tăng trần 5 phiên liên tiếp
--  ISG: Nghị quyết Hội đồng quản trị
--  ISG: Thông báo ngày đăng ký cuối cùng dự kiến để tổ chức Đại hội đồng cổ đông bất thường năm 2024
--  Philippines và Indonesia dự kiến tăng nhập khẩu gạo, cơ hội cho Việt Nam
--  IN4: Ký hợp đồng kiểm toán Báo cáo tài chính năm 2023
+-  에픽 vs 구글 반독점금지 소송…에픽이 먼저 웃었다
+-  México vio pasar a 1 millón de indocumentados
+-  รอเก้อ!! ที่ประชุม กพช. จบเร็ว-ยกเลิกแถลงกะทันหัน ประเด็นลดค่าไฟงวดใหม่
+-  В Польше депутат парламента устроил антисемитскую выходку с огнетушителем
+-  Nuevos servicios en aplicación FEL
+-  Uzmanı detayları paylaştı! Doğal besinlerle kolesterolü düşürmek mümkün...
+-  Azoty Puławy z wizytą w Płocku, czyli rywal z najwyższej półki
+-  दिल्ली में पिछले साल सड़क हादसों में 1,461 लोगों की मौत हो गई
+-  Muxuu Ten Hag Ka Yidhi Guuldaradii Kooxdiisa Ka Soo Gaadhay Bayern Munich.
+-  आर्थिक मन्दीको असर, पर्साका १७७ उद्योग बन्द
+-  मुक्तिनाथ कृषि कम्पनीको आईपीओ सूचीकृत, कति पायो ओपन रेञ्ज ?
+-  हिमालयन ८०–२० म्युचुअल फण्डको इकाई सूचीकृत
+-  ‘แอฟ ทักษอร’ ลงรูปคู่ ‘นนกุล’ ลั่นแคปชั่นน่ารัก! ฝ่ายชายโผล่เมนต์ไวมาก
+-  홍천군노인복지관 만원의 힘 후원 모임, 꿈 드림 장학사업 나눔 행사
+-  12사단 전차대대 강원특별자치도혈액원에 헌혈증 200장 기증
+-  네스프레소, 연말을 설레게 만들어 줄 ‘윈터 원더랜드’ 팝업 오픈
+-  홍천군, 군인의 날 행사…민·군·관 화합 한마당
+-  [마감시황] 코스피·코스닥, 美 12월 FOMC 경계감에 하락 마감
+-  제343회 홍천군의회 임시회 제2차 본회의
+-  춘천문화재단, 연말 콘서트 '2023 춘베리아 특급열차' 성료
+-  '올리브영 어워즈&페스타', K뷰티 컨벤션 자리매김
+-  송영길, 檢 구속영장 청구에 "영장 실질 심사 잘 준비"
+-  Страна.ua: на Украине священнику выписали повестку из-за слов «раб Божий»
+-  Ukraine’s top mobile operator hit by biggest cyberattack of war
+-  Dėl perkelto mačo – įniršis Pasvalyje: „Po tokių sprendimų praeina noras dalyvauti LKL“
+-  खुदरा मुद्रास्फीति बढ़कर तीन महीने के उच्चतम स्तर 5.55 प्रतिशत पर पहुंच गई
+-  Öğrenciyi yaralayan okul müdürü hakkında karar
+-  Redoblan capacidad de Inspección General de Trabajo
+-  USA: Kein Anstieg bei Joe Bidens Beliebtheitswerten – trotz Wirtschaftsaufschwung
+-  N1bn for trip: Stay in your office – Senate slams Trade Minister
+-  Elizabeth Struhs: 14 co-accused to stand trial in July after girl allegedly left to die
+-  Elizabeth Struhs: 14 co-accused to stand trial in July after girl allegedly left to die
+-  '현역가왕' 방송 3회 만에 시청률 11.3%…전유진, 중간점수 '최고점'
+-  유지태의 선한 영향력…'템플' 객석 100석 구매해 관객 초청
+-  정해인, '갯마을 차차차' 작가·감독 손잡고 로코 도전..'엄마친구아들' 캐스팅
+-  연말정산에 고향사랑기부제를 주목하는 이유
+-  탄소의 가격은 얼마일까?
+-  4·3평화재단 사태 계기 소통 더욱 강화돼야
+-  पीएम मोदी एमपी-छत्तीसगढ़ में नई सरकार के शपथ ग्रहण समारोह में शामिल होंगे
+-  Kreml zarobił ponad 2,5 mld USD na handlu afrykańskim złotem
+-  Kogeneracja przedstawiła politykę dywidendy na lata 2023-2030
+-  To warto wiedzieć dziś rano 13 XII 2023
+-  בטלפונים החדשים של סמסונג, Galaxy A15/25, יש אי גם לכפתורים בצד
+-  Halil Umut Meler taburcu oldu
+-  Τζένιφερ Άνιστον για τον θάνατο του Μάθιου Πέρι: «Ήταν υγιής, εκείνο το πρωί είχαμε ανταλλάξει μηνύματα»
+-  Detrás de la ventana
+-  Crna Gora glasala za humanitarni prekid vatre u Gazi
+-  Kickoff | Al Ahly chief: What I told Motsepe at CAF Awards
+-  Family member, acquaintance the likely perpetrator in over half of child sex abuse cases
+-  خضدار اور ملحقہ علاقوں میں زلزلے کے جھٹکے
