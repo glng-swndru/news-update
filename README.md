@@ -1,11 +1,11 @@
 # Latest News
--  „Srbistan”
--  طفلة اردنية تدخر مصروفها لاجل غزة
--  السيسي يغلظ عقوبات التحرش والتنمر
--  واشنطن: الاقتصاد العالمي قد يتأثر إن توسعت الحرب
--  We’ll stop cash-and-carry issue in civil service appointments, promotions – FCSC Chairman
--  Россия обещает Азербайджану «максимальную поддержку»
--  Apple to launch stolen device protection feature in upcoming iOS security update
--  Migranti krijumčareni iz BiH, upleteni i carinici
--  Dortmund - PSG en streaming : le bon plan ultime pour voir le match de Ligue des Champions ce soir
--  Barcelonasta kuuluu kummia: tuoretta jättihankintaa kaupitellaan tappiolla
+-  كيف رد اهل جنين على غناء الصهاينة عبر مكبرات مسجد جنين - فيديو
+-  افتتاح الطريق الصحراوي من نزول النقب إلى الحميمة
+-  بعد وصفها للفن بـ"الحرام".. هكذا اعتذرت حلا شيحة لفناني مصر
+-  Sienna Miller (41) in verwachting van tweede dochter
+-  Another country Russia invaded is worried a new naval base is going to drag it into the Ukraine war
+-  El clima en 2023: el año más caluroso de la historia, con récord de CO2 y sequía extrema
+-  Casa das Gaeiras foi cenário para produção de moda da estilista Susana Agostinho
+-  Netflix-Hit „Bridgerton“: Alles was Sie über Staffel 3 wissen müssen
+-  ХАМАС осудило санкции США и Великобритании в отношении своих членов
+-  Celebra UACh a personal con desayuno
