@@ -1,11 +1,11 @@
 # Latest News
--  La mayor disidencia de las Farc renuncia al secuestro con fines económicos
--  Power cut hits Teviot Valley
--  Misteri terowong tak siap-siap, apa fungsinya?
--  RM 20.32 juta projek penstabilan Tebing Sungai Kelantan
--  Ini Tugas dan Wewenang Komnas HAM, Khususnya Penanganan Pelanggaran HAM Berat
--  مديرعام قعطبة يناقش مع استشاري محافظة الضالع بالاشغال العامة مشروع برنامج التحزيم بالمديرية
--  国連総会、ガザで人道的停戦求める決議採択 日本など153カ国賛成
--  مركز انصاف للحقوق و التنمية تنظم فعالية حول العنف القائم على النوع الاجتماعي بعدن
--  The South Today Bulletin: Tuesday, December 12
--  Presidente promulga alterações aos estatutos das ordens de veterinários e nutricionistas
+-  El Senado rechaza la reforma para regular el consumo de cannabis
+-  Χρηματιστήριο: Οριακή άνοδος 0,60% στην συνεδρίαση της Τρίτης
+-  Πιτσιλής (ΑΑΔΕ) στο 25o Invest in Greece forum: Αλλάζουμε τη φορολογική διοίκηση, προς όφελος όλων
+-  Wall Street: έκλεισε ανοδικά για τέταρτη συνεχόμενη συνεδρίαση
+-  Γενική Συνέλευση ΟΗΕ: Ζητεί άμεση κατάπαυση πυρός στη Γάζα για ανθρωπιστικούς λόγους
+-  Μπάιντεν: Πρέπει να αλλάξει κυβέρνηση ο Νετανιάχου
+-  Μυτιληναίος: Δεν είμαι αισιόδοξος για την Ευρώπη, είμαι για την Ελλάδα
+-  Σκλαβενίτης: Αυξήσεις 5,17% και προσαύξηση προϋπηρεσίας στους εργαζόμενους από τον Δεκέμβριο
+-  World map of illustrated animals #ArtTuesday
+-  St Kilda coach Ross Lyon shares Tim Membrey health update: ‘He’s blossoming’
