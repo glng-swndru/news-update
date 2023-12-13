@@ -1,11 +1,51 @@
 # Latest News
--  Pierwsze zapowiedzi nowego ministra aktywów
--  S&P: fundusze private-equity mają rekordowe 2,59 bln USD do wykorzystania
--  Minister: uwolnienie funduszy z KPO i z Polityki Spójności jest absolutnie realne w bardzo szybkim terminie
--  Komentarz po sesji: Sesja w poczekalni
--  Eurobarometr: Europejczycy nadal zdecydowanie popierają Ukrainę
--  S hmlou treba rátať na celom území Slovenska: Meteorológovia vydali výstrahu
--  Fiasko na klimatickej konferencii! Návrh ako zo zlého sna: Malé krajiny hovoria o podpise ortieľu smrti
--  Eurokomisia uvoľnila Maďarsku desať miliárd eur zo zmrazených eurofondov
--  PHOTO GALLERY: Scenes From the 2023 Convenience Store News Hall of Fame Gala
--  Petro sostiene que cerrar la puerta a legalizar la producción de Colombia solo beneficia al narcotráfico
+-  Kal Ka Kark Rashifal: कर्क राशि वालों की समाज में होगी वाह-वाही, प्रेम संबंध के मतभेद होंगे दूर
+-  Bigg Boss 17: कई बार समझाने के बावजूद अंकिता लोखंडे से हुई गलती, मुनव्वर को मिला सजा देने का अधिकार
+-  El cava asegura otro año de récord de ventas a las puertas de la Navidad
+-  Schiavi avverte: «Col Newcaste l’esame decisivo, Pioli va avanti per inerzia»
+-  „Held að Diljá hafi fundið sinn stað þegar hún fer til Svíþjóðar"
+-  بقرار حكومي.. لاعبو برشلونة ممنوعون من الاستحمام في ملعب فريقهم!
+-  MP: ठंडे पानी में डाला, पेशाब तक पिलाई… आर्मी जवान ने बुजुर्ग मां-बाप के साथ की क्रूरता
+-  مصطفى علوش يتحدث عن "توقيت الحرب الكبرى"!
+-  قائد بحجم وطن....| كتب طه بلعيد المرقشي
+-  باريديس يتحدث عن شغف جارناتشو برونالدو
+-  رئيس الوزراء : شهدنا اليوم حادثاً أليماً
+-  لبيد: نتنياهو يعمل على الكذب والتحريض وخلق الكراهية
+-  فلسطين النيابية: مشروع تهجير الفلسطينيين لن يمر
+-  وزيرا الداخلية والصحة يعودان المصابين بالحادث المروع
+-  انكماش اقتصاد بريطانيا بأكثر من المتوقع
+-  وظائف شـاغرة ومدعوون للتعيين - اسماء
+-  الخزانة الأميركية: الاقتصاد العالمي قد يتأثر إن توسعت الحرب في غزة
+-  وصول طائرة مساعدات أردنية جديدة إلى العريش
+-  رئيس أركان جيش الاحتلال: ماجرى في الشجاعية حدث صعب
+-  الاحتلال يعتقل حارسين للمسجد الأقصى
+-  توجيهات ملكية بشأن الوكيل الأول سالم مفتن سالم
+-  وفاة الفنان الاردني رضوان الـمـغـربـي - صورة
+-  المرصد الأورومتوسطي : وثقنا إنشاء 120 مقبرة جماعية في غزة
+-  استشهاد صحفيين اثنين في غزة
+-  مسؤول أميركي: "إسرائيل" خسرت حرب المعلومات
+-  Watch ChatGPT-powered humanoid robot pose funny, play terrifying ghost
+-  Ao volante do Volkswagen ID.7, do KIA EV9 e a nova geração do Dacia Duster
+-  TREĆA (NE) SREĆA: Real Madrid ove sezone nije postigao niti jedan pogodak sa bele tačke
+-  الإقتصاد اليمني في عامين تحسن طفيف رغم الازمات بفضل دور أحمد المعبقي| كتب معتز عفيف الشيخ
+-  Portable Calls For Prayers Days After U.S. Tour
+-  Omer Škaljo ponovo na direktorskoj poziciji Zavoda zdravstvenog osiguranja ZDK
+-  Cigarettes: découvrez la liste complète des augmentations de prix par marque
+-  Shocking Details On Zahara’s Death
+-  రైతులను ఆదుకోవడంలో వైసీపీ విఫలం
+-  Tesla zbog neispravnog autopilota s tržišta povlači dva milijuna automobila
+-  غرف ملابس أنتويرب جاهزة لاستقبال اللاعبين قبل لقاء برشلونة
+-  బీఆర్‌ఎస్‌ నేతల చూపు కాంగ్రెస్‌ వైపు
+-  Erdődi Katalin vezetheti a Trafót
+-  파수, 애자일소다와 손잡고 기업용 생성형AI 협력 가속화
+-  "직원들 건강이 우선"…LG유플러스, 건강친화기업 인증 획득
+-  카카오모빌리티, 택시 업계와 합의...가맹금 2.8%로 신규 가맹택시 상품 마련, 프로멤버십도 내년 폐지
+-  "더 글로리, 6억 시간 봤다고?"...넷플릭스 반기별 시청 보고서 발표
+-  블록체인 기초부터 알고 싶으면 '주목'...'블롭'서 100% 전액환불 강의 띄웠다
+-  네오플, 중증근육성 희귀질환 병원 건립에 기부금 20억 쾌척
+-  తెల్లారినట్టే లేదాయె!
+-  VIDEO : Deuxième coup de pied dans la fourmilière des structures publiques et la Réconciliation pénale
+-  El Gran Chef Famosos: La Revancha EN VIVO: Natalia Salas reemplazará a José Pelaez en la conducción
+-  GESE se compromete con la Teletón 20-30
+-  وزير المالية يستقبل بعثة من البنك الدولي
+-  గొప్ప విద్యావేత్తగా ఎదగాలి : వీసీ రంగజనార్దన్‌
