@@ -1,11 +1,51 @@
 # Latest News
--  Kickoff | 'I pray we see him...' - Johnson sweating over Chiefs' key attacker
+-  Pia ayaw pakabog kay Heart
+-  الخارجية تتسلم نسخة من أوراق اعتماد السفيرة الهيلينية
+-  Berlin film festival names new head
+-  네덜란드와 핵심품목 공급망 협력 MOU…'공급망 대화체' 신설
+-  RAB’s Endeavors in Global Peace: Navigating Challenges Amidst Sanctions
+-  Ališa opet "udara" na Srbiju FOTO
+-  Lionsgate confirms ‘Saw 11’, announces release date
 -  Mehmet Büyükekşi: Süper Lig 19 Aralık Salı günü başlıyor
--  Emine Erdoğan'dan kültürel değerler mesajı
--  Kassam Tugayları: Gazze'nin güneyinde 10 İsrail tankı ve askeri aracını hedef aldık
--  Doğa Koleji t-MBA Liderlik Akademisi Eğitim Kampı İstanbul Bilgi Üniversitesi’nde gerçekleşti
--  카카오모빌리티, 택시업계와 공감대…수수료 낮추고 프로멤버십 폐지
--  India's PM Gati Shakti Plan Set For Global Expansion
--  جرائم العدوان في مثل هذا اليوم 13 ديسمبر
--  "Новая мантра" США, провал ОБСЕ и конференция по Ближнему Востоку. Лавров выступил в СФ
--  "12월 31일 이별, 쏘니 언제 돌아올 거니?"…손흥민 '최장기간' 이별 공식, '아시안컵 우승+포스테코글루 휴가=첼시와 26R 복귀'
+-  CHP'li Özel'in kirli ortaklığı bir kez daha belgelendi: Önce şehit töreni sonra HEDEP ziyareti
+-  Умер сценарист «Бандитского Петербурга» Андрей Константинов
+-  Appalto maxi diga: le cause giudiziarie fra porto e costruttori per il bando e per il risarcimento riunite in un’unica udienza il 15 febbraio
+-  Concerns about Bavuma and Rabada's preparation for first India Test
+-  CEOs FOR FUTURE zur COP28: Abkehr von fossilen Energieträgern beschlossen
+-  Орбан указал на наивность Запада из-за мечтаний о бессоннице Путина
+-  Tesla отзовет более двух миллионов автомобилей
+-  韓, 네덜란드 신규 원전 수주 공식 참여…기술 타당성 조사 계약 체결
+-  Reconocen a fundador de la Escuela Cruz Azul
+-  Barry Keoghan opens up on returning as ‘Joker’ in ‘The Batman – Part II’
+-  Hvordan kan Israel- og Palestina-konflikten løses?
+-  Pizza julaften? Juletradisjoner i endring
+-  Зеленский захотел получить больше ЗРК Patriot
+-  I produced one of the greatest world darts championship moments EVER but love to follow my Rangers heroes home and away
+-  Yayamanin!DongYan mabentang endorser
+-  Allmennhetens tilgang til strandsonen i Sagelva er truet
+-  [ŽT] Sprendimas rastas. „Policija jau vietoje.“ Kas vyksta Lenkijos-Ukrainos pasienyje (Video)
+-  Канье Уэста обругали в сети за выступление в капюшоне в стиле «Ку-клукс-клана»
+-  [ŽT] Reikalai visai blogi? Sunku patikėti, ką rusai siunčia į šturmus
+-  Psychologin Katharina Grünewald: Patchwork an Weihnachten: Kann das überhaupt jemals gut werden?
+-  Dozens of neo-Nazis in Scotland exposed after cyber attack leaks details
+-  وفد من الاتحاد الأوروبي يلتقي الطلبة السوريين في جامعة الزرقاء
+-  Atomkraft: Betreiber plant Energiespeicher auf Gelände des AKW Brokdorf
+-  Noile măsuri fiscale: fără plăți compensatorii la pensionare. Cu cât cresc pensiile și salariile în 2024
+-  Build websites using Midjourney, Chat-GPT and Figma
+-  بعد أن كرس ثروته للأعمال الخيرية.. ماذا قال بيل جيتس عن القرآن؟
+-  Hus på 82 kvadratmeter från 1962 sålt i Sundsbruk – priset: 1 425 000 kronor
+-  IBM predstavio najnaprednije kvantno računalo na svijetu
+-  SHINee to perform at S'pore Indoor Stadium on Mar. 2, 2024
+-  Бедность в Казахстане побила как минимум 12-летний рекорд, – аналитики
+-  ‘New era’: Berlin-Paris sleeper train completes maiden trip
+-  إستهداف موقع إسرائيليّ بصاروخ... والعدوّ يردّ بقصف بلدات جنوبيّة
+-  Torino, condannato a 6 anni Alex Pompa, il ragazzo che uccise il padre violento per difendere la madre
+-  Neuer Dezember-Temperaturrekord in Malaga
+-  Petrolimex đào tạo khai thác hệ thống EGAS cho Người dùng chính (Key User)
+-  أكبر مستشفى في عدن يفقد أهم أجهزته... ومواطنون يناشدون الوزير بحيبح
+-  Partizan ga preporodio - Egzum blista u NBA ligi VIDEO
+-  Elektrikli otomobil satışları yeni bir rekor daha kırdı! Çin egemenliği hala sürüyor ama...
+-  Aaron Rodgers’ power over Jets will be revealed at 2024 NFL Draft
+-  Yenidən maska rejiminə qayıtdılar
+-  MasterChef: Timovi će biti izabrani žrebom, spremaće više jela, a dva najbolja tima dobiće imunitet
+-  ناشط إسباني: مضايقات “البوليساريو” لن تثنينا عن فضح دعايتها
