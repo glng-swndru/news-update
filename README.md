@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | OPINION: Johnson The Key To Helping Chiefs Management
--  Soccerladuma | Inside Chiefs: Fleurs, Dolly & Others
--  Hububat Sonuç Sektör Bildirgesi yayımlandı
--  Konya'da uyuşturucu ticareti yapan kişinin yakalanma anı güvenlik kamerasına yansıdı
--  Konya'da sobadan sızan karbonmonoksit gazından zehirlenen kadın toprağa verildi
--  ‘Göller Ekspresi’ İzmir ile Isparta arasında gündüz seferlerine başlıyor
--  Kazan dairesinde mahsur kalan yaban keçisini binadakiler kurtardı
--  Ankaragücü açıkladı: Adı geçen şahıslar personelimiz değil
--  Εγγυημένα 5 εκατ. ευρώ από το Πρωτοχρονιάτικο Λαχείο στο φινάλε του 2023
--  Hamsi kayganası nasıl yapılır? Hamsi kayganası tarifi için malzemeler neler?
+-  [“반바지 입고 무릎 꿇어” 무료과외 해준다더니…과외 학생 허벅지 피멍 들게 때렸다
+-  Neue Lieferung Paxlovid vom Gesundheitsministerium bestellt
+-  Lloyds digital rangiran u top 10 najboljih tvrtki u Hrvatskoj u osam kategorija
+-  Streit in Kölner Südstadt: Männer schießen mit Schreckschusswaffe in Richtung eines 38-Jährigen
+-  Von der Leyen: ‘Ukrajina osim političke treba i našu održivu financijsku pomoć‘
+-  Коледното градче обединява, но и разединява благоевградчани, вижте защо
+-  Florida school board votes for 'deeply saddened' chairwoman to step down due to husband's scandal
+-  Comprehensive Guide to Securing Medical Personal Loans
+-  Aktien Frankfurt: Käufer im Dax bleiben vor Fed-Signalen am Abend am Zug
+-  Костадинов за демонтажа на ПСА: В България има пълна реставрация на фашизма
+-  Mate Rimac pohvalio se Neverama spremnima za isporuku: ‘Ova bijela će biti moja...‘
+-  BJP state president Annamalai to participate in En Mann En Makkal yatra in Salem
+-  Roberta (Bobbi) Rita McFadden
+-  Huawei will begin construction of its first European factory in 2024
+-  Invest in Uttarakhand Commitment : उत्तराखंड में 44,000 करोड़ रुपये का निवेश ग्राउंडवर्क 30,000 व्यक्तियों के लिए रोजगार पैदा करेगा, प्रस्ताव को धरातल पर उतारने की रणनीति .
+-  Zrinjski dočekuje Aston Villu: "Najveći protivnik koji je dolazio u Mostar. Dolazi njihova najjača postava i to je privilegija za nas"
+-  Μικρές Κυκλάδες: Αυτό είναι το πιο «ξεχωριστό» μενού της Αθήνας για τα ρεβεγιόν Χριστουγέννων-Πρωτοχρονιάς!
+-  Valeo : Met vallen en opstaan: Valeo
+-  "الأرصاد" يُحذر سكان تبوك من تساقط الثلوج وانخفاض درجات الحرارة
+-  ما الذي يجب أن نأكله ونشربه عندما نكون مرضى؟.. الخبراء يجيبون
+-  Theo Hernández se 'transforma' en Lucas: de lateral izquierdo... a central
+-  IW: Warme Nebenkosten 43 Prozent höher als vor Ukraine-Krieg
+-  Lavrov: Da rešimo ovo jednom za svagda...
+-  In the news today: Liberals to talk UN ceasefire stance and AI fears spark concerns
+-  В Пензе очистили снег с хоккейных площадок
+-  STAT+: Pfizer says 2024 profits will fall far below expectations
+-  Bătaie la un liceu de prestigiu din Târgu Jiu. Scandalul a avut loc într-o sală de clasă
+-  وزير الصحة يثمن الجهود التّي تبذلها الفرق الطبّية في توفير الرعاية للفلسطينيبن.
+-  Ajax zonder Bergwijn, maar met Brobbey tegen AEK Athene: Hato draagt aanvoerdersband
+-  Ещё одного специалиста отметили знаком отличия «Князь Серпуховский Владимир Храбрый»
+-  Экономический потенциал Псковской области на выставке «Россия» на ВДНХ представят весной
+-  From Skylines to Soulful Journeys: Jeevesh Sabharwal's Dual Impact in Real Estate and Faith-Based Tourism
+-  Aandelen in afwachtende houding in aanloop naar besluit Fed; olie daalt
+-  Aktien verstecken sich vor der Fed-Entscheidung und der Ölpreis sinkt
+-  Eco-Friendly Dinnerware for the Modern Host: Introducing GoEco's Compostable Tableware Collection
+-  Predivan prizor: Jaslice prvi put u povijesti postavljene na Trgu sv. Marka
+-  «Hay que enseñar a los turistas a comer lo que tenemos»
+-  Gran Hermano 2024: dos nuevos participantes se sumaron a la casa
+-  10 Expert Tips on Picking the Best Exterior Window Styles
+-  Basket-ball : pour le CTC Entente Basket Estuaire, tout se jouera dimanche contre l’Union Saint Bruno
+-  Travesti cayó tras robar pendrive de un Bolt
+-  Pakistani court indictment hits Khan's election bid
+-  Nigerian govt unveils roadmap on data protection, targets N125bn revenue
+-  Apple iPhone 16 prototype renders leak
+-  Udruženje Biogen uz Zelene Srbije za listu broj 2. "Ivica Dačić - premijer Srbije"
+-  Ferencvaros, Stankovic: "Fiorentina serena, potrà rischiare di più. Noi sottovalutati"
+-  В Пролетарском районе Твери одну из улиц перекрыла фура
+-  Киркоров подал в суд на Любовь Успенскую
+-  Live blog: Birkirkara, Swieqi to contend 17th edition of the women’s Super Cup
+-  Strange Fish Video: समंदर में तैरती रहस्यमय मछली ने किया सबको मोहित, उसके चेहरे से नजरें हटा पाना है मुश्किल
