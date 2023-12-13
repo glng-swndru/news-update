@@ -1,11 +1,51 @@
 # Latest News
--  [“애들 다 죽일게요” 학부모 단톡방 협박 10대男…구속영장 기각, 왜?
--  [미모의 20대 女의원, 징역 6년형·의원직 상실 위기…대체 왜?
--  [한-네덜란드, ‘전략적 동반자’ 격상…외교·산업장관 대화체 격년 신설
--  [“얕잡아봤다가 사달” 이러다 넷플릭스도 당한다…쿠팡발 신드룸
--  חמישי ביורוליג: מכבי תל אביב תנסה לנצל את הפציעות הרבות של אנאדולו
--  יובל נעים סיים את דרכו כמאמן הפועל ראשון לציון
--  לאסו פוגש את ריאל מדריד: "הם ירצו לשחק טוב נגדי, וזה מסוכן"
--  השר ארבל הודיע למזכיר הממשלה: "לא אפעל לדחיית הבחירות המקומיות"
--  AAP MP Raghav Chadha Criticises CEC Bill 2023, Says Govt 'Mowed Down Democracy'
--  ניקול ראידמן זועמת: "מקווה שיזריקו לו ציאניד לדם, שימות לאט"
+-  'I'm 60 and there's no magic pill to beat ageing – but one thing works wonders'
+-  'Naughty' Amazon delivery driver caught on camera stealing parcels from bloke's garden
+-  Prime Video Launches Its First Dedicated Anime Channel ‘Anime Times’; Deets Inside
+-  Liperin seurakunnalla investointien supervuosi
+-  FA Cup star scores Hand of God goal by punching ball in as fans say 'Diego would be proud'
+-  Erë e fortë, dallgë deri në 2.5 metra, jepet alarmi në det
+-  Навалний қаерда? Россия мухолифати етакчиси қамоқхонадан «ғойиб бўлди».
+-  Нотурар объектлар бўйича кадастрларнинг онлайн базаси 1 ҳафтадан буён ишламаётгани маълум бўлди .
+-  Гибрид шаклида ишлаётган “Чилонзор” 5-сонли иссиқлик маркази фаолияти ҳақида маълумот берилди.
+-  Stijging anonieme misdaadtips in gemeente Barneveld
+-  Hus i Köpmanholmen får nya ägare – prislappen: 1 900 000 kronor
+-  EFCC declares businessman, Iluyomade Tolulope Akinwale, wanted
+-  Armenia and Azerbaijan exchange prisoners at border
+-  AMD v roce 2025 očekává velký nástup AI v PC, už dodala miliony CPU s Ryzen AI
+-  Достойните в МВР: Полицай спаси спряло да диша бебе
+-  PSC disowns trending police recruitment special list
+-  মন্ত্রী-এমপির হলফনামা যেন ‘আলাদিনের চেরাগের’ কাহিনি: রিজভী
+-  নতুন শিক্ষাক্রম নিয়ে শিক্ষকদের আলোচনা সভা করতে দিল না ঢাকা বিশ্ববিদ্যালয়
+-  Gwen Stefani, 54, branded 'gorgeous' as she bares ageless figure in slashed top
+-  IndiGo Becomes The First Airline to Add Ayodhya to its Domestic Route, Details Inside
+-  شجرة عائلة الرئيس الأمريكي جو بايدن.. مجاعة البطاطس دفعت أجداده للهجرة من أيرلندا
+-  Santo Domingo, primer lugar campeonato nacional de clavados
+-  Alarma la gran 'sed' en ciudades de México
+-  Denuncian estafa tipo Aras en el TSJ
+-  Crecen tomas ilícitas de gas LP en 54%
+-  Tarda el SAT meses en devolver impuestos
+-  Empatan analistas con sus pronósticos sobre América-Tigres
+-  Ten unos huesos saludables
+-  Brutal choque entre camionetas deja como saldo dos personas heridas
+-  E kërkonte Belgjika për trafik droge, shqiptari arrestohet në Greqi
+-  Bauer sucht Geschenk für Frau: Top-Weihnachtswünsche von Landwirtinnen #geschenk #landwirtschaft
+-  پاکستان ریلوے دیگر ممالک کو بھی ریلوے چلانے سے متعلق تربیت دینے لگا
+-  Grosse fuite d'un produit très corrosif près de l'hypermarché Leclerc d'Auch
+-  OBOJICA SU IMALA RAK, A JEDAN IZ USTA BLJUJE... Monah Arsenije progovorio o bolničkim danima, ima jaku poruku za sve
+-  Goldman Sachs eleva Direcional (DIRR3) a compra e corta EzTec (EZTC3) a venda ao ver foco em “ROEs” para 2024; ações reagem
+-  বিএনপি–সমর্থকদের ভোটকেন্দ্রে যেতে নিষেধ করলেন ইউপি চেয়ারম্যান
+-  What age can children drink alcohol at home and are under 18s allowed in pubs after 9pm?
+-  Cận cảnh tượng Phật hoàng Trần Nhân Tông bằng ngọc bích Jadeite thiên nhiên quý hiếm
+-  Ärztin: Ter Stegen könnte nach OP rund zwei Monate ausfallen
+-  ماذا أعد وزير الفلاحة لعيد الأضحى المقبل ؟ مربو الماشية يتوقعون أسعاراً صاروخية للأضاحي
+-  I’m a Celeb winner Sam Thompson reunited with Zara McDermott after she surprised him with balloons at the airport
+-  Jodeci Announce 2024 ‘The Show, The Afterparty, The Vegas Residency’ Las Vegas Run
+-  Во время визита Лукашенко в Кению произошла «диверсия»
+-  জামালপুরে আওয়ামী লীগের প্রার্থীর পক্ষে ভোট চাওয়ার অভিযোগে বিএনপি নেতাকে বহিষ্কার
+-  Отдел "Икономическа полиция" към ГД "Национална полиция" разби престъпна схема за данъчни измами
+-  Près de Saumur. Deux sites troglodytes et un jardin remarquable à découvrir
+-  Explosives claim 12-year-old boy in UP, 60-year-old man in Manipur
+-  KADA JE ČUO OVO PITANJE, ZELENSKI JE ZANEMEO Zbog Putina nastao muk u Beloj kući
+-  Cumhurbaşkanı Erdoğan Zekeriya Yapıcıoğlu'nu kabul etti
+-  CANLI| İsmail Kartal konuşuyor
