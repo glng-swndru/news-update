@@ -1,51 +1,51 @@
 # Latest News
--  استشهاد 271 بينهم 69 طفلا برصاص الاحتلال في الضفة
--  قرار مُرتقب من البنك المركزي الأردني بشأن الفوائد على القروض والتسهيلات
--  بشرى للمقترضين.. رئيس الفيدرالي الأمريكي: لا رفع جديد على أسعار الفوائد
--  الذهب عالمياً يحلّق ويتجاوز مستويات الـ 2023 دولاراً للأوقية
--  حماس: معركة طوفان الأقصى تقترب من نهايتها المشرفة
--  Perang di Gaza demi realisasi rancangan jahat Zionis
--  وفيات الخميس 14-12-2023
--  Bolehkah Kabinet baharu selesai masalah negara?
--  Budi Arie soal Panduan Etik Penggunaan Kecerdasan Buatan: Pokoknya Secepatnya
--  สภาพอากาศวันนี้ มวลอากาศเย็นปกคลุม ภาคเหนืออุณหภูมิลด 1-2 องศาฯ
--  Rekap Hasil BWF World Tour Finals 2023 Hari Pertama dan Komentar Para Wakil Indonesia
--  Брайтон зіграє з Марселем, Бетіс - із Рейнджерс: розклад матчів 6-го туру Ліги Європи
--  Sharebox Debuts Pop-up XR Box at GITEX Global 2023
--  [네이처, 2023 과학계 화제의 인물에…‘챗GPT’ 선정
--  [경기도의 ‘손에 잡히는’ 인구정책. 성과 거뒀나
--  [화엄사 성보박물관서 '수행 문을 열면서' 전통자수 전시회
--  [용산구, 하반기 적극행정 우수 공무원 5명 선정…성과상여금 최고등급 부여
--  [송파구, 석촌호수 아뜰리에서 청년 예술인 합동콘서트 개최
--  [서초구, 세대공감 웹드라마 ‘일흔다섯 스물하나’ 공개
--  [경기도 미세먼지 불법배출 56건 적발
--  [경기도, 노바백스 XBB.1.5 무료 접종
--  [“귀여운 ‘봉공이’ 이모티콘 무료로 내려받으세요”
--  [구자열 무협 회장 “韓·네덜란드 협력하면 미래 성장 잠재력 더 높아질 것”
--  [경콘진, ‘게이머스 밋업’ 세미나 개최
--  [尹, 한-네덜란드 ‘반도체 동맹’ 넘어 무탄소에너지·원전협력 이끈다 [용산실록]
--  [경기도교육청 자체 제작 뮤지컬 첫 막 올려
--  سفير إندونيسيا لدى ليبيا يزور جامعة سرت .
--  انطلاق بطولة ( شيخ الشهداء لفروسية قفز الحواجز) ببنغازي .
--  توقيع اتفاقية تدريب بين المشروع الوطني للإدماج والمركز الليبي الكوري .
--  جلسة حوارية لتعزيز جهود الحد من النفايات البلاستيكية .
--  الحويج يناقش مع الأمين العام للاتحاد العربي للتأمين آلية عمل البطاقة العربية الموحدة .
--  1670 Season 1 Episodes 1 to 8 Release Date & Time on Netflix
--  Để cổ động viên đốt pháo, đội bóng Đức bị phạt hơn 15 tỷ đồng
--  నాలుగేళ్లలో ఇనుప ఖనిజేతర ఆదాయం 15%: ఎన్‌ఎండీసీ
--  Congreso EN VIVO: pleno debate moción para remover a la Junta Nacional de Justicia
--  Cruz Azul presenta de manera oficial a Iván Alonso como su nuevo director deportivo
--  Canadian man with criminal record killed at a gym in Mexican resort of Cancun
--  PlayStation. Supuestos hackers revelarán próximo juego de Spiderman 2024
--  Un juzgado admite que se omitieron imágenes desde el VAR en dos partidos
--  How Long an AirTag’s Battery Lasts (and How to Change It)
--  Catatan Bambang Widjojanto untuk Debat Capres Cawapres Isu Pemberantasan Korupsi
--  Tips Sehat Bikin Gorengan Sendiri di Rumah
--  مجلس النواب الأميركي يفتح رسمياً تحقيقاً لعزل بايدن
--  Hasan Bitmezin səhhəti necədir?
--  Qəzzada ölənlərin sayı 19 minə çatır
--  Positivo que haya inversiones en energía: presidente del CCE
--  Revela Oprah Winfrey uso de medicamentos para bajar de peso
--  ¿Qué aprender en 2024? 10 habilidades laborales en tendencia
--  عادل عبد الغفار: إدراج 18 جامعة مصرية بتصنيف QS العالمي يعكس تقدم مستوى التعليم العالي
--  [美 3연속 금리 동결] 파월, '깜짝' 비둘기 발언…"인플레 2% 달성 전에 금리 인하할 것"
+-  تقنيات حديثة لخدمة ضيوف الرحمن بالمسجد الحرام
+-  Санкции против России не работают? А как же коллапс алюминиевой промышленности?
+-  США предают своих союзников: Израиль и Азербайджан
+-  디펜딩챔피언 외인 주포 부상 이탈, 그런데 언제 돌아올지 모른다 '교체 카드 꺼낼까'
+-  '생일마다 기부한다는' 오마이걸 아린, 어느새 누적금액 1억원 [공식]
+-  티니핑월드, 판교 파미어스몰에 오픈…“티니니핑 코스프레도 가능”
+-  '조립식 가족' 황인엽·정채연·배현성, 라인업 공개…청춘스타 다 모였네 [공식]
+-  AC 밀란 고마워→신이 도운 이강인의 PSG 챔스 16강행
+-  KB금융, 무역협회와 ‘글로벌 PoC 프로그램’ 참가 스타트업 선정
+-  La dura advertencia del senador libertario que se enojó con Villarruel: "El que las hace, las paga"
+-  Heiltsuk family renews call for police discipline 4 years after handcuffing at B.C. bank
+-  Orthodontics company SmileDirectClub shuts down
+-  Vereadores de Florianópolis aprovam aumento de 48% nos próprios salários
+-  5 of the best HBO documentaries you can watch right now
+-  Alcalde Pinedo participa en segundo ciclo de inducción para autoridades territoriales en Cali
+-  Mila Kunis is seen for the first time in nearly two MONTHS as she models a Christmas sweater... after being slammed for defending Danny Masterson
+-  Procuraduría suspendió a exalcalde de Sincelejo por desatención de sus deberes
+-  Ako to mohli dopustiť? Slovenský kaštieľ bol klenotom architektúry, dlho už stáť nebude
+-  Trasú sa vám ruky alebo často padáte? Môže ísť o vážne ochorenie, ktoré sa prejavuje najmä po 50-ke
+-  RECENZIA Vyskúšali sme automatický prekladač Vasco: Oplatí sa na dovolenku aj na vianočné trhy
+-  Le Congrès américain ouvre formellement une enquête en destitution de Biden
+-  Jennifer Aniston gets in the holiday spirit by decorating her Christmas tree with mini products from her hair care line LolaVie: 'Who needs ornaments?'
+-  Cruz Azul anuncia a Iván Alonso como nuevo director deportivo
+-  Police donate 1,000 tonnes of fake designer gear to the homeless after huge counterfeit raids
+-  Fiscalización se ‘abre paso’ al juicio político a la fiscal Diana Salazar
+-  [뉴욕증시] 美 내년 금리 인하 기대에 연고점 갱신하며 상승 마감
+-  한화 건설부문, 동반성장지수 '최우수 기업'
+-  검찰, '캄보디아 공무원 로비' 혐의 김태오 DGB 회장 징역 4년 구형
+-  [부고]조경순(전 대신증권 전무)씨 부친상
+-  롯데호텔 서울, 이웃사랑 실천…김치 800㎏ 전달
+-  [08:29 가상자산] 美 내년 금리 인하 기대에 상승세
+-  [부고] 엄윤찬(우정사업본부 사무관)씨 모친상
+-  국제라이온스협회 354-C지구, '사랑의 라면' 나눔
+-  한솥도시락, 12월 ‘착한도시락’ 기부 행사 진행
+-  Brendan Rodgers elated after Celtic finish lengthy await Champions League win
+-  استطلاع رأي: تضاعف نسبة تأييد حماس بالضفة ورفض واسع لعباس
+-  Dow hits a record as Wall Street rallies after Fed signals rate cuts in 2024
+-  Trump denies media article on NK negotiation plan as 'fake news'
+-  Ohio Senate approves bans on gender-affirming care, transgender athletes
+-  Santa Elena: Balean a hombre a pocas cuadras de un retén de la Policía, víctima estaba 'limpia'
+-  AB, Batı Balkan ülkeleriyle daha fazla iş birliği hedefliyor
+-  Après la désillusion de la Coupe du monde, le XV de France cartonne
+-  Toronto FC draft choice Charlie Sharp a finalist for MAC Hermann Trophy
+-  Toronto FC draft choice Charlie Sharp a finalist for MAC Hermann Trophy
+-  CCJ do Senado aprova indicações de Dino e Gonet; escolhas de Lula seguem ao plenário
+-  美國科技股收紅，蘋果股價創歷史新高
+-  Austerität: «Die Geschichte lässt sich als Waffe gebrauchen»
+-  Züri West: Soll nur kommen
+-  Party ohne Gewalt: «Wir machen den Leuten nicht ihr Leben kaputt, sondern höchstens eine Nacht»
+-  Machtmissbrauch im Spital: Was im OP passiert, bleibt im OP
