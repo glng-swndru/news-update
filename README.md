@@ -1,51 +1,11 @@
 # Latest News
--  Zhuanzhuan makes debut at COP28, the first Chinese secondhand platform on the global stage
--  투어링스, 라오스 비엔티안서 골프 대회 개최…임진한 프로 초청
--  ‘넘버에잇트 인 비마이너’, 2024년 1월 새로운 향라인 출시
--  SK온 최재원, “창사이래 퀀텀점프…함께 할 것 많다”
--  카니발·쏘렌토·아반떼 받으려면 1년 기다려야 “잘 팔려도 걱정”
--  “오타니 계약 최악, 다저스 가장 나쁜 짓” ML 에이전트 분노폭발…100년에 한 번 나오는 선수인데
--  'UCL 1승+최다 실점' 감독, 단두대 매치 다가온다...英 언론 "라이벌과 경기에서 대패하면 끝이야!"
--  하나루프, 삼아알미늄에 ‘EU 탄소국경조정제도’ 대응 솔루션 제공
--  BE-ja vendos rregulla për inteligjencën artificiale, si do të ndikojnë ato te njerëzit?
--  ケルンに過去最高額の罰金 サポーターの発煙筒で試合が遅延
--  YSK'dan yerel seçim kararı!
--  Hasan Arat, dünya çapındaki futbolcuyu bu sözlerle istemedi
--  Bakan açıkladı! Hesaplara yatırılmaya başlandı
--  Ahmet Hakan yazdı: Büyükekşi böyle biri değil gibiydi!
--  [뉴스3끼] 검찰은 왜 영수증에 먹칠을 했을까?
--  [한수원 고리본부, 기장읍 취약계층 학생 지원 장학금 전달
--  [‘조민 주거침입’ 혐의 TV조선 기자 항소심서도 무죄
--  [BNK경남은행, ‘BNK 위더스 자유적금 판매수익 1500만원’ 창원시에 기탁
--  [용산에 제2의 광화문 광장…버들개문화공원 마침내 부분개장 [부동산360]
--  [“중국 제치고 세계 1위 ‘깜짝’”…업스테이지, 자체 개발 LLM ‘솔라’ 공개
--  [한미약품, 주당 0.02주 배정 무상증자 결정
--  [준공 50주년 맞은 소양강댐…기후위기 시대, 댐 역할 재조명
--  [이정현 몸담은 지방시대위원회 간부, 광양서 곳곳 둘러 봐
--  ROMA PONOVO BEZ DIBALE: Odsustvo Argentinca drastično spušta nivo igara vučice
--  Từ 15/12, áp dụng Bộ chỉ tiêu thống kê tăng trưởng xanh
--  [‘극적 1부 잔류’ 강원, 영월서 연탄 나눔봉사
--  উৎপাদন মুখি ফসল সংগ্রহ কেন্দ্র স্থাপন করল খুমী সম্প্রদায়ের প্রতিনিধি
--  מכבי תל אביב אירחה את הפועל אשכול
--  ΑΕΚ Λάρνακας: Το déjà vu που θέλει να αποφύγει η ΑΕΚ όπως ο διάβολος το λιβάνι
--  „Richtiger Weg“: Rostocker IHK-Präsident begrüßt Festhalten an der Schuldenbremse
--  Ministrja Petrovska në konferencën rajonale “Paqe dhe prosperitet në Ballkanin Perëndimor”
--  El origen de la soledad (I)
--  Soccerladuma | Pitso: Sundowns Don’t Have To Call Me
--  Apple, Kendin Tamir Et programına yeni cihazlar ekledi!
--  평택시 정신건강복지센터 운영위원회 개최…주요 사업 논의
--  메디쎄이, 한국교통대 정밀의료·의료기기사업단과 공동 개발 MOU 체결
--  Incidents with aggressive passengers on planes up 38%
--  Stark inledning på fjärde kvartalet för Svedbergs
--  TOT: Thay đổi nhân sự
--  PVV: Công ty cố phần đầu tư SPX - người có liên quan đến Ủy viên HĐQT - đã bán 1.096.000 CP
--  PVV: Nguyễn Thị Huyền Trang - người có liên quan đến Ủy viên HĐQT - đã bán 1.467.300 CP
--  Tôm Việt ngày càng được ưa chuộng tại thị trường Australia
--  HVT: Nghị quyết Hội đồng quản trị
--  KSQ: Thay đổi nhân sự
--  Des climatologues très sceptiques sur l’accord conclu à la COP28
--  Παναθηναϊκός: Με σημαντικές επιστροφές για το δεύτερο διπλό
--  Comparison at Exact Same Age Eerily Similar Between Carlos Alcaraz & Rafael Nadal Ahead of Netflix Slam
--  금산교육지원청 2024학년도 중학교 입학생을 위한 예비 보호자 교육
--  금산군의회 제309회 2차 정례회 폐회
--  찾아가는 청소년 열린음악회 성료
+-  डलरको मूल्य बढ्यो, अन्यको के छ ?
+-  Butterfly Orchids in Andel vraagt vergunning voor fase 2 aan: geen huisvesting arbeidsmigranten
+-  Ogün Samast ismini değiştirmekten vazgeçti
+-  Galatasaray'da rota yeniden oluşturuldu
+-  Şok terapisine başlanan Arjantin'de enflasyon yüzde 160'ı aştı
+-  Bakan Göktaş duyurdu: Evde Bakım Yardımı hesaplara aktarıldı
+-  6개 계열사 CEO 교체한 양종희 KB금융 회장… '초격차' 더 고삐죈다
+-  신한EZ손해보험, 영남권 중고차 매매단지에 성능보증 서비스 제공한다
+-  새마을금고, '2023 지역사회공헌 인정제' 14개 금고 인증 획득
+-  재생에너지 사용 의지 드러낸 아마존, 한국서 첫 태양광 프로젝트 공개
