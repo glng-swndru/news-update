@@ -1,11 +1,11 @@
 # Latest News
--  ABBC Coin Menguat 2 Digit pada 14 Desember 2023, Berikut Kinerjanya
--  Guinness World Record Pune : गोष्टी सांगण्यात पुणेकर अव्वल, चीनचा विक्रम मोडला, SP कॉलेजच्या मैदानात 3 हजार पालकांनी एकाचवेळी छान छान गोष्टी सांगितल्या!
--  BVB vs PSG: Stimmen von Edin Terzic, Niklas Süle und Gregor Kobel
--  Akari’s Brazilian coach in PVL steps down
--  అయోధ్య ట్రస్ట్ వద్ద రూ.3 వేల కోట్ల మిగులు నిధులు, గ్రౌండ్‌ ఫ్లోర్‌ నిర్మాణ పనులు పూర్తి
--  Footy’s monster trade: The 12-player swap involving 11 clubs
--  HSC is just one small test in a life of learning
--  साना किसान विकास लघुवित्तले संशोधन गर्‍यो लाभांश
--  सिटी होटलको साधारण सभा पुस २०मा , बुक क्लोज कहिले ?
--  Kiss Ramóna és Szalai Ádám is bemutathatta a gyerekét Novák Katalinnak
+-  [집값 전망 결국 다 틀린거?…급락, 역전세대란 없었다 [부동산360]
+-  [“전남 의과대 신설해야”, 광주․전남 시도의회 한 목소리
+-  [이시영, 엄청난 '등+어깨' 근육…보이시 매력 자랑
+-  [전남경찰,‘공직비리 특별수사팀’설치 및 현판식 개최
+-  [금감원, 보험사에 “대체투자·부동산PF 리스크 관리 강화하라”
+-  [‘솔로지옥’ 공개 하루만에 글로벌 8위, 59개국 차트인…벌써부터 플러팅 효과
+-  [나주시, ‘전라남도 부패방지 시책평가’ 1위 최우수기관 선정
+-  [박지원 “여당의 빅뱅…총선 필승구도 이낙연이 망치고 있다”
+-  [박상준 STX 대표, 모잠비크 총리 면담…흑연 개발 협력 논의
+-  [민주당 의총, 선거제 결론 못냈다…“다음주중 결정해야 한다는 의견 많아”
