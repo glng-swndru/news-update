@@ -1,11 +1,51 @@
 # Latest News
--  İsrail'in Cenin enkazı! Katil ordu çekilmek zorunda kaldı
--  Hizbullah, bir mensubunun daha öldüğünü duyurdu
--  Denizli'de maden ocağında göçük: Mahsur kalanlar var
--  Galatasaray'ın muhtemel rakipleri belli oldu! İşte o takımlar...
--  Fenerbahçe'nin muhtemel rakipleri belli oldu!
--  قوات الاحتلال تقتحم عدة بلدات في الضفة الغربية
--  اشتباكات ضارية بين المقاومة والاحتلال بخان يونس - فيديو
--  워니·안영준 35점 합작, SK 압도적 속공 우위로 완승, 한국가스공사 니콜슨 18점 분전
--  ‘충격패’후 선수들 ‘나이트서 크리스마스 파티’→감독은 용인…10억 파운드 투입 경영진은 ‘재앙’→선수단 재편한다는데…
--  배혜윤·강유림 35점 합작, 삼성생명 3위 사수, BNK 진안·안혜지 맹활약에도 5연패
+-  'That's What Christmas Is all About Charlie Brown': 10 Bible Verses that Show God's Plan to Save Us
+-  The Birth of Jesus in the New Testament: One Event – Four Narratives
+-  El mercado de productos de cáñamo y CBD en Estados Unidos: riesgos y realidades
+-  Ajax beat AEK Athens 3-1 to qualify for the Conference League
+-  32 anos do municipalismo: “Participação cidadã é o elo mais fraco da democracia em Cabo Verde”
+-  Rita Ora razbjesnila javnost u Srbiji: 'Kosovo je nekad bilo dio Albanije'
+-  Maritere Braschi rompe su silencio sobre su exesposo Mendel Winter y cómo superó su encarcelamiento
+-  Tras semanas de tensión, Guyana y Venezuela se comprometieron a resolver la disputa por el Esequibo por la vía pacífica
+-  Drie ‘vaste’ Champions League-tickets voor Nederland vrijwel kansloze missie na povere week
+-  Gracias a la abstención de Hungría, Ucrania comenzará a negociar su ingreso a la Unión Europea
+-  Hauts-de-Seine: un septuagénaire juif condamné à quatre mois de prison avec sursis pour des tags antisémites
+-  El Real Madrid, a la ofensiva en el caso Negreira: "Hay indicios de corrupción deportiva"
+-  Βιλερμπάν - Παναθηναϊκός: Έφυγε από το flash interview έξαλλος ο Ποτζέκο (vid)
+-  Esta es la carta de AMLO para designar a Lenia Batres como ministra de la SCJN
+-  PR atribui Grã-Cruz da Ordem do Infante à presidente de Serralves
+-  Former hockey coach jailed for sexually assaulting 15-year-old female player
+-  LILLEY UNLEASHED: Ontario joins the 21st century for booze sales
+-  "GRAĐANI ODLUČUJU KOME DAJU SVOJ, I ŽIVOT SVOJE DECE U RUKE" Šapić poručio: Bez jake države nema ni jakog Beograda
+-  Λάζετιτς: «Ήττα για το ποδόσφαιρο που παίξαμε χωρίς κόσμο»
+-  Senate Speaks On Akpabio Collapsing At His Birthday
+-  Parents speak out after daughter’s sexual abuse by karate instructor
+-  Estadio Briceño
+-  넷플릭스에서 만나는 영화 '타겟'
+-  넷플릭스 금주 신작...관심 끄는 해외 시리즈
+-  넷플릭스 금주 한국 시리즈...'솔로동창회 학연', '태어난 김에 세계일주3'
+-  Un incendio deja importantes daños en una vivienda en pleno casco urbano de Antas
+-  FOLKER IZGUBIO PSA Nudi nagradu 5.000 evra za onog ko nađe Lea: "Mali je ovo grad ništa se ne može sakriti"
+-  Leverkuzen maksimalan, Betis se seli u Ligu konferencija
+-  YouTuber Brooke Schofield Responds to Headlines About Matt Rife Cheating On Her, Clears the Air
+-  Pravděpodobnost bílých Vánoc v krajských městech. Sníh a teploty na Štědrý den v minulých letech
+-  개인정보 유출 없다더니… 골프존, 사태 축소하려 거짓말했나?
+-  Esto costarán los boletos para el concierto de Luis Miguel en Juárez
+-  Escuela en Nuevo León da conmovedora bienvenida a una alumna que venció el cáncer | VIDEO
+-  14. Niederlage in Serie gegen Schweden
+-  Стали известны все участники плей-офф Лиги конференций
+-  Gianluca Lapadula, en evaluación con Cagliari: se operó la nariz por una fractura en el tabique
+-  Louisiana Welcomes Offshore Wind Lease Agreements With Danish and Japanese Companies
+-  Mann pågrepet etter skyting mot politistasjonen i Åsane
+-  Σπιλέφσκι: «Υπόσχομαι ότι ο Άρης θα επιστρέψει!»
+-  Los supermercados esperan otra fuerte suba de precios y hay productos que llegan con aumentos de hasta 130%
+-  The EU #ai Act passed — now comes the waiting
+-  Luis Fernando Muriel sigue enchufado con el gol: así le dio la victoria al Atalanta en la Europa League con su doblete
+-  Portugalcada vez mais longe de França e Países Baixos no ranking da UEFA
+-  Αλμέιδα: «Τα λάθη απέναντι σε τέτοιους αντιπάλους τα πληρώνεις»
+-  Sen. Sanders Calls for Ban on Junk Food Ads for Children to Combat Diabetes Epidemic
+-  Австрия разблокировала принятие 12-го пакета санкций против РФ
+-  La Agencia Tributaria acelera las oposiciones para cubrir 119 vacantes
+-  – (المقريف) يؤكد على أهمية دور مصلحة التفتيش والتوجيه التربوي في متابعة العملية التعليمية وتطويرها في كل المؤسسات.
+-  انتهاء مهمة الأمم المتحدة في مالي رسميًا بعد وجود مثير للجدل
+-  Фортунис стал лучшим ассистентом группового этапа Лиги Европы
