@@ -1,11 +1,11 @@
 # Latest News
--  Cicada x Tech23 launches research revealing proven solutions to Australia's "deep tech scaleup problem"
--  TVU and MediaLuso Deliver Live Remote Coverage of the 2023 Pan American Games
--  ETRI, “기술사업화 통합지원체계로 기업성장 지원”
--  “땡큐 파월”…금리 인하 시그널, ‘훈풍’ 시작됐다
--  Yvette Nicole Brown Reveals Engagement to Actor Anthony Davis
--  한-네 비즈니스 포럼 개최…첨단 분야 협력 확대 논의
--  중랑 면목4동 통장협의회, 12월 내내 특별한 영화관람 실시
--  중구, 관내 의원 23개소 ‘우리동네 안심병원’ 지정
--  대전시, 시설관리공단에서 중앙로지하도상가 관리 운영
--  대전시립합창단과 대전시립교향악단, 헨델 메시아 공연
+-  Over 4,300 Applicants for Seoul’s Grandchild Care Subsidy Program in Just Three Months
+-  학교폭력 10년새 최대… 등교 확대로 신체폭력 늘어
+-  KB국민카드, 카드형 온누리상품권 전용 쇼핑몰 오픈
+-  시흥시, ‘찾아가는 보건복지 서비스 제공’ 전국 우수 지자체 선정
+-  의왕시의회 노선희 의원, ‘대한민국 공헌대상’서 수상
+-  [포토] 대전 미래전략 2048 그랜드플랜 최종보고회 개최
+-  화성시노사민정협의회, ‘2023년 노사민정 성과공유 콘퍼런스’ 개최
+-  시흥도시공사, 2023년 통합성과보고회 개최
+-  인천관광공사, ‘산업기술진흥유공 산업통상자원부 장관 표창’ 수상
+-  양산시 물금읍, 동절기 복지사각지대 발굴 캠페인 실시
