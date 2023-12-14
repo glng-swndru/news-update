@@ -1,51 +1,11 @@
 # Latest News
--  美 연준, 내년 금리 0.75% 인하 제시...한국 금리는?
--  KB국민은행, 국토부-HUG와 '전세사기 피해자 지원' 협약
--  전입신고날 담보대출 받는 집주인 차단…국토부, 6개 은행과 협약
--  보이스피싱 확실한 예방법…'늘' '꼭' '또'
--  식약처, 메가커피 '미니언즈 빨대' 수입업체 행정처분 절차
--  اطلاق نار على فرع ستاربكس في اضنة التركية - فيديو
--  Thúc đẩy kết nối xuất khẩu nông sản Bình Phước
--  Áp dụng chuyển đổi số trong sản xuất mang lại hiệu quả cao tại TSHPCo
--  Petimex tổ chức Đại hội đồng cổ đông nhiệm kỳ 2023 – 2028
--  Woman Who Defied Alzheimer's Could Show Us How to Avoid It
--  Zayn Rayyan dibunuh: Polis jumpa stoking, dipercayai boleh jadi petunjuk
--  «La autocensura no la trabajo de momento»
--  Modifican criterio para calificar a finalistas por consejerías de Ichitaip
--  "สมรักษ์" พบตำรวจ ปฏิเสธทุกข้อกล่าวหา ขอโทษชาวไทย-ครอบครัว
--  [스한:BOX] '서울의 봄' 22일 연속 1위 독주…누적 755만 관객 동원
--  ‘나는 SOLO’ 데프콘, “피지컬-비주얼 다 몰려"…역대급 조합 감탄
--  [지난밤TV] '신랑수업' 김동완, 서윤아와 소개팅 "크리스마스에 뭐하세요?"
--  임영웅, 14일 고양 콘서트 티켓 오픈
--  كيف رد بايدن على فتح تحقيق بمجلس النواب لعزله؟
--  Olivia Rodrigo Comforts Cher Backstage at NYC Jingle Ball After the 'Believe' Singer 'Screws Up'
--  Notre-Dame-des-Neiges office workers' union reaches deal to end 15-month strike
--  Celebrity chef, GUY FIERI, worth $70m says he won’t give any of his wealth to his children when he dies and they will pay for his funeral from their pockets
--  Daddy Yankee y Don Omar se reconcilian
--  У Білому домі розповіли про ситуацію зі схваленням допомоги для України
--  Penduduk waspada masih berjaga-jaga ancaman banjir
--  Manchester City Sempurna, RB Leipzig Taklukkan Young Boys
--  Pulihara jambatan kereta api 100 tahun berpotensi tarik pelancong
--  Maryland Gov. Moore calls Orioles lease deal 'imminent'
--  US House of Representatives approves impeachment inquiry into President Biden
--  Ujian empat beranak hidap kanser, masalah organ
--  미국 연방대법원, 경구용 낙태약 판매 규제 검토…내년 대선 영향에 주목
--  The Latest Bad News Is More Reason to Steer Clear of Lucid Stock
--  ميزة جديدة على آيفون تحمي هاتفك من السرقة والاحتيال
--  "النواب الأمريكي" يوافق على فتح تحقيق رسمي لعزل "بايدن"
--  Chuyên gia giáo dục nói: Con bạn có hạnh phúc, thành đạt hay không, bố mẹ phải cho con đủ ba thứ
--  Во Франции заявили о катастрофе для Зеленского после визита в США
--  Media Advisory: FHLB Dallas and Catalyst Bank Celebrate the Opening of Refinery Mission Transitional Housing Facility
--  PetroReconcavo interrompe temporariamente parte da produção no RN
--  Fire Victim Trust Announces Sale of Remaining 67.7 Million Shares
--  Jalin kerjasama dengan IPT mampu bangunkan industri
--  O que é energia renovável? | Tipos, fontes e exemplos
--  Eu Odeio o Natal | Conheça uma das melhores série natalinas da Netflix
--  Marcianadas
--  'Everybody is on the same page': Bucs' run game continues to improve heading into Week 15
--  3-2. El Barça regala la victoria en Amberes, pero pasa a octavos como primero de grupo
--  Carnegie Mellon Student Sues Over Prof’s ‘Cruel Campaign of Antisemitic Abuse’
--  Former Obama advisor David Axelrod says poll showing Biden at record low approval is 'very, very dark'
--  “복합항암제, 전이성·재발성 고령 위암 환자 생존율 높여”
--  Simone Biles speaks out on pregnancy rumors after flood of Instagram comments
--  Man blows up his apartment trying to kill cockroach with insecticide
+-  Cicada x Tech23 launches research revealing proven solutions to Australia's "deep tech scaleup problem"
+-  TVU and MediaLuso Deliver Live Remote Coverage of the 2023 Pan American Games
+-  ETRI, “기술사업화 통합지원체계로 기업성장 지원”
+-  “땡큐 파월”…금리 인하 시그널, ‘훈풍’ 시작됐다
+-  Yvette Nicole Brown Reveals Engagement to Actor Anthony Davis
+-  한-네 비즈니스 포럼 개최…첨단 분야 협력 확대 논의
+-  중랑 면목4동 통장협의회, 12월 내내 특별한 영화관람 실시
+-  중구, 관내 의원 23개소 ‘우리동네 안심병원’ 지정
+-  대전시, 시설관리공단에서 중앙로지하도상가 관리 운영
+-  대전시립합창단과 대전시립교향악단, 헨델 메시아 공연
