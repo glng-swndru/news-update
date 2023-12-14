@@ -1,51 +1,11 @@
 # Latest News
--  "제주 고교 불법 촬영 트라우마 커지는데 관심 부족'" 질타
--  Bosanac sa Hrvatima krao bakar po Austriji
--  KB국민은행, KPMG·김앤장과 내부통제 FDS 고도화 프로젝트 착수
--  كرة الجرس/كأس أمم افريقيا-تصفيات الألعاب البرالمبية 2024: منتخبا الجزائر رجال وسيدات في مواجهة مصر في النهائي
--  검단탑병원, 4주기 의료기관 인증 획득
--  ‘광주시 새 영남향우회’ 정식 봉사단체 발족…내년부터 매달 한차례 배식 활동
--  경기연구원, ‘탄소중립과 미세먼지 정책의 성공, 공편익을 높여야!’ 보고서 발간
--  경기도, 18일부터 노바백스 코로나19 백신 무료 접종
--  경기도사회적경제원, 공공기관 ESG 경영 컨설팅 성과공유회 개최
--  경기도의회-법제처, 자치법제 역량 강화 업무협약
--  아트 브랜드 ‘넘버에잇트 인 비마이너’, 3가지 향의 멀티 향수 출시 앞둬
--  김희중 인천청장 기자 감담회서 권지용 마약수사 ‘부실수사 아냐’
--  경기남부경찰청, ‘평택 시민안전 비전’ 선포
--  Flamur Noka përplaset fizkisht me punonjësit e gardës! Në ndihëm i shkon dhe Xhelal Mziu
--  Yusuf Sarı Süper Lig Deviyle Anlaştı
--  Hatay'da Depremzedelerin Konteyneri Yandı!
--  Ann Fenech included in Lloyds List of shipping's 100 most influential people
--  USD to PKR: Pakistani rupee inches up against US dollar in interbank
--  Neues Rekordhoch erreicht: Dax steigt erstmals über die 17.000-Punkte-Marke
--  “He has been pulled into it by someone big”: Parliament intruder’s uncle alleges a major conspiracy
--  Danske aktier banker opad efter sød amerikansk rentemusik
--  Sve o spektakularnom ždrijebu Lige prvaka: Već osmina finala može donijeti reprizu lanjskog finala!
--  Pyongyang slams Washington, Seoul, Tokyo’s missile data sharing system
--  New York’s Freedom Plaza lights up with immersive Bruce Munro installation
--  Woman, 28, charged with stealing a Krispy Kreme donut van from 7/11 service station
--  Tối ưu trải nghiệm giao dịch chứng khoán với NEO Invest
--  Lüner Ärztesprecher zum E-Rezept ab 2024: Mehraufwand für Praxen und viele Ausnahmen
--  Разнообразни празнични събития ще има през декември в Казанлък
--  „Schalke-POTTcast“– Episode 103: Prognosen und Herausforderungen
--  ‘Where is preventive policing?’: Karnataka HC on woman being stripped, assaulted in Belagavi
--  Google, Nvidia and AMD just invested in a $56.5M funding round of this diverse AI startup
--  정용근 전 대전경찰청장, 충주서 총선 출마 선언
--  서산시 역점사업 홍보 위한 ‘이모티콘’ 뿌린다
--  김태흠 충남지사 “이준석 전 당대표 괴물 돼가고 있다”
--  충청권 하계U대회 컨트롤타워 단일화… 대회 준비 ‘탄력’
--  就是明天！遠亞完成合併，徐旭東：期待電信業走入良性競爭
--  الحكومة تعيد النظر في الزيادات المقترحة للموظفين بناءً على نصيحة من "المركزي
--  Nationalrat – SPÖ-Muchitsch: ÖVP und Grüne verhindern dauerhafte Abschaffung der Pensionsaliquotierung
--  ABN Amro to acquire neobroker BUX
--  Sharp decrease in robberies, more cybercrime, drug dealing
--  Cijene nafte stabilno blizu najnižg nivoa u šest mjeseci
--  Top 7: Los hackeos más importantes en 2023
--  Top: El mundo y sus elecciones
--  Piden libertad para Matan, novio de mexicana antes cautiva por Hamás
--  Senado ratifica a Omar Fayad como embajador; oposición cuestiona méritos
--  Top 7: Acciones en pro del medio ambiente
--  Acapulco tiene listas mil 500 habitaciones; sólo 7.5% de las existentes
--  América y Tigres, dos grandes, a escena; hoy se juega la ida de la final
--  전북교육청, 전라고 이전·신설 설명회 개최
--  24造挑战疫苗接种计划 司法审核申请遭驳回
+-  Rekor Dunia Menobatkan The Eras Tour Taylor Swift Jadi Konser Pendapatan Tertinggi
+-  이재명 대표와 이관섭 정책실장 "인식차 뚜렷했다"
+-  최철규 강원랜드 대표이사 직무대행 카지노 '규제혁신' 필요성 강조
+-  2023강원도주민자치회 시·군 및 읍·면·동 주민자치 대표자 워크숍
+-  الذكاء الاصطناعي يعيد فان جوخ للحياة في متحف فرنسي.. الزوار فاجأوه بسؤال مؤلم
+-  Sfeervol optreden Belly Button & Friends
+-  ميزة جديدة على آيفون تحمي هاتفك من اللصوص
+-  Massa Buruh Datangi Gedung Sate, Tuntut Pj Gubernur Jabar Revisi UMK 2024
+-  COP28: Why China’s clean energy boom matters for global climate action
+-  Vì sao Quảng Ninh điều chỉnh và dừng chủ trương 8 dự án đầu tư công?
