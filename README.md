@@ -1,51 +1,51 @@
 # Latest News
--  Mesmo com saídas, São Paulo aposta em retorno de lateral sinopense e não deve ir atrás de reforços
--  Kickoff | Liverpool end UEL group stage with defeat in Belgium
--  Израиль назначил награды за головы лидеров ХАМАС
--  Азербайджан не отведет войска от границы с Арменией
--  На Солнце самая сильная за последние 6 лет вспышка
--  Австрия заблокировала новый пакет антироссийских санкций
--  «Il ‘Cameo Porn’ è dannoso»: James Gunn si scaglia contro una controversa moda dei cinecomic
--  Tarkett's Second Annual Healthy Building Summit Focuses on Empowering Facility Managers
--  This is a war on children’ says UNICEF spokesperson James Elder, who recently returned from Gaza
--  Pressure mounting on President Biden to rein-in Israel’s Gaza offensive
--  Israel tells US it’ll take ‘more than ‘several months’ to defeat Hamas in Gaza
--  డిప్యూటీ సీఎం సభకు స్పందన కరువు
--  В Москве водитель электромобиля протаранил семь припаркованных машин
--  «الكنيست» الإسرائيلي يصادق على ميزانية معدّلة تشمل اعتمادات للحرب في غزة
--  «حماس»: منفتحون على جهود وقف الحرب ونتنياهو يمنح رئيس «الموساد» كل الصلاحيات لتحرير المحتجزين
--  الاتحاد الأوروبي يقرر فتح «مفاوضات انضمام» كل من أوكرانيا ومولدافيا
--  الصين تُعلن عن نجاح وساطتها في وقف إطلاق النار بين الأطراف المتحاربة بشمال بورما
--  الكونغرس الأميركي يقر ميزانية دفاع هائلة للعام 2024 متضمنة تمديد المساعدات العسكرية لأوكرانيا
--  «أزرق اليد» إلى سلوفينيا استعداداً لـ«الآسيوية»
--  بوتين: أكثر من 600 ألف عسكري روسي ينتشرون في أوكرانيا
--  Eric Sindermann bricht in Runde der Schande in Tränen aus!
--  Guardiola ficou surpreso ao saber que autor de gol da vitória do City era gandula
--  Retro FPS Beyond Sunset is a precision-crafted cyberpunk potpourri of all the great megawads that came before it
--  Jeremy Allen White & Rosalia Continue to Publicly Show Affection as Romance Rumors Pick Up Steam
--  FOTOLAJM/ Si shfaqet Lulzim Berisha në momentin e arrestimit, me mjekër dhe pamje të menduar
--  الحوثيون : استهداف سفينة كانت متجهة إلى اسرائيل بطائرة مسيرة
--  Veliaj flet njësoj si Rama: Kush ka gabuar me inceneratorët të mbajë përgjegjësi
--  Fenerbahce Istanbul zdolal Trnavu. Mieri do osemfinále
--  Dólar à vista fecha em baixa de 0,10%, a R$4,9155 na venda
--  Grupos agrícolas argentinos se opõem a aumentos de impostos sobre grãos; analisam medidas
--  "Lucília Gago não é digna das responsabilidades que lhe foram confiadas"
--  ABD yönetiminden Türkiye'ye F-16 satışına destek
--  FONTAINEBLEAU LAS VEGAS MAKES HISTORIC GLOBAL DEBUT, USHERING IN NEW ERA OF GLAMOUR AND LUXURY ON THE STRIP
--  Com destino já acertado para o Fluminense, Renato Augusto se despede do Corinthians: 'Com lágrimas nos olhos'
--  Белый дом: к концу года США больше не смогут оказывать Украине военную поддержку
--  Are all-rounders no longer in demand? | Sledging Room, S2, Ep 2
--  VIDEO: Plućni bolesnik preživljava u teškim uslovima, bez struje i šporeta
--  Nicolás Zepeda rompe en llanto por particular recuerdo: obligó a suspender la audiencia
--  Parc modernizat în bătaie de joc. Primăria Timișoara refuză de doi ani să recepționeze proiectul și a reținut garanția de execuție
--  Pacheco saúda acordo que prorroga prazo para Minas pagar dívida com União
--  Study Shows Benefits of Daily Exercise for Mental Health
--  Yadav praises India’s attacking style in big T20 win over S Africa
--  Congresso derruba veto à desoneração da folha para 17 setores da economia
--  Veto presidencial a pensão aos ex-integrantes do Batalhão Suez é derrubado
--  Vetos a transformação de cargos no Ministério Público são derrubados
--  Dynamos weihen die „Lok-Klos“ in Zwickau ein
--  Congresso derruba veto à desoneração da folha de 17 setores econômicos
--  CST da Saúde Mental apresenta balanço e anuncia investimentos
--  Prefeitura de Várzea Grande firma parceria com TJ-MT, JUVAM e Instituto Ação Verde
--  Jarell Quansah scores first Liverpool goal, but club’s youngest-ever team beaten in Belgium
+-  تقرير: نصف الذخيرة التي ألقتها إسرائيل على غزة غير دقيقة
+-  Cancer Horoscope Today 15 December 2023 : कर्क राशीच्या विद्यार्थ्यांसाठी आजचा दिवस यशाचा, आर्थिक फायदा होईल, आजचे राशीभविष्य
+-  Hoe 'vandalisme' van de VVD tot het uiteenvallen van het demissionaire kabinet had kunnen leiden
+-  Federale rechtbank: Musk moet getuigen over aankoop Twitter
+-  EU-leiders stellen ook Bosnië stap richting EU in vooruitzicht
+-  Plasterk en Wilders kondigen radiostilte aan bij start informatie
+-  TYAN's New Server Motherboard Supports the Latest Intel® Xeon® E-2400 Processors
+-  Expediting R&D Digitization for Life Sciences, ArisGlobal Introduces LifeSphere® NavaX™ - The Next-Generation Cognitive Computing Engine
+-  La Laguna comenzará el nuevo Plan General en 2024 tras cuatro años de parálisis
+-  Rıdvan Dilmen'den Fenerbahçe için 9-0 açıklaması! ''Oyuncular istemedi, yoksa 9-0 olabilirdi''
+-  Złoto wyraźnie zdrożało
+-  BP ex-CEO loses $40 million over relationships with colleagues
+-  Klare Niederlage zum Abschluss der Gruppenphase
+-  [[속보]김태효 국가안보실 1차장 “北, 이달 중 ICBM 발사 가능성”
+-  Diputada de Libre afirma que el pueblo respaldará acciones de la Comisión Permanente, a pesar de cuestionamientos internacionales
+-  مستشار سابق للبنتاغون: إسرائيل تسببت في توحيد السنة والشيعة ضدها (فيديو)
+-  בדרך לעוד שינוי ביורוליג: ז'לגיריס פנתה לאנדראה טרינקיירי
+-  פנאתינייקוס בהלם: "טעויות טרגיות". אייטור: "אני שבור"
+-  Valour FC takes Cape Breton winger Owen Sheppard first in CPL-U Sports draft
+-  కొందరికే పరిహారమంటే కుదరదు
+-  Turkish Cypriot radio silenced ‘if debts not paid’
+-  أبو عبيدة: تدمير 72 آلية إسرائيلية وقتل 36 جندياً
+-  La Libertad: Retiran instalaciones precarias no autorizadas en Pampas de Santa María
+-  En 15 días terminan trabajos para mitigar brotes de aguas negras en la colonia Villa Verde de Mazatlán
+-  Zarpa hacia la Antártida el buque científico más grande construido en Colombia
+-  Već desetine napada – Gdje su granice strpljenja?
+-  Jöfnuðu félagsmetið en töpuðu samt
+-  State doctors may boycott Gesy system over insurance dispute
+-  Improper vaccine storage prompts need to repeat shots in Northwest B.C.
+-  Naselje iznad Hiltona će nalikovati urbanoj šumi: Rješenje za stambenu zonu Turanj je prekid stihijske izgradnje
+-  Hit gameshow’s return date on ITV revealed after nearly 30 years off air
+-  美 매체, 김하성 비교하며 이정후 정밀 분석… “이정후 계약, SF에게 위험한 이유”
+-  Halemba gibt Parteiämter zurück und lässt Mitgliedsrechte ruhen
+-  Transporter nach Unfall in Stockstadt wohl nur noch Schrott
+-  Halemba gibt Parteiämter zurück und lässt Mitgliedsrechte ruhen
+-  Jasper weaker but floods still threaten, with crocodiles, snakes on the move
+-  Siddharthnagar News: दो घरों में सेंधमारी कर उड़ाया लाखों के सामान
+-  House passes defense spending bill
+-  NBA:n tähdistöäänestys alkaa tiistaina
+-  NBA:n tähdistöäänestys alkaa tiistaina
+-  Bareilly News: फंदे से लटका मिला विवाहिता का शव
+-  Tíu bíla á­rekstur á Hafnar­fjarðar­vegi
+-  DIRCEU CARDOSO – A nomeação às cortes superiores
+-  Bafana Bafana suffer huge blow ahead of Afcon 2023
+-  Compañías de cable están intentando boicotear a Televicentro
+-  आनंदनगर-नौगढ़ लाइन : शहर सहित आठ लाख की आबादी को मिलेगी निर्बाध बिजली
+-  Researchers develop AI capable of determining snow depth across Switzerland using satellite images
+-  Soupçons d'abus de bien social et de violences conjugales: Hilona Gos fait condamner Julien Bert à deux ans de prison
+-  Нацбанк презентував нову монету номіналом 5 грн
+-  Fiorentina empata e se classifica às oitavas da Conference League
