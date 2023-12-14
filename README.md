@@ -1,11 +1,11 @@
 # Latest News
--  News24 | WATCH | A final farewell: Family and friends gather to say goodbye to Zahara at Joburg memorial
--  Coronavirus cases soar, particles in waste water hit record
--  Игнатьев похвалил болельщиков «Црвены звезды» за поддержку России на матче с «Манчестер Сити»
--  Objavljen kalkulator plaća: Provjerite koliko ćete primati od iduće godine
--  Four booked for terror over Indian parliament security breach
--  „1,4 und 1,0 Nanometer“: TSMCs benennt A14- und A10-Prozess für die Zukunft
--  Court crackdown on fresh Akamas violations
--  Flipster Debuts ‘The Dragon’s Treasure’ Trading Competition Series with 1 million USDT worth of prizes
--  धक्कादायक! महाराष्ट्रात 10 महिन्यात तब्बल 2478 शेतकऱ्यांनी संपवली जीवनयात्रा, राज्य सरकारची कबुली
--  [오피셜] '호러쇼의 대명사 → 수비의 희망' 매과이어, PFA 선정 11월 이달의 선수상 수상
+-  Заур Алиев подвел итоги работы Госагентства по ОМС
+-  На сколько сократилась экономика России с начала войны
+-  Путин начал большую пресс-конференцию и прямую линию
+-  Завтра в Азербайджане осадков не ожидается
+-  Украина готовит Киев к обороне
+-  Переданные Азербайджаном армянские военные здоровы
+-  Lebt der Verbrenner doch noch länger?
+-  Rafał Trzaskowski zablokował organizację demonstracji. "Pomysł uczczenia mordercy politycznego jest skandaliczny"
+-  Was kommt Weihnachten auf den Tisch?
+-  Sod turned on new Bundoran social housing development
