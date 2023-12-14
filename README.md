@@ -1,11 +1,11 @@
 # Latest News
--  Rekor Dunia Menobatkan The Eras Tour Taylor Swift Jadi Konser Pendapatan Tertinggi
--  이재명 대표와 이관섭 정책실장 "인식차 뚜렷했다"
--  최철규 강원랜드 대표이사 직무대행 카지노 '규제혁신' 필요성 강조
--  2023강원도주민자치회 시·군 및 읍·면·동 주민자치 대표자 워크숍
--  الذكاء الاصطناعي يعيد فان جوخ للحياة في متحف فرنسي.. الزوار فاجأوه بسؤال مؤلم
--  Sfeervol optreden Belly Button & Friends
--  ميزة جديدة على آيفون تحمي هاتفك من اللصوص
--  Massa Buruh Datangi Gedung Sate, Tuntut Pj Gubernur Jabar Revisi UMK 2024
--  COP28: Why China’s clean energy boom matters for global climate action
--  Vì sao Quảng Ninh điều chỉnh và dừng chủ trương 8 dự án đầu tư công?
+-  نشے میں دھت دولہا نے شادی کی تقریب کے دوران سٹیج پر ہی شرمناک حرکات شروع کردیں، دلہن نے انکار کردیا
+-  Activiteiten in de Kerstvakantie in het Baggermuseum in Sliedrecht
+-  מכבי נתניה תנסה למכור את איגור זלאטנוביץ' בינואר
+-  에릭슨엘지, 이음5G 시장 활성화 위한 ‘파트너스 데이’ 성료
+-  Australian woman jailed for 20 years for death of her four children has conviction overturned
+-  مصر تستضيف مؤتمر الأطراف الـ 24 لاتفاقية حمایة البیئة البحریة 2025
+-  Wondershare Virbo Unveils AI-Powered Video Translator: Bridging Language Divides with Innovation
+-  Evermos Attains ISO 27001 Certification for Data Security Excellence
+-  İYİ Parti-İmamoğlu çatlağı büyüyor! Resti çektiler: Sayın Eş Başkan operasyonun büyüğü 31 Mart'ta olacak
+-  Türkiye rüzgar sektöründe Avrupa'nın zirvesine oynuyor: Yıl sonunda 12 bin 500 megavata ulaşılacak
