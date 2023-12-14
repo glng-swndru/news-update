@@ -1,51 +1,51 @@
 # Latest News
--  Denuncian 634 posibles violaciones de los ceses al fuego en Colombia este año
--  أونروا تحذر من تفشي الأوبئة بغزة
--  Son Jenni Hermoso y Messi finalistas en The Best
--  Posa personal de Desarrollo Humano para foto navideña del recuerdo
--  ¿Qué regalos dan las personas más ricas del mundo en Navidad? Le contamos
--  Афғонистоннинг Қўштепа канали қирғоғи Амударё сув оқими билан ювиб кетилмаган – «Ўзбеккосмос» .
--  Мянма афюн ишлаб чиқариш бўйича Афғонистонни ортда қолдириб, жаҳон етакчисига айланди .
--  АҚШ Конгресси Украинага молиявий ёрдамни ўз ичига олган мудофаа бюджетини тасдиқлади .
--  وكيل دي يونغ ينفي شائعات خلافه مع ديكو
--  M2 Bradley vs BMP-3: blindés de combat d'infanterie US et russe
--  Missing Midland man 'who went into River Severn' named by police
--  CHP'nin İstanbul ve Ankara dahil 5 ilde adayı belli oldu!
--  Cumhurbaşkanı Erdoğan Joe Biden ile görüştü
--  Santa Marta: actividades para realizar en La Perla de América en las vacaciones
--  Michel: Këshilli Evropian vendosi të nisë negociatat e anëtarësimit me Ukrainën dhe Moldavinë
--  إتاحة منشورات "ثردز" في المنصات الأخرى
--  Треньорът на ЦСКА 1948: Трябва да сме по-резултатни
--  Aprueban inicio de investigación para eventual destitución de Joe Biden
--  Muzani Bilang Anies Tarik Simpati dengan Eksploitasi Harun Al Rasyid di Debat Capres
--  Fuerte sismo en Guatemala es sensible en territorio salvadoreño
--  Expert om identifieringen: "Får inte bli fel"
--  Lineup For Tonight’s WWE Main Event, MLW Fusion and NJPW on AXS
--  119-122. Wembanyama roza el milagro ante Lakers pero Spurs suman 18 derrotas seguidas
--  Blackstone cierra la financiación con la banca de 1.500 millones para Testa
--  Našli se na kavi s riječkim stipendistima: “Javljajte se, budite vrijedni i učite”
--  Speelgoed is nog hard nodig!
--  Death Stranding Filmi Resmen Duyuruldu: İlk Detaylar da Belli Oldu
--  Instagram'a İçerik Üreticilerini Koruyacak Yeni Özellikler Geldi
--  Ковачевски: Факт е дека нашите граѓани денеска имаат повеќе од она што го имаа со ДПМНЕ
--  Carla Diaz revela que já chorou após orgasmo: Fiquei em choque
--  Stacey Solomon says Joe Swash is 'seriously misled' as they discuss future baby plans
--  Pacheco defende que Congresso derrube veto da desoneração da folha e discuta alternativas após prorrogação do benefício
--  Фоден заявил, что никогда не думал об уходе из «Манчестер Сити»
--  الحسين اربد يخطف تعادلا ثمينا من الفيصلي
--  الاحتلال يعترف بإصابة 7 جنود في جنين
--  إحباط تهريب 260 ألف حبة مخدرة في جرش
--  1000PIP BUILDER REVIEW
--  STA Confirms Fireworks for Samoa’s New Year Celebrations
--  Da AMLO hoy nombre de nueva Ministra
--  Absuelven a Mikel Arteta de conducta indebida tras comentarios sobre el arbitraje
--  Sondeo revela insatisfacción con posible revancha entre Biden y Trump para 2024
--  Patrick Barul, ancien joueur de l'OGC Nice, est l'invité de Gym Tonic
--  Гуменюк: Росія вивчає й виснажує українську ППО
--  Wyndham roads ready for reconstruction
--  CARIN LEÓN listo paraponer a pistear a tdos con su nuevo material “U.V.V. Vol 8”
--  Warriors taking shape
--  Bestseller: Keine Gewalt gegen Frauen
--  NFL releases fixtures
--  Lights on at Wyndham sporting reserves
--  انقسام أمني بعد تهريب كميات ضخمة من الذهب عبر مطار مصراتة
+-  אוהדים ושחקני עבר הדליקו נרות עם משפחתו של מני לוי
+-  Circle K & Holiday Stationstores Fined Over Underground Storage Tanks
+-  UŽIVO! ŽALGIRIS - PARTIZAN: Crno-beli imaju solidnu prednost posle prve četvrtine
+-  Emergence Magazine No23, disponible dans les kiosques: à lire le grand dossier sur les infrastructures sous la transition
+-  Con La 33, Corraleros de Majagual, Orq. Aragón y Canalón de Timbiquí, el Delia celebra la Navidad
+-  Meteo centar TV Vijesti: U petak do 16 stepeni
+-  Arteta oslobođen otpužbi za nedolično ponašanje
+-  Tiago Pinto e a Liga Europa: «Não quero jogar contra o Benfica»
+-  Столяров заявил, что «Игры будущего» станут новым витком развития мирового спорта
+-  ¿Qué regalos piden los niños para navidad?
+-  Эрдоган: отказ США от оказания поддержки Израилю может завершить конфликт в Газе
+-  Kronan stärks – nära årets lägsta nivåer mot dollarn
+-  Deficit rozpočtu bol v novembri medziročne viac než dvojnásobne vyšší, štát hospodári horšie
+-  Vukotić-Jelušić: Ne dozvoljavamo manipulacije premijera Spajića, novca za prosvjetare mora biti
+-  Фил Фоудън: Никога не съм искал да напусна Сити, дори и в академията
+-  Apple invites press to relive their own spatial videos on Vision Pro: ‘Almost brought me to tears’
+-  TikToker with Tourettes tells Chris Cuomo he’s got a ‘baby wiener’
+-  Stampeders, CFL return to full interlocking schedule in 2024
+-  تحسين موديز نظرتها المستقبلية للبنان... انهيار واستقرار في القاع
+-  La Champions dice adiós a la fase de grupos: Así será el nuevo formato
+-  Josu Erkoreka deja la primera línea política
+-  2023: The year we played with artificial intelligence — and weren't sure what to do about it
+-  ЕС реши да стартира преговори за присъединяването на Украйна и Молдова
+-  תחזית מזג האוויר ליום שישי: נאה וחמים מהרגיל לעונה
+-  МИД ответил на провокацию Нидерландов
+-  Суд в Ереване принял решение по Саргсяну
+-  Wathern Castanos buyer Trumark launches first home communities under new brand
+-  Amazon también se vuelve loco: vende Samsung Galaxy Z Fold 4 en un precio que no vas a creer
+-  Schweizer Bahnen scheitern an behindertengerechtem Umbau
+-  النجم الساحلي يفوز على الأفريقي بالدوري التونسي
+-  ¡Atención estudiantes! Este viernes pagarán adeudo del programa Jóvenes Construyendo el Futuro
+-  Court will hear suit from 15 Canadian youth alleging climate change harm
+-  Messis VM-trøjer indbringer 53 millioner på auktion
+-  Komentarz po sesji: Fed pomaga bykom w Warszawie
+-  Starsi Amerykanie zarabiają niemal tyle samo co młodsi
+-  Así se vivió el cumpleaños de nuestra querida Karina Borrero
+-  Rada Europejska podjęła decyzję o rozpoczęciu negocjacji akcesyjnych z Ukrainą i Mołdawią
+-  An educational psychologist explains how to think about your ATAR and set post-school goals
+-  PRVA IZJAVA CECE NAKON ŠTO JE SAZNALA DA JE BILA U ZGRADI U KOJOJ JE DOJAVLJENA BOMBA: Ludaci, manijaci, psihopate...
+-  Mercato Milan, un obiettivo rossonero in attacco piace all’Inter: arriverebbe a zero DETTAGLI
+-  Bu besin Japonların gizli sırrı! Yedikçe ömrü uzatıyor beyni gençleştiriyor...
+-  Пазарният дял на ОПЕК+ пада до рекордно дъно
+-  Leiche nach Brand in Industriegebiet in Wales gefunden
+-  بدءًا من العام الدراسي المقبل.. تدريس اللغة الإيطالية بالمدارس الحكومية كلغة ثانية
+-  دليل لفهم الأحداث الاقتصادية وتأثيرها على الأسواق المالية (إعلان تحريري)
+-  الأرصاد: تحسن الطقس وتلاشي تأثير موجة التقلبات الجوية بدء من غد الجمعة
+-  بحضور "الحجار".. الموسيقار راجح داوود ضيف الصالون الثقافي بالإسكندرية (صور)
+-  نتنياهو: عازمون على الاستمرار في الحرب وتحقيق النصر
+-  تعيين الدكتور شريف صفوت نائبا لرئيس هيئة المعاهد والمستشفيات التعليمية
+-  مكتب رئيس وزراء الاحتلال: نتنياهو وسوليفان أكدا على العمل لإطلاق سراح الأسرى بغزة
