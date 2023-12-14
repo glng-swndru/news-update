@@ -1,51 +1,11 @@
 # Latest News
--  Poslancov Národnej rady čakajú dlhé večery: Rokovať budú až do polnoci aj v pondelok
--  Katka Koščová po prvýkrát so speváckym zborom: Bratislavskému publiku vinšovala pokoj, porozumenie a dobro
--  Česko bude na Eurovízii zastupovať speváčka Aiko. O jej víťazstve rozhodli najmä hlasy zo zahraničia
--  Marika Gombitová sa stane laureátkou Mimoriadnej ceny Krištáľového krídla
--  Miro Jaroš s Veronikou Hatala oslavujú sviatky vianočným duetom Dobro v nás
--  Sum 41 vydali singel Rise Up. Deryck Whibley sa v ňom podelil o svoju skúsenosť na prahu smrti
--  Mantinely tvrdej hudby sú jej priúzke: Bývalá speváčka kapely Symfobia vydáva sólový singel Nie si v tom sám
--  Insight: How the world agreed to move away from fossil fuels at COP28
--  أبو عبيدة: قتلنا 36 جنديا إسرائيليا وعشرات الجرحى في 72 ساعة
--  أردوغان لبايدن: هجوم إسرائيل على غزة سيكون له عواقب سلبية على العالم
--  محافظ أسوان يستعرض الفرص الاستثمارية مع وفد الاتحاد الأوروبي (صور)
--  نوع خضروات تناوله يوميا يفعل العجائب بجسمك- ولكن احذر الإفراط
--  لطلاب الإعدادية والثانوية.. 6 خطوات لتنفيذ المشروعات البحثية في سنوات النقل
--  تفتح أفق سياسية جديدة.. برلماني: نسبة المشاركة في الرئاسية فاقت التوقعات
--  New Luxury Car Tax to Force Australians to Adopt EVs
--  Beşiktaş'ta kadro dışı bırakılan futbolcular kulübe ihtar çekti!
--  Dışişleri'nden İsrail'e tepki: Şiddetle kınıyoruz
--  Gazze'de ölen BM personeli sayısı 135'e yükseldi
--  Galatasaray ilk maçta yenişemedi!
--  ¡Así se ve el verdadero poder de Santa Claus en Navidad! Detiene pelea en el tráfico
--  Howden Tiger Partners with VIP Software to Deliver Loss Cost - Benchmarking Data and SaaS enabled Compliance Applications
--  Ocean City's Iconic Atlantic Oceanfront Inn Unveils Name Change and Multi-Million Dollar Renovation Plans
--  «التجاري» راعٍ لبطولة «غولف صحارى»
--  العيد الوطني للبحرين..نهج ديموقراطي وتطلعات طموحة
--  بريطانيا تمنع دخول المسؤولين عن عنف المستوطنين في الضفة
--  «الصناعة» يهزم «الداخلية» في دوري الوزارات
--  ثلاثة أرباع الفلسطينيين يؤيدون «طوفان الأقصى» وارتفاع شعبية «حماس»
--  الجولة الثالثة لدوري «الدريساج» السبت
--  غزة.. الحرب تشتد والناجون من القصف يواجهون «عاصفة من الأمراض»
--  القادسية يرتقي القمة في «ليلة بدر»
--  محمد بن سلمان يبحث مع سوليفان زيادة المساعدات إلى غزة
--  الكويت لتجاوز الجهراء والنصر يلتقي كاظمة «الجريح» اليوم.. والعربي يواجه السالمية غداً
--  وفاة نائب تركي بعد يومين من تعرضه لأزمة قلبية أثناء إلقائه خطاباً داعماً لغزة
--  المشعان: ملف الانتقالات الشتوية في «السماوي» مؤجّل
--  تحذير أممي: الحرب تدفع السودان نحو المجاعة
--  قرعة صعبة لـ «أزرق الصالات» في كأس آسيا
--  مجلس النواب الأميركي يوافق على بدء التحقيق لعزل بايدن
--  كاظمة بطل «تمهيدية القوى»
--  Flet gazetari i “marrë peng” nga SPAK: Nëse hapen bisedat e SKY, do të shpërthejë një “vullkan”
--  Šaranović: Ako izvještaji o radu za vrijeme mandata Brđanina budu negativni, iniciraću njegovo razrješenje
--  Catalina Pérez negó millonarios depósitos de parte de Andrade o de Democracia Viva: "Son mis ahorros"
--  تسلا تستدعي كل سياراتها في أمريكا.. ما الأمر؟
--  Isabelle Adjani zu Bewährungsstrafe verurteilt
--  Isabelle Adjani zu Bewährungsstrafe verurteilt
--  מחוץ לכותלי בג"ץ: עימות בין נציגי החברה הערבית לעורך הדין מארגון הימין
--  Take steps for construction of new HC complex, CM Revanth tells officials
--  الشبكة الوطنية تنظم فعالية البارا اولمبي الرياضي لذوي الإعاقة بعدن
--  ‘Deadpool 3,’ ‘Beetlejuice 2’ and ‘Joker: Folie à Deux’ Top Most Anticipated 2024 Movies Survey
--  Sanja Vulić: Schmidt nasrnuo na Cvijanović
--  Tilskuer er rystet over berusede supportere på tribunen i Åsane Arena: – Flaskene gikk på rundgang
+-  ŠOLC JASAN: Snažan znak podrške Ukrajini, koja sa Moldavijom pripada evropskoj porodici
+-  SUVA ELEGANCIJA: Ceca Ražnatović zablistala na snimanju novogodišnjeg programa RTS-a (FOTO)
+-  مشروع استثماري جديد لإنتاج كابلات الطاقة بالمغرب وتصديرها نحو افريقيا
+-  U moru nedaleko od Jadranskog pronađen misteriozni podvodni grad: Stručnjake jako muči kako je nastao
+-  Instituto de Meteorología advierte sobre deterioro del tiempo este fin de semana en Cuba
+-  Suomalaisseuralle iso voitto europeleissä
+-  Tshekki jälleen liian kova pala Leijonille – SM-liigasta tuttu nimi ratkaisi
+-  More than a third of those in the UK can't afford tech needed to reach net-zero, study shows
+-  Luis Caputo consiguió financiamiento de la CAF para abonar el próximo vencimiento con el FMI
+-  Cruz Azul: Se confirmó la salida de Carlos Salcedo y ya tiene un nuevo equipo
