@@ -1,11 +1,51 @@
 # Latest News
+-  “지난 대선서 거짓·조작과 싸워” 정호윤 전 대통령실 팀장의 기록
+-  [K-ESG 경영혁신대상] 네이처아이코리아
+-  [K-ESG 경영혁신대상] 서울장수주식회사
+-  [K-ESG 경영혁신대상] 하임인터내셔널즈
+-  [K-ESG 경영혁신대상] 유한대학교
+-  [K-ESG 경영혁신대상] ㈜휴먼리소스코리아
+-  Tapusu olan herkesi ilgilendiren gelişme: Eski kimlik kartı kullananlara uyarı geldi: İşlemler devam etmeyecek
+-  Deal-Hungry Woodside CEO Draws Criticism in Rush for Growth
+-  Taylor Swift’s Birthday Outfit Included a Chic Silver Bag & You Can Shop a Similar One
+-  Selena Gomez admits getting Botox?
+-  Carnaval 2024 ocorrerá entre os 15 e 17 de março em Pelotas
+-  Tunisie – Kasserine : Arrestation de cinq terroristes recherchés
+-  Honduras: cotización de cierre del dólar hoy 14 de diciembre de USD a HNL
+-  Wegen Abnehm-Medikament: Oprah Winfrey erntet harte Kritik!
+-  Zemlja u kojoj živi 500 tisuća Hrvata naglo diže poreze: ‘Štednja je neophodna’
+-  في مباراة تحضيرية ودية.. نادي العين يتغلب على جاره الحضن بهدف مطهر عزالدين
+-  Murphy o Dodiku: Nećemo sa strane posmatrati kako rastvara i vodi BiH u sukob
+-  Zac Efron dishes out major downside of being in the limelight: 'very lonely'
+-  Čudo u Francuskoj: Nakon šest godina pronađen nestali tinejdžer iz Engleske
+-  El Congreso de Brasil anula el veto de Lula a una ley que amenaza a las tierras indígenas
+-  'Calm before the storm': California bracing for late December rains
+-  María Corina Machado descartó acudir al Tribunal Supremo de Justicia (VIDEO)
+-  Gallery: Savannah Area Chamber Eggs & Issues Legislative Breakfast
 -  Trading Platform Moomoo Named Online Broker Rising Star Gold Winner by Money Magazine
 -  Chiquita adquirirá fruta producida por Banapiña-Fresh Del Monte
 -  Hurtan carro a candidato independiente de Tataré
 -  Caen dos policías por el secuestro de un jamaiquino
+-  “북한, 12월 중 ICBM 발사 가능성…핵 실으면 핵공격”
+-  ExxonMobil afirmó que permanecerá en Guyana a largo plazo pese a la disputa territorial
+-  Jonathan Majors domestic violence trial evidence released, closing arguments begin
+-  Latinoamérica despide 2023 con desaceleración económica y magras perspectivas para 2024
+-  EU-Staaten einigen sich auf zwölftes Paket mit Russland-Sanktionen
+-  Ex Court Officer charged for bribery
+-  Qué no puede faltar en la posada si te toca organizarla
+-  Trump looms over Iowa
 -  Le Cameroun Souffre De L’incompétence De Certains Ministres : Le Cas De Bini Warack :: Cameroon
 -  Curieuse Penurie De Carburant Au Cameroun : Action Des Forces Endogenes ? :: Cameroon
+-  IFT sobre mercado gris en México: ya hay reuniones de trabajo con marcas de celulares
 -  Cameroun :: Cameo ,Cesca ,Medec, C’est Finalement Gecam :: Cameroon
+-  US Urges Israel To Scale Down Gaza Offensive
+-  Adulto mayor: ¿Cómo cuidar la piel en verano?
+-  ¡Llega Banregio a Los Mochis! Inauguran primera sucursal de la institución financiera en la región
+-  Diputados contemplan discutir y votar el presupuesto para Sinaloa este sábado en sesión extraordinaria
+-  Monument pentru eroii din Marele Război, lăsat fără identitate. Ce-i lipsește ca să fie catalogat „edificiu istoric“ FOTO
 -  Insólito: River tiene cinco finales pendientes por jugar
 -  صنعاء تستهدف سفينة جديدة متجهة إلى إسرائيل
 -  İş Bankası kredi anlaşması imzaladığını açıkladı
+-  След 3 г. ударно пазаруване българите са вече по-пестеливи
+-  「簡単なことだ」は英語でなんと言う？ TOEIC500点から挑戦できる『エリン・ブロコビッチ』に学ぶ
+-  How ‘Winning Time”s Rollerblade-Wearing Cameraman Helped Capture More Than L.A. Lakers Gameplay On the Court
