@@ -1,51 +1,11 @@
 # Latest News
--  สุดอัดอั้น! ‘เก็ต ชินภัสร์’ รองโฆษก รทสช. ลาออกสมาชิกพรรค พร้อมเผยความในใจ
--  นักร้องดังไม่กั๊ก เลขเด็ดงวดนี้ 16/12/66 แถมบอก "เลขดัง" ที่โดนเหมาเกลี้ยงแผง
--  Joel Embiid écrase les Pistons : 41 points et 11 rebonds… en 31 minutes
--  고교 몰카 사건에 불안감 확산…도내 모든 학교·공중화장실 집중점검
--  하나투어, 2023 대한민국브랜드대상 국무총리상 수상
--  «كأنه شبح».. مواطن روسي يصل إلى لوس أنجلوس دون جواز سفر أو تذكرة
--  ठंड में जरूर खाएं यह साग, आंखों की रोशनी और हड्डी होगी मजबूत
--  स्मोक अटैक के बाद बदला संसद का सुरक्षा प्रोटोकॉल… अब पहले की तरह नहीं होगी एंट्री
--  ชมวังรื่นฤดี เรียนรู้ประวัติศาสตร์
--  روسيا: إقلاع مقاتلات إف 16 الأوكرانية من قواعد للناتو سيعد مشاركة للحلف في الصراع
--  Eintracht vor sportlich bedeutungslosem Spiel in Aberdeen
--  ปตท.สผ. การแผนลงทุน 5 ปี 32,575 ล้านดอลลาร์สหรัฐฯ
--  IMF chief calls for rules, infrastructure to avoid risks of crypto assets
--  Korea's ICT exports snap 16-month losing streak in November
--  Public sector debt hit record high in 2022
--  美 FDA, 암젠 이중특이성 항체 치료제 ‘탈라타맙’ 허가 신청 접수
--  [단독] 이세훈 금융위 사무처장, 금감원 수석부원장 내정
--  Alcoa Welcomes Decisions That Support Western Australian Operations
--  توماس فريدمان: السعودية ملتزمة باستئناف مفاوضات التطبيع وهذا ما يقلقني بشأن حرب غزة
--  Berkshire Hathaway buys another half billion $ of Occidental Petroleum shares
--  Sergio George y lo que dijo Marc Anthony al verlo trabajando en Perú: “Nadie mira a este país con buenos ojos”
--  ข่าวดี !! สื่อเกาหลีใต้เผย Galaxy S24 Series จะมีราคาทุกรุ่นเท่า S23 Series
--  México anticipa la llegada de más de 36,5 millones de turistas en vacaciones de invierno
--  Asian Stocks Track Record Day On Wall St, Dollar Extends Losses
--  Miguel Tudela reveló heroica hazaña: compitió con grave lesión y ganó medalla en Santiago 2023
--  Estas son las películas que están de moda en Netflix Argentina este día
--  Amid Claims of 'Shahi Idgah Being a Temple', HC's Order Today in Connection with 'Scientific Survey'
--  배우 차재이, 단발병 부르는 미모 공개
--  تراند اليوم : لن تصدق.. ماذا يحدث لجسمك عند تناول العدس في الشتاء!
--  تراند اليوم : بالفيديو.. الباحث "الذبياني" يكشف 7 أشياء تدل أنك أمام شخصية قوية عقلياً
--  Walmart Holiday Deals: Nintendo Switch Bundles Are On Sale – Get the Perfect Gamer Gift for Under $200
--  ネットギアストア、高性能Wi-Fi「Orbi」が最大2万5100円オフ
--  Наявність дітей підвищує тривалість життя: але значення має кількість
--  রওশন না থাকায় ময়মনসিংহ-৪ আসনে এবার জমজমাট নির্বাচনের আভাস
--  Egypt Oral Tobacco, Nicotine Pouch and Heated Tobacco Regulation Report 2023 - New Regulations Expected from Egyptian Organization for Standards and Quality to Further Regulate Heated Tobacco
--  Alabama’s plan for nation’s first execution by nitrogen gas is ‘hostile to religion,’ lawsuit says
--  Trái tim cho em nhận giải thưởng ‘Dự án truyền cảm hứng’ tại Human Act Prize
--  تحذير عاجل.. أتربة مثارة على مكة والرياض وهذه المناطق حتى 6 مساءً
--  Busy Philipps' 15-Year-Old Birdie Has "Terrifying" Seizure at School
--  'इश्क' फेम सदाशिव अमरापुरकर के घर में लगी आग, जलकर खाक हुए 4 फ्लैट
--  대한민국신지식인협회, ‘2023 신지식인’ 23명 인증식 개최
--  Brandon Ingram scores a season-high 40 points as the Pelicans beat the Wizards 142-122
--  김건희 여사, 네덜란드 동물보호재단 방문…"한국도 동물권 관심 높아"
--  Bybit presenta la sua visione sul Web3: promuovere in modo innovativo semplicità, apertura e parità nell'ecosistema decentralizzato
--  Hyundai Motor to offer China-made Sonata taxis in S.Korea
--  Texas 'Operation Naughty List' nabs high school principal soliciting sex for $90: authorities
--  Racing chiefs 'sorry' over bullying and sex abuse reports
--  Jones named Japan coach for second time
--  All you need to know about the Champions League last-16 draw
--  Knight 'desperate' for England Test win in India
+-  [변협과 갈등 해소하니…로톡, 사업도 위상도 ‘승승장구’
+-  [인권위 “이주아동에 대한 유아학비 지원, 교육부 불수용”
+-  [코레일 시설유지보수 독점운영 깬다
+-  [여가부, 양육비 안 준 ‘나쁜 부모’ 130명…5명 실명 공개 등 제재
+-  [[속보]“아빠 살려주세요”…애원하던 10대 남매 살해, 친부에 징역 30년
+-  [경기주택도시공사, 영국 유수 기업들과 고층 모듈러 주택 협약
+-  [‘텔레그램’ 활용해 마약 유통한 2030 외국인 100명 무더기 검거
+-  [이상일 시장의 초인은 누굴까?
+-  [‘안정 속 변화’ 택한 KB금융…3개 계열사 재선임, 증권 등 6개사 교체
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
