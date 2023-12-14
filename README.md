@@ -1,11 +1,51 @@
 # Latest News
--  NBA – Le récap du jour : Draymond Green (encore) suspendu, Kenny Atkinson chez les Bleus, embrouille à Milwaukee
--  Bull on tracks halts trains at major US train station
--  Bull on tracks halts trains at major US train station
--  مجلس الشؤون الاقتصادية والتنمية يناقش عدداً من الموضوعات الاقتصادية
--  المقاومة تكبد الاحتلال خسائر كبيرة
--  Seven arrested in Germany, Denmark, the Netherlands over suspected terrorism plots
--  CANLI| Lugano-Beşiktaş
--  Eski Beşiktaşlı oyuncunun menajeri Kadıköy'de maçı takip ediyor
--  Grève de contrôleurs aériens : des annulations de vols et perturbations prévues lundi à Paris-Orly et à Brest
--  Vaikea paikka: Olli Jokinen joutuu kovaan tilanteeseen Jukureiden kanssa
+-  Po incidente s hasiacim prístrojom v poľskom parlamente sa opäť rozsvietili sviece
+-  Meteorológovia varujú: Na viacerých miestach treba počítať s hmlou! Problémy môžu urobiť aj povodne
+-  Ján Mazák zostáva vo svojej funkcii predsedu Súdnej rady SR: Za odvolanie hlasovalo 9 členov rady
+-  Že sa nehanbí! VIDEO Sedemdesiatnička nadrzovku vysypala pri diaľnici vrece plné odpadkov
+-  Návštevníci zoo zostali v šoku: Pozrite, čo robili gorily priamo pred zrakmi detí!
+-  Nacistické symboly namiesto vianočných gúľ! Vianočný stromček v Nemecku spôsobil ŠKANDÁL: Možný motív vás prekvapí
+-  ÚLET bývalej hviezdy Destiny's Child: TYRKYSOVÉ vlasy... Vyzerá ako vodník!
+-  Dutch privacy foundation sues software giant Adobe for privacy violations
+-  Elismerték az önkénteseket
+-  #google releases on-device diagnostics tool and repair manuals for Pixel phones
+-  وزير الاتصالات يبحث تعزيز الاقتصاد الرقمي مع وفد البنك الدولي
+-  Reliance Overtakes TCS, Infosys To Become Biggest Wealth Creator In Last 5 Year: Report
+-  Gurugram News: गाड़ी से कुचलकर की युवक की हत्या, दो भाइयों पर केस
+-  Gurugram News: स्पा सेंटर की आड़ में चल रहे देह व्यापार का भंडाफोड़
+-  Gurugram News: हरेरा की सुलह पीठ करेगी आबंटियों की शिकायत का निवारण
+-  Gurugram News: 1 जनवरी से लागू होंगे कलेक्टर रेट, 17 तक दर्ज कराएं आपत्ति
+-  Gurugram News: विक्की के घर पर पुलिस का पहरा
+-  Gurugram News: कारोबारी की गोली मारकर हत्या मामले में छह दोषी करार
+-  Gurugram News: पांच पोतियों के साथ लंदन में रहते हैं विक्की के दादा
+-  Gurugram News: कैफे की आड़ में चल रहे अवैध अहाते पर भंडाफोड
+-  Gurugram News: गुरुग्राम के थानों में सहेजा जाएगा बारिश का पानी
+-  मुजफ्फरनगर - किसान-मजदूरों को समर्पित थे चौधरी चरण सिंह : नीरपाल
+-  Shravasti News: ननिहाल आई पांच वर्षीय बालिका की छत से गिरकर मौत
+-  Gurugram News: पानी और टंकी से असुरक्षित टावर के मुख्य पिलर पर 200 टन का बोझ
+-  Muzaffarnagar News: मुजफ्फरनगर - हत्या कर ई-रिक्शा लूटने वाला बदमाश गिरफ्तार
+-  Shravasti News: ईंट-भट्ठे पर मजदूरों को बंधक बनाकर ठेकेदार फरार
+-  Muzaffarnagar News: देहरादून के लिए रामपुर तिराहा कांड में आरोपियों ने दी हाजिरी माफी
+-  Shravasti News: बालश्रम, भिक्षावृत्ति, मानव तस्करी करने वालों पर होगी सख्त कार्रवाई
+-  Muzaffarnagar News: मुजफ्फरनगर - शालीमार एक्सप्रेस पौना घंटा, छत्तीसगढ़ ढाई घंटा विलंब से चली
+-  सर्दी से फसलों को बचाने के लिए हल्की सिंचाई करें : डॉ. प्रेम कुमार
+-  Shravasti News: नेपाल से कपड़ा ला रहा एक तस्कर गिरफ्तार
+-  Muzaffarnagar News: मीरापुर - ट्रक की टक्कर से गिरे खंभे के नीचे दबकर छात्र समेत दो घायल
+-  Mahendragarh-Narnaul News: 3 करोड़ का लोन पास कराने के नाम पर लगा दी 3 लाख की चपत
+-  Shravasti News: आपराधिक गतिविधियां रोकने में सहयोग करें व्यापारी
+-  Parliament Security Breach: Delhi Police Arrests Accused Mastermind Lalit Jha
+-  Mahendragarh-Narnaul News: 24 किसानों के खेतों से 300 से अधिक फव्वारा चोरी
+-  Shravasti News: थाईलैंड के अनुयायियों ने तपोस्थली में की विशेष पूजा
+-  Mahendragarh-Narnaul News: शहर में लगे गंदगी के ढेर, लोग परेशान
+-  Shravasti News: मिड डे मील बनाने में मानकों की अनदेखी
+-  Mahendragarh-Narnaul News: सड़क दुर्घटना एक व्यक्ति की मौत, केस दर्ज
+-  Shravasti News: प्यासे खेत, सूखे माइनर किसानों की बढ़ा रहे परेशानी
+-  Hamirpur (Himachal) News: भाजपा किसान मोर्चा की जिला कार्यकारिणी घोषित
+-  बार एसोसिएशन चुनाव : प्रधान व सचिव पदों के लिए मतदान आज
+-  Hamirpur (Himachal) News: आज अदालत में दोबारा होगी कंवर की पेशी
+-  Mahendragarh-Narnaul News: स्कूल बस की टक्कर से बाइक सवार की मौत, दूसरा गंभीर
+-  Chandauli News: छात्र ने पंखे के हुक के सहारे रस्सी से झूलकर दी जान
+-  Hamirpur (Himachal) News: 80 फीसदी केवाईसी न करने पर विभाग डिपोधारक पर करेगा कार्रवाई
+-  Mahendragarh-Narnaul News: सड़कें बदहाल, सफेद पट्टी न संकेतक, संभलकर करें यात्रा
+-  Chandauli News: मिट्टी लदे ट्रैक्टर की चपेट में आने से बाइक सवार युवक की मौत
+-  Hamirpur (Himachal) News: खतरवाड़ में मेधावियों को विधायक सुरेश ने किया पुरस्कृत
