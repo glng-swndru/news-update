@@ -1,51 +1,11 @@
 # Latest News
--  제주경찰청, 불법 촬영 범죄 18개 유관기관과 공동 대응키로
--  경남마산로봇랜드, 오는 24일까지 lsquo;행복드림 경품 이벤트rsquo; 진행
--  창원대, 공공부문 온실가스 감축률 우수기관 선정
--  진주 남동발전, 국민 참여와 소통 확대로 혁신성과 창출
--  진중권 quot;한동훈 비대위원장? 총선 패배 책임 자리에 앉하겠나?quot;
--  창원시, 항만물류middot;해양레저 거점도시로 성장 기반 마련
--  김기현 사퇴 후 남은 문제는? 나경원middot;김무성middot;안철수 '당정관계' 한목소리 겨냥
--  창원특례시의회 행정사무조사 등 13건 안건 처리
--  이재명 찾은 대통령실 이관섭middot;한오섭, 거부권middot;예산안 놓고 신경전
--  '어게인' 북미 정상회담? quot;트럼프 집권하면 북핵 '동결' 협상quot; 관측 나와
--  美 기준금리 조기 인하 가능성에 국내 증시 상승
--  홍남표 시장, lsquo;2023 창원특례시 체육인의 밤rsquo; 행사 참석
--  김건희 quot;개 식용 금지는 尹대통령 약속hellip;특별법 조속히 통과되어야quot;
--  위기의 기시다, 지지율 10%대hellip;09년 정권 내줬을 때 이후 최저치
--  이재명 불참한 민주당 의총 quot;병립형 회귀 반대 의견 많았다quot;
--  quot;국제 지지 없어도 전쟁quot;hellip;네타냐후, 바이든과 대립각 세우는 까닭은?
--  'Hasarlı trafik kazalarında savcılık yerine sigorta şirketlerine başvurun' uyarısı
--  Başkan Oprukçu'nun ailesi adına yaptırdığı Aile Sağlığı Merkezi açıldı
--  İYİ Parti Başkanlık Divanı'nda yeni görevlendirmeler yapıldı
--  Kvinna hittades svårt skadad i Eskilstuna – avled av skottskador
--  Daniel Broncano, nuevo director técnico de la Sinfónica de Tenerife
--  Minst 14 (!) kan saknas: ”Rekord över alla jävla år”
--  Minst 14 (!) kan saknas: ”Rekord över alla jävla år”
--  Kurzovní lístek ČNB na čtvrtek 14.12.2023
--  CMVM vê risco elevado nas categorias de mercado, crédito e de operações em 2024
--  Firari FETÖ'cü elbise dolabının arkasındaki gizli bölmeden çıktı
--  Dursun Özbek'ten dikkat çeken transfer açıklaması!
--  Çin'de binlerce uçak seferine kar engeli
--  82 adetlik rekor sipariş! Alman ordusu resmen imzaladı
--  Valilik açıkladı: Gaziantep'te sahte içki operasyonunda 3 zanlı yakalandı
--  Türkiye aday göstermişti... Yusuf Çalışkan UNIDROIT üyeliğine seçildi
--  Dursun Özbek'ten TFF sorusuna sert cevap! "Bu federasyonu biz seçtik"
--  Tokayev'den Azerbaycan Cumhurbaşkanı Aliyev'e tebrik
--  ABD'de işsizlik maaşı başvuruları beklentilerin altında kaldı
--  Bakan Bolat duyurdu: En yüksek seviyelere ulaştı
--  مسؤول عسكري أمريكي للجزيرة: البحرية الأمريكية لم تكن ضالعة في حادثة السفينة التجارية بالبحر الأحمر
--  Spadły ceny amerykańskiego importu i eksportu choć mniej niż oczekiwano
--  Senegal court clears jailed opposition figure to contest in polls
--  SAPS agrees with Virgin Active to train new recruits
--  Public Enterprises department defends itself over SAA sale documents
--  Pope calls for global treaty to regulate AI
--  Police arrest six suspects for multiple charges including kidnapping
--  EBC pozostawił stopy na dotychczasowym poziomie
--  Daha önce oyuncu olarak forma giymişti, başantrenör olarak geri döndü! Fenerbahçe Beko Sarunas Jasikevicius'a emanet
--  International Oil and Gas Congress in Istanbul fixes on TANAP, Petkim projects
--  Aitana Bonmatí y Jenni Hermoso, finalistas al premio The Best de la FIFA
--  Svetový pohár v Jasne bude. Štát do podujatia naleje takmer 800-tisíc eur, zväz chcel viac
--  Ayuso subraya los beneficios que traerá la F1 en Madrid: 4.500 millones en 10 años y 8.200 empleos
--  Kolumne: Mental health to go - Mit Resilienz ins neue Jahr starten! Das ist mein persönliches Geheimnis
--  Citypress | Watch | Mavuso Msimang withdraws his resignation from ANC, but won't drop anti-corruption crusade
+-  Embracing an all-IP future: Navigating challenges and seizing opportunities in the UK public sector telecommunications
+-  Yanlış botoks hayatı tehdit ediyor!
+-  Siddaramaiah challenges Union govt., BJP-ruled State governments to enact legislation to reserve funds for welfare of SCs/STs
+-  ShopBack and Runa Partner to Offer Enhanced Cashback Rewards To Consumers
+-  Neznámy páchateľ ukradol vzácne historické Porsche: Polícia žiada o pomoc pri pátraní
+-  Nem az a baj, hogy hazudnak, hanem az, hogy senkit sem érdekel az igazság
+-  Ale Fuller cometió grave error al servir ensalada con la mano y el jurado se negó a probarlo | El Gran Chef Famosos: La Revancha
+-  Secure Code Warrior’s Agile Learning Platform Empowers Netskope Developers to Code Cloud Solutions at Scale
+-  AP-SECM wins National Energy Conservation Award
+-  کیچز ہوجاتے تو آسٹریلیا کا اسکور 80 سے 85 رنز مزید کم ہوتا، عامر جمال
