@@ -1,51 +1,51 @@
 # Latest News
--  אבו פאני או אולי פרנקפורט? האפשרויות של מכבי חיפה בקונפרנס ליג
--  World Bank approves $225 million project to revamp Dominican Republic’s electricity sector
--  Casal é preso com tabletes de maconha, cocaína e ecstasy no Nortão
--  Liverpool perde para o Union St. Gilloise, mas se classifica em 1º lugar na Europa League
--  (FOTO) SPAKOVALA KOFERE I OTIŠLA IZ ZEMLJE Aleksandra Mladenović priredila majci IZNENAĐENJE koje će pamtiti do kraja života
--  Live: Inside the Opening Ceremony of El Gouna Film Festival 2023
--  لقجع يطلق ورشا جديدا في التكوين
--  Армения не предоставила подтверждений нарушения соглашений телеканалами
--  "ลิเวอร์พูล" บุกพ่าย "แซงต์ ชิลลัวส์" ส่งท้ายแบ่งกลุ่มยูโรปาลีก ก่อนบู๊แดงเดือด
--  How to play Ship It! Express LTM in Fortnite Winterfest 2023
--  Soccerladuma | 13 Years, 0 Matches: The Footballer Who Faked His Entire Career
--  Grateful Dead offshoot Dead & Co., John Mayer in talks for Vegas Sphere residency: sources
--  రైతుభేరి అంటే భయం ఎందుకు?
--  ఉధృతంగా అంగన్వాడీల సమ్మె
--  اتقوا الله في فلذات اكبادكم…أولادكم ليسوا مجرد اعداد وشهادة
--  Victorie „amară” pentru fugarul Marian Zlotea: a pierdut o contestație, dar a trimis pe masa CCR o problemă care ar putea elibera mii de infractori MOTIVARE
--  Villagers flee as investigation begins into sabotage of Gazipur rail line
--  How Much Does A Kardashian Christmas Cost? A Professional Decorator Took A Look, And I Am Shook
--  Ubedljivo protiv sapatnika po porazima u gostima: Zvezdi Alba dobro došla
--  The SVG Summit Brings Sports-Production Industry Together for Annual Homecoming, Draws 1,500+ to NYC for 17th Edition
--  Hospital surge beds added as pressure grows in Alberta's intensive care units
--  Oyebola becomes 30th Aseyin of Iseyin, gets staff of office
--  KFF Health News' 'What the Health?': Abortion and SCOTUS, Together Again
--  Pete Davidson Joins Eddie Murphy In Tim Story-Directed ‘The Pickup’ For MGM Studios
--  Redmi 13C chega finalmente a Portugal por com câmara de 50MP
--  Coquihalla Highway closed in both directions
--  Anunciaron a los tres finalistas del premio The Best 2023
--  Rapsodija Zvezde protiv najgore ekipe u Evroligi: Nedović, Gedraitis i Teodosić uradili ono što su svi očekivali da se desi u Beogradu
--  On (another) lighter note (or five)…
--  Everyone can see the camels but only those with a genius-level IQ can work out the mistake in this desert pic in 7 secs
--  Mortgage rates hit lowest rate since August
--  El Papa Francisco aboga por una inteligencia artificial que sea camino hacia la paz y el progreso
--  Lagos paid N4.2bn WAEC fees in 4 years – Sanwo-Olu
--  The UKs top 10 towns for winter affairs revealed – is your local on the list of places to spice things up?
--  Ndezvemoyo hit-maker Terry Gee dies after suffering cardiac arrest
--  The Story Behind How Donny And Marie Osmond Spoiled Star Wars Major Luke And Leia Twist Without People Realizing It
--  Ya tienen cobijas, despensas y ropa: DIF lleva apoyos a internos del Centro Penitenciario del Évora
--  لقجع: علينا جميعا أن نبتعد عن كل ما يسيء لكرة القدم الوطنية
--  Emergency contraception use doubles since over-the-counter approval: CDC
--  ПАОК приключи груповата фаза на Лигата на конференциите без загуба
--  Tamara Vučić obišla radove na izgradnji Centra za rani razvoj dece i inkluziju
--  সকালে এসপির বদলি চেয়ে জাপার ৬ প্রার্থীর আবেদন, বিকালে প্রত্যাহার
--  Salvadoreños de buen corazón ayudan a joven al que se le cayeron los postres que transportaba
--  Baltasar Kormákur’s Romantic-Drama ‘Touch’ Gets Summer Release From Focus Features
--  Hombre pierde la vida al ser atacado por tiburón en playa de México
--  Profesyonel Futbol Disiplin Kurulu, MKE Ankaragücü'nün istifa eden başkanı Koca'ya sürekli hak mahrumiyeti cezası verdi
--  FOTOD | Ida-Virumaal hukkus liiklusõnnetuses jalakäija
--  Dupla faz funcionários de loja reféns em Ananindeua, no Pará
--  Ilsø roser Superliga-komet: 'Han har taget fantom-skridt'
--  “A ver qué cartas credenciales trae”: “Kory” Leyson reaparece en mitin de Claudia Sheinbaum en Guasave
+-  Wealth management deal allows debt repayment for Jarden
+-  Instytuty obniżają prognozę dla PKB Niemiec na 2024 r.
+-  El Salvador contabiliza 235 días con cero homicidios en lo que va de 2023
+-  Nine arrests in connection with kidnapping of The Hague resident rescued in Belgium
+-  Aberdeen stun German giants Eintracht Frankfurt 2-0 to end Euro campaign on a high
+-  Marin Ljubičić zabio u porazu Linza, Villareal prošao s prvog mjesta
+-  1000-lb Sisters Season 4 Streaming: Watch & Stream Online via HBO Max
+-  Andertoons by Mark Anderson for Thu, 14 Dec 2023
+-  Yksinäisten ihmisten ahdinko aiheutti poliisille tehtäväsuman Lounais-Suomessa – "Joulu voi olla pimeä ja haikea"
+-  Arturo Reyes, el técnico que un día dejó botado el periodismo para salvar al Junior
+-  UŽIVO PREDSEDNIK VUČIĆ SE OBRAĆA GRAĐANIMA: Pred početak predizborne tišine govori o svim važnim temama
+-  Klopp verliert mit Liverpools B-Elf in Belgien
+-  نباح كلب يتعالى في البرلمان الأوروبي أثناء كلمة عن “قوة أوروبا” (فيديو)
+-  Racismo: cantora tem cabelo revistado em aeroporto Santos Dumond
+-  OLIMPIJAKOS - TSC Tim iz Bačke Topole se nada čudu u Pireju
+-  VELIKI VUČIĆEV INTERVJU Predsednik Srbije o svim temama ključnim za Srbiju
+-  Itália tem ‘boom’ de bilionários; Ferrero é mais rico do país
+-  TIM Brasil bate marca de 200 cidades com rede 5G
+-  ++ Alemanha entrega sistema americano de defesa aérea à Ucrânia
+-  Λουτσέσκου: «Έχουμε ένα υπέροχο ταξίδι, είμαστε περήφανοι που εκπροσωπούμε την χώρα με αυτόν τον τρόπο» (vid)
+-  Flávio Dino no STF e os possíveis problemas para Bolsonaro; ouça o podcast
+-  Musk's X ontvangt geldlicentie van Pennsylvania in aanloop naar betaalfuncties
+-  Musk's X erhält Pennsylvania Geldlizenz als Vorstoß in Richtung Zahlungsfunktionen
+-  El Tricolor femenil sub 17 nuevamente se impuso a Perú
+-  Google Haritalar’dan yuva yıkacak yeni gizlilik güncellemesi!
+-  PFDK açıkladı! Faruk Koca'ya ceza yağdı
+-  Bursaspor evinde farklı mağlup!
+-  Beyaz Saray'dan F-16 açıklaması: Türkiye'ye satışı destekliyoruz
+-  Today’s Lely Radio Sports Page 12/14/23
+-  Netanyahu'dan Biden'a bir rest daha: Savaşmaya kararlıyız
+-  قَحتٌ ورعبها من الكيزان
+-  Kim Kardashian's holiday decor proves there's no such thing as too many Christmas trees
+-  #google releases on-device diagnostics tool and repair manuals for Pixel phones
+-  The COP28 climate agreement is a step backwards on fossil fuels
+-  The best Samsung Galaxy S22 Ultra cases in 2023: the 15 best ones
+-  El colegio de Mesón do Vento fue elegido entre los tres españoles que luchan contra la brecha digital
+-  A WHO keményen beleszállt az e-cigarettagyártókba
+-  Pour lutter contre les migraines, la solution des verres roses
+-  文科副大臣に阿部氏 副大臣女性ゼロ→1人 新副大臣・政務官人事
+-  国産の長射程ミサイル配備、26年度から1年前倒しへ 防衛省
+-  性的暴行やセクハラ「深く謝罪」 元自衛官1人が五ノ井さんと和解
+-  柿沢議員を聴取へ 国会事務所を捜索 江東区長選めぐる買収容疑
+-  京都府警が虚偽の捜査報告書で検証令状請求 裁判所が「問題」と指摘
+-  東大病院の研修医2人、病気装って糖尿病薬を入手 「やせ薬」と話題
+-  "그저 밥 해주는 노예"..남편 도시락 싸는 '주부 유튜버'에 쏟아진 욕설 [어떻게 생각하세요]
+-  MANIJAK SA INTERPOLOVE POTERNICE HTEO DA NAPADNE PRIJU U BEKSTEJDŽU! Detalji velikog INCIDENTA iz Zagreba, o kom se ĆUTALO danima
+-  Asielzoekers worden in Meierijstad opgevangen zonder spookverhalen
+-  Wall St ingetogen, dag na rally op Fed-verklaring
+-  Wall St gedämpft, einen Tag nach der Rallye aufgrund der Fed-Erklärung
+-  Moro e suplente falam sobre Dallagnol durante votação de Dino ao STF: “Desesperado”
