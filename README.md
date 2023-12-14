@@ -1,11 +1,51 @@
 # Latest News
--  קרן בסמר מקדמת את יעל שיף לתפקיד VP
--  المقاومة الإسلامية بالعراق تستهدف قاعدة عين الأسد الأمريكية
--  موعد مباراة الأهلي والاتحاد السعودي في كأس العالم للأندية 2023
--  Mateo Gamarra sería transferido al fútbol ruso y oxigenará a la alicaída economía franjeada
--  Junak Perić: Možemo igrati protiv svakoga, Mišić je ubacio točno gdje je trebao
--  Sécheresse : les nappes phréatiques en amélioration "notable" en décembre
--  Ukraine, Gaza, objectifs militaires… Poutine, ce qu'il faut retenir de sa prise de parole
--  Loi immigration : le casse-tête de Darmanin
--  Les Français et l'argent : ce que le "Pisa de la finance" révèle de nos lacunes
--  Threads : Meta lance enfin en Europe son réseau social, rival de X
+-  Gerardo Gardelin: «'Disney, Magia y Sinfonía' produce una mezcla de excitación y alegría»
+-  عادل خميس لـ«عكاظ»: الغذامي ضيّق «النقد الثقافي»
+-  أُمّي التي علّمتني الشِّعر والغناء
+-  الاختبار الصعب
+-  سوبر أفروآسيوي
+-  نمر سعدي.. نصوصه نمو الليمون ووفرة الشِعر
+-  جيسوس يظهر في المونديال
+-  11 لقاء عربياً بـ «المونديال»
+-  بدأها إسلام.. وحجازي أجمل الكلام
+-  ضمن فعاليات «كتاب جدة».. ورشة عمل لمناقشة «الكتاب الصامت»
+-  «سناب شات» يجلب أحدث عدسات الواقع المعزز إلى مهرجان «مدل بيست ساوندستورم»
+-  Sốc: Ukraine cạn kiện vũ khí đến mức binh lính không thể đáp trả các cuộc tấn công của Nga
+-  الزراعة: توريد أردب القمح من المزارعين بـ1600 جنيه حتى لو انخفضت أسعاره عالميا
+-  ITZY 유나, 핫 앤 와일드 '본 투 비' 개인 포토 공개…독보적 강렬 아우라
+-  Biglietti di auguri e confezioni creative, per un Natale originale
+-  Luis Fernando Muriel anota par de golazos, ahora en Liga de Europa: video
+-  Google to test new feature limiting advertisers' use of browser tracking cookies
+-  อันตรายของโรคข้ออักเสบเรื้อรังไม่ทราบสาเหตุในเด็ก ที่พ่อแม่ควรระวัง
+-  Escucha “Selassie Is The Chapel”, una rola perdida de Bob Marley
+-  Boarded up homes and bad tenant lists part of P.A. council talks
+-  مسؤول أميركي: سوليفان ناقش في إسرائيل التحول إلى حملة أقل كثافة في غزة
+-  PRONOS PARIS RMC Le nul du jour du 15 décembre – Liga – Espagne
+-  Bank of England holds policy rate amidst hawkish tone, GBP rises
+-  Baby it’s cold outside, so let’s play some CONCACAF Champions Cup soccer
+-  Canadian quarterback Kurtis Rourke transfers to Indiana for last year of college
+-  Pao je i Bayern - Mario Hezonja 12, Real Madrid 13, Euroliga 14....
+-  Looming taxi tax will hike prices and put nighttime revellers’ safety at risk, warn campaigners
+-  Shanghai Electric на COP28 представила инновационные решения для возобновляемой энергетики
+-  สร้างเม็ดเงินปีละ 4 ล้านล้านบาท! ดันส่งออกซอฟต์พาวเวอร์ไทยสู่เวทีโลก
+-  PRONOS PARIS RMC Le pari sûr du 15 décembre – Superliga - Serbize
+-  "มูลนิธิดำรงชัยธรรม" เปิดรับสมัครนักเรียนทุนโครงการ ทุนสร้างคน สร้างบัณฑิต
+-  ฝุ่น PM2.5 พิษร้าย รอบตัวยังมีโควิด
+-  Venezuela e Guiana fazem reunião sobre Essequibo
+-  Slovanu hrozí aj Ajax. Na ktoré tímy môže naraziť v boji o osemfinále Konferenčnej ligy?
+-  ¡Oferta Exclusiva! Soriana ofrece estás cerveza a un gran precio
+-  Policial promove campanha solidária ‘Amigos da Bola’ em prol do Gapop-R
+-  Ex presidente Fernández apoya la escogencia de nuevos jueces TC
+-  Tử vi thứ 6 ngày 15/12/2023 của 12 con giáp: Tý vất vả, Mùi đón tài lộc
+-  Designan a diputados que integrarán la Comisión Permanente
+-  안유진, 사슴 같은 큰 눈망울…상큼 미모 눈길
+-  세븐틴, ‘2023 AAA’ 대상 부문 2관왕…“캐럿, 정말 감사하다” 소감
+-  '홍현석 교체출전' 켄트, UECL 16강 PO행… 아스톤 빌라는 16강 진출
+-  Prospect watch: Raiders top pick Rudolph excelling at U18 level
+-  Night works on Border crossing expected to create minor traffic delays
+-  건설공사 설계 오류, 컴퓨터가 검토…국토부, 건설기준 디지털화 성과발표회
+-  Jakarta outlines growth strategies
+-  LG&E reaches new three-year contract with local IBEW
+-  Mall operator says China feud may hurt businesses
+-  수영 김우민, 월드 넘버원에 세계랭킹 1위 내줬다 [Road to Paris]
+-  Počela izborna tišina u Srbiji
