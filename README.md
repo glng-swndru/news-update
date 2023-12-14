@@ -1,51 +1,51 @@
 # Latest News
--  김태흠 지사 “이민청 설치 최적지 충남”
--  전국 지자체 이민청 유치전 치열, 핵심은 ‘기관 효율’
--  Weaker prices take shine off Wesfarmers’ pending entry into lithium
--  주식회사 케이에프, 경남 농수축산물 판로 개척부터 수출까지 활동 지원
--  대덕이노폴리스벤처협회, 대전방산혁신클러스터 민관협력체계 구축지원 및 판로개척지원사업 성황리 종료
--  체인링크-웨임, 웹3 DID 혁신 위한 기술 통합 Meet-up 개최
--  Power Integrations Launches Gate Drivers for 62mm SiC and IGBT Modules
--  Has the advertising industry prepared for the Respect at Work legislation?
--  VIR: Ký hợp đồng kiểm toán báo cáo tài chính năm 2023
--  Terungkap Alasan Anies Baswedan Bawa Ayah Harun Ar-Rasyid Saat Debat, Ternyata untuk Sampaikan Pesan Ini
--  Kiprah Anies, 2009 jadi Moderator dan Kini jadi Lawan Debat Prabowo di Pilpres 2024
--  Video: Balean a agente federal en el Northeast: FBI
--  EZB entscheidet über Geldpolitik
--  «Нью-Джерси» победил «Бостон» в овертайме
--  Best wedding guest dresses for 2024: Best Picks editors style this season’s most iconic gowns for every wedding style
--  Covid-19 Cases Skyrocket To 12,757 In A Week
--  UNESCO, Save the Children announce partnership
--  Tobacco products banned in Kathmandu from today
--  Join the dots: The war on inflation may have been won
--  ASX soars as Wall Street surges after Fed signals multiple rate cuts; $A jumps
--  Pep Guardiola Jadi Favorit Penerima Penghargaan Pelatih Terbaik FIFA
--  Ўзбекистон ва ЕТТБ 7 та соҳада лойиҳаларни амалга ошириш бўйича келишувга эришди.
--  Украина қуролли кучлари Маринка қўлдан бой берилганини инкор этди.
--  Antarctic bell to ring over Hagley Oval
--  রাজনৈতিক কর্মসূচি বন্ধ করা ইসির কাজ নয়
--  Obligasi dan Sukuk untuk Pembiayaan IKN Nusantara
--  ราคาทองคำดีด ! พุ่ง 200 บาท คาดปรับรับ "เฟด" คงอัตราดอกเบี้ย
--  Column | Madurai Veeran and other guardian gods
--  How to get ahead of next year’s mobile bills and pay less per month
--  Mayat wanita, kanak-kanak, bayi ditemui di sekolah Gaza
--  В Сеченовском университете разрабатывают тест для подбора терапии при раке молочной железы
--  توفير 250 ألف فرصة عمل في إكسبو الرياض ومليون وظيفة خلال 2030
--  Đã bắt được 2 phạm nhân trốn trại cách biên giới Campuchia 1km
--  Người thân hé lộ Bảo Ngọc (Gia đình là số 1) tâm lý hoảng loạn, đòi tự tử sau lùm xùm với YouTuber nổi tiếng
--  CMND sẽ bị "khai tử" từ năm 2025, người dân cần biết ngay 3 quy định mới sau
--  Đồng Tháp: Đưa nhà cổ gần 130 năm tuổi vào phục vụ du lịch
--  Herediano vs. Saprissa: ¿a qué hora se juega la final de Liga Promerica 2023?
--  ¿En qué canal mirar León vs. Urawa Red Diamonds por el Mundial de Clubes 2023?
--  Legisladora alemana insta a vetar las negociaciones sobre la adhesión de Ucrania a la UE
--  10 Actors Auditioned to Play Captain America Before Chris Evans Joined the MCU, Including a 'Twilight' Actor & Several Marvel Co-Stars
--  “돈 벌어서 남 주자”…1800만개 팔린 ‘혜자 도시락’의 ‘혜자 연말’
--  Who was Wu Yongning and how did he fall from China's Huayuan International Centre?...
--  I earn £8k a month doing a job no one wants…I only work HALF the year & have so much free time I bodybuild...
--  Inside the world's biggest castle four times larger than Windsor made of 30million bricks that took 132 y...
--  Lottery winners who ended up in jail… from dad-son duo who cashed in 14,000 winning tickets to crystal m...
--  'World's best building' is Black Mirror-style China school where kids can 'de-stress' after being drilled i...
--  I'm the first person to descend into the 1,000C flaming 'door to HELL' – what I found could help prove alie...
--  Pope Francis, 86, has prepared his tomb and planned his funeral as health fears grow after he vows not to...
--  Knife-wielding 'pro-Gaza' attacker storms nursery 'and threatens to rape and murder Jewish teacher' in Fran...
--  Israel releases footage of 'bloodiest battle' of Gaza war after 10 soldiers killed in horror 'double-tap' H...
+-  Financial Institutions Embracing Cloud-based Solutions To Navigate Data Surge
+-  Strong Urban Consumption To Support 8-9% Rental Growth For Mall Operators In FY2025: Icra
+-  US House Approves Impeachment Inquiry Against Joe Biden
+-  Parliament Security System Will Be Reviewed, Image To Be Captured By Facial Recognition Device
+-  「無制限のストレージ」を約束するGoogle Workspaceのプランを契約していたハズなのに「データを保存しすぎているので解約する」とエクスポート不可能な期限を伝えられたジャーナリストの話
+-  RSP begins ward session from today
+-  福特執行長重申採 CarPlay 承諾，「微酸」通用汽車政策
+-  UNRWA: 2023, Batı Şeria'daki Filistinliler için en kanlı yıl
+-  Biden yönetiminden Beyaz Saray önünde Gazze'ye ateşkes çağrısı
+-  Filistinliler yüzde 60'ından Hamas arzusu: Gazze'yi onlar yönetsin
+-  Pemandu lori halang tugas JPJ, keluar kata kesat disiasat
+-  COP28 agreement signals “Beginning of the End” of the fossil fuel era
+-  Aldar, Mubadala and US-based Ares partner to invest $1bln in European private real estate credit
+-  FED herkesin merakla beklediği faiz kararını açıkladı
+-  Jabalpur: बगैर लाइसेंस और मिलावट खोर दूध विक्रेताओं पर होगी कार्रवाई, सरकार ने शपथ पत्र पर दी अंडरटेकिंग
+-  Ex-Guv channelled over Rs 6 cr grants to Haryana
+-  Jack Hughes scores in OT to give the Devils a 2-1 win over the Bruins
+-  Atletico seal top spot with 2-0 win over Lazio
+-  How Taylor Swift Celebrated Enchanting Birthday Without Travis Kelce
+-  이준석 “권성동, 바른말 하다 이미 ‘윤핵관’ 아냐…누린 것 없어”
+-  Woman fined $302 for driving over a roundabout after breaking little known law
+-  큐바일 핸드오더, 호텔 객실 내 디지털 QR 솔루션 설치
+-  이에이치 파이오니아, 환경 오염 방지와 에너지 효율 향상 위한 친환경 코팅 소재 개발
+-  에이슬립, 2023 수면 리포트 발간, 수면 상태에도 ‘월요병’ 있는 것으로 나타나
+-  상처어때, ‘스마트앱어워드 2023’ 의료분야 대상 수상
+-  마약근절 ‘노 엑시트’ 캠페인…안국건강 어광 대표 동참
+-  뷰티 컨설팅 서비스 10CF, 베트남 진출 솔루션 세미나 성료
+-  일광노인복지관, 기장군 해녀문화 보존을 위한 해녀 특별 사진전 개최
+-  친환경 PLA 선도기업 ㈜이솔산업, ‘PLA 평판시트’ 일본 수출 계약 체결
+-  비비코리아, 양돈용 보조사료 ‘이맥스(E-MAX)ㆍ파워자임 익생균’ 중국 연태 수출
+-  DIP, 지역 콘텐츠 산업 육성을 위한 전략포럼 운영
+-  인진, 영국 에너지카탈리스트 지원 사업 선정 통해 파력발전소 설치
+-  더불어민주당 인재 2호, 前 엔씨소프트 전무이사 출신 이재성 영입
+-  휴메딕스, ‘2023 엘라비에 The T Party’ 개최
+-  K-콘텐츠 기반 IP 개발사 ‘니즈앤’, 인도네시아 로컬 OTT 플랫폼 ‘VIDIO’와 공식 파트너사 계약 체결
+-  ㈜미래그린케미칼, '음쿠랑가 캐슈넛 가공공장 & 캐슈넛 쉘 오일 공장' 준공식 개최
+-  IHC unit EasyLease acquires 60% stake in Ripe
+-  Woman fined $302 for driving over a roundabout after breaking little known law
+-  Congreso de EU aprueba presupuesto de Defensa de 886 mil mdd
+-  จากปากเพื่อนสนิท ‘เชียร์ ฑิฆัมพร’ จบรัก 4 ปี ‘ไฮโซบิ๊ก’ ตอนนี้เป็นยังไงบ้าง?
+-  Κουντουρά: Καταγγελία για τριετή καθυστέρηση της Κομισιόν στη θέσπιση Οδηγίας για το δικαίωμα στην αποσύνδεση και τη ρύθμιση της τηλεργασίας
+-  'Mẹ bầu' Phương Oanh lần đầu hé lộ không gian sống đẳng cấp cùng Shark Bình, cuộc sống 'vợ cá mập' có gì vui?
+-  Baba Vanga 2024 predictions: From Putin assassination to terror attacks and medical breakthroughs
+-  Hablar con Van Gogh se vuelve real gracias a la IA
+-  Twitch 將有限度開放「色色」內容，只要加上警告就行
+-  Incendio en taller de Aguascalientes deja una persona intoxicada
+-  Đừng “overthinking” khi ăn mì nữa, đây là bí quyết dành cho bạn!
+-  Home PayLater và Traveloka hợp tác mang đến hàng trăm “deal khủng” cho các tín đồ du lịch
+-  Truy tìm danh tính "nhân vật" được quan tâm nhất clip Thị Mầu "ver 2" của Hòa Minzy
+-  Khác lối chi tiêu, các cặp sao Việt lại giống nhau ở khoản đầu tư này
