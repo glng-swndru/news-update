@@ -1,51 +1,51 @@
 # Latest News
--  Army of the Dead 2 Release Date Rumors: When Is It Coming Out?
--  As the Crow Flies Season 1 Streaming: Watch & Stream Online via Netflix
--  Rockets beat Grizzlies 117-104 and extend home winning streak to 11 games
--  Petrol Diesel Price Today :यहां जानें अपने शहर में आज के पेट्रोल-डीजल के ताजा दाम
--  Pittsburgh Penguins päihitti Montreal Canadiensin voittolaukauskisassa – Ylönen ja Puustinen epäonnistuivat vuorollaan
--  Fiji votes for immediate cease fire in Gaza
--  Путин подведет итоги года в ходе большой пресс-конференции, которая будет совмещена с "Прямой линией"
--  오징어 이어 도루묵 어획량도 '급감'…동해안 어종 씨 마른다
--  군산소방서 "내년 소방계획서 이렇게 달라집니다"
--  이리모현초, 일본 시즈오카 세이코 중학생들과 국제교류 현장수업 진행
--  김민규 진안군의회 의장, 대한민국 지방의정봉사상 수상
--  경원선 동두천~연천 개통으로 경기북부 광역교통 편의 제공 기대
--  성남시의회 ‘이로운 의회생활’ 애니메이션 공개
--  원광대병원 정창원 중점연구센터 교수, 보건복지부장관 표창
--  Interest rates to plunge in 2024 after GDP falls, City markets suggest
--  최경식 남원시장, 청년들과 열린대화로 '남원미래' 설계
--  ProCook sales pick up in welcome boost after volatile first half
--  이상일 용인시장 “한국 최초 루게릭 요양병원 용인에 세운 분들은 초인”
--  세종시, 지역문화유산 활용·교육 우수사업 2관왕
--  GDP figures deal blow to one of Sunak's five priorities
--  Rent prices for London's top West End and City offices set to rise in 2024
--  Grangemouth refinery closure date not yet known, boss tells MSPs
--  Another GDP slump — Where's the 'Brexit dividend' we were promised?
--  Berry Bros. & Rudd revenues top a quarter of a billion pounds as it celebrates 325 years
--  Braille menus introduced as ASK Italian aims to make restaurants more inclusive
--  UK will miss 2030 emissions targets without 'immediate step change' – analysts
--  Insurers expect to pay £560m to cover damage from storms Babet, Ciaran and Debi
--  Many employees not aware of new day one right to request flexible working
--  Dinosaur-themed coins unveiled by the Royal Mint
--  Calls for limit on how often people can be contacted about missed payments
--  Ex-BP boss Bernard Looney denied £32.4m over relationships with colleagues
--  Energy firm fined £160,000 for flaring gas without consent
--  Network Rail slashes compensation payouts to customers by £97m
--  '양날의 검' 디지털화폐, 국제협력 본격화
--  Japan Core Machine Orders Rise 0.7% In October
--  Multiple crosswinds superseded global IPOs despite market rally in 2023
--  Singapore Bourse Poised To Add To Its Winnings
--  Rakuten Medical to Present at the 42nd Annual J.P. Morgan Healthcare Conference on January 10th, 2024
--  Win Streak May Continue For Malaysia Stock Market
--  London Knights' player faces 10-game suspension
--  Trata de matar a una cucaracha en su piso y desata una explosión
--  Who Is Kanye West’s New Wife Bianca Censori?
--  ILA: ILA nhận được đơn từ nhiệm Thân Xuân Nghĩa
--  DMS: Thay đổi đơn vị kiểm toán Báo cáo tài chính năm 2023
--  Ông Vicente Nguyen: Khối ngoại bán ròng không lo, chỉ lo cá nhân trong nước cứ bán quanh 1.000 điểm rồi mua lại ở 1.200
--  ΠΑΟΚ – Ελσίνκι: Το κανάλι μετάδοσης του αγώνα – Ποιος περιγράφει
--  흥국생명, 인천 소방본부와 겨울철 화재 예방 캠페인 진행
--  안 낸 세금만 4억…박유천·박준규, '고액·상습 체납자' 명단 포함됐다 [MD이슈]
--  Innalillahi, Pemuda 20 Tahun Sedang Tertidur Lelap di Kamar Ketika Kebakaran Terjadi
--  Morning Headlines: ஒரே ஒரு பயணிக்காக பேருந்து.. 6 பேரை தட்டித் தூக்கிய என்.ஐ.ஏ.. இன்றைய முக்கியச் செய்திகள்!
+-  ¡Gánate 54 mil pesos al mes! Canadá ofrece empleo a los mexicanos para 2024
+-  [한국뇌연구원, 네덜란드와 ‘파킨슨병·치매’ 공동연구 맞손
+-  [주식 보유, 자금 부족? 월 0.4%대 금리의 스탁론으로 투자를 넓혀보세요!
+-  [국민의힘 의원, 고사상 돼지머리에 5만원 꽂았다가 송치
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  Cruz Azul deberá sacrificar hasta dos extranjeros para el fichaje de sus refuerzos
+-  पुरानी पेंशन योजना पर लौटने की कोई योजना नहीं: केंद्र
+-  If I Were Luísa Sonza Season 1 Streaming: Watch & Stream Online via Netflix
+-  Te Papa protest: Man accused of damaging Treaty of Waitangi panel appears in court
+-  جمال غريب الأطوار.. أغرب اتجاهات الجمال لعام 2023
+-  [14일 인천 중구] 개항장 문화재 야행 유공자 표창장 수여식 개최 등
+-  Ricardo Chávez interesa a Cruz Azul; La Máquina negocia con Atlético San Luis
+-  Russia Destroys, Intercepts Ukrainian Drones Over Moscow, Kaluga Regions - MoD
+-  Alajuelense muestra ganas de hexacampeonato con goleada de escándalo a Saprissa FF
+-  熱門奇幻韓劇《烈女朴氏契約結婚傳》好評不斷！李世榮預告床上親熱，裴仁爀成「病患專業戶」
+-  [14일 인천 부평구] 동수감리교회, 부개1동에 '따뜻한 희망상자' 전달 등
+-  La última publicación de Tiago Volpi que no hace gracia a los que le querían en Cruz Azul
+-  Bakıdan Laçına...
+-  Sexy! Janhvi Kapoor Slips Into A Sequin Backless Dress, Flaunts Her Curves; See Hot Photos
+-  Panzer unbrauchbar bei Offensive: Russlands Armee setzt in Awdijiwka auf Drohnenstrategie
+-  सीसीपीए ने भ्रामक विज्ञापनों के लिए आईएएस कोचिंग संस्थानों को 20 नोटिस जारी किए, 8 संस्थाओं पर जुर्माना लगाया
+-  Zoezi la ufunguaji mitaa Kateshi, Hanang lafikia asilimia 85
+-  Bhagyashree Is Having This Much Fun With ‘Travel Buddy’ Abhimanyu Dassani In New York
+-  就活生に人気の企業は？博報堂や日本生命を抑えたトップはあの会社【総合・業界別ランキング】
+-  Vì sao ruồi muỗi... mất tích trong mùa đông?
+-  Päivän Vainio 14.12.2023
+-  Kalib Boone scores 25 points to lead UNLV to 79-64 victory over No. 8 Creighton
+-  Phoenix Suns vs. Brooklyn Nets: How to watch live stream, TV channel, NBA start time
+-  Apple Faces More Antitrust Tussle In EU, This Time For Spotify
+-  How to watch Utah Jazz vs. New York Knicks: TV channel, NBA live stream info, start time
+-  OnlyFansin peppujulkkis esitteli avujaan – kuvakulmat eivät jätä arvailun varaa
+-  Prima listă de medicamente esențiale publicată de Comisia Europeană. Care sunt pastilele care ne trebuie oricând
+-  Thực hư thông tin cô bé 9 tuổi bị người lạ tiếp cận ở cổng trường nghi bắt cóc
+-  Nam thần thể hình số 1 xứ Trung: Từ cậu bé 108kg thành mỹ nam 6 múi vạn người mê
+-  「運営費上振れ申し訳ない」と十倉会長
+-  IND W vs ENG W Test, India Opt to Bat vs England as Jemimah, Renuka and Shubha Make Debuts
+-  Junior vence en penales a Medellín y consigue su 10mo título en Colombia
+-  IPK:ssa odotetaan vieraskiertueen jälkeen odottavaa joulutaukoa − "Saamme hieman ajatuksia irti jääkiekosta"
+-  Estas son las principales tendencias en suelos para 2024
+-  El cerebro humano no busca la verdad: una explicación científica a por qué mentimos
+-  Curiosos anfitriones
+-  Varastot työllistävät alan ammattilaisia jopa yötä päivää– "Tilille voi tipahtaa parhaimmillaan 5 000–6 000 euroa kuukaudessa"
+-  Prince Harry could be 'triggered' by final series of The Crown as William steals limelight
+-  El alto precio de la falsa moneda: dos años de cárcel por llevar 200 € de mentira en la cartera
+-  ¿Cumbre buena o cumbre mala? Positiva, pero el diablo está en los detalles
+-  Aspoň v umieraní nechcú byť samé. Deti pred samovraždami zachraňujú telefonáty (podcast)
+-  Etenkin naiset harrastavat seksiä kumppanin mieliksi: "Akti saa vain toivomaan, että homma olisi jo ohitse"
+-  Colchones nuevos o jardines para los perros, así se gasta el dinero Milei en reformar la residencia oficial
+-  7 of 10 UFH murder-accused denied bail
+-  La Justicia europea confirma que 'El Rosco' es una marca de 'Pasapalabra'
