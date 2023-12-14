@@ -1,51 +1,51 @@
 # Latest News
--  Kuzey Ege için fırtına uyarısı
--  Faruk Koca, AK Parti üyeliğinden istifa etti
--  Real Madrid star Vini Jr joins LOUD as co-owner
--  Антуан Гризманн: "Хочу, чтобы "Атлетико" был моим последним клубом в Европе"
--  Месси, Холанд и Мбаппе в числе претендентов на приз ФИФА The Best
--  "Сморгонь" рассталась с Шубовичем
--  Канчельскис: переговоры с «Мурас Юнайтед» находятся в начальной стадии
--  Nvidia RTX 4070 Ti Super: Rumored specs, pricing & more
--  Victoria Beckham cried over final scene in Netflix documentary
--  «Синьхуа»: более 30 человек пострадали при разъединении вагонов в метро в Пекине
--  Good Omens will end with its third and final season
--  Oprah Winfrey says making fun of her weight became 'public sport'
--  Apakah Hena Boleh Dipakai untuk Sholat?
--  Maren Morris wants divorce to 'wrap up' before she thinks about dating again
--  عن مجموعة "هائل سعيد".. نحو اقتصاد وطني أخضر وتنمية مستدامة| كتب عمار الأصبحي
--  കിലുക്കത്തിലെ ”വട്ടാണല്ലേ” എന്ന ഒരു ഡയലോഗ്…വളരെ സിമ്പിൾ ആയിട്ടുള്ള ഒരു വാക്ക്, പക്ഷെ ആ കഥാപാത്രത്തിന്റെ മുഴുവൻ ജീവിത വ്യഥയും ആ ഡയലോഗിൽ ഉണ്ട്..
--  Pourquoi les sous-marins Barracuda sont-ils si performants ? Les explications du chef d'état-major
--  Long Point Biosphere Region Foundation signs research agreement with UW
--  Украинадаги уруш сабаб АҚШ мигрантларга эшикларини ёпадими?.
--  La Universidad de Huelva da luz verde al informe para impartir Medicina
--  Los sanitarios canarios recibirán el 100% de incentivos por productividad
--  Bị đâm trọng thương, Trung tá Công an vẫn dũng cảm bắt giữ kẻ côn đồ
--  केशपुर : मुगबासन स्पोर्टिंग क्लब की प्रतियोगिता में दिखी फुटबॉल के प्रति दीवानगी
--  Überfall bei laufender Fahrt : Paketfahrer auf Berliner Ring beraubt und geschlagen
--  Marché de Noël à Nogent-le-Rotrou : un riche programme dont un spectacle d'intelligence artificielle
--  Russian Scientists Suggest New Way to Protect Aircraft Wiring From Overload
--  Koza/Ribo: Mehr Arbeitsmarktchancen für Jugendliche mit Behinderungen durch neuen AMS-Zugang
--  Răzvan Burleanu, președinte al UEFA? Șeful FRF comentează zvonurile
--  „Eine äußerst ernste Angelegenheit“: Festnahmen wegen Anschlagsplanungen in Dänemark und Niederlanden
--  VIDÉO - Prof d'anglais et... catcheur : l'étonnante double vie de Romain dans l'Hérault
--  Los colonos se organizan para volver a Gaza: "Hay que arrasarlo todo y repoblarlo con 300.000 judíos"
--  Salle d'escalade, halle marchande... un quartier de la Défense entièrement réaménagé
--  Airbus. Première livraison d'un A350-1000 à la compagnie Japan Airlines
--  Vivo'dan aklınızı kaçırtacak yeni yıl indirimi! Yanında TWS Air kulaklık bedavaya gelecek: Stoklar erimeden yetişin
--  Grünberg: Wesentlicher Paradigmenwechsel bei der Arbeitsmarktintegration junger Menschen mit Behinderungen
--  Из-за приезда Зеленского во Франкфурте-на-Майне усилили меры безопасности
--  Finland stänger gränsen mot Ryssland igen
--  US House Passes 2024 Defense Policy Bill Despite Concerns About Surveillance Authority
--  How to change throwing style in Pokemon Scarlet & Violet DLC
--  Dacia Spring din China, exclusă de la subvențiile din Franța
--  Američki novinar i marinac ostaju u pritvoru u Rusiji, Putin kaže da se o njemu pregovara sa SAD
--  Government’s $5.4 million boost sets up veterans living around Rockingham and HMAS Stirling
--  Los resultados de la desmilitarización de Ucrania
--  Messi, Haaland y Mbappé, finalistas al premio The Best
--  MinRes boss Chris Ellison fires up lifeline for gas supplies with sweetener for $1b Perth Basin project
--  CSS destina más de $22 millones al año para la compra de prótesis y ortesis
--  La répartition de la subvention au sein du Foyer rural des Grandes-Ventes fait débat
--  L’Algérie, Troisième Plus Gros Blocage de Fonds pour les Compagnies Aériennes Étrangères en Afrique : Un Défi de Taille
--  NAC ziet ook Haugen wegvallen voor topduels, serieuze blessure Leemans
--  Begrijp ik nou goed dat ome Plasterk en zijn politieke breiclub zitten te dimdammen over de grondwet
+-  Rotterdam resident arrested in antiterrorism operation suspected of being a Hamas member
+-  الشوبكي : مخزون الاحتلال الاستراتيجي من النفط بدأ ينفد
+-  تهنئة لـ فرات خزاعلة بفوزها بمسابقة الحديث
+-  انقطاع الاتصالات والإنترنت عن غزة بشكل كامل
+-  Malta hospitals arbitration case against Steward to be decided at end 2025
+-  Reyes con Junior, Gamero con Millonarios: La estrategia samaria conquista el fútbol colombiano
+-  Guerre Israël-Hamas : onze Palestiniens tués en Cisjordanie lors d'une opération militaire israélienne
+-  Kyle Richards Reveals How Her Bond With Morgan Wade Is "Different" Than Her Other Friendships
+-  Here's How You Can Score Free Shipping on EVERYTHING During Free Shipping Day 2023
+-  Maren Morris Breaks Silence On Ryan Hurd Divorce
+-  Messi, finalista en The Best a mejor jugador del mundo otra vez: ¿contra quiénes compite?
+-  Diputada Espinoza recomienda “No legitimar la Comisión Permanente”
+-  الجيش الأردني يعلن عن إحباط عملية تهريب مخدرات كبيرة من سوريا ومقتل وإصابة مهربين
+-  الأمير عبدالعزيز بن سعود يعقد جلسة مباحثات رسمية مع نظيره الإيطالي
+-  3 خطوات لاستبدال لوحة المركبات عبر "أبشر"
+-  عاجل.. الجراد الصحراوي يجتاح محافظات مكة 40 يوما.. ووقاء يكشف طرق المقاومة
+-  ماذا تعرف عن داء السكري من نوع لادا؟
+-  Politique monétaire, Réserve fédérale : Jay, John et les taux
+-  Kerstoproep: Stuur jouw leukste kerstfoto in!
+-  Proton Mail beats Google and lands on desktop
+-  Başbakan Rama: Bu, Anayasa Mahkemesinin hakkı
+-  Emine Erdoğan'dan Türkiye'ye getirilen Gazzeli çocuklara şefkat eli
+-  Spalletti'den Zaniolo sözleri!
+-  KKTC Cumhurbaşkanı Tatar: Türkiye'nin garantörlüğü Kıbrıs Türk halkı için hayati önemde
+-  Erik Ten Hag ile yollar ayrılıyor! İşte 8 aday
+-  Putin diz que conflito com a Ucrânia é como uma guerra civil entre irmãos
+-  İsveç'te "terör saldırısı planlama" ödevi veren öğretmene uzaklaştırma
+-  Du carburant pour fusée à base de bouse de vache, voici l'innovation que propose une start-up japonaise
+-  Carrefour Contact à Rodez : une affaire loin d'être résolue…
+-  Musée Soulages à Rodez : plus qu'un mois pour voir "Les derniers Soulages"
+-  Gérard Depardieu déchu de son titre de Chevalier de l'Ordre national du Québec, une première outre-Atlantique
+-  Agression au couteau dans un collège de Rennes : l'élève de 12 ans hospitalisée en psychiatrie
+-  VIDEO. Football : "C'est n'importe quoi", "titanesque"... Warren Zaïre-Emery, 17 ans, impressionne avec le PSG
+-  Festival de Cannes 2024 : Greta Gerwig, la réalisatrice de "Barbie", sera la présidente de la 77e édition
+-  Logement squatté à Port-la-Nouvelle : la justice ordonne l'expulsion sans délai de l'occupante
+-  Toulouse : le plan hivernal déclenché par la préfecture de la Haute-Garonne permet de reloger 130 personnes av
+-  "Quand on n'a rien, on n'a rien à perdre" : ignorés depuis 20 ans, les salariés de Saica Natur se sont mis en
+-  "Il a menti de façon répétée"... Pourquoi une enquête en destitution à l'encontre de Joe Biden est-elle ouver
+-  Mobilité : la prime covoiturage de 100 euros roule de nouveau en 2024, mais pour les trajets du quotidien
+-  Loi immigration : la France bloquée ? Comment Macron veut faire croire au "même pas mal"
+-  ENTRETIEN. Diversification à Bosch : trop peu "d'engagements formels", regrette le ministre de l'Industrie Rol
+-  Françoise Hardy : "Partir dans l'autre dimension le plus tôt, le plus vite"... Atteinte d'un cancer, la chante
+-  Stade Toulousain : "On les a perdus pour un petit moment..." Deux nouvelles absences pour la Champion's Cup
+-  Covid-19 et grippe : alerte aux contaminations pendant les fêtes ! Pourquoi les autorités redoutent la fin d'a
+-  Cadeaux de Noël : CDiscount, Fnac, Collisimo, Chronopost... quelle est la date limite de commande pour être li
+-  Téléphoner au Père Noël ? Méfiez-vous des numéros surtaxés !
+-  Sunny Deol: मुंबई में फिर साथ नजर आए सनी देओल-डिंपल कपाड़िया, जानिए कब शुरू हुआ था दोनों का अफेयर?
+-  Hindalco’s ‘Ama Pada’ Project A Boon For Nimpali Villagers In Odisha’s Sambalpur
+-  Unblocked Games X6: Exploring the Thrill of Uninterrupted Gaming
+-  बांद्रा/ घर में यूट्यूबर ने लगाया था सीसीटीवी... किसी ने किया हैक और फिर वायरल कर दी मां-बहन की तस्वीर
