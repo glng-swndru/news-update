@@ -1,51 +1,51 @@
 # Latest News
--  “지난 대선서 거짓·조작과 싸워” 정호윤 전 대통령실 팀장의 기록
--  [K-ESG 경영혁신대상] 네이처아이코리아
--  [K-ESG 경영혁신대상] 서울장수주식회사
--  [K-ESG 경영혁신대상] 하임인터내셔널즈
--  [K-ESG 경영혁신대상] 유한대학교
--  [K-ESG 경영혁신대상] ㈜휴먼리소스코리아
--  Tapusu olan herkesi ilgilendiren gelişme: Eski kimlik kartı kullananlara uyarı geldi: İşlemler devam etmeyecek
--  Deal-Hungry Woodside CEO Draws Criticism in Rush for Growth
--  Taylor Swift’s Birthday Outfit Included a Chic Silver Bag & You Can Shop a Similar One
--  Selena Gomez admits getting Botox?
--  Carnaval 2024 ocorrerá entre os 15 e 17 de março em Pelotas
--  Tunisie – Kasserine : Arrestation de cinq terroristes recherchés
--  Honduras: cotización de cierre del dólar hoy 14 de diciembre de USD a HNL
--  Wegen Abnehm-Medikament: Oprah Winfrey erntet harte Kritik!
--  Zemlja u kojoj živi 500 tisuća Hrvata naglo diže poreze: ‘Štednja je neophodna’
--  في مباراة تحضيرية ودية.. نادي العين يتغلب على جاره الحضن بهدف مطهر عزالدين
--  Murphy o Dodiku: Nećemo sa strane posmatrati kako rastvara i vodi BiH u sukob
--  Zac Efron dishes out major downside of being in the limelight: 'very lonely'
--  Čudo u Francuskoj: Nakon šest godina pronađen nestali tinejdžer iz Engleske
--  El Congreso de Brasil anula el veto de Lula a una ley que amenaza a las tierras indígenas
--  'Calm before the storm': California bracing for late December rains
--  María Corina Machado descartó acudir al Tribunal Supremo de Justicia (VIDEO)
--  Gallery: Savannah Area Chamber Eggs & Issues Legislative Breakfast
--  Trading Platform Moomoo Named Online Broker Rising Star Gold Winner by Money Magazine
--  Chiquita adquirirá fruta producida por Banapiña-Fresh Del Monte
--  Hurtan carro a candidato independiente de Tataré
--  Caen dos policías por el secuestro de un jamaiquino
--  “북한, 12월 중 ICBM 발사 가능성…핵 실으면 핵공격”
--  ExxonMobil afirmó que permanecerá en Guyana a largo plazo pese a la disputa territorial
--  Jonathan Majors domestic violence trial evidence released, closing arguments begin
--  Latinoamérica despide 2023 con desaceleración económica y magras perspectivas para 2024
--  EU-Staaten einigen sich auf zwölftes Paket mit Russland-Sanktionen
--  Ex Court Officer charged for bribery
--  Qué no puede faltar en la posada si te toca organizarla
--  Trump looms over Iowa
--  Le Cameroun Souffre De L’incompétence De Certains Ministres : Le Cas De Bini Warack :: Cameroon
--  Curieuse Penurie De Carburant Au Cameroun : Action Des Forces Endogenes ? :: Cameroon
--  IFT sobre mercado gris en México: ya hay reuniones de trabajo con marcas de celulares
--  Cameroun :: Cameo ,Cesca ,Medec, C’est Finalement Gecam :: Cameroon
--  US Urges Israel To Scale Down Gaza Offensive
--  Adulto mayor: ¿Cómo cuidar la piel en verano?
--  ¡Llega Banregio a Los Mochis! Inauguran primera sucursal de la institución financiera en la región
--  Diputados contemplan discutir y votar el presupuesto para Sinaloa este sábado en sesión extraordinaria
--  Monument pentru eroii din Marele Război, lăsat fără identitate. Ce-i lipsește ca să fie catalogat „edificiu istoric“ FOTO
--  Insólito: River tiene cinco finales pendientes por jugar
--  صنعاء تستهدف سفينة جديدة متجهة إلى إسرائيل
--  İş Bankası kredi anlaşması imzaladığını açıkladı
--  След 3 г. ударно пазаруване българите са вече по-пестеливи
--  「簡単なことだ」は英語でなんと言う？ TOEIC500点から挑戦できる『エリン・ブロコビッチ』に学ぶ
--  How ‘Winning Time”s Rollerblade-Wearing Cameraman Helped Capture More Than L.A. Lakers Gameplay On the Court
+-  Résultats Eurodreams: le tirage du jeudi 14 décembre 2023
+-  SYMRISE AG : UBS nog altijd een koopadvies
+-  UBS belässt Symrise auf 'Buy' - Ziel 111 Euro
+-  "이 몸매, 레전드야"…류화영, 여행지에서 '과감 비키니 노출' [MD★스타]
+-  Γκιώνης: Με άνεση την πρόκριση στο ιταλικό World Table Feeder
+-  Turkish club president handed permanent ban from football after punching referee in the face
+-  US begins review that could spell trouble for PVC
+-  White House says Biden ‘not lying about anything’ in impeach probe, despite evidence
+-  VINCI : Jefferies ontvangt een koopadvies
+-  Jefferies belässt Vinci auf 'Buy' - Ziel 130 Euro
+-  Держатели российских евробондов смогут получить выплаты в валюте
+-  Corte de Apelaciones confirma la prisión preventiva de Raúl Torrealba
+-  '반지 원정대' 오타니·베츠·프리먼, 日 괴물 에이스 미팅 참가 효과 만점..."다저스-양키스, 야마모토 영입전 공동 우승 후보"
+-  Recently married Tyreek Hill hit with two paternity suits
+-  Brisbane news live: The fight for Labor’s future; Jasper weaker but floods still threaten; Qld’s top tree-change towns
+-  Christmas appeal as Aussies struggle to make ends meet
+-  Keine Lösung im Streit über Ukraine-Hilfen im US-Kongress in Sicht
+-  Dow erzielt zweiten Rekordschluss in Folge aufgrund von Wetten auf niedrigere Zinssätze
+-  EU-Staaten einigen sich auf Russland-Sanktionen
+-  Dow noteert tweede record op rij op lagere rentetarieven
+-  A Fradi gólszerzője: "Furcsa volt a vége, lehetett érezni, hogy a Fiorentina is boldog a döntetlennel", Dibusz: "Nagyon nagy dolog, hogy veretlenül jutottunk tovább"
+-  ROSEN, A LONGSTANDING LAW FIRM, Encourages Microvast Holdings, Inc. Investors to Secure Counsel Before Important Deadline in Securities Class Action - MVST, MVSTW
+-  [“주말 진짜 추워요”서울시, 17일 이번 겨울 첫 ‘동파 경계’ 발령
+-  United States Steel sieht Gewinn im vierten Quartal über den Schätzungen
+-  United States Steel ziet winst over vierde kwartaal boven verwachting
+-  James Bulger (2) starb 1993 - Entlassung für jüngsten Mörder Englands abgelehnt
+-  Gaynor Lord detectives have 'some indications' why missing mother-of-three left work early on the day she vanished - as friend reveals her mystery phone calls
+-  CHP'li Mustafa Adıgüzel'den canlı yayında skandal sözler! "Sayın Abdullah Öcalan"
+-  ▶️ Kardeşlerim 109. bölüm 2. fragmanı yayınlandı! "Keşke benim annem de hayatta olsaydı da bende ona küsseydim sizin gibi..."
+-  Ümit Özdağ, katil İsrail'e destek veren Starbucks'ta gençlere kahve ısmarladı!
+-  County of Grande Prairie: Changes coming to Red Willow Falls
+-  EDEN CONFIDENTIAL: Argy-bargey as the Chelsea Reach houseboats hamlet fights rent rise
+-  حصيلة ضحايا العدوان الاسرائيلي على قطاع غزة تقترب من 19 ألف شهيد
+-  Warzone pro Jukeyz banned from tournaments for watching bikini twitch stream
+-  ROSEN, LEADING INVESTOR COUNSEL, Encourages Brainstorm Cell Therapeutics Inc. Investors to Secure Counsel Before Important Deadline in Securities Class Action First Filed by the Firm - BCLI
+-  Gaynor Lord detectives have 'some indications' why missing mother-of-three left work early on the day she vanished - as friend reveals her mystery phone calls
+-  ¿Cuándo será la caravana Coca Cola Iztapalapa 2023?
+-  "Mon quotidien est difficile": Atteinte d'un cancer, Françoise Hardy se confie à BFMTV
+-  IRS Proposes Guidance for Solar Manufacturing Production Credit
+-  The Anthropocene condition: Evolving through social–ecological transformations
+-  Coups de filets antiterroristes en Allemagne, au Danemark et aux Pays-Bas, des suspects "liés au Hamas" pour Israël
+-  GOP voters like Trump because he won't compromise: Pew poll
+-  Court voids fine given to Russian activist for criticizing war and sends case back to prosecutors
+-  Brooklyn Nine-Nine star Andre Braugher died from lung cancer – representative
+-  Why It's 'No Surprise' Travis Kelce Was Not at Taylor Swift's Birthday Celebration in NYC
+-  Sylvia Paz Díaz rinde su último informe al frente de la UAdeO; en enero rendirá protesta el nuevo rector
+-  American Greetings Earns Top Score in Human Rights Campaign Foundation's 2023-2024 Corporate Equality Index
+-  Brooklyn Nine-Nine star Andre Braugher, who played Captain Holt, died from lung cancer
+-  B.C. announces more than $80M funding to protect salmon population
+-  Ankaragücü'nden PFDK'ya itiraz!
