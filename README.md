@@ -1,11 +1,11 @@
 # Latest News
--  صاحبة «غمزة» المونديال.. من هي محكمة كرة القدم الأمريكية توري بينسو؟
--  Землетрясение в Азербайджане
--  בני לם: "הפועל באר שבע? חיה פצועה היא חיה מסוכנת"
--  "קופה ראשית" מיוחדת: כאן תפתח את השנה בפרק ספיישל שצולם בצל המלחמה
--  ISL 2023: Punjab Football Club back at Jawaharlal Nehru Stadium
--  Pfizer Weight Loss Gummies (Urgent Warning) Pfizer Keto Gummies Won’t Tell You
--  El sueño irregular estaría relacionado con el riesgo de demencia
--  Taihan Cable eyes W526b share sale for facility investment
--  Pasará 30 años en la cárcel por homicidio
--  News24 | Newly-confident Putin vows victory in Ukraine
+-  מאבד שליטה: צ'אבי הסתכסך גם עם דקו, "לאפורטה היחיד שתומך בו"
+-  הכנסת נערכת להצביע על התקציב: חמישה ח"כים מהקואליציה ייעדרו
+-  עדי בן שמחון מונתה למנהלת הדיגיטל של קבוצת "אל כל אלקטרוניקה"
+-  "ידע להבין הכל גם בלי מילים, היה הראשון לעזור": רס"ל מאור גרשוני נפל בקרב ברצועת עזה
+-  Hải Phòng lần đầu tiên bắn pháo hoa dịp Tết Dương lịch 2024
+-  Tổng thống Putin ca ngợi ông Erdogan khi nói về tình hình ở Gaza, tiết lộ kế hoạch tiếp theo của Nga
+-  Nữ đại úy 3 lần biểu diễn trong yến tiệc chào mừng Tổng Bí thư Tập Cận Bình
+-  Cần cẩu bánh lốp nặng nhất thế giới nâng cánh turbine gió lên cao hơn 100m
+-  Bị cho đi từ nhỏ, cô gái tìm lại người thân sau 30 năm nhưng không được thừa nhận, cái bắt tay với bố ruột khiến dân mạng xót xa
+-  Việt Nam nêu rõ nội hàm của Cộng đồng chia sẻ tương lai Việt Nam - Trung Quốc
