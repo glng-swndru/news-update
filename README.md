@@ -1,11 +1,51 @@
 # Latest News
--  מאבד שליטה: צ'אבי הסתכסך גם עם דקו, "לאפורטה היחיד שתומך בו"
--  הכנסת נערכת להצביע על התקציב: חמישה ח"כים מהקואליציה ייעדרו
--  עדי בן שמחון מונתה למנהלת הדיגיטל של קבוצת "אל כל אלקטרוניקה"
--  "ידע להבין הכל גם בלי מילים, היה הראשון לעזור": רס"ל מאור גרשוני נפל בקרב ברצועת עזה
--  Hải Phòng lần đầu tiên bắn pháo hoa dịp Tết Dương lịch 2024
--  Tổng thống Putin ca ngợi ông Erdogan khi nói về tình hình ở Gaza, tiết lộ kế hoạch tiếp theo của Nga
--  Nữ đại úy 3 lần biểu diễn trong yến tiệc chào mừng Tổng Bí thư Tập Cận Bình
--  Cần cẩu bánh lốp nặng nhất thế giới nâng cánh turbine gió lên cao hơn 100m
--  Bị cho đi từ nhỏ, cô gái tìm lại người thân sau 30 năm nhưng không được thừa nhận, cái bắt tay với bố ruột khiến dân mạng xót xa
--  Việt Nam nêu rõ nội hàm của Cộng đồng chia sẻ tương lai Việt Nam - Trung Quốc
+-  Ποιες σειρές του Netflix “έσπασαν” τα κοντέρ της τηλεθέασης; – Οι χρήστες περνούν μέχρι και 812 εκατομμύρια ώρες παρακολούθησης της αγαπημένης τους σειράς!
+-  Voiture électrique : Dacia Spring, MG4… La liste des modèles privés de bonus
+-  CO2-Steuer in Heizölpreisen längst eingepreist – Kauf lohnt trotzdem
+-  GK H-SUMMIT to Open Ultimate Wellness Getaway MUWA NISEKO, New Concept for Enjoying Niseko
+-  Yunji Announces Third Quarter 2023 Unaudited Financial Results
+-  Özel sektörün yurt dışı kredi borcunda azalma
+-  Afrontan taxistas de la ciudad “cuentas” de mil pesos al día
+-  Azərbaycan Ermənistana cavab verəcək
+-  WHO - Urgent action needed to protect children and prevent the uptake of e-cigarettes
+-  Nikšić: Struja za građane neće poskupjeti, to nismo mogli osigurati privredi
+-  Obilježavanje tridesete obljetnice 2. gardijske brigade HVO-a
+-  Bregu: Funkcionalno zajedničko regionalno tržište može biti naša karta ka jedinstvenom tržištu EU
+-  Poliklinika Vitalis izvela hiljaditi elektrofiziološki zahvat
+-  Ambassador Rao: India's Supreme Court verdict an unjust rubber-stamp on an inherently illegal act
+-  Od sutra novi cjenovnik za Trebevićku žičaru, za strane državljane povratna karta 30 KM
+-  Bregu: Fully functional common regional market can be our vessel to the EU single market
+-  Nadbiskup Vukšić: Crkva je zajednica poslana da komunicira (VIDEO)
+-  Saopćenje za javnost Naše stranke
+-  Beč zadržao titulu najboljeg grada za život, jedanaesti put u nizu
+-  Ministar regionalnog razvoja RH u petak u Mostaru
+-  Obilježena 30. godišnjica ubistva osam građana Sarajeva ispred OŠ 'Safvet-beg Bašagić'
+-  Pripadnici Granične policije BiH zaplijenili cigarete, duhan i novac
+-  400 אלף דולר עבור מיקומו של סינואר: המחירון של צה"ל נחשף
+-  כל קבוצות ליגת העל מצטרפות ליוזמת מטה משפחות החטופים
+-  توضيح عاجل لـ "الموارد البشرية" بشأن أسباب عدم الأهلية في الضمان الاجتماعي
+-  "منشآت" تلغي هذه الرسوم لدعم المؤسسات الصغيرة والمتوسطة
+-  بشرى سارة.. 5 آلاف ريال مكافأة شهرية لأعضاء لجان الترخيص البلدي
+-  Biden, Kirby and dead, ungrateful Palestinians
+-  طلاب هندسة الإسكندرية الملتحقين بجامعة لويفيل الأمريكية يحققون مراكز أولى في مشروعات التخرج
+-  '서머퀸' 권은비, 'AAA 베스트 뮤지션' 선정 "♥루비 덕에 열심히 달릴 수 있었다" [2023 AAA]
+-  Comment résister à l'iPhone 14 à un prix si bas ? Il n'y en aura pas pour tout le monde
+-  Profitez de l'iPhone 12 reconditionné à moins de 350 euros sur ce site très connu
+-  Cette carte graphique RTX 4060 profite d'une offre qu'il ne faut pas laisser passer
+-  Amazon fait fort avec ce disque dur Samsung à -58%, foncez sur le site
+-  Tiktok lance "Add to Music" pour basculer ses découvertes musicales sur les services de streaming
+-  Cette offre sur cette batterie externe est parfaite pour toujours avoir de l'autonomie
+-  That Reminds Me: Bedroom secrets
+-  TCW's Top Twenty: Fauci comes clean – We knew the Covid vaccine was never going to work
+-  TCW's Top Twenty: My daughter's life has been ruined by the Covid vaccine, and so has mine
+-  Why squander £200million on a foregone conclusion?
+-  What next for Gaza? Part 1
+-  COP28 achieves zero, as usual
+-  Democracy in Decay: A Tory betrayal
+-  Ukraine-Krieg: Elektronik aus Deutschland für russische Waffen?
+-  10 kannattavaa pienyhtiötä Helsingin pörssistä – Poljetusta osakejoukosta voi löytää ostettavaa, jos kestää riskiä
+-  نبيل عمّار: تونس تحترم التزاماتها في مجال الهجرة وعلى المنظّمات الأممية القيام بدورها
+-  Odisha Vigilance Arrests Nayagarh Sub Registrar Over 79% Disproportionate Assets
+-  Зак Браун е отворен към идеята за повече състезания, но при едно условия
+-  Exigen investigar y sancionar violencia ejercida en un cateo
+-  Путин подтвердил позицию о временном характере мер по обязательной репатриации и продаже валютной выручки
