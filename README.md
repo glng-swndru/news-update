@@ -1,11 +1,51 @@
 # Latest News
--  Kyrgyzstan: Domestic Violence Against Women, Girls with Disabilities
--  의정부시 장암동 지사협, 성금 50만 원 기부 사랑릴레이 동참
--  의정부시 흥선동 통장협의회, 사랑릴레이 성금 111만 원 기탁
--  موعد انحسار الكتلة الهوائية وتساقط الأمطار بغزارة في المملكة
--  قوات الاحتلال تقتحم عدة مواقع بالضفة الغربية
--  الكشف عن تفاصيل مثيرة لكمين القسام الذي قُتل فيه قادة لواء جولاني
--  يهود يغلقون طريقا سريعا بلوس أنجلوس للمطالبة بوقف الحرب على غزة
--  مجزرة إسرائيلية جديدة في رفح
--  البث المباشر لـ برنامج الوكيل
--  استشهاد 3 شبان جراء قصف إسرائيلي لجنين
+-  Aprueba Senado nombramiento de Fayad como Embajador
+-  ЕИ Ғарбий Болқон давлатларидан кўпроқ ислоҳотлар кутмоқда.
+-  АҚШ Сенати мамлакат мудофаа бюджетини тасдиқлади.
+-  Champions League: Champions League: Ende der Gruppenphase kein Freudengrund
+-  “Рязан мўъжизаси” нега барбод бўлганди? — советларга дарс бўлмаган режа белгилаш ва унинг аянчли якуни.
+-  भारतबाट धान ल्याउने योजना अन्योलमा
+-  लाइटरमा मूल्यांकनको लफडा
+-  दुई वाणिज्य बैंकको लाभांश आजसम्म कायम शेयरधनीहरूले मात्र पाउने
+-  अर्थतन्त्र सुधारोन्मुख : अर्थमन्त्री
+-  फोन पेको अध्यक्षमा शसिन जोशी नियुक्त
+-  सनराइज सेक्यूरीटीजको वार्षिक साधारण सभा पुस २०मा
+-  11월 반도체 수출 16개월만에 증가세…ICT 수출도 증가 전환
+-  카카오 ‘개조 열쇠’도 여성이 쥐었다…네카오 ‘여성 리더십’ 시대 열려
+-  박지원 “이재명, 노무현처럼 이낙연 집 찾아가 창당 만류해야”
+-  Sazonov, Zima e Djidji scalpitano: tutte le soluzioni in difesa
+-  Zapata (per ora) segna solo in casa: due partite per trovare gol e continuità
+-  الجيش الإسرائيلي: مقتل ضابط من المدرعات في معارك جنوب قطاع غزة
+-  ВПП ООН и Таджикистан подписали соглашение об улучшении продовольственной безопасности
+-  Всички 1/8-финалисти в Шампионска лига, възможни са големи дербита
+-  Delhi Goes Greener: 500 Low-Floor Electric Buses To Join The Fleet Today
+-  LineNext secures $140M funding for its web3 service
+-  Великобритания, Япония и Италия разработват изтребител от най-ново поколение
+-  PVV: Phạm Đức Tuấn - Ủy viên HĐQT - đã bán 1.271.800 CP
+-  PVV: Đỗ Hoàng Anh - Ủy viên HĐQT - đã bán 600.800 CP
+-  Vốn ngoại bắt đầu mua mạnh, dòng tiền nội vẫn thận trọng
+-  朝比奈彩 第1子妊娠を報告
+-  Meteoroloji hafta sonu için uyardı! Kar yağışı dondurucu havayla birlikte geliyor
+-  US Senators submit resolution on Sri Lanka calling for accountability
+-  Hatályon kívül helyezték a korábban négyszeres gyerekgyilkosság miatt bebörtönzött anya elleni ítéletet
+-  Homeopathy College in J&K
+-  Transformative developments in J&K
+-  At COP28, Sultan al-Jaber got what the UAE wanted; others leave it wanting much more
+-  White House's Sullivan meets Saudi crown prince, then to Israel
+-  Gunmen kill 4 soldiers, kidnap 2 Korean workers in Nigeria oil region
+-  Senior Taiwan opposition leader visits China month before election
+-  岸田内閣、派閥別の人数はどう変わる？政治資金パーティー問題で安倍派ゼロに
+-  Action against social media misuse
+-  Вероятный премьер Нидерландов внезапно обрушился на Путина
+-  Η Βουλή των ΗΠΑ ενέκρινε έρευνα σε βάρος του Μπάιντεν
+-  Onze kofferbakken krimpen, maar deze auto’s bieden wél ruimte voor jouw spullen en honden
+-  Rusya ve Avrupa’ya satış bolluğu! Yaşı da kurusu da altın değerinde: Yaz meyvesi kış sofralarına geliyor
+-  Temu files fresh lawsuit against Shein, accusing its rival of ‘mafia-style intimidation’
+-  Trevor Noah to Host the 2024 Grammys for Fourth Consecutive Year
+-  PRVA DAMA KAVAČKOG KLANA BILA NA POLICIJSKOJ LISTI: Muž joj sređivao dozvolu za oružje, PIŠTOLJ JOJ ULIVA SIGURNOST
+-  “The Zone of Interest”: sinopsis, tráiler y fecha de estreno de la película de A24
+-  BREAKING NEWS: FA has announced the punishment for Chelsea Striker Nicholas Jackson for grabbing Everton defender Nathan Patterson by the throat.
+-  "학교폭력 당했어요" 피해 응답률 1.9%…10년 만에 최대
+-  Army’s Trishakti Corps Rescues 800 Tourists Stranded In Sikkim Landslides
+-  원경환 전 대한석탄공사 사장, 중대재해처벌법위반 혐의로 기소
+-  강원랜드사회공헌재단, 정태영삼 맛캐다 점주와 따뜻한 한끼 나눔
