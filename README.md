@@ -1,11 +1,11 @@
 # Latest News
--  FUEKIVFS: Kết thúc giao dịch hoán đổi ngày 13/12/2023
--  Thượng viện Mỹ phê chuẩn 886 tỷ USD chi tiêu quốc phòng năm 2024
--  İlk Türk uzay yolcusu Gezeravcı'nın uzaya çıkacağı tarih belli oldu
--  최광훈 회장-이필수 회장, 비대면 진료 시범사업 확대 앞두고 '전격 회동'
--  فيديو.. سؤال حول "هدية عيد الميلاد لأطفال غزة" يحرج سوناك
--  Why give Mnangagwa military equipment when country is in crisis, what about if he uses them to kill citizens, Mzembi blasts China
--  Embrouille Pacers / Giannis Antetokounmpo : ce qu’il s’est dit après le match
--  افتتاح طريق العقبة الخلفي
--  News24 Business | Petrol, diesel prices on track for big cuts in January
--  Oman’s Sultan Haitham bin Tarik on 1st state visit to S’pore from Dec. 13-15, will meet President Tharman
+-  Setenta enfermeras consiguen la plaza de 2009
+-  Rodzaje zleceń giełdowych, które musisz znać, zaczynając inwestować
+-  Koszt produkcji paneli słonecznych spadł w Chinach o 42 proc.
+-  Rada nadzorcza Orlenu liczy 8 członków, których powołuje Walne Zgromadzenie - jego najbliższe obrady w lutym
+-  Inchcape Mackinnon Mackenzie Shipping Welcomes Virgin Voyages’ Resilient Lady to Sri Lanka: Pioneering Cruise Tourism Advancements
+-  [삼성이 시동만 걸어도 상한가…반도체 시장에 새로운 돌풍 예고 [김민지의 칩만사!]
+-  [“아! 서울대병원 왜 이러나” 불륜에, 음주운전·폭행까지…이래도 솜방망이? [단독]
+-  [인천 동국제강 고철처리장 옥내화 사업 물꼬 트이나
+-  आईपीएल 2024 || कोलकाता नाइट राइडर्स के कप्तान बने श्रेयस अय्यर, नीतिश राणा उप कप्तान
+-  World Bank approves R2.5bn budget support for Malawi
