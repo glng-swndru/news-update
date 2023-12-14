@@ -1,51 +1,11 @@
 # Latest News
--  غانتس : السلطة الفلسطينية غير قادرة على حكم غزة
--  واقعة صادمة.. رجل يطلق النار على امرأة وطفلين ثم يموت منتحرا - ما القصة؟
--  فابينيو: مباراة الأهلي صعبة ولا أتمنى مواجهة مانشستر سيتي في نهائي مونديال الأندية
--  البورصة تهبط في نهاية تعاملات اليوم الخميس
--  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الخميس 14 ديسمبر
--  Volverán los Jonas Brothers a México en 2024
--  Impulsará transición cambio en paneles
--  Explosión en polvorín de Puebla deja 3 muertos y 25 heridos
--  Elige un desayuno óptimo
--  Nicholas Rossi CAN be extradited from Scotland to face charges in US after judges refused his appeal
--  Australian Survivor star Luke Toki is pictured with wife Mary at son's graduation - one week after she announced, 'He's all yours ladies!'
--  ‘Skeletal’ boy, 8, dies after being locked in his room and starved to death
--  Hugh Grant looks so painfully bored on Wonka press tour but fans can’t get enough
--  Karol G lanza 'Que chimba de vida', una canción para agradecer lo bueno que vivió en 2023
--  Známá intelektuálka nedostane cenu. Přirovnala Gazu k židovskému ghettu za nacismu
--  Dizi yayına girmeden başrol oyuncusu İrem Helvacıoğlu veda etti
--  Maioria dos palestinos apoia ataque de 7 de outubro a Israel e aprovação do Hamas cresce, diz pesquisa
--  Zelenskyj advarer EU-ledere mod at give Putin et tilfreds smil
--  Zelenskyj advarer EU-ledere mod at give Putin et tilfreds smil
--  MSB duyurdu: Beş PKK'lı terörist hava harekâtıyla etkisiz hâle getirildi
--  Αυτοάνοσα νοσήματα και ενδοκρινείς αδένες | Η Δρ. Αικατερίνη Στεφανάκη, συνομιλεί με την Άννα Δρούζα.
--  Bir psikiyatrist gözünden küresel sapkınlık: Hekaton’la Son Tango
--  Banco Popular da impulso financiero a mujeres emprendoras
--  Novinar iz RS postavio pitanje Putinu o BiH: "Budućnost moraju određivati ​​ljudi koji žive tu, bez obzira na odluke koje im se nameću"
--  EFCC boss, Olukoyede demands unconditional return of Nigerian stolen assets abroad
--  Simon Pytlicks krop er blevet frisket op i genoptræning
--  Simon Pytlicks krop er blevet frisket op i genoptræning
--  [VIDEO] Lelaki bertopi keledar dirakam curi baju dalam wanita
--  Friends fans uncover hidden clue that Chandler and Monica were always going to be together
--  İYİ Parti'de şok istifa! Genel Başkan Yardımcısı Ece Güner partiden ayrıldı
--  AYİNESİ İŞTİR KİŞİNİN LAFA BAKILMAZ-1
--  Selçuklu Belediyesi Sanat Akademisi’nde 7. dönem kursları başladı
--  Sederet Blunder Gibran: Gestur Ajak Pendukung Bersorak saat Debat hingga Asam Sulfat
--  O que acontece se tomar vacina da Covid-19 com gripe
--  Rejecting Govt’s ‘Purely Accidental’ Claim, Allahabad HC Grants Rs 50 L to Employee’s Widow in Blast Case
--  English Representatives at UCL Stumble as Manchester United, Newcastle Bow Out of European Competitions
--  Groninger Museum veilt objecten van ‘The Rolling Stones – Unzipped’
--  Allarme siccità in Catalogna. I giocatori del Barça potrebbero essere costretti a farsi la doccia a casa
--  Prince William dons navy uniform and takes salute as he heads to Lord High Admiral's Divisions on behalf of his father, King Charles - as the Crown releases its sensational finale
--  Can Atalay’ın AYM’ye yaptığı ikinci başvurunun görüşüleceği tarih belli oldu
--  Antyrakietowa baza w Redzikowie gotowa
--  Queen Maxima looks typically elegant in a blue satin skirt as she attends a Christmas Music Gala in Bussum
--  ‘Sex offender’ who ‘faked his own death’ can now be extradited to US
--  [광주 서구 유촌·쌍촌동 상가 1시간여 동안 정전“불편”
--  [손태진 공식 팬카페 ‘손샤인’, 팬덤기부로 희망2024나눔캠페인 참여
--  [“5남매 얼굴, 사자처럼 변했다”…형제자매 중 7명만 멀쩡, 무슨 일?
--  [광주시 내년 예산 6조9000억원, 시의회 본회의 통과
--  [임영웅, 고양콘도 전석 매진 예고 ‘추가 오픈까지 매진 행렬 잇는다’
--  9 ideias de presente de Natal para seu pai
--  Quais doenças garantem isenção do IPVA?
+-  Emmerdale’s Rhona Goskirk star lifts lid on groundbreaking soap plot that’s ‘never been done in UK’
+-  Man Utd cult hero’s ex-Wag who classes being naked as a ‘hobby’ looks happier than ever after stripping down to bikini
+-  Transparency shall be our bedrock in telecom regulation – Maida
+-  تسبب مخاطر.. دراسة تحذر من العمل في نوبات ليلية
+-  Nhà khoa học ngồi tù oan 10 tháng do bị AI xác định ‘gần giống’ kẻ giết người
+-  Soccerladuma | FantasyGo: Kurt's Gameweek 17 Picks!
+-  ZK International Group Co., Ltd. Celebrates Prestigious Recognition as a National "Little Giant Enterprise"
+-  Fibocom Propels Digitalization of Smart Industry Terminals with Customized PCBA Solutions
+-  TDengine Refocuses on Industrial Data in 2023, Doubles Revenue Year over Year
+-  JLEE Announces - Aeona AI. The World's First AI Chatbot Platform for Disruptive Innovation!
