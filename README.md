@@ -1,51 +1,11 @@
 # Latest News
--  BD to become exclusive global license partner (excluding China) for Bactiguard coated Foley catheters
--  oToBrite is Honored with the 2024 Taiwan Excellence Awards for its Multiple Products
--  LJI, Gartner Market Guide for Loyalty Program Vendors에 등재
--  Emergenza a Milano, pronto soccorso pieni per virus respiratori tra i bambini. In tutta Italia reparti in difficoltà
--  2000 के नोट पर बंगाल से आया बड़ा अपडेट, क्या बदल गया काले धन का रंग?
--  [美 대러제재에 한국인 1명 포함…정부 “韓 관계당국이 수사 진행 중”
--  [인천 ‘롯데몰 송도’ 사업 본격 추진… 2026년 상반기 완공
--  [구리시 “범죄로부터 안전한 도시·대중교통 만족 도시 만든다”
--  Nyt World Tour-løb begejstrer dansk cykelprofil
--  Nyt World Tour-løb begejstrer dansk cykelprofil
--  JEL TO KARMA?! Matora se RASPADA na komade zbog Anitine PREVARE, a ovako je nekad pravdala PRELJUBU u braku! ŠOK!
--  Delimitasiya Komissiyasının iclasları mətbuatda necə işıqlandırılacaq?
--  J&K Admin’s Directive To Officers: Send Monthly Reports On Public Issues, Solutions To CS Office
--  Petteri Orpo Unkarin kiristyksestä: ”Oikeusvaltioperiaate ei jousta”
--  “좋은 품질의 공공SW 위해선 현실적인 대가 구조와 예산 확보 필요”
--  IBM “왓슨x. 거버넌스로 신뢰할 수 있는 AI 운영 지원”
--  VINASEED – Xây dựng chuỗi giá trị lúa gạo bền vững mang văn hóa của Việt Nam đến với thế giới
--  Long An sẽ nâng tỷ lệ hộ nông thôn sử dụng nước sạch lên 65%
--  TP.HCM rút ngắn thời gian giải quyết thủ tục gắn đồng hồ nước
--  Đường ống dẫn khí Serbia-Bulgaria: Lộ trình năng lượng mới của đông nam châu Âu
--  Meclis'te fenalaşmıştı: Saadet Partili milletvekili Hasan Bitmez hayatını kaybetti
--  Başkan Kılca ve Vakıflar Bölge Müdürü Yılmaz Kılınç, Karatay'daki tarihi camilerde inceleme yaptı
--  Gençler 'Parkur Konya' ile hayallerine kavuşuyor
--  Price of milk rises - for the second time in a year
--  Вержиния Джевелекова: От научна теория намаляване на вредата от тютюна се превръща в практика
--  VAR tulossa kotoiseen Veikkausliigaan
--  Many first-time buyers trying to enter the housing market: De Hypotheker
--  San Francisco’s Woes Are Well Known. Across the Bay, Oakland Has Struggled More.
--  Wholesale Inflation Back In Positive Zone After Seven Months, At 0.26 Pc In Nov
--  Father Danny Pilario, anti-EJK priest, is new Adamson University president
--  Колку изнесува просечното богатство на жителите низ Европа?
--  Nvidia spremna otvoriti tvornice za poluvodiče u Vijetnamu
--  Министър Димитър Илиев обсъди възможностите за сътрудничество с ректора на Азербайджанската държавна академия по физическа култура и спорт
--  Banegården i Aarhus er afspærret af politiet
--  POČELO SUĐENJE PUTINOVOM ŠPIJUNU IZ NEMAČKE! Preko njega hteli da ugrade GPS na raketne sisteme IRIS namenjene Ukrajini?! (VIDEO)
--  As COP28 ends we ask, was it small steps or large strides?
--  CRNO-BELI ŽELE NASTAVAK SERIJE Evo gde možete pratiti meč Žalgiris - Partizan
--  Corona-Zahlen im Rems-Murr-Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Landkreis Ludwigsburg aktuell: Zahlen und Fakten aus der Region
--  Германия — Лидер AfD призывает к отставке Шольца и новым выборам
--  Corona-Zahlen im Landkreis Göppingen aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Bakan Tunç: Türkiye Yüzyılı'nda herkes için daha erişilebilir olan güçlü bir adalet sistemini hayata geçireceğiz
--  TBMM kürsüsünde fenalaşmıştı... Saadet Partisi Kocaeli Milletvekili Hasan Bitmez vefat etti
--  Liquor trade: I-T Deptt raids BDPL again over tax evasion in Odisha’s Boudh
--  Vincenzo Montella'dan Arda Güler açıklaması! "Her yerde oynar yeter ki sağlıklı olsun"
--  Köpekler 79 yaşındaki kadına saldırdı
--  Trabzonspor'da Maxi Gomez gelişmesi
--  Putin açıkladı: Başkan Erdoğan ile anlaştık
--  Dr. Alaa Allagta: Bizlere Türkiye sahip çıktı
--  Yunanistan'a FETÖ'cüleri bıraktı, dönüşte yakayı ele verdi
+-  27 best Christmas gifts for mum 2023 UK
+-  OnlyFans mum spends £4,000 on 120 Christmas presents for her kids
+-  'Naughty' Amazon delivery driver caught on film taking package from man's garden
+-  Stoke-on-Trent high school installs sensors in toilets to catch vapers
+-  Hero Daniel stops terminally-ill friend killing himself - with a simple text
+-  Police make arrests after car stopped outside Festival Park KFC
+-  Police swoop to shut down Milton cannabis factory
+-  Royal Stoke bomb hoax sparked 'terror and disruption' as A&E evacuated
+-  Thief stole 906 library books and sold them for £30k because he 'liked the buzz'
+-  Intempéries : en Dordogne, la commune de Montignac-Lascaux inondée
