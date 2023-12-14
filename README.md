@@ -1,51 +1,51 @@
 # Latest News
--  La dictadura cubana ha operado desde las sombras durante meses en la pugna por el Esequibo
--  Revelation of visionaries - TOKEN2049 Dubai unveils its first speakers
--  Google could be working on an AI assistant for the Pixel 9
--  البيت الأبيض: سوليفان بحث مع الإسرائيليين هزيمة حماس
--  Český herec bojoval s depresiami: Najtvrdšia forma samovraždy!
--  Pracujúci v zahraničí, pozor: Sociálna poisťovňa zrýchli tieto procesy, kľúčové tlačivo už do 24 hodín!
--  "北 12월 ICBM 발사 가능성"…한미, 억제·대응
--  The hypnotizing Miley Cyrus eyes meme
--  Crédito malparado cresceu 315 mil milhões Kz este ano para 1,2 biliões Kz
--  Acordo histórico marca o fim dos combustíveis fósseis
--  Petróleo abaixo dos 75 dólares
--  Guitar Center just added new deals to its huge 35% off sale and you can save right up to Christmas eve
--  PT após Congresso derrubar veto de Lula ao Marco Temporal: 'legaliza invasão em terras indígenas e degrada o meio ambiente'
--  Tập đoàn GCL (KDM) muốn thoái sạch vốn tại Công nghệ Tài chính KDS
--  Un historia de amor: Caicedo reveló porque aceptó oferta de Chelsea que la de Liverpool
--  대웅제약 보툴리눔 톡신, 美 만성 편두통 치료 임상 2상 환자 모집 완료
--  Công nhân chật vật dịp cuối năm: Nhiều giải pháp chăm lo hỗ trợ công nhân, lao động gặp khó khăn (bài cuối)
--  울버햄튼 감독이 황희찬 재계약 발표…"우리에게 엄청나게 중요한 선수"→클럽 최고 수준 연봉 받는다
--  신협, ‘2023년 신협 사회공헌의 날’ 행사 성료
--  Còn 3% để Viettel Construction (CTR) hoàn thành kế hoạch lợi nhuận năm
--  아이티센, 부산디지털자산거래소 우선협상대상자 선정
--  S. Korean official notes possibility of N. Korea launching ICBM this month
--  Colors and shapes galore in winter exhibitions
--  Tribunal de Guatemala ordena que toma de posesión sea en enero
--  Link Bolivar vs. Aurora EN VIVO vía Tigo Sports: cómo ver en directo la Copa DivPro
--  Low-code, una tecnología tan sostenible como rentable
--  Barry Humphries memorial LIVE updates: Iconic Australian actor, comedian farewelled in Sydney memorial
--  Barry Humphries memorial LIVE updates: Iconic Australian actor, comedian farewelled in Sydney memorial
--  Barry Humphries memorial LIVE updates: Iconic Australian actor, comedian farewelled in Sydney memorial
--  Nueva pizarra electrónica en el estadio Capitán San Luis
--  ¿Ecuador renovará sus monedas fraccionarias con rostros emblemáticos?
--  Στήριξη Μπάιντεν στα εποικοδομητικά βήματα που έγιναν στη σχέση Ελλάδας – Τουρκίας – Συνομιλία με Ερντογάν
--  서울시, 17일 올겨울 첫 '동파 경계' 발령
--  Inicia construcción de estación de Bomberos en Ucubamba
--  Denizli'de maden ocağındaki göçükle ilgili soruşturma başlatıldı
--  What are the odds of a white Christmas in Boston?
--  Những tiết lộ thú vị từ chủ tịch mì tôm thanh long: "Tôi viết ca từ dựa trên tấm lòng, tự tôi gieo vần thôi"
--  Một trường ĐH đẹp như cổ tích giữa khung cảnh tuyết rơi trắng xóa, cắt từ phim chắc cũng chỉ thế này là cùng
--  Footage released after father and son Toufik Hamze and Salim Hamze shot while sitting in ute in Guildford in Sydney’s west
--  Fotogalería: Así festejan a Santa Claus en el mundo
--  Presupuesto de 2024 podría quedar desfinanciado en 15 billones por descuido del Gobierno
--  Brothers arrested after shootout near Earlimart Middle School, deputies say
--  El SRI suspenderá los impuestos vehiculares temporalmente
--  Liverpool thua ở Europa League với đội hình B, HLV Klopp bào chữa thế nào?
--  Amazon, Target and more will stop selling water beads marketed to kids due to rising safety concerns
--  주말 강력한 한파 예고…비 그치고 -10도 맹추위
--  Officer tased Micah Washington twice while was stopped changing a tire
--  Founder thương hiệu thời trang SBHN: Bắt đầu từ những sản phẩm bị nói là “kỳ cục”, làm kinh doanh bằng “bản năng”, chọn 90% nhân sự trẻ vì họ trong sáng, chân thành!
--  “네이버, 내년 안정적 이익 성장…금리인하 환경 변화도 주목”
--  Villarreal Amankan Tiket 16 Besar Liga Europa Setelah Menang di Kandang Rennes
+-  مصادر: إسرائيل تطالب مصر بإطلاق مفاوضات جديدة مع حماس
+-  Palestinian presidency slams mosque ‘desecration’ by Israel army
+-  Германия — Уход на больничный, узнав об увольнении, грозит потерей выплат
+-  헥토파이낸셜, 국내 조각투자 1호 열매컴퍼니 결제 서비스 제공
+-  최윤 OK금융 회장, 아시아럭비어워드에서 ‘아시아 럭비 공로상’ 수상
+-  홍천군음악협회 정기연주회 ‘합창과 오케스트라 한자리’
+-  (사)희망을나누는사람들, 신월6동에 취약계층 생활용품 전달
+-  (사)희망을나누는사람들, 어려운 이웃 위해 생활용품 기부
+-  홍천상생네트워크(귀농·귀촌단체) 제7대 강은정 회장 선출
+-  양천구, 내년부터 50리터 특수마대 제작 중단
+-  남양주시, 공공분야 드론경진대회 3등 수상
+-  구리시, 2023년 제3회 시정자문위원회 회의 개최
+-  황희 의원, '보이스피싱 통합신고대응센터' 설립 법적근거 가시화
+-  남양주소방서, 스마트의료지도 시범사업 국립중앙의료원장상 수상
+-  금천구, 금천형 주민자치회 제4기 ‘주민자치위원 449명 위촉’
+-  (재)구리문화재단, 구리경찰서와 업무협약(MOU) 체결
+-  남양주시, 인구 100만 미래도시추진단 신설 등 대규모 조직개편 단행
+-  백현종·이은주 경기도의원, 구리시 학교 2023년 교육환경개선 성과 점검
+-  관악구 치매안심노리터(老利攄), 전국 지자체 경연대회 1위 우수사례로 빛나다
+-  강원특별자치도의회 '다문화연구회' 연구용역 최종보고회 개최
+-  고성군, 대한적십자사 강원특별자치도혈액원과 MOU 체결
+-  2023년 강원 ICT 슈퍼위크, 성황리에 마무리
+-  서울 '강남구 편의시설' 노원구보다 3.6배 많아
+-  춘천한샘고 바이오코스메틱과, 사제동행 사랑의 연탄배달 봉사
+-  [오늘날씨] 전국에 많은 비… 낮최고 19도
+-  정부 "북한, 이달 중 ICBM 발사 가능성"
+-  [국제유가] 금리 인하 기대감·달러 약세에 상승…WTI 3.04%↑
+-  롯데 밀키스, 연매출 1200억 예상…'메가 브랜드' 됐다
+-  대교, KT 지니TV 키즈랜드 브랜드관 오픈
+-  [08:31 가상자산] 비트코인, 숨고르기하며 5800만원 선
+-  [뉴욕증시] 3대 지수, 美 11월 소매판매 증가 등에 상승 마감
+-  '케이크 맛집' 투썸, '스초생' 누적 판매 1000만개 달성
+-  SK이노·SK온, 공정거래 자율준수 ‘우수’…교육·점검 호평
+-  Sofia Sanchez talks about ‘Hunger Games: Ballad of Songbirds and Snakes’
+-  IEA: Opec+ cartel's grip on oil market loosening
+-  Kevin Von Erich on His Bond With Zac Efron and What Message He Wants to Send With 'The Iron Claw' (Exclusive)
+-  Windies score 10-run victory against England
+-  美 IRA 첨단제조 생산세액공제 가이던스…"韓 태양광·배터리 수혜"
+-  レイダースRBジェイコブスはチャージャーズ戦欠場の見込み
+-  Wall Street prolonga bom momento graças à Fed e a estatísticas positivas
+-  “Để lòng thanh thản con à”: Câu nói đã khiến tôi hiểu thế nào mới là lương thiện và may mắn đúng nghĩa
+-  9 cách diện trang phục tông đỏ nổi bật cho mùa lễ hội cuối năm
+-  Anuncia Argentina uso de fuerza contra bloqueos viales
+-  Analiza el PAN interponer amparos vs desaparición de organismos autónomos
+-  Cubrieron espaldas a Fiscal, dice hermano del 'Cuau'
+-  Fortuna de Carlos Slim supera los 100 mmdd por primera vez
+-  Denuncian desaparición de nueve pobladores de Texcaltitlán
+-  Australian Passport Prices: Here’s How Much Costs Are Set to Rise
+-  Vulcan Centaur : le premier décollage de la nouvelle fusée repoussé au 8 janvier
+-  Threads : on a testé la nouvelle version de ce concurrent du réseau social X
