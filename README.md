@@ -1,11 +1,11 @@
 # Latest News
--  ساركوزي يتحدث عن تهديد لإسرائيل
--  الاحتلال يعرض أموالا لمن يدلي بمعلومات عن قادة حماس في غزة
--  Nataša Rapaić imenovana predsjednicom Uprave HT-a, a Kostas Nebis 1. srpnja 2024. odlazi iz najjačeg domaćeg telekoma
--  Frosty Lovers uit Ede bereikt Noordkaap Challenge met EdeStad
--  Sparvorschläge für die Ampel – Ansage
--  heise+ | IdeaPad Flex 5i: Chromebook Plus von Lenovo im Test
--  PM Dahal to drop underperforming ministers
--  Commissioner Chand stresses promotion of good governance
--  Un estudio revela que desayunar y cenar temprano puede reducir el riesgo cardiovascular
--  Emanato il Decreto che norma il processo amministrativo telematico
+-  جنود الاحتلال يأدون صلاة يهودية داخل مسجد بعد اقتحامه.. شاهد ماذا يحدث في جنين؟
+-  الدفاع المدني بالدمام يخمد حريقًا في أحد المستودعات
+-  تزين سماء المملكة.. ذروة تساقط شهب التوأميات في منتصف هذه الليلة
+-  Sir Jim Ratcliffe’s stance on hiring Graham Potter to replace Erik ten Hag
+-  Carrot producers fined €2.5 million for collusion, anti-competitive practices
+-  Ziel: Treibhausgas in Miltenberg auf »netto null«
+-  Rothenbuch muss Finanzsituation verbessern: Steuern steigen
+-  Trotz Veto des Gemeinderats: Füchtlingsunterkunft in Mespelbrunn wird genehmigt
+-  20 г. затвор за мъжа, убил приятелката си в "Евксиноград"
+-  Постигнаха споразумение за надзорния орган на ЕС за пране на пари
