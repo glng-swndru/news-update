@@ -1,51 +1,51 @@
 # Latest News
--  ¡Gánate 54 mil pesos al mes! Canadá ofrece empleo a los mexicanos para 2024
--  [한국뇌연구원, 네덜란드와 ‘파킨슨병·치매’ 공동연구 맞손
--  [주식 보유, 자금 부족? 월 0.4%대 금리의 스탁론으로 투자를 넓혀보세요!
--  [국민의힘 의원, 고사상 돼지머리에 5만원 꽂았다가 송치
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
--  Cruz Azul deberá sacrificar hasta dos extranjeros para el fichaje de sus refuerzos
--  पुरानी पेंशन योजना पर लौटने की कोई योजना नहीं: केंद्र
--  If I Were Luísa Sonza Season 1 Streaming: Watch & Stream Online via Netflix
--  Te Papa protest: Man accused of damaging Treaty of Waitangi panel appears in court
--  جمال غريب الأطوار.. أغرب اتجاهات الجمال لعام 2023
--  [14일 인천 중구] 개항장 문화재 야행 유공자 표창장 수여식 개최 등
--  Ricardo Chávez interesa a Cruz Azul; La Máquina negocia con Atlético San Luis
--  Russia Destroys, Intercepts Ukrainian Drones Over Moscow, Kaluga Regions - MoD
--  Alajuelense muestra ganas de hexacampeonato con goleada de escándalo a Saprissa FF
--  熱門奇幻韓劇《烈女朴氏契約結婚傳》好評不斷！李世榮預告床上親熱，裴仁爀成「病患專業戶」
--  [14일 인천 부평구] 동수감리교회, 부개1동에 '따뜻한 희망상자' 전달 등
--  La última publicación de Tiago Volpi que no hace gracia a los que le querían en Cruz Azul
--  Bakıdan Laçına...
--  Sexy! Janhvi Kapoor Slips Into A Sequin Backless Dress, Flaunts Her Curves; See Hot Photos
--  Panzer unbrauchbar bei Offensive: Russlands Armee setzt in Awdijiwka auf Drohnenstrategie
--  सीसीपीए ने भ्रामक विज्ञापनों के लिए आईएएस कोचिंग संस्थानों को 20 नोटिस जारी किए, 8 संस्थाओं पर जुर्माना लगाया
--  Zoezi la ufunguaji mitaa Kateshi, Hanang lafikia asilimia 85
--  Bhagyashree Is Having This Much Fun With ‘Travel Buddy’ Abhimanyu Dassani In New York
--  就活生に人気の企業は？博報堂や日本生命を抑えたトップはあの会社【総合・業界別ランキング】
--  Vì sao ruồi muỗi... mất tích trong mùa đông?
--  Päivän Vainio 14.12.2023
--  Kalib Boone scores 25 points to lead UNLV to 79-64 victory over No. 8 Creighton
--  Phoenix Suns vs. Brooklyn Nets: How to watch live stream, TV channel, NBA start time
--  Apple Faces More Antitrust Tussle In EU, This Time For Spotify
--  How to watch Utah Jazz vs. New York Knicks: TV channel, NBA live stream info, start time
--  OnlyFansin peppujulkkis esitteli avujaan – kuvakulmat eivät jätä arvailun varaa
--  Prima listă de medicamente esențiale publicată de Comisia Europeană. Care sunt pastilele care ne trebuie oricând
--  Thực hư thông tin cô bé 9 tuổi bị người lạ tiếp cận ở cổng trường nghi bắt cóc
--  Nam thần thể hình số 1 xứ Trung: Từ cậu bé 108kg thành mỹ nam 6 múi vạn người mê
--  「運営費上振れ申し訳ない」と十倉会長
--  IND W vs ENG W Test, India Opt to Bat vs England as Jemimah, Renuka and Shubha Make Debuts
--  Junior vence en penales a Medellín y consigue su 10mo título en Colombia
--  IPK:ssa odotetaan vieraskiertueen jälkeen odottavaa joulutaukoa − "Saamme hieman ajatuksia irti jääkiekosta"
--  Estas son las principales tendencias en suelos para 2024
--  El cerebro humano no busca la verdad: una explicación científica a por qué mentimos
--  Curiosos anfitriones
--  Varastot työllistävät alan ammattilaisia jopa yötä päivää– "Tilille voi tipahtaa parhaimmillaan 5 000–6 000 euroa kuukaudessa"
--  Prince Harry could be 'triggered' by final series of The Crown as William steals limelight
--  El alto precio de la falsa moneda: dos años de cárcel por llevar 200 € de mentira en la cartera
--  ¿Cumbre buena o cumbre mala? Positiva, pero el diablo está en los detalles
--  Aspoň v umieraní nechcú byť samé. Deti pred samovraždami zachraňujú telefonáty (podcast)
--  Etenkin naiset harrastavat seksiä kumppanin mieliksi: "Akti saa vain toivomaan, että homma olisi jo ohitse"
--  Colchones nuevos o jardines para los perros, así se gasta el dinero Milei en reformar la residencia oficial
--  7 of 10 UFH murder-accused denied bail
--  La Justicia europea confirma que 'El Rosco' es una marca de 'Pasapalabra'
+-  Pfizer shares sink after it resets 2024 COVID expectations
+-  DEKRA launch the first Cybersecurity Testing & Certification Program for UAVs in cooperation with Taiwan's Telecom Technology Center (TTC)
+-  No Taxpayer Funding for Chinese COVID-19 Tests: Rep. Harshbarger
+-  Mueren 25 reses al electrocutarse con una guaya de alta tensión en Barinas
+-  سائفر کیس کا ٹرائل ان کیمرہ ہوگا یا نہیں؟ فیصلہ آج ہوگا
+-  افتتاح الورشة التدريبية في تربية لواء الشونة الجنوبية للتعامل مع حالات العنف
+-  4.750 Stunden: Vervaet Hydro Trike Gülleselbstfahrer für 189.210 Euro #maschinedestages #gebrauchtmaschine
+-  대만, 중공 스파이 무더기 적발…전현직 장교 10명 중공에 포섭
+-  올해의 제주도체육상 대상 오예진 선정
+-  멸종위기종 반달가슴곰 제주에 ‘보금자리’
+-  Final 2023: Los jugadores que han vestido las camisetas de América y Tigres
+-  Janhvi Kapoor ने अपने ग्लैमरस अवतार से बढ़ाया इंटरनेट का पारा, लेटेस्ट फोटोशूट में बोल्ड अवतार में आईं नजर (View Pics)
+-  “중대한 실수를 저질렀습니다”... 홀란드 극대노한 맨시티-토트넘 경기, 결국 오심 인정
+-  '日 공격수' 후루하시, EPL 입성 가능성 제기...불법 베팅 공격수 대체자로 브렌트포드가 노린다
+-  “이게 팀이야?” 맨유, 조별리그에서만 15실점→챔피언스리그 신기록 작성
+-  Live-In Partner Kills For Denying Sex: सेक्सला नकार, पुरुषाकडून लिव्ह-इन पार्टनरची हत्या; मृतदेह खोलीत भाड्याच्या खोलीत लपवला
+-  SK Group Unveils Climate-Free Future Theme Park at CES 2024
+-  จะรบจนกว่าชนะ! "เนทันยาฮู" เมินมติ UN หยุดยิงกาซา
+-  PAC: Thông báo về ngày ĐKCC tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
+-  BCM: CBTT Nghị quyết HĐQT thông qua phát hành riêng lẻ 1.300 tỷ đồng TPDN
+-  BID: Báo cáo kết quả phát hành cổ phiếu để trả cổ tức
+-  FUEKIV30: Thông báo ngày ĐKCC chốt danh sách NĐT để tổ chức ĐH NĐT bất thường lần 1 năm 2024
+-  «Марказий Осиё + Кўрфаз араб давлатлари» вазирлар йиғилиши Ўзбекистонда ўтказилади.
+-  BID: CBTT điều chỉnh BCTC riêng lẻ và Hợp nhất đã kiểm toán năm 2022 theo kết luận của kiểm toán nhà nước
+-  Норвегияда жосуслик учун ҳибсга олинган шахс ўзини россиялик деб атади.
+-  FUESSV30: Báo cáo kết quả giao dịch chứng chỉ quỹ của tổ chức có liên quan Quỹ Hưu Trí Độc Lập
+-  FUEKIVFS: Thông báo ngày ĐKCC chốt danh sách NĐT để tổ chức ĐH NĐT bất thường lần 1 năm 2024
+-  Ўзбекистон тўқимачилик маҳсулотларининг Саудия бозорига экспорти кенгаяди.
+-  Valve To Steam Deck Owners: Stop Huffing Its Vent Fumes
+-  কুকুর জবাই করে মাংস বিক্রির অভিযোগে আটক ৫
+-  Noida Road Accident: रोडवेज बस ने दो मोटरसाइकिल को मारी टक्कर, चार युवकों की मौत
+-  الأردن .. لماذا تنتشر الفيروسات التنفسية وما علاقتها بكورونا؟
+-  Mladík si objednal slúchadlá cez internet: Neuveríte, akú hlúposť mu namiesto nich poslali
+-  Abhijeet Sawant says people are misinterpreting Ranbir Kapoor's Animal: 'Almost similar to Hitler...'
+-  고양특례시 (재)고양국제꽃박람회 ‘제25회 대한민국브랜드대상’ 산업통상자원부 장관상(우수상) 수상
+-  ভারী বৃষ্টি ও বন্যায় আরও দুর্ভোগে গাজাবাসী
+-  Parliament Security Breach: সংসদের অন্দরে হামলা, গ্রেফতার ৫ অভিযুক্তের বিরুদ্ধে রাষ্ট্রদ্রোহ মামলা
+-  په غزې کې له حماس سره پاتې یرغمل شوي څوک دي؟
+-  Lainez asegura estar feliz en Tigres y lanza inaudita advertencia a su ex América
+-  Qantas braces for its busiest day of year as holidays begin
+-  Australia news live update: reports of looting during ex-Cyclone Jasper 'disturbing', Qld deputy premier says – latest
+-  Australia votes for Gaza ceasefire: a blast from Albanese's past
+-  Can Labor win the war on gambling advertising or will it capitulate in a brutal betrayal?
+-  Court expected to rule next week to release convicted terrorist Abdul Nacer Benbrika from prison
+-  상처어때, ‘스마트앱어워드 2023’ 의료분야 대상 수상
+-  메타에듀시스, ‘메타버스 AI 심폐소생술 체험교육 VR’ 출시
+-  경상북도 다문화가족 시낭송 콘테스트 성료
+-  가평군 조종면 지사협, 상판리 주민 후원 연탄 500장 취약계층에 전달
+-  가평읍주민자치회, 가평군에 장학금 100만 원 기탁
+-  Dewan Negara: RM92.6 juta bayaran upah jahit seragam KKM
