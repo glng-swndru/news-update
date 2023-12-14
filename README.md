@@ -1,11 +1,11 @@
 # Latest News
--  MIMORIADNE OBROVSKÁ TRAGÉDIA Medzinárodný RÝCHLIK zrazil ČLOVEKA: Na mieste bol MŔTVY! Dopravu PRERUŠILI
--  Vianočné trhy 2023: Ktoré mestá sa oplatí tento rok navštíviť? Okrem tých slovenských sme sa pozreli aj k našim susedom
--  손흥민 극찬한 포스테코글루..."SON, 주장 역할 훌륭히 소화하고 있어! 아시안컵 차출은 큰 손실이지만 지금처럼 대처해야 해"
--  Лидеры ЕС заявили о намерении продолжать расширение санкций против России
--  The upcoming season of "Curb Your Enthusiasm" will be its last
--  В WADA сообщили о проверке более 1 тыс. проб российских и белорусских атлетов в 2023 году
--  'Brooklyn Nine-Nine' star's cause of death released, report says
--  Motor ustasının kaput altındaki yolculuğu güldürdü
--  Filistin: İsrail'in gerginliği tırmandırmasından ABD sorumlu
--  Ferdi Kadıoğlu: Biz Fenerbahçe'yiz ve kupalar için oynarız
+-  Cameroun :: Après Maroua Et Guider L’entreprise Norvégienne Scatec Injectera 36 Mw En 2024 Dans Le Réseau Électr :: Cameroon
+-  ‘X-Men 97’ revela dos villanos que debutarán en la nueva serie animada
+-  İsmail Kartal'dan kupa açıklaması!
+-  Filistin'den İsrail askerlerinin cami provokasyonuna tepki
+-  משפחות החטופים נועדו עם נשיאת הצלב האדום, וזעמו: לאן נעלמתם? חייהם בסכנה ממשית
+-  Dzeko, Ferdi'yi öve öve bitiremedi!
+-  “이러다 50년 뒤에도 은퇴 못할 판”…일할 사람 ‘반토막’ 난다는데
+-  Polen: Wir fahr’n nach Łódź!
+-  Makeup artist reveals exactly WHICH kind of brush you should use to apply every different type of cosmetic... so, have YOU been doing it correctly?
+-  النوم في غرفة مظلمة أم يكون الضوء خفيف؟ ايهما افضل لصحتك.؟ ستدهشك الاجابة.. !
