@@ -1,11 +1,51 @@
 # Latest News
--  شركة حكومية.. وظائف في السعودية للمعلومات الائتمانية "سمة"
--  Rabobank fined €12 million for approving excessively high home mortgages
--  לואיס אנריקה מינה עובד שיעקוב אחרי חיי הלילה של שחקני פ.ס.ז'
--  نجم الاتحاد يشارك في التدريبات قبل مواجهة الأهلي
--  بحضور رئيس الوزراء وعدد من المسئولين.. إيناس عبدالدايم تستقبل عزاء زوجها
--  Airline's holiday strike crisis avoided
--  Cyber-criminals assembling 'bot armies'
--  RBA 'quite worried' about 'very weak' productivity growth
--  ASX hits 18-week high on US rate cut bets
--  Shocking reality of common job
+-  Denuncian 634 posibles violaciones de los ceses al fuego en Colombia este año
+-  أونروا تحذر من تفشي الأوبئة بغزة
+-  Son Jenni Hermoso y Messi finalistas en The Best
+-  Posa personal de Desarrollo Humano para foto navideña del recuerdo
+-  ¿Qué regalos dan las personas más ricas del mundo en Navidad? Le contamos
+-  Афғонистоннинг Қўштепа канали қирғоғи Амударё сув оқими билан ювиб кетилмаган – «Ўзбеккосмос» .
+-  Мянма афюн ишлаб чиқариш бўйича Афғонистонни ортда қолдириб, жаҳон етакчисига айланди .
+-  АҚШ Конгресси Украинага молиявий ёрдамни ўз ичига олган мудофаа бюджетини тасдиқлади .
+-  وكيل دي يونغ ينفي شائعات خلافه مع ديكو
+-  M2 Bradley vs BMP-3: blindés de combat d'infanterie US et russe
+-  Missing Midland man 'who went into River Severn' named by police
+-  CHP'nin İstanbul ve Ankara dahil 5 ilde adayı belli oldu!
+-  Cumhurbaşkanı Erdoğan Joe Biden ile görüştü
+-  Santa Marta: actividades para realizar en La Perla de América en las vacaciones
+-  Michel: Këshilli Evropian vendosi të nisë negociatat e anëtarësimit me Ukrainën dhe Moldavinë
+-  إتاحة منشورات "ثردز" في المنصات الأخرى
+-  Треньорът на ЦСКА 1948: Трябва да сме по-резултатни
+-  Aprueban inicio de investigación para eventual destitución de Joe Biden
+-  Muzani Bilang Anies Tarik Simpati dengan Eksploitasi Harun Al Rasyid di Debat Capres
+-  Fuerte sismo en Guatemala es sensible en territorio salvadoreño
+-  Expert om identifieringen: "Får inte bli fel"
+-  Lineup For Tonight’s WWE Main Event, MLW Fusion and NJPW on AXS
+-  119-122. Wembanyama roza el milagro ante Lakers pero Spurs suman 18 derrotas seguidas
+-  Blackstone cierra la financiación con la banca de 1.500 millones para Testa
+-  Našli se na kavi s riječkim stipendistima: “Javljajte se, budite vrijedni i učite”
+-  Speelgoed is nog hard nodig!
+-  Death Stranding Filmi Resmen Duyuruldu: İlk Detaylar da Belli Oldu
+-  Instagram'a İçerik Üreticilerini Koruyacak Yeni Özellikler Geldi
+-  Ковачевски: Факт е дека нашите граѓани денеска имаат повеќе од она што го имаа со ДПМНЕ
+-  Carla Diaz revela que já chorou após orgasmo: Fiquei em choque
+-  Stacey Solomon says Joe Swash is 'seriously misled' as they discuss future baby plans
+-  Pacheco defende que Congresso derrube veto da desoneração da folha e discuta alternativas após prorrogação do benefício
+-  Фоден заявил, что никогда не думал об уходе из «Манчестер Сити»
+-  الحسين اربد يخطف تعادلا ثمينا من الفيصلي
+-  الاحتلال يعترف بإصابة 7 جنود في جنين
+-  إحباط تهريب 260 ألف حبة مخدرة في جرش
+-  1000PIP BUILDER REVIEW
+-  STA Confirms Fireworks for Samoa’s New Year Celebrations
+-  Da AMLO hoy nombre de nueva Ministra
+-  Absuelven a Mikel Arteta de conducta indebida tras comentarios sobre el arbitraje
+-  Sondeo revela insatisfacción con posible revancha entre Biden y Trump para 2024
+-  Patrick Barul, ancien joueur de l'OGC Nice, est l'invité de Gym Tonic
+-  Гуменюк: Росія вивчає й виснажує українську ППО
+-  Wyndham roads ready for reconstruction
+-  CARIN LEÓN listo paraponer a pistear a tdos con su nuevo material “U.V.V. Vol 8”
+-  Warriors taking shape
+-  Bestseller: Keine Gewalt gegen Frauen
+-  NFL releases fixtures
+-  Lights on at Wyndham sporting reserves
+-  انقسام أمني بعد تهريب كميات ضخمة من الذهب عبر مطار مصراتة
