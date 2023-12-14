@@ -1,11 +1,11 @@
 # Latest News
--  डलरको मूल्य बढ्यो, अन्यको के छ ?
--  Butterfly Orchids in Andel vraagt vergunning voor fase 2 aan: geen huisvesting arbeidsmigranten
--  Ogün Samast ismini değiştirmekten vazgeçti
--  Galatasaray'da rota yeniden oluşturuldu
--  Şok terapisine başlanan Arjantin'de enflasyon yüzde 160'ı aştı
--  Bakan Göktaş duyurdu: Evde Bakım Yardımı hesaplara aktarıldı
--  6개 계열사 CEO 교체한 양종희 KB금융 회장… '초격차' 더 고삐죈다
--  신한EZ손해보험, 영남권 중고차 매매단지에 성능보증 서비스 제공한다
--  새마을금고, '2023 지역사회공헌 인정제' 14개 금고 인증 획득
--  재생에너지 사용 의지 드러낸 아마존, 한국서 첫 태양광 프로젝트 공개
+-  의대 졸업생 이탈 막을 선순환 구조 구축해야
+-  제주지역 경제 악화일로, 단기 부양책 ‘절실’
+-  문윤택 등 민주당 지지자 700인 “제2공항 전면 재검토해야”
+-  제주 65세 이상 인구 17%... ‘초고령 사회’ 진입 앞둬
+-  北, 한·미·일 미사일 경보 정보 공유에 “군사적 망동” 비난
+-  우즈벡 유학생 ‘강제 출국·경비용역’ 논란에…한신대 “선제적 조치”
+-  장사꾼 트럼프의 기막힌 ‘머그샷’ 활용법
+-  《더 글로리》 드라마 속 이야기 아니다…‘학폭’ 피해자 10년새 최대
+-  [일동제약 “마이코플라즈마 폐렴 항생제 적기 공급”
+-  [경남도, 잊혀진 독립운동가 24명 정부포상 신청
