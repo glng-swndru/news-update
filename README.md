@@ -1,11 +1,11 @@
 # Latest News
--  نشے میں دھت دولہا نے شادی کی تقریب کے دوران سٹیج پر ہی شرمناک حرکات شروع کردیں، دلہن نے انکار کردیا
--  Activiteiten in de Kerstvakantie in het Baggermuseum in Sliedrecht
--  מכבי נתניה תנסה למכור את איגור זלאטנוביץ' בינואר
--  에릭슨엘지, 이음5G 시장 활성화 위한 ‘파트너스 데이’ 성료
--  Australian woman jailed for 20 years for death of her four children has conviction overturned
--  مصر تستضيف مؤتمر الأطراف الـ 24 لاتفاقية حمایة البیئة البحریة 2025
--  Wondershare Virbo Unveils AI-Powered Video Translator: Bridging Language Divides with Innovation
--  Evermos Attains ISO 27001 Certification for Data Security Excellence
--  İYİ Parti-İmamoğlu çatlağı büyüyor! Resti çektiler: Sayın Eş Başkan operasyonun büyüğü 31 Mart'ta olacak
--  Türkiye rüzgar sektöründe Avrupa'nın zirvesine oynuyor: Yıl sonunda 12 bin 500 megavata ulaşılacak
+-  Konya Milletvekili Kalaycı Meclis'te sordu: Konya Metrosunda son durum nedir? Alacabel, Kuşyuvası, Sertavul, Eğiste...
+-  Bakan Göktaş duyurdu! Evde Bakım Yardımı ödemeleri başladı
+-  Soccerladuma | Benni Tells All: It Was The Worst Moment Of My Life
+-  Chinese Scientists Invent New Technology for Extracting Uranium from Seawater
+-  22개월 만에 바뀐 美 금리 전망…한은 셈법은?
+-  В Брюксел се готвят за удължаване на срещата на върха на ЕС
+-  Orbán holder fast: Ukraine er ikke klar til optagelsesforhandlinger
+-  Abubakar takes charge at Katsina United
+-  La NBA ha infine sospeso Draymond Green
+-  Magtfuld EU-kvartet holder lukket møde med Orbán før topmøde
