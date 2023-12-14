@@ -1,51 +1,11 @@
 # Latest News
--  تقرير: نصف الذخيرة التي ألقتها إسرائيل على غزة غير دقيقة
--  Cancer Horoscope Today 15 December 2023 : कर्क राशीच्या विद्यार्थ्यांसाठी आजचा दिवस यशाचा, आर्थिक फायदा होईल, आजचे राशीभविष्य
--  Hoe 'vandalisme' van de VVD tot het uiteenvallen van het demissionaire kabinet had kunnen leiden
--  Federale rechtbank: Musk moet getuigen over aankoop Twitter
--  EU-leiders stellen ook Bosnië stap richting EU in vooruitzicht
--  Plasterk en Wilders kondigen radiostilte aan bij start informatie
--  TYAN's New Server Motherboard Supports the Latest Intel® Xeon® E-2400 Processors
--  Expediting R&D Digitization for Life Sciences, ArisGlobal Introduces LifeSphere® NavaX™ - The Next-Generation Cognitive Computing Engine
--  La Laguna comenzará el nuevo Plan General en 2024 tras cuatro años de parálisis
--  Rıdvan Dilmen'den Fenerbahçe için 9-0 açıklaması! ''Oyuncular istemedi, yoksa 9-0 olabilirdi''
--  Złoto wyraźnie zdrożało
--  BP ex-CEO loses $40 million over relationships with colleagues
--  Klare Niederlage zum Abschluss der Gruppenphase
--  [[속보]김태효 국가안보실 1차장 “北, 이달 중 ICBM 발사 가능성”
--  Diputada de Libre afirma que el pueblo respaldará acciones de la Comisión Permanente, a pesar de cuestionamientos internacionales
--  مستشار سابق للبنتاغون: إسرائيل تسببت في توحيد السنة والشيعة ضدها (فيديو)
--  בדרך לעוד שינוי ביורוליג: ז'לגיריס פנתה לאנדראה טרינקיירי
--  פנאתינייקוס בהלם: "טעויות טרגיות". אייטור: "אני שבור"
--  Valour FC takes Cape Breton winger Owen Sheppard first in CPL-U Sports draft
--  కొందరికే పరిహారమంటే కుదరదు
--  Turkish Cypriot radio silenced ‘if debts not paid’
--  أبو عبيدة: تدمير 72 آلية إسرائيلية وقتل 36 جندياً
--  La Libertad: Retiran instalaciones precarias no autorizadas en Pampas de Santa María
--  En 15 días terminan trabajos para mitigar brotes de aguas negras en la colonia Villa Verde de Mazatlán
--  Zarpa hacia la Antártida el buque científico más grande construido en Colombia
--  Već desetine napada – Gdje su granice strpljenja?
--  Jöfnuðu félagsmetið en töpuðu samt
--  State doctors may boycott Gesy system over insurance dispute
--  Improper vaccine storage prompts need to repeat shots in Northwest B.C.
--  Naselje iznad Hiltona će nalikovati urbanoj šumi: Rješenje za stambenu zonu Turanj je prekid stihijske izgradnje
--  Hit gameshow’s return date on ITV revealed after nearly 30 years off air
--  美 매체, 김하성 비교하며 이정후 정밀 분석… “이정후 계약, SF에게 위험한 이유”
--  Halemba gibt Parteiämter zurück und lässt Mitgliedsrechte ruhen
--  Transporter nach Unfall in Stockstadt wohl nur noch Schrott
--  Halemba gibt Parteiämter zurück und lässt Mitgliedsrechte ruhen
--  Jasper weaker but floods still threaten, with crocodiles, snakes on the move
--  Siddharthnagar News: दो घरों में सेंधमारी कर उड़ाया लाखों के सामान
--  House passes defense spending bill
--  NBA:n tähdistöäänestys alkaa tiistaina
--  NBA:n tähdistöäänestys alkaa tiistaina
--  Bareilly News: फंदे से लटका मिला विवाहिता का शव
--  Tíu bíla á­rekstur á Hafnar­fjarðar­vegi
--  DIRCEU CARDOSO – A nomeação às cortes superiores
--  Bafana Bafana suffer huge blow ahead of Afcon 2023
--  Compañías de cable están intentando boicotear a Televicentro
--  आनंदनगर-नौगढ़ लाइन : शहर सहित आठ लाख की आबादी को मिलेगी निर्बाध बिजली
--  Researchers develop AI capable of determining snow depth across Switzerland using satellite images
--  Soupçons d'abus de bien social et de violences conjugales: Hilona Gos fait condamner Julien Bert à deux ans de prison
--  Нацбанк презентував нову монету номіналом 5 грн
--  Fiorentina empata e se classifica às oitavas da Conference League
+-  MIMORIADNE OBROVSKÁ TRAGÉDIA Medzinárodný RÝCHLIK zrazil ČLOVEKA: Na mieste bol MŔTVY! Dopravu PRERUŠILI
+-  Vianočné trhy 2023: Ktoré mestá sa oplatí tento rok navštíviť? Okrem tých slovenských sme sa pozreli aj k našim susedom
+-  손흥민 극찬한 포스테코글루..."SON, 주장 역할 훌륭히 소화하고 있어! 아시안컵 차출은 큰 손실이지만 지금처럼 대처해야 해"
+-  Лидеры ЕС заявили о намерении продолжать расширение санкций против России
+-  The upcoming season of "Curb Your Enthusiasm" will be its last
+-  В WADA сообщили о проверке более 1 тыс. проб российских и белорусских атлетов в 2023 году
+-  'Brooklyn Nine-Nine' star's cause of death released, report says
+-  Motor ustasının kaput altındaki yolculuğu güldürdü
+-  Filistin: İsrail'in gerginliği tırmandırmasından ABD sorumlu
+-  Ferdi Kadıoğlu: Biz Fenerbahçe'yiz ve kupalar için oynarız
