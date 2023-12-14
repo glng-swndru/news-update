@@ -1,11 +1,11 @@
 # Latest News
--  Sat.1: Nach über einem Jahr – Sender holt Show plötzlich zurück
--  Soccerladuma | Incoming Man Utd Owner 'Lines Up' Ten Hag Successor
--  Pflegegeld Auszahlung Dezember: An diesem Tag bekommst du das Geld
--  Google pone fecha para empezar a eliminar las cookies de terceros en Chrome
--  মন্ত্রীর মিছিলে প্রদর্শিত আগ্নেয়াস্ত্রের লাইসেন্স বাতিল
--  Country records remittances inflows of Rs 477.96 million in four months
--  Israel will keep fighting Hamas &#039;until the end,&#039; Netanyahu says
--  Innovation With a Purpose
--  Novolex Recyclable Food Containers
--  YouTube will start showing fewer, but longer ads on TVs
+-  Día cívico en Barranquilla por título del Junior y celebración en la Ventana de Campeones
+-  بن غفير يدعم جنودا اقتحموا مسجدا في جنين وأدوا فيه طقوسًا تلمودية
+-  سي أن أن: بايدن بدأ يشعر بالثمن السياسي لوقوفه إلى جانب إسرائيل
+-  UŽIVO Čukarički u Belgiji završava evropsku priču, poznati sastavi
+-  Love Island star reveals the results of her 'terrifying' swollen lip filler which has left her in severe pain
+-  Умер советский киноактер Рамиз Меликов
+-  I covered the climate crisis and COP28 from an oil-rich nation — here's what I learned and why I'm hopeful for the future
+-  Čeda Jovanović: Na Kosovu mogu i moraju da žive Srbi i Albanci, Albanci i Srbi jer je samo takvo Kosovo za sve nas i svu našu decu"
+-  TUF signs MoU with COMSTECH
+-  Commissioner chairs meeting regarding closure of the canals
