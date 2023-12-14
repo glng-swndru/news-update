@@ -1,11 +1,11 @@
 # Latest News
--  [집값 전망 결국 다 틀린거?…급락, 역전세대란 없었다 [부동산360]
--  [“전남 의과대 신설해야”, 광주․전남 시도의회 한 목소리
--  [이시영, 엄청난 '등+어깨' 근육…보이시 매력 자랑
--  [전남경찰,‘공직비리 특별수사팀’설치 및 현판식 개최
--  [금감원, 보험사에 “대체투자·부동산PF 리스크 관리 강화하라”
--  [‘솔로지옥’ 공개 하루만에 글로벌 8위, 59개국 차트인…벌써부터 플러팅 효과
--  [나주시, ‘전라남도 부패방지 시책평가’ 1위 최우수기관 선정
--  [박지원 “여당의 빅뱅…총선 필승구도 이낙연이 망치고 있다”
--  [박상준 STX 대표, 모잠비크 총리 면담…흑연 개발 협력 논의
--  [민주당 의총, 선거제 결론 못냈다…“다음주중 결정해야 한다는 의견 많아”
+-  Coşkun Başbuğ yazdı: FOSSAT
+-  Fenerbahçe, Konferans Ligi'nde gruptan nasıl çıkar? İşte tüm o ihtimaller
+-  Kassam Tugayları İsrail ordusuna Gazze'yi dar ediyor! Bir bir avladılar
+-  İzmir Konak'taki otellerde düzensiz göçmenlere yönelik denetim
+-  EuroCup Women Play-Off ilk maçında Melikgazi Kayseri 26 sayı farkla galip
+-  "מאסטר במשחקים חסרי חשיבות", "לא ברמה": בכר קיבל "מחמאות"
+-  Analistler Türkiye için Cuma gününü işaret etti! Fiyatlara olumlu yansıyabilir
+-  "الأرصاد" تُحذر من طقس الـ 6 أيام القادمة.. شبورة كثيفة ورياح وأمطار
+-  Teniski as postao voajer, bivša u panici: 'U strahu sam jer ima moje gole snimke'
+-  “무차별 폭격” 쓴소리에…네타냐후 “오슬로는 실수” 맞불
