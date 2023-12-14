@@ -1,11 +1,51 @@
 # Latest News
--  Biglietti di auguri e confezioni creative, per un Natale originale
--  Zwei neue Gebäude für die Aschaffenburger Wasserschutzpolizei
--  DIOR ANNOUNCES JAY CHOU AS NEW GLOBAL AMBASSADOR
--  ‘Organismos no se borran de un plumazo’
--  Presunto asesino de activista y de su hija en Balleza es su primo hermano
--  Alertan alza en precios de energéticos al eliminar autónomos
--  Rinde protesta Lenia Batres como ministra
--  Excluirán a morenistas que votaron a favor de Fiscal Carmona
--  Chelsea boss Pochettino ‘to bring £17.5m wonderkid into first-team training’ two years before transfer deal is official
--  君綺醫美攜手瑞士Clinique La Prairie頂級權威抗老集團打造頂級無齡醫學中心，用高科技讓你跟歐洲王妃一樣青春不老
+-  Denmark to increase investments in Sri Lanka
+-  Sri Lanka launches regional handbook on migrant workers reintegration in South Asia
+-  Princess Anne to visit in January to celebrate 75 years of UK-SL ties
+-  Gaps in procurement framework enable corruption says new research by PublicFinance.lk
+-  New owners takeover collapsed Finance & Guarantee companies
+-  Cargills Bank’s Rs. 500 m IPO snapped up
+-  SC finds Acting IGP guilty of torture
+-  Ceylon Chamber welcomes completion of IMF’s first review; stresses need for growth enhancing reforms
+-  Over 1000 SMEs repossessed and auctioned in 2023 claims AKD
+-  Why Sri Lanka must immediately transcend IMF Agenda
+-  Startup success formula
+-  En Ahome, comerciantes que venden sus productos en el tianguis reciben apoyo de Sedeco
+-  בכיר בממשל ביידן: ימיו של סינוואר ספורים - יש לו דם של אמריקנים על הידיים
+-  Amazon courts sellers at China summit as Temu and Shein gain momentum
+-  Barry Humphries memorial LIVE updates: Iconic Australian actor, comedian farewelled in Sydney memorial
+-  Eddie Howe left "absolutely devastated" by Newcastle United's Champions League exit
+-  ‘Abbott Elementary’ star Janelle James slammed for ‘disgusting’ resurfaced jokes about playing with her son’s penis
+-  Dive meet a springboard to success
+-  Cerro Porteño responde al supuesto interés de Cruz Azul por Jean Fernandes
+-  Telex : Ledger victime d'une cyberattaque, Bientôt la fin des cookies tiers chez Google, Amazon Kuiper réussit un test réseau satellitaire à 100 Gbit/s
+-  Toulouse. Le meilleur de l'agriculture régionale a rendez-vous au MEETT | Actu Toulouse
+-  Andorre. "La loi sur l'avortement la plus sévère d'Europe" envoie une militante au tribunal | Actu Toulouse
+-  Haute-Garonne. Un restaurant touché par un violent incendie, 22 pompiers mobilisés | Actu Toulouse
+-  Toulouse. Pour voler les colis Amazon, il se faisait passer pour le livreur | Actu Toulouse
+-  Toulouse. La piste cyclable la plus grotesque de France ? Toute neuve, elle "n'aboutit sur rien" | Actu Toulouse
+-  Airbus. Première livraison d'un A350-1000 à la compagnie Japan Airlines | Actu Toulouse
+-  Près de Toulouse. La douane saisit 250 cartouches de cigarettes dans un véhicule | Actu Toulouse
+-  Deux ministres en visite vendredi dans une commune du Tarn-et-Garonne | Actu Toulouse
+-  Emploi. En plein développement, cette entreprise de Toulouse recrute 150 personnes | Actu Toulouse
+-  Pyrénées. La "crémaillère express" de Luchon-Superbagnères va ouvrir : on vous dit quand | Actu Toulouse
+-  Video: Comienza rapiña tras accidente en la rua a Juárez
+-  دراسة: فقدان الوزن السريع قد يسبب خللا هرموني
+-  При израильских атаках на юге Ливана погибли два члена "Хезболлах" и один мирный житель
+-  ВСУ выпустили по Мариуполю три дальнобойные ракеты
+-  ‘It was unnecessary’: Death of Indigenous mother sparks bias concerns in Ontario healthcare
+-  Alonso Escoboza y Jesús Dueñas entrenan por separado por órdenes de la directiva de Cruz Azul
+-  MP Michael Chong Granted Standing in Upcoming Foreign Interference Inquiry
+-  Media Capital aprova dividendo de 0,042 euros
+-  Montreal’s Old Brewery Mission unveils new bedrooms for women
+-  Uptick in rental scams prompts warning from Lethbridge police
+-  My snow globe cocktails are so easy to make but look seriously impressive – you can use any clear drink recipe
+-  Nadie quiere ir a la primera residencia de ancianos de Costa de Marfil
+-  Nadie quiere ir a la primera residencia de ancianos de Costa de Marfil
+-  Parque de São Paulo pode ganhar estacionamento subterrâneo após aprovação na Câmara; saiba qual
+-  تعادل إيجابي بين “الأولمبي والسويحلي” بالدوري الليبي الممتاز
+-  Echanges notables du jour: Vivendi, Sii -Cac 40
+-  Mercialys: AXA IM recule sous les 5% de capital
+-  CAC40: teste 7.600, détente taux après BCE, W-Street jubile
+-  Intel: le titre soutenu par les dernières avancées dans l'IA
+-  Roche: le rachat de Telavant auprès de Roivant est bouclé
