@@ -1,11 +1,11 @@
 # Latest News
--  עלי מוחמד, חג'ג' ושואו בהרכב מכבי חיפה לפנאתינייקוס
--  לא רק החשמליות: כשליש מדגמי 2024 יתייקרו בגלל החות'יים
--  [사설]사천시 12년 만의 아기 탄생을 함께 축하한다
--  [사설]경남 미래 좌우할 과학기술 예산 턱없이 부족
--  [종교인 단상]간디의 망국론, 더하기
--  [바튼소리] 장제원 불출마 그 후 예감
--  [기고]요즘 강물이 왜 잘 얼지 않을까?
--  [환경이야기]호사비오리와 조선원앙 이야기
--  [세대공감]수능 만점, 언론 빵점
--  Gaza “ya no es un lugar habitable”, sólo queda miseria y dolor, dice la ONU
+-  Sat.1: Nach über einem Jahr – Sender holt Show plötzlich zurück
+-  Soccerladuma | Incoming Man Utd Owner 'Lines Up' Ten Hag Successor
+-  Pflegegeld Auszahlung Dezember: An diesem Tag bekommst du das Geld
+-  Google pone fecha para empezar a eliminar las cookies de terceros en Chrome
+-  মন্ত্রীর মিছিলে প্রদর্শিত আগ্নেয়াস্ত্রের লাইসেন্স বাতিল
+-  Country records remittances inflows of Rs 477.96 million in four months
+-  Israel will keep fighting Hamas &#039;until the end,&#039; Netanyahu says
+-  Innovation With a Purpose
+-  Novolex Recyclable Food Containers
+-  YouTube will start showing fewer, but longer ads on TVs
