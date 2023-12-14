@@ -1,51 +1,51 @@
 # Latest News
--  Započinje 30 milijuna eura vrijedno ulaganje u mrežu ultra brzih punionica tvrtke Greenway uz garantirane cijene usluge punjenja
--  Leikmenn treysta ekki VAR
--  Son Dakika:Gaziantepliler Dikkat! Gaziantep'te yarın birçok bölgede elektrik kesintisi olacak...
--  পার্লামেন্টে হৃদরোগে আক্রান্ত হয়ে তুর্কি এমপির মৃত্যু
--  Grb Hajduka osvanuo na Tuđmanu, neki su sad jako zabrinuti, jer ovo je baš čudno
--  Magyar csapat készül a Le Mans-i 24 órásra
--  مؤشر بورصة مسقط يغلق مُرتفعاً
--  Jositsch-Sympathie kostet FDP-Portmann wichtiges Prestige-Amt
--  IRFU Reach 40% Gender Balance On Union Committee
--  VIDEO Guardiolina reakcija je hit! Nije mogao prestati gledati u plavokosu djevojku u Srbiji...
--  영국 문화를 변화시킨 최고의 후원자, 헨리에타 마리아
--  캐머런 英 외무장관, 이달 재판 앞둔 지미 라이 아들 만났다
--  Tragikomödie "791 km": Ein Sturm, ein Taxi und fünf Schicksale
--  هدف ريال مدريد مع ملعب السانتياجو برنابيو في السنوات المقبلة
--  Antonija Šola planira vjenčanje u Las Vegasu, otkrila i što misli o Plekoviću i Milanoviću: ‘Smiješan je’
--  ŞOK Aktüel 16 Aralık 2023 Kataloğu Yayınlandı! Dekoratif led ürünler, yatak çeşitleri, beyaz eşya
--  Maxx Crosby, Dak Prescott among eight finalists for Art Rooney Sportsmanship Award
--  Wordle 908: ¿Cuál es la respuesta del 14 de diciembre de 2023?
--  Дві українки - у топ-20 спринту на етапу Кубка світу в Ленцергайде
--  Carol Waddington
--  Kevin McCarthy floats working with Elon Musk once he's out of Congress: 'I love entrepreneurs'
--  جنود الاحتلال ينتهكون حرمة مسجد بجنين ويؤدون صلوات يهودية بداخله (فيديو)
--  Hoa hậu Ngân Anh vỡ òa cảm xúc khi sinh con trai đầu lòng
--  Jennie gia nhập “câu lạc bộ" tỷ stream, tất cả nhờ nhạc phim của The Weeknd?
--  5 dấu hiệu sớm nhất cho thấy trái tim của bạn rối loạn hoạt động, suy yếu theo chuyên gia
--  Hà Nội: Khống chế đối tượng sử dụng dao nhọn, 1 cảnh sát bị thương
--  Trấn Thành xả kho ảnh du lịch cùng hội bạn, chỉ còn 1 thành viên Cờ Cá Ngựa góp mặt giữa nghi vấn cả nhóm "toang"
--  Mỹ nhân bị đồn lười biếng còn yêu sách làm khổ cả đoàn phim, khiến nam chính tức tới bật khóc?
--  Nhân viên nhà nghỉ hoảng hốt khi phát hiện nữ khách treo cổ trong phòng
--  Mỹ: Cậu bé 8 tuổi bị đánh đập và chết đói trong nhà
--  NHL-legenda Pekka Rinne väläytteli torjuntataitojaan Tapparan harjoituksissa
--  Vụ 3 bố con tử vong trên sông ở Hưng Yên: Sự việc đã được cảnh báo từ trước?
--  "BESKRAJNO HVALA VELIKOM PRIJATELjU SRBIJE" Vučić prokomentarisao Sijevu čestitku - Mnogo je lepa
--  Bomba iz Istanbula, Fenerbahče ima novog trenera! Bivši strateg Partizana izvisio za posao!
--  MILAN STANKOVIĆ SE OGLASIO IZ MANASTIRA: Pričali da je ovde želeo da se zamonaši - evo šta je objavio na Instagramu
--  Putin asegura que seguirá con la guerra: La paz vendrá si Rusia alcanza objetivos en Ucrania
--  Brucker SPÖ-Stadtregierung nicht mehr handlungsfähig: Opposition fordert Neuwahlen!
--  İYİ Parti'de Ahmet Zeki Üçok ve Ece Güner'in yerine gelen isimler belli oldu
--  Merkez Bankası Başkanı Hafize Gaye Erkan: Türk Lirası'na geçiş zamanı geldi
--  Посольство РФ: задержанный в Норвегии «бразилец» не является россиянином
--  '김태희♥' 비 "집에선 죽은 낙엽처럼…그게 행복이다" (시즌비시즌)[MD리뷰]
--  Liverpool vs Man Utd: Back our 18/1 Bet Builder tip, plus get £40 in free bets with Paddy Power
--  VUČIĆ OBIŠAO RADOVE NA GRADNjI SEVERNE OBILAZNICE: "Ovo je za razvoj Kragujevca od ogromnog značaja" (VIDEO
--  Breakthroughs @COP28: Taking Stock of Climate Action With the Global Stocktake
--  Why Is Moderna (MRNA) Stock Up 11% Today?
--  Donald Tusk Poland PM: Readies Program To Strengthen Ties With EU
--  Trump 2024: el candidato frente a la Justicia… Y a la Historia
--  Nâng cấp luồng Cái Mép - Thị Vải: Dự án 1.400 tỷ đồng đang triển khai ra sao?
--  Ευκαιρία να «ξεκολλήσει» από το 1.500.000…
--  Amazon Sends Freight Technologies (FRGT) Stock Soaring
+-  제주경찰청, 불법 촬영 범죄 18개 유관기관과 공동 대응키로
+-  경남마산로봇랜드, 오는 24일까지 lsquo;행복드림 경품 이벤트rsquo; 진행
+-  창원대, 공공부문 온실가스 감축률 우수기관 선정
+-  진주 남동발전, 국민 참여와 소통 확대로 혁신성과 창출
+-  진중권 quot;한동훈 비대위원장? 총선 패배 책임 자리에 앉하겠나?quot;
+-  창원시, 항만물류middot;해양레저 거점도시로 성장 기반 마련
+-  김기현 사퇴 후 남은 문제는? 나경원middot;김무성middot;안철수 '당정관계' 한목소리 겨냥
+-  창원특례시의회 행정사무조사 등 13건 안건 처리
+-  이재명 찾은 대통령실 이관섭middot;한오섭, 거부권middot;예산안 놓고 신경전
+-  '어게인' 북미 정상회담? quot;트럼프 집권하면 북핵 '동결' 협상quot; 관측 나와
+-  美 기준금리 조기 인하 가능성에 국내 증시 상승
+-  홍남표 시장, lsquo;2023 창원특례시 체육인의 밤rsquo; 행사 참석
+-  김건희 quot;개 식용 금지는 尹대통령 약속hellip;특별법 조속히 통과되어야quot;
+-  위기의 기시다, 지지율 10%대hellip;09년 정권 내줬을 때 이후 최저치
+-  이재명 불참한 민주당 의총 quot;병립형 회귀 반대 의견 많았다quot;
+-  quot;국제 지지 없어도 전쟁quot;hellip;네타냐후, 바이든과 대립각 세우는 까닭은?
+-  'Hasarlı trafik kazalarında savcılık yerine sigorta şirketlerine başvurun' uyarısı
+-  Başkan Oprukçu'nun ailesi adına yaptırdığı Aile Sağlığı Merkezi açıldı
+-  İYİ Parti Başkanlık Divanı'nda yeni görevlendirmeler yapıldı
+-  Kvinna hittades svårt skadad i Eskilstuna – avled av skottskador
+-  Daniel Broncano, nuevo director técnico de la Sinfónica de Tenerife
+-  Minst 14 (!) kan saknas: ”Rekord över alla jävla år”
+-  Minst 14 (!) kan saknas: ”Rekord över alla jävla år”
+-  Kurzovní lístek ČNB na čtvrtek 14.12.2023
+-  CMVM vê risco elevado nas categorias de mercado, crédito e de operações em 2024
+-  Firari FETÖ'cü elbise dolabının arkasındaki gizli bölmeden çıktı
+-  Dursun Özbek'ten dikkat çeken transfer açıklaması!
+-  Çin'de binlerce uçak seferine kar engeli
+-  82 adetlik rekor sipariş! Alman ordusu resmen imzaladı
+-  Valilik açıkladı: Gaziantep'te sahte içki operasyonunda 3 zanlı yakalandı
+-  Türkiye aday göstermişti... Yusuf Çalışkan UNIDROIT üyeliğine seçildi
+-  Dursun Özbek'ten TFF sorusuna sert cevap! "Bu federasyonu biz seçtik"
+-  Tokayev'den Azerbaycan Cumhurbaşkanı Aliyev'e tebrik
+-  ABD'de işsizlik maaşı başvuruları beklentilerin altında kaldı
+-  Bakan Bolat duyurdu: En yüksek seviyelere ulaştı
+-  مسؤول عسكري أمريكي للجزيرة: البحرية الأمريكية لم تكن ضالعة في حادثة السفينة التجارية بالبحر الأحمر
+-  Spadły ceny amerykańskiego importu i eksportu choć mniej niż oczekiwano
+-  Senegal court clears jailed opposition figure to contest in polls
+-  SAPS agrees with Virgin Active to train new recruits
+-  Public Enterprises department defends itself over SAA sale documents
+-  Pope calls for global treaty to regulate AI
+-  Police arrest six suspects for multiple charges including kidnapping
+-  EBC pozostawił stopy na dotychczasowym poziomie
+-  Daha önce oyuncu olarak forma giymişti, başantrenör olarak geri döndü! Fenerbahçe Beko Sarunas Jasikevicius'a emanet
+-  International Oil and Gas Congress in Istanbul fixes on TANAP, Petkim projects
+-  Aitana Bonmatí y Jenni Hermoso, finalistas al premio The Best de la FIFA
+-  Svetový pohár v Jasne bude. Štát do podujatia naleje takmer 800-tisíc eur, zväz chcel viac
+-  Ayuso subraya los beneficios que traerá la F1 en Madrid: 4.500 millones en 10 años y 8.200 empleos
+-  Kolumne: Mental health to go - Mit Resilienz ins neue Jahr starten! Das ist mein persönliches Geheimnis
+-  Citypress | Watch | Mavuso Msimang withdraws his resignation from ANC, but won't drop anti-corruption crusade
