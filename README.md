@@ -1,51 +1,11 @@
 # Latest News
--  ’대박’ 고우석, 양키스 유니폼 입나… 美 매체 “고우석, 양키스 FA 영입대상”
--  Motagua no quiere que Olimpia juegue de blanco en la final
--  Лил с класика над Клаксвик, Слован загуби, но ще играе през пролетта
--  Heat warning for NSW residents as scorching conditions continue
--  అంగన్వాడీల కన్నీటి వరదలో
--  Shane MacGowan's wife says Pogues frontman is 'still with her' in emotional update
--  Emma Watson returns to spotlight as Harry Potter star wows in jaw-dropping photoshoot
--  Jonathan Ross' daughter 'sad' for Royal Family over 'icky' scenes in The Crown
--  I'm A Celeb's Nigel Farage's partner breaks silence after being hospitalised in Australia
--  Stacey Solomon says 'we don't know how many Christmas Days we'll have left together'
--  Shane MacGowan's funeral was 'inappropriate' and 'a scandal', claims priest
--  BBC Strictly Come Dancing's Ellie Leach and Vito Coppola break silence on romance rumours
--  Murder suspect Boy Y says he was 'joking' when he called Brianna Ghey 'it'
--  Fire chief slams 'abhorrent' bullying in service amid damning findings
--  Neighbours knocked on family's door after they spent day in garden
--  New Asian restaurant Liu Shi moving into 60 Hope St
--  National Lottery Set for Life winning numbers for Thursday, December 14
--  Woman thought 'why not?' after she started to notice pattern at work
--  Channel 4 A Place in the Sun viewers say 'how dare they' after buyers' decision
--  Date James Preston will be sentenced for murder of Joe Holland
--  Police given extra powers after two men shot in park
--  Sainsbury's Local opening within £5bn development project
--  Hundreds line streets as Kirkby Crusade spreads Christmas cheer
--  Ryanair flight attendant killed by dad sending one-word text message
--  H&M shoppers 'obsessed' with £75 blazer that's 'perfect'
--  విద్యార్థుల భవిష్యత్తు ప్రశ్నార్థకం
--  అరకొర సేవలతో జగన్‌ బిల్డప్‌
--  Спарта Прага се добра до елиминациите в Лига Европа
--  Pulsar: a balança que sabe muito do seu corpo (aproveitem o desconto)
--  Premier League, scelta storica: cosa succederà il 23 dicembre
--  [이슈&인물] 성득영 아이나비시스템즈 대표 “모든 공간은 ‘자원’…‘공간과 공간’ 연결하는 플랫폼 될 것”
--  Comedy legend ﻿Barry Humphries to be farewelled at state memorial
--  గెలిచేవారికే టికెట్‌లు
--  Ümit Özdağ'dan İsrail'i destekleyen Starbucks'ta gençlere kahve ısmarladı!
--  Chocan en INE acuerdos para regular nombramientos de Taddei
--  Hong Kong. La police offre des récompenses pour l'arrestation de cinq militants
--  Innovation. Les premiers camions-poubelles à hydrogène vont bientôt circuler à Dijon
--  Santé. Smecta, Toplexil... Des médicaments « plus dangereux qu'utiles » toujours en vente
--  Montbardois. Tribunal : il est retrouvé ivre dans la rue, une canette à la main… mais conteste les ...
--  Entre Côte-d'Or et Haute-Marne. Un nouveau GR de Pays : le Parc national de forêts va se doter d'un ...
--  Guerre Israël Hamas. La guerre à Gaza « durera plus que quelques mois », prévient Israël
--  Gevrey-Chambertin. Cour d'assises de Dijon : elle reconnaît avoir tenté de tuer son mari à coups de ...
--  Agglomération Beaune Côte & Sud. Eau potable : pourquoi votre facture risque d'augmenter de 80 €
--  Meilly-sur-Rouvres. Il avait refusé d'obtempérer lors d'un contrôle de gendarmes : le maire condamné ...
--  Basket - Élite. JDA Dijon : Thierry Degorce prend la parole après le retour de Laurent Legname
--  Pluvet. « Une discrimination » : ils ne veulent pas avoir à déplacer leurs poubelles au bout de leur ...
--  [‘8시간 시차’ 이용해 SAT 시험지 빼돌린 학원강사, 징역 3년 확정
--  [“19만→40만, 주식은 잘 몰라” 실화냐…풍자가 대박난 ‘재테크’ 뭔가했더니
--  [이수정 “내 선거서 도움될 사람? 이준석…사이 왜 안 좋아야하나”
--  [“갑자기 아이 전학 알아보고 있어요” 오락가락 실거주 의무 폐지에 입주자 멘붕 [부동산360]
+-  İsrail'in Cenin enkazı! Katil ordu çekilmek zorunda kaldı
+-  Hizbullah, bir mensubunun daha öldüğünü duyurdu
+-  Denizli'de maden ocağında göçük: Mahsur kalanlar var
+-  Galatasaray'ın muhtemel rakipleri belli oldu! İşte o takımlar...
+-  Fenerbahçe'nin muhtemel rakipleri belli oldu!
+-  قوات الاحتلال تقتحم عدة بلدات في الضفة الغربية
+-  اشتباكات ضارية بين المقاومة والاحتلال بخان يونس - فيديو
+-  워니·안영준 35점 합작, SK 압도적 속공 우위로 완승, 한국가스공사 니콜슨 18점 분전
+-  ‘충격패’후 선수들 ‘나이트서 크리스마스 파티’→감독은 용인…10억 파운드 투입 경영진은 ‘재앙’→선수단 재편한다는데…
+-  배혜윤·강유림 35점 합작, 삼성생명 3위 사수, BNK 진안·안혜지 맹활약에도 5연패
