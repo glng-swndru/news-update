@@ -1,51 +1,11 @@
 # Latest News
--  Résultats Eurodreams: le tirage du jeudi 14 décembre 2023
--  SYMRISE AG : UBS nog altijd een koopadvies
--  UBS belässt Symrise auf 'Buy' - Ziel 111 Euro
--  "이 몸매, 레전드야"…류화영, 여행지에서 '과감 비키니 노출' [MD★스타]
--  Γκιώνης: Με άνεση την πρόκριση στο ιταλικό World Table Feeder
--  Turkish club president handed permanent ban from football after punching referee in the face
--  US begins review that could spell trouble for PVC
--  White House says Biden ‘not lying about anything’ in impeach probe, despite evidence
--  VINCI : Jefferies ontvangt een koopadvies
--  Jefferies belässt Vinci auf 'Buy' - Ziel 130 Euro
--  Держатели российских евробондов смогут получить выплаты в валюте
--  Corte de Apelaciones confirma la prisión preventiva de Raúl Torrealba
--  '반지 원정대' 오타니·베츠·프리먼, 日 괴물 에이스 미팅 참가 효과 만점..."다저스-양키스, 야마모토 영입전 공동 우승 후보"
--  Recently married Tyreek Hill hit with two paternity suits
--  Brisbane news live: The fight for Labor’s future; Jasper weaker but floods still threaten; Qld’s top tree-change towns
--  Christmas appeal as Aussies struggle to make ends meet
--  Keine Lösung im Streit über Ukraine-Hilfen im US-Kongress in Sicht
--  Dow erzielt zweiten Rekordschluss in Folge aufgrund von Wetten auf niedrigere Zinssätze
--  EU-Staaten einigen sich auf Russland-Sanktionen
--  Dow noteert tweede record op rij op lagere rentetarieven
--  A Fradi gólszerzője: "Furcsa volt a vége, lehetett érezni, hogy a Fiorentina is boldog a döntetlennel", Dibusz: "Nagyon nagy dolog, hogy veretlenül jutottunk tovább"
--  ROSEN, A LONGSTANDING LAW FIRM, Encourages Microvast Holdings, Inc. Investors to Secure Counsel Before Important Deadline in Securities Class Action - MVST, MVSTW
--  [“주말 진짜 추워요”서울시, 17일 이번 겨울 첫 ‘동파 경계’ 발령
--  United States Steel sieht Gewinn im vierten Quartal über den Schätzungen
--  United States Steel ziet winst over vierde kwartaal boven verwachting
--  James Bulger (2) starb 1993 - Entlassung für jüngsten Mörder Englands abgelehnt
--  Gaynor Lord detectives have 'some indications' why missing mother-of-three left work early on the day she vanished - as friend reveals her mystery phone calls
--  CHP'li Mustafa Adıgüzel'den canlı yayında skandal sözler! "Sayın Abdullah Öcalan"
--  ▶️ Kardeşlerim 109. bölüm 2. fragmanı yayınlandı! "Keşke benim annem de hayatta olsaydı da bende ona küsseydim sizin gibi..."
--  Ümit Özdağ, katil İsrail'e destek veren Starbucks'ta gençlere kahve ısmarladı!
--  County of Grande Prairie: Changes coming to Red Willow Falls
--  EDEN CONFIDENTIAL: Argy-bargey as the Chelsea Reach houseboats hamlet fights rent rise
--  حصيلة ضحايا العدوان الاسرائيلي على قطاع غزة تقترب من 19 ألف شهيد
--  Warzone pro Jukeyz banned from tournaments for watching bikini twitch stream
--  ROSEN, LEADING INVESTOR COUNSEL, Encourages Brainstorm Cell Therapeutics Inc. Investors to Secure Counsel Before Important Deadline in Securities Class Action First Filed by the Firm - BCLI
--  Gaynor Lord detectives have 'some indications' why missing mother-of-three left work early on the day she vanished - as friend reveals her mystery phone calls
--  ¿Cuándo será la caravana Coca Cola Iztapalapa 2023?
--  "Mon quotidien est difficile": Atteinte d'un cancer, Françoise Hardy se confie à BFMTV
--  IRS Proposes Guidance for Solar Manufacturing Production Credit
--  The Anthropocene condition: Evolving through social–ecological transformations
--  Coups de filets antiterroristes en Allemagne, au Danemark et aux Pays-Bas, des suspects "liés au Hamas" pour Israël
--  GOP voters like Trump because he won't compromise: Pew poll
--  Court voids fine given to Russian activist for criticizing war and sends case back to prosecutors
--  Brooklyn Nine-Nine star Andre Braugher died from lung cancer – representative
--  Why It's 'No Surprise' Travis Kelce Was Not at Taylor Swift's Birthday Celebration in NYC
--  Sylvia Paz Díaz rinde su último informe al frente de la UAdeO; en enero rendirá protesta el nuevo rector
--  American Greetings Earns Top Score in Human Rights Campaign Foundation's 2023-2024 Corporate Equality Index
--  Brooklyn Nine-Nine star Andre Braugher, who played Captain Holt, died from lung cancer
--  B.C. announces more than $80M funding to protect salmon population
--  Ankaragücü'nden PFDK'ya itiraz!
+-  Israel bombs Gaza as rift with US grows
+-  Una oportunidad brillante: Se abre convocatoria para solicitar beca Whataburger Feeding Student Success
+-  Kate del Castillo y Santiago Cabrera se suman a tercera temporada de “The cleaning lady”
+-  Ankaragücü'ne bu cezayı verenleri kınıyorum! Mirza Şeker yazdı
+-  Are business cybersecurity measures really fit for purpose?
+-  LAG Gorski kotar bio je domaćin studijskog putovanja Lokalne grupe Dzialania Zalew Zegrzyski iz Poljske
+-  Agile and DevOps: How Do They Interrelate?
+-  El Abierto Mexicano confirma su sede en Acapulco y le abre las puertas a Rafael Nadal
+-  ¿Gareca, Reynoso o Lasarte? Universitario descartó a 2 y habló sobre el otro: “Encaja en el perfil”
+-  Ivanovićeva Baskonija pala u finišu: Virtus odneo pobedu iz Vitorije!
