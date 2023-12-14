@@ -1,51 +1,11 @@
 # Latest News
--  آخرهم كهربا.. 4 "أهلاوية" كتبوا التاريخ بقميص اتحاد جدة
--  كولر يعاني بسببه.. العدو الذي يطارد الأهلي يُخيف مدربي أوروبا
--  الفرص الضائعة.. خيبة أمل أرتيتا في أرسنال
--  ศาลรธน.นัดวันชี้ชะตา "ศักดิ์สยาม" ซุกหุ้น 17 ม.ค.67
--  FC-Legende besorgt: „Jämmerlich“ – Pierre Littbarski nennt Kernproblem beim 1. FC Köln
--  Intel’s 14th Gen CPUs: Revolutionizing efficiency and performance in computing
--  Stargazers Await Spectacular Meteor Shower Amidst Varying Light Pollution Levels
--  Cette carte graphique RTX 4060 profite d’une offre qu’il ne faut pas laisser passer
--  Orne: plusieurs kilos de stupéfiants et des armes saisis lors d'une opération anti-drogues à Alençon
--  GUIDE: Myhlbacks nästa utmaning – allt du behöver veta inför livesända skidfesten
--  New Insights into Human Limb Development Explore Potential for Treating Muscle-related Disorders
--  10 золотых слитков хранил житель Приамурья у себя дома
--  Warning issued to those who damage or vandalise 20mph signs
--  找尋轉型出路！友達推動中醫診斷數位化，群創打造全家智能超市
--  St. Ursen reicht zwei Projekt für das Agglo-Programm ein
--  Distraught Man Utd fans say they’d rather have Brian Potter than Graham as they ask ‘Ratcliffe, what are you doing?’
--  Halb Südtirol liegt derzeit flach: Zehntausende krank im Bett
--  QNA Technology już na NewConnect. Debiut z przytupem
--  Ueberstorf geht mit einem Minus ins neue Jahr
--  12 swoon-worthy gifts for women
--  L'E3 tire sa révérence
--  Een co-vergister van energiereuzen Shell en Engie in Tzummarum is in strijd met de provinciale verordening | opinie
--  Last-minute gifts hosts will love (and they’ll arrive before Christmas)
--  Međunarodna kriket federacija zabranila Khawaji poruke podrške Palestini
--  待望のアーケード版！『ストリートファイター6 タイプアーケード』稼働記念イベントをレポート
--  中古iPad Pro、iPad Airを特価で販売
--  ‘Strip Harvard of billions in federal cash and tax breaks over antisemitism shame’: Republicans
--  New York wine crisis: FBI raid top shop and $1,000 bottles get stashed in Times Square TGI Fridays
--  Nachwuchsfußball: Bayer 04 Leverkusen will Jahr ohne Niederlage perfekt machen
--  Gemeinderat - Gebühren in St. Pölten werden erhöht
--  Kuş Uçuşu'nun Lale'si Birce Akalay'ın estetiksiz halini gören tanıyamadı! Değişimi herkesi şaşırttı
--  Immobilier: pourquoi il faudrait une baisse des prix de 10%
--  À Toulon, un collectif dénonce les conditions d’accueil des migrants
--  Buruh Tuntut Pj Gubernur Jabar Revisi Keputusan UMK 2024
--  F1-kuski Lando Norrisille upea kunnianosoitus
--  Khawaja wears black armband in solidarity for Palestine
--  Vaasan Sport kertoi sopimusuutisista
--  Nagpur: 80 hospitalised following suspected food poisoning at wedding in resort
--  Awaken XT Reviews (Shocking Customer Warning Exposed) Is This Supplement Awaken
--  В Нижегородской области оформили 240 тысяч «Пушкинских карт»
--  Mahfud Mengaku tak Ada Persiapan untuk Debat Capres-Cawapres Kedua
--  Man Utd have only three players good enough to be title winners… Potter would be taking on football’s ‘impossible job’
--  Embattled CoB MARGARET NYAKANG’O exposes RUTO’s lies further as she reveals how he used a whopping Sh14 billion on subsidies in 3 months
--  ZDF muss umplanen: Dunja Hayali fällt weiter aus – Moderatorin meldet sich
--  В Кировской области провели ремонт более 433 км дорог
--  Ties between Brazil and Argentina to remain despite ideological differences, FM says
--  Ties between Brazil and Argentina to remain despite ideological differences, FM says
--  Košir in Gloria v finalu uvodne tekme deskarjev
--  Ties between Brazil and Argentina to remain despite ideological differences, FM says
--  Ties between Brazil and Argentina to remain despite ideological differences, FM says
+-  ‘ML 거물’ 추신수와 박찬호의 아름다운 마지막 페이지…연봉 전액기부, 이건 박수 받아야 마땅하다
+-  "펩이 곧 역사다!"…UCL 역사 또 썼다, UCL 역사상 '첫 8연승' 달성! 클롭 기록 넘었다
+-  스트레이 키즈, 'AAA 패뷸러스' 영광 "원동력 만들어준 ♥스테이 고마워" [2023 AAA]
+-  荣耀90 GT下周发布？游戏能力提升
+-  Ako v hollywoodskom filme: Najkrajším vianočným mestom na Slovensku je Poprad
+-  OPPO Find X7系列只有超大杯有卫星通讯 影像确实顶
+-  Zábery z desivej dopravnej nehody šokovali ľudí: Vidíte to nad sedadlom vodiča? Nabehne vám husia koža!
+-  Putin: Erdoğan Gazze'deki çabalarda öncü rol üstleniyor
+-  Guyana, el pequeño país que flota en petróleo y ahora está en el punto de mira de Maduro
+-  Loạt yêu cầu "nóng" của Thủ tướng liên quan đến thị trường chứng khoán
