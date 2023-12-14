@@ -1,11 +1,11 @@
 # Latest News
--  Save young recluses
--  Zelenskyy coal
--  Korea's population projected to shrink to 36 mil. by 2072: Statistics Korea
--  Former PM's new third party to shake up general elections
--  Canadian 3-star general takes office as new deputy UNC chief
--  Philippine House of Representatives joins Sunfull movement
--  College entrance info fair
--  Top court issues first conviction under stalking law
--  ABD Senatosu 886 milyar dolarlık Ulusal Savunma Yetkilendirme Yasa Tasarısı'nı onayladı
--  Muhteşem ikili Fırtına'yı sırtladı
+-  ‘선거제 의총’ 건너뛰고 ‘尹 참모’ 만난 이재명…“거부권 이제 그만”
+-  고도비만도 ‘현역 복무’한다…軍, 현역 기준 완화 추진
+-  尹정부에서 왜 여당 대표들은 계속 ‘불명예 퇴진’ 할까
+-  “흡연량 많을수록 뇌 용량 작아져…치매 위험 높인다”
+-  ‘무혐의’로 끝난 지드래곤 마약 의혹…경찰 “제보 있는데 수사 안하나”
+-  Op deze zender en zo laat kijk je live naar Legia – AZ
+-  Ankaralılar bile bu böreği bilmiyor! Dışı çıtır içi enfes Entekke Böreği
+-  서귀포중 관악단 '윈드 하모닉스', 교육부 학교예술교육 우수 사례 선정
+-  Anuncios de Caputo ponen en riesgo logros de Misiones en materia de economías regionales
+-  ថ្ងៃនេះ! ករណីឆ្លងកូវីដ-១៩៖​ មានអ្នកឆ្លងថ្មី​​ ០២នាក់,​ គ្មានអ្នកជាសះស្បើយ​​​​​​​​​​​​​​​​​ និងគ្មាន​អ្នកជំងឺស្លាប់​
