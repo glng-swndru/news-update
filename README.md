@@ -1,51 +1,51 @@
 # Latest News
--  'That's What Christmas Is all About Charlie Brown': 10 Bible Verses that Show God's Plan to Save Us
--  The Birth of Jesus in the New Testament: One Event – Four Narratives
--  El mercado de productos de cáñamo y CBD en Estados Unidos: riesgos y realidades
--  Ajax beat AEK Athens 3-1 to qualify for the Conference League
--  32 anos do municipalismo: “Participação cidadã é o elo mais fraco da democracia em Cabo Verde”
--  Rita Ora razbjesnila javnost u Srbiji: 'Kosovo je nekad bilo dio Albanije'
--  Maritere Braschi rompe su silencio sobre su exesposo Mendel Winter y cómo superó su encarcelamiento
--  Tras semanas de tensión, Guyana y Venezuela se comprometieron a resolver la disputa por el Esequibo por la vía pacífica
--  Drie ‘vaste’ Champions League-tickets voor Nederland vrijwel kansloze missie na povere week
--  Gracias a la abstención de Hungría, Ucrania comenzará a negociar su ingreso a la Unión Europea
--  Hauts-de-Seine: un septuagénaire juif condamné à quatre mois de prison avec sursis pour des tags antisémites
--  El Real Madrid, a la ofensiva en el caso Negreira: "Hay indicios de corrupción deportiva"
--  Βιλερμπάν - Παναθηναϊκός: Έφυγε από το flash interview έξαλλος ο Ποτζέκο (vid)
--  Esta es la carta de AMLO para designar a Lenia Batres como ministra de la SCJN
--  PR atribui Grã-Cruz da Ordem do Infante à presidente de Serralves
--  Former hockey coach jailed for sexually assaulting 15-year-old female player
--  LILLEY UNLEASHED: Ontario joins the 21st century for booze sales
--  "GRAĐANI ODLUČUJU KOME DAJU SVOJ, I ŽIVOT SVOJE DECE U RUKE" Šapić poručio: Bez jake države nema ni jakog Beograda
--  Λάζετιτς: «Ήττα για το ποδόσφαιρο που παίξαμε χωρίς κόσμο»
--  Senate Speaks On Akpabio Collapsing At His Birthday
--  Parents speak out after daughter’s sexual abuse by karate instructor
--  Estadio Briceño
--  넷플릭스에서 만나는 영화 '타겟'
--  넷플릭스 금주 신작...관심 끄는 해외 시리즈
--  넷플릭스 금주 한국 시리즈...'솔로동창회 학연', '태어난 김에 세계일주3'
--  Un incendio deja importantes daños en una vivienda en pleno casco urbano de Antas
--  FOLKER IZGUBIO PSA Nudi nagradu 5.000 evra za onog ko nađe Lea: "Mali je ovo grad ništa se ne može sakriti"
--  Leverkuzen maksimalan, Betis se seli u Ligu konferencija
--  YouTuber Brooke Schofield Responds to Headlines About Matt Rife Cheating On Her, Clears the Air
--  Pravděpodobnost bílých Vánoc v krajských městech. Sníh a teploty na Štědrý den v minulých letech
--  개인정보 유출 없다더니… 골프존, 사태 축소하려 거짓말했나?
--  Esto costarán los boletos para el concierto de Luis Miguel en Juárez
--  Escuela en Nuevo León da conmovedora bienvenida a una alumna que venció el cáncer | VIDEO
--  14. Niederlage in Serie gegen Schweden
--  Стали известны все участники плей-офф Лиги конференций
--  Gianluca Lapadula, en evaluación con Cagliari: se operó la nariz por una fractura en el tabique
--  Louisiana Welcomes Offshore Wind Lease Agreements With Danish and Japanese Companies
--  Mann pågrepet etter skyting mot politistasjonen i Åsane
--  Σπιλέφσκι: «Υπόσχομαι ότι ο Άρης θα επιστρέψει!»
--  Los supermercados esperan otra fuerte suba de precios y hay productos que llegan con aumentos de hasta 130%
--  The EU #ai Act passed — now comes the waiting
--  Luis Fernando Muriel sigue enchufado con el gol: así le dio la victoria al Atalanta en la Europa League con su doblete
--  Portugalcada vez mais longe de França e Países Baixos no ranking da UEFA
--  Αλμέιδα: «Τα λάθη απέναντι σε τέτοιους αντιπάλους τα πληρώνεις»
--  Sen. Sanders Calls for Ban on Junk Food Ads for Children to Combat Diabetes Epidemic
--  Австрия разблокировала принятие 12-го пакета санкций против РФ
--  La Agencia Tributaria acelera las oposiciones para cubrir 119 vacantes
--  – (المقريف) يؤكد على أهمية دور مصلحة التفتيش والتوجيه التربوي في متابعة العملية التعليمية وتطويرها في كل المؤسسات.
--  انتهاء مهمة الأمم المتحدة في مالي رسميًا بعد وجود مثير للجدل
--  Фортунис стал лучшим ассистентом группового этапа Лиги Европы
+-  بريطانية تعود إلى الحياة بعد 24 دقيقة من وفاتها
+-  حيلة ذكية لتقشير الثوم بدون تعب
+-  حكومة جديدة ورئيس وزراء "شخصية ثقيلة".. بكري يكشف التفاصيل
+-  حظك اليوم وتوقعات الأبراج 15-12: سعادة وحب لهذا البرج.. ونصائح لهؤلاء
+-  مذكرة تعاون بين جامعتي المصرية اليابانية وبودابست متروبوليتان
+-  حكومة غزة: للمرة الخامسة الاحتلال يتعمد قطع الاتصالات بشكل كامل عن غزة
+-  "성형수술 부작용→재수술 실패" 종말이 곽진영 '심경 고백'[특종세상]
+-  빅뱅 출신 승리, 출소 후 어찌 지내나봤더니…여전한 '승츠비'의 삶 [MD이슈]
+-  "조인성 ♥조강지처는 나" 박경림, 김아중에 기강 '꽉'[어쩌다사장3]
+-  Illinois Strip Club Paid Mayor to Run Prostitution for Years, U.S. Says
+-  Sabesp: oposição a Tarcísio protocola ação contra projeto que prevê privatização da empresa
+-  Liga Europa: veja os classificados para as oitavas e quem disputa os playoffs
+-  [로봇이 튀긴 닭이 대세…bhc도 튀김로봇 도입
+-  [“대기업 제품이라 믿었는데” 세균 득실한 ‘전복버섯죽’…먹지마세요
+-  [‘막걸리 유네스코 등재 추진단’ 출범… 일본 사케와 등재 경쟁 예상
+-  [인천시, 탄소중립 시민실천분야 최다 수상
+-  [北, 소고기 판 남녀 9명 ‘공개 총살’…“사형까지 할 죄인가” 주민들도 ‘술렁’
+-  [인천 중구, 내년 본예산 5449억 편성
+-  [서울시 중장년 ‘보람일자리’에 5149명 참여…역대 최대
+-  Crítica Yu Yu Hakusho | Mostrando que berimbau não é gaita mesmo
+-  SSP: Batinaši SNS pretukli našeg aktivistu u Vrbasu
+-  Nvidia rebate AMD e mostra que H100 é 47% mais rápida que MI300X
+-  Galatasaray'ın UEFA Avrupa Ligi'ndeki muhtemel rakipleri kimler?
+-  Rıza Çalımbay: Daha iyi yerlere geleceğiz
+-  Las primeras bajas en Cruz Azul tras la llegada de Iván Alonso
+-  Pacaembu será reaberto com 10 mil lugares e não deve receber final da Copinha
+-  BAJDEN UPERIO PRST NA JERUSALIM: Izrael da se fokusira na spasavanje života civila u Gazi
+-  Los republicanos eligen a exmilitar israelí para sustituir al polémico congresista Santos
+-  PJ retira a jueza que liberó de siete extranjeros detenidos en búnker
+-  Klabin (KLBN11), Vivo (VIVT3), Cemig (CMIG4) e mais empresas aprovam pagamento de dividendos e JCP; confira condições
+-  ¿Quién representará a Ecuador en Viña del Mar 2024?
+-  На руке советника президента Аргентины заметили татуировки на русском
+-  В окупованому Маріуполі пролунав потужний вибух
+-  NIKO NIJE ZNAO DA SE DRUŽE OD MALIH NOGU: Ovaj popularni glumac je venčani kum Željka Joksimovića
+-  Lyophilization Equipment and Services Market to grow by USD 2.65 billion from 2023 to 2028, North America to account for 36% of market growth- Technavio
+-  What to know before watching Wonka, which is worth watching
+-  L'adversaire le plus probable pour le PSG en huitièmes est le Bayern
+-  Ligue des champions, Ligue Europa… Les adieux à la phase de poules en Coupe d'Europe
+-  Le jeune Mahamadou Diawara explique pourquoi il a quitté le PSG pour l'OL
+-  Découvrez la programmation télé des 32es de finale de la Coupe de France
+-  Une équipe entière suspendue après des violences sur l'arbitre
+-  Cenntro Electric Group Limited Receives Australian Court Order to Convene Scheme Meeting
+-  Le but maradonesque d'un joueur de Barnet en FA Cup
+-  À quoi doivent s'attendre les Français barragistes en Ligue Europa ?
+-  Jamais les clubs n'avaient versé autant de commissions d'agents qu'en 2023
+-  L'équipe de France de futsal écrase la Slovaquie et ira à la Coupe du monde pour la première fois
+-  La Roma en barrages, Liverpool tombe encore
+-  Gianni Infantino satisfait de la présence de 3000 femmes au derby de Téhéran
+-  « Pogba m'a sauvé la vie », confie un Breton victime d'un AVC en mars
+-  Will Still à propos de ses contacts avec Sunderland : « Si j'avais vraiment eu envie de partir, je serais parti avant »
