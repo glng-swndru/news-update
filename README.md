@@ -1,51 +1,11 @@
 # Latest News
--  Preocupa a inversiones y empresarios la desaparición de los órganos autónomos
--  El Contador / 14 de diciembre de 2023
--  CCE, por fin salió en defensa de órganos autónomos
--  Licencia de paternidad
--  İsrail-ABD gerilimi yükseliyor: 20 bin silah satışı ertelendi
--  Japonya'da bağış skandalı sonrası dört bakan istifa etti
--  أنشطة ولقاءات أدبية متنوعة لقصور الثقافة بالبحر الأحمر
--  Görün avropalı rəsmilər öz aralarında Ukraynanı necə adlandırırlar
--  “팬들의 사랑이 저를 첼시로 불렀습니다”... 1950억의 사나이가 밝힌 이적 이유
--  두산 김명신, 3년 연애 끝에 16일 백년가약...커리어하이+결혼 '최고의 한 해'
--  프로당구 PBA, 경기&#8729;심판 대상 안전교육 실시...응급 상황 대처 능력 향상 도모
--  키움 김재웅, 4년 열애 끝에 백년가약..."퓨처스 시절부터 도와주고 격려해 준 예비신부"
--  Crime boss’s mum facing jail time for helping launder gang’s cash
--  PISA-teszt: javítottak a diákok a természettudományokból, de így is csak átlageredményt értek el
--  संयुक्त राष्ट्र महासभा अध्यक्ष ने बातचीत से सुरक्षा परिषद सुधार पर गतिरोध दूर करने का किया आग्रह
--  Bis zu 180 Euro Strafe: Diese kaum bekannte Regel an Ampeln befolgen nur die wenigsten
--  저소득 이웃돕기 성금 기탁
--  폐현수막 활용, 대형 마대 기증
--  한국여성농업인 고성군연합회 고성향토장학금 기탁
--  금강산 건봉사 사랑의 성품 기탁
--  고성 간성읍 어천2리 백미 기부
--  GS동해전력, 동해지역 취약계층에 1000만원 상당 난방유 지원
--  대한적십자봉사회 강릉시협의회 연탄봉사
--  횡성여성백인회 사랑의 연탄 전달
--  양양 정다운복지재단 송년회
--  양양장로교회 이웃돕기성금 기탁
--  한림대 교육혁신센터, 2023학년도 Hi FIVE 경진대회 개최
--  한림대 교육혁신센터, 학습지원 프로그램 성과발표회 및 시상식
--  춘천시 어린이집 다가치보육
--  도교육청, 도내 중학교 교사 대상 2022 개정 교육과정 도입 관련 연수
--  PVV: Báo cáo sở hữu của cổ đông lớn - Nguyễn Việt Hưng
--  PVV: Võ Thanh Hoài không còn là cổ đông lớn
--  Juliette assume namoro com atleta e posa em clima de romance
--  김기동 감독이 서울을 택한 이유, "도전이 필요했던 시기...서울은 무서운 팀이 될 수 있다"
--  '오구플레이 논란' 윤이나, 복귀 결론 안 났다... KLPGA "내년 초 재논의"
--  삼성, 제일정형외과병원과 파트너십 체결
--  우리는 아직 '메날두'의 시대에 살고 있다..."스포츠팀 구글 검색어 1위 마이애미·3위 알나스르"
--  Les Etats européens devront emprunter 1.240 milliards d'euros sur les marchés l'an prochain
--  Ortak savaş uçağı geliştirecekler! 3 ülke arasında yeni karar
--  Böyle uyardı: AB, korkunç bir hata yapmak üzere
--  الیکشن، لاہور ہائیکورٹ نے بیوروکریسی سے خدمات لینے کے نوٹیفکیشن کے خلاف درخواست پر تہلکہ خیز فیصلہ سنا دیا
--  انهيار عسكري لدول أوروبا.. جيوش ضعيفة وترسانات فارغة
--  49 ilde eş zamanlı “NARKOGÜÇ-39” operasyonu! 378 şüpheli zehir taciri yakalandı
--  Kütahya’da 467 şahıs, 134 araç ve 45 motosikletin sorgusu, GBT kontrolü ve denetimi yapıldı
--  Лига Европа, Лига на конференциите и български футбол в програмата на телевизията днес
--  Meloni: „Wir sind für die EU-Erweiterung“
--  Число обесточенных в России потребителей сократилось до 142 тысяч
--  Медведев надрывно озвучил сценарий распада России
--  Житель Новокузнецка пугал прохожих боевой гранатой
--  Декабрнинг иккинчи ярмида қандай об-ҳаво кутилмоқда?
+-  ABBC Coin Menguat 2 Digit pada 14 Desember 2023, Berikut Kinerjanya
+-  Guinness World Record Pune : गोष्टी सांगण्यात पुणेकर अव्वल, चीनचा विक्रम मोडला, SP कॉलेजच्या मैदानात 3 हजार पालकांनी एकाचवेळी छान छान गोष्टी सांगितल्या!
+-  BVB vs PSG: Stimmen von Edin Terzic, Niklas Süle und Gregor Kobel
+-  Akari’s Brazilian coach in PVL steps down
+-  అయోధ్య ట్రస్ట్ వద్ద రూ.3 వేల కోట్ల మిగులు నిధులు, గ్రౌండ్‌ ఫ్లోర్‌ నిర్మాణ పనులు పూర్తి
+-  Footy’s monster trade: The 12-player swap involving 11 clubs
+-  HSC is just one small test in a life of learning
+-  साना किसान विकास लघुवित्तले संशोधन गर्‍यो लाभांश
+-  सिटी होटलको साधारण सभा पुस २०मा , बुक क्लोज कहिले ?
+-  Kiss Ramóna és Szalai Ádám is bemutathatta a gyerekét Novák Katalinnak
