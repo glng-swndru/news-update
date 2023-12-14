@@ -1,11 +1,11 @@
 # Latest News
--  From Outcast to Outperformer: Finish 2023 in Style With Intel Stock
--  Madaxwayne Xasan Sheekh Oo Sheegay In Ay Jirto Dayn Aan Somaliya Laga Cafin Balse Laga Rabo In Ay Somaliya Iska Bixiso
--  Vincent Pule grateful for Orlando Pirates support
--  Need to sell? Semigration is boosting property in THESE areas
--  Cameroun :: Assassinat Du Journaliste Martinez Zogo: Paul Biya Limoge Le Juge D'instruction Florent Sikati :: Cameroon
--  ,,Dit bedoeld om mensen met elkaar te verbinden''
--  Grimau apie „Barcą“: „Blogiausias momentas nuo tada, kai esu komandoje“
--  Германия: Что — в случае развода — ждет женщин в старости
--  ManU-tähti jättää seuran vapaana agenttina?
--  Yaklaşan yerel seçimlerde ana strateji ne olacak?
+-  عاجل.. قوات الأمن الخاصة تفتح باب القبول والتسجيل للإلتحاق بالوظائف العسكرية
+-  انتهز الفرصة.. الشروط وطريقة التقديم على وظائف الهيئة الملكية لمحافظة العلا
+-  أخبار السعودية.. مفاجأة بشأن ظهور نتائج فحص الزواج وتسجيل الأرامل والمطلقات في الإسكان التنموي
+-  ΤτΕ: Αυξήθηκε κατά 1,3% το ενεργητικό των Ταμείων Επαγγελματικής Ασφάλισης το γ΄ τρίμηνο
+-  Three witnesses fail to appear before TADA court in cases involving Yasin Malik
+-  سرايا القدس تعلن قصف تجمعات عسكرية إسرائيلية في حي الزيتون
+-  حزب الله يعلن استهداف تجمع للجنود الإسرائيليين
+-  مستحضرات تجميل بـ380 ألف جنيه.. ضبط المتهمة بالنصب على 5 سيدات في الدقهلية
+-  طلاب الإسكندرية يحصدون المركز الأول بمشاريع التخرج في جامعة لويفيل الأمريكية - صور
+-  القناة والتردد.. كيف تشاهد مباراة الأهلي واتحاد جدة بـ4 طرق
