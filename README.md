@@ -1,51 +1,51 @@
 # Latest News
--  Po incidente s hasiacim prístrojom v poľskom parlamente sa opäť rozsvietili sviece
--  Meteorológovia varujú: Na viacerých miestach treba počítať s hmlou! Problémy môžu urobiť aj povodne
--  Ján Mazák zostáva vo svojej funkcii predsedu Súdnej rady SR: Za odvolanie hlasovalo 9 členov rady
--  Že sa nehanbí! VIDEO Sedemdesiatnička nadrzovku vysypala pri diaľnici vrece plné odpadkov
--  Návštevníci zoo zostali v šoku: Pozrite, čo robili gorily priamo pred zrakmi detí!
--  Nacistické symboly namiesto vianočných gúľ! Vianočný stromček v Nemecku spôsobil ŠKANDÁL: Možný motív vás prekvapí
--  ÚLET bývalej hviezdy Destiny's Child: TYRKYSOVÉ vlasy... Vyzerá ako vodník!
--  Dutch privacy foundation sues software giant Adobe for privacy violations
--  Elismerték az önkénteseket
--  #google releases on-device diagnostics tool and repair manuals for Pixel phones
--  وزير الاتصالات يبحث تعزيز الاقتصاد الرقمي مع وفد البنك الدولي
--  Reliance Overtakes TCS, Infosys To Become Biggest Wealth Creator In Last 5 Year: Report
--  Gurugram News: गाड़ी से कुचलकर की युवक की हत्या, दो भाइयों पर केस
--  Gurugram News: स्पा सेंटर की आड़ में चल रहे देह व्यापार का भंडाफोड़
--  Gurugram News: हरेरा की सुलह पीठ करेगी आबंटियों की शिकायत का निवारण
--  Gurugram News: 1 जनवरी से लागू होंगे कलेक्टर रेट, 17 तक दर्ज कराएं आपत्ति
--  Gurugram News: विक्की के घर पर पुलिस का पहरा
--  Gurugram News: कारोबारी की गोली मारकर हत्या मामले में छह दोषी करार
--  Gurugram News: पांच पोतियों के साथ लंदन में रहते हैं विक्की के दादा
--  Gurugram News: कैफे की आड़ में चल रहे अवैध अहाते पर भंडाफोड
--  Gurugram News: गुरुग्राम के थानों में सहेजा जाएगा बारिश का पानी
--  मुजफ्फरनगर - किसान-मजदूरों को समर्पित थे चौधरी चरण सिंह : नीरपाल
--  Shravasti News: ननिहाल आई पांच वर्षीय बालिका की छत से गिरकर मौत
--  Gurugram News: पानी और टंकी से असुरक्षित टावर के मुख्य पिलर पर 200 टन का बोझ
--  Muzaffarnagar News: मुजफ्फरनगर - हत्या कर ई-रिक्शा लूटने वाला बदमाश गिरफ्तार
--  Shravasti News: ईंट-भट्ठे पर मजदूरों को बंधक बनाकर ठेकेदार फरार
--  Muzaffarnagar News: देहरादून के लिए रामपुर तिराहा कांड में आरोपियों ने दी हाजिरी माफी
--  Shravasti News: बालश्रम, भिक्षावृत्ति, मानव तस्करी करने वालों पर होगी सख्त कार्रवाई
--  Muzaffarnagar News: मुजफ्फरनगर - शालीमार एक्सप्रेस पौना घंटा, छत्तीसगढ़ ढाई घंटा विलंब से चली
--  सर्दी से फसलों को बचाने के लिए हल्की सिंचाई करें : डॉ. प्रेम कुमार
--  Shravasti News: नेपाल से कपड़ा ला रहा एक तस्कर गिरफ्तार
--  Muzaffarnagar News: मीरापुर - ट्रक की टक्कर से गिरे खंभे के नीचे दबकर छात्र समेत दो घायल
--  Mahendragarh-Narnaul News: 3 करोड़ का लोन पास कराने के नाम पर लगा दी 3 लाख की चपत
--  Shravasti News: आपराधिक गतिविधियां रोकने में सहयोग करें व्यापारी
--  Parliament Security Breach: Delhi Police Arrests Accused Mastermind Lalit Jha
--  Mahendragarh-Narnaul News: 24 किसानों के खेतों से 300 से अधिक फव्वारा चोरी
--  Shravasti News: थाईलैंड के अनुयायियों ने तपोस्थली में की विशेष पूजा
--  Mahendragarh-Narnaul News: शहर में लगे गंदगी के ढेर, लोग परेशान
--  Shravasti News: मिड डे मील बनाने में मानकों की अनदेखी
--  Mahendragarh-Narnaul News: सड़क दुर्घटना एक व्यक्ति की मौत, केस दर्ज
--  Shravasti News: प्यासे खेत, सूखे माइनर किसानों की बढ़ा रहे परेशानी
--  Hamirpur (Himachal) News: भाजपा किसान मोर्चा की जिला कार्यकारिणी घोषित
--  बार एसोसिएशन चुनाव : प्रधान व सचिव पदों के लिए मतदान आज
--  Hamirpur (Himachal) News: आज अदालत में दोबारा होगी कंवर की पेशी
--  Mahendragarh-Narnaul News: स्कूल बस की टक्कर से बाइक सवार की मौत, दूसरा गंभीर
--  Chandauli News: छात्र ने पंखे के हुक के सहारे रस्सी से झूलकर दी जान
--  Hamirpur (Himachal) News: 80 फीसदी केवाईसी न करने पर विभाग डिपोधारक पर करेगा कार्रवाई
--  Mahendragarh-Narnaul News: सड़कें बदहाल, सफेद पट्टी न संकेतक, संभलकर करें यात्रा
--  Chandauli News: मिट्टी लदे ट्रैक्टर की चपेट में आने से बाइक सवार युवक की मौत
--  Hamirpur (Himachal) News: खतरवाड़ में मेधावियों को विधायक सुरेश ने किया पुरस्कृत
+-  Poslancov Národnej rady čakajú dlhé večery: Rokovať budú až do polnoci aj v pondelok
+-  Katka Koščová po prvýkrát so speváckym zborom: Bratislavskému publiku vinšovala pokoj, porozumenie a dobro
+-  Česko bude na Eurovízii zastupovať speváčka Aiko. O jej víťazstve rozhodli najmä hlasy zo zahraničia
+-  Marika Gombitová sa stane laureátkou Mimoriadnej ceny Krištáľového krídla
+-  Miro Jaroš s Veronikou Hatala oslavujú sviatky vianočným duetom Dobro v nás
+-  Sum 41 vydali singel Rise Up. Deryck Whibley sa v ňom podelil o svoju skúsenosť na prahu smrti
+-  Mantinely tvrdej hudby sú jej priúzke: Bývalá speváčka kapely Symfobia vydáva sólový singel Nie si v tom sám
+-  Insight: How the world agreed to move away from fossil fuels at COP28
+-  أبو عبيدة: قتلنا 36 جنديا إسرائيليا وعشرات الجرحى في 72 ساعة
+-  أردوغان لبايدن: هجوم إسرائيل على غزة سيكون له عواقب سلبية على العالم
+-  محافظ أسوان يستعرض الفرص الاستثمارية مع وفد الاتحاد الأوروبي (صور)
+-  نوع خضروات تناوله يوميا يفعل العجائب بجسمك- ولكن احذر الإفراط
+-  لطلاب الإعدادية والثانوية.. 6 خطوات لتنفيذ المشروعات البحثية في سنوات النقل
+-  تفتح أفق سياسية جديدة.. برلماني: نسبة المشاركة في الرئاسية فاقت التوقعات
+-  New Luxury Car Tax to Force Australians to Adopt EVs
+-  Beşiktaş'ta kadro dışı bırakılan futbolcular kulübe ihtar çekti!
+-  Dışişleri'nden İsrail'e tepki: Şiddetle kınıyoruz
+-  Gazze'de ölen BM personeli sayısı 135'e yükseldi
+-  Galatasaray ilk maçta yenişemedi!
+-  ¡Así se ve el verdadero poder de Santa Claus en Navidad! Detiene pelea en el tráfico
+-  Howden Tiger Partners with VIP Software to Deliver Loss Cost - Benchmarking Data and SaaS enabled Compliance Applications
+-  Ocean City's Iconic Atlantic Oceanfront Inn Unveils Name Change and Multi-Million Dollar Renovation Plans
+-  «التجاري» راعٍ لبطولة «غولف صحارى»
+-  العيد الوطني للبحرين..نهج ديموقراطي وتطلعات طموحة
+-  بريطانيا تمنع دخول المسؤولين عن عنف المستوطنين في الضفة
+-  «الصناعة» يهزم «الداخلية» في دوري الوزارات
+-  ثلاثة أرباع الفلسطينيين يؤيدون «طوفان الأقصى» وارتفاع شعبية «حماس»
+-  الجولة الثالثة لدوري «الدريساج» السبت
+-  غزة.. الحرب تشتد والناجون من القصف يواجهون «عاصفة من الأمراض»
+-  القادسية يرتقي القمة في «ليلة بدر»
+-  محمد بن سلمان يبحث مع سوليفان زيادة المساعدات إلى غزة
+-  الكويت لتجاوز الجهراء والنصر يلتقي كاظمة «الجريح» اليوم.. والعربي يواجه السالمية غداً
+-  وفاة نائب تركي بعد يومين من تعرضه لأزمة قلبية أثناء إلقائه خطاباً داعماً لغزة
+-  المشعان: ملف الانتقالات الشتوية في «السماوي» مؤجّل
+-  تحذير أممي: الحرب تدفع السودان نحو المجاعة
+-  قرعة صعبة لـ «أزرق الصالات» في كأس آسيا
+-  مجلس النواب الأميركي يوافق على بدء التحقيق لعزل بايدن
+-  كاظمة بطل «تمهيدية القوى»
+-  Flet gazetari i “marrë peng” nga SPAK: Nëse hapen bisedat e SKY, do të shpërthejë një “vullkan”
+-  Šaranović: Ako izvještaji o radu za vrijeme mandata Brđanina budu negativni, iniciraću njegovo razrješenje
+-  Catalina Pérez negó millonarios depósitos de parte de Andrade o de Democracia Viva: "Son mis ahorros"
+-  تسلا تستدعي كل سياراتها في أمريكا.. ما الأمر؟
+-  Isabelle Adjani zu Bewährungsstrafe verurteilt
+-  Isabelle Adjani zu Bewährungsstrafe verurteilt
+-  מחוץ לכותלי בג"ץ: עימות בין נציגי החברה הערבית לעורך הדין מארגון הימין
+-  Take steps for construction of new HC complex, CM Revanth tells officials
+-  الشبكة الوطنية تنظم فعالية البارا اولمبي الرياضي لذوي الإعاقة بعدن
+-  ‘Deadpool 3,’ ‘Beetlejuice 2’ and ‘Joker: Folie à Deux’ Top Most Anticipated 2024 Movies Survey
+-  Sanja Vulić: Schmidt nasrnuo na Cvijanović
+-  Tilskuer er rystet over berusede supportere på tribunen i Åsane Arena: – Flaskene gikk på rundgang
