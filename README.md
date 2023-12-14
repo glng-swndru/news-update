@@ -1,11 +1,51 @@
 # Latest News
--  Coşkun Başbuğ yazdı: FOSSAT
--  Fenerbahçe, Konferans Ligi'nde gruptan nasıl çıkar? İşte tüm o ihtimaller
--  Kassam Tugayları İsrail ordusuna Gazze'yi dar ediyor! Bir bir avladılar
--  İzmir Konak'taki otellerde düzensiz göçmenlere yönelik denetim
--  EuroCup Women Play-Off ilk maçında Melikgazi Kayseri 26 sayı farkla galip
--  "מאסטר במשחקים חסרי חשיבות", "לא ברמה": בכר קיבל "מחמאות"
--  Analistler Türkiye için Cuma gününü işaret etti! Fiyatlara olumlu yansıyabilir
--  "الأرصاد" تُحذر من طقس الـ 6 أيام القادمة.. شبورة كثيفة ورياح وأمطار
--  Teniski as postao voajer, bivša u panici: 'U strahu sam jer ima moje gole snimke'
--  “무차별 폭격” 쓴소리에…네타냐후 “오슬로는 실수” 맞불
+-  Rostou limity pro přivýdělek, bonus na dítě i osoby bez zdanitelných příjmů
+-  الفيصلي يلتقي الحسين في دوري المحترفين
+-  الميثاق الوطني في زيارة ثناء للهيئة الخيرية الأردنية الهاشمية
+-  تجدد الاشتباكات بين المقاومة والاحتلال قرب مخيم جنين
+-  संयुक्त उर्जा लिमिटेडले आईपीओ निष्कासन गर्ने
+-  Yeni hedef Avrupa Ligi finali!
+-  Parliament security breach: Oppn leaders demand discussion on issue in House
+-  Elon Musk is building his own 'tuition-free' university with $100 million
+-  Работу Керченской паромной переправы приостановили из-за тумана
+-  S ricinusovim uljem do podatnih usana… i još pokoji prirodni beauty trik
+-  Скільки танків Росія може ввести у стрій за місяць: «набагато більше, ніж Європа»
+-  4 Ayurvedic Herbs To Boost Vitality, Stamina And Ignite Passion
+-  Пашинян назвал реалистичным подписание соглашения о мире с Азербайджаном в ближайшее время
+-  Zlatni retriver posjetio Djeda Božićnjaka. Video će vam izmamiti osmijeh
+-  부고: 이재근 KB국민은행장 장인상
+-  넷마블 '신의 탑: 새로운 세계', 첫 오리지널 캐릭터 '포 비더 블랑' 업데이트
+-  롯데칠성음료, 밀키스 연매출 1000억 돌파
+-  사우디 산업광물부 장관, 두산에너빌리티 창원 공장 방문
+-  KB국민은행, 비금융 기업 대상 금융 데이터 공급 및 협력 확대 나서
+-  엔씨소프트, 국내 게임사 최초 ‘DJSI Asia Pacific’ 지수 편입
+-  이마트, ‘크리스마스 완구·디지털 가전 대전’ 진행
+-  Маск: Киев должен был перейти в оборону, но Запад заставил наступать
+-  В России продажи водки в январе - ноябре снизились на 0,9%
+-  Board of inquiry into submarine tragedy yet to reach conclusion - SA Navy
+-  MANDY WIENER: Panyaza will be doing Panyaza things in the run-up to elections
+-  Diepsloot 'a ticking time bomb' if crime crisis not solved, residents warn
+-  MPs disapprove of Gordhan's refusal to hand over SAA purchase agreement
+-  FS farmers near Lesotho border question govt's efforts to curb livestock theft
+-  Fears of mass ANC exodus as Jacob Zuma linked to switch to new party
+-  'Diepsloot Five' facing possibility of spending Christmas in jail
+-  Комиссар НХЛ опроверг информацию о возможном переезде «Вашингтона» в Вирджинию
+-  Srikakulam: ముఖ్యమంత్రి పర్యటనతో నరకం చూస్తున్న ప్రయాణీకులు
+-  AFR: EVN AG: Bekanntmachung über die Veröffentlichung eines Finanzberichtes
+-  EVN AG: Geschäftsverlauf im Geschäftsjahr 2022/23
+-  AFR: EVN AG: Bekanntmachung über die Veröffentlichung eines Finanzberichtes
+-  マインスイーパー風ドット絵クリッカーゲーム『Dungeon Sweeper』PC向けに公開。墓を目印に広げる壮観なピクセルアートの世界
+-  Barbie Director Greta Gerwig To Chair 77th Cannes Film Festival Jury
+-  Yalova'da KYK yurdunda 15 öğrenci zehirlenme şüphesiyle hastaneye kaldırıldı
+-  Selçuk Üniversitesi Turizm Fakültesi, Türk ve dünya mutfağına şefler yetiştirecek
+-  49 ilde 3,2 ton uyuşturucu ele geçirildi: 378 gözaltı
+-  Enerji Tabii Kaynaklar Bakanı Alparslan Bayraktar'dan yaz saati uygulaması açıklaması
+-  Tramvay yolunda çarpmıştı! Cinayet gibi kazaya 'İyi hal indirimi!'
+-  هل يفعلها قائد الجيش... ويرفض التمديد؟
+-  Što je prosinac bez božićnih džempera? Donosimo najljepše modele
+-  Mentan Tegaskan tak Ada Kelangkaan Pupuk Subsidi Jelang Masa Tanam
+-  수원특례시의회 예결특위, 2024년도 예산안 등 심사개시
+-  수원중부경찰서 어린이집, 수원시 장안구 조원1동에 어린이 텃밭 수익금 기부
+-  경기관광공사 ‘3년 연속, 지역사회공헌 인정기관’ 선정
+-  이병숙 경기도의원 “배달특급 예산 늘려 소비자 배달비 부담 완화해야”
+-  New Maynard-Brayshaw rule to outlaw smothers that concuss
