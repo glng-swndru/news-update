@@ -1,51 +1,51 @@
 # Latest News
--  해병대 제2사단, 아주대병원에 헌혈증 1천4장 기부
--  시흥시, 청년 일자리 사업 평가 행안부장관 표창
--  시흥시 '찾아가는 보건복지' 7년 연속 우수기관 선정
--  군포시, 복지부 보육정책 평가 '우수기관' 선정
--  갤러리아광교, '나이키 메가샵' 오픈… 3일간 스포츠위크 진행
--  2023 군포시민대학 종강 "내년엔 중장년 욕구에 맞는 프로그램 기획"
--  동두천시의회 이은경 의원, '제9회 의정활동 우수의원 표창' 수상
--  LX 경기북부, 사회복지공동모금회에 사랑의 후원금 전달
--  신보, 글로벌 스타트업 육성 위한 'CES 2024' 참가 기업 지원
--  30개국 1등 브랜드 모였다… 홈플러스, '월드 푸드 페스티벌' 진행
--  인천 아너 소사이어티 클럽, 사랑의 연탄 나눔 배달
--  [최문섭 농협손보 대표, 마약근절 캠페인 ‘NO EXIT’ 동참
--  [굿리치 앱 전면 개편…“고객 니즈 반영”
--  [美 금리인하 전망에 엔화 급등…엔/달러 한때 3.7엔 하락
--  [광주시, 고향사랑기부제 답례품 공급업체 모집
--  [한은 “앞으로 미국 금리 인하 시점에 관심…변동성 수시 확대 가능성”
--  [Xinhua Silk Road: Dongshen Haiyue, 리자오의 산업 체인 개발에 기여
--  [물 대신 ‘주스’ 마셨더니…20대女 몸에서 ‘이것’ 300개 우르르
--  [김남국 “국힘 비대위원장, 한동훈 장관이 민주당에 제일 호재”
--  [이혜원, 화장품 브랜드 사무실 공개… " 작지만 뉴욕에도 매장 있어"
--  [파월 “금리 인하 논의 시작”...사실상 긴축 종료 선언
--  [“디지털트윈으로 대형선박 해양사고 막는다”
--  [SK플라즈마, 싱가포르 위탁생산 혈액제제 첫 출하
--  [광주시, 마술사 최현우 초청 ‘청년특강’
--  [삼성전자 찾은 방문규 산업장관 “내년 반도체 산업생태계 정책금융 2.8조이상”
--  [尹, 네덜란드 순방 답례 문화행사 참석…국빈 일정 마무리
--  [롯데케미칼, 임직원 가족 초청 ‘패밀리데이’ 개최
--  [금리인하 아직은 멀었잖아…주택사업경기전망 또 내렸다 [부동산360]
--  [현대모비스 ‘투명우산 나눔 캠페인’, 행정안전부 장관 표창
--  [“매일 먹어도 안 질릴 맛”…‘올해 뉴욕 최고요리’ 뽑힌 韓음식
--  [포스코퓨처엠, 고려대와 ‘배터리소재 인재 육성’ 맞손
--  [“개발 단계부터 고객 관점” LG전자, 제품품질평가단 전년比 3배 확대
--  [충남도, ‘출입국·이민관리청’ 유치 시동
--  [대면수업 재개 뒤, 학폭 10년만 최고치
--  [2030 관객·화려한 LED 전광판·맞춤 연주…달라진 ‘가왕’ 연말 공연
--  [[지금 구청은]무학봉길 LED간판 개선사업 완료...에너지 절감
--  [법원, 송영길 전 대표 구속영장 발부 가능성은
--  [연이율 1500%...불법대부 MZ조폭 검거
--  [서울시 쪽방주민 무료치과 1년간 753명 진료
--  [“강원 동계청소년올림픽 응원해주세요”
--  [최재원 “퀀텀점프했지만 할 일 많다...협심해 전진할 것”
--  [부영그룹, 라오스에 버스 600대 기증
--  [10주년 맞은 ‘한화클래식 2023’ 성료
--  [필리핀 하원의회 “선플운동에 본격 참여합니다”
--  [효성, 희망2024나눔캠페인에 성금 10억 기탁
--  [네이처, 2023 과학계 화제의 인물에 ‘챗GPT’ 선정
--  [골프존뉴딘그룹, 대전 사랑의열매 5억 기부
--  [에버랜드 12m 초대형 ‘자이언트 바오’에 10만명 몰렸다
--  [구지은 부회장, 故구자학 회장 회고록 출간
--  [반도체 넘어 무탄소에너지·원전 협력
+-  محاكمة 26 متهما بـ"حرق نقطة شرطة المنيب".. اليوم
+-  عضو "الشيوخ": إقبال الأقباط على التصويت بالانتخابات الرئاسية لم يسبق له مثيل
+-  الماسكارا الملونة.. إطلالة ساحرة لشتاء 2023/2024
+-  삼경해외선물, 리딩방 먹튀 불법업체 근절 캠페인 진행
+-  수면 상태에도 ‘월요병’ 있다… 에이슬립, ‘2023 수면 리포트’ 발간
+-  ‘VANESSA MATTIA(바넷사맛티아)’, 2023 한국소비자베스트브랜드대상 1위 수상
+-  ‘HEALOINE(힐로인)’, 2023 한국소비자베스트브랜드대상 1위 수상
+-  전북기계공고 동문회, 부천 취약계층 130가구에 쌀 1300kg 기탁
+-  안양과천교육청, 영재교육원 2곳 68명 수료식 가져
+-  안양시, 여가부 ‘가족친화 우수기관’ 재인증
+-  안양시, 기초단체 최초 ‘스마트도시 국제표준 인증’ 획득
+-  자총 하남시지회-북한이탈주민, 따뜻한 겨울나기 2년째 감장나눔
+-  ‘아이앤비코리아’, 부천지역 아동·장애인 시설에 공기정화기 100대 기탁
+-  내일 중부지방 많은 비…강원 산지 최대 30㎝ 이상 눈
+-  '서울의 봄'의 힘…한국영화 11월 매출, 팬데믹 이전 70％ 회복
+-  Lo ejecutan en un gym de Cancún
+-  Hypertrophic Cardiomyopathy Pipeline Research Report 2023 Featuring Cytokinetics, Imbria, Bristol-Myers Squibb, Tenaya Therapeutics, Lexeo Therapeutics, and BioMarin
+-  Hết thời cho doanh nghiệp dùng đòn bẩy “ôm” nhiều dự án cùng lúc?
+-  I-T appellate tribunal pulls up income tax dept for denying section 54 benefit to taxpayers who failed to deposit LTCG | Details
+-  Ale Fuller, Renato Rossini Jr y Junior Silva fueron enviados a Noche de Sentencia en El Gran Chef Famosos: La Revancha
+-  شاهد بالفيديو.. الفنان مأمون سوار الدهب يرد على هجوم معجباته بعد إعلان خطوبته ويلوح بالدبلة ويغني (دبلة شنو البدلتو بيها هواي أنا) والفتيات يعلقن: (دي مغرزة منك بس ما اكتر)
+-  Milene Vázquez, ‘Loco’ Wagner y Mayra Goñi pasaron a la siguiente ronda de El Gran Chef Famosos: La Revancha
+-  Vishnu Deo Sai takes oath as Chhattisgarh CM
+-  Israel continues with Gaza offensive despite US criticism
+-  Russian missiles injure over 50 in Kyiv
+-  Kẻ vui người buồn vì chip điện tử khó lòng ‘nhỏ’ thêm nữa: Khi cuộc đua bán dẫn đến điểm giới hạn và bí mật đằng sau sự trở lại của Huawei
+-  Saudi Arabia Open to Joint Investment in Global Mines with S. Korea: Riyadh Minister
+-  Kyrgyzstan: Domestic Violence Against Women, Girls with Disabilities
+-  Fahmi akan bertemu Google selesai isu kandungan lucah di YouTube
+-  Bybit stellt seine Web3-Vision vor: Wegweisende Einfachheit, Offenheit und Gleichheit im dezentralen Ökosystem
+-  Bybit revela sua visão da Web3: Pioneirismo em simplicidade, abertura e igualdade no ecossistema descentralizado
+-  जैविक उर्जा ‘फेजआउट’ र हिमालका मुद्दामा सहमति
+-  민주 인재영입 2호, ‘엔씨소프트 출신 기업인’ 이재성은 누구?
+-  홍준표, 김기현 사퇴에 “이참에 용산 홍위병도 정리해야”
+-  마지막 ‘F4’ 회의 참석한 추경호에 한은 총재가 건넨 말은?
+-  “이재명 물러나고 통합비대위 가야…유죄 판결 위험 방치 안 돼”
+-  3살·1살 자녀 던지고 폭행한 30대 부부, 실형 확정
+-  ‘11번째 비대위’ 체제로 총선 가는 與…‘박근혜 성공사례’ 기대?
+-  Masías exigió más concentración a Renato Rossini Jr al verlo distraído con Ale Fuller | El Gran Chef Famosos: La Revancha
+-  В Новосибирске арестовали обвиняемого в попытке подрыва военкомата
+-  Parliament Security Breach: आरोपियों ने पुलिस के सामने ही चलाए स्मोक केन, किरकिरी के बाद विभाग ने की आपात बैठक
+-  FUEVFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEMAV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEKIV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEDCMID: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEFCV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUEVN100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  E1VFVN30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  FUESSV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
