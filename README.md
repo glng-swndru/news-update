@@ -1,11 +1,51 @@
 # Latest News
--  Konya Milletvekili Kalaycı Meclis'te sordu: Konya Metrosunda son durum nedir? Alacabel, Kuşyuvası, Sertavul, Eğiste...
--  Bakan Göktaş duyurdu! Evde Bakım Yardımı ödemeleri başladı
--  Soccerladuma | Benni Tells All: It Was The Worst Moment Of My Life
--  Chinese Scientists Invent New Technology for Extracting Uranium from Seawater
--  22개월 만에 바뀐 美 금리 전망…한은 셈법은?
--  В Брюксел се готвят за удължаване на срещата на върха на ЕС
--  Orbán holder fast: Ukraine er ikke klar til optagelsesforhandlinger
--  Abubakar takes charge at Katsina United
--  La NBA ha infine sospeso Draymond Green
--  Magtfuld EU-kvartet holder lukket møde med Orbán før topmøde
+-  PS5 Pro预计明年9月上市 GPU升级RDNA3/4架构
+-  苹果iPhone 16原型机曝光
+-  传闻：三星将在2026年采用新设计，小尺寸S Ultra正在研发中
+-  Allahabad HC Orders Survey Of Mosque In Mathura Krishna Janmabhoomi-Shahi Idgah Case
+-  [만났습니다] 김성조 경북문화관광공사 사장 "문화관광 통해 새로운 경상북도 구현"
+-  제22대 총선 옥석 가리기
+-  처칠 총리와 교통경찰
+-  왜 정치는 바보를 만들까
+-  AB liderleri, Türkiye tartışmasını Mart 2024’e erteledi
+-  FENERBAHÇE SPARTAK TRNAVA MAÇI CANLI İZLE! UEFA Konferans Ligi Fenerbahçe Spartak Trnava maçı saat kaçta, ne zaman, hangi kanalda? Muhtemel 11'ler!
+-  Παρί Σεν Ζερμέν: Το «ηρεμήστε, περνάμε» του Χακίμι στους συμπαίκτες του... τρέλανε τον Μπαπέ
+-  حركة المرور كثيفة على طريق الحدث مفرق الكفاءات
+-  Ligue des champions: le pire et le meilleur tirage pour le PSG en huitième de finale
+-  Viral Video Pengakuan Siap Tampung Pengungsi Rohingya, Ustadz Derry Sulaiman Klarifikasi Begini
+-  Revolutionizing Men’s Fashion: Asuka Couture Crafting Elegance For A New Era
+-  اقرار مشروع القانون الوارد بالمرسوم رقم 9000 يتعلق بـ " إنتاج الطاقة المتجددّة الموّزعة"
+-  भृकुटीमण्डपमा पौष ५ देखि ‘चोथौँ नेपाल फाईभ पि’ अन्तर्राष्ट्रिय प्रदर्शनी हुने
+-  وظائف شاغرة في شركة تابعة لصندوق الاستثمارات العامة لجميع المؤهلات
+-  مخاطر الأنفلونزا على النساء الحوامل.. وأبرز طرق الوقاية
+-  عاجل.. الجوازات: لا يُشترط تغيير جواز السفر ولكن عليك الالتزام بهذه الشروط
+-  跳繩取代跑步，10分鐘燃燒400卡路里
+-  GH, 이천시에 ‘RE100+탄소중립 산업단지’ 조성 추진
+-  인천시 부평구 청소년수련관, 2023 교육문화 겨울학기 회원 모집
+-  인천시 연수구, 한국지방자치경쟁력지수 평가 2년 연속 1위
+-  인천시 남동구, 도림산어린이공원 노후시설 개선
+-  인천시, ‘2023년 탄소중립 경연대회’ 지방자치단체 부문 우수기관 선정
+-  인천시 여성의광장, 2024년 제1기 교육강좌 수강생 모집
+-  추민규 하남 예비후보 출마의 변 "공약 확실하게 이행할 것"
+-  오시훈 교수, 홀트아동복지회에 시설청소년 자립에 2000만 원 기부
+-  남양주시, 민선8기 핵심 공약 전담 ‘미래도시추진단’ 신설 등 조직개편 초읽기
+-  오수봉 전 하남시장, 민주당 총선 예비후보 등록
+-  인천시, 아동인성동화 제2편 '마로의 하루, 마음을 주고 받아요!' 제작해 배포
+-  전문건설협회 경기도회, ‘2023 송년의 밤’ 개최
+-  Destructor estadounidense derriba en mar Rojo un dron lanzado por rebeldes yemeníes
+-  الأنظار مشدودة نحو بوتين.. وهذا ما كشفه "المتحدث باسم الكرملين"
+-  KDM: Nghị quyết Hội đồng quản trị
+-  DVM: Nghị quyết Hội đồng quản trị
+-  HNX: Kết quả giao dịch Trái phiếu doanh nghiệp ngày 14/12/2023
+-  CJC: Nghị quyết Hội đồng quản trị
+-  VLA: Ủy ban chứng khoán nhà nước đã nhận được Báo cáo kết quả chào bán thêm cổ phiếu ra công chúng của CTCP Đầu tư và Phát triển công nghệ Văn Lang
+-  PMS: Thay đổi nhân sự
+-  HQC: Thông báo công văn của UBCKNN về hồ sơ đăng ký chào bán cổ phiếu riêng lẻ của HQC
+-  TCB: Báo cáo kết quả giao dịch cổ phiếu của người có liên quan đến người nội bộ Hồ Thủy Anh
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 14/12/2023
+-  HNX: Kết quả giao dịch tự doanh theo mã chứng khoán ngày 14/12/2023
+-  High Court to hear BNP leader Mirza Fakhru’s bail plea on Sunday
+-  Mocny wzrost europejskiego rynku akcji na początku sesji
+-  Como bat caliente: Ohtani supera a Messi
+-  Top 7: Logros culturales de 2023
+-  Persisten 10% los decesos en exceso; secuelas de la Pandemia
