@@ -1,11 +1,11 @@
 # Latest News
--  Vest politidistrikt etterforsker identitetstyverier knyttet til Nav
--  Ái nữ nhà tỷ phú Johnathan Hạnh Nguyễn flex một thứ hội con gái hiếm lắm mới dám để người khác thấy
--  Xác minh clip CSGT dùng chân đạp xe máy của thanh niên ở TP HCM
--  3 nơi trong nhà ẩn chứa bí mật giúp con cái nổi trội, đặc biệt là nơi thứ 2: Nhiều cha mẹ vẫn bỏ qua
--  Cloud kitchen startupCurefoods Names Avani Davda As Board Member
--  WTA : récompensée aux WTA Awards, Ons Jabeur remercie la WTA
--  Ünlü müzisyen apar topar hastaneye kaldırıldı: İşte sağlık durumu!
--  Yrittäjä Kyösti Kakkonen jyrähtää lakkolaisille: "SAK on tullut poliittiselle tontille, jonne sillä ei ole valtakirjaa"
--  Yrittäjä Kyösti Kakkonen jyrähtää lakkolaisille: "SAK on tullut poliittiselle tontille, jonne sillä ei ole valtakirjaa"
--  Celebrate the New Era of Bradlees in Wayne, NJ: Grand Re-Opening Under New Ownership!
+-  Szłapka: nie będziemy zwlekać z wnioskiem o wypłatę KPO
+-  EBOiR zainwestował w Polsce rekordowe 1,2 mld EUR w 2023 r.
+-  Nye Borgerlige og DF bakker fortsat op om Ukraine
+-  Nye Borgerlige og DF bakker fortsat op om Ukraine
+-  احذف الـ (لا) لتقرأ المشهد
+-  سؤال محرج للغاية لرئيس وزراء بريطانيا بشأن اطفال غزة - فيديو
+-  الاحتلال يمهل مستشفى كمال عدوان 4 ساعات لإخلائه
+-  British boy Alex Batty who vanished during a holiday in Spain is found alive in France six years after being ‘kidnapped’
+-  Cong denounces "murder of democracy"; slams govt over suspension of MPs
+-  Le Conseil de la nation adopte la loi de finances 2024
