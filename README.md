@@ -1,11 +1,51 @@
 # Latest News
--  Cameroun :: Après Maroua Et Guider L’entreprise Norvégienne Scatec Injectera 36 Mw En 2024 Dans Le Réseau Électr :: Cameroon
--  ‘X-Men 97’ revela dos villanos que debutarán en la nueva serie animada
--  İsmail Kartal'dan kupa açıklaması!
--  Filistin'den İsrail askerlerinin cami provokasyonuna tepki
--  משפחות החטופים נועדו עם נשיאת הצלב האדום, וזעמו: לאן נעלמתם? חייהם בסכנה ממשית
--  Dzeko, Ferdi'yi öve öve bitiremedi!
--  “이러다 50년 뒤에도 은퇴 못할 판”…일할 사람 ‘반토막’ 난다는데
--  Polen: Wir fahr’n nach Łódź!
--  Makeup artist reveals exactly WHICH kind of brush you should use to apply every different type of cosmetic... so, have YOU been doing it correctly?
--  النوم في غرفة مظلمة أم يكون الضوء خفيف؟ ايهما افضل لصحتك.؟ ستدهشك الاجابة.. !
+-  أخصائية تكشف خطورة الإنفلونزا على صحة الحوامل
+-  عاجل.. مساند تكشف إمكانية نقل كفالة عاملة منزلية لطفل تأهيل
+-  Orbán wycofał groźbę weta. Unia rozpocznie rozmowy członkowskie z Ukrainą
+-  Ko je kavčanin Mladen Samardžija, koji je “pao” na Jahorini: Jedan od najtraženijih bjegunaca, u lancu krijumčarenja droge bio zadužen za heroin
+-  إحصائيات الشوط الأول من مباراة برايتون ضد مارسيليا
+-  విజయానికి తిరుగులేదు, ఓటమి శాశ్వతం కాదు!
+-  Ex Lazio | Behrami: "A Roma c'era un giocatore che usava l'estintore"
+-  Berkenan sertai acara riadah pagi bersama delegasi YLP
+-  مرتبات الولايات-قبل أن تصبح النقنقة دوشة!
+-  Golaço da Série B 'ganha o mundo' e vira finalista do Prêmio Puskás; Veja lance
+-  SUV: a grande novidade da Stock Car para o carro de 2025
+-  Сенат США відклав святкові канікули через переговори щодо допомоги Україні
+-  Yankees Potential Free Agent Target: Woo Suk Go
+-  한국은행 보고서에 담긴 ‘인구 소멸 막을 6가지 방법’ [뉴스 쉽게보기]
+-  ¡Renunció! Esta famosísima figura le dijo chau al Bailando: qué pasó
+-  Sahnede kalp krizi geçiren şarkıcı hayatını kaybetti!
+-  Viernes de nubes y claros con la consolidación de un potente anticiclón en Galicia
+-  Nikad uzbudljivija Potjera, imali 18 točnih u završnoj: Krešo napravio neočekivan potez
+-  Vários computadores antigos usavam cassetes. Sabe porquê?
+-  David Haye branded Helen Flanagan ‘ditzy’ and ‘smelt of fake tan’ in cruel comments before secret dates
+-  Liga Europa: Roma de Mourinho vai ao play-off e pode encontrar Benfica ou SC Braga
+-  ప్రజల నమ్మకం పోగొట్టుకున్న ఉద్యమ నేత
+-  Fallece Andy García, popular imitador de Shakira, por complicaciones de salud
+-  Gabriel Suazo se viste de héroe y anota el gol de la victoria del Toulouse en Europa League: Revisa la anotación
+-  Prof. V. Šikšnys – apie labiausiai džiuginančius CRISPR-Cas9 laimėjimus ir naujausius tyrimus
+-  DSS Mobilises Media, CSOs For National Devt
+-  Alemanha comemora 250 anos do pintor Caspar David Friedrich
+-  Como colocar vídeo nas Notas do Instagram
+-  تقييم فريق برايتون في الشوط الأول ضد مارسيليا
+-  Obradović: Nadam da će Dimitris sada malo uživati u životu
+-  Dangote Cement marks Host Community Day with multi-million-naira empowerment programmes
+-  Pallad zdrożał najmocniej od marca 2020 r. To zasługa sankcji, które… nie objęły metalu
+-  Los sindicatos piden el cese de la directora gerente de Distrito Sanitario Jaén-Jaén Sur
+-  Ropa po gwałtownym wzroście najdroższa od dwóch tygodni
+-  Researchers call for changes to tackling chronic pain in children
+-  “Un Héroe”: Mujer y su perro fueron salvadas por vecino durante incendio en edificio de Bogotá
+-  VIDEO Pogledajte kako su igrači Zrinjskog s navijačima proslavili podvig protiv Aston Ville
+-  This new portable USB4 drive may resemble a sleek, silver heatsink, but it packs a punch when it comes to performance, all at an affordable price
+-  منازل احترقت ومساجد دُنست .. مشاهد مروعة للدمار في جنين - فيديو وصور
+-  China apoya a bancos pequeños con US$ 29.000 millones
+-  إن بي سي : مشاكل نتنياهو الشخصية قد تورط أمريكا في كابوس إقليمي
+-  "NEMOJ BRALE MNOGO DA SE UOBRAZIŠ": Premijerka o omiljenom spotu iz kampanje - To je ključ ove kampanje
+-  Partizan dalekometnom paljbom srušio Zelenu šumu
+-  పదేళ్ళ తర్వాత కూడా అవే సమస్యలతో ఉపాధ్యాయులు!
+-  Ugledni novinar otkrio strašne priče o zloglasnom kultovima: ‘Podvrgli su me hipnozi 16 puta’
+-  V Taliansku vyšetrujú chirurga za údajný podvod: Operoval aj pápeža Františka!
+-  Sciopero venerdì 15 dicembre: da Roma a Milano, gli orari aggiornati nelle principali città
+-  Scratching beneath the surface: How bacteria make out skin itch
+-  В Йемене хуситы напали на контейнеровоз Maersk в Баб-эль-Мандебском проливе
+-  No todo lo que brilla es oro: el Tesla Model 3 no envejece de la mejor manera y esta son las razones
