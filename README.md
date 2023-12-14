@@ -1,51 +1,11 @@
 # Latest News
--  كيف تتخلص من متلازمة الأكل الليلي؟
--  نصف مستخدمي أدوية السكري الجديدة أقلعوا عنها بسبب آثارها الجانبية
--  FM Directs PSGICs To Deploy Surveyors In Cyclone Michaung Impacted Region For MSME Claims
--  Study Group To Recommend Changes In Maharashtra’s New Textile Policy
--  Nowy minister rozwoju: chcemy kontynuować program dopłat do kredytów
--  Wike Celebrates Birthday With FCT Workers Amid Rivers Crisis
--  Były „król obligacji” nie oczekuje dużego spadku ceny obligacji 10-letnich USA w przyszłym roku
--  Video: Sẵn sàng cho sự thành công của Đại hội Hội Nông dân Việt Nam lần thứ VIII
--  SHBA-ja paralajmëron zgjerimin e listës së zezë në Maqedoninë e Veriut
--  Penangs berühmte Street Art: „Malaysias Antwort auf Banksy“
--  SRBIJA JE OBOŽAVALA OVU CRNOGORSKU GLUMICU Igrala je Miljanu, najbolju drugaricu Bojane Bačić u seriji "Budva na pjenu od mora": Dobila je sina, a evo kako danas izgleda
--  Vrachtwagen rijdt bedrijfspand binnen in Lunteren
--  삼진제약 조규석·최지현부사장 사장 승진 ... 창업세대 2선 후퇴
--  [제약24시] HK이노엔, 5번째 걸음기부 캠페인 성료
--  [의료24시] 전북대병원, 아동학대 전담의료 활성화 우수기관에 선정
--  환자유래 이종이식 모델로 뇌종양 맞춤 치료길 연다
--  "DANAS SAM LUDA, HOĆU DA UBIJEM NEKOG" Jezive reči devojčice iz Francuske koja je ponela nož u školu kako bi IZBOLA nastavnika
--  Vrachtwagen rijdt bedrijfspand binnen in Lunteren; geen gewonden
--  Stevandić: Srbiju može voditi samo Vučić
--  Tinubu’s Minister Denies Proposing N1.6 Billion Budget For Foreign Trip
--  مديرية أمن بنغازي تضبط أحد أفراد تشكيل عصابي سرق معدات مواطن تقدر بـ 90.000 ألف دينار
--  Nausėdos patarėja nemano, kad atblokuotos lėšos pakeis Vengrijos poziciją dėl Ukrainos
--  삼진제약 조규석·최지현 부사장 사장 승진
--  Sipho Mbule shines as Mamelodi Sundowns secure victory
--  „Eine Situation, die unerträglich ist“: Zentralrat der Juden vor Gemeindetag in Berlin
--  רועי מלדסי תמיד ידע שהוא רצה להתגייס לגולני - ונפל בעזה: "היה גיבור"
--  מכות במנהרה, עקיצות במסע"ת: יאניס לא נרגע אחרי הלילה ההיסטורי
--  Winter Wonderland is the new Appleby Horse Fair: Why 'every traveller in the country' is going to the Hyde Park attraction (and planning outfits weeks in advance)
--  OPPO A18 สมาร์ตโฟนน้องเล็กคุ้มค่าทุกการใช้งานให้คุณเป็นเจ้าของได้ง่ายขึ้นในราคาใหม่ เพียง 4,199 บาทเท่านั้น!
--  Öğretmen ataması ne zaman yapılacak; branş dağılımı ve kontenjanları açıklandı mı? İşte 2024 Öğretmen atama takvimi!
--  ABD: Yemen'den yollanan İHA Kızıldeniz üzerinde durduruldu
--  Hrant Dink'in katil zanlısı Ogün Samast isim değişikliği talebinden vazgeçti
--  ABD'de 886 milyar dolarlık savunma bütçesine onay
--  Acının resmi
--  Haritada Aykut Kocaman ismini görenler şaşırıp kalıyor! Dikkat çeken olay Sivas'ta yaşandı
--  Lugano-Beşiktaş maçının 10 şifresi
--  "Astoria Grande" Amasra'ya demirledi
--  İstanbul'da terör örgütü PKK operasyonu
--  Beşiktaş'ta Mert Günok yerine Ersin
--  Madonna sjell poza provokuese me veshje lëkure
--  Güney Kore, KADIZ'a girerek ihlalde bulunan Çin ve Rus uçaklarına karşılık verdi
--  ROG Phone 8 確認 CES 2024 亮相，機身外觀大改搶先看
--  Waa Maxay Sababta Ayna Man United Shaqada Uga Caydhin Karin Erik Ten Hag.
--  에누리 가격비교, 가격구독 서비스 최저가 알림 기능 도입
--  영월 주천면 신흥농장, 사랑의 연탄 1000장 기부
--  경산시, 안전한국훈련 ‘최우수상’ 수상
--  서대문구 홍은1동, 겨울맞이 사랑의 김장 나눔 박수 받아
--  한국생활개선 영월군연합회, 영월장학회에 장학금 기탁
--  수성구보건소, ‘지역사회 음주폐해예방사업 우수사례 공모전’ 보건복지부장관상 수상
--  개인택시 영월군지부, 영월장학회에 장학금 기탁
+-  Save young recluses
+-  Zelenskyy coal
+-  Korea's population projected to shrink to 36 mil. by 2072: Statistics Korea
+-  Former PM's new third party to shake up general elections
+-  Canadian 3-star general takes office as new deputy UNC chief
+-  Philippine House of Representatives joins Sunfull movement
+-  College entrance info fair
+-  Top court issues first conviction under stalking law
+-  ABD Senatosu 886 milyar dolarlık Ulusal Savunma Yetkilendirme Yasa Tasarısı'nı onayladı
+-  Muhteşem ikili Fırtına'yı sırtladı
