@@ -1,11 +1,11 @@
 # Latest News
--  وزير الخارجية يدعو دول مجلس الأمن دائمة العضوية لتكثيف مساعي وقف إطلاق النار في غزة
--  توضيح من الزكاة بشأن إعفاء خدمات التعليم الأهلي من رسوم ضريبة القيمة المضافة
--  عاجل.. في الساعات الأخيرة.. حساب المواطن يجيب على سؤال ملح بسبب تحديث البوابة الإلكترونية
--  وزير الخارجية يبحث مع نظيره البريطاني تطورات الأوضاع في غزة وخطوات وقف إطلاق النار
--  "الصلاة لوقتها".. تفاعل كبير مع شابين أديا الفريضة على باب الطائرة
--  AT&T is Rivian’s latest EV customer following #amazon deal
--  Bakan Bolat 'En yüksek seviyelere ulaştı' diyerek duyurdu: Üretim öncülüğünde büyüme aralıksız devam edecek
--  Bakan Fidan Gazze diplomasisini Norveç'te sürdürecek
--  최수영, 압구정서 20대男에 헌팅 당한 일화 "남친 있다고 하니 연애한 지 얼마나 됐냐고" [조목밤]
--  [오늘의 운세] 12월 15일 오늘의 띠별 운세
+-  ساركوزي يتحدث عن تهديد لإسرائيل
+-  الاحتلال يعرض أموالا لمن يدلي بمعلومات عن قادة حماس في غزة
+-  Nataša Rapaić imenovana predsjednicom Uprave HT-a, a Kostas Nebis 1. srpnja 2024. odlazi iz najjačeg domaćeg telekoma
+-  Frosty Lovers uit Ede bereikt Noordkaap Challenge met EdeStad
+-  Sparvorschläge für die Ampel – Ansage
+-  heise+ | IdeaPad Flex 5i: Chromebook Plus von Lenovo im Test
+-  PM Dahal to drop underperforming ministers
+-  Commissioner Chand stresses promotion of good governance
+-  Un estudio revela que desayunar y cenar temprano puede reducir el riesgo cardiovascular
+-  Emanato il Decreto che norma il processo amministrativo telematico
