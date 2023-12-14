@@ -1,11 +1,51 @@
 # Latest News
--  Chưa từng có trong lịch sử: Bộ phim bị cắt suất tham dự Oscar vì lựa chọn sai lầm của nam chính
--  Trend cắm cành và quả tại nhà ngày càng lên tầm cao mới, đến cà pháo, vải, táo mèo cũng thành vật trang trí
--  Senvita tiên phong nâng tầm giá trị hoa sen Việt
--  Nhân đôi cơ hội trúng iPhone 15 Pro Max 256GB cùng Ngân hàng KBank với đợt dự thưởng lớn nhất mừng lên 2 tuổi
--  Những ngành học có xu hướng phát triển mạnh trong tương lai
--  HP 15s i3: Giải pháp trọn gói đáp ứng các tác vụ văn phòng, học tập, giải trí
--  Khám phá Giáng sinh 'Season of Love' có 1-0-2
--  Công việc lương từng cao top 2 Việt Nam: Có thể đến 120 triệu đồng/tháng nhưng "cái giá" không hề rẻ
--  Triệu phú chỉ cách ứng xử khi người thân mượn tiền: Từ chối cho vay nhưng làm 1 điều để không có lần thứ 2
--  NLG: CBTT về việc thay đổi vốn đều lệ công ty
+-  Bakan Şimşek İspanya'ya gidiyor
+-  İnebolu'da karaya oturan gemi römorkör yardımıyla kurtarıldı
+-  بنك ABC في الأردن يستمر في تقديم الدعم لجمعية هدية الحياة الخيرية
+-  بواكير الأبعاد الاقتصادية للحرب على غزة
+-  أسوأ ما تفعله عند الاستيقاظ في منتصف الليل
+-  حيلة سحرية للقضاء على رائحة الملفوف المزعجة أثناء الطهي
+-  Kwakman spot 'oerdom' moment bij Feyenoord: 'Never nooit teruggedraaid'
+-  पराली जलाने पर हर हाल में रोक लगाने का सुप्रीम आदेश
+-  Tinejdžeri sa kuće skinuli i otuđili kamene pragove, vrijednosti oko 2 tisuće eura. Policija ih našla kod njih
+-  AP News: అంగన్వాడీలకు ఉన్నతాధికారుల బెదిరింపులు
+-  NAPRAVITE SAMI PASTU ZA ZUBE Kad probate ovu domaću, nikada je više nećete kupiti, a imaćete holivudski osmeh
+-  Uttarakhand Government looks to open more de-addiction centres in state
+-  76 पुराने और अप्रचलित कानूनों को रद्द करने वाला बिल राज्यसभा में पास हो गया
+-  La AEMET avisa del tiempo en Zaragoza hoy, 14 de diciembre
+-  Tesla'nın robotu Optimus, insanların yerini alacak: Yeni video yayınlandı!
+-  Dansk efterretningschef: Putin står snart klar med 350.000 soldater ved NATOs svageste flanke
+-  Dansk efterretningschef: Putin står snart klar med 350.000 soldater ved NATOs svageste flanke
+-  Veliko sekali zaradi ujm in lubadarja
+-  यदि कोई प्रेमी प्रेम में असफल होने पर आत्महत्या कर लेता है तो प्रेमी पर कोई मुकदमा नहीं चलेगा
+-  বাউল জালাল নূরীর কাছে গানই সবকিছু
+-  Elon Musk merge la Roma pentru un miting de dreapta
+-  মৃদু শৈত্যপ্রবাহ, আবার ঘন কুয়াশার পূর্বাভাস
+-  한국외대, 대학진로탐색캠프 운영대학 2년 연속 '매우 우수'
+-  Biatlonci so tekmovali na Pokljuki
+-  Povećan broj napuštenih pasa u Zenici, policija će kontrolisati vozila i identifikovati one koji ih dovoze
+-  Anthrax outbreak hits Zimbabwe
+-  AZ laat fans thuis voor wedstrijd in Warschau en dat is volgens expert heel verstandig: ‘Genoeg reden tot zorg’
+-  2 Zerzer-Beschlüsse versenkt: Räumt Sonderkommissarin Pechlaner auf?
+-  Ireland’s weather services are getting boosted with AI
+-  L’UE consentirà a Spotify di indirizzare gli utenti verso altre opzioni di pagamento su iPhone
+-  Esta es la ciudad española en la que nunca ha caído el Gordo de Navidad
+-  Esta es la ciudad española en la que nunca ha caído el Gordo de Navidad
+-  “중·러 군용기 6대, 동해 KADIZ 진입 후 이탈”… 합참 "전투기 투입 전술조치"
+-  제2회 횡성군그라운드골프협회장기 대회 개최
+-  강원지역 고액·상습 체납자 '113명'… 국세청, 전국 7966명 명단 공개
+-  강원테크노파크-상지대, 반도체 교육센터 임시운영 위한 업무협약 체결
+-  눈꽃이 피어나는 겨울왕국 남이섬, 겨울축제 준비 한창
+-  원주 무실5작은도서관, AICE 퓨처 자격시험 초등생 합격자 배출
+-  구내식당서 식사 중 의식 잃은 직원 응급처치로 구한 쌍용C&E 동료들
+-  ‘인구 4명중 1명 노인’ 동해시, 200억 투입 노인일자리 확대
+-  원주 기업들 수출 저력 과시… 강원수출대상 11개 부문 중 5개 상 수상
+-  En esta ciudad nunca ha caído el Gordo de la Lotería de Navidad
+-  Erste Bilder: So glamourös wird die „Helene Fischer Show“ im ZDF
+-  Erste Bilder: So glamourös wird die „Helene Fischer Show“ im ZDF
+-  A Destiny 2: Legacy Collection lett az Epic Games Store aktuális ingyen játéka
+-  Los premios de la Lotería de Navidad 2023: esta es la lista completa
+-  Avukatı açıkladı: Ogün Samast ismini değiştirmekten vazgeçti
+-  Bond Yields Decline Post Federal Reserve Rate Decision
+-  ग्लोबल आइएमई क्यापिटलको १६औं वार्षिक साधारण सभा पुस २२मा
+-  एकैदिन २ हजार ८०० रुपैयाँले बढ्यो सुनको मूल्य
