@@ -1,51 +1,51 @@
 # Latest News
--  محاكمة 26 متهما بـ"حرق نقطة شرطة المنيب".. اليوم
--  عضو "الشيوخ": إقبال الأقباط على التصويت بالانتخابات الرئاسية لم يسبق له مثيل
--  الماسكارا الملونة.. إطلالة ساحرة لشتاء 2023/2024
--  삼경해외선물, 리딩방 먹튀 불법업체 근절 캠페인 진행
--  수면 상태에도 ‘월요병’ 있다… 에이슬립, ‘2023 수면 리포트’ 발간
--  ‘VANESSA MATTIA(바넷사맛티아)’, 2023 한국소비자베스트브랜드대상 1위 수상
--  ‘HEALOINE(힐로인)’, 2023 한국소비자베스트브랜드대상 1위 수상
--  전북기계공고 동문회, 부천 취약계층 130가구에 쌀 1300kg 기탁
--  안양과천교육청, 영재교육원 2곳 68명 수료식 가져
--  안양시, 여가부 ‘가족친화 우수기관’ 재인증
--  안양시, 기초단체 최초 ‘스마트도시 국제표준 인증’ 획득
--  자총 하남시지회-북한이탈주민, 따뜻한 겨울나기 2년째 감장나눔
--  ‘아이앤비코리아’, 부천지역 아동·장애인 시설에 공기정화기 100대 기탁
--  내일 중부지방 많은 비…강원 산지 최대 30㎝ 이상 눈
--  '서울의 봄'의 힘…한국영화 11월 매출, 팬데믹 이전 70％ 회복
--  Lo ejecutan en un gym de Cancún
--  Hypertrophic Cardiomyopathy Pipeline Research Report 2023 Featuring Cytokinetics, Imbria, Bristol-Myers Squibb, Tenaya Therapeutics, Lexeo Therapeutics, and BioMarin
--  Hết thời cho doanh nghiệp dùng đòn bẩy “ôm” nhiều dự án cùng lúc?
--  I-T appellate tribunal pulls up income tax dept for denying section 54 benefit to taxpayers who failed to deposit LTCG | Details
--  Ale Fuller, Renato Rossini Jr y Junior Silva fueron enviados a Noche de Sentencia en El Gran Chef Famosos: La Revancha
--  شاهد بالفيديو.. الفنان مأمون سوار الدهب يرد على هجوم معجباته بعد إعلان خطوبته ويلوح بالدبلة ويغني (دبلة شنو البدلتو بيها هواي أنا) والفتيات يعلقن: (دي مغرزة منك بس ما اكتر)
--  Milene Vázquez, ‘Loco’ Wagner y Mayra Goñi pasaron a la siguiente ronda de El Gran Chef Famosos: La Revancha
--  Vishnu Deo Sai takes oath as Chhattisgarh CM
--  Israel continues with Gaza offensive despite US criticism
--  Russian missiles injure over 50 in Kyiv
--  Kẻ vui người buồn vì chip điện tử khó lòng ‘nhỏ’ thêm nữa: Khi cuộc đua bán dẫn đến điểm giới hạn và bí mật đằng sau sự trở lại của Huawei
--  Saudi Arabia Open to Joint Investment in Global Mines with S. Korea: Riyadh Minister
--  Kyrgyzstan: Domestic Violence Against Women, Girls with Disabilities
--  Fahmi akan bertemu Google selesai isu kandungan lucah di YouTube
--  Bybit stellt seine Web3-Vision vor: Wegweisende Einfachheit, Offenheit und Gleichheit im dezentralen Ökosystem
--  Bybit revela sua visão da Web3: Pioneirismo em simplicidade, abertura e igualdade no ecossistema descentralizado
--  जैविक उर्जा ‘फेजआउट’ र हिमालका मुद्दामा सहमति
--  민주 인재영입 2호, ‘엔씨소프트 출신 기업인’ 이재성은 누구?
--  홍준표, 김기현 사퇴에 “이참에 용산 홍위병도 정리해야”
--  마지막 ‘F4’ 회의 참석한 추경호에 한은 총재가 건넨 말은?
--  “이재명 물러나고 통합비대위 가야…유죄 판결 위험 방치 안 돼”
--  3살·1살 자녀 던지고 폭행한 30대 부부, 실형 확정
--  ‘11번째 비대위’ 체제로 총선 가는 與…‘박근혜 성공사례’ 기대?
--  Masías exigió más concentración a Renato Rossini Jr al verlo distraído con Ale Fuller | El Gran Chef Famosos: La Revancha
--  В Новосибирске арестовали обвиняемого в попытке подрыва военкомата
--  Parliament Security Breach: आरोपियों ने पुलिस के सामने ही चलाए स्मोक केन, किरकिरी के बाद विभाग ने की आपात बैठक
--  FUEVFVND: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEMAV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEKIV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEKIVFS: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEDCMID: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEFCV50: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUEVN100: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  E1VFVN30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
--  FUESSV30: Thông báo về danh mục chứng khoán cơ cấu hoán đổi ngày 14/12/2023
+-  Rəfaha sığınan qəzzalılar...
+-  Bakıdan Laçına...
+-  강원 북부산지에 대설주의보
+-  국민 비대위원장 누구… 김한길·한동훈·원희룡·인요한 등 거론
+-  尹대통령 "참전용사 희생에 폐허 딛고 일어나 번영"
+-  김기동 감독, 서울 사령탑 선임…"서울의 영광 재현하겠다"
+-  대구 달성 현풍 공장 화물차서 추락··· 30대 남성 심정지
+-  손흥민, 시즌 4번째 '멀티 공격포인트' 도전…16일 노팅엄 원정
+-  롯데, 구단 공식 협력병원과 함께 사회공헌 기부금 전달...사회적 책임 실천 앞장
+-  Nhiều nam giới cứ khó có con là đổ thừa tại vợ
+-  Công ty đăng ký 'dịch vụ cầm đồ' lừa dân gửi tiết kiệm hàng chục tỉ đồng?
+-  Đau nửa đầu vì thói quen xấu của người bên cạnh
+-  Bắt 2 tù nhân trốn trại giam cách biên giới Campuchia 1 cây số
+-  Hạ viện Mỹ chính thức cho phép điều tra luận tội Tổng thống Biden
+-  Hành trình xây dựng thương hiệu gạo hữu cơ Hoa Nắng
+-  Trà Long của Mắt biếc bị chê khi đóng Liên và Đạt
+-  Nhân rộng những thành phố không thịt chó, tại sao không?
+-  Chiến sự với Hamas kéo dài: Lộ rạn nứt giữa Mỹ và Israel
+-  Belgi - Bánh kẹo Tràng An trên hành trình ‘lan tỏa tinh hoa, giao thoa quốc tế’
+-  Thời trang da cao cấp Khatoco chinh phục cánh mày râu
+-  Mở bán căn hộ cao cấp CT2 VCN Phước Long chỉ từ 799 triệu đồng
+-  THACO dự kiến đầu tư nông nghiệp quy mô lớn tại Campuchia
+-  Điểm tin 8h: Bình Dương chuyển nhượng khu đất hơn 5.000 tỉ cho doanh nghiệp Singapore
+-  Tin tức xe mới: Volkswagen Teramont X sắp ra mắt Việt Nam có gì
+-  Trời lạnh đột ngột, cẩn thận ngộ độc, đột quỵ
+-  Phát hiện chủ nhà chết dưới giếng
+-  Tránh kẹt xe cuối năm ở các công trình trọng điểm
+-  Cơ hội vàng cho thương hiệu gạo Việt Nam
+-  Nhánh bất động sản nào đang lội ngược dòng, lãi cao?
+-  Xử phạt hút thuốc lá nơi công cộng: 10 năm vẫn khó!
+-  Trường đại học Văn hóa TP.HCM có tân hiệu trưởng
+-  Vợ tôi chưa có căn cước công dân, làm sao để khai sinh cho con?
+-  Chất lượng ưu việt đến từ phòng nghiên cứu ADO E-bike
+-  3 trọng tài choảng nhau ở trận bóng rổ trẻ em, cảnh sát vào cuộc điều tra
+-  Xa rồi đạo học?
+-  Đắk Lắk vào mùa thu hái cà phê, vừa làm vần công, vừa canh chừng trộm cắp
+-  Thức ăn nào tốt cho người bị máu nhiễm mỡ?
+-  Một vé bầu cho phát triển bền vững
+-  Instagram Now Allows You To Post Short Videos As Notes: All Details
+-  Life Insurance Corporation of India Share Price Live blog for 14 Dec 2023
+-  [오피셜] FC서울, 김기동 감독 선임…"영광 재현하겠다"
+-  고봉재의 소개가 결혼으로…"한눈에 반했다" 김명신, 오는 16일 '품절남' 된다
+-  '4급 판정' 조병규 측 "현역 입대 위해 재검사 신청…내년 예정" [공식입장]
+-  Navin Fluorine International Share Price Live blog for 14 Dec 2023
+-  이순신의 마지막 전투 '노량', 사전 예매량 10만장 돌파 "시리즈 최고작이 온다"
+-  Campus Activewear Share Price Live blog for 14 Dec 2023
+-  Adani Wilmar Share Price Live blog for 14 Dec 2023
+-  Coal India Share Price Live blog for 14 Dec 2023
+-  Drie Japanse ministers stappen op vanwege onderzoek naar fraude
+-  บัตรคิวอยู่ไหนคะ ‘แม่เกรท วรินทร’ ประกาศตามหาลูกสะใภ้ (อีกรอบ) ยกทอง 55 บาทให้เลย
