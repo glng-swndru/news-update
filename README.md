@@ -1,51 +1,11 @@
 # Latest News
--  Scor : plus forte baisse du SBF 120 à la clôture du jeudi 14 décembre 2023 -
--  Thales, plus forte baisse du CAC 40 à la clôture du jeudi 14 décembre 2023 -
--  Ina Invest s'attend à un ajustement de l'évaluation du portefeuille immobilier en raison du contexte de marché
--  Notunterkunft: Kauf der Eifelhöhen-Klinik ist vom Tisch – Verträge enden Ende April
--  Carlsberg India and WaterAid India join forces to recharge water in Mysuru
--  IT Link en négociation exclusive avec Ciao Technologies Inc. en vue de l'acquisition de 100% du capital
--  SII : Suspension provisoire du contrat de liquidité confié au Crédit Industriel et Commercial
--  Alstom, plus forte hausse du CAC 40 à la clôture du jeudi 14 décembre 2023
--  BOA CONCEPT: King Jouet rejoue la carte BOA Concept
--  McPhy Energy : McPhy entre en négociations exclusives avec Atawey en vue de la cession de son activité stations de recharge hydrogène
--  JCDecaux et JOJ Media House vont fusionner leurs activités de communication extérieure en Slovaquie
--  La película que es tendencia en Netflix llena de suspenso y con Gael Garcia Bernal
--  Tesla com 1,9 milhões de kms? Sim, saiba como foi possível…
--  Сенатор: в России готовы предложить ясные правила развития ИИ
--  “Amábamos y odiábamos a partes iguales aquel Gran Bilbao Gris”
--  Seeing your own spatial video on Vision Pro is an immersive trip – and I highly recommend it
--  రైతులను ఆదుకోవటంలో ప్రభుత్వం వైఫల్యం
--  Fox Orders ‘Murder In A Small Town’ Drama Series Starring Rossif Sutherland & Kristin Kreuk Under New International Content Strategy
--  אסור לדחות את המהלך המדיני ליום שאחרי המלחמה
--  REALTY ONE GROUP의 고급 부동산 중개인으로 구성된 글로벌 네트워크 ONE LUXE, 기록적인 속도로 성장
--  Cate Blanchett, Coco Francini, Dr. Stacy L. Smith, & The USC Annenberg Inclusion Initiative Launch Proof Of Concept Accelerator
--  Dunki: SRK performs puja at Sai Baba temple in Shirdi with daughter Suhana
--  John Textor : « J’ai fait des choses formidables pour le business de l’OL, mais tout cela ne compte pas, car l’équipe ne gagne pas »
--  Frozen Food Bank Fundraiser wraps up
--  TSMC presenta la tecnologia a 1,4nm per i futuri iPhone
--  Le FTSE 100 bondit suite à l'euphorie de la baisse des taux américains
--  Drew McIntyre Says CM Punk Is ‘Big For Business” But He’ll Still ‘Drop’ Him
--  Schneider Electric : arrivée de Philippe Knoche au conseil d'administration
--  Reichshof-Chefin: „Wer nicht ausbildet, schafft Fachkräftemangel der Zukunft“
--  Cuánto cuesta cargar combustible en una Toyota Hilux tras los aumentos
--  Vom globalen Denken zum lokalen Handeln: Drei Bäume für die Kindertagesstätte Dhünnstraße
--  For some B.C. seniors, these are the only Christmas cards they’ll get
--  Tålamod och spets – så ska HIF-bygget hålla över tid
--  Όλες οι μοτοσυκλέτες του 2024 από την EICMA 2023 στο OPENTV
--  Straff för dödande slaget: Samhällstjänst
--  Evaluación innovadora en sanidad a dos velocidades para un cambio 'exprés'
--  Haushalt: Stadt Hamminkeln dreht kräftig an der Steuerschraube
--  Geek Preview: ‘Skull and Bones’ Remains A Ship Without A Sail
--  Megkezdődött a gazdák kifizetése
--  ‘BMF’ Casts Dominique “Lil Baby” Jones, Saweetie & Cynthia Bailey For Third Season Of Starz Drama
--  Gol Milan, l’attacco comincia a dare i suoi frutti: il dato
--  Finanz-Union AG hat die Weichen für die Zukunft gestellt
--  „Mega glücklich“: Baijens feiert Turbo-Comeback beim HSV Hamburg
--  NFL geht nach Südamerika – ab 2025 acht internationale Spiele
--  La FDA et la CPB saisissent des e-cigarettes illégales d'une valeur de 18 millions de dollars
--  Voiture électrique : le leasing social est enfin là, voici tout ce qu’il faut savoir
--  Accidente de tránsito en Camagüey deja 2 fallecidos y 15 lesionados (+fotos)
--  যারা বলবে নৌকায় ভোট দেবেন না, তাদের পেটানোর হুমকি
--  Recherche von stern und capital: Er versprach Traumreisen. Jetzt laufen Ermittlungen. Ist der Gründer von itravel ein Betrüger?
--  Recherche von stern und capital: Er versprach Traumreisen. Jetzt laufen Ermittlungen. Ist der Gründer von itravel ein Betrüger?
+-  Tennistähti Harri Heliövaaralta ikävä päivitys
+-  В Австралии помиловали «самую страшную серийную убийцу»
+-  Байдену не догнать Трампа?
+-  В Узбекистане откроют завод электромобилей
+-  Hessen-Koalition: getrennt präsentieren, gemeinsam regieren
+-  DN väljer: Här är 2023 års bästa album
+-  Μαρίνα Σάττι: Ήθελα να ήξερα πώς προέκυψε ότι απέρριψα 150 τραγούδια για τη Eurovision
+-  Za najveće institucije vlasti uvećani izdaci: Mandiću budžet 11, Milatoviću 1,4, a Spaјiću 1,2 miliona
+-  Scientists find hormone behind severe morning sickness
+-  Kickoff | CT Spurs continue to wield axe?
