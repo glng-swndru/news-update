@@ -1,51 +1,51 @@
 # Latest News
--  Pfizer shares sink after it resets 2024 COVID expectations
--  DEKRA launch the first Cybersecurity Testing & Certification Program for UAVs in cooperation with Taiwan's Telecom Technology Center (TTC)
--  No Taxpayer Funding for Chinese COVID-19 Tests: Rep. Harshbarger
--  Mueren 25 reses al electrocutarse con una guaya de alta tensión en Barinas
--  سائفر کیس کا ٹرائل ان کیمرہ ہوگا یا نہیں؟ فیصلہ آج ہوگا
--  افتتاح الورشة التدريبية في تربية لواء الشونة الجنوبية للتعامل مع حالات العنف
--  4.750 Stunden: Vervaet Hydro Trike Gülleselbstfahrer für 189.210 Euro #maschinedestages #gebrauchtmaschine
--  대만, 중공 스파이 무더기 적발…전현직 장교 10명 중공에 포섭
--  올해의 제주도체육상 대상 오예진 선정
--  멸종위기종 반달가슴곰 제주에 ‘보금자리’
--  Final 2023: Los jugadores que han vestido las camisetas de América y Tigres
--  Janhvi Kapoor ने अपने ग्लैमरस अवतार से बढ़ाया इंटरनेट का पारा, लेटेस्ट फोटोशूट में बोल्ड अवतार में आईं नजर (View Pics)
--  “중대한 실수를 저질렀습니다”... 홀란드 극대노한 맨시티-토트넘 경기, 결국 오심 인정
--  '日 공격수' 후루하시, EPL 입성 가능성 제기...불법 베팅 공격수 대체자로 브렌트포드가 노린다
--  “이게 팀이야?” 맨유, 조별리그에서만 15실점→챔피언스리그 신기록 작성
--  Live-In Partner Kills For Denying Sex: सेक्सला नकार, पुरुषाकडून लिव्ह-इन पार्टनरची हत्या; मृतदेह खोलीत भाड्याच्या खोलीत लपवला
--  SK Group Unveils Climate-Free Future Theme Park at CES 2024
--  จะรบจนกว่าชนะ! "เนทันยาฮู" เมินมติ UN หยุดยิงกาซา
--  PAC: Thông báo về ngày ĐKCC tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
--  BCM: CBTT Nghị quyết HĐQT thông qua phát hành riêng lẻ 1.300 tỷ đồng TPDN
--  BID: Báo cáo kết quả phát hành cổ phiếu để trả cổ tức
--  FUEKIV30: Thông báo ngày ĐKCC chốt danh sách NĐT để tổ chức ĐH NĐT bất thường lần 1 năm 2024
--  «Марказий Осиё + Кўрфаз араб давлатлари» вазирлар йиғилиши Ўзбекистонда ўтказилади.
--  BID: CBTT điều chỉnh BCTC riêng lẻ và Hợp nhất đã kiểm toán năm 2022 theo kết luận của kiểm toán nhà nước
--  Норвегияда жосуслик учун ҳибсга олинган шахс ўзини россиялик деб атади.
--  FUESSV30: Báo cáo kết quả giao dịch chứng chỉ quỹ của tổ chức có liên quan Quỹ Hưu Trí Độc Lập
--  FUEKIVFS: Thông báo ngày ĐKCC chốt danh sách NĐT để tổ chức ĐH NĐT bất thường lần 1 năm 2024
--  Ўзбекистон тўқимачилик маҳсулотларининг Саудия бозорига экспорти кенгаяди.
--  Valve To Steam Deck Owners: Stop Huffing Its Vent Fumes
--  কুকুর জবাই করে মাংস বিক্রির অভিযোগে আটক ৫
--  Noida Road Accident: रोडवेज बस ने दो मोटरसाइकिल को मारी टक्कर, चार युवकों की मौत
--  الأردن .. لماذا تنتشر الفيروسات التنفسية وما علاقتها بكورونا؟
--  Mladík si objednal slúchadlá cez internet: Neuveríte, akú hlúposť mu namiesto nich poslali
--  Abhijeet Sawant says people are misinterpreting Ranbir Kapoor's Animal: 'Almost similar to Hitler...'
--  고양특례시 (재)고양국제꽃박람회 ‘제25회 대한민국브랜드대상’ 산업통상자원부 장관상(우수상) 수상
--  ভারী বৃষ্টি ও বন্যায় আরও দুর্ভোগে গাজাবাসী
--  Parliament Security Breach: সংসদের অন্দরে হামলা, গ্রেফতার ৫ অভিযুক্তের বিরুদ্ধে রাষ্ট্রদ্রোহ মামলা
--  په غزې کې له حماس سره پاتې یرغمل شوي څوک دي؟
--  Lainez asegura estar feliz en Tigres y lanza inaudita advertencia a su ex América
--  Qantas braces for its busiest day of year as holidays begin
--  Australia news live update: reports of looting during ex-Cyclone Jasper 'disturbing', Qld deputy premier says – latest
--  Australia votes for Gaza ceasefire: a blast from Albanese's past
--  Can Labor win the war on gambling advertising or will it capitulate in a brutal betrayal?
--  Court expected to rule next week to release convicted terrorist Abdul Nacer Benbrika from prison
--  상처어때, ‘스마트앱어워드 2023’ 의료분야 대상 수상
--  메타에듀시스, ‘메타버스 AI 심폐소생술 체험교육 VR’ 출시
--  경상북도 다문화가족 시낭송 콘테스트 성료
--  가평군 조종면 지사협, 상판리 주민 후원 연탄 500장 취약계층에 전달
--  가평읍주민자치회, 가평군에 장학금 100만 원 기탁
--  Dewan Negara: RM92.6 juta bayaran upah jahit seragam KKM
+-  Giá vàng SJC, vàng nhẫn lại tăng sốc
+-  Bụi phổi khiến nhiều công nhân tử vong ở Nghệ An: Căn bệnh nghề nghiệp để lại nhiều di chứng nặng nề cho người lao động
+-  Tổ chức các chuyến bay, chuyến tàu công đoàn miễn phí đưa công nhân về quê ăn Tết
+-  Quỷ Cẩu tung trailer chính thức, hé lộ câu chuyện rùng rợn về cái chết của ông chủ lò mổ
+-  Ý nghĩa đằng sau mật mã in trên vé máy bay
+-  2023 LCK 어워드, 2023년 올해의 선수 ‘페이커’ 이상혁
+-  Google Revealed The Top Searches In Australia For 2023, And Some Things Are Defs Missing
+-  यहां एक-दूसरे से बातें करती हैं कब्रें, जानिए कहां स्थित है यह अजीब कब्रिस्तान?
+-  [14일 안성시] 2년 연속 민간임대주택 관리업무 평가 우수기관 선정 등
+-  גלנט, היית מוכן לשלוח את ילדיך לגור בשדרות?
+-  דני אבדיה נצץ ורשם ציון דרך, וושינגטון שוב לא שמרה והובסה
+-  क्या मलायका अरोड़ा की वजह से अरबाज और जॉर्जिया का हुआ ब्रेकअप? सच सामने आ गया
+-  عاجل.. انخفاض درجات الحرارة ورياح متربة على مكة والمدينة ومعظم المناطق
+-  Netflix yeni yapımı ile dikkatleri üzerine çekti
+-  Orange County announces spending plan for $220M in Hurricane Ian relief
+-  Hard-fought COP28 agreement suggests the days of fossil fuels are numbered—but climate catastrophe is not yet averted
+-  Goldman Sachs Sees Crypto ‘Uptick’ In 2 Years; BTC Price To Reach $100K?
+-  Fed Plans for Three Rate Cuts In 2024, Altcoin Market Rally Continues
+-  ‘The Daily Show’ Brutally Mocks Trump’s Mugshot Trading Cards
+-  Time-Wasting Congress Should be Probing This Postal Worker’s Death
+-  Glasfaserausbau und der Kampf ums leere Rohr: Die Verbraucher sind die Verlierer
+-  Glasfaserausbau und der Kampf ums leere Rohr: Die Verbraucher sind die Verlierer
+-  Leerrohre: Wie die Telekom und ihre Rivalen um einen unterirdischen Schatz kämpfen
+-  Joulun kalapöytä on tehty sillistä, silakasta, lohesta ja merilevästä – vatkikset maistuvat myös sekasyöjille
+-  ‘Here’s what I got with me it’s only like 20 bucks’: Woman asked by rich people if she’s wearing Baccarat Rouge 540 perfume. She isn’t
+-  Tìm đơn hàng để nhà máy luôn sáng đèn
+-  Formalizirana istraga o opozivu Joea Bidena: Je li predsjednik imao koristi od poslova sina Huntera?
+-  DEBATT: Omöjligt för många att uppfylla barns önskemål
+-  ”Regionerna får inte slarva bort läkares fortbildning”
+-  Paket aus Taiwan: Uwe Görsdorf aus Dorsten soll 3.000 Euro Zollgebühren zahlen
+-  „Fest der Liebe“?: Warum es an Weihnachten oft Streit gibt – und was man dagegen tun kann
+-  „Bremerhaven-Krimi“ in der ARD: Kaltblütige Containerwelt - TV-Kritik
+-  Transfer Lewandowskiego jest naprawdę mozliwy! Najnowsze informacje
+-  Bu alışkanlıklar böbrekleri yavaş yavaş bitiriyor! Prof. Dr. İbrahim Saraçoğlu açıkladı: Böbreklerinizden olmayın
+-  Kiara Advani Net Worth: कितनी पढ़ी-लिखी हैं कियारा आडवाणी, करोड़ों की संपत्ति जानकर चौंक जाएंगे आप
+-  PKL 10: Tamil Thalaivas Pull Off Stunning Victory Against Telugu Titans
+-  [14일 인천시교육청] 미활용 폐교 활용방안 모색 위한 협의회 실시 등
+-  Galería: Rinden protesta 653 nuevos agentes
+-  Avalan Cuenta Pública 2021 con 10 mil mdp sin comprobar
+-  Στη Σύνοδο Κορυφής της Ε.Ε. ο Κυριάκος Μητσοτάκης με αιτήματα για μεταναστευτικό και φυσικές καταστροφές
+-  Joe Biden, Trump’ın kaderini yaşadı
+-  Warner's ridiculous ramp shot
+-  Real Time Crime Season 2 Streaming: Watch & Stream Online via HBO Max
+-  용인시, 12월 정기부 자동차세 303억원 부과
+-  오피스텔 월세 고공행진…서울 50만원대 이하 비중 최저
+-  Saudi prosecution issues arrest warrant for man who appeared in animal shooting video
+-  Krieg gegen die Ukraine: Selenskyj drängt auf den Beginn von EU-Beitrittsverhandlungen
+-  Krieg gegen die Ukraine: Selenskyj drängt auf den Beginn von EU-Beitrittsverhandlungen
+-  병무청, 작년 병역기피 355명 공개…전 금융위원장 아들 포함
+-  ’کام ختم پیسہ ہضم‘ امیتابھ بچن کی پوسٹ نمبر 4858 نے تجسس بڑھا دیا
