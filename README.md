@@ -1,11 +1,11 @@
 # Latest News
--  عاجل.. قوات الأمن الخاصة تفتح باب القبول والتسجيل للإلتحاق بالوظائف العسكرية
--  انتهز الفرصة.. الشروط وطريقة التقديم على وظائف الهيئة الملكية لمحافظة العلا
--  أخبار السعودية.. مفاجأة بشأن ظهور نتائج فحص الزواج وتسجيل الأرامل والمطلقات في الإسكان التنموي
--  ΤτΕ: Αυξήθηκε κατά 1,3% το ενεργητικό των Ταμείων Επαγγελματικής Ασφάλισης το γ΄ τρίμηνο
--  Three witnesses fail to appear before TADA court in cases involving Yasin Malik
--  سرايا القدس تعلن قصف تجمعات عسكرية إسرائيلية في حي الزيتون
--  حزب الله يعلن استهداف تجمع للجنود الإسرائيليين
--  مستحضرات تجميل بـ380 ألف جنيه.. ضبط المتهمة بالنصب على 5 سيدات في الدقهلية
--  طلاب الإسكندرية يحصدون المركز الأول بمشاريع التخرج في جامعة لويفيل الأمريكية - صور
--  القناة والتردد.. كيف تشاهد مباراة الأهلي واتحاد جدة بـ4 طرق
+-  المغرب يستقبل 13 مليون سائح عند متم نونبر 2023 محطماً الرقم القياسي لسنة 2019
+-  맨유에서 쫓겨나도 걱정 없는 이유…‘텐 하흐 원하는 독일 구단 있다’
+-  Azerbaijan disagrees with Armenia about troop withdrawal from border - FM
+-  Jim White shares what Everton fan messaged him about PL billionaire
+-  Banco de Inglaterra mantiene tasas de interés en sus cifras más elevadas en 15 años
+-  Best Marriage Contract K-Dramas List: My Demon, The Story of Park’s Marriage Contract & More
+-  Consejo de la Judicatura rechaza detención “arbitraria” y “sin sustento” de Wilman Terán
+-  Las listas de espera en Andalucía disparan las horas extra de los médicos hasta los 148 millones de euros en 2024
+-  وزير الخارجية الإيراني يلتقي وزير داخلية إقليم كردستان العراق في جنيف
+-  진보당 김재연, 의정부시을 총선 예비후보 등록
