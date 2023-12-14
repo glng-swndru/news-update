@@ -1,11 +1,11 @@
 # Latest News
--  المغرب يستقبل 13 مليون سائح عند متم نونبر 2023 محطماً الرقم القياسي لسنة 2019
--  맨유에서 쫓겨나도 걱정 없는 이유…‘텐 하흐 원하는 독일 구단 있다’
--  Azerbaijan disagrees with Armenia about troop withdrawal from border - FM
--  Jim White shares what Everton fan messaged him about PL billionaire
--  Banco de Inglaterra mantiene tasas de interés en sus cifras más elevadas en 15 años
--  Best Marriage Contract K-Dramas List: My Demon, The Story of Park’s Marriage Contract & More
--  Consejo de la Judicatura rechaza detención “arbitraria” y “sin sustento” de Wilman Terán
--  Las listas de espera en Andalucía disparan las horas extra de los médicos hasta los 148 millones de euros en 2024
--  وزير الخارجية الإيراني يلتقي وزير داخلية إقليم كردستان العراق في جنيف
--  진보당 김재연, 의정부시을 총선 예비후보 등록
+-  Aj tento typ oblečenia podlieha módnym trendom: Aká farba je skokanom roka?
+-  Sudkyňa Svetlovská sa vzdala funkcie členky Súdnej rady Slovenskej republiky
+-  NATO oznámilo zvýšenie svojho vojenského a civilného rozpočtu na rok 2024
+-  [ŽT] Zelenskis: Rusija nepasiekė nei vienos „pergalės“. Bet pradėjo „draugauti“ su šalimis
+-  „Neišgelbėjo“. Raudonojoje aikštėje nukirsta sovietų maršalo žirgo galva (Foto, Video)
+-  [ŽT] Neįtikėtina. „Sėkmingas naktinis reidas.“ „Ateš“ skelbia, kur pateko (Video, foto)
+-  [ŽT] Skambus pareiškimas. „Palestinos valstybės nebus“ (Video)
+-  [Vokietija] Fantastiška kalėdinė dovana tik 46€. Nuostabių galimybių skaitmeninis mikroskopas - puikus smalsiems
+-  Soccerladuma | Percy Tau Singled Out As Main Threat To Benzema, Kante & Co
+-  Izraelio tankas „Merkava 4“ gavo tiesioginį RPG smūgį. Kas nutiko po to (Video)
