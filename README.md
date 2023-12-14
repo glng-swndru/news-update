@@ -1,51 +1,51 @@
 # Latest News
--  عادة نخر الأنف قد تكون سببا للإصابة بمرض خطير
--  홍천군산림조합, 무궁화장학금 1,000만원 기탁
--  고성군 하일면 자란도, 새로운 뱃길 열리다
--  담양군, 2023년 농업실태조사 결과 공표
--  청송군, 2023 의약관리사업 평가 최우수상 수상
--  파주시, 초중고교 역사(국사)교과서에 ‘파주 덕은리 고인돌’ 수록 건의
--  의정부시 김동근 시장, ‘카페 무지개’로 경제일자리국 직원들 격려
--  가평군, 국공립 어린이집 확충으로 아이와 부모가 행복한 가평 만든다
--  청도 반건시 홍보를 위한 무료시식 행사 진행
--  «Было бы хорошо, если бы он убил его». Рамзан Кадыров - об избиении Журавеля его сыном
--  법사위, 오늘 특사경법 심사…의료계 "당장 중단" 반발
--  바이오산업 활성화 위한 협력, 韓 기업·전문가 경쟁력 높인다
--  SK플라즈마, 매출 성장 예상…CMO 사업으로 성장 '속도'
--  보건의료노조, 17일 의협 궐기대회에 여론조사로 맞대응 예고
--  مركبة ناسا تحتفل بمرور ألف يوم مريخي لمهمتها
--  '노량' 이규형 "김윤석, 내 머릿속 이순신 장군의 모습" [인터뷰①]
--  양종희 KB금융 회장, 계열사 대표 물갈이…이재근·이창권·김성현은 연임
--  절실한 레전드 GK, '언제든지 불러주세요!' Here we go 전문가 "뉴캐슬 이적 원하고 있다"
--  “중국산 마늘, 인분과 하수로 재배” 미 의원, 상무부에 조사 요청
--  عن "لفيتو" الثاني وصورة أميركا
--  메리쏘드, 배우 고민시와 함께한 ‘콜라겐 멜팅 립밤’ 화보 공개
--  Possible human trafficking ring in Hawke's Bay
--  "خرائط غوغل" تحصل على ميزات جديدة
--  Como balanceados e insuficientes califica Cuba saldos de COP28
--  Kerajaan Madani akhirnya contohi kabinet era PN
--  هواوي تتحدى آبل وسامسونغ بحاسبها اللوحي الجديد!
--  8 sai lầm bạn mắc phải khi trả nợ khiến nợ thêm nợ
--  Viral: 500 మిలియన్లకు పైగా వ్యూస్ సాధించిన ఈ వీడియోపై ఓ లుక్కేయండి.. ఈ ఏడాదిలోనే..
--  Manda Krishna Madiga: దొరల పాలన పోయి, పటేళ్ల పాలన వచ్చినట్లు కావద్దు
--  Serikali yataka Rais asihusishwe kuahirishwa maadhimisho CWT
--  সাধারণ জ্ঞান ও বুদ্ধিমত্তা প্রশ্নোত্তর - (৭৩) | ক্যাডেট কলেজে ৭ম শ্রেণিতে ভর্তি প্রস্তুতি ২০২৪
--  '팍팍한 나라 살림' 10월까지 52조 적자…국가채무 1100조 돌파
--  양천구, 지역예술가와 손잡고 골목상권 57곳 간판 정비
--  하남시, 국·도비 확보 TF팀 운영 본격화
--  연천군, 탄소중립 정책포럼 개최
--  연천소방서, 현장대원 안전 위한 감염방지위원회 열어
--  하남시, 내년 3월까지 미세먼지 계절관리제 시행
--  부안군·부안우체국, '우체국쇼핑 연도대전' 2년 연속 우수기관 선정
--  동두천양주교육지원청, 부설 영재교육원 수료식 개최
--  "올해 더 잘했다" 익산시민 시정 만족도 '긍정 86%'
--  성남도시개발공사, 지역사회공헌 인정기관 선정…최고 등급 획득
--  김해시, 공약실천계획평가 부산·경남 유일 최고 등급 획득
--  거창읍, '2023년 이장 정기총회' 개최
--  순창군, 20일 송년음악회 개최… 다양한 장르 공연 준비
--  부산관광공사, ‘부산 대·중·스 부터스(butours) 네트워킹 파티’ 개최
--  익산시, 문화유산 분야 전국 최고 지자체로 우뚝… 3관왕 쾌거
--  정읍시, 복지부 '보육정책 우수 지방자치단체' 선정
--  제346회 부안군의회 제2차 정례회 폐회
--  춘천 가축시장.가축시장 재개장… 방역 철저
--  국립군산대-전북·삼성 스마트 CEO포럼, MOU 체결
+-  Army of the Dead 2 Release Date Rumors: When Is It Coming Out?
+-  As the Crow Flies Season 1 Streaming: Watch & Stream Online via Netflix
+-  Rockets beat Grizzlies 117-104 and extend home winning streak to 11 games
+-  Petrol Diesel Price Today :यहां जानें अपने शहर में आज के पेट्रोल-डीजल के ताजा दाम
+-  Pittsburgh Penguins päihitti Montreal Canadiensin voittolaukauskisassa – Ylönen ja Puustinen epäonnistuivat vuorollaan
+-  Fiji votes for immediate cease fire in Gaza
+-  Путин подведет итоги года в ходе большой пресс-конференции, которая будет совмещена с "Прямой линией"
+-  오징어 이어 도루묵 어획량도 '급감'…동해안 어종 씨 마른다
+-  군산소방서 "내년 소방계획서 이렇게 달라집니다"
+-  이리모현초, 일본 시즈오카 세이코 중학생들과 국제교류 현장수업 진행
+-  김민규 진안군의회 의장, 대한민국 지방의정봉사상 수상
+-  경원선 동두천~연천 개통으로 경기북부 광역교통 편의 제공 기대
+-  성남시의회 ‘이로운 의회생활’ 애니메이션 공개
+-  원광대병원 정창원 중점연구센터 교수, 보건복지부장관 표창
+-  Interest rates to plunge in 2024 after GDP falls, City markets suggest
+-  최경식 남원시장, 청년들과 열린대화로 '남원미래' 설계
+-  ProCook sales pick up in welcome boost after volatile first half
+-  이상일 용인시장 “한국 최초 루게릭 요양병원 용인에 세운 분들은 초인”
+-  세종시, 지역문화유산 활용·교육 우수사업 2관왕
+-  GDP figures deal blow to one of Sunak's five priorities
+-  Rent prices for London's top West End and City offices set to rise in 2024
+-  Grangemouth refinery closure date not yet known, boss tells MSPs
+-  Another GDP slump — Where's the 'Brexit dividend' we were promised?
+-  Berry Bros. & Rudd revenues top a quarter of a billion pounds as it celebrates 325 years
+-  Braille menus introduced as ASK Italian aims to make restaurants more inclusive
+-  UK will miss 2030 emissions targets without 'immediate step change' – analysts
+-  Insurers expect to pay £560m to cover damage from storms Babet, Ciaran and Debi
+-  Many employees not aware of new day one right to request flexible working
+-  Dinosaur-themed coins unveiled by the Royal Mint
+-  Calls for limit on how often people can be contacted about missed payments
+-  Ex-BP boss Bernard Looney denied £32.4m over relationships with colleagues
+-  Energy firm fined £160,000 for flaring gas without consent
+-  Network Rail slashes compensation payouts to customers by £97m
+-  '양날의 검' 디지털화폐, 국제협력 본격화
+-  Japan Core Machine Orders Rise 0.7% In October
+-  Multiple crosswinds superseded global IPOs despite market rally in 2023
+-  Singapore Bourse Poised To Add To Its Winnings
+-  Rakuten Medical to Present at the 42nd Annual J.P. Morgan Healthcare Conference on January 10th, 2024
+-  Win Streak May Continue For Malaysia Stock Market
+-  London Knights' player faces 10-game suspension
+-  Trata de matar a una cucaracha en su piso y desata una explosión
+-  Who Is Kanye West’s New Wife Bianca Censori?
+-  ILA: ILA nhận được đơn từ nhiệm Thân Xuân Nghĩa
+-  DMS: Thay đổi đơn vị kiểm toán Báo cáo tài chính năm 2023
+-  Ông Vicente Nguyen: Khối ngoại bán ròng không lo, chỉ lo cá nhân trong nước cứ bán quanh 1.000 điểm rồi mua lại ở 1.200
+-  ΠΑΟΚ – Ελσίνκι: Το κανάλι μετάδοσης του αγώνα – Ποιος περιγράφει
+-  흥국생명, 인천 소방본부와 겨울철 화재 예방 캠페인 진행
+-  안 낸 세금만 4억…박유천·박준규, '고액·상습 체납자' 명단 포함됐다 [MD이슈]
+-  Innalillahi, Pemuda 20 Tahun Sedang Tertidur Lelap di Kamar Ketika Kebakaran Terjadi
+-  Morning Headlines: ஒரே ஒரு பயணிக்காக பேருந்து.. 6 பேரை தட்டித் தூக்கிய என்.ஐ.ஏ.. இன்றைய முக்கியச் செய்திகள்!
