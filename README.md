@@ -1,11 +1,51 @@
 # Latest News
--  27 best Christmas gifts for mum 2023 UK
--  OnlyFans mum spends £4,000 on 120 Christmas presents for her kids
--  'Naughty' Amazon delivery driver caught on film taking package from man's garden
--  Stoke-on-Trent high school installs sensors in toilets to catch vapers
--  Hero Daniel stops terminally-ill friend killing himself - with a simple text
--  Police make arrests after car stopped outside Festival Park KFC
--  Police swoop to shut down Milton cannabis factory
--  Royal Stoke bomb hoax sparked 'terror and disruption' as A&E evacuated
--  Thief stole 906 library books and sold them for £30k because he 'liked the buzz'
--  Intempéries : en Dordogne, la commune de Montignac-Lascaux inondée
+-  Elon Musk Bu Kez de Eğitim Sektörüne Giriyor: Üniversite Kuracak
+-  Threads'e Doğrulanan Bilgileri Görmeme Seçeneği Geliyor: Gerçeklerden Kaçınmak İsteyenlere...
+-  MSB açıkladı: 43 terörist etkisiz hale getirildi!
+-  Cansu Dere'den dikkat çeken itiraf!
+-  Maxi Gomez Trabzonspor'a dönebilir iddiası
+-  Saadet Partisi Milletvekili Hasan Bitmez hayatını kaybetti
+-  Ильхам Алиев распорядился о капитальном ремонте дорог в Баку
+-  Армения перенесет завод из-за требования Баку
+-  স্বাধীন বাংলাদেশের গণতন্ত্র এখন মৃত: মঈন খান
+-  Dólar hoy y dólar blue hoy, en vivo: cuál es la cotización del jueves 14 de diciembre minuto a minuto
+-  Allan Campbell – 14.12.23
+-  Profile of new Lagos Commissioner of Police
+-  Price of whole milk, other dairy products to rise again from 22 December
+-  Netflix Expands into Gaming: 86 Games Available by Year’s End
+-  Conselho Europeu: Costa diz-se otimista e espera que líderes europeus "não frustrem” Ucrânia
+-  Aus für SBK-Kirche in Köln-Riehl: Letzter Gottesdienst in St. Anna findet am 30. Dezember statt
+-  All indicators of economy improving: FM Mahat
+-  Za vikend padavine, naredne sedmice stabilizacija vremena
+-  Voorthuizense kledingwinkel In Stijl sluit: Twee jaar tegenwind na corona funest voor onderneming
+-  القصرين : إشكاليات مالية وهيكلية تعترض بعض الشركات التعاونية الناشطة في مجالات مختلفة (تصريح)
+-  Ex-BNP leader Akhtaruzzaman among 28 election aspirants to regain candidacy
+-  Javier Rodríguez: "Las niñas son trabajo y pasión por el fútbol sala"
+-  Sanidad, a favor de prohibir fumar en las terrazas “aunque no sin hablar con los implicados”
+-  RS pomjera granicu za ostvarivanje starosne penzije
+-  Emissão de rádio realizada por reclusos da Guarda estreia-se hoje
+-  Yaz saati uygulaması kalkıyor mu? Çalışan ve öğrenciler tepki göstermişti: Yaz saati uygulaması meclis gündeminde
+-  ЦАХАЛ зафиксировала пуск с территории Ливана
+-  Helsingin Tennispalatsin luona tapahtuneen ampumisen vangitsemista on määrä käsitellä huomenna
+-  Helsingin Tennispalatsin luona tapahtuneen ampumisen vangitsemista on määrä käsitellä huomenna
+-  ‘Internet comments as AI film’: KFC makes AI-generated commercials inspired by users
+-  अत्याधुनिक शौचालय भत्काइयो
+-  В Раде заявили, что из миллиона солдат ВСУ воюют только 300 тысяч
+-  "Fuensanta por el clima" realiza el primer diagnóstico del cambio climático
+-  Record touristique au Maroc: 13,2 millions de visiteurs à fin novembre
+-  Siracusa, l’intervista a Musso (Irem): “il futuro è green, ma ci sono difficoltà nel reperire personale”
+-  Donegal farmers to benefit from new Agri-Food Regulator
+-  Mulher de 90 anos desvenda maiores arrependimentos. "Estou cansada"
+-  Aschaffenburger Hochschule tüftelt an der Zukunft des Lernens
+-  أظهر حبك لطفلك في 10 خطوات
+-  Reuters çarpıcı anket! Faiz indirimi için tarih belli oldu
+-  Voćnjak, plantaža oraha,vinograd i vikendica za samo 22.000 evra! Jovan prodaje kompletno imanje jeftinije nego parking mesto u Beogradu
+-  Dortmund-PSG: Luis Enrique énervé par l'ouverture de Lucas Hernandez pour Mbappé… qui amène presque un but
+-  Muere diputado turco que sufrió un infarto al anunciar «la ira de Alá» contra Israel
+-  Prise en charge des médicaments: les clarification de la CNOPS
+-  Израильская армия заявила об авиаударах по объектам "Хезболлы"
+-  নাশকতার মামলায় মামুনুল হকের বিরুদ্ধে ভার্চুয়ালি সাক্ষ্য গ্রহণ
+-  رئيس كتلة حلف وجامع حضرموت يزور عدد من الشخصيات القبلية والاجتماعية في مديريات سيئون والقطن وشبام
+-  Corona-Zahlen in Frankfurt (Oder) aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  İYİ Parti'de Ahmet Zeki Üçok görevden alındı
+-  Alia Bhatt Adds New Page To Her Balloon Sleeves Diaries; See Pictures
