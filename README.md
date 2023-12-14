@@ -1,11 +1,11 @@
 # Latest News
--  Szłapka: nie będziemy zwlekać z wnioskiem o wypłatę KPO
--  EBOiR zainwestował w Polsce rekordowe 1,2 mld EUR w 2023 r.
--  Nye Borgerlige og DF bakker fortsat op om Ukraine
--  Nye Borgerlige og DF bakker fortsat op om Ukraine
--  احذف الـ (لا) لتقرأ المشهد
--  سؤال محرج للغاية لرئيس وزراء بريطانيا بشأن اطفال غزة - فيديو
--  الاحتلال يمهل مستشفى كمال عدوان 4 ساعات لإخلائه
--  British boy Alex Batty who vanished during a holiday in Spain is found alive in France six years after being ‘kidnapped’
--  Cong denounces "murder of democracy"; slams govt over suspension of MPs
--  Le Conseil de la nation adopte la loi de finances 2024
+-  Brasil baja los intereses medio punto, hasta el 11,75 %
+-  В Ростовской области утвердили проект регионального бюджета на 2024 год
+-  Poll | Michael van Gerwen, Luke Humphries of toch weer Michael Smith: wie wint het WK darts?
+-  ঘরবাড়ি নেই বগুড়ার নৌকার প্রার্থী মানিকের
+-  Paris Olympics: NOC sets target for athletes, administrators
+-  Rokiškio ledo arenoje gyventojams ilginamos čiuožimo valandos
+-  La brecha cambiaria entre el dólar oficial y el 'blue' se desploma en Argentina
+-  Ankara'da köpeklerin saldırdığı Tunahan'dan iyi haber!
+-  Sarunas Jasikevicius, Fenerbahçe Beko için İstanbul'da!
+-  Milei viajará a Davos para participar del Foro Económico Mundial y brindar su visión
