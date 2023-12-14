@@ -1,51 +1,11 @@
 # Latest News
--  국힘 총선 예비후보 등록 KBS인재개발원장, 논란되자 징계없이 소급면직?
--  [영상] 군 검사 진술 은폐 의혹 보도에 국정조사 촉구한 민주당
--  DEM Parti'den Özgür Özel'e "İmamoğlu" göndermesi: Eş başkan diyesim geldi!
--  ABD iyice yalnızlaştı! BM'de Türkiye etkisi
--  Başkan Erdoğan'dan Gazze için şimdiye kadar görülmemiş diplomasi trafiği
--  Sopa de Cabra publicarà un nou disc, ‘Ànima’, el 2024
--  경쟁사와 손잡고 신사업 확대하고…살길 찾아나선 OTT들
--  손자 잃은 할머니 위해 주민센터·병원까지…해지 서류 준비 도운 LGU+ 직원
--  기업이 AI 적극적 활용을 위한 '안전장치'…한국IBM, ‘왓슨x.거버넌스’ 선보여
--  연내 나온다던 ‘온라인 맞춤형 광고 가이드라인’ 감감무소식…해 넘기나
--  לילה של שיאים ועצבים: יאניס נקם באינדיאנה עם 64 נקודות - וזעם
--  המדינה מצפה מהמעסיקים לשאת בנטל, את המחיר ישלמו חיילי המילואים
--  Sevastova iekļūst Limožas “WTA 125” sērijas turnīra ceturtdaļfinālā
--  행안부, 전국적 호우·대설·한파에 총력대응…주말부터 강추위 예상
--  Porto Rikolu ünlü rap sanatçısı Residente Filistin'de korkunç bir soykırımın yaşanıyor diyerek albümünü erteledi
--  Beyaz Saray önünde Gazze'de protestosu: Acil ateşkes çağrısında bulundular
--  Filistin'de dikkat çeken anket: Yüzde 60'ı Gazze yönetiminde Hamas'ı görmek istiyor
--  Biden'a azil soruşturması: Temsilciler Meclisi'nden beklenen onay çıktı
--  İsrail Hamas ile esir takası için Mossad şefini Katar'a göndermeyi reddetti
--  LG전자, 제품 품질평가단 3배 확대…'고객' 관점 검증 체계 강화
--  경남교육청 "학교폭력, 언어 폭력이 가장 많다"
--  IBM, 리스크 우려 없이 AI 도입 지원하는 ‘왓슨X.거버넌스’ 출시
--  EUREX/DAX-Future im frühen Handel fest
--  [MD포토] 엔하이픈 제이크-성훈, '여심 저격 손인사'
--  [MD포토] 엔하이픈 제이크-성훈, '손인사에 올킬'
--  [MD포토] 엔하이픈 성훈, '잘생김 폭발'
--  [MD포토] 고현정, '미모 반짝'
--  [MD포토] 고현정, '단아하게'
--  [MD포토] 고현정, '미소도 우아하게'
--  “처음엔 밸런스가 마음에 안 들었어…” 영웅들 22세 잠수함의 7⅔이닝 철벽투, 2024년 ‘불펜의 희망’
--  Pondera presidente cubano capacidades de mipymes estatales
--  10 años de prisión por producción y venta ilegal de fuegos artificiales
--  Manuel “Vampiro” Jiménez dirá adiós como narrador en Las 3 Horas de Costa Rica
--  골프존뉴딘그룹, 대전사회복지공동모금회에 5억 기부
--  Child arrested in 'swatting' plot that terrorized Orange County synagogues
--  Bankada parası olanlar dikkat! Mevduat garantisinin üst limiti yükseltildi
--  Trafik sigortası poliçe limitleri arttı! İşte yeni oranlar
--  Re slips 4ps to all-time low of 83.41/$
--  [20대 미모의 女교도관, 수감자와 성관계에 '이것'까지…英 발칵
--  [“명문대→대기업 취업했는데” 직장 관두고 독일간 그 청년, ‘韓현대사진’ 아이콘 되다 [요즘 전시]
--  [유흥업소 여종업원 화장실서 성폭행한 30대 2명, 현행범 체포
--  [[부고] 이재근 KB국민은행장 장인상
--  [국립광주과학관, 해피 사이언스마스 개최
--  [주식으로 경제적 자유를 꿈꾸신다면! 스탁론으로 수익 극대화를 노려보세요
--  [담양군, 탄소중립 나무심기 평가 3년 연속 ‘대상’
--  Има начин да изключим въглищата, без да губим работни места
--  พ่อไม่เชื่อสาเหตุ "ผช.นักข่าวโดนยิง" เผยตาซ้ายบอด-ขอบริจาคเลือดกรุ๊ป A
--  Neil the seal goes viral on TikTok after disturbing residents in Tasmanian town of Dunalley
--  KTO boosts efforts for local startups to enter Japanese market
--  Apple reaches new record high share price
+-  Kyrgyzstan: Domestic Violence Against Women, Girls with Disabilities
+-  의정부시 장암동 지사협, 성금 50만 원 기부 사랑릴레이 동참
+-  의정부시 흥선동 통장협의회, 사랑릴레이 성금 111만 원 기탁
+-  موعد انحسار الكتلة الهوائية وتساقط الأمطار بغزارة في المملكة
+-  قوات الاحتلال تقتحم عدة مواقع بالضفة الغربية
+-  الكشف عن تفاصيل مثيرة لكمين القسام الذي قُتل فيه قادة لواء جولاني
+-  يهود يغلقون طريقا سريعا بلوس أنجلوس للمطالبة بوقف الحرب على غزة
+-  مجزرة إسرائيلية جديدة في رفح
+-  البث المباشر لـ برنامج الوكيل
+-  استشهاد 3 شبان جراء قصف إسرائيلي لجنين
