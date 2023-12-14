@@ -1,11 +1,11 @@
 # Latest News
--  Edenaren Dik en Karin runden 18 jaar een chambre et table d'hôtes in de Dordogne: 'Soms een beetje therapeut'
--  Parliamentary Security Breach: Opposition Leaders To Demand Statement From Amit Shah
--  '노르웨이 리그에서도 활약 못할 수준→챔피언스리그의 황제'…김민재, 한 경기 만에 반전 평가
--  Beşiktaş'ta Aboubakar krizi sürerken, bu kez Ruslar devreye girdi! 'Kadro dışı kaldıysa, bize verin'
--  Sabah CM: State wants to explore blue economy in collaboration with foreign investors
--  Luis Enrique annonce un PSG "beaucoup plus fort" en février malgré la qualification poussive
--  3 لجان برلمانية تعقد اجتماعاتها اليوم
--  Službeno pokrenuta istraga o opozivu Bidena
--  정청래 "이재명 대표 직인 없는 공천장은 없다"
--  6 Chinese, Russian military aircraft enter Korea's air defense zone: JCS
+-  Chưa từng có trong lịch sử: Bộ phim bị cắt suất tham dự Oscar vì lựa chọn sai lầm của nam chính
+-  Trend cắm cành và quả tại nhà ngày càng lên tầm cao mới, đến cà pháo, vải, táo mèo cũng thành vật trang trí
+-  Senvita tiên phong nâng tầm giá trị hoa sen Việt
+-  Nhân đôi cơ hội trúng iPhone 15 Pro Max 256GB cùng Ngân hàng KBank với đợt dự thưởng lớn nhất mừng lên 2 tuổi
+-  Những ngành học có xu hướng phát triển mạnh trong tương lai
+-  HP 15s i3: Giải pháp trọn gói đáp ứng các tác vụ văn phòng, học tập, giải trí
+-  Khám phá Giáng sinh 'Season of Love' có 1-0-2
+-  Công việc lương từng cao top 2 Việt Nam: Có thể đến 120 triệu đồng/tháng nhưng "cái giá" không hề rẻ
+-  Triệu phú chỉ cách ứng xử khi người thân mượn tiền: Từ chối cho vay nhưng làm 1 điều để không có lần thứ 2
+-  NLG: CBTT về việc thay đổi vốn đều lệ công ty
