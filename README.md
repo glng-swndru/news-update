@@ -1,51 +1,51 @@
 # Latest News
--  Giannis Antetokounmpo est IMMENSE : 64 points face aux Pacers, record en carrière !
--  Samsung chystá nové herní monitory QD-OLED: 27" s 360Hz frekvencí a 31,5"
--  LSG: Thay đổi địa chỉ Chi nhánh
--  HDM: Thông báo về ngày đăng ký cuối cùng để thực hiện quyền nhận cổ tức bằng tiền năm 2023
--  Ngân hàng có ngại công khai lãi suất?
--  안동 풍천면서 창고 화재…50대 숨진 채 발견
--  뉴진스, K팝 걸그룹 최초 美 ABC 새해맞이 특집쇼 출연
--  크리스마스 특집 '성시경 콘서트' 특별 편성…규현·싸이·장혜진 출격
--  '서울의 봄'의 힘…한국영화 11월 매출, 팬데믹 이전 70％ 회복
--  Space Becoming Important Component Of India's Economy: Union Min
--  Hindustan Coca-Cola Beverages Commits Rs 3,000 Cr Investment In Gujarat For New Production Facility
--  "เศรษฐา" เยือนญี่ปุ่นครั้งแรก ดึงดูดนักลงทุน-ขายแลนด์บริจด์
--  สภาผู้แทนราษฎรสหรัฐฯ ไฟเขียวไต่สวนถอดถอน "ไบเดน"
--  16일부터 수도권 1호선 연천까지 간다…동두천~연천 개통, 10분 단축
--  KEZAD Communities Ties Up with Burjeel Holdings
--  Korea Expressway Corporation Partners with Mykolaiv Oblast for Road Reconstruction in Ukraine
--  Salaar: ‘సలార్’ రిలీజ్ - ప్రభాస్ ఫ్యాన్స్‌కు ఒక బ్యాడ్ న్యూస్, ఒక గుడ్ న్యూస్!
--  ৭ জানুয়ারি নির্বাচন ‘বানরের পিঠা ভাগাভাগি’: মঈন খান
--  Schoolgirl Seeks To Kill Teacher With Knife At French School: Prosecutors
--  CBN assures of adequate cash supply, says 3.4trn in circulation
--  Global Perma-Crisis Set to Drastically Impact Employee Wellbeing in 2024
--  전력시장 제도 개선 제주 시범사업 현장설명회
--  Man fined for contempt over intimate deepfake images
--  안산, 대부동동·선감동 하수관로 정비 완료
--  영주시 ‘천오백년 벽화고분 지키는 수호신’, 문화유산활용 우수사업 선정
--  광명, 치매관리사업 성과평가 최우수상 수상
--  인천항만공사, 환경경영시스템(ISO 14001) 2회 연속 인증 획득
--  봉화 석포면 현불사, 취약계층 난방유 3000만원 기탁
--  계양구 “12월은 제2기분 자동차세 납부의 달!”
--  제천시, 빈집 정비해 주민 쉼터·주차장 조성
--  임상오 경기도의원, 일간기자단 우수 의정 대상 수상
--  정윤경 경기도의원 ‘ICT 컨버전스 어워드’ 감사패 수상
--  원광대 치대 한연호 교수 연구팀, 국제저널에 연구 논문 게재
--  김동근 의정부시장 ‘카페 무지개’로 경제일자리국 직원들 격려
--  "청룡의 기운 맞으세요" 해남군, 해넘이·해맞이 축제 4년만에 개최
--  충남교육청, 결핵퇴치 크리스마스 씰 모금 캠페인 동행
--  박영록 홍천군의회 의장, 홍천군이장연합회 송년회 참석
--  김태흠 지사, “정부 이민청 설립 적극 동참, 천안아산역 지역 설립할 것”
--  충남도의회, 농산물산지유통센터 절실하다
--  대전TP, 성장사다리 지원사업 성과확산교류회 성료
--  강원특별자치도교육청, 중학교 ‘학교자율시간’ 운영 지원
--  [부고] 이재근(KB국민은행장)씨 장인상
--  인제교육지원청 2023년도 추진 업무 성과면담 실시
--  "세계로 미래로" 무안 도자복합산업특구 지정
--  유튜브 먹방으로 브랜드 인지도 올려 … 가맹점 매출도 높여
--  Nâng cao năng lực, chuyển đổi nhận thức và tư duy trong xây dựng NTM
--  무섭게 오르는 외식비…깁밥 3300원·김치찌개 8000원 육박
--  [MD포토] 김다미, '깜찍한 화려함'
--  [MD포토] 김다미, '과감하게 드러낸 어깨라인'
--  [MD포토] 로운, '잘생김이 번쩍'
+-  국힘 총선 예비후보 등록 KBS인재개발원장, 논란되자 징계없이 소급면직?
+-  [영상] 군 검사 진술 은폐 의혹 보도에 국정조사 촉구한 민주당
+-  DEM Parti'den Özgür Özel'e "İmamoğlu" göndermesi: Eş başkan diyesim geldi!
+-  ABD iyice yalnızlaştı! BM'de Türkiye etkisi
+-  Başkan Erdoğan'dan Gazze için şimdiye kadar görülmemiş diplomasi trafiği
+-  Sopa de Cabra publicarà un nou disc, ‘Ànima’, el 2024
+-  경쟁사와 손잡고 신사업 확대하고…살길 찾아나선 OTT들
+-  손자 잃은 할머니 위해 주민센터·병원까지…해지 서류 준비 도운 LGU+ 직원
+-  기업이 AI 적극적 활용을 위한 '안전장치'…한국IBM, ‘왓슨x.거버넌스’ 선보여
+-  연내 나온다던 ‘온라인 맞춤형 광고 가이드라인’ 감감무소식…해 넘기나
+-  לילה של שיאים ועצבים: יאניס נקם באינדיאנה עם 64 נקודות - וזעם
+-  המדינה מצפה מהמעסיקים לשאת בנטל, את המחיר ישלמו חיילי המילואים
+-  Sevastova iekļūst Limožas “WTA 125” sērijas turnīra ceturtdaļfinālā
+-  행안부, 전국적 호우·대설·한파에 총력대응…주말부터 강추위 예상
+-  Porto Rikolu ünlü rap sanatçısı Residente Filistin'de korkunç bir soykırımın yaşanıyor diyerek albümünü erteledi
+-  Beyaz Saray önünde Gazze'de protestosu: Acil ateşkes çağrısında bulundular
+-  Filistin'de dikkat çeken anket: Yüzde 60'ı Gazze yönetiminde Hamas'ı görmek istiyor
+-  Biden'a azil soruşturması: Temsilciler Meclisi'nden beklenen onay çıktı
+-  İsrail Hamas ile esir takası için Mossad şefini Katar'a göndermeyi reddetti
+-  LG전자, 제품 품질평가단 3배 확대…'고객' 관점 검증 체계 강화
+-  경남교육청 "학교폭력, 언어 폭력이 가장 많다"
+-  IBM, 리스크 우려 없이 AI 도입 지원하는 ‘왓슨X.거버넌스’ 출시
+-  EUREX/DAX-Future im frühen Handel fest
+-  [MD포토] 엔하이픈 제이크-성훈, '여심 저격 손인사'
+-  [MD포토] 엔하이픈 제이크-성훈, '손인사에 올킬'
+-  [MD포토] 엔하이픈 성훈, '잘생김 폭발'
+-  [MD포토] 고현정, '미모 반짝'
+-  [MD포토] 고현정, '단아하게'
+-  [MD포토] 고현정, '미소도 우아하게'
+-  “처음엔 밸런스가 마음에 안 들었어…” 영웅들 22세 잠수함의 7⅔이닝 철벽투, 2024년 ‘불펜의 희망’
+-  Pondera presidente cubano capacidades de mipymes estatales
+-  10 años de prisión por producción y venta ilegal de fuegos artificiales
+-  Manuel “Vampiro” Jiménez dirá adiós como narrador en Las 3 Horas de Costa Rica
+-  골프존뉴딘그룹, 대전사회복지공동모금회에 5억 기부
+-  Child arrested in 'swatting' plot that terrorized Orange County synagogues
+-  Bankada parası olanlar dikkat! Mevduat garantisinin üst limiti yükseltildi
+-  Trafik sigortası poliçe limitleri arttı! İşte yeni oranlar
+-  Re slips 4ps to all-time low of 83.41/$
+-  [20대 미모의 女교도관, 수감자와 성관계에 '이것'까지…英 발칵
+-  [“명문대→대기업 취업했는데” 직장 관두고 독일간 그 청년, ‘韓현대사진’ 아이콘 되다 [요즘 전시]
+-  [유흥업소 여종업원 화장실서 성폭행한 30대 2명, 현행범 체포
+-  [[부고] 이재근 KB국민은행장 장인상
+-  [국립광주과학관, 해피 사이언스마스 개최
+-  [주식으로 경제적 자유를 꿈꾸신다면! 스탁론으로 수익 극대화를 노려보세요
+-  [담양군, 탄소중립 나무심기 평가 3년 연속 ‘대상’
+-  Има начин да изключим въглищата, без да губим работни места
+-  พ่อไม่เชื่อสาเหตุ "ผช.นักข่าวโดนยิง" เผยตาซ้ายบอด-ขอบริจาคเลือดกรุ๊ป A
+-  Neil the seal goes viral on TikTok after disturbing residents in Tasmanian town of Dunalley
+-  KTO boosts efforts for local startups to enter Japanese market
+-  Apple reaches new record high share price
