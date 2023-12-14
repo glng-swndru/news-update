@@ -1,51 +1,11 @@
 # Latest News
--  بريطانية تعود إلى الحياة بعد 24 دقيقة من وفاتها
--  حيلة ذكية لتقشير الثوم بدون تعب
--  حكومة جديدة ورئيس وزراء "شخصية ثقيلة".. بكري يكشف التفاصيل
--  حظك اليوم وتوقعات الأبراج 15-12: سعادة وحب لهذا البرج.. ونصائح لهؤلاء
--  مذكرة تعاون بين جامعتي المصرية اليابانية وبودابست متروبوليتان
--  حكومة غزة: للمرة الخامسة الاحتلال يتعمد قطع الاتصالات بشكل كامل عن غزة
--  "성형수술 부작용→재수술 실패" 종말이 곽진영 '심경 고백'[특종세상]
--  빅뱅 출신 승리, 출소 후 어찌 지내나봤더니…여전한 '승츠비'의 삶 [MD이슈]
--  "조인성 ♥조강지처는 나" 박경림, 김아중에 기강 '꽉'[어쩌다사장3]
--  Illinois Strip Club Paid Mayor to Run Prostitution for Years, U.S. Says
--  Sabesp: oposição a Tarcísio protocola ação contra projeto que prevê privatização da empresa
--  Liga Europa: veja os classificados para as oitavas e quem disputa os playoffs
--  [로봇이 튀긴 닭이 대세…bhc도 튀김로봇 도입
--  [“대기업 제품이라 믿었는데” 세균 득실한 ‘전복버섯죽’…먹지마세요
--  [‘막걸리 유네스코 등재 추진단’ 출범… 일본 사케와 등재 경쟁 예상
--  [인천시, 탄소중립 시민실천분야 최다 수상
--  [北, 소고기 판 남녀 9명 ‘공개 총살’…“사형까지 할 죄인가” 주민들도 ‘술렁’
--  [인천 중구, 내년 본예산 5449억 편성
--  [서울시 중장년 ‘보람일자리’에 5149명 참여…역대 최대
--  Crítica Yu Yu Hakusho | Mostrando que berimbau não é gaita mesmo
--  SSP: Batinaši SNS pretukli našeg aktivistu u Vrbasu
--  Nvidia rebate AMD e mostra que H100 é 47% mais rápida que MI300X
--  Galatasaray'ın UEFA Avrupa Ligi'ndeki muhtemel rakipleri kimler?
--  Rıza Çalımbay: Daha iyi yerlere geleceğiz
--  Las primeras bajas en Cruz Azul tras la llegada de Iván Alonso
--  Pacaembu será reaberto com 10 mil lugares e não deve receber final da Copinha
--  BAJDEN UPERIO PRST NA JERUSALIM: Izrael da se fokusira na spasavanje života civila u Gazi
--  Los republicanos eligen a exmilitar israelí para sustituir al polémico congresista Santos
--  PJ retira a jueza que liberó de siete extranjeros detenidos en búnker
--  Klabin (KLBN11), Vivo (VIVT3), Cemig (CMIG4) e mais empresas aprovam pagamento de dividendos e JCP; confira condições
--  ¿Quién representará a Ecuador en Viña del Mar 2024?
--  На руке советника президента Аргентины заметили татуировки на русском
--  В окупованому Маріуполі пролунав потужний вибух
--  NIKO NIJE ZNAO DA SE DRUŽE OD MALIH NOGU: Ovaj popularni glumac je venčani kum Željka Joksimovića
--  Lyophilization Equipment and Services Market to grow by USD 2.65 billion from 2023 to 2028, North America to account for 36% of market growth- Technavio
--  What to know before watching Wonka, which is worth watching
--  L'adversaire le plus probable pour le PSG en huitièmes est le Bayern
--  Ligue des champions, Ligue Europa… Les adieux à la phase de poules en Coupe d'Europe
--  Le jeune Mahamadou Diawara explique pourquoi il a quitté le PSG pour l'OL
--  Découvrez la programmation télé des 32es de finale de la Coupe de France
--  Une équipe entière suspendue après des violences sur l'arbitre
--  Cenntro Electric Group Limited Receives Australian Court Order to Convene Scheme Meeting
--  Le but maradonesque d'un joueur de Barnet en FA Cup
--  À quoi doivent s'attendre les Français barragistes en Ligue Europa ?
--  Jamais les clubs n'avaient versé autant de commissions d'agents qu'en 2023
--  L'équipe de France de futsal écrase la Slovaquie et ira à la Coupe du monde pour la première fois
--  La Roma en barrages, Liverpool tombe encore
--  Gianni Infantino satisfait de la présence de 3000 femmes au derby de Téhéran
--  « Pogba m'a sauvé la vie », confie un Breton victime d'un AVC en mars
--  Will Still à propos de ses contacts avec Sunderland : « Si j'avais vraiment eu envie de partir, je serais parti avant »
+-  קרן בסמר מקדמת את יעל שיף לתפקיד VP
+-  المقاومة الإسلامية بالعراق تستهدف قاعدة عين الأسد الأمريكية
+-  موعد مباراة الأهلي والاتحاد السعودي في كأس العالم للأندية 2023
+-  Mateo Gamarra sería transferido al fútbol ruso y oxigenará a la alicaída economía franjeada
+-  Junak Perić: Možemo igrati protiv svakoga, Mišić je ubacio točno gdje je trebao
+-  Sécheresse : les nappes phréatiques en amélioration "notable" en décembre
+-  Ukraine, Gaza, objectifs militaires… Poutine, ce qu'il faut retenir de sa prise de parole
+-  Loi immigration : le casse-tête de Darmanin
+-  Les Français et l'argent : ce que le "Pisa de la finance" révèle de nos lacunes
+-  Threads : Meta lance enfin en Europe son réseau social, rival de X
