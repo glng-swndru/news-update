@@ -1,11 +1,51 @@
 # Latest News
--  Israel bombs Gaza as rift with US grows
--  Una oportunidad brillante: Se abre convocatoria para solicitar beca Whataburger Feeding Student Success
--  Kate del Castillo y Santiago Cabrera se suman a tercera temporada de “The cleaning lady”
--  Ankaragücü'ne bu cezayı verenleri kınıyorum! Mirza Şeker yazdı
--  Are business cybersecurity measures really fit for purpose?
--  LAG Gorski kotar bio je domaćin studijskog putovanja Lokalne grupe Dzialania Zalew Zegrzyski iz Poljske
--  Agile and DevOps: How Do They Interrelate?
--  El Abierto Mexicano confirma su sede en Acapulco y le abre las puertas a Rafael Nadal
--  ¿Gareca, Reynoso o Lasarte? Universitario descartó a 2 y habló sobre el otro: “Encaja en el perfil”
--  Ivanovićeva Baskonija pala u finišu: Virtus odneo pobedu iz Vitorije!
+-  Southern hospitality and steady winds: What made North Carolina the 'first in flight' choice 120 years ago
+-  Art-kino proslavilo 15. rođendan: Premijerno prikazan nezavisni srednjometražni igrani film „La predstava“
+-  안 낸 세금만 3억 3천…'고액 체납자 된' 박준규, 해명 들어보니 [종합]
+-  Ovako nešto do sada nismo imali: Huawei predstavio FreeClip bežične slušalice sa jedinstvenim dizajnom
+-  Why SF Giants are all-in on pitching, defense after missing out on Ohtani
+-  Why SF Giants are all-in on pitching, defense after missing out on Ohtani
+-  Bill that lifts GST from rental developments, amends competition law to become law
+-  На юге Казахстана ввели режим ЧС из-за метели
+-  كتيبة جنين تستهدف قوة إسرائيلية كانت تتمركز بالمخيم بعبوة ناسفة
+-  مواليد 4 أبراج فلكية على موعد مع تغيرات كبيرة في حياتهم العاطفية مع بداية 2024
+-  ¿En qué calles fue el epicentro del temblor de hoy 14 de diciembre?
+-  Sylvester Stallone holds his wife Jennifer Flavin by her waist while chatting ahead of Justin Timberlake's invite-only Las Vegas concert at the Fontainebleau
+-  الجمعة 2 جمادى الآخرة.. مواقيت الصلاة في مكة والمدينة وجميع مناطق المملكة
+-  Human remains found in June near Oakland Zoo officially identified; police say man was a homicide victim
+-  هل يجوز الدعاء بانقطاع المطر؟.. "الخضير" يجيب
+-  Asobal acepta las garantías de la Federación y levanta su plante a la Copa de España
+-  Odvážne scény hviezdy Divergencie (32): V novom seriáli ÚPLNE NAHÁ!
+-  تحيا فلسطين من قلب "الجونة السينمائي".. افتتاح فريد للدورة السادسة
+-  Jay White Plans to Go 2-0 Against Jon Moxley Next Week
+-  مهرجان مدل بيست 2023|عمرو دياب بلوك تسعيناتي وتوزيع موسيقي جديد لأغنية منذ 22 عامًا
+-  Arogya Shri : ఆ‘రోగ’శ్రీ!
+-  "أهل مصر".. أسبوع جديد لأطفال المحافظات الحدودية بروض الفرج
+-  أبو وإليانا معا للمرة الأولى.. أجواء غنائية فلسطينية في افتتاح لمهرجان الجونة السينمائي 2023
+-  عرض فيلم المخرج عمرو سلامة بحفل افتتاح مهرجان الجونة 2023
+-  مهرجان الجونة السينمائي يحتفى بالعاملين في مجال الكلاكيت ويكرم خيري فرج ومحمد كيلاني
+-  باريس سان جيرمان يفلت من لعنة ميسي في دوري أبطال أوروبا
+-  طبيب الزمالك يكشف إصابة عمر جابر
+-  السفير الذوادي في حوار خاص: مشاركة الشباب في الانتخابات المصرية 2024 أكدت انحيازه لمسيرة البناء والتنمية
+-  كتائب القسام تعلن حصيلة خسائر جيش الاحتلال خلال 3 أيام
+-  (الحشد الشعبي) يقصف قاعدة عين الأسد الأمريكية
+-  White House tells Israel to scale BACK Gaza offensive in 'weeks' - but Netanyahu warns he won't stop until Hamas is 'eliminated'
+-  Congresso reestabelece projeto que garante direitos de surdos de um ouvido
+-  Dilan Polat cezaevinde ilk kez konuştu: 'Kara para' savunması pes dedirtti!
+-  Yankees in good shape for Yoshinobu Yamamoto with Dodgers, Mets looming
+-  Quadrilha investigada por furtos de celulares em shows é condenada a 25 anos de reclusão
+-  Homem que esfaqueou promotor de MS é condenado a 15 anos de prisão pela justiça de MT
+-  Irmãs sem contato há mais de 40 anos se encontram após ação do Núcleo de Pessoas Desaparecidas
+-  Aprenda a fazer uma saborosa Torta de carne moída recheada
+-  Mãe presa por matar os filhos tem condenação anulada na Austrália
+-  Congresso Nacional aprova o Plano Plurianual 2024-2027
+-  Congresso derruba diversos vetos presidenciais nesta quinta-feira
+-  De couleur "jaunâtre", la consommation d'eau temporairement déconseillée à Bordeaux
+-  Jade Picon revela futuro promissor na carreira de atriz: ‘Ansiosa para o próximo’
+-  Em 2023, CST da Causa Animal cobrou políticas públicas, apoiou ONGs e garantiu recursos
+-  Province announces change to reporting damages caused by collisions
+-  Met Office gives verdict on a White Christmas and reveals exact area that will be battered with heavy rain instead
+-  Virginia court revives lawsuit by teacher fired for refusing to use transgender student's pronouns
+-  Melissa Joan Hart, 47, plays a GRANDMOTHER in film and social media is sent into a meltdown: 'I just need to lie down for a minute'
+-  The House Authorized Its Impeachment Inquiry Against Biden. Now What?
+-  A look at alcohol sales rules by province across the country
