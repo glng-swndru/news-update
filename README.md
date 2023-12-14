@@ -1,51 +1,51 @@
 # Latest News
--  Wealth management deal allows debt repayment for Jarden
--  Instytuty obniżają prognozę dla PKB Niemiec na 2024 r.
--  El Salvador contabiliza 235 días con cero homicidios en lo que va de 2023
--  Nine arrests in connection with kidnapping of The Hague resident rescued in Belgium
--  Aberdeen stun German giants Eintracht Frankfurt 2-0 to end Euro campaign on a high
--  Marin Ljubičić zabio u porazu Linza, Villareal prošao s prvog mjesta
--  1000-lb Sisters Season 4 Streaming: Watch & Stream Online via HBO Max
--  Andertoons by Mark Anderson for Thu, 14 Dec 2023
--  Yksinäisten ihmisten ahdinko aiheutti poliisille tehtäväsuman Lounais-Suomessa – "Joulu voi olla pimeä ja haikea"
--  Arturo Reyes, el técnico que un día dejó botado el periodismo para salvar al Junior
--  UŽIVO PREDSEDNIK VUČIĆ SE OBRAĆA GRAĐANIMA: Pred početak predizborne tišine govori o svim važnim temama
--  Klopp verliert mit Liverpools B-Elf in Belgien
--  نباح كلب يتعالى في البرلمان الأوروبي أثناء كلمة عن “قوة أوروبا” (فيديو)
--  Racismo: cantora tem cabelo revistado em aeroporto Santos Dumond
--  OLIMPIJAKOS - TSC Tim iz Bačke Topole se nada čudu u Pireju
--  VELIKI VUČIĆEV INTERVJU Predsednik Srbije o svim temama ključnim za Srbiju
--  Itália tem ‘boom’ de bilionários; Ferrero é mais rico do país
--  TIM Brasil bate marca de 200 cidades com rede 5G
--  ++ Alemanha entrega sistema americano de defesa aérea à Ucrânia
--  Λουτσέσκου: «Έχουμε ένα υπέροχο ταξίδι, είμαστε περήφανοι που εκπροσωπούμε την χώρα με αυτόν τον τρόπο» (vid)
--  Flávio Dino no STF e os possíveis problemas para Bolsonaro; ouça o podcast
--  Musk's X ontvangt geldlicentie van Pennsylvania in aanloop naar betaalfuncties
--  Musk's X erhält Pennsylvania Geldlizenz als Vorstoß in Richtung Zahlungsfunktionen
--  El Tricolor femenil sub 17 nuevamente se impuso a Perú
--  Google Haritalar’dan yuva yıkacak yeni gizlilik güncellemesi!
--  PFDK açıkladı! Faruk Koca'ya ceza yağdı
--  Bursaspor evinde farklı mağlup!
--  Beyaz Saray'dan F-16 açıklaması: Türkiye'ye satışı destekliyoruz
--  Today’s Lely Radio Sports Page 12/14/23
--  Netanyahu'dan Biden'a bir rest daha: Savaşmaya kararlıyız
--  قَحتٌ ورعبها من الكيزان
--  Kim Kardashian's holiday decor proves there's no such thing as too many Christmas trees
--  #google releases on-device diagnostics tool and repair manuals for Pixel phones
--  The COP28 climate agreement is a step backwards on fossil fuels
--  The best Samsung Galaxy S22 Ultra cases in 2023: the 15 best ones
--  El colegio de Mesón do Vento fue elegido entre los tres españoles que luchan contra la brecha digital
--  A WHO keményen beleszállt az e-cigarettagyártókba
--  Pour lutter contre les migraines, la solution des verres roses
--  文科副大臣に阿部氏 副大臣女性ゼロ→1人 新副大臣・政務官人事
--  国産の長射程ミサイル配備、26年度から1年前倒しへ 防衛省
--  性的暴行やセクハラ「深く謝罪」 元自衛官1人が五ノ井さんと和解
--  柿沢議員を聴取へ 国会事務所を捜索 江東区長選めぐる買収容疑
--  京都府警が虚偽の捜査報告書で検証令状請求 裁判所が「問題」と指摘
--  東大病院の研修医2人、病気装って糖尿病薬を入手 「やせ薬」と話題
--  "그저 밥 해주는 노예"..남편 도시락 싸는 '주부 유튜버'에 쏟아진 욕설 [어떻게 생각하세요]
--  MANIJAK SA INTERPOLOVE POTERNICE HTEO DA NAPADNE PRIJU U BEKSTEJDŽU! Detalji velikog INCIDENTA iz Zagreba, o kom se ĆUTALO danima
--  Asielzoekers worden in Meierijstad opgevangen zonder spookverhalen
--  Wall St ingetogen, dag na rally op Fed-verklaring
--  Wall St gedämpft, einen Tag nach der Rallye aufgrund der Fed-Erklärung
--  Moro e suplente falam sobre Dallagnol durante votação de Dino ao STF: “Desesperado”
+-  Mesmo com saídas, São Paulo aposta em retorno de lateral sinopense e não deve ir atrás de reforços
+-  Kickoff | Liverpool end UEL group stage with defeat in Belgium
+-  Израиль назначил награды за головы лидеров ХАМАС
+-  Азербайджан не отведет войска от границы с Арменией
+-  На Солнце самая сильная за последние 6 лет вспышка
+-  Австрия заблокировала новый пакет антироссийских санкций
+-  «Il ‘Cameo Porn’ è dannoso»: James Gunn si scaglia contro una controversa moda dei cinecomic
+-  Tarkett's Second Annual Healthy Building Summit Focuses on Empowering Facility Managers
+-  This is a war on children’ says UNICEF spokesperson James Elder, who recently returned from Gaza
+-  Pressure mounting on President Biden to rein-in Israel’s Gaza offensive
+-  Israel tells US it’ll take ‘more than ‘several months’ to defeat Hamas in Gaza
+-  డిప్యూటీ సీఎం సభకు స్పందన కరువు
+-  В Москве водитель электромобиля протаранил семь припаркованных машин
+-  «الكنيست» الإسرائيلي يصادق على ميزانية معدّلة تشمل اعتمادات للحرب في غزة
+-  «حماس»: منفتحون على جهود وقف الحرب ونتنياهو يمنح رئيس «الموساد» كل الصلاحيات لتحرير المحتجزين
+-  الاتحاد الأوروبي يقرر فتح «مفاوضات انضمام» كل من أوكرانيا ومولدافيا
+-  الصين تُعلن عن نجاح وساطتها في وقف إطلاق النار بين الأطراف المتحاربة بشمال بورما
+-  الكونغرس الأميركي يقر ميزانية دفاع هائلة للعام 2024 متضمنة تمديد المساعدات العسكرية لأوكرانيا
+-  «أزرق اليد» إلى سلوفينيا استعداداً لـ«الآسيوية»
+-  بوتين: أكثر من 600 ألف عسكري روسي ينتشرون في أوكرانيا
+-  Eric Sindermann bricht in Runde der Schande in Tränen aus!
+-  Guardiola ficou surpreso ao saber que autor de gol da vitória do City era gandula
+-  Retro FPS Beyond Sunset is a precision-crafted cyberpunk potpourri of all the great megawads that came before it
+-  Jeremy Allen White & Rosalia Continue to Publicly Show Affection as Romance Rumors Pick Up Steam
+-  FOTOLAJM/ Si shfaqet Lulzim Berisha në momentin e arrestimit, me mjekër dhe pamje të menduar
+-  الحوثيون : استهداف سفينة كانت متجهة إلى اسرائيل بطائرة مسيرة
+-  Veliaj flet njësoj si Rama: Kush ka gabuar me inceneratorët të mbajë përgjegjësi
+-  Fenerbahce Istanbul zdolal Trnavu. Mieri do osemfinále
+-  Dólar à vista fecha em baixa de 0,10%, a R$4,9155 na venda
+-  Grupos agrícolas argentinos se opõem a aumentos de impostos sobre grãos; analisam medidas
+-  "Lucília Gago não é digna das responsabilidades que lhe foram confiadas"
+-  ABD yönetiminden Türkiye'ye F-16 satışına destek
+-  FONTAINEBLEAU LAS VEGAS MAKES HISTORIC GLOBAL DEBUT, USHERING IN NEW ERA OF GLAMOUR AND LUXURY ON THE STRIP
+-  Com destino já acertado para o Fluminense, Renato Augusto se despede do Corinthians: 'Com lágrimas nos olhos'
+-  Белый дом: к концу года США больше не смогут оказывать Украине военную поддержку
+-  Are all-rounders no longer in demand? | Sledging Room, S2, Ep 2
+-  VIDEO: Plućni bolesnik preživljava u teškim uslovima, bez struje i šporeta
+-  Nicolás Zepeda rompe en llanto por particular recuerdo: obligó a suspender la audiencia
+-  Parc modernizat în bătaie de joc. Primăria Timișoara refuză de doi ani să recepționeze proiectul și a reținut garanția de execuție
+-  Pacheco saúda acordo que prorroga prazo para Minas pagar dívida com União
+-  Study Shows Benefits of Daily Exercise for Mental Health
+-  Yadav praises India’s attacking style in big T20 win over S Africa
+-  Congresso derruba veto à desoneração da folha para 17 setores da economia
+-  Veto presidencial a pensão aos ex-integrantes do Batalhão Suez é derrubado
+-  Vetos a transformação de cargos no Ministério Público são derrubados
+-  Dynamos weihen die „Lok-Klos“ in Zwickau ein
+-  Congresso derruba veto à desoneração da folha de 17 setores econômicos
+-  CST da Saúde Mental apresenta balanço e anuncia investimentos
+-  Prefeitura de Várzea Grande firma parceria com TJ-MT, JUVAM e Instituto Ação Verde
+-  Jarell Quansah scores first Liverpool goal, but club’s youngest-ever team beaten in Belgium
