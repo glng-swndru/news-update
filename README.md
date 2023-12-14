@@ -1,51 +1,51 @@
 # Latest News
--  Aprueba Senado nombramiento de Fayad como Embajador
--  ЕИ Ғарбий Болқон давлатларидан кўпроқ ислоҳотлар кутмоқда.
--  АҚШ Сенати мамлакат мудофаа бюджетини тасдиқлади.
--  Champions League: Champions League: Ende der Gruppenphase kein Freudengrund
--  “Рязан мўъжизаси” нега барбод бўлганди? — советларга дарс бўлмаган режа белгилаш ва унинг аянчли якуни.
--  भारतबाट धान ल्याउने योजना अन्योलमा
--  लाइटरमा मूल्यांकनको लफडा
--  दुई वाणिज्य बैंकको लाभांश आजसम्म कायम शेयरधनीहरूले मात्र पाउने
--  अर्थतन्त्र सुधारोन्मुख : अर्थमन्त्री
--  फोन पेको अध्यक्षमा शसिन जोशी नियुक्त
--  सनराइज सेक्यूरीटीजको वार्षिक साधारण सभा पुस २०मा
--  11월 반도체 수출 16개월만에 증가세…ICT 수출도 증가 전환
--  카카오 ‘개조 열쇠’도 여성이 쥐었다…네카오 ‘여성 리더십’ 시대 열려
--  박지원 “이재명, 노무현처럼 이낙연 집 찾아가 창당 만류해야”
--  Sazonov, Zima e Djidji scalpitano: tutte le soluzioni in difesa
--  Zapata (per ora) segna solo in casa: due partite per trovare gol e continuità
--  الجيش الإسرائيلي: مقتل ضابط من المدرعات في معارك جنوب قطاع غزة
--  ВПП ООН и Таджикистан подписали соглашение об улучшении продовольственной безопасности
--  Всички 1/8-финалисти в Шампионска лига, възможни са големи дербита
--  Delhi Goes Greener: 500 Low-Floor Electric Buses To Join The Fleet Today
--  LineNext secures $140M funding for its web3 service
--  Великобритания, Япония и Италия разработват изтребител от най-ново поколение
--  PVV: Phạm Đức Tuấn - Ủy viên HĐQT - đã bán 1.271.800 CP
--  PVV: Đỗ Hoàng Anh - Ủy viên HĐQT - đã bán 600.800 CP
--  Vốn ngoại bắt đầu mua mạnh, dòng tiền nội vẫn thận trọng
--  朝比奈彩 第1子妊娠を報告
--  Meteoroloji hafta sonu için uyardı! Kar yağışı dondurucu havayla birlikte geliyor
--  US Senators submit resolution on Sri Lanka calling for accountability
--  Hatályon kívül helyezték a korábban négyszeres gyerekgyilkosság miatt bebörtönzött anya elleni ítéletet
--  Homeopathy College in J&K
--  Transformative developments in J&K
--  At COP28, Sultan al-Jaber got what the UAE wanted; others leave it wanting much more
--  White House's Sullivan meets Saudi crown prince, then to Israel
--  Gunmen kill 4 soldiers, kidnap 2 Korean workers in Nigeria oil region
--  Senior Taiwan opposition leader visits China month before election
--  岸田内閣、派閥別の人数はどう変わる？政治資金パーティー問題で安倍派ゼロに
--  Action against social media misuse
--  Вероятный премьер Нидерландов внезапно обрушился на Путина
--  Η Βουλή των ΗΠΑ ενέκρινε έρευνα σε βάρος του Μπάιντεν
--  Onze kofferbakken krimpen, maar deze auto’s bieden wél ruimte voor jouw spullen en honden
--  Rusya ve Avrupa’ya satış bolluğu! Yaşı da kurusu da altın değerinde: Yaz meyvesi kış sofralarına geliyor
--  Temu files fresh lawsuit against Shein, accusing its rival of ‘mafia-style intimidation’
--  Trevor Noah to Host the 2024 Grammys for Fourth Consecutive Year
--  PRVA DAMA KAVAČKOG KLANA BILA NA POLICIJSKOJ LISTI: Muž joj sređivao dozvolu za oružje, PIŠTOLJ JOJ ULIVA SIGURNOST
--  “The Zone of Interest”: sinopsis, tráiler y fecha de estreno de la película de A24
--  BREAKING NEWS: FA has announced the punishment for Chelsea Striker Nicholas Jackson for grabbing Everton defender Nathan Patterson by the throat.
--  "학교폭력 당했어요" 피해 응답률 1.9%…10년 만에 최대
--  Army’s Trishakti Corps Rescues 800 Tourists Stranded In Sikkim Landslides
--  원경환 전 대한석탄공사 사장, 중대재해처벌법위반 혐의로 기소
--  강원랜드사회공헌재단, 정태영삼 맛캐다 점주와 따뜻한 한끼 나눔
+-  מאסק חוטף מכה קשה: ההכנסות מפרסום בטוויטר נחתכו השנה בחצי
+-  זירו נטוורקס גייסה 20 מיליון דולר: זה מה שתעשה בכסף
+-  סיור בבית היקר ביותר בעולם: שווה כמיליארד דולר?
+-  המקדמות למענקים יוצאות לדרך: כבר ביקשתם אותן מרשות המסים?
+-  איקאה בהודעה חשובה ללקוחות: זה מה שיקרה החל ב-17.12
+-  הראל ויזל סידר לעומר אדם 250,000 דולר: מה יעשה בכסף?
+-  מזרחי טפחות על החלטת הפד: "הסתברות נמוכה להורדת הריבית בקרוב"
+-  קרן פלס מתגרשת אחרי 13 שנה: "דרכנו כזוג נפרדות"
+-  דני קושמרו במסר מצמרר: "שתי המילים הכי מפחידות בעברית"
+-  ביטוח לאומי מחלק מענקים מ-1,350 ל-45,00 שקל: מי הזכאים?
+-  חרבות ברזל, היום ה-69: חייל נוסף נהרג, אוסטרליה מצטרפת?
+-  법무부, 불법체류자 3만8000여명 적발…"내년 단속 인력 증원"
+-  경남도교육청 인사
+-  7600 شكوى من المسافرين بسبب التذاكر والرحلات
+-  عاجل.. حقيقة حذف الابنة الموظفة من حساب المواطن
+-  طريقة ورابط الاستعلام عن نتائج قبول المباحث العامة برقم الهوية عبر أبشر
+-  Poľský prezident si uctil obete stanného práva z obdobia totality
+-  एनएमबि बैंैकको २८औं वार्षिक साधारण सभा पुस २६मा, छैन लाभांश प्रस्ताव
+-  उन्नति सहकार्य लघुवित्तले यस वर्ष लाभांश वितरण नगर्ने
+-  How has the Fed funds futures curve shifted after the FOMC meeting yesterday?
+-  عثمان خواجہ نے پاکستان کیخلاف ٹیسٹ میں بازو پر سیاہ پٹی کیوں باندھی؟
+-  50만원 이하 오피스텔 월세 거래 ‘역대 최저’…월셋값 고공행진
+-  بھارتی سپریم کورٹ کے فیصلے پر چین نے ردعمل دے دیا
+-  “中 해킹부대, 지난해 美 핵심 인프라시설 24곳 침투”
+-  কুড়িগ্রামে সর্বনিম্ন তাপমাত্রা ১০ দশমিক ৮ ডিগ্রি, আসছে শৈত্যপ্রবাহ
+-  Nigeria’s economy on life support as number of financially distressed adults rise to 74%
+-  Derfor pynter ikke «Farmen»-vinneren til jul: – Deprimerende
+-  Cyprus Business Now
+-  Kaymakamlığın önünde Kur'anı Kerim'i yırttı! İlçe ayağa kalktı
+-  Operasyon Gaziantep'e Sıçradı! Tonlarca Ele Geçirildi
+-  "Опенхаймер", "Барби", Брадли Купър: Започнаха прогнозите за номинации и награди "Оскар" 2024
+-  고주파 시술 스탬핑 방식 적용한 케어클CLB 출시
+-  경기스타트업플랫폼, '웹어워드 코리아' 2년 연속 대상 수상
+-  [바이든 ‘공개 비판’에도…네타냐후 “전쟁 끝까지 가겠다” 극우 행보
+-  [한컴라이프케어, 방위사업청과 115억 규모 공급계약 체결
+-  ["이게 가능"…감기약으로 필로폰 만들어 판매·투약한 일당
+-  [‘2023 광주전남벤처기업인·ICT/SW 기업인의 밤’ 성료
+-  [경기국제공항유치시민협의회, 8년간의 여정…“아직도 진행형”
+-  [숙의공론조사 참여 경기도민 95%, “태양광 등 재생에너지 발전 시설 설치 찬성”
+-  [조현범 한국타이어 회장 “MBK 무리한 시도…개인투자자 피해 염려돼”
+-  [나경원 “당정관계 변화해야 비대위 효과적…비대위원장? 수락 안 해”
+-  [노점 상인 몸싸움·도로 점거 반대 시위…대법원 “공무집행방해, 교통방해 유죄”
+-  [‘부산의 남자’ 이정재 케이카 광고의상 경매나온다…“수익금, 사회공헌 사업”
+-  ["성관계 파트너 안해주면 폭로할거야"…전 여친 협박한 30대
+-  [‘리그 오브 레전드’ 토마스 부, 거대 웹3 게임 플랫폼 ‘크레타’와 맞손
+-  [[헤럴드pic] 추경호 부총리 마지막 비상거시경제금융회의
+-  [[헤럴드pic] 발언하는 추경호 부총리
+-  [[헤럴드pic] 악수하는 추경호 부총리·이창용 총재
+-  [가수 박유천 ‘4.9억원·'쌍칼' 박준규 ‘3.3억원’ 체납…최완규 작가 '조세포탈'
+-  भोजपुरमा एमाले अभियान विरुद्ध विरोध प्रदर्शन
