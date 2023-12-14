@@ -1,11 +1,11 @@
 # Latest News
--  Niedernberg badet im Geldsegen
--  Petro afirma que Biden debe actuar con rapidez para detener el "genocidio" en Gaza
--  Embajadora estrella de la Teletón visita el Palacio de las Garzas
--  فحص إصابة عجوز أمريكية بجوار فندق شهير بالجيزة
--  قيادي بحماس: لم يبق لنتنياهو سوى إعلان الفشل في غزة والبدء في سحب جيشه
--  الخارجية الأمريكية: نحن بصدد تقييم طريقة استخدام إسرائيل لأسلحتنا في غزة
--  تفسير رؤية الدم في المنام.. إليك دلالات ذلك
--  مارس المقبل.. معرضان لإصلاح والتصميم الداخلي للطائرات في دبي
--  الأردن يدين اقتحام الاحتلال مسجدًا في جنين وأداء طقوسًا تلمودية فيه
--  قرار جديد من "التجارة" لمواجهة أزمة السكر
+-  తగ్గని చలి తీవ్రత
+-  ఫ్యాన్‌ కింద ఉక్కబోత!
+-  సవర భాషా వలంటీర్ల ధర్నా
+-  జాతీయ రహదారిపై లారీల్లో డీజిల్‌ చోరీ
+-  మహిళ ఆత్మహత్య
+-  Begović: Tužilačke istrage u ODT trajale prosječno 55 dana, u VDT 74 dana, u SDT 124 dana
+-  Presidente de Cuba visita empresas pertenecientes a BioCubaFarma
+-  Nearly 104M Americans Expected to Hit the Road for Holiday Travel
+-  ధాన్యం కొనుగోలును సక్రమంగా నిర్వహించాలి
+-  వేధిస్తున్నాడని చంపేశారు
