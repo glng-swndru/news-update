@@ -1,11 +1,51 @@
 # Latest News
--  Kerstliederen zingen tijdens de kerstzondagavondzang in de Bethelkerk
--  Sewwieq ta’ mutur iweġġa’ gravi f’inċident f’Birkirkara
--  “Nar” Qarabağda şəbəkə əhatəsini genişləndirir
--  “เอสเธอร์“ อยู่ระยะทำใจ แต่ไม่ปิดโอกาส “เคน” ขอจีบใหม่
--  Olyat tettek az ikrek szoptatás közben, amin teljesen meglepődött az édesanyjuk!
--  "Le Flic de Beverly Hills": une bande-annonce endiablée pour le 4e film de la franchise
--  Neuauflage für Radelspektakel in Stockstadt am 27. Januar 2024
--  In Karlstein zeichnet sich eine Kooperation mit Bürger-Energiegenossenschaft ab
--  Gekümmert statt weiterzufahren: Polizei Lohr zeichnet junge Männer aus
--  Gemeinderat Rothenbuch in Kürze
+-  Započinje 30 milijuna eura vrijedno ulaganje u mrežu ultra brzih punionica tvrtke Greenway uz garantirane cijene usluge punjenja
+-  Leikmenn treysta ekki VAR
+-  Son Dakika:Gaziantepliler Dikkat! Gaziantep'te yarın birçok bölgede elektrik kesintisi olacak...
+-  পার্লামেন্টে হৃদরোগে আক্রান্ত হয়ে তুর্কি এমপির মৃত্যু
+-  Grb Hajduka osvanuo na Tuđmanu, neki su sad jako zabrinuti, jer ovo je baš čudno
+-  Magyar csapat készül a Le Mans-i 24 órásra
+-  مؤشر بورصة مسقط يغلق مُرتفعاً
+-  Jositsch-Sympathie kostet FDP-Portmann wichtiges Prestige-Amt
+-  IRFU Reach 40% Gender Balance On Union Committee
+-  VIDEO Guardiolina reakcija je hit! Nije mogao prestati gledati u plavokosu djevojku u Srbiji...
+-  영국 문화를 변화시킨 최고의 후원자, 헨리에타 마리아
+-  캐머런 英 외무장관, 이달 재판 앞둔 지미 라이 아들 만났다
+-  Tragikomödie "791 km": Ein Sturm, ein Taxi und fünf Schicksale
+-  هدف ريال مدريد مع ملعب السانتياجو برنابيو في السنوات المقبلة
+-  Antonija Šola planira vjenčanje u Las Vegasu, otkrila i što misli o Plekoviću i Milanoviću: ‘Smiješan je’
+-  ŞOK Aktüel 16 Aralık 2023 Kataloğu Yayınlandı! Dekoratif led ürünler, yatak çeşitleri, beyaz eşya
+-  Maxx Crosby, Dak Prescott among eight finalists for Art Rooney Sportsmanship Award
+-  Wordle 908: ¿Cuál es la respuesta del 14 de diciembre de 2023?
+-  Дві українки - у топ-20 спринту на етапу Кубка світу в Ленцергайде
+-  Carol Waddington
+-  Kevin McCarthy floats working with Elon Musk once he's out of Congress: 'I love entrepreneurs'
+-  جنود الاحتلال ينتهكون حرمة مسجد بجنين ويؤدون صلوات يهودية بداخله (فيديو)
+-  Hoa hậu Ngân Anh vỡ òa cảm xúc khi sinh con trai đầu lòng
+-  Jennie gia nhập “câu lạc bộ" tỷ stream, tất cả nhờ nhạc phim của The Weeknd?
+-  5 dấu hiệu sớm nhất cho thấy trái tim của bạn rối loạn hoạt động, suy yếu theo chuyên gia
+-  Hà Nội: Khống chế đối tượng sử dụng dao nhọn, 1 cảnh sát bị thương
+-  Trấn Thành xả kho ảnh du lịch cùng hội bạn, chỉ còn 1 thành viên Cờ Cá Ngựa góp mặt giữa nghi vấn cả nhóm "toang"
+-  Mỹ nhân bị đồn lười biếng còn yêu sách làm khổ cả đoàn phim, khiến nam chính tức tới bật khóc?
+-  Nhân viên nhà nghỉ hoảng hốt khi phát hiện nữ khách treo cổ trong phòng
+-  Mỹ: Cậu bé 8 tuổi bị đánh đập và chết đói trong nhà
+-  NHL-legenda Pekka Rinne väläytteli torjuntataitojaan Tapparan harjoituksissa
+-  Vụ 3 bố con tử vong trên sông ở Hưng Yên: Sự việc đã được cảnh báo từ trước?
+-  "BESKRAJNO HVALA VELIKOM PRIJATELjU SRBIJE" Vučić prokomentarisao Sijevu čestitku - Mnogo je lepa
+-  Bomba iz Istanbula, Fenerbahče ima novog trenera! Bivši strateg Partizana izvisio za posao!
+-  MILAN STANKOVIĆ SE OGLASIO IZ MANASTIRA: Pričali da je ovde želeo da se zamonaši - evo šta je objavio na Instagramu
+-  Putin asegura que seguirá con la guerra: La paz vendrá si Rusia alcanza objetivos en Ucrania
+-  Brucker SPÖ-Stadtregierung nicht mehr handlungsfähig: Opposition fordert Neuwahlen!
+-  İYİ Parti'de Ahmet Zeki Üçok ve Ece Güner'in yerine gelen isimler belli oldu
+-  Merkez Bankası Başkanı Hafize Gaye Erkan: Türk Lirası'na geçiş zamanı geldi
+-  Посольство РФ: задержанный в Норвегии «бразилец» не является россиянином
+-  '김태희♥' 비 "집에선 죽은 낙엽처럼…그게 행복이다" (시즌비시즌)[MD리뷰]
+-  Liverpool vs Man Utd: Back our 18/1 Bet Builder tip, plus get £40 in free bets with Paddy Power
+-  VUČIĆ OBIŠAO RADOVE NA GRADNjI SEVERNE OBILAZNICE: "Ovo je za razvoj Kragujevca od ogromnog značaja" (VIDEO
+-  Breakthroughs @COP28: Taking Stock of Climate Action With the Global Stocktake
+-  Why Is Moderna (MRNA) Stock Up 11% Today?
+-  Donald Tusk Poland PM: Readies Program To Strengthen Ties With EU
+-  Trump 2024: el candidato frente a la Justicia… Y a la Historia
+-  Nâng cấp luồng Cái Mép - Thị Vải: Dự án 1.400 tỷ đồng đang triển khai ra sao?
+-  Ευκαιρία να «ξεκολλήσει» από το 1.500.000…
+-  Amazon Sends Freight Technologies (FRGT) Stock Soaring
