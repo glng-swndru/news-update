@@ -1,11 +1,51 @@
 # Latest News
--  ŠOLC JASAN: Snažan znak podrške Ukrajini, koja sa Moldavijom pripada evropskoj porodici
--  SUVA ELEGANCIJA: Ceca Ražnatović zablistala na snimanju novogodišnjeg programa RTS-a (FOTO)
--  مشروع استثماري جديد لإنتاج كابلات الطاقة بالمغرب وتصديرها نحو افريقيا
--  U moru nedaleko od Jadranskog pronađen misteriozni podvodni grad: Stručnjake jako muči kako je nastao
--  Instituto de Meteorología advierte sobre deterioro del tiempo este fin de semana en Cuba
--  Suomalaisseuralle iso voitto europeleissä
--  Tshekki jälleen liian kova pala Leijonille – SM-liigasta tuttu nimi ratkaisi
--  More than a third of those in the UK can't afford tech needed to reach net-zero, study shows
--  Luis Caputo consiguió financiamiento de la CAF para abonar el próximo vencimiento con el FMI
--  Cruz Azul: Se confirmó la salida de Carlos Salcedo y ya tiene un nuevo equipo
+-  אבו פאני או אולי פרנקפורט? האפשרויות של מכבי חיפה בקונפרנס ליג
+-  World Bank approves $225 million project to revamp Dominican Republic’s electricity sector
+-  Casal é preso com tabletes de maconha, cocaína e ecstasy no Nortão
+-  Liverpool perde para o Union St. Gilloise, mas se classifica em 1º lugar na Europa League
+-  (FOTO) SPAKOVALA KOFERE I OTIŠLA IZ ZEMLJE Aleksandra Mladenović priredila majci IZNENAĐENJE koje će pamtiti do kraja života
+-  Live: Inside the Opening Ceremony of El Gouna Film Festival 2023
+-  لقجع يطلق ورشا جديدا في التكوين
+-  Армения не предоставила подтверждений нарушения соглашений телеканалами
+-  "ลิเวอร์พูล" บุกพ่าย "แซงต์ ชิลลัวส์" ส่งท้ายแบ่งกลุ่มยูโรปาลีก ก่อนบู๊แดงเดือด
+-  How to play Ship It! Express LTM in Fortnite Winterfest 2023
+-  Soccerladuma | 13 Years, 0 Matches: The Footballer Who Faked His Entire Career
+-  Grateful Dead offshoot Dead & Co., John Mayer in talks for Vegas Sphere residency: sources
+-  రైతుభేరి అంటే భయం ఎందుకు?
+-  ఉధృతంగా అంగన్వాడీల సమ్మె
+-  اتقوا الله في فلذات اكبادكم…أولادكم ليسوا مجرد اعداد وشهادة
+-  Victorie „amară” pentru fugarul Marian Zlotea: a pierdut o contestație, dar a trimis pe masa CCR o problemă care ar putea elibera mii de infractori MOTIVARE
+-  Villagers flee as investigation begins into sabotage of Gazipur rail line
+-  How Much Does A Kardashian Christmas Cost? A Professional Decorator Took A Look, And I Am Shook
+-  Ubedljivo protiv sapatnika po porazima u gostima: Zvezdi Alba dobro došla
+-  The SVG Summit Brings Sports-Production Industry Together for Annual Homecoming, Draws 1,500+ to NYC for 17th Edition
+-  Hospital surge beds added as pressure grows in Alberta's intensive care units
+-  Oyebola becomes 30th Aseyin of Iseyin, gets staff of office
+-  KFF Health News' 'What the Health?': Abortion and SCOTUS, Together Again
+-  Pete Davidson Joins Eddie Murphy In Tim Story-Directed ‘The Pickup’ For MGM Studios
+-  Redmi 13C chega finalmente a Portugal por com câmara de 50MP
+-  Coquihalla Highway closed in both directions
+-  Anunciaron a los tres finalistas del premio The Best 2023
+-  Rapsodija Zvezde protiv najgore ekipe u Evroligi: Nedović, Gedraitis i Teodosić uradili ono što su svi očekivali da se desi u Beogradu
+-  On (another) lighter note (or five)…
+-  Everyone can see the camels but only those with a genius-level IQ can work out the mistake in this desert pic in 7 secs
+-  Mortgage rates hit lowest rate since August
+-  El Papa Francisco aboga por una inteligencia artificial que sea camino hacia la paz y el progreso
+-  Lagos paid N4.2bn WAEC fees in 4 years – Sanwo-Olu
+-  The UKs top 10 towns for winter affairs revealed – is your local on the list of places to spice things up?
+-  Ndezvemoyo hit-maker Terry Gee dies after suffering cardiac arrest
+-  The Story Behind How Donny And Marie Osmond Spoiled Star Wars Major Luke And Leia Twist Without People Realizing It
+-  Ya tienen cobijas, despensas y ropa: DIF lleva apoyos a internos del Centro Penitenciario del Évora
+-  لقجع: علينا جميعا أن نبتعد عن كل ما يسيء لكرة القدم الوطنية
+-  Emergency contraception use doubles since over-the-counter approval: CDC
+-  ПАОК приключи груповата фаза на Лигата на конференциите без загуба
+-  Tamara Vučić obišla radove na izgradnji Centra za rani razvoj dece i inkluziju
+-  সকালে এসপির বদলি চেয়ে জাপার ৬ প্রার্থীর আবেদন, বিকালে প্রত্যাহার
+-  Salvadoreños de buen corazón ayudan a joven al que se le cayeron los postres que transportaba
+-  Baltasar Kormákur’s Romantic-Drama ‘Touch’ Gets Summer Release From Focus Features
+-  Hombre pierde la vida al ser atacado por tiburón en playa de México
+-  Profesyonel Futbol Disiplin Kurulu, MKE Ankaragücü'nün istifa eden başkanı Koca'ya sürekli hak mahrumiyeti cezası verdi
+-  FOTOD | Ida-Virumaal hukkus liiklusõnnetuses jalakäija
+-  Dupla faz funcionários de loja reféns em Ananindeua, no Pará
+-  Ilsø roser Superliga-komet: 'Han har taget fantom-skridt'
+-  “A ver qué cartas credenciales trae”: “Kory” Leyson reaparece en mitin de Claudia Sheinbaum en Guasave
