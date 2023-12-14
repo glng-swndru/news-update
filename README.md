@@ -1,11 +1,11 @@
 # Latest News
--  Kurs euro względem dolara najwyżej od dwóch tygodni. Funt najmocniejszy od sierpnia
--  Produkcja Grupy Azoty się rozkręca
--  KNF przyjęła stanowisko ws. polityki dywidendowej w 2024 r.
--  Smartsheet Named as a Leader in First Gartner® Magic Quadrant™ for Collaborative Work Management
--  EU inleder samtal om medlemskap med Ukraina
--  "כדורסל - אחת התרופות הכי טובות": המשחק המרגש של נבחרת הוותיקים
--  "Có quá nhiều cô gái trên đời muốn được gả cho mỹ nam này"
--  "Công chúa xinh đẹp nhất châu Âu" hiếm hoi xuất hiện trên phố cùng bạn bè, visual đời thường có gây bất ngờ?
--  Varkaissa käynyt joensuulaismies kävi kaupan vartijaan käsiksi
--  Beşiktaş'ta Aboubakar'dan iddialara açıklama geldi! 5 futbolcu kulübe ihtar çekti
+-  شركة حكومية.. وظائف في السعودية للمعلومات الائتمانية "سمة"
+-  Rabobank fined €12 million for approving excessively high home mortgages
+-  לואיס אנריקה מינה עובד שיעקוב אחרי חיי הלילה של שחקני פ.ס.ז'
+-  نجم الاتحاد يشارك في التدريبات قبل مواجهة الأهلي
+-  بحضور رئيس الوزراء وعدد من المسئولين.. إيناس عبدالدايم تستقبل عزاء زوجها
+-  Airline's holiday strike crisis avoided
+-  Cyber-criminals assembling 'bot armies'
+-  RBA 'quite worried' about 'very weak' productivity growth
+-  ASX hits 18-week high on US rate cut bets
+-  Shocking reality of common job
