@@ -1,11 +1,51 @@
 # Latest News
--  [변협과 갈등 해소하니…로톡, 사업도 위상도 ‘승승장구’
--  [인권위 “이주아동에 대한 유아학비 지원, 교육부 불수용”
--  [코레일 시설유지보수 독점운영 깬다
--  [여가부, 양육비 안 준 ‘나쁜 부모’ 130명…5명 실명 공개 등 제재
--  [[속보]“아빠 살려주세요”…애원하던 10대 남매 살해, 친부에 징역 30년
--  [경기주택도시공사, 영국 유수 기업들과 고층 모듈러 주택 협약
--  [‘텔레그램’ 활용해 마약 유통한 2030 외국인 100명 무더기 검거
--  [이상일 시장의 초인은 누굴까?
--  [‘안정 속 변화’ 택한 KB금융…3개 계열사 재선임, 증권 등 6개사 교체
--  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  김태흠 지사 “이민청 설치 최적지 충남”
+-  전국 지자체 이민청 유치전 치열, 핵심은 ‘기관 효율’
+-  Weaker prices take shine off Wesfarmers’ pending entry into lithium
+-  주식회사 케이에프, 경남 농수축산물 판로 개척부터 수출까지 활동 지원
+-  대덕이노폴리스벤처협회, 대전방산혁신클러스터 민관협력체계 구축지원 및 판로개척지원사업 성황리 종료
+-  체인링크-웨임, 웹3 DID 혁신 위한 기술 통합 Meet-up 개최
+-  Power Integrations Launches Gate Drivers for 62mm SiC and IGBT Modules
+-  Has the advertising industry prepared for the Respect at Work legislation?
+-  VIR: Ký hợp đồng kiểm toán báo cáo tài chính năm 2023
+-  Terungkap Alasan Anies Baswedan Bawa Ayah Harun Ar-Rasyid Saat Debat, Ternyata untuk Sampaikan Pesan Ini
+-  Kiprah Anies, 2009 jadi Moderator dan Kini jadi Lawan Debat Prabowo di Pilpres 2024
+-  Video: Balean a agente federal en el Northeast: FBI
+-  EZB entscheidet über Geldpolitik
+-  «Нью-Джерси» победил «Бостон» в овертайме
+-  Best wedding guest dresses for 2024: Best Picks editors style this season’s most iconic gowns for every wedding style
+-  Covid-19 Cases Skyrocket To 12,757 In A Week
+-  UNESCO, Save the Children announce partnership
+-  Tobacco products banned in Kathmandu from today
+-  Join the dots: The war on inflation may have been won
+-  ASX soars as Wall Street surges after Fed signals multiple rate cuts; $A jumps
+-  Pep Guardiola Jadi Favorit Penerima Penghargaan Pelatih Terbaik FIFA
+-  Ўзбекистон ва ЕТТБ 7 та соҳада лойиҳаларни амалга ошириш бўйича келишувга эришди.
+-  Украина қуролли кучлари Маринка қўлдан бой берилганини инкор этди.
+-  Antarctic bell to ring over Hagley Oval
+-  রাজনৈতিক কর্মসূচি বন্ধ করা ইসির কাজ নয়
+-  Obligasi dan Sukuk untuk Pembiayaan IKN Nusantara
+-  ราคาทองคำดีด ! พุ่ง 200 บาท คาดปรับรับ "เฟด" คงอัตราดอกเบี้ย
+-  Column | Madurai Veeran and other guardian gods
+-  How to get ahead of next year’s mobile bills and pay less per month
+-  Mayat wanita, kanak-kanak, bayi ditemui di sekolah Gaza
+-  В Сеченовском университете разрабатывают тест для подбора терапии при раке молочной железы
+-  توفير 250 ألف فرصة عمل في إكسبو الرياض ومليون وظيفة خلال 2030
+-  Đã bắt được 2 phạm nhân trốn trại cách biên giới Campuchia 1km
+-  Người thân hé lộ Bảo Ngọc (Gia đình là số 1) tâm lý hoảng loạn, đòi tự tử sau lùm xùm với YouTuber nổi tiếng
+-  CMND sẽ bị "khai tử" từ năm 2025, người dân cần biết ngay 3 quy định mới sau
+-  Đồng Tháp: Đưa nhà cổ gần 130 năm tuổi vào phục vụ du lịch
+-  Herediano vs. Saprissa: ¿a qué hora se juega la final de Liga Promerica 2023?
+-  ¿En qué canal mirar León vs. Urawa Red Diamonds por el Mundial de Clubes 2023?
+-  Legisladora alemana insta a vetar las negociaciones sobre la adhesión de Ucrania a la UE
+-  10 Actors Auditioned to Play Captain America Before Chris Evans Joined the MCU, Including a 'Twilight' Actor & Several Marvel Co-Stars
+-  “돈 벌어서 남 주자”…1800만개 팔린 ‘혜자 도시락’의 ‘혜자 연말’
+-  Who was Wu Yongning and how did he fall from China's Huayuan International Centre?...
+-  I earn £8k a month doing a job no one wants…I only work HALF the year & have so much free time I bodybuild...
+-  Inside the world's biggest castle four times larger than Windsor made of 30million bricks that took 132 y...
+-  Lottery winners who ended up in jail… from dad-son duo who cashed in 14,000 winning tickets to crystal m...
+-  'World's best building' is Black Mirror-style China school where kids can 'de-stress' after being drilled i...
+-  I'm the first person to descend into the 1,000C flaming 'door to HELL' – what I found could help prove alie...
+-  Pope Francis, 86, has prepared his tomb and planned his funeral as health fears grow after he vows not to...
+-  Knife-wielding 'pro-Gaza' attacker storms nursery 'and threatens to rape and murder Jewish teacher' in Fran...
+-  Israel releases footage of 'bloodiest battle' of Gaza war after 10 soldiers killed in horror 'double-tap' H...
