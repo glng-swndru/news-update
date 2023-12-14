@@ -1,11 +1,11 @@
 # Latest News
--  Brasil baja los intereses medio punto, hasta el 11,75 %
--  В Ростовской области утвердили проект регионального бюджета на 2024 год
--  Poll | Michael van Gerwen, Luke Humphries of toch weer Michael Smith: wie wint het WK darts?
--  ঘরবাড়ি নেই বগুড়ার নৌকার প্রার্থী মানিকের
--  Paris Olympics: NOC sets target for athletes, administrators
--  Rokiškio ledo arenoje gyventojams ilginamos čiuožimo valandos
--  La brecha cambiaria entre el dólar oficial y el 'blue' se desploma en Argentina
--  Ankara'da köpeklerin saldırdığı Tunahan'dan iyi haber!
--  Sarunas Jasikevicius, Fenerbahçe Beko için İstanbul'da!
--  Milei viajará a Davos para participar del Foro Económico Mundial y brindar su visión
+-  Kerstliederen zingen tijdens de kerstzondagavondzang in de Bethelkerk
+-  Sewwieq ta’ mutur iweġġa’ gravi f’inċident f’Birkirkara
+-  “Nar” Qarabağda şəbəkə əhatəsini genişləndirir
+-  “เอสเธอร์“ อยู่ระยะทำใจ แต่ไม่ปิดโอกาส “เคน” ขอจีบใหม่
+-  Olyat tettek az ikrek szoptatás közben, amin teljesen meglepődött az édesanyjuk!
+-  "Le Flic de Beverly Hills": une bande-annonce endiablée pour le 4e film de la franchise
+-  Neuauflage für Radelspektakel in Stockstadt am 27. Januar 2024
+-  In Karlstein zeichnet sich eine Kooperation mit Bürger-Energiegenossenschaft ab
+-  Gekümmert statt weiterzufahren: Polizei Lohr zeichnet junge Männer aus
+-  Gemeinderat Rothenbuch in Kürze
