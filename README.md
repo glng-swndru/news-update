@@ -1,51 +1,51 @@
 # Latest News
--  מינימום שינויים: רובי קין הולך עם הפייבוריטים שלו מול גנט
--  אחרי הנעליים מגיע הביגוד: הקולקציות של Hoka מגיעות לישראל
--  "אני רואה אותם כל יום": עלייה במספר המכורים לסמי רחוב בקרב אוכלוסיות מבוססות
--  אסטה לה ויסטה: אחרי 57 שנים, נופץ השיא של ארנולד שוורצנגר
--  ניר גולדשטיין, סמנכ"ל מכירות ב-monday.com, מונה לשותף בקרן Greenfield Partners
--  בעקבות ציוץ נגד נתניהו: עוצמה יהודית דורשת לשלול הטבת מס מאחים לנשק
--  Verrassing Yesilgöz zet Rutte IV op spanning: breekt het oude kabinet, of blijft het bij ‘een signaal’?
--  인기 유튜브 채널 ‘빵빵이의 일상’, ‘소니 크리에이티브 프로덕츠’와 손잡고 일본 진출
--  이하늬 현란한 다듬이질, 안방극장 뒤집는다[밤에 피는 꽃]
--  Nobody can rubbish Buhari’s achievements in office — MURIC
--  قيادي في حماس: نسعى لأن نكون جزءا من منظمة التحرير ونحترم التزاماتها
--  Batıkent Halkevi’nden yıl sonu buluşması
--  Il Generale Corrado Carattoni al Lions Club
--  ‘우승과 준우승’ 불과 종이 한 장 차이인데 … ‘우승 DNA’란 게 있을까 [오태식의 골프이야기]
--  Как проезжали первые машины после открытия границы Финляндии. Видео
--  Türkiye'yi o ilimiz besliyor! Tek başına ihtiyacın yüzde 75'ini karşılıyor... Tohumluk kuru fasulyede uzak ara birinci
--  Bị cho đi từ nhỏ, cô gái tìm lại người thân sau 30 năm nhưng không được thừa nhận, cái bắt tay với bố ruột khiến dân mạng xót xa
--  Moon Ga Young chỉ cần 24 giây cũng khiến MXH bùng nổ: Body quá đỉnh cao, xứng danh "True Beauty"
--  Vì sao hài cốt người phụ nữ giao gas chưa được bàn giao cho gia đình?
--  Bỗng dưng nhận thông báo nợ 29 triệu đồng BHYT
--  Harry - Meghan thua lỗ
--  Tiếp tục mở tour du lịch miễn visa Hàn Quốc trong năm 2024
--  Đôi vợ chồng cao 1m20 sau 4 năm kết hôn: Mở công ty, cửa hàng kinh doanh, tặng nhau quà khủng
--  थोक मुद्रास्फीति 8 महीने के उच्चतम स्तर पर
--  Serenay Sarıkaya’dan cesur pozlar! Kuğu gibisin!
--  Uzman doktor uyardı: Aşırı tuz tüketimine dikkat!
--  Đoàn Văn Hậu lên chức "papa" sau khi cưới vợ, Doãn Hải My lại than "mệt lắm rồi"
--  Halil Umut Meler, bir süre dinlenip geri dönecek
--  MİT'ten nokta atışı hava operasyonu: Yeşil kategorideki PKK'lı Sebahat Ormanlı öldürüldü
--  Αγνοούμενος κυνηγός στη Βέροια εντοπίστηκε σοβαρά τραυματισμένος - Μάχη για τη διάσωση του άτυχου άντρα
--  Άγιαξ – ΑΕΚ: «Τελικός» πρόκρισης στο Άμστερνταμ για την Ένωση
--  Novak poslao poruku podrške Kris Evert
--  Drejmond Grin suspendovan do daljeg
--  제1차 양주시 평생학습도시 중장기 종합발전계획 연구용역 최종보고회
--  남동구의회 박정화 의원 ‘푸를나이 문화공연사업’ 사업비 전액 삭감...발전적 운용 요구
--  더불어민주당 박성준 대변인(부산 엑스포 유치 실패 특위 관련)"윤석열 정부와 국민의힘,계속해서 진상규명 방해한다면,"
--  동서발전, 노·사·안전전문가·협력업체 참여‘안전경영위원회’개최
--  국회 아프리카포럼"아프리카 각국대사와 함께 2023년 송년회 열어"
--  전남 응급의료 취약지까지 비대면진료 시범 확대
--  경북도 “고병원성 조류인플루엔자 농장 유입 막아라”
--  KB국민은행, 비금융 기업 대상 금융 데이터 공급·협력 확대
--  더불어민주당 박찬대 의원"1월 1일부터 어린이통학버스 · 택배차량의 경유차 사용 금지 시작"
--  넥센타이어, VR 디자인 품평 시스템 구축… 디지털 디자인 프로세스 역량 강화
--  LG유플러스, 육아 가구에 매월 데이터 5GB 추가 제공
--  국민의힘 윤재옥 원내대표"김기현 대표 사퇴,선당후사 마음으로 용단 내려주신 데 대해 존경의 마음 전한다"
--  LG전자, 완성차 고객 위한 사이버보안 관리 솔루션 공개
--  기아, CES 2024서 지속가능한 PBV 모빌리티 전략 공개
--  이광재 국회 사무총장"국회사무처,네이버클라우드·엔에스데블과 채용 플랫폼 디지털 전환 위한 업무 협약 체결"
--  옹진군, 참전유공자 사망 시 배우자수당 신설 및 보훈예우 강화 추진
--  남동구, 도림산어린이공원 노후시설 개선
+-  "제주 고교 불법 촬영 트라우마 커지는데 관심 부족'" 질타
+-  Bosanac sa Hrvatima krao bakar po Austriji
+-  KB국민은행, KPMG·김앤장과 내부통제 FDS 고도화 프로젝트 착수
+-  كرة الجرس/كأس أمم افريقيا-تصفيات الألعاب البرالمبية 2024: منتخبا الجزائر رجال وسيدات في مواجهة مصر في النهائي
+-  검단탑병원, 4주기 의료기관 인증 획득
+-  ‘광주시 새 영남향우회’ 정식 봉사단체 발족…내년부터 매달 한차례 배식 활동
+-  경기연구원, ‘탄소중립과 미세먼지 정책의 성공, 공편익을 높여야!’ 보고서 발간
+-  경기도, 18일부터 노바백스 코로나19 백신 무료 접종
+-  경기도사회적경제원, 공공기관 ESG 경영 컨설팅 성과공유회 개최
+-  경기도의회-법제처, 자치법제 역량 강화 업무협약
+-  아트 브랜드 ‘넘버에잇트 인 비마이너’, 3가지 향의 멀티 향수 출시 앞둬
+-  김희중 인천청장 기자 감담회서 권지용 마약수사 ‘부실수사 아냐’
+-  경기남부경찰청, ‘평택 시민안전 비전’ 선포
+-  Flamur Noka përplaset fizkisht me punonjësit e gardës! Në ndihëm i shkon dhe Xhelal Mziu
+-  Yusuf Sarı Süper Lig Deviyle Anlaştı
+-  Hatay'da Depremzedelerin Konteyneri Yandı!
+-  Ann Fenech included in Lloyds List of shipping's 100 most influential people
+-  USD to PKR: Pakistani rupee inches up against US dollar in interbank
+-  Neues Rekordhoch erreicht: Dax steigt erstmals über die 17.000-Punkte-Marke
+-  “He has been pulled into it by someone big”: Parliament intruder’s uncle alleges a major conspiracy
+-  Danske aktier banker opad efter sød amerikansk rentemusik
+-  Sve o spektakularnom ždrijebu Lige prvaka: Već osmina finala može donijeti reprizu lanjskog finala!
+-  Pyongyang slams Washington, Seoul, Tokyo’s missile data sharing system
+-  New York’s Freedom Plaza lights up with immersive Bruce Munro installation
+-  Woman, 28, charged with stealing a Krispy Kreme donut van from 7/11 service station
+-  Tối ưu trải nghiệm giao dịch chứng khoán với NEO Invest
+-  Lüner Ärztesprecher zum E-Rezept ab 2024: Mehraufwand für Praxen und viele Ausnahmen
+-  Разнообразни празнични събития ще има през декември в Казанлък
+-  „Schalke-POTTcast“– Episode 103: Prognosen und Herausforderungen
+-  ‘Where is preventive policing?’: Karnataka HC on woman being stripped, assaulted in Belagavi
+-  Google, Nvidia and AMD just invested in a $56.5M funding round of this diverse AI startup
+-  정용근 전 대전경찰청장, 충주서 총선 출마 선언
+-  서산시 역점사업 홍보 위한 ‘이모티콘’ 뿌린다
+-  김태흠 충남지사 “이준석 전 당대표 괴물 돼가고 있다”
+-  충청권 하계U대회 컨트롤타워 단일화… 대회 준비 ‘탄력’
+-  就是明天！遠亞完成合併，徐旭東：期待電信業走入良性競爭
+-  الحكومة تعيد النظر في الزيادات المقترحة للموظفين بناءً على نصيحة من "المركزي
+-  Nationalrat – SPÖ-Muchitsch: ÖVP und Grüne verhindern dauerhafte Abschaffung der Pensionsaliquotierung
+-  ABN Amro to acquire neobroker BUX
+-  Sharp decrease in robberies, more cybercrime, drug dealing
+-  Cijene nafte stabilno blizu najnižg nivoa u šest mjeseci
+-  Top 7: Los hackeos más importantes en 2023
+-  Top: El mundo y sus elecciones
+-  Piden libertad para Matan, novio de mexicana antes cautiva por Hamás
+-  Senado ratifica a Omar Fayad como embajador; oposición cuestiona méritos
+-  Top 7: Acciones en pro del medio ambiente
+-  Acapulco tiene listas mil 500 habitaciones; sólo 7.5% de las existentes
+-  América y Tigres, dos grandes, a escena; hoy se juega la ida de la final
+-  전북교육청, 전라고 이전·신설 설명회 개최
+-  24造挑战疫苗接种计划 司法审核申请遭驳回
