@@ -1,51 +1,51 @@
 # Latest News
--  Giá vàng SJC, vàng nhẫn lại tăng sốc
--  Bụi phổi khiến nhiều công nhân tử vong ở Nghệ An: Căn bệnh nghề nghiệp để lại nhiều di chứng nặng nề cho người lao động
--  Tổ chức các chuyến bay, chuyến tàu công đoàn miễn phí đưa công nhân về quê ăn Tết
--  Quỷ Cẩu tung trailer chính thức, hé lộ câu chuyện rùng rợn về cái chết của ông chủ lò mổ
--  Ý nghĩa đằng sau mật mã in trên vé máy bay
--  2023 LCK 어워드, 2023년 올해의 선수 ‘페이커’ 이상혁
--  Google Revealed The Top Searches In Australia For 2023, And Some Things Are Defs Missing
--  यहां एक-दूसरे से बातें करती हैं कब्रें, जानिए कहां स्थित है यह अजीब कब्रिस्तान?
--  [14일 안성시] 2년 연속 민간임대주택 관리업무 평가 우수기관 선정 등
--  גלנט, היית מוכן לשלוח את ילדיך לגור בשדרות?
--  דני אבדיה נצץ ורשם ציון דרך, וושינגטון שוב לא שמרה והובסה
--  क्या मलायका अरोड़ा की वजह से अरबाज और जॉर्जिया का हुआ ब्रेकअप? सच सामने आ गया
--  عاجل.. انخفاض درجات الحرارة ورياح متربة على مكة والمدينة ومعظم المناطق
--  Netflix yeni yapımı ile dikkatleri üzerine çekti
--  Orange County announces spending plan for $220M in Hurricane Ian relief
--  Hard-fought COP28 agreement suggests the days of fossil fuels are numbered—but climate catastrophe is not yet averted
--  Goldman Sachs Sees Crypto ‘Uptick’ In 2 Years; BTC Price To Reach $100K?
--  Fed Plans for Three Rate Cuts In 2024, Altcoin Market Rally Continues
--  ‘The Daily Show’ Brutally Mocks Trump’s Mugshot Trading Cards
--  Time-Wasting Congress Should be Probing This Postal Worker’s Death
--  Glasfaserausbau und der Kampf ums leere Rohr: Die Verbraucher sind die Verlierer
--  Glasfaserausbau und der Kampf ums leere Rohr: Die Verbraucher sind die Verlierer
--  Leerrohre: Wie die Telekom und ihre Rivalen um einen unterirdischen Schatz kämpfen
--  Joulun kalapöytä on tehty sillistä, silakasta, lohesta ja merilevästä – vatkikset maistuvat myös sekasyöjille
--  ‘Here’s what I got with me it’s only like 20 bucks’: Woman asked by rich people if she’s wearing Baccarat Rouge 540 perfume. She isn’t
--  Tìm đơn hàng để nhà máy luôn sáng đèn
--  Formalizirana istraga o opozivu Joea Bidena: Je li predsjednik imao koristi od poslova sina Huntera?
--  DEBATT: Omöjligt för många att uppfylla barns önskemål
--  ”Regionerna får inte slarva bort läkares fortbildning”
--  Paket aus Taiwan: Uwe Görsdorf aus Dorsten soll 3.000 Euro Zollgebühren zahlen
--  „Fest der Liebe“?: Warum es an Weihnachten oft Streit gibt – und was man dagegen tun kann
--  „Bremerhaven-Krimi“ in der ARD: Kaltblütige Containerwelt - TV-Kritik
--  Transfer Lewandowskiego jest naprawdę mozliwy! Najnowsze informacje
--  Bu alışkanlıklar böbrekleri yavaş yavaş bitiriyor! Prof. Dr. İbrahim Saraçoğlu açıkladı: Böbreklerinizden olmayın
--  Kiara Advani Net Worth: कितनी पढ़ी-लिखी हैं कियारा आडवाणी, करोड़ों की संपत्ति जानकर चौंक जाएंगे आप
--  PKL 10: Tamil Thalaivas Pull Off Stunning Victory Against Telugu Titans
--  [14일 인천시교육청] 미활용 폐교 활용방안 모색 위한 협의회 실시 등
--  Galería: Rinden protesta 653 nuevos agentes
--  Avalan Cuenta Pública 2021 con 10 mil mdp sin comprobar
--  Στη Σύνοδο Κορυφής της Ε.Ε. ο Κυριάκος Μητσοτάκης με αιτήματα για μεταναστευτικό και φυσικές καταστροφές
--  Joe Biden, Trump’ın kaderini yaşadı
--  Warner's ridiculous ramp shot
--  Real Time Crime Season 2 Streaming: Watch & Stream Online via HBO Max
--  용인시, 12월 정기부 자동차세 303억원 부과
--  오피스텔 월세 고공행진…서울 50만원대 이하 비중 최저
--  Saudi prosecution issues arrest warrant for man who appeared in animal shooting video
--  Krieg gegen die Ukraine: Selenskyj drängt auf den Beginn von EU-Beitrittsverhandlungen
--  Krieg gegen die Ukraine: Selenskyj drängt auf den Beginn von EU-Beitrittsverhandlungen
--  병무청, 작년 병역기피 355명 공개…전 금융위원장 아들 포함
--  ’کام ختم پیسہ ہضم‘ امیتابھ بچن کی پوسٹ نمبر 4858 نے تجسس بڑھا دیا
+-  Giannis Antetokounmpo est IMMENSE : 64 points face aux Pacers, record en carrière !
+-  Samsung chystá nové herní monitory QD-OLED: 27" s 360Hz frekvencí a 31,5"
+-  LSG: Thay đổi địa chỉ Chi nhánh
+-  HDM: Thông báo về ngày đăng ký cuối cùng để thực hiện quyền nhận cổ tức bằng tiền năm 2023
+-  Ngân hàng có ngại công khai lãi suất?
+-  안동 풍천면서 창고 화재…50대 숨진 채 발견
+-  뉴진스, K팝 걸그룹 최초 美 ABC 새해맞이 특집쇼 출연
+-  크리스마스 특집 '성시경 콘서트' 특별 편성…규현·싸이·장혜진 출격
+-  '서울의 봄'의 힘…한국영화 11월 매출, 팬데믹 이전 70％ 회복
+-  Space Becoming Important Component Of India's Economy: Union Min
+-  Hindustan Coca-Cola Beverages Commits Rs 3,000 Cr Investment In Gujarat For New Production Facility
+-  "เศรษฐา" เยือนญี่ปุ่นครั้งแรก ดึงดูดนักลงทุน-ขายแลนด์บริจด์
+-  สภาผู้แทนราษฎรสหรัฐฯ ไฟเขียวไต่สวนถอดถอน "ไบเดน"
+-  16일부터 수도권 1호선 연천까지 간다…동두천~연천 개통, 10분 단축
+-  KEZAD Communities Ties Up with Burjeel Holdings
+-  Korea Expressway Corporation Partners with Mykolaiv Oblast for Road Reconstruction in Ukraine
+-  Salaar: ‘సలార్’ రిలీజ్ - ప్రభాస్ ఫ్యాన్స్‌కు ఒక బ్యాడ్ న్యూస్, ఒక గుడ్ న్యూస్!
+-  ৭ জানুয়ারি নির্বাচন ‘বানরের পিঠা ভাগাভাগি’: মঈন খান
+-  Schoolgirl Seeks To Kill Teacher With Knife At French School: Prosecutors
+-  CBN assures of adequate cash supply, says 3.4trn in circulation
+-  Global Perma-Crisis Set to Drastically Impact Employee Wellbeing in 2024
+-  전력시장 제도 개선 제주 시범사업 현장설명회
+-  Man fined for contempt over intimate deepfake images
+-  안산, 대부동동·선감동 하수관로 정비 완료
+-  영주시 ‘천오백년 벽화고분 지키는 수호신’, 문화유산활용 우수사업 선정
+-  광명, 치매관리사업 성과평가 최우수상 수상
+-  인천항만공사, 환경경영시스템(ISO 14001) 2회 연속 인증 획득
+-  봉화 석포면 현불사, 취약계층 난방유 3000만원 기탁
+-  계양구 “12월은 제2기분 자동차세 납부의 달!”
+-  제천시, 빈집 정비해 주민 쉼터·주차장 조성
+-  임상오 경기도의원, 일간기자단 우수 의정 대상 수상
+-  정윤경 경기도의원 ‘ICT 컨버전스 어워드’ 감사패 수상
+-  원광대 치대 한연호 교수 연구팀, 국제저널에 연구 논문 게재
+-  김동근 의정부시장 ‘카페 무지개’로 경제일자리국 직원들 격려
+-  "청룡의 기운 맞으세요" 해남군, 해넘이·해맞이 축제 4년만에 개최
+-  충남교육청, 결핵퇴치 크리스마스 씰 모금 캠페인 동행
+-  박영록 홍천군의회 의장, 홍천군이장연합회 송년회 참석
+-  김태흠 지사, “정부 이민청 설립 적극 동참, 천안아산역 지역 설립할 것”
+-  충남도의회, 농산물산지유통센터 절실하다
+-  대전TP, 성장사다리 지원사업 성과확산교류회 성료
+-  강원특별자치도교육청, 중학교 ‘학교자율시간’ 운영 지원
+-  [부고] 이재근(KB국민은행장)씨 장인상
+-  인제교육지원청 2023년도 추진 업무 성과면담 실시
+-  "세계로 미래로" 무안 도자복합산업특구 지정
+-  유튜브 먹방으로 브랜드 인지도 올려 … 가맹점 매출도 높여
+-  Nâng cao năng lực, chuyển đổi nhận thức và tư duy trong xây dựng NTM
+-  무섭게 오르는 외식비…깁밥 3300원·김치찌개 8000원 육박
+-  [MD포토] 김다미, '깜찍한 화려함'
+-  [MD포토] 김다미, '과감하게 드러낸 어깨라인'
+-  [MD포토] 로운, '잘생김이 번쩍'
