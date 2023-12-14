@@ -1,51 +1,11 @@
 # Latest News
--  Han blir hotellets fjärde vd på tre år
--  Težak izziv za Dončića in ekipo, na sporedu je derbi zahodne konference
--  Major indices move into negative territory
--  Así es como las empresas colombianas están cada vez más cerca de la IA
--  [VIDEO] Gabi Wolscham, trepada al techo de su casa para martillar
--  FIFA, Meta i Tesco to pracodawcy popełniający najwięcej na świecie nadużyć wobec pracowników-migrantów
--  Satelity internetowe Amazona będą przesyłały dane za pomocą laserów kosmicznych
--  Austria blokuje sankcje UE przeciwko Rosji. Domaga się usunięcia Raiffeisen Banku z czarnej listy
--  10 najboljih filmova koji su izašli na Netfliksu u 2023. godini
--  Interesting facts about Sardar Vallabhbhai Patel on his death anniversary
--  ‘Defund the rot’: Congress eyes elite universities’ endowments amid antisemitism probe
--  Detran alerta sobre sites falsos que usam nome do órgão para aplicar golpes em Mato Grosso
--  أبو عبيدة: نجح مجاهدونا في قتل 36 جنديا إسرائيليا وأوقعوا العشرات بين قتيل وجريح
--  Fiton 235 mijë euro në javë por shikoni çfarë telefoni përdor Muller
--  Scots shop destroyed in devastating blaze after deep fat fryer goes up in flames
--  Кулеба: Украина находится в нелёгком положении на данном этапе конфликта
--  La magia de la sinfonía Disney arranca en Gran Canaria
--  Hisar News: प्री बोर्ड परीक्षा की डेट शीट जारी
--  Hisar News: गीतिका, पूजा के बाद तीसरी पहलवान अंतिम पंघाल लाएंगी अर्जुन अवार्ड
--  Hisar News: शहर की 9 कॉलोनियां हुईं वैध, 5500 की आबादी को होगा फायदा
--  Hisar News: जिले के बालसमंद में न्यूनतम तापमान 5.4 डिग्री पहुंचा, सीजन व प्रदेश का रहा सबसे कम
--  Hisar News: भाभी की हत्या करने के दोषी को उम्रकैद
--  Ekiti: Oyebanji Empowers 48 Indigents With N20m
--  Hisar News: शिक्षा के साथ अब गुरुजी लगाएंगे स्वास्थ्य की क्लास
--  Sitapur News: नूरपुर में शारदा नहर पर 39 करोड़ से बनेगा पुल
--  Sitapur News: 54 कॉलेजाें ने नहीं अपडेट किया मास्टर डाटाबेस, अटकेगा वजीफा
--  समाजवादी पार्टी भाजपा की बी टीम : राजभर
--  ख्वाजा मुईनुद्दीन चिश्ती भाषा विवि : परीक्षा में नकल करते पकड़े गए पूर्व आईपीएस राजेश कुमार
--  सोशल मीडिया की वायरल खबरों पर तत्काल करें कार्रवाई : डीआईजी
--  Bahraich News: अनियंत्रित बाइक कार से भिड़ी, युवक की मौत, एक गंभीर
--  Bahraich News: नेपाल के रास्ते भारत में पैसा भेज रहे पाकिस्तानी हैंडलर
--  Bahraich News: यातायात पुलिस ने रोक दी एंबुलेंस
--  Bahraich News: जमकर चले लाठी-डंडे व ईंट-पत्थर, छह घायल
--  Bahraich News: डीआईजी की फटकार पर दर्ज हुआ मुकदमा
--  Bahraich News: ठंडी ने बढ़ाई बीमाारियों की रफ्तार, जुकाम, बुखार व डायरिया के मरीज बढ़े
--  Bahraich News: धोखाधड़ी कर 60 लाख की बजाय लगवा दी 30 लाख की सीटी स्कैन मशीन
--  Shahjahanpur News: ओटीएस में कम राजस्व वसूली पर एक्सईएन तिलहर से जताई नाराजगी
--  Shamli News: जिला अस्पताल में डेढ़ साल से नहीं हड्डी रोग विशेषज्ञ, मरीज परेशान
--  Shamli News: डांगरोल रजबहे की पटरी टूटी, नहीं छोड़ा जा रहा पानी
--  Shamli News: वीवी कॉलेज में तालाबंदी कर विद्यार्थियों ने किया प्रदर्शन
--  Aligarh News: युवक ने जंगल में फंदा लगाकर जान दी, उकसाने में पति समेत चार नामजद
--  Shamli News: यूपी बोर्ड परीक्षा में कक्ष निरीक्षकों की लगेगी ऑनलाइन ड्यूटी
--  Shamli News: लोकसभा चुनाव की तैयारियों में जुटें अधिकारी
--  Shamli News: बायोमेट्रिक मशीन से लगेगी सफाईकर्मियों की हाजिरी
--  Ghazipur News: आरोप निर्धारण के लिए चार जनवरी की तिथि तय की
--  Sultanpur News: मारपीट के दोषी दो सगे भाइयों को एक वर्ष की सजा
--  Shamli News: सांईधाम के पास उपरिगामी पुल निर्माण पर लगाई रोक
--  Ghazipur News: टावर पर चढ़ी किशोरी, तीन घंटे तक लोग मनाते रहे
--  Sultanpur News: दुष्कर्मी को 10 वर्ष का कारावास
--  Ghazipur News: पति की करंट से हुई मौत, मुआवजा देने के लिए भटक रही पत्नी
+-  NBA – Le récap du jour : Draymond Green (encore) suspendu, Kenny Atkinson chez les Bleus, embrouille à Milwaukee
+-  Bull on tracks halts trains at major US train station
+-  Bull on tracks halts trains at major US train station
+-  مجلس الشؤون الاقتصادية والتنمية يناقش عدداً من الموضوعات الاقتصادية
+-  المقاومة تكبد الاحتلال خسائر كبيرة
+-  Seven arrested in Germany, Denmark, the Netherlands over suspected terrorism plots
+-  CANLI| Lugano-Beşiktaş
+-  Eski Beşiktaşlı oyuncunun menajeri Kadıköy'de maçı takip ediyor
+-  Grève de contrôleurs aériens : des annulations de vols et perturbations prévues lundi à Paris-Orly et à Brest
+-  Vaikea paikka: Olli Jokinen joutuu kovaan tilanteeseen Jukureiden kanssa
