@@ -1,11 +1,11 @@
 # Latest News
--  무득점에도 빛난 손흥민…‘슈팅 4회+드리블 성공 3회’→평점 7.3
--  Suspect in Antisemitic Vandalism in Burbank, Glendale Arrested
--  Antonio Sanint, el actor que le hizo una pausa a la televisión para llenar teatros burlándose del sexo
--  KLIČKO: Ukrajinske jedinice PVO gađaju ruske dronove iznad Kijeva
--  PRONOS PARIS RMC Le nul du jour du 16 décembre – Liga - Espagne
--  UFC 296: Leon Edwards - Colby Covington. Kiedy gala? O której godzinie? Transmisja TV i stream online
--  عثمان جلال: بين تجربة التيار الاسلامي الوطني وقحت في الحكم هناك فرق
--  死結︱最新民調：巴民眾贊同哈馬斯襲擊 以民眾支持以軍繼續戰爭
--  Rekordan nivo beskućništva u SAD – za samo godinu dana broj ljudi bez doma skočio za 12 odsto
--  مشروع قرار من سيناتور لوقف المساعدات الأميركية لإسرائيل
+-  Alberta pension asset estimate timeline unclear as calculation guidelines still being determined
+-  Cameroun :: Congrès : Mrc-Rdpc-Pcrn Même Tarif :: Cameroon
+-  Cameroun :: Stéphane Fondjo : L'autre Ngannou En Devenir :: Cameroon
+-  Badan Etik Mahasiswa Pasang Baliho Jokowi Tandingi BEM, UGM: Itu Aspirasi Komunitas
+-  Asiatisk tågluff med smak av chili och historia
+-  ”Unnar mig en lyxparkering”
+-  Fyra skäl att fira jullov i Göteborg
+-  Verdenmester avancerer efter dramatisk duel mod hollænder
+-  장기화되는 유가 하락...휘발유 1606.6원, 경유 1534.6원
+-  [대입정보] 2024학년도 주요 21개 대학 정시 수능 반영 비중 및 수시이월 분석
