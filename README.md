@@ -1,51 +1,11 @@
 # Latest News
--  وفاة نائب تركي تعرض لنوبة قلبية خلال كلمة ضد الاحتلال - فيديو
--  농식품 11월까지 83억8천만달러 수출…전년대비 3.2% 상승
--  한국 농경지에 맞는 작물은?…농진청, 100작물 토양적성도 제공
--  고향을 담은 연말 선물, 영천와인과 함께
--  코스피, 美 금리인하 기대감에 '이틀 연속 상승'…2차전지주 강세
--  Covid RI Naik Jelang Libur Nataru, Pemerintah akan Wajibkan Pakai Masker Kembali?
--  “콩밥 먹게 한다”…초임 기간제 여교사 사망에 ‘학부모 폭언’ 있었다
--  카카오모빌리티-택시업계, 갈등 봉합 수순…“가맹수수료 최종 합의”
--  민주화 이후 최악의 사법 불신 속 조희대 대법원장이 할 일 [쓴소리 곧은 소리]
--  IL: Död person hittades på Viking Line-färja
--  Inversión en un panorama inmobiliario sostenible
--  شتاينماير: ألمانيا ستظل وطنا لليهود وغيرهم من أتباع الديانات الأخرى
--  Ücretli çalışan sayısı ekimde yıllık bazda yüzde 2,6 arttı
--  بيع 6 قمصان ارتداها ميسي بمبلغ 7.8 مليون دولار
--  X dobio financijsku licencu od još jedne američke savezne države
--  Prenova nadvoza razburja še pred popolno zaporo
--  Најстудено на Попова Шапка, најмногу снег во Крушево
--  NIA, 생성AI 규제 개선안 공개 세미나…신뢰성 확보 법적 대응안 논의
--  إسرائيل تشن هجوما كبيرا قرب الحدود المصرية
--  Das sind die Weihnachtsmärkte im Raum Aschaffenburg am dritten Adventswochenende
--  Podcast: Jahresrückblick mit VIP-Gast Thomas Poppe
--  Zorunlu trafik sigortasına bir zam daha. Zama da zam geldi
--  Novel Baswedan Khawatir Firli Bahuri Berbohong soal Pengakuan Diintervensi Karyoto
--  Capturan y entregan a Colombia a segundo cabecilla al mando del Eln
--  आपबीती ने उड़ाए होश: फेसबुक पर दोस्ती, फिर होटल में दरिंदगी की हदें पार, यूपीएससी की तैयारी कर रही हैं पीड़िता
--  A year of war: 2023 sees worst-ever Israel-Hamas combat as Russian attacks on Ukraine grind on
--  米の日本語教員、人材不足の懸念
--  Brent petrolün varil fiyatı 76,79 dolar
--  Bouwtafel Zwijndrecht: investeer in de buitenruimte
--  FC Barcelona rozpoczyna negocjacje w sprawie transferu gwiazdy mundialu do lat 17
--  Türkiye'de kasımda 93 bin 514 konut satıldı
--  Một vùng đất cát mềm ở Quảng Ngãi, thấy dân vác cuốc đào nhặt một con vật làm đặc sản, ngó thấy có người sợ
--  大谷翔平、３月開幕戦へ照準
--  Nya ägare till 60-talshus för 1 550 000 kronor i Stavreviken, Bergeforsen
--  50-talshus på 87 kvadratmeter sålt i Domsjö – priset: 2 200 000 kronor
--  Météo de ce vendredi
--  Dehradun: महिला से दुष्कर्म की कोशिश और उसके भाई की हत्या में फरार 50 हजार का इनामी गिरफ्तार, 2018 से था फरार
--  Të dhënat e Eurostat, Shqipëria mbetet me të ardhurat dhe fuqinë blerëse më të ulët në Europë
--  薬過剰摂取で児童２人搬送
--  2 ราศี ปี 67 ชะตาชีวิตพลิกผัน! เริ่มต้นชีวิตใหม่กับปีใหม่กันเถอะ!
--  Доживотен затвор за кинески банкар за корупција, одземен му е целиот имот
--  RAT U IZRAELU: Nastavljeni žestoki sukobi duž celog Pojasa Gaze; Otkriveno telo još jednog taoca
--  전국 민간아파트 분양가 9개월 연속 상승...1㎡당 518만원
--  Alessandra de Rossi On People Criticizing Unmarried Women
--  20 yıl hapis yatan kadına rekor tazminat. 4 çocuğunu öldürmekle suçlanıp yıllarca bebek katili olarak anıldı
--  Powrót Kamila Stocha, Puchar Świata tym razem w Engelbergu
--  Florentino Pérez desea un ¡Bon Nadal! y sugiere que llega su 'Last Dance' en el Real Madrid
--  Деси Цонева претърпя тежка загуба
--  Jawab Langsung Keluhan Warga soal Bansos, Sandiaga: Bukan Hanya Dilanjutkan, Tapi Ditambahkan
--  Најмногу снег во Крушево
+-  TOFAŞ'dan üretim açıklaması
+-  Konut satışları yüzde 20 azaldı
+-  Ücretli çalışan sayısı arttı
+-  Konut satışlarında kasım ayında büyük düşüş
+-  Araç sahipleri dikkat: Trafik sigortasındaki prim artış oranını yükseltildi
+-  Borsa güne yükselişle başladı
+-  Fenerbahçe son 16'da: İşte muhtemel rakipler
+-  Vier dode wolven in de regio binnen twee weken
+-  구리시, 새마을과 함께하는 제2회 소통 간담회 개최
+-  의왕시, ‘2024 대입 정시전략 설명회’ 성료
