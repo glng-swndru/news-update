@@ -1,51 +1,51 @@
 # Latest News
--  Ir-Renju Unit: Interess kbir fl-istorja tat-tifel – illum adolexxenti — li rritorna ‘minn imkien’ wara għajbien ta’ sitt snin
--  Statt Glühwein: Probieren Sie mal leckere Weihnachtsbowle!
--  Declarações de Costa “não fomentam confiança no MP e sistema judicial”
--  Canada’s Alexandria Loutitt earns World Cup ski jumping silver in Switzerland
--  El Presupuesto de Elche para 2024 prevé 5,6 millones para el nuevo Conservatorio y 500.000 euros para la calle Curtidores
--  „Das perfekte Dinner“ in Lübeck – Menü-Frust: „Das sind alles Komponenten, die ich überhaupt nicht mag!“
--  Ruhrgebiet: Prozess-Hammer! Richter liest Brief von Messerstecher vor – sogar Verteidiger sind schockiert
--  Bajo presión de Shein, H&M busca compradores de alto nivel
--  PJD: qui sont les favoris pour succéder à Abdelilah Benkirane?
--  Pause séries : Norman Lear, hommage au géant méconnu
--  Acht Wochen Vorbereitung – für Metelens buntestes Weihnachtshaus
--  Un apéro avec Sylvie Testud : « Je préfère mille fois tourner à poil que chanter en public »
--  Haryana vs Rajasthan Live Cricket Streaming, Vijay Hazare Trophy 2023 Final: When and Where to Watch HAR vs RAJ Coverage on TV And Online
--  The Boys In The Boat review: Sports drama stretches for the finish line
--  Panik, Stress und Krisen: Wenn die Schule zur unüberwindbaren Hürde wird
--  Iranian buffet with speakers at Bethel Chapel Pembroke Dock a rousing end to 2023 for Pembrokeshire Prayer
--  Why Rare Colored Diamonds Dominated at This Month’s Jewelry Auctions
--  Overwatch 2 Winter Fair Event explained: How to get tickets, free skins, more
--  BVB als Mutmacher: HSG Schwerte/Westhofen und HVE Villigst-Ergste gegen zwei Tabellenführer
--  Overwatch 2 Winter Wonderland 2023: Winter Fair Event dates, returning modes, more
--  Schlagerstar Beatrice Egli kommt zu den „Summer Vibes“ nach Bopfingen
--  Yüzlercesi sahibini bekliyor! Bu otoparkta 100 milyon lira yatıyor...
--  ¡Eliminados! León FC cae ante Urawa Reds y se despide del Mundial de Clubes 2023
--  Ľudí vydesilo hrôzostrašné video záhadného tvora: Preboha, veď vyzerá, akoby vyliezol priamo z pekla!
--  Premiér bude žiadať, aby bol šéf Nočných vlkov vyradený zo sankčného zoznamu
--  Letzte Soldaten nach Mali-Einsatz zurück in Deutschland
--  MIMORIADNE FOTO ZASTRELILI mladého OTCA dvoch detí! Zasahovali KUKLÁČI, desivé DETAILY z miesta činu: Rodina je ZRÚTENÁ, slová manželky trhajú srdce
--  ¿Cuándo inicia la venta de boletos del concierto de Ana Gabriel en Culiacán? Esto se sabe
--  Bilgisayar Toplarken En Uygun Fiyatlı ve En Doğru Seçimleri Nasıl Yapabilirsiniz?
--  Japonska Urawa v polfinale klubskega SP
--  Google Nest WiFi Pro systems start from $160, Beats Studio Pro $180, more
--  Kolejny sukces Grety Gerwig. Dołącza do grona wyjątkowo uhonorowanych kobiet branży filmowej
--  Wie kann man eine Terrasse auch im Winter nutzen?
--  У Дніпрі відкривається фотовиставка «Сміливі нести світло» про найскладнішу зиму в історії Незалежної України
--  కోటపల్లిలో ఉపాధిహామీ ప్రజావేదిక
--  Comité de Ética do BCE iliba Centeno
--  Cabinet Clears Plan to Declare Surat Airport as International Airport
--  La renta agraria deja los números rojos y crece un 11,1%
--  Bupati Cianjur Minta Warga Waspada Gempa, Banjir, dan Longsor
--  Santa Cruz intensifica la presencia policial en la Divina Pastora
--  How to watch The Double Life of My Billionaire Husband – is it on Netflix?
--  Parade blanche, animations de Noël... Que faire au Havre ce week-end ?
--  The best rollings pins of 2023, ranked and reviewed
--  Fostul director al FMI Rodrigo Rato, din nou în fața justiției, sub acuzația de fraudă și corupție
--  La Bûche de Noël poire, Anis et vanille d'Une Glace à Paris
--  La AFA aceptó el reclamo de Colón y deberá definir si anula su descenso a la Primera Nacional
--  భారత్‌ వికసిత్‌ సంకల్ప్‌ యాత్రను విజయవంతం చేయాలి
--  Vendée : 800 € d'amende avec sursis pour le conducteur qui a coupé la route à un motard
--  Lisburn & Castlereagh bin collection concerns rocket with customer calls up over 60%
--  Film #OOTD Bertema Fashion Jadi Debut dan Pembuktian Dimas Anggara sebagai Sutradara
+-  Komplize Wandteppich und die NS-Vergangenheit zweier Schulnamensgeber im Kreis Miltenberg
+-  Nuovo Modello ISEE 2024, cambiano regole e DSU
+-  عريضة لعاملين في الهاشمية: تخبط إداري وواقع وخيم ينتظر الجامعة
+-  It-triq tal-Barrani magħluqa għat-traffiku wara ħabta bejn żewġ karozzi
+-  Aprehenden a un hombre por homicidio en Tocumen
+-  Vrau një të burgosur dhe plagosi një tjetër, Sokol Mjacaj dyshohet se është paguar nga jashtë
+-  الذهب يتجه لتحقيق مكاسب أسبوعية
+-  Netflix Games Will Have '86 Games Available' By The End of 2023
+-  Imniedi l-programm kulturali ta’ attivitajiet għas-sena d-dieħla minn Festivals Malta
+-  أبي خليل: التيار باقٍ على اختلافه مع المنظومة لو بقي وحيداً
+-  عاجل.. الصحة تؤكد استمرار التقديم على وظائفها بمختلف المناطق
+-  "ميرسك" تعلن وقف جميع عمليات الشحن بالحاويات عبر البحر الأحمر
+-  الحصول على إعانة الزواج.. الخطوات والشروط والمستندات المطلوبة
+-  لا تتجاهل هذه العلامة في الفم.. مؤشر على الإصابة بالسكري
+-  Derek Carr Gifts Rolexes and Diamond Chains to Teammates for Christmas, Prompting Fans to React: “Money Don’t Buy You Love”
+-  GTA Trilogy Definitive Edition From Netflix Games is Available to Play on Android and iOS Devices Now
+-  Riesen-Ärger um defekte Laterne in Dortmund: City-Anwohnerin in Angst: „Stockfinster vor meiner Haustür“
+-  Nationale Kerosinsteuer: Nur auf den ersten Blick eine gute Idee
+-  La cuarta edición de la campaña 'Dona Vida al Planeta' llega a Montalbán de Córdoba con el objetivo de concienciar sobre el reciclaje de residuos de aparatos eléctricos y electrónicos (RAEE)
+-  Stella Luna to lay off nearly all staff, citing economic downturn
+-  Bakan Şimşek: Avrupa Yatırım Bankası Başkanı ile sıkı bir işbirliği içinde olacağız
+-  İsrail Milletvekili Cassif: İsrail, suçlarını saklamak için basını hedef alıyor
+-  "العسكريون المتقاعدون": لن نتنازل عن مطالبنا
+-  MP: 10 मीट शॉप और BJP नेता पर हमले में शामिल आरोपी के घरों पर चला बुलडोजर
+-  documenta: Abschlussbericht zur Organisationsstruktur
+-  Під Ізюмом у руках підлітка здетонувала вибухівка
+-  À Quimper, plus d’un kilo de cannabis découvert dans un appartement route de Pont-l’Abbé
+-  Endrick desembarca na Espanha para conhecer futuros companheiros e ver jogo do Real Madrid
+-  Shoppers rave over £13 device that is 'cheap to run' and removes condensation from windows
+-  Joe Biden wants US citizens to have to sneak into their own country
+-  Auckland stadiums: Eden Park and waterfront stadium among four pitches in search for main stadium
+-  Váhate nad menom pre novorodenca? Výročná štatistika ministerstva, TAKTO sa rodičia pri bábätkách rozhodovali!
+-  Rusi porušujú Ženevské konvencie, dôkaz na VIDEU: Z Ukrajincov si spravili živé štíty!
+-  Kind „nicht tragbar“: Hannover-Streit wegen DFL-Deal vor der Eskalation?
+-  Großeinsatz für Feuerwehr und Polizei: Augenzeugen hindern Brandstifter an der Flucht
+-  Hacienda mantiene sin estímulo fiscal a gasolina y diésel por segunda semana consecutiva
+-  Flybird Holding aloittaa ostotarjouksen Musti Groupista
+-  Olympisch historicus David Wallechinsky: ‘Het IOC is een sportorganisatie. Wat kan het tegen oorlog doen?’
+-  ИДФ: Сирени се огласија во Ерусалим
+-  Härva av bagagestölder på Kanarieöarna
+-  Como fazer a maquiagem durar mais no verão: confira as dicas
+-  Foto do James Webb está entre as melhores do ano na revista Nature
+-  Otvoren Adventski luna park u Gospiću. Niti jaka bura nije mogla umanjiti oduševljenje djece
+-  انفجار 3 قنابل يدوية في قاعة اجتماعات بأوكرانيا ومصرع نائب.. ما السبب؟ (فيديو)
+-  Milei usará Forças Armadas contra quem bloquear ruas para protestar na Argentina
+-  Laxå kommun tar avstånd från lag om anmälningsplikt
+-  Υπουργείο Εργασίας: 17 ερωταπαντήσεις για την τροπολογία για τους αλλοδαπούς εργάτες
+-  Socrates Unveils 3 Million USDT Influencer Accelerator Program and Airdrop
+-  Girl succumbs to burns
+-  How the world's first deal to ditch fossil fuels was forged at COP28
