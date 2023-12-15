@@ -1,51 +1,11 @@
 # Latest News
--  Härkämäinen esitys Bisonsin pelaajalta - nämä tilastot kertovat kaiken huimasta illasta
--  Espoon herruudesta ei ole epäselvyyttä - Öljymiesten putki katkesi
--  Nyt tuli huipputoppari myyntiin todella houkuttelevalla hinnalla
--  Moody's'ten Türkiye açıklaması! Kredi notlarını açıkladılar
--  쏘니 뽑지 않은 거? 그거 믿지마! 토트넘 前 감독, 직접 밝혔다..."베스트 일레븐 선정은 가짜 뉴스야"
--  박나래, '55억 주택' 또 동파 "노천탕 수도 얼어 물 없이 앉아 있어" [홈즈]
--  “이정후 1억3100만달러 계약, 깜짝 놀랐다…” 흐뭇한 홍원기, 그가 없었다면 초대박도 없었다
--  '등번호 51번' 오라클파크 입성한 이정후의 자신감! "부상은 100% 회복, 내 전성기는 아직 오지 않았다" [일문일답]
--  Lucky Lotto player wins massive sum in tonight’s EuroMillions draw but narrowly misses out on huge jackpot
--  [걸어서 세계 속으로] 아름다운 단순함, 일본정원을 가다
--  Tottenham með góðan sigur á Forest í fyrsta leik helgarinnar
--  #53 – [Edition spéciale] L'intégrale – Apollonia Poilâne et le Pitch des assos avec Emmaüs Défi, Ma Petite Planète et HopHopFood
--  90s R&B legends announce they’re returning to the UK for comeback arena tour
--  Nothing Phone (2a) to be powered by MediaTek's Dimensity 7200
--  Richarlison marca e Tottenham supera o Nottingham pelo Campeonato Inglês
--  Com brilho de Jeffinho, Lyon vence Monaco e sai da lanterna do Campeonato Francês
--  Juventus leva empate do Genoa e perde a chance de dormir na liderança do Italiano
--  Diniz vai a estádio assistir rival do Fluminense na semi do Mundial e promete entrega
--  Richarlison marca em vitória do Tottenham sobre o Nottingham na Premier League
--  Unstoppable women racing towards equality.. I wonder what Joey Barton’s wife thinks of his rubbish Alex Scott comments
--  Unstoppable women racing towards equality.. I wonder what Joey Barton’s wife thinks of his rubbish Alex Scott comments
--  School investigated as pupils asked if it ‘is fair for Hamas to attack’ Israel – leaving parents furious
--  جدول ترتيب الدوري الإيطالي بعد تعادل يوفنتوس
--  Boulder home sells for $8M, tops metro November sales
--  Platte Street building fetches $129M in largest office deal of year
--  이정후, SF 입단 기자회견에서 처음으로 뱉은 말은[이정후 입단식]
--  안유진, 청순함 가득
--  이정후 입단식 진행한 SF, 이종범까지 특급대우… 소개+맨 앞자리까지[스한 스틸컷]
--  '손흥민 88분-비수마 퇴장' 토트넘, 노팅엄에 2-0 승
--  또 레드카드… 반등하려는 토트넘 발목 잡는 ‘파울 트러블’[토트넘-노팅엄]
--  [인터뷰] 고민시 "몸 내던진 '스위트홈2', 두려움 사라졌죠"
--  The best iPhone 15 deals in December: Get a free phone with trade-in offers
--  ‘트리피어가 소문냈나’ 손흥민에게 1대1 수비 안준다 [토트넘-노팅엄]
--  هل انفصلت شيرين عن حسام حبيب مجدداً؟
--  Raiders propina a Chargers histórica paliza
--  Libra Horoscope Today 16 December 2023 : तूळ राशीच्या लोकांनी वाद टाळा; नोकरीत होईल प्रशंसा, पाहा आजचं राशीभविष्य
--  TSJ preguntó a la Contraloría si Daniel Ceballos está inhabilitado
--  This Whisky Glass Is Shaped Like a Mask to Deliver the Ultimate Sipping Experience
--  Megkezdődik az egykori Munkásőrség épületeinek bontása
--  توتنهام يفوز على نوتينجهام فورست بهدفين نظيفين
--  إعتراف مهم يخصّ "حزب الله".. هذا ما تفاجأت به إسرائيل!
--  Lutron Caseta HomeKit lights level up with auto-off timers
--  ΗΠΑ: Αποζημίωση 148 εκατ. δολαρίων καλείται να πληρώσει ο Ρούντι Τζουλιάνι σε δύο γυναίκες
--  Tottenham-seier med 10 mann mot Forest
--  Глава МИД Венгрии Сийярто назвал бессмысленными переговоры ЕС с Украиной
--  Matthew Perry's death ruled an accident, autopsy reveals
--  Taylor Swift se embolsilla casi 2000 millones de dólares
--  ראש המוסד צפוי להיפגש בסופ"ש עם ראש ממשלת קטאר באירופה
--  ליון ממשיכה להתאושש: חגגה 0:1 גדול במונאקו
--  *** BILDplus Inhalt *** Schwärmerei in jungen Jahren - Wie echt ist unsere erste große Liebe?
+-  Israël annonce avoir tué trois otages identifiés « par erreur » comme une « menace »
+-  Me Moussa Diop envoyé en prison
+-  '똑부러지는 MC' 장원영 "내년엔 전 세계로 나가는 문 열 예정" [뮤뱅 글로벌 페스티벌]
+-  [손태규의 직설] 日한신 38년만의 우승 비결 밝혀졌다→바로 흰쌀밥 덕분
+-  ‘싱글 인 서울’ 박범수 감독 “이솜, 임수정이 긴장할만큼 위협적”[MD인터뷰]
+-  '2연승+선두권 추격' 토트넘, 수적 열세에도 노팅엄에 완승...손흥민 88분·쿨루셉스키 1골 1도움
+-  충격적인 경질설→6년만에 우승했는데…10개월만에 해임→'무리뉴 데자뷔'→후임보니 한숨만....
+-  VIDEO: Jasikevičius se trijumfalno vratio u EL, šok(ovi) za Oly i Barcu
+-  ¿A mal tiempo buena cara?
+-  Кулушевски поведе Тотнъм към втори пореден успех, с който "шпорите" настигнаха Ман Сити
