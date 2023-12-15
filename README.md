@@ -1,11 +1,11 @@
 # Latest News
--  0pSpotify's pet playlist adorably matches fur babies' energy with your listening habits
--  WHO เผยผลทดลองวัคซีนโควิด "XBB.1.5 โมโนวาเลนต์" รับมือโอไมครอนหลายสายพันธุ์
--  Matakana speed cameras about prevention, not persecution, Waka Kotahi tells board
--  Tesla Passes 5 Million Sales, China Passes 20 Million EV Sales
--  Firefighters and helicopters battle vegetation fires in Waitaki
--  Te Ahu a Turanga: Manawatū Tararua Highway nears end of 'heavy lifting' stage
--  Celtics improve to 12-0 at home behind Jayson Tatum’s 27 points in 116-107 win over Cavs
--  Protesters surround Vancouver hotel during Trudeau's fundraiser dinner
--  Protesters surround Vancouver hotel during Trudeau's fundraiser dinner
--  Swiggy User in Mumbai Ordered Food Worth Rs 42 Lakh in 2023, Internet Finds it Hard to Digest
+-  Trong tủ lạnh có một nút nhỏ mà người dùng nên điều chỉnh vào mùa đông: Giúp tiết kiệm "cơ số" tiền điện
+-  Khám phá xu hướng mỹ phẩm thuần chay với màu nhuộm The Origin Color
+-  Cậu bé nhỏ keo 502 vào mắt, cách xử lý của người cha được bác sỹ khen ngợi
+-  Phát sốt cách Sooyoung (SNSD) đáp trả 2 chàng trai xin số, tiện đánh dấu “chủ quyền” luôn với tài tử Jung Kyung Ho
+-  Giá vàng nhẫn trơn 24K tiếp tục tăng
+-  Ngoài collagen, đây là 4 thứ phụ nữ sau tuổi 30 nên bổ sung để chống già, chống nhăn đón Tết
+-  Cô dâu Bình Phước đeo 25 cây vàng lên sân khấu làm điều chưa từng, cả hôn trường “náo loạn”
+-  TCB: Nghị quyết HĐQT về việc phê duyệt giao dịch giữa TCB và TCBS
+-  TCB: Nghị quyết HĐQT về việc phê duyệt giao dịch giữa TCB và TCBS về tư vấn phát hành trái phiếu lần 8
+-  NVL: CBTT liên quan tới việc tái cấu trúc gói trái phiếu chuyển đổi trị giá 300.000.000 USD
