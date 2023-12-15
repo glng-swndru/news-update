@@ -1,51 +1,11 @@
 # Latest News
--  Dcéra (3) Daniely Nízlovej NEROZPRÁVA: Prestala kvôli rozchodu… Navštevujú odborníkov!
--  Bakan Yerlikaya duyurdu: Yunus Aras etkisiz hale getirildi
--  Türkiye obezitede Avrupa birincisi
--  “北 내년 총선 앞두고 ‘현실’ ‘사이버’에서 도발할 것” 전문가들 한 목소리
--  완전히 새로운 ‘saRNA 백신’ 등장… 생산 판매 승인 [팩트매터]
--  The Sims 4, nel 2023 sono nati 568 milioni di personaggi
--  Onko tässä Chelsean "villi kortti" tammikuun siirtoikkunassa? Mättänyt hyvään tahtiin maaleja
--  2023-2026 – GDP expected to grow at a more moderate pace, Central Bank says
--  Koronasta parantunut suomalaishiihtäjä huikeassa iskussa
--  Laut Generalinspekteur keine Wehrfähigkeit mehr wegen Ukraine-Spenden
--  تونس: رفض الإفراج عن رجل الأعمال الحبيب حواص
--  Nuevo billete de S/ 200 en circulación por el Banco Central de Reserva
--  태국의 대표적인 카운트다운 명소 ICONSIAM
--  Hyundai Motor and Mubadala Collaborate on Future Business Opportunities
--  Christmasland 2023 in New Taipei City Dazzles with 3D Light Projection Shows -- 'Shining Again' and 'Sweet Moments' Showcased Alternately
--  사우디아라비아, IMFC 의장국에 선출
--  Potezi vlasti SNS prikladniji 1999. nego 2023. godini: Sagovornici Danasa o odlukama koje se tiču evropskih integracija i Kosova
--  Bravo’s Southern Hospitality Season 2 cast: Meet the stars
--  LF 2024: Les ouvriers de chantiers âgés de 45-55 ans seront recrutés entre 2024 et 2026
--  Lyricist Ramajogayya Sastry Deactivates X Account After Trolling Over Guntur Kaaram Song
--  Text pokazuje wyniki i zapowiada dywidendę
--  King Charles prioritizes Prince William over reunion with Prince Harry
--  En pleno diciembre: rigen alertas naranja y amarilla por tormentas fuertes
--  В Адыгее водитель внедорожника сбил 9-летнюю девочку-пешехода
--  Sekuestrohen rreth 1.700 mjete piroteknike në Maqedoni
--  Google Pay na iPhone'ach? Apple ma otworzyć dostęp do płatności NFC
--  Push For MSMEs Required In Global Value Chain System: IAS Vimala
--  MoD Inks Rs 5,336 Cr Contract With BEL For Procurement Of Electronic Fuzes
--  'India Will Buy Venezuelan Oil', says Petroleum Minister Hardeep Singh Puri
--  Zdrava prehrana može spriječiti više od 75 posto slučajeva dijabetesa tipa 2
--  A Naughty Dog leállította a The Last of Us Online fejlesztését
--  NVIDIA dice addio alle GeForce GTX, fine di un'epoca
--  META : Jefferies herhaalt koopadvies
--  People must have tolerance for each other’s opinion: Justice Sanjay Kishan Kaul
--  Shell verkauft 37,5% Beteiligung an PCK Schwedt an Prax
--  Shell verkoopt 37,5% belang in PCK Schwedt aan Prax
--  Jefferies belässt Meta auf 'Buy' - Ziel 400 Dollar
--  Deutschland liefert Ausrüstung für Bevölkerungsschutz an die Ukraine
--  Lana Pudar proglašena “Sportistom godine” u izboru Olimpijskog komiteta Bosne i Hercegovine
--  Тервел Пулев след битката в Коста Меса: Противникът беше силен и хитър
--  European Central Bank holds rates steady
--  Analyse: Staatliche Studienförderung spielt kaum eine Rolle
--  Fast Company: Hrvatska bi 2024. mogla postati skriveni tehnološki raj Europe
--  Izraelska vojska tvrdi da je uništila štab bataljona Hamasa
--  Kombinert: Hoppingen avlyst – provisorisk omgang teller med Westvold Hansen i ledelse
--  Учащиеся художественной школы Серпухова посетили реставрационные мастерские
--  [MD포토] 장원영-안유진, '미모 투톱의 사랑스러운 손하트'
--  [MD포토] 아이브 이서, '오늘은 과감하게'
--  "'마약 무혐의' GD 받은 상처+손해 누가 책임지냐" 박명수, 공개 위로·응원 [MD이슈]
--  [MD포토] 아이브 레이, '우아해진 콩순이'
+-  Biden, Turkey’s Erdogan discuss Gaza war, Sweden’s NATO bid
+-  Cyprus expects €1 billion issuance to cover majority of financial needs for 2024
+-  Residents outraged as mouflon statue desecrated
+-  "التعاون الإسلامي" تدين المجزرة البشعة لقوات الاحتلال في "جنين"
+-  خطيب المسجد الحرام: هذه صفات المتقين وهذا موعود الله لهم (فيديو)
+-  Turkish Cypriot police arrest 74 over ‘fake prescriptions’
+-  Nepal should be developed as &#039;educational hub&#039;: Minister Gurung
+-  Hong Kong offers awards for arrests of activists abroad for breaching national security law
+-  'I would love to get to do more': Hayden Christensen eyes future Star Wars projects
+-  Timothee Chalamet is clueless about scrapped Barbie cameo
