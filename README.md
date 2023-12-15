@@ -1,11 +1,11 @@
 # Latest News
--  Corte de Apelaciones de Temuco rechazó recurso de Héctor Llaitul y mantuvo inicio de juicio para el 12 de marzo
--  Силни дъжд и сняг пречат на шофьорите по АМ "Тракия", вижте какво е положението
--  लोकसभा चुनाव में उम्मीदवार बनेंगी लालू की बेटी? रोहिणी आचार्य ने किडनी देकर बचाई थी जान
--  Colombia acogerá la COP16 entre el 21 de octubre y el 1 de noviembre de 2024
--  Peralihan tenaga memerlukan lebih kepelbagaian
--  Guayaquil: Atentado en una licorería por no pagar los $5.000 de 'vacuna' en Mapasingue
--  Selena Gomez Kisses Benny Blanco in Newly Shared Photo
--  Из-за снегопада в Курске наблюдаются сбои в работе общественного транспорта
--  Panamá ha iniciado el proceso para el cierre ordenado y definitivo de la mina
--  Illy’s First Georgia Location Opens at Atlantic Station
+-  لخدمة ضيوف الرحمن.. ماء زمزم في مشربيات مزودة بتقنية الاستشعار الذكي
+-  بيان عاجل لــ"سكني" حول الأسر المستفيدة من البرنامج منذ بداية العام
+-  ينتهي غدًا.. "تعليم جدة" تدعو الطلاب المسجلين بـ "أذكى" لتجربة منصة الاختبار التأهيلي
+-  Congress MP Dhiraj Prasad Sahu: ఐటీ రూ.350 కోట్ల నగదు పట్టుబడడంపై తొలిసారి స్పందించిన కాంగ్రెస్ ఎంపీ ధీరజ్ ప్రసాద్
+-  Google will turn off cookies for MILLIONS of people on January 4 - here's what it means for you
+-  Under-22s in Scotland could lose free bus travel due to anti-social behaviour
+-  El expresidente Iván Duque presenta una fundación para impulsar la innovación
+-  Rekord za rekordem
+-  Tiffany Haddish fails to appear at a comedy show... after being formally charged for her 2nd DUI following her November arrest in Beverly Hills
+-  الدوري التركي توقف.. وزياش الى اين ؟
