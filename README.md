@@ -1,11 +1,11 @@
 # Latest News
--  Milinkovic-Savic gli ha chiuso la porta: Berisha lo ritrova
--  Paul vs. August Results: Live updates of the undercard and main event
--  Fonavistas a cobrar: pagos inician el 21 de diciembre
--  Jake Paul vs. Andre August: Live round-by-round updates
--  Acción Popular saluda renuncia de Lescano por ser un ‘rojo’ infiltrado
--  Por: Dennis Falvy // Lo hicieron leña a Jack Ma
--  GNR inicia operação Natal e Ano Novo
--  Militantes socialistas escolhem sucessor de António Costa no cargo de secretário-geral do PS
--  Új funkció mutatja meg, milyen helyadatokat ment rólad a Google
--  How to Move and Get Fit the Primal Way
+-  팬시 토큰, 셀러비 제휴 통한 태국 라자다 협업으로 동남아 확장 준비 완료
+-  Orbán sagt doch noch „Nein“: Ungarn blockiert Ukraine-Hilfen der EU
+-  Абураҳмонов Илҳомжон Рустамовичнинг фалсафа доктори (PhD) диссертацияси ҳимояси ҳақида эълон
+-  Тупроғи зар, дур Ватан...
+-  Торонто турнирида Нодирбек Абдусатторов 3-ўринни эгаллади
+-  Маматкулов Исфандиёр Абдурахмановичнинг тиббиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Қурбонова Шахло Шухрат қизининг филология фанлари бўйича фалсафа доктори (PhD) диссертациясининг ҳимояси тўғрисида
+-  장대비 그치면 주말 한파·대설…내일 수도권에도 눈 쏟아져
+-  Tsahal dit avoir récupéré le corps de l'otage franco-israélien Elia Toledano
+-  İhaneti unutmuyor! Kılıçdaroğlu'ndan İmamoğlu'na ret
