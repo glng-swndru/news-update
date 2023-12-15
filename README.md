@@ -1,11 +1,11 @@
 # Latest News
--  Rynek akcyjny dalej rośnie
--  JP Morgan podniósł rekomendacje dla Pepco i LPP
--  Chiny: naciski na blogerów aby nie pisali źle o gospodarce
--  OECD-kutatás: a magyarok lexikális pénzügyi tudása kiemelkedő, de a gyakorlatban ebből nem sok minden látszik
--  Ўзбекистонда яйловларнинг ярми инқирозга учрагани маълум қилинди.
--  Боғча ва мактабларда янги йил байрами тадбирларини ўтказиш бўйича тавсиялар эълон қилинди.
--  רן קוז'וך: "מכבי תל אביב עייפה? היא עדיין הקבוצה הטובה בליגה שלנו"
--  סמי בוראר יחזור להרכב הפועל חדרה נגד הפועל פתח תקוה
--  [ŽT] „Ne, tai ne.“ Putinas pasiskundė dėl Macrono. Kas vyksta
--  „Ukrainai liko vos metai“. NATO admirolas skelbia du scenarijus
+-  [“폭발로 크레인 붕괴” 선박해양플랜트연구소 40대 직원 사망
+-  Manaouda Malachie : Nouveau M’ba Môn De La Grande Chefferie Sud-Camerounaise :: Cameroon
+-  „Nisam želela da vide da se plašim“: Oslobođena baka koja se smešila dok ju je otimao Hamas
+-  Temperamentni Hrvat na žestokom udaru: Taj se naučio boriti u životu, a sad baš udaraju nisko
+-  Глава ОКР обвинил Запад в «грязных играх» против спортсменов из России
+-  Yağmurda Şarkı Söyleyen Yılan...
+-  Non è di primo pelo, ma che prezzo: POCO F4 GT 12-256 GB in super offerta
+-  Gazetecilerin su havuzuna düşen dronunu bozayı kurtardı
+-  Dilan ve Engin Polat soruşturmasına iki şüpheli daha eklendi
+-  Hasan Bitmez son yolculuğuna uğurlandı
