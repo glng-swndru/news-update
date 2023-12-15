@@ -1,11 +1,11 @@
 # Latest News
--  Allianz utworzył fundusz wart 610 mln USD na rzecz infrastruktury i edukacji
--  Świąteczna lista życzeń
--  Government welcomes rise in employment
--  De tragische teloorgang van Paul Pogba: hoe de duurste voetballer ooit steeds verder afgleed
--  Srbija u susret glasanju: Bitka pod izbornim obručima, Vučić VS opozicija
--  Klart: Bardghji och Larsson missar januariturnén
--  Kryeministri Kurti takoi ambasadorin francez, Guerot
--  Janović: Đurović podmeće da je povećanje PDV-a odluka 44. Vlade
--  Ukrainë, deputeti shpërthen një bombë dore në seancën e këshillit vendor, 26 të plagosur
--  فوز الشرطة ونوروز وتعادل دهوك مع النفط بدوري نجوم العراق
+-  Borsa İstanbul'da önemli değişiklik... Yüzlerce hisse etkilenecek! İşte yeni liste...
+-  Rusya Merkez Bankası'ndan faiz kararı
+-  В Коми на 36% за год увеличилось число резидентов АЗРФ
+-  GIK utvrdila konačan broj birača u Beogradu
+-  Le 13H fête Noël : les macarons salés d'Île-de-France
+-  Autonomní ostuda. Manažeři mlžili o sražené chodkyni, devět z nich dostalo vyhazov
+-  Приставам запретят арестовывать имущество при долге менее 30 тыс. рублей
+-  Unge mænd forsøgte at bedrage især ældre for 15 millioner
+-  Unge mænd forsøgte at bedrage især ældre for 15 millioner
+-  Ricardo the bull wakes in NJ sanctuary after wild run on train tracks: ‘You’re safe now’
