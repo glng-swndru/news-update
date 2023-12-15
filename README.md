@@ -1,51 +1,11 @@
 # Latest News
--  Math Edition of ‘The Boat is Sinking’ Goes Viral Online
--  Report Urges Safeguards to Prevent Canadian Pension Plans’ Investments in Chinese Companies Tied to Human Rights Abuses
--  New Telanagana HC building at Rajendranagar
--  Ο εμβληματικός κινηματογράφος Όπερα επαναλειτουργεί από το Cinobo
--  Ευρωκοινοβούλιο: «Σκληρή γλώσσα» κατά Κίνας – Εργαλειοποιεί τα BRICS και την πρωτοβουλία «Μία Ζώνη – Ένας Δρόμος»
--  Sin vacaciones, alcalde en periodo navideño
--  Conforman Comisión para Premio Municipal de Mujeres Ejemplares
--  SAT dará atención presencial en periodo vacacional
--  Fallece el periodista Juan Manuel Carmona
--  Video: Se agolpan migrantes para entregarse a autoridades de EU
--  Detiene FGR a hermana de García Luna en Cuernavaca
--  Ranking My Top 10 Anime Of 2023 From Bloody Brilliant To I’m Not Crying, You’re Crying
--  OVERBLIK: Det ved vi om stor politiaktion - det mangler vi svar på
--  OVERBLIK: Det ved vi om stor politiaktion - det mangler vi svar på
--  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 15 ธันวาคม 2566
--  Oman Sultan Haitham bin Tarik To Arrive In India Today For Three-day Visit
--  Intel Introduces Chip With AI Integration, Targets PC Upgrade Surge
--  Telangana Cabinet clears Guv’s address for joint session
--  Argentina golea a Ecuador en un amistoso Sub-23 rumbo al Preolímpico
--  संसद के सबसे उम्रदराज सांसद: डॉ. बर्क अपनी अच्छी सेहत और याददाश्त को लेकर चर्चा में, मोदी भी कर चुके हैं तारीफ
--  Government says it has located 16,681 missing persons via new ‘census’
--  Beyaz Saray'dan Erdoğan-Biden görüşmesine ilişkin açıklama. Türkiye'ye F-16 satışına destek
--  ได้ 6 ชาติ เสนอตัวจัดการแข่งขันฟุตบอลหญิงชิงแชมป์โลก ในปี 2027
--  Gen Z: ‘Tôi không cần phải làm việc 40 giờ/tuần để thành công’
--  Paddy purchase in Koraput on hold, Odisha farmers confused
--  Lentes de contacto: aliados en la práctica deportiva
--  Zambia Makes Progress in Global Corruption Rankings
--  PSM Pecundangi Sabah FC, Bernardo Tavares Beri Kabar Mengejutkan
--  Desafíos del envejecimiento saludable y el lugar ideal para transitarlo
--  Vivian Silver, victim of Hamas attack, remembered as peacemaker
--  ইসিতে আপিল শুনানি শেষ হচ্ছে আজ
--  La formación continua es la base de la empleabilidad
--  El ajuste será justo si recorta todos los privilegios
--  Testa dina kunskaper i vår julkalender - Lucka 15
--  Γερμανία: «Πισώπλατο» χτύπημα στην ανάπτυξη των φωτοβολταϊκών φέρνει η νέα δημοσιονομική συμφωνία
--  Το μπαράζ πτωχεύσεων στο παγκόσμιο real estate και η περίπτωση της Ελλάδας
--  Galatasaray ve Fenerbahçe'nin Avrupa'da muhtemel rakipleri belli oldu
--  Miss Suomi Paula Joukasen terveyden­tilasta lisätietoa
--  MotoGP: Marc Marquez hanya guna jentera terpakai
--  ‘Southern Charm’ Cast Treats Jamaica to Relentless Screaming
--  Полковник высказался о тактике российский военных под Работино
--  Charging While Driving Now Possible in Michigan
--  В России предложили ввести в школах уроки мужества от участников СВО
--  Женщина вернулась домой спустя месяц и обнаружила удивительное изменение
--  Лишившаяся уличных украшений семья посмотрела запись с камеры и удивилась
--  Россиянка предупредила туристов о пяти опасностях в Индии
--  เปิดงานมนต์เมืองปายส่งเสริมการท่องเที่ยว
--  Former Mines Minister Richard Musukwa Arrested
--  Rep. Ayanna Pressley Introduces ‘Books Save Lives’ Act to Fight Bans
--  Will Speed Limit Increase In 2024 In New York?
+-  Sigortacılık primleri 500 milyara koşuyor
+-  Coinbase’s international exchange to launch spot crypto trading
+-  High hopes for rising boxing star Baden Trunfio after win in Canberra tournament
+-  Hong Kong: Free Pro-Democracy Publisher Jimmy Lai
+-  IND vs SA 3rd T20I Result: সূর্যের শতক, কুলদীপের স্পিনের জাদুতে অসামান্য জয় ভারতের
+-  IND Vs SA T20: அடித்து நொறுக்கிய சூரியகுமார் யாதவ்: அசத்தல் வெற்றி அடைந்த இந்தியா..! சாதனை மேல் சாதனை.!
+-  Dire figures reveal more than a quarter of Australian’s exceeding alcohol limits while obesity rates reach record high
+-  Fayetteville School Board may add third junior high
+-  Temporary ceasefire agreed after Myanmar rebel forces surround city notorious for online scam operations
+-  Skiing and snowboarding will soon be taken up a notch at Queenstown's Cardrona Alpine Resort
