@@ -1,11 +1,11 @@
 # Latest News
--  شركة شحن ألمانية توقف مرور سفنها عبر قناة السويس
--  Kudüs'te 1 buçuk ay aradan sonra sirenler çaldı! Gazze'den atılan roket Beyt Şemes'e düştü
--  Çanakkale'yi sağanak vurdu: Mahalleler sular altında kaldı
--  Obradovic: Çok kalite bir takıma karşı oynamak kolay değil
--  Karim Benzema'nın golü yetmedi, Al-Ittihad elendi!
--  Remaining four abducted students of Katsina varsity regain freedom
--  Ρέντης: Ανοίγει η βεντάλια των ερευνών για τα επεισόδια – Στο μικροσκόπιο ακόμη 45 άτομα
--  Euromillones: resultados del sorteo del viernes 15 de diciembre de 2023
--  China lanza un vehículo espacial reutilizable experimental para verificar esta tecnología
--  «مبادلة» و«هيونداي موتور» تستكشفان فرص الاستثمار
+-  "2018년보다 훨씬 빨라, 다음주 T-배팅"…'괴물'같은 회복력, 오타니 '서울시리즈' 고척돔 타석에 선다!
+-  “오타니 토론토행 비행기? 그날 밤 다저스행 결정” 7억달러 사나이는 그렇게 LA로 갔다
+-  [K-ESG 경영혁신대상] 아세아도㈜
+-  [K-ESG 경영혁신대상] 아이앤씨테크
+-  [K-ESG 경영혁신대상] 인천유나이티드
+-  [K-ESG 경영혁신대상] 정관장스포츠단농구단
+-  [K-ESG 경영혁신대상] 국립생태원
+-  سبورت الإسبانية: أهدر بنزيمة وضاع الإتحاد
+-  Definen fecha y hora para la Semifinal Panamá-México
+-  Eligen a Mónica Soto presidenta del TEPJF
