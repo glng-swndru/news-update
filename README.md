@@ -1,51 +1,51 @@
 # Latest News
--  “맨유 공격수 뭐하냐?”... 맨유 소속으로 올드 트래포드에서 득점한 마지막 공격수→‘산초’
--  Sustained buying interest lifts investors’ worth on NGX by N85bn
--  Tripti Dimri Fees:रणबीर कपूर के साथ इंटीमेट सीन के लिए तृप्ति डिमरी को कितनी फीस मिली? जानकर हैरानी होगी
--  자산관리에 ‘원칙’과 ‘기준’ 중요 [BOOK in BOOK]
--  Ampel tritt auf die Bremse: Türkei erhält kaum noch deutsche Rüstungsexporte
--  काजोल-अजय देवगन की बेटी नीसा किस कॉलेज में है, क्या पढ़ रही है, कितनी है फीस?
--  SK에코플랜트, UAE·오만서 그린수소·그린암모니아 프로젝트 착수
--  Σέλτικς - Καβαλίερς 116-107: Στο ίδιο έργο θεατές και νικητές (vid)
--  श्रेयस तलपड़े को पड़ा दिल का दौरा, हुई एंजियोप्लास्टी, जानें एक्टर को क्या हुआ, अब कैसी है उनकी तबीयत
--  안신일 세종시의원 “세종 BRT 자전거대회 만들자”
--  민주당, 홍보위원장에 한웅현 전 LG전자 상무 임명
--  주특기 ‘외환’…미국 빅테크 관련주 비중 확대 [BOOK in BOOK]
--  सूर्य गोचर 2023: 16 दिसंबर को सूर्य करेंगे गोचर, देश के मौसम पर पड़ेगा असर
--  Los empresarios celebraron la reacción de los mercados a las medidas de Toto Caputo, pero mostraron sus dudas
--  मूल्य वृद्धिदर २६ महीनायताकै न्यून
--  मर्जर र एफपीओको आम्दानीमा लाभकर सदर
--  १० कित्ते नीति हटाउन खोजिएको होइन : हमाल
--  China apuesta por la inteligencia artificial para modernizar su red de transporte fluvial
--  The beautiful, remote island fit for an (exiled) emperor
--  State Govt reveals 10-year forests plan
--  Hoy, aumento de las temperaturas máximas en gran parte del país
--  The Hong Kong Chartered Governance Institute elects President and Council for 2024
--  RE100 가입한 LS일렉트릭…“2024년까지 재생에너지 100% 전환”
--  Addressing the Rising Myopia Challenge: HOYA Lens Singapore's MiYOSMART Sun with Full Control Lenses
--  На Камчатке родители участников СВО смогут получить бесплатный земельный участок
--  Движение пассажирских поездов в Жамбылской области возобновлено
--  Abdulkadir Selvi: İYİ Parti bu seçimlerde ittifak yapmama kararı aldı ya, İmamoğlu parmağını soktu İYİ Parti'yi karıştırmaya başladı
--  Unlucky Zodiac Signs in 2024: इन 3 राशियों को आने वाले साल में करनी होगी खूब मेहनत, नहीं मिलेगा भाग्य का साथ
--  잇단 가격 인상에 OTT 요금제 들여다봤다…“그래서 얼마야?”
--  Asnawi Akhirnya Ngaku Kasih Bunga ke Fuji: Puas Kalian!
--  Ganjar Sentil Faskes Melahirkan Minim di Puskesmas, Menkes Budi Angkat Suara
--  Harga Emas Antam Hari Ini Naik, Cek Selengkapnya di Sini!
--  권아솔 ‘내일 시합 기대하세요’ [MK포토]
--  한글로 맞이하다니, 이정후에 진심이네… SF, 이정후 영입 공식 발표
--  100명 넘는 고객, 이직할 때 함께 자산 옮겨 [BOOK in BOOK]
--  เน้นให้ความช่วยเหลือราษฎร ให้สอดคล้องกับสภาพปัญหา ความต้องการของราษฎร
--  Cara Download dan Menggunakan HyperOS Control Center di HP Xiaomi
--  PJ Masks: Power Heroes Season 1 Streaming: Watch & Stream Online via Disney Plus
--  Bihar Business Connect Global Summit 2023 Attracts Staggering Investments Of Rs 50,530 Cr
--  Indian Envoy To US Explores Tech Collaboration With IBM
--  कहानी उस लड़की की, जो एक रात बिस्तर पर सोई, फिर कभी नहीं मिली!
--  मुगुबाट चीन जोड्ने सडक नौ वर्षमा पनि बनेन
--  Çin Merkez Bankası likiditeyi artırdı
--  अंक ज्योतिष 2024: इस 3 तारीख को जन्मे लोगों के लिए नया साल रहेगा शानदार, मिलेगा पैसा, सम्मान और प्यार
--  Krieg gegen die Ukraine: So ist die Lage
--  Aktiefest i Hongkong efter kinesisk injektion
--  ثقافة الفيوم تحتفي باليوم العالمي للغة الضاد
--  السبت.. انطلاق الملتقى الرابع عشر لفتيات المحافظات الحدودية بأسوان ضمن مشروع "أهل مصر"
--  SG, 우크라이나 미콜라이우 주정부와 도로 재건·현대화 협력 MOU 체결
--  신보, 예보와 '내부통제 강화 위한 업무협약' 체결
+-  스틸리언, SW고성장클럽 최우수 기업 선정
+-  삼성화재, 대한민국 디지털 광고대상 은상 수상
+-  예보, 신용보증기금과 내부통제 강화 업무협약 체결
+-  "엔비디아 H100보다 성능 뛰어날 것" 인텔, AI 반도체 '가우디3'공개
+-  농협금융 스포츠단, '사랑의 농산물 꾸러미' 나눔 실시
+-  Ремонт моста в Камешково закончат к лету 2024 года
+-  Hungary blocks $55 billion EU aid to Ukraine
+-  Ukraine-Krieg: „Awdijiwka ist jetzt Hotspot“ – wachsende Sorge an der Front
+-  Editorial: Llegó la depuración
+-  В Воронеже два брата избили и ограбили пенсионера
+-  US-Wahl 2024: Warum die Grenze zu Mexiko Bidens größtes Problem ist
+-  ”Snaran kring tillgängligheten i vården dras åt”
+-  머스크, 이공계 교육 광폭 행보…“1300억원 투자해 학교 설립”
+-  Frjósemislæknir sakaður um að hafa notað eigið sæði til að frjóvga sjúkling
+-  20대 소득 줄고 빚 늘었다…20대 여성 27%만 ‘결혼 긍정’
+-  박유천 어제는 '고액체납자', 오늘은 '결별설'…'나쁜 소식'만 줄줄이 [종합]
+-  Denizli'de maden ocağındaki göçükle ilgili soruşturma başlatıldı
+-  Gazze Şeridi'nde altıncı kez iletişim ve internet hizmetleri kesildi
+-  Тигр растерзал сторожевого пса в Приморье
+-  Russland greift Ukraine mit Raketen und Drohnen intensiv aus der Luft an
+-  Jordan Staal breaks 2nd-period tie, Hurricanes beat Red Wings 2-1
+-  Horsch-Prototyp: Details zur Solus-Einzelkornsämaschine für Getreide #einzelkornsaat #einzelkornsämaschine
+-  2023년 학교운영위원회 창원지역협의회 연수·시상식
+-  Znepokojivý zápach, ktorý by ste doma nikdy nemali ignorovať: Môže signalizovať vážny problém
+-  Polisi Ungkap Penyebab Kematian Ayah dan Anak yang Membusuk di Koja
+-  에스파, ‘드라마’·‘징글벨 록’ 스페드 업 버전 공개
+-  캐넌히터가 단장으로… SSG, 신임 단장에 '레전드' 김재현 선임
+-  [여중·고 주변 ‘애 낳을 여성구함’ 현수막 붙인 50대 2심도 집유
+-  [국립서울현충원 보훈부로 이관, 보훈부 “호국보훈 성지로 재창조할 것”
+-  Kanupur dam project hangs fire with delay in Forest nod
+-  한국전력기술-포스코이앤씨, ‘국내 해상풍력 발전사업 개발협력 양해각서’ 체결
+-  Xiaomi 14 Pro Tidak Dirilis ke Indonesia?
+-  Борислав Цеков: Безпрецедентни за конституционната ни история промени
+-  Yemek yerken daha sık görülüyor ve ölüme götürüyor
+-  Vain Iivo Niskasella on alkukaudelta podiumsijoitus – suomalaisten maastohiihtäjien on aika parantaa vauhtia
+-  Städtetag warnt vor Verzögerung bei Wärmeplanung
+-  Á hậu Ngọc Hằng bị gãy cà kheo trong phần thi Trang phục dân tộc, xử lý thế nào trên sân khấu quốc tế?
+-  Hé lộ bằng chứng Gen.G "ăn cháo đá bát", phủi sạch mọi công lao của Peanut khiến fan bức xúc
+-  Sao bóng đá cầu hôn thành công bạn gái ca sĩ trong khung cảnh lãng mạn đến nao lòng
+-  Mehr Öko-Weihnachtsbäume - Nachfrage dennoch höher als Angebot
+-  TPHCM công bố nguyên nhân trẻ tử vong do bánh su kem tại lễ trung thu
+-  Schnieder lobt CDU-Grundsatzprogramm: „Keine Denkverbote“
+-  Vierungsturm: Dombauverein Speyer verkauft historische Nägel
+-  Berdialog dengan Ulama, Anies: Pondok Pesantren harus Setara dengan Sekolah Umum
+-  Djokovic, Sabalenka named 2023 tennis world champions
+-  Dutch court to rule on export of F-35 parts to Israel
+-  Actor Shreyas Talpade Suffers Heart Attack, Undergoes Angioplasty; Fans Pray For His Speedy Recovery
+-  Warga Tangisi Kepergian Awan yang Tewas Dibanting Ayahnya
+-  Manifestación de ciclistas por la muerte de un compañero culminó en agresiones
+-  La transformació d'un sector a través de la innovació i la tecnologia
