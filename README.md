@@ -1,11 +1,11 @@
 # Latest News
--  Les Clippers ont trouvé leur rythme de croisière, l’Ouest n’a qu’à bien se tenir
--  UK Teen Missing For Years To Return Home This Weekend From France
--  Carols Concert op 21 december 2023
--  Prince Harry was a victim of phone-hacking by Mirror newspapers, court rules
--  МВД Украины раскрыло подробности о депутате-подрывнике
--  Opinion/Sali Berisha për kërkesën e SPAK! (14 Dhjetor 2023)
--  Дагестанский спикер посетил местный телеканал
--  তুষারপাত থেমে বৃষ্টি শুরু হলো, বৃষ্টির সঙ্গে ঝরল বরফকুচি
--  REPER ODUSTAO OD IZDAVANJA LUKS VILE, PA SE SJATIO U NJU! Vuk Mob tražio 7.000 € mesečno, a sada je okitio u duhu praznika (FOTO)
--  MP man extorts money in Odisha by posing as police officer, arrested
+-  عاجل.. "الأرصاد" يُحذر من ضباب وشبورة على هذه المناطق لـ 8 صباحًا
+-  بالصور.. تفاصيل حادث القصيم المروري
+-  Skrivanje domene sve je popularnija metoda među cyber kriminalcima
+-  Lula e Haddad perdem queda de braço com Congresso, que derruba 13 vetos presidenciais
+-  Missing boy found in France to return to UK: police
+-  DA: “Lie-sufi’s Crime Prevention Wardens, a dangerous PR stunt”
+-  Abanyamideli baserukanye imyambaro idasanzwe mu iserukiramuco ry’indabo – AMAFOTO
+-  Nueva York adeuda 130 millones a los hoteles donde la ciudad ha alojado a los inmigrantes
+-  ECP issues election schedule for Feb 8 general polls
+-  Fife Council to close some recycling centres this weekend
