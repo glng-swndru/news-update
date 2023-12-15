@@ -1,11 +1,11 @@
 # Latest News
--  [“폭발로 크레인 붕괴” 선박해양플랜트연구소 40대 직원 사망
--  Manaouda Malachie : Nouveau M’ba Môn De La Grande Chefferie Sud-Camerounaise :: Cameroon
--  „Nisam želela da vide da se plašim“: Oslobođena baka koja se smešila dok ju je otimao Hamas
--  Temperamentni Hrvat na žestokom udaru: Taj se naučio boriti u životu, a sad baš udaraju nisko
--  Глава ОКР обвинил Запад в «грязных играх» против спортсменов из России
--  Yağmurda Şarkı Söyleyen Yılan...
--  Non è di primo pelo, ma che prezzo: POCO F4 GT 12-256 GB in super offerta
--  Gazetecilerin su havuzuna düşen dronunu bozayı kurtardı
--  Dilan ve Engin Polat soruşturmasına iki şüpheli daha eklendi
--  Hasan Bitmez son yolculuğuna uğurlandı
+-  LIVE Lo Russo: la conferenza stampa del sindaco di Torino
+-  LIVE Cairo: la conferenza stampa del presidente del Torino
+-  Calcanhar de Arthur Cabral apurou Benfica, mas não valeu prémio
+-  Berisha fsheh 28 deputetët që duan ta shpëtojnë nga arresti! Padia në kushtetuese, mbahen sekret firmat e deputetëve
+-  Fenerbahçe'nin Konferans'tan kazandığı rakam belli oldu
+-  Bakan Uraloğlu: Altunizade - Bosna Bulvarı arası 8 dakika 40 saniyede seyahat edilebilecek
+-  Hedge funds fall victim to success in dash for cash
+-  UK services firms report another pick-up in December
+-  20-year-old dead after falling off escalator at north’s airport
+-  Italian restaurant in London refuses to serve carbonara after too many customers demand to add 'cream, mushrooms and chicken' to the 'traditional Roman-style recipe'
