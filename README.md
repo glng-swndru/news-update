@@ -1,51 +1,51 @@
 # Latest News
--  כנעאן וממאטה ייכללו בסגל מ.ס. אשדוד, רוברטסון ייעדר
--  שגרת האימונים המטורפת של הכוכבות הכי גדולות בעולם
--  Đồng USD bị bán tháo sau tín hiệu chính sách tiền tệ trái chiều giữa Fed và ECB
--  Onderzoek CdK Gelderland niet in februari, maar in juni klaar
--  Gagal tunjuk pas kerja sah, 47 warga asing ditahan
--  Hungary vetoes aid for Ukraine – Orban — RT World News
--  10 best TVs under ₹15,000: Most affordable picks
--  DEUTSCHE TELEKOM AG : UBS herhaalt koopadvies voor het aandeel
--  UBS belässt Deutsche Telekom auf 'Buy' - Ziel 26,60 Euro
--  מתי המחלה כבר לא מדבקת ומה עושים עם זיהום ויראלי? כל התשובות
--  YAP İlham Əliyevin prezidentliyə namizədliyini irəli sürdü
--  Gjashtë fanella të kapitenit të Argjentinës, Leo Messi nga Kupa e Botës 2022 shiten së bashku për 7 milionë euro
--  유력한 손흥민 새 파트너였는데…공식 제안 없다! 브라이튼이 가로챌 준비
--  OV7: ¡Qué triste es el segundo adiós!
--  Top 7: 2023, un año de mucho facturar
--  Todo queda en suspenso entre América y Tigres
--  На Солнце произошла мощнейшая за шесть лет вспышка: чего ждать белорусам?
--  Tata Nexon, Tigor & Tiago EVs available at year-end discounts of up to ₹2.6 lakh. Details
--  AIR FRANCE-KLM : Een koopadvies van UBS
--  UBS belässt Air France-KLM auf 'Buy' - Ziel 21 Euro
--  Munich Re will Gewinn 2024 auf rund 5 Milliarden Euro steigern
--  Zvijezda 'Pedeset nijansi sive': 'Moram odspavati barem 12 sati jer inače ne mogu funkcionirati'
--  [15일 울진군] ‘2023년도 한울원전본부 아톰 공학 교실’ 시행 등
--  Keresztféléves ügyintézés: így nézhetitek meg a pontszámaitokat
--  Dutch court to rule on export of F-35 parts to Israel
--  Top 10 TikTok Video Downloader Apps (for Android & PC)
--  Julia Fox i rikthehet rrënjëve të saj dominuese, teksa u shfaq provokuese për një festë në New York
--  Veli-Pekka Toivanen asui yli 20 vuotta Italiassa – Yksi asia Suomeen palatessa yllätti
--  КПРФ рекомендовала кандидатов на выборы президента России
--  When Pakistani Actress Nadia Jamil Opened Up About Being Sexually Abused As A Child
--  अगले लोकसभा चुनाव में पुरुष मतदाताओं के साथ महिला मतदाता भी शामिल होंगी
--  Morning Briefing International
--  DWS : JP Morgan handhaaft koopadvies
--  JPMorgan hebt Ziel für DWS auf 46,40 Euro - 'Overweight'
--  Macarıstan bunu etdi: Aİ Putinin qalib gəldiyini bildirdi
--  Support local: Visit 11 of these homegrown UAE cafés
--  Riveriasta valmistuneet
--  Emlak Katılım’a uluslararası 'Best Sukuk Arranger' ödülü
--  Emlak Katılım ilk 2022 GRI Sürdürülebilirlik Raporu’nu yayınladı
--  Keke Palmer's Ex Darius Jackson Posts About 'Saving Myself,' Being Baptized Following Domestic Violence Claims
--  Venerdì 15 dicembre
--  Godina s dubokim implikacijama za budućnost međunarodnih odnosa
--  غضب في الفريق النسائي لمانشستر يونايتد بسبب كتيبة تين هاغ
--  "Venezuela ve Guyana, Esequibo gerilimini güç kullanmadan çözecek
--  AB'nin Ukrayna'ya 54 milyar avroluk yardım paketi Macaristan tarafından veto edildi
--  Merkez Bankası'ndan yeni KKM hamlesi
--  Demokrat Senatör Warren, Zuckerberg'ten Filistin sansürü hakkında açıklama istedi
--  3 bin 655 aday başvuru yaptı! YDUS 2. Dönem pazar günü düzenlenecek
--  "Atamalı memur mu atıyorsunuz" diyen aday adayı CHP'den istifa etti
--  [15일 김해시] 전국체전 대비 김해맛집 지정식 개최 등
+-  وفاة نائب تركي تعرض لنوبة قلبية خلال كلمة ضد الاحتلال - فيديو
+-  농식품 11월까지 83억8천만달러 수출…전년대비 3.2% 상승
+-  한국 농경지에 맞는 작물은?…농진청, 100작물 토양적성도 제공
+-  고향을 담은 연말 선물, 영천와인과 함께
+-  코스피, 美 금리인하 기대감에 '이틀 연속 상승'…2차전지주 강세
+-  Covid RI Naik Jelang Libur Nataru, Pemerintah akan Wajibkan Pakai Masker Kembali?
+-  “콩밥 먹게 한다”…초임 기간제 여교사 사망에 ‘학부모 폭언’ 있었다
+-  카카오모빌리티-택시업계, 갈등 봉합 수순…“가맹수수료 최종 합의”
+-  민주화 이후 최악의 사법 불신 속 조희대 대법원장이 할 일 [쓴소리 곧은 소리]
+-  IL: Död person hittades på Viking Line-färja
+-  Inversión en un panorama inmobiliario sostenible
+-  شتاينماير: ألمانيا ستظل وطنا لليهود وغيرهم من أتباع الديانات الأخرى
+-  Ücretli çalışan sayısı ekimde yıllık bazda yüzde 2,6 arttı
+-  بيع 6 قمصان ارتداها ميسي بمبلغ 7.8 مليون دولار
+-  X dobio financijsku licencu od još jedne američke savezne države
+-  Prenova nadvoza razburja še pred popolno zaporo
+-  Најстудено на Попова Шапка, најмногу снег во Крушево
+-  NIA, 생성AI 규제 개선안 공개 세미나…신뢰성 확보 법적 대응안 논의
+-  إسرائيل تشن هجوما كبيرا قرب الحدود المصرية
+-  Das sind die Weihnachtsmärkte im Raum Aschaffenburg am dritten Adventswochenende
+-  Podcast: Jahresrückblick mit VIP-Gast Thomas Poppe
+-  Zorunlu trafik sigortasına bir zam daha. Zama da zam geldi
+-  Novel Baswedan Khawatir Firli Bahuri Berbohong soal Pengakuan Diintervensi Karyoto
+-  Capturan y entregan a Colombia a segundo cabecilla al mando del Eln
+-  आपबीती ने उड़ाए होश: फेसबुक पर दोस्ती, फिर होटल में दरिंदगी की हदें पार, यूपीएससी की तैयारी कर रही हैं पीड़िता
+-  A year of war: 2023 sees worst-ever Israel-Hamas combat as Russian attacks on Ukraine grind on
+-  米の日本語教員、人材不足の懸念
+-  Brent petrolün varil fiyatı 76,79 dolar
+-  Bouwtafel Zwijndrecht: investeer in de buitenruimte
+-  FC Barcelona rozpoczyna negocjacje w sprawie transferu gwiazdy mundialu do lat 17
+-  Türkiye'de kasımda 93 bin 514 konut satıldı
+-  Một vùng đất cát mềm ở Quảng Ngãi, thấy dân vác cuốc đào nhặt một con vật làm đặc sản, ngó thấy có người sợ
+-  大谷翔平、３月開幕戦へ照準
+-  Nya ägare till 60-talshus för 1 550 000 kronor i Stavreviken, Bergeforsen
+-  50-talshus på 87 kvadratmeter sålt i Domsjö – priset: 2 200 000 kronor
+-  Météo de ce vendredi
+-  Dehradun: महिला से दुष्कर्म की कोशिश और उसके भाई की हत्या में फरार 50 हजार का इनामी गिरफ्तार, 2018 से था फरार
+-  Të dhënat e Eurostat, Shqipëria mbetet me të ardhurat dhe fuqinë blerëse më të ulët në Europë
+-  薬過剰摂取で児童２人搬送
+-  2 ราศี ปี 67 ชะตาชีวิตพลิกผัน! เริ่มต้นชีวิตใหม่กับปีใหม่กันเถอะ!
+-  Доживотен затвор за кинески банкар за корупција, одземен му е целиот имот
+-  RAT U IZRAELU: Nastavljeni žestoki sukobi duž celog Pojasa Gaze; Otkriveno telo još jednog taoca
+-  전국 민간아파트 분양가 9개월 연속 상승...1㎡당 518만원
+-  Alessandra de Rossi On People Criticizing Unmarried Women
+-  20 yıl hapis yatan kadına rekor tazminat. 4 çocuğunu öldürmekle suçlanıp yıllarca bebek katili olarak anıldı
+-  Powrót Kamila Stocha, Puchar Świata tym razem w Engelbergu
+-  Florentino Pérez desea un ¡Bon Nadal! y sugiere que llega su 'Last Dance' en el Real Madrid
+-  Деси Цонева претърпя тежка загуба
+-  Jawab Langsung Keluhan Warga soal Bansos, Sandiaga: Bukan Hanya Dilanjutkan, Tapi Ditambahkan
+-  Најмногу снег во Крушево
