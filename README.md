@@ -1,51 +1,51 @@
 # Latest News
--  İTO Başkanı Avdagiç’ten KOBİ’ler için ‘sermaye desteği’ talebi
--  Bakan Şimşek: Yatırımcılardan Türkiye'ye büyük ilgi var
--  Bakan Şimşek: Yatırımcılardan Türkiye'ye büyük ilgi var
--  [당객열전] 냉혹한 ‘승부사’로 돌아온 최성원
--  기아 "CES 2024서 지속 가능한 PBV 모빌리티 전략 공개"
--  우리은행, 'WOORI 어르신 IT 행복배움터' 5개소 확대 조성
--  DL그룹, 공정위 CP등급평가 우수기업에 선정…"이해욱 회장 ESG 경영 성과 인정 받아"
--  TERA SCIENCE counts down its entry into the global environmental waste and new renewable energy market
--  다인리더스, VR 의료교육 콘텐츠 'HAIO'로 생생한 실습 환경 제공
--  Similis, AI 기반 AnyoneSwap으로 콘텐츠 제작 환경 일대 혁신
--  Peak Energy and TOPINFRA join forces to develop more than 500 MW of renewable projects in Korea
--  Ping An Receives Hong Kong ESG Excellence Awards 2023
--  Kwang Woon is in the final stages of developing an industrial water hammer arrester that extends the lifespan of piping equipment
--  무역 어드벤처 RPG게임 신작, 대항해일지 21일 정식 오픈
--  Bahana provok anggota polis guna pisau lipat
--  Σύνοδος κορυφής της ΕΕ: Τι σημαίνει το μπλόκο της Ουγγαρίας στο οικονομικό «πακέτο» στήριξης προς την Ουκρανία
--  En directo: Óscar S. declara hoy por la muerte de Esther López
--  Here are all the performers and winners from the 2023 Asia Artist Awards
--  Hoje nas notícias: Ano Novo, imobiliário e caso das gémeas
--  Top 7: Escándalos en el deporte del 2023
--  Tommy DeVito, una cenicienta italoamericana
--  العين الماضي: مصداقية المقاومة الفلسطينية فرضت نفسها على العالم
--  정부 “차량용 요소 6.8개월분 확보…베트남 등에서 물량 곧 도착”
--  평택시 청소년들, 정장선 시장과 만나 정책 제안
--  남양주시, ‘전자정부 표준프레임워크 우수 활용사례 공모전’ 최우수상 수상!
--  가평군, 자라섬 꽃 축제 지역경제에 불 지피다
--  파주시, 민방위·비상대비 분야 우수기관…5년 연속 선정
--  영광군, 2024 불갑산 해맞이 행사 개최
--  [2TV 생생정보 맛집] ‘피자돈가스’ 맛집
--  전북도, 제13차 새로운 전북 포럼 개최
--  Lokesh Kanagaraj has taken criticism for Leo into account, won’t repeat same mistake in next with Rajini
--  Арабите искаха Цариград. И попаднаха на Тервел!
--  Free cash you can get on Universal Credit this Christmas worth £1,000s that you don’t have to pay back
--  Senatorka traži odgovore od Zuckerberga o cenzurisanju propalestinskih sadržaja
--  Konut satışlarında sert düşüş
--  Chcesz wzmocnić więzi z bliskimi? Psycholog wyjaśnia, jak zadbać o dobre relacje w rodzinie i spędzać udany czas razem
--  Anas Sarwar slams Labour lord over post linking Humza Yousaf & wife to Hamas terrorists
--  Od nedjelje pretežno sunčano vrijeme
--  [“콩밥 먹게 하겠다” 개인폰으로 학부모 민원만 1500건…28세 기간제 교사, 결국
--  [“별풍선 24억 쏘면 결혼한다니” 이러다 사달난다…욕먹던 아프리카TV 대수술
--  [우리아이들병원, 2023년 일자리 창출 우수기업 선정
--  [양주시 최성조 규제개혁팀장, ‘지방행정의 달인’ 인증패 수수
--  [사우디아라비아 장관, KGM 평택공장 방문…곽재선 회장 “협력 강화해 나갈 것”
--  [나만의 닥터, 비대면진료 개편…서비스 확대
--  I tested supermarket Christmas puddings – bargain winner is high-end and worth every penny, plus it beats Aldi
--  [속초시, 대설특보에 비상 대응 1단계…설악산 탐방로 개방 연기
--  Капитан I ранг Васил Данов: Досега няма случай, в който да има охрана на някой кораб и той да е бил превзет
--  Pemimpin Hamas Ungkap Syarat Perundingan Damai dengan Israel
--  Rolerkoster u Japanu stao usred vožnje, desetine ostavljene da vise naopako
--  Navidad en los Patios 2023: Grupo de Cámara Orpheus
+-  HVG-rangsor 2024: ezek a legjobb műszaki egyetemek
+-  שש שנים אחרי: נער בריטי, שנעלם בספרד בגיל 11, נמצא בצרפת
+-  תומא צפוי לחזור להרכב בית"ר ירושלים, גוטליב יחליף את דהן?
+-  Lyon: la violente agression d'une adolescente filmée et diffusée sur les réseaux sociaux
+-  V Los Angeles pochovali nevyžiadané telá obetí KORONAVÍRUSU
+-  AKTUÁLNE LEKÁRI po novom ODMIETAJÚ vydávať PN-ky! Čo budú Slováci robiť? Vieme, čo je za tým
+-  Hyundai Tucson mení tvár, facelift zasiahol hlavne vnútro
+-  Suzuki Swift oficiálne. Jeden motor, nová technika
+-  Neuveriteľná sveteľná šou s autami. Stovky zladených blikajúcich áut. Toto je rekord
+-  TEST: Mercedes GLE 350de - Triceratops
+-  Mercedes-AMG CLE 53 bude unikát. Nový model so šesťvalcom
+-  Výherkyňa lotérie prišla o stovky eur kvôli bizarnej chybe: Toto nikdy neurobte!
+-  Za literárnym bohom Janovicom plačú aj politici: Dojímavé odkazy do neba od hlavy štátu či ministerky Šimkovičovej!
+-  Strašná správa pre hokejový Slovan: Zomrel majiteľ klubu Rudolf Hrubý (†69)
+-  Parent Airs Dismay After Child Received Pancit Canton & Biscuit in Exchange Gift
+-  恆星還是巨行星？韋伯望遠鏡發現小到無法解釋的棕矮星
+-  ‘광부 사망’ 원경환 대한석탄공사 사장, 중대재해법 위반 기소
+-  두 번째 대란은 없다? 정부, 요소수 원료 수입 원활
+-  윤종복 의원, ‘노후·불량주거지역 주택공급 및 환경 개선 연구용역’ 최종보고회 참석
+-  서울시의회 부동산대책 및 주거복지 특위, 6개월간 활동 성공적 마무리
+-  ‘행복을 나눠요’ 서울시, 기업 후원 통해 독거 어르신 위한 식료품 박스 전달
+-  청송군, 농촌협약 체결 준비 ‘착착’
+-  한순희 운영위원장, 경주시의회 제279회 제2차 운영위원회
+-  청송군, 웹어워드코리아 2023 ‘이벤트프로모션’ 대상 수상
+-  의성군, 2023년 성인 문해 교실 수료식
+-  영덕군, 2023년 공약 이행 주민배심원단 활동 마무리
+-  ‘경북도청 신도시 상생 행정협의회 실무협의회’ 개최
+-  경북도교육청, 2023년 학교폭력 실태 조사 결과 발표
+-  성주군, 2023 지역 자율형 사회서비스투자사업 ‘우수상’
+-  양천구의회, 제304회 제2차 정례회 제2차 본회의 열고 안건처리
+-  Ca sĩ 30 tuổi đột tử trên sân khấu
+-  또 리콜? 다이소 판매 어린이 장난감에서... ‘유해물질’ 초과 검출
+-  Szefowa MFW radzi bankom centralnym aby nie naśladowały Fed
+-  Provinciaal groen licht voor helihaven bij Stroe
+-  Prof. Dr. Orhan Şen'den İstanbullulara akşam saatleri uyarısı: Bir an önce evinize gidin
+-  RUSIJA POD PRITISKOM Amerika iznela zapanjujuće podatke
+-  [한승구 계룡건설산업 대표, 제29대 대한건설협회장에 당선
+-  [부산국토관리청, 김천시 옥률-대룡 국대도 개통…29일 개통
+-  [서울시 2024년 예산 45조7405억원으로 확정…예산안 대비 166억원 증액
+-  [로키산맥 가는 새 직항, 웨스트젯 인천-캘거리 취항
+-  [구리시·구리시 새마을회, 주요 현안 논의 ‘소통간담회’ 진행
+-  [바닷길이 열리고 닫히는 서해 간월암 [정용식의 내마음대로 사찰여행 비경 100선]
+-  Банкетът победи бюджета, каза Корнелия Нинова след поредното провалено заседание
+-  [서삼석 의원, 대한민국 산림환경 대상 수상
+-  डिएसपीको रक्तदानले अञ्जलिको स्वास्थ्य सहज
+-  Métropole de Lyon: les tarifs TCL vont augmenter en 2024
+-  Skijaš imao bliski susret s pravom zvijeri: Pogledajte dramatične prizore koje je uhvatio kamerom
+-  شبح سنة بيضاء يتهدد كليات الطب وطب الأسنان والصيدلة
+-  รมว.แรงงาน “พิพัฒน์”หารือเอกอัครราชทูตไทย ณ กรุงริยาด พร้อมเยี่ยมสำนักงานแรงงาน หวังยกระดับค่าจ้าง สร้างแรงจูงใจให้แรงงานไทยไปทำงานในซาอุฯ เพิ่ม
+-  (VABILO) Shod za pitno vodo ter za zdravstveno oskrbo v Ljubljani – v ponedeljek, 18. decembra!
