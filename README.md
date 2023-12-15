@@ -1,51 +1,51 @@
 # Latest News
+-  Air Jordans Made for Filmmaker Spike Lee are up for Auction after being Donated to Oregon Shelter
+-  마지막 '난방열차' 등록문화재로
+-  국내 전기버스 시장서 중국산이 절반
+-  한전KPS, 취약계층 농산물‧에너지요금 지원사업 펼쳐
+-  Number of residents back to their native lands in Azerbaijan’s Zabukh (PHOTO)
+-  ฟังคำตอบ เจนี่ อัลภาชน์ หลังถูกจับตาสถานะสามี ลั่น! 6 เดือนที่ผ่านมาย้ำแล้วย้ำอีก
+-  더미래 "이낙연, 신당 창당 철회하라"
+-  Gibran Ajak Sorak-sorak Saat Debat Capres Cawapres di KPU, TKN: Oh, Berujung Teguran?
+-  民怨物價太貴 俄總統普廷罕見致歉「是政府的失敗」
+-  Sardines Die in Large Numbers at Fishing Port in Mie; Possibly Due to Oxygen Deprivation After Being Chased by Large Fish
+-  銅鑼灣伊利莎伯大廈海景1房戶 國內人士即睇即租 月租2.68萬元
+-  "Mənim kimi oyunçu 50 ildən bir doğulur"
+-  India vs South Africa: సూర్య చితక్కొట్టాడు, కుల్‌దీప్‌ చుట్టేశాడు, దక్షిణాఫ్రికాపై టీమిండియా ఘన విజయం
+-  Mumbai News: बोरिवलीत चोरीच्या कारणावरून दुकानदाराकडून बेदम मारहाण, कर्मचाऱ्याचा मृत्यू
+-  고양시, 경기도 성별영향평가 정책 개선 경진대회 우수사례 선정
+-  Hungría bloquea la ayuda a Ucrania por 50.000 millones de euros
+-  Comentario sexista de Juan Carlos Lizarzaburu revela una “cultura que naturaliza la violencia contra las mujeres”
+-  El veto de Orbán a los 50.000 millones a Ucrania obliga a los líderes a aplazar la negociación a enero
+-  Autoridades confirman 10 desaparecidos en Estado de México tras enfrentamiento armado
+-  Basquete: Fla recebe Boca Juniors na Champions League das Américas
+-  L'ASSE change d'entraîneur, il promet du lourd
+-  Kırıkkale'de yeğen halasını vurdu! Yaralanan kadın hastaneye kaldırıldı
+-  Pulihkan Trauma Anak yang Diduga Ditinggal Bunuh Diri Satu Keluarga, Polres Malang Lakukan Pendampingan Psikologis
+-  ‘Very frustrating’: Travis Head falls into Pakistan’s preconceived trap in six-year deja vu
+-  Democrat says Putin ‘celebrating’ Congress going home without passing Ukraine aid
+-  La razón por la que el Congreso de Oaxaca redujó el mandato de la próxima gubernatura a dos años
+-  Usai Liburan ke Thailand, Wajah Ria Ricis Disebut Mirip Irish Bella dan Dituding Operasi Plastik
+-  Pobladores del Edomex intentaron linchar a extorsionadores que se hacían pasar por integrantes del CJNG
+-  Pertamina Forms Task Force to Ensure Energy Supply Availability During Christmas, New Year
+-  IHSG Hari Ini Uji Area Resisten, Simak 5 Rekomendasi Saham Samuel Sekuritas
+-  إنقاذ بايدن أم نتنياهو
+-  Asesinan a tiros a hombre en Juárez
+-  24-year-old identified by family as victim of deadly hit and run in Richgrove
+-  Avanza en el Congreso dictamen que prohíbe nombre de calles en honor a servidores públicos, sus esposas y parientes
+-  應對逆境需AQ及企業家精神（黃岳永）
+-  US sanctions the ‘Malas Mañas’ criminal group based in Sonora
+-  ABD'den flaş Türkiye açıklaması
+-  Posisi Shin Tae-yong Masih Aman Meski Timnas Indonesia Loyo di Kualifikasi Piala Dunia 2026
+-  LIC Movie Update: விக்னேஷ் சிவனின் இயக்கத்தில், பிரதீப் ரங்கநாதன் எல்ஐசி திரைப்படம்: பூஜையுடன் படப்பிடிப்புகள் தொடக்கம்.. விபரம் இதோ.!
+-  Lula celebra haber colocado por primera vez un juez “comunista” en la Corte Suprema brasileña
+-  Amritsar Crime | ਸਿਆਸੀ ਰੰਜਿਸ਼ ਨੇ ਧਾਰਿਆ ਖ਼ੂਨੀ ਰੂਪ - 2 ਭਰਾਵਾਂ 'ਤੇ ਫ਼ਾਇਰਿੰਗ, 1 ਦੀ ਮੌਤ
+-  นายกฯ ปาฐกถาต่อนักธุรกิจญี่ปุ่นกว่า 500 คน ยืนยันศักยภาพการค้าการลงทุนของไทย
+-  A Jermein Peña le llueven críticas por ataque a Brayan León: “Para mí tiene problemas mentales”
 -  «C'était mon ami et il m'a viré !» : Ce que vous risquez à faire venir un proche dans votre entreprise
+-  Harga Avtur Turun, Harga Tiket Pesawat Ikutan?
 -  Test des Bose QuietComfort Ultra Earbuds: Un défaut incompréhensible à ce prix-là!
--  Westpac NZ forecasts no rate hikes, or cuts, from the RBNZ in 2024
--  Itc Share Price Live blog for 15 Dec 2023
--  Berger Paints India Share Price Live blog for 15 Dec 2023
--  Icici Bank Share Price Live blog for 15 Dec 2023
--  Stephen Totilo launches Game File
--  Barnyard Games secures $3.4m in seed funding round
--  Stephen Totilo launches Game File
--  Barnyard Games secures $3.4m in seed funding round
--  Sbi Share Price Live blog for 15 Dec 2023
--  Sketch History
--  Campus Activewear Share Price Live blog for 15 Dec 2023
--  [뉴스3끼] “이적 단체와 연계성이 의심된다”
--  IDFC Share Price Live blog for 15 Dec 2023
--  ปศุสัตว์ จ.แพร่ เข้าร่วมการออกหน่วยแพทย์อาสาฯ
--  ตรวจเช็คความเสี่ยงเบาหวานรู้ทันรักษาได้
--  ACC Share Price Live blog for 15 Dec 2023
--  Atrapan a ‘carjacker’ cuando huía en auto robado
--  Se coordinan para defender a las mujeres migrantes
--  Claman por seguridad y orden en Nuevo Casas Grandes
--  Honran el amor que compartieron en vida
--  Asesinan a tiros a hombre en la colonia Aztecas
--  Ntpc Share Price Live blog for 15 Dec 2023
--  '돼지머리에 5만 원 꽂고 절했다가 선거법 위반 혐의' 국힘 구자근 의원 검찰 송치
--  영양군, '면단위 LPG배관망 구축사업' 주민설명회 개최
--  경기도, 평택middot;남양주 공공임대주택 3곳 거주자 커뮤니티 활동 지원
--  문경시, 2024년 상반기 대학생 일자리사업 참여자 모집
--  문경관광진흥공단, '소비자 중심경영(CCM)' 인증 취득
--  상주시, 최초 생산 흰색 딸기(신데렐라) 해외시장 첫 수출
--  마산대 평생교육원, 2023 페스티벌 성황
--  '치유섬' 추진, 고성 자란도 정기 뱃길 열려
--  [문상윤 식품전문기자의 건강한 음식 이야기] ⑫겨울의 황금빛 즐거움, 최고의 제철 음식 감귤
--  [최태호의 우리말 바로 알기] lsquo;소신공양rsquo;과 lsquo;자살rsquo;과 lsquo;극단적 선택rsquo;
--  충남도교육청 교육행정정보시스템(나이스) 특별 점검
--  경기도, 국토부 '공공분야 드론활용 경진대회' 우수상 수상
--  대천 겨울바다 보면서 스케이트 즐기자
--  대전시 첫 청년주택 '구암 다가온' 425가구 입주자 모집
--  quot;중증질환도 무상의료 준해야quot;...창원 강기윤 의원 '강조'
--  하남시청 공무원 무더기 징계hellip; quot;도의원 땅 허가 잘못 내줘quot; 된서리
--  한전MCS(주)이천지점, 동절기 안전결의대회 개최
--  진안군, 상수도 요금 감면 대상 확대 시행
--  익산시, 보건복지부 '의료급여사업 평가' 우수기관 선정
--  박성재 전남도의원, 한국수산업경영인협회 감사패 수상
--  '빵' 터진 박지성, 국힘 영입설에 quot;정치인? 앞으로 제의 안해주셨으면 좋겠다quot;
--  Infosys Share Price Live blog for 15 Dec 2023
--  해외서 늘 구설수 생기는 윤 대통령, 이번엔 과도한 의전 요구로 초치까지 당해?
--  민주당은 얼마나 더 이겨야 '문제'를 해결할까?
--  박빙의 대만 총통선거 판세, 초조해지는 중국
--  땅은 공공, 건물은 개인소유 '반값아파트', 성공할수 있을까
+-  IntelがノートPC向けの第14世代SoC「Core Ultra」プロセッサーを正式発表、NPU搭載でAI性能を重視
+-  NBA》「嘴綠」無限期禁賽 聯盟執行副總：所有人都覺得他需要幫助
+-  Kingly tributes hail comedic legend of Barry Humphries
+-  5 Opsi Motor Murah dan Irit Bensin, Cocok untuk Ojol yang Doyan Wira-wiri
