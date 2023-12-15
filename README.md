@@ -1,11 +1,51 @@
 # Latest News
--  NYSC extends service of 16 Corps members, honours 3 in Katsina
--  ΑΕΚ: Νοκ άουτ με Παναιτωλικό οι Αραούχο, Πόνσε και Στάνκοβιτς
--  Invitan a un 'Diciembre festivo'
--  Video: Incineran droga asegurada hace 2 años
--  Operativo 'Escuela Segura' priorizará vigilancia en Distrito Zapata y Colón
--  అన్నదాతల్లో చిగురించిన ఆశలు
--  Με κάμερες χειρός και σώματος η Αστυνομία για το συλλαλητήριο για την Παλαιστίνη το Σάββατο στην Αθήνα
--  Austria tightens law banning Nazi, extremist symbols
--  Relator da reforma tributária diz que resolveu um dos principais impasses e retira Cide relativa à ZFM
--  На Android появился новый мобильный шутер в духе Counter-Strike
+-  Aliağa Petkimspor evinde farklı galip geldi!
+-  Mnangagwa In Panic Mode
+-  Youtuber Youtuber: బర్త్ డే వేడుకల కోసం పిలిచి లైంగిక దాడికి పాల్పడ్డ య్యూటూబర్, పక్కింటి కుర్రాడుగా ఫేమస్ అయిన చంద్రశేఖర్ అరెస్ట్
+-  Jokowi Says Jakarta Crowds Complicate MRT Phase 2A Construction
+-  شركات عالمية تعلن وقف رحلاتها عبر البحر الأحمر بسبب هجمات الحوثيين
+-  Could an immigration deal tear Democrats apart?
+-  Hoorn not ready to apologize for its historic ties to the slave trade
+-  81% من طلاب المملكة واثقون من تأهلهم لسوق العمل
+-  "سلمان للإغاثة": غزة تحتاج 700 شاحنة مساعدات يوميا (فيديو)
+-  Madre de Dios: Estudiante universitaria denuncia a docente por violación
+-  Lista revela os 10 países mais ricos do mundo
+-  싸이커스, 순백의 왕자님들
+-  Bose's latest high-end headphones are $50 off for the holidays
+-  Lənkəranda maşının nömrələrinə müdaxilə edən qazi saxlanıldı
+-  11 Strategies to Generate Healthcare Leads in 2024 (+Examples to Guide You)
+-  Hakimi, Amrabat, Ounahi… Les matchs des Lions de l’Atlas à ne pas manquer ce week-end
+-  Sophie et les copains du 15/12/2023 avec Laurent Baffie
+-  A Milli Takım Avrupa Şampiyonası'nda finalde
+-  "To rodzice naszych dzieci ze Scholi zainicjiowali te akcje" podkreśla Włodzimierz Regulski. Będą występować na wigiliach i namawiają do mikołajkowego challenge'u
+-  Curious about commodes?
+-  Adana Kozan'da otomobilin çarptığı 3 kişi yaralandı
+-  Près de Guingamp, ces maires sont pour la vidéoprotection
+-  Corporation Buying U.S. Homes Makes Cringey Taylor Swift-Inspired Music Video
+-  Tickets for LIONEL MESSI’s Hong Kong friendly match sell out in an hour
+-  Jan Hilgerspenning uitgereikt aan initiatiefnemers Ede viert Kerst
+-  Pedroche y Chicote repiten en las Campanadas de Antena 3, como Cristina Pardo y Dani Mateo en laSexta
+-  Edese skeletonster Kimberley Bos pakt eerste wereldbekerzege van het seizoen
+-  Gigante de SC cresce quase 80% e mira seleto Clube de Bilionários
+-  'Weighing our options': Ottawa open to further pause to expand assisted dying rules
+-  Chargers fire head coach after 63-21 loss to Raiders
+-  Jenny Rautioanho säväytti suurmäessä - sivusi uransa parasta sijoitusta
+-  Elazığ’da öğretmen ve velilere 'uyuşturucu' eğitimi
+-  Lewis Hamilton lähtee ja sensaatiokuski tilalle?
+-  حجازي يتحدى كهربا.. التشكيل الرسمي لاتحاد جدة أمام الأهلي
+-  كوكا أساسيا.. كولر يعلن التشكيل الرسمي للأهلي أمام اتحاد جدة
+-  Nicki Minaj Refuses to Let Kanye West Release ‘New Body’ Collab: Her Reason Why Revealed
+-  "Meloni? Una tosta, sono contenta che ci sia lei. Schlein? Mistero": Gino Paoli fa impazzire la sinistra
+-  Бывший главный тренер сборной Испании возглавил российский клуб
+-  Veerappan’s aide Jnanaprakash dies in his village
+-  हॉलीवुड रैपर के साथ गुरु रंधावा ने किया करार, जल्द आएगा धांसू गाना
+-  Footage shows teenage Paddy Pimblett ‘nearly behead’ opponent with fight-ending elbow after surviving heavy knockdown
+-  Rumor: eis o menu de Last of Us Online
+-  Rusi pokračujú v kritike MOV: Porušujú a znehodnocujú Olympijskú chartu
+-  Is the Tesla Cybertruck Really Happening?
+-  The Finals: How to counter Gas, Fire & Goo
+-  Armas sin licencia y municiones: Los detalles de la captura de varios hombres que fueron detenidos en Izabal
+-  Муж Кортни Кардашьян продаст кеды Vans с пятнами своей крови за 358 тысяч рублей
+-  Полиция задержала нападавшего на детей возле школы и детского сада педофила
+-  Ticaret Bakanı Bolat rakam vererek duyurdu: Yüzde 20-25 civarında bir düşüş kaydedildi
+-  Süper Lig ekipleriyle anılıyordu! Donny van de Beek'ten kötü haber geldi
