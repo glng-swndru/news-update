@@ -1,11 +1,51 @@
 # Latest News
--  وزير الخارجية: لا حديث عن المستقبل دون وقف إطلاق النار في غزة
--  برودة هاتين المنطقتين من الجسم تشير إلى مرض في القلب
--  Twitch reverte política de nudez: “Fomos longe demais”
--  Tanju Özcan’dan ‘Erdoğan yine seçilirse aday olmam’ sözlerine açıklama
--  Siriusly grateful: Gary Oldman said the ‘Harry Potter’ movies ‘saved’ him — here’s why
--  Fortifying Your Portfolio – Exploring the Multifaceted Advantages of Bullion Investments
--  5 funciones que cambiarán cómo usamos nuestro auto
--  Batres quedó en SCJN porque Alcalde declinó, dice AMLO
--  También en Villas del Rey tienen dos días sin agua
--  Impactará permiso de paternidad en PyMes
+-  Ir-Renju Unit: Interess kbir fl-istorja tat-tifel – illum adolexxenti — li rritorna ‘minn imkien’ wara għajbien ta’ sitt snin
+-  Statt Glühwein: Probieren Sie mal leckere Weihnachtsbowle!
+-  Declarações de Costa “não fomentam confiança no MP e sistema judicial”
+-  Canada’s Alexandria Loutitt earns World Cup ski jumping silver in Switzerland
+-  El Presupuesto de Elche para 2024 prevé 5,6 millones para el nuevo Conservatorio y 500.000 euros para la calle Curtidores
+-  „Das perfekte Dinner“ in Lübeck – Menü-Frust: „Das sind alles Komponenten, die ich überhaupt nicht mag!“
+-  Ruhrgebiet: Prozess-Hammer! Richter liest Brief von Messerstecher vor – sogar Verteidiger sind schockiert
+-  Bajo presión de Shein, H&M busca compradores de alto nivel
+-  PJD: qui sont les favoris pour succéder à Abdelilah Benkirane?
+-  Pause séries : Norman Lear, hommage au géant méconnu
+-  Acht Wochen Vorbereitung – für Metelens buntestes Weihnachtshaus
+-  Un apéro avec Sylvie Testud : « Je préfère mille fois tourner à poil que chanter en public »
+-  Haryana vs Rajasthan Live Cricket Streaming, Vijay Hazare Trophy 2023 Final: When and Where to Watch HAR vs RAJ Coverage on TV And Online
+-  The Boys In The Boat review: Sports drama stretches for the finish line
+-  Panik, Stress und Krisen: Wenn die Schule zur unüberwindbaren Hürde wird
+-  Iranian buffet with speakers at Bethel Chapel Pembroke Dock a rousing end to 2023 for Pembrokeshire Prayer
+-  Why Rare Colored Diamonds Dominated at This Month’s Jewelry Auctions
+-  Overwatch 2 Winter Fair Event explained: How to get tickets, free skins, more
+-  BVB als Mutmacher: HSG Schwerte/Westhofen und HVE Villigst-Ergste gegen zwei Tabellenführer
+-  Overwatch 2 Winter Wonderland 2023: Winter Fair Event dates, returning modes, more
+-  Schlagerstar Beatrice Egli kommt zu den „Summer Vibes“ nach Bopfingen
+-  Yüzlercesi sahibini bekliyor! Bu otoparkta 100 milyon lira yatıyor...
+-  ¡Eliminados! León FC cae ante Urawa Reds y se despide del Mundial de Clubes 2023
+-  Ľudí vydesilo hrôzostrašné video záhadného tvora: Preboha, veď vyzerá, akoby vyliezol priamo z pekla!
+-  Premiér bude žiadať, aby bol šéf Nočných vlkov vyradený zo sankčného zoznamu
+-  Letzte Soldaten nach Mali-Einsatz zurück in Deutschland
+-  MIMORIADNE FOTO ZASTRELILI mladého OTCA dvoch detí! Zasahovali KUKLÁČI, desivé DETAILY z miesta činu: Rodina je ZRÚTENÁ, slová manželky trhajú srdce
+-  ¿Cuándo inicia la venta de boletos del concierto de Ana Gabriel en Culiacán? Esto se sabe
+-  Bilgisayar Toplarken En Uygun Fiyatlı ve En Doğru Seçimleri Nasıl Yapabilirsiniz?
+-  Japonska Urawa v polfinale klubskega SP
+-  Google Nest WiFi Pro systems start from $160, Beats Studio Pro $180, more
+-  Kolejny sukces Grety Gerwig. Dołącza do grona wyjątkowo uhonorowanych kobiet branży filmowej
+-  Wie kann man eine Terrasse auch im Winter nutzen?
+-  У Дніпрі відкривається фотовиставка «Сміливі нести світло» про найскладнішу зиму в історії Незалежної України
+-  కోటపల్లిలో ఉపాధిహామీ ప్రజావేదిక
+-  Comité de Ética do BCE iliba Centeno
+-  Cabinet Clears Plan to Declare Surat Airport as International Airport
+-  La renta agraria deja los números rojos y crece un 11,1%
+-  Bupati Cianjur Minta Warga Waspada Gempa, Banjir, dan Longsor
+-  Santa Cruz intensifica la presencia policial en la Divina Pastora
+-  How to watch The Double Life of My Billionaire Husband – is it on Netflix?
+-  Parade blanche, animations de Noël... Que faire au Havre ce week-end ?
+-  The best rollings pins of 2023, ranked and reviewed
+-  Fostul director al FMI Rodrigo Rato, din nou în fața justiției, sub acuzația de fraudă și corupție
+-  La Bûche de Noël poire, Anis et vanille d'Une Glace à Paris
+-  La AFA aceptó el reclamo de Colón y deberá definir si anula su descenso a la Primera Nacional
+-  భారత్‌ వికసిత్‌ సంకల్ప్‌ యాత్రను విజయవంతం చేయాలి
+-  Vendée : 800 € d'amende avec sursis pour le conducteur qui a coupé la route à un motard
+-  Lisburn & Castlereagh bin collection concerns rocket with customer calls up over 60%
+-  Film #OOTD Bertema Fashion Jadi Debut dan Pembuktian Dimas Anggara sebagai Sutradara
