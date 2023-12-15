@@ -1,51 +1,11 @@
 # Latest News
--  Сетек слави јубилеен 30 роденден со големи попусти
--  تحجر البطن ... علامة على الإصابة بهذه الأمراض
--  정우성 "'썸녀'가 선 그으면 후진…직진은 20대 때나"
--  تموين الإسكندرية: تحرير 174 محضرا لمخابز بلدية مخالفة
--  إصابة مراسل الجزيرة وائل الدحدوح بجراح إثر استهداف للاحتلال في خانيونس (صور)
--  스콜스·퍼디낸드 극대노→맨유 장난하나? "케인과 라이스를 영입했어야지!"
--  Mord nach 27 Jahren gelöst - Archie bringt seinen Babysitter in den Knast
--  Staatsanwaltschaft ermittelt - Mann stirbt nach Partynacht im Berghain
--  Volle Hütte zum Derby? HSG Wetzlar wartet auf MT Melsungen
--  Una tortilla con encanto… también en casa
--  В Германии вновь врастет минимальная зарплата
--  USA: Hamas nutzt menschliche Schutzschilde - Belastung für Israel
--  Fitch'ten Türk bankaları için değerlendirme
--  "Stvoriti uslove da se CBCG oslobodi imidža zarobljene institucije"
--  250 golf enthusiasts take part in NR Golf Open tourney
--  Путин: Крымский мост хотели строить Николай II и Сталин, а смогли мы
--  Karnataka wins legal battle over ‘KSRTC’ as Kerala loses the case
--  Corte das taxas de juro? A questão é "quando vai acontecer"
--  Ili je paranoičan ili zna nešto što obični smrtnici ne znaju: Zuckerberg gradi tajni kompleks na vrlo znakovitoj lokaciji...
--  Diversión y aventuras en La Ciudad Mágica
--  YSRCP govt. neglected Srikakulam development, says JSP
--  Kolinje i trgovina svinjskim mesom u ponedjeljak mogu početi
--  دراسة: الخوف المفرط من مرض خطير قد يؤدي إلى الوفاة المبكرة
--  مسئول أمريكي: إسرائيل أبلغت واشنطن أن عمليتها العسكرية ستكتمل خلال 3 أسابيع
--  PS5 Pro: Weitere Insider bestätigt das Upgrade – Sony mit einer eigenen DLSS-Lösung?
--  Rally against drug abuse taken out in Tiruchi
--  Die Förderung der Elektromobilität in Luxemburg: wie und warum?
--  Od idućeg tjedna bit će omogućena trgovina svježim mesom i svinjokolja: EK dozvolila Hrvatskoj blaže mjere
--  I played for Arsenal Invincibles and only one player from Premier League rival gets in that team
--  Меџити: Следната недела лекот Трикафта кај пациентите
--  Ausgerechnet vor VfB-Kracher - Bayern-Sorgen um Kane!
--  Monster GUILTY of murdering ex and dumping her body in lay-by before hatching grim plot to pretend she was still alive
--  Monster GUILTY of murdering ex and dumping her body in lay-by before hatching grim plot to pretend she was still alive
--  BÖRSEN-AUSBLICK/Neue DAX-Rekorde dank Window-Dressing zu erwarten
--  USA: Hamas nutzt menschliche Schutzschilde - Belastung für Israel
--  CNN: Украина без помощи США и НАТО может продержаться несколько месяцев
--  Everyone can spot the cat and you’d be mad to miss the dog – but only those with a high IQ can find the hidden fish
--  Everyone can spot the cat and you’d be mad to miss the dog – but only those with a high IQ can find the hidden fish
--  BPH Migas Prediksi Penyaluran Gasoline dan Avtur Naik di Periode Nataru
--  Kecelakaan Bus PO Handoyo di Tol Cipali, 12 Orang Tewas, 7 Alami Luka-luka
--  Bilateral total jaw joint replacement done at Chennai hospital
--  Burial Photos Of Nigerian Man Who Committed Suicide After Losing N2.5M Bet
--  وزير حرب الاحتلال: الحرب على غزة ستستمر لأكثر من عدة أشهر
--  ‘It’s a shame we will never see it’ The Last of Us fans cry as game creator cancels big upgrade
--  ‘It’s a shame we will never see it’ The Last of Us fans cry as game creator cancels big upgrade
--  Los agujeros negros podrían usarse como enormes baterías cósmicas
--  Spor princa Harryho s bulvárom je na konci. Súd potvrdil, že bol obeťou odpočúvania
--  Pogledajte u njene ruke i znaćete da će da vara: Ovaj prst odaje preljubnicu
--  Юніон - Ліверпуль 2:1: огляд матчу
--  Bağımlılık yaşı 12’ye düştü
+-  Cyabags Reviews - Does 5th & Glow Line Smoother Works?
+-  Attacks from Houthi-controlled Yemen hit two ships, says US official
+-  نبيل بنعبد الله : التقدم والإشتراكية و الإتحاد الإشتراكي أحزاب أساسية لتوازن البلاد
+-  Gießen 46ers setzen gegen Nürnberg auf drei Ex-Spieler
+-  Minister: soldiers should ‘realise the importance’ of a healthy diet
+-  Vier aangiftes, maar Johan Derksen wordt niet vervolgd voor uitspraken over Israël
+-  FC Schalke 04 – Transfer-News und Gerüchte: Bosse reden Klartext – kein Winter-Wechsel für S04-Star
+-  Jadranu težak ždrijeb Lige prvaka, čeka ih prvak Europe na čelu s Hrvatom, a najprije će u goste u Beograd
+-  Artistas franceses piden a Díaz-Canel que libere a Otero Alcántara
+-  IEEM firmará convenio con Talleres Gráficos de México para impresión de materiales electorales
