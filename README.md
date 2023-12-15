@@ -1,11 +1,51 @@
 # Latest News
--  [한국기행] 내 인생, 빨간 맛 5부-3대 모녀 수구레국밥
--  '스페이스 공감', '마미손 X 원슈타인’, ‘선우정아 X 말로’, ‘김현철 X 황소윤’ 컬래버레이션
--  [금요극장] 스텝포드 와이프-니콜 키드먼 주연 스릴러 코미디 영화
--  [생방송 투데이 맛집] ‘굴짬뽕’ 맛집
--  HOSI Wien: Lob für PrEP-Zugang
--  Elhunyt a BME legendás oktatója
--  UK’s National Grid ESO opens new platform to allow batteries ‘more active role in balancing network’
--  티맥스메타버스-연우테크놀러지, 슈퍼앱 기반 GIS 플랫폼 사업 협력
--  지멘스, RS그룹 ‘디자인스파크 회로 시뮬레이터’에 EDA 기술 제공
--  Iran Waives Visa Requirements For Indian Citizens, 32 Other Nations
+-  클롭이 요청한 ‘마지막 미드필더’ 영입…마침내 협상 시작했다
+-  과기정통부, ‘2023 디지털 트윈 커넥트 데이’ 개최
+-  '피렐라 결별 확정' 삼성, 日 세이부 출신 맥키논 영입…"중장거리 유형, 중심타선 강화 기대" [공식발표]
+-  [MD포토] 아이브 장원영, '폭발하는 미모'
+-  '바이아웃 겨우 250억, 질러!'...맨유 '분데스 괴물' 데려온다→소속팀 재계약 거부로 영입 탄력!
+-  [MD포토] 로운-장원영, '안구정화 MC 커플'
+-  [MD포토] 아이브, '블랙으로 섹시하게'
+-  [MD포토] 아이브 안유진, '심쿵 눈맞춤'
+-  "7년 동안 행복하게 해줘 고마워" 이제 진짜 작별의 시간…'1463억' 이정후, 키움의 인사에 '손하트'
+-  AYİNESİ İŞTİR KİŞİNİN LAFA BAKILMAZ-2
+-  No decision at EU summit for billions to Ukraine, but Rutte expects a deal soon
+-  Финландия Россия билан чегара пунктларини яна ёпяпти.
+-  Ўзбекистон ва Жанубий Корея «яшил» энергетикада қўшма лойиҳаларни муҳокама қиляпти.
+-  Москвада «ДХР Мудофаа вазирлиги» собиқ раҳбари Игор Стрелков суд қилинмоқда.
+-  Корея ўзбек талабалари учун қўшимча стипендиялар ажратади.
+-  2024 йилда бюджетдан Маданият вазирлиги 1,1 трлн сўм, Ёшлар сиёсати ва спорт вазирлиги 1,8 трлн сўм олади.
+-  Фарғонада Таhое Tico билан тўқнашди.
+-  Тошкент ерусти метросининг 2 та янги бекати синов тариқасида очилди.
+-  วัคซีนโควิด-19 ฉีดเฉพาะกลุ่มเสี่ยง 608 ในปี 2567
+-  ขึ้นทะเบียนGI “ปลานิลกระชังแม่น้ำโขงหนองคาย” เนื้อแน่น นุ่ม หวาน
+-  บอกลาชีวิตพลเรือน 7 เมมเบอร์ BTS เข้ากรมฯ เกาหลีใต้ได้หรือเสีย ?
+-  أكسيوس : توقف شبه كامل لوصول السفن إلى إيلات
+-  VK Pandian to not contest 2024 Assembly Elections, says BJD leader Debi Mishra
+-  Blak-blakan, Fuji Ungkap Hubungan dengan Asnawi Mangkualam, Ternyata
+-  Italien: Inflation etwas niedriger als gedeacht
+-  Secret code breaker Mary Ratcliffe who used Alan Turing’s invention to decode Nazi messages in WW2 passes away at 98
+-  Husilerden konteyner gemisine füze saldırısı
+-  На востоке Украины повреждена ТЭС
+-  Acidente no Metro em Pequim deixa mais de 100 feridos
+-  TPAO'dan yeni sondaj! 3130 metreye inilecek... İşte yeni petrol kuyusu
+-  ‘50 pigs in blankets for free’ foodies rave about the bucket you can get for 0p – but there are only 5 places giving it
+-  Дефицит бюджета Кировской области в 2024 году составит 1,5% от расходов
+-  CM Handbal feminin: Dueluri de foc în semifinale - Programul zilei
+-  Hasil Kompetisi Jurnalistik Syranas PK Diumumkan pada Hari Anti Korupsi Sedunia 2023
+-  Lauttasaarta terrorisoinut nuorisoporukka jäi kiinni
+-  Sambut Tahun Baru, Kunto Aji Hadirkan Konser Matahari Pertama 2024 di Yogyakarta
+-  Emmerdale fans beg soap bosses to axe ‘vile’ character – raging ‘we can’t stand her!’
+-  Smriti Irani thinks period leave is not required, Kangana Ranaut echoes the same; netizens school them [details]
+-  Setelah Salat Jumat, Ganjar Menziarahi Ke Makam Syekh Quro di Karawang
+-  Ndëshkohen me gjoba tre subjekte në Berat, Shkodër dhe Vlorë: Nuk plotësonin kërkesat ligjore
+-  Madras HC Sentences Tamil Nadu IPS Officer in Contempt Case Filed by MS Dhoni
+-  Lok Sabha adjourned for day amid opposition protests
+-  Penjelasan Polisi Soal Perempuan Tewas Jatuh dari Lantai 12 Gedung Filkom UB, Ternyata
+-  Aktywność gospodarek Niemiec i Francji niższa niż oczekiwano
+-  Polityki monetarne w centrum uwagi
+-  Villeroy: EBC będzie cierpliwy zanim zacznie obniżać stopy
+-  Jak przestać marnować czas, wyznaczając efektywne cele biznesowe
+-  GUS: inflacja w listopadzie wyniosła 6,6 proc.
+-  GUS: nadwyżka w obrotach towarowych po październiku wyniosła 10,6 mld EUR
+-  Szef KNF: mamy projekt ustawy rozwiązującej problem kredytów frankowych
