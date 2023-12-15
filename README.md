@@ -1,11 +1,11 @@
 # Latest News
--  Borsa İstanbul'da önemli değişiklik... Yüzlerce hisse etkilenecek! İşte yeni liste...
--  Rusya Merkez Bankası'ndan faiz kararı
--  В Коми на 36% за год увеличилось число резидентов АЗРФ
--  GIK utvrdila konačan broj birača u Beogradu
--  Le 13H fête Noël : les macarons salés d'Île-de-France
--  Autonomní ostuda. Manažeři mlžili o sražené chodkyni, devět z nich dostalo vyhazov
--  Приставам запретят арестовывать имущество при долге менее 30 тыс. рублей
--  Unge mænd forsøgte at bedrage især ældre for 15 millioner
--  Unge mænd forsøgte at bedrage især ældre for 15 millioner
--  Ricardo the bull wakes in NJ sanctuary after wild run on train tracks: ‘You’re safe now’
+-  عاجل.. إيقاف إصدار تراخيص سيارات الأجرة العامة في 4 مدن
+-  قد يكون مميتًا.. 5 أعراض لإصابة الأطفال بالتهاب السحايا تتشابه مع نزلة البرد
+-  Беларусь у канцы 2022 году была вінная Расеі 8,24 мільярдаў даляраў, — Сусьветны банк
+-  Amasya'da minibüsle otomobil çarpıştı: Yaralılar var
+-  Steel ministry begins industry consultations as imports exceed exports
+-  Niger :: La Cedeao A Reconnu Le Renversement De Bazoum
+-  Ryanair launch major winter sale with flights to Europe’s top ski destinations from as little as €29.99
+-  Tony Bellew hints at huge I’m A Celeb feud as he slams fake friends
+-  Tony Bellew hints at huge I’m A Celeb feud as he slams fake friends
+-  117 kvadratmeter stort hus i Ornäs, Borlänge sålt
