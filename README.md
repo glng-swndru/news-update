@@ -1,11 +1,11 @@
 # Latest News
--  Robert Fàbregas (Junts) deixarà l’Ajuntament de Salt la setmana vinent per "motius personals"
--  Platja d’Aro, Olot i Llanars mantenen la pista de gel tot i la situació de sequera
--  La vaga del personal sanitari obliga a anul·lar analítiques de sang a Girona
--  «La gent encara no sap què fan les infermeres»
--  L’hospital Santa Caterina va fer l’any passat gairebé 200 intervencions quirúrgiques de dermatologia
--  Es dupliquen els comissos de cocaïna a Girona amb 13 quilos durant el 2022
--  Januártól mindenkinek jut az olcsóbb lakáshitelből
--  김명선(경북 상주시 냉림동) 씨
--  ज्योति विकास बैंकद्वारा स्वास्थ्यचौकीलाई बेबी वार्मर प्रदान
--  नयाँ सिम र रिचार्जमा टेलिकमका थप सुविधा
+-  İnterpol Kırmızı Bülten’le farklı suçlardan aranan İngiliz ve Çin uyruklu iki firari İstanbul'da yakalandı
+-  ABD İsrail'in Gazze'deki saldırılarıyla ilgili karmaşık mesajlar verdi
+-  Yunanistan'a gidecek demir malzeme yüklü TIR'da 29 düzensiz göçmen yakalandı
+-  Bullish Run Continues As Stock Market Opens On High Note
+-  Jaka przyszłość czeka biura [PODCAST]
+-  Węgry zablokowały porozumienie ws. nowej pomocy finansowej dla Ukrainy
+-  샤이니 민호, 첫 팬 콘서트 전석 매진…시야제한석 오픈
+-  ‘열녀박씨 계약결혼뎐’ 이세영·배인혁, ‘아슬아슬 침대 위 투샷’…설렘 증폭
+-  Concilier sport de haut niveau et entrepreneuriat : la folle ascension des frères Mawem
+-  국힘, 비대위원장 ‘한동훈’ 놓고 격론… 비상 의총서 비대위원장 인선 논의
