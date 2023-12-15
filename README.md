@@ -1,51 +1,11 @@
 # Latest News
--  크리스마스 쿠키 선물세트로 예쁘고 달달한 크리스마스를 전하세요
--  '썬셋&썬라이즈워크' 남산에서 진행되는 비대면 행사 개최…스타이카 프로젝트 '가자고' 앱으로 거리 인증
--  أنواع غير متوقعة من الفاكهة تناولها في الصباح تحميك من أمراض خطيرة
--  استعدادات لمواجهة الأمطار الغزيرة والسيول.. وزير الري يصدر توجيهات لإدارة الأزمات والطوارئ
--  Konya'da arsa arayanlar dikkat! TOKİ Karapınar ve Meram'da 12 arsa satacak
--  Kuzey Marmara Otoyolu'nda kaza: 1 ölü 3 yaralı
--  Top 7: Crisis climática se agudiza en 2023
--  Auditorías a jueces, apuesta de Batres; plantea aplicarles controles financieros
--  KGM, 사우디와 협력 강화논의
--  울산 '우정지주택' 중도금 대출 상환 만기 도래…조합원 '연체·신용 하락' 우려
--  오비맥주, '카스 친구 소환소' 팝업스토어 오픈
--  한·사우디 '446억달러' 경제외교 성과점검
--  Cantora denuncia racismo em aeroporto no Rio: Revistaram meu cabelo
--  Soccerladuma | Ex-France Star Slams Mbappe's Champions League Display
--  Soccerladuma | 5 Chiefs Players Who Could Benefit From A Move In 2024
--  Конгресс принял законопроект, ограничивающий возможность США выйти из НАТО
--  VIDEO Accident rar la metroul din Beijing. Peste 100 de oameni au fost răniți
--  [BREAKING]: Nnamdi Kanu: DSS Storm Supreme Court As Judgement Is Delivered On IPOB Leader Today
--  Tinubu Vows To Transform Nigeria Into Import-Export Hub
--  Google prepara Pixie, l’assistente virtuale di Pixel 9 con IA
--  El PSOE lanza una ofensiva para mejorar el servicio de tren en la ciudad
--  Pour Noël, faites rêver les enfants en leur offrant un abonnement à un magazine Disney
--  Mandy Moore, Jennifer Morrison, and Jamie Chung lead the glamour at the Dr. Death season two premiere in West Hollywood
--  На Таганско-Краснопресненской линии московского метро человек упал на пути
--  POS: Για ποιους κλάδους γίνονται υποχρεωτικά – Οι νέοι ΚΑΔ
--  Ενταξιακές διαπραγματεύσεις με Ουκρανία και Μολδαβία ξεκινάει η Ε.Ε.
--  Ammar Zoni Ngaku Pakai Narkoba Sebagai Pelampiasan Masalah Rumah Tangga
--  Breskur drengur sem hvarf fyrir sex árum fannst á lífi í Frakklandi
--  „Žalgiryje“ debiutavęs Hollinsas spaudimo nejaučia: turime likti kartu ir susikaupę
--  Cameroun :: Robert Kona Et Cabral Libii Doivent S’oublier Pour Que Le Pcrn Reste Inoubliable :: Cameroon
--  KRÖNIKA: Tack för det vardagliga och det lilla
--  Kickoff | 'The African Football League hurt Al Ahly's season'
--  پی ایس ایل میں جگہ نہ ملنے پر احمد شہزاد نے مستقبل بارے بڑا اعلان کردیا
--  Umboðsmenn aldrei haft það jafn gott – Fengu 122 milljarða í sinn vasa á þessu ári
--  Svíar heimila Bandaríkjamönnum afnot af 17 herstöðvum
--  Издательство АСТ приостановило распространение книг Акунина* и Быкова**
--  Thu giữ số lượng lớn nội tạng trâu, bò đông lạnh đang bốc mùi hôi thối
--  Baginda Sultan bertemu Maharaja Jepun
--  أكسيوس: توقف شبه كامل لوصول السفن إلى ميناء إيلات
--  الأردن يشارك في الدورة 26 للمجلس الوزاري العربي للسياحة
--  الحكومة تدافع عن تثبيت التوقيت الشتوي
--  Five hundred injured in Beijing subway crash as heavy snow hits Chinese capital
--  قتيل وجرحى للاحتلال بمعارك في خان يونس
--  윤석열 또 격노...김기현 강제 사퇴 전말 [공덕포차]
--  SC Rejects Mosque Committee’s Request, Clears Way for Survey of Mathura Mosque Complex
--  Beşiktaş Kulübünde divan kurulu toplantısı yarın gerçekleştirilecek
--  SIPA: Uhapšeno sedam osoba zbog krivičnog djela "Genocid"
--  Hip-hop legends N.W.A performing exclusive Perth show on Aus Day long weekend
--  Welsh & Taylor Wealth: celebrating £20m of client investments in 2023
--  Das Zürich Openair gibt erste Acts bekannt – und eine Überraschung
+-  [한국기행] 내 인생, 빨간 맛 5부-3대 모녀 수구레국밥
+-  '스페이스 공감', '마미손 X 원슈타인’, ‘선우정아 X 말로’, ‘김현철 X 황소윤’ 컬래버레이션
+-  [금요극장] 스텝포드 와이프-니콜 키드먼 주연 스릴러 코미디 영화
+-  [생방송 투데이 맛집] ‘굴짬뽕’ 맛집
+-  HOSI Wien: Lob für PrEP-Zugang
+-  Elhunyt a BME legendás oktatója
+-  UK’s National Grid ESO opens new platform to allow batteries ‘more active role in balancing network’
+-  티맥스메타버스-연우테크놀러지, 슈퍼앱 기반 GIS 플랫폼 사업 협력
+-  지멘스, RS그룹 ‘디자인스파크 회로 시뮬레이터’에 EDA 기술 제공
+-  Iran Waives Visa Requirements For Indian Citizens, 32 Other Nations
