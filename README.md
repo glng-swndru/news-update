@@ -1,51 +1,11 @@
 # Latest News
--  Radio silence in this phase of Cabinet formation talks
--  Son Dakika:Gaziantepliler Dikkat! Gaziantep'te yarın birçok bölgede elektrik kesintisi olacak
--  Endrick ya está en Madrid
--  V Avstriji aretirali slovenskega državljana, ki je pred tremi leti pobegnil iz nemškega zapora
--  Uzdrowiska w Polsce: mapa wszystkich miejscowości uzdrowiskowych na wypoczynek zimą. Gdzie znaleźć największe uzdrowisko?
--  الزمالك يكلف “نصوحي" برئاسة بعثة الفريق في أنجولا
--  إمام عاشور يسيطر على أرض الملعب.. خبيرة أبراج تكشف حظوظ لاعبي الأهلي والاتحاد السعودي اليوم
--  Porno for Pyros Celebrate a Christmas and Medical Miracle on New Song ‘Pete’s Dad’
--  Inseguridad en el centro de Quilmes: ladrón robó una moto y mató de un disparo a la víctima
--  The 25 Best Country and Americana Albums of 2023
--  Judge orders Steward damages case be heard in January but rejects Opposition's urgency request
--  Seis plantas para atraer pájaros al jardín y crear un rincón de naturaleza el hogar
--  Friday deadline looming for search and rescue groups to register with province
--  Friday deadline looming for search and rescue groups to register with province
--  Kazakhstan names amount of funding required to achieve carbon neutrality
--  Comedian Kenny DeForest Dead at 37 After Bike Accident in NYC
--  سبب غير متوقع للشعور بالخمول والكسل خلال اليوم.. ما علاقة تهوية الغرفة؟
--  3 beranak maut : Suami iring jenazah isteri, dua anak hingga ke liang lahad
--  Bobby Deol Recalls Conversation With Shreyas Talpade's Wife After The Health Scare: 'His Heart Stopped For...'
--  Galtier assume ter chamado "King Kong" a jogadores, mas nega racismo
--  Жители Кентау стойко перенесли отсутствие тепла, воды и света
--  Τη σφοδρότητα της πρόσκρουσης κατέδειξε η νεκροτομή στη σορό του άτυχου Μιχάλη
--  Sahte plakayla trafiğe çıkan şahsa binlerce lira ceza yağdı
--  Azerbaijan reveals area cleared of mines, unexploded ordnance in Karabakh from early 2023 (VIDEO)
--  KFC China Celebrates the Opening of its 10,000th Store
--  Give the Gift of Comfort: Bedsure's Top Picks for a Cozy Holiday Season Are Now Starting
--  FIFA 30 Nijeryalı hakemi onayladı
--  Қамоқхонадаги номаълум ёзувчи ҳикояси.
--  «Метан заправкалар» тўлиқ иш режимига ўтиши мумкин .
--  Давлат Думаси Россиядаги меҳнат мигрантлари муаммолари билан шуғулланади .
--  Давлат мулкини ижарага бериш тартиби белгиланди .
--  «Путин ҳамон Украинани забт этишни истайди». Россия армияси бирданига бир неча йўналишда ҳужум қилмоқда.
--  ThinkPad and IdeaPad Intel Core Ultra AI ready laptops for business
--  Bakan Uraloğlu: Nakkaş-Başakşehir kesimi ve Sazlıdere Köprüsü'nün yapım çalışmaları hız kazanarak devam ediyor
--  Şehit Jandarma Uzman Çavuş Yetişen'in cenazesi Adana'da defnedildi
--  Un ciclon polar lovește România de Sărbători: vom avea un Crăciun „ca pe vremuri”
--  카리나·윈터X원빈·쇼타로, 환상의 컬래버…SM 꿈의 조합 [뮤뱅 글로벌 페스티벌]
--  Grüne: Koalitionäre werden Bürokratieabbau nicht gerecht
--  US-Industrieproduktion im November gestiegen
--  En vivo: Adorni confirmó que el plan de estabilización está "a punto de salir"
--  Kayseri'de aranan şahıslara operasyon: 10 gözaltı
--  Düzce ve Yalova da su kardeşlerimiz oldu
--  'Se encerraron en el baño': las imágenes del incendio en el que murió familia en Neiva
--  Uhićeno četvero ljudi zbog lažnih dojava o bombama u beogradskim školama
--  Kitchen Sink Christmas Cookies Are A Fun Way To Get Creative For The Holiday
--  Rudy Gobert a de l’empathie pour Draymond Green : “Il ne va pas bien au fond de lui”
--  Alejandro Soto fue blindado en la Comisión de Ética: archivan investigación por la llamada ‘Ley Soto’
--  Niger : la Cour de justice de la Cédéao ordonne la remise en liberté de Mohamed Bazoum
--  Jujutsu Kaisen: Black Flash Technique Explained & Who Uses It
--  When Will Wonka (2023) Leave Movie Theaters & Cinemas?
+-  ANC comrades now need post-matric qualifications for election into public office
+-  UK judge rules Prince Harry victim of phone hacking by Mirror Group
+-  Cape Town Airport in talks to relocate thousands of families
+-  Kovaçevski është i bindur se vendi ynë ka forcë politike dhe njerëz me vizion që do të marrin vendimin për ndryshimet kushtetuese
+-  Hereu reitera su compromiso con "la cuarta revolución industrial"
+-  Selena Gomez confirms Benny Blanco relationship with sultry kissing pic
+-  Otomobilden 377 Parça Tarihi Eser Çıktı!
+-  La Unión Eléctrica pronostica una afectación de 173 MW en el horario pico de este viernes
+-  Van Armand tot aan Snollebollekes: deze Brabantse artiesten staan in de Top2000
+-  NRW-Grüne sind entsetzt: Funktionär der Jungen Union in NRW nahm an Gala für Donald Trump teil
