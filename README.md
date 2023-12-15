@@ -1,11 +1,11 @@
 # Latest News
--  Chủ tịch TP.HCM Phan Văn Mãi: Đường sắt đô thị, cảng Cần Giờ là những mục tiêu lớn trong năm 2024
--  شركة امن بحري : تعرض سفينة لهجوم في مضيق باب المندب
--  Marak Bunuh Diri, Sosiolog Agama: Krisis Spiritual
--  Kamu verileri "buluta" taşınıyor: Yüzde 50 tasarruf sağlanacak
--  VakıfBank yarı finalde
--  Hàng nghìn văn bằng do nước ngoài cấp chưa được Bộ GDĐT công nhận
--  `Forced To Eat Meat...`: Nikhil Gupta, Arrested In Plot To Kill Pannun Moves SC Against Detention In Czech Republic
--  IAS Success Story
--  [ŽT] „Jie ne šiaip sau subyrės. Ten bus globalių problemų.“ Prognozė Rusijai po karo
--  Idealūs pusryčiai. Rekomenduoja ilgaamžiškumo ekspertas
+-  James Harden passe la barre des 25 000 points en carrière
+-  Appotronics ALPD® cinema laser light source highlight CineAsia 2023
+-  18 points pour Rayan Rupert en G League : encore une ruper performance pour le Français
+-  الوادي الجديد.. شن حملات لإزالة تعديات على أرض زراعية بمركز الخارجة
+-  브릭시티, 드디어 '멀티플레이' 지원한다...대규모 업데이트 실시
+-  미술품 조각투자 시대 열렸다…열매컴퍼니, 1호 투자계약증권 승인
+-  메이플스토리M, 신규 스킬·콘텐츠 업데이트...'V 매트릭스'·'군단장 윌' 등
+-  안랩·코가로보틱스 맞손…로보틱스 사이버보안 협력 강화
+-  넥슨, 게임 데이터 플랫폼 '넥슨 오픈 API' 리뉴얼 오픈
+-  카톡 채널 활용해 업계 1위 등극한 민티드, 카카오 비즈니스 파트너 대상 수상
