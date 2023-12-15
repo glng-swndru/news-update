@@ -1,11 +1,11 @@
 # Latest News
--  Црна статистика и поразителни демографски податоци: Населението на Македонија може да биде преполовено
--  Churchgate’s Nksha launches its new high tea menu perfect for the winter season
--  Elhunyt a tűzesetben megsérült műegyetemi dolgozó
--  Девушку сбили на пешеходном переходе в Вологде
--  Французскую компанию обвиняют в финансировании геноцида езидов
--  ‘Gureba Hamisi’ Hattat Mahmut Şahin’e İyilik Sağlık Ödülü
--  Video: Aparecen 1,200 toneladas de peces muertos en costa japonesa
--  Deuda de Pemex con proveedores, en situación crítica
--  Entrega DIF Estatal 1,620 toneladas de alimento
--  Resurge reptil cretácico en Nuevo León
+-  Edenaar veroordeeld voor botsing
+-  القيروان :حملة أمنية تسفر عن حجز 15 بندقية صيد بدون رخص مسك.
+-  В России предложили лишать приобретенного гражданства за тяжкие преступления
+-  Пропавшего подростка нашли спустя шесть лет в другой стране
+-  Los tres hermanos que se inventaron Pepe Ganga, la tienda que manda en regalos de Navidad
+-  Mærsk stopper al containertransport i Det Røde Hav efter angreb
+-  Mærsk stopper al containertransport i Det Røde Hav efter angreb
+-  Alpha Αστικά Ακίνητα: Έκτακτη ΓΣ στις 19/1 για επιστροφή κεφαλαίου 2,2 ευρώ/μετοχή
+-  La Agencia Europea del Medicamento recomienda autorizar el primer tratamiento de de edición genética
+-  Kim Kardashian Slays in Sexy Bikini Mirror Selfie & Says She’d ‘Date’ Herself
