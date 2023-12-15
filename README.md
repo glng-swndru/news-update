@@ -1,51 +1,51 @@
 # Latest News
--  Culmina curso de confección de tembleques
--  Delta police say burning car in Surrey may be linked to shooting
--  박재범 '원소주' 이어 성시경 '막걸리'까지...유통업계 사로잡은 연예인들
--  హెరిటేజ్‌ ఫుడ్స్‌కు అవార్డు
--  Ordenan vincular a 2 ex policías por desaparición forzada
--  ఎస్‌బీఐ రుణాలు మరింత ప్రియం
--  Sector transportador en Antioquia pide seriedad a MinInterior para recuperar las vías
--  Diptisharma : దీప్తి అదరహో
--  The path to machines thinking more like us will ‘accelerate in 2024’
--  Shadow Gambit: The Cursed Crew gets mod support in surprise final update
--  Melhores momentos: Borussia Mönchengladbach 2 x 2 Werder Bremen (Bundesliga)
--  Erik ten Hag elogia Anfield apesar de última goleada: ‘Um ótimo lugar’
--  В США назвали причину смерти актера Мэттью Перри
--  Prison officer who 'had phone sex with inmate' was 'forced' into it and felt 'disgusting'
--  Al Jazeera says cameraman killed in Gaza by drone strike on school building
--  Alliant Energy Completes Wautoma Solar Project
--  Suspensión del suministro de Agua en Lerdo afectará zona urbana pero no la rural; prevén uso de pipas
--  I’m 47 and my husband’s 33 – we rarely notice the age difference, I call him ‘old man’ because he can’t keep up with me
--  Highway 97 closure near Summerland on weekend rescheduled to Monday
--  Congreso aprueba contrarreforma que apunta a abandonar la Corte IDH
--  AP: США продлили дислоцирование авианосца Gerald Ford в Средиземном море
--  BONO de 1.420 bolívares, diciembre 2023: revisa cómo COBRAR HOY el NUEVO MONTO vía Patria
--  الشناوي .. الأفضل في مباراة الاتحاد ضد الأهلي المصري
--  «120» طائرة «بوينج» قيد الطلب لـ«القطرية»
--  Demand of opposition MPs in both houses : అమిత్‌షాకు పార్లమెంటుకు వచ్చే తీరిక లేదా?
--  تفاصيل جديدة حول حادثة الاعتداء على مركز شرطة العلوية
--  خوفا من حرب عالمية ثالثة.. زكربيرغ يبني مخبأ سري في هاواي
--  توقف الرحلات الجوية في مطار بغداد بسبب الضباب
--  Sullivan: Lufta kundër Hamasit do të zgjasë me muaj
--  من جديد.. طلاق شيرين عبد الوهاب وحسام حبيب
--  الأهلي المصري الى نصف نهائي كأس العالم للأندية على حساب اتحاد جدة
--  بشأن الحرب في غزة.. بيان سعودي إيراني صيني مشترك
--  غرق زورق سياحي في شط العرب
--  الجيش الإسرائيلي يعترف بقتل ثلاث رهائن بالخطأ
--  V závere hral v oslabení. Tottenham zvíťazil na pôde trápiaceho sa Nottinghamu
--  Matthew Perry died from "acute effects of ketamine"
--  Lakeshore council greenlights community park, commits $10,000 for senior residence feasibility study
--  RAUL U NADOKNADI PREKINUO CRNU SERIJU OSASUNE: Rajo Valjekano se iz Pamplone vraća bez bodova
--  Mocache: Incendian casas, carros y asesinan a dos personas
--  “Voy a protegerlos frente a las injusticias”: contundente respaldo de Patricia Bullrich a las fuerzas federales
--  Ex-advocaat van Trump moet 148 miljoen dollar betalen in verkiezingsfraudezaak
--  Vereador de Joinville é notificado dentro da prisão e deve apresentar defesa em até 10 dias
--  Ligue 1: Lyon poursuit son rétablissement à Monaco grâce à Lopes et Jeffinho
--  ‘손흥민 88분+히샬리송 선제골’ 토트넘, 노팅엄 2-0 완파…2연승 질주
--  Libero: Мелони убедила Орбана не мешать переговорам о вступлении Украины в ЕС
--  Rapper Canserbero’s suicide ruled out by Venezuelan prosecutors in 2015
--  Pazi leđa! Tiram šalom zaludeo internet /VIDEO/
--  Nuevo Fiscal de la Nación impulsará la creación de una nueva Ley orgánica del Ministerio Público
--  Hardik : హార్దిక్‌కే ముంబై పగ్గాలు
--  Asesinan a hombre en la vía Domingo Díaz de Colón
+-  아이브 장원영, 완벽한 인형 미모
+-  To litauere i kritisk tilstand efter færdselsulykke nær Nykøbing Falster
+-  To litauere i kritisk tilstand efter færdselsulykke nær Nykøbing Falster
+-  자이디 사장 “이정후, 우리에게 딱맞는 선수...주전 중견수로 뛸 것” [현장인터뷰]
+-  “허경영 불로유, 위험물질 없다”…국과수 분석 결과 ‘이상무’
+-  Mourinho y Roma acuerdan pagar 21.000 dólares por acusaciones a los árbitros
+-  El crimen de un menor genera reacción
+-  ROAR Organics Prioritizes RTDs, Marketing Spend With New $6M
+-  Exploring the Magic of Paris: A Traveler’s Guide
+-  شركة شحن ألمانية تعلق مرور سفنها في البحر الأحمر
+-  للمرة الثالثة .. طلاق شيرين عبد الوهاب وحسام حبيب
+-  فيديو يوثق اعدام الاحتلال لفلسطيني اعزل في الفارعة
+-  القيادة المركزية الأميركية: 3 هجمات جديدة للحوثيين بالبحر الأحمر
+-  قوات الاحتلال تقتحم عدة مدن بالضفة الغربية
+-  Farense e Estrela da Amadora empatam a zero no arranque da 14.ª jornada
+-  Global Core Clinical Molecular Diagnostics Market Research Report 2023-2029 - Integration of AI and Data Analytics to Deliver Highly Accurate and Rapid Results
+-  Israel libera entrada de ajuda em Gaza após pressão para proteger civis
+-  Joan Garcés y plebiscito en Chile: «Sería la Constitución más regresiva de toda la historia de Chile y además legitimada democráticamente» (Video)
+-  Argentine President Javier Milei raffles off his last salary as lawmaker
+-  La Libertad: Demandan reactivación de Coordinadora Regional Multisectorial en Salud
+-  Manta: un hombre muere dentro de un local
+-  توقعات الأبراج وحظك اليوم 16-12: نصيحة لـهولاء وخيبة أمل لـهذا البرج
+-  وزير التعليم العالي يستقبل السفير اللبنانى لبحث أوجه التعاون بين الجانبين
+-  الأرصاد تحذر من الشبورة المائية على القاهرة والطرق الزراعية
+-  أدنوك الإماراتية تشتري كامل حصة "أو سي آي جلوبال" في فيرتيجلوب
+-  Gayle Benson Makes Historic Donation for New Home for Ochsner Children's Hospital
+-  Genoa Juventus risultato 1-1: gol di Chiesa su rigore e Gudmundsson
+-  ينتهي اليوم.. طريقة التقديم على برنامج علوم الطيران للتدريب المنتهي بالتوظيف
+-  "Filistin yönetimi Gazze'de yönetimi devralabilecek güçte"
+-  37 ilde Kafes-18 Operasyonu! Gözaltına alınanların 6'sı tutuklandı
+-  Tottenham yükselişe geçti!
+-  Lyon tek golle rahatladı!
+-  Yunan unsurlarınca Türk kara sularına itilen lastik botlardaki 57 düzensiz göçmen kurtarıldı
+-  Bursa'da otomobil köprüden düştü: 4 yaralı
+-  “아드님이 진료실 들어오겠다는데”…전청조, 남현희 아들로 착각한 간호사 왜?
+-  Matthew Perry: emergono nuovi, tristissimi dettagli sulla morte della star di Friends. E sconvolgeranno i fan
+-  القسّام تستهدف القدس المحتلة بالصواريخ
+-  Dr Disrespect says Amazon should axe Twitch after “Artistic Nudity” fiasco
+-  Pedestrian struck, killed in southwest Minnesota
+-  Jon Hamm to Star in New Series 'Your Friends and Neighbors' on Apple TV+, His First Lead TV Role Since 'Mad Men'
+-  „Kada se u Lokarnu prolomio aplauz, nikada ništa slično nisam osetio“: Dragan Bjelogrlić o „Čuvarima formule“
+-  Mico Ahonen paras suomalainen, pääsi toiselle kierrokselle
+-  Tottenham vajaalukuisena voittoon – myös VAR auttoi
+-  Juventukselle paha takaisku
+-  Najveća zaplena u istoriji Tasmanije
+-  이장우, 파인다이닝 70만원 결제→전현무X박나래 목걸이 선물 '대만 팜유세미나 FLEX' [나혼산](MD리뷰)
+-  로운(ROWOON), 얼굴이 다했어~ 진정한 '얼굴천재' 등극!
+-  이규형 "'백사장2'보다 힘들었던 '노량', 영광스러웠다…한국인이라면 꼭 봐야" [MD인터뷰](종합)
+-  '안정환♥' 이혜원 "두 아이, 부추의 힘으로 탄생" 출생의 비밀 공개[선넘은패밀리]
+-  송진우 "♥日아내, 부부싸움 하다 옷 찢어…다음날 지퍼 달아놔" [선넘은]
