@@ -1,11 +1,51 @@
 # Latest News
--  가수 인순이 설립 홍천 ‘해밀학교’, 구글 레퍼런스 스쿨 인증
--  Kriti Sanon Radiates Golden Glamour on the Cover of HELLO! India’s December Issue
--  Türkiye genelinde Kasım ayında 93 bin 514 konut satıldı
--  김포시, 골드라인 증차사업비 국비지원 확정
--  민주, '고문치사 가담' 정의찬에 공천심사 부적격 판정
--  정의당 "전국위, 류호정 의원직 사퇴 촉구 결의안 만장일치 채택"
--  ЕТТБ Марказий Осиёда ёшлар бизнесини ривожлантиришга 200 млн евро ажратади.
--  Берлинда ҲАМАС гуруҳи аъзолари қўлга олинди.
--  Московское отделение КПРФ рекомендовало выдвинуть Зюганова и Левченко на выборы
--  ЦСКА инвестира сериозно в базата “Панчарево”
+-  İTO Başkanı Avdagiç’ten KOBİ’ler için ‘sermaye desteği’ talebi
+-  Bakan Şimşek: Yatırımcılardan Türkiye'ye büyük ilgi var
+-  Bakan Şimşek: Yatırımcılardan Türkiye'ye büyük ilgi var
+-  [당객열전] 냉혹한 ‘승부사’로 돌아온 최성원
+-  기아 "CES 2024서 지속 가능한 PBV 모빌리티 전략 공개"
+-  우리은행, 'WOORI 어르신 IT 행복배움터' 5개소 확대 조성
+-  DL그룹, 공정위 CP등급평가 우수기업에 선정…"이해욱 회장 ESG 경영 성과 인정 받아"
+-  TERA SCIENCE counts down its entry into the global environmental waste and new renewable energy market
+-  다인리더스, VR 의료교육 콘텐츠 'HAIO'로 생생한 실습 환경 제공
+-  Similis, AI 기반 AnyoneSwap으로 콘텐츠 제작 환경 일대 혁신
+-  Peak Energy and TOPINFRA join forces to develop more than 500 MW of renewable projects in Korea
+-  Ping An Receives Hong Kong ESG Excellence Awards 2023
+-  Kwang Woon is in the final stages of developing an industrial water hammer arrester that extends the lifespan of piping equipment
+-  무역 어드벤처 RPG게임 신작, 대항해일지 21일 정식 오픈
+-  Bahana provok anggota polis guna pisau lipat
+-  Σύνοδος κορυφής της ΕΕ: Τι σημαίνει το μπλόκο της Ουγγαρίας στο οικονομικό «πακέτο» στήριξης προς την Ουκρανία
+-  En directo: Óscar S. declara hoy por la muerte de Esther López
+-  Here are all the performers and winners from the 2023 Asia Artist Awards
+-  Hoje nas notícias: Ano Novo, imobiliário e caso das gémeas
+-  Top 7: Escándalos en el deporte del 2023
+-  Tommy DeVito, una cenicienta italoamericana
+-  العين الماضي: مصداقية المقاومة الفلسطينية فرضت نفسها على العالم
+-  정부 “차량용 요소 6.8개월분 확보…베트남 등에서 물량 곧 도착”
+-  평택시 청소년들, 정장선 시장과 만나 정책 제안
+-  남양주시, ‘전자정부 표준프레임워크 우수 활용사례 공모전’ 최우수상 수상!
+-  가평군, 자라섬 꽃 축제 지역경제에 불 지피다
+-  파주시, 민방위·비상대비 분야 우수기관…5년 연속 선정
+-  영광군, 2024 불갑산 해맞이 행사 개최
+-  [2TV 생생정보 맛집] ‘피자돈가스’ 맛집
+-  전북도, 제13차 새로운 전북 포럼 개최
+-  Lokesh Kanagaraj has taken criticism for Leo into account, won’t repeat same mistake in next with Rajini
+-  Арабите искаха Цариград. И попаднаха на Тервел!
+-  Free cash you can get on Universal Credit this Christmas worth £1,000s that you don’t have to pay back
+-  Senatorka traži odgovore od Zuckerberga o cenzurisanju propalestinskih sadržaja
+-  Konut satışlarında sert düşüş
+-  Chcesz wzmocnić więzi z bliskimi? Psycholog wyjaśnia, jak zadbać o dobre relacje w rodzinie i spędzać udany czas razem
+-  Anas Sarwar slams Labour lord over post linking Humza Yousaf & wife to Hamas terrorists
+-  Od nedjelje pretežno sunčano vrijeme
+-  [“콩밥 먹게 하겠다” 개인폰으로 학부모 민원만 1500건…28세 기간제 교사, 결국
+-  [“별풍선 24억 쏘면 결혼한다니” 이러다 사달난다…욕먹던 아프리카TV 대수술
+-  [우리아이들병원, 2023년 일자리 창출 우수기업 선정
+-  [양주시 최성조 규제개혁팀장, ‘지방행정의 달인’ 인증패 수수
+-  [사우디아라비아 장관, KGM 평택공장 방문…곽재선 회장 “협력 강화해 나갈 것”
+-  [나만의 닥터, 비대면진료 개편…서비스 확대
+-  I tested supermarket Christmas puddings – bargain winner is high-end and worth every penny, plus it beats Aldi
+-  [속초시, 대설특보에 비상 대응 1단계…설악산 탐방로 개방 연기
+-  Капитан I ранг Васил Данов: Досега няма случай, в който да има охрана на някой кораб и той да е бил превзет
+-  Pemimpin Hamas Ungkap Syarat Perundingan Damai dengan Israel
+-  Rolerkoster u Japanu stao usred vožnje, desetine ostavljene da vise naopako
+-  Navidad en los Patios 2023: Grupo de Cámara Orpheus
