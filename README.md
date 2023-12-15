@@ -1,51 +1,51 @@
 # Latest News
--  Lekker kakken op een stoel in de vrije natuur, dat is natuurlijk de droom van elke vrouw
--  PFDK’dan Elazığspor’a ceza!
--  Hava değil zehir soluyoruz! İşte alarm veren ilçeler
--  Erdoğan'dan yerel seçim açıklaması: Tarihi duyurdu
--  Prens Harry'nin İngiliz Gazetesi'ne karşı davasında zafer
--  中 “11월 코로나 사망자 단 8명” 주장…국제사회 거센 비판
--  美 2024 국방수권법안 통과…‘미중전쟁 가능성’ 보고 의무화
--  신성한 메시지를 화폭에 담은 예술가, 바치치아
--  IT Sustainability Think Tank: Navigating towards a greener future for IT in 2024
--  Prince Harry wins damages over phone-hacking by British newspapers
--  Russland lobt Orbans Veto gegen Ukraine-Hilfen und kritisiert EU-Beitrittsgespräche
--  Missing boy found in France expected to return to UK in next few days
--  المنتخب المغربي النسوي الأول عربيا والثالث إفريقيا
--  Znanstvenike zaprepastio sadržaj sonde pristigle s potencijalno opasnog asteroida: 'Što je ovo sad?'
--  COCT warns of harsh consequences for drunk motorists, pedestrians
--  Aktiviran humanitarni broj 1411: Tradicionalno donatorsko veče "S ljubavlju hrabrim srcima" 28. decembra
--  MHP Genel Başkanı Bahçeli'den 'yerel seçim' jesti: Bir ilçede aday göstermeyecek
--  Fitch'ten 13 Türk bankası için güzel haber: Sadeleşme adımları marjları destekliyor
--  Alman ekonomisi için kötü haber: 2023'te ne kadar küçüleceğini açıkladı
--  Bulgaristan'da korsan krizi: Kargo gemisi Umman Denizi'nde korsanlar tarafından ele geçirildi
--  Yusuf Yazıcı'nın evine hırsızlar dadandı
--  İzmir-Isparta seferini yapan Göller Ekspresi gündüz de yolcu taşıyacak
--  Lancement 5G et accélération du déploiement de la fibre optique au Sénégal : Sonatel s’appuie sur l’opération titrisation de créances.
--  Näin Venäjä reagoi EU:n histo­rialliseen päätökseen
--  Vuoden euribor-korko jatkaa laskuaan
--  Бенковски (Исперих) ще тренира в Шумен
--  Észt miniszterelnök: Ukrajna nem fog támogatás nélkül maradni
--  `Priscilla` movie review: A poignant portrayal of isolation
--  `Silent Night` movie review: A generic revenge thriller from John Woo
--  Nina Chuba auf Tour 2023/2024: Wann und wo ihre nächsten Auftritte stattfinden
--  Travis Kelce says brothers want to bring famous podcast to UK after Taylor Swift-fuelled jersey spike
--  Calum Scott auf Tour 2023/2024: Das sind seine nächsten Termine
--  Confintesa “La contrattazione collettiva modello da ricostruire”
--  INTERVJUU | Türgi-Eesti superstaar Ant Nurhan: ma olen laval vallaline, kodus aga abikaasa ja isa. Tahan, et pereelu oleks privaatne, me pole mingid Kardashianid!
--  Die Parlamentswochen vom 18. Dezember 2023 bis 12. Jänner 2024
--  Ο λόγος που ο 18χρονος δεν έγινε προστατευόμενος μάρτυρας παρά το αίτημά του (vid)
--  Ξένος στο γήπεδο μόνος στο Πάφος-ΑΠΟΕΛ / Οι ορισμοί των διαιτητών
--  Sulmi në Banjskë, Osmani: Serbia e dëshmoi se nuk dëshiron normalizim të raporteve
--  ‘ফুটপাতে যে শীতের কাপড় কিনতে পারছি, এটাই অনেক’
--  NSDC signs MoU with Saudi govt to protect rights of skilled labourers from India
--  Affaire Ndiaga Diouf, Barthelemy Diaz va parler ce vendredi
--  Wielka weekendowa promocja na Lego. Obniżki nawet o kilkaset złotych
--  Suomelle kallis EU:n juomavesi­säännös voimaan 2032 – Siirtymäaika piteni
--  Velika akcija policije: Hapšenja u nekoliko gradova u Srbiji i Evropi zbog dojava o bombama
--  Despite CBN assurances, cash scarcity persists as banks limit withdrawals to N10k, ATMs dry up, PoS operators hike charges
--  1200억 맨유 문제아, 친정팀에서도 거절…“스왑딜? 전혀 관심 없어”
--  Amy Macdonald 'doing her bit' for Glasgow by reporting potholes as she jokes of 'life of a pop star'
--  Täysin varmat kotivoittajat maustavat viikon vakiokierrosta
--  IPOB: Nnamdi Kanu’s lawyer reveals next move after Supreme Court judgment
--  Gözler Merkez Bankası'na çevrildi: Ekonomistlerin faiz beklentisi ne?
+-  Naxçıvan
+-  Јаревски: Коалицијата СДС и ДУИ преку изведувачот Стевчо Јакимовски отворено фаворизираат бетонизација на Карпош за бизнис од 600 милиони евра
+-  Kontrakty pokazują wiarę w dalsze wzrosty w USA
+-  Homicidio frustrado en Estación Central: hay dos detenidos y agresión estaría vinculada a “problema entre bandas”
+-  국민의힘, 성탄 전후 비대위원장 정할듯…주류 "한동훈 장관이 적임자"
+-  Body is found in hunt for Gaynor Lord: Police say divers have recovered body from river - a week after the married mother-of-three was last seen on CCTV running through Norwich city centre
+-  News24 | IMF gives R2.8bn to DRC government days before elections
+-  Kritik COP28 oleh WRI Indonesia, Global Stocktake Jadi Isu Utama
+-  Kinh tế Argentina: Không có tiền!
+-  Galatasaray'da Taraftarı Heyecanlandıran Transfer Atağı
+-  Historic homes restoration expert, 72, broke planning laws by carrying out work to his Grade-II listed £1.5m Cotswolds farmhouse without permission after he became 'frustrated' with council delays
+-  Historic homes restoration expert, 72, broke planning laws by carrying out work to his Grade-II listed £1.5m Cotswolds farmhouse without permission after he became 'frustrated' with council delays
+-  Köy Meclisinde 3 El Bombası Patladı: Çok Sayıda Kişi Yaralı!
+-  Взорвавший гранаты в сельсовете на Украине депутат входит в партию "Слуга народа"
+-  박호형 의원, 한국수산회 공로패 수상
+-  제주도의회 ‘아주 뜻깊은’ 송년 나눔 행사 개최
+-  Commercial ship 'is hijacked by pirates' and heading towards Somalia: Crew 'no longer in control' as Spanish warship heads to intercept
+-  Body is found in hunt for Gaynor Lord: Police say divers have recovered body from river - a week after the married mother-of-three was last seen on CCTV running through Norwich city centre
+-  Commercial ship 'is hijacked by pirates' and heading towards Somalia: Crew 'no longer in control' as Spanish warship heads to intercept
+-  Petrovska: Sot kemi mundur të marrim lajme të mira nga Brukseli, por opozitës i mungon vizioni
+-  Ovo su četiri razloga zašto će 2024. biti uzbudljiva za tržište prijenosnih računala
+-  [ŽT] N-18! Užkarpatėje deputatas susprogdino granatas sesijos metu. Klaikaus sprogimo video
+-  Netikėta. Moldova gali užmegzti ryšius su Rusija, vadovaujama Putino. Sandu įvardijo sąlygą
+-  [ŽT] Ar Rusija pasirengusi baigti karą. Putinas atsakė
+-  Taip pasiruošimas Kalėdoms atrodė Lietuvos dvaruose: rūpinosi dovanomis ir menine programa svečiams
+-  [ŽT] Karas atšaukiamas. Venesuela pakeitė savo nuomonę. Kas vyksta
+-  Fantastiškai geros kainos 2in1 suvirinimo aparatas. Tinka ir profesionalams. Paskutiniai vienetai
+-  Atakuotas Vokietijos laivas. Paleistos raketos. Kas vyksta (Video)
+-  [ŽT] „Tankas tiesiogine ugnimi smogia rusams.“ Kas nutiko prie Synkivkos (Video)
+-  Jei žvilgsnis galėtų nužudyti. Latvijos premjerės ir Orbano susitikimo nuotrauka (Foto)
+-  JAV nori pastatyti į vietą Kiniją ir Rusiją. Kas vyksta
+-  Agresijos ir praradimų simbolis. Kodėl Rusija prarado tiek daug Ka-52
+-  [ŽT] Visai išprotėjo. Nuskendusiam kreiseriui „Moskva“ paskirtas naujas vadas
+-  Kindu : sensibilisation de la population sur l'utilisation des Dispositifs électroniques de vote
+-  FT: Маск заверил кредиторов, что они не потеряют деньги на сделке с X
+-  Azərbaycan çempionatında möhtəşəm qol
+-  Названо количество выпавших в Москве осадков
+-  Sri Mulyani: Penerimaan Pajak Lampaui Target APBN, Nilainya Rp 1.739,84 Triliun
+-  The end of conflict over Nagorno-Karabakh?
+-  बांदा जिले में तैनात महिला जज ने सीनियर पर लगाया यौन उत्पीड़न का आरोप... CJI को पत्र लिखकर मांगी इच्छा मृत्यु
+-  Kickoff | Al Ahly star sends warning to Benzema & Al Ittihad
+-  صحة المنيا تكرم مدير الإدارة العامة للطب الوقائي لبلوغه سن المعاش
+-  إقالة وإدانة وإشادة.. «صلاة يهودية» بمسجد جنين تثير جدلا واسعا
+-  Paris Saint-Germain interested in January move for injured Manchester United star Casemiro
+-  Amanda Holden and Ashley Roberts match in £180 feathered pyjamas and heels as they celebrate Christmas at Heart FM
+-  Drejtoria e doganave fillon projektin sistem i ri me një sportel, që do të lehtësojë tregtinë
+-  Путин выступил за сохранение размера первого взноса по семейной ипотеке
+-  بدء تفريغ شحنة مساعدات إماراتية لغزة نقلتها سفينة من ميناء الفجيرة للعريش
+-  Everyman Media Group buys two cinemas from collapsed chain
+-  Fixed-rate mortgages could fall below 4% within weeks amid a price war, experts say
