@@ -1,51 +1,51 @@
 # Latest News
--  스틸리언, SW고성장클럽 최우수 기업 선정
--  삼성화재, 대한민국 디지털 광고대상 은상 수상
--  예보, 신용보증기금과 내부통제 강화 업무협약 체결
--  "엔비디아 H100보다 성능 뛰어날 것" 인텔, AI 반도체 '가우디3'공개
--  농협금융 스포츠단, '사랑의 농산물 꾸러미' 나눔 실시
--  Ремонт моста в Камешково закончат к лету 2024 года
--  Hungary blocks $55 billion EU aid to Ukraine
--  Ukraine-Krieg: „Awdijiwka ist jetzt Hotspot“ – wachsende Sorge an der Front
--  Editorial: Llegó la depuración
--  В Воронеже два брата избили и ограбили пенсионера
--  US-Wahl 2024: Warum die Grenze zu Mexiko Bidens größtes Problem ist
--  ”Snaran kring tillgängligheten i vården dras åt”
--  머스크, 이공계 교육 광폭 행보…“1300억원 투자해 학교 설립”
--  Frjósemislæknir sakaður um að hafa notað eigið sæði til að frjóvga sjúkling
--  20대 소득 줄고 빚 늘었다…20대 여성 27%만 ‘결혼 긍정’
--  박유천 어제는 '고액체납자', 오늘은 '결별설'…'나쁜 소식'만 줄줄이 [종합]
--  Denizli'de maden ocağındaki göçükle ilgili soruşturma başlatıldı
--  Gazze Şeridi'nde altıncı kez iletişim ve internet hizmetleri kesildi
--  Тигр растерзал сторожевого пса в Приморье
--  Russland greift Ukraine mit Raketen und Drohnen intensiv aus der Luft an
--  Jordan Staal breaks 2nd-period tie, Hurricanes beat Red Wings 2-1
--  Horsch-Prototyp: Details zur Solus-Einzelkornsämaschine für Getreide #einzelkornsaat #einzelkornsämaschine
--  2023년 학교운영위원회 창원지역협의회 연수·시상식
--  Znepokojivý zápach, ktorý by ste doma nikdy nemali ignorovať: Môže signalizovať vážny problém
--  Polisi Ungkap Penyebab Kematian Ayah dan Anak yang Membusuk di Koja
--  에스파, ‘드라마’·‘징글벨 록’ 스페드 업 버전 공개
--  캐넌히터가 단장으로… SSG, 신임 단장에 '레전드' 김재현 선임
--  [여중·고 주변 ‘애 낳을 여성구함’ 현수막 붙인 50대 2심도 집유
--  [국립서울현충원 보훈부로 이관, 보훈부 “호국보훈 성지로 재창조할 것”
--  Kanupur dam project hangs fire with delay in Forest nod
--  한국전력기술-포스코이앤씨, ‘국내 해상풍력 발전사업 개발협력 양해각서’ 체결
--  Xiaomi 14 Pro Tidak Dirilis ke Indonesia?
--  Борислав Цеков: Безпрецедентни за конституционната ни история промени
--  Yemek yerken daha sık görülüyor ve ölüme götürüyor
--  Vain Iivo Niskasella on alkukaudelta podiumsijoitus – suomalaisten maastohiihtäjien on aika parantaa vauhtia
--  Städtetag warnt vor Verzögerung bei Wärmeplanung
--  Á hậu Ngọc Hằng bị gãy cà kheo trong phần thi Trang phục dân tộc, xử lý thế nào trên sân khấu quốc tế?
--  Hé lộ bằng chứng Gen.G "ăn cháo đá bát", phủi sạch mọi công lao của Peanut khiến fan bức xúc
--  Sao bóng đá cầu hôn thành công bạn gái ca sĩ trong khung cảnh lãng mạn đến nao lòng
--  Mehr Öko-Weihnachtsbäume - Nachfrage dennoch höher als Angebot
--  TPHCM công bố nguyên nhân trẻ tử vong do bánh su kem tại lễ trung thu
--  Schnieder lobt CDU-Grundsatzprogramm: „Keine Denkverbote“
--  Vierungsturm: Dombauverein Speyer verkauft historische Nägel
--  Berdialog dengan Ulama, Anies: Pondok Pesantren harus Setara dengan Sekolah Umum
--  Djokovic, Sabalenka named 2023 tennis world champions
--  Dutch court to rule on export of F-35 parts to Israel
--  Actor Shreyas Talpade Suffers Heart Attack, Undergoes Angioplasty; Fans Pray For His Speedy Recovery
--  Warga Tangisi Kepergian Awan yang Tewas Dibanting Ayahnya
--  Manifestación de ciclistas por la muerte de un compañero culminó en agresiones
--  La transformació d'un sector a través de la innovació i la tecnologia
+-  Farrell to stay as Ireland coach until end of 2027 Rugby World Cup
+-  Kompany says Cup of Nations too soon for Bafana's Foster
+-  Suryakumar thrashes century as India level series in South Africa
+-  King's 82 powers West Indies to T20 victory over England
+-  Rangers down Betis to make Europa League last 16, Brighton see off Marseille
+-  Guyana, Venezuela agree not to 'use force' to settle land dispute
+-  재경홍천고등학교동문회, 고향사랑기부 참여
+-  홍천 서석면 새마을협의회, 서석곳간 100만원 기탁
+-  홍천읍번영회, 홍천읍행정복지센터에 후원금 전달
+-  홍천기부천사 운동본부, 2024년 희망 나눔 캠페인 나눔가득 이웃돕기 성금지원
+-  إعفاء السعوديين من تأشيرة دخول إيران
+-  Va INE contra revistas que financiaron a 'corcholatas'
+-  SPK 44 sitenin kapatılmasını istedi
+-  SPK'dan 13 kişi hakkında suç duyurusu
+-  Bir hissede iki kişi yakalandı! Milyon lirayı aşan ceza kesildi
+-  İki şirketin sermaye artırımına onay
+-  속초·양양·고성 대설주의보… 중부산지·북부산지 대설경보 유지
+-  7조5800억원 규모 내년도 강원도 예산안 도의회 최종 통과
+-  인구학자 조영태 교수 "인구를 읽어야 미래가 열린다"
+-  Desalojan tren en Línea 7 del Metro; señalan retrasos
+-  Borsa İstanbul'da önemli değişiklik... İşte yeni dağılım
+-  Europe 1 nuit du 14/12/2023
+-  В Бурятии педофилу грозит пожизненный срок за надругательство над детьми
+-  Japan to Send Rescue Boats to Malaysia Under OSA Program
+-  Turista muere tras ataque de cocodrilo en playa de Ixtapa: Su pareja está grave
+-  Centro Prodh responde a las ‘descalificaciones’ de AMLO por caso Ayotzinapa
+-  Pressestimme: 'Nürnberger Nachrichten' zu Einsparplänen der Ampel
+-  Pressestimme: 'Straubinger Tagblatt/Landshuter Zeitung' zu Ukraine/Putin/Orbán
+-  "ديوان المحاسبة" يُسائل وزير الأشغال
+-  Adoption d'animal à Noël : «Ce n'est pas un acte anodin», rappelle Pierre Buisson
+-  Pressestimme: 'taz' zu CO2-Preis/Klimageld
+-  Pressesrtimme: 'Münchner Merkur' zum Dax-Rekord
+-  Pressestimme: 'Reutlinger General-Anzeiger' zum Wegfall der E-Auto-Prämie
+-  현대차, 단종 쏘나타 택시 中서 수입 추진
+-  내년부터 운전면허 취득자 대상 자율주행차 안전교육 시행
+-  “2030년 충전기 세계점유율 10% 목표”
+-  Pressestimme: 'Westfälische Nachrichten' zur Rente mit 63
+-  Pressestimme: 'Rhein-Zeitung' zum Haushaltsentwurf
+-  Pressesrtimme: 'Frankfurter Rundschau' zum Lieferkettengesetz der EU
+-  Pressestimme: 'Südwest Presse' zum Haushalts-Kompromiss
+-  Pressestimme: 'Augsburger Allgemeine' zu Putins Auftritt in Moskau
+-  Pressestimme: 'Handelsblatt' zum Paradigmenwechsel in der Zinspolitik
+-  Pressestimme: 'Kölner Stadt-Anzeiger' zu den Energiepreisen
+-  More young people in Korea consider marriage, childbirths as nonessential
+-  Korea's overseas investment sinks 20% in Q3
+-  رسالة تهديد من وزير إسرائيليّ لـ"الحزب"... ما هو مضمونها؟
+-  MİT, PKK'nın gizli yapılanmasını ortaya çıkardı
+-  Studi: Penggunaan Ganja Saat Hamil Berisiko Ukuran Bayi Lahir Kecil
+-  En mand står i vejen
+-  Ρέντης: Έρχονται εξελίξεις - Χαρτογραφήθηκε η ομάδα των χούλιγκαν που οργάνωσαν την επίθεση κατά των ΜΑΤ
