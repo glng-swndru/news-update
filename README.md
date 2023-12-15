@@ -1,51 +1,51 @@
 # Latest News
--  Full reason Khawaja humanitarian message was banned is revealed, with Cricket Australia backing the ICC's decision
--  Real estate guru ERUPTS over claims that agents are overpaid - as he predicts a bumper 2024 despite interest rates misery
--  Extrémny šok pre českého herca: Kým bol na výlete, mama spáchala samovraždu!
--  Siaubinga klaida. Izraelio kariai nužudė 3 įkaitus. Audringa reakcija. Kas vyksta
--  Z-kanaluose įtartina tyla. „Sužeistuosius vežė pusė nakties.“ Kas vyksta (Video, foto)
--  LG, 17일 삼성과 창원 홈 경기서 ‘프로-스펙스 데이’ 진행
--  험난했던 노팅엄 원정, 승리에도 웃기 힘든 토트넘…에버튼전에 우도기-비수마 없다 [EPL]
--  Ministério Público pede que acordo em que Traiano admite ter recebido propina deixe de ser sigiloso
--  Sergio Reguilon può lasciare il Manchester United a gennaio. Ci pensa il Borussia Dortmund
--  Coroner: Matthew Perry died from effects of ketamine
--  [속보] “핵 위기시 한미정상 즉각 통화 시스템 구축중”
--  Man charged after child left with ‘critical’ head injuries
--  Reaction to Bradford Council being on brink of bankruptcy
--  Police update after car ploughs into shops in Bradford
--  Guiseley Methodist Church panto, 1969: were you there?
--  Leeds man caught with loaded handgun given 16-year sentence
--  Long-time resident names new Shipley retirement development
--  Mirfield family run farm shop raise over £50,000 for charity
--  My dad would never have entertained matching Xmas pyjamas
--  West Yorkshire Police search for wanted woman June Langley
--  Lewis Priestley: Tributes paid after police find body
--  Lewis Priestley: Body found in search for missing teen
--  Kittens found at Harris Street Recycling Depot in Bradford
--  Anger after grave damaged in Scholemoor Cemetery crash
--  John Bishop brings new stand-up show to St George's Hall in Bradford
--  Bradford man Jack Jolliffe jailed for child sex offences
--  Le financement de Google plafonné pour les radiodiffuseurs privés et Radio-Canada
--  États-Unis: le gendarme des marchés refuse de créer des règles spécifiques aux cryptomonnaies
--  Ottawa Open to Further Pause of MAID Expansion, Justice Minister Says
--  Ex de Ana Hickmann, Alexandre Correa será investigado pela Justiça por falsificação
--  KPK Setor 10 Miliar ke Negara dari Sejumlah Terpidana Korupsi
--  Botanical art bringing the country into focus
--  Dự báo thời tiết ngày 16/12/2023: Bắc Bộ đón đợt rét đậm đầu tiên trong năm
--  Πρωτοσέλιδα αθλητικών εφημερίδων για τo Σάββατο 16 Δεκεμβρίου 2023
--  上環燕窩行被淋紅油 東主發現報警
--  De nouvelles espèces d'insectes découvertes en Corse
--  Bruit, rythme de travail, risques psychosociaux : en open space, des conditions de travail «globalement moins bonnes»
--  Elya Toledano, otage franco-israélien retrouvé mort dans la bande de Gaza : «On ne pouvait pas se disputer avec lui»
--  JO 2024 : devant le Sacré-Cœur, un collectif dénonce un «nettoyage social» en cours à Paris
--  Immigration : pourquoi le recours au 49.3 est impossible
--  Quatre recettes pour des fêtes parfaites
--  Aide à l'Ukraine : comment Viktor Orbán a berné les Européens et réjoui les Russes
--  «Armée numérique» du PSG : l'ex-directeur de la communication du club mis en examen
--  Israël annonce la mort de trois otages tués «par erreur» par ses soldats dans la bande de Gaza
--  CNews et Europe 1: d'inquiétantes bonnes audiences pour les médias «bollorisés»
--  Dans le Tarn, un maire veut «ficher» les chiens pour verbaliser leurs maîtres
--  Israël autorise l'entrée temporaire d'une aide humanitaire, mort de Guy Marchand, une quatrième plainte contre Cauet… L'actu de ce vendredi 15 octobre
--  «Quand la guerre prendra-t-elle fin ?» : l'interview de Poutine a-t-elle été sabotée par des «messages gênants» ?
--  Royaume-Uni : première victoire du prince Harry dans sa bataille contre les tabloïds
--  ‘테마주 광풍’에 올 한 해 배부른 증권사, 4분기 실적이 무려
+-  भारत को किराए की कोख का कारोबार नहीं बनने देंगे:सरोगेसी डोनर बैन पर दिल्ली हाईकोर्ट बोला-अंगदान की परमिशन दी तो आधे गरीब किडनी-लिवर खो देंगे
+-  La primera píldora contra la depresión posparto ya está disponible en EE.UU., dicen fabricantes
+-  Blero vendos të largohet vullnetarisht nga Big Brother VIP Kosova 2
+-  تدفق طالبي اللجوء إلى فنلندا من روسيا قبل إعادة إغلاق الحدود
+-  İzmir'de suç örgütü lideri tutuklandı. Kendisine emniyet mensubu süsü vermiş
+-  Breaking barriers: hihilulu’s unique approach to global language acquisition with AI
+-  '4 estrellas'
+-  Big Trouble in Little Delaware
+-  Pentagon leaders head to Israel as US urges caution in Gaza
+-  Mundo Pixar llega a México: Un viaje al universo de ‘Toy Story’, ‘Coco’, ‘Up’ y mucho más
+-  ‘벨링엄 형제, 한 팀에서 뛰나’…레알이 동생까지 싹쓸이 영입 고려
+-  Izrael prvi put od početka rata upozorio stanovnike Libanona: 'Hezbolah je stvarna opasnost'
+-  CGI files 2023 Annual Disclosure Documents
+-  ‘SEAL Team’ Adds Dylan Walsh As Recurring For 7th & Final Season
+-  Сийярто опроверг сообщения о том, что Шольц предложил Орбану выйти за кофе
+-  Canucks acquire defenceman Cicek, 2024 pick from Sharks for centre Studnicka
+-  Ove godine naslušali ste se kako klima propada. Ovih 9 prijelomnih događaja budi nadu u preokret
+-  Ja Morant found therapy, self-reflection ‘very eye-opening’ during suspension
+-  Laser communication: the future of communicating in space
+-  Europa ha roto el pacto
+-  AFC-leading Ravens begin tough stretch against division leaders with prime-time matchup at Jaguars
+-  Xuxa se recusa a atender pedido de fã em porta de evento: 'Manda beijo para a galera'
+-  Cardinal, nine other defendants, await verdicts at Vatican trial
+-  Israeli military says it mistakenly killed 3 Israeli hostages in battle-torn part of Gaza
+-  Están inconformes con la elección del nuevo rector: Trabajadores de la UAdeO toman el campus Culiacán
+-  Casa Wabi celebra una década de creación artística
+-  Arrestan a novia de Tekashi 6ix9ine por violencia
+-  Matan a hombre a balazos dentro de vivienda en Juárez
+-  Es Tren Maya simulación, despilfarro y ecocidio, dice PAN
+-  Golpeó y amenazó de muerte a su esposa con un arma blanca
+-  Emite la CEDH 5 recomendaciones contra elementos de la Policía y Tránsito Municipal de Mazatlán
+-  देश की सभी अदालतों में 5 करोड़ केस पेंडिंग:कानूनमंत्री लोकसभा में बोले- सुप्रीम कोर्ट में 80 हजार, हाईकोर्ट्स में 61 लाख से ज्यादा मामले
+-  Lenia Batres, una mujer de auténtica izquierda que refrescará a la SCJN: Monreal
+-  Resumen Al-Hilal 2-0 Al Wehda | Jornada 17 Liga Saudí
+-  Ex-Trump lawyer Rudy Giuliani told to pay $220m over false allegations against election workers
+-  HSC Winnipeg launches new acute stroke unit for enhanced care after strokes.
+-  Gérard Depardieu: dans quels cas une Légion d'honneur peut-elle être retirée?
+-  Crítica A Fuga das Galinhas 2 | Filme é uma crítica social com gosto de infância
+-  Las elecciones en Boca Juniors se harán este domingo y más de 13.000 socios votarán en urnas separadas
+-  À deriva, maior iceberg do mundo pesa quase 1 trilhão de toneladas
+-  CNT : les conseillers nationaux adoptent trois (3) importants accords de financement et de coopération
+-  Mandala Shoji Bakal Tuntut Rp 100 M Imbas Hotel di Pontianak Paksa Check-Out
+-  Arteta: Brighton Bisa Menyusahkan Arsenal
+-  Impor RI dari Israel Anjlok di Tengah Seruan Boikot
+-  ¡Súmate! Cruz Roja Guasave convoca a donar juguetes y cobijas para las familias más necesitadas
+-  La metáfora
+-  Putinin johtama neuvosto: Haltiat ovat vakava uhka Venäjälle
+-  Man gets rider for soliciting sexual contact from teens 6 years ago
+-  Wildlife conservation groups sue over lack of plan for railroad to reduce grizzly deaths in Montana
+-  #apple fixed the #iphone’s Flipper Zero problem
