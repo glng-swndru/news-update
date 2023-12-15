@@ -1,11 +1,11 @@
 # Latest News
--  Cengiz Ünder'e özel ilgi gösteriliyor
--  Bị mắng ăn bớt đồ, chủ nhà hàng xếp từng chiếc xương ếch khiến khách bẽ mặt
--  Những đứa trẻ lớn lên có thu nhập cao thường sở hữu 3 đặc điểm này: Cha mẹ đừng bỏ qua mà "dập tắt" tương lai của con
--  Lương 500 tỉ, sao bóng đá vẫn dùng điện thoại vỡ tan nát
--  Hoá ra Andree hộ tống Phương Ly đi diễn, tranh thủ hẹn hò ở Phú Quốc luôn!
--  Quên các quán cafe đông đúc đi, đây mới là địa điểm săn ảnh cực hút giới trẻ mùa lễ hội cuối năm
--  Top 40 nghệ sĩ và bài hát thịnh hành nhất Vpop năm 2023: Tăng Duy Tân lập cú đúp
--  Thái Lan bắt đầu thí điểm mở cửa các địa điểm giải trí về đêm đến 4 giờ sáng
--  Ở tuổi ngoài 30, hóa ra làm sạch da bằng dầu tẩy trang mới là "chân ái"
--  Vũ.: Một ngày tôi tỉnh dậy, đặt vé máy bay đến với cô ấy và cầu hôn
+-  'Ik vind het belangrijk dat we blijven werken aan het verminderen van voedselverspilling'
+-  „Býst fast­lega við að stjórn Marels hefji við­ræður við JBT“
+-  Turecko postavilo hi-tech zeď na hranici s Íránem. Má bránit migrantům i teroristům
+-  V Mariboru odprtje razstave ob 60-letnici prvega Festivala Kurirček
+-  Dampak Gempa Juga Dilaporkan di Tiga Kecamatan Sukabumi Selain Kabandungan
+-  Unge mænd forsøgte at bedrage især ældre for 15 millioner
+-  Estudiantes de San Marcos forman largas colas para disfrutar del tradicional desayuno y almuerzo navideño
+-  Fremantle’s Jean Shi Exiting ‘America’s Got Talent’ Producer After Six Years
+-  NASA reveals what 2 tomatoes look like after being lost in space for 8 months (video)
+-  Lacroix monte en puissance dans l'emballage alimentaire en bois
