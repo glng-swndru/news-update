@@ -1,51 +1,11 @@
 # Latest News
--  Yaşar Okuyan hayatını kaybetti
--  Bolu'da enişte dehşeti! Baba ve 2 oğlunu pompalı tüfekle vurdu
--  Gazze'de kana doymuyorlar! İsrailli Bakan: Tamamen işgal edilsin
--  Bakan Yerlikaya, sokak köpeklerinin saldırdığı 10 yaşındaki Tunahan'ı ziyaret etti
--  Danimarka'dan Gazze'de "insani ateşkes" çağrısı
--  Develi Belediyespor, transferi duyurdu!
--  سرايا القدس: استهدفنا آليات عسكرية وأجهزنا على جنديين
--  Hospital Cayetano Heredia establece nuevo servicio de citas médicas
--  Nigeria’s inflation rate hits 28.2% in November – NBS
--  Donald Trump völlig irre: Trump prahlt und spottet: Er ist sogar "gesünder als Obama"
--  American jailed over working with Russian tycoon — RT World News
--  H szektor, 61. rész: Ötvös Lóránt azt akarja, hogy megismerjék a nevét az MMA világában is
--  Marija Šerifović postala majka
--  Politico: Η ΕΕ κατέρριψε τον μύθο του Ορμπαν με την ιστορική ένταξη της Ουκρανίας -Το τρικ του Σολτς
--  Bayer-Juwel schreibt Geschichte und überholt BVB-Star Moukoko
--  Auffahrunfall auf Autobahn im Norden: Zwei Verletzte
--  Hov, kom Putin lige til at afsløre tabstal i Ukraine? Russiske medier i vild diskussion
--  Hov, kom Putin lige til at afsløre tabstal i Ukraine? Russiske medier i vild diskussion
--  El ranking de Cotelco que pone a Yopal como nuevo destino turístico de Colombia
--  ABD'li öğretmenden öğrenciye İsrail tehdidi
--  Ani mesajlaşma ilə dələduzluq halları həyata keçirilir
--  המס על המשקאות הקלים חוזר; בתעשייה הופתעו: "מחטף"
--  א.ס. רמת השרון הנחילה למכבי ראשון לציון הפסד בכורה בליגת הכדוריד
--  Haben Sie gewonnen?: Die Gewinnzahlen des Marler Lions-Adventskalenders
--  Календарът за първия уикенд от LEC е тук
--  This sex position results in the most injuries for men — here’s why you may want to try it anyway
--  Nové Li-Ion LFP baterie čínského Zeekru: 500kW nabíjení a 83,7% využití objemu
--  Daniel Padilla Booed, Called ‘Cheater’ During AAA 2023 Speech?
--  Cerruti salió a desmentir a Adorni por los gastos de unos cuadros dispuestos en Olivos
--  River reformó su estatuto: cuáles son los cambios en la gestión y la votación del club
--  Maersk stoppt Containertransport durch Rotes Meer nach Angriffen
--  Nisu pratili ko koga prati
--  Marija Šerifović postala majka, objavila fotografiju te otkrila spol i ime bebe
--  Plenković s Meloni i Golobom dogovorio fleksibilniji režim na granicama
--  معجزة جيرونا.. ثمرة جديدة لمجموعة "السيتي" وهذا دور شقيق غوارديولا
--  Za ubistvo crnogorskog državljanina u Ugrinovcima: Tatomirov osuđen 12 godina zatvora
--  Weiter Einschränkungen im Zugverkehr: Bahn räumt Mängel ein
--  Amazon y Lenovo ponen prácticamente a mitad de precio esta laptop IdeaPad 1 con pantalla touch, Windows 11 y 256 GB de SSD
--  الخارجية الأردنية: حكومة الاحتلال الحالية لا تريد دولة لفلسطين
--  6 dicas para economizar nas compras online de Natal
--  Sri Lanka, Qatar explore avenues to expand and bolster bilateral ties
--  영케이, 귀여운 브이
--  ‘Odgovornost za transparentnost medija je i na vlasnicima i udrugama‘
--  Wielki sukces Macieja Skorży. Teraz czas na Pepa Guardiolę
--  Aumentano i soggetti fragili over 65, fondamentali i vaccini HZ e RSV
--  Benedikt Doll górą w biathlonowym sprincie w Lenzerheide. Polacy daleko
--  Stephen Eustáquio, Jessie Fleming named Canada Soccer players of the year
--  Tom Holland: 'Pet godina nisam plaćao račune, mislio sam da je voda besplatna u Engleskoj'
--  Денят по диагонал – 15 декември 2023 г.
--  Telefon-Hacking-Prozess: Prinz Harry erringt vor Gericht Teilsieg gegen Presse
+-  Cals Kerstfabriek de leukste winkel van IJsselstein
+-  Lissák Laura keményen rászólt Rippel Ferire, de ő nem hagyta magát: „100 kiló sz*rt cipelek minden reggel” – videó
+-  지역 영화 현실과 미래를 묻다
+-  Voiture électrique à 100 €/mois : voici comment savoir si vous êtes éligibles
+-  Ubie Won the "Best with AI" in Google Play Best of 2023 (Japan)
+-  Snow Hill Success!--Quark Expeditions Goes Beyond in Antarctica
+-  Xccelerate AI Unveils Groundbreaking Achievement for Lightning Fast Engineering Simulations
+-  Lyle Foster set to miss Afcon? Kompany to have a final say
+-  Pogány Judit lett a Nemzet Színésze: összeszedtük pályafutása legjobb pillanatait - fotók
+-  Emmerdale's Lisa Riley, Danny Miller and Kelvin Fletcher lead tributes to Zak Dingle actor Steve Halliwell after his death aged 77
