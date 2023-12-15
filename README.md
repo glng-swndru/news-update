@@ -1,51 +1,11 @@
 # Latest News
--  마스크산업협회 ‘장애인직업재활시설’ 경영컨설팅 나눔
--  Missing Zimbabwean Man Found Dead in UK, Manchester; Murder Investigation Underway
--  สหภาพยุโรปเปิดเจรจารับ "ยูเครน-มอลโดวา" เป็นสมาชิก
--  Condenado a 15 años de cárcel por violar a su hijastra durante más de un lustro
--  ¿Qué pasará con los móviles en colegios e institutos? El Principado ya los pone en el punto de mira hasta en los recreos
--  (사)남북통일운동국민연합 홍천군지회, 희망2024 나눔 캠페인에 성금 기탁
--  홍천좋은친구들 장학회, 무궁화장학금 200만원 기탁
--  인천시의회, 청소년 의회 체험 우수소감문 시상
--  태안군, 화력발전 지역자원시설세 탄력세율 적용 확대돼야
--  강대훈 대전소방본부장, 대형물류센터 등 소방안전관리 실태 점검
--  순천향대 부천병원, ‘외국인 환자 송년의 밤’ 열어 환자에 감동 선물
--  한국타이어 임직원, ‘나만의 반려식물 만들기 프로그램’ 진행
--  오준환 의원, 경기도일간기자단이 뽑은 '2023 경기도의회 베스트 의원'
--  홍천군새마을회, 무궁화장학금 400만원 기탁
--  김포소방서, 공공분야 드론 조종 경진대회서 ‘우수상’
--  안산대 항공관광학과, 아시아나항공 교육훈련원서 직무역량 강화 프로그램
--  가천대 길병원, 간호간병통합서비스 패널병원 선정
--  여성기업 314만 시대, 역대 최대…전체 기업 41% 차지
--  박지성, "정치인 생각 해본적 없다… 제의 안해주셨으면" 국힘 인재 영입설 일축
--  강릉소집 갤러리 제1회 소집 아트페어 개최
--  횡성군민 동계청소년올림픽 성공 이끈다
--  화성시의회, ‘100만 화성시민증서’ 전달식 진행
--  [속보] 이광재 국회 사무총장, 총선 출마로 사의… 서울 종로·세종갑 출마 거론
--  Dunki: डंकी के गाने पर थिरकते दिखे क्रिस गेल, डांस देख शाहरुख खान भी हो गए मुरीद
--  Artes marciales: Emmanuel Rivero buscará un campeonato en LUX 038
--  Новороссийские десантники уничтожили группу ВСУ под Вербовым
--  Leverkusen keep perfect Europa League record, young Liverpool team loses. Brighton and West Ham win
--  NYC dance company Jill Biden tapped for ‘Hunter Games’ Christmas video pushes ‘defund the police,’ prison abolition, discredited ‘antiracism’ activists
--  의정부시, 오가며 머물고 싶은 공원이 있는 도시 조성
--  의정부시, 흥선동 경민대학로 상인 워크숍 개최
--  의정부시 의정부2동 청소년지도협의회, 사랑릴레이 동참
--  레노버, AI 가속화 위한 새로운 하이브리드 클라우드 플랫폼 및 서비스 출시
--  Asociación, en contra de pedir carta de no antecentes penales
--  МВД РФ утвердило порядок ликвидации всех видов беспилотников
--  Shohei Ohtani reveals his high-fiving dog’s name as Decoy
--  7 things that changed for the Indian stock market overnight - Gift Nifty, Dow Jones’ record close to ECB rate pause
--  Roland-Garros : Une annonce est lâchée sur la retraite de Nadal
--  Украинский пленный рассказал о массовой гибели солдат ВСУ под Работино
--  Jogos de PC por menos de R$ 5 na Epic Games Store – Ofertas de Fim de Ano
--  Gospel singer Pedro Henrique collapses, dies onstage at 30 during concert
--  With the cooperation of volunteers: stranded dolphin on Eagle Beach was saved
--  경기도사회서비스원, 2024년도 신규사업 발굴 공모전 시상식 개최
--  CBH profit drops as $4 billion investment program powers up
--  Ministerio de Cultura confirma que denunciará a Vanessa López por lanzar frases racistas contra reporteros
--  कर्मचारी की पत्नी से अफेयर…फिर बॉस ने महिला को मार डाला; रूह कंपा देगी कत्ल की कहानी
--  Deepika Padukone seeks blessings of Lord Venkateswara with sister Anisha at Tirumala temple ahead of Fighter release
--  Sẵn sàng đón các tập đoàn bán dẫn hàng đầu thế giới
--  James Webb spots tiniest free-floating brown dwarf we’ve ever discovered
--  Trục lợi từ lễ tang Châu Hải My
--  Qadr Amin was given thumbs up by parents after impregnating their girl(16)
+-  정인수 전 도의원 민주화추진협 선정 민추인의상 수상
+-  정선군 중대재해예방 노력 우수사업장 직원 시상
+-  태백시 철암동행정복지센터 경로당 위문품 전달
+-  태백한우골 이대춘 대표 향토장학금 300만원 기탁
+-  강원중소벤처기업청 홍천 생곡막국수 신규 백년가게 지정
+-  인제군이장한마음대회
+-  도여자단기청소년쉼터, 2023년 4분기 통합운영위원회
+-  화천소방서 화천수력발전소와 재난대응체계 업무협약
+-  한국떡류식품가공협회 춘천시지부, 2024년 적십자 특별회비 전달
+-  민주평통 원주시협의회 2023년 정기회의 개최
