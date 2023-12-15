@@ -1,11 +1,51 @@
 # Latest News
--  Beşiktaş rakibini gençlerle devirdi, taraftarının taktirini topladı! "Helal olsun gençlere"
--  Fenerbahçe hem gruptan çıktı, hem bir turu bay geçerek son 16'ya kaldı! Sarı-Lacivertliler'in muhtemel rakipler bile belli oldu
--  [‘재건축 한창’ 반포·잠원 아파트단지 언제 왜 세워졌나…서울시, ‘서울 동의 역사 서초구’ 편 발간
--  [신안 해상풍력 상생협의회 연찬회 개최
--  [성우테크론, 주당 0.02주 주식배당 결정
--  WebQoof Recap: Around Parliament Security Breach, Shivraj Singh Chouhan & More
--  Rize'den yapılan çay ihracatı geliri yüzde 45 artış gösterdi
--  रोहतक जिला बार चुनाव: 3249 वकील डाल रहे हैं वोट; सुबह कम वकील आए मत करने, धूप के साथ बढ़ी मतदाताओं की संख्या
--  Benoemingen in college van bestuur Christelijke Hogeschool Ede
--  BSP sees narrower 2024 current account deficit
+-  Барои риоя накардани талаботи пардохти ғайринақдӣ то 1360 сомонӣ ҷарима таъин шуд
+-  Yılın en iyisi! Geminid meteor yağmuru büyüledi
+-  12 yaşında Manisa'dan İran'a kaçırıldı, 13 yaşında anne oldu: Afgan çobanın kaçırdığı Dönenur sonunda kurtarıldı!
+-  Okey masasındaki kavgaları gündem olmuştu: O dedeler barıştı
+-  Kırmızı bültenle aranan 2 yabancı uyruklu İstanbul'da gözaltına alındı
+-  DSÖ'den elektronik sigara kullanımının kontrol altına alınması için acil eylem çağrısı
+-  Soccerladuma | Insider: Billiat Didn't Want Chiefs First Time Around
+-  OR takes the next step of its green and sustainability journey with tangible achievements through its unique SDGs ambition
+-  프롬바이오, '눈의 정석 빌베리' 18일 네이버 쇼핑라이브 실시
+-  مع انخفاض درجات الحرارة.. هذه أسرع طريقة لعلاج نزلات البرد
+-  Pate deca sa autizmom i životinje: Kada ćemo bataliti vatromet i petarde?
+-  Voormalig ‘drugshol’ wordt hotel met negentig kamers: buurt vreest voor komst migranten
+-  24 dakika boyunca kalbi durduktan sonra hayata döndürülen kadın: İkinci hayatıma uyandım
+-  Ölpreise legen weiter zu
+-  Тошкентда 11-синф ўқувчиси мактаб ошхонасида «димавушка» тутатди. Ҳолат юзасидан терговга қадар суриштирув бошланди.
+-  Руминия ўз ҳудудида дрон қулагани туфайли Россия элчисини чақиртирди.
+-  Prioritise health sector, Ncube urged
+-  টিআইবি বিএনপির শাখা হয়ে গেছে
+-  Soixante ans de révolution numérique en graphiques
+-  20 sugestões de perfumes para presentear no Natal
+-  Horóscopo da semana do amor: previsões para os signos de 15 a 21 de dezembro de 2023
+-  Oil Prices Rally On Bullish Forecast And Weaker Dollar, Set For First Weekly Gain In Two Months
+-  Réchauffement climatique : les « éléphants » et « l'écureuil »
+-  Erwan Boumard, plein d'énergie
+-  How merging networking and security can avoid ‘chaos’ in enterprise
+-  Threads: Meta’s social media expansion and challenges
+-  Alpes-Maritimes: le conseil départemental va examiner plusieurs dossiers ce vendredi
+-  Ukraine-Krieg: Einheit aus Russen kämpft gegen Putins Truppen
+-  Haos u Iranu: Napadači upali u policijsku stanicu, ubili najmanje 11 osoba
+-  Le « Pacte Marius », ou la stratégie durable jusqu'au-boutiste d'Alinea
+-  Bà Rịa - Vũng Tàu sắp có hội chợ giới thiệu sản phẩm công nghiệp nông thôn với gần 200 gian hàng
+-  টাকার সংকটে পাঁচ শরিয়াহভিত্তিক ব্যাংকের লেনদেন সেবা বন্ধের উপক্রম
+-  Joulutulia jo 27 vuotta – tulet syttyvät taas tutussa supassa
+-  কমিকের পর এবার বাস্তব চরিত্রে অমিতাভের নাতি
+-  لك ولأصدقائك المقربين فقط.. ميزة رائعة من إنستغرام
+-  विद्यासागर विश्वविद्यालय में साइबर सुरक्षा, एथिकल हैकिंग और आर्टिफिशियल इंटेलिजेंस पर अंतर्राष्ट्रीय संगोष्ठी
+-  Dundee dealt bitter injury blow after Antonio Portales ruled out for extended period as Owen Beck remains doubt for Ross County clash
+-  '무엇이든 물어보살' 서장훈, 세계 1위 IQ 204 고지능 사연자에 의심…“몇인데?”
+-  휠라 키즈 "다양한 캐릭터 품은 ‘2024 신학기 책가방’ 출시"
+-  하이트진로 "테라 신규 TV 광고 ‘청정 마스터’ 편 공개"
+-  오비맥주 "이천시에 인재 육성 장학금 810만원 기탁"
+-  현대차그룹, "2024 북미 올해의 차 수상 확정"
+-  Blade Oyununa 2022 Yılında Başlanmış
+-  고준호 경기도의원 "시내버스 공공관리제 시행 전 충분한 준비 필요"
+-  Handelsoverskudd på 80,1 milliarder kroner i november
+-  Tužni skup na „Rajku Mitiću“: Kako je Zvezda postala revijalni rival u Ligi šampiona?
+-  «غاودي 3».. رقاقة ذكاء اصطناعي من «إنتل» لمنافسة «إنفيديا»
+-  Mayor: Extinction Rebellion blockade of A10 ring road will completely disrupt Amsterdam
+-  El fútbol contra el fútbol
+-  Las mejores películas y series de Netflix, HBO, Disney y Amazon para ver esta Navidad
