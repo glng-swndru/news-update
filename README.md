@@ -1,11 +1,11 @@
 # Latest News
--  팬시 토큰, 셀러비 제휴 통한 태국 라자다 협업으로 동남아 확장 준비 완료
--  Orbán sagt doch noch „Nein“: Ungarn blockiert Ukraine-Hilfen der EU
--  Абураҳмонов Илҳомжон Рустамовичнинг фалсафа доктори (PhD) диссертацияси ҳимояси ҳақида эълон
--  Тупроғи зар, дур Ватан...
--  Торонто турнирида Нодирбек Абдусатторов 3-ўринни эгаллади
--  Маматкулов Исфандиёр Абдурахмановичнинг тиббиёт фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
--  Қурбонова Шахло Шухрат қизининг филология фанлари бўйича фалсафа доктори (PhD) диссертациясининг ҳимояси тўғрисида
--  장대비 그치면 주말 한파·대설…내일 수도권에도 눈 쏟아져
--  Tsahal dit avoir récupéré le corps de l'otage franco-israélien Elia Toledano
--  İhaneti unutmuyor! Kılıçdaroğlu'ndan İmamoğlu'na ret
+-  Robert Fàbregas (Junts) deixarà l’Ajuntament de Salt la setmana vinent per "motius personals"
+-  Platja d’Aro, Olot i Llanars mantenen la pista de gel tot i la situació de sequera
+-  La vaga del personal sanitari obliga a anul·lar analítiques de sang a Girona
+-  «La gent encara no sap què fan les infermeres»
+-  L’hospital Santa Caterina va fer l’any passat gairebé 200 intervencions quirúrgiques de dermatologia
+-  Es dupliquen els comissos de cocaïna a Girona amb 13 quilos durant el 2022
+-  Januártól mindenkinek jut az olcsóbb lakáshitelből
+-  김명선(경북 상주시 냉림동) 씨
+-  ज्योति विकास बैंकद्वारा स्वास्थ्यचौकीलाई बेबी वार्मर प्रदान
+-  नयाँ सिम र रिचार्जमा टेलिकमका थप सुविधा
