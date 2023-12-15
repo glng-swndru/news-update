@@ -1,11 +1,51 @@
 # Latest News
--  กกต.สั่งเอาผิดอาญา "พัฒนา" สส.สกลนคร โพสต์หาเสียงเกินเวลา
--  ลดค่าจอดรถชั้นใต้ดิน "สถานีกลางกรุงเทพอภิวัฒน์" 3 เดือน เริ่มวันนี้
--  ผลสำรวจชี้ "เน็ตช้าลง" หลังทรูควบรวมดีแทค
--  ไฟไหม้ โรงงานรีไซเคิล สระบุรี - จนท.ระดมกำลังเร่งดับเพลิง
--  NHL: Siegesserie der Edmonton Oilers gerissen
--  Bakanlıktan cami provokasyonuna tepki
--  Erdoğan ve Biden görüşmesine ilişkin açıklama
--  MasterChef'de ortalık fena karıştı!
--  Akaryakıta indirim olacak mı?
--  Biden'dan İsrail'e çağrı!
+-  비자인, 건강 관리 가상 코칭 애플리케이션 ‘FITWITH’ 12월 출시 예정
+-  마산대학교, ‘2023 스포츠산업 창업지원센터 지원기업 최종 성과보고회’ 성료
+-  RAT U IZRAELU: Nastavljeni žestoki sukobi duž celog Pojasa Gaze
+-  Israel schwört USA auf langen Gaza-Krieg ein
+-  Roberto Luongos fina ord om bröderna Sedin – under egna hyllningen
+-  André Braugher ist tot: Todesursache bekannt gegeben! Daran starb der "Brooklyn Nine-Nine"-Star (61)
+-  ‘Stalker’ jurugambar tukar pengakuan bersalah
+-  Konkurrenz für Musk: Facebook-Konzern Meta startet Kurznachrichtendienst in der EU
+-  Владимир Чуков: България или Малта трябва да преговарят с терористите, отвлекли "Руен" - Труд
+-  Thị trường Nhật Bản ngóng chờ quyết định chấm dứt lãi suất âm, BOJ phát tín hiệu: ‘Chưa phải vội’
+-  “Təhsil ocaqlarımız yüksəliş mərhələlərini məhz Heydər Əliyevin rəhbərliyi dövründə yaşayıb”
+-  Hơn 500 đầu máy toa xe sắp bị 'xếp vào kho' của đường sắt Việt Nam được giải cứu
+-  Chopped Season 3 Streaming: Watch & Stream Online via HBO Max
+-  인천시의회 ‘2025 APEC 정상회의’ 인천 유치 총력
+-  EU to open membership talks with Ukraine, but fails to agree €50bn funding package
+-  Jardine considera que pudieron haber metido dos o tres goles en la Final de Ida: 'No estuvimos finos'
+-  Robert Dante Siboldi tras la Final de Ida entre Tigres y América: 'Dejamos la iniciativa al rival'.
+-  Macarıstan Ukrayna ilə bağlı bu qərara veto qoydu
+-  Cameroun :: Célébration Sécurité Ferroviaire : L'humain Au Centre Des Attentions De Camrail :: Cameroon
+-  Staymate: Wie ein AI-Concierge in Zeiten von Personalnot Entlastung schafft
+-  Lite rester av plantevernmidler i norskprodusert mat
+-  네덜란드 출장서 돌아온 이재용 “출장 성과, 반도체가 90%
+-  Rekordowy „zastrzyk” pieniędzy z banku centralnego Chin
+-  PKO BP: inflacja w listopadzie wyniosła 6,5 proc.
+-  Widzowie powoli wracają do kin
+-  I Have No Regret Removing Alia’s Portrait From My Office – Agbese
+-  'Kronik yorgunluk' başka hastalıkların habercisi olabilir
+-  Cuma mesajları 15 Aralık! Facebook, Whatsapp, Instagram'da paylaşmalık resimli, dualı hayırlı cumalar mesajları...
+-  SampathCards Partners with DUFRY – SRI LANKA DUTY FREE to Delight Travelers with Exclusive Seasonal Discounts at BIA
+-  Nový PRIESKUM hovorí jasnou rečou: Takto by dopadli parlamentné voľby v decembri!
+-  Live Music Offers Respite From Ukraine Trench Life
+-  Gazzetta - Allegri si affida a Chiess e Vlahovic, Gilardino lancia Messias ma perde Retegui
+-  경기혁신센터, ‘제21회 스타트업 815 IR – NEXT’ 성료
+-  Cazul Halep, optimism bazat pe nimic: Dovada că ne place să ne mințim singuri
+-  Heilbrigðisstarfsfólk dæmt í fangelsi fyrir að hafa gefið sjúklingum „róandi“ til að geta átt rólega vakt
+-  بري وحزب الله: مَنْ يراعي المسيحيين أكثر؟
+-  SNGPL disconnects 158 connections, imposes Rs 14.7m fine
+-  Zamlarıyla gündeme gelen İstanbul bu kez indirimle gündemde! Bunu kimse beklemiyordu… Ekmekte indirim sürprizi
+-  Who is Lalit Jha: Facts about the Parliament breach mastermind and how he was tracked by the police
+-  Wladimir Putin: Aug' in Aug' mit dem Doppelgänger! Hier blieb Putin die Spucke weg
+-  Jokowi Belum Tahu Agus Rahardjo Diadukan ke Polisi
+-  Graham Potter's warning to Sir Jim Ratcliffe amid Manchester United manager speculation
+-  Slavni talijanski pjevač ljut zbog nastupa na festivalu: 'Uvrijedili su moju publiku, nisu me željeli'
+-  A többség hőszivattyúval fűtene
+-  Petrol dipten döndü! Motorin ve benzin bakın kaç para (15 Aralık 2023 benzin-motorin-LPG fiyatları)
+-  ”Jag var tredje generationen på Höganäs Keramik”
+-  İstanbullular dikkat! Hava kirliliği arttı, kalp sağlığınızı olumsuz etkiliyor..
+-  Barn är inte jobbiga – och det är det som är det läskigaste av allt Barn är inte jobbiga – och det är det som är det läskigaste av allt
+-  Khi mỗi tư vấn viên cũng là một chuyên gia sống khỏe
+-  Ghé thăm làng chài Nhân Trạch - Nơi bình yên giữa lòng Quảng Bình
