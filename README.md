@@ -1,11 +1,51 @@
 # Latest News
--  James Harden passe la barre des 25 000 points en carrière
--  Appotronics ALPD® cinema laser light source highlight CineAsia 2023
--  18 points pour Rayan Rupert en G League : encore une ruper performance pour le Français
--  الوادي الجديد.. شن حملات لإزالة تعديات على أرض زراعية بمركز الخارجة
--  브릭시티, 드디어 '멀티플레이' 지원한다...대규모 업데이트 실시
--  미술품 조각투자 시대 열렸다…열매컴퍼니, 1호 투자계약증권 승인
--  메이플스토리M, 신규 스킬·콘텐츠 업데이트...'V 매트릭스'·'군단장 윌' 등
--  안랩·코가로보틱스 맞손…로보틱스 사이버보안 협력 강화
--  넥슨, 게임 데이터 플랫폼 '넥슨 오픈 API' 리뉴얼 오픈
--  카톡 채널 활용해 업계 1위 등극한 민티드, 카카오 비즈니스 파트너 대상 수상
+-  크리스마스 쿠키 선물세트로 예쁘고 달달한 크리스마스를 전하세요
+-  '썬셋&썬라이즈워크' 남산에서 진행되는 비대면 행사 개최…스타이카 프로젝트 '가자고' 앱으로 거리 인증
+-  أنواع غير متوقعة من الفاكهة تناولها في الصباح تحميك من أمراض خطيرة
+-  استعدادات لمواجهة الأمطار الغزيرة والسيول.. وزير الري يصدر توجيهات لإدارة الأزمات والطوارئ
+-  Konya'da arsa arayanlar dikkat! TOKİ Karapınar ve Meram'da 12 arsa satacak
+-  Kuzey Marmara Otoyolu'nda kaza: 1 ölü 3 yaralı
+-  Top 7: Crisis climática se agudiza en 2023
+-  Auditorías a jueces, apuesta de Batres; plantea aplicarles controles financieros
+-  KGM, 사우디와 협력 강화논의
+-  울산 '우정지주택' 중도금 대출 상환 만기 도래…조합원 '연체·신용 하락' 우려
+-  오비맥주, '카스 친구 소환소' 팝업스토어 오픈
+-  한·사우디 '446억달러' 경제외교 성과점검
+-  Cantora denuncia racismo em aeroporto no Rio: Revistaram meu cabelo
+-  Soccerladuma | Ex-France Star Slams Mbappe's Champions League Display
+-  Soccerladuma | 5 Chiefs Players Who Could Benefit From A Move In 2024
+-  Конгресс принял законопроект, ограничивающий возможность США выйти из НАТО
+-  VIDEO Accident rar la metroul din Beijing. Peste 100 de oameni au fost răniți
+-  [BREAKING]: Nnamdi Kanu: DSS Storm Supreme Court As Judgement Is Delivered On IPOB Leader Today
+-  Tinubu Vows To Transform Nigeria Into Import-Export Hub
+-  Google prepara Pixie, l’assistente virtuale di Pixel 9 con IA
+-  El PSOE lanza una ofensiva para mejorar el servicio de tren en la ciudad
+-  Pour Noël, faites rêver les enfants en leur offrant un abonnement à un magazine Disney
+-  Mandy Moore, Jennifer Morrison, and Jamie Chung lead the glamour at the Dr. Death season two premiere in West Hollywood
+-  На Таганско-Краснопресненской линии московского метро человек упал на пути
+-  POS: Για ποιους κλάδους γίνονται υποχρεωτικά – Οι νέοι ΚΑΔ
+-  Ενταξιακές διαπραγματεύσεις με Ουκρανία και Μολδαβία ξεκινάει η Ε.Ε.
+-  Ammar Zoni Ngaku Pakai Narkoba Sebagai Pelampiasan Masalah Rumah Tangga
+-  Breskur drengur sem hvarf fyrir sex árum fannst á lífi í Frakklandi
+-  „Žalgiryje“ debiutavęs Hollinsas spaudimo nejaučia: turime likti kartu ir susikaupę
+-  Cameroun :: Robert Kona Et Cabral Libii Doivent S’oublier Pour Que Le Pcrn Reste Inoubliable :: Cameroon
+-  KRÖNIKA: Tack för det vardagliga och det lilla
+-  Kickoff | 'The African Football League hurt Al Ahly's season'
+-  پی ایس ایل میں جگہ نہ ملنے پر احمد شہزاد نے مستقبل بارے بڑا اعلان کردیا
+-  Umboðsmenn aldrei haft það jafn gott – Fengu 122 milljarða í sinn vasa á þessu ári
+-  Svíar heimila Bandaríkjamönnum afnot af 17 herstöðvum
+-  Издательство АСТ приостановило распространение книг Акунина* и Быкова**
+-  Thu giữ số lượng lớn nội tạng trâu, bò đông lạnh đang bốc mùi hôi thối
+-  Baginda Sultan bertemu Maharaja Jepun
+-  أكسيوس: توقف شبه كامل لوصول السفن إلى ميناء إيلات
+-  الأردن يشارك في الدورة 26 للمجلس الوزاري العربي للسياحة
+-  الحكومة تدافع عن تثبيت التوقيت الشتوي
+-  Five hundred injured in Beijing subway crash as heavy snow hits Chinese capital
+-  قتيل وجرحى للاحتلال بمعارك في خان يونس
+-  윤석열 또 격노...김기현 강제 사퇴 전말 [공덕포차]
+-  SC Rejects Mosque Committee’s Request, Clears Way for Survey of Mathura Mosque Complex
+-  Beşiktaş Kulübünde divan kurulu toplantısı yarın gerçekleştirilecek
+-  SIPA: Uhapšeno sedam osoba zbog krivičnog djela "Genocid"
+-  Hip-hop legends N.W.A performing exclusive Perth show on Aus Day long weekend
+-  Welsh & Taylor Wealth: celebrating £20m of client investments in 2023
+-  Das Zürich Openair gibt erste Acts bekannt – und eine Überraschung
