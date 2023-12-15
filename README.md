@@ -1,11 +1,51 @@
 # Latest News
--  Trong tủ lạnh có một nút nhỏ mà người dùng nên điều chỉnh vào mùa đông: Giúp tiết kiệm "cơ số" tiền điện
--  Khám phá xu hướng mỹ phẩm thuần chay với màu nhuộm The Origin Color
--  Cậu bé nhỏ keo 502 vào mắt, cách xử lý của người cha được bác sỹ khen ngợi
--  Phát sốt cách Sooyoung (SNSD) đáp trả 2 chàng trai xin số, tiện đánh dấu “chủ quyền” luôn với tài tử Jung Kyung Ho
--  Giá vàng nhẫn trơn 24K tiếp tục tăng
--  Ngoài collagen, đây là 4 thứ phụ nữ sau tuổi 30 nên bổ sung để chống già, chống nhăn đón Tết
--  Cô dâu Bình Phước đeo 25 cây vàng lên sân khấu làm điều chưa từng, cả hôn trường “náo loạn”
--  TCB: Nghị quyết HĐQT về việc phê duyệt giao dịch giữa TCB và TCBS
--  TCB: Nghị quyết HĐQT về việc phê duyệt giao dịch giữa TCB và TCBS về tư vấn phát hành trái phiếu lần 8
--  NVL: CBTT liên quan tới việc tái cấu trúc gói trái phiếu chuyển đổi trị giá 300.000.000 USD
+-  Morgan Motor Company and Fellten Unveil the Electric XP-1 Prototype
+-  Bé gái 3 tháng tuổi tử vong khi điều trị tại trung tâm y tế huyện
+-  Lan Phương bế bụng bầu 6 tháng cùng chồng đi ra mắt phim
+-  Bên trong nhà cổ trăm tỉ của đại gia Huy "máy nổ" vừa bị siết nợ có gì?
+-  Ảnh nét căng tiệc độc thân của Diễm My 9x: Nhan sắc cô dâu "đỉnh chóp", mẹ bỉm Nhã Phương nổi bật giữa dàn mỹ nhân Vbiz
+-  Tàu điện ngầm Bắc Kinh đứt toa giữa đường, 30 người bị thương
+-  Thử hương liệu mới thuốc lá điện tử, nam thanh niên nguy kịch
+-  Stock Market Updates:
+-  Tiga beranak maut MPV bertembung lori
+-  CO2 accidentally released at Bokjeong Station in Seoul; 3 taken to hospital
+-  Widow of ex-Japan PM Abe met with first lady in Korea last week: sources
+-  Zayn Rayyan dibunuh: Polis buat lakonan semula bersama saksi kanak-kanak
+-  La Junta birmana y rebeldes alcanzan un alto el fuego temporal con la mediación de China
+-  Clima en Sevilla: cuál será la temperatura máxima y mínima este 15 de diciembre
+-  Latinoamérica, más cerca de Europa tras la presidencia de España de la UE
+-  Los Angeles buries 2,000 unclaimed dead from Covid-19 pandemic
+-  Declarado desierto el concurso para potenciar el principal yacimiento de gas de Ecuador
+-  Sismo de magnitud 4.2 con epicentro en Chiapas
+-  প্রায় সাড়ে ৮৫ কোটি টাকায় বিক্রি হলো মেসির জার্সি
+-  Đêm giáng sinh này cùng thưởng lãm “Ánh trăng chốn tha hương” trên Gan Jing World
+-  ¡Tenía 26 años! Identifican al joven asesinado a golpes en Pericos, Mocorito
+-  Президентът: Светлината неизбежно побеждава мрака, стига да има хора с кураж
+-  Uros oli hehkutettu tähtiyhtiö, jonka tarina johti konkurssiin ja rikostutkintoihin: Nyt puhuu pesänhoitaja, jonka tiimi on käyttänyt projektiin jo 1500 tuntia, muttei ole läheskään valmis
+-  Parts of Johannesburg to be without electricity for 10 hours
+-  Darts-Star van Barneveld: Scheidung war Grund für Comeback
+-  Ekonomi ve siyaset gündemi - 15 Aralık 2023
+-  Bundesregierung genehmigt kaum Rüstungsexporte in die Türkei
+-  [주식카톡방 완전무료 선언” 파격결정
+-  [검찰, 정보유출한 삼성전자 전 부장에 구속영장
+-  طريقة مجانية لمتابعة مباراة الأهلي والاتحاد.. بدون إنترنت
+-  ¿Santi Lesmes practicó un deporte a nivel profesional? Esto fue lo que confesó en El Gran Chef Famosos: La Revancha
+-  Munawar Faruqui In BIG Trouble; Ayesha Khan Likely To Enter Bigg Boss 17 After 'Double-Dating' Claim
+-  Б.Энхбаяр: Нүүрсний жинхэнэ хулгайчид илчлэгдэнэ
+-  Merzļikinam 43 atvairījumi, Kolumbusa nenotur 5:0, tomēr spēj uzvarēt "Maple Leafs"
+-  Karnataka Assembly passes resolution to rename Belagavi, Hubballi, Shivamogga and Vijayapura airports
+-  จุดชมวิวดอยดำ เต็มไปด้วยขยะ ทิ้งเรี่ยราดไม่งามตา
+-  Kompany says Cup of Nations too soon for South Africa's Foster
+-  Instagram's New 'Backdrop' Tool Lets You Replace Image Backgrounds Using AI
+-  ¿Quedó flechada?: Katia Palma tuvo peculiar reacción mientras Giacomo dictaba la receta en El Gran Chef Famosos
+-  US regulator wants to mandate technology to clamp down on drink driving
+-  Nijjar killing: Amit Shah asks what India’s wanted terrorists are doing in Canada, rejects Justin Trudeau’s allegations
+-  Al Ittihad vs. Al Ahly EN VIVO vía DSports (DIRECTV) con Gallardo: dónde ver Mundial de Clubes
+-  VIDEO: Yahritza Martínez canta “La Guadalupana” y la tunden en redes
+-  Hilary Knight scores OT winner, United States beats Canada 3-2 in Rivalry Series
+-  Brightwater Center shares how it will spend $1.5 million grant
+-  “Bienvenido, espero que dures muy poco”: Javier le dedicó unas palabras a Santi Lesmes tras su llegada
+-  “安倍派ゼロ内閣”始動も…党内から辛辣な声「空気は重たいまま」「もう長くない」 岸田首相は政権継続へ強い意欲
+-  China crackdown on Hong Kong under spotlight as leading democrat Jimmy Lai goes on trial
+-  US identifies use of AI as risk in financial system
+-  Quy định mức phạt lỗi quá tốc độ theo từng mức độ, người dân cần lưu ý
