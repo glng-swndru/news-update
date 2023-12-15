@@ -1,11 +1,11 @@
 # Latest News
--  İyi Parti, Somali Büyükelçiliği'nin Kapısına Dayandı
--  Lira diz que Câmara votará reforma tributária nesta sexta-feira
--  Rakornas Gerindra Digelar Tertutup, Prabowo Beri Penjelasan soal Instruksi yang Disampaikan
--  ITV Emmerdale Zak Dingle star Steve Halliwell dies aged 77
--  PRINT: 'Cyber incident' cripples London Public Library systems
--  Her Gün Bir Kaşık Yemek Karaciğeri Güçlendiriyor! Yüzyılların Şifa Kaynağı Nasıl Yenmeli?
--  نادي سعودي يصارع باريس سان جيرمان على ضم كاسيميرو
--  "الأعلى في عام 2023".. انتهاء مزاد بيع قمصان ميسي مع الأرجنتين في كأس العالم
--  كيف استعد الأهلي لمواجهة اتحاد جدة في مونديال الأندية؟
--  من "جلابية" الزمالك لـ "جبس" الأهلي.. وليد الفراج رجل الآراء المثيرة ضد الأندية المصرية
+-  Allianz utworzył fundusz wart 610 mln USD na rzecz infrastruktury i edukacji
+-  Świąteczna lista życzeń
+-  Government welcomes rise in employment
+-  De tragische teloorgang van Paul Pogba: hoe de duurste voetballer ooit steeds verder afgleed
+-  Srbija u susret glasanju: Bitka pod izbornim obručima, Vučić VS opozicija
+-  Klart: Bardghji och Larsson missar januariturnén
+-  Kryeministri Kurti takoi ambasadorin francez, Guerot
+-  Janović: Đurović podmeće da je povećanje PDV-a odluka 44. Vlade
+-  Ukrainë, deputeti shpërthen një bombë dore në seancën e këshillit vendor, 26 të plagosur
+-  فوز الشرطة ونوروز وتعادل دهوك مع النفط بدوري نجوم العراق
