@@ -1,51 +1,51 @@
 # Latest News
--  Барои риоя накардани талаботи пардохти ғайринақдӣ то 1360 сомонӣ ҷарима таъин шуд
--  Yılın en iyisi! Geminid meteor yağmuru büyüledi
--  12 yaşında Manisa'dan İran'a kaçırıldı, 13 yaşında anne oldu: Afgan çobanın kaçırdığı Dönenur sonunda kurtarıldı!
--  Okey masasındaki kavgaları gündem olmuştu: O dedeler barıştı
--  Kırmızı bültenle aranan 2 yabancı uyruklu İstanbul'da gözaltına alındı
--  DSÖ'den elektronik sigara kullanımının kontrol altına alınması için acil eylem çağrısı
--  Soccerladuma | Insider: Billiat Didn't Want Chiefs First Time Around
--  OR takes the next step of its green and sustainability journey with tangible achievements through its unique SDGs ambition
--  프롬바이오, '눈의 정석 빌베리' 18일 네이버 쇼핑라이브 실시
--  مع انخفاض درجات الحرارة.. هذه أسرع طريقة لعلاج نزلات البرد
--  Pate deca sa autizmom i životinje: Kada ćemo bataliti vatromet i petarde?
--  Voormalig ‘drugshol’ wordt hotel met negentig kamers: buurt vreest voor komst migranten
--  24 dakika boyunca kalbi durduktan sonra hayata döndürülen kadın: İkinci hayatıma uyandım
--  Ölpreise legen weiter zu
--  Тошкентда 11-синф ўқувчиси мактаб ошхонасида «димавушка» тутатди. Ҳолат юзасидан терговга қадар суриштирув бошланди.
--  Руминия ўз ҳудудида дрон қулагани туфайли Россия элчисини чақиртирди.
--  Prioritise health sector, Ncube urged
--  টিআইবি বিএনপির শাখা হয়ে গেছে
--  Soixante ans de révolution numérique en graphiques
--  20 sugestões de perfumes para presentear no Natal
--  Horóscopo da semana do amor: previsões para os signos de 15 a 21 de dezembro de 2023
--  Oil Prices Rally On Bullish Forecast And Weaker Dollar, Set For First Weekly Gain In Two Months
--  Réchauffement climatique : les « éléphants » et « l'écureuil »
--  Erwan Boumard, plein d'énergie
--  How merging networking and security can avoid ‘chaos’ in enterprise
--  Threads: Meta’s social media expansion and challenges
--  Alpes-Maritimes: le conseil départemental va examiner plusieurs dossiers ce vendredi
--  Ukraine-Krieg: Einheit aus Russen kämpft gegen Putins Truppen
--  Haos u Iranu: Napadači upali u policijsku stanicu, ubili najmanje 11 osoba
--  Le « Pacte Marius », ou la stratégie durable jusqu'au-boutiste d'Alinea
--  Bà Rịa - Vũng Tàu sắp có hội chợ giới thiệu sản phẩm công nghiệp nông thôn với gần 200 gian hàng
--  টাকার সংকটে পাঁচ শরিয়াহভিত্তিক ব্যাংকের লেনদেন সেবা বন্ধের উপক্রম
--  Joulutulia jo 27 vuotta – tulet syttyvät taas tutussa supassa
--  কমিকের পর এবার বাস্তব চরিত্রে অমিতাভের নাতি
--  لك ولأصدقائك المقربين فقط.. ميزة رائعة من إنستغرام
--  विद्यासागर विश्वविद्यालय में साइबर सुरक्षा, एथिकल हैकिंग और आर्टिफिशियल इंटेलिजेंस पर अंतर्राष्ट्रीय संगोष्ठी
--  Dundee dealt bitter injury blow after Antonio Portales ruled out for extended period as Owen Beck remains doubt for Ross County clash
--  '무엇이든 물어보살' 서장훈, 세계 1위 IQ 204 고지능 사연자에 의심…“몇인데?”
--  휠라 키즈 "다양한 캐릭터 품은 ‘2024 신학기 책가방’ 출시"
--  하이트진로 "테라 신규 TV 광고 ‘청정 마스터’ 편 공개"
--  오비맥주 "이천시에 인재 육성 장학금 810만원 기탁"
--  현대차그룹, "2024 북미 올해의 차 수상 확정"
--  Blade Oyununa 2022 Yılında Başlanmış
--  고준호 경기도의원 "시내버스 공공관리제 시행 전 충분한 준비 필요"
--  Handelsoverskudd på 80,1 milliarder kroner i november
--  Tužni skup na „Rajku Mitiću“: Kako je Zvezda postala revijalni rival u Ligi šampiona?
--  «غاودي 3».. رقاقة ذكاء اصطناعي من «إنتل» لمنافسة «إنفيديا»
--  Mayor: Extinction Rebellion blockade of A10 ring road will completely disrupt Amsterdam
--  El fútbol contra el fútbol
--  Las mejores películas y series de Netflix, HBO, Disney y Amazon para ver esta Navidad
+-  כנעאן וממאטה ייכללו בסגל מ.ס. אשדוד, רוברטסון ייעדר
+-  שגרת האימונים המטורפת של הכוכבות הכי גדולות בעולם
+-  Đồng USD bị bán tháo sau tín hiệu chính sách tiền tệ trái chiều giữa Fed và ECB
+-  Onderzoek CdK Gelderland niet in februari, maar in juni klaar
+-  Gagal tunjuk pas kerja sah, 47 warga asing ditahan
+-  Hungary vetoes aid for Ukraine – Orban — RT World News
+-  10 best TVs under ₹15,000: Most affordable picks
+-  DEUTSCHE TELEKOM AG : UBS herhaalt koopadvies voor het aandeel
+-  UBS belässt Deutsche Telekom auf 'Buy' - Ziel 26,60 Euro
+-  מתי המחלה כבר לא מדבקת ומה עושים עם זיהום ויראלי? כל התשובות
+-  YAP İlham Əliyevin prezidentliyə namizədliyini irəli sürdü
+-  Gjashtë fanella të kapitenit të Argjentinës, Leo Messi nga Kupa e Botës 2022 shiten së bashku për 7 milionë euro
+-  유력한 손흥민 새 파트너였는데…공식 제안 없다! 브라이튼이 가로챌 준비
+-  OV7: ¡Qué triste es el segundo adiós!
+-  Top 7: 2023, un año de mucho facturar
+-  Todo queda en suspenso entre América y Tigres
+-  На Солнце произошла мощнейшая за шесть лет вспышка: чего ждать белорусам?
+-  Tata Nexon, Tigor & Tiago EVs available at year-end discounts of up to ₹2.6 lakh. Details
+-  AIR FRANCE-KLM : Een koopadvies van UBS
+-  UBS belässt Air France-KLM auf 'Buy' - Ziel 21 Euro
+-  Munich Re will Gewinn 2024 auf rund 5 Milliarden Euro steigern
+-  Zvijezda 'Pedeset nijansi sive': 'Moram odspavati barem 12 sati jer inače ne mogu funkcionirati'
+-  [15일 울진군] ‘2023년도 한울원전본부 아톰 공학 교실’ 시행 등
+-  Keresztféléves ügyintézés: így nézhetitek meg a pontszámaitokat
+-  Dutch court to rule on export of F-35 parts to Israel
+-  Top 10 TikTok Video Downloader Apps (for Android & PC)
+-  Julia Fox i rikthehet rrënjëve të saj dominuese, teksa u shfaq provokuese për një festë në New York
+-  Veli-Pekka Toivanen asui yli 20 vuotta Italiassa – Yksi asia Suomeen palatessa yllätti
+-  КПРФ рекомендовала кандидатов на выборы президента России
+-  When Pakistani Actress Nadia Jamil Opened Up About Being Sexually Abused As A Child
+-  अगले लोकसभा चुनाव में पुरुष मतदाताओं के साथ महिला मतदाता भी शामिल होंगी
+-  Morning Briefing International
+-  DWS : JP Morgan handhaaft koopadvies
+-  JPMorgan hebt Ziel für DWS auf 46,40 Euro - 'Overweight'
+-  Macarıstan bunu etdi: Aİ Putinin qalib gəldiyini bildirdi
+-  Support local: Visit 11 of these homegrown UAE cafés
+-  Riveriasta valmistuneet
+-  Emlak Katılım’a uluslararası 'Best Sukuk Arranger' ödülü
+-  Emlak Katılım ilk 2022 GRI Sürdürülebilirlik Raporu’nu yayınladı
+-  Keke Palmer's Ex Darius Jackson Posts About 'Saving Myself,' Being Baptized Following Domestic Violence Claims
+-  Venerdì 15 dicembre
+-  Godina s dubokim implikacijama za budućnost međunarodnih odnosa
+-  غضب في الفريق النسائي لمانشستر يونايتد بسبب كتيبة تين هاغ
+-  "Venezuela ve Guyana, Esequibo gerilimini güç kullanmadan çözecek
+-  AB'nin Ukrayna'ya 54 milyar avroluk yardım paketi Macaristan tarafından veto edildi
+-  Merkez Bankası'ndan yeni KKM hamlesi
+-  Demokrat Senatör Warren, Zuckerberg'ten Filistin sansürü hakkında açıklama istedi
+-  3 bin 655 aday başvuru yaptı! YDUS 2. Dönem pazar günü düzenlenecek
+-  "Atamalı memur mu atıyorsunuz" diyen aday adayı CHP'den istifa etti
+-  [15일 김해시] 전국체전 대비 김해맛집 지정식 개최 등
