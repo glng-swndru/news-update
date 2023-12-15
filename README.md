@@ -1,11 +1,11 @@
 # Latest News
--  Вучич влиза в последното действие от властта си в Сърбия, което ще покаже как ще бъде запомнен
--  Mickie James Wants A Match With Rhea Ripley
--  Trader Joe's discontinues festive seasonal treat: 'This is devastating!'
--  "Es geht um unsere Gesundheit": Vinzenz Geiger bekommt sich nach Fast-Sturz nicht mehr ein
--  Netherlands drops objection to Bulgaria's accession to the Schengen area
--  نداءٌ من وزارة الإتصالات.. انتبهوا لهذا الأمر!
--  «Кровавая дюжина»: появились подробности смерти офицеров НАТО в бункере Староконстантиновки
--  ZeC denuncia “la parálisis” en la adjudicación de 36 viviendas de la Jota tras un año terminadas
--  Selecting a collar and leash that is the correct size for your pet
--  Szijjártó Péter: az EU olyan elvi döntést hozott Ukrajnáról, aminek gyakorlati jelentősége nincs (videó)
+-  تقييم بنزيما في الشوط الأول أمام الأهلي المصري
+-  Wake County breaks ground on $117M public health campus
+-  Projects in Kintyre and Gigha benefit from windfarm funding
+-  Cameroun :: Bryan Mbeumo Forfait Pour La Can 2023 : Les Lions Indomptables Privés D'un Atout Majeur :: Cameroon
+-  Journalist Associations express concern over tax ruling's impact on Finnish media
+-  Pronađeni britanski tinejdžer se najkasnije preksutra vraća u Veliku Britaniju; godinama je živio u nomadskoj komuni
+-  EN VIDEO: Así fue como un Tesla Cybertruck humilló a un Lamborghini en una carrera de resistencia
+-  Study reveals COVID-19's impact on Alzheimer's patients through olfactory mucosa alterations
+-  Þessi leikmaður Liverpool vakti sérstaklega mikla athygli í gær – Myndband
+-  La Ferté-sous-Jouarre :ce restaurant franco-portugais propose des plats typiques à emporter
