@@ -1,51 +1,51 @@
 # Latest News
--  भारत को किराए की कोख का कारोबार नहीं बनने देंगे:सरोगेसी डोनर बैन पर दिल्ली हाईकोर्ट बोला-अंगदान की परमिशन दी तो आधे गरीब किडनी-लिवर खो देंगे
--  La primera píldora contra la depresión posparto ya está disponible en EE.UU., dicen fabricantes
--  Blero vendos të largohet vullnetarisht nga Big Brother VIP Kosova 2
--  تدفق طالبي اللجوء إلى فنلندا من روسيا قبل إعادة إغلاق الحدود
--  İzmir'de suç örgütü lideri tutuklandı. Kendisine emniyet mensubu süsü vermiş
--  Breaking barriers: hihilulu’s unique approach to global language acquisition with AI
--  '4 estrellas'
--  Big Trouble in Little Delaware
--  Pentagon leaders head to Israel as US urges caution in Gaza
--  Mundo Pixar llega a México: Un viaje al universo de ‘Toy Story’, ‘Coco’, ‘Up’ y mucho más
--  ‘벨링엄 형제, 한 팀에서 뛰나’…레알이 동생까지 싹쓸이 영입 고려
--  Izrael prvi put od početka rata upozorio stanovnike Libanona: 'Hezbolah je stvarna opasnost'
--  CGI files 2023 Annual Disclosure Documents
--  ‘SEAL Team’ Adds Dylan Walsh As Recurring For 7th & Final Season
--  Сийярто опроверг сообщения о том, что Шольц предложил Орбану выйти за кофе
+-  İzmir'de suç örgütü lideri İnanç Meçul tutuklandı
+-  Bursa'da otomobil 7 metre yükseklikten dereye uçtu! 4 yaralı
+-  Pjevačica po prvi put izašla u javnost sa INFORMACIJAMA
+-  TFF Başkanı Büyükekşi ile görüşen hakemler maçlara çıkma kararı aldı
+-  Emery warns surging Villa to ignore title talk
+-  فابينيو: فرطنا في الفرص ولم نقدم أفضل ما لدينا
+-  Attempt to frame Russia for Polish plane crash based on ‘lies’ – Warsaw — RT World News
+-  الدوري الإنجليزي: توتنهام يسقط مضيفه نوتنغهام بثنائية
+-  Postecoglou hails Spurs composure against Forest
+-  Μεικτά πρόσημα στη Wall Street
+-  Morant ready for NBA return after ‘horrible days’ of 25-game ban
+-  The English woodland theme park with light trails, pantomimes and free gifts for kids
+-  Роналдо влезе во бизнис вреден 40 милиони долари кој ќе ја размрда конкуренцијата
+-  المهر «حامد صارم» نجم ثالث أيام العرض الدولي لجمال الخيل
+-  '더 타임스', 올해 스포츠계 파워 10인에 '페이커' 선정
+-  '106패의 충격' 조용하게 전력 다지는 KC…'88승 & 177홈런' 김하성-오타니 前 동료 품었다, 5명 영입→1369억 투자
+-  مهاجم اتحاد جدة: لم نقدم أفضل ما لدينا أمام الأهلي.. وعلينا الاعتذار لجماهيرنا
+-  One person dies in a fire in Lanaudière
+-  ‘내 아들 장하네’… ‘바람의 가족’ 이정후-이종범, 오라클파크 땅을 밟다
+-  Tiger makes pro-am walk ahead of title hunt with son Charlie
+-  [스한:시청률] '마이 데몬' 김유정, 가짜뉴스 탓에 위기…4.5% 기록
+-  Brave lad, 10, born without an arm can pull a cracker with his grandma after being fitted with new bionic limb
+-  بطرابلس وغدامس ومصراتة.. قوات حكومة دبيبة تواصل انتهاكاتها ضد المدنيين دون رادع
+-  Caso Metástasis: Wilman Terán será procesado por delincuencia organizada
+-  حسام موافي يوضح أسباب وأعراض فشل عضلة القلب
+-  أثناء اللعب وسط "البوص".. مصرع طفل حرقًا في أسيوط
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Memur emeklisi için yüzde 50 civarında artış olacak
+-  한국타이어 경영권 다툼은 현재진행형...사모펀드 공개매수가 20% 상향
+-  Senior cardinal awaiting verdict in Vatican trial
+-  «Escribo libros pensando en cómo serán las películas»
+-  Los sonidos de la Navidad conquistan el Revellín y lo inundan de alegría y felicidad
 -  Canucks acquire defenceman Cicek, 2024 pick from Sharks for centre Studnicka
--  Ove godine naslušali ste se kako klima propada. Ovih 9 prijelomnih događaja budi nadu u preokret
--  Ja Morant found therapy, self-reflection ‘very eye-opening’ during suspension
--  Laser communication: the future of communicating in space
--  Europa ha roto el pacto
--  AFC-leading Ravens begin tough stretch against division leaders with prime-time matchup at Jaguars
--  Xuxa se recusa a atender pedido de fã em porta de evento: 'Manda beijo para a galera'
--  Cardinal, nine other defendants, await verdicts at Vatican trial
--  Israeli military says it mistakenly killed 3 Israeli hostages in battle-torn part of Gaza
--  Están inconformes con la elección del nuevo rector: Trabajadores de la UAdeO toman el campus Culiacán
--  Casa Wabi celebra una década de creación artística
--  Arrestan a novia de Tekashi 6ix9ine por violencia
--  Matan a hombre a balazos dentro de vivienda en Juárez
--  Es Tren Maya simulación, despilfarro y ecocidio, dice PAN
--  Golpeó y amenazó de muerte a su esposa con un arma blanca
--  Emite la CEDH 5 recomendaciones contra elementos de la Policía y Tránsito Municipal de Mazatlán
--  देश की सभी अदालतों में 5 करोड़ केस पेंडिंग:कानूनमंत्री लोकसभा में बोले- सुप्रीम कोर्ट में 80 हजार, हाईकोर्ट्स में 61 लाख से ज्यादा मामले
--  Lenia Batres, una mujer de auténtica izquierda que refrescará a la SCJN: Monreal
--  Resumen Al-Hilal 2-0 Al Wehda | Jornada 17 Liga Saudí
--  Ex-Trump lawyer Rudy Giuliani told to pay $220m over false allegations against election workers
--  HSC Winnipeg launches new acute stroke unit for enhanced care after strokes.
--  Gérard Depardieu: dans quels cas une Légion d'honneur peut-elle être retirée?
--  Crítica A Fuga das Galinhas 2 | Filme é uma crítica social com gosto de infância
--  Las elecciones en Boca Juniors se harán este domingo y más de 13.000 socios votarán en urnas separadas
--  À deriva, maior iceberg do mundo pesa quase 1 trilhão de toneladas
--  CNT : les conseillers nationaux adoptent trois (3) importants accords de financement et de coopération
--  Mandala Shoji Bakal Tuntut Rp 100 M Imbas Hotel di Pontianak Paksa Check-Out
--  Arteta: Brighton Bisa Menyusahkan Arsenal
--  Impor RI dari Israel Anjlok di Tengah Seruan Boikot
--  ¡Súmate! Cruz Roja Guasave convoca a donar juguetes y cobijas para las familias más necesitadas
--  La metáfora
--  Putinin johtama neuvosto: Haltiat ovat vakava uhka Venäjälle
--  Man gets rider for soliciting sexual contact from teens 6 years ago
--  Wildlife conservation groups sue over lack of plan for railroad to reduce grizzly deaths in Montana
--  #apple fixed the #iphone’s Flipper Zero problem
+-  [속보] 한미, 내년 중반까지 핵전략 기획운용 가이드라인 수립
+-  한미, 내년 중반까지 핵전략 기획운용 가이드라인 수립
+-  [PC방] 12월 3주, 드래곤 플라이트·노량 함께 즐긴다…라인게임즈 외 4가지 게임
+-  [오늘날씨] 주말 전국 영하권 추위…서쪽 중심 많은 눈 내려
+-  자담치킨, 워터밤 '권은비'와 함께 … 맵슐랭콤보&피자 새로운 맛 소개
+-  El Covirán pone a prueba la racha ante su 'bestia'
+-  Miretti, prestazione da dimenticare
+-  Juventus miss out on top spot after Genoa draw
+-  La comisión de honores valora dedicar una calle de Beiro al concejal José María Corpas
+-  Las camareras de la Virgen de las Penas le regalan su primer manto de vistas
+-  A prisión siete de los 20 detenidos en una redada contra una banda armada en Granada
+-  «Γκέλα» της Γιουβέντους στη Γένοβα
+-  Vecinos del Centro 'estallan' por el exceso de ruido y la masiva ocupación de la vía pública
+-  Greenstars FC post big win in opener
+-  Pellegatti: "Ci sono delle responsabilità sugli infortuni, ma che rimpianti..."
+-  Nueva York adeuda 130 millones a hoteles donde la ciudad ha alojado a los inmigrantes
+-  بريطانيا: قتال عنيف القوات الأوكرانية والروسية حول بلدة مارينكا
+-  Jorge Montoya anuncia moción de censura contra presidente del Congreso por aplazar debate contra la JNJ
