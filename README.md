@@ -1,11 +1,11 @@
 # Latest News
--  TOFAŞ'dan üretim açıklaması
--  Konut satışları yüzde 20 azaldı
--  Ücretli çalışan sayısı arttı
--  Konut satışlarında kasım ayında büyük düşüş
--  Araç sahipleri dikkat: Trafik sigortasındaki prim artış oranını yükseltildi
--  Borsa güne yükselişle başladı
--  Fenerbahçe son 16'da: İşte muhtemel rakipler
--  Vier dode wolven in de regio binnen twee weken
--  구리시, 새마을과 함께하는 제2회 소통 간담회 개최
--  의왕시, ‘2024 대입 정시전략 설명회’ 성료
+-  Ven. Jeongkwan brings essence of Korean cuisine to New York
+-  Korea secures over 6-month stockpile of urea amid supply concerns
+-  Hate speech
+-  Samsung, ASML forge advanced chip manufacturing partnership
+-  Diplomats of S. Korea, US discuss NK spy satellite, human rights
+-  ​Saint-Louis : mise à niveau des observatoires territoriaux sur le secteur extractif
+-  의정부시 어린이집연합회 국공립‧직장‧법인‧단체분과, 사랑릴레이 성금 2천500만 원 기부
+-  진도군, 전라남도 위생업무 종합평가 우수기관 선정
+-  Nearly 150 arrested for vandalizing metro, other incidents around Ajax-AEK Athens match
+-  غلط فیصلے دینے والوں کو کب سزائیں دی جائینگی، فیصل واوڈا
