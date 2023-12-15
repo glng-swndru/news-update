@@ -1,11 +1,11 @@
 # Latest News
--  عاجل.. "الأرصاد" يُحذر من ضباب وشبورة على هذه المناطق لـ 8 صباحًا
--  بالصور.. تفاصيل حادث القصيم المروري
--  Skrivanje domene sve je popularnija metoda među cyber kriminalcima
--  Lula e Haddad perdem queda de braço com Congresso, que derruba 13 vetos presidenciais
--  Missing boy found in France to return to UK: police
--  DA: “Lie-sufi’s Crime Prevention Wardens, a dangerous PR stunt”
--  Abanyamideli baserukanye imyambaro idasanzwe mu iserukiramuco ry’indabo – AMAFOTO
--  Nueva York adeuda 130 millones a los hoteles donde la ciudad ha alojado a los inmigrantes
--  ECP issues election schedule for Feb 8 general polls
--  Fife Council to close some recycling centres this weekend
+-  Valon Bela: Një grup themeluesish unanimisht largohemi nga PDE, ja arsyet
+-  Anuncian cambio de rutas por caravana Coca-Cola
+-  Pablo Tigani cuenta en Diario Registrado cómo fue el Plan Quinquenal de Juan Domingo Perón
+-  Auraiya News: एक्सप्रेसवे पर हादसा, दो घायल
+-  Auraiya News: फफूंद माइटी लायंस एवं दिबियापुर सुपर पावर की टीमें जीतीं
+-  Auraiya News: औरैया को मिलेगा 7वां जेआरडी मेमोरियल अवार्ड
+-  Auraiya News: जीजा और उसके साथी पर सामूहिक दुष्कर्म का आरोप
+-  Auraiya News: खाद, पानी और बिजली की समस्या करें दूर
+-  Balrampur News: प्राइज मनी हॉकी टूर्नामेंट में भिड़ेेंगी देश की 14 नामचीन टीमें
+-  Balrampur News: कपड़े की दुकान में आग से लाखों का सामान खाक
