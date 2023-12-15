@@ -1,11 +1,11 @@
 # Latest News
--  Ven. Jeongkwan brings essence of Korean cuisine to New York
--  Korea secures over 6-month stockpile of urea amid supply concerns
--  Hate speech
--  Samsung, ASML forge advanced chip manufacturing partnership
--  Diplomats of S. Korea, US discuss NK spy satellite, human rights
--  ​Saint-Louis : mise à niveau des observatoires territoriaux sur le secteur extractif
--  의정부시 어린이집연합회 국공립‧직장‧법인‧단체분과, 사랑릴레이 성금 2천500만 원 기부
--  진도군, 전라남도 위생업무 종합평가 우수기관 선정
--  Nearly 150 arrested for vandalizing metro, other incidents around Ajax-AEK Athens match
--  غلط فیصلے دینے والوں کو کب سزائیں دی جائینگی، فیصل واوڈا
+-  가수 인순이 설립 홍천 ‘해밀학교’, 구글 레퍼런스 스쿨 인증
+-  Kriti Sanon Radiates Golden Glamour on the Cover of HELLO! India’s December Issue
+-  Türkiye genelinde Kasım ayında 93 bin 514 konut satıldı
+-  김포시, 골드라인 증차사업비 국비지원 확정
+-  민주, '고문치사 가담' 정의찬에 공천심사 부적격 판정
+-  정의당 "전국위, 류호정 의원직 사퇴 촉구 결의안 만장일치 채택"
+-  ЕТТБ Марказий Осиёда ёшлар бизнесини ривожлантиришга 200 млн евро ажратади.
+-  Берлинда ҲАМАС гуруҳи аъзолари қўлга олинди.
+-  Московское отделение КПРФ рекомендовало выдвинуть Зюганова и Левченко на выборы
+-  ЦСКА инвестира сериозно в базата “Панчарево”
