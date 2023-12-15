@@ -1,51 +1,51 @@
 # Latest News
--  باراخا : املاح جاهز
--  Katie Couric, 66, shares rare makeup-free photo as she opens up about suffering from eczema: 'I can't believe I let my team post this picture!'
--  ‘I had a bit of malaria, mingled with stress,’ Akpabio reacts to reports of collapse at birthday colloquium
--  Концерт на дуо Кировски во НОБ
--  COP28 traz avanços, mas crise climática exige medidas mais duras
--  Prezydent podpisał ustawę o refundacji in vitro z budżetu
--  چیف جسٹس قاضی فائز عیسیٰ رخصت پر، قائم مقام کون؟
--  Експлозивен старт на следното издание на EXIT фестивалот! Black Eyed Peas, Gucci Mane, Tom Morello, Carl Cox и Bonobo ги предводат првите 24 имиња за EXIT 2024
--  Γάζα: Νεκρός εικονολήπτης του Al Jazeera από ισραηλινή επιδρομή στη Χαν Γιουνίς
--  Mavuta, Masakadza, Muzarabani efforts in vain as Zimbabwe go down to Ireland
--  ‘Below Deck’ Couple Charged in Prescription Drug Scheme: Who Are Dr. Francis Martinis and Jessica Martinis?
--  Fenerbahçe'nin yeni antrenörü galibiyetle siftah yaptı!
--  Önce yaraladı sonra tedavisine izin vermedi: İsrail'in vurduğu kameraman öldü
--  Kassam Tugayları, İsrail tanklarını tek tek avlıyor! Yeni görüntüler yayımlandı
--  Lise bahçesinde oluşan 5 metre derinliğindeki obruğa hafriyat kamyonu düştü
--  Irak'ta güvenlik güçleri ve iç göçmenler sandık başına gidecek
--  AK Partili İnan: 25 senedir CHP'li belediyecilik anlayışıyla yönetilen İzmir'de şehircilik çöktü
--  Yemen'den Gazze'ye destek: On binler katıldı
--  İsmail Kartal'dan taraftara mesaj!
--  'Democracy under threat': Americans agree that the 2024 election will be pivotal
--  وعد خاص من فيصل الغامدي لجماهير الاتحاد بعد الخسارة أمام الأهلي
--  Grantchester's Robson Green, 58, says he's returning for the show's eighth series to be 'genuinely happy' in the 'last third' of his life as he's reunited with a VERY familiar guest star
--  Istekao rok za preregistraciju vozila na RKS tablice
--  하이키, 예쁨이 뚝뚝
--  EE.UU. saluda «disposición» de María Corina Machado a apelar inhabilitación ante el TSJ
--  판타지보이즈, 비주얼이 판타지
--  HM félagsliða: Man City mætir Urawa Reds í undanúrslitum
--  الاتحاد الدولي لحفظ الطبيعة يكرم هيئة تطوير محمية الملك سلمان
--  تقييم فابينيو في خسارة الاتحاد أمام الأهلي
--  Peng Liyuan visits Vietnam National University and National Women's Museum, Hanoi
--  Tow truck drivers and community members knocked down at Tongaat accident scene suffer broken bones
--  New law will allow Mchunu to intervene in municipalities failing to address decline of water services
--  Feyenoord se frota las manos: Santiago Giménez es el mexicano más valioso de la historia
--  I'm A Celeb's Danielle Harold 'snubs' Pete Wicks after pair cosied up at wrap party
--  MIROSLAV ILIĆ PREKINUO KONCERT U ARENI! Par ljudi mu je odmah prišlo - Nije bilo u planu, morao sam da zastanem! (VIDEO)
--  VIDEO Surpriza din finala de la Vocea României: Manelistul Adi Minune a urcat pe scenă și a cântat cu unul dintre concurenți
--  Trucos caseros para quitar etiquetas de frascos de vidrio y reutilizar con estilo
--  Besökare välte antik byst på Medelhavsmuseet
--  Médico suspeito de causar 42 mortes é preso em hospital em SP
--  حركة حماس تعلن ارتفاع عدد ضحايا القصف الإسرائيلي على غزة إلى 18.800 شهيد
--  Gary Oldman Says ‘Thank God’ for ‘Harry Potter’ and ‘Dark Knight’ Movies Because ‘They Saved Me’
--  Christophe Galtier : un an de prison avec sursis requis contre l'entraîneur
--  Elle enseigne pendant 20 ans sans diplôme, voici ce que la justice a décidé
--  Çanakkale'yi sağanak vurdu: Dereler taştı, sokaklar sular altında kaldı
--  Israeli army says it mistakenly shot and killed three hostages
--  Val-d'Oise : un homme retrouvé nu et hospitalisé en urgence après avoir été agressé à Goussainville
--  معلق مباراة فالنسيا وبرشلونة
--  Abate Guardia de Tamaulipas a 4 pistoleros
--  Naisleijonat jatkaa Ruotsin EHT-turnauksessa voitokkaasti – vaikea Tshekki kukistui maalilla
--  Cena złota zanotowała serię tygodniowych wzrostów. Notowania złota spadły podczas piątkowej sesji
+-  To litauere i kritisk tilstand efter færdselsuheld nær Nykøbing Falster
+-  Tres pueblos unidos en torno a un belén viviente
+-  Anna ‘Chickadee’ Cardwell’s husband recalls her final breath: ‘Everyone was crying and freaking out’
+-  Valdet Xhaferi heq dorë nga pozita e drejtorit për përkushtim më të madh në Degën e BDI-së në Gostivar
+-  Halley’s Comet is finally heading back towards the sun
+-  Vaga de frio assola a Ásia: neve e gelo encerram escolas na China
+-  Audi-Fahrer gerät auf B469 ins Rutschen
+-  남성 육아휴직이 합계출산율 높인다?[노컷체크]
+-  Bild заявив про плани РФ захопити Харків, Запоріжжя і Дніпро: в ГУР оцінили шанси
+-  గవర్నర్‌తో అబద్ధాలు మాట్లాడించారు
+-  Получивший порез шеи хоккеист Люлько избежал серьёзных травм
+-  El Lenovo Tenerife muestra su cara más navideña con su primer villancico original
+-  Inicia construcción de nuevo edificio de Cruz Roja de Cuauhtémoc
+-  Dice Samuel que puede hacer precampaña con Mariana
+-  Lanza Timberlake indirecta a Britney en show de Las Vegas
+-  Måltavle gik i ged på afgørende tidspunkt: Det var belastende
+-  Convocan a 'Abriendo las Puertas 2024' para artistas visuales, escultores y creadores
+-  Måltavle gik i ged på afgørende tidspunkt: Det var belastende
+-  Digitalno-duhovno hodočašće: Međugorje IT kongres – ITM od 7. do 10. ožujka 2024.
+-  Chiefs' Isiah Pacheco ruled out again after 'a cleanup' surgery on his ailing shoulder
+-  Man found dead next to power poles during thunderstorm
+-  Man found dead next to power poles during thunderstorm
+-  İşgalci İsrail ile ticaret yüzde 48 azaldı: Bakan Bolat rakamları tek tek açıkladı
+-  30 metrelik uçurumdan yuvarlan hafriyat kamyonunun şoförü yaralandı
+-  إيمان كريم تهنئ فريق كرة الهدف للمكفوفين للتأهل إلى بارالمبياد باريس
+-  Ángel Cristo Jr se ríe al preguntarle si dejará que Bárbara Rey disfrute de su nieta en Navidad
+-  تعرف على عقوبة تقديم بيانات غير صحيحة للقيد فى السجل التجارى
+-  U pucnjavi u Podgorici povrijeđen strani državljanin
+-  خالد البلشى يطالب بفتح تحقيق دولي في استهداف الصحفيين الفلسطينيين
+-  الخارجية الأردنية: استهداف الصحفيين محاولة لطمس الواقع
+-  كانت ملكة جمال.. أب فلسطيني يودع ابنته بعد استشهادها "فيديو وصور"
+-  تفاصيل قتل الاحتلال الإسرائيلى 3 رهائن بالخطأ بمنطقة الشجاعية فى غزة
+-  رئيس المركز القومى للسينما ينعى المخرج أحمد البدرى
+-  إصابة بشرى بالتواء بقدمها فى مهرجان الجونة وتدعم فلسطين بالعلم وعلامة النصر
+-  مهرجان القاهرة الدولى للفيلم القصير يكرم تهانى راشد وصفى الدين محمود
+-  بشرى وأحمد حاتم ونور النبوى فى عرض فيلم "الأستاذ" بمهرجان الجونة
+-  Asumieron las nuevas autoridades de la Policía de Córdoba
+-  నా కోసం ట్రాఫిక్‌ ఆపొద్దు
+-  Proposta do OE são-tomense para 2024 ronda os 178 milhões de euros
+-  Euroleague: Νικηφόρο το ντεμπούτο του Γιασικεβίτσιους στη Φενερμπαχτσέ
+-  الشحات: قدرات الأهلي تظهر في المباريات الكبيرة وأهنئ الجماهير
+-  Albania returns 20 stolen icons to neighboring North Macedonia
+-  Śladem Brauna zaatakowali chanukowy świecznik. Sprawcy obrzydliwego czynu w rękach policji
+-  Managers have ‘huge duty’ to behave well, says Arteta
+-  오늘의 날씨 - 오전 (2023년 12월 16일)
+-  Ermənistan Hindistandan bu raket sistemlərini alacaq
+-  وزير الخارجية يبحث مع نظيره النرويجي الأوضاع في غزة
+-  Speaker Greg Fergus Says He Made ‘A Serious Mistake,’ Apologizes Again for Video
+-  Mondial des clubs: Urawa et Al Ahly vont en demi-finale
+-  Couple Sees Mountain Lion Cross Road in Upper Township
