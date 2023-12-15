@@ -1,11 +1,51 @@
 # Latest News
--  דני פרנקו: "להבא נצטרך לדעת לגמור משחקים מהסוג הזה"
--  İstanbul'da cuma akşamı trafiği: Yollar kilitlendi yoğunluk yüzde 80'e çıktı
--  الخارجية القطرية: وقف إطلاق النار في غزة لا يزال مسألة خلافية داخل المجتمع الدولي
--  قتلوهم وسط الشارع.. 4 قرارات عاجلة من النيابة بشأن واقعة "خرطوش شبرا الخيمة"
--  جيش الاحتلال: ندفع ثمنًا باهظًا من الدماء لتحقيق أهدافنا في غزة
--  "متجيش جمبها تاني".. أرملة الإبراشي تتنازل عن بلاغها ضد سيدة شرعت في قتلها بأكتوبر
--  الحظ السعيد يطرق أبواب 4 أبراج نسائية في عام 2024
--  "فلسطين في القلب".. أمسية شعرية غنائية بالقومي للمسرح يشارك بها محمد بهجت
--  تشكيل الاتحاد لمواجهة الأهلي في كأس العالم للأندية
--  منافس مانشستر سيتي.. أوراوا يفوز على ليون ويتأهل لنصف نهائي كأس العالم
+-  টি-টেনে ঝুঁকছে ভারত–পাকিস্তানও
+-  How Poor Things’ steampunk world of mutant animals and liquid skies came to life
+-  JIM SPENCE: Huge Dundee United v Raith Rovers clash proves Championships needs two automatic promotion spots
+-  kal Ka Kark Rashifal: कर्क राशि वाले आर्थिक मामलों में सोच समझकर निर्णय लें, पढ़ें अपना राशिफल
+-  Six Limerick teams in AIL action this weekend in the last round of fixtures before Christmas
+-  Thierry Ardisson remet le couvert pour les 20 ans de « 93, faubourg Saint-Honoré » sur Paris Première
+-  Lagarde rejeita modo ‘pomba’ e garante que BCE vai manter a vigilância
+-  وزير الخارجية يبحث خطوات وقف إطلاق النار في غزة مع نظيره النرويجي
+-  Σκρέκας: Τα πρόστιμα για αισχροκέρδεια βεβαιώνονται και εισπράττονται
+-  Najbolji povrtar je Vojo Tošović iz Radaljeva kod Ivanjice: "Moja deca su drugačije vaspitana, nadam se da su ponosni"
+-  Один погибший и четверо травмированы в аварии КамАЗа и легкового авто
+-  Frisch verliebt: Er ist der Mann an Eva Benetatous Seite!
+-  David Summers se niega a cambiar la letra de ‘Devuelveme a mi chica’
+-  Вологжанка взяла бронзу на юниорских соревнованиях по лыжным гонкам
+-  Herido un conductor en una colisión en la AG-64 en Xermade
+-  Von Staatsanwalt „gekauft“? Reemtsma-Entführer will Verteidiger feuern
+-  القضاة بنش والسعدي وباوجيه يتقدمون بالشكر إلى وكيل محافظة أبين
+-  Yailin salió de la cárcel: equipo legal pagó mil dólares para liberarla y será trasladada a República Dominicana
+-  OGLASILI SE ADVOKATI VANJINOG UBICE Otkriveno koliko dugo Palevski može da ostane u pritvoru u Turskoj pre izručenja
+-  ‘Modrić je genijalac, jedini uz njega je tako upravljao utakmicom i Gerrard’
+-  Patient died after being discharged from Tayside hospital while suffering pancreatitis
+-  Incineran en Coahuila más de 400 kilos de droga
+-  슈어저, 허리디스크 치료 수술로 여까지 등판 불가
+-  الكشف عن سر استبعاد غروهي من قمة الاتحاد والأهلي
+-  Accidente en la carretera Arequipa-Puno cobra seis vidas
+-  Saudijci ozbiljno zagrizli za Rafale: Potrošili bi milijarde, iza cijele priče krije se intrigantni zaokret
+-  আয় কমলেও মাহাবুব আরার সম্পদ বেড়েছে আড়াই গুণের বেশি
+-  Hombre en Pasto mató a la mascota de su expareja, porque ella se negó a volver a casa
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Enflasyon 2026'da tek haneli olacak
+-  Harrys Kreuzzug gegen die Paparazzi: Der Druck wächst
+-  Harrys Kreuzzug gegen die Paparazzi: Der Druck wächst
+-  أفضل لاعب في مباراة الهلال والوحدة
+-  Telemundo’s EVP of Sports Eli Velazquez: U.S. Spanish-Language Sports Fans are Driving an Increasing Percentage of Total Video Consumption
+-  صور.. فريق ريال مدريد خلال الغداء الجماعي للنادي
+-  بطاقة اليانصيب بـ 8000 ليرة.. ولا يمكن معرفة الورقة الرابحة
+-  Reviewing the state of research into 2D noble metal-based intermetallic compound electrocatalysts
+-  VANA TUŽILA &quot;DOSTA JE BILO&quot;! Pokrenut postupak zbog ČUVENOG HITA! Oglasila se advokatska kancelarija hrvatske pevačice (VIDEO)
+-  В Северной Осетии возбудили дело после стрельбы на свадьбе
+-  Nema rasta sociјale, više novca za dјecu i trudnice
+-  Chargers fire coach Brandon Staley, GM Tom Telesco after brutal loss to Raiders
+-  ¿'Volver al futuro 4'? Lanzan tráiler hecho con IA y encienden las redes
+-  Lovćen ostao bez trenera - Kasom podnio ostavku
+-  Özlem Cekic har været på skoleturné om konflikten i Mellemøsten – og det sidste spørgsmål fra en vred elev gjorde ekstra stort indtryk
+-  Özlem Cekic har været på skoleturné om konflikten i Mellemøsten – og det sidste spørgsmål fra en vred elev gjorde ekstra stort indtryk
+-  Saint + Goldie to Bring Curated Offerings to Marietta
+-  Grupo Andino logró ingreso al mercado bursátil europeo
+-  В Соликамске завершили ремонтные работы после коммунальной аварии
+-  Inšpektorat za delo popravlja podatke: Elektronsko evidenco morajo voditi trije kršitelji, ne 25
+-  VIDEO: Transforman un avión abandonado en un acantilado en un hotel de lujo en Bali
+-  Jødisk formand er »helt oppe på dupperne« efter stor politiaktion: »Utrygheden er forstærket«
