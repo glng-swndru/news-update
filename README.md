@@ -1,11 +1,11 @@
 # Latest News
--  Biden, Turkey’s Erdogan discuss Gaza war, Sweden’s NATO bid
--  Cyprus expects €1 billion issuance to cover majority of financial needs for 2024
--  Residents outraged as mouflon statue desecrated
--  "التعاون الإسلامي" تدين المجزرة البشعة لقوات الاحتلال في "جنين"
--  خطيب المسجد الحرام: هذه صفات المتقين وهذا موعود الله لهم (فيديو)
--  Turkish Cypriot police arrest 74 over ‘fake prescriptions’
--  Nepal should be developed as &#039;educational hub&#039;: Minister Gurung
--  Hong Kong offers awards for arrests of activists abroad for breaching national security law
--  'I would love to get to do more': Hayden Christensen eyes future Star Wars projects
--  Timothee Chalamet is clueless about scrapped Barbie cameo
+-  Ein flämischer Kaltblüter sorgt erstmals für Furchen zur Eichelsaat im Alzenauer Stadtwald
+-  Massive Baumfällungen in Wasserschutzzone am Obereichholz
+-  Chất chơi như "anh Bâus" Andree: Đeo toàn đồng hồ tiền tỷ trên tay, chiếc đắt nhất giá 3 tỷ đồng
+-  Sơn lại nhà mất bao lâu? Cuối năm nhiều người dự định thực hiện nhưng vẫn chưa biết câu trả lời
+-  Lâm Tâm Như hé lộ màn cầu hôn của Hoắc Kiến Hoa: Lên ý tưởng lãng mạn nhưng vợ lại tưởng nhà bị cháy
+-  5 phim Việt có doanh thu cao nhất phòng vé năm 2023, vượt ngưỡng 100 tỷ đồng
+-  23 năm không thể có thai tự nhiên, người phụ nữ bất ngờ khi biết nguyên nhân liên quan đến cách vệ sinh "vùng kín" của mình
+-  El Real Zaragoza abrirá su nueva tienda en calle Alfonso el próximo miércoles
+-  Schock-Werners Adventskalender: Die Parkanlage am Kaiser-Wilhelm-Ring in Köln versprüht urbanes Flair
+-  Société civile-Justice : I Watch appelle à combler les postes vacants
