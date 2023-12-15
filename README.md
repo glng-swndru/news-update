@@ -1,51 +1,11 @@
 # Latest News
--  Komplize Wandteppich und die NS-Vergangenheit zweier Schulnamensgeber im Kreis Miltenberg
--  Nuovo Modello ISEE 2024, cambiano regole e DSU
--  عريضة لعاملين في الهاشمية: تخبط إداري وواقع وخيم ينتظر الجامعة
--  It-triq tal-Barrani magħluqa għat-traffiku wara ħabta bejn żewġ karozzi
--  Aprehenden a un hombre por homicidio en Tocumen
--  Vrau një të burgosur dhe plagosi një tjetër, Sokol Mjacaj dyshohet se është paguar nga jashtë
--  الذهب يتجه لتحقيق مكاسب أسبوعية
--  Netflix Games Will Have '86 Games Available' By The End of 2023
--  Imniedi l-programm kulturali ta’ attivitajiet għas-sena d-dieħla minn Festivals Malta
--  أبي خليل: التيار باقٍ على اختلافه مع المنظومة لو بقي وحيداً
--  عاجل.. الصحة تؤكد استمرار التقديم على وظائفها بمختلف المناطق
--  "ميرسك" تعلن وقف جميع عمليات الشحن بالحاويات عبر البحر الأحمر
--  الحصول على إعانة الزواج.. الخطوات والشروط والمستندات المطلوبة
--  لا تتجاهل هذه العلامة في الفم.. مؤشر على الإصابة بالسكري
--  Derek Carr Gifts Rolexes and Diamond Chains to Teammates for Christmas, Prompting Fans to React: “Money Don’t Buy You Love”
--  GTA Trilogy Definitive Edition From Netflix Games is Available to Play on Android and iOS Devices Now
--  Riesen-Ärger um defekte Laterne in Dortmund: City-Anwohnerin in Angst: „Stockfinster vor meiner Haustür“
--  Nationale Kerosinsteuer: Nur auf den ersten Blick eine gute Idee
--  La cuarta edición de la campaña 'Dona Vida al Planeta' llega a Montalbán de Córdoba con el objetivo de concienciar sobre el reciclaje de residuos de aparatos eléctricos y electrónicos (RAEE)
--  Stella Luna to lay off nearly all staff, citing economic downturn
--  Bakan Şimşek: Avrupa Yatırım Bankası Başkanı ile sıkı bir işbirliği içinde olacağız
--  İsrail Milletvekili Cassif: İsrail, suçlarını saklamak için basını hedef alıyor
--  "العسكريون المتقاعدون": لن نتنازل عن مطالبنا
--  MP: 10 मीट शॉप और BJP नेता पर हमले में शामिल आरोपी के घरों पर चला बुलडोजर
--  documenta: Abschlussbericht zur Organisationsstruktur
--  Під Ізюмом у руках підлітка здетонувала вибухівка
--  À Quimper, plus d’un kilo de cannabis découvert dans un appartement route de Pont-l’Abbé
--  Endrick desembarca na Espanha para conhecer futuros companheiros e ver jogo do Real Madrid
--  Shoppers rave over £13 device that is 'cheap to run' and removes condensation from windows
--  Joe Biden wants US citizens to have to sneak into their own country
--  Auckland stadiums: Eden Park and waterfront stadium among four pitches in search for main stadium
--  Váhate nad menom pre novorodenca? Výročná štatistika ministerstva, TAKTO sa rodičia pri bábätkách rozhodovali!
--  Rusi porušujú Ženevské konvencie, dôkaz na VIDEU: Z Ukrajincov si spravili živé štíty!
--  Kind „nicht tragbar“: Hannover-Streit wegen DFL-Deal vor der Eskalation?
--  Großeinsatz für Feuerwehr und Polizei: Augenzeugen hindern Brandstifter an der Flucht
--  Hacienda mantiene sin estímulo fiscal a gasolina y diésel por segunda semana consecutiva
--  Flybird Holding aloittaa ostotarjouksen Musti Groupista
--  Olympisch historicus David Wallechinsky: ‘Het IOC is een sportorganisatie. Wat kan het tegen oorlog doen?’
--  ИДФ: Сирени се огласија во Ерусалим
--  Härva av bagagestölder på Kanarieöarna
--  Como fazer a maquiagem durar mais no verão: confira as dicas
--  Foto do James Webb está entre as melhores do ano na revista Nature
--  Otvoren Adventski luna park u Gospiću. Niti jaka bura nije mogla umanjiti oduševljenje djece
--  انفجار 3 قنابل يدوية في قاعة اجتماعات بأوكرانيا ومصرع نائب.. ما السبب؟ (فيديو)
--  Milei usará Forças Armadas contra quem bloquear ruas para protestar na Argentina
--  Laxå kommun tar avstånd från lag om anmälningsplikt
--  Υπουργείο Εργασίας: 17 ερωταπαντήσεις για την τροπολογία για τους αλλοδαπούς εργάτες
--  Socrates Unveils 3 Million USDT Influencer Accelerator Program and Airdrop
--  Girl succumbs to burns
--  How the world's first deal to ditch fossil fuels was forged at COP28
+-  דני פרנקו: "להבא נצטרך לדעת לגמור משחקים מהסוג הזה"
+-  İstanbul'da cuma akşamı trafiği: Yollar kilitlendi yoğunluk yüzde 80'e çıktı
+-  الخارجية القطرية: وقف إطلاق النار في غزة لا يزال مسألة خلافية داخل المجتمع الدولي
+-  قتلوهم وسط الشارع.. 4 قرارات عاجلة من النيابة بشأن واقعة "خرطوش شبرا الخيمة"
+-  جيش الاحتلال: ندفع ثمنًا باهظًا من الدماء لتحقيق أهدافنا في غزة
+-  "متجيش جمبها تاني".. أرملة الإبراشي تتنازل عن بلاغها ضد سيدة شرعت في قتلها بأكتوبر
+-  الحظ السعيد يطرق أبواب 4 أبراج نسائية في عام 2024
+-  "فلسطين في القلب".. أمسية شعرية غنائية بالقومي للمسرح يشارك بها محمد بهجت
+-  تشكيل الاتحاد لمواجهة الأهلي في كأس العالم للأندية
+-  منافس مانشستر سيتي.. أوراوا يفوز على ليون ويتأهل لنصف نهائي كأس العالم
