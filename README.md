@@ -1,11 +1,11 @@
 # Latest News
--  Edenaar veroordeeld voor botsing
--  القيروان :حملة أمنية تسفر عن حجز 15 بندقية صيد بدون رخص مسك.
--  В России предложили лишать приобретенного гражданства за тяжкие преступления
--  Пропавшего подростка нашли спустя шесть лет в другой стране
--  Los tres hermanos que se inventaron Pepe Ganga, la tienda que manda en regalos de Navidad
--  Mærsk stopper al containertransport i Det Røde Hav efter angreb
--  Mærsk stopper al containertransport i Det Røde Hav efter angreb
--  Alpha Αστικά Ακίνητα: Έκτακτη ΓΣ στις 19/1 για επιστροφή κεφαλαίου 2,2 ευρώ/μετοχή
--  La Agencia Europea del Medicamento recomienda autorizar el primer tratamiento de de edición genética
--  Kim Kardashian Slays in Sexy Bikini Mirror Selfie & Says She’d ‘Date’ Herself
+-  En pésimas condiciones, juegos de la Deportiva Sur
+-  Căn hộ nhỏ 22m² nhưng sở hữu kiến trúc đặc biệt hình vòng cung tạo sự rộng rãi bất ngờ của gia đình người Nhật
+-  شركة "ميرسك" توقف عمليات شحن الحاويات عبر البحر الأحمر
+-  Soccerladuma | SuperSport Jump To Second With Comeback Win Over Swallows
+-  Szef Rady Europejskiej: nowy szczyt w sprawie wsparcia dla Ukrainy na początku przyszłego roku
+-  Aktywność fabryk w USA wzrosła, pomógł sektor motoryzacyjny
+-  पटना से सोनू पंडित और दिल्ली से निवेश कुमार गिरफ्तार:4 राज्यों के 23 ठिकानों पर NIA की छापेमारी; 3 लाख कैश...सेना की वर्दी बरामद
+-  Seca: CAP diz que apoio financeiro é escasso e pede candidaturas até janeiro
+-  Browser Arc to work organized with many tabs comes to Windows
+-  Diese Autobahn ist die kürzeste in ganz Deutschland
