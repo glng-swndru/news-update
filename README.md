@@ -1,11 +1,11 @@
 # Latest News
--  17.28 Lakh New Workers Enrolled Under ESI Scheme
--  Simplified Taxation Regime Holds Key To Empowering India's SMEs: Experts
--  Harnett County man pleads guilty in 2020 deadly shooting
--  Pogođen je; Zapalio se
--  Przewaga popytu na europejskim rynku akcji
--  [영상] 준공 50주년 맞은 소양강댐… 지역 상생·첨단산업 공간 재탄생 추진
--  국방부 “중국·러시아 ‘군용기 카디즈 진입’에 엄중 항의”
--  ‘불출마 선언’ 장제원 “잊히는 것 두렵지만 윤 대통령 성공해야”
--  PIE: w grudniu inflacja wzrośnie do ok. 7 proc., ale w marcu spadnie poniżej 5 proc.
--  강원 예술인의 밤 개최 "문화특별자치도 만들기 위한 문화 주체운동 일으켜야"
+-  الموت يغيب الشاعر عبد العزيز البابطين
+-  Kickoff | Ten Hag 'lined up' for next job if sacked by Man Utd
+-  Yurdun bazı kesimlerinde kuvvetli yağış ve fırtına bekleniyor
+-  Mersin'de torbacılara operasyon
+-  Avrupa'da gündem Edin Dzeko ve Dusan Tadic! "Fenerbahçe'ye cennetten gönderildi"
+-  Toivo Group neuvottelee viiden kohteen myynnistä – Arvioitu kauppahinta 20–30 miljoonaa euroa
+-  Udana premiera od PlayWaya. Akcje drożeją
+-  Essen: Heftige Explosion! Polizei findet Leiche – traurige Gewissheit um vermissten Mann
+-  ‘Anatomía de una caída’, crítica: una cruel mirada sobre la justicia
+-  Keskiympyrä: Näin Kris Knoblauch käänsi Oilersin syöksyn – Eikö Esa Lindell muka mahdu Suomen World Cup -joukkueeseen?
