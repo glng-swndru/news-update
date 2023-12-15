@@ -1,51 +1,11 @@
 # Latest News
--  الوحدات يتوج بطلا لدوري سن 17
--  دوي انفجارات جنوب القدس جراء اعتراض صواريخ
--  [미모의 아내 “저 남자 죽여야해요” 남편 현혹…소름 돋는 ‘속마음’은[이원율의 후암동 미술관-테세우스 편]
--  성남문화재단, 가천대학교와 업무협약 체결
--  성남도시개발공사 국민체육센터, 2023년 체육시설 안전경영 인증 획득
--  وقفات أدبية مع النشيد الوطني حلقة 2| كتب علوي سلمان
--  Research team develops analog hardware solution for real-time compressed sensing recovery in one step
--  Nikšić: Vlasnici ArcelorMittala se trebaju odreći dijela dobiti u korist radnika koji im je donose
--  The Future of Google’s AI: Advancements and Applications We Can Expect
--  Kaspar David Fridrih – umetnik kojem su gorele slike
--  Unveiling the Best Industrial Monitors
--  Rettung der Sternbrücken-Clubs: Hamburg bekommt ’ne neue Party-Meile
--  Dopo le minacce, aggredisce la compagna
--  Tesla'yı piyasadan silip atacak elektrikli resmen satışta! 662 km menzil -40 derecede bile çalışan batarya
--  Politiikan puskaradio: DCA-sopimuksen julkistaminen viivästyi erikoisesta syystä – Suomi oli liian koukeroista
--  McCarthy Gives Farewell Speech in D.C. During His Last Day as a Congressman
--  `Maza Aariya Hai!`: British Ambassador Enjoys Indori Poha At Chhappan Dukaan
--  Kanta-Hämeen keskussairaalan päivystyksen ja tutkijakoulun kehittäjille tunnustusta
--  Cole Tucker Posts Wedding Pic With Vanessa Hudgens, Wishes Happy Birthday to 'My Wife'
--  The 12 trends of Christmas
--  Moniottelija Miia Sillman lopettaa uransa
--  (FOTO) „Da jave kad i koliko ih je iz porodice glasalo“: Medicinari u Vršcu dobili poruku od direktora
--  El plan B de Bruselas para ayudar a Ucrania ante el veto de Hungría
--  Mladi iz BiH briljirali u finalu Studentske lige UNWTO-a
--  Nikšić uputio poruku vlasnicima ArcelorMittala
--  Kremlin: Ukrainian and Moldovan entry could destabilise EU
--  118 kvadratmeter stort hus i Vadstena får nya ägare
--  Političari i mediji EU: Pregovori s Ukrajinom politička odluka i poruka Moskvi
--  "هدايا" مستحيلة من الحكومة الى اللبنانيين... حتى إشعار آخر!
--  Kapetan Vojske Srbije osuđen na doživotni zatvor zbog silovanja svoje maloljetne kćerke
--  Son dernier album, la scène, son biopic sur Aznavour... On a échangé avec Grand Corps malade avant son concert à Toulon en janvier
--  PSG-Toulouse: le Collectif Ultras Paris boycotte le Trophée des Champions
--  GESAMT-ROUNDUP: USA setzen auf Palästinenserbehörde für Zeit nach Gaza-Krieg
--  Kiekkopomo huolissaan Liigan pelin tasosta – "Tällä suuntauksella”
--  „Ich weine nicht. Ich bin kein Opfer“: Was Xabi Alonso zu dieser Aussage verleitet
--  Madre del capitán retirado del Ejército detenido arbitrariamente por el Dgcim exige conocer su paradero (VIDEO)
--  Grabiti dhe vrau dy kunatat në Durrës dhe akuzohet për zhdukjen e Renit të Elbasanit, ja kush është i plagosuri Indrit Shaqja
--  Jorge Jesus ile Neymar arasındaki gerilim tırmandı! Takımdan kovulmasını istiyor
--  Real Madrid'de Arda Güler gelişmesi! İspanyol devi paylaştı
--  Slováci sa dočkali zlacňovania potravín: Odborníkov sme sa pýtali, či si v roku 2024 priplatíme (PREDIKCIE CIEN)
--  "Je suis évidemment très heureuse de savoir qu'il sera bientôt là": BFMTV a parlé à la grand-mère d'Alex Batty, adolescent britannique de 17 ans retrouvé en France six ans après sa disparition
--  "첫끼 11접시→70만원 파인다이닝" 팜유즈, 대만 세미나 '美친' 스타트 [나혼자산다](종합)
--  "Sozial-Leasing" in Frankreich: E-Autos ab 54 Euro im Monat
--  Move over Santa… Mrs Claus is coming to town to meet children at Greyhope Bay
--  Fiscalía Especializada arresta a hermana de García Luna en Cuernavaca
--  Trujillo: Envían a la cárcel a un joven intervenido con municiones
--  Gobierno de Javier Milei venderá dos aviones que usaba Cristina Kirchner
--  Nasca: cámaras captan robo de lámparas solares en la av. Circunvalación
--  "غياب ماجواير".. تين هاج يعلن عودة ثنائي اليونايتد قبل مواجهة ليفربول
--  لهذه الأسباب.. احذر نقص هذا الفيتامين من جسمك
+-  Corte de Apelaciones de Temuco rechazó recurso de Héctor Llaitul y mantuvo inicio de juicio para el 12 de marzo
+-  Силни дъжд и сняг пречат на шофьорите по АМ "Тракия", вижте какво е положението
+-  लोकसभा चुनाव में उम्मीदवार बनेंगी लालू की बेटी? रोहिणी आचार्य ने किडनी देकर बचाई थी जान
+-  Colombia acogerá la COP16 entre el 21 de octubre y el 1 de noviembre de 2024
+-  Peralihan tenaga memerlukan lebih kepelbagaian
+-  Guayaquil: Atentado en una licorería por no pagar los $5.000 de 'vacuna' en Mapasingue
+-  Selena Gomez Kisses Benny Blanco in Newly Shared Photo
+-  Из-за снегопада в Курске наблюдаются сбои в работе общественного транспорта
+-  Panamá ha iniciado el proceso para el cierre ordenado y definitivo de la mina
+-  Illy’s First Georgia Location Opens at Atlantic Station
