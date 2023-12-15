@@ -1,11 +1,51 @@
 # Latest News
--  Pucnjava u Podgorici, ranjen strani državljanin
--  Potpuna navala za utakmice Hrvatske: Najveći broj prijava upravo je za utakmice Vatrenih
--  Sideshow Reveals First Look at New Spider-Man Sixth Scale Figure
--  Kassam Tugayları İsrail ordusunu hurdaya çevirdi: 100'den fazla askeri araç vuruldu
--  Njegov je hit odzvanjao svim diskotekama, a onda je samo ‘ispario’: Evo gdje je danas Samir Mujagić
--  Putin: Makron prekinuo sve veze sa mnom
--  Plavi kaftan
--  Profil
--  Živjeti u ratnoj Njemačkoj
--  Korporativne životinje
+-  باراخا : املاح جاهز
+-  Katie Couric, 66, shares rare makeup-free photo as she opens up about suffering from eczema: 'I can't believe I let my team post this picture!'
+-  ‘I had a bit of malaria, mingled with stress,’ Akpabio reacts to reports of collapse at birthday colloquium
+-  Концерт на дуо Кировски во НОБ
+-  COP28 traz avanços, mas crise climática exige medidas mais duras
+-  Prezydent podpisał ustawę o refundacji in vitro z budżetu
+-  چیف جسٹس قاضی فائز عیسیٰ رخصت پر، قائم مقام کون؟
+-  Експлозивен старт на следното издание на EXIT фестивалот! Black Eyed Peas, Gucci Mane, Tom Morello, Carl Cox и Bonobo ги предводат првите 24 имиња за EXIT 2024
+-  Γάζα: Νεκρός εικονολήπτης του Al Jazeera από ισραηλινή επιδρομή στη Χαν Γιουνίς
+-  Mavuta, Masakadza, Muzarabani efforts in vain as Zimbabwe go down to Ireland
+-  ‘Below Deck’ Couple Charged in Prescription Drug Scheme: Who Are Dr. Francis Martinis and Jessica Martinis?
+-  Fenerbahçe'nin yeni antrenörü galibiyetle siftah yaptı!
+-  Önce yaraladı sonra tedavisine izin vermedi: İsrail'in vurduğu kameraman öldü
+-  Kassam Tugayları, İsrail tanklarını tek tek avlıyor! Yeni görüntüler yayımlandı
+-  Lise bahçesinde oluşan 5 metre derinliğindeki obruğa hafriyat kamyonu düştü
+-  Irak'ta güvenlik güçleri ve iç göçmenler sandık başına gidecek
+-  AK Partili İnan: 25 senedir CHP'li belediyecilik anlayışıyla yönetilen İzmir'de şehircilik çöktü
+-  Yemen'den Gazze'ye destek: On binler katıldı
+-  İsmail Kartal'dan taraftara mesaj!
+-  'Democracy under threat': Americans agree that the 2024 election will be pivotal
+-  وعد خاص من فيصل الغامدي لجماهير الاتحاد بعد الخسارة أمام الأهلي
+-  Grantchester's Robson Green, 58, says he's returning for the show's eighth series to be 'genuinely happy' in the 'last third' of his life as he's reunited with a VERY familiar guest star
+-  Istekao rok za preregistraciju vozila na RKS tablice
+-  하이키, 예쁨이 뚝뚝
+-  EE.UU. saluda «disposición» de María Corina Machado a apelar inhabilitación ante el TSJ
+-  판타지보이즈, 비주얼이 판타지
+-  HM félagsliða: Man City mætir Urawa Reds í undanúrslitum
+-  الاتحاد الدولي لحفظ الطبيعة يكرم هيئة تطوير محمية الملك سلمان
+-  تقييم فابينيو في خسارة الاتحاد أمام الأهلي
+-  Peng Liyuan visits Vietnam National University and National Women's Museum, Hanoi
+-  Tow truck drivers and community members knocked down at Tongaat accident scene suffer broken bones
+-  New law will allow Mchunu to intervene in municipalities failing to address decline of water services
+-  Feyenoord se frota las manos: Santiago Giménez es el mexicano más valioso de la historia
+-  I'm A Celeb's Danielle Harold 'snubs' Pete Wicks after pair cosied up at wrap party
+-  MIROSLAV ILIĆ PREKINUO KONCERT U ARENI! Par ljudi mu je odmah prišlo - Nije bilo u planu, morao sam da zastanem! (VIDEO)
+-  VIDEO Surpriza din finala de la Vocea României: Manelistul Adi Minune a urcat pe scenă și a cântat cu unul dintre concurenți
+-  Trucos caseros para quitar etiquetas de frascos de vidrio y reutilizar con estilo
+-  Besökare välte antik byst på Medelhavsmuseet
+-  Médico suspeito de causar 42 mortes é preso em hospital em SP
+-  حركة حماس تعلن ارتفاع عدد ضحايا القصف الإسرائيلي على غزة إلى 18.800 شهيد
+-  Gary Oldman Says ‘Thank God’ for ‘Harry Potter’ and ‘Dark Knight’ Movies Because ‘They Saved Me’
+-  Christophe Galtier : un an de prison avec sursis requis contre l'entraîneur
+-  Elle enseigne pendant 20 ans sans diplôme, voici ce que la justice a décidé
+-  Çanakkale'yi sağanak vurdu: Dereler taştı, sokaklar sular altında kaldı
+-  Israeli army says it mistakenly shot and killed three hostages
+-  Val-d'Oise : un homme retrouvé nu et hospitalisé en urgence après avoir été agressé à Goussainville
+-  معلق مباراة فالنسيا وبرشلونة
+-  Abate Guardia de Tamaulipas a 4 pistoleros
+-  Naisleijonat jatkaa Ruotsin EHT-turnauksessa voitokkaasti – vaikea Tshekki kukistui maalilla
+-  Cena złota zanotowała serię tygodniowych wzrostów. Notowania złota spadły podczas piątkowej sesji
