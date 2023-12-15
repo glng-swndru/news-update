@@ -1,51 +1,11 @@
 # Latest News
--  Altın Fiyatları Güne Nasıl Başladı! 15 Aralık Cuma Gram Altın, Çeyrek Altın, Yarım Altın, Tam Altın Fiyatları
--  카카오모빌리티, 택시 4단체와 상생안 합의
--  Celltrion's CT-P47 Shows Equivalence in Global Phase 3 Trial for Rheumatoid Arthritis Treatment
--  네이버, LX공사와 손잡고 ‘사우디 디지털트윈’ 구축 사업 본격 추진
--  UEFA ülke puanında büyük değişim! Hem Beşiktaş, hem Fenerbahçe gruplarını galibiyetle noktaladı! Galatasaray kaybetse de puan getirdi...
--  오타니에게 쏟아진 뜨거운 관심 [MK포토]
--  सरकारी मूल्य निर्धारणप्रति असहमति जनाउँदै उखु किसान आन्दोलनमा
--  เปิดกลยุทธ์ดัน’หนังไทย’ SOFTPOWER
--  오타니 에이전트 발레로 ‘비밀 유지는 어쩔 수 없었어요’ [MK포토]
--  넥슨, 게임 데이터 활용 문 더 연다...외부 창작자 지원
--  동방신기, 팬들에게 전하는 마음…정규 9집 ‘20&2’ 기대
--  Beyaz Saray'dan Erdoğan ve Biden görüşmesine ilişkin açıklama: Gazze'deki sivillerin korunması konusunda mutabık kalındı
--  High time: Dutch savour legal pot trial
--  iPhone 15 thúc đẩy doanh số bán lẻ dịp cuối năm
--  Jokowi Tanggapi Kritik Anies Baswedan soal Demokrasi, Jadi Bahan Evaluasi
--  Metro prep sports roundup for Thursday, Dec. 14
--  Earthquake tremors in and around Mastung
--  ‘Below Deck’ Guests Used Cast Member Names in Opioid Scheme: DA
--  Fredspristagarens dotter: Kanske aldrig ses igen
--  Fredspristagarens dotter: Kanske aldrig ses igen
--  Leasing social: Fiat, Citroën, Renault... quels seront les modèles à moins de 100 euros par mois?
--  Địa điểm đã "ngủ quên" tại TP.HCM bỗng bừng sáng vào thời điểm Noel, dù lạ lẫm nhưng dân tình vẫn nườm nượp đến check-in
--  Kylo Ren Wasn’t Originally Supposed to Become Ben Solo Again
--  Οι αλλαγές που φέρνει ο νέος νόμος για την οπαδική βία: Κάμερες, δρακόντειος έλεγχος στα εισιτήρια και στην είσοδο
--  Van, ahol úgy spórolnak, hogy rendesen nyugdíjat emelnek
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  [LX-네이버클라우드-네이버, 사우디 디지털트윈 구축 맞손
--  [(인사)휴온스그룹
--  [주식으로 경제적 자유를 꿈꾸신다면! 스탁론으로 수익 극대화를 노려보세요
--  [최성국, 1년2개월 사랑꾼 여정 공개 …산부인과 대기실 전부 젊은 아빠들 '당황'
--  MVP候補としてQBパーディーとRBマカフリーのどちらにも肩入れしない49ersシャナハンHC
--  ["배신감 느껴 그랬다"…6살 딸 보는데 엄마 살해한 30대 스토커
--  광고주가 내 ‘사생활 조사’ 못한다...구글, 쿠키 금지 테스트
--  [사진] 다저스 입단 기자회견 참석한 오타니 쇼헤이
--  "พิธา" วิเคราะห์ผลงานรัฐบาลเศรษฐา 90 วัน ผ่านกรอบ 5 คิด
--  กสม.แจงกรณีระเบียบราชทัณฑ์ ชี้ผู้ต้องหา-ผู้ต้องขังยังบริสุทธิ์
--  CHP'li Mustafa Adıgüzel'den canlı yayında "sayın Öcalan" skandalı
--  Россиянка загорелась при попытке сделать самогон и попала в реанимацию
--  Pepe Huerta felicita a Sergio Salomón por su primer informe de labores
--  Supreme Court validates abrogation of Article 370
--  Alkol metreyi üflemeyi reddetti, polislere saldırdı
--  عضو تنفيذية منظمة التحرير: الرئيس محمود عباس كلفني بالتواصل مع حماس
--  Ide ma roztrhnúť, lamentoval na tlačovke tréner Weiss. Päťkrát ukázal na vinníka, nebol to nikto z jeho hráčov
--  레버리지 ‘NO’…안정 중시 ‘CFP’ [BOOK in BOOK]
--  धनुषामा बलात्कार गरी नावालिकाको हत्या
--  Marsh thrills home support to cement Australia's control
--  رئيس الصين يتحدث عن إمكانية تعزيز التعاون التجاري مع الولايات المتحدة
--  Marsh in the 90s as Australia pummel Pakistan in Perth
--  Defending champ Nuggets show out Nets in another West Coast rout
--  ‘Key word is simba, not gabi,’ archbishop reminds Catholics as ‘Simbang Gabi’ nears
+-  Milinkovic-Savic gli ha chiuso la porta: Berisha lo ritrova
+-  Paul vs. August Results: Live updates of the undercard and main event
+-  Fonavistas a cobrar: pagos inician el 21 de diciembre
+-  Jake Paul vs. Andre August: Live round-by-round updates
+-  Acción Popular saluda renuncia de Lescano por ser un ‘rojo’ infiltrado
+-  Por: Dennis Falvy // Lo hicieron leña a Jack Ma
+-  GNR inicia operação Natal e Ano Novo
+-  Militantes socialistas escolhem sucessor de António Costa no cargo de secretário-geral do PS
+-  Új funkció mutatja meg, milyen helyadatokat ment rólad a Google
+-  How to Move and Get Fit the Primal Way
