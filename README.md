@@ -1,51 +1,51 @@
 # Latest News
--  وزير الدفاع الإسرائيلي: قلبي مع عائلات الأسرى الـ3 الذين قتلناهم بالخطأ في غزة
--  المقاومة تنشر مشاهد جديدة من استهداف جنود العدو وآلياته شمال غزة
--  مصطفى بكري يكشف خطة إسرائيل للحرب مع مصر والأردن
--  "الكبسة والطعمية".. ما قصة تريند السوشيال ميديا بعد مباراة الأهلي والاتحاد؟
--  وحش أفريقيا.. أول تعليق من عمرو أديب بعد فوز الأهلي على الاتحاد السعودي
--  "MISLIM DA SMO PREDUZELI NAJBOLjE REŠENjE" Sijarto: Budimpešta može da uloži veto u realne pregovore o članstvu Ukrajine u EU
--  뚝 떨어진 기온, 추위에 눈·비도…서쪽지역 폭설 예상
--  Florianópolis intensifica ações contra a dengue; veja bairros com mais focos da doença
--  Ο Matthew Perry πέθανε από ατύχημα που προκλήθηκε από κεταμίνη – Το επίσημο ανακοινωθέν
--  'Friends' actor Matthew Perry's cause of death revealed
--  Bolsas de NY fecham sem direção única, após dirigentes do Fed modularem tom dovish de Powell
--  Jared Leto filtra por error el cartel de O Son do Camiño
--  Keyon Menifield granted waiver by NCAA and cleared to play
--  Noora Tulus ja Sanni Vanhanen iskivät - Naisleijonien veskari hoiti loput Tshekin kaadossa
--  TPS:n valmentajalla oli tunteet pinnassa Kuopiossa: ”Valehtelisin jos sanoisin…”
--  Flaş sendika hamlesi: Beşiktaş'ta kadro dışı oyunculara yeni bir şans...
--  Tras denuncia ciudadana, eliminan grafitis de pandillas en San Jacinto
--  UK spy agency releases annual Christmas puzzle challenge for students: Can you solve it?
--  Matthew Perrys dödsorsak fastställd
--  Viatris Continues its Preparations for Phase 2 of its Strategic Plan by Announcing the Appointment of Theodora "Doretta" Mistras as Chief Financial Officer, Effective March 1, 2024, and Philippe Martin as Chief R&D Officer
--  Forum d’affaires Sénégal-Côte d’Ivoire : L’APIX dévoile les nombreuses opportunités du pays au secteur privé ivoirien
--  Poco a poco, dice AMLO sobre falta de accesos a Tren Maya
--  Entregan premios colaterales del 44 Festival de Cine de La Habana
--  Everyone can spot the bridge – but you have 20/20 vision if you can spot hidden face in under 6 seconds
--  Gazze diplomasisi için Norveç'e giden Bakan Fidan'dan mevkidaşlarıyla kritik görüşme
--  Ma Petite Planète – L'atelier environnemental pédagogique
--  Jury Orders Giuliani to Pay $148 Million to Election Workers He Defamed
--  Fon der Lajen o Izraelu i Palestini: Jedino rješenje su dvije države, inače ne može biti mira
--  Australian UFC fighter Casey O’Neill implores women to train MMA
--  Боруссія М та Вердер не визначили сильнішого в 15 турі Бундесліги
--  UBIJEN SNIMATELJ U GAZI! Muškarac iskrvarrio do smrti, evo šta kažu iz Bele kuće
--  Melissa Joan Hart Says She's 'Flattered' By Fan Frenzy Over Grandmother Role
--  Ateş Kuşları'nda heyecan dorukta! "Benim kimliğimi bana ver başka hiçbir şey istemiyorum"
--  Çanakkale'de sağanak yağış cadde ve sokakları göle çevirdi!
--  Süper Lig'de hakemler kararını verdi: Maça çıkacaklar mı?
--  Muška i ženska imena koja privlače sreću: Božji su miljenici i sve što rade u životu ide im od ruke
--  لهذا السبب غادر ياسر جلال القاهرة
--  Matthew Perrys dödsorsak fastställd
--  ملک بھر میں سونے کی قیمت میں معمولی اضافہ، فی تولہ کتنے کا ہو گیا؟
--  Programa Nossa História celebra 192 anos da Polícia Militar do Estado de São Paulo
--  Can’t see elders dying due to poor electricity, say relatives of Kashmir’s COPD patients
--  Milei convoca a gobernadores con el paquete de leyes en la mira y el Congreso apura una negociación clave
--  Moedas: dólar opera em alta, recuperando após mínimas, com falas de dirigentes no radar
--  Fines of Rs0.376 million imposed on 78 illegal profiteers
--  Νετανιάχου: Απερίγραπτη τραγωδία ο θάνατος των 3 ομήρων από το ισραηλινό στρατό
--  Urșici, satul plin de secrete din ținutul dacilor. Cum trăiesc cei câțiva localnici rămași în munți VIDEO
--  Lethbridge Police looking for public’s help in hit and run investigation
--  Republikanët zgjedhin zonjën Pilip për të kandiduar për vendin e lënë bosh nga George Santos
--  – وزارة البيئة وجامعة طرابلس توقعان اتفاقية تعاون لتبادل الخبرات في الدراسات البيئية .
--  Bull terrier que atacou e matou cão Fox vai passar por análise comportamental em Centro de Controle de Zoonoses
+-  Härkämäinen esitys Bisonsin pelaajalta - nämä tilastot kertovat kaiken huimasta illasta
+-  Espoon herruudesta ei ole epäselvyyttä - Öljymiesten putki katkesi
+-  Nyt tuli huipputoppari myyntiin todella houkuttelevalla hinnalla
+-  Moody's'ten Türkiye açıklaması! Kredi notlarını açıkladılar
+-  쏘니 뽑지 않은 거? 그거 믿지마! 토트넘 前 감독, 직접 밝혔다..."베스트 일레븐 선정은 가짜 뉴스야"
+-  박나래, '55억 주택' 또 동파 "노천탕 수도 얼어 물 없이 앉아 있어" [홈즈]
+-  “이정후 1억3100만달러 계약, 깜짝 놀랐다…” 흐뭇한 홍원기, 그가 없었다면 초대박도 없었다
+-  '등번호 51번' 오라클파크 입성한 이정후의 자신감! "부상은 100% 회복, 내 전성기는 아직 오지 않았다" [일문일답]
+-  Lucky Lotto player wins massive sum in tonight’s EuroMillions draw but narrowly misses out on huge jackpot
+-  [걸어서 세계 속으로] 아름다운 단순함, 일본정원을 가다
+-  Tottenham með góðan sigur á Forest í fyrsta leik helgarinnar
+-  #53 – [Edition spéciale] L'intégrale – Apollonia Poilâne et le Pitch des assos avec Emmaüs Défi, Ma Petite Planète et HopHopFood
+-  90s R&B legends announce they’re returning to the UK for comeback arena tour
+-  Nothing Phone (2a) to be powered by MediaTek's Dimensity 7200
+-  Richarlison marca e Tottenham supera o Nottingham pelo Campeonato Inglês
+-  Com brilho de Jeffinho, Lyon vence Monaco e sai da lanterna do Campeonato Francês
+-  Juventus leva empate do Genoa e perde a chance de dormir na liderança do Italiano
+-  Diniz vai a estádio assistir rival do Fluminense na semi do Mundial e promete entrega
+-  Richarlison marca em vitória do Tottenham sobre o Nottingham na Premier League
+-  Unstoppable women racing towards equality.. I wonder what Joey Barton’s wife thinks of his rubbish Alex Scott comments
+-  Unstoppable women racing towards equality.. I wonder what Joey Barton’s wife thinks of his rubbish Alex Scott comments
+-  School investigated as pupils asked if it ‘is fair for Hamas to attack’ Israel – leaving parents furious
+-  جدول ترتيب الدوري الإيطالي بعد تعادل يوفنتوس
+-  Boulder home sells for $8M, tops metro November sales
+-  Platte Street building fetches $129M in largest office deal of year
+-  이정후, SF 입단 기자회견에서 처음으로 뱉은 말은[이정후 입단식]
+-  안유진, 청순함 가득
+-  이정후 입단식 진행한 SF, 이종범까지 특급대우… 소개+맨 앞자리까지[스한 스틸컷]
+-  '손흥민 88분-비수마 퇴장' 토트넘, 노팅엄에 2-0 승
+-  또 레드카드… 반등하려는 토트넘 발목 잡는 ‘파울 트러블’[토트넘-노팅엄]
+-  [인터뷰] 고민시 "몸 내던진 '스위트홈2', 두려움 사라졌죠"
+-  The best iPhone 15 deals in December: Get a free phone with trade-in offers
+-  ‘트리피어가 소문냈나’ 손흥민에게 1대1 수비 안준다 [토트넘-노팅엄]
+-  هل انفصلت شيرين عن حسام حبيب مجدداً؟
+-  Raiders propina a Chargers histórica paliza
+-  Libra Horoscope Today 16 December 2023 : तूळ राशीच्या लोकांनी वाद टाळा; नोकरीत होईल प्रशंसा, पाहा आजचं राशीभविष्य
+-  TSJ preguntó a la Contraloría si Daniel Ceballos está inhabilitado
+-  This Whisky Glass Is Shaped Like a Mask to Deliver the Ultimate Sipping Experience
+-  Megkezdődik az egykori Munkásőrség épületeinek bontása
+-  توتنهام يفوز على نوتينجهام فورست بهدفين نظيفين
+-  إعتراف مهم يخصّ "حزب الله".. هذا ما تفاجأت به إسرائيل!
+-  Lutron Caseta HomeKit lights level up with auto-off timers
+-  ΗΠΑ: Αποζημίωση 148 εκατ. δολαρίων καλείται να πληρώσει ο Ρούντι Τζουλιάνι σε δύο γυναίκες
+-  Tottenham-seier med 10 mann mot Forest
+-  Глава МИД Венгрии Сийярто назвал бессмысленными переговоры ЕС с Украиной
+-  Matthew Perry's death ruled an accident, autopsy reveals
+-  Taylor Swift se embolsilla casi 2000 millones de dólares
+-  ראש המוסד צפוי להיפגש בסופ"ש עם ראש ממשלת קטאר באירופה
+-  ליון ממשיכה להתאושש: חגגה 0:1 גדול במונאקו
+-  *** BILDplus Inhalt *** Schwärmerei in jungen Jahren - Wie echt ist unsere erste große Liebe?
