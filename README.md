@@ -1,51 +1,51 @@
 # Latest News
--  Air Jordans Made for Filmmaker Spike Lee are up for Auction after being Donated to Oregon Shelter
--  마지막 '난방열차' 등록문화재로
--  국내 전기버스 시장서 중국산이 절반
--  한전KPS, 취약계층 농산물‧에너지요금 지원사업 펼쳐
--  Number of residents back to their native lands in Azerbaijan’s Zabukh (PHOTO)
--  ฟังคำตอบ เจนี่ อัลภาชน์ หลังถูกจับตาสถานะสามี ลั่น! 6 เดือนที่ผ่านมาย้ำแล้วย้ำอีก
--  더미래 "이낙연, 신당 창당 철회하라"
--  Gibran Ajak Sorak-sorak Saat Debat Capres Cawapres di KPU, TKN: Oh, Berujung Teguran?
--  民怨物價太貴 俄總統普廷罕見致歉「是政府的失敗」
--  Sardines Die in Large Numbers at Fishing Port in Mie; Possibly Due to Oxygen Deprivation After Being Chased by Large Fish
--  銅鑼灣伊利莎伯大廈海景1房戶 國內人士即睇即租 月租2.68萬元
--  "Mənim kimi oyunçu 50 ildən bir doğulur"
--  India vs South Africa: సూర్య చితక్కొట్టాడు, కుల్‌దీప్‌ చుట్టేశాడు, దక్షిణాఫ్రికాపై టీమిండియా ఘన విజయం
--  Mumbai News: बोरिवलीत चोरीच्या कारणावरून दुकानदाराकडून बेदम मारहाण, कर्मचाऱ्याचा मृत्यू
--  고양시, 경기도 성별영향평가 정책 개선 경진대회 우수사례 선정
--  Hungría bloquea la ayuda a Ucrania por 50.000 millones de euros
--  Comentario sexista de Juan Carlos Lizarzaburu revela una “cultura que naturaliza la violencia contra las mujeres”
--  El veto de Orbán a los 50.000 millones a Ucrania obliga a los líderes a aplazar la negociación a enero
--  Autoridades confirman 10 desaparecidos en Estado de México tras enfrentamiento armado
--  Basquete: Fla recebe Boca Juniors na Champions League das Américas
--  L'ASSE change d'entraîneur, il promet du lourd
--  Kırıkkale'de yeğen halasını vurdu! Yaralanan kadın hastaneye kaldırıldı
--  Pulihkan Trauma Anak yang Diduga Ditinggal Bunuh Diri Satu Keluarga, Polres Malang Lakukan Pendampingan Psikologis
--  ‘Very frustrating’: Travis Head falls into Pakistan’s preconceived trap in six-year deja vu
--  Democrat says Putin ‘celebrating’ Congress going home without passing Ukraine aid
--  La razón por la que el Congreso de Oaxaca redujó el mandato de la próxima gubernatura a dos años
--  Usai Liburan ke Thailand, Wajah Ria Ricis Disebut Mirip Irish Bella dan Dituding Operasi Plastik
--  Pobladores del Edomex intentaron linchar a extorsionadores que se hacían pasar por integrantes del CJNG
--  Pertamina Forms Task Force to Ensure Energy Supply Availability During Christmas, New Year
--  IHSG Hari Ini Uji Area Resisten, Simak 5 Rekomendasi Saham Samuel Sekuritas
--  إنقاذ بايدن أم نتنياهو
--  Asesinan a tiros a hombre en Juárez
--  24-year-old identified by family as victim of deadly hit and run in Richgrove
--  Avanza en el Congreso dictamen que prohíbe nombre de calles en honor a servidores públicos, sus esposas y parientes
--  應對逆境需AQ及企業家精神（黃岳永）
--  US sanctions the ‘Malas Mañas’ criminal group based in Sonora
--  ABD'den flaş Türkiye açıklaması
--  Posisi Shin Tae-yong Masih Aman Meski Timnas Indonesia Loyo di Kualifikasi Piala Dunia 2026
--  LIC Movie Update: விக்னேஷ் சிவனின் இயக்கத்தில், பிரதீப் ரங்கநாதன் எல்ஐசி திரைப்படம்: பூஜையுடன் படப்பிடிப்புகள் தொடக்கம்.. விபரம் இதோ.!
--  Lula celebra haber colocado por primera vez un juez “comunista” en la Corte Suprema brasileña
--  Amritsar Crime | ਸਿਆਸੀ ਰੰਜਿਸ਼ ਨੇ ਧਾਰਿਆ ਖ਼ੂਨੀ ਰੂਪ - 2 ਭਰਾਵਾਂ 'ਤੇ ਫ਼ਾਇਰਿੰਗ, 1 ਦੀ ਮੌਤ
--  นายกฯ ปาฐกถาต่อนักธุรกิจญี่ปุ่นกว่า 500 คน ยืนยันศักยภาพการค้าการลงทุนของไทย
--  A Jermein Peña le llueven críticas por ataque a Brayan León: “Para mí tiene problemas mentales”
--  «C'était mon ami et il m'a viré !» : Ce que vous risquez à faire venir un proche dans votre entreprise
--  Harga Avtur Turun, Harga Tiket Pesawat Ikutan?
--  Test des Bose QuietComfort Ultra Earbuds: Un défaut incompréhensible à ce prix-là!
--  IntelがノートPC向けの第14世代SoC「Core Ultra」プロセッサーを正式発表、NPU搭載でAI性能を重視
--  NBA》「嘴綠」無限期禁賽 聯盟執行副總：所有人都覺得他需要幫助
--  Kingly tributes hail comedic legend of Barry Humphries
--  5 Opsi Motor Murah dan Irit Bensin, Cocok untuk Ojol yang Doyan Wira-wiri
+-  Math Edition of ‘The Boat is Sinking’ Goes Viral Online
+-  Report Urges Safeguards to Prevent Canadian Pension Plans’ Investments in Chinese Companies Tied to Human Rights Abuses
+-  New Telanagana HC building at Rajendranagar
+-  Ο εμβληματικός κινηματογράφος Όπερα επαναλειτουργεί από το Cinobo
+-  Ευρωκοινοβούλιο: «Σκληρή γλώσσα» κατά Κίνας – Εργαλειοποιεί τα BRICS και την πρωτοβουλία «Μία Ζώνη – Ένας Δρόμος»
+-  Sin vacaciones, alcalde en periodo navideño
+-  Conforman Comisión para Premio Municipal de Mujeres Ejemplares
+-  SAT dará atención presencial en periodo vacacional
+-  Fallece el periodista Juan Manuel Carmona
+-  Video: Se agolpan migrantes para entregarse a autoridades de EU
+-  Detiene FGR a hermana de García Luna en Cuernavaca
+-  Ranking My Top 10 Anime Of 2023 From Bloody Brilliant To I’m Not Crying, You’re Crying
+-  OVERBLIK: Det ved vi om stor politiaktion - det mangler vi svar på
+-  OVERBLIK: Det ved vi om stor politiaktion - det mangler vi svar på
+-  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 15 ธันวาคม 2566
+-  Oman Sultan Haitham bin Tarik To Arrive In India Today For Three-day Visit
+-  Intel Introduces Chip With AI Integration, Targets PC Upgrade Surge
+-  Telangana Cabinet clears Guv’s address for joint session
+-  Argentina golea a Ecuador en un amistoso Sub-23 rumbo al Preolímpico
+-  संसद के सबसे उम्रदराज सांसद: डॉ. बर्क अपनी अच्छी सेहत और याददाश्त को लेकर चर्चा में, मोदी भी कर चुके हैं तारीफ
+-  Government says it has located 16,681 missing persons via new ‘census’
+-  Beyaz Saray'dan Erdoğan-Biden görüşmesine ilişkin açıklama. Türkiye'ye F-16 satışına destek
+-  ได้ 6 ชาติ เสนอตัวจัดการแข่งขันฟุตบอลหญิงชิงแชมป์โลก ในปี 2027
+-  Gen Z: ‘Tôi không cần phải làm việc 40 giờ/tuần để thành công’
+-  Paddy purchase in Koraput on hold, Odisha farmers confused
+-  Lentes de contacto: aliados en la práctica deportiva
+-  Zambia Makes Progress in Global Corruption Rankings
+-  PSM Pecundangi Sabah FC, Bernardo Tavares Beri Kabar Mengejutkan
+-  Desafíos del envejecimiento saludable y el lugar ideal para transitarlo
+-  Vivian Silver, victim of Hamas attack, remembered as peacemaker
+-  ইসিতে আপিল শুনানি শেষ হচ্ছে আজ
+-  La formación continua es la base de la empleabilidad
+-  El ajuste será justo si recorta todos los privilegios
+-  Testa dina kunskaper i vår julkalender - Lucka 15
+-  Γερμανία: «Πισώπλατο» χτύπημα στην ανάπτυξη των φωτοβολταϊκών φέρνει η νέα δημοσιονομική συμφωνία
+-  Το μπαράζ πτωχεύσεων στο παγκόσμιο real estate και η περίπτωση της Ελλάδας
+-  Galatasaray ve Fenerbahçe'nin Avrupa'da muhtemel rakipleri belli oldu
+-  Miss Suomi Paula Joukasen terveyden­tilasta lisätietoa
+-  MotoGP: Marc Marquez hanya guna jentera terpakai
+-  ‘Southern Charm’ Cast Treats Jamaica to Relentless Screaming
+-  Полковник высказался о тактике российский военных под Работино
+-  Charging While Driving Now Possible in Michigan
+-  В России предложили ввести в школах уроки мужества от участников СВО
+-  Женщина вернулась домой спустя месяц и обнаружила удивительное изменение
+-  Лишившаяся уличных украшений семья посмотрела запись с камеры и удивилась
+-  Россиянка предупредила туристов о пяти опасностях в Индии
+-  เปิดงานมนต์เมืองปายส่งเสริมการท่องเที่ยว
+-  Former Mines Minister Richard Musukwa Arrested
+-  Rep. Ayanna Pressley Introduces ‘Books Save Lives’ Act to Fight Bans
+-  Will Speed Limit Increase In 2024 In New York?
