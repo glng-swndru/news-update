@@ -1,11 +1,11 @@
 # Latest News
--  메가존클라우드, 안전보건경영시스템 ISO 인증 획득
--  NHN클라우드, ‘2023 송년 파트너 데이’ 성료…70여 파트너사 참석
--  햄버거 프랜차이즈 프랭크버거 ‘프랭크버거 골프구단 창단식 개최’
--  겨울철 자외선 차단·보습 가능한 선케어 ‘지니안 버블 휩 선무스’ 출시
--  제주 고향사랑기부자 1만명 돌파…모금액 12억 넘어
--  현대해상, '정몽윤 장남' 정경선 신임 CSO 선임
--  Postcard sent from Sydney turns up in the UK, four decades later
--  Regeln gefordert - WHO will E-Zigaretten schwächer und teurer machen
--  Monza group sells cardiovascular surgery hospital in Bucharest
--  이디야커피, 권익범 대표 사임…경영 쇄신 위한 조직개편 단행
+-  Beşiktaş rakibini gençlerle devirdi, taraftarının taktirini topladı! "Helal olsun gençlere"
+-  Fenerbahçe hem gruptan çıktı, hem bir turu bay geçerek son 16'ya kaldı! Sarı-Lacivertliler'in muhtemel rakipler bile belli oldu
+-  [‘재건축 한창’ 반포·잠원 아파트단지 언제 왜 세워졌나…서울시, ‘서울 동의 역사 서초구’ 편 발간
+-  [신안 해상풍력 상생협의회 연찬회 개최
+-  [성우테크론, 주당 0.02주 주식배당 결정
+-  WebQoof Recap: Around Parliament Security Breach, Shivraj Singh Chouhan & More
+-  Rize'den yapılan çay ihracatı geliri yüzde 45 artış gösterdi
+-  रोहतक जिला बार चुनाव: 3249 वकील डाल रहे हैं वोट; सुबह कम वकील आए मत करने, धूप के साथ बढ़ी मतदाताओं की संख्या
+-  Benoemingen in college van bestuur Christelijke Hogeschool Ede
+-  BSP sees narrower 2024 current account deficit
