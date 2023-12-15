@@ -1,11 +1,11 @@
 # Latest News
--  ANC comrades now need post-matric qualifications for election into public office
--  UK judge rules Prince Harry victim of phone hacking by Mirror Group
--  Cape Town Airport in talks to relocate thousands of families
--  Kovaçevski është i bindur se vendi ynë ka forcë politike dhe njerëz me vizion që do të marrin vendimin për ndryshimet kushtetuese
--  Hereu reitera su compromiso con "la cuarta revolución industrial"
--  Selena Gomez confirms Benny Blanco relationship with sultry kissing pic
--  Otomobilden 377 Parça Tarihi Eser Çıktı!
--  La Unión Eléctrica pronostica una afectación de 173 MW en el horario pico de este viernes
--  Van Armand tot aan Snollebollekes: deze Brabantse artiesten staan in de Top2000
--  NRW-Grüne sind entsetzt: Funktionär der Jungen Union in NRW nahm an Gala für Donald Trump teil
+-  Cengiz Ünder'e özel ilgi gösteriliyor
+-  Bị mắng ăn bớt đồ, chủ nhà hàng xếp từng chiếc xương ếch khiến khách bẽ mặt
+-  Những đứa trẻ lớn lên có thu nhập cao thường sở hữu 3 đặc điểm này: Cha mẹ đừng bỏ qua mà "dập tắt" tương lai của con
+-  Lương 500 tỉ, sao bóng đá vẫn dùng điện thoại vỡ tan nát
+-  Hoá ra Andree hộ tống Phương Ly đi diễn, tranh thủ hẹn hò ở Phú Quốc luôn!
+-  Quên các quán cafe đông đúc đi, đây mới là địa điểm săn ảnh cực hút giới trẻ mùa lễ hội cuối năm
+-  Top 40 nghệ sĩ và bài hát thịnh hành nhất Vpop năm 2023: Tăng Duy Tân lập cú đúp
+-  Thái Lan bắt đầu thí điểm mở cửa các địa điểm giải trí về đêm đến 4 giờ sáng
+-  Ở tuổi ngoài 30, hóa ra làm sạch da bằng dầu tẩy trang mới là "chân ái"
+-  Vũ.: Một ngày tôi tỉnh dậy, đặt vé máy bay đến với cô ấy và cầu hôn
