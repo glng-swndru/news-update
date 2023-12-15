@@ -1,11 +1,11 @@
 # Latest News
--  Grünsfeld: Ohne Zulassung und Führerschein unterwegs
--  Politikertochter Andrea Tandler muss ins Gefängnis
--  Wasserkraftwerk Wertheum: Wie laut darf das Rauschen einer Fischtreppe sein?
--  Obdachloser in Müllpresse eingeklemmt: Ermittlungen laufen
--  Erhält Laudenbach bald einen neuen Geldautomaten?
--  Einbruch in Bürogebäude in Großheubach
--  Verwilderte Katzen: Landkreis Kelheim ruft «Katzennotstand» aus
--  Öffnungszeiten der Stadtverwaltung Wertheim
--  Gaziantep'te milyonlarca liralık sahte deterjan operasyonu
--  Cumhurbaşkanı Erdoğan: Adaylarımızı Aralık sonunda açıklayacağız
+-  Rynek akcyjny dalej rośnie
+-  JP Morgan podniósł rekomendacje dla Pepco i LPP
+-  Chiny: naciski na blogerów aby nie pisali źle o gospodarce
+-  OECD-kutatás: a magyarok lexikális pénzügyi tudása kiemelkedő, de a gyakorlatban ebből nem sok minden látszik
+-  Ўзбекистонда яйловларнинг ярми инқирозга учрагани маълум қилинди.
+-  Боғча ва мактабларда янги йил байрами тадбирларини ўтказиш бўйича тавсиялар эълон қилинди.
+-  רן קוז'וך: "מכבי תל אביב עייפה? היא עדיין הקבוצה הטובה בליגה שלנו"
+-  סמי בוראר יחזור להרכב הפועל חדרה נגד הפועל פתח תקוה
+-  [ŽT] „Ne, tai ne.“ Putinas pasiskundė dėl Macrono. Kas vyksta
+-  „Ukrainai liko vos metai“. NATO admirolas skelbia du scenarijus
