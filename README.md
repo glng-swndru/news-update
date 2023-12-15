@@ -1,11 +1,51 @@
 # Latest News
--  Blockchain kurz erklärt: Die Grundlagen der revolutionären Technologie
--  Dieselskandal: Weitere VW-Mitarbeiter müssen vor Gericht
--  Trina Solar alcança marco de 100 GW em módulos de 210 mm
--  Solidan ždrijeb za hrvatske klubove u osmini finala Eurokupa: Primorjaši na Dinamo, a jugaši protiv Vasasa
--  CHP'li İBB'nin ulaşım rezaleti: İETT otobüslerindeki sefer iptalleri ve arızalar İstanbulluları bezdirdi
--  Ölüm listesine para ödülü! Terör devleti İsrail son çare bunu da yaptı: Havadan ilan atarak duyurdu
--  AK Parti'den İstanbul'a özel temayül! 81 il için isim anketi çalışması
--  TPAO'dan yeni sondaj: 3 bin 130 metreye inilecek
--  Filistinli çocukları ziyaret eden Emine Erdoğan'dan yeni paylaşım
--  Asgari ücret belli oluyor! Kulislerde yeni rekor sinyali: İşte 'TEK ZAM' pazarlığında öne çıkan rakam
+-  Lekker kakken op een stoel in de vrije natuur, dat is natuurlijk de droom van elke vrouw
+-  PFDK’dan Elazığspor’a ceza!
+-  Hava değil zehir soluyoruz! İşte alarm veren ilçeler
+-  Erdoğan'dan yerel seçim açıklaması: Tarihi duyurdu
+-  Prens Harry'nin İngiliz Gazetesi'ne karşı davasında zafer
+-  中 “11월 코로나 사망자 단 8명” 주장…국제사회 거센 비판
+-  美 2024 국방수권법안 통과…‘미중전쟁 가능성’ 보고 의무화
+-  신성한 메시지를 화폭에 담은 예술가, 바치치아
+-  IT Sustainability Think Tank: Navigating towards a greener future for IT in 2024
+-  Prince Harry wins damages over phone-hacking by British newspapers
+-  Russland lobt Orbans Veto gegen Ukraine-Hilfen und kritisiert EU-Beitrittsgespräche
+-  Missing boy found in France expected to return to UK in next few days
+-  المنتخب المغربي النسوي الأول عربيا والثالث إفريقيا
+-  Znanstvenike zaprepastio sadržaj sonde pristigle s potencijalno opasnog asteroida: 'Što je ovo sad?'
+-  COCT warns of harsh consequences for drunk motorists, pedestrians
+-  Aktiviran humanitarni broj 1411: Tradicionalno donatorsko veče "S ljubavlju hrabrim srcima" 28. decembra
+-  MHP Genel Başkanı Bahçeli'den 'yerel seçim' jesti: Bir ilçede aday göstermeyecek
+-  Fitch'ten 13 Türk bankası için güzel haber: Sadeleşme adımları marjları destekliyor
+-  Alman ekonomisi için kötü haber: 2023'te ne kadar küçüleceğini açıkladı
+-  Bulgaristan'da korsan krizi: Kargo gemisi Umman Denizi'nde korsanlar tarafından ele geçirildi
+-  Yusuf Yazıcı'nın evine hırsızlar dadandı
+-  İzmir-Isparta seferini yapan Göller Ekspresi gündüz de yolcu taşıyacak
+-  Lancement 5G et accélération du déploiement de la fibre optique au Sénégal : Sonatel s’appuie sur l’opération titrisation de créances.
+-  Näin Venäjä reagoi EU:n histo­rialliseen päätökseen
+-  Vuoden euribor-korko jatkaa laskuaan
+-  Бенковски (Исперих) ще тренира в Шумен
+-  Észt miniszterelnök: Ukrajna nem fog támogatás nélkül maradni
+-  `Priscilla` movie review: A poignant portrayal of isolation
+-  `Silent Night` movie review: A generic revenge thriller from John Woo
+-  Nina Chuba auf Tour 2023/2024: Wann und wo ihre nächsten Auftritte stattfinden
+-  Travis Kelce says brothers want to bring famous podcast to UK after Taylor Swift-fuelled jersey spike
+-  Calum Scott auf Tour 2023/2024: Das sind seine nächsten Termine
+-  Confintesa “La contrattazione collettiva modello da ricostruire”
+-  INTERVJUU | Türgi-Eesti superstaar Ant Nurhan: ma olen laval vallaline, kodus aga abikaasa ja isa. Tahan, et pereelu oleks privaatne, me pole mingid Kardashianid!
+-  Die Parlamentswochen vom 18. Dezember 2023 bis 12. Jänner 2024
+-  Ο λόγος που ο 18χρονος δεν έγινε προστατευόμενος μάρτυρας παρά το αίτημά του (vid)
+-  Ξένος στο γήπεδο μόνος στο Πάφος-ΑΠΟΕΛ / Οι ορισμοί των διαιτητών
+-  Sulmi në Banjskë, Osmani: Serbia e dëshmoi se nuk dëshiron normalizim të raporteve
+-  ‘ফুটপাতে যে শীতের কাপড় কিনতে পারছি, এটাই অনেক’
+-  NSDC signs MoU with Saudi govt to protect rights of skilled labourers from India
+-  Affaire Ndiaga Diouf, Barthelemy Diaz va parler ce vendredi
+-  Wielka weekendowa promocja na Lego. Obniżki nawet o kilkaset złotych
+-  Suomelle kallis EU:n juomavesi­säännös voimaan 2032 – Siirtymäaika piteni
+-  Velika akcija policije: Hapšenja u nekoliko gradova u Srbiji i Evropi zbog dojava o bombama
+-  Despite CBN assurances, cash scarcity persists as banks limit withdrawals to N10k, ATMs dry up, PoS operators hike charges
+-  1200억 맨유 문제아, 친정팀에서도 거절…“스왑딜? 전혀 관심 없어”
+-  Amy Macdonald 'doing her bit' for Glasgow by reporting potholes as she jokes of 'life of a pop star'
+-  Täysin varmat kotivoittajat maustavat viikon vakiokierrosta
+-  IPOB: Nnamdi Kanu’s lawyer reveals next move after Supreme Court judgment
+-  Gözler Merkez Bankası'na çevrildi: Ekonomistlerin faiz beklentisi ne?
