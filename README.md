@@ -1,51 +1,11 @@
 # Latest News
--  Μαρινάκης για τις δηλώσεις Κασσελάκη: Η ματαιοδοξία δεν αποτελεί πολιτική πρόταση
--  Výbuch v rodinnom dome! O život prišla jedna osoba
--  خطيب المسجد الحرام: اللهم احفظ المسلمين في فلسطين وعليك بعدوك وعدوهم
--  Rodoviária de Sinop tem movimentação superior a 300 mil embarques
--  دارسة دولية تشيد بمعلمي الرياضيات في مدارس المملكة
--  Lei de 2014 dá poder ao Estado para vetar venda da Altice à Saudi Telecom
--  Mercado vê lacunas em novo Fiagro multimercado proposto pela CVM
--  Identical twins admit stalking their older sister
--  ‘Winter Eve’ agreement to get legislative backing in New Year
--  Microsoft dodaje podršku glasovne dikcije u novi Outlook za Windows
--  Ovih blagdana naučite sve o Huawei pametnim uređajima i osvojite vrijedne nagrade
--  Yearender 2023: From ‘Animal’ to ‘Tiger 3’, check out top 10 highest-grossing Indian films of this year
--  5 things to do this weekend: ADHD-AF festive show and Santa’s Grotto
--  Saundersfoot and District Historical Society Christmas Supper
--  Will the old Elgin Club ever be used again?
--  Dni wolne od pracy w 2024 r. Długie weekendy, święta, najlepsze pory na wyjazdy. Kiedy wziąć urlop, by odpoczywać jak najdłużej?
--  ΑΕΚ: «Έλληνες οπαδοί τραυμάτισαν σεκιούριτι – Υπήρξε μια σύλληψη» σύμφωνα με την ολλανδική αστυνομία
--  INTACH released the book “Beyond Obvious: Odisha-Karnataka Relationship Over The Ages” written by scientist-turned-author Subhransu Mohapatro
--  Okov nastavlja ekspanziju – u Novom Sadu otvoren veliki prodajni...
--  MG 5 got zero stars in ANCAP crash test, offering poor safety
--  New Porsche Panamera arrives with more tech and greater levels of comfort
--  7 Ways Your Device Can Get Infected with Malware
--  Global Waterjet Cutting Machines Industry Report, 2022 and 2023-2030: An Industry Evolved through Innovations, Advancements Spearheading Growth
--  Virtual Internet Announces Start of Distribution of Virtual 5G in Indonesia with PT. ABC
--  “The Squad,” Part 3: The Last Gaza War
--  Τόσα παίρνουν οι διευθυντές και οι επιμελητές του ΕΣΥ - Μαρινάκης: «Δεν μιλάμε για golden boys»
--  Shreyas Talpade’s heart stopped for 10 minutes, reveals co-actor Bobby Deol
--  Hoa Kỳ: Tối cao Pháp viện có thể định hình lại sự tự do của mạng xã hội như thế nào
--  हरियाणा के सरकारी अस्पताल का खस्ता हाल! बत्ती गुल… टॉर्च की रोशनी में हुई डिलीवरी
--  França: Inflação cai para 3,5% em novembro
--  Produção industrial da China cresce em novembro, mas investimentos mostram estagnação
--  Adu Gaya Asnawi Mangkualam dan Philo Paz Armand, Mantan Kekasih Steffi Zamora yang Seorang Pembalap
--  TB burden very high among vulnerable Nigerians, NGO reveals
--  SC defers hearing on Mahua Moitra’s plea against Lok Sabha till Jan 3
--  Bauernverband ruft zu Protestkundgebung am Montag in Berlin auf
--  Ukrajinske snage noćas oborile 14 ruskih dronova
--  IND vs SA: 'सूर्या के लिए फील्डिंग सेट करना मुश्किल', डेविड मिलर ने की तारीफ
--  סרחיו ריקו: "רוצה לחזור לשגרה ולהרגיש שוב כמו כדורגלן"
--  Dzisiaj Baldur's Gate 3 mogłoby nie powstać. Właściciele licencji zwolnili pracowników
--  Gelsenkirchen: Wird das Obdachlosen im Winter zum Verhängnis? „Der letzte Halt“
--  Prämien für CL, EL und Conference League im Überblick 2023/24 – Wie viel Geld gibt es wo?
--  Prämien für CL, EL und Conference League im Überblick 2023/24 – Wie viel Geld gibt es wo?
--  গুলশান শপিং সেন্টার গুঁড়িয়ে দেয়ার নির্দেশ হাইকোর্টের
--  К Земле приближается магнитная буря после сильнейшей вспышки на Солнце
--  Sztori trailert kapott a Tekken 8
--  Otra suba: en Córdoba, el pan aumentó un 33% y el kilo de criollos ronda los $3.600
--  В Липецкой области выделят свыше 500 млн рублей на капремонт домов в 2024 году
--  Арда се раздели с вратаря си Иван Дичевски
--  Fuji Hanya Masa Lalu, Asnawi Mangkualam Bongkar Statusnya Sekarang
--  Russischer Verlag und Buchhandlungen entlassen Schriftsteller wegen pro-ukrainischer Äußerungen
+-  Grünsfeld: Ohne Zulassung und Führerschein unterwegs
+-  Politikertochter Andrea Tandler muss ins Gefängnis
+-  Wasserkraftwerk Wertheum: Wie laut darf das Rauschen einer Fischtreppe sein?
+-  Obdachloser in Müllpresse eingeklemmt: Ermittlungen laufen
+-  Erhält Laudenbach bald einen neuen Geldautomaten?
+-  Einbruch in Bürogebäude in Großheubach
+-  Verwilderte Katzen: Landkreis Kelheim ruft «Katzennotstand» aus
+-  Öffnungszeiten der Stadtverwaltung Wertheim
+-  Gaziantep'te milyonlarca liralık sahte deterjan operasyonu
+-  Cumhurbaşkanı Erdoğan: Adaylarımızı Aralık sonunda açıklayacağız
