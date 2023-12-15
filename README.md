@@ -1,11 +1,11 @@
 # Latest News
--  LIVE Lo Russo: la conferenza stampa del sindaco di Torino
--  LIVE Cairo: la conferenza stampa del presidente del Torino
--  Calcanhar de Arthur Cabral apurou Benfica, mas não valeu prémio
--  Berisha fsheh 28 deputetët që duan ta shpëtojnë nga arresti! Padia në kushtetuese, mbahen sekret firmat e deputetëve
--  Fenerbahçe'nin Konferans'tan kazandığı rakam belli oldu
--  Bakan Uraloğlu: Altunizade - Bosna Bulvarı arası 8 dakika 40 saniyede seyahat edilebilecek
--  Hedge funds fall victim to success in dash for cash
--  UK services firms report another pick-up in December
--  20-year-old dead after falling off escalator at north’s airport
--  Italian restaurant in London refuses to serve carbonara after too many customers demand to add 'cream, mushrooms and chicken' to the 'traditional Roman-style recipe'
+-  Blockchain kurz erklärt: Die Grundlagen der revolutionären Technologie
+-  Dieselskandal: Weitere VW-Mitarbeiter müssen vor Gericht
+-  Trina Solar alcança marco de 100 GW em módulos de 210 mm
+-  Solidan ždrijeb za hrvatske klubove u osmini finala Eurokupa: Primorjaši na Dinamo, a jugaši protiv Vasasa
+-  CHP'li İBB'nin ulaşım rezaleti: İETT otobüslerindeki sefer iptalleri ve arızalar İstanbulluları bezdirdi
+-  Ölüm listesine para ödülü! Terör devleti İsrail son çare bunu da yaptı: Havadan ilan atarak duyurdu
+-  AK Parti'den İstanbul'a özel temayül! 81 il için isim anketi çalışması
+-  TPAO'dan yeni sondaj: 3 bin 130 metreye inilecek
+-  Filistinli çocukları ziyaret eden Emine Erdoğan'dan yeni paylaşım
+-  Asgari ücret belli oluyor! Kulislerde yeni rekor sinyali: İşte 'TEK ZAM' pazarlığında öne çıkan rakam
