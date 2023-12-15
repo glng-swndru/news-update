@@ -1,11 +1,11 @@
 # Latest News
--  توقف تدفق المياه.. خبير موارد مائية يكشف تطور جديد في أزمة سد النهضة
--  رئيس الوزراء وعدد من المسئولين في عزاء حرم محافظ البحر الأحمر -(صور)
--  Carl Zeiss Meditec AG announces agreement to acquire Dutch Ophthalmic Research Center (D.O.R.C.)
--  تناول اللإفطار في وقت مبكر يقي من هذه الأمراض
--  Макрон розповів, яку обіцянку Орбан дав йому щодо вступу України в ЄС
--  2,311 Repentant Insurgents Reintegrated Into Society – IOM
--  İsrail ordusu Gazze Şeridi’nde bulunan 3 esiri yanlışlıkla öldürdüğünü açıkladı
--  Firefox Android uygulamasına kullanıcıların beklediği özellik geldi
--  Oyo, Ogun govts assure residents of adequate security during festivity
--  Sjutra vjetrovito i hladno, na sjeveru ponegdje snijeg
+-  נתניהו על הרג החטופים בעזה: "טרגדיה קשה מנשוא"
+-  هيرش: إسرائيل ستقتل جميع قادة حماس بمجرد أن تستلم آخر رهينة
+-  Danimarkalı firma, Husilerin İsrail bağlantılı gemilere saldırdığı Kızıldeniz'deki seferlerini durdurdu
+-  La Liga: Xavi speaks on resigning as Barcelona manager
+-  Kenan Karaman attı, Schalke 1 puanı kaptı!
+-  Ребус из школьного учебника поставил взрослых в тупик
+-  卓球 女子の国際大会 早田ひな 世界3位の中国選手に惜敗
+-  Oroscopo 2024, "un'occasione irripetibile": il segno per cui può cambiare tutto (a patto che...)
+-  Workers will continue to enjoy better welfare package – Mbah
+-  Venezolanos apuñalaron y le rompieron el brazo a un anciano por haber chocado una moto en Perú
