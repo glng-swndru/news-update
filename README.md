@@ -1,11 +1,51 @@
 # Latest News
--  Declara jueza culpable a Aras de fraude
--  Analizará Cámara de Diputados resolución sobre Carmona
--  Despenaliza Aguascalientes el aborto
--  'इस साल 10 महीनों में 2,366 किसानों ने दी अपनी जान', विधानसभा में मंत्री का दावा
--  Vrishabha Varshik Rashifal 2024:वृषभ राशि वालों के लिए उन्नतिदायक रहेगा नया साल, शनि की भी रहेगी कृपा
--  ৩৩ দেশের নাগরিকদের জন্য যে সুখবর দিল ইরান
--  Gastbeitrag: Umgang mit AfD – Demokratie stärken und Angst überwinden
--  아이티센, 부산디지털자산거래소 설립·운영 사업자 선정
--  한화시스템, 280억원 규모 빅데이터·AI ‘자동기뢰탐지체계’ 개발 착수
--  버즈니, 홈쇼핑모아 내 무료 AI 프로필 ‘AI 사진관’ 오픈
+-  “맨유 공격수 뭐하냐?”... 맨유 소속으로 올드 트래포드에서 득점한 마지막 공격수→‘산초’
+-  Sustained buying interest lifts investors’ worth on NGX by N85bn
+-  Tripti Dimri Fees:रणबीर कपूर के साथ इंटीमेट सीन के लिए तृप्ति डिमरी को कितनी फीस मिली? जानकर हैरानी होगी
+-  자산관리에 ‘원칙’과 ‘기준’ 중요 [BOOK in BOOK]
+-  Ampel tritt auf die Bremse: Türkei erhält kaum noch deutsche Rüstungsexporte
+-  काजोल-अजय देवगन की बेटी नीसा किस कॉलेज में है, क्या पढ़ रही है, कितनी है फीस?
+-  SK에코플랜트, UAE·오만서 그린수소·그린암모니아 프로젝트 착수
+-  Σέλτικς - Καβαλίερς 116-107: Στο ίδιο έργο θεατές και νικητές (vid)
+-  श्रेयस तलपड़े को पड़ा दिल का दौरा, हुई एंजियोप्लास्टी, जानें एक्टर को क्या हुआ, अब कैसी है उनकी तबीयत
+-  안신일 세종시의원 “세종 BRT 자전거대회 만들자”
+-  민주당, 홍보위원장에 한웅현 전 LG전자 상무 임명
+-  주특기 ‘외환’…미국 빅테크 관련주 비중 확대 [BOOK in BOOK]
+-  सूर्य गोचर 2023: 16 दिसंबर को सूर्य करेंगे गोचर, देश के मौसम पर पड़ेगा असर
+-  Los empresarios celebraron la reacción de los mercados a las medidas de Toto Caputo, pero mostraron sus dudas
+-  मूल्य वृद्धिदर २६ महीनायताकै न्यून
+-  मर्जर र एफपीओको आम्दानीमा लाभकर सदर
+-  १० कित्ते नीति हटाउन खोजिएको होइन : हमाल
+-  China apuesta por la inteligencia artificial para modernizar su red de transporte fluvial
+-  The beautiful, remote island fit for an (exiled) emperor
+-  State Govt reveals 10-year forests plan
+-  Hoy, aumento de las temperaturas máximas en gran parte del país
+-  The Hong Kong Chartered Governance Institute elects President and Council for 2024
+-  RE100 가입한 LS일렉트릭…“2024년까지 재생에너지 100% 전환”
+-  Addressing the Rising Myopia Challenge: HOYA Lens Singapore's MiYOSMART Sun with Full Control Lenses
+-  На Камчатке родители участников СВО смогут получить бесплатный земельный участок
+-  Движение пассажирских поездов в Жамбылской области возобновлено
+-  Abdulkadir Selvi: İYİ Parti bu seçimlerde ittifak yapmama kararı aldı ya, İmamoğlu parmağını soktu İYİ Parti'yi karıştırmaya başladı
+-  Unlucky Zodiac Signs in 2024: इन 3 राशियों को आने वाले साल में करनी होगी खूब मेहनत, नहीं मिलेगा भाग्य का साथ
+-  잇단 가격 인상에 OTT 요금제 들여다봤다…“그래서 얼마야?”
+-  Asnawi Akhirnya Ngaku Kasih Bunga ke Fuji: Puas Kalian!
+-  Ganjar Sentil Faskes Melahirkan Minim di Puskesmas, Menkes Budi Angkat Suara
+-  Harga Emas Antam Hari Ini Naik, Cek Selengkapnya di Sini!
+-  권아솔 ‘내일 시합 기대하세요’ [MK포토]
+-  한글로 맞이하다니, 이정후에 진심이네… SF, 이정후 영입 공식 발표
+-  100명 넘는 고객, 이직할 때 함께 자산 옮겨 [BOOK in BOOK]
+-  เน้นให้ความช่วยเหลือราษฎร ให้สอดคล้องกับสภาพปัญหา ความต้องการของราษฎร
+-  Cara Download dan Menggunakan HyperOS Control Center di HP Xiaomi
+-  PJ Masks: Power Heroes Season 1 Streaming: Watch & Stream Online via Disney Plus
+-  Bihar Business Connect Global Summit 2023 Attracts Staggering Investments Of Rs 50,530 Cr
+-  Indian Envoy To US Explores Tech Collaboration With IBM
+-  कहानी उस लड़की की, जो एक रात बिस्तर पर सोई, फिर कभी नहीं मिली!
+-  मुगुबाट चीन जोड्ने सडक नौ वर्षमा पनि बनेन
+-  Çin Merkez Bankası likiditeyi artırdı
+-  अंक ज्योतिष 2024: इस 3 तारीख को जन्मे लोगों के लिए नया साल रहेगा शानदार, मिलेगा पैसा, सम्मान और प्यार
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Aktiefest i Hongkong efter kinesisk injektion
+-  ثقافة الفيوم تحتفي باليوم العالمي للغة الضاد
+-  السبت.. انطلاق الملتقى الرابع عشر لفتيات المحافظات الحدودية بأسوان ضمن مشروع "أهل مصر"
+-  SG, 우크라이나 미콜라이우 주정부와 도로 재건·현대화 협력 MOU 체결
+-  신보, 예보와 '내부통제 강화 위한 업무협약' 체결
