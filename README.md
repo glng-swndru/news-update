@@ -1,51 +1,11 @@
 # Latest News
--  아이브 장원영, 완벽한 인형 미모
--  To litauere i kritisk tilstand efter færdselsulykke nær Nykøbing Falster
--  To litauere i kritisk tilstand efter færdselsulykke nær Nykøbing Falster
--  자이디 사장 “이정후, 우리에게 딱맞는 선수...주전 중견수로 뛸 것” [현장인터뷰]
--  “허경영 불로유, 위험물질 없다”…국과수 분석 결과 ‘이상무’
--  Mourinho y Roma acuerdan pagar 21.000 dólares por acusaciones a los árbitros
--  El crimen de un menor genera reacción
--  ROAR Organics Prioritizes RTDs, Marketing Spend With New $6M
--  Exploring the Magic of Paris: A Traveler’s Guide
--  شركة شحن ألمانية تعلق مرور سفنها في البحر الأحمر
--  للمرة الثالثة .. طلاق شيرين عبد الوهاب وحسام حبيب
--  فيديو يوثق اعدام الاحتلال لفلسطيني اعزل في الفارعة
--  القيادة المركزية الأميركية: 3 هجمات جديدة للحوثيين بالبحر الأحمر
--  قوات الاحتلال تقتحم عدة مدن بالضفة الغربية
--  Farense e Estrela da Amadora empatam a zero no arranque da 14.ª jornada
--  Global Core Clinical Molecular Diagnostics Market Research Report 2023-2029 - Integration of AI and Data Analytics to Deliver Highly Accurate and Rapid Results
--  Israel libera entrada de ajuda em Gaza após pressão para proteger civis
--  Joan Garcés y plebiscito en Chile: «Sería la Constitución más regresiva de toda la historia de Chile y además legitimada democráticamente» (Video)
--  Argentine President Javier Milei raffles off his last salary as lawmaker
--  La Libertad: Demandan reactivación de Coordinadora Regional Multisectorial en Salud
--  Manta: un hombre muere dentro de un local
--  توقعات الأبراج وحظك اليوم 16-12: نصيحة لـهولاء وخيبة أمل لـهذا البرج
--  وزير التعليم العالي يستقبل السفير اللبنانى لبحث أوجه التعاون بين الجانبين
--  الأرصاد تحذر من الشبورة المائية على القاهرة والطرق الزراعية
--  أدنوك الإماراتية تشتري كامل حصة "أو سي آي جلوبال" في فيرتيجلوب
--  Gayle Benson Makes Historic Donation for New Home for Ochsner Children's Hospital
--  Genoa Juventus risultato 1-1: gol di Chiesa su rigore e Gudmundsson
--  ينتهي اليوم.. طريقة التقديم على برنامج علوم الطيران للتدريب المنتهي بالتوظيف
--  "Filistin yönetimi Gazze'de yönetimi devralabilecek güçte"
--  37 ilde Kafes-18 Operasyonu! Gözaltına alınanların 6'sı tutuklandı
--  Tottenham yükselişe geçti!
--  Lyon tek golle rahatladı!
--  Yunan unsurlarınca Türk kara sularına itilen lastik botlardaki 57 düzensiz göçmen kurtarıldı
--  Bursa'da otomobil köprüden düştü: 4 yaralı
--  “아드님이 진료실 들어오겠다는데”…전청조, 남현희 아들로 착각한 간호사 왜?
--  Matthew Perry: emergono nuovi, tristissimi dettagli sulla morte della star di Friends. E sconvolgeranno i fan
--  القسّام تستهدف القدس المحتلة بالصواريخ
--  Dr Disrespect says Amazon should axe Twitch after “Artistic Nudity” fiasco
--  Pedestrian struck, killed in southwest Minnesota
--  Jon Hamm to Star in New Series 'Your Friends and Neighbors' on Apple TV+, His First Lead TV Role Since 'Mad Men'
--  „Kada se u Lokarnu prolomio aplauz, nikada ništa slično nisam osetio“: Dragan Bjelogrlić o „Čuvarima formule“
--  Mico Ahonen paras suomalainen, pääsi toiselle kierrokselle
--  Tottenham vajaalukuisena voittoon – myös VAR auttoi
--  Juventukselle paha takaisku
--  Najveća zaplena u istoriji Tasmanije
--  이장우, 파인다이닝 70만원 결제→전현무X박나래 목걸이 선물 '대만 팜유세미나 FLEX' [나혼산](MD리뷰)
--  로운(ROWOON), 얼굴이 다했어~ 진정한 '얼굴천재' 등극!
--  이규형 "'백사장2'보다 힘들었던 '노량', 영광스러웠다…한국인이라면 꼭 봐야" [MD인터뷰](종합)
--  '안정환♥' 이혜원 "두 아이, 부추의 힘으로 탄생" 출생의 비밀 공개[선넘은패밀리]
--  송진우 "♥日아내, 부부싸움 하다 옷 찢어…다음날 지퍼 달아놔" [선넘은]
+-  무득점에도 빛난 손흥민…‘슈팅 4회+드리블 성공 3회’→평점 7.3
+-  Suspect in Antisemitic Vandalism in Burbank, Glendale Arrested
+-  Antonio Sanint, el actor que le hizo una pausa a la televisión para llenar teatros burlándose del sexo
+-  KLIČKO: Ukrajinske jedinice PVO gađaju ruske dronove iznad Kijeva
+-  PRONOS PARIS RMC Le nul du jour du 16 décembre – Liga - Espagne
+-  UFC 296: Leon Edwards - Colby Covington. Kiedy gala? O której godzinie? Transmisja TV i stream online
+-  عثمان جلال: بين تجربة التيار الاسلامي الوطني وقحت في الحكم هناك فرق
+-  死結︱最新民調：巴民眾贊同哈馬斯襲擊 以民眾支持以軍繼續戰爭
+-  Rekordan nivo beskućništva u SAD – za samo godinu dana broj ljudi bez doma skočio za 12 odsto
+-  مشروع قرار من سيناتور لوقف المساعدات الأميركية لإسرائيل
