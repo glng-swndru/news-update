@@ -1,51 +1,51 @@
 # Latest News
--  Naxçıvan
--  Јаревски: Коалицијата СДС и ДУИ преку изведувачот Стевчо Јакимовски отворено фаворизираат бетонизација на Карпош за бизнис од 600 милиони евра
--  Kontrakty pokazują wiarę w dalsze wzrosty w USA
--  Homicidio frustrado en Estación Central: hay dos detenidos y agresión estaría vinculada a “problema entre bandas”
--  국민의힘, 성탄 전후 비대위원장 정할듯…주류 "한동훈 장관이 적임자"
--  Body is found in hunt for Gaynor Lord: Police say divers have recovered body from river - a week after the married mother-of-three was last seen on CCTV running through Norwich city centre
--  News24 | IMF gives R2.8bn to DRC government days before elections
--  Kritik COP28 oleh WRI Indonesia, Global Stocktake Jadi Isu Utama
--  Kinh tế Argentina: Không có tiền!
--  Galatasaray'da Taraftarı Heyecanlandıran Transfer Atağı
--  Historic homes restoration expert, 72, broke planning laws by carrying out work to his Grade-II listed £1.5m Cotswolds farmhouse without permission after he became 'frustrated' with council delays
--  Historic homes restoration expert, 72, broke planning laws by carrying out work to his Grade-II listed £1.5m Cotswolds farmhouse without permission after he became 'frustrated' with council delays
--  Köy Meclisinde 3 El Bombası Patladı: Çok Sayıda Kişi Yaralı!
--  Взорвавший гранаты в сельсовете на Украине депутат входит в партию "Слуга народа"
--  박호형 의원, 한국수산회 공로패 수상
--  제주도의회 ‘아주 뜻깊은’ 송년 나눔 행사 개최
--  Commercial ship 'is hijacked by pirates' and heading towards Somalia: Crew 'no longer in control' as Spanish warship heads to intercept
--  Body is found in hunt for Gaynor Lord: Police say divers have recovered body from river - a week after the married mother-of-three was last seen on CCTV running through Norwich city centre
--  Commercial ship 'is hijacked by pirates' and heading towards Somalia: Crew 'no longer in control' as Spanish warship heads to intercept
--  Petrovska: Sot kemi mundur të marrim lajme të mira nga Brukseli, por opozitës i mungon vizioni
--  Ovo su četiri razloga zašto će 2024. biti uzbudljiva za tržište prijenosnih računala
--  [ŽT] N-18! Užkarpatėje deputatas susprogdino granatas sesijos metu. Klaikaus sprogimo video
--  Netikėta. Moldova gali užmegzti ryšius su Rusija, vadovaujama Putino. Sandu įvardijo sąlygą
--  [ŽT] Ar Rusija pasirengusi baigti karą. Putinas atsakė
--  Taip pasiruošimas Kalėdoms atrodė Lietuvos dvaruose: rūpinosi dovanomis ir menine programa svečiams
--  [ŽT] Karas atšaukiamas. Venesuela pakeitė savo nuomonę. Kas vyksta
--  Fantastiškai geros kainos 2in1 suvirinimo aparatas. Tinka ir profesionalams. Paskutiniai vienetai
--  Atakuotas Vokietijos laivas. Paleistos raketos. Kas vyksta (Video)
--  [ŽT] „Tankas tiesiogine ugnimi smogia rusams.“ Kas nutiko prie Synkivkos (Video)
--  Jei žvilgsnis galėtų nužudyti. Latvijos premjerės ir Orbano susitikimo nuotrauka (Foto)
--  JAV nori pastatyti į vietą Kiniją ir Rusiją. Kas vyksta
--  Agresijos ir praradimų simbolis. Kodėl Rusija prarado tiek daug Ka-52
--  [ŽT] Visai išprotėjo. Nuskendusiam kreiseriui „Moskva“ paskirtas naujas vadas
--  Kindu : sensibilisation de la population sur l'utilisation des Dispositifs électroniques de vote
--  FT: Маск заверил кредиторов, что они не потеряют деньги на сделке с X
--  Azərbaycan çempionatında möhtəşəm qol
--  Названо количество выпавших в Москве осадков
--  Sri Mulyani: Penerimaan Pajak Lampaui Target APBN, Nilainya Rp 1.739,84 Triliun
--  The end of conflict over Nagorno-Karabakh?
--  बांदा जिले में तैनात महिला जज ने सीनियर पर लगाया यौन उत्पीड़न का आरोप... CJI को पत्र लिखकर मांगी इच्छा मृत्यु
--  Kickoff | Al Ahly star sends warning to Benzema & Al Ittihad
--  صحة المنيا تكرم مدير الإدارة العامة للطب الوقائي لبلوغه سن المعاش
--  إقالة وإدانة وإشادة.. «صلاة يهودية» بمسجد جنين تثير جدلا واسعا
--  Paris Saint-Germain interested in January move for injured Manchester United star Casemiro
--  Amanda Holden and Ashley Roberts match in £180 feathered pyjamas and heels as they celebrate Christmas at Heart FM
--  Drejtoria e doganave fillon projektin sistem i ri me një sportel, që do të lehtësojë tregtinë
--  Путин выступил за сохранение размера первого взноса по семейной ипотеке
--  بدء تفريغ شحنة مساعدات إماراتية لغزة نقلتها سفينة من ميناء الفجيرة للعريش
--  Everyman Media Group buys two cinemas from collapsed chain
--  Fixed-rate mortgages could fall below 4% within weeks amid a price war, experts say
+-  Сетек слави јубилеен 30 роденден со големи попусти
+-  تحجر البطن ... علامة على الإصابة بهذه الأمراض
+-  정우성 "'썸녀'가 선 그으면 후진…직진은 20대 때나"
+-  تموين الإسكندرية: تحرير 174 محضرا لمخابز بلدية مخالفة
+-  إصابة مراسل الجزيرة وائل الدحدوح بجراح إثر استهداف للاحتلال في خانيونس (صور)
+-  스콜스·퍼디낸드 극대노→맨유 장난하나? "케인과 라이스를 영입했어야지!"
+-  Mord nach 27 Jahren gelöst - Archie bringt seinen Babysitter in den Knast
+-  Staatsanwaltschaft ermittelt - Mann stirbt nach Partynacht im Berghain
+-  Volle Hütte zum Derby? HSG Wetzlar wartet auf MT Melsungen
+-  Una tortilla con encanto… también en casa
+-  В Германии вновь врастет минимальная зарплата
+-  USA: Hamas nutzt menschliche Schutzschilde - Belastung für Israel
+-  Fitch'ten Türk bankaları için değerlendirme
+-  "Stvoriti uslove da se CBCG oslobodi imidža zarobljene institucije"
+-  250 golf enthusiasts take part in NR Golf Open tourney
+-  Путин: Крымский мост хотели строить Николай II и Сталин, а смогли мы
+-  Karnataka wins legal battle over ‘KSRTC’ as Kerala loses the case
+-  Corte das taxas de juro? A questão é "quando vai acontecer"
+-  Ili je paranoičan ili zna nešto što obični smrtnici ne znaju: Zuckerberg gradi tajni kompleks na vrlo znakovitoj lokaciji...
+-  Diversión y aventuras en La Ciudad Mágica
+-  YSRCP govt. neglected Srikakulam development, says JSP
+-  Kolinje i trgovina svinjskim mesom u ponedjeljak mogu početi
+-  دراسة: الخوف المفرط من مرض خطير قد يؤدي إلى الوفاة المبكرة
+-  مسئول أمريكي: إسرائيل أبلغت واشنطن أن عمليتها العسكرية ستكتمل خلال 3 أسابيع
+-  PS5 Pro: Weitere Insider bestätigt das Upgrade – Sony mit einer eigenen DLSS-Lösung?
+-  Rally against drug abuse taken out in Tiruchi
+-  Die Förderung der Elektromobilität in Luxemburg: wie und warum?
+-  Od idućeg tjedna bit će omogućena trgovina svježim mesom i svinjokolja: EK dozvolila Hrvatskoj blaže mjere
+-  I played for Arsenal Invincibles and only one player from Premier League rival gets in that team
+-  Меџити: Следната недела лекот Трикафта кај пациентите
+-  Ausgerechnet vor VfB-Kracher - Bayern-Sorgen um Kane!
+-  Monster GUILTY of murdering ex and dumping her body in lay-by before hatching grim plot to pretend she was still alive
+-  Monster GUILTY of murdering ex and dumping her body in lay-by before hatching grim plot to pretend she was still alive
+-  BÖRSEN-AUSBLICK/Neue DAX-Rekorde dank Window-Dressing zu erwarten
+-  USA: Hamas nutzt menschliche Schutzschilde - Belastung für Israel
+-  CNN: Украина без помощи США и НАТО может продержаться несколько месяцев
+-  Everyone can spot the cat and you’d be mad to miss the dog – but only those with a high IQ can find the hidden fish
+-  Everyone can spot the cat and you’d be mad to miss the dog – but only those with a high IQ can find the hidden fish
+-  BPH Migas Prediksi Penyaluran Gasoline dan Avtur Naik di Periode Nataru
+-  Kecelakaan Bus PO Handoyo di Tol Cipali, 12 Orang Tewas, 7 Alami Luka-luka
+-  Bilateral total jaw joint replacement done at Chennai hospital
+-  Burial Photos Of Nigerian Man Who Committed Suicide After Losing N2.5M Bet
+-  وزير حرب الاحتلال: الحرب على غزة ستستمر لأكثر من عدة أشهر
+-  ‘It’s a shame we will never see it’ The Last of Us fans cry as game creator cancels big upgrade
+-  ‘It’s a shame we will never see it’ The Last of Us fans cry as game creator cancels big upgrade
+-  Los agujeros negros podrían usarse como enormes baterías cósmicas
+-  Spor princa Harryho s bulvárom je na konci. Súd potvrdil, že bol obeťou odpočúvania
+-  Pogledajte u njene ruke i znaćete da će da vara: Ovaj prst odaje preljubnicu
+-  Юніон - Ліверпуль 2:1: огляд матчу
+-  Bağımlılık yaşı 12’ye düştü
