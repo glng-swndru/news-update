@@ -1,11 +1,11 @@
 # Latest News
--  Israël annonce avoir tué trois otages identifiés « par erreur » comme une « menace »
--  Me Moussa Diop envoyé en prison
--  '똑부러지는 MC' 장원영 "내년엔 전 세계로 나가는 문 열 예정" [뮤뱅 글로벌 페스티벌]
--  [손태규의 직설] 日한신 38년만의 우승 비결 밝혀졌다→바로 흰쌀밥 덕분
--  ‘싱글 인 서울’ 박범수 감독 “이솜, 임수정이 긴장할만큼 위협적”[MD인터뷰]
--  '2연승+선두권 추격' 토트넘, 수적 열세에도 노팅엄에 완승...손흥민 88분·쿨루셉스키 1골 1도움
--  충격적인 경질설→6년만에 우승했는데…10개월만에 해임→'무리뉴 데자뷔'→후임보니 한숨만....
--  VIDEO: Jasikevičius se trijumfalno vratio u EL, šok(ovi) za Oly i Barcu
--  ¿A mal tiempo buena cara?
--  Кулушевски поведе Тотнъм към втори пореден успех, с който "шпорите" настигнаха Ман Сити
+-  BE zhbllokon 5.5 miliardë dollarë ndihmë për qeverinë e re të Polonisë
+-  Niezwykła seria indeksu S&P 500. Zdarzyło się to po raz pierwszy od 6 lat
+-  Péntek esti foci: Ébredezik a Lyon, botlott a Juve
+-  بعد فوز الأهلي على اتحاد جدة.. مكاسب خيالية للمارد الأحمر في آخر 3 شهور
+-  A 24 años de la tragedia de Vargas: lo que se hizo, lo que no se hizo y lo que NUNCA se tuvo que hacer
+-  Fatime Fetai kandidate për kryeprokurore në vend të Jovevskit
+-  La vialidad de la gran Caracas y el «trajín» del venezolano
+-  Biden-Erdogan bisedojnë për anëtarësimin e Suedisë në NATO
+-  Richarlison marca, Tottenham vence o Forest e encosta no City na briga pelo G-4 da Premier League
+-  Definidos premios colaterales del Festival del Nuevo Cine Latinoamericano
