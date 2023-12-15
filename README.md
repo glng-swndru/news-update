@@ -1,11 +1,51 @@
 # Latest News
--  [[사설]50년뒤면 생산인구 1명이 노인 1명 부양해야 한다니
--  [[사설] 美 금리인하 청신호...들뜨기보다 차분히 대비할 때
--  [KB금융 6개 계열사 CEO교체...양종희號 ‘안정 속 변화’ 선택
--  [MZ도 홀린 공연 묘수…연말 가왕은 더 빛났다
--  [신한銀 배달앱 ‘땡겨요’ 이용 ‘반토막’
--  [[헤럴드포토] 연일 이어지는 겨울비
--  [3분기 보험사 가계대출 1조 증가
--  [쌓이는 저축銀 매물...내년 부동산PF 위험 본격화 탓
--  [이재명에 힘 싣는 文 “의회 권력까지 내주면 안돼”
--  [반도체 동맹 끌어낸 尹, 개각·예산안·쌍특검 현안 ‘산적’
+-  «C'était mon ami et il m'a viré !» : Ce que vous risquez à faire venir un proche dans votre entreprise
+-  Test des Bose QuietComfort Ultra Earbuds: Un défaut incompréhensible à ce prix-là!
+-  Westpac NZ forecasts no rate hikes, or cuts, from the RBNZ in 2024
+-  Itc Share Price Live blog for 15 Dec 2023
+-  Berger Paints India Share Price Live blog for 15 Dec 2023
+-  Icici Bank Share Price Live blog for 15 Dec 2023
+-  Stephen Totilo launches Game File
+-  Barnyard Games secures $3.4m in seed funding round
+-  Stephen Totilo launches Game File
+-  Barnyard Games secures $3.4m in seed funding round
+-  Sbi Share Price Live blog for 15 Dec 2023
+-  Sketch History
+-  Campus Activewear Share Price Live blog for 15 Dec 2023
+-  [뉴스3끼] “이적 단체와 연계성이 의심된다”
+-  IDFC Share Price Live blog for 15 Dec 2023
+-  ปศุสัตว์ จ.แพร่ เข้าร่วมการออกหน่วยแพทย์อาสาฯ
+-  ตรวจเช็คความเสี่ยงเบาหวานรู้ทันรักษาได้
+-  ACC Share Price Live blog for 15 Dec 2023
+-  Atrapan a ‘carjacker’ cuando huía en auto robado
+-  Se coordinan para defender a las mujeres migrantes
+-  Claman por seguridad y orden en Nuevo Casas Grandes
+-  Honran el amor que compartieron en vida
+-  Asesinan a tiros a hombre en la colonia Aztecas
+-  Ntpc Share Price Live blog for 15 Dec 2023
+-  '돼지머리에 5만 원 꽂고 절했다가 선거법 위반 혐의' 국힘 구자근 의원 검찰 송치
+-  영양군, '면단위 LPG배관망 구축사업' 주민설명회 개최
+-  경기도, 평택middot;남양주 공공임대주택 3곳 거주자 커뮤니티 활동 지원
+-  문경시, 2024년 상반기 대학생 일자리사업 참여자 모집
+-  문경관광진흥공단, '소비자 중심경영(CCM)' 인증 취득
+-  상주시, 최초 생산 흰색 딸기(신데렐라) 해외시장 첫 수출
+-  마산대 평생교육원, 2023 페스티벌 성황
+-  '치유섬' 추진, 고성 자란도 정기 뱃길 열려
+-  [문상윤 식품전문기자의 건강한 음식 이야기] ⑫겨울의 황금빛 즐거움, 최고의 제철 음식 감귤
+-  [최태호의 우리말 바로 알기] lsquo;소신공양rsquo;과 lsquo;자살rsquo;과 lsquo;극단적 선택rsquo;
+-  충남도교육청 교육행정정보시스템(나이스) 특별 점검
+-  경기도, 국토부 '공공분야 드론활용 경진대회' 우수상 수상
+-  대천 겨울바다 보면서 스케이트 즐기자
+-  대전시 첫 청년주택 '구암 다가온' 425가구 입주자 모집
+-  quot;중증질환도 무상의료 준해야quot;...창원 강기윤 의원 '강조'
+-  하남시청 공무원 무더기 징계hellip; quot;도의원 땅 허가 잘못 내줘quot; 된서리
+-  한전MCS(주)이천지점, 동절기 안전결의대회 개최
+-  진안군, 상수도 요금 감면 대상 확대 시행
+-  익산시, 보건복지부 '의료급여사업 평가' 우수기관 선정
+-  박성재 전남도의원, 한국수산업경영인협회 감사패 수상
+-  '빵' 터진 박지성, 국힘 영입설에 quot;정치인? 앞으로 제의 안해주셨으면 좋겠다quot;
+-  Infosys Share Price Live blog for 15 Dec 2023
+-  해외서 늘 구설수 생기는 윤 대통령, 이번엔 과도한 의전 요구로 초치까지 당해?
+-  민주당은 얼마나 더 이겨야 '문제'를 해결할까?
+-  박빙의 대만 총통선거 판세, 초조해지는 중국
+-  땅은 공공, 건물은 개인소유 '반값아파트', 성공할수 있을까
