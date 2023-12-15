@@ -1,51 +1,11 @@
 # Latest News
--  To litauere i kritisk tilstand efter færdselsuheld nær Nykøbing Falster
--  Tres pueblos unidos en torno a un belén viviente
--  Anna ‘Chickadee’ Cardwell’s husband recalls her final breath: ‘Everyone was crying and freaking out’
--  Valdet Xhaferi heq dorë nga pozita e drejtorit për përkushtim më të madh në Degën e BDI-së në Gostivar
--  Halley’s Comet is finally heading back towards the sun
--  Vaga de frio assola a Ásia: neve e gelo encerram escolas na China
--  Audi-Fahrer gerät auf B469 ins Rutschen
--  남성 육아휴직이 합계출산율 높인다?[노컷체크]
--  Bild заявив про плани РФ захопити Харків, Запоріжжя і Дніпро: в ГУР оцінили шанси
--  గవర్నర్‌తో అబద్ధాలు మాట్లాడించారు
--  Получивший порез шеи хоккеист Люлько избежал серьёзных травм
--  El Lenovo Tenerife muestra su cara más navideña con su primer villancico original
--  Inicia construcción de nuevo edificio de Cruz Roja de Cuauhtémoc
--  Dice Samuel que puede hacer precampaña con Mariana
--  Lanza Timberlake indirecta a Britney en show de Las Vegas
--  Måltavle gik i ged på afgørende tidspunkt: Det var belastende
--  Convocan a 'Abriendo las Puertas 2024' para artistas visuales, escultores y creadores
--  Måltavle gik i ged på afgørende tidspunkt: Det var belastende
--  Digitalno-duhovno hodočašće: Međugorje IT kongres – ITM od 7. do 10. ožujka 2024.
--  Chiefs' Isiah Pacheco ruled out again after 'a cleanup' surgery on his ailing shoulder
--  Man found dead next to power poles during thunderstorm
--  Man found dead next to power poles during thunderstorm
--  İşgalci İsrail ile ticaret yüzde 48 azaldı: Bakan Bolat rakamları tek tek açıkladı
--  30 metrelik uçurumdan yuvarlan hafriyat kamyonunun şoförü yaralandı
--  إيمان كريم تهنئ فريق كرة الهدف للمكفوفين للتأهل إلى بارالمبياد باريس
--  Ángel Cristo Jr se ríe al preguntarle si dejará que Bárbara Rey disfrute de su nieta en Navidad
--  تعرف على عقوبة تقديم بيانات غير صحيحة للقيد فى السجل التجارى
--  U pucnjavi u Podgorici povrijeđen strani državljanin
--  خالد البلشى يطالب بفتح تحقيق دولي في استهداف الصحفيين الفلسطينيين
--  الخارجية الأردنية: استهداف الصحفيين محاولة لطمس الواقع
--  كانت ملكة جمال.. أب فلسطيني يودع ابنته بعد استشهادها "فيديو وصور"
--  تفاصيل قتل الاحتلال الإسرائيلى 3 رهائن بالخطأ بمنطقة الشجاعية فى غزة
--  رئيس المركز القومى للسينما ينعى المخرج أحمد البدرى
--  إصابة بشرى بالتواء بقدمها فى مهرجان الجونة وتدعم فلسطين بالعلم وعلامة النصر
--  مهرجان القاهرة الدولى للفيلم القصير يكرم تهانى راشد وصفى الدين محمود
--  بشرى وأحمد حاتم ونور النبوى فى عرض فيلم "الأستاذ" بمهرجان الجونة
--  Asumieron las nuevas autoridades de la Policía de Córdoba
--  నా కోసం ట్రాఫిక్‌ ఆపొద్దు
--  Proposta do OE são-tomense para 2024 ronda os 178 milhões de euros
--  Euroleague: Νικηφόρο το ντεμπούτο του Γιασικεβίτσιους στη Φενερμπαχτσέ
--  الشحات: قدرات الأهلي تظهر في المباريات الكبيرة وأهنئ الجماهير
--  Albania returns 20 stolen icons to neighboring North Macedonia
--  Śladem Brauna zaatakowali chanukowy świecznik. Sprawcy obrzydliwego czynu w rękach policji
--  Managers have ‘huge duty’ to behave well, says Arteta
--  오늘의 날씨 - 오전 (2023년 12월 16일)
--  Ermənistan Hindistandan bu raket sistemlərini alacaq
--  وزير الخارجية يبحث مع نظيره النرويجي الأوضاع في غزة
--  Speaker Greg Fergus Says He Made ‘A Serious Mistake,’ Apologizes Again for Video
--  Mondial des clubs: Urawa et Al Ahly vont en demi-finale
--  Couple Sees Mountain Lion Cross Road in Upper Township
+-  شركة شحن ألمانية توقف مرور سفنها عبر قناة السويس
+-  Kudüs'te 1 buçuk ay aradan sonra sirenler çaldı! Gazze'den atılan roket Beyt Şemes'e düştü
+-  Çanakkale'yi sağanak vurdu: Mahalleler sular altında kaldı
+-  Obradovic: Çok kalite bir takıma karşı oynamak kolay değil
+-  Karim Benzema'nın golü yetmedi, Al-Ittihad elendi!
+-  Remaining four abducted students of Katsina varsity regain freedom
+-  Ρέντης: Ανοίγει η βεντάλια των ερευνών για τα επεισόδια – Στο μικροσκόπιο ακόμη 45 άτομα
+-  Euromillones: resultados del sorteo del viernes 15 de diciembre de 2023
+-  China lanza un vehículo espacial reutilizable experimental para verificar esta tecnología
+-  «مبادلة» و«هيونداي موتور» تستكشفان فرص الاستثمار
