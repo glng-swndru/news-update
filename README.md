@@ -1,11 +1,11 @@
 # Latest News
--  Luego de chocar y abandonar camioneta robada asaltó un Oxxo
--  Confía defensa en que Lozoya obtenga libertad hoy
--  Bloquea Hungría paquete de ayuda de UE a Ucrania
--  Busca García Luna nuevo juicio en EU
--  Abren paso fronterizo israelí para entregar ayuda a Gaza
--  Cautiva changuito de Aloha Arithmetic
--  آخر التطورات الصحية للمراسل وائل الدحدوح بعد استهدافه بطائرة استطلاع (فيديو)
--  News24 | Here are the Powerball and Powerball Plus results
--  Amanda Holden and Ashley Roberts strip to sexy silk pyjamas for Christmas snap
--  Izraelská armáda oznámila, že v Pásme Gazy omylom zastrelila troch rukojemníkov
+-  Health advisory goes out to Martinez residents after suspected flaring at refinery
+-  HPK:n U20-nuoret palasivat voittokantaan – "Pelasimme hienon päätöserän"
+-  Spelat i allsvenskan – klar för Eskilsminne
+-  الدحدوح: الاحتلال استهدف سيارات الإسعاف التي حاولت الوصول لأبو دقة
+-  Fracture de la mâchoire pour Darius Garland, qui ratera plusieurs semaines !
+-  N.B. creates new classification to allow internationally trained doctors to work
+-  Milei: Terminar con la inflación en Argentina es máxima prioridad
+-  Son dakika!... Milyonlarca memur ve emeklinin beklediği zam oranı sonuna belli oldu! Cumhurbaşkanı Yardımcısı açıkladı
+-  Pjevačica grupe Magazin o solo karijeri: ‘To mi je u planu, sad kad će se to izrealizirati, moramo vidjeti‘
+-  TuTo Volley kaatoi Hurmoksen, lentopallosuvusta ponnistava Joska Försti teki tilaa ukrainalaislähtöiselle pelikaverilleen
