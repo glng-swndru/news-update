@@ -1,51 +1,51 @@
 # Latest News
--  Les niegan la entrada a siete ecuatorianos por inconsistencias en la entrevista
--  El CAI sigue siendo motivo de celebración en Panamá Oeste
--  Zehir taciri çift polisten kaçamadı
--  استهدافات متبادلة جنوبي لبنان.. وإسرائيل تحذّر السكان
--  পাঁচ মিনিটেই গুঁড়িয়ে গেল আবাহনী
--  All flights to Tuvalu cancelled: Fiji Airways
--  أمين المنظمة العربية للهلال الأحمر: الاحتلال لا يسمح سوى بالنذر اليسير من المساعدات لغزة
--  DPG Media wil RTL Nederland inlijven voor 1,1 miljard euro
--  Biden verliest de steun van Arabische Amerikanen: 'Hij zou het geweld in Gaza gewoon kunnen stoppen'
--  'Wietexperiment gaat niet alleen over criminaliteit, maar vooral ook over volksgezondheid'
--  Rusland: tientallen Oekraïense drones onderschept in grensregio's
--  Wall Street eindigt terughoudend na zeer sterke beursweek
--  “¿Lo ayudo a buscar o qué?”: Katia Palma ‘choteó’ la “sugerencia” de ser novia de Flaco Granda | El Gran Chef Famosos
--  ساليفان: احتلال إسرائيل لغزة على المدى الطويل ليس صائباً
--  4 مكاسب حققها الأهلي بعد الفوز على اتحاد جدة بالمونديال
--  Menstrual cycles could help predict suicide risk, new research suggests
--  Представители Минфина США обсудят потолок цен на нефть РФ в Брюсселе и Лондоне
--  VIDEO Iznenađenje na koncertu Merlina: Stigao Zdravko Čolić
--  Aguas Dulces y un “nuevo perfil”: cómo se prepara el balneario rochense para la temporada
--  DIGEIG reconoce a la ONDA por su compromiso con la integridad y responsabilidad social
--  Оставлено в силе решение по жалобе о 1,4 млрд рублей, которые должна выплатить Блиновская
--  Pentagon has ordered a US aircraft carrier to remain in the Mediterranean near Israel
--  ‘Ridiculous And Ill-Advised’: Noah Centineo’s Arkhum Productions Developing Rale Sidebottom Book For Film
--  김민재와 한일 커넥션 무산…뮌헨이 영입 후보 명단에서 제외
--  Senabico anuncia subasta y bienes decomisados
--  MIROSLAV ILIĆ HITNO PREKINUO KONCERT! Morao je da se obrati publici, reči su mu ODZVANJALE Arenom: Nije trebalo da...
--  Источник назвал детали контракта Морено с «Сочи»
--  VELIKA AKCIJA INTERPOLA Više od 1700 osoba uhapšeno
--  Kocaeli'de tır köfte yiyen müşterilerin arasında daldı
--  «استشاري الشارقة» يشكل لجانه الدائمة للفصل التشريعي الحادي عشر
--  오타니, 글래스노우에 이어 통산 165세이브 클로저까지 영입할까…"더 나은 선택지는 없다"
--  Defensoría señala debilidades en plan de copago de CCSS: sería excluyente para los más vulnerables
--  شيرين تؤكد لعمرو أديب انفصالها عن حسام حبيب: طلاقنا كان حضاريا
--  Forurenset myr kan knekke økonomien til skytterne
--  LA COVID Cases Rising Ahead Of Holidays
--  Aaj Ka Mesh Tarot Card: मेष राशि वालों का आर्थिक लाभ बेहतर रहेगा, राजनीति में मिलेगा बड़ा पद
--  Finalmente vimos ese tomate espacial perdido y deseamos no haberlo hecho
--  Broadcom Announces Inducement Grants Under Nasdaq Listing Rule 5635(c)(4)
--  Starwood Property Trust Announces $0.48 Per Share Dividend for Fourth Quarter 2023
--  U.S. Silica Appoints Chief Accounting Officer
--  Bank of America Declares First Quarter 2024 Preferred Stock Dividends
--  BM: Gazeteciler ve medya çalışanları korunmalıdır
--  Κεντρική Μακεδονία: Υποχρεωτικές οι αντιολισθητικές αλυσίδες - Δείτε σε ποιες περιοχές
--  Alcoy aguarda a una nueva licitación de la estación de autobuses para normalizar su situación
--  Rowntree’s confirm iconic sweet is axed & WON’T come back as shoppers blast ‘this is NOT acceptable’
--  Leandro Jiménez emerge victorioso de forma invicta en La Copa de Ajedrez de la UASD, dedicada a la candidata a Regidora por Santo Domingo Este Lic. Nelsy Trinidad
--  Dana Bash And Jake Tapper To Moderate CNN’s Iowa GOP Debate
--  Charlize Theron & Dawn Olmstead Launch New Media Company With Denver & Delilah’s Beth Kono And AJ Dix
--  ¡Lo hizo de nuevo! Ethel Pozo llora al recibir emotiva sorpresa de cumpleaños en ‘América Hoy’ | VIDEO
--  С Байконура запустят второй гидрометеорологический спутник "Арктика-М"
+-  "نراكم قريبًا".. مانشستر سيتي يهنئ الأهلي والأخير يرد
+-  Villena concederá la Medalla de Oro de la ciudad a la congregación de Las Trinitarias
+-  ABD'li Senatör Sanders'tan Gazze çıkışı: İsrail'in insani yıkımı Senatoda görüşülsün
+-  Türkiye'ye dikkat çeken "koalisyon" daveti!
+-  Pakistan: Cammu Keşmir asla Hindistan'ın bir parçası olmadı ve olmayacak
+-  Sarunas Jasikevicius: Kısa sürede büyük bir katkı sağlamam zor
+-  "Biyoçeşitlilik Zirvesi (COP16)" 2024'te Kolombiya'da yapılacak
+-  12 BUDO seferi iptal edildi
+-  TFF ile görüşen hakemler kararını verdi!
+-  The renaissance of pulque, Mexico’s ‘white gold’ ancestral drink
+-  DSÖ: Sağlık çalışanları da dahil Gazze'de hiçbir yer ve hiç kimse güvende değil
+-  Izabrani najbolji sportaš i sportašica grada Zagreba
+-  Mata Ejército israelí 'por error' a tres rehenes
+-  Estrenan Tren Maya pero falta transporte hacia estación
+-  Omiten hablar de Texcaltitlán en aniversario de FGE-Edomex
+-  Video: 'Hasta pronto', se despiden esposa e hijos de Rafa Wayne
+-  Jasikevicius'un önderliğinde Fenerbahçe Beko, ilk maçını kazandı
+-  Talat Atilla yazdı: İmamoğlu kaybederse, Özel ve Kılıçdaroğlu kazanır!
+-  Klatsche für die Ampel - Deutliche Mehrheit will Neuwahlen!
+-  100 Personen abgelehnt - Judenhasser aus Gaza wollten nach Deutschland
+-  Ukrajinci lete na prastarim helikopterima, a na Zapadu ne vjeruju kakve operacije izvode: ‘Kažu da je to nemoguće...‘
+-  Katie Price recalls 'hideous' final holiday with ex Peter Andre before their split - after branding all three former husbands her 'worst mistakes' despite drink-drive crash
+-  “Tener hasta 200 agentes en las vías de Valledupar es insuficiente, si los conductores violan las normas”: tránsito
+-  Serie B, Verde regala la seconda vittoria di fila allo Spezia: Bari sconfitto nel finale
+-  Кулеба назвав головні завдання для України та союзників на 2024 рік
+-  Opera MODO Names New Executive Director
+-  For investment, Mexico is the new China, US business leader says
+-  Jury Orders Giuliani to Pay $148 Million to Election Workers He Defamed
+-  Cena ropy w dół. Kurs dolara najniżej od 4 miesięcy
+-  Ukraińska minister: straty spowodowane blokadą granicy z Polską sięgają prawie miliarda zł
+-  코로나 ‘무료 검사’ 사라진다…앞으론 병원 가서 자비로 부담해야
+-  عاجل.. أهم 10.. إعفاء سيارات من الجمارك وإعانة الزواج ومعاش الضمان الاجتماعي
+-  السبت 3 جمادى الآخرة.. مواقيت الصلاة في مكة والمدينة وجميع المناطق
+-  Almudena Cid pasa página y hace oficial su relación con un exfutbolista
+-  Almudena Cid pasa página y hace oficial su relación con un exfutbolista
+-  Almudena Cid pasa página y hace oficial su relación con un exfutbolista
+-  Καλαμάκι: Ανήλικοι δέχθηκαν επίθεση από 30 άτομα – Στο νοσοκομείο 14χρονος
+-  Arrascaeta torce por chegada de De La Cruz: 'Nos ajudaria muito'
+-  BB Seguridade (BBSE3) aprova distribuição de R$ 5,67 bilhões em dividendos aos acionistas
+-  Christodoulides: The EU ‘will pay’ over inaction on Gaza humanitarian crisis
+-  بامسعود يعتذر لجماهير الاتحاد بعد الهزيمة
+-  Obyvatelia Viedne si vydýchli: Chytili sériového vraha bezdomovcov, má len 17 rokov
+-  AKTUÁLNE V Prešove vypukol obrovský požiar, zábery ako z hororu! Zasahujú desiatky hasičov
+-  بوتشيتينو: وضع تشيلسي أشبه ببناء منزل
+-  La Fifa dio a conocer los tres GOLAZOS que competirán por el premio Puskás 2023
+-  Jeffrey Foskett is being hailed as "the brightest light" following The Beach Boys star's death aged 67
+-  اليابان | معركة سيكيغاهارا: صراع على مستقبل اليابان
+-  اليابان | طقوس السومو الاحتفالية: عادات وتقاليد تحافظ على الإرث الطويل لرياضة يابانية عريقة
+-  اليابان | تعرف على قائمة المختطفين اليابانيين على يد كوريا الشمالية
+-  Barbara-Anns Tod: Die Kelly Family hatte kein Geld für Sarg
