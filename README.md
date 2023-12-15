@@ -1,11 +1,11 @@
 # Latest News
--  Amsterdam resident found dead at home three years after death
--  Ομόνοια: Βατή η κλήρωση στο Κύπελλο
--  Khẳng định rõ bản sắc "ngoại giao cây tre Việt Nam"
--  I competed on Netflix’s Squid Game The Challenge – it was so intense it felt like life or death
--  ‘Sürdürülebilirlik’ ödülünün sahibi Aydınlı Grup
--  “I’d not played for 17 years. I put all my guitars in the loft and never touched them. I didn’t think I knew how to play anymore”: When Happy Mondays split, Mark Day gave up guitar – and was surprised to find he could still play when he returned
--  Saadet Partisi milletvekili Bitmez'in vefatıyla Meclis'te grup oluşturma kriterini kaybetti
--  Gegen jede Vernunft: Bundesregierung drängt weiter auf Zwei-Staaten-Lösung
--  Τσέλσι: Έτοιμος για το ντεμπούτο του ο Ενκουνκού
--  Disney Collaborates With IVE’s An Yu-Jin for Wish Main Soundtrack
+-  İyi Parti, Somali Büyükelçiliği'nin Kapısına Dayandı
+-  Lira diz que Câmara votará reforma tributária nesta sexta-feira
+-  Rakornas Gerindra Digelar Tertutup, Prabowo Beri Penjelasan soal Instruksi yang Disampaikan
+-  ITV Emmerdale Zak Dingle star Steve Halliwell dies aged 77
+-  PRINT: 'Cyber incident' cripples London Public Library systems
+-  Her Gün Bir Kaşık Yemek Karaciğeri Güçlendiriyor! Yüzyılların Şifa Kaynağı Nasıl Yenmeli?
+-  نادي سعودي يصارع باريس سان جيرمان على ضم كاسيميرو
+-  "الأعلى في عام 2023".. انتهاء مزاد بيع قمصان ميسي مع الأرجنتين في كأس العالم
+-  كيف استعد الأهلي لمواجهة اتحاد جدة في مونديال الأندية؟
+-  من "جلابية" الزمالك لـ "جبس" الأهلي.. وليد الفراج رجل الآراء المثيرة ضد الأندية المصرية
