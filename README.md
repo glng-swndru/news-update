@@ -1,11 +1,11 @@
 # Latest News
--  Sigortacılık primleri 500 milyara koşuyor
--  Coinbase’s international exchange to launch spot crypto trading
--  High hopes for rising boxing star Baden Trunfio after win in Canberra tournament
--  Hong Kong: Free Pro-Democracy Publisher Jimmy Lai
--  IND vs SA 3rd T20I Result: সূর্যের শতক, কুলদীপের স্পিনের জাদুতে অসামান্য জয় ভারতের
--  IND Vs SA T20: அடித்து நொறுக்கிய சூரியகுமார் யாதவ்: அசத்தல் வெற்றி அடைந்த இந்தியா..! சாதனை மேல் சாதனை.!
--  Dire figures reveal more than a quarter of Australian’s exceeding alcohol limits while obesity rates reach record high
--  Fayetteville School Board may add third junior high
--  Temporary ceasefire agreed after Myanmar rebel forces surround city notorious for online scam operations
--  Skiing and snowboarding will soon be taken up a notch at Queenstown's Cardrona Alpine Resort
+-  0pSpotify's pet playlist adorably matches fur babies' energy with your listening habits
+-  WHO เผยผลทดลองวัคซีนโควิด "XBB.1.5 โมโนวาเลนต์" รับมือโอไมครอนหลายสายพันธุ์
+-  Matakana speed cameras about prevention, not persecution, Waka Kotahi tells board
+-  Tesla Passes 5 Million Sales, China Passes 20 Million EV Sales
+-  Firefighters and helicopters battle vegetation fires in Waitaki
+-  Te Ahu a Turanga: Manawatū Tararua Highway nears end of 'heavy lifting' stage
+-  Celtics improve to 12-0 at home behind Jayson Tatum’s 27 points in 116-107 win over Cavs
+-  Protesters surround Vancouver hotel during Trudeau's fundraiser dinner
+-  Protesters surround Vancouver hotel during Trudeau's fundraiser dinner
+-  Swiggy User in Mumbai Ordered Food Worth Rs 42 Lakh in 2023, Internet Finds it Hard to Digest
