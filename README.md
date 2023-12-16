@@ -1,11 +1,11 @@
 # Latest News
--  ‘복귀전 패배’ 윤형빈, 50초만에 느껴진 9년의 세월
--  ALKARAZ SAMO O NOVAKU MISLI Španac opsednut Đokovićem, napravio je pakleni plan da sruši Noleta
--  Gary Oldman credits Harry Potter for saving his “dying” career
--  بعد هجوم لحزب الله بطائرة بدون طيار.. الجيش الإسرائيلي يعلن مقتل أحد جنوده قرب الحدود مع لبنان
--  Mines blasted in Division II national title for second straight year, as Harding runs over Orediggers 38-7
--  SMHI varnar: Ge er inte ut i fjällen
--  صلاة الغائب على الأمير الراحل في جميع المساجد بعد صلاة ظهر الأحد
--  Cumhurbaşkanı Erdoğan'dan hayatını kaybeden Kuveyt Emiri Şeyh Nevvaf için taziye mesajı
--  Álvaro Leyva no da el brazo a torcer: “No voy a conciliar” con Thomas Greg & Sons
--  Cuánto tarda el Tren Maya en hacer el recorrido de Campeche a Cancún
+-  اتعلمي من نانسي عجرم.. سيد علي يوجه رسالة لشيرين بعد انفصالها عن حسام حبيب
+-  130 مسؤولاً بـ"الأمن الداخلي" يطالبون بايدن بوقف إطلاق النار في غزة
+-  السيد البدوي: يمامة وعمر وزهران لم يرتقوا لمنافسة السيسي شعبيًا في الانتخابات
+-  إصابة شاب صدمه قطار أمام نادي أرض اللواء
+-  بالأسماء.. إصابة 6 أشخاص إثر حادث تصادم في الوادي الجديد
+-  في نقاش مفتوح.. رئيس جامعة دمنهور يبحث مطالب الطلاب ذوي الهمم
+-  الهلال الأحمر الفلسطيني: مستشفيات الشمال توقفت عن العمل
+-  Tome acciones si regala tecnología para que su hijo no desarrolle males oculares
+-  Joint Marine Search and Rescue Simulation Exercise To Enhance Safety On Lagos Inland Waterways – LASWA
+-  Etiler'de panik yaratan yangın! Cip alevlere teslim oldu
