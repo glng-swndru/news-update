@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | Barker Praises Ex-Chiefs Man For Reviving Career
--  I make £10,000 a month doing a job no one wants to do – it requires no experience and I even got free accommodation
--  عمران خان کیخلاف توہین الیکشن کمیشن کیس 19 دسمبر کو سماعت کیلئے مقرر
--  तलाक की खबरों के बीच पति और ससुर के साथ नजर आईं ऐश्वर्या राय, लोग बोले- बच्चन परिवार में सब ठीक है
--  Κυβερνητικές πηγές για τροπολογία Καιρίδη: «Περαιτέρω ανάλυση είναι περιττή»
--  Yapay zeka Galatasaray ve Fenerbahçe'nin Avrupa'daki rakiplerini tahmin etti. Zor kura çektik
--  Ihlamur demlerken herkesin yaptığı korkunç hata! Bu durum tüm faydasını yok ediyor
--  Κυριακή με βροχές, χιόνια και θυελλώδεις ανέμους
--  Jonathan Maicelo se presentará en ‘Dilo Fuerte’ tras denuncia de Samantha Batallanos: “Contaré toda mi verdad” (VIDEO)
--  قيمة الإنسان لمجتمعه| كتب هشام الحاج
+-  Германия — Перед Рождеством в Германии будут бастовать магазины
+-  হুতিদের হামলায় লোহিত সাগরে জাহাজ চলছে কম
+-  Юная симферопольская теннисистка завоевала два «золота» на одном турнире
+-  Dortmund’s poor run continues with draw at Augsburg
+-  Predsednik Madagaskara položio zakletvu za treći mandat na čelu države
+-  Explained: Why Stealth Combat Drones Hold Importance In Modern Warfare?
+-  India Proposes To Replicate Ancient Maritime Voyage To Oman
+-  «Манчестер Сити» упустил победу над «Кристал Пэлас» из-за пенальти в концовке
+-  Эдвардс — Ковингтон: во сколько и где смотреть бой UFC 296
+-  You Can Buy Anything From This Field Of Abandoned Classic Cars And Trucks
