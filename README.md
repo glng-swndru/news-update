@@ -1,11 +1,11 @@
 # Latest News
--  أسيرة سابقة بغزة : حذرنا مجلس الحرب من استمرار القتال
--  قوات الاحتلال تقتحم مدينة يطا
--  Citypress | Carl Niehaus finally acknowledged that he and his party of three people have no future as a political party.
--  Citypress | Editorial | Less talk, more action at needed at these COP shop talks
--  Citypress | Editorial | The festive season has officially begun...Let’s enjoy it responsibly
--  TULIP's Support for Japanese Digital Librarianization Cooperation
--  Swap Out Mayo For Miracle Whip For A Simple Upgrade To Your Egg Salad
--  Cubano Miguel Ángel López, mejor voleibolista del mundo en 2023
--  تراند اليوم : بسبب العلم الإسرائيلي مدرس يهدد طالبة مسلمة في أمريكا بقطع رأسها
--  تراند اليوم : بعد وفاة الشيخ نواف الأحمد الصباح.. تعرف على نص الدستور الكويتي وقانون توارث الإمارة
+-  Presidente Petro propone decreto para incorporar software de autodestrucción en celulares contra el robo
+-  דייגים פתחו מכולה שמצאו צפה בים - ובתוכה היה אוצר מדהים
+-  Gjenden mjete piroteknike në Bit Pazar në Shkup, arrestohet një person
+-  Kickoff | Stuttering Barcelona extend winless run
+-  Nearly two thirds of kids to track on Santa on mobiles as he delivers gifts around the world
+-  Erdoğan'dan sosyal medya tepkisi: Ahlaki açıdan ciddi bir erozyon var
+-  כוכבות הסרט "הרגישו כמו זונות" לאחר "אורגזמה במשך שש שעות רצופות"
+-  רק באמריקה: נערת הזירה ה"אגדית" פרשה מה-UFC, והתגובות קורעות
+-  קניקובסקי כשיר למכבי נתניה, בונדוסו עדיין בתמונת ההרכב
+-  FC Barcelona patzt in Valencia erneut im Titelkampf der La Liga
