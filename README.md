@@ -1,51 +1,11 @@
 # Latest News
--  İzmir'de suç örgütü lideri İnanç Meçul tutuklandı
--  Bursa'da otomobil 7 metre yükseklikten dereye uçtu! 4 yaralı
--  Pjevačica po prvi put izašla u javnost sa INFORMACIJAMA
--  TFF Başkanı Büyükekşi ile görüşen hakemler maçlara çıkma kararı aldı
--  Emery warns surging Villa to ignore title talk
--  فابينيو: فرطنا في الفرص ولم نقدم أفضل ما لدينا
--  Attempt to frame Russia for Polish plane crash based on ‘lies’ – Warsaw — RT World News
--  الدوري الإنجليزي: توتنهام يسقط مضيفه نوتنغهام بثنائية
--  Postecoglou hails Spurs composure against Forest
--  Μεικτά πρόσημα στη Wall Street
--  Morant ready for NBA return after ‘horrible days’ of 25-game ban
--  The English woodland theme park with light trails, pantomimes and free gifts for kids
--  Роналдо влезе во бизнис вреден 40 милиони долари кој ќе ја размрда конкуренцијата
--  المهر «حامد صارم» نجم ثالث أيام العرض الدولي لجمال الخيل
--  '더 타임스', 올해 스포츠계 파워 10인에 '페이커' 선정
--  '106패의 충격' 조용하게 전력 다지는 KC…'88승 & 177홈런' 김하성-오타니 前 동료 품었다, 5명 영입→1369억 투자
--  مهاجم اتحاد جدة: لم نقدم أفضل ما لدينا أمام الأهلي.. وعلينا الاعتذار لجماهيرنا
--  One person dies in a fire in Lanaudière
--  ‘내 아들 장하네’… ‘바람의 가족’ 이정후-이종범, 오라클파크 땅을 밟다
--  Tiger makes pro-am walk ahead of title hunt with son Charlie
--  [스한:시청률] '마이 데몬' 김유정, 가짜뉴스 탓에 위기…4.5% 기록
--  Brave lad, 10, born without an arm can pull a cracker with his grandma after being fitted with new bionic limb
--  بطرابلس وغدامس ومصراتة.. قوات حكومة دبيبة تواصل انتهاكاتها ضد المدنيين دون رادع
--  Caso Metástasis: Wilman Terán será procesado por delincuencia organizada
--  حسام موافي يوضح أسباب وأعراض فشل عضلة القلب
--  أثناء اللعب وسط "البوص".. مصرع طفل حرقًا في أسيوط
--  Cumhurbaşkanı Yardımcısı Yılmaz: Memur emeklisi için yüzde 50 civarında artış olacak
--  한국타이어 경영권 다툼은 현재진행형...사모펀드 공개매수가 20% 상향
--  Senior cardinal awaiting verdict in Vatican trial
--  «Escribo libros pensando en cómo serán las películas»
--  Los sonidos de la Navidad conquistan el Revellín y lo inundan de alegría y felicidad
--  Canucks acquire defenceman Cicek, 2024 pick from Sharks for centre Studnicka
--  [속보] 한미, 내년 중반까지 핵전략 기획운용 가이드라인 수립
--  한미, 내년 중반까지 핵전략 기획운용 가이드라인 수립
--  [PC방] 12월 3주, 드래곤 플라이트·노량 함께 즐긴다…라인게임즈 외 4가지 게임
--  [오늘날씨] 주말 전국 영하권 추위…서쪽 중심 많은 눈 내려
--  자담치킨, 워터밤 '권은비'와 함께 … 맵슐랭콤보&피자 새로운 맛 소개
--  El Covirán pone a prueba la racha ante su 'bestia'
--  Miretti, prestazione da dimenticare
--  Juventus miss out on top spot after Genoa draw
--  La comisión de honores valora dedicar una calle de Beiro al concejal José María Corpas
--  Las camareras de la Virgen de las Penas le regalan su primer manto de vistas
--  A prisión siete de los 20 detenidos en una redada contra una banda armada en Granada
--  «Γκέλα» της Γιουβέντους στη Γένοβα
--  Vecinos del Centro 'estallan' por el exceso de ruido y la masiva ocupación de la vía pública
--  Greenstars FC post big win in opener
--  Pellegatti: "Ci sono delle responsabilità sugli infortuni, ma che rimpianti..."
--  Nueva York adeuda 130 millones a hoteles donde la ciudad ha alojado a los inmigrantes
--  بريطانيا: قتال عنيف القوات الأوكرانية والروسية حول بلدة مارينكا
--  Jorge Montoya anuncia moción de censura contra presidente del Congreso por aplazar debate contra la JNJ
+-  Madre cubana: “Me amenazaron con botarme para la calle con mis hijos”
+-  Macron le cierra la puerta a Ucrania en la Unión Europea
+-  고레에다 히로카즈 감독 영화가 선택받는 이유
+-  Lawmakers push to amend Son of Sam laws after Heuermann's estranged wife reportedly paid seven figures by Peacock documentary
+-  Блинкен обсудил с Бербок палестино-израильский конфликт
+-  Michael Maliakel, Lesley Nicol on performing in 2023 Tabernacle Choir Christmas concert
+-  Astro Tips For Marriage: शादी में हो रही है देरी? शीघ्र विवाह योग के लिए करें ये अचूक उपाय
+-  (VIDEO). Shay Victorio, doña del portero Jean Fernandes, se operó en Brasil
+-  Dueños de 'Cuidado con el Perro' compran CA
+-  ¿Vuelve súper peso?, dólar se vende en $17.65
