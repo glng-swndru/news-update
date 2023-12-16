@@ -1,51 +1,51 @@
 # Latest News
--  Northern governors pledge to partner on security, economic development, others
--  Kane, Guirassy face off as Bayern host surprise package Stuttgart
--  Tikslas pasiekiamas. Ukraina gali nugalėti Rusiją per 3 metus. Estijos žvalgyba įvardijo sąlygas
--  İstanbul'da sosyal medyadan müstehcen paylaşıma 2 tutuklama
--  시인 인터뷰 전 시집 다 외운 지역신문 기자의 진심
--  ΜΕΓΑΛΟ ΚΕΝΟ…
--  Ο Κυριάκος Μητσοτάκης συναντήθηκε με εγκαυματίες στο Μέγαρο Μαξίμου
--  Radulović: Zabrinjavajuće stanje u željezničkim preduzećima,...
--  Auto vliegt in brand na botsing met vrachtwagen op A15 bij Alblasserdam
--  Bursa'da 63 yaşındaki esnaf her gün 20 km koşuyor
--  36 yıl sonra şehit sayıldı: Bizim için başka hiçbir şey önemli değil
--  Bursa Gemlik'e bin metrekare park
--  Mısır'a giden Yiğit'ten 461 gündür haber alınamıyor
--  Deprem konutlarında geri sayım başladı
--  Bakan Özhaseki: Binaların da artık bir kimliği olacak
--  İstanbul'da oğlunu öldürdü, babasını ve annesini bıçaklayıp kaçtı
--  CHP Milletvekili Ali Fazıl Kasap Saadet Partisi'ne geçti!
--  Sosyal medyadan müstehcen paylaşıma 2 tutuklama
--  Bingöl'de 10 yıl kesinleşmiş hapis cezası olan zanlı yakalandı
--  Küçükkayalar, Bursa Vizyonunu anlattı
--  Trump'ın avukatı hakaret davasında yaklaşık 150 milyon dolar tazminat ödeyecek
--  İran'da, İsrail adına casusluk yaptığı iddia edilen bir kişi idam edildi
--  Bursalı SMA hastası Havvanur'un annesi: Evladımın sesini duyuramıyoruz
--  Tarihte bugün neler oldu? (16 Aralık)
--  Tarihte bugün doğan ünlüler kimler? (16 Aralık)
--  Tarihte bugün vefat edenler kimler? (16 Aralık)
--  Sivas'ta silahla sırtından yaralayıp, öldüresiye darbettiler
--  Bursa'da Koray Avcı coşkusu
--  Mourinho o najboljih 11: ‘Nemoguće mi je to izabrati! Lažete’
--  Наш советский Дед Мороз!
--  Lalić o dojavama o bombama: Zašto se ranije nije reagovalo, ovo traje više od godinu dana
--  Μπέττυ Μαγγίρα: «Η Σίσσυ Χρηστίδου τον λιγουρεύεται τον Μακαλιά»
--  대통령실, "野 잘못된 논평으로 대통령 순방성과 정치적 폄훼"
--  عاجل.. التقديم بدأ الآن.. قوات الأمن الخاصة تعلن عن وظائف عسكرية لحملة الدبلوم الصحي "رجال"
--  Vianoce spájame s pomocou druhým. Ľudia na Slovensku však radi pomáhajú počas celého roka
--  קין צפוי לרענן את ה-11, בונדוסו במקום קניקובסקי?
--  Deň po masívnom požiari spaľovne: Sú známe výsledky meraní kvality ovzdušia! Polícia začala trestné stíhanie
--  Камелия Тодорова: Плачех и пиех, докато творях
--  Toplinski val pogodio Australiju, vatrogasci se bore s požarima
--  भारतीय नौसेना ने अरब सागर में जहाज के अपहरण की घटना पर तत्काल कदम उठाया
--  Karatisti Budućnosti danas na turniru u Slovačkoj
--  Mariah Carey maga készíti a pulykát az ünnepi asztalra: ez a receptje
--  Iran eyes to build solar power plants in Bushehr Province
--  Джилардіно: Стиль гри Дженоа посилює здібності Малиновського
--  Hakemlerden ortak karar: Maçlara çıkacağız
--  Türk zırhlı aracı Ejder Yalçın AB ülkesinde üretilecek
--  Aydın'da aranan şahıslara operasyon: 23 gözaltı
--  Yapay zeka sınır tanımıyor! Ölüler artık diriltilebiliyor...
--  iPhone Ban in China: चीन में सरकारी कर्मचारी अब अपने साथ नहीं ला सकेंगे आईफोन, चलाने पर लगा प्रतिबंध; जानें वजह
--  Bawa ‘AMIN’ ke Jeneponto, Deng Ical Mendapat Dukungan Warga
+-  Мол-мулк солиғи тўловлари оширилди.
+-  Россияда биринчи марта ҳарбий рўйхатга туришдан бош тортган шахслар фуқароликдан маҳрум қилинди.
+-  초유의 '검찰 대통령'에 '검찰 당대표'...與 '비대위원장 한동훈' 가닥 잡은 듯
+-  尹정부 환경정책, 기후위기시대를 역행하다
+-  폭격 말린 미군 장성 quot;우리가 야만인으로 고발당할 수 있다quot;
+-  Ўзбекистон ва Испания сувдан фойдаланишни оптималлаштиришда қўшма лойиҳаларни амалга оширади.
+-  Israel mató ‘por error’ a rehenes; hay tres víctimas
+-  EU alista Quédate en México 2.0... ante arribo masivo de indocumentados
+-  뉴캐슬로 떠난 첼시 성골 유스, 갑자기 작별 인사 삭제→상황 반전
+-  FOTO Primele 15 troleibuze din lotul de 100 cumpărate de Primăria Capitalei vor fi livrate în ianuarie
+-  Gestion des déchets : passer de la volonté à l’action
+-  Govt issues warning for Samsung Galaxy phone users, advises urgent update
+-  Parliament security breach accused considered self-immolation, other options
+-  La stat folle du jour : dans sa carrière, LeBron James a joué contre les 32 derniers n°1 de Draft !
+-  Первый энергоблок БелАЭС включили в сеть после планового ремонта
+-  Отвориха за движение главния път Бургас – Варна, в Царево дежурни екипи следят обстановката
+-  German Fans Hurl Chocolate Coins in Protest Against Media Rights Deal
+-  Al Ahly thrash Al-Ittihad in Club World Cup to book Fluminense semifinal
+-  Guntur Kaaram Producer Receives Backlash For His Comments On Latest Song’s Criticism
+-  Rookvrije zone voor Academiegebouw en UB op Broerplein uitgebreid
+-  Palestinian media reports dozens killed in Israel airstrikes
+-  GameStop stock saga continues against market odds
+-  Ananya Panday Leaves All Confused As She Dons Lawyer Look In New Video | Watch
+-  Пензенцев предупредили о сильном ветре 17 декабря
+-  '불후의 명곡' 이수지 "이경규 보며 개그맨 꿈 키웠다"
+-  „Was stimmt bei euch nicht?“ – Kaufland-Kundin schockiert, als sie Fleisch nachwiegt
+-  Serie C, il programma della 18ª giornata: Cesena-Torres sfida al vertice nel Girone B
+-  News18 Afternoon Digest: Lok Sabha Intruders Planned Self-Immolation But What Went Wrong And Other Top Stories
+-  광주·전남 13곳 대설·한파특보...17일까지 최대 15cm
+-  Ракета "Союз-2.1б" со вторым спутником "Арктика-М" стартовала с космодрома Байконур
+-  Misafir Sevmeyen 5 Burç! Yalnızlık Onların Kaderi... Misafir Bile İstemezler.. Eve Asla Misafir Gelmesini İstemeyen 5 Burç Belli
+-  Tragická dopravná nehoda v okrese Senec, o život prišli dvaja vodiči (video)
+-  В Ростовской области из-за непогоды развернули шесть пунктов обогрева
+-  Marianna vstáva bez budíka a pracuje kedy chce: Office zabíja produktivitu, hovorí
+-  [단독] 조국 “‘이낙연 신당’ 갈 일 없어…일각서 ‘준연동형 선거제 나쁘다’ 갈라치기”
+-  “영화 공짜 OOO 티비” 경복궁 ‘낙서 테러’…어떤 처벌 받나
+-  Manipulação de provas é "das maiores ameaças à integridade no desporto"
+-  Aishwarya, SRK, Amitabh Dance to 'Deewangi Deewangi' at Their Kids' School Event
+-  السعودية | القيادة تهنئ رئيس جمهورية كازاخستان بذكرى استقلال بلاده
+-  السعودية | ولي العهد يهنئ ملك مملكة البحرين بذكرى اليوم الوطني لبلاده
+-  السعودية | مغادرة الطائرة الإغاثية السعودية الـ 30 لإغاثة الشعب الفلسطيني في قطاع غزة والتي يسيّرها مركز الملك سلمان للإغاثة
+-  السعودية | مغادرة الطائرة الإغاثية السعودية الـ 29 لإغاثة الشعب الفلسطيني في قطاع غزة والتي يسيرها مركز الملك سلمان للإغاثة
+-  السعودية | خادم الحرمين الشريفين يهنئ ملك مملكة البحرين بذكرى اليوم الوطني لبلاده
+-  الناطق باسم حركة فتح: ما يتم طرحه حتى الآن يصب في مصلحة إسرائيل.. والمجتمع الدولي شاهد على جرائم الجيش الإسرائيلي
+-  محلل سياسي: الوضع الإنساني يتجه نحو الأسوأ في عدد كبير من الولايات السودانية.. خاصة التي تهاجمها قوات الدعم السريع
+-  محلل سياسي: الإدارة الأمريكية هي من وضعت جدولًا وأهدافًا للحرب القائمة في غزة.. وأعطت إسرائيل أكثر من فرصة لتعزيز الثقة والتقاط أنفاسها
+-  Поселок Краснооктябрьский в Курской области подвергся обстрелу со стороны ВСУ
+-  عضو في المجلس الثوري لحركة فتح: منظمة التحرير الفلسطينية تتجاوب مع معطيات السياسة الدولية على أساس الأمر الواقع
+-  الصين تطلق قمرًا صناعيًا جديدًا للاستشعار عن بعد
+-  Sve više škola u Federaciji zabranjuje korištenje mobitela
