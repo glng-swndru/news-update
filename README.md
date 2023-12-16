@@ -1,11 +1,11 @@
 # Latest News
--  మేముసైతం!
--  హామీలు నెరవేర్చకుండా వేధింపులా?
--  ప్రాణం తీసిన కుంపటి
--  భోపాల్‌కు గంజాయి తరలింపు
--  64కిలోల గంజాయి స్వాధీనం
--  Former Congress MLA Yumsen Matey Shot Dead Near Indo-Myanmar Border In Arunachal Pradesh
--  విద్యార్థులతో జాతీయస్థాయి గుర్తింపు
--  సౌత్‌జోన్‌ క్రీడాపోటీలకు సెయింట్‌ జోసెఫ్‌ దంత వైద్య విద్యార్థులు
--  ముగ్గురికి గాయాలు
--  సంక్షేమ పథకాలతో ఆర్థిక పరిపుష్టి సాధించాలి
+-  מדליית כסף לתמנע נלסון לוי באליפות אירופה הפתוחה בג'ודו קוסובו
+-  Sjutra pretežno sunčano, sjeverni vjetar u slabljenju: Temperatura do 15 stepeni
+-  জাপার সঙ্গে আ.লীগের আসন সমঝোতা চূড়ান্ত, 'গলার কাটা' স্বতন্ত্র প্রার্থী থাকছেই
+-  Jorge Jesus'tan geri döneceği iddialarına yanıt
+-  حمدان: لا تبادل للأسرى قبل وقف العدوان وقبول شروط المقاومة
+-  Evropska komisija pozdravila donošenje Evropske uredbe o slobodi medija
+-  Otoyolda panik anları. Pamuk yüklü tır alev alev yandı
+-  مصدر: طلبات التصالح في مخالفات البناء المرفوضة في القانون القديم لن تكون سارية
+-  Kovat kahvitarjoukset palasivat kauppojen hyllyille, ja suomalaisten suosikkimerkkiä saa nyt jopa alle kolmella eurolla
+-  طائرة خاصة لنقل أفسي نواذيبو وعودته من الكونغو قبل الانتخابات
