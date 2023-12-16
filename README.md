@@ -1,11 +1,51 @@
 # Latest News
--  Kaag: Rutte IV' not born under favorable circumstances"
--  Izraelci zabunom ubili vlastite državljane: Izbili masovni prosvjedi u Tel Avivu
--  Sad su u Škilje pare! Zvijezda scene priznaje: ‘Svi su bili situirani, ovi ima stan, ovi kuću, ja san bija jebivjetar‘
--  Fran Rivera habla alto y claro sobre Isabel Pantoja en Telecinco: "No es buena gente"
--  È morto l’attore, regista e drammaturgo Sebastiano Lo Monaco
--  Conto Deposito nel 2024: Tutti i Pro e Contro
--  MLADI TIKTOKER (23) IZ BOSNE PRONAĐEN MRTAV! POSLEDNJI SNIMAK objavio pre smrti - prijatelji u neverici! VIDEO
--  TikTok star Danny Loves Pasta makes a crispy gnocchi recipe that takes 30 minutes and only has 8 ingredients. Here's how to make it yourself.
--  Denuncian al exalcalde de Magallón tras hallar imágenes y vídeos con contenido sexual en el ordenador de la alcaldía
--  Klapa Rišpet na Adventu, Amulić: U Zadru je uvijek posebno
+-  علاء مبارك يسخر من سكرتير والده بعد تعرضه لسيرة عبد الناصر
+-  الاردن: مزادات علنية لآلاف الشقق والمركبات والأراضي - رابط
+-  Mercato - PSG : Le départ d’une star de Luis Enrique confirmé en janvier ?
+-  USA:n osakemarkkina on nyt harvinaisen vahva: Marraskuu tarjosi rohkaisevan yllätyksen
+-  Suosikkivalkoviini on Pohjoismaiden myydyin – tuo tuottajalleen 20 miljoonan euron vuosimyynnin
+-  Aurelia Cortés Peyron crea poesía que une tiempo y espacio
+-  สั่งหยุดก่อสร้าง 7 วัน ทางด่วนพระราม 2 หาสาเหตุแบบหล่อร่วงทับคนงาน
+-  Các chuyên gia: Cựu TT Trump có cơ hội tốt tại Tối cao Pháp viện để hủy bỏ vụ án ở Hoa Thịnh Đốn
+-  Plenković: Habijan je ozbiljan, ukopčan, svi će ga podržati
+-  What Christian Eriksen said about goalless Rasmus Hojlund before he joined Man Utd was ‘tell-tale sign’ says Souness
+-  Aibak township dwellers decry lack of basic amenities
+-  Riaktivizohen “bombat”: MPB – në Koçanë, alarmi i rremë!
+-  Küveyt əmiri vəfat edib
+-  ‘당원권 정지’에도 거친 최강욱의 입…“명품추구는 김건희, 지갑출구는 윤석열”
+-  Ratko Božović, plemeniti mislilac duha i vedrine: “Rodno mjesto...
+-  जगदीश्वर पोखरेलको १५ कृति एकैसाथ लोकार्पण
+-  Kyrgyzstan’s trade turnover with Russia declines
+-  Pirati oteli brod: Indijska mornarica ih prati
+-  La Feria de Teatro de Palma del Río abre su convocatoria de propuestas para 2024
+-  Strictly legend rushed to hospital hours before show final as she shares photo hooked up to a drip
+-  Strictly legend rushed to hospital hours before show final as she shares photo hooked up to a drip
+-  Die Diagnose: Eine junge Frau leidet an Endometriose. Wie ein Erlebnis aus der Jugend damit zusammenhängt
+-  IZA ČUVENE FOTOGRAFIJE KRIJE SE ZASTRAŠUJUĆA PRIČA: Prišao je Tajsonu kao da je sve normalno, legendarni bokser nije ni slutio...
+-  У Донецьку "приліт" по базі росіян - соцмережі
+-  La 'trampa' de las franquicias: Competencia analiza la fijación de precios de Pomodoro tras la victoria judicial de Restalia
+-  Polizei stoppt Schokoladentransporter auf Autobahn
+-  Três jovens detidos com armas proibidas
+-  Иран објавија дека егзекутирал шпион на Мосад
+-  My ‘cheese snowman’ holiday appetizer is so easy to make and super cute – you only need 3 ingredients
+-  INDIA गठबंधन की बैठक में शामिल होंगी ममता, अगले दिन PM मोदी से मुलाकात, जानें सियासी मायने
+-  Pelicansista poistunut ruotsalaispuolustaja suuntaa takaisin kotimaahansa
+-  Hardik Pandya had ‘captaincy' condition for his return to Mumbai Indians, Rohit Sharma was in loop: Report
+-  Podemos se presentará a las elecciones europeas con Irene Montero de candidata
+-  Muž v Bratislave ukradol prívesný vozík s vecami, skončil vo väzbe
+-  Na piaty pokus košičania zaplatia viac za odpad aj byty, ale menej ako žiadala radnica
+-  Lavaş Gölü kısmen dondu
+-  ‘Awful’ mother encourages son to cheat on his pregnant wife with his ex-girlfriend
+-  Stamford Hill in London: Wie Juden und Muslime im Schatten des Krieges zusammenleben
+-  ९५ क्विन्टल अन्न प्रयोग गरेर बनाइयो सीतारामको प्रतिमा
+-  Αλεξάνδρας: Ταξί «βούλιαξε» στο οδόστρωμα
+-  Dan and Dani Cambre’s Pregnancy Survival Guide for Men
+-  इंडियन पुलिस फोर्स का टीजर जारी, सिद्धार्थ ने ज्वाइन की रोहित की यूनिवर्स कॉप
+-  Höchststände bei Hochwasser am Rhein überschritten
+-  Le zoo du Belvédère a 60 ans : Et pas mal de rides !
+-  NHL: Peterka gewinnt mit Buffalo beim Stanley-Cup-Sieger
+-  Bestseller-Buchreihe endet: Krimi-Ikone Jussi Adler-Olsen kommt nach Unna
+-  Dortmunder (26) fällt Polizei in Holzwickede auf: Ohne Führerschein hinter dem Steuer?
+-  Maja Dahlqvist kissade på sig under tävling: "Hade heldräkt"
+-  Ausschreitungen: Entsetzen über Rostock-Fans: "Haben volle Gewalt gezeigt"
+-  Leonardo DiCaprio, 49, enjoys a low-key date night with girlfriend Vittoria Ceretti, 25, in Paris after partying with Lottie Moss, 25, in London
