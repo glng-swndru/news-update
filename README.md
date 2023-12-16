@@ -1,11 +1,51 @@
 # Latest News
--  Mitsotakis nxjerr foton me Ramën, mediat greke: Pavarësisht ‘përplasjeve’ me Scholz, Greqia i tha ‘jo’ pranimit të Shqipërisë në BE për ‘Belerin’
--  بالأبيض.. إطلالة هادئة لأسماء أبو اليزيد في عقد قرانها
--  "بإطلالة داعمة لفلسطين".. نسرين طافش باليوم الثاني للجونة السينمائي
--  "روكيت لاب" تطلق صواريخاً إلى الفضاء…بعد محاولة فاشلة
--  'Youth are desperate': Rahul Gandhi lashes out at Modi govt, says Parliament security breach happened because...
--  Quelle époque ! (France 2) : qui sont les invités de Léa Salamé ce samedi 16 décembre 2023 ?
--  6000 साल पुरानी हैं संगमरमर की ये गुफाएं, दिनभर रंग बदलती हैं दीवारें!
--  تلفزيون الكويت يقطع برامجه ويبث آيات من القرآن
--  Israel: centenas de manifestantes exigem nova trégua para libertar reféns
--  تلفزيون الكويت يبث آيات من القرآن الكريم .. وبيان مرتقب للديوان الأميري
+-  Führerscheinlose Fahrerin stürzt Böschung hinab
+-  العظمى بشرم الشيخ 28.. تفاصيل حالة الطقس في جنوب سيناء
+-  هيئة شؤون الأسرى الفلسطينية: "الحياة داخل سجن النقب الإسرائيلي جحيم لا يطاق"
+-  "عواقب وخيمة".. الحوثيون يحذر من أي تحرك عدائي ضد اليمن
+-  الصحة بغزة: 12 طفلًا مازالوا محتجزين داخل الحاضنات في مستشفى كمال عدوان
+-  حزب الله اللبناني يستهدف قوة مشاة إسرائيلية بصاروخ موجه
+-  "الجيران وقعوا في بعض".. 5 مصابين في معركة بالأسلحة بسوهاج
+-  عشرات الشهداء والجرحى الفلسطينيين في قصف الاحتلال على غزة منذ فجر السبت
+-  وزير الإسكان يتابع تنفيذ شقق "سكن لكل المصريين" بالقاهرة الجديدة
+-  سپریم کورٹ نے تاریخی قدم اٹھایا ہے، شیری رحمان
+-  Ангеловска-Бежоска: Инфлацијата ќе се намалува, потребни се структурни реформи за да станеме поотпорни на шокови
+-  BOŽANSTVENI MORSKI RAJ NEDE UKRADEN! Ovo je pevačicina LUKS VILA , sva u zelenilu, a kožni nameštaj i kamin su posebna priča! FOTO
+-  (grafic) Lista raioanelor din Moldova cu cea mai mare rată a divorțurilor în anul 2022
+-  Cops ‘missed chance to return Alex Batty to the UK after teen tried to enroll in a school in France last month’
+-  Este Toyota desafía a Dacia y a Seat: 15 años de garantía, etiqueta ECO consumo mínimo
+-  湯曉鷗瘁逝︱商湯科技發布訃告：他的智慧、熱情將永遠激勵着我們砥礪前行
+-  Mondial de handball: pourquoi la finale France-Norvège ne sera pas diffusée en intégralité sur TF1
+-  Istri Habib Rizieq Shihab Wafat karena Sakit
+-  Almaniyadan Avropaya çağırış: Yeni müharibəyə hazırlaşın, bu qədər vaxt qalıb
+-  ‘This cannot be the same tree right?’ Shopper mortified after spending £28 on Xmas tree online & people are in hysterics
+-  Καιρίδης: Η χώρα δεν αλλάζει μεταναστευτική πολιτική
+-  Dons, courses... Les pistes d'Olivia Grégoire pour "dépoussiérer le titre-restaurant"
+-  Euromillions winner Jane Park gives major update after surgery as she makes cryptic promise to fans
+-  Kétamine, noyade, maladie coronarienne… ce que dit le rapport d'autopsie de Matthew Perry
+-  Aksident i frikshëm në Greqi, ndërron jetë shqiptari, plagoset një tjetër
+-  Shillong Teer Result Today (OUT) 16.12.2023 First And Second Round Lottery Result
+-  Descripción del Ocaso de Albito Andrade (V): “1×10” por David Mendoza
+-  '서민갑부' 위생 만점+센스 제로 냉동삼겹살집, 연매출 10억 멘토 만난다
+-  State Commission: discrimination occurs everywhere in the Netherlands
+-  70% de estudiantes cree que la Selectividad debe ser igual en toda España
+-  Nayanthara and Vignesh Shivan do puja marking `new beginnings`, see pics
+-  Military veteran's family sue Missouri funeral home for returning his BRAIN in a cardboard box 'by mistake' after the organ donor was sent to be cremated
+-  Lazio | Inzaghi e il piano anti-Sarri: al microscopio gli errori del passato
+-  מאות מאוהדי הפועל חיפה הגיעו לתמוך לקראת הדרבי
+-  美斯訪港︱楊潤雄提醒市民小心「假飛」 稱正與電視台商討轉播
+-  เปิดโพสต์ ใบเตย สุธีวัน รับเดือนสุดท้ายปี 66 อดทนใช้ชีวิต รอเวลาวางความเจ็บปวด
+-  MOŽE LI DORTMUND IGRE IZ LIGE ŠAMPIONA DA PRENESE U BUNDESLIGU? Današnji rival mu je tradicionalno povoljan protivnik
+-  Η ανάγκη νέου αυτοκινητόδρομου Ελευσίνα – Οινόφυτα για την αποσυμφόρηση της Αττικής
+-  Ops Murni: 18 RAMD bantu KKM periksa kesihatan mangsa banjir
+-  Rumah Warga di Pulau Sebesi Dihujani Abu Vulkanis Gunung Anak Krakatau
+-  شيرين عبد الوهاب بتصرّف لافت بعد انفصالها عن حسام حبيب
+-  خاص – إياد أبو الشامات : " أنا زلمي دقة قديمة "
+-  روبي تشعل الأجواء بغنائها في السعودية .. وتتألق بفستان جلدي قصير
+-  تسريب فيديو لبطل "الطائر الرفراف" مع إمرأة مجهولة..وهكذا تصرفا
+-  كريم فهمي يغمره الفرح ولحظات احتفال في حياته .. لهذا السبب
+-  Mann varetektsfengsles i fire uker etter politi-skytingen
+-  Κοντά στην ανανέωση με τη Ρεάλ ο Αντσελότι, χάνει έδαφος η προοπτική της εθνικής Βραζιλίας
+-  يحدث في الشتاء.. حرائق تجتاح هذه الدولة بسبب شدة الحرارة
+-  تليفزيون الكويت يقطع جميع برامجه بشكل مفاجئ ويبث القرآن الكريم.. ماذا حدث؟
+-  Radonjic torna tra i convocati, ora deve sfruttare ogni singola chance
