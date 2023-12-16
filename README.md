@@ -1,11 +1,11 @@
 # Latest News
--  جامعة الملك عبدالعزيز تعلن عن برامج دبلومات (عن بُعد) و (حضوري) للعام 1445هـ
--  Bandidos invadem empresa e furtam mais de R$ 40 mil em Sinop
--  Plenković se ne može amnestirati iz afere „Mreža“: Sagovornici Danasa o aferi „Mreža“ koju je objavio hrvatski nedeljnik Nacional
--  Foreign Policy: визит Зеленского в США только усугубил ситуацию для Украины
--  Consejo Nacional del Trabajo sesionaría en enero del 2024
--  Confirmó que llega a Millonarios: “Solo falta que lo hagan oficial”
--  DEM Partisi’den CHP’ye ittifak resti: İlk yardım çantası değiliz, yedek güç değiliz
--  TBMM Genel Kurulu'ndaki bütçe görüşmelerinde Bakan Koca'dan dikkat çeken açıklamalar
--  Great News for Rivian Stock Investors!
--  تشاد تطرد 4 دبلوماسيين سودانيين
+-  Detective vows to continue search for Yanfei Bao
+-  Valverde a Nico Williams tras su golazo: «¿Pero tú eres zurdo?»
+-  Görmə məsafəsi məhdudlaşacaq
+-  Shokki-ilmoitus: Antti Raanta heivattiin NHL:n siirtolistalle
+-  Moody's'ten sürpriz Türkiye kararı!
+-  Zehir tacirlerinden akıl almaz yöntem: Ayakkabıların topuklarına saklamışlar
+-  Ukrajinci u borbi s Rusima koriste minobacač proizveden u Novom Travniku
+-  Kolme kuoli muurin romahdettua Unescon maailmanperintökohteessa Tunisiassa
+-  Delsa Solórzano exige la liberación inmediata de los 300 presos políticos secuestrados por el régimen
+-  Atala: “Es el mejor Olimpia de los últimos treinta años”
