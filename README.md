@@ -1,51 +1,51 @@
 # Latest News
--  Linetty: “Facciamo molto bene in difesa. Vogliamo sempre vincere”
--  El Vaticano duplica en Valladolid el año jubilar: del Sagrado Corazón al Niño Jesús
--  Rocky Romero on How Long He Tried To Set Up CMLL-AEW Relationship
--  São Paulo volta a vencer Milan com show de Dodô e faz festa da torcida no Morumbi
--  임영웅이 곧 장르다…키워드는 ‘팬들 사랑’[스한초점]
--  Lotería Nacional de Panamá EN VIVO: resultados de HOY, domingo 17 de diciembre, por Telemetro
--  بكرى المدنى: بعيدا عن ملحمة مدني
--  일본 2부→독일 분데스 주전 “체격·온볼이 중요” [축구]
--  The Prodigal Nephew Returns: Sebastian Hoeneß leads dangerous VfB Stuttgart squad vs. Bayern Munich
--  寿命の短い動物は長い動物よりも早く脳が発達するという説は間違っていて「同じスピード」で発達していることが示される
--  Top 3 Dunia: Hamas Ubah Gaza Jadi Kuburan Israel, Tiga Sandera Tewas
--  유럽배구 3위 공영방송 “이다영 정말 좋은 세터” [챔피언스리그]
--  Terpopuler: Stok Gula Jelang Nataru Diklaim Masih Aman, Perhatikan Nomor Jalur Kereta di Stasiun Manggarai
--  Pemesanan Wuling Binguo EV Tembus 3.000 Unit, Inden 2 Bulan
--  9 Buah dan Sayur untuk Meningkatkan Daya Tahan Tubuh
--  वजन घटाना: बिस्तर पर लेटकर भी घटा सकते हैं वजन, रोजाना करें ये 3 एक्सरसाइज
--  [오피셜] '러시아 WC 때 한국 상대' 포르스베리, 미국 MLS 뉴욕 레드불스 이적 확정
--  एक कटोरी चावल का पानी दूर करेगा वायरल बुखार, होंगे ये 10 फायदे
--  DJ Envy Addresses Blackballing Nicki Minaj
--  Renee 6:30 Exposed Photo Of Demarco “A Do The Things Dem”
--  Meek Mill Cried During Pennsylvania Probation Bill Signing: ‘I needed that’
--  Treasury abandons agric financing on defaults
--  Dojava o postavljenoj bombi na koncertu Lepe Brene na Vlašiću
--  Hay que desatar las fuerzas productivas, y también las fuerzas espirituales de la Revolución
--  Trump promete gran operativo de deportación desde su primer día si es reelegido
--  Fiscalía pide al PJ incluir a Podemos Perú en investigación contra el congresista José Luna Gálvez
--  కేసీఆర్‌ కుటుంబ సభ్యుల పాస్‌పోర్టులను సీజ్‌ చేయాలి
--  Pedro Nuno Santos é o novo secretário-geral do Partido Socialista
--  Será que faz mal comer queijo todos os dias?
--  İsrail ordusu: Gazze'deki esirlerimizin kaçma senaryosuna hazırlıklı değildik
--  Colin Burgess, que ajudou a formar os AC/DC em 1973, morreu aos 77 anos
--  Piden la pena de muerte para hombre que se grabó abusando sexualmente a un niño en Florida
--  BBC Strictly Come Dancing viewers 'sickened' and demand 'stop' after infuriating move in final
--  'Family Matters' Star Darius McCrary Arrested Over Failure to Pay Child Support: Report
--  الدولية للهجرة: فقدان 61 مهاجرا وإنقاذ 25 قبالة السواحل الليبية
--  Apple pilots discounted subscription scheme to developers
--  جمعية دار للإسكان تسلّم 100 أسرة ضمانية وحداتهم السكنية
--  EMILY PRESCOTT: No stepping out this Christmas for Ellie Bamber who injured her foot and his hobbling around in a boot
--  Estes são os 8 melhores bumbuns do mundo
--  مركز الملك سلمان للإغاثة يشارك في فعالية عن التنمية لصالح اللاجئين
--  Prehistoric 'lost world' discovered is 'one of best examples of earliest life on Earth'
--  وزيرة الصحة تؤدي زيارة تفقد واطلاع على المنشآت الصحية بمدينة أطار ..صور
--  Voleibol feminino: FC Porto venceu Sporting na "negra"
--  Boavista arrancou empate frente ao Vitória SC com este penálti
--  Poraz rukometašica Mornara 7 u šesnaestini finala Kupa
--  Jason Kelce's wife Kylie admits football often 'throws a wrench' in her preparations for Christmas amid her Eagles-star husband's busy NFL schedule: 'It's a lot of planning'
--  El mar Rojo, amenazado por los hutíes del Yemen
--  États-Unis: un attaché parlementaire écarté après la découverte d'une sextape filmée au Sénat
--  Kareem Abdul-Jabbar falls and breaks hip at Los Angeles concert
--  Kareem Abdul-Jabbar falls and breaks hip at Los Angeles concert
+-  김유정♥송강, 달콤한 입맞춤 엔딩…마침내 맞닿은 마음 [마이데몬](종합)
+-  결국 옛 스승과 재회? 뮌헨·독일 핵심 MF, 이적 가능성↑..."PL 최고의 팀 영입 명단 1순위다"
+-  하나금융, ‘하나 DxP 과정’ 2기로 데이터 핵심인재 30명 배출
+-  이세영, 죽음의 진실 알았다…♥배인혁과 '쌍방 고백'→얽히고설킨 악연 [열녀박씨](종합)
+-  '효심이네' 유이, ♥하준에 이별 통보?…"여자친구 못 될 것 같다" [효심이네](종합)
+-  공공 현장에 스며든 민간 SaaS 서비스…"업무효율↑ 비용↓"
+-  'Hospital General' lidera los premios Emmy Daytime
+-  Transportistas llevan apoyo y regalos a niños de casa hogar
+-  Acer Swift Go 14 Hadir dengan CPU Intel Ultra 7 155H
+-  الاردن على موعد مع كتلة هوائية باردة منتصف الأسبوع
+-  Commuters Stranded As Tanker Crashes On Jos-Abuja Expressway – FRSC
+-  Cultural Wedding Styles @ ADA Omo Daddy Premier
+-  Totálny psychopat! Liam Brown (25) opakovane narúšal chod farmy: Jeho zvrhlosti si odniesli TIETO zvieratá
+-  By: truck air bags
+-  Australia’s Fav Travel Destinations Have Been Revealed & Bali Somehow Didn’t Even Crack Top 5
+-  Sánchez echa leña al ciclo electoral con la legitimación exprés de Puigdemont y Bildu
+-  Muhammadiyah Tegaskan Ketahanan Pangan Indonesia Harus Diwaspadai
+-  सरकार को दी चेतावनी ! धारावी के लोगों को घर दिए बिना हम रुकेंगे नहीं - ठाकरे,
+-  Natalie Darwitz finds ‘my calling’ leading Minnesota’s new professional women’s hockey team
+-  Salvation Army short of volunteer ‘bell-ringers’ for this year’s Christmas Kettle campaign
+-  الأعلى تقييمًا في مباراة برشلونة وفالنسيا
+-  Juliana Cen, Penyandang Autisme yang Menjabat Senior Manager Microsoft Indonesia
+-  Civiles, policías y militares trabajan para liberar a personas atrapadas tras fuerte accidente en Santa Ana
+-  La Jerusalén abertzale
+-  Ottawa Senators still trying to right the ship
+-  About 100 march in Fargo to show support for Palestine, ceasefire
+-  NASA Engineer Named in Forbes 30 Under 30 List of Innovators #SpaceSaturday
+-  "Se me preocupasse com a carreira talvez não me tivesse candidatado"
+-  Para aplacar el calor, Essap habilita un túnel refrescante en el microcentro
+-  Eso no fue así: un recorrido por los errores más llamativos de las series históricas
+-  Eso no fue así: un recorrido por los errores más llamativos de las series históricas
+-  How to wrap a present perfectly using maths
+-  Ray Romano has no interest in rebooting his sitcom
+-  Suomen mäkikotkat alittivat odotukset
+-  Puno: docente falleció tras descarga de rayo en Putina
+-  PS: Costa felicita Pedro Nuno pela sua vitória nas eleições para secretário-geral
+-  Luftfahrt-Pioniere - Die Gebrüder Wright heben erstmals ab
+-  اجتماعات لائتلاف «تقدم» في نيروبي تبحث التطورات السياسية والميدانية
+-  В Европарламенте признали вред антироссийских санкций для жителей ЕС
+-  Xavi lamenta ineficácia do Barcelona: "Devemos ser dos piores da Europa"
+-  Europerro lazarillo
+-  BRI Liga 1: Thomas Doll Puji Wasit Jepang Futoshi Nakamura: Ini Bukan Berarti Memojokkan Wasit Indonesia
+-  La Garbo del CGPJ
+-  El retorno de las malas mujeres
+-  Mesut Ozil goes 'wild' with cheeky reply to Leonardo DiCaprio's 'what's Arsenal' question
+-  Man City join £60m Joao Palhinha transfer battle with Liverpool and Bayern as Kalvin Phillips heads for the exit
+-  Revesby crash victim identified as Mahee Uddin - as his heartbroken sister pays tributes
+-  McHenry puts up 16 as Western Kentucky downs Austin Peay 65-64
+-  Atlético de Madrid recibió un cachetazo de Athletic de Bilbao, pero Diego Simeone no se inmuta: “¿Preocupado? Es el día en el que más tranquilo estoy”
+-  Top 10 best countries for digital nomads 2024
