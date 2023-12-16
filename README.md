@@ -1,11 +1,51 @@
 # Latest News
--  Tvrdé slová analytika: Zmeny v druhom pilieri budú mať veľké dopady! Takto prídete o svoje peniaze
--  Sú bratislavské trhy predražené? Obrovské prekvapenie v Budapešti: Z tých cien sa vám pretočia oči!
--  Andrea Verešová zverejnila VÝNIMOČNÚ FOTO: Pozrite, jej dcéra je NÁDHERNÁ!
--  Kristínin syn (2,5) dostal tradičné meno: Prezradila, ako ho s manželom vyberali!
--  Maďarsko bude vetovať vstup Bulharska do Schengenu, ak nezruší daň na ruský plyn
--  NAJLEPŠIE RECEPTY Adriany Polákovej na medovníčky a linecké koláčiky: Iné už NIKDY ani neskúsite
--  Nezvestný britský tínedžer nájdený vo Francúzsku sa do Británie vráti dnes
--  АҚШ Россия активларини Украинага қонуний равишда бериш йўлини топди — ОАВ.
--  [오늘의 운세] 12월 17일 오늘의 띠별 운세
--  "♥나경은이 베개만 사냐고 하겠어"…유재석, 만원짜리 호텔 베개 득템에 '대만족' [놀면 뭐하니](종합)
+-  إعلام عبري: مجلس الحرب سيجتمع اليوم لبحث إمكانية عقد صفقة تبادل للأسرى مع حماس
+-  رابطة الصحافة الأجنبية تدعو إلى التحقيق في مقتل مصور الجزيرة بغزة
+-  "السيدة السامة".. إصابة 23 طبيبا بأعراض غريبة بعد محاولة علاج مريضة بالمستشفى.. ما القصة؟
+-  سعر الذهب اليوم السبت في مصر بحلول التعاملات المسائية
+-  Billy Gunn Says He Loved the Billy & Chuck Tag Team, Discusses Representation in Wrestling
+-  Olimpijakos bez milosti za svog navijača – doživotna zabrana
+-  Ισοβίτης σκότωσε συγκρατούμενό του στην Αλβανία με όπλο που έφτασε στα χέρια του μέσω drone
+-  "VAŠA LJUBAV ĆE VEČNO DA TRAJE" Evo kada će biti sahranjena trudnica koja je stradala u nesreći kod Negotina, ožalošćene komšije: "Bila je lepa kao anđeo" (FOTO)
+-  (VIDEO) "BILI SU SIROMAŠNI" Mile Kitić i danas dolazi u rodno selo u kom je nekada bio glavni zavodnik: "Bilo je pet-šest devojaka za koje ja znam"
+-  Viral Video: ఎంత అవమానం.. ఓ యువతి బిస్కెట్లు ఇస్తుంటే ఆ కోతులన్నీ ఏం చేశాయో చూడండి..
+-  LIC Gratuity Limit Hike: एलआईसी ने ग्रेच्युटी सीमा बढ़ाकर 5 लाख रुपये की, जानिए किसे मिलेगा इसका फायदा
+-  „Der Blabla-Wumms“: Der wahre Grund, warum Politiker nie Klartext reden
+-  Левица: Молчењето е соучесништво во злоделото за Чебрен
+-  Mexico News Daily staff picks 2023: Films and series
+-  Бешикташ ще се опита да пребори конкуренцията за Хосе Кордоба
+-  Firasat Prabowo ke Menag: Sepertinya Gus Yaqut Akan Berperan Terus di RI
+-  Во Франции предложили пойти на неожиданный ход из-за Зеленского
+-  14 Recipes To Make For A Holiday Treat Exchange
+-  Tudor Arghezi, despre remake-ul făcut de Spike la melodia „Au înnebunit salcâmii”: „Nu mai semăna deloc cu ce am cântat eu”
+-  Al menos 8 estudiantes resultan afectados fuego Universidad O&M
+-  Rektor Faričić novim magistrima: Budite graditelji novog društva usmjerenog prema čovjeku
+-  VIDEO: El rival chino de Boeing y Airbus realiza un vuelo de exhibición sobre Hong Kong
+-  Family-run Tempest bar and bistro launches in Prescot town centre
+-  Conor Coady Academy set up to 'give something back' to St Helens
+-  Share a picture of your festive pets wearing their Christmas jumpers
+-  Missing man with links to St Helens town centre found safe
+-  St Helens town centre regeneration: A look at the plans for phase one
+-  Best Holiday Deals on E-Bikes: Save Hundreds on Top Brands Like BirdBike, Velowave and More
+-  OnePlus 12: What to Expect From the Next OnePlus Flagship
+-  Best Holiday Deals on E-Bikes: Save Hundreds on Top Brands Like BirdBike, Velowave and More
+-  OnePlus 12: What to Expect From the Next OnePlus Flagship
+-  Best Internet Providers in Miami Beach, Florida
+-  Best Internet Providers in Miami Beach, Florida
+-  Best Streaming Services for Documentaries
+-  Best Streaming Services for Documentaries
+-  Atari 2600 Plus Review: A Modern Throwback
+-  Atari 2600 Plus Review: A Modern Throwback
+-  Apple's iMessage Will Probably Never Come to Android. And That's OK
+-  Apple's iMessage Will Probably Never Come to Android. And That's OK
+-  Chelsea vs. Sheffield United Livestream: How to Watch English Premier League Soccer From Anywhere
+-  Chelsea vs. Sheffield United Livestream: How to Watch English Premier League Soccer From Anywhere
+-  Texas Gets a Billion-Dollar Boost for Broadband. What It Means for You
+-  Apple Watch Ultra Grade A Refurbs Are Just $530 at Woot
+-  Texas Gets a Billion-Dollar Boost for Broadband. What It Means for You
+-  Apple Watch Ultra Grade A Refurbs Are Just $530 at Woot
+-  Don't Kill Your Plants This Winter. Here's How to Save Them
+-  Don't Kill Your Plants This Winter. Here's How to Save Them
+-  Social Security Payments for December 2023: Will Your Check Come This Week?
+-  Social Security Payments for December 2023: Will Your Check Come This Week?
+-  Best Internet Providers in Wyoming
