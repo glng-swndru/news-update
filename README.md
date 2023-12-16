@@ -1,11 +1,11 @@
 # Latest News
--  Германия — Перед Рождеством в Германии будут бастовать магазины
--  হুতিদের হামলায় লোহিত সাগরে জাহাজ চলছে কম
--  Юная симферопольская теннисистка завоевала два «золота» на одном турнире
--  Dortmund’s poor run continues with draw at Augsburg
--  Predsednik Madagaskara položio zakletvu za treći mandat na čelu države
--  Explained: Why Stealth Combat Drones Hold Importance In Modern Warfare?
--  India Proposes To Replicate Ancient Maritime Voyage To Oman
--  «Манчестер Сити» упустил победу над «Кристал Пэлас» из-за пенальти в концовке
--  Эдвардс — Ковингтон: во сколько и где смотреть бой UFC 296
--  You Can Buy Anything From This Field Of Abandoned Classic Cars And Trucks
+-  عاجل.. خطوات تقديم اعتراض على استحقاق الضمان الاجتماعي المطور
+-  مدمّرة بريطانية تُسقط مسيّرة هجومية في البحر الأحمر
+-  Vatikánsky súd odsúdil kardinála Becciua v korupčnom procese za spreneveru
+-  POZOR Známa sieť predajní sťahuje z pultov dojčenskú výživu! V žiadnom prípade výrobok nejedzte
+-  Skispringer Paschke holt mit 33 Jahren ersten Weltcup-Sieg
+-  İsrail'de taşlar yerinden oynadı! Netanyahu Hamas'ın kapısını çalacak
+-  VIDEO Ovo je trenutak u kojem se srušio kapetan Luton Towna
+-  PKL: Puneri Paltan Thrash Bengal Warriors, Dabang Delhi Beat Telugu Titans
+-  Sem Haaland, Manchester City tropeça em seu último jogo antes do Mundial
+-  Οριστική διακοπή στο Μπόρνμουθ – Λούτον μετά την κατάρρευση του Τομ Λόκιερ στον αγωνιστικό χώρο
