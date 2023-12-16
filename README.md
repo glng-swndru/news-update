@@ -1,51 +1,51 @@
 # Latest News
--  Tragedia iski Kanadassa - uhrina 11-vuotias jääkiekkoilijapoika
--  Genetic Link To Air Pollution, 3 Reasons That Can Cause Lung Cancer
--  Rama: Për ne është privilegj të konsiderohemi si miku special i Italisë
--  Samsunspor’da Konyaspor maçı hazırlıkları sürüyor
--  Bogdanović među najvećim kandidatima za trade, poznata je i cijena, ali i momčadi kojima bi najbolje došao
--  Corendon Alanyaspor Teknik Direktörü Fatih Tekke: Bulunduğumuz yerden kurtulmak istiyoruz
--  بالصور - مؤتمر التيار الوطني الحر عن "منتدى البلديات حول النزوح السوري" بمشاركة الرئيس عون والوزير باسيل (بعدسة الزميل جورج فغالي)
--  I tre ostaggi uccisi per sbaglio dall’esercito israeliano sventolavano una bandiera bianca, ha detto l’esercito stesso
--  How Ryan Reynolds' Social Media Posts Helped This Motorcycle Company Achieve Next Level Popularity
--  Additional News in Brief Mallorca
--  Reallığa uyğun gəlməyən statistika: Nağdsız ödənişə qayıdırıq?
--  Nazionale, Spalletti: "Europei, nessuno dei nostri avversari sarà felice di incontrarci"
--  5 Realita Hidup yang Diungkap Drama Bad Boys vs Crazy Girls 2
--  Rama në kongresin e partisë së Melonit: Jam i sigurt për marrëveshjen e emigrantëve, nuk është antikushtetuese
--  BM: Devam eden saldırılarla Gazze'ye yardım ulaştırılamıyor
--  Filede dev final! İki Türk takımı karşı karşıya geliyor
--  Komşuda vatandaşlar 10 yıl sonra sandık başına gitti
--  İşte Galatasaray'ın Avrupa karnesi! Cimbom 13 kez gruptan çıkamadı
--  Diyanet İşleri Başkanı Erbaş: Biz, bu davayı toplumlara, insanlara ulaştıracağız
--  Öbergs tuffa dag – sköt bort pallchans
--  Los conductores de Monbus amenazan con el plante por el carril bus-VAO de Gran Vía
--  Putin će biti nezavisni kandidat na narednim predsjedničkim...
--  Lorin nag-aapoy ang kaseksihan
--  Джорджина и Кристиано са по-щастливи отвсякога
--  Produksi Turun, Stok Gula Jelang Nataru Diklaim Masih Aman
--  Kroatië lokt digitale nomaden om leegloop te bestrijden
--  Man omkom när grävmaskin gick genom isen
--  Τελειώνει από τη Ρεάλ ο Μόντριτς!
--  Случайно убитите от израелската армия заложници, са развявали бяло знаме
--  Karamollaoğlu CHP'nin Meclis'teki desteği için teşekkür etti
--  Deutschlands Weltmeister: Diskussion um unsere U17-Helden entbrannt
--  Kolstad-kamp utsatt etter flykaos: - Langt fra optimalt
--  "Випускали фактично з фури": у Повітряних силах вказали на особливість запуску "шахедів"
--  Babak Pertama; Persija Vs PSS Imbang dengan Skor Kacamata
--  Školska knjiga prva u Hrvatskoj uvela umjetnu inteligenciju u obrazovni sustav
--  Szijjártó Péter egy francia tévécsatornán is kijelentette: Mi saját magunkkal törődünk, Magyarország az első! - videó
--  Suben a 30 las víctimas del trágico accidente en la Gran Mariscal de Ayacucho
--  LIVE TJ - SAMPDORIA-JUVENTUS WOMEN 0-0 - Beerensteyn ad un passo dal vantaggio
--  Trainer kritisiert DSV-Stars: Unter quälenden Schmerzen rast Sander ins Glück
--  Zeinab, Bobby Ray hirap sa LDR
--  Big boost for The Potteries Centre as cafe opens this weekend
--  Jeweller who started business aged just 10 opens luxury shop in Stoke-on-Trent
--  Birches Head bin men attackers back in court and still waiting to learn fate
--  13 suspects still under arrest two years after 'petrol bombing' rocked Bentilee
--  Disgraced ex-cop locked up - three years after dodging jail for child-sex crimes
--  Bah humbug! Council axes free Saturday parking in run-up to Christmas
--  Royal Mail issues statement amid claims parcels prioritised over Christmas cards
--  DWP gives extra payment to claimants with this five-letter code
--  Neighbours say holiday-let house was used as brothel and party venue
--  The magical topsy-turvy Tudor hall that's like stepping into a Charles Dickens' novel
+-  Embody the Bok spirit of unity this Day of Reconciliation: Ramaphosa
+-  عاجل.. أنهى حياة مواطن رميًا بأداة حادة.. تنفيذ حكم الشرع في جانٍ والداخلية تحذر
+-  Man killed in electric kick scooter crash overnight
+-  Oil and gas should not be demonized: Elon Musk
+-  ITW DZfoot : Gouiri, « L'objectif, c'est de gagner la CAN ! »
+-  Petro condiciona los cese del fuego a acuerdos para reemplazar economías ilícitas
+-  Karadeniz'de 'Karalahana Ayaklanması': En Kötü Yemek Listesine Girdi, Tepki Göstermek İçin 3 Bin Kişiye Çorba Dağıttılar!
+-  Feria ‘Perú con Ciencia’ en Arequipa: Aporte científico en medicina, ecología y la astronomía
+-  Fatih Tekke: Beşiktaş’ın durumu ortada ve bunu değerlendirebiliriz
+-  في ذكرى تأسيسها.. افتتاح مبنى الإدارة العامة في جامعة بنغازي بحضور حفتر وحماد
+-  Liberaron a la niña de 12 años que fue secuestra en Comas
+-  Mercato: quand Suarez et Messi ont tenté de faire capoter l'arrivée de Neymar au PSG
+-  Denim Shoes: Everything You Need to Know About Styling the Fashion Favorite
+-  Jasikevicius sağlık kontrolünden geçti
+-  La historia detrás del primer Sport Urban Vehicle de Alfa Romeo, también 100% eléctrico, el Milano
+-  Romualdez tinukuran biyahe ni PBBM sa Japan
+-  मेरठ में अवैध हथियार बनाने की फैक्ट्री का भंडाफोड़, बाप-बेटा गिरफ्तार
+-  Deutsche Unternehmen beantragen Entschädigung für Verluste im Russland-Geschäft
+-  Respiratory illness down, dengue cases up
+-  Tom Brady Dating History - Full List of Ex-Girlfriends & Ex-Wives Revealed!
+-  Näin paljon eri palkkaluokkien verotus laskee ensi vuonna – Katso oma tilanteesi
+-  Fem van Empel is niet te stoppen en pakt 10 uit 10
+-  Paramedic shortages have some Bay Area residents waiting half an hour or more for an ambulance
+-  Monster Hunter Wilds: release date speculation, trailers, gameplay, and more
+-  Jaka choinka jest bezpieczna dla kota? Zadbaj w święta o zdrowie futrzaka. Najlepsze triki na zabezpieczenie bożonarodzeniowego drzewka
+-  আর্জেন্টিনায় ‘শক থেরাপি’, ১০ অর্থনৈতিক পদক্ষেপ ঘোষণা
+-  The America’s Cup Could Become the F1 of the Ocean Next Year. Here’s Why.
+-  Galtier denies discrimination as prosecutors demand suspended sentence
+-  Valtio vauhdittaa lääkkeiden kaupallistamista miljoonilla – Kehityskeskuksen uusi johtaja hakee menestystä maailmalta
+-  Dags för åsikter om nytt omsorgsboende på Durovägen
+-  New Spuds athletic facilities provide centralized experience for students and fans, showcases community pride
+-  Score unlimited access to 1TB of cloud storage for life for only $120
+-  Vencedora de Squid Game ainda não recebeu os 4,56 milhões
+-  Ma van a magyar építészet napja
+-  Keksi s kremom od lješnjaka
+-  Dags för åsikter om nytt omsorgsboende på Durovägen
+-  বিজয় দিবস পরিণত হয়েছে পরাজয় দিবসে, অভিযোগ মঈন খানের
+-  Barski stogodišnjak hit crnogorske fudbalske jeseni
+-  Violencia en NCG no es generalizada: De la Peña
+-  ‘Ilegal, el fallo condenatorio vs Aras’
+-  Soccerladuma | HT Report: Stellenbosch 0-1 TS Galaxy
+-  Antalya'da sağanak: Ev ve iş yerleri sular altında kaldı
+-  Сирены воздушной тревоги прозвучали на севере Израиля
+-  Педиатр Татаркина назвала конструктор из магнитных шариков опасным подарком для детей
+-  Meurtre de Rudy, 15 ans : deux figures du narcobanditisme marseillais condamnées à la perpétuité
+-  Covid Subvariant In Kerala: করোনার নয়া সাব ভ্যারিয়্যান্টে আক্রান্তের হদিস কেরলে
+-  МИД России: новые антироссийские санкции нанесут больший вред самому ЕС
+-  صفارات الإنذار تدوي بالجليل الغربي
+-  جيش الاحتلال : لم نتعمد استهداف الصحفيين
+-  بعد ربع قرن من الإغلاق .. افتتاح طريق النعيمة - بلعما - صور
