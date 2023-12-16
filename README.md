@@ -1,11 +1,11 @@
 # Latest News
--  حسني بي: انخفاض الدولار بسبب عودة الكبير من تركيا.. غير صحيح
--  Essential Tips for Small Business Owners: Managing Your Finances with Accounting
--  Preço da habitação obrigou Governadora do Banco Central Turco a mudar-se para casa dos pais
--  Järkyttävä sulaminen - Manchester City möhli käsittämättömästi
--  Atletic Bilbao 2-0 Atletico Madrid (MAÇ SONUCU-ÖZET)
--  Между Кутаиси и Копенгагеном начались прямые регулярные авиарейсы
--  KL Rahul to include Sanju Samson? Gaikwad to open with Shubman Gill: India's predicted XI vs South Africa, 1st ODI
--  అధ్వాన్నంగా పారిశుధ్య పనులు
--  Lawmakers scramble to approve emergency foreign aid ahead of holidays
--  Illinois NAACP president apologizes over comments about migrants
+-  Recuperan el 80% de las citas perdidas en Panamá Oeste
+-  Žan Košir v igri za stopničke
+-  Primeira-dama de MT parabeniza Seduc pelo 1º Torneio de Robótica na rede estadual
+-  Bilbao očitao lekciju Atletiku
+-  Lula comemora aprovação da Reforma Tributária
+-  Primeira-dama de MT parabeniza Seduc pelo 1º Torneio de Robótica na rede estadual
+-  گیس لیکج سے امام مسجد سمیت 2 افراد جاں بحق ہوگئے
+-  Dangerous Snake Video: खतरनाक सांप को बालों की तरह संवारती नजर आई बच्ची, वीडियो देख खड़े हो जाएंगे रोंगटे!
+-  Mötley Crüen rumpali haastettu oikeuteen raiskauksesta
+-  Philippe Clement challenges Rangers to ‘write history again’ in League Cup final
