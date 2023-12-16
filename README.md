@@ -1,11 +1,11 @@
 # Latest News
--  „Белият цвят на тревата“ – миражите като реалност - Труд
--  Tom Lockyer: Schockmoment im Stadion! Fußballer (29) während Spiel zusammengebrochen
--  Sport | Spinners shine as Bangladesh down Proteas women to win opening ODI
--  Señala Alito 'demencial' actitud de Samuel García
--  ברדה: "השתחרר הרבה לחץ". שהר: "כמות ספיגות של ירידת ליגה"
--  В Омске сотрудники МЧС спасли 11 детей во время пожара в жилом доме
--  Jokerit riehui Forssassa - viimeksi meno on ollut näin rajua vuonna 1989
--  Tottenham on tehnyt valintansa: tämän topparin he haluavat
--  Apple, Visa, Mastercard face lawsuit over high merchant fees
--  Benfica é principal candidato ao título, mas Sp. Braga quer vencer
+-  మేముసైతం!
+-  హామీలు నెరవేర్చకుండా వేధింపులా?
+-  ప్రాణం తీసిన కుంపటి
+-  భోపాల్‌కు గంజాయి తరలింపు
+-  64కిలోల గంజాయి స్వాధీనం
+-  Former Congress MLA Yumsen Matey Shot Dead Near Indo-Myanmar Border In Arunachal Pradesh
+-  విద్యార్థులతో జాతీయస్థాయి గుర్తింపు
+-  సౌత్‌జోన్‌ క్రీడాపోటీలకు సెయింట్‌ జోసెఫ్‌ దంత వైద్య విద్యార్థులు
+-  ముగ్గురికి గాయాలు
+-  సంక్షేమ పథకాలతో ఆర్థిక పరిపుష్టి సాధించాలి
