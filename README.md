@@ -1,11 +1,11 @@
 # Latest News
--  Capturan al “Perica” solicitado por EE.UU. por delitos relacionados al narcotráfico
--  Erdoğan’dan sonra Bakan Koca da depremzedelerden ‘helallik’ istedi: Daha iyisini yapabilirdik
--  Teenager Alex Batty returns to Britain after being missing for 6 years and then turning up in France
--  Laura Di Marco: “Empezó la temporada del ‘Ah, pero Milei’”
--  أسباب وأعراض وعلاج كسر عنق الفخذ لدى كبار السن
--  نشرة التوك شو.. استمرار أزمة السكر والبصل وتداعيات تهديد الحوثي للملاحة على قناة السويس
--  Германия — Насколько подорожают бензин, газ и печное топливо
--  فالنسيا يقتنص تعادلا ثمينا أمام برشلونة في الدوري الإسباني
--  Солдаты ВСУ назвали контрнаступление на Днепре самоубийством
--  Quaker Oats recalls granola products over concerns of salmonella contamination
+-  Dijeron que su bebé murió, pero al reclamar el cuerpo les entregaron una muñeca
+-  Recuperado el cuerpo de otro rehén israelí en Gaza, según las familias de los secuestrados
+-  शाम के खाने में भूलकर भी न खाएं ये चीजें, वरना सेहत को होगा बड़ा नुकसान
+-  कोरोना से ठीक होने के बाद मानसिक रूप से रहें स्वस्थ, अपनी डाइट में शामिल करें ये 5 चीजें
+-  الأمطار تشكل بحيرات في المناطق البرية بالحدود الشمالية (صور)
+-  [트렌D] 합리적 소비 방안, 편의점·마트·이커머스 ‘PB상품’ 확대
+-  Lotte Fine Chemical imports 5,500 tons of urea from Vietnam
+-  «El miedo tiene mucho más poder que cualquier otra emoción»
+-  Американский генерал ударил украинского солдата при Зеленском
+-  Canucks fall to Wild, 4-game win streak ends with shootout loss
