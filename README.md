@@ -1,51 +1,51 @@
 # Latest News
--  Christmas lunch alternatives
--  (사)한국장애인부모회 홍천군지부, 2023년 송년행사 개최
--  Israel: Lufthansa will ab Januar wieder nach Tel Aviv fliegen
--  Evlilikleri bitti
--  'Dünya Türk dizilerini izliyor'
--  Tommy Shelby'e benzetildi!
--  ‘토트넘-맨유에서 모두 실패’... 이제 시선은 분데스리가→도르트문트 관심
--  При обстреле Донецка был тяжело ранен сотрудник заправочной станции
--  الارصاد تصدر تنبيه جوي وتحذر من أمطار غزيرة وجريان الأودية
--  Chirana T.Injecta zmenila po 15 rokoch vedenie, post prezidenta prevzal rodák z Poľska
--  HLV Gong Oh-kyun gặp khó khăn: Quên U23 Việt Nam đi, đây là V.League
--  Lễ ăn hỏi Diễm My 9x: Chú rể diện áo dài lịch lãm, khoảnh khắc "dán chặt mắt" khi cô dâu lộ diện gây sốt
--  Giới nhà giàu ở nền kinh tế đang lên “như diều gặp gió” của châu Á đổ xô mua bất động sản ở thành phố giàu có bậc nhất thế giới
--  Hiện trạng các khu "đất vàng" bị đề nghị thu hồi xây trường học
--  Khoảnh khắc chung khung hình cuối cùng của Châu Hải My và Lý Nhược Đồng, "Tiểu Long Nữ đẹp nhất màn ảnh" có chia sẻ khiến netizen nghẹn ngào
--  Hàng loạt sao Việt báo tin "đau đầu" cho HLV Troussier
--  Nghe cô U50 kể chuyện làm nhà, mua 2 mảnh đất từ bàn tay trắng: Tiết kiệm hết mức tối đa, đi du lịch là chuyện xa xỉ
--  Thị trường AI tạo sinh Trung Quốc có thể vượt 1.400 tỷ USD trong năm 2023
--  Không khí lạnh tràn về, người dân Hà Nội mặc áo ấm, che mặt kín mít khi ra đường
--  Cô gái 20 tuổi và 4 thanh niên phê ma túy trong căn phòng thuê
--  Parliament Smoke Attack: एक बार में बच्चे को दे दिया अपना खून… ललित झा के पिता ने बताई कहानी – VIDEO
--  KPT kenal pasti universiti hadapi masalah penginapan pelajar
--  Ангелопол рассказал, что полностью доверяет тренеру Линичук
--  "Боруссия" и "Вердер" сыграли вничью. Марвин Дукш повторил рекорд Руди Феллера
--  رحیم یار خان: 6 مسلح ڈاکو تاجروں سے 18 کروڑ روپے کا سونا چھین کر فرار
--  Na primorskim otocima bukti rat za ličku vodu. Hoće li mala senjska tvrtka usisati rapski komunalac?
--  Morto Toni Negri, aveva 90 anni
--  Blisko 6 dni czekają kierowcy tirów przed przejściem w Hrebennem
--  Baciš mački igračku, ona je donese i već je srećna, pokazuje...
--  Citypress | Stop your children from trying out vaping this festive season
--  Fetița ucraineancă de 6 ani care a făcut atac de cord în timpul unui bombardament rusesc. ”Mi-e frică” VIDEO
--  RUTO gives Chinese contractor an ultimatum to construct railway line passing through Karen as he declines his requests
--  Олег Иванов — о ситуации в «Спартаке»: «Между Абаскалем и командой нет той химии, что была год назад»
--  Marlijeva pjesma o Selasiju napokon u etru
--  Увеличен предельный размер кредита по Арктической ипотеке
--  Presuda porote na kalifornijskom sudu: Trgovina Google Play djelovala je kao monopol
--  Január 1-től nem lehet illetékbélyeggel kifizetni a bírósági eljárási illetéket
--  Kalenderblatt am 16. Dezember: Ereignisse, Geburtstage und Todestage
--  Роналду не вошел в сборную самых дорогих футболистов саудовской лиги
--  При обстреле Донецка получило повреждения здание школы
--  Türkiye'nin BM Daimi Temsilcisi Önal'dan Gazze için çağrı: 'Acilen ateşkes ilan edilmeli'
--  India record crushing women's Test win over England
--  4 Social Security Changes Joe Biden Wants to Make: Is 2024 the Year They Become Reality?
--  Grup düşmüştü! CHP’li vekil Saadet Partisi’ne geçti
--  ลมหนาวระลอกใหม่ 17-23 ธ.ค. อุณหภูมิลดฮวบ 3-5 องศาฯ
--  อย.เผย 8 เครื่องสำอางอันตราย ใช้สารต้องห้าม ทำหน้าพัง
--  Дом кондитера Серикова в Туле признан объектом культурного наследия
--  스타벅스, ‘핑크 캐모마일 릴렉서·체리 포레누아 케이크’ 주문 시 1천 원 적립
--  ICSID “론스타 배상 판정 집행 무기한 정지”
--  Over 300 players register for IPL 2024, ten are from Afghanistan
+-  “‘尹 아바타’ 한동훈, 대통령에 한번이라도 ‘아니되옵니다’ 해봤나”
+-  Chủ tịch Laporta gửi thông điệp đến Xavi
+-  Carlo Ancelotti đưa ra lựa chọn giữa Real và Brazil
+-  Diego Simeone: "Cậu ấy là một cầu thủ toàn diện"
+-  Đây sẽ là trung vệ mà Real cần nhất lúc này
+-  Xavi ngày càng gần việc chia tay Barca
+-  Unai Emery khẳng định chắc nịch về mục tiêu vô địch
+-  Suarez & Messi khuyên hết nước, nhưng Neymar đâu có nghe
+-  Joe Cole dự báo mức giá khổng lồ Arsenal phải chi cho Douglas Luiz
+-  Tchouameni gây sốc cho tất cả
+-  Pochettino quay xe với sao Chelsea
+-  Các đội bóng ở Ligue 1 “thích” ghi bàn cuối trận mùa này
+-  Tỏa sáng trước Forest, Richarlison được "tung lên mây"
+-  Gary Neville: "Những điều này phải dừng lại"
+-  Alisson: "Onana đủ sức thay thế De Gea"
+-  Arteta khen ngợi đối thủ
+-  Viễn cảnh trong mơ tại Anfield với NHM Man Utd
+-  Tottenham "thở phào" về chấn thương của trụ cột
+-  Pochettino: "Cậu ấy sẽ có trận đấu ra mắt ở Stamford Bridge"
+-  Guardiola xác nhận khả năng thi đấu của Haaland
+-  Berbatov dự đoán kết cục của Man Utd tại Anfield
+-  M.U thu nạp thêm 1 thủ môn
+-  Đội hình trong mơ của Newcastle với Toney và De Gea
+-  Phát biểu của các đối thủ đã chỉ rõ điểm yếu của M.U
+-  Cỗ máy hủy diệt Man City chuẩn bị vào guồng?
+-  4 lý do khiến Hojlund 'tắt điện'
+-  Agbonlahor khuyên Chelsea bán 1, giữ 1
+-  Neville: "Cậu ấy sẽ có giá 100 triệu bảng"
+-  Đội hình M.U đánh bại Liverpool năm 2016 nay đâu?
+-  لقاء قطري إسرائيلي مرتقب لاستئناف مفاوضات الأسرى
+-  CM की शपथ लेने के साथ ही राजधानी से सामने आयी दो रेप की घटनाएं
+-  Daily horoscope for December 16, 2023
+-  Përmirësoni komunikimin me këto sjellje
+-  이정현, 로드FC 9연승 질주 "더 강한 상대 붙여달라"
+-  SoloDate, l’hashtag che celebra l’appuntamento in solitaria
+-  AK Parti için kritik tarih! Erdoğan adayları açıklayacak
+-  Hakem Umut Meler'den açıklama!
+-  CHP'li vekil Saadet Partisi'ne geçti
+-  Apple TV+ annuncia la serie “Your Friends and Neighbors”
+-  Журналистът Ангел Григоров: Русия има необходимия ресурс за дълга война на изтощение
+-  Tether Collaborates With US Regulators For Robust Crypto Security
+-  Solana Flips Ethereum DEX Volume As Saga Mobile Gets Sold Out & BONK Price Rally
+-  Prof insegna da 20 anni ma non è laureata. Dovrà restituire 247mila euro
+-  25 sjukhus borta i Gaza – 18 000 döda
+-  Sabah Bakıya sulu qar yağacaq
+-  熊本市の職員採用、初の「早期募集枠」導入 24年度 従来日程より2カ月前倒し、民間と同じタイミングに
+-  Montgomeryshire holiday park plan objectors want scheme 'called-in'
+-  Découvrez le Grand JT des territoires du samedi 16 décembre
+-  ŠA POBESNEO U CIK ZORE Napravio haos ljubavnici zbog poklona od 22.000 evra koji je dobila od bivšeg
+-  Defunciones 16 de diciembre
