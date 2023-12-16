@@ -1,51 +1,51 @@
 # Latest News
+-  Valtteri Bottas kiistää jyrkästi jo varmana pidetyn tiedon sopimuskuvioista
+-  Strictly Come Dancing 2023 winner: Ellie Leach and Vito Coppola crowned champions as they take home the glitterball trophy
+-  Strictly fans go into meltdown as Ellie Leach, 22, becomes show's youngest ever winner and dedicates Glitterball trophy to pro partner Vito Coppola, 31
+-  Recolecta más de 7 mil chamarras el programa 'Abrigos que abrazan'
+-  Tiene el TSJ presupuesto de los más altos del país
+-  فصل طالب فلسطيني من مدرسة أمريكية عقابا على منشورات والدته الداعمة لغزة
+-  Centenas de migrantes llegaron hoy a Juárez en el tren
+-  “암 진단 받았는데 보험사가 절대 안믿어요”…보험금 안주고 황당한 얘기만 [어쩌다 세상이]
+-  Pazerność nie popłaca. Heidenheim straciło szansę na gola przez... własnego napastnika [WIDEO]
+-  Dengue: Fumigan más de 24,000 viviendas en Chimbote
+-  Zaharova: Nove sankcije EU protiv Rusije nanijeće najviše štete Uniji
+-  Hyoran se despede do Atlético-MG e fica livre no mercado
+-  Fanúšikovia v SMÚTKU: Zomrel člen (†77) slávnej kapely AC/DC!
+-  Bývalá vládna strana PiS je proti zmenám vo verejnoprávnych médiách
+-  V Anglicku zastrelili iba 19-ročného Slováka: Motív nie je jasný, polícia už má podozrivého
+-  Transgender žena na plaveckých pretekoch: Ostatné dievčatá neskrývali zdesenie, problém bol pri prezliekaní!
+-  Fenerbahçe yıldız oyuncunun transferi için masada
+-  Niko kao Novak i Ivana
+-  Google’s Gemini comes to more apps, Cruise slashes its workforce and Tesla issues a recall
+-  وزير الدفاع: خالص التعازي للكويت قيادةً وشعبًا في وفاة الشيخ نواف الأحمد
+-  عاجل.. هل وجود دخل من "حافز" يؤثر على دعم حساب المواطن؟
+-  وزير الرياضة والشباب يتوج الفائزين في سباق الخيل على جائزتي المؤسس واليوم الوطني
+-  Rakitić: Najteži trenutak u karijeri
+-  Are Recording Binoculars Worth It For Camping? Or Are They Just A Pricey Novelty?
+-  Мокрый снег с дождем и оттепель придут 17 декабря в Карелию
+-  Phil Salt hits unbeaten 109 in superb display as England chase 223 to overcome West Indies and keep Twenty20 series alive
+-  تدريس التربية الإعلامية ورقابة الوالدين.. أهم توصيات رسالة ماجستير حول «تأثيرات قنوات يوتيوب الأطفال»
+-  'WBC 음주·남현희·황의조…' 2023 체육계를 휩쓴 사건‧사고 [스한 위클리]
+-  Ozan Kabak'ın golü takımına yetmedi! Leipzig seriye bağladı!
+-  Djoković uderza w krytyków. "Uznano mnie za największego złoczyńcę świata"
+-  BM Raportörü'nden UCM'ye savaş suçu işleyen İsrailli yetkililer için tutuklama çağrısı
+-  جيرارد: مستاء من الهزيمة أمام التعاون.. واستحقينا ركلة جزاء
+-  Bu araçlarda 15 gün sonra kampanya bitiyor! Sıfır faiz, 200 Bin TL indirim: İşte yıl sonu otomobil kampanyaları
+-  Ivory Coast court suspends main opposition party’s elective congress
+-  Inauguran espacio para la capacitación y actualización médica en Eldorado
+-  Tyler Glasnow traded to Dodgers from Rays after agreeing to $136.5 million, 5-year contract
+-  İlim Yayma Ödülleri Takdim Töreni’nde Prof. Dr. Zekeriyya Kurşun Sosyal Bilim Ödülü'nün sahibi oldu! Zekeriyya Kurşun kimdir?
 -  "이정후 다음으로 메이저리그를 놀라게 할 선수는 누구인가" 초대형 계약 예약한 2명 등장했다
+-  Abiodun makes case for diversification of Nigeria’s economy to non-oil sector
 -  Yarınki BUDO seferleri iptal edildi
 -  11. Boğaziçi Film Festivali'nde ödüller sahiplerini buldu
 -  Dusan Alimpijevic'ten galibiyet sözleri!
 -  "İlim Yayma Ödülleri" sahiplerini buldu
 -  Hamas Siyasi Büro üyesi Hamdan: Avrupa ülkelerini ABD'ye baskı yapmaya çağırıyoruz
 -  İsrail ordusu Kemal Advan Hastanesi'nden geri çekildi
+-  Procura pelo bacalhau seco tem diminuído, mas ainda há famílias que se mantêm fiéis à tradição
+-  Mantar çorbası tarifi
 -  Boštjan Udovič: Imate demenco? Vaš problem!
+-  هذا بلدنا .. ليس لنا غيره
 -  '형에 이어 동생까지?' 레알 마드리드, 조브 벨링엄 영입 고려 중...토트넘과 경쟁
--  ‘야! 나 세리머니 해야하는데’... 의도치 않게 클루셉스키 세리머니 망친 히샬리송
--  Севиля уволни треньора си след само два месеца
--  로완, 'SW 고성장 클럽' 과학기술정보통신부 장관상 수상
--  건협 서울동부지부, 중랑구 보건소에 '장애인 특화 차량' 전달
--  인증평가 환자안전 비중 37%… 대부분은 '간호영역'
--  갑을장유병원, 주부대학 동문과 함께 불우이웃돕기 성금 기탁
--  Proposta classificação da "Criança do Lapedo" como Património da Humanidade
--  Strokovnjakinja za oblačenje o tem, kdo hodi po tankem robu in kdo jo navdušuje
--  وزير دفاع الاحتلال: الحرب ستكون طويلة ومتواصلة
--  حماس: لا تبادل للأسرى دون وقف العداون الإسرائيلي
--  نتنياهو: أبلغت بايدن بعدم منح الفلسطينيين أي سيادة
--  الفيصلي يجدد عقدي زكريا و أبو الذهب
--  استهداف آليات الاحتلال بعبوات ناسفة خلال اقتحام طولكرم
--  Thea (18) ble evakuert: – Det var skummelt i starten
--  Strictly Come Dancing 2023 winner: Ellie Leach and Vito Coppola crowned champions as they take home the glitterball trophy
--  شرطة دبي و«تنسيق الداخلية» يبحثان التعاون
--  شرطة أبوظبي تبحث التعاون مع جامعة الإمارات
--  Espoolainen salibandyjoukkue joutui liikenneonnettomuuteen – yksi pelaajista sairaalaan
--  Съставиха актове на виновните за детето, живяло в кокошарник
--  Þýskaland: Forsberg kvaddi með marki og stoðsendingu
--  BBC Strictly Come Dancing fans 'choked up' after star 'robbed' of win
--  إسناد مهام الإسكان والإعاشة لشركات حجاج الخارج
--  Saltillo: fallece Felipe Rodríguez Maldonado, editor emérito de Vanguardia
--  Putin zyrtarisht kandidat i pavarur për zgjedhjet presidenciale 2024
--  Otvoren saobraćaj ispod podvožnjaka
--  'CountShoots' unveils advanced UAV and AI techniques for precise slash pine shoot counting
--  Αναγνωρίζετε την πολύ γνωστή Ελληνίδα τραγουδίστρια;
--  Dan odločitve za Srbijo
--  Nigerian govt confirms dengue fever outbreak in northern state
--  AIOU organizes training workshop on organic kitchen gardening
--  '위믹스'가 고착화된 가상자산 거래소에 던진 돌...빗썸-코빗 약진, 점유율 '요동'
--  شباب المحمدية يذيق التوروكيين الهزيمة الثالثة على التوالي
--  Više od 240 sudionika na “Tri kastafska vrha”: Ni bura ni hladnoća nisu poremetili planove trkačima
--  CHP’de 'eş başkanlık' mı var?
--  נתניהו שלף את דיסקית החטופים במסיבת העיתונאים - כך הגיבו גנץ וגלנט
--  "Wir sind sprachlos und einfach überwältigt"
--  RMU national asset in health sector; Dr Jamal Nasir
--  Ukraine nimmt RBI von schwarzer Liste der "Kriegssponsoren"
--  Unlocking Longevity: Essential Breakfast Foods After 40
--  Шойгу поздравил военнослужащих и ветеранов с Днем РВСН
--  Pensioner John Carter nearly drained his savings giving to charity — his family say those who targeted him need to be put on notice
