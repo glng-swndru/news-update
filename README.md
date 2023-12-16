@@ -1,51 +1,11 @@
 # Latest News
--  向「胖子樂透」許願過好年！西班牙人為何這樣歡度聖誕長假？
--  Serge Espoir Matomba 90 Minutes Pour Susciter L’espoir Des Camerounais :: Cameroon
--  Prism+ air con ad featuring Xiaxue deemed 'not acceptable' due to 'greenwashing' claims
--  Ingwer gegen Übelkeit und Erkältung: Wie die Knolle als Hausmittel wirkt
--  آبل تحذر مالكي ساعاتها الذكية من الشواحن المزيفة
--  الحوثيون: نفذنا عملية عسكرية على أهداف حساسة في منطقة أم الرشراش بدفعة كبيرة من الطائرات المسيرة
--  "القائد" يلتزم الصمت
--  Taksinkuljettajat kunnioittivat surmatun työtoverin muistoa myös Iisalmessa
--  Gudoomiye Maxamuud Xaashi Oo Ka Hadlay Doorashada Hogaanka Cusub Ee Golaha Deegaanka Burco
--  Faranah : élection du nouveau bureau exécutif de la ligue régionale de foot
--  Matteo bet makasama ang magulang ni Sarah
--  قيس سعيّد يرهن الإفراج عن رجال الأعمال الموقوفين بإعادتهم أموال الشعب
--  Cumhurbaşkanı Erdoğan'dan şehit Jandarma Uzman Çavuş Musab Hacıömer Elmas başsağlığı içim mesajı
--  Fenerbahçe'nin parlayan yıldızı Ferdi Kadıoğlu! İşte kariyerine dair her şey...
--  CHP'de "Özlem Çerçioğlu" isyanı: Aklınızdan bile geçirmeyin
--  Auto-Änderungen 2024: Tanken, Winterreifen, „Blackbox“ – Was sich im neuen Jahr ändert
--  هذه المصارف في خطر
--  نائبة تطالب برلمانات العالم بوقفة أمام تدنيس جنود الاحتلال مسجد بجنين بالضفة الغربية
--  Feministička antifašistička mreža ogorčena zbog presude Aidi Ćorović
--  Crítica de “Mientras Juana Duerme”: pequeña música nocturna
--  Deg Deg:- Madaxdhaqmeedka Beelaha Gadhxajis Iyo Habar Jeclo Oo War Ka Soo Saaray Colaada Ka Soo Saaray Colaada Ka Soo Cusboonaatay Ceel Afwayn
--  公民課教「查詢判決書」！他輸入「爸爸名字」驚見殘酷事實
--  Manchester United tuulettamassa kokoonpanoaan - viisi pelaajaa vaihtamassa maisemaa
--  Pertamina Incar Peluang Suplai BBM Hijau untuk Kapal Pesiar di Bali
--  आधी रात को देवर ने भाभी के सामने रखी खास डिमांड, मच गया हंगामा, बोलीं- सर… आधी रात को देवर ने रखी भाभी के सामने खास डिमांड, मच गया हंगामा, बोलीं- सर…
--  Potporučnici VCG uručena medalja na britanskoj Kraljevskoj vojnoj akademiji
--  Salió a la luz el polémico mensaje de Johnny Depp contra Amber Heard
--  Promi lädt ganzes ICE-Bordrestaurant heimlich zum Essen ein und macht sich aus dem Staub
--  ΑΕΚ: Η μορφή του Κώστα Νεστορίδη στα προπύλαια της OPAP Arena
--  最佳助選員！高人氣蕭美琴太搶手 台中一天跑7場助講
--  وزيرا النقل والاتصالات ومحافظ كفر الشيخ يفتتحون محطة قطار الملك فؤاد التاريخية
--  Почина кувајтскиот емир Шеик Наваф ал Ахмад ал Џабер ал Сабах
--  Assam: NIA Investigates Recent Blast Near Army Cantonment in Jorhat
--  Prepared Hero Fire Blanket Reviews [DO NOT BUY]: Until You Have Read This
--  Rebirth CBD Gummies Canada For Anxiety Or Pain (Revive CBD Gummies CA) Best
--  India, Oman adopt vision document to expand ties
--  Dunki: Shah Rukh Khan starrer gets U/A certificate from CBFC
--  Ola-Ather को टक्कर देने के लिए नया इलेक्ट्रिक स्कूटर लॉन्च, कीमत 99,999 रुपये, जानें रेंज और अन्य डिटेल्स ​
--  تسريبٌ صوتي لأحد أبرز قادة "حزب الله".. إليكم ما قاله!
--  LIC News : LIC एजंट्ससाठी मोठी बातमी! नव्या वर्षाच्या आधीच दोन लाखांचा फायदा
--  Kuwait's ruling emir, Sheikh Nawaf Al Ahmad Al Sabah, dies at age 86
--  Gesichtscremes im Öko-Test 2023 – günstiges Drogerie-Produkt unter den drei Siegern
--  BBC Axes Sports Quiz Show After 53-Year Run, Blaming “Inflation And Funding Challenges”
--  Merhum Kemal Sunal'a yüklenen şeyhe tepki yağdı!
--  Melbourne United withstand plucky 36ers in NBL
--  Επικαιροποιείται το έκτακτο δελτίο επιδείνωσης του καιρού: Πού αναμένονται καταιγίδες και χιόνια (vid)
--  포천시의회 제175회 제2차 정례회 폐회…2024년도 예산안 9815억 중 20억 원 삭감
--  백영현 포천시장-라오스 차관, 시청서 인력교류 방안 논의
--  포천 영북면 기업인협, 겨울나기 이웃돕기 성금 100만 원 기탁
--  ㈜한국네스트, 침향환 100세트·이웃돕기 성금 500만 원 포천시 군내면에 기탁
+-  بيان من الديوان الملكي: خادم الحرمين وولي العهد يعزيان عائلة آل صباح في وفاة أمير الكويت
+-  צ'יבוטה, אלטמן וסניור בהרכב הפועל תל אביב מול בני ריינה
+-  Soccerladuma | Shongwe: Don't Tamper With Bvuma Who Bit The Bullet
+-  VIDEO Jaka bura prevrnula kontejner na Pločama, blagdanske kugle se još uvijek dobro drže...
+-  Santander y Torrelavega rompen su tendencia a la baja y ganan población
+-  Wie das „Retterspiel“: Wie Wehen Wiesbaden den FC St. Pauli sanierte
+-  Ali Palabıyık'tan itiraf gibi sözler! "TFF Başkanı, çoğu hakeme mobbing yaptı"
+-  Marmaris'te devrilen kamyonun sürücüsü öldü
+-  Kumluca'da sağanak hayatı etkiledi
+-  Zamość: Tony żywności dla potrzebujących zebrano w ramach akcji „Tak! Pomagam”
