@@ -1,51 +1,11 @@
 # Latest News
--  Bigg Boss 17 WKV: Khanzaadi gets eliminated; Bharti and Haarsh add humour
--  Cardinal is convicted of embezzlement in big Vatican financial trial, sentenced to 5½ years
--  Both night trains of Arriva to continue driving next year
--  నేటి నుంచి ధనుర్మాస మహోత్సవాలు
--  మరో ప్రమాదంలో యువకుడికి గాయాలు
--  Lannion. Deux nouvelles nuits de restrictions à l'accueil des Urgences de l'hôpital
--  Americká kuchyňa očami Slováka: Už na raňajky tvoj žalúdok bombardujú tisíce kalórií
--  Obludné rozmery streľby v pražskom lesíku: Obeťou má byť len dvojmesačné bábätko! Miestni žijú v strachu
--  సమస్యలపై ‘ఉపాధి’ ఫీల్డ్‌ అసిస్టెంట్ల ఆందోళన
--  కేంద్ర పథకాలను పేదలకు అందించడమే లక్ష్యం
--  Susan Lucci honors her late husband as she accepts Lifetime Achievement Award at the Daytime Emmys: 'He has everything to do with me standing up here tonight'
--  రోడ్డు ప్రమాదంలో సర్పంచ్‌కు తీవ్ర గాయాలు
--  Jessica Chastain Says Taylor Swift Made Her A Breakup Playlist: ‘The Sweetest Thing’
--  Asgari ücrette gözler ikinci toplantıda! Pazarlıklar sürecek
--  ఎమ్మెల్సీ షేక్‌ సాబ్జీ మృతికి సంతాపం
--  గ్రామాల్లో పంచాయతీ ఎన్నికల సందడి
--  Ruotsi kiri kotikaukalossaan voittoon Naisleijonista
--  Ruotsi kiri kotikaukalossaan voittoon Naisleijonista
--  ఖాకీలపై కన్నేదీ?
--  Saudi Pro League will make ANOTHER move for Mohamed Salah in the summer and make the Liverpool star their top target... despite Al-Ittihad having £200million offer rejected in the summer
--  البنتاغون: مدمرة أمريكية تشتبك مع 14 مسيّرة فوق البحر الأحمر
--  إحباط تهريب كمية كبيرة من المخدرات في جازان
--  عاجل.. تعليق الخصومات.. توضيح مهم من صندوق التنمية العقارية
--  Israelischer Soldat durch „feindliches Fluggerät“ getötet
--  Ciudadano indio visitó el huaco erótico en Trujillo: “Esto representa la fertilidad”
--  AC Milan Boss Admits Focusing On Summer Signings
--  Suspendido el Bournemouth-Luton de la Premier por el desvanecimiento del visitante Lockyer
--  Man City 2-2 Crystal Palace: Michael Olise scores injury time penalty as Eagles stage stunning fightback to dent Pep Guardiola's side in the title race
--  В Москве после потасовки на рынке «Садовод» задержали 80 человек
--  الصحة الفلسطينية تدعو إلى تحقيق دولي في معلومات عن دفن جيش العدو مواطنين أحياء شمال غزة
--  فيديو يُنشر لأول.. شاهدوا طائرة "حزب الله" المفخخة!
--  Three minors arrested for school arson in Nicosia
--  Tragedija na staroj zagorskoj: U teškoj nesreći nedaleko West Gatea poginuo je jedan čovjek
--  Doritos-flavored liquor goes on sale today — and the boozy bottle is likely to sell out
--  Njega više nema, a supruga srpske legende objavila fotografiju koja je ‘slomila‘ srca njegovih obožavatelja
--  Strictly Come Dancing 2023 final LIVE: Layton Williams, Bobby Brazier and Ellie Leach battle it out to be crowned champions and win the glitterball trophy
--  'All over the place' - Sky pundit unleashes live on air in Everton v Burnley
--  Which Durban beaches are still closed?
--  Bouchons importants à Paris : plus de 200 kilomètres d'embouteillages, les endroits où ça coince
--  Ruotsin hiihtotähti laturaivosi: ”Paskiainen”
--  సమావేశాల్లో వారిదే హవా!
--  Famílias sem teto vão receber moradias do Minha Casa, Minha Vida em SP
--  Petrobras assina aditivo de compra de gás de estatal da Bolívia
--  O tânără cu cetățenie română, luată ostatică de la festivalul din Israel la care Hamas a ucis sute de oameni, a murit în captivitate
--  ఇప్పుడెట్లా..?!
--  Review: ‘Holiday in the Vineyards,’ starring Josh Swickard, is a new rom-com on Netflix
--  مانشستر سيتي بصدد دفع ضريبة انجاز الثلاثية
--  Seething Brendan Rodgers says he WASN’T surprised by Celtic slump v Hearts as he savages stars and admits major concerns
--  LBA 12° Round: UNAHOTELS Reggio Emilia-Germani Brescia
--  Reportāža no Bulgārijas: Padomju pieminekļa nojaukšana Sofijas centrā raisa protestus
+-  „Белият цвят на тревата“ – миражите като реалност - Труд
+-  Tom Lockyer: Schockmoment im Stadion! Fußballer (29) während Spiel zusammengebrochen
+-  Sport | Spinners shine as Bangladesh down Proteas women to win opening ODI
+-  Señala Alito 'demencial' actitud de Samuel García
+-  ברדה: "השתחרר הרבה לחץ". שהר: "כמות ספיגות של ירידת ליגה"
+-  В Омске сотрудники МЧС спасли 11 детей во время пожара в жилом доме
+-  Jokerit riehui Forssassa - viimeksi meno on ollut näin rajua vuonna 1989
+-  Tottenham on tehnyt valintansa: tämän topparin he haluavat
+-  Apple, Visa, Mastercard face lawsuit over high merchant fees
+-  Benfica é principal candidato ao título, mas Sp. Braga quer vencer
