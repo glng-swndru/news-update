@@ -1,51 +1,51 @@
 # Latest News
--  Мол-мулк солиғи тўловлари оширилди.
--  Россияда биринчи марта ҳарбий рўйхатга туришдан бош тортган шахслар фуқароликдан маҳрум қилинди.
--  초유의 '검찰 대통령'에 '검찰 당대표'...與 '비대위원장 한동훈' 가닥 잡은 듯
--  尹정부 환경정책, 기후위기시대를 역행하다
--  폭격 말린 미군 장성 quot;우리가 야만인으로 고발당할 수 있다quot;
--  Ўзбекистон ва Испания сувдан фойдаланишни оптималлаштиришда қўшма лойиҳаларни амалга оширади.
--  Israel mató ‘por error’ a rehenes; hay tres víctimas
--  EU alista Quédate en México 2.0... ante arribo masivo de indocumentados
--  뉴캐슬로 떠난 첼시 성골 유스, 갑자기 작별 인사 삭제→상황 반전
--  FOTO Primele 15 troleibuze din lotul de 100 cumpărate de Primăria Capitalei vor fi livrate în ianuarie
--  Gestion des déchets : passer de la volonté à l’action
--  Govt issues warning for Samsung Galaxy phone users, advises urgent update
--  Parliament security breach accused considered self-immolation, other options
--  La stat folle du jour : dans sa carrière, LeBron James a joué contre les 32 derniers n°1 de Draft !
--  Первый энергоблок БелАЭС включили в сеть после планового ремонта
--  Отвориха за движение главния път Бургас – Варна, в Царево дежурни екипи следят обстановката
--  German Fans Hurl Chocolate Coins in Protest Against Media Rights Deal
--  Al Ahly thrash Al-Ittihad in Club World Cup to book Fluminense semifinal
--  Guntur Kaaram Producer Receives Backlash For His Comments On Latest Song’s Criticism
--  Rookvrije zone voor Academiegebouw en UB op Broerplein uitgebreid
--  Palestinian media reports dozens killed in Israel airstrikes
--  GameStop stock saga continues against market odds
--  Ananya Panday Leaves All Confused As She Dons Lawyer Look In New Video | Watch
--  Пензенцев предупредили о сильном ветре 17 декабря
--  '불후의 명곡' 이수지 "이경규 보며 개그맨 꿈 키웠다"
--  „Was stimmt bei euch nicht?“ – Kaufland-Kundin schockiert, als sie Fleisch nachwiegt
--  Serie C, il programma della 18ª giornata: Cesena-Torres sfida al vertice nel Girone B
--  News18 Afternoon Digest: Lok Sabha Intruders Planned Self-Immolation But What Went Wrong And Other Top Stories
--  광주·전남 13곳 대설·한파특보...17일까지 최대 15cm
--  Ракета "Союз-2.1б" со вторым спутником "Арктика-М" стартовала с космодрома Байконур
--  Misafir Sevmeyen 5 Burç! Yalnızlık Onların Kaderi... Misafir Bile İstemezler.. Eve Asla Misafir Gelmesini İstemeyen 5 Burç Belli
--  Tragická dopravná nehoda v okrese Senec, o život prišli dvaja vodiči (video)
--  В Ростовской области из-за непогоды развернули шесть пунктов обогрева
--  Marianna vstáva bez budíka a pracuje kedy chce: Office zabíja produktivitu, hovorí
--  [단독] 조국 “‘이낙연 신당’ 갈 일 없어…일각서 ‘준연동형 선거제 나쁘다’ 갈라치기”
--  “영화 공짜 OOO 티비” 경복궁 ‘낙서 테러’…어떤 처벌 받나
--  Manipulação de provas é "das maiores ameaças à integridade no desporto"
--  Aishwarya, SRK, Amitabh Dance to 'Deewangi Deewangi' at Their Kids' School Event
--  السعودية | القيادة تهنئ رئيس جمهورية كازاخستان بذكرى استقلال بلاده
--  السعودية | ولي العهد يهنئ ملك مملكة البحرين بذكرى اليوم الوطني لبلاده
--  السعودية | مغادرة الطائرة الإغاثية السعودية الـ 30 لإغاثة الشعب الفلسطيني في قطاع غزة والتي يسيّرها مركز الملك سلمان للإغاثة
--  السعودية | مغادرة الطائرة الإغاثية السعودية الـ 29 لإغاثة الشعب الفلسطيني في قطاع غزة والتي يسيرها مركز الملك سلمان للإغاثة
--  السعودية | خادم الحرمين الشريفين يهنئ ملك مملكة البحرين بذكرى اليوم الوطني لبلاده
--  الناطق باسم حركة فتح: ما يتم طرحه حتى الآن يصب في مصلحة إسرائيل.. والمجتمع الدولي شاهد على جرائم الجيش الإسرائيلي
--  محلل سياسي: الوضع الإنساني يتجه نحو الأسوأ في عدد كبير من الولايات السودانية.. خاصة التي تهاجمها قوات الدعم السريع
--  محلل سياسي: الإدارة الأمريكية هي من وضعت جدولًا وأهدافًا للحرب القائمة في غزة.. وأعطت إسرائيل أكثر من فرصة لتعزيز الثقة والتقاط أنفاسها
--  Поселок Краснооктябрьский в Курской области подвергся обстрелу со стороны ВСУ
--  عضو في المجلس الثوري لحركة فتح: منظمة التحرير الفلسطينية تتجاوب مع معطيات السياسة الدولية على أساس الأمر الواقع
--  الصين تطلق قمرًا صناعيًا جديدًا للاستشعار عن بعد
--  Sve više škola u Federaciji zabranjuje korištenje mobitela
+-  Threads ganha ferramenta de verificação de factos
+-  A tasteful tale of tandoori chicken
+-  Mötley Cruë-drummer Tommy Lee beschuldigd van seksueel wangedrag
+-  Mediji: Na Novom Beogradu poginulo dete, pretpostavlja se da je palo sa terase
+-  Which cryptocurrency should I invest in 2024? Why?
+-  "ราเมศ" ลั่น ปชป. ไม่หนุนนิรโทษฉบับก้าวไกล หากมีคดีมาตรา 112
+-  건설기계안전관리원 강원영서건설기계검사소 본검사소, 홍천 이전
+-  EU vows Ukraine to get aid despite veto by Hungary's Orban
+-  المغرب-بريطانيا..إرادة مشتركة لتعزيز العلاقات الثنائية في جميع الميادين
+-  رئيس بلدية الغبيري معن الخليل:
+-  Отвориха пътя Варна - Бургас
+-  22 са новите случаи на COVID 19 във Варна за последното денонощие
+-  Делфинариум Варна пуска днес безплатни Коледни представления за децата
+-  Kerala Woman Tests Positive for Covid-19 Sub-strain JN.1 | Can Vaccines Fight It?
+-  امریکی ایجنڈا ہے کہ پاکستان کو افغانستان سےلڑا دیا جائے: حافظ نعیم الرحمٰن
+-  มอดไม้ฮอดเจอเจ้าหน้าที่กระเจิง ทิ้งรถพร้อมไม้แปรรูปเต็มกระบะ
+-  Telangana Speaker Recognises KCR as Leader of Opposition
+-  Cher hits out at Rock & Roll Hall of Fame after repeated snubs
+-  Hurrikaani-Loimaa tylyssä tilanteessa - joutuu pelaajamarkkinoille joulun kynnyksellä
+-  VPS kiinnitti lupaavan laitahyökkääjänsä: "Jälleen yksi hyvä esimerkki laadukkaasta juniorityöstä"
+-  جردتهم من ملابسهم.. إسرائيل تعتقل مئات الفلسطينيين بشمال قطاع غزةاليوم السبت، 16 ديسمبر 2023 08:20 صـ
+-  حسن نصر الله: معركة طوفان الأقصى أحدث زلزالا في الكيان الإسرائيلي الجمعة، 3 نوفمبر 2023 02:41 مـ
+-  الاحتلال يقصف محيط مستشفى القدس في غزة الخميس، 2 نوفمبر 2023 10:33 صـ
+-  المخابرات الأمريكية: فاجنر قد ترسل أنظمة دفاع جوي إلى حزب الله الخميس، 2 نوفمبر 2023 06:01 مـ
+-  نتنياهو ردا على خطاب نصر الله: «أي خطأ سيكلفك كثيرا» الجمعة، 3 نوفمبر 2023 04:58 مـ
+-  رئيس بلدية الدكوانة أنطوان شختورة في مؤتمر "التيار":
+-  "Chicago Mass Choir" abre el ciclo de góspel en el teatro Jovellanos
+-  وائل رياض يعقد مؤتمرا صحفيا غدا للحديث عن استعدادات منتخب الشباب لبطولة... الثلاثاء، 7 نوفمبر 2023 01:48 مـ
+-  الأهلي يسحق اتحاد جدة بثلاثية نارية في عقر داره بمونديال الأندية.. ويخطف...الأمس الجمعة، 15 ديسمبر 2023 08:50 مـ
+-  وزير الإسكان يُدلي بصوته فى الانتخابات الرئاسية 2024 الأحد، 10 ديسمبر 2023 09:42 صـ
+-  وزير الإسكان يتابع تقدم أعمال ”سكن لكل المصريين” بالقاهرة الجديدةاليوم السبت، 16 ديسمبر 2023 08:59 صـ
+-  البيئة: إحكام السيطرة إلكترونيًاعلى مداخن بالقاهرة لتكرير البترولاليوم السبت، 16 ديسمبر 2023 09:44 صـ
+-  Sunil Gavaskar: ప్రపంచకప్ బాధ పోయింది.. ఇప్పుడు ఐపీఎల్‌పైనే దృష్టి
+-  Feministička antifašistička mreža ogorčena zbog presude Aidi Ćorović
+-  COVID-19: China reports seven new cases of JN.1. subvariant, know common symptoms
+-  ONLINE: Pokračování návratu. Ledecká jede ve Val d’Isere druhý sjezd sezony
+-  Jobs offered to laid off HSBC call centre employees
+-  U NEDELJU 6,5 MILIONA BIRAČA ODLUČUJE KAKO ĆE IZGLEDATI SKUPŠTINA SRBIJE! Sve o pravilima na biralištu tokom 13 sati glasanja!
+-  ONLINE: Pokračování návratu. Ledecká jede ve Val d’Isere druhý sjezd sezony
+-  Hoćemo li u Novu godinu zakoračiti sa snijegom, evo šta meteorolozi kažu
+-  UFC 296 card: Leon Edwards and Paddy Pimblett in action tonight
+-  경복궁 담장에 '영화공짜' 스프레이 테러…"일벌백계할 것"
+-  Tarifprotest im Einzelhandel vor Ikea-Zentrale geplant
+-  Fußgänger dürfen für einen Tag auf die neue Salzbachtalbrücke
+-  Angespannte Lage bei den bayerischen Tafeln
+-  Menschen trennen sich in Bayern von 10 Millionen D-Mark
+-  Amitabh Bachchan Is 'Proud' After Aaradhya's School Performance: 'Complete Natural On Stage...'
+-  MayaLo Film Review: A Visual Feast Of Emotions Amid Road Trip Adventures
+-  El tiempo en Castilleja de la Cuesta: previsión meteorológica para mañana, domingo 17 de diciembre
+-  여성 얼굴에 화상 입히고 도주…경찰, 용의자 추적
