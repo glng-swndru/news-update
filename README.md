@@ -1,51 +1,51 @@
 # Latest News
--  참사 피해자 보도, 독일과 한국 언론 결정적 차이는
--  बीसीसीआई का बड़ा फैसला, द्रविड़ कोच नहीं, ये शख्स करेगा साउथ अफ्रीका के खिलाफ टीम इंडिया को कोचिंग
--  Bon Plan : les soldes de fin d'année d'Epic Games
--  नीलामी से पहले बीसीसीआई ने चेतन सकारिया को संदिग्ध बॉलिंग एक्शन सूची में शामिल किया
--  DR MICHAEL MOSLEY: Why running more WON'T help you to lose weight... and nor will it make you live...
--  Sperm donors should be barred from fathering hundreds of children around the world, leading...
--  The lockdown effect: Americans' physical and mental health has deteriorated by every metric since...
--  How bad is the drug epidemic in YOUR state? Overdose deaths have risen in EVERY part of the US in...
--  Why experts are now recommending you SHOULD be 'slightly overweight' in your 60s
--  How to release a 'trapped' sneeze, according to experts...including the genius 'tissue trick'
--  Над 800 изпълнители ще участват във фолклорния празник „Дряновица“
--  Pentaqon rəhbəri Yaxın Şərqə gedir
--  Ukraine shoots downs 30 Russian drones over 11 regions – air force
--  Сычев рассказал, что при обучении на тренера освоил программу для презентаций
--  مواقع التواصل الاجتماعي تحتل النسبة الأعلى باستخدام الإنترنت في الأردن
--  В румынской части дельты Дуная обнаружили очаг птичьего гриппа
--  Zastrašujuća nesreća u tvornici otvorila 'vrata pakla': Pogledajte kakav je vatreni kaos nastao u sekundi
--  Mérgező gyomnövény került a gyerekeknek felszolgált zöldbabfőzelékbe Kőbányán
--  Abdulkadir Uraloğlu duyurdu! İki otoyolun ihalesi yapıldı
--  Turkmenistan and EU Deepen Ties with Rich Program of Cooperation
--  I did the 3-minute pigeon pose every day for a week — here’s what happened
--  IDF "mistakenly" kills three Israeli hostages in Gaza
--  IND vs SA: भारतीय टीम को दो झटके, 2 स्टार गेंदबाज सीरीज से बाहर
--  Au cœur de l'Essequibo guyanien : "Pas question de devenir vénézuélien"
--  Les Français brouillés avec leurs bulles
--  Oui, le café parfait existe
--  Inde. Des hommes enlevés pour être mariés : dans l'État du Bihar, la tradition perdure
--  Procès. Le prince Harry remporte une première victoire dans sa guerre contre les tabloïds
--  Analyse. Syrie : comment Bachar El-Assad tente de profiter de la guerre à Gaza
--  Sacrés Français. Au pays de la viande rouge
--  Récap. COP28, Gaza, E.T. l'extraterrestre… La semaine en photos
--  Pendant que vous dormiez. Giuliani, Houthistes, Matthew Perry : les informations de la nuit
--  Vu de Moscou. Poutine face aux Russes : une intervention sans surprise et des échanges atones
--  Guerre Israël-Hamas. Trois otages du Hamas tués "par erreur" par l'armée israélienne
--  Environnement . Dans le nord du Japon, des "tonnes" de poissons échoués et beaucoup de questions
--  Géologie. Istanbul se prépare lentement à affronter un choc sismique majeur
--  Les Français sont-ils devenus casaniers ?
--  Le mastic, résine grecque et délice du monde arabe
--  Guerre Israël-Hamas. Masha Gessen : "La seule manière dont nous pouvons apprendre de l'histoire, c'est en la comparant au présent"
--  Paisabazaar Faces IT Dept Scrutiny For Certain Vendors
--  손흥민 새 동료로 ‘1400억 센터백’ 낙점…지난달에만 4번이나 스카우터 파견
--  Nenad Aleksić Ša shvatio da mu je Miona greška pa je ponizio! (VIDEO)
--  किराएदार ने महीनों से नहीं दिया रेंट, मकानमालिक ने यूं सिखाया सबक
--  Son dakika | Beşiktaş’ın borcu açıklandı! Borç 1.5 milyar lira arttı
--  Omia lapsuuden suosikkikirjojaan ei kannata nykylapsille tuputtaa – Kokosimme lahjavinkeiksi tämän hetken suosituimpia teoksia
--  Njemački ministar: Europa se mora naoružati zbog novih prijetnji, imamo 5-8 godina
--  Cardinal and nine others to learn their fate in trial that aired Vatican state’s dirty laundry
--  Još jedan razlog za slavlje Marija Šerifović nakon sina dobila i prvi milion
--  Kim Kardashian esitteli kurvejaan – kuvasi itseään peilissä
--  Färre svenskar övernattade på Åland
+-  Mostly cloudy over the weekend with a chance of rain
+-  The most stressful time of the year?
+-  Lidl gives love by supporting work of Cyprus Anti-Cancer Society
+-  Police arrest woman at Larnaca airport, after finding 9kg of cannabis in her bags
+-  Lancement 2e phase du cadre de dialogue à Boffa: “ce processus salvateur conduira à une réconciliation nationale inclusive et durable” (préfet)
+-  PKO BP: branża drzewna mierzy się z dużym spadkiem rentowności
+-  BIG InfoMonitor: kwota nieuregulowanych alimentów na koniec listopada to ok. 15 mld zł
+-  의성교육지원청 ‘방학 중 교육활동 및 지역 연계형 진로 교육 활성화 연수’ 실시
+-  경북ICT융합산업진흥협회, 베트남 현지 국제학교 RIS·VAIS ‘맞손’
+-  문경시보호문화유산 송옥자 보유자, 제2회 공개행사 성료
+-  의성남부초 병설유치원, ‘유·초 연계 이음학기 시범운영 유치원’ 컨설팅 연수 시행
+-  제30대 영천시청년연합회 회장단 이·취임식…이원호 회장 취임
+-  칠곡 2023 가야금병창 아카데미 수료식 가져
+-  포항스틸아트페스티벌, 국제 수준 비엔날레 확대…연구용역 완료보고회 개최
+-  포항 스틸아트공방, 13·14기 정규강좌 수강생 성과물 전시회
+-  포항시립미술관 ‘제80회 미술관음악회 MUSEUM & MUSIC’ 개최
+-  민주평화통일자문회의 문경시협의회, 2023년 4분기 정기회의 개최
+-  Grande Fratello, sondaggi: chi sarà eliminato stasera 16 dicembre
+-  Colorado Avalanche laittoi epäonnistuneen hyökkääjänsä kiertoon
+-  SGK uzmanı açıkladı! Emekli ve asgari ücret zammı ne kadar olacak?
+-  Football - National. Benoît Tavenot après DFCO - Sochaux : "Il nous a manqué de la justesse"
+-  Dijon. Quand Jean-Pierre Foucault se fait klaxonner boulevard Chanoine-Kir !
+-  Muthoot Microfin to Suraj Estate Developers: 7 IPOs to hit market next week
+-  Caliway Closes Oversubscribed Capital Raise and Secures Over $100M to Advance CBL-514 Pivotal Phase 3 Study in Subcutaneous Fat Reduction
+-  Udayanidhi: మంత్రి ఉదయనిధి సంచలన కామెంట్స్.. గవర్నర్‌, అమిత్‌షా అబ్బ సొత్తేమీ అడగడంలేదుగా..
+-  Greek museum hands over reins to women artists
+-  Bundesregierung wegen "islamistischer Einzeltäter" besorgt
+-  IPL 2024: Who are the captains of all 10 Indian Premier League teams?
+-  Test Asus Zenbook 14 Oled : le premier PC portable avec Meteor Lake
+-  La critique de la série The Crown - Saison 6 a rejoint notre catalogue
+-  Bon plan – La carte graphique Nvidia GeForce RTX 4080 "5 étoiles" à 1 199,99 €
+-  Pour un bon four encastrable à prix abordable, privilégiez...
+-  Super Hotte de Noël #16 : jouez et tentez de gagner un sextoy féminin, le Lelo Sona 2
+-  Top 5 : Microsoft, Samsung, Delonghi... les meilleurs bons plans du 16/12/2023
+-  Bon plan – La cafetière automatique avec broyeur Delonghi Maestosa EPAM960.75.GLM "5 étoiles" à 2 319,00...
+-  Bon plan – Le smartphone Apple iPhone 15 Pro 256 Go "5 étoiles" à 1 297,00 €
+-  Bon plan – La carte graphique Nvidia GeForce RTX 4070 Gainward "4 étoiles" à 623,44 €
+-  Bon plan – La cafetière automatique avec broyeur Delonghi Perfecta Deluxe ESAM 460.80.MB "5 étoiles" à 8...
+-  Apprentissage de l'anglais : à Sées, des élèves sont aidés par deux assistantes
+-  نجل الشهيد سامر أبو دقة: فخور باستشهاد والدي وسأحاكم قتلته
+-  Grupp: „Großkunden wie Kaufhof und Karstadt waren Versager“
+-  La CENI lance à Goma la formation de plus de 3000 membres de bureaux de vote
+-  Three novel inorganic clusters accelerate chemical reactions to create carbon–carbon bonds
+-  Direct ink writing of high-resolution cellulose structures
+-  Scientists create tunable shells to encapsulate tiny droplets
+-  New strategy improves perovskites' oxygen reduction performance in hydrogen fuel cells
+-  Breakthrough in organic semiconductor synthesis paves way for advanced electronic devices
+-  संसद में सुरक्षा चूक की घटना पर खड़गे ने कहा:यह गंभीर मामला है,सदन में गृह मंत्री आकर बयान दें
+-  台「古惑仔」遭熱熔膠燙生殖器兼檳榔塞肛 凌虐兇手竟係……
+-  खालिस्तानी पन्नू मामले में गिरफ्तार निखिल को गोमांस खिलाया गया
