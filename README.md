@@ -1,51 +1,51 @@
 # Latest News
--  Soccerladuma | Latest On Thabo Matlaba's Future
--  Soccerladuma | Mourinho Fires A Dig At Former Rival Pep
--  Etil Alkol Takip Sistemi kuruluyor!
--  Valilikten motokurye kararı
--  Şırnak'tan petrol fışkırıyor! İşte günlük üretim
--  Parashikimi i motit për sot, reshje të pakta shiu dhe dëbore
--  शिक्षक भर्ती परीक्षा में पूछी गई 'INDIA' गठबंधन की फुल फॉर्म, BJP ने कहा- 'ठगों की जमात'
--  Rekordan nivo beskućništva u SAD, za samo godinu dana broj ljudi...
--  FT: лидеры ЕС промахнулись, не согласовав пакет помощи Украине
--  Asgari ücret zammı ne zaman açıklanacak, ne kadar olacak? Komisyon 2. kez toplanıyor (2024 olası asgari ücret zam oranları)
--  CECA JOJ KAO MAJKA, PEĐA STOJAKOVIĆ KOMŠIJA, ONA JURI SVETSKO ZLATO! Tamara na SP plače uz himnu, ali ne hrvatsku!
--  Yamaha R3 returns to India, MT-03 comes for first time. Check price & other details
--  Christmas 2023: Bells to mistletoe, unveiling the significance of classic Christmas ornaments
--  États-Unis: pensant tomber sur une grosse pieuvre, ils découvrent une épave disparue depuis 152 ans
--  Πόλο: Προετοιμασία στο Παρίσι η Εθνική γυναικών, οι 16 κλήσεις της Καμμένου
--  Dutch cargo ships will not sail through the Red Sea due to recent attacks
--  الأهلي يبدأ الاستعداد اليوم لمواجهة فلومينسينى البرازيلي بتدريبات استشفائية
--  أحمد أيمن منصور يستغل إجازة المصري لأداء مناسك العمرة برفقة زوجته.. صور
--  مصر تهزم سويسرا 2-0 وتصعد لنهائي بطولة العالم للاسكواش
--  منتخب مصر يستقر على إقامة معسكر الاستعداد لأمم أفريقيا بالقاهرة
--  مصر تواجه إنجلترا فى نهائي بطولة العالم للاسكواش
--  أستاذ نساء وتوليد يوضح أهم الأسباب الخفية للسقوط الرحمى
--  الأهلي يحسم رحيل أحمد عبد القادر بعد السوبر المصري
--  قوات الاحتلال الإسرائيلية تدمر عشرات القبور في قطاع غزة.. صور
--  المالكي يطلع وزير خارجية ايسلندا على جرائم الاحتلال بحق شعب فلسطين
--  استشهاد وإصابة عشرات الفلسطينيين جراء القصف الإسرائيلي المتواصل على غزة
--  Ολυμπιακός: Ευχήθηκε στην Πίτερς για τη γέννηση της κόρης του
--  Sabah qar yağacaq
--  Klaudia Kubaszek: Trzeba tego doświadczyć, żeby to zrozumieć
--  – Viktig å sikre sliterne
--  Friends-Star Matthew Perry an Überdosis Ketamin gestorben
--  Hoteli isplativiji od apartmana na Divčibarima: Porodica platila 300 evra tri noćenja u hotelu sa 4 zvezdice
--  German Fans Hurl Chocolate Coins In Protest Against Media Rights Deal
--  8개 참사 '피해자연대' 발족… "같은 상처 가진 사람들에게 큰 힘 되길"
--  허인구 춘천·철원·화천·양구 을 예비후보 출판기념회 개최
--  [속보] '론스타에 2800억 배상' 판정, 취소 신청 결론까지 집행정지
--  БСП се оплака на посланиците от ЕС
--  Surya's broken heart tweet gives rise to conspiracy theories about MI's decision to replace Rohit with Hardik as captain
--  Šumaher je bio svestan i pričao je sa doktorima posle strašne nesreće?! Nemački novinar otkrio neverovatne detalje
--  Zbog jake bure malo tko se jutros s otoka probio do Splita. U prekidu su do daljnjeg ove trajektne i katamaranske linije
--  Delhi cops reveal mastermind Jha destroyed five mobile phones before his arrest
--  Откриха 12 вида нови насекоми
--  54,000 prepaid smart meters, 130,000 smart meters, more to come
--  O Μάθιου Πέρι είχε γράψει στο βιβλίο του για την κεταμίνη – «Ένιωθα σαν να πεθαίνω»
--  Matthew Perry's cause of death confirmed as accident by ketamine
--  One of 2023's biggest movies has just been added to Disney+
--  Decision day for Luai's mega deal
--  Decision day for Luai's mega deal
--  Залужни планира ново контранастъпление: ВСУ събират ресурси за нови операции
--  Four-month-old survives after tornado tossed him into downed tree
+-  Christmas lunch alternatives
+-  (사)한국장애인부모회 홍천군지부, 2023년 송년행사 개최
+-  Israel: Lufthansa will ab Januar wieder nach Tel Aviv fliegen
+-  Evlilikleri bitti
+-  'Dünya Türk dizilerini izliyor'
+-  Tommy Shelby'e benzetildi!
+-  ‘토트넘-맨유에서 모두 실패’... 이제 시선은 분데스리가→도르트문트 관심
+-  При обстреле Донецка был тяжело ранен сотрудник заправочной станции
+-  الارصاد تصدر تنبيه جوي وتحذر من أمطار غزيرة وجريان الأودية
+-  Chirana T.Injecta zmenila po 15 rokoch vedenie, post prezidenta prevzal rodák z Poľska
+-  HLV Gong Oh-kyun gặp khó khăn: Quên U23 Việt Nam đi, đây là V.League
+-  Lễ ăn hỏi Diễm My 9x: Chú rể diện áo dài lịch lãm, khoảnh khắc "dán chặt mắt" khi cô dâu lộ diện gây sốt
+-  Giới nhà giàu ở nền kinh tế đang lên “như diều gặp gió” của châu Á đổ xô mua bất động sản ở thành phố giàu có bậc nhất thế giới
+-  Hiện trạng các khu "đất vàng" bị đề nghị thu hồi xây trường học
+-  Khoảnh khắc chung khung hình cuối cùng của Châu Hải My và Lý Nhược Đồng, "Tiểu Long Nữ đẹp nhất màn ảnh" có chia sẻ khiến netizen nghẹn ngào
+-  Hàng loạt sao Việt báo tin "đau đầu" cho HLV Troussier
+-  Nghe cô U50 kể chuyện làm nhà, mua 2 mảnh đất từ bàn tay trắng: Tiết kiệm hết mức tối đa, đi du lịch là chuyện xa xỉ
+-  Thị trường AI tạo sinh Trung Quốc có thể vượt 1.400 tỷ USD trong năm 2023
+-  Không khí lạnh tràn về, người dân Hà Nội mặc áo ấm, che mặt kín mít khi ra đường
+-  Cô gái 20 tuổi và 4 thanh niên phê ma túy trong căn phòng thuê
+-  Parliament Smoke Attack: एक बार में बच्चे को दे दिया अपना खून… ललित झा के पिता ने बताई कहानी – VIDEO
+-  KPT kenal pasti universiti hadapi masalah penginapan pelajar
+-  Ангелопол рассказал, что полностью доверяет тренеру Линичук
+-  "Боруссия" и "Вердер" сыграли вничью. Марвин Дукш повторил рекорд Руди Феллера
+-  رحیم یار خان: 6 مسلح ڈاکو تاجروں سے 18 کروڑ روپے کا سونا چھین کر فرار
+-  Na primorskim otocima bukti rat za ličku vodu. Hoće li mala senjska tvrtka usisati rapski komunalac?
+-  Morto Toni Negri, aveva 90 anni
+-  Blisko 6 dni czekają kierowcy tirów przed przejściem w Hrebennem
+-  Baciš mački igračku, ona je donese i već je srećna, pokazuje...
+-  Citypress | Stop your children from trying out vaping this festive season
+-  Fetița ucraineancă de 6 ani care a făcut atac de cord în timpul unui bombardament rusesc. ”Mi-e frică” VIDEO
+-  RUTO gives Chinese contractor an ultimatum to construct railway line passing through Karen as he declines his requests
+-  Олег Иванов — о ситуации в «Спартаке»: «Между Абаскалем и командой нет той химии, что была год назад»
+-  Marlijeva pjesma o Selasiju napokon u etru
+-  Увеличен предельный размер кредита по Арктической ипотеке
+-  Presuda porote na kalifornijskom sudu: Trgovina Google Play djelovala je kao monopol
+-  Január 1-től nem lehet illetékbélyeggel kifizetni a bírósági eljárási illetéket
+-  Kalenderblatt am 16. Dezember: Ereignisse, Geburtstage und Todestage
+-  Роналду не вошел в сборную самых дорогих футболистов саудовской лиги
+-  При обстреле Донецка получило повреждения здание школы
+-  Türkiye'nin BM Daimi Temsilcisi Önal'dan Gazze için çağrı: 'Acilen ateşkes ilan edilmeli'
+-  India record crushing women's Test win over England
+-  4 Social Security Changes Joe Biden Wants to Make: Is 2024 the Year They Become Reality?
+-  Grup düşmüştü! CHP’li vekil Saadet Partisi’ne geçti
+-  ลมหนาวระลอกใหม่ 17-23 ธ.ค. อุณหภูมิลดฮวบ 3-5 องศาฯ
+-  อย.เผย 8 เครื่องสำอางอันตราย ใช้สารต้องห้าม ทำหน้าพัง
+-  Дом кондитера Серикова в Туле признан объектом культурного наследия
+-  스타벅스, ‘핑크 캐모마일 릴렉서·체리 포레누아 케이크’ 주문 시 1천 원 적립
+-  ICSID “론스타 배상 판정 집행 무기한 정지”
+-  Over 300 players register for IPL 2024, ten are from Afghanistan
