@@ -1,51 +1,11 @@
 # Latest News
--  ‘이적료 최소 1400억’ 엄포에도…리버풀-바르사, 영입 위해 대리인과 접촉
--  Khalilzad suggests Af-Pak talks on de-escalation deal
--  ปชป.ยันหลักการเดิมนิรโทษ ต้องไม่กระทบคดี112-ทุจริต
--  ما هو اللون المسيطر على موضة 2024 ؟
--  "Jedes Mal magisch": Wie in Erlangen Menschen mit Behinderung das Klettern lernen
--  पीएम मोदी ने विजय दिवस पर बहादुर नायकों को दी श्रद्धांजलि
--  Miss France 2024 : heure, chaîne, jury, vote du public... tout savoir sur l'élection de ce samedi soir
--  Blohm siktar på historiskt brons: "Jättestort"
--  “دبي بلينغ” أكثر مشاهدة على “نتفليكس”
--  جثة فتاة متفحمة تستنفر درك الجديدة
--  شركات تحصيل الديون… النصب بالقانون
--  بنعبد‭ ‬الله‭ ‬يقود‭ ‬وفدا‭ ‬إلى‭ ‬نواكشوط
--  القادري و”ليالي الشرق”
--  رعي‭ ‬جائر‭ ‬بشوارع‭ ‬الجديدة
--  ميزانية‭ “‬السلامة‭ ‬الطرقية‭” ‬تحت‭ ‬المجهر
--  Choque en Panamericana deja dos adultos mayores lesionados
--  Desapareció investigación sobre Rusia cuando Trump concluyó su mandato
--  قالوا
--  احتقان‭ ‬بالحوز‭ ‬بسبب‭ ‬اختلالات‭ ‬الدعم‭ ‬
--  Reduce INE $558 millones a organización electoral del 2024
--  Skifahren bis August und mal ganz anders: So geht das hier in Kalifornien
--  Übers Wochenende ab Franken schnell auf die Piste? An der Zugspitze geht das
--  Paio de Solovio otea las estrellas desde San Fiz
--  اعتقال الرئيس الأسبق لجماعة سباتة
--  Ultimátum a los dueños del Pazo dos Irlandeses: o lo rehabilitan en 4 meses o multa de hasta 10.000 €
--  Pilar Farjas: “La soledad empieza a emerger entre los niños como forma de pobreza”
--  تهافت على “كان” المغرب
--  – Det er trist at avslutningen ble slik
--  Alegres por ser salvados
--  Aprovechemos la fiesta
--  “Ir a Santiago es especial, aunque sea el equipo rival. Su gente está siempre apretando”
--  Cataluña y Castilla
--  Libros de viudas
--  No me resigno
--  Nadie elige ser gordo
--  Sexta Papanoelada de Córdoba
--  Urbanismo recibe tres solicitudes de cotillones para Nochevieja
--  Das furiose dritte Jahr des BSC Erlangen: Folgt jetzt der Aufstieg?
--  El salto digital del pueblo gitano
--  La Xunta y Abanca seguirán apoyando la Semana Verde y A Estrada acoge dos feriales
--  Solidaridad en Ames con un musical sobre Mary Poppins y la gala de Insua y amigos
--  Netanyahu'ya içeriden isyan mektubu: Gazze'ye saldırıları durdur
--  AK Parti Kadın Kolları Başkanı Ayşe Keşir, Star Gazetesi'ni ziyaret etti
--  Otomobil Yeşilırmak Nehri'ne uçtu: 1 ölü
--  Annesinin Filistin paylaşımları nedeniyle okuldan atıldı
--  Cumhurbaşkanı Erdoğan imzaladı! Atama ve görevden alma kararları Resmi Gazete'de
--  O Pico Sacro monopoliza as imaxes gañadoras no certame de Boqueixón
--  Máis de 10.000 persoas ateigaron o Belén de Valga só na pasada ponte festiva
--  Manuel Rueda se impone en la categoría de Turismos de la 20ª Subida a Trassierra
--  Une écotaxe sur les billets d’avion au Danemark
+-  Xavi: "Se está explicando una irrealidad; aún podemos ganar cuatro títulos"
+-  Djokovic revela las experiencias con Rafa Nadal en el Tenis de Élite
+-  Defensor del Pueblo recibe alta distinción de la Cámara de Representantes
+-  Contralor interino declara la siniestralidad vial como epidemia en Colombia
+-  Petro volvió a defender a Santrich
+-  Crisis financiera provoca renuncias masivas y protestas en hospitales del valle de Aburrá
+-  Equipos colombianos se preparan para torneos internacionales en 2024
+-  Colombia vs. México: Néstor Lorenzo quiere cerrar el año con ‘broche de oro’
+-  Facianın adresi Bursa: Kontrolden çıkan araç bariyerlere çarparak durdu
+-  81 ilde Çember Operasyonu! Bakan Yerlikaya paylaştı: İki bin 842 firari yakalandı
