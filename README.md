@@ -1,51 +1,51 @@
 # Latest News
--  Shreyas` family shares health update on the actor, says, `He looked at us`
--  ΑΕΚ Λάρνακας: Πιθανόν με την ίδια ενδεκάδα στο Δασάκι ο Σιμόν
--  מה קישור? שינוי בגישה של תומא יכול להרים לבית"ר את העונה
--  Almost 30 people caught breaking Gauteng road rules since start of long weekend
--  Isprobajte nešto sasvim drugačije: Gljive à la brodet
--  Ducati Rilis Replika Motor Balap MotoGP, WSBK dan WorldSSP 2023
--  Soccerladuma | Motaung: The Next Chapter For Khune
--  Nurgül Yeşilçay Oğlu Nejat'ı Tanıştırmak İstediği Gökhan Özoğuz'dan Gördüğü Tavırla Neye Uğradığını Şaşırdı!
--  هاني الناظر يوجه رسالة للاعبي الأهلي بعد مباراة اتحاد جدة.. ما علاقتها بمرضه؟
--  اندلاع حريق في مصفاة بمدينة أصفهان الإيرانية
--  Rivers crisis: You ignored my counsel – Eze mocks Wike
--  Türkiye'deki Şehirler Birer Süper Kahraman Olsaydı Nasıl Görünürdü?
--  وفاة أمير الكويت نوّاف الأحمد الجابر عن 86 عاماً – بيان رسمي
--  Et Yiyen Bitki Olarak Bilinen Sinekkapan Bitkisine Acı Biber Vererek Zaman İçindeki Değişimi Gözlemlendi
--  Apo ve Alev aşkı milyonları ekrana kitledi! Kızılcık Şerbeti’nden yılın reyting rekoru
--  Il Sole 24 Ore - Cambiano gli assetti della Giovanni Agnelli BV: Elkann ha quasi il 40%
--  Corona-Zahlen in Koblenz aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  لاعب الاتحاد: نعتذر للجماهير.. وكنا الأفضل أمام الأهلي
--  Corona-Zahlen im Werra-Meißner-Kreis aktuell: Aktuelle Daten zum Coronavirus
--  Dr Gonsalves’ valuable peace deal
--  Corona-Zahlen im Landkreis Waldeck-Frankenberg aktuell: Inzidenz für Landkreis Waldeck-Frankenberg, Hessen und Deutschland
--  Friends fame Matthew Perry died of ‘acute effects of Ketamine’, reveals autopsy
--  Hungría bloquea ayuda a Ucrania por más de 50.000 millones de dólares
--  Il nuovo audio di Giulia Cecchettin su Filippo Turetta: “Devo allontanarmi, ma ho paura che possa farsi del male”
--  टेस्ट कप्तानी के मेरे अनुभव की कमी को मुख्य कोच मजूमदार ने पूरा किया: हरमनप्रीत
--  Corona-Zahlen im Schwalm-Eder-Kreis aktuell: Die Coronavirus-News aus der Region
--  Zašto okorjeli kriminalci pronalaze utočište u BiH?
--  Bermuda Stock Exchange Report: Dec 15 2023
--  Corona-Zahlen im Landkreis Kassel aktuell: Neuinfektionen für Landkreis Kassel, Hessen und Deutschland
--  “Müğənnilərin 99 üzü var, sponsor tapmaq üçün...”
--  Exclu. Joséphine, ange gardien : Éric Antoine bientôt dans la série avec Mimie Mathy !
--  Probierz może powołać sensacyjnego debiutanta. "Kilka lat przebimbał"
--  UFC 296 LIVE: Ugly sledge leaves Edwards ‘absolutely seething’ as fireworks tipped for title fight
--  « Grand Theft Auto », « World of Warcraft »… Comment les trafiquants recrutent et vendent via les jeux en ligne ?
--  Corona-Zahlen im Landkreis Hersfeld-Rotenburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Ankara’nın dört bir yanında sokak köpekleri saldırıyor!
--  Corona-Zahlen im Landkreis Fulda aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen in Kassel aktuell: Die Coronavirus-Daten im Überblick
--  ΤΙ ΗΘΕΛΕ ΝΑ ΠΕΙ Ο ΣΑ ΠΙΝΤΟ
--  Corona-Zahlen im Vogelsbergkreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  '51세' 김석훈, 결혼 4년 만에 두 아이 아빠됐다…동갑 유재석 "대단해" [놀면 뭐하니]
--  25kg찐 권아솔, 日 파이터와 200초 승부끝 승리
--  Corona-Zahlen im Landkreis Marburg-Biedenkopf aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Primele semne ale Revoluției din 1989. Mitingul de după meciul Naționalei, televiziunea clandestină și revolta de la UMT
--  Corona-Zahlen im Landkreis Limburg-Weilburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Als Gast bei Einbürgerungsfeier: Melania Trump überrascht mit seltenem Auftritt
--  Corona-Zahlen im Lahn-Dill-Kreis aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Gießen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  देश की खबरें | कर्नाटक : भाजपा ने बेलगावी की घटना को लेकर राज्यव्यापी विरोध प्रदर्शन किया
--  Rohit Shetty Unveils 'Indian Police Force' Teaser; Sidharth, Shilpa Play Cops
+-  This Week in Coins: Bonk Continues Surge With Solana Hype, Bitcoin Dips
+-  Campana sobre campana
+-  Vladimir Putin will run for president again as an ‘independent candidate’
+-  Exfuncionario del Ministerio de Gobierno traficaba autos de Dircabi
+-  Los juicios y la Fiscal
+-  Azərbaycanda gənc oğlan "TikTok"da qızı şoka saldı, cinayət işi açıldı
+-  В Киеве снесли памятник экипажу советского бронепоезда
+-  Lyon in wait: Spinner left one short of 500 Test wickets as Australia dominate
+-  '솔로지옥3' 이관희·최혜선, 천국도에 깜짝 "뷰가 엄청 좋아" 어디?
+-  Армијата призна дека убила тројца израелски заложници, стотици Израелци излегоа на протест во Тел Авив
+-  Θεοχάρης: Εντός τριμήνου θα έχει λυθεί οριστικά το θέμα των ανασφάλιστων οχημάτων
+-  Asked about Trump, Kremlin aide says Putin wants a president who is 'more constructive' toward Russia
+-  British boy who went missing in 2017 found in Southern France
+-  British boy who went missing in 2017 found in Southern France
+-  Putin would would like to see 'more constructive' U.S. president towards Russia, spokesman says
+-  14 Spanish airport workers arrested on suspicion of stealing from luggage
+-  Prince Harry wins partial victory in newspaper phone hacking claim
+-  ‘I don’t give a s*** about calories’ over Christmas, admits Gemma Collins saying ‘I love my curvy real figure’
+-  ‘I don’t give a s*** about calories’ over Christmas, admits Gemma Collins saying ‘I love my curvy real figure’
+-  Dituding Menculik Anak Sendiri, Ini 2 Kontroversi Mantan Pasangan Bunga Sophia dan Attila Syach
+-  Proteste y péguese contra el tranvía
+-  INSÄNDARE: Breven tar lång tid på sig
+-  De Boerhoorn gaat de geschiedenisboeken van Zuidwolde in, maar tranen vloeien niet op afscheidsavond
+-  Obdukcijski nalaz šokirao je svijet: Matthew Perry imao je više ketamina u tijelu nego osoba pod općom anestezijom
+-  الأمير الـ16 للبلاد .. الكويت حزينة بعد وفاة الشيخ نواف الأحمد الصباح
+-  مريضة تطالب مستشفى بـ 500 ألف درهم تعويضاً
+-  مسؤول بوزارة الصحة في غزة: مقتل 14 شخصا غالبيتهم نساء وأطفال بغارة جوية في جباليا
+-  El carácter democrático de la república
+-  شاهد لحظة إعلان وفاة أمير الكويت الشيخ نواف الأحمد الجابر الصباح
+-  الاعلان عن وفاة أمير الكويت الشيخ نواف الاحمد الجابر الصباح
+-  MUŽ ME FOTOGRAFISAO I REKAO DA MI JE TO POSLEDNJA NOĆ U ŽIVOTU: Hteo je da deca imaju USPOMENU, a onda sam skupila hrabrost za OVO
+-  Bivša osvajačica Grand slama na rubu: Nisam kriva, pad zbog dopinga mogao bi biti moj kraj
+-  «Κλείδωσε» η ενοποίηση ΟΣΕ - ΕΡΓΟΣΕ - ΓΑΙΑΟΣΕ: Πώς φτάσαμε στην ακύρωση της πολυδιαφημισμένης μεταρρύθμισης του 2022
+-  VIDEO Zaplesali pod zvjezdanim nebom: Zagrepčani nisu odoljeli taktovima glazbe na Adventu
+-  Rusija za 2024. planira testirati lansiranje 7 interkontinentalnih balističkih projektila
+-  El divorcio y sus efectos en escolares
+-  EastEnders legend forced to pull out of panto hours before going on stage after falling ill and says she’s ‘gutted’
+-  EastEnders legend forced to pull out of panto hours before going on stage after falling ill and says she’s ‘gutted’
+-  “클럽 레코드 깬다”... 아스널, 이미 오시멘 에이전트 접촉→첼시와 2파전
+-  Reconstrucción nacional
+-  La hora más oscura
+-  Küveytin əmiri vəfat etdi
+-  10 أسود حضروا المونديال سيغيبون عن الكان
+-  Crónica de un sacrilegio anunciado
+-  Hostile Australia prove how Ashes turned on Nathan Lyon’s calf
+-  Hostile Australia prove how Ashes turned on Nathan Lyon’s calf
+-  Bretagne : Usagés ou même cassés, les jouets ne veulent plus finir à la poubelle
+-  Comment la Moselle va aider l'Allemagne à sortir du charbon
+-  Geminid meteor shower lights up night sky
+-  Unveiling the Dark Genome: LINE-1's Role in Disease
