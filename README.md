@@ -1,11 +1,11 @@
 # Latest News
--  Bombardeos israelíes contra Gaza causan más muertos y heridos
--  최예나 "전참시' MC 중 원픽? 유병재, 진심으로 팬…댓글도 남겨"
--  Hem Fenerbahçe hem Beşiktaş'ta forma giymişti... Süper Lig'e ağlayarak veda etmişti Josef de Souza geri dönüyor!
--  Juegos en línea son nuevo terreno de caza para cárteles de droga
--  Dança: “O Sonho de uma noite de Natal” no cineteatro Alba
--  تنويه هـام من مصرف الامان بشأن تحويل الاموال دون عمولات
--  Protest roditelja ispred 'Ribnikara', traže pravdu za ubijenu djecu
--  Trojica rukojemníkov zabitá izraelskými vojakmi mávala bielou vlajkou. Vojak si myslel, že je to pasca
--  Svjetski prvak otkrio bizarnu situaciju: ‘Kroos mi je poslao poruku na WC-u. Počeo sam vrištati‘
--  Britanski razarač oborio napadački dron u Crvenom moru
+-  Expert tips to wash your winter woollens carefully in your washing machine
+-  Zilu cancela festas de Natal e Ano Novo devido às polêmicas familiares
+-  Love Fist: Banda de hard rock vai voltar em GTA 6?
+-  Конституционната комисия прие формално регулаторите да се избират с квалифицирано мнозинство, ще продължи обсъжданията
+-  Serie A: In campo Lecce-Frosinone 1-1 LA DIRETTA
+-  БПФЛ стартира анкета за най-красив гол на 1/8-финалите за Купата на България
+-  الحوثي يحول حرب غزة إلى موسم لابتزاز اليمنيين
+-  BBC announces A Question of Sport ‘not in production’ after 50-year run amid funding challenges
+-  تشكيلة شيفيلد يونايتد الرسمية لمواجهة تشيلسي
+-  Onda de calor mantém previsão de temperaturas elevadas nas capitais
