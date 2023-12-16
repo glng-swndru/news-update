@@ -1,51 +1,11 @@
 # Latest News
--  Фарғонада бир оиланинг 4 нафар аъзоси ис газидан заҳарланиб вафот этди.
--  Kerttu Niskanen on täysin ymmällään - tästä on nyt kyse
--  F1-talli Sauberin oikeuteen haastanut kuljettaja löi ajohanskat naulaan
--  Akamas roadworks will continue says agriculture minister
--  SMVdanmark: Regeringens handlekraft er stærkt opreklameret
--  SMVdanmark: Regeringens handlekraft er stærkt opreklameret
--  משחק חמישי ברציפות ללא ניצחון: רק 1:1 לדורטמונד באוגסבורג
--  „Wo ist Maria Kalesnikava?“: Verfolgte Belarussinen sprechen in Köln
--  DRAMA U PREMIJER LIGI: Igrač Lutona kolabirao na terenu, meč odmah prekinut!
--  بمساعدة الإمارات.. باكستان تجرب الاستمطار لتنقية الهواء
--  Kishan Reddy: శబరిమలలో తెలుగు భక్తుల ఇబ్బందులపై కేరళ సీఎం విజయన్‌కి కిషన్‌రెడ్డి లేఖ
--  GOP Senator Says Biden Actions Before He Became President Are Not Impeachable
--  Sheikh Nawaf Al-Ahmed Al-Jaber Al-Sabah Dies at 86: PM Narendra Modi Condoles Death of Kuwait's Ruling Emir
--  सिलीगुड़ी में वाहनों की जबरदस्त टक्कर ; यात्री बाल-बाल बचे
--  Эсминец ВМС США перехватил 14 БПЛА в Красном море
--  أوسيمين أساسيا في تشكيل نابولي لمواجهة كالياري بالدوري الإيطالي
--  Bježi, nanjušili su te i policija i škaljarci: Kavčani Rafailovića...
--  Friends'in yıldızı Matthew Perry'nin ölüm nedeni belli oldu
--  Elon Musk'tan "Çocuk yapın" çağrısı
--  Hakemliği bırakan Ali Balabıyık'tan şok sözler!
--  Arico Somos Todos ve como un “auténtico atentado” la construcción del parque eólico marino
--  Muestra de empatía con el prójimo
--  Canadá sube a seis los muertos por melones de México contaminados
--  U.S. and Britain say their navies shot down 15 attack drones over the Red Sea
--  کالاش ویلی میں مذہبی تہوار چوموس کا باقاعدہ اغاز، اختتامی تقریب23 دسمبر کو منعقد ہوگی
--  Clausura 2024: Fechas confirmadas y posible novedad en la Final según Asamblea del campeonato nacional
--  BBC A Question of Sport legend Sue Barker breaks silence after show axed
--  Încă un pas greșit pentru Dortmund – Diferență mare față de liderul din Bundesliga
--  Im Ruhrgebiet liegt ein malerisches Dorf aus vergangenen Zeiten
--  Un influent cardinal, fost apropiat al Papei Francisc, condamnat la închisoare pentru corupție. Procesul a durat doi ani și jumătate
--  Frida Norberg målskytt när Modo Hockey förlorade
--  Frida Norberg målskytt när Modo Hockey förlorade
--  Zázrak na trhu s elektřinou – ČEZ v pátek pro domácnosti vydal ceník, kterým překonal konkurenci
--  Шольц пришел на спектакль Серебренникова в Гамбурге
--  Мэр Горловки заявил о повреждении детского сада и котельной при обстреле
--  Лыжники из Ленобласти открыли сезон соревнований
--  Las compras arrasan el Mercado Central de Zaragoza a una semana de Nochebuena
--  Thorups tropper deler mod Dortmund i åben slagudveksling
--  Thorups tropper deler mod Dortmund i åben slagudveksling
--  Attention: Another Cryptocurrency Network Down for 1 Hour, Inscriptions Strike Again
--  Sentido homenaje en Parres a los Cinco de Sobrepiedra
--  DANAT world's premier lab to attain ISO accreditation for gemmological services
--  RADNIČKI U PROBLEMU Obijen autobus pred meč sa Partizanom, ostali bez opreme
--  GENI SU KRIVI Svi ljudi nasleđuju ovih 5 bolesti od svojih roditelja, otkrijte kako da smanjite rizik
--  Aragón gasta más en carnes y hortalizas que la media
--  On-Time Performance: Akasa Air Tops List; Check Rankings
--  राज्यपाल-एसएफआई विवाद: खान ने छात्र संगठन को चुनौती देते हुए कहा, मैं विश्वविद्यालय परिसर में ठहरूंगा
--  El polémico cartel de un bar que divide a España: "Controle a sus criaturas"
--  चंडीगढ़ की दवा कंपनी के दिल्ली-एनसीआर और पंजाब में करीब दर्जनभर स्थानों पर ईडी की छापेमारी
--  म्यांमा में अस्थिरता और मणिपुर के हथियारबंद समूहों का राज्य पर दुष्प्रभाव : कलिता
+-  Soccerladuma | Barker Praises Ex-Chiefs Man For Reviving Career
+-  I make £10,000 a month doing a job no one wants to do – it requires no experience and I even got free accommodation
+-  عمران خان کیخلاف توہین الیکشن کمیشن کیس 19 دسمبر کو سماعت کیلئے مقرر
+-  तलाक की खबरों के बीच पति और ससुर के साथ नजर आईं ऐश्वर्या राय, लोग बोले- बच्चन परिवार में सब ठीक है
+-  Κυβερνητικές πηγές για τροπολογία Καιρίδη: «Περαιτέρω ανάλυση είναι περιττή»
+-  Yapay zeka Galatasaray ve Fenerbahçe'nin Avrupa'daki rakiplerini tahmin etti. Zor kura çektik
+-  Ihlamur demlerken herkesin yaptığı korkunç hata! Bu durum tüm faydasını yok ediyor
+-  Κυριακή με βροχές, χιόνια και θυελλώδεις ανέμους
+-  Jonathan Maicelo se presentará en ‘Dilo Fuerte’ tras denuncia de Samantha Batallanos: “Contaré toda mi verdad” (VIDEO)
+-  قيمة الإنسان لمجتمعه| كتب هشام الحاج
