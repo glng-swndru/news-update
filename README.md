@@ -1,51 +1,51 @@
 # Latest News
--  NML Sets Coal Production Record; Surpasses 23.223 MMT In Just 257 Days
--  CSB Bank Aims For 32% SME Growth By FY24 End
--  Descubren qué pasa si haces un minuto de plancha abdominal todos los días
--  세븐일레븐, 샴페인 기획전 진행 … 1만원부터 30만원까지
--  한미, 내년 8월 UFS 때 처음으로 핵 작전 연습
--  경복궁 담벼락에 ‘영화공짜’ 스프레이 낙서…경찰 수사
--  다음 주 토지·주택 등 '2213억원 규모 압류재산' 온비드 공매
--  2 Die As Bike Rams Power Pole Amid Thick Fog In Odisha’s Puri
--  เร่งล่ามือยิง "นายกมิง" สงขลา ตำรวจตั้ง 3 ปมสังหาร
--  শীতে পায়ের নিচে কলার খোসা ঘষুন, ম্যাজিক দেখুন
--  Csúnyán megégetheti magát az Adobe a zavaros előfizetési praktikái miatt
--  موقف يونس موسى من المشاركة أمام مونزا
--  Shah Rukh Khan : शाहरुखचा लेक अबरामने दिली DDLJ ची आयकॉनिक पोज; किंग खानही हैराण, VIDEO व्हायरल
--  ‘Friends’ Star Matthew Perry Died Due To Ketamine Drug Overdose: Autopsy Report
--  Et billede fra 1956 fortæller alt om vores forhold til fremtiden: »Det er så teknologifyldt, at man næsten ikke kan være i det«
--  Bayburt'ta gece saatlerinde trafik kazası: 1 ölü, 1 ağır yaralı
--  Et billede fra 1956 fortæller alt om vores forhold til fremtiden: »Det er så teknologifyldt, at man næsten ikke kan være i det«
--  AK Parti'de ilk adayların açıklanacağı tarih belli oldu
--  Kom med indenfor i et 3D-printet hus, der blev til virkelighed på få dage: »Jeg tror bestemt, at det her kommer til at revolutionere byggebranchen«
--  Kom med indenfor i et 3D-printet hus, der blev til virkelighed på få dage: »Jeg tror bestemt, at det her kommer til at revolutionere byggebranchen«
--  카카오, 스위스 제네바서 AI윤리 정책 공유…“AI윤리 발전은 인권 경영과 긴밀”
--  Snart slipper du for at stå i kø og hive betalingskort frem – Revolutionen af supermarkeder nærmer sig, og det vil ændre vores vaner fuldstændig
--  Snart slipper du for at stå i kø og hive betalingskort frem – Revolutionen af supermarkeder nærmer sig, og det vil ændre vores vaner fuldstændig
--  Над 130 студенти от ТУ – Варна бяха удостоени с награди от академичното ръководство и бизнес партньори
--  3D-printet pizza og bøffer uden kød: Se, hvad der ligger på din tallerken om ti år
--  3D-printet pizza og bøffer uden kød: Se, hvad der ligger på din tallerken om ti år
--  Han befinder sig ikke på skalaen mellem optimisme og pessimisme. Fremtiden skal forstås på en helt anden måde
--  Han befinder sig ikke på skalaen mellem optimisme og pessimisme. Fremtiden skal forstås på en helt anden måde
--  Med ny teknologi kan du optage ethvert sekund af dit liv og tale med din døde bedstemor: »Hverdagen er teknologisk forandret for altid«
--  Med ny teknologi kan du optage ethvert sekund af dit liv og tale med din døde bedstemor: »Hverdagen er teknologisk forandret for altid«
--  Velkommen til Danmarks robothovedstad: Få et sjældent indblik i fremtidens robotter
--  Velkommen til Danmarks robothovedstad: Få et sjældent indblik i fremtidens robotter
--  Din personlige ai bliver din tætteste kollega på fremtidens arbejdsplads. IT-forsker har en bøn til virksomheder
--  Din personlige ai bliver din tætteste kollega på fremtidens arbejdsplads. IT-forsker har en bøn til virksomheder
--  Vladimir Putin, despre campania electorală din Rusia: Orice interferență străină va fi reprimată dur
--  '프렌즈' 故 매튜 페리, “케타민 주사 맞으면 죽어가는 것처럼 느껴져” 충격 회고[해외이슈](종합)
--  알짜배기 FA와 셀프 방출자…합계 72세 베테랑 포수, 이지영·이재원 동병상련? 얼어붙은 안방 시장
--  16 grudnia to 42. rocznica pacyfikacji strajku w kopalni „Wujek”. Zginęło 9 górników
--  롯데 임재호 트레이닝 코치, 17일 화촉 "결혼 통해 얻는 힘으로 팀에 보탬 되겠다"
--  Jordan White looking for Ross County to make Victoria Park ‘horrible’ for visiting teams
--  A dream became reality for Aberdeen goalkeeper Bobby Clark in the 1976 League Cup final
--  Aberdeen’s Wonka is a cut above Gene, Johnny and Timothée – he can style chocolate AND hair
--  Τέσσερις στο όριο
--  Highland League leaders Banks o’ Dee not getting ahead of themselves after winning silverware, says Lachie Macleod
--  علماء يطورون “أدمغة صغيرة” بمثابة “عيون متقدمة”
--  Rebel Moon : sur Netflix, Zack Snyder fait son Star Wars
--  You can overwinter tomato plants and grow them indoors, but is it worth doing?
--  সৌদি আরবে মাস্টার্স–পিএইচডি বিনা মূল্যে পড়াশোনা, আবেদন শেষ আগামীকাল
--  Cove Rangers in no mood to ease up after 10-game unbeaten run
--  Zaboravljeni čaj koji smiruje kašalj i ublažava bol u grlu: Pravi se sa hladnom vodom
+-  هذا المعدن يحميك من مرض القلاع… تعرف عليه
+-  لا تخلط مُنعم الأقمشة بمسحوق الغسيل… لهذه الأسباب
+-  تحذير من الشبورة.. تعرف على الظواهر الجوية المسيطرة في طقس السبت
+-  수도권-지방 의료 불균형 심화…소아청소년과는 수도권이 1.5배
+-  신한은행, 올해 2번째 희망퇴직 신청 받는다
+-  코빗의 '2024년 코인시장' 전망..."비트코인, 금융권으로 저변 확대"
+-  KBC 15: Amitabh Bachchan takes a dig at daughter Shweta`s American accent
+-  Confirman el lugar de las porras para la Final de Vuelta del Apertura 2023
+-  Maharashtra: Six killed, one critical as car collides with truck in Nagpur
+-  Slam dunk: Air Jordans worth $15,000 found in a donation bin
+-  '프레디의 피자가게' 70만 관객 돌파…블룸하우스 저력 과시
+-  عاجل .. منها مكة والمدينة.. تقلبات جوية غير مستقرة على 6 مناطق بالمملكة
+-  طفل تناول حليبها أمام والده.. ناقة أفسدت الفرحة
+-  Dünya Devi Moody's'den Dikkat Çeken Türkiye Pası
+-  शनिवार के दिन भूल से भी न करें ये 5 कार्य, वरना झेलना पड़ सकता है भारी नुकसान
+-  Caller Who Made Threatening Call To Ratan Tata Tracked Down
+-  Hellenic Bank outlines challenges and trends at investment forum
+-  에코프로 뜨고 카겜 지고…올해 코스닥 톱10 중 절반 물갈이
+-  NIS warns students, traders against irregular migration
+-  Ўзбекистон ва UNFPA аҳолишунослик соҳасида янги қўшма тадбирларни режалаштиряпти .
+-  17 декабрда ҳарорат 12 даражагача кўтарилади.
+-  Тахтасиз ўйналадиган шахмат, Бонапартнинг амалга ошмаган қочиш режаси, қиролни мот қилган йигит — ҳаммаси шахмат ҳақида.
+-  Жорий йилда Ўзбекистон россияликлар учун энг машҳур йўналишга айланди.
+-  Келгуси ҳафта бошида кутилаётган об-ҳаво маълум қилинди.
+-  Oproti minulému roku zarábame viac: TAKTO si prilepšili ľudia v jednotlivých odvetviach! Priemyselníci vyhrali jackpot
+-  ‘브런슨 50점’ 뉴욕, 피닉스 제압...브래들리 빌은 발목 부상
+-  Yeniden Refah'tan Kılıçdaroğlu Ziyareti
+-  IB ACIO Admit Card 2023, Grade 2 Executive Call Letter
+-  Mail train carriage set ablaze in Joypurhat
+-  과거보다 더 무거워진 재계 총수 왕관의 무게 [권상집의 논전(論戰)]
+-  Maastohiihdon maailmancupia uhkaa rajuilma – valmentaja Ville Oksasen mieleen palautuivat muistot Planican sadekisasta: "Se oli hirveetä"
+-  Ski alpin Weltcup 2023/2024 im TV und Live-Stream: So sehen Sie die Abfahrt der Herren in Val Gardena/Gröden heute live
+-  Lemon Tree Hotels launches 100th property with an opening in Malad, Mumbai
+-  Müəllimlətin XVI qurultayı davam edir
+-  50 נקודות לברנסון מול פיניקס, וומבניאמה גבר על לברון
+-  העברות בעולם, 16.12: ריאל חוזרת לאופציית הולאנד, אינטר סימנה שני בלמים
+-  Hawks stoppen Niederlagen-Serie
+-  Review: The Old Liquor Store, Bishopthorpe Road, York
+-  İlaç fiyatlarına yüzde 25 zam geldi!
+-  Kecelakaan Kereta Bawah Tanah Beijing, Ratusan Orang Terluka
+-  樂天「零死角女孩」林岱縈回歸！「純欲泳衣」全網鼻血狂噴
+-  Iberia inaugurates its daily flights to Doha
+-  Erdoğan’dan atama ve görevden alma kararları
+-  Tiesa atceļ bijušajam NBS pārtikas iepirkuma komisijas vadītājam piemēroto disciplinārsodu
+-  İYİ Parti'de Deprem: Çok Sert Sözlerle İstifa Etti!
+-  Ski alpin Weltcup 2023/2024: Kalender und TV-Termine! So verfolgen Sie die Ski-Damen in dieser Saison
+-  Situacija fronte. Okupantai puola ir kaupia rezervus. Košmaras tęsiasi
+-  Nelaukiama dovana – ūminis cistitas: kaip išvengti nemalonių pojūčių ir galimų komplikacijų
+-  Eskişehir'de üreticilere budama eğitimi
+-  Solze sreče in tisoč čestitk, zdaj priprave na euro 2024
