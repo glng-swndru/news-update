@@ -1,51 +1,11 @@
 # Latest News
--  Olise’s Late Penalty Gives Crystal Palace Unexpected Draw With Manchester City
--  Sosyal medyayı işaret eden Cumhurbaşkanı Erdoğan'dan ahlak uyarısı: Ciddi bir yozlaşma yaşanıyor
--  DeSantis activates State Guard ahead of potential severe weather
--  Education Policy Overhaul Gets Go-ahead From Cabinet
--  Sulm bërthamor ndaj SHBA-së? Uashingtoni paralajmëron Korenë e Veriut: Çdo tentativë do t’i jepte fund regjimit të Kim Jong Un
--  Nach Hayleys Not-OP: Derek Hough teilt Gesundheitsupdate
--  El Mugimendu Sozialista se convierte en partido para «hegemonizar el comunismo»
--  Kreuzfahrt-Gigant mit heftigen Problemen – dann kam’s richtig dicke
--  Šta bi znakovi Zodijaka trebalo da izbjegavaju i kojih ljudi da se klone u 2024. godini
--  الدويري: جحر الديك "شوكة في حلق إسرائيل"
--  Premier League season could start a MONTH late to make way for controversial new competition
--  Sustainable ceasefire needed in Gaza conflict, says Foreign Secretary
--  Obitelji taoca pozivaju izraelsku vladu da prekine borbe i pregovara
--  Further bin strikes set to hit soon after Christmas
--  תחקיר: המוסד חשף רשת פיננסית ענקית של חמאס - אך נתניהו לא פעל
--  "أنصار الله": موقف اليمن مع غزة "غير خاضع للمساومة"
--  Atatürk fotoğrafı takmayan teğmene tepki gösterenler de okuldan uzaklaştırılmış
--  Enfermera detenida por robar a recién nacida en hospital de Porlamar
--  Как от градска баня направиха първият в Европа виртуален музей на водата
--  Индийският боен флот следи похитения от пирати български кораб "Руен"
--  Portuguese man o’ wars washing up on Florida beaches due to heavy wind
--  UK man arraigned in Brooklyn court on fine wine Ponzi scheme: feds
--  30 сантиметра сняг натрупа на прохода Шипка
--  World News | Pakistan: Six Robbers Loot Gold Worth PKR 180 Mn Near Rahim Yar Khan
--  Borussia Dortmund: Nach nächstem Rückschlag – BVB-Star macht Champions-League-Ansage
--  'The Crown' season 6 shows Prince William and Kate Middleton's relationships before they got together. Here's what you need to know about their real-life exes.
--  Stjärnan reser hem – för att träffa syskonen: ”Är väldigt nära”
--  Stjärnan reser hem – för att träffa syskonen: ”Är väldigt nära”
--  Will Bournemouth vs Luton be replayed and would the match start again from scratch?
--  Dave Chisnall sends darts plumber Cameron Menzies' world title hopes down the drain
--  “Hay avances, pero siguen los retos”. Termina 2023 con panorama claroscuro para Sinaloa: Óscar Loza
--  ΠΑΣ Γιάννινα: Συνάντηση διοίκησης-Στάικου, βγαίνει το «διαζύγιο»
--  Magisk: Forsberg scorer i sidste Leipzig-hjemmekamp
--  Career or baby? Why women still fear starting a family will be career-ending
--  The end is nigh for the 'disorientating' global economy of the last three years as we start to see a normalisation of post-covid after-effects
--  Nicki Minaj Gives Her Opinion About 'Current Queen of Pop' on 'Watch What Happens Live'
--  Co tak naprawdę oznacza pracować mądrzej, a nie ciężej? [KOMENTARZ]
--  Empresario británico y cónsul honorario del Reino Unido fue secuestrado en Ecuador
--  I should know better this early on, but Arkane's teaser and first concept art for Blade already have me unreasonably excited
--  India News | Defence Portal for PM GatiShakti Has Been Created, 300 Infrastructure Projects Identified: Army Chief
--  Gira Luis Miguel 2024: ¿cuáles son los precios de los boletos en Funticket?
--  بالصواريخ... "المقاومة" تستهدف ثكنة "متات" الإسرائيليّة (فيديو)
--  OLS:n ei tarvitse enää vilkuilla peruutuspeiliin – Murskavoitto tukevoitti asemaa kahdeksan parhaan joukossa
--  Apple makes it easier for app makers to compete for your dollars
--  Λαμία: Επιστροφή Παπαδόπουλου κόντρα στον Βόλο
--  Ernesto Valverde: "Es una victoria acorde a la celebración"
--  V meste Kajruván sa zrútila časť historického múru, zahynuli traja ľudia
--  Pegleg Surivor journey ends as Cornwall surfer voted off BBC reality show
--  Colby Covington tells Leon Edwards he was ‘in character’ in after vile joke about Brit’s dead dad in UFC 296 face off
--  Sulle Alpi montagne di rifiuti minacciano l’ecosistema
+-  בבלגרד מתלהבים מ'ויין רוני הסרבי', בכר מחכה לדרבי: "מוטיבציית שיא"
+-  Logran una vacuna de polvo seco que se inhala una vez y previene el Covid-19 en animales
+-  Venezuela, la hija de 14 años de Paris Fury, madre de siete, luce irreconocible en una foto glamorosa y festiva
+-  Child care centres boost quality and safety
+-  Realizan entrega de vehículos en regiones de salud de Darién
+-  ليس كوبري.. مصدر بالآثار يكشف البناء الخرساني بين الأهرامات والمتحف
+-  حدث في 8 ساعات| آلية جديدة لإنهاء أزمة السكر.. وقرار جديد بشأن الأجانب المقيمين
+-  انطلاق اليوم الأول للبرنامج التدريبي للحصول على الشهادات الدولية المهنية في التدريس
+-  الزراعة توضح أسباب انخفاض أسعار البصل مؤخرًا في الأسواق
+-  حكموا عليه بالإعدام مرتين.. إدانة قاتل الشاب خالد في كفر الشيخ
