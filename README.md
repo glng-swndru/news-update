@@ -1,11 +1,11 @@
 # Latest News
--  [ŽT] „Grandiozinė“ žinia. Putinas į rinkimus eina vienas
--  Neįtikėtina. Iš pačios CŽA širdies. Dingo slapti su Rusija susiję dokumentai
--  Tai realu. Ukraina gali nugalėti Rusiją. Estijos žvalgyba skelbia, ką reikia daryti
--  [ŽT] Galutinai išprotėjo. Rusijoje raginama ruoštis „karo veiksmams Karpatuose ir Pirėnuose“
--  [ŽT] Irane sudužo Rusijoje pagamintas lėktuvas. Kas nutiko
--  Nerealus vaizdelis. Slidininkas lėkė visu greičiu ir prieš pat nosį išlindo juodasis lokys (Video)
--  Naujos skandalingos detalės. Įkaitai mojavo balta vėliava, kai kariai atidengė ugnį
--  대만 안보 책임자 “中 회색지대전 정교하고 은밀, 자유민주체제 심각한 도전”
--  '사당귀' 12년 묵은 명품 된장→1kg 3만원 간장에 감탄 "저런 된장 처음 봐"
--  Mixtral 8X7B AI Agent incredible performance tested
+-  Edin Dzeko rekorları alt üst etti
+-  Dalga boyu 4 metreye kadar ulaştı
+-  Aleyna Tilki'ye Mustafa Sandal'dan tavsiye geldi: Kendi yeteneğine güveneceksin!
+-  Özgür Özel'den Ali Fazıl Kasap açıklaması: Bitmez'in hatırasına saygısızlık olur
+-  Telefonla uyuyanlar dikkat! Birçok tehlikeye yol açıyor
+-  UK painter’s pop art highlights ‘silencing’ of Hong Kong youth
+-  7월 영입→0분 출전... 아직도 데뷔 못한 ‘튀르키예 메시’, 결국 2023년 출전 불가
+-  Om Birla: ఎంపీలకు స్పీకర్ ఓం బిర్లా లేఖ.. కారణమేంటంటే..?
+-  Meclis'te istifa trafiği! 600 vekilden 53'ü partilerinden ayrıldı
+-  Rekha Bhardwaj makes debut as music composer with Safed, music album launched
