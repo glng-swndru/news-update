@@ -1,11 +1,51 @@
 # Latest News
--  מדליית כסף לתמנע נלסון לוי באליפות אירופה הפתוחה בג'ודו קוסובו
--  Sjutra pretežno sunčano, sjeverni vjetar u slabljenju: Temperatura do 15 stepeni
--  জাপার সঙ্গে আ.লীগের আসন সমঝোতা চূড়ান্ত, 'গলার কাটা' স্বতন্ত্র প্রার্থী থাকছেই
--  Jorge Jesus'tan geri döneceği iddialarına yanıt
--  حمدان: لا تبادل للأسرى قبل وقف العدوان وقبول شروط المقاومة
--  Evropska komisija pozdravila donošenje Evropske uredbe o slobodi medija
--  Otoyolda panik anları. Pamuk yüklü tır alev alev yandı
--  مصدر: طلبات التصالح في مخالفات البناء المرفوضة في القانون القديم لن تكون سارية
--  Kovat kahvitarjoukset palasivat kauppojen hyllyille, ja suomalaisten suosikkimerkkiä saa nyt jopa alle kolmella eurolla
--  طائرة خاصة لنقل أفسي نواذيبو وعودته من الكونغو قبل الانتخابات
+-  A Milli Kadın Golbol Takımı'ndan büyük başarı!
+-  ‘I was euphoric’: Billy Stark reflects on scoring in Aberdeen’s 1985 League Cup final triumph
+-  Addio a Sebastiano Lo Monaco, morto a 65 anni. Aveva recitato in Don Matteo
+-  ¿Qué ha pasado con Joaquín Varela?
+-  Probabile formazione Milan: torna Kjaer dal 1', Pobega sostituisce Musah
+-  Zuma says he's voting for MK to revitalise the ANC from the outside
+-  'I won't campaign or vote for ANC under Ramaphosa, but I'll die a member': Zuma
+-  Actor Gerard Depardieu stripped of Belgian honorary title
+-  Luton Town z mrożącym krew w żyłach komunikatem w sprawie Toma Lockyera. „Doznał zatrzymania akcji serca” [OFICJALNIE]
+-  Вместо наркотици откриха забранени за отглеждане птици
+-  Con votos en contra del PAS y PRI, diputados aprueban presupuesto de Sinaloa 2024 por más de 69 mil mdp
+-  MM-hopeavahti kuin muuri - TPS sarjakärjessä joulutauolle
+-  Smaker og lukter seg fram til julens drikke
+-  Серебренников заявил, что Шольц посетил его спектакль в Гамбурге
+-  Tamna strana HOROSKOPSKIH znakova: Crni mjesec – Lilit
+-  Trabzonspor'un eski teknik direktörü sahalara geri dönecek mi?
+-  Ventura avisa Montenegro que Chega vai ter mais votos que o PSD
+-  Met Office warns of storms and floods causing ‘danger to life’ this weekend
+-  Le ultime dal Grande Torino: torna Linetty in mezzo al campo
+-  Inaugura AMLO acueducto El Cuchillo II
+-  Srbi s Kosova više ne mogu koristiti stare registracije na automobilima
+-  Kaczyński ma nowy plan. Tak chce wrócić do władzy. Naprawdę to powiedział!
+-  Quel vin déguster en jouant à un jeu de société ? On a demandé au patron d'un bar à jeux niçois ses accords parfaits
+-  Kumluca'da istinat duvarı çöktü: Ev ve seralar zarar gördü
+-  Mississippi sheriff overseeing violent department faces yet another lawsuit after yet another man dies in its custody
+-  Manuel Isidro Molina: “No cualquiera se puede presentar como una opción presidencial en Venezuela”
+-  Hostages were waving white flag when troops shot them dead, says Israeli army
+-  Visočki poljoprivrednici dobili 100.000 KM za ublažavanje posljedica nevremena
+-  В США бывший агент ФБР осужден за работу на российского олигарха Дерипаску
+-  Zoran Lutovac, opositor serbio: "Tal vez seamos los únicos proeuropeos que no tienen el sostén de la Unión Europea”
+-  क्रिकेट : अंडर-14 में गुरुग्राम, अंडर-17 में फरीदाबाद जीता
+-  Hisar News: जमीन मामले में मृतक व्यक्ति के कोर्ट नोटिस पर किए झूठे हस्ताक्षर, कर्मचारी सहित चार पर मामला दर्ज
+-  Ambala News: प्रशासक छुट्टी पर, अटकी विकास की फाइले
+-  Ambala News: धुंध के बीच ट्रक ने बाइक को मारी टक्कर, दो की मौत, एक घायल
+-  Ambala News: ड्राइविंग लाइसेंस बनाने पर सख्ती, बढ़ा फेल होने वालों का आंकड़ा
+-  Chandigarh News: बैंक में लोन के नाम पर हुए 130 करोड़ के घोटाले में आरोप तय
+-  Ambala News: विश्वस्तरीय सुविधाओं से लैस होगा शहर रेलवे स्टेशन
+-  Ambala News: गिद्दा और भांगड़ा ने दर्शकों को भी नचाया
+-  बदलाव यात्रा को मिल रहा समर्थन : निर्मल सिंह
+-  रोडवेज: तीस हजार बुजुर्ग महिलाओं को मिलेगा मुफ्त यात्रा का लाभ
+-  Jhansi News: एक जनवरी से भरे जाएंगे पॉलिटेक्निक के प्रवेश परीक्षा फार्म
+-  Jhansi News: मार्कशीट जारी कर दी आंख मूंदकर, छात्र को दे दिए 35 में 36 नंबर
+-  Jhansi News: पारीछा पावर प्लांट की एक यूनिट 21 दिसंबर से होगी चालू
+-  Jhansi News: अब झांसी से दूसरे शहरों के लिए भी चलेंगी इलेक्टि्रक बसें
+-  बीयू: सत्यापन को आ रही मार्कशीट का डाटा लीक होने पर रिपोर्ट देंगे एआर
+-  Jhansi News: दोस्तों के साथ घूमने गए किशोर की संदिग्ध परिस्थितियों में मौत
+-  Jhansi News: कक्षा के बाहर प्रयोगशाला का बोर्ड, अंदर मिला स्टोर मिला
+-  Jhansi News: बा विद्यालयों में बालिकाओं की अनुपस्थिति का नहीं ब्योरा
+-  Jhansi News: अबकी 67 केंद्रों में होगी यूपी बोर्ड परीक्षा
+-  योगी सरकार का बड़ा प्लान: अब अवैध निर्माण रोकने की नई तकनीक से होगी शुरुआत, यूपीएलसी ने शुरू कर दीं तैयारियां
