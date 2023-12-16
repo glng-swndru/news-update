@@ -1,51 +1,51 @@
 # Latest News
--  평창 겨울 호우 수목전도피해 잇따라
--  박영춘 국민의힘 춘천·철원·화천·양구 갑 예비후보 출판기념회 개최
--  이수연 ‘미녀 파이터의 묵직한 한방’[MK포토]
--  السعودية | ما أهمية دور الصين في رعاية الاتفاق بين السعودية و إيران حتى بعد إبرامه بنحو 10 أشهر؟..الشهري يجيب
--  بعد مقتل 3 بنيران صديقة.. أهالي المحتجزين يكثّفون الضغط على نتنياهو
--  أوكرانيا: تسجيل 96 اشتباكا مع القوات الروسية خلال الساعات الـ24 الماضية
--  الأمن القومي الأمريكي: الإطار الزمني للعمليات العسكرية في غزة قرار يعود إلى إسرائيل
--  นายกฯ ยันแลนด์บริดจ์ ไม่แย่งธุรกิจเพื่อนบ้าน
--  تحرق دهون البطن.. ماذا يحدث لجسمك عند تناول البطاطا بدون تقشير؟
--  प्राज्ञ-प्रतिष्ठानमा गुरुङ साहित्यबारे विमर्श
--  무려 30년 동안 ‘항구’를 ‘방귀’로 쓴 표지판 세워둔 日 지자체 화제
--  Зеленский: ЕИ қарори - куч берадиган ғалаба.
--  Қўқонда яна 9 киши қўлга олинди. Ушланганлар орасида 19-20 ёшли йигитлар ҳам бор.
--  ЕТТБ Ўзбекистонда «яшил» инвестицияларни рағбатлантириш учун 10 млн доллар ажратади.
--  Россия Марказий банки асосий ставкани 16 фоизгача оширди.
--  Даҳшатли ЙТҲ содир қилган Tahoe ҳайдовчисига нисбатан жиноий иш қўзғатилди.
--  Orai.lt: prasideda drėgnas, vėjuotas ir šiltas laikotarpis
--  زيلينسكي يؤكد مواصلة حشد الدعم الأجنبي للدفاع عن أوكرانيا
--  SAČUVAJTE PARADAJZ I DO GODINU DANA Mediteranski specijalitet je ono što vam treba ove zime, zaboravite na sveži proizvod!
--  مفاجأة صادمة لأبطال النسخة التركية من "للموت"
--  ഓസ്‌ട്രേലിയ ഇന്ത്യൻ ഫിലിം ഫെസ്റ്റിവലിൽ രണ്ടു അവാർഡുകൾ കരസ്ഥമാക്കി ‘ജനനം 1947 പ്രണയം തുടരുന്നു ‘
--  ‘12-27’ 또 3Q에 무너진 삼성, 은희석 감독은 자책했다 “나의 실수” [MK안양]
--  Αυξάνονται τα περιστατικά βίας σε ανήλικους - Καταδρομική επίθεση σε παιδιά από ομάδα 30 ατόμων στον Άλιμο – Μαθητής γυμνασίου στο νοσοκομείο
--  Lufthansa nastavlja letove za Tel Aviv, Amerikanci još čekaju
--  UGC Warns Edtech Companies Offering Degree Courses Online in Association with Foreign Universities
--  روسيا تكشف عن هجمات أوكرانية على القرم.. وزيلينسكي يتعهد بحشد الدعم الأجنبي
--  ‘론스타에 2800억 배상’ 판정, 집행정지 연장…한동훈 “피같은 세금 낭비없다”
--  “서울시, 강추위에 24시간 비상근무 돌입”…서울 전역 오후 9시 한파주의보
--  노숙자, 60만명 넘었다…1년 동안 7만명 늘어난 ‘이 나라’
--  Israel-Hamas War: How Are Houthi Attacks on Ships in Red Sea Affecting World Trade?
--  นายกฯ พบ เจ้าชายบรูไน เป็นศิษย์เก่านักเรียนอังกฤษ
--  NBA'de Alperen Şengün ve Cedi Osman'ın günü
--  Dispută Ciolacu - Simion: Cât timp mai doriţi să spuneţi neadevăruri despre mine şi familia mea? / Să spună tot ce ştie despre familia mea - că tata e dependent de alcool
--  OSTALI SPORTOVI: "Tip" - tiket za subotu
--  Mrliški oglednik razkril, zakaj je umrl Matthew Perry
--  Paragliding On E-Scooter? Punjab Man Achieves Groundbreaking Feat
--  Zamestnávatelia využívajú žiakov z duálneho vzdelávania aj ako lacnú silu, tvrdí Peter Danko
--  Japonsko a krajiny Združenia krajín juhovýchodnej Ázie chcú posilniť bezpečnostnú spoluprácu
--  آرمی چیف عاصم منیر کی اقوام متحدہ کے سربراہ سے ملاقات, کشمیر اور غزہ کے مسائل پر تبادلہ خیال
--  İYİ Parti İstanbul İl Başkan Yardımcısı istifa etti: Ayak oyunları bıktırdı
--  Auto-Rückruf aktuell bei BUGATTI: Alles zu den betroffenen Autos und was Sie jetzt tun können
--  Auto-Rückruf aktuell bei AUDI: Alles zu den betroffenen PKW und was Sie jetzt tun können
--  Fahrzeug-Rückruf aktuell bei BMW: Alles zu den betroffenen PKW und was Sie jetzt tun können
--  İlaç fiyatlarına yüzde 25 zam
--  ABD uçak gemisini İsrail'den çekmiyor!
--  Putin proznao: Preopterećeni smo
--  KLIZIŠTE ZAPRETILO SVETINjI SPC: Proglasili vanrednu situaciju u delu Pribojske banje, potrebna hitna sanacija problema (FOTO)
--  Merkez Bankası Başkanı Gaye Erkan: İstanbul'da ev bulamadık, anneme taşındık
--  بدء عملية تصويت القوات الأمنية والعسكرية في انتخابات مجالس المحافظات بالعراق
--  TechNigeria: A weekly digest of what went down in Nigeria’s tech space
+-  롤스로이스男 풀어준 경찰, ‘감봉’ 1개월 후 전출
+-  Rohit Shetty’s ‘Indian Police Force’ teaser is packed with power, performance and police force
+-  EN IMAGES. Lisieux : la parade lance le grand week-end de Noël
+-  شاہد خاقان عباسی کا ن لیگ چھوڑنے کا فیصلہ
+-  Россия нарастила внешний долг перед единственной страной в 2022 году
+-  EPL: Osimhen to become Arsenal’s most expensive signing
+-  BBC Strictly Come Dancing couples 'undeniable chemistry' bumps former favourite from spot top before final
+-  Inburgering nieuwe Nederlanders? Dat gaan Zaltbommel en Maasdriel voortaan samen doen
+-  BBC Strictly Come Dancing viewers' winner 'decided' hours before final between Ellie Leach, Layton Williams and Bobby Brazier
+-  Dans ce département d'Occitanie, un lieu renoue avec la tradition du pur café-théâtre
+-  Hiszpański dziennikarz nie ma wątpliwości ws. Lewandowskiego. "Wiemy na pewno"
+-  Il se rend chez son ex en pleine nuit, à Caen : et ça se passe très mal...
+-  Urlaub auf den Kapverden: Was die Inseln im Winter so besonders macht
+-  Urlaub im Februar: Diese Reiseziele sind warm und sonnig
+-  Ranked: The best festive movies to watch this Christmas
+-  Συνεχίζεται για 4η μέρα η συζήτηση στην Ολομέλεια της Βουλής για τον προϋπολογισμό 2024
+-  Mediakonserni Keskisuomalainen harkitsee osakesarjojensa yhdistämistä
+-  Soccerladuma | Sancho's Man Utd Future Takes Another Twist?
+-  Nach Tod von Gaza-Geiseln: Demonstrierende fordern Israels Regierung zum Handeln auf
+-  Währung: Hessen tauschen mehr D-Mark-Bestände bei Bundesbank um
+-  Još malo i kuna se "briše"
+-  Не се хвалете в социалните мрежи, че пътувате по празниците
+-  Kareena Kapoor, Karan Johar Cheer For Their Kids Taimur And Yash At Annual Day Function; Watch Adorable Video
+-  हाईकोर्ट ने तुलजा भवानी मंदिर ट्रस्ट को आभूषणों को भंग न करने का आदेश दिया
+-  CHP'li vekil bypass oldu
+-  Hakemler maça çıkma kararı aldı
+-  Nazilli’de uyuşturucu operasyonu
+-  تفاصيل طلاق شيرين وحسام حبيب.. للمرة الثالثة
+-  خبير أمريكي يشير إلى سببين سيؤديان إلى انهيار أوكرانيا
+-  Ferdi Kadığlu'na 6 talip birden!
+-  Einzelhandel: Tarifprotest im Einzelhandel vor Ikea-Zentrale geplant
+-  هل ترتبط جينات تعزيز الخصوبة بمشاكل صحية؟.. دراسة تجيب
+-  Rudy Giuliani, fostul avocat al lui Donald Trump, condamnat să plătească aproape 150 de milioane de dolari către două femei
+-  FD दरें: इस बैंक के ग्राहकों के लिए खुशखबरी, अब 366 दिन की FD पर मिलेगा बंपर ब्याज, चेक करें दरें
+-  Insecurity: Medecins Sans Frontieres announces partial withdrawal from Zamfara
+-  FC Bayern: Ex-Nationalspieler Holger Badstuber sieht Probleme in der Abwehr
+-  Ausschreitungen in Paderborn: Hohe „kriminelle Energie“
+-  Has this Greater Manchester Primark found the answer to those massive queues?
+-  Zbog olujnog vjetra zatvorena A1 između Sv. Roka i Posedarja
+-  Hrvatska glumica pozirala s majkom, pratitelji zadivljeni koliko sliče jedna drugoj
+-  Pekka Haavisto ottaisi pääministerin mukaan tärkeisiin ulkopoliittisiin tapaamisiin
+-  Xankəndi yolunda qəzaya düşənlər KİMLƏRDİR...
+-  पाक खुफिया एजेंसी और नेवी अप्रेंटिस गौरव पाटिल के बीच 900 चैट का खुलासा
+-  العبادي يدعو إلى المشاركة الواسعة والواعية في الانتخابات
+-  Te podatki i opłaty wzrosną w 2024 roku. Podsumowujemy zmiany w prawie ważne dla każdego
+-  В Сербии заявили, что не хотят вступать в НАТО и забывать, кто отнял Косово
+-  Selena Gomez makes out with new boyfriend Benny Blanco
+-  В Северной Осетии ликвидировали пожар в торговом центре
+-  Cambuur-trainer Henk de Jong witheet na misdragingen eigen fans: ‘Paar idioten hebben geen verstand’
+-  ISPOD POJASA Šolakovi politički i medijski pajaci drsko gaze izbornu tišinu i napadaju Vučića! ŠIBICARSKIM FORAMA BI DA OTMU VLAST
