@@ -1,51 +1,51 @@
 # Latest News
--  Infectóloga alerta a la ciudadanía sobre otro repunte de dengue en Venezuela
--  Mobil Samsat Keliling Pemprov Banten
--  Москвада мигрантлар полиция билан тўқнашди, 82 киши ҳибсга олинди.
--  Қайси омиллар нарх ошишига энг кўп даражада таъсир кўрсатиши мумкин? – МБ инфляцион кутилмаларни эълон қилди.
--  Elon Musk advierte sobre la disminución de la población italiana en el evento Meloni
--  HBO:n hittisarja lähenee loppuaan – päättyy ensi vuonna
--  ‘12경기 0골’... 회이룬이 아직도 무득점인 이유→동료들이 패스를 안 한다
--  Zij gaan financieel slim om met cadeaus, diner en outfit en geven hun beste budgettips
--  Homeworld 3 is getting a skirmish mode for its release in March 2024
--  قمة تسويقية جديدة للأسد صيباري
--  TSV Westerholt verpflichtet Spielmacher vom SC Hassel II: Der ist aber vorerst noch gesperrt
--  Weiberfastnacht in Marl: Die Sternburger lassen es im Pfarrheim krachen
--  The 10 best anti-inflammatory foods to add to your diet
--  VIDEO: On the sixth day of Christmas, we deliver a warm welcome to a new Saultite who experienced tragic loss
--  Mzembi Says CCC MPs Must Remain In Parliament, Do You Agree?
--  Wenn das Hörgerät teurer wird und die Kasse nicht zahlt: Dann guckt Sebastian Senft genau hin
--  Le Havre - Nice, en directo | Ligue 1
--  وظائف في شركة مملوكة لصندوق الاستثمارات.. التفاصيل ورابط التقديم
--  قهوة من أشجار بعمر 200 عام.. تجمع غير مسبوق لتسويق منتجات مزارعي محايل عسير
--  Ermedin Demirović postigao gol Dortmundu
--  Big B Finds Granddaughter Aaradhya’s Stage Performance ‘Completely Natural’ [Watch]
--  Alemania pone fin a la subvención por la compra de autos eléctricos
--  US warns North Korea against nuclear attacks
--  Vegan Donut Advocates A Paradigm Shift Towards Plant Based Food At COP28
--  Wereldkampioen staat er meteen: Mathieu van der Poel ondanks val overtuigend naar eerste crosszege
--  Министр обороны допустил возобновление обязательной военной службы в Германии
--  Pipebrann på Osterøy
--  Карасёв заявил, что в его взаимоотношениях с УЕФА ничего не поменялось
--  Dónde está la fábrica de Dulces Miguelito que vende chamoy y chile en polvo barato en CDMX
--  Preminuo poznati italijanski ideolog radikalne levice Toni Negri
--  Postoje samo dva na svetu: Na prodaju Lamborghini Diablo SV Roadster FOTO
--  Milli Eğitim Bakan Yardımcısı Yelkenci, TÜGVA İhtisas Akademisi'ne katıldı
--  Kongo Demokratik Cumhuriyeti'nde seçim öncesi ateşkes kararı alındı
--  HÜDA PAR'dan yerel seçim ittifakı açıklaması
--  Diyarbakır Lice'de terör operasyonu: Kilolarca uyuşturucu ve mühimmat ele geçirildi
--  Video: Ni la nieve le impidió a este pequeño divertirse
--  Galatasaray Daikin sezonun 6. galibiyetini aldı
--  Grbin: Plenković je kukavica, i to velika!
--  بنيران صديقة.. تحقيق يكشف عن قتل 3 رهائن إسرائيليين على يد جيش الاحتلال
--  बाजार से आने लगी है तिलकुट की सोंधी खुशबू, ठंड के दो महीने रहती है भारी मांग
--  ¿Argentina va a creer en la magia monetaria?
--  مزاحمتی نہیں اصلاحی تحریک – خاطرات: امیرجان حقانی
--  Crash auf Autobahn im Norden – zwei Verletzte
--  Zakończyła się rozmowa Dudy z Tuskiem. Kancelaria Prezydenta wydała komunikat
--  Wie Masha Gessen ihren umstrittenen Holocaust-Vergleich begründet
--  Pablo Muñoz regresa a la convocatoria y Cayarga se cae por lesión
--  'The Sopranos': Tracing the cast of the drama series' post-show journey
--  Grbin: “Plenković je velika kukavica, Sabor se treba raspustit”
--  Захарова: Влезот на Украина во ЕУ ќе ѝ нанесе поголема штета на самата Унија
--  Diez veteranos del teatro y la televisión colombiana fueron homenajeados en Bogotá
+-  تقرير: مهمة شاقة أمام مصر لتغطية فجوة التمويل في العامين الحالي والمقبل
+-  لمس مواطن عفتها.. ابن يبلغ عن والده في الدقهلية: تحرش بـ شقيقتي المعاقة
+-  Una tormenta poderosa azotará Florida y se fortalecerá en la costa este de EEUU el fin de semana
+-  Apostolski nuncij Chullikatt slavio misu na spomendan Drinskih mučenica u Sarajevu
+-  Ini Deretan Bocoran Terbaru iPhone 16
+-  Suomalainen aito kuusi on yhä suosittu – MTK muistuttaa, että aitous ei ole tae kotimaisuudesta
+-  Srpski defanzivac na meti Borusije iz Dortmunda
+-  Kaj pa Ester? Prvenec Tosje Flakerja Berceta je prišel v kina.
+-  Kaj pa Ester? Prvenec Tosje Flakerja Berceta je prišel v kina.
+-  İstanbul'da İETT Otobüsünü su bastı!
+-  4 ilde milyonlarca lira dolandırdı! Yalova'da yakalandı
+-  Bursa'da Başkan Aykurt, Orhaneli Kapalı Spor Salonu'nda gençlerle buluştu
+-  TOFAŞ, Çağdaş Bodrumspor'u mağlup etti
+-  Samsun'da sığırcık kuşları görsel şölen oluşturdu
+-  ABD'de evsizlerin sayısı en yüksek seviyeye çıktı
+-  Mardin Yardere Şelalesi göreni büyülüyor
+-  Hapis cezası bulunan şahıs, eğlenmek için geldiği Marmaris'te yakalandı
+-  İYİ Parti Diyarbakır'da toplu istifa
+-  Mardin'de uyuşturucu ayakkabı topuklarından çıktı!
+-  عاجل.. ماذا تفعل عندما لا تستطيع حضور العمرة في الموعد المحدد؟
+-  Cercana a 4T toma control de TEPJF
+-  Cae un expolicía que se hacía pasar por agente activo
+-  Google Chrome Bakal Hapus Cookie Pihak Ketiga di 2024, Privasi Lebih Terjaga
+-  গণতন্ত্র, রাজনীতি এবং বুদ্ধিজীবী
+-  কৃষকের বসত বাড়িতে বিষধর রাসেলস ভাইপার
+-  বাড্ডায় অষ্টম শ্রেণির শিক্ষার্থীকে পিটিয়ে হত্যা
+-  Naš glazbenik o kćerkici koju je dobio u 58. godini: 'Svakom bih u mojim godinama to preporučio'
+-  Live Eredivisie | FC Utrecht wil opmars voortzetten tegen RKC
+-  Live Eredivisie | FC Utrecht wil opmars voortzetten tegen RKC
+-  Moderna planea lanzar vacuna contra cáncer de piel, que estaría disponible en 2025
+-  Rochelle Rao & Keith share their baby girl`s name with an adorable face reveal
+-  VOCOlinc Smart LED Desk Lamp review: full of features without busting your budget
+-  ‘Sister Wives’ Tell-All: Meri Brown Doesn’t Care How Kody Brown Feels Anymore
+-  جرافات الاحتلال دهست نازحين بساحة مستشفى كمال عدوان
+-  والا : نقل البضائع للكيان من الخليج برا بعد استهداف الحوثيين للسفن
+-  I work at a Christmas tree store & customers are so annoying – they give such ridiculous reasons for wanting a discount
+-  I work at a Christmas tree store & customers are so annoying – they give such ridiculous reasons for wanting a discount
+-  Three hostages holding white flag mistakenly killed by troops, Israeli military says
+-  Fanb detiene a un hombre que transportaba más de 26 kilos de cocaína en Táchira
+-  Stormers channel the Springboks to snatch incredible last-gasp win
+-  Hasina joins Victory Day celebrations at Bangabhaban
+-  Offre immanquable sur une tablette tactile à moins de 100 € qui a tout d’une grande
+-  Kembalikan Baliku Hadirkan Sesolahan Balin Tityang 2023 Ajak Anak Muda Cintai Seni Bali
+-  Alex Batty to be flown to UK today as it is revealed missing boy tried to enrol in French school
+-  МЧС Азербайджана отмечает 18-летие
+-  اليمن تحصل على دعم منظمة التجارة العالمية في تنفيذ بعض المشاريع المرتبطة بتسهيل التجارة
+-  AEW Collision Preview: Winter Is Coming Edition, Continental Classic Continues
+-  Vestlige militærkilder advarer: Ukraine vil »helt sikkert fejle« uden mere støtte
+-  Papa Francisco lamenta esta «Navidad del dolor» en Tierra Santa por la guerra
+-  Vestlige militærkilder advarer: Ukraine vil »helt sikkert fejle« uden mere støtte
