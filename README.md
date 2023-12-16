@@ -1,51 +1,51 @@
 # Latest News
--  Zirve değişti: İşte ülke puanına en çok katkı sağlayan Türk takımı
--  Recep Uçar'dan Fenerbahçe mesajı: En iyi şekilde hazırlanacağız
--  ค้านประกันตัว "โค้ชฟุตบอล-พ.ต.วัยเกษียณ" ล่วงละเมิดเด็ก พบมีผู้เสียหาย 5 คน
--  বিজয় দিবসের খিচুড়ি মাটিতে ফেললেন এমপি নিক্সনের সমর্থকরা
--  ایران نے مبینہ ’موساد‘ ایجنٹ کو پھانسی دے دی
--  کویت کے امیر شیخ نواف الاحمد الصباح انتقال کرگئے
--  2 die of electrocution while hoisting national flag in Gazipur
--  Aplicaciones seguras: todas las formas de rastrear la ubicación de un celular en tiempo real
--  Parliament Security Breach: Sixth Accused Mahesh Kumawat Sent to Seven-Day Police Custody (Watch Video)
--  A los 86 años, murió el emir de Kuwait
--  לאחר הרג שלושת החטופים בשוגג וההפגנה בקפלן: משפחות החטופים בהצהרה על "החרפת הצעדים"
--  זה קרה בחנוכה: ספרי הילדים לחנוכה שכולם צריכים להכיר
--  בגיל 86: אמיר כווית א-סבאח הלך לעולמו
--  התמונה שריגשה את המדינה: האבא יצא מהמילואים להפתיע את בנו בן ה-6 בתחרות הג'ודו
--  באמצע משחק: מסוק שפינה פצועים לבי"ח שערי צדק נחת בבית וגן
--  למרות המועמדות לפרס האמי: מים ביאליק הודחה מהנחיית התוכנית "ג'פרדי"
--  צעקות "הצילו", הרמת בד לבן וירי בניגוד להוראות: תחקיר אירוע הריגת שלושת החטופים
--  বিজয় দিবসে প্রধানমন্ত্রীর স্মারক ডাকটিকিট অবমুক্ত
--  INEC moves Kogi election materials to Abuja
--  Bolsonaro compara Lula com Fidel por menção a Dino ser 'comunista no STF'; evento teve vaias a Moro
--  Nach Leichenfund: Ermittlungen gehen weiter
--  "Que significa o teatro para nós...? Vida!"
--  الشيخ يزبك: المستقبل هو للمقاومين الأحرار
--  Sunak in Rome for Illegal Migration Talks
--  My Demon Episode 8: How to Watch, Airdate, Preview, Spoilers, and More
--  Tóth Vera még mindig gyászolja Fábián Julit: „6 éve Julika nélkül forog a föld...”
--  বিজয় দিবসে মালদ্বীপে প্রবাসীদের ক্রিকেট টুর্নামেন্ট
--  Juuso Välimäen loukkaantumisesta järkyttävää lisätietoa - NHL ja NHLPA avasivat jo tutkinnan
--  Kuwait’s Ruling Emir, Sheikh Nawaf Al Ahmad Al Sabah, Dies at Age 86
--  Langläuferin Carl im Skiathlon auf Rang sechs
--  Çiğ Köfte Kilo Aldırır Mı? Çiğ Köfte Kilo Yapar Mı?
--  Kosmiczny powrót Bartosza Kurka, set do 34 punktów. Polak zagra w finale
--  Taxes on sugary drinks will help poor Nigerians — Coalition
--  محافظ المصرف المركزي يلتقي بـ نورلاند ويتفقان على نهجا لإعمار درنة
--  Israel-Qatar back on negotiating table for release of Hamas' hostages: Report
--  為侯友宜、阮厚爵助講催票 王惠美批中央擋建設險爆粗口
--  האסון בשג'אעיה: החטופים הניפו בד לבן וצעקו "הצילו", הלוחמים ירו בניגוד להוראות
--  SMEs Funding Gap Of Rs 25 Trillion Can Be Solved Through IPOs, Says Expert
--  How To Watch Bengaluru FC vs Jamshedpur FC Live Streaming Online? Get Live Streaming Details of ISL 2023–24 Football Match With Time in IST
--  PlusLiga: Grupa Azoty ZAKSA Kędzierzyn-Koźle - Projekt Warszawa. Relacja i wynik na żywo
--  ¿A qué hora juega América vs. Tigres? Horarios por final de vuelta de Liga MX
--  Gladbach-Shootingstar Reitz: „Lebe gerade einen Traum“
--  Na Brezovici metar snega, otežan saobraćaj (FOTO i VIDEO)
--  Langläuferin Carl im Skiathlon auf Rang sechs
--  “첼시는 승점 1점당 338억 쓴꼴”... EPL '빅6'의 승점 1점당 사용한 금액 공개
--  शशि कपूर की हीरोइन, पाकिस्तानी क्रिकेटर से रहे जिसके अफेयर के चर्चे
--  Kickoff | Why Mashego wants Stellies to beat Galaxy
--  'Those Who Die Are Called Martyrs': In Rajasthan's 'Mini Kota' Suicide is a Joke
--  Gladbach-Shootingstar Reitz: «Lebe gerade einen Traum»
--  Ecco come potrebbe essere lo smartphone economico di Nothing
+-  مشهد مخل تحت قبة مجلس الشيوخ.. فضيحة جنسية لمسؤولين كبار تهز أمريكا
+-  عاجل.. لمستفيدي الضمان .. توضيح مهم بشأن عدد مرات الإعفاء من رسوم اختبار القدرات العامة
+-  Município aprovou orçamento para 2024 de 23 milhões de euros
+-  Insertion - Employabilité : le PACAO-Sénégal dope l’incubateur de l’UGB
+-  Αστυνομικός στη Βοιωτία τραυμάτισε με μαχαίρι την πρώην σύντροφό του - Κατηγορείται για ανθρωποκτονία
+-  ভারতের প্রধান বিচারপতির কাছে অদ্ভুদ আবদার নারী বিচারকের!
+-  Papa Françesku/ Thirrje për rregullimin ndërkombëtar të inteligjencës artificiale
+-  Ja Morant sur son retour imminent de suspension : “Je compte les jours”
+-  LeanBliss Reviews (Customer Warning Alert) Shocking New Information About
+-  8 édes mesekönyv ovisoknak, alsósoknak karácsonyra - Szülőként is szívesen olvasod majd
+-  Дербушева заявила, что удачно выступить ей помогла точная стрельба
+-  ‘19.3억원’ 이번주 로또 1등, 13명 무더기 당첨…‘6150만원’ 2등도 68명
+-  ЕИ январда Украинага 50 млрд евро ажратиш бўйича саммит ўтказади.
+-  Германия Украинага қишки ёрдам тайёрламоқда.
+-  Мусиқачининг “башорати”, қиморбознинг бомбаси ҳамда кемасознинг даҳшатли таваккали – ғаройиб тақдирлар.
+-  Тошкентда HAVAL М6 автомобили янги моделининг ноодатий тақдимоти бўлиб ўтди.
+-  Eligieron a la Miss Tunning Paraguay 2024
+-  Jackie 'O' Henderson shows off her slimmed down figure in boho mini dress as she takes her daughter Kitty Christmas shopping in Sydney
+-  Минобороны: ВСУ за сутки потеряли на Донецком направлении до 290 военных
+-  [사진뉴스] 창원광장 크리스마스트리 불 밝혔다
+-  Jokowi Bertemu PM Jepang Fumio Kishida, Bahas Pembangunan MRT hingga Palestina
+-  Ellie Simmonds has been hospitalised with mystery health scare as she reveals she's spent days on a ward and worries if she will make it home for Christmas
+-  «Los hombres no quieren dejar de ser los reyes de la casa»
+-  الكويت تعلن الحداد الرسمي لمدة 40 يوماً وإغلاق الدوائر الرسمية لمدة 3 أيام
+-  „Dronų medžiotojai“. Belgija „išrado“ paprasčiausią būdą kovoti su dronais (Video)
+-  [ŽT] „Jie ėjo per mus ir mušė buože, kol žmogus nenutildavo“
+-  [ŽT] Belgorodo srityje valdininkas susprogo užvažiavęs ant rusiškos minos
+-  [ŽT] „Kas išleido Putiną be kepurės? Išplakti juos.“ Putinas su Ziuganovu aptaria fizines bausmes (Video)
+-  [ŽT] „Kas tu toks, kad kritikuotum Rusijos veiksmus?“ Žeraras Depardjė pateko į nemalonę (Video)
+-  „Teks aukoti teritorijas“. Ukrainai būtina nauja taktika
+-  Mirė vienos pasaulio šalies valdovas. Jau aiškus įpėdinis (Foto)
+-  [ŽT] Prisišnekėjo. Skelbiama patriarcho Kirilo paieška
+-  [ŽT] Rado greitą būdą, kaip pašalinti ledą nuo priekinio automobilio stiklo
+-  Detenidos por intentar robar en casa de empeño
+-  مراكش.. التزام جلالة الملك بالحفاظ على التراث الحضاري التاريخي “مدعاة فخر”
+-  Bamsoet : Waspada Varian Baru Covid-19 dan Peduli Potensi Bencana
+-  Porto. Utentes descontentes com rede de transportes Unir exigem melhorias
+-  Российская авиация сбила вертолет ВСУ в Запорожской области
+-  नागपुर के पास एसयूवी-ट्रक की टक्कर में 6 बारातियों की मौत
+-  Τζανακάκης: Ανακοινώθηκε από την Καλαμάτα
+-  عرض يظهر على الجلد علامة تكشف مرض خطير في القلب
+-  وزير النقل يوجه بالتطوير الفوري لمحطة قطارات كفر الشيخ
+-  ارتفاع أسعار الزيت والسكر والدقيق وانخفاض العدس بالأسواق اليوم (موقع رسمي)
+-  Čajevi imaju dosta štetna svojstva: Evo što vam se može dogoditi od omiljenog napitka
+-  سعر الذهب اليوم السبت في مصر بمنتصف التعاملات
+-  They're getting ready for a VERY Merry Christmas! Students hit the town to celebrate the end of term as they get into the festive spirit early
+-  हिमाचल में विकास भाजपा की देन, कांग्रेस ने झूठ की राजनीति की - जे.पी. नड्डा
+-  Förderung beim Erwerb von E-Autos läuft schon morgen aus
+-  '외계+인' 2부 류준열X김태리X김우빈X염정아X조우진X진선규, '전참시' 출격 [오늘밤TV]
+-  '월드클래스'→'유리글래스' 첼시 캡틴, 수술 가능성 대두..."다음주에 결정할 예정이다"
