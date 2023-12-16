@@ -1,11 +1,51 @@
 # Latest News
--  بيان من الديوان الملكي: خادم الحرمين وولي العهد يعزيان عائلة آل صباح في وفاة أمير الكويت
--  צ'יבוטה, אלטמן וסניור בהרכב הפועל תל אביב מול בני ריינה
--  Soccerladuma | Shongwe: Don't Tamper With Bvuma Who Bit The Bullet
--  VIDEO Jaka bura prevrnula kontejner na Pločama, blagdanske kugle se još uvijek dobro drže...
--  Santander y Torrelavega rompen su tendencia a la baja y ganan población
--  Wie das „Retterspiel“: Wie Wehen Wiesbaden den FC St. Pauli sanierte
--  Ali Palabıyık'tan itiraf gibi sözler! "TFF Başkanı, çoğu hakeme mobbing yaptı"
--  Marmaris'te devrilen kamyonun sürücüsü öldü
--  Kumluca'da sağanak hayatı etkiledi
--  Zamość: Tony żywności dla potrzebujących zebrano w ramach akcji „Tak! Pomagam”
+-  Zirve değişti: İşte ülke puanına en çok katkı sağlayan Türk takımı
+-  Recep Uçar'dan Fenerbahçe mesajı: En iyi şekilde hazırlanacağız
+-  ค้านประกันตัว "โค้ชฟุตบอล-พ.ต.วัยเกษียณ" ล่วงละเมิดเด็ก พบมีผู้เสียหาย 5 คน
+-  বিজয় দিবসের খিচুড়ি মাটিতে ফেললেন এমপি নিক্সনের সমর্থকরা
+-  ایران نے مبینہ ’موساد‘ ایجنٹ کو پھانسی دے دی
+-  کویت کے امیر شیخ نواف الاحمد الصباح انتقال کرگئے
+-  2 die of electrocution while hoisting national flag in Gazipur
+-  Aplicaciones seguras: todas las formas de rastrear la ubicación de un celular en tiempo real
+-  Parliament Security Breach: Sixth Accused Mahesh Kumawat Sent to Seven-Day Police Custody (Watch Video)
+-  A los 86 años, murió el emir de Kuwait
+-  לאחר הרג שלושת החטופים בשוגג וההפגנה בקפלן: משפחות החטופים בהצהרה על "החרפת הצעדים"
+-  זה קרה בחנוכה: ספרי הילדים לחנוכה שכולם צריכים להכיר
+-  בגיל 86: אמיר כווית א-סבאח הלך לעולמו
+-  התמונה שריגשה את המדינה: האבא יצא מהמילואים להפתיע את בנו בן ה-6 בתחרות הג'ודו
+-  באמצע משחק: מסוק שפינה פצועים לבי"ח שערי צדק נחת בבית וגן
+-  למרות המועמדות לפרס האמי: מים ביאליק הודחה מהנחיית התוכנית "ג'פרדי"
+-  צעקות "הצילו", הרמת בד לבן וירי בניגוד להוראות: תחקיר אירוע הריגת שלושת החטופים
+-  বিজয় দিবসে প্রধানমন্ত্রীর স্মারক ডাকটিকিট অবমুক্ত
+-  INEC moves Kogi election materials to Abuja
+-  Bolsonaro compara Lula com Fidel por menção a Dino ser 'comunista no STF'; evento teve vaias a Moro
+-  Nach Leichenfund: Ermittlungen gehen weiter
+-  "Que significa o teatro para nós...? Vida!"
+-  الشيخ يزبك: المستقبل هو للمقاومين الأحرار
+-  Sunak in Rome for Illegal Migration Talks
+-  My Demon Episode 8: How to Watch, Airdate, Preview, Spoilers, and More
+-  Tóth Vera még mindig gyászolja Fábián Julit: „6 éve Julika nélkül forog a föld...”
+-  বিজয় দিবসে মালদ্বীপে প্রবাসীদের ক্রিকেট টুর্নামেন্ট
+-  Juuso Välimäen loukkaantumisesta järkyttävää lisätietoa - NHL ja NHLPA avasivat jo tutkinnan
+-  Kuwait’s Ruling Emir, Sheikh Nawaf Al Ahmad Al Sabah, Dies at Age 86
+-  Langläuferin Carl im Skiathlon auf Rang sechs
+-  Çiğ Köfte Kilo Aldırır Mı? Çiğ Köfte Kilo Yapar Mı?
+-  Kosmiczny powrót Bartosza Kurka, set do 34 punktów. Polak zagra w finale
+-  Taxes on sugary drinks will help poor Nigerians — Coalition
+-  محافظ المصرف المركزي يلتقي بـ نورلاند ويتفقان على نهجا لإعمار درنة
+-  Israel-Qatar back on negotiating table for release of Hamas' hostages: Report
+-  為侯友宜、阮厚爵助講催票 王惠美批中央擋建設險爆粗口
+-  האסון בשג'אעיה: החטופים הניפו בד לבן וצעקו "הצילו", הלוחמים ירו בניגוד להוראות
+-  SMEs Funding Gap Of Rs 25 Trillion Can Be Solved Through IPOs, Says Expert
+-  How To Watch Bengaluru FC vs Jamshedpur FC Live Streaming Online? Get Live Streaming Details of ISL 2023–24 Football Match With Time in IST
+-  PlusLiga: Grupa Azoty ZAKSA Kędzierzyn-Koźle - Projekt Warszawa. Relacja i wynik na żywo
+-  ¿A qué hora juega América vs. Tigres? Horarios por final de vuelta de Liga MX
+-  Gladbach-Shootingstar Reitz: „Lebe gerade einen Traum“
+-  Na Brezovici metar snega, otežan saobraćaj (FOTO i VIDEO)
+-  Langläuferin Carl im Skiathlon auf Rang sechs
+-  “첼시는 승점 1점당 338억 쓴꼴”... EPL '빅6'의 승점 1점당 사용한 금액 공개
+-  शशि कपूर की हीरोइन, पाकिस्तानी क्रिकेटर से रहे जिसके अफेयर के चर्चे
+-  Kickoff | Why Mashego wants Stellies to beat Galaxy
+-  'Those Who Die Are Called Martyrs': In Rajasthan's 'Mini Kota' Suicide is a Joke
+-  Gladbach-Shootingstar Reitz: «Lebe gerade einen Traum»
+-  Ecco come potrebbe essere lo smartphone economico di Nothing
