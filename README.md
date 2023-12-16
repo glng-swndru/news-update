@@ -1,51 +1,51 @@
 # Latest News
--  Mostly cloudy over the weekend with a chance of rain
--  The most stressful time of the year?
--  Lidl gives love by supporting work of Cyprus Anti-Cancer Society
--  Police arrest woman at Larnaca airport, after finding 9kg of cannabis in her bags
--  Lancement 2e phase du cadre de dialogue à Boffa: “ce processus salvateur conduira à une réconciliation nationale inclusive et durable” (préfet)
--  PKO BP: branża drzewna mierzy się z dużym spadkiem rentowności
--  BIG InfoMonitor: kwota nieuregulowanych alimentów na koniec listopada to ok. 15 mld zł
--  의성교육지원청 ‘방학 중 교육활동 및 지역 연계형 진로 교육 활성화 연수’ 실시
--  경북ICT융합산업진흥협회, 베트남 현지 국제학교 RIS·VAIS ‘맞손’
--  문경시보호문화유산 송옥자 보유자, 제2회 공개행사 성료
--  의성남부초 병설유치원, ‘유·초 연계 이음학기 시범운영 유치원’ 컨설팅 연수 시행
--  제30대 영천시청년연합회 회장단 이·취임식…이원호 회장 취임
--  칠곡 2023 가야금병창 아카데미 수료식 가져
--  포항스틸아트페스티벌, 국제 수준 비엔날레 확대…연구용역 완료보고회 개최
--  포항 스틸아트공방, 13·14기 정규강좌 수강생 성과물 전시회
--  포항시립미술관 ‘제80회 미술관음악회 MUSEUM & MUSIC’ 개최
--  민주평화통일자문회의 문경시협의회, 2023년 4분기 정기회의 개최
--  Grande Fratello, sondaggi: chi sarà eliminato stasera 16 dicembre
--  Colorado Avalanche laittoi epäonnistuneen hyökkääjänsä kiertoon
--  SGK uzmanı açıkladı! Emekli ve asgari ücret zammı ne kadar olacak?
--  Football - National. Benoît Tavenot après DFCO - Sochaux : "Il nous a manqué de la justesse"
--  Dijon. Quand Jean-Pierre Foucault se fait klaxonner boulevard Chanoine-Kir !
--  Muthoot Microfin to Suraj Estate Developers: 7 IPOs to hit market next week
--  Caliway Closes Oversubscribed Capital Raise and Secures Over $100M to Advance CBL-514 Pivotal Phase 3 Study in Subcutaneous Fat Reduction
--  Udayanidhi: మంత్రి ఉదయనిధి సంచలన కామెంట్స్.. గవర్నర్‌, అమిత్‌షా అబ్బ సొత్తేమీ అడగడంలేదుగా..
--  Greek museum hands over reins to women artists
--  Bundesregierung wegen "islamistischer Einzeltäter" besorgt
--  IPL 2024: Who are the captains of all 10 Indian Premier League teams?
--  Test Asus Zenbook 14 Oled : le premier PC portable avec Meteor Lake
--  La critique de la série The Crown - Saison 6 a rejoint notre catalogue
--  Bon plan – La carte graphique Nvidia GeForce RTX 4080 "5 étoiles" à 1 199,99 €
--  Pour un bon four encastrable à prix abordable, privilégiez...
--  Super Hotte de Noël #16 : jouez et tentez de gagner un sextoy féminin, le Lelo Sona 2
--  Top 5 : Microsoft, Samsung, Delonghi... les meilleurs bons plans du 16/12/2023
--  Bon plan – La cafetière automatique avec broyeur Delonghi Maestosa EPAM960.75.GLM "5 étoiles" à 2 319,00...
--  Bon plan – Le smartphone Apple iPhone 15 Pro 256 Go "5 étoiles" à 1 297,00 €
--  Bon plan – La carte graphique Nvidia GeForce RTX 4070 Gainward "4 étoiles" à 623,44 €
--  Bon plan – La cafetière automatique avec broyeur Delonghi Perfecta Deluxe ESAM 460.80.MB "5 étoiles" à 8...
--  Apprentissage de l'anglais : à Sées, des élèves sont aidés par deux assistantes
--  نجل الشهيد سامر أبو دقة: فخور باستشهاد والدي وسأحاكم قتلته
--  Grupp: „Großkunden wie Kaufhof und Karstadt waren Versager“
--  La CENI lance à Goma la formation de plus de 3000 membres de bureaux de vote
--  Three novel inorganic clusters accelerate chemical reactions to create carbon–carbon bonds
--  Direct ink writing of high-resolution cellulose structures
--  Scientists create tunable shells to encapsulate tiny droplets
--  New strategy improves perovskites' oxygen reduction performance in hydrogen fuel cells
--  Breakthrough in organic semiconductor synthesis paves way for advanced electronic devices
--  संसद में सुरक्षा चूक की घटना पर खड़गे ने कहा:यह गंभीर मामला है,सदन में गृह मंत्री आकर बयान दें
--  台「古惑仔」遭熱熔膠燙生殖器兼檳榔塞肛 凌虐兇手竟係……
--  खालिस्तानी पन्नू मामले में गिरफ्तार निखिल को गोमांस खिलाया गया
+-  أمطار متفرقة وشبورة.. الأرصاد تكشف تفاصيل طقس الـ 6 أيام المقبلة
+-  قلة النشاط تعرضك لهذه المشكلة خلال النمو.. فما هي؟
+-  BM Genel Kurulu'ndaki Gazze kararında Ankara etkisi! Dikkat çeken 'pax Türkiye' mesajı
+-  Türkiye 2024'te madencilik sektöründe ihracatı artırmak istiyor
+-  Metro ve tramvaylardaki arızalar İstanbulluları bıktırdı
+-  ABD'li oyuncu Matthew Perry ölüm nedeni belli oldu
+-  Hasan Arat konuşuyor
+-  Eczacıbaşı Dynavit, FIVB Dünya Kulüpler Şampiyonası'nda finalde
+-  Şanlıurfa'da PKK ve FETÖ'ye darbe: 4 gözaltı
+-  تبدأ بعد صلاة الفجر.. أسواق مركزية لا تجدها إلا في مكة المكرمة
+-  Bilişim Vadisi Genel Müdürü Tüzgen: Yüksek gelirli ülkeler ligine çıkmak için yüksek teknoloji üretmeliyiz
+-  Timnas AMIN soal Baliho Dicopoti Pihak Lain: Kami Tak Pikirkan Lagi, Protes juga Tak Ada Tindak Lanjut
+-  Spanish police arrest 14 airport workers suspected of stealing from luggage
+-  Georgien: Zehntausende feiern EU-Kandidatenstatus
+-  政府 万博費用の全体像まとめる 国費最大1620億円に追加費用も
+-  Augsburg gegen BVB im TV und Livestream verfolgen
+-  EVO ČIJI JE DNK BEBE MARIJE ŠERIFOVIĆ! Pevačica otkrila šta piše u dokumentima njenog sina: Svaki njegov mali atom...
+-  Ukraine-Krieg aktuell: Der News-Ausblick am Samstag, 16.12.2023
+-  Cúpula da União Europeia termina sem conclusão sobre cessar-fogo em Gaza
+-  NEET Success Story: Farmer`s Son Defies Fate, Conquers NEET After Four Heartbreaking Attempts!
+-  Indian Navy Thwarts Hijacking Attempt, Rescues Somalia-Bound Vessel In Arabian Sea
+-  '활동 중단' 샤이니 온유, 근황 공개했다…"정말 행복하네요" [MD★스타]
+-  '열녀박씨' 이세영♥배인혁, 달달 한도 초과 '아이스크림 키스'…본격 연애는 지금부터
+-  "내 전성기는 아직 오지 않았다"…이정후의 최대 강점은 젊은 나이, 입단식부터 자신감 폭발
+-  '언해피' 아스널 떠날 기회...'비상' 첼시가 노린다→주전 GK 부상으로 영입 검토
+-  Möglicher Spielabbruch bei Paderborn gegen Rostock: Manager nach Pyro-Ärger ratlos
+-  Möglicher Spielabbruch bei Paderborn gegen Rostock: Manager nach Pyro-Ärger ratlos
+-  „Sie dachten, es sei ein Aprilscherz“: Outlet-Chef zahlt Mitarbeitern eine Million Euro – für ihre Loyalität
+-  Yle: Katedralskolan och Pargasgymnasier i täten i STT:s gymnasiejämförelse – också Ekenäs klarar sig bra
+-  الشحات يكشف سر احتفاله على طريقة رونالدو بهدفه أمام الاتحاد ويعتذر لأبو تريكة
+-  Hasil BWF World Tour Finals 2023: Fajar / Rian Gugur di Semifinal Usai Ditekuk Liang / Wang
+-  उप मुख्यमंत्री दीया कुमारी का दौसा में भव्य स्वागत, विकसित भारत संकल्प यात्रा के लिए अलवर पहुंची
+-  A mund të kthehet SPAK në vrasës të demokracisë?
+-  عاجل.. "السودة" الأقل في درجة الحرارة سجلت "3 درجات مئوية"
+-  Bureaucrat’s son mows down her girlfriend with car in Mumbai, describes her horrifying ordeal
+-  Labuschagne cops 'nasty' knock to the hand
+-  Labuschagne cops 'nasty' knock to the hand
+-  Ny generalsekretær i NOAS
+-  VIDEO Trebao je biti najveće pojačanje lige, a sad se opet ozlijedio: ‘Samo da ne potone‘
+-  NOVI ŠOK U NEMAČKOJ PRED PRAZNIKE! Radnicima automobilskog giganta stigle najgore moguće vesti VIŠE OD 600 RADNIKA LETI NA ULICU
+-  Millionenstreit um das Familienerbe: Münchner Anwalt erklärt, welches Problem immer wieder unterschätzt wird
+-  Мая Манолова за преместването на Паметника на Съветската армия: Действат като талибани
+-  So anstrengend findet Charlie Puth die Hochzeitsplanung!
+-  135 kvadratmeter stort kedjehus i Hallsberg sålt för 1 325 000 kronor
+-  135 kvadratmeter stort kedjehus i Hallsberg sålt för 1 325 000 kronor
+-  Boris Tomašič za Portal24 o grožnjah s smrtjo: Nisem Nika Kovač, da bi jokal za vsako malenkost, vendar je pri takih grožnjah potrebno potegniti črto
+-  Boris Tomašič za Portal24 o grožnjah s smrtjo: Nisem Nika Kovač, da bi jokal za vsako malenkost, vendar je pri takih grožnjah potrebno potegniti črto
+-  EDB raises its projection for Tajikistan's economic growth
+-  Lohr: Nach Unfall weitergefahren
+-  Macron je otvorený voči dialógu s Putinom, ak by to prispelo k trvalému mieru
