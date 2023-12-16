@@ -1,51 +1,11 @@
 # Latest News
--  بحجم مدينة لندن.. أستاذ جيولوجيا يكشف خطورة تحرك أكبر جبل جليدي فى العالم
--  لماذا تخلفت إثيوبيا عن سداد ديونها السيادية؟.. خبراء يُجيبون
--  شعبة الخضروات: أسعار البصل ستنخفض تدريجيًا الفترة المقبلة
--  بينما أعلنت أسماء الآخرَين.. لماذا أخفت إسرائيل هوية أحد أسراها الذين قتلتهم بالخطأ ؟
--  [EPL 포커스] '사람 인생 모른다' SON 동료 데이비스, 로테이션 자원 → 토트넘 수비의 희망으로 '환골탈태'
--  Netanyahu: U toku novi pregovori o puštanju talaca
--  عاجل.. الأحد 4 جمادى الآخرة.. مواقيت الصلاة في جميع مناطق المملكة
--  أبرز التوصيات والاتفاقيات في اختتام أعمال المؤتمر العالمي للاتصالات الراديوية
--  EVs hit range limit as hybrids spark demand
--  EVs hit range limit as hybrids spark demand
--  Choque de Civilizações no Cazaquistão
--  Valencia 1-1 Barça: Recap
--  بنشريفة: سوء تموضع بعض اللاعبين سبب خسارتنا
--  Filip Gustavsson makes 35 saves, Wild play to another shootout beating Canucks 2-1
--  Matan a un policía y 3 civiles en ataque en Zacatecas
--  Acuchillan a conductora de una plataforma digital
--  Convocan a alumnos a ser diputados por un día
--  Live Eredivisie | Reacties na belangrijke zege van FC Volendam
--  BetMGM Bonus Codes: Grab an exclusive $1.5K deposit match or $200 for Broncos-Lions, or any game
--  Stream It Or Skip It: ‘Finestkind’ On Paramount+, A Languidly-Paced Film About Fishing, Brothers, Fathers And Sons
--  Bebê é encontrado vivo em árvore após ser levado por tornado nos EUA
--  Kadıköy'de şiddetli rüzgar nedeniyle inşaat paneli devrildi
--  DNEVNI HOROSKOP ZA NEDELjU 17. DECEMBAR: Ovna očekuju rasprave, Škorpiji stiže novac preko privatnog posla, Vodoliju muči nesanica
--  Dunnes Stores fans set to love new ‘versatile’ mini dress with gorgeous detail after it hits racks
--  Bayern Monachium wycenił gwiazdę. Teraz czeka na oferty
--  Petistas, lideranças do governo e até ministro ajudaram a derrubar vetos de Lula nesta semana
--  IJshockeyers schrijven geschiedenis met monsterzege op OKT
--  Homem de 35 anos morto a tiro na Trafaria. Polícia Judiciária investiga
--  Sağlık Bakanı Fahrettin Koca: 2028'de tüm aşılar yüzde 100 Türkiye'de üretiliyor olacak
--  Şanlıurfa'da 140 ekip 450 personelle uygulama: 32 şüpheli yakalandı
--  Make-A-Wish surprises Bella Vista teen with trip to New York City
--  Tak zagrał Robert Lewandowski w zremisowanym meczu FC Barcelony [WIDEO]
--  Zuccarello matchvinner med straffescoring da Wild forlenget seiersrekken
--  قطر : 50 مليون دولار مساعدات لسكان غزة و100 منحة دراسية
--  Simone Biles Opens Up About Growing Up in Foster Care & Her Biological Mother's Struggle With Addiction
--  حزب الله ينعى 3 من مقاتليه وقصف إسرائيلي على جنوب لبنان
--  Ανετράπη πλεούμενο ανοικτά της Λιβύης – Τουλάχιστον 61 νεκροί
--  “To će imati katastrofalne posledice”
--  POŽAR ​​​​​​​NA MAŠINSKOM FAKULTETU U BEOGRADU: Gorela maketa aviona, povređenih nije bilo
--  Barcelona w szoku! Ogromny zawód. Lewandowski znów nie pomógł
--  Após denúncia de homens armados BM detém dupla e apreende 7 espingardas em Viamão
--  Lens bat Reims et grimpe à la cinquième place
--  Dumpade pojkvännen på grund av toavanan
--  لا بديل من البحر الأحمر.. الأردن ينفي وجود جسر بري يمر عبر دبي والسعودية
--  Carer granted bail on strict conditions after ‘ramming’ Garda car as two officers hospitalised
--  Valencia 1-1 Barcelona (MAÇ SONUCU-ÖZET) | Barça Valencia'ya takıldı!
--  Labour’s Stella Creasy moans she missed Xmas party because of ‘motherhood penalty’… but children are the ultimate gift
--  FC Barcelona znowu zawiodła!
--  Βαλένθια – Μπαρτσελόνα 1-1: Νέα «γκέλα» και κινδυνεύει να μείνει ξεκρέμαστη (vid)
--  שיפרו עמדות: מהפך של סינסינטי קירב אותה לפלייאוף
+-  أسيرة سابقة بغزة : حذرنا مجلس الحرب من استمرار القتال
+-  قوات الاحتلال تقتحم مدينة يطا
+-  Citypress | Carl Niehaus finally acknowledged that he and his party of three people have no future as a political party.
+-  Citypress | Editorial | Less talk, more action at needed at these COP shop talks
+-  Citypress | Editorial | The festive season has officially begun...Let’s enjoy it responsibly
+-  TULIP's Support for Japanese Digital Librarianization Cooperation
+-  Swap Out Mayo For Miracle Whip For A Simple Upgrade To Your Egg Salad
+-  Cubano Miguel Ángel López, mejor voleibolista del mundo en 2023
+-  تراند اليوم : بسبب العلم الإسرائيلي مدرس يهدد طالبة مسلمة في أمريكا بقطع رأسها
+-  تراند اليوم : بعد وفاة الشيخ نواف الأحمد الصباح.. تعرف على نص الدستور الكويتي وقانون توارث الإمارة
