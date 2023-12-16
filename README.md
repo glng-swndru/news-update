@@ -1,11 +1,11 @@
 # Latest News
--  Komička Simona Salátová sa VYDALA: Aha, aká krásna nevesta z nej bola!
--  Friends'in yıldızı Matthwe Perry'nin ölüm nedeni belli oldu
--  Scurto: “Un buon punto”
--  Torino-Empoli, i convocati: torna Radonjic
--  Elon Musk aboga por regular la "inevitable" Inteligencia Artificial
--  Brytyjski resort obrony: jeden z największych cyberataków na Ukrainę od początku wojny
--  Premier Finlandii: sytuacja na wschodniej granicy to atak hybrydowy ze strony Rosji
--  El Celta respira con un taconazo de Larsen y hunde aún más al Granada
--  "التموين" تعتمد آلية جديدة لإنهاء أزمة السكر - فيديو
--  وزيرة الثقافة تعلن تعليق الأنشطة الفنية ثلاثة أيام
+-  Berisha në Gjirokastër: Të nisim mosbindjen civile, nuk ka regjim që i reziston
+-  „Nusigyvenęs desantas“ šturmavo Krynkus. Kas iš to gavosi (Video)
+-  Amžina dvikova. Kava ar arbata? Mitybos specialistai atsakė, kuris gėrimas geresnis
+-  [ŽT] „Aivenho“, gražuoli, na pasistenk.“ Efektingas video iš Marjinkos. Taip dirba tikri meistrai
+-  Kendisine saldıran köpeğe taş attı arkadaşları tarafından katledildi
+-  "Манчестер Сити" нужен игрок "Баварии"
+-  Александр Хацкевич: "У меня сегодня другие приоритеты"
+-  В Саудовской Аравии вновь обсудили возможный приход Мбаппе
+-  Анчелотти о Суперлиге: "Может случиться что-то важное, что изменит историю нынешнего футбола"
+-  "Эспаньол" подал в суд из-за гола Гризманна
