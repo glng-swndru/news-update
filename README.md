@@ -1,11 +1,51 @@
 # Latest News
--  Expert tips to wash your winter woollens carefully in your washing machine
--  Zilu cancela festas de Natal e Ano Novo devido às polêmicas familiares
--  Love Fist: Banda de hard rock vai voltar em GTA 6?
--  Конституционната комисия прие формално регулаторите да се избират с квалифицирано мнозинство, ще продължи обсъжданията
--  Serie A: In campo Lecce-Frosinone 1-1 LA DIRETTA
--  БПФЛ стартира анкета за най-красив гол на 1/8-финалите за Купата на България
--  الحوثي يحول حرب غزة إلى موسم لابتزاز اليمنيين
--  BBC announces A Question of Sport ‘not in production’ after 50-year run amid funding challenges
--  تشكيلة شيفيلد يونايتد الرسمية لمواجهة تشيلسي
--  Onda de calor mantém previsão de temperaturas elevadas nas capitais
+-  Infectóloga alerta a la ciudadanía sobre otro repunte de dengue en Venezuela
+-  Mobil Samsat Keliling Pemprov Banten
+-  Москвада мигрантлар полиция билан тўқнашди, 82 киши ҳибсга олинди.
+-  Қайси омиллар нарх ошишига энг кўп даражада таъсир кўрсатиши мумкин? – МБ инфляцион кутилмаларни эълон қилди.
+-  Elon Musk advierte sobre la disminución de la población italiana en el evento Meloni
+-  HBO:n hittisarja lähenee loppuaan – päättyy ensi vuonna
+-  ‘12경기 0골’... 회이룬이 아직도 무득점인 이유→동료들이 패스를 안 한다
+-  Zij gaan financieel slim om met cadeaus, diner en outfit en geven hun beste budgettips
+-  Homeworld 3 is getting a skirmish mode for its release in March 2024
+-  قمة تسويقية جديدة للأسد صيباري
+-  TSV Westerholt verpflichtet Spielmacher vom SC Hassel II: Der ist aber vorerst noch gesperrt
+-  Weiberfastnacht in Marl: Die Sternburger lassen es im Pfarrheim krachen
+-  The 10 best anti-inflammatory foods to add to your diet
+-  VIDEO: On the sixth day of Christmas, we deliver a warm welcome to a new Saultite who experienced tragic loss
+-  Mzembi Says CCC MPs Must Remain In Parliament, Do You Agree?
+-  Wenn das Hörgerät teurer wird und die Kasse nicht zahlt: Dann guckt Sebastian Senft genau hin
+-  Le Havre - Nice, en directo | Ligue 1
+-  وظائف في شركة مملوكة لصندوق الاستثمارات.. التفاصيل ورابط التقديم
+-  قهوة من أشجار بعمر 200 عام.. تجمع غير مسبوق لتسويق منتجات مزارعي محايل عسير
+-  Ermedin Demirović postigao gol Dortmundu
+-  Big B Finds Granddaughter Aaradhya’s Stage Performance ‘Completely Natural’ [Watch]
+-  Alemania pone fin a la subvención por la compra de autos eléctricos
+-  US warns North Korea against nuclear attacks
+-  Vegan Donut Advocates A Paradigm Shift Towards Plant Based Food At COP28
+-  Wereldkampioen staat er meteen: Mathieu van der Poel ondanks val overtuigend naar eerste crosszege
+-  Министр обороны допустил возобновление обязательной военной службы в Германии
+-  Pipebrann på Osterøy
+-  Карасёв заявил, что в его взаимоотношениях с УЕФА ничего не поменялось
+-  Dónde está la fábrica de Dulces Miguelito que vende chamoy y chile en polvo barato en CDMX
+-  Preminuo poznati italijanski ideolog radikalne levice Toni Negri
+-  Postoje samo dva na svetu: Na prodaju Lamborghini Diablo SV Roadster FOTO
+-  Milli Eğitim Bakan Yardımcısı Yelkenci, TÜGVA İhtisas Akademisi'ne katıldı
+-  Kongo Demokratik Cumhuriyeti'nde seçim öncesi ateşkes kararı alındı
+-  HÜDA PAR'dan yerel seçim ittifakı açıklaması
+-  Diyarbakır Lice'de terör operasyonu: Kilolarca uyuşturucu ve mühimmat ele geçirildi
+-  Video: Ni la nieve le impidió a este pequeño divertirse
+-  Galatasaray Daikin sezonun 6. galibiyetini aldı
+-  Grbin: Plenković je kukavica, i to velika!
+-  بنيران صديقة.. تحقيق يكشف عن قتل 3 رهائن إسرائيليين على يد جيش الاحتلال
+-  बाजार से आने लगी है तिलकुट की सोंधी खुशबू, ठंड के दो महीने रहती है भारी मांग
+-  ¿Argentina va a creer en la magia monetaria?
+-  مزاحمتی نہیں اصلاحی تحریک – خاطرات: امیرجان حقانی
+-  Crash auf Autobahn im Norden – zwei Verletzte
+-  Zakończyła się rozmowa Dudy z Tuskiem. Kancelaria Prezydenta wydała komunikat
+-  Wie Masha Gessen ihren umstrittenen Holocaust-Vergleich begründet
+-  Pablo Muñoz regresa a la convocatoria y Cayarga se cae por lesión
+-  'The Sopranos': Tracing the cast of the drama series' post-show journey
+-  Grbin: “Plenković je velika kukavica, Sabor se treba raspustit”
+-  Захарова: Влезот на Украина во ЕУ ќе ѝ нанесе поголема штета на самата Унија
+-  Diez veteranos del teatro y la televisión colombiana fueron homenajeados en Bogotá
