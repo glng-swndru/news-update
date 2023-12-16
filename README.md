@@ -1,51 +1,51 @@
 # Latest News
--  Europarlament i kraje członkowskie porozumiały się ws. przepisów, które mają lepiej chronić dziennikarzy
--  Inchiesta sul libro su Grazia Deledda stampato con soldi pubblici
--  Israele, Ucraina e Iran in piazza. "Noi soffriamo, i filopalestinesi sfilano"
--  SON DAKİKA: Tarihte bir ilk! VakıfBank ve Eczacıbaşı, FIVB Dünya Kulüpler Şampiyonası'nda finalde karşılaşacak
--  El papa lamenta esta "Navidad del dolor" en Tierra Santa por la guerra
--  Married At First Sight legend left with a paralysed face after gruelling surgery as she reveals health update
--  إصابة 3 أشخاص في تبادل لإطلاق النار خارج ملهى ليلي في أثينا
--  Des Sénateurs Colombiens soulignent la prospérité au Sahara Marocain et fustigent la position adoptée par leur Gouvernement
--  אחרי האסון ברצועה, משפחות החטופים קוראות: "הצבא לבד לא יכול לעבוד, צריך מהלך מדיני"
--  ”Nasıl Yani?” Diyeceksiniz: Yüzün Tek Tarafını Tıraş Edip, Tek Tarafına Makyaj Yapmaya Sebep Olan İhmal Sendromu
--  Erzurum'daki Gizemli Yolun Sırrı: Arabaların Kendi Kendine Yokuş Çıkarak İlerlemesinin Sebebi Ne Olabilir?
--  জাতীয় স্মৃতিসৌধে লাখো মানুষের ঢল
--  Slukas MVP 14.kola
--  Barda ters bakma kavgası kanlı bitti
--  Norvežnka ugnala skoraj nepremagljivo rojakinjo, Verbičeva 21.
--  Musah out col Monza. Chance per Bennacer da titolare
--  বঙ্গবন্ধুর স্বপ্নের সোনার বাংলা প্রতিষ্ঠায় আন্তরিকভাবে কাজ করতে হবে
--  林世雄不同意《主要運輸基建發展藍圖》「重北輕南」 不擔心財赤影響進度
--  Elvira Öberg avslöjar knepet – så ska hon ta guld
--  Emigrantët/ Rama në Romë: Marrëveshja me Italinë nuk është antikushtetuese
--  Pantas Tak Dijadikan Pacar, Haji Faisal Bongkar Beda Perlakuan Fuji ke Asnawi dan Thariq Halilintar
--  Codacons, 'Natale quest'anno costerà 22 miliardi a famiglie'
--  El trucazo para limpiar el teclado de tu notebook o portátil
--  Izraelskí a katarskí predstavitelia sa stretnú pre dohodu o rukojemníkoch, ktorých drží Hamas
--  歡樂滿東華2023丨汪明荃「明荃之友會」捐銀紙聚寶箱 盼打破往年籌20萬紀錄
--  MM-sarjas tehti suur muudatus, fännid on pahased: WRC-le meeldib endale jalga tulistada
--  Ungaria amenință Bulgaria că-i va bloca aderarea la Schengen dacă nu scoate taxa pe gazul rusesc: „Ne vom opune prin veto”
--  روسيا تستهدف أوكرانيا بما في ذلك كييف بـ31 مسيرة
--  Union Home Minister and Minister of Cooperation, Shri Amit Shah expressed gratitude to Prime Minister Shri Narendra Modi for Cabinet’s decision to designate Surat Airport as an International Airport
--  ¿La luna de miel aguanta el ajuste? Milei pone en juego su capital político y hay dudas por la paciencia de la clase media
--  Kuveyt'in yeni emiri Şeyh Meşal el-Ahmed el-Cabir es-Sabah oldu
--  Traficante é preso e boca de fumo em residência abandonada é fechada pela quarta vez em Cuiabá
--  Ivo Amulić o kćeri koju je dobio u 58. godini: 'Svakom bih u mojim godinama to preporučio'
--  Cyclisme : Il annonce du lourd pour Julian Alaphilippe
--  Arabii nu renunță la marele vis de a-l transfera pe Kylian Mbappe
--  Cum a fost posibil ca Armata Israelului să ucidă trei ostatici israelieni. Primele concluzii ale anchetei
--  Offre saisissante sur cette tablette tactile à petit prix, mais aux grandes performances
--  Skutskärs segerrad fortsätter efter 6–5 mot Gagnef
--  House Republicans could face one seat majority in 2024
--  Schwarz-roter Koalitionsvertrag in Hessen ist beschlossen
--  Förderung für E-Autos endet Sonntag um Mitternacht
--  Protocolo antipiquetes | Bullrich advirtió a los que marchan el 20 de diciembre: “Que se queden en su casa o vayan a trabajar”
--  قوات الاحتلال تقتحم شرق مدينة نابلس
--  القسام تعلن حرق آلية عسكرية صهيونية
--  بريطانيا : سفينة تابعة لبحريتنا أسقطت مسيرة في البحر الأحمر
--  مروحية تقل جنودا مصابين تهبط بملعب في القدس
--  India News | Youth Cong Activists Take out March to House of CM's Security Staff Alleging Assault on Protesters
--  Szombati bajnoki körkép: Kikapott a listavezető Paks
--  Suomalaiset naismäkihyppääjät menestyivät mainiosti Engelbergissä
--  卓球 女子の国際大会 伊藤美誠 シングルス準々決勝で敗れる
+-  Tragedia iski Kanadassa - uhrina 11-vuotias jääkiekkoilijapoika
+-  Genetic Link To Air Pollution, 3 Reasons That Can Cause Lung Cancer
+-  Rama: Për ne është privilegj të konsiderohemi si miku special i Italisë
+-  Samsunspor’da Konyaspor maçı hazırlıkları sürüyor
+-  Bogdanović među najvećim kandidatima za trade, poznata je i cijena, ali i momčadi kojima bi najbolje došao
+-  Corendon Alanyaspor Teknik Direktörü Fatih Tekke: Bulunduğumuz yerden kurtulmak istiyoruz
+-  بالصور - مؤتمر التيار الوطني الحر عن "منتدى البلديات حول النزوح السوري" بمشاركة الرئيس عون والوزير باسيل (بعدسة الزميل جورج فغالي)
+-  I tre ostaggi uccisi per sbaglio dall’esercito israeliano sventolavano una bandiera bianca, ha detto l’esercito stesso
+-  How Ryan Reynolds' Social Media Posts Helped This Motorcycle Company Achieve Next Level Popularity
+-  Additional News in Brief Mallorca
+-  Reallığa uyğun gəlməyən statistika: Nağdsız ödənişə qayıdırıq?
+-  Nazionale, Spalletti: "Europei, nessuno dei nostri avversari sarà felice di incontrarci"
+-  5 Realita Hidup yang Diungkap Drama Bad Boys vs Crazy Girls 2
+-  Rama në kongresin e partisë së Melonit: Jam i sigurt për marrëveshjen e emigrantëve, nuk është antikushtetuese
+-  BM: Devam eden saldırılarla Gazze'ye yardım ulaştırılamıyor
+-  Filede dev final! İki Türk takımı karşı karşıya geliyor
+-  Komşuda vatandaşlar 10 yıl sonra sandık başına gitti
+-  İşte Galatasaray'ın Avrupa karnesi! Cimbom 13 kez gruptan çıkamadı
+-  Diyanet İşleri Başkanı Erbaş: Biz, bu davayı toplumlara, insanlara ulaştıracağız
+-  Öbergs tuffa dag – sköt bort pallchans
+-  Los conductores de Monbus amenazan con el plante por el carril bus-VAO de Gran Vía
+-  Putin će biti nezavisni kandidat na narednim predsjedničkim...
+-  Lorin nag-aapoy ang kaseksihan
+-  Джорджина и Кристиано са по-щастливи отвсякога
+-  Produksi Turun, Stok Gula Jelang Nataru Diklaim Masih Aman
+-  Kroatië lokt digitale nomaden om leegloop te bestrijden
+-  Man omkom när grävmaskin gick genom isen
+-  Τελειώνει από τη Ρεάλ ο Μόντριτς!
+-  Случайно убитите от израелската армия заложници, са развявали бяло знаме
+-  Karamollaoğlu CHP'nin Meclis'teki desteği için teşekkür etti
+-  Deutschlands Weltmeister: Diskussion um unsere U17-Helden entbrannt
+-  Kolstad-kamp utsatt etter flykaos: - Langt fra optimalt
+-  "Випускали фактично з фури": у Повітряних силах вказали на особливість запуску "шахедів"
+-  Babak Pertama; Persija Vs PSS Imbang dengan Skor Kacamata
+-  Školska knjiga prva u Hrvatskoj uvela umjetnu inteligenciju u obrazovni sustav
+-  Szijjártó Péter egy francia tévécsatornán is kijelentette: Mi saját magunkkal törődünk, Magyarország az első! - videó
+-  Suben a 30 las víctimas del trágico accidente en la Gran Mariscal de Ayacucho
+-  LIVE TJ - SAMPDORIA-JUVENTUS WOMEN 0-0 - Beerensteyn ad un passo dal vantaggio
+-  Trainer kritisiert DSV-Stars: Unter quälenden Schmerzen rast Sander ins Glück
+-  Zeinab, Bobby Ray hirap sa LDR
+-  Big boost for The Potteries Centre as cafe opens this weekend
+-  Jeweller who started business aged just 10 opens luxury shop in Stoke-on-Trent
+-  Birches Head bin men attackers back in court and still waiting to learn fate
+-  13 suspects still under arrest two years after 'petrol bombing' rocked Bentilee
+-  Disgraced ex-cop locked up - three years after dodging jail for child-sex crimes
+-  Bah humbug! Council axes free Saturday parking in run-up to Christmas
+-  Royal Mail issues statement amid claims parcels prioritised over Christmas cards
+-  DWP gives extra payment to claimants with this five-letter code
+-  Neighbours say holiday-let house was used as brothel and party venue
+-  The magical topsy-turvy Tudor hall that's like stepping into a Charles Dickens' novel
