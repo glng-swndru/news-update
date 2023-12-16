@@ -1,51 +1,51 @@
 # Latest News
--  Paaiškėjo nauji faktai apie paslaptingąjį šamanės ir kūdikio kapą (Foto)
--  [ŽT] Labai netikėta. Skabejeva parodė „tikrą“ Kremliaus veidą. Kas įvyko Rusijos TV (Video)
--  „Turime 5-8 metus.“ Vokietijos gynybos ministras siunčia stiprų įspėjimą
--  Kiek civilių liko Avdijivkoje: ne visi nori išvykti
--  Fannst rauða spjaldið á Jimenez skrítið - „Reynsluleysi dómarans augljóst“
--  LIVE Torino-Empoli: formazioni e prepartita in diretta
--  Punya Kesibukan Berbeda, Parto Tak Yakin Patrio Bakal Sepanggung Lagi
--  5th convocation of Sharnbasva University on December 18
--  Kemény döntések várnak majd ránk a War Hospitalban
--  Ex-Ally Pally finalist fears getting 'a*** kicked' by Gary Anderson after first-round scare
--  Sri Parthsarathy Swami Sabha’s 123rd ‘Isai Vizha’ gets under way in Chennai
--  وفد من وزارة الخارجية يزور المستشفى الميداني الإماراتي في غزة
--  Pasaporte electrónico: ¿cómo va el avance para la implementación de vigencia de 10 años?
--  Ekstraklasa: Składy na Radomiak Radom - Lech Poznań [OFICJALNIE]
--  This "smoking gun" killed the McDonald's ice cream hackers' startup
--  This "smoking gun" killed the McDonald's ice cream hackers' startup
--  Empleadas de maquilas exigen gozar del derecho a la salud
--  Film&Arts presenta 'Hollywood en Viena', un tributo a Alan Menken, histórico compositor de Disney
--  Willem II-trainer Peter Maes is content: ‘Een fantastisch resultaat in de heenronde’
--  Celebraron en Aquiles Serdán a más de 9 mil personas en posadas
--  Paulina Vodanovic fue testigo de violenta balacera en Portal Ñuñoa: “Mi marido me dijo son balazos, tírate al suelo”
--  Chelsea bate o lanterna e volta a vencer pela Premier League
--  Espanola resident killed in ATV crash on Manitoulin Island
--  Premier League: Manchester City Held To Thrilling 2-2 Draw At Crystal Palace
--  Čínská servírka se vydává za humanoidního robota
--  Luton Town Skipper Tom Lockyer Collapses On Field During Premier League Clash vs Bournemouth
--  Giovanna Lancellotti curte sábado em piscina com pets
--  Knicks made sure to secure Jalen Brunson’s milestone ball after Bucks-Pacers chaos
--  Secretariat Burning: We’re Taking Legal Actions Against Perpetrators – Kano Govt
--  দক্ষিণ-পশ্চিমাঞ্চলে বিদ্যুৎ ও শিল্পায়নের সম্ভাবনা
--  «Maskorama»: I kveld kåres vinneren
--  Kunjungi Ponpes Tempat Gus Dur Menyantri, Mahfud Beber Peran Pesantren bagi Demokrasi
--  ŠTA VODITELJKA RTS-A RADI KAD NE ČITA NAJVAŽNIJE VESTI? Vesna nam vodi glavnu emisiju, a kad završi sa poslom jedva čeka OVO
--  Onemanshow Van der Poel in Herentals: ‘Alles wat nodig is in de cross, doet Mathieu beter dan de rest’
--  Policial civil é baleado enquanto fazia caminhada e passa por cirurgia em Mato Grosso
--  Entediado em casa? 5 coisas para fazer durante as férias para matar o tédio
--  Espeluznante susto en la Premier: Lockyer se desploma en pleno partido
--  Fluminense avalia contratação de Marcelo Lomba, do Palmeiras
--  亨利拆局│練馬師王吼伍鵬志
--  Karin wordt ontslagen: ‘Je kunt ook gewoon zeggen dat het financieel wat minder gaat’
--  O que é um prompt de comando?
--  Ainda dá tempo! 7 truques para secar a barriga antes do verão
--  Nico Willians não pediu licença e 'arrombou' cofre do Atlético com golaço
--  Terra e Paixão: novela contará com união improvável para prisão de Antônio
--  AAA: Don't pump your brakes if you have this type of vehicle
--  '홀란드 그리울거야' 맨시티, 팰리스에 극장골 헌납하며 무승부...갈 길이 바쁜데 선두권 추격 제동
--  App Mensagens: Sabe quantas mensagens tem no seu iPhone? O iOS 17.2 diz-lhe
--  Potilaalla oli ase magneettikuvauksessa – laukesi laitteen sisällä
--  Von israelischen Soldaten getötete Gaza-Geiseln zeigten weisse Flagge
--  Steam kullanıcıları buraya! Yılın oyunu seçiliyor
+-  Bigg Boss 17 WKV: Khanzaadi gets eliminated; Bharti and Haarsh add humour
+-  Cardinal is convicted of embezzlement in big Vatican financial trial, sentenced to 5½ years
+-  Both night trains of Arriva to continue driving next year
+-  నేటి నుంచి ధనుర్మాస మహోత్సవాలు
+-  మరో ప్రమాదంలో యువకుడికి గాయాలు
+-  Lannion. Deux nouvelles nuits de restrictions à l'accueil des Urgences de l'hôpital
+-  Americká kuchyňa očami Slováka: Už na raňajky tvoj žalúdok bombardujú tisíce kalórií
+-  Obludné rozmery streľby v pražskom lesíku: Obeťou má byť len dvojmesačné bábätko! Miestni žijú v strachu
+-  సమస్యలపై ‘ఉపాధి’ ఫీల్డ్‌ అసిస్టెంట్ల ఆందోళన
+-  కేంద్ర పథకాలను పేదలకు అందించడమే లక్ష్యం
+-  Susan Lucci honors her late husband as she accepts Lifetime Achievement Award at the Daytime Emmys: 'He has everything to do with me standing up here tonight'
+-  రోడ్డు ప్రమాదంలో సర్పంచ్‌కు తీవ్ర గాయాలు
+-  Jessica Chastain Says Taylor Swift Made Her A Breakup Playlist: ‘The Sweetest Thing’
+-  Asgari ücrette gözler ikinci toplantıda! Pazarlıklar sürecek
+-  ఎమ్మెల్సీ షేక్‌ సాబ్జీ మృతికి సంతాపం
+-  గ్రామాల్లో పంచాయతీ ఎన్నికల సందడి
+-  Ruotsi kiri kotikaukalossaan voittoon Naisleijonista
+-  Ruotsi kiri kotikaukalossaan voittoon Naisleijonista
+-  ఖాకీలపై కన్నేదీ?
+-  Saudi Pro League will make ANOTHER move for Mohamed Salah in the summer and make the Liverpool star their top target... despite Al-Ittihad having £200million offer rejected in the summer
+-  البنتاغون: مدمرة أمريكية تشتبك مع 14 مسيّرة فوق البحر الأحمر
+-  إحباط تهريب كمية كبيرة من المخدرات في جازان
+-  عاجل.. تعليق الخصومات.. توضيح مهم من صندوق التنمية العقارية
+-  Israelischer Soldat durch „feindliches Fluggerät“ getötet
+-  Ciudadano indio visitó el huaco erótico en Trujillo: “Esto representa la fertilidad”
+-  AC Milan Boss Admits Focusing On Summer Signings
+-  Suspendido el Bournemouth-Luton de la Premier por el desvanecimiento del visitante Lockyer
+-  Man City 2-2 Crystal Palace: Michael Olise scores injury time penalty as Eagles stage stunning fightback to dent Pep Guardiola's side in the title race
+-  В Москве после потасовки на рынке «Садовод» задержали 80 человек
+-  الصحة الفلسطينية تدعو إلى تحقيق دولي في معلومات عن دفن جيش العدو مواطنين أحياء شمال غزة
+-  فيديو يُنشر لأول.. شاهدوا طائرة "حزب الله" المفخخة!
+-  Three minors arrested for school arson in Nicosia
+-  Tragedija na staroj zagorskoj: U teškoj nesreći nedaleko West Gatea poginuo je jedan čovjek
+-  Doritos-flavored liquor goes on sale today — and the boozy bottle is likely to sell out
+-  Njega više nema, a supruga srpske legende objavila fotografiju koja je ‘slomila‘ srca njegovih obožavatelja
+-  Strictly Come Dancing 2023 final LIVE: Layton Williams, Bobby Brazier and Ellie Leach battle it out to be crowned champions and win the glitterball trophy
+-  'All over the place' - Sky pundit unleashes live on air in Everton v Burnley
+-  Which Durban beaches are still closed?
+-  Bouchons importants à Paris : plus de 200 kilomètres d'embouteillages, les endroits où ça coince
+-  Ruotsin hiihtotähti laturaivosi: ”Paskiainen”
+-  సమావేశాల్లో వారిదే హవా!
+-  Famílias sem teto vão receber moradias do Minha Casa, Minha Vida em SP
+-  Petrobras assina aditivo de compra de gás de estatal da Bolívia
+-  O tânără cu cetățenie română, luată ostatică de la festivalul din Israel la care Hamas a ucis sute de oameni, a murit în captivitate
+-  ఇప్పుడెట్లా..?!
+-  Review: ‘Holiday in the Vineyards,’ starring Josh Swickard, is a new rom-com on Netflix
+-  مانشستر سيتي بصدد دفع ضريبة انجاز الثلاثية
+-  Seething Brendan Rodgers says he WASN’T surprised by Celtic slump v Hearts as he savages stars and admits major concerns
+-  LBA 12° Round: UNAHOTELS Reggio Emilia-Germani Brescia
+-  Reportāža no Bulgārijas: Padomju pieminekļa nojaukšana Sofijas centrā raisa protestus
