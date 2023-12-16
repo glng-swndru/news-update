@@ -1,51 +1,11 @@
 # Latest News
--  جابر الوهباني يعزي وكيل محافظة تعز حميد علي عبده
--  مجلس الحرب يجتمع لبحث التوصل لصفقة تبادل
--  Proyectan alza de 6% en sueldos para corporaciones de seguridad
--  Llega venta decembrina al Centro de Convenciones
--  Inauguran Tren Maya; incumplen promesas
--  Murió Matthew Perry a causa de los efectos de la Ketamina
--  İşte Abdullah Avcı'nın Batista Mendy planı
--  Avrupa Birliği'nden İsrail'in gazetecileri darbetmesine tepki
--  İsrail askerleri, işgal altındaki Batı Şeria'da bir genci daha katletti
--  EuroLeague'de haftanın MVP'si Kostas Sloukas
--  Yunanistan'dan Türkiye açıklaması
--  इस साल सबसे ज्यादा लोगों को पसंद आईं मारुति और हुंडई की ये कारें, जानें क्या है खास
--  ٹی ٹی پی کے مسئلے پر افغان طالبان سے مزاکرات کی ذمہ داری مولانا فضل الرحمان کو دی گئی ہے؟
--  Saturday Citations: Dogs (woolly) and cats (athletic). Plus: Amino acid precursors on Enceladus, beer goggles on Earth
--  Flying to these US cities will be a lot cheaper in 2024
--  Viral Video: पाकिस्तान के अहमदपुर सियाल में सीता-राम मंदिर को बनाया गया चिकन शॉप, हिंदू समुदाय में फूटा गुस्सा
--  اردوی اوکراین: سی طیاره بی سرنشین روسیه سرنگون شدند
--  Kahvaltıyı peynirsiz yapamayanlara kötü haber! Artık sadece zenginler yiyecek, peynir fiyatları resmen uçuşa geçti
--  “Açıq mikrofon” aksiyası davam edir
--  Dışı çıtır çıtır içi yumuşacık tahinli falafel tarifi! Masterchef bile böyle tarif görmedi: Et köftesini solda bırakacak
--  Póngase como meta 2024: Hágase sus controles de salud
--  Israeli military says hostages soldiers killed were holding white flag: Reports
--  Tålmodige Axelsen knuser Antonsen og er finaleklar
--  İYİ Parti’de bu kez ilçe başkanları… 12 bin 750 üye istifa etti
--  Zubiri: Mga Pinoy pulsuhan sa Cha-cha
--  Lacrosse wird olympisch: Pocket, Stick – und Respekt
--  Una exposición de Dellafuente, Lola Índigo y La Plazuela desata la locura en Granada
--  Homem é preso em Garibaldi por posse de grande quantia em dinheiro sem origem comprovada
--  Pais de Larissa Manoela procuram mãe de santo para separá-la do noivo
--  Künstlicher Regen soll Pakistan bei Luftverschmutzung helfen
--  Рашфорд е с вирус
--  Ponsiluoma fyra – trippelt norskt på pallen
--  Where to find Krampus in Fortnite
--  El Salvador cierra un nuevo día con cero homicidios
--  پاکستانی انٹرنیشنل ایئرپورٹس پر ای گیٹس منصوبہ 3 سال سے تعطل کا شکار
--  Нов инцидент во Турција: Одбојкарки однесени во болница по нападот на навивачите
--  Sport, Salis: "Oscar di Asi unisce varie anime sportive, è un onore ospitarli"
--  Díaz hace un llamamiento a BNG y PSdeG "para trabajar conjuntamente y ganar la Xunta"
--  Citypress | Reconciliation is not about forgetting wounds of the past but facing them courageously - Ramaphosa
--  Yuvagalam :అనకాపల్లిలోకి ప్రవేశించిన యువగళం పాదయాత్ర
--  Trailer truck carrying concrete slabs tips over and lands on its side after accident in Sheares Avenue
--  Özdil herkesin yapabileceği 3 mesleği açıkladı. Olan oldu zaten Hemen başvurabilirsiniz
--  Suomen miehet sukelsivat hiihdon maailmancupissa yhtä surkeille sijoille kuin naisetkin
--  Suomalainen teinitähti loisti taas maailmancupissa
--  Toyota-pomo on saanut tarpeekseen turhasta parranpärinästä: ”Se on Kallen asia”
--  Dev gemiler Süveyş Kanalı'ndan vazgeçti
--  ইউনিয়ন পরিষদে উত্তোলন হয়নি জাতীয় পতাকা
--  健康網》常手麻不一定是中風！ 中醫：當心是「胸廓出口症候群」
--  Na ovaj način možete skinuti masne mrlje sa zidova: Postoji nekoliko trikova
--  Kubacki najlepiej z Polaków w serii próbnej
+-  Bombardeos israelíes contra Gaza causan más muertos y heridos
+-  최예나 "전참시' MC 중 원픽? 유병재, 진심으로 팬…댓글도 남겨"
+-  Hem Fenerbahçe hem Beşiktaş'ta forma giymişti... Süper Lig'e ağlayarak veda etmişti Josef de Souza geri dönüyor!
+-  Juegos en línea son nuevo terreno de caza para cárteles de droga
+-  Dança: “O Sonho de uma noite de Natal” no cineteatro Alba
+-  تنويه هـام من مصرف الامان بشأن تحويل الاموال دون عمولات
+-  Protest roditelja ispred 'Ribnikara', traže pravdu za ubijenu djecu
+-  Trojica rukojemníkov zabitá izraelskými vojakmi mávala bielou vlajkou. Vojak si myslel, že je to pasca
+-  Svjetski prvak otkrio bizarnu situaciju: ‘Kroos mi je poslao poruku na WC-u. Počeo sam vrištati‘
+-  Britanski razarač oborio napadački dron u Crvenom moru
