@@ -1,51 +1,51 @@
 # Latest News
+-  주말 중·서부 대설특보…정부 위기경보 수준 강화
+-  대전시의회, '2023년 행정사무감사' 우수부서 표창패 수여
+-  지엠에스티, 신규 프랜차이즈 컨설팅 서비스 개시
+-  لبنان يمدّد لقائد الجيش تفاديا لشغور في المؤسسة العسكرية
+-  Parliament security breach:आप इस तरह संसद भवन में क्यों घुसे? मास्टरमाइंड ललित झा ने सबकुछ कबूल कर लिया
+-  IDF ‘mistakenly’ kills three Israeli hostages in Gaza
+-  गुजरात मौसम: ठंड बढ़ेगी या घटेगी? मौसम विभाग ने अगले 5 दिनों की भविष्यवाणी की
+-  IND-W vs ENG-W Test Day 3 Live Streaming: इंग्लैंड के खिलाफ टेस्ट मैच पर पकड़ मजबूत करने उतरेगी भारतीय महिलाएं, यहां जानें कब- कहां और कैसे देखें लाइव एक्शन
+-  Assemblyman Vince Fong not allowed to run for Kevin McCarthy's seat, CA Sec. of State rules
+-  Πότε θα πληρωθεί η πρώτη δόση του επιδόματος θέρμανσης
+-  Περιοδικό Science: Τα φάρμακα για το αδυνάτισμα επίτευγμα της χρονιάς για το 2023
+-  '태계일주3' 덱스, 아프리카서도 통한 마성의 매력 "셀럽 됐다!"
+-  Χαρδούβελης: Υψηλού πληθωρισμού και επιτοκίων η επόμενη 10ετία
+-  Les Spurs dominent les Lakers et mettent fin à leur série de défaites ! (129-115)
+-  Gronowski, South Dakota State return to FCS title game after 59-0 rout of Albany in semifinals
+-  강릉 등 강원 9곳 강풍주의보… 태백 등 4곳 한파경보 유지
+-  ‘เอี่ยม’ ตอก ‘พิธา’ หิวแสงค้านทุกเรื่อง
+-  Pensionär krävs på 73 000 före nyår efter miss
+-  Pensionär krävs på 73 000 före nyår efter miss
+-  Pensionär krävs på 73 000 före nyår efter miss
+-  Tulare County children learn about animals while boosting reading skills
+-  Sempat Diungkap Eks Kepala Bea Cukai Yogya, Begini Modus Penyelundupan Gula di Riau yang Rugikan Negara Triliunan
+-  Charlotte Flair Out Nine Months Due to Injury
+-  Love Affair: गर्लफ्रेंड संग फ्लैट में रंगरेलिया मना रहे थे पूर्व ब्लॉक प्रमुख, पत्नी ने रंगेहाथाें पकड़ा तो कुछ ऐसा, धरने पर बैठी महिला
+-  Heru Budi Sebut Pembangunan MRT Fase 2A Berjalan Sesuai Rencana, Target Rampung 2027
+-  أرقام مرعبة يسجلها نادي الهلال هذا الموسم
+-  Gold And Silver Prices Experience Marginal Changes In Weekend Trading
+-  UN Security Council Extends Sanctions On Taliban For One Year, Expresses Concern Over Afghanistan
+-  Indian Bureaucracy Most Impactful In Realising People's Aspirations: Vice President Dhankar
+-  Janhvi Kapoor is a vision to behold in black saree and statement blouse. Check out photos inside
+-  India News | JU Teachers' Body Urges State Govt to Facilitate Holding of Annunal Convocation
+-  Shipping firms suspend Red Sea traffic after Yemen rebel strikes
+-  Guayaquil: En 7 años prevén recaudar unos $ 140 millones con ordenanza
+-  Cartas de lectores: Rectificación sobre “Dónde va el dinero del narco”
+-  Cartas de lectores: Efectos de la codicia extrema
+-  Cartas de lectores: Lemas de la Conaie
+-  Cartas de lectores: Los superpoderes de EMCO-EP
+-  ماذا قدم البريك في مباراة الهلال والوحدة؟
+-  Emma Ramos talks about the film ‘In The Summers,’ and the digital age
+-  Petrol-Diesel Price Today: यहां जानिए आज पेट्रोल-डीजल की कीमतें बदली हैं या नहीं
 -  NLC condemns World Bank advice to Nigeria to increase petrol price to N750 per litre
+-  Мэр Лондона отказался помогать Киеву
+-  Zaniepokojenie w Macedonii Północnej. "Atmosfera beznadziejności"
+-  Brasil, Argentina y México se lucen en Festival del Nuevo Cine Latinoamericano
+-  Pokemon Go December 2023 Community Day Special Research tasks & rewards
+-  Info Pangan Jelang Nataru: Harga Beras Rata-rata Naik, Stok Bulog Aman
 -  맨유가 탈락시킨 '스웨덴 천재 MF' 결국 스페인으로? "첫 번째 오퍼 완료·선수도 이적 원해"
+-  В Оренбургской области в результате ДТП погиб человек
 -  PM Modi To Inaugurate Surat Diamond Bourse - World`s Largest Corporate Office Hub
--  Conmoción en Telefe por lo que Cristina Pérez dijo sobre su futuro en el canal: «Injusticia»
--  Ingat! Cek Cairan Rem Sebelum Berlibur Pakai Kendaraan Pribadi
--  Morning Headlines: நிலுவையில் உள்ள 5 கோடி வழக்குகள்.. INDIA கூட்டணியின் 4-வது கூட்டம்.. இன்றைய முக்கியச் செய்திகள்
--  'This is a war that starves you': For Gaza, hunger is a new enemy
--  'One of the best jobs in the world'
--  Winter Health Tips: શિયાળામાં આ 5 ફળોનું કરો સેવન, બીમારી આસપાસ પણ નહીં ફરકે
--  Catorce guatemaltecos interponen amparo en la CC contra el Congreso por haber quitado la inmunidad a magistrado del TSE
--  เปิดผับ ตี4 วันแรกคึกคัก อนุทินลุยตรวจสถานบันเทิง
--  Matthew Perry Was 'Reportedly Clean for 19 Months' Before His Death
--  "الآثار": الفرص الاستثمارية بعدد من المناطق السياحية تكفل للمستثمرين النجاح
--  Comenzaron las nominaciones en la séptima ronda del Bailando
--  Adam Edström gjorde mål i NHL-debuten
--  Sosok Jessica Rinrada, Transgender yang Ingin Kembali Jadi Pria usai Umrah
--  Tržnica BTC ima vse, kar ima osrednja mestna tržnica
--  Jalna Crime News : खोतकर समर्थक गजानन तौर हत्याकांडाला आता नवीन वळण, सुपारी देऊन हत्या केल्याच्या संशय
--  Applesauce pouch contamination may have been deliberate: FDA official
--  Equipo femenino de Dota 2 avanza a la final de los Global Esports Games
--  KB증권 박정림 대표 "징계처분 정지 요청…회복할 수 없는 손해"
--  Revelan la causa de la muerte del actor Matthew Perry
--  Novak Djokovic dan Aryna Sabalenka Dinobatkan sebagai Juara Dunia ITF 2023
--  Ukraine: Official detonates three hand grenades during meeting of a village council, 26 injured
--  Jokowi Ditanya Tumben Pakai Dasi Kuning saat Bertolak ke Jepang, Jawabannya Bikin Pratikno Tertawa
--  Así afectaría acuerdo fronterizo a las personas que buscan asilo en EU
--  “I’mma Go Turn Up With Joker”: Hearing Aaron Gordon’s Description of Summer With Nikola Jokic, Michael Porter Jr. Reveals Upcoming Plans
--  Həlak olan “Hizbullah” üzvlərinin sayı açıqlandı
--  Nua Odisha district fest starts in Angul
--  Beed :परळीत मोबाईल समोर ठेवून कॉपी केल्याचा धक्कादायक प्रकार,नागनाथप्पा हालगे अभियांत्रिकीतील प्रकार
--  Dharavi Thackeray Group Protest : धारावी पुनर्विकासाचा मुद्दा, ठाकरे गटाच्या मोर्चा, भाजपची बॅनरबाजी
--  ترکیه: کار اعمار دیوار امنیتی در مرز با ایران تکمیل شد
--  ¡Prográmese! Así es la agenda deportiva por TV para este sábado 16 de diciembre
--  In first-ever conviction in cheque cloning case, two get 7 years RI
--  Petrol Diesel Price Today 16 Dec: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
--  کراچی: ناظم آباد پر نامعلوم افراد کی کار پر فائرنگ، دو افراد قتل
--  Breaking News Live Telugu Updates: ఏపీలో ఐదో రోజుకు చేరిన అంగన్‌వాడీ సిబ్బంది సమ్మె
--  В Госдуме призвали переименовать детское шампанское
--  Selección Colombia sube el nivel y cerrará el año contra México
--  CONVERSE × Scyeのジャックパーセル
--  Осъдиха Руди Джулиани да плати 148 милиона долара на оклеветени майка и дъщеря
--  В Смоленске пройдет бесплатный показ спектакля для многодетных семей и семей участников СВО
--  Odisha: Plus Two exams from Feb 16 to March 20
--  Luukku 16: Sudenkorento pukeutui tonttulakkiin – Kun opiskelu väsyttää, 16-vuotias Margarita Livshits saa voimia käsitöistä
--  Chloe Fineman imitoi Julia Stilesin tanssia: ”Täydellinen lahja kumppanille makuuhuoneessa”
--  สภ.เมืองเชียงใหม่ร่วมประชุมและดำเนินกิจกรรมตามโครงการ “1 ตำรวจ 1 โรงเรียน”
--  Ola’s Chief Launches India’s First AI Language Model Krutrim: Here’s What We Know
--  Ракета Electron возобновила полеты после аварии
--  Organisers roll out drums as 55th Molade Okoya-Thomas Cup begins Monday
--  América vs Tigres: ¿Cuáles son las finales más repetidas en la Liga MX?
+-  World News | Pakistan Slashes Petrol Price by PKR 14, High-speed Diesel by PKR 13.5
