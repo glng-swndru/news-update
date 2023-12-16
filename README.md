@@ -1,51 +1,51 @@
 # Latest News
--  Führerscheinlose Fahrerin stürzt Böschung hinab
--  العظمى بشرم الشيخ 28.. تفاصيل حالة الطقس في جنوب سيناء
--  هيئة شؤون الأسرى الفلسطينية: "الحياة داخل سجن النقب الإسرائيلي جحيم لا يطاق"
--  "عواقب وخيمة".. الحوثيون يحذر من أي تحرك عدائي ضد اليمن
--  الصحة بغزة: 12 طفلًا مازالوا محتجزين داخل الحاضنات في مستشفى كمال عدوان
--  حزب الله اللبناني يستهدف قوة مشاة إسرائيلية بصاروخ موجه
--  "الجيران وقعوا في بعض".. 5 مصابين في معركة بالأسلحة بسوهاج
--  عشرات الشهداء والجرحى الفلسطينيين في قصف الاحتلال على غزة منذ فجر السبت
--  وزير الإسكان يتابع تنفيذ شقق "سكن لكل المصريين" بالقاهرة الجديدة
--  سپریم کورٹ نے تاریخی قدم اٹھایا ہے، شیری رحمان
--  Ангеловска-Бежоска: Инфлацијата ќе се намалува, потребни се структурни реформи за да станеме поотпорни на шокови
--  BOŽANSTVENI MORSKI RAJ NEDE UKRADEN! Ovo je pevačicina LUKS VILA , sva u zelenilu, a kožni nameštaj i kamin su posebna priča! FOTO
--  (grafic) Lista raioanelor din Moldova cu cea mai mare rată a divorțurilor în anul 2022
--  Cops ‘missed chance to return Alex Batty to the UK after teen tried to enroll in a school in France last month’
--  Este Toyota desafía a Dacia y a Seat: 15 años de garantía, etiqueta ECO consumo mínimo
--  湯曉鷗瘁逝︱商湯科技發布訃告：他的智慧、熱情將永遠激勵着我們砥礪前行
--  Mondial de handball: pourquoi la finale France-Norvège ne sera pas diffusée en intégralité sur TF1
--  Istri Habib Rizieq Shihab Wafat karena Sakit
--  Almaniyadan Avropaya çağırış: Yeni müharibəyə hazırlaşın, bu qədər vaxt qalıb
--  ‘This cannot be the same tree right?’ Shopper mortified after spending £28 on Xmas tree online & people are in hysterics
--  Καιρίδης: Η χώρα δεν αλλάζει μεταναστευτική πολιτική
--  Dons, courses... Les pistes d'Olivia Grégoire pour "dépoussiérer le titre-restaurant"
--  Euromillions winner Jane Park gives major update after surgery as she makes cryptic promise to fans
--  Kétamine, noyade, maladie coronarienne… ce que dit le rapport d'autopsie de Matthew Perry
--  Aksident i frikshëm në Greqi, ndërron jetë shqiptari, plagoset një tjetër
--  Shillong Teer Result Today (OUT) 16.12.2023 First And Second Round Lottery Result
--  Descripción del Ocaso de Albito Andrade (V): “1×10” por David Mendoza
--  '서민갑부' 위생 만점+센스 제로 냉동삼겹살집, 연매출 10억 멘토 만난다
--  State Commission: discrimination occurs everywhere in the Netherlands
--  70% de estudiantes cree que la Selectividad debe ser igual en toda España
--  Nayanthara and Vignesh Shivan do puja marking `new beginnings`, see pics
--  Military veteran's family sue Missouri funeral home for returning his BRAIN in a cardboard box 'by mistake' after the organ donor was sent to be cremated
--  Lazio | Inzaghi e il piano anti-Sarri: al microscopio gli errori del passato
--  מאות מאוהדי הפועל חיפה הגיעו לתמוך לקראת הדרבי
--  美斯訪港︱楊潤雄提醒市民小心「假飛」 稱正與電視台商討轉播
--  เปิดโพสต์ ใบเตย สุธีวัน รับเดือนสุดท้ายปี 66 อดทนใช้ชีวิต รอเวลาวางความเจ็บปวด
--  MOŽE LI DORTMUND IGRE IZ LIGE ŠAMPIONA DA PRENESE U BUNDESLIGU? Današnji rival mu je tradicionalno povoljan protivnik
--  Η ανάγκη νέου αυτοκινητόδρομου Ελευσίνα – Οινόφυτα για την αποσυμφόρηση της Αττικής
--  Ops Murni: 18 RAMD bantu KKM periksa kesihatan mangsa banjir
--  Rumah Warga di Pulau Sebesi Dihujani Abu Vulkanis Gunung Anak Krakatau
--  شيرين عبد الوهاب بتصرّف لافت بعد انفصالها عن حسام حبيب
--  خاص – إياد أبو الشامات : " أنا زلمي دقة قديمة "
--  روبي تشعل الأجواء بغنائها في السعودية .. وتتألق بفستان جلدي قصير
--  تسريب فيديو لبطل "الطائر الرفراف" مع إمرأة مجهولة..وهكذا تصرفا
--  كريم فهمي يغمره الفرح ولحظات احتفال في حياته .. لهذا السبب
--  Mann varetektsfengsles i fire uker etter politi-skytingen
--  Κοντά στην ανανέωση με τη Ρεάλ ο Αντσελότι, χάνει έδαφος η προοπτική της εθνικής Βραζιλίας
--  يحدث في الشتاء.. حرائق تجتاح هذه الدولة بسبب شدة الحرارة
--  تليفزيون الكويت يقطع جميع برامجه بشكل مفاجئ ويبث القرآن الكريم.. ماذا حدث؟
--  Radonjic torna tra i convocati, ora deve sfruttare ogni singola chance
+-  „Vujaklija” - leksikon stranih riječi kao „simbol doma koji drži...
+-  이현중 사우스 이스트 멜버른전서 3점슛 2방, 일라와라 28점차 완승
+-  '깜짝 시인 데뷔' 양세형 "멋진 마흔 살 목표? 억대 기부하기" [뉴스룸] (종합)
+-  김석훈, 초면이라는 이미주에 "서른? 알 나이인데 왜 몰라" [놀면 뭐하니]
+-  "살라 영입은 어렵다. 왜냐하면…" 사우디 슈퍼스타 러브콜 '일단 주춤'
+-  Dennis van der Steen wil na de winterstop oogsten met Achilles Veen: 'Maar dan moet het rendement wel omhoog'
+-  Corona-Zahlen im Landkreis Goslar aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Gifhorn aktuell: Neuinfektionen für Landkreis Gifhorn, Niedersachsen und Deutschland
+-  Ohio cop reunited with K-9 partner after city accepts $16K deal amid ownership battle: ‘Happy to have our family back’
+-  Corona-Zahlen in Wolfsburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  ماذا قالت عائلات الرهائن الـ3 قبل القتل الخطأ من جيش الاحتلال؟
+-  الفقهي: كلامي عن تناول جمال عبدالناصر الكحول خطأ
+-  Corona-Zahlen in Salzgitter aktuell: Die Coronavirus-News aus der Region
+-  RUSIJA U OFANZIVI NA SVIM FRONTOVIMA Ukrajina više ne može da zadrži odbrambene linije
+-  Corona-Zahlen in Braunschweig aktuell: Die Coronavirus-Daten im Überblick
+-  Here's what 30 minutes on the elliptical can do to your body
+-  Corona-Zahlen in Hamburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  قبل الإغلاق .. تجربة منصة الاختبار التأهيلي للطلاب المسجلين في برنامج "أذكى"
+-  Corona-Zahlen im Kreis Stormarn aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Kreis Steinburg aktuell: Die Coronavirus-News aus der Region
+-  Kış geldi herkes bu sorunun cevabını arıyor. Neden depresyonunuz geçmiyor?
+-  Corona-Zahlen im Kreis Segeberg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Kreis Schleswig-Flensburg aktuell: Neuinfektionen für Kreis Schleswig-Flensburg, Schleswig-Holstein und Deutschland
+-  Život na točkovima: Ispovest dostavljača iz Niša
+-  Sheep dies after attack by unruly dog on Perthshire’s Cateran Trail
+-  Corona-Zahlen im Kreis Rendsburg-Eckernförde aktuell: Neuinfektionen für Kreis Rendsburg-Eckernförde, Schleswig-Holstein und Deutschland
+-  Uzmandan 'Dev Midye' İçin Çağrı! Denizin Filtre Sistemi
+-  Corona-Zahlen im Kreis Plön aktuell: Zahlen und Fakten aus der Region
+-  The Finals, primi voti ottimi per lo sparatutto free-to-play di Embark Studios
+-  Corona-Zahlen im Kreis Pinneberg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Punjab Encounter: পাঞ্জাবে পুলিশের সঙ্গে গুলির লড়াইয়ে গুরুতর জখম দুই অপরাধী, ভিডিয়োতে দেখুন ঘটনাস্থলে পড়ে রিভলভার
+-  Corona-Zahlen im Kreis Ostholstein aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  PODCAST - Fight Club FC, Turchia e Grecia travolte dalla violenza
+-  Corona-Zahlen im Kreis Nordfriesland aktuell: Neuinfektionen für Kreis Nordfriesland, Schleswig-Holstein und Deutschland
+-  Corona-Zahlen im Kreis Herzogtum Lauenburg aktuell: Aktuelle Daten zum Coronavirus
+-  Sell-off: Equity market declines by 0.09%, sheds 37bn
+-  Top 10 iOS 17.2 features (Video)
+-  Corona-Zahlen im Kreis Dithmarschen aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  В Орловской области бывшего главбуха осудили на 2 года за финансовые махинации
+-  Corona-Zahlen in Neumünster aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen in Lübeck aktuell: Die Coronavirus-Daten im Überblick
+-  В Туле наградили победителей конкурса «Семейная мастерская»
+-  Corona-Zahlen in Kiel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  安倍派議員の任意聴取始める 東京地検特捜部 政治資金問題
+-  Geen groepsfase meer: zo ziet nieuwe Champions League er vanaf volgend seizoen uit
+-  Sunny Singh wraps shooting of next movie ‘Risky Romeo’
+-  How to grow sage – 3 pro tips for fragrant and flourishing herbs
+-  Corona-Zahlen in Flensburg aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Çanakkale'yi sağanak vurdu. Dereler taştı, ekipler teyakkuzda
+-  जरुरी जानकारी | इलेक्ट्रोलाइजर विनिर्माण के लिए प्रोत्साहन पाने को 21 कंपनियों ने बोली लगाई
