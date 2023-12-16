@@ -1,11 +1,11 @@
 # Latest News
--  Berisha në Gjirokastër: Të nisim mosbindjen civile, nuk ka regjim që i reziston
--  „Nusigyvenęs desantas“ šturmavo Krynkus. Kas iš to gavosi (Video)
--  Amžina dvikova. Kava ar arbata? Mitybos specialistai atsakė, kuris gėrimas geresnis
--  [ŽT] „Aivenho“, gražuoli, na pasistenk.“ Efektingas video iš Marjinkos. Taip dirba tikri meistrai
--  Kendisine saldıran köpeğe taş attı arkadaşları tarafından katledildi
--  "Манчестер Сити" нужен игрок "Баварии"
--  Александр Хацкевич: "У меня сегодня другие приоритеты"
--  В Саудовской Аравии вновь обсудили возможный приход Мбаппе
--  Анчелотти о Суперлиге: "Может случиться что-то важное, что изменит историю нынешнего футбола"
--  "Эспаньол" подал в суд из-за гола Гризманна
+-  Ex-cyclone Jasper due to reach Gulf as tropical low
+-  Obrovský poklad: Neďaleko Kolosea objavili dom z čias staroveku, zdobí ho jedinečná mozaika
+-  KDH zvažuje kandidáta na prezidenta: Pellegrini povedal, kedy sa konečne vyjadrí
+-  Meloniová a Sunak sa dohodli na spolupráci v oblasti dobrovoľných návratov
+-  Kardinal dømt til fengsel i Vatikanet
+-  Cardinal Sentenced To 5.5 years For Financial Crimes in Vatican Fraud Trial
+-  Final da Copinha feminina, Botafogo x Flamengo terá árbitro de vídeo e entrada gratuita
+-  Edinho nega desavenças entre herdeiros de Pelé
+-  A Milli Kadın Golbol Takımı'ndan büyük gurur! İsrail'e fark atıp, şampiyon oldular
+-  Now United se apresenta com sua nova formação no 'Caldeirão'
