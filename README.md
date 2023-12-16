@@ -1,11 +1,11 @@
 # Latest News
--  어느 흔한 부자의 기념사진 [MK포토]
--  Watch Jake Paul brutally KNOCK OUT Andre August with uppercut in first round and already has next fight lined up
--  Munawar Faruqui Fans SHOCKED As Ayesha Khan Claims He Promised To Marry Her | Bigg Boss 17
--  이정후 ‘부모님과 함께’ [MK포토]
--  กิจกรรมศูนย์วิทยาศาสตร์เพื่อการศึกษา
--  Telangana HC issues direction on pending cases against MPs, MLAs
--  "야구적으로 배운건 없다"고 말했지만…"태어나 보니 바람의 손자" 이종범 코치 향한 이정후의 존경심
--  ทม.แพร่ เข้าร่วมการประชุมคณะกรรมการขับเคลื่อนโครงการ
--  В Ярославле водитель автобуса набросился с арматурой на пассажира
--  What We Know About the Status of Israel-Hamas Hostage Situation?
+-  خطوات التقديم.. "العمل" تكشف عن فرصة تدريب للخريجين بشركة عالمية
+-  Marsh makes 'vital' Azam breakthrough
+-  Marsh makes 'vital' Azam breakthrough
+-  Presenta diputada libro para que se investigue corrupción
+-  Confesó Pedro Lara que seguían vigentes prácticas de corrupción
+-  Continuarán las investigaciones de Anticorrupción
+-  Bursa'da korkunç kaza
+-  West Test: Late flurry of wickets hands Australia ascendancy at lunch
+-  Chery Tiggo 8 Pro: барча йўналишларда кафолатланган ҳайдаш хавфсизлиги.
+-  ЦАҲАЛ: ҳарбийлар хато сабаб ҲАМАС гаровидаги уч кишини ўлдирди.
