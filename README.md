@@ -1,51 +1,51 @@
 # Latest News
--  Üretimin üçte biri Gabar’dan gelecek
--  İsrail ile ticaret yüzde 48 azaldı
--  Togg’a batarya hücresi
--  Yatırım fonlarına ilgi katlanarak artıyor
--  Habeck verteidigt umstrittene Entscheidung zum Agrardiesel
--  Wohngruppe in Beerwalde schließt: Was wird nun aus dem Gebäude?
--  [5조씩 늘던 주담대, 이달 들어 ‘뚝’…금리 내리면 다시 늘어날까[머니뭐니]
--  [“동성애자라 결혼도 못하고 집도 못사는데, 싱글세라고요?” [투자360]
--  [MBK, 한국앤컴퍼니 적대적 M&A 성공 여부 촉각 [주간 '딜'리버리]
--  [[영상]전기차 때문에 옆집과 원수됐다…파파라치 키우는 충전구역 [부동산360]
--  [서울시의회, 김어준 잡으려다 TBS 존폐 위기…김어준 구독자는 140만명 돌파, 시의회 역풍 우려
--  [“너 내 밥줄 끊어놨지” 한땐 사내연인이었던 40대 상사, 결별 후 스토킹하다 결국
--  [연말 즉석만남시 주의…무술유단자가 나와 폭행 ‘징역20년’
--  [22대 국회 다수당도 민주당?…‘정부 견제’ 53.9%, ‘민주당 1당’ 56.9%[數싸움]
--  [“폭행당한 사실 없다” 위증 혐의…‘이귀재 전북대 교수 영장 청구’
--  [요즘 초선이 어디 초선인가? ‘딸랑딸랑 직장인’이지[김영상의 오지랖]
--  [“성실은 비트코인 앞에 한 방의 먼지”…MZ들이 꼭 찾는 발랄해진 '이것'
--  [[헤럴드 운세] 2023년 12월 16일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [[리얼푸드] 찬 바람 불때 ‘팥죽’ 대신 달콤한 ‘팥스프’
--  [‘최저임금 5배’ 형사보상금…12월 보름간만 3억원 나갔다
--  [하이브리드로 날개 단 그랜저, 올해 국내 車시장 ‘왕좌’ 보인다 [여車저車]
--  [인권위 ‘한신대 유학생 강제출국’ 조사 착수…총장 결국 사과
--  [이종찬 광복회장 “개천절을 건국기념일로…이승만기념관 잘못 감추면 수준 떨어질 것”
--  [韓美 핵동맹 본격화?…“내년 연합훈련에 심화 핵 교육 가동, 韓 ‘핵 IQ’ 높아질 것” (종합)
--  ["대통령의 약속"…개식용금지법 연내 종지부 찍나
--  [토트넘 홋스퍼 두달만에 연승…손흥민 평점 7, MOM 클루셉스키
--  [“작은 매거진처럼”…해지스·닥스 만드는 패션회사가 ‘콘텐츠’ 사업을 시작한 이유[언박싱]
--  [매일 아몬드 한 줌, 다이어트에 도움될까 [식탐]
--  [재활용 수거도 AI가 척척…영등포구, AI 무인회수기 확대
--  [잡아만 준다면 1000만원도 씁니다…층간소음 얼마나 절실했으면 [부동산360]
--  [경기-강원-충북-전북-제주에 대설주의보 “눈길 운전주의”
--  [‘오타니와 맞대결’ 이정후 “열심히 하겠습니다!”…김하성과 맞대결엔 “설레”
--  [문자로 이별 통보받은 20대男, 여친 살인미수…집행유예로 풀려나
--  [담양군, 클래식 공연 ‘지금 알고 있는 걸 그때도 알았더라면’ 개최
--  [[영상] 이스라엘, 하마스 땅굴 ‘바닷물 수장’ 작전 개시…“대비 했다”는 하마스, 결과는?
--  ["누누 영화공짜" 누가 경복궁 담벼락에 이런 짓을…
--  [천하의 삼성이 감산까지 했는데…최악의 ‘골칫거리’ 드디어 살아난다? [비즈360]
--  [광주시, 한국인정기구 공인시험성적서 발급 가능
--  [美 “北 김정은, 핵사용시 정권 종말…즉각적·압도적·결정적 대응 직면할 것”
--  [“미래차산업 100년 기반 함께 채우자”
--  [전남도, 출입국·이민관리청 유치 공식 선언
--  [한미 NCG 공동언론성명 “美 전략자산 전개 계획 논의”
--  [BTS 정국 ‘스탠딩 넥스트 투 유’, 英 싱글 차트 ‘톱 100’ 6주 연속 진입
--  [로보택시 운행중단 여파…GM 자율주행 자회사 ‘크루즈’ 900명 해고
--  [‘1500억 사나이’ 이정후 SF 입단식 “이기러 왔다 Let's go Ginats!”
--  [68세 노인 오토바이에 매달고 190m 달린 30대男
--  [北 “올해 국력 최고 수준, 김정은 영도 결실…美, 핵 놓고 흥정 못해”
--  [유명 의사, 왼발 아픈데 오른발 절단…양발 다 잃은 20대의 절망
--  [‘대선 조작’ 헛소문 유포자에 法 “1900억원 피해자에 배상하라”, 왜?
--  [성탄절 연휴, 하루 280만 미국인이 비행기 탄다
+-  NLC condemns World Bank advice to Nigeria to increase petrol price to N750 per litre
+-  맨유가 탈락시킨 '스웨덴 천재 MF' 결국 스페인으로? "첫 번째 오퍼 완료·선수도 이적 원해"
+-  PM Modi To Inaugurate Surat Diamond Bourse - World`s Largest Corporate Office Hub
+-  Conmoción en Telefe por lo que Cristina Pérez dijo sobre su futuro en el canal: «Injusticia»
+-  Ingat! Cek Cairan Rem Sebelum Berlibur Pakai Kendaraan Pribadi
+-  Morning Headlines: நிலுவையில் உள்ள 5 கோடி வழக்குகள்.. INDIA கூட்டணியின் 4-வது கூட்டம்.. இன்றைய முக்கியச் செய்திகள்
+-  'This is a war that starves you': For Gaza, hunger is a new enemy
+-  'One of the best jobs in the world'
+-  Winter Health Tips: શિયાળામાં આ 5 ફળોનું કરો સેવન, બીમારી આસપાસ પણ નહીં ફરકે
+-  Catorce guatemaltecos interponen amparo en la CC contra el Congreso por haber quitado la inmunidad a magistrado del TSE
+-  เปิดผับ ตี4 วันแรกคึกคัก อนุทินลุยตรวจสถานบันเทิง
+-  Matthew Perry Was 'Reportedly Clean for 19 Months' Before His Death
+-  "الآثار": الفرص الاستثمارية بعدد من المناطق السياحية تكفل للمستثمرين النجاح
+-  Comenzaron las nominaciones en la séptima ronda del Bailando
+-  Adam Edström gjorde mål i NHL-debuten
+-  Sosok Jessica Rinrada, Transgender yang Ingin Kembali Jadi Pria usai Umrah
+-  Tržnica BTC ima vse, kar ima osrednja mestna tržnica
+-  Jalna Crime News : खोतकर समर्थक गजानन तौर हत्याकांडाला आता नवीन वळण, सुपारी देऊन हत्या केल्याच्या संशय
+-  Applesauce pouch contamination may have been deliberate: FDA official
+-  Equipo femenino de Dota 2 avanza a la final de los Global Esports Games
+-  KB증권 박정림 대표 "징계처분 정지 요청…회복할 수 없는 손해"
+-  Revelan la causa de la muerte del actor Matthew Perry
+-  Novak Djokovic dan Aryna Sabalenka Dinobatkan sebagai Juara Dunia ITF 2023
+-  Ukraine: Official detonates three hand grenades during meeting of a village council, 26 injured
+-  Jokowi Ditanya Tumben Pakai Dasi Kuning saat Bertolak ke Jepang, Jawabannya Bikin Pratikno Tertawa
+-  Así afectaría acuerdo fronterizo a las personas que buscan asilo en EU
+-  “I’mma Go Turn Up With Joker”: Hearing Aaron Gordon’s Description of Summer With Nikola Jokic, Michael Porter Jr. Reveals Upcoming Plans
+-  Həlak olan “Hizbullah” üzvlərinin sayı açıqlandı
+-  Nua Odisha district fest starts in Angul
+-  Beed :परळीत मोबाईल समोर ठेवून कॉपी केल्याचा धक्कादायक प्रकार,नागनाथप्पा हालगे अभियांत्रिकीतील प्रकार
+-  Dharavi Thackeray Group Protest : धारावी पुनर्विकासाचा मुद्दा, ठाकरे गटाच्या मोर्चा, भाजपची बॅनरबाजी
+-  ترکیه: کار اعمار دیوار امنیتی در مرز با ایران تکمیل شد
+-  ¡Prográmese! Así es la agenda deportiva por TV para este sábado 16 de diciembre
+-  In first-ever conviction in cheque cloning case, two get 7 years RI
+-  Petrol Diesel Price Today 16 Dec: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
+-  کراچی: ناظم آباد پر نامعلوم افراد کی کار پر فائرنگ، دو افراد قتل
+-  Breaking News Live Telugu Updates: ఏపీలో ఐదో రోజుకు చేరిన అంగన్‌వాడీ సిబ్బంది సమ్మె
+-  В Госдуме призвали переименовать детское шампанское
+-  Selección Colombia sube el nivel y cerrará el año contra México
+-  CONVERSE × Scyeのジャックパーセル
+-  Осъдиха Руди Джулиани да плати 148 милиона долара на оклеветени майка и дъщеря
+-  В Смоленске пройдет бесплатный показ спектакля для многодетных семей и семей участников СВО
+-  Odisha: Plus Two exams from Feb 16 to March 20
+-  Luukku 16: Sudenkorento pukeutui tonttulakkiin – Kun opiskelu väsyttää, 16-vuotias Margarita Livshits saa voimia käsitöistä
+-  Chloe Fineman imitoi Julia Stilesin tanssia: ”Täydellinen lahja kumppanille makuuhuoneessa”
+-  สภ.เมืองเชียงใหม่ร่วมประชุมและดำเนินกิจกรรมตามโครงการ “1 ตำรวจ 1 โรงเรียน”
+-  Ola’s Chief Launches India’s First AI Language Model Krutrim: Here’s What We Know
+-  Ракета Electron возобновила полеты после аварии
+-  Organisers roll out drums as 55th Molade Okoya-Thomas Cup begins Monday
+-  América vs Tigres: ¿Cuáles son las finales más repetidas en la Liga MX?
