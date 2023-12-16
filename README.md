@@ -1,51 +1,11 @@
 # Latest News
--  Investorendeal der Bundesliga - Warum die DFL-Abstimmung kontrovers gesehen wird
--  İş yerinin önünde içki içen şahıs baba ile 2 oğlunu bıçakladı
--  Detención provisional para funcionarios del Tribunal Electoral por delitos financieros y fe pública
--  مقراط.. الصحفي الصادق والقلم الشعبي المؤثر| كتب فيصل غرامة
--  Hayat kadınları okul önünde müşteri aramaya başladı
--  وفاة شخص وإصابة أخريين في حوادث سير بمأرب وحضرموت وشبوة والحديدة
--  En direct, Israël-Hamas : après la mort de trois otages tués par erreur par l’armée israélienne, les familles appellent à négocier avec le Hamas
--  ΒΙΝΤΕΟ: Ο Κακουλλής σκόραρε ξανά μετά απο ΔΥΟ μήνες
--  Colby Covington claims he was 'in character' after making a vile joke about Leon Edwards' late father during a UFC 296 press conference ahead of their welterweight title clash
--  Тардиф ответил на вопрос о возможном лишении членства ФХР в ИИХФ из-за ситуации с Федотовым
--  Ünlü Oyuncunun Oğlunu Görenler Kardeşi Sandı! Sarp Sosyal Medyayı Salladı
--  Premier League : Chelsea et Newcastle tiennent leur rang, pas City, match arrêté à Bournemouth après le malaise du capitaine de Luton
--  Fugitif finally gets his head in front at Cheltenham after last-gasp defeat of Il Ridoto in December Gold Cup
--  الداخلية: اصابة مواطنين بمأرب نتيجة قصف جوي على منازلهم
--  Матч «Наполи» — «Кальяри» отложен из-за повреждения крыши на стадионе
--  Liga : douche froide pour l'Atlético, battu à Bilbao
--  Κασσελάκης: «Πιστεύω ότι θα κερδίσουμε τις Ευρωεκλογές»
--  الكشف عن قائمة باريس لمواجهة ليل
--  Chelsea 2-0 Sheffield United: Cole Palmer and Nicolas Jackson score as Blues climb into top half and keep their first Premier League clean sheet since early October
--  Suriyeli doktor ve eczacıların kurduğu çark Mecliste bakan Koca'ya soruldu. Yeniçağ ortaya çıkarmıştı
--  China defends bounties offered for Hong Kong dissidents abroad
--  Shah Rukh Khan’s “Dunki” Opens Advance Bookings Ahead of Theatrical Release
--  تقييم رحيم ستيرلينج مع تشيلسي أمام شيفيلد يونايتد
--  Cotentin. Cette chorale va donner un magnifique concert au profit du Téléthon
--  有老公沒啥好？她決定領養朋友！韓國「無親屬家庭」近800萬戶
--  Peringatan Haul ke-14 Abdurrahman Wahid
--  Kolar women police team traces missing boy within 20 hours, second such case in two months
--  Live Eredivisie | Azarkan na botsing met brancard van het veld bij FC Utrecht-RKC
--  कौन थे कुवैत के किंग अमीर शेख नवाफ, जिनके निधन पर भारत में कल राजकीय शोक, आधा झुका रहेगा तिरंगा
--  Règlement, candidates, vote, jury, favorites... Ce qu'il faut savoir sur la 94e édition du concours Miss France 2024
--  EDF under fire after energy bill hiked from £152 to £19,274 a MONTH
--  Luton Town players ‘in no state of mind to continue’ as statement released after Tom Lockyer’s terrifying collapse
--  Se cumplen 24 años de la tragedia de Vargas
--  كركوك تسجل نسبة مشاركة تقدّر بـ70% في التصويت الخاص
--  Glastonbury crisis as talks with Madonna collapse over fee to bring Material Girl's live show to the festival
--  אתלטיקו מדריד שוב פישלה בחוץ, והפסידה 2:0 לאתלטיק בילבאו
--  הפועל ירושלים - הפועל גליל עליון 0:2 (רבע 1)
--  Maç esnasında bir anda yere yığıldı! Hakem karşılaşmayı erteledi
--  Carrefour fait une offre sur les magasins de proximité de Casino
--  Sağlık Bakanı Koca: Felaket üzerinden siyaset yapmayı akıl kabul eder mi?
--  La Fédération française de rugby dans une « situation économique extrêmement tendue »
--  Football : A 40 ans, Fabien Tardif fait le bonheur du Racing club Rannée-La Guerche
--  В селе в Запорожской области сдетонировал украинский беспилотник
--  Abflug nach China: Pandas Pit und Paule haben Berlin per Flugzeug verlassen
--  Estados Unidos lanzó advertencia a Corea del Norte contra posible ataque nuclear
--  Van ve Hakkari'de uyuşturucu operasyonu. 6 tutuklama
--  تقييم كول بالمر مع تشيلسي أمام شيفيلد يونايتد
--  Bursa'da ambulansa yol vermeyen sürücü tepki topladı
--  VIDEO Majer drži Kovačevu glavu iznad vode: Zabio za prekid crne serije Wolfsburga
--  Мельникова — о Матче звезд FONBET Кубка России: «Тут может раскрыться игривость, мальчишество!»
+-  حسني بي: انخفاض الدولار بسبب عودة الكبير من تركيا.. غير صحيح
+-  Essential Tips for Small Business Owners: Managing Your Finances with Accounting
+-  Preço da habitação obrigou Governadora do Banco Central Turco a mudar-se para casa dos pais
+-  Järkyttävä sulaminen - Manchester City möhli käsittämättömästi
+-  Atletic Bilbao 2-0 Atletico Madrid (MAÇ SONUCU-ÖZET)
+-  Между Кутаиси и Копенгагеном начались прямые регулярные авиарейсы
+-  KL Rahul to include Sanju Samson? Gaikwad to open with Shubman Gill: India's predicted XI vs South Africa, 1st ODI
+-  అధ్వాన్నంగా పారిశుధ్య పనులు
+-  Lawmakers scramble to approve emergency foreign aid ahead of holidays
+-  Illinois NAACP president apologizes over comments about migrants
