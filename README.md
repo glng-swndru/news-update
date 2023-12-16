@@ -1,51 +1,11 @@
 # Latest News
--  Coşkun Başbuğ yazdı: Kıbrıs'ta bir mini Filistin
--  Taksim'de yılbaşı öncesi denetimler yoğunlaştı
--  Hakem Halil Umut Meler'den açıklama! "Şiddetin son bulmasını temenni ediyorum"
--  ABD'deki petrol sondaj kuleleri son bir yılda 119 azaldı
--  Takas listeleri İsrail'in oyununu ortaya koydu! Ölü dediler Hamas sağ teslim etti
--  Bornova'da silahlı saldırıda bir kişi yaralandı
--  Meteoroloji'den 17 il için sarı ve turuncu kodlu uyarı
--  Dodgers suma otro brazo; siguen las contrataciones
--  รถตู้เสียหลักชนต้นไม้ เจ้าอาวาส-ชาวบ้าน เสียชีวิตรวม 4 เจ็บอีก 5
--  Gazze'de can kaybı 18 bin 800'e çıktı
--  İşte sivilceleri ve ciltteki lekeleri tedavi eden ot
--  Kickoff | Ten Hag breaks silence on Man Utd future
--  NAJMOĆNIJI SAVET OCA TADEJA TOKOM POSTA: Evo koju BITNU STVAR bi trebalo da uradimo svako veče pre spavanja!
--  NBA: les San Antonio Spurs renouent avec la victoire, contre les Lakers de LeBron James
--  Eskişehir temsilcisi lider karşısında
--  ارتفاع مؤشرات الأسهم الأميركية واستقرار سعر النفط الخام
--  Santé: l'OMS s'inquiète de la propagation rapide de l'épidémie de Mpox, aussi appelé «variole du singe»
--  נתניהו כבר ריסק את הטיטניק, אך מסרב לטבוע עמה
--  Tvůrce bitcoinu mlčí 13 let a Ledger v problémech. Týden v kryptu #62
--  الحكم على محامي ترمب السابق بدفع 148 مليون دولار
--  Himachal: उत्तरप्रदेश में फंसा वृंदावन और अयोध्या के लिए एचआरटीसी बसें चलाने पर पेच, जानें वजह
--  Three Amsterdam metros trashed by Ajax fans prior to Ajax-AEK Athens match
--  Anadolu Üniversitesi 3 puana odaklanıyor
--  León: Jugadores de La Fiera dieron la cara ante aficionados que viajaron al Mundial de Clubes
--  Gaza: les envoyés spéciaux de BFMTV ont pu entrer dans les tunnels de l'enclave palestinienne
--  Indian Navy rushes to help hijacked Malta vessel in Arabian Sea
--  Пътят Варна - Бургас е временно затворен
--  114 почивни дни ще има през 2024 г.
--  «Зенит» точечно усилит команду во время зимнего трансферного окна
--  Soccerladuma | Barca President Sends Message To Xavi After Poor Results
--  Gaza-Krieg: Erreicht Israel sein erklärtes Kriegsziel?
--  महिला जज की पीड़ा: 'रात में जिला जज से मिल लो...' मैं किसी कीड़े जैसी महसूस कर रही हूं; लेटर में और क्या लिखा
--  롯데, 임재호 트레이닝 코치 6년 열애 끝 결혼
--  Mihalıççık'tan bir zafer daha bekliyoruz
--  LAŽE DA JEDE HLEBA I MLEKA Poznati pevač kukao da nema ni za lekove, a sada uhvaćen kako JEDE KAO CAR, SVAKI DAN U RESTORANU (FOTO)
--  C'è una pessima notizia sul bonus prima casa per i giovani
--  কাগজে-কলমে লেখা শেষ, ৭ জানুয়ারি শুধু ফলাফল ঘোষণা: মঈন খান
--  مقتل مصور قناة "الجزيرة" في غزة بغارة إسرائيلية
--  (UŽIVO) Saliven: Rat ulazi u fazu ciljanja lidera Hamasa; Abas: Napadi na Palestince moraju da stanu
--  अब गाय के गोबर से अंतरिक्ष की उड़ान भरेगा रॉकेट, पहली बार रॉकेट इंजन में दिखा LBM के सफल प्रयोग का कमाल
--  القائد العام يوجه رسالة إلى القوات الأمنية بمناسبة بدء الاقتراع الخاص
--  "بدءاً من يوم الأحد المقبل"... إعلانٌ من حميّة
--  '런닝맨' 권은비, 예능감 대방출 "나온 김에 주인공 하겠다!"
--  자선경기-기부금-합동은퇴식... 눈 오는날, 축구로 따뜻해진 아주대[현장 메모]
--  UK Official Humiliates Ukraine, Rejects Plea For Scrapheap-Destined Vehicles
--  Indian chef Garima Arora’s Gaa earns two Michelin stars, ranks third globally
--  Strack-Zimmermann für Einsatz Deutscher Marine im Roten Meer
--  Strack-Zimmermann für Einsatz Deutscher Marine im Roten Meer
--  Apple expands sci-fi repertoire with ‘Murderbot’ series and settles family sharing lawsuit
--  Murder: प्रेमिका के साथ आए युवक ने धारदार हथियार से की अधेड़ की हत्या, सहेली की मां को भी मारने की कोशिश
+-  Novi ministar Plenkovićev je odani čovjek: Uz Habjana se ne vežu afere, vješt je govornik, naročito kad mora braniti HDZ
+-  В Архангельске подвели итоги работы регионального отделения Российского общества «Знание» за 2023 год
+-  VIDEO : मथुरा के भूतेश्वर इलाके में दहशत, सुबह आंख खुली तो चल रही थी गोलियां; सहम गए लोग
+-  UK's Royal Armouries Museum Unveils Saddam Hussein's Golden AK-47 In Exclusive Exhibition
+-  Zamfara govt denies sack of non-indigenous teachers unjustly
+-  IDF says Israeli troops mistakenly killed 3 hostages in Gaza
+-  Märchenfilme 2023 bei ZDF, ARD, MDR und Co.: Der märchenhafte TV-Fahrplan für das dritte Adventswochenende
+-  Vermoedelijke opstelling Feyenoord: Trauner keert terug, puzzelen op de flanken
+-  – المنفي يطّلع على نتائج جلسة اللجنة التحضيرية لمؤتمر المصالحة الوطنية.
+-  Telugu Titans vs Dabang Delhi KC Live Kabaddi Streaming For Pro Kabaddi League Match: How to Watch TEL vs DEL Coverage on TV And Online
