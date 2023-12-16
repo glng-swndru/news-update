@@ -1,11 +1,11 @@
 # Latest News
--  בבלגרד מתלהבים מ'ויין רוני הסרבי', בכר מחכה לדרבי: "מוטיבציית שיא"
--  Logran una vacuna de polvo seco que se inhala una vez y previene el Covid-19 en animales
--  Venezuela, la hija de 14 años de Paris Fury, madre de siete, luce irreconocible en una foto glamorosa y festiva
--  Child care centres boost quality and safety
--  Realizan entrega de vehículos en regiones de salud de Darién
--  ليس كوبري.. مصدر بالآثار يكشف البناء الخرساني بين الأهرامات والمتحف
--  حدث في 8 ساعات| آلية جديدة لإنهاء أزمة السكر.. وقرار جديد بشأن الأجانب المقيمين
--  انطلاق اليوم الأول للبرنامج التدريبي للحصول على الشهادات الدولية المهنية في التدريس
--  الزراعة توضح أسباب انخفاض أسعار البصل مؤخرًا في الأسواق
--  حكموا عليه بالإعدام مرتين.. إدانة قاتل الشاب خالد في كفر الشيخ
+-  جامعة الملك عبدالعزيز تعلن عن برامج دبلومات (عن بُعد) و (حضوري) للعام 1445هـ
+-  Bandidos invadem empresa e furtam mais de R$ 40 mil em Sinop
+-  Plenković se ne može amnestirati iz afere „Mreža“: Sagovornici Danasa o aferi „Mreža“ koju je objavio hrvatski nedeljnik Nacional
+-  Foreign Policy: визит Зеленского в США только усугубил ситуацию для Украины
+-  Consejo Nacional del Trabajo sesionaría en enero del 2024
+-  Confirmó que llega a Millonarios: “Solo falta que lo hagan oficial”
+-  DEM Partisi’den CHP’ye ittifak resti: İlk yardım çantası değiliz, yedek güç değiliz
+-  TBMM Genel Kurulu'ndaki bütçe görüşmelerinde Bakan Koca'dan dikkat çeken açıklamalar
+-  Great News for Rivian Stock Investors!
+-  تشاد تطرد 4 دبلوماسيين سودانيين
