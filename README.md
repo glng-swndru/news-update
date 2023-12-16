@@ -1,11 +1,51 @@
 # Latest News
+-  Amasya'da korkunç kaza! Otomobil köprüden Yeşilırmak Nehri'ne uçtu: Bir ölü
+-  Православен календар за 16 декември, вижте кой празнува днес
+-  Vorfall an Mexikos Pazifikküste: "Unidentifiziertes Tier" beißt Strandurlauber tot
+-  Senamhi espera que continuarán lluvias intensas en la sierra y selva peruana
+-  Bilal Coulibaly brille face aux Pacers : 17 points et de la bonne défense sur Tyrese Haliburton
+-  Thüringer AfD geht gegen Landesverfassungsschutzbericht vor
+-  Thüringer AfD geht gegen Landesverfassungsschutzbericht vor
+-  Adrian Marcu, fostul antrenor al lui Halep, i-a găsit vina sportivei. „Ceilalți stau floricică”
+-  В Ярцевском архиве были проведены экскурсии для учеников 7-х классов
+-  نگران مشیر بلوچستان برائے مائنز اینڈ منرلز بھی مستعفی ہوگئے
+-  PowerBall results: Friday, 15 December 2023
+-  Taj Mahal: ताजमहल पर कर्मचारियों की करतूत, थैलों में भरते नजर आए...; एएसआई ने दिए जांच के आदेश
+-  Суд обязал соратника Трампа Джулиани выплатить $148 млн за клевету на выборах
+-  #portret Donald Tusk, poljski premier
+-  ACC U-19 Asia Cup Semi-Final Result: এশিয়া কাপের অবিশ্বাস্য সেমিফাইনাল! ভারতকে হারাল বাংলাদেশ, পাকিস্তানকে হারিয়ে প্রথমবার ফাইনালে আরব
+-  Dal Rignon alla Tesoriera, le aree verdi dei parchi storici si rifanno il look
+-  Ganjar-Mahfud Janji Stabilkan Harga Sembako, Negara Akan Atur Distribusi
+-  Jake Fisher scores game-winner in Force victory over Sioux Falls
+-  Casi 80 parejas se casan a la vez en la República Dominicana
+-  Το Survivor επιστρέφει με πρωτοφανείς αλλαγές στους κανόνες – Σε ποιούς έχει γίνει πρόταση
+-  आरएसएस: प्रांत संघचालक के चुनाव 17 दिसंबर को, लखनऊ विभाग में अरविंद जैन बने विभाग संघचालक
+-  В Ярославле отметились подъездные воришки
+-  Holz hacken deluxe: Lkw mit Liegesitz, Subwoofer und Kaffeemaschine
+-  網球》嘲諷貴古賤今言論 基里歐斯認為喬帥能摧毀對手
+-  Jasa Raharja Jamin Santunan Seluruh Korban Kecelakaan Bus PO Handoyo
+-  Σπερς-Λέικερς 129-115: Επιστροφή στις νίκες μετά το 0-18 (vid)
+-  هل ستترك أمريكا أوكرانيا لمصيرها؟
+-  'Forced to Take Jobs': Afghan Kids in Delhi Still in Lurch After School Closure
+-  Real Housewives of Sydney star Nicole O'Neil addresses rumours that she's leaving the show after skipping the reunion
+-  Habeck verteidigt umstrittene Entscheidung zum Agrardiesel
+-  Na tessék, már ez is sikerült: kettévágott a politika egy győri panelházat!
+-  I have loved reading books since childhood: South Mumbai bookseller
+-  Румен Радев благодари на премиера на Нидерландия за решението за Шенген
+-  Matthew Perrys dödsorsak fastställd
+-  Ассист Дадонова помог «Далласу» обыграть «Оттаву» в матче НХЛ
+-  Хокеистите ни катастрофираха на олимпийската квалификация
+-  ΔΕΔΔΗΕ: Διακοπές ρεύματος σε κέντρο Αθήνας, Διόνυσο, Χαϊδάρι
+-  Kementerian PUPR Benahi Jalan hingga Jembatan Jelang Nataru
+-  Threads活躍度暴增反彈！Meta進軍歐洲拚市場擴張
 -  เชียงรายเปิดฤดูท่องเที่ยว “มหกรรมดอกไม้อาเซียน”
+-  Под Судогдой из-за строительства М-12 деревня лишилась дороги
 -  Azam yang tertangguh
--  The Longest Johns: The Voyage Tour
--  Applications invited for wheat production competition
--  Remaining abducted FUDMA female students regain freedom – VC
--  Tak jadi lantik Tengku Zafrul, BAM kekalkan Norza sebagai Presiden
--  No-objection certificates approved for 6 stone-crushers
--  Lịch Mùa Vọng tuyệt vời cho tất cả mọi người trong danh sách của bạn
--  HEC permits IUB to start 4 PhD, 3 MPhil programmes
--  KPM tawar kaunseling kepada keluarga pelajar maut dilanggar
+-  مسؤول حوثي: أي تحرك عدائي ضد اليمن ستكون عواقبه وخيمة
+-  Prediksi Liverpool Vs Man Utd: Si Merah Libas Setan Merah
+-  Mendulang Suara dengan Gaya Gemoy
+-  Langgar pelajar sekolah: Pegawai kanan polis direman tiga hari
+-  Bruno Le Maire sort du rang
+-  RAKTA launches new generation of solar-powered public bus stops
+-  76ers se impone a Detroit y Pistons alcanza su peor crisis
+-  Christian Lindner im Interview: „Mir fallen durchaus noch Bereiche ein, wo der Staat sparen könnte“
