@@ -1,51 +1,51 @@
 # Latest News
--  النتيجة الإثنين.. كيفية احتساب الفائز بالانتخابات الرئاسية 2024
--  قطر تؤكد استمرار المفاوضات بشأن هدنة جديدة في غزة
--  كامل الوزير: خطة لتطوير جميع محطات السكة الحديد على مستوى الجمهورية
--  Telecom Diary: Here is why 6 GHz frequency range crucial for telecom carriers
--  Iako hrvatska kuna više nije u upotrebi čak 75 posto kovanica nije zamijenjeno
--  Grbin opleo po HDZ-u: "Zbog silnih afera u Hrvatskoj se ne može baviti ozbiljnom politikom"
--  Ministry of Education Suspends Schools and Institutes for 3 days
--  السيتي يتفوق مؤخرا أمام بالاس
--  Похитеният български кораб „Руен“ вероятно плава към Сомалия
--  Katso video: Seurakunnan myyjäiset keräsivät jälleen suuren yleisön – Vapaaehtoiset myivät lähes kaiken karjalanpiirakoista ruisleipään
--  Anketa o tržištu rada u BiH: Evo koja zanimanja će biti najtraženija u 2024.
--  Merkez Bankası başkanı neden annesinin evinde yaşıyor? Özgür Demirtaş, anlamadım dedi! Vatandaş cevap verdi!
--  Google estende prazo para o upgrade do controle do Stadia
--  Con este FESTIVAL DE OFERTAS y jornada social Fiorella Supermarket celebra el 7mo. Aniversario de su tienda Amparo
--  Viciado em Disney: por que ex-executivos não conseguem se distancia
--  Thinking Of Giving Up Refined Oil? Here's Why You Must Right Away
--  Gaji ASN di IKN Bebas PPh, Menpan RB Klaim Tak ada Kecemburan
--  كريستال بالاس خصم قوي للسيتي على ملعب الاتحاد
--  খাদ্য নিরাপত্তায় সহায়ক ভূমিকা রাখবে মেহেরপুর আঞ্চলিক কৃষি গবেষণা কেন্দ্র
--  Miała siedem lat, gdy grała Zosię w "Rodzince.pl". Emilia Dankwa jest już pełnoletnia
--  Lufthansa, jako pierwsza, ostrożnie wraca do Tel Awiwu
--  Veliki preokret i sjajni Luka Božić! Omjer od šest pobjeda i šest poraza nije nimalo zanemariv! U ovom trenutku zadarska momčad je na šestom mjestu
--  Muere Rafael Moll, legendario productor de Serrat, Peret, Sisa y 'El Último de la Fila'
--  Taoci koje su ubili izraelski vojnici držali bijele zastave
--  花旗開放年前可在家上班 員工憂飯碗不保
--  Nico Rosberg Thinks Former Mercedes Teammate Lewis Hamilton May Win Record 8th Title
--  Депутати и министри да могат да бъдат с двойно гражданство, реши Конституционната комисия
--  Πλούσιο θέαμα και συναρπαστικές μάχες στο Parimatch Corporate League 2023-2024
--  Νέα άφιξη παράτυπων μεταναστών – Πλοιάριο με 85 πρόσωπα στο Κάβο Γκρέκο
--  Μελέτη για την αποκατάσταση της περιβαλλοντικής ζημιάς που προκάλεσαν τα οδικά έργα στον Ακάμα
--  Pesta Pemilu 2024, Pastikan Kesehatan Mental Baik dengan Rajin Saring Informasi
--  أنشيلوتي يعلق على مسددي ركلات جزاء ريال مدريد
--  OAP fighting for life and two in hospital after horror three-car crash on Scots road
--  “내년 전 세계 사이버 범죄 피해 ‘1경’ 이상”
--  Modi's Guarantee! जब सभी से उम्मीद खत्म हो जाती है, तब ‘मोदी की गारंटी’ शुरू होती है, रैली में बोले प्रधानमंत्री
--  健康網》「弟弟」達平均值卻想再增大25％？ 醫列2大考量
--  Otvorena izložba "Art brut. Radovi iz kolekcije Infeld": Značaj psihijatrijske klinike kod Beča gde je doktor otkrio talente nekoliko pacijenata
--  WATCH | 'Boat' teaser witnesses Yogi Babu moving mountains to keep him afloat
--  Escándalo y polémica: Yailin contra Tekashi, ¿Realidad o show?
--  বাড্ডায় শিক্ষার্থীর লাশ উদ্ধার
--  獨居男家中身亡沒人知！ 遭17隻寵物犬分食 遺體「剩3塊骨頭」
--  Video: el fuerte posteo de CFK para recordar a Néstor y la cancelación de la deuda con el FMI
--  Kickoff | Klopp: 7-0 humiliation will help Man Utd
--  İstanbul'da pitbull alarmı! Köpekler korumaya alındı sahiplerine ceza yazıldı
--  Weihnachtsmarkt in Regensburg nimmt Wucher-Preise: Besucher wüten
--  Guingamp Gaza Solidarité : une quarantaine de personnes ont défilé au flambeau
--  Union Minister for Agriculture & Farmers’ Welfare Shri Arjun Munda visits Indian Institute of Agricultural Biotechnology at Ranchi today
--  NB I: A Vidi az őszi bajnok Paksot is elintézte és utolérte a Fradit a tabellán - videó
--  Emir von Kuwait im Alter von 86 Jahren gestorben
--  Could Naughty Dog Salvage Anything For A Simpler ‘Last Of Us Factions 2’?
+-  Europarlament i kraje członkowskie porozumiały się ws. przepisów, które mają lepiej chronić dziennikarzy
+-  Inchiesta sul libro su Grazia Deledda stampato con soldi pubblici
+-  Israele, Ucraina e Iran in piazza. "Noi soffriamo, i filopalestinesi sfilano"
+-  SON DAKİKA: Tarihte bir ilk! VakıfBank ve Eczacıbaşı, FIVB Dünya Kulüpler Şampiyonası'nda finalde karşılaşacak
+-  El papa lamenta esta "Navidad del dolor" en Tierra Santa por la guerra
+-  Married At First Sight legend left with a paralysed face after gruelling surgery as she reveals health update
+-  إصابة 3 أشخاص في تبادل لإطلاق النار خارج ملهى ليلي في أثينا
+-  Des Sénateurs Colombiens soulignent la prospérité au Sahara Marocain et fustigent la position adoptée par leur Gouvernement
+-  אחרי האסון ברצועה, משפחות החטופים קוראות: "הצבא לבד לא יכול לעבוד, צריך מהלך מדיני"
+-  ”Nasıl Yani?” Diyeceksiniz: Yüzün Tek Tarafını Tıraş Edip, Tek Tarafına Makyaj Yapmaya Sebep Olan İhmal Sendromu
+-  Erzurum'daki Gizemli Yolun Sırrı: Arabaların Kendi Kendine Yokuş Çıkarak İlerlemesinin Sebebi Ne Olabilir?
+-  জাতীয় স্মৃতিসৌধে লাখো মানুষের ঢল
+-  Slukas MVP 14.kola
+-  Barda ters bakma kavgası kanlı bitti
+-  Norvežnka ugnala skoraj nepremagljivo rojakinjo, Verbičeva 21.
+-  Musah out col Monza. Chance per Bennacer da titolare
+-  বঙ্গবন্ধুর স্বপ্নের সোনার বাংলা প্রতিষ্ঠায় আন্তরিকভাবে কাজ করতে হবে
+-  林世雄不同意《主要運輸基建發展藍圖》「重北輕南」 不擔心財赤影響進度
+-  Elvira Öberg avslöjar knepet – så ska hon ta guld
+-  Emigrantët/ Rama në Romë: Marrëveshja me Italinë nuk është antikushtetuese
+-  Pantas Tak Dijadikan Pacar, Haji Faisal Bongkar Beda Perlakuan Fuji ke Asnawi dan Thariq Halilintar
+-  Codacons, 'Natale quest'anno costerà 22 miliardi a famiglie'
+-  El trucazo para limpiar el teclado de tu notebook o portátil
+-  Izraelskí a katarskí predstavitelia sa stretnú pre dohodu o rukojemníkoch, ktorých drží Hamas
+-  歡樂滿東華2023丨汪明荃「明荃之友會」捐銀紙聚寶箱 盼打破往年籌20萬紀錄
+-  MM-sarjas tehti suur muudatus, fännid on pahased: WRC-le meeldib endale jalga tulistada
+-  Ungaria amenință Bulgaria că-i va bloca aderarea la Schengen dacă nu scoate taxa pe gazul rusesc: „Ne vom opune prin veto”
+-  روسيا تستهدف أوكرانيا بما في ذلك كييف بـ31 مسيرة
+-  Union Home Minister and Minister of Cooperation, Shri Amit Shah expressed gratitude to Prime Minister Shri Narendra Modi for Cabinet’s decision to designate Surat Airport as an International Airport
+-  ¿La luna de miel aguanta el ajuste? Milei pone en juego su capital político y hay dudas por la paciencia de la clase media
+-  Kuveyt'in yeni emiri Şeyh Meşal el-Ahmed el-Cabir es-Sabah oldu
+-  Traficante é preso e boca de fumo em residência abandonada é fechada pela quarta vez em Cuiabá
+-  Ivo Amulić o kćeri koju je dobio u 58. godini: 'Svakom bih u mojim godinama to preporučio'
+-  Cyclisme : Il annonce du lourd pour Julian Alaphilippe
+-  Arabii nu renunță la marele vis de a-l transfera pe Kylian Mbappe
+-  Cum a fost posibil ca Armata Israelului să ucidă trei ostatici israelieni. Primele concluzii ale anchetei
+-  Offre saisissante sur cette tablette tactile à petit prix, mais aux grandes performances
+-  Skutskärs segerrad fortsätter efter 6–5 mot Gagnef
+-  House Republicans could face one seat majority in 2024
+-  Schwarz-roter Koalitionsvertrag in Hessen ist beschlossen
+-  Förderung für E-Autos endet Sonntag um Mitternacht
+-  Protocolo antipiquetes | Bullrich advirtió a los que marchan el 20 de diciembre: “Que se queden en su casa o vayan a trabajar”
+-  قوات الاحتلال تقتحم شرق مدينة نابلس
+-  القسام تعلن حرق آلية عسكرية صهيونية
+-  بريطانيا : سفينة تابعة لبحريتنا أسقطت مسيرة في البحر الأحمر
+-  مروحية تقل جنودا مصابين تهبط بملعب في القدس
+-  India News | Youth Cong Activists Take out March to House of CM's Security Staff Alleging Assault on Protesters
+-  Szombati bajnoki körkép: Kikapott a listavezető Paks
+-  Suomalaiset naismäkihyppääjät menestyivät mainiosti Engelbergissä
+-  卓球 女子の国際大会 伊藤美誠 シングルス準々決勝で敗れる
