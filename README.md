@@ -1,11 +1,11 @@
 # Latest News
--  Xavi: "Se está explicando una irrealidad; aún podemos ganar cuatro títulos"
--  Djokovic revela las experiencias con Rafa Nadal en el Tenis de Élite
--  Defensor del Pueblo recibe alta distinción de la Cámara de Representantes
--  Contralor interino declara la siniestralidad vial como epidemia en Colombia
--  Petro volvió a defender a Santrich
--  Crisis financiera provoca renuncias masivas y protestas en hospitales del valle de Aburrá
--  Equipos colombianos se preparan para torneos internacionales en 2024
--  Colombia vs. México: Néstor Lorenzo quiere cerrar el año con ‘broche de oro’
--  Facianın adresi Bursa: Kontrolden çıkan araç bariyerlere çarparak durdu
--  81 ilde Çember Operasyonu! Bakan Yerlikaya paylaştı: İki bin 842 firari yakalandı
+-  Как попасть на арт-девичник? Новые пространства для самореализации в Душанбе
+-  «Мои братья ревнивые и всегда сопровождают меня». Откровения Ёсамин Давлатовой
+-  '굿바이, 레알 마드리드'...레전드가 떠난다
+-  신임 용인도시공사 사장에 신경철 전 LH 국토도시개발본부장 내정
+-  용인특례시의회, 제277회 제2차 정례회 폐회…내년 예산안 등 의결
+-  용인시공무원노조, 윤원균 시의장과 조합원 고충사항 해결 머리 맞대
+-  김대남, 용인시갑 예비후보 등록…"반도체 도시 용인 기반 조성 능력·자질 갖춰"
+-  이상일 용인시장 “내년 예산 많이 살렸지만 부족한 예산은 내년 추경 통해 확보”
+-  음주사고 적발에 신분 숨겼다 뒤늦게 보고한 경찰관 직위해제
+-  اللجنة الطبية العسكرية تختتم برنامجاً طبياً لعلاج الجرحى في مأرب
