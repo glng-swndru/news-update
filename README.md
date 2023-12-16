@@ -1,11 +1,11 @@
 # Latest News
--  Hamas turns Gaza streets into deadly maze for Israeli troops
--  حاكم الشارقة ينعى الشيخ نواف الأحمد الجابر الصباح
--  Israel's military says hostages waved a white flag before being killed by a soldier
--  Van Dongen verliest bij WK-debuut: 3-1 nederlaag tegen Penhall
--  Klage gegen Mötley-Crüe-Mitglied: Frau wirft Tommy Lee sexuellen Übergriff in Helikopter vor
--  El cardenal Becciu, condenado a 5 años y medio de cárcel por un escándalo inmobiliario
--  Индийски военноморски кораб е прихванал отвлечения „Руен“
--  Le début de carrière NBA de Victor Wembanyama, comparé à LeBron James
--  Deutsche Junioren gewinnen Titel bei der U21-WM
--  Ailing Mother Awaits Release of Kashmiri Scribe Sajad Gul, Despite PSA Quashed
+-  Komička Simona Salátová sa VYDALA: Aha, aká krásna nevesta z nej bola!
+-  Friends'in yıldızı Matthwe Perry'nin ölüm nedeni belli oldu
+-  Scurto: “Un buon punto”
+-  Torino-Empoli, i convocati: torna Radonjic
+-  Elon Musk aboga por regular la "inevitable" Inteligencia Artificial
+-  Brytyjski resort obrony: jeden z największych cyberataków na Ukrainę od początku wojny
+-  Premier Finlandii: sytuacja na wschodniej granicy to atak hybrydowy ze strony Rosji
+-  El Celta respira con un taconazo de Larsen y hunde aún más al Granada
+-  "التموين" تعتمد آلية جديدة لإنهاء أزمة السكر - فيديو
+-  وزيرة الثقافة تعلن تعليق الأنشطة الفنية ثلاثة أيام
