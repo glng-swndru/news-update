@@ -1,51 +1,11 @@
 # Latest News
--  La reduflación vuelve a casa por Navidad en algunos productos
--  Los canarios se rascan el bolsillo pero no se privarán de caprichos en la mesa esta Navidad
--  최측근 친강 ‘사망설’…관례 뒤엎는 시진핑의 1인 통치
--  스트레스 푼다고 폭음·폭식?…부작용 없는 스트레스 해소법 3
--  قيادات «الكهرباء» لـ «الأنباء»: الكويت فقدت رجلاً من رجالاتها العظماء
--  Barcelona defrauda una vez más a los que lo veían como candidato al título
--  El hombre que vino del petróleo para acabar con él
--  من وراء إطلاق الرصاص على جماهير نادي الاتحاد الليبي؟
--  Kareem Abdul-Jabbar Suffers Broken Hip
--  Kareem Abdul-Jabbar Suffers Broken Hip
--  Bradley Beal Leaves Game With Sprained Ankle, X-Rays Negative
--  Bradley Beal Leaves Game With Sprained Ankle, X-Rays Negative
--  Monty Williams On Pistons 22-Game Losing Streak: It's Deflating
--  Monty Williams On Pistons 22-Game Losing Streak: It's Deflating
--  Pistons Could Target OG Anunoby, Tobias Harris Via Trade
--  Pistons Could Target OG Anunoby, Tobias Harris Via Trade
--  Los deberes pendientes de la COP28
--  Barcelona, Atletico slip up in La Liga title race
--  Mali i Zi, hetime për parregullsi në regjistrimin e popullsisë
--  Slovenac Miran Fabjan nokautirao Tomislava Spahovića u sarajevskoj Zetri
--  UD-anställd och gisslan bland de dödade på Gaza
--  Miss France 2024 : pourquoi Malika Ménard (Miss France 2010) était absente ? Elle s'explique
--  Leicester pretende cobrir oferta de Zenit a Beraldo, do São Paulo
--  Serbian opposition challenges Aleksandar Vučić's grip on power in snap vote
--  Serbian opposition challenges Aleksandar Vučić's grip on power in snap vote
--  Is Russian foreign policy succeeding?
--  Is Russian foreign policy succeeding?
--  İsrail ordusundan rehine skandalı itirafı
--  فيديو. أخنوش: ‎نحن نربط النية بالعمل ومن لديه مشروع مجتمعي لا يجب أن يقول “عندي النية” وينتظر 40 عاماً
--  Patriots elevate RB Kevin Harris to gameday roster ahead of Chiefs matchup
--  [여성 칼럼] 내일도 출근하는 딸에게
--  ‘TV쇼 진품명품’ 다양한 추측이 난무한 ’무엇에 쓰는 물건인고?‘ 등 감정 의뢰
--  Citypress | What’s in City Press Sport: Safa's multimillion-rand security tender | MaMkhize’s confidante | Kodwa and boxing promoters’ legal fights
--  Citypress | What’s in City Press: Zuma dares Cyril and the ANC | R4bn water tanker controversy | Bushiris’ properties to go under the hammer
--  لأول مرة.. قرار عاجل بشأن اختبارات رخصتي التعليم العام والتخصصي
--  عشرات الآلاف من عملة اليورو ملقاة أمام بنك في دولة أوروبية.. ما الأمر؟
--  김유정♥송강, 달콤한 입맞춤 엔딩…마침내 맞닿은 마음 [마이데몬](종합)
--  결국 옛 스승과 재회? 뮌헨·독일 핵심 MF, 이적 가능성↑..."PL 최고의 팀 영입 명단 1순위다"
--  하나금융, ‘하나 DxP 과정’ 2기로 데이터 핵심인재 30명 배출
--  이세영, 죽음의 진실 알았다…♥배인혁과 '쌍방 고백'→얽히고설킨 악연 [열녀박씨](종합)
--  Anganwadis : శివాలెత్తిన అంగన్వాడీలు
--  '효심이네' 유이, ♥하준에 이별 통보?…"여자친구 못 될 것 같다" [효심이네](종합)
--  Más líos legales: Enfrenta Gloria Trevi cargos con Hacienda por posible uso de ‘facturera’
--  공공 현장에 스며든 민간 SaaS 서비스…"업무효율↑ 비용↓"
--  «El miedo tiene mucho más poder que cualquier otra emoción»
--  Pendaftaran Mahasiswa Baru UM Surabaya Gelombang I Telah Dibuka, Cek Syarat dan Jadwalnya
--  القائد خالد العظمي .. في مواجهة طوفان ( المؤامرة ) الكبرى ...!!!| كتب عبدالله جاحب
--  Hot Water Might Just Be The Reason Your Homemade Bread Didn't Rise
--  Resumão: Chelsea e Newcastle vencem, enquanto Atlético de Madrid é derrotado; Barça fica no empate
--  Mueren 61 migrantes en un naufragio frente a las costas libias
+-  Capturan al “Perica” solicitado por EE.UU. por delitos relacionados al narcotráfico
+-  Erdoğan’dan sonra Bakan Koca da depremzedelerden ‘helallik’ istedi: Daha iyisini yapabilirdik
+-  Teenager Alex Batty returns to Britain after being missing for 6 years and then turning up in France
+-  Laura Di Marco: “Empezó la temporada del ‘Ah, pero Milei’”
+-  أسباب وأعراض وعلاج كسر عنق الفخذ لدى كبار السن
+-  نشرة التوك شو.. استمرار أزمة السكر والبصل وتداعيات تهديد الحوثي للملاحة على قناة السويس
+-  Германия — Насколько подорожают бензин, газ и печное топливо
+-  فالنسيا يقتنص تعادلا ثمينا أمام برشلونة في الدوري الإسباني
+-  Солдаты ВСУ назвали контрнаступление на Днепре самоубийством
+-  Quaker Oats recalls granola products over concerns of salmonella contamination
