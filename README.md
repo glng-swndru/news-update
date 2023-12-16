@@ -1,11 +1,11 @@
 # Latest News
--  Dijeron que su bebé murió, pero al reclamar el cuerpo les entregaron una muñeca
--  Recuperado el cuerpo de otro rehén israelí en Gaza, según las familias de los secuestrados
--  शाम के खाने में भूलकर भी न खाएं ये चीजें, वरना सेहत को होगा बड़ा नुकसान
--  कोरोना से ठीक होने के बाद मानसिक रूप से रहें स्वस्थ, अपनी डाइट में शामिल करें ये 5 चीजें
--  الأمطار تشكل بحيرات في المناطق البرية بالحدود الشمالية (صور)
--  [트렌D] 합리적 소비 방안, 편의점·마트·이커머스 ‘PB상품’ 확대
--  Lotte Fine Chemical imports 5,500 tons of urea from Vietnam
--  «El miedo tiene mucho más poder que cualquier otra emoción»
--  Американский генерал ударил украинского солдата при Зеленском
--  Canucks fall to Wild, 4-game win streak ends with shootout loss
+-  İsrailli bakandan AA muhabirine saldıran muhabire göreve dönme sözü
+-  “와 진짜 미친 추위”…전국 한파특보에 곳곳 눈, 빙판 주의
+-  Νεκροί τρεις Παλαιστίνιοι από ισραηλινά πυρά στη Δυτική Όχθη
+-  Galicia, de vacío en los Forqué de '20.000 especies de abejas'
+-  ¿Tribuna Lionel Messi? Newell’s comenzó con la remodelación de su estadio
+-  Canada's Susko earns bronze in America-Pacific luge championship, ninth in World Cup
+-  Rosario Central vs. Platense, en vivo, por la final de la Copa de la Liga
+-  Rosario Central vs. Platense, en vivo: cómo ver online la final de la Copa de la Liga
+-  السجن 15 عاما لـ4 متهمين بحيازة 180 طربة حشيش في الإسكندرية
+-  Prakiraan Cuaca BMKG: Sebagian Daerah di Jawa Berawan, Waspadai Hujan di Wilayah ini
