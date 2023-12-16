@@ -1,51 +1,51 @@
 # Latest News
--  아시안계 보스턴 시장, 크리스마스 파티서 백인 제외 논란
--  Mercado: Pumas y Christian Tabó le generan un serio problema a Cruz Azul para el Clausura 2024
--  Jokowi Bilang akan Bahas Pengungsi Rohingya di KTT ASEAN-Jepang
--  CU, 망그러진 곰 딸기 샌드위치 선보여
--  [부고] 유철준(부국증권 성남지점장)씨 모친상
--  동해묵호신협, 동해시지체장애인협의회에 깍두기 100통 전달
--  이철규 의원 “동해 송정지구, 국토부 도시재생사업 공모 최종 선정”
--  삼척시, 수소 R&D 특화도시 실증단지 준공식 개최
--  김성종 동해해경청장, 경북권 민생 치안현장 점검
--  [포토]구로구, 고려대 구로병원과 ‘구로구치매안심센터’ 위탁운영 협약
--  남양주시복지재단, 2023년 남양주시 후원자의 날 ‘나눔이 빛나는 DAY’ 성료
--  남양주시의회, 2023년 주민자치 성과공유회 참석
--  백경현 구리시장, 구리시 미래 비전 제시를 위한 직원 특강 실시
--  남양주도시공사, ‘인권경영 선언문’ 선포
--  외환당국·국민연금, 350억달러 외환스와프 1년 연장
--  Lagu BTS Saat Debut 2013 Puncaki Tangga Lagu iTunes Amerika Serikat
--  Jokowi Akan Bahas Pengungsi Rohingya di KTT ASEAN-Jepang
--  Alia Bhatt wears a gorgeous 'Laddoo Pila' saree for her friend's wedding. Her saree costs...
--  Tiger Woods Makes Pro-am Walk Ahead of Title Hunt With Son Charlie
--  Perth Wildcats ride Bryce Cotton to one-point thriller over Tasmanian JackJumpers
--  आँसु (कविता)
--  Denied leave, Bengaluru watch factory worker dies by suicide
--  Nicki Minaj Batalkan Rilis Lagu Kolaborasi dengan Kanye West
--  เลขฝัน “เจ๊นุ๊ก บารมีมหาเฮง” เผยเลขเด็ดก่อนหวยออกบ่ายวันนี้ 16 ธ.ค. 66
--  China detects seven cases of new Covid-19 subvariant JN.1. What are the symptoms?
--  Mayim Bialik no longer co-hosting 'Jeopardy!,' leaving Jennings as sole host
--  Yulimar Rojas entregó insumos y ayudas en escuela de talentos deportivos
--  My tours shouldn’t mean traffic jams: Telangana CM Revanth Reddy
--  Shipping Firms Suspend Red Sea Traffic After Yemen Rebel Strikes
--  गजल
--  Pregnant Hilary Duff shares sonogram of her third baby with husband Matthew Koma as she adorably calls the child 'little stinker with the cute nose'
--  Meek Mill breaks down in tears as PA Governor signs probation reform bill: Rapper recalls his own anxiety living in fear that a minor infraction could be the end of his freedom
--  Jadi Pengurus PBTI, Aliong Mus: Kami Akan Konsolidasi Tatap Asian Games 2024
--  Year Ender 2023: 5 tales that prove dogs are not just man's best friend but lifesavers too
--  Leon Edwards issues chilling warning to Colby Covington in final face-off before UFC 296 headliners meet in huge main event, following American's grim jibe about his late father
--  Todo listo: ¡Llegó Jarlan Barrera y así será fichaje!
--  Jake Paul greets Vivek Ramaswamy ahead of fight vs Andre August after inviting the Republican presidential candidate and his good friend to sit ringside in Orlando
--  Ford Ranger smashes through centre barrier on Perth freeway before colliding with taxi in early morning crash
--  Yuk Nikmati Promo Meriah di Berbagai Merchant Saat Sambut HUT ke-128 BRI
--  Australia v Pakistan: first Test, day three – live
--  'If Not Addressed...': Indian-American Lawmakers Warn Pannun Murder Plot Could 'Significantly Damage' Ties
--  Prince Harry vows to continue legal battle against UK media: ‘The mission continues’
--  أكثر اللاعبين الأجانب تأثيرًا فى الدورى هذا الموسم.. مابولولو الأبرز
--  لقاءات قوية فى ثامن جولات دورى رجال الطائرة
--  15 يوماً تفصل محمود متولى عن المشاركة فى تدريبات الأهلي الجماعية
--  تعرف على التوصيات اللازمة للوقاية من حوادث الطرق
--  كوبرى البلينا بمحافظة سوهاج.. أحد شرايين التنمية فى صعيد مصر.. صور
--  4 مشروعات يمولها مرفق البيئة العالمى فى مصر المرحلة المقبلة.. تعرف عليها
--  لو عاوز ترجع "أوردر" أونلاين.. اعرف حقك وفقا لقانون حماية المستهلك
--  اعرف أسباب أهمية استضافة مصر لقمة اتفاقية برشلونة 2025
+-  Kerala Road Accident: केरल के मलप्पुरम में दर्दनाक सड़क हादसा, 5 लोगों की मौत, दुर्घटना में 4 साल की बच्ची की भी गई जान
+-  Sri Mulyani Sebut APBN 2023 Masih Ada Sisa Rp 529 Triliun yang Belum Dibelanjakan
+-  Rohit Sharma Fan Burns Mumbai Indians' Cap: हार्दिक पंड्या को कप्तान बनाए जाने के बाद फैंस हुए नाराज, मुंबई इंडियंस की कैप जलाने का वीडियो आया सामने
+-  Biaya Hidup di Jakarta Capai Rp 14,88 Juta per Bulan, DPRD Minta Subsidi untuk Warga Ditambah
+-  นายกฯเศรษฐา พบผู้บริหารบริษัท Kubota
+-  Flådeskib sejlet mod Somalia efter melding om formodet piratangreb
+-  Flådeskib sejlet mod Somalia efter melding om formodet piratangreb
+-  Ahmad Muzani Sebut Fenomena Orang Dalam Selalu Ada
+-  В Россотрудничестве рассказали, где могут открыть Русские дома
+-  Haddad fala em “amadurecimento” do Brasil com aprovação de reforma
+-  La scritta sulla mano della sua ospite sconcerta Myrta Merlino: sul palmo...
+-  Venezuela, Guyana agree not to 'use force' to settle land dispute
+-  HC dismisses businessman’s claim over government land in Shamshabad
+-  Autoridades Ancestrales dicen que “golpe de Estado” sigue en desarrollo en Guatemala pese a fallo de la CC que garantiza transición
+-  Khajaguda junction to be closed for traffic from today
+-  السبيل الوحيد أمام الاتحاد للتصالح مع جماهيره بعد خيبة المونديال
+-  Минобороны: полк РВСН в Оренбургской области перевооружили на «Авангард»
+-  モデル谷まりあさん「思いが届いた」 茨城県ほしいもアンバサダーに
+-  Applications for birth/death certificates pile up in Musheerabad circle
+-  الهلال هذا الموسم … أرقام قياسية جديدة كل يوم
+-  The Who: hace 40 años se disolvía uno de los grupos más influyentes de la historia del rock
+-  FIFA Club World Cup 2023: Benzema’s penalty blocked as Al Ahly thrashes Al-Ittihad to book Fluminense semifinal
+-  Four-year-old boy killed in accident
+-  Chapel Hill police conduct underage drinking check, reminds businesses to sell alcohol responsibly
+-  Medie melder PGA Tour tæt på aftale med sportsinvestorer i USA
+-  Medie melder PGA Tour tæt på aftale med sportsinvestorer i USA
+-  الهلال قتل المنافسة … اليأس عنوان خصومه
+-  United States to gain access to 15 military bases in Finland
+-  Jurnalis Al Jazeera Samer Abudaqa Tewas dalam Serangan Israel di Gaza
+-  Cold wave hits Korea; temperatures to further drop
+-  Playback singer Anup Ghoshal passes away at 77
+-  Arsenal’s Arteta cleared of misconduct charge after lashing out at officials
+-  EPL to have its first female ref on Dec 23
+-  7-0 happens once in a lifetime: Klopp
+-  Ex-Turkish team chief banned for punching ref
+-  Set of 6 Messi World Cup shirts auctioned for USD 7.8 million
+-  India must gain against Spain!
+-  Indian women, men face defeat against Spain
+-  Michelle scores four as Don Bosco girls win U-10 handball
+-  Sauber returns to F1 grid for 2024 season
+-  Royal Expert Believes Prince Harry and Prince William’s Feud Will Outlive King Charles
+-  ماذا قدم مالكوم في مباراة الهلال والوحدة؟
+-  O il için sel uyarısı verildi! Meteoroloji uyardı: Hafta sonuna dikkat
+-  Ponsel Realme Seri C dengan Refresh Rate Mumpuni Rilis di India, Kapan ke Indonesia?
+-  ‘Parliament security breach accused wanted to create anarchy, force govt to meet their demands’
+-  La mexicana Alexa Grasso es elegida como la Peleadora del Año
+-  Inauguración del Tren Maya: así fue el recorrido de AMLO y Vila (VÍDEOS)
+-  Jonas Valanciunas scores season-high 29 points as Pelicans hold on to beat Hornets 112-107
+-  Mumbai Indians Lose Followers: मुंबई इंडियंस को हुआ बड़ा नुकसान, हार्दिक पंड्या को कप्तान बनाने के बाद सोशल मीडिया पर घटे फॉलोअर्स
+-  Netto-Kunden werden plötzlich zur Kasse gebeten – doch sie haben nichts beim Discounter gekauft
