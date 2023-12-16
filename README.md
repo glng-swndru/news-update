@@ -1,51 +1,51 @@
 # Latest News
+-  Get ready for a grand New Year party bash in Mumbai with our exclusive guide
+-  Dwayne Johnson to play MMA fighter Mark Kerr in `The Smashing Machine`
+-  George Clooney, Adam Sandler to lead Noah Baumbach`s next movie
+-  B`day girl Shefali Jariwala says Shreyas Talpade will `bounce back stronger`
+-  `Friends` star Matthew Perry`s cause of death revealed
+-  Delhi records minimum temperature of 5.5 degrees Celsius, AQI `very poor`
+-  호텔신라, '지속가능경영유공 정부포상' 국무총리 표창 수상
+-  한전 6개월 흑자행진에도 적자폭은 '그대로'
+-  주말, 갑자기 찾아온 한파..."이번 추위 언제까지?"
+-  آخر تطورات العملية العسكرية الروسية في أوكرانيا /16.12.2023/
+-  لحظة بلحظة.. الحرب في غزة تدخل يومها الـ71
+-  Rabiosa lucha de Leiner para vencer a Petro
+-  Mañana
+-  Primer millonario
+-  Mitchell Marsh declines Test opening role for Australia after Warner’s retirement
+-  عكاشة في أعلى مستويات الاكتظاظ
+-  Pakistan’s interior minister Bugti stands down
+-  PM MITRA Park To Create 3 Lakh Employment Opportunities
+-  PM To Inaugurate World's Largest Corporate Office, Surat Diamond Bourse
+-  Ratan Tata Threat Suspect Traced And Apprehended By Mumbai Police
+-  Surat Airport To Get International Status As Cabinet Approves Proposal
+-  India Calls For Zero Tolerance For Terror Actors, Sponsors At UN
+-  SBI's MCLR Increase Could Lead To Higher EMIs
+-  Mahindra Finance Ventures Into Insurance Distribution
+-  Ipsos India Appoints Unni Hariharan To Lead Tech & Commerce
+-  Еще одного разработчика гиперзвуковых технологий Путина арестовали за госизмену
+-  ترتيبات ما بعد بنكيران
+-  DIREKT: Ukraina: Attackdrönare mot Kiev nedskjutna
+-  Political Instability Hinders Pakistan Response to DI Khan Attack
+-  Trainer Walter vor "Endspiel"?: Bedrohlicher "Sturm" braut sich beim HSV zusammen
+-  5 Aktor Laga Kelas Dunia Lawan Main Jet Li, Iko Uwais Menyusul?
+-  ليتوانيا تسلم أوكرانيا ذخائز إضافية
+-  EPL: Souness reveals only one Man Utd star will get into Liverpool’s team
+-  Lisakohustused täidavad omavalitsuste niigi pingelist eelarvet
+-  „Herz ist innerlich gebrochen“: Lehrer spricht über Angst vor AfD und überlegt, auszuwandern
+-  مدينة اختفت قبل أكثر من 1500 عام.. أين كانت؟
+-  В Бурятии с начала холодов 12 человек замёрзли насмерть
+-  "Çember"e alındılar! Yüzlerce kişi yakalandı
+-  Bölgede dengeler değişiyor! Komşudan Türkiye'nin dev projesi için talep
+-  Божович: Миранчуку лучше остаться в Европе
+-  मध्यस्थता वार्ता के लिए मोसाद प्रमुख के यूरोप में कतर के प्रधानमंत्री से मिलने की उम्मीद
+-  '프렌즈' 故 매튜 페리, 사망원인=케타민 부작용…'불법투약 가능성' 제기 [해외이슈]
+-  'CY 3회' 214승 레전드, 결국 수술대 오른다…'TEX 날벼락' 슈어저 허리디스크 수술→6~7월 복귀 전망
+-  "어렸을 때 좋아한 선수라"…SF 'No.51' 이정후 등번호에 美매체도 관심, 왜 51번을 달았나
 -  Община Варна организира Рождественски хоров фестивал
 -  Затварят временно две кръгови кръстовища заради ремонт на улица "Девня"
--  Uusi kirja Suomen jääkiekkovalmentajista – muutama faktapuute vaivaa
--  Champagne : 7 idées pour le remplacer pendant les fêtes
--  Covid : les endroits où vous devriez remettre le masque
--  Bradley Cooper et Irina Shayk : leur fille de 6 ans fait ses premiers pas sur le tapis rouge
--  Cadeaux pour un ado : ce qu'il faut éviter de lui acheter
--  Mayim Bialik has been told she's no longer the host of Jeopardy!
--  Everybody seems to like the Stranger Things stage play
--  Mayim Bialik has been told she's no longer the host of Jeopardy!
--  Everybody seems to like the Stranger Things stage play
--  Merkez Bankası Başkanı İstanbul'da Pahalılıktan Kiralık Ev Bulamadı, Annesinin Yanına Taşındı
--  Ignatul la români, tradiționala tăiere a porcului de Crăciun. Degustare la Muzeul Astra din Sibiu FOTO VIDEO
--  ¡En la órbita nacional! El Quelite, sede del nacional de Ulama de Cadera
--  बेहद टेस्टी है यह डबल फ्राई कचरी...15KG प्याज 3 घंटे में हो जाता है चट
--  Yön uutiskooste | Nämä ovat Suomen parhaat lukiot, Matthew Perryn kuolinsyy selvisi
--  Yön uutiskooste | Nämä ovat Suomen parhaat lukiot, Matthew Perryn kuolinsyy selvisi
--  Hitachi gets grant for scalable server system for executing applications with replicated logic units
--  Yext gets grant for method to suppress duplicate listings in search results
--  Ribbon Communications gets grant for migrating network interfaces in a kubernetes system
--  Otonomo Technologies gets grant for normalizing automotive data from multiple sources
--  Mavenir Systems gets grant for method of validating an access token for wireless communication
--  Lacework gets grant for guided anomaly detection framework for cloud deployment monitoring
--  How to make a balloon in Lego Fortnite
--  How to evolve Inkay into Malamar in Pokémon Scarlet and Violet
--  Netflix's Chicken Run: Dawn of the Nugget is a Mission: Impossible film
--  How to get shells in Lego Fortnite
--  Godzilla x Kong, and other recent movies, prove Godzilla can do it all
--  How to get cord in Lego Fortnite
--  How to evolve Inkay into Malamar in Pokémon Scarlet and Violet
--  Robert Pattinson's The Batman added to Batman: Arkham Knight
--  How to get shells in Lego Fortnite
--  Pokémon Go December 2023 Community Weekend event guide
--  How to get cord in Lego Fortnite
--  Taylor Swift's Eras Tour, Barbie, and every new movie to watch this weekend
--  How to make a balloon in Lego Fortnite
--  Pokémon Go December 2023 Community Weekend event guide
--  Netflix's Chicken Run: Dawn of the Nugget is a Mission: Impossible film
--  Robert Pattinson's The Batman added to Batman: Arkham Knight
--  Taylor Swift's Eras Tour, Barbie, and every new movie to watch this weekend
--  Godzilla x Kong, and other recent movies, prove Godzilla can do it all
--  Shadow Gambit: The Cursed Crew gets mod support in surprise final update
--  Valve's festive treat for "thousands" more DOTA 2 cheaters is a lump of coal and a permanent ban
--  Elden Ring's Shadow of the Erdtree DLC out in February, partner leak suggests
--  Festive fan-game Birdo's Holiday Brawl is a late entrant for game of the year
--  Don't expect to see Baldur's Gate 3 on Xbox Game Pass, developer says
--  וושינגטון ניצחה 123:137 את אינדיאנה, דני אבדיה קלע 6 נקודות
--  शाहजहांपुर में नाबालिग से गैंगरेप के बाद हत्या, नीम के पेड़ से लटकता मिला शव
--  Pedestrian seriously injured in Spring Bank crash
--  Hull man raises money for mental health - by exercising for 24 hours straight
+-  جسٹس سردار طارق نے بطور قائم مقام چیف جسٹس حلف اٹھالیا
+-  Jennifer Lopez Returns to Set of Sports Flick 'Unstoppable' in L.A. (Photos)
+-  এবার অশান্তির ছায়া যশ-নুসরাতের সংসারে
+-  РИА Новости: фонд для журналистов Украины спонсирует террористов
