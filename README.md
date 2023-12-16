@@ -1,11 +1,51 @@
 # Latest News
--  Unfall bei Bolsehle: Auto überschlägt sich und kommt nach 50 Metern zum Stehen
--  Kuwait’s Emir Sheikh Nawaf dies, Sheikh Meshal named as successor
--  Tredje raka storsegern för U18-damerna
--  Tigres se llevó el duelo de felinos en el Monumental
--  A los 90 años, murió el filósofo y profesor italiano Toni Negri
--  تنخواہوں پر ٹیکسز لگانے کی خبروں کی حقیقت سامنے آگئی
--  OnePlus 12, 12R confirmed to launch globally on January 23: Pricing and specifications
--  Stor villa på 244 kvadratmeter såld i Västerås – priset: 7 150 000 kronor
--  Key ingredient for life found at Saturn’s icy moon Enceladus
--  تواصل توقف بطاحات جربة عن النشاط بسبب الرياح القوية
+-  Citypress | Reconciliation is not about forgetting wounds of the past but facing them courageously - Ramaphosa
+-  Suomen miehet sukelsivat hiihdon maailmancupissa yhtä surkeille sijoille kuin naisetkin
+-  Suomalainen teinitähti loisti taas maailmancupissa
+-  Toyota-pomo on saanut tarpeekseen turhasta parranpärinästä: ”Se on Kallen asia”
+-  Dev gemiler Süveyş Kanalı'ndan vazgeçti
+-  Katja Burkard und Barbara Schöneberger verraten, ob sie sich für den "Playboy" ausziehen
+-  تراند اليوم : شركة K-Group EG تعلن عن وظائف شاغرة للمؤهلات المتوسطة
+-  ريلمي تهدي الفئة الاقتصادية هاتف Realme V50s بشاشة 120Hz واتصال 5G بسعر مذهل
+-  نواف الأحمد الصباح... لماذا سُمي "أمير التواضع والعفو"؟
+-  وائل الدحدوح يروي لأول مرة تفاصيل استهدافه برصاص الاحتلال: نزفت بشدة
+-  Avrupa Birliği: Görevini yapan gazetecilere yönelik saldırıyı kınıyoruz
+-  제7차 Astana Club 회의 개최
+-  سارع لإنقاذ نفسك.. ظهور هذه العلامة على الأصابع قد تكون جرس إنذار لمرض خطير!
+-  تعرف على أفضل الأطعمة التي "تساعدك على أن تبدو أصغر سنًا" ولها فوائد مضادة للشيخوخة
+-  الأردن ينتج 60% من الاستهلاك المحلي من المنتجات الزراعية
+-  تمديد مهمة حاملة الطائرات الأميركية للبقاء قرب الاحتلال
+-  القبض على شخص ارتكب جريمتي قتل منفصلتين في عمان
+-  تجارة الأردن تدعو لتدريب خريجي تكنولوجيا المعلومات قبل تخرجهم
+-  حزب الإتحاد الوطني الأردني ينعى أمير الكويت
+-  القسام: فجّرنا عبوتين في 7 جنود وثالثة في منقذيهم
+-  الإطاحة بشخص في محافظة "صامطة" لترويجه الحشيش المخدر
+-  رئيس مدغشقر الجديد يستقبل رئيس مجلس النواب ممثلاً للملك محمد السادس في حفل التنصيب
+-  Unpaid Energy Bills Reach Record-High Level in UK Amid Cost of Living Squeeze
+-  AMZN Stock Forecast: How AWS-BYD Partnership Could Fuel Amazon’s Growth
+-  '김민재 전 동료 노리는' 첼시, 겨울 이적시장 3명 방출 유력→1순위는 바로 '이 선수'
+-  아스널 캡틴보다 순위가 높다?..."아시안게임 금메달 주역, 올 시즌 유럽 MF 패스 지표 7위"
+-  ¿De qué depende que Stiven Mendoza juegue en Millonarios?
+-  Turkey’s central bank chief unable to afford home in Istanbul, to move in with parents
+-  Mohammed Sharif: విద్యావ్యవస్థను పాతాళానికి నెట్టేసిన సీఎం జగన్‌రెడ్డి
+-  WoW players petition for bans as gold buying crisis deepens
+-  Mario Vargas Llosa anuncia su retiro como columnista de opinión
+-  Futbolcu izlemek için Nijerya'ya gitti, yakalandığı sıtma hastalığı nedeniyle hayatını kaybetti! Kocaelispor yöneticisi Ekrem Can'ın acı ölümü...
+-  Oreo’s newest flavor inspired by a classic NYC treat — the black and white cookie
+-  Feliz Navidad 2023: ¿Cómo llamar a Santa Claus?
+-  الخليج اليوم .. من بوابة العمل الأمني والعسكري.. الشيخ مشعل الأحمد الصباح أميرا للكويت
+-  الخليج اليوم .. بريطانيا تسقط مسيرة تستهدف الشحن التجاري في البحر الأحمر
+-  الخليج اليوم .. الملك سلمان وولي العهد: السعودية وشعبها يشاركون الأشقاء في الكويت أحزانهم
+-  Писториус: Европа трябва да се превъоръжи, задават се нови заплахи - Труд
+-  Ziviler Ungehorsam - Worauf sich die Aktivisten der Letzten Generation berufen
+-  Фратрия завърши годината с победа и на точка от върха
+-  Savršeno vrijeme za brak: Naučnici izdvajaju ovu godinu kao najidealniju
+-  Úrokové sadzby v eurozóne sú už zrejme na vrchole. Znižovanie je však predčasné, myslí si Nagel
+-  Machado asegura que acudió al Supremo para «desafiar a Maduro y al régimen»
+-  Tra armi e combustibili fossili: la spinta per la finanza “sostenibile” è arrivata al capolinea?
+-  Bakan Güler: 1 Ocak'tan bugüne kadar 2084 terörist etkisiz hâle getirildi
+-  Confruntarea dintre UTA și Farul Constanța s-a încheiat cu 0-0
+-  NOVAKOV POTEZ ZA KOJI NIKO NIJE ZNAO Đoković je ostavio porodicu, napustio avion i krenuo u bolnicu, a razlog će vas naježiti
+-  Матч звезд Фонбет Кубка России. Путь РПЛ выиграл у Пути регионов, но в челленджах уступил
+-  Solidarité pour Noël à Ans : 135 “boîtes à chaussures” pour les plus démunis ont été récoltées et seront distribuées à partir du 15 décembre
+-  Putin lässt sich einstimmig für die nächste Runde nominieren
