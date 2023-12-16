@@ -1,11 +1,51 @@
 # Latest News
--  Cameroun :: Enlèvement De Cinq Enfants À Nkongsamba :: Cameroon
--  Indian Navy’s Mission Deployed Platforms Respond To Hijacking Incident In The Arabin Sea
--  Nove informacije o Schumacheru: Je li pogriješio liječnički tim na mjestu nesreće?
--  Moto Guzzi Stelvio built for adventure
--  Etil Alkol Takip Sistemi geliyor
--  Kuveyt'in yeni emiri belli oldu
--  İsrail ordusu Lübnan sınırında İHA düşürdüğünü bildirdi
--  Fallece el historiador José Manuel Castellano, autor de “Historia de Canarias para jóvenes”
--  Bundesmarine im Roten Meer? Wir sind nicht einsatzbereit
--  Nyolcszáz hátrányos helyzetű gyereket láttak vendégül a Parlamentben
+-  Ανοιχτά τα μαγαζιά την Κυριακή 17 Σεπτεμβρίου - Μέχρι τις 18:00 σήμερα, σε ισχύ το εορταστικό ωράριο
+-  Christodoulides: Cyprus does not support spying on journalists
+-  The Super Bowl is just 57 days away but the NFL's playoff picture is far from clear... the 49ers are the ONLY team to have booked their spot - and it's all to play for with four weeks to go
+-  O Museo acolle a presentación das 'Historias'
+-  West Indies vs England 3rd T20I 2023 Live Streaming Online on FanCode: Watch Telecast of WI vs ENG Cricket Match on TV in India
+-  Sports News | Mauritius Open: Soderberg Overtakes Field to Take Lead at La Reserve Links
+-  Sports News | India's Rohit Meets Nepal's Tamang in Final of All-India Amateurs Golf
+-  Poruka sa protesta u Nikšiću: Ne smijemo dozvoliti da nas se...
+-  基督教聯合醫院35歲女病人擅自離院 晚上已自行返回病房
+-  World News | Pakistan's Political Parties Welcome Announcement of Poll Schedule Prompted by Apex Court
+-  Di nuovo in fiamme l'auto della sorella di Rino Gattuso: era già successo a ottobre
+-  Sheikh Nawaf Al Ahmad Al Sabah Dies at 86: Kuwait's Emir Sheikh Passes Away
+-  حدادا على رحيل أمير الكويت.. الأوبرا تعلق أنشطتها 3 أيام
+-  La Liga: Siga em direto os resultados e marcadores da 17ª jornada
+-  Pakistan Lahore Artificially Rain: পাকিস্তানে এই প্রথম নামানো হল কৃত্রিম বৃষ্টি, দেখুন ভিডিয়ো
+-  Europe is stuck in a need-hate relationship with migrants
+-  India News | Himachal Pradesh CM to Inaugurate 'Him Mahotsav' in Delhi Tomorrow; Event to Showcase State's Crafts, Cuisine, Cultural Heritage
+-  Liverpool 10-1 Man Utd: Combined XI dominated by Reds with Nunez picked over Hojlund
+-  رئيس الوفد ينعى أمير دولة الكويت.. ويثني على مواقفه في خدمة قضايا العالم العربي والإسلامي
+-  Зимняя сказка: Думскую башню празднично оформили к Новому году
+-  「玩」注釋組詞「玩弄女性」 《新華字典》在杭州被網友起訴了！
+-  "Sorteio? De certeza que quem nos calhar não ficará muito satisfeito"
+-  Samsun'da 6 sene kesinleşmiş hapis cezası olan FETÖ firarisi yakalandı
+-  İYİ Parti'de kriz giderek tırmanıyor! "İhtiraslar, ayak oyunları bıktırdı" diyerek istifa etti
+-  رئيس الشيوخ ينعى أمير الكويت.. والمجلس ينكس أعلامه
+-  Mit Stargästen am Mikro: Königin Camilla geht unter die Podcaster
+-  Hoeneß spricht über Bayern-Rückkehr als Cheftrainer
+-  Hoeneß spricht über Bayern-Rückkehr als Cheftrainer
+-  ১৮ ডিসেম্বর দেশব্যাপী সর্বাত্মক হরতাল
+-  SREĆAN KRAJ POTRAGE - OTAC POTVRDIO ZA MONDO! Nađena Milica iz Novog Sada nakon šest dana - evo u kom gradu je bila!
+-  Bobby Brazier reveals what he will do if he wins Strictly Come Dancing as dance partner Dianne Buswell makes heartfelt declaration
+-  Президент Аргентины разыграл свою зарплату в Instagram
+-  أفضل فريق في أوروبا.. «الحصان الأسود» يهزم ريال مدريد ومانشستر سيتي
+-  Bes 3 Whirlpool 7 kg semi automatic washing machine: Affordable convenience
+-  El increíble reality que harán las hermanas Nara desde Punta del Este en enero
+-  У Києві демонтували радянський пам'ятник Таращанець
+-  Junín: pepean y ultrajan a dos jóvenes en Huancayo
+-  Balık fiyatları gram altınla yarışıyor! İstanbul'da balık fiyatları ne durumda?
+-  رئيس مجلس النواب ينعى أمير دولة الكويت
+-  Dancing On Ice's Amber Davies links arms with skating partner Simon Proulx-Senecal as they step out after final training session of the year
+-  Пензенские врачи развеяли пять мифов об алкоголе
+-  Habeck streicht E-Auto-Förderung ab Sonntag – „Autopapst“ fürchtet fatale Folgen
+-  Ötezer család kapott élelmiszeradományt
+-  🎥 | Simon Whitlock realistisch over WK-partij tegen Gary Anderson: ‘Hij maakt me in’
+-  Una Alerta que desenmascara depredadores sexuales
+-  Николовски: Субвениција до 90%, повеќе за сите се и мерките за помали сметки на струја за граѓаните и компаниите
+-  PM Narendra Modi, Amit Shah and Other Top Officials Watched Premanand Maharaj's Video During Key Meeting? Check What PIB Fact Check Says
+-  Jonatan Viale tras su salida de LN+: "Si no recibís la pauta como periodista, te echan"
+-  Гладков: 12 коров погибли при сбросе взрывчатки с БПЛА в Белгородской области
+-  Like a Dragon Gaiden ganha dublagem em inglês
