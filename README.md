@@ -1,11 +1,11 @@
 # Latest News
--  聖誕好去處2023︳5大夢幻飄雪匯演打卡商場！愉景灣/利東街/MCP新都城/如心廣場/荃新天地
--  حماس تسخر من منشور للاحتلال: لا وقت لقلي البيض مقاومونا منشغلون بشواء الميركافا
--  الخمول في الطفولة يضعف القلب مبكراً
--  الذكاء الاصطناعي يكشف تفرّد اللسان مثل البصمة
--  聯儲局放鴿 勞力士價格有望止跌回升 把握趁低入手好時機（附8大跌價錶款）
--  Nevjerovatan spisak: Više od pola reprezentacije Austrije se preziva na 'ić'
--  Phoenix poražen, Nurkić upisao novi double-double
--  Försvunnen pojke hittad – efter sex år
--  國內非洲豬瘟疫情嚴峻 四川文件露端危？
--  একই খাবার ৬ বার ডেলিভারি পেলেন তিনি
+-  Bedelsiz geldiler takımı sırtladılar
+-  Datça'da 60 düzensiz göçmen yakalandı
+-  Gözler cuma gününe çevrilmişti: Moody's Türkiye'nin kredi notuna ilişkin güncelleme yapmadı
+-  Health minister not upset about rising Covid cases; Holiday parties could cause new wave
+-  조국 “김건희 ‘중전마마’ 디올백 공개하라…거부시 특검 포함해야”
+-  300만 명이 고통받는 질환 ‘무릎관절증’
+-  이재명 “학생인권조례 폐지한다고 교권 보호되지 않아”
+-  Lännestä saapuva lauha ilma lämmittää Suomea viikonloppuna – sateet voivat muuttua vedeksi ja tiet liukkaiksi
+-  Prime Minister Modi To Inaugurate World's Largest Corporate Office Hub, Surat Diamond Bourse On Sunday
+-  Titan Company's $3.5 Mn Deal For 10% Stake In CueZen
