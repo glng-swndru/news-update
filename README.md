@@ -1,51 +1,51 @@
 # Latest News
--  علاء مبارك يسخر من سكرتير والده بعد تعرضه لسيرة عبد الناصر
--  الاردن: مزادات علنية لآلاف الشقق والمركبات والأراضي - رابط
--  Mercato - PSG : Le départ d’une star de Luis Enrique confirmé en janvier ?
--  USA:n osakemarkkina on nyt harvinaisen vahva: Marraskuu tarjosi rohkaisevan yllätyksen
--  Suosikkivalkoviini on Pohjoismaiden myydyin – tuo tuottajalleen 20 miljoonan euron vuosimyynnin
--  Aurelia Cortés Peyron crea poesía que une tiempo y espacio
--  สั่งหยุดก่อสร้าง 7 วัน ทางด่วนพระราม 2 หาสาเหตุแบบหล่อร่วงทับคนงาน
--  Các chuyên gia: Cựu TT Trump có cơ hội tốt tại Tối cao Pháp viện để hủy bỏ vụ án ở Hoa Thịnh Đốn
--  Plenković: Habijan je ozbiljan, ukopčan, svi će ga podržati
--  What Christian Eriksen said about goalless Rasmus Hojlund before he joined Man Utd was ‘tell-tale sign’ says Souness
--  Aibak township dwellers decry lack of basic amenities
--  Riaktivizohen “bombat”: MPB – në Koçanë, alarmi i rremë!
--  Küveyt əmiri vəfat edib
--  ‘당원권 정지’에도 거친 최강욱의 입…“명품추구는 김건희, 지갑출구는 윤석열”
--  Ratko Božović, plemeniti mislilac duha i vedrine: “Rodno mjesto...
--  जगदीश्वर पोखरेलको १५ कृति एकैसाथ लोकार्पण
--  Kyrgyzstan’s trade turnover with Russia declines
--  Pirati oteli brod: Indijska mornarica ih prati
--  La Feria de Teatro de Palma del Río abre su convocatoria de propuestas para 2024
--  Strictly legend rushed to hospital hours before show final as she shares photo hooked up to a drip
--  Strictly legend rushed to hospital hours before show final as she shares photo hooked up to a drip
--  Die Diagnose: Eine junge Frau leidet an Endometriose. Wie ein Erlebnis aus der Jugend damit zusammenhängt
--  IZA ČUVENE FOTOGRAFIJE KRIJE SE ZASTRAŠUJUĆA PRIČA: Prišao je Tajsonu kao da je sve normalno, legendarni bokser nije ni slutio...
--  У Донецьку "приліт" по базі росіян - соцмережі
--  La 'trampa' de las franquicias: Competencia analiza la fijación de precios de Pomodoro tras la victoria judicial de Restalia
--  Polizei stoppt Schokoladentransporter auf Autobahn
--  Três jovens detidos com armas proibidas
--  Иран објавија дека егзекутирал шпион на Мосад
--  My ‘cheese snowman’ holiday appetizer is so easy to make and super cute – you only need 3 ingredients
--  INDIA गठबंधन की बैठक में शामिल होंगी ममता, अगले दिन PM मोदी से मुलाकात, जानें सियासी मायने
--  Pelicansista poistunut ruotsalaispuolustaja suuntaa takaisin kotimaahansa
--  Hardik Pandya had ‘captaincy' condition for his return to Mumbai Indians, Rohit Sharma was in loop: Report
--  Podemos se presentará a las elecciones europeas con Irene Montero de candidata
--  Muž v Bratislave ukradol prívesný vozík s vecami, skončil vo väzbe
--  Na piaty pokus košičania zaplatia viac za odpad aj byty, ale menej ako žiadala radnica
--  Lavaş Gölü kısmen dondu
--  ‘Awful’ mother encourages son to cheat on his pregnant wife with his ex-girlfriend
--  Stamford Hill in London: Wie Juden und Muslime im Schatten des Krieges zusammenleben
--  ९५ क्विन्टल अन्न प्रयोग गरेर बनाइयो सीतारामको प्रतिमा
--  Αλεξάνδρας: Ταξί «βούλιαξε» στο οδόστρωμα
--  Dan and Dani Cambre’s Pregnancy Survival Guide for Men
--  इंडियन पुलिस फोर्स का टीजर जारी, सिद्धार्थ ने ज्वाइन की रोहित की यूनिवर्स कॉप
--  Höchststände bei Hochwasser am Rhein überschritten
--  Le zoo du Belvédère a 60 ans : Et pas mal de rides !
--  NHL: Peterka gewinnt mit Buffalo beim Stanley-Cup-Sieger
--  Bestseller-Buchreihe endet: Krimi-Ikone Jussi Adler-Olsen kommt nach Unna
--  Dortmunder (26) fällt Polizei in Holzwickede auf: Ohne Führerschein hinter dem Steuer?
--  Maja Dahlqvist kissade på sig under tävling: "Hade heldräkt"
--  Ausschreitungen: Entsetzen über Rostock-Fans: "Haben volle Gewalt gezeigt"
--  Leonardo DiCaprio, 49, enjoys a low-key date night with girlfriend Vittoria Ceretti, 25, in Paris after partying with Lottie Moss, 25, in London
+-  Väståbolands svenska församling får ny pastor efter trettondagens prästvigning
+-  לעקוף את החות'ים: משלוחים ראשונים במשאיות מדובאי הגיעו לארץ
+-  ראשון בגרמניה: באיירן מול הפתעת העונה, לברקוזן מקווה לברוח
+-  Rotary faz rifa para instalar energia em Lar dos Idosos em Sinop
+-  PM Awas Yojana:गांवों में भी घर खरीदने के लिए सरकार देगी ₹2.5 लाख?, लोकसभा से आया ये जवाब
+-  Hinrichtung in Iran wegen angeblicher Spionage – auch für Israel
+-  Transfer news roundup: Chelsea eye Premier League rival to solve goalkeeper injury crisis
+-  South Africa Women vs Bangladesh Women Live Score: 1st ODI of Bangladesh Women tour of South Africa, 2023 to start at 05:30 PM
+-  31 दिसंबर के बाद आप Google Pay, PhonePe, Paytm से नहीं कर पाएंगे UPI पेमेंट!
+-  II Liga: Siga em direto os resultados e marcadores da 14.ª jornada
+-  تحولات المواقف الدولية من فلسطين
+-  YuvaGalam Padayatra: యాదవులతో లోకేష్ ముఖాముఖి
+-  Grupa profesora iz Zemunske gimnazije odbila pohađanje obuke koju je najavio MUP
+-  Parliament Breach: నా కొడుకు అమాయకుడు, కోర్టుని ఆశ్రయిస్తాం.. పార్లమెంట్ దాడి మాస్టర్‌మైండ్ తండ్రి వాదన
+-  MHP Genel Başkanı Bahçeli açıklamalarda bulunuyor
+-  Antiga estrela do United sem dúvidas: "Há uma toupeira naquele balneário"
+-  Muere el politólogo y escritor italiano Toni Negri
+-  Fish Aadhar Card: अब मछलियों के लिए भी बन रहा आधार कार्ड, जानिए कैसे होगी मछली की पहचान
+-  Renovadores comunistas pedem que esquerda se entenda para reeditar geringonça e formar Governo
+-  Khanyi Mbau gives justifiable reasons why men are being violent to women
+-  Blagdani su stigli na Epic Gamesu: Uzmite besplatno Destiny 2 Legacy Collection
+-  The non-negotiables in a relationship: Here's what we should not settle for
+-  India, Oman adopt vision document to expand ties
+-  DU Recruitment 2023: Apply for 51 Assistant Professor posts at colrec.uod.ac.in
+-  China, Arábia Saudita e Irã consideram que Oriente Médio não deve mais ser arena geopolítica para grandes potências
+-  Demokraatti: Eduskunta päätti tehdä tiistaisesta mielenosoituksesta tutkintapyynnön poliisille
+-  Zlato: Stále je dobrá cena k nákupu!
+-  Norska åkarna i tårar – flyr plötsligt till skogs
+-  Åland representerades på internationellt kempoläger
+-  মনে পড়ে সেইসব দিন
+-  नाइट वियर जैसे कपड़े पहनकर एक्ट्रेस जान्हवी कपूर ने सारी हदें पार कर दीं, एक्ट्रेस नेट ड्रेस पहनकर डिनर के लिए निकलीं
+-  Il museo Met di New York restituirà a Thailandia e Cambogia 16 statue che erano state rubate
+-  ছাত্রলীগের ‘আড্ডায়’ যোগ দেবেন সাকিব
+-  Minister Nagarjuna: నియోజకవర్గ మార్పుపై మంత్రి నాగార్జున కీలక వ్యాఖ్యలు
+-  Cum va fi vremea de Crăciun și de Revelion. ANM a actualizat prognoza meteo pentru finalul anului
+-  وزارة الاقتصاد والمالية : عجز الميزانية يصل إلى 51,4 مليار درهم عند متم نونبر 2023
+-  Meet the top fund managers of 2023: How they outsmarted their peers, and their big bets for 2024
+-  Fragen und Antworten: 32-Stunden-Woche und eine Prämie: Das hat die IG Metall für die Stahlindustrie ausgehandelt
+-  Fragen und Antworten: 32-Stunden-Woche und eine Prämie: Das hat die IG Metall für die Stahlindustrie ausgehandelt
+-  ABD: Kısa kesin
+-  “Bu, Fransanın gizlətməli bir şeyinin olduğunu göstərir”
+-  Ellwanger Weltladen ist erfolgreich am neuen Standort
+-  Milan Napoli Femminile 0-0 LIVE : riscaldamento in corso
+-  選戰觀察／高雄突圍在年輕人！ 「侯康配」要避免從台北看天下
+-  Preminuo kuvajtski emir šeik Nawaf al-Ahmad al-Jaber al-Sabah
+-  T-banetog sporet av ved Bergkrystallen
+-  ZDK: U evidenciji nezaposlenih na kraju novembra bilo 49.012 osoba
+-  Ancelotti recupera a Tchouaméni y Endrick no se pierde el entrenamiento
+-  Strandsatta i paradiset – regn förstörde landningsbanan
+-  Pörssisähkön hinta tänään matalimmillaan sitten Black Fridayn hintasotkun
