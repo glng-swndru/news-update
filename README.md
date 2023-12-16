@@ -1,51 +1,11 @@
 # Latest News
--  전청조 부녀, 사기수법 대물림…母는 피해자에 합의종용+가스라이팅 [악인취재기]
--  "함께 뛴 시즌은 뒤로하고"…'운명의 장난?' ML 데뷔전부터 '절친' 김하성 만나는 '바람의 손자'의 소감
--  영웅들은 여전히 서건창을 기다린다…할많하않, 안타까운 시선, 어쩌면 내년으로 넘어간다
--  '한겨울에도 수영복 사진 당당히!' 핫보디 뽐낸 ★들[MD스타]
--  로스트아크가 주는 연말 선물...'디어프렌즈 페스타' 가보니
--  Man feared drowned off Langkawi's Pantai Tanjung Rhu
--  Manavjit, Moudgil eye comeback in Oly qualifiers
--  Aaradhya Bachchan impresses with her acting and singing skills at school play
--  BWF World Tour Finals: Chen, Marin in last four
--  Odisha Masters Open: Indian duo Ponnappa-Crasto shuttle into semis
--  Djoko, Sabalenka win ITF World Champion awards
--  Ringing in the Christmas cheer
--  BBQ燒骷髏頭炭 燒烤爐即變火葬場？ 網民嚇壞：「黑」骨銘心｜Juicy叮
--  Video: Así es el nuevo mapa de PUBG Battlegrounds: Rondo
--  Siguen filas de migrantes en muro fronterizo
--  Reta Xóchitl a Sheinbaum a visitar zonas violentas
--  Se integra a El Paso Zoo rinoceronte de un cuerno de la India
--  Matan a empleado dentro de recicladora
--  ¿Y Capitanes? Juan Toscano vuelve a la NBA con Sacramento Kings
--  ‘Jeopardy!’ Bombshell: Mayim Bialik Reveals She’s ‘No Longer Hosting’
--  Faitelson comete 'EPIC FAIL' al CONFUNDIR a Ricardo Peláez con el 'Tuca' Ferretti | VIDEO
--  รวมเลขอาจารย์ดัง เลขมาแรงงวดวันที่ 16 ธันวาคม 2566
--  Bajaj Comcludes Pulsarmania Master Edition, Calls it fusion of Biking and lifestyle communities
--  台「最美檢察官」愛穿女裝遭質疑為吸引男性 反駁誤解親曝性取向
--  فشلت المليشيا في تقديم خطاب يقنع الشعب داخل السودان
--  Logement. Airbnb : le gouvernement laisse passer par erreur une baisse plus forte de l'abattement ...
--  Gaza. Israël autorise l'entrée « temporaire » d'aide par un de ses points de passage
--  Santé. Accidents de ski : quels traitements pour les fractures les plus courantes ?
--  Politique. Loi immigration : Macron appelle à un « compromis intelligent » et exclut le 49.3
--  Vidéo. Une journaliste de CNN a pu entrer à Gaza sans la supervision d'Israël
--  Shillong Teer Result TODAY, December 16 LIVE: Winning Numbers for Shillong Teer, Morning Teer, Juwai Teer, Khanapara Teer, Night Teer, & More
--  Depremzedenin hayatına iyi gelecek
--  Taliska Militariga Israel oo sheegay in ciidamadooda ay si khaldan u dileen 3 ka mid ah la haysteyaasha
--  นับถอยหลังเข้าสู่ปีใหม่ กับ Prime Video กับ 10 หนังและซีรีส์สนุกสุดเซอร์ไพรส์!!
--  一定要「軟」！絨毛娃娃營收翻倍，玩具商力拚觸感像奶油般絲滑
--  Jesse Rodriguez vs Sunny Edwards live stream: how to watch boxing online – prices, fight time, full card
--  Picking 3 'Dark Horses' as CMs after Winning Battle of States, BJP Has Bolstered Its Cavalry for 2024 War
--  여야 지지자 전격 분석 “민주당·국힘 이젠 갱생할 때” [시사종이 땡땡땡]
--  港漂女碩士畢業 2年勁賺100萬 因1理由堅持不買樓 住月租$6800劏房
--  Inside Electronic Gain Control
--  Volunteers breathe polluted air to test impact on brain
--  Kerajaan AS sibuk tolong Israel, rakyat desak henti perang
--  新聞女王丨佘詩曼何依婷主播穿搭內地商場熱賣 大量飾品充斥淘寶雙位數可入手
--  Five times Mollie King took style inspo from Holly Willoughby as singer guest presents This Morning
--  The PS5 and Sony are on the edge of disaster and it worries me – Reader’s Feature
--  Immer der Reihe nach
--  Kedjehus på 159 kvadratmeter i Södra Utmarken sålt
--  Long An: Phát huy tối đa lợi thế để phát triển kinh tế - xã hội, chăm lo đời sống nhân dân
--  Un estudiante de Medicina es asesinado en el sector norte de Guayaquil
--  Telangana: Debt-ridden AR constable shoots wife and 2 kids, ends life
+-  Spotify to host Warner Bros Discovery podcasts
+-  실사화된 '이재, 곧 죽습니다', 원작과 어떻게 다를까
+-  'AI노트북 경쟁' 점화…맞붙은 삼성·LG
+-  금융권 ‘알뜰폰 진출’ 설왕설래…정부도 ‘금산분리’ 신중모드
+-  Wembanyama supera duelo com LeBron, Spurs batem Lakers e dão fim a pior jejum de sua história na NBA
+-  [재테크_금융] 2024년에도 반도체와 AI 고공행진 이어진다
+-  “尹 아바타” “100석 이하” 격론에도 어차피 결론은 한동훈?
+-  خبايا وميزات "الكوميك والمانجا" بمعرض جدة للكتاب
+-  Former Wallabies coach John Connelly has named three prominent New Zealanders in a list of potential replacements for Eddie Jones
+-  КАМАЗ врезался в Prius во Владивостоке
