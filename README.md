@@ -1,51 +1,51 @@
 # Latest News
--  أمطار متفرقة وشبورة.. الأرصاد تكشف تفاصيل طقس الـ 6 أيام المقبلة
--  قلة النشاط تعرضك لهذه المشكلة خلال النمو.. فما هي؟
--  BM Genel Kurulu'ndaki Gazze kararında Ankara etkisi! Dikkat çeken 'pax Türkiye' mesajı
--  Türkiye 2024'te madencilik sektöründe ihracatı artırmak istiyor
--  Metro ve tramvaylardaki arızalar İstanbulluları bıktırdı
--  ABD'li oyuncu Matthew Perry ölüm nedeni belli oldu
--  Hasan Arat konuşuyor
--  Eczacıbaşı Dynavit, FIVB Dünya Kulüpler Şampiyonası'nda finalde
--  Şanlıurfa'da PKK ve FETÖ'ye darbe: 4 gözaltı
--  تبدأ بعد صلاة الفجر.. أسواق مركزية لا تجدها إلا في مكة المكرمة
--  Bilişim Vadisi Genel Müdürü Tüzgen: Yüksek gelirli ülkeler ligine çıkmak için yüksek teknoloji üretmeliyiz
--  Timnas AMIN soal Baliho Dicopoti Pihak Lain: Kami Tak Pikirkan Lagi, Protes juga Tak Ada Tindak Lanjut
--  Spanish police arrest 14 airport workers suspected of stealing from luggage
--  Georgien: Zehntausende feiern EU-Kandidatenstatus
--  政府 万博費用の全体像まとめる 国費最大1620億円に追加費用も
--  Augsburg gegen BVB im TV und Livestream verfolgen
--  EVO ČIJI JE DNK BEBE MARIJE ŠERIFOVIĆ! Pevačica otkrila šta piše u dokumentima njenog sina: Svaki njegov mali atom...
--  Ukraine-Krieg aktuell: Der News-Ausblick am Samstag, 16.12.2023
--  Cúpula da União Europeia termina sem conclusão sobre cessar-fogo em Gaza
--  NEET Success Story: Farmer`s Son Defies Fate, Conquers NEET After Four Heartbreaking Attempts!
--  Indian Navy Thwarts Hijacking Attempt, Rescues Somalia-Bound Vessel In Arabian Sea
--  '활동 중단' 샤이니 온유, 근황 공개했다…"정말 행복하네요" [MD★스타]
--  '열녀박씨' 이세영♥배인혁, 달달 한도 초과 '아이스크림 키스'…본격 연애는 지금부터
--  "내 전성기는 아직 오지 않았다"…이정후의 최대 강점은 젊은 나이, 입단식부터 자신감 폭발
--  '언해피' 아스널 떠날 기회...'비상' 첼시가 노린다→주전 GK 부상으로 영입 검토
--  Möglicher Spielabbruch bei Paderborn gegen Rostock: Manager nach Pyro-Ärger ratlos
--  Möglicher Spielabbruch bei Paderborn gegen Rostock: Manager nach Pyro-Ärger ratlos
--  „Sie dachten, es sei ein Aprilscherz“: Outlet-Chef zahlt Mitarbeitern eine Million Euro – für ihre Loyalität
--  Yle: Katedralskolan och Pargasgymnasier i täten i STT:s gymnasiejämförelse – också Ekenäs klarar sig bra
--  الشحات يكشف سر احتفاله على طريقة رونالدو بهدفه أمام الاتحاد ويعتذر لأبو تريكة
--  Hasil BWF World Tour Finals 2023: Fajar / Rian Gugur di Semifinal Usai Ditekuk Liang / Wang
--  उप मुख्यमंत्री दीया कुमारी का दौसा में भव्य स्वागत, विकसित भारत संकल्प यात्रा के लिए अलवर पहुंची
--  A mund të kthehet SPAK në vrasës të demokracisë?
--  عاجل.. "السودة" الأقل في درجة الحرارة سجلت "3 درجات مئوية"
--  Bureaucrat’s son mows down her girlfriend with car in Mumbai, describes her horrifying ordeal
--  Labuschagne cops 'nasty' knock to the hand
--  Labuschagne cops 'nasty' knock to the hand
--  Ny generalsekretær i NOAS
--  VIDEO Trebao je biti najveće pojačanje lige, a sad se opet ozlijedio: ‘Samo da ne potone‘
--  NOVI ŠOK U NEMAČKOJ PRED PRAZNIKE! Radnicima automobilskog giganta stigle najgore moguće vesti VIŠE OD 600 RADNIKA LETI NA ULICU
--  Millionenstreit um das Familienerbe: Münchner Anwalt erklärt, welches Problem immer wieder unterschätzt wird
--  Мая Манолова за преместването на Паметника на Съветската армия: Действат като талибани
--  So anstrengend findet Charlie Puth die Hochzeitsplanung!
--  135 kvadratmeter stort kedjehus i Hallsberg sålt för 1 325 000 kronor
--  135 kvadratmeter stort kedjehus i Hallsberg sålt för 1 325 000 kronor
--  Boris Tomašič za Portal24 o grožnjah s smrtjo: Nisem Nika Kovač, da bi jokal za vsako malenkost, vendar je pri takih grožnjah potrebno potegniti črto
--  Boris Tomašič za Portal24 o grožnjah s smrtjo: Nisem Nika Kovač, da bi jokal za vsako malenkost, vendar je pri takih grožnjah potrebno potegniti črto
--  EDB raises its projection for Tajikistan's economic growth
--  Lohr: Nach Unfall weitergefahren
--  Macron je otvorený voči dialógu s Putinom, ak by to prispelo k trvalému mieru
+-  Soccerladuma | Latest On Thabo Matlaba's Future
+-  Soccerladuma | Mourinho Fires A Dig At Former Rival Pep
+-  Etil Alkol Takip Sistemi kuruluyor!
+-  Valilikten motokurye kararı
+-  Şırnak'tan petrol fışkırıyor! İşte günlük üretim
+-  Parashikimi i motit për sot, reshje të pakta shiu dhe dëbore
+-  शिक्षक भर्ती परीक्षा में पूछी गई 'INDIA' गठबंधन की फुल फॉर्म, BJP ने कहा- 'ठगों की जमात'
+-  Rekordan nivo beskućništva u SAD, za samo godinu dana broj ljudi...
+-  FT: лидеры ЕС промахнулись, не согласовав пакет помощи Украине
+-  Asgari ücret zammı ne zaman açıklanacak, ne kadar olacak? Komisyon 2. kez toplanıyor (2024 olası asgari ücret zam oranları)
+-  CECA JOJ KAO MAJKA, PEĐA STOJAKOVIĆ KOMŠIJA, ONA JURI SVETSKO ZLATO! Tamara na SP plače uz himnu, ali ne hrvatsku!
+-  Yamaha R3 returns to India, MT-03 comes for first time. Check price & other details
+-  Christmas 2023: Bells to mistletoe, unveiling the significance of classic Christmas ornaments
+-  États-Unis: pensant tomber sur une grosse pieuvre, ils découvrent une épave disparue depuis 152 ans
+-  Πόλο: Προετοιμασία στο Παρίσι η Εθνική γυναικών, οι 16 κλήσεις της Καμμένου
+-  Dutch cargo ships will not sail through the Red Sea due to recent attacks
+-  الأهلي يبدأ الاستعداد اليوم لمواجهة فلومينسينى البرازيلي بتدريبات استشفائية
+-  أحمد أيمن منصور يستغل إجازة المصري لأداء مناسك العمرة برفقة زوجته.. صور
+-  مصر تهزم سويسرا 2-0 وتصعد لنهائي بطولة العالم للاسكواش
+-  منتخب مصر يستقر على إقامة معسكر الاستعداد لأمم أفريقيا بالقاهرة
+-  مصر تواجه إنجلترا فى نهائي بطولة العالم للاسكواش
+-  أستاذ نساء وتوليد يوضح أهم الأسباب الخفية للسقوط الرحمى
+-  الأهلي يحسم رحيل أحمد عبد القادر بعد السوبر المصري
+-  قوات الاحتلال الإسرائيلية تدمر عشرات القبور في قطاع غزة.. صور
+-  المالكي يطلع وزير خارجية ايسلندا على جرائم الاحتلال بحق شعب فلسطين
+-  استشهاد وإصابة عشرات الفلسطينيين جراء القصف الإسرائيلي المتواصل على غزة
+-  Ολυμπιακός: Ευχήθηκε στην Πίτερς για τη γέννηση της κόρης του
+-  Sabah qar yağacaq
+-  Klaudia Kubaszek: Trzeba tego doświadczyć, żeby to zrozumieć
+-  – Viktig å sikre sliterne
+-  Friends-Star Matthew Perry an Überdosis Ketamin gestorben
+-  Hoteli isplativiji od apartmana na Divčibarima: Porodica platila 300 evra tri noćenja u hotelu sa 4 zvezdice
+-  German Fans Hurl Chocolate Coins In Protest Against Media Rights Deal
+-  8개 참사 '피해자연대' 발족… "같은 상처 가진 사람들에게 큰 힘 되길"
+-  허인구 춘천·철원·화천·양구 을 예비후보 출판기념회 개최
+-  [속보] '론스타에 2800억 배상' 판정, 취소 신청 결론까지 집행정지
+-  БСП се оплака на посланиците от ЕС
+-  Surya's broken heart tweet gives rise to conspiracy theories about MI's decision to replace Rohit with Hardik as captain
+-  Šumaher je bio svestan i pričao je sa doktorima posle strašne nesreće?! Nemački novinar otkrio neverovatne detalje
+-  Zbog jake bure malo tko se jutros s otoka probio do Splita. U prekidu su do daljnjeg ove trajektne i katamaranske linije
+-  Delhi cops reveal mastermind Jha destroyed five mobile phones before his arrest
+-  Откриха 12 вида нови насекоми
+-  54,000 prepaid smart meters, 130,000 smart meters, more to come
+-  O Μάθιου Πέρι είχε γράψει στο βιβλίο του για την κεταμίνη – «Ένιωθα σαν να πεθαίνω»
+-  Matthew Perry's cause of death confirmed as accident by ketamine
+-  One of 2023's biggest movies has just been added to Disney+
+-  Decision day for Luai's mega deal
+-  Decision day for Luai's mega deal
+-  Залужни планира ново контранастъпление: ВСУ събират ресурси за нови операции
+-  Four-month-old survives after tornado tossed him into downed tree
