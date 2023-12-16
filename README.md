@@ -1,51 +1,51 @@
 # Latest News
--  هذا المعدن يحميك من مرض القلاع… تعرف عليه
--  لا تخلط مُنعم الأقمشة بمسحوق الغسيل… لهذه الأسباب
--  تحذير من الشبورة.. تعرف على الظواهر الجوية المسيطرة في طقس السبت
--  수도권-지방 의료 불균형 심화…소아청소년과는 수도권이 1.5배
--  신한은행, 올해 2번째 희망퇴직 신청 받는다
--  코빗의 '2024년 코인시장' 전망..."비트코인, 금융권으로 저변 확대"
--  KBC 15: Amitabh Bachchan takes a dig at daughter Shweta`s American accent
--  Confirman el lugar de las porras para la Final de Vuelta del Apertura 2023
--  Maharashtra: Six killed, one critical as car collides with truck in Nagpur
--  Slam dunk: Air Jordans worth $15,000 found in a donation bin
--  '프레디의 피자가게' 70만 관객 돌파…블룸하우스 저력 과시
--  عاجل .. منها مكة والمدينة.. تقلبات جوية غير مستقرة على 6 مناطق بالمملكة
--  طفل تناول حليبها أمام والده.. ناقة أفسدت الفرحة
--  Dünya Devi Moody's'den Dikkat Çeken Türkiye Pası
--  शनिवार के दिन भूल से भी न करें ये 5 कार्य, वरना झेलना पड़ सकता है भारी नुकसान
--  Caller Who Made Threatening Call To Ratan Tata Tracked Down
--  Hellenic Bank outlines challenges and trends at investment forum
--  에코프로 뜨고 카겜 지고…올해 코스닥 톱10 중 절반 물갈이
--  NIS warns students, traders against irregular migration
--  Ўзбекистон ва UNFPA аҳолишунослик соҳасида янги қўшма тадбирларни режалаштиряпти .
--  17 декабрда ҳарорат 12 даражагача кўтарилади.
--  Тахтасиз ўйналадиган шахмат, Бонапартнинг амалга ошмаган қочиш режаси, қиролни мот қилган йигит — ҳаммаси шахмат ҳақида.
--  Жорий йилда Ўзбекистон россияликлар учун энг машҳур йўналишга айланди.
--  Келгуси ҳафта бошида кутилаётган об-ҳаво маълум қилинди.
--  Oproti minulému roku zarábame viac: TAKTO si prilepšili ľudia v jednotlivých odvetviach! Priemyselníci vyhrali jackpot
--  ‘브런슨 50점’ 뉴욕, 피닉스 제압...브래들리 빌은 발목 부상
--  Yeniden Refah'tan Kılıçdaroğlu Ziyareti
--  IB ACIO Admit Card 2023, Grade 2 Executive Call Letter
--  Mail train carriage set ablaze in Joypurhat
--  과거보다 더 무거워진 재계 총수 왕관의 무게 [권상집의 논전(論戰)]
--  Maastohiihdon maailmancupia uhkaa rajuilma – valmentaja Ville Oksasen mieleen palautuivat muistot Planican sadekisasta: "Se oli hirveetä"
--  Ski alpin Weltcup 2023/2024 im TV und Live-Stream: So sehen Sie die Abfahrt der Herren in Val Gardena/Gröden heute live
--  Lemon Tree Hotels launches 100th property with an opening in Malad, Mumbai
--  Müəllimlətin XVI qurultayı davam edir
--  50 נקודות לברנסון מול פיניקס, וומבניאמה גבר על לברון
--  העברות בעולם, 16.12: ריאל חוזרת לאופציית הולאנד, אינטר סימנה שני בלמים
--  Hawks stoppen Niederlagen-Serie
--  Review: The Old Liquor Store, Bishopthorpe Road, York
--  İlaç fiyatlarına yüzde 25 zam geldi!
--  Kecelakaan Kereta Bawah Tanah Beijing, Ratusan Orang Terluka
--  樂天「零死角女孩」林岱縈回歸！「純欲泳衣」全網鼻血狂噴
--  Iberia inaugurates its daily flights to Doha
--  Erdoğan’dan atama ve görevden alma kararları
--  Tiesa atceļ bijušajam NBS pārtikas iepirkuma komisijas vadītājam piemēroto disciplinārsodu
--  İYİ Parti'de Deprem: Çok Sert Sözlerle İstifa Etti!
--  Ski alpin Weltcup 2023/2024: Kalender und TV-Termine! So verfolgen Sie die Ski-Damen in dieser Saison
--  Situacija fronte. Okupantai puola ir kaupia rezervus. Košmaras tęsiasi
--  Nelaukiama dovana – ūminis cistitas: kaip išvengti nemalonių pojūčių ir galimų komplikacijų
--  Eskişehir'de üreticilere budama eğitimi
--  Solze sreče in tisoč čestitk, zdaj priprave na euro 2024
+-  Und der Gewinner ist...
+-  Moody's, Türkiye için değerlendirme yapmadı
+-  Seyir halindeki otomobil küle döndü
+-  Perakende satış hacminde artış!
+-  Alina Boz ve Umut Evirgen’e nazar değdi!
+-  ‘Türk bankalarının performansı iyileşti’
+-  Atama kararları Resmi Gazete'de
+-  عمران خان کی تحریک انصاف میں شمولیت کی دعوت پر سینئر سیاسی رہنما سردار لطیف کھوسہ نے بھی فیصلہ کرلیا، جلد پریس کانفرنس متوقع
+-  Suomalaisia nähtiin runsas määrä viime NHL-yössä - tehot jäivät osittain piippuun
+-  «مساعدات غزة» في مباحثات طحنون بن زايد ومستشار الأمن القومي الأمريكي
+-  Moreblessing Ali now an angel: Sikhala
+-  Внимание! Много сняг на прохода Шипка
+-  من البادية والجبال السود لكم اطيب تحياتي… !| كتب محمد صايل مقط
+-  عامر جمال ٹیکسی ڈرائیور سے پاکستانی کرکٹ اسٹار بن گئے
+-  Гродненская семья ушла в дальнобой и уже 5 лет колесит по Европе вместе с собакой в одной кабине
+-  Skispringen Weltcup 2023/24 Ergebnisse: Nach dem Sturz von Ström: Welche Dame siegt in Engelberg?
+-  VIDEO: बाबर आजम और सरफराज अहमद के साथ पर्थ में हुआ ‘अनर्थ’, हजारों फैंस के सामने खुली पोल
+-  Enam laluan di Rantau Panjang ditenggelami banjir
+-  Всички аварийни екипи на ЕРМ Запад са на терен
+-  [김인교 교수의 수다한판 (72)] 리더의 ‘MBTI’
+-  Argentina Ukraynaya iki Rusiya helikopteri verəcək
+-  Mikroavtobus maneəyə çırpıldı, 3 nəfər yaralandı
+-  İki maşın toqquşdu, sürücü öldü
+-  Ja Morant pasa amargo trago por suspensión
+-  मॉडर्न हाई स्कूल इंटरनेशनल के नए कैंपस का उद्घाटन
+-  Another Bonza flight axed: passengers frustrated with airline's reliability
+-  تنخواہوں پر بھی ٹیکس میں اضافے کے مطالبے کی میڈیا رپورٹس پر آئی ایم ایف کی وضاحت آگئی
+-  제주 강풍특보에 항공기 무더기 지연 결항
+-  Potpuni kaos u kvalifikacijama, Uefa oduzima bodove zbog švercanja igrača, evo što je s Hrvatskom
+-  پاک چین صنعتکاروں میں معاہدہ، برآمدات میں اضافہ ہوگا
+-  ABŞ administrasiyasından alçaldıcı hərəkət: Bu ölkənin nazirini...
+-  ["전 여친과 번호가 비슷하네요. 위로 좀" 자꾸 전화한 30대
+-  [머스크 전 여친, AI장난감 ‘그록’ 만들어…“xAI챗봇과 관계없어”
+-  [“일본인이랑 연애할래” 한국인, 데이팅 앱 어떻게 쓰나 봤더니
+-  [韓美, 내년 8월 을지 훈련 때 처음으로 핵 작전 연습한다
+-  ["진한 발라드 맛" '성시경 막걸리' 나온다…'박재범 소주' 넘을까
+-  [김태효 “미국, 내년 한국에 심화 핵교육…한국 핵 IQ 높일 것”
+-  [서울 한복판 문화유산에, 도대체 왜…경복궁 담장에 44m ‘낙서 테러’
+-  [침대 안 부러운 넓은 공간·100만㎞ 보증 자신감…“‘레저 전기차’ 新영역 개척” [시승기-토레스 EVX]
+-  [음주사고 내고 신분 안 밝힌 경찰, 직위해제
+-  [전남 순천 폐가서 60대 남성 숨진 채 발견
+-  [인천경제청, 국가브랜드 대상 수상… 공공기관서 처음
+-  [中, ‘경제 쇠퇴·위기설’ SNS서 입도 뻥긋 못하게 한다?…“안보위협 범죄 단호히 징벌”
+-  [임준택 전 수협중앙회장, 21일 출판기념회 연다
+-  [명당 잘 보는 풍수지리 박사 여행기자, ‘수토기행’ 발간
+-  ['싱어게인3' 탑10 진출도 치열…꾸안꾸 60호가 탈락 위기라니·모달 49호도 올어게인 아니네
+-  [‘우크라 침공’ 러 기준금리 16%까지 수직상승…高물가 압박 언제까지 버틸까
+-  [자고 나니 주사자국이…채팅앱서 만난 50대男이 한 짓
+-  [경복궁 담벼락 스프레이 낙서 범인 추적..전문 세척
+-  [삼성 접는폰 가격 50만원 올랐다…출시 4개월만에 무슨일?
