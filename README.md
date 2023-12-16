@@ -1,51 +1,51 @@
 # Latest News
--  A Milli Kadın Golbol Takımı'ndan büyük başarı!
--  ‘I was euphoric’: Billy Stark reflects on scoring in Aberdeen’s 1985 League Cup final triumph
--  Addio a Sebastiano Lo Monaco, morto a 65 anni. Aveva recitato in Don Matteo
--  ¿Qué ha pasado con Joaquín Varela?
--  Probabile formazione Milan: torna Kjaer dal 1', Pobega sostituisce Musah
--  Zuma says he's voting for MK to revitalise the ANC from the outside
--  'I won't campaign or vote for ANC under Ramaphosa, but I'll die a member': Zuma
--  Actor Gerard Depardieu stripped of Belgian honorary title
--  Luton Town z mrożącym krew w żyłach komunikatem w sprawie Toma Lockyera. „Doznał zatrzymania akcji serca” [OFICJALNIE]
--  Вместо наркотици откриха забранени за отглеждане птици
--  Con votos en contra del PAS y PRI, diputados aprueban presupuesto de Sinaloa 2024 por más de 69 mil mdp
--  MM-hopeavahti kuin muuri - TPS sarjakärjessä joulutauolle
--  Smaker og lukter seg fram til julens drikke
--  Серебренников заявил, что Шольц посетил его спектакль в Гамбурге
--  Tamna strana HOROSKOPSKIH znakova: Crni mjesec – Lilit
--  Trabzonspor'un eski teknik direktörü sahalara geri dönecek mi?
--  Ventura avisa Montenegro que Chega vai ter mais votos que o PSD
--  Met Office warns of storms and floods causing ‘danger to life’ this weekend
--  Le ultime dal Grande Torino: torna Linetty in mezzo al campo
--  Inaugura AMLO acueducto El Cuchillo II
--  Srbi s Kosova više ne mogu koristiti stare registracije na automobilima
--  Kaczyński ma nowy plan. Tak chce wrócić do władzy. Naprawdę to powiedział!
--  Quel vin déguster en jouant à un jeu de société ? On a demandé au patron d'un bar à jeux niçois ses accords parfaits
--  Kumluca'da istinat duvarı çöktü: Ev ve seralar zarar gördü
--  Mississippi sheriff overseeing violent department faces yet another lawsuit after yet another man dies in its custody
--  Manuel Isidro Molina: “No cualquiera se puede presentar como una opción presidencial en Venezuela”
--  Hostages were waving white flag when troops shot them dead, says Israeli army
--  Visočki poljoprivrednici dobili 100.000 KM za ublažavanje posljedica nevremena
--  В США бывший агент ФБР осужден за работу на российского олигарха Дерипаску
--  Zoran Lutovac, opositor serbio: "Tal vez seamos los únicos proeuropeos que no tienen el sostén de la Unión Europea”
--  क्रिकेट : अंडर-14 में गुरुग्राम, अंडर-17 में फरीदाबाद जीता
--  Hisar News: जमीन मामले में मृतक व्यक्ति के कोर्ट नोटिस पर किए झूठे हस्ताक्षर, कर्मचारी सहित चार पर मामला दर्ज
--  Ambala News: प्रशासक छुट्टी पर, अटकी विकास की फाइले
--  Ambala News: धुंध के बीच ट्रक ने बाइक को मारी टक्कर, दो की मौत, एक घायल
--  Ambala News: ड्राइविंग लाइसेंस बनाने पर सख्ती, बढ़ा फेल होने वालों का आंकड़ा
--  Chandigarh News: बैंक में लोन के नाम पर हुए 130 करोड़ के घोटाले में आरोप तय
--  Ambala News: विश्वस्तरीय सुविधाओं से लैस होगा शहर रेलवे स्टेशन
--  Ambala News: गिद्दा और भांगड़ा ने दर्शकों को भी नचाया
--  बदलाव यात्रा को मिल रहा समर्थन : निर्मल सिंह
--  रोडवेज: तीस हजार बुजुर्ग महिलाओं को मिलेगा मुफ्त यात्रा का लाभ
--  Jhansi News: एक जनवरी से भरे जाएंगे पॉलिटेक्निक के प्रवेश परीक्षा फार्म
--  Jhansi News: मार्कशीट जारी कर दी आंख मूंदकर, छात्र को दे दिए 35 में 36 नंबर
--  Jhansi News: पारीछा पावर प्लांट की एक यूनिट 21 दिसंबर से होगी चालू
--  Jhansi News: अब झांसी से दूसरे शहरों के लिए भी चलेंगी इलेक्टि्रक बसें
--  बीयू: सत्यापन को आ रही मार्कशीट का डाटा लीक होने पर रिपोर्ट देंगे एआर
--  Jhansi News: दोस्तों के साथ घूमने गए किशोर की संदिग्ध परिस्थितियों में मौत
--  Jhansi News: कक्षा के बाहर प्रयोगशाला का बोर्ड, अंदर मिला स्टोर मिला
--  Jhansi News: बा विद्यालयों में बालिकाओं की अनुपस्थिति का नहीं ब्योरा
--  Jhansi News: अबकी 67 केंद्रों में होगी यूपी बोर्ड परीक्षा
--  योगी सरकार का बड़ा प्लान: अब अवैध निर्माण रोकने की नई तकनीक से होगी शुरुआत, यूपीएलसी ने शुरू कर दीं तैयारियां
+-  Olise’s Late Penalty Gives Crystal Palace Unexpected Draw With Manchester City
+-  Sosyal medyayı işaret eden Cumhurbaşkanı Erdoğan'dan ahlak uyarısı: Ciddi bir yozlaşma yaşanıyor
+-  DeSantis activates State Guard ahead of potential severe weather
+-  Education Policy Overhaul Gets Go-ahead From Cabinet
+-  Sulm bërthamor ndaj SHBA-së? Uashingtoni paralajmëron Korenë e Veriut: Çdo tentativë do t’i jepte fund regjimit të Kim Jong Un
+-  Nach Hayleys Not-OP: Derek Hough teilt Gesundheitsupdate
+-  El Mugimendu Sozialista se convierte en partido para «hegemonizar el comunismo»
+-  Kreuzfahrt-Gigant mit heftigen Problemen – dann kam’s richtig dicke
+-  Šta bi znakovi Zodijaka trebalo da izbjegavaju i kojih ljudi da se klone u 2024. godini
+-  الدويري: جحر الديك "شوكة في حلق إسرائيل"
+-  Premier League season could start a MONTH late to make way for controversial new competition
+-  Sustainable ceasefire needed in Gaza conflict, says Foreign Secretary
+-  Obitelji taoca pozivaju izraelsku vladu da prekine borbe i pregovara
+-  Further bin strikes set to hit soon after Christmas
+-  תחקיר: המוסד חשף רשת פיננסית ענקית של חמאס - אך נתניהו לא פעל
+-  "أنصار الله": موقف اليمن مع غزة "غير خاضع للمساومة"
+-  Atatürk fotoğrafı takmayan teğmene tepki gösterenler de okuldan uzaklaştırılmış
+-  Enfermera detenida por robar a recién nacida en hospital de Porlamar
+-  Как от градска баня направиха първият в Европа виртуален музей на водата
+-  Индийският боен флот следи похитения от пирати български кораб "Руен"
+-  Portuguese man o’ wars washing up on Florida beaches due to heavy wind
+-  UK man arraigned in Brooklyn court on fine wine Ponzi scheme: feds
+-  30 сантиметра сняг натрупа на прохода Шипка
+-  World News | Pakistan: Six Robbers Loot Gold Worth PKR 180 Mn Near Rahim Yar Khan
+-  Borussia Dortmund: Nach nächstem Rückschlag – BVB-Star macht Champions-League-Ansage
+-  'The Crown' season 6 shows Prince William and Kate Middleton's relationships before they got together. Here's what you need to know about their real-life exes.
+-  Stjärnan reser hem – för att träffa syskonen: ”Är väldigt nära”
+-  Stjärnan reser hem – för att träffa syskonen: ”Är väldigt nära”
+-  Will Bournemouth vs Luton be replayed and would the match start again from scratch?
+-  Dave Chisnall sends darts plumber Cameron Menzies' world title hopes down the drain
+-  “Hay avances, pero siguen los retos”. Termina 2023 con panorama claroscuro para Sinaloa: Óscar Loza
+-  ΠΑΣ Γιάννινα: Συνάντηση διοίκησης-Στάικου, βγαίνει το «διαζύγιο»
+-  Magisk: Forsberg scorer i sidste Leipzig-hjemmekamp
+-  Career or baby? Why women still fear starting a family will be career-ending
+-  The end is nigh for the 'disorientating' global economy of the last three years as we start to see a normalisation of post-covid after-effects
+-  Nicki Minaj Gives Her Opinion About 'Current Queen of Pop' on 'Watch What Happens Live'
+-  Co tak naprawdę oznacza pracować mądrzej, a nie ciężej? [KOMENTARZ]
+-  Empresario británico y cónsul honorario del Reino Unido fue secuestrado en Ecuador
+-  I should know better this early on, but Arkane's teaser and first concept art for Blade already have me unreasonably excited
+-  India News | Defence Portal for PM GatiShakti Has Been Created, 300 Infrastructure Projects Identified: Army Chief
+-  Gira Luis Miguel 2024: ¿cuáles son los precios de los boletos en Funticket?
+-  بالصواريخ... "المقاومة" تستهدف ثكنة "متات" الإسرائيليّة (فيديو)
+-  OLS:n ei tarvitse enää vilkuilla peruutuspeiliin – Murskavoitto tukevoitti asemaa kahdeksan parhaan joukossa
+-  Apple makes it easier for app makers to compete for your dollars
+-  Λαμία: Επιστροφή Παπαδόπουλου κόντρα στον Βόλο
+-  Ernesto Valverde: "Es una victoria acorde a la celebración"
+-  V meste Kajruván sa zrútila časť historického múru, zahynuli traja ľudia
+-  Pegleg Surivor journey ends as Cornwall surfer voted off BBC reality show
+-  Colby Covington tells Leon Edwards he was ‘in character’ in after vile joke about Brit’s dead dad in UFC 296 face off
+-  Sulle Alpi montagne di rifiuti minacciano l’ecosistema
