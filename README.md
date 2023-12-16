@@ -1,11 +1,51 @@
 # Latest News
--  Recuperan el 80% de las citas perdidas en Panamá Oeste
--  Žan Košir v igri za stopničke
--  Primeira-dama de MT parabeniza Seduc pelo 1º Torneio de Robótica na rede estadual
--  Bilbao očitao lekciju Atletiku
--  Lula comemora aprovação da Reforma Tributária
--  Primeira-dama de MT parabeniza Seduc pelo 1º Torneio de Robótica na rede estadual
--  گیس لیکج سے امام مسجد سمیت 2 افراد جاں بحق ہوگئے
--  Dangerous Snake Video: खतरनाक सांप को बालों की तरह संवारती नजर आई बच्ची, वीडियो देख खड़े हो जाएंगे रोंगटे!
--  Mötley Crüen rumpali haastettu oikeuteen raiskauksesta
--  Philippe Clement challenges Rangers to ‘write history again’ in League Cup final
+-  Paaiškėjo nauji faktai apie paslaptingąjį šamanės ir kūdikio kapą (Foto)
+-  [ŽT] Labai netikėta. Skabejeva parodė „tikrą“ Kremliaus veidą. Kas įvyko Rusijos TV (Video)
+-  „Turime 5-8 metus.“ Vokietijos gynybos ministras siunčia stiprų įspėjimą
+-  Kiek civilių liko Avdijivkoje: ne visi nori išvykti
+-  Fannst rauða spjaldið á Jimenez skrítið - „Reynsluleysi dómarans augljóst“
+-  LIVE Torino-Empoli: formazioni e prepartita in diretta
+-  Punya Kesibukan Berbeda, Parto Tak Yakin Patrio Bakal Sepanggung Lagi
+-  5th convocation of Sharnbasva University on December 18
+-  Kemény döntések várnak majd ránk a War Hospitalban
+-  Ex-Ally Pally finalist fears getting 'a*** kicked' by Gary Anderson after first-round scare
+-  Sri Parthsarathy Swami Sabha’s 123rd ‘Isai Vizha’ gets under way in Chennai
+-  وفد من وزارة الخارجية يزور المستشفى الميداني الإماراتي في غزة
+-  Pasaporte electrónico: ¿cómo va el avance para la implementación de vigencia de 10 años?
+-  Ekstraklasa: Składy na Radomiak Radom - Lech Poznań [OFICJALNIE]
+-  This "smoking gun" killed the McDonald's ice cream hackers' startup
+-  This "smoking gun" killed the McDonald's ice cream hackers' startup
+-  Empleadas de maquilas exigen gozar del derecho a la salud
+-  Film&Arts presenta 'Hollywood en Viena', un tributo a Alan Menken, histórico compositor de Disney
+-  Willem II-trainer Peter Maes is content: ‘Een fantastisch resultaat in de heenronde’
+-  Celebraron en Aquiles Serdán a más de 9 mil personas en posadas
+-  Paulina Vodanovic fue testigo de violenta balacera en Portal Ñuñoa: “Mi marido me dijo son balazos, tírate al suelo”
+-  Chelsea bate o lanterna e volta a vencer pela Premier League
+-  Espanola resident killed in ATV crash on Manitoulin Island
+-  Premier League: Manchester City Held To Thrilling 2-2 Draw At Crystal Palace
+-  Čínská servírka se vydává za humanoidního robota
+-  Luton Town Skipper Tom Lockyer Collapses On Field During Premier League Clash vs Bournemouth
+-  Giovanna Lancellotti curte sábado em piscina com pets
+-  Knicks made sure to secure Jalen Brunson’s milestone ball after Bucks-Pacers chaos
+-  Secretariat Burning: We’re Taking Legal Actions Against Perpetrators – Kano Govt
+-  দক্ষিণ-পশ্চিমাঞ্চলে বিদ্যুৎ ও শিল্পায়নের সম্ভাবনা
+-  «Maskorama»: I kveld kåres vinneren
+-  Kunjungi Ponpes Tempat Gus Dur Menyantri, Mahfud Beber Peran Pesantren bagi Demokrasi
+-  ŠTA VODITELJKA RTS-A RADI KAD NE ČITA NAJVAŽNIJE VESTI? Vesna nam vodi glavnu emisiju, a kad završi sa poslom jedva čeka OVO
+-  Onemanshow Van der Poel in Herentals: ‘Alles wat nodig is in de cross, doet Mathieu beter dan de rest’
+-  Policial civil é baleado enquanto fazia caminhada e passa por cirurgia em Mato Grosso
+-  Entediado em casa? 5 coisas para fazer durante as férias para matar o tédio
+-  Espeluznante susto en la Premier: Lockyer se desploma en pleno partido
+-  Fluminense avalia contratação de Marcelo Lomba, do Palmeiras
+-  亨利拆局│練馬師王吼伍鵬志
+-  Karin wordt ontslagen: ‘Je kunt ook gewoon zeggen dat het financieel wat minder gaat’
+-  O que é um prompt de comando?
+-  Ainda dá tempo! 7 truques para secar a barriga antes do verão
+-  Nico Willians não pediu licença e 'arrombou' cofre do Atlético com golaço
+-  Terra e Paixão: novela contará com união improvável para prisão de Antônio
+-  AAA: Don't pump your brakes if you have this type of vehicle
+-  '홀란드 그리울거야' 맨시티, 팰리스에 극장골 헌납하며 무승부...갈 길이 바쁜데 선두권 추격 제동
+-  App Mensagens: Sabe quantas mensagens tem no seu iPhone? O iOS 17.2 diz-lhe
+-  Potilaalla oli ase magneettikuvauksessa – laukesi laitteen sisällä
+-  Von israelischen Soldaten getötete Gaza-Geiseln zeigten weisse Flagge
+-  Steam kullanıcıları buraya! Yılın oyunu seçiliyor
