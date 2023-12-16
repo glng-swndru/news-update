@@ -1,11 +1,11 @@
 # Latest News
--  منتخب الناشئين يفوز على سوريا ويفقد المنافسة على لقب غرب آسيا
--  Türkiye'de kapış kapış satar deniliyordu! Egea fiyatına SUV araç Türkiye'ye geldi, yarı Çinli yarı İtalyan, fiyatı ise...
--  Jacob Zuma dumps ANC, forms new party
--  Victorie categorică pentru FCSB, 3-0 cu FC Hermannstadt, în Superligă
--  Man seriously injured in crash with Purple Line train in Hyde Park
--  İstanbul'da PKK'ya operasyon: 5 kişi tutuklandı
--  BVB wieder ohne Sieg - Leipzig nun Dritter
--  Wechsel bestätigt nach Forsberg-Show für RB Leizpzig
--  Emotionaler Forsberg-Abschied nach Gala-Abend
--  Leipzig siegt gegen Hoffenheim - Fans feiern Forsberg
+-  Operativo contra el robo de energía revela venta de lotes con “luz gratis” en Soledad
+-  Sensibilisation sur les zoonoses prioritaires : la communauté éducative de Saint-Louis enrôlée
+-  Prestadores del InSSSeP: “No podemos seguir siendo la variable de ajuste del sector privado”
+-  Peacock Schedule December 18-24: New TV Shows & Movies Being Added
+-  تحذير من الشبورة.. الأرصاد: درجات الحرارة اليوم وغدًا أعلى من المعدلات الطبيعية
+-  حضانة الطفلة أشعلت الموقف.. المؤبد لسائق قتل قريب طليقته في الإسكندرية
+-  أحمد موسى: سعر السكر خارج بطاقات التموين وصل لـ 50 جنيهًا
+-  صنداى تليجراف: المسؤولون الأمريكيون أمضوا أسابيعًا في صياغة مقترحات لكيفية إدارة غزة
+-  التعليم تكشف مواعيد امتحانات الترم الأول للنقل والشهادة الإعدادية
+-  نتنياهو: الأمريكيون مستمرون في القتال إلى جانبنا بغزة والعرب يربون أبناءهم للقضاء على إسرائيل
