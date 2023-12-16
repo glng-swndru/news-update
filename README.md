@@ -1,51 +1,11 @@
 # Latest News
--  Threads ganha ferramenta de verificação de factos
--  A tasteful tale of tandoori chicken
--  Mötley Cruë-drummer Tommy Lee beschuldigd van seksueel wangedrag
--  Mediji: Na Novom Beogradu poginulo dete, pretpostavlja se da je palo sa terase
--  Which cryptocurrency should I invest in 2024? Why?
--  "ราเมศ" ลั่น ปชป. ไม่หนุนนิรโทษฉบับก้าวไกล หากมีคดีมาตรา 112
--  건설기계안전관리원 강원영서건설기계검사소 본검사소, 홍천 이전
--  EU vows Ukraine to get aid despite veto by Hungary's Orban
--  المغرب-بريطانيا..إرادة مشتركة لتعزيز العلاقات الثنائية في جميع الميادين
--  رئيس بلدية الغبيري معن الخليل:
--  Отвориха пътя Варна - Бургас
--  22 са новите случаи на COVID 19 във Варна за последното денонощие
--  Делфинариум Варна пуска днес безплатни Коледни представления за децата
--  Kerala Woman Tests Positive for Covid-19 Sub-strain JN.1 | Can Vaccines Fight It?
--  امریکی ایجنڈا ہے کہ پاکستان کو افغانستان سےلڑا دیا جائے: حافظ نعیم الرحمٰن
--  มอดไม้ฮอดเจอเจ้าหน้าที่กระเจิง ทิ้งรถพร้อมไม้แปรรูปเต็มกระบะ
--  Telangana Speaker Recognises KCR as Leader of Opposition
--  Cher hits out at Rock & Roll Hall of Fame after repeated snubs
--  Hurrikaani-Loimaa tylyssä tilanteessa - joutuu pelaajamarkkinoille joulun kynnyksellä
--  VPS kiinnitti lupaavan laitahyökkääjänsä: "Jälleen yksi hyvä esimerkki laadukkaasta juniorityöstä"
--  جردتهم من ملابسهم.. إسرائيل تعتقل مئات الفلسطينيين بشمال قطاع غزةاليوم السبت، 16 ديسمبر 2023 08:20 صـ
--  حسن نصر الله: معركة طوفان الأقصى أحدث زلزالا في الكيان الإسرائيلي الجمعة، 3 نوفمبر 2023 02:41 مـ
--  الاحتلال يقصف محيط مستشفى القدس في غزة الخميس، 2 نوفمبر 2023 10:33 صـ
--  المخابرات الأمريكية: فاجنر قد ترسل أنظمة دفاع جوي إلى حزب الله الخميس، 2 نوفمبر 2023 06:01 مـ
--  نتنياهو ردا على خطاب نصر الله: «أي خطأ سيكلفك كثيرا» الجمعة، 3 نوفمبر 2023 04:58 مـ
--  رئيس بلدية الدكوانة أنطوان شختورة في مؤتمر "التيار":
--  "Chicago Mass Choir" abre el ciclo de góspel en el teatro Jovellanos
--  وائل رياض يعقد مؤتمرا صحفيا غدا للحديث عن استعدادات منتخب الشباب لبطولة... الثلاثاء، 7 نوفمبر 2023 01:48 مـ
--  الأهلي يسحق اتحاد جدة بثلاثية نارية في عقر داره بمونديال الأندية.. ويخطف...الأمس الجمعة، 15 ديسمبر 2023 08:50 مـ
--  وزير الإسكان يُدلي بصوته فى الانتخابات الرئاسية 2024 الأحد، 10 ديسمبر 2023 09:42 صـ
--  وزير الإسكان يتابع تقدم أعمال ”سكن لكل المصريين” بالقاهرة الجديدةاليوم السبت، 16 ديسمبر 2023 08:59 صـ
--  البيئة: إحكام السيطرة إلكترونيًاعلى مداخن بالقاهرة لتكرير البترولاليوم السبت، 16 ديسمبر 2023 09:44 صـ
--  Sunil Gavaskar: ప్రపంచకప్ బాధ పోయింది.. ఇప్పుడు ఐపీఎల్‌పైనే దృష్టి
--  Feministička antifašistička mreža ogorčena zbog presude Aidi Ćorović
--  COVID-19: China reports seven new cases of JN.1. subvariant, know common symptoms
--  ONLINE: Pokračování návratu. Ledecká jede ve Val d’Isere druhý sjezd sezony
--  Jobs offered to laid off HSBC call centre employees
--  U NEDELJU 6,5 MILIONA BIRAČA ODLUČUJE KAKO ĆE IZGLEDATI SKUPŠTINA SRBIJE! Sve o pravilima na biralištu tokom 13 sati glasanja!
--  ONLINE: Pokračování návratu. Ledecká jede ve Val d’Isere druhý sjezd sezony
--  Hoćemo li u Novu godinu zakoračiti sa snijegom, evo šta meteorolozi kažu
--  UFC 296 card: Leon Edwards and Paddy Pimblett in action tonight
--  경복궁 담장에 '영화공짜' 스프레이 테러…"일벌백계할 것"
--  Tarifprotest im Einzelhandel vor Ikea-Zentrale geplant
--  Fußgänger dürfen für einen Tag auf die neue Salzbachtalbrücke
--  Angespannte Lage bei den bayerischen Tafeln
--  Menschen trennen sich in Bayern von 10 Millionen D-Mark
--  Amitabh Bachchan Is 'Proud' After Aaradhya's School Performance: 'Complete Natural On Stage...'
--  MayaLo Film Review: A Visual Feast Of Emotions Amid Road Trip Adventures
--  El tiempo en Castilleja de la Cuesta: previsión meteorológica para mañana, domingo 17 de diciembre
--  여성 얼굴에 화상 입히고 도주…경찰, 용의자 추적
+-  Mitsotakis nxjerr foton me Ramën, mediat greke: Pavarësisht ‘përplasjeve’ me Scholz, Greqia i tha ‘jo’ pranimit të Shqipërisë në BE për ‘Belerin’
+-  بالأبيض.. إطلالة هادئة لأسماء أبو اليزيد في عقد قرانها
+-  "بإطلالة داعمة لفلسطين".. نسرين طافش باليوم الثاني للجونة السينمائي
+-  "روكيت لاب" تطلق صواريخاً إلى الفضاء…بعد محاولة فاشلة
+-  'Youth are desperate': Rahul Gandhi lashes out at Modi govt, says Parliament security breach happened because...
+-  Quelle époque ! (France 2) : qui sont les invités de Léa Salamé ce samedi 16 décembre 2023 ?
+-  6000 साल पुरानी हैं संगमरमर की ये गुफाएं, दिनभर रंग बदलती हैं दीवारें!
+-  تلفزيون الكويت يقطع برامجه ويبث آيات من القرآن
+-  Israel: centenas de manifestantes exigem nova trégua para libertar reféns
+-  تلفزيون الكويت يبث آيات من القرآن الكريم .. وبيان مرتقب للديوان الأميري
