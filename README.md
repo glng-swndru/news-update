@@ -1,51 +1,51 @@
 # Latest News
--  “‘尹 아바타’ 한동훈, 대통령에 한번이라도 ‘아니되옵니다’ 해봤나”
--  Chủ tịch Laporta gửi thông điệp đến Xavi
--  Carlo Ancelotti đưa ra lựa chọn giữa Real và Brazil
--  Diego Simeone: "Cậu ấy là một cầu thủ toàn diện"
--  Đây sẽ là trung vệ mà Real cần nhất lúc này
--  Xavi ngày càng gần việc chia tay Barca
--  Unai Emery khẳng định chắc nịch về mục tiêu vô địch
--  Suarez & Messi khuyên hết nước, nhưng Neymar đâu có nghe
--  Joe Cole dự báo mức giá khổng lồ Arsenal phải chi cho Douglas Luiz
--  Tchouameni gây sốc cho tất cả
--  Pochettino quay xe với sao Chelsea
--  Các đội bóng ở Ligue 1 “thích” ghi bàn cuối trận mùa này
--  Tỏa sáng trước Forest, Richarlison được "tung lên mây"
--  Gary Neville: "Những điều này phải dừng lại"
--  Alisson: "Onana đủ sức thay thế De Gea"
--  Arteta khen ngợi đối thủ
--  Viễn cảnh trong mơ tại Anfield với NHM Man Utd
--  Tottenham "thở phào" về chấn thương của trụ cột
--  Pochettino: "Cậu ấy sẽ có trận đấu ra mắt ở Stamford Bridge"
--  Guardiola xác nhận khả năng thi đấu của Haaland
--  Berbatov dự đoán kết cục của Man Utd tại Anfield
--  M.U thu nạp thêm 1 thủ môn
--  Đội hình trong mơ của Newcastle với Toney và De Gea
--  Phát biểu của các đối thủ đã chỉ rõ điểm yếu của M.U
--  Cỗ máy hủy diệt Man City chuẩn bị vào guồng?
--  4 lý do khiến Hojlund 'tắt điện'
--  Agbonlahor khuyên Chelsea bán 1, giữ 1
--  Neville: "Cậu ấy sẽ có giá 100 triệu bảng"
--  Đội hình M.U đánh bại Liverpool năm 2016 nay đâu?
--  لقاء قطري إسرائيلي مرتقب لاستئناف مفاوضات الأسرى
--  CM की शपथ लेने के साथ ही राजधानी से सामने आयी दो रेप की घटनाएं
--  Daily horoscope for December 16, 2023
--  Përmirësoni komunikimin me këto sjellje
--  이정현, 로드FC 9연승 질주 "더 강한 상대 붙여달라"
--  SoloDate, l’hashtag che celebra l’appuntamento in solitaria
--  AK Parti için kritik tarih! Erdoğan adayları açıklayacak
--  Hakem Umut Meler'den açıklama!
--  CHP'li vekil Saadet Partisi'ne geçti
--  Apple TV+ annuncia la serie “Your Friends and Neighbors”
--  Журналистът Ангел Григоров: Русия има необходимия ресурс за дълга война на изтощение
--  Tether Collaborates With US Regulators For Robust Crypto Security
--  Solana Flips Ethereum DEX Volume As Saga Mobile Gets Sold Out & BONK Price Rally
--  Prof insegna da 20 anni ma non è laureata. Dovrà restituire 247mila euro
--  25 sjukhus borta i Gaza – 18 000 döda
--  Sabah Bakıya sulu qar yağacaq
--  熊本市の職員採用、初の「早期募集枠」導入 24年度 従来日程より2カ月前倒し、民間と同じタイミングに
--  Montgomeryshire holiday park plan objectors want scheme 'called-in'
--  Découvrez le Grand JT des territoires du samedi 16 décembre
--  ŠA POBESNEO U CIK ZORE Napravio haos ljubavnici zbog poklona od 22.000 evra koji je dobila od bivšeg
--  Defunciones 16 de diciembre
+-  Northern governors pledge to partner on security, economic development, others
+-  Kane, Guirassy face off as Bayern host surprise package Stuttgart
+-  Tikslas pasiekiamas. Ukraina gali nugalėti Rusiją per 3 metus. Estijos žvalgyba įvardijo sąlygas
+-  İstanbul'da sosyal medyadan müstehcen paylaşıma 2 tutuklama
+-  시인 인터뷰 전 시집 다 외운 지역신문 기자의 진심
+-  ΜΕΓΑΛΟ ΚΕΝΟ…
+-  Ο Κυριάκος Μητσοτάκης συναντήθηκε με εγκαυματίες στο Μέγαρο Μαξίμου
+-  Radulović: Zabrinjavajuće stanje u željezničkim preduzećima,...
+-  Auto vliegt in brand na botsing met vrachtwagen op A15 bij Alblasserdam
+-  Bursa'da 63 yaşındaki esnaf her gün 20 km koşuyor
+-  36 yıl sonra şehit sayıldı: Bizim için başka hiçbir şey önemli değil
+-  Bursa Gemlik'e bin metrekare park
+-  Mısır'a giden Yiğit'ten 461 gündür haber alınamıyor
+-  Deprem konutlarında geri sayım başladı
+-  Bakan Özhaseki: Binaların da artık bir kimliği olacak
+-  İstanbul'da oğlunu öldürdü, babasını ve annesini bıçaklayıp kaçtı
+-  CHP Milletvekili Ali Fazıl Kasap Saadet Partisi'ne geçti!
+-  Sosyal medyadan müstehcen paylaşıma 2 tutuklama
+-  Bingöl'de 10 yıl kesinleşmiş hapis cezası olan zanlı yakalandı
+-  Küçükkayalar, Bursa Vizyonunu anlattı
+-  Trump'ın avukatı hakaret davasında yaklaşık 150 milyon dolar tazminat ödeyecek
+-  İran'da, İsrail adına casusluk yaptığı iddia edilen bir kişi idam edildi
+-  Bursalı SMA hastası Havvanur'un annesi: Evladımın sesini duyuramıyoruz
+-  Tarihte bugün neler oldu? (16 Aralık)
+-  Tarihte bugün doğan ünlüler kimler? (16 Aralık)
+-  Tarihte bugün vefat edenler kimler? (16 Aralık)
+-  Sivas'ta silahla sırtından yaralayıp, öldüresiye darbettiler
+-  Bursa'da Koray Avcı coşkusu
+-  Mourinho o najboljih 11: ‘Nemoguće mi je to izabrati! Lažete’
+-  Наш советский Дед Мороз!
+-  Lalić o dojavama o bombama: Zašto se ranije nije reagovalo, ovo traje više od godinu dana
+-  Μπέττυ Μαγγίρα: «Η Σίσσυ Χρηστίδου τον λιγουρεύεται τον Μακαλιά»
+-  대통령실, "野 잘못된 논평으로 대통령 순방성과 정치적 폄훼"
+-  عاجل.. التقديم بدأ الآن.. قوات الأمن الخاصة تعلن عن وظائف عسكرية لحملة الدبلوم الصحي "رجال"
+-  Vianoce spájame s pomocou druhým. Ľudia na Slovensku však radi pomáhajú počas celého roka
+-  קין צפוי לרענן את ה-11, בונדוסו במקום קניקובסקי?
+-  Deň po masívnom požiari spaľovne: Sú známe výsledky meraní kvality ovzdušia! Polícia začala trestné stíhanie
+-  Камелия Тодорова: Плачех и пиех, докато творях
+-  Toplinski val pogodio Australiju, vatrogasci se bore s požarima
+-  भारतीय नौसेना ने अरब सागर में जहाज के अपहरण की घटना पर तत्काल कदम उठाया
+-  Karatisti Budućnosti danas na turniru u Slovačkoj
+-  Mariah Carey maga készíti a pulykát az ünnepi asztalra: ez a receptje
+-  Iran eyes to build solar power plants in Bushehr Province
+-  Джилардіно: Стиль гри Дженоа посилює здібності Малиновського
+-  Hakemlerden ortak karar: Maçlara çıkacağız
+-  Türk zırhlı aracı Ejder Yalçın AB ülkesinde üretilecek
+-  Aydın'da aranan şahıslara operasyon: 23 gözaltı
+-  Yapay zeka sınır tanımıyor! Ölüler artık diriltilebiliyor...
+-  iPhone Ban in China: चीन में सरकारी कर्मचारी अब अपने साथ नहीं ला सकेंगे आईफोन, चलाने पर लगा प्रतिबंध; जानें वजह
+-  Bawa ‘AMIN’ ke Jeneponto, Deng Ical Mendapat Dukungan Warga
