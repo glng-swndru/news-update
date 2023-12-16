@@ -1,51 +1,11 @@
 # Latest News
--  본죽, 임영웅 부산 콘서트서 ‘행운팥죽’ 브랜드 부스 운영
--  김포시, 4년 연속 ‘주택행정 우수기관’ 선정
--  아산시먹거리재단, ‘완료지구 사후관리’ 마을강사 역량강화 성료
--  대전시의회 예결위, 내년도 대전시교육청 본예산안 의결
--  군자디지털과학고 학부모회 및 학생회, 'Digital Festival' 수익금 기부
--  시흥, ‘일상돌봄 서비스’ 제공기관 공개 모집
--  반도건설, '탈 현장·태양광 모듈 생산' 등 혁신 기술 발굴
--  Resmi Gazete'de yayımlandı...AR-GE ve tasarım faaliyetlerine desteklerde düzenlemeye gidildi
--  Kanarya'da Afrika Kupası endişesi! İşte ülkesine gidecek olan futbolcular
--  Jandarma dron destekli trafik denetimi gerçekleştirdi
--  Trabzonspor'dan Anastasios Bakasetas açıklaması! "İddialar gerçeği yansıtmamaktadır"
--  Türkiye çıta yükseltti! İki noktada büyük petrol potansiyeli
--  권다함, 제24회 부산영화평론가협회상 신인남우상 영예
--  日개최·비싼티켓·다시보기無…'뮤뱅 글로벌 페스티벌', 계속된 논란 [MD이슈](종합)
--  바르사 '충격 계획'...레반도프스키 팔고 '이 선수' 데려온다!
--  “무슨 약 먹고 살이 확 빠진거야”, 40kg 감량 오프라 윈프리 다이어트 성공에 제약회사 함박웃음[해외이슈](종합)
--  “김하성 트레이드 방아쇠 당겨라…700만달러인데 최고의 수비형 내야수” 예비 FA, 빅딜 언제든 가능
--  '이경규 딸' 이예림, 얼굴은 귀여운데 글래머까지…여행지 '과감 노출' [MD★스타]
--  Avaliada em R$ 22 milhões, mansão de bicheiro que construiu império milionário vai a leilão no litoral de SP
--  Kristian Hlynsson bewondert Kevin de Bruyne: ‘Bij zijn beelden denk ik soms: hoe zou ik dat doen?’
--  „Der tut nichts!“ Das stimmt leider auch in Südtirol nicht
--  Comments about Sienna Miller's pregnancy just reflect our outdated views on motherhood in 2023
--  Skin icing's not just for summer – this cryotherapy technique will get you party season ready
--  Juventus miss out on top spot after Genoa draw
--  Two trichologists explain the realities of winter hair shedding—here's what you need to know
--  ‘양날의 검’ 된 AI 기술, 민주주의 강화하거나 해치거나 [AI 선거]
--  DEBATT: Vätgasens verkningsgrad och lantbrukens möjligheter
--  DNEVNI HOROSKOP: Rak nek "povuče ručnu", Lav da "otvori karte" na sto, Vodolije na vrhuncu inspiracije, a vi?
--  DEBATT: Vätgasens verkningsgrad och lantbrukens möjligheter
--  কাবা যেভাবে গড়ে উঠল
--  Lazio, tra botteghino e premi ecco oltre 60 milioni dalla Champions. Sarri, rebus difesa
--  DEBATT: Vätgasens verkningsgrad och lantbrukens möjligheter
--  Euroopan vaisu talouskuva puoltaa korkokäännettä – Tässä ovat europörssien suuryhtiöiden tulosennusteet
--  Bruslení či koncerty hvězd, i to je advent
--  Tous en cuisine avec Cyril Lignac : les ingrédients de la semaine du 18 au 22 décembre 2023
--  Запытайся ў Дубаўца. Пра асуджэньне людзей, якія застаюцца ў дзяржаўнай сыстэме Беларусі, і найлепшы канец кар'еры Лукашэнкі
--  Shire of Denmark seeks community feedback on Coastal Reserves Management Plan draft
--  Armée de libération marocaine #9 : La réaction du Protectorat aux opérations du 2 octobre 1955
--  Für Sorgerecht: Blac Chyna wird nicht über Tyga sprechen
--  Bakıda qanunsuz yaşayan 11 əcnəbi saxlanıldı
--  مناوي: ما حدث من تدمير في الخرطوم لم يحدث في التاريخ والقوات المسلحة هي المؤسسة السودانية الوحيدة الباقية
--  異例 小栗旬が2年連続大河出演へ
--  그래프만 보고 추측하지 맙시다
--  Saldırıya uğrayan hakem Halil Umut Meler'den yazılı açıklama! 'Benim de arzumdur' diyerek kamuoyuyla paylaştı
--  Yatak pozu sosyal medyayı salladı
--  Ahmet Hakan yazdı: Vatandaşın kemeri zaten sıkı!
--  BUDO 12 seferini iptal etti!
--  Uzman doktordan öneri: 4 kuralla diyabeti önlemek mümkün
--  Gazze'de can kaybı 18 bin 800'e çıktı
--  Bakan Yerlikaya duyurdu: 2842 kişi yakalandı
+-  聖誕好去處2023︳5大夢幻飄雪匯演打卡商場！愉景灣/利東街/MCP新都城/如心廣場/荃新天地
+-  حماس تسخر من منشور للاحتلال: لا وقت لقلي البيض مقاومونا منشغلون بشواء الميركافا
+-  الخمول في الطفولة يضعف القلب مبكراً
+-  الذكاء الاصطناعي يكشف تفرّد اللسان مثل البصمة
+-  聯儲局放鴿 勞力士價格有望止跌回升 把握趁低入手好時機（附8大跌價錶款）
+-  Nevjerovatan spisak: Više od pola reprezentacije Austrije se preziva na 'ić'
+-  Phoenix poražen, Nurkić upisao novi double-double
+-  Försvunnen pojke hittad – efter sex år
+-  國內非洲豬瘟疫情嚴峻 四川文件露端危？
+-  একই খাবার ৬ বার ডেলিভারি পেলেন তিনি
