@@ -1,11 +1,11 @@
 # Latest News
--  اتعلمي من نانسي عجرم.. سيد علي يوجه رسالة لشيرين بعد انفصالها عن حسام حبيب
--  130 مسؤولاً بـ"الأمن الداخلي" يطالبون بايدن بوقف إطلاق النار في غزة
--  السيد البدوي: يمامة وعمر وزهران لم يرتقوا لمنافسة السيسي شعبيًا في الانتخابات
--  إصابة شاب صدمه قطار أمام نادي أرض اللواء
--  بالأسماء.. إصابة 6 أشخاص إثر حادث تصادم في الوادي الجديد
--  في نقاش مفتوح.. رئيس جامعة دمنهور يبحث مطالب الطلاب ذوي الهمم
--  الهلال الأحمر الفلسطيني: مستشفيات الشمال توقفت عن العمل
--  Tome acciones si regala tecnología para que su hijo no desarrolle males oculares
--  Joint Marine Search and Rescue Simulation Exercise To Enhance Safety On Lagos Inland Waterways – LASWA
--  Etiler'de panik yaratan yangın! Cip alevlere teslim oldu
+-  Kate Garraway's husband Derek Draper 'fighting for his life after heart attack as GMB star cancels all work commitments to be by his side'
+-  Ally McCoist recalls classic Rangers v Aberdeen trilogy at Hampden – and the referee who made final special
+-  Andeutungen in Song: Will Kanye West ein Kind mit Bianca?
+-  Взрывы произошли в Одессе и в Кропивницком
+-  I fled creepy director who tried to make me do a sex scene – I was only 20, says Oscar winner Penelope Cruz
+-  Na 1-1 tegen Excelsior verbreekt Go Ahead Eagles net niet dit clubrecord uit 1981
+-  Fury as woke Royal Yacht Association say ‘stop using the word man’ in sailing terms
+-  Οι όμηροι που σκοτώθηκαν κατά λάθος στη Γάζα κρατούσαν λευκή σημαία, δηλώνει αξιωματούχος του ισραηλινού στρατού
+-  A shock Patriots ending may be on the cards … but NFL icon won’t make ugly exit easy
+-  Vanja ostao nesavladan - minimalac Torina
