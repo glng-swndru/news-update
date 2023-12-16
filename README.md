@@ -1,11 +1,51 @@
 # Latest News
--  Как попасть на арт-девичник? Новые пространства для самореализации в Душанбе
--  «Мои братья ревнивые и всегда сопровождают меня». Откровения Ёсамин Давлатовой
--  '굿바이, 레알 마드리드'...레전드가 떠난다
--  신임 용인도시공사 사장에 신경철 전 LH 국토도시개발본부장 내정
--  용인특례시의회, 제277회 제2차 정례회 폐회…내년 예산안 등 의결
--  용인시공무원노조, 윤원균 시의장과 조합원 고충사항 해결 머리 맞대
--  김대남, 용인시갑 예비후보 등록…"반도체 도시 용인 기반 조성 능력·자질 갖춰"
--  이상일 용인시장 “내년 예산 많이 살렸지만 부족한 예산은 내년 추경 통해 확보”
--  음주사고 적발에 신분 숨겼다 뒤늦게 보고한 경찰관 직위해제
--  اللجنة الطبية العسكرية تختتم برنامجاً طبياً لعلاج الجرحى في مأرب
+-  Община Варна организира Рождественски хоров фестивал
+-  Затварят временно две кръгови кръстовища заради ремонт на улица "Девня"
+-  Uusi kirja Suomen jääkiekkovalmentajista – muutama faktapuute vaivaa
+-  Champagne : 7 idées pour le remplacer pendant les fêtes
+-  Covid : les endroits où vous devriez remettre le masque
+-  Bradley Cooper et Irina Shayk : leur fille de 6 ans fait ses premiers pas sur le tapis rouge
+-  Cadeaux pour un ado : ce qu'il faut éviter de lui acheter
+-  Mayim Bialik has been told she's no longer the host of Jeopardy!
+-  Everybody seems to like the Stranger Things stage play
+-  Mayim Bialik has been told she's no longer the host of Jeopardy!
+-  Everybody seems to like the Stranger Things stage play
+-  Merkez Bankası Başkanı İstanbul'da Pahalılıktan Kiralık Ev Bulamadı, Annesinin Yanına Taşındı
+-  Ignatul la români, tradiționala tăiere a porcului de Crăciun. Degustare la Muzeul Astra din Sibiu FOTO VIDEO
+-  ¡En la órbita nacional! El Quelite, sede del nacional de Ulama de Cadera
+-  बेहद टेस्टी है यह डबल फ्राई कचरी...15KG प्याज 3 घंटे में हो जाता है चट
+-  Yön uutiskooste | Nämä ovat Suomen parhaat lukiot, Matthew Perryn kuolinsyy selvisi
+-  Yön uutiskooste | Nämä ovat Suomen parhaat lukiot, Matthew Perryn kuolinsyy selvisi
+-  Hitachi gets grant for scalable server system for executing applications with replicated logic units
+-  Yext gets grant for method to suppress duplicate listings in search results
+-  Ribbon Communications gets grant for migrating network interfaces in a kubernetes system
+-  Otonomo Technologies gets grant for normalizing automotive data from multiple sources
+-  Mavenir Systems gets grant for method of validating an access token for wireless communication
+-  Lacework gets grant for guided anomaly detection framework for cloud deployment monitoring
+-  How to make a balloon in Lego Fortnite
+-  How to evolve Inkay into Malamar in Pokémon Scarlet and Violet
+-  Netflix's Chicken Run: Dawn of the Nugget is a Mission: Impossible film
+-  How to get shells in Lego Fortnite
+-  Godzilla x Kong, and other recent movies, prove Godzilla can do it all
+-  How to get cord in Lego Fortnite
+-  How to evolve Inkay into Malamar in Pokémon Scarlet and Violet
+-  Robert Pattinson's The Batman added to Batman: Arkham Knight
+-  How to get shells in Lego Fortnite
+-  Pokémon Go December 2023 Community Weekend event guide
+-  How to get cord in Lego Fortnite
+-  Taylor Swift's Eras Tour, Barbie, and every new movie to watch this weekend
+-  How to make a balloon in Lego Fortnite
+-  Pokémon Go December 2023 Community Weekend event guide
+-  Netflix's Chicken Run: Dawn of the Nugget is a Mission: Impossible film
+-  Robert Pattinson's The Batman added to Batman: Arkham Knight
+-  Taylor Swift's Eras Tour, Barbie, and every new movie to watch this weekend
+-  Godzilla x Kong, and other recent movies, prove Godzilla can do it all
+-  Shadow Gambit: The Cursed Crew gets mod support in surprise final update
+-  Valve's festive treat for "thousands" more DOTA 2 cheaters is a lump of coal and a permanent ban
+-  Elden Ring's Shadow of the Erdtree DLC out in February, partner leak suggests
+-  Festive fan-game Birdo's Holiday Brawl is a late entrant for game of the year
+-  Don't expect to see Baldur's Gate 3 on Xbox Game Pass, developer says
+-  וושינגטון ניצחה 123:137 את אינדיאנה, דני אבדיה קלע 6 נקודות
+-  शाहजहांपुर में नाबालिग से गैंगरेप के बाद हत्या, नीम के पेड़ से लटकता मिला शव
+-  Pedestrian seriously injured in Spring Bank crash
+-  Hull man raises money for mental health - by exercising for 24 hours straight
