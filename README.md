@@ -1,11 +1,51 @@
 # Latest News
+-  20 కోట్ల శునకం
+-  البنتاغون: المدمرة “كارني” الأمريكية تشتبك فوق البحر الأحمر مع 14 مسيّرة انطلقت من اليمن
+-  Dos trenes con 200 pasajeros chocan en Málaga sin causar heridos
+-  권은비 뭘 어쨌길래? 김종국 "다신 안나온다 약속해라!" 분노 [런닝맨]
+-  Violencia de género y femicidios: el Gobierno analiza la situación en Mendoza y de las áreas que abordan estos temas
+-  La FAO prevé una nueva crisis de gripe aviar en 2024
+-  IRANSKI MINISTAR: Okrivio Izrael za napad na policijsku stanicu
+-  قناص يقتل امرأة مسيحية وابنتها داخل كنيسة في غزة
+-  Netanyahu:Jam krenar që kam penguar krijimin e shtetit palestinez
+-  CM REVANTH REDDY : సభలోనూ ఉండరు
+-  How was 2023 for EVs?
+-  The competition for HBCU marching band of the year
+-  Evlilik oranları düştü
+-  Yaogan-41 fırlatıldı
+-  Engineer Chandrakumaran
+-  Alex Batty, le jeune Britannique qui avait disparu pendant six ans est de retour chez sa grand-mère en Angleterre (VIDEO)
+-  FC Barcelona wint ondanks fraaie pass Frenkie de Jong ook niet van Valencia
+-  Baraja: "Tiene mucho mérito el punto y el trabajo que hemos hecho"
+-  Vietnamilais­mies kärsi päänsärystä lähes puoli vuotta – Aivoista löytyi syömäpuikot
+-  Viertelfinal-Gegner des ASV Mainz 88 steht fest
+-  USS Gerald R. Ford'un görev süresi uzatıldı
+-  Hairy Bikers reveal worst ever filming disaster which involved food mixer
+-  El Barça se aleja de LaLiga en Valencia: a la construcción de Xavi le faltan pilares
+-  Rus ordusu Yars füzeleriyle tatbikata başladı
+-  Directivo de Red Bull explica el dominio del auto de 'Checo' Pérez
+-  RCMP charge minor in Ottawa, allege connection to possible terrorist activity against Jewish people
+-  Serie A: Osimhen powers Napoli to victory with goal, spectacular assist
+-  Eksperti amerikan paralajmëron: Ka rrezik për dhunë me motive etnike në Ballkanin Perëndimor
 -  Presidente Petro propone decreto para incorporar software de autodestrucción en celulares contra el robo
+-  KTR : మూడు నెలల్లో అట్టర్‌ఫ్లాప్‌
+-  Guerre Israël-Hamas : la France annonce la mort d'un agent du Quai d'Orsay après un bombardement israélien
+-  Trump repeats 'poisoning the blood' anti-immigrant remark
+-  İsrail ajanı idam edildi
+-  En una final no se perdona
 -  דייגים פתחו מכולה שמצאו צפה בים - ובתוכה היה אוצר מדהים
 -  Gjenden mjete piroteknike në Bit Pazar në Shkup, arrestohet një person
+-  مواعيد مباريات اليوم الأحد المتنوع
+-  'ABD bayrağındaki yıldızlardan biri değiliz'
+-  “반값보다 더 싸네요” 7900원짜리 치킨 떴다 …어디서 팔지?
+-  Sjajni Džanan Musa vodio svoj Real do nove pobjede
+-  El tajante motivo por el que Eduardo Feinmann se iría de LN+ según lo anticipa Esmeralda Mitre
+-  New Firetruck Donated
 -  Kickoff | Stuttering Barcelona extend winless run
 -  Nearly two thirds of kids to track on Santa on mobiles as he delivers gifts around the world
+-  Mueren 61 migrantes en un naufragio frente a las costas libias
 -  Erdoğan'dan sosyal medya tepkisi: Ahlaki açıdan ciddi bir erozyon var
+-  João Félix marca no empate 1-1 do FC Barcelona na visita a Valência
 -  כוכבות הסרט "הרגישו כמו זונות" לאחר "אורגזמה במשך שש שעות רצופות"
 -  רק באמריקה: נערת הזירה ה"אגדית" פרשה מה-UFC, והתגובות קורעות
 -  קניקובסקי כשיר למכבי נתניה, בונדוסו עדיין בתמונת ההרכב
--  FC Barcelona patzt in Valencia erneut im Titelkampf der La Liga
