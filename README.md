@@ -1,51 +1,51 @@
 # Latest News
--  Väståbolands svenska församling får ny pastor efter trettondagens prästvigning
--  לעקוף את החות'ים: משלוחים ראשונים במשאיות מדובאי הגיעו לארץ
--  ראשון בגרמניה: באיירן מול הפתעת העונה, לברקוזן מקווה לברוח
--  Rotary faz rifa para instalar energia em Lar dos Idosos em Sinop
--  PM Awas Yojana:गांवों में भी घर खरीदने के लिए सरकार देगी ₹2.5 लाख?, लोकसभा से आया ये जवाब
--  Hinrichtung in Iran wegen angeblicher Spionage – auch für Israel
--  Transfer news roundup: Chelsea eye Premier League rival to solve goalkeeper injury crisis
--  South Africa Women vs Bangladesh Women Live Score: 1st ODI of Bangladesh Women tour of South Africa, 2023 to start at 05:30 PM
--  31 दिसंबर के बाद आप Google Pay, PhonePe, Paytm से नहीं कर पाएंगे UPI पेमेंट!
--  II Liga: Siga em direto os resultados e marcadores da 14.ª jornada
--  تحولات المواقف الدولية من فلسطين
--  YuvaGalam Padayatra: యాదవులతో లోకేష్ ముఖాముఖి
--  Grupa profesora iz Zemunske gimnazije odbila pohađanje obuke koju je najavio MUP
--  Parliament Breach: నా కొడుకు అమాయకుడు, కోర్టుని ఆశ్రయిస్తాం.. పార్లమెంట్ దాడి మాస్టర్‌మైండ్ తండ్రి వాదన
--  MHP Genel Başkanı Bahçeli açıklamalarda bulunuyor
--  Antiga estrela do United sem dúvidas: "Há uma toupeira naquele balneário"
--  Muere el politólogo y escritor italiano Toni Negri
--  Fish Aadhar Card: अब मछलियों के लिए भी बन रहा आधार कार्ड, जानिए कैसे होगी मछली की पहचान
--  Renovadores comunistas pedem que esquerda se entenda para reeditar geringonça e formar Governo
--  Khanyi Mbau gives justifiable reasons why men are being violent to women
--  Blagdani su stigli na Epic Gamesu: Uzmite besplatno Destiny 2 Legacy Collection
--  The non-negotiables in a relationship: Here's what we should not settle for
--  India, Oman adopt vision document to expand ties
--  DU Recruitment 2023: Apply for 51 Assistant Professor posts at colrec.uod.ac.in
--  China, Arábia Saudita e Irã consideram que Oriente Médio não deve mais ser arena geopolítica para grandes potências
--  Demokraatti: Eduskunta päätti tehdä tiistaisesta mielenosoituksesta tutkintapyynnön poliisille
--  Zlato: Stále je dobrá cena k nákupu!
--  Norska åkarna i tårar – flyr plötsligt till skogs
--  Åland representerades på internationellt kempoläger
--  মনে পড়ে সেইসব দিন
--  नाइट वियर जैसे कपड़े पहनकर एक्ट्रेस जान्हवी कपूर ने सारी हदें पार कर दीं, एक्ट्रेस नेट ड्रेस पहनकर डिनर के लिए निकलीं
--  Il museo Met di New York restituirà a Thailandia e Cambogia 16 statue che erano state rubate
--  ছাত্রলীগের ‘আড্ডায়’ যোগ দেবেন সাকিব
--  Minister Nagarjuna: నియోజకవర్గ మార్పుపై మంత్రి నాగార్జున కీలక వ్యాఖ్యలు
--  Cum va fi vremea de Crăciun și de Revelion. ANM a actualizat prognoza meteo pentru finalul anului
--  وزارة الاقتصاد والمالية : عجز الميزانية يصل إلى 51,4 مليار درهم عند متم نونبر 2023
--  Meet the top fund managers of 2023: How they outsmarted their peers, and their big bets for 2024
--  Fragen und Antworten: 32-Stunden-Woche und eine Prämie: Das hat die IG Metall für die Stahlindustrie ausgehandelt
--  Fragen und Antworten: 32-Stunden-Woche und eine Prämie: Das hat die IG Metall für die Stahlindustrie ausgehandelt
--  ABD: Kısa kesin
--  “Bu, Fransanın gizlətməli bir şeyinin olduğunu göstərir”
--  Ellwanger Weltladen ist erfolgreich am neuen Standort
--  Milan Napoli Femminile 0-0 LIVE : riscaldamento in corso
--  選戰觀察／高雄突圍在年輕人！ 「侯康配」要避免從台北看天下
--  Preminuo kuvajtski emir šeik Nawaf al-Ahmad al-Jaber al-Sabah
--  T-banetog sporet av ved Bergkrystallen
--  ZDK: U evidenciji nezaposlenih na kraju novembra bilo 49.012 osoba
--  Ancelotti recupera a Tchouaméni y Endrick no se pierde el entrenamiento
--  Strandsatta i paradiset – regn förstörde landningsbanan
--  Pörssisähkön hinta tänään matalimmillaan sitten Black Fridayn hintasotkun
+-  Einbruchsdiebstähle und Versuche in Unterfranken
+-  Sachbeschädigung durch Böller
+-  Kuveyt Emiri es-Sabah hayatını kaybetti
+-  Başkan Arat'tan flaş kadro dışı açıklaması!
+-  Güçlü Tepki! Biyokütle Elektrik Santraline Karşı
+-  Napravite čaj koji iste sekunde ublažava grlobolju
+-  Burcad badeeda Soomaalida oo afduubtay Markab sitay Calanka Malta
+-  김단비·최이샘이명관·박지현 분전, 우리은행 수비로 끝냈다, 하나원큐 잡고 5연승, 공동선두
+-  Realizan concurso de nacimientos oaxaqueños
+-  Putin će učestvovati na predsedničkim izborima 2024. kao nezavisni kandidat
+-  अमेरिकी समाचार प्रकाशक ने गूगल पर AI तकनीक के माध्यम से विज्ञापन राजस्व चुराने का आरोप लगाया
+-  World News | India, Oman Strengthen Economic Ties with Announcement of 3rd Tranche of Joint Investment Fund
+-  Premiere: Bradley Cooper ist mit Tochter auf Red Carpet
+-  Özgür Özel’den Saadet Partisi’ne gönderilen vekil hakkında açıklama
+-  Trabzonspor'da ayrılık gerçekleşti
+-  Из Газы вновь обстреляны приграничные населенные пункты
+-  PM Narendra Modi’s ‘GDP Plus Welfare Model’ Driving India on Accelerated Growth Path
+-  ليبرمان :حرب مع الأردن ومصر.. بغطاء مصالح صهيونية
+-  BBQ,, 종로 젊음의 거리에 종로종각점 오픈
+-  পার্থে পাকিস্তানের ওপর ছড়ি ঘুরাচ্ছে অস্ট্রেলিয়া
+-  মগবাজারে ট্রেনের ধাক্কায় নিরাপত্তাকর্মীর মৃত্যু
+-  Polizei schnappt Minderjährigen nach Autounfall
+-  Matthew Perry, o Chandler da série 'Friends', morreu de efeitos agudos de quetamina
+-  Nova trvenja u EU oko Ukrajine: „Orban izgubio jednu bitku, ali rat između njega i Unije će da potraje“
+-  Ľudí pobláznilo VIDEO, vidia na ňom dinosaurov! Keď to zbadáte, pôjdete do kolien
+-  Pápež František nechce byť pochovaný vo Vatikáne: Toto je miesto, kde spočinie naveky
+-  Mais de 900 lesados do BES pedem que o julgamento Salgado tenha caráter de urgência
+-  트레저 콘서트, 기상 악화로 외부 부스 운영 중단 "내일(17일) 운영은 추후 안내"
+-  Lok Sabha Election 2024: चुनाव मैदान में उतरेंगी लालू प्रसाद की बेटी रोहिणी आचार्य, बिहार के इस सीट से लड़ सकती हैं लोकसभा चुनाव
+-  मुख्यमंत्री योगी का फरमान, सर्द रातों में कोई भी खुले में न सोने पाए
+-  Asgari ücret öncesi TÜRK-İŞ'ten hamle
+-  Polizei stoppt Lkw-Fahrer mit Nagelkette
+-  Kuća
+-  Décès de l’émir du Koweït Cheikh Nawaf à l’âge de 86 ans
+-  Po neúmyselnom zabití zajatcov majú byť izraelskí vojaci mimoriadne ostražití, akcia vyvolala protesty
+-  Bus route needed between Athgarvan and Naas Hospital
+-  कर्नाटक उच्च न्यायालय ने छात्रा को आईसीएआई सदस्य के रूप में पंजीकृत करने का आदेश दिया
+-  Maju dari PAN, Mardius Sang Saudagar Muda Siap Kontestasi di Pileg 2024 Kota Bandung
+-  Health Tips: చలికాలంలో షుగర్ లెవల్స్ ఎందుకు పెరుగుతాయి, దీన్ని నియంత్రించడానికి ఈ 5 చిట్కాలను అనుసరించండి
+-  Ali Koç ve kulüp başkanlarından Meler'e geçmiş olsun ziyareti
+-  I wore Crocs under a posh gown on my wedding day… people ask me why on earth would I do that but the answer is simple
+-  Kritik Toplantıya 48 Saat Kaldı! İşte Asgari Ücret, SSK, BAĞ-KUR Emeklisi ve Memur Zamları
+-  İthalata rağmen kırmızı et fiyatları yükselmeye devam ediyor
+-  Podemos se presentará a las elecciones europeas con Irene Montero de candidata
+-  Kommentar zu neuem Pflege-Konzept: Wer den Schwächsten wieder auf die Beine hilft, muss belohnt werden
+-  Paddy Pimblett fumes over Colby Covington's 'too far' comments on Leon Edwards father claiming he wanted to hit the American on stage... and says he hopes the UFC Welterweight champion sends Covington 'to the shadow realm'
+-  Búhos y Mexicápam luchan por el campeonato
+-  Paddy Pimblett reveals the celebrity he most wants to fight, teaming up with a famous foe in the process... as 'The Baddy' prepares for his UFC 296 clash against Tony Ferguson
+-  „Sensation“: Förster entdeckt fast ausgestorbenen Riesenkäfer in Bayern
+-  Netflix : ces films cartonnent dans le monde mais personne ne les regarde en France
