@@ -1,11 +1,11 @@
 # Latest News
--  عاجل.. خطوات تقديم اعتراض على استحقاق الضمان الاجتماعي المطور
--  مدمّرة بريطانية تُسقط مسيّرة هجومية في البحر الأحمر
--  Vatikánsky súd odsúdil kardinála Becciua v korupčnom procese za spreneveru
--  POZOR Známa sieť predajní sťahuje z pultov dojčenskú výživu! V žiadnom prípade výrobok nejedzte
--  Skispringer Paschke holt mit 33 Jahren ersten Weltcup-Sieg
--  İsrail'de taşlar yerinden oynadı! Netanyahu Hamas'ın kapısını çalacak
--  VIDEO Ovo je trenutak u kojem se srušio kapetan Luton Towna
--  PKL: Puneri Paltan Thrash Bengal Warriors, Dabang Delhi Beat Telugu Titans
--  Sem Haaland, Manchester City tropeça em seu último jogo antes do Mundial
--  Οριστική διακοπή στο Μπόρνμουθ – Λούτον μετά την κατάρρευση του Τομ Λόκιερ στον αγωνιστικό χώρο
+-  有老公沒啥好？她決定領養朋友！韓國「無親屬家庭」近800萬戶
+-  אתלטיקו מדריד שוב פישלה בחוץ, והפסידה 2:0 לאתלטיק בילבאו
+-  הפועל ירושלים - הפועל גליל עליון 0:2 (רבע 1)
+-  Maç esnasında bir anda yere yığıldı! Hakem karşılaşmayı erteledi
+-  Carrefour fait une offre sur les magasins de proximité de Casino
+-  Sağlık Bakanı Koca: Felaket üzerinden siyaset yapmayı akıl kabul eder mi?
+-  16-vuotiaan suomalaissensaation voimat ovat lopussa
+-  الاتحاد المسيحي الألماني يبدي تحفظه حيال تعديل آلية كبح الديون
+-  غزة ..حفاة شجعان يواجهون تكنولوجيا جبانة
+-  Izrael je uzeo 600 civila za taoce i mučio ih, a njihove obitelji poslao da šeću bez hrane i vode. Obećava da neće više
