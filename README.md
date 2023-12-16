@@ -1,51 +1,11 @@
 # Latest News
--  Valtteri Bottas kiistää jyrkästi jo varmana pidetyn tiedon sopimuskuvioista
--  Strictly Come Dancing 2023 winner: Ellie Leach and Vito Coppola crowned champions as they take home the glitterball trophy
--  Strictly fans go into meltdown as Ellie Leach, 22, becomes show's youngest ever winner and dedicates Glitterball trophy to pro partner Vito Coppola, 31
--  Recolecta más de 7 mil chamarras el programa 'Abrigos que abrazan'
--  Tiene el TSJ presupuesto de los más altos del país
--  فصل طالب فلسطيني من مدرسة أمريكية عقابا على منشورات والدته الداعمة لغزة
--  Centenas de migrantes llegaron hoy a Juárez en el tren
--  “암 진단 받았는데 보험사가 절대 안믿어요”…보험금 안주고 황당한 얘기만 [어쩌다 세상이]
--  Pazerność nie popłaca. Heidenheim straciło szansę na gola przez... własnego napastnika [WIDEO]
--  Dengue: Fumigan más de 24,000 viviendas en Chimbote
--  Zaharova: Nove sankcije EU protiv Rusije nanijeće najviše štete Uniji
--  Hyoran se despede do Atlético-MG e fica livre no mercado
--  Fanúšikovia v SMÚTKU: Zomrel člen (†77) slávnej kapely AC/DC!
--  Bývalá vládna strana PiS je proti zmenám vo verejnoprávnych médiách
--  V Anglicku zastrelili iba 19-ročného Slováka: Motív nie je jasný, polícia už má podozrivého
--  Transgender žena na plaveckých pretekoch: Ostatné dievčatá neskrývali zdesenie, problém bol pri prezliekaní!
--  Fenerbahçe yıldız oyuncunun transferi için masada
--  Niko kao Novak i Ivana
--  Google’s Gemini comes to more apps, Cruise slashes its workforce and Tesla issues a recall
--  وزير الدفاع: خالص التعازي للكويت قيادةً وشعبًا في وفاة الشيخ نواف الأحمد
--  عاجل.. هل وجود دخل من "حافز" يؤثر على دعم حساب المواطن؟
--  وزير الرياضة والشباب يتوج الفائزين في سباق الخيل على جائزتي المؤسس واليوم الوطني
--  Rakitić: Najteži trenutak u karijeri
--  Are Recording Binoculars Worth It For Camping? Or Are They Just A Pricey Novelty?
--  Мокрый снег с дождем и оттепель придут 17 декабря в Карелию
--  Phil Salt hits unbeaten 109 in superb display as England chase 223 to overcome West Indies and keep Twenty20 series alive
--  تدريس التربية الإعلامية ورقابة الوالدين.. أهم توصيات رسالة ماجستير حول «تأثيرات قنوات يوتيوب الأطفال»
--  'WBC 음주·남현희·황의조…' 2023 체육계를 휩쓴 사건‧사고 [스한 위클리]
--  Ozan Kabak'ın golü takımına yetmedi! Leipzig seriye bağladı!
--  Djoković uderza w krytyków. "Uznano mnie za największego złoczyńcę świata"
--  BM Raportörü'nden UCM'ye savaş suçu işleyen İsrailli yetkililer için tutuklama çağrısı
--  جيرارد: مستاء من الهزيمة أمام التعاون.. واستحقينا ركلة جزاء
--  Bu araçlarda 15 gün sonra kampanya bitiyor! Sıfır faiz, 200 Bin TL indirim: İşte yıl sonu otomobil kampanyaları
--  Ivory Coast court suspends main opposition party’s elective congress
--  Inauguran espacio para la capacitación y actualización médica en Eldorado
--  Tyler Glasnow traded to Dodgers from Rays after agreeing to $136.5 million, 5-year contract
--  İlim Yayma Ödülleri Takdim Töreni’nde Prof. Dr. Zekeriyya Kurşun Sosyal Bilim Ödülü'nün sahibi oldu! Zekeriyya Kurşun kimdir?
--  "이정후 다음으로 메이저리그를 놀라게 할 선수는 누구인가" 초대형 계약 예약한 2명 등장했다
--  Abiodun makes case for diversification of Nigeria’s economy to non-oil sector
--  Yarınki BUDO seferleri iptal edildi
--  11. Boğaziçi Film Festivali'nde ödüller sahiplerini buldu
--  Dusan Alimpijevic'ten galibiyet sözleri!
--  "İlim Yayma Ödülleri" sahiplerini buldu
--  Hamas Siyasi Büro üyesi Hamdan: Avrupa ülkelerini ABD'ye baskı yapmaya çağırıyoruz
--  İsrail ordusu Kemal Advan Hastanesi'nden geri çekildi
--  Procura pelo bacalhau seco tem diminuído, mas ainda há famílias que se mantêm fiéis à tradição
--  Mantar çorbası tarifi
--  Boštjan Udovič: Imate demenco? Vaš problem!
--  هذا بلدنا .. ليس لنا غيره
--  '형에 이어 동생까지?' 레알 마드리드, 조브 벨링엄 영입 고려 중...토트넘과 경쟁
+-  ‘복귀전 패배’ 윤형빈, 50초만에 느껴진 9년의 세월
+-  ALKARAZ SAMO O NOVAKU MISLI Španac opsednut Đokovićem, napravio je pakleni plan da sruši Noleta
+-  Gary Oldman credits Harry Potter for saving his “dying” career
+-  بعد هجوم لحزب الله بطائرة بدون طيار.. الجيش الإسرائيلي يعلن مقتل أحد جنوده قرب الحدود مع لبنان
+-  Mines blasted in Division II national title for second straight year, as Harding runs over Orediggers 38-7
+-  SMHI varnar: Ge er inte ut i fjällen
+-  صلاة الغائب على الأمير الراحل في جميع المساجد بعد صلاة ظهر الأحد
+-  Cumhurbaşkanı Erdoğan'dan hayatını kaybeden Kuveyt Emiri Şeyh Nevvaf için taziye mesajı
+-  Álvaro Leyva no da el brazo a torcer: “No voy a conciliar” con Thomas Greg & Sons
+-  Cuánto tarda el Tren Maya en hacer el recorrido de Campeche a Cancún
