@@ -1,51 +1,51 @@
 # Latest News
+-  Milei sortea su último sueldo como diputado y elogia sus primeros ajustes económicos
+-  Torino-Empoli, la moviola in diretta: Ebuehi in fuorigioco, pareggio annullato
+-  Mauricio Pochettino gives intriguing answer when asked about Conor Gallagher situation at Chelsea
+-  Premier League rocked as Luton captain Tom Lockyer suffers cardiac arrest on the pitch
+-  Découvertes surprenantes, nouveau squat, nuit violente : les infos du 16 décembre à Caen
+-  Buffy Fans And Doug Jones Post Tributes To Actor Camden Toy After His Death At 68
+-  Pánico en centro comercial de Los Ángeles: Tiroteo dejó un muerto y cuatro heridos
+-  Resesug i vinter – trots inflation och svag krona
+-  ФІФА планує провести розширений клубний чемпіонат світу влітку 2025 року
+-  Leverkusen vs. Frankfurt: choque tricolor en la Bundesliga alemana
+-  على النصيري أن يرحل عاجلا.. إشبيلية في مهب الريح
+-  Norsk kommun isolerad efter oväder
+-  Se hizo viral por ser “el doctor más sexy del mundo” y su fama lo convirtió en un “estafador”
+-  Vonat és autó ütközött Gyöngyösön, egy ember meghalt - helyszíni fotók
+-  No alcanza para canasta básica al 22.2% de chihuahuenses
+-  Lo ejecutan mientras realizaba trabajos de albañilería
+-  El Tren de Aragua, entre las más de 190 organizaciones criminales que operan en Colombia
+-  Diárias em apartamentos têm aumento de até 350% durante temporada de verão em cidades do Litoral Norte de SP; veja valores
 -  TPS suli kolmannessa erässä
+-  "Selling Sunset"-Star Amanza Smith posiert im Nackt-Look!
+-  Otkazan ‘The Last of Us’ multiplayer
+-  Reportan secuestro del empresario británico Colin Armstrong en Ecuador
+-  Fire in Pembroke, Ont. duplex displaces 6 people
+-  El Sevilla destituye a Diego Alonso
+-  El Sevilla destituye a Diego Alonso
+-  Diego Alonso, destituido como entrenador del Sevilla
+-  El Sevilla destituye a Diego Alonso
+-  Xavi puede dar las gracias a Iñaki Peña
+-  Collezionismo d'epoca, modernariato e non solo: curiosità per il Vintage Market alla stazione marittima
+-  De La Cruz llegó a un acuerdo de palabra con Flamengo y dejaría River Plate
+-  Орбан не повлияет на евроинтеграцию Украины - Офис Зеленского
 -  AMJON Harps On Non-oil Export As Panacea To Nigeria’s Economic Survival
+-  Βόλεϊ: «Ερυθρόλευκο» το clasico, 3-1 σετ ο Ολυμπιακός τον Παναθηναϊκό
 -  Teen girl killed in daytime stabbing on downtown street
 -  BBC Strictly Come Dancing's Shirley Ballas under fire for Ellie Leach comment as fans say 'sums up'
+-  Śmiertelne potrącenie pieszego w Gorlicach. Podejrzanym miejscowy lekarz
 -  Sevilla despidió a Diego Alonso como su técnico
+-  Marianne Williamson Tells Lauren Jauregui 'Go to Israel,' Accuses Her of Indirectly Calling For 'Genocide of Jews'
+-  Roy Hodgson gives fans ‘video I never knew I needed’ as Crystal Palace boss spotted laughing at Pep Guardiola
+-  Roy Hodgson gives fans ‘video I never knew I needed’ as Crystal Palace boss spotted laughing at Pep Guardiola
+-  Roy Hodgson gives fans ‘video I never knew I needed’ as Crystal Palace boss spotted laughing at Pep Guardiola
+-  Felipe cita Corinthians e Flamengo ao falar de experiência em apresentação no Sampaio Corrêa
 -  L'entretien du dimanche. Luc Jacquet : « Le lien avec la nature est cassé »
 -  Cinéma. Gérard Depardieu met sa Légion d'honneur «à la disposition» de la ministre de la Culture
 -  Guerre en Ukraine. Deux civils tués dans une attaque de missile ukrainienne sur un village occupé par ...
+-  ‘No hay instituciones que nos cuiden’
+-  Crisis migratoria: IGM registra aumento de 28.2% en cifra de retornados a Guatemala vía aérea desde EE. UU. en lo que va de 2023
 -  Aaj Ka Singh Tarot Card: सिंह राशि वाले कोर्ट के मामलों में ढिलाई न दिखाएं, मानसिक तनाव लेने से बचें
--  Galatasaray, Beşiktaş'a yılın transfer çalımını atıyor! Kartal'ın eski yıldızı Galatasaray'a imza atacak...
--  Fångens rymning – tack vare jättepenis
--  Bjelica yönetimideki Union Berlin fark yedi
--  'Hat-trick' de Mújica permite ao Arouca afastar-se dos lugares de descida da I Liga
--  Yamyamlar, Timsahlar, Çocuk Pilotlar: Tarihin En Korkunç ve Enteresan Uçak Kazaları
--  انتعاش مبيعات سوق الألعاب بالصين
--  Aiyedatiwa Asks Akeredolu’s Chief Protocol To Step Aside
--  Tinubu Eulogises Buhari At 81, Says He’s A Man Of Absolute Integrity
--  إسدال الستار على بطولة السعودية تويوتا للراليات الصحراوية 2023
--  RFC is ronde verder na bizar slotstuk: ‘Waren al bezig met het lijstje voor de strafschoppen’
--  انتخابات المحافظات تؤجل انطلاق الجولة العاشرة لدوري نجوم العراق
--  PARTIZAN – BUDUĆNOST Podgoričani bez respekta: Načeli su crno-bele
--  Merkez Bankası Başkanı evsiz kaldı! İstanbul'da pahalılıktan kiralık ev bulamayınca bakın ne yaptı?
--  Dutch company alleged to be sending dozens of shipments to Russia, violating sanctions
--  Upcoming IPO - सहारा सहित चार कंपनियों में साझेदारी का मौका, GMP Trend 192% तक
--  BVB rutscht in der Tabelle weiter ab: Nun schon sechs Punkte Rückstand auf Leipzig
--  Vignjevictől megkérdezték, benyújtja-e a lemondását, Kuznyecov: "Mint a kisgyerekeknek, megmutatjuk, hova kell állniuk és elfeledkeznek róla" - edzői értékelések
--  Sevilja otpustila trenera posle dva meseca
--  По заканите од Орбан: Бугарија ги укинува акцизите за транзитот на рускиот гас
--  صندوق التنمية الحضرية: الوحدات السكنية المطروحة للمواطنين جاهزة.. وهذا موعد الاستلام
--  نقيب المحامين يعقد اجتماعًا مع نقباء الفرعيات للوقوف على آخر الاستعدادات للجمعية العمومية
--  Böyle asist görülmedi, İtalya'da dillere pelesenk olan isim: Victor Osimhen! Son maçını da 1 gol 1 asistle tamamladı
--  العليا لشئون الكنائس في فلسطين تطالب بالتحرك لوقف العدوان على غزة ومحاكمة مجرمي الحرب
--  التعاون يعبر الاتفاق ويعزز موقعه بين كبار الدوري السعودي
--  Lajpcig bolji od Hofenhajma za treće mjesto na tabeli
--  Resumen de ciencia del fin de semana 16 de diciembre de 2023
--  Saltillo: estable y fuera de peligro niño que ingirió metanfetamina, informa Salud estatal
--  الاتفاق يخسر بثنائية أمام التعاون
--  Policija zabranila bizarni boks meč između Miše i Čede: Vacić se pojavio u zakazano vreme, Jovanović izostao
--  В Дагестане планирует установить больше видеокамер на дорогах
--  'Here We Go' 로마노 언급! '맨시티 계륵 MF', 내년 1월 100% 이적한다
--  Mira la imagen, escoge una tetera y tu manera de ser quedará expuesta
--  U Čakovcu naletio na pješaka pa proletio kroz rotor, sve je snimljeno
--  Activision Blizzard pagará mais de US$ 50 milhões para resolver ação judicial
--  Falling US inflation has Australian borrowers raising their hopes
--  Rare solar wind void causes Mars' atmosphere to swells up like a balloon
--  Google reveals the most popular searches of 2023
--  Al Gore's huge call on new Qld premier
--  Fiscalía reportó avance contra delitos informáticos con 69 capturas y 45 imputaciones en 2023
--  Huge salary blow to Aussie job seekers
--  Sunday stunner: Troppo beauty with bush block
+-  Τούμπα: Άγρια συμπλοκή μεταξύ ανηλίκων – 17 προσαγωγές
+-  France – 22e utilisation du 49.3 pour faire passer le budget : Une arme constitutionnelle trop bien aiguisée?
