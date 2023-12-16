@@ -1,51 +1,51 @@
 # Latest News
--  Elektronik sigarayla ilgili korkutan sonuç ortaya çıktı. Dünya Sağlık Örgütü açıkladı
--  Basketball: 2,12-Meter-Mann ist der Schlüssel zum Erfolg der Rheinstars Köln
--  Борис Бонев организира кръгла маса за коледната украса за догодина
--  Una imprudencia terminó con la vida de Juan José Calderón Muñoz
--  THY'den dev uçak siparişi. Bakın kaç uçak birden alınacak
--  18-year-old stabbed to death on Manhattan street: police
--  Pro Kabaddi League PKL 2023 Points Table: प्रो कबड्डी लीग, देखें पॉइंट टेबल में कौन सी टीम किस नंबर पर
--  Despedido por grabar en el baño a sus compañeras en la embajada en Venezuela
--  9 برس پہلے دہشتگردوں نے آرمی پبلک اسکول پشاور پر بزدلانہ حملہ کیا، وزیراعظم
--  अबॉर्शन के लिए नहीं मानी…गर्लफ्रेंड को टुकड़ों में काटा, रूह कंपा देगी हत्यारे बॉयफ्रेंड की कहानी
--  পৌষের প্রথম দিনে দেশের সর্বনিম্ন তাপমাত্রা তেঁতুলিয়ায়, আছে ঝলমলে রোদ
--  Россия собирается пустить семь межконтинентальных баллистических ракет
--  Sculptor Xu Hongfei × Dance Troupe of the Fine Arts Department of the Culture Ministry of Thailand
--  2024 outlook: Traditional care and faxes on the way out; retail care executes its plans
--  2024 outlook: Traditional care and faxes on the way out; retail care executes its plans
--  Indian Police Force teaser: Next chapter of Rohit`s cop universe is explosive
--  The WeightWatchers CEO tells NPR why the company is embracing weight loss drugs
--  The WeightWatchers CEO tells NPR why the company is embracing weight loss drugs
--  Всички пътища в област Хасково са проходими въпреки снеговалежа
--  Megérkezett a jó hír: 10 százalék önerő is elég az első lakás megvásárlásához
--  Italy topples Bulgaria to offer Europe's lowest ski-resort prices
--  FTSE recoils as interest rate cut speculation dampened
--  Hollywood Bowl investors eye strong profits despite cost-of-living pressure
--  Ќе нема летови за Нова година ако не се повлечат контроверзните огласи за вработување во М-НАВ
--  „Mes neprašome Apache“. Ukrainos pulkininkas atskleidė kokių reikia sraigtasparnių
--  70 медала - снежинки са резултатът от Училищния спортен турнир в Сливен
--  [ŽT] Vaizdas lyg iš pragaro. Doneckas liepsnose
--  Letos od doma delalo za skoraj 70 odstotkov manj ljudi kot leta 2021
--  Mayim Bialik Out At 'Jeopardy!'
--  Jack Hanson Dead: Longtime Bay Area TV Newsman, Weatherman And Cartoonist
--  Ken Burns On "Complicated Narrative" Of His Forthcoming Revolutionary War Project, Which Counters 1776 Myths With Portrait Of Diverse Group That "Won The War"
--  Cari Beauchamp Dead: Hollywood Author, Historian, TCM Contributor Was 74
--  Jack Hanson Dead: Longtime Bay Area TV Newsman, Weatherman And Cartoonist
--  'Magnum P.I.' Finale Airdate Revealed
--  عاجل.. عفا عن قاتل والده بنجران .. ماذا فعل أهل الجاني؟
--  Cari Beauchamp Dead: Hollywood Author, Historian, TCM Contributor Was 74
--  Mayim Bialik Out At 'Jeopardy!'
--  'Magnum P.I.' Finale Airdate Revealed
--  Ken Burns On "Complicated Narrative" Of His Forthcoming Revolutionary War Project, Which Counters 1776 Myths With Portrait Of Diverse Group That "Won The War"
--  Вологжане могут узнать о решении суда онлайн
--  लाड़ली बहनों के खाते में आएंगे पैसे? सवाल पर MP सीएम का जवाब वायरल – VIDEO
--  Essonne : deux jeunes de 18 ans surpris en train de forcer la porte d'une maison avec un tournevis
--  Hande Erçel Suudi Arabistan’daki müzik festivalindeki fotoğraflarını paylaştı
--  ‘বাংলা দেশ’ এড়াতে কিসিঞ্জারের কৌশল
--  সুযোগ থাকলেও পাকিস্তানকে ফলো-অন করাল না অস্ট্রেলিয়া
--  تقرير طبي يحدد سبب وفاة نجم مسلسل «فريندز».. ما علاقة مادة «الكيتامين»؟
--  NBA Roundup: San Antonio Spurs halts team-record losing streak, tops Los Angeles Lakers 128-115
--  Hertha BSC: Sportdirektor droht Fans mit Horrorszenario
--  'Guipúzcoa League': Arteta, Emery e Iraola revolucionan la Premier
--  Δρεπανοκυτταρική αναιμία: Ελπίδες από τις δύο νέες θεραπείες – «Η καινοτομία έχει σημασία μόνο εάν φτάνει στους ασθενείς»
+-  평창 겨울 호우 수목전도피해 잇따라
+-  박영춘 국민의힘 춘천·철원·화천·양구 갑 예비후보 출판기념회 개최
+-  이수연 ‘미녀 파이터의 묵직한 한방’[MK포토]
+-  السعودية | ما أهمية دور الصين في رعاية الاتفاق بين السعودية و إيران حتى بعد إبرامه بنحو 10 أشهر؟..الشهري يجيب
+-  بعد مقتل 3 بنيران صديقة.. أهالي المحتجزين يكثّفون الضغط على نتنياهو
+-  أوكرانيا: تسجيل 96 اشتباكا مع القوات الروسية خلال الساعات الـ24 الماضية
+-  الأمن القومي الأمريكي: الإطار الزمني للعمليات العسكرية في غزة قرار يعود إلى إسرائيل
+-  นายกฯ ยันแลนด์บริดจ์ ไม่แย่งธุรกิจเพื่อนบ้าน
+-  تحرق دهون البطن.. ماذا يحدث لجسمك عند تناول البطاطا بدون تقشير؟
+-  प्राज्ञ-प्रतिष्ठानमा गुरुङ साहित्यबारे विमर्श
+-  무려 30년 동안 ‘항구’를 ‘방귀’로 쓴 표지판 세워둔 日 지자체 화제
+-  Зеленский: ЕИ қарори - куч берадиган ғалаба.
+-  Қўқонда яна 9 киши қўлга олинди. Ушланганлар орасида 19-20 ёшли йигитлар ҳам бор.
+-  ЕТТБ Ўзбекистонда «яшил» инвестицияларни рағбатлантириш учун 10 млн доллар ажратади.
+-  Россия Марказий банки асосий ставкани 16 фоизгача оширди.
+-  Даҳшатли ЙТҲ содир қилган Tahoe ҳайдовчисига нисбатан жиноий иш қўзғатилди.
+-  Orai.lt: prasideda drėgnas, vėjuotas ir šiltas laikotarpis
+-  زيلينسكي يؤكد مواصلة حشد الدعم الأجنبي للدفاع عن أوكرانيا
+-  SAČUVAJTE PARADAJZ I DO GODINU DANA Mediteranski specijalitet je ono što vam treba ove zime, zaboravite na sveži proizvod!
+-  مفاجأة صادمة لأبطال النسخة التركية من "للموت"
+-  ഓസ്‌ട്രേലിയ ഇന്ത്യൻ ഫിലിം ഫെസ്റ്റിവലിൽ രണ്ടു അവാർഡുകൾ കരസ്ഥമാക്കി ‘ജനനം 1947 പ്രണയം തുടരുന്നു ‘
+-  ‘12-27’ 또 3Q에 무너진 삼성, 은희석 감독은 자책했다 “나의 실수” [MK안양]
+-  Αυξάνονται τα περιστατικά βίας σε ανήλικους - Καταδρομική επίθεση σε παιδιά από ομάδα 30 ατόμων στον Άλιμο – Μαθητής γυμνασίου στο νοσοκομείο
+-  Lufthansa nastavlja letove za Tel Aviv, Amerikanci još čekaju
+-  UGC Warns Edtech Companies Offering Degree Courses Online in Association with Foreign Universities
+-  روسيا تكشف عن هجمات أوكرانية على القرم.. وزيلينسكي يتعهد بحشد الدعم الأجنبي
+-  ‘론스타에 2800억 배상’ 판정, 집행정지 연장…한동훈 “피같은 세금 낭비없다”
+-  “서울시, 강추위에 24시간 비상근무 돌입”…서울 전역 오후 9시 한파주의보
+-  노숙자, 60만명 넘었다…1년 동안 7만명 늘어난 ‘이 나라’
+-  Israel-Hamas War: How Are Houthi Attacks on Ships in Red Sea Affecting World Trade?
+-  นายกฯ พบ เจ้าชายบรูไน เป็นศิษย์เก่านักเรียนอังกฤษ
+-  NBA'de Alperen Şengün ve Cedi Osman'ın günü
+-  Dispută Ciolacu - Simion: Cât timp mai doriţi să spuneţi neadevăruri despre mine şi familia mea? / Să spună tot ce ştie despre familia mea - că tata e dependent de alcool
+-  OSTALI SPORTOVI: "Tip" - tiket za subotu
+-  Mrliški oglednik razkril, zakaj je umrl Matthew Perry
+-  Paragliding On E-Scooter? Punjab Man Achieves Groundbreaking Feat
+-  Zamestnávatelia využívajú žiakov z duálneho vzdelávania aj ako lacnú silu, tvrdí Peter Danko
+-  Japonsko a krajiny Združenia krajín juhovýchodnej Ázie chcú posilniť bezpečnostnú spoluprácu
+-  آرمی چیف عاصم منیر کی اقوام متحدہ کے سربراہ سے ملاقات, کشمیر اور غزہ کے مسائل پر تبادلہ خیال
+-  İYİ Parti İstanbul İl Başkan Yardımcısı istifa etti: Ayak oyunları bıktırdı
+-  Auto-Rückruf aktuell bei BUGATTI: Alles zu den betroffenen Autos und was Sie jetzt tun können
+-  Auto-Rückruf aktuell bei AUDI: Alles zu den betroffenen PKW und was Sie jetzt tun können
+-  Fahrzeug-Rückruf aktuell bei BMW: Alles zu den betroffenen PKW und was Sie jetzt tun können
+-  İlaç fiyatlarına yüzde 25 zam
+-  ABD uçak gemisini İsrail'den çekmiyor!
+-  Putin proznao: Preopterećeni smo
+-  KLIZIŠTE ZAPRETILO SVETINjI SPC: Proglasili vanrednu situaciju u delu Pribojske banje, potrebna hitna sanacija problema (FOTO)
+-  Merkez Bankası Başkanı Gaye Erkan: İstanbul'da ev bulamadık, anneme taşındık
+-  بدء عملية تصويت القوات الأمنية والعسكرية في انتخابات مجالس المحافظات بالعراق
+-  TechNigeria: A weekly digest of what went down in Nigeria’s tech space
