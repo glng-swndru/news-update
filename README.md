@@ -1,51 +1,51 @@
 # Latest News
--  Ataque a balazos termina en doble homicidio
--  Πυροβολισμοί έξω από κλαμπ στο Γκάζι – Τρεις σοβαρά τραυματίες
--  Barcelona Siap Kalahkan Real Madrid untuk Rekrut Claudio Echeverri dari River Plate
--  Apakah Tabungan Simpedes Dapat Kartu ATM? Begini Penjelasannya
--  Seorang Pria Beli Narkoba yang Diminta Ammar Zoni di Kampung Bahari
--  Santé: l'OMS s'inquiète de la propagation rapide de l'épidémie de Mpox, aussi appelée «variole du singe»
--  Μήνυμα Μητσοτάκη από τις Βρυξέλλες για την οπαδική βία - Το ειδικό app, οι κάμερες και οι συνέπειες
--  Украинский фонд уличили в спонсировании террористической организации
--  Selain Esmeralda, Ini 3 Hero Mobile Legends Terbaik untuk Melawan Uranus
--  Госкомиссия одобрила заправку и пуск ракеты "Союз" со спутником "Арктика-М" № 2
--  Matthew Perry wrote about ketamine infusion therapy in his memoir and said it was 'not for me' and made him think he was 'dying'... as late Friends actor's autopsy reveals 'high levels' of drug in his system
--  Ukraina Masukkan Pemimpin Gereja Rusia dalam Daftar Pencarian Orang
--  New workplace recycling regulations in Wales: What you need to know
--  Autiotalo tuhoutui tulipalossa Joensuussa
--  3 فحوصات تكشف جرثومة المعدة.. عليك إجراؤها في أسرع وقت
--  Inilah Sinopsis Deaths Game, Drakor Bergenre Thriller yang Diperankan Seo In Guk dan Park So Dam
--  Babar Azam Dismissal Video: ख़राब फॉर्म से झुझ रहे बाबर आजम मिशेल मार्श की गेंद पर हुए आउट, देखें वीडियो
--  Anies Baswedan Bikin Ajakan Spesial untuk Wibu, Apa Itu? Fadil Jaidi Ikutan Terseret
--  ZNATE JE IZ "SELO GORI, A BABA SE ČEŠLJA", A NISTE ZNALI DA JE DALA GLAS EJPRIL O'NIL: Oživela čuvenu junakinju Nindža Kornjače
--  RSHS Bandung Buka Suara Usai Viral Pasien Cabut Gigi Bungsu Meninggal
--  TotalEnergies to start building 216MW solar plant in SA
--  Mötley Crüe Drummer Tommy Lee Accused of Sexually Assaulting Woman in Helicopter
--  Tommy Lee is accused of sexually assaulting woman on a helicopter in bombshell lawsuit claiming Motley Crue rocker and pilot drank alcohol, smoked weed and snorted cocaine before forcing himself on her midair
--  News24 | Bheki Cele to attend funeral of slain Gugulethu CPF member
--  Imamo poplavo knjig, a starejših ni mogoče nadomestiti. Obstaja en izvod in potem je konec.
--  Imamo poplavo knjig, a starejših ni mogoče nadomestiti. Obstaja en izvod in potem je konec.
--  Pelaku KDRT Gunakan Golok di Bekasi Serahkan Diri, Apa Alasannya Setega Itu?
--  In or Out? Jonty Rhodes Uses Cricket’s 3rd Umpire Reference to Praise Hyderabad Airport’s Toilet Occupancy Indicator System
--  Фильм из Европы открыл показы на Хайнаньском международном кинофестивале
--  Ular Masuk Permukiman di Ponorogo, Warga Diimbau Waspada
--  Kekayaan Mertua Pratama Arhan Tembus Rp28 Miliar, Pantas Azizah Salsha Punya Gaya Hidup Glamor
--  '마에스트라' 이영애, 불륜 남편 응징하나…뉴스서 폭탄 발언
--  Ram Temple Inauguration: Security Arrangements Increased in Ayodhya Ahead of ‘Pran Pratishtha’ of Ram Mandir on January 22, 2024 (Watch Video)
--  Cofepris cerró empresa de melones en Sonora tras brote de salmonela
--  Google Pixel 8 Pro review
--  Rytmihäiriköiden juhlakonsertti kajahtaa lauantai-iltana Carelia-salissa – suora lähetys alkaa tänään kello 18
--  В аэропорту Волгограда непогода привела к задержке более 10 рейсов
--  Nothing has changed in past decade, says DCW chief Maliwal on 11 years of Nirbhaya case
--  Indian Navy Responds To Hijacking Attempt On Malta Ship In The Arabian Sea
--  PM Narendra Modi to reach Thrissur on January 2; to address women’s meet
--  50 очков Брансона помогли «Нью-Йорку» победить «Финикс»
--  Mærsk sætter sejlads i Det Røde Hav på pause efter angreb
--  Raghvendra Kumar Singh appointed as Principal Secretary to Madhya Pradesh Chief Minister
--  Nagpur Road Accident: नागपुर में ट्रक-कार की भिड़ंत में छह लोगों की मौत
--  Maj. Gen. Harendra Pieris appointed Chief of Staff of Army
--  ‘Wonka’: Timothée Chalamet Bites Off More Than He Can Chew in This Dizzying Musical
--  الذهب يرتفع مع تلميحات الفيدرالي بالتيسير النقدي
--  खेल की खबरें | वार्नर के संन्यास लेने के बाद टेस्ट ओपनर बनने का इरादा नहीं: मिशेल मार्श
--  Новогодние направления для шоппинга в 2023 году
--  "Prošlo je godinu dana, a kao da su prošle tri!" Mihin kum za Informer: Mnogo mi nedostaje Siniša!
+-  NML Sets Coal Production Record; Surpasses 23.223 MMT In Just 257 Days
+-  CSB Bank Aims For 32% SME Growth By FY24 End
+-  Descubren qué pasa si haces un minuto de plancha abdominal todos los días
+-  세븐일레븐, 샴페인 기획전 진행 … 1만원부터 30만원까지
+-  한미, 내년 8월 UFS 때 처음으로 핵 작전 연습
+-  경복궁 담벼락에 ‘영화공짜’ 스프레이 낙서…경찰 수사
+-  다음 주 토지·주택 등 '2213억원 규모 압류재산' 온비드 공매
+-  2 Die As Bike Rams Power Pole Amid Thick Fog In Odisha’s Puri
+-  เร่งล่ามือยิง "นายกมิง" สงขลา ตำรวจตั้ง 3 ปมสังหาร
+-  শীতে পায়ের নিচে কলার খোসা ঘষুন, ম্যাজিক দেখুন
+-  Csúnyán megégetheti magát az Adobe a zavaros előfizetési praktikái miatt
+-  موقف يونس موسى من المشاركة أمام مونزا
+-  Shah Rukh Khan : शाहरुखचा लेक अबरामने दिली DDLJ ची आयकॉनिक पोज; किंग खानही हैराण, VIDEO व्हायरल
+-  ‘Friends’ Star Matthew Perry Died Due To Ketamine Drug Overdose: Autopsy Report
+-  Et billede fra 1956 fortæller alt om vores forhold til fremtiden: »Det er så teknologifyldt, at man næsten ikke kan være i det«
+-  Bayburt'ta gece saatlerinde trafik kazası: 1 ölü, 1 ağır yaralı
+-  Et billede fra 1956 fortæller alt om vores forhold til fremtiden: »Det er så teknologifyldt, at man næsten ikke kan være i det«
+-  AK Parti'de ilk adayların açıklanacağı tarih belli oldu
+-  Kom med indenfor i et 3D-printet hus, der blev til virkelighed på få dage: »Jeg tror bestemt, at det her kommer til at revolutionere byggebranchen«
+-  Kom med indenfor i et 3D-printet hus, der blev til virkelighed på få dage: »Jeg tror bestemt, at det her kommer til at revolutionere byggebranchen«
+-  카카오, 스위스 제네바서 AI윤리 정책 공유…“AI윤리 발전은 인권 경영과 긴밀”
+-  Snart slipper du for at stå i kø og hive betalingskort frem – Revolutionen af supermarkeder nærmer sig, og det vil ændre vores vaner fuldstændig
+-  Snart slipper du for at stå i kø og hive betalingskort frem – Revolutionen af supermarkeder nærmer sig, og det vil ændre vores vaner fuldstændig
+-  Над 130 студенти от ТУ – Варна бяха удостоени с награди от академичното ръководство и бизнес партньори
+-  3D-printet pizza og bøffer uden kød: Se, hvad der ligger på din tallerken om ti år
+-  3D-printet pizza og bøffer uden kød: Se, hvad der ligger på din tallerken om ti år
+-  Han befinder sig ikke på skalaen mellem optimisme og pessimisme. Fremtiden skal forstås på en helt anden måde
+-  Han befinder sig ikke på skalaen mellem optimisme og pessimisme. Fremtiden skal forstås på en helt anden måde
+-  Med ny teknologi kan du optage ethvert sekund af dit liv og tale med din døde bedstemor: »Hverdagen er teknologisk forandret for altid«
+-  Med ny teknologi kan du optage ethvert sekund af dit liv og tale med din døde bedstemor: »Hverdagen er teknologisk forandret for altid«
+-  Velkommen til Danmarks robothovedstad: Få et sjældent indblik i fremtidens robotter
+-  Velkommen til Danmarks robothovedstad: Få et sjældent indblik i fremtidens robotter
+-  Din personlige ai bliver din tætteste kollega på fremtidens arbejdsplads. IT-forsker har en bøn til virksomheder
+-  Din personlige ai bliver din tætteste kollega på fremtidens arbejdsplads. IT-forsker har en bøn til virksomheder
+-  Vladimir Putin, despre campania electorală din Rusia: Orice interferență străină va fi reprimată dur
+-  '프렌즈' 故 매튜 페리, “케타민 주사 맞으면 죽어가는 것처럼 느껴져” 충격 회고[해외이슈](종합)
+-  알짜배기 FA와 셀프 방출자…합계 72세 베테랑 포수, 이지영·이재원 동병상련? 얼어붙은 안방 시장
+-  16 grudnia to 42. rocznica pacyfikacji strajku w kopalni „Wujek”. Zginęło 9 górników
+-  롯데 임재호 트레이닝 코치, 17일 화촉 "결혼 통해 얻는 힘으로 팀에 보탬 되겠다"
+-  Jordan White looking for Ross County to make Victoria Park ‘horrible’ for visiting teams
+-  A dream became reality for Aberdeen goalkeeper Bobby Clark in the 1976 League Cup final
+-  Aberdeen’s Wonka is a cut above Gene, Johnny and Timothée – he can style chocolate AND hair
+-  Τέσσερις στο όριο
+-  Highland League leaders Banks o’ Dee not getting ahead of themselves after winning silverware, says Lachie Macleod
+-  علماء يطورون “أدمغة صغيرة” بمثابة “عيون متقدمة”
+-  Rebel Moon : sur Netflix, Zack Snyder fait son Star Wars
+-  You can overwinter tomato plants and grow them indoors, but is it worth doing?
+-  সৌদি আরবে মাস্টার্স–পিএইচডি বিনা মূল্যে পড়াশোনা, আবেদন শেষ আগামীকাল
+-  Cove Rangers in no mood to ease up after 10-game unbeaten run
+-  Zaboravljeni čaj koji smiruje kašalj i ublažava bol u grlu: Pravi se sa hladnom vodom
