@@ -1,11 +1,11 @@
 # Latest News
--  جالانت: أتحمل المسؤولية الأخطاء في العملية العسكرية بغزة بما فيه قتل 3 أسرى
--  سوبر لوكس وتسهيلات في الدفع.. 2835 وحدة سكنية جديدة في 8 محافظات "صور"
--  أحمد موسى: كريم بنزيما فشل في الظهور بمستوى فني عال.. والشناوي كان سدًا عالًا
--  الكنيسة الأرثوذكسية تنعي أمير الكويت: قضى عمره في خدمة بلاده
--  أحمد موسى ناعيًا أمير الكويت: قدم الكثير لشعبه وشعوب أمته العربية
--  الرئيس الروسي بوتين يعتذر لمواطنة لهذا السبب
--  Legisladores latinos rechazan acuerdos de Biden en frontera
--  포스테코글루, ‘살인 태클 장인’ 로메로에게 한마다... “자기도 스포트라이트 받는 거 알더라”
--  “김하성 FA 앞두고 20·20하면 가치 높아져…” 강정호가 샌디에이고 코치라면 ‘도루 자제·체력 관리’
--  Севілья звільнила Алонсо, якого призначила 2 місяці тому
+-  منتخب الناشئين يفوز على سوريا ويفقد المنافسة على لقب غرب آسيا
+-  Türkiye'de kapış kapış satar deniliyordu! Egea fiyatına SUV araç Türkiye'ye geldi, yarı Çinli yarı İtalyan, fiyatı ise...
+-  Jacob Zuma dumps ANC, forms new party
+-  Victorie categorică pentru FCSB, 3-0 cu FC Hermannstadt, în Superligă
+-  Man seriously injured in crash with Purple Line train in Hyde Park
+-  İstanbul'da PKK'ya operasyon: 5 kişi tutuklandı
+-  BVB wieder ohne Sieg - Leipzig nun Dritter
+-  Wechsel bestätigt nach Forsberg-Show für RB Leizpzig
+-  Emotionaler Forsberg-Abschied nach Gala-Abend
+-  Leipzig siegt gegen Hoffenheim - Fans feiern Forsberg
