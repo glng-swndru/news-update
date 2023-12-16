@@ -1,51 +1,11 @@
 # Latest News
--  How to Make Your Solar Panels Last Longer Than 25 Years
--  Tidl. formand for Det Etiske Råd: Dine tanker om aktiv dødshjælp bliver hurtigt til kynisme, Mette Frederiksen
--  Five-star hotel guests left stranded after flooding in Sydney
--  Ollie's final ride ends in victory
--  Ollie's final ride ends in victory
--  Aussies building massive lead
--  Aussies building massive lead
--  Gorakhpur News: बैंकाॅक में बेटे को बंधक बनाने का झांसा देकर वसूली रंगदारी
--  ليفاندوفسكي يخلع قلوب جماهير برشلونة أمام فالنسيا
--  Strictly Come Dancing's Ellie Leach and Vito Coppola share loving embrace as the ex Coronation Street actress is left emotional after taking a tumble during series final
--  Løkke Rasmussen: Vi overvejer indgreb efter angreb i Det Røde Hav
--  Løkke Rasmussen: Vi overvejer indgreb efter angreb i Det Røde Hav
--  Gorakhpur News: सड़कों को अतिक्रमण मुक्त कराएं, स्ट्रीट वेंडर्स का हो सुव्यवस्थित पुनर्वासन
--  Inside stunning turquoise superyacht covered in jewels that would make Liberace proud
--  Vinculan a la periodista Morena Beltrán con un jugador de Boca: «¿Coincidencia?»
--  Ashley Cain opens up about split from Safiyaa & claims ex congratulated him on new baby 2 years on from daughter’s death
--  Промените в Конституцията: Хора с двойно гражданство ще могат да стават депутати
--  Försvarsexperten: Det smäller strax
--  Bareilly News: कम पड़ा मध्याह्न भोजन तो बांटे बिस्कुट-केले
--  Sevilla'ya evinde ağır darbe!
--  Beşiktaş Emlakjet sahasında Anadolu Efes'e geçit vermedi!
--  Emil Forsberg'in yeni adresi belli oldu!
--  Sevilla'da bu sezon ikinci ayrılık!
--  انياكي بينيا يواصل تألقه مع برشلونة
--  Two overseas recruitment firms in Kochi shut down
--  Den helt store historie i 2024 bliver kampen om Taiwan
--  Baghpat News: सवा करोड़ से होगा दस गांवों के मुख्य मार्गों का निर्माण
--  Bareilly News: राजस्व टीम के सामने युवक को दौड़ाकर पीटा
--  Peter Sarsgaard loves beekeeping at his Brooklyn home
--  راتب 8 آلاف ريال.. وظائف بشركة الغاز والتصنيع الأهلية "غازكو"
--  Bareilly News: रोहतक की टीम ने अमृतसर के दो खिलाड़ियों के खिलाफ दी आपत्ति
--  ماسك: المعلنون عادوا إلى منصة "إكس"
--  Матыцин заявил, что гордится победами теннисистов в 2023 году
--  نيكو وليامز يهز شباك أتلتيكو مدريد بهدف عالمي (فيديو)
--  No role in release of funds for ‘Farishtey Dilli Ke’ scheme, says Saxena
--  Baker assaulted, shop ransacked in Kochi
--  إسبانيا.. القبض على عصابة موظفين سرقوا أمتعة مسافرين
--  Bareilly News: शराब के नशे में दीवान ने किया हंगामा
--  Трамп заявил, что Байден представляет собой угрозу демократии в США
--  SRPSKI PEVAČ IDE STOPAMA MARIJE ŠERIFOVIĆ Želi dete koje će roditi SUROGAT MAJKA: "To je tabu tema u Srbiji, proces je složen", Aleksa Jelić otkrio detalje
--  Live Eredivisie | Heerenveen komt in eigen huis nog niet tot scoren tegen Volendam
--  Man arrested on rape charge in Kochi
--  Weekly Horoscope Pisces, Dec 17-23, 2023 predicts a happy romantic life
--  Video: el gol anulado a Julián Álvarez y golpe para el City en la Premier League
--  Football. Les résultats des équipes de la Manche ce samedi 16 décembre
--  Несгибаемый характер: сборная «Россия 25» забросила три шайбы в концовке и обыграла Белоруссию на Кубке Первого канала
--  Baghpat News: जेल में एड्स की दस्तक, छह बंदी एचआईवी संक्रमित मिले
--  Bareilly News: बच्चों की 60 फीसदी से भी कम उपस्थिति पर 733 स्कूलों को नोटिस
--  Kvällens nyheter lördag 16 december
--  Milei sortea su último sueldo como diputado y elogia sus primeros ajustes económicos
+-  جالانت: أتحمل المسؤولية الأخطاء في العملية العسكرية بغزة بما فيه قتل 3 أسرى
+-  سوبر لوكس وتسهيلات في الدفع.. 2835 وحدة سكنية جديدة في 8 محافظات "صور"
+-  أحمد موسى: كريم بنزيما فشل في الظهور بمستوى فني عال.. والشناوي كان سدًا عالًا
+-  الكنيسة الأرثوذكسية تنعي أمير الكويت: قضى عمره في خدمة بلاده
+-  أحمد موسى ناعيًا أمير الكويت: قدم الكثير لشعبه وشعوب أمته العربية
+-  الرئيس الروسي بوتين يعتذر لمواطنة لهذا السبب
+-  Legisladores latinos rechazan acuerdos de Biden en frontera
+-  포스테코글루, ‘살인 태클 장인’ 로메로에게 한마다... “자기도 스포트라이트 받는 거 알더라”
+-  “김하성 FA 앞두고 20·20하면 가치 높아져…” 강정호가 샌디에이고 코치라면 ‘도루 자제·체력 관리’
+-  Севілья звільнила Алонсо, якого призначила 2 місяці тому
