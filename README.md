@@ -1,51 +1,51 @@
 # Latest News
+-  جابر الوهباني يعزي وكيل محافظة تعز حميد علي عبده
+-  مجلس الحرب يجتمع لبحث التوصل لصفقة تبادل
+-  Proyectan alza de 6% en sueldos para corporaciones de seguridad
+-  Llega venta decembrina al Centro de Convenciones
+-  Inauguran Tren Maya; incumplen promesas
+-  Murió Matthew Perry a causa de los efectos de la Ketamina
+-  İşte Abdullah Avcı'nın Batista Mendy planı
+-  Avrupa Birliği'nden İsrail'in gazetecileri darbetmesine tepki
+-  İsrail askerleri, işgal altındaki Batı Şeria'da bir genci daha katletti
+-  EuroLeague'de haftanın MVP'si Kostas Sloukas
+-  Yunanistan'dan Türkiye açıklaması
+-  इस साल सबसे ज्यादा लोगों को पसंद आईं मारुति और हुंडई की ये कारें, जानें क्या है खास
+-  ٹی ٹی پی کے مسئلے پر افغان طالبان سے مزاکرات کی ذمہ داری مولانا فضل الرحمان کو دی گئی ہے؟
+-  Saturday Citations: Dogs (woolly) and cats (athletic). Plus: Amino acid precursors on Enceladus, beer goggles on Earth
+-  Flying to these US cities will be a lot cheaper in 2024
+-  Viral Video: पाकिस्तान के अहमदपुर सियाल में सीता-राम मंदिर को बनाया गया चिकन शॉप, हिंदू समुदाय में फूटा गुस्सा
+-  اردوی اوکراین: سی طیاره بی سرنشین روسیه سرنگون شدند
+-  Kahvaltıyı peynirsiz yapamayanlara kötü haber! Artık sadece zenginler yiyecek, peynir fiyatları resmen uçuşa geçti
+-  “Açıq mikrofon” aksiyası davam edir
+-  Dışı çıtır çıtır içi yumuşacık tahinli falafel tarifi! Masterchef bile böyle tarif görmedi: Et köftesini solda bırakacak
+-  Póngase como meta 2024: Hágase sus controles de salud
+-  Israeli military says hostages soldiers killed were holding white flag: Reports
+-  Tålmodige Axelsen knuser Antonsen og er finaleklar
+-  İYİ Parti’de bu kez ilçe başkanları… 12 bin 750 üye istifa etti
+-  Zubiri: Mga Pinoy pulsuhan sa Cha-cha
+-  Lacrosse wird olympisch: Pocket, Stick – und Respekt
+-  Una exposición de Dellafuente, Lola Índigo y La Plazuela desata la locura en Granada
+-  Homem é preso em Garibaldi por posse de grande quantia em dinheiro sem origem comprovada
+-  Pais de Larissa Manoela procuram mãe de santo para separá-la do noivo
+-  Künstlicher Regen soll Pakistan bei Luftverschmutzung helfen
+-  Рашфорд е с вирус
+-  Ponsiluoma fyra – trippelt norskt på pallen
+-  Where to find Krampus in Fortnite
+-  El Salvador cierra un nuevo día con cero homicidios
+-  پاکستانی انٹرنیشنل ایئرپورٹس پر ای گیٹس منصوبہ 3 سال سے تعطل کا شکار
+-  Нов инцидент во Турција: Одбојкарки однесени во болница по нападот на навивачите
+-  Sport, Salis: "Oscar di Asi unisce varie anime sportive, è un onore ospitarli"
+-  Díaz hace un llamamiento a BNG y PSdeG "para trabajar conjuntamente y ganar la Xunta"
 -  Citypress | Reconciliation is not about forgetting wounds of the past but facing them courageously - Ramaphosa
+-  Yuvagalam :అనకాపల్లిలోకి ప్రవేశించిన యువగళం పాదయాత్ర
+-  Trailer truck carrying concrete slabs tips over and lands on its side after accident in Sheares Avenue
+-  Özdil herkesin yapabileceği 3 mesleği açıkladı. Olan oldu zaten Hemen başvurabilirsiniz
 -  Suomen miehet sukelsivat hiihdon maailmancupissa yhtä surkeille sijoille kuin naisetkin
 -  Suomalainen teinitähti loisti taas maailmancupissa
 -  Toyota-pomo on saanut tarpeekseen turhasta parranpärinästä: ”Se on Kallen asia”
 -  Dev gemiler Süveyş Kanalı'ndan vazgeçti
--  Katja Burkard und Barbara Schöneberger verraten, ob sie sich für den "Playboy" ausziehen
--  تراند اليوم : شركة K-Group EG تعلن عن وظائف شاغرة للمؤهلات المتوسطة
--  ريلمي تهدي الفئة الاقتصادية هاتف Realme V50s بشاشة 120Hz واتصال 5G بسعر مذهل
--  نواف الأحمد الصباح... لماذا سُمي "أمير التواضع والعفو"؟
--  وائل الدحدوح يروي لأول مرة تفاصيل استهدافه برصاص الاحتلال: نزفت بشدة
--  Avrupa Birliği: Görevini yapan gazetecilere yönelik saldırıyı kınıyoruz
--  제7차 Astana Club 회의 개최
--  سارع لإنقاذ نفسك.. ظهور هذه العلامة على الأصابع قد تكون جرس إنذار لمرض خطير!
--  تعرف على أفضل الأطعمة التي "تساعدك على أن تبدو أصغر سنًا" ولها فوائد مضادة للشيخوخة
--  الأردن ينتج 60% من الاستهلاك المحلي من المنتجات الزراعية
--  تمديد مهمة حاملة الطائرات الأميركية للبقاء قرب الاحتلال
--  القبض على شخص ارتكب جريمتي قتل منفصلتين في عمان
--  تجارة الأردن تدعو لتدريب خريجي تكنولوجيا المعلومات قبل تخرجهم
--  حزب الإتحاد الوطني الأردني ينعى أمير الكويت
--  القسام: فجّرنا عبوتين في 7 جنود وثالثة في منقذيهم
--  الإطاحة بشخص في محافظة "صامطة" لترويجه الحشيش المخدر
--  رئيس مدغشقر الجديد يستقبل رئيس مجلس النواب ممثلاً للملك محمد السادس في حفل التنصيب
--  Unpaid Energy Bills Reach Record-High Level in UK Amid Cost of Living Squeeze
--  AMZN Stock Forecast: How AWS-BYD Partnership Could Fuel Amazon’s Growth
--  '김민재 전 동료 노리는' 첼시, 겨울 이적시장 3명 방출 유력→1순위는 바로 '이 선수'
--  아스널 캡틴보다 순위가 높다?..."아시안게임 금메달 주역, 올 시즌 유럽 MF 패스 지표 7위"
--  ¿De qué depende que Stiven Mendoza juegue en Millonarios?
--  Turkey’s central bank chief unable to afford home in Istanbul, to move in with parents
--  Mohammed Sharif: విద్యావ్యవస్థను పాతాళానికి నెట్టేసిన సీఎం జగన్‌రెడ్డి
--  WoW players petition for bans as gold buying crisis deepens
--  Mario Vargas Llosa anuncia su retiro como columnista de opinión
--  Futbolcu izlemek için Nijerya'ya gitti, yakalandığı sıtma hastalığı nedeniyle hayatını kaybetti! Kocaelispor yöneticisi Ekrem Can'ın acı ölümü...
--  Oreo’s newest flavor inspired by a classic NYC treat — the black and white cookie
--  Feliz Navidad 2023: ¿Cómo llamar a Santa Claus?
--  الخليج اليوم .. من بوابة العمل الأمني والعسكري.. الشيخ مشعل الأحمد الصباح أميرا للكويت
--  الخليج اليوم .. بريطانيا تسقط مسيرة تستهدف الشحن التجاري في البحر الأحمر
--  الخليج اليوم .. الملك سلمان وولي العهد: السعودية وشعبها يشاركون الأشقاء في الكويت أحزانهم
--  Писториус: Европа трябва да се превъоръжи, задават се нови заплахи - Труд
--  Ziviler Ungehorsam - Worauf sich die Aktivisten der Letzten Generation berufen
--  Фратрия завърши годината с победа и на точка от върха
--  Savršeno vrijeme za brak: Naučnici izdvajaju ovu godinu kao najidealniju
--  Úrokové sadzby v eurozóne sú už zrejme na vrchole. Znižovanie je však predčasné, myslí si Nagel
--  Machado asegura que acudió al Supremo para «desafiar a Maduro y al régimen»
--  Tra armi e combustibili fossili: la spinta per la finanza “sostenibile” è arrivata al capolinea?
--  Bakan Güler: 1 Ocak'tan bugüne kadar 2084 terörist etkisiz hâle getirildi
--  Confruntarea dintre UTA și Farul Constanța s-a încheiat cu 0-0
--  NOVAKOV POTEZ ZA KOJI NIKO NIJE ZNAO Đoković je ostavio porodicu, napustio avion i krenuo u bolnicu, a razlog će vas naježiti
--  Матч звезд Фонбет Кубка России. Путь РПЛ выиграл у Пути регионов, но в челленджах уступил
--  Solidarité pour Noël à Ans : 135 “boîtes à chaussures” pour les plus démunis ont été récoltées et seront distribuées à partir du 15 décembre
--  Putin lässt sich einstimmig für die nächste Runde nominieren
+-  ইউনিয়ন পরিষদে উত্তোলন হয়নি জাতীয় পতাকা
+-  健康網》常手麻不一定是中風！ 中醫：當心是「胸廓出口症候群」
+-  Na ovaj način možete skinuti masne mrlje sa zidova: Postoji nekoliko trikova
+-  Kubacki najlepiej z Polaków w serii próbnej
