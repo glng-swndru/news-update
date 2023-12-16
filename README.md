@@ -1,51 +1,51 @@
 # Latest News
--  Amasya'da korkunç kaza! Otomobil köprüden Yeşilırmak Nehri'ne uçtu: Bir ölü
--  Православен календар за 16 декември, вижте кой празнува днес
--  Vorfall an Mexikos Pazifikküste: "Unidentifiziertes Tier" beißt Strandurlauber tot
--  Senamhi espera que continuarán lluvias intensas en la sierra y selva peruana
--  Bilal Coulibaly brille face aux Pacers : 17 points et de la bonne défense sur Tyrese Haliburton
--  Thüringer AfD geht gegen Landesverfassungsschutzbericht vor
--  Thüringer AfD geht gegen Landesverfassungsschutzbericht vor
--  Adrian Marcu, fostul antrenor al lui Halep, i-a găsit vina sportivei. „Ceilalți stau floricică”
--  В Ярцевском архиве были проведены экскурсии для учеников 7-х классов
--  نگران مشیر بلوچستان برائے مائنز اینڈ منرلز بھی مستعفی ہوگئے
--  PowerBall results: Friday, 15 December 2023
--  Taj Mahal: ताजमहल पर कर्मचारियों की करतूत, थैलों में भरते नजर आए...; एएसआई ने दिए जांच के आदेश
--  Суд обязал соратника Трампа Джулиани выплатить $148 млн за клевету на выборах
--  #portret Donald Tusk, poljski premier
--  ACC U-19 Asia Cup Semi-Final Result: এশিয়া কাপের অবিশ্বাস্য সেমিফাইনাল! ভারতকে হারাল বাংলাদেশ, পাকিস্তানকে হারিয়ে প্রথমবার ফাইনালে আরব
--  Dal Rignon alla Tesoriera, le aree verdi dei parchi storici si rifanno il look
--  Ganjar-Mahfud Janji Stabilkan Harga Sembako, Negara Akan Atur Distribusi
--  Jake Fisher scores game-winner in Force victory over Sioux Falls
--  Casi 80 parejas se casan a la vez en la República Dominicana
--  Το Survivor επιστρέφει με πρωτοφανείς αλλαγές στους κανόνες – Σε ποιούς έχει γίνει πρόταση
--  आरएसएस: प्रांत संघचालक के चुनाव 17 दिसंबर को, लखनऊ विभाग में अरविंद जैन बने विभाग संघचालक
--  В Ярославле отметились подъездные воришки
--  Holz hacken deluxe: Lkw mit Liegesitz, Subwoofer und Kaffeemaschine
--  網球》嘲諷貴古賤今言論 基里歐斯認為喬帥能摧毀對手
--  Jasa Raharja Jamin Santunan Seluruh Korban Kecelakaan Bus PO Handoyo
--  Σπερς-Λέικερς 129-115: Επιστροφή στις νίκες μετά το 0-18 (vid)
--  هل ستترك أمريكا أوكرانيا لمصيرها؟
--  'Forced to Take Jobs': Afghan Kids in Delhi Still in Lurch After School Closure
--  Real Housewives of Sydney star Nicole O'Neil addresses rumours that she's leaving the show after skipping the reunion
--  Habeck verteidigt umstrittene Entscheidung zum Agrardiesel
--  Na tessék, már ez is sikerült: kettévágott a politika egy győri panelházat!
--  I have loved reading books since childhood: South Mumbai bookseller
--  Румен Радев благодари на премиера на Нидерландия за решението за Шенген
--  Matthew Perrys dödsorsak fastställd
--  Ассист Дадонова помог «Далласу» обыграть «Оттаву» в матче НХЛ
--  Хокеистите ни катастрофираха на олимпийската квалификация
--  ΔΕΔΔΗΕ: Διακοπές ρεύματος σε κέντρο Αθήνας, Διόνυσο, Χαϊδάρι
--  Kementerian PUPR Benahi Jalan hingga Jembatan Jelang Nataru
--  Threads活躍度暴增反彈！Meta進軍歐洲拚市場擴張
--  เชียงรายเปิดฤดูท่องเที่ยว “มหกรรมดอกไม้อาเซียน”
--  Под Судогдой из-за строительства М-12 деревня лишилась дороги
--  Azam yang tertangguh
--  مسؤول حوثي: أي تحرك عدائي ضد اليمن ستكون عواقبه وخيمة
--  Prediksi Liverpool Vs Man Utd: Si Merah Libas Setan Merah
--  Mendulang Suara dengan Gaya Gemoy
--  Langgar pelajar sekolah: Pegawai kanan polis direman tiga hari
--  Bruno Le Maire sort du rang
--  RAKTA launches new generation of solar-powered public bus stops
--  76ers se impone a Detroit y Pistons alcanza su peor crisis
--  Christian Lindner im Interview: „Mir fallen durchaus noch Bereiche ein, wo der Staat sparen könnte“
+-  NEUREĐENE ZEMLJA: Nije stvar kvara, stvar je stava
+-  Mobil Listrik Komersial Mitsubishi L100 EV Sudah Diproduksi di Indonesia
+-  Cara Download Pembaruan HyperOS di Xiaomi 14
+-  Persija Krisis Striker Haus Gol di Putaran Kedua BRI Liga 1, Ini Komentar Pelatih PSS Sleman
+-  IShowSpeed floored several times and left in tears after charity sparring match with KSI
+-  ‘สมศักดิ์’ เผย คณะกรรมการคุณธรรมแห่งชาติ เลือกคนดีศรีจังหวัด-คนดีศรีกรุงเทพฯแล้ว
+-  Telefónica tendrá vía libre para explotar su red de cable submarino en España
+-  Mercato - OM : Un attaquant en approche ?
+-  La paradoja de Spotify: vuela en Bolsa mientras despide a miles de empleados en un solo año
+-  El ‘lobby’ feroz sigue de caza en Bruselas
+-  La mayor amenaza para las universidades de EE UU
+-  Las peleas vecinales más sonadas de 2023: “Necesitamos descansar y no escuchar prácticas sexuales a las cuatro de la mañana”
+-  Επεισόδια στου Ρέντη: «Δεν είναι ένας ο καθοδηγητής - οι εξελίξεις θα είναι καταιγιστικές»
+-  Whitfords snake scare: Perth shopper spots big snake on hood of their car
+-  Siap Libur Nataru Pakai Mobil Pribadi, Jangan Lupa Pelumas Rem Mesti Diperiksa Seperti Ini Supaya Tidak Blong
+-  Kreider scores twice, Quick makes 29 saves to help Rangers beat Ducks
+-  Krieg gegen die Ukraine: So ist die Lage
+-  US’ Blinken condemns Hong Kong authorities over bounties for activists
+-  A Fazenda 15: saiba quem está na penúltima Roça do reality
+-  लोकसभा चुनाव के लिए भाजपा तेलंगाना में किसी पार्टी के साथ नहीं करेगी गठबंधन
+-  OpenAI CEO Sam Altman Supports Worldcoin Amid Funding Drive Reports, Regulatory Scrutiny
+-  PNB Joins One Lakh Crore Market Cap Club Among PSU Banks
+-  이별통보에 가위로 전 여친 살해하려던 20대男 ‘집유’
+-  David Pastrnak scores shootout winner, Bruins beat Islanders
+-  Gaet Konservasi Indonesia dan OceanX, KKP Eksplorasi Ekosistem Bawah Laut
+-  Hilfsangebot: Kleine Kämpferin: Liv kam mit 490 Gramm auf die Welt
+-  “20골 공격수, 아스널 이적 선호한다”…1월 아닌 여름에 떠날 분위기
+-  – شركة ميرسك الدنماركية تعلق عمليات الشحن بالحاويات عبر البحر الأحمر .
+-  Aveyron : c'est quoi ces "Pépites de l'Aubrac" qui ont la patate et sont en plein essor ?
+-  Escrime : deux épéistes du club de Rodez au championnat de France individuel à Nantes ce samedi
+-  VIDEOS. De "La passionata" à Nestor Burma en passant par le cinéma, Guy Marchand a fini sa route
+-  Covoiturage : trajets, distances, versements... voici les conditions pour bénéficier de la prime de 100 € reco
+-  Sur quelles boites de médicaments y aura-t-il bientôt des QR codes pour remplacer les notices d'utilisation en
+-  Après Mathilde Quintard au niveau national, une deuxième Millavoise aux commandes des Jeunes chambres économiq
+-  Occitanie : la fin tragique d'Arthur, le sanglier "espion" des chasseurs tarnais, dans un accident de la route
+-  Slovák súperil s najlepšími na svete. Najžiarivejší génius? Rus s nekonečným talentom. Mal už milióny a stále drel ako kôň
+-  RBA has stalled the Australian economy. 2024 will be worse.
+-  Record high international students, decade low domestic students
+-  Labor drowns in sea of lies
+-  Dix ans après avoir frôlé la fermeture, la madeleine Jeannette est sauvée grâce à ses salariés !
+-  Olivia Grégoire : « Je veux dépoussiérer le titre-restaurant »
+-  Chocs, réparations, manque de matériel… Pourquoi les lignes Intercités sont sous tension ces derniers jours
+-  « Rends l'argent » : Maeva Ghennam et Milla Jasmine menacent de poursuivre Magali Berdah en justice
+-  Impact of the Investing in America Agenda on Ohio
+-  Négociations d'adhésion européenne de l'Ukraine et abstention de la Hongrie : le tour de passe-passe de la diplomatie
+-  Guerre Israël-Gaza : trois otages israéliens et un journaliste d'Al Jazeera tués par l'armée israélienne (revoir notre direct)
+-  Guerre en Ukraine : 'nous sommes très loin d'un élargissement effectif' à l'Ukraine, dit Macron (Revoir notre direct)
+-  185 millions d'aide à l'Ukraine débloqués par la Belgique
+-  #Investigation : ces avocats belges qui défendent discrètement les intérêts du Maroc
+-  Guerre au Proche-Orient : le deuxième plus grand transporteur de containers interrompt sa navigation en mer Rouge
