@@ -1,51 +1,51 @@
 # Latest News
--  This Week in Coins: Bonk Continues Surge With Solana Hype, Bitcoin Dips
--  Campana sobre campana
--  Vladimir Putin will run for president again as an ‘independent candidate’
--  Exfuncionario del Ministerio de Gobierno traficaba autos de Dircabi
--  Los juicios y la Fiscal
--  Azərbaycanda gənc oğlan "TikTok"da qızı şoka saldı, cinayət işi açıldı
--  В Киеве снесли памятник экипажу советского бронепоезда
--  Lyon in wait: Spinner left one short of 500 Test wickets as Australia dominate
--  '솔로지옥3' 이관희·최혜선, 천국도에 깜짝 "뷰가 엄청 좋아" 어디?
--  Армијата призна дека убила тројца израелски заложници, стотици Израелци излегоа на протест во Тел Авив
--  Θεοχάρης: Εντός τριμήνου θα έχει λυθεί οριστικά το θέμα των ανασφάλιστων οχημάτων
--  Asked about Trump, Kremlin aide says Putin wants a president who is 'more constructive' toward Russia
--  British boy who went missing in 2017 found in Southern France
--  British boy who went missing in 2017 found in Southern France
--  Putin would would like to see 'more constructive' U.S. president towards Russia, spokesman says
--  14 Spanish airport workers arrested on suspicion of stealing from luggage
--  Prince Harry wins partial victory in newspaper phone hacking claim
--  ‘I don’t give a s*** about calories’ over Christmas, admits Gemma Collins saying ‘I love my curvy real figure’
--  ‘I don’t give a s*** about calories’ over Christmas, admits Gemma Collins saying ‘I love my curvy real figure’
--  Dituding Menculik Anak Sendiri, Ini 2 Kontroversi Mantan Pasangan Bunga Sophia dan Attila Syach
--  Proteste y péguese contra el tranvía
--  INSÄNDARE: Breven tar lång tid på sig
--  De Boerhoorn gaat de geschiedenisboeken van Zuidwolde in, maar tranen vloeien niet op afscheidsavond
--  Obdukcijski nalaz šokirao je svijet: Matthew Perry imao je više ketamina u tijelu nego osoba pod općom anestezijom
--  الأمير الـ16 للبلاد .. الكويت حزينة بعد وفاة الشيخ نواف الأحمد الصباح
--  مريضة تطالب مستشفى بـ 500 ألف درهم تعويضاً
--  مسؤول بوزارة الصحة في غزة: مقتل 14 شخصا غالبيتهم نساء وأطفال بغارة جوية في جباليا
--  El carácter democrático de la república
--  شاهد لحظة إعلان وفاة أمير الكويت الشيخ نواف الأحمد الجابر الصباح
--  الاعلان عن وفاة أمير الكويت الشيخ نواف الاحمد الجابر الصباح
--  MUŽ ME FOTOGRAFISAO I REKAO DA MI JE TO POSLEDNJA NOĆ U ŽIVOTU: Hteo je da deca imaju USPOMENU, a onda sam skupila hrabrost za OVO
--  Bivša osvajačica Grand slama na rubu: Nisam kriva, pad zbog dopinga mogao bi biti moj kraj
--  «Κλείδωσε» η ενοποίηση ΟΣΕ - ΕΡΓΟΣΕ - ΓΑΙΑΟΣΕ: Πώς φτάσαμε στην ακύρωση της πολυδιαφημισμένης μεταρρύθμισης του 2022
--  VIDEO Zaplesali pod zvjezdanim nebom: Zagrepčani nisu odoljeli taktovima glazbe na Adventu
--  Rusija za 2024. planira testirati lansiranje 7 interkontinentalnih balističkih projektila
--  El divorcio y sus efectos en escolares
--  EastEnders legend forced to pull out of panto hours before going on stage after falling ill and says she’s ‘gutted’
--  EastEnders legend forced to pull out of panto hours before going on stage after falling ill and says she’s ‘gutted’
--  “클럽 레코드 깬다”... 아스널, 이미 오시멘 에이전트 접촉→첼시와 2파전
--  Reconstrucción nacional
--  La hora más oscura
--  Küveytin əmiri vəfat etdi
--  10 أسود حضروا المونديال سيغيبون عن الكان
--  Crónica de un sacrilegio anunciado
--  Hostile Australia prove how Ashes turned on Nathan Lyon’s calf
--  Hostile Australia prove how Ashes turned on Nathan Lyon’s calf
--  Bretagne : Usagés ou même cassés, les jouets ne veulent plus finir à la poubelle
--  Comment la Moselle va aider l'Allemagne à sortir du charbon
--  Geminid meteor shower lights up night sky
--  Unveiling the Dark Genome: LINE-1's Role in Disease
+-  Israel-Hamas-Krieg: Bataillon in Gazastreifen eingenommen und Kommando-Zentrum zerstört
+-  Flüchtlinge in Sachsen: Wird Aabid aus Syrien zur Last?
+-  كندا تقدم معونات بقيمة 21 مليون دولار للاجئين الأفغان
+-  Soccerladuma | Real Madrid Make 'Final Decision' On Modric'
+-  Health Tips: చలికాలంలో ఉసిరి కాయలను ఇలా వాడినట్లయితే, జలుబు, జ్వరం శరీరంలోకి ప్రవేశించేందుకు భయపడతాయి...
+-  القاهرة الإخبارية: سقوط جسم طائر قبالة المياه الإقليمية المصرية بمدينة دهب
+-  التنمية المحلية: انطلاق 5 دورات تدريبية بمركز سقارة غدًا
+-  "على عكس الشائع" كبار السن يحتاجون لبعض الوزن …لهذه الأسباب
+-  Kolekcija legendarnog umjetnika Keitha Haringa dostupna je na Samsung The Frame televizorima
+-  Računi za struju čekaju završetak izbora
+-  Israel: Lufthansa will ab Januar wieder nach Tel Aviv fliegen
+-  Експлозии в Ростовска област: Русия вдига хеликоптери
+-  Festive flavours: Slaying calories, not the holiday spirit!
+-  Ανόρθωση: Καιρός το «Παπαδόπουλος» να φέρει βαθμούς και περισσότερες νίκες
+-  Το συγκινητικό τελευταίο μήνυμα του Κώστα Νεστορίδη: «Πάω να κάνω δίδυμο με τον φίλο μου τον Μίμη»
+-  W PiS zmiany personalne. Jarosław Kaczyński wciąga do partii Adama Bielana i Łukasza Mejzę
+-  Cae una célula yihadista asentada en España que planeaba dos atentados
+-  Siguen los anuncios: Plan de austeridad de Milei incluye venta de dos aviones
+-  পাকিস্তানের চেয়ে ৩০০ রানে এগিয়ে অস্ট্রেলিয়া
+-  Webuild cede quota concessione su linea M4 di Milano per 141 milioni
+-  الطالبي العلمي يمثل جلالة الملك في مراسيم تنصيب رئيس جمهورية مدغشقر
+-  Yaşar Okuyan Kimdir? Yaşar Okuyan nereli, kaç yaşında?
+-  Usman Khawaja, Indian wrestlers, Muhammad Ali: Athletes who took a stand
+-  Преди Коледа: Масови проверки за качеството на свинското във Варна (ВИДЕО)
+-  Kocaelispor'un acı kaybı!
+-  "Gazzeli o çocuk"
+-  Çanakkale'de şiddetli sağanak: Dereler taştı, evleri su bastı
+-  Viel gefeiert, oft kritisiert: Til Schweiger wird 60
+-  Ολυμπιακός: Ως ποτέ πρέπει να κάνει κάποιος υπομονή για την επίθεση;
+-  Strictly's Ellie Leach breaks down in tears as she receives words of support from famous cousin hours before final
+-  Finowie zajęli rosyjskie pociągi za długi. Moskwa protestuje
+-  Кметът на София за МОЧА: На мястото на монумента трябва да е нещо, което да ни обединява
+-  Prabowo Sindir Anies Baswedan: Lupa Pernah Jadi Gubernur karena Demokrasi
+-  Corona-Zahlen in Cottbus aktuell: Neuinfektionen für Cottbus, Brandenburg und Deutschland
+-  Corona-Zahlen in Brandenburg an der Havel aktuell: Neuinfektionen für Brandenburg an der Havel, Brandenburg und Deutschland
+-  Δώρο Χριστουγέννων 2023: Ποιοι το δικαιούνται και πότε θα το εισπράξουν
+-  ATLETIKO NA TEŠKOM GOSTOVANjU: ''San Mames'' je neosvojiva tvrđava više od četiri meseca
+-  Corona-Zahlen im Landkreis St. Wendel aktuell: Zahlen und Fakten aus der Region
+-  Kuwait Emir Died: কুয়েতের আমির শেখ নওয়াফ আল আহমেদ প্রয়াত
+-  Corona-Zahlen im Saarpfalz-Kreis aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Saarlouis aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Neunkirchen aktuell: Neuinfektionen für Landkreis Neunkirchen, Saarland und Deutschland
+-  Анди Мъри разкри кой е неговият спортен идол от детството му
+-  Rohit Shetty’s ‘Indian Police Force’ teaser is packed with power, performance and police force
+-  New Gaynor Lord footage shows missing 55-year-old's last known moments - as mother-of-three's distraught daughter shares news that a female body has been found in river
+-  مباحثات موريتانية إسبانية فى نواكشوط
+-  Corona-Zahlen im Landkreis Merzig-Wadern aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen in Regionalverband Regionalverband Saarbrücken aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Oberallgäu aktuell: Inzidenz für Landkreis Oberallgäu, Bayern und Deutschland
+-  جامعة عمان العربية تنعى صاحب السمو الأمير الشيخ نواف الأحمد الجابر الصباح
