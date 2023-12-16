@@ -1,51 +1,51 @@
 # Latest News
--  Get ready for a grand New Year party bash in Mumbai with our exclusive guide
--  Dwayne Johnson to play MMA fighter Mark Kerr in `The Smashing Machine`
--  George Clooney, Adam Sandler to lead Noah Baumbach`s next movie
--  B`day girl Shefali Jariwala says Shreyas Talpade will `bounce back stronger`
--  `Friends` star Matthew Perry`s cause of death revealed
--  Delhi records minimum temperature of 5.5 degrees Celsius, AQI `very poor`
--  호텔신라, '지속가능경영유공 정부포상' 국무총리 표창 수상
--  한전 6개월 흑자행진에도 적자폭은 '그대로'
--  주말, 갑자기 찾아온 한파..."이번 추위 언제까지?"
--  آخر تطورات العملية العسكرية الروسية في أوكرانيا /16.12.2023/
--  لحظة بلحظة.. الحرب في غزة تدخل يومها الـ71
--  Rabiosa lucha de Leiner para vencer a Petro
--  Mañana
--  Primer millonario
--  Mitchell Marsh declines Test opening role for Australia after Warner’s retirement
--  عكاشة في أعلى مستويات الاكتظاظ
--  Pakistan’s interior minister Bugti stands down
--  PM MITRA Park To Create 3 Lakh Employment Opportunities
--  PM To Inaugurate World's Largest Corporate Office, Surat Diamond Bourse
--  Ratan Tata Threat Suspect Traced And Apprehended By Mumbai Police
--  Surat Airport To Get International Status As Cabinet Approves Proposal
--  India Calls For Zero Tolerance For Terror Actors, Sponsors At UN
--  SBI's MCLR Increase Could Lead To Higher EMIs
--  Mahindra Finance Ventures Into Insurance Distribution
--  Ipsos India Appoints Unni Hariharan To Lead Tech & Commerce
--  Еще одного разработчика гиперзвуковых технологий Путина арестовали за госизмену
--  ترتيبات ما بعد بنكيران
--  DIREKT: Ukraina: Attackdrönare mot Kiev nedskjutna
--  Political Instability Hinders Pakistan Response to DI Khan Attack
--  Trainer Walter vor "Endspiel"?: Bedrohlicher "Sturm" braut sich beim HSV zusammen
--  5 Aktor Laga Kelas Dunia Lawan Main Jet Li, Iko Uwais Menyusul?
--  ليتوانيا تسلم أوكرانيا ذخائز إضافية
--  EPL: Souness reveals only one Man Utd star will get into Liverpool’s team
--  Lisakohustused täidavad omavalitsuste niigi pingelist eelarvet
--  „Herz ist innerlich gebrochen“: Lehrer spricht über Angst vor AfD und überlegt, auszuwandern
--  مدينة اختفت قبل أكثر من 1500 عام.. أين كانت؟
--  В Бурятии с начала холодов 12 человек замёрзли насмерть
--  "Çember"e alındılar! Yüzlerce kişi yakalandı
--  Bölgede dengeler değişiyor! Komşudan Türkiye'nin dev projesi için talep
--  Божович: Миранчуку лучше остаться в Европе
--  मध्यस्थता वार्ता के लिए मोसाद प्रमुख के यूरोप में कतर के प्रधानमंत्री से मिलने की उम्मीद
--  '프렌즈' 故 매튜 페리, 사망원인=케타민 부작용…'불법투약 가능성' 제기 [해외이슈]
--  'CY 3회' 214승 레전드, 결국 수술대 오른다…'TEX 날벼락' 슈어저 허리디스크 수술→6~7월 복귀 전망
--  "어렸을 때 좋아한 선수라"…SF 'No.51' 이정후 등번호에 美매체도 관심, 왜 51번을 달았나
--  Община Варна организира Рождественски хоров фестивал
--  Затварят временно две кръгови кръстовища заради ремонт на улица "Девня"
--  جسٹس سردار طارق نے بطور قائم مقام چیف جسٹس حلف اٹھالیا
--  Jennifer Lopez Returns to Set of Sports Flick 'Unstoppable' in L.A. (Photos)
--  এবার অশান্তির ছায়া যশ-নুসরাতের সংসারে
--  РИА Новости: фонд для журналистов Украины спонсирует террористов
+-  Ataque a balazos termina en doble homicidio
+-  Πυροβολισμοί έξω από κλαμπ στο Γκάζι – Τρεις σοβαρά τραυματίες
+-  Barcelona Siap Kalahkan Real Madrid untuk Rekrut Claudio Echeverri dari River Plate
+-  Apakah Tabungan Simpedes Dapat Kartu ATM? Begini Penjelasannya
+-  Seorang Pria Beli Narkoba yang Diminta Ammar Zoni di Kampung Bahari
+-  Santé: l'OMS s'inquiète de la propagation rapide de l'épidémie de Mpox, aussi appelée «variole du singe»
+-  Μήνυμα Μητσοτάκη από τις Βρυξέλλες για την οπαδική βία - Το ειδικό app, οι κάμερες και οι συνέπειες
+-  Украинский фонд уличили в спонсировании террористической организации
+-  Selain Esmeralda, Ini 3 Hero Mobile Legends Terbaik untuk Melawan Uranus
+-  Госкомиссия одобрила заправку и пуск ракеты "Союз" со спутником "Арктика-М" № 2
+-  Matthew Perry wrote about ketamine infusion therapy in his memoir and said it was 'not for me' and made him think he was 'dying'... as late Friends actor's autopsy reveals 'high levels' of drug in his system
+-  Ukraina Masukkan Pemimpin Gereja Rusia dalam Daftar Pencarian Orang
+-  New workplace recycling regulations in Wales: What you need to know
+-  Autiotalo tuhoutui tulipalossa Joensuussa
+-  3 فحوصات تكشف جرثومة المعدة.. عليك إجراؤها في أسرع وقت
+-  Inilah Sinopsis Deaths Game, Drakor Bergenre Thriller yang Diperankan Seo In Guk dan Park So Dam
+-  Babar Azam Dismissal Video: ख़राब फॉर्म से झुझ रहे बाबर आजम मिशेल मार्श की गेंद पर हुए आउट, देखें वीडियो
+-  Anies Baswedan Bikin Ajakan Spesial untuk Wibu, Apa Itu? Fadil Jaidi Ikutan Terseret
+-  ZNATE JE IZ "SELO GORI, A BABA SE ČEŠLJA", A NISTE ZNALI DA JE DALA GLAS EJPRIL O'NIL: Oživela čuvenu junakinju Nindža Kornjače
+-  RSHS Bandung Buka Suara Usai Viral Pasien Cabut Gigi Bungsu Meninggal
+-  TotalEnergies to start building 216MW solar plant in SA
+-  Mötley Crüe Drummer Tommy Lee Accused of Sexually Assaulting Woman in Helicopter
+-  Tommy Lee is accused of sexually assaulting woman on a helicopter in bombshell lawsuit claiming Motley Crue rocker and pilot drank alcohol, smoked weed and snorted cocaine before forcing himself on her midair
+-  News24 | Bheki Cele to attend funeral of slain Gugulethu CPF member
+-  Imamo poplavo knjig, a starejših ni mogoče nadomestiti. Obstaja en izvod in potem je konec.
+-  Imamo poplavo knjig, a starejših ni mogoče nadomestiti. Obstaja en izvod in potem je konec.
+-  Pelaku KDRT Gunakan Golok di Bekasi Serahkan Diri, Apa Alasannya Setega Itu?
+-  In or Out? Jonty Rhodes Uses Cricket’s 3rd Umpire Reference to Praise Hyderabad Airport’s Toilet Occupancy Indicator System
+-  Фильм из Европы открыл показы на Хайнаньском международном кинофестивале
+-  Ular Masuk Permukiman di Ponorogo, Warga Diimbau Waspada
+-  Kekayaan Mertua Pratama Arhan Tembus Rp28 Miliar, Pantas Azizah Salsha Punya Gaya Hidup Glamor
+-  '마에스트라' 이영애, 불륜 남편 응징하나…뉴스서 폭탄 발언
+-  Ram Temple Inauguration: Security Arrangements Increased in Ayodhya Ahead of ‘Pran Pratishtha’ of Ram Mandir on January 22, 2024 (Watch Video)
+-  Cofepris cerró empresa de melones en Sonora tras brote de salmonela
+-  Google Pixel 8 Pro review
+-  Rytmihäiriköiden juhlakonsertti kajahtaa lauantai-iltana Carelia-salissa – suora lähetys alkaa tänään kello 18
+-  В аэропорту Волгограда непогода привела к задержке более 10 рейсов
+-  Nothing has changed in past decade, says DCW chief Maliwal on 11 years of Nirbhaya case
+-  Indian Navy Responds To Hijacking Attempt On Malta Ship In The Arabian Sea
+-  PM Narendra Modi to reach Thrissur on January 2; to address women’s meet
+-  50 очков Брансона помогли «Нью-Йорку» победить «Финикс»
+-  Mærsk sætter sejlads i Det Røde Hav på pause efter angreb
+-  Raghvendra Kumar Singh appointed as Principal Secretary to Madhya Pradesh Chief Minister
+-  Nagpur Road Accident: नागपुर में ट्रक-कार की भिड़ंत में छह लोगों की मौत
+-  Maj. Gen. Harendra Pieris appointed Chief of Staff of Army
+-  ‘Wonka’: Timothée Chalamet Bites Off More Than He Can Chew in This Dizzying Musical
+-  الذهب يرتفع مع تلميحات الفيدرالي بالتيسير النقدي
+-  खेल की खबरें | वार्नर के संन्यास लेने के बाद टेस्ट ओपनर बनने का इरादा नहीं: मिशेल मार्श
+-  Новогодние направления для шоппинга в 2023 году
+-  "Prošlo je godinu dana, a kao da su prošle tri!" Mihin kum za Informer: Mnogo mi nedostaje Siniša!
