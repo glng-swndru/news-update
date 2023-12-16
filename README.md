@@ -1,51 +1,51 @@
 # Latest News
--  롤스로이스男 풀어준 경찰, ‘감봉’ 1개월 후 전출
--  Rohit Shetty’s ‘Indian Police Force’ teaser is packed with power, performance and police force
--  EN IMAGES. Lisieux : la parade lance le grand week-end de Noël
--  شاہد خاقان عباسی کا ن لیگ چھوڑنے کا فیصلہ
--  Россия нарастила внешний долг перед единственной страной в 2022 году
--  EPL: Osimhen to become Arsenal’s most expensive signing
--  BBC Strictly Come Dancing couples 'undeniable chemistry' bumps former favourite from spot top before final
--  Inburgering nieuwe Nederlanders? Dat gaan Zaltbommel en Maasdriel voortaan samen doen
--  BBC Strictly Come Dancing viewers' winner 'decided' hours before final between Ellie Leach, Layton Williams and Bobby Brazier
--  Dans ce département d'Occitanie, un lieu renoue avec la tradition du pur café-théâtre
--  Hiszpański dziennikarz nie ma wątpliwości ws. Lewandowskiego. "Wiemy na pewno"
--  Il se rend chez son ex en pleine nuit, à Caen : et ça se passe très mal...
--  Urlaub auf den Kapverden: Was die Inseln im Winter so besonders macht
--  Urlaub im Februar: Diese Reiseziele sind warm und sonnig
--  Ranked: The best festive movies to watch this Christmas
--  Συνεχίζεται για 4η μέρα η συζήτηση στην Ολομέλεια της Βουλής για τον προϋπολογισμό 2024
--  Mediakonserni Keskisuomalainen harkitsee osakesarjojensa yhdistämistä
--  Soccerladuma | Sancho's Man Utd Future Takes Another Twist?
--  Nach Tod von Gaza-Geiseln: Demonstrierende fordern Israels Regierung zum Handeln auf
--  Währung: Hessen tauschen mehr D-Mark-Bestände bei Bundesbank um
--  Još malo i kuna se "briše"
--  Не се хвалете в социалните мрежи, че пътувате по празниците
--  Kareena Kapoor, Karan Johar Cheer For Their Kids Taimur And Yash At Annual Day Function; Watch Adorable Video
--  हाईकोर्ट ने तुलजा भवानी मंदिर ट्रस्ट को आभूषणों को भंग न करने का आदेश दिया
--  CHP'li vekil bypass oldu
--  Hakemler maça çıkma kararı aldı
--  Nazilli’de uyuşturucu operasyonu
--  تفاصيل طلاق شيرين وحسام حبيب.. للمرة الثالثة
--  خبير أمريكي يشير إلى سببين سيؤديان إلى انهيار أوكرانيا
--  Ferdi Kadığlu'na 6 talip birden!
--  Einzelhandel: Tarifprotest im Einzelhandel vor Ikea-Zentrale geplant
--  هل ترتبط جينات تعزيز الخصوبة بمشاكل صحية؟.. دراسة تجيب
--  Rudy Giuliani, fostul avocat al lui Donald Trump, condamnat să plătească aproape 150 de milioane de dolari către două femei
--  FD दरें: इस बैंक के ग्राहकों के लिए खुशखबरी, अब 366 दिन की FD पर मिलेगा बंपर ब्याज, चेक करें दरें
--  Insecurity: Medecins Sans Frontieres announces partial withdrawal from Zamfara
--  FC Bayern: Ex-Nationalspieler Holger Badstuber sieht Probleme in der Abwehr
--  Ausschreitungen in Paderborn: Hohe „kriminelle Energie“
--  Has this Greater Manchester Primark found the answer to those massive queues?
--  Zbog olujnog vjetra zatvorena A1 između Sv. Roka i Posedarja
--  Hrvatska glumica pozirala s majkom, pratitelji zadivljeni koliko sliče jedna drugoj
--  Pekka Haavisto ottaisi pääministerin mukaan tärkeisiin ulkopoliittisiin tapaamisiin
--  Xankəndi yolunda qəzaya düşənlər KİMLƏRDİR...
--  पाक खुफिया एजेंसी और नेवी अप्रेंटिस गौरव पाटिल के बीच 900 चैट का खुलासा
--  العبادي يدعو إلى المشاركة الواسعة والواعية في الانتخابات
--  Te podatki i opłaty wzrosną w 2024 roku. Podsumowujemy zmiany w prawie ważne dla każdego
--  В Сербии заявили, что не хотят вступать в НАТО и забывать, кто отнял Косово
--  Selena Gomez makes out with new boyfriend Benny Blanco
--  В Северной Осетии ликвидировали пожар в торговом центре
--  Cambuur-trainer Henk de Jong witheet na misdragingen eigen fans: ‘Paar idioten hebben geen verstand’
--  ISPOD POJASA Šolakovi politički i medijski pajaci drsko gaze izbornu tišinu i napadaju Vučića! ŠIBICARSKIM FORAMA BI DA OTMU VLAST
+-  참사 피해자 보도, 독일과 한국 언론 결정적 차이는
+-  बीसीसीआई का बड़ा फैसला, द्रविड़ कोच नहीं, ये शख्स करेगा साउथ अफ्रीका के खिलाफ टीम इंडिया को कोचिंग
+-  Bon Plan : les soldes de fin d'année d'Epic Games
+-  नीलामी से पहले बीसीसीआई ने चेतन सकारिया को संदिग्ध बॉलिंग एक्शन सूची में शामिल किया
+-  DR MICHAEL MOSLEY: Why running more WON'T help you to lose weight... and nor will it make you live...
+-  Sperm donors should be barred from fathering hundreds of children around the world, leading...
+-  The lockdown effect: Americans' physical and mental health has deteriorated by every metric since...
+-  How bad is the drug epidemic in YOUR state? Overdose deaths have risen in EVERY part of the US in...
+-  Why experts are now recommending you SHOULD be 'slightly overweight' in your 60s
+-  How to release a 'trapped' sneeze, according to experts...including the genius 'tissue trick'
+-  Над 800 изпълнители ще участват във фолклорния празник „Дряновица“
+-  Pentaqon rəhbəri Yaxın Şərqə gedir
+-  Ukraine shoots downs 30 Russian drones over 11 regions – air force
+-  Сычев рассказал, что при обучении на тренера освоил программу для презентаций
+-  مواقع التواصل الاجتماعي تحتل النسبة الأعلى باستخدام الإنترنت في الأردن
+-  В румынской части дельты Дуная обнаружили очаг птичьего гриппа
+-  Zastrašujuća nesreća u tvornici otvorila 'vrata pakla': Pogledajte kakav je vatreni kaos nastao u sekundi
+-  Mérgező gyomnövény került a gyerekeknek felszolgált zöldbabfőzelékbe Kőbányán
+-  Abdulkadir Uraloğlu duyurdu! İki otoyolun ihalesi yapıldı
+-  Turkmenistan and EU Deepen Ties with Rich Program of Cooperation
+-  I did the 3-minute pigeon pose every day for a week — here’s what happened
+-  IDF "mistakenly" kills three Israeli hostages in Gaza
+-  IND vs SA: भारतीय टीम को दो झटके, 2 स्टार गेंदबाज सीरीज से बाहर
+-  Au cœur de l'Essequibo guyanien : "Pas question de devenir vénézuélien"
+-  Les Français brouillés avec leurs bulles
+-  Oui, le café parfait existe
+-  Inde. Des hommes enlevés pour être mariés : dans l'État du Bihar, la tradition perdure
+-  Procès. Le prince Harry remporte une première victoire dans sa guerre contre les tabloïds
+-  Analyse. Syrie : comment Bachar El-Assad tente de profiter de la guerre à Gaza
+-  Sacrés Français. Au pays de la viande rouge
+-  Récap. COP28, Gaza, E.T. l'extraterrestre… La semaine en photos
+-  Pendant que vous dormiez. Giuliani, Houthistes, Matthew Perry : les informations de la nuit
+-  Vu de Moscou. Poutine face aux Russes : une intervention sans surprise et des échanges atones
+-  Guerre Israël-Hamas. Trois otages du Hamas tués "par erreur" par l'armée israélienne
+-  Environnement . Dans le nord du Japon, des "tonnes" de poissons échoués et beaucoup de questions
+-  Géologie. Istanbul se prépare lentement à affronter un choc sismique majeur
+-  Les Français sont-ils devenus casaniers ?
+-  Le mastic, résine grecque et délice du monde arabe
+-  Guerre Israël-Hamas. Masha Gessen : "La seule manière dont nous pouvons apprendre de l'histoire, c'est en la comparant au présent"
+-  Paisabazaar Faces IT Dept Scrutiny For Certain Vendors
+-  손흥민 새 동료로 ‘1400억 센터백’ 낙점…지난달에만 4번이나 스카우터 파견
+-  Nenad Aleksić Ša shvatio da mu je Miona greška pa je ponizio! (VIDEO)
+-  किराएदार ने महीनों से नहीं दिया रेंट, मकानमालिक ने यूं सिखाया सबक
+-  Son dakika | Beşiktaş’ın borcu açıklandı! Borç 1.5 milyar lira arttı
+-  Omia lapsuuden suosikkikirjojaan ei kannata nykylapsille tuputtaa – Kokosimme lahjavinkeiksi tämän hetken suosituimpia teoksia
+-  Njemački ministar: Europa se mora naoružati zbog novih prijetnji, imamo 5-8 godina
+-  Cardinal and nine others to learn their fate in trial that aired Vatican state’s dirty laundry
+-  Još jedan razlog za slavlje Marija Šerifović nakon sina dobila i prvi milion
+-  Kim Kardashian esitteli kurvejaan – kuvasi itseään peilissä
+-  Färre svenskar övernattade på Åland
