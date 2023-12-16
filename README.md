@@ -1,11 +1,51 @@
 # Latest News
--  엔하이픈(ENHYPEN) 제이크-성훈, 비주얼 깡패들의 잠실 폭격 현장!
--  연승 휘파람 토트넘의 강한 잇몸→핵심은 손흥민과 쿨루세프스키[심재희의 골라인]
--  내년에 좌익수 오타니를 볼 수 있다? 로버츠 감독이 직접 예고했다 왜?
--  El Mesías participativo vuelve a ser un éxito indiscutible
--  Cuando unos amigos se van
--  Lens doludizgin ilerliyor!
--  Bebek katiline övgü dizdiler! DEM Parti ve CHP terör seviciliğinde buluştu
--  Hamas gerçeği gözler önüne serdi: İsrail taktiksel yenilgiye geçti
--  Над 150 млади борци на турнира “Янчо Патриков”
--  Xavi ‘really upset, really sad’ after Barca’s draw
+-  Linetty: “Facciamo molto bene in difesa. Vogliamo sempre vincere”
+-  El Vaticano duplica en Valladolid el año jubilar: del Sagrado Corazón al Niño Jesús
+-  Rocky Romero on How Long He Tried To Set Up CMLL-AEW Relationship
+-  São Paulo volta a vencer Milan com show de Dodô e faz festa da torcida no Morumbi
+-  임영웅이 곧 장르다…키워드는 ‘팬들 사랑’[스한초점]
+-  Lotería Nacional de Panamá EN VIVO: resultados de HOY, domingo 17 de diciembre, por Telemetro
+-  بكرى المدنى: بعيدا عن ملحمة مدني
+-  일본 2부→독일 분데스 주전 “체격·온볼이 중요” [축구]
+-  The Prodigal Nephew Returns: Sebastian Hoeneß leads dangerous VfB Stuttgart squad vs. Bayern Munich
+-  寿命の短い動物は長い動物よりも早く脳が発達するという説は間違っていて「同じスピード」で発達していることが示される
+-  Top 3 Dunia: Hamas Ubah Gaza Jadi Kuburan Israel, Tiga Sandera Tewas
+-  유럽배구 3위 공영방송 “이다영 정말 좋은 세터” [챔피언스리그]
+-  Terpopuler: Stok Gula Jelang Nataru Diklaim Masih Aman, Perhatikan Nomor Jalur Kereta di Stasiun Manggarai
+-  Pemesanan Wuling Binguo EV Tembus 3.000 Unit, Inden 2 Bulan
+-  9 Buah dan Sayur untuk Meningkatkan Daya Tahan Tubuh
+-  वजन घटाना: बिस्तर पर लेटकर भी घटा सकते हैं वजन, रोजाना करें ये 3 एक्सरसाइज
+-  [오피셜] '러시아 WC 때 한국 상대' 포르스베리, 미국 MLS 뉴욕 레드불스 이적 확정
+-  एक कटोरी चावल का पानी दूर करेगा वायरल बुखार, होंगे ये 10 फायदे
+-  DJ Envy Addresses Blackballing Nicki Minaj
+-  Renee 6:30 Exposed Photo Of Demarco “A Do The Things Dem”
+-  Meek Mill Cried During Pennsylvania Probation Bill Signing: ‘I needed that’
+-  Treasury abandons agric financing on defaults
+-  Dojava o postavljenoj bombi na koncertu Lepe Brene na Vlašiću
+-  Hay que desatar las fuerzas productivas, y también las fuerzas espirituales de la Revolución
+-  Trump promete gran operativo de deportación desde su primer día si es reelegido
+-  Fiscalía pide al PJ incluir a Podemos Perú en investigación contra el congresista José Luna Gálvez
+-  కేసీఆర్‌ కుటుంబ సభ్యుల పాస్‌పోర్టులను సీజ్‌ చేయాలి
+-  Pedro Nuno Santos é o novo secretário-geral do Partido Socialista
+-  Será que faz mal comer queijo todos os dias?
+-  İsrail ordusu: Gazze'deki esirlerimizin kaçma senaryosuna hazırlıklı değildik
+-  Colin Burgess, que ajudou a formar os AC/DC em 1973, morreu aos 77 anos
+-  Piden la pena de muerte para hombre que se grabó abusando sexualmente a un niño en Florida
+-  BBC Strictly Come Dancing viewers 'sickened' and demand 'stop' after infuriating move in final
+-  'Family Matters' Star Darius McCrary Arrested Over Failure to Pay Child Support: Report
+-  الدولية للهجرة: فقدان 61 مهاجرا وإنقاذ 25 قبالة السواحل الليبية
+-  Apple pilots discounted subscription scheme to developers
+-  جمعية دار للإسكان تسلّم 100 أسرة ضمانية وحداتهم السكنية
+-  EMILY PRESCOTT: No stepping out this Christmas for Ellie Bamber who injured her foot and his hobbling around in a boot
+-  Estes são os 8 melhores bumbuns do mundo
+-  مركز الملك سلمان للإغاثة يشارك في فعالية عن التنمية لصالح اللاجئين
+-  Prehistoric 'lost world' discovered is 'one of best examples of earliest life on Earth'
+-  وزيرة الصحة تؤدي زيارة تفقد واطلاع على المنشآت الصحية بمدينة أطار ..صور
+-  Voleibol feminino: FC Porto venceu Sporting na "negra"
+-  Boavista arrancou empate frente ao Vitória SC com este penálti
+-  Poraz rukometašica Mornara 7 u šesnaestini finala Kupa
+-  Jason Kelce's wife Kylie admits football often 'throws a wrench' in her preparations for Christmas amid her Eagles-star husband's busy NFL schedule: 'It's a lot of planning'
+-  El mar Rojo, amenazado por los hutíes del Yemen
+-  États-Unis: un attaché parlementaire écarté après la découverte d'une sextape filmée au Sénat
+-  Kareem Abdul-Jabbar falls and breaks hip at Los Angeles concert
+-  Kareem Abdul-Jabbar falls and breaks hip at Los Angeles concert
