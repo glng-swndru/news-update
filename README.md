@@ -1,51 +1,11 @@
 # Latest News
--  Matthew Perry starb an Ketamin-Auswirkungen
--  Simbang Gabi History & Facts You May Have Yet To Know
--  Seaman Captures Hearts of Netizens Over Surprise Marriage Proposal to Girlfriend
--  [VIDEO] Dog farm rescuer says goodbye before sending dogs to new home in US
--  Vishal over come
--  North meets South at screens across India
--  Dancing with the star, and designer, and actor
--  Have you heard? Swooping for the BO
--  Activan operativo de seguridad por amenaza de tiroteo en una escuela de Oaxaca
--  홍천농업고, 최중열·장연자 작가 작품 기증식 실시
--  유상범 의원 “평창군, 도시재생 공모 선정, 4년간 202억원 투입”
--  홍천소방서, 요양병원 화재예방 소방훈련 실시
--  홍천군청소년상담복지센터, 청소년 부모집단상담 ‘내면소통’ 4회기 종료
--  프랭크버거, 공식앱 출시 … 선착순 2만명 쿠폰 이벤트 '단 2일만에' 마감
--  강원도의회 박기영 의원, ‘제4회 안전문화실천추진단 정기회의’ 참석
--  [포토] 김포, 광역자치단체 변경 토론회 개최
--  Catatan Anies Baswedan dan Ganjar Soal Tragedi Kanjuruhan di Debat Capres, Bagaimana Penanganan Hukumnya?
--  Nicki Minaj's documentary will feature 'unexpected' stories
--  ¡Refuerzo DE LUJO! EX Estrella del Toluca llega a Club de Cuervos en la Kings League
--  Xiaomi Redmi K70 Pro Price In Philippines
--  서울지역 미분양 아파트 어디?...분양가 등 사전 점검은 필수
--  전남도, 럼피스킨병 방역지역 농가 이동 제한 조치 해제
--  Niega Stephanie Cayo romance con Alejandro Sanz
--  Implicados en muerte de 'Rafa Wayne' intentaron otro asesinato la misma noche
--  Названы регионы России, где можно встретиться с Дедом Морозом
--  Sacramento councilman charged with illegally hiring workers, wire fraud and blocking federal probe
--  2 กูรูฟันธง 2567 เพื่อไทยไปต่อ แต่…
--  El apoyo de Carlos Melconian a Javier Milei: «Este presidente no tienen nada que ver con el desastre que encontró»
--  Se siente en “BirdBox”: Junior Silva no supo cómo avanzar en la Papatón de El Gran Chef Famosos: La Revancha
--  Scientists Created Tiny VR Goggles for Lab Mice, With Adorable Results
--  NFL needs to ban hip-drop tackle: Australian rugby legend Matty Johns
--  Arne Alligator blir animerad film – ”Det finns stort behov av finlandssvensk humor och nordiska värderingar i barninnehåll”
--  Aralıklı Oruç
--  Rahat Nefes Alabilirsiniz: Savaşmayacaklar
--  Jadwal Bola Malam Ini, Sabtu 16 Desember 2023 - Minggu 17 Desember 2023
--  Erdoğan Masaya Onun İsmini Koydu. Ama.. Kabul ettiremedi.
--  Jadwal Siaran Langsung Premier League di Vidio Hari Ini, 16 Desember 2023
--  Ukinitev glasbene produkcije na RTV Slovenija bi pomenila kulturni mrk
--  Trilogi Opera Majapahit Kisahkan Gitarja, Sang Sri Tribhuwana
--  Rekomendasi Teh untuk Pagi hingga Malam Hari Menurut Tea Specialist
--  Tak Hanya Borobudur, ini Deretan Candi Budha Populer di Benua Asia
--  เค้าโครงชีวิตปี 2567
--  Валенсия няма да пазарува през януари
--  فتح عن دور السلطة الفلسطينية في غزة: لم نغادر القطاع حتى نعود إليه
--  300 miljoner visningar på Youtube – finlandssvensk grupp är Nordens mest strömmade barnband
--  월드컵 두 대회 연속 포디움 오른 스켈레톤 정승기 “일관성 있는 경기력 보여 기뻐…드라이빙 보완할 것”
--  Οι αθλητικές μεταδόσεις για το Σάββατο 16 Δεκεμβρίου!
--  Una persona en estado grave y 37 lesionados tras accidente masivo en Ciego de Ávila
--  ‘페이커’, 메시-오타니와 英 매체 선정 올해 스포츠계 파워 10인 뽑혀
--  This production of Macbeth has oodles of atmosphere, writes PATRICK MARMION... All hail David Tennant, Thane of Covent Garden (pity about the headphones though)
+-  Sector público requiere $5.5 billones para financiar déficit
+-  Ο Λευκός Οίκος συμφωνεί με το Ισραήλ ότι ο πόλεμος στη Γάζα μπορεί να διαρκέσει «μήνες»
+-  Galería: Llenan Chihuahuense las calles para ver la Caravana Coca-Cola
+-  Проведен профилактический визит в МБОУ "РСШ №1" города Рудня
+-  Рогов: в Киеве «праздничный салют» в честь дня рождения Ватутина
+-  North Carolina judge says TikTok must turn meeting records over in US states probe
+-  Daily Horoscope: Here’s what’s in store for you today – Saturday, 16 December 2023
+-  Improving catalysts, sentiment to lift Bursa Malaysia next week
+-  Guía de regalos: el obsequio ideal para el jugador de Switch
+-  한국도자재단, 도자문화산업 발전 ‘비전 선포’ 4대 전략 발표
