@@ -1,11 +1,51 @@
 # Latest News
--  Sector público requiere $5.5 billones para financiar déficit
--  Ο Λευκός Οίκος συμφωνεί με το Ισραήλ ότι ο πόλεμος στη Γάζα μπορεί να διαρκέσει «μήνες»
--  Galería: Llenan Chihuahuense las calles para ver la Caravana Coca-Cola
--  Проведен профилактический визит в МБОУ "РСШ №1" города Рудня
--  Рогов: в Киеве «праздничный салют» в честь дня рождения Ватутина
--  North Carolina judge says TikTok must turn meeting records over in US states probe
--  Daily Horoscope: Here’s what’s in store for you today – Saturday, 16 December 2023
--  Improving catalysts, sentiment to lift Bursa Malaysia next week
--  Guía de regalos: el obsequio ideal para el jugador de Switch
--  한국도자재단, 도자문화산업 발전 ‘비전 선포’ 4대 전략 발표
+-  아시안계 보스턴 시장, 크리스마스 파티서 백인 제외 논란
+-  Mercado: Pumas y Christian Tabó le generan un serio problema a Cruz Azul para el Clausura 2024
+-  Jokowi Bilang akan Bahas Pengungsi Rohingya di KTT ASEAN-Jepang
+-  CU, 망그러진 곰 딸기 샌드위치 선보여
+-  [부고] 유철준(부국증권 성남지점장)씨 모친상
+-  동해묵호신협, 동해시지체장애인협의회에 깍두기 100통 전달
+-  이철규 의원 “동해 송정지구, 국토부 도시재생사업 공모 최종 선정”
+-  삼척시, 수소 R&D 특화도시 실증단지 준공식 개최
+-  김성종 동해해경청장, 경북권 민생 치안현장 점검
+-  [포토]구로구, 고려대 구로병원과 ‘구로구치매안심센터’ 위탁운영 협약
+-  남양주시복지재단, 2023년 남양주시 후원자의 날 ‘나눔이 빛나는 DAY’ 성료
+-  남양주시의회, 2023년 주민자치 성과공유회 참석
+-  백경현 구리시장, 구리시 미래 비전 제시를 위한 직원 특강 실시
+-  남양주도시공사, ‘인권경영 선언문’ 선포
+-  외환당국·국민연금, 350억달러 외환스와프 1년 연장
+-  Lagu BTS Saat Debut 2013 Puncaki Tangga Lagu iTunes Amerika Serikat
+-  Jokowi Akan Bahas Pengungsi Rohingya di KTT ASEAN-Jepang
+-  Alia Bhatt wears a gorgeous 'Laddoo Pila' saree for her friend's wedding. Her saree costs...
+-  Tiger Woods Makes Pro-am Walk Ahead of Title Hunt With Son Charlie
+-  Perth Wildcats ride Bryce Cotton to one-point thriller over Tasmanian JackJumpers
+-  आँसु (कविता)
+-  Denied leave, Bengaluru watch factory worker dies by suicide
+-  Nicki Minaj Batalkan Rilis Lagu Kolaborasi dengan Kanye West
+-  เลขฝัน “เจ๊นุ๊ก บารมีมหาเฮง” เผยเลขเด็ดก่อนหวยออกบ่ายวันนี้ 16 ธ.ค. 66
+-  China detects seven cases of new Covid-19 subvariant JN.1. What are the symptoms?
+-  Mayim Bialik no longer co-hosting 'Jeopardy!,' leaving Jennings as sole host
+-  Yulimar Rojas entregó insumos y ayudas en escuela de talentos deportivos
+-  My tours shouldn’t mean traffic jams: Telangana CM Revanth Reddy
+-  Shipping Firms Suspend Red Sea Traffic After Yemen Rebel Strikes
+-  गजल
+-  Pregnant Hilary Duff shares sonogram of her third baby with husband Matthew Koma as she adorably calls the child 'little stinker with the cute nose'
+-  Meek Mill breaks down in tears as PA Governor signs probation reform bill: Rapper recalls his own anxiety living in fear that a minor infraction could be the end of his freedom
+-  Jadi Pengurus PBTI, Aliong Mus: Kami Akan Konsolidasi Tatap Asian Games 2024
+-  Year Ender 2023: 5 tales that prove dogs are not just man's best friend but lifesavers too
+-  Leon Edwards issues chilling warning to Colby Covington in final face-off before UFC 296 headliners meet in huge main event, following American's grim jibe about his late father
+-  Todo listo: ¡Llegó Jarlan Barrera y así será fichaje!
+-  Jake Paul greets Vivek Ramaswamy ahead of fight vs Andre August after inviting the Republican presidential candidate and his good friend to sit ringside in Orlando
+-  Ford Ranger smashes through centre barrier on Perth freeway before colliding with taxi in early morning crash
+-  Yuk Nikmati Promo Meriah di Berbagai Merchant Saat Sambut HUT ke-128 BRI
+-  Australia v Pakistan: first Test, day three – live
+-  'If Not Addressed...': Indian-American Lawmakers Warn Pannun Murder Plot Could 'Significantly Damage' Ties
+-  Prince Harry vows to continue legal battle against UK media: ‘The mission continues’
+-  أكثر اللاعبين الأجانب تأثيرًا فى الدورى هذا الموسم.. مابولولو الأبرز
+-  لقاءات قوية فى ثامن جولات دورى رجال الطائرة
+-  15 يوماً تفصل محمود متولى عن المشاركة فى تدريبات الأهلي الجماعية
+-  تعرف على التوصيات اللازمة للوقاية من حوادث الطرق
+-  كوبرى البلينا بمحافظة سوهاج.. أحد شرايين التنمية فى صعيد مصر.. صور
+-  4 مشروعات يمولها مرفق البيئة العالمى فى مصر المرحلة المقبلة.. تعرف عليها
+-  لو عاوز ترجع "أوردر" أونلاين.. اعرف حقك وفقا لقانون حماية المستهلك
+-  اعرف أسباب أهمية استضافة مصر لقمة اتفاقية برشلونة 2025
