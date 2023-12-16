@@ -1,11 +1,11 @@
 # Latest News
--  خطوات التقديم.. "العمل" تكشف عن فرصة تدريب للخريجين بشركة عالمية
--  Marsh makes 'vital' Azam breakthrough
--  Marsh makes 'vital' Azam breakthrough
--  Presenta diputada libro para que se investigue corrupción
--  Confesó Pedro Lara que seguían vigentes prácticas de corrupción
--  Continuarán las investigaciones de Anticorrupción
--  Bursa'da korkunç kaza
--  West Test: Late flurry of wickets hands Australia ascendancy at lunch
--  Chery Tiggo 8 Pro: барча йўналишларда кафолатланган ҳайдаш хавфсизлиги.
--  ЦАҲАЛ: ҳарбийлар хато сабаб ҲАМАС гаровидаги уч кишини ўлдирди.
+-  เชียงรายเปิดฤดูท่องเที่ยว “มหกรรมดอกไม้อาเซียน”
+-  Azam yang tertangguh
+-  The Longest Johns: The Voyage Tour
+-  Applications invited for wheat production competition
+-  Remaining abducted FUDMA female students regain freedom – VC
+-  Tak jadi lantik Tengku Zafrul, BAM kekalkan Norza sebagai Presiden
+-  No-objection certificates approved for 6 stone-crushers
+-  Lịch Mùa Vọng tuyệt vời cho tất cả mọi người trong danh sách của bạn
+-  HEC permits IUB to start 4 PhD, 3 MPhil programmes
+-  KPM tawar kaunseling kepada keluarga pelajar maut dilanggar
