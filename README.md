@@ -1,51 +1,11 @@
 # Latest News
--  Killing of civilians is a war crime
--  Esenyurt'taki tekel bayii cinayetinde istenen cezalar belli oldu!
--  Sırbistan'da erken genel ve yerel seçimler başladı
--  İsmail Kartal'dan Avrupa sözleri! " Hayal edin ve inanın"
--  AKTUÁLNE V okrese Trebišov sa prevrátil autobus s Ukrajincami, zasahujú tam hasiči i záchranári
--  مشاركة شعبية.. مشهد مهيب لموكب تشييع جنازة أمير الكويت الراحل (فيديو)
--  सञ्चितिको उपयोग
--  Мигрант незаконно проник в Финляндию через Россию
--  గలౌటీ కబాబ్‌
--  Türk denizci Özenç Sarıyıldız'ın şüpheli ölümü... Hollanda soruşturmaya gerek görmedi
--  Gaza-demonstrasjoner over hele landet: Anslår opp mot 13.000 mennesker på markering i Oslo
--  Aldi, Edeka, Kaufland und Co.: Hamsterkauf-Welle steht bevor – das ist der Grund
--  Matthew Perry starb an Ketamin-Auswirkungen
--  Kickoff | Pep slams Man City stars after late collapse
--  [부고] 정태원(전 울릉읍장) 씨 모친상
--  [일월선사 오늘의 운세] 2023년 12월 18일 월요일 띠별 운세
--  가장 ‘힙’한 문화성지…수성알파시티 ‘타임빌라스 수성’ 청사진 22일 공개
--  손병복 울진군수 ‘2023 올해를 빛낸 한국인 대상’ 수상
--  포항 미용봉사단체 비영리 법인 ‘포아미' 발대식 개최
--  중소기업중앙회, 소상공인 50.1% 내년 경영환경 '악화' 전망
--  보건의료노조 “국민 89% 의대 정원 확대 찬성”…의협, 의대 증원 저지 총궐기대회
--  尹대통령, 산업장관에 대구 출신 안덕근 통상교섭본부장 지명
--  Quiz z wiedzy ogólnej pełen pułapek. Na pewno zagniemy cię na 8. pytaniu
--  В России предложили решение проблемы с нехваткой таксистов
--  제주도 보훈회간 건립 사업 첫 삽...내년 말 준공 목표
--  제주 주택 가격 16개월째 하락세
--  APEC 정상회의 제주 유치, 부산 엑스포 실패 변수 전망...총력 대응 강화
--  제주산 무·당근·양배추·브로콜리...19일 산지가격 판매
--  'भर्ना प्रक्रिया जारी छ : विद्यार्थी घटेको भन्न मिल्दैन'
--  총수 일가, 지주회사外 353개 회사 지배…“사익 편취 발생 여지”
--  Weather update: Orange alert issued in Tamil Nadu, Kerala today. Check IMD forecast here
--  128 Tahun BRI, Berikut Perjalanan Bank yang Didirikan R. Aria Wiraatmadja
--  La inteligencia artificial en Europa
--  Tiempos de incertidumbre y despiste en el regionalismo
--  Irse a tiempo
--  Las razones
--  Relevo en el Obispado
--  A lo grande, pero no en todo
--  Jesús Pindado,de Beranga a Washington
--  Economía de la biodiversidad
--  Nonno Prodi rosica per la presenza di Musk ad Atreju e demolisce Schlein
--  पेंटागन से बड़ा दफ्तर, 1.5 लाख लोगों को रोजगार... कैसा है 'सूरत डायमंड बोर्स' जिसका PM मोदी ने किया उद्घाटन
--  Soccerladuma | Al Ahly Coach Reacts To Stunning Benzema's Al-Ittihad In CWC
--  الكويت.. وصول جثمان الأمير الراحل لمسجد بلال بن رباح ملفوفًا بعلم الكويت (فيديو)
--  حقيقة الإصابة بالجلطات بسبب السير بقدمين حافيتين على السيراميك
--  شاهد.. تأثر أمير الكويت بعد نقل جثمان الأمير الراحل إلى مقبرة الصليبيخات
--  Ce spune noul golgheter din Superliga României: "Fazele m-au găsit acolo"
--  Layún da su último mensaje como futbolista profesional
--  Bursa'da talihsiz kadın uzaklaştırma kararı 11 gün önce biten kocası tarafından bıçaklanarak öldürdü
--  Katil İsrail Batı Şeria'da 3 Filistinliyi daha katletti
+-  도교육청, 의회에서 삭감된 사업들 재반영 준비한다
+-  홍천군의용소방대연합회 결산총회
+-  춘천 호반초 최준영, 한국초등연맹 우수선수 선발전 및 최강전 전국초등학교 태권도대회 2관왕
+-  이재명-이낙연 18일 만남 불발…김부겸은 만날 듯
+-  N32 매트리스,‘엔드 오브 이어 프로모션’진행… 1월 7일까지
+-  "Grandfluenseri" osvajaju društvene mreže: Bake i deke uživaju u kreiranju sadržaja
+-  NASA objavila slike fascinantne solarne baklje FOTO
+-  "MasterChef Srbija": Najbolji kulinarsko-takmičarski šou na Tv Prva od 21. decembra VIDEO
+-  Rodni grad Pabla Pikasa: "Sakata" katedrala jedinstvena u svetu VIDEO
+-  ادارة نادي الصقر اليمني توجه رسالة الى محافظ تعز بخصوص مقر ومنشآت النادي
