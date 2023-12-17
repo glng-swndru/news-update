@@ -1,51 +1,51 @@
 # Latest News
--  Tilkynnt um innbrot vegna misskilnings
--  U središtu Europe pronađena drevna 'prokleta pločica' koja priziva Sotonu: Pogledajte što na njoj piše
--  Binnen 48 Stunden: Spahn will Geflüchtete in Drittstaaten abschieben
--  شاهد.. الكويتيون يعزون أميرهم الشيخ مشعل الأحمد الصباح في وفاة أخيه الراحل
--  Luka Doncic, Dallas'a galibiyeti getirdi
--  Düzce'nin ünlü bal kabağı tezgahlara indi
--  Pınar Karşıyaka'dan inanılmaz performans! Üst üste 7. zafer
--  '미우새' 김준호, 임영웅 콘서트 '피켓팅' 도전…♥김지민에 "장모님 표 이미 구했다" 자신만만
--  역시 '핑계고'…이동욱, 61.1%가 선택한 대상 "배우로도 못 올라봐" [마데핫리뷰]
--  VIDEO Luka Dončić je ponovo zablistao, Jimmy Butler sa sirenom presudio Bullsima
--  برشلونة يضع عينه على بديل ليفاندوفسكي
--  Λίβερπουλ: Ξανά στο στόχαστρο ομάδων της Σαουδικής Αραβίας ο Σαλάχ
--  Kharge calls CWC meeting December 21 to discuss host of issues
--  llaria Salis, chi è l’italiana in carcere a Budapest: la storia
--  С над 41 млн. лв. ще ремонтират 112 км от републиканския път II-99 Бургас-Малко Търново към Турция
--  Temporal en Buenos Aires: fuertes vientos, cortes de luz e intensas lluvias
--  Navidad con banda sonora
--  تشكيلة الميلان المتوقعة أمام مونزا
--  Will Young stars in Black Caps ODI win
--  سفينة حربية بريطانية تسقط مسيرة في البحر الأحمر
--  3년간 수도권 대학 '수시 이월' 급감…"정시 경쟁 치열할 듯"
--  Koitjoukkueet hurjassa vireessä NHL:ssä
--  Valtava määrä suomalaisia tositoimissa lauantain NHL-kierroksella
--  Klimakrise macht Rentieren zu schaffen
--  שחרור החטופים או מיטוט חמאס? ממשלת ישראל לא מצליחה להכריע
--  Ер остида жойлашган ва энг кўп ўлик кўмилган шаҳарлар – дунёнинг ғайриоддий масканлари.
--  Таhое Tico тўқнашуви: Tico ҳайдовчиси ва ҳамроҳининг ҳам икки оёғи синган.
--  DInas Kesehatan DKI: Kasus Covid-19 di Jakarta Masih Terkendali
--  Клівленд переграв Атланту: результати матчів НБА ВІДЕО
--  PGA Tour Still Aims To Meet Deadline For Saudi Alliance – Woods
--  Un oraș din România, printre primele 10 din Europa în care se trăiește cel mai bine. Studiul, făcut de Comisia Europeană
--  Accords mets-vins : des idées pour un repas de réveillon savoureux et peu coûteux
--  Dónde puedes reclamar el premio de Powerball sin revelar tu identidad
--  Don’t underestimate the seriousness of the Indian Parliament security breach: PM Narendra Modi
--  Wie der Macher des Rothenfelser Krimikellers die Corona-Zeit überstanden hat
--  Top news developments in Karnataka on December 17, 2023
--  조선일보 “‘서울의 봄’에 왜 떠나” 주문에 국민의힘 전두환과 선 긋기
--  Qué canal transmite hoy- América vs Tigres EN VIVO por final de Liga MX 2023
--  এক পদের মিষ্টি দিয়েই মন জয় করলেন উষা রঞ্জন
--  شهداء وجرحى خلال استهداف الاحتلال الإسرائيلي مساكن ومستشفيات في غزة
--  Leon Edwards' display at UFC 296 bowls fans over... as 'focused' performance shows he is 'levels above' Colby Covington as 'one of the best pound for pound fighters in the world'
--  Жеребьевка 1/16 финала Лиги конференций. Смотреть онлайн LIVE
--  Thiesi, la Polisportiva piange il presidente onorario Salvatore Marongiu
--  [임혜숙 칼럼] 일과 가정의 양립이 가능한 사회…저출산 극복의 필수 요건
--  Χατζηβασιλείου: Οι εξοπλισμοί στα νησιά είναι εκτός συζήτησης – Ορόσημο η Διακήρυξη των Αθηνών
--  Аэропорт Волгограда возобновил работу в штатном режиме
--  Menhub Budi Karya: Pembangunan LRT Bali Segera Ditindaklanjuti
--  युवा घर फर्क
--  الأمم المتحدة: حصيلة الاستجابة للنداء العاجل بشأن غزة 525 مليون دولار
--  নির্দিষ্ট সংখ্যক আসন ছেড়ে দেওয়া হচ্ছে জাতীয় পার্টিকে: ওবায়দুল কাদের
+-  Le résumé de la nuit en NBA : Luka Doncic plante 40 points, 12 rebonds et 10 passes face aux Blazers
+-  It's easy to run hot on Bath (you don’t have to force-it)
+-  بن غفير يتضامن مع ضابط اعتدى على مصور فلسطيني ويعده بإعادته للعمل
+-  深港醫療合作 各展所長各取所需|灣區佈局
+-  Darts LIVE: Fallon Sherrock under pressure as rival in tears at Ally Pally
+-  ‘이소희 28득점’ BNK, 신한은행 꺾고 5연패 탈출
+-  가평, 자라섬 꽃 축제 지역경제 활성화에 기여
+-  쌍용건설, '지제역 반도체밸리 쌍용 더 플래티넘' 분양
+-  용인, 사회보장계획 시행결과 평가 우수기관 선정
+-  한국도자재단, ‘경기세계도자비엔날레 국제공모전’ 추진
+-  백영현 포천시장, 기업과 소통 현장 행보
+-  연천, 겨울철 과수 동해 피해 예방 '만전'
+-  김포, 애기봉평화생태공원 입장 허용인원 확대
+-  김용성 경기도의원, 우수조례 경진대회 1급 포상 수상
+-  경기도의회 교육행정硏, 정책연구용역 중간보고회
+-  광주시의회, 올해 의사일정 마무리
+-  거창군, 2023년 정신건강증진서비스 실적관리 우수기관 선정
+-  아이이디건설, ‘100일간 사랑릴레이 배턴 잇기’ 동참
+-  김동연 경기도지사, 글로벌 크리에이터 격려
+-  광명, 노후 아파트 재건축 정밀안전진단 실시
+-  함양군농업기술센터, 농촌진흥사업 중앙단위 평가 ‘우수기관’ 수상
+-  안산, 수소 생산기지 공사 연말 마무리
+-  파주, 민방위-비상대비 분야 우수기관 선정
+-  창원소방본부 소방차 가로막는 불법주정차 차량 강제처분 훈련
+-  인천 남동구 도림고, 남녀공학 전환 본격 추진
+-  창원특례시, 농용굴착기 운전교육 성황리에 마쳐
+-  Recept za najbržu slasticu ikad: topla i slatka kava s pralinama
+-  CU, 연말 홈파티 차별화 상품 대거 출시
+-  Kickoff | Real Madrid 'interested' in Bellingham's brother
+-  Hij speelde meer dan 100 wedstrijden als profvoetballer, maar deze Tilburger is nu gelukkig op hoog amateurniveau
+-  รมว.แรงงาน ‘พิพัฒน์’ มอบผู้ช่วยฯ สิรภพ เปิดเวทีเสวนา เร่งผลักดันกฎหมายแรงงานเพื่อยกระดับคุณภาพชีวิตกลุ่มลูกจ้างทำงานบ้าน เท่าเทียมมาตรฐานแรงงานระหว่างประเทศ
+-  Mood-boosting tech 'in different pool' to Musk's Neuralink and could treat 'depression'
+-  Τόλης Σκουλαριώτης: Οι συνθήκες του θανάτου του γνωστού σχεδιαστή – Eντοπίστηκε νεκρός στο σπίτι του
+-  Co to była za bomba! Idealny nokaut w UFC [WIDEO]
+-  "الميادين": المناطق الشمالية من قطاع غزة استهدفت بغارات عنيفة استخدم خلالها الجيش الإسرائيلي القنابل الفوسفورية
+-  Sıcaklıklar yükseliyor...
+-  Pri silnej búrke sa v Argentíne zrútila strecha športovej haly, zahynulo 13 ľudí
+-  Juwelier Van Zandwijk uit Veen bestaat 30 jaar: 'Ik maakte al sieraden van hoefnagels'
+-  OBROVSKÁ STRATA Zomrel milovaný UMELEC! Rozdal VŠETKO, čo ZAROBIL: Ľudia sú z jeho smrti v ŠOKU
+-  Nach Auswärtssieg: Heidenheim-Coach warnt vor Euphorie
+-  اعتُبر من علامات الشيطان في الماضي.. تعرف على التاريخ المفاجئ للشعر الأحمر الرائج بين نجمات اليوم
+-  Taipans hold off Bullets in tense Queensland NBL derby
+-  ‘আমাদের পড়ালেখার বড় অংশই পুলিশের সঙ্গে যুক্ত, তাই এটা একটা দারুণ সুযোগ’
+-  Πιάνει ξανά κορυφή η Πάφος ή ξεφεύγει ο ΑΠΟΕΛ;
+-  ABD'de öğrencisiyle ilişkiye giren öğretmene 20 yıl hapis cezası
+-  अफसर के बेटे अश्वजीत अनिल गायकवाड़ के खिलाफ जांच करने के लिए SIT हुई गठित, दर्ज हुए चश्मदीदों के बयान
+-  يوم طبي مجاني للبر والاحسان في مدرسة جسر الشيخ حسين الثانوية المختلطة
+-  नागपुर में सोलर एक्सक्लूसिव कंपनी में हुआ ब्लास्ट, अबतक सात लोगों की मौत
+-  Reyting sonuçları! 16 Aralık 2023 Cumartesi Gönül Dağı ve Kardeşlerim reyting sonucu
+-  Itziar Castro (1977-2023): a “gorda, feminista e lésbica” que viveu a lutar contra o preconceito
