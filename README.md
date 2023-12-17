@@ -1,51 +1,11 @@
 # Latest News
--  Montreal's Old Brewery Mission unveils semi-private rooms for women
--  Kan donduran cinayet! Evini basıp çocuklarının yanında katletti
--  VakıfBank - Eczacıbaşı Dynavit finaliyle Türkiye, 25. uluslararası kupasını kaldıracak
--  Türkiye Kulüpler Tekvando Şampiyonası Konya'da yapılacak
--  Bakan Uraloğlu açıkladı: Şehirler arası yolcu otobüslerinde hız takip dönemi başlıyor
--  Özel okullardan ek KDV talebi!
--  Tomáš Tatar jatkaa uraansa Kraken-paidassa
--  제주 ‘2023 결산 다큐멘터리', '이뤄내지 못한 봄을 꿈꾸며' 공개… 팬들은 열광
--  “죄송합니다, 정말 가슴이 아픕니다”… 셀틱, ‘10년 만에’ 리그 2연패→ 감독 사과까지
--  «17 Κλωστές»: Στις 22 Ιανουαρίου η πρεμιέρα της νέας σειράς μυθοπλασίας της COSMOTE TV
--  SPÖ-Oxonitsch zu Obsorge für geflüchtete Kinder: „Karner blockiert Kinderrechte“
--  "네가 비랑 놀 짬밥이냐" 이시언, 악플에 상처 고백…비 "인격살인" 분노 [마데핫리뷰]
--  'YS 손자' 김인규 "'김건희 특검' 관례 위반" vs 이준석 "설득력 약해"
--  "인생역전? 살 빼라"…최준희, 44kg 감량 후 극세사 몸매 [MD★스타]
--  Keluarga mahu tebusan dibebaskan tanpa kecederaan, desak Netanyahu runding dengan Hamas
--  Météo : De la pluie presque partout
--  Cher tawan jejaka 40 tahun lebih muda
--  Telecinco utiliza a Bárbara Rey para repetir con Jorge Javier Vázquez
--  10 thói quen này là 'thủ phạm' gây đau bụng, có thể bạn vẫn làm hàng ngày
--  רוי רביבו: "ברגע שנחתנו בישראל, שכחנו מההישג מול גנט"
--  Daily horoscope for December 17, 2023
--  Climat : pourquoi ne pas récupérer le CO₂ des voitures ?
--  Transport sanitaire : « L’absence de dialogue avec les artisans taxis et de mesures d’accompagnement témoigne d’une gestion technocratique et centralisée »
--  SDP:n Harakka vaatii verolakeihin muutoksia
--  Νέα Σαλαμίνα: Στοχεύοντας στο πρώτο… ουσιαστικό «διπλό»
--  In 2024, Alberta NDP decides who it is without Rachel Notley as leader
--  Die Eisadler dominieren gegen Troisdorf: Zehn Tore für die Dortmunder
--  Día del Contador Público: cuáles son sus funciones y por qué se celebra hoy
--  Vancouver's Philip Kim aims to inspire next generation of breakers at Olympics
--  La Prevención de Riesgos Laborales, política transversal del Gobierno de Aragón
--  TV: LIVE-TV 12.40: Vi korar Årets Sandvikenbo på Högbo julmarknad
--  年末から来年にかけて怒涛のリリース。Netflixがゲームに本気出した
--  TV: LIVE-TV 12.40: Vi korar Årets Sandvikenbo på Högbo julmarknad
--  MPs call for new measures to rein in Canadian pension investments in China
--  Anmälde butik efter leverans av trasig soffa
--  E-readers were supposed to kill printed books. Instead, they're booming
--  Canadians on Survivor are smart, strategic — and underestimated, ex-champ says
--  Lucka 17: Är julen en religiös högtid?
--  Anmälde butik efter leverans av trasig soffa
--  Wartawannya Tewas Ditembak Israel, Al Jazeera Siap Tuntut ke Pengadilan Internasional
--  ALC livre le premier des sept nouveaux A321neo à Transavia
--  I grew up around firearms. Now my son wants to hunt, and I'm reluctant
--  Kyösti Kakkonen lukee Kauppalehteä jo viidettä vuosikymmentä
--  Lucka 17: Är julen en religiös högtid?
--  Dólar hoy, dólar blue hoy: a cuánto cotiza este domingo 17 de diciembre
--  Sacramento Kings G League player Chance Comanche arrested by FBI in connection to woman’s disappearance in Las Vegas
--  Jokowi Paparkan Prioritas Kemitraan Ekonomi ASEAN-Jepang
--  "قوى" لا يمكن نقل خدمات هذا الموظف
--  Xavi tiene razón: el Barça, de los peores en efectividad
--  النمر: نزول الوزن السريع جدًا يؤدي إلى مضاعفات صحية كثيرة
+-  1 gram bile altını olanlar dikkat! İşte 17 Aralık 2023 son dakika altın fiyatları!
+-  اعرف الأقرب إليك.. الأحوال المدنية تقدم خدماتها في 21 موقعًا بالمملكة
+-  حرارة تحت الصفر.. شاهد تجمد المياه في مرتفعات عسير
+-  طائرة الإخلاء الطبي تتجه إلى إريتريا لنقل التوأم السيامي "أسماء وسمية" (فيديو)
+-  عاجل.. تعرف على شروط استيراد الدراجات النارية من الخارج والأنواع الممنوعة
+-  أقلها 3 بالسودة.. درجات الحرارة المسجلة اليوم بمناطق المملكة
+-  Kütahya'da namaz kılar gibi yapıp para çalan hırsız tutuklandı! O anlar kamerada...
+-  מעל 200 מיליון ליש"ט: ההצעה המשופרת מערב הסעודית על סלאח
+-  פ.ס.ז' שוב מול באיירן מינכן? לקראת הגרלת שמינית גמר ליגת האלופות
+-  הכול חוץ מפרנקפורט: מכבי חיפה מחכה להגרלת הקונפרנס ליג
