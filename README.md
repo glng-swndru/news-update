@@ -1,11 +1,51 @@
 # Latest News
--  В Брюсселе начали процедуру утверждения нового пакета антироссийских санкций
--  फोटो में हैं 12 टैंक, 1 में खोल दिया नल, कौन सी टंकी सबसे पहले भरेगी?
--  Tom Cruise, 61, 'hires out ENTIRE floor of swanky London restaurant for a romantic dinner date with new Russian socialite love Elsina Khayrova, 36,'
--  Soal Hilirisasi, Prabowo Pamerkan Kebijakan Jokowi hingga Dampaknya ke BLT, Raskin dan BPJS
--  Napoli Kalahkan Cagliari, Mazzarri: Situasinya Buruk Jika Kami tidak Menang Hari Ini
--  La diputada Marcia Solórzano Gallego celebra el inicio de las Posadas con alegría y tradición
--  เม็ดเงินจากนักลงทุนไหลเข้ามาสู่ Bitcoin และ Ethereum ร่วม 19,700 ล้านดอลลาร์หลังตลาดปรับตัวขึ้น
--  Arsenal identify Ivan Toney alternative for potential January transfer: report
--  Strictly fans go into meltdown as Ellie Leach, 22, becomes show's youngest ever winner and dedicates Glitterball trophy to pro partner Vito Coppola, 31
--  Jadwal Kampanye Hari Ini, Anies Dijadwalkan ke Aceh dengan Sejumlah Agenda
+-  PM Modi To Inaugurate World`s Largest Corporate Office Hub In Gujarat Today- All About Surat Diamond Bourse
+-  ‘굿바이 2023년’…네이버의 풍성한 혜택 모아보니
+-  ตำรวจสั่งสอบคอร์สเชื่อมจิต "น้องไนซ์" โซเชียลกังขา
+-  하나금융, 'DxP 과정' 2기 수료…데이터 핵심인재 30명 배출
+-  Devises : quels sont les taux de change de la Banque et du marché noir ce 17 décembre ?
+-  Prévisions météo en Algérie : alerte pluie, orage et neige pour ce dimanche 17 décembre
+-  Sudoku difícil: 17 de diciembre de 2023
+-  Sudoku medio: 17 de diciembre de 2023
+-  Sudoku fácil: 17 de diciembre de 2023
+-  Sudoku mini: 17 de diciembre de 2023
+-  Crucigrama difícil: 17 de diciembre de 2023
+-  Crucigrama medio: 17 de diciembre de 2023
+-  Crucigrama fácil: 17 de diciembre de 2023
+-  Crucigrama mini: 17 de diciembre de 2023
+-  Sopa de Letras clásica: 17 de diciembre de 2023
+-  Samuel Knight eyes US offshore wind opportunities for UK skills
+-  고물가에 마트 빅3 "연중 상시 할인"…'할인가=정가' 불신도
+-  '처음처럼·새로' 가격 얼마나 오르나?...참이슬 등 가격 인상 여파
+-  스타벅스, 60개 협력사와 '동반성장 포럼' 진행
+-  Horrific Road Accident Claims Six Lives and Injures 10 in Harare
+-  Sandera Israel yang Ditembak Tentara IDF Sudah Kibarkan Bendera Putih
+-  3 Gagasan Capres-Cawapres Soal Pendidikan, Begini Kata Anies Baswedan, Prabowo, Ganjar Pranowo
+-  Mnangagwa Announces Gukurahundi Hearings While Threatening More Killings
+-  شاهد بالصورة والفيديو.. شاب سوداني يظهر في لحظات رومانسية مع حسناء أوروبية فائقة الجمال ومتابعون: (يابن المحظوظة)
+-  원주·춘천·횡성·철원 등 15곳 한파경보 유지…양양 등 6곳 한파주의보 해제
+-  テキサンズ、タイタンズ戦はベテランQBキーナムが先発へ
+-  Harmony lost almost $40,000 to scammers in minutes: Now she has revealed the simple mistake that cost her dearly
+-  Illegally acquired assets from drug smuggling, underworld operations to face confiscation
+-  강감찬 홀로 개경 남은 결단 엔딩…'고려거란전쟁' 동시간 1위
+-  조선일보 “문재인 정권 탄압 거세질수록 한동훈 유명해져”
+-  Kemenag Lahirkan 959 Guru Besar dalam Dua Tahun Terakhir
+-  Ver Liga vs. Independiente del Valle EN VIVO vía ESPN y Star Plus: a qué hora juegan
+-  Lawmakers honor fallen veterans on National Wreaths Across America Day
+-  강서구 “평일 바쁜 직장인·임산부, 주말 건강프로그램에서 만나요”
+-  양천구, 서울시 교통수요관리평가 ‘최우수 자치구’ 선정
+-  대전 중구, 재개발사업 준공예정 사업장 집중관리
+-  박경귀 아산시장 “먹거리재단 명칭, 농촌활성화재단으로 변경”
+-  금천구 청소년CEO, 창업상품 판매 수익금 전액 장학금으로 기탁
+-  대전테크노파크, ‘2023년 인권경영위원회’ 개최
+-  대전 대덕구, 2024년 본예산 5525억원 확정...4.6% 증가
+-  구리시, 2023년 하반기 적극행정 우수공무원 선발
+-  남양주미래교육협력지구 첫 성과공유회, 성황리 개최
+-  태백한우골, 태백시민향토장학회에 장학금 기탁
+-  대한석탄공사 노조-장성광업소, 이웃돕기 농협상품권 300만원 기탁
+-  태백시의회, 제273회 제2차 정례회 제2차 조례심사특별위원회 개최
+-  태백산국립공원사무소-태백문화원, 상생·협력 업무협약 체결
+-  아산시, ‘신정호수공원 사계 사진 공모전’ 수상작 발표
+-  '2023년 시흥시새마을지도자대회'... 화합의 장 마련
+-  중구, 어르신 헬스케어센터로 ‘뜨끈뜨끈’ 한 복지 실현
+-  시흥시, 하반기 외국인주민 및 다문화가족 지원 민·관·학 협의체 개최
