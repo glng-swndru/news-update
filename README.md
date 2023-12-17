@@ -1,11 +1,51 @@
 # Latest News
--  Israel-Qatar meet, raising prospects of Gaza hostage talks
--  US military leaders press Israel to shift from major combat as Iranian-backed sh
--  BJP is doing politics on Belagavi incident: Karnataka Dy CM DK Shivakumar
--  Maharashtra: 5 dead after blast in Nagpur explosives manufacturing company
--  Shreyas Talpade is likely to get discharged by Sunday night or Monday morning?
--  "Both are so different": Shilpa Shetty about her work experience with co-stars
--  Lotto results: Saturday, 16 December 2023
--  כלכלת סין מתאוששת? זה השוק שהכניס השנה 42.6 מיליארד דולר
--  קריסה תוך 4 ימים: המשחק שסומן הבטחה אך נכשל כישלון חרוץ
--  בכמה זינק הביטקוין בתוך שנה? אלו הנתונים
+-  [오피셜] '카타르 WC 때 한국 상대' 우루과이 감독, 세비야에서 2개월 만에 경질
+-  Tales from the coffeeshop: Tatar proves he is a political big shot
+-  Маршрутът на автобусна линия № 10 във Варна ще бъде променен днес
+-  И днес две кръгови кръстовища ще останат затворени заради ремонт на ул. „Девня“
+-  Благотворителен коледен базар за грамофонни плочи с кауза "Аз вярвам и помагам"
+-  法 "어린이집 차량만 이용한 것은 보육 아냐…보조금 반환"
+-  Koronakyykkäys näkyy yhä juhlapyhien liikennemäärissä – jouluperjantaista odotetaan hitusen perusperjantaita ruuhkaisempaa
+-  Lurín: incendio de código 3 se registra en depósito de llantas
+-  Premier Lig'de korkutan olay: Takım kaptanının kalbi durdu
+-  La Nordiste Eve Gilles sacrée Miss France 2024 : "Il y a deux ans, je travaillais à l’usine"
+-  Švedska torta od badema: Recept za laganu slasticu idealnu za blagdane
+-  Ile razy można dać darowiznę dziecku? Uważaj na podatek
+-  أجواء باردة نسبيا فوق المرتفعات ومائلة للدفء بقية المناطق
+-  سيميوني يلقب ميسي بـ القزم.. لهذا السبب
+-  شهيدان وإصابات بقصف إسرائيلي على مخيم نور شمس
+-  Meerut: CCSU के हॉस्टल में मीट और पनीर पर बवाल, जमकर मारपीट, आज विवि के अधिकारियों का घेराव करेंगे छात्र
+-  Edwards tames Covington in one-sided victory
+-  Víte, na co máte nárok od státu? Velký test s dávkami
+-  برلمانية: ٥ مؤشرات إيجابية لاستقرار الجنيه في المستقبل
+-  Több mint hatvan bevándorló fulladt a tengerbe Líbia partjainál
+-  కనువిందు చేసే ఫ్లవర్‌ పరేడ్‌
+-  Frauenfußball: 1. FC Köln verliert nach Abwehrpatzer 0:1 gegen Essen
+-  Tajna je u džepu: Recept za najsočnija pečena pureća prsa koja morate probati već ovog Božića
+-  Klimakrise macht Rentieren zu schaffen
+-  BREAKING: At Least 9 Dead In Blast In Solar Explosive Company In Maharashtra`s Nagpur
+-  “ภูมิธรรม”ชูทีมไทยแลนด์หนุนเอกชนทำการค้าเชิงรุกบุกจีน
+-  বাংলাদেশের বিপক্ষে টি-টোয়েন্টি দিয়ে ফিরছেন উইলিয়ামসন
+-  নির্বাচনে সশস্ত্র বাহিনী মোতায়েনে সম্মত রাষ্ট্রপতি
+-  Чемпионат Испании. "Барселона" не смогла победить "Валенсию". "Атлетико" проиграл "Атлетику"
+-  Повдигнати са обвинения на националния селекционер по вдигане на тежести Иван Иванов и сина му за корупция
+-  «Si la legislatura colapsa, presentaré una moción de censura para convocar elecciones»
+-  Gnistan kiinnitti Veikkausliiga-kokemusta hyökkäyspäähänsä
+-  OM-Clermont. A quelle heure et sur quelle chaîne voir le match ?
+-  "SUPRUGA MI JE DOSADILA, PA SAM JE NAGOVORIO NA OTVORENI BRAK" Toliko mu se obilo o glavu, da sad KUKA NA SAV GLAS i gorko se kaje
+-  Tarpejina litica: Stijena s koje su Rimljani klevetnike i izdajnike bacali u strašnu i sramotnu smrt
+-  Natopljen rumom: Recept za blagdanski kolač koji ćete trebati već sada početi pripremati
+-  "토트넘이 내준 바보 같은 골들이 몇 개 있었다!"…2연승과 득점에 너무 들떴나? 쿨루셉스키의 '팀 동료 수비 비하 발언'
+-  조세호, 지석진과 최우수상 "명품 브랜드 T사에서 옷 빌려줘" [제1회 핑계고]
+-  Blast: సోలార్ కంపెనీలో భారీ పేలుడు.. 9 మంది మృతి
+-  Tal-Maksar nickname to be struck off bill of indictment
+-  Oni koji su promijenili svijet: Narod koji je živio prije 5 tisućljeća, a bez kojih ništa ne bi bilo isto
+-  ارتفاع إيجارات السكن في المملكة لأعلى معدل شهري منذ يناير 2018
+-  تحذير عاجل من تقلبات ورياح شديدة على مكة والمدينة وتبوك لـ5 مساءً
+-  Resmi Gazete'de bugün (17 Aralık 2023 Resmi Gazete kararları)
+-  FENERBAHÇE TRANSFER HABERLERİ - Batshuayi'nin teklifleri reddetme nedeni belli oldu!
+-  Ärgernis bei Live-Übertragung - Sky-Panne mitten im BVB-Spiel erzürnt Fans: „Das geht ja gar nicht“
+-  Klimakrise macht Rentieren zu schaffen
+-  Nigeria Is A Maximum Dictatorship Under APC, Says Ex- Presidential Candidate
+-  US submarine arrives in South Korea amid possibility of new North Korean missile launch
+-  Fresnay-sur-Sarthe. Seize recettes à base de produits fresnois dans un livre de cuisine
