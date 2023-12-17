@@ -1,51 +1,51 @@
 # Latest News
--  저출생, ‘인구’ 아닌 ‘인간’ 문제로 접근해야 [배정원의 핫한 시대]
--  دراسة: فيتامينات الزنك تحد من نمو الفطريات للمرأة في هذه المناطق
--  India vs South Africa today match prediction: Can Men in Blue start ODI series with a win?
--  Soccerladuma | Which System Suits Chiefs Best?
--  Путин: после распада СССР Запад хотел развалить и Россию
--  성남시, 세외수입 체납자 부동산 압류예고서 발송
--  수원시, 3차원 공간정보시스템·공간정보포털시스템 재구축
--  수원시, 내년도 고향사랑기부제 답례품 공급업체 18개 선정
--  What Is Toxic Relationship : तुमच्यातलं प्रेम हिंसाचारात बदललंय? तुम्ही टॉक्सिक रिलेशनशिपमध्ये तर नाही ना? वेळीच ओळखा!
--  Petroleum task force shuts down filling station in Jigawa
--  Nigerian Govt presently hosting 100,000 refugees, 8,500,000 IDPs – Minister
--  나라 지키려면 밥심?…‘짬밥’ 이젠 ‘뷔페’로 바뀐다
--  Barbara Nowak krytykuje Nowacką. „O tym, czy jest jedna lekcja religii czy dwie decyduje biskup”
--  Barbara Nowak krytykuje Nowacką. „O liczbie lekcji religii decyduje biskup”
--  Barbara Nowak krytykuje Nowacką. „O tym, czy jest jedna lekcja religii czy dwie decyduje biskup”
--  WATCH: Sean Strickland attacks No 1 Contender Dricus Du Plessis in UFC 296 arena
--  Snažna oluja pogodila Argentinu, stradalo najmanje 13 ljudi
--  Sigaraya ilave zam geliyor
--  پاکستان کی ایران کے پولیس ہیڈکوارٹر پر دہشتگرد حملے کی شدید مذمت
--  מחכים להזדמנות: ייני, נחמיאס ושחר בסגל מכבי תל אביב לנתניה
--  Norvežanke petič ali Francozinje tretjič? Pomemben dan tudi za Slovenke.
--  חזק במשחק: הסניף ה-8 לרשת המשחקיות לילדים פליי גיים, נפתח בחדרה
--  EPL: One of the most intelligent players – Arteta hails Arsenal midfielder
--  ‘배스의 원주 침공’ kt, 로슨 분전한 DB에 첫 연패 안기며 2연승 행진
--  3 أسباب وراء استيقاظك بشكل مفاجئ من النوم.. تؤثر على صحتك
--  ‘สคช.’ ยกคดี ดอกเบี้ยโหด ลูกหนี้สู้กลับ อุทาหรณ์สังคมไทย
--  Veliki potres u klubu bivšeg Vatrenog, legenda se ispričala navijačima
--  Uşaqlar daha çox anaları ilə eyni ayda doğulur
--  Uzaklaştırma kararı bitti, 11 gün sonra karısını öldürdü
--  KT, 제2회 퓨처스 마케터 학술 공모전 개최…대상 클린업 “작지만 발자취 남기게 되어 영광”
--  Segar dan Menyehatkan, Ini Rekomendasi Buah-buahan untuk Dibuat Smoothie
--  'Stupid' - Richard Keys interrupts Andy Gray after what he saw in Everton v Burnley
--  "Les Illuminati, c'est la matrice du complotisme." Cet historien en décortique les mécanismes
--  More than 60 feared dead off Libya in latest migrant tragedy
--  Israel strikes Gaza as pressure grows to free more hostages
--  'I need to see an SA our ancestors envisaged': Zuma on Umkhonto WeSizwe decision
--  Sisterhood of the traveling pants stars spark joy with epic reunion
--  ‘아시안컵 앞두고 컨디션 최고조’ 황인범, 3경기 연속 공격 포인트...즈베즈다는 4-1 대승
--  U lokalu, 34-godišnjak se, najvjerojatnije, poskliznuo te pao na pod. Završio teško ozlijeđen u bolnici
--  الريال يتفوق قبل مواجهة فياريال
--  Wahl in Serbien: Vucics Rechtspopulisten wollen ihre Macht mit Geldgeschenken sichern
--  Wahl in Serbien: Vucics Rechtspopulisten wollen ihre Macht mit Geldgeschenken sichern
--  Schweizer im Aerials-Teamwettkampf ohne Chance
--  Umro Colin Burgess, originalni bubnjar grupe AC/DC
--  Ljudi iz pozadine
--  IND vs SA 1st ODI LIVE: ભારત-દક્ષિણ આફ્રિકા વચ્ચે પ્રથમ વનડે આજે, નવી શરૂઆત કરવા ઉતરશે ઇન્ડિયા, રિન્કૂ, રજત અને સુદર્શનનું ડેબ્યૂ નક્કી
--  Curry führt Warriors zu Sieg - Theis gewinnt deutsches Duell
--  Gujarat News : ગુજરાતમાં ફિલ્મ સેન્સર બોર્ડની ઓફિસની બ્રાન્ચ સ્થાપવા રજૂઆત
--  Gibran akan Lanjutkan IKN: Untuk Pemerataan Pembangunan
--  Danas sunčano uz sjeverni vjetar
+-  Tekel bayi katliamında istenen cezalar belli oldu
+-  Valencia-Barcelona: 1-1 (ÖZET)
+-  اللغة العربية.. من تعزيز الهوية إلى بناء المجتمع
+-  شاهد.. أمير الكويت يذرف الدموع على فراق أخيه الراحل
+-  فوائد مذهلة للشاي.. يحمي صحة الدماغ والقلب
+-  «منشآت» توفر باقتين مخفضتين للمنشآت الصغيرة والمتوسطة
+-  عاجل.. 10 أخبار لا تفوتك هذا الصباح.. أسرار "الطوابير الوهمية" أمام المقاهي وطرق السلامة من شر السحرة
+-  بالأرقام.. "الطيران المدني" تحدد المقابل المالي للتراخيص الاقتصادية
+-  الكويت تُودّع قائدها.. شاهد مراسم دفن الأمير نواف بمقبرة الصليبيخات
+-  تراجع أسعار الذهب 3 ريالات.. وعيار 21 يسجل 213 ريالًا
+-  Miesto, ktoré si ihneď obľúbia aj Slováci: Z Bratislavy si tam do štyroch hodín
+-  Yoon replaces industry minister in Cabinet reshuffle
+-  Will president's protege enter politics?
+-  Trade Minister Ahn Duk-geun tapped as new industry minister
+-  Finance minister nominee vows to put top priority on stabilization of inflation
+-  Major KOSPI-listed companies obliged to issue public disclosures in English from January
+-  Blondie & Garfield - DECEMBER 18, 2023
+-  LG Innotek aims to dominate EV battery management tech
+-  Ascolti tv sabato 16 dicembre: Ballando con le stelle, Grande Fratello, Sapiens
+-  Billie Eilish Took Us For A Walk Down Memory Lane In Her ‘What Was I Made For?’ Performance On ‘SNL’
+-  León sondea a Jorge Bava y a Gabriel Milito para suplir a Larcamón
+-  "텐 하흐, 페르난데스 주장직 박탈하라!"…맨유 전설들의 촉구, "루크 쇼가 캡틴으로 더 낫다"는 주장도
+-  김하성, ALL-MLB 팀 2루수 불발... 오타니 선발 투수·지명타자 '2관왕'
+-  Filistin'e dua buluşması! Diyanet İşleri Başkanı Erbaş: Katliamın durması bizim gücümüze bağlı
+-  Şenol Güneş'e bir talip daha! Bu sefer teklif Avrupa'dan
+-  Aydın'da hakkında hapis cezası bulunan şahıslara eş zamanlı operasyon
+-  Türkiye'nin küresel tarım üretimdeki konumu: Dünyada 19 tarım ürününün üretiminde ilk 4'teyiz
+-  İstanbul'da deniz ulaşımına hava muhalefeti engeli
+-  Hakkında hapis cezası bulunan 2 FETÖ'cü Adana'da yakalandı
+-  Konferans Ligi'nin 3. favorisi Fenerbahçe
+-  Aadhaar Card Expiry: क्या आपका भी आधार कार्ड हो गया है एक्सपायर? ऐसे चेक करें वैधता और अपडेट
+-  Maastoraja ylitettiin laittomasti – Kaksi ihmistä Venäjältä Suomeen lauantaina
+-  تشافي: برشلونة من أسوأ فرق أوروبا
+-  فضيحة جنسية في فلوريدا تطال رئيس حزب وزوجته
+-  विश्व स्ट्रेन्थ लिफ्टिङ विश्व चयाम्पियनसिपका लागि खेलाडी छनाैट
+-  이번 주 더 강력한 북극 냉기 온다…서해안은 또 대설
+-  Otomobilin çarptığı çocuk metrelerce havalandı
+-  SIN SUZANE JOVANOVIĆ JE PRAVI DASA! Evo kako izgleda, čime se bavi i kakva lepotica ga je osvojila: Saša ga OBOŽAVA (FOTO)
+-  U Srbiji danas republički, pokrajinski, izbori u Beogradu i 64 gradova i opština
+-  전북농협, 도시·농촌 농축협간 도농상생 공동사업 추진 큰성과
+-  Tamil Nadu: ब्रिटेन से गिरफ्तार किए गए तमिलनाडु के 10 मछुआरों को भारतीय तटरक्षक को सौंपा गया
+-  Surat Diamond Bourse: प्रधानमंत्री नरेंद्र मोदी ने किया ‘सूरत डायमंड बोर्स’ का उद्घाटन, देखें VIDEO
+-  Minister Tummala..కమ్మ కులం తల వంచే పని చేయను
+-  주민 주도형 문화공동체 사업 성과를 나누다
+-  강화군, 내년 1월부터 어르신들께 교통비 지원
+-  인천 동구, 100억 규모 교육환경개선기금 사용 계획 ‘전무’
+-  인천 남동구, 소기업·소상공인 특례 보증 50억 지원
+-  인천 부평구, 생태계보전부담금 반환사업으로 '부들공원' 복원
+-  “왕송호수서 희망찬 청룡의 기운 받으세요”… 의왕시, 2024년 해맞이 행사
+-  최정희 의정부시의장, 미군 반환공여지 활용방안 모색
