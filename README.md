@@ -1,51 +1,51 @@
 # Latest News
+-  Vinculan a proceso a presuntos asesinos de 'Rafa Wayne'
+-  Úrad pre kontrolu drog je proti zámeru štátu Georgia predávať marihuanu v lekárňach
+-  مارك كاسادو: برشلونة سيعود أقوي
+-  Tormenta con vientos huracanados dejó al menos 16 muertos y destrucción en Argentina y Uruguay
+-  مورينيو يلقب كرة مستقبله مع روما في ملعب الإدارة
+-  Police commence operation ‘Yukthiya’ to eradicate drugs and underworld
+-  Lawyers concerned over Acting IGP’s appointment amid torture case ruling
+-  عاجل.. خطوات الاستعلام عن فاتورة الكهرباء لشهر ديسمبر وطريقة السداد
+-  Дубль Кейна помог «Баварии» разгромить «Штутгарт»
+-  الترخيص المتنقل في الأزرق الإثنين
+-  Боков: «Не думаю, что Морено очень превосходит российских тренеров»
+-  Les élèves de la Star Academy vont rendre hommage à Grégory Lemarchal lors des évaluations
+-  A dështoi marrëveshja e Ohërit? Letra e Bërnabiç, BE kërkon zbatimin e marrëveshjes
+-  الحكة المرافقة للإكزيما و طريقة علاجها
+-  إصابة عسكريين بهجوم إسرائيلي بمحيط دمشق
+-  12 قتيلا على الأقلّ في هجوم مسلّح خلال احتفال في المكسيك
+-  İYİ Partili İbrahim Özkan ile Akşener'in yardımcısı Oktay Vural birbirine girdi: Daha dün partiye gelmişsin
+-  الأونروا: عدد الأطفال والنساء الشهداء بغزة يفوق عدد قتلى أوكرانيا
+-  Obradović (Dveri): Francusko-nemački sporazum najvažnija tema izbora
+-  Police officer repeatedly struck in the head during Tilburg incident
+-  Eddie Izzard loses out in bid to become Labour candidate in Brighton
+-  Hastalık arttı, aşılama resmen başladı! Herkes sistemden kontrol etsin
+-  OVO SU PRVI REZULTATI IZBORA U SRBIJI: Pratite rezultate iz cele Srbije na našem portalu
+-  VUČIĆ U ŠTABU SNS-A SAOPŠTIO: Imamo apsolutnu većinu!
+-  Az eddigi legnagyobb beruházás valósult meg Dócon - Galéria
+-  Putin califica de «soberbia tontería» la opción de atacar a la OTAN
+-  Cole Strange leaves Sunday’s Patriots-Chiefs game with knee injury
+-  Mónica Rincón y Marcela Cubillos se mostraron los dientes en redes por enojo de Daniel Jadue con periodista de CNN
+-  Трубін - в старті Бенфіки на матч з Брагою в чемпіонаті Португалії
+-  Chris Hemsworth genießt sonnige Bootstour mit seiner Elsa!
+-  Ankara Büyükşehir'den geleceğin sanatçılarına destek
+-  Lukas Hradeckyn Leverkusenin lentokeli jatkuu - nyt tyrmättiin Frankfurt
+-  학생인권조례 서울도 금주 폐지 수순...조 교육감은 반대 1인시위
+-  Christian Ziegler stripped of responsibilities, emergency meeting scheduled for his removal, Sarasota GOP chairman says
+-  Milan dominó el ‘Derbi de Berlusconi’ ante Monza
+-  تقييم لاعبو ريال مدريد بعد ١٥ دقيقة أمام فياريال
+-  Bodrum’da 60 Parkın Toplu Açılışı Yapıldı
+-  Džastin Timberlejk provocira Britni?
+-  Hakeme neden yumruk atılır?
+-  تين هاج: دافعنا بشكل ممتاز أمام ليفربول
+-  US Congress legislators want end to armed foreign intervention in Haiti
+-  북, 심야에 단거리 탄도미사일 도발…한미 NCG에 반발
+-  Hombre atropella a mujer de la tercera edad y se da a la fuga, en Nezahualcóyotl
+-  Geluk bij een ongeluk: Steven Berghuis over zijn gigantische misser in buitenspelpositie
+-  Liverpool bergelut jinakkan Man Utd yang bermasalah, akur seri 0-0 di Anfield
 -  Martina dala zlatni gumb Tijani i Marku: Fatalni poljubac je presudio, a s nogu je oborio i Maju
--  Officials say fire at transfer station in Cranbrook, B.C. was ‘intentionally’ set
--  André Carrillo destaca en el equipo de la semana en Arabia Saudí
--  في حاجة غلط.. أحمد موسى: "حماية المستهلك" وجه ضربة قوية لمحتكري البصل
--  الجارديان: واشنطن ستعلن إطلاق قوة بحرية تضم دولًا عربية لمكافحة هجمات الحوثيين بالبحر الأحمر
--  "سيتا": تغييرات جديدة في قيادات المطارات لتطوير تكنولوجيا المعلومات
--  رئيسا الجامعة البريطانية والشارقة يبحثان التعاون المشترك والتبادل الطلابي
--  صدمه توكتوك.. تامر أمين يكشف تفاصيل حالة وسيم السيسي الصحية
--  Panchkula News: डेबिट कार्ड बदल कर 74 हजार रुपये ठगने वाला आरोपी गिरफ्तार
--  Kushinagar News: कलश यात्रा के साथ शुरू हुई श्रीमद्भागवत कथा
--  إليكم العواقب السلبية لتناول المُسكنات المُنوّمة
--  Oportunismo, rebote y gol al ángulo: Lucas Beltrán le dio un triunfo clave sobre el final a la Fiorentina ante Hellas Verona
--  Μαργαρίτης Σχοινάς: Η Ευρώπη διαθέτει 4 δισεκατομμύρια ευρώ στην Ελλάδα για κατάρτιση
--  AfD se hace con la primera alcaldía de una ciudad importante de Alemania
--  Sambhal News: चोरी की 18 बैटरियों के साथ चार बदमाश गिरफ्तार
--  Jammu News: कश्मीरी पेपर माशी की धमक... यूरोप से अमेरिका तक चमकेंगे क्रिसमस के स्टार
--  El presidente de México celebra la construcción de 12 obras durante 2023
--  सभी केंद्रों के ध्यानार्थ::: शहर में पहली बार होगी इंटरनेशनल रेटिंग रैपिड शतरंज स्पर्धा
--  Günün ULDUZ FALI: subaysınızsa, bəxtəvərliyə nail ola bilərsiniz
--  Parlamentaras siūlo amžiaus ribą kandidatuoti į merus kelti iki 21 metų
--  Panchkula News: कालका-शिमला रेलमार्ग पर आज से चलेगी अतिरिक्त हाॅली-डे स्पेशल टॉय ट्रेन
--  Varanasi News: बेटियों संग उपाधि पाकर खिल उठे छात्राओं के चेहरे
--  Moradabad News: कपूर कंपनी पुल को चालू कराने के लिए किया प्रदर्शन
--  김민재 ‘뮌헨 데뷔골’ 터졌다!... 뮌헨은 슈투트가르트에 3-0(후반 18분)
--  Moradabad News: कांग्रेस की यूपी जोड़ो यात्रा 25 की शाम को पहुंचेगी
--  Noida News: ट्रैफिक नियम तोड़ने वालों की संख्या में साढ़े तीन गुना इजाफा
--  Jammu News: लांचिंग पैड पर 250 आतंकियों की सूचना से सीमा पर हाई अलर्ट, गश्त बढ़ाई
--  Kushinagar News: मेजबान आजाद स्पोर्टिंग क्लब ने एनई रेलवे को हराया
--  Путин нарече "пълна глупост" думите на Байдън, че Русия ще нападне страна от НАТО
--  „Premier“ lygoje „Arsenal“ užsiropštė į viršūnę, o ją medžiojanti „Liverpool“ barstė taškus
--  بعد ليلة المفرقعات السياسية..
--  Apuntan a un error humano en el choque de dos trenes en Málaga
--  L'otage sud-africain Gerco van Deventer, retenu au Mali, a été libéré après six ans de captivité
--  Manchester United fans will love Andre Onana’s response to Virgil van Dijk’s timewasting jibe down the tunnel at Anfield
--  Teletón 20-30 superó la meta. La recaudación fue de 2 millones 538 mil dólares
--  مذكرة تفاهم لرفع جودة مخرجات برامج التعليم والتدريب
--  Sambhal News: किसानों से मारपीट में बलवा-मारपीट में रिपोर्ट दर्ज, पांच बाउंसर समेत छह गिरफ्तार
--  कलयुग में श्रीमद्भागवत कथा सुनने से होती है मोक्ष की प्राप्ति: अशोक कृष्ण
--  Ciudad en Texas emite una orden de quedarse en casa tras la liberación de sustancias químicas desde una refinería
--  Voetganger doodgereden in Gilze
--  Szétszedték Joe Biden feleségét a Fehér Ház karácsonyi videója miatt
--  KOLDA : Le casa sport de Ziguinchor étrenne sa première victoire de la saison...
--  삼바 이어 셀트리온도 ‘아일리아’ 美 용법특허 무효화 도전
--  Moradabad News: शहरी बूथ पर 200 और ग्रामीण बूथ पर सौ लोगों को नमो एप डाउनलोड कराना अनिवार्य
--  जम्मू-कश्मीर के विशेष दर्जे की बहाली के लिए संघर्ष जारी रखेंगे : महबूबा
--  Mohali News: होमी भाभा सरकारी कैंसर अस्पताल में आने वालों मरीजों के लिए धर्मशाला तैयार
--  Ni Valles salva lo inevitable
--  Simic: "Ho avuto la possibilità di esordire oggi e sono ancora più contento di aver segnato"
--  De Rosalía a Taylor Swift, un 2023 de rupturas, nacimientos y octogenarios perseverantes
--  Izraeli dhe Hamasi të hapur për armëpushim, por mosmarrëveshjet vazhdojnë
+-  Paavi esitti surunvalittelunsa kahden naisen väitetystä kuolemasta Gazassa – Israel kiistänyt ampumisen
+-  Nordsjællands kyst er truet: Men et slagsmål om penge bremser arbejdet med at redde den
+-  Nordsjællands kyst er truet: Men et slagsmål om penge bremser arbejdet med at redde den
+-  Elections municipales à Montlaur : la liste d'Arnaud Humbert Droz remporte le deuxième tour
