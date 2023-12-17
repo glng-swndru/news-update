@@ -1,11 +1,11 @@
 # Latest News
--  1 gram bile altını olanlar dikkat! İşte 17 Aralık 2023 son dakika altın fiyatları!
--  اعرف الأقرب إليك.. الأحوال المدنية تقدم خدماتها في 21 موقعًا بالمملكة
--  حرارة تحت الصفر.. شاهد تجمد المياه في مرتفعات عسير
--  طائرة الإخلاء الطبي تتجه إلى إريتريا لنقل التوأم السيامي "أسماء وسمية" (فيديو)
--  عاجل.. تعرف على شروط استيراد الدراجات النارية من الخارج والأنواع الممنوعة
--  أقلها 3 بالسودة.. درجات الحرارة المسجلة اليوم بمناطق المملكة
--  Kütahya'da namaz kılar gibi yapıp para çalan hırsız tutuklandı! O anlar kamerada...
--  מעל 200 מיליון ליש"ט: ההצעה המשופרת מערב הסעודית על סלאח
--  פ.ס.ז' שוב מול באיירן מינכן? לקראת הגרלת שמינית גמר ליגת האלופות
--  הכול חוץ מפרנקפורט: מכבי חיפה מחכה להגרלת הקונפרנס ליג
+-  בקיבוץ ניר עוז מחכים לחטופים: "נמשיך להיאבק כדי שהאור יגיע"
+-  MBK 공개매수 지지한 장녀 “최근 아버지 행보, 스스로 판단 아냐”
+-  Luka Dončić s petim trojnim dvojčkom sezone
+-  Laduma! Viral soccer goals: Erling Haaland [VIDEO]
+-  “Иқлим ўзгариши кўрпачаси” – оддий график чизиқлар глобал исиш рамзига айланди.
+-  TFF'den Ali Palabıyık kararı! Mahkeme süreci..
+-  Velilere ek KDV uyarısı: Yasal değil!
+-  Türkiye'nin ilk bonsai müzesi kuruluyor
+-  SERAP sues INEC for failing to prosecute electoral offenders in Bayelsa, Kogi, Imo
+-  Проект за близо 8 милиона лева: Изграждат нови велоалеи във Варна
