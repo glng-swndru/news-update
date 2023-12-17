@@ -1,51 +1,51 @@
 # Latest News
--  Luca Martínez Dupuy se corona con Rosario Central tras ganar la Copa de la Liga
--  'Chiquete' Orozco, 'afectado' por renuncia de Veljko Paunovic de Chivas: 'Me dolió'
--  Коледното карнавално бягане ще стартира днес във Варна
--  馬場密探048｜「寶麗生輝」轉泥即勝
--  [속보] 尹 대통령, 산업통상부 장관에 안덕근 통상교섭본부장 지명
--  Dončić maestralnom partijom prestigao dvije legende, odlična večer Zubca, težak poraz Bogdanovića
--  فريق الخطاف من منطقة بوجرار يتحصل على بطولة ليبيا للميني فوتبول
--  警方蘭桂芳反罪惡行動 拘捕25歲被通緝男子
--  Ehlers og Bjorkstrand slår til med scoringer i NHL
--  Dončić z brutalnim trojnim dvojčkom vrnil Dallas na zmagovita pota
--  Deček, ki je pred šestimi leti izginil, se je vrnil domov
--  İsrail güçleri, Batı Şeria'da İHA ile düzenlediği saldırıda 3 Filistinliyi öldürdü
--  Çin'de fosil yakıt ithalat ve üretiminde artış yaşandı
--  Bonservisi belli oldu! Fenerbahçe'de Rade Krunic mesaisi
--  Edirne'de gerçekleştirilen denetimlerde 13 düzensiz göçmen yakalandı
--  ¿Cuánto debe cada catalán? ¿Y cada madrileño?
--  Serie A, domenica con 5 gare del 16° turno: Inter e Milan in campo. Il programma
--  Predsednik RIK: Zlonamerne insinuacije da se priprema izborna krađa
--  Fizetések mesterdiplomával és a tanárok fegyelmezési eszközei: ezek voltak a hét legfontosabb hírei
--  Hämeenlinnan kirje | Nyt selvisi, ketkä ovat Aulangon uuden suosikkiladun isät ja tulevan tekojääradan äiti
--  Ο Ζελένσκι χαιρέτισε τις επιτυχίες της ουκρανικής αντιαεροπορικής άμυνας
--  Reagált a Magyar Közút a kátyúkáoszra, ami sok autós életét megkeserítette
--  Qaraciyəri təmizləyən MÖCÜZƏVİ QARIŞIM
--  UK teen Alex Batty arrives home after going missing in France
--  បុរស​ម្នាក់​ត្រូវ​អស់លក្ខណ៍ ក្រោយ​លួ​.​ច​រថយន្ត​មិន​ទាន់​៣​ម៉ោង​ផង ជាប់អន្ទាក់​សមត្ថកិច្ច
--  PM Kisan Yojana: कई किसानों को नहीं मिलेगा 16वीं किस्त का लाभ, जानिए क्या है वजह
--  হার দিয়েই সিরিজ শুরু বাংলাদেশের
--  Venäjän kehitys kuin 80-luvulta – Lada kertoo ylpeänä ABS-jarruista
--  411’s UFC 296 Report: Edwards Decisions Covington
--  जरुरी जानकारी | दिसंबर के पहले पखवाड़े में डीजल की बिक्री में सुधार, दिवाली में आई थी बड़ी गिरावट
--  Kemenkeu: Pemerintah Tetap Waspada Meski Surplus Neraca Perdagangan 43 Kali Berturut-turut
--  Ισραήλ: Διαδηλώσεις στο Τελ Αβίβ υπέρ της απελευθέρωσης των ομήρων της Χαμάς
--  Michalkiewicz: „Czyn posła Brauna, to jest rodzaj felix culpa”
--  Border municipalities unconvinced that national fireworks ban would work
--  लुम्बिनी प्रदेशस्तरीय महिला क्रिकेट टिम घोषणा
--  Aamer Jamal Inspiring Journey: टैक्सी चलाने वाला आमिर जमाल ने डेब्यू मैच में किया कमाल, जानें कैसा रहा इंटरनेशनल क्रिकेट तक सफ़र, देखें वीडियो
--  Эдвардс защитил титул чемпиона UFC в полусреднем весе
--  Diese Hausmittel beruhigen den Magen – gegen Völlegefühl an Weihnachten
--  Pemerintah Antisipasi Lonjakan Kasus COVID-19
--  Opinie: Intelectualul creștin: taină politică a evlaviei
--  김창현 회장, 지역사회 공헌 대통령표창 수상
--  제주시갑 총선 더불어민주당 ‘벌써부터’ 과열 분위기
--  이경용 전 의원 총선 본격 돌입
--  제주도의회, 제2차 추경안 처리 후 장기 휴식 돌입
--  Почина първият барабанист на AC/DC
--  «Информационное прикрытие»: как Германия видит процесс перевооружения Европы для борьбы с Россией
--  Разходите за отбрана на Япония ще се увеличат с повече от 10% през 2024 г.
--  Tragico incidente a Piedimonte Matese: muore un ragazzo
--  Polda Jabar Tangani Kasus Dugaan Penipuan Jual Beli Ruko dengan Kerugian Rp 5,5 M
--  KMU VC emphasises critical role of healthcare providers
+-  Killing of civilians is a war crime
+-  Esenyurt'taki tekel bayii cinayetinde istenen cezalar belli oldu!
+-  Sırbistan'da erken genel ve yerel seçimler başladı
+-  İsmail Kartal'dan Avrupa sözleri! " Hayal edin ve inanın"
+-  AKTUÁLNE V okrese Trebišov sa prevrátil autobus s Ukrajincami, zasahujú tam hasiči i záchranári
+-  مشاركة شعبية.. مشهد مهيب لموكب تشييع جنازة أمير الكويت الراحل (فيديو)
+-  सञ्चितिको उपयोग
+-  Мигрант незаконно проник в Финляндию через Россию
+-  గలౌటీ కబాబ్‌
+-  Türk denizci Özenç Sarıyıldız'ın şüpheli ölümü... Hollanda soruşturmaya gerek görmedi
+-  Gaza-demonstrasjoner over hele landet: Anslår opp mot 13.000 mennesker på markering i Oslo
+-  Aldi, Edeka, Kaufland und Co.: Hamsterkauf-Welle steht bevor – das ist der Grund
+-  Matthew Perry starb an Ketamin-Auswirkungen
+-  Kickoff | Pep slams Man City stars after late collapse
+-  [부고] 정태원(전 울릉읍장) 씨 모친상
+-  [일월선사 오늘의 운세] 2023년 12월 18일 월요일 띠별 운세
+-  가장 ‘힙’한 문화성지…수성알파시티 ‘타임빌라스 수성’ 청사진 22일 공개
+-  손병복 울진군수 ‘2023 올해를 빛낸 한국인 대상’ 수상
+-  포항 미용봉사단체 비영리 법인 ‘포아미' 발대식 개최
+-  중소기업중앙회, 소상공인 50.1% 내년 경영환경 '악화' 전망
+-  보건의료노조 “국민 89% 의대 정원 확대 찬성”…의협, 의대 증원 저지 총궐기대회
+-  尹대통령, 산업장관에 대구 출신 안덕근 통상교섭본부장 지명
+-  Quiz z wiedzy ogólnej pełen pułapek. Na pewno zagniemy cię na 8. pytaniu
+-  В России предложили решение проблемы с нехваткой таксистов
+-  제주도 보훈회간 건립 사업 첫 삽...내년 말 준공 목표
+-  제주 주택 가격 16개월째 하락세
+-  APEC 정상회의 제주 유치, 부산 엑스포 실패 변수 전망...총력 대응 강화
+-  제주산 무·당근·양배추·브로콜리...19일 산지가격 판매
+-  'भर्ना प्रक्रिया जारी छ : विद्यार्थी घटेको भन्न मिल्दैन'
+-  총수 일가, 지주회사外 353개 회사 지배…“사익 편취 발생 여지”
+-  Weather update: Orange alert issued in Tamil Nadu, Kerala today. Check IMD forecast here
+-  128 Tahun BRI, Berikut Perjalanan Bank yang Didirikan R. Aria Wiraatmadja
+-  La inteligencia artificial en Europa
+-  Tiempos de incertidumbre y despiste en el regionalismo
+-  Irse a tiempo
+-  Las razones
+-  Relevo en el Obispado
+-  A lo grande, pero no en todo
+-  Jesús Pindado,de Beranga a Washington
+-  Economía de la biodiversidad
+-  Nonno Prodi rosica per la presenza di Musk ad Atreju e demolisce Schlein
+-  पेंटागन से बड़ा दफ्तर, 1.5 लाख लोगों को रोजगार... कैसा है 'सूरत डायमंड बोर्स' जिसका PM मोदी ने किया उद्घाटन
+-  Soccerladuma | Al Ahly Coach Reacts To Stunning Benzema's Al-Ittihad In CWC
+-  الكويت.. وصول جثمان الأمير الراحل لمسجد بلال بن رباح ملفوفًا بعلم الكويت (فيديو)
+-  حقيقة الإصابة بالجلطات بسبب السير بقدمين حافيتين على السيراميك
+-  شاهد.. تأثر أمير الكويت بعد نقل جثمان الأمير الراحل إلى مقبرة الصليبيخات
+-  Ce spune noul golgheter din Superliga României: "Fazele m-au găsit acolo"
+-  Layún da su último mensaje como futbolista profesional
+-  Bursa'da talihsiz kadın uzaklaştırma kararı 11 gün önce biten kocası tarafından bıçaklanarak öldürdü
+-  Katil İsrail Batı Şeria'da 3 Filistinliyi daha katletti
