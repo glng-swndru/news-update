@@ -1,51 +1,11 @@
 # Latest News
--  Спасовски ја префрла вината среде критика: Трагедијата на Ѓорчевска ги разоткри системските недостатоци
--  Social media platforms across Pakistan face disruption amid PTI’s virtual gathering: Netblocks
--  Stolt Agnes Sällbom efter sitt första SM
--  యువగళం ముగింపు సభను విజయవంతం చేయాలి
--  Premier League: Liverpool, accroché par Manchester United, abandonne la première place à Arsenal
--  TRAGEDIJA KOD ŠAPCA Dve osobe poginule, dve povređene u udesu: Jedno vozilo se zapalilo
--  జగన్‌ను సాగనంపడం ఖాయం
--  Réussite et audace: Marloie et Jacquemart respirent alors que Mormont a coulé en deuxième période
--  Photos & Video: Brew Bermuda ‘Santa Paws’
--  టీడీపీతోనే రాష్ట్రాభివృద్ధి
--  Are November’s 3 Biggest Stock Losers Worth Snapping Up Now?
--  Депутат Рады Устинова заявила, что ВСУ готовятся перейти в оборону
--  Пушилин вошел в состав руководящего органа “Единой России”
--  తల్లి జోల కంటే తడి గల పాట ఉంటుందా!
--  Главный тренер РК «Кубань» перешел в казанский клуб
--  TS NEWS: జూబ్లీహిల్స్, బంజారాహిల్స్‌ పబ్‌లల్లో పోలీసుల ఆకస్మిక సోదాలు
--  Almería respira la tradición de los villancicos en el Teatro Apolo
--  وزارة الصحة في غزة: 70% من الفلسطينيين الذين قُتلوا في القطاع خلال الحرب من النساء والأطفال
--  జిల్లాకు ఒక్కటే!
--  Behrami: "Scudetto, l'Inter ha l'obbligo di vincere per la superiorità sulle altre"
--  ప్రాధాన్య భవనాలకూ.. నిధుల కొరతే!
--  Журналист Сергей Доморощенов выпустил книгу о писателе Владимире Личутине
--  యువగళం.. ఎన్నికల శంఖారావం
--  Aaj Ka Kumbh Tarot Card: कुंभ राशि वाले प्लेनिंग के साथ करेंगे काम, मिलेंगे सुखद परिणाम
--  Rishikesh News: लापता होने के दो दिन बाद घटना स्थल के समीप दिखी थी विनीता
--  Rishikesh News: लापता होने के दो दिन बाद घटना स्थल के समीप दिखी थी विनीता
--  Firozabad News: संदिग्ध परिस्थिति में फंदा कसने से युवती की मौत
--  Firozabad News: बैडमिंटन और एथलेक्टिस में खिलाड़ियों ने दिखाई प्रतिभा
--  Firozabad News: रेलवे डीसीटीएम इलेविन ने शिवा इलेविन को एक विकेट से हराया
--  Firozabad News: आठ भूमिगत जलाशय और 268 टंकियां होंगी स्थापित
--  Firozabad News: बनारस के कलाकरों ने कबीर दोहों की प्रस्तुति से किया मंत्रमुग्ध
--  टूंडला : वाराणसी-नई दिल्ली वंदे भारत का आज टूंडला में स्वागत
--  Firozabad News: कोहरे से दो निरस्त, चार ट्रेनें घंटों चल रहीं लेट
--  Firozabad News: शिक्षक हाजिरी के लिए आए 2800 टैबलेट
--  Lalitpur News: बीएसए ने प्रधानाध्यापिका और सहायक अध्यापिका को किया निलंबित
--  Lalitpur News: जिले में परिषदीय विद्यालय में ऑपरेशन कायाकल्प का 93.51 फीसदी काम हुआ पूर्ण
--  Lalitpur News: पुलिस व प्रोबेशन विभाग की टीम ने रुकवाई नाबालिग लड़की की शादी, बरात आने से पहले ही पहुंची टीम
--  Lalitpur News: टोल प्लाजा के कर्मी नहीं दिखा पाए अनुबंध पत्र, मिली सात दिन की मोहलत
--  Lalitpur News: भूल जाइए कश्मीर, नैनीताल... नए साल पर बंदरगुढ़ा में मचाइए धमाल
--  Banda News: बुखार और डायरिया के नौ मरीज भर्ती
--  Banda News: बाइक सवार दामाद-ससुर पर नीलगाय का हमला, दामाद की मौत
--  Banda News: एडीओ पंचायत समेत पांच पर धोखाधड़ी व गबन की रिपोर्ट दर्ज
--  भूरागढ़ और पैलानी में बैराज का काम जल्द होगा शुरू : मंत्री
--  Kangra News: सड़क पर शव रखकर किया चक्का जाम, परिजन बोले-पुलिस की मारपीट के बाद युवक ने दी जान
--  Kangra News: दो साल बाद मोटरसाइकिल चोरी का आरोपी नूरपुर पुलिस ने धरा
--  गोलीकांड : आरोपी गिरफ्तार, मृतक के भाई बोेले-रंजिश के चलते हुई हत्या
--  Lakhimpur Kheri News: तीन दिन बढ़ाई गई सुदूर पश्चिम महोत्सव की तिथि
--  Kangra News: नगरोटा बगवां के मुंदला में विशेषज्ञों ने जाइका के कार्यों का किया निरीक्षण
--  Lakhimpur Kheri News: 20 दिसंबर से पांच जनवरी तक दुधवा नेशनल पार्क हाउसफुल
--  Lakhimpur Kheri News: सीएचसी में लगी एक्सरे मशीन, मरीजों को मिली राहत
+-  Putin odštartoval predvolebnú kampaň: Nemám záujem o konflikt s krajinami NATO, ale…
+-  Ademi: Hajduku više odgovara neriješeno, oni mogu biti zadovoljniji
+-  Why the San Jose Sharks’ newest forward says he’s “extremely motivated”
+-  Mutui, tassi d’interesse ai minimi: quanto scenderanno le rate nel 2024
+-  Patriots vs. Chiefs highlights: Bailey Zappe, Hunter Henry turn 4th down into a touchdown
+-  DIMO promotes Mercedes-Benz StarDiscovery+ after sales service
+-  Gavinro Investments rolls out Sri Lanka’s first 300KM range EV commercial vehicle
+-  National cricketers get into top gear ahead of Zimbabwe series
+-  Access Motors redefines automotive care
+-  Bangladesh rout UAE to win maiden ACC U19 Asia Cup title
