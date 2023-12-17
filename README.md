@@ -1,51 +1,51 @@
 # Latest News
--  Carlo Ancelotti diz não ter pressa em renovar com o Real Madrid
--  هذا النبات يقي من الأزمات القلبية والجلطات
--  Nerwy w las. Ekspertka o tym, jak obcowanie z przyrodą leczy choroby spowodowane życiem w mieście
--  Σαρώνει τη Δυτική Μακεδονία ο χιονιάς: Σε ποιους δρόμους χρειάζονται αλυσίδες
--  Marek Isański: Sprzeczność wewnętrzna w najbardziej chwalonej uchwale NSA
--  Michelle Mone admits she lied and lied again and stands to benefit from £60m PPE contract profit
--  Zlacňovanie na slovenských pumpách by sa malo čoskoro zastaviť, upozorňujú analytici
--  Cómo estará el tiempo tras el impactante temporal que golpeó a Buenos Aires
--  Sonakshi Sinha Photos : బ్లాక్​ బికినీలో.. బీచ్​లో హాట్​ ఫోజులిస్తున్న సోనాక్షి సిన్హా
--  Just too much? Expanded Club World Cup plans revealed as fears for player safety emerge
--  Punjab: Youth Congress members protest in Chandigarh, police use water cannons
--  В Суздале создадут первый в России стол с левитирующими матрешками формата 4D
--  Пушилин сообщил о подготовке в ДНР механизмов противодействия провокациям ВСУ на выборах
--  Corona-Zahlen im Landkreis Miesbach aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Landsberg am Lech aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Garmisch-Partenkirchen aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Fürstenfeldbruck aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Los héroes del 12-1 a Malta tendrán su homenaje de la federación
--  מחקר: קבוצת התקיפה האיראנית תוקפת ומרגלת אחר ארגונים ישראלים
--  "אצילי בדיחה. כל עוד הוא משחק באל עין, מתבזבזת עמדה של זר"
--  Corona-Zahlen im Landkreis Freising aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  أهم 6 أسباب تجعلك جائعاً دائماً
--  Ribarnice će opet biti poluprazne. Jesu li lovostaju u Hrvatskoj predugi?
--  Nočná dráma v Bratislave: Vodič taxislužby chcel znásilniť zákazníčku! Polícia adresovala ženám výzvu
--  So diskutiert die SPD Main-Tauber über Digitalisierung in Schulen
--  Corona-Zahlen im Landkreis Erding aktuell: Inzidenz für Landkreis Erding, Bayern und Deutschland
--  Top 10 svetríkov zimnej sezóny: Zababuš sa a zostaň stále sexi
--  怒轟「做賊喊抓賊」 賴清德：國民黨欠台南1個道歉
--  Очаквайте на живо: Ямбол - ЦСКА
--  Corona-Zahlen im Landkreis Eichstätt aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Ebersberg aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Dachau aktuell: Inzidenz für Landkreis Dachau, Bayern und Deutschland
--  Corona-Zahlen im Landkreis Bad Tölz-Wolfratshausen aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Тројца загинати во нелегална трка на автомобили на автопат во Косово
--  Corona-Zahlen im Landkreis das Berchtesgadener Land aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  What can you connect to the iPhone 15 with USB-C?
--  Bellingham, en busca de la hazaña que solo consiguió Luis Aragonés
--  Corona-Zahlen im Landkreis Altötting aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen in Rosenheim aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  El modelo del Real Madrid que siembra el pánico en el Barcelona
--  Corona-Zahlen in München aktuell: Inzidenz für München, Bayern und Deutschland
--  Corona-Zahlen in Ingolstadt aktuell: Aktuelle Daten zum Coronavirus
--  Ciudadanía, clave para relanzar la campaña de Xóchitl Gálvez
--  Teletón 2023 necea para ayudar a damnificados del huracán Otis
--  Corona-Zahlen im Landkreis Sigmaringen aktuell: Die Coronavirus-Daten im Überblick
--  Žan Kranjec četrti po prvi vožnji veleslaloma v Alta Badii
--  Sri Lankan cartoonist Camillus Perera passes away
--  Corona-Zahlen im Landkreis Ravensburg aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Estrazione Million Day di oggi, 17 dicembre 2023: i numeri vincenti di domenica
--  Corona-Zahlen im Bodenseekreis aktuell: Inzidenz für Bodenseekreis, Baden-Württemberg und Deutschland
+-  News24 | 'Safe return' to UK for British teen Alex Batty, found in France after going missing six years ago
+-  Ўзбекистонда 18 декабр куни қандай об-ҳаво кутилмоқда?.
+-  Херсон областидаги вайроналар ва Донбассдаги жангчилар ҳаёти. Уруш суратлари.
+-  Predstavljena postignuća EU projekta „Unaprjeđenje sustava evidencije i upravljanja državne imovine“
+-  이동욱 대구시의원, 제14회 우수의정대상 수상
+-  Warga emas hilang ditemui mati lemas
+-  अम्बाला में ईर्स्टन डेडीकेटिड फ्रेट कॉरिडोर पर नए फ्रेट टर्मिनल के निर्माण की प्रक्रिया भी चल रही है : अनिल विज
+-  ارتفاع أسعار الطماطم والبصل والفاصوليا والملوخية بسوق العبور اليوم الأحد
+-  ارتفاع أسعار السمك البلطي والمكرونة والبوري والجمبري اليوم بسوق العبور
+-  التأمينات تعلن زيادة الحد الأدنى والأقصى للمعاشات بدءا من يناير 2024
+-  Bike Transfer from Train: ट्रेन से बाइक पार्सल करने में कितना आएगा खर्च, जानिए ऑनलाइन और ऑफलाइन पूरा प्रोसेस
+-  Yeniden Refah Partisi'nden açıklama: İddialar gerçek dışı!
+-  Elon Musk: Çocuklar olmazsa gelecek nesil olmaz
+-  Real Madrid'in yıldızı Galatasaray'a önerildi
+-  Minister inspects landslip-affected areas along Coonoor-Mettupalayam Road
+-  आधार कार्ड: अब स्मार्टफोन से बदलें आधार कार्ड की इमेज, आज ही जानें ऑनलाइन प्रोसेस
+-  Kaplıca uyarısı; beyin kanamasına neden olabilir
+-  Yangında 3 çocuğu komşuları, çatıya çıkan anneannelerini itfaiye kurtardı
+-  MSB: Fırat Kalkanı bölgesinde 7 terörist etkisiz hale getirildi
+-  Namaz kılar gibi davranıp, hırsızlık yapıyordu
+-  Tramvay yolundaki direğe çarpan otomobil ikiye bölündü: 1 ölü, 3 yaralı
+-  Ehliyet sınavına başkasının yerine giren 21 şüpheliye gözaltı
+-  Tramvay yolundaki direğe çarpan otomobil ikiye bölündü: 1 ölü, 3 yaralı
+-  Украина приостановила статус австрийского Райффайзен банка как "спонсора войны"
+-  Poolse arbeidsmigrant toegetakeld met vleeshamer: 150 dagen cel
+-  ‘Bagheera’ teaser: Srii Murali’s film hints at an action drama with a vigilante hero
+-  Persikabo 1973 Vs Persebaya Berakhir Imbang 1-1, Tren Negatif kedua Tim Berlanjut
+-  내년에 믿을 건 ‘반도체’…내수는 눈덩이 빚·부동산PF 부실로 ‘살얼음’
+-  Survivor'a damga vurmuştu: Milli sporcu nişanlandı!
+-  New Rapid Rail: अब दिल्ली से इन 2 रूटों पर चलेगी रैपिड रेल, जानिए कहां होंगे इसके स्टॉपेज
+-  Bruggink stond 'met tranen in de ogen' vanwege racisme tegen Brobbey
+-  “قادربوه” يلتقي مدير قسم شمال أفريقيا بالأمم المتحدة
+-  Feyyaz Yiğit'ten dikkat çeken sözler: 'Bir manyaklığım yok'
+-  꽁꽁 얼어붙은 경남...당분간 영하권 추위
+-  지역 의료 공백 메우려면...인력 확보·의료체계 구축 절실
+-  살인사건 일어난 김해 응급구조단 관계자도 실형
+-  My dad was a terrible ‘father figure’ – so he doesn’t get to walk me down the aisle
+-  İstanbul Güngören'de özel hastanede büyük yangın!
+-  Britannia lähettää tähtiartistin Euroviisuihin
+-  Temporal en la Ciudad: se derrumbó una estructura en la fiesta Bresh y se registraron al menos 15 heridos
+-  Da li hospitalizovani mogu da glasaju? Da, ako izađu iz bolnice
+-  UŽIVO Izbori u Vojvodini: Do 10 sati na glasanje izašlo 11,69 odsto građana
+-  София може да остане без градски транспорт за празниците
+-  Leverkusens Carro zum Afrika-Cup: «Muss geändert werden»
+-  Ο πρόεδρος και η προοπτική μεταγραφής του Κατσαντώνη
+-  Africa should stand together: President
+-  Buitenlands voetbal | Tijjani Reijnders in basis AC Milan, Nederlanders met Brighton tegen Arsenal
+-  Iconic seaside destination under threat as council faces £200k loss
+-  Viral Video: పనిలో ఏకాగ్రత అంటే ఇదేనేమో.. పాములు పక్కనే ఉన్నా పట్టించుకోకుండా..
+-  Izraelske snage nastavile napade na Pojas Gaze, ubijeno najmanje 47 Palestinaca
