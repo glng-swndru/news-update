@@ -1,11 +1,51 @@
 # Latest News
--  Bursa Yıldırım'da eşini öldüren şüpheli yakalandı
--  Путин поблагодарил другие парламентские фракции за работу
--  لمن التفوق قبل مواجهة أرسنال وبرايتون
--  Bikini designer flaunts bum in skimpy thong swimwear 'inspired by her ex'
--  В Херсонесе планируется возродить мужской монастырь
--  Путин: Россия не может в обмен на колбасу отдать свой суверенитет
--  В Пензе главного тренера «Дизеля» отстранили от должности
--  Bedelli askerlik mağdurlarını üzecek haber. Bakan Güler açıkladı
--  «Милан» разгромил «Монцу» в серии А
--  İsrailliler Gazze’ye atılacak bombaların üstüne isim yazıyor
+-  Zehir tacirlerine geçit yok! Bakan Bolat duyurdu: Habur Sınır Kapısı'nda 202 kilogram sıvı metamfetamin ele geçirildi
+-  Özgür Özel ne vadetti? DEM Parti’den yerel seçimlerde CHP'ye yeşil ışık
+-  Holtitonta aseenkäyttöä Sveitsissä - norjalaistähti sivuun kisasta
+-  CIN-CG: Bivša uprava Glavnog grada dala u bescjenje atraktivnu...
+-  My son saved my life after I taught him a song about ambulances
+-  داخلية الحكومة الليبية: ملتزمون بتعزيز الاستقرار في الشرق والجنوب
+-  Krepitvev konflikta v Sudanu in napredovanje paravojaških enot RSF-ja sprožila nov val beguncev
+-  Danaone dan Kagama Dorong Pengelolaan Lingkungan Berkelanjutan
+-  Cimbom'a Angelino piyangosu
+-  Hørte skuddet fra matsalen: – En preget Sturla tittet fram og sa unnskyld
+-  Проф. Овчаров: Резервиран съм към схващанията на Сашо Йорданов, който громи руснаците, но Витанов ме вбеси
+-  Trump: Putin freut sich über meine Strafverfolgung
+-  Trump: Putin freut sich über meine Strafverfolgung
+-  „Курирање на современото: Нематеријалности“ – Предавање на Рик Долфијн денеска во МСУ
+-  Massive interest in the funeral of Hilversum sisters
+-  संसद हमले के मास्टरमाइंड ने पिता से मांगे रुपये सात लाख, क्या थी योजना…
+-  סימיץ' בן ה-18 כבש בבכורה, מילאן הביסה 0:3 את מונצה
+-  الثلاثاء والأربعاء.. مجلس النواب يستأنف جلساته ويناقش قانون تقابة التكنولوجيين
+-  Медведев: уровень госуслуг в новых регионах должен соответствовать стандартам
+-  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
+-  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
+-  Lindner: Kein Anlass für Vertrauensfrage - In Union köchelt K-Frage
+-  Ελπίδα Ιακωβίδου: Είδαμε για πρώτη φορά τη γοητευτική μαμά της – Εμφανίστηκε ξαφνικά στο «Casa De Mikel» (Video)
+-  Rusko napadne NATO, sdělil Biden. Přišla reakce Putina
+-  महाकाल हैं संपूर्ण ब्रह्मांड के राजा, एमपी के नए सीएम मोहन यादव ने तोड़ी दशकों पुरानी मान्यता
+-  নির্বাচন কমিশন সরকারের হুকুম বরদারে পরিণত হয়েছে: গণতন্ত্র মঞ্চ
+-  Israel-Flagge vor dem Hessischen Landtag beschmiert
+-  تخصيص الحصة الأولى بمدارس مطروح لتوعية الطلاب بملحمة القبائل البدوية في موقعة وادي ماجد
+-  ¿El año del desamor?: las 10 rupturas de famosos que nadie vio venir en 2023
+-  OnlyFans star and footballer Madelene Wright stuns in sexy lingerie as she gets fans in mood for Christmas
+-  Bayramiç’te çıkan yangında ev kullanılamaz hale geldi
+-  Ισραήλ: Για πρώτη φορά από την έναρξη του πολέμου ανοιχτό το σημείο διέλευσης Κερέμ Σαλόμ στη Γάζα για ανθρωπιστική βοήθεια
+-  ग्वालियर से लिपुलेख तक सड़क को एक की बजाय छह लेन बनाएं, केंद्र से अखिलेश की बड़ी मांग
+-  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
+-  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
+-  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
+-  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
+-  X varnar för Aftonbladetgranskning
+-  Cijena nafte poslije dva mjeseca porasla na međunarodnom tržištu
+-  القسام تقصف مستوطنة نيريم بصواريخ قصيرة المدى.. وسرايا القدس تستهدف حشودا للاحتلال بغلاف غزة
+-  Промоција на сликовницата „Највисокиот врв“ од Илина Арсова
+-  Kiderült, mikor mutatja be 2024-es F1-esét a Ferrari
+-  Τοπ συγκομιδή
+-  HSG Wetzlar schlägt MT Melsungen in irrwitzigem Hessen-Derby
+-  Milan nadigral Monzo, Inter zvečer pri Laziu
+-  „Čierne bodky“ na skle auta majú význam, o ktorom si ani netušil. Fritový pás spĺňa 3 dôležité úlohy
+-  Federata e Futbollit shpall të nominuarit për më të mirët e vitit
+-  Kristoffersen et stykke bak i Alta Badia: – Gikk sakte
+-  ¿Cómo dejar la constancia en Carabineros si no voy a votar?
+-  Hombre denunció que lo intentaron apuñalar cuando se dirigía a su local de votación en el Estadio Monumental
