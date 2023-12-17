@@ -1,51 +1,11 @@
 # Latest News
--  Organic farming : సేంద్రియంగా ‘ఉన్నతి’...
--  Benfica arranca vitória sobre o Braga. A ferro e fogo!
--  Gul Panag : నాఫిట్‌నెస్‌ సీక్రెట్‌ ఇదే!
--  فنانة نرويجية ترثي شهيدات غزة.. بذكرى شهيدة صقلية سانت لوسيا
--  أهالي المحتجزين الإسرائيليين بغزة يعلنون الاعتصام
--  نصائح مهمة لدى القيام بتخطيط السمع
--  'Srbija protiv nasilja' demantuje Vučića: Nema govora da je SNS pobijedio u Beogradu
--  Michał Probierz odkurzy niedawnego reprezentanta Polski? Klubowy trener jest nim zachwycony
--  ساعة المسلة.. شيوخ نينوى يرفضون خطاب الخنجر الطائفي
--  Marcelino: "Si encajamos tres goles por partido estaremos en segunda"
--  "الزراعة" تطلق فرق إرشادية للنهوض بالمحاصيل الشتوية
--  مدير حديقة الحيوان: أعداد القطط داخل الحديقة يصعب حصرها
--  الداخلية تكشف نشاط صاحب محل صيد غسل 41 مليون جنيه حصيلة تجارة وتصنيع الأسلحة
--  حل لغز اختفاء شاب بأسيوط والعثور على جثته في مصرف مياه
--  بسبب أسطوانة بوتجاز.. إصابة طالب بطلق خرطوش شمالي قنا
--  Nestorović odbio Vučićev poziv za koaliciju u Beogradu
--  '효심이네 각자도생' 유이♥하준, 눈 맞으며 첫 키스…공식 커플 탄생
--  닝닝, 초 근접 셀카에도 완벽한 비주얼
--  삼진제약, '오너 2세' 조규석·최지현 사장 승진
--  Business ideas - 50 हजार की मशीन से 2 लाख रुपए महीने की कमाई
--  내년 소주 출고가 10.6% 인하 … 증류주 기준판매비율 도입
--  SK하이닉스, AI 반도체 수혜에 14만원 찍었다 ... 연초 대비 85% 상승
--  Luis Enrique, sobre Mbappé de '9': "Juega donde él decide"
--  Determined Oban Lorne defeat Dalziel in driving rain
--  House auction up for charity
--  Alineaciones probables para la jornada 18 de LaLiga EA Sports
--  Ugroženo poverenje u poreski sistem
--  BIBD diiktiraf Bank Paling Kukuh Brunei
--  Entire house in Blackburn collapses after huge explosion as neighbours evacuated & man rushed to hospital
--  Mampukah Gibran Hadapi Debat Cawapres? Begini Jawaban TKN
--  BLESS: Demi Lovato Is Engaged To Singer Jordan ‘Jutes’ Lutes After A Year Of Dating
--  A. Šešelj: Nezadovoljni smo rezultatima, za neuspeh ne krivimo nikoga
--  AFAD açıkladı: Gümüşhane'de 4.3 büyüklüğünde deprem
--  Sensação de calor chegou aos 44°C no interior do RS
--  OBUKLA ODELO, A ISPOD NJEGA NIŠTA! Stanija Dobrojević raširila sako, sevnuli OGROMNI SILIKONI - "Ljudi, šta je ovo?!"
--  Duncan Egan: Verifying the authenticity of content in the age of AI
--  Napad na adventskoj zabavi u Meksiku, najmanje 16 ubijenih
--  פליק פלאקו לפנים: ניצחון דרמטי קירב את קליבלנד לפלייאוף
--  Lille-PSG: la petite phrase de Mbappé à Chevalier avant de tirer son penalty
--  Free online storytime
--  Netball: UCU humiliate Bishop Stuart | AUUS Games 2023
--  Miami propina paliza y blanqueada a Jets en duelo divisional
--  Ljajić proglasio pobedu Sandžačke demokratske partije u Novom Pazaru
--  Nueva Constitución: cerraron las mesas en Chile y ya se conocen los primeros resultados
--  Gran exhibición del Real Madrid
--  Lazio, Sarri: "Nei primi 20' del 2° tempo l'Inter non è entrata in area. Marusic? Gioco dove vedo..."
--  "Какая глупость": во Франции возмутились решением ЕС по Украине
--  Wagner-Brüder kassieren mit Magic nächste klare Niederlage
--  12/18 各報重點新聞一覽
--  Inter, Lautaro Martinez: "Un segnale a tutti, anche a noi stessi. Thuram? Fortissimo"
+-  Show do rapper MV Bill é interrompido em festival na Bahia: 'Fiquei com muita raiva'
+-  काशी में छोटी बच्ची की कविता के मुरीद हुए PM मोदी, जीत लिया दिल! देखें वीडियो
+-  北, 김정일 12주기에 단거리 탄도미사일…한미 NCG 반발 차원
+-  대구 수성구 체육시설 야외주차장서 불…40대 여성 숨져
+-  Gümüşhane Kelkit'te 4.3 büyüklüğünde deprem meydana geldi
+-  Oslo ramt af to skudhændelser på åben gade søndag
+-  প্রথমবার নৌকা পেয়েও ছাড়তে হলো তাদের
+-  Tip na dárek: Levný soundbar, co příjemně vylepší zvuk běžných televizorů
+-  Pasaron la primera noche fuera de prisión exdirectivos de Aras
+-  Aumenta 5.1% precio de la cena de Nochebuena
