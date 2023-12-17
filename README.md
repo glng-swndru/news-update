@@ -1,51 +1,51 @@
 # Latest News
--  Real Madrid gol yağdırdı
--  Real Madrid evinde farklı kazandı
--  Макгрегор: Зеленский лишает украинцев жизни вместо заключения мира
--  מחקר חושף: לבעלי חתול יש סיכון גבוה לפתח סכיזופרניה. האמנם?
--  ELN suspenderá del secuestro con fines económicos
--  Simón Calzadilla afirmó que María Corina Machado hizo lo correcto al acudir al TSJ
--  Llamamiento a los jóvenes asturianos para donar sangre: los resfriados merman las donaciones y la demanda crece en Navidad
--  El nuevo presidente argentino Milei llegó a la costa tras tormenta que dejó 13 muertos
--  Oliveira de Azeméis: Berço Vidreiro com atividades natalícias
--  Danny is scared to tell Julia he has been made redundant before Christmas
--  Representative of US President in Kuwait to offer condolences
--  В США заявили о заканчивающихся у Украины танках, военных и снарядах
--  피하기 힘든 연말 회식들…안 취하고 살아남으려면?
--  Inter pobijedio Lazio i povećao prednost nad Juventusom
--  El Real Madrid mete presión al Girona
--  Dirigentes del Suburbio se capacitan ante el anunciado evento El Niño
--  Pazzini esalta Simic: «Lo conoscevo, si fa sempre trovare pronto. Mi ha convinto»
--  Bradu Pittu stigao račun od 1.5 milijuna eura zbog vinograda
--  Rodrygo e Bellingham brilham, Real Madrid goleia o Villarreal e dorme na liderança de LALIGA
--  I stopped contact with family but now I’m sick – is it too late to try and reunite?
--  독일 매체도 ‘KIM 득점 취소’ 주목…”VAR 결함→오프사이드 증명 불가능”
--  [인터뷰] K리그 첫 감독 도전 ‘가물치’ 김현석, “빠른 공수 전환의 충남아산 만든다”… 맞붙고 싶은 상대는?
--  الإثنين 5 جمادى الآخرة.. 12 ساعة بين صلاتي الفجر والمغرب بالمدينة المنورة
--  Dačić najveći gubitnik izbora: Ponudio ostavku
--  El cubano Gurriel ganará 42 millones de dólares por tres temporadas más con Diamondbacks
--  Jorge Montoya insiste en destitución de miembros de la JNJ: ahora busca un “pleno extraordinario”
--  Los goles del solvente triunfo blanco ante el Villarreal
--  Injured Neelam Muneer walks down the ramp at BCW'23
--  Ahsan Khan raises voice for Palestine at BCW'23 with placard and keffiyehs
--  Poslušajte kako pjeva muž Aleksandre Prijović, opustili se na zabavi
--  Mommy to be? Saboor Aly sparks pregnancy rumors at BCW'23 rehearsals
--  Family leave us coping with disabled daughter and dementia sufferer father-in-law
--  Timothée Chalamant hielt Hugh Grant am "Wonka"-Set auf Trab!
--  Kickoff | Real move top of LaLiga with Villarreal thumping
--  На Украине предрекли вымирание городов
--  Nestorović: Nema saradnje ni sa koalicijom "Srbija protiv nasilja", ni sa SNS
--  I can’t stop drinking since my husband died of cancer a year ago
--  Sharks forward and pending UFA to be healthy scratched for first time this season
--  Sharks forward and pending UFA to be healthy scratched for first time this season
--  Fetch and ESPN extend current channel distribution agreement
--  Detienen a hondureño por robo y abuso de confianza
--  Albiol: "Fuimos muy blandos, debimos ser mucho más agresivos"
--  Urwa Hocane pens heartfelt note for husband Farhan Saeed on wedding anniversary
--  Illegal Aliens Tossing $1 Million Per Month in 'Free Food' While Citizens Contend with Drastic Budget Cuts
--  My husband has a ‘work bag’ of condoms, whips and handcuffs and denies he’s having an affair
--  Texans kick game-winning field goal to eliminate Titans from playoff contention
--  '김민재 분데스리가 데뷔골' 바이에른 뮌헨, 슈투트가르트 3-0 완파
--  "류현진이란 잠재적 선택지 있다" 선발 2명 잃은 미네소타 영입 후보 거론 '1000만 달러 시간이 오나'
--  박종민의 디카詩-
--  Резервист с посттравматическим синдромом был арестован во время отпуска "за взлом"
+-  Colocan ofrendas en el lugar en el que fue asesinada hace 13 años
+-  Liverpul osudio napad na klupski autobus Junajteda
+-  ג'יילן בראון כיכב, בוסטון הביסה את אורלנדו
+-  500 క్లబ్‌లో లియాన్‌
+-  تطوير بيئة الأصول الرقمية
+-  «المـــوج الأزرق».. ما أروعــــك
+-  పాక్‌ చిత్తుచిత్తు
+-  경륜·경정 문화 교실 회원 참여 노래자랑 대회 개최
+-  Grupo Martelli pede recuperação judicial após quebras de safra e dívidas acumuladas em R$ 244 milhões
+-  ¿Irás a una playa mexicana?, revisa los resultados de sanidad
+-  PKL : జైపూర్‌ అదుర్స్‌
+-  افتتاحية/ فور إعلان وفاة الأمير.. متانة علاقات موريتانيا والكويت تغيِّر أجندة رئيس الجمهورية
+-  Παναθηναϊκός: Ο Γιοβάνοβιτς τα έριξε στους παίκτες του
+-  Under-19 Asia Cup : అండర్‌-19 ఆసియా కప్‌ విజేత బంగ్లా
+-  Johan Santana y Melvin Mora: exaltados al Salón de la Fama del Béisbol Venezolano
+-  Stefan Gartenmann says Aberdeen did not pose enough threat on Rangers in Viaplay Cup final
+-  Photos. Vittel : la compagnie Remue-Ménage a illuminé la traditionnelle parade de Noël
+-  Photos. Plombières-les-Bains : une trentaine de figurants donnent vie à la crèche de Noël
+-  Photos. Des chevaux fantastiques parcourent les rues d'Épinal
+-  Disparition. Claude Villers, président du « Tribunal des flagrants délires », est décédé
+-  Yvelines. Un lycéen interpellé pour menaces de mort envers un de ses professeurs
+-  Robe de Miss Lorraine. La déléguée régionale soutient la candidate et le créateur vosgien
+-  Vosges. La Bresse : un dimanche sous le soleil pour les amoureux du massif vosgien
+-  Économie. Prix, disparition, quotas : la difficile obtention de la licence IV dans les Vosges
+-  Кои са най-големите убийци на страстта?
+-  Synod hui starts with leadership, inclusive community
+-  Yfir 2000 dýrategundir eru skotmörk katta
+-  EN VIVO América vs. Tigres Final de Vuelta de la Liga MX del torneo Apertura 2023
+-  Gildan Welcomes Chris Shackelton to its Board of Directors, along with Support from Coliseum Capital Management
+-  Victoria Beckham bereut ihre damalige Brustvergrößerung
+-  الـفـــوز يـؤكــد أننــا الأفـضــل
+-  نشعر بالحزن ونعتذر لجماهيرنا
+-  マクドナルド、「史上最速の成長」計画を発表…2027年までに全世界で5万店を出店
+-  Meğer yıllardır turşuyu yanlış yapıyormuşuz! Bu yöntemle turşular kıtır kıtır olacak... Eriyen bozulan turşular tarihe karışıyor
+-  Ishan Kishan : టెస్టు సిరీస్‌ నుంచి ఇషాన్‌ అవుట్‌
+-  Kerr scores again: Chelsea hits Christmas on top, fifth straight title within reach
+-  Kerr scores again: Chelsea hits Christmas on top, fifth straight title within reach
+-  Cineasta georgiano Otar Iosseliani morre aos 89 anos
+-  Shawn Johnson and Andrew East Confirm Sex and Name of Baby No. 3
+-  Inter, Inzaghi, 'cosa manca per scudetto? 22 partite...'
+-  Gümüşhane'de korkutan deprem! AFAD büyüklüğünü açıkladı
+-  Why are tarantulas so hairy?
+-  Space photo of the week: Swirling 'Spanish Dancer Galaxy' stares down NASA's Hubble
+-  'Unique' cave art discovered in Madagascar hints at connections with ancient Egypt and Borneo
+-  James Webb telescope discovers oldest black hole in the universe
+-  Scientists create light-based semiconductor chip that will pave the way for 6G
+-  Space photo of the week: Swirling 'Spanish Dancer Galaxy' stares down NASA's Hubble
+-  Why are tarantulas so hairy?
+-  Science news this week: A dolphin with thumbs and a massive quantum chip
+-  Scientists create light-based semiconductor chip that will pave the way for 6G
