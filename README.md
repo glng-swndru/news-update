@@ -1,51 +1,51 @@
 # Latest News
--  Some Kabul residents demand decline in fuel rates
--  Ysmina Khadra subit une « sévère et traumatisante » opération chirurgicale
--  Jesus järjesti Arsenalin Valioliigan kärkeen
--  Nyt on erikoinen olympialaji - ”Sitä mietti, ettei tässä ole mitään järkeä”
--  Οπαδική βία: «Πρωτοπαλίκαρα της Greek Mafia μέσα στο φάκελο με τους 200 χούλιγκαν που εξετάζει ο Άρειος Πάγος»
--  Blir det en vit jul? Meteorologen ger försiktigt hopp för Nyland
--  Ex-marido de Ana Hickmann está na mira da polícia e será investigado
--  Princess Charlotte is richer than her brothers because of mum Kate Middleton
--  Παναιτωλικός: Εκτός οι Ντίας, Σενγκέλια και Πέρες για τον αγώνα με την ΑΕΚ
--  Kahlon suspected of criminal offenses in Unetcredit affair
--  December edition of Gozo magazine
--  Hating Brussels sprouts at Christmas could mean you have a genetic 'superpower'
--  Bakan Fidan Antony Blinken'la görüştü: ABD'ye 'nüfuz' hatırlatması
--  Feyenoord get an easy win in Almelo
--  Prosecutors demand seven years in prison for musician Joey AK for kidnapping
--  Ebonyi community gets new monarch 22 years after death of king
--  Ovaj trik za uklanjanje neugodnih mirisa iz obuće ćete obožavati – jeftin je i stvarno deluje
--  Social media platforms across Pakistan face disruption as PTI’s virtual gathering under way: Netblocks
--  Baraninu i Kotoraninu po 15 dana zatvora: Jedan vozio pod dejstvom narkotika, drugi u pijanom stanju
--  Who Is the 'Powerful Man' Who Sexually Assaulted Actor Christian Keyes? Black Celebrities React
--  Global Undecided wins first edition of Assikura Speed Race at Marsa Racetrack
--  Manapság már ez sem megy simán: összekaptak a politikusok a budavári bejglin
--  The deputy editor of newspaper favored by Putin was found dead in her apartment at 35, just a year after the paper's editor-in-chief died
--  Empresarios solicitan una hoja de ruta para el cierre ordenado de la mina
--  Фіорентина - Верона 1:0: огляд матчу Серії А ВІДЕО
--  Aksident i trefishtë në aksin Peshkopi-Maqellarë, “Land Rover” përplaset me dy makina, dy të lënduar
--  Putin: Rusija neće dati suverenitet za kobasicu
--  Arriva Babbo Natale. Ecco cosa gli chiedono i torinesi
--  Australia crushes Pakistan by 360 runs in 1st test inside 4 days, Lyon achieves 500-wicket landmark
--  Speaker Ghimire calls for prompt restoration of water supply from Melamchi
--  [Pet] 반려견 월동 수칙
--  Fünfte Amtszeit: Putin will Russland „unabhängig“ machen
--  Natale e Quale Show Telethon 2023: lo speciale su Rai 1 con Carlo Conti
--  Τουρκία: Πέθανε από ελονοσία ο Εκρέμ Τσαν της Κοτσαέλισπορ
--  SpVgg schlägt zurück und feiert 3:2-Sieg
--  Três centímetros permitiram que Chaves relançasse jogo antes do descanso
--  Shoppings de Manaus mudam horários de funcionamento na semana do Natal
--  Albornoz lidera el torneo de ajedrez Carlos Torre in Memóriam
--  Un joueur de LEGO Fortnite construit une Grande Roue fonctionnelle et c’est incroyable
--  3 possibili scenari geopolitici che spaventeranno i mercati nel 2024 secondo gli esperti
--  More than 60 people drown after a migrant vessel capsizes off Libya, U.N. says
--  Affaire Pierre Palmade : "On l’a coupé, et j’en suis content, parce qu’il a tué quelqu’un"... l'humoriste banni du best of de Thierry Ardisson
--  Mega-Hit umgetextet - Schlager-Legende stichelt auf Bühne von Pocher-Show über dessen Liebes-Aus
--  Et-Po sarjakärjessä joulutauolle – murskasi LiKi:n vieraissa
--  Terra amara streaming e diretta tv: dove vedere la serie su Canale 5 in prima serata
--  Empowering transparency and safeguarding reporting
--  Kickoff | Riveiro: I'm with the football we've developed
--  Oukhelfen y Jebitok ganan el cross Internacional de Venta de Baños
--  Chile organizará el Mundial Sub20 de 2025
--  Partido gobernante de Rusia respalda candidatura de Putin a la reelección
+-  أونانا يتصدى لرأسية فان دايك وينقذ مانشستر يونايتد من هدف محقق
+-  Kickoff | Baroka drop to fourth after latest loss
+-  Football: English Premier League table
+-  Samsung Galaxy S23 FE
+-  Jordan’s King, Iraq’s PM, and Iran’s FM in Kuwait offering condolences over late Amir Sheikh Nawaf
+-  Kam je izginil Rok Tršan?
+-  Stream It Or Skip It: ‘Reacher’ Season 2 on Prime Video, Where The Big Fella Butts Heads With Shady Forces Targeting His Old MP Unit
+-  Bayern Munich’s Jamal Musiala says new players can help take squad to “next level”
+-  סלקום, פרטנר או פלאפון? מי הרשת הסלולארית הטובה בישראל?
+-  UFC 296: 8 biggest takeaways from UFC’s roller-coaster year-end pay-per-view
+-  Gay man recalls traumatic church conversion therapy experience: ‘They said I vomited out the gay’
+-  อาเซียน-ญี่ปุ่น เห็นพ้องส่งเสริมความร่วมมือด้านความมั่นคงทางทะเล
+-  Dánia lett a kézi-vb bronzérmese, Svédország a negyedik
+-  İsrail muhalefet lideri Lapid: Netanyahu devam edemez
+-  Çin uzaya SQX-1 roketiyle uydu gönderdi
+-  Kuzey Kore, Japon Denizi istikametine balistik füze fırlattı
+-  Gazze’de hayatını kaybeden İsrailli asker sayısı 121’e yükseldi
+-  İsrail üzerinden Gazze’ye insani yardım geçişi bugün başlıyor
+-  Dışişleri Bakanı Fidan, ABD’li mevkidaşı Blinken ile görüştü
+-  Che gaffe a Udine: minuto di silenzio per Juliano ma sul maxi schermo c’è Pulici
+-  Bei Mainz 05 wächst die Abstiegsangst
+-  Sjajan niz šestoplasiranog bundesligaša bez primljenog pogotka u kojemu je stradao i Niko Kovač
+-  Ananya Panday ने अपने नए घर में शुरू की क्रिसमस की तैयारी, शेयर की फोटो
+-  BM'den ürküten Gazze açıklaması: 113 bin kadın...
+-  Soccer-Arteta hails 'incredible' Arsenal performance in win over Brighton
+-  Social media platforms across Pakistan face disruption as PTI’s virtual gathering underway: Netblocks
+-  Kraft und Hörl landeten in Engelberg-Weltcup ÖSV-Doppelsieg
+-  পিরোজপুরে আ.লীগ ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ
+-  25 دقيقة.. تعادل سلبي بين ليفربول ومانشستر يونايتد
+-  Pogacar correrá el Giro
+-  Pogacar correrá el Giro
+-  [ŽT] „20-25 tūkstančiai. Ir dar ne pabaiga.“ Okupantams nustatytas kitas terminas. Kas vyksta
+-  Vakarai jau skambina pavojaus varpais. Kas laukia pralaimėjus Ukrainai
+-  Gniaužia kvapą! Pasaulio rekordas. Norvegas nušoko nuo 40 m aukščio skardžio į ledinį vandenį (Video)
+-  [ŽT] Ne silpnų nervų žmonėms. Okupantas išsitaško gabalais (N-18, Video)
+-  „Turėjo saugoti „kadyrovcai“, bet jie kažkur dingo...“ Kas vyksta prie sienos su Ukraina (Žemėlapis)
+-  „Žmogui tam prireiktų daugiau nei 2000 metų“: robotas-chemikas moka tai, kas padėtų žmogui apsigyventi Marse
+-  Arsenal, Brighton karşısında iki golle güldü
+-  يريدونها حربا دينية
+-  সীমান্তে হত্যা শূন্যে নামিয়ে আনার আশ্বাস বিএসএফের
+-  Designarán a oficial mayor de Nuevo Casas Grandes, Chihuahua, en enero
+-  La LVBP finaliza la semana con estos duelos
+-  Giro d'Italia 2024, Pogacar sarà al via
+-  एम3एम का सिटी ऑफ ड्रीम्स करेगा बच्चियों का पढने का ड्रीम पूरा
+-  Bigg Boss 17: Munawar Faruqi`s ex Ayesha Khan enters the house
+-  أرسنال يعود لصدارة الدوري الإنجليزي بعد الفوز على برايتون
+-  'The Crown' temporada 6, parte 2: final explicado de la serie de Netflix
+-  WOCHENEND-ÜBERBLICK Unternehmen/16. und 17. Dezember 2023
+-  Misterij povezan uz blizance: Ako jedan pati od opake bolesti, drugom prijeti ovaj problem
+-  ن لیگ کیساتھ سیٹ ایڈجسٹمنٹ، چوہدری سالک کا واضح ردِعمل آگیا
