@@ -1,51 +1,51 @@
 # Latest News
+-  Crime accused deported from UAE to Nepal
+-  Bibaha mahotsav begins in Janakpur
+-  IND vs SA 1st ODI 2023 Dream11 Team Prediction: पहले वनडे मैच में टीम इंडिया को काटें की टक्कर देने उतरेगी साउथ अफ्रीका की टीम, यहां जानें कैसे चुने बेस्ट फैंटसी प्लेइंग इलेवन
+-  پکڑ دھکڑ بند کر کے لیول پلیئنگ فیلڈ دی جائے،الیکشن لڑنے کے لئے قانونی حکمت عملی تیار کر لی: پرویز الٰہی
+-  IND vs SA 1st ODI Stats And Record Preview: टीम इंडिया और साउथ अफ्रीका के बीच खेला जाएगा हाईवोल्टेज मुकाबला, आज के मैच में बन सकते हैं ये बड़े रिकॉर्ड; यहां देखें आंकड़ें
+-  6 दिन और 42 चुनावी ईवेंट्स, अमेरिकी चुनाव में इस भारतीय ने बनाया रिकॉर्ड
+-  OJK Blocks 4,000 Bank Accounts Used for Online Gambling
+-  Rajasthan के दोनों डिप्टी सीएम के खिलाफ PIL दायर, वकील ने दोनों उप-मुख्यमंत्रियों की शपथ को बताया असंवैधानिक
+-  Se enfrentan inmigrantes al desalojo de los albergues de NY
+-  Ten Hag Mulai Gemas dengan Rashford
+-  Сакраменто 89:68 Юта, "кралете" със силно начало на второто полувреме, Везенков продължава да е на пейката
+-  Sedih Ketika Ulang Tahun? Mungkin Anda Kena Birthday Blues, Ini Gejala dan Penyebabnya
+-  Tim Bulu Tangkis Indonesia Tak Penuhi Target di BWF World Tour Finals 2023, Apa Kata PBSI?
+-  राहुल गांधी ने क्या ग़लत कह दिया? 10 साल में 20 करोड़ को नौकरी देनी थी, दी केवल 7 लाख को
+-  Нижегородский писатель Захар Прилепин объявил о скорой командировке в Донбасс
+-  Gibran ke Relawan: Jika Ada Nyinyiran-Fitnah, Tak Perlu Ditanggapi
+-  Range Rover Electric Sudah Bisa Dipesan
+-  韓職》樂天桃猿當年無緣的洋投 樂天巨人近3000萬續約
+-  Taking the Mick! Rolling Stones legend Sir Mick Jagger caught cheekily poking fun at Sir Paul McCartney in the studio as the Beatle recorded a track for Hackney Diamonds
+-  光田醫院慶祝110週年 員工熱舞「科目三」
+-  No tiene otra Claudia: debe cambiar a Pemex
+-  7 حالات تحدد تعرض ذوي الاحتياجات الخاصة للخطر.. تعرف عليها
+-  Prabowo Bilang Kalau Orang Baik Diam, Orang Tidak Baik Berkuasa
+-  Kasus COVID-19 DKI Naik Lagi 2 Kali Lipat, Rata-rata Bertambah 200 Tiap Hari
+-  IDF names two reserve soldiers killed in Gaza combat; Palestinians: Two killed in West Bank
+-  เผยผลสำรวจ ขึ้นค่าแรงขั้นต่ำ เงินเดือนข้าราชการ เหมาะสมดีแล้วหรือไม่?
+-  Минздрав Палестины сообщил о гибели более 19 тыс. палестинцев с начала конфликта
+-  Gambir Sempat Macet Imbas Aksi Pro Palestina, Bule-Motor Tembus Kerumunan
+-  Clarification: Guatemala-Mine-Verdict story
+-  Clarification: Guatemala-Mine-Verdict story
+-  배관공사 중 종업원 사망…안전조치 안한 업주 집행유예
+-  Kane fraglich: Müller für VfB „in der Verlosung“
+-  艾倫25分14籃板領軍！ 騎士擊敗老鷹終止近期三連敗
 -  Sudan'ın doğusundaki Gadarif'te olağanüstü hal ilan edildi
--  Ben Zucker: Open Air 2024
--  آخر تطورات العملية العسكرية الروسية في أوكرانيا /17.12.2023/
--  أرقام يورجن كلوب أمام مانشستر يونايتد
--  Is abdominal fat responsible for unmanageable diabetes? Expert comments
--  Çinli firmaların "pazar payını" işaret eden Tayland'dan, Japon firmalara "hızlı karar" çağrısı
--  Japonya gelecek yıl savunmaya 54 milyar dolar ayıracak
--  اعتراض وإسقاط 33 مسيرة جوية أوكرانية فوق 3 مقاطعات روسية
--  เช็กเลย กรมทางหลวง เปิดพื้นที่ กางเต็นท์ ให้ประชาชนฟรี 31 จุดทั่วประเทศ
--  Şeyh Sait Tartışması-I: Tarihsel gerçek ve sol
--  Why will South Africa don Pink jersey in 1st ODI against India?
--  Charlie Sheen says he's getting plastic surgery on his 'turkey gobbler' neck after watching himself on TV
--  Various News: EC3 Responds To Matt Cardona’s Challenge, WWE NXT Level Up Highlights, Latest UpUpDownDown Videos
--  Wirren ums 49-Euro-Ticket: Stendal könnte Nachahmer finden
--  なすなかにし那須 脳梗塞で手術
--  à¶šà¶«à·Šà¶©à¶½à¶¸à·š à·€à·�à¶± à¶¸à¶­à·’à¶±à·Š à¶ºà¶±à·Šà¶± à¶¶à·ƒà·Š -à¶½à·œà¶»à·’ à·€à¶½à¶§ à¶´à¶¸à¶«à¶šà·Š à¶…à·€à·ƒà¶»
--  Bear Grylls: మగవాళ్లు ఏడిస్తే జరిగేదేంటి? బేర్ గ్రిల్స్ బయటపెట్టిన షాకింగ్ నిజాలివీ..!
--  Currency Rate In Pakistan - Dollar, Euro, Pound, Riyal Rates On 17 December 2023
--  В Москве задержали рэпера после фразы на баттле об избиении беременной русской
--  FW浅野 サポ投げたチョコ食べる
--  إحصائية إيجابية لليفربول أمام مانشستر يونايتد
--  "מה שעשו לו, לא עושים אפילו לחיות", שניים הורשעו ברצח יובל ארבל-אקוס בהולנד
--  Wirren ums 49-Euro-Ticket: Stendal könnte Nachahmer finden
--  Diarrhoea outbreak claims 4 lives in Rourkela, over 100 hospitalised
--  G.L. Peiris to build a broad opposition force with SJB
--  F1-talli voi pian saada uuden nimen
--  Krieg gegen die Ukraine: So ist die Lage
--  Krieg gegen die Ukraine: So ist die Lage
--  الزهراني يتناول الأدب الكلاسيكي في ورشة بـ"كتاب جدة"
--  British businessman and diplomat Colin Armstrong 'is kidnapped from his home in Ecuador' as video appears to show bloody break-in
--  Butler encesta al final; Heat supera a Bulls 118-116
--  Demigod Idle X Unholy Blood crossover event lets you play as vampires from the iconic web comic
--  Örebroarna om årets julklapp: Brädspelet
--  Örebroarna om årets julklapp: Brädspelet
--  "อนุทิน" ลุยถนนข้าวสารเปิดผับถึงตี 4 นักท่องเที่ยวขอเซลฟี
--  Αντετοκούνμπο: Ο Γιάννης έβαλε τους γιους του να καθίσουν στον πάγκο των Μπακς (vid)
--  Invitan a apoyar 'Navidad Vaquera'
--  Pide Travis Kelce bendición a padre de Taylor para casarse
--  Video: Choca a auto estacionado y se da a la fuga
--  Anggota Rela diingat jaga keterampilan, berpakaian kemas – Zuhairi
--  PM Modi: పార్లమెంటులో భద్రత ఉల్లంఘన సహించరానిది... రాజకీయాలు చేయవద్దని ప్రతిపక్షాలను కోరిన మోదీ
--  ИИ обрел способность к самовоспроизведению - УЧЕНЫЕ
--  Jared Goff throws five TDs as Lions improve to 10-4 with 42-17 rout of Broncos
--  Tropical Depression Kabayan slows down east of Davao City
--  TÜRK-İŞ vergi düzenlemesi istedi
--  Nace la medicina CRISPR, con la promesa de salvar millones de vidas
--  Elon Musk, lo ‘woke’ y el salto conspiranoico desde el extremo centro a la extrema derecha
--  Krieg gegen die Ukraine: So ist die Lage
--  Krieg gegen die Ukraine: So ist die Lage
--  Power Knockout Mighty at Shinde
+-  Những giải thưởng, danh hiệu gây hoang mang
+-  Menaria credits HCA for 365 days of cricket, says Rajasthan statement on injury was a ‘mental trauma’
+-  Meta used copyrighted books for AI training despite its own lawyers’ warnings, authors allege
+-  Món bò kho của người Việt
+-  Seven reasons why Jacob Zuma WILL NOT vote ANC
+-  Javier Milei, Axel Kicillof y Patricia Bullrich: los dirigentes se expresaron en las redes sociales y dispusieron un importante operativo conjunto
+-  Historiker Timothy Garton Ash: „2024 wird ein schwieriges Jahr für Europa werden“
+-  Donald Trumps zweite Amtszeit: Die wachsende Angst vor einer Diktatur
+-  Lottery Sambad Result Today 17 December: আজ রবিবার, পশ্চিমবঙ্গ ডিয়ার লটারি সংবাদ রেজাল্ট জানুন অনলাইনে
+-  Horror: hallan a un hombre descuartizado dentro de una heladera
+-  Premier League und DFL: Beim Kampf um Investoren geht es um Milliarden
+-  DEBATT: Mer skyddad skog ingen lösning på utmaningarna
+-  Teueres Wohnen - Mietpreisdeckel: Wer in NÖ davon profitiert - und wer nicht
+-  COP28: Little substance behind the smokescreen
+-  NMB cholera patient recovering at home
+-  তিন বছর পর দেশে শাবনূর, সিনেমায় ফিরছেন কি
