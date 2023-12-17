@@ -1,11 +1,11 @@
 # Latest News
--  Enam Perkara yang Disunnahkan Wudhu, setelah Makan dan sebelum Tidur
--  "Es una catástrofe": tormentas en Bahía Blanca, Argentina, dejan al menos 13 muertos
--  María Paula Romo: “La fiscal está mostrándonos cómo funciona un narco-Estado”
--  Explosive Pictures Suggest ZRP Cops Staged Own Robbery Shoot-Out
--  Drone attacks intensify in Russia and Ukraine
--  IDF says they have killed Hamas members operating in schools
--  New York`s Met to return 14 stolen Cambodian artefacts
--  Rahul Gandhi after Parliament security breach: Where are the jobs?
--  Parliament security breach mastermind’s parents inconsolable, make plea
--  India to reducing dependency on fossil fuels, bring down emissions by 45 per cen
+-  مفاجأة.. نقل مبنى ضخم في كندا.. بالصابون
+-  대기업 총수 家, 지주회사 체제 외 계열사 353개…사익편취 발생 가능성 有
+-  感染者推論ホラーゲーム『悪夢のような日々でした』Steamにて1月1日配信へ。ヒト収容所で対峙する、モノクロの論理と恐怖
+-  "병역의무 이행하고 파!" 입대 위해 재검 신청한 ★들[MD스타]
+-  제15회 전자신문 ICT논문 공모대제전 영예의 얼굴들
+-  RIP: Former YFM presenter Nhlamulo ‘DJ Mulo’ Hlungwani dies
+-  В Ярославской области прошли парадом полторы тысячи Дедов Морозов
+-  우리가 로스트아크 캐릭터
+-  [부고] 오종석(아주경제 총괄사장)씨 모친상
+-  Yoon in hot seat over trips to France, Netherlands
