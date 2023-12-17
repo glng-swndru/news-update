@@ -1,11 +1,51 @@
 # Latest News
--  "בצפון קוריאה יש עיתונאים פחות חנפנים ממוטי קסטל ויהודה שלזינגר"
--  בני ריינה לא נרגעת: "השופט החליט לגנוב את ההצגה ופירק אותנו"
--  Media: budowa tuneli łączących Krym z Rosją i Helsinki z Tallinem jest kontrolowana przez te same osoby z Chin
--  Rzecznik UKE: od 19 grudnia część programów TVP będzie nadawana w nowym standardzie
--  Kouvot jatkoi arvokkaan korinaluspelaajansa sopimusta
--  Само 6 са новите случаи на COVID 19 във Варна за последното денонощие
--  Интер търси победа над Лацио след грешната стъпка на Юве
--  بريطانيا.. اختبار "الحبوب المعجزة" لمنع مؤقت للحمل لدى الرجال
--  الأحوال المدنية المتنقلة تقدم خدماتها في 21 موقعاً حول المملكة
--  Stephen Curry devient le premier joueur de l’histoire à planter 3500 3-points en carrière
+-  WATCH | Healthy Living Alliance talks on ultra-processed foods
+-  Young hits century as New Zealand see off Bangladesh in first ODI
+-  Tačna diјagnoza naše sumorne svakodnevice
+-  Papa Françesku feston sot ditëlindjen e 87-të
+-  Arshad Warsi recalls when he didn’t had work for three years
+-  ‘Lessons will be learnt' from mistaken hostage shooting
+-  Fortsatt internetavbrott i Gaza
+-  5 Nations Tournament: Indian men’s hockey goes down against Belgium
+-  Sixty-one migrants drown in shipwreck off Libya
+-  Sokak Fotoğrafçısını Kıramayan Zeynep ve Volkan Demirel Çifti "Bu Aşk Değil de Ne?" Dedirtti
+-  [인터뷰] 정지영 감독 "약자에 대한 편견 만연한 시대, 영화가 사회적 거울 역할 했으면"
+-  태민, 역대급 '거꾸로 매달린' 퍼포먼스 펼쳐…“진짜 뒤집어졌다”
+-  मुंबई की डॉक्टर ने प्रमुख उद्योगपति पर लगाया बलात्कार का आरोप
+-  THL:n tutkija: Tupakkatuotteiden hintaa korotettava ja ikäraja nostettava 20 vuoteen, jos lain tavoite halutaan saavuttaa
+-  Моррелл достроково здолав Агбеко та захистив WBA World у другій середній вазі
+-  Više od 60 migranata se utopilo u brodolomu kod obala Libije
+-  Vučević mogao samo da posmatra koš za pobjedu, ali i večeri,...
+-  Woman dies in Swindon after police cordon off street
+-  Fundraiser launched for funeral costs of missing mum Danielle Geraghty
+-  Gerrards Cross luxury home goes on sale for £6.5 million
+-  Driving in bus lane offence not enforced – council
+-  Самарқандда кўзи кўкарган болакайни отаси калтакламагани маълум қилинди.
+-  أول تعليق لتشافي بعد تعثر برشلونة للمباراة الثالثة تواليا
+-  Gazzetta - Krunic sempre più in panchina: a gennaio partirà, c'è il Fenerbahce
+-  Only solution is equality for Turkish Cypriots says minister
+-  Full telemedicine adoption remains distant
+-  AZAL Naxçıvan reysinin gecikməsi ilə bağlı açıqlama yaydı
+-  Female leadership race begins between Naver, Kakao
+-  WHO team calls Gaza's Al-Shifa hospital a 'bloodbath'
+-  KAIST's AI robot breaks 100-meter world record
+-  평창군-농촌진흥청, 노지 지능형 농업 시범지구 업무협약 체결
+-  평창 대화면 국토부 도시재생사업 공모 선정…국비 총 121억 확보
+-  도의원·양구군의원 재선거 입후보 안내 설명회
+-  양구군 장애인가족 송년 잔치 ‘해냄에(愛) 감사’ 행사
+-  양구군노인회장기 게이트볼대회
+-  Premier League: Crystal Palace launch late fightback to hold Man City 2-2
+-  [속보] 尹 대통령 "대설·한파에 취약계층 안전·돌봄 강화 선제 조치를"
+-  Konserden alacağı ücret konuşuluyordu: Kenan Doğulu iddiaları yalanladı!
+-  Bakan Göktaş müjdeyi paylaştı: 2 bin 392 engelli memur ataması daha yapılacak
+-  Asgari ücret görüşmelerinde 2. toplantı! Veriler masaya yatırılacak
+-  Yargıtay'dan boş kağıda atılan imza davasında emsal karar
+-  Abdülkerim Bardakcı'ya İspanya'dan talip
+-  Thafer: Körfez ülkeleri, Türkiye'yi hem yumuşak hem de sert güç olarak görüyor
+-  Asgari ücrette gözler yarınki toplantıda... İşte olasılıklar
+-  Metin Albayrak: Umarım Rıza hoca, Emrecan'a daha fazla süre verir
+-  “맨유가 리버풀보다 잘할 줄 알았지!”…해버지 前 스승의 빗나간 예측
+-  Tempestade mata ao menos 13 pessoas na Argentina
+-  Vikings' Justin Jefferson happy to play a full game, laments another close loss
+-  Jared Goff throws 5 TD passes as NFC North-leading Lions bounce back, beat Broncos 42-17
+-  Five extra points: Tush Push? How about Kevin O'Connell's 'Tush Tap' times two?
