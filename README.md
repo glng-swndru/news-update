@@ -1,51 +1,51 @@
 # Latest News
+-  Organic farming : సేంద్రియంగా ‘ఉన్నతి’...
+-  Benfica arranca vitória sobre o Braga. A ferro e fogo!
+-  Gul Panag : నాఫిట్‌నెస్‌ సీక్రెట్‌ ఇదే!
+-  فنانة نرويجية ترثي شهيدات غزة.. بذكرى شهيدة صقلية سانت لوسيا
+-  أهالي المحتجزين الإسرائيليين بغزة يعلنون الاعتصام
+-  نصائح مهمة لدى القيام بتخطيط السمع
+-  'Srbija protiv nasilja' demantuje Vučića: Nema govora da je SNS pobijedio u Beogradu
+-  Michał Probierz odkurzy niedawnego reprezentanta Polski? Klubowy trener jest nim zachwycony
+-  ساعة المسلة.. شيوخ نينوى يرفضون خطاب الخنجر الطائفي
+-  Marcelino: "Si encajamos tres goles por partido estaremos en segunda"
+-  "الزراعة" تطلق فرق إرشادية للنهوض بالمحاصيل الشتوية
+-  مدير حديقة الحيوان: أعداد القطط داخل الحديقة يصعب حصرها
+-  الداخلية تكشف نشاط صاحب محل صيد غسل 41 مليون جنيه حصيلة تجارة وتصنيع الأسلحة
+-  حل لغز اختفاء شاب بأسيوط والعثور على جثته في مصرف مياه
+-  بسبب أسطوانة بوتجاز.. إصابة طالب بطلق خرطوش شمالي قنا
+-  Nestorović odbio Vučićev poziv za koaliciju u Beogradu
+-  '효심이네 각자도생' 유이♥하준, 눈 맞으며 첫 키스…공식 커플 탄생
+-  닝닝, 초 근접 셀카에도 완벽한 비주얼
+-  삼진제약, '오너 2세' 조규석·최지현 사장 승진
+-  Business ideas - 50 हजार की मशीन से 2 लाख रुपए महीने की कमाई
+-  내년 소주 출고가 10.6% 인하 … 증류주 기준판매비율 도입
+-  SK하이닉스, AI 반도체 수혜에 14만원 찍었다 ... 연초 대비 85% 상승
+-  Luis Enrique, sobre Mbappé de '9': "Juega donde él decide"
+-  Determined Oban Lorne defeat Dalziel in driving rain
+-  House auction up for charity
+-  Alineaciones probables para la jornada 18 de LaLiga EA Sports
+-  Ugroženo poverenje u poreski sistem
+-  BIBD diiktiraf Bank Paling Kukuh Brunei
+-  Entire house in Blackburn collapses after huge explosion as neighbours evacuated & man rushed to hospital
+-  Mampukah Gibran Hadapi Debat Cawapres? Begini Jawaban TKN
+-  BLESS: Demi Lovato Is Engaged To Singer Jordan ‘Jutes’ Lutes After A Year Of Dating
+-  A. Šešelj: Nezadovoljni smo rezultatima, za neuspeh ne krivimo nikoga
+-  AFAD açıkladı: Gümüşhane'de 4.3 büyüklüğünde deprem
+-  Sensação de calor chegou aos 44°C no interior do RS
+-  OBUKLA ODELO, A ISPOD NJEGA NIŠTA! Stanija Dobrojević raširila sako, sevnuli OGROMNI SILIKONI - "Ljudi, šta je ovo?!"
+-  Duncan Egan: Verifying the authenticity of content in the age of AI
+-  Napad na adventskoj zabavi u Meksiku, najmanje 16 ubijenih
 -  פליק פלאקו לפנים: ניצחון דרמטי קירב את קליבלנד לפלייאוף
+-  Lille-PSG: la petite phrase de Mbappé à Chevalier avant de tirer son penalty
+-  Free online storytime
+-  Netball: UCU humiliate Bishop Stuart | AUUS Games 2023
+-  Miami propina paliza y blanqueada a Jets en duelo divisional
 -  Ljajić proglasio pobedu Sandžačke demokratske partije u Novom Pazaru
 -  Nueva Constitución: cerraron las mesas en Chile y ya se conocen los primeros resultados
+-  Gran exhibición del Real Madrid
+-  Lazio, Sarri: "Nei primi 20' del 2° tempo l'Inter non è entrata in area. Marusic? Gioco dove vedo..."
 -  "Какая глупость": во Франции возмутились решением ЕС по Украине
--  Германия — У правящей коалиции новый рекордный минимум
--  Top ten areas in the UK with the most traffic revealed – is yours on the list?
--  Top ten areas in the UK with the most traffic revealed – is yours on the list?
--  Una mujer y su menor hijo fueron encontrados sin vida en Huacané, Puno
--  El Real Madrid mete presión al Girona
--  DODIK IDE U BELORUSIJU: Situacija u toj zemlji slična je kao u Srpskoj
--  Veľké FINÁLE markizáckej Farmy: Historicky najvyššia výhra a... TOTO je VÍŤAZ!
--  [그래픽] 정권별 대통령 해외순방 경제사절단 구성 현황
--  Canal 5 VER EN VIVO, América vs. Tigres: hora de inicio y cómo ver la final Liga MX
--  Real Madrid upotti Keltaisen sukellusveneen
--  Lille-PSG: latéral droit à la place d'Hakimi ou milieu de terrain? Luis Enrique explique le nouveau rôle de Zaïre-Emery
--  김태흠 충남지사, "혁명적 사고가 필요한 때" ··· 친정에 쓴소리
--  충남도의회, 효율적인 학교급식 지원체계 구축 앞장
--  충남도의회 ‘지방의회법’ 제정 촉구 건의안 채택
--  충남도립대 건설안전방재학과, 건설관리사 66명 배출
--  ㈜블루트리, 훈훈한 사랑의 온정 펼쳐 '화제'
--  도담갤러리, 개관 3주년 기념식 및 초대전 개최
--  금천구, 2023년 마을공동체 시상식 ‘뽐’ 개최
--  양천구, 지역명소 ‘VR 투어’ 45개소로 확대
--  강서구 "올 겨울방학 행정실무 경험에 용돈은 덤"
--  관악구, 주소정보 안내도 제작 배포
--  Un error humano, posible causa del choque de dos trenes en Málaga
--  Melhores momentos: Bayern de Munique 3 x 0 Stuttgart (Bundesliga)
--  Ten Hag afirma que United teve “as melhores chances” em Anfield
--  Son dakika. Bir deprem daha. Bu kez Gümüşhane'de 4.3 oldu
--  Un error humano, posible causa del choque de dos trenes en El Chorro
--  Un error humano, posible causa del choque de dos trenes en Málaga
--  PSG uzatmalarda yıkıldı!
--  Gümüşhane'de 4,3 büyüklüğünde deprem
--  Original AC/DC drummer Colin Burgess has died at 77. The Australian helped form the group in 1973
--  ريال مدريد يهزم فياريال ويتصدر الليغا
--  Pogledajte koju je ocjenu Modrić dobio u Marci: ‘Mozak i pluća u nogometu su jednako važni‘
--  【衛健委詳解】呼吸道疫情高峰 正確戴口罩、勤洗手防傳染
--  Sp. Braga-Benfica, 0-1 (resultado final)
--  Colocan ofrendas en el lugar en el que fue asesinada hace 13 años
--  Descuartizó, violó y fotografió a sus víctimas: Ed Kemper, el gigante decapitador de colegialas
--  [그래픽] 증권업계 부동산 PF 현황
--  Γάζα: 90 νεκροί από ισραηλινούς βομβαρδισμούς στον καταυλισμό της Τζαμπάλια
--  Liverpul osudio napad na klupski autobus Junajteda
--  Pariski toranj krunisan novim zlatnim pijetlom
--  ג'יילן בראון כיכב, בוסטון הביסה את אורלנדו
--  Spotify has officially stopped working in Russia
--  天文台｜今日大致多雲 早晚有一兩陣微雨 最高氣溫約19度
--  500 క్లబ్‌లో లియాన్‌
--  Jaylen Brown's big 4th quarter carries Celtics to 114-97 win over Magic for 14-0 start at home
--  Son dakika! Gümüşhane'de 4,3 büyüklüğünde deprem
+-  Wagner-Brüder kassieren mit Magic nächste klare Niederlage
+-  12/18 各報重點新聞一覽
+-  Inter, Lautaro Martinez: "Un segnale a tutti, anche a noi stessi. Thuram? Fortissimo"
