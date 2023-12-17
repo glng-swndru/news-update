@@ -1,51 +1,51 @@
 # Latest News
--  المشاط: 10.3 مليار دولار حجم التمويلات التنموية الميسرة للقطاع الخاص منذ عام 2020
--  Astana vil gøre Mørkøv og kollegerne knivskarpe til OL
--  الأحد 17 ديسمبر 2023.. صعود جماعي لمؤشرات البورصة مع بداية تعاملات اليوم
--  التعاون الدولي تطلق منصة « حافِز » للدعم المالي والفني للقطاع الخاص
--  AIK lånar in Carl Åsell från Brödernas/Väsby
--  Zee Appoints Three New Independent Directors: Pinisetti, Desai, Agarwal Join The Media Conglomerate
--  קליש רותם הקפיאה את ישיבות מועצת העיר
--  Javier Milei prepara un amplio DNU con desregulaciones económicas y reformas laborales
--  Galatasaray'ın rakibi yarın belli olacak
--  Murat Boz'dan ilginç itiraf!
--  Loša ishrana destruktivno deluje na plodnost muškaraca i žena! (VIDEO)
--  Hamás dice que no habrá negociaciones sobre intercambio de rehenes sin cese del fuego
--  Indian Police Force Teaser: एक्शन के साथ सस्पेंस भी, रिलीज हुआ रोहित शेट्टी की इंडियन पुलिस फोर्स का टीजर
--  Når Karen Kildahl putter sine drenge, følger hun en bestemt tilgang. Hun har en række råd til andre forældre, der har svært ved at få børnene til at sove
--  Når Karen Kildahl putter sine drenge, følger hun en bestemt tilgang. Hun har en række råd til andre forældre, der har svært ved at få børnene til at sove
--  ביל מאהר שובר את הרשת: "לאן אתם חושבים שישראל תיעלם? אזהרת ספוילר: לשום מקום"
--  ישו, היטלר וחברים: קניה ווסט שחרר אמירות אנטישמיות חדשות
--  NOVE GNUSNE LAŽI ŠOLAKOVIH MEDIJA Vučić na glasanju bio sam, sreo se sa komšijama čekajući svoj red
--  삼성-ASML R&D 센터, 성과 가로채기라던 野 “사실과 달라... 논평 삭제”
--  メルセデスとレッドブルのF1代表が話題の“仲良し”写真の背景を説明
--  यूपी फार्मेसी स्पेशल काउंसलिंग का शेड्यूल जारी, यहां करें चेक
--  폭설에 ‘발동동’이 ‘차동동’으로…곳곳 차량 고립 사태난 강원도
--  Google Keep is getting ready to be the default notes app on Android 14
--  Rússia derrubou 35 drones ucranianos. Ucrânia abateu 20 aparelhos russos
--  Hollanda geri adım atarak Bulgaristan'ın Şengen'e katılmasını kabul etti
--  "Mümkün değil" denilmişti! ABD'li Coffey, iki gelişmeyi örnek gösterdi: Dünyaya ilham vermeli
--  Tahran'da 110 İran askeri için cenaze töreni düzenlendi
--  Oyuncu Strik: Sosyal medya sayesinde Gazze'de yaşanan soykırımı ABD'de gösterebiliyoruz
--  Beşiktaş transfer hedefini belirledi! 4 yıldız için geri sayım
--  Erdoğan-Erbakan görüşmesine ilişkin iddialara Yeniden Refah'tan açıklama: Tümüyle gerçek dışı
--  Memur ve emeklilere kötü haber! Mehmet Şimşek hesabını yaptı! En fazla yüzde 40...
--  Cuba regista 117 mulheres assassinadas até final de outubro
--  Trebevićka žičara u ovoj godini ostvarila 354.371 vožnju, 52 posto strani gosti
--  สหรัฐส่งโบราณวัตถุ 2 รายการที่ถูกขโมยคืนไทย
--  São Paulo tem exposição inédita de arte afro-brasileira
--  Отново обстрелват с дронове област Одеса
--  Schweinsteiger vor Bayern-Comeback? Hainer-Aussage lässt aufhorchen
--  Jogador encarna personagem de 'O Feiticeiro de Oz' e trai a namorada
--  Bakan Uraloğlu duyurdu! Şehirler arası yolcu otobüslerine hız takip sistemi geliyor
--  Yargıtay, boş kağıda atılan imza ile kiracının tahliyesini hukuka uygun buldu
--  Başkan Altay: Hz. Mevlana'nın 750. Vuslat Yılı bereketini yaşıyoruz
--  FETÖ'nün Konya'daki öğretmenlerden sorumlu imamı Adana'da yakalandı
--  Kickoff | Saudi Pro League director sends message to Salah
--  Θλίψη στον κόσμο της μόδας – Πέθανε ο σχεδιαστής Τόλης Σκουλαριώτης, εντοπίστηκε στο σπίτι του
--  EKMEK DAVASI
--  Mental fortitude keys to Creamline’s record 7th crown
--  Dilan Polat'ın paylaştığı 'Şampiyonlar Ligi'ne şok: Hızlı satış başlıyor
--  MATORA PRETI DA ĆE DA SE DISKVALIFIKUJE?! Zbog Anite javno obećala da će uraditi ovo, javnost u šoku
--  Pinto da Costa hospitalizado por precaução após sofrer acidente rodoviário
--  창원시 로컬푸드 우수 소비자 '수확 체험' 활짝
+-  '배유나 25점 폭발' 도로공사 대어 잡았다, 흥국생명 풀세트 접전 끝에 6연패 탈출
+-  Bakan Uraloğlu açıkladı: Şehirler arası otobüslerde hız takip dönemi başlıyor
+-  눈길 위 차량 이동시키는 경찰
+-  `음주뺑소니' 뇌사 새신랑 새생명 선물하고 하늘로
+-  `흑자 전환' 충북 무역수지 한달 만에 줄었다
+-  주소정책 성과 공유 워크숍 LX 충북지역본부 장관 표창
+-  현대엘리베이터 ETRI 등과 자율주행 로봇 서비스 `맞손'
+-  “의약외품 산업 선도 역할해주길”
+-  가스안전공사 충북 소외계층에 온정
+-  조금의 수고로움
+-  죽령옛길과 다자구 할머니(죽령산신) 이야기
+-  충북 64명 서울대 수시 합격 … 전년比 25.5%P ↑
+-  청주청원署, 도주 노래방 업주 살해 용의자 검거
+-  셀트리온 악템라 임상 3상 결과 공개 … 유효·안전성 확인
+-  충북 제약기업 스마트공장 구축 속도
+-  캠코 충북 압류재산 152건 공매
+-  조폐공사 인사혁신 우수사례 경진대회 `총리상' 수상
+-  LG화학 북미 양극재 공장 내일 `첫 삽'
+-  권혁중 전 문체부 부이사관 충주서 출판기념회
+-  국힘 정우택 국회부의장 청주서 출판기념회
+-  아파트값 2차 조정기 오나 … 실거래가지수 올해 첫 하락
+-  또 소신발언 … 존재감 키우는 김태흠 충남지사
+-  새로운선택 - 세번째권력 창당대회
+-  김영환 지사 베트남 출장길 … 우호협력·경제통상 강화
+-  충북도 하반기 도시재생사업 국비 330억 확보
+-  이영순 제천시의원 당선무효 확정
+-  유영재 충청권 대학 입학관리처장협의회장 선출
+-  청주 가마힐데스하임 작은 음악회
+-  운암3리 청석장학회 장학금·후원금 전달
+-  청주시 오근장동 주거환경정비 봉사
+-  한울라이온스클럽 쌀 기탁
+-  서청주농협 농산물직거래협 성금 기탁
+-  충북낙농농협 쌀 기탁
+-  청주 증안초 아버지회 연탄나눔 봉사
+-  서효민씨 현대산업디자인대상전 `대상'
+-  ㈜세종하이텍 청주문화재단에 후원금 1000만원 기탁
+-  이봉형 충북과학고 교사 `올해의 과학교사상'
+-  청주대 사랑의 봉사단 재능기부
+-  벤츠S클럽&청심회 사랑의 연탄나눔 봉사
+-  충북보과대 `리더십 캠프' 성료
+-  청주 퍼스트안과 충북대병원에 후원금
+-  방효성 작가 청주 쉐마국제미술상 선정
+-  김민호 회장 이웃사랑 `귀감'
+-  하늘의 별 김오랑이 지상의 별들에게 묻는다
+-  “버스 노선 불편사항 꼼꼼히 살필 것”
+-  청주시 갑진년 신년화두 `馬不停蹄'
+-  갈수록 어려지는 학폭 … 제도개선 절실
+-  신재호·이재수·장현봉·이종원 충북도 `올해의 도민대상' 수상
+-  청주시문화재단 임시이사회
+-  청주 옥화자연휴양림 새단장
