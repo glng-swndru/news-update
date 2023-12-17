@@ -1,11 +1,51 @@
 # Latest News
--  Arnold Schwarzenegger hands out Christmas gifts as he reflects on 'inclusion' when he moved to the US
--  ترامب: الوضع بالشرق الأوسط خرج عن السيطرة
--  قوات الاحتلال تقتحم الخليل ونابلس وقلقيلية
--  La inmunización de los bebés reduce los ingresos por bronquilitis en un 85%
--  Stavební spořitelny pomáhají klientům k energeticky úspornému bydlení
--  Fanb halló restos de una aeronave que violó el espacio aéreo en Zulia (FOTOS)
--  Keir Starmer is using the Tony Blair playbook to outflank the Tories on the Right, minister warns
--  »Börning Män« in Sailauf
--  Flüchtlinge sind großes Thema, »Seebrücke« ist es nicht
--  Covid-19: New Zealanders live with Covid – but should they pay for protection from it?
+-  Nhận hối lộ 5,2 triệu USD, cựu Cục trưởng của Ngân hàng Nhà nước đối diện với mức án tử hình
+-  صندوق التنمية العقارية يعلن عن تعليق الخصومات مؤقتًا.. لهذا السبب
+-  Giá vàng hôm nay 18/12: Các sự kiện quan trọng và dự báo "nóng" về giá vàng tuần này
+-  Liga de Quito se corona campeón de la LigaPro 2023
+-  ‘La ciudad perdida': descubre de qué trata la nueva joya de Netflix con Sandra Bullock y Brad Pitt
+-  Suomen ja Yhdysvaltojen puolustusyhteistyösopimus saa tänään puumerkit Washingtonissa
+-  อนุสรณ์ ชี้ฝุ่น PM2.5 กระเทือน ‘ศก.-ท่องเที่ยว’ ชง 14 แนวทางสู้
+-  Corea del Norte lanza un nuevo misil balístico hacia el mar del Japón
+-  تراند اليوم : بالفيديو.. الهويدي: أنمار الحائلي وكعكي ليس لهم ذنب في ما يحدث بالاتحاد!
+-  تراند اليوم : "أنا اللي لاعب لحالي"…شاهد: الدعيع : ‏بعض الجماهير لو تقول لها محمد الدعيع قالوا لقم 8 من ألمانيا!
+-  대웅제약 “펙수클루, 출시 2년 차에 위식도역류질환 치료제 2위”
+-  야놀자, 8억 상당 키오스크 기부…디지털 격차 해소
+-  중국도 한파에 '꽁꽁'…도시 20곳 올해 최저기온 기록
+-  Banci Pertanian 2024 libatkan 1.6 juta responden
+-  [글로벌] “생성 AI 활용으로 세계 정부 연간 1조 8천억 달러 절약”
+-  KT스카이라이프, 유튜브 프리미엄 제휴…방송 결합 요금제 출시
+-  스토케, 유아 여행 가방 '젯키즈 크루 백팩' 출시…'유아 트래블 컬렉션' 라인업 확대
+-  알바몬, 알바관리 서비스 '보스몬' 론칭
+-  [08:23 가상자산] 비트코인, 잇따른 비관론에 4거래일째 하락세
+-  SK가스, LPG 1톤 트럭 고객 위한 멤버십 출시
+-  [BioS]GC녹십자, ‘면역글로불린’ 면역결핍증 “美 FDA 승인”
+-  AMPM워시큐, '연말 감사제'...운동화 세탁기·건조기 무상 증정
+-  컴포즈커피 '사랑의 연탄 나눔' 봉사활동 전개
+-  PKO Bank Polski to stabilny partner, który wspiera mikro, małe i średnie firmy
+-  [MD포토] 아이브 장원영 '아침은 청순 열매'
+-  [MD포토] 아이브 장원영 '롱코트가 딱'
+-  [MD포토] 아이브 '한파를 녹이는 미모'
+-  [MD포토] 아이브 '한파도 잊게 하는 미모'
+-  [MD포토] 아이브 안유진 '단발에 롱패딩 딱이죠'
+-  [ESG] 롯데카드, ‘띵크어스 파트너스’ 기업 육성 프로그램 실시
+-  [이길우 변호사의 호크아이5] 지금 당장 운전자보험을 갱신해야 하는 두 번째 이유
+-  [MD포토] 아이브 가을 '원영아 같이 가'
+-  예매율 1위 '노량: 죽음의 바다', 더 스펙터클한 감동 안긴다…스페셜 포맷 포스터 공개
+-  [MD포토] 아이브 '추워도 너무 추워'
+-  [MD포토] 아이브 장원영·가을·이서 '추위도 예쁨 포기 못 해'
+-  [MD포토] 박보검 '너무 추워 웃음이 안 나와요'
+-  GS리테일 봉사단 GS나누미, 전국 릴레이 연탄 봉사 진행
+-  Israel bombardeia maternidade em Gaza; manifestantes pedem punição ao “estado terrorista”
+-  코오롱베니트, 한화오션 ‘SAP S/4HANA 전환 프로젝트’ 완료
+-  광고에 AI 적용한 LG CNS, ‘대한민국 디지털 광고 대상’ 수상
+-  Sabah FC snatch third place after beating Kedah 2-0 as 2023 Super League comes to an end
+-  روسيا تطلق منصة إلكترونية جديدة لمراقبة الدرونات والسكوترات الكهربائية
+-  인천 호텔 주차장 화재로 54명 중경상…합동감식 예정
+-  TVN dice presente en la Teletón 20-30 con su donación de $100,000
+-  الجيش السوري يدمر ورشا لتصنيع القذائف وتعديل المسيرات في إدلب
+-  سياسي عراقي: مؤشرات التصويت الأولي للقطاعات الأمنية والعسكرية في الانتخابات المحلية "تدعو للقلق"
+-  200만대 리콜에도 美 전문가 "테슬라 안전 문제 여전"
+-  Israel opens aid crossing to Gaza while stepping up bombardment
+-  Como o acordo sobre mudanças climáticas mudará o mundo?
+-  [기고] 한동훈 장관의 이민정책 공과(功過)
