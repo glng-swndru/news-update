@@ -1,51 +1,51 @@
 # Latest News
+-  Mick Foley Makes Surprise Appearance at ICW No Holds Barred, Attacks Another Wrestler
+-  300.000 Briefe sind in Weihnachtspostfilialen eingetroffen
+-  Palkka nopeasti jopa 100 000 e/vuosi: Kaksi huippukonsulttia paljastaa, miten kovamaineiselle alalle pääsee
+-  خیبرپختونخوا میں امن کے ثمرات، چترال میں کالاش فیسٹیول کا آغاز، وادی سوات میں سیاحت میں اضافہ
+-  Jake Paul Shoots Down Idea Of Wrestling His Brother in WWE
+-  정경민 경북도의원, "유휴시설을 예술인과 주민을 위한 문화예술 공간으로 재활용해야"
+-  “마약으로 억울하게 당한” 지드래곤, 혐의 벗고 새 소속사+신곡 발표 커밍순[MD이슈](종합)
+-  이순신의 마지막 전투 '노량' 예매율 1위 등극, "대한민국이 움직이기 시작했다" 흥행예고
+-  '쓰저씨' 김석훈, 한달 지출 100만원↓…유재석 울린 마이웨이→최고 시청률 8.4% [종합]
+-  박명수, 토크 콘서트 라인업 화려하네…"라인업 에스파→세븐틴, 오프닝 MC는 조남지대" [라디오쇼](종합)
+-  India's Rahul happy to be flexible in tests, T20Is
+-  언론인권상 공로상 정치하는엄마들 “‘장애아동 학대’ 인권침해 보도 비판”
+-  Мужчина и два ребёнка погибли в результате пожара в Ижевске
+-  Metro prep hockey roundup for Saturday, Dec. 16
+-  Khawaja and Marsh take lead over 400 on pitch playing tricks
+-  ¡En plan grande! Charros vence a Guasave y extiende su racha positiva en la LMP
+-  TKN Prabowo-Gibran Bungkam soal Penyalahgunaan Kredit BPR di Jawa Tengah yang Diduga Mengalir ke Koperasi Garudayaks
+-  Израелски военни погребали живи палестинци в двора на болница "Камал Адуан" ВИДЕО
+-  수도권매립지관리공사, 드림파크CC 친선골프대회 수익금 1천500만 원 지역사회 기부
+-  인천시 연수구 보건소-대한노인회 연수구지회, 치매관리사업과 노인건강사업 추진 업무협약
+-  인천공동모금회, ‘2023년 따뜻한 겨울나기 지원사업’ 배분금 전달
+-  दि राइजिङ नेपाल ५८ औँ वर्षमा प्रवेश
+-  Toddler killed after being hit by car in Dandenong North
+-  Toddler killed after being hit by car in Dandenong North
+-  আজিজ পাইপসের এজিএমের তারিখ পরিবর্তন
+-  Η Ρωσία κατέρριψε 33 μη επανδρωμένα αεροσκάφη που εκτοξεύτηκαν από την Ουκρανία
+-  Gazir revalida su título del FMS España
+-  Deutsche Brigade in Litauen soll in Dienst gestellt werden
+-  Borbás Marcsi harmadik férje: Dezsővel a munkában is társak
+-  El contraste entre Powell y Lagarde, y lo que hacen en verdad los ingenieros
+-  ‘หมู ปากน้ำ’ สร้างประวัติศาสตร์โค่น ‘ฮิกกินส์’ เข้าชิง สกอตติช โอเพ่น 2023
+-  Grey`s Anatomy actor Jack Axelrod passes away at the age of 93
+-  Carolina Hurricanes laittoi suomalaisvahti Antti Raannan siirtolistalle – "He eivät selvästikään ole tyytyväisiä"
 -  Crime accused deported from UAE to Nepal
 -  Bibaha mahotsav begins in Janakpur
+-  Kurnool: కారుణ్య నియామకాల జీవోలో మార్పు
+-  E-Auto-Prämie: SPD-Fraktion fordert langsameren Förderstopp
+-  مخاوف من تفشٍ جديد لـ«الكوليرا» في اليمن
+-  New Samsung, LG laptops drive industry shift toward on-device AI
+-  Shai Gilgeous-Alexander drains game-winning shot as Thunder knock off Nuggets in Denver
+-  롯데건설, '롯데캐슬 시그니처 중앙' 견본주택 개관…신안산선 수혜 기대
+-  Heini hurahti fitness-urheiluun, kunnes havahtui ja hakeutui terapiaan: ”Mitä järkeä”
+-  Deutsche Brigade in Litauen soll in Dienst gestellt werden
+-  С 30% се увеличиха пенсионерите с над 1000 лв. пенсия
 -  IND vs SA 1st ODI 2023 Dream11 Team Prediction: पहले वनडे मैच में टीम इंडिया को काटें की टक्कर देने उतरेगी साउथ अफ्रीका की टीम, यहां जानें कैसे चुने बेस्ट फैंटसी प्लेइंग इलेवन
 -  پکڑ دھکڑ بند کر کے لیول پلیئنگ فیلڈ دی جائے،الیکشن لڑنے کے لئے قانونی حکمت عملی تیار کر لی: پرویز الٰہی
 -  IND vs SA 1st ODI Stats And Record Preview: टीम इंडिया और साउथ अफ्रीका के बीच खेला जाएगा हाईवोल्टेज मुकाबला, आज के मैच में बन सकते हैं ये बड़े रिकॉर्ड; यहां देखें आंकड़ें
+-  Académica-Sporting B, 0-0: preço dos pontos
+-  Το «γλείψιμο» του Ευάγγελου Μυτιλιναίου στον Μητσοτάκη και την κυβέρνηση.
 -  6 दिन और 42 चुनावी ईवेंट्स, अमेरिकी चुनाव में इस भारतीय ने बनाया रिकॉर्ड
--  OJK Blocks 4,000 Bank Accounts Used for Online Gambling
--  Rajasthan के दोनों डिप्टी सीएम के खिलाफ PIL दायर, वकील ने दोनों उप-मुख्यमंत्रियों की शपथ को बताया असंवैधानिक
--  Se enfrentan inmigrantes al desalojo de los albergues de NY
--  Ten Hag Mulai Gemas dengan Rashford
--  Сакраменто 89:68 Юта, "кралете" със силно начало на второто полувреме, Везенков продължава да е на пейката
--  Sedih Ketika Ulang Tahun? Mungkin Anda Kena Birthday Blues, Ini Gejala dan Penyebabnya
--  Tim Bulu Tangkis Indonesia Tak Penuhi Target di BWF World Tour Finals 2023, Apa Kata PBSI?
--  राहुल गांधी ने क्या ग़लत कह दिया? 10 साल में 20 करोड़ को नौकरी देनी थी, दी केवल 7 लाख को
--  Нижегородский писатель Захар Прилепин объявил о скорой командировке в Донбасс
--  Gibran ke Relawan: Jika Ada Nyinyiran-Fitnah, Tak Perlu Ditanggapi
--  Range Rover Electric Sudah Bisa Dipesan
--  韓職》樂天桃猿當年無緣的洋投 樂天巨人近3000萬續約
--  Taking the Mick! Rolling Stones legend Sir Mick Jagger caught cheekily poking fun at Sir Paul McCartney in the studio as the Beatle recorded a track for Hackney Diamonds
--  光田醫院慶祝110週年 員工熱舞「科目三」
--  No tiene otra Claudia: debe cambiar a Pemex
--  7 حالات تحدد تعرض ذوي الاحتياجات الخاصة للخطر.. تعرف عليها
--  Prabowo Bilang Kalau Orang Baik Diam, Orang Tidak Baik Berkuasa
--  Kasus COVID-19 DKI Naik Lagi 2 Kali Lipat, Rata-rata Bertambah 200 Tiap Hari
--  IDF names two reserve soldiers killed in Gaza combat; Palestinians: Two killed in West Bank
--  เผยผลสำรวจ ขึ้นค่าแรงขั้นต่ำ เงินเดือนข้าราชการ เหมาะสมดีแล้วหรือไม่?
--  Минздрав Палестины сообщил о гибели более 19 тыс. палестинцев с начала конфликта
--  Gambir Sempat Macet Imbas Aksi Pro Palestina, Bule-Motor Tembus Kerumunan
--  Clarification: Guatemala-Mine-Verdict story
--  Clarification: Guatemala-Mine-Verdict story
--  배관공사 중 종업원 사망…안전조치 안한 업주 집행유예
--  Kane fraglich: Müller für VfB „in der Verlosung“
--  艾倫25分14籃板領軍！ 騎士擊敗老鷹終止近期三連敗
--  Sudan'ın doğusundaki Gadarif'te olağanüstü hal ilan edildi
--  Những giải thưởng, danh hiệu gây hoang mang
--  Menaria credits HCA for 365 days of cricket, says Rajasthan statement on injury was a ‘mental trauma’
--  Meta used copyrighted books for AI training despite its own lawyers’ warnings, authors allege
--  Món bò kho của người Việt
--  Seven reasons why Jacob Zuma WILL NOT vote ANC
--  Javier Milei, Axel Kicillof y Patricia Bullrich: los dirigentes se expresaron en las redes sociales y dispusieron un importante operativo conjunto
--  Historiker Timothy Garton Ash: „2024 wird ein schwieriges Jahr für Europa werden“
--  Donald Trumps zweite Amtszeit: Die wachsende Angst vor einer Diktatur
--  Lottery Sambad Result Today 17 December: আজ রবিবার, পশ্চিমবঙ্গ ডিয়ার লটারি সংবাদ রেজাল্ট জানুন অনলাইনে
--  Horror: hallan a un hombre descuartizado dentro de una heladera
--  Premier League und DFL: Beim Kampf um Investoren geht es um Milliarden
--  DEBATT: Mer skyddad skog ingen lösning på utmaningarna
--  Teueres Wohnen - Mietpreisdeckel: Wer in NÖ davon profitiert - und wer nicht
--  COP28: Little substance behind the smokescreen
--  NMB cholera patient recovering at home
--  তিন বছর পর দেশে শাবনূর, সিনেমায় ফিরছেন কি
