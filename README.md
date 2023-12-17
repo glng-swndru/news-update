@@ -1,51 +1,51 @@
 # Latest News
--  Bakan Fidan Kuveytli mevkidaşı ile görüştü: Taziyelerini iletti
--  İşgalci İsrail Cibaliye'ye hava saldırısı düzenledi: Onlarca kişi hayatını kaybetti
--  Bakan Göktaş: Yeni yılda 2 bin 392 engelli ataması yapılacak
--  Erdoğan'dan Eczacıbaşı ve VakıfBank için tebrik mesajı
--  The cult £2.83 hair hero, the £5 blusher make-up gurus love, and the seriously clever £5.99 skin perfector... Brilliant budget beauty buys - as voted for by YOU!
--  Zach Wilson exits Jets-Dolphins early in the second quarter to 'hydrate' after being sacked four times with veteran Trevor Siemian replacing the QB
--  Inge van Lotringen's Better not younger... When it comes to scent, these oldies are still the best
--  Jutes breaks silence after getting engaged to Demi Lovato: 'I can't imagine life without you!'
--  Jelly Roll and Bunnie Xo forgot their wedding anniversary date so decided to renew their vows
--  S&P 500 posts longest weekly winning streak since 2017
--  News24 | Here are the Daily Lotto numbers
--  Real Madrid-Villarreal, en directo
--  اتفاق الصخيرات.. سلم تصلق عليه الإخوان للسيطرة على ليبيا
--  Llegan y llegan más migrantes a la puerta 36
--  Diogo Dalot sent off after receiving two yellow cards for dissent in a matter of seconds as Man United fans hit out at referee for 'joke' decision during Liverpool draw
--  Kung Fu Panda 4 director hints at a sequel trilogy
--  2023 showed us the cost of pushing singleplayer developers to make multiplayer games
--  « La Princesse de Montpensier », sur Ciné+ Emotion : des amours à la fois authentiques et modernes
--  Hellas Verona, Baroni: "Oggi tanti palloni che prima puoi esultare e poi calciarli"
--  El Consejo de Participación de Doñana analiza el acuerdo entre Junta y Gobierno
--  SVE VIŠE STRANACA U BIH Ove godine najviše ih je stiglo iz Turske, a raste broj zaposlenih iz dvije azijske države
--  Pakistan's migrant burden is far larger than Britain's - we have every right to do something about it
--  [사설] “혁신 없으면 10년 후 역성장” 한은 경고 되새겨야
--  En Mérida las autoridades organizan concursos por Navidad
--  UPALI NA ŽURKU I OTVORILI VATRU - 11 MRTVIH! Masakr na proslavi mladih, 12 osoba ranjeno u pucnjavi (FOTO)
+-  Martina dala zlatni gumb Tijani i Marku: Fatalni poljubac je presudio, a s nogu je oborio i Maju
+-  Officials say fire at transfer station in Cranbrook, B.C. was ‘intentionally’ set
+-  André Carrillo destaca en el equipo de la semana en Arabia Saudí
+-  في حاجة غلط.. أحمد موسى: "حماية المستهلك" وجه ضربة قوية لمحتكري البصل
+-  الجارديان: واشنطن ستعلن إطلاق قوة بحرية تضم دولًا عربية لمكافحة هجمات الحوثيين بالبحر الأحمر
+-  "سيتا": تغييرات جديدة في قيادات المطارات لتطوير تكنولوجيا المعلومات
+-  رئيسا الجامعة البريطانية والشارقة يبحثان التعاون المشترك والتبادل الطلابي
+-  صدمه توكتوك.. تامر أمين يكشف تفاصيل حالة وسيم السيسي الصحية
+-  Panchkula News: डेबिट कार्ड बदल कर 74 हजार रुपये ठगने वाला आरोपी गिरफ्तार
+-  Kushinagar News: कलश यात्रा के साथ शुरू हुई श्रीमद्भागवत कथा
+-  إليكم العواقب السلبية لتناول المُسكنات المُنوّمة
+-  Oportunismo, rebote y gol al ángulo: Lucas Beltrán le dio un triunfo clave sobre el final a la Fiorentina ante Hellas Verona
+-  Μαργαρίτης Σχοινάς: Η Ευρώπη διαθέτει 4 δισεκατομμύρια ευρώ στην Ελλάδα για κατάρτιση
 -  AfD se hace con la primera alcaldía de una ciudad importante de Alemania
--  Projet de loi immigration: "La gauche a commis une erreur en rejetant le texte, il valait mieux en discuter", affirme Laurent Joffrin
--  Livaja bez dlake na jeziku otkrio što je bio najveći problem Hajduka, ali i priznao: ‘Napokon miran Božić!‘
--  Gudļevskim otrā sausā spēle šosezon, Skvorcovs un Pavlovs turpina punktu virknes
--  Scotland’s climate changing at alarming rate with average temperatures reaching levels not expected until 2050
--  Woman splits internet after claiming to background check everyone she’s ever met
--  Dominancia Žiliny bola takmer zastavená, Topoľčany a Považania víťazne
--  "ULOŽENI MILIONI, TERORISTI SU POSEBNO DOŠLI DA GA GRADE" Izraelske trupe otkrile najveći tunel Hamasa u blizini graničnog prelaza Gaze (FOTO/VIDEO)
--  Daniel Jadue habló sobre polémico momento en que bajó el micrófono de periodista de CNN Chile ante una pregunta
--  Nederlandse ijshockeyers zien olympische droom dag na recordzege uiteenspatten
--  Bürgergeld: Sozialhilfe-Empfängerin bekommt Miete bezahlt – und schuldet Vermieter trotzdem 580 Euro
--  Sivaji : విన్నర్ నేనే, నాకు తెలుసు - ‘బిగ్ బాస్’పై శివాజీ షాకింగ్ కామెంట్స్
--  First Dates star Cici Coleman sends fans wild as she strips naked for bubble bath
--  Srušio nestvarni rekord za Dinamo i ostao razočaran: ‘Malo nas je ‘iskidao’, a tablica izgleda ružno’
--  Battling Man Utd Hold Liverpool As Arsenal Top Premier League
--  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
--  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
--  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
--  THY Avrupa Ligi'nde hakeme ırkçı söylemde bulunan taraftara ömür boyu men cezası
--  సంపద సృష్టిలో రిలయన్స్‌ టాప్‌
--  Cambridge scientists say cancer drugs could help to treat heart disease and gout
--  Τσολάκης: «Αυτός δεν είναι ο Απόλλων που θέλουμε»
--  Chelsea, Gallagher: "Che la vittoria ci dia la fiducia necessaria per andare avanti"
--  A franciák erődemonstrációt tartottak, hibátlan mérleggel ültek fel a világ tetejére
--  Liverpool Held To Home Draw By Man Utd In Drab Affair
+-  Sambhal News: चोरी की 18 बैटरियों के साथ चार बदमाश गिरफ्तार
+-  Jammu News: कश्मीरी पेपर माशी की धमक... यूरोप से अमेरिका तक चमकेंगे क्रिसमस के स्टार
+-  El presidente de México celebra la construcción de 12 obras durante 2023
+-  सभी केंद्रों के ध्यानार्थ::: शहर में पहली बार होगी इंटरनेशनल रेटिंग रैपिड शतरंज स्पर्धा
+-  Günün ULDUZ FALI: subaysınızsa, bəxtəvərliyə nail ola bilərsiniz
+-  Parlamentaras siūlo amžiaus ribą kandidatuoti į merus kelti iki 21 metų
+-  Panchkula News: कालका-शिमला रेलमार्ग पर आज से चलेगी अतिरिक्त हाॅली-डे स्पेशल टॉय ट्रेन
+-  Varanasi News: बेटियों संग उपाधि पाकर खिल उठे छात्राओं के चेहरे
+-  Moradabad News: कपूर कंपनी पुल को चालू कराने के लिए किया प्रदर्शन
+-  김민재 ‘뮌헨 데뷔골’ 터졌다!... 뮌헨은 슈투트가르트에 3-0(후반 18분)
+-  Moradabad News: कांग्रेस की यूपी जोड़ो यात्रा 25 की शाम को पहुंचेगी
+-  Noida News: ट्रैफिक नियम तोड़ने वालों की संख्या में साढ़े तीन गुना इजाफा
+-  Jammu News: लांचिंग पैड पर 250 आतंकियों की सूचना से सीमा पर हाई अलर्ट, गश्त बढ़ाई
+-  Kushinagar News: मेजबान आजाद स्पोर्टिंग क्लब ने एनई रेलवे को हराया
+-  Путин нарече "пълна глупост" думите на Байдън, че Русия ще нападне страна от НАТО
+-  „Premier“ lygoje „Arsenal“ užsiropštė į viršūnę, o ją medžiojanti „Liverpool“ barstė taškus
+-  بعد ليلة المفرقعات السياسية..
+-  Apuntan a un error humano en el choque de dos trenes en Málaga
+-  L'otage sud-africain Gerco van Deventer, retenu au Mali, a été libéré après six ans de captivité
+-  Manchester United fans will love Andre Onana’s response to Virgil van Dijk’s timewasting jibe down the tunnel at Anfield
+-  Teletón 20-30 superó la meta. La recaudación fue de 2 millones 538 mil dólares
+-  مذكرة تفاهم لرفع جودة مخرجات برامج التعليم والتدريب
+-  Sambhal News: किसानों से मारपीट में बलवा-मारपीट में रिपोर्ट दर्ज, पांच बाउंसर समेत छह गिरफ्तार
+-  कलयुग में श्रीमद्भागवत कथा सुनने से होती है मोक्ष की प्राप्ति: अशोक कृष्ण
+-  Ciudad en Texas emite una orden de quedarse en casa tras la liberación de sustancias químicas desde una refinería
+-  Voetganger doodgereden in Gilze
+-  Szétszedték Joe Biden feleségét a Fehér Ház karácsonyi videója miatt
+-  KOLDA : Le casa sport de Ziguinchor étrenne sa première victoire de la saison...
+-  삼바 이어 셀트리온도 ‘아일리아’ 美 용법특허 무효화 도전
+-  Moradabad News: शहरी बूथ पर 200 और ग्रामीण बूथ पर सौ लोगों को नमो एप डाउनलोड कराना अनिवार्य
+-  जम्मू-कश्मीर के विशेष दर्जे की बहाली के लिए संघर्ष जारी रखेंगे : महबूबा
+-  Mohali News: होमी भाभा सरकारी कैंसर अस्पताल में आने वालों मरीजों के लिए धर्मशाला तैयार
+-  Ni Valles salva lo inevitable
+-  Simic: "Ho avuto la possibilità di esordire oggi e sono ancora più contento di aver segnato"
+-  De Rosalía a Taylor Swift, un 2023 de rupturas, nacimientos y octogenarios perseverantes
+-  Izraeli dhe Hamasi të hapur për armëpushim, por mosmarrëveshjet vazhdojnë
