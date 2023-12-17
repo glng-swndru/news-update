@@ -1,11 +1,11 @@
 # Latest News
--  İsrail küresel ticareti de vuruyor
--  Vinculan a proceso a presunto feminicida de madre e hija
--  Graban en Capitolio de EU... ¡video porno!
--  حدثان عربيان ضمن قائمة أكثر 10 أشياء بحثًا عام 2023 في "جوجل"
--  Trump says immigrants ‘poisoning the blood’ of America, echoing Nazi rhetoric
--  Trump says immigrants ‘poisoning the blood’ of America, echoing Nazi rhetoric
--  자산가들, 예적금 늘리고 부동산 줄였다…단기 투자처는 '주식'
--  주담대 변동금리 더 오른다...신규코픽스 1년만에 4%대로
--  '300조원' 운용의 출발점, 미래에셋자산운용 홍콩법인 설립 20주년 맞아
--  2023년 영천청년센터 성과공유회 개최!
+-  Sales of Hyundai, Kia in US exceed 1.5 mil. this year
+-  Día del Contador Público: por qué se celebra cada 17 de diciembre en Argentina
+-  Hanthony Coello fue reelecto como presidente de la FVB
+-  Shruti Haasan Makes SHOCKING Revelation About Relationship With Alcohol: 'I Have Zero Regrets'
+-  Australia v Pakistan: first Test, day four – live
+-  Өнөөдөр ихэнх нутгаар цаг агаар тогтуун байна
+-  Maxilase, Toplexil, Actifed... Des médicaments inutiles, voire dangereux, selon une revue médicale
+-  Royaume-Uni: Rishi Sunak compte envoyer les demandeurs d'asile au Rwanda
+-  Mer Rouge : le destroyer américain USS Carney a abattu 14 drones lancés par les Houthis
+-  Maersk, MSC, CMA CGM, Hapag Lloyd, les géants du maritime évitent la mer Rouge à cause des attaques répétées des Houthis
