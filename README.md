@@ -1,4 +1,32 @@
 # Latest News
+-  حديقة الحيوان: منح مكملات غذائية للحيوانات لتحسين حالتها الصحية
+-  الفريق أسامة ربيع: 10.3 مليارات دولار إجمالي إيرادات قناة السويس لهذا العام
+-  'We Are Spanish Bye' se lleva la Parada Tier 1 del Circuito Tormenta en Gamergy
+-  Los Colts vencen a los Steelers y se afianzan entre los comodines de la AFC
+-  ¿Por qué Mauricio Macri no fue a votar en las elecciones en Boca?
+-  مقاتلة إسرائيلية تقصف أهدافا لحزب الله
+-  서울 아파트 실거래가지수 0.08%↓, 올해 첫 하락 ... '2차 하락' 현실화
+-  „Nordkorea gleich wie Südkorea“ - Mit absurdem Statement verteidigt Fifa-Präsident Infantino WM-Bewerbung
+-  Brother's Grimm - a cautionary Christmas tale involving alcohol and pepper spray
+-  أيندهوفن يكتسح ألكمار برباعية في الدوري الهولندي
+-  Westlake Boys High defeat top Irish college to win World Schools Festival
+-  Sabeckio debiutas naujoje komandoje paženklintas 11 rezultatyvių perdavimų
+-  Inter vence Lazio e isola-se (ainda mais) no topo da Serie A
+-  مسؤول مصري: لا وجود لأزمة في السُكر
+-  Mínimas abaixo de zero: aviso amarelo de tempo frio para Bragança, Guarda, Vila Real e Viseu
+-  Pucnjava u Meksiku: Ubijeno 11 osoba, 12 ranjeno
+-  Lautaro i Tiram kaznili Lacio, Inter ne da vrh VIDEO
+-  Primeiras projeções na Sérvia apontam para vitória do partido no poder
+-  బీఈఈ మీడియా సలహాదారుగా చంద్రశేఖర్‌రెడ్డి
+-  PSV’s unstoppable run continues with 0-4 win in Alkmaar
+-  Descubren una nueva especie de tarántula y la nombran en honor a Satanás por su "mal temperamento"
+-  '구관이 명관이네' 2024 외인 구성 60% 완료, 두산·KIA만 감감무소식이다
+-  "장타력 돌아온다면, 횡재 될 것"…'5홈런→24홈런' 부활의 신호탄 쏜 외야수, NL 챔피언과 3년 547억에 재결합
+-  Franța domnului profesor Krumbholz
+-  Video: ¡Bloqueo salvador del ecuatoriano William Pacho en el fútbol de Alemania!
+-  BTS’s Jimin And Jungkook, LE SSERAFIM, And FIFTY FIFTY Top Circle Weekly Charts
+-  ఆధునిక వైద్య విధానాలతో క్యాన్సర్‌కు చికిత్స
+-  Fiscalía de Ecuador dispone localización e inmovilización de Jorge Glas
 -  북한, 17일 김정일 12주기에 단거리 탄도미사일 발사 (종합)
 -  [기자수첩] 새 술은 새 부대에
 -  [찐에듀⑫] '아이캔두' vs '써밋' vs '스마트올' vs '코코블'
@@ -6,46 +34,18 @@
 -  이랜드, 온·오프 투트랙으로 패션사업 확장 '드라이브'
 -  인천 논현동 호텔 주차장 화재로 54명 중경상 (종합)
 -  قيادات مكتب الشهيد لـ «الأنباء»: عاش جابراً للخواطر وساعياً في لمّ شمل شعبه
+-  Politik-News im Überblick: Keine „Förder-Garantie“: Lindner zum Ende der E-Auto-Prämie
+-  Vučić proglasio pobjedu SNS-a, cenzus prešlo pet lista
+-  Bakan Yerlikaya'dan depreme ilişkin ilk açıklama. 'Yakından takip ediyoruz'
+-  Chiefs beenden Niederlagen-Serie
+-  Will Levis injured at end of Titans' 19-16 loss to the Texans in OT
 -  Rezervista David osigurao bod Lilleu u duelu protiv PSG-a
+-  Chiefs beenden Niederlagen-Serie
+-  Proudly weird neurodiverse comedian earns prime spot at Melbourne comedy festival
+-  El extraordinario caso del agujero negro GRS 1915+105
 -  Urspårning på Malmbanan – stopp i flera veckor
--  مقتل 12 شخصا في هجوم مسلح خلال احتفال ديني بوسط المكسيك
--  نائب محافظ الوادي الجديد تتفقد فعاليات برنامج المرأة تقود في المحافظات المصرية
--  Urspårning på Malmbanan – stopp i flera veckor
--  Colby Covington SLAMMED by UFC fighters after Leon Edwards defeat as Michael Chandler tells his fellow American star: 'You SUCK'
--  Biden campaign says Trump 'parroted Adolf Hitler' in New Hampshire rally remarks
--  Pazzini elogia Simic: "Mi ha convinto prima e dopo il gol: concentrato fino al 90°"
--  مهاب مميش: علينا الاستعداد لاتخاذ الإجراء اللازم للمحافظة على الملاحة بقناة السويس
--  APSOLUTNA POBEDA VUČIĆEVE LISTE: Predsednik se obratio naciji - Beskrajno sam srećan (VIDEO)
--  An 86-year-old Black Woman Died at a FedEx Facility… And She Isn’t The First
--  Σεισμός 4,1 Ρίχτερ κοντά στη Κωνσταντινούπολη
--  Eln acuerda con el Gobierno cesar los secuestros con fines económicos
--  Colombia va de menos a más y derrotó a México en amistoso
--  Ferrarin F1-auto uudistuu 95-prosenttisesti - ”Näytämme joko tyhmiltä tai megasankareilta”
--  Raseri mot britternas troféjakt – i Norden
--  VIDEO: Nemilosrdni PSV nastavlja povijesni niz, riješili derbi za 15 minuta!
--  Glen Powell Reveals What He Wants In A Romantic Relationship
--  Doja Cat puts on a curve-popping display in VERY skimpy sheer dress as she strikes a pose in LA amid her Scarlet Tour
--  Les jouets de seconde main s'invitent sous le sapin
--  Marché des hydrocarbures : L'OPEP et l'AIE tablent sur une demande résiliente en 2024
--  La SEC refuse la demande de Coinbase de réglementation pour les cryptos
--  Planifier son jardin pour l'année prochaine
--  On vous a volé un anneau pénien? La Confédération peut vous aider
--  Captcha
--  Le nombre des faillites toujours à la hausse
--  Un nouveau gain millionnaire au tirage du Swiss Loto | Radio Lac
--  2024, l'année des obligations, enfin
--  La Fed change de ton | Engie et Iliad sur le marché primaire | Le dollar devrait se ressaisir
--  Malgré sa durée de vie limitée, le papier cadeau reste un indispensable à Noël
--  Un succès au-delà des attentes pour la maison du Père Noël
--  Joan Le Goff: «La nostalgie, c'est du pain bénit pour le marché de l'occasion»
--  Francuska poziva na trenutno i trajno primirje u Gazi: “Previše je civilnih žrtava”
--  ‘Human ATMs’: Crackdown on providers ripping off NDIS participants
--  More shipping giants suspend passage via Red Sea after attacks
--  Nissan expands research ties in China as part of bid to regain market share
--  Болельщик бросил стеклянную бутылку в автобус «Манчестер Юнайтед»
--  Лидер турок-киприотов обратился к Путину
--  Серебряков назвал матчи Кубка Первого канала более ответственными, чем в КХЛ
--  La impactante trama de terror que causa furor y no dejará que te muevas del sillón
--  Kane double in Bayern win, Leverkusen down Frankfurt
--  Axelsen, Tai triumph in badminton World Tour Finals
--  Husband 'devastated' after wife jumps from 36th floor building in New York
+-  Najsretniji ljudi na svijetu tvrde da su ovo najbolje jutarnje rutine: Počnite s njima već sutra
+-  El fuerte viento dio vuelta seis avionetas en el aeropuerto de San Fernando
+-  నాడు సచివాలయంలోకి రానివ్వలేదు
+-  Pimienta: "Es importante no perder cuando no estás bien"
+-  عن السلام وحرب الألف عام!| كتب علي العمراني
