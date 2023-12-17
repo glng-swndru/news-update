@@ -1,11 +1,11 @@
 # Latest News
--  NFL: Chiefs vencem Patriots e encerram sequência negativa; Buccaneers batem Packers com show de Mayfield
--  [K-ESG 경영혁신대상] 한성티에스주식회사
--  [K-ESG 경영혁신대상] ㈜미래로지스
--  [K-ESG 경영혁신대상] ㈜아이리스코리아
--  [K-ESG 경영혁신대상] 전방글로벌주식회사
--  Yalova'da 4.1 büyüklüğünde deprem!
--  Şiddetli fırtına 13 can aldı
--  Talat Atilla yazdı: Erdoğan'ın İsmet İnönü'sü, başka deyimle siyasette Mücahit Arslan Etkisi!
--  HLV Will Still khẳng định tương lai ở Reims
--  Bellingham gây chú ý cả khi không thi đấu
+-  İstanbul ve çevre illerde hissedilen deprem oldu!
+-  ‘2G 4이닝 무실점’ KIA 25세 150km 파이어볼러가 호주에 떴다…극적 구원승, 2024년 터질까
+-  2시즌 2골→2경기 3골...토트넘 1000억 공격수, '손흥민 아시안컵 공백 극복 가능'
+-  Il mio appello a Tesla: tagli il prezzo di Model Y (bastano 1.300 euro)
+-  Eddie Izzard loses Brighton Labour candidate bid to award-winning rock star
+-  Chicago Fed head Goolsbee says ‘too early to declare victory’ on economic ‘soft landing’
+-  Buhari left enduring legacies, says ex-Senate President Lawan
+-  C'est curieux, chez les amateurs de vin, ce besoin de faire des phrases…
+-  Kako će izgledati raspodela mandata u Skupštini Srbije – prema preliminarnim rezultatima
+-  Andrea Legarreta no descarta reconciliación con Erik Rubín: “De pronto la vida nos sorprende”
