@@ -1,51 +1,11 @@
 # Latest News
--  Former minister’s brother booked for assault on two
--  아이들 겨울 놀이터…성남시 스케이트장·눈썰매장 개장
--  Our govt won’t be feudal in nature: Telangana CM Revanth Reddy
--  Famosos, deportistas, noticias, videojuegos y películas taquilleras: Lo más buscado de Google en 2023
--  Zweikampf von Demirovic gegen Schlotterbeck
--  Hyundai Venue chốt giá từ 539 triệu đồng: Hàng ghế sau xuất sắc nhất phân khúc nhưng thua Raize về công nghệ an toàn
--  Shark Bình khoe ảnh gia đình, hé lộ không gian bên trong biệt thự được Phương Oanh chăm chút trang hoàng
--  Chuyên gia bất ngờ chỉ ra khu vực đất nền sẽ bước vào chu kì tăng giá sớm nhất
--  Báo Đức tiết lộ về kế hoạch tấn công mới của Kiev
--  "Độc lạ" Bình Dương là đây: Cô dâu nhận của hồi môn chỉ "sương sương" 30 cây vàng, 30 mảnh đất và vài thứ nữa
--  Lịch âm 17/12 - Âm lịch hôm nay 17/12 chính xác nhất - lịch vạn niên 17/12/2023
--  Bắt nhóm thanh thiếu niên mang súng ra quán cà phê giải quyết mâu thuẫn
--  Xem ảnh chụp não đứa trẻ 3 tuổi thường bị cha mẹ la mắng, bác sĩ kết luận 1 câu khiến phụ huynh giật mình
--  HAGL tụt dốc không phanh: Niềm tự hào của bầu Đức chỉ còn lại nỗi thất vọng
--  “Bà trùm” vận tải, BĐS Thuận Thảo trước khi bị đình chỉ giao dịch: Loạt khu du lịch, khách sạn 5 sao bị phát mãi, đại hạ giá vẫn “ế”, cổ phiếu chỉ còn 300 đồng/cp
--  No Muslims among ruling, Oppn MLAs a worry: AIMIM
--  Bölgesel kriz ortamında tekstile nefes
--  Adana’da köylüyü kalkındıracak dijital merkez
--  Etil alkole yakın takip
--  118 bombalı saldırı önlendi
--  ВС России нанесли поражение ВСУ в районе восьми пунктов на Донецком направлении
--  Telangana: 'Governor's address politically and intellectually bankrupt', says KTR
--  우즈 부자, PNC 챔피언십 첫날 공동 11위
--  19-åring dog i frysrum – kostar hotell 102 miljoner
--  जो मेडल लाएगा, वह नौकरी पाएगा : तेजस्वी यादव
--  Netanyahu hints new negotiations under way to release Gaza hostages
--  Shoppers evacuated from Penrith Westfield due to food court fire
--  Bundestrainer: Neuer im März wohl wieder im Tor
--  BREAKING: `Parliament Security Breach A Serious Incident`: PM Modi
--  Joe Rogan stunned by fighter’s extremely swollen leg following ‘one of the best fights’ ever at UFC 296
--  Just a little tenderness
--  Joram’s wolves...are us
--  The Saint outside the temple
--  You’ve got ‘rizz’
--  Riteish Deshmukh Birthday 2023: Actor`s adorable moments with wifey Genelia
--  Delhi Metro: Woman trapped by clothes, dragged by train dies
--  Portugal’s Socialist Party picks new leader ahead of March vote
--  Final Liga MX 2023: Los jugadores del América que han sido campeones de Liga con otros equipos
--  Bizop Unveiled: Explore the Best Businesses and Career Opportunities – Visit the Site Now
--  "หมอล็อต" เตือนเที่ยวเขาใหญ่ อย่าขับจี้ "ตูดช้าง" อันตรายมาก
--  Ganjar-Mahfud: XVG Talents Angkat Kearifan Budaya Lokal untuk Industri Kreatif
--  ENG vs WI 3rd T20I Result: সল্টের শতকে ওয়েস্ট ইন্ডিজের বিপক্ষে অসামান্য জয় ইংল্যান্ডের
--  Satna: ड्राइवर और क्लीनर के उतरते ही जल उठा सीमेंट से लोड ट्रक, पास में ही थी गैस एजेंसी, पानी डालकर बुझाई आग
--  Blusukan di Pasar, Ganjar Terima Keluhan dari Pedagang soal Aplikasi Belanja Online
--  WHO: Katastrophale medizinische Versorgungslage in Gaza
--  Άνθρακας: Νέο ρεκόρ στη ζήτηση φέτος – Απότομη προσγείωση μετά την COP28
--  El BCIE
--  Probe to be ordered into sinking of Medigadda barrage piers: Telangana CM Revanth
--  Pemilik gerai di Kuala Sungai berniaga di tapak baharu
--  Polis əməkdaşı qəzada həlak oldu
+-  عاجل.. أنا طالبة وعمري 25 عامًا.. هل يشملني الضمان الاجتماعي؟
+-  Bị nói 'xuống tóc xuất gia là làm màu để PR', Hoàng Yến lên tiếng
+-  Miles appoints young minister to housing super-portfolio
+-  Miles appoints young minister to housing super-portfolio
+-  Puri: Donation boxes of temple near Sakhigopal Temple looted
+-  Job-Verlust wegen KI wird in reichen Ländern besonders gross
+-  Smith rages as 'fat bails' cost him his wicket
+-  Smith rages as 'fat bails' cost him his wicket
+-  Die häufigsten Träume der Schweizer – und was sie bedeuten
+-  Yerinde dönüşümle 15 bin konut 5 bin iş yeri
