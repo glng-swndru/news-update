@@ -1,11 +1,11 @@
 # Latest News
--  Famalicão e Estoril empatam
--  Gaza. Telecomunicações parcialmente restabelecidas após três dias
--  맨유, 리버풀 원정 ‘34슈팅 허용 무실점’의 값어치
--  Тарпищев — об отказе Костюк играть с Андреевой: это их проблемы, не наши
--  البطولة الإحترافية 1.. يوسفية برشيد والمغرب التطواني يكتفيان بالتعادل
--  Here's what really happened to the real Bass Reeves after the events of 'Lawmen: Bass Reeves'
--  Podcastin tekeminen keskeytyi – haastateltavan taakse ilmestyi iso käärme
--  MP inicia investigación por enfrentamiento armado que habría cobrado cinco vidas en medio de festejos en Tajumulco, San Marcos
--  Today’s death notices
--  Due fidanzati sui due aerei caduti in provincia di Torino
+-  NFL: Chiefs vencem Patriots e encerram sequência negativa; Buccaneers batem Packers com show de Mayfield
+-  [K-ESG 경영혁신대상] 한성티에스주식회사
+-  [K-ESG 경영혁신대상] ㈜미래로지스
+-  [K-ESG 경영혁신대상] ㈜아이리스코리아
+-  [K-ESG 경영혁신대상] 전방글로벌주식회사
+-  Yalova'da 4.1 büyüklüğünde deprem!
+-  Şiddetli fırtına 13 can aldı
+-  Talat Atilla yazdı: Erdoğan'ın İsmet İnönü'sü, başka deyimle siyasette Mücahit Arslan Etkisi!
+-  HLV Will Still khẳng định tương lai ở Reims
+-  Bellingham gây chú ý cả khi không thi đấu
