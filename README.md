@@ -1,11 +1,51 @@
 # Latest News
--  Rahul backs young guns as India set to face South Africa in ODI series
--  Pertamina Gandeng Jepang buat Kembangkan Hidrogen dan Amonia Rendah Karbon
--  “İspanya Rus turistleri Türkiye’ye kaptırdı”
--  बसाइँसराइले रित्तिदै गाउँ : बढ्यो बाँदर आतङ्क
--  IMÁGENES | Emoción por el primer desfile navideño de los Bomberos Voluntarios
--  Хиляди недоволни в Израел настояха за ново споразумение с "Хамас"
--  安卓控股董事經理蔡文傑爆窒息猝死 享年45歲
--  Netanyahu hints new negotiations under way to recover Gaza hostages
--  संडे की वजह सुपरस्टार ने छोड़ी फिल्म, विनोद खन्ना ने रख दी 2 शर्त, फिर...
--  सिँजामा घट्दै बालविवाह
+-  When Riteish Deshmukh`s ego was hurt on being called Genelia`s husband
+-  '셰필드전 1골 1도움' 맨시티 출신 MF, 6660억 투자 실패한 첼시의 희망이 되다
+-  İsrail ordusu itiraf etti: Yaşananlardan biz sorumluyuz
+-  Jenny Rautionaho kovassa nosteessa – hätyyttelee mitalisijoja
+-  Prabowo Sebut Hilirisasi Jokowi Sudah Tepat: Jangan Jual Bahan Mentah ke Asing
+-  What do you call a night without moon?
+-  Mudichur tale following Michaung: Homes take over canals, water pays back
+-  Kirkko | Haudoilla käyminen vähenee hiljalleen
+-  31 volunteer for Sani Peyarchi annadanam, figure lower than previous years, say officials
+-  スノーボードW杯 ハーフパイプ第2戦 平野歩夢が優勝 3位に戸塚
+-  Le philosophe italien Toni Negri est mort
+-  Paul Giamatti, acteur dans « Winter Break » : « Les choses les plus captivantes que j'ai faites concernaient les seconds rôles »
+-  Miss France 2024 : victoire d'Eve Gilles, Miss Nord Pas-de-Calais
+-  « Yosi, l'espion repenti » sur Prime Video, une histoire méconnue de l'Argentine
+-  Sydney trains: Dozens of people arrested as NSW police crackdown on crime during holiday season
+-  Zelensky looft luchtverdediging na zware Russische aanvallen
+-  Notre-Dame in Parijs heeft opnieuw windhaan op toren
+-  Hostile states will 'drive' migrants to UK and destabilise the West, warns Rishi Sunak
+-  Roe v Wade: Ohio Black woman criminally charged after miscarriage
+-  Israel Hamas war: Communications blackout and spiralling hunger compound misery in Gaza Strip as war enters 11th week
+-  Israel-Hamas war: Israeli hostages mistakenly killed in Gaza had been waving a white flag, military official says
+-  Stunning upset as undefeated ex-GB Olympian Peter McGrail is smashed through ropes in brutal one-punch KO
+-  Life | Trying to avoid 'Janu-worry'? Here's how to resist the urge to splurge this festive season
+-  নির্বাচন থেকে সরে দাঁড়াতে পারে জাপা
+-  ก.เกษตรรุกหนักพัฒนาสายพันธุ์ ‘ข้าวไทย’ รุกแข่งขันในตลาดโลก
+-  Taylor Swift’s impact sets new heights in entertainment industry: ‘Madonna nor Michael Jackson come close’
+-  จ.เชียงราย จัดโครงการคลินิกเกษตรเคลื่อนที่ ในพระราชานุเคราะห์ฯ
+-  Eight months on, Rs 1 crore yet to be used for Karaivetti bird sanctuary facelift
+-  Testa dina kunskaper i vår julkalender - Lucka 17
+-  Cisco defeats Centripetal patent case that led to $2.75 bln award
+-  사내 연인과 결별 후 직장내 괴롭림 일삼은 40대 직장상사 징역형
+-  [현장컷] 태백 함백산 한파가 만든 얼음꽃 장관
+-  동해 망상1지구 대체사업자 공모 집행정지 소송 피소… 법원, 인용여부 곧 판결
+-  고성 현내면서 서울 거주 여성 A씨 등산 중 실종… 경찰 등 수색 나서
+-  강릉고 춘천동문회 연탄배달 봉사
+-  Врач Утюмова назвала полезные для здоровья «зимние» напитки
+-  MHC terkilan prestasi Young Tigers
+-  What is the difference between Luna and lunar?
+-  Putin inaugura uno de los túneles más largos del ferrocarril Transiberiano
+-  지주회사 2년 만에 4곳 늘어난 172개…중흥건설·KG 첫 신설
+-  The New York Times -artikkeli | Ratkaisu ilmastonmuutokseen? Yhdysvalloissa aloitti ensimmäinen hiilidioksidia ilmasta keräävä laitos
+-  Muistatko vielä nämä Lahden ravintolaelämästä – ensimmäinen Rosso, amerikkalainen Drive-In, Zanzibarin kebabkastikkeet
+-  Miksi Korian tiilitehtaan taukotilassa on vaaka ja milloin lahtelaiset tarjoavat kouvolalaisille pullakahvit työmaalla? – Kurkistimme, miltä yritysten taukotiloissa näyttää
+-  Putin Akan Maju Lagi di Pilpres Rusia Lewat Jalur Independen
+-  The New York Times -artikkeli | Ratkaisu ilmastonmuutokseen? Yhdysvalloissa aloitti ensimmäinen hiilidioksidia ilmasta keräävä laitos
+-  Man Utd news: First January transfer agreed as Liverpool urged to target Ten Hag weakness
+-  Edullisista hinnoistaan tunnettu "kellarikahvila" sulkee ovensa Tuusulanjärven rannalla
+-  Фергюсон — Пимблетт: смотреть трансляцию боя UFC 296 в прямом эфире
+-  When Goodreads go bad: Review bombing scandal highlights online perils for authors
+-  AirAsia Operasikan Rute Denpasar - Kupang, Terbang 3 Kali Sepekan
