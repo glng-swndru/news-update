@@ -1,11 +1,51 @@
 # Latest News
--  Hohe Krankenstände: Vorstand der Mindener Mühlenkreiskliniken blickt zurück
--  İlber Ortaylı'nın katıldığı konferans izdiham yarattı!
--  İstanbul depreminde zaman daralıyor mu?
--  MİT'ten Operasyon! Şirvan Hasan Etkisiz Hale Getirildi!
--  Real Madrid: Bellingham veut marcher sur les traces de son idole, Zinédine Zidane
--  İsrail ordusu rehineleri vurdu! Yeni esir takası olacak mı?
--  पेपर कप में चाय या कॉफी पीने से पहले जान लें इसके नुकसान, पढ़कर हैरान रह जाएंगे आप
--  KAD STRAST POSTANE OPSESIJA Suzana Vasijević o gnusnim lažima Šolakovih medija &quot;Mogli ste mnogo bolje&quot;
--  OVO SU TRI NAJSRETNIJA ZNAKA U 2024. GODINI: NJIMA NI RETROGRADNA PLANETA NE MOŽE NIŠTA
--  Srbi su uvijek imali smisla za humor, a prave bisere skrivaju izborni slogani: ‘Šta nije jasno?’
+-  메가커피, 첫 캐릭터 콜라보 품절대란…폼 미쳤다!
+-  Soe Hok Gie Ikon Idealisme Aktivis Mahasiswa Meninggal di Gunung Semeru 54 Tahun Lalu
+-  Almaniyada hökümətin reytinqi ən aşağı həddə DÜŞDÜ
+-  Ibrahimović: Vrijeme da Crna Gora modernizuje željeznicu
+-  Богатият иранец на Айлин от "Ергенът" я обсипа с диаманти
+-  המתאזרח ג'קס לויץ' חתם בהפועל חיפה
+-  Συγκινημένη η Άννα Βίσση: Το βίντεο που της έστειλαν τα εγγόνια της από την Αμερική για την πρεμιέρα της
+-  Путин: Създаваме Ленинградски военен окръг след влизането на Финландия в НАТО - Труд
+-  Lebanon rescues 51 people from sinking migrant boat: army
+-  О погоде в понедельник: в Баку мокрый снег, в регионах снег
+-  Kráska sa vydala za mladíka so zriedkavým ochorením: Ľudia v tom majú jasno, si zlatokopka!
+-  Gurmánsky KVÍZ: Vyznáte sa v národných jedlách európskych krajín?
+-  Fico otvorene o kandidatúre na prezidenta: TOTO sú jeho plány! Prehovoril aj o postoji k Pellegrinimu
+-  Chronický stres a choroby! Zbavte sa vnútorného TLAKU, je to lepšie ako preventívka
+-  Gay Sex Filmed In Congressional Hearing Room, US Senate Staffer Fired
+-  Terör devleti İsrail'den Lübnan'a uyarı: Savaşa yol açabilir
+-  Mesut Özil'in DiCaprio yanıtı sosyal medyayı salladı
+-  Регионалната премиера на филмот „Кафе“ на осудениот ирански режисер Навид Михандост ја наполни салата во Кинотека
+-  Erdoğan Ak Parti il başkanlığına geldi: Ak Parti'de İstanbul adayı kim olacak?
+-  IND vs SA Test : टी-20 मध्ये संधी मिळूनही बाकावर अन् आता कसोटी संघातून तडकाफडकी माघार; टीम इंडियाला धक्के सुरुच
+-  AZ hopes to be the first team to take points off of PSV in night match
+-  Počeli radovi na putu Nikšić-Velimlje
+-  Tek ev sahibi olanlar dikkat!
+-  আরব আমিরাতকে হারিয়ে এশিয়া কাপ জিতলো বাংলাদেশ
+-  Norjalaiset hallitsivat miesten 10 kilometrin kisaa - Iivo Niskanen jäi kauas kärjestä
+-  نهضة الزمامرة – الفتح الرياضي: هل ينتهي الفراغ؟
+-  Quién es Laureano Ortega, el hijo que Daniel Ortega prepara para la sucesión de su dinastía en Nicaragua
+-  Chhattisgarh Assembly के अध्यक्ष होंगे पूर्व मुख्यमंत्री Raman Singh, दाखिल किया नामांकन
+-  ये कैसा विकसित भारत? महंगाई को लेकर Mallikarjun Kharge ने केंद्र सरकार पर साधा निशाना
+-  اليوم الدولي للمهاجرين والاحتفال المؤجــل
+-  CM Mohan Yadav ने उज्जैन महाकाल से संबंधित वर्षों पुराने मिथक को तोड़ा, बीता दी यहां रात
+-  Ananya Panday Gives Fans A Sneak Peek Into Her Christmas Celebrations At Her New Home, See Photo
+-  Football. L'ASPTT Caen en pleine réussite, l'AG Caen s'enfonce dans le bas de tableau
+-  La Hague. Le club de basket organise une collecte de jouets et de denrées pour les plus démunis
+-  Football-National 3. L’US Alençon doit se contenter d'une égalité
+-  Wertheimer BSZ verabschiedet dringend gesuchte Nachwuchskräfte
+-  »Äich is häit e Buje geborn worn?«
+-  Spessartgemeinde hat in diesem Jahr 228.000 Euro investiert
+-  »Ein solcher Klangkörper ist ein wertvolles Geschenk«
+-  Second Hand Smoking: ਸਾਵਧਾਨ! ਸਿਗਰਟ ਦਾ ਧੂੰਆਂ ਵੀ ਖ਼ਰਾਬ ਕਰ ਸਕਦੈ ਦਿਲ ਦੀ ਸਿਹਤ, ਜਾਣੋ ਇਸਦੇ ਮਾੜੇ ਪ੍ਰਭਾਵ
+-  I moved from the US to the UK and had to completely change the way I cleaned
+-  Kako aplikacije za vremensku prognozu poboljšavaju tačnost podataka
+-  ¿Cómo operó la red delictiva que estaba al servicio de Norero?
+-  ITV I'm A Celeb star quits BBC show after 27 years
+-  Ripescato il corpo di una donna ai Murazzi. Ecco cosa sta succedendo
+-  How to watch today's Atlanta Falcons vs. Carolina Panthers game: Livestream options, kickoff time
+-  СМИ: Путин на неделе выступит на коллегии Минобороны
+-  Umweltministerium bezweifelt Wolfsangriff in Elbe-Elster
+-  Year Ender 2023: 10 most talked about dog breeds of the year
+-  Cumhurbaşkanı Erdoğan, AK Parti İl Başkanlığına geldi
