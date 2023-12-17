@@ -1,51 +1,51 @@
 # Latest News
--  Zwaargewonde bij steekpartij in Rotterdam, verdachte aangehouden
--  Türkiye'nin doğal gaz talebinin 2024'te 53 milyar metreküp olacağı hesaplanıyor
--  NHS facing new winter crisis: Medical chief warns of long ambulance queues outside A&Es and patients treated in corridors in 'same scenes' as 2022
--  Eine Woche vor Weihnachten: 300.000 Briefe sind in Weihnachtspostfilialen eingetroffen
--  Le groupe AC/DC annonce la mort de son premier batteur
--  Депутат Касимовской гордумы Василий Шмелёв поймал щуку весом более 9,5 кг
--  Reims: "C'est une blague ?", le gros tacle de Courbis contre Still et sa communication
--  Could Dan Malesela be dancing his way to Kaizer Chiefs?
--  Meloun: Razočaran sam - trebalo je da pobedimo
--  وفاة دبلوماسي فرنسي متأثرا بجروحه في غارة إسرائيلية على غزة
--  Formirana Globalna mreža bh. dijaspore pri kabinetu Bećirovića
--  Nigel Farage threatens to make next election into 'immigration referendum' to heap more pressure on Rishi Sunak as senior Tory minister warns party is being outflanked 'on the right' by Labour
--  Европски градови каде е најдобро да се купува недвижен имот: На списокот е и еден од соседството
--  عاجل.. منصة مدرستي.. خطوات الدخول على الاختبارات بأسهل طريقة
--  Ankara'da 7 kişi doğal gaz zehirlenmesi nedeniyle hastaneye kaldırıldı
--  Media: VS bekijken opties voor aanval op Houthi's
--  मुंबई की डॉक्टर ने स्टील ग्रुप के दिग्गज सज्जन जिंदल पर लगाया रेप का आरोप
--  U Americi zabilježen rekordan broj beskućnika do sada
--  Sve oči uprte u FED: Dolar oštro pao, evro ojačao
--  Srušio se avion na dalekovod: Ima poginulih
--  포스코이앤씨, ‘맘(MOM)이 편안한 유아용 애니메이션 영상’ 인기 쑥
--  Take a chance on me: ABBA courts Melbourne to host $80m virtual concert
--  Procurez-vous l'iPhone 15 avant la rupture de stock avec cette offre Amazon
--  Kiara Advani reacts to hubby Sidharth Malhotra’s ‘Indian Police Force’ teaser
--  Sundarban Tiger Attack : কাঁকড়া ধরতে গিয়ে সোজা বাঘের মুখে, মৎস্যজীবীকে টেনে-হিঁচড়ে নিয়ে গেল বাঘ
--  "SON 역할 잊지 말아야" EPL 레전드, 끈질긴 전방압박에 극찬 폭발
--  ضبط حفارة مخالفة في الشونة الجنوبية / صور
--  日투어 복귀 안신애 “무기는 더 단단해진 마음, 日 정복할게요”
--  SNAKE encounters in South Africa on the rise this festive season
--  Virtus, Banchi: “Piccoli episodi che non ci hanno premiato”
--  Jakiroviću bi rođendan bio ljepši s pobjedom u derbiju. Ne može računati tri važna prvotimca
--  Social Security Hasn't Done This Since 1981. Should Beneficiaries Be Worried?
--  Year Ender 2023 : शरीराला सुद्धृढ बनवण्यात 'हे' 5 सप्लिमेंट्स तरबेज; मसल्स नाही तर हाडंही होतात मजबूत
--  'Fatiga por compasión', el malestar que asola a los veterinarios: "Nos enfrentamos a la muerte cinco veces más que un médico"
--  В Подмосковье участились случаи пожаров в квартирах и частных домах
--  Galatasaray'da Sergio Oliveira'nın sözleşmesi dondurulabilir! Sakatlığı sanılandan daha da ciddi
--  Fenerbahçe'nin UEFA Konferans Ligi'ni kazanma ihtimalini açıkladılar!
--  Fenerbahçe'nin UEFA Konferans Ligi'ni kazanma ihtimali yüzde kaç? İstatistik firması açıkladı
--  Milli Sporcu Necmettin Erbakan Akyüz, şampiyon oldu, Filistin bayrağı açıp 'dabke' dansı yaptı
--  Нови напади во Газа и притисок за прекин на огнот и ослободување на уште заложници
--  Putin says Biden’s remark about Russian plan to attack NATO is ‘complete nonsense’
--  В Курской области подвели итоги сельскохозяйственного 2023 года
--  Информационно-методический день проведут для нижегородских работодателей
--  Ganjar Ungguli Prabowo dalam Survei Roy Morgan, Ini Analisis Burhanuddin Muhtadi
--  Ankara'da karbonmonoksit gazından zehirlenen 7 kişi tedavi altına alındı
--  Mercek-8 operasyonunda bin 558 gözaltı!
--  Asgari ücret görüşmelerinde 2. toplantı yarın
--  Hafta sonu altın alacaklar dikkat! Çeyrek ve gram altın fiyatları
--  Türkiye'nin doğal gaz talebinin 2024'te 53 milyar metreküp olacağı hesaplanıyor
--  Yüksek kar vaadiyle dolandırdığını iddia ettikleri arkadaşlarından şikayetçi oldular
+-  Montreal's Old Brewery Mission unveils semi-private rooms for women
+-  Kan donduran cinayet! Evini basıp çocuklarının yanında katletti
+-  VakıfBank - Eczacıbaşı Dynavit finaliyle Türkiye, 25. uluslararası kupasını kaldıracak
+-  Türkiye Kulüpler Tekvando Şampiyonası Konya'da yapılacak
+-  Bakan Uraloğlu açıkladı: Şehirler arası yolcu otobüslerinde hız takip dönemi başlıyor
+-  Özel okullardan ek KDV talebi!
+-  Tomáš Tatar jatkaa uraansa Kraken-paidassa
+-  제주 ‘2023 결산 다큐멘터리', '이뤄내지 못한 봄을 꿈꾸며' 공개… 팬들은 열광
+-  “죄송합니다, 정말 가슴이 아픕니다”… 셀틱, ‘10년 만에’ 리그 2연패→ 감독 사과까지
+-  «17 Κλωστές»: Στις 22 Ιανουαρίου η πρεμιέρα της νέας σειράς μυθοπλασίας της COSMOTE TV
+-  SPÖ-Oxonitsch zu Obsorge für geflüchtete Kinder: „Karner blockiert Kinderrechte“
+-  "네가 비랑 놀 짬밥이냐" 이시언, 악플에 상처 고백…비 "인격살인" 분노 [마데핫리뷰]
+-  'YS 손자' 김인규 "'김건희 특검' 관례 위반" vs 이준석 "설득력 약해"
+-  "인생역전? 살 빼라"…최준희, 44kg 감량 후 극세사 몸매 [MD★스타]
+-  Keluarga mahu tebusan dibebaskan tanpa kecederaan, desak Netanyahu runding dengan Hamas
+-  Météo : De la pluie presque partout
+-  Cher tawan jejaka 40 tahun lebih muda
+-  Telecinco utiliza a Bárbara Rey para repetir con Jorge Javier Vázquez
+-  10 thói quen này là 'thủ phạm' gây đau bụng, có thể bạn vẫn làm hàng ngày
+-  רוי רביבו: "ברגע שנחתנו בישראל, שכחנו מההישג מול גנט"
+-  Daily horoscope for December 17, 2023
+-  Climat : pourquoi ne pas récupérer le CO₂ des voitures ?
+-  Transport sanitaire : « L’absence de dialogue avec les artisans taxis et de mesures d’accompagnement témoigne d’une gestion technocratique et centralisée »
+-  SDP:n Harakka vaatii verolakeihin muutoksia
+-  Νέα Σαλαμίνα: Στοχεύοντας στο πρώτο… ουσιαστικό «διπλό»
+-  In 2024, Alberta NDP decides who it is without Rachel Notley as leader
+-  Die Eisadler dominieren gegen Troisdorf: Zehn Tore für die Dortmunder
+-  Día del Contador Público: cuáles son sus funciones y por qué se celebra hoy
+-  Vancouver's Philip Kim aims to inspire next generation of breakers at Olympics
+-  La Prevención de Riesgos Laborales, política transversal del Gobierno de Aragón
+-  TV: LIVE-TV 12.40: Vi korar Årets Sandvikenbo på Högbo julmarknad
+-  年末から来年にかけて怒涛のリリース。Netflixがゲームに本気出した
+-  TV: LIVE-TV 12.40: Vi korar Årets Sandvikenbo på Högbo julmarknad
+-  MPs call for new measures to rein in Canadian pension investments in China
+-  Anmälde butik efter leverans av trasig soffa
+-  E-readers were supposed to kill printed books. Instead, they're booming
+-  Canadians on Survivor are smart, strategic — and underestimated, ex-champ says
+-  Lucka 17: Är julen en religiös högtid?
+-  Anmälde butik efter leverans av trasig soffa
+-  Wartawannya Tewas Ditembak Israel, Al Jazeera Siap Tuntut ke Pengadilan Internasional
+-  ALC livre le premier des sept nouveaux A321neo à Transavia
+-  I grew up around firearms. Now my son wants to hunt, and I'm reluctant
+-  Kyösti Kakkonen lukee Kauppalehteä jo viidettä vuosikymmentä
+-  Lucka 17: Är julen en religiös högtid?
+-  Dólar hoy, dólar blue hoy: a cuánto cotiza este domingo 17 de diciembre
+-  Sacramento Kings G League player Chance Comanche arrested by FBI in connection to woman’s disappearance in Las Vegas
+-  Jokowi Paparkan Prioritas Kemitraan Ekonomi ASEAN-Jepang
+-  "قوى" لا يمكن نقل خدمات هذا الموظف
+-  Xavi tiene razón: el Barça, de los peores en efectividad
+-  النمر: نزول الوزن السريع جدًا يؤدي إلى مضاعفات صحية كثيرة
