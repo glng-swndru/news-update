@@ -1,51 +1,51 @@
 # Latest News
--  هل الحكومة مُلزمة بتقديم استقالتها عقب إعلان نتيجة الانتخابات؟.. أستاذ قانون دستوري يُجيب
--  البث العبرية تعلن وفاة جنود داخل المستشفيات بعد إصابتهم ببكتيريا مقاومة
--  لتعطيش السوق.. الزارعة: رصد 32 ألف طن من البصل في مركزين بالجيزة
--  جامعة 6 أكتوبر التكنولوجية تنظم ندوة توعوية لمكافحة الإدمان والتعاطي.. (صور)
--  رئيس وأعضاء مجلس إدارة "القناة للكهرباء" يتفقدون الورش الرئيسية
--  أسامة كمال لـ وزيري خارجية بريطانيا وألمانيا: "دين أبوكم اسمه إيه"؟
--  "토트넘에 1억 파운드(1657억) 선수 있다!"…맨유 전설의 극찬, '놀랍게도 손흥민이 아니다!' 그럼 누구?
--  김지은, 한소희·있지 류진과 친자매급 닮은꼴 "오해多…싸인 요청도" [미우새](MD리뷰)
--  13살때 맨시티 홈구장 볼보이→7년 후 맨시티 데뷔전서 결승골 넣었다…20살 윙어 과르디올라 감독과 인연 ‘화제’
--  שיתפה תמונה של הארוחה שלה במסעדה וקיבלה חשבון של מעל 223 אלף שקל
--  גשושית החלל וויאג'ר 1 שולחת מסרים מסתוריים שמדאיגים את נאס"א
--  במרכז הרפואי כרמל ציינו את חנוכה בסימן קירוב לבבות
--  Pokemon Go Winter Wishes Timed Research tasks & rewards
--  Portela vai atingir 34 milhões de passageiros este ano
--  ‘Really painful’: Awkward world champ scenes as stars explode over stunning dual choke-job
--  NRL 2024: Jarome Luai signing with Wests Tigers, contract, who will replace Jarome Luai as Penrith Panthers five-eighth in 2025?
--  Mbappe zabio 180. gol u francuskom prvenstvu, PSG kiksao
--  Vučić: Apsolutna pobjeda, bolji smo nego na prošlim izborima
--  Predsednik RIK za N1: Izazov na ovim izborima bila navala klipova i fotografija
--  Weihnachtsmarkt Centro Oberhausen: Rentnerin mit bitterem Geständnis – „Kann sich das nicht mehr leisten“
--  MasterChef All Star'da elenen isim belli oldu
--  Dodik i Nešić u štabu SNS-a uz Aleksandra Vučića
--  الزبن مديراً للاستثمار في دائرة الأراضي والمساحة
--  سي إن إن: أوستن سيضغط على الإسرائيليين لتحديد معالم حرب غزة
--  “Caritas je način života”: Održan susret volontera župnih caritasa Riječke nadbiskupije
--  Dos niños quedaron huérfanos tras la catástrofe en Bahía Blanca
--  Ovo su najnoviji podaci RIK-a za Vojvodinu
--  «Реал» дома обыграл «Вильярреал» и поднялся на первое место в ла лиге
--  Реал із Луніним розгромив Вільярреал: результати матчів Ла-Ліги
--  Real Madrid goleia Villarreal. Bellingham iguala mais um recorde de CR7
--  VIDEO Pogledajte kako je PSG u petoj minuti sudačke nadoknade ostao bez pobjede
--  INFOGRAFIKA Kako će izgledati raspodela mandata u skupštini Beograda
--  생산성 개선하지 못하면 20년 후 '역성장' ... "이민정책, 우호국과의 경제통합 논의 필요"
--  Por solicitud de Rodolfo V., difieren audiencia inicial del homicidio del periodista Luis Enrique Ramírez
--  Tras votar en Boca, Milei viajó Bahía Blanca y dijo que los vecinos “van a poder lograr resolver esta situación”
--  Vesna Pešić za N1: Nema više demokratskih izbora u Srbiji
--  Remake de 'One Piece' de Netflix: el legendario anime de Eiichiro Oda tendrá una nueva versión a cargo del estudio de 'Attack On Titan'
--  Vase bought at Goodwill for $3.99 sells for more than $100,000
--  Crisis económica: los cinco reclamos de empresarios de la construcción mendocina
--  Milanski Inter povećao prednost na vrhu ljestvice, Bašić ostao na klupi Lazija
--  ¿Con esa boquita come? Taylor Swift enfurece en partido de NFL
--  Mølby om VM i dart: 'Hold øje med ham her'
--  Real Madrid haalt Blind en co. weer even in, late domper voor PSG
--  Tragic update after little boy is killed while trying to cross the road with his dad in Melbourne
--  How to get TikTok secret emojis: All emoji codes
--  Lazio, fischi assordanti al triplice fischio. L'urlo dell'Olimpico: "Fuori le palle"
--  Naci Görür'den ilk açıklama: Marmara’daki sistem gerilim biriktiriyor
--  Iğdır valiliğinden açıklama geldi! Kar yağışı nedeniyle 9 köyde eğitime 1 gün ara verildi
--  CECA U MINIĆU, SNIMAJU JE ODOZDO NA GORE! Srpska pjevačica "grmjela" u nikad kraćoj haljinici, pokazala NOGE OD MILION!
--  Aussie Valkanis oversees Euro giants Ajax for a day
+-  Kickoff | Real move top of LaLiga with Villarreal thumping
+-  Albiol: "Fuimos muy blandos, debimos ser mucho más agresivos"
+-  '김민재 분데스리가 데뷔골' 바이에른 뮌헨, 슈투트가르트 3-0 완파
+-  "류현진이란 잠재적 선택지 있다" 선발 2명 잃은 미네소타 영입 후보 거론 '1000만 달러 시간이 오나'
+-  박종민의 디카詩-
+-  Regisseur Wolfgang Glück verstorben
+-  Muhadjir Dorong Muhammadiyah Tingkatkan Layanan Pendidikan dan Kesehatan
+-  Warm winter weather brings good news for Minnesota golfers as courses reopen
+-  Antiques Roadshow guest stunned at value of original Teletubbies sketches
+-  Dacic: SPS needs new leader
+-  Ms Dentana crowned Miss Western Province
+-  Perez ziet duidelijke dissonant bij PSV: 'Echt ongelooflijk, ik vind het zonde'
+-  Servische president claimt zege: ‘we zullen een absolute meerderheid hebben in parlement’
+-  [DD 주간브리핑] 네이버·삼성전자, 공동개발 AI반도체 19일 첫 선… 28㎓ 주파수 신규할당 신청 결과도 관심
+-  Chris Rock spotted out with daughter Zahra in New York City after turning down the Golden Globes hosting gig
+-  Spasojević: SNS ima ozbiljnu poziciju za vlast u Beogradu
+-  An English footballer is recovering after suffering a cardiac arrest during a match
+-  An English footballer is recovering after suffering a cardiac arrest during a match
+-  Shaip Kamberi fiton edhe një mandat si deputet në Parlamentin e Serbisë
+-  మేడిగడ్డ పునరుద్ధరణపై స్పష్టత ఇవ్వాలి
+-  కేంద్ర రక్షిత స్మారకాల పరిరక్షణకు పటిష్ఠ చర్యలు
+-  Video/ Lautaro e Thuram të papërmbajtshëm: Inter thyen Lazion e arratiset +4 nga Juventus
+-  El Real Madrid golea al Villarreal, pero pierde a Alaba y Mendy
+-  Plebiscito: El “En contra” se impone en 13 regiones
+-  మా సమస్యను ప్రభుత్వం దృష్టికి తీసుకెళ్లండి
+-  Tragique accident à Faranah: le bilan grimpe à 13 morts, blessés et excès de vitesse
+-  Mitrović (Srbija protiv nasilja): Imamo svaku osnovu da vjerujemo da smo u Beogradu pobijedili
+-  Реал Мадрид убедлив против Виљареал, гол и асистенција за Модриќ (ВИДЕО)
+-  [오늘날씨] 한파·강풍에 전국이 '꽁꽁'… 제주도는 눈비
+-  '민주당 돈봉투 의혹' 송영길, 오늘 구속 갈림길
+-  Asma tavan çöktü, faciadan dönüldü
+-  AZ Alkmaar, lider PSV'yi durduramadı!
+-  DSÖ: Yaşananlar karşısında "dehşete kapıldık"
+-  Almanya'da İsrail'e tepkiler çığ gibi büyüdü
+-  Una persona falleció y otra resultó herida durante un confuso incidente durante aguinaldo en Barahona
+-  Kylie Minogue on success and surviving cancer
+-  Passage: In memoriam
+-  Passage: In memoriam
+-  Pablo Picasso: Different perspectives on the cubist's life and art
+-  Pablo Picasso: Different perspectives on the cubist's life and art
+-  Toying around with toymaker Eddy Goldfarb
+-  Toying around with toymaker Eddy Goldfarb
+-  Bryant Gumbel on wrapping up HBO's "Real Sports": "I've kind of lived my fantasy life"
+-  Bryant Gumbel on wrapping up HBO's "Real Sports": "I've kind of lived my fantasy life"
+-  Bryant Gumbel on wrapping up HBO's "Real Sports"
+-  Bryant Gumbel on wrapping up HBO's "Real Sports"
+-  Naiomi Glasses on weaving together Native American art, skateboarding and Ralph Lauren
+-  Naiomi Glasses on weaving together Native American art, skateboarding and Ralph Lauren
+-  Dick Van Dyke: Forever young
+-  Dick Van Dyke: Forever young
