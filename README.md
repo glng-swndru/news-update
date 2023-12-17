@@ -1,11 +1,51 @@
 # Latest News
--  1A Win: Teacher Fired for Refusing to Use Trans Student's Pronouns Gets Lawsuit Reinstated
--  Fintech’s wild ride in 2023
--  Princes of Ales reißen Publikum im Erlenbacher Beavers mit
--  Neue Beratungstelle für sexualisierte Gewalt an Kindern
--  Bei Fackellicht und Kerzenschein im Wenigumstädter Wald
--  Montes reiteró que “nunca supieron de irregularidades” antes que estallara el caso Convenios
--  "المؤامرة" الذي لم يرها سوى باسيل...من هو بديل العماد عون ومن يكون؟
--  AK Parti İstanbul Temayül Yoklaması: Cumhurbaşkanı Erdoğan görüşleri kapalı zarfla aldı
--  U19 Asia Cup: Bangladesh Thump UAE To Lift Trophy
--  Un empate que empaña el trabajo del Chami
+-  Morre ex-prefeito de município do Nortão
+-  Pleite für Handballerinnen zum WM-Abschluss
+-  St. Pauli verpasst gegen Wehen Wiesbaden Herbstmeisterschaft
+-  Trotz Führung: Kaiserslautern auf einmal Abstiegskandidat
+-  KSC geht mit Sieg in die Winterpause - 3:2 gegen Elversberg
+-  "Das macht uns stolz": Außenseiter Kiel ist Wintermeister
+-  Vogtländische Bauern demonstrieren am Montag in Berlin
+-  Baumgart über Investoren-Deal: "Die Mehrheit ist die Kurve"
+-  Biathleten ohne Podestplatz: Trotzdem stimmt die Richtung
+-  Serbien wählt neues Parlament
+-  Dynamo beendet Hinrunde mit Sieg
+-  An diesen Baustellen in Mittelsachsen gibt es Behinderungen
+-  Lindner offen für Alternativen beim Agrardiesel
+-  Freiberg: Bedürftige Menschen bei Weihnachtsfeier in der Häuerstube
+-  سرکاری ملازمین کی چھٹیوں پر پابندی عائد
+-  Mittelsachsen erhält Millionen für Breitbandausbau - und wer profitiert?
+-  Bakan Kacır açıkladı! Türkiye dünyada yerli tasarım başvurusunda ikinci sırada
+-  屯門武術迷帶刀劍晨運嚇親街坊 涉管有違禁武器被捕
+-  فيديو.. اندلاع حريق بمنزل لبناني جراء قصف إسرائيلي
+-  عودة جزئية لخدمة الاتصالات في قطاع غزة بعد انقطاع كامل لعدة أيام
+-  Gümüşhane'de Yarın Okullar Tatil Mi? Valilikten Tatil Açıklaması Yapıldı Mı?
+-  Reducir las arrugas: cuáles son las cinco formas accesibles para aumentar el colágeno en la piel
+-  Vyše 40 percent ľudí považuje Tuskovu vládu za lepšiu ako Morawieckeho
+-  TMW - Vicenza, pesante ko col Trento: ore decisive per Diana
+-  Papa Francisco celebra 87 anos com festa no Vaticano
+-  Chile tem plebiscito sobre Constituição para acabar legado de Pinochet
+-  เจ้ามือที่ไม่ได้เคลื่อนไหวมา 1 แห่เทขาย Ethereum ในมือทิ้ง
+-  Tras la tragedia, Javier Milei y parte de su Gabinete viajan a Bahía Blanca para acompañar a las víctimas
+-  Cold-Case-Fall von 1985: Polizei Hannover rollt Fall Ulla Lilienthal auf
+-  Старий Луцьк поступився Черкаським Мавпам у матчі Суперліги
+-  تنبيه عاجل من حساب المواطن بشأن تعطل التطبيق والموقع الإلكتروني
+-  تعرف على طلبات استكمال إجراءات صكوك الاستحكام عبر منصة إحكام
+-  ضبط 10 وافدين أثناء محاولة تهريب 200 كيلو مخدرات
+-  "الأرصاد" ينبه أهالي ثلاث مناطق: شبورة مائية وضباب يحجب الرؤية حتى هذا الموعد
+-  للحفاظ على أمنك وأمان أطفالك .. مختص تقني يقدم نصائح مهمة لمستخدمي سناب شات
+-  Näin Matthew Perry kuvaili vuosi sitten kohtalokseen koitunutta ketamiinia: ”Tältäkö kuolema tuntuu”
+-  GSK zoekt deals in China om relatie opnieuw op te bouwen
+-  GSK sucht nach Geschäften in China und baut seine Beziehungen wieder auf
+-  “Perëndimi e tërhoqi zvarrë drejt NATO-s”- CNN: Putin paralajmëron probleme me shtetin fqinj
+-  أثرت سلبا في تكلفة المعيشة.. مشروع حلول للسياسات البديلة يناقش قضية الأسواق الموازية في مصر
+-  El Barça se cae de la cornisa
+-  Pakistan announces day of mourning over death of Kuwait’s Emir Sheikh Nawaf
+-  পিরোজপুরে আওয়ামী লীগের প্রার্থীসহ ৫ জনের মনোনয়নপত্র প্রত্যাহার
+-  El urbano mexicano revolucionó un 2023 que fue más allá del reguetón
+-  Una reyerta con armas de fuego en Valencia deja un detenido y cinco personas heridas
+-  Ingrid Betancourt compara investigación en contra de expresidente Samper con la actual a Gustavo Petro
+-  Mistrz świata w snowboardzie Oskar Kwiatkowski dla "Rz": Muszę podtrzymywać ogień
+-  Ο Φίλιππος Καμπούρης νέος πρόεδρος του ΛΑΟΣ
+-  Milei vota en las elecciones presidenciales del Boca Junior
+-  Adele nënshkruan një kontratë paramartesore me Rich Paul për të mbrojtur pasurin e saj milionëshe
