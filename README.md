@@ -1,11 +1,11 @@
 # Latest News
--  Putin odštartoval predvolebnú kampaň: Nemám záujem o konflikt s krajinami NATO, ale…
--  Ademi: Hajduku više odgovara neriješeno, oni mogu biti zadovoljniji
--  Why the San Jose Sharks’ newest forward says he’s “extremely motivated”
--  Mutui, tassi d’interesse ai minimi: quanto scenderanno le rate nel 2024
--  Patriots vs. Chiefs highlights: Bailey Zappe, Hunter Henry turn 4th down into a touchdown
--  DIMO promotes Mercedes-Benz StarDiscovery+ after sales service
--  Gavinro Investments rolls out Sri Lanka’s first 300KM range EV commercial vehicle
--  National cricketers get into top gear ahead of Zimbabwe series
--  Access Motors redefines automotive care
--  Bangladesh rout UAE to win maiden ACC U19 Asia Cup title
+-  Secondary bond market rallies; yield curve bunched up
+-  Jackson and Darcy primed for flag tilt
+-  Jackson and Darcy primed for flag tilt
+-  Jackson and Darcy primed for flag tilt
+-  Jackson and Darcy primed for flag tilt
+-  Дебел сняг и десетки паднали дървета блокираха достъпа до две благоевградски села
+-  Oliver Dowden Says Gary Lineker Should 'Stay In His Lane' And Stop Commenting On Politics
+-  'What Is The Point Of Your Government?': Oliver Dowden Roasted Over Sunak's Broken Pledges
+-  Biden Campaign Slams Trump For Having 'Parroted Hitler' In Latest Anti-Immigrant Rant
+-  18 Of Netflix's Best Christmas Films And TV Specials Streaming Now
