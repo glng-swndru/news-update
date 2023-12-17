@@ -1,51 +1,51 @@
 # Latest News
--  Brad Pitt cumple 60 años con un físico impecable
--  Rompen récord en recolección de chamarras
--  Mehmet Büyükekşi'den istifa iddialarına yanıt!
--  First Patient Dosed in Clinical Trial of YOLT-201 for the Treatment of Hereditary ATTR-CM
--  Sixers le propinó histórica paliza a los Hornest
--  Dividing with a Uniform Civil Code
--  VIDEO: Así canta y baila André Jardine previo a la Final de Liga MX con el América
--  Shop selling 'EASTER treats' with still more than a week to go before Christmas: Cadbury mini-eggs on display in London Nisa store on Dec 17
--  بمناسبة يوم الشرطة العربي الموافق 18 ديسمبر.. العميد حُميد يعقد اجتماعا أمنيا
--  La météo pour ce lundi 18 décembre 2023
--  Tunisie : Arrestation de six extrémistes
--  هل يكون إلياس أخوماش مفاجأة الركراكي؟
--  Real Madrid çıldırdı! Yeniden 'Los Galactiscos'u kuruyor
--  Cumhurbaşkanı Erdoğan Macaristan'a gidiyor
--  Feyenoord dört dörtlük!
--  Cumhurbaşkanı Erdoğan, KKTC Cumhurbaşkanı Tatar ile görüştü
--  Sverige i brygga – Danmark leder bronsmatchen
--  Exponen 20 sueños de niñas y niños que piden un Paraguay con mejores oportunidades
--  DANIELLE RUIZ – Você já fez seu planejamento para 2024?
--  Severjeve nagrade gredo v roke Ive Krajnc Bagola, Jurija Zrneca in Nives Mikulin
--  Severjeve nagrade gredo v roke Ive Krajnc Bagola, Jurija Zrneca in Nives Mikulin
--  کراچی : بے قابو ٹینکر گھر میں جا گھسا، ایک شخص جاں بحق، 3زخمی
--  Las incidencias del fuerte viento en Canarias: caída de árboles, vallados y cableado eléctrico
--  Putin: Tani do të kemi probleme me Finlandën
--  Schalke-Hammer in der Chefetage: Kommt Wilmots?: Bei Neuzugängen ist Churlinov ein heißes Eisen
--  Kocaeli'de tırın çarptığı hastanede tedavi göre kişi vefat etti
--  "I dalje očekujem velike stvari od Nadala"
--  Prezes polskiego klubu brutalnie pobity. Walczy o życie
--  Schalke-Hammer in der Chefetage: Kommt Wilmots?: Bei Neuzugängen ist Churlinov ein heißes Eisen
--  One Piece is Getting an Anime Remake (No, Seriously)
--  Hajdukovci stigli na Maksimir, pitanje je hoće li svi navijači uspjeti ući na stadion do početka utakmice
--  Pope Francis deplores Israeli killings of civilians at Gaza church
--  Israel uncovers ‘biggest Hamas tunnel’ near Gaza border
--  Ucrânia acusa Moscovo de forçar funcionários de Zaporijia a obter passaportes russos
--  Incêndio destrói caminhões estacionados em pátio no litoral de SP; VÍDEO
--  Vučića iznervirali hrvatski novinari: ‘Što ste navalili? Samo mi vi nemojte držati predavanja!‘
--  مانشستر سيتي يواصل نزيف النقاط بتعادله مع كريستال بالاس
--  Partido de Putin aprova por unanimidade a sua recandidatura às presidenciais de março
--  Μπόγρης: «Φάγαμε τέλεια προβατίνα χθες, μετά το μπουζουκάκι της εθνικής οδού όπως μας άξιζε» (vid)
--  Demi Lovato Engaged to Jute$: See Her Eye-Catching Ring
--  Donald Trump promete si es reelegido, un gran operativo de deportación desde su primer día de mandato
--  Senior YSRCP leader involved in ₹2,000 crore TDR scam in Visakhapatnam, allege JSP leaders
--  Sete razões que fazem com que o seu gato esteja a mordê-lo
--  Aquaman w kinach, Percy Jackson na Disney+. Nowy tydzień w kulturze
--  Carlos Moedas defende coligação pré-eleitoral entre PSD e CDS
--  Remiten a 65 conductores ebrios al Cerecito
--  Aksi Debut Radja Nainggolan Bersama Bhayangkara FC di Liga 1
--  NESTVARNO! DVA SKANDALA NA ISTOM MEČU! Ukrajinka se povukla zbog Ruskinje, a Mira onda igrala protiv MUŠKARCA! (VIDEO)
--  «قمصان ميسي وبلوزة ديانا».. مبالغ خيالية لملابس المشاهير ومجموعة «البرغوث» بيعت بملايين الدولارات
--  JN vai recorrer a todos os meios legais e judiciais contra despedimento coletivo
+-  Hiçbir Bağlantıları Olmayan Antik Medeniyetlerin Buna Rağmen Aynı Şeyleri Yapmış Olmaları Neyle Açıklanabilir?
+-  ASUS, Bu Gördüğünüz Minicik Bilgisayarı Tanıttı: 1 Tane Bile Fanı Yok
+-  Mario López, exseleccionador español de baloncesto, investigado por agresión sexual continuada contra una menor
+-  СБУ и ВСУ са провели успешна атака срещу военното летище в Ростовска област
+-  Top 5: Mejores armadores de la historia que han jugado para el club Los Mina
+-  'Ukraine fatigue' is a problem of western leaders' own making
+-  China's biggest nickel producer to list battery unit in Hong Kong
+-  'Ukraine fatigue' is a problem of western leaders' own making
+-  China's biggest nickel producer to list battery unit in Hong Kong
+-  UK, Germany and France urge Israel to agree 'sustainable ceasefire' in Gaza
+-  UK FCA rules out extension of post-Brexit licensing regime
+-  When will the Bank of Japan end negative interest rates?
+-  UK, Germany and France urge Israel to agree 'sustainable ceasefire' in Gaza
+-  Rishi Sunak vows to work with Italy to review asylum rules
+-  UK FCA rules out extension of post-Brexit licensing regime
+-  US concern over Mexico attracting Chinese electric vehicle factories
+-  When will the Bank of Japan end negative interest rates?
+-  Rishi Sunak vows to work with Italy to review asylum rules
+-  US concern over Mexico attracting Chinese electric vehicle factories
+-  Suomen mestaruuden luistellut Nella Pelkonen on varma EM-paikastaan
+-  Suomen mestaruuden luistellut Nella Pelkonen on varma EM-paikastaan
+-  Itt vannak a hatos lottó nyerőszámai
+-  Медведев поздравил однопартийцев с наступающим Новым годом
+-  В России предложили сократить дефицит водителей такси за счет мигрантов
+-  Biathlon : Justine Braisaz-Bouchet s'adjuge la Mass-start et réalise le triplé à Lenzerheide
+-  EN DIRECT - Ligue 1 : suivez Marseille-Clermont
+-  EN DIRECT - Champions Cup : suivez Stade Français-Leicester
+-  Ski alpin : Federica Brignone domine le super-G de Val d'Isère
+-  Handball : Kentin Mahé quittera Veszprem à la fin de la saison
+-  Liga : «Zidane ? Je marche sur ses traces», savoure Bellingham
+-  Biathlon : Johannes Boe domine la mass start de Lenzerheide, les Français loin derrière le triplé norvégien
+-  Ligue 1 : «Ça ira mieux en Angleterre», Will Still chambré par l'arbitre François Letexier, qui dément une mauvaise intention
+-  EN DIRECT - Champions Cup : Début canon de Toulouse contre les Harlequins
+-  Nantes-Brest : revivez la victoire des Finistériens à la Beaujoire
+-  Biathlon : nouveau dossard jaune après son triplé historique, Justine Braisaz-Bouchet «ne réalise pas»
+-  Serie A : l'AC Milan repart de l'avant
+-  Tennis : le million de licenciés dépassé en France
+-  Badminton : le Danois Axelsen et la Taïwanaise Tai s'imposent aux World Tour Finals
+-  Ligue 1 : le bel hommage des tribunes nantaises à Maxime, supporter décédé il y a deux semaines
+-  La Fédération française de rugby dans le rouge, avec 40 millions d'euros de déficit en deux ans
+-  盧秀燕幫顏寬恒站台批「派遷戶口的來選」 林靜儀反擊了
+-  Caroline Receveur donne de ses nouvelles en plein traitement contre le cancer
+-  Julien Doré, son havre de paix dans les Cévennes : découvrez son projet immobilier étonnant
+-  Gérard Depardieu : le sosie de l'acteur dit stop, « j'arrête d'être son sosie »
+-  Isabelle Adjani condamnée : l'actrice écope d'une lourde peine de prison avec sursis
+-  37 Travel Products You'll Want To Buy For Friends, Too
+-  37 Travel Products You'll Want To Buy For Friends, Too
+-  ЦАХАЛ заявил, что обнаружил самую большую систему тоннелей ХАМАС
+-  Kal Ka Kumbh Rashifal: राजनीति में कोई आप लगा सकता है झूठा आरोप, रहना होगा सावधान
+-  Florida Law Firm Takes a Stand in Product Liability Cases Spanning Various Sectors
