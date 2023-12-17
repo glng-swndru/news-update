@@ -1,11 +1,11 @@
 # Latest News
--  عاجل.. أنا طالبة وعمري 25 عامًا.. هل يشملني الضمان الاجتماعي؟
--  Bị nói 'xuống tóc xuất gia là làm màu để PR', Hoàng Yến lên tiếng
--  Miles appoints young minister to housing super-portfolio
--  Miles appoints young minister to housing super-portfolio
--  Puri: Donation boxes of temple near Sakhigopal Temple looted
--  Job-Verlust wegen KI wird in reichen Ländern besonders gross
--  Smith rages as 'fat bails' cost him his wicket
--  Smith rages as 'fat bails' cost him his wicket
--  Die häufigsten Träume der Schweizer – und was sie bedeuten
--  Yerinde dönüşümle 15 bin konut 5 bin iş yeri
+-  Enam Perkara yang Disunnahkan Wudhu, setelah Makan dan sebelum Tidur
+-  "Es una catástrofe": tormentas en Bahía Blanca, Argentina, dejan al menos 13 muertos
+-  María Paula Romo: “La fiscal está mostrándonos cómo funciona un narco-Estado”
+-  Explosive Pictures Suggest ZRP Cops Staged Own Robbery Shoot-Out
+-  Drone attacks intensify in Russia and Ukraine
+-  IDF says they have killed Hamas members operating in schools
+-  New York`s Met to return 14 stolen Cambodian artefacts
+-  Rahul Gandhi after Parliament security breach: Where are the jobs?
+-  Parliament security breach mastermind’s parents inconsolable, make plea
+-  India to reducing dependency on fossil fuels, bring down emissions by 45 per cen
