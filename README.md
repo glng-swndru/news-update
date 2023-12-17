@@ -1,51 +1,51 @@
 # Latest News
--  20 years later, Sant still believes Malta made a mistake to join EU
--  Veikkausliigan, Kansallisen Liigan ja alasarjojen tuomarit nimitettiin - mukana uusi luokittelutapa
--  BREAKING: At Least 9 Dead, Several Injured In Blast At Solar Explosive Company In Maharashtra`s Nagpur
--  부자들도 힘든 한 해… ‘성동구’ 새로운 부촌으로, KB금융 ‘2023 부자보고서’
--  Oil-producing states get N75.410bn as 13 per cent derivation
--  הפועל ירושלים מתכננת את ינואר, ומבינה: "אין יותר שמיכה להפסיד"
--  Alineación probable del Real Madrid hoy contra el Villarreal, partido de LaLiga
--  Полторы сотни дончан вошли в состав союза сельской молодежи
--  ‘Suçsuz olduğumu göstereceğim ama çürüteceğim delil yok’
--  Горящие постройки под Тосно потушили за один час вечером 16 декабря
--  Lille - PSG: horario y dónde ver en TV y online el partido de Mbappé en la Ligue 1
--  Biathletin Preuß will der Müdigkeit trotzen
--  В Калуге назначен новый главврач городского роддома
--  Slovákov opäť zovrela vianočná nákupná horúčka! O darčeky nebude núdza, chystáme sa minúť viac, ako vlani
--  Koalícia a opozícia sa dohodli, že chceme slušnejší parlament, tvrdí poslanec Smeru Jarjabek
--  Las Palmas - Cádiz: horario y dónde ver en TV y online la jornada 17 de LaLiga EA Sports
--  Liverpool - Manchester United: horario y dónde ver en TV la Premier League
--  Aboubakar Yönetimden Görüşme Talep Etti: Af Çıkabilir!
--  තැනින් තැන වැසි හෝ ගිගුරුම් සහිත වැසි
--  High Court defers bail hearing of BNP's Mirza Fakhrul Islam Alamgir again to Jan 3
--  Глава Петрозаводска надела боксерские перчатки и встряхнула себя физически
--  Диетолог объяснила причины плохого самочувствия за новогодним столом
--  Real Madrid'den Arda Güler kararı
--  Политолог: Лукашенко стал разменной картой
--  В Саратове задержали участника волгоградской ОПГ за убийство 19 лет назад
--  Harz oder Küste: Urlaub Weihnachten und Silvester 2023 in Niedersachsen buchen
--  강원 폭설에 길잃은 40대 등산객 2명 구출…하룻새 28건 안전 조치
--  금태섭 '새로운선택' 창당대회서 "내년 총선서 30석 확보… 2027년 집권 도전"
--  강원랜드 강릉 산불 피해 이재민 고통분담 1억원 전달
--  회식 강요·불참시 인사 불이익… 여전한 '회식 갑질'
--  강원도의회서 전임도정 사업 지적하며 "소신껏 반대하는 공직자 필요"
--  В Твери на Старом мосту легковушка столкнулась с самосвалом
--  Klimakrise macht Rentieren zu schaffen
--  Le Thunder s’offre les Nuggets au buzzer, merci Shai Gilgeous-Alexander ! (117-118)
--  60 нови случая на КОВИД-19 за ден
--  Small-cap vs large-cap mutual funds: Unpacking the potential for high returns in India
--  La classifica di Serie A dopo il sabato:
--  До +2 градусов и сильный ветер ожидается в Ленобласти 17 декабря
--  Picula: Zapadni svijet pod pritiskom novih politika i saveza
--  В Костромской области долгое время разыскивают бородатого мужчину
--  [오피셜] '카타르 WC 때 한국 상대' 우루과이 감독, 세비야에서 2개월 만에 경질
--  В Кувейте назначили нового эмира
--  ‘ธนกร’ ติง ‘ก้าวไกล’ อย่าผลิตวาทกรรมว่าคนอื่น หันมาแก้ปัญหาในพรรคดีกว่า
--  Leon Edwards vs. Colby Covington full fight video highlights
--  Новгородские электроэнергетики работают в режиме повышенной готовности
--  Tales from the coffeeshop: Tatar proves he is a political big shot
--  Маршрутът на автобусна линия № 10 във Варна ще бъде променен днес
--  И днес две кръгови кръстовища ще останат затворени заради ремонт на ул. „Девня“
--  Благотворителен коледен базар за грамофонни плочи с кауза "Аз вярвам и помагам"
--  Temblor en Rep. Dominicana hoy, 17 de diciembre – magnitud y epicentro del último sismo vía CNS
+-  Luca Martínez Dupuy se corona con Rosario Central tras ganar la Copa de la Liga
+-  'Chiquete' Orozco, 'afectado' por renuncia de Veljko Paunovic de Chivas: 'Me dolió'
+-  Коледното карнавално бягане ще стартира днес във Варна
+-  馬場密探048｜「寶麗生輝」轉泥即勝
+-  [속보] 尹 대통령, 산업통상부 장관에 안덕근 통상교섭본부장 지명
+-  Dončić maestralnom partijom prestigao dvije legende, odlična večer Zubca, težak poraz Bogdanovića
+-  فريق الخطاف من منطقة بوجرار يتحصل على بطولة ليبيا للميني فوتبول
+-  警方蘭桂芳反罪惡行動 拘捕25歲被通緝男子
+-  Ehlers og Bjorkstrand slår til med scoringer i NHL
+-  Dončić z brutalnim trojnim dvojčkom vrnil Dallas na zmagovita pota
+-  Deček, ki je pred šestimi leti izginil, se je vrnil domov
+-  İsrail güçleri, Batı Şeria'da İHA ile düzenlediği saldırıda 3 Filistinliyi öldürdü
+-  Çin'de fosil yakıt ithalat ve üretiminde artış yaşandı
+-  Bonservisi belli oldu! Fenerbahçe'de Rade Krunic mesaisi
+-  Edirne'de gerçekleştirilen denetimlerde 13 düzensiz göçmen yakalandı
+-  ¿Cuánto debe cada catalán? ¿Y cada madrileño?
+-  Serie A, domenica con 5 gare del 16° turno: Inter e Milan in campo. Il programma
+-  Predsednik RIK: Zlonamerne insinuacije da se priprema izborna krađa
+-  Fizetések mesterdiplomával és a tanárok fegyelmezési eszközei: ezek voltak a hét legfontosabb hírei
+-  Hämeenlinnan kirje | Nyt selvisi, ketkä ovat Aulangon uuden suosikkiladun isät ja tulevan tekojääradan äiti
+-  Ο Ζελένσκι χαιρέτισε τις επιτυχίες της ουκρανικής αντιαεροπορικής άμυνας
+-  Reagált a Magyar Közút a kátyúkáoszra, ami sok autós életét megkeserítette
+-  Qaraciyəri təmizləyən MÖCÜZƏVİ QARIŞIM
+-  UK teen Alex Batty arrives home after going missing in France
+-  បុរស​ម្នាក់​ត្រូវ​អស់លក្ខណ៍ ក្រោយ​លួ​.​ច​រថយន្ត​មិន​ទាន់​៣​ម៉ោង​ផង ជាប់អន្ទាក់​សមត្ថកិច្ច
+-  PM Kisan Yojana: कई किसानों को नहीं मिलेगा 16वीं किस्त का लाभ, जानिए क्या है वजह
+-  হার দিয়েই সিরিজ শুরু বাংলাদেশের
+-  Venäjän kehitys kuin 80-luvulta – Lada kertoo ylpeänä ABS-jarruista
+-  411’s UFC 296 Report: Edwards Decisions Covington
+-  जरुरी जानकारी | दिसंबर के पहले पखवाड़े में डीजल की बिक्री में सुधार, दिवाली में आई थी बड़ी गिरावट
+-  Kemenkeu: Pemerintah Tetap Waspada Meski Surplus Neraca Perdagangan 43 Kali Berturut-turut
+-  Ισραήλ: Διαδηλώσεις στο Τελ Αβίβ υπέρ της απελευθέρωσης των ομήρων της Χαμάς
+-  Michalkiewicz: „Czyn posła Brauna, to jest rodzaj felix culpa”
+-  Border municipalities unconvinced that national fireworks ban would work
+-  लुम्बिनी प्रदेशस्तरीय महिला क्रिकेट टिम घोषणा
+-  Aamer Jamal Inspiring Journey: टैक्सी चलाने वाला आमिर जमाल ने डेब्यू मैच में किया कमाल, जानें कैसा रहा इंटरनेशनल क्रिकेट तक सफ़र, देखें वीडियो
+-  Эдвардс защитил титул чемпиона UFC в полусреднем весе
+-  Diese Hausmittel beruhigen den Magen – gegen Völlegefühl an Weihnachten
+-  Pemerintah Antisipasi Lonjakan Kasus COVID-19
+-  Opinie: Intelectualul creștin: taină politică a evlaviei
+-  김창현 회장, 지역사회 공헌 대통령표창 수상
+-  제주시갑 총선 더불어민주당 ‘벌써부터’ 과열 분위기
+-  이경용 전 의원 총선 본격 돌입
+-  제주도의회, 제2차 추경안 처리 후 장기 휴식 돌입
+-  Почина първият барабанист на AC/DC
+-  «Информационное прикрытие»: как Германия видит процесс перевооружения Европы для борьбы с Россией
+-  Разходите за отбрана на Япония ще се увеличат с повече от 10% през 2024 г.
+-  Tragico incidente a Piedimonte Matese: muore un ragazzo
+-  Polda Jabar Tangani Kasus Dugaan Penipuan Jual Beli Ruko dengan Kerugian Rp 5,5 M
+-  KMU VC emphasises critical role of healthcare providers
