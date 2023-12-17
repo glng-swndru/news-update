@@ -1,51 +1,51 @@
 # Latest News
--  Tekel bayi katliamında istenen cezalar belli oldu
--  Valencia-Barcelona: 1-1 (ÖZET)
--  اللغة العربية.. من تعزيز الهوية إلى بناء المجتمع
--  شاهد.. أمير الكويت يذرف الدموع على فراق أخيه الراحل
--  فوائد مذهلة للشاي.. يحمي صحة الدماغ والقلب
--  «منشآت» توفر باقتين مخفضتين للمنشآت الصغيرة والمتوسطة
--  عاجل.. 10 أخبار لا تفوتك هذا الصباح.. أسرار "الطوابير الوهمية" أمام المقاهي وطرق السلامة من شر السحرة
--  بالأرقام.. "الطيران المدني" تحدد المقابل المالي للتراخيص الاقتصادية
--  الكويت تُودّع قائدها.. شاهد مراسم دفن الأمير نواف بمقبرة الصليبيخات
--  تراجع أسعار الذهب 3 ريالات.. وعيار 21 يسجل 213 ريالًا
--  Miesto, ktoré si ihneď obľúbia aj Slováci: Z Bratislavy si tam do štyroch hodín
--  Yoon replaces industry minister in Cabinet reshuffle
--  Will president's protege enter politics?
--  Trade Minister Ahn Duk-geun tapped as new industry minister
--  Finance minister nominee vows to put top priority on stabilization of inflation
--  Major KOSPI-listed companies obliged to issue public disclosures in English from January
--  Blondie & Garfield - DECEMBER 18, 2023
--  LG Innotek aims to dominate EV battery management tech
--  Ascolti tv sabato 16 dicembre: Ballando con le stelle, Grande Fratello, Sapiens
--  Billie Eilish Took Us For A Walk Down Memory Lane In Her ‘What Was I Made For?’ Performance On ‘SNL’
--  León sondea a Jorge Bava y a Gabriel Milito para suplir a Larcamón
--  "텐 하흐, 페르난데스 주장직 박탈하라!"…맨유 전설들의 촉구, "루크 쇼가 캡틴으로 더 낫다"는 주장도
--  김하성, ALL-MLB 팀 2루수 불발... 오타니 선발 투수·지명타자 '2관왕'
--  Filistin'e dua buluşması! Diyanet İşleri Başkanı Erbaş: Katliamın durması bizim gücümüze bağlı
--  Şenol Güneş'e bir talip daha! Bu sefer teklif Avrupa'dan
--  Aydın'da hakkında hapis cezası bulunan şahıslara eş zamanlı operasyon
--  Türkiye'nin küresel tarım üretimdeki konumu: Dünyada 19 tarım ürününün üretiminde ilk 4'teyiz
--  İstanbul'da deniz ulaşımına hava muhalefeti engeli
--  Hakkında hapis cezası bulunan 2 FETÖ'cü Adana'da yakalandı
--  Konferans Ligi'nin 3. favorisi Fenerbahçe
--  Aadhaar Card Expiry: क्या आपका भी आधार कार्ड हो गया है एक्सपायर? ऐसे चेक करें वैधता और अपडेट
--  Maastoraja ylitettiin laittomasti – Kaksi ihmistä Venäjältä Suomeen lauantaina
--  تشافي: برشلونة من أسوأ فرق أوروبا
--  فضيحة جنسية في فلوريدا تطال رئيس حزب وزوجته
--  विश्व स्ट्रेन्थ लिफ्टिङ विश्व चयाम्पियनसिपका लागि खेलाडी छनाैट
--  이번 주 더 강력한 북극 냉기 온다…서해안은 또 대설
--  Otomobilin çarptığı çocuk metrelerce havalandı
--  SIN SUZANE JOVANOVIĆ JE PRAVI DASA! Evo kako izgleda, čime se bavi i kakva lepotica ga je osvojila: Saša ga OBOŽAVA (FOTO)
--  U Srbiji danas republički, pokrajinski, izbori u Beogradu i 64 gradova i opština
--  전북농협, 도시·농촌 농축협간 도농상생 공동사업 추진 큰성과
--  Tamil Nadu: ब्रिटेन से गिरफ्तार किए गए तमिलनाडु के 10 मछुआरों को भारतीय तटरक्षक को सौंपा गया
--  Surat Diamond Bourse: प्रधानमंत्री नरेंद्र मोदी ने किया ‘सूरत डायमंड बोर्स’ का उद्घाटन, देखें VIDEO
--  Minister Tummala..కమ్మ కులం తల వంచే పని చేయను
--  주민 주도형 문화공동체 사업 성과를 나누다
--  강화군, 내년 1월부터 어르신들께 교통비 지원
--  인천 동구, 100억 규모 교육환경개선기금 사용 계획 ‘전무’
--  인천 남동구, 소기업·소상공인 특례 보증 50억 지원
--  인천 부평구, 생태계보전부담금 반환사업으로 '부들공원' 복원
--  “왕송호수서 희망찬 청룡의 기운 받으세요”… 의왕시, 2024년 해맞이 행사
--  최정희 의정부시의장, 미군 반환공여지 활용방안 모색
+-  Tilkynnt um innbrot vegna misskilnings
+-  U središtu Europe pronađena drevna 'prokleta pločica' koja priziva Sotonu: Pogledajte što na njoj piše
+-  Binnen 48 Stunden: Spahn will Geflüchtete in Drittstaaten abschieben
+-  شاهد.. الكويتيون يعزون أميرهم الشيخ مشعل الأحمد الصباح في وفاة أخيه الراحل
+-  Luka Doncic, Dallas'a galibiyeti getirdi
+-  Düzce'nin ünlü bal kabağı tezgahlara indi
+-  Pınar Karşıyaka'dan inanılmaz performans! Üst üste 7. zafer
+-  '미우새' 김준호, 임영웅 콘서트 '피켓팅' 도전…♥김지민에 "장모님 표 이미 구했다" 자신만만
+-  역시 '핑계고'…이동욱, 61.1%가 선택한 대상 "배우로도 못 올라봐" [마데핫리뷰]
+-  VIDEO Luka Dončić je ponovo zablistao, Jimmy Butler sa sirenom presudio Bullsima
+-  برشلونة يضع عينه على بديل ليفاندوفسكي
+-  Λίβερπουλ: Ξανά στο στόχαστρο ομάδων της Σαουδικής Αραβίας ο Σαλάχ
+-  Kharge calls CWC meeting December 21 to discuss host of issues
+-  llaria Salis, chi è l’italiana in carcere a Budapest: la storia
+-  С над 41 млн. лв. ще ремонтират 112 км от републиканския път II-99 Бургас-Малко Търново към Турция
+-  Temporal en Buenos Aires: fuertes vientos, cortes de luz e intensas lluvias
+-  Navidad con banda sonora
+-  تشكيلة الميلان المتوقعة أمام مونزا
+-  Will Young stars in Black Caps ODI win
+-  سفينة حربية بريطانية تسقط مسيرة في البحر الأحمر
+-  3년간 수도권 대학 '수시 이월' 급감…"정시 경쟁 치열할 듯"
+-  Koitjoukkueet hurjassa vireessä NHL:ssä
+-  Valtava määrä suomalaisia tositoimissa lauantain NHL-kierroksella
+-  Klimakrise macht Rentieren zu schaffen
+-  שחרור החטופים או מיטוט חמאס? ממשלת ישראל לא מצליחה להכריע
+-  Ер остида жойлашган ва энг кўп ўлик кўмилган шаҳарлар – дунёнинг ғайриоддий масканлари.
+-  Таhое Tico тўқнашуви: Tico ҳайдовчиси ва ҳамроҳининг ҳам икки оёғи синган.
+-  DInas Kesehatan DKI: Kasus Covid-19 di Jakarta Masih Terkendali
+-  Клівленд переграв Атланту: результати матчів НБА ВІДЕО
+-  PGA Tour Still Aims To Meet Deadline For Saudi Alliance – Woods
+-  Un oraș din România, printre primele 10 din Europa în care se trăiește cel mai bine. Studiul, făcut de Comisia Europeană
+-  Accords mets-vins : des idées pour un repas de réveillon savoureux et peu coûteux
+-  Dónde puedes reclamar el premio de Powerball sin revelar tu identidad
+-  Don’t underestimate the seriousness of the Indian Parliament security breach: PM Narendra Modi
+-  Wie der Macher des Rothenfelser Krimikellers die Corona-Zeit überstanden hat
+-  Top news developments in Karnataka on December 17, 2023
+-  조선일보 “‘서울의 봄’에 왜 떠나” 주문에 국민의힘 전두환과 선 긋기
+-  Qué canal transmite hoy- América vs Tigres EN VIVO por final de Liga MX 2023
+-  এক পদের মিষ্টি দিয়েই মন জয় করলেন উষা রঞ্জন
+-  شهداء وجرحى خلال استهداف الاحتلال الإسرائيلي مساكن ومستشفيات في غزة
+-  Leon Edwards' display at UFC 296 bowls fans over... as 'focused' performance shows he is 'levels above' Colby Covington as 'one of the best pound for pound fighters in the world'
+-  Жеребьевка 1/16 финала Лиги конференций. Смотреть онлайн LIVE
+-  Thiesi, la Polisportiva piange il presidente onorario Salvatore Marongiu
+-  [임혜숙 칼럼] 일과 가정의 양립이 가능한 사회…저출산 극복의 필수 요건
+-  Χατζηβασιλείου: Οι εξοπλισμοί στα νησιά είναι εκτός συζήτησης – Ορόσημο η Διακήρυξη των Αθηνών
+-  Аэропорт Волгограда возобновил работу в штатном режиме
+-  Menhub Budi Karya: Pembangunan LRT Bali Segera Ditindaklanjuti
+-  युवा घर फर्क
+-  الأمم المتحدة: حصيلة الاستجابة للنداء العاجل بشأن غزة 525 مليون دولار
+-  নির্দিষ্ট সংখ্যক আসন ছেড়ে দেওয়া হচ্ছে জাতীয় পার্টিকে: ওবায়দুল কাদের
