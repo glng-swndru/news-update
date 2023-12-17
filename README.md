@@ -1,51 +1,51 @@
 # Latest News
--  WATCH | Healthy Living Alliance talks on ultra-processed foods
--  Young hits century as New Zealand see off Bangladesh in first ODI
--  Tačna diјagnoza naše sumorne svakodnevice
--  Papa Françesku feston sot ditëlindjen e 87-të
--  Arshad Warsi recalls when he didn’t had work for three years
--  ‘Lessons will be learnt' from mistaken hostage shooting
--  Fortsatt internetavbrott i Gaza
--  5 Nations Tournament: Indian men’s hockey goes down against Belgium
--  Sixty-one migrants drown in shipwreck off Libya
--  Sokak Fotoğrafçısını Kıramayan Zeynep ve Volkan Demirel Çifti "Bu Aşk Değil de Ne?" Dedirtti
--  [인터뷰] 정지영 감독 "약자에 대한 편견 만연한 시대, 영화가 사회적 거울 역할 했으면"
--  태민, 역대급 '거꾸로 매달린' 퍼포먼스 펼쳐…“진짜 뒤집어졌다”
--  मुंबई की डॉक्टर ने प्रमुख उद्योगपति पर लगाया बलात्कार का आरोप
--  THL:n tutkija: Tupakkatuotteiden hintaa korotettava ja ikäraja nostettava 20 vuoteen, jos lain tavoite halutaan saavuttaa
--  Моррелл достроково здолав Агбеко та захистив WBA World у другій середній вазі
--  Više od 60 migranata se utopilo u brodolomu kod obala Libije
--  Vučević mogao samo da posmatra koš za pobjedu, ali i večeri,...
--  Woman dies in Swindon after police cordon off street
--  Fundraiser launched for funeral costs of missing mum Danielle Geraghty
--  Gerrards Cross luxury home goes on sale for £6.5 million
--  Driving in bus lane offence not enforced – council
--  Самарқандда кўзи кўкарган болакайни отаси калтакламагани маълум қилинди.
--  أول تعليق لتشافي بعد تعثر برشلونة للمباراة الثالثة تواليا
--  Gazzetta - Krunic sempre più in panchina: a gennaio partirà, c'è il Fenerbahce
--  Only solution is equality for Turkish Cypriots says minister
--  Full telemedicine adoption remains distant
--  AZAL Naxçıvan reysinin gecikməsi ilə bağlı açıqlama yaydı
--  Female leadership race begins between Naver, Kakao
--  WHO team calls Gaza's Al-Shifa hospital a 'bloodbath'
--  KAIST's AI robot breaks 100-meter world record
--  평창군-농촌진흥청, 노지 지능형 농업 시범지구 업무협약 체결
--  평창 대화면 국토부 도시재생사업 공모 선정…국비 총 121억 확보
--  도의원·양구군의원 재선거 입후보 안내 설명회
--  양구군 장애인가족 송년 잔치 ‘해냄에(愛) 감사’ 행사
--  양구군노인회장기 게이트볼대회
--  Premier League: Crystal Palace launch late fightback to hold Man City 2-2
--  [속보] 尹 대통령 "대설·한파에 취약계층 안전·돌봄 강화 선제 조치를"
--  Konserden alacağı ücret konuşuluyordu: Kenan Doğulu iddiaları yalanladı!
--  Bakan Göktaş müjdeyi paylaştı: 2 bin 392 engelli memur ataması daha yapılacak
--  Asgari ücret görüşmelerinde 2. toplantı! Veriler masaya yatırılacak
--  Yargıtay'dan boş kağıda atılan imza davasında emsal karar
--  Abdülkerim Bardakcı'ya İspanya'dan talip
--  Thafer: Körfez ülkeleri, Türkiye'yi hem yumuşak hem de sert güç olarak görüyor
--  Asgari ücrette gözler yarınki toplantıda... İşte olasılıklar
--  Metin Albayrak: Umarım Rıza hoca, Emrecan'a daha fazla süre verir
--  “맨유가 리버풀보다 잘할 줄 알았지!”…해버지 前 스승의 빗나간 예측
--  Tempestade mata ao menos 13 pessoas na Argentina
--  Vikings' Justin Jefferson happy to play a full game, laments another close loss
--  Jared Goff throws 5 TD passes as NFC North-leading Lions bounce back, beat Broncos 42-17
--  Five extra points: Tush Push? How about Kevin O'Connell's 'Tush Tap' times two?
+-  공립 단설유치원의 설립을 기대한다.
+-  공공기관 채용의 최우선은 공정이다
+-  초고령 사회, 최대한 늦출 수 있는 대책 ‘절실’
+-  추상 일색의 화풍에서 구상미술 고집...관조의 경지에 도달
+-  "돌을 잡은 손가락 사이의 싸늘함...허공을 날아가는 돌멩이서 시간을 느낀다"
+-  제주서 활동하는 187인의 사진전 ‘시간의 미학, 사진의 묘미’
+-  자연제주 이석창 대표 ‘서귀포의 작은 기록들’ 출간
+-  제주 구좌읍 김녕리의 국수집 배경, 한 가족의 이야기
+-  النود: لاتفريط بالمجلس الانتقالي الجنوبي
+-  강원영상위, 강릉에서 ‘노량 죽음의 바다’ 무료 상영회
+-  2023 제1회 스마트폰 환경영상공모전에 ‘지구야 건강해!’ 대상 선정
+-  '춘천 -16도' 전국 대부분 지역 아침 영하권… 수도권·중부지방 맹추위
+-  도장애인종합복지관, 춘천·속초·동해 발달장애인 생애설계실천 모니터링
+-  Andalucia will limit tourist accommodation from the beginning of January
+-  Salvador uskoro počinje sa izdavanjem obveznica u bitkoinima
+-  「我們為什麼要生孩子？」蔣偉文提問ChatGPT回答超催淚
+-  건양사이버대 이진경 교수, 대전 서구의장상 수상
+-  건보공단, 아동 및 청소년 위한 물품 후원
+-  AI가 통화 중에 실시간으로 통역해준다
+-  세종시의회 예결특위, ‘2024년도 예산안’ 의결
+-  세종시의회, 2023년 의정발전 유공 시상식 개최
+-  서산시, 어르신 아카데미 수료식 개최
+-  태안군, 사회적경제 활성화에 두 팔 걷는다!
+-  서산시, 럼피스킨으로부터 대한민국 축산 지켜냈다
+-  금산군 찾아가는 청소년 창업 특강 ‘인기’
+-  대전봉사체험교실 계룡시에 돼지등뼈 기탁
+-  논산시의회 논산시의회 유튜브 영상 공모전 시상식 가져
+-  건양대 전공수업에 산업현장 전문가 투입해 재학생 실무역량 강화
+-  심훈학회 제3회 학술대회 성료
+-  당진시보건소, 장애인 특화 차량 지원사업 선정
+-  대전시 청년주택 `다가온' 첫 공급
+-  사회복무대상 수상자 표창
+-  디지털드림센터 간담회 개최
+-  서구의회 279회 정례회 폐회
+-  세종시 선폐차 지원사업 추진 `박차'
+-  충남도의회 348회 정례회 폐회
+-  진천군 뜨거운 이웃사랑
+-  괴산 연풍면 도시재생 특화공모 선정 … 면단위 최초
+-  증평군 온정의 손길 봇물
+-  영동 봉곡리 마을 물난리 걱정 던다
+-  충청권 광역철도 영동 연장 총력
+-  옥천군의회 고향사랑기부금 한도 확대 건의문 채택
+-  충북보과대 총장배 태권도대회 성료
+-  MLB 진출 日 야마모토 포스팅시스템 최고액 예약
+-  이정후 `김하성 스승'에 배운다
+-  `스노보드 신동' 최가온 WC 여자 하프파이프 우승
+-  즈베즈다 황인범 `물오른 경기력'
+-  양효진 남녀배구 첫 통산 1500 블로킹 `금자탑'
+-  오타니 AL `행크 애런상'
+-  청주개신초 전국 태권도대회 금 8·은 1·동 2
