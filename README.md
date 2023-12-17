@@ -1,51 +1,51 @@
 # Latest News
--  Mick Foley Makes Surprise Appearance at ICW No Holds Barred, Attacks Another Wrestler
--  300.000 Briefe sind in Weihnachtspostfilialen eingetroffen
--  Palkka nopeasti jopa 100 000 e/vuosi: Kaksi huippukonsulttia paljastaa, miten kovamaineiselle alalle pääsee
--  خیبرپختونخوا میں امن کے ثمرات، چترال میں کالاش فیسٹیول کا آغاز، وادی سوات میں سیاحت میں اضافہ
--  Jake Paul Shoots Down Idea Of Wrestling His Brother in WWE
--  정경민 경북도의원, "유휴시설을 예술인과 주민을 위한 문화예술 공간으로 재활용해야"
--  “마약으로 억울하게 당한” 지드래곤, 혐의 벗고 새 소속사+신곡 발표 커밍순[MD이슈](종합)
--  이순신의 마지막 전투 '노량' 예매율 1위 등극, "대한민국이 움직이기 시작했다" 흥행예고
--  '쓰저씨' 김석훈, 한달 지출 100만원↓…유재석 울린 마이웨이→최고 시청률 8.4% [종합]
--  박명수, 토크 콘서트 라인업 화려하네…"라인업 에스파→세븐틴, 오프닝 MC는 조남지대" [라디오쇼](종합)
--  India's Rahul happy to be flexible in tests, T20Is
--  언론인권상 공로상 정치하는엄마들 “‘장애아동 학대’ 인권침해 보도 비판”
--  Мужчина и два ребёнка погибли в результате пожара в Ижевске
--  Metro prep hockey roundup for Saturday, Dec. 16
--  Khawaja and Marsh take lead over 400 on pitch playing tricks
--  ¡En plan grande! Charros vence a Guasave y extiende su racha positiva en la LMP
--  TKN Prabowo-Gibran Bungkam soal Penyalahgunaan Kredit BPR di Jawa Tengah yang Diduga Mengalir ke Koperasi Garudayaks
--  Израелски военни погребали живи палестинци в двора на болница "Камал Адуан" ВИДЕО
--  수도권매립지관리공사, 드림파크CC 친선골프대회 수익금 1천500만 원 지역사회 기부
--  인천시 연수구 보건소-대한노인회 연수구지회, 치매관리사업과 노인건강사업 추진 업무협약
--  인천공동모금회, ‘2023년 따뜻한 겨울나기 지원사업’ 배분금 전달
--  दि राइजिङ नेपाल ५८ औँ वर्षमा प्रवेश
--  Toddler killed after being hit by car in Dandenong North
--  Toddler killed after being hit by car in Dandenong North
--  আজিজ পাইপসের এজিএমের তারিখ পরিবর্তন
--  Η Ρωσία κατέρριψε 33 μη επανδρωμένα αεροσκάφη που εκτοξεύτηκαν από την Ουκρανία
--  Gazir revalida su título del FMS España
--  Deutsche Brigade in Litauen soll in Dienst gestellt werden
--  Borbás Marcsi harmadik férje: Dezsővel a munkában is társak
--  El contraste entre Powell y Lagarde, y lo que hacen en verdad los ingenieros
--  ‘หมู ปากน้ำ’ สร้างประวัติศาสตร์โค่น ‘ฮิกกินส์’ เข้าชิง สกอตติช โอเพ่น 2023
--  Grey`s Anatomy actor Jack Axelrod passes away at the age of 93
--  Carolina Hurricanes laittoi suomalaisvahti Antti Raannan siirtolistalle – "He eivät selvästikään ole tyytyväisiä"
--  Crime accused deported from UAE to Nepal
--  Bibaha mahotsav begins in Janakpur
--  Kurnool: కారుణ్య నియామకాల జీవోలో మార్పు
--  E-Auto-Prämie: SPD-Fraktion fordert langsameren Förderstopp
--  مخاوف من تفشٍ جديد لـ«الكوليرا» في اليمن
--  New Samsung, LG laptops drive industry shift toward on-device AI
--  Shai Gilgeous-Alexander drains game-winning shot as Thunder knock off Nuggets in Denver
--  롯데건설, '롯데캐슬 시그니처 중앙' 견본주택 개관…신안산선 수혜 기대
--  Heini hurahti fitness-urheiluun, kunnes havahtui ja hakeutui terapiaan: ”Mitä järkeä”
--  Deutsche Brigade in Litauen soll in Dienst gestellt werden
--  С 30% се увеличиха пенсионерите с над 1000 лв. пенсия
--  IND vs SA 1st ODI 2023 Dream11 Team Prediction: पहले वनडे मैच में टीम इंडिया को काटें की टक्कर देने उतरेगी साउथ अफ्रीका की टीम, यहां जानें कैसे चुने बेस्ट फैंटसी प्लेइंग इलेवन
--  پکڑ دھکڑ بند کر کے لیول پلیئنگ فیلڈ دی جائے،الیکشن لڑنے کے لئے قانونی حکمت عملی تیار کر لی: پرویز الٰہی
--  IND vs SA 1st ODI Stats And Record Preview: टीम इंडिया और साउथ अफ्रीका के बीच खेला जाएगा हाईवोल्टेज मुकाबला, आज के मैच में बन सकते हैं ये बड़े रिकॉर्ड; यहां देखें आंकड़ें
--  Académica-Sporting B, 0-0: preço dos pontos
--  Το «γλείψιμο» του Ευάγγελου Μυτιλιναίου στον Μητσοτάκη και την κυβέρνηση.
--  6 दिन और 42 चुनावी ईवेंट्स, अमेरिकी चुनाव में इस भारतीय ने बनाया रिकॉर्ड
+-  Oliver Wahlstrom finding himself scratched more often than not: ‘Gotta play his game’
+-  Gonzalo Piovi tiene una habilidad especial que despertó el interés de Cruz Azul
+-  Wisconsin Taco John’s bans unsupervised kids after thefts, rocks thrown at worker
+-  भाजपा नेता ने ब्रिटेन में भारतीय छात्र के लापता होने पर जयशंकर से मांगी मदद
+-  금감원 “9개 증권사, 5000억 채권 손실 돌려막기했다”
+-  DSÖ'den acil ateşkes çağrısı: Gazze'deki hastanelerden sadece 8'i kısmi olarak hizmet veriyor
+-  Japonya'da bakanların istifası sonrası koalisyon ortağı "siyasi reform" çağrısı yaptı
+-  İngiliz vekil, İsrail'in yargılanması için harekete geçti: Ben suç ortağı olmayacağım
+-  Crónica de seis meses hacia el adiós
+-  Un año desde que cambió mi vida por crevillent
+-  정해영·이의리 등 5명+정재훈·이동걸 코치, 美 드라이브라인 파견 "잠재력 최대한 끌어올리고자 한다"
+-  Birleşik Krallık'ın fahri konsolosu Ekvador'da silahlı kişilerce kaçırıldı
+-  İsrailli Bakan Ben-Gvir'den alçak ziyaret: AA foto muhabirine saldıran polise göreve dönüş sözü verdi
+-  DSÖ: Gazze'deki 36 hastaneden sadece sekizi kısmi olarak hizmet veriyor
+-  Прокуратура проводит проверки по факту нечищенных дорог на Орловщине
+-  현대카드, 나이스신평 장기신용등급 'AA(긍정적)'으로 상향
+-  Incertidumbre y nostalgia del Bipartidismo
+-  Pasar el décimo por la espalda
+-  Ekspertgruppe anbefaler at ændre skolers prøver efter ChatGPT
+-  Ekspertgruppe anbefaler at ændre skolers prøver efter ChatGPT
+-  HBL Debatt: Distansarbetet är här för att stanna
+-  El valor de la palabra
+-  Pablo Ruz y la ciudad exigida
+-  Recension: Jesper Högströms Ekelöf-biografi vågar ifrågasätta sin huvudperson
+-  Serbere stemmer efter år med prisstigninger og masseskyderier
+-  El auge del turismo deportivo especializa a los hoteles de la comarca para satisfacer las demandas de los equipos
+-  «Nuestro reto es situar el grado de Medicina de Alicante en los rankings mundiales»
+-  Serbere stemmer efter år med prisstigninger og masseskyderier
+-  Toppers een kwelling voor PSV? Ongeslagen koploper ziet ze nu weer als een uitdaging
+-  Nieuwe wijk Gedempte Haven in Waalwijk is verdraaid lastige puzzel, maar komt in zicht: ‘Het is één van de meest complexe bouwprojecten’
+-  روسيا تعلن اعتراض 33 طائرة مسيرة أوكرانية
+-  صفاقس : امطار خفيفة صباحا تكون اكثر غزارة بعد الظهر
+-  ISTRAGA UTVRDILA: Međunarodna mreža stoji iza dojava o bombama!
+-  «Fjukens Nissorama» 17. desember
+-  Näillä Helsingin pörssin kurssiraketeilla on nousupotentiaalia yhä jäljellä
+-  KFOR: Stalno procenjujemo bezbednosnu situaciju na KiM
+-  Eva bor i vita Spegelvillan
+-  রক্তাক্ত প্রান্তরে
+-  ‘সঠিক কথাই না বুঝলে উল্টাপাল্টা লাগে স্যার’
+-  Potica iz lončene posode ima vonj domačnosti
+-  Taipalsaarelainen professori Kaisu Puumalainen on sanonut mahdollisuuksille kyllä urallaan – Vapaalla hän luo lantaa tallissa
+-  Le “tri des poubelles” devient obligatoire en janvier 2024 : qu’est-ce que ça change pour vous ?
+-  Un habitant de Bastogne acquitté pour un viol et condamné pour un autre
+-  Asylantragszahlen in Österreich derzeit rückläufig
+-  Po koncertu se mu je pripetila neljuba nezgoda, a zdaj ga niti bergle ne ustavijo (Suzy)
+-  Már Magyarországon is elérhető a Samsung Galaxy S23 FE
+-  Eva bor i vita Spegelvillan
+-  DANAS JE JEDAN OD TRI NAJLEPŠIH PORODIČNIH PRAZNIKA - DETINJCI Roditelji, ne zaboravite ove običaje (VIDEO)
+-  MAJKA ŽIVA SPALJENA U DVORIŠTU, ĆERKA ZADAVLJENA U KUĆI Muž zatekao HOROR, policija sumnja na najgore
+-  SRBIJA JEDNA OD NAJBEZBEDNIJIH DRŽAVA Broj krivičnih dela smanjen za 17,9 odsto u odnosu na 2022.
