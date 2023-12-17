@@ -1,51 +1,51 @@
 # Latest News
--  Un año después, ¿dónde están los héroes que pintaron de albiceleste la Copa del Mundo?
--  Eintracht Braunschweig vs. 1. FC Kaiserslautern: Braunschweig gewinnt knapp und schickt FCK mit Null Zählern nach Hause
--  양홍석·마레이 48점 합작, LG 선두 DB에 1.5경기 차로 추격, 삼성 코번 26점 분전
+-  Milan Monza, giornata speciale per Florenzi: ha raggiunto quest’obiettivo con i club
+-  Air austral : Prolongation de l’immobilisation de son Boeing 787-8
+-  President Murmu to visit West Bengal, Telangana and Rajasthan from Dec 18-23
+-  Inaugura Quemen Pan y Pastel dos nuevas sucursales
+-  Conclou la transformació del carrer Pi i Margall en un eix verd
+-  Termina reunião entre Costa e Pedro Nuno Santos
+-  Украинские военные танком снесли здание с оккупантами на Харьковщине
+-  One kilo of cocaine, cash seized from Granville County home
+-  Igman vodi u Mostaru, Ćeman odličan na golu gostiju
 -  Здружение на инженери: Истечен е рокот за потпишување договор за Чебрен
--  Devotee Dies Of ‘Heart Attack’ Inside Jagannath Temple In Odisha’s Puri
--  선미, 쭉 뻗은 늘씬 몸매에 감출 수 없는 볼륨감 '고혹적 섹시미'
--  “Lo prometido es deuda”: Skar y Jorge sorprendieron con significativo tatuaje de pareja
--  Una funcionaria de la gestión de Massa quedará al frente de la Aduana
--  Bayern-Flop spielt Hauptrolle bei Europas größtem Fußball-Märchen
--  روسيا ترفع شحنات الغاز للصين إلى مستوى قياسي
--  Casi un cuarto millón de refugiados sirios han recibido ya la nacionalidad turca
--  Marelli svela: «Il fermo immagine può inchiodare Reijnders all’espulsione ma…»
--  Reuters: 'Abu Dabi İzmir Limanı'na Ortak Olacak'
--  Με επτά απουσίες η ΑΕΚ κόντρα στον Παναιτωλικό!
--  Bigg Boss 7 Telugu Winner: తనపై వచ్చిన నెగిటివిటీపై స్పందించిన శోభా, విన్నర్ అవ్వకపోయినా కోరిక తీరిందన్న గౌతమ్
--  Calviño lamenta que Feijóo rechace dialogar con Sánchez y mantenga la "confrontación"
--  Ronnie O’Sullivan calls for controversial new snooker rule to get rid of ‘boring’ rivals
--  Rabin Weiss: Suživot muslimana, kršćana i Jevreja u svetoj zemlji prekinut kada su došli cionisti
--  Nueva ministra de la SCJN
--  דיא סבע: "שמו עליי חותמת של אויב העם שלא בצדק"
--  Από τον πάγκο…
--  Low-paid civil servants to protest for place in state budget
--  Bodrum'da 24 düzensiz göçmen, yasa dışı yollarla yurt dışına kaçarken yakalandı
--  אפל מזהירה מפני שימוש במטענים לא מורשים עבור השעונים שלה
--  ΤΟ ΞΕΡΕΙ Ο ΚΑΡΣΕΔΟ
--  Peatón muere tras ser arrollado carretera a San Salvador
--  Kommentar von Hugo Müller-Vogg - Seriös geht anders: Jetzt trickst die Ampel auch noch im Sozialbereich
--  El poder al servicio de los mexicanos
--  عقوبات على الأهلي المصري ونجومه بسبب مباراة الاتحاد السعودي في مونديال الأندية
--  Uniforme à l'école: devant des jeunes, Gabriel Attal évoque sa "période gothique"
--  हिन्दू धर्म में महिलाएं क्यों नहीं जाती हैं श्मशान घाट, जानें क्या कहता है गरुड़ पुराण
--  करिब १३ अर्ब राजस्व सरकारी खातामा
--  Sandiaga Pastikan Kemajuan UMKM Anak Muda dengan Dukungan Ganjar-Mahfud
--  "NEMAM NIKOGA DA ME RAZUME" Oglasila se majka Noe Milivojev pola godine od ubistva ćerke: "Sada je to anđeo na nebu"
--  ASUS yeni Zenbook 14 OLED’i duyurdu
--  Corea del Sur reporta un lanzamiento de misil balístico norcoreano hacia el mar de Japón
--  El Crestón y el apocalipsis
--  Dejan Kulusevski tokhyllas – detaljen i firandet uppmärksammas
--  Rastorgujevs finišē desmitais PK posmā 15 kilometru distancē ar kopēju startu
--  Ivan Aska, SMB nilasing TNT
--  Të huajt kalojnë festat e fundvitit në Durrës
--  High drug cost: Oyintiloye begs Tinubu for urgent intervene
--  Il nuovo ospedale di Cremona sarà diverso da tutti gli altri
--  South Korea military says North fires ballistic missile
--  Therapie mit Genschere: Werden viele Krankheiten heilbar?
--  Faeser erwartet europäische Asyl-Einigung am Dienstag
--  Bengals backup quarterback Jake Browning reveals he was called in for a drug test just hours after stunning the Vikings with comeback overtime win
--  Familiares de los secuestrados por Hamás acampan para pedir su liberación
--  Класация на най-добрите кухни в света, на кое място е българската?
--  Takut Gempa Susulan, Warga Kabupaten Bogor Masih Mengungsi
+-  COCTELERA DOMINICAL
+-  Chloe Madeley and James Haskell enjoy sweet family Christmas meal with daughter Bodhi two months after split
+-  Трети украински шофьор на камион почина на блокираната граница с Полша - Труд
+-  Holleeder & co schreven het al: de ‘radiostilte’ is begonnen - nu ook in de formatie
+-  Holleeder & co schreven het al: de ‘radiostilte’ is begonnen - nu ook in de formatie
+-  Γκολ ο Κωνσταντόπουλος, φουλ για άνοδο η Μπέερσχοτ (vid)
+-  警青衣截可疑男檢可卡因 17歲仔涉管有危險藥物被捕
+-  Pre futbalový zápas v Bratislave pripravila polícia bezpečnostné opatrenie
+-  PRÁVE TERAZ Tragédia pri Devínskom jazere! Po zrážke s vlakom zomrela jedna osoba
+-  Николай Николов: Щастливи сме, че сме в „Елит”, атакуваме четворката!
+-  «Das macht uns stolz»: Außenseiter Kiel ist Wintermeister
+-  İsrail'in muhalefet lideri Lapid'den seçim çağrısı: Netanyahu başbakanlığa devam edemez
+-  We were jailed on drug charges after airport ‘staff’ put our names on cocaine-filled bags – CCTV proved we were innocent
+-  Al-Qaeda releases South African hostage Gerco van Deventer - Gift of the Givers
+-  George caretaker set to appear in court Monday on human trafficking charges
+-  Hape Kerkeling würde AfD-Verbot gutheißen
+-  Soccerladuma | HT Report: Arrows 1-1 Pirates
+-  Wiesbaden: Das Wochende mit einer Radtour einläuten
+-  Waka MPR Dorong Peningkatan Keterampilan Berusaha Lewat Ekonomi Kreatif
+-  Situata në Rripin e Gazës, sulm në Bregun Perëndimor, 5 të vdekur nga forcat izraelite
+-  EL CALLAO
+-  Este fin de semana podría realizarse 2ª exhumación de los restos del cantante Canserbero
+-  Bangor provide update after week-long visit by potential investors
+-  Клубът по щанги в Червен бряг смени името си в памет на треньора на Карлос Насар - Илиан Илиев
+-  MUŽ VODITELJKE JUTARNJEG BORI SE ZA ŽIVOT! Otkazuju mu organi, mozak oštećen, porodica se moli za ČUDO
+-  محافظ الغربية يعقد اجتماعا لتذليل عقبات مستشفيات طنطا العام والأورام الجديد
+-  Ouagadougou : L’Association « NAMALGUE de Ouidi » veut s’attaquer aux maux de son quartier
+-  Incesante la ola migratoria por Oaxaca
+-  Milan 'atropela' com início alucinante, faz 3 a 0 no Monza e segue à caça dos líderes no Italiano
+-  La Mini Party : un week-end gratuit en famille au Centre Georges Pompidou, les 24 et 25 février 2024
+-  Jessie J reveals painful injuries after horror fall off stage after one of the ‘worst’ gigs of her career
+-  2:3 beim KSC 3. Pleite in Folge - Elversberg geht die Luft aus
+-  Morreu o psiquiatra António Bento
+-  „Deutschland im Deep Web 3“ - Mehr als vier Jahre Haft für Darknet-Bubi Louis K.
+-  Szandiék nem aprózták el a karácsonyi díszítést (videó)
+-  Kırıkkale'de feci kaza! 9 yaralı var
+-  Експериментът Кирчо: Продължението - Труд
+-  Passage: In memoriam
+-  Xavi szerint a Barcelona Európa egyik legrosszabb klubja, ha erről van szó…
+-  Повреден ловџија безбедно евакуиран, прва интеревенција на новиот медикоптер
