@@ -1,11 +1,11 @@
 # Latest News
--  34슈팅 맞고도 쓰러지지 않은 맨유, 리버풀 원정 버텨내다
--  Aaj Ka Meen Tarot Card: मीन राशि वाले दूसरों के मामले में न करें हस्तक्षेप, कर सकते हैं विदेश यात्रा
--  Tav - Cosa succede a Chiomonte: un colpo di piccone atteso 33 anni
--  Tuleeko skeittiparkki Forssaan vihdoin? – Nuorisovaltuusto kysyy peruskouluikäisten mielipidettä
--  Woman buys London council flat for £78K... only to be told the entire block is due to be demolished weeks later
--  স্বতন্ত্রের ডামি পুতিন : ফাঁদে বাইডেন
--  Vota Chile por nueva Constitución o mantener la de Pinochet
--  ¡Se viene boda! Demi Lovato se compromete con su novio
--  "مباراة الحلم المرتقب".. برأيك هل يهزم الأهلي فلومينينسي ويصل لنهائي مونديال الأندية؟
--  التعادل يحسم قمة ليفربول والمان يونايتد
+-  Egy eredeti Red Bull-pilótafülkéből készült szimulátort is kérhetsz karácsonyra
+-  Juventus kauppaa tähtihyökkääjää - haluaa Leverkusenin sensaation riveihinsä
+-  Lietuviškų juostų diplomatė – Rokiškyje
+-  الإسكان: بدء تنفيذ ٥٥ ألف وحدة سكنية جديدة بـ "سكن لكل المصريين" بأكتوبر الجديدة
+-  جثة داخل سيارة.. العثور على مسن متوفى بمنطقة النقب الجبلية بالوادي الجديد
+-  من تل أبيب.. وزيرة خارجية فرنسا: يجب العمل لإعلان دولة للفلسطينيين الآن وليس غدا
+-  "حي وبيتحرك".. رجل يجد شئ غير متوقع داخل وجبة - وهذا ما حدث
+-  خبير في الشأن الإسرائيلي: جيش الاحتلال لا يملك القدرة على تدمير أنفاق غزة وحسم المعركة
+-  بالصور.. اصطفاف معدات الإغاثة والكوارث في الوادي الجديد
+-  Muere Rosita Pelayo, actriz de la telenovela “La fea más bella”
