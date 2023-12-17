@@ -1,51 +1,11 @@
 # Latest News
--  أونانا يتصدى لرأسية فان دايك وينقذ مانشستر يونايتد من هدف محقق
--  Kickoff | Baroka drop to fourth after latest loss
--  Football: English Premier League table
--  Samsung Galaxy S23 FE
--  Jordan’s King, Iraq’s PM, and Iran’s FM in Kuwait offering condolences over late Amir Sheikh Nawaf
--  Kam je izginil Rok Tršan?
--  Stream It Or Skip It: ‘Reacher’ Season 2 on Prime Video, Where The Big Fella Butts Heads With Shady Forces Targeting His Old MP Unit
--  Bayern Munich’s Jamal Musiala says new players can help take squad to “next level”
--  סלקום, פרטנר או פלאפון? מי הרשת הסלולארית הטובה בישראל?
--  UFC 296: 8 biggest takeaways from UFC’s roller-coaster year-end pay-per-view
--  Gay man recalls traumatic church conversion therapy experience: ‘They said I vomited out the gay’
--  อาเซียน-ญี่ปุ่น เห็นพ้องส่งเสริมความร่วมมือด้านความมั่นคงทางทะเล
--  Dánia lett a kézi-vb bronzérmese, Svédország a negyedik
--  İsrail muhalefet lideri Lapid: Netanyahu devam edemez
--  Çin uzaya SQX-1 roketiyle uydu gönderdi
--  Kuzey Kore, Japon Denizi istikametine balistik füze fırlattı
--  Gazze’de hayatını kaybeden İsrailli asker sayısı 121’e yükseldi
--  İsrail üzerinden Gazze’ye insani yardım geçişi bugün başlıyor
--  Dışişleri Bakanı Fidan, ABD’li mevkidaşı Blinken ile görüştü
--  Che gaffe a Udine: minuto di silenzio per Juliano ma sul maxi schermo c’è Pulici
--  Bei Mainz 05 wächst die Abstiegsangst
--  Sjajan niz šestoplasiranog bundesligaša bez primljenog pogotka u kojemu je stradao i Niko Kovač
--  Ananya Panday ने अपने नए घर में शुरू की क्रिसमस की तैयारी, शेयर की फोटो
--  BM'den ürküten Gazze açıklaması: 113 bin kadın...
--  Soccer-Arteta hails 'incredible' Arsenal performance in win over Brighton
--  Social media platforms across Pakistan face disruption as PTI’s virtual gathering underway: Netblocks
--  Kraft und Hörl landeten in Engelberg-Weltcup ÖSV-Doppelsieg
--  পিরোজপুরে আ.লীগ ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ
--  25 دقيقة.. تعادل سلبي بين ليفربول ومانشستر يونايتد
--  Pogacar correrá el Giro
--  Pogacar correrá el Giro
--  [ŽT] „20-25 tūkstančiai. Ir dar ne pabaiga.“ Okupantams nustatytas kitas terminas. Kas vyksta
--  Vakarai jau skambina pavojaus varpais. Kas laukia pralaimėjus Ukrainai
--  Gniaužia kvapą! Pasaulio rekordas. Norvegas nušoko nuo 40 m aukščio skardžio į ledinį vandenį (Video)
--  [ŽT] Ne silpnų nervų žmonėms. Okupantas išsitaško gabalais (N-18, Video)
--  „Turėjo saugoti „kadyrovcai“, bet jie kažkur dingo...“ Kas vyksta prie sienos su Ukraina (Žemėlapis)
--  „Žmogui tam prireiktų daugiau nei 2000 metų“: robotas-chemikas moka tai, kas padėtų žmogui apsigyventi Marse
--  Arsenal, Brighton karşısında iki golle güldü
--  يريدونها حربا دينية
--  সীমান্তে হত্যা শূন্যে নামিয়ে আনার আশ্বাস বিএসএফের
--  Designarán a oficial mayor de Nuevo Casas Grandes, Chihuahua, en enero
--  La LVBP finaliza la semana con estos duelos
--  Giro d'Italia 2024, Pogacar sarà al via
--  एम3एम का सिटी ऑफ ड्रीम्स करेगा बच्चियों का पढने का ड्रीम पूरा
--  Bigg Boss 17: Munawar Faruqi`s ex Ayesha Khan enters the house
--  أرسنال يعود لصدارة الدوري الإنجليزي بعد الفوز على برايتون
--  'The Crown' temporada 6, parte 2: final explicado de la serie de Netflix
--  WOCHENEND-ÜBERBLICK Unternehmen/16. und 17. Dezember 2023
--  Misterij povezan uz blizance: Ako jedan pati od opake bolesti, drugom prijeti ovaj problem
--  ن لیگ کیساتھ سیٹ ایڈجسٹمنٹ، چوہدری سالک کا واضح ردِعمل آگیا
+-  Fransız vekiller İsrail'e karşı ayaklandı: Netanyahu'ya karşı masaya yumruğumuzu vurmanın zamanı geldi
+-  AK Parti'nin adayları ne zaman belli olacak? Ömer Çelik tarih verdi!
+-  Rubén “Bebé” Vega retorna con paso victorioso
+-  F1-tähti on henkisesti romuna - superlupauksesta on vaarassa tulla floppi
+-  Damkronorna föll – men vann
+-  حاكم الفجيرة ينقل تعازي رئيس الدولة إلى أمير الكويت في وفاة الشيخ نواف الأحمد الجابر الصباح
+-  بوتين يقدم تعهدات قوية ضمن حملته لانتخابات الرئاسة
+-  Biathlon-Olympiasieger kämpft nach Schuss-Drama im Teamhotel mit den Tränen
+-  Ray of hope for landowners as NHAI mulls two-lane corridor along Thripunithura bypass alignment
+-  الإفراج في مالي عن رهينة مختطف منذ 6 سنوات
