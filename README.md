@@ -1,11 +1,11 @@
 # Latest News
--  מחממים את החורף - מוצרי חימום לחורף חם בבית
--  Diarrhea outbreak in Rourkela, 5 dead in 3 days
--  Ty Chandler shines in first start for Vikings with Alexander Mattison ruled out
--  Las lecciones de las protestas (2)
--  Conciencia colectiva
--  Escuela de Gobierno de la CIMOEA
--  Cardenal enjaulado: pasará 5 años preso por tracalero
--  Mueren dos personas por accidentes de tránsito, ambos conductores se dieron a la fuga
--  Preparan unidad contra el crimen organizado
--  Christian Bethancourt quiere jugar la Serie del Caribe
+-  Sancties tegen oligarchen: bijna een kwart van superjachten ligt aan de ketting
+-  Manchester United: Warum der Job von Trainer Erik ten Hag sicher ist
+-  공공서비스부터 정책까지 더 나은 삶을 ‘디자인’ 한다
+-  내가 만드는 정치자금
+-  알박기 텐트, 그곳에서도 내 마을 가치 찾아야
+-  Women survivors of gender-based violence being jailed by Taliban: UN Report
+-  Israeli airstrike killed a USAID contractor in Gaza, his colleagues say
+-  "토트넘 계륵→김민재 대체자로 가나?"…수비 무너진 나폴리, 최소 실점 '11위' 굴욕! 'KIM의 진정한 대체자 필요해'
+-  '음주운전' 김새론 복귀설에…"여왕 컴백" VS "벌써 복귀?" 네티즌 갑론을박 [MD이슈]
+-  ‘서울의 봄’ 천만 눈앞→‘노량’ 예매율 1위, “연말 극장가 뜨거운 활기”[MD픽]
