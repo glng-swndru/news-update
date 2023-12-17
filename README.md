@@ -1,11 +1,11 @@
 # Latest News
--  الخصاونة : الحل بفلسطين وفقاً للمرجعيَّات الدَّوليَّة وبما يلبِّي المصالح الأردنيَّة
--  Deretan Pemikiran Soe Hok Gie Ikon Idealisme Aktivis Mahasiswa
--  Mengenal 5 Pemeran Night Swim, Film Horor Baru Sutradara James Wan
--  [바튼소리]사천 '12년 만의 응애응애' 단상
--  Dubbla pallplatser för systrarna Öberg
--  104 kvadratmeter stort radhus i Rydebäck sålt
--  Hus på 70 kvadratmeter sålt i Påarp – priset: 2 775 000 kronor
--  Covid-19 meningkat 20,696 kes
--  Lantbruksfastighet såld i Vallåkra – priset: 9 100 000 kronor
--  BBP lideri Destici asgari ücret beklentisini açıkladı
+-  Londres e Berlim pedem “cessar-fogo sustentável” em Gaza
+-  Fiyatlar yüzde 30'lara kadar düştü! 2. el araç satışları durdu
+-  Vincent Aboubakar'dan şaşırtan hamle
+-  Kickoff | Marcelo makes vow to Fluminense fans ahead of Al Ahly clash
+-  Arjantin’de şiddetli fırtına: 13 ölü
+-  Children help Pope Francis mark 87th birthday
+-  Nara Lokesh : సీఎం జగన్‌రెడ్డి మహిళలను మోసం చేశాడు
+-  В Армении столкнулись микроавтобус и легковой автомобиль, пострадали 15 человек
+-  India vs South Africa: మొదటి వన్డేలో టీమిండియా ఘనవిజయం
+-  Готвач: Повечето масови доставчици продават чуждо свинско месо
