@@ -1,51 +1,11 @@
 # Latest News
--  Barcelonan manageri tylyttää tuhlaajanippuaan - ”Yksi Euroopan huonoimmista”
--  Arsenal on valmis jättikauppaan - se maksetaan, mikä vaaditaan
--  BBC Strictly Come Dancing's Layton Williams addresses 'heartbreaking' final defeat as true feelings laid bare
--  Fifa anuncia 'Mundial alternativo' com europeu direto na final e playoff para campeão da Libertadores
--  Super Mundial de Clubes tem datas definidas, e Palmeiras, Flamengo e Fluminense podem ficar até um mês longe do Brasil em 2025
--  SC terá uma mulher no comando das Eleições 2024
--  PM Modi Flags Off Kashi Tamil Sangamam Express In Varanasi- Watch
--  Dick Van Dyke: Forever young
--  Louder's writers pick their 10 favourite albums of 2023
--  Man Utd and Liverpool miss out on biggest tournament in history worth £1BILLION as first eight teams confirmed
--  Corona-Zahlen in Neumünster aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Idoso é morto de madrugada por encapuzados em frente a comércio e enteado fica ferido
--  Corona-Zahlen in Lübeck aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Uyusun diye çocuklara verilen melatonin takviyeleri tehlike saçıyor
--  낸시랭 "10억원 빚 원금 못 갚아…6년간 매달 1000만원 넘는 이자 감당"
--  الحكومة: دعوات الإضرابات لم ولن تخدم دعم غزة
--  रबी के दौरान मानक खेती उत्पादों की सप्लाई यकीनी बनाने के लिए पाँच फ्लाइंग स्क्वाड गठित : गुरमीत सिंह खुड्डियां
--  Konya'da fason silah parçaları ele geçirildi: 1 tutuklama
--  Corona-Zahlen in Kiel aktuell: Inzidenz für Kiel, Schleswig-Holstein und Deutschland
--  Home Office struggling to source planes for Rwanda plan – report
--  Corona-Zahlen in Flensburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Últimas semanas para visitar la muestra de superbacterias
--  ​Iancului, cartierul pe care comuniștii aproape că l-au închis complet vreme de doi ani, ca să-l refacă din temelii
--  How do you build business relationships? Entrepreneur Allie Braswell offers tips
--  UK households issued Covid warning in one of worst blows 'since vaccines introduced'
--  Man's Hilariously Passionate Christmas Dancing Delights Internet: 'Legend'
--  Beloved musical The Sound of Music is airing on TV tonight
--  Testamenty Ernesta
--  Lwowski elementarz
--  bet365 bonus code NYPNEWS: Score your $1k first bet or $150 for NFL, any sport
--  Zabić Mikołaja!
--  Księga strachów
--  Takie czasy
--  IT-bransjen må ikke være forbeholdt noen heldige få
--  Does ‘Yellowstone’ Return Tonight? ‘Yellowstone’ Season 5, Part 2 Return Date and Streaming Info
--  American dream Mieczysława Fogga
--  Jacek Malczewski, malarz przepotężny
--  Ofiary zdalnego nauczania
--  Osobisty ranking idoli Ziemkiewicza
--  Manifest brukselskiego hipokryty
--  Sejmflix i jego gospodarz. Hołownia show
--  Polityka antyrosyjska
--  «Bon deuil», entretien avec Houcem Bouakroucha et Feteh Khiari
--  TVP znów w starych koleinach
--  PiS trzeba zdecentralizować
--  "Do Rzeczy" nr 51: Esej Pawła Lisickiego. Święty Piotr – pierwszy papież
--  Wyrzuceni poza miasto
--  Kim był św. Piotr? Lisicki zachęca do lektury świątecznego wydania tygodnika "Do Rzeczy"
--  Tęsknota za maską
--  Wszyscy wygrali wybory. Nagrody dwóch panów G.
+-  1A Win: Teacher Fired for Refusing to Use Trans Student's Pronouns Gets Lawsuit Reinstated
+-  Fintech’s wild ride in 2023
+-  Princes of Ales reißen Publikum im Erlenbacher Beavers mit
+-  Neue Beratungstelle für sexualisierte Gewalt an Kindern
+-  Bei Fackellicht und Kerzenschein im Wenigumstädter Wald
+-  Montes reiteró que “nunca supieron de irregularidades” antes que estallara el caso Convenios
+-  "المؤامرة" الذي لم يرها سوى باسيل...من هو بديل العماد عون ومن يكون؟
+-  AK Parti İstanbul Temayül Yoklaması: Cumhurbaşkanı Erdoğan görüşleri kapalı zarfla aldı
+-  U19 Asia Cup: Bangladesh Thump UAE To Lift Trophy
+-  Un empate que empaña el trabajo del Chami
