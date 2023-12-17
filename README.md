@@ -1,51 +1,51 @@
 # Latest News
--  News24 | 'Safe return' to UK for British teen Alex Batty, found in France after going missing six years ago
--  Ўзбекистонда 18 декабр куни қандай об-ҳаво кутилмоқда?.
--  Херсон областидаги вайроналар ва Донбассдаги жангчилар ҳаёти. Уруш суратлари.
--  Predstavljena postignuća EU projekta „Unaprjeđenje sustava evidencije i upravljanja državne imovine“
--  이동욱 대구시의원, 제14회 우수의정대상 수상
--  Warga emas hilang ditemui mati lemas
--  अम्बाला में ईर्स्टन डेडीकेटिड फ्रेट कॉरिडोर पर नए फ्रेट टर्मिनल के निर्माण की प्रक्रिया भी चल रही है : अनिल विज
--  ارتفاع أسعار الطماطم والبصل والفاصوليا والملوخية بسوق العبور اليوم الأحد
--  ارتفاع أسعار السمك البلطي والمكرونة والبوري والجمبري اليوم بسوق العبور
--  التأمينات تعلن زيادة الحد الأدنى والأقصى للمعاشات بدءا من يناير 2024
--  Bike Transfer from Train: ट्रेन से बाइक पार्सल करने में कितना आएगा खर्च, जानिए ऑनलाइन और ऑफलाइन पूरा प्रोसेस
--  Yeniden Refah Partisi'nden açıklama: İddialar gerçek dışı!
--  Elon Musk: Çocuklar olmazsa gelecek nesil olmaz
--  Real Madrid'in yıldızı Galatasaray'a önerildi
--  Minister inspects landslip-affected areas along Coonoor-Mettupalayam Road
--  आधार कार्ड: अब स्मार्टफोन से बदलें आधार कार्ड की इमेज, आज ही जानें ऑनलाइन प्रोसेस
--  Kaplıca uyarısı; beyin kanamasına neden olabilir
--  Yangında 3 çocuğu komşuları, çatıya çıkan anneannelerini itfaiye kurtardı
--  MSB: Fırat Kalkanı bölgesinde 7 terörist etkisiz hale getirildi
--  Namaz kılar gibi davranıp, hırsızlık yapıyordu
--  Tramvay yolundaki direğe çarpan otomobil ikiye bölündü: 1 ölü, 3 yaralı
--  Ehliyet sınavına başkasının yerine giren 21 şüpheliye gözaltı
--  Tramvay yolundaki direğe çarpan otomobil ikiye bölündü: 1 ölü, 3 yaralı
--  Украина приостановила статус австрийского Райффайзен банка как "спонсора войны"
--  Poolse arbeidsmigrant toegetakeld met vleeshamer: 150 dagen cel
--  ‘Bagheera’ teaser: Srii Murali’s film hints at an action drama with a vigilante hero
--  Persikabo 1973 Vs Persebaya Berakhir Imbang 1-1, Tren Negatif kedua Tim Berlanjut
--  내년에 믿을 건 ‘반도체’…내수는 눈덩이 빚·부동산PF 부실로 ‘살얼음’
--  Survivor'a damga vurmuştu: Milli sporcu nişanlandı!
--  New Rapid Rail: अब दिल्ली से इन 2 रूटों पर चलेगी रैपिड रेल, जानिए कहां होंगे इसके स्टॉपेज
--  Bruggink stond 'met tranen in de ogen' vanwege racisme tegen Brobbey
--  “قادربوه” يلتقي مدير قسم شمال أفريقيا بالأمم المتحدة
--  Feyyaz Yiğit'ten dikkat çeken sözler: 'Bir manyaklığım yok'
--  꽁꽁 얼어붙은 경남...당분간 영하권 추위
--  지역 의료 공백 메우려면...인력 확보·의료체계 구축 절실
--  살인사건 일어난 김해 응급구조단 관계자도 실형
--  My dad was a terrible ‘father figure’ – so he doesn’t get to walk me down the aisle
--  İstanbul Güngören'de özel hastanede büyük yangın!
--  Britannia lähettää tähtiartistin Euroviisuihin
--  Temporal en la Ciudad: se derrumbó una estructura en la fiesta Bresh y se registraron al menos 15 heridos
--  Da li hospitalizovani mogu da glasaju? Da, ako izađu iz bolnice
--  UŽIVO Izbori u Vojvodini: Do 10 sati na glasanje izašlo 11,69 odsto građana
--  София може да остане без градски транспорт за празниците
--  Leverkusens Carro zum Afrika-Cup: «Muss geändert werden»
--  Ο πρόεδρος και η προοπτική μεταγραφής του Κατσαντώνη
--  Africa should stand together: President
--  Buitenlands voetbal | Tijjani Reijnders in basis AC Milan, Nederlanders met Brighton tegen Arsenal
--  Iconic seaside destination under threat as council faces £200k loss
--  Viral Video: పనిలో ఏకాగ్రత అంటే ఇదేనేమో.. పాములు పక్కనే ఉన్నా పట్టించుకోకుండా..
--  Izraelske snage nastavile napade na Pojas Gaze, ubijeno najmanje 47 Palestinaca
+-  Exclusive! Rashmika expresses her `love` to the audience for Pushpa: The Rise
+-  البنك المركزي يصدر قواعد تنظيم شركات الدفع الآجل.. تعرف عليها
+-  Real'in yıldızı Cimbom'a önerildi
+-  MSB duyurdu: Öldürüldüler!
+-  מכבי תל אביב עם תלבושת מיוחדת, שריף כיוף ינציח את ענבר היימן
+-  מהכרם לגביע: מחזור החיים של היין
+-  RIK: Do 10h izlaznost 9,94 odsto, NVO-i da ne šire paniku i ne vrše pritisak
+-  Otomobil tramvay yolundaki direğe çarparak ikiye bölündü: 1 ölü, 3 yaralı
+-  Russland-Sanktionen: Machte die Regierung einen Deal für die Raiffeisenbank?
+-  Bolu Dağı'nda sis etkili oldu
+-  Serie A, le formazioni ufficiali di Milan-Monza
+-  自助洗衣店查竊案見鬼祟 「配合度」太低意外捕獲通緝男
+-  Le Département a débloqué 15 millions d’euros après la tempête Aline, sur fond de chamailleries avec la Métropole
+-  Niemcy wcześniej kończą program dopłat do aut elektrycznych
+-  Legia Warszawa straci największą gwiazdę po sezonie? „Mam spore wątpliwości, że zostanie”
+-  SHMÚ upozorňuje na poľadovicu, vietor na horách, povodne aj smog
+-  Blíži sa návrat kráľa? Kanye vypustil ukážku chystaného albumu s Ty Dolla $ignom
+-  পালপাড়ার দইয়ের হাঁড়ি
+-  Flygplatsen under vatten efter cyklonen Jasper
+-  Flygplatsen under vatten efter cyklonen Jasper
+-  Flygplatsen under vatten efter cyklonen Jasper
+-  Lauri Markkasen suu koki kovia lauantain NBA-kierroksella
+-  Suomi haastaa Sveitsin EHT-turnauksen päätösottelussa - tuovatko muutokset viimein voiton?
+-  Anten tamir ederken balkondan düşen kişi öldü!
+-  نحو مقاطعة التكنولوجيا المجبولة بالدم الفلسطيني
+-  نتنياهو لوزرائه: لديكم تفويض بالقتال وليس بوقف النار
+-  أميركا لإسرائيل: نتعرض لعزلة وضغوط ليست في صالحكم
+-  حزب إرادة يفتتح مقره في الرمثا ويلتقي أعضاء هيئته العامة في اللواء - صور
+-  دراسة: الطاعون سبب إدمان الوجبات السريعة
+-  أسباب تقوس الساقين لدى الأطفال
+-  أهم 6 أسباب تجعلك جائعاً دائماً
+-  中職》執教生涯最長一年 洪總吐露心聲 ：滿愉快的！
+-  Alerte météo: vague de froid du lundi au jeudi dans plusieurs provinces
+-  أصاب فتاة بـ300 حصوة على الكلى.. ما هو شاي الفقاعات وأضراره؟
+-  Twee mannen neergestoken in discotheek Lemele, drie verdachten opgepakt
+-  „Resilienzbonus“: Habeck will deutsche Solarhersteller gegen China-Konkurrenz stärken
+-  „Resilienzbonus“: Habeck will deutsche Solarhersteller gegen China-Konkurrenz stärken
+-  2023: Balances, avances y retrocesos, por José Gato Briceño
+-  Rüfət "Range Rover"lə sürət həddini aşdı
+-  Schüler vom Gymnasium Ernestinum musizieren in der St. Nikolai-Kirche (mit Video und Bildergalerie)
+-  Chile vota en un nuevo plebiscito si mantiene su Constitución actual o aprueba la segunda propuesta de reforma
+-  हाथ-पैर बांधे, कुएं में लटकाया 7वीं क्लास के बच्चे का शव… जिसने भी देखा दहल उठा
+-  Speelgoedbanken hebben nog genoeg cadeaus voor Kerstman na drukte van Sint
+-  الجيش يستهدف بالمسيرات مواقع للدعم السريع في منطقة شرق النيل والمدينة الرياضية
+-  سيدي بوزيد: احياء الذكرى ال13 لاندلاع الشرارة الاولى للثورة التونسية.
+-  Így nézne ki Karikó Katalin és Krausz Ferenc legóból
+-  IND vs SA: Ishan Kishan Withdraws Name From Test Series, BCC Names Replacement.
+-  Bouterse to listen to advice “stay away from the final verdict”
+-  «الاستئناف»: تأجيل إصدار الأحكام القضائية حتى أداء سمو الأمير الشيخ مشعل الأحمد اليمين الدستورية
+-  Putin upozorio Finsku i naredio uspostavljanje novog vojnog okruga na granici
