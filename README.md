@@ -1,51 +1,51 @@
 # Latest News
--  حديقة الحيوان: منح مكملات غذائية للحيوانات لتحسين حالتها الصحية
--  الفريق أسامة ربيع: 10.3 مليارات دولار إجمالي إيرادات قناة السويس لهذا العام
--  'We Are Spanish Bye' se lleva la Parada Tier 1 del Circuito Tormenta en Gamergy
--  Los Colts vencen a los Steelers y se afianzan entre los comodines de la AFC
--  ¿Por qué Mauricio Macri no fue a votar en las elecciones en Boca?
--  مقاتلة إسرائيلية تقصف أهدافا لحزب الله
--  서울 아파트 실거래가지수 0.08%↓, 올해 첫 하락 ... '2차 하락' 현실화
--  „Nordkorea gleich wie Südkorea“ - Mit absurdem Statement verteidigt Fifa-Präsident Infantino WM-Bewerbung
--  Brother's Grimm - a cautionary Christmas tale involving alcohol and pepper spray
--  أيندهوفن يكتسح ألكمار برباعية في الدوري الهولندي
--  Westlake Boys High defeat top Irish college to win World Schools Festival
--  Sabeckio debiutas naujoje komandoje paženklintas 11 rezultatyvių perdavimų
--  Inter vence Lazio e isola-se (ainda mais) no topo da Serie A
--  مسؤول مصري: لا وجود لأزمة في السُكر
--  Mínimas abaixo de zero: aviso amarelo de tempo frio para Bragança, Guarda, Vila Real e Viseu
--  Pucnjava u Meksiku: Ubijeno 11 osoba, 12 ranjeno
--  Lautaro i Tiram kaznili Lacio, Inter ne da vrh VIDEO
--  Primeiras projeções na Sérvia apontam para vitória do partido no poder
--  బీఈఈ మీడియా సలహాదారుగా చంద్రశేఖర్‌రెడ్డి
--  PSV’s unstoppable run continues with 0-4 win in Alkmaar
--  Descubren una nueva especie de tarántula y la nombran en honor a Satanás por su "mal temperamento"
--  '구관이 명관이네' 2024 외인 구성 60% 완료, 두산·KIA만 감감무소식이다
--  "장타력 돌아온다면, 횡재 될 것"…'5홈런→24홈런' 부활의 신호탄 쏜 외야수, NL 챔피언과 3년 547억에 재결합
--  Franța domnului profesor Krumbholz
--  Video: ¡Bloqueo salvador del ecuatoriano William Pacho en el fútbol de Alemania!
--  BTS’s Jimin And Jungkook, LE SSERAFIM, And FIFTY FIFTY Top Circle Weekly Charts
--  ఆధునిక వైద్య విధానాలతో క్యాన్సర్‌కు చికిత్స
--  Fiscalía de Ecuador dispone localización e inmovilización de Jorge Glas
--  북한, 17일 김정일 12주기에 단거리 탄도미사일 발사 (종합)
--  [기자수첩] 새 술은 새 부대에
--  [찐에듀⑫] '아이캔두' vs '써밋' vs '스마트올' vs '코코블'
--  '연임이냐, 퇴진이냐'…포스코 최정우 갈림길, 선택은?
--  이랜드, 온·오프 투트랙으로 패션사업 확장 '드라이브'
--  인천 논현동 호텔 주차장 화재로 54명 중경상 (종합)
--  قيادات مكتب الشهيد لـ «الأنباء»: عاش جابراً للخواطر وساعياً في لمّ شمل شعبه
--  Politik-News im Überblick: Keine „Förder-Garantie“: Lindner zum Ende der E-Auto-Prämie
--  Vučić proglasio pobjedu SNS-a, cenzus prešlo pet lista
--  Bakan Yerlikaya'dan depreme ilişkin ilk açıklama. 'Yakından takip ediyoruz'
--  Chiefs beenden Niederlagen-Serie
--  Will Levis injured at end of Titans' 19-16 loss to the Texans in OT
--  Rezervista David osigurao bod Lilleu u duelu protiv PSG-a
--  Chiefs beenden Niederlagen-Serie
--  Proudly weird neurodiverse comedian earns prime spot at Melbourne comedy festival
--  El extraordinario caso del agujero negro GRS 1915+105
--  Urspårning på Malmbanan – stopp i flera veckor
--  Najsretniji ljudi na svijetu tvrde da su ovo najbolje jutarnje rutine: Počnite s njima već sutra
--  El fuerte viento dio vuelta seis avionetas en el aeropuerto de San Fernando
--  నాడు సచివాలయంలోకి రానివ్వలేదు
--  Pimienta: "Es importante no perder cuando no estás bien"
--  عن السلام وحرب الألف عام!| كتب علي العمراني
+-  هل الحكومة مُلزمة بتقديم استقالتها عقب إعلان نتيجة الانتخابات؟.. أستاذ قانون دستوري يُجيب
+-  البث العبرية تعلن وفاة جنود داخل المستشفيات بعد إصابتهم ببكتيريا مقاومة
+-  لتعطيش السوق.. الزارعة: رصد 32 ألف طن من البصل في مركزين بالجيزة
+-  جامعة 6 أكتوبر التكنولوجية تنظم ندوة توعوية لمكافحة الإدمان والتعاطي.. (صور)
+-  رئيس وأعضاء مجلس إدارة "القناة للكهرباء" يتفقدون الورش الرئيسية
+-  أسامة كمال لـ وزيري خارجية بريطانيا وألمانيا: "دين أبوكم اسمه إيه"؟
+-  "토트넘에 1억 파운드(1657억) 선수 있다!"…맨유 전설의 극찬, '놀랍게도 손흥민이 아니다!' 그럼 누구?
+-  김지은, 한소희·있지 류진과 친자매급 닮은꼴 "오해多…싸인 요청도" [미우새](MD리뷰)
+-  13살때 맨시티 홈구장 볼보이→7년 후 맨시티 데뷔전서 결승골 넣었다…20살 윙어 과르디올라 감독과 인연 ‘화제’
+-  שיתפה תמונה של הארוחה שלה במסעדה וקיבלה חשבון של מעל 223 אלף שקל
+-  גשושית החלל וויאג'ר 1 שולחת מסרים מסתוריים שמדאיגים את נאס"א
+-  במרכז הרפואי כרמל ציינו את חנוכה בסימן קירוב לבבות
+-  Pokemon Go Winter Wishes Timed Research tasks & rewards
+-  Portela vai atingir 34 milhões de passageiros este ano
+-  ‘Really painful’: Awkward world champ scenes as stars explode over stunning dual choke-job
+-  NRL 2024: Jarome Luai signing with Wests Tigers, contract, who will replace Jarome Luai as Penrith Panthers five-eighth in 2025?
+-  Mbappe zabio 180. gol u francuskom prvenstvu, PSG kiksao
+-  Vučić: Apsolutna pobjeda, bolji smo nego na prošlim izborima
+-  Predsednik RIK za N1: Izazov na ovim izborima bila navala klipova i fotografija
+-  Weihnachtsmarkt Centro Oberhausen: Rentnerin mit bitterem Geständnis – „Kann sich das nicht mehr leisten“
+-  MasterChef All Star'da elenen isim belli oldu
+-  Dodik i Nešić u štabu SNS-a uz Aleksandra Vučića
+-  الزبن مديراً للاستثمار في دائرة الأراضي والمساحة
+-  سي إن إن: أوستن سيضغط على الإسرائيليين لتحديد معالم حرب غزة
+-  “Caritas je način života”: Održan susret volontera župnih caritasa Riječke nadbiskupije
+-  Dos niños quedaron huérfanos tras la catástrofe en Bahía Blanca
+-  Ovo su najnoviji podaci RIK-a za Vojvodinu
+-  «Реал» дома обыграл «Вильярреал» и поднялся на первое место в ла лиге
+-  Реал із Луніним розгромив Вільярреал: результати матчів Ла-Ліги
+-  Real Madrid goleia Villarreal. Bellingham iguala mais um recorde de CR7
+-  VIDEO Pogledajte kako je PSG u petoj minuti sudačke nadoknade ostao bez pobjede
+-  INFOGRAFIKA Kako će izgledati raspodela mandata u skupštini Beograda
+-  생산성 개선하지 못하면 20년 후 '역성장' ... "이민정책, 우호국과의 경제통합 논의 필요"
+-  Por solicitud de Rodolfo V., difieren audiencia inicial del homicidio del periodista Luis Enrique Ramírez
+-  Tras votar en Boca, Milei viajó Bahía Blanca y dijo que los vecinos “van a poder lograr resolver esta situación”
+-  Vesna Pešić za N1: Nema više demokratskih izbora u Srbiji
+-  Remake de 'One Piece' de Netflix: el legendario anime de Eiichiro Oda tendrá una nueva versión a cargo del estudio de 'Attack On Titan'
+-  Vase bought at Goodwill for $3.99 sells for more than $100,000
+-  Crisis económica: los cinco reclamos de empresarios de la construcción mendocina
+-  Milanski Inter povećao prednost na vrhu ljestvice, Bašić ostao na klupi Lazija
+-  ¿Con esa boquita come? Taylor Swift enfurece en partido de NFL
+-  Mølby om VM i dart: 'Hold øje med ham her'
+-  Real Madrid haalt Blind en co. weer even in, late domper voor PSG
+-  Tragic update after little boy is killed while trying to cross the road with his dad in Melbourne
+-  How to get TikTok secret emojis: All emoji codes
+-  Lazio, fischi assordanti al triplice fischio. L'urlo dell'Olimpico: "Fuori le palle"
+-  Naci Görür'den ilk açıklama: Marmara’daki sistem gerilim biriktiriyor
+-  Iğdır valiliğinden açıklama geldi! Kar yağışı nedeniyle 9 köyde eğitime 1 gün ara verildi
+-  CECA U MINIĆU, SNIMAJU JE ODOZDO NA GORE! Srpska pjevačica "grmjela" u nikad kraćoj haljinici, pokazala NOGE OD MILION!
+-  Aussie Valkanis oversees Euro giants Ajax for a day
