@@ -1,51 +1,51 @@
 # Latest News
--  पूर्व मुख्यमंत्री स्वर्गीय हरिदेव जोशी को विधानसभा में पुष्पाजंलि
--  من صناعة الحارس أليسون.. شاهد أجمل هدف لصلاح في شباك مانشستر يونايتد
--  De l’art d’entreprendre
--  산업부장관 후보자로 지명된 안덕근 통상교섭본부장은 누구?
--  Tren Covid-19 di Jakarta Naik, Dinkes DKI Mulai Distribusi Vaksin Dosis Ke-5
--  Solar Explosive company : नागपूर - अमरावती बाजार गाव येथील कंपनीत स्फोट,मुख्यमंत्र्यांची प्रतिक्रिया
--  Shorttrackers profiteren van straf Italianen en grijpen zilver op aflossing bij wereldbeker in Seoul
--  "Chaque camp joue sa partition": Emmanuelle Dancourt, présidente de #MeTooMedias réagit à la lettre de la famille Depardieu dans le JDD
--  Firmy nepremýšľajú dlhodobo, iba prepúšťanie nepomôže udržať zisk, tvrdí analytik
--  Financial Times: zachodni przywódcy sami doprowadzili do "zmęczenia Ukrainą"
--  Mabuk Berat di Jalan, Tiga Pemuda Diamankan Tim Sparta Polresta Solo
--  Ruotsin naishiihtotähti jättää sunnuntain kisan väliin
--  Građani Srbije izlaze na glasanje: Gužve na biralištima od jutros FOTO
--  (FOTO) DOGODIO SE PRESEDAN U ZVEZDAMA GRANDA Saša Popović lio suze usred emisije: Ovo je razlog
--  Britten Olly Alexander klar för Eurovision
--  220.1 مليون دولار استثمارات عُمانية في بورصة عمّان
--  إصدار 334 عقوبة بديلة عن الحبس في تشرين الثاني
--  المواصفات والمقاييس تدعو للابلاغ حال الشك في أسطوانات الغاز
--  40.9 دينار سعر غرام الذهب في الاردن
--  Kórházba került Kareem Abdul-Jabbar
--  Doa Syukur dan Dzikir Akhir Tahun Digelar JSI Bangka Belitung
--  Primarul Craiovei vrea să desființeze Ansamblul folcloric „Maria Tănase” şi Casa de Cultură
--  Aina Abdul, Ernie Zakri, Marsha Milan tepati ramalan ke AJL38
--  Miss France 2024 : quelle audience pour la cérémonie et le sacre d’Ève Gilles sur TF1 ?
--  Hrvatskom branitelju i pločanskom učitelju Zoranu Lončaru učionica je prvi izbor, a sport i kvizovi strast: nakon više od 40 godina staža ispraća posljednju generaciju četvrtaša
--  Großbritanniens National Grid lässt Zulieferer aus China wegen Cybersicherheitsbedenken fallen - FT
--  Britse National Grid verwijdert leverancier uit China uit vrees voor cyberveiligheid - FT
--  SAMA issues rules for buy now, pay later companies
--  Kako zveni književnost – kafkovsko, popotno pa tudi obsesivno zbirateljsko.
--  Kako zveni književnost – kafkovsko, popotno pa tudi obsesivno zbirateljsko.
--  5 dicas para não se endividar com as compras de fim de ano
--  Tatar bol pri premiére za Seattle v prvom útoku. Spokojní boli experti aj tréner
--  O parayı sakın ödemeyin! Çocuklarını özel okullara gönderen ailelere iyi haber geldi
--  PNG, Batang Pinoy championships get going
--  Balla takim me kryebashkiakun e Bajram Currit: 200.000 vizitorë brenda këtij viti në këtë zonë
--  태민, 멤버 키˙민호와 애정 담긴 격한 인사…“공연 보러 와줘서 고맙다”
--  10 mn imported eggs released to market; another 15 mn to arrive today
--  فاكهة تغنيك عن مكملات فيتامين سي العلاجية.. «ليست البرتقال»
--  อินโดนีเซีย เล็งซื้อข้าวไทย 2 ล้านตัน ลงทุนแลนด์บริดจ์
--  मुख्यमंत्री सुक्खू ने वरिष्ठ पत्रकार की माता के निधन पर शोक व्यक्त किया
--  কেন নির্বাচনে থাকা দরকার, কারণ জানালেন হিরো আলম
--  Loi immigration : réunion de la dernière chance - 17/12
--  WhatsApp: ਵਟਸਐਪ 'ਚ ਬਦਲਣ ਜਾ ਰਿਹਾ ਸਟੇਟਸ ਸੈੱਟ ਕਰਨ ਦਾ ਸਟਾਈਲ, ਕੰਪਨੀ ਜਲਦ ਹੀ ਦੇਵੇਗੀ ਇਹ ਫੀਚਰ
--  黎智英案明开审 入法院须X光机检查
--  Serie A femminile, 11ª giornata, La Roma può allungare sulla Juventus: il programma completo
--  Beberapa kediaman kosong selesai diperiksa kesan pembunuh Zayn Rayyan
--  Израел обяви края на операция около болница в Газа
--  وهاب: كلام نتانياهو فارغ لا قيمة له
--  Emre Mor lösemi tedavisi gören 11 yaşındaki Ahmet'e forma gönderdi
--  Prljava kampanja; Kreni-Promeni dovoze crne džipove pred birališta pa optužuju SNS
+-  المشاط: 10.3 مليار دولار حجم التمويلات التنموية الميسرة للقطاع الخاص منذ عام 2020
+-  Astana vil gøre Mørkøv og kollegerne knivskarpe til OL
+-  الأحد 17 ديسمبر 2023.. صعود جماعي لمؤشرات البورصة مع بداية تعاملات اليوم
+-  التعاون الدولي تطلق منصة « حافِز » للدعم المالي والفني للقطاع الخاص
+-  AIK lånar in Carl Åsell från Brödernas/Väsby
+-  Zee Appoints Three New Independent Directors: Pinisetti, Desai, Agarwal Join The Media Conglomerate
+-  קליש רותם הקפיאה את ישיבות מועצת העיר
+-  Javier Milei prepara un amplio DNU con desregulaciones económicas y reformas laborales
+-  Galatasaray'ın rakibi yarın belli olacak
+-  Murat Boz'dan ilginç itiraf!
+-  Loša ishrana destruktivno deluje na plodnost muškaraca i žena! (VIDEO)
+-  Hamás dice que no habrá negociaciones sobre intercambio de rehenes sin cese del fuego
+-  Indian Police Force Teaser: एक्शन के साथ सस्पेंस भी, रिलीज हुआ रोहित शेट्टी की इंडियन पुलिस फोर्स का टीजर
+-  Når Karen Kildahl putter sine drenge, følger hun en bestemt tilgang. Hun har en række råd til andre forældre, der har svært ved at få børnene til at sove
+-  Når Karen Kildahl putter sine drenge, følger hun en bestemt tilgang. Hun har en række råd til andre forældre, der har svært ved at få børnene til at sove
+-  ביל מאהר שובר את הרשת: "לאן אתם חושבים שישראל תיעלם? אזהרת ספוילר: לשום מקום"
+-  ישו, היטלר וחברים: קניה ווסט שחרר אמירות אנטישמיות חדשות
+-  NOVE GNUSNE LAŽI ŠOLAKOVIH MEDIJA Vučić na glasanju bio sam, sreo se sa komšijama čekajući svoj red
+-  삼성-ASML R&D 센터, 성과 가로채기라던 野 “사실과 달라... 논평 삭제”
+-  メルセデスとレッドブルのF1代表が話題の“仲良し”写真の背景を説明
+-  यूपी फार्मेसी स्पेशल काउंसलिंग का शेड्यूल जारी, यहां करें चेक
+-  폭설에 ‘발동동’이 ‘차동동’으로…곳곳 차량 고립 사태난 강원도
+-  Google Keep is getting ready to be the default notes app on Android 14
+-  Rússia derrubou 35 drones ucranianos. Ucrânia abateu 20 aparelhos russos
+-  Hollanda geri adım atarak Bulgaristan'ın Şengen'e katılmasını kabul etti
+-  "Mümkün değil" denilmişti! ABD'li Coffey, iki gelişmeyi örnek gösterdi: Dünyaya ilham vermeli
+-  Tahran'da 110 İran askeri için cenaze töreni düzenlendi
+-  Oyuncu Strik: Sosyal medya sayesinde Gazze'de yaşanan soykırımı ABD'de gösterebiliyoruz
+-  Beşiktaş transfer hedefini belirledi! 4 yıldız için geri sayım
+-  Erdoğan-Erbakan görüşmesine ilişkin iddialara Yeniden Refah'tan açıklama: Tümüyle gerçek dışı
+-  Memur ve emeklilere kötü haber! Mehmet Şimşek hesabını yaptı! En fazla yüzde 40...
+-  Cuba regista 117 mulheres assassinadas até final de outubro
+-  Trebevićka žičara u ovoj godini ostvarila 354.371 vožnju, 52 posto strani gosti
+-  สหรัฐส่งโบราณวัตถุ 2 รายการที่ถูกขโมยคืนไทย
+-  São Paulo tem exposição inédita de arte afro-brasileira
+-  Отново обстрелват с дронове област Одеса
+-  Schweinsteiger vor Bayern-Comeback? Hainer-Aussage lässt aufhorchen
+-  Jogador encarna personagem de 'O Feiticeiro de Oz' e trai a namorada
+-  Bakan Uraloğlu duyurdu! Şehirler arası yolcu otobüslerine hız takip sistemi geliyor
+-  Yargıtay, boş kağıda atılan imza ile kiracının tahliyesini hukuka uygun buldu
+-  Başkan Altay: Hz. Mevlana'nın 750. Vuslat Yılı bereketini yaşıyoruz
+-  FETÖ'nün Konya'daki öğretmenlerden sorumlu imamı Adana'da yakalandı
+-  Kickoff | Saudi Pro League director sends message to Salah
+-  Θλίψη στον κόσμο της μόδας – Πέθανε ο σχεδιαστής Τόλης Σκουλαριώτης, εντοπίστηκε στο σπίτι του
+-  EKMEK DAVASI
+-  Mental fortitude keys to Creamline’s record 7th crown
+-  Dilan Polat'ın paylaştığı 'Şampiyonlar Ligi'ne şok: Hızlı satış başlıyor
+-  MATORA PRETI DA ĆE DA SE DISKVALIFIKUJE?! Zbog Anite javno obećala da će uraditi ovo, javnost u šoku
+-  Pinto da Costa hospitalizado por precaução após sofrer acidente rodoviário
+-  창원시 로컬푸드 우수 소비자 '수확 체험' 활짝
