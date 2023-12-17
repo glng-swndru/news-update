@@ -1,51 +1,51 @@
 # Latest News
+-  20 years later, Sant still believes Malta made a mistake to join EU
+-  Veikkausliigan, Kansallisen Liigan ja alasarjojen tuomarit nimitettiin - mukana uusi luokittelutapa
+-  BREAKING: At Least 9 Dead, Several Injured In Blast At Solar Explosive Company In Maharashtra`s Nagpur
+-  부자들도 힘든 한 해… ‘성동구’ 새로운 부촌으로, KB금융 ‘2023 부자보고서’
+-  Oil-producing states get N75.410bn as 13 per cent derivation
+-  הפועל ירושלים מתכננת את ינואר, ומבינה: "אין יותר שמיכה להפסיד"
+-  Alineación probable del Real Madrid hoy contra el Villarreal, partido de LaLiga
+-  Полторы сотни дончан вошли в состав союза сельской молодежи
+-  ‘Suçsuz olduğumu göstereceğim ama çürüteceğim delil yok’
+-  Горящие постройки под Тосно потушили за один час вечером 16 декабря
+-  Lille - PSG: horario y dónde ver en TV y online el partido de Mbappé en la Ligue 1
+-  Biathletin Preuß will der Müdigkeit trotzen
+-  В Калуге назначен новый главврач городского роддома
+-  Slovákov opäť zovrela vianočná nákupná horúčka! O darčeky nebude núdza, chystáme sa minúť viac, ako vlani
+-  Koalícia a opozícia sa dohodli, že chceme slušnejší parlament, tvrdí poslanec Smeru Jarjabek
+-  Las Palmas - Cádiz: horario y dónde ver en TV y online la jornada 17 de LaLiga EA Sports
+-  Liverpool - Manchester United: horario y dónde ver en TV la Premier League
+-  Aboubakar Yönetimden Görüşme Talep Etti: Af Çıkabilir!
+-  තැනින් තැන වැසි හෝ ගිගුරුම් සහිත වැසි
+-  High Court defers bail hearing of BNP's Mirza Fakhrul Islam Alamgir again to Jan 3
+-  Глава Петрозаводска надела боксерские перчатки и встряхнула себя физически
+-  Диетолог объяснила причины плохого самочувствия за новогодним столом
+-  Real Madrid'den Arda Güler kararı
+-  Политолог: Лукашенко стал разменной картой
+-  В Саратове задержали участника волгоградской ОПГ за убийство 19 лет назад
+-  Harz oder Küste: Urlaub Weihnachten und Silvester 2023 in Niedersachsen buchen
+-  강원 폭설에 길잃은 40대 등산객 2명 구출…하룻새 28건 안전 조치
+-  금태섭 '새로운선택' 창당대회서 "내년 총선서 30석 확보… 2027년 집권 도전"
+-  강원랜드 강릉 산불 피해 이재민 고통분담 1억원 전달
+-  회식 강요·불참시 인사 불이익… 여전한 '회식 갑질'
+-  강원도의회서 전임도정 사업 지적하며 "소신껏 반대하는 공직자 필요"
+-  В Твери на Старом мосту легковушка столкнулась с самосвалом
+-  Klimakrise macht Rentieren zu schaffen
+-  Le Thunder s’offre les Nuggets au buzzer, merci Shai Gilgeous-Alexander ! (117-118)
+-  60 нови случая на КОВИД-19 за ден
+-  Small-cap vs large-cap mutual funds: Unpacking the potential for high returns in India
+-  La classifica di Serie A dopo il sabato:
+-  До +2 градусов и сильный ветер ожидается в Ленобласти 17 декабря
+-  Picula: Zapadni svijet pod pritiskom novih politika i saveza
+-  В Костромской области долгое время разыскивают бородатого мужчину
 -  [오피셜] '카타르 WC 때 한국 상대' 우루과이 감독, 세비야에서 2개월 만에 경질
+-  В Кувейте назначили нового эмира
+-  ‘ธนกร’ ติง ‘ก้าวไกล’ อย่าผลิตวาทกรรมว่าคนอื่น หันมาแก้ปัญหาในพรรคดีกว่า
+-  Leon Edwards vs. Colby Covington full fight video highlights
+-  Новгородские электроэнергетики работают в режиме повышенной готовности
 -  Tales from the coffeeshop: Tatar proves he is a political big shot
 -  Маршрутът на автобусна линия № 10 във Варна ще бъде променен днес
 -  И днес две кръгови кръстовища ще останат затворени заради ремонт на ул. „Девня“
 -  Благотворителен коледен базар за грамофонни плочи с кауза "Аз вярвам и помагам"
--  法 "어린이집 차량만 이용한 것은 보육 아냐…보조금 반환"
--  Koronakyykkäys näkyy yhä juhlapyhien liikennemäärissä – jouluperjantaista odotetaan hitusen perusperjantaita ruuhkaisempaa
--  Lurín: incendio de código 3 se registra en depósito de llantas
--  Premier Lig'de korkutan olay: Takım kaptanının kalbi durdu
--  La Nordiste Eve Gilles sacrée Miss France 2024 : "Il y a deux ans, je travaillais à l’usine"
--  Švedska torta od badema: Recept za laganu slasticu idealnu za blagdane
--  Ile razy można dać darowiznę dziecku? Uważaj na podatek
--  أجواء باردة نسبيا فوق المرتفعات ومائلة للدفء بقية المناطق
--  سيميوني يلقب ميسي بـ القزم.. لهذا السبب
--  شهيدان وإصابات بقصف إسرائيلي على مخيم نور شمس
--  Meerut: CCSU के हॉस्टल में मीट और पनीर पर बवाल, जमकर मारपीट, आज विवि के अधिकारियों का घेराव करेंगे छात्र
--  Edwards tames Covington in one-sided victory
--  Víte, na co máte nárok od státu? Velký test s dávkami
--  برلمانية: ٥ مؤشرات إيجابية لاستقرار الجنيه في المستقبل
--  Több mint hatvan bevándorló fulladt a tengerbe Líbia partjainál
--  కనువిందు చేసే ఫ్లవర్‌ పరేడ్‌
--  Frauenfußball: 1. FC Köln verliert nach Abwehrpatzer 0:1 gegen Essen
--  Tajna je u džepu: Recept za najsočnija pečena pureća prsa koja morate probati već ovog Božića
--  Klimakrise macht Rentieren zu schaffen
--  BREAKING: At Least 9 Dead In Blast In Solar Explosive Company In Maharashtra`s Nagpur
--  “ภูมิธรรม”ชูทีมไทยแลนด์หนุนเอกชนทำการค้าเชิงรุกบุกจีน
--  বাংলাদেশের বিপক্ষে টি-টোয়েন্টি দিয়ে ফিরছেন উইলিয়ামসন
--  নির্বাচনে সশস্ত্র বাহিনী মোতায়েনে সম্মত রাষ্ট্রপতি
--  Чемпионат Испании. "Барселона" не смогла победить "Валенсию". "Атлетико" проиграл "Атлетику"
--  Повдигнати са обвинения на националния селекционер по вдигане на тежести Иван Иванов и сина му за корупция
--  «Si la legislatura colapsa, presentaré una moción de censura para convocar elecciones»
--  Gnistan kiinnitti Veikkausliiga-kokemusta hyökkäyspäähänsä
--  OM-Clermont. A quelle heure et sur quelle chaîne voir le match ?
--  "SUPRUGA MI JE DOSADILA, PA SAM JE NAGOVORIO NA OTVORENI BRAK" Toliko mu se obilo o glavu, da sad KUKA NA SAV GLAS i gorko se kaje
--  Tarpejina litica: Stijena s koje su Rimljani klevetnike i izdajnike bacali u strašnu i sramotnu smrt
--  Natopljen rumom: Recept za blagdanski kolač koji ćete trebati već sada početi pripremati
--  "토트넘이 내준 바보 같은 골들이 몇 개 있었다!"…2연승과 득점에 너무 들떴나? 쿨루셉스키의 '팀 동료 수비 비하 발언'
--  조세호, 지석진과 최우수상 "명품 브랜드 T사에서 옷 빌려줘" [제1회 핑계고]
--  Blast: సోలార్ కంపెనీలో భారీ పేలుడు.. 9 మంది మృతి
--  Tal-Maksar nickname to be struck off bill of indictment
--  Oni koji su promijenili svijet: Narod koji je živio prije 5 tisućljeća, a bez kojih ništa ne bi bilo isto
--  ارتفاع إيجارات السكن في المملكة لأعلى معدل شهري منذ يناير 2018
--  تحذير عاجل من تقلبات ورياح شديدة على مكة والمدينة وتبوك لـ5 مساءً
--  Resmi Gazete'de bugün (17 Aralık 2023 Resmi Gazete kararları)
--  FENERBAHÇE TRANSFER HABERLERİ - Batshuayi'nin teklifleri reddetme nedeni belli oldu!
--  Ärgernis bei Live-Übertragung - Sky-Panne mitten im BVB-Spiel erzürnt Fans: „Das geht ja gar nicht“
--  Klimakrise macht Rentieren zu schaffen
--  Nigeria Is A Maximum Dictatorship Under APC, Says Ex- Presidential Candidate
--  US submarine arrives in South Korea amid possibility of new North Korean missile launch
--  Fresnay-sur-Sarthe. Seize recettes à base de produits fresnois dans un livre de cuisine
+-  Temblor en Rep. Dominicana hoy, 17 de diciembre – magnitud y epicentro del último sismo vía CNS
