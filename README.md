@@ -1,51 +1,51 @@
 # Latest News
--  عاجل.. أهم 10.. الداخلية تنفذ حكم الشرع بمواطن وسوداني ومشهد مؤثر في وداع الشيخ نواف
--  وظائف شاغرة لدى هيئة الصحة العامة "وقاية".. التفاصيل ورابط التقديم
--  Haridwar News: दो दिवसीय क्षेत्रीय अधिवेशन का समापन
--  Moradabad News: 20 लाख के आभूषण की चोरी के मामले में आंध्रा पुलिस ने दबिश दी
--  Shamli News: 134 साल पुराना है कैराना बार एसोसिएशन का गौरवमयी इतिहास
--  Shamli News: ओपीडी में भी कैशलेस इलाज कराने की मांग उठी
--  Kushinagar News: वाहन चलाते समय सावधानी बरतने की अपील
--  Dehradun News: सोलर फेंसिंग लगाने की मांग
--  Mahendragarh-Narnaul News: चौक चौराहों पर गायब जेब्रा लाइन, दुर्घटना की बढ़ी संभावना
--  Dehradun News: चार करोड़ से हुए सड़क सुधारीकरण कार्य, दो माह में ही उखड़ी डामर
--  Dehradun News: पांच सौ पूर्व सैनिकों ने थामा यूकेडी का दामन
--  Dehradun News: उत्तरांचल विवि को सर्वश्रेष्ठ सस्टेनेबीलिटी अवार्ड से नवाजा
--  Noida News: पत्नी से अवैध संबंधों के शक में की थी दोस्त की हत्या
--  Sant Kabir Nagar News: बिजली कटौती ने बढ़ाई मुसीबत, पानी के लिए लोग हो रहे परेशान
--  Sonipat News: अवैध निर्माण करने पर 30 को थमाया नोटिस
--  Sonipat News: ट्रैक्टर खरीदकर ढाई लाख रुपये देने से मना किया
--  Unnao News: ट्रक चालकों से उगाही का वीडियो वायरल, दो दरोगा व दो सिपाही निलंबित (सभी केंद्र)
--  Unnao News: ट्रांसपोर्टर की हत्या कर शव कूड़े के ढेर में फेंका
--  Basti News: लटक रहा केबल ट्रक में फंसा, बिजली के सात खंभे टूटे
--  Farrukhabad News: अधेड़ की हत्या में प्रेमी युगल को पुलिस ने भेजा जेल
--  Ambala News: टेंडर दिलाने के नाम पर 5.68 लाख की ठगी
--  Ambala News: शहीदी पर्व पर आयोजित नगर कीर्तन में उमड़ा श्रद्धा का सैलाब
--  सरकार साहा ग्रोथ सेंटर के विस्तार हेतु 2300 एकड़ भूमि खरीदेगी : अनिल विज
--  Auraiya News: गंदगी देख फूटा गुस्सा, फूंका पुतला
--  Ambala News: सुभाष पार्क में टॉय ट्रेन के परीक्षण जल्द
--  Chandigarh News: नायब सैनी की टीम में अब होगी जाट चेहरे की एंट्री
--  Punjab Weather: पहाड़ों पर बर्फबारी से पंजाब में गिरा पारा, 23 को हो सकती है बारिश
--  Shahjahanpur News: बेकार हो रहे 12 लाख रुपये के सेल्फी प्वाइंट
--  Ambala News: इनेलो नेता को मोबाइल जमा करवाने के लिए पुलिस ने भेजा नोटिस
--  Nainital News: तेज रफ्तार कार ने तीन लोगों को मारी टक्कर
--  अब जांच के बाद दर्ज होगा दहेज का केस, छेड़छाड़ के हॉटस्पाट पर तैनात होंगी महिला पुलिस : डीजीपी
--  Nainital News: हल्द्वानी हॉस्टल और पाल एकेडमी की टीम विजयी
--  Amroha News: कर्ज से परेशान कारोबारी ने फंदे पर लटककर दी जान
--  Hardoi News: नुमाइश मैदान पर 18 से होगा हरदोई मेला महोत्सव का आगाज
--  Hardoi News: जर्जर लाइन व पोल बदलने का काम शुरू
--  Amroha News: कहीं चिकित्सक का इंतजार तो कहीं वार्ड बॉय के सहारे हुआ मरीजों का बेड़ापार
--  Hardoi News: गर्रा नदी में मिली बिना नंबर की बाइक
--  Hardoi News: सपा नेता ब्रजेश वर्मा की हिस्ट्रीशीट खुली
--  Chitrakoot News: भदोही ने रींवा को 22 रन से हराया
--  Hamirpur (Himachal) News: बड़सर के गलू में फिर 20 ग्राम चिट्टा बरामद, दो आरोपी धरे
--  Liverpool se atascó ante Manchester United y cedió el liderato al Arsenal
--  Muere en Guipúzcoa una mujer tras ser alcanzada en una vivienda por un disparo procedente del exterior
--  Borussia Dortmund – Transfer-News und Gerüchte: Transfer-Hammer im Winter? Transferpoker um Top-Spieler
--  اللواء فايز الدويري: “لو كان لجيوش العرب جنود كالقسام لم تكن لتهزم في حرب 67” (فيديو)
--  Aile Bakanlığına sözleşmeli personel alınacak: Bakan Göktaş müjdeyi duyurdu
--  “Anësori ngriti flamurin kur po festonim”: Gvozdenovic akuzon arbitrin, Josa nis nga llogaritë
--  Återvände som ÖSK-dödare: ”Jag är fruktad”
--  Återvände som ÖSK-dödare: ”Jag är fruktad”
--  بعد قرار الفيدرالي.. هل يفقد الدولار الأميركي قوته؟
--  مصادر مصرية تكشف عن شروط حماس والاحتلال لوقف النار
+-  VIDEO | Fuerte choque de cabezas entre Pellegrino y Mallo durante la final de la Copa Argentina entre Rosario Central y Platense
+-  الاهلي المصري يواجه فلومينينسي البرازيلي في نصف نهائي مونديال الاندية
+-  النصر يبدأ الاعداد لمواجهة الاتفاق
+-  الفيفا يغرم الاهلي المصري ويوقف مهاجمه
+-  فريق فياريال يختتم استعداداته للقاء ريال مدريد
+-  بعثة مانشستر سيتي تصل الى جدة
+-  صافرة سعودية لمواجهة اوراوا ومانشستر سيتي
+-  العربي يلحق الهزيمة الأولى بالسد المتصدر
+-  للحفاظ على مساحة الهاتف.. خطوات لمنع واتساب من الاستحواذ على الذاكرة الداخلية
+-  لم يحدث منذ 2003.. ليفربول يسجل رقمًا سلبيًا أمام مانشستر يونايتد
+-  تعليق كلوب بعد التعادل مع مانشستر يونايتد
+-  Marsej ne planira da stane: Olimpiku poluvreme dovoljno za trijumf protiv Klermona
+-  DA LI I VI STAVLJATE ČAJ U PROKLJUČALU VODU? Kuvar kaže da je to velika greška, evo kako treba da se pripremi
+-  Liverpool ve Manchester United 1 puana razı oldu
+-  تيليس يعود للمشاركة مع النصر امام الاتفاق
+-  Болгария заявила, что вето Венгрии на Шенген может быть вызвано зависимостью от газа из РФ
+-  أبها يقيل مدربه التونسي المناعي قبل مواجهة الهلال
+-  الفيفا يهدد بلايلي بسبب مستحقات الاهلي
+-  తప్పని జాగారం!
+-  Atienden Bomberos Voluntarios dos emergencias: automóvil y casa incendiada en Mazatlán
+-  నేటి నుంచి షష్ఠి ఉత్సవాలు ప్రారంభం
+-  Ozan Tufan'a övgüler yağdırdı! Bütün İngiltere onu konuşuyor
+-  Bayer Leverkusen, 3 puana 3 golle ulaştı
+-  İngiltere derbisi sessiz geçti!
+-  Virgil Van Dijk: 1 puana sevindiler
+-  Venstre-politiker undrer sig over Fagbladet 3F-artikel: »Super stærk medlemsservice« at hjælpe med at få sorte penge ind på bankkontoen
+-  Venstre-politiker undrer sig over Fagbladet 3F-artikel: »Super stærk medlemsservice« at hjælpe med at få sorte penge ind på bankkontoen
+-  Why UN has declared 2024 the International Year Of Camelids
+-  روي كين يوجه انتقادات لاذعة لفان دايك
+-  Israel descubre el mayor túnel de Hamás a escasos metros de la frontera
+-  Innovation en Afrique : Le Ghana prévoit le lancement d’une carte d’identité numérique en 2024
+-  Απόλλων: Δεν άντεξε και δάκρυσε on air o Φανούριος!
+-  Franziskaner-Minorit Thomys gestorben
+-  Doppelt so viele Stände wie im Vorjahr
+-  Lagerfläche und Erweiterung nachträglich genehmigt
+-  »Deftlef-Schorsch« bringt Glück
+-  Drückjagd am 20. Dezember
+-  Freundschaftsdienst entpuppt sich als Geldwäsche
+-  Geschmückte Trucks touren wieder durch den Landkreis
+-  BOLONJA JURI KA LIGI ŠAMPIONA: Roma pala na stadionu Renato Dalara
+-  Unde a apărut primul alfabet și cine l-a inventat pe cel cu litere
+-  СМИ: средства ПВО Сирии отражают израильский удар в окрестностях Дамаска
+-  Vučević: Ovo je praznik demokratije
+-  Cvrtila: Vučić će i dalje biti ključna figura na političkoj sceni u Srbiji
+-  Unijna zaliczka to dopiero światełko
+-  Walter Herz wchodzi w inwestowanie
+-  Rząd pomoże Mlekovicie
+-  Oto najlepsze Gazele Biznesu 2023
+-  Nowy rząd musi rozkołysać elektromobilność
+-  W mieszkaniach zrobiło się chłodniej
