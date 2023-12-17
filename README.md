@@ -1,11 +1,51 @@
 # Latest News
--  Show do rapper MV Bill é interrompido em festival na Bahia: 'Fiquei com muita raiva'
--  काशी में छोटी बच्ची की कविता के मुरीद हुए PM मोदी, जीत लिया दिल! देखें वीडियो
--  北, 김정일 12주기에 단거리 탄도미사일…한미 NCG 반발 차원
--  대구 수성구 체육시설 야외주차장서 불…40대 여성 숨져
--  Gümüşhane Kelkit'te 4.3 büyüklüğünde deprem meydana geldi
--  Oslo ramt af to skudhændelser på åben gade søndag
--  প্রথমবার নৌকা পেয়েও ছাড়তে হলো তাদের
--  Tip na dárek: Levný soundbar, co příjemně vylepší zvuk běžných televizorů
--  Pasaron la primera noche fuera de prisión exdirectivos de Aras
--  Aumenta 5.1% precio de la cena de Nochebuena
+-  출근길 영하권 '맹추위' 지속… 강원 내륙·산지 전역 한파경보
+-  '스프레이 테러' 경복궁 담벼락… 하루만에 또다시 '낙서 테러'
+-  天草市（熊本県）と姉妹都市締結に意欲 﨑津集落訪問のポルトガル駐日大使
+-  Electric vehicle drivers have just weeks left to claim NSW government’s $3000 rebate
+-  James Bond star George Lazenby, 84, recovering from head injury after fall
+-  أول تعليق من منظمة الصحة العالمية على تدمير الاحتلال مستشفى كمال عدوان
+-  ميدو: كولر مطالب بتغيير طريقته امام فلومينينسي
+-  أودير هيلمان: فلومينينسي لن يغير خطته أمام الأهلي
+-  أبو مسلم: موديست لن يستمر طويلاً مع الأهلي
+-  مدرب الرياض السعودي: الأهلي يقدم كرة رائعة وفرصته كبيرة في التأهل للنهائي
+-  Nešťastie na prechádzke s kočíkom: Mamička omdlela a dieťa spadlo z kočíka rovno do potoka! Zasahoval vrtuľník
+-  سفيرة مصر في أنجولا تستقبل بعثة الزمالك بمطار لواندا
+-  كريم حقي: الأهلي قادر على تخطي فلومينينسي في مونديال الأندية
+-  ريال مدريد يستعيد صدارة الليجا برباعية رائعة في شباك فياريال
+-  إنترميلان يتخطى لاتسيو بثنائية في الدوري الإيطالي
+-  بعثة الزمالك تصل أنجولا إستعداداً لمواجهة ساجرادا في الكونفدرالية
+-  Deputado federal Alexandre Leite reage a assalto e mata suspeito em SP
+-  [아침을 열며] 경남 일자리는 성차별적이다
+-  이유나(대구시 대신동) 씨
+-  12월 18일(음력 11월 6일) 오늘의 운세
+-  아이스크림에듀, 초등 영단어 상위 1% 따라잡는 '케찹보카' 출간
+-  롯데 처음처럼·새로 소주, 일단 연내 가격동결…"인상시점 곧 발표"
+-  Melhores do Ano | Público da Globo premia a série "Os Outros" e a novela "Vai na Fé"
+-  Preparan plan de contingencia para evitar el tráfico de niños en la frontera colombo – venezolana
+-  2007 FBI Investigation Resurfaces - A Biden Is Clearly Heard on the Tapes
+-  Chilenos rechazan en plebiscito la nueva Constitución
+-  Victorian mum reunites with biological mother
+-  Victorian mum reunites with biological mother
+-  Fiscal de Ecuador ordenó la detención de Jorge Glas, exvicepresidente de Rafel Correa
+-  Rodrygo e Modric brilham e Real Madrid goleia o Villarreal em LaLiga
+-  VIDEO: Menor de edad conduce motocicleta en ruta Interamericana
+-  [한강로에서] ‘후진’ 사회의 비극
+-  Han River Winter Festa: A Winter Wonderland in Seoul
+-  New Tesla update cracks down on Autopilot misuse
+-  LinkedIn 遷移至 Azure 雲端遭擱置，自建資料中心滿足運算需求
+-  Chile albergará el Mundial sub-20 de 2025
+-  الموت يغيّب الشاعر محمد زايد الألمعي
+-  聯發科獲 Apple TV Wi-Fi 晶片下單，預計 2025 到 2026 年間供貨
+-  Gore neighbours showcase ability on track
+-  Das versprechen die Macher für das "Stranger Things"-Finale
+-  كُتّاب وأكاديميون: «العربية» ترفد التراث العالمي بكنوز المعرفة والفن الخالد
+-  بمقر سفارة البلد الشقيق بالدوحة.. رئيس «الشورى» يُعزّي في وفاة الشيخ نواف الأحمد
+-  Apa Kata Warga di Rusun Nagrak Soal Huni Paksa Kampung Susun Bayam?
+-  死去の元寺尾 しこ名は母の旧姓
+-  حسين الشيخ: السلطة الفلسطينية هي الممثل الشرعي للشعب ومستعدة لتولي إدارة غزة بعد الحرب
+-  Mosqueteros de la ficción con las espadas en alto
+-  [아하 인터뷰] "인명구조엔 비번이 없다"…정재현 해양순경
+-  Συρία: Δύο τραυματίες από αεροπορική επιδρομή του Ισραήλ κοντά στη Δαμασκό
+-  ¿Por qué Onana resultó ser un peor fichaje que De Gea en Manchester United?
+-  ترحيل 7 مهاجرين عبر منفذ أمساعد
