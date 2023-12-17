@@ -1,11 +1,11 @@
 # Latest News
--  Fransız vekiller İsrail'e karşı ayaklandı: Netanyahu'ya karşı masaya yumruğumuzu vurmanın zamanı geldi
--  AK Parti'nin adayları ne zaman belli olacak? Ömer Çelik tarih verdi!
--  Rubén “Bebé” Vega retorna con paso victorioso
--  F1-tähti on henkisesti romuna - superlupauksesta on vaarassa tulla floppi
--  Damkronorna föll – men vann
--  حاكم الفجيرة ينقل تعازي رئيس الدولة إلى أمير الكويت في وفاة الشيخ نواف الأحمد الجابر الصباح
--  بوتين يقدم تعهدات قوية ضمن حملته لانتخابات الرئاسة
--  Biathlon-Olympiasieger kämpft nach Schuss-Drama im Teamhotel mit den Tränen
--  Ray of hope for landowners as NHAI mulls two-lane corridor along Thripunithura bypass alignment
--  الإفراج في مالي عن رهينة مختطف منذ 6 سنوات
+-  Soccerladuma | Makgalwa Fires Upington City To Second
+-  Pre inverziu môže byť v nižších polohách miestami chladnejšie ako na horách
+-  VIDEOROZHOVOR Kandidát na prezidenta Ivan Korčok: Chcem byť silným hlasom dovnútra spoločnosti
+-  Rruga që më bën ta lë Shqipërinë!
+-  How to hide your Amazon ordering history from nosy family members
+-  De uitslagen, doelpuntenmakers en verslagen van het amateurvoetbal
+-  حجز دعاوى بطلان انتخابات الزمالك للحكم بجلسة 14 يناير
+-  "لعنة المساخيط".. المباحث تكشف غموض جثة السلخانة شمالي قنا
+-  حماس: نحن عصيّون على الاستجابة للتهديدات وتبادل الأسرى مُستبعد حتى يتوقف العدوان
+-  القوى الوطنية الفلسطينية: حماس مكون أصيل من شعبنا وفكرة متجذرة لا يمكن اقتلاعها
