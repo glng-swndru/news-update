@@ -1,11 +1,51 @@
 # Latest News
--  Londres e Berlim pedem “cessar-fogo sustentável” em Gaza
--  Fiyatlar yüzde 30'lara kadar düştü! 2. el araç satışları durdu
--  Vincent Aboubakar'dan şaşırtan hamle
--  Kickoff | Marcelo makes vow to Fluminense fans ahead of Al Ahly clash
--  Arjantin’de şiddetli fırtına: 13 ölü
--  Children help Pope Francis mark 87th birthday
--  Nara Lokesh : సీఎం జగన్‌రెడ్డి మహిళలను మోసం చేశాడు
--  В Армении столкнулись микроавтобус и легковой автомобиль, пострадали 15 человек
--  India vs South Africa: మొదటి వన్డేలో టీమిండియా ఘనవిజయం
--  Готвач: Повечето масови доставчици продават чуждо свинско месо
+-  Daftar Lengkap Tim yang Lolos ke Babak 12 Besar Liga 2 2023-2024
+-  Namur: un piéton fauché à Wépion, en face du Carrefour
+-  Caner Bayazıt Emiroğlu kimdir? Caner Bayazıt ne iş yapmaktadır?
+-  Seven arrested and charged following cross-border investigation into theft of thousands from elderly woman
+-  Sliema b’rebħa konvinċenti fuq Naxxar
+-  İYİ Parti'de deprem! İbrahim Özkan ve 5 meclis üyesi istifa etti
+-  Polizei Weiden ermittelt Tatverdächtigen nach Sachbeschädigung
+-  Canda Ganjar Soal Bagi-Bagi Sepeda: Nggak Boleh, Nanti Disemprit Bawaslu
+-  Nuggets’ DeAndre Jordan takes vegan diet to London for Great American Baking Show’s celebrity holiday special
+-  تحذير عاجل من الأرصاد: درجات الحرارة تحت الصفر
+-  Gisdol: Daha önce de Türk takımlarıyla görüştüm
+-  Grading The Week: Don’t poke The Moose! Do Avs fans have Artturi Lehkonen’s dad to thank for Mikko Rantanen’s scoring surge?
+-  Проблемите на Брадли Бийл продължават
+-  NFL Week 15 DFS picks on PrizePicks: Tyler Allgeier, Joe Flacco, more
+-  Najnovije obraćanje RIK-a o izlaznosti i nepravilnostima: U Odžacima se dogodio incident, potvrđen još jedan slučaj u Blacu
+-  Ini Kronologi Tertembaknya 3 Sandera oleh Tentara Israel
+-  Ömür boyu futboldan men edilen Ankaragücü kulübü eski başkanı Faruk Koca'ya Emre Belözoğlu sahip çıktı!
+-  Eight years on the run: 'Most wanted' courtesy car driver who 'flipped' 4x4 with wife and kids in the back
+-  Periodistas reeligen a Griselda Melo
+-  Sunak Gets Another Grilling From a Key Panel: UK Sunday Briefing
+-  Kaltenbrunner Marktweihnacht hat nichts von ihrer Anziehungskraft verloren
+-  Boris Palmer rechnet Bürgergeld für seine Familie aus – und ist fassungslos
+-  الرئيس السيسي يتسلم أوراق اعتماد عدد من السفراء الجدد بالقاهرة
+-  ITV Loose Women's Coleen Nolan's son 'splits from Miss Great Britain wife after cheating'
+-  Карийм Абдул-Джабар е със счупване след падане по време на концерт
+-  Silber und Gold für verdiente Bürger der Gemeinde Krummennaab
+-  Soccerladuma | Spurs Considering Mahlangu Addition?
+-  جامعة عالمية عريقة تعتذر للفلسطينيين عن وعد بلفور
+-  الحكومة: النقل الذي يمر من الأردن لم تتغير ترتيباته
+-  Soccerladuma | Official: Premier League Star To Miss AFCON
+-  الجمعة بداية المربعانية في الاردن
+-  Piñera sufragó en Las Condes y llamó a votar: “Hay que sacar a Chile del pantano en el que estamos y volver a ponerlo en marcha”
+-  بيان من (تمكين) بمناسبة اليوم الدولي للمهاجرين
+-  Aile içi miras paylaşımı hakkında bilmeniz gerekenler!
+-  EN BÜYÜK SERVET, SAĞLIK!
+-  Sam Bahadur Box Office Collection: वीकेंडला विकी कौशलच्या सॅम बहादुर चित्रपटाचा जलवा; जाणून घ्या बॉक्स ऑफिस कलेक्शन...
+-  Artvin'de orman işçisi uçuruma yuvarlanarak öldü
+-  رغم فوائدها.. احذر الإفراط في تناول شوربة اللحم - هذا ما يحدث لجسمك
+-  حماية المستهلك: نستهدف حل 3550 شكوى للسلع المعمرة خلال 3 أيام
+-  الأوقاف تنفذ برنامج البناء الثقافي للأئمة في مساجد الوادي الجديد
+-  فرار الآلاف مع وصول الحرب الأهلية في السودان إلى مدينة ود مدني
+-  إطلاق النار على أطباء مستشفى كمال عدوان خلال مؤتمر صحفي
+-  فتح باب التقدم لجوائز معرض القاهرة الدولي للكتاب الـ 55
+-  بحث ودراسة 1633 شكوى.. سويلم يتابع منظومة تلقي الشكاوى وحسمها بوزارة الري -تفاصيل
+-  Serenay Sarıkaya bizzat açıkladı: ''Şarkıda vokal yapan benim''
+-  Miljardöörisijoittaja ei usko rahapolitiikan palaavan ultrakevyeksi
+-  (VIDEO) David Dragojević PRVI PUT U JAVNOSTI sa novom devojkom: Ljubi ovu fatalnu crnku, svi kažu da je bolja riba od Ane Korać
+-  „Resilienzbonus“: Habeck will Solarindustrie stärken
+-  Uttarakhand News Update : नाबालिग से दुष्कर्म के आरोप के बाद बाल संरक्षण गृह परिचारक निलंबित, जांच समिति गठित.
+-  Velja nastavlja da dominira u Mađarskoj: Prvi i na 100 metara slobodnim stilom
