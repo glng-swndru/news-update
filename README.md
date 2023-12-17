@@ -1,51 +1,11 @@
 # Latest News
--  Hiçbir Bağlantıları Olmayan Antik Medeniyetlerin Buna Rağmen Aynı Şeyleri Yapmış Olmaları Neyle Açıklanabilir?
--  ASUS, Bu Gördüğünüz Minicik Bilgisayarı Tanıttı: 1 Tane Bile Fanı Yok
--  Mario López, exseleccionador español de baloncesto, investigado por agresión sexual continuada contra una menor
--  СБУ и ВСУ са провели успешна атака срещу военното летище в Ростовска област
--  Top 5: Mejores armadores de la historia que han jugado para el club Los Mina
--  'Ukraine fatigue' is a problem of western leaders' own making
--  China's biggest nickel producer to list battery unit in Hong Kong
--  'Ukraine fatigue' is a problem of western leaders' own making
--  China's biggest nickel producer to list battery unit in Hong Kong
--  UK, Germany and France urge Israel to agree 'sustainable ceasefire' in Gaza
--  UK FCA rules out extension of post-Brexit licensing regime
--  When will the Bank of Japan end negative interest rates?
--  UK, Germany and France urge Israel to agree 'sustainable ceasefire' in Gaza
--  Rishi Sunak vows to work with Italy to review asylum rules
--  UK FCA rules out extension of post-Brexit licensing regime
--  US concern over Mexico attracting Chinese electric vehicle factories
--  When will the Bank of Japan end negative interest rates?
--  Rishi Sunak vows to work with Italy to review asylum rules
--  US concern over Mexico attracting Chinese electric vehicle factories
--  Suomen mestaruuden luistellut Nella Pelkonen on varma EM-paikastaan
--  Suomen mestaruuden luistellut Nella Pelkonen on varma EM-paikastaan
--  Itt vannak a hatos lottó nyerőszámai
--  Медведев поздравил однопартийцев с наступающим Новым годом
--  В России предложили сократить дефицит водителей такси за счет мигрантов
--  Biathlon : Justine Braisaz-Bouchet s'adjuge la Mass-start et réalise le triplé à Lenzerheide
--  EN DIRECT - Ligue 1 : suivez Marseille-Clermont
--  EN DIRECT - Champions Cup : suivez Stade Français-Leicester
--  Ski alpin : Federica Brignone domine le super-G de Val d'Isère
--  Handball : Kentin Mahé quittera Veszprem à la fin de la saison
--  Liga : «Zidane ? Je marche sur ses traces», savoure Bellingham
--  Biathlon : Johannes Boe domine la mass start de Lenzerheide, les Français loin derrière le triplé norvégien
--  Ligue 1 : «Ça ira mieux en Angleterre», Will Still chambré par l'arbitre François Letexier, qui dément une mauvaise intention
--  EN DIRECT - Champions Cup : Début canon de Toulouse contre les Harlequins
--  Nantes-Brest : revivez la victoire des Finistériens à la Beaujoire
--  Biathlon : nouveau dossard jaune après son triplé historique, Justine Braisaz-Bouchet «ne réalise pas»
--  Serie A : l'AC Milan repart de l'avant
--  Tennis : le million de licenciés dépassé en France
--  Badminton : le Danois Axelsen et la Taïwanaise Tai s'imposent aux World Tour Finals
--  Ligue 1 : le bel hommage des tribunes nantaises à Maxime, supporter décédé il y a deux semaines
--  La Fédération française de rugby dans le rouge, avec 40 millions d'euros de déficit en deux ans
--  盧秀燕幫顏寬恒站台批「派遷戶口的來選」 林靜儀反擊了
--  Caroline Receveur donne de ses nouvelles en plein traitement contre le cancer
--  Julien Doré, son havre de paix dans les Cévennes : découvrez son projet immobilier étonnant
--  Gérard Depardieu : le sosie de l'acteur dit stop, « j'arrête d'être son sosie »
--  Isabelle Adjani condamnée : l'actrice écope d'une lourde peine de prison avec sursis
--  37 Travel Products You'll Want To Buy For Friends, Too
--  37 Travel Products You'll Want To Buy For Friends, Too
--  ЦАХАЛ заявил, что обнаружил самую большую систему тоннелей ХАМАС
--  Kal Ka Kumbh Rashifal: राजनीति में कोई आप लगा सकता है झूठा आरोप, रहना होगा सावधान
--  Florida Law Firm Takes a Stand in Product Liability Cases Spanning Various Sectors
+-  Negyven éves számítógépes klub alakult újra, 8 bites számítógépekkel!
+-  استشاري يوضح تأثير العارض النفسي على الإصابة بمرض الضغط
+-  الصحة العالمية: 70% من ضحايا الحرب على غزة أطفال ونساء
+-  Na misiách na Cypre momentálne pôsobí 240 slovenských vojakov, Kaliňák sa poďakoval za ich službu vlasti
+-  জেসুস–হাভার্টজের গোলে শীর্ষে উঠল আর্সেনাল
+-  "إتش سي" تتوقع تثبيت سعر الفائدة في البنك المركزي الخميس المقبل
+-  غرفة السياحة تطالب الراغبين في أداء الحج السياحي سرعة التقدم قبل غلق باب التسجيل
+-  إعلام عبري: إصابة جندي احتياط في حادث طعن برام الله وهروب المنفذ
+-  السهم قفز لأعلى سعر منذ 20 عاما.. "الإنتاج الإعلامي" تعتمد الموازنة التقديرية
+-  "بالتل" الفلسطينية تعلن عودة الاتصالات تدريجيًا في قطاع غزة
