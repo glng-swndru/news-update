@@ -1,11 +1,11 @@
 # Latest News
--  احذر.. استعادة الوزن سريعا بعد فقدانه يهدد تكوين الجسم
--  PHOTOS: Bison playoff run ends in epic 2OT game at No. 2-ranked Montana in FCS semifinals
--  Ex-champion Cody Garbrandt continues career resurgence with brutal faceplant knockout win at UFC 296
--  احد چیمہ، فواد حسن فواد کو ہٹانے کا کیس سماعت کیلئے مقرر
--  रामजानकी विवाह : जन्ती महोत्तरीबाट जनकपुर प्रस्थान
--  '또 터졌다' 황인범, 시즌 2호 도움 → 공식전 3경기 연속 공격 포인트 + 평점 7.8점 맹활약...즈베즈다는 4-1 대승
--  Pura-pura Debat Pilpres 2024
--  'Glee' Fans Clocked an Interesting Connection to 'Barbie' That You Likely Missed
--  2036 Origin Unknown Streaming: Watch & Stream Online via Amazon Prime Video
--  Double joy for Tanisha!
+-  Rahul backs young guns as India set to face South Africa in ODI series
+-  Pertamina Gandeng Jepang buat Kembangkan Hidrogen dan Amonia Rendah Karbon
+-  “İspanya Rus turistleri Türkiye’ye kaptırdı”
+-  बसाइँसराइले रित्तिदै गाउँ : बढ्यो बाँदर आतङ्क
+-  IMÁGENES | Emoción por el primer desfile navideño de los Bomberos Voluntarios
+-  Хиляди недоволни в Израел настояха за ново споразумение с "Хамас"
+-  安卓控股董事經理蔡文傑爆窒息猝死 享年45歲
+-  Netanyahu hints new negotiations under way to recover Gaza hostages
+-  संडे की वजह सुपरस्टार ने छोड़ी फिल्म, विनोद खन्ना ने रख दी 2 शर्त, फिर...
+-  सिँजामा घट्दै बालविवाह
