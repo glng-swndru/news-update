@@ -1,51 +1,51 @@
 # Latest News
--  Watch: Hamas tunnel uncovered by Israel. It was below a baby's crib
--  Adhir Ranjan Chowdhury writes to LS Speaker to revoke suspension of 13 MPs
--  Κουτσούμπας για Προϋπολογισμό: «Μαζέψτε τα σάλια που σας τρέχουν για την ΕΕ οι της σοσιαλδημοκρατίας»
--  Die Ampel im Belastungstest : Haushaltspolitik als entscheidende Bewährungsprobe
--  المناسبات والأعياد تُدخل 10 مليار دولار سنوياً الى لبنان
--  Bubnov i Šustić pobjednici Bokeškog maratona
--  Policija spriječila sukob huligana u Zagrebu, torcidašima našli štitnike za zube
--  Former Free Radical Designs devs share TimeSplitters concept art and more
--  Büyük ikramiye 400 milyon! Milli Piyango bayilerinin önünde sıra oluştu
--  shanaya kapoor: સાડીમાં હોટ પોઝ આપી શનાયા કપૂરે લગાવી આગ, જુઓ તસવીરો
--  Zrážka vlaku a neznámej osoby pri Devínskom jazere
--  Chandrababu Pawan Meeting: పవన్ కళ్యాణ్ ఇంటికి వెళ్లిన చంద్రబాబు, ఏపీలో ఉత్కంఠ!
--  NE NASEDAJTE I PRIJAVITE! Ivana Španović morala hitno da se oglasi (FOTO)
--  Nikki Haley urges Republican voters to IGNORE how she feels about Trump and to focus on her policies as she continues effort to bridge huge gap to frontrunner with 30 days until Iowa
--  România anunță că a încheiat conflictul privitor la canalul Bâstroe: ”Ucraina a înţeles că trebuie să respecte toate obligaţiile europene”
--  Nashik News : Sudhakar Badgujar यांच्या अडचणीत वाढ,कंपनीत पदाचा गैरवापर केल्याने ACBकडून गुन्हा दाखल
--  북, 동해상으로 단거리 탄도미사일 발사…26일만에 도발
--  ‘কনকা প্রেডিকশন কুইজ’ বিজয়ীরা পেলেন পুরস্কার
--  Direktor Arene za “Vreme”: Ne znam o čemu pričate
--  انتخابات صاف اور شفاف ہوتے نظر نہیں آرہے، خالدمقبول صدیقی
--  Geomagnetische Stürme nach starken Sonneneruptionen
--  "MOLIMO SE DA PREŽIVI" Uznemirene komšije o Dušanu koji je teško ranjen pištoljem za svinje: "Malo više je popio, tog dana su klali stoku"
--  Lộ diện cô dâu đám cưới hot ở Hà Nội: Top cao các cuộc thi Hoa hậu, đi du lịch bỗng "vớ" chồng xịn
--  Văn Quyết làm lu mờ Hoàng Đức, CLB Hà Nội đại thắng để trở lại cuộc đua vô địch V.League
--  Cơ hội trở thành mắt xích quan trọng của thị trường bán dẫn 1.000 tỷ USD
--  Mỹ điều tàu sân bay "trấn" Houthi, biển Đỏ sắp dậy sóng?
--  Chuyên gia phong thủy cảnh báo: 6 điều kiêng kị nhiều gia đình dễ phạm phải khi bố trí phòng ngủ
--  Tin mới nhất về cơn bão trái mùa, giật cấp 10 đang tiến vào Biển Đông
--  Quán đạt sao Michelin mà Lisa (BLACKPINK) mới ghé từng gây tranh cãi, Jihyo (TWICE) và Khoai Lang Thang nhận xét ra sao?
--  U13 PVF vô địch giải bóng đá quốc tế
--  Thắng lớn ở V.League, CĐV Hà Nội FC cà khịa đối thủ: "Viettel, hãy thua theo cách của bạn"
--  Một ngân hàng lớn giảm lãi suất từ ngày mai 18/12
--  Sunnyvale teen wins YoungArts award
--  안성시의회, 2024년 시 예산 대규모 삭감hellip;시민생활 밀접 정책 '빨간불'
--  권영진 quot;달서병, 대구의 새로운 중심quot; 선거사무소 개소
--  김천시, 수십억 들여 조성한 야구장...검토 미숙 예산 수억원 추가 필요
--  2023 죽변항 수산물 축제 성황리에 마무리
--  구미교육지원청 lsquo;지역과 함께 미래로 향하는 교육인재 양성rsquo; 사업설명회 개최
--  손병복 울진군수 lsquo;2023 올해를 빛낸 한국인 대상rsquo; 수상
--  진주 'K-기업가정신 청년 포럼' 성료
--  창녕군자원봉사센터, 올해 경남도 우수센터 선정
--  진주 강민국 의원, 항공산업 위한 세미나 열어
--  금태섭, 신당 창당대회에서 quot;총선 30석, 2032년 개헌 목표quot;
--  진주시 지역사랑상품권 운영 최우수기관 선정
--  김종인 quot;한동훈 비대위원장? 정치 안 해본 사람이 뭘 할 수 있나quot;
--  최상목 quot;법인세, 글로벌 스탠더드 감안해야quot;hellip;또 법인세 인하?
--  Αστέρας Τρίπολης-ΠΑΟΚ 0-0 (Πρώτο ημίχρονο)
--  My personal journey through Paphos’ cafe scene
--  Christmas revellers flood Fikardou, close roads
--  এ এক নতুন লি জিন
+-  Brad Pitt cumple 60 años con un físico impecable
+-  Rompen récord en recolección de chamarras
+-  Mehmet Büyükekşi'den istifa iddialarına yanıt!
+-  First Patient Dosed in Clinical Trial of YOLT-201 for the Treatment of Hereditary ATTR-CM
+-  Sixers le propinó histórica paliza a los Hornest
+-  Dividing with a Uniform Civil Code
+-  VIDEO: Así canta y baila André Jardine previo a la Final de Liga MX con el América
+-  Shop selling 'EASTER treats' with still more than a week to go before Christmas: Cadbury mini-eggs on display in London Nisa store on Dec 17
+-  بمناسبة يوم الشرطة العربي الموافق 18 ديسمبر.. العميد حُميد يعقد اجتماعا أمنيا
+-  La météo pour ce lundi 18 décembre 2023
+-  Tunisie : Arrestation de six extrémistes
+-  هل يكون إلياس أخوماش مفاجأة الركراكي؟
+-  Real Madrid çıldırdı! Yeniden 'Los Galactiscos'u kuruyor
+-  Cumhurbaşkanı Erdoğan Macaristan'a gidiyor
+-  Feyenoord dört dörtlük!
+-  Cumhurbaşkanı Erdoğan, KKTC Cumhurbaşkanı Tatar ile görüştü
+-  Sverige i brygga – Danmark leder bronsmatchen
+-  Exponen 20 sueños de niñas y niños que piden un Paraguay con mejores oportunidades
+-  DANIELLE RUIZ – Você já fez seu planejamento para 2024?
+-  Severjeve nagrade gredo v roke Ive Krajnc Bagola, Jurija Zrneca in Nives Mikulin
+-  Severjeve nagrade gredo v roke Ive Krajnc Bagola, Jurija Zrneca in Nives Mikulin
+-  کراچی : بے قابو ٹینکر گھر میں جا گھسا، ایک شخص جاں بحق، 3زخمی
+-  Las incidencias del fuerte viento en Canarias: caída de árboles, vallados y cableado eléctrico
+-  Putin: Tani do të kemi probleme me Finlandën
+-  Schalke-Hammer in der Chefetage: Kommt Wilmots?: Bei Neuzugängen ist Churlinov ein heißes Eisen
+-  Kocaeli'de tırın çarptığı hastanede tedavi göre kişi vefat etti
+-  "I dalje očekujem velike stvari od Nadala"
+-  Prezes polskiego klubu brutalnie pobity. Walczy o życie
+-  Schalke-Hammer in der Chefetage: Kommt Wilmots?: Bei Neuzugängen ist Churlinov ein heißes Eisen
+-  One Piece is Getting an Anime Remake (No, Seriously)
+-  Hajdukovci stigli na Maksimir, pitanje je hoće li svi navijači uspjeti ući na stadion do početka utakmice
+-  Pope Francis deplores Israeli killings of civilians at Gaza church
+-  Israel uncovers ‘biggest Hamas tunnel’ near Gaza border
+-  Ucrânia acusa Moscovo de forçar funcionários de Zaporijia a obter passaportes russos
+-  Incêndio destrói caminhões estacionados em pátio no litoral de SP; VÍDEO
+-  Vučića iznervirali hrvatski novinari: ‘Što ste navalili? Samo mi vi nemojte držati predavanja!‘
+-  مانشستر سيتي يواصل نزيف النقاط بتعادله مع كريستال بالاس
+-  Partido de Putin aprova por unanimidade a sua recandidatura às presidenciais de março
+-  Μπόγρης: «Φάγαμε τέλεια προβατίνα χθες, μετά το μπουζουκάκι της εθνικής οδού όπως μας άξιζε» (vid)
+-  Demi Lovato Engaged to Jute$: See Her Eye-Catching Ring
+-  Donald Trump promete si es reelegido, un gran operativo de deportación desde su primer día de mandato
+-  Senior YSRCP leader involved in ₹2,000 crore TDR scam in Visakhapatnam, allege JSP leaders
+-  Sete razões que fazem com que o seu gato esteja a mordê-lo
+-  Aquaman w kinach, Percy Jackson na Disney+. Nowy tydzień w kulturze
+-  Carlos Moedas defende coligação pré-eleitoral entre PSD e CDS
+-  Remiten a 65 conductores ebrios al Cerecito
+-  Aksi Debut Radja Nainggolan Bersama Bhayangkara FC di Liga 1
+-  NESTVARNO! DVA SKANDALA NA ISTOM MEČU! Ukrajinka se povukla zbog Ruskinje, a Mira onda igrala protiv MUŠKARCA! (VIDEO)
+-  «قمصان ميسي وبلوزة ديانا».. مبالغ خيالية لملابس المشاهير ومجموعة «البرغوث» بيعت بملايين الدولارات
+-  JN vai recorrer a todos os meios legais e judiciais contra despedimento coletivo
