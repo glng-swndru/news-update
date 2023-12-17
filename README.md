@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Fidan Blinken ile görüştü: İsrail üzerindeki nüfuzunuzu kullanın
--  Toulouse ile Rennes'den gol sesi çıkmadı!
--  Arsenal, 2 golle 3 puana uzandı!
--  Kudüs Rum Ortodoks Patrikhanesi, İsrail'in Gazze'deki ibadethanelere saldırılarını kınadı
--  Udinese ile Sassuolo yenişemedi!
--  İsrail, Mescid-i Aksa İmam Hatibi'ni "provokasyon" suçlamasıyla ifadeye çağırdı
--  Aston Villa pes etmedi, 3 puanı aldı!
--  Reportan en Ciudad Juárez desaparición de exregidor de Bachiniva
--  La exespía Ana Belén aparece por primera vez en un acto público desde su liberación
--  Мануел Нойер се завръща в националния отбор на Германия
+-  القاضي السحيمات يحيل نفسه إلى التقاعد
+-  حماس: نصد العدوان ونكبد العدو الخسائر
+-  اصطفاف المركبات.. محافظ الإسكندرية يتفقد مركز الشبكة الوطنية للطوارئ (صور)
+-  "بي تك" تصدر سندات توريق بمليار جنيه بالتعاون مع البنك التجاري الدولي
+-  سعر الذهب اليوم الأحد في مصر خلال تعاملات المساء
+-  "الضفادع البشرية" تنتشل جثة غريق مجهول الهوية في الوراق
+-  فيديو.. مشاهد استهداف عناصر القسام لدبابة إسرائيلية وسط غزة
+-  هل تعلم لماذا يحب البعض الغناء في الحمام؟.. اعرف السر
+-  Gazprom informuje o nowym rekordzie dostaw gazu do Chin
+-  Ampo Ordizia no encuentra el camino del triunfo
