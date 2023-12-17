@@ -1,51 +1,51 @@
 # Latest News
--  Zehir tacirlerine geçit yok! Bakan Bolat duyurdu: Habur Sınır Kapısı'nda 202 kilogram sıvı metamfetamin ele geçirildi
--  Özgür Özel ne vadetti? DEM Parti’den yerel seçimlerde CHP'ye yeşil ışık
--  Holtitonta aseenkäyttöä Sveitsissä - norjalaistähti sivuun kisasta
--  CIN-CG: Bivša uprava Glavnog grada dala u bescjenje atraktivnu...
--  My son saved my life after I taught him a song about ambulances
--  داخلية الحكومة الليبية: ملتزمون بتعزيز الاستقرار في الشرق والجنوب
--  Krepitvev konflikta v Sudanu in napredovanje paravojaških enot RSF-ja sprožila nov val beguncev
--  Danaone dan Kagama Dorong Pengelolaan Lingkungan Berkelanjutan
--  Cimbom'a Angelino piyangosu
--  Hørte skuddet fra matsalen: – En preget Sturla tittet fram og sa unnskyld
--  Проф. Овчаров: Резервиран съм към схващанията на Сашо Йорданов, който громи руснаците, но Витанов ме вбеси
--  Trump: Putin freut sich über meine Strafverfolgung
--  Trump: Putin freut sich über meine Strafverfolgung
--  „Курирање на современото: Нематеријалности“ – Предавање на Рик Долфијн денеска во МСУ
--  Massive interest in the funeral of Hilversum sisters
--  संसद हमले के मास्टरमाइंड ने पिता से मांगे रुपये सात लाख, क्या थी योजना…
--  סימיץ' בן ה-18 כבש בבכורה, מילאן הביסה 0:3 את מונצה
--  الثلاثاء والأربعاء.. مجلس النواب يستأنف جلساته ويناقش قانون تقابة التكنولوجيين
--  Медведев: уровень госуслуг в новых регионах должен соответствовать стандартам
--  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
--  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
--  Lindner: Kein Anlass für Vertrauensfrage - In Union köchelt K-Frage
--  Ελπίδα Ιακωβίδου: Είδαμε για πρώτη φορά τη γοητευτική μαμά της – Εμφανίστηκε ξαφνικά στο «Casa De Mikel» (Video)
--  Rusko napadne NATO, sdělil Biden. Přišla reakce Putina
--  महाकाल हैं संपूर्ण ब्रह्मांड के राजा, एमपी के नए सीएम मोहन यादव ने तोड़ी दशकों पुरानी मान्यता
--  নির্বাচন কমিশন সরকারের হুকুম বরদারে পরিণত হয়েছে: গণতন্ত্র মঞ্চ
--  Israel-Flagge vor dem Hessischen Landtag beschmiert
--  تخصيص الحصة الأولى بمدارس مطروح لتوعية الطلاب بملحمة القبائل البدوية في موقعة وادي ماجد
--  ¿El año del desamor?: las 10 rupturas de famosos que nadie vio venir en 2023
--  OnlyFans star and footballer Madelene Wright stuns in sexy lingerie as she gets fans in mood for Christmas
--  Bayramiç’te çıkan yangında ev kullanılamaz hale geldi
--  Ισραήλ: Για πρώτη φορά από την έναρξη του πολέμου ανοιχτό το σημείο διέλευσης Κερέμ Σαλόμ στη Γάζα για ανθρωπιστική βοήθεια
--  ग्वालियर से लिपुलेख तक सड़क को एक की बजाय छह लेन बनाएं, केंद्र से अखिलेश की बड़ी मांग
--  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
--  Weitere Konfrontationen an Grenze zwischen Israel und Libanon
--  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
--  Israel öffnet Grenzübergang für Hilfslieferungen nach Gaza
--  X varnar för Aftonbladetgranskning
--  Cijena nafte poslije dva mjeseca porasla na međunarodnom tržištu
--  القسام تقصف مستوطنة نيريم بصواريخ قصيرة المدى.. وسرايا القدس تستهدف حشودا للاحتلال بغلاف غزة
--  Промоција на сликовницата „Највисокиот врв“ од Илина Арсова
--  Kiderült, mikor mutatja be 2024-es F1-esét a Ferrari
--  Τοπ συγκομιδή
--  HSG Wetzlar schlägt MT Melsungen in irrwitzigem Hessen-Derby
--  Milan nadigral Monzo, Inter zvečer pri Laziu
--  „Čierne bodky“ na skle auta majú význam, o ktorom si ani netušil. Fritový pás spĺňa 3 dôležité úlohy
--  Federata e Futbollit shpall të nominuarit për më të mirët e vitit
--  Kristoffersen et stykke bak i Alta Badia: – Gikk sakte
--  ¿Cómo dejar la constancia en Carabineros si no voy a votar?
--  Hombre denunció que lo intentaron apuñalar cuando se dirigía a su local de votación en el Estadio Monumental
+-  Suriye'deki ABD askeri noktaları SİHA'lar ile vuruldu
+-  İsrail askerleri Gazze'ye atılacak bombalara Filistin'e destek veren ünlülerin isimlerini yazdı
+-  Galatasaray'da Leo Dubois ihtimali
+-  Türk finalinde kazanan belli oldu! Dünyanın en büyüğü Eczacıbaşı
+-  Shetland, porti i parë hapësinor në Mbretërinë e Bashkuar për lëshimet vertikale të raketave
+-  ارتكبوا هذا الأمر.. "الداخلية" تضبط 20 مخالفًا في عدد من المناطق
+-  كيف تربح ملايين الريالات؟.. 117 مليارا أرباح مليون مشترك في الصناديق الاستثمارية
+-  "قوى" تكشف عن مصير مترتبات العامل المنتهية إقامته بعد انتقال كفالته
+-  Възраждане: Министерството на правосъдието системно бави преписки по заявления за българско гражданство, извън законовите срокове - Труд
+-  NDLEA Seizes Convicted Drug Baron’s Mansion, Jeep In Lagos (Photos)
+-  “Elle ne m’a pas mis à la porte” : Hugo Clément revient sur son stratagème gonflé pour s’inviter chez Alexandra Rosenfeld au début de leur histoire
+-  Xankəndi şəhər stadionunun son vəziyyəti
+-  Ağaç keserken düşen kaya çarptı, uçuruma yuvarlanıp öldü
+-  Konyaspor'da gereken takviyeler yapılacak
+-  KONYASPOR, TAKTİK DENİYOR
+-  Bernardoni formayı çıkarmadı
+-  Mağaza açılışında izdiham! Vatandaşlar fenalık geçirdi...
+-  Konyaspor'da destek turları sürüyor
+-  Konyaspor'dan Şebiarus mesajı
+-  Konyaspor, Samsunspor maçı hazırlıklarına devam etti
+-  Konyaspor Basketbol, İstanbul’dan zaferle döndü
+-  Emrah Benli’den özeleştiri
+-  1922 Konyaspor, ilk yarıyı 3 puanla kapatmak istiyor
+-  پوتین: آنچه بایدن در مورد طرح روسیه برای حمله به ناتو گفت، «بی‌‏اساس» است
+-  경북개발公, 리더십 대상 이어 ESG A등급 ‘겹경사’
+-  Zahuktava se sukob na Crvenom moru: ‘Svi koji putuju u Izrael bit će uništeni, ostali su dobrodošlli‘
+-  Нов триумф за машината за победи в ски бягането - Йоханес Клаебо
+-  Condenan a exasesor del papa por malversación de fondos
+-  Alimentos vs inflamación
+-  Toca a Fed empujar al PIB
+-  Huyen pobladores de Texcaltitlán por miedo a represalias
+-  'Es consumada sentencia vs Aras'
+-  Dice Xóchitl Gálvez que Tren Maya fue una 'mentira carísima'
+-  Delhi: 7 held for duping on pretext of increasing credit card limit
+-  “중국, 생성형 AI 사용 유튜브로 여론전 펼쳐”
+-  Ex-BBC boss Greg Dyke defends Gary Lineker saying it 'doesn't matter' if Match of the Day host criticises ministers because he works in sport - after Deputy PM tells presenter to 'swim in his own lane' and stay out of politics
+-  Schlein: "Governo fa festa ad Atreju ma lascia 900mila famiglie in povertà"
+-  Родени в Германия големи панди пристигнаха в Китай
+-  Şefa diplomaţiei franceze susţine ''un nou armistiţiu imediat şi durabil'' în Gaza; ar fi o ''eroare'', consideră omologul ei israelian
+-  [2023 제주일보 10대 뉴스] 제2공항 갈등 8년…기본계획 고시 임박
+-  Постерна изложба „Провадия-Солницата – най-древният солодобивен и градски център в Европа” гостува в София
+-  Самуил Данаилов е плувец № 1 на ПСК „Черно море” за 2023 г.
+-  Bournemouth vs Luton likely to be replayed in full after Tom Lockyer cardiac arrest
+-  Congrès de la ligue des femmes du PPA-CI : voici les 3 candidates retenues
+-  Handball-Frauen bei WM auf Rang sechs
+-  Cave Überempfindlichkeit: Etoposid i.v. nur ohne Inline-Filter!
+-  Papa proslavio 87. rođendan
+-  Izrael pojačao bombardiranje Pojasa Gaze: Nema naznaka kompromisa, a nasilje jača
+-  Dans le brouillard, les supporters espèrent une victoire du FC Lorient
+-  Tropentief 'Jasper' sorgt für Land unter in Queensland
