@@ -1,11 +1,11 @@
 # Latest News
--  لقاءات قادة الأمن والمخابرات الفرنسية بعبد اللطيف حموشي دليل على ريادة الأمن المغربي
--  الكاف تكشف عن الطاقم التحكيمي الذي سيقود مباراة الوداد أمام سيمبا
--  الملك يراسل عاهل مملكة بوتان
--  "قضاة المغرب" يلوحون باستقالة جماعية
--  Gabriel Boric: Más allá del resultado, el plebiscito fortalece nuestra democracia
--  Başkan Erdoğan'dan "Hazreti Mevlana'nın 750. Vuslat Yıl Dönümü" mesajı
--  Maharashtra: Fire breaks out during Sawai Gandharva Bhimsen Mahotsav in Pune
--  Iivo Niskanen kiteytti pettymyksen kuudella sanalla - kertovat kaiken oleellisen
--  Manchester City kyttää isoa vonkaletta Bayern Münchenista
--  Rangers lift Scottish League Cup with win over Aberdeen
+-  Salió de su trabajo en el Centro y no regresó a casa
+-  Llegan participantes de la 'Santa's Run' a El Palomar
+-  Deja 12 muertos ataque armado en Guanajuato
+-  Vier Männer lassen es unterhaltsam krachen
+-  Weihnachtlicher Big-Band-Sound für den guten Zweck
+-  Und immer wieder die Deutsche Bahn
+-  Ovationen für Serdar Somuncu in der Aschaffenburger Stadthalle
+-  Papa Francis: İsrail’in kiliseleri hedef alması bir terördür
+-  Paris’te binlerce kişi Gazze’de ateşkes için yürüdü
+-  Why Is Making EV Fast Chargers Reliable So Hard?
