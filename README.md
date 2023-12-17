@@ -1,51 +1,51 @@
 # Latest News
--  Suriye'deki ABD askeri noktaları SİHA'lar ile vuruldu
--  İsrail askerleri Gazze'ye atılacak bombalara Filistin'e destek veren ünlülerin isimlerini yazdı
--  Galatasaray'da Leo Dubois ihtimali
--  Türk finalinde kazanan belli oldu! Dünyanın en büyüğü Eczacıbaşı
--  Shetland, porti i parë hapësinor në Mbretërinë e Bashkuar për lëshimet vertikale të raketave
--  ارتكبوا هذا الأمر.. "الداخلية" تضبط 20 مخالفًا في عدد من المناطق
--  كيف تربح ملايين الريالات؟.. 117 مليارا أرباح مليون مشترك في الصناديق الاستثمارية
--  "قوى" تكشف عن مصير مترتبات العامل المنتهية إقامته بعد انتقال كفالته
--  Възраждане: Министерството на правосъдието системно бави преписки по заявления за българско гражданство, извън законовите срокове - Труд
--  NDLEA Seizes Convicted Drug Baron’s Mansion, Jeep In Lagos (Photos)
--  “Elle ne m’a pas mis à la porte” : Hugo Clément revient sur son stratagème gonflé pour s’inviter chez Alexandra Rosenfeld au début de leur histoire
--  Xankəndi şəhər stadionunun son vəziyyəti
--  Ağaç keserken düşen kaya çarptı, uçuruma yuvarlanıp öldü
--  Konyaspor'da gereken takviyeler yapılacak
--  KONYASPOR, TAKTİK DENİYOR
--  Bernardoni formayı çıkarmadı
--  Mağaza açılışında izdiham! Vatandaşlar fenalık geçirdi...
--  Konyaspor'da destek turları sürüyor
--  Konyaspor'dan Şebiarus mesajı
--  Konyaspor, Samsunspor maçı hazırlıklarına devam etti
--  Konyaspor Basketbol, İstanbul’dan zaferle döndü
--  Emrah Benli’den özeleştiri
--  1922 Konyaspor, ilk yarıyı 3 puanla kapatmak istiyor
--  پوتین: آنچه بایدن در مورد طرح روسیه برای حمله به ناتو گفت، «بی‌‏اساس» است
--  경북개발公, 리더십 대상 이어 ESG A등급 ‘겹경사’
--  Zahuktava se sukob na Crvenom moru: ‘Svi koji putuju u Izrael bit će uništeni, ostali su dobrodošlli‘
--  Нов триумф за машината за победи в ски бягането - Йоханес Клаебо
--  Condenan a exasesor del papa por malversación de fondos
--  Alimentos vs inflamación
--  Toca a Fed empujar al PIB
--  Huyen pobladores de Texcaltitlán por miedo a represalias
--  'Es consumada sentencia vs Aras'
--  Dice Xóchitl Gálvez que Tren Maya fue una 'mentira carísima'
--  Delhi: 7 held for duping on pretext of increasing credit card limit
--  “중국, 생성형 AI 사용 유튜브로 여론전 펼쳐”
--  Ex-BBC boss Greg Dyke defends Gary Lineker saying it 'doesn't matter' if Match of the Day host criticises ministers because he works in sport - after Deputy PM tells presenter to 'swim in his own lane' and stay out of politics
--  Schlein: "Governo fa festa ad Atreju ma lascia 900mila famiglie in povertà"
--  Родени в Германия големи панди пристигнаха в Китай
--  Şefa diplomaţiei franceze susţine ''un nou armistiţiu imediat şi durabil'' în Gaza; ar fi o ''eroare'', consideră omologul ei israelian
--  [2023 제주일보 10대 뉴스] 제2공항 갈등 8년…기본계획 고시 임박
--  Постерна изложба „Провадия-Солницата – най-древният солодобивен и градски център в Европа” гостува в София
--  Самуил Данаилов е плувец № 1 на ПСК „Черно море” за 2023 г.
--  Bournemouth vs Luton likely to be replayed in full after Tom Lockyer cardiac arrest
--  Congrès de la ligue des femmes du PPA-CI : voici les 3 candidates retenues
--  Handball-Frauen bei WM auf Rang sechs
--  Cave Überempfindlichkeit: Etoposid i.v. nur ohne Inline-Filter!
--  Papa proslavio 87. rođendan
--  Izrael pojačao bombardiranje Pojasa Gaze: Nema naznaka kompromisa, a nasilje jača
--  Dans le brouillard, les supporters espèrent une victoire du FC Lorient
--  Tropentief 'Jasper' sorgt für Land unter in Queensland
+-  „Добро јутро“, „Лутка за насловне стране“, „Два динара друже“… ечеа во Арената „Борис Трајковски“: Спектакуларен настап на „Рибља чорба“
+-  Hitchens deployed his relentless intelligence to push for Kissinger to face crimes
+-  Ronald Acuña Jr. se alzó con el Premio Hank Aaron en la Liga Nacional (Video)
+-  [속보] 합참 "북한, 동해상으로 미상 탄도미사일 발사"
+-  김준호, 임영웅 콘서트 티켓팅→김지민 母 점수 따기 성공 “2장 아닌 6장 구해”('미우새')
+-  Relentless rain smashes records in Central Florida. Here are the numbers
+-  Urteil zur Pannen-Bundestagswahl in Berlin kommt - Noch mal?
+-  Violence dans les stades: ce qu’il faut attendre de la réunion lundi sur les supporteurs
+-  Odermatt gewinnt hochstehendes Duell gegen Zubcic
+-  Google, 25. yaşını özel bir görsel arama oyunu ile kutluyor
+-  Galatasaray'ın orta saha planı patladı
+-  Bürgergeld Auszahlung Dezember: An diesem Tag ist es so weit
+-  Essener Tafel-Chef empört: „Einige Geringverdiener haben weniger als Bürgergeld-Empfänger“
+-  FC Augsburg – Borussia Dortmund: BVB-Star mit deutlicher Ansage an Terzic
+-  이대성·양재민·장민국 이번주도 분전, 출전시간 20분 안팎 확보, 희비 엇갈렸다
+-  KT 선두 DB 잡았다, 배스 43점 대폭발, 허훈 없으니 정성우 17점 분전, DB 로슨·알바노 45점 합작
+-  Millionengeschäfte der Hamas blieben jahrelang unangetastet
+-  김준호, ♥김지민 母에 점수 땄다…임영웅 콘서트 티켓팅 성공 "하늘의 별 땄다" [미우새](종합)
+-  Barreirense conquista Supertaça Djarmai
+-  13 muertos en Argentina al hundirse el techo de un pabellón por fuerte temporal
+-  ‘그때 그 시절’ 손 때 묻은 물건이 이끄는 시간여행
+-  모두가 예술로 하나되는 장애예술축제 개최
+-  12월 동홍아트데이는 ‘마술사와 함께 맞는 크리스마스’
+-  ‘깨끗한 축산농장’ 올해 186곳 지정
+-  제주시오일장~이호테우해변 교통혼잡 개선 추진
+-  도심 애물단지 ‘불법현수막’ 수거보상제 추진
+-  수도시설 동파 방지 긴급복구반 운영
+-  2 derelict homes priced at 65 cents each sold for over $50,000
+-  Toter bei Drohnenangriff in Ukraine - Russland meldet auch Beschuss
+-  Widerspruch gegen die Pflegegrad-Einstufung oft erfolgreich
+-  عام انتخابات میں مسلم لیگ ن اکثریت سے کامیاب ہوگی، رانا ثنااللہ کا ایک بار پھر دعویٰ
+-  İstanbul'da hangi ilçede kiralar kaç TL? Maslak, Seyrantepe, Ümraniye... Tek tek açıklandı!
+-  El Zaragoza anula el efecto Guil y gana en Palencia
+-  Meloni chiude Atreju: «Cara Schlein non serve insultare, vi manca coraggio»
+-  South Korea's military says North Korea has fired a ballistic missile toward its eastern waters
+-  Łódzka policja zatrzymała pijanego kierowcę. Miał aż cztery promile alkoholu
+-  ডেঙ্গুতে ২৪ ঘণ্টায় ৪ জনের মৃত্যু
+-  Voleybolda dünyanın en büyüğü Eczacıbaşı
+-  Hull City Rosenior ile sözleşme uzattı
+-  Путин: время требует сплоченности и готовности отвечать на сложные вызовы
+-  Hamas: Keine Verhandlungen ohne Waffenstillstand
+-  Спасовски се согласува со Агелер, но вината за неказнивоста на криминалците не ја гледа во МВР, туку кај правосудството
+-  Путин заявил, что нерешенных проблем еще очень много
+-  Германия — Сроки предоставления расчета за обслуживание дома и коммунальные услуги: консультирует адвокат
+-  Intensas lluvias ocasionaron desbordamiento de quebrada en Cabudare
+-  Kış soğuklarında cildinizi neme doyuracak! Tek bir yağ ile kırışıklık, egzama, mantar, sedef her sorunu çözün!
+-  কোনো দলের পক্ষে-বিপক্ষে কাজ করে না টিআইবি
+-  Tidligere landsholdsstjerne fortsætter i Sønderjyske
+-  Tidligere landsholdsstjerne fortsætter i Sønderjyske
+-  Toyota Yaris latest price in Pakistan December 2023
