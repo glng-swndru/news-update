@@ -1,51 +1,51 @@
 # Latest News
--  When Riteish Deshmukh`s ego was hurt on being called Genelia`s husband
--  '셰필드전 1골 1도움' 맨시티 출신 MF, 6660억 투자 실패한 첼시의 희망이 되다
--  İsrail ordusu itiraf etti: Yaşananlardan biz sorumluyuz
--  Jenny Rautionaho kovassa nosteessa – hätyyttelee mitalisijoja
--  Prabowo Sebut Hilirisasi Jokowi Sudah Tepat: Jangan Jual Bahan Mentah ke Asing
--  What do you call a night without moon?
--  Mudichur tale following Michaung: Homes take over canals, water pays back
--  Kirkko | Haudoilla käyminen vähenee hiljalleen
--  31 volunteer for Sani Peyarchi annadanam, figure lower than previous years, say officials
--  スノーボードW杯 ハーフパイプ第2戦 平野歩夢が優勝 3位に戸塚
--  Le philosophe italien Toni Negri est mort
--  Paul Giamatti, acteur dans « Winter Break » : « Les choses les plus captivantes que j'ai faites concernaient les seconds rôles »
--  Miss France 2024 : victoire d'Eve Gilles, Miss Nord Pas-de-Calais
--  « Yosi, l'espion repenti » sur Prime Video, une histoire méconnue de l'Argentine
--  Sydney trains: Dozens of people arrested as NSW police crackdown on crime during holiday season
--  Zelensky looft luchtverdediging na zware Russische aanvallen
--  Notre-Dame in Parijs heeft opnieuw windhaan op toren
--  Hostile states will 'drive' migrants to UK and destabilise the West, warns Rishi Sunak
--  Roe v Wade: Ohio Black woman criminally charged after miscarriage
--  Israel Hamas war: Communications blackout and spiralling hunger compound misery in Gaza Strip as war enters 11th week
--  Israel-Hamas war: Israeli hostages mistakenly killed in Gaza had been waving a white flag, military official says
--  Stunning upset as undefeated ex-GB Olympian Peter McGrail is smashed through ropes in brutal one-punch KO
--  Life | Trying to avoid 'Janu-worry'? Here's how to resist the urge to splurge this festive season
--  নির্বাচন থেকে সরে দাঁড়াতে পারে জাপা
--  ก.เกษตรรุกหนักพัฒนาสายพันธุ์ ‘ข้าวไทย’ รุกแข่งขันในตลาดโลก
--  Taylor Swift’s impact sets new heights in entertainment industry: ‘Madonna nor Michael Jackson come close’
--  จ.เชียงราย จัดโครงการคลินิกเกษตรเคลื่อนที่ ในพระราชานุเคราะห์ฯ
--  Eight months on, Rs 1 crore yet to be used for Karaivetti bird sanctuary facelift
--  Testa dina kunskaper i vår julkalender - Lucka 17
--  Cisco defeats Centripetal patent case that led to $2.75 bln award
--  사내 연인과 결별 후 직장내 괴롭림 일삼은 40대 직장상사 징역형
--  [현장컷] 태백 함백산 한파가 만든 얼음꽃 장관
--  동해 망상1지구 대체사업자 공모 집행정지 소송 피소… 법원, 인용여부 곧 판결
--  고성 현내면서 서울 거주 여성 A씨 등산 중 실종… 경찰 등 수색 나서
--  강릉고 춘천동문회 연탄배달 봉사
--  Врач Утюмова назвала полезные для здоровья «зимние» напитки
--  MHC terkilan prestasi Young Tigers
--  What is the difference between Luna and lunar?
--  Putin inaugura uno de los túneles más largos del ferrocarril Transiberiano
--  지주회사 2년 만에 4곳 늘어난 172개…중흥건설·KG 첫 신설
--  The New York Times -artikkeli | Ratkaisu ilmastonmuutokseen? Yhdysvalloissa aloitti ensimmäinen hiilidioksidia ilmasta keräävä laitos
--  Muistatko vielä nämä Lahden ravintolaelämästä – ensimmäinen Rosso, amerikkalainen Drive-In, Zanzibarin kebabkastikkeet
--  Miksi Korian tiilitehtaan taukotilassa on vaaka ja milloin lahtelaiset tarjoavat kouvolalaisille pullakahvit työmaalla? – Kurkistimme, miltä yritysten taukotiloissa näyttää
--  Putin Akan Maju Lagi di Pilpres Rusia Lewat Jalur Independen
--  The New York Times -artikkeli | Ratkaisu ilmastonmuutokseen? Yhdysvalloissa aloitti ensimmäinen hiilidioksidia ilmasta keräävä laitos
--  Man Utd news: First January transfer agreed as Liverpool urged to target Ten Hag weakness
--  Edullisista hinnoistaan tunnettu "kellarikahvila" sulkee ovensa Tuusulanjärven rannalla
--  Фергюсон — Пимблетт: смотреть трансляцию боя UFC 296 в прямом эфире
--  When Goodreads go bad: Review bombing scandal highlights online perils for authors
--  AirAsia Operasikan Rute Denpasar - Kupang, Terbang 3 Kali Sepekan
+-  안유진, 민소매 드레스 입고 뽐낸 우아한 비주얼
+-  “가슴 수술 후회” 빅토리아 베컴, 내 딸은 안했으면…[해외이슈]
+-  '0-7 대참사' 라이벌전 대패해도 감독 교체는 없다! 英 매체 "새 구단주 오면 결정할 것"
+-  '뮤뱅 글로벌 페스티벌', 韓 역차별 논란…결국 '다시 보기' 제공 [MD이슈]
+-  "이강인 포함 PSG 신입생들, 메시-네이마르보다 수준 떨어져!"…PSG 선배의 '일침', "메시-네이마르는 퍼스트 존, 그들은 세컨드 존 또는 써드 존"
+-  여전업계, ‘PF 정상화 지원펀드’ 2600억으로 부동산PF 사업장 자금 공급
+-  SF 이정후 대대적 홍보→반려견 소개→SNS 대문도 한글로 바꿨다 "이정후만 영입한 게 아니다"
+-  아내와 두 딸 살해한 젊은 강남 엘리트의 추락 [정락인의 사건 속으로]
+-  सिमेन्ट निर्यातमा गैरभन्सार अवरोध
+-  ‘कालो सुन’को दिगो बजारीकरण
+-  १० वर्षअघिको आर्थिक अभियानबाट : प्लास्टिकका फर्निचर निर्यात घट्यो
+-  चितवनमा घरजग्गा कारोबार घट्दो : राजस्व संकलनमा ह्रास
+-  तथ्यांकोवाच : बागमती प्रदेशको कुल गार्हस्थ्य उत्पादन रू. १९८१ अर्ब
+-  बजेट घाटा ७० अर्ब ४४ करोड
+-  ओरालो लाग्दै बैंकको ब्याजदर
+-  मर्जर र एफपीओबाट साढे १२ अर्ब कर
+-  लाइटरको मूल्यांकन बढाउनुको कारण माग
+-  कानूनका विद्यार्थीलाई प्रोबोनो प्रशिक्षण
+-  जनकपुरधाममा विवाह पञ्चमी महोत्सव हुँदै
+-  चेम्बर–रुसी व्यावसायिक प्रतिनिधि मण्डल भेटवार्ता : काठमाडौं–मस्को हवाई सेवाका लागि संयुक्त पहल
+-  जलवायु परिवर्तन न्यूनीकरणमा जोड
+-  इक्यान चितवनको अध्यक्षमा भट्टराई
+-  용인특례시, 경기도 지역사회보장계획 시행결과 평가 우수기관 선정
+-  용인특례시 용인시예절교육관, 찾아가는 예절교육·성년식
+-  용인특례시, 학교 환경동아리 15곳 올해 활동 공유하는 성과발표회
+-  용인특례시의회 이교우 의원, 광교 송전철탑 이설 관련 해결 방안 마련 촉구
+-  김대남 대통령실 전 시민소통비서관 직무대리, 총선 예비후보 등록 마쳐
+-  안성시, 2024년 예산 대규모 삭감… 지역발전·시민피해 우려
+-  화성바이오밸리 기업인협의회, 마도면에 사랑의 후원금 전달
+-  제7대 화성시 어린이·청소년의회 발대식
+-  [기획] 2023년 파주시를 빛낸 시정성과 몰아보기
+-  최정희 의장, 한국일보 미지답 포럼 참석… 미군 반환공여지 활용방안 모색
+-  남양주시의회, 2023년 주민자치 성과공유회 참석
+-  백경현 구리시장, 구리시 미래 비전 제시를 위한 직원 특강
+-  Mirae Asset Celebrates 20-year Anniversary in Hong Kong
+-  Hadiri Kirab Nitilaku UGM 2023, Ganjar Kenakan Pakaian Adat Dayak
+-  Aprenda a fazer Tempero para Frango, fica um espetáculo e bem suculento
+-  Jangan Asal Pasang APK Pemilu Pilpres 2024 di Tiang Listrik, Perhatikan Jarak Aman
+-  Vídeo | Maldonado: “Por envidia no quiso cubrir a Ariela Cáceres”
+-  الأرصاد الجوية تناقش مخاطر الطقس بمؤتمر المناخ
+-  "لو شنطتك ضاعت في المطار؟".. 7 خطوات للتعامل مع الحقائب المفقودة
+-  大谷快挙 賞は「最強打者の称号」
+-  Mercato - PSG : Mbappé, un transfert de folie confirmé
+-  Gibran Blusukan Cek Kebutuhan Pokok di Balikpapan: Harga Sejumlah Barang Naik
+-  US nuclear-powered sub arrives in S. Korea amid possibility of NK ICBM launch
+-  রাতে সীমান্ত এলাকায় পাচারের সময় ২ কোটি টাকার সোনা উদ্ধার
+-  LeBron James’ Wife Savannah James Once Revealed 15 Y/O Bronny James Wanted to Be a Professional Snowboarder
+-  Crackdown Vowed on Inflated NDIS Prices
+-  Ethiopians sweep ECOWAS Abuja International Marathon titles
+-  Fire kills two at Marikina bus terminal
