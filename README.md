@@ -1,51 +1,11 @@
 # Latest News
--  "הכתר" נחלשה בעונותיה האחרונות, אבל הפרקים האחרונים מזכירים איזו יצירה נפלאה היא הייתה
--  Retrato Hablado: Lenia Batres, forjada en la lucha social
--  안덕근 산업부장관 후보자 "세계 최고 투자 환경 조성해 초격차 역량 조기 구축할 것"
--  Qış turizm mövsümünə start verildi
--  Mercato - OM : Un joueur refuse une offre colossale
--  Nitesh Rane Full PC : सुषमा अंधारेंचं नाव अंधारे नाही तर सुषमा फर्निचर आहे, नितेश राणेंची टीका
--  Belfast burglar went AWOL from jail to spend one final Christmas with cancer-stricken dad
--  ŞOK Aktüel 20 Aralık 2023 Kataloğu Yayınlandı! Yılbaşına özel tüm ürünlerde dev indirim
--  İstanbul'da deniz ulaşımını fırtına vurdu
--  الكهرباء: ربط محطة رياح خليج السويس تجاريا نهاية ديسمبر
--  移民船が転覆、61人死亡か リビア沖「世界で最も危険なルート」
--  „Bis heute stilprägend“ - Bund bangt um Tucholsky-Museum
--  «Bis heute stilprägend» - Bund bangt um Tucholsky-Museum
--  ALS hastalığı neden olur, iyileşir mi? ALS hastalığı belirtileri nelerdir, ölümcül müdür?
--  İsrailli esirlerin ailelerinden Netanyahu’ya tepki
--  V Srbiji danes predčasne volitve, favorit je vladajoča SNS
--  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 17 ธันวาคม 2566
--  Mr Bachchan: Ravi Teja drops the first look poster of his next film
--  ISL: East Bengal share points with Mumbai City FC after goalless draw
--  Съперниците на Вучич се надяват на "пробив" в Белград на предсрочния вот в Сърбия
--  Şenol Güneş'e sürpriz talip
--  Uzman doktor uyardı: Çocuk kalbini tehlikeye atmayın
--  Bakan Güler'den S400 açıklaması: Geri adım atmayacağız
--  Sırbistan halkı, sandık başında
--  আমরাই প্রথম বিদেশে স্বাধীনতার পতাকা উঠিয়েছি: সালাহউদ্দিন
--  Rahul-Dilip on Parliament Attack: 'সংসদকাণ্ডের মূলে আছে বেকারত্ব', মন্তব্য় রাহুলের, দিলীপের নিশানায় তৃণমূল
--  Tunisie: De l’interventionnisme en économie
--  Bydgoszcz: Prywatna firma przejmuje obsługę autobusów komunikacji miejskiej
--  למרות "הדם על הידיים", המערב לא יתנתק מקטאר
--  רות לוי מונתה למנכ"לית חברת עדית מימון
--  למה לילדים עם הפרעות קשב יש יותר בעיות בשיניים?
--  의사협회, 맹추위 속 의사 총궐기 대회..."의대 증원 결사 반대"
--  "Immediate Family" documentary director on legendary session players from the '70s
--  "Immediate Family" documentary director on legendary session players from the '70s
--  En Argentine, le président Milei renonce à la dollarisation du pays faute de dollars dans les coffres de sa Banque centrale
--  Vivendi engage une bataille judiciaire contre Telecom Italia
--  «La résilience a tendance à engourdir les idées» : les confidences de Philippe Jabre, «légende de la finance»
--  Mısırlı futbolcular ile taraftarlarının "Filistin tezahüratı"dünyada ses getirdi...
--  Australia Sticks To Its Guns On Inclusion Of Transgender Players
--  Auto brennt in Doppelgarage: Zwei Schwerverletzte
--  Fed najavio smanjenje kamata u Americi iduće godine
--  Soal 'Ndasmu Etik', Pengamat Sayangkan Ucapan Prabowo
--  В Астрахани при пожаре в административном здании пострадал человек
--  ВС РФ отразили четыре атаки штурмовых групп ВСУ на купянском направлении
--  Coman verletzt, Kane fraglich: Müller für VfB „in Verlosung“
--  Cristiano Ronaldo joga futebol dentro de casa com os filhos
--  Ankara'da 7 kişi karbonmonoksitten zehirlendi
--  11.5 مليون نسمة ثلثهم لا يحملون الجنسية الأردنية
--  Çiftçi Kayıt Sistemi başvurusu için son gün 2 Ocak 2024
--  مراسم تشييع وجنازة أمير الكويت
+-  Pınar Karşıyaka'dan üst üste 7. galibiyet!
+-  Asgari ücrette pazarlığın başlayacağı rakam! İkinci randevu yarın
+-  Dünyanın en büyüğü bugün belli olacak!
+-  Még minidg az EU-csúcs miatt magyarázkodnak: Orbán Balázs szerint még 75-ször vétózhatja a kormány Ukrajna csatlakozását
+-  Dutch top managers concerned about rapid growth of AI in business, study finds
+-  PM Modi Inaugurates Surat Diamond Bourse, World's Largest Office Building
+-  Indian Air Force's Air Defence Missile System 'SAMAR' Successfully Test-Fired at Exercise Astrashakti
+-  झुपडी
+-  ‘जनक नगरिया भेलै शोर हे सुहावन लागे’
+-  "태산 내려놓을 수 있냐"…하준·고주원, '형제의 난' 예고 (효심이네)[오늘밤TV]
