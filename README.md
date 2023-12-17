@@ -1,51 +1,51 @@
 # Latest News
--  공립 단설유치원의 설립을 기대한다.
--  공공기관 채용의 최우선은 공정이다
--  초고령 사회, 최대한 늦출 수 있는 대책 ‘절실’
--  추상 일색의 화풍에서 구상미술 고집...관조의 경지에 도달
--  "돌을 잡은 손가락 사이의 싸늘함...허공을 날아가는 돌멩이서 시간을 느낀다"
--  제주서 활동하는 187인의 사진전 ‘시간의 미학, 사진의 묘미’
--  자연제주 이석창 대표 ‘서귀포의 작은 기록들’ 출간
--  제주 구좌읍 김녕리의 국수집 배경, 한 가족의 이야기
--  النود: لاتفريط بالمجلس الانتقالي الجنوبي
--  강원영상위, 강릉에서 ‘노량 죽음의 바다’ 무료 상영회
--  2023 제1회 스마트폰 환경영상공모전에 ‘지구야 건강해!’ 대상 선정
--  '춘천 -16도' 전국 대부분 지역 아침 영하권… 수도권·중부지방 맹추위
--  도장애인종합복지관, 춘천·속초·동해 발달장애인 생애설계실천 모니터링
--  Andalucia will limit tourist accommodation from the beginning of January
--  Salvador uskoro počinje sa izdavanjem obveznica u bitkoinima
--  「我們為什麼要生孩子？」蔣偉文提問ChatGPT回答超催淚
--  건양사이버대 이진경 교수, 대전 서구의장상 수상
--  건보공단, 아동 및 청소년 위한 물품 후원
--  AI가 통화 중에 실시간으로 통역해준다
--  세종시의회 예결특위, ‘2024년도 예산안’ 의결
--  세종시의회, 2023년 의정발전 유공 시상식 개최
--  서산시, 어르신 아카데미 수료식 개최
--  태안군, 사회적경제 활성화에 두 팔 걷는다!
--  서산시, 럼피스킨으로부터 대한민국 축산 지켜냈다
--  금산군 찾아가는 청소년 창업 특강 ‘인기’
--  대전봉사체험교실 계룡시에 돼지등뼈 기탁
--  논산시의회 논산시의회 유튜브 영상 공모전 시상식 가져
--  건양대 전공수업에 산업현장 전문가 투입해 재학생 실무역량 강화
--  심훈학회 제3회 학술대회 성료
--  당진시보건소, 장애인 특화 차량 지원사업 선정
--  대전시 청년주택 `다가온' 첫 공급
--  사회복무대상 수상자 표창
--  디지털드림센터 간담회 개최
--  서구의회 279회 정례회 폐회
--  세종시 선폐차 지원사업 추진 `박차'
--  충남도의회 348회 정례회 폐회
--  진천군 뜨거운 이웃사랑
--  괴산 연풍면 도시재생 특화공모 선정 … 면단위 최초
--  증평군 온정의 손길 봇물
--  영동 봉곡리 마을 물난리 걱정 던다
--  충청권 광역철도 영동 연장 총력
--  옥천군의회 고향사랑기부금 한도 확대 건의문 채택
--  충북보과대 총장배 태권도대회 성료
--  MLB 진출 日 야마모토 포스팅시스템 최고액 예약
--  이정후 `김하성 스승'에 배운다
--  `스노보드 신동' 최가온 WC 여자 하프파이프 우승
--  즈베즈다 황인범 `물오른 경기력'
--  양효진 남녀배구 첫 통산 1500 블로킹 `금자탑'
--  오타니 AL `행크 애런상'
--  청주개신초 전국 태권도대회 금 8·은 1·동 2
+-  Zwaargewonde bij steekpartij in Rotterdam, verdachte aangehouden
+-  Türkiye'nin doğal gaz talebinin 2024'te 53 milyar metreküp olacağı hesaplanıyor
+-  NHS facing new winter crisis: Medical chief warns of long ambulance queues outside A&Es and patients treated in corridors in 'same scenes' as 2022
+-  Eine Woche vor Weihnachten: 300.000 Briefe sind in Weihnachtspostfilialen eingetroffen
+-  Le groupe AC/DC annonce la mort de son premier batteur
+-  Депутат Касимовской гордумы Василий Шмелёв поймал щуку весом более 9,5 кг
+-  Reims: "C'est une blague ?", le gros tacle de Courbis contre Still et sa communication
+-  Could Dan Malesela be dancing his way to Kaizer Chiefs?
+-  Meloun: Razočaran sam - trebalo je da pobedimo
+-  وفاة دبلوماسي فرنسي متأثرا بجروحه في غارة إسرائيلية على غزة
+-  Formirana Globalna mreža bh. dijaspore pri kabinetu Bećirovića
+-  Nigel Farage threatens to make next election into 'immigration referendum' to heap more pressure on Rishi Sunak as senior Tory minister warns party is being outflanked 'on the right' by Labour
+-  Европски градови каде е најдобро да се купува недвижен имот: На списокот е и еден од соседството
+-  عاجل.. منصة مدرستي.. خطوات الدخول على الاختبارات بأسهل طريقة
+-  Ankara'da 7 kişi doğal gaz zehirlenmesi nedeniyle hastaneye kaldırıldı
+-  Media: VS bekijken opties voor aanval op Houthi's
+-  मुंबई की डॉक्टर ने स्टील ग्रुप के दिग्गज सज्जन जिंदल पर लगाया रेप का आरोप
+-  U Americi zabilježen rekordan broj beskućnika do sada
+-  Sve oči uprte u FED: Dolar oštro pao, evro ojačao
+-  Srušio se avion na dalekovod: Ima poginulih
+-  포스코이앤씨, ‘맘(MOM)이 편안한 유아용 애니메이션 영상’ 인기 쑥
+-  Take a chance on me: ABBA courts Melbourne to host $80m virtual concert
+-  Procurez-vous l'iPhone 15 avant la rupture de stock avec cette offre Amazon
+-  Kiara Advani reacts to hubby Sidharth Malhotra’s ‘Indian Police Force’ teaser
+-  Sundarban Tiger Attack : কাঁকড়া ধরতে গিয়ে সোজা বাঘের মুখে, মৎস্যজীবীকে টেনে-হিঁচড়ে নিয়ে গেল বাঘ
+-  "SON 역할 잊지 말아야" EPL 레전드, 끈질긴 전방압박에 극찬 폭발
+-  ضبط حفارة مخالفة في الشونة الجنوبية / صور
+-  日투어 복귀 안신애 “무기는 더 단단해진 마음, 日 정복할게요”
+-  SNAKE encounters in South Africa on the rise this festive season
+-  Virtus, Banchi: “Piccoli episodi che non ci hanno premiato”
+-  Jakiroviću bi rođendan bio ljepši s pobjedom u derbiju. Ne može računati tri važna prvotimca
+-  Social Security Hasn't Done This Since 1981. Should Beneficiaries Be Worried?
+-  Year Ender 2023 : शरीराला सुद्धृढ बनवण्यात 'हे' 5 सप्लिमेंट्स तरबेज; मसल्स नाही तर हाडंही होतात मजबूत
+-  'Fatiga por compasión', el malestar que asola a los veterinarios: "Nos enfrentamos a la muerte cinco veces más que un médico"
+-  В Подмосковье участились случаи пожаров в квартирах и частных домах
+-  Galatasaray'da Sergio Oliveira'nın sözleşmesi dondurulabilir! Sakatlığı sanılandan daha da ciddi
+-  Fenerbahçe'nin UEFA Konferans Ligi'ni kazanma ihtimalini açıkladılar!
+-  Fenerbahçe'nin UEFA Konferans Ligi'ni kazanma ihtimali yüzde kaç? İstatistik firması açıkladı
+-  Milli Sporcu Necmettin Erbakan Akyüz, şampiyon oldu, Filistin bayrağı açıp 'dabke' dansı yaptı
+-  Нови напади во Газа и притисок за прекин на огнот и ослободување на уште заложници
+-  Putin says Biden’s remark about Russian plan to attack NATO is ‘complete nonsense’
+-  В Курской области подвели итоги сельскохозяйственного 2023 года
+-  Информационно-методический день проведут для нижегородских работодателей
+-  Ganjar Ungguli Prabowo dalam Survei Roy Morgan, Ini Analisis Burhanuddin Muhtadi
+-  Ankara'da karbonmonoksit gazından zehirlenen 7 kişi tedavi altına alındı
+-  Mercek-8 operasyonunda bin 558 gözaltı!
+-  Asgari ücret görüşmelerinde 2. toplantı yarın
+-  Hafta sonu altın alacaklar dikkat! Çeyrek ve gram altın fiyatları
+-  Türkiye'nin doğal gaz talebinin 2024'te 53 milyar metreküp olacağı hesaplanıyor
+-  Yüksek kar vaadiyle dolandırdığını iddia ettikleri arkadaşlarından şikayetçi oldular
