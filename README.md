@@ -1,11 +1,11 @@
 # Latest News
--  Pınar Karşıyaka'dan üst üste 7. galibiyet!
--  Asgari ücrette pazarlığın başlayacağı rakam! İkinci randevu yarın
--  Dünyanın en büyüğü bugün belli olacak!
--  Még minidg az EU-csúcs miatt magyarázkodnak: Orbán Balázs szerint még 75-ször vétózhatja a kormány Ukrajna csatlakozását
--  Dutch top managers concerned about rapid growth of AI in business, study finds
--  PM Modi Inaugurates Surat Diamond Bourse, World's Largest Office Building
--  Indian Air Force's Air Defence Missile System 'SAMAR' Successfully Test-Fired at Exercise Astrashakti
--  झुपडी
--  ‘जनक नगरिया भेलै शोर हे सुहावन लागे’
--  "태산 내려놓을 수 있냐"…하준·고주원, '형제의 난' 예고 (효심이네)[오늘밤TV]
+-  "בצפון קוריאה יש עיתונאים פחות חנפנים ממוטי קסטל ויהודה שלזינגר"
+-  בני ריינה לא נרגעת: "השופט החליט לגנוב את ההצגה ופירק אותנו"
+-  Media: budowa tuneli łączących Krym z Rosją i Helsinki z Tallinem jest kontrolowana przez te same osoby z Chin
+-  Rzecznik UKE: od 19 grudnia część programów TVP będzie nadawana w nowym standardzie
+-  Kouvot jatkoi arvokkaan korinaluspelaajansa sopimusta
+-  Само 6 са новите случаи на COVID 19 във Варна за последното денонощие
+-  Интер търси победа над Лацио след грешната стъпка на Юве
+-  بريطانيا.. اختبار "الحبوب المعجزة" لمنع مؤقت للحمل لدى الرجال
+-  الأحوال المدنية المتنقلة تقدم خدماتها في 21 موقعاً حول المملكة
+-  Stephen Curry devient le premier joueur de l’histoire à planter 3500 3-points en carrière
