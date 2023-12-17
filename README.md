@@ -1,4 +1,14 @@
 # Latest News
+-  আসন্ন জাতীয় সংসদ নির্বাচনে তরুণ ভোটারের গুরুত্ব
+-  Lembra Sara Carreira: "Custa-me a acreditar que aconteceu mesmo"
+-  อุตุฯ เตือนอากาศเย็นตอนเช้า ลมแรง ยอดดอยหนาวจัด ใต้ฝนฟ้าคะนอง
+-  Woman arrested twice over hospital disruption
+-  콘진원, 뉴콘텐츠기업지원센터 데모데이 시상식 개최
+-  Milli Eğitim Bakanı Tekin: Tarikat ve cemaatlerle protokol yapmaya devam edeceğiz
+-  Роман Костомаров участва за първи път с протезите на ледено шоу в Москва
+-  與, 현역 의원·원외 당협위원장 연석회의…'한동훈 비대위' 결론나나
+-  역대급 판정 나왔다! 리버풀-맨유 경기서 5초 만에 옐로카드 두 번→경고 누적 퇴장
+-  Fire that levels church near Alberta Indigenous community under investigation
 -  «الكاريكاتير»: الأمير الراحل كان داعماً للثقافة والفنون
 -  «إيسيسكو»: دوره كبير في خدمة قضايا الثقافة وتطوير مجالات العلوم والتنمية المستدامة
 -  الحشاش: رحيل سموه خسارة كبيرة للكويت
@@ -25,27 +35,17 @@
 -  ترامب يواجه في يناير المقبل أول اختبار انتخابي منذ مغادرته البيت الأبيض
 -  أكاديميون لـ «الأنباء»: الكويت فقدت قائداً عظيماً وسياسياً حكيماً
 -  كوريا الشمالية تُطلق صاروخاً باليستياً قصير المدى
+-  Sırbistan'daki genel seçimde zafer Vucic'in oldu
 -  رياضيون: الأمير الراحل ترك مسيرة حافلة بالإنجازات والمواقف المشرفة
 -  المجيبل لـ «الأنباء»: رسم للكويتيين منهجاً في الإصلاح يبدأ بالتسامح ويسير في فصل السلطات واحترام الدستور
 -  نقابات وهيئات أكاديمية تُطالب بسحب مشروع قانون الهجرة في فرنسا
+-  Retirarán monumento confederado del Cementerio Nacional de Arlington
+-  아르쿠티스, 지루성 피부염 치료제 미 FDA 승인 받아
 -  اميركا تبحث مع السلطة اعادة نشر قوات الأمن الفلسطينية بغزة
 -  진천군, 지역사회보장계획 평가‘최우수기관’ 선정
 -  충주시 소태면, 생태도시에 더 가까이
+-  Sentencian 31 años de cárcel a pastor evangélico por abuso sexual
 -  ВРАБОТЕН ВО АМЕРИКАНСКИОТ СЕНАТ СЕ СНИМАЛ КАКО ИМА СЕКС СО ДРУГ МАЖ ВО САЛАТА ЗА СОСЛУШУВАЊЕ НА КОНГРЕСОТ
--  Making Miso Out of Everything
--  '웰컴투 삼달리' 신혜선, 지창욱과 '진짜 나 찾기' 예고…시청률 8.3% '껑충'
--  “타격은 본능적으로” 손아섭 타격론과 2014년 AVG 0.315 외인…강정호 스쿨이 전부 아니다
--  유이♥하준, 드디어 첫 키스! (효심이네)[어젯밤TV]
--  '서울의 봄', '겨울왕국1'도 제쳤다…역대 개봉 4주차 주말 관객 수 1위
--  공중볼 장악→분데스리가 데뷔골→기라시 봉쇄…김민재, 멀티골 케인보다 높은 평가→슈투트가르트전 양팀 최고 평점
--  "LJUDI SLAVE POBEDU, A ON I DALJE RADI" Vučićeva savetnica objavila snimak atmosfere iz izbornog štaba na Novom Beogradu
--  Alaba se perderá lo que resta de curso tras romperse el cruzado
--  Huge explosion rips through property in Blackburn causing entire house to collapse as police launch evacuation
--  ABC host Karina Carvalho quits after 17 years with the national broadcaster
--  Banks Not Paying Customers Enough Interest: ACCC
--  ABC host Karina Carvalho quits after 17 years with the national broadcaster
--  Se quita la vida un hombre de 35 años en Parral
--  2 motorists were racing on Pa. highway before collision with school van that killed 15-year-old girl: police
--  İsrail 1 gazeteciyi daha öldürdü
--  उरई में दर्दनाक हादसा: लोडर को डंपर ने मारी जोरदार टक्कर, मां-बेटे और दादी समेत चार की मौत, कई घायल
--  Densus 88 Geledah Kontrakan Terduga Teroris di Tangerang
+-  Brutal Hail Mary drop crushes Bears
+-  Brutal Hail Mary drop crushes Bears
+-  Brutal Hail Mary drop crushes Bears
