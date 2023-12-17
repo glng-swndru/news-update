@@ -1,11 +1,51 @@
 # Latest News
--  Nagpur Factory Blast: 9 killed after explosion at solar explosive company in Maharashtra
--  రాజీయే రాజ మార్గం
--  వ్యాపారులకు పూర్తి స్వేచ్ఛ
--  TBMM Başkanı Kurtulmuş ile Kültür ve Turizm Bakanı Ersoy Şebiarus duasına katıldı
--  Man harassed ambulance personnel after being stabbed
--  ధనుర్మాస పూజలు ప్రారంభం
--  TRKA U SVEMIRU: Uspešno lansiran rival „Spejs iksa“ (VIDEO)
--  గొల్లూరు ఎక్స్‌ రోడ్డు వద్ద దారి దోపిడీ
--  Prieš mačą su „Žalgiriu“ – galingas „Fenerbahče“ pasirodymas
--  22 నుంచి మహావిష్ణు ఆలయంలో ఏకాదశి ఉత్సవాలు
+-  Hołownia: chciałbym być prezydentem
+-  محظوظون للغاية.. مواليد 4 أبراج تحصل على ثروة كبيرة في عام 2024
+-  "بعد مزاعم باكتشاف نفق".. متحدث جيش الاحتلال: حجمه كان صادمًا حقًا
+-  'Friends' Cast Reacts to Matthew Perry's Death - Every Statement Revealed
+-  Gaza Aid Crosses Israel's Kerem Shalom Crossing, First Time Since War Began
+-  How India Can Become Developed When Malnutrition Prevalent, Asks Raghuram Rajan
+-  Italiano si esalta: "Fiorentina, classifica spettacolare. Ora il mercato"
+-  Foto di Pulici sul maxischermo: morte Juliano, la gaffe dell'Udinese
+-  Squali, una battaglia da overtime contro Casale
+-  Basket Torino: aggiornamento sulle condizioni fisiche di Luca Vencato
+-  Pogacar per la prima volta al Giro d'Italia: l'annuncio ufficiale
+-  Pronostico Girona-Alaves, segno 1 più...
+-  Trento supera di forza Perugia
+-  "Sinisa sempre nel cuore": il ricordo di Mihajlovic prima di Bologna-Roma
+-  US Sends Carrier Strike Group to Gulf of Aden Amid Houthi Attacks - Reports
+-  Ledwo Cichopek weszła na scenę, a tu nagle wyskoczył Kurzajewski. Zrobił to na oczach wszystkich
+-  'Muted Christmas' In Bethlehem, West Bank Church Amid Israel-Hamas War
+-  ‘Hakuna miujiza itafanyika. This is what is happening globally’ – Ruto on high cost of living
+-  Serenaydan etiraf
+-  Russia Loads New Intercontinental Ballistic Missile Into A Silo Launcher
+-  Autoridades de EU elevan alerta por presencia de migrantes con explosivos en la frontera
+-  Fiestas del padre Sergio Valverde y Obras del Espíritu Santo apenas inician
+-  لاعب فلومينينسي: لاعبو الأهلي لا يستسلمون.. وسنسعى للتأهل لنهائي مونديال الأندية
+-  元朗女子疑墮下明渠重傷 途人發現報警 昏迷送院搶救
+-  Russia Has No Interest In Black Sea Grain Deal Extension: Report
+-  Щефан Крафт с уникален скок на Световната купа по ски скок в Енгелберг
+-  Senior Cardinal Won't Serve Jail Term Anytime Soon, Maybe Never: Report
+-  Test visual: descubre cuál es tu propósito en la vida según lo primero que veas
+-  تفعيل دور الجامعات.. تفاصيل توصيات المؤتمر العلمي الأول للتغير المناخي
+-  Mercato - PSG : «Un exemple à suivre» va signer !
+-  Jarparo Oy valitsi konkurssin sijasta yrityssaneerauksen ja selvisi veloistaan – ”seitsemän vuoden ehdonalaisuus”
+-  একটি ছবি হাজার ঘটনার কথা বলে: শিক্ষামন্ত্রী
+-  Great Pyrenees adorably 'pretends she died of dehydration' to get refill in viral video
+-  شوط جيد للزلزولي وشادي يحصن المكانة
+-  Popular, ACCIONA Energía y Cotosolar Holding cierran inversión fotovoltaica y acuerdo de sostenibilidad
+-  Ataque de grupo armado en una posada deja 12 muertos en Salvatierra, Guanajuato
+-  Все още работят по отстраняването на най-труднодостъпните аварии в електрозахранването
+-  Inbar Haiman, 27-Year-Old Israeli Woman Taken Hostage By Hamas, Confirmed Dead
+-  قوات أمن المنشآت تشارك ضمن معرض وزارة الداخلية “واحة الأمن”
+-  Bayern-Fans planen gegen Stuttgart offenbar Protest-Aktion, „die München so noch nicht erlebt hat“
+-  Junak iz sjene: ‘Josip je održavao djevojčicu na životu. Kad sam ga vidio onako krvavog, noge su mi se odsjekle‘
+-  جـلالــة السلـطـان يعـود إلى أرض الـوطـن ويشـيد بـــــمـا أتـاحته الزيارة للهند من فرص للارتقاء بالعلاقات
+-  Bakanı Fidan, ABD'li mevkidaşı Blinken ile görüştü
+-  AK Parti Sözcüsü Çelik: ”Yerel seçimlere güçlü bir şekilde hazırlanıyoruz”
+-  Promozione Puglia: Capurso-Santeramo a reti bianche, successo per l'Atletico Acquaviva
+-  96% de inversionistas latinoamericanos son optimistas sobre bitcoin para 2024
+-  سقف البرنابيو مغلق في لقاء ريال مدريد ضد فياريال
+-  Nordkorea feuert erneut Rakete ab ‒ Reaktion auf Atom-U-Boot der USA in Südkorea?
+-  Fallece exboxeador y entrenador cubano Rolando Garbey
+-  تهنئة للدكتور عبدالكريم القرالة
