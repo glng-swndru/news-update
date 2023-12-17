@@ -1,51 +1,51 @@
 # Latest News
+-  פליק פלאקו לפנים: ניצחון דרמטי קירב את קליבלנד לפלייאוף
+-  Ljajić proglasio pobedu Sandžačke demokratske partije u Novom Pazaru
+-  Nueva Constitución: cerraron las mesas en Chile y ya se conocen los primeros resultados
+-  "Какая глупость": во Франции возмутились решением ЕС по Украине
+-  Германия — У правящей коалиции новый рекордный минимум
+-  Top ten areas in the UK with the most traffic revealed – is yours on the list?
+-  Top ten areas in the UK with the most traffic revealed – is yours on the list?
+-  Una mujer y su menor hijo fueron encontrados sin vida en Huacané, Puno
+-  El Real Madrid mete presión al Girona
+-  DODIK IDE U BELORUSIJU: Situacija u toj zemlji slična je kao u Srpskoj
+-  Veľké FINÁLE markizáckej Farmy: Historicky najvyššia výhra a... TOTO je VÍŤAZ!
+-  [그래픽] 정권별 대통령 해외순방 경제사절단 구성 현황
+-  Canal 5 VER EN VIVO, América vs. Tigres: hora de inicio y cómo ver la final Liga MX
+-  Real Madrid upotti Keltaisen sukellusveneen
+-  Lille-PSG: latéral droit à la place d'Hakimi ou milieu de terrain? Luis Enrique explique le nouveau rôle de Zaïre-Emery
+-  김태흠 충남지사, "혁명적 사고가 필요한 때" ··· 친정에 쓴소리
+-  충남도의회, 효율적인 학교급식 지원체계 구축 앞장
+-  충남도의회 ‘지방의회법’ 제정 촉구 건의안 채택
+-  충남도립대 건설안전방재학과, 건설관리사 66명 배출
+-  ㈜블루트리, 훈훈한 사랑의 온정 펼쳐 '화제'
+-  도담갤러리, 개관 3주년 기념식 및 초대전 개최
+-  금천구, 2023년 마을공동체 시상식 ‘뽐’ 개최
+-  양천구, 지역명소 ‘VR 투어’ 45개소로 확대
+-  강서구 "올 겨울방학 행정실무 경험에 용돈은 덤"
+-  관악구, 주소정보 안내도 제작 배포
+-  Un error humano, posible causa del choque de dos trenes en Málaga
+-  Melhores momentos: Bayern de Munique 3 x 0 Stuttgart (Bundesliga)
+-  Ten Hag afirma que United teve “as melhores chances” em Anfield
+-  Son dakika. Bir deprem daha. Bu kez Gümüşhane'de 4.3 oldu
+-  Un error humano, posible causa del choque de dos trenes en El Chorro
+-  Un error humano, posible causa del choque de dos trenes en Málaga
+-  PSG uzatmalarda yıkıldı!
+-  Gümüşhane'de 4,3 büyüklüğünde deprem
+-  Original AC/DC drummer Colin Burgess has died at 77. The Australian helped form the group in 1973
+-  ريال مدريد يهزم فياريال ويتصدر الليغا
+-  Pogledajte koju je ocjenu Modrić dobio u Marci: ‘Mozak i pluća u nogometu su jednako važni‘
+-  【衛健委詳解】呼吸道疫情高峰 正確戴口罩、勤洗手防傳染
+-  Sp. Braga-Benfica, 0-1 (resultado final)
 -  Colocan ofrendas en el lugar en el que fue asesinada hace 13 años
+-  Descuartizó, violó y fotografió a sus víctimas: Ed Kemper, el gigante decapitador de colegialas
+-  [그래픽] 증권업계 부동산 PF 현황
+-  Γάζα: 90 νεκροί από ισραηλινούς βομβαρδισμούς στον καταυλισμό της Τζαμπάλια
 -  Liverpul osudio napad na klupski autobus Junajteda
+-  Pariski toranj krunisan novim zlatnim pijetlom
 -  ג'יילן בראון כיכב, בוסטון הביסה את אורלנדו
+-  Spotify has officially stopped working in Russia
+-  天文台｜今日大致多雲 早晚有一兩陣微雨 最高氣溫約19度
 -  500 క్లబ్‌లో లియాన్‌
--  تطوير بيئة الأصول الرقمية
--  «المـــوج الأزرق».. ما أروعــــك
--  పాక్‌ చిత్తుచిత్తు
--  경륜·경정 문화 교실 회원 참여 노래자랑 대회 개최
--  Grupo Martelli pede recuperação judicial após quebras de safra e dívidas acumuladas em R$ 244 milhões
--  ¿Irás a una playa mexicana?, revisa los resultados de sanidad
--  PKL : జైపూర్‌ అదుర్స్‌
--  افتتاحية/ فور إعلان وفاة الأمير.. متانة علاقات موريتانيا والكويت تغيِّر أجندة رئيس الجمهورية
--  Παναθηναϊκός: Ο Γιοβάνοβιτς τα έριξε στους παίκτες του
--  Under-19 Asia Cup : అండర్‌-19 ఆసియా కప్‌ విజేత బంగ్లా
--  Johan Santana y Melvin Mora: exaltados al Salón de la Fama del Béisbol Venezolano
--  Stefan Gartenmann says Aberdeen did not pose enough threat on Rangers in Viaplay Cup final
--  Photos. Vittel : la compagnie Remue-Ménage a illuminé la traditionnelle parade de Noël
--  Photos. Plombières-les-Bains : une trentaine de figurants donnent vie à la crèche de Noël
--  Photos. Des chevaux fantastiques parcourent les rues d'Épinal
--  Disparition. Claude Villers, président du « Tribunal des flagrants délires », est décédé
--  Yvelines. Un lycéen interpellé pour menaces de mort envers un de ses professeurs
--  Robe de Miss Lorraine. La déléguée régionale soutient la candidate et le créateur vosgien
--  Vosges. La Bresse : un dimanche sous le soleil pour les amoureux du massif vosgien
--  Économie. Prix, disparition, quotas : la difficile obtention de la licence IV dans les Vosges
--  Кои са най-големите убийци на страстта?
--  Synod hui starts with leadership, inclusive community
--  Yfir 2000 dýrategundir eru skotmörk katta
--  EN VIVO América vs. Tigres Final de Vuelta de la Liga MX del torneo Apertura 2023
--  Gildan Welcomes Chris Shackelton to its Board of Directors, along with Support from Coliseum Capital Management
--  Victoria Beckham bereut ihre damalige Brustvergrößerung
--  الـفـــوز يـؤكــد أننــا الأفـضــل
--  نشعر بالحزن ونعتذر لجماهيرنا
--  マクドナルド、「史上最速の成長」計画を発表…2027年までに全世界で5万店を出店
--  Meğer yıllardır turşuyu yanlış yapıyormuşuz! Bu yöntemle turşular kıtır kıtır olacak... Eriyen bozulan turşular tarihe karışıyor
--  Ishan Kishan : టెస్టు సిరీస్‌ నుంచి ఇషాన్‌ అవుట్‌
--  Kerr scores again: Chelsea hits Christmas on top, fifth straight title within reach
--  Kerr scores again: Chelsea hits Christmas on top, fifth straight title within reach
--  Cineasta georgiano Otar Iosseliani morre aos 89 anos
--  Shawn Johnson and Andrew East Confirm Sex and Name of Baby No. 3
--  Inter, Inzaghi, 'cosa manca per scudetto? 22 partite...'
--  Gümüşhane'de korkutan deprem! AFAD büyüklüğünü açıkladı
--  Why are tarantulas so hairy?
--  Space photo of the week: Swirling 'Spanish Dancer Galaxy' stares down NASA's Hubble
--  'Unique' cave art discovered in Madagascar hints at connections with ancient Egypt and Borneo
--  James Webb telescope discovers oldest black hole in the universe
--  Scientists create light-based semiconductor chip that will pave the way for 6G
--  Space photo of the week: Swirling 'Spanish Dancer Galaxy' stares down NASA's Hubble
--  Why are tarantulas so hairy?
--  Science news this week: A dolphin with thumbs and a massive quantum chip
--  Scientists create light-based semiconductor chip that will pave the way for 6G
+-  Jaylen Brown's big 4th quarter carries Celtics to 114-97 win over Magic for 14-0 start at home
+-  Son dakika! Gümüşhane'de 4,3 büyüklüğünde deprem
