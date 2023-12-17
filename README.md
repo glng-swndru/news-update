@@ -1,51 +1,11 @@
 # Latest News
--  „Добро јутро“, „Лутка за насловне стране“, „Два динара друже“… ечеа во Арената „Борис Трајковски“: Спектакуларен настап на „Рибља чорба“
--  Hitchens deployed his relentless intelligence to push for Kissinger to face crimes
--  Ronald Acuña Jr. se alzó con el Premio Hank Aaron en la Liga Nacional (Video)
--  [속보] 합참 "북한, 동해상으로 미상 탄도미사일 발사"
--  김준호, 임영웅 콘서트 티켓팅→김지민 母 점수 따기 성공 “2장 아닌 6장 구해”('미우새')
--  Relentless rain smashes records in Central Florida. Here are the numbers
--  Urteil zur Pannen-Bundestagswahl in Berlin kommt - Noch mal?
--  Violence dans les stades: ce qu’il faut attendre de la réunion lundi sur les supporteurs
--  Odermatt gewinnt hochstehendes Duell gegen Zubcic
--  Google, 25. yaşını özel bir görsel arama oyunu ile kutluyor
--  Galatasaray'ın orta saha planı patladı
--  Bürgergeld Auszahlung Dezember: An diesem Tag ist es so weit
--  Essener Tafel-Chef empört: „Einige Geringverdiener haben weniger als Bürgergeld-Empfänger“
--  FC Augsburg – Borussia Dortmund: BVB-Star mit deutlicher Ansage an Terzic
--  이대성·양재민·장민국 이번주도 분전, 출전시간 20분 안팎 확보, 희비 엇갈렸다
--  KT 선두 DB 잡았다, 배스 43점 대폭발, 허훈 없으니 정성우 17점 분전, DB 로슨·알바노 45점 합작
--  Millionengeschäfte der Hamas blieben jahrelang unangetastet
--  김준호, ♥김지민 母에 점수 땄다…임영웅 콘서트 티켓팅 성공 "하늘의 별 땄다" [미우새](종합)
--  Barreirense conquista Supertaça Djarmai
--  13 muertos en Argentina al hundirse el techo de un pabellón por fuerte temporal
--  ‘그때 그 시절’ 손 때 묻은 물건이 이끄는 시간여행
--  모두가 예술로 하나되는 장애예술축제 개최
--  12월 동홍아트데이는 ‘마술사와 함께 맞는 크리스마스’
--  ‘깨끗한 축산농장’ 올해 186곳 지정
--  제주시오일장~이호테우해변 교통혼잡 개선 추진
--  도심 애물단지 ‘불법현수막’ 수거보상제 추진
--  수도시설 동파 방지 긴급복구반 운영
--  2 derelict homes priced at 65 cents each sold for over $50,000
--  Toter bei Drohnenangriff in Ukraine - Russland meldet auch Beschuss
--  Widerspruch gegen die Pflegegrad-Einstufung oft erfolgreich
--  عام انتخابات میں مسلم لیگ ن اکثریت سے کامیاب ہوگی، رانا ثنااللہ کا ایک بار پھر دعویٰ
--  İstanbul'da hangi ilçede kiralar kaç TL? Maslak, Seyrantepe, Ümraniye... Tek tek açıklandı!
--  El Zaragoza anula el efecto Guil y gana en Palencia
--  Meloni chiude Atreju: «Cara Schlein non serve insultare, vi manca coraggio»
--  South Korea's military says North Korea has fired a ballistic missile toward its eastern waters
--  Łódzka policja zatrzymała pijanego kierowcę. Miał aż cztery promile alkoholu
--  ডেঙ্গুতে ২৪ ঘণ্টায় ৪ জনের মৃত্যু
--  Voleybolda dünyanın en büyüğü Eczacıbaşı
--  Hull City Rosenior ile sözleşme uzattı
--  Путин: время требует сплоченности и готовности отвечать на сложные вызовы
--  Hamas: Keine Verhandlungen ohne Waffenstillstand
--  Спасовски се согласува со Агелер, но вината за неказнивоста на криминалците не ја гледа во МВР, туку кај правосудството
--  Путин заявил, что нерешенных проблем еще очень много
--  Германия — Сроки предоставления расчета за обслуживание дома и коммунальные услуги: консультирует адвокат
--  Intensas lluvias ocasionaron desbordamiento de quebrada en Cabudare
--  Kış soğuklarında cildinizi neme doyuracak! Tek bir yağ ile kırışıklık, egzama, mantar, sedef her sorunu çözün!
--  কোনো দলের পক্ষে-বিপক্ষে কাজ করে না টিআইবি
--  Tidligere landsholdsstjerne fortsætter i Sønderjyske
--  Tidligere landsholdsstjerne fortsætter i Sønderjyske
--  Toyota Yaris latest price in Pakistan December 2023
+-  مؤشر سوق الأسهم يبدأ الأسبوع الثاني مرتفعا ويغلق عند 11600 نقطة
+-  تحذير مهم لـ "الأمن العام" بشأن التوظيف الوهمي
+-  أخبار السعودية.. تطبيق نظام "حضوري" بالتعليم والتسجيل بمقاعد الزمالة للأطباء
+-  عاجل.. هل يتوقف حساب المواطن؟.. رد جديد من البرنامج
+-  Schaafheim sagt Ja zum Windpark mit Großostheim und Mömlingen
+-  So waren Adventskonzert und Weihnachtsmarkt in Wiesthal
+-  تعديل أسس إيصال الكهرباء على حسـاب فلس الريف
+-  Sydkorea: Nordkorea har avfyrat robot
+-  Brave six-year-old saves his mother's life when she has 'severe' seizure by remembering song about calling 999
+-  عبدالله كامل: جهود الغرفة الإسلامية تدفع مسيرة التنمية وتمكّن القطاع الخاص في الدول الأعضاء
