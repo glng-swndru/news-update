@@ -1,51 +1,51 @@
 # Latest News
--  메가커피, 첫 캐릭터 콜라보 품절대란…폼 미쳤다!
--  Soe Hok Gie Ikon Idealisme Aktivis Mahasiswa Meninggal di Gunung Semeru 54 Tahun Lalu
--  Almaniyada hökümətin reytinqi ən aşağı həddə DÜŞDÜ
--  Ibrahimović: Vrijeme da Crna Gora modernizuje željeznicu
--  Богатият иранец на Айлин от "Ергенът" я обсипа с диаманти
--  המתאזרח ג'קס לויץ' חתם בהפועל חיפה
--  Συγκινημένη η Άννα Βίσση: Το βίντεο που της έστειλαν τα εγγόνια της από την Αμερική για την πρεμιέρα της
--  Путин: Създаваме Ленинградски военен окръг след влизането на Финландия в НАТО - Труд
--  Lebanon rescues 51 people from sinking migrant boat: army
--  О погоде в понедельник: в Баку мокрый снег, в регионах снег
--  Kráska sa vydala za mladíka so zriedkavým ochorením: Ľudia v tom majú jasno, si zlatokopka!
--  Gurmánsky KVÍZ: Vyznáte sa v národných jedlách európskych krajín?
--  Fico otvorene o kandidatúre na prezidenta: TOTO sú jeho plány! Prehovoril aj o postoji k Pellegrinimu
--  Chronický stres a choroby! Zbavte sa vnútorného TLAKU, je to lepšie ako preventívka
--  Gay Sex Filmed In Congressional Hearing Room, US Senate Staffer Fired
--  Terör devleti İsrail'den Lübnan'a uyarı: Savaşa yol açabilir
--  Mesut Özil'in DiCaprio yanıtı sosyal medyayı salladı
--  Регионалната премиера на филмот „Кафе“ на осудениот ирански режисер Навид Михандост ја наполни салата во Кинотека
--  Erdoğan Ak Parti il başkanlığına geldi: Ak Parti'de İstanbul adayı kim olacak?
--  IND vs SA Test : टी-20 मध्ये संधी मिळूनही बाकावर अन् आता कसोटी संघातून तडकाफडकी माघार; टीम इंडियाला धक्के सुरुच
--  AZ hopes to be the first team to take points off of PSV in night match
--  Počeli radovi na putu Nikšić-Velimlje
--  Tek ev sahibi olanlar dikkat!
--  আরব আমিরাতকে হারিয়ে এশিয়া কাপ জিতলো বাংলাদেশ
--  Norjalaiset hallitsivat miesten 10 kilometrin kisaa - Iivo Niskanen jäi kauas kärjestä
--  نهضة الزمامرة – الفتح الرياضي: هل ينتهي الفراغ؟
--  Quién es Laureano Ortega, el hijo que Daniel Ortega prepara para la sucesión de su dinastía en Nicaragua
--  Chhattisgarh Assembly के अध्यक्ष होंगे पूर्व मुख्यमंत्री Raman Singh, दाखिल किया नामांकन
--  ये कैसा विकसित भारत? महंगाई को लेकर Mallikarjun Kharge ने केंद्र सरकार पर साधा निशाना
--  اليوم الدولي للمهاجرين والاحتفال المؤجــل
--  CM Mohan Yadav ने उज्जैन महाकाल से संबंधित वर्षों पुराने मिथक को तोड़ा, बीता दी यहां रात
--  Ananya Panday Gives Fans A Sneak Peek Into Her Christmas Celebrations At Her New Home, See Photo
--  Football. L'ASPTT Caen en pleine réussite, l'AG Caen s'enfonce dans le bas de tableau
--  La Hague. Le club de basket organise une collecte de jouets et de denrées pour les plus démunis
--  Football-National 3. L’US Alençon doit se contenter d'une égalité
--  Wertheimer BSZ verabschiedet dringend gesuchte Nachwuchskräfte
--  »Äich is häit e Buje geborn worn?«
--  Spessartgemeinde hat in diesem Jahr 228.000 Euro investiert
--  »Ein solcher Klangkörper ist ein wertvolles Geschenk«
--  Second Hand Smoking: ਸਾਵਧਾਨ! ਸਿਗਰਟ ਦਾ ਧੂੰਆਂ ਵੀ ਖ਼ਰਾਬ ਕਰ ਸਕਦੈ ਦਿਲ ਦੀ ਸਿਹਤ, ਜਾਣੋ ਇਸਦੇ ਮਾੜੇ ਪ੍ਰਭਾਵ
--  I moved from the US to the UK and had to completely change the way I cleaned
--  Kako aplikacije za vremensku prognozu poboljšavaju tačnost podataka
--  ¿Cómo operó la red delictiva que estaba al servicio de Norero?
--  ITV I'm A Celeb star quits BBC show after 27 years
--  Ripescato il corpo di una donna ai Murazzi. Ecco cosa sta succedendo
--  How to watch today's Atlanta Falcons vs. Carolina Panthers game: Livestream options, kickoff time
--  СМИ: Путин на неделе выступит на коллегии Минобороны
--  Umweltministerium bezweifelt Wolfsangriff in Elbe-Elster
--  Year Ender 2023: 10 most talked about dog breeds of the year
--  Cumhurbaşkanı Erdoğan, AK Parti İl Başkanlığına geldi
+-  사나, 드레스 입고 뽐낸 독보적 우아함
+-  Najgorszy rok „krótkiej sprzedaży” od 3 lat, traci ponad 145 mld USD
+-  Rückgang bei Asylanträgen im November
+-  Flammeri vs. Pudding: Was ist eigentlich was?
+-  Job Alert: From UP Police to OSSTET, Govt Jobs to Apply For This Week
+-  Rugby round-up: Garioch secure status in Women’s Premiership for 2024-25 campaign with bonus point win
+-  Preparations underway as Nova Scotia braces for another strong December storm
+-  Lotniskowa szajka złodziejska w areszcie. Kradli nawet pluszaki
+-  14 موظفاً يسرقون مليوني يورو من مسافرين في مطار إسباني
+-  الأمم المتحدة تحذّر: العمليات الإنسانية في غزة على شفا الانهيار
+-  Умер режиссер Отар Иоселиани
+-  Фонд Кадырова передал шесть квартир лишившимся жилья из-за пожара в Грозном
+-  Vegan oder vegetarisch essen an Weihnachten: So klappt es ohne Streit mit den Verwandten
+-  In Karachi winters, both the peanuts and the cold, come from Quetta
+-  “Ley seca” rige a contar de las 5 de la mañana de este domingo
+-  Paralytic carried 8 Km on shoulder every month to collect old age pension in Odisha’s Koraput
+-  Zauberhafte Eislauf-Show in Eisenstadt
+-  Ukraine nennt hohe Verlustzahlen: Russland pflastert Weg nach Awdijiwka mit eigenen Leichen
+-  الهزائم و"كأس" عبدالناصر
+-  Emeklilerden sistem değişikliği çağrısı: ''2000 öncesine dönülmeli''
+-  אישום: שרף את מאהל משפחות החטופים - כדי לשכנע אותן לשנות את דרכן
+-  Parantunut suoritusvarmuus poiki Suomen jäätanssiparille harvinaisen 200 pisteen ylityksen
+-  Kickoff | Chelsea preparing a 'shock move' for Arsenal star
+-  News24 | Al-Qaeda releases South African hostage Gerco van Deventer after six years - Gift of the Givers
+-  Soccerladuma | Al Ahly Star Breaks CWC Record Held By Ex-Sundowns Star
+-  Helen Mirren: "La industria preferiría que las actrices no cumpliéramos años"
+-  Sanierung Eissportzentrum Jungfrau: Das Stimmvolk hebelt den Entscheid des Parlaments aus
+-  В ДТП в Свердловской области пострадали пять человек
+-  Helen Mirren: "La industria preferiría que las actrices no cumpliéramos años"
+-  VELIKI POŽAR KOD NOVOG SADA: Zapalio se objekat pun lako zapaljivih materijala, više vatrogasnih ekipa na licu mesta
+-  Greccy hotelarze: Potrzebujemy strategii rozwoju turystyki w Atenach
+-  Siyam na Salita sa Christmas: R
+-  TikTokers say the American dream is now to leave America
+-  ВСУ получили первую партию новых беспилотников AQ 400 Scythe
+-  الائتمان العسكري يُطلق 3 خدمات تمويلة جديدة
+-  تفاصيل اتفاق السلطة والاحتلال لتحويل اموال المقاصة كاملة
+-  60 شهيدا بغارات على منازل شمالي قطاع غزة
+-  الملك يتوجه إلى الكويت لتقديم العزاء بوفاة الشيخ نواف الصباح
+-  „Schon immer im Kern ein serbischer Nationalist“– Balkan-Experte erklärt Serbiens Präsidenten Vučić
+-  THT IMPACT: Journalist Joshi offers financial support for Prema&#039;s treatment
+-  Numérique: La Côte-d’Ivoire lance les travaux de construction d’un data Center national
+-  مقتل دبلوماسي فرنسي في غارة للجيش الإسرائيلي على قطاع غزة
+-  Loi Immigration: "Je suis confiante que nous restions unis" au sein de la majorité estime Yaël Braun-Pivet
+-  قبل أسبوع من موعدها... دعوات مكثفة لمقاطعة الانتخابات المحلية في تونس
+-  لابيد: نتنياهو لا يمكنه الاستمرار في منصبه ويمكن إجراء انتخابات خلال حرب غزة
+-  الجيش الإسرائيلي يعلن استهداف 200 موقع في قطاع غزة
+-  Brack: a fruit cake to celebrate Women’s Christmas
+-  [사설] 대구 도심 군부대 이전 사업 본격 추진을 환영한다
+-  [사설] 한·네덜란드 반도체 동맹과 TK 낙수효과
+-  [박명호 경영칼럼] 새해 계획은 어떻게 세우셨나요
