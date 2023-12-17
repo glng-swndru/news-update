@@ -1,11 +1,11 @@
 # Latest News
--  İsrailli bakandan AA muhabirine saldıran muhabire göreve dönme sözü
--  “와 진짜 미친 추위”…전국 한파특보에 곳곳 눈, 빙판 주의
--  Νεκροί τρεις Παλαιστίνιοι από ισραηλινά πυρά στη Δυτική Όχθη
--  Galicia, de vacío en los Forqué de '20.000 especies de abejas'
--  ¿Tribuna Lionel Messi? Newell’s comenzó con la remodelación de su estadio
--  Canada's Susko earns bronze in America-Pacific luge championship, ninth in World Cup
--  Rosario Central vs. Platense, en vivo, por la final de la Copa de la Liga
--  Rosario Central vs. Platense, en vivo: cómo ver online la final de la Copa de la Liga
--  السجن 15 عاما لـ4 متهمين بحيازة 180 طربة حشيش في الإسكندرية
--  Prakiraan Cuaca BMKG: Sebagian Daerah di Jawa Berawan, Waspadai Hujan di Wilayah ini
+-  В Брюсселе начали процедуру утверждения нового пакета антироссийских санкций
+-  फोटो में हैं 12 टैंक, 1 में खोल दिया नल, कौन सी टंकी सबसे पहले भरेगी?
+-  Tom Cruise, 61, 'hires out ENTIRE floor of swanky London restaurant for a romantic dinner date with new Russian socialite love Elsina Khayrova, 36,'
+-  Soal Hilirisasi, Prabowo Pamerkan Kebijakan Jokowi hingga Dampaknya ke BLT, Raskin dan BPJS
+-  Napoli Kalahkan Cagliari, Mazzarri: Situasinya Buruk Jika Kami tidak Menang Hari Ini
+-  La diputada Marcia Solórzano Gallego celebra el inicio de las Posadas con alegría y tradición
+-  เม็ดเงินจากนักลงทุนไหลเข้ามาสู่ Bitcoin และ Ethereum ร่วม 19,700 ล้านดอลลาร์หลังตลาดปรับตัวขึ้น
+-  Arsenal identify Ivan Toney alternative for potential January transfer: report
+-  Strictly fans go into meltdown as Ellie Leach, 22, becomes show's youngest ever winner and dedicates Glitterball trophy to pro partner Vito Coppola, 31
+-  Jadwal Kampanye Hari Ini, Anies Dijadwalkan ke Aceh dengan Sejumlah Agenda
