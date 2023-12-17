@@ -1,51 +1,11 @@
 # Latest News
--  사나, 드레스 입고 뽐낸 독보적 우아함
--  Najgorszy rok „krótkiej sprzedaży” od 3 lat, traci ponad 145 mld USD
--  Rückgang bei Asylanträgen im November
--  Flammeri vs. Pudding: Was ist eigentlich was?
--  Job Alert: From UP Police to OSSTET, Govt Jobs to Apply For This Week
--  Rugby round-up: Garioch secure status in Women’s Premiership for 2024-25 campaign with bonus point win
--  Preparations underway as Nova Scotia braces for another strong December storm
--  Lotniskowa szajka złodziejska w areszcie. Kradli nawet pluszaki
--  14 موظفاً يسرقون مليوني يورو من مسافرين في مطار إسباني
--  الأمم المتحدة تحذّر: العمليات الإنسانية في غزة على شفا الانهيار
--  Умер режиссер Отар Иоселиани
--  Фонд Кадырова передал шесть квартир лишившимся жилья из-за пожара в Грозном
--  Vegan oder vegetarisch essen an Weihnachten: So klappt es ohne Streit mit den Verwandten
--  In Karachi winters, both the peanuts and the cold, come from Quetta
--  “Ley seca” rige a contar de las 5 de la mañana de este domingo
--  Paralytic carried 8 Km on shoulder every month to collect old age pension in Odisha’s Koraput
--  Zauberhafte Eislauf-Show in Eisenstadt
--  Ukraine nennt hohe Verlustzahlen: Russland pflastert Weg nach Awdijiwka mit eigenen Leichen
--  الهزائم و"كأس" عبدالناصر
--  Emeklilerden sistem değişikliği çağrısı: ''2000 öncesine dönülmeli''
--  אישום: שרף את מאהל משפחות החטופים - כדי לשכנע אותן לשנות את דרכן
--  Parantunut suoritusvarmuus poiki Suomen jäätanssiparille harvinaisen 200 pisteen ylityksen
--  Kickoff | Chelsea preparing a 'shock move' for Arsenal star
--  News24 | Al-Qaeda releases South African hostage Gerco van Deventer after six years - Gift of the Givers
--  Soccerladuma | Al Ahly Star Breaks CWC Record Held By Ex-Sundowns Star
--  Helen Mirren: "La industria preferiría que las actrices no cumpliéramos años"
--  Sanierung Eissportzentrum Jungfrau: Das Stimmvolk hebelt den Entscheid des Parlaments aus
--  В ДТП в Свердловской области пострадали пять человек
--  Helen Mirren: "La industria preferiría que las actrices no cumpliéramos años"
--  VELIKI POŽAR KOD NOVOG SADA: Zapalio se objekat pun lako zapaljivih materijala, više vatrogasnih ekipa na licu mesta
--  Greccy hotelarze: Potrzebujemy strategii rozwoju turystyki w Atenach
--  Siyam na Salita sa Christmas: R
--  TikTokers say the American dream is now to leave America
--  ВСУ получили первую партию новых беспилотников AQ 400 Scythe
--  الائتمان العسكري يُطلق 3 خدمات تمويلة جديدة
--  تفاصيل اتفاق السلطة والاحتلال لتحويل اموال المقاصة كاملة
--  60 شهيدا بغارات على منازل شمالي قطاع غزة
--  الملك يتوجه إلى الكويت لتقديم العزاء بوفاة الشيخ نواف الصباح
--  „Schon immer im Kern ein serbischer Nationalist“– Balkan-Experte erklärt Serbiens Präsidenten Vučić
--  THT IMPACT: Journalist Joshi offers financial support for Prema&#039;s treatment
--  Numérique: La Côte-d’Ivoire lance les travaux de construction d’un data Center national
--  مقتل دبلوماسي فرنسي في غارة للجيش الإسرائيلي على قطاع غزة
--  Loi Immigration: "Je suis confiante que nous restions unis" au sein de la majorité estime Yaël Braun-Pivet
--  قبل أسبوع من موعدها... دعوات مكثفة لمقاطعة الانتخابات المحلية في تونس
--  لابيد: نتنياهو لا يمكنه الاستمرار في منصبه ويمكن إجراء انتخابات خلال حرب غزة
--  الجيش الإسرائيلي يعلن استهداف 200 موقع في قطاع غزة
--  Brack: a fruit cake to celebrate Women’s Christmas
--  [사설] 대구 도심 군부대 이전 사업 본격 추진을 환영한다
--  [사설] 한·네덜란드 반도체 동맹과 TK 낙수효과
--  [박명호 경영칼럼] 새해 계획은 어떻게 세우셨나요
+-  الخصاونة : الحل بفلسطين وفقاً للمرجعيَّات الدَّوليَّة وبما يلبِّي المصالح الأردنيَّة
+-  Deretan Pemikiran Soe Hok Gie Ikon Idealisme Aktivis Mahasiswa
+-  Mengenal 5 Pemeran Night Swim, Film Horor Baru Sutradara James Wan
+-  [바튼소리]사천 '12년 만의 응애응애' 단상
+-  Dubbla pallplatser för systrarna Öberg
+-  104 kvadratmeter stort radhus i Rydebäck sålt
+-  Hus på 70 kvadratmeter sålt i Påarp – priset: 2 775 000 kronor
+-  Covid-19 meningkat 20,696 kes
+-  Lantbruksfastighet såld i Vallåkra – priset: 9 100 000 kronor
+-  BBP lideri Destici asgari ücret beklentisini açıkladı
