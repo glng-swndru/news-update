@@ -1,51 +1,51 @@
 # Latest News
--  Le résumé de la nuit en NBA : Luka Doncic plante 40 points, 12 rebonds et 10 passes face aux Blazers
--  It's easy to run hot on Bath (you don’t have to force-it)
--  بن غفير يتضامن مع ضابط اعتدى على مصور فلسطيني ويعده بإعادته للعمل
--  深港醫療合作 各展所長各取所需|灣區佈局
--  Darts LIVE: Fallon Sherrock under pressure as rival in tears at Ally Pally
--  ‘이소희 28득점’ BNK, 신한은행 꺾고 5연패 탈출
--  가평, 자라섬 꽃 축제 지역경제 활성화에 기여
--  쌍용건설, '지제역 반도체밸리 쌍용 더 플래티넘' 분양
--  용인, 사회보장계획 시행결과 평가 우수기관 선정
--  한국도자재단, ‘경기세계도자비엔날레 국제공모전’ 추진
--  백영현 포천시장, 기업과 소통 현장 행보
--  연천, 겨울철 과수 동해 피해 예방 '만전'
--  김포, 애기봉평화생태공원 입장 허용인원 확대
--  김용성 경기도의원, 우수조례 경진대회 1급 포상 수상
--  경기도의회 교육행정硏, 정책연구용역 중간보고회
--  광주시의회, 올해 의사일정 마무리
--  거창군, 2023년 정신건강증진서비스 실적관리 우수기관 선정
--  아이이디건설, ‘100일간 사랑릴레이 배턴 잇기’ 동참
--  김동연 경기도지사, 글로벌 크리에이터 격려
--  광명, 노후 아파트 재건축 정밀안전진단 실시
--  함양군농업기술센터, 농촌진흥사업 중앙단위 평가 ‘우수기관’ 수상
--  안산, 수소 생산기지 공사 연말 마무리
--  파주, 민방위-비상대비 분야 우수기관 선정
--  창원소방본부 소방차 가로막는 불법주정차 차량 강제처분 훈련
--  인천 남동구 도림고, 남녀공학 전환 본격 추진
--  창원특례시, 농용굴착기 운전교육 성황리에 마쳐
--  Recept za najbržu slasticu ikad: topla i slatka kava s pralinama
--  CU, 연말 홈파티 차별화 상품 대거 출시
--  Kickoff | Real Madrid 'interested' in Bellingham's brother
--  Hij speelde meer dan 100 wedstrijden als profvoetballer, maar deze Tilburger is nu gelukkig op hoog amateurniveau
--  รมว.แรงงาน ‘พิพัฒน์’ มอบผู้ช่วยฯ สิรภพ เปิดเวทีเสวนา เร่งผลักดันกฎหมายแรงงานเพื่อยกระดับคุณภาพชีวิตกลุ่มลูกจ้างทำงานบ้าน เท่าเทียมมาตรฐานแรงงานระหว่างประเทศ
--  Mood-boosting tech 'in different pool' to Musk's Neuralink and could treat 'depression'
--  Τόλης Σκουλαριώτης: Οι συνθήκες του θανάτου του γνωστού σχεδιαστή – Eντοπίστηκε νεκρός στο σπίτι του
--  Co to była za bomba! Idealny nokaut w UFC [WIDEO]
--  "الميادين": المناطق الشمالية من قطاع غزة استهدفت بغارات عنيفة استخدم خلالها الجيش الإسرائيلي القنابل الفوسفورية
--  Sıcaklıklar yükseliyor...
--  Pri silnej búrke sa v Argentíne zrútila strecha športovej haly, zahynulo 13 ľudí
--  Juwelier Van Zandwijk uit Veen bestaat 30 jaar: 'Ik maakte al sieraden van hoefnagels'
--  OBROVSKÁ STRATA Zomrel milovaný UMELEC! Rozdal VŠETKO, čo ZAROBIL: Ľudia sú z jeho smrti v ŠOKU
--  Nach Auswärtssieg: Heidenheim-Coach warnt vor Euphorie
--  اعتُبر من علامات الشيطان في الماضي.. تعرف على التاريخ المفاجئ للشعر الأحمر الرائج بين نجمات اليوم
--  Taipans hold off Bullets in tense Queensland NBL derby
--  ‘আমাদের পড়ালেখার বড় অংশই পুলিশের সঙ্গে যুক্ত, তাই এটা একটা দারুণ সুযোগ’
--  Πιάνει ξανά κορυφή η Πάφος ή ξεφεύγει ο ΑΠΟΕΛ;
--  ABD'de öğrencisiyle ilişkiye giren öğretmene 20 yıl hapis cezası
--  अफसर के बेटे अश्वजीत अनिल गायकवाड़ के खिलाफ जांच करने के लिए SIT हुई गठित, दर्ज हुए चश्मदीदों के बयान
--  يوم طبي مجاني للبر والاحسان في مدرسة جسر الشيخ حسين الثانوية المختلطة
--  नागपुर में सोलर एक्सक्लूसिव कंपनी में हुआ ब्लास्ट, अबतक सात लोगों की मौत
--  Reyting sonuçları! 16 Aralık 2023 Cumartesi Gönül Dağı ve Kardeşlerim reyting sonucu
--  Itziar Castro (1977-2023): a “gorda, feminista e lésbica” que viveu a lutar contra o preconceito
+-  "הכתר" נחלשה בעונותיה האחרונות, אבל הפרקים האחרונים מזכירים איזו יצירה נפלאה היא הייתה
+-  Retrato Hablado: Lenia Batres, forjada en la lucha social
+-  안덕근 산업부장관 후보자 "세계 최고 투자 환경 조성해 초격차 역량 조기 구축할 것"
+-  Qış turizm mövsümünə start verildi
+-  Mercato - OM : Un joueur refuse une offre colossale
+-  Nitesh Rane Full PC : सुषमा अंधारेंचं नाव अंधारे नाही तर सुषमा फर्निचर आहे, नितेश राणेंची टीका
+-  Belfast burglar went AWOL from jail to spend one final Christmas with cancer-stricken dad
+-  ŞOK Aktüel 20 Aralık 2023 Kataloğu Yayınlandı! Yılbaşına özel tüm ürünlerde dev indirim
+-  İstanbul'da deniz ulaşımını fırtına vurdu
+-  الكهرباء: ربط محطة رياح خليج السويس تجاريا نهاية ديسمبر
+-  移民船が転覆、61人死亡か リビア沖「世界で最も危険なルート」
+-  „Bis heute stilprägend“ - Bund bangt um Tucholsky-Museum
+-  «Bis heute stilprägend» - Bund bangt um Tucholsky-Museum
+-  ALS hastalığı neden olur, iyileşir mi? ALS hastalığı belirtileri nelerdir, ölümcül müdür?
+-  İsrailli esirlerin ailelerinden Netanyahu’ya tepki
+-  V Srbiji danes predčasne volitve, favorit je vladajoča SNS
+-  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 17 ธันวาคม 2566
+-  Mr Bachchan: Ravi Teja drops the first look poster of his next film
+-  ISL: East Bengal share points with Mumbai City FC after goalless draw
+-  Съперниците на Вучич се надяват на "пробив" в Белград на предсрочния вот в Сърбия
+-  Şenol Güneş'e sürpriz talip
+-  Uzman doktor uyardı: Çocuk kalbini tehlikeye atmayın
+-  Bakan Güler'den S400 açıklaması: Geri adım atmayacağız
+-  Sırbistan halkı, sandık başında
+-  আমরাই প্রথম বিদেশে স্বাধীনতার পতাকা উঠিয়েছি: সালাহউদ্দিন
+-  Rahul-Dilip on Parliament Attack: 'সংসদকাণ্ডের মূলে আছে বেকারত্ব', মন্তব্য় রাহুলের, দিলীপের নিশানায় তৃণমূল
+-  Tunisie: De l’interventionnisme en économie
+-  Bydgoszcz: Prywatna firma przejmuje obsługę autobusów komunikacji miejskiej
+-  למרות "הדם על הידיים", המערב לא יתנתק מקטאר
+-  רות לוי מונתה למנכ"לית חברת עדית מימון
+-  למה לילדים עם הפרעות קשב יש יותר בעיות בשיניים?
+-  의사협회, 맹추위 속 의사 총궐기 대회..."의대 증원 결사 반대"
+-  "Immediate Family" documentary director on legendary session players from the '70s
+-  "Immediate Family" documentary director on legendary session players from the '70s
+-  En Argentine, le président Milei renonce à la dollarisation du pays faute de dollars dans les coffres de sa Banque centrale
+-  Vivendi engage une bataille judiciaire contre Telecom Italia
+-  «La résilience a tendance à engourdir les idées» : les confidences de Philippe Jabre, «légende de la finance»
+-  Mısırlı futbolcular ile taraftarlarının "Filistin tezahüratı"dünyada ses getirdi...
+-  Australia Sticks To Its Guns On Inclusion Of Transgender Players
+-  Auto brennt in Doppelgarage: Zwei Schwerverletzte
+-  Fed najavio smanjenje kamata u Americi iduće godine
+-  Soal 'Ndasmu Etik', Pengamat Sayangkan Ucapan Prabowo
+-  В Астрахани при пожаре в административном здании пострадал человек
+-  ВС РФ отразили четыре атаки штурмовых групп ВСУ на купянском направлении
+-  Coman verletzt, Kane fraglich: Müller für VfB „in Verlosung“
+-  Cristiano Ronaldo joga futebol dentro de casa com os filhos
+-  Ankara'da 7 kişi karbonmonoksitten zehirlendi
+-  11.5 مليون نسمة ثلثهم لا يحملون الجنسية الأردنية
+-  Çiftçi Kayıt Sistemi başvurusu için son gün 2 Ocak 2024
+-  مراسم تشييع وجنازة أمير الكويت
