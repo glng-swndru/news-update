@@ -1,11 +1,51 @@
 # Latest News
--  مؤشر سوق الأسهم يبدأ الأسبوع الثاني مرتفعا ويغلق عند 11600 نقطة
--  تحذير مهم لـ "الأمن العام" بشأن التوظيف الوهمي
--  أخبار السعودية.. تطبيق نظام "حضوري" بالتعليم والتسجيل بمقاعد الزمالة للأطباء
--  عاجل.. هل يتوقف حساب المواطن؟.. رد جديد من البرنامج
--  Schaafheim sagt Ja zum Windpark mit Großostheim und Mömlingen
--  So waren Adventskonzert und Weihnachtsmarkt in Wiesthal
--  تعديل أسس إيصال الكهرباء على حسـاب فلس الريف
--  Sydkorea: Nordkorea har avfyrat robot
--  Brave six-year-old saves his mother's life when she has 'severe' seizure by remembering song about calling 999
--  عبدالله كامل: جهود الغرفة الإسلامية تدفع مسيرة التنمية وتمكّن القطاع الخاص في الدول الأعضاء
+-  Young makes 105, Latham 92 as NZ beats Bangladesh by 44 runs in rain-affected 1st ODI
+-  Russia and Ukraine launch numerous drone attacks targeting a Russian air base and Black Sea coast
+-  "Arsen und Spitzenhäubchen": Dummheit kann retten
+-  Decoding fashion game of The Archies
+-  Shah Rukh Khan jets off to Dubai for `Dunki` promotions
+-  Kiara Advani reacts to the teaser of `Indian Police Force`
+-  أكبر النتائج بين ليفربول ومانشستر يونايتد قبل مواجهة اليوم
+-  강민국 의원 “저의 공천권자는 진주시민”
+-  총선 앞둔 향우 모임, 고향 선후배들의 '불편한 만남'
+-  고성군의회 최두임·김희태 의원 ‘경남도 의정봉사상’ 수상
+-  박선애 창원시의원 "외국인노동자지원센터 중단없이 계속돼야"
+-  제22대 총선 예비후보자 7명 추가 등록
+-  민주당 거제지역위 "통영 화장장 이용 반대, 독자 건립돼야"
+-  서부경남 여객운송·항공산업 활성화 세미나
+-  창원시, 내년부터 보훈 수당 ‘월 3만원’ 인상
+-  부산시, 통합인사 성과 우수기관으로 선정
+-  진주문화원-중국 정주문화관, 서화 교류전
+-  고성군의회, 2024년도 본예산 ‘의결’
+-  창원특례시 체육인의 밤 행사
+-  내년 전국체전 조직위원회 창립
+-  돌변한 겨울날씨…한랭질환 ‘주의보’
+-  김해시, 벼 재배농가에 경영안정자금 지급
+-  서영옥 화인테크놀리지 대표이사, 경남FC유소년재단에 500만원 전달
+-  창원특례시 ‘여성공감 생활아이디어 공모대전’ 시상식
+-  제7회 고성교육상 시상식 개최
+-  조현신·박진현 도의원, 우수의정대상 수상
+-  ‘평행선’ 정은수 감독 “모교서 찍은 작품, 영화제 출품할 것”
+-  '영화 제작지원' 나선 비디오팩토리, 지역 영화계 '단비'
+-  두자녀 가정 첫째도 입학준비금 받는다
+-  국토부 도시재생사업 공모에 사천시·의령군 선정
+-  60. Geburtstag: "Er sieht aus, als würde er rückwärts altern": Das Leben und die Karriere von Brad Pitt in Bildern
+-  Türk finalinde kazanan belli oldu! Dünyanın en büyüğü Eczacıbaşı Dynavit
+-  Esed rejiminin İdlib'deki saldırısında 4 sivil yaralandı
+-  Genç işçi temizlemek için çıktığı buğday silosunun içine düşerek hayatını kaybetti
+-  İsrail muhalefet lideri Lapid: Netanyahu başbakanlık görevine devam edemez
+-  Hull City, Liam Rosenior ile sözleşme yeniledi
+-  Rukometašice Holandije pobedile Nemačku i osvojile peto mesto na SP
+-  이낙연 "비대위 구성에 공감". 이재명 사퇴 촉구
+-  Zaskakująca deklaracja Elona Muska. Zaskoczył wszystkich na konferencji
+-  [ŽT] „100% esu tikras.“ Putinas atskleidžia „klastingus“ Vakarų planus
+-  „Rusija pasiruošusi sprogti.“ Legionas „Rusijos laisvė“ žada tikrą bombą Putinui
+-  Pavojus buvusioms SSRS šalims. „Įsivaizduokime blogiausią scenarijų...“
+-  [ŽT] Estija pasirašė naują karinį susitarimą su JAV
+-  [ŽT] „NATO neduoda nei technikos, nei ginklų. Viskas, ką gavome, vaistai ir kuras“
+-  Dažnai būdami gamtoje išliksite jaunesni: mokslininkai paaiškino, kaip
+-  „Nėra jokios „raudonos linijos“. Ždanovas skelbia šiurpią tiesą (Video)
+-  Rusiškas „dramblių pasivaikščiojimas“. Ką monstriško su An-124 parodė Rusija (Video)
+-  Milan bez poteškoća nadigrao Monzu: Rossoneri na San Siru poveli već u trećoj minuti
+-  حماس: لا تفاوض حول الأسرى إلا بعد وقف العدوان نهائياً
+-  الأمين المساعد يعزي بوفاة الشيخ علي جعفر
