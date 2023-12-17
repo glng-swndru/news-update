@@ -1,51 +1,51 @@
 # Latest News
--  안유진, 민소매 드레스 입고 뽐낸 우아한 비주얼
--  “가슴 수술 후회” 빅토리아 베컴, 내 딸은 안했으면…[해외이슈]
--  '0-7 대참사' 라이벌전 대패해도 감독 교체는 없다! 英 매체 "새 구단주 오면 결정할 것"
--  '뮤뱅 글로벌 페스티벌', 韓 역차별 논란…결국 '다시 보기' 제공 [MD이슈]
--  "이강인 포함 PSG 신입생들, 메시-네이마르보다 수준 떨어져!"…PSG 선배의 '일침', "메시-네이마르는 퍼스트 존, 그들은 세컨드 존 또는 써드 존"
--  여전업계, ‘PF 정상화 지원펀드’ 2600억으로 부동산PF 사업장 자금 공급
--  SF 이정후 대대적 홍보→반려견 소개→SNS 대문도 한글로 바꿨다 "이정후만 영입한 게 아니다"
--  아내와 두 딸 살해한 젊은 강남 엘리트의 추락 [정락인의 사건 속으로]
--  सिमेन्ट निर्यातमा गैरभन्सार अवरोध
--  ‘कालो सुन’को दिगो बजारीकरण
--  १० वर्षअघिको आर्थिक अभियानबाट : प्लास्टिकका फर्निचर निर्यात घट्यो
--  चितवनमा घरजग्गा कारोबार घट्दो : राजस्व संकलनमा ह्रास
--  तथ्यांकोवाच : बागमती प्रदेशको कुल गार्हस्थ्य उत्पादन रू. १९८१ अर्ब
--  बजेट घाटा ७० अर्ब ४४ करोड
--  ओरालो लाग्दै बैंकको ब्याजदर
--  मर्जर र एफपीओबाट साढे १२ अर्ब कर
--  लाइटरको मूल्यांकन बढाउनुको कारण माग
--  कानूनका विद्यार्थीलाई प्रोबोनो प्रशिक्षण
--  जनकपुरधाममा विवाह पञ्चमी महोत्सव हुँदै
--  चेम्बर–रुसी व्यावसायिक प्रतिनिधि मण्डल भेटवार्ता : काठमाडौं–मस्को हवाई सेवाका लागि संयुक्त पहल
--  जलवायु परिवर्तन न्यूनीकरणमा जोड
--  इक्यान चितवनको अध्यक्षमा भट्टराई
--  용인특례시, 경기도 지역사회보장계획 시행결과 평가 우수기관 선정
--  용인특례시 용인시예절교육관, 찾아가는 예절교육·성년식
--  용인특례시, 학교 환경동아리 15곳 올해 활동 공유하는 성과발표회
--  용인특례시의회 이교우 의원, 광교 송전철탑 이설 관련 해결 방안 마련 촉구
--  김대남 대통령실 전 시민소통비서관 직무대리, 총선 예비후보 등록 마쳐
--  안성시, 2024년 예산 대규모 삭감… 지역발전·시민피해 우려
--  화성바이오밸리 기업인협의회, 마도면에 사랑의 후원금 전달
--  제7대 화성시 어린이·청소년의회 발대식
--  [기획] 2023년 파주시를 빛낸 시정성과 몰아보기
--  최정희 의장, 한국일보 미지답 포럼 참석… 미군 반환공여지 활용방안 모색
--  남양주시의회, 2023년 주민자치 성과공유회 참석
--  백경현 구리시장, 구리시 미래 비전 제시를 위한 직원 특강
--  Mirae Asset Celebrates 20-year Anniversary in Hong Kong
--  Hadiri Kirab Nitilaku UGM 2023, Ganjar Kenakan Pakaian Adat Dayak
--  Aprenda a fazer Tempero para Frango, fica um espetáculo e bem suculento
--  Jangan Asal Pasang APK Pemilu Pilpres 2024 di Tiang Listrik, Perhatikan Jarak Aman
--  Vídeo | Maldonado: “Por envidia no quiso cubrir a Ariela Cáceres”
--  الأرصاد الجوية تناقش مخاطر الطقس بمؤتمر المناخ
--  "لو شنطتك ضاعت في المطار؟".. 7 خطوات للتعامل مع الحقائب المفقودة
--  大谷快挙 賞は「最強打者の称号」
--  Mercato - PSG : Mbappé, un transfert de folie confirmé
--  Gibran Blusukan Cek Kebutuhan Pokok di Balikpapan: Harga Sejumlah Barang Naik
--  US nuclear-powered sub arrives in S. Korea amid possibility of NK ICBM launch
--  রাতে সীমান্ত এলাকায় পাচারের সময় ২ কোটি টাকার সোনা উদ্ধার
--  LeBron James’ Wife Savannah James Once Revealed 15 Y/O Bronny James Wanted to Be a Professional Snowboarder
--  Crackdown Vowed on Inflated NDIS Prices
--  Ethiopians sweep ECOWAS Abuja International Marathon titles
--  Fire kills two at Marikina bus terminal
+-  Former minister’s brother booked for assault on two
+-  아이들 겨울 놀이터…성남시 스케이트장·눈썰매장 개장
+-  Our govt won’t be feudal in nature: Telangana CM Revanth Reddy
+-  Famosos, deportistas, noticias, videojuegos y películas taquilleras: Lo más buscado de Google en 2023
+-  Zweikampf von Demirovic gegen Schlotterbeck
+-  Hyundai Venue chốt giá từ 539 triệu đồng: Hàng ghế sau xuất sắc nhất phân khúc nhưng thua Raize về công nghệ an toàn
+-  Shark Bình khoe ảnh gia đình, hé lộ không gian bên trong biệt thự được Phương Oanh chăm chút trang hoàng
+-  Chuyên gia bất ngờ chỉ ra khu vực đất nền sẽ bước vào chu kì tăng giá sớm nhất
+-  Báo Đức tiết lộ về kế hoạch tấn công mới của Kiev
+-  "Độc lạ" Bình Dương là đây: Cô dâu nhận của hồi môn chỉ "sương sương" 30 cây vàng, 30 mảnh đất và vài thứ nữa
+-  Lịch âm 17/12 - Âm lịch hôm nay 17/12 chính xác nhất - lịch vạn niên 17/12/2023
+-  Bắt nhóm thanh thiếu niên mang súng ra quán cà phê giải quyết mâu thuẫn
+-  Xem ảnh chụp não đứa trẻ 3 tuổi thường bị cha mẹ la mắng, bác sĩ kết luận 1 câu khiến phụ huynh giật mình
+-  HAGL tụt dốc không phanh: Niềm tự hào của bầu Đức chỉ còn lại nỗi thất vọng
+-  “Bà trùm” vận tải, BĐS Thuận Thảo trước khi bị đình chỉ giao dịch: Loạt khu du lịch, khách sạn 5 sao bị phát mãi, đại hạ giá vẫn “ế”, cổ phiếu chỉ còn 300 đồng/cp
+-  No Muslims among ruling, Oppn MLAs a worry: AIMIM
+-  Bölgesel kriz ortamında tekstile nefes
+-  Adana’da köylüyü kalkındıracak dijital merkez
+-  Etil alkole yakın takip
+-  118 bombalı saldırı önlendi
+-  ВС России нанесли поражение ВСУ в районе восьми пунктов на Донецком направлении
+-  Telangana: 'Governor's address politically and intellectually bankrupt', says KTR
+-  우즈 부자, PNC 챔피언십 첫날 공동 11위
+-  19-åring dog i frysrum – kostar hotell 102 miljoner
+-  जो मेडल लाएगा, वह नौकरी पाएगा : तेजस्वी यादव
+-  Netanyahu hints new negotiations under way to release Gaza hostages
+-  Shoppers evacuated from Penrith Westfield due to food court fire
+-  Bundestrainer: Neuer im März wohl wieder im Tor
+-  BREAKING: `Parliament Security Breach A Serious Incident`: PM Modi
+-  Joe Rogan stunned by fighter’s extremely swollen leg following ‘one of the best fights’ ever at UFC 296
+-  Just a little tenderness
+-  Joram’s wolves...are us
+-  The Saint outside the temple
+-  You’ve got ‘rizz’
+-  Riteish Deshmukh Birthday 2023: Actor`s adorable moments with wifey Genelia
+-  Delhi Metro: Woman trapped by clothes, dragged by train dies
+-  Portugal’s Socialist Party picks new leader ahead of March vote
+-  Final Liga MX 2023: Los jugadores del América que han sido campeones de Liga con otros equipos
+-  Bizop Unveiled: Explore the Best Businesses and Career Opportunities – Visit the Site Now
+-  "หมอล็อต" เตือนเที่ยวเขาใหญ่ อย่าขับจี้ "ตูดช้าง" อันตรายมาก
+-  Ganjar-Mahfud: XVG Talents Angkat Kearifan Budaya Lokal untuk Industri Kreatif
+-  ENG vs WI 3rd T20I Result: সল্টের শতকে ওয়েস্ট ইন্ডিজের বিপক্ষে অসামান্য জয় ইংল্যান্ডের
+-  Satna: ड्राइवर और क्लीनर के उतरते ही जल उठा सीमेंट से लोड ट्रक, पास में ही थी गैस एजेंसी, पानी डालकर बुझाई आग
+-  Blusukan di Pasar, Ganjar Terima Keluhan dari Pedagang soal Aplikasi Belanja Online
+-  WHO: Katastrophale medizinische Versorgungslage in Gaza
+-  Άνθρακας: Νέο ρεκόρ στη ζήτηση φέτος – Απότομη προσγείωση μετά την COP28
+-  El BCIE
+-  Probe to be ordered into sinking of Medigadda barrage piers: Telangana CM Revanth
+-  Pemilik gerai di Kuala Sungai berniaga di tapak baharu
+-  Polis əməkdaşı qəzada həlak oldu
