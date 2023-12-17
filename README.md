@@ -1,51 +1,51 @@
 # Latest News
--  Ali Erbaş: Kanın durması için Müslümanların daha güçlü olması lazım
--  النوم الإضافي يحمي الموظف من التعرض لسكتة قلبية
--  Veliler dikkat: Yasal değil ödeme yapmayın! Uzmanlar, özel okulların KDV tuzağına karşı uyardı
--  Dünya Kulüpler Şampiyonası'nın finalinde VakıfBank ile Eczacıbaşı karşılaşacak
--  Kocaeli'de dehşet: İki kişiyi yerdeyken tekmeleyip, kemerle dövdüler
--  Konya'da anten tamir etmek isteyen kişi 3. katın balkonundan düşüp hayatını kaybetti
--  لب إحاطة لإعادة إحياء دور المجمع العلمي المصري
--  بيع سيارات بالدولار.. طلب إحاطة لمواجهة بيع المنتجات في السوق المحلية بالدولار
--  أزمة السكر مفتعلة.. رئيس "حماية المستهلك": سعر الكيلو 27 جنيهًا.. ونحرر محاضر للمخالفين
--  خبير دستوري يحسم الجدل بشأن موعد حلف الرئيس المقبل لليمين الدستورية أمام البرلمان
--  مقومات طبيعية وبشرية قادرة.. "اقتصادية النواب": مصر تقترب من التحول لمركز إقليمي في الصناعات الدوائية
--  15 % انخفاضا بقيمة العجز التجاري غير البترولي خلال الربع الثالث من عام 2023
--  Nueva directiva en la Federación de Barrios de Cuenca
--  Bilanz zum Hannibal-Netzwerk: Warten auf „Tag X“
--  «Fashion WeAk», entretien avec Paco
--  বিশ্বের সবচেয়ে বড় অফিস উদ্বোধন করলেন মোদি
--  Epidemija 3 virusa zadaje velike probleme lekarima u Srbiji: "Ove simptome ne smete ignorisati"
--  শরিকদের ৬ ও জাপাকে ২৬ আসনে ছেড়ে দিলো আওয়ামী লীগ
--  Discovering the rich culture of Ireland's leisure and amusement
--  Indonesian President Jokowi Chairs the 50 Years Anniversary of ASEAN-Japan Summit
--  Basura y aguas negras cruzan a EU sin pasaporte o visa
--  Posada en el Azteca; América y Tigres en la fiesta final
--  Bürger Serbiens entscheiden über neues Parlament
--  Hallan explosivos a migrantes en Sonora
--  Гладков: на границе села Теребрено Белгородской области идёт бой с ВСУ
--  ¿Puede la Inteligencia Artificial transformar mi negocio?
--  PUTIN BRUTALNO ISKREN O POLITICI ZAPADA ''Imamo najveću teritoriju na svetu, žele da nas unište!''
--  SZO: Urgentna služba bolnice Al Šifa je "okupana krvlju" VIDEO
--  Tinubu: I’m aware Nigerians are suffering
--  Rewe, Edeka, Kaufland und Co.: Feuerwerks-Verkauf dieses Jahr an anderen Tagen – was Kunden wissen müssen
--  Carros destrozados, árboles caídos y cortes de luz: los impactantes videos de cómo afectó el temporal en Argentina
--  Mortal Kombat 1’s Kombat Pack unleashes new fighters and crossplay capabilities
--  Türk Kardiyoloji Kongresi’nde bir ilk
--  One Piece anime gets a remake from WIT Studio and Netflix
--  Германия — Делайте пожертвования и получайте выгоду
--  Kate Middleton, perché Charlotte è più ricca dei suoi fratelli
--  The 10 products that have shrunk the most under shrinkflation
--  Nathan Lyon: Australia off-spinner only eighth bowler in elite 500-wicket club
--  Nemačka carina najavila: Konfiskovaće poklone koji stižu iz Rusije
--  The Game Awards 2023 breekt eigen kijkcijferrecord
--  Egy méregdrága robotfűnyírón is elfut a Doom
--  Feyyaz Uçar iddialara cevap verdi! "Quique Setien'e teklif sunmadık"
--  Ukrayna: Odessa bölgesinde Rus ordusuna ait 9 İHA düşürüldü
--  Güngören'de çıkan hastane yangını itfaiye ekipleri tarafından kontrol altına alındı
--  Minister Sridhar Babu : మేడిగడ్డ, అన్నారం ప్రాజెక్ట్‌లపై దర్యాప్తు జరిపిస్తాం
--  Hydroponics shop fielding more inquires about how to grow marijuana at home
--  Vírusként terjed az antiszemitizmus a német egyetemeken - videó
--  Bürger Serbiens entscheiden über neues Parlament
--  Momfluencer Ruby Franke will plead guilty to charges of child abuse, and believes Jodi Hildebrandt 'manipulated' her, attorney says
--  آصف زرداری کی پی ٹی آئی سے انتخابات میں اتحاد نہ کرنے کی ہدایت
+-  رفع الحد الأدنى والأقصى لأجر الاشتراك التأميني بدءا من يناير 2024
+-  غرفة صناعات مواد البناء تشارك بالمؤتمر الدولي الرابع للتشييد والبناء
+-  عبير الشاطر: بنك المعرفة وفر كما هائلا ومصادر علمية للباحثين والعلماء وصناع القرار
+-  Crna Gora sa stilom završila nastup na SP
+-  GALERII | Draamateater jagas välja traditsioonilised Antsud
+-  Soccerladuma | Hunt To Revisit Nga Interest?
+-  Скопјанец украде куче од двор во Драчево
+-  WATCH: Triptii Dimri shows off her smooth moves to YJHD song `Ghagra`
+-  Davis Cup: Ramkumar Ramanathan to lead India against Pakistan
+-  Каррі досяг показника в 3500 триочкових за кар'єру
+-  Holiday shopping safety: FIVE tips for secure online shopping
+-  Rottnest Island: Girl, 15, is allegedly sexually assaulted in a toilet block at tourism hotspot
+-  한국 배드민턴, BWF 왕중왕전 남여 복식 결승행
+-  SSG랜더스 새 단장에 ‘SK 왕조’ 주역 김재현 선임
+-  새로운선택-세번째권력 공동창당대회
+-  김지영 경기도여성가족재단 혁신기획팀장
+-  엄영복 강화군장애인단체 총연합회 회장
+-  학원강사에 지속적 폭행·협박 학원장·동료 등 징역형 선고
+-  법정서 피고인 사정 제대로 전달 유무죄 결과 떠나 억울함 없어야
+-  인천 학교폭력 절반이 학교 내서 일어나
+-  추위 잊은 듯 북적이는 나들이객
+-  "통학차량 ‘친환경차 전환’ 하고 싶어도 못하는 현실"
+-  코하이젠·회천농협 수소충전소, 18일부터 수도권 북부 최초 운영
+-  화성도시공사, 내년 1월부터 제부도 공중화장실에 기반 지능형 레이더 본격 운영
+-  성남시의회 ‘이로운’ 의회생활 애니메이션 공개… 초교 지방자치 교육 등 활용
+-  불광사 증축 개원… 상촌마을에 후원금 전달도
+-  "작은 행실 이천시 발전" 전춘봉 62총동문회장 취임
+-  국토정보공사 경기중부지사 임직원 안양사랑펀드에 성금 200만 원 기탁
+-  양평군 셋째아 이상 출산가정 지원 ‘듬뿍’
+-  금융기관 직원 ‘매의 눈’에 보이스피싱범 덜미
+-  인천시교육청-초록우산 어린이재단 저소득 위기가정 아동 복지 지원 맞손
+-  매립지공사, 인터넷 에코어워드 소통분야 대상
+-  위아원 청년자원봉사단 헌혈 행사 모금액 1371만 원
+-  홈마트 계양점, 인천 계양구에 이웃 돕기 라면 300상자 기탁
+-  인천 문화예술 발전 힘 보탠다
+-  ESG 녹색경영 앞장서는 CEO로 거듭
+-  ‘개청 20주년’ 인천경제청, 국가브랜드 콘퍼런스서 공공부문 대상
+-  LH, 인천 남동첨단지구 내 상업용지 등 6필지 공개 입찰
+-  포스코이앤씨 ‘육아 콘텐츠’ 유아용 애니 인기
+-  인천항·공항 손잡고 복합운송 세일즈
+-  ‘악템라’ 복제약 글로벌 3상서 유효성 확인
+-  인천공항, 디지털 전환 선도 공항과 협업
+-  남북 대치국면 속 인천 접경지 주민 좌불안석
+-  재외동포청 개청 효과 사실상 제로
+-  갯벌마저 꽁꽁
+-  인천, 여야 거물 정치인 각축장 되나
+-  인천시 제2차 노사민정 협의회 노동 존중 생태계 마련 등 논의
+-  일자리 찾는 인재들 인천 기업과 한자리
+-  연탄만큼 마음도 뜨끈
+-  부평 캠프마켓 공원 조성 방향 인천시민에 묻습니다
