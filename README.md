@@ -1,51 +1,51 @@
 # Latest News
--  رفع الحد الأدنى والأقصى لأجر الاشتراك التأميني بدءا من يناير 2024
--  غرفة صناعات مواد البناء تشارك بالمؤتمر الدولي الرابع للتشييد والبناء
--  عبير الشاطر: بنك المعرفة وفر كما هائلا ومصادر علمية للباحثين والعلماء وصناع القرار
--  Crna Gora sa stilom završila nastup na SP
--  GALERII | Draamateater jagas välja traditsioonilised Antsud
--  Soccerladuma | Hunt To Revisit Nga Interest?
--  Скопјанец украде куче од двор во Драчево
--  WATCH: Triptii Dimri shows off her smooth moves to YJHD song `Ghagra`
--  Davis Cup: Ramkumar Ramanathan to lead India against Pakistan
--  Каррі досяг показника в 3500 триочкових за кар'єру
--  Holiday shopping safety: FIVE tips for secure online shopping
--  Rottnest Island: Girl, 15, is allegedly sexually assaulted in a toilet block at tourism hotspot
--  한국 배드민턴, BWF 왕중왕전 남여 복식 결승행
--  SSG랜더스 새 단장에 ‘SK 왕조’ 주역 김재현 선임
--  새로운선택-세번째권력 공동창당대회
--  김지영 경기도여성가족재단 혁신기획팀장
--  엄영복 강화군장애인단체 총연합회 회장
--  학원강사에 지속적 폭행·협박 학원장·동료 등 징역형 선고
--  법정서 피고인 사정 제대로 전달 유무죄 결과 떠나 억울함 없어야
--  인천 학교폭력 절반이 학교 내서 일어나
--  추위 잊은 듯 북적이는 나들이객
--  "통학차량 ‘친환경차 전환’ 하고 싶어도 못하는 현실"
--  코하이젠·회천농협 수소충전소, 18일부터 수도권 북부 최초 운영
--  화성도시공사, 내년 1월부터 제부도 공중화장실에 기반 지능형 레이더 본격 운영
--  성남시의회 ‘이로운’ 의회생활 애니메이션 공개… 초교 지방자치 교육 등 활용
--  불광사 증축 개원… 상촌마을에 후원금 전달도
--  "작은 행실 이천시 발전" 전춘봉 62총동문회장 취임
--  국토정보공사 경기중부지사 임직원 안양사랑펀드에 성금 200만 원 기탁
--  양평군 셋째아 이상 출산가정 지원 ‘듬뿍’
--  금융기관 직원 ‘매의 눈’에 보이스피싱범 덜미
--  인천시교육청-초록우산 어린이재단 저소득 위기가정 아동 복지 지원 맞손
--  매립지공사, 인터넷 에코어워드 소통분야 대상
--  위아원 청년자원봉사단 헌혈 행사 모금액 1371만 원
--  홈마트 계양점, 인천 계양구에 이웃 돕기 라면 300상자 기탁
--  인천 문화예술 발전 힘 보탠다
--  ESG 녹색경영 앞장서는 CEO로 거듭
--  ‘개청 20주년’ 인천경제청, 국가브랜드 콘퍼런스서 공공부문 대상
--  LH, 인천 남동첨단지구 내 상업용지 등 6필지 공개 입찰
--  포스코이앤씨 ‘육아 콘텐츠’ 유아용 애니 인기
--  인천항·공항 손잡고 복합운송 세일즈
--  ‘악템라’ 복제약 글로벌 3상서 유효성 확인
--  인천공항, 디지털 전환 선도 공항과 협업
--  남북 대치국면 속 인천 접경지 주민 좌불안석
--  재외동포청 개청 효과 사실상 제로
--  갯벌마저 꽁꽁
--  인천, 여야 거물 정치인 각축장 되나
--  인천시 제2차 노사민정 협의회 노동 존중 생태계 마련 등 논의
--  일자리 찾는 인재들 인천 기업과 한자리
--  연탄만큼 마음도 뜨끈
--  부평 캠프마켓 공원 조성 방향 인천시민에 묻습니다
+-  Loftus-Cheek a Sky: «Aspetto il primo gol in casa. Il ritorno di Ibra è un bene per il Milan»
+-  Božić visoko u planinama: Članovi Annapurne ukrasili bor na Velikoj Gredi
+-  Coupe du monde des clubs: dates, participants, calendrier surchargé... les détails de la nouvelle formule
+-  외벽 떨어지고 마감재 낙하… '초속 18m 강풍'에 인천 피해신고 30건
+-  풍랑 경보때 기름 유출 사고… 인천 앞바다 '기름 바다'된다
+-  [우리동네 누가 뛰나 중구·강화군·옹진군] 민주 3파전, 국힘 단일화… 누구든 영종도 잡아야 '챔피언'
+-  [우리동네 누가뛰나-이천시] 국힘 송석준 vs. 민주 엄태준 ‘리턴매치’
+-  [우리동네 누가뛰나 부천정] 민주 전·현직 3명에 도의원 출신 경합… 국힘도 2명이 사활
+-  출근길 영하 18도, 한낮에도 영하 4도… "종일 추워요"
+-  수령 300년 이상 보호수 관리 예산 "내년엔 '0원'"
+-  수원시, 프로스포츠 대표 종목 축구-팀은 야구 KT위즈
+-  SSG랜더스, 에레디아·엘리아스 재계약...내년 외국인선수 구성 마쳐
+-  [건설현장 뇌관된 '부실PF'-上] 또 '재하청업체' 임금 체불… 고공 농성에 사망사고까지
+-  최근 3년간 '대입 수시 이월' 감소… "올해 추가 합격 늘어날 수도"
+-  프로배구 대한항공, 현대캐피탈 꺾고 2위 탈환...흥국생명은 선두 탈환 실패
+-  인천 학폭 증가… 신체 폭력, 집단 따돌림 ↑
+-  성남시청 손석준·선수진, 전국선수권대회 겸 국가대표 1차 선발전 우승
+-  '10억 보유 한국부자' 3.1% 인천서 거주중
+-  전국 유일 ‘국가희소금속센터’, 인천 남동산단에 개소
+-  삼성바이오로직스, ‘2023 지속가능경영유공 정부포상’ 대통령상 수상
+-  인천공항공사, 항공 안전 강화 위한 업무협약 체결
+-  셀트리온, 악템라 바이오시밀러 CT-P47 글로벌 임상 3상서 오리지널 의약품 대비 유효성·안전성 확인
+-  [사람in] 유수일 미나리광시장 상인회장 "미나리광시장 활력 회복 시 도움 필요"
+-  인천시-인천관광공사, ‘2023년 인천의료관광 하반기 정례회의’ 개최
+-  [총선톡톡] 조광한 "이재명 실체 알리려 출마" - 금태섭 "내년 총선 30석 확보 목표, 정치변화 교두보 만들겠다"
+-  "경인전철 지하화 특별법, 사업비 부족시 국가 지원 방안 포함해야"
+-  Beşiktaş'tan teknik direktörlük için resmi açıklama!
+-  Netflix'in ocak programı belli oldu
+-  Beşiktaş için flaş iddia! Kartal'ın takip ettiği o stoper...
+-  Konya'da demir kapı işçinin üzerine devrildi
+-  İkinci el araç fiyatları yüzde 30’lara kadar düştü
+-  Sille Tabiat Okulu, öğrencilere yeni ufuklar kazandırmaya devam ediyor
+-  Destici: Asgari ücret 17 bin liranın üzerinde olmalı
+-  "تقييم" تُطلق هويتها الجديدة... البنود والتفاصيل
+-  عاجل.. تطبيق نظام "حضوري" الإلكتروني على موظفي إدارات التعليم اليوم
+-  بالفيديو.. صلاة الغائب في الحرمين على الشيخ نواف الأحمد الجابر الصباح
+-  Awami League gives up 26 seats to Jatiya Party, six to 14 Party allies
+-  মনোনয়ন প্রত্যাহার করলেন জাতীয় পার্টির ফিরোজ রশীদ
+-  Habeck will deutsche Solarhersteller im Konkurrenzkampf stärken
+-  Rory Cowan explains reasons for retiring and plans to step back from limelight next year
+-  Corinthians comemora aniversário do bi mundial enquanto vive momento difícil
+-  Des scientifiques ont identifié les 16 «red flags» d'un conjoint violent | Slate.fr
+-  Une semaine dans le monde en 7 photos, du 9 au 15 décembre 2023
+-  Des poissons morts au kilomètre: les plages japonaises, nouveaux charniers de sardines et maquereaux | Slate.fr
+-  L'église Sainte-Marie, une petite Pétra espagnole en plein boom touristique | Slate.fr
+-  Manifestation à Tel Aviv après l'annonce de la mort de trois otages tués «par erreur» par l'armée israélienne | Slate.fr
+-  رقم سلبي لحراس أرسنال قبل مواجهة برايتون اليوم
+-  Nigeria records 200 deaths from Lassa fever since start of this year
+-  Mean platelet volume and total white blood cells as diagnostic biomarkers for acute appendicitis at Omdurman military hospital: a cross-sectional study − 2021 - BMC Gastroenterology
+-  Was anyone born in space?
