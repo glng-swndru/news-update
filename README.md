@@ -1,51 +1,11 @@
 # Latest News
--  Vinculan a proceso a presuntos asesinos de 'Rafa Wayne'
--  Úrad pre kontrolu drog je proti zámeru štátu Georgia predávať marihuanu v lekárňach
--  مارك كاسادو: برشلونة سيعود أقوي
--  Tormenta con vientos huracanados dejó al menos 16 muertos y destrucción en Argentina y Uruguay
--  مورينيو يلقب كرة مستقبله مع روما في ملعب الإدارة
--  Police commence operation ‘Yukthiya’ to eradicate drugs and underworld
--  Lawyers concerned over Acting IGP’s appointment amid torture case ruling
--  عاجل.. خطوات الاستعلام عن فاتورة الكهرباء لشهر ديسمبر وطريقة السداد
--  Дубль Кейна помог «Баварии» разгромить «Штутгарт»
--  الترخيص المتنقل في الأزرق الإثنين
--  Боков: «Не думаю, что Морено очень превосходит российских тренеров»
--  Les élèves de la Star Academy vont rendre hommage à Grégory Lemarchal lors des évaluations
--  A dështoi marrëveshja e Ohërit? Letra e Bërnabiç, BE kërkon zbatimin e marrëveshjes
--  الحكة المرافقة للإكزيما و طريقة علاجها
--  إصابة عسكريين بهجوم إسرائيلي بمحيط دمشق
--  12 قتيلا على الأقلّ في هجوم مسلّح خلال احتفال في المكسيك
--  İYİ Partili İbrahim Özkan ile Akşener'in yardımcısı Oktay Vural birbirine girdi: Daha dün partiye gelmişsin
--  الأونروا: عدد الأطفال والنساء الشهداء بغزة يفوق عدد قتلى أوكرانيا
--  Obradović (Dveri): Francusko-nemački sporazum najvažnija tema izbora
--  Police officer repeatedly struck in the head during Tilburg incident
--  Eddie Izzard loses out in bid to become Labour candidate in Brighton
--  Hastalık arttı, aşılama resmen başladı! Herkes sistemden kontrol etsin
--  OVO SU PRVI REZULTATI IZBORA U SRBIJI: Pratite rezultate iz cele Srbije na našem portalu
--  VUČIĆ U ŠTABU SNS-A SAOPŠTIO: Imamo apsolutnu većinu!
--  Az eddigi legnagyobb beruházás valósult meg Dócon - Galéria
--  Putin califica de «soberbia tontería» la opción de atacar a la OTAN
--  Cole Strange leaves Sunday’s Patriots-Chiefs game with knee injury
--  Mónica Rincón y Marcela Cubillos se mostraron los dientes en redes por enojo de Daniel Jadue con periodista de CNN
--  Трубін - в старті Бенфіки на матч з Брагою в чемпіонаті Португалії
--  Chris Hemsworth genießt sonnige Bootstour mit seiner Elsa!
--  Ankara Büyükşehir'den geleceğin sanatçılarına destek
--  Lukas Hradeckyn Leverkusenin lentokeli jatkuu - nyt tyrmättiin Frankfurt
--  학생인권조례 서울도 금주 폐지 수순...조 교육감은 반대 1인시위
--  Christian Ziegler stripped of responsibilities, emergency meeting scheduled for his removal, Sarasota GOP chairman says
--  Milan dominó el ‘Derbi de Berlusconi’ ante Monza
--  تقييم لاعبو ريال مدريد بعد ١٥ دقيقة أمام فياريال
--  Bodrum’da 60 Parkın Toplu Açılışı Yapıldı
--  Džastin Timberlejk provocira Britni?
--  Hakeme neden yumruk atılır?
--  تين هاج: دافعنا بشكل ممتاز أمام ليفربول
--  US Congress legislators want end to armed foreign intervention in Haiti
--  북, 심야에 단거리 탄도미사일 도발…한미 NCG에 반발
--  Hombre atropella a mujer de la tercera edad y se da a la fuga, en Nezahualcóyotl
--  Geluk bij een ongeluk: Steven Berghuis over zijn gigantische misser in buitenspelpositie
--  Liverpool bergelut jinakkan Man Utd yang bermasalah, akur seri 0-0 di Anfield
--  Martina dala zlatni gumb Tijani i Marku: Fatalni poljubac je presudio, a s nogu je oborio i Maju
--  Paavi esitti surunvalittelunsa kahden naisen väitetystä kuolemasta Gazassa – Israel kiistänyt ampumisen
--  Nordsjællands kyst er truet: Men et slagsmål om penge bremser arbejdet med at redde den
--  Nordsjællands kyst er truet: Men et slagsmål om penge bremser arbejdet med at redde den
--  Elections municipales à Montlaur : la liste d'Arnaud Humbert Droz remporte le deuxième tour
+-  أبرزها "ضعف الخصوبة".. مخاطر البلاستيك في الوجبات والمشروبات الساخنة
+-  By: Andi Purnomo
+-  Cancer Horoscope Today 18 December 2023 : कर्क राशीच्या लोकांना प्रगतीच्या संधी मिळू शकतात, कोणत्याही प्रकारच्या वादापासून दूर राहा, आजचे राशीभविष्य
+-  Rangers captain James Tavernier: League Cup triumph is long overdue
+-  Kane zbliża się do Lewandowskiego. Bayern lepszy w hicie Bundesligi [WIDEO]
+-  UŽIVO Obraća se Ana Brnabić: "Da ponovim reči predsednika, dobro došli na slavlje"
+-  Handball-WM: Frankreichs Handballerinnen holen sich gegen Norwegen den Titel
+-  Police beef up security at churches
+-  Fußball: Zwei 3:0-Siege - FC Bayern und Leverkusen im Gleichschritt
+-  A candidate for a far-right party is elected as the mayor of an eastern German town
