@@ -1,51 +1,51 @@
 # Latest News
--  Incendio en lote baldío provoca movilización
--  З'явилося відео тестового польоту нового українського дрона-камікадзе
--  דגו: "אם אצילי מתקשר ורוצה לחזור? אני משלם לו את כרטיס הטיסה"
--  מרגש: יובל המבולבל חושף מה ביקשה ממנו אמיליה אלוני בת ה-5 ששבה מהשבי
--  Como Campinas ajudará a BYD a bater sua meta de reduzir a temperatura global em 1ºC
--  Reparto de puntos en el derbi de Zubieta
--  Alcorcón sigue siendo un lugar maldito
--  La historia de los 11 hijos de Elon Musk: tres madres, nacimientos secretos, una tragedia y una batalla legal
--  Prince Christian features in new Christmas video for Danish royals
--  Prince Christian features in new Christmas video for Danish royals
--  مشكلة صحية خطيرة.. هذا ما يحدث عند تناول العشاء بعد 9 مساءً
--  تحول كومة ركام.. القصة الكاملة لمصرع شحصين في انهيار منزل ببني سويف (صور)
--  بسبب "سب طفل".. قرار جديد ضد المتهم بقتل شاب في عين شمس
--  ¿Puede mi empleador obligarme a trabajar en Navidad o cumplir horas extras?
--  Nilfisk rekrutterer ny topchef i Sverige
--  Nilfisk rekrutterer ny topchef i Sverige
--  El enfado de Andy Reid y Patrick Mahomes contra los árbitros les cuesta una sanción ejemplar de la NFL
--  VELIKO PRIZNANJE! Teodora Balzak otvorila dušu o ZATVORSKIM DANIMA, burnoj vezi s Bukilićem pa otkrila da je ČEKA BOLNIČKO LEČENJE
--  Premadasa explains Premiership refusal amid criticisms
--  Prof. Monte Cassim new Chancellor of Moratuwa Uni.
--  Authorised mobile importers urge Govt. to reconsider VAT hike amidst parallel import challenges
--  99x announces leadership transition
--  Colombo lights up for festive season
--  President urges political leaders to act responsibly in IMF program
--  2024 offers multiple challenges, election mantras will not solve: Harsha
--  Credit to private sector gains by Rs. 38 b in Oct. but lower than Sept.
--  Uptick for manufacturing, services in November but new VAT regime a damper
--  Best moveset for Froslass in Pokemon Go & is it any good?
--  Championnat Hongrie NB1 : Ben Romdhane buteur, Ferencvarosi vainqueur (vidéo)
--  Skottlossning i centrala Oslo
--  Juan Román Riquelme le detalló a Luis Advíncula las condiciones necesarias para que extienda su contrato con Boca Juniors
--  قبر أمير الكويت يثير دهشة النشطاء وتفاعل واسع (شاهد)
--  Ray Romano addresses Everybody Loves Raymond reboot rumors
--  Najviše birača glasalo u Banjaluci, najveći procenat izašlih u Doboju i Trebinju
--  Dos heridos y seis colectivos quemados tras un grave incendio en un depósito
--  Tadić: Opozicija da zajednički podnese krivičnu prijavu zbog glasača iz RS
--  Singapore’s Crypto Pilots: Japan, Switzerland, UK Partnerships
--  ميلان يتخطى مونزا بثلاثية
--  Le conseil municipal de Saint-Malo a confirmé la fusion des établissements du Groupement Hospitalier Rance Emeraude
--  Jurgen Klopp joins Virgil van Dijk in aiming dig at Manchester United’s tactics
--  Drivers warned using easy hack to defrost their car this winter could land them £80 fine – don’t get caught out
--  Drivers warned using easy hack to defrost their car this winter could land them £80 fine – don’t get caught out
--  Wirtz encumbró otra gran victoria del Leverkusen
--  '대출' 받았던 SD의 심각한 재정난? "이정후 쫓았지만, 돈에서 밀렸다" 급기야 김하성 트레이드 가능성 '거론'
--  Sieger der Präsidentschaftswahl in Ägypten wird verkündet
--  Harry Kane scorer to gange i sikker Bayern-sejr
--  Harry Kane scorer to gange i sikker Bayern-sejr
--  Jēkabpils "Lūši" izcīna Latvijas kausu
--  UBEDLjIVO NA 50 ODSTO! Lista "Aleksandar Vučić - Srbija ne sme da stane" ima više od 47 odsto
--  بالأرقام.. كين يحفر اسمه بحروف من ذهب في تاريخ البوندسليغا
+-  Apeks vs Virtus.pro Betting Tips, Odds and Prediction: ESL Challenger Atlanta
+-  “Obostrana korist” Maja Marinković će PROMIJENITI TOK RIJALITIJA – glavni fokus je njihovo raskrinkavanje?
+-  Haos na Maksimiru: Uhapšeni navijači tokom utakmice Dinama i Hajduka
+-  Missbrauchs-"Polizeiruf": Zu viel des Schlechten
+-  Sorteo de El Gordo de la Primitiva del domingo 17 de diciembre de 2023
+-  "Не близькі до угоди": сенатор-республіканець - про допомогу Україні від США
+-  First images of new Range Rover Electric revealed with iconic motor to be relaunched in 2024
+-  First images of new Range Rover Electric revealed with iconic motor to be relaunched in 2024
+-  Karolina Pliskova : « On ne peut pas comparer les joueuses actuelles avec Maria Sharapova et Serena Williams. Je ne parlerai pas de l'as­pect tennis, mais le charisme joue égale­ment un rôle »
+-  Stan Wawrinka tient le bon bout !
+-  Alexander Bublik : « Il y a beau­coup de déla­tion au sein du vestiaire. Si vous vous comportez mal, un poids lourd du vestiaire devrait venir vous le repro­cher, mais aujourd'hui, si cela arri­vait, un joueur irait se plaindre à l'ATP »
+-  Nadal sans pitié avec Gasquet à l'en­traî­ne­ment, les « papys » font de la résistance
+-  Premier coup dur pour Carlos Alcaraz
+-  Patrick Mouratoglou : « Le fait que Rafael Nadal veuille jouer l'Open d'Australie peut s'ex­pli­quer de deux façons. La première est qu'il pense que c'est peut‐être sa dernière année et qu'il veut jouer. Mais la seconde… »
+-  Adam Driver (acteur améri­cain à l'af­fiche du film Ferrari) : « Je soutiens Novak Djokovic car il est vrai­ment excep­tionnel. J'adore le regarder jouer »
+-  Simona Halep, toute seule contre le TAS, lâchée par le clan Mouratoglou !
+-  Djokovic – Gaudenzi, je t'aime moi non plus
+-  Carlos Moya, coach de Nadal : « Rafa est arrivé au Koweït en pensant qu'il n'al­lait pas pouvoir être compé­titif, mais il repart convaincu qu'il peut l'être »
+-  Carlos Moya, entraî­neur de Nadal : « Ma plus grande crainte concer­nant le retour de Rafa, c'est clai­re­ment l'as­si­mi­la­tion de la charge des matchs. Il va passer de l'en­traî­ne­ment à la compé­ti­tion. Et il est impos­sible d'avoir les mêmes condi­tions à l'en­traî­ne­ment qu'en match »
+-  Tursunov sur Djokovic : « Federer et Nadal, malgré leur expé­rience, pouvaient perdre lorsque leur physique ne suivait pas. Tant que Novak restera en forme, il sera très diffi­cile à battre »
+-  Gaël Monfils donne de ses nouvelles après une grosse frayeur : « Je me suis fait une entorse de grade 1. Je ne pense pas que ce soit trop grave, je vais encore passer une IRM »
+-  Alizé Lim : « Nadal frappe encore plus fort à l'en­traî­ne­ment qu'en match. C'est là où il est très diffé­rent de Federer. Roger était détendu, il travaillait son toucher. Rafael, il est bien au‐delà des 100% sur chaque balle »
+-  ‘One title in 33 years’: PL great slams ‘arrogant’ Liverpool star after stinging Utd sledge
+-  Leverkusen und Bayern ziehen davon : BVB mit fünf Punkten Rückstand auf Rang vier
+-  Bra tycoon Michelle Mone admits lying about £60m profits from Covid contracts — but insists it’s ‘no crime’
+-  Bra tycoon Michelle Mone admits lying about £60m profits from Covid contracts — but insists it’s ‘no crime’
+-  Decomisan cervezas y botellas de licor a aficionados en el estadio Juan Francisco Barraza
+-  اجتماع للمجلس الوطني للشمول المالي
+-  ВИДЕО: СНС на Вучиќ прогласи победа на парламентарните избори во Србија
+-  Big Brother star reveals he’s teamed up with noughties music legend to release new song weeks after rebooted series
+-  Big Brother star reveals he’s teamed up with noughties music legend to release new song weeks after rebooted series
+-  One snorkeller dead, another in hospital
+-  Mondial de hand: les Bleues se couvrent d'or à sept mois des Jeux
+-  Oko 2.150 ukrajinskih kamiona i dalje blokirano na granici sa Poljskom
+-  Ruby Franke seeks plea deal in child abuse case
+-  Professional basketball player and girlfriend charged with missing woman’s murder
+-  Sorteo Bonoloto del domingo 17 de diciembre de 2023
+-  Sorteo Bonoloto del domingo 17 de diciembre de 2023
+-  Sorteo Bonoloto del domingo 17 de diciembre de 2023
+-  [P] Sărbătorile sunt momentul ideal să începi rutina FOREO de îngrijire a pielii
+-  Kupon DANA beri manfaat hampir 3,000 anak yatim
+-  Pochettino to make 22-year-old Chelsea star a starter after what he did against Sheffield United ‘He’s challenging me’
+-  „Das sagt einiges über uns aus“: St. Pauli-Kapitän Irvine im Gefühls-Chaos
+-  Jose Mourinho özür diledi!
+-  Andre Onana: Anfield beni etkilemedi
+-  TBMM Başkanı Kurtulmuş: Hakikatin en yüce olduğu günleri, en yakın zamanda hep beraber göreceğiz
+-  Mehmet Kasapoğlu, hakem Meler'i ziyaret etti
+-  Scott McTominay: Hayal kırıklığı içerisindeyiz
+-  Kim attı, Bayern kazandı!
+-  김민재 ‘뮌헨 데뷔골’ 더 놀라운 이유, ‘7%’ 극악 확률 뚫었다
