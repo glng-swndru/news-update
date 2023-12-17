@@ -1,11 +1,51 @@
 # Latest News
--  القاضي السحيمات يحيل نفسه إلى التقاعد
--  حماس: نصد العدوان ونكبد العدو الخسائر
--  اصطفاف المركبات.. محافظ الإسكندرية يتفقد مركز الشبكة الوطنية للطوارئ (صور)
--  "بي تك" تصدر سندات توريق بمليار جنيه بالتعاون مع البنك التجاري الدولي
--  سعر الذهب اليوم الأحد في مصر خلال تعاملات المساء
--  "الضفادع البشرية" تنتشل جثة غريق مجهول الهوية في الوراق
--  فيديو.. مشاهد استهداف عناصر القسام لدبابة إسرائيلية وسط غزة
--  هل تعلم لماذا يحب البعض الغناء في الحمام؟.. اعرف السر
--  Gazprom informuje o nowym rekordzie dostaw gazu do Chin
--  Ampo Ordizia no encuentra el camino del triunfo
+-  Some Kabul residents demand decline in fuel rates
+-  Ysmina Khadra subit une « sévère et traumatisante » opération chirurgicale
+-  Jesus järjesti Arsenalin Valioliigan kärkeen
+-  Nyt on erikoinen olympialaji - ”Sitä mietti, ettei tässä ole mitään järkeä”
+-  Οπαδική βία: «Πρωτοπαλίκαρα της Greek Mafia μέσα στο φάκελο με τους 200 χούλιγκαν που εξετάζει ο Άρειος Πάγος»
+-  Blir det en vit jul? Meteorologen ger försiktigt hopp för Nyland
+-  Ex-marido de Ana Hickmann está na mira da polícia e será investigado
+-  Princess Charlotte is richer than her brothers because of mum Kate Middleton
+-  Παναιτωλικός: Εκτός οι Ντίας, Σενγκέλια και Πέρες για τον αγώνα με την ΑΕΚ
+-  Kahlon suspected of criminal offenses in Unetcredit affair
+-  December edition of Gozo magazine
+-  Hating Brussels sprouts at Christmas could mean you have a genetic 'superpower'
+-  Bakan Fidan Antony Blinken'la görüştü: ABD'ye 'nüfuz' hatırlatması
+-  Feyenoord get an easy win in Almelo
+-  Prosecutors demand seven years in prison for musician Joey AK for kidnapping
+-  Ebonyi community gets new monarch 22 years after death of king
+-  Ovaj trik za uklanjanje neugodnih mirisa iz obuće ćete obožavati – jeftin je i stvarno deluje
+-  Social media platforms across Pakistan face disruption as PTI’s virtual gathering under way: Netblocks
+-  Baraninu i Kotoraninu po 15 dana zatvora: Jedan vozio pod dejstvom narkotika, drugi u pijanom stanju
+-  Who Is the 'Powerful Man' Who Sexually Assaulted Actor Christian Keyes? Black Celebrities React
+-  Global Undecided wins first edition of Assikura Speed Race at Marsa Racetrack
+-  Manapság már ez sem megy simán: összekaptak a politikusok a budavári bejglin
+-  The deputy editor of newspaper favored by Putin was found dead in her apartment at 35, just a year after the paper's editor-in-chief died
+-  Empresarios solicitan una hoja de ruta para el cierre ordenado de la mina
+-  Фіорентина - Верона 1:0: огляд матчу Серії А ВІДЕО
+-  Aksident i trefishtë në aksin Peshkopi-Maqellarë, “Land Rover” përplaset me dy makina, dy të lënduar
+-  Putin: Rusija neće dati suverenitet za kobasicu
+-  Arriva Babbo Natale. Ecco cosa gli chiedono i torinesi
+-  Australia crushes Pakistan by 360 runs in 1st test inside 4 days, Lyon achieves 500-wicket landmark
+-  Speaker Ghimire calls for prompt restoration of water supply from Melamchi
+-  [Pet] 반려견 월동 수칙
+-  Fünfte Amtszeit: Putin will Russland „unabhängig“ machen
+-  Natale e Quale Show Telethon 2023: lo speciale su Rai 1 con Carlo Conti
+-  Τουρκία: Πέθανε από ελονοσία ο Εκρέμ Τσαν της Κοτσαέλισπορ
+-  SpVgg schlägt zurück und feiert 3:2-Sieg
+-  Três centímetros permitiram que Chaves relançasse jogo antes do descanso
+-  Shoppings de Manaus mudam horários de funcionamento na semana do Natal
+-  Albornoz lidera el torneo de ajedrez Carlos Torre in Memóriam
+-  Un joueur de LEGO Fortnite construit une Grande Roue fonctionnelle et c’est incroyable
+-  3 possibili scenari geopolitici che spaventeranno i mercati nel 2024 secondo gli esperti
+-  More than 60 people drown after a migrant vessel capsizes off Libya, U.N. says
+-  Affaire Pierre Palmade : "On l’a coupé, et j’en suis content, parce qu’il a tué quelqu’un"... l'humoriste banni du best of de Thierry Ardisson
+-  Mega-Hit umgetextet - Schlager-Legende stichelt auf Bühne von Pocher-Show über dessen Liebes-Aus
+-  Et-Po sarjakärjessä joulutauolle – murskasi LiKi:n vieraissa
+-  Terra amara streaming e diretta tv: dove vedere la serie su Canale 5 in prima serata
+-  Empowering transparency and safeguarding reporting
+-  Kickoff | Riveiro: I'm with the football we've developed
+-  Oukhelfen y Jebitok ganan el cross Internacional de Venta de Baños
+-  Chile organizará el Mundial Sub20 de 2025
+-  Partido gobernante de Rusia respalda candidatura de Putin a la reelección
