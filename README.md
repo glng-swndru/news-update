@@ -1,11 +1,51 @@
 # Latest News
--  Karaman’da yem fabrikasında korkutan yangın!
--  Mevlana, 'Şebiarus' töreniyle anıldı
--  Yunanistan'da 2024 bütçesine onay
--  İsrail jetleri Gazze'ye yine ölüm yağdırdı
--  Gary Neville: Liverpool berbattı
--  Bakan Göktaş: Bu soruna asla müsamaha göstermedik, göstermeyeceğiz
--  هيئة البث العبرية: الحكومة تدرس الإفراج عن أسرى نوعيين
--  Roma, Bologna'ya direnemedi!
--  Wie politische Bildung die Bürger in Tessin befähigt
--  Avioneta impacta contra cables eléctricos en Oregón y cobra la vida de sus 3 tripulantes
+-  Pope Francis deplores the death of two women in Gaza parish
+-  Na območju Gaze plenijo tovornjake s humanitarno pomočjo! Stopnja primitivnosti plenilcev je huda in življenjsko nevarna – za vse!
+-  ఆస్ర్టో గైడ్‌ : 21,260 దిగువన బేరిష్‌
+-  Navidad en Perú: ¿cuántas calorías tiene una cena de Nochebuena?
+-  La ONU y políticos colombianos celebran el compromiso del ELN de suspender secuestros
+-  Endrick llega al Santiago Bernabéu para ver el Real Madrid-Villarreal
+-  వైసీపీ అరాచక పాలనపై తిరగబడుదాం
+-  Everybody Knows I Won 2023 Presidential Election – Peter Obi
+-  ¡Juegue vivo! incrementa la venta de productos expirados
+-  Efter sjukdomskaoset – stannar i Europa
+-  СМИ: число жертв удара Израиля по лагерю для беженцев Джабалия увеличилось до 90
+-  Mourinho 'è dura essere sostituiti così, mi scuso con Sanches'
+-  U napadu na severozapadu Sirije poginulo sedam civila
+-  WBSET Answer Key 2023 Soon: Check WBCSE SET Answersheet Updates
+-  Obras en los Bajos de Haina, SC, impactarán en turismo de la zona
+-  Ümit Özdağ: Oy oranımız yüzde 10'a doğru tırmanıyor
+-  Le référendum constitutionnel prend fin au Tchad
+-  Проф. Илин Савов: Под критичния минимум са познанията на учениците и учителите за опасностите в Интернет, осакатяват се и знанията на полицаите по темата "кибер сигурност"
+-  8فروری کو آئی ایم ایف کے غلاموں کو شکست ہوگی،سراج الحق
+-  505 شهداء بالضفة الغربية خلال 2023
+-  Trónfosztás a kézi-vb-n, a franciák nyerték a világbajnokságot!
+-  Άφαντος ο Βαλακάρι…
+-  Gauteng online admissions late applications to open on Monday
+-  UŽIVO Izbori u Srbiji: "Srbija protiv nasilja" veruje u pobedu u Beogradu
+-  Canada :: Hommage Du Ccd À Un Digne Fils Du Cameroun : Le Dr. Albert Nana Sandjo
+-  ఐసీఐసీఐ ప్రుడెన్షియల్‌ ఈక్విటీ, డెట్‌ ఫండ్‌తో మెరుగైన రిటర్నులు
+-  Polisi Gerebek Perkampungan di Bekasi, Sita Puluhan Botol Miras Ilegal
+-  مستشارون تربويون بالمعهد التربوي الوطني يطالبون بتنفيذ حكم المحكمة العليا
+-  Η Μπολόνια υπέταξε τη Ρόμα και είναι μόνη 4η (vid)
+-  Десподов вкара два гола за ПАОК при успеха над Астерас
+-  Un candidat al extremei drepte câştigă în premieră primăria unui oraş în Germania
+-  Krásna správa! Svetová hviezda sa ZASNÚBILA: Pochválila sa MEGA diamantom!
+-  Ο Στέφανος Κασσελάκης βρέθηκε απροειδοποίητα στην Πάτρα και στη συνεδρίαση της ΝΕ του ΣΥΡΙΖΑ
+-  Tiranë, 13% më pak aksidente/ Parandalim dhe ndëshkim i drejtuesve që shkelin rregullat
+-  Mphowabadimo dragged for denying Themba access to his Son
+-  Budućnost obilježila 18 godina od trijumfa nad La Korunjom
+-  ఐటీలో తగ్గిన నియామకాలు..
+-  Sporadični sukobi u Siriji, više od deset poginulih
+-  Real Madrid-Villarreal, en directo
+-  Forcarei inaugura o novo parque infantil na praza da Igrexa
+-  Zatvorena biračka mesta, glasanje obeležilo više navoda o neregularnostima
+-  Tadić: Srbiji je potrebno iskustvo, slede velika iskušenja
+-  Зеленский подвел итоги исторической для Украины недели
+-  أمن طرابلس تطالب السائقين بالابتعاد عن تجمعات المياه بطريق البيفي
+-  Osumnjičeni serijski ubica mamio žrtve tražeći pomoć u kopanju zlata u šumi
+-  Polak znów błysnął na włoskich boiskach. "Staje się fundamentalny"
+-  Inter, Mkhitaryan: "Noi non pensiamo alla Juve ma solo alle nostre partite e a vincere"
+-  Otelde sıra bekleyince Üniversite sayfasından açıklama yaptırdı
+-  El secuestro de Colin Armstrong mantiene a los vecinos en zozobra
+-  Jukka Jalonen kehui tulokkaita TV5:llä: ”Ehdottomasti paras peli”
