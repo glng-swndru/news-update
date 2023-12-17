@@ -1,11 +1,11 @@
 # Latest News
--  Suomalaisyllättäjä laati kylmäpäisen taktiikan - Iivo Niskanenkin pysyi takana
--  Illusions perdues : qui est Benjamin Voisin, Meilleur espoir masculin aux César 2022 ?
--  Περιστέρι: Σε συζητήσεις με Ζερμειν Λοβ
--  Fim de ano em São Martinho do Porto
--  Опозицията се цепи за блокирането на парламентарната трибуна - Труд
--  صعود مفاجئ لسعر الدولار والعملات في ختام تعاملات السوق الموازي
--  Tuffare ekonomiskt för barnfamiljer nästa år
--  Pokemon Scarlet & Violet player shocked to discover iconic Lion King Easter egg
--  حمدي فتحي يسجل هدفًا رائعًا في مباراة الوكرة ضد الدحيل بـ الدوري القطري.. فيديو
--  يوفنتوس يفتح الباب أمام رحيل نجمه في يناير
+-  Nagpur Factory Blast: 9 killed after explosion at solar explosive company in Maharashtra
+-  రాజీయే రాజ మార్గం
+-  వ్యాపారులకు పూర్తి స్వేచ్ఛ
+-  TBMM Başkanı Kurtulmuş ile Kültür ve Turizm Bakanı Ersoy Şebiarus duasına katıldı
+-  Man harassed ambulance personnel after being stabbed
+-  ధనుర్మాస పూజలు ప్రారంభం
+-  TRKA U SVEMIRU: Uspešno lansiran rival „Spejs iksa“ (VIDEO)
+-  గొల్లూరు ఎక్స్‌ రోడ్డు వద్ద దారి దోపిడీ
+-  Prieš mačą su „Žalgiriu“ – galingas „Fenerbahče“ pasirodymas
+-  22 నుంచి మహావిష్ణు ఆలయంలో ఏకాదశి ఉత్సవాలు
