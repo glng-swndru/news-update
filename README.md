@@ -1,11 +1,11 @@
 # Latest News
--  בקיבוץ ניר עוז מחכים לחטופים: "נמשיך להיאבק כדי שהאור יגיע"
--  MBK 공개매수 지지한 장녀 “최근 아버지 행보, 스스로 판단 아냐”
--  Luka Dončić s petim trojnim dvojčkom sezone
--  Laduma! Viral soccer goals: Erling Haaland [VIDEO]
--  “Иқлим ўзгариши кўрпачаси” – оддий график чизиқлар глобал исиш рамзига айланди.
--  TFF'den Ali Palabıyık kararı! Mahkeme süreci..
--  Velilere ek KDV uyarısı: Yasal değil!
--  Türkiye'nin ilk bonsai müzesi kuruluyor
--  SERAP sues INEC for failing to prosecute electoral offenders in Bayelsa, Kogi, Imo
--  Проект за близо 8 милиона лева: Изграждат нови велоалеи във Варна
+-  El primer festival
+-  황색포도상구균 검출된 수입 빵류 판매 중단·회수 조치
+-  대구 중구 음식점 위생등급 특화 구역 조성 사업 실시
+-  "60대 할아버지 아이 낳을 여성 구함"···여중·고 주변 현수막 건 50대 2심도 집유
+-  같이 술 마시던 일행 의식 잃을 때까지 폭행 숨지게 한 50대…징역 7년
+-  대구시자치경찰위원회 '시민그룹' 성과 공유…10건 정책 제안
+-  119 긴급신고시 구조대상자 위치정보 수집 가능해진다
+-  "회식 불참하면 불이익 준다"···회식 강요 문화가 직장 내 갑질 감수성 낮춰
+-  기업 규모 클수록 장애인 고용 의무 이행률 낮아…대기업 이행률 36.5%
+-  Ученые объяснили появление зеленых «призраков» над Средиземным морем
