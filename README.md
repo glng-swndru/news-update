@@ -1,11 +1,11 @@
 # Latest News
--  «قمصان ميسي وبلوزة ديانا».. مبالغ خيالية لملابس المشاهير ومجموعة «البرغوث» بملايين الدولارات
--  הכנסת עשויה לאשר כבר מחר חובת לוחית רישוי לקורקינט
--  Tragedia en fiesta de San Marcos: Cinco muertos en baile comunal
--  اكرد يكتسح بالثلاثية
--  Ташуев заявил, что руководители «Факела» помогают ему во всех вопросах
--  End-Sept PHL debt up by 10% to $118.8B–BSP
--  NHRC asks govt to make arrangements for final rites of Nepalis killed in Russia
--  SSB obstructs blacktopping of Postal Highway in Kanchanpur, says Minister Jwala
--  Govt working as per its policy, purpose: Minister Sharma
--  فرنسيس يتهم إسرائيل بالإرهاب من جديد.. البابا يندد بقتل مسيحيتين في غزة
+-  Bakan Fidan Blinken ile görüştü: İsrail üzerindeki nüfuzunuzu kullanın
+-  Toulouse ile Rennes'den gol sesi çıkmadı!
+-  Arsenal, 2 golle 3 puana uzandı!
+-  Kudüs Rum Ortodoks Patrikhanesi, İsrail'in Gazze'deki ibadethanelere saldırılarını kınadı
+-  Udinese ile Sassuolo yenişemedi!
+-  İsrail, Mescid-i Aksa İmam Hatibi'ni "provokasyon" suçlamasıyla ifadeye çağırdı
+-  Aston Villa pes etmedi, 3 puanı aldı!
+-  Reportan en Ciudad Juárez desaparición de exregidor de Bachiniva
+-  La exespía Ana Belén aparece por primera vez en un acto público desde su liberación
+-  Мануел Нойер се завръща в националния отбор на Германия
