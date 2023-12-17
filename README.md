@@ -1,11 +1,11 @@
 # Latest News
--  Negyven éves számítógépes klub alakult újra, 8 bites számítógépekkel!
--  استشاري يوضح تأثير العارض النفسي على الإصابة بمرض الضغط
--  الصحة العالمية: 70% من ضحايا الحرب على غزة أطفال ونساء
--  Na misiách na Cypre momentálne pôsobí 240 slovenských vojakov, Kaliňák sa poďakoval za ich službu vlasti
--  জেসুস–হাভার্টজের গোলে শীর্ষে উঠল আর্সেনাল
--  "إتش سي" تتوقع تثبيت سعر الفائدة في البنك المركزي الخميس المقبل
--  غرفة السياحة تطالب الراغبين في أداء الحج السياحي سرعة التقدم قبل غلق باب التسجيل
--  إعلام عبري: إصابة جندي احتياط في حادث طعن برام الله وهروب المنفذ
--  السهم قفز لأعلى سعر منذ 20 عاما.. "الإنتاج الإعلامي" تعتمد الموازنة التقديرية
--  "بالتل" الفلسطينية تعلن عودة الاتصالات تدريجيًا في قطاع غزة
+-  «قمصان ميسي وبلوزة ديانا».. مبالغ خيالية لملابس المشاهير ومجموعة «البرغوث» بملايين الدولارات
+-  הכנסת עשויה לאשר כבר מחר חובת לוחית רישוי לקורקינט
+-  Tragedia en fiesta de San Marcos: Cinco muertos en baile comunal
+-  اكرد يكتسح بالثلاثية
+-  Ташуев заявил, что руководители «Факела» помогают ему во всех вопросах
+-  End-Sept PHL debt up by 10% to $118.8B–BSP
+-  NHRC asks govt to make arrangements for final rites of Nepalis killed in Russia
+-  SSB obstructs blacktopping of Postal Highway in Kanchanpur, says Minister Jwala
+-  Govt working as per its policy, purpose: Minister Sharma
+-  فرنسيس يتهم إسرائيل بالإرهاب من جديد.. البابا يندد بقتل مسيحيتين في غزة
