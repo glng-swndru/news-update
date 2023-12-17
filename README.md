@@ -1,11 +1,51 @@
 # Latest News
--  İstanbul ve çevre illerde hissedilen deprem oldu!
--  ‘2G 4이닝 무실점’ KIA 25세 150km 파이어볼러가 호주에 떴다…극적 구원승, 2024년 터질까
--  2시즌 2골→2경기 3골...토트넘 1000억 공격수, '손흥민 아시안컵 공백 극복 가능'
--  Il mio appello a Tesla: tagli il prezzo di Model Y (bastano 1.300 euro)
--  Eddie Izzard loses Brighton Labour candidate bid to award-winning rock star
--  Chicago Fed head Goolsbee says ‘too early to declare victory’ on economic ‘soft landing’
--  Buhari left enduring legacies, says ex-Senate President Lawan
--  C'est curieux, chez les amateurs de vin, ce besoin de faire des phrases…
--  Kako će izgledati raspodela mandata u Skupštini Srbije – prema preliminarnim rezultatima
--  Andrea Legarreta no descarta reconciliación con Erik Rubín: “De pronto la vida nos sorprende”
+-  أسامة كمال يسخر من تصريحات وزير الخارجية الإسرائيلي: بتفكرني بجول كابتن مجدي عبدالغني
+-  عمرو أديب: المزاج العام في مصر يميل لوزارة جديدة.. وهذا موقف المحافظين
+-  Florida is rejecting $320 million in federal funding to reduce emissions, calling it 'politicization of our roadways'
+-  Snorkeler dies in waters off Portsea on the Mornington Peninsula
+-  Snorkeler dies in waters off Portsea on the Mornington Peninsula
+-  „Kwiaty” koncertują
+-  VUČIĆ O REZULTATIMA U BEOGRADU Osvojili smo ubedljivo najviše glasova
+-  FC Schalke 04: Bittere Ouedraogo-Prognose! S04 muss sich von Hoffnung verabschieden
+-  アンドレッティ フォーミュラEでのFIAとの経験がF1参入の火付け役
+-  عاجل.. حساب المواطن يكشف تأثير الدعم الريفي على الدخل الشهري
+-  خطة لحفظ كتاب الله خلال عامين .. مشهد مبهج لأفارقة أتمّوا ربع القرآن
+-  LIVE WK darts | Zonneveld wint eerste WK-partij ooit, Wattimena komt achter tegen ‘Queen of the Palace’ Sherrock
+-  Kasami vendos mos të zbukurojë dhe këtë vit qytetin
+-  أكسيوس: إدارة بايدن اقترحت على السلطة تنشيط جهازها الأمني في غزة
+-  Putin Wanti-wanti Akan Ada Masalah untuk Finlandia Usai Gabung NATO
+-  Video: Trabajaban con caucho en bodega que se incendió
+-  Chihuahua FC campeón de 'Mi Liga'
+-  Liverpool empata com Manchester United e vê Arsenal assumir a liderança do Inglês
+-  Ucraina și-a fabricat primele drone proprii. Cele mai importante evenimente din a 662-a zi de război
+-  Canada set to mandate zero emissions for all new cars by 2035: Report
+-  السلامي: الفوز على نهضة الزمامرة أزال عنا ضغطا كبيرا
+-  구영회, 필드골 기회도 없었다...애틀란타, 지구 최하위 캐롤라이나에 역전패
+-  ‘돈 봉투 의혹’ 송영길…이르면 오늘 구속 여부 결정
+-  Bu köfte tarifini tatmadan köfte yedim demeyin! Usta aşçıların lezzetli köfte sırrı meğer o baharatmış
+-  Meşrutiyet ne demek?
+-  Землетрясение магнитудой 5,0 произошло в восточной части Аденского залива
+-  So reagierte Tommy Pedronis Familie auf Freundin Paulina!
+-  10 شهداء جراء قصف الاحتلال مخيم النصيرات
+-  논란의 김민재 '골 취소', 獨 빌트 “VAR 카메라 고장나 오프사이드 라인 못 그어”
+-  Précisions sur les perturbations du réseau internet fixe
+-  Grote schaamte bij AZ na ‘totale afgang’ thuis tegen PSV: ‘Je zag gewoon de totale wanhoop’
+-  Andaban prófugos por delitos contra la salud
+-  Taylor Swift fumes after contact on Travis Kelce doesn’t get flagged
+-  Can I see SpaceX launch Texas?
+-  Klopp tells Sky Sports reporter ‘you over-estimate your influence’ in awkward live TV interview after Man Utd draw
+-  Yalova'da 4,1 büyüklüğünde deprem: İstanbul ve çevre illerde de hissedildi
+-  UBEDLjIVA POBEDA: Vučić - U Beogradu nesumnjivo najviše glasova osvojila lista "Srbija ne sme da stane"
+-  La FEB abrió expediente y privó de licencia a entrenador denunciado por presuntos abusos
+-  Gerilci u Kolumbiji prihvatili da obustave otmice
+-  El Gernika informa que se ha "desvinculado de la persona investigada"
+-  وقفة احتجاجية في نواكشوط تنديدا بجرائم إسرائيل في غزة
+-  Az EU az egy százalékát sem térítette meg annak a pénznek, amit határvédelemre fordítottunk (videó)
+-  Az EU az egy százalékát sem térítette meg annak a pénznek, amit határvédelemre fordítottunk (videó)
+-  Premiado el número 91.285, serie 001, en el Sorteo Fin de Semana de la ONCE
+-  Pimenta diz que governo perdeu “jogador de qualidade” com ida de Dino ao STF
+-  أول تعليق من حسام حبيب بعد انفصاله عن شيرين .. رده صادم!
+-  A morte de Israel
+-  Bote de 500.000 euros para el próximo sorteo de la Bonoloto
+-  UK, Jerman seru gencatan senjata mapan
+-  فاماليكاو يتعادل مع إشتوريل بالدوري البرتغالي
