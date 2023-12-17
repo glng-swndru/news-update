@@ -1,51 +1,11 @@
 # Latest News
--  «Муаммо йўқ эди. Энди бўлади». Путин Финландиянинг НАТОга аъзолиги ҳақида.
--  Dienos Lietuvoje trumpos? Štai kas darosi mieste Aliaskoje. Saulę pamatys tik kitais metais! (Video)
--  Į Baltarusijos spec. pajėgas įsiliejo „vagneriečiai“. Kas vyksta (Foto, Video)
--  Situacija pasienyje. „53 šalys. Eina tūkstančiais.“ Lenkija skelbia įspūdingus skaičius
--  [ŽT] Variantas yra. Ką darytų Ukraina, netekusi karinės paramos
--  Švedijos monstrai. Atskleistas „Archer“ kovinis darbas (Foto)
--  [ŽT] Geras pavyzdys užkrečia. Austrijos kancleris pakartojo Orbano triuką
--  [속보] 인천 논현동 호텔서 큰불…소방당국, 대응 2단계 발령
--  Tyska doldisen knäckte svenskorna – Ebba Andersson trea
--  قناة السويس: 55 سفينة غيرت طريقها باتجاه رأس الرجاء الصالح
--  الموافقة على أسباب مشروع التَّنظيم الإداري لهيئة الإدارة العامَّة
--  الموافقة على أسباب التَّنظيم الإداري لوزارة الزِّراعة
--  الموافقة على أسباب التَّنظيم الإداري لصندوق المعونة الوطنيَّة
--  الموافقة على أسباب نظام الشُّمول بتأمينات الضمان
--  الموافقة على أسباب نظامين خاصين بهيئة الأوراق الماليَّة
--  Kaptenen i vattnet när färjan krockade med pir
--  Habur'da 202 Kilo Metamfetamin Yakalandı
--  Emre Belözoğlu'ndan Faruk Koca Açıklaması
--  Encarecen 41% en NL el Acueducto El Cuchillo 2
--  Pelea el Infonavit por ¡borrar auditoría!
--  Sabor a gloria: América ante Tigres, la Final Apertura 2023
--  Water outage in Letterkenny
--  5 Fakta Menarik Jelang Big Match Liverpool vs Manchester United di Liga Inggris
--  Depardieufamiljen ryter ifrån: "Konspiration"
--  Depardieufamiljen ryter ifrån: "Konspiration"
--  3663 طن خضار وفواكه ترد للسوق المركزي الأحد
--  عاجل.. "الأرصاد" يُحذر من استمرار الطقس البارد مع أمطار متفرقة بهذه المناطق
--  لماذا الساحل الغربي هو الأدفأ بالمملكة خلال الشتاء؟ خبير يكشف مفاجأة
--  Amid Rising Trend In Kerala, COVID Sub-Variant Detected In 79-Year-Old Woman
--  Here's What To Keep In Mind When Serving Ice Wine
--  Sunny Edwards shows off gruesome injuries after stoppage defeat to Jesse ‘Bam’ Rodriguez and was worried about eyesight
--  ‘My mother told me not to quit’ – Former Chiefs star
--  Investigations underway following burglary in Derry
--  تراند اليوم : "الحصيني" يكشف أقل درجة حرارة سجلتها الرياض وأعلى درجة سجلتها جدة في شتاء العام الحالي
--  تراند اليوم : شاهد .. مواطن يوثق تجمد المياه الجارية في مرتفعات عسير
--  تراند اليوم : من سيكون ولي عهد الكويت الجديد بعد تولي الشيخ مشعل السلطة؟.. هذا ما ينص عليه القانون!
--  تراند اليوم : شاهد.. تدافع الفلسطينيين للحصول على المساعدات الإغاثية بعد دخولها إلى قطاع غزة
--  تراند اليوم : ‏إنفاذًا لتوجيهات خادم الحرمين ..شاهد: لحظة وصول التوأم السيامي الإريتري "أسماء وسمية " إلى الرياض
--  تراند اليوم : بالفيديو .. استشاري مختبرات إكلينيكية يفجر مفاجأة : 13 شخصا توفوا بسبب دكتورة ادّعت علاجها للسرطان ببول الإبل
--  Nie wycinaj choinki na Boże Narodzenie w lesie, wypożycz! Które drzewko jest najbardziej ekologiczne?
--  Policija našla odbjeglog vozača!
--  Штурми Авдіївки: Світан пояснив, яку хитрість використовує авіація РФ
--  Fransa, Refah Saldırısı İçin Açıklama Bekliyor
--  Путин поблагодарил "Единую Россию" за последовательную поддержку
--  Задачи России требуют сплоченности всех патриотических сил, заявил Путин
--  Hat év után távozik Veszprémból a francia irányító
--  Have Rubina Dilaik and Abhinav Shukla become parents to twins? Here`s the scoop!
--  Mathew Perry`s anger and aggression in his last days attributed to lethal drugs
--  Polícia do Equador investiga sequestro de cônsul honorário do Reino Unido e de uma colombiana
--  Woidke fordert Nachbesserungen beim geplanten Bundeshaushalt
+-  Bursa Yıldırım'da eşini öldüren şüpheli yakalandı
+-  Путин поблагодарил другие парламентские фракции за работу
+-  لمن التفوق قبل مواجهة أرسنال وبرايتون
+-  Bikini designer flaunts bum in skimpy thong swimwear 'inspired by her ex'
+-  В Херсонесе планируется возродить мужской монастырь
+-  Путин: Россия не может в обмен на колбасу отдать свой суверенитет
+-  В Пензе главного тренера «Дизеля» отстранили от должности
+-  Bedelli askerlik mağdurlarını üzecek haber. Bakan Güler açıkladı
+-  «Милан» разгромил «Монцу» в серии А
+-  İsrailliler Gazze’ye atılacak bombaların üstüne isim yazıyor
