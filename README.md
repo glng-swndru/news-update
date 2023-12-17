@@ -1,51 +1,11 @@
 # Latest News
--  인천시 부평구 청소년수련관, 2024년도 제13기 청소년운영위원회 신규위원 모집
--  인천시교육청, 2024년에도 학교 햇빛발전소 설치 사업 이어가
--  인천시 강화군, 연말연시 이웃돕기 성금 잇따라
--  인천시, 정부포상금 300만 원 학대피해아동에게 기탁
--  인천대, 정보기술대학 소프트웨어 경진대회 성료
--  최우성 이천 다산고 교장, 학교발전 기금 100만 원 기부
--  경기도, 도우미견나눔센터 개관 10주년 기념 홈커밍데이 개최
--  Gabar'da çalışmalar başladı
--  Vejmelka první nulou v sezoně zastavil Buffalo, Jiříček s Faksou jednou asistovali
--  Vejmelka první nulou v sezoně zastavil Buffalo, Jiříček s Faksou jednou asistovali
--  پرتھ ٹیسٹ: آسٹریلیا نے اننگز ڈکلیئرکردی، پاکستان کو جیت کیلئے 450 رنز کا ٹارگٹ دے دیا
--  총선서 30석 얻어 정치 바꿀 것…금태섭 ‘새로운선택’ 창당대회
--  Hadiri Haul Ibunda Ahmad Ali di Morowali, Anies: H. Saadiah Binti H.Himran sudah Mendidik Anak-anak Sholeh dan Sholehah
--  Pakistan expresses concerns over possession, use of modern weapons by TTP
--  美기업 37% “AI가 올해 일자리 대체했다”...내년에 해고 러시 우려
--  Apple Beri Peringatan, Jangan Gunakan Pengisi Daya Abal-abal!
--  Rangkuman Drakor Deaths Game Episode 1, Spoiler: Choi Yi Jae Bertemu Death
--  올해 ‘1학교 1바다가꾸기’에 역점 내년 더욱 확대
--  오세훈이 품절남 등극?…식당서 입었던 ‘후드티’ 무슨 브랜드길래
--  "الفوزان" يكشف أسباب الإصابة بالعين وطرق السلامة من شر السحرة والمشعوذين
--  "أمانهم في مكانهم".. نشر ثقافة استخدام كراسي الأطفال بالمركبات
--  عاجل.. صاحب شركة تسويق يكشف أسرار "الطوابير الوهمية" أمام المقاهي والمطاعم (فيديو)
--  مكافآت وتأمين.. استمرار التقديم على 2700 وظيفة عبر تمهير في القطاعات الحكومية والخاصة
--  "التنسيقي" يُسند مهام الإسكان والإعاشة لشركات حجاج الخارج
--  إحصائية مقلقة لريال مدريد أمام فياريال
--  Skill Debat Dipuji Kaesang, Anies Ogah Jemawa: Saya Masih Terus Belajar
--  حماس کو شکست دینے میں اسرائیل ناکام کیوں، حکام اور ماہرین کا بڑا اعتراف
--  İçki ve sigaraya ilave zam yolda
--  ‘놀던언니’ 김현정, “과거 연예인 대시 많이 받았다” 고백
--  총선 앞두고 미·EU와 반대로, 文 ‘온플법’ 꺼낸 尹 공정위
--  Soccer-Ancelotti in no rush to sign new Real deal
--  Hafta sonu altın alacaklar dikkat!
--  1,417 resident doctors moving to UK, US by end of 2023, says NARD
--  Beda Gaya Outfit Azizah Salsha Saat di Rumah Pratama Arhan di Blora vs di Jepang Bersama Keluarga, Lebih Stylish Mana?
--  Ski alpin Weltcup 2023/2024: Kalender und TV-Termine! So verfolgen Sie den Super-G der Ski-Damen heute live
--  ‘미소년 예수’부터 선비·흑인 예수까지…예수님의 변신은 무죄? [사색(史色)]
--  Ikuti Kirab Budaya UGM, Ganjar: Nitilaku Wujud Spirit Kebudayaan Kerakyatan
--  Ruhsatsız silah taşıyan şahıslara ve silah kaçakçılarına yönelik 72 ilde operasyon: Bin 558 şüpheli gözaltında
--  Meteoroloji bölge bölge uyardı: Kuvvetli geliyor! 4 ilde alarm
--  穿制服能減少校園問題？法國教育部推大規模實驗
--  Game winner : Jimmy Butler achève les Bulls au buzzer !
--  إمام جامع بلال بن رباح لـ «الراي»: لم نفقد فقط أمير البلاد بل أحد المصلين المرابطين على الصلاة
--  Argentan. En caravane avec sa mère de 89 ans et ses trois enfants, elle réclame une maison
--  PM Modi Varanasi Visit: वाराणसी दौरे से पहले पीएम-सीएम का ट्वीट, काशीवासियों पर करेंगे सौगातों की बारिश
--  US nuclear-powered submarine arrives in South Korea amid possibility of Pyongyang’s ICBM launch
--  柾國、Jimin軍中受訓照曝光！頂可愛平頭聽課 銳利眼神藏不住光環
--  Watch: ‘Many buildings in Malta might not withstand a moderate earthquake’
--  Ten kraj poniósł klęskę w pucharach. Stawiają Legię w gronie "biedaków"
--  بچلی چوروں کی شامت، کریک ڈائون پر گرفتاری اور بھاری جرمانے وصول
--  Krišjānis Kariņš un “Vienotība” rāda vēlamo ceļu – uz Brjansku, nevis Tamperi
+-  Israel-Qatar meet, raising prospects of Gaza hostage talks
+-  US military leaders press Israel to shift from major combat as Iranian-backed sh
+-  BJP is doing politics on Belagavi incident: Karnataka Dy CM DK Shivakumar
+-  Maharashtra: 5 dead after blast in Nagpur explosives manufacturing company
+-  Shreyas Talpade is likely to get discharged by Sunday night or Monday morning?
+-  "Both are so different": Shilpa Shetty about her work experience with co-stars
+-  Lotto results: Saturday, 16 December 2023
+-  כלכלת סין מתאוששת? זה השוק שהכניס השנה 42.6 מיליארד דולר
+-  קריסה תוך 4 ימים: המשחק שסומן הבטחה אך נכשל כישלון חרוץ
+-  בכמה זינק הביטקוין בתוך שנה? אלו הנתונים
