@@ -1,11 +1,51 @@
 # Latest News
--  أبرزها "ضعف الخصوبة".. مخاطر البلاستيك في الوجبات والمشروبات الساخنة
--  By: Andi Purnomo
--  Cancer Horoscope Today 18 December 2023 : कर्क राशीच्या लोकांना प्रगतीच्या संधी मिळू शकतात, कोणत्याही प्रकारच्या वादापासून दूर राहा, आजचे राशीभविष्य
--  Rangers captain James Tavernier: League Cup triumph is long overdue
--  Kane zbliża się do Lewandowskiego. Bayern lepszy w hicie Bundesligi [WIDEO]
--  UŽIVO Obraća se Ana Brnabić: "Da ponovim reči predsednika, dobro došli na slavlje"
--  Handball-WM: Frankreichs Handballerinnen holen sich gegen Norwegen den Titel
--  Police beef up security at churches
--  Fußball: Zwei 3:0-Siege - FC Bayern und Leverkusen im Gleichschritt
--  A candidate for a far-right party is elected as the mayor of an eastern German town
+-  Incendio en lote baldío provoca movilización
+-  З'явилося відео тестового польоту нового українського дрона-камікадзе
+-  דגו: "אם אצילי מתקשר ורוצה לחזור? אני משלם לו את כרטיס הטיסה"
+-  מרגש: יובל המבולבל חושף מה ביקשה ממנו אמיליה אלוני בת ה-5 ששבה מהשבי
+-  Como Campinas ajudará a BYD a bater sua meta de reduzir a temperatura global em 1ºC
+-  Reparto de puntos en el derbi de Zubieta
+-  Alcorcón sigue siendo un lugar maldito
+-  La historia de los 11 hijos de Elon Musk: tres madres, nacimientos secretos, una tragedia y una batalla legal
+-  Prince Christian features in new Christmas video for Danish royals
+-  Prince Christian features in new Christmas video for Danish royals
+-  مشكلة صحية خطيرة.. هذا ما يحدث عند تناول العشاء بعد 9 مساءً
+-  تحول كومة ركام.. القصة الكاملة لمصرع شحصين في انهيار منزل ببني سويف (صور)
+-  بسبب "سب طفل".. قرار جديد ضد المتهم بقتل شاب في عين شمس
+-  ¿Puede mi empleador obligarme a trabajar en Navidad o cumplir horas extras?
+-  Nilfisk rekrutterer ny topchef i Sverige
+-  Nilfisk rekrutterer ny topchef i Sverige
+-  El enfado de Andy Reid y Patrick Mahomes contra los árbitros les cuesta una sanción ejemplar de la NFL
+-  VELIKO PRIZNANJE! Teodora Balzak otvorila dušu o ZATVORSKIM DANIMA, burnoj vezi s Bukilićem pa otkrila da je ČEKA BOLNIČKO LEČENJE
+-  Premadasa explains Premiership refusal amid criticisms
+-  Prof. Monte Cassim new Chancellor of Moratuwa Uni.
+-  Authorised mobile importers urge Govt. to reconsider VAT hike amidst parallel import challenges
+-  99x announces leadership transition
+-  Colombo lights up for festive season
+-  President urges political leaders to act responsibly in IMF program
+-  2024 offers multiple challenges, election mantras will not solve: Harsha
+-  Credit to private sector gains by Rs. 38 b in Oct. but lower than Sept.
+-  Uptick for manufacturing, services in November but new VAT regime a damper
+-  Best moveset for Froslass in Pokemon Go & is it any good?
+-  Championnat Hongrie NB1 : Ben Romdhane buteur, Ferencvarosi vainqueur (vidéo)
+-  Skottlossning i centrala Oslo
+-  Juan Román Riquelme le detalló a Luis Advíncula las condiciones necesarias para que extienda su contrato con Boca Juniors
+-  قبر أمير الكويت يثير دهشة النشطاء وتفاعل واسع (شاهد)
+-  Ray Romano addresses Everybody Loves Raymond reboot rumors
+-  Najviše birača glasalo u Banjaluci, najveći procenat izašlih u Doboju i Trebinju
+-  Dos heridos y seis colectivos quemados tras un grave incendio en un depósito
+-  Tadić: Opozicija da zajednički podnese krivičnu prijavu zbog glasača iz RS
+-  Singapore’s Crypto Pilots: Japan, Switzerland, UK Partnerships
+-  ميلان يتخطى مونزا بثلاثية
+-  Le conseil municipal de Saint-Malo a confirmé la fusion des établissements du Groupement Hospitalier Rance Emeraude
+-  Jurgen Klopp joins Virgil van Dijk in aiming dig at Manchester United’s tactics
+-  Drivers warned using easy hack to defrost their car this winter could land them £80 fine – don’t get caught out
+-  Drivers warned using easy hack to defrost their car this winter could land them £80 fine – don’t get caught out
+-  Wirtz encumbró otra gran victoria del Leverkusen
+-  '대출' 받았던 SD의 심각한 재정난? "이정후 쫓았지만, 돈에서 밀렸다" 급기야 김하성 트레이드 가능성 '거론'
+-  Sieger der Präsidentschaftswahl in Ägypten wird verkündet
+-  Harry Kane scorer to gange i sikker Bayern-sejr
+-  Harry Kane scorer to gange i sikker Bayern-sejr
+-  Jēkabpils "Lūši" izcīna Latvijas kausu
+-  UBEDLjIVO NA 50 ODSTO! Lista "Aleksandar Vučić - Srbija ne sme da stane" ima više od 47 odsto
+-  بالأرقام.. كين يحفر اسمه بحروف من ذهب في تاريخ البوندسليغا
