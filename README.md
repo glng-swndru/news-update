@@ -1,11 +1,51 @@
 # Latest News
--  مفاجأة.. نقل مبنى ضخم في كندا.. بالصابون
--  대기업 총수 家, 지주회사 체제 외 계열사 353개…사익편취 발생 가능성 有
--  感染者推論ホラーゲーム『悪夢のような日々でした』Steamにて1月1日配信へ。ヒト収容所で対峙する、モノクロの論理と恐怖
--  "병역의무 이행하고 파!" 입대 위해 재검 신청한 ★들[MD스타]
--  제15회 전자신문 ICT논문 공모대제전 영예의 얼굴들
--  RIP: Former YFM presenter Nhlamulo ‘DJ Mulo’ Hlungwani dies
--  В Ярославской области прошли парадом полторы тысячи Дедов Морозов
--  우리가 로스트아크 캐릭터
--  [부고] 오종석(아주경제 총괄사장)씨 모친상
--  Yoon in hot seat over trips to France, Netherlands
+-  F1-talli voi pian saada uuden nimen
+-  "อนุทิน" ลุยถนนข้าวสารเปิดผับถึงตี 4 นักท่องเที่ยวขอเซลฟี
+-  Invitan a apoyar 'Navidad Vaquera'
+-  Pide Travis Kelce bendición a padre de Taylor para casarse
+-  Video: Choca a auto estacionado y se da a la fuga
+-  PM Modi: పార్లమెంటులో భద్రత ఉల్లంఘన సహించరానిది... రాజకీయాలు చేయవద్దని ప్రతిపక్షాలను కోరిన మోదీ
+-  Tropical Depression Kabayan slows down east of Davao City
+-  TÜRK-İŞ vergi düzenlemesi istedi
+-  Power Knockout Mighty at Shinde
+-  Kocaeli'de dehşet anları: Yerdeyken tekmeleyip kemerle dövdüler
+-  US warns North Korea against nuclear attacks
+-  عاجل.. ضباب بالشرقية وطقس مستقر وسماء صحو على معظم مناطق المملكة
+-  Meteoroloji uyardı: Kar yağışı ve sağanak geliyor! 17 aralık 2023 hava durumu
+-  Kashmiri man posed as PMO official, held
+-  Hyderabad: ఎల్వీప్రసాద్ ఆసుపత్రి వద్ద మహిళను ఢీ కొన్న బస్సు
+-  Nikolaj Ehlers scorer og assister i 6-2-sejr over Colorado
+-  Nikolaj Ehlers scorer og assister i 6-2-sejr over Colorado
+-  When good teams are under presssure, this is the perfect response
+-  На 17 декември рожден ден имат
+-  Муроджон Аҳмадалиев нокаут эвазига ғалаба қозонди.
+-  New Constitution and Trustees for Ba Rugby
+-  האוויר חזר, וגם האמונה: הפועל באר שבע שוב אופטימית לפני מכבי ת"א
+-  להודות בכישלון: בית"ר ירושלים צריכה להבין את הטעויות, ולהסיק מסקנות
+-  לא רק לאיוס: הפועל תל אביב שוקלת למכור גם את אוז'בולט בינואר
+-  Jak pot! Aussie moguls star wins fourth gold of the season, SBX racers on the podium
+-  England break losing streak at last as Ashes hero's insane final over completes remarkable heist against Windies
+-  하태경 “한동훈, 비대위원장보단 선대위원장…차기 주자, 아껴 써야”
+-  《콩콩팥팥》도 성공시킨 나영석의 ‘신묘한 힘’
+-  Sepanjang 2023, DKPP Terima 299 Aduan Pelanggaran Penyelenggara Pemilu
+-  Kia Sonet: डिजाइन से फीचर्स तक, नई और पुरानी Sonet में है कितना फर्क?
+-  Miscreants Break Into Sakhigopal Temple In Odisha’s Puri, Loot Cash & Jewellery
+-  거제시, 농산물 수출 확대 심혈
+-  통영시-민노총 일반노조 공무직지회 '임단협 체결'
+-  حدث ليلاً| موعد انتهاء أزمة السكر وأسعار عمرة رمضان 2024
+-  سونے سے پہلے مخصوص پھل کھانا کیا واقعی نیند کو بہتر بناتا ہے؟
+-  مايا مرسي: نسبة الإصابة بسرطان الثدي انخفضت 60% بسبب الكشف المبكر
+-  Cuma di Transmart Full Day Sale Sepeda Listrik Hemat Rp 2 Jutaan
+-  Во Владимир из зоны СВО приехал общественник Геннадий Прохорычев
+-  Nordtirol: 27-Jähriger übersteht Lawinenabgang unverletzt
+-  BPSC 69th Mains एग्जाम की डेट घोषित, यहां चेक करें पूरा शेड्यूल
+-  Surat Diamond Bourse: Sharad Pawar says Maharashtra diamond trade will be heavily affected, ‘lakhs will lose jobs’
+-  ส่องสาเหตุ สภาล่ม เปิดประชุมนัดแรก
+-  2 students killed, one critical in road accident in Udala
+-  Charlotte Gill: Diagnosed at 33-years-old with ADHD, the news came as a relief
+-  【速報】松橋９位 全国中学校駅伝男子
+-  تراند اليوم : شاهد.. لاعب الاتحاد زكريا هوساوي يثير الجدل بتصرف غريب تجاه زميله فيصل الغامدي أثناء لقاء الأهلي المصري
+-  الجزیره په غزې کې د خپل یو فلمبردار وژل کیدو قضیه نړیوالې جنایي محکمې ته راجع کوي
+-  تراند اليوم : خالد النمر يحذر من تصرف أثناء النوم في المربعانية يؤدي للوفاة
+-  Mercato - PSG : Mbappé lâché par le Real Madrid ?
+-  Vapaaehtoiset suunnittelivat voittoisan näyteikkunan perinteisessä jouluisessa näyteikkunakilpailussa – "Kuutisen tuntia meillä meni ikkunoita somistaessa"
