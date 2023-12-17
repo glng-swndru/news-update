@@ -1,11 +1,51 @@
 # Latest News
--  도교육청, 의회에서 삭감된 사업들 재반영 준비한다
--  홍천군의용소방대연합회 결산총회
--  춘천 호반초 최준영, 한국초등연맹 우수선수 선발전 및 최강전 전국초등학교 태권도대회 2관왕
--  이재명-이낙연 18일 만남 불발…김부겸은 만날 듯
--  N32 매트리스,‘엔드 오브 이어 프로모션’진행… 1월 7일까지
--  "Grandfluenseri" osvajaju društvene mreže: Bake i deke uživaju u kreiranju sadržaja
--  NASA objavila slike fascinantne solarne baklje FOTO
--  "MasterChef Srbija": Najbolji kulinarsko-takmičarski šou na Tv Prva od 21. decembra VIDEO
--  Rodni grad Pabla Pikasa: "Sakata" katedrala jedinstvena u svetu VIDEO
--  ادارة نادي الصقر اليمني توجه رسالة الى محافظ تعز بخصوص مقر ومنشآت النادي
+-  저출생, ‘인구’ 아닌 ‘인간’ 문제로 접근해야 [배정원의 핫한 시대]
+-  دراسة: فيتامينات الزنك تحد من نمو الفطريات للمرأة في هذه المناطق
+-  India vs South Africa today match prediction: Can Men in Blue start ODI series with a win?
+-  Soccerladuma | Which System Suits Chiefs Best?
+-  Путин: после распада СССР Запад хотел развалить и Россию
+-  성남시, 세외수입 체납자 부동산 압류예고서 발송
+-  수원시, 3차원 공간정보시스템·공간정보포털시스템 재구축
+-  수원시, 내년도 고향사랑기부제 답례품 공급업체 18개 선정
+-  What Is Toxic Relationship : तुमच्यातलं प्रेम हिंसाचारात बदललंय? तुम्ही टॉक्सिक रिलेशनशिपमध्ये तर नाही ना? वेळीच ओळखा!
+-  Petroleum task force shuts down filling station in Jigawa
+-  Nigerian Govt presently hosting 100,000 refugees, 8,500,000 IDPs – Minister
+-  나라 지키려면 밥심?…‘짬밥’ 이젠 ‘뷔페’로 바뀐다
+-  Barbara Nowak krytykuje Nowacką. „O tym, czy jest jedna lekcja religii czy dwie decyduje biskup”
+-  Barbara Nowak krytykuje Nowacką. „O liczbie lekcji religii decyduje biskup”
+-  Barbara Nowak krytykuje Nowacką. „O tym, czy jest jedna lekcja religii czy dwie decyduje biskup”
+-  WATCH: Sean Strickland attacks No 1 Contender Dricus Du Plessis in UFC 296 arena
+-  Snažna oluja pogodila Argentinu, stradalo najmanje 13 ljudi
+-  Sigaraya ilave zam geliyor
+-  پاکستان کی ایران کے پولیس ہیڈکوارٹر پر دہشتگرد حملے کی شدید مذمت
+-  מחכים להזדמנות: ייני, נחמיאס ושחר בסגל מכבי תל אביב לנתניה
+-  Norvežanke petič ali Francozinje tretjič? Pomemben dan tudi za Slovenke.
+-  חזק במשחק: הסניף ה-8 לרשת המשחקיות לילדים פליי גיים, נפתח בחדרה
+-  EPL: One of the most intelligent players – Arteta hails Arsenal midfielder
+-  ‘배스의 원주 침공’ kt, 로슨 분전한 DB에 첫 연패 안기며 2연승 행진
+-  3 أسباب وراء استيقاظك بشكل مفاجئ من النوم.. تؤثر على صحتك
+-  ‘สคช.’ ยกคดี ดอกเบี้ยโหด ลูกหนี้สู้กลับ อุทาหรณ์สังคมไทย
+-  Veliki potres u klubu bivšeg Vatrenog, legenda se ispričala navijačima
+-  Uşaqlar daha çox anaları ilə eyni ayda doğulur
+-  Uzaklaştırma kararı bitti, 11 gün sonra karısını öldürdü
+-  KT, 제2회 퓨처스 마케터 학술 공모전 개최…대상 클린업 “작지만 발자취 남기게 되어 영광”
+-  Segar dan Menyehatkan, Ini Rekomendasi Buah-buahan untuk Dibuat Smoothie
+-  'Stupid' - Richard Keys interrupts Andy Gray after what he saw in Everton v Burnley
+-  "Les Illuminati, c'est la matrice du complotisme." Cet historien en décortique les mécanismes
+-  More than 60 feared dead off Libya in latest migrant tragedy
+-  Israel strikes Gaza as pressure grows to free more hostages
+-  'I need to see an SA our ancestors envisaged': Zuma on Umkhonto WeSizwe decision
+-  Sisterhood of the traveling pants stars spark joy with epic reunion
+-  ‘아시안컵 앞두고 컨디션 최고조’ 황인범, 3경기 연속 공격 포인트...즈베즈다는 4-1 대승
+-  U lokalu, 34-godišnjak se, najvjerojatnije, poskliznuo te pao na pod. Završio teško ozlijeđen u bolnici
+-  الريال يتفوق قبل مواجهة فياريال
+-  Wahl in Serbien: Vucics Rechtspopulisten wollen ihre Macht mit Geldgeschenken sichern
+-  Wahl in Serbien: Vucics Rechtspopulisten wollen ihre Macht mit Geldgeschenken sichern
+-  Schweizer im Aerials-Teamwettkampf ohne Chance
+-  Umro Colin Burgess, originalni bubnjar grupe AC/DC
+-  Ljudi iz pozadine
+-  IND vs SA 1st ODI LIVE: ભારત-દક્ષિણ આફ્રિકા વચ્ચે પ્રથમ વનડે આજે, નવી શરૂઆત કરવા ઉતરશે ઇન્ડિયા, રિન્કૂ, રજત અને સુદર્શનનું ડેબ્યૂ નક્કી
+-  Curry führt Warriors zu Sieg - Theis gewinnt deutsches Duell
+-  Gujarat News : ગુજરાતમાં ફિલ્મ સેન્સર બોર્ડની ઓફિસની બ્રાન્ચ સ્થાપવા રજૂઆત
+-  Gibran akan Lanjutkan IKN: Untuk Pemerataan Pembangunan
+-  Danas sunčano uz sjeverni vjetar
