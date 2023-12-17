@@ -1,51 +1,51 @@
 # Latest News
--  Morre ex-prefeito de município do Nortão
--  Pleite für Handballerinnen zum WM-Abschluss
--  St. Pauli verpasst gegen Wehen Wiesbaden Herbstmeisterschaft
--  Trotz Führung: Kaiserslautern auf einmal Abstiegskandidat
--  KSC geht mit Sieg in die Winterpause - 3:2 gegen Elversberg
--  "Das macht uns stolz": Außenseiter Kiel ist Wintermeister
--  Vogtländische Bauern demonstrieren am Montag in Berlin
--  Baumgart über Investoren-Deal: "Die Mehrheit ist die Kurve"
--  Biathleten ohne Podestplatz: Trotzdem stimmt die Richtung
--  Serbien wählt neues Parlament
--  Dynamo beendet Hinrunde mit Sieg
--  An diesen Baustellen in Mittelsachsen gibt es Behinderungen
--  Lindner offen für Alternativen beim Agrardiesel
--  Freiberg: Bedürftige Menschen bei Weihnachtsfeier in der Häuerstube
--  سرکاری ملازمین کی چھٹیوں پر پابندی عائد
--  Mittelsachsen erhält Millionen für Breitbandausbau - und wer profitiert?
--  Bakan Kacır açıkladı! Türkiye dünyada yerli tasarım başvurusunda ikinci sırada
--  屯門武術迷帶刀劍晨運嚇親街坊 涉管有違禁武器被捕
--  فيديو.. اندلاع حريق بمنزل لبناني جراء قصف إسرائيلي
--  عودة جزئية لخدمة الاتصالات في قطاع غزة بعد انقطاع كامل لعدة أيام
--  Gümüşhane'de Yarın Okullar Tatil Mi? Valilikten Tatil Açıklaması Yapıldı Mı?
--  Reducir las arrugas: cuáles son las cinco formas accesibles para aumentar el colágeno en la piel
--  Vyše 40 percent ľudí považuje Tuskovu vládu za lepšiu ako Morawieckeho
--  TMW - Vicenza, pesante ko col Trento: ore decisive per Diana
--  Papa Francisco celebra 87 anos com festa no Vaticano
--  Chile tem plebiscito sobre Constituição para acabar legado de Pinochet
--  เจ้ามือที่ไม่ได้เคลื่อนไหวมา 1 แห่เทขาย Ethereum ในมือทิ้ง
--  Tras la tragedia, Javier Milei y parte de su Gabinete viajan a Bahía Blanca para acompañar a las víctimas
--  Cold-Case-Fall von 1985: Polizei Hannover rollt Fall Ulla Lilienthal auf
--  Старий Луцьк поступився Черкаським Мавпам у матчі Суперліги
--  تنبيه عاجل من حساب المواطن بشأن تعطل التطبيق والموقع الإلكتروني
--  تعرف على طلبات استكمال إجراءات صكوك الاستحكام عبر منصة إحكام
--  ضبط 10 وافدين أثناء محاولة تهريب 200 كيلو مخدرات
--  "الأرصاد" ينبه أهالي ثلاث مناطق: شبورة مائية وضباب يحجب الرؤية حتى هذا الموعد
--  للحفاظ على أمنك وأمان أطفالك .. مختص تقني يقدم نصائح مهمة لمستخدمي سناب شات
--  Näin Matthew Perry kuvaili vuosi sitten kohtalokseen koitunutta ketamiinia: ”Tältäkö kuolema tuntuu”
--  GSK zoekt deals in China om relatie opnieuw op te bouwen
--  GSK sucht nach Geschäften in China und baut seine Beziehungen wieder auf
--  “Perëndimi e tërhoqi zvarrë drejt NATO-s”- CNN: Putin paralajmëron probleme me shtetin fqinj
--  أثرت سلبا في تكلفة المعيشة.. مشروع حلول للسياسات البديلة يناقش قضية الأسواق الموازية في مصر
--  El Barça se cae de la cornisa
--  Pakistan announces day of mourning over death of Kuwait’s Emir Sheikh Nawaf
--  পিরোজপুরে আওয়ামী লীগের প্রার্থীসহ ৫ জনের মনোনয়নপত্র প্রত্যাহার
--  El urbano mexicano revolucionó un 2023 que fue más allá del reguetón
--  Una reyerta con armas de fuego en Valencia deja un detenido y cinco personas heridas
--  Ingrid Betancourt compara investigación en contra de expresidente Samper con la actual a Gustavo Petro
--  Mistrz świata w snowboardzie Oskar Kwiatkowski dla "Rz": Muszę podtrzymywać ogień
--  Ο Φίλιππος Καμπούρης νέος πρόεδρος του ΛΑΟΣ
--  Milei vota en las elecciones presidenciales del Boca Junior
--  Adele nënshkruan një kontratë paramartesore me Rich Paul për të mbrojtur pasurin e saj milionëshe
+-  Watch: Hamas tunnel uncovered by Israel. It was below a baby's crib
+-  Adhir Ranjan Chowdhury writes to LS Speaker to revoke suspension of 13 MPs
+-  Κουτσούμπας για Προϋπολογισμό: «Μαζέψτε τα σάλια που σας τρέχουν για την ΕΕ οι της σοσιαλδημοκρατίας»
+-  Die Ampel im Belastungstest : Haushaltspolitik als entscheidende Bewährungsprobe
+-  المناسبات والأعياد تُدخل 10 مليار دولار سنوياً الى لبنان
+-  Bubnov i Šustić pobjednici Bokeškog maratona
+-  Policija spriječila sukob huligana u Zagrebu, torcidašima našli štitnike za zube
+-  Former Free Radical Designs devs share TimeSplitters concept art and more
+-  Büyük ikramiye 400 milyon! Milli Piyango bayilerinin önünde sıra oluştu
+-  shanaya kapoor: સાડીમાં હોટ પોઝ આપી શનાયા કપૂરે લગાવી આગ, જુઓ તસવીરો
+-  Zrážka vlaku a neznámej osoby pri Devínskom jazere
+-  Chandrababu Pawan Meeting: పవన్ కళ్యాణ్ ఇంటికి వెళ్లిన చంద్రబాబు, ఏపీలో ఉత్కంఠ!
+-  NE NASEDAJTE I PRIJAVITE! Ivana Španović morala hitno da se oglasi (FOTO)
+-  Nikki Haley urges Republican voters to IGNORE how she feels about Trump and to focus on her policies as she continues effort to bridge huge gap to frontrunner with 30 days until Iowa
+-  România anunță că a încheiat conflictul privitor la canalul Bâstroe: ”Ucraina a înţeles că trebuie să respecte toate obligaţiile europene”
+-  Nashik News : Sudhakar Badgujar यांच्या अडचणीत वाढ,कंपनीत पदाचा गैरवापर केल्याने ACBकडून गुन्हा दाखल
+-  북, 동해상으로 단거리 탄도미사일 발사…26일만에 도발
+-  ‘কনকা প্রেডিকশন কুইজ’ বিজয়ীরা পেলেন পুরস্কার
+-  Direktor Arene za “Vreme”: Ne znam o čemu pričate
+-  انتخابات صاف اور شفاف ہوتے نظر نہیں آرہے، خالدمقبول صدیقی
+-  Geomagnetische Stürme nach starken Sonneneruptionen
+-  "MOLIMO SE DA PREŽIVI" Uznemirene komšije o Dušanu koji je teško ranjen pištoljem za svinje: "Malo više je popio, tog dana su klali stoku"
+-  Lộ diện cô dâu đám cưới hot ở Hà Nội: Top cao các cuộc thi Hoa hậu, đi du lịch bỗng "vớ" chồng xịn
+-  Văn Quyết làm lu mờ Hoàng Đức, CLB Hà Nội đại thắng để trở lại cuộc đua vô địch V.League
+-  Cơ hội trở thành mắt xích quan trọng của thị trường bán dẫn 1.000 tỷ USD
+-  Mỹ điều tàu sân bay "trấn" Houthi, biển Đỏ sắp dậy sóng?
+-  Chuyên gia phong thủy cảnh báo: 6 điều kiêng kị nhiều gia đình dễ phạm phải khi bố trí phòng ngủ
+-  Tin mới nhất về cơn bão trái mùa, giật cấp 10 đang tiến vào Biển Đông
+-  Quán đạt sao Michelin mà Lisa (BLACKPINK) mới ghé từng gây tranh cãi, Jihyo (TWICE) và Khoai Lang Thang nhận xét ra sao?
+-  U13 PVF vô địch giải bóng đá quốc tế
+-  Thắng lớn ở V.League, CĐV Hà Nội FC cà khịa đối thủ: "Viettel, hãy thua theo cách của bạn"
+-  Một ngân hàng lớn giảm lãi suất từ ngày mai 18/12
+-  Sunnyvale teen wins YoungArts award
+-  안성시의회, 2024년 시 예산 대규모 삭감hellip;시민생활 밀접 정책 '빨간불'
+-  권영진 quot;달서병, 대구의 새로운 중심quot; 선거사무소 개소
+-  김천시, 수십억 들여 조성한 야구장...검토 미숙 예산 수억원 추가 필요
+-  2023 죽변항 수산물 축제 성황리에 마무리
+-  구미교육지원청 lsquo;지역과 함께 미래로 향하는 교육인재 양성rsquo; 사업설명회 개최
+-  손병복 울진군수 lsquo;2023 올해를 빛낸 한국인 대상rsquo; 수상
+-  진주 'K-기업가정신 청년 포럼' 성료
+-  창녕군자원봉사센터, 올해 경남도 우수센터 선정
+-  진주 강민국 의원, 항공산업 위한 세미나 열어
+-  금태섭, 신당 창당대회에서 quot;총선 30석, 2032년 개헌 목표quot;
+-  진주시 지역사랑상품권 운영 최우수기관 선정
+-  김종인 quot;한동훈 비대위원장? 정치 안 해본 사람이 뭘 할 수 있나quot;
+-  최상목 quot;법인세, 글로벌 스탠더드 감안해야quot;hellip;또 법인세 인하?
+-  Αστέρας Τρίπολης-ΠΑΟΚ 0-0 (Πρώτο ημίχρονο)
+-  My personal journey through Paphos’ cafe scene
+-  Christmas revellers flood Fikardou, close roads
+-  এ এক নতুন লি জিন
