@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | Makgalwa Fires Upington City To Second
--  Pre inverziu môže byť v nižších polohách miestami chladnejšie ako na horách
--  VIDEOROZHOVOR Kandidát na prezidenta Ivan Korčok: Chcem byť silným hlasom dovnútra spoločnosti
--  Rruga që më bën ta lë Shqipërinë!
--  How to hide your Amazon ordering history from nosy family members
--  De uitslagen, doelpuntenmakers en verslagen van het amateurvoetbal
--  حجز دعاوى بطلان انتخابات الزمالك للحكم بجلسة 14 يناير
--  "لعنة المساخيط".. المباحث تكشف غموض جثة السلخانة شمالي قنا
--  حماس: نحن عصيّون على الاستجابة للتهديدات وتبادل الأسرى مُستبعد حتى يتوقف العدوان
--  القوى الوطنية الفلسطينية: حماس مكون أصيل من شعبنا وفكرة متجذرة لا يمكن اقتلاعها
+-  Suomalaisyllättäjä laati kylmäpäisen taktiikan - Iivo Niskanenkin pysyi takana
+-  Illusions perdues : qui est Benjamin Voisin, Meilleur espoir masculin aux César 2022 ?
+-  Περιστέρι: Σε συζητήσεις με Ζερμειν Λοβ
+-  Fim de ano em São Martinho do Porto
+-  Опозицията се цепи за блокирането на парламентарната трибуна - Труд
+-  صعود مفاجئ لسعر الدولار والعملات في ختام تعاملات السوق الموازي
+-  Tuffare ekonomiskt för barnfamiljer nästa år
+-  Pokemon Scarlet & Violet player shocked to discover iconic Lion King Easter egg
+-  حمدي فتحي يسجل هدفًا رائعًا في مباراة الوكرة ضد الدحيل بـ الدوري القطري.. فيديو
+-  يوفنتوس يفتح الباب أمام رحيل نجمه في يناير
