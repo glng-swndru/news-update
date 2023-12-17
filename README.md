@@ -1,51 +1,51 @@
 # Latest News
--  출근길 영하권 '맹추위' 지속… 강원 내륙·산지 전역 한파경보
--  '스프레이 테러' 경복궁 담벼락… 하루만에 또다시 '낙서 테러'
--  天草市（熊本県）と姉妹都市締結に意欲 﨑津集落訪問のポルトガル駐日大使
--  Electric vehicle drivers have just weeks left to claim NSW government’s $3000 rebate
--  James Bond star George Lazenby, 84, recovering from head injury after fall
--  أول تعليق من منظمة الصحة العالمية على تدمير الاحتلال مستشفى كمال عدوان
--  ميدو: كولر مطالب بتغيير طريقته امام فلومينينسي
--  أودير هيلمان: فلومينينسي لن يغير خطته أمام الأهلي
--  أبو مسلم: موديست لن يستمر طويلاً مع الأهلي
--  مدرب الرياض السعودي: الأهلي يقدم كرة رائعة وفرصته كبيرة في التأهل للنهائي
--  Nešťastie na prechádzke s kočíkom: Mamička omdlela a dieťa spadlo z kočíka rovno do potoka! Zasahoval vrtuľník
--  سفيرة مصر في أنجولا تستقبل بعثة الزمالك بمطار لواندا
--  كريم حقي: الأهلي قادر على تخطي فلومينينسي في مونديال الأندية
--  ريال مدريد يستعيد صدارة الليجا برباعية رائعة في شباك فياريال
--  إنترميلان يتخطى لاتسيو بثنائية في الدوري الإيطالي
--  بعثة الزمالك تصل أنجولا إستعداداً لمواجهة ساجرادا في الكونفدرالية
--  Deputado federal Alexandre Leite reage a assalto e mata suspeito em SP
--  [아침을 열며] 경남 일자리는 성차별적이다
--  이유나(대구시 대신동) 씨
--  12월 18일(음력 11월 6일) 오늘의 운세
--  아이스크림에듀, 초등 영단어 상위 1% 따라잡는 '케찹보카' 출간
--  롯데 처음처럼·새로 소주, 일단 연내 가격동결…"인상시점 곧 발표"
--  Melhores do Ano | Público da Globo premia a série "Os Outros" e a novela "Vai na Fé"
--  Preparan plan de contingencia para evitar el tráfico de niños en la frontera colombo – venezolana
--  2007 FBI Investigation Resurfaces - A Biden Is Clearly Heard on the Tapes
--  Chilenos rechazan en plebiscito la nueva Constitución
--  Victorian mum reunites with biological mother
--  Victorian mum reunites with biological mother
--  Fiscal de Ecuador ordenó la detención de Jorge Glas, exvicepresidente de Rafel Correa
--  Rodrygo e Modric brilham e Real Madrid goleia o Villarreal em LaLiga
--  VIDEO: Menor de edad conduce motocicleta en ruta Interamericana
--  [한강로에서] ‘후진’ 사회의 비극
--  Han River Winter Festa: A Winter Wonderland in Seoul
--  New Tesla update cracks down on Autopilot misuse
--  LinkedIn 遷移至 Azure 雲端遭擱置，自建資料中心滿足運算需求
--  Chile albergará el Mundial sub-20 de 2025
--  الموت يغيّب الشاعر محمد زايد الألمعي
--  聯發科獲 Apple TV Wi-Fi 晶片下單，預計 2025 到 2026 年間供貨
--  Gore neighbours showcase ability on track
--  Das versprechen die Macher für das "Stranger Things"-Finale
--  كُتّاب وأكاديميون: «العربية» ترفد التراث العالمي بكنوز المعرفة والفن الخالد
--  بمقر سفارة البلد الشقيق بالدوحة.. رئيس «الشورى» يُعزّي في وفاة الشيخ نواف الأحمد
--  Apa Kata Warga di Rusun Nagrak Soal Huni Paksa Kampung Susun Bayam?
--  死去の元寺尾 しこ名は母の旧姓
--  حسين الشيخ: السلطة الفلسطينية هي الممثل الشرعي للشعب ومستعدة لتولي إدارة غزة بعد الحرب
--  Mosqueteros de la ficción con las espadas en alto
--  [아하 인터뷰] "인명구조엔 비번이 없다"…정재현 해양순경
--  Συρία: Δύο τραυματίες από αεροπορική επιδρομή του Ισραήλ κοντά στη Δαμασκό
--  ¿Por qué Onana resultó ser un peor fichaje que De Gea en Manchester United?
--  ترحيل 7 مهاجرين عبر منفذ أمساعد
+-  «الكاريكاتير»: الأمير الراحل كان داعماً للثقافة والفنون
+-  «إيسيسكو»: دوره كبير في خدمة قضايا الثقافة وتطوير مجالات العلوم والتنمية المستدامة
+-  الحشاش: رحيل سموه خسارة كبيرة للكويت
+-  اتحاد الصحفيين العرب: قائد حكيم اتسمت سياسته بالإخلاص لوطنه وشعبه
+-  جمعية الصحافيين والأسرة الصحافية عزّت بوفاة الأمير الراحل: ليدم الله الاستقرار على الكويت
+-  رئيس جمعية المهرجانات: أمير التواضع ستظل ذكراه باقية في قلوب الكويتيين ووجدانهم
+-  «جمعية الإداريين»: الكويت فقدت قائداً حكيماً ورجل دولة من طراز نادر
+-  «ذوي الإعاقة»: الجميع يشهد بمناقب الفقيد الكبير
+-  الطريجي: سمو الأمير الراحل كان داعماً للحركة الكشفية منذ انطلاقتها
+-  ضغوطات متزايدة على إسرائيل لهدنة جديدة في غزة وتصاعد الاشتباكات و«غولاني» يخسر ربع قواته
+-  خالد الحربي: نسأل الله أن يسكن فقيدنا منازل الأبرار ومرافقة الأخيار
+-  الأمم المتحدة تنكّس علمها والمزيد من القادة يثمّنون إنجازات الفقيد
+-  خالد العجمي: الأمير الراحل وهب حياته للكويت
+-  المصلون في الحرمين الشريفين يؤدون صلاة الغائب على الراحل الكبير
+-  د.مريم العازمي: لن ننسى تواضعكم وكلماتكم الصادقة وروحكم النقية
+-  إلى أعالي الجنان الأمير الراحل الشيخ نواف الأحمد..بقلم: علي محمد صالح
+-  عيد الرشيدي: حمل هموم المواطنين وكان مثالاً في العطاء حتى آخر حياته
+-  محمد بن زايد: أتمنى لأخي الشيخ مشعل الأحمد التوفيق والسداد في قيادة الكويت
+-  محمد المعجل: سموه كان حريصاً على تنمية البلاد في مختلف المجالات
+-  مسؤولون وسياسيون عرب يشيدون بإسهامات الأمير الراحل
+-  مساجد الكويت أدت صلاة الغائب على روح الأمير الراحل
+-  وسائل إعلام تبرز المسيرة الحافلة بالعطاء للفقيد الكبير
+-  صاحب السمو استقبل أمير قطر لتقديم واجب العزاء بوفاة الأمير الراحل
+-  ترامب يواجه في يناير المقبل أول اختبار انتخابي منذ مغادرته البيت الأبيض
+-  أكاديميون لـ «الأنباء»: الكويت فقدت قائداً عظيماً وسياسياً حكيماً
+-  كوريا الشمالية تُطلق صاروخاً باليستياً قصير المدى
+-  رياضيون: الأمير الراحل ترك مسيرة حافلة بالإنجازات والمواقف المشرفة
+-  المجيبل لـ «الأنباء»: رسم للكويتيين منهجاً في الإصلاح يبدأ بالتسامح ويسير في فصل السلطات واحترام الدستور
+-  نقابات وهيئات أكاديمية تُطالب بسحب مشروع قانون الهجرة في فرنسا
+-  اميركا تبحث مع السلطة اعادة نشر قوات الأمن الفلسطينية بغزة
+-  진천군, 지역사회보장계획 평가‘최우수기관’ 선정
+-  충주시 소태면, 생태도시에 더 가까이
+-  ВРАБОТЕН ВО АМЕРИКАНСКИОТ СЕНАТ СЕ СНИМАЛ КАКО ИМА СЕКС СО ДРУГ МАЖ ВО САЛАТА ЗА СОСЛУШУВАЊЕ НА КОНГРЕСОТ
+-  Making Miso Out of Everything
+-  '웰컴투 삼달리' 신혜선, 지창욱과 '진짜 나 찾기' 예고…시청률 8.3% '껑충'
+-  “타격은 본능적으로” 손아섭 타격론과 2014년 AVG 0.315 외인…강정호 스쿨이 전부 아니다
+-  유이♥하준, 드디어 첫 키스! (효심이네)[어젯밤TV]
+-  '서울의 봄', '겨울왕국1'도 제쳤다…역대 개봉 4주차 주말 관객 수 1위
+-  공중볼 장악→분데스리가 데뷔골→기라시 봉쇄…김민재, 멀티골 케인보다 높은 평가→슈투트가르트전 양팀 최고 평점
+-  "LJUDI SLAVE POBEDU, A ON I DALJE RADI" Vučićeva savetnica objavila snimak atmosfere iz izbornog štaba na Novom Beogradu
+-  Alaba se perderá lo que resta de curso tras romperse el cruzado
+-  Huge explosion rips through property in Blackburn causing entire house to collapse as police launch evacuation
+-  ABC host Karina Carvalho quits after 17 years with the national broadcaster
+-  Banks Not Paying Customers Enough Interest: ACCC
+-  ABC host Karina Carvalho quits after 17 years with the national broadcaster
+-  Se quita la vida un hombre de 35 años en Parral
+-  2 motorists were racing on Pa. highway before collision with school van that killed 15-year-old girl: police
+-  İsrail 1 gazeteciyi daha öldürdü
+-  उरई में दर्दनाक हादसा: लोडर को डंपर ने मारी जोरदार टक्कर, मां-बेटे और दादी समेत चार की मौत, कई घायल
+-  Densus 88 Geledah Kontrakan Terduga Teroris di Tangerang
