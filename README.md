@@ -1,51 +1,11 @@
 # Latest News
--  Loftus-Cheek a Sky: «Aspetto il primo gol in casa. Il ritorno di Ibra è un bene per il Milan»
--  Božić visoko u planinama: Članovi Annapurne ukrasili bor na Velikoj Gredi
--  Coupe du monde des clubs: dates, participants, calendrier surchargé... les détails de la nouvelle formule
--  외벽 떨어지고 마감재 낙하… '초속 18m 강풍'에 인천 피해신고 30건
--  풍랑 경보때 기름 유출 사고… 인천 앞바다 '기름 바다'된다
--  [우리동네 누가 뛰나 중구·강화군·옹진군] 민주 3파전, 국힘 단일화… 누구든 영종도 잡아야 '챔피언'
--  [우리동네 누가뛰나-이천시] 국힘 송석준 vs. 민주 엄태준 ‘리턴매치’
--  [우리동네 누가뛰나 부천정] 민주 전·현직 3명에 도의원 출신 경합… 국힘도 2명이 사활
--  출근길 영하 18도, 한낮에도 영하 4도… "종일 추워요"
--  수령 300년 이상 보호수 관리 예산 "내년엔 '0원'"
--  수원시, 프로스포츠 대표 종목 축구-팀은 야구 KT위즈
--  SSG랜더스, 에레디아·엘리아스 재계약...내년 외국인선수 구성 마쳐
--  [건설현장 뇌관된 '부실PF'-上] 또 '재하청업체' 임금 체불… 고공 농성에 사망사고까지
--  최근 3년간 '대입 수시 이월' 감소… "올해 추가 합격 늘어날 수도"
--  프로배구 대한항공, 현대캐피탈 꺾고 2위 탈환...흥국생명은 선두 탈환 실패
--  인천 학폭 증가… 신체 폭력, 집단 따돌림 ↑
--  성남시청 손석준·선수진, 전국선수권대회 겸 국가대표 1차 선발전 우승
--  '10억 보유 한국부자' 3.1% 인천서 거주중
--  전국 유일 ‘국가희소금속센터’, 인천 남동산단에 개소
--  삼성바이오로직스, ‘2023 지속가능경영유공 정부포상’ 대통령상 수상
--  인천공항공사, 항공 안전 강화 위한 업무협약 체결
--  셀트리온, 악템라 바이오시밀러 CT-P47 글로벌 임상 3상서 오리지널 의약품 대비 유효성·안전성 확인
--  [사람in] 유수일 미나리광시장 상인회장 "미나리광시장 활력 회복 시 도움 필요"
--  인천시-인천관광공사, ‘2023년 인천의료관광 하반기 정례회의’ 개최
--  [총선톡톡] 조광한 "이재명 실체 알리려 출마" - 금태섭 "내년 총선 30석 확보 목표, 정치변화 교두보 만들겠다"
--  "경인전철 지하화 특별법, 사업비 부족시 국가 지원 방안 포함해야"
--  Beşiktaş'tan teknik direktörlük için resmi açıklama!
--  Netflix'in ocak programı belli oldu
--  Beşiktaş için flaş iddia! Kartal'ın takip ettiği o stoper...
--  Konya'da demir kapı işçinin üzerine devrildi
--  İkinci el araç fiyatları yüzde 30’lara kadar düştü
--  Sille Tabiat Okulu, öğrencilere yeni ufuklar kazandırmaya devam ediyor
--  Destici: Asgari ücret 17 bin liranın üzerinde olmalı
--  "تقييم" تُطلق هويتها الجديدة... البنود والتفاصيل
--  عاجل.. تطبيق نظام "حضوري" الإلكتروني على موظفي إدارات التعليم اليوم
--  بالفيديو.. صلاة الغائب في الحرمين على الشيخ نواف الأحمد الجابر الصباح
--  Awami League gives up 26 seats to Jatiya Party, six to 14 Party allies
--  মনোনয়ন প্রত্যাহার করলেন জাতীয় পার্টির ফিরোজ রশীদ
--  Habeck will deutsche Solarhersteller im Konkurrenzkampf stärken
--  Rory Cowan explains reasons for retiring and plans to step back from limelight next year
--  Corinthians comemora aniversário do bi mundial enquanto vive momento difícil
--  Des scientifiques ont identifié les 16 «red flags» d'un conjoint violent | Slate.fr
--  Une semaine dans le monde en 7 photos, du 9 au 15 décembre 2023
--  Des poissons morts au kilomètre: les plages japonaises, nouveaux charniers de sardines et maquereaux | Slate.fr
--  L'église Sainte-Marie, une petite Pétra espagnole en plein boom touristique | Slate.fr
--  Manifestation à Tel Aviv après l'annonce de la mort de trois otages tués «par erreur» par l'armée israélienne | Slate.fr
--  رقم سلبي لحراس أرسنال قبل مواجهة برايتون اليوم
--  Nigeria records 200 deaths from Lassa fever since start of this year
--  Mean platelet volume and total white blood cells as diagnostic biomarkers for acute appendicitis at Omdurman military hospital: a cross-sectional study − 2021 - BMC Gastroenterology
--  Was anyone born in space?
+-  Hohe Krankenstände: Vorstand der Mindener Mühlenkreiskliniken blickt zurück
+-  İlber Ortaylı'nın katıldığı konferans izdiham yarattı!
+-  İstanbul depreminde zaman daralıyor mu?
+-  MİT'ten Operasyon! Şirvan Hasan Etkisiz Hale Getirildi!
+-  Real Madrid: Bellingham veut marcher sur les traces de son idole, Zinédine Zidane
+-  İsrail ordusu rehineleri vurdu! Yeni esir takası olacak mı?
+-  पेपर कप में चाय या कॉफी पीने से पहले जान लें इसके नुकसान, पढ़कर हैरान रह जाएंगे आप
+-  KAD STRAST POSTANE OPSESIJA Suzana Vasijević o gnusnim lažima Šolakovih medija &quot;Mogli ste mnogo bolje&quot;
+-  OVO SU TRI NAJSRETNIJA ZNAKA U 2024. GODINI: NJIMA NI RETROGRADNA PLANETA NE MOŽE NIŠTA
+-  Srbi su uvijek imali smisla za humor, a prave bisere skrivaju izborni slogani: ‘Šta nije jasno?’
