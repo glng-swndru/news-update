@@ -1,51 +1,51 @@
 # Latest News
--  Milan Monza, giornata speciale per Florenzi: ha raggiunto quest’obiettivo con i club
--  Air austral : Prolongation de l’immobilisation de son Boeing 787-8
--  President Murmu to visit West Bengal, Telangana and Rajasthan from Dec 18-23
--  Inaugura Quemen Pan y Pastel dos nuevas sucursales
--  Conclou la transformació del carrer Pi i Margall en un eix verd
--  Termina reunião entre Costa e Pedro Nuno Santos
--  Украинские военные танком снесли здание с оккупантами на Харьковщине
--  One kilo of cocaine, cash seized from Granville County home
--  Igman vodi u Mostaru, Ćeman odličan na golu gostiju
--  Здружение на инженери: Истечен е рокот за потпишување договор за Чебрен
--  COCTELERA DOMINICAL
--  Chloe Madeley and James Haskell enjoy sweet family Christmas meal with daughter Bodhi two months after split
--  Трети украински шофьор на камион почина на блокираната граница с Полша - Труд
--  Holleeder & co schreven het al: de ‘radiostilte’ is begonnen - nu ook in de formatie
--  Holleeder & co schreven het al: de ‘radiostilte’ is begonnen - nu ook in de formatie
--  Γκολ ο Κωνσταντόπουλος, φουλ για άνοδο η Μπέερσχοτ (vid)
--  警青衣截可疑男檢可卡因 17歲仔涉管有危險藥物被捕
--  Pre futbalový zápas v Bratislave pripravila polícia bezpečnostné opatrenie
--  PRÁVE TERAZ Tragédia pri Devínskom jazere! Po zrážke s vlakom zomrela jedna osoba
--  Николай Николов: Щастливи сме, че сме в „Елит”, атакуваме четворката!
--  «Das macht uns stolz»: Außenseiter Kiel ist Wintermeister
--  İsrail'in muhalefet lideri Lapid'den seçim çağrısı: Netanyahu başbakanlığa devam edemez
--  We were jailed on drug charges after airport ‘staff’ put our names on cocaine-filled bags – CCTV proved we were innocent
--  Al-Qaeda releases South African hostage Gerco van Deventer - Gift of the Givers
--  George caretaker set to appear in court Monday on human trafficking charges
--  Hape Kerkeling würde AfD-Verbot gutheißen
--  Soccerladuma | HT Report: Arrows 1-1 Pirates
--  Wiesbaden: Das Wochende mit einer Radtour einläuten
--  Waka MPR Dorong Peningkatan Keterampilan Berusaha Lewat Ekonomi Kreatif
--  Situata në Rripin e Gazës, sulm në Bregun Perëndimor, 5 të vdekur nga forcat izraelite
--  EL CALLAO
--  Este fin de semana podría realizarse 2ª exhumación de los restos del cantante Canserbero
--  Bangor provide update after week-long visit by potential investors
--  Клубът по щанги в Червен бряг смени името си в памет на треньора на Карлос Насар - Илиан Илиев
--  MUŽ VODITELJKE JUTARNJEG BORI SE ZA ŽIVOT! Otkazuju mu organi, mozak oštećen, porodica se moli za ČUDO
--  محافظ الغربية يعقد اجتماعا لتذليل عقبات مستشفيات طنطا العام والأورام الجديد
--  Ouagadougou : L’Association « NAMALGUE de Ouidi » veut s’attaquer aux maux de son quartier
--  Incesante la ola migratoria por Oaxaca
--  Milan 'atropela' com início alucinante, faz 3 a 0 no Monza e segue à caça dos líderes no Italiano
--  La Mini Party : un week-end gratuit en famille au Centre Georges Pompidou, les 24 et 25 février 2024
--  Jessie J reveals painful injuries after horror fall off stage after one of the ‘worst’ gigs of her career
--  2:3 beim KSC 3. Pleite in Folge - Elversberg geht die Luft aus
--  Morreu o psiquiatra António Bento
--  „Deutschland im Deep Web 3“ - Mehr als vier Jahre Haft für Darknet-Bubi Louis K.
--  Szandiék nem aprózták el a karácsonyi díszítést (videó)
--  Kırıkkale'de feci kaza! 9 yaralı var
--  Експериментът Кирчо: Продължението - Труд
--  Passage: In memoriam
--  Xavi szerint a Barcelona Európa egyik legrosszabb klubja, ha erről van szó…
--  Повреден ловџија безбедно евакуиран, прва интеревенција на новиот медикоптер
+-  Barcelonan manageri tylyttää tuhlaajanippuaan - ”Yksi Euroopan huonoimmista”
+-  Arsenal on valmis jättikauppaan - se maksetaan, mikä vaaditaan
+-  BBC Strictly Come Dancing's Layton Williams addresses 'heartbreaking' final defeat as true feelings laid bare
+-  Fifa anuncia 'Mundial alternativo' com europeu direto na final e playoff para campeão da Libertadores
+-  Super Mundial de Clubes tem datas definidas, e Palmeiras, Flamengo e Fluminense podem ficar até um mês longe do Brasil em 2025
+-  SC terá uma mulher no comando das Eleições 2024
+-  PM Modi Flags Off Kashi Tamil Sangamam Express In Varanasi- Watch
+-  Dick Van Dyke: Forever young
+-  Louder's writers pick their 10 favourite albums of 2023
+-  Man Utd and Liverpool miss out on biggest tournament in history worth £1BILLION as first eight teams confirmed
+-  Corona-Zahlen in Neumünster aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Idoso é morto de madrugada por encapuzados em frente a comércio e enteado fica ferido
+-  Corona-Zahlen in Lübeck aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Uyusun diye çocuklara verilen melatonin takviyeleri tehlike saçıyor
+-  낸시랭 "10억원 빚 원금 못 갚아…6년간 매달 1000만원 넘는 이자 감당"
+-  الحكومة: دعوات الإضرابات لم ولن تخدم دعم غزة
+-  रबी के दौरान मानक खेती उत्पादों की सप्लाई यकीनी बनाने के लिए पाँच फ्लाइंग स्क्वाड गठित : गुरमीत सिंह खुड्डियां
+-  Konya'da fason silah parçaları ele geçirildi: 1 tutuklama
+-  Corona-Zahlen in Kiel aktuell: Inzidenz für Kiel, Schleswig-Holstein und Deutschland
+-  Home Office struggling to source planes for Rwanda plan – report
+-  Corona-Zahlen in Flensburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Últimas semanas para visitar la muestra de superbacterias
+-  ​Iancului, cartierul pe care comuniștii aproape că l-au închis complet vreme de doi ani, ca să-l refacă din temelii
+-  How do you build business relationships? Entrepreneur Allie Braswell offers tips
+-  UK households issued Covid warning in one of worst blows 'since vaccines introduced'
+-  Man's Hilariously Passionate Christmas Dancing Delights Internet: 'Legend'
+-  Beloved musical The Sound of Music is airing on TV tonight
+-  Testamenty Ernesta
+-  Lwowski elementarz
+-  bet365 bonus code NYPNEWS: Score your $1k first bet or $150 for NFL, any sport
+-  Zabić Mikołaja!
+-  Księga strachów
+-  Takie czasy
+-  IT-bransjen må ikke være forbeholdt noen heldige få
+-  Does ‘Yellowstone’ Return Tonight? ‘Yellowstone’ Season 5, Part 2 Return Date and Streaming Info
+-  American dream Mieczysława Fogga
+-  Jacek Malczewski, malarz przepotężny
+-  Ofiary zdalnego nauczania
+-  Osobisty ranking idoli Ziemkiewicza
+-  Manifest brukselskiego hipokryty
+-  Sejmflix i jego gospodarz. Hołownia show
+-  Polityka antyrosyjska
+-  «Bon deuil», entretien avec Houcem Bouakroucha et Feteh Khiari
+-  TVP znów w starych koleinach
+-  PiS trzeba zdecentralizować
+-  "Do Rzeczy" nr 51: Esej Pawła Lisickiego. Święty Piotr – pierwszy papież
+-  Wyrzuceni poza miasto
+-  Kim był św. Piotr? Lisicki zachęca do lektury świątecznego wydania tygodnika "Do Rzeczy"
+-  Tęsknota za maską
+-  Wszyscy wygrali wybory. Nagrody dwóch panów G.
