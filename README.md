@@ -1,51 +1,11 @@
 # Latest News
--  Oliver Wahlstrom finding himself scratched more often than not: ‘Gotta play his game’
--  Gonzalo Piovi tiene una habilidad especial que despertó el interés de Cruz Azul
--  Wisconsin Taco John’s bans unsupervised kids after thefts, rocks thrown at worker
--  भाजपा नेता ने ब्रिटेन में भारतीय छात्र के लापता होने पर जयशंकर से मांगी मदद
--  금감원 “9개 증권사, 5000억 채권 손실 돌려막기했다”
--  DSÖ'den acil ateşkes çağrısı: Gazze'deki hastanelerden sadece 8'i kısmi olarak hizmet veriyor
--  Japonya'da bakanların istifası sonrası koalisyon ortağı "siyasi reform" çağrısı yaptı
--  İngiliz vekil, İsrail'in yargılanması için harekete geçti: Ben suç ortağı olmayacağım
--  Crónica de seis meses hacia el adiós
--  Un año desde que cambió mi vida por crevillent
--  정해영·이의리 등 5명+정재훈·이동걸 코치, 美 드라이브라인 파견 "잠재력 최대한 끌어올리고자 한다"
--  Birleşik Krallık'ın fahri konsolosu Ekvador'da silahlı kişilerce kaçırıldı
--  İsrailli Bakan Ben-Gvir'den alçak ziyaret: AA foto muhabirine saldıran polise göreve dönüş sözü verdi
--  DSÖ: Gazze'deki 36 hastaneden sadece sekizi kısmi olarak hizmet veriyor
--  Прокуратура проводит проверки по факту нечищенных дорог на Орловщине
--  현대카드, 나이스신평 장기신용등급 'AA(긍정적)'으로 상향
--  Incertidumbre y nostalgia del Bipartidismo
--  Pasar el décimo por la espalda
--  Ekspertgruppe anbefaler at ændre skolers prøver efter ChatGPT
--  Ekspertgruppe anbefaler at ændre skolers prøver efter ChatGPT
--  HBL Debatt: Distansarbetet är här för att stanna
--  El valor de la palabra
--  Pablo Ruz y la ciudad exigida
--  Recension: Jesper Högströms Ekelöf-biografi vågar ifrågasätta sin huvudperson
--  Serbere stemmer efter år med prisstigninger og masseskyderier
--  El auge del turismo deportivo especializa a los hoteles de la comarca para satisfacer las demandas de los equipos
--  «Nuestro reto es situar el grado de Medicina de Alicante en los rankings mundiales»
--  Serbere stemmer efter år med prisstigninger og masseskyderier
--  Toppers een kwelling voor PSV? Ongeslagen koploper ziet ze nu weer als een uitdaging
--  Nieuwe wijk Gedempte Haven in Waalwijk is verdraaid lastige puzzel, maar komt in zicht: ‘Het is één van de meest complexe bouwprojecten’
--  روسيا تعلن اعتراض 33 طائرة مسيرة أوكرانية
--  صفاقس : امطار خفيفة صباحا تكون اكثر غزارة بعد الظهر
--  ISTRAGA UTVRDILA: Međunarodna mreža stoji iza dojava o bombama!
--  «Fjukens Nissorama» 17. desember
--  Näillä Helsingin pörssin kurssiraketeilla on nousupotentiaalia yhä jäljellä
--  KFOR: Stalno procenjujemo bezbednosnu situaciju na KiM
--  Eva bor i vita Spegelvillan
--  রক্তাক্ত প্রান্তরে
--  ‘সঠিক কথাই না বুঝলে উল্টাপাল্টা লাগে স্যার’
--  Potica iz lončene posode ima vonj domačnosti
--  Taipalsaarelainen professori Kaisu Puumalainen on sanonut mahdollisuuksille kyllä urallaan – Vapaalla hän luo lantaa tallissa
--  Le “tri des poubelles” devient obligatoire en janvier 2024 : qu’est-ce que ça change pour vous ?
--  Un habitant de Bastogne acquitté pour un viol et condamné pour un autre
--  Asylantragszahlen in Österreich derzeit rückläufig
--  Po koncertu se mu je pripetila neljuba nezgoda, a zdaj ga niti bergle ne ustavijo (Suzy)
--  Már Magyarországon is elérhető a Samsung Galaxy S23 FE
--  Eva bor i vita Spegelvillan
--  DANAS JE JEDAN OD TRI NAJLEPŠIH PORODIČNIH PRAZNIKA - DETINJCI Roditelji, ne zaboravite ove običaje (VIDEO)
--  MAJKA ŽIVA SPALJENA U DVORIŠTU, ĆERKA ZADAVLJENA U KUĆI Muž zatekao HOROR, policija sumnja na najgore
--  SRBIJA JEDNA OD NAJBEZBEDNIJIH DRŽAVA Broj krivičnih dela smanjen za 17,9 odsto u odnosu na 2022.
+-  מחממים את החורף - מוצרי חימום לחורף חם בבית
+-  Diarrhea outbreak in Rourkela, 5 dead in 3 days
+-  Ty Chandler shines in first start for Vikings with Alexander Mattison ruled out
+-  Las lecciones de las protestas (2)
+-  Conciencia colectiva
+-  Escuela de Gobierno de la CIMOEA
+-  Cardenal enjaulado: pasará 5 años preso por tracalero
+-  Mueren dos personas por accidentes de tránsito, ambos conductores se dieron a la fuga
+-  Preparan unidad contra el crimen organizado
+-  Christian Bethancourt quiere jugar la Serie del Caribe
