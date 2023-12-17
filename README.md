@@ -1,11 +1,51 @@
 # Latest News
--  Türkiye'nin arazi örtüsü verileri, yapay zeka destekli yeni sistemle tespit edilecek
--  Beşiktaş, Avrupa Kupaları'nda beklentinin altında kaldı
--  İşte Fenerbahçe'nin Avrupa yolculuğu
--  Bakan Kacır: Türkiye, 2022 yılında yerli tasarım başvuru sayısında dünyada 2. sırada yer alıyor
--  Cinéma à Brest : pourquoi il faut aller voir Bâtiment 5
--  Stjarnan vann tvo leiki á einum sólarhring
--  Anneler dikkat! Çocuğunuz kalp hastası olabilir: Bu beslenme hatalarını yapıyorsanız...
--  ප්‍රා.ලේ. කොට්ඨාස 48 කට තව දුරටත් නායයෑමේ අවදානම
--  حوكمة الحجر الزراعي والبيطري.. القصير يتابع منظومة التحول الرقمي -تفاصيل
--  وزيرة التضامن: الإعلام يغزو الحياة ويقتحم العقول دون استئذان
+-  Carlo Ancelotti diz não ter pressa em renovar com o Real Madrid
+-  هذا النبات يقي من الأزمات القلبية والجلطات
+-  Nerwy w las. Ekspertka o tym, jak obcowanie z przyrodą leczy choroby spowodowane życiem w mieście
+-  Σαρώνει τη Δυτική Μακεδονία ο χιονιάς: Σε ποιους δρόμους χρειάζονται αλυσίδες
+-  Marek Isański: Sprzeczność wewnętrzna w najbardziej chwalonej uchwale NSA
+-  Michelle Mone admits she lied and lied again and stands to benefit from £60m PPE contract profit
+-  Zlacňovanie na slovenských pumpách by sa malo čoskoro zastaviť, upozorňujú analytici
+-  Cómo estará el tiempo tras el impactante temporal que golpeó a Buenos Aires
+-  Sonakshi Sinha Photos : బ్లాక్​ బికినీలో.. బీచ్​లో హాట్​ ఫోజులిస్తున్న సోనాక్షి సిన్హా
+-  Just too much? Expanded Club World Cup plans revealed as fears for player safety emerge
+-  Punjab: Youth Congress members protest in Chandigarh, police use water cannons
+-  В Суздале создадут первый в России стол с левитирующими матрешками формата 4D
+-  Пушилин сообщил о подготовке в ДНР механизмов противодействия провокациям ВСУ на выборах
+-  Corona-Zahlen im Landkreis Miesbach aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Landsberg am Lech aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Garmisch-Partenkirchen aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Fürstenfeldbruck aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Los héroes del 12-1 a Malta tendrán su homenaje de la federación
+-  מחקר: קבוצת התקיפה האיראנית תוקפת ומרגלת אחר ארגונים ישראלים
+-  "אצילי בדיחה. כל עוד הוא משחק באל עין, מתבזבזת עמדה של זר"
+-  Corona-Zahlen im Landkreis Freising aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  أهم 6 أسباب تجعلك جائعاً دائماً
+-  Ribarnice će opet biti poluprazne. Jesu li lovostaju u Hrvatskoj predugi?
+-  Nočná dráma v Bratislave: Vodič taxislužby chcel znásilniť zákazníčku! Polícia adresovala ženám výzvu
+-  So diskutiert die SPD Main-Tauber über Digitalisierung in Schulen
+-  Corona-Zahlen im Landkreis Erding aktuell: Inzidenz für Landkreis Erding, Bayern und Deutschland
+-  Top 10 svetríkov zimnej sezóny: Zababuš sa a zostaň stále sexi
+-  怒轟「做賊喊抓賊」 賴清德：國民黨欠台南1個道歉
+-  Очаквайте на живо: Ямбол - ЦСКА
+-  Corona-Zahlen im Landkreis Eichstätt aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Ebersberg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Dachau aktuell: Inzidenz für Landkreis Dachau, Bayern und Deutschland
+-  Corona-Zahlen im Landkreis Bad Tölz-Wolfratshausen aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Тројца загинати во нелегална трка на автомобили на автопат во Косово
+-  Corona-Zahlen im Landkreis das Berchtesgadener Land aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  What can you connect to the iPhone 15 with USB-C?
+-  Bellingham, en busca de la hazaña que solo consiguió Luis Aragonés
+-  Corona-Zahlen im Landkreis Altötting aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen in Rosenheim aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  El modelo del Real Madrid que siembra el pánico en el Barcelona
+-  Corona-Zahlen in München aktuell: Inzidenz für München, Bayern und Deutschland
+-  Corona-Zahlen in Ingolstadt aktuell: Aktuelle Daten zum Coronavirus
+-  Ciudadanía, clave para relanzar la campaña de Xóchitl Gálvez
+-  Teletón 2023 necea para ayudar a damnificados del huracán Otis
+-  Corona-Zahlen im Landkreis Sigmaringen aktuell: Die Coronavirus-Daten im Überblick
+-  Žan Kranjec četrti po prvi vožnji veleslaloma v Alta Badii
+-  Sri Lankan cartoonist Camillus Perera passes away
+-  Corona-Zahlen im Landkreis Ravensburg aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Estrazione Million Day di oggi, 17 dicembre 2023: i numeri vincenti di domenica
+-  Corona-Zahlen im Bodenseekreis aktuell: Inzidenz für Bodenseekreis, Baden-Württemberg und Deutschland
