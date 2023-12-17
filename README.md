@@ -1,51 +1,11 @@
 # Latest News
--  VIDEO | Fuerte choque de cabezas entre Pellegrino y Mallo durante la final de la Copa Argentina entre Rosario Central y Platense
--  الاهلي المصري يواجه فلومينينسي البرازيلي في نصف نهائي مونديال الاندية
--  النصر يبدأ الاعداد لمواجهة الاتفاق
--  الفيفا يغرم الاهلي المصري ويوقف مهاجمه
--  فريق فياريال يختتم استعداداته للقاء ريال مدريد
--  بعثة مانشستر سيتي تصل الى جدة
--  صافرة سعودية لمواجهة اوراوا ومانشستر سيتي
--  العربي يلحق الهزيمة الأولى بالسد المتصدر
--  للحفاظ على مساحة الهاتف.. خطوات لمنع واتساب من الاستحواذ على الذاكرة الداخلية
--  لم يحدث منذ 2003.. ليفربول يسجل رقمًا سلبيًا أمام مانشستر يونايتد
--  تعليق كلوب بعد التعادل مع مانشستر يونايتد
--  Marsej ne planira da stane: Olimpiku poluvreme dovoljno za trijumf protiv Klermona
--  DA LI I VI STAVLJATE ČAJ U PROKLJUČALU VODU? Kuvar kaže da je to velika greška, evo kako treba da se pripremi
--  Liverpool ve Manchester United 1 puana razı oldu
--  تيليس يعود للمشاركة مع النصر امام الاتفاق
--  Болгария заявила, что вето Венгрии на Шенген может быть вызвано зависимостью от газа из РФ
--  أبها يقيل مدربه التونسي المناعي قبل مواجهة الهلال
--  الفيفا يهدد بلايلي بسبب مستحقات الاهلي
--  తప్పని జాగారం!
--  Atienden Bomberos Voluntarios dos emergencias: automóvil y casa incendiada en Mazatlán
--  నేటి నుంచి షష్ఠి ఉత్సవాలు ప్రారంభం
--  Ozan Tufan'a övgüler yağdırdı! Bütün İngiltere onu konuşuyor
--  Bayer Leverkusen, 3 puana 3 golle ulaştı
--  İngiltere derbisi sessiz geçti!
--  Virgil Van Dijk: 1 puana sevindiler
--  Venstre-politiker undrer sig over Fagbladet 3F-artikel: »Super stærk medlemsservice« at hjælpe med at få sorte penge ind på bankkontoen
--  Venstre-politiker undrer sig over Fagbladet 3F-artikel: »Super stærk medlemsservice« at hjælpe med at få sorte penge ind på bankkontoen
--  Why UN has declared 2024 the International Year Of Camelids
--  روي كين يوجه انتقادات لاذعة لفان دايك
--  Israel descubre el mayor túnel de Hamás a escasos metros de la frontera
--  Innovation en Afrique : Le Ghana prévoit le lancement d’une carte d’identité numérique en 2024
--  Απόλλων: Δεν άντεξε και δάκρυσε on air o Φανούριος!
--  Franziskaner-Minorit Thomys gestorben
--  Doppelt so viele Stände wie im Vorjahr
--  Lagerfläche und Erweiterung nachträglich genehmigt
--  »Deftlef-Schorsch« bringt Glück
--  Drückjagd am 20. Dezember
--  Freundschaftsdienst entpuppt sich als Geldwäsche
--  Geschmückte Trucks touren wieder durch den Landkreis
--  BOLONJA JURI KA LIGI ŠAMPIONA: Roma pala na stadionu Renato Dalara
--  Unde a apărut primul alfabet și cine l-a inventat pe cel cu litere
--  СМИ: средства ПВО Сирии отражают израильский удар в окрестностях Дамаска
--  Vučević: Ovo je praznik demokratije
--  Cvrtila: Vučić će i dalje biti ključna figura na političkoj sceni u Srbiji
--  Unijna zaliczka to dopiero światełko
--  Walter Herz wchodzi w inwestowanie
--  Rząd pomoże Mlekovicie
--  Oto najlepsze Gazele Biznesu 2023
--  Nowy rząd musi rozkołysać elektromobilność
--  W mieszkaniach zrobiło się chłodniej
+-  Karaman’da yem fabrikasında korkutan yangın!
+-  Mevlana, 'Şebiarus' töreniyle anıldı
+-  Yunanistan'da 2024 bütçesine onay
+-  İsrail jetleri Gazze'ye yine ölüm yağdırdı
+-  Gary Neville: Liverpool berbattı
+-  Bakan Göktaş: Bu soruna asla müsamaha göstermedik, göstermeyeceğiz
+-  هيئة البث العبرية: الحكومة تدرس الإفراج عن أسرى نوعيين
+-  Roma, Bologna'ya direnemedi!
+-  Wie politische Bildung die Bürger in Tessin befähigt
+-  Avioneta impacta contra cables eléctricos en Oregón y cobra la vida de sus 3 tripulantes
