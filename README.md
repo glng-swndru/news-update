@@ -1,51 +1,51 @@
 # Latest News
--  Pope Francis deplores the death of two women in Gaza parish
--  Na območju Gaze plenijo tovornjake s humanitarno pomočjo! Stopnja primitivnosti plenilcev je huda in življenjsko nevarna – za vse!
--  ఆస్ర్టో గైడ్‌ : 21,260 దిగువన బేరిష్‌
--  Navidad en Perú: ¿cuántas calorías tiene una cena de Nochebuena?
--  La ONU y políticos colombianos celebran el compromiso del ELN de suspender secuestros
--  Endrick llega al Santiago Bernabéu para ver el Real Madrid-Villarreal
--  వైసీపీ అరాచక పాలనపై తిరగబడుదాం
--  Everybody Knows I Won 2023 Presidential Election – Peter Obi
--  ¡Juegue vivo! incrementa la venta de productos expirados
--  Efter sjukdomskaoset – stannar i Europa
--  СМИ: число жертв удара Израиля по лагерю для беженцев Джабалия увеличилось до 90
--  Mourinho 'è dura essere sostituiti così, mi scuso con Sanches'
--  U napadu na severozapadu Sirije poginulo sedam civila
--  WBSET Answer Key 2023 Soon: Check WBCSE SET Answersheet Updates
--  Obras en los Bajos de Haina, SC, impactarán en turismo de la zona
--  Ümit Özdağ: Oy oranımız yüzde 10'a doğru tırmanıyor
--  Le référendum constitutionnel prend fin au Tchad
--  Проф. Илин Савов: Под критичния минимум са познанията на учениците и учителите за опасностите в Интернет, осакатяват се и знанията на полицаите по темата "кибер сигурност"
--  8فروری کو آئی ایم ایف کے غلاموں کو شکست ہوگی،سراج الحق
--  505 شهداء بالضفة الغربية خلال 2023
--  Trónfosztás a kézi-vb-n, a franciák nyerték a világbajnokságot!
--  Άφαντος ο Βαλακάρι…
--  Gauteng online admissions late applications to open on Monday
--  UŽIVO Izbori u Srbiji: "Srbija protiv nasilja" veruje u pobedu u Beogradu
--  Canada :: Hommage Du Ccd À Un Digne Fils Du Cameroun : Le Dr. Albert Nana Sandjo
--  ఐసీఐసీఐ ప్రుడెన్షియల్‌ ఈక్విటీ, డెట్‌ ఫండ్‌తో మెరుగైన రిటర్నులు
--  Polisi Gerebek Perkampungan di Bekasi, Sita Puluhan Botol Miras Ilegal
--  مستشارون تربويون بالمعهد التربوي الوطني يطالبون بتنفيذ حكم المحكمة العليا
--  Η Μπολόνια υπέταξε τη Ρόμα και είναι μόνη 4η (vid)
--  Десподов вкара два гола за ПАОК при успеха над Астерас
--  Un candidat al extremei drepte câştigă în premieră primăria unui oraş în Germania
--  Krásna správa! Svetová hviezda sa ZASNÚBILA: Pochválila sa MEGA diamantom!
--  Ο Στέφανος Κασσελάκης βρέθηκε απροειδοποίητα στην Πάτρα και στη συνεδρίαση της ΝΕ του ΣΥΡΙΖΑ
--  Tiranë, 13% më pak aksidente/ Parandalim dhe ndëshkim i drejtuesve që shkelin rregullat
--  Mphowabadimo dragged for denying Themba access to his Son
--  Budućnost obilježila 18 godina od trijumfa nad La Korunjom
--  ఐటీలో తగ్గిన నియామకాలు..
--  Sporadični sukobi u Siriji, više od deset poginulih
+-  Bakan Fidan Kuveytli mevkidaşı ile görüştü: Taziyelerini iletti
+-  İşgalci İsrail Cibaliye'ye hava saldırısı düzenledi: Onlarca kişi hayatını kaybetti
+-  Bakan Göktaş: Yeni yılda 2 bin 392 engelli ataması yapılacak
+-  Erdoğan'dan Eczacıbaşı ve VakıfBank için tebrik mesajı
+-  The cult £2.83 hair hero, the £5 blusher make-up gurus love, and the seriously clever £5.99 skin perfector... Brilliant budget beauty buys - as voted for by YOU!
+-  Zach Wilson exits Jets-Dolphins early in the second quarter to 'hydrate' after being sacked four times with veteran Trevor Siemian replacing the QB
+-  Inge van Lotringen's Better not younger... When it comes to scent, these oldies are still the best
+-  Jutes breaks silence after getting engaged to Demi Lovato: 'I can't imagine life without you!'
+-  Jelly Roll and Bunnie Xo forgot their wedding anniversary date so decided to renew their vows
+-  S&P 500 posts longest weekly winning streak since 2017
+-  News24 | Here are the Daily Lotto numbers
 -  Real Madrid-Villarreal, en directo
--  Forcarei inaugura o novo parque infantil na praza da Igrexa
--  Zatvorena biračka mesta, glasanje obeležilo više navoda o neregularnostima
--  Tadić: Srbiji je potrebno iskustvo, slede velika iskušenja
--  Зеленский подвел итоги исторической для Украины недели
--  أمن طرابلس تطالب السائقين بالابتعاد عن تجمعات المياه بطريق البيفي
--  Osumnjičeni serijski ubica mamio žrtve tražeći pomoć u kopanju zlata u šumi
--  Polak znów błysnął na włoskich boiskach. "Staje się fundamentalny"
--  Inter, Mkhitaryan: "Noi non pensiamo alla Juve ma solo alle nostre partite e a vincere"
--  Otelde sıra bekleyince Üniversite sayfasından açıklama yaptırdı
--  El secuestro de Colin Armstrong mantiene a los vecinos en zozobra
--  Jukka Jalonen kehui tulokkaita TV5:llä: ”Ehdottomasti paras peli”
+-  اتفاق الصخيرات.. سلم تصلق عليه الإخوان للسيطرة على ليبيا
+-  Llegan y llegan más migrantes a la puerta 36
+-  Diogo Dalot sent off after receiving two yellow cards for dissent in a matter of seconds as Man United fans hit out at referee for 'joke' decision during Liverpool draw
+-  Kung Fu Panda 4 director hints at a sequel trilogy
+-  2023 showed us the cost of pushing singleplayer developers to make multiplayer games
+-  « La Princesse de Montpensier », sur Ciné+ Emotion : des amours à la fois authentiques et modernes
+-  Hellas Verona, Baroni: "Oggi tanti palloni che prima puoi esultare e poi calciarli"
+-  El Consejo de Participación de Doñana analiza el acuerdo entre Junta y Gobierno
+-  SVE VIŠE STRANACA U BIH Ove godine najviše ih je stiglo iz Turske, a raste broj zaposlenih iz dvije azijske države
+-  Pakistan's migrant burden is far larger than Britain's - we have every right to do something about it
+-  [사설] “혁신 없으면 10년 후 역성장” 한은 경고 되새겨야
+-  En Mérida las autoridades organizan concursos por Navidad
+-  UPALI NA ŽURKU I OTVORILI VATRU - 11 MRTVIH! Masakr na proslavi mladih, 12 osoba ranjeno u pucnjavi (FOTO)
+-  AfD se hace con la primera alcaldía de una ciudad importante de Alemania
+-  Projet de loi immigration: "La gauche a commis une erreur en rejetant le texte, il valait mieux en discuter", affirme Laurent Joffrin
+-  Livaja bez dlake na jeziku otkrio što je bio najveći problem Hajduka, ali i priznao: ‘Napokon miran Božić!‘
+-  Gudļevskim otrā sausā spēle šosezon, Skvorcovs un Pavlovs turpina punktu virknes
+-  Scotland’s climate changing at alarming rate with average temperatures reaching levels not expected until 2050
+-  Woman splits internet after claiming to background check everyone she’s ever met
+-  Dominancia Žiliny bola takmer zastavená, Topoľčany a Považania víťazne
+-  "ULOŽENI MILIONI, TERORISTI SU POSEBNO DOŠLI DA GA GRADE" Izraelske trupe otkrile najveći tunel Hamasa u blizini graničnog prelaza Gaze (FOTO/VIDEO)
+-  Daniel Jadue habló sobre polémico momento en que bajó el micrófono de periodista de CNN Chile ante una pregunta
+-  Nederlandse ijshockeyers zien olympische droom dag na recordzege uiteenspatten
+-  Bürgergeld: Sozialhilfe-Empfängerin bekommt Miete bezahlt – und schuldet Vermieter trotzdem 580 Euro
+-  Sivaji : విన్నర్ నేనే, నాకు తెలుసు - ‘బిగ్ బాస్’పై శివాజీ షాకింగ్ కామెంట్స్
+-  First Dates star Cici Coleman sends fans wild as she strips naked for bubble bath
+-  Srušio nestvarni rekord za Dinamo i ostao razočaran: ‘Malo nas je ‘iskidao’, a tablica izgleda ružno’
+-  Battling Man Utd Hold Liverpool As Arsenal Top Premier League
+-  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
+-  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
+-  Fallece una mujer que se encontraba en su casa por una bala perdida de una batida de caza
+-  THY Avrupa Ligi'nde hakeme ırkçı söylemde bulunan taraftara ömür boyu men cezası
+-  సంపద సృష్టిలో రిలయన్స్‌ టాప్‌
+-  Cambridge scientists say cancer drugs could help to treat heart disease and gout
+-  Τσολάκης: «Αυτός δεν είναι ο Απόλλων που θέλουμε»
+-  Chelsea, Gallagher: "Che la vittoria ci dia la fiducia necessaria per andare avanti"
+-  A franciák erődemonstrációt tartottak, hibátlan mérleggel ültek fel a világ tetejére
+-  Liverpool Held To Home Draw By Man Utd In Drab Affair
