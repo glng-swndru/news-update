@@ -1,11 +1,11 @@
 # Latest News
--  تشـكيلات إدارية في وزارة الداخلية - أسماء
--  Chilenos rechazan una nueva constitución
--  عاجل.. بشرى لهؤلاء.. الإعلان عن 605 وظائف في أرامكو للعمل بعدة مجالات
--  BREAKING: Gyanvapi Masjid Survey Case: ASI Submits Report To Varanasi District Court
--  "คมนาคม" เตรียมพร้อมดูแลปชช.เดินทางช่วงปีใหม่ คาดเดินทางกว่า 15 ล้านคน
--  SONP จัดอบรม ความสำคัญของ "MarTech กับอุตสาหกรรมสื่อดิจิทัล" ในยุค Digital Era
--  Zwei Leichtverletzte bei Brand in Metall-Unternehmen
--  Reijnders si prende la scena: «Prestazione a tutto campo, un solo aspetto negativo»
--  Süper Lig'de 17. hafta hakemleri belli oldu
--  Rusya'nın Ankara Büyükelçisi Andrey Karlov suikastının üzerinden 7 yıl geçti
+-  Kupjansk im Fokus - Russland schickt Verstärkung in die heiße Kampfzone
+-  Deutsche Brigade in Litauen soll bis 2027 voll einsatzfähig sein
+-  Neue SPD-Begehrlichkeiten: Klingbeil will Pendler entlasten
+-  Ticaret Bakanlığı: 2023 yılında 114 milyon TL ceza kesildi
+-  Магазин без продавач работи в провадийско село
+-  Kenia-Schilling festigt sich bei dünnem Handel, Rücküberweisungen dürften Auftrieb geben
+-  Keniaanse shilling verstevigt in dunne handel, overmakingen zullen naar verwachting een boost geven
+-  Đoković uvećava rekord
+-  Strednú školu v Bratislave museli evakuovať: Zasahujú všetky záchranné zložky! Čo sa deje?
+-  Христо Стефанов е назначен за заместник-министър на вътрешните работи
