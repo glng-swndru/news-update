@@ -1,11 +1,51 @@
 # Latest News
--  US SEC Denies Coinbase’s Plea for Revised Digital Asset Regulations, Review Petition Underway
--  Dibusz Dénes: Kivívhatjuk az európai továbbjutást, hiszen mi vagyunk a Ferencváros!
--  نقابة المعلمين الجنوبيين تعتبر الخصم من مرتبات معلمي مديرية البريقة تعسفياً .. وتصدر بياناً
--  Quique Sánchez Flores moet kwakkelend Sevilla behoeden voor degradatie
--  Muayene ücretlerine dev zam geliyor!
--  Cumhurbaşkanı Erdoğan, Macaristan Başbakanı Orban'a Togg hediye etti
--  USA Today : Que faut-il attendre de la "dernière" semaine de l'année ? par John Plassard - 18/12
--  Alexander Djiku'dan derbi sözleri! 'Şampiyon olmak istiyorsak bu maçı kazanmalıyız'
--  Cumhurbaşkanı Erdoğan Macaristan'da: Barışa hizmet eden çalışmalara devam ediyoruz
--  TVF Başkanı Üstündağ, öğrencilerle buluştu
+-  Musliman je svetski prvak u jedenju čvaraka VIDEO
+-  Britanija će uvesti uvozne carine na ugljenik od 2027. godine
+-  Torino, che rendimento per Bellanova: sarà un’assenza pesante con l’Udinese
+-  '돈봉투 의혹' 송영길 구속…법원 "증거인멸 염려"
+-  Brisanter Schritt im Israel-Krieg: Erdoğan bittet Pro-Hisbollah-Partei um Wahlbündnis
+-  La princesse Alexandra attend son premier enfant
+-  Parliament security breach: Delhi Police opposes accused Neelam Azad`s plea
+-  Srpskom snajperisti je stigao samo opsovati majku: Ovaj ‘Poskok’ je i u smrti bio faca
+-  ’إف تي إكس‘ ستدفع للدائنين المليارات كجزء من أحدث خطة إفلاس: تقرير
+-  Dursun Özbek hastaneye kaldırıldı
+-  IVAN MARINKOVIĆ DOŽIVEO STRAVIČNU NEZGODU NA PUTU: Auto se prevrnuo na KROV, supruga Jelena izvlači ljude iz kola (FOTO)
+-  Stelle al Merito del Lavoro, nel Teatro Petruzzelli la premiazione di 47 pugliesi: "Si sono distinti per perizia e condotta morale"
+-  Fenerbahçe bu haberi bekliyordu: Dzeko'nun MR sonucu açıklandı
+-  Txiki Begiristain: Kopenhag, Galatasaray'dan iyi
+-  Erzurum merkezli JASAT Mercek-2 operasyonu: 84 kişi yakalandı
+-  Yolcu otobüsünde ele geçirildi: Tam 300 bin adet
+-  Galatasaray'ın rakibi Sparta Prag'a genel bakış
+-  Feyenoord draws AS Roma in Europa League playoffs; Ajax to Norway in Conference League
+-  Ərdoğana at hədiyyə etdi
+-  SONDAGE EXCLUSIF - Insécurité et immigration deviennent des enjeux majeurs des élections européennes
+-  Keskustaedustajat huolissaan pelastuskoulutuksen keskittämisestä Helsinkiin – Ministeri Rantanen: "Pötypuhetta"
+-  Gold rates up by Rs.400 to Rs.217,200 per tola
+-  송영길 구속 수감. "사안 중하고 증거인멸 우려"
+-  Nou desnonament a Badalona, ara amb una persona dependent
+-  Health Tips: గర్భిణీ స్త్రీలు కుంకుమపువ్వు పాలు తాగితే బిడ్డ తెల్లగా ఉంటుంది కదా ?
+-  Aniversario mundialista: ningún argentino gritó el penal de Montiel
+-  ERTIBIL BIZKAIA Ikusizko Arteen erakusketa aretoan bisitatu ahal izango da urtarrila arte.
+-  Ogroman je potencijal Lovačkog saveza HB s 56 članica i oko 10.000 lovaca
+-  Rupee on recovery path; gains 05 paisa against Dollar
+-  המאמן ה-5 מאז העונה שעברה: סביליה מינתה את קיקה סאנצ'ס פלורס
+-  גווארדיולה: "נצטרך לעשות משהו מיוחד באליפות העולם למועדונים"
+-  Nagle Kurzajewski przekazał oficjalne wieści ze Stanów. Niespodziewany finał wyjazdu za Cichopek
+-  What is the games industry looking forward to in 2024?
+-  Guerre en Ukraine : l'Europe face au spectre d'un conflit durable
+-  Corée du Nord : tir de missile, avertissement… La tension reste élevée dans la région
+-  Climat : ces cinq records alarmants battus en 2023
+-  Israël - Hamas : un navire norvégien touché par "un objet non identifié" en mer Rouge
+-  Alcool : cette inquiétante banalisation auprès des mineurs
+-  La loi immigration au couperet de la commission mixte paritaire
+-  Désinformation : l'UE déclenche une "enquête formelle" visant X
+-  Allemagne : une victoire aux municipales qui confirme la poussée de l'extrême droite
+-  Le Chili garde sa Constitution héritée de Pinochet
+-  Corée du Nord : Séoul et Tokyo alertent Washington après un tir de missile
+-  Egypte : al-Sissi a été réélu président
+-  بيتر توكمان.. نجم المتداولين في «وول ستريت»
+-  PSX witnesses bearish trend, loses 925 points
+-  Drastična promjena u Vatikanu: Papa odobrio blagoslov istospolnim parovima
+-  Студентка от Пловдив научи страшната си диагноза 3 месеца след сватбата
+-  Nikad osvojen grad mogao bi pasti u ruke HDZ-a: Već se kuje plan, bit će to trijumf Plenkovića
+-  Le Malawi inaugure son ambassade à Rabat
