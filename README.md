@@ -1,11 +1,51 @@
 # Latest News
--  IBM to Acquire StreamSets and webMethods Platforms from Software AG
--  Peikko Group's Sustainable Solutions Take Center Stage at WASCON 2023
--  BJ60, 두바이서 신차 발표회 'Xide of Delight' 개최
--  GearUP's Hyperev Gaming Router: From 25ms to 4ms Ping
--  Incendie au dépôt d’hydrocarbures de Kaloum: « le feu a été circonscrit, plusieurs morts » (DG protection civile)
--  여의도 1호 재건축 '공작' 49층 570가구로 탈바꿈
--  고금리에 3기 신도시 택지도 안팔린다
--  올 해외수주 300억달러 美·사우디가 57% 차지
--  말의 품격
--  슈링크플레이션(shrinkflation)
+-  Robotas ekskavatorius padarė tai, ko seniai norėjome – ir visiškai be žmogaus įsikišimo (Video)
+-  [ŽT] Netikėtas incidentas. Į Bideno koloną rėžėsi automobilis. Kas nutiko (Video)
+-  „Fašistinė retorika“: užsipuldamas Bideną, Trumpas citavo Putiną ir Hitlerį (Video)
+-  Tokie skirtingi pasauliai. Kaip žiema atrodo kitose Saulės sistemos planetose
+-  Evo koliko su državne tvrtke pod Lovrinčevićevim nadzorom našeg novca dale televizijama
+-  Stuck in the Middle Season 3 Streaming: Watch & Stream Online via Disney Plus
+-  Oyerinde, others applaud Team Nigeria’s performance at World Squash Championship
+-  قصف إسرائيلي على الشفاء الطبي
+-  أضرار إفراط الأطفال في تناول الحلويات
+-  مكونات عجينة العشر دقائق وطريقة تحضيرها
+-  غادة عبدالرزاق: لا أفكر بالزواج.. وأنا ملتزمة دينياً
+-  Kate Garraway's GMB co-stars send an emotional message of support to star as she holds bedside vigil for husband Derek Draper while he fights for his life after heart attack
+-  Brad Pitt mora da isplati milion i po eura zbog vinograda
+-  Sophie (35) wil weg uit onbewoonbaar huis vol schimmel, boktor en houtrot maar kan nergens terecht: ‘Wat moet ik doen?’
+-  זה נגמר עכשיו? כשטיילור סוויפט פגשה את ביל בליצ'יק
+-  Obnovili vyschlý rybník a naučili lidi jíst kapra. U Kalendů nakupují i kuchařská esa
+-  British Navy reports possible explosion off the coast of Yemen
+-  "Ovo deluje jezivo, kakva sramota": Fanovi se obrušili na Dženu Ortegu zbog nove uloge VIDEO
+-  Samsung Galaxy S24 Serisinin Renk, Depolama ve RAM Seçenekleri Ortaya Çıktı
+-  Kate Garraway will spend 'Christmas in hospital with husband Derek Draper following his heart attack' - after cancelling all of her TV commitments
+-  Niti Aayog: 27 నుంచి నీతి ఆయోగ్ సమావేశాలు
+-  PiXXiE ส่งความน่ารักชวนเคลิ้ม “ชอบไปหมด” พร้อมปล่อยมินิอัลบั้ม “rain”
+-  Four-bedroom home sells for $1.9 million in Danville
+-  BT: Sjefredaktør Frøy Guldbrandsen gir seg
+-  Streichung der Agrardieselsubvention: Özdemir warnt vor Überforderung der Landwirte mit geplanten Kürzungen
+-  A është Gjermania e ‘zhytur në një mal me borxhe’?
+-  Jose Mourinho claims he was accused of ‘BULLYING’ at Man Utd after Special One would do ‘anything to win’
+-  Jose Mourinho claims he was accused of ‘BULLYING’ at Man Utd after Special One would do ‘anything to win’
+-  Ανόρθωση: Δεν θα συμμετέχει στο Κόπα Άφρικα ο Τσίκο
+-  Nie będzie odcinkowego pomiaru prędkości pomiędzy Nieporętem a Zielonką. „Prace GITD kolidowałyby z przebudową drogi”
+-  넥스플랜, 한강변 미디어 아트쇼 성료
+-  Oppo Find X7 Tasarımı Sızdırıldı
+-  "성관계 몇 명이랑 했냐"…사유리, 韓 원로가수 성희롱 폭로→영상 삭제 [MD이슈]
+-  손해보험업계, 자동차 보험사기 피해자에게 보험료 12.8억 돌려줘
+-  Dobitni ponedjeljak!
+-  "귀중한 클로저될 수 있다"…최고 165km '오타니 라이벌'이 마무리로? 단 조건이 있다
+-  Гороскоп на січень від Макса Гордєєва: Тельцям - чарівництво, Ракам - нервовий зрив
+-  ‘I have to say’: Paul Merson completely changes his mind about Tottenham Hotspur
+-  Meglepetésvendégekkel lép színpadra január elsején Mága Zoltán
+-  Son dövrlər akademiyada bu ixtisasa axın çoxdur
+-  I was grateful my kids could get their pills tested, if they had any
+-  Endommagé par une voiture, ce restaurant de Villeneuve-Loubet pourra-t-il rouvrir?
+-  Henry Bryant is a Christmas miracle 25 years in the making
+-  Henry Bryant is a Christmas miracle 25 years in the making
+-  Iránykereséssel nyithat a tőzsde az elemző szerint
+-  I was grateful my kids could get their pills tested, if they had any
+-  Lüneburg: Das sind die Öffnungszeiten für städtische Einrichtungen an Weihnachten und den Jahreswechsel 2023
+-  Плюс-сайз-модель Эшли Грэм прошлась по улице в наряде из сетки
+-  I was grateful my kids could get their pills tested, if they had any
+-  Henry Bryant is a Christmas miracle 25 years in the making
