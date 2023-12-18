@@ -1,11 +1,11 @@
 # Latest News
--  בגלל סכסוך חניה: דקר את שכנו שנפצע אנושות
--  Melbourne listed as one of the top searched travel destinations globally for 2024
--  AK Parti'de aday hazırlığı! Kapalı zarfta 3'er isim alındı
--  [2023결산/통신] 요금인하 압박에 성장한계 봉착…통신3사 해법은 ‘AI’
--  ‘車 해킹 시도 방어’ 티맵 오토…유럽 SW 품질 평가 통과
--  KT, 디지털시민 프로젝트 1주년 성과공유회 개최
--  스마일게이트 신작 ‘원더러스’, 내년 1월8일 아시아태평양 4개국 출시
--  SKT-SK스퀘어, 페이커와 함께하는 사내 ‘T1 롤드컵 축승회’ 개최
--  Мурашко заявил о росте числа детей, пострадавших от киевского режима
--  Henry Onyekuru ve Murat Sancak Gerilimi Devam Ediyor!
+-  TCS Selected For Modernisation Project By Swiss and Spanish Financial Market Infrastructure Operator
+-  Soccerladuma | Real Madrid 'Eyeing' Bellingham's Brother
+-  Soccerladuma | Blackberry: What Pitso Told Me
+-  Beşeri tıbbi ürünlerin fiyatlandırılmasında euro kuru yüzde 25 artırıldı
+-  'Bitkisel ürün' uyarısı: Masum olmayabilir
+-  Bursa'da kavşakta takla atıp yanan otomobilin sürücüsü olay yerinden kaçtı
+-  Apple 2024: Watch redesign, iPhone 16 innovations
+-  Fenerbahçe'de stoperde öncelik Çağlar Söyüncü
+-  Adalet Bakanı Tunç: 32 bin 98 kira uyuşmazlığı arabuluculukta çözüldü
+-  Commodity in movimento, ma petrolio e oro restano protagonisti anche nel 2024
