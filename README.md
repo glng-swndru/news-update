@@ -1,51 +1,11 @@
 # Latest News
--  Gazze'de İsrail soykırımı devam ediyor: Öldürülenlerin sayısı 19 bin 453'e yükseldi
--  Biden's approval rating at record low in new poll
--  Santos has message for ex-colleagues: 'I'll outlive them'
--  Ove vrste kruha trebate izbjegavati: Stručnjaci preporučuju najzdravije opcije
--  Se autoriza la pesca de anchoveta con embarcaciones de cerco
--  Lo que gana un médico en Estados Unidos, según la especialidad
--  Masala lobt Pistorius-Vorschlag: "Das schwedische Modell ist der einzig gangbare Weg"
--  Ermənistan bu iki ölkə ilə hərbi saziş imzaladı
--  Aberdeen Women captain Hannah Stewart backs team to make improvements in the new year
--  Aberdeen boss Barry Robson demands immediate Premiership response to Viaplay Cup final loss
--  7 tips for a calmer Christmas from Longside’s Honest Mummy Instagram guru
--  Duas casas são invadidas por criminosos em menos de menos 5 horas em Sinop; motocicleta e joias furtadas
--  Caley Thistle boss Duncan Ferguson demands defensive improvement
--  Crocodiles roam the streets of Australia after Cyclone Jasper floods whole neighbourhoods and sinks planes at airport
--  Prigozhin Supporters Call to Name St. Petersburg Street in His Honor
--  Egypt's Abdel Fattah al-Sisi Wins 3rd Term As President With 89.6% Votes
--  Police say driver accidentally struck parked SUV in Biden’s motorcade near campaign headquarters
--  Photodynamic action weakens resistance to antibiotics in bacteria that attack airways
--  Exoplanets' climate: It takes nothing to switch from habitable to hell, say researchers
--  Coral atoll islands may outpace sea-level rise with local ecological restoration, scientists say
--  FTX Owes More to Lawyers Than Creditors in Bankruptcy Case
--  Ziwe Exposes George Santos Once and for All in Scathing Sit-Down
--  Driver Who Crashed Into Joe Biden’s Motorcade Slapped With DUI Charge
--  Christian Rach: „Die deutsche Küche ist deutlich vielseitiger, als man denkt“
--  Ze dachten even rust te hebben in Achtmaal, maar een grote ontwikkelaar wil windmolens toch doorzetten
--  Mandatory return-to-office will mean an older, less diverse federal workforce
--  Bayern Munich’s Thomas Müller is happy about the draw, finds SS Lazio “interesting”
--  ‘I cant believe customers think its ok to throw food at service workers’: Viewers defend barista after customer threw old coffee at her
--  'Amazing' manager Celtic looked at before Rodgers is top of table with 17 wins from 21
--  Container für Flüchtlinge am Böbinger Wertstoffhof?
--  The best graphics cards 2023: GPUs for every budget
--  Nógrádban több ezer fiatal részesült anyagi támogatásban az Ifjúsági Garancia programban
--  Watch Severe Winds Hit Airport In Argentina, Damaging Almost 20 Planes
--  Report: Everton still want to sign 'incredible' attacker they bid £25m for a year ago
--  When Will ‘Maestro’ Be on Netflix?
--  احتفالات في شوارع الأقصر بفوز السيسي بفترة رئاسية جديدة
--  وزير الأوقاف يهنئ السيسي بالفوز في الانتخابات: الشعب قال نعم للقائد البطل
--  معيط: مبروك لمصر شعب اختار الوطن ورئيس أدى الأمانة بإخلاص
--  أمين دُور وهيئات الإفتاء بالعالم يهنِّئ الرئيس السيسي بالفوز في الانتخابات الرئاسية
--  وزير الدفاع الأمريكي: دعمنا لإسرائيل راسخ ونحثها على تقليل الضرر بين المدنيين بغزة
--  المشاط تهنئ السيسي: الشعب استهدف الحفاظ على مقدرات الوطن وسط التحديات
--  وزير دفاع الاحتلال: التمويل لغزة كان يستخدم لبناء الأنفاق
--  مدبولي يتابع خطط النهوض بالصناعات اليدوية ضمن مبادرة "صنايعية مصر"
--  وزير دفاع الاحتلال: لن يكون لنا دور مدني بغزة بعد القضاء على حماس
--  GoTo, TikTok, dan UGM Kolaborasi Bangun Pusat Pengembangan Talenta Digital
--  "Encontrar soluciones latinoamericanas": Moscú pide abstenerse de injerir en la disputa del Esequibo
--  Streit zwischen Boris Becker und Nick Kyrgios: Tennis-Ikone fordert mehr Respekt
--  Dorong Sektor Peternakan, DKP3 Kota Sukabumi Giatkan Sekolah Lapang
--  „Istorinė diena ir momentas.“ Vokietijos kariuomenė atvyksta į Lietuvą
--  Kinija praktikuosis karui kosmose. Kritikai pašiurpę – „tai prilygsta branduolinio karo kurstymui“ (Video)
+-  Witness Burj Khalifa NYE Fireworks with Exceptional Views From Maison De Curry at Souk Al Bahar
+-  Soccerladuma | In Numbers: How Chiefs' Defence Has Improved This Season
+-  Meta charging European users to remove ads is a privacy red herring
+-  Manisa İYİ Parti'de istifa depremi
+-  İspanya'ya gelen düzensiz göçmen sayısı 51 bini geçti
+-  Somali Cumhurbaşkanı'ndan Yunus Emre Göçer'in ailesine taziye telefonu
+-  الأردن.. اشتباكات على الحدود السورية وإحباط عملية تهريب مخدرات
+-  Bakan Özhaseki 'Yerinde Dönüşüm' projesine başvuruların 250 bini aştığını duyurdu
+-  Magazine: Advancing islet transplantation for type 1 diabetes
+-  Business News | Rich and Varied Perspectives on Economic Policy and the Indian Economy Brought to the Fore at the ISB-NBER 2023 Conference
