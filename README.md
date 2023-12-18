@@ -1,11 +1,51 @@
 # Latest News
--  الاتحاد الأوروبي يصادق رسميًا على حزمة العقوبات الـ 12 ضد روسيا
--  شركة مطارات جدة تعلن عن وظائف شاغرة.. المسميات وطريقة التقديم
--  عاجل.. تعرف على أسعار ومواصفات سيارة تويوتا هايلكس 2024 الجديدة.. أيقونة الصحراء
--  تعرف على أعطال سيارتك من لون العادم
--  Marvel-stjerne er dømt for vold mod sin ekskæreste
--  New trainers to tackle old problem
--  School cleaners threatening legal action over pay cuts
--  Home liquor licence granted
--  Misconduct ’shambles’
--  Γη της ελιάς: Η Ειρήνη εξομολογείται στον Ορέστη το σχέδιο εκδίκησης του πατέρα της
+-  Odgođeno glasanje SB UN-a o rezoluciji o Gazi
+-  Mercato - RC Lens : Coup de théâtre après son transfert ? Une réponse tombe
+-  Aaj Ka Vrishchik Tarot Card: वृश्चिक राशि वाले किसी भी भ्रम और भटकाव की स्थिति से बचें, नहीं तो होगा नुकसान
+-  دقت ساعة الحقيقة ويجب التفكير بالخيار (ب).. بيان ناري من الفريق السياسي للمترشح الرئاسى سيف الإسلام القذافي
+-  VIDEO Krš i lom u Zaprešiću: Lančani sudar više automobila
+-  Небензя заявил об отсутствии нарушений резолюции об СВПД со стороны России
+-  Оборонный концерн Rheinmetall получил от Берлина заказ десятки тысяч снарядов для ВСУ
+-  Scarlet and Violet fans can’t stop sharing clips playing as Pokémon
+-  Sempra Named to Dow Jones Sustainability Index North America for 13th Consecutive Year
+-  CSE starts fresh week on a negative note
+-  Court stays action by Union Bank on Tenaga Car Parks
+-  Overseas Realty Group brings expertise to Port City Colombo Duty Free Mall with facility management appointment
+-  SriLankan Airlines rolls out the green carpet onboard
+-  First half of December pushes tourist arrivals to over 100,000
+-  لاعب فلومينينسي: الشيوخ تأهلوا إلى نهائي كأس العالم للأندية
+-  Taylor Swift Got 7 Custom Birthday Cookies At That Last Chiefs Game, And All Of Them Have A Special Meaning
+-  Prumo terá terminal de grãos para movimentar milho e soja via Porto do Açu, diz presidente
+-  Nigerians Reacts As Pastor Bolaji Invites Spyro To Perform At Church Christmas Carol
+-  Elon Musk recibe el tratamiento John Oliver
+-  Elon Musk Gets the John Oliver Treatment
+-  Lucknow : तुलसियानी ग्रुप की ब्रांड एम्बेसडर गौरी खान की बढ़ सकती है मुश्किल, ईडी पूछताछ करने की तैयारी में
+-  Man wanted for assault arrested in Granville County after hiding in home, sheriff says
+-  Registran domicilios en Lima y Callao por presunto delito de pornografía infantil
+-  Encuentran una bebé viva y con el cordón umbilical en un contenedor en Sevilla
+-  Encuentran una bebé viva y con el cordón umbilical en un contenedor en Sevilla
+-  Vašington želi da sarađuje sa Srbijom na jačanju demokratije posle izbora
+-  Envista Announces Participation in J.P. Morgan Healthcare Conference
+-  PIRAMAL PHARMA SOLUTIONS COMMEMORATES OPENING OF ITS ADC MANUFACTURING EXPANSION IN GRANGEMOUTH, SCOTLAND
+-  Apollo Medical Holdings, Inc. Announces Grant of Inducement Awards Pursuant to Nasdaq Listing Rule 5635(c)(4)
+-  EVO KAKO IZGLEDA DANAS BIVŠI DEČKO MARIJE ŠERIFOVIĆ Pevačica je postala majka, a on šokirao priznanjem
+-  BioNTech-Aktie gewinnt: Deutsche Außenministerin Baerbock nennt BioNTech-Impfstoffproduktion in Ruanda Meilenstein
+-  'Worst' - Pundit feels sorry for rarely-seen Everton player after what happened
+-  Mercato - PSG : Une offre colossale est dégainée pour une star
+-  Ticaret Bakanlığı'ndan fiyat etiketleri kararı
+-  Covid-19 : où en est l'épidémie ?
+-  Cargaba 45 carrizos con presunta cocaína
+-  Construcción del intercambiador de La Cabima registra un avance del 18 %
+-  Meduca: año escolar iniciará con escuelas nuevas en varias regiones
+-  Große Liebe oder Korb? So enden die letzten „Bauer sucht Frau“-Hofwochen
+-  Wielki powrót Toniego Kroosa?!
+-  Небензя рассказал, какую политику Россия ждет от Запада в отношении Ирана
+-  Најмалку осум загинати во земјотрес во северозападна Кина
+-  ¡Dale, dale, dale!
+-  Bigg Boss 17: आयेशा ने मुनव्वर को किया बेनकाब, शो में फेक लवस्टोरी बनाना चाहते थे स्टैंड अप कॉमेडियन?
+-  School dux put in plenty of work outside the classroom
+-  Мицкоски: Анкетите говорат дека ВМРО-ДПМНЕ ќе има убедлива победа со близу 60 пратеници
+-  Dólar hoy: los financieros cayeron hasta $46 y se redujo la brecha cambiaria
+-  Adobe-Aktie stark: Adobe sagt Figma-Übernahme ab
+-  Cortes de juros podem ser necessários para evitar aperto excessivo, diz dirigente do Fed
+-  U JEDNOJ RUCI VOLAN, A U DRUGOJ TELEFON: Evo koliko je to ustvari opasno i zašto ne biste smeli da praktikujete (VIDEO)
