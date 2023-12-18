@@ -1,4 +1,37 @@
 # Latest News
+-  Исроил армияси ҲАМАС ер ости туннелларининг «тожидаги жавоҳири»ини топди.
+-  Тошкент вилоятида 500 kW кучланишли, рақамли нимстанция қурилади.
+-  W Wenecji przybywa miejsc noclegowych dla turystów. Ubywa za to mieszkańców
+-  Московский Губернский театр отменил спектакль «Приключения Фандорина»
+-  Autoriza Papa bendiciones de parejas del mismo sexo
+-  Declara Argentina emergencia de servicios energéticos
+-  Apuesta Carlos Slim por empresas detrás del yacimiento Zama
+-  Exige Diócesis de la Tarahumara seguridad para Guadalupe y Calvo
+-  Deja 7 muertos choque de camiones en Edomex
+-  Андоновска од ГРОМ: Собранието да ја достави дипломата на пратеникот Јаревски
+-  The Art of Pre-Columbian Gold in Costa Rica
+-  LULIN PRST U OKO AMERICI Brazil želi da Putin prisustvuje samitu G20
+-  Protect your property during the festive season
+-  Red flag: SA we have a problem as suicides rise 54% - Discovery
+-  Вижте какво ще бъде времето до края на седмицата
+-  Лех Познан се раздели с наставника си
+-  Lefka village ‘on the way to becoming Trikomo’ amid construction boom
+-  ‘There’s nothing more soothing than public venting’
+-  “Parece que cree que lo que funciona es ser un Sepu y quiere ser lo mismo”: Ale Valle repasó a Julio César Rodríguez
+-  Në kërkim prej tre vitesh, arrestohet shqiptari në Itali
+-  Tensions autour de la Nouvelle Loi d’Immigration : France Université Contre-Attaque
+-  Museum of the Moving Image and Alfred P. Sloan Foundation Reveal 2023 Student Prize Winners (EXCLUSIVE)
+-  Ανησυχία για τις επιθέσεις στην Ερυθρά Θάλασσα: Πώς μπορούν να κρατηθούν ασφαλή τα πλοία
+-  SUDAR DVA PUTNIČKA VOZILA KOD OBRENOVCA: Strahuje se da u udesu ima nastradalih
+-  Erling Haalandin raivokohtauksen karu seuraus - Manchester City sai isot sakot
+-  মিছিলে মশাল ব্যবহার না করার অনুরোধ পুলিশের
+-  2024: ¿El año de las ‘criptofuertes’? Esto es lo que debe saber antes del ‘bull market’
+-  CL-Achtelfinale: So stuft Rummenigge die Gegner von Bayern, BVB und Leipzig ein
+-  EU May Strip Hungary of Voting Rights in Bid to Force Ukraine Funds
+-  DD: Siemens Energy AG: Robert Kensbock, Kauf von Siemens Energy-Aktien im Wert von 8.450,00 EUR zum Xetra-Schlusskurs der Siemens Energy-Aktien am 2024-03-14, +01:00 (im Zusammenhang mit ...
+-  “Eynicinsi fərdlərin nikahına xeyir-dua veriləcək”
+-  BCT : Hausse de l’épargne à près de 28 milliards de dinars
+-  Canadian basketball shows bright future for men’s, women’s sides in successful 2023
 -  دفعة كل 3 شهور.. أسعار وأقساط شقق الإسكان المتميز بعد بدء التقديم
 -  "وزير السياحة" وقيادات الوزارة يتقدمون بخالص التهنئة للسيسي لفوزه في الانتخابات الرئاسية
 -  جيش الاحتلال: مقتل جنديين إضافيين في معارك غزة ليرتفع العدد لـ7
@@ -9,43 +42,10 @@
 -  الأب والابن في كلبش واحد.. حلم الثراء في منزل بكرادسة
 -  الصحة بغزة: استشهاد 19453 فلسطينيًا منذ بدء حرب الاحتلال على غزة
 -  هذا ما يحدث لجسمك عند تناول الكشري ؟… لن تتخيل المفأجاة
--  Uber Eats forced to apologize over issue with Palestinian restaurants on the app
--  Er det fælt med en dyr restaurant på Nasjonalbiblioteket?
--  Opinion: Star Wars movie that just turned seven is the best of Disney's era
--  Prodavačica je prevarila bez imalo grižnje savjesti: ‘Samo me pogledala i naplatila 13 eura više’
--  Tenby ‘fraudster’ found guilty of 27 charges
--  בשירות פוד מלכותו: מי תרים את הכפפה?
--  מועדון האופניים "המסלול" מציעים רכיבה חינוכית ללא עלות למפונים ברחבי הארץ בכל הגילאים
--  חידת השבוע 24-27/12
--  Kommentar zu den Bauernprotesten: Explosiv
--  The best sci-fi movies on Netflix right now
--  Neue Beziehung: Henrik Stoltenberg und Daniel sind ein Paar
--  Forssan kaupunginjohtaja Jari Kesäniemeä ei valittu Paraisten kaupunginjohtajaksi
--  Limerick Celtics plough ahead in Basketball Ireland national league
--  جیل سے رہائی ملتے ہی شیر افضل مروت کا دبنگ اعلان
--  ATP "udario" Novaka po džepu - Đoković zbog SAD ostao bez miliona dolara
--  Mediji: Ako Rusi krenu sa "avangardom"...
--  ADVENDIAEG RIIAS: kas teate, mida tähendavad karstvins ja tirgus?
--  – فرق الرعاية الصحية بسبها تقوم بحملة تطعيمات لمنتسبى مديرية الأمن .
--  Falcao sobre jugar en el fútbol colombiano: Hay que ver la situación del país
--  Yolun karşısına geçen Fulya öldü, sürücü kaçtı
--  Le Conseil National de l’Entrepreneuriat (CNE): Un nouveau souffle pour l’Entrepreneuriat au Sénégal et pour la Diaspora
--  Specijalni sud produžio pritvor Tačiju i Veseljiju
--  Death and fear among civilians in NW Syria amid Assad regime’s bombardment
--  Rettung in letzter Not - Rentner will Schirm von Bahngleis holen, dann rauscht Zug mit 130 km/h an
--  ¿Pega la vuelta a Alianza? Guerrero habría jugado su último partido con LDU, revelan desde Ecuador
--  Coupang quer comprar Farfetch e injetar cerca de 458 milhões de euros
--  Obra de Barata-Feyo resgata memória dos portugueses que lutaram pela França na II Guerra
--  Procesan a sujeto que amenazó y agredió a su madre tras llegar ebrio a la casa
--  Пакет с тело младенца нашли в мусорке в Омске
--  We found cheap last-minute tickets for Phish NYE shows at MSG
--  Lula deu um recado claro de que outras Lava Jatos nunca mais acontecerão, diz Gleisi
--  Taylor Swift’s dad hands out daughter’s birthday cake to fans at Chiefs vs. Patriots game
--  صور.. فلورنتينو بيريز يستقبل إندريك في متحف ريال مدريد
--  Ahora fue al revés: familia agrede a taxista de Saltillo y le hace montón
--  Sri Lanka continues to be an important partner in India s growth story - Lok Sabha Speaker
--  В России могут принять проект о регулировании цен на продукты, включая яйца
--  Clip of ‘Celebrity Wheel Of Fortune’ Winner Matt Rogers Saying “Pat Sajak Sucks” Surfaces And Fans Demand An Apology
--  A cidade que ainda celebra a Saturnália, festa romana milenar que antecedeu o Natal
--  Вице-премьер Рольбинов заявил, что власти не могут влиять на очереди на границе
--  محافظ الأقصر يهنئ الرئيس السيسي بفوزه بالانتخابات الرئاسية
+-  UŽIVO: Protest koalicije "Srbija protiv nasilja": Tepić i Aleksić počinju štrajk glađu
+-  Confederate memorial to be removed from Arlington National Cemetery
+-  Aparatoso choque carretera sobre la Carretera Federal 190
+-  «Был очевиден кризис»: в Кремле назвали успешными усилия властей по стабилизации цен на яйца
+-  Ndjekje filmash në Itali, arrestohet shqiptari i shumëkërkuar
+-  В Курске появился первый семейный многофункциональный центр
+-  Më të mirët 2023/ Gara me “nxënësit” dhe rikthimi te Laçi, rrëfehet Mirel Josa
