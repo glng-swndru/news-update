@@ -1,51 +1,11 @@
 # Latest News
--  Sanjay Dutt's twins Shahraan and Iqra spotted, fans find them resembling their ‘dada dadi’ Sunil Dutt, Nargis
--  Ministerio de Cultura reconoció a instituciones públicas que ejecutaron políticas de lucha contra la discriminación étnico-racial
--  Arbeitspflicht beim Bürgergeld in Vorbereitung – „0 Ahnung von der Lebensrealität“
--  Edeka an Heiligabend: Öffnungszeiten geändert – das müssen Kunden beachten
--  Beliebtester Weihnachtsmarkt Deutschlands ist in NRW – noch vor Berlin und Frankfurt
--  FC Augsburg – Borussia Dortmund: BVB-Star mit deutlicher Ansage an Terzic
--  Unfall bei Sat.1 – Show: Essener Schauspieler Henning Baum in Notaufnahme eingeliefert
--  Hot lại khung hình hồi nhỏ của Kim Yoo Jung và Moon Ga Young: Nhan sắc có khác với hiện tại?
--  Phương Ly và Andree 7749 lần chối đây đẩy chuyện yêu đương: Khẳng định là bạn 10 năm, đàng gái nói 1 câu hậu bị bắt gặp hôn nhau
--  Hoàng Oanh vướng nghi vấn mang bầu lần hai khi diện váy ôm sát: Chính chủ nói rõ lý do!
--  Cao tay như vợ chồng tỷ phú Jack Ma, chẳng mắng nhiều lời mà đưa con từ bờ vực hư hỏng đến con đường học giỏi, tiến bộ
--  NSƯT Kim Tử Long "quên sĩ diện của nghệ sĩ", xin khán giả từ 10.000 đồng
--  Về thăm quê chồng, Doãn Hải My cùng chị dâu của Đoàn Văn Hậu uống trà sữa gắn kết tình cảm, công khai làm một điều lấy lòng
--  Bộ phận của gà bổ sung collagen tốt hơn cả chân, không chỉ đẹp da mà còn bổ sung khí huyết, kéo dài tuổi thọ
--  Cách cô gái 29 tuổi "tiết kiệm không cần nỗ lực": Một cuộc sống "gọn gàng"
--  Nam chính phim Việt giờ vàng nhận bão chê bai vì thói quen khó bỏ, diễn hay tới đâu cũng gây khó chịu
--  Sản phẩm hỗ trợ điều trị trào ngược dạ dày (GERD) đã lên kệ FPT Long Châu
--  Chương trình Chị Đẹp Đạp Gió Rẽ Sóng, cơ duyên nào với TCL?
--  Nghệ sĩ tuồng cổ Xuân Thu qua đời
--  Hàn Quốc có khoảng 540 nghìn thanh niên sống tách biệt khỏi xã hội
--  Hai xe đầu kéo tông nhau rồi bốc cháy trên cao tốc, 3 người thương vong
--  Sức chịu đựng khó tin của Man Utd: Liverpool sút hơn 30 lần không ghi nổi 1 bàn
--  Hậu vệ Man Utd nhận 2 thẻ vàng trong 5 giây chưa phải kỷ lục
--  Soi căn hộ ở Hà Nội của Phương Ly: Thiết kế mộc mạc và truyền thống, trái ngược với tính cách của nữ chủ nhân
--  Ái nữ chuyển giới nổi tiếng vô tình bị “team qua đường” bắt gặp sau gần 1 năm biến mất trên MXH: Nhan sắc hiện tại thế nào?
--  Nam thần màn ảnh Lee Dong Wook bất ngờ “trẻ hoá” giao diện không khác gì idol gen 4, fan hỏi khi nào ra mắt nhóm nhạc?
--  Nữ sinh 13 tuổi lần đầu thi đã "giật" 8.5 IELTS, nhưng nể nhất là mới lớp 8 đã làm được điều đặc biệt này
--  Triệu Lộ Tư - Ngô Lỗi gây bão tại Tinh Quang Đại Thưởng: Đàng trai dùng ánh mắt đắm đuối nhìn đàng gái
--  BST "Jennie for Calvin Klein" lọt top 5 màn collab đỉnh nhất làng mốt 2023, chính chủ còn được khen có "bàn tay Midas"
--  Mỹ nam Hoa ngữ được khen có gương mặt 20 năm nữa cũng vẫn đẹp, nhan sắc ở phim mới làm chị em rung động
--  Vào vai Ahri, gái xinh bùng nổ tương tác, danh tính tưởng xa lạ hoá ra "Thánh nữ cosplay"
--  Đau lòng bé gái qua đời do mắc sốt xuất huyết, nghe diễn biến được người mẹ chia sẻ lại càng thêm xót xa
--  Cần làm gì để tránh trở thành nạn nhân tiếp theo của lừa đảo deepfake?
--  Tranh cãi clip Địch Lệ Nhiệt Ba bị tố giả ngơ, chơi chiêu nhằm gây chú ý trên thảm đỏ Tinh Quang Đại Thưởng
--  Bánh đậu xanh thì ai cũng biết, nhưng cách ăn độc lạ này thì không phải ai cũng hay
--  The Vow 60125: Quà tặng độc quyền giúp bạn duy trì cuộc hôn nhân bền vững
--  Sự cố hi hữu trong đám cưới Đặng Thu Hà: Khách mời làm mất nhẫn phải "mò vàng" trên sân khấu, giờ chưa biết kết cục ra sao!
--  Bí quyết giàu 7 đời của gia tộc sở hữu cây thông Noel khổng lồ ở Mỹ: Con cháu luôn phải giấu kín điều này
--  Khi 40 tuổi, tôi đã không còn muốn mua sắm quá nhiều, tôi sử dụng ít đồ hơn, sống một cuộc sống tinh tế hơn
--  HLV Ten Hag: "MU có thể đương đầu với bất cứ đối thủ nào"
--  Harry Kane thiết lập kỷ lục trong ngày Bayern Munich đại thắng
--  Bão Jelawat đang di chuyển nhanh vào Biển Đông
--  Làng người lùn bí ẩn ở Trung Quốc: Thế giới cổ tích ẩn trong rừng núi đời thực
--  Dân mạng đua nhau làm cây thông Noel từ trái cây, muôn kiểu đẹp lạ
--  Tóc Tiên "đu idol" Maroon 5 thành công, được nhóm nhạc tặng "món quà" đặc biệt ở hậu trường 8Wonder!
--  Cạo gió cần tránh 4 vùng ''cấm kỵ'', ai cũng nên biết để không gặp nguy hiểm
--  Nam ca sĩ "khoe" phạt con, nhận chỉ trích nhiều đến nỗi phải sửa bài, cảnh báo: Đừng ai làm theo tôi nhé!
--  Phở Story collab ADLV "gây sốt", giới trẻ hai miền Bắc - Nam tậu nhanh những chiếc áo đặc biệt
--  Giá vàng lập kỷ lục mới trong tuần này?
--  Demi Lovato vỡ òa khi được bạn trai ca sĩ cầu hôn bằng nhẫn kim cương gần 400 triệu sau màn hủy hôn chấn động
+-  Several MoUs Worth More Than 770 Crores Signed At Annual Adventure Tourism Convention In Gujarat
+-  Australia Announces USD 20 Million Aid To Afghanistan
+-  PM Modi To Inaugurate Second Vande Bharat Train Connecting Varanasi To New Delhi
+-  Тегишли маълумоти ва касб тайёргарлиги бўлмаганларга педагог сифатида ишлаш тақиқланади.
+-  Россия Ўзбекистонга нефт етказиб бериш ҳажмини оширмоқчи.
+-  Сенат 2024 йил учун давлат бюджети тўғрисидаги қонунни кўриб чиқади.
+-  Россияда журналист аёл президентлик сайловида иштирок этиши мумкин.
+-  Ўзбекистон ва БМТ Наркотиклар бўйича бошқармаси ўртасида Афғонистондаги вазият муҳокама қилинди.
+-  Брюсселда Фаластинни қўллаб-қувватловчи оммавий акция ўтказилди.
+-  Venezuela, la hija de 14 años de Paris Fury, madre de siete, luce irreconocible en una foto glamorosa y festiva
