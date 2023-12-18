@@ -1,51 +1,51 @@
 # Latest News
+-  Basket-ball - Élite. Chalon traînard et courageux mais battu à l'Asvel
+-  Dijon. Une Miss France qui veut défendre « les valeurs de la femme »
+-  Saint-Léger-lès-Paray. Percuté après avoir tenté de faire demi-tour sur la RCEA
+-  Charolles. Faïencerie : une mise en liquidation judiciaire pour espérer une sortie de crise
+-  Chalon-sur-Saône. Un motard gravement blessé dans un choc avec une voiture
+-  Chalon-sur-Saône. Pour garder sa liberté, Bernard aura-t-il droit à un vélo pour Noël ?
+-  Basket-ball - Ligue féminine. Charnay signe un incroyable exploit face aux Lionnes de l'Asvel
+-  מכונית התנגשה ברכב משיירתו של הנשיא ביידן, הנשיא לא נפגע
+-  ChargeSini deploys DC chargers at Mydin outlets in Melaka and Penang, priced from RM1.19 per kWh
+-  ‘Mahomes of the league’: NFL superstar’s shock NRL push as Walsh compared to all-time QB
+-  Спортдиректор «Оренбурга» выступил против барьера для иностранных тренеров в РПЛ
+-  台積電熊本廠即將完工，JASM：日本採購比重目標 60%
+-  창원 동전일반산업단지 일대서 무단횡단 보행자 사망
+-  Christy O'Connor's GAA talking points: St Thomas' win perhaps the second-best club game ever
+-  'That's arrogance' - Roy Keane unhappy with Virgil van Dijk's Man Utd criticism
+-  The best in bia blasta: Irish Examiner food writers' restaurants of the year
+-  Galway fire latest in string of suspected arson attacks on properties linked to asylum seekers
+-  Hubo un importante congreso de técnicos y productores en el INTA Rama Caída
+-  حقيقة مشاركة ميسي ورونالدو في كأس العالم للأندية 2025
+-  Abang tawanan Hamas tuduh tentera Israel bunuh adiknya
+-  Pokemon Go players explain the “one good part” of new Party Play feature
+-  الإمارات تدعم قطاع الصحة في أوكرانيا بدفعة ثانية من سيارات الإسعاف
+-  2023학년도 고 1~2학년 마지막 전국연합학력평가 시행
+-  Fueron confirmados los horarios de atención comercial para las Fiestas de fin de año
+-  “방심위 ‘가짜뉴스’ 규제, 국가가 진실 독점하는 위헌적 발상”
+-  [언론계 역사 속 오늘] 1944년 12월18일, 프랑스 ‘르몽드’지 창간
+-  5·18민주화운동진상규명조사위, 조선일보에 감사패
+-  KBS, 수신료 분리징수 이후 미납액 98억…12월 분리고지 본격화
+-  [영상] 정청래 "한동훈 비대위 반대할 이유 없어…그냥 웃는다"
+-  이예원, 처음으로 K랭킹 1위 등극... 박민지 최다 연속 1위 기록 134주로 마감
+-  "가장 무모한 보도"…'토론토 비행기 오보 사건' 회상한 오타니 에이전트, 강력 비판
+-  럭비 15인제 청소년대표팀 귀국…“U-19 아시아럭비챔피언십 준우승으로 마무리”
+-  토트넘 2연승 이끈 손흥민→EPL 폼랭킹 TOP10 선정
+-  태권도원 매출 50억 원 돌파! 개원 10주년 앞두고 '역대 최고 성과'
+-  박보검(ParkBogum) '북극 한파 녹이는 훈훈한 미소'
+-  '125kg' 현역 메이저리거 품었다…삼성 맥키논 떠나보낸 日 세이부, ML 통산 '114홈런' 아귈라 영입
+-  “요란하게 데이트하더니” 켄달 제너, 배드 버니와 10개월만에 결별 “더 이상 커플 아냐”[해외이슈]
+-  '조선의 사랑꾼2' 김국진 "강수지 애칭? 강아지를 강아지라고 부르는 것뿐"
+-  Craft House Chocolate x Beer โครงการ Mode Office
+-  خيارات محلية جيدة أمام الأهلي في ميركاتو يناير
+-  Apa Itu Dry Spells Penyebab Bandung dan Jakarta tak Kunjung Hujan Buat Makin Gerah?
+-  Bailarines sanrafaelinos obtuvieron primeros puestos en una competencia internacional
 -  카카오벤처스, 김기준 신임 대표 선임…"높은 기술 이해도 강점"
 -  KAI 강구영, 재무그룹 신설…책임경영 강화
 -  이광재 "한동훈 비대위원장 세우면 국민과 매일 싸우자는 것"
 -  북한강 인근 대형 카페 속속 등장 … 서울 인접 드라이브 명소로 각광
 -  참이슬·진로 소주 출고가 인하…"내년 1월 1일부터 적용"
 -  한풀 꺾인 서울 아파트값…전문가 "내년엔 상승 가능성"
--  Conciertos y conciertos
--  에스알, VR로 만나는 SRT 경전·동해·전라선 관광 콘텐츠 공개
--  무신사, X세대 여성 위한 '레이지나잇' 서비스 종료…"29CM 역량 집중"
--  KB증권, 해외 투자자 편의성 강화한 '글로벌원마켓 플러스' 오픈
--  '고딩엄빠4' 사귄 지 5개월 만에 임신…"믿었던 母 반대 심했다"
--  هزة أرضية تضرب مدينة إسطنبول
--  Identifican a 8 de las 12 víctimas de masacre en Guanajuato
--  Los cuidados con El Niño
--  Weekend Sunrise Teams Up with Coles for Voucher Giveaway
--  Rams move into an NFC playoff spot after victory over Commanders
--  Troglio: “Motagua no puede decir que nos superaron en el juego”
--  Adani Wilmar Share Price Live blog for 18 Dec 2023
--  Adani Green Energy Share Price Live blog for 18 Dec 2023
--  UFC Gym Australia collapses into liquidation owing millions
--  Dr. Steve Mark Gan and His Company GAOC Group of Companies Claim Victory at the Asia Pacific Enterprise Awards 2023 Regional Edition
--  IDS Medical Systems Philippines, Inc.'s Corporate Excellence has been Acknowledged at the Asia Pacific Enterprise Awards 2023 Regional Edition
--  Viettel Powers India's Industries with Cutting-edge Private 5G
--  CATL의 Shenxing 배터리, AUTOBEST 2024 수상
--  IDFC Share Price Live blog for 18 Dec 2023
--  Journey of Art เพิ่มโอกาสเข้าถึงศิลปะ
--  Bandhan Bank Share Price Live blog for 18 Dec 2023
--  Nahda Hareketi: Tunus'un ekonomik ve siyasi kurtarma planına ihtiyacı var
--  GANDHAR OIL Share Price Live blog for 18 Dec 2023
--  Alkollü sürücü ters şeride girdi, dehşet saçtı: 4'ü ağır 8 yaralı
--  President urges political leaders to act responsibly over IMF program
--  বারবার সুযোগ পেয়েও ব্যর্থ ‘সৌম্য’
--  옵스나우, AI 서비스 ‘옵스나우 인사이트’ 공개
--  인공지능 보험 진단 ‘보닥’, 크리스마스 이벤트 개최
--  한국폴리텍대학 부산캠퍼스, MS 클라우드 AI 교육 프로그램 론칭
--  Upl Share Price Live blog for 18 Dec 2023
--  비투엔, ‘2024 데이터바우처 지원사업’ 공급기업 선정
--  퀸텟시스템즈, 클라우드 기반 CX관리 솔루션 ‘CALS 멤버십’ 출시
--  Bajaj Finance Share Price Live blog for 18 Dec 2023
--  VS en VK roepen Hongkong op tot vrijlating mediamagnaat en activist Jimmy Lai
--  Sovereign Gold Bond Scheme: આજથી સસ્તામાં ખરીદી શકાશે સોનું, સરકાર આપી રહી છે સુવર્ણ તક, જાણો વિગતો
--  Riquelme vence eleição e é o novo presidente do Boca Juniors
--  Paytm Share Price Live blog for 18 Dec 2023
--  চয়নিকার নির্মাণে শাবনূরের কামব্যাক, নায়ক মাহফুজ
--  Hindustan Construction Company Share Price Live blog for 18 Dec 2023
--  검찰 직격한 송영길 “100명 넘게 압수수색, 사람 죽기도”
--  Riset Mastercard Prediksi Konsumen Alokasikan Anggaran Lebih untuk Belanja di 2024
--  올해 60세 이상 취업자, 처음으로 40대 앞지를 듯
--  Hindustan Unilever Share Price Live blog for 18 Dec 2023
--  Tráfico se complicará durante la semana previa a la Navidad
+-  «Ganó Riquelme ¿el peor resultado para Javier Milei?» por Juan Postararo
+-  Българин съдия на световното по плажен футбол
