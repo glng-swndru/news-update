@@ -1,51 +1,51 @@
 # Latest News
--  Banki nie akceptują bezwarunkowej konwersji wierzytelności na nowe akcje Rafako
--  Left in blood: How a Michigan cold case was solved, 35 years later
--  الكويت تلقت تعازي زعماء العالم بفقيدها الكبير
--  Белый дом: возможность перемирия и обмена заключёнными в Газе не гарантирована
--  Rechaza Nieto denuncia de lavado; acusa fines políticos
--  Planea Ferrari conservar dupla Leclerc-Sainz hasta 2027
--  Atacan rebeldes hutíes buques en el mar Rojo
--  Débil, tráfico de viajeros aéreos
--  Presenta Putin documentos para postularse a reelección
--  GARRIOCH: Senators coach D.J. Smith fired with club in midst of four-game losing skid
--  زيزو وعمر جابر ينتظمان في التدريبات الجماعية للزمالك
--  Protege tus datos: nuevas normativas de privacidad en el 2024 en Perú
--  Ukraine general criticises firing of recruitment chiefs
--  Notable moments that coloured entertainment industry in 2023
--  مشعل الأول
--  Šta su načelnici uradili za tri godine: Brojna neispunjena obećanja
--  صاحب السمو يتلقى برقيات تعزية من رؤساء وملوك و«الأوروبي» و«التعاون الإسلامي» والسيستاني
--  Hundreds of millions spent on agency nurses as NSW health districts struggle to keep staff
--  فريق لجنة التفتيش ينفذ عملية نزول ميداني إلى معسكر قيادة اللواء الرابع مقاومة بالضالع
--  “水平線からのぼる初日の出を” 海岸に鳥居設置 静岡 掛川
--  Biocon Biologics Concludes Integration Of Acquired Biosimilars Business In 120 Countries
--  Ebix's Agreement With Zinnia Lays Out Expeditious Path For Debt Repayment
--  Newgen, Evalueserve To Make Its Corporate Lending Process Vast
--  CAF to enforce restriction of AFCON streaming
--  Fonavi: Link de la lista de beneficiarios que cobrarán este 21 de diciembre
--  Gwen Stefani pairs glamorous blowdry and make-up with casual plaid top and baggy blue jeans for dog walk in Los Angeles
--  سفارات الكويت في الخارج... تواصل استقبال المُعزّين
--  Terugblikken op een bewogen (werk)jaar: ‘Waar ben je trots op, en wat heb je verklooid?’
--  Botjes en graten: dit kun je doen bij verslikking tijdens het kerstdiner (en zo voorkom je het)
--  Ivanković: Ovo više nisu igrači nego superjunaci
--  وزیراعلیٰ سندھ کا طیارہ کئی ماہ سے دبئی میں مرمت کا منتظر
--  ACETI, Anthony 'Tony'
--  ΣΥΡΙΖΑ-ΠΣ: Η εξεταστική επιτροπή για τα Τέμπη «δεν θα γίνει πλυντήριο κανενός»
--  ΠΕΤΡΑΚΗΣ: «Να αποκτήσουμε συναισθηματική σταθερότητα που δεν θα μας βγάζει από το πλάνο μας»
--  Homem é detido por suspeita de ameaçar companheira com faca em Volta Redonda
--  Éric Dupond-Moretti remet 142 drones issus de saisies judiciaires à la préfecture de police
--  Eriksens råd til kollapset Luton-anfører: Lyt til lægerne
--  Rama dështon të hapë negociatat në Bruksel por bën festë e paga shtesë në Tiranë
--  SAP : Update zu Finanzberichterstattung und Forderungsfinanzierung 2024
--  Camionistas polacos voltam a bloquear fronteira com a Ucrânia
--  Larissa Manoela e André Luiz Frambach se casam e atriz se declara: 'Estamos destinados a ser'
--  Liveblog zum Krieg in Nahost: Israel plant "schrittweise" nächste Phase im Gazakrieg
--  Farming family's 20-year battle with govt over 'crucial' error
--  ER overcrowding is putting patient health at risk, Quebec doctors say
--  Winnipeg Blue Bombers sign all-star guard to one-year deal
--  Svećenike u Đakovu uznemirio program za Advent: Jedan čak stao pred kamion, ‘možeš samo preko mene’
--  «Ασθενοφόρο γρήγορα»! Οι δραματικές συνομιλίες στον ασύρματο μετά την καταδίωξη στον Ασπρόπυργο που «κόστισε» τη ζωή αστυνομικού
--  Mohamed Kordofani, Writer-Director of Sudanese Oscar Entry ‘Goodbye Julia,’ on Racism, Teargas and Thinking Big
--  «الحويج» يبحث أوجه التعاون بين وزارة الاقتصاد والأكاديمية الليبية للدراسات العليا
--  سمو الأمير وآل صباح استقبلوا المُعزّين بفقيد الوطن
+-  باتيلي لـ مجلس الأمن: بعض المسؤولين في ليبيا يتمسكون بمقاعدهم ويعطلون الانتخابات
+-  Final electric-vehicle mandate to come Tuesday, sales must double by 2026
+-  Actualité : Le capteur de présence FP2 d'Aqara utilise désormais les ondes millimétriques pour suivre le sommeil
+-  Christodoulides hails opening of Sports Ethics Committee’s new offices
+-  Joan Laporta zapowiedział jeszcze jeden zimowy transfer Barcelony. „Jest taki pomysł”
+-  Temporal en la provincia de Buenos Aires: suspenden las clases de este martes
+-  Soma Mamagésa 10 éve él monogám kapcsolatban, előtte csapongott – videó
+-  Vivienda se inunda por desagüe y genera pérdidas a comerciante de Huancayo (VIDEO)
+-  الخبير الفلاحي لـ"عربي21": النفق أثبت فشل الاحتلال.. تحدث عن مسار حرب غزة
+-  Cumhurbaşkanı Erdoğan, Türkiye-Macaristan Kültür Yılı Açılış Programı'na katıldı
+-  İsrailli esir: İsrail ordusunun kurbanı olmak istemiyoruz
+-  Hakkari'de terör operasyonu
+-  BM: Myanmar'da insani durum kötüleşti
+-  »Marktheidenfeld 2023 - der positive Rückblick«
+-  Insolvenzverwalter rückt die Schlüssel nicht raus
+-  Überrascht vom Besucherzuspruch
+-  Weitere Termine für Krimikeller-Stück
+-  Lebende Krippe wärmt Herzen der Besucher
+-  Wichtiger Baustein für die Gesellschaft
+-  Schulverband spart bei Fassade
+-  Bodenaushub in der Marktheidenfelder Ludwigstraße
+-  Halle in Karlstadt ist bereit
+-  Es bleibt beim Nein zu drei Windrädern
+-  Fotor Unwraps Festive Delights: AI-Powered Christmas Event Set to Illuminate the Season
+-  حدث في 8 ساعات| السيسي رئيسًا لولاية جديدة.. ويصدق على أول قراراته
+-  إليك ما تفعله مشاهدة التلفاز بإفراط لصحة رئتيك.. لن تتوقع
+-  بعد انتهاء الشوط الأول سلبيا.. توقعات الأبراج لمباراة الأهلي وفلومينينسي في كأس العالم للأندية
+-  Scoppia l'incendio alla festa di Natale, evacuata la scuola
+-  Sérsveitin yfirbugaði konu í Bæjarhrauni – Flutt á slysadeild
+-  Mega važna pobjeda Splita protiv Mege
+-  Gabriel Lage presentó su nuevo atelier
+-  Feriado por Navidad: Empresas pagarán triple por trabajar feriado
+-  Strictly’s Ellie Leach declares ‘love’ for partner Vito Coppola after big win
+-  Costcos på väg mot ett börsvärde på över 300 miljarder dollar
+-  Hårdt angreb på Melania Trump: - Næsten bedragerisk
+-  Okan Buruk'tan flaş Avrupa Ligi değerlendirmesi: 'Bunlar şu an bizim için hayal'
+-  Bid to boost tax break for volunteer firefighters as brigades struggle with retention
+-  OFICJALNIE: Znamy plany Śląska Wrocław na zimową przerwę w rozgrywkach
+-  Husten in der Nacht: So lindern Sie ihn
+-  ¿Cuándo y dónde River y Rosario Central disputarán el Trofeo de Campeones?
+-  Book Review: Muhammad- The Prophet Of Islam by K.S. Ramakrishna Rao
+-  Thalassothermie à La Grande-Motte : c’est parti pour deux ans de travaux
+-  Navaľného "zmiznutie" znepokojuje expertku OSN, Moskvu žiada o okamžité prepustenie
+-  12 Celebrities Who Got Nose Jobs for Cosmetic or Medical Reasons (Including 2 'Friends' Stars, a Disney Star & More)
+-  Incendie au dépôt d’hydrocarbures de Kaloum : cette importante note d’informations….[Moulouk Souleymane Keita]
+-  POZOR na mleté bravčové mäso: Kontrolóri našli baktériu salmonely! Ide o šaržu zo známeho reťazca
+-  Poslanec SaS sa zbláznil: V jednej bunde chodieva dvadsať rokov, pozrite sa na to mladé ucho na FOTO!
+-  V šatách z 19. storočia našli záhadný odkaz: Vedci ho konečne dešifrovali! Odhalil prekvapivý príbeh
+-  STRAŠNÁ SMRŤ Zabil ho vlastný KAMIÓN! Desivé DETAILY a zúfalé slová manželky: TOTO si nezaslúžil, vnúčika už NEUVIDÍ
+-  GOP lawmaker calls Haley 'a brunette Liz Cheney'
