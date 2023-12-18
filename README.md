@@ -1,51 +1,51 @@
 # Latest News
--  Ungewöhnlicher Unfall in Werne: E-Scooter und Pedelec prallen zusammen, 16-Jähriger verletzt
--  হলান্ডদের নিয়ন্ত্রণে ব্যর্থ হওয়ায় ম্যান সিটিকে বড় অঙ্কের জরিমানা
--  Why is Below Deck Med Season 8 breaking for two weeks? Schedule explained
--  गाली का बदला लेने के लिए हत्या: ईंट से ताबड़तोड़ वार कर उतारा मौत के घाट, घर में घुसकर दिया वारदात को अंजाम
--  Delhi: इंद्रलोक मेट्रो स्टेशन हादसे के मामले में एक्शन मोड में केजरीवाल सरकार, DMRC से मांगी रिपोर्ट
--  Aligarh News: अकराबाद के युवक की मुंबई में हुई मौत
--  जुल्म सहना, जुल्म करने से बड़ा पाप है : चढ़ूनी
--  Aligarh News: कासिमपुर की पोखर के अवैध कब्जे हटवाए
--  Saharanpur News: अत्यंत कुपोषित बच्चे 4454, दुधारू गाय मात्र एक
--  Saharanpur News: छेड़छाड़ और मारपीट के दोषी को तीन वर्ष का कारावास
--  Saharanpur News: छह डिग्री हुआ न्यूनतम तापमान, सर्दी से ठिठुरे लोग
--  Bizaran eksperiment 'dokazao' da ljudi čuju razliku između tople i hladne vode: Evo i kako
--  Maharajganj News: सार्वजनिक शौचालय बदहाल, खुले में शौच कर रहे लोग
--  Maharajganj News: भाग रहे पशु तस्करों के वाहन के पहिए में मारी गोली, तीन पकड़े गए
--  Maharajganj News: पेट्रोल भराने को लेकर हुआ विवाद, लूट की दे दी सूचना
--  Maharajganj News: लोगों ने ऑक्सीजन का समझा मोल, आंगन बना बगीचा
--  Maharajganj News: समेकित विशेष माध्यमिक विद्यालय के संचालन में जिम्मेदारों ने ओढ़ी उदासीनता की चादर
--  Maharajganj News: केदारनाथ की फितरत में है जालसाजी बार-बार अपने गांव वालों को भी ठगा
--  Panchkula News: शिअद व संयुक्त अकाली दल में गठजोड़ के आसार बढ़े, ढींडसा बन सकते हैं कार्यकारी अध्यक्ष
--  Panchkula News: पीएसईबी कक्षा 6वीं से 8वीं तक की अंग्रेजी, साइंस और गणित की किताबों का करेगा रिव्यू
--  Bharatpur News: अनियंत्रित कार पेड़ से टकराई, दो की मौत
--  Bharatpur News: कंटेनर ने सड़क किनारे खड़े लोगों को रौंदा, 2 महिलाओं की मौत, 3 घायल
--  Charkhi Dadri News: 15 गांव जोड़ने से 30% पहुंचा शहरी फीडरों का लाइन लॉस
--  मोदी का सपना है कि विश्व का नेतृत्व भारत करे : राजीव
--  Budaun News: दूध के दो नमूने जांच के लिए भेजे
--  Selimbegovic soll Hansa retten: Rostocker stellen Ex-Jahn-Coach als neuen Cheftrainer vor
--  Fatehpur News: चार किमी सड़क का मिटा नामोनिशान
--  Kaithal News: अटका बजट जारी, होगा विकास
--  Fatehpur News: कम छात्र उपस्थिति वाले स्कूलों पर होगी कार्रवाई
--  Kaithal News: पात्र सिख मतदाता सूची में तीन जनवरी तक करा सकते हैं नाम दर्ज
--  Fatehpur News: ओवरब्रिज के बीम में फंसा कंटेनर, लगा जाम
--  Kaithal News: मारपीट और तोड़फोड़ में चार पर ­केस
--  Fatehpur News: ओमान में पासपोर्ट कर तीन हिंदुओं को बनाया बंधक (संशोधित)
--  Kaithal News: अनाज मंडी चीका की दुकानों में चोरी
--  Kaithal News: बाइक चोरी के मामले में आरोपी गिरफ्तार
--  Kaithal News: नशे के खिलाफ किया जागरूक
--  Kaithal News: विधायक ने विस में उठाया फोरलेन में देरी का मुद्दा
--  Jalandhar News: ड्रग केस में मजीठिया एसआईटी के सामने पेश, कहा- सरकारी मशीनरी का हो रहा दुरुपयोग
--  Kaithal News: यूनेस्को में शोधपत्र प्रस्तुत करेंगे डॉ. संदीप सिंहमार
--  Jalandhar News: अमृतसर में दो साल के लिए शहर से कटा सिविल लाइन इलाका, रीगो ब्रिज बंद
--  Kaithal News: मांगों-समस्याओं पर कर्मियों ने की बहस, सौंपा ज्ञापन
--  Jalandhar News: चोरी करके घर में आग लगाने से बुजुर्ग दंपती की मौत के मामले में दो को उम्रकैद
--  Kaithal News: आढ़तियों ने मांगी आढ़त और मजदूरी
--  Kaithal News: शांति के दीप जमाने में जला दो, रावण न कोई आए इधर रेखा बना दो
--  الخارجية الأمريكية: نتوقع من إسرائيل التحقيق لمحاسبة المسؤول عن استهداف الصحفيين بغزة
--  كشف حيلة صاحب شركة ملابس لغسل 50 مليون جنيه بالقاهرة
--  Kaithal News: नगर कीर्तन निकालकर मनाया शहीदी दिवस
--  الأمن يحل لغز اختفاء طفل العجمى
--  Varanasi News: सिंहली उपन्यास मडोल दूव का हिन्दी अनुवाद लोकार्पित
--  Varanasi News: मेन पाइपलाइन लाइन अधूरी, 23 हजार घरों में पीएनजी का इंतजार
+-  Suudi Arabistan ve ABD dışişleri bakanları görüştü: Gündem Gazze
+-  Premier Lig devi Sacha Boey için geliyor! Galatasaray'a dev bonservis
+-  Aktif rolüne dikkat çekti: Bölgede en fazla firmayla faaliyet gösteren ülke Türkiye
+-  Boğaziçi Üniversitesi Spor Ödülleri sahiplerini buldu
+-  Fransa'dan Gazze'ye 700 tonluk insani yardım
+-  ‘Yellowstone’ Star Cole Hauser Just Launched a New Bourbon Brand
+-  Pääkirjoitus: Ole ihminen jouluna ja muulloinkin
+-  RSF enters Sudan aid hub city where many were displaced
+-  Делян Добрев призна, че гласувал "против" Бюджет 2024
+-  Actor Jonathan Majors found guilty of assaulting his former girlfriend in car in New York
+-  Bešić u Utisku nedelje: Opozicija nije bila u stanju da obezbedi kontrolu izbora iako je to obećala
+-  Kickoff | Tau's Al Ahly denied Club World Cup final spot
+-  طلاب قسم العلوم السياسية بجامعة عدن ينفذون جلسة محاكاة لانعقاد مجلس الأمن الدولي
+-  La prensa británica destaca el complejo de misiles ruso Avangard como "única arma de este tipo”
+-  Golob o govoricah o odstopu: »Bolj ko se o tem govori, bolj sem motiviran za delo«
+-  RAZORNI ZEMLJOTRES U KINI, NAJMANJE 8 MRTVIH: Spasioci tragaju za zarobljenima ispod ruševina! (VIDEO)
+-  Rekorddrágán épülhet autópálya: a kormány 170 helyett 400 milliárdot szánna egy 44 km-es szakaszra
+-  ‘It will be a tough ask’: Stricken town’s plea for help as flood rescue drags on
+-  إن بي سي الأمريكية: مسؤولون يعربون لبايدن عن قلقهم من استيراتيجية نتنياهو في غزة
+-  هجمات غير متوقعة وتعثرات يواجهها مواليد هذه الأبراج في آخر 10 أيام من 2023
+-  الخارجية الأمريكية: دخول أولى الشاحنات المحملة ببضائع تجارية إلى غزة منذ بدء الحرب
+-  La UE acuerda los estándares de reducción de emisiones para coches Euro 7 para 2027
+-  La UE acuerda los estándares de reducción de emisiones para coches Euro 7 para 2027
+-  Giant bacterium uses unique processes to power itself
+-  21 last-minute gifts at Amazon that are on sale and arrive before Christmas Eve
+-  STROGI USLOVI ZA SUROGAT-MAJKU ŠERIFOVIĆKINOG SINA! Jedno pravilo će vas ŠOKIRATI, a ovako je Verica reagovala na upoznavanju...
+-  مشهد مرعب.. عاصفة عاتية تزيح طائرة في مطار بهذه الدولة
+-  عاجل.. منصة مدرستي.. أسباب مشكلة تسجيل الخروج التلقائي وأسرع حل
+-  Justice O’Connor, the First Woman on the Supreme Court, Lies in Repose
+-  Piletić: Nemamo puno prilika za odmor
+-  Criminosos matam cães de guarda, rendem vigilante e arrombam cofre no Sul de SC
+-  Spięcie posłanek w studiu TVP Info. Pokłóciły się o Miłosza Kłeczka
+-  Čavle imaju novi proračun, jednoglasno je usvojen i svi ga hvale: “Nema novih nameta”
+-  Jonathan Majors found guilty of assaulting his then-girlfriend Grace Jabbari inside a hired car
+-  La primera vuelta al mundo de Magallanes y Elcano contada a través de los Playmobil
+-  Една от любимите фрази на Путин разкрива защо той нападна Украйна
+-  Brasil quer Putin na cúpula do G20 em 2024, diz Celso Amorim
+-  Jammu News: मवेशी चोर गिरोह का भंडाफोड़, पांच आरोपी चढ़े पुलिस के हत्थे
+-  Richmond craftsman drives nostalgia home with vintage creations
+-  Gurugram News: बीमा पॉलिसी ठीक कराने के नाम पर 1.97 करोड़ रुपये की ठगी
+-  Engavetamento na BR-101 em Itajaí provoca filas quilométricas na rodovia
+-  "Queremos ir a por los que tenemos por arriba en la clasificación"
+-  Fake Group of Seven sketches the focus of new Vancouver Art Gallery exhibit
+-  نيران المقاومة تلتهم جنود الاحتلال وآلياته
+-  News24 | Here are the Daily Lotto numbers
+-  Maailman suurimmat huulet? Andrea Ivanova on hämmentävä näky
+-  Muzaffarnagar News: सगे भाई पर डेढ़ साल तक दुष्कर्म करने का आरोप, एसएसपी से शिकायत
+-  Barabanki News: विकास भवन में लगी आग, एनडीआरएफ ने किया मॉकड्रिल
+-  Баитлонистка Сола: желание возобновить карьеру вернули дети
+-  Haz tu carta a Santa Claus con IA; así puedes hacerlo
