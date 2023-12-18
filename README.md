@@ -1,11 +1,11 @@
 # Latest News
--  Πρόπτωση πυελικών οργάνων
--  Chevrolet tries to cut into Causeway bus lane, gets bumper smashed by huge truck
--  Achtung bei Weihnachtsfeiern: beliebte Süßigkeit zurückgerufen – es drohen innere Blutungen
--  News24 Business | Kempton Park ponzi scheme: Financial watchdog hits 'advisor' with R143m fine
--  Anzeige – Weihnachtlicher Postcode Lotterie-Wahnsinn in Wesel: Katarina Witt verteilt 1,4 Millionen Euro an 578 Glückspilze
--  5 Safest Cars in 2023 : 'या' भारतातील 5 सर्वात सुरक्षित कार; तुम्ही कोणती कार खरेदी कराल?
--  NHRC Registers Case On Degradation Of Jagannath Sagar In Odisha’s Jeypore
--  N1 komentar: Habijan još nije ni postao ministar, a već ga očekuje značajan problem
--  Karachi Building Collapse: Cylinder Blast in Machar Colony, 2 Dead, 8 Injured
--  Preço do combustível volta a descer na Madeira
+-  حركة بذيئة لمذيعة شهيرة على الهواء.. فيديو جديد يكشف ما فعلته
+-  تراجع أسعار الحديد في الأسواق اليوم الاثنين (موقع رسمي)
+-  ‘Baksuz al ga volem‘: Vučićeva savjetnica objavio video iz izbornog stožera, neviđeno mu se ulizuje
+-  Yeşilçam Filmlerini Sönük Bırakacak 100 Milyonluk Miras Davası! Anne ve Oğlun Gerçek Babaları Farklı Çıktı
+-  La semaine des Français en NBA : la dernière fois que Killian Hayes a gagné un match, Napoléon vivait encore
+-  NALAZI SU JAKO LOŠI! Stravična ispovest bivše rijaliti učesnice: Ono što sam ja videla, mnogi nisu ni u horor filmovima
+-  Give FT minister time to consider local election proposal: Fahmi
+-  Muttaqi meets China’s special envoy, calls for Mes Aynak project to start
+-  Pilsnerraggarna tävlar om Gyllene Venlan – ”Vi är som Alma Pöysti”
+-  Україна знищила важливу вогнеметну систему РФ: деталі від ССО
