@@ -1,51 +1,11 @@
 # Latest News
--  Uzman doktor dişlerde renklenme ve çukurlaşmanın sebebini açıkladı
--  Bakan Tekin sert açıklamalarda bulundu: Terör örgütünü destekleyen milletvekilleri var
--  İran'da eğitim çevrim içi yapılacak!
--  Trabzonspor yarın İstanbulspor'la karşılıklı mücadele verecek
--  Serenay Sarıkaya'dan 'Ateşe düştüm' itirafı!
--  AK Parti'den asgari ücret mesajı
--  منتزه حريملاء يستقبل الزوار بـ 200 ألف شجرة جديدة و37 غزالًا
--  هذه المشروبات تزيد من خطر الإصابة بسرطان المريء
--  أسعار العملات اليوم الاثنين.. الإسترليني يُسجل 4.76 ريالات
--  عاجل.. كل شيء عن شركات الدفع الآجل.. وفتوى الخثلان تكشف سرها
--  [의료24시] 보라매병원, 2023 공공의료 성과보고회 최우수기관 표창 수상
--  [부고] 분당서울대학교병원 정형외과 이영균 교수 부친상
--  Tanah runtuh Puchong: Tiada pergerakan sigfikan dikesan
--  Britanski diplomata kidnapovan u Ekvadoru
--  Taylor Swift Dropped $1200 on Vintage KC Chiefs Gear
--  S. Korea, US stage joint special operations forces drills
--  Israel launches fresh strikes on Gaza as UN nears vote on aid
--  Opposition grows in DPK against ex-prime minister's push for new party
--  Avvio di settimana cauto per le Borse europee
--  한국핀테크지원센터, ‘금융클라우드 지원사업’ 추진
--  Tata Power Secures Rs 418 Crore Order From NTPC, Sparks 1.5% Stock Surge
--  Indian Space Startups Witnesses Rs 1,000 Cr Investments in Last 9 Months: Jitendra Singh
--  New Year 2024 – What Stars Foretell About Twelve Signs
--  China Allegedly Using TikTok For Disinformation In Taiwan Elections: Report
--  OnePlus 12 May Debut In India In January 2024
--  Anuncian el regreso de la Copa Intercontinental
--  Celebración operística en el Teatro del Bicentenario
--  Inversionistas piden planes de desarrollo en el sector inmobiliario
--  Knee injury hasn't changed Smith's commitment to Dogs
--  Knee injury hasn't changed Smith's commitment to Dogs
--  ‘Ada benda terkeluar di bahagian tulang belakang’ – Zamani
--  Нужен серьезный задел. Какие сферы сотрудничества Лукашенко предложил развивать с Московской областью
--  CPR·화재대피 훈련 했더니 … 체육시설 매출 늘었다
--  우즈 부자, 찰떡 호흡으로 공동 5위
--  Белорусские пляжники разгромили ЦСКА на сборе в Санкт-Петербурге
--  철벽 김민재 1골 1도움 "괴물 맞구나"
--  [ GS칼텍스배 프로기전] 여왕과 2인자
--  한국증권금융, 아동청소년 복지 공모사업 지원
--  오늘의 운세 2023년 12월 19일 火(음력 11월 7일)
--  Ashley Graham im "Love Want"-Magazine: Dieser Transparenz-Look löst nackte Begeisterung aus
--  Ρήξη χιαστού ο Αλάμπα: Χάνει τη σεζόν και το Euro
--  ہمیں نظرکھا گئی اور شاید ہم خود بھی اپنے آپ سے مخلص نہیں، نواز شریف
--  गिरीश महाजनांचे सलीम कुत्तासोबत संबंध, एकनाथ खडसेंचा गंभीर आरोप; विधानपरिषदेत फोटो दाखवत राजीनामा देण्याची मागणी
--  亞太근골격종양학회 차기회장에 정양국 교수
--  정갑윤 교직원공제회 이사장
--  [포토] 한국공인회계사회, 연탄 24만장 쾌척
--  서울고 자랑스러운 서울인상 이하경 대기자·김덕상 대표
--  한국이미지상에 제네시스·팝페라 가수 임형주
--  '하드록 전설' AC/DC 드러머 콜린 버지스 77세로 사망
--  Mumbai Indians : आयपीएल लिलाव उद्या अन् आज मुंबई इंडियन्सला चक्क श्रद्धांजली वाहण्याचा ट्रेंड! रोहितचा डाव अंगलट येणार की काय??
+-  Double trouble! Ranveer Singh launches his wax statues at Madam Tussaud`s
+-  اس تصویر میں کتے کے رخ کا اندازہ لگانا بہت حیران کن ہے
+-  Επεισόδιο ενδοοικογενειακής βίας στη Χαλκίδα: Άνδρας κατήγγειλε τη σύντροφό του για ξυλοδαρμό
+-  Bill To Amend Some Provisions Of Trai Act Introduced In Lok Sabha
+-  Roban el Niño Jesús del belén de un pueblo de Alicante y piden en redes un rescate de 2.000 euros
+-  Setlere Ara Verdi: Ünlü Oyuncu Mesleği Olan Veterinerliğe Geri Döndü!
+-  ردا على إجراء مماثل من تشاد.. السودان يأمر ثلاثة دبلوماسيين تشاديين بالمغادرة
+-  삭스 슈즈 신경전이 벌어졌다
+-  Pilihan raya Presiden Indonesia: Gandingan Prabowo, Gibran terus mendahului
+-  Rishab Shetty adopts govt Kannada school in hometown Keradi
