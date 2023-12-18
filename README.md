@@ -1,51 +1,51 @@
 # Latest News
+-  En Ahome el alcalde toca de nuevo tema del retén del Poblado 7; esperan respuesta de la FGR
+-  Miles Bridges interdit d’entrer au Canada avant le match Raptors – Hornets
+-  'Nah, we’re just three Māori boys' wins Quote of the Year 2023
+-  ’20-Year-Old Lady Is Too Young For Me To Date’ – Billionaire Son, Paddy Adenuga
+-  À Guingamp, les étudiants de Notre-Dame font un don de 1 414 € à la PLB Muco
+-  Fans belohnen Talent Oliveira (19) nach Startelf-Debüt in Nürnberg
+-  The 4th most miserable city in the U.S. is right here in NJ
+-  GPUs Intel Gaudi 3 serão mais rápidas que Nvidia H100 e AMD MI300X
+-  Em testes, vacina em pó protege contra covid-19 por até 1 ano
+-  Matthew Perry died of 'acute effects of ketamine'—what you need to know about the drug
+-  AMERIČKI MINISTAR ODBRANE SIGURAN: Podrška SAD pravu Izraelu da se brani je nepokolebljiva
+-  В Полоцком районе фура насмерть сбила мужчину
+-  "Salta tutto", stop improvviso a Flavio Briatore: un mistero in Rai
+-  Winter Sports Safety: Tips to Prevent Injuries While Enjoying the Season
+-  How shortened telomeres heighten risk of serious lung disease
+-  Destructoid’s award for Best Indie game of 2023 goes to…
+-  Dan 24 horas a la Jueza Valentina Meléndez para revocar resolución en contra de César Duarte
+-  La plataforma de Gorroño señala como «sorprendente» que PNV y EH Bildu formen Gobierno en Gernika
+-  Minister chokeret over nye tal om barnebrude: »Det er statsautoriseret pædofili«
+-  Minister chokeret over nye tal om barnebrude: »Det er statsautoriseret pædofili«
+-  Dutzende Tote nach schweren Unwettern in Südamerika – Video zeigt, wie Wind ein Flugzeug bewegt
+-  Peterborough officer draws stun gun after report of woman with hatchet at outdoor rink
+-  Őrült meccsen verte meg a világ egyik legjobb csapatát a magyar pólóválogatott
+-  Lavrov: Rusia nuk ka ndërmend të sulmojë vendet e NATO-s
+-  Kostić: Ovi izbori su detaljno osmišljeni kao eksperiment, čije ćemo rezultate razumeti kasno
+-  Úrad pre dohľad nad zdravotnou starostlivosťou schválil navrhovaných kandidátov do predsedníctva VšZP
+-  السوداني يشير لكركوك: أبرز صور نجاح الانتخابات
+-  Discovery unveils promising anticancer drug targeting KRAS protein
+-  Медики научили ИИ диагностировать аутизм по фото детских глаз
+-  Researchers create genetic atlas detailing early stages of zebrafish development
+-  Canada adds Boston Bruins rookie Matthew Poitras to world junior roster
+-  La liberación de Taguasco: flama libertaria rebelde
+-  Nurse aide turnover linked to scheduling decisions
+-  UHAPŠEN PIJANI VOZAČ U teškom sudaru u Banjaluci povređene 3 osobe, među njima 2 maloletnika
+-  Putin: la eficiencia de la Ruta Marítima del Norte supera la del canal de Suez
+-  Likwidacja "ideologicznego" przedmiotu szkolnego. Lubnauer wskazuje, co w zamian
+-  В России скончался Пухляш Дмитрий Красилов
+-  Latest Galaxy S24 Ultra leaks detail camera upgrades, ‘far better’ titanium than iPhone, more
 -  Bursa'da zincirleme kaza: Ölü ve yaralılar var...
 -  Galatasaray, yıldız oyuncuyu gönderiyor
+-  Parejas homosexuales: El Vaticano admite bendecirlas por primera vez, pero sin considerarlas matrimonio
+-  انتخابات میں دھاندلی پرمزاحمت کریں گے،حافظ نعیم الرحمن
+-  Verzekeraar keert niet uit, omdat ongeluk mogelijk opzettelijk was
+-  Court Restrains Buhari’s Ex-Minister, Tallen From Holding Public Office
+-  Jeremy Renner’s ‘musical diary’ will drop one year after his snowplow accident: ‘Story of life, death, recovery’
+-  Russische tennist finale tegen man nadat Oekraïense tegenstander weigert: ‘Dacht dat het een grap was’
+-  Snažan zemljotres pogodio Kinu
 -  Girona aprova la rebaixa del contracte de la neteja amb crítiques de l’oposició
 -  కలెక్టరేట్‌ వద్ద ఉపాధి ఫీల్డ్‌ అసిస్టెంట్ల ధర్నా
--  వైసీపీ పాలనలో విసిగిపోయిన ప్రజలు
--  Mariah Carey’s ‘All I Want for Christmas Is You’ Scores Record-Breaking 16th Week at No. 1 on Billboard Global 200 Chart
--  Bolivia participó en la celebración de los 10 años del programa de Huawei Semillas
--  Úrad pre dohľad nad zdravotnou starostlivosťou schválil navrhovaných kandidátov do predsedníctva VšZP
--  Nuoret Leijonat saa heti vastaansa kovan luokan NHL-tähden
--  Abdo en tanque militar, al carajo de un barco, en paracaídas: hechos vs. circo
--  అంగన్‌వాడీలకు అండగా ఉంటాం : ఎమ్మెల్సీ ఐవీ
--  ‘గరిమెళ్ల’ ఆశయ సాధనకు పాటుపడాలి
--  الحرب على غزة.. هذه تفاصيل مؤتمر غالانت وأوستن في "إسرائيل" (شاهد)
--  సమగ్ర శిక్ష ఉద్యోగుల పెన్‌డౌన్‌
--  Em preparação para o Mundial de Clubes, Bernardo Silva revela admiração por Abel Ferreira
--  Corinthians encaminha renovação do empréstimo de Maycon por mais um ano
--  Soccerladuma | OPINION: Path Paved For Historic Arsenal UCL Win
--  Blue Origin adia, de novo, lançamento previsto após acidente com nave
--  Marrakech: trois touristes français arrêtés en possession d’euros de billets
--  Rio de Janeiro recria Secretaria Estadual de Segurança
--  Neto de Marcelinho Carioca completa 8 anos enquanto o avô está desaparecido
--  వైసీపీ ప్రభుత్వంలో ఎమ్మెల్యేల బదిలీలు
--  Loi immigration : la CMP a démarré sous haute tension
--  Sale closed in Saratoga: $3.8 million for a three-bedroom home
--  Hunter x Hunter, un picchiaduro è in sviluppo presso il creatori di Marvel vs. Capcom 3
--  Global Education Holdings acquires Australian Performing Arts Conservatory
--  TSK Architects Recognized for Excellence in Design by American Institute of Architects
--  Seine-et-Marne : Familles rurales, une association qui accompagne les familles à vivre mieux
--  Historical Thriller ‘Firebrand’ Starring Alicia Vikander & Jude Law Acquired By Roadside Attractions, Vertical
--  This Rare Mercedes-McLaren Roadster Is Heading to Auction Next Month
--  Should the European Union expand and the United Kingdom break up?
--  Timnas AMIN Minta Temuan PPATK soal Dana Kampanye Ilegal Diusut Tuntas
--  Тренер сборной России назвал фаворитов турнира претендентов-2024
--  O sonho do coração artificial
--  Watch Olivia Rodrigo Rock Out to ‘Get Him Back!’ in a Grungey Basement
--  స్వయంశక్తి సంఘాలను ఏ గ్రేడ్‌లో ఉంచాలి: ఏసీ
--  Мисајловски: Почеток за преговори со ЕУ нема поради криминалот и корупцијата на власта
--  అదనపు బాధ్యతలను వ్యతిరేకిస్తున్నాం: ఫ్యాప్టో
--  Piden 4 años de cárcel para Cristina Seguí por difundir un vídeo de las víctimas de la violación grupal de Burjassot
--  Umberto Tozzi ospite al Festivali i Këngës 2023, la selezione albanese per l’Eurovision 2024
--  Piden 4 años de cárcel para Cristina Seguí por difundir un vídeo de las víctimas de la violación grupal de Burjassot
--  వైసీపీ పాలనలో రైతులకు మోసం : మర్రెడ్డి
--  Quién es el guatemalteco que murió acribillado presuntamente por un comando armado mexicano durante un palenque en San Marcos
--  కలెక్టరేట్‌లో సర్వే డేటా ప్రొసెసింగ్‌ సెంటర్‌
--  Video | Estos fueron los destrozos que dejó el temporal en Argentina: más de 13 muertos
--  ప్రైవేట్‌పరం కాకుండా అడ్డుకుంటాం
--  Las exportaciones de calzado se desploman un 40% y anotan su peor octubre en más de una década
--  الخليفي يرحب بمشروع حماية المهاجرين من منظمة انترسوس.
--  "Rettenetesen reménytelen a helyzet" – Hiába vár kártérítésre az epekőműtét után elhunyt Anna szerelme
--  Terör devleti İsrail'in alçak saldırısına İngiltere'den tepki: Kiliseye sığınan sivillerin öldürülmesi dehşet verici
+-  Traktori na ulicama Berlina: Protest njemačkih poljoprivrednika protiv kancelara Šolca, sa njima i ministar Ozdemir
