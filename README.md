@@ -1,51 +1,11 @@
 # Latest News
+-  [단독]오송 참사 ‘임시 제방’ 최종 결재자, 조완석 금호건설 사장으로 드러나
+-  차명폰 쓰고 묵비권…‘자충수’에 발목 잡힌 송영길
+-  ‘연애의 참견’, 남자친구 회사 후배의 정체…고민녀, “뒤통수 세게 맞은 느낌”
+-  '독박투어', 성탄절 특집 ‘올나잇 몰아보기’ 편성
 -  Agende 2024: le migliori da regalare a Natale
--  عاجل.. حساب المواطن.. خطوات الاستعلام عن أهلية الدفعة 74 وشروط الحصول على الدعم
--  Hunter Biden will make first court appearance on tax charges on January 11
--  Desde abril no crece la economía en Colombia
--  Burnside house fire
--  Police investigate fatal collision in Truganina
--  Se suma diputado a trabajar por el autismo
--  Sube presunto suicida a puente en Juárez
--  Economiza para la cena navideña, Profeco te dice cómo
--  Ve América duelo de gigantes ante Barcelona
--  Video: 'Premia Conade pese a todo': Guevara
--  Tiago Tomás mostra mensagens trocadas com Quaresma antes do Clássico
--  Amorim sobre Conceição: "Ele falar depois de perder já é bom..."
--  Apple suspende venta de algunos de sus relojes en EE.UU. por problemas de patente
--  Pelo menos oito mortos após sismo no noroeste da China
--  bet365 bonus code NYPNEWS: Claim $1k first bet or $150 for MNF, any sport
--  '공중볼 몬스터 김민재에게 시달렸다→어떤 위협도 없었던 24골 합작 투톱'…슈투트가르트 동료도 질책
--  찰스, 반가운 근황 공개…"子는 최연소 국가대표, 아내는 제주살이 중" 5년차 기러기 아빠의 혼자살이 [동상이몽2](종합)
--  Haley, Trump lobby Scott for endorsement
--  Deion Sanders explains why he would NEVER coach in the NFL after making Colorado one of the most-watched college teams: 'I'm having the time of my life'
--  Tyra and Kale crowned winners of Love Island Australia 2023 after beating out rival couples Savanah and Clint and Lucinda and Zac
--  Atlético de Madrid x Getafe: onde assistir ao vivo, horário e prováveis escalações do jogo pelo Campeonato Espanhol
--  Homicide and other violent crimes in Milwaukee trending downwards as 2023 wraps
--  Índia. Diretor de escola detido por forçar alunos a limpar fossa séptica
--  Auto sale de la carretera y vuelca entre matorrales
--  Rodríguez Uribes, nuevo presidente del Consejo Superior de Deportes
--  By: Reed Griffin
--  Atlético de Madrid x Getafe: veja informações e onde assistir ao jogo do Espanhol
--  Urawa Reds x Manchester City: veja informações e onde assistir à semifinal do Mundial de Clubes
--  [PGA ] 함정우, Q스쿨 공동 45위... 투어 직행 실패
--  Agende 2024: le migliori da regalare a Natale
--  Tourism minister: Mas Ermieyati’s statement on MM2H causes ‘confusion’
--  Funcionário preso por estuprar crianças com autismo na APAE é condenado a 22 anos de prisão, em RO
--  Martín Palermo no continuará como director técnico de Platense
--  Repentina muerte de querido personaje entristecerá profundamente“Juego de Ilusiones”
--  Haley Surges in New Hampshire Just a Little Over a Month Before 1st-in-the-Nation Primary
--  Eynicinsli fərdlərin nikahına xeyir-dua veriləcək
--  Agende 2024: le migliori da regalare a Natale
--  Bandung Rachmat Irianto Batal Ikuti Pemusatan Latihan Timnas Indonesia di Turki
--  The death of natural diamonds: Owner of De Beers' shares drop by 20% after mine production cuts as eco-conscious customers opt for lab-grown gems loved by celebs like Taylor Swift instead
--  Nicolas Guérin, président de la Fédération Française des Télécoms – 18/12
--  춘천 후평동 원룸서 불… 60대 숨져
--  [속보] 북, ICBM 화성-18형 발사훈련 보도…김정은 "더 공세적 맞대응"
--  "Müssen Flugplan 2024 ausdünnen": Lufthansa-Chef verärgert über Kerosin-Steuer
--  Omicidio Saman, oggi la sentenza di primo grado: attesa per il verdetto
--  Présidentielle 2024 : Voici la liste des candidats qui ont déjà déposé leur caution
--  Pressure on Richmond Sockeyes to score at annual Teddy Bear Toss
--  Iceland volcano erupts after weeks of quake activity
--  ‘Blue Rush’ Podcast Episode 172: Giants’ Playoff Hopes Out The Door After New Orleans Stinker
--  EU opens formal probe of X
+-  اختفاء لاعب النصر السابق في البرازيل.. والشرطة تبحث عنه
+-  العراق: مصرع ضابط برتبة عقيد في سقوط وتحطم مروحية
+-  Sydney to swelter today as record start to summer continues
+-  لا تتناول هذا الجزء من الدجاج .. يسبب العقم ويؤدي لمرض خطير ليس له علاج؟
+-  ظهور هذه الأعراض مؤشر على مرض قاتل لا يرحم وسيقودك للقبر إذا أهملته؟؟
