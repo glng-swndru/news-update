@@ -1,51 +1,51 @@
 # Latest News
--  Kickoff | Swazi star set for Chippa assessment
--  Falla rueda de la fortuna en Oaxaca
--  Situație inedită la un turneu de tenis demonstrativ din Franța: Mirra Andreeva a trebuit să înfrunte în finală un bărbat
--  Jokereiden pelaaja valittiin Kuukauden pelaajaksi
--  Šokujúci incident odštartoval volebnú kampaň v USA! Autonehoda prezidentskej kolóny: Strach o Bidena
--  SHMÚ upozorňuje: Na celom území Slovenska sa môže tvoriť hmla, na väčšine aj poľadovica
--  Alex Batty says 'I'm glad to be here for Christmas' as he makes first statement since reuniting with his family in England after he was missing for more than six years
--  North Korea – Missile launches (18.12.23)
--  Mama June Shannon considering putting her grieving granddaughters in therapy to cope with the loss of their mother Anna 'Chickadee' Toney
--  Jason Momoa wears silk striped pyjamas and a crocheted purple cardigan as he becomes the latest star to read a CBeebies Bedtime Story
--  Сандерленд Русина призначив нового головного тренера
--  Moment police officer punches innocent medical worker in the head and tells him to 'get on the f***ing floor now' after mistaking him for the criminal
--  Moment police officer punches innocent medical worker in the head and tells him to 'get on the f***ing floor now' after mistaking him for the criminal
--  '임신' 황보라 "1년 동안 기다리고 기다린 아기…입덧 없어"('조선의 사랑꾼')
--  Muere adulto mayor de un infarto en la Pavis Borunda
--  Llevarán alegría y regalos en Punta Oriente
--  Tiene FGE 500 mdp en bienes asegurados de Aras
--  Liga AMLO masacre en Guanajuato con consumo de drogas
--  Rechazan chilenos por segunda vez nueva Constitución
--  [알립니다] 강원문화예술, ESG 통해 위기를 기회로
--  오늘 춘천서 강원민족예술인대회
--  비올리스트 리처드 용재 오닐의 ‘바로크 선물’
--  서울 한복판에 전하는 강원의 생명력
--  강원이주여성상담소 치료회복 프로그램 결과 전시회
--  [도민시론] 새삼스럽다! 페미니즘이여, 성평등이여
--  [명경대] 바다열차의 퇴장
--  [사설] 소양강댐 주민 희생 당연시 안 된다
--  [사설] 양양공항 전세기 재개 활로 계기로
--  북 또 미사일 발사…윤 대통령 “어떤 도발도 압도적 대응”
--  남춘천여중 도지사배 전국 아이스하키대회 우승
--  황희찬 풀타임 불구 팀 재계약 첫 경기 ‘침묵’
--  아시안컵 최종명단 엿보기…K리거·해외파 16명 국내 소집
--  성폭행 혐의 전 강원FC 선수 2명 항소심도 중형 구형
--  강원대병원 응급실 찾은 70대 도착 후 7시간 대기하다 사망
--  원주 치악산 산행 50대 저체온증 호소 소방헬기 이송
--  한겨울 물난리
--  검, 실종 초등생 유인 수차례 범행 50대 징역 30년 구형
--  “인력·장비 공급 도와줄게” 수억원 편취 노조간부 구속기소
--  “내년 창립 50주년 맞아 노인복지 증진 지역상생 강화”
--  춘천·홍천 ‘바이오 특화단지’ 유치전 범도민 지원 나선다
--  Numărul proiectelor cu investiții străine a înregistrat o creștere de 86% în România anul trecut
--  [알림] 더 깊이 있는 ‘제22대 총선 분석’ 찾아갑니다
--  강원인평원 미래인재 16명 선발
--  도사회서비스원 지역자율형 투자사업 성과보고회
--  중소기업 밀집지 경영상황 상시 모니터링·맞춤형 지원프로그램 제공
--  강원랜드 연말 공연·이벤트 풍성
--  양구군 제1회 힐링 평화 음악회 성료
--  김남순 민주노총 강원본부장 선출…11기 임원 구성 마무리
--  양재원 ICT 기반 의료정책 유공 표창
--  이양수 국회 의정활동 대상 수상
+-  Janhvi Kapoor’s latest ethnic look proves that you cannot go wrong with a black saree
+-  Dunki Diaries: When Shah Rukh Khan mistook real prisoners for fans during the shoot
+-  Janhvi Kapoor and Nysa Devgan enjoy vacation in London, Orry shares pictures, see
+-  City of Cape Town endorses new ‘Winelands Airport’
+-  Putin aday olmak için resmi başvurusunu yaptı
+-  Şırnak’ta 3 örgüt mensubu ikna yoluyla teslim oldu
+-  Galatasaray'dan Dursun Özbek'in sağlık durumu ile ilgili açıklama
+-  Manchester City'den flaş açıklama: 'Kopenhag, ManU ve Galatasaray'dan iyi'
+-  الملك يبحث سبل توسيع التعاون العسكري مع باكستان
+-  الملك يتابع مستجدات تنفيذ الرؤية الاقتصادية في مجال الطاقة
+-  جوبترول تحذر من إعلانات مزيفة تعد بجوائز وقود مجانية
+-  VZP dá dětem 2000 Kč na lyžařský výcvik. Má jedinou podmínku
+-  Berkshire VNA Nurses and Healthcare Professionals Reach Tentative Agreement on First MNA Contract to Stabilize Staffing and Improve Patient Care
+-  Javier Milei recibe a otro funcionario clave del gobierno de Joe Biden en busca de apoyo financiero
+-  Advertencia a los gobernadores. Adorni, sobre la emisión de cuasimonedas: “No hay que gastar más de lo que se tiene”
+-  El 70 % de las estaciones de servicio de Irán dejaron de funcionar por un presunto ciberataque
+-  To je glede kratkoročnega oddajanja nepremičnin za turizem napovedal Golob
+-  El Gobierno francés confía en lograr un acuerdo con la derecha para aprobar su reforma migratoria
+-  El Gobierno francés confía en lograr un acuerdo con la derecha para aprobar su reforma migratoria
+-  EU investigates Musk’s X in first DSA probe
+-  La comunidad escolar de Gernika condena la presunta agresión sexual a una menor por parte del exentrenador del Lointek
+-  El Dinamo de Zagreb, asequible rival del Betis en la Conference League
+-  Huta napali još dva broda u Crvenom moru
+-  Siracusa, nuovo regolamento del commercio su aree pubbliche: via libera dalla Giunta, palla al Consiglio
+-  Vatican approves blessings for same-sex couples in landmark ruling
+-  WATCH — Shehnaaz Gill, Guru Randhawa leave fans smitten with latest Instagram reel
+-  Factions within the National Freedom Party do battle
+-  ANC joins hands with pro-Palestine groups to intensify ceasefire calls
+-  Egypt's President re-elected with 89% of the vote
+-  Ugandan court hears challenge to harsh anti-gay law
+-  Iraqis vote in first provincial elections in a decade
+-  SA submits ICC documentation to lay complaint against Israel
+-  ANC KZN confident of victory in the province
+-  Fideszes love story: a snájdig propagandista gyengéden nyalogatta körbe az uniós csúcsról kizavart Orbánt
+-  Sabrina Sato prova que o quiet luxury é tendência até para a mais maximalista das fashionistas
+-  El SHN emitió alertas por crecidas en el Río de la Plata y la Costa Atlántica bonaerense
+-  MCG to transform into a Cricket Mela for #AUSvPAK Boxing Day Test
+-  Steven Spielberg's Bullitt movie gets exciting update: "It'll be wildly entertaining"
+-  PM de São Paulo prende dois suspeitos pelo sequestro de Marcelinho Carioca
+-  Gewaltprävention: Berliner Polizei nimmt für Silvester Eltern in die Pflicht
+-  Kapustovú prekvapilo, že dostane peniaze. Borguľa verí, že forma bude gradovať
+-  WATCH: Faryal Mehmood's dance number in Yumna Zaidi's 'Nayab' is out now!
+-  Livstids fängelse för knivmord på kvinna
+-  "Qarabağ" "Neftçi"yə qarşı: start heyətləri açıqlandı
+-  Занадто токсична: соцмережа Х Ілона Маска потрапила під розслідування в ЄС
+-  JEE Main 2024 next month; Important topics to revise
+-  Celstraffen tot 9 jaar geëist tegen Bossche criminele bende die handelde in harddrugs en contact had met ‘Pablo Icecobar’
+-  The 3 best mattress toppers on sale today and shipping in time for Christmas
+-  Съдът пусна олимпийския шампион Иван Иванов, но остави в ареста сина му
+-  נתניהו למזכיר ההגנה של ארה"ב: "החות'ים מאיימים על חופש השיט של כולנו"
