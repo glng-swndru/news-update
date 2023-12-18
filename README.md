@@ -1,51 +1,51 @@
 # Latest News
--  “Ukraynaya ayrılan büdcə tükənir”
--  이정후, 사이영상 투수와 같이 뛰나… 美 매체 “SF, 스넬 영입 근접”
--  '新 조선의 4번타자' 김범석 “타이베이돔 1호 홈런공 박물관으로, 큰 영광”[스한 인터뷰]
--  Soccer-Bela and Nzola included as Angola name squad for Cup of Nations finals
--  Baileys liqueur warning issued ahead of Christmas
--  Debevec i Mehmedagić još u prostorijama SIPA-e
--  Championne du monde de handball, Alicia Toublanc décrit « une aventure humaine et sportive de fou ! »
--  Un choc pour le Stade Rennais, le tableau complet de la Ligue Europa 2023-2024
--  Quels métiers comptent le plus de travailleurs immigrés en Bretagne ?
--  Dans les supermarchés, le rayon marée menacé de disparition
--  Une « chasse à l'homme inédite » : Julie Depardieu défend son père
--  Force Ouvrière : l'ex-patron finistérien Marc Hébert condamné à six mois ferme pour harcèlement sexue
--  Illuminations de Noël en Bretagne : votez pour la plus belle photo de 2023
--  États-Unis : le convoi de Joe Biden entre en collision avec une voiture
--  La Corée du Nord tire un nouveau missile capable de toucher les États-Unis
--  Guerre Israël-Hamas : les urgences de l'hôpital al-Shifa sont « un bain de sang », selon l'OMS
--  Chine : au moins huit morts après un séisme dans le nord-ouest du pays
--  « C'est un stress permanent » : l'insoutenable attente des parents de Coline Fay, incarcérée au Sénégal
--  Ana Thaís elege melhor em campo pelo Fluminense e diz: 'Feio é ficar fora logo de cara'
--  André é eleito o melhor jogador em campo na vitória do Fluminense sobre o Al Ahly no Mundial de Clubes
--  La Evo 200 di CoopVoce torna disponibile per le feste: l'attivazione è gratuita grazie al codice sconto
--  Cotação do Brent para entrega em fevereiro sobe 1,83% para 77,95 dólares
--  Porro arrasador após 'bis' de Gyokeres ser anulado: "Achavam mesmo..."
--  This mind-blowingly open-ended RPG might be the next Baldur's Gate 3: 'If you have the patience, you could wipe out an entire town by just turning everyone against each other'
--  Vučić najavio: Moguće ponavljanje izbora u Beogradu pod jednim uslovom
--  Marcelo, do Fluminense, define a final do Mundial de Clubes como: "O maior jogo das nossas vidas"
--  “살라, 더 브라위너 내가 판 거 아닌데? 나는 억울해”... 첼시 시절 회상한 무리뉴
--  GRAPHIC CONTENT WARNING: The Block's Elyse Knowles shocks as she shares picture of painful looking condition
--  UK minister’s introduction ceremony in House of Lords interrupted by Mission: Impossible music
--  God of War creator unhappy with series’ direction, says, “I don’t want these characters to grow”
--  Moderation or Censorship? Illicit Content on Elon Musk’s X Draws EU Investigation
--  (ВИДЕО) Насилство на протестот на опозицијата: Се удираа со клоци и тупаници
--  Derek Adams Scottish football blast a 'sackable offence' for Ross County boss rages ex Premiership star
--  Neil Lennon tells Celtic fans to be careful what they wish for as board abuse sparks Dermot Desmond defence
--  Lawrence Shankland sends Rangers transfer sleuths into frenzy as Hearts striker 'likes' cup final party post
--  Appalling Celtic transfers heap the pressure on standout stars as figurehead made to do four jobs
--  John Hartson fires loaded Celtic rupture claim as 'coasting' players and Brendan Rodgers hit with brutal double whammy
--  Philippe Clement goes Dutch to put Rangers first in Cup confession with rousing answer fans didn't get to hear
--  Hamilton Accies believe they can still topple Falkirk in title bid, says Lewis Smith
--  Toni Kroos 'seriously considering' Germany retirement U-turn as Euro 2024 hosts pull out all the stops for Scotland
--  Rangers diehards soak up VAR rage from rivals on defiant Hotline as distraught regular predicts end game
--  Rangers Treble tilt is ON but Philippe Clement won't even whisper it as Craig Moore makes transfer prediction
--  Who takes blame for Celtic problems as Rodgers, Lawwell and Desmond all pulled in front of Monday Jury
--  Celtic transfer bulletin as Mathias Kvistgaarden suitor list swells, Araujo latest and price 'rises' for signing wildcard
--  Celtic and Rangers stuck in a 'time warp' as Martin O'Neill and Alex McLeish unite in blasting derby away fan lockout
--  Scottish football pyro survey as fans have their say on fiery topic dividing opinion
--  Kenny Miller claims Rangers have Celtic fans PANICKING as pundit senses fear inspired by Philippe Clement
--  Aberdeen savage Rangers in astonishing official match report as referee, VAR and Todd Cantwell filleted
--  Moment drink driver avoids drowning to death by inches after ploughing through a brick wall and onto a canal path after night out
--  Пентагон 30 декабр куни Украинага ҳарбий ёрдам учун пул тугашини маълум қилди.
+-  US Congress passes landmark law to criminally prosecute corrupt foreign leaders
+-  Key CSOs concerned about lack of progress on anti-corruption towards economic recovery
+-  Presidential stakes hot up
+-  بلومبيرغ: تأييد بايدن بأدنى مستوى له على الإطلاق
+-  Nijerya'dan Süper Lig'in 5 ismine davet
+-  Ünlü oyuncu Burak Özçivit'ten Gazze mesajı: Çocukların katledildiği dünyayı kabul etmiyorum
+-  Fiyat etiketi yönetmeliğinde değişiklik
+-  Bakan Yumaklı: Tarımsal Gayri Safi Yurtiçi Hasıla bakımından Avrupa'da lideriz
+-  Başkan Erdoğan'dan Macaristan ziyaretine ilişkin paylaşım
+-  A woman is renovating a rundown Brooklyn brownstone that's been in her family for nearly 100 years
+-  Φωτιά σε διαμέρισμα στον Άλιμο – Απεγκλωβίστηκε ηλικιωμένη
+-  Trump claims free speech in latest bid to toss Georgia election case
+-  Tencent closes shop on Team Kaiju
+-  సింగరేణిలో స్థానికులకే ఉద్యోగాలివ్వాలి: వివేక్‌
+-  Como os Casinos Alavancam Big Data para uma Vantagem Competitiva
+-  F1-asiantuntijalta todella tylyä tekstiä Valtteri Bottaksen tiimistä - "Olen aina miettinyt"
+-  Kompromitacja prezesa polskiego klubu. W końcu przemówił
+-  Some student-loan borrowers now have 4 extra months to benefit from one of Biden's debt relief plans — but they need to take action
+-  ఇదంతా మంత్రి దామోదర కుట్రే: క్రాంతికిరణ్‌
+-  ప్రభుత్వ ఫలాలను వినియోగించుకోవాలి
+-  클린스만, ‘2023년 핫한 K리거’ 써볼 기회 스스로 버렸다
+-  5 horoskopkih znakova u 2024. sustiže sudbina i saznanje šta je to istinska ljubav
+-  [오늘날씨] 강추위 계속… 오후 중부지방 중심 눈
+-  జీవన్‌రెడ్డీ.. అవగాహన లేకుండా మాట్లాడొద్దు
+-  باتيلي: ليبيا تمتلك إطاراً قانونياً ودستورياً لإجراء الانتخابات
+-  ACP entrega aportes directos al Tesoro Nacional por 2,544,594,162 millones de dólares
+-  Encuentran un arma de fuego y 5 municiones en Bethania
+-  Pepu Hernández: "Tras mi primera charla en la selección, los jugadores pensaron: '¿Qué está contando el barbas?'"
+-  سكرتير عام الإسماعيلية يوجه بالاستعداد الأمثل لمواجهة الأزمات والكوارث
+-  Nach Kriegs-Kritik: Russland listet Schriftsteller Boris Akunin als „Terrorist“
+-  Soaring attacks on US forces and others in the Middle East demand firm response to send a message, former top commander says
+-  KNVB gaat WK in Saudi-Arabië niet boycotten, maar is wel 'teleurgesteld'
+-  ‘La Brea’ Season 3 Trailer: First Look At The Final Journey & A Determination To Get Everyone Home
+-  بالصور- من داخل سيارتخها الفارهة..كايلي جينر تستعرض رشاقة جسمها بلوك رياضي أسود
+-  بالصور- بالأسود والأبيض..بسنت شوقي تتألأق بفستان بغاية الأناقة
+-  في المرتبة الرابعة..إليكم ما حققه أكرم حسني في فيلمه "العميل صفر" يوم أمس
+-  Ximena Capristo contó cómo fue su separación de Gustavo Conti
+-  Tennis : Federer, Nadal... Tsonga balance sur Djokovic
+-  Karl Olive (Renaissance) sur la commission mixte paritaire chargée de trouver un accord sur la loi immigration: "On a spectacle pitoyable qui se présente encore [aux Français]"
+-  مودريتش يحصد جائزة جديدة
+-  Denuncian ataque a miembros de la comunidad Wayuu en La Guajira
+-  Rummy Olivo presenta su nuevo tema inspirada en su gira
+-  Appeals court says Mark Meadows can’t move Georgia election case charges to federal court
+-  KTR : ‘ఎక్స్‌’ వేదికగా భార్యకు కేటీఆర్‌ పెళ్లి రోజు శుభాకాంక్షలు
+-  భూ హక్కుల చట్టాన్ని వెనక్కు తీసుకోవాలి
+-  La Triestina compie 105 anni, il patron Rosenzweig: "Non ci arrendiamo di fronte alle avversità"
+-  حسن مصطفى: «الأنانية» أضاعت الأهلي أمام فلومينينسي
+-  Jonathan Majors Fired By Disney/Marvel Studios After Assault Guilty Verdict; Actor Had Played Kang The Conqueror
+-  Snabb tillväxt slår mot den anställdes välbefinnande
+-  Este martes 19 de diciembre no habrá cortes de energía eléctrica en Ecuador
