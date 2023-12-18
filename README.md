@@ -1,11 +1,11 @@
 # Latest News
--  Scarpa 'balança' com propostas de Flamengo e Atlético-MG e avalia retorno ao Brasil
--  Flu garante premiação milionária no Mundial com classificação para a final
--  Herói da Libertadores volta a brilhar, Fluminense vence Al Ahly e carimba vaga na final do Mundial contra City ou Urawa Reds
--  최종 26명 안채울까 싶은 클린스만 12월 명단, ‘2016 슈틸리케’ 떠오른다
--  Meghan, Duchess of Sussex, reveals the EXTREMELY expensive gift her son wants for Christmas
--  – المركز الليبي للاستشعار عن بعد وعلوم الفضاء ينصح بالاكثار من حملات التشجير .
--  NHL:ssä nähtiin valmentajapotkut
--  The 'most interesting man in the world' of Dos Equis fame is now doing ads for a bitcoin ETF provider
--  Biały Dom: Zostały nam środki na jeszcze tylko jeden pakiet uzbrojenia dla Ukrainy
--  Apple Pauses US Sale Of Latest Watch Models Over Patent Clash
+-  „Vucic, du Dieb“: Tausende demonstrieren nach Unregelmäßigkeiten bei Parlamentswahl in Serbien
+-  Arcángel y Anuel AA se enfrascan en ataques verbales a través de canciones
+-  O que é pedido no meio milhão de cartas que chegou à Lapónia? O Pai Natal revela
+-  Chavismo prevé que producción petrolera de Venezuela superará el millón de barriles por día en 2024
+-  At least eight killed in China earthquake
+-  Port: Did law enforcement pursuit make the Ian Cramer chase more dangerous than it had to be?
+-  إحباط تهريب 350 كجم من المخدرات في عسير
+-  زلزال بقوة 6 درجات يضرب شمال الصين
+-  بالفيديو: عملية سطو مسلح على محطة "توتال"في الدامور
+-  إيفرغرين توقف نقل البضائع الإسرائيلية عبر سفنها وتعلق الملاحة بالبحر الأحمر
