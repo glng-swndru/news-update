@@ -1,51 +1,51 @@
 # Latest News
--  Zrak danas nezdrav širom BiH: Najzagađeniji Tešanj, Bihać i Sarajevo
--  25 दिसंबर को ही क्यों मनाया जाता है क्रिसमस डे, जानें इसके पीछे की रोचक कहानी
--  KB5034510 Microsoft Printer Metadata Troubleshooter tool fixes the recent printer bug
--  माइग्रेन के दर्द से राहत दिलाएंगी ये दवा, इन लोगों को मिलेगा फायदा
--  Kast por la derrota del “A favor”: “La carrera presidencial no es un fin”
--  Encabeza Bonilla posada en Ladrilleras Norte
--  Rise In Covid-19 Cases: Health Ministry Advises States, UTs To Increase RT-PCR Testing
--  Detienen a dos sujetos tras robar el niño Jesús del Belén de Sant Vicent del Raspeig: Pidieron 2 mil euros en TikTok (+Video)
--  FDP-Mitgliederbefragung zum Verbleib in der Ampel-Koalition gestartet
--  Overblik: Her er der flest cykeltyverier i landet
--  Overblik: Her er der flest cykeltyverier i landet
--  Edin Dzeko antrenmanlara çıkamadı: MR'a gidecek
--  الفنية العسكرية تفتح باب التسجيل بالدراسات العليا بالفصل الدراسي الثاني 2023-2024
--  Benedizioni a coppie gay, sì del Vaticano ‘ma non è matrimonio’
--  Mayim Bialik Fired From ‘Jeopardy,’ Fans Rejoice: “I Can Finally Enjoy The Show Again”
--  1 tinangay ni `Kabayan,’ 11K binakwit
--  Kammeradvokat: Syrienmødre er ikke blevet forskelsbehandlet
--  Kammeradvokat: Syrienmødre er ikke blevet forskelsbehandlet
--  EU's miljøministre enige om pant på dåser ved grænsen
--  هل تتجه بريطانيا إلى تغيير موقفها والمطالبة بوقف دائم لإطلاق النار في غزة؟
--  Τέλη κυκλοφορίας: Ανακοίνωσε παράταση πληρωμής ο Θεοχάρης - «Πάμε σε πάγιο σύστημα»
--  NOTES FROM THE BOXING UNDERGROUND: ODDS AND ENDS
--  Tri potpisa na "Marakani"
--  القصبي يبحث مع “الأونسيترال” تعزيز التشريعات التجارية في المملكة
--  Lionsi uručili lijepu donaciju Dječjem domu Ivana Brlić Mažuranić u Lovranu
--  Quaker Oats recalls granola bars and granola cereal over Salmonella concerns
--  INTEL CORP : Bernstein vindt het aandeel niet inspirerend
--  1000 रुपये से कम में खरीदें स्मार्ट गैजेट्स, क्रिसमस पर दें बच्चों को ये खास गिफ्ट
--  NVIDIA CORP : Bernstein handhaaft koopadvies
--  [ŽT] Bum! Ukrainos tankas sutraiškė okupantų pastatą (Video)
--  [ŽT] Rusų puolimas prie Belgorodo. „Chaotiška artilerijos ugnis.“ GUR skelbia detales
--  „Nuo 8,9 litro iki 7,8.“ Kremlius imasi alkoholikų. Yra viena problema
--  „Kad būtų sustabdytas karas.“ Kokį sprendimą tuoj priims G7
--  [ŽT] Iki Naujųjų metų. Okupantai gavo skubų Putino įsakymą
--  Mokslas nustatė, kaip turėtų atrodyti idealūs vyro sėdmenys
--  [ŽT] Čekijos ministras rėžė tiesą. Skelbiama, kaip jis pavadino Orbaną
--  Mirė prancūzų aktorė, pirmoji apkaltinusi Depardjė seksualine prievarta. „Šventasis monstras daug sau leido filmavimo metu.“ Vyksta tyrimas
--  U blizini ove žene liječnici su obolijevali: Sumnja se na bizarno trovanje
--  U izraelskim operacijama na palestinskim teritorijama više od 19.0000 ubijenih
--  العسومي: فوز الرئيس السيسي بولاية جديدة يجسد إصرار المصريين على استكمال مسيرة البناء والتنمية
--  Gigantikus víziszörny koponyáját találták meg Angliában
--  Court convicts suspect of shooting two brothers to death in Zwolle McDonald's
--  PBBM pinuwesto Robinsons Land boss sa gabinete
--  IPL 2024 Auction: IPL ऑक्शन के लिए छोड़ दिया अपने देश का मैच, वर्ल्ड कप विजेता कप्तान की जमकर खिंचाई
--  Dursun Özbek hastaneye kaldırıldı!
--  Trabzonspor'un İstanbulspor mesaisi bitti
--  45 il ve 110 ilçe deprem riski altında! Türkiye'nin diri fay hattı haritası güncellendi
--  Un descuido en la vía cobra otra víctima fatal
--  Sports d'hiver : le ski club de Bagnères prolonge les inscriptions pour dévaler les pistes au pied du Pic du Midi
--  Известный дом моды разорвал сотрудничество с Киркоровым за поддержку Путина
+-  Fire guts ex-Oyo governor’s residence, 2 injured
+-  Soccerladuma | Swallows' Crucial Uromi Decision
+-  تعاني من ارتفاع الدهون الثلاثية؟.. 5 مشروبات صباحية تساعدك
+-  Liberalizimi i vizave, ‘gara’ për merita vazhdon mes PDK-së dhe LVV-së
+-  Franka Batelić: 'Izabel Kovačić ima više utakmica u nogama od mene'. Otkrila i gdje će za Novu
+-  Jeftinije sve vrste goriva
+-  Présidentielles 2024-Reintégration de Sonko sur les listes électorales : Maître Adama Gueye, « Cette décision, elle s’impose et doit être exécutée. Elle est exécutoire parce que que c’est la loi qui prévoit que c’est exécutoire »
+-  МТСП во пресрет на Нова година започна низа настани под мотото „Среќата се споделува“
+-  Yüzüncü Yıl Gençlik Ve Yaşam Merkezi gençlerin gözde merkezi
+-  Top 5% of Greggs customers are 'exposed' in hilarious Monzo Wrapped trend
+-  “실감형 디지털 트윈 기술로 중동시장 진출”
+-  6 साल के बच्चे ने बनाया ऐसा टाइम टेबल, जिसे देखने के बाद आपका हंसते-हंसते बुरा हाल हो जाएगा
+-  Upphandling av Tvärbanan gjordes fel
+-  Müller-Verlängerung beim FC Bayern fix
+-  Müller-Verlängerung beim FC Bayern fix
+-  SenseTime, gigante chino de la IA, se desploma en la bolsa luego de la muerte de su cofundador
+-  Is covering a Concord lawn with netting the best way to get rid of raccoons?
+-  Is covering a Concord lawn with netting the best way to get rid of raccoons?
+-  Rritet numri i skuadrave të mëdha që duan transferimin e Arthur Vermeeren
+-  जम्मू कश्मीर के उपराज्यपाल ने कहा – जनता से छिपाना नहीं है गुड गवर्नेंस
+-  These are the ministers who failed to answer the most parliamentary questions
+-  Vučić sa Fon Kramonovom o izborima, regionalnim temama i evropskom putu Srbije (FOTO)
+-  Metropolitano: precio de pasaje regular se mantendrá en S/3.20, según ATU
+-  Streit um polizeikritischen Tweet: Rauswurf war rechtswidrig
+-  Yemen's Houthis Claim Attacks on Two Ships Linked to Israel
+-  Ženstveno i upečatljivo: Idealni komadi za blagdanska druženja u kojima ćete zablistati u svakoj prilici
+-  В районе Серебрянки: ВС РФ поразили командно-наблюдательный пункт бригады Нацгвардии Украины
+-  निराश्रितों को रैन बसेरे पहुंचाएगा नगर निगम का प्रवर्तन वाहन
+-  EPF: इन 5 कारणों से खारिज हो जाता है आपका EPF क्लेम, फाइल करते वक्त बरतें ये सावधानियां
+-  Горбачёва рассказала о сообщении с поддержкой от Загитовой после побега из дома
+-  Veel lager dan nu stond de stroomprijs de afgelopen twee jaar niet, en dat blijft nog wel even
+-  Creu Roja alerta que necessita més de 1.000 joguines per cobrir la demanda per a infants vulnerables a les comarques gironines
+-  Pray For Nigerian Leaders, Don’t Fight Them, Adeboye Cautions Clerics
+-  Edo 2024: PDP stakeholders rules out zoning, throws race open
+-  Many reportedly killed, injured as explosion rocks Guinea’s oil terminal
+-  CEVA Logistics seeks edge using TIR along China-Kyrgyzstan-Uzbekistan route (Exclusive)
+-  Cierre de la F1: Verstappen bate récords y el español fue lengua oficial a merced de ‘Checo’, Alonso y Sainz
+-  Serie B, i migliori 5 attaccanti dopo 17 giornate: Raimondo della Ternana scala la classifica
+-  Prieskum odhalil, čo si o sebe myslia Slováci – a je to zlé. Máme na seba vysoké nároky, no veľa sa vyhovárame, tvrdí psychológ
+-  दिल्ली मेट्रो डिजिटल लॉकर सर्विस, जानें बुकिंग का तरीका, कितना लगेगा चार्ज
+-  Researchers develop innovative and flexible method to study immune cell capabilities
+-  I'm an American dad living in Italy who hasn't had to worry about medical costs, even with a daughter with severe hearing loss
+-  VIDEO Lucija Vujica: Hvala ministarstvu što prepoznaje i motivira trud i uspjeh učenika
+-  Koalicijski partneri podržali su Damira Habijana za ministra
+-  Специалист Алпатова рассказала о зарубежных направлениях для встречи Нового года
+-  Unerwartete Comebacks: Wenn Tiere und Pflanzen aus der Versenkung auftauchen
+-  Lieberknecht appelliert: „Müssen das letzte Hemd geben“
+-  Ende der E-Auto-Förderung: Regierung rechtfertigt Entscheidung
+-  Ende der E-Auto-Förderung: Regierung rechtfertigt Entscheidung
+-  …जब 63 सांसदों को एक साथ कर दिया था सस्पेंड, संसदीय इतिहास में निलंबन की बड़ी घटनाएं
