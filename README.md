@@ -1,51 +1,51 @@
 # Latest News
--  فيديو مذهل لسمكة تصطاد قردا.. ماذا حدث؟
--  ملاكمة على متن طائرة كانت في طريقها لولاية أمريكية
--  ¡Con bajas ventas! Así inician vendedores el primer fin de semana en la verbena de Guasave
--  عاجل.. تنبيه مهم من حساب المواطن لمربي الماشية
--  4 درجات تحت الصفر.. أكثر مناطق اليمن برودة (خارطة تفاعلية)
--  Drama u Gazi: Neophodna evakuacija više od 5.000 ranjenih
--  Concierto gratis de fin de año en CDMX: Rubén Blades en el Ángel de Independencia
--  Βουλή-Β. Σπανάκης: Το ασφαλιστικό ν/σ με τις 13 σημαντικές τομές πηγαίνει την αγορά εργασίας βήματα μπροστά
--  Bizarre Fast Radio Burst Exhibits a Unique Signal Never Seen Before
--  60% of borrowers have made payments on their restarted student loans
--  반도체 특성화대는 취업 지름길?...연수서 현대모비스 등 취업 상담
--  1년새 건설사 19곳 '부도' … 부동산 경기 침체로 유동성 악화
--  한국 학생 성적은 최상위, 하지만 삶의 만족도는 '하위권'...원인은?
--  Aaj Ka Kumbh Tarot Card: कुंभ राशि वाले लोगों के विश्वास पर खरे उतरेंगे. लोगों की सराहना से मन होगा खुश
--  [ŽT] Iš kur Rusija gaus kiaušinių - kas vyksta
--  'Me forçaram a fazer aquele vídeo', afirma Marcelinho Carioca após sequestro
--  Help keep your community safe with free Narcan distribution
--  Meal sharing for a longer life? Insects may hold the secret
--  Hotter weather caused by climate change could mean more mosquitos, according to study
--  Machine learning could help scientists understand why birds are eating plastic
--  State board blocks Douglas County’s creative attempt to provide property tax relief to its homeowners
--  No, Denzel Washington Is Not Quitting Directing
--  Carro elétrico completou a primeira viagem de sempre do Pólo Norte ao Pólo Sul!
--  Firearms and hanging primary methods for suicide in US as rates continue to rise
--  No, Denzel Washington Is Not Quitting Directing
--  'Backfired': Christmas house in Sooke gets outpouring of support after nasty Grinch letter
--  Chelsea vs Newcastle live stream: How to watch Carabao Cup quarter-final online
--  A belgrádi önkormányzati választás megismétlését követelik
--  TAK bütçesi Meclis’te onaylandı
--  Mystery as Alex Batty’s mum abandons campervan and vanishes as missing teen returns to UK after 6yrs in French commune
--  Ko voli fudbal, mora da voli i Đironu - katalonsko čudo ne staje
--  Nakon Debeveca i Mehmedagića privedena i advokatica Vasvija Vidović
--  “Está causando mucho daño”: Junta de Sanidad Vegetal inicia campaña contra rata de campo en El Carrizo
--  Long-term Dogs Trust dog finally finds forever home in time for Christmas
--  Amerika zahájí námořní operaci. Chce ochránit lodě v Rudém moři před povstalci
--  Lava Storm 5G leaks ahead of December 21 official announcement
--  115 мигрантов были спасены у берегов Марокко
--  Marcelo y el colombiano Jhon Arias conducen al Fluminense a la final del Mundial de Clubes
--  CGTP defende que Portugal deve acolher e integrar imigrantes
--  Why is Biden pushing for Israel’s defeat and lying about its tactics?
--  Wike, Fubara reach agreement after meeting with Tinubu,
--  Whitecaps move Champions Cup game to Langford due to B.C. Place scheduling conflict
--  Jonathan Majors Out As Kang In MCU After Assault & Harassment Conviction
--  John Kennedy reforça destino iluminado e faz história no Mundial de Clubes pelo Fluminense
--  Tidligere FCM-spids stråler i La Liga-sensations sikre sejr
--  Tidligere FCM-spids stråler i La Liga-sensations sikre sejr
--  Igrači i navijači Zrinjskog se opraštaju od tribine 'Stajanje'
--  Crossover com Spawn mostra o apelido do Superman fora do Universo DC
--  HRW: Izrael koristi glad kao oružje protiv Palestinaca
--  Quem é a deputada que teria ajudado a milícia de Zinho?
+-  Canal de Panamá entrega 2 mil millones de dólares al Tesoro Nacional
+-  Encuentran un arma de fuego y 5 municiones en Betania
+-  Blandón: No podemos permitir que el Gobierno use dineros de descentralización paralela para politiquería
+-  서울교육청사에 일회용품 반입 NO...'넷 제로' 참여
+-  사교육비 1만원 늘면 출산율 0.012명↓ ... "공교육 질 높여 사교육비 부담 낮춰야"
+-  서울 학생인권조례 당분간 유지…법원, 집행정지 신청 인용
+-  Comer tarde pode ter um efeito muito negativo na saúde. Sabia?
+-  Naci Görür'den Gümüşhane ve Erzincan depremi açıklaması: Deprem beklediğimiz faya stres yükleyebilir!
+-  Nagy Márton megbeszélést folytatott Törökország ipari és technológiai, valamint kereskedelmi miniszterével
+-  İstinat duvarından düşen çocuk itfaiye tarafından kurtarıldı
+-  Ankara-İstanbul arası 80 dakikaya düşecek! Heyecanlandıran mega proje geliyor
+-  Saraybosna Yunus Emre Enstitüsü'nde Şeb-i Arus programı düzenlendi
+-  Burak Elmas'tan sert açıklamalar: Fatih Terim'in çevresi organize etti
+-  Atalanta vence Salenitarna e destrona Roma, de José Mourinho
+-  Bend Studio e Naughty Dog trabalharam juntos em game não anunciado
+-  Otet milijunaš kojeg je odlikovala kraljica, nestala i žena s kojom je živio u luksuznoj kući, objavljena i jeziva snimka...
+-  Brain Drain: Nigeria heading for catastrophic human resources crises -NMA
+-  ‘మెట్రో’లో తగ్గుతున్న ప్రయాణికులు
+-  నాడీ వ్యవస్థ నాజూగ్గా...
+-  Lauren Sánchez’s Chanel crop top will set you back $4,450
+-  중국에서 이어지는 ‘용감한’ 여정…‘쿠키런:킹덤’ 현지화 전략 박차
+-  Evanilson ainda festejou em Alvalade, mas foi apanhado em fora de jogo
+-  NYC hospital officers indicted for beating man, leaving him unconscious on the street
+-  Гол Миранчука помог «Аталанте» победить в матче чемпионата Италии
+-  Aaj Ka Meen Tarot Card: मीन राशि वालों का बन रहा है विदेश यात्रा का योग, पढ़ें आज का राशिफल
+-  25,512 మంది విద్యార్థులకు ప్రమోషన్‌
+-  Study assesses GPT-4's potential to perpetuate racial, gender biases in clinical decision making
+-  Israel Conversational Commerce Business Intelligence Report 2023: Market to Grow by 19.1% to Reach $2.6 Billion in 2023 - Forecast to 2027
+-  В ВСУ заподозрили США в желании сдать Украину
+-  స్టాఫ్‌ నర్స్‌ పరీక్ష ఫలితాలు విడుదల
+-  Así quedó el ranking de 'Los pueblos más bonitos de España' de National Geographic
+-  Jonathan Majors' Lawyer Makes First Statement Since Assault & Harassment Guilty Verdict
+-  Nevjerovatna Girona ne posustaje, opet je prva na tabeli
+-  Cuauhtémoc Blanco arremete contra Nahuel Guzmán “Es un payaso”
+-  [애드버토리얼] 미래에셋생명, 직원 교육 강화로 직무 역량 향상
+-  복기왕 “22대 총선 깨끗하고 정정당당한 태도로 유권자 선택 받자”
+-  부산시, 택시운송사업 발전 시행계획 수립 내년부터 추진
+-  태백시, 지역사회 중심 돌봄서비스 강화
+-  밀양시, ‘삼랑진읍행정복지센터 신청사’ 개청
+-  태백시문화재단, 21일 '문화 디벨로퍼들의 상생협력포럼’ 개최
+-  부산항만공사, 북항 친수공원 잔여구역 내년부터 추가개발 시작
+-  부산시, 첨단 정보 통신 기술 활용한 스마트쉼터형 버스쉘터 운영
+-  태백시주민자치협의회, ‘2023 주민자치위원 워크숍’ 개최
+-  태백장애인종합복지관, ‘2023년 송년 감사행사' 개최
+-  태백시새마을회, ‘2023 평가대회와 새마을지도자 화합의 밤’ 개최
+-  부산교육청, 환경 변화 선도한 공로 건설안전환경대상 교육 부문 대상 수상
+-  태백시, 2023 자원봉사자대회 개최
+-  태백시-희망브리지 전국재해구호협회 방역봉사단, 방역소독사업 시행
+-  태백시, 2023년 미래인재육성위원회 개최
+-  동대문구, 메타그린 스마트시티 조성 위한 비전 선포
