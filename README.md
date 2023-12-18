@@ -1,51 +1,51 @@
 # Latest News
--  LS adjourned for the day, over 30 MPs suspended for remainder of Winter Session
--  Курутоб, гостеприимство, декольте: что показала Жанна Бадоева в «Жизни других» в Таджикистане?
--  Comienzan campañas de solidaridad por época de Navidad para niños necesitados
--  Патот Берово-Струмица е прооден за сите видови возила
--  کراچی، سلنڈر دھماکا، 3 جاں بحق، متعدد زخمی
--  "بوزيتيف زيرو" تقود حراك تحوّل الطاقة وتخفيض الانبعاثات الكربونية في دول الخليج
--  Unesco reconoció al ceviche peruano como Patrimonio de la Humanidad
--  Jurgen Klopp confirms Ryan Gravenberch injury blow after Manchester United draw
--  الاحتلال يعترف بمقتل جندي من كتيبة الهندسة
--  احتدام التنافس الانتخابي بين مرشح تحالف قوى الدولة الوطنية و مرشح نبني في واسط
--  Council launches poster campaign to track down owners of derelict homes
--  Alienados: nuestra vida validada por los likes
--  Γιώργος Λιανός: Ο Γρηγόρης Αρναούτογλου με έχει στηρίξει σε πάρα πολλές φάσεις της ζωής μου
--  منعت خاصية التعليقات: ميريام فارس تستعد لعيد الميلاد.. وفخامة الزينة تلفت الجمهور (فيديو)
--  Portugal : Nouvelle passe décisive de Rafik Guitane
--  إجتماع للجمعيّة التونسيّة للمكونين الشبّان في السياقة والسلامة المرورية
--  “No siempre tienen disposición las OSC”; buscan construir enfoque integral
--  Gary Oldman: ‘Aparezco donde quiero’
--  "췌장암 4기 진단 후 남편 외도"…'물어보살' 출연자 결국 사망 →네티즌 애도 물결
--  Unla combo & big band jazz lab live al Cotton Club
--  ICSI CSEET May 2024 परीक्षा के लिए रजिस्ट्रेशन शुरू, ऐसे करें पंजीकरण
--  Yemeksepeti'nin Sahibi Türkiye'den Çekiliyor: 2024 Ortasına Kadar İşten Çıkarmalar Devam Edecek
--  El legado de Kissinger en América Latina
--  Ishan Kishan withdrawn from India’s Test Squad
--  볏집으로 만든 집, 얼마나 대단하기에 상까지 받았나
--  5 holiday campaigns to solve all your last-minute gifting woes
--  Activision Blizzard settles discrimination lawsuit out of court with $54 million settlement
--  Ενημέρωση για τη Διαβίβαση Προσωπικών Δεδομένων από την Eurobank
--  Cancer patient has to pay £5,000 every three weeks to stay alive
--  LIVE TJ - Tra poco Juve in campo per l’allenamento aperto ai media e ai tifosi
--  Tecnología en educación para menores
--  Ecco il murale per non dimenticare Michelle Causo
--  Mehmet Şimşek ile Hafize Gaye Erkan'ın planı sızdı '2024'te yapacakları ilk iş belli oldu'
--  Armia izraelska odkryła olbrzymi tunel. Do sieci trafiło nagranie
--  दुनिया का सबसे बड़ा मंदिर भारत नहीं इस देश में है, दीवारों पर है रामायण और महाभारत की कहानियां
--  „Keine Überraschung, über die ich mich freue“: Bundeskanzler Olaf Scholz mit Corona infiziert
--  Lusso, le vendite delle 100 aziende più grandi raggiungono i 347 miliardi di dollari
--  Huawei and MDES Signed MoU to Establish Thailand as a Regional AI Hub
--  Zangrillo: "Polemiche arbitrali? Sto cercando di capire come mai non ci hanno dato rigore contro..."
--  Marintec China 2023 Concluded with Record-Breaking Success
--  VÍDEO | Jorge Rey pronostica la llegada del temporal más fuerte desde hace 145 años
--  S'pore woman finds cockroach in Filet-O-Fish box after buying takeaway from Funan Mall McDonald's
--  何依婷結婚丨姊妹團豪過新娘？陳詩欣吊帶裙廁所打卡似拍《3日2夜》 大爆要等蔡嘉欣做一事
--  Sie verachten uns: Pinkel-Attacke auf Schweinefleisch
--  Give FT Minister time to assess proposal for local govt elections, says Fahmi
--  Cezary Kulesza zapytany o dymisję. Jasna odpowiedź, nie pozostawił wątpliwości
--  الجيش الإسرائيلي يعلن مقتل جندي في معارك شمالي قطاع غزة ليرتفع عدد الجنود القتلى اليوم إلى 5
--  Former singer Stella Ng is pregnant with a ‘dragon boy’
--  Preocupación por casos de injusticia y lento avance de encargos del GIEI
--  Nestorović: Nećemo ići u koaliciјe, to bi bilo smrtonosno po nas
+-  몰테일, 해외직구 종합 플랫폼 도약 본격화
+-  팀네이버, 건보공단과 초대규모 AI 기반 공공 서비스 혁신 협력
+-  코어에이아이, 포스코이앤씨에 AI 비서 구축
+-  엑스로그·효성ITX, ‘실시간 데이터 동기화 솔루션’ 공급 확대 맞손
+-  국제사이버보안인증협회, ‘ISO 23806’ 국제인증심사원 배출
+-  Siyonist terör devleti İsrail Gazze'den sonra gözünü o ülkeye dikti: The Guardian 'yeni bir savaş kaçınılmaz' uyarısında bulundu
+-  Onuachu Kasım ayının oyuncusu seçildi
+-  Zeray Next Capital'de yüzde 25 indirim fırsatı! 2025 sonunda teslim!
+-  Jumlah mangsa banjir di Kelantan meningkat
+-  अभिषेक-ऐश्वर्या: अगर अभिषेक और ऐश्वर्या का तलाक हो गया तो एक्ट्रेस को हर महीने कितना गुजारा भत्ता मिलेगा
+-  בירדן מכחישים גשר יבשתי מדובאי לחיפה: "דיווחים שקריים"
+-  Rivers Crisis: Amaewhule Breaks Silence, Says Tinubu’s Gesture Made 27 Lawmakers Defect To APC
+-  لماذا تتراجع عن العطس في اللحظة الأخيرة؟. إليك السبب وحيلة لن تصدقها
+-  تنبيه مهم من "أمانة الطائف" لملاك المباني التجارية والسكنية
+-  قتل زوجة أخيه وابنتها بطريقة بشعة.. تنفيذ حكم الشرع بحق مواطن بمكة
+-  Estrazione Million Day di oggi, 18 dicembre 2023: i numeri vincenti di lunedì
+-  Corona-Zahlen im Landkreis Uckermark aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Teltow-Fläming aktuell: Zahlen und Fakten aus der Region
+-  Hostages accidentally shot by Israel made help sign with leftover food
+-  Läänemaa parimaks jalgpalluriks valiti teist aastat järjest Martin Salf
+-  Corona-Zahlen im Landkreis Spree-Neiße aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Prignitz aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Man jumps into nuclear cooling tower, records surreal videos
+-  Corona-Zahlen im Landkreis Potsdam-Mittelmark aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  “내 아내가 꿈에서 네가 골을 넣었대”... 풀백을 공격수로 출전시킨 감독→6분 만에 해트트릭 달성
+-  Woman reveals what the ‘mug theory’ is and the cup she gives guests says everything about how much she likes them
+-  Corona-Zahlen im Landkreis Ostprignitz-Ruppin aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Денежные переводы из России в Азербайджан сократились почти в 3 раза
+-  Aqşinlə Hüseynin TikTokda nə işi var?
+-  Залужный о прослушке в кабинете
+-  Corona-Zahlen im Landkreis Oder-Spree aktuell: Inzidenz für Landkreis Oder-Spree, Brandenburg und Deutschland
+-  HRT bi mogao nagrabusiti zbog Lepe Brene, slučaj se istražuje: ‘Ovo nije smjela raditi’
+-  Corona-Zahlen im Landkreis Oberspreewald-Lausitz aktuell: Aktuelle Daten zum Coronavirus
+-  Rivers APC accuses Fubara of burning Assembly complex as Ganduje receives 27 defected lawmakers
+-  Corona-Zahlen im Landkreis Oberhavel aktuell: Inzidenz für Landkreis Oberhavel, Brandenburg und Deutschland
+-  คมนาคมสั่งขนส่งอำนวยความสะดวกปชช.ช่วงปีใหม่
+-  Corona-Zahlen im Landkreis Märkisch-Oderland aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  O vulpe a adus la disperare o familie din Jibou. Unde și-a făcut culcuș animalul sălbatic
+-  Corona-Zahlen im Landkreis Havelland aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Elbe-Elster aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Dahme-Spreewald aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen im Landkreis Barnim aktuell: Zahlen und Fakten aus der Region
+-  Германия — От одежды и игрушек до оливок и кальмаров: риск для здоровья и обман потребителей
+-  Corona-Zahlen in Potsdam aktuell: Die Coronavirus-News aus der Region
+-  Is tequilia the new G&T? Selfridges see sales increase 250% as Gen Z lap up celeb-loved drink that 'is cleaner' than other cocktails - while sales of gin, vodka and whisky plummet
+-  Scholz erneut mit Coronavirus infiziert
+-  "Il a détruit toute la série One Piece" : cette adaptation d'un célèbre anime par Netflix enflamme les abonnés
+-  Corona-Zahlen in Frankfurt (Oder) aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen in Cottbus aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen in Brandenburg an der Havel aktuell: Aktuelle Daten zum Coronavirus
