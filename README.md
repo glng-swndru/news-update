@@ -1,11 +1,11 @@
 # Latest News
--  Amsterdam residents to demonstrate against proposed erotic center in Noord
--  Тревел-блогер Наталия Ансталь назвала тулякам самые красивые места на Земле
--  السر وراء مواجهة الريال ضد لايبزيج وليس إيندهوفن أو لاتسيو
--  Наманган шаҳрига янги ҳоким тайинланди.
--  20 år och 20 timmar – B-Reels marathonfest ville aldrig ta slut
--  Молдавия решила денонсировать еще два соглашения с СНГ
--  Çaydan tiryakilerini üzecek haber geldi
--  Sivas'ta sürüye saldıran kurtlar 37 koyunu telef etti
--  Potenzial nicht unterschätzen: Forschende fordern mehr Artenvielfalt bei Natur-Emojis
--  Konut Fiyat Endeksi ekimde yüzde 3,8 arttı
+-  Google Bard Forecasts Avalanche Price in 2024; Monero and Borroe Finance Position For Significant Growth
+-  RwandAir flight suffers tyre burst during take-off from Harare
+-  بعد ضجة المليار في ليلة واحدة… نارسا تلغي صفقة المليار وتمنح صفقة أخرى بأربع ملايير
+-  Police concerned for missing Strabane man
+-  ارتفاع أسعار العملات مقابل الدينار في السوق السوداء اليوم الاثنين 18 ديسمبر 2023
+-  Patriots star Matthew Judon sparks controversy by posting 'homophobic' AI meme of Patrick Mahomes KISSING an NFL ref - to claim Chiefs star is over-protected by officials
+-  Feyenoord and Roma to play off for Europa League place
+-  Murcia’s Ambitious Bid to Host World Cup 2030 Matches
+-  Tina Arena shares emotional health update following mystery illness that saw the singer cancel world tour
+-  টেস্ট চ্যাম্পিয়নশিপে দুই পয়েন্ট হারালো পাকিস্তান
