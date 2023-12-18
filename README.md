@@ -1,51 +1,51 @@
 # Latest News
--  باتيلي لـ مجلس الأمن: بعض المسؤولين في ليبيا يتمسكون بمقاعدهم ويعطلون الانتخابات
--  Final electric-vehicle mandate to come Tuesday, sales must double by 2026
--  Actualité : Le capteur de présence FP2 d'Aqara utilise désormais les ondes millimétriques pour suivre le sommeil
--  Christodoulides hails opening of Sports Ethics Committee’s new offices
--  Joan Laporta zapowiedział jeszcze jeden zimowy transfer Barcelony. „Jest taki pomysł”
--  Temporal en la provincia de Buenos Aires: suspenden las clases de este martes
--  Soma Mamagésa 10 éve él monogám kapcsolatban, előtte csapongott – videó
--  Vivienda se inunda por desagüe y genera pérdidas a comerciante de Huancayo (VIDEO)
--  الخبير الفلاحي لـ"عربي21": النفق أثبت فشل الاحتلال.. تحدث عن مسار حرب غزة
--  Cumhurbaşkanı Erdoğan, Türkiye-Macaristan Kültür Yılı Açılış Programı'na katıldı
--  İsrailli esir: İsrail ordusunun kurbanı olmak istemiyoruz
--  Hakkari'de terör operasyonu
--  BM: Myanmar'da insani durum kötüleşti
--  »Marktheidenfeld 2023 - der positive Rückblick«
--  Insolvenzverwalter rückt die Schlüssel nicht raus
--  Überrascht vom Besucherzuspruch
--  Weitere Termine für Krimikeller-Stück
--  Lebende Krippe wärmt Herzen der Besucher
--  Wichtiger Baustein für die Gesellschaft
--  Schulverband spart bei Fassade
--  Bodenaushub in der Marktheidenfelder Ludwigstraße
--  Halle in Karlstadt ist bereit
--  Es bleibt beim Nein zu drei Windrädern
--  Fotor Unwraps Festive Delights: AI-Powered Christmas Event Set to Illuminate the Season
--  حدث في 8 ساعات| السيسي رئيسًا لولاية جديدة.. ويصدق على أول قراراته
--  إليك ما تفعله مشاهدة التلفاز بإفراط لصحة رئتيك.. لن تتوقع
--  بعد انتهاء الشوط الأول سلبيا.. توقعات الأبراج لمباراة الأهلي وفلومينينسي في كأس العالم للأندية
--  Scoppia l'incendio alla festa di Natale, evacuata la scuola
--  Sérsveitin yfirbugaði konu í Bæjarhrauni – Flutt á slysadeild
--  Mega važna pobjeda Splita protiv Mege
--  Gabriel Lage presentó su nuevo atelier
--  Feriado por Navidad: Empresas pagarán triple por trabajar feriado
--  Strictly’s Ellie Leach declares ‘love’ for partner Vito Coppola after big win
--  Costcos på väg mot ett börsvärde på över 300 miljarder dollar
--  Hårdt angreb på Melania Trump: - Næsten bedragerisk
--  Okan Buruk'tan flaş Avrupa Ligi değerlendirmesi: 'Bunlar şu an bizim için hayal'
--  Bid to boost tax break for volunteer firefighters as brigades struggle with retention
--  OFICJALNIE: Znamy plany Śląska Wrocław na zimową przerwę w rozgrywkach
--  Husten in der Nacht: So lindern Sie ihn
--  ¿Cuándo y dónde River y Rosario Central disputarán el Trofeo de Campeones?
--  Book Review: Muhammad- The Prophet Of Islam by K.S. Ramakrishna Rao
--  Thalassothermie à La Grande-Motte : c’est parti pour deux ans de travaux
--  Navaľného "zmiznutie" znepokojuje expertku OSN, Moskvu žiada o okamžité prepustenie
--  12 Celebrities Who Got Nose Jobs for Cosmetic or Medical Reasons (Including 2 'Friends' Stars, a Disney Star & More)
--  Incendie au dépôt d’hydrocarbures de Kaloum : cette importante note d’informations….[Moulouk Souleymane Keita]
--  POZOR na mleté bravčové mäso: Kontrolóri našli baktériu salmonely! Ide o šaržu zo známeho reťazca
--  Poslanec SaS sa zbláznil: V jednej bunde chodieva dvadsať rokov, pozrite sa na to mladé ucho na FOTO!
--  V šatách z 19. storočia našli záhadný odkaz: Vedci ho konečne dešifrovali! Odhalil prekvapivý príbeh
--  STRAŠNÁ SMRŤ Zabil ho vlastný KAMIÓN! Desivé DETAILY a zúfalé slová manželky: TOTO si nezaslúžil, vnúčika už NEUVIDÍ
--  GOP lawmaker calls Haley 'a brunette Liz Cheney'
+-  “나한테 일주일에 5억을 준다고?”... 카세미루의 맨유 이적 비하인드
+-  Video: Bill Belichick podría ser el coach de LA Chargers
+-  Empleado de limpia encuentra y regresa 50 mil pesos
+-  АҚШ НУЖ ҳақидаги махфий маълумотларни ошкор қилади.
+-  Jednokrotny mistrz Hiszpanii konkurentem Lecha Poznań?! Chodzi o lidera Wisły Kraków
+-  أسامة كمال: لا تحمّلوا الرئيس فوق طاقته
+-  Télévision. Deux Cherbourgeoises fêtent le réveillon de Noël avec Pete Doherty et Christophe Willem
+-  Awardit gör nedskrivningar på 260 miljoner
+-  لتجنب الحساسية خلال فصل الشتاء.. 5 نصائح احرص على اتباعها
+-  Decoding BJP’s improved showing in state elections
+-  Estrasburgo examinará en enero la transfusión sin consentimiento a una Testigo de Jehová en Madrid
+-  Шойгу поручил выполнить последнюю просьбу военнослужащего Рудакова, погибшего в Марьинке
+-  NIJE MOGLA DA PREĆUTI! Ivana Španović brutalno odgovorila na UVREDLJIV KOMENTAR o razvodu - mreže se USIJALE zbog njene poruke!
+-  Guerre en Ukraine : "Je sais d'où viennent les ordres", un ancien officier de Wagner va témoigner devant la Cour pénale internationale
+-  Više od 200 lažnih prijetnji bombom jevrejskim objektima u SAD
+-  مجھے پولیس کے ذریعے گرفتار کرنے کی کوشش کرائی گئی، حبا فواد کا دعویٰ
+-  Marcelinho Carioca já teve romance com famosa casada e balançou coração de atriz; saiba quem
+-  Заключительная группа эвакуированных из сектора Газа россиян прибыла в Москву
+-  Por que a Fiat Strada faz tanto sucesso no Brasil?
+-  Шойгу поручил выполнить просьбу бойца СВО Рудакова о семье
+-  The Adobe-Figma breakup isn’t a signal of what’s to come for startup M&A
+-  MEHANIZAM NASILJA: Dok Đilasova opozicija divlja u centru Beograda, nosilac liste kaže da je ponavljanje izbora pogrešno
+-  Rodrigo Mussi ataca Viih Tube por parceria com jogos de azar e Eliezer rebate: 'Interesseiro'
+-  Na Šubićevcu spremaju transfer bombu: bivši nadareni veznjak Hajduka želi odjenuti narančasti dres
+-  Provjerili smo koje će butige raditi ako vam doma za blagdane štogod usfali
+-  4 things founders should know before building 5G into a business
+-  Another man (22) arrested for involvement in assault on Powned team on Ameland
+-  Karlos Arguiñano revela cuál fue el precio a pagar por entrar en televisión
+-  Bari, buone notizie per Marino: Brenno si allena regolarmente con il gruppo
+-  Румен Радев, Мария Габриел и службите обсъдиха ситуацията с българите от отвлечените кораби
+-  Bilboko Udalak Ospetsuen aintzatespena emateko ekitaldia ospatu du
+-  BP wstrzymuje tranzyty tankowców przez Morze Czerwone
+-  Συγκλονίζουν οι συνομιλίες των αστυνομικών μετά το δυστύχημα στον Ασπρόπυργο: «Ο συνάδελφος έχει εκσφενδονιστεί» (vid)
+-  Student accused of running over and killing fiancé describes ‘nightmare’
+-  МИД ФРГ осудил ракетный пуск КНДР
+-  U Splitu otvorena zanimljiva izložba: ‘Nisu svi Hrvati bili ustaše, neki su hrabro, po cijenu života spašavali Židove‘
+-  Kaneko u 45 dana od epskog promašaja do glavnog aduta za naslov i usporedbi s Messijem!
+-  Apple Watch Series 10 will be a must-buy if it gets this rumored feature
+-  Metal Slug Tactics опять перенесли, но фанаты даже обрадовались
+-  Prvá dáma Českej republiky založila nadačný fond: Chce pomáhať deťom, samoživiteľom a seniorom
+-  V diskusii o kompetenčnom zákone dominuje opozícia: Rokovať sa má do polnoci
+-  Садвани лидирует после первого дня соревнований по блицу на турнире "Шахматные звезды"
+-  TD racial equity audit finds bank has taken significant steps, more work to be done
+-  Krieg in Nahost: Austin drängt auf Hilfe für Zivilisten in Gaza
+-  В Москве дома-книжки на Новом Арбате окрасились в цвета флага Катара
+-  Tunisie – Medjez El Beb : L’huile extra vierge de Tokaber remporte la médaille Extra Gold pour la 7eme année consécutive
+-  राहुल गांधी ने लोगों से ‘देश के लिए दान’ करने की अपील की, कहा- बेहतर भारत बनाने के संघर्ष में बनें भागीदार
+-  We have been polyamorous for 20 years - here's how we make things work
+-  U Průhonic směrem na pražský Chodov srazil autobus chodce. Ten zemřel
+-  США и Финляндия подписали соглашение о военном сотрудничестве
