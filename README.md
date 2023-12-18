@@ -1,11 +1,11 @@
 # Latest News
--  حركة بذيئة لمذيعة شهيرة على الهواء.. فيديو جديد يكشف ما فعلته
--  تراجع أسعار الحديد في الأسواق اليوم الاثنين (موقع رسمي)
--  ‘Baksuz al ga volem‘: Vučićeva savjetnica objavio video iz izbornog stožera, neviđeno mu se ulizuje
--  Yeşilçam Filmlerini Sönük Bırakacak 100 Milyonluk Miras Davası! Anne ve Oğlun Gerçek Babaları Farklı Çıktı
--  La semaine des Français en NBA : la dernière fois que Killian Hayes a gagné un match, Napoléon vivait encore
--  NALAZI SU JAKO LOŠI! Stravična ispovest bivše rijaliti učesnice: Ono što sam ja videla, mnogi nisu ni u horor filmovima
--  Give FT minister time to consider local election proposal: Fahmi
--  Muttaqi meets China’s special envoy, calls for Mes Aynak project to start
--  Pilsnerraggarna tävlar om Gyllene Venlan – ”Vi är som Alma Pöysti”
--  Україна знищила важливу вогнеметну систему РФ: деталі від ССО
+-  홍천군 청년창업지원센터, 명칭 일원화로 군민들과 소통 강화
+-  농협사료, 포당 700원 추가 인하 실시
+-  Incendie au dépôt de carburant : des dégâts enregistrés suite aux secousses à Ignace Deen
+-  Declaran accidente laboral la muerte por infarto de un camarero de Cuenca tras recibir estando de baja la carta de despido
+-  Health D-G says current Covid-19 vaccine supply stable, future Pfizer batch under negotiation
+-  学術会議 独立した組織とするための法整備検討へ 内閣府
+-  Васил Терзиев: Има 70 млн. лева за плащане и 0 лева по сметките - това е наследство
+-  MUP HNŽ: Divljali po klubu pa ih zaštitari istukli
+-  تعليق نجيب ساويرس على منشور يثير تفاعلا
+-  الاحتلال: التحقيق ( بوفاة ) أسرى من غزة في الاعتقال
