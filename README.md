@@ -1,51 +1,51 @@
 # Latest News
--  Huye exvicepresidente de Ecuador... a Embajada mexicana
--  Pide municipio de Juárez ‘apretar’ a Ferromex
--  Patient Benefits From TMS Depression Treatment at Northern Medical Center
--  Krishna Mukunda Murari Serial Today December 18th Episode జైలులో పెద్దపల్లి ప్రభాకర్‌ని కలిసిన కృష్ణ, మురారి.. ముకుందకు అండగా దేవ్!
--  Lokman Adam: Umno will never allow local council elections
--  국제스틸-비피도, 제5회 강원특별자치도 일자리 대상 우수상 수상
--  동해시, 시민이 뽑은‘올해를 빛낸 10대 뉴스’
--  홍천군 청년창업지원센터, 명칭 일원화로 군민들과 소통 강화
--  삼척시, 겨울철 도로제설 종합대책 추진
--  홍성군의회, 2024년도 예산 8천343여억 원 확정
--  부여소방서, 겨울철 도로 위 ‘블랙아이스’ 사고 주의 당부
--  [인사] NH투자증권
--  신안군, 국내 최대 크기 '푸른바다거북' 표본 신안갯벌박물관 전시
--  삼척블루파워, 지역인재 양성 위한 고등학생 졸업장학금 1억 2천만원 전달
--  하나님의 교회 ASEZ WAO, 주한우즈벡대사관서 한국어강좌 수료식 개최
--  NH농협 동해시지부·동해농협·묵호농협, 장애인리프트 차량 구입비 지원
--  지역상권 살리기 '시동'…민간·지역 주도, 지속가능 혁신상권 조성
--  평창군, 설해 2차 피해 예방에 행정력 집중
--  하나은행, 취약계층 따뜻한 한 끼 위해 '명동밥집' 기부금 전달
--  군부대 이전 촉구 관련 속초시·고성군 공동 대응
--  미국, 핵탐지정찰기 추가 배치…북 핵활동 탐지능력 업그레이드
--  Минобороны заявило об ударе по опорному пункту ВСУ экипажами Су-34
--  제주더큰내일센터 '탐나는인재' 9기 모집
--  이젠 메이저리거… '1억1300만달러' 이정후, 19일 귀국
--  聯發科天璣 9400 續全大核設計，性能輾壓高通 Snapdragon 8 Gen 4
--  라이즈(RIIZE) 원빈, 폭발하는 잘생김에 휘날리는 멋짐~
--  '1470억원' 돈방석 앉은 이정후 금의환향! 19일 귀국한다…ML 첫 시즌 위한 본격 '담금질' 예정
--  성탄절 맞이 특별 경주! 22일부터 25일까지 4일 연속 경륜 개최
--  VAR 없이 김민재 득점 취소 논란→DFB 공식 발표…"김민재 득점 취소 이유, 오프사이드 판정 실수 증명 할 수 없기 때문"
--  Узнали, сколько стоит собрать новогодний стол в Карелии
--  В ярославском храме под краской нашли фреску 19 века
--  A extremar medidas con los niños para evitar quemaduras con pólvora
--  El vídeo del triple crimen de Granada: Los perros conocían al asesino
--  El vídeo del triple crimen de Granada: Los perros conocían al asesino
--  امیر کویت کی وفات پر آج ایک روزہ 'قومی یوم سوگ'، قومی پرچم سرنگوں
--  Venezolanos pasan la navidad sin aumento de sueldo
--  Israel sigue bombardeando Gaza pese a la presión para negociar sobre rehenes
--  Un preot dâmbovițean, printre cei mai buni artiști fierari ai lumii. Părintele Sorin Bute lucrează cu metode tradiționale
--  Tormenta con vientos huracanados deja 16 muertos
--  Plan operativo especial de navidades activan en Terminal de Pasajeros
--  消弭 AirPods 2、AirPods 3 選擇困惑，傳 AirPods 4 將有二版本
--  В световом шоу задействуют стены Суздальского Кремля
--  Дипломатически трик накара Орбан да отстъпи за Украйна
--  عيساوي: أجرة المرتزق
--  “La lucha del año 2024 será mucho más dura”
--  分析師：聯準會轉鴿激發動物本能重燃，釀成風險
--  Gujarat Winter: રાજ્યમાં શિયાળો જામ્યો, અમદાવાદમાં એક જ દિવસમાં 6 ડિગ્રી તાપમાન ઘટ્યુ, નલિયા-ગાંધીનગર બન્યુ સૌથી ઠંડુગાર
--  María Corina Machado hizo lo correcto al acudir al TSJ, afirmó Simón Calzadilla
--  Anak sulung Neelofa boleh sebut huruf bahasa Arab
--  Kody Brown Reveals the Reason Why He Doesn’t ‘Believe Christine Is in Love’
+-  Dylan was bitten by a mosquito on a camping trip. Days later he was left fighting for his life in a hospital bed
+-  Aficionados del Motagua sorprendieron a Pedro Troglio
+-  イーグルスのアシスタント、マット・パトリシアがシーホークス戦で守備のプレーコールを担当へ
+-  Yön uutiskooste | Suomen ja USA:n puolustusyhteistyösopimus allekirjoitetaan, tällainen on jouluviikon sää
+-  ترکیه از امریکا خواست تا از نفوذش برای توقف حملات اسرائیل بر غزه استفاده کند
+-  भोजपुरी अदाकारा Monalisa ने पति के साथ क्लब में लगाए सेक्सी ठुमके, यूजर्स का धक-धक हुआ दिल (Watch Video)
+-  Espn con un desplante para la final de la Liga Nacional
+-  Честит рожден ден на Надежда Алексиева
+-  Kylie Minogue breaks down on US television show as she relives her battle with breast cancer which left her 'traumatised'
+-  Car crashes into parked vehicle in Joe Biden’s motorcade
+-  ‘돈 봉투 의혹’ 송영길, 구속영장심사 출석…“성실히 소명할 것”
+-  ‘국민평형’ 84㎡ 아파트 분양가, 지난해보다 9000만원↑
+-  India News | Parliament Security Breach Case: Delhi Police Recover Neelam's Old Diary, Some Books from Her Residence in Jind
+-  सपा का साथ या बसपा से बात, आज यूपी पर दिल्ली में रणनीति बनाएगी कांग्रेस
+-  Unlikely debut to promising future for Murray
+-  Colorado kaatoi San Josen – Rantanen osui ylivoimalla, Granlund syöttäjänä joukkueensa molemmissa maaleissa
+-  Colorado kaatoi San Josen – Rantanen osui ylivoimalla, Granlund syöttäjänä joukkueensa molemmissa maaleissa
+-  هل تبحث كولونا في الملف الرئاسي؟
+-  Over 67K migrants are living in NYC shelters - more than triple the 2022 holiday season total - as Mayor Eric Adams calls Biden's lax immigration policies 'baffling'
+-  Feci kaza! Bu araçtan sağ çıktı
+-  Uttar Pradesh Horror: ৩ কিশোরের ভয়াবহ কীর্তি, ৪ সারমেয়-শাবককে আগ্নিদগ্ধ করে হত্যা
+-  'Wednesday' Spinoff Reportedly In the Works, Will Center On Fred Armisen's Uncle Fester
+-  나경원 "모두 내려놓고 생동감 있는 정당 만들기를"
+-  삼척시, ‘문화가 있는 날’ 특별공연 크리스마스 콘서트 개최
+-  선감학원 피해자 지원한 경기도, 내년엔 역사·문화공간 조성
+-  오병권 경기도 부지사, 주말 한파에 한파쉼터 찾아 한파 대응상황 등 살펴
+-  하남시, 독서 아카데미 공모사업 최우수 기관 선정
+-  동해시, 낙후된 송정지역 재도약 발판 마련
+-  해남군 올해의 10대 시책 선정… 솔라시도 기업도시 활성화 등
+-  춘천 에코워싱 사업단, 자활사업 운영 우수사례 공모 장려상
+-  함평군, '월야 농어촌도로 306호선' 준공식 개최
+-  횡성군, 제2회 농촌협약위원회 개최
+-  손보협회, 자동차보험료 인하 적극 검토…인하 폭 보험사 자율 결정
+-  전남 최초 특수상용 수소 충전소, 여수미래혁신지구 내 개소
+-  '재미있는 도시(Fun City)' 원주시, 야외 아이스링크 개장
+-  교촌치킨, 따뜻한 나눔의 정 나눴다
+-  Najefektívnejší a najrýchlejší CVIK, ktorý vás udrží vo forme aj počas sviatočného hodovania: Zvládne ho každý!
+-  মঞ্চে পারফর্ম করলেন শাহরুখ পুত্র আব্রাম, ভিডিও ভাইরাল
+-  Gol de Julián Quiñones | América 1-0 Tigres Final Apertura 2023
+-  میکسیکو میں کرسمس پارٹی پر حملہ، 12 افراد جاں بحق
+-  หลุดโฟกัส ‘ทิศเหนือ’ เจี๊ยบ กาญจนาพร เห็นรอยปริศนาที่พื้นบ้านลูกชาย หลังปลิดชีพตัวเอง
+-  عاجل.. طقس مستقر على معظم مناطق المملكة وضباب على الشرقية
+-  World News | Pope Condemns Killing of Unarmed Women in Gaza Church, Calls for End to Violence
+-  Sec. Austin makes unscheduled stop in Kuwait to pay respects to late emir
+-  Royal Mail last posting dates for Christmas – today last post for 2nd class mail
+-  Gen AI To Add $1.5 Tn To India's GDP By 2030: Report
+-  ED Attaches Rs 207 Cr Worth Properties In Tamil Nadu In Money Laundering Probe
+-  ΠΑΣΟΚ: Ενώ το Εθνικό Σύστημα Υγείας καταρρέει, η κυβέρνηση ανακοίνωσε ψίχουλα
+-  América se coronó en la Liga MX y así reaccionaron los memes
+-  עומאר המריא כדי להתחתן, יחמיץ את המשחק של באר שבע נגד מכבי ת"א
