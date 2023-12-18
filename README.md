@@ -1,11 +1,11 @@
 # Latest News
--  DÉCEMBRE 1990- DÉCEMBRE 2023: L’UGB célèbre ses 33 ans
--  Rijksmuseum calls 2023 'historic year' thanks to record-breaking Vermeer exhibition
--  Center Covid Advisory: భారత్‌లో పెరుగుతున్న కరోనా కేసులు, కోవిడ్ లక్షణాలు ఉంటే వెంటనే ఆర్టీపీసీఆర్ టెస్టులు చేయాలని రాష్ట్రాలకు కేంద్రం ఆదేశాలు
--  Cantante de vallenato usaba a Panamá como ruta de tráfico
--  ديكو: برشلونة تركيزه في الدوري أكثر من مواجهة نابولي
--  Japan’s security assistance only involves drones, interceptor boats for maritime surveillance, says Mohamad Hasan
--  '동상이몽2' 베일에 싸인 혼자남, 찰스였다…"자숙설·재벌 결혼설 돌아" [동상이몽]
--  Šetnica Babin Do - Javorov Do, za uživanje u prirodi u svakom godišnjem dobu
--  Nomination de 14 nouveaux directeurs au ministère des Affaires étrangères : le liste complète
--  В офисе Зеленского заявили об ошибке СМИ насчет прослушки Залужного
+-  Murat Cemcir , Ahmet Kural küslüğüyle ilgili itiraf geldi!
+-  Adım Farah dizisi reytinglere dayanamadı! Final tarihi belli oldu
+-  „Woche des verlorenen Kuscheltiers“ in den Niederlanden
+-  Delhi excise policy case: ED issues fresh summons to Arvind Kejriwal
+-  Punjab CM Bhagwant Mann announces 4 per cent DA hike for government employees
+-  En Mérida realizaron vigilia por una “Navidad sin presos políticos”
+-  Поляци запълниха петицата на ENCE
+-  דרעי רומז: נתמוך בדחיית הבחירות המקומיות
+-  Gabriel Boric in Chile: Eine historische Chance für einen jungen Präsidenten
+-  Николай Денков: Преходът от младежкия към професионалния спорт има специфичен проблем, който трябва да бъде разрешен
