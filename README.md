@@ -1,11 +1,11 @@
 # Latest News
--  '3개월 11kg 감량' 신봉선, 수영복 몸매 자랑…비주얼 여신 됐네
--  لتلاشي قطع الخدمة.. تعرف على خطوات دفع "فواتير الكهرباء" المتراكمة
--  [오피셜] ‘펩태완’ 김태완, 2년 만에 K리그 복귀… 천안시티FC 감독 부임
--  UEFA Women's Champions League 2023/24: Alle Ergebnisse vom 4. Spieltag bei FC Bayern vs. Ajax Amsterdam und Co.
--  Ravens vencen 23-7 a Jaguars, amplían racha de triunfos a cuatro y aseguran lugar en playoffs
--  Solidarität hat in der Schweiz zugenommen
--  iPhone 16 多一顆鈕？彭博：用於拍攝影片
--  Im Marianengraben: Forscher entdecken uraltes Wesen – es lebt
--  Asgari ücrette kritik gün: Komisyon ikinci kez toplanıyor
--  Erneut sieglos Letzter
+-  Bauchi Deputy Governor decorated with 2024 Armed Forces Remembrance Tag
+-  Полковник ВСУ рассказал о «боевых комарах», которые атакуют россиян
+-  شاهد نفق حماس الذي يدّعي الجيش الإسرائيلي أنه "الأكبر" في غزة
+-  In-form Orlando Pirates rise to third in South Africa
+-  Pogacar to make Giro d'Italia debut in 2024
+-  Battling Man Utd hold Liverpool as Arsenal top Premier League
+-  Tiger encouraged for comeback after knocking off the rust
+-  Button expects Hamilton to bounce back 'with the right car'
+-  Opetaia gives up IBF belt for 'life-changing' fight
+-  소노 아시아쿼터 교체, 알렉스 카바노 영입[오피셜]
