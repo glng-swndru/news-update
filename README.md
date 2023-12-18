@@ -1,51 +1,11 @@
 # Latest News
--  مع بدء الموسم الجديد 2024.. "عضو السياحة" يكشف أبرز تحديات القطاع
--  China, North Korea hold meeting amid missile launches
--  China, North Korea hold meeting amid missile launches
--  Deprem! Bu Kez Gümüşhane Sallandı! Gümüşhane’de art arda yaşanan depremler korkuttu
--  한미약품, 2023년 한해 동안 R&D 성과 40건 발표
--  이스트라, 19일 120Hz 논글레어 QLED 출시기념 라이브 진행
--  Yıl Bitmeden 3 Bakanlığın Bütçesi Tükendi!
--  Poslednji podaci RIK-a i PIK-a: SNS blizu 50 odsto, Dveri i Zavetnici ispod cenzusa
--  Bjelopoljci jedva dišu od magle
--  زيلينسكي يتحدث عن الأصول الروسية المجمدة.. ماذا طلب؟
--  Cinsel Gücü Artırma Vaadiyle Erkeklere "Keçi Testisi"da Başarılı Olamıyor?
--  AK Parti'de yerel seçim hazırlığı... İstanbul'da temayül yoklaması yapıldı
--  School v sports clubs: The future of this Port Melbourne site decided
--  School v sports clubs: The future of this Port Melbourne site decided
--  La oportunidad que Quique esperaba
--  Stock Market Holidays: వచ్చే ఏడాది మార్కెట్లకు 2 వారాలు సెలవులు, హాలిడేస్‌ లిస్ట్‌ ఇదిగో
--  Dačić najavio ostavku: Potrebno je naći novog lidera SPS-a
--  Independent MP Bob Katter likens Queensland government to Nazi secret police over flood road closures
--  Karnataka News: शालमला नदीत एकाच कुटुंबातील 5 जणांचा बुडून मृत्यू; 3 मृतदेह सापडले, शोधमोहिम सुरु
--  Independent MP Bob Katter likens Queensland government to Nazi secret police over flood road closures
--  Taylor Swift celebrated her 34th birthday party by throwing a star-studded party in New York
--  Hadiri KTT AZEC di Tokyo, Jokowi Beberkan Indonesian Way of Just Energy Transition
--  What may shape the 2024 elections
--  FG mulls 50% fare subsidy as minister, airline operators hold strategic meeting
--  Esel, Engel, Tannenbaum: ein Weihnachts-ABC
--  منع وزير الداخلية العراقي من التصويت في الاقتراع العام
--  Komatireddy: నల్లగొండలో పెండింగ్ ప్రాజెక్టులు పూర్తి చేస్తాం
--  Dončić in Antetokounmpo za spektakel že pred Parizom
--  Днес определят двойките в елиминациите в Лига Европа
--  Palestine protesters arrested after gluing themselves to road
--  Palestine protesters arrested after gluing themselves to road
--  Palestine protesters arrested after gluing themselves to road
--  Dirt bike riders wanted after road rage attack outside police station
--  Dirt bike riders wanted after road rage attack outside police station
--  Truck splits above railway in Melbourne's west
--  Dirt bike riders wanted after road rage attack outside police station
--  Truck splits above railway in Melbourne's west
--  Truck splits above railway in Melbourne's west
--  U moru vreba opaki predator koji svoj plijen reže po pola: Bolje vam je ne naletjeti na ovog crva
--  أكثر من 100 شهيد ارتقوا في مجازر الاحتلال في جباليا
--  اسـتمرار اقـتحامات الاحتلال للضفة
--  عمان الأهلية تشارك في مؤتمر كيو أس لإعادة تصور التعليم
--  عمان الأهلية تقوم بحملة لدعم نزلاء مستشفى المركز الوطني للصحة النفسية
--  الضحية الثالثة.. الرباط الصليبي يضرب ألابا
--  عناصر غذائية لمنع تغييرات جسمك بعد الأربعين
--  «هدبحها زي أختها».. تفاصيل تهديد شقيقة نيرة أشرف بالقتل
--  Руснаците удариха тежко "Азов" в Серебрянската гора
--  Firmy nie mogą wyręczać państwa w dbaniu o zdrowie psychiczne pracownika
--  Gaza : গাজায় আরও ৪ ইজরায়েলি সেনার মৃ্ত্যু, বিবৃতি আইডিএফের
--  Cape Town braces for 9-hour water interruptions from tomorrow
+-  Ministry of Defense discusses Red Sea shootings with partner countries
+-  İsrail yine Gazze'ye saldırdı: En az 100 ölü
+-  Bauern machen mobil gegen Aus für Agrardiesel-Vergünstigung
+-  최태원 만난 홍익표 “기업투자 활성화 세제 개선 노력”
+-  Аталанта и Салернитана закриват кръга в Италия
+-  البحرية البريطانية: تحقيق بانفجار على بعد ميلين من سفينة جنوب ميناء المخا اليمني
+-  कांग्रेस भी करेगी क्राउडफंडिंग, क्या होता है क्राडफंडिंग जानिए यहां
+-  MP VidhanSabha Session Live: CM मोहन यादव ने विधानसभा के सदस्य की शपथ ली, उमंग सिंगार नेता प्रतिपक्ष नियुक्त
+-  Khandwa: लाउड होते वॉल्यूम से पहले प्रशासन अलर्ट, खुद के वाहनों का जांचा डेसीबल, अब कार्रवाई के लिए हुआ तैयार
+-  Train Accident: शहडोल-ब्यौहारी स्टेशन के पास मालगाड़ी हुई दुर्घटनाग्रस्त, कई यात्री ट्रेन हुई प्रभावित
