@@ -1,51 +1,51 @@
 # Latest News
--  Musliman je svetski prvak u jedenju čvaraka VIDEO
--  Britanija će uvesti uvozne carine na ugljenik od 2027. godine
--  Torino, che rendimento per Bellanova: sarà un’assenza pesante con l’Udinese
--  '돈봉투 의혹' 송영길 구속…법원 "증거인멸 염려"
--  Brisanter Schritt im Israel-Krieg: Erdoğan bittet Pro-Hisbollah-Partei um Wahlbündnis
--  La princesse Alexandra attend son premier enfant
--  Parliament security breach: Delhi Police opposes accused Neelam Azad`s plea
--  Srpskom snajperisti je stigao samo opsovati majku: Ovaj ‘Poskok’ je i u smrti bio faca
--  ’إف تي إكس‘ ستدفع للدائنين المليارات كجزء من أحدث خطة إفلاس: تقرير
--  Dursun Özbek hastaneye kaldırıldı
--  IVAN MARINKOVIĆ DOŽIVEO STRAVIČNU NEZGODU NA PUTU: Auto se prevrnuo na KROV, supruga Jelena izvlači ljude iz kola (FOTO)
--  Stelle al Merito del Lavoro, nel Teatro Petruzzelli la premiazione di 47 pugliesi: "Si sono distinti per perizia e condotta morale"
--  Fenerbahçe bu haberi bekliyordu: Dzeko'nun MR sonucu açıklandı
--  Txiki Begiristain: Kopenhag, Galatasaray'dan iyi
--  Erzurum merkezli JASAT Mercek-2 operasyonu: 84 kişi yakalandı
--  Yolcu otobüsünde ele geçirildi: Tam 300 bin adet
--  Galatasaray'ın rakibi Sparta Prag'a genel bakış
--  Feyenoord draws AS Roma in Europa League playoffs; Ajax to Norway in Conference League
--  Ərdoğana at hədiyyə etdi
--  SONDAGE EXCLUSIF - Insécurité et immigration deviennent des enjeux majeurs des élections européennes
--  Keskustaedustajat huolissaan pelastuskoulutuksen keskittämisestä Helsinkiin – Ministeri Rantanen: "Pötypuhetta"
--  Gold rates up by Rs.400 to Rs.217,200 per tola
--  송영길 구속 수감. "사안 중하고 증거인멸 우려"
--  Nou desnonament a Badalona, ara amb una persona dependent
--  Health Tips: గర్భిణీ స్త్రీలు కుంకుమపువ్వు పాలు తాగితే బిడ్డ తెల్లగా ఉంటుంది కదా ?
--  Aniversario mundialista: ningún argentino gritó el penal de Montiel
--  ERTIBIL BIZKAIA Ikusizko Arteen erakusketa aretoan bisitatu ahal izango da urtarrila arte.
--  Ogroman je potencijal Lovačkog saveza HB s 56 članica i oko 10.000 lovaca
--  Rupee on recovery path; gains 05 paisa against Dollar
--  המאמן ה-5 מאז העונה שעברה: סביליה מינתה את קיקה סאנצ'ס פלורס
--  גווארדיולה: "נצטרך לעשות משהו מיוחד באליפות העולם למועדונים"
--  Nagle Kurzajewski przekazał oficjalne wieści ze Stanów. Niespodziewany finał wyjazdu za Cichopek
--  What is the games industry looking forward to in 2024?
--  Guerre en Ukraine : l'Europe face au spectre d'un conflit durable
--  Corée du Nord : tir de missile, avertissement… La tension reste élevée dans la région
--  Climat : ces cinq records alarmants battus en 2023
--  Israël - Hamas : un navire norvégien touché par "un objet non identifié" en mer Rouge
--  Alcool : cette inquiétante banalisation auprès des mineurs
--  La loi immigration au couperet de la commission mixte paritaire
--  Désinformation : l'UE déclenche une "enquête formelle" visant X
--  Allemagne : une victoire aux municipales qui confirme la poussée de l'extrême droite
--  Le Chili garde sa Constitution héritée de Pinochet
--  Corée du Nord : Séoul et Tokyo alertent Washington après un tir de missile
--  Egypte : al-Sissi a été réélu président
--  بيتر توكمان.. نجم المتداولين في «وول ستريت»
--  PSX witnesses bearish trend, loses 925 points
--  Drastična promjena u Vatikanu: Papa odobrio blagoslov istospolnim parovima
--  Студентка от Пловдив научи страшната си диагноза 3 месеца след сватбата
--  Nikad osvojen grad mogao bi pasti u ruke HDZ-a: Već se kuje plan, bit će to trijumf Plenkovića
--  Le Malawi inaugure son ambassade à Rabat
+-  Kickoff | Swazi star set for Chippa assessment
+-  Falla rueda de la fortuna en Oaxaca
+-  Situație inedită la un turneu de tenis demonstrativ din Franța: Mirra Andreeva a trebuit să înfrunte în finală un bărbat
+-  Jokereiden pelaaja valittiin Kuukauden pelaajaksi
+-  Šokujúci incident odštartoval volebnú kampaň v USA! Autonehoda prezidentskej kolóny: Strach o Bidena
+-  SHMÚ upozorňuje: Na celom území Slovenska sa môže tvoriť hmla, na väčšine aj poľadovica
+-  Alex Batty says 'I'm glad to be here for Christmas' as he makes first statement since reuniting with his family in England after he was missing for more than six years
+-  North Korea – Missile launches (18.12.23)
+-  Mama June Shannon considering putting her grieving granddaughters in therapy to cope with the loss of their mother Anna 'Chickadee' Toney
+-  Jason Momoa wears silk striped pyjamas and a crocheted purple cardigan as he becomes the latest star to read a CBeebies Bedtime Story
+-  Сандерленд Русина призначив нового головного тренера
+-  Moment police officer punches innocent medical worker in the head and tells him to 'get on the f***ing floor now' after mistaking him for the criminal
+-  Moment police officer punches innocent medical worker in the head and tells him to 'get on the f***ing floor now' after mistaking him for the criminal
+-  '임신' 황보라 "1년 동안 기다리고 기다린 아기…입덧 없어"('조선의 사랑꾼')
+-  Muere adulto mayor de un infarto en la Pavis Borunda
+-  Llevarán alegría y regalos en Punta Oriente
+-  Tiene FGE 500 mdp en bienes asegurados de Aras
+-  Liga AMLO masacre en Guanajuato con consumo de drogas
+-  Rechazan chilenos por segunda vez nueva Constitución
+-  [알립니다] 강원문화예술, ESG 통해 위기를 기회로
+-  오늘 춘천서 강원민족예술인대회
+-  비올리스트 리처드 용재 오닐의 ‘바로크 선물’
+-  서울 한복판에 전하는 강원의 생명력
+-  강원이주여성상담소 치료회복 프로그램 결과 전시회
+-  [도민시론] 새삼스럽다! 페미니즘이여, 성평등이여
+-  [명경대] 바다열차의 퇴장
+-  [사설] 소양강댐 주민 희생 당연시 안 된다
+-  [사설] 양양공항 전세기 재개 활로 계기로
+-  북 또 미사일 발사…윤 대통령 “어떤 도발도 압도적 대응”
+-  남춘천여중 도지사배 전국 아이스하키대회 우승
+-  황희찬 풀타임 불구 팀 재계약 첫 경기 ‘침묵’
+-  아시안컵 최종명단 엿보기…K리거·해외파 16명 국내 소집
+-  성폭행 혐의 전 강원FC 선수 2명 항소심도 중형 구형
+-  강원대병원 응급실 찾은 70대 도착 후 7시간 대기하다 사망
+-  원주 치악산 산행 50대 저체온증 호소 소방헬기 이송
+-  한겨울 물난리
+-  검, 실종 초등생 유인 수차례 범행 50대 징역 30년 구형
+-  “인력·장비 공급 도와줄게” 수억원 편취 노조간부 구속기소
+-  “내년 창립 50주년 맞아 노인복지 증진 지역상생 강화”
+-  춘천·홍천 ‘바이오 특화단지’ 유치전 범도민 지원 나선다
+-  Numărul proiectelor cu investiții străine a înregistrat o creștere de 86% în România anul trecut
+-  [알림] 더 깊이 있는 ‘제22대 총선 분석’ 찾아갑니다
+-  강원인평원 미래인재 16명 선발
+-  도사회서비스원 지역자율형 투자사업 성과보고회
+-  중소기업 밀집지 경영상황 상시 모니터링·맞춤형 지원프로그램 제공
+-  강원랜드 연말 공연·이벤트 풍성
+-  양구군 제1회 힐링 평화 음악회 성료
+-  김남순 민주노총 강원본부장 선출…11기 임원 구성 마무리
+-  양재원 ICT 기반 의료정책 유공 표창
+-  이양수 국회 의정활동 대상 수상
