@@ -1,11 +1,11 @@
 # Latest News
--  Konya'da akaryakıt kaçakçılığı operasyonunda 8 bin 835 litre kaçak akaryakıt ele geçirildi
--  Sacha Boey için bir iddia da Almanya'dan
--  Krajne pravicová AfD získala v Sasku svoj prvý post starostu
--  Prečo sa McDonald’s radí medzi najlepších zamestnávateľov na Slovensku?
--  ASI ने वाराणसी कोर्ट में पेश की ज्ञानवापी सर्वे रिपोर्ट
--  Promena u vodama “Bermudskog trougla”: O čemu se radi?
--  정개특위, 위성정당 방지법 첫 논의…여야 견해차만 확인
--  與 뉴시티 특위, '구리시 서울 편입' 특별법 내일 발의
--  당정 "강원동계청소년올림픽, 잼버리처럼은 안돼…만반 준비"
--  나경원 "우리 모두 내려놓고 반성하며 생동감 있는 정당을"
+-  تشـكيلات إدارية في وزارة الداخلية - أسماء
+-  Chilenos rechazan una nueva constitución
+-  عاجل.. بشرى لهؤلاء.. الإعلان عن 605 وظائف في أرامكو للعمل بعدة مجالات
+-  BREAKING: Gyanvapi Masjid Survey Case: ASI Submits Report To Varanasi District Court
+-  "คมนาคม" เตรียมพร้อมดูแลปชช.เดินทางช่วงปีใหม่ คาดเดินทางกว่า 15 ล้านคน
+-  SONP จัดอบรม ความสำคัญของ "MarTech กับอุตสาหกรรมสื่อดิจิทัล" ในยุค Digital Era
+-  Zwei Leichtverletzte bei Brand in Metall-Unternehmen
+-  Reijnders si prende la scena: «Prestazione a tutto campo, un solo aspetto negativo»
+-  Süper Lig'de 17. hafta hakemleri belli oldu
+-  Rusya'nın Ankara Büyükelçisi Andrey Karlov suikastının üzerinden 7 yıl geçti
