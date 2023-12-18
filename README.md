@@ -1,51 +1,11 @@
 # Latest News
--  হাইকোর্টের আদেশে প্রার্থিতা ফিরে পেলেন সাদিক আব্দুল্লাহ
--  64 साल के बिजनेसमैन ने 33 साल छोटी एक्ट्रेस के साथ मनाई अपनी शादी की सालगिरह
--  Esel, Engel, Tannenbaum: ein Weihnachts-ABC
--  Nooro Knee Massager Reviews [LEGIT or FAKE] Consumer Reports, Price, Complaints
--  IntelliBell Reviews WARNING Buyers Beware!!
--  Samantha responds to netizen who asked if she plans on getting married again
--  '한동훈 비대위원장 추대론'에 찬반 대립… 與 내홍 속으로
--  민주 3호 영입인재, '경찰국 반대' 류삼영 전 총경(종합)
--  동력 잃어가는 ‘이낙연 신당'… 당 안팎 반대 확산
--  보령시, 안심귀가 앱으로 '불안 ZERO 안전 UP'
--  양양군의회, 제277회 정례회 폐회
--  인천개항장 문화재 야행, 3년 연속 문화재청 ‘우수사업’ 선정
--  인천시교육청, ‘제3회 인천 체육교육 축전’ 개최
--  경기도, 노동권익 서포터즈 활동 ‘큰 성과’
--  경기도, 행안부 장관 기관 표창 수상
--  경기도 배달특급, ‘성탄전야 평일 할인’ 이벤트 실시
--  용인, 지자체 장애인복지사업평가 우수상 수상
--  경기도 “겨울철 가족과 함께 특별한 추억 남기세요”
--  수원, ‘경기도 여성친화도시 활성화 유공’ 3관왕
--  충남도의회, 농어촌학교 소멸 대응 위한 ‘작은학교 살리기’ 방안 논의
--  파주, 지역화폐 시책 평가 전국 3위
--  고양 덕양보건소, ‘경기도 치매관리사업 성과평가’ 최우수상
--  가평, 귀촌·귀농학교, 맞춤형 교육 우수학교 선정
--  평택아트센터, 평화예술의 전당 ‘새 이름’
--  진해, 청렴 가득한 공직문화 위한 '청렴트리' 단장
--  [포토] "메리 크리스마스" 온누리에 불 밝힌 함양
--  신한은행, 사내 벤처 팀 '아르티브' 독립 법인 분사
--  김경일 파주시장, 한파대비 한랭질환자 예방 당부
--  [마감시황] 코스피·코스닥, 외국인 매수세에 상승 마감
--  충남도, 충남 워케이션 참가자 만족도 90%
--  검찰, '전대 돈봉투 의혹' 윤관석에 징역 5년 구형
--  우리금융미래재단, 자립준비청년 금융 멘토링 1기 수료식
--  거창, 하반기 적극행정 우수공무원 6명 선정
--  자담치킨, 취향 저격 콤보&스틱치킨 출시
--  대형마트 3사, 설 선물세트 사전예약 개시
--  Hideo Kojima elárulta, hogy miért nem megy majd soha nyugdíjba
--  Fizičar je riješio dilemu – je li mikrovalna opasna
--  Rộ tin đồn ông Putin tiết lộ cựu Ngoại trưởng Tần Cương làm rò rỉ bí mật về Lực lượng Hỏa tiễn của ĐCSTQ
--  Upcoming IPO: धूम मचाने आ रहे हैं इन कंपनियों के IPO… मिल सकता है रिकॉर्ड तोड़ कमाई का मौका
--  İstanbul Barajları Yağışların Etkisiyle Yükselişte: Ortalama Doluluk Oranı Arttı
--  檢, ‘민주당 돈봉투 의혹’ 윤관석에 징역 5년 구형…“범행 부인”
--  ‘임금체불 항의’ 택시기사 방영환씨 폭행한 운수회사 대표 구속기소
--  Sarawak can potentially expand the national pineapple industry, says LPNM chairman
--  مّن يعبئ هذا الفراغ القاتل؟
--  Traktoren am Brandenburger Tor: Bauernprotest gegen Streichung von Agrardiesel-Subvention
--  Bihar: दारोगा परीक्षा के अगले दिन ही पकड़ा गया सॉल्वर गैंग, 3 गिरफ्तार
--  Realu se ozlijedio prvotimac, Ancelotti najavio pojačanje
--  الأمم المتحدة تحتفل باللغة العربية: ركن من أركان التنوع الثقافي للبشرية
--  عاجل.. شرط صرف حساب المواطن لمن عليه إيقاف خدمات ومصير الدفعات المعلقة
--  شاهد.. أمير الكويت يتلقى واجب العزاء بوفاة أخيه الراحل
+-  בגלל סכסוך חניה: דקר את שכנו שנפצע אנושות
+-  Melbourne listed as one of the top searched travel destinations globally for 2024
+-  AK Parti'de aday hazırlığı! Kapalı zarfta 3'er isim alındı
+-  [2023결산/통신] 요금인하 압박에 성장한계 봉착…통신3사 해법은 ‘AI’
+-  ‘車 해킹 시도 방어’ 티맵 오토…유럽 SW 품질 평가 통과
+-  KT, 디지털시민 프로젝트 1주년 성과공유회 개최
+-  스마일게이트 신작 ‘원더러스’, 내년 1월8일 아시아태평양 4개국 출시
+-  SKT-SK스퀘어, 페이커와 함께하는 사내 ‘T1 롤드컵 축승회’ 개최
+-  Мурашко заявил о росте числа детей, пострадавших от киевского режима
+-  Henry Onyekuru ve Murat Sancak Gerilimi Devam Ediyor!
