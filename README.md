@@ -1,11 +1,11 @@
 # Latest News
--  Von Böhmen bis nach New York: Adventskonzert der Concordia Strietwald in St.Konrad Kirche
--  Die Ahornblättrige Platane kann ein stattlicher Baum werden
--  ADAC: Staus besonders am Freitagnachmittag und Samstagvormittag
--  "Wir waren immer für die Senioren da"
--  Kinderkrankenhäuser wollen freie Betten schneller verteilen
--  Regenwasser kostet in Weilbach künftig Kanalgebühr
--  Schwarz-rote Regierungskoalition in Hessen ist besiegelt
--  Märchenhafte Lieder zu Weihnachten präsentiert
--  استشهاد إعلامي فلسطيني جراء استهداف منزل عائلته في منطقة جباليا
--  وزير العدل يستقبل وفدا قضائيا من دولة الامارات لتبادل الخبرات القضائية
+-  Amsterdam residents to demonstrate against proposed erotic center in Noord
+-  Тревел-блогер Наталия Ансталь назвала тулякам самые красивые места на Земле
+-  السر وراء مواجهة الريال ضد لايبزيج وليس إيندهوفن أو لاتسيو
+-  Наманган шаҳрига янги ҳоким тайинланди.
+-  20 år och 20 timmar – B-Reels marathonfest ville aldrig ta slut
+-  Молдавия решила денонсировать еще два соглашения с СНГ
+-  Çaydan tiryakilerini üzecek haber geldi
+-  Sivas'ta sürüye saldıran kurtlar 37 koyunu telef etti
+-  Potenzial nicht unterschätzen: Forschende fordern mehr Artenvielfalt bei Natur-Emojis
+-  Konut Fiyat Endeksi ekimde yüzde 3,8 arttı
