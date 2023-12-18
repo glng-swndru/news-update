@@ -1,51 +1,11 @@
 # Latest News
--  Janhvi Kapoor’s latest ethnic look proves that you cannot go wrong with a black saree
--  Dunki Diaries: When Shah Rukh Khan mistook real prisoners for fans during the shoot
--  Janhvi Kapoor and Nysa Devgan enjoy vacation in London, Orry shares pictures, see
--  City of Cape Town endorses new ‘Winelands Airport’
--  Putin aday olmak için resmi başvurusunu yaptı
--  Şırnak’ta 3 örgüt mensubu ikna yoluyla teslim oldu
--  Galatasaray'dan Dursun Özbek'in sağlık durumu ile ilgili açıklama
--  Manchester City'den flaş açıklama: 'Kopenhag, ManU ve Galatasaray'dan iyi'
--  الملك يبحث سبل توسيع التعاون العسكري مع باكستان
--  الملك يتابع مستجدات تنفيذ الرؤية الاقتصادية في مجال الطاقة
--  جوبترول تحذر من إعلانات مزيفة تعد بجوائز وقود مجانية
--  VZP dá dětem 2000 Kč na lyžařský výcvik. Má jedinou podmínku
--  Berkshire VNA Nurses and Healthcare Professionals Reach Tentative Agreement on First MNA Contract to Stabilize Staffing and Improve Patient Care
--  Javier Milei recibe a otro funcionario clave del gobierno de Joe Biden en busca de apoyo financiero
--  Advertencia a los gobernadores. Adorni, sobre la emisión de cuasimonedas: “No hay que gastar más de lo que se tiene”
--  El 70 % de las estaciones de servicio de Irán dejaron de funcionar por un presunto ciberataque
--  To je glede kratkoročnega oddajanja nepremičnin za turizem napovedal Golob
--  El Gobierno francés confía en lograr un acuerdo con la derecha para aprobar su reforma migratoria
--  El Gobierno francés confía en lograr un acuerdo con la derecha para aprobar su reforma migratoria
--  EU investigates Musk’s X in first DSA probe
--  La comunidad escolar de Gernika condena la presunta agresión sexual a una menor por parte del exentrenador del Lointek
--  El Dinamo de Zagreb, asequible rival del Betis en la Conference League
--  Huta napali još dva broda u Crvenom moru
--  Siracusa, nuovo regolamento del commercio su aree pubbliche: via libera dalla Giunta, palla al Consiglio
--  Vatican approves blessings for same-sex couples in landmark ruling
--  WATCH — Shehnaaz Gill, Guru Randhawa leave fans smitten with latest Instagram reel
--  Factions within the National Freedom Party do battle
--  ANC joins hands with pro-Palestine groups to intensify ceasefire calls
--  Egypt's President re-elected with 89% of the vote
--  Ugandan court hears challenge to harsh anti-gay law
--  Iraqis vote in first provincial elections in a decade
--  SA submits ICC documentation to lay complaint against Israel
--  ANC KZN confident of victory in the province
--  Fideszes love story: a snájdig propagandista gyengéden nyalogatta körbe az uniós csúcsról kizavart Orbánt
--  Sabrina Sato prova que o quiet luxury é tendência até para a mais maximalista das fashionistas
--  El SHN emitió alertas por crecidas en el Río de la Plata y la Costa Atlántica bonaerense
--  MCG to transform into a Cricket Mela for #AUSvPAK Boxing Day Test
--  Steven Spielberg's Bullitt movie gets exciting update: "It'll be wildly entertaining"
--  PM de São Paulo prende dois suspeitos pelo sequestro de Marcelinho Carioca
--  Gewaltprävention: Berliner Polizei nimmt für Silvester Eltern in die Pflicht
--  Kapustovú prekvapilo, že dostane peniaze. Borguľa verí, že forma bude gradovať
--  WATCH: Faryal Mehmood's dance number in Yumna Zaidi's 'Nayab' is out now!
--  Livstids fängelse för knivmord på kvinna
--  "Qarabağ" "Neftçi"yə qarşı: start heyətləri açıqlandı
--  Занадто токсична: соцмережа Х Ілона Маска потрапила під розслідування в ЄС
--  JEE Main 2024 next month; Important topics to revise
--  Celstraffen tot 9 jaar geëist tegen Bossche criminele bende die handelde in harddrugs en contact had met ‘Pablo Icecobar’
--  The 3 best mattress toppers on sale today and shipping in time for Christmas
--  Съдът пусна олимпийския шампион Иван Иванов, но остави в ареста сина му
--  נתניהו למזכיר ההגנה של ארה"ב: "החות'ים מאיימים על חופש השיט של כולנו"
+-  ‘53세 아빠’ 최성국, 아내 난산 가능성에 눈물 "미안하고 불쌍해"(‘조선의 사랑꾼’)
+-  Arajet reaches new record with 54K passengers in November
+-  Încrederea ucrainenilor în Volodimir Zelenski a scăzut puternic, în timp ce în forțele armate rămâne neschimbată / Generalul Zalujnîi se bucură de o încredere uriașă (sondaj)
+-  بالفيديو.. بعثة الأهلي تتحرك إلى ملعب الجوهرة استعدادا لمواجهة فلومينينسي
+-  وظائف شاغرة في مينائي الملك عبد العزيز بالدمام وجدة.. الشروط وطريقة التقديم
+-  Hoy, habrá bacheo en 4 colonias
+-  منها 120 قطعة مجوهرات و29 ساعة فاخرة .. عمليات سرقة واسعة في مطار هذه الدولة
+-  الزكاة: إلغاء الغرامات عن المكلفين آلياً بهذا الشرط
+-  قبل مواجهة الأهلي.. قصة الحظ السيئ للاعب فليبي ميلو وبرجه يحمل مفاجأة اليوم
+-  Путин: большинство россиян живут от зарплаты до зарплаты
