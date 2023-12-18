@@ -1,11 +1,51 @@
 # Latest News
--  Clausuran 4 establecimientos el fin de semana
--  No tenemos plurinominales porque ganaremos en tierra: PAN
--  وزارة الداخلية بحكومة الوحدة الوطنية تحتفل بيوم الشرطة العربية.
--  باثيلي يكشف أمام مجلس الأمن موقف وشروط الأطراف الليبية للمشاركة في الاجتماع الخماسي
--  السني يؤكد أن ملكية الليبيين وقيادتهم لأي عملية سياسية هي مفتاح الحل الذي يقود البلاد إلى الاستقرار.
--  باثيلي: لا يجب السماح للمسؤولين غير الراغبين في إجراء الانتخابات بخذلان الليبيين وتعريض المنطقة لخطر
--  المبعوث الأممي: سياسيون وأكاديميون وناشطون يقبعون في الاحتجاز التعسفي في بنغازي وسرت وطرابلس
--  باثيلي: الليبيون يعانون صعوبات اقتصادية واجتماعية متزايدة رغم ثروة بلادهم الهائلة
--  EU usvojila 12. paket sankcija Rusiji
--  „Tai stulbinanti Amerikos užsienio politikos nesėkmė.“ Ukraina patyrė siaubingą savaitę
+-  Bursa'da zincirleme kaza: Ölü ve yaralılar var...
+-  Galatasaray, yıldız oyuncuyu gönderiyor
+-  Girona aprova la rebaixa del contracte de la neteja amb crítiques de l’oposició
+-  కలెక్టరేట్‌ వద్ద ఉపాధి ఫీల్డ్‌ అసిస్టెంట్ల ధర్నా
+-  వైసీపీ పాలనలో విసిగిపోయిన ప్రజలు
+-  Mariah Carey’s ‘All I Want for Christmas Is You’ Scores Record-Breaking 16th Week at No. 1 on Billboard Global 200 Chart
+-  Bolivia participó en la celebración de los 10 años del programa de Huawei Semillas
+-  Úrad pre dohľad nad zdravotnou starostlivosťou schválil navrhovaných kandidátov do predsedníctva VšZP
+-  Nuoret Leijonat saa heti vastaansa kovan luokan NHL-tähden
+-  Abdo en tanque militar, al carajo de un barco, en paracaídas: hechos vs. circo
+-  అంగన్‌వాడీలకు అండగా ఉంటాం : ఎమ్మెల్సీ ఐవీ
+-  ‘గరిమెళ్ల’ ఆశయ సాధనకు పాటుపడాలి
+-  الحرب على غزة.. هذه تفاصيل مؤتمر غالانت وأوستن في "إسرائيل" (شاهد)
+-  సమగ్ర శిక్ష ఉద్యోగుల పెన్‌డౌన్‌
+-  Em preparação para o Mundial de Clubes, Bernardo Silva revela admiração por Abel Ferreira
+-  Corinthians encaminha renovação do empréstimo de Maycon por mais um ano
+-  Soccerladuma | OPINION: Path Paved For Historic Arsenal UCL Win
+-  Blue Origin adia, de novo, lançamento previsto após acidente com nave
+-  Marrakech: trois touristes français arrêtés en possession d’euros de billets
+-  Rio de Janeiro recria Secretaria Estadual de Segurança
+-  Neto de Marcelinho Carioca completa 8 anos enquanto o avô está desaparecido
+-  వైసీపీ ప్రభుత్వంలో ఎమ్మెల్యేల బదిలీలు
+-  Loi immigration : la CMP a démarré sous haute tension
+-  Sale closed in Saratoga: $3.8 million for a three-bedroom home
+-  Hunter x Hunter, un picchiaduro è in sviluppo presso il creatori di Marvel vs. Capcom 3
+-  Global Education Holdings acquires Australian Performing Arts Conservatory
+-  TSK Architects Recognized for Excellence in Design by American Institute of Architects
+-  Seine-et-Marne : Familles rurales, une association qui accompagne les familles à vivre mieux
+-  Historical Thriller ‘Firebrand’ Starring Alicia Vikander & Jude Law Acquired By Roadside Attractions, Vertical
+-  This Rare Mercedes-McLaren Roadster Is Heading to Auction Next Month
+-  Should the European Union expand and the United Kingdom break up?
+-  Timnas AMIN Minta Temuan PPATK soal Dana Kampanye Ilegal Diusut Tuntas
+-  Тренер сборной России назвал фаворитов турнира претендентов-2024
+-  O sonho do coração artificial
+-  Watch Olivia Rodrigo Rock Out to ‘Get Him Back!’ in a Grungey Basement
+-  స్వయంశక్తి సంఘాలను ఏ గ్రేడ్‌లో ఉంచాలి: ఏసీ
+-  Мисајловски: Почеток за преговори со ЕУ нема поради криминалот и корупцијата на власта
+-  అదనపు బాధ్యతలను వ్యతిరేకిస్తున్నాం: ఫ్యాప్టో
+-  Piden 4 años de cárcel para Cristina Seguí por difundir un vídeo de las víctimas de la violación grupal de Burjassot
+-  Umberto Tozzi ospite al Festivali i Këngës 2023, la selezione albanese per l’Eurovision 2024
+-  Piden 4 años de cárcel para Cristina Seguí por difundir un vídeo de las víctimas de la violación grupal de Burjassot
+-  వైసీపీ పాలనలో రైతులకు మోసం : మర్రెడ్డి
+-  Quién es el guatemalteco que murió acribillado presuntamente por un comando armado mexicano durante un palenque en San Marcos
+-  కలెక్టరేట్‌లో సర్వే డేటా ప్రొసెసింగ్‌ సెంటర్‌
+-  Video | Estos fueron los destrozos que dejó el temporal en Argentina: más de 13 muertos
+-  ప్రైవేట్‌పరం కాకుండా అడ్డుకుంటాం
+-  Las exportaciones de calzado se desploman un 40% y anotan su peor octubre en más de una década
+-  الخليفي يرحب بمشروع حماية المهاجرين من منظمة انترسوس.
+-  "Rettenetesen reménytelen a helyzet" – Hiába vár kártérítésre az epekőműtét után elhunyt Anna szerelme
+-  Terör devleti İsrail'in alçak saldırısına İngiltere'den tepki: Kiliseye sığınan sivillerin öldürülmesi dehşet verici
