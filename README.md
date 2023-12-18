@@ -1,51 +1,51 @@
 # Latest News
--  Odgođeno glasanje SB UN-a o rezoluciji o Gazi
--  Mercato - RC Lens : Coup de théâtre après son transfert ? Une réponse tombe
--  Aaj Ka Vrishchik Tarot Card: वृश्चिक राशि वाले किसी भी भ्रम और भटकाव की स्थिति से बचें, नहीं तो होगा नुकसान
--  دقت ساعة الحقيقة ويجب التفكير بالخيار (ب).. بيان ناري من الفريق السياسي للمترشح الرئاسى سيف الإسلام القذافي
--  VIDEO Krš i lom u Zaprešiću: Lančani sudar više automobila
--  Небензя заявил об отсутствии нарушений резолюции об СВПД со стороны России
--  Оборонный концерн Rheinmetall получил от Берлина заказ десятки тысяч снарядов для ВСУ
--  Scarlet and Violet fans can’t stop sharing clips playing as Pokémon
--  Sempra Named to Dow Jones Sustainability Index North America for 13th Consecutive Year
--  CSE starts fresh week on a negative note
--  Court stays action by Union Bank on Tenaga Car Parks
--  Overseas Realty Group brings expertise to Port City Colombo Duty Free Mall with facility management appointment
--  SriLankan Airlines rolls out the green carpet onboard
--  First half of December pushes tourist arrivals to over 100,000
--  لاعب فلومينينسي: الشيوخ تأهلوا إلى نهائي كأس العالم للأندية
--  Taylor Swift Got 7 Custom Birthday Cookies At That Last Chiefs Game, And All Of Them Have A Special Meaning
--  Prumo terá terminal de grãos para movimentar milho e soja via Porto do Açu, diz presidente
--  Nigerians Reacts As Pastor Bolaji Invites Spyro To Perform At Church Christmas Carol
--  Elon Musk recibe el tratamiento John Oliver
--  Elon Musk Gets the John Oliver Treatment
--  Lucknow : तुलसियानी ग्रुप की ब्रांड एम्बेसडर गौरी खान की बढ़ सकती है मुश्किल, ईडी पूछताछ करने की तैयारी में
--  Man wanted for assault arrested in Granville County after hiding in home, sheriff says
--  Registran domicilios en Lima y Callao por presunto delito de pornografía infantil
--  Encuentran una bebé viva y con el cordón umbilical en un contenedor en Sevilla
--  Encuentran una bebé viva y con el cordón umbilical en un contenedor en Sevilla
--  Vašington želi da sarađuje sa Srbijom na jačanju demokratije posle izbora
--  Envista Announces Participation in J.P. Morgan Healthcare Conference
+-  Kriisiseura harkitsee jo päävalmentajan potkuja - tämä huippunimi tilalle?
+-  Profesorius apie Izraelio karių nušautus įkaitus: tai gali būti Netanyahu pabaigos pradžia
+-  Funke Akindele excites movie lovers with ‘A Tribe Called Judah’
+-  Landwirte-Protest: Trecker versperren B61 und Zufahrten bei Uchte
+-  LEGA SERIE A STARS AT THE WORLD FOOTBALL SUMMIT ASIA IN SAUDI ARABIA
+-  Sandstorm Gold Royalties Declares Quarterly Dividend for First Quarter 2024
+-  REPORTERKA RT BALKAN POGOĐENA U GLAVU: Bahato ponašanje pristalica "Srija protiv nasilja" ispred RIK-a (VIDEO)
+-  నెలలోగా నామినేటెడ్‌ పోస్టులు!
+-  فلومينينسي يطيح بأحلام الأهلي المصري في مونديال الأندية
+-  Arsenal top Premier League as Liverpool prepare to host Man Utd
+-  Giants QB Tommy DeVito Embroiled in Bizarre New Jersey Pizzeria Drama
+-  Sketch History
+-  Die Entdeckungsreise ging mal wieder schief
+-  Luftmatratzen mit Krawatten füllen
+-  Vom Tierquäler zum Folterknecht
+-  Napoleons neue Strategie
+-  Die Erfindung des Zweitschlüssels
+-  Technologien des CCS-Projekts: Der Abschluss des CCS4CEE-Projekts
+-  Napoli-Frosinone, Soulè segna da fuori area? E Kaio Jorge...
+-  Follia Rublev, nuovo scatto d’ira: mano in faccia al giudice di sedia
+-  అసెంబ్లీలో స్ర్కీన్‌.!?
+-  Stemming VN-Veiligheidsraad over wapenstilstand Gaza uitgesteld
+-  Enerji işbirliği derinleşiyor! Dost ülke ile anlaşma sağlandı
+-  Güney Afrika'dan UCM'ye çağrı: İsrail'in savaş suçları soruşturulsun
+-  İşgalci İsrail'den Filistinli esirlere "sistematik" intikam!
+-  Yahudi yerleşimcilerden skandal! Namaz kılan Müslümanlara biber gazı attılar
+-  Lo que deja el quinto ciclo del diálogo del ELN y el Gobierno de Colombia en México
+-  البعثة الروسية في بروكسل: العقوبات الأوروبية ضد موسكو فشلت تماما
+-  Neue Supermarkt-Preisschilder: Kunden droht Kostenfalle
+-  Slim apuesta a empresas detrás de megaproyecto petrolero de México
+-  Hornets’ Miles Bridges denied access to Canada for game vs. Raptors due to legal problems
+-  Nara Lokesh : నియంతృత్వంపై ప్రజాయుద్ధం
+-  Leser-Fotos: So schön ist der Main-Kinzig-Kreis
+-  Ryan Gosling gifts new version of ‘I’m Just Ken’ for Christmas
+-  El PP acepta evaluar más en profundidad la calidad hospitalaria de Madrid
+-  Minister Komati Reddy : కేటీఆర్‌, హరీశ్‌కు మతి భ్రమించింది
+-  Massy, Salvation Army give back with annual holiday feeding programme
+-  Vlammen slaan door het dak bij brand in appartement
+-  «أمريكية الشارقة»: تخصص جديد في «الحماية من الحرائق»
+-  DGB Energie moet 3 jaar stoppen met telefonische klantenwerving
+-  الذهب يرتفع مع تراجع عوائد السندات
+-  Whitney Cummings welcomes her first '3-D printed human,' a baby boy
+-  ΑΕΚ: Μουκουντί και Γκατσίνοβιτς είναι εκτός τόπου και χρόνου
+-  Ministarstvo zdravlja u Gazi: Neophodna evakuacija više od 5.000 ranjenih
+-  اعتماد الاشتراطات المهنية للعاملين بمجال المواد البترولية
 -  PIRAMAL PHARMA SOLUTIONS COMMEMORATES OPENING OF ITS ADC MANUFACTURING EXPANSION IN GRANGEMOUTH, SCOTLAND
--  Apollo Medical Holdings, Inc. Announces Grant of Inducement Awards Pursuant to Nasdaq Listing Rule 5635(c)(4)
--  EVO KAKO IZGLEDA DANAS BIVŠI DEČKO MARIJE ŠERIFOVIĆ Pevačica je postala majka, a on šokirao priznanjem
--  BioNTech-Aktie gewinnt: Deutsche Außenministerin Baerbock nennt BioNTech-Impfstoffproduktion in Ruanda Meilenstein
--  'Worst' - Pundit feels sorry for rarely-seen Everton player after what happened
--  Mercato - PSG : Une offre colossale est dégainée pour une star
--  Ticaret Bakanlığı'ndan fiyat etiketleri kararı
--  Covid-19 : où en est l'épidémie ?
--  Cargaba 45 carrizos con presunta cocaína
--  Construcción del intercambiador de La Cabima registra un avance del 18 %
--  Meduca: año escolar iniciará con escuelas nuevas en varias regiones
--  Große Liebe oder Korb? So enden die letzten „Bauer sucht Frau“-Hofwochen
--  Wielki powrót Toniego Kroosa?!
--  Небензя рассказал, какую политику Россия ждет от Запада в отношении Ирана
--  Најмалку осум загинати во земјотрес во северозападна Кина
--  ¡Dale, dale, dale!
--  Bigg Boss 17: आयेशा ने मुनव्वर को किया बेनकाब, शो में फेक लवस्टोरी बनाना चाहते थे स्टैंड अप कॉमेडियन?
--  School dux put in plenty of work outside the classroom
--  Мицкоски: Анкетите говорат дека ВМРО-ДПМНЕ ќе има убедлива победа со близу 60 пратеници
--  Dólar hoy: los financieros cayeron hasta $46 y se redujo la brecha cambiaria
--  Adobe-Aktie stark: Adobe sagt Figma-Übernahme ab
--  Cortes de juros podem ser necessários para evitar aperto excessivo, diz dirigente do Fed
--  U JEDNOJ RUCI VOLAN, A U DRUGOJ TELEFON: Evo koliko je to ustvari opasno i zašto ne biste smeli da praktikujete (VIDEO)
+-  Galatasaray Teknik Direktörü Buruk UEFA Avrupa Ligi'nde turu geçeceklerine inanıyor
+-  VÍDEO: falta assinalada a Quaresma sobre João Mário e 2-0 anulado a Gyökeres
+-  Odgođeno glasanje SB UN-a o rezoluciji o Gazi
+-  Rocksteady confirma vazamentos de Esquadrão Suicida: Mate a Liga da Justiça
