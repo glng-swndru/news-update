@@ -1,51 +1,51 @@
 # Latest News
--  Исроил армияси ҲАМАС ер ости туннелларининг «тожидаги жавоҳири»ини топди.
--  Тошкент вилоятида 500 kW кучланишли, рақамли нимстанция қурилади.
--  W Wenecji przybywa miejsc noclegowych dla turystów. Ubywa za to mieszkańców
--  Московский Губернский театр отменил спектакль «Приключения Фандорина»
--  Autoriza Papa bendiciones de parejas del mismo sexo
--  Declara Argentina emergencia de servicios energéticos
--  Apuesta Carlos Slim por empresas detrás del yacimiento Zama
--  Exige Diócesis de la Tarahumara seguridad para Guadalupe y Calvo
--  Deja 7 muertos choque de camiones en Edomex
--  Андоновска од ГРОМ: Собранието да ја достави дипломата на пратеникот Јаревски
--  The Art of Pre-Columbian Gold in Costa Rica
--  LULIN PRST U OKO AMERICI Brazil želi da Putin prisustvuje samitu G20
--  Protect your property during the festive season
--  Red flag: SA we have a problem as suicides rise 54% - Discovery
--  Вижте какво ще бъде времето до края на седмицата
--  Лех Познан се раздели с наставника си
--  Lefka village ‘on the way to becoming Trikomo’ amid construction boom
--  ‘There’s nothing more soothing than public venting’
--  “Parece que cree que lo que funciona es ser un Sepu y quiere ser lo mismo”: Ale Valle repasó a Julio César Rodríguez
--  Në kërkim prej tre vitesh, arrestohet shqiptari në Itali
--  Tensions autour de la Nouvelle Loi d’Immigration : France Université Contre-Attaque
--  Museum of the Moving Image and Alfred P. Sloan Foundation Reveal 2023 Student Prize Winners (EXCLUSIVE)
--  Ανησυχία για τις επιθέσεις στην Ερυθρά Θάλασσα: Πώς μπορούν να κρατηθούν ασφαλή τα πλοία
--  SUDAR DVA PUTNIČKA VOZILA KOD OBRENOVCA: Strahuje se da u udesu ima nastradalih
--  Erling Haalandin raivokohtauksen karu seuraus - Manchester City sai isot sakot
--  মিছিলে মশাল ব্যবহার না করার অনুরোধ পুলিশের
--  2024: ¿El año de las ‘criptofuertes’? Esto es lo que debe saber antes del ‘bull market’
--  CL-Achtelfinale: So stuft Rummenigge die Gegner von Bayern, BVB und Leipzig ein
--  EU May Strip Hungary of Voting Rights in Bid to Force Ukraine Funds
--  DD: Siemens Energy AG: Robert Kensbock, Kauf von Siemens Energy-Aktien im Wert von 8.450,00 EUR zum Xetra-Schlusskurs der Siemens Energy-Aktien am 2024-03-14, +01:00 (im Zusammenhang mit ...
--  “Eynicinsi fərdlərin nikahına xeyir-dua veriləcək”
--  BCT : Hausse de l’épargne à près de 28 milliards de dinars
--  Canadian basketball shows bright future for men’s, women’s sides in successful 2023
--  دفعة كل 3 شهور.. أسعار وأقساط شقق الإسكان المتميز بعد بدء التقديم
--  "وزير السياحة" وقيادات الوزارة يتقدمون بخالص التهنئة للسيسي لفوزه في الانتخابات الرئاسية
--  جيش الاحتلال: مقتل جنديين إضافيين في معارك غزة ليرتفع العدد لـ7
--  مسيرة بالسيارات احتفالًا بفوز السيسي بفترة رئاسية جديدة (صور)
--  متسول كييڤ
--  فيديو| المقاومة تنشر مشاهد جديدة من محاولة جنود الاحتلال إسعاف زملائهم في غزة
--  الأولى في مصر.. ما هي الغرفة المؤمنة لضحايا العنف ضد المرأة بمحكمة الإسكندرية؟ (صور)
--  الأب والابن في كلبش واحد.. حلم الثراء في منزل بكرادسة
--  الصحة بغزة: استشهاد 19453 فلسطينيًا منذ بدء حرب الاحتلال على غزة
--  هذا ما يحدث لجسمك عند تناول الكشري ؟… لن تتخيل المفأجاة
--  UŽIVO: Protest koalicije "Srbija protiv nasilja": Tepić i Aleksić počinju štrajk glađu
--  Confederate memorial to be removed from Arlington National Cemetery
--  Aparatoso choque carretera sobre la Carretera Federal 190
--  «Был очевиден кризис»: в Кремле назвали успешными усилия властей по стабилизации цен на яйца
--  Ndjekje filmash në Itali, arrestohet shqiptari i shumëkërkuar
--  В Курске появился первый семейный многофункциональный центр
--  Më të mirët 2023/ Gara me “nxënësit” dhe rikthimi te Laçi, rrëfehet Mirel Josa
+-  NY lawmakers call out Chick-fil-A over Sunday closures at highway rest stops
+-  Svagt uppåt på USA-börserna – Netflix stiger på höjd riktkurs
+-  Adobe Abandons $20 Bn Figma Acquisition Deal Amid Regulatory Hurdles
+-  PM Modi Flags Off Second Vande Bharat Train Between Varanasi And Delhi
+-  EU Launches Investigation Into X For Potential Digital Services Act Violations
+-  My Resolve Is To Make 2 Cr Rural Women Of India Self-reliant, Millionaires: PM Modi
+-  ED Issues Fresh Summons To Arvind Kejriwal In Delhi Excise Policy Case
+-  Net Direct Tax Collections Rise About 20.7% So Far In 2023-24
+-  Army Chief Manoj Pande, Tanzanian Defence Force Chief Discusses Ways To Boost Military Ties
+-  Rs 5,294 Cr Subsidy Provided To EV Makers Under Phase-II Of FAME Scheme: Centre
+-  70% Urban Households Have Access To Safe Drinking Water, 42% Have Sewerage Facilities: Govt In RS
+-  Ashwini Vaishnaw Tables Bill To Amend Some Provisions Of TRAI Act In Lok Sabha
+-  Bomb threats at several synagogues, Jewish institutions over weekend
+-  VIDEO: AEK ispustio dva gola prednosti, Vida odigrao cijelu utakmicu
+-  Casa de apostas Blaze paga até R$ 50 milhões a influencers
+-  Trzynastki i czternastki dla emerytów pewne przez dwa lata
+-  UE przyjęła 12 pakiet sankcji. Cios w diamenty, metalurgię, ropę i LPG
+-  看好女性消費力！大車廠搶著為「她們」客製化新車
+-  基隆文化地標「基隆塔遠見人文空間」開幕！國際級人文觀光五感體驗新起點
+-  盧貝松真的愛台灣！《人犬》特地來台宣傳，在台拍攝電影《週末在台北》令人期待
+-  【解析】AI PC換機潮2024來不來？英特爾新品有玄機
+-  Papst macht Weg für Segnung homosexueller Paare frei
+-  Foodpanda關閉在台科技中心，母公司裁員13%
+-  Luke Shaw makes admission over ‘unacceptable’ Manchester United performances
+-  Los embalses del Ebro siguen al alza con el 62% de su capacidad
+-  בעקבות הפרסום בוואלה!: אוחנה סגר את החמ"ל של בן גביר בכנסת לטיפול בבקשות לנשק
+-  חידת סוף השבוע 21-23/12
+-  أجنبية مطلقة ولديها أبناء من مواطن.. كيف تقوم بتسجيلهم في حساب المواطن؟
+-  144 وظيفة شاغرة في عدد من التخصصات.. التفاصيل ورابط التقديم
+-  Apple's nightmare before Christmas! Tech giant will be BANNED from selling smartwatches in the US THIS WEEK over claims it stole medical technology, landmark ruling says
+-  Emerging Trends and Opportunities in the Global Household Appliances Market: Forecast to 2029 North America Laboratory Information Management Systems
+-  En vivo: Sandra Pettovello realiza anuncios sobre la "política social" del Gobierno
+-  En vivo: Fluminense vs Al-Ahly por las semifinales del Mundial de Clubes
+-  Mančester siti kažnjen sa 120.000 funti
+-  Mercato - OL : Le vestiaire se lâche sur le nouvel entraîneur
+-  Gen. Samol: Bardzo ciężka przyszłość Ukrainy. Bez pomocy zewnętrznej nie przetrwa
+-  Should I be worried after my partner left a storeroom with a guilty look?
+-  BRED NAPUNIO 60, A DŽORDŽ KLUNI OVO REKAO O NAJBOLJEM DRUGU: "U poslednje vreme NE IZGLEDA DOBRO, šminka ga spašava!"
+-  Bayern Münih'ten efsane ismiyle sözleşme kararı!
+-  Kassam Tugayları, İsrail güçlerine ağır darbeler indiriyor
+-  Süper Lig ekiplerine kötü haber! Chelsea kararını verdi
+-  AB: Kızıldeniz'deki Husi saldırılarını şiddetle kınıyoruz
+-  Fenerbahçe liderliğini sürdürüyor!
+-  İsrailli üst düzey yetkiliye göre, sivillerin kritersiz silahlandırılması kontrol kaybına yol açacak
+-  Sisi: Gazze'deki savaş Mısır'ın ulusal güvenliği için bir tehdit
+-  PROTEST KOALICIJE "SRBIJA PROTIV NASILJA", OKUPILI SE ISPRED ZGRADE RIK! Incident - Grupa građana gurala ogradu
+-  Шавкату Рахмонову «заменили» флаг Казахстана на Узбекистан после боя на UFC 296. Фото
+-  Soccerladuma | Reacting To Mourinho Explaining Why De Bruyne & Salah Left Chelsea
+-  Hormon koji stvara fetus mogao bi objasniti zašto neke žene pate od mučnina u trudnoći
+-  Explosion au dépôt de carburant à Kaloum: chaîne de solidarité se mobilise à Fayçal
