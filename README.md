@@ -1,11 +1,51 @@
 # Latest News
--  Single political party cannot obtain majority due to electoral system&#039;
--  Xabi Alonso and Leverkusen aim to take unbeaten run into 2024
--  جيرالديز على أعتاب الرحيل عن تدريب فريق برشلونة للسيدات
--  غالانت: لن نفرض سيطرة مدنية على قطاع غزة
--  بالارقام .. ضربة اقتصادية قوية لمطار بن غوريون
--  الملك مهنئا السيسي: علاقاتنا متجذرة وتعاوننا نموذجي
--  إعلام عبري: عشرات السفن حولت مسارها في أعقاب تهديدات الحوثيين
--  Times definidos: veja as escalações de Fluminense e Al Ahly para a semifinal do Mundial de Clubes
--  وصول سفينتي مساعدات كويتية وتركية إلى ميناء العريش
--  ¿A qué hora salen los boletos de la Feria de León 2024?
+-  دفعة كل 3 شهور.. أسعار وأقساط شقق الإسكان المتميز بعد بدء التقديم
+-  "وزير السياحة" وقيادات الوزارة يتقدمون بخالص التهنئة للسيسي لفوزه في الانتخابات الرئاسية
+-  جيش الاحتلال: مقتل جنديين إضافيين في معارك غزة ليرتفع العدد لـ7
+-  مسيرة بالسيارات احتفالًا بفوز السيسي بفترة رئاسية جديدة (صور)
+-  متسول كييڤ
+-  فيديو| المقاومة تنشر مشاهد جديدة من محاولة جنود الاحتلال إسعاف زملائهم في غزة
+-  الأولى في مصر.. ما هي الغرفة المؤمنة لضحايا العنف ضد المرأة بمحكمة الإسكندرية؟ (صور)
+-  الأب والابن في كلبش واحد.. حلم الثراء في منزل بكرادسة
+-  الصحة بغزة: استشهاد 19453 فلسطينيًا منذ بدء حرب الاحتلال على غزة
+-  هذا ما يحدث لجسمك عند تناول الكشري ؟… لن تتخيل المفأجاة
+-  Uber Eats forced to apologize over issue with Palestinian restaurants on the app
+-  Er det fælt med en dyr restaurant på Nasjonalbiblioteket?
+-  Opinion: Star Wars movie that just turned seven is the best of Disney's era
+-  Prodavačica je prevarila bez imalo grižnje savjesti: ‘Samo me pogledala i naplatila 13 eura više’
+-  Tenby ‘fraudster’ found guilty of 27 charges
+-  בשירות פוד מלכותו: מי תרים את הכפפה?
+-  מועדון האופניים "המסלול" מציעים רכיבה חינוכית ללא עלות למפונים ברחבי הארץ בכל הגילאים
+-  חידת השבוע 24-27/12
+-  Kommentar zu den Bauernprotesten: Explosiv
+-  The best sci-fi movies on Netflix right now
+-  Neue Beziehung: Henrik Stoltenberg und Daniel sind ein Paar
+-  Forssan kaupunginjohtaja Jari Kesäniemeä ei valittu Paraisten kaupunginjohtajaksi
+-  Limerick Celtics plough ahead in Basketball Ireland national league
+-  جیل سے رہائی ملتے ہی شیر افضل مروت کا دبنگ اعلان
+-  ATP "udario" Novaka po džepu - Đoković zbog SAD ostao bez miliona dolara
+-  Mediji: Ako Rusi krenu sa "avangardom"...
+-  ADVENDIAEG RIIAS: kas teate, mida tähendavad karstvins ja tirgus?
+-  – فرق الرعاية الصحية بسبها تقوم بحملة تطعيمات لمنتسبى مديرية الأمن .
+-  Falcao sobre jugar en el fútbol colombiano: Hay que ver la situación del país
+-  Yolun karşısına geçen Fulya öldü, sürücü kaçtı
+-  Le Conseil National de l’Entrepreneuriat (CNE): Un nouveau souffle pour l’Entrepreneuriat au Sénégal et pour la Diaspora
+-  Specijalni sud produžio pritvor Tačiju i Veseljiju
+-  Death and fear among civilians in NW Syria amid Assad regime’s bombardment
+-  Rettung in letzter Not - Rentner will Schirm von Bahngleis holen, dann rauscht Zug mit 130 km/h an
+-  ¿Pega la vuelta a Alianza? Guerrero habría jugado su último partido con LDU, revelan desde Ecuador
+-  Coupang quer comprar Farfetch e injetar cerca de 458 milhões de euros
+-  Obra de Barata-Feyo resgata memória dos portugueses que lutaram pela França na II Guerra
+-  Procesan a sujeto que amenazó y agredió a su madre tras llegar ebrio a la casa
+-  Пакет с тело младенца нашли в мусорке в Омске
+-  We found cheap last-minute tickets for Phish NYE shows at MSG
+-  Lula deu um recado claro de que outras Lava Jatos nunca mais acontecerão, diz Gleisi
+-  Taylor Swift’s dad hands out daughter’s birthday cake to fans at Chiefs vs. Patriots game
+-  صور.. فلورنتينو بيريز يستقبل إندريك في متحف ريال مدريد
+-  Ahora fue al revés: familia agrede a taxista de Saltillo y le hace montón
+-  Sri Lanka continues to be an important partner in India s growth story - Lok Sabha Speaker
+-  В России могут принять проект о регулировании цен на продукты, включая яйца
+-  Clip of ‘Celebrity Wheel Of Fortune’ Winner Matt Rogers Saying “Pat Sajak Sucks” Surfaces And Fans Demand An Apology
+-  A cidade que ainda celebra a Saturnália, festa romana milenar que antecedeu o Natal
+-  Вице-премьер Рольбинов заявил, что власти не могут влиять на очереди на границе
+-  محافظ الأقصر يهنئ الرئيس السيسي بفوزه بالانتخابات الرئاسية
