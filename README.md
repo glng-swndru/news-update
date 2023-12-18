@@ -1,51 +1,11 @@
 # Latest News
--  NY lawmakers call out Chick-fil-A over Sunday closures at highway rest stops
--  Svagt uppåt på USA-börserna – Netflix stiger på höjd riktkurs
--  Adobe Abandons $20 Bn Figma Acquisition Deal Amid Regulatory Hurdles
--  PM Modi Flags Off Second Vande Bharat Train Between Varanasi And Delhi
--  EU Launches Investigation Into X For Potential Digital Services Act Violations
--  My Resolve Is To Make 2 Cr Rural Women Of India Self-reliant, Millionaires: PM Modi
--  ED Issues Fresh Summons To Arvind Kejriwal In Delhi Excise Policy Case
--  Net Direct Tax Collections Rise About 20.7% So Far In 2023-24
--  Army Chief Manoj Pande, Tanzanian Defence Force Chief Discusses Ways To Boost Military Ties
--  Rs 5,294 Cr Subsidy Provided To EV Makers Under Phase-II Of FAME Scheme: Centre
--  70% Urban Households Have Access To Safe Drinking Water, 42% Have Sewerage Facilities: Govt In RS
--  Ashwini Vaishnaw Tables Bill To Amend Some Provisions Of TRAI Act In Lok Sabha
--  Bomb threats at several synagogues, Jewish institutions over weekend
--  VIDEO: AEK ispustio dva gola prednosti, Vida odigrao cijelu utakmicu
--  Casa de apostas Blaze paga até R$ 50 milhões a influencers
--  Trzynastki i czternastki dla emerytów pewne przez dwa lata
--  UE przyjęła 12 pakiet sankcji. Cios w diamenty, metalurgię, ropę i LPG
--  看好女性消費力！大車廠搶著為「她們」客製化新車
--  基隆文化地標「基隆塔遠見人文空間」開幕！國際級人文觀光五感體驗新起點
--  盧貝松真的愛台灣！《人犬》特地來台宣傳，在台拍攝電影《週末在台北》令人期待
--  【解析】AI PC換機潮2024來不來？英特爾新品有玄機
--  Papst macht Weg für Segnung homosexueller Paare frei
--  Foodpanda關閉在台科技中心，母公司裁員13%
--  Luke Shaw makes admission over ‘unacceptable’ Manchester United performances
--  Los embalses del Ebro siguen al alza con el 62% de su capacidad
--  בעקבות הפרסום בוואלה!: אוחנה סגר את החמ"ל של בן גביר בכנסת לטיפול בבקשות לנשק
--  חידת סוף השבוע 21-23/12
--  أجنبية مطلقة ولديها أبناء من مواطن.. كيف تقوم بتسجيلهم في حساب المواطن؟
--  144 وظيفة شاغرة في عدد من التخصصات.. التفاصيل ورابط التقديم
--  Apple's nightmare before Christmas! Tech giant will be BANNED from selling smartwatches in the US THIS WEEK over claims it stole medical technology, landmark ruling says
--  Emerging Trends and Opportunities in the Global Household Appliances Market: Forecast to 2029 North America Laboratory Information Management Systems
--  En vivo: Sandra Pettovello realiza anuncios sobre la "política social" del Gobierno
--  En vivo: Fluminense vs Al-Ahly por las semifinales del Mundial de Clubes
--  Mančester siti kažnjen sa 120.000 funti
--  Mercato - OL : Le vestiaire se lâche sur le nouvel entraîneur
--  Gen. Samol: Bardzo ciężka przyszłość Ukrainy. Bez pomocy zewnętrznej nie przetrwa
--  Should I be worried after my partner left a storeroom with a guilty look?
--  BRED NAPUNIO 60, A DŽORDŽ KLUNI OVO REKAO O NAJBOLJEM DRUGU: "U poslednje vreme NE IZGLEDA DOBRO, šminka ga spašava!"
--  Bayern Münih'ten efsane ismiyle sözleşme kararı!
--  Kassam Tugayları, İsrail güçlerine ağır darbeler indiriyor
--  Süper Lig ekiplerine kötü haber! Chelsea kararını verdi
--  AB: Kızıldeniz'deki Husi saldırılarını şiddetle kınıyoruz
--  Fenerbahçe liderliğini sürdürüyor!
--  İsrailli üst düzey yetkiliye göre, sivillerin kritersiz silahlandırılması kontrol kaybına yol açacak
--  Sisi: Gazze'deki savaş Mısır'ın ulusal güvenliği için bir tehdit
--  PROTEST KOALICIJE "SRBIJA PROTIV NASILJA", OKUPILI SE ISPRED ZGRADE RIK! Incident - Grupa građana gurala ogradu
--  Шавкату Рахмонову «заменили» флаг Казахстана на Узбекистан после боя на UFC 296. Фото
--  Soccerladuma | Reacting To Mourinho Explaining Why De Bruyne & Salah Left Chelsea
--  Hormon koji stvara fetus mogao bi objasniti zašto neke žene pate od mučnina u trudnoći
--  Explosion au dépôt de carburant à Kaloum: chaîne de solidarité se mobilise à Fayçal
+-  FC Barcelona on päätöksensä tehnyt - superlupaukselle haetaan korvaajaa
+-  Red Bull-tallissa kuohuu isosti - pomot valtataistelussa keskenään
+-  Counter-terror police arrest two men after ULEZ camera blown up with IED
+-  'Honkai: Star Rail' Version 1.6 Release Date, Ruan Mei and Dr. Ratio Banners, and Events
+-  Gobierno da detalles de las actividades y agenda para la Transmisión de Mando Presidencial 2024
+-  Pentagon: rozmawiamy z Izraelem o przyszłości Strefy Gazy i koncepcji utworzenia państwa palestyńskiego
+-  DNA Exclusive: Dawood Ibrahim Poisoned? Who Is Targeting India`s Enemies In Pakistan?
+-  MOP Te Asiste ha brindado 938 servicios en lo que va del Plan Fin de Año
+-  China, North Korea hold high-level meeting amid missile launches
+-  Cambridge varsity college names Nigerian professor seventh president
