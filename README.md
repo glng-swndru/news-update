@@ -1,51 +1,11 @@
 # Latest News
--  Suudi Arabistan ve ABD dışişleri bakanları görüştü: Gündem Gazze
--  Premier Lig devi Sacha Boey için geliyor! Galatasaray'a dev bonservis
--  Aktif rolüne dikkat çekti: Bölgede en fazla firmayla faaliyet gösteren ülke Türkiye
--  Boğaziçi Üniversitesi Spor Ödülleri sahiplerini buldu
--  Fransa'dan Gazze'ye 700 tonluk insani yardım
--  ‘Yellowstone’ Star Cole Hauser Just Launched a New Bourbon Brand
--  Pääkirjoitus: Ole ihminen jouluna ja muulloinkin
--  RSF enters Sudan aid hub city where many were displaced
--  Делян Добрев призна, че гласувал "против" Бюджет 2024
--  Actor Jonathan Majors found guilty of assaulting his former girlfriend in car in New York
--  Bešić u Utisku nedelje: Opozicija nije bila u stanju da obezbedi kontrolu izbora iako je to obećala
--  Kickoff | Tau's Al Ahly denied Club World Cup final spot
--  طلاب قسم العلوم السياسية بجامعة عدن ينفذون جلسة محاكاة لانعقاد مجلس الأمن الدولي
--  La prensa británica destaca el complejo de misiles ruso Avangard como "única arma de este tipo”
--  Golob o govoricah o odstopu: »Bolj ko se o tem govori, bolj sem motiviran za delo«
--  RAZORNI ZEMLJOTRES U KINI, NAJMANJE 8 MRTVIH: Spasioci tragaju za zarobljenima ispod ruševina! (VIDEO)
--  Rekorddrágán épülhet autópálya: a kormány 170 helyett 400 milliárdot szánna egy 44 km-es szakaszra
--  ‘It will be a tough ask’: Stricken town’s plea for help as flood rescue drags on
--  إن بي سي الأمريكية: مسؤولون يعربون لبايدن عن قلقهم من استيراتيجية نتنياهو في غزة
--  هجمات غير متوقعة وتعثرات يواجهها مواليد هذه الأبراج في آخر 10 أيام من 2023
--  الخارجية الأمريكية: دخول أولى الشاحنات المحملة ببضائع تجارية إلى غزة منذ بدء الحرب
--  La UE acuerda los estándares de reducción de emisiones para coches Euro 7 para 2027
--  La UE acuerda los estándares de reducción de emisiones para coches Euro 7 para 2027
--  Giant bacterium uses unique processes to power itself
--  21 last-minute gifts at Amazon that are on sale and arrive before Christmas Eve
--  STROGI USLOVI ZA SUROGAT-MAJKU ŠERIFOVIĆKINOG SINA! Jedno pravilo će vas ŠOKIRATI, a ovako je Verica reagovala na upoznavanju...
--  مشهد مرعب.. عاصفة عاتية تزيح طائرة في مطار بهذه الدولة
--  عاجل.. منصة مدرستي.. أسباب مشكلة تسجيل الخروج التلقائي وأسرع حل
--  Justice O’Connor, the First Woman on the Supreme Court, Lies in Repose
--  Piletić: Nemamo puno prilika za odmor
--  Criminosos matam cães de guarda, rendem vigilante e arrombam cofre no Sul de SC
--  Spięcie posłanek w studiu TVP Info. Pokłóciły się o Miłosza Kłeczka
--  Čavle imaju novi proračun, jednoglasno je usvojen i svi ga hvale: “Nema novih nameta”
--  Jonathan Majors found guilty of assaulting his then-girlfriend Grace Jabbari inside a hired car
--  La primera vuelta al mundo de Magallanes y Elcano contada a través de los Playmobil
--  Една от любимите фрази на Путин разкрива защо той нападна Украйна
--  Brasil quer Putin na cúpula do G20 em 2024, diz Celso Amorim
--  Jammu News: मवेशी चोर गिरोह का भंडाफोड़, पांच आरोपी चढ़े पुलिस के हत्थे
--  Richmond craftsman drives nostalgia home with vintage creations
--  Gurugram News: बीमा पॉलिसी ठीक कराने के नाम पर 1.97 करोड़ रुपये की ठगी
--  Engavetamento na BR-101 em Itajaí provoca filas quilométricas na rodovia
--  "Queremos ir a por los que tenemos por arriba en la clasificación"
--  Fake Group of Seven sketches the focus of new Vancouver Art Gallery exhibit
--  نيران المقاومة تلتهم جنود الاحتلال وآلياته
--  News24 | Here are the Daily Lotto numbers
--  Maailman suurimmat huulet? Andrea Ivanova on hämmentävä näky
--  Muzaffarnagar News: सगे भाई पर डेढ़ साल तक दुष्कर्म करने का आरोप, एसएसपी से शिकायत
--  Barabanki News: विकास भवन में लगी आग, एनडीआरएफ ने किया मॉकड्रिल
--  Баитлонистка Сола: желание возобновить карьеру вернули дети
--  Haz tu carta a Santa Claus con IA; así puedes hacerlo
+-  Scarpa 'balança' com propostas de Flamengo e Atlético-MG e avalia retorno ao Brasil
+-  Flu garante premiação milionária no Mundial com classificação para a final
+-  Herói da Libertadores volta a brilhar, Fluminense vence Al Ahly e carimba vaga na final do Mundial contra City ou Urawa Reds
+-  최종 26명 안채울까 싶은 클린스만 12월 명단, ‘2016 슈틸리케’ 떠오른다
+-  Meghan, Duchess of Sussex, reveals the EXTREMELY expensive gift her son wants for Christmas
+-  – المركز الليبي للاستشعار عن بعد وعلوم الفضاء ينصح بالاكثار من حملات التشجير .
+-  NHL:ssä nähtiin valmentajapotkut
+-  The 'most interesting man in the world' of Dos Equis fame is now doing ads for a bitcoin ETF provider
+-  Biały Dom: Zostały nam środki na jeszcze tylko jeden pakiet uzbrojenia dla Ukrainy
+-  Apple Pauses US Sale Of Latest Watch Models Over Patent Clash
