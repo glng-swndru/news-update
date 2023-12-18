@@ -1,51 +1,51 @@
 # Latest News
--  Fire guts ex-Oyo governor’s residence, 2 injured
--  Soccerladuma | Swallows' Crucial Uromi Decision
--  تعاني من ارتفاع الدهون الثلاثية؟.. 5 مشروبات صباحية تساعدك
--  Liberalizimi i vizave, ‘gara’ për merita vazhdon mes PDK-së dhe LVV-së
--  Franka Batelić: 'Izabel Kovačić ima više utakmica u nogama od mene'. Otkrila i gdje će za Novu
--  Jeftinije sve vrste goriva
--  Présidentielles 2024-Reintégration de Sonko sur les listes électorales : Maître Adama Gueye, « Cette décision, elle s’impose et doit être exécutée. Elle est exécutoire parce que que c’est la loi qui prévoit que c’est exécutoire »
--  МТСП во пресрет на Нова година започна низа настани под мотото „Среќата се споделува“
--  Yüzüncü Yıl Gençlik Ve Yaşam Merkezi gençlerin gözde merkezi
--  Top 5% of Greggs customers are 'exposed' in hilarious Monzo Wrapped trend
--  “실감형 디지털 트윈 기술로 중동시장 진출”
--  6 साल के बच्चे ने बनाया ऐसा टाइम टेबल, जिसे देखने के बाद आपका हंसते-हंसते बुरा हाल हो जाएगा
--  Upphandling av Tvärbanan gjordes fel
--  Müller-Verlängerung beim FC Bayern fix
--  Müller-Verlängerung beim FC Bayern fix
--  SenseTime, gigante chino de la IA, se desploma en la bolsa luego de la muerte de su cofundador
--  Is covering a Concord lawn with netting the best way to get rid of raccoons?
--  Is covering a Concord lawn with netting the best way to get rid of raccoons?
--  Rritet numri i skuadrave të mëdha që duan transferimin e Arthur Vermeeren
--  जम्मू कश्मीर के उपराज्यपाल ने कहा – जनता से छिपाना नहीं है गुड गवर्नेंस
--  These are the ministers who failed to answer the most parliamentary questions
--  Vučić sa Fon Kramonovom o izborima, regionalnim temama i evropskom putu Srbije (FOTO)
--  Metropolitano: precio de pasaje regular se mantendrá en S/3.20, según ATU
--  Streit um polizeikritischen Tweet: Rauswurf war rechtswidrig
--  Yemen's Houthis Claim Attacks on Two Ships Linked to Israel
--  Ženstveno i upečatljivo: Idealni komadi za blagdanska druženja u kojima ćete zablistati u svakoj prilici
--  В районе Серебрянки: ВС РФ поразили командно-наблюдательный пункт бригады Нацгвардии Украины
--  निराश्रितों को रैन बसेरे पहुंचाएगा नगर निगम का प्रवर्तन वाहन
--  EPF: इन 5 कारणों से खारिज हो जाता है आपका EPF क्लेम, फाइल करते वक्त बरतें ये सावधानियां
--  Горбачёва рассказала о сообщении с поддержкой от Загитовой после побега из дома
--  Veel lager dan nu stond de stroomprijs de afgelopen twee jaar niet, en dat blijft nog wel even
--  Creu Roja alerta que necessita més de 1.000 joguines per cobrir la demanda per a infants vulnerables a les comarques gironines
--  Pray For Nigerian Leaders, Don’t Fight Them, Adeboye Cautions Clerics
--  Edo 2024: PDP stakeholders rules out zoning, throws race open
--  Many reportedly killed, injured as explosion rocks Guinea’s oil terminal
--  CEVA Logistics seeks edge using TIR along China-Kyrgyzstan-Uzbekistan route (Exclusive)
--  Cierre de la F1: Verstappen bate récords y el español fue lengua oficial a merced de ‘Checo’, Alonso y Sainz
--  Serie B, i migliori 5 attaccanti dopo 17 giornate: Raimondo della Ternana scala la classifica
--  Prieskum odhalil, čo si o sebe myslia Slováci – a je to zlé. Máme na seba vysoké nároky, no veľa sa vyhovárame, tvrdí psychológ
--  दिल्ली मेट्रो डिजिटल लॉकर सर्विस, जानें बुकिंग का तरीका, कितना लगेगा चार्ज
--  Researchers develop innovative and flexible method to study immune cell capabilities
--  I'm an American dad living in Italy who hasn't had to worry about medical costs, even with a daughter with severe hearing loss
--  VIDEO Lucija Vujica: Hvala ministarstvu što prepoznaje i motivira trud i uspjeh učenika
--  Koalicijski partneri podržali su Damira Habijana za ministra
--  Специалист Алпатова рассказала о зарубежных направлениях для встречи Нового года
--  Unerwartete Comebacks: Wenn Tiere und Pflanzen aus der Versenkung auftauchen
--  Lieberknecht appelliert: „Müssen das letzte Hemd geben“
--  Ende der E-Auto-Förderung: Regierung rechtfertigt Entscheidung
--  Ende der E-Auto-Förderung: Regierung rechtfertigt Entscheidung
--  …जब 63 सांसदों को एक साथ कर दिया था सस्पेंड, संसदीय इतिहास में निलंबन की बड़ी घटनाएं
+-  2023 Was The Year Of Taylor Swift, So Much So That Pennsylvania (Her Home State) Just Officially Declared It So
+-  AECOM joint venture appointed by Australia’s Sunwater as Engineering and Professional Services Partner
+-  Azura Ophthalmics Announces Positive Results from Phase 2 Clinical Trial of AZR-MD-001 in Patients with Contact Lens Discomfort
+-  When Does ‘Rick And Morty’ Season 8 Come Out?
+-  Daniel Kaluuya's The Kitchen blends Top Boy with early age Blade Runner in unnerving first Netflix trailer
+-  Država agencija upozorava: ‘Nikad ne odgovarajte na ovih 10 brojeva! Ukoliko se javite, evo što vam prijeti...‘
+-  Παναιτωλικός – ΑΕΚ: Σέντρα στις 17:00
+-  Povećali uvoz ruske nafte i uštedeli 2 milijarde evra
+-  Собиқ қишлоқ хўжалиги вазири Воитов қандай жиноятда гумон қилинмоқда?
+-  «قرعة الأبطال»: سيتي في مواجهة كوبنهاغن وبرشلونة يصطدم بنابولي
+-  Ish-drejtuesi i PD ironizon deklaratën e Boçit: Paskam qenë idiot komplet
+-  Húsíjskí povstalci zaútočili na dve lode: Jedna z nich patrí Nórsku
+-  Crna Gora posvećena ostvarivanju zajedničkih ciljeva
+-  Drucker odvolal Pavlova z funkcie generálneho riaditeľa Národného inštitútu vzdelávania a mládeže
+-  نادي الخليج يخطط للتعاقد مع لاعبين في «الشتوية»
+-  Tamna strana tehnologije i božićno čudo: Bio sam puna tri dana bez interneta i - preživio!
+-  Rotavirus: Todo lo que debes conocer sobre esta enfermedad
+-  These were the most popular electric bike news stories of 2023
+-  Готов е жребият за Световната Гран при
+-  Fenerbahçe'nin Edin Dzeko çekincesi
+-  Gazze'de can kaybı 19 bin 453'e yükseldi
+-  U Nišu „Srbija protiv nasilja“ dobila 13.390 glasova manje od naprednjaka, a „pobedila“ u centralnoj i najvećoj opštini
+-  Macaristan'a 100. yıl jesti! Cumhurbaşkanı Erdoğan, Orban'a Togg hediye etti
+-  Hizbullah, sınır bölgesinde İsrail askerlerini ve araçlarını hedef aldı
+-  Galatasaray'da Süper Lig mesaisi devam ediyor
+-  Diyanet İşleri Başkanı Erbaş: Tüm dünya artık Gazzelilerin yanında yer alıyor
+-  İstikbal Daima Zirvede, Herkesin Kalbinde!
+-  Vladimir Putin, devlet başkanlığı için resmen başvuruda bulundu
+-  Use Copilot AI to summarize long content to improve efficiency and productivity
+-  Wish You Were Here: A boating-biking Danube adventure led to Italy
+-  Сериал «Благие знамения» официально продлен на третий сезон
+-  Huti priznali
+-  Havertz bei der DFB-Elf offen für verschiedene Positionen
+-  Legia Warszawa poznała rywala w Lidze Konferencji. Poleci do Norwegii
+-  Σάλος με δηλώσεις Ισραηλινού δημάρχου: Zητά η Λωρίδα της Γάζας να ισοπεδωθεί και να γίνει μουσείο σαν αυτό του Άουσβιτς
+-  Salasya claims gov’t left MPs stranded in Rwanda hotels with no money during EAC games
+-  Uhićen predsjednik Suda Bosne i Hercegovine; slobode je lišen u poznatom sarajevskom restoranu
+-  Левски организира поредна изненада за феновете си
+-  myAADElive: Νέα υπηρεσία άμεσης βιντεοκλήσης με ομογενή να εξυπηρετείται από τη Νέα Υόρκη - Δείτε βίντεο
+-  تعاوُن استراتيجي لتوفير إمدادات المعادن السعودية للصناعات اليابانية
+-  A San Francisco restaurant owner says thieves stole $5,000 of Wagyu beef, after trying and failing to break into a next door Apple store
+-  سه پیلوت اردوی پیشین افغانستان در سانحۀ هوایی در امریکا جان باختند
+-  Robo en San Miguel: Tres delincuentes asaltaron a un grupo de jóvenes (VIDEO)
+-  0-4. Calvin Stengs y Santi Giménez tiran del Feyenoord
+-  Apple will suspend US sales of its Apple Watch Series 9 and Apple Watch Ultra 2 this week
+-  INSÄNDARE: Vi måste vi sluta se andra djurarter som ting
+-  INSÄNDARE: Vi måste vi sluta se andra djurarter som ting
+-  Minister Drucker odvolal šéfa Národného inštitútu vzdelávania a mládeže
+-  Медведева приобрела попугая, проходившего в качестве вещдока в уголовном деле
+-  Bayburt'ta o mücadele devam ediyor!
