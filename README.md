@@ -1,11 +1,11 @@
 # Latest News
--  Kareena shares pictures from Pataudi Palace, fans call it `Rannvijay ka ghar`
--  Valioliigan tähtipelaajan kotiin murtauduttiin
--  Bigg Boss 17: Munawar Faruqui breaks down after Ayesha`s acquisitions
--  ‘돈봉투 의혹’ 송영길 결국 구속…법원 “증거인멸 염려”
--  Mutmaßliches Tötungsdelikt in Forensik
--  القائد العام لشرطة الشارقة: المخالفات المرورية للردع لا لجني المال
--  사진 기자에게 껄끄러운 사진이란
--  Eva Longoria stuns in a leggy black dress posing for Harper's Bazaar as she reveals people thought she was 'just a pretty face' when she started directing
--  Pope Francis formally approves letting priests bless same-sex couples - but reaffirms marriage is between a man and a woman
--  A sinister Mumsnet post has left me terrified for my daughter
+-  Bafra'da FETÖ firarisi kıskıvrak yakalandı
+-  Arnavutluk'taki muhalefetten protesto
+-  Pakistan ile İran arasında Gazze görüşmesi
+-  DeMarcus Cousins signe avec les Taiwan Beer Leopards
+-  Egypt presidential election: El-Sissi wins with 89.6 pc of the votes
+-  Suomen ja USA:n DCA-sopimus on allekirjoitettu
+-  В Крыму наградили лауреатов премии «Преград нет»
+-  Путин продлил указ о специальных экономических мерах до конца 2025 года
+-  Venezuela rechaza «preocupaciones» de Canadá por la disputa del Esequibo
+-  Vatikán odobril možnosť požehnania pre páry rovnakého pohlavia
