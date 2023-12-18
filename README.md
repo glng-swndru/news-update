@@ -1,11 +1,51 @@
 # Latest News
--  홍천군 청년창업지원센터, 명칭 일원화로 군민들과 소통 강화
--  농협사료, 포당 700원 추가 인하 실시
--  Incendie au dépôt de carburant : des dégâts enregistrés suite aux secousses à Ignace Deen
--  Declaran accidente laboral la muerte por infarto de un camarero de Cuenca tras recibir estando de baja la carta de despido
--  Health D-G says current Covid-19 vaccine supply stable, future Pfizer batch under negotiation
--  学術会議 独立した組織とするための法整備検討へ 内閣府
--  Васил Терзиев: Има 70 млн. лева за плащане и 0 лева по сметките - това е наследство
--  MUP HNŽ: Divljali po klubu pa ih zaštitari istukli
--  تعليق نجيب ساويرس على منشور يثير تفاعلا
--  الاحتلال: التحقيق ( بوفاة ) أسرى من غزة في الاعتقال
+-  Банско откри ски сезона с много сняг и куп награди (СНИМКИ)
+-  Immediate Momentum Reviews UK , South Africa, Australia 2023
+-  Nagpur factory blast: Oppn alleges safety lapses; exploitation of workers
+-  Life | SEE | Princess Charlene and Prince Albert share 2023 Christmas card
+-  News24 Business | Container ships rerouted towards SA as anti-Israel militants attack vessels in Red Sea
+-  Save 36% on LEGO’s vibrant Lunar New Year parade set
+-  이경 민주당 부대변인, 보복운전 혐의 벌금 500만 원 선고
+-  독립야구단 고양위너스, 새롭게 재 창단... 사령탑엔 김동현 감독
+-  [화보] 쪽방촌에 찾아온 동장군
+-  송석준 경기도당 위원장 "국민의힘 수도권 총선 승리 앞장"
+-  임종성 경기도당 위원장 "이낙연 신당 성공하지 못할 것"
+-  "할증보험료 부당"… 자동차 보험사기 피해자에 12억8천만원 환급
+-  문화·예술과 교배… 농업의 역사 교육 명소로 뿌리내리다
+-  경기소방본부, 외국인 위한 '재난유형별 행동요령' 5개 국어로 제작
+-  인천시, 옹진군 북도면 수돗물 수용가 공급 개시
+-  인천시, 어르신 맞춤형 돌봄서비스 지원 확대
+-  '상생형(삼성) 스마트공장 지원사업' 참여 中企 92.3% "만족한다"
+-  [알쏠상식 119] 화목보일러 사용 시 지켜야 할 안전수칙
+-  Karan: Prvi put defile povodom Dana RS u večernjim satima
+-  Ezernégyszáz üzenetből álló könyvet kapott Pintér Sándor a Tanítanék Mozgalomtól
+-  В Чувашии грабитель пытался вскрыть банкомат овощечисткой
+-  Nastroje niemieckiego biznesu zaskoczyły spadkiem
+-  OPPO Find X7 series camera details & final design revealed
+-  Brain drain: Resident doctors seek domestication of residency act
+-  Pope Francis Condemns Israel for Attack That Never Happened
+-  Bills de Búfalo congelan a los Vaqueros de Dallas 31-10
+-  Casinos, la adicción al juego crece en México
+-  [영상] KBS 사장 답변 거부 지시에 고민정 “사장님 뭐하시는 겁니까”
+-  “누가 지웠나” 범인찾기…연합뉴스 ‘통일 유튜브’ 무단 비공개 조치 논란
+-  Crece riesgo de sesgos en encuestas; ven propaganda disfrazada
+-  유튜브 넷플릭스 가격인상에 정통부 장관 “설명했으면 좋지 않았나”
+-  Попова ответила, нужно ли вводить ограничительные меры из-за коронавируса
+-  عاجل.. طريقة الاستعلام عن المخالفات المرورية الجديدة من خلال منصة أبشر
+-  Delivery Hero gaat reorganiseren
+-  Tomaszów Lub.: Trzech pijanych w jednym aucie. Kierowca uderzył w inny samochód
+-  Moja TV po 50 posto nižoj cijeni!
+-  Задържаха мъж, опитал се да ограби 67-годишен русенец
+-  Sınıfta ders sırasında tavanın sıvası düştü: 7 öğrenci yaralı
+-  Eskişehirli öğrenciler Konya’yı gezdi
+-  Velilere korsan servis uyarısı!
+-  Ruhsatsız silah yakalamalarında artık tutuklama kararı verilecek! Hapis cezası 2-5 yıla çıkıyor
+-  Çocuk ve yatak odasına en faydalı bitki
+-  Новите Ray Ban очила и Меta прожектират образи, превеждат, показват картинки и предлагат съчетания от дрехи
+-  Petugas Imigrasi yang Jatuh dari Apartemen di Tangerang Ternyata Dibunuh oleh WNA Korsel
+-  El renacer del gol español
+-  El renacer del gol español
+-  ’ایسے تھوڑی نہ تھا یار‘ ۔۔۔ شاہ رخ خان ’کککککرن‘ کے نقالوں سے تنگ آگئے
+-  И петият опит за избор на шеф на СОС върви към провал
+-  Shillong Teer Result TODAY 18.12.2023 (OUT) First And Second Round Lottery Result
+-  اکبر ایس بابر کا پی ٹی آئی وکلا کو لائیو مناظرے کا چیلنج
