@@ -1,11 +1,51 @@
 # Latest News
+-  Na Tajlandu ubijeno 15 krijumčara droge
+-  Radnici zeničkog ArcelorMittala od jutros ponovo u pogonima
+-  Cinquanta cani maltrattati: i vigili li sequestrano ma li lasciano lì
+-  Dit is de tegenstander van PSV in de 8e finales van de Champions League
+-  الموت يخطف نجم أسود الأطلس سابقا عبد الرحيم واكيلي
+-  SPAK kërkon arrestimin, avokati i Berishës kërkon shtyrjen ose pezullimin e mbledhjes së Këshillit të Mandateve: Çështja është në Gjykatë Kushtetuese
+-  Fadil Novalić za aferu “Respiratori” optužio aktuelnu vlast, tvrdi da nije dobijao naredbe od Sebije Izetbegović
+-  PM Narendra Modi flags off 2nd Delhi-Varanasi Vande Bharat Express, other trains
+-  أرسنال يواجه بورتو في ثمن نهائي دوري ابطال اوروبا
+-  "Реал Сосьедад" сыграет в 1/8 финала Лиги чемпионов с ПСЖ
+-  Минобороны РФ сообщило, что средства ПВО за сутки уничтожили 25 украинских беспилотников
+-  Police Arrest Lawyer For Brutalizing His Wife, Set To Charge Him To Court
+-  МО РФ заявило от отражении атаки ВСУ на краснолиманском направлении
+-  Ιστορική εμπορική συμφωνία της ΕΕ με την Κένυα
+-  "هاكاثون التحول الرقمي" في غرفة القصيم يؤكد تفوق "سوق المملكة"
+-  Netflix fans go wild over 'hidden gem' movie with an 89% Rotten Tomatoes rating: 'A film hasn't made me feel like this for a long time'
+-  В Прикамье будут судить подростков, устраивавших поджоги инфраструктурных объектов
+-  Governo lança estratégia das Smart Cities. Investimento é de 60 milhões
+-  À Abidjan, Aliou Cissé et son groupe ne devront que gagner ! (Par Madiambal Diagne)
+-  Success of tourism on peninsula depends on level of council support – Cllr Albert Doherty
+-  Торгпред РФ заявил о росте числа бизнес-контрактов с Таджикистаном в 2023 году почти вдвое
+-  5.5 magnitude earthquake rocks Ladakh region
+-  Wegen „illegaler Inhalte“: EU-Kommission eröffnet Verfahren gegen Onlinedienst X
+-  Stop milking it! Plant-based food giant Oatly wins four-year court battle against Dairy UK to keep the word 'milk' on its vegan packaging
+-  Neighbours' Krista star almost played two completely different roles in Aussie soap
+-  El chavismo evalúa “acciones integrales” para combatir la delincuencia organizada en el país
+-  حتى في هذه... لبنان أبرز المتضررين!
+-  Udruženja žrtava: Sramno puštanje na slobodu osumnjičenih za genocid
+-  عاجل.. برشلونة يواجه نابولي في دور الـ 16 من دوري أبطال أوروبا
+-  Jak nenaletět při výběru dodavatele fotovoltaiky?
+-  Who Has The Best Battery? Google, Samsung, And Apple's Smartwatch Showdown
+-  Alex Batty's mother Melanie is a conspiracy theorist who wanted to set up a 'spiritual community' and thought Covid-19 'was created by the state to control people', friend says as Interpol join search for her
+-  «Stilllegung wegen technischen Problemen» – Schweizer Armee groundet Schützenpanzerflotte
+-  «Что бы хунта не делала, победа будет за нами!»
+-  Unerwartete Probleme beim Self-Checkout: US-Supermärkte holen das Personal an die Kasse zurück
+-  Breaking: INEC Announces Likely Date For Rerun, Bye-elections
+-  The 10 used cars that have MADE money for their owners in 2023
+-  Собянин сообщил об открытии движения в сторону области по Дмитровскому путепроводу
 -  Sorteio da Champions AO VIVO: siga agora a definição dos confrontos das oitavas
+-  Accidente vial en Huajuapan deja daños materiales
+-  Aseguradas apenas 1.5% de viviendas y negocios
+-  Þjónustujöfnuður jákvæður um 28 milljarða
+-  В Думу внесли проект о немедленном освобождении больных осужденных по решению суда
+-  Pacto entre Gobierno y CNTE llevan a la debacle educativa
 -  Заем от близки и роднини - заслужава ли си?
+-  Уведомление органов самоуправления за 5 дней о проведении стихийного собрания/манифестации признано неконституционным
 -  (VIDEO)Bend Shotgun Sally objavio prvi singl i spot
--  7 Dividend Stocks I Wouldn’t Touch With a 10-Foot Pole
--  URA: Predsjedniku Skupštine Crne Gore nije mjesto u izbornom štabu SNS-a
--  Asgari ücret zammı için ikinci toplantı başladı: Milyonlarca çalışan çıkacak karara odaklandı masada 5 senaryo var
--  한파에 힘든 취약계층…사전 파악해 맞춤 지원
--  Signa – Ex-Lufthansa-Finanzchef illustriert Risikostrategie
--  Soccerladuma | AmaZulu & Yanga To Compete For Cameroon Striker?
--  Invesco: Fixed income výhled na rok 2024
+-  PSV wacht fraai affiche: Eindhovenaren treffen Dortmund in Champions League
+-  البصرة: احتدام التنافس بين مرشح تحالف قوى الدولة و مرشح تحالف نبني
+-  10 Tahun Berkarier, Komika Indra Frimawan Umumkan Hiatus
