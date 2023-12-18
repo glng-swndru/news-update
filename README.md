@@ -1,51 +1,51 @@
 # Latest News
--  “나한테 일주일에 5억을 준다고?”... 카세미루의 맨유 이적 비하인드
--  Video: Bill Belichick podría ser el coach de LA Chargers
--  Empleado de limpia encuentra y regresa 50 mil pesos
--  АҚШ НУЖ ҳақидаги махфий маълумотларни ошкор қилади.
--  Jednokrotny mistrz Hiszpanii konkurentem Lecha Poznań?! Chodzi o lidera Wisły Kraków
--  أسامة كمال: لا تحمّلوا الرئيس فوق طاقته
--  Télévision. Deux Cherbourgeoises fêtent le réveillon de Noël avec Pete Doherty et Christophe Willem
--  Awardit gör nedskrivningar på 260 miljoner
--  لتجنب الحساسية خلال فصل الشتاء.. 5 نصائح احرص على اتباعها
--  Decoding BJP’s improved showing in state elections
--  Estrasburgo examinará en enero la transfusión sin consentimiento a una Testigo de Jehová en Madrid
--  Шойгу поручил выполнить последнюю просьбу военнослужащего Рудакова, погибшего в Марьинке
--  NIJE MOGLA DA PREĆUTI! Ivana Španović brutalno odgovorila na UVREDLJIV KOMENTAR o razvodu - mreže se USIJALE zbog njene poruke!
--  Guerre en Ukraine : "Je sais d'où viennent les ordres", un ancien officier de Wagner va témoigner devant la Cour pénale internationale
--  Više od 200 lažnih prijetnji bombom jevrejskim objektima u SAD
--  مجھے پولیس کے ذریعے گرفتار کرنے کی کوشش کرائی گئی، حبا فواد کا دعویٰ
--  Marcelinho Carioca já teve romance com famosa casada e balançou coração de atriz; saiba quem
--  Заключительная группа эвакуированных из сектора Газа россиян прибыла в Москву
--  Por que a Fiat Strada faz tanto sucesso no Brasil?
--  Шойгу поручил выполнить просьбу бойца СВО Рудакова о семье
--  The Adobe-Figma breakup isn’t a signal of what’s to come for startup M&A
--  MEHANIZAM NASILJA: Dok Đilasova opozicija divlja u centru Beograda, nosilac liste kaže da je ponavljanje izbora pogrešno
--  Rodrigo Mussi ataca Viih Tube por parceria com jogos de azar e Eliezer rebate: 'Interesseiro'
--  Na Šubićevcu spremaju transfer bombu: bivši nadareni veznjak Hajduka želi odjenuti narančasti dres
--  Provjerili smo koje će butige raditi ako vam doma za blagdane štogod usfali
--  4 things founders should know before building 5G into a business
--  Another man (22) arrested for involvement in assault on Powned team on Ameland
--  Karlos Arguiñano revela cuál fue el precio a pagar por entrar en televisión
--  Bari, buone notizie per Marino: Brenno si allena regolarmente con il gruppo
--  Румен Радев, Мария Габриел и службите обсъдиха ситуацията с българите от отвлечените кораби
--  Bilboko Udalak Ospetsuen aintzatespena emateko ekitaldia ospatu du
--  BP wstrzymuje tranzyty tankowców przez Morze Czerwone
--  Συγκλονίζουν οι συνομιλίες των αστυνομικών μετά το δυστύχημα στον Ασπρόπυργο: «Ο συνάδελφος έχει εκσφενδονιστεί» (vid)
--  Student accused of running over and killing fiancé describes ‘nightmare’
--  МИД ФРГ осудил ракетный пуск КНДР
--  U Splitu otvorena zanimljiva izložba: ‘Nisu svi Hrvati bili ustaše, neki su hrabro, po cijenu života spašavali Židove‘
--  Kaneko u 45 dana od epskog promašaja do glavnog aduta za naslov i usporedbi s Messijem!
--  Apple Watch Series 10 will be a must-buy if it gets this rumored feature
--  Metal Slug Tactics опять перенесли, но фанаты даже обрадовались
--  Prvá dáma Českej republiky založila nadačný fond: Chce pomáhať deťom, samoživiteľom a seniorom
--  V diskusii o kompetenčnom zákone dominuje opozícia: Rokovať sa má do polnoci
--  Садвани лидирует после первого дня соревнований по блицу на турнире "Шахматные звезды"
--  TD racial equity audit finds bank has taken significant steps, more work to be done
--  Krieg in Nahost: Austin drängt auf Hilfe für Zivilisten in Gaza
--  В Москве дома-книжки на Новом Арбате окрасились в цвета флага Катара
--  Tunisie – Medjez El Beb : L’huile extra vierge de Tokaber remporte la médaille Extra Gold pour la 7eme année consécutive
--  राहुल गांधी ने लोगों से ‘देश के लिए दान’ करने की अपील की, कहा- बेहतर भारत बनाने के संघर्ष में बनें भागीदार
--  We have been polyamorous for 20 years - here's how we make things work
--  U Průhonic směrem na pražský Chodov srazil autobus chodce. Ten zemřel
--  США и Финляндия подписали соглашение о военном сотрудничестве
+-  Ungewöhnlicher Unfall in Werne: E-Scooter und Pedelec prallen zusammen, 16-Jähriger verletzt
+-  হলান্ডদের নিয়ন্ত্রণে ব্যর্থ হওয়ায় ম্যান সিটিকে বড় অঙ্কের জরিমানা
+-  Why is Below Deck Med Season 8 breaking for two weeks? Schedule explained
+-  गाली का बदला लेने के लिए हत्या: ईंट से ताबड़तोड़ वार कर उतारा मौत के घाट, घर में घुसकर दिया वारदात को अंजाम
+-  Delhi: इंद्रलोक मेट्रो स्टेशन हादसे के मामले में एक्शन मोड में केजरीवाल सरकार, DMRC से मांगी रिपोर्ट
+-  Aligarh News: अकराबाद के युवक की मुंबई में हुई मौत
+-  जुल्म सहना, जुल्म करने से बड़ा पाप है : चढ़ूनी
+-  Aligarh News: कासिमपुर की पोखर के अवैध कब्जे हटवाए
+-  Saharanpur News: अत्यंत कुपोषित बच्चे 4454, दुधारू गाय मात्र एक
+-  Saharanpur News: छेड़छाड़ और मारपीट के दोषी को तीन वर्ष का कारावास
+-  Saharanpur News: छह डिग्री हुआ न्यूनतम तापमान, सर्दी से ठिठुरे लोग
+-  Bizaran eksperiment 'dokazao' da ljudi čuju razliku između tople i hladne vode: Evo i kako
+-  Maharajganj News: सार्वजनिक शौचालय बदहाल, खुले में शौच कर रहे लोग
+-  Maharajganj News: भाग रहे पशु तस्करों के वाहन के पहिए में मारी गोली, तीन पकड़े गए
+-  Maharajganj News: पेट्रोल भराने को लेकर हुआ विवाद, लूट की दे दी सूचना
+-  Maharajganj News: लोगों ने ऑक्सीजन का समझा मोल, आंगन बना बगीचा
+-  Maharajganj News: समेकित विशेष माध्यमिक विद्यालय के संचालन में जिम्मेदारों ने ओढ़ी उदासीनता की चादर
+-  Maharajganj News: केदारनाथ की फितरत में है जालसाजी बार-बार अपने गांव वालों को भी ठगा
+-  Panchkula News: शिअद व संयुक्त अकाली दल में गठजोड़ के आसार बढ़े, ढींडसा बन सकते हैं कार्यकारी अध्यक्ष
+-  Panchkula News: पीएसईबी कक्षा 6वीं से 8वीं तक की अंग्रेजी, साइंस और गणित की किताबों का करेगा रिव्यू
+-  Bharatpur News: अनियंत्रित कार पेड़ से टकराई, दो की मौत
+-  Bharatpur News: कंटेनर ने सड़क किनारे खड़े लोगों को रौंदा, 2 महिलाओं की मौत, 3 घायल
+-  Charkhi Dadri News: 15 गांव जोड़ने से 30% पहुंचा शहरी फीडरों का लाइन लॉस
+-  मोदी का सपना है कि विश्व का नेतृत्व भारत करे : राजीव
+-  Budaun News: दूध के दो नमूने जांच के लिए भेजे
+-  Selimbegovic soll Hansa retten: Rostocker stellen Ex-Jahn-Coach als neuen Cheftrainer vor
+-  Fatehpur News: चार किमी सड़क का मिटा नामोनिशान
+-  Kaithal News: अटका बजट जारी, होगा विकास
+-  Fatehpur News: कम छात्र उपस्थिति वाले स्कूलों पर होगी कार्रवाई
+-  Kaithal News: पात्र सिख मतदाता सूची में तीन जनवरी तक करा सकते हैं नाम दर्ज
+-  Fatehpur News: ओवरब्रिज के बीम में फंसा कंटेनर, लगा जाम
+-  Kaithal News: मारपीट और तोड़फोड़ में चार पर ­केस
+-  Fatehpur News: ओमान में पासपोर्ट कर तीन हिंदुओं को बनाया बंधक (संशोधित)
+-  Kaithal News: अनाज मंडी चीका की दुकानों में चोरी
+-  Kaithal News: बाइक चोरी के मामले में आरोपी गिरफ्तार
+-  Kaithal News: नशे के खिलाफ किया जागरूक
+-  Kaithal News: विधायक ने विस में उठाया फोरलेन में देरी का मुद्दा
+-  Jalandhar News: ड्रग केस में मजीठिया एसआईटी के सामने पेश, कहा- सरकारी मशीनरी का हो रहा दुरुपयोग
+-  Kaithal News: यूनेस्को में शोधपत्र प्रस्तुत करेंगे डॉ. संदीप सिंहमार
+-  Jalandhar News: अमृतसर में दो साल के लिए शहर से कटा सिविल लाइन इलाका, रीगो ब्रिज बंद
+-  Kaithal News: मांगों-समस्याओं पर कर्मियों ने की बहस, सौंपा ज्ञापन
+-  Jalandhar News: चोरी करके घर में आग लगाने से बुजुर्ग दंपती की मौत के मामले में दो को उम्रकैद
+-  Kaithal News: आढ़तियों ने मांगी आढ़त और मजदूरी
+-  Kaithal News: शांति के दीप जमाने में जला दो, रावण न कोई आए इधर रेखा बना दो
+-  الخارجية الأمريكية: نتوقع من إسرائيل التحقيق لمحاسبة المسؤول عن استهداف الصحفيين بغزة
+-  كشف حيلة صاحب شركة ملابس لغسل 50 مليون جنيه بالقاهرة
+-  Kaithal News: नगर कीर्तन निकालकर मनाया शहीदी दिवस
+-  الأمن يحل لغز اختفاء طفل العجمى
+-  Varanasi News: सिंहली उपन्यास मडोल दूव का हिन्दी अनुवाद लोकार्पित
+-  Varanasi News: मेन पाइपलाइन लाइन अधूरी, 23 हजार घरों में पीएनजी का इंतजार
