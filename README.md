@@ -1,51 +1,51 @@
 # Latest News
--  Pep Guardiola’s daughter branded the ‘snow queen’ as she shares stunning pictures from ‘girls’ ski trip’
--  중앙일보 “한동훈, 김건희 리스크 제어할 복안 제시해야”
--  בזכות הטייסים: "היום אנחנו מצליחים להציל פצועים קשים שבעבר לא היו שורדים"
--  [날씨] 아침 출근길 강추위…퇴근길 무렵 중부 중심 눈
--  „ProGlas je maraton, a ne skok udalj“: Akademik Vladica Cvetković o izbornim rezultatima
--  الاحتلال يقتحم بلدات وقرى بجنين
--  جيرونا يواصل سلسلة انتصاراته ويستعيد الصدارة من ريال مدريد
--  Prime Minister dodges spring General Election question and remains defiant over potential Tory wipeout in Central Belt
--  "Humanitarni meč u Japanu doprineo prikupljanju pomoći Ukrajini"
--  Odbojkaši Partizana protiv Prometeja u Kupu CEV
--  YouTuber to take plea deal over child abuse
--  YouTuber to take plea deal over child abuse
--  문가영, 청재킷 속 넘치는 볼륨감…탄탄 몸매의 정석
--  [스한:BOX] '서울의 봄' 27일째 흥행 1위…누적 908만 관객 동원
--  ‘Worst drama I’ve seen in ages’, rage Vanishing Act viewers as they switch off ‘true story’ ITV series over ‘bad acting’
--  ‘Worst drama I’ve seen in ages’, rage Vanishing Act viewers as they switch off ‘true story’ ITV series over ‘bad acting’
--  Far-right Israeli minister barred from dishing out expedited gun permits in the Knesset
--  EräViikingit oli yllättää, sitten Happee otti komennon
--  YELLOWSTONE ACTOR BRENT WALKER INTRODUCES GROUNDBREAKING WESTERN WEAR INVENTION HATPAC
--  Sean Payton won’t budge on Russell Wilson question after sideline scolding
--  DC's James Gunn says Suicide Squad isn't necessarily the end of the Batman Arkham universe
--  ABK Workers Alliance responds to Activision Blizzard ending hybrid working
--  You can't talk about 2023 in games without talking about layoffs
--  Max Payne, Alan Wake 2 voice actor James McCaffrey dies aged 65
--  Microsoft cuts Xbox Series X/S hardware prices for the festive season
--  Sony patents ability for games to adjust difficulty levels on the fly
--  Le nouveau groupe d'experts en adaptation climatique est dévoilé
--  Des plaintes auraient influencé la Saskatchewan dans sa loi sur l'éducation à la sexualité
--  Pierre Poilievre s'oppose à la motion de l'ONU sur le cessez-le-feu à Gaza
--  Teachers saying they’d rather be fired than tell parents their children think they’re trans should be sacked
--  White Christmas forecast for northern UK with snow on December 25
--  KT, 제2회 퓨처스 마케터 학술 공모전 성황리에 종료
--  Sarıyer'de seyir halindeki İETT otobüsünde yangın çıktı
--  Medtronic Chairman and CEO Geoff Martha to speak at J.P. Morgan healthcare conference
--  ‘Bin 997 saniyede vurabilir’
--  Perdieron: Ningún engendro constitucional de las derechas será legítimo
--  安倍派二階派事務所 今日にも捜索
--  Vulkanutbrudd på Island
--  元寺尾死去 高田延彦は「放心」
--  Fox News Digital crushes CNN, New York Times in key metrics during jam-packed November
--  Novine: "Iznenađenja i razočaranja parlamentarnih izbora"; "SNS jači za 70.000 novih glasača"
--  جهاد جريشة : ركلة جزاء فلومينينسي البرازيلي أمام الأهلي صحيحة
--  Ohio company recalls deli salads because of possible Listeria contamination
--  Your Hairbrush Is Grosser Than You Think
--  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
--  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
--  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
--  10 arrested over illegal mining in Kogi, 50 trucks impounded
--  샌프란시스코 자이언츠 입단한 이정후, 오늘 귀국
--  Latin Amerikalı elçiler konuştu: İran ile ilişkiler yeni düzen için önemli
+-  Argentina refuerza su plan nacional de vacunas para contener la encefalomielitis equina
+-  Kate Middleton Tunjukkan Foto Natal saat Kecil, Mirip dengan Pangeran Louis
+-  Prakiraan Cuaca BMKG: Hujan Ringan Mendominasi, kecuali di Jawa, Bali dan Nusa Tenggara
+-  DFB-Comeback von Toni Kroos? Lothar Matthäus nennt Risiko
+-  Chilena Codelco logra acuerdos de contrato con sindicatos y evita riesgo de huelga
+-  이상인 "KBS 수신료 분리징수 정착 위해 점검 지속"
+-  "Personne ne le sait…" : Chantal Goya fait une grande annonce pour la suite de sa carrière
+-  وكالة يونهاب: كوريا الشمالية تقول إنها أطلقت صاروخا باليستيا عابرا للقارات
+-  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
+-  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
+-  "소주 20병씩 먹다 입원. '이래서 죽는구나' 느꼈다" 허재 '금주 선언'[4인용식탁]
+-  경정경륜총괄본부의 크리스마스 선물…취약계층 아동 위한 산타클로스
+-  수빈X아린, 다시만난 아콩MC들의 귀여운 '아콩~!'
+-  “상체로만 던진다” KIA 90SV 클로저의 美유학…류중일 쓴소리 해법 찾을까 ‘앞날 창창한 22세’
+-  "전현무와 미술관 절대 안 가!" 이찬원 '손절 선언'[톡파원]
+-  이적 성사되면 'RW에만' 4045억 투자...3년 만에 3명째 영입 추진 "더 이상 이적 불가 아니다"
+-  Recibe presidente cubano a Secretario General de Consejo Mundial de Iglesias
+-  [속보] 김정은 "더 위협적 방식 공세적 맞대응"… 핵무력발전 과업 제시
+-  북, ICBM 화성-18형 발사훈련… 김정은 "더 공세적 맞대응"
+-  구로구, 노후 공공와이파이 고도화 구축 완료
+-  Meghan Markle svela il regalo di Natale sulla lista di Archie, ma costa troppo: “Non lo avrà”
+-  금천GC생태포럼·시흥1동 범구민추진위, 금천구 청소년 위해 장학금 기탁
+-  Intel XeSS usará extrapolação para competir com FSR 3 e DLSS 3
+-  Jonathan Majors é declarado culpado em julgamento por agressão
+-  Como mandar localização pelo WhatsApp | Guia Prático
+-  Військовий експерт оцінив доцільність проведення флангової операції на лівобережжі Херсонщини
+-  Kafe ve restoranlarda yeni dönem! 1 Ocak itibariyle başlıyor
+-  Пентагон объявил многонациональную операцию по защите Красного моря
+-  Viih Tube e Eliezer fazem ensaio encantador de Natal com a filha, Lua
+-  Smeltende harten en brekend ijs in Winter vol liefde
+-  VIDEO: Protest koalicije "Srbija protiv nasilja": Tepić i Aleksić počeli štrajk glađu
+-  Air Jordans made for Spike Lee and donated to Oregon shelter auctioned for nearly $51,000
+-  “La dejaron como el país, en ruinas”: el video que muestra el estado de la Casa Rosada
+-  Bose’s Best Earbuds Yet Are the Last-Minute Stocking Stuffer You’ve Been Looking for
+-  Türk voleybolu dünyanın zirvesinde
+-  Leonel asegura que con la juventud y la mujer, arrasará en elecciones de 2024
+-  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
+-  Открытый в 2020 году в Ашхабаде Эстетический центр продали родственникам Бердымухамедова с 90% скидкой, — Turkmen news
+-  Weather radar forecast Australia for Christmas Day: Warm weather expected for much of Brisbane, Melbourne, Sydney and Adelaide, creating great conditions for Christmas
+-  His car company was once worth more than Ford. Now this former billionaire is headed to jail
+-  His car company was once worth more than Ford. Now this former billionaire is headed to jail
+-  His electric truck company was once worth more than Ford. Now this former billionaire is headed to jail
+-  His electric truck company was once worth more than Ford. Now this former billionaire is headed to jail
+-  검찰, '400억 불법 리베이트' 경보제약 압수수색
+-  79-year-old Tarrant woman arrested after city worker presses charges over dispute at council meeting
+-  Dolly Parton opening new pirate-themed restaurant in Florida
+-  Diego Topa, furioso por tener que desmentir su muerte: “No es nada gracioso todo esto”
+-  الزراعة: ضبط 200 ألف طن بصل مخزن في محافظة واحدة -(فيديو)
+-  اتحاد المصريين في الخارج يهنئ الرئيس السيسي بإعادة انتخابه
+-  أمريكا تعلن عن عملية متعددة الجنسيات لحماية التجارة بالبحر الأحمر بقيادتها
