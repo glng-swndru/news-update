@@ -1,11 +1,11 @@
 # Latest News
--  젬백스, 진행성핵상마비 치료제 글로벌 임상 개발 본격화
--  식약처, 오늘부터 ‘의약품 변경허가 사전통보제’ 시범시행
--  טניסאי מהמקום ה-1,145 בעולם ניצח את המדורגת 57 בסבב הנשים
--  مجلس النواب يناقش 11سؤالا نيابيا
--  الاحتلال ينشر فيديو لـ محمد السنوار بسيارة داخل نفق
--  أجواء باردة نسبيا بأغلب المناطق حتى الخميس
--  Night Temp Falls Below 10°C At 10 Places In Odisha; Bhubaneswar & Cuttack Continue To Feel The Chill
--  국립대병원 교수 정원 확대·시설 및 장비 첨단화…지역완결형 필수의료체계 구축
--  구미시 옥성면 저수지에 승용차 추락…60대 심정지 병원 이송
--  내년에도 분양가 인상 기조…입지·가격 따라 청약 온도차 뚜렷할 듯
+-  '3개월 11kg 감량' 신봉선, 수영복 몸매 자랑…비주얼 여신 됐네
+-  لتلاشي قطع الخدمة.. تعرف على خطوات دفع "فواتير الكهرباء" المتراكمة
+-  [오피셜] ‘펩태완’ 김태완, 2년 만에 K리그 복귀… 천안시티FC 감독 부임
+-  UEFA Women's Champions League 2023/24: Alle Ergebnisse vom 4. Spieltag bei FC Bayern vs. Ajax Amsterdam und Co.
+-  Ravens vencen 23-7 a Jaguars, amplían racha de triunfos a cuatro y aseguran lugar en playoffs
+-  Solidarität hat in der Schweiz zugenommen
+-  iPhone 16 多一顆鈕？彭博：用於拍攝影片
+-  Im Marianengraben: Forscher entdecken uraltes Wesen – es lebt
+-  Asgari ücrette kritik gün: Komisyon ikinci kez toplanıyor
+-  Erneut sieglos Letzter
