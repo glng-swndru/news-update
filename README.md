@@ -1,51 +1,51 @@
 # Latest News
--  تحذير للمواطنين.. استعدّوا لبرد عنيف خلال الساعات المقبلة
--  صنعاء تعلن صرف مرتبات شهر جمادى الأولى
--  صنعاء تعلن صرف مرتبات شهر جمادى الأولى
--  Ranveer Singh felt Peshwa Bajirao`s presence while shooting for Bajirao Mastani
--  Kickoff | BREAKING: UCL round of 16 draw announced, big clashes lined up!
--  Present en Waardeburgh gaan op 1 januari verder onder één naam: Waarderburgh
--  Tại sao mạng 5G lại gây lo lắng? | Sức khỏe
--  Community effort from Banff church's food bank ensures people are supported at Christmas
--  Kıbrıs'ta yabancıların arazi alımları için mevzuat değiştirilecek!
--  “He would do crazy things like take 100 tabs of acid in a day then jump out of the window of a moving taxi, or paint himself blue": Shane MacGowan's wife Victoria Clarke on the unorthodox, unbreakable love she shared with The Pogues' late frontman
--  Neuren Phase 2 trial shows significant improvements in Phelan-McDermid syndrome
--  TAILG Launches Advanced Sodium-Ion Battery Technology in China
--  Meme Moguls (MGLS) and Shiba Inu (SHIB) Look More Promising Following This Dogecoin (DOGE) Price Prediction
--  Giráldez, el estratega del imbatible Barça femenino, confirma su adiós
--  اربعون مشارك يتلقون دورة تدريبية لمعالجة حالات الإسهال الحاد للكادر الصحي بلحج
--  Andújar celebra su 38 Gala del Deporte para premiar el potencial de instituciones y deportistas
--  Alonso figyelmeztet, újra kiábrándulhat a Forma-1-ből
--  – تواصل الدورة التدريبية لمزارعي الزيتون بمدينة هون
--  RCMP warn about spike in online extremism among Canadian youth
--  FC Bayern im Achtelfinale gegen Lazio Rom
--  Si tienes un coche con etiqueta C, atento: estas son las restricciones en Madrid a partir de 2024
--  Mapa GPW: PlayWay, Allegro, CCC, BOŚ i Budimex w centrum uwagi
--  Fundusze Quercusa powyżej progu 5 proc. w akcjonariacie Creepy Jara
--  1,5 mld zł wsparcia dla właściciela sieci sklepów Biedronka. Celem transformacja energetyczna
--  Vasle: oczekiwania na szybką obniżkę stóp EBC są przedwczesne
--  Sytuacja na rynkach 18 grudnia - spokojny początek przedświątecznego tygodnia
--  Analiza poranna – Przedstawiciele Fed postraszyli
--  LEGO Ideas Polaroid Camera revealed for 2024 release
--  משפחות החטופים חסמו את הכניסה לקריה: "רק עסקה תחזיר אותם בחיים - לא לחץ צבאי"
--  אחיו של החטוף ששוחרר: "הבנו מישראל שרוסיה יכולה לשחרר את רון"
--  פתחו יומנים: אושר כהן מתחתן ואנחנו כבר יודעים מתי ואיפה
--  לטוס ל-280 יעדים בעולם: הקוד שייר החדש של אל על
--  리버풀 스카우터 앞에서 멀티골 작렬…‘반드시 영입해야 할 센터백’ 재확인
--  ‘교수님 리턴?’... 나겔스만, 토니 크로스 독일 국가대표 복귀 희망
--  Exportadora de carne bovina abre vagas de estágio em 2 cidades de MT para 22 cursos
--  Yogur de soya: plato fuerte de una malversación (+fotos y video)
--  Ligue des Champions : Les affiches des huitièmes de finale au complet
--  Ders sırasında tavanın sıvası düştü: 7 öğrenci yaralı
--  Tuğçe Kandemir evlendi!
--  Bakan Fidan'dan kritik görüşme
--  FC Bayern im Achtelfinale gegen Lazio Rom
--  대전 유성구 지방자치경쟁력 빛났다
--  한밭새마을금고, 따뜻한 지역사회 만들기 앞장
--  될성 부른 중소기업, 중견기업으로 육성
--  밥심으로 사랑 실천하는 삼형제
--  청주 명암약수터 굿당 10년째 국유지 무단 점유
--  온기 잃어가는 무료급식소… “온정이 필요합니다”
--  [특집] 충남대 R&D 역량으로 기술실용화까지 ‘으랏차차’
--  양심과 욕심, 그리고 염치
--  ‘청렴’ 아무리 강조해도 지나침이 없다
+-  ¿Qué cambiará en la Libreta de Abastecimiento? (+fotos y video)
+-  Directo | Siga el sorteo del playoff de la Europa League
+-  Denuncian fracaso de Operativo Guadalupe-Reyes
+-  लंडन दौऱ्यापेक्षा राज्याचा दौरा चांगला; मुख्यमंत्र्यांचा ठाकरेंवर हल्लाबोल; दीड वर्षात शेतकऱ्यांना 44 हजार 278 कोटींची मदत
+-  Viral Video: ਦੇਖੋ ਕਿਵੇਂ ਘੁੰਮਦੀ ਧਰਤੀ, ਪੁਲਾੜ ਤੋਂ ਲਿਆ ਗਿਆ ਕਮਾਲ ਦੇ ਦ੍ਰਿਸ਼ ਦਾ ਵੀਡੀਓ
+-  Trump Warns Over Illegal Immigration as Nevada Supporters Cheer His Policies
+-  Dongen wil 450 asielzoekers jarenlang opvangen: ‘Vinden dat de gemeente verantwoordelijkheid heeft’
+-  دوران عدت نکاح کیس ، عمران خان کا جیل ٹرائل زیادہ محفوظ ہوگا ، جج
+-  수아레즈의 아쉬움... “네이마르가 바르셀로나 떠난 것은 실수, 메시 옆에 있었어야지”
+-  Selain Megawati Soekarnoputri, Jusuf Kalla Pernah Menjadi Juri Zayed Award Human Fraternity
+-  Libur Nataru, Wisata Edukasi Sumbu Filosofi Hingga Sangiran Jadi Target Badan Otorita Borobudur
+-  Germania spune că UE trebuie să fie pregătită pentru un război până la sfârșitul deceniului
+-  Тошкент шаҳрида ижара нархлари пасайди.
+-  Қишки “перевод” учун ҳужжатлар қабулига оз вақт қолди – нималарни билиш керак?.
+-  Инвестициялар вазирлигининг ҳудудий бўлимлари тугатилиб, функциялари ССПга ўтказилади.
+-  “Раҳбар ўз ходимларига намуна бўлиши керак” — Нормат Турсунов билан суҳбат.
+-  Champions League: FC Bayern erwischt Lazio Rom im Achtelfinale
+-  صور.. انطلاق مؤتمر "اليابان - أفريقيا" للإلكترونيات والاتصالات في الإسكندرية
+-  بنك مصر يوقع بروتوكولا مع جيديا لتقديم خدمات للمشروعات متناهية الصغر
+-  البنك الأهلي المتحد مصر يضاعف أرباحه إلى 2.8 مليار جنيه في 9 أشهر
+-  هآرتس: وفاة أسرى فلسطينيين معتقلين من غزة
+-  وزير السياحة والآثار يعقد اجتماعاً لمناقشة استراتيجية للترويج لسياحة اليخوت في مصر
+-  اقتصادية قناة السويس توقع بروتوكولا لتوفير بيئة ملائمة للمشروعات الصغيرة
+-  سعر الذهب اليوم الاثنين في مصر يعوض خسارته بمنتصف التعاملات
+-  هذا ما يحدث لجسمك عند تناول الفاصوليا الخضراء.. لن تتوقع
+-  EU-Kommission eröffnet Verfahren gegen Online-Plattform X
+-  Минобороны РФ опубликовало отчет о ходе "спецоперации" в Украине: идет 663-й день войны
+-  Sin acuerdo aún para la ley de inmigración francesa, pero el Gobierno es optimista
+-  Kuveyt'in Ankara Büyükelçiliğinde, merhum emir Şeyh Nevvaf için taziye defteri açıldı
+-  Las Consecuencias
+-  Şampiyonlar Ligi'nde son 16 eşleşmeleri belli oldu!
+-  INDIA Meeting से पहले केजरीवाल से मिलेंगी ममता बनर्जी, किन मुद्दों पर होगी बात?
+-  Jammu-Kashmir में Women Village Defense Guard को दिया जा रहा है हथियारों का प्रशिक्षण, Terrorists से भिड़ने के लिए महिलाएं तैयार
+-  Champions League tem oitavas de final definidas; VEJA todos os jogos
+-  INDIA bloc की चौथी बैठक, इन राज्यों में सीट शेयरिंग सबसे बड़ी चुनौती, मीटिंग में बन पाएगी सहमति
+-  Vargas Llosa, Bret Easton Ellis, Fosse y los libros de otros autores que marcaron 2023
+-  Jammu-Kashmir में तीन Hybrid Terrorists गिरफ्तार, सुरक्षा बलों को मिली बहुत बड़ी कामयाबी
+-  Chuva derruba muro de quatro casas de residencial no Jardim Bandeirantes, em Poços de Caldas, MG
+-  Dembeni : Pour que le foncier ne soit plus un terrain glissant
+-  Nápoles, rival del Barcelona en octavos de final
+-  Now a forest habitat used by over 100 fauna species, Eco-Link@BKE was once an unsure suggestion
+-  Disfrutar de Fin de Año fuera de casa está de moda en las Rías Baixas
+-  Receptionist, 36 & employer, 51, charged for allowing sex workers operate in Beach Road hotel
+-  দেশে ফিরেছেন এশিয়া চ্যাম্পিয়নরা
+-  KKP Perkuat Peran Masyarakat Hukum Adat
+-  Assegno Unico figli: i dati a dicembre sui pagamenti INPS
+-  Man City gets Copenhagen and Napoli drawn against Barcelona in Champions League's round of 16
+-  Político ucraniano: Zelenski se convierte en "material de desecho" y planea escapar a EE.UU.
+-  Zelenski convoca meses después una rueda de prensa para cerrar el año
+-  EN DIRECT - Tirage Ligue Europa: quel adversaire pour Lens, l’OM, Rennes et Toulouse ?
