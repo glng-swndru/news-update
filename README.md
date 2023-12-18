@@ -1,51 +1,51 @@
 # Latest News
--  新西兰明年OCR或下调三次！银行会跟进降息吗？
--  洋人老牌公司不申请建筑许可就开建，硬怼奥克兰市议会，结果悲剧了
--  中国卫健委：中国未发现未知的新病毒和细菌
--  这州正式立法，大学禁招中国研究生和博士！不久前刚禁止中国人买房...
--  罗托鲁瓦两车相撞，造成4人受伤
--  突发！奥克兰西区一公园发生命案，一人被捕
--  新西兰最贵的10条街道出炉 ！令人咂舌
--  中国59款咖啡检出致癌物！还能放心喝吗？
--  突发！拜登安全车队被撞
--  新政府向这一机构开刀！前总理Bill English复出
--  新西兰总理宣布：这周三首访这个国家……
--  东方甄选最新公告！董宇辉担任这一职务……
--  세입자 '임차권 등기 설정' 왜 필요한가 ... "이사 후에도 대항력·우선변제권 유지"
--  US: Car rams into parked SUV in Joe Biden`s motorcade outside campaign HQs
--  Aaradhya and AbRam unintentionally recreate `Josh` moment, see video
--  لحظة بلحظة.. تطورات الحرب في قطاع غزة
--  '오심'도 경기의 일부? 'NO' 무책임한 말일 뿐...PL 주심, '권위'가 아니라 '권력 남용'이다
--  야구 잘하려면 노래도 배워야 하나? '시원한 가창력' 뽐낸 GG 3루수, 결혼식 축가 '대성공'
--  Irish whiskey JAMESON, open its 3rd ‘Distillery on Tour pop-up’ at Pyeongchang Phoenix Park
--  Eurodiputados de derechas visitan Cataluña para analizar la inmersión lingüística
--  ट्रेनों में वेटिंग लिस्ट का झंझट खत्म, मिलेगी कन्फर्म सीट! यह योजना रेलवे बना रहा
--  TikTok Masuk Tokopedia, Pakar IT: E-Commerce dan Media Sosial Tetap Harus Pisah
--  오비고, 엔씨소프트와 생성형 AI 서비스 개발 업무협약 체결
--  “전자문서 시장 10.5조…코로나 이전 수준 회복”
--  SFG 신화푸드그룹, 인천 영종도에 국내 3대 갈비 ‘송도갈비’ 19일 오픈
--  비트망고, 몰로코 클라우드 DSP로 기존 유저 리타겟팅 성공
--  플랜트스터디카페, 영통중앙점 오픈
--  티피링크, 스위치 포트폴리오 강화…비관리형 기가 스위치 4종 출시
--  Слънчево и по-топло начало на седмицата по Черноморието
--  Варна днес отбелязва 179 години от рождението на Капитан Петко войвода
--  DN솔루션즈, 2024년 조직개편과 임원인사 단행
--  트립닷컴그룹, 전략적 클라우드 제공 사업자로 ‘AWS’ 선정
--  10 са новите случаи на COVID 19 във Варна за последното денонощие
--  Modest growth seen for PH garment, textile exports in 2024
--  Adelaide motel targeted by neo-Nazi group performing Hitler salutes
--  Autoroutes : l'Etat a achevé sa revue de huit projets
--  Galatasaray'ın rakibi belli oluyor (UEFA Avrupa Ligi play-off kura çekimi ne zaman, saat kaçta, hangi kanalda?)
--  धोखा देने का नया तरीका! शिक्षक बनकर परिजनों से मांगे दस्तावेज, कुछ ही देर में बैंक खाते से उड़ गई रकम
--  На проезде Яблочкова в Рязани произошло массовое ДТП
--  La Corée du Nord a encore tiré un missile capable d'atteindre les Etats-Unis
--  Himachal Weather: शीतलहर का प्रकोप, पूरे प्रदेश का न्यूनतम पारा 8 डिग्री से कम
--  Albo's annus horribilis
--  Macro Afternoon: 18 December 2023
--  Why migrants will continue to flood Australia
--  Reserve Bank won't hike rates in February
--  China and iron ore hit the skids
--  An immigration engineered housing crisis
--  Who knew Australians wanted to live in mega-cities?
--  Everything rally poised for more?
--  The great energy crash continues
+-  مع بدء الموسم الجديد 2024.. "عضو السياحة" يكشف أبرز تحديات القطاع
+-  China, North Korea hold meeting amid missile launches
+-  China, North Korea hold meeting amid missile launches
+-  Deprem! Bu Kez Gümüşhane Sallandı! Gümüşhane’de art arda yaşanan depremler korkuttu
+-  한미약품, 2023년 한해 동안 R&D 성과 40건 발표
+-  이스트라, 19일 120Hz 논글레어 QLED 출시기념 라이브 진행
+-  Yıl Bitmeden 3 Bakanlığın Bütçesi Tükendi!
+-  Poslednji podaci RIK-a i PIK-a: SNS blizu 50 odsto, Dveri i Zavetnici ispod cenzusa
+-  Bjelopoljci jedva dišu od magle
+-  زيلينسكي يتحدث عن الأصول الروسية المجمدة.. ماذا طلب؟
+-  Cinsel Gücü Artırma Vaadiyle Erkeklere "Keçi Testisi"da Başarılı Olamıyor?
+-  AK Parti'de yerel seçim hazırlığı... İstanbul'da temayül yoklaması yapıldı
+-  School v sports clubs: The future of this Port Melbourne site decided
+-  School v sports clubs: The future of this Port Melbourne site decided
+-  La oportunidad que Quique esperaba
+-  Stock Market Holidays: వచ్చే ఏడాది మార్కెట్లకు 2 వారాలు సెలవులు, హాలిడేస్‌ లిస్ట్‌ ఇదిగో
+-  Dačić najavio ostavku: Potrebno je naći novog lidera SPS-a
+-  Independent MP Bob Katter likens Queensland government to Nazi secret police over flood road closures
+-  Karnataka News: शालमला नदीत एकाच कुटुंबातील 5 जणांचा बुडून मृत्यू; 3 मृतदेह सापडले, शोधमोहिम सुरु
+-  Independent MP Bob Katter likens Queensland government to Nazi secret police over flood road closures
+-  Taylor Swift celebrated her 34th birthday party by throwing a star-studded party in New York
+-  Hadiri KTT AZEC di Tokyo, Jokowi Beberkan Indonesian Way of Just Energy Transition
+-  What may shape the 2024 elections
+-  FG mulls 50% fare subsidy as minister, airline operators hold strategic meeting
+-  Esel, Engel, Tannenbaum: ein Weihnachts-ABC
+-  منع وزير الداخلية العراقي من التصويت في الاقتراع العام
+-  Komatireddy: నల్లగొండలో పెండింగ్ ప్రాజెక్టులు పూర్తి చేస్తాం
+-  Dončić in Antetokounmpo za spektakel že pred Parizom
+-  Днес определят двойките в елиминациите в Лига Европа
+-  Palestine protesters arrested after gluing themselves to road
+-  Palestine protesters arrested after gluing themselves to road
+-  Palestine protesters arrested after gluing themselves to road
+-  Dirt bike riders wanted after road rage attack outside police station
+-  Dirt bike riders wanted after road rage attack outside police station
+-  Truck splits above railway in Melbourne's west
+-  Dirt bike riders wanted after road rage attack outside police station
+-  Truck splits above railway in Melbourne's west
+-  Truck splits above railway in Melbourne's west
+-  U moru vreba opaki predator koji svoj plijen reže po pola: Bolje vam je ne naletjeti na ovog crva
+-  أكثر من 100 شهيد ارتقوا في مجازر الاحتلال في جباليا
+-  اسـتمرار اقـتحامات الاحتلال للضفة
+-  عمان الأهلية تشارك في مؤتمر كيو أس لإعادة تصور التعليم
+-  عمان الأهلية تقوم بحملة لدعم نزلاء مستشفى المركز الوطني للصحة النفسية
+-  الضحية الثالثة.. الرباط الصليبي يضرب ألابا
+-  عناصر غذائية لمنع تغييرات جسمك بعد الأربعين
+-  «هدبحها زي أختها».. تفاصيل تهديد شقيقة نيرة أشرف بالقتل
+-  Руснаците удариха тежко "Азов" в Серебрянската гора
+-  Firmy nie mogą wyręczać państwa w dbaniu o zdrowie psychiczne pracownika
+-  Gaza : গাজায় আরও ৪ ইজরায়েলি সেনার মৃ্ত্যু, বিবৃতি আইডিএফের
+-  Cape Town braces for 9-hour water interruptions from tomorrow
