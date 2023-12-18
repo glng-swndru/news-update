@@ -1,51 +1,11 @@
 # Latest News
--  تجنباً للأرق.. جربوا هذه الفاكهة قبل النوم
--  مستوطنون صهاينة يقتحمون باحات المسجد الاقصى
--  سكتة قلبية تسقط لاعب كرة قدم على الأرض أمام الجماهير
--  De “héroes”, difamaciones y transparencia
--  Avrupa Birliği ilişkileri için yeni açıklama
--  İnternetten sattığı ürünü göndermedi, 3 yıl 4 ay hapis cezası aldı!
--  پشاور ہائیکورٹ: عدلیہ کی زیر نگرانی انتخابات کرانے کی درخواست پر فیصلہ محفوظ
--  Asgari Ücret Tespit Komisyonu toplantısı tamamlandı: Rakam konuşulmadı
--  Adobe abandons $20 billion acquisition of Figma
--  Why the Warriors needed Andrew Wiggins and Klay Thompson to get uncomfortable
--  SaiPassa sivuraiteelle ajautunut Joonas Oden loppukaudeksi Itävaltaan
--  Nadal disputa o ATP de Barcelona
--  Save an incredible 60% on the Echelon Row-S rowing machine right now at Amazon
--  Cena navideña, un lujo para un millón de chihuahuenses
--  ¡Comienza a ejercitarte hoy!
--  Dispara Corea del Norte misil balístico al mar
--  Goolsbee and housing data highlights a light economic calendar
--  Matan a 12 jóvenes en posada en Guanajuato
--  Na lyže do zahraničí se chystá 14 % Čechů
--  Väntad jätteseger för Egyptens ledare
--  'Simplesmente não dão bola', diz Drauzio Varella sobre resposta de big techs a golpes que usam inteligência artificial
--  Animal Box Office: Ranbir Kapoor starrer enters the Rs. 500 cr. Club; emerges as fourth release of 2023 to cross Rs. 500 cr
--  Sam Bahadur Box Office: Vicky Kaushal starrer crosses the Rs. 100 cr mark at the worldwide box office
--  Animal Box Office: Ranbir Kapoor starrer crosses the Rs. 800 cr mark at the worldwide box office
--  Animal Box Office: The film becomes Sandeep Reddy Vanga’s first Rs. 500 crores grosser
--  Sam Bahadur Worldwide Box Office: Becomes Vicky Kaushal’s 2nd consecutive Rs. 100 crores grosser
--  Animal Box Office: Rashmika Mandanna makes her debut in Rs. 500 Crores Club
--  CTN : Ouverture des réservations pour la saison 2024
--  مواجهات عنيفة في ولاية الجزيرة والدعم السريع تعلن السيطرة على قاعدة عسكرية
--  Best Of 25 Jahre Donaubühne Tulln - 20. Juli 2024
--  نقيب المحامين: مدونة السلوك المهني لا تكمم الأفواه
--  مدير الجهاز التنفيذي لـ"الوطنية للانتخابات": التزمنا بالدقة والنزاهة والشفافية
--  رئيس "الوطنية للانتخابات": نسبة التصويت في الانتخابات الرئاسية الأعلى في تاريخ مصر
--  بـ 89,6%.. السيسي يفوز بفترة رئاسية جديدة مدتها 6 سنوات
--  شيخ الأزهر يهنِّئ الرئيس السيسي لفوزه في الانتخابات الرئاسية 2024
--  بعد محاولته كتم العطس.. لن تتوقع ما الكارثة التي حدث لرجل
--  رئيس الوطنية للانتخابات: نسبة التصويت في الانتخابات الرئاسية 2024 هي الأعلى في تاريخ مصر
--  مشروب ساخن شهير يمكن أن يحمي صحة الدماغ والقلب.. لن تتوقعه
--  رسميًا.. السيسي رئيساً لمصر لولاية جديدة
--  رئيس "الوطنية للانتخابات": نفقات الدعايات الانتخابية كانت الأقل في تاريخ مصر
--  "أو سي آي جلوبال" تبيع حصتها في شركة أمريكية للأسمدة بـ 3.6 مليار دولار
--  خريطة الأسعار اليوم: ارتفاع الزيت والجبن وتراجع الحديد وتقلبات بالذهب
--  وزير البترول يبحث تقدم أعمال تحسين إنتاج النفط في الصحراء الغربية
--  GOG sender svensk keeper videre til storklub til sommer
--  Лавров объяснил слова Байдена о намерении России атаковать страны НАТО
--  Três Lagoas (MS) é a cidade mais quente do país com quase 42 ºC
--  Рижское самоуправление планирует утеплить 3000 зданий к 2030 году
--  Galatasaray Başkanı Dursun Özbek apar topar hastaneye kaldırıldı
--  Thousands of XL Bully owners granted exemptions as ban looms
--  Önbizalomhiány miatt kevesebb lány választja a műszaki továbbtanulást
+-  DÉCEMBRE 1990- DÉCEMBRE 2023: L’UGB célèbre ses 33 ans
+-  Rijksmuseum calls 2023 'historic year' thanks to record-breaking Vermeer exhibition
+-  Center Covid Advisory: భారత్‌లో పెరుగుతున్న కరోనా కేసులు, కోవిడ్ లక్షణాలు ఉంటే వెంటనే ఆర్టీపీసీఆర్ టెస్టులు చేయాలని రాష్ట్రాలకు కేంద్రం ఆదేశాలు
+-  Cantante de vallenato usaba a Panamá como ruta de tráfico
+-  ديكو: برشلونة تركيزه في الدوري أكثر من مواجهة نابولي
+-  Japan’s security assistance only involves drones, interceptor boats for maritime surveillance, says Mohamad Hasan
+-  '동상이몽2' 베일에 싸인 혼자남, 찰스였다…"자숙설·재벌 결혼설 돌아" [동상이몽]
+-  Šetnica Babin Do - Javorov Do, za uživanje u prirodi u svakom godišnjem dobu
+-  Nomination de 14 nouveaux directeurs au ministère des Affaires étrangères : le liste complète
+-  В офисе Зеленского заявили об ошибке СМИ насчет прослушки Залужного
