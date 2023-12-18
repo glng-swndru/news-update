@@ -1,11 +1,51 @@
 # Latest News
+-  청도군, 「문화관광해설사 배치심사 위원회 개최」
+-  ‘평택아트센터’, 평택 평화예술의 전당의 새 이름!
+-  겨울 축제 '홍콩 윈터페스트' 개최 ... 겨울왕국부터 어린왕자까지 선보여
+-  โปรดเกล้าฯ พ.ร.ฎ.จ่ายเงินเดือนข้าราชการ มีผล 1 ม.ค.67
+-  ศาลอาญาชี้ชะตา กลุ่มพันธมิตรฯ 28 คน บุกดอนเมืองปี 51
+-  Weight Loss: Strength Training Does More Than Build Muscles, You Shed Calories Too
+-  Kejati DKI Tunjuk Enam Jaksa Periksa Berkas Perkara Firli Bahuri
+-  People pin hopes on Congress govt for completion of SLBC project
+-  Jokowi to Attend AZEC Summit on Decarbonizing Asia Today
+-  Cách phối đồ chuẩn gout với áo bomber nam chỉ cần 5 phút đơn giản
+-  Cần làm gì để tránh trở thành nạn nhân tiếp theo của lừa đảo deepfake?
+-  الاحتلال الإسرائيلي يقتحم مستشفى العودة وتعري كوادره الطبية
+-  حسين فهمي يعلق علي بوستر فيلم "الإسكندراني": إسكندرية بتخلق فنانين
+-  Australia announce squad for Boxing Day Test, release this young fast bowler
+-  В одном из райцентров Бурятии ночью сгорело кафе
+-  Would be ‘hard’ for the King to justify bringing Sussexes ‘back into the fold’
+-  Three arrested for stealing nine transformers
+-  Bigg Boss 17: Mannara Chopra On Her Equation With Munawar Faruqui
+-  Lamar Jackson's deep throw to Isaiah Likely sets up Gus Edwards touchdown
+-  ‘ഞങ്ങൾ സന്തുഷ്ടരാണി’ൽ അഭിനയിക്കുമ്പോൾ 11ാം ക്ലാസിൽ, തെങ്കാശിപ്പട്ടണം വേണ്ടെന്നുവച്ചു: അഭിരാമി അഭിമുഖം
+-  Streich nach drittem Sieg: „24 Punkte - sensationell“
+-  Get the best bang for your buck with this smartphone gift guide for the holiday season
+-  Der Kampf ums Internet: Warum es echte Alternativen braucht, um die Macht der Tech-Giganten zu brechen
+-  Australia sending a navy warship to Red Sea will not ‘leave us short’
+-  [단독]“멋지게 지면 뭐해”vs“약속 지켜야”…野초선, 선거제 ‘끝장 토론회’ 연다
+-  اصطدام سيارة بإحدى سيارات موكب الرئيس بايدن في ولاية ديلاوير (فيديو)
+-  Pandian hits out at Oppn for ‘being blind’ to development
+-  A bully kept stealing my daughter’s lunch, so I took revenge
+-  경찰 "경복궁 '담장 낙서' 용의자 3명 신원 특정...중대 범죄 강경 대응"
+-  নির্বাচনে মাহিয়া মাহির প্রতিদ্বন্দ্বী ৭ জন
+-  Fire burns construction site in US city
+-  Prithviraj Sukumaran: I keep telling Prabhas that Salaar is like Game of Thrones
+-  জাবালিয়া শরণার্থী শিবিরে আবারও ইসরায়েলি হামলা, নিহত অন্তত ৯০
+-  El desastre de una posible gestion de Dío Astacio
+-  تحذير عاجل.. أمطار على مكة وعسير وضباب بالرياض
+-  Barbie represents ‘limitless possibilities’ in a ‘dark and gloomy world’
+-  РСЗО «Ураган» ВС России уничтожили опорник ВСУ на Краснолиманском направлении
+-  Phone hacking court case success is just ‘more fuel for Harry’s fire’
 -  PM Modi`s Twin Gifts To UP Today: Eastern Dedicated Freight Corridor, Vande Bharat Express
--  치킨인류, 신메뉴 ‘핫K양념치킨’, ‘갈릭슈양념치킨’ 2종 출시
--  이비스 스타일 앰배서더 인천 에어포트, ‘특별한 크리스마스 이벤트’ 선봬
--  늦가을 비로 인한 일조량 부족, 엠지디세광 식물등 보광LED로 해결 가능
--  파고다위크, 18일부터 오직 10일동안 할인주간
--  Impacta patrulla estatal contra auto al omitir un alto en Juárez
--  군포시 장애인센터 개소식 개최
--  담양군, 연말 맞이 ‘담양장터 농특산물 특별 기획전’ 추진
--  영광군, 2023 전라남도 인구정책 추진 종합평가‘우수상’수상
--  청송군, 연말연시 맞아 불법 정당현수막 및 옥외광고물 일제 정비 나서
+-  Hariwon đáp trả ngắn gọn như thế nào khi liên tục dính tin đồn chia tay Trấn Thành?
+-  Emergency response as woman found dead at Canberra zoo
+-  Kata Hasto Pernyataan Ndasmu Etik Prabowo Cermin Kekuasaan di Atas Segalanya
+-  Taylor Swift fumes and curses after beau Travis Kelce gets Shoved during Chiefs vs. Patriots game: Watch
+-  Whitney Cummings is a mom! Comedian welcomes first child, says she ‘3-D printed a human’
+-  राज्यातील ग्रामपंचायतींचा कारभार आजपासून ठप्प; सरपंच, ग्रामसेवक, कर्मचारी, संगणक परिचालक संपावर
+-  നവകേരള സദസ്സ്: മഴ കൂസാതെ അടൂരിൽ വൻ ജനാവലി; സ്വീകരിച്ചത് 4725 പരാതികൾ
+-  Георги Костадинов с цял мач при победа на АПОЕЛ
+-  Winter Session 2023: हिवाळी अधिवेशनाच्या शेवटच्या आठवड्याचा आज पहिला दिवस; आजतरी मराठा आरक्षणावर चर्चा होणार?
+-  Thanh niên hất nồi lẩu đang sôi vào một phụ nữ tại quán nhậu
+-  Tampil di Bawah Tekanan Suporter Liverpool, Kiper Manchester United Andre Onana: Bukan Apa-apa
