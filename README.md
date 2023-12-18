@@ -1,11 +1,51 @@
 # Latest News
--  Luai skips Panthers training as tensions simmer over Tigers move
--  Luai skips Panthers training as tensions simmer over Tigers move
--  Luai skips Panthers training as tensions simmer over Tigers move
--  Luai skips Panthers training as tensions simmer over Tigers move
--  Record number of drug offenders booked in past 5 years; teens increase threefold
--  Unification minister says human rights violations 'status quo' in N. Korea
--  US condemns recent N. Korean ballistic missile launches: State Dept.
--  Corporate net profit falls in 2022 on manufacturing, construction slump
--  Hitejinro to cut factory price of soju by 10.6% in January
--  New SF Giants outfielder Lee Jung-hoo due back in Korea Tuesday
+-  경복궁 담벼락 낙서 '모방범' 20대 남성 경찰에 자수
+-  박상우 "LH 사장때 임직원 땅 투기 송구…직방금지법 반대"
+-  檢, '펜타닐 불법처방 의사' 징역 2년에 항소…"직업윤리 훼손"
+-  '자녀 입시 비리 혐의' 조국-정경심 부부, 항소심 6차 공판 출석
+-  한미일 북핵대표, 북 ICBM 발사 규탄…"비핵화 길로 복귀하라"
+-  백악관 "한미일 안보실장 통화…北, 안보리 결의 위반"
+-  국회, '실거주 의무 폐지' 21일 마지막 논의…정부 "최선을 다해 추진"
+-  송기섭 진천군수
+-  송인헌 괴산군수
+-  김창규 제천시장
+-  이완섭 서산시장
+-  최재구 예산군수
+-  유철호씨(청주시 평생학습관 팀장) 부친상
+-  건양대 박연우 학생,日 ICCC2023 국제 디지털디자인 초대전 우수작품상 수상
+-  건양대 국방경찰행정학부 올해 공공인재 27명 배출
+-  금산경찰서 연말연시 협력단체와 함께하는 음주운전 근절 합동 캠페인
+-  호박고구마 ‘당진호풍’ 현대百 12개 점 입점
+-  당진시 소통 캐릭터 ‘당진이’ 연극 호응
+-  당진교육지원청, 희망가득 ‘사랑의 가래떡’ 전달
+-  대전교통공사, 내년 1월 1일부터 도시철도 운임 조정
+-  대전교육청, 학교급식 단가 인상 및 지원체계 개선
+-  유성구, ‘한국지방자치경쟁력지수’ 전국 자치구 종합 1위
+-  한국효문화진흥원, 2023년 청년 HYO 서포터즈 수료
+-  미래의 직업을 만나다...중학생 진로직업 체험
+-  갤러리아타임월드, 버거 브랜드 다운타우너 오픈 예정
+-  대덕구의회, 사랑의 연탄봉사
+-  이강인 유니폼 사러 백화점 갈까
+-  מכבי נתניה מאוכזבת מההפסד ומעודדת מהיכולת: "שווים יותר"
+-  Another minor arrested for school arson in Nicosia
+-  Raymundo Fulgencio recibió medalla de segundo lugar con Tigres entre lágrimas
+-  ¿Es posible construir sin emisiones?: Nuevos materiales para transformar el sector
+-  ¡Grand Slam azulcrema! América se corona siendo líder, mejor defensiva y mejor ofensiva
+-  เงินเข้ายัง! ธ.ก.ส. โอนเงิน ‘ไร่ละพัน’ รอบ 2 กว่า 6.1 พันล้าน ให้ชาวนากว่า 6.8 แสนครัวเรือน เริ่มวันนี้!
+-  Accenture Establishes Generative AI Studio In Bengaluru
+-  The Mumbai Dream: Raging Battle for $2.5 Bn Redevelopment of Bandra Reclamation
+-  Hindustan Coca-Cola Beverages To Educate TN Women In Banking
+-  Government's Dividend Receipts Surpass Rs 39,000 Crore, Covering Disinvestment Shortfall
+-  La Une des quotidiens du lundi 18 décembre 2023
+-  Potret Kebersamaan Tiko Aryawardhana Suami Baru BCL dengan Noah Sinclair, Main Basket Bareng Bak Teman Sekomplek
+-  联想thinkplus会议平板“年终服务节”上线，让服务更贴心
+-  BITKA ZA TITULU SE NASTAVLjA: Đirona se trijumfom pred svojim navijačima vraća na prvo mesto
+-  Der Prater rockt: Stimmungsvolle Weihnachtszeit und ein fulminantes Silvester
+-  Német fegyvergyárak árasztják el Magyarországot
+-  Após ser afastado da TVI, João Baptista tem novo projeto
+-  Svečano otkrivena ploča s imenima 25-orice poginulih pripadnika 156. brigade HV
+-  ‘KBTG’ มั่นใจศักยภาพด้าน M.A.D. เดินหน้าจาก AI-First สู่ Human-First ผลักดันงานวิจัยประยุกต์ใช้งานจริง
+-  Harry and Meghan's royal website is STILL online despite promises not to use 'Sussex Royal' after Megxit - including a page titled 'Serving the Monarchy' which hasn't been updated since the Queen died
+-  免費申請豁免所得稅服務 歡迎聯絡Mcfin Corporate
+-  В Бердянске в состоялся открытый Кубок ДЮСШ по волейболу среди девушек
+-  Adam Henrique skjuter första NHL-hattricket – mot sin förra klubb
