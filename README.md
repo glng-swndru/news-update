@@ -1,51 +1,51 @@
 # Latest News
--  En Ahome el alcalde toca de nuevo tema del retén del Poblado 7; esperan respuesta de la FGR
--  Miles Bridges interdit d’entrer au Canada avant le match Raptors – Hornets
--  'Nah, we’re just three Māori boys' wins Quote of the Year 2023
--  ’20-Year-Old Lady Is Too Young For Me To Date’ – Billionaire Son, Paddy Adenuga
--  À Guingamp, les étudiants de Notre-Dame font un don de 1 414 € à la PLB Muco
--  Fans belohnen Talent Oliveira (19) nach Startelf-Debüt in Nürnberg
--  The 4th most miserable city in the U.S. is right here in NJ
--  GPUs Intel Gaudi 3 serão mais rápidas que Nvidia H100 e AMD MI300X
--  Em testes, vacina em pó protege contra covid-19 por até 1 ano
--  Matthew Perry died of 'acute effects of ketamine'—what you need to know about the drug
--  AMERIČKI MINISTAR ODBRANE SIGURAN: Podrška SAD pravu Izraelu da se brani je nepokolebljiva
--  В Полоцком районе фура насмерть сбила мужчину
--  "Salta tutto", stop improvviso a Flavio Briatore: un mistero in Rai
--  Winter Sports Safety: Tips to Prevent Injuries While Enjoying the Season
--  How shortened telomeres heighten risk of serious lung disease
--  Destructoid’s award for Best Indie game of 2023 goes to…
--  Dan 24 horas a la Jueza Valentina Meléndez para revocar resolución en contra de César Duarte
--  La plataforma de Gorroño señala como «sorprendente» que PNV y EH Bildu formen Gobierno en Gernika
--  Minister chokeret over nye tal om barnebrude: »Det er statsautoriseret pædofili«
--  Minister chokeret over nye tal om barnebrude: »Det er statsautoriseret pædofili«
--  Dutzende Tote nach schweren Unwettern in Südamerika – Video zeigt, wie Wind ein Flugzeug bewegt
--  Peterborough officer draws stun gun after report of woman with hatchet at outdoor rink
--  Őrült meccsen verte meg a világ egyik legjobb csapatát a magyar pólóválogatott
--  Lavrov: Rusia nuk ka ndërmend të sulmojë vendet e NATO-s
--  Kostić: Ovi izbori su detaljno osmišljeni kao eksperiment, čije ćemo rezultate razumeti kasno
--  Úrad pre dohľad nad zdravotnou starostlivosťou schválil navrhovaných kandidátov do predsedníctva VšZP
--  السوداني يشير لكركوك: أبرز صور نجاح الانتخابات
--  Discovery unveils promising anticancer drug targeting KRAS protein
--  Медики научили ИИ диагностировать аутизм по фото детских глаз
--  Researchers create genetic atlas detailing early stages of zebrafish development
--  Canada adds Boston Bruins rookie Matthew Poitras to world junior roster
--  La liberación de Taguasco: flama libertaria rebelde
--  Nurse aide turnover linked to scheduling decisions
--  UHAPŠEN PIJANI VOZAČ U teškom sudaru u Banjaluci povređene 3 osobe, među njima 2 maloletnika
--  Putin: la eficiencia de la Ruta Marítima del Norte supera la del canal de Suez
--  Likwidacja "ideologicznego" przedmiotu szkolnego. Lubnauer wskazuje, co w zamian
--  В России скончался Пухляш Дмитрий Красилов
--  Latest Galaxy S24 Ultra leaks detail camera upgrades, ‘far better’ titanium than iPhone, more
--  Bursa'da zincirleme kaza: Ölü ve yaralılar var...
--  Galatasaray, yıldız oyuncuyu gönderiyor
--  Parejas homosexuales: El Vaticano admite bendecirlas por primera vez, pero sin considerarlas matrimonio
--  انتخابات میں دھاندلی پرمزاحمت کریں گے،حافظ نعیم الرحمن
--  Verzekeraar keert niet uit, omdat ongeluk mogelijk opzettelijk was
--  Court Restrains Buhari’s Ex-Minister, Tallen From Holding Public Office
--  Jeremy Renner’s ‘musical diary’ will drop one year after his snowplow accident: ‘Story of life, death, recovery’
--  Russische tennist finale tegen man nadat Oekraïense tegenstander weigert: ‘Dacht dat het een grap was’
--  Snažan zemljotres pogodio Kinu
--  Girona aprova la rebaixa del contracte de la neteja amb crítiques de l’oposició
--  కలెక్టరేట్‌ వద్ద ఉపాధి ఫీల్డ్‌ అసిస్టెంట్ల ధర్నా
--  Traktori na ulicama Berlina: Protest njemačkih poljoprivrednika protiv kancelara Šolca, sa njima i ministar Ozdemir
+-  EFCC denies parading seven-year-old suspect, says Victor Odeh is 19
+-  Pep Guardiola advierte lo complicado que es un Mundial de Clubes
+-  Long-delayed Minnesota copper-nickel mining project wins a round in court after several setbacks
+-  A new Vincent van Gogh?
+-  ہائر ایجوکیشن کمیشن کے خریدار ادارے کو رسمی کارروائی پوری کرنے کی ہدایت
+-  UN and dissidents criticize Nicaraguan government’s ‘distancing from human rights’
+-  López Obrador attributes massacre of 12 people in central Mexico to increase in drug use
+-  Въоръжени до зъби спецполицаи дебнат за терористи в Бургас
+-  Haд 6000 eвpo нa квадрат зa жилищe в Бepлин - Труд
+-  Dwamena lider i sulmit: Egnatia dominon “Formacionin e vitit 2023” me pesë lojtarë
+-  Skidåkare utlöser lavin – filmar inifrån snökaoset
+-  Medvedevin oğlu da Aİ-nin sanksiya siyahısına daxil edilib
+-  “Neftçi”nin “Qarabağ”ı təbrik etməməsində Qurbanovdan
+-  Ulduz futbolçunun evi qarət olundu
+-  49ers Arik Armstead Joins Oobli’s Advisory Board as Athlete Ambassador
+-  Mali Vakula otkrio hoće li za blagdane ‘dolove i brijeg zabijeliti snijeg’
+-  Drama zbog adventskog klizališta u gradu, svećenik stao pred kamion: ‘Možeš samo preko mene...‘
+-  2023 йилнинг энг яхши олимлари эълон қилинди.
+-  Президент ҳузурида 6-7 км чуқурликда геологик бурғулашга ўтиш масалалари муҳокама қилинди .
+-  Van'da korkutan deprem!
+-  Arjantin'de fırtına bilançosu büyüyor! Ölü sayısı 14'e yükseldi
+-  Ürdün, sınırda 9 kaçakçı yakalandığını duyurdu
+-  Gazeteci Hasan Kılıç hayatını kaybetti
+-  Абдулла Арипов Москвада МДҲ ҳукуматлар раҳбарлари кенгаши йиғилишида қатнашди.
+-  Cristiano Ronaldo, Messi'nin tahtını yıktı! Bir rekor daha
+-  Demain nous appartient en avance : le résumé de l'épisode 1581 du mardi 19 décembre 2023
+-  Komşuda korkutan deprem!
+-  Fotor Unwraps Festive Delights: AI-Powered Christmas Event Set to Illuminate the Season
+-  New Tools for the Future of Work - How New Technologies are Transforming the Workplace
+-  Umweltbonus ausgelaufen: Aus für E-Auto-Förderung: Was nun für Betroffene gilt
+-  Efter fartygsattackerna: ”Huthi leker med elden”
+-  Kushinagar News: दिन में धूप और शाम को बढ़ी गलन, 315 पहुंचा एक्यूआई
+-  Kushinagar News: लाभार्थियों को विकसित भारत का एंंबेसडर बनाने की तैयारी
+-  Pratapgarh News: पिटाई होने से महिला का गर्भपात, पुलिस पर आरोप
+-  Pratapgarh News: मां की मौत के सदमे में बेटी की भी थम गई सांसें
+-  Pratapgarh News: काशी विश्वनाथ एक्सप्रेस में बच्चा छीनने की कोशिश
+-  How India seeks to reshape the global climate deal
+-  Lakhimpur Kheri News: शहर में धूमधाम से निकली सांई बाबा की पालकी
+-  Lakhimpur Kheri News: मूल्य घटने से पेट्रोलियम पदार्थ का उठान नहीं कर रहे पंप मालिक
+-  सोई हुई शक्तियों को जगाता है गायत्री मंत्र : डॉ. चिन्मय पंड्या
+-  Kartal Belediye ekipleri tedbiri elden bırakmıyor
+-  Lakhimpur Kheri News: मैलानी से पीलीभीत के बीच जल्द ट्रेन चलने की जगी आस
+-  COP29-un Azərbaycan üçün üstünlükləri nələrdir?
+-  Казийски спечели тайбрек на 3 в Италия
+-  Hamirpur News: पौथिया पावर हाउस की मशीन में बिस्फोट, 20 घंटे आपूर्ति ठप
+-  Hamirpur News: पुरानी परंपरा में लौटेगा बुंदेलखंड, प्राकृतिक खेती के लिए जिले को मिले 180 लाख
+-  Jhansi News: पढ़-लिखकर बनना चाहते थे इंसान, पोर्न की लत ने दोनों बच्चों को बना दिया शैतान
+-  Jhansi News: चेकिंग के दौरान जीएसटी टीम के सिपाही को रौंदते हुए भाग निकला ट्रक चालक
+-  Hamirpur (Himachal) News: 13 हजार फलदार पौधे तैयार, बारिश का इंतजार, छह ब्लाॅकों में 20 दिसंबर तक करना था वितरण
+-  Hamirpur (Himachal) News: मेडिकल काॅलेज पर 92.88 लाख का बिजली बिल बकाया, बोर्ड हर माह भेज रहा नोटिस
