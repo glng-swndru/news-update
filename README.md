@@ -1,51 +1,51 @@
 # Latest News
--  Robotas ekskavatorius padarė tai, ko seniai norėjome – ir visiškai be žmogaus įsikišimo (Video)
--  [ŽT] Netikėtas incidentas. Į Bideno koloną rėžėsi automobilis. Kas nutiko (Video)
--  „Fašistinė retorika“: užsipuldamas Bideną, Trumpas citavo Putiną ir Hitlerį (Video)
--  Tokie skirtingi pasauliai. Kaip žiema atrodo kitose Saulės sistemos planetose
--  Evo koliko su državne tvrtke pod Lovrinčevićevim nadzorom našeg novca dale televizijama
--  Stuck in the Middle Season 3 Streaming: Watch & Stream Online via Disney Plus
--  Oyerinde, others applaud Team Nigeria’s performance at World Squash Championship
--  قصف إسرائيلي على الشفاء الطبي
--  أضرار إفراط الأطفال في تناول الحلويات
--  مكونات عجينة العشر دقائق وطريقة تحضيرها
--  غادة عبدالرزاق: لا أفكر بالزواج.. وأنا ملتزمة دينياً
--  Kate Garraway's GMB co-stars send an emotional message of support to star as she holds bedside vigil for husband Derek Draper while he fights for his life after heart attack
--  Brad Pitt mora da isplati milion i po eura zbog vinograda
--  Sophie (35) wil weg uit onbewoonbaar huis vol schimmel, boktor en houtrot maar kan nergens terecht: ‘Wat moet ik doen?’
--  זה נגמר עכשיו? כשטיילור סוויפט פגשה את ביל בליצ'יק
--  Obnovili vyschlý rybník a naučili lidi jíst kapra. U Kalendů nakupují i kuchařská esa
--  British Navy reports possible explosion off the coast of Yemen
--  "Ovo deluje jezivo, kakva sramota": Fanovi se obrušili na Dženu Ortegu zbog nove uloge VIDEO
--  Samsung Galaxy S24 Serisinin Renk, Depolama ve RAM Seçenekleri Ortaya Çıktı
--  Kate Garraway will spend 'Christmas in hospital with husband Derek Draper following his heart attack' - after cancelling all of her TV commitments
--  Niti Aayog: 27 నుంచి నీతి ఆయోగ్ సమావేశాలు
--  PiXXiE ส่งความน่ารักชวนเคลิ้ม “ชอบไปหมด” พร้อมปล่อยมินิอัลบั้ม “rain”
--  Four-bedroom home sells for $1.9 million in Danville
--  BT: Sjefredaktør Frøy Guldbrandsen gir seg
--  Streichung der Agrardieselsubvention: Özdemir warnt vor Überforderung der Landwirte mit geplanten Kürzungen
--  A është Gjermania e ‘zhytur në një mal me borxhe’?
--  Jose Mourinho claims he was accused of ‘BULLYING’ at Man Utd after Special One would do ‘anything to win’
--  Jose Mourinho claims he was accused of ‘BULLYING’ at Man Utd after Special One would do ‘anything to win’
--  Ανόρθωση: Δεν θα συμμετέχει στο Κόπα Άφρικα ο Τσίκο
--  Nie będzie odcinkowego pomiaru prędkości pomiędzy Nieporętem a Zielonką. „Prace GITD kolidowałyby z przebudową drogi”
--  넥스플랜, 한강변 미디어 아트쇼 성료
--  Oppo Find X7 Tasarımı Sızdırıldı
--  "성관계 몇 명이랑 했냐"…사유리, 韓 원로가수 성희롱 폭로→영상 삭제 [MD이슈]
--  손해보험업계, 자동차 보험사기 피해자에게 보험료 12.8억 돌려줘
--  Dobitni ponedjeljak!
--  "귀중한 클로저될 수 있다"…최고 165km '오타니 라이벌'이 마무리로? 단 조건이 있다
--  Гороскоп на січень від Макса Гордєєва: Тельцям - чарівництво, Ракам - нервовий зрив
--  ‘I have to say’: Paul Merson completely changes his mind about Tottenham Hotspur
--  Meglepetésvendégekkel lép színpadra január elsején Mága Zoltán
--  Son dövrlər akademiyada bu ixtisasa axın çoxdur
--  I was grateful my kids could get their pills tested, if they had any
--  Endommagé par une voiture, ce restaurant de Villeneuve-Loubet pourra-t-il rouvrir?
--  Henry Bryant is a Christmas miracle 25 years in the making
--  Henry Bryant is a Christmas miracle 25 years in the making
--  Iránykereséssel nyithat a tőzsde az elemző szerint
--  I was grateful my kids could get their pills tested, if they had any
--  Lüneburg: Das sind die Öffnungszeiten für städtische Einrichtungen an Weihnachten und den Jahreswechsel 2023
--  Плюс-сайз-модель Эшли Грэм прошлась по улице в наряде из сетки
--  I was grateful my kids could get their pills tested, if they had any
--  Henry Bryant is a Christmas miracle 25 years in the making
+-  Uzman doktor dişlerde renklenme ve çukurlaşmanın sebebini açıkladı
+-  Bakan Tekin sert açıklamalarda bulundu: Terör örgütünü destekleyen milletvekilleri var
+-  İran'da eğitim çevrim içi yapılacak!
+-  Trabzonspor yarın İstanbulspor'la karşılıklı mücadele verecek
+-  Serenay Sarıkaya'dan 'Ateşe düştüm' itirafı!
+-  AK Parti'den asgari ücret mesajı
+-  منتزه حريملاء يستقبل الزوار بـ 200 ألف شجرة جديدة و37 غزالًا
+-  هذه المشروبات تزيد من خطر الإصابة بسرطان المريء
+-  أسعار العملات اليوم الاثنين.. الإسترليني يُسجل 4.76 ريالات
+-  عاجل.. كل شيء عن شركات الدفع الآجل.. وفتوى الخثلان تكشف سرها
+-  [의료24시] 보라매병원, 2023 공공의료 성과보고회 최우수기관 표창 수상
+-  [부고] 분당서울대학교병원 정형외과 이영균 교수 부친상
+-  Tanah runtuh Puchong: Tiada pergerakan sigfikan dikesan
+-  Britanski diplomata kidnapovan u Ekvadoru
+-  Taylor Swift Dropped $1200 on Vintage KC Chiefs Gear
+-  S. Korea, US stage joint special operations forces drills
+-  Israel launches fresh strikes on Gaza as UN nears vote on aid
+-  Opposition grows in DPK against ex-prime minister's push for new party
+-  Avvio di settimana cauto per le Borse europee
+-  한국핀테크지원센터, ‘금융클라우드 지원사업’ 추진
+-  Tata Power Secures Rs 418 Crore Order From NTPC, Sparks 1.5% Stock Surge
+-  Indian Space Startups Witnesses Rs 1,000 Cr Investments in Last 9 Months: Jitendra Singh
+-  New Year 2024 – What Stars Foretell About Twelve Signs
+-  China Allegedly Using TikTok For Disinformation In Taiwan Elections: Report
+-  OnePlus 12 May Debut In India In January 2024
+-  Anuncian el regreso de la Copa Intercontinental
+-  Celebración operística en el Teatro del Bicentenario
+-  Inversionistas piden planes de desarrollo en el sector inmobiliario
+-  Knee injury hasn't changed Smith's commitment to Dogs
+-  Knee injury hasn't changed Smith's commitment to Dogs
+-  ‘Ada benda terkeluar di bahagian tulang belakang’ – Zamani
+-  Нужен серьезный задел. Какие сферы сотрудничества Лукашенко предложил развивать с Московской областью
+-  CPR·화재대피 훈련 했더니 … 체육시설 매출 늘었다
+-  우즈 부자, 찰떡 호흡으로 공동 5위
+-  Белорусские пляжники разгромили ЦСКА на сборе в Санкт-Петербурге
+-  철벽 김민재 1골 1도움 "괴물 맞구나"
+-  [ GS칼텍스배 프로기전] 여왕과 2인자
+-  한국증권금융, 아동청소년 복지 공모사업 지원
+-  오늘의 운세 2023년 12월 19일 火(음력 11월 7일)
+-  Ashley Graham im "Love Want"-Magazine: Dieser Transparenz-Look löst nackte Begeisterung aus
+-  Ρήξη χιαστού ο Αλάμπα: Χάνει τη σεζόν και το Euro
+-  ہمیں نظرکھا گئی اور شاید ہم خود بھی اپنے آپ سے مخلص نہیں، نواز شریف
+-  गिरीश महाजनांचे सलीम कुत्तासोबत संबंध, एकनाथ खडसेंचा गंभीर आरोप; विधानपरिषदेत फोटो दाखवत राजीनामा देण्याची मागणी
+-  亞太근골격종양학회 차기회장에 정양국 교수
+-  정갑윤 교직원공제회 이사장
+-  [포토] 한국공인회계사회, 연탄 24만장 쾌척
+-  서울고 자랑스러운 서울인상 이하경 대기자·김덕상 대표
+-  한국이미지상에 제네시스·팝페라 가수 임형주
+-  '하드록 전설' AC/DC 드러머 콜린 버지스 77세로 사망
+-  Mumbai Indians : आयपीएल लिलाव उद्या अन् आज मुंबई इंडियन्सला चक्क श्रद्धांजली वाहण्याचा ट्रेंड! रोहितचा डाव अंगलट येणार की काय??
