@@ -1,11 +1,51 @@
 # Latest News
--  어트랙트, 피프티 피프티 전멤버 3人·안성일 등에 130억원 손해배상청구 소송
--  뉴진스, 19일 리믹스 앨범 ‘NJWMX’ 발매
--  ارتفاع حصيلة زلزال في الصين إلى 86 قتيلا
--  Here's How the States Line Up in Upcoming 'Civil War' Movie
--  PROSPERIDAD DE EE.UU. Y EUROPA SE HA BASADO EN EL SAQUEO: DIPLOMÁTICO RUSO
--  Tampa postal carrier killed in hit-and-run, police say
--  Rudy Giuliani Got Himself Hit With Another Defamation Lawsuit From The People He Already Got Sued For Defaming
--  Суд в США указал, когда пройдет первое заседание по делу Хантера Байдена
--  Quadrilha aproveita trânsito após acidente fatal em rodovia e saqueia caminhão no interior de SP; VÍDEO
--  Update On Mercedes Mone’s AEW & NJPW Statuses, Note On WWE Interest
+-  ‘젊은 뇌졸중’ 치료 예후 수년간 제자리
+-  '센 언니' 디바 지니 "이효리 화장실 썰? 충격 받아…채리나 저격 글은" 솔직 고백 [놀던언니]
+-  KB손해보험, 자립준비청년 자립 돕는 ‘런런챌린지’ 3기 발표회 실시
+-  경륜경정총괄본부, 16일 '건전운영 우수성과 영업장 시상식' 개최
+-  JTI코리아, 전국천사무료급식소 배식 봉사 동참
+-  웅이, '폭행논란' 전여친 폭로 "병원장에 스폰·강간상해 등 무혐의에도 합의금 2억 요구" [MD이슈](종합)
+-  Another first-term Colorado state representative resigns, citing vitriol in Capitol
+-  Texas governor signs bill that lets police arrest migrants who enter the US illegally
+-  N.Korea says it test-launched Hwasong-18 ICBM
+-  "Ameaça à paz". MNE condena disparo de míssil balístico por Pyongyang
+-  Rob ‘Hardy’ Poole headed to Sports Hub morning show alongside Fred Toucher
+-  Surf's up for Spartans as San Jose State heads to Hawaii Bowl; homecoming for QB Cordeiro
+-  Patriots place starting guard Cole Strange on injured reserve, ending his season
+-  시흥시, 과수 동해 예방 위한 현장기술지원단 운영
+-  시흥시, 미얀마 재정착난민 미니 포럼 ‘벌써 일년’ 성료
+-  시흥시, 21일 ‘거북섬 별빛공원’ 점등식 개최
+-  노원구, '지반 침하 사고 예방' 36곳 조치 완료
+-  아산시, ‘주방용 오물분쇄기’ 적법 사용 강조
+-  능곡동, 2023년 e아동행복지원사업 우수사례 공모전 장려상 수상
+-  중구, '확' 달라질 북창동…미디어 월 조성 완료
+-  조용덕 전 소통특별위원, 더민주(평택갑) 국회의원 선거 출마 선언
+-  [국제유가] 홍해 지정학적 불안에 상승…WTI 1.46%↑
+-  강동구, 2023 유니세프 아동친화도시 우수사례 공모전 우수상 수상
+-  소진공, 재생PC 100대 기부…ESG경영 실천
+-  [속보] 중국 CCTV "간쑤성 지진으로 86명 사망·96명 부상"
+-  아산시의회 예산결산위원회, 2024년도 예산안 심사 의결
+-  마이다스 호텔&리조트, 송어 낚시부터 글램핑까지…'윈터캐슬' 개최
+-  한국증권금융 꿈나눔재단, 아동·청소년복지 공모사업 선정·지원
+-  [2보] 中 간쑤성 규모 6.2 지진으로 최소 86명 사망·96명 부상
+-  [뉴욕증시] 美 연준 '파월 발언 진화'에도 상승 마감
+-  SPC 던킨, 귀엽고 포근한 ‘크래프트홀릭 룸슬리퍼’ 선봬
+-  Traspié del Valladolid en Villarreal
+-  Like ‘open-heart surgery while running a marathon’: Summer roadworks to cause chaos
+-  Popular Qld swimming spot closed following sewage spill
+-  Sjakkpresidenten sammenlignes med Putin: – En moralsk katastrofe
+-  NSW bushfire emergency: Locals urged to ‘stay inside’
+-  억대 월급 버는 직장인들…내년 건보료 월 최고 424만원 부담한다
+-  Tulivuori purkautuu Islannissa
+-  Os melhores alimentos para satisfazer os desejos noturnos
+-  Schunk: “La devaluación genera una gran recesión, y esta produce un cambio en la generación de ingresos”
+-  اصطدام مروع لطائرة في خطوط الكهرباء بولاية أمريكية .. ومصرع قائدها
+-  Vinculan a pareja por violencia familiar y feminicidio contra bebé
+-  Egyptische president Al Sisi herkozen voor derde termijn
+-  Timberwolves' Anthony Edwards issues statement after alleged text messages about abortion posted on social media
+-  Haut-Katanga : des milliers de partisans de Moïse Katumbi acclament leur leader à Lubumbashi
+-  ¡En comisiones! Diputados acuerdan reunión en 2024 para impulsar el tramo carretero Choix-Urique
+-  ABC star's resignation is brought forward after rogue appearance on Sky News
+-  Lo que André Jardine SÍ pudo hacer con América, que Veljko Paunović no pudo con Chivas
+-  Foreign governments didn’t influence U.S. 2022 midterms: report
+-  쿠팡, 세계 최대 명품 e커머스업체 인수..."명품시장 리더될 것"
