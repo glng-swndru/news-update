@@ -1,51 +1,11 @@
 # Latest News
--  ส่ง 1 แสนชื่อปลดล็อก "นกกรงหัวจุก" พ้นบัญชีสัตว์ป่า
--  “พรเพชร” ชี้ไทม์ไลน์แก้รัฐธรรมนูญยังไม่ชัด
--  8 people killed as pick-up vehicle collides with auto-rickshaw in Pune
--  لماذا يستهدف الإسرائيليون الإعلاميِّين؟
--  이스라엘군, 인질 사살 이어 성당서 민간인 모녀 저격
--  Инж. Петър Кънев, който доказа, че в политиката влизат и умни, и успели хора
--  PM Modi: వారణాసిలో మోదీ పర్యటన.. వందే భారత్ రైలు ప్రారంభించనున్న ప్రధాని
--  Mondial de handball féminin : les Bleues championnes du monde après leur victoire contre la Norvège
--  Meteoroloji'den sis ve pus uyarısı: Göz gözü görmeyecek
--  What sunscreen is best? A dermatologist offers advice on protecting your skin
--  Alexander Puution kolumni: Lopeta onnellisuuden tavoittelu
--  هل تعجز وزارة الداخليّة عن إصدار دفاتر سيارات وسَوق جديدة؟
--  Коалицията на Вучич печели изборите в Сърбия
--  SUV runs over three-year-old toddler while playing outside the apartment in Bengaluru, driver held
--  Congress: కాసేపట్లో టీ.కాంగ్రెస్ పొలిటికల్ అఫైర్స్ కమిటీ భేటీ
--  Mastercard to roll out new monetization solutions to Azerbaijani market
--  Αλόννησος: Βρήκε στο οικόπεδο του γερμανικό αεροπλάνο και δώρισε τα κομμάτια του στο μουσείο - Η ιστορία και τα μυστήρια που το συνοδεύουν
--  "Phénomènes inexpliqués" : quand la photographie met en scène le paranormal
--  Number of immigrants in Korea rises some 10% in 2023
--  새해 카운트다운, 성산일출봉에서…정상 등반 900명 한정
--  워케이션 거점 조성-웰니스 마을관광 인프라 조성 가시화
--  최신형 노면청소차량 교체 도입
--  Защитники берега Каховского водохранилища проходят спецподготовку
--  Trump Outlines Terrifying New Immigration Plan at Nevada Campaign Rally
--  年度十大新詞 顯眼包 特種兵式旅遊入選
--  كولونا في لبنان بدورٍ "جنوبي"... ماذا في جعبتها؟
--  Hamas esir takası şartlarını açıkladı: Aksi takdirde söz konusu değil
--  Komşuda 10 yıl sonra bir ilk! Yerel seçimler için sandık başındalar
--  Sırbistan'da iktidar partisi zaferini ilan etti: Açık farkla kazandık
--  Devlet yakın takibe aldı! Fırsatçı ev sahipleri şimdiden zam peşinde
--  FETÖ'nün 17-25 Aralık yargı yoluyla darbe planı... Bakan Tunç: Sahte delil üreterek hukuku yok saydılar
--  Apple to let app developers bundle subscription discounts for customers
--  В США заявили, что инцидент с кортежем Байдена не был преднамеренным
--  شمالی کوریا لیرې واټن ویشتونکي توغندی آزمایلی چې تر متحده ایالاتو رسیدلی شي
--  Israel-Palestine conflict : WHO says al-Shifa hospital a 'bloodbath'
--  IMD ने तमिलनाडु के लिए ऑरेंज अलर्ट जारी किया, भारी बारिश की भविष्यवाणी की
--  Gene-Sequencing Company Illumina to Sell Cancer Test Developer
--  Gene-Sequencing Company Illumina to Sell Cancer Test Developer
--  Uyuyan dev uyandı! Dün geceki depremin ardından korkutan uyarı... Prof. Dr. Bektaş: Tedirgin edici
--  غیر شرعی نکاح کیس: خاور مانیکا کے وکیل عدالت نہ پہنچ سکے
--  El jugador del América que fue campeón de la Liga MX sin sumar minutos en el Apertura 2023
--  Amritsar News: ਸਰਕਾਰਾਂ ਸਹਿਮ ਗਈਆਂ, ਸਿੱਖ ਨੌਜਵਾਨਾਂ ਨੂੰ ਧਰਮ ਦੇ ਰਾਹ ’ਤੇ ਚੱਲਣ ਤੋਂ ਰੋਕ ਰਹੀਆਂ...ਅੰਮ੍ਰਿਤਪਾਲ ਸਿੰਘ ਦੇ ਗੰਭੀਰ ਇਲਜ਼ਾਮ
--  В Белом доме рассказали, как машина врезалась в кортеж Байдена
--  Milli Eğitim Bakanı'ndan tarikat açıklaması: 10 tane var. Onlarla protokol yapmaya devam edeceğiz
--  지난해 국내 기업들 매출 증가 속 순이익 감소
--  [속보] 윤 대통령 "北 어떤 도발도 즉시 압도적으로 대응하라"
--  정부, 지방이전 기업 보조금 100억→200억원·지원 규정도 완화
--  올해 마약류 사범 ‘역대 최다’…10∼30대 절반 이상
--  बहन किसी और से करती थी प्‍यार, परिवार वालों ने समझाया, फिर भाइयों ने किया...
--  현대차, 모빌리티 기술인력 신규 채용
+-  백경현 구리시장, ‘파독 60주년 기념 ART MEMORY 미술전시회’ 참석
+-  Ask 411 Wrestling: Who Is Ric Flair’s Most Underrated Rival?
+-  우리금융미래재단, 자립준비청년 금융 멘토링 1기 수료식 개최
+-  Four killed in Bajura tractor accident
+-  Relief for Ten Hag as Man United holds Liverpool to 0-0 draw at Anfield
+-  North Korea fires long-range ballistic missile into sea in resumption of weapons launches
+-  بعدما أثارت الجدل في تصريحاتها الأخيرة.. لقاء الخميسي تعتذر من متابعيها
+-  الأمير ألبرت والأميرة شارلين يعايدان الشعب والعالم بمناسبة الكريسماس والعام الجديد
+-  “클라우드·공공 마이데이터 활용으로 탄소배출 저감”
+-  제주항공 승무원, 유기동물 보호소 찾아 봉사활동
