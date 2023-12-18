@@ -1,51 +1,51 @@
 # Latest News
--  ‘젊은 뇌졸중’ 치료 예후 수년간 제자리
--  '센 언니' 디바 지니 "이효리 화장실 썰? 충격 받아…채리나 저격 글은" 솔직 고백 [놀던언니]
--  KB손해보험, 자립준비청년 자립 돕는 ‘런런챌린지’ 3기 발표회 실시
--  경륜경정총괄본부, 16일 '건전운영 우수성과 영업장 시상식' 개최
--  JTI코리아, 전국천사무료급식소 배식 봉사 동참
--  웅이, '폭행논란' 전여친 폭로 "병원장에 스폰·강간상해 등 무혐의에도 합의금 2억 요구" [MD이슈](종합)
--  Another first-term Colorado state representative resigns, citing vitriol in Capitol
--  Texas governor signs bill that lets police arrest migrants who enter the US illegally
--  N.Korea says it test-launched Hwasong-18 ICBM
--  "Ameaça à paz". MNE condena disparo de míssil balístico por Pyongyang
--  Rob ‘Hardy’ Poole headed to Sports Hub morning show alongside Fred Toucher
--  Surf's up for Spartans as San Jose State heads to Hawaii Bowl; homecoming for QB Cordeiro
--  Patriots place starting guard Cole Strange on injured reserve, ending his season
--  시흥시, 과수 동해 예방 위한 현장기술지원단 운영
--  시흥시, 미얀마 재정착난민 미니 포럼 ‘벌써 일년’ 성료
--  시흥시, 21일 ‘거북섬 별빛공원’ 점등식 개최
--  노원구, '지반 침하 사고 예방' 36곳 조치 완료
--  아산시, ‘주방용 오물분쇄기’ 적법 사용 강조
--  능곡동, 2023년 e아동행복지원사업 우수사례 공모전 장려상 수상
--  중구, '확' 달라질 북창동…미디어 월 조성 완료
--  조용덕 전 소통특별위원, 더민주(평택갑) 국회의원 선거 출마 선언
--  [국제유가] 홍해 지정학적 불안에 상승…WTI 1.46%↑
--  강동구, 2023 유니세프 아동친화도시 우수사례 공모전 우수상 수상
--  소진공, 재생PC 100대 기부…ESG경영 실천
--  [속보] 중국 CCTV "간쑤성 지진으로 86명 사망·96명 부상"
--  아산시의회 예산결산위원회, 2024년도 예산안 심사 의결
--  마이다스 호텔&리조트, 송어 낚시부터 글램핑까지…'윈터캐슬' 개최
--  한국증권금융 꿈나눔재단, 아동·청소년복지 공모사업 선정·지원
--  [2보] 中 간쑤성 규모 6.2 지진으로 최소 86명 사망·96명 부상
--  [뉴욕증시] 美 연준 '파월 발언 진화'에도 상승 마감
--  SPC 던킨, 귀엽고 포근한 ‘크래프트홀릭 룸슬리퍼’ 선봬
--  Traspié del Valladolid en Villarreal
--  Like ‘open-heart surgery while running a marathon’: Summer roadworks to cause chaos
--  Popular Qld swimming spot closed following sewage spill
--  Sjakkpresidenten sammenlignes med Putin: – En moralsk katastrofe
--  NSW bushfire emergency: Locals urged to ‘stay inside’
--  억대 월급 버는 직장인들…내년 건보료 월 최고 424만원 부담한다
--  Tulivuori purkautuu Islannissa
--  Os melhores alimentos para satisfazer os desejos noturnos
--  Schunk: “La devaluación genera una gran recesión, y esta produce un cambio en la generación de ingresos”
--  اصطدام مروع لطائرة في خطوط الكهرباء بولاية أمريكية .. ومصرع قائدها
--  Vinculan a pareja por violencia familiar y feminicidio contra bebé
--  Egyptische president Al Sisi herkozen voor derde termijn
--  Timberwolves' Anthony Edwards issues statement after alleged text messages about abortion posted on social media
--  Haut-Katanga : des milliers de partisans de Moïse Katumbi acclament leur leader à Lubumbashi
--  ¡En comisiones! Diputados acuerdan reunión en 2024 para impulsar el tramo carretero Choix-Urique
--  ABC star's resignation is brought forward after rogue appearance on Sky News
--  Lo que André Jardine SÍ pudo hacer con América, que Veljko Paunović no pudo con Chivas
--  Foreign governments didn’t influence U.S. 2022 midterms: report
--  쿠팡, 세계 최대 명품 e커머스업체 인수..."명품시장 리더될 것"
+-  Félix Tshisekedi sur Paul Kagame : "Ils osent faire ça, mardi, mercredi, pendant que les congolais seront en train de voter, jeudi, je fais feu"
+-  Una 'mesa de crisis' buscará soluciones en la comisaría tras el cambio de género de un ertzaina
+-  Osakidetza justifica la espera de un año en Oftalmología por la «gran demanda»
+-  Women Health: यूटीआई से सबसे ज्यादा पीड़ित होती हैं महिलाएं, जानें लक्षण और बचाव
+-  예산시장 상인들에게 ‘국민신문고’ 신고당한 백종원
+-  한미와 북한, '건들기만 해봐'식 철부지 치킨 게임 멈춰야 한다
+-  lt;매경gt;이 최악의 경영 성적 기록했다는 코레일 정선선은 '지역 이어주는 동맥'
+-  허은아 quot;한동훈 비대위원장? 고양이 목에 방울 다는 게 중요하지hellip;quot;
+-  quot;정부여당 새만금 예산복원 답 없어quot; hellip; 전북 국회의원 최악 한파에도 국회 농성
+-  송미령 quot;양곡관리법 반대hellip;직불제 확대로 농가 소득 안정quot;
+-  '전당대회 돈봉투' 의혹 송영길 구속hellip;野 의원 줄소환되나
+-  South Korea Sees Surge in ‘DINK’ Couples Among Newlyweds
+-  सेहत: सर्दियों में बच्चे की इस तेल से करें मालिश, शरीर बनेगा स्वस्थ
+-  Calon SPM kekal fokus ulang kaji pelajaran di PPS
+-  La Justicia de México otorga prisión domiciliaria a Roberto Borge, exgobernador de Quintana Roo
+-  The $KingGrok Token Wants To Unite The Grok-AI Meme Family
+-  Mariah Carey & Bryan Tanaka Appear to Have Split After 7 Years Together
+-  Statele Unite au anunțat discuții cu Israelul privind măsurile pentru a preveni implicarea Hezbollah în conflict.
+-  Dua wakil beregu lelaki di Olimpik Paris bukan mustahil
+-  Jeju Island Initiates Pilot Project for Electric Vehicle Battery Recycling
+-  سباق الخيل «16» على كأس أوكس وداربي قطر
+-  يلتقي الغرافة اليوم والخور مع الزعيم.. طائرة العربي تتطلع للصدارة
+-  عمومية QSL اليوم
+-  قطر تحصد جائزتين في «الداتاثون الخليجي 2023»
+-  Vụ Vạn Thịnh Phát: Xử lý thế nào với 2 bị can người nước ngoài và 5 bị can người Việt đang bỏ trốn?
+-  ¿Qué hacer en caso de un desastre durante las celebraciones navideñas?
+-  Defensor del Pueblo de Colombia pide audiencia con Blinken para abordar crisis migratoria en el Darién
+-  Fatih Portakal asgari ücret için rakam verdi: İktidardan önce açıklıyorum...
+-  [오늘의 별자리 운세] 2023년 12월 19일 화요일
+-  [오늘날씨] 기온 평년 되찾아도 여전한 '강추위'… 아침 최저 -14도
+-  [오늘의 운세] 2023년 12월 19일 화요일(음력 11월 7일/일진:신해(辛亥)/띠별·생년월일 운세)
+-  '돈봉투 의혹' 송영길 전 민주당 대표 구속
+-  [이정우의 우문우답] 대학입시 개혁
+-  सर्दी के मौसम में सर्दी-जुकाम से बचने के लिए अपनाएं ये उपाय
+-  Quedó dañada durante la obra: rehabilitarán carretera hacia la presa Santa María, anuncia Rocha
+-  팬들을 위한 크리스마스 선물... ‘24년 뮌헨 원클럽맨’, 2025년까지 계약 연장 완료
+-  Video: Desde temprano acuden a la rueda de la fortuna
+-  Renuncian cabezas del sistema operativo del INE
+-  Hair fall connection with stomach: बालों के झड़ने का सीधा कनेक्शन पेट से, जीवनशैली में करें ये बदलाव
+-  Record crowd expected for Ottawa PWHL team's opener
+-  Apple banned from selling watches in the US starting this week due to infringement lawsuit
+-  Washingtonians get easy vehicle access with Free2move
+-  Incheon Unveils Pioneering ’100 Million+ i Dream’ Birth Policy to Tackle Decline in Birthrates
+-  Минчанка узнала, что поделки в сад теперь можно купить, и сняла свою реакцию
+-  Karim Wade, très triste : « C’est avec une profonde tristesse que j’ai appris le rappel à Dieu de… »
+-  Xperia Pro-II could bring rotating camera rings for manual controls
+-  Encuentran en El Dorado a una niña guineana que fue abandonada hace 9 días por dos adultos
+-  PJ declara inadmisible recurso de apelación de Boluarte en caso de presunto plagio de libro
+-  The New Orleans Gospel Stars insistiendo en el éxtasis en el Arriaga
+-  कोई बचेगा नहीं…हरियाणा विधानसभा में CM खट्टर ने गीता पर हाथ रखकर खाई कसम
