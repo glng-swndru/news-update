@@ -1,51 +1,51 @@
 # Latest News
--  DMM İsrail'in "Filistinliler görüntü kurguluyor" iddiası yalanlandı
--  Cumhurbaşkanı Erdoğan Macaristan'dan ayrıldı
--  Atalanta, ikinci devrede 3 puanı aldı!
--  "자신 위한 틈새 시장 개척" KIA와 재계약한 소크라테스, 美 현지의 긍정적 평가
--  '투타니'는 임시 휴업 '타타니' 풀타임 개점…2024시즌 한 번에 4개 역사 쓸 수 있다.
--  ఒకేసారి చంపేయండి!
--  చుక్కచుక్కనూ ఒడిసిపట్టండి!
--  NASA finds ‘life-sparking energy source’ on Saturn moon Enceladus
--  Treća pobjeda u nizu za Atalantu, zabio i Pašalić!
--  Possível redução no orçamento de 2024 faz reitores pressionarem Congresso
--  (ВИДЕО) Расим Љајиќ како рокенрол ѕвезда: Скокна во толпата и го најави Истанбул во Пазар
--  పోలీసు పహరాలో ఫాం-7లపై విచారణపోలీసు పహరాలో ఫాం-7లపై విచారణ
--  Parliament : అసాధారణరీతిలో ఒకే రోజు.. 78 మంది ఎంపీల సస్పెన్షన్‌
--  Aussie Endycott regains PGA Tour card at Q-school
--  Kelowna nurse who met stem cell donor encourages others to consider ‘gift of life’
--  సోమిరెడ్డి శిబిరంపైకి హిజ్రాల దండు
--  A Psychologist Explains The Appeal Of ‘Mind Upload’ Technology
--  هل يمكن استقدام العمالة المنزلية مباشرة عبر منصة مساند؟
--  Noua față a marilor monumente istorice restaurate în România stânește ironii și controverse VIDEO
--  Nature Wood Group Limited Announces First Half 2023 Unaudited Financial Results
--  Германия — Lufthansa требует 740 000 евро компенсации от «Letzte Generation»
--  Desaparece parralense en Ciudad Juárez
--  Exponen funciones de la Guardia Nacional
--  Ahora construyen muro de concreto
--  Clemens-Gegner bei Darts-WM: Leung überrascht gegen van Veen
--  నేను పోటీ చేస్తున్నా
--  La primera lista de Quique: sólo cuenta con 13 jugadores del primer equipo
--  Impensado hallazgo: descubren una tabla medieval y quedan estupefactos al descifrar el mensaje tallado
--  Путин продлил разрешение бизнесу не учитывать голоса недружественных акционеров
--  Bahía Blanca: el estremecedor relato de una mujer que estaba con su hija en el club de Bahía Blanca donde ocurrió la tragedia
--  చరిత్రలో నిలిచేలా!
--  הקדיש העצוב של האבא: לידור יוסף קרואני הובא למנוחות
--  You have until this day if you want to buy the newest Apple Watch
--  United Defense Tactical Ends 2023 with Expansion Plans
--  You have until this day if you want to buy the newest Apple Watch
--  Ante queja de usuarios por cobros, Japama aclara que no ha hecho recargos al recibo de agua: Gerente
--  The 5 best wine clubs of 2023, tested and reviewed
--  BMGK'da Gazze anlaşmazlığı
--  İngilzi devi, Galatasaray'ın kapısını o yıldız isim için çalacak
--  Resmi Gazete'de yayımlandı: Fiyat etiketlerinde yeni dönem!
--  Başkan Acun Ilıcalı'dan Hull City'e müjde
--  Don't Let Athletes' Families Miss Out At Paris Olympics, Says Coe
--  SMIU to organise 2nd Global Research Congress-24 on Feb 28, 29
--  התאוששה: בני הרצליה ניצחה 90:101 את הפועל חיפה
--  א.ס. רמת השרון נותרה מושלמת עם 24:35 על בני הרצליה
--  ישראל לארה"ב: דורשים הרחקה של חיזבאללה 10 קילומטרים מהגבול
--  Jorge Serrano vinculado a uno de los equipos finalistas
--  Marvel Star Jonathan Majors Found Guilty of Reckless Assault
--  Bakan Yumaklı duyurdu: Gıda denetimi 1 milyon 215 bine ulaştı
--  Üyeler arasında anlaşma sağlanamadı: BMGK'de Gazze karar tasarısı oylaması ertelendi
+-  فيديو مذهل لسمكة تصطاد قردا.. ماذا حدث؟
+-  ملاكمة على متن طائرة كانت في طريقها لولاية أمريكية
+-  ¡Con bajas ventas! Así inician vendedores el primer fin de semana en la verbena de Guasave
+-  عاجل.. تنبيه مهم من حساب المواطن لمربي الماشية
+-  4 درجات تحت الصفر.. أكثر مناطق اليمن برودة (خارطة تفاعلية)
+-  Drama u Gazi: Neophodna evakuacija više od 5.000 ranjenih
+-  Concierto gratis de fin de año en CDMX: Rubén Blades en el Ángel de Independencia
+-  Βουλή-Β. Σπανάκης: Το ασφαλιστικό ν/σ με τις 13 σημαντικές τομές πηγαίνει την αγορά εργασίας βήματα μπροστά
+-  Bizarre Fast Radio Burst Exhibits a Unique Signal Never Seen Before
+-  60% of borrowers have made payments on their restarted student loans
+-  반도체 특성화대는 취업 지름길?...연수서 현대모비스 등 취업 상담
+-  1년새 건설사 19곳 '부도' … 부동산 경기 침체로 유동성 악화
+-  한국 학생 성적은 최상위, 하지만 삶의 만족도는 '하위권'...원인은?
+-  Aaj Ka Kumbh Tarot Card: कुंभ राशि वाले लोगों के विश्वास पर खरे उतरेंगे. लोगों की सराहना से मन होगा खुश
+-  [ŽT] Iš kur Rusija gaus kiaušinių - kas vyksta
+-  'Me forçaram a fazer aquele vídeo', afirma Marcelinho Carioca após sequestro
+-  Help keep your community safe with free Narcan distribution
+-  Meal sharing for a longer life? Insects may hold the secret
+-  Hotter weather caused by climate change could mean more mosquitos, according to study
+-  Machine learning could help scientists understand why birds are eating plastic
+-  State board blocks Douglas County’s creative attempt to provide property tax relief to its homeowners
+-  No, Denzel Washington Is Not Quitting Directing
+-  Carro elétrico completou a primeira viagem de sempre do Pólo Norte ao Pólo Sul!
+-  Firearms and hanging primary methods for suicide in US as rates continue to rise
+-  No, Denzel Washington Is Not Quitting Directing
+-  'Backfired': Christmas house in Sooke gets outpouring of support after nasty Grinch letter
+-  Chelsea vs Newcastle live stream: How to watch Carabao Cup quarter-final online
+-  A belgrádi önkormányzati választás megismétlését követelik
+-  TAK bütçesi Meclis’te onaylandı
+-  Mystery as Alex Batty’s mum abandons campervan and vanishes as missing teen returns to UK after 6yrs in French commune
+-  Ko voli fudbal, mora da voli i Đironu - katalonsko čudo ne staje
+-  Nakon Debeveca i Mehmedagića privedena i advokatica Vasvija Vidović
+-  “Está causando mucho daño”: Junta de Sanidad Vegetal inicia campaña contra rata de campo en El Carrizo
+-  Long-term Dogs Trust dog finally finds forever home in time for Christmas
+-  Amerika zahájí námořní operaci. Chce ochránit lodě v Rudém moři před povstalci
+-  Lava Storm 5G leaks ahead of December 21 official announcement
+-  115 мигрантов были спасены у берегов Марокко
+-  Marcelo y el colombiano Jhon Arias conducen al Fluminense a la final del Mundial de Clubes
+-  CGTP defende que Portugal deve acolher e integrar imigrantes
+-  Why is Biden pushing for Israel’s defeat and lying about its tactics?
+-  Wike, Fubara reach agreement after meeting with Tinubu,
+-  Whitecaps move Champions Cup game to Langford due to B.C. Place scheduling conflict
+-  Jonathan Majors Out As Kang In MCU After Assault & Harassment Conviction
+-  John Kennedy reforça destino iluminado e faz história no Mundial de Clubes pelo Fluminense
+-  Tidligere FCM-spids stråler i La Liga-sensations sikre sejr
+-  Tidligere FCM-spids stråler i La Liga-sensations sikre sejr
+-  Igrači i navijači Zrinjskog se opraštaju od tribine 'Stajanje'
+-  Crossover com Spawn mostra o apelido do Superman fora do Universo DC
+-  HRW: Izrael koristi glad kao oružje protiv Palestinaca
+-  Quem é a deputada que teria ajudado a milícia de Zinho?
