@@ -1,51 +1,51 @@
 # Latest News
+-  MAKI Nilai Firli Bahuri Tak Bisa Bawa Dokumen Penyidikan KPK untuk Kepentingan Pribadi di Praperadilan
+-  Seahawks vs. Eagles odds, line, spread: Monday Night Football picks, predictions from model on 176-129 run
+-  Mladík šokoval ľudí tým, čo zjedol: Z tejto špeciality sa vám obráti žalúdok
+-  Winterpause auf Baustelle bei Breitendiel
+-  Pfarrer Karl-Josef Kraus ist verstorben
+-  Wer kennt diesen Hinterhof?
+-  Horoskop: Magie zu Silvester – für diese Sternzeichen erfüllt sich schon bald ein Wunsch
+-  Schaafheimern bleiben Steuererhöhungen erspart
+-  Kreative Kinderbücher zum Thema Tierleben
+-  ( 100 jordan ) في المدينة الوردية ( البترا )
+-  الجيش الأردني : استمرار الاشتباكات على الحدود وضبط صواريخ روكيت و(آر بي جي)
+-  جيش الاحتلال يعترف بمصرع جنديين جديدين بغزة
+-  ما علاقة الإحساس بالجوع الدائم والنوم
+-  'Baldur's Gate 3': How to Move Bookcase in the Cellar and Get the Treasure Inside
+-  Traders and residents hit out at 'inconvenient' crossing plans
+-  Türkiye’ye getirilen Gazzeli sevinçten secdeye kapandı
+-  Cumhurbaşkanı Erdoğan ve Macaristan Başbakanı Orban'dan ortak basın toplantısı
+-  Gazze’de can kaybı 19 bin 453’e yükseldi
+-  Ece Ronay adli kontrol talebiyle hakimliğe sevk edildi
+-  AB, X’e resmi soruşturma başlattı
+-  Petrol devi BP, Kızıldeniz’deki petrol sevkiyatlarını durdurduğunu açıkladı
+-  İYİ Partili Zorlu: Partimize yönelik planlı bir saldırı var
+-  AB'den Rusya'ya yeni yaptırımlar
+-  Ancelotti, Arda Gülerin forma giyeceği tarihi açıkladı!
+-  Raffi Ahmad Buka Bisnis Baru di Gunungkidul, akan Jadi Beach Club Terbesar
+-  IGATSES KOOLISKÄIMIST: röövitud Alex jõudis tagasi kodumaale
+-  Yerinde Dönüşüm projesine başvurular 250 bini aştı
+-  العصبة الإحترافية تبرمج مؤجلات البطولة
+-  US Military Action Against Houthis May 'Expand War' in Yemen
+-  Orbán Viktor: „A nagy terv az az, hogy a törökök meg a magyarok együtt lesznek győztesek a 21. században” – Egy „jó üzlet” már meg is köttetett – fotó
+-  Гулжигит Алыкулов примет участие в Кубке Азии в составе сборной Кыргызстана
+-  Три клуба первой лиги оповестили, когда выйдут из отпуска
+-  У БАТЭ новый генеральный директор
+-  "Кяпаз" двух белорусов завершил выступление в Кубке Азербайджана
+-  "Штурм" — "Слован" и другие стыковые пары 1/16 финала в Лиге конференций
+-  وزارة الصحة الليبية تبحث جلب أطباء أتراك لإجراء جراحات دقيقة ومتخصصة
+-  Mer än var fjärde ung man saknar någon att prata med
+-  This is the most absurd blend of retro-futuristic looks and server grade hardware that I've ever seen, and it's all in a laptop, and I want one badly
+-  Stručno obrazovanje doprinosi ekonomskom razvoju države
+-  With missed game, Tyreek Hill falls behind Calvin Johnson's receiving yardage record pace
+-  מכבי חיפה פרסמה את מתווה המועדון להקצאת כרטיסים למשחקי הבית
+-  Nach Hamas-Angriff auf Israel: Fast die Hälfte der jüdischen Schüler in Berlin blieb zeitweise aus Angst zu Hause
+-  Zimsko izdanje Street Food festivala stiže na Vračar od 22. do 24. decembra
+-  Esquadrão Suicida: Mate a Liga da Justiça tem detalhes de sua história vazados
 -  PM Narendra Modi lays foundation stone and dedicates to nation multiple development projects worth over Rs 19,150 crores in Varanasi, Uttar Pradesh
 -  영국에서 성폭행범→스페인에서 인생역전?... 바르셀로나 예의 주시
--  The Metaverse Company Sale and the Future of Virtual Worlds
--  Powerful gusts over 100 kilometres per hour, steady rain projected to hit East Coast
--  ¿Yahaira Plasencia no le tiene fe a su relación con Jair Mendoza?: “Y si estoy sola bienvenido sea” (VIDEO)
--  Falleció la profesora zuliana Esther Macías Áñez, exviceministra de comunicación e información
--  Leichtathletik: 2023 fallen drei Kreisrekorde
--  বিএনপি-জামায়াতের ষড়যন্ত্রকে কঠোরভাবে দমনের আহবান
--  Sportler-Wahl mit Stress und Emotionen
--  VIDEO: La Iglesia denuncia que Israel mató “a sangre fría” a dos feligresas en Gaza
--  Guía para favorecer la inclusión digital en las zonas desfavorecidas
--  Herd mit Pfoten eingeschaltet: Katze löst Brand aus
--  देश की खबरें | झारखंड : विधानसभा समिति ने मुख्यमंत्री के वेतन में 25 प्रतिशत बढ़ोतरी की सिफारिश की
--  టీడీపీ కార్యాలయంలో సెమీ క్రిస్మస్‌ వేడుకలు
--  Poruka knjige „Zavet i Megalopolis”
--  Сделката на Adobe за придобиването на Figma пропадна
--  Govt releases Rs 1 billion for temporary housing construction in quake-hit districts
--  Benamejí celebrará su primera Fashion Week en la primavera de 2024
--  Cool Lime’a ceza!
--  Bullshitomètre : "Le scénario boucle d'or est en bonne voie en 2024 !" – 18/12
--  El calendario de Chivas para el Clasura 2024 de la Liga BBVA MX
--  MF: w listopadzie sprzedano obligacje oszczędnościowe o wartości ponad 3,6 mld zł
--  Czeski multimiliarder kupuje w Polsce
--  UE przyjęła 12. pakiet sankcji przeciwko Rosji. Zakazano m.in. importu diamentów
--  Dégradations, déjections... Les habitants d'une résidence de Toulon déplorent des nuisances
--  Chainsaw Man is getting an anime movie set after the first season
--  Detienen a mujer por mantener en pésimas condiciones a su perrita Canela
--  মেসির স্মৃতিতে অমলিন হয়ে থাকবে ‘১৮/১২’
--  Greece set to give migrants three-year permits to tackle labour shortage
--  الملا يهنئ الرئيس: ثقة مستحقة من الشعب عبر الانتخابات بحضور مكثف وفريد
--  رئيس جهاز التنظيم والإدارة يهنىء الرئيس السيسي بفوزه بفترة جديدة
--  محافظ القاهرة يهنئ السيسي بفوزه في الانتخابات الرئاسية
--  وزير الدفاع الأمريكي: نقوم بما يلزم لحماية الملاحة البحرية في البحر الأحمر
--  فيديو| "وصلتم متأخرين".. المقاومة الفلسطينية ترد على الاحتلال بشأن اكتشاف نفق بغزة
--  العراق: انتهاء عملية الاقتراع في انتخابات مجالس المحافظات
--  Becker legt gegen Kyrgios nach: „Einfach mal danke sagen“
--  సెంటు భూమి ఆక్రమించినా స్వాధీనం చేసుకోవచ్చు
--  Arequipa: Hallan cuerpo de transportista que desapareció tras robo de cargamento de pescado
--  Devič kao ostrvo slobode
--  Prigozhin Supporters Call to Name St. Petersburg Street in His Honor
--  Menores infractores del Centro Sierra Morena colaboran en una iniciativa solidaria
--  Streljanje na predbožični zabavi ni bilo edino, v Mehiki najmanj 20 mrtvih #video
--  Stofnvísitala botnfiska að haustlagi
--  TS NEWS: ఆన్‌లైన్ గేమ్స్‌కి బానిసై.. సెల్ఫీ వీడియోతో ఆత్మహత్య
--  Hans Rothgiesser, especialista económico: “Barreras burocráticas encarecen la vivienda”
--  Foto zeigt Pizza Kapstadt: „Das Übelste, was die Mensa je angeboten hat?“
--  La Serbie s'éloigne encore un peu plus de l'Union européenne
--  The best memes of 2023, from Pedro Pascal eating a sandwich to Gwyneth's ski trial
--  Borussia Dortmund gegen Mainz 05: Darauf kommt es an
--  Cutting Scotland’s council workforce will have ‘serious consequences’
+-  Judicial Working Group Recommends Reopening Connecticut Juvenile Training School
+-  Prima del Milan c'è l'Atalanta: la Salernitana di Pippo Inzaghi gioca alle 20:45
+-  ЕС введет санкции против "бенефициаров передачи имущества" в России
+-  Profit Sales Continue in Bitcoin: The Whale Who Was Patient for 8 Months Made Sales of 9 Million Dollars! Here's the Profit!
