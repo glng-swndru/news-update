@@ -1,11 +1,11 @@
 # Latest News
--  Bauchi Deputy Governor decorated with 2024 Armed Forces Remembrance Tag
--  Полковник ВСУ рассказал о «боевых комарах», которые атакуют россиян
--  شاهد نفق حماس الذي يدّعي الجيش الإسرائيلي أنه "الأكبر" في غزة
--  In-form Orlando Pirates rise to third in South Africa
--  Pogacar to make Giro d'Italia debut in 2024
--  Battling Man Utd hold Liverpool as Arsenal top Premier League
--  Tiger encouraged for comeback after knocking off the rust
--  Button expects Hamilton to bounce back 'with the right car'
--  Opetaia gives up IBF belt for 'life-changing' fight
--  소노 아시아쿼터 교체, 알렉스 카바노 영입[오피셜]
+-  '테스형' 소크라테스, 2024시즌도 KIA와 함께… 총액 120만달러 재계약
+-  세븐틴X나영석 PD, 새 여행 예능 1월 5일 첫 방영
+-  尹대통령, 북 ICBM에 "즉시 압도적 대응…한미일 공동대응"
+-  야구공 속에 '야바' 숨겨 밀반입…경북경찰 태국인 마약사범 47명 검거
+-  Herní monitor BenQ Zowie XL2586X přichází s novým 540Hz panelem
+-  티빙 오리지널 '이재, 곧 죽습니다', 전 세계 20개국 톱10 진입
+-  Šílený čínský notebook má 64jádrový EPYC, grafiku RTX 4080 a vodní chlazení
+-  คณะแพทยศาสตร์ มช. พร้อมคณะ เยี่ยมสวัสดีปีใหม่ พ.ศ.2567
+-  महाबोधि मंदिर परिसर में 2 महिला पुलिसकर्मियों को रील्स बनाना पड़ा महंगा, हुई निलंबित
+-  Eksperdən Xuraman Şuşalıya qəribə sual: "5-10 ilə siz də soyunub..."
