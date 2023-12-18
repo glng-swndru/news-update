@@ -1,11 +1,11 @@
 # Latest News
--  Kupjansk im Fokus - Russland schickt Verstärkung in die heiße Kampfzone
--  Deutsche Brigade in Litauen soll bis 2027 voll einsatzfähig sein
--  Neue SPD-Begehrlichkeiten: Klingbeil will Pendler entlasten
--  Ticaret Bakanlığı: 2023 yılında 114 milyon TL ceza kesildi
--  Магазин без продавач работи в провадийско село
--  Kenia-Schilling festigt sich bei dünnem Handel, Rücküberweisungen dürften Auftrieb geben
--  Keniaanse shilling verstevigt in dunne handel, overmakingen zullen naar verwachting een boost geven
--  Đoković uvećava rekord
--  Strednú školu v Bratislave museli evakuovať: Zasahujú všetky záchranné zložky! Čo sa deje?
--  Христо Стефанов е назначен за заместник-министър на вътрешните работи
+-  Πρόπτωση πυελικών οργάνων
+-  Chevrolet tries to cut into Causeway bus lane, gets bumper smashed by huge truck
+-  Achtung bei Weihnachtsfeiern: beliebte Süßigkeit zurückgerufen – es drohen innere Blutungen
+-  News24 Business | Kempton Park ponzi scheme: Financial watchdog hits 'advisor' with R143m fine
+-  Anzeige – Weihnachtlicher Postcode Lotterie-Wahnsinn in Wesel: Katarina Witt verteilt 1,4 Millionen Euro an 578 Glückspilze
+-  5 Safest Cars in 2023 : 'या' भारतातील 5 सर्वात सुरक्षित कार; तुम्ही कोणती कार खरेदी कराल?
+-  NHRC Registers Case On Degradation Of Jagannath Sagar In Odisha’s Jeypore
+-  N1 komentar: Habijan još nije ni postao ministar, a već ga očekuje značajan problem
+-  Karachi Building Collapse: Cylinder Blast in Machar Colony, 2 Dead, 8 Injured
+-  Preço do combustível volta a descer na Madeira
