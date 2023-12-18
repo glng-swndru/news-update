@@ -1,51 +1,51 @@
 # Latest News
--  Han Kun LLP Opens in New York City to Offer Legal Services
--  Reaching New Heights! VIVOTEK Climbs Five Spots to No. 12 in Global Security 50 Ranking
--  GomSpace enters into Joint Venture with French company Ellipse Partners SAS
--  ShangHai Honourable Women Entrepreneur Business Award 2023 (SHE 2023) Celebrates Outstanding Achievements of Malaysian Women Entrepreneurs
--  EcoFlow Wins TIME Best Inventions 2023 Award
--  Dialogue with China | Ecology or Economy? China Achieves Both
--  How did a seed from Yangling take root in Kazakhstan?
--  Retro Stage Launches Christmas Collection, Revisiting the Charm of Classic Fashion for the Holidays
--  Biorithm Secures $3.5 Million in Series A Funding to Advance Maternal Care Worldwide
--  BP suspends shipments through Red Sea after attacks
--  Lemin kriisikuntamenettely on loppusuoralla – Muutosneuvottelujen jälkeen henkilöstön määrä vähenee
--  EU probes X for allegedly sharing illegal content, disinformation on Israel-Hamas
--  Кметът на Варна нареди спешна проверка защо още при първата буря се налага възстановяване на бронировката на пристанище Карантината (СНИМКИ)
--  Варненските медии получиха писмо от фалшив имейл от името на пресдедателя на ОбС
--  Baileys liqueur warning issued ahead of Christmas
--  Jeste li vidjeli fotografiju Kate Middleton iz 1983. godine? Nema nikakve šanse da biste je prepoznali
--  Borges: Maduro debe cumplir el acuerdo de Barbados y liberar a los presos políticos antes de Navidad
--  Calviño afirma que la revisión del impuesto a la banca "está alineada con el acuerdo de Gobierno"
--  BRICS+ e o futuro da ordem internacional
--  तीसरी पारी में भारत को दुनिया की तीसरी बड़ी आर्थिक ताकत बनाएंगे, वाराणसी में बोले पीएम मोदी
--  Humpolec bude mít brzy novou koalici i starostu, rozhodovat se má ve středu
--  Naveen-ul-Haq banned for 20 months from ILT20 due to breach of contract
--  AKTUÁLNE V obchodoch našli NEBEZPEČNÉ mäso! Objavili v ňom infekčné BAKTŔIE: Prišlo z Poľska, ak ho máte doma, VYHOĎTE ho
--  Košičana obvinili z drogovej činnosti: Hrozí mu až 15-ročný trest
--  Česko bude na Eurovízii zastupovať speváčka Aiko. O jej víťazstve rozhodli najmä hlasy zo zahraničia
--  Kravu mali zabiť na bitúnku: Pred tragickým osudom ju zachránila deformácia! Pozrite, čo jej trčí z hlavy
--  Liptov, Tatry, Orava: Takéto sú ceny skipasov v obľúbených lyžiarskych strediskách
--  Slávna speváčka brutálne spadla z pódia: Nepríjemné zranenia a... Nezvyčajná prosba!
--  Prezident Sísí si víťazstvom vo voľbách zaistil v Egypte tretie funkčné obdobie
--  الأعلى للإعلام :السيسي أنقذ البلاد من السقوط وسيصل بها إلى بر الأمان
--  تحليل رقمي لـ5 انتخابات رئاسية| زهران يتفوق على صباحي.. و"الوفد" أخيرا.. وتصاعد المشاركة
--  غرفة القاهرة التجارية تهنئ الرئيس السيسي بعد فوزه بفترة رئاسية جديدة
--  قبرص: أول سفينة مساعدات في طريقها إلى غزة
--  حقق المركز الأخير.. عبدالسند يمامة: نقبل بنتيجة الانتخابات الرئاسية
--  Egypte: Sissi réélu sans surprise pour un troisième mandat
--  اختلط الحابل بالنابل في البرلمان.. نواب البام المشاركون في الحكومة جنباً إلى جنب مع المعارضة
--  Galette des Rois exceptionnelle du Shangri-La Paris 2024 par Maxence Barbot
--  10 atividades para aproveitar os dias de calor com as crianças
--  Řidič špatně zabrzdil auto, sjelo do náhonu. Vůz z něj museli vytáhnout hasiči
--  The INDIA Diary: Congress is key to the prospects of the alliance, anything less than 100 seats will not help
--  Egy karácsonyi partin 12 embert öltek meg Mexikóban
--  Santos tem interesse na contratação de Jorge, do Palmeiras
--  Fenerbahçe'de Edin Dzeko şoku! Antrenmanda yer almadı
--  Whindersson Nunes quebra silêncio sobre novo affair após conversas vazadas
--  Apple will pause U.S. Apple Watch sales starting December 21
--  Uitbreiding distributiecentrum Lidl aan Zwarthoofd Etten-Leur flinke stap dichterbij
--  San Nicolás llega al callejón Machado
--  찰스, 10년차 커튼업체 CEO 근황…"아들, 펜싱 청소년 국가대표"('동상이몽2')
--  “Es una gran obra”: AMLO previo a la inauguración de la presa Santa María
--  ΕΥΧΑΡΙΣΤΑ ΝΕΑ ΓΙΑ ΓΚΑΓΙΕΓΟ!
+-  Zrak danas nezdrav širom BiH: Najzagađeniji Tešanj, Bihać i Sarajevo
+-  25 दिसंबर को ही क्यों मनाया जाता है क्रिसमस डे, जानें इसके पीछे की रोचक कहानी
+-  KB5034510 Microsoft Printer Metadata Troubleshooter tool fixes the recent printer bug
+-  माइग्रेन के दर्द से राहत दिलाएंगी ये दवा, इन लोगों को मिलेगा फायदा
+-  Kast por la derrota del “A favor”: “La carrera presidencial no es un fin”
+-  Encabeza Bonilla posada en Ladrilleras Norte
+-  Rise In Covid-19 Cases: Health Ministry Advises States, UTs To Increase RT-PCR Testing
+-  Detienen a dos sujetos tras robar el niño Jesús del Belén de Sant Vicent del Raspeig: Pidieron 2 mil euros en TikTok (+Video)
+-  FDP-Mitgliederbefragung zum Verbleib in der Ampel-Koalition gestartet
+-  Overblik: Her er der flest cykeltyverier i landet
+-  Overblik: Her er der flest cykeltyverier i landet
+-  Edin Dzeko antrenmanlara çıkamadı: MR'a gidecek
+-  الفنية العسكرية تفتح باب التسجيل بالدراسات العليا بالفصل الدراسي الثاني 2023-2024
+-  Benedizioni a coppie gay, sì del Vaticano ‘ma non è matrimonio’
+-  Mayim Bialik Fired From ‘Jeopardy,’ Fans Rejoice: “I Can Finally Enjoy The Show Again”
+-  1 tinangay ni `Kabayan,’ 11K binakwit
+-  Kammeradvokat: Syrienmødre er ikke blevet forskelsbehandlet
+-  Kammeradvokat: Syrienmødre er ikke blevet forskelsbehandlet
+-  EU's miljøministre enige om pant på dåser ved grænsen
+-  هل تتجه بريطانيا إلى تغيير موقفها والمطالبة بوقف دائم لإطلاق النار في غزة؟
+-  Τέλη κυκλοφορίας: Ανακοίνωσε παράταση πληρωμής ο Θεοχάρης - «Πάμε σε πάγιο σύστημα»
+-  NOTES FROM THE BOXING UNDERGROUND: ODDS AND ENDS
+-  Tri potpisa na "Marakani"
+-  القصبي يبحث مع “الأونسيترال” تعزيز التشريعات التجارية في المملكة
+-  Lionsi uručili lijepu donaciju Dječjem domu Ivana Brlić Mažuranić u Lovranu
+-  Quaker Oats recalls granola bars and granola cereal over Salmonella concerns
+-  INTEL CORP : Bernstein vindt het aandeel niet inspirerend
+-  1000 रुपये से कम में खरीदें स्मार्ट गैजेट्स, क्रिसमस पर दें बच्चों को ये खास गिफ्ट
+-  NVIDIA CORP : Bernstein handhaaft koopadvies
+-  [ŽT] Bum! Ukrainos tankas sutraiškė okupantų pastatą (Video)
+-  [ŽT] Rusų puolimas prie Belgorodo. „Chaotiška artilerijos ugnis.“ GUR skelbia detales
+-  „Nuo 8,9 litro iki 7,8.“ Kremlius imasi alkoholikų. Yra viena problema
+-  „Kad būtų sustabdytas karas.“ Kokį sprendimą tuoj priims G7
+-  [ŽT] Iki Naujųjų metų. Okupantai gavo skubų Putino įsakymą
+-  Mokslas nustatė, kaip turėtų atrodyti idealūs vyro sėdmenys
+-  [ŽT] Čekijos ministras rėžė tiesą. Skelbiama, kaip jis pavadino Orbaną
+-  Mirė prancūzų aktorė, pirmoji apkaltinusi Depardjė seksualine prievarta. „Šventasis monstras daug sau leido filmavimo metu.“ Vyksta tyrimas
+-  U blizini ove žene liječnici su obolijevali: Sumnja se na bizarno trovanje
+-  U izraelskim operacijama na palestinskim teritorijama više od 19.0000 ubijenih
+-  العسومي: فوز الرئيس السيسي بولاية جديدة يجسد إصرار المصريين على استكمال مسيرة البناء والتنمية
+-  Gigantikus víziszörny koponyáját találták meg Angliában
+-  Court convicts suspect of shooting two brothers to death in Zwolle McDonald's
+-  PBBM pinuwesto Robinsons Land boss sa gabinete
+-  IPL 2024 Auction: IPL ऑक्शन के लिए छोड़ दिया अपने देश का मैच, वर्ल्ड कप विजेता कप्तान की जमकर खिंचाई
+-  Dursun Özbek hastaneye kaldırıldı!
+-  Trabzonspor'un İstanbulspor mesaisi bitti
+-  45 il ve 110 ilçe deprem riski altında! Türkiye'nin diri fay hattı haritası güncellendi
+-  Un descuido en la vía cobra otra víctima fatal
+-  Sports d'hiver : le ski club de Bagnères prolonge les inscriptions pour dévaler les pistes au pied du Pic du Midi
+-  Известный дом моды разорвал сотрудничество с Киркоровым за поддержку Путина
