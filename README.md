@@ -1,51 +1,51 @@
 # Latest News
--  Pressley Bill Would Classify Discriminatory Book Bans as Civil Rights Violations
--  ​Exploitation du Gaz : une séance de concertation tenue au sein du lycée Ahmet FALL
--  “Azərbaycanla sülh gündəliyinə sadiqik”
--  Gov Kefas inaugurates a committee to review LG revenue collection
--  Live WK darts | Van Veen direct in problemen tegen Hongkonger Leung
--  Aguas de Monagas instala 260 metros de tubería en la avenida Cruz Peraza
--  Rights Groups Decry Anti-Migrant Bills That Texas Governor Is Poised to Sign
--  Залужни отправи най-острите критики към Зеленски от началото на войната
--  PRIJIN BIVŠI U PRVOJ ŠETNJI SA SINOM! Pevač ne krije emocije, ponosna Katarina se odmah POHVALILA: Dirljivo! (FOTO)
--  ¿Sufres de gastritis? Con estas plantas medicinales puedes encontrar alivio
--  Live WK darts | Van Veen wordt in eerste set meteen gebroken door Leung
--  హిందీ భాష అమలులో కెనరా బ్యాంక్‌ భేష్‌
--  Karadeniz'de bir deprem daha: Gümüşhane bu kez 4,1 ile sallandı
--  Bakan Uraloğlu duyurdu: e-Devlet kullanıcı sayısı 64 milyonu aştı
--  Los divulgadores científicos deberían dejar de decirnos que el universo es vacío y la vida no tiene sentido
--  Ovaj dio Hrvatske doživljava ‘bum‘, grade luksuzne kuće na sve strane. ‘Kod nas svi žele za Novu, evo kolike su cijene‘
--  Lors de son dernier meeting électoral à Kinshasa, Félix Tshisekedi brandit des menaces contre le Rwanda
--  ‘El Purgatorio’ asusta a ‘La Cabaña’: Programa de Canal 13 superó en rating a su competencia directa
--  TikTok makes tablet & foldable experience even better with new update
--  Βαλμπουενά: «Είναι κλόουν»
--  KFOR: Maqedonia e Veriut jep kontribut kyç për sigurinë rajonale
--  Jalkapallolegenda väläyttelee totaalista shokkia Valioliigan mestaruustaistoon
--  Rituales para atraer la buena suerte en el 2024 que puedes hacer cuando celebres la Navidad
--  In pursuit of justice, productivity, under the rule of law, By Wole Soyinka
--  Judge temporarily bars removal of Confederate monument from Arlington National Cemetery
--  '테스형' 잡은 KIA, 남은 퍼즐은 '원클럽맨' 김선빈 잔류[초점]
--  Woke-anklager mot i Miss France etter at kortklippet kvinne vant konkurransen
--  Жительница Устюженского округа пустила незнакомцев попить воды, а те украли у нее деньги
--  Τελικά κατάλαβαν πως ο Νατσιός είχε δίκιο μετά τη γενική κατακραυγή που τρόμαξε – Τι έγινε με τη ροζ ελληνική σημαία
--  Harnessing nanotechnology to understand tumor behavior
--  Best Lockwood 680 loadout for Warzone Season 1
--  Először van ott a brazil csapat a klubvilágbajnokságon, rögtön döntőbe jutott
--  AFAD duyurdu: Gümüşhane'de korkutan deprem!
--  Plant metabolism proves more complicated than previously understood
--  Revolut Suspends Crypto Trading for Corporate Clients in the UK
--  Спецоперация Z: хроника главных военных событий 18 декабря
--  VIDEO: Fuerte explosión en puesto de tacos de Tijuana
--  ‘గో ఫస్ట్‌’పై స్పైస్‌జెట్‌ ఆసక్తి
--  Ödül törenine Ata Demirer damgası!
--  «Abzocke» – das halten Experten vom viralen Tiktok-Gadget
--  'World's sexiest volleyball star' dubbed 'most beautiful woman ever' in see-through bra
--  Neugodnost na ždrijebu Lige prvaka: Zaštitar zaustavio legendu koja je izgubila živce
--  ‘Zone of Interest’ wins Toronto Film Critics Association award for best film of 2023
--  İmamoğlu'ndan 'Operasyon' Tepkisi: Yanındayız!
--  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
--  Advogados brasileiros contestam fim de acordo para inscrição na Ordem sem estágio
--  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
--  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
--  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
--  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
+-  Konsulttijätti haluaa irtisanomispiikkit kuriin tekoälyllä – Vaikutuksia myös rekrytointiin
+-  Podcast Historias Macabras: La mandó a matar pensando que era bruja
+-  Tom Brady's personal photo ends up in ANOTHER family's CVS order during hilarious mix-up - as NFL legend jokingly blames his mom
+-  إنتاج أول صورة ذهنية في العالم
+-  "מסר ברור לחמאס": לוחמי גולני השמידו את הכיכר שמפאר את אסון הנגמ"ש:
+-  Actor Jonathan Majors guilty of assault, harassment
+-  Những cây trồng chủ lực trong xuất khẩu được Đắk Lắk lựa chọn
+-  Từ chip nguồn đến giấc mơ bán dẫn của FPT
+-  SBA: Nhà máy thủy điện Khe Diên hoàn thành kế hoạch sản lượng năm 2023
+-  Elle empoche 100.000 dollars aux enchères grâce à un vase trouvé dans une brocante | Slate.fr
+-  La méthode danoise pour lutter contre le stress de fin d'année | Slate.fr
+-  Sofonisba Anguissola, légendaire portraitiste de la Renaissance à l'héritage oublié | Slate.fr
+-  Pourrions-nous faire des bébés sur d'autres planètes? | Slate.fr
+-  Les oiseaux migrateurs ne font pas le même trajet à l'aller et au retour | Slate.fr
+-  Profession Père Noël: ils gagnent leur vie en enfilant costume et barbe blanche | Slate.fr
+-  Pourquoi certains pays mangent-ils salé au petit déjeuner et d'autres sucré? | Slate.fr
+-  L'étrange boucle psychologique qui pousse les gens à faire la queue en avance à l'aéroport | Slate.fr
+-  BM’de Gazze krizi! Oturum ertelendi
+-  We're CAMPING in Antarctica - here are the things we do and don't do while we are living here
+-  Taylor Swift fan claims she was 'harassed and audibly booed' at Gillette Stadium for wearing jacket with pop star on it during Chiefs-Patriots game
+-  إنفوجرافيك: أطعمة تجعلك أصغر سنا
+-  Gümüşhane’de deprem!
+-  Cruz Azul: Las primeras palabras de Martín Anselmi a su llegada a México
+-  Sorteggi Champions, incredibile Zanetti: la sicurezza lo blocca all'entrata!
+-  Comunitate etnică din Muntenia care s-a dat drept parte a altui popor pentru a scăpa de furia otomanilor
+-  Projet de loi immigration: la commission mixte paritaire réunie à l'Assemblée nationale
+-  LES ÉCLAIREURS - Immigration régulière: des prestations sociales durcies
+-  Projet de loi immigration: "On n'est pas face à un compromis, on est face à une capitulation de la majorité", estime la députée écologiste Cyrielle Chatelain
+-  Loi immigration: "Les négociations ont bien avancé (...) je reste très optimiste", assure Yaël Braun-Pivet
+-  Mathilde Panot (LFI) sur la suspension de la commission mixte paritaire: "On assiste véritablement à une mascarade"
+-  Projet de loi immigration: "Ça va être une négociation difficile, mais qui est nécessaire", pour Benjamin Haddad (Renaissance)
+-  Projet de loi immigration: "L'essentiel est qu'à la fin on ait un texte qui soit fidèle à nos convictions et utile pour le pays", affirme Othman Nasrou (LR)
+-  Suspension de la commission mixte paritaire sur la loi immigration: "Il y a de la théâtralisation", pour Richard Ramos (député MoDem)
+-  Paris: protestation en cours contre le projet de loi immigration
+-  Loi immigration: Borne s'engage à réformer l'aide médicale d'État "au début de l'année 2024"
+-  Projet de loi immigration: la commission mixte paritaire suspendue
+-  Projet de loi immigration: Yoann Gillet (RN) qualifie les discussions en commission mixte paritaire de "tambouille politique"
+-  Caso EDP: Inspetor tributário realça pagamentos a Manuel Pinho nos ficheiros do GES
+-  Macaristan Başbakanı Orban'dan nükteli paylaşım: '1 beygir verdim, karşılığında 435 beygir gücü aldım'
+-  GQ Türkiye 'Men of The Year' ödülleri sahiplerini buldu! İlkin Aydın'dan törene damga vuran konuşma
+-  Gümüşhane'de korkutan deprem!
+-  Doanh nhân Ngô Nhật Phương: 'Tôi chỉ làm những thứ người khác không làm'
+-  Armeesprecher wirft Hisbollah 'stetige Eskalation' an Grenze vor
+-  Votarán mañana consejerías de Ichitaip, magistraturas y presupuesto 2024
+-  Buscan a 4 más por el homicidio de activistas
+-  Queen Silvia of Sweden is joined by her eight grandchildren as they pick this year's Christmas tree for the palace in annual family tradition
+-  Condenan a prisión al fundador de los camiones eléctricos Nikola por mentir a inversores
+-  Passengers could get $75 for delays under Southwest settlement
+-  I’ve watched dozens of cheesy holiday rom-coms this year. Here are 5 good ones
+-  Jeep can be transformed into apocalypse-ready off-roader with six wheels… but with surprisingly luxurious interior
