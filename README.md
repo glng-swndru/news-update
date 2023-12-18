@@ -1,51 +1,51 @@
 # Latest News
--  Catholic mental health professionals forge network
--  Taraba privítal dohodu členských krajín Európskej únie o znižovaní odpadov z obalov
--  तीर्थनगरी सोरोंजी में मेला मार्गशीष: पर्यटन विभाग ने लगवाई परिक्रमा मार्ग के चारों ओर लाइटें, ऐसी है तैयारी
--  Paşinyan Azərbaycanla sülh prosesini bilərəkdən ləngitdiyini istisna etməyib
--  Venezolana lideraba red de tráfico de personas en EEUU
--  Bareilly News: हवा की बदली दिशा, दो डिग्री चढ़ा रात का पारा
--  يزبك: نعيش إرهاصات ننتظرها بعدما ملأ الفساد والظلم العالم
--  Παναθηναϊκός: Φωταγωγήθηκε το δέντρο στο «Christmas Castle του ΟΑΚΑ με παίκτες του «τριφυλλιού»
--  Noem me een linkse woketrut, maar ik verafschuw de kortzichtige houding rond vluchtelingen
--  Quedan 3 días para pago de aguinaldos
--  Mamićev sin spreman se nagoditi s USKOK-om? U pitanju je više od 11 milijuna eura
--  Jhajjar-Bahadurgarh News: मामा-भांजे ने कार में लिफ्ट लेकर की थी प्रवीण की हत्या
--  आई रैड : खरोंचों की भी होगी निगरानी, तय होंगे ब्लैक स्पॉट
--  Cacique Mara pasó invicto a la Final Nacional Júnior de Pequeñas Ligas
--  Com muita festa, torcida do Fluminense celebra classificação na Casa das Laranjeiras
--  Amroha News: सीएमओ आवास में तोड़फोड़ करने के मामले में जांच कमेटी गठित
--  Bareilly News: आग के मुहाने पर शहर के 139 अस्पताल
--  दिल्ली सरकार महिलाओं के लिए झज्जर तक फ्री ई-बसें चलाएगी : ढांडा
--  Един от българските моряци на "Руен" е приет в болница
--  Sabanci Renewables Closes Financing with Advantage Capital for Cutlass Solar II Project
--  Един от българските моряци на „Руен” е приет в болница
--  STAT+: Biden administration asks judge to toss out Humana’s Medicare Advantage audit lawsuit
--  Navidad 2023: estos son los 50 mejores mensajes que puedes enviar a tus familiares y amigos por Whatsapp
--  가자 보건부 "팔레스타인 누적 사망자 2만 명 육박"
--  [ŽT] „Senokai ten nebuvau. Vertinu kaip karą.“ Zalužnas apie pasiklausymą (Video)
--  Buvęs „Wagner“ instruktorius reikalauja teismo Hagoje. Kas vyksta
--  وداعا للأكزيما؟!.. اكتشاف السبب الرئيسي للحكة
--  منخفض يقترب من الأردن مع بداية المربعانية
--  Reniec inicia investigación contra funcionarios implicados en presunta mafia
--  كيربي: لم نصل بعد لصفقة محتجزين أخرى وشيكة
--  एकेटीयू : एमआईईटी मेरठ के मोहसिन को चांसलर मेडल
--  Amroha News: पति की मौत के बाद धोखाधड़ी कर संपत्ति हड़पी, देवर समेत चार पर एफआईआर के आदेश
--  Maioria dos brasileiros apoia exploração de petróleo em águas ultraprofundas do Amapá, aponta pesquisa
--  LightStream Personal Loans Review 2024
--  Ottawa triathlete wins access to U.S. clinical trial for advanced pancreatic cancer
--  Se cumple un año de la tercera Copa Mundial de Argentina en Qatar 2022
--  Escándalo por presunto abuso sexual en Cali: secretario de Cultura renunció al cargo
--  Trump Mixes Grievance Politics With Bread-and-Butter G.O.P. Issues
--  החוקר של אלוביץ' העיד בתיק 4000: "היינו רוצים שהוא יהיה עד מדינה נגד רה"מ"
--  В Дагестане предложили избавиться от «болгарского» названия бульвара в Махачкале
--  Sambhal News: भाकियू असली ने मांगों को लेकर डीसीओ कार्यालय पर की तालाबंदी
--  Amroha News: पिता की डांट से क्षुब्ध किशोर ने फंदा लगाकर दी जान
--  Rantaradan liikenteessä häiriö, Turun junat korvataan linja-autoilla Karjaan ja Siuntion välillä
--  Herec Charlie Sheen je už takmer 6 rokov triezvy: Môže za to srdcervúci incident s dcérou
--  Srbské voľby údajne poznačili nerovný boj a prítomnosť Vučiča v kampani
--  Havel je symbolom návratu k demokracii, mal podľa prezidenta Pavla nadhľad a načúval druhým
--  Vyskúšajte úžasný recept na sviatočný nápoj: Krémový pomarančový likér nebude mať konkurenciu!
--  Silné zemetrasenie na severozápade Číny: Doposiaľ si vyžiadalo 8 obetí
--  Lula retoma reuniões da Granja do Torto, onde jogava futebol com aliados no primeiro mandato
--  Conmebol divulga novo ranking, e Palmeiras e São Paulo serão cabeças de chave na Libertadores
+-  Pressley Bill Would Classify Discriminatory Book Bans as Civil Rights Violations
+-  ​Exploitation du Gaz : une séance de concertation tenue au sein du lycée Ahmet FALL
+-  “Azərbaycanla sülh gündəliyinə sadiqik”
+-  Gov Kefas inaugurates a committee to review LG revenue collection
+-  Live WK darts | Van Veen direct in problemen tegen Hongkonger Leung
+-  Aguas de Monagas instala 260 metros de tubería en la avenida Cruz Peraza
+-  Rights Groups Decry Anti-Migrant Bills That Texas Governor Is Poised to Sign
+-  Залужни отправи най-острите критики към Зеленски от началото на войната
+-  PRIJIN BIVŠI U PRVOJ ŠETNJI SA SINOM! Pevač ne krije emocije, ponosna Katarina se odmah POHVALILA: Dirljivo! (FOTO)
+-  ¿Sufres de gastritis? Con estas plantas medicinales puedes encontrar alivio
+-  Live WK darts | Van Veen wordt in eerste set meteen gebroken door Leung
+-  హిందీ భాష అమలులో కెనరా బ్యాంక్‌ భేష్‌
+-  Karadeniz'de bir deprem daha: Gümüşhane bu kez 4,1 ile sallandı
+-  Bakan Uraloğlu duyurdu: e-Devlet kullanıcı sayısı 64 milyonu aştı
+-  Los divulgadores científicos deberían dejar de decirnos que el universo es vacío y la vida no tiene sentido
+-  Ovaj dio Hrvatske doživljava ‘bum‘, grade luksuzne kuće na sve strane. ‘Kod nas svi žele za Novu, evo kolike su cijene‘
+-  Lors de son dernier meeting électoral à Kinshasa, Félix Tshisekedi brandit des menaces contre le Rwanda
+-  ‘El Purgatorio’ asusta a ‘La Cabaña’: Programa de Canal 13 superó en rating a su competencia directa
+-  TikTok makes tablet & foldable experience even better with new update
+-  Βαλμπουενά: «Είναι κλόουν»
+-  KFOR: Maqedonia e Veriut jep kontribut kyç për sigurinë rajonale
+-  Jalkapallolegenda väläyttelee totaalista shokkia Valioliigan mestaruustaistoon
+-  Rituales para atraer la buena suerte en el 2024 que puedes hacer cuando celebres la Navidad
+-  In pursuit of justice, productivity, under the rule of law, By Wole Soyinka
+-  Judge temporarily bars removal of Confederate monument from Arlington National Cemetery
+-  '테스형' 잡은 KIA, 남은 퍼즐은 '원클럽맨' 김선빈 잔류[초점]
+-  Woke-anklager mot i Miss France etter at kortklippet kvinne vant konkurransen
+-  Жительница Устюженского округа пустила незнакомцев попить воды, а те украли у нее деньги
+-  Τελικά κατάλαβαν πως ο Νατσιός είχε δίκιο μετά τη γενική κατακραυγή που τρόμαξε – Τι έγινε με τη ροζ ελληνική σημαία
+-  Harnessing nanotechnology to understand tumor behavior
+-  Best Lockwood 680 loadout for Warzone Season 1
+-  Először van ott a brazil csapat a klubvilágbajnokságon, rögtön döntőbe jutott
+-  AFAD duyurdu: Gümüşhane'de korkutan deprem!
+-  Plant metabolism proves more complicated than previously understood
+-  Revolut Suspends Crypto Trading for Corporate Clients in the UK
+-  Спецоперация Z: хроника главных военных событий 18 декабря
+-  VIDEO: Fuerte explosión en puesto de tacos de Tijuana
+-  ‘గో ఫస్ట్‌’పై స్పైస్‌జెట్‌ ఆసక్తి
+-  Ödül törenine Ata Demirer damgası!
+-  «Abzocke» – das halten Experten vom viralen Tiktok-Gadget
+-  'World's sexiest volleyball star' dubbed 'most beautiful woman ever' in see-through bra
+-  Neugodnost na ždrijebu Lige prvaka: Zaštitar zaustavio legendu koja je izgubila živce
+-  ‘Zone of Interest’ wins Toronto Film Critics Association award for best film of 2023
+-  İmamoğlu'ndan 'Operasyon' Tepkisi: Yanındayız!
+-  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
+-  Advogados brasileiros contestam fim de acordo para inscrição na Ordem sem estágio
+-  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
+-  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
+-  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
+-  'Zone of Interest' wins Toronto Film Critics Association award for best film of 2023
