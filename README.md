@@ -1,11 +1,11 @@
 # Latest News
--  FC Barcelona on päätöksensä tehnyt - superlupaukselle haetaan korvaajaa
--  Red Bull-tallissa kuohuu isosti - pomot valtataistelussa keskenään
--  Counter-terror police arrest two men after ULEZ camera blown up with IED
--  'Honkai: Star Rail' Version 1.6 Release Date, Ruan Mei and Dr. Ratio Banners, and Events
--  Gobierno da detalles de las actividades y agenda para la Transmisión de Mando Presidencial 2024
--  Pentagon: rozmawiamy z Izraelem o przyszłości Strefy Gazy i koncepcji utworzenia państwa palestyńskiego
--  DNA Exclusive: Dawood Ibrahim Poisoned? Who Is Targeting India`s Enemies In Pakistan?
--  MOP Te Asiste ha brindado 938 servicios en lo que va del Plan Fin de Año
--  China, North Korea hold high-level meeting amid missile launches
--  Cambridge varsity college names Nigerian professor seventh president
+-  Clausuran 4 establecimientos el fin de semana
+-  No tenemos plurinominales porque ganaremos en tierra: PAN
+-  وزارة الداخلية بحكومة الوحدة الوطنية تحتفل بيوم الشرطة العربية.
+-  باثيلي يكشف أمام مجلس الأمن موقف وشروط الأطراف الليبية للمشاركة في الاجتماع الخماسي
+-  السني يؤكد أن ملكية الليبيين وقيادتهم لأي عملية سياسية هي مفتاح الحل الذي يقود البلاد إلى الاستقرار.
+-  باثيلي: لا يجب السماح للمسؤولين غير الراغبين في إجراء الانتخابات بخذلان الليبيين وتعريض المنطقة لخطر
+-  المبعوث الأممي: سياسيون وأكاديميون وناشطون يقبعون في الاحتجاز التعسفي في بنغازي وسرت وطرابلس
+-  باثيلي: الليبيون يعانون صعوبات اقتصادية واجتماعية متزايدة رغم ثروة بلادهم الهائلة
+-  EU usvojila 12. paket sankcija Rusiji
+-  „Tai stulbinanti Amerikos užsienio politikos nesėkmė.“ Ukraina patyrė siaubingą savaitę
