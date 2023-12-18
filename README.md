@@ -1,51 +1,51 @@
 # Latest News
--  US Congress passes landmark law to criminally prosecute corrupt foreign leaders
--  Key CSOs concerned about lack of progress on anti-corruption towards economic recovery
--  Presidential stakes hot up
--  بلومبيرغ: تأييد بايدن بأدنى مستوى له على الإطلاق
--  Nijerya'dan Süper Lig'in 5 ismine davet
--  Ünlü oyuncu Burak Özçivit'ten Gazze mesajı: Çocukların katledildiği dünyayı kabul etmiyorum
--  Fiyat etiketi yönetmeliğinde değişiklik
--  Bakan Yumaklı: Tarımsal Gayri Safi Yurtiçi Hasıla bakımından Avrupa'da lideriz
--  Başkan Erdoğan'dan Macaristan ziyaretine ilişkin paylaşım
--  A woman is renovating a rundown Brooklyn brownstone that's been in her family for nearly 100 years
--  Φωτιά σε διαμέρισμα στον Άλιμο – Απεγκλωβίστηκε ηλικιωμένη
--  Trump claims free speech in latest bid to toss Georgia election case
--  Tencent closes shop on Team Kaiju
--  సింగరేణిలో స్థానికులకే ఉద్యోగాలివ్వాలి: వివేక్‌
--  Como os Casinos Alavancam Big Data para uma Vantagem Competitiva
--  F1-asiantuntijalta todella tylyä tekstiä Valtteri Bottaksen tiimistä - "Olen aina miettinyt"
--  Kompromitacja prezesa polskiego klubu. W końcu przemówił
--  Some student-loan borrowers now have 4 extra months to benefit from one of Biden's debt relief plans — but they need to take action
--  ఇదంతా మంత్రి దామోదర కుట్రే: క్రాంతికిరణ్‌
--  ప్రభుత్వ ఫలాలను వినియోగించుకోవాలి
--  클린스만, ‘2023년 핫한 K리거’ 써볼 기회 스스로 버렸다
--  5 horoskopkih znakova u 2024. sustiže sudbina i saznanje šta je to istinska ljubav
--  [오늘날씨] 강추위 계속… 오후 중부지방 중심 눈
--  జీవన్‌రెడ్డీ.. అవగాహన లేకుండా మాట్లాడొద్దు
--  باتيلي: ليبيا تمتلك إطاراً قانونياً ودستورياً لإجراء الانتخابات
--  ACP entrega aportes directos al Tesoro Nacional por 2,544,594,162 millones de dólares
--  Encuentran un arma de fuego y 5 municiones en Bethania
--  Pepu Hernández: "Tras mi primera charla en la selección, los jugadores pensaron: '¿Qué está contando el barbas?'"
--  سكرتير عام الإسماعيلية يوجه بالاستعداد الأمثل لمواجهة الأزمات والكوارث
--  Nach Kriegs-Kritik: Russland listet Schriftsteller Boris Akunin als „Terrorist“
--  Soaring attacks on US forces and others in the Middle East demand firm response to send a message, former top commander says
--  KNVB gaat WK in Saudi-Arabië niet boycotten, maar is wel 'teleurgesteld'
--  ‘La Brea’ Season 3 Trailer: First Look At The Final Journey & A Determination To Get Everyone Home
--  بالصور- من داخل سيارتخها الفارهة..كايلي جينر تستعرض رشاقة جسمها بلوك رياضي أسود
--  بالصور- بالأسود والأبيض..بسنت شوقي تتألأق بفستان بغاية الأناقة
--  في المرتبة الرابعة..إليكم ما حققه أكرم حسني في فيلمه "العميل صفر" يوم أمس
--  Ximena Capristo contó cómo fue su separación de Gustavo Conti
--  Tennis : Federer, Nadal... Tsonga balance sur Djokovic
--  Karl Olive (Renaissance) sur la commission mixte paritaire chargée de trouver un accord sur la loi immigration: "On a spectacle pitoyable qui se présente encore [aux Français]"
--  مودريتش يحصد جائزة جديدة
--  Denuncian ataque a miembros de la comunidad Wayuu en La Guajira
--  Rummy Olivo presenta su nuevo tema inspirada en su gira
--  Appeals court says Mark Meadows can’t move Georgia election case charges to federal court
--  KTR : ‘ఎక్స్‌’ వేదికగా భార్యకు కేటీఆర్‌ పెళ్లి రోజు శుభాకాంక్షలు
--  భూ హక్కుల చట్టాన్ని వెనక్కు తీసుకోవాలి
--  La Triestina compie 105 anni, il patron Rosenzweig: "Non ci arrendiamo di fronte alle avversità"
--  حسن مصطفى: «الأنانية» أضاعت الأهلي أمام فلومينينسي
--  Jonathan Majors Fired By Disney/Marvel Studios After Assault Guilty Verdict; Actor Had Played Kang The Conqueror
--  Snabb tillväxt slår mot den anställdes välbefinnande
--  Este martes 19 de diciembre no habrá cortes de energía eléctrica en Ecuador
+-  DMM İsrail'in "Filistinliler görüntü kurguluyor" iddiası yalanlandı
+-  Cumhurbaşkanı Erdoğan Macaristan'dan ayrıldı
+-  Atalanta, ikinci devrede 3 puanı aldı!
+-  "자신 위한 틈새 시장 개척" KIA와 재계약한 소크라테스, 美 현지의 긍정적 평가
+-  '투타니'는 임시 휴업 '타타니' 풀타임 개점…2024시즌 한 번에 4개 역사 쓸 수 있다.
+-  ఒకేసారి చంపేయండి!
+-  చుక్కచుక్కనూ ఒడిసిపట్టండి!
+-  NASA finds ‘life-sparking energy source’ on Saturn moon Enceladus
+-  Treća pobjeda u nizu za Atalantu, zabio i Pašalić!
+-  Possível redução no orçamento de 2024 faz reitores pressionarem Congresso
+-  (ВИДЕО) Расим Љајиќ како рокенрол ѕвезда: Скокна во толпата и го најави Истанбул во Пазар
+-  పోలీసు పహరాలో ఫాం-7లపై విచారణపోలీసు పహరాలో ఫాం-7లపై విచారణ
+-  Parliament : అసాధారణరీతిలో ఒకే రోజు.. 78 మంది ఎంపీల సస్పెన్షన్‌
+-  Aussie Endycott regains PGA Tour card at Q-school
+-  Kelowna nurse who met stem cell donor encourages others to consider ‘gift of life’
+-  సోమిరెడ్డి శిబిరంపైకి హిజ్రాల దండు
+-  A Psychologist Explains The Appeal Of ‘Mind Upload’ Technology
+-  هل يمكن استقدام العمالة المنزلية مباشرة عبر منصة مساند؟
+-  Noua față a marilor monumente istorice restaurate în România stânește ironii și controverse VIDEO
+-  Nature Wood Group Limited Announces First Half 2023 Unaudited Financial Results
+-  Германия — Lufthansa требует 740 000 евро компенсации от «Letzte Generation»
+-  Desaparece parralense en Ciudad Juárez
+-  Exponen funciones de la Guardia Nacional
+-  Ahora construyen muro de concreto
+-  Clemens-Gegner bei Darts-WM: Leung überrascht gegen van Veen
+-  నేను పోటీ చేస్తున్నా
+-  La primera lista de Quique: sólo cuenta con 13 jugadores del primer equipo
+-  Impensado hallazgo: descubren una tabla medieval y quedan estupefactos al descifrar el mensaje tallado
+-  Путин продлил разрешение бизнесу не учитывать голоса недружественных акционеров
+-  Bahía Blanca: el estremecedor relato de una mujer que estaba con su hija en el club de Bahía Blanca donde ocurrió la tragedia
+-  చరిత్రలో నిలిచేలా!
+-  הקדיש העצוב של האבא: לידור יוסף קרואני הובא למנוחות
+-  You have until this day if you want to buy the newest Apple Watch
+-  United Defense Tactical Ends 2023 with Expansion Plans
+-  You have until this day if you want to buy the newest Apple Watch
+-  Ante queja de usuarios por cobros, Japama aclara que no ha hecho recargos al recibo de agua: Gerente
+-  The 5 best wine clubs of 2023, tested and reviewed
+-  BMGK'da Gazze anlaşmazlığı
+-  İngilzi devi, Galatasaray'ın kapısını o yıldız isim için çalacak
+-  Resmi Gazete'de yayımlandı: Fiyat etiketlerinde yeni dönem!
+-  Başkan Acun Ilıcalı'dan Hull City'e müjde
+-  Don't Let Athletes' Families Miss Out At Paris Olympics, Says Coe
+-  SMIU to organise 2nd Global Research Congress-24 on Feb 28, 29
+-  התאוששה: בני הרצליה ניצחה 90:101 את הפועל חיפה
+-  א.ס. רמת השרון נותרה מושלמת עם 24:35 על בני הרצליה
+-  ישראל לארה"ב: דורשים הרחקה של חיזבאללה 10 קילומטרים מהגבול
+-  Jorge Serrano vinculado a uno de los equipos finalistas
+-  Marvel Star Jonathan Majors Found Guilty of Reckless Assault
+-  Bakan Yumaklı duyurdu: Gıda denetimi 1 milyon 215 bine ulaştı
+-  Üyeler arasında anlaşma sağlanamadı: BMGK'de Gazze karar tasarısı oylaması ertelendi
