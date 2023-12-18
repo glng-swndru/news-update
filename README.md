@@ -1,51 +1,11 @@
 # Latest News
--  황정민 광주서 뜨거운 눈물, 43년 기다린 ‘서울의 봄’ 900만 돌파 “천만 카운트다운”[MD픽]
--  '탐욕 CR7'과 다른 '월클 CB', 리더의 냄새가 난다! "GK와 수비 라인 덕분에 POM 받았어"
--  디지털 사각지대 해소에 힘쓰는 카카오, '어르신을 위한 개인정보보호 안내서' 발간
--  진화하는 토스뱅크, 모임통장에 자동납부·이체 기능 추가
--  쿠폰 할인으로 최대 1536만원 아꼈다...NHN페이코, 2023 연말 결산 리포트 공개
--  샌드박스네트워크, 2025년 상장 목표...상장 주관사로 삼성증권 선정
--  네이버클라우드·화우·뱅크드인, 전금법 대비 선불업 등록 올인원 서비스 제공
--  토스플레이스, 결제 단말기에 '신분증 검사' 기능 도입
--  [같이사소] 연말 시상식 우리도 준비했다...쿠팡-티몬-위메프가 선보인 '2023 어워드' 눈길
--  김소영 카카오 준신위원장 "카카오 위기 원인은 카카오…준법 틀 잡겠다"
--  '붕괴: 스타레일' 신규 캐릭터 완매 등 오는 27일 업데이트
--  그라비티, 라그나로크 IP 5종서 크리스마스 시즌 이벤트 연다
--  [테크M 리포트] 저평가 LG이노텍...여의도 증권가 "이젠 담아야 한다"
--  [테크M 이슈] 카카오 혁신의 날...정신아·김소영 공통 분모는 '변화'
--  인텔, 차세대 AI 프로세서로 'AI 에브리웨어' 구현 나선다
--  넷마블문화재단, 초등학교 학부모 대상 '게임소통' 프로그램 진행
--  스마일게이트 신작 게임 '원더러스', 내달 8일 아·태 4개국 출격
--  [테크M No.5] 글로벌 IT 2023년 결산...인류의 미래를 짊어진 '5명의 혁신가'
--  [테크M No.5] 투자 빙하기에도 식지 않은 혁신 의지…'중꺽마 스타트업 No.5'
--  [카드뉴스] 안랩 X 코가로보틱스, 자율주행 로봇 시대 '사이버보안' 협력 추진
--  VR게임 '다크스워드', 글로벌 게임 플랫폼 스팀 출시
--  '서머너즈 워', 연말 이벤트 참여하면 '6성 전설 룬' 쏜다
--  "이제는 피어엑스로 불러주세요"...샌드박스 게이밍, '리브' 떼고 '포바이포' 색 입힌다
--  공부와 웹3.0의 결합...컴투스 그룹 엑스플라, '드림래더스' 파트너십
--  KT와 LG유플이 힘 싣는 가성비폰 '갤럭시 S23 FE', SKT는 쥐꼬리 지원금...왜?
--  '디지털 시민 프로젝트' 1년 어땠나…KT, 성과공유회 열고 활동 전파
--  연말 맞아 '따뜻한 손길' 전하는 게임사들..."CSR 홍보도 병행돼야"
--  펄어비스 검은사막 콜라보 웹소설, 카카오페이지 '기다무'로 본다
--  두나무 넥스트잡, 자립준비청년 대상 '빙상 스포츠 직업 탐방'
--  코어닥스, 유사코 그룹 벤처캐피탈과 1000만 달러 투자의향서 체결
--  올림플래닛, 엘리펙스로 선보인 '수원 마이스 시티' 리뉴얼
--  AI 활용성 키우는 카카오톡..."AI로 카톡 대화 요약해요"
--  "나는 SK의 자부심이다"...T1, SK구성원과 롤드컵 우승 파티 즐겼다
--  Orbán forgalmi káoszt okoz egyik diktátor cimborája kedvéért Budapesten
--  Slováci sa chcú s kvalifikáciou rozlúčiť víťazne: S Chorvátmi to bude náročné
--  سبب استبدال بيلينغهام أمام فياريال
--  مواجهات سهلة للريال والسيتي وباريس.. ومعقدة لبرشلونة
--  إعلام عبري: نطالب بصفقة الآن
--  FC Bayern: Thomas Müller mit Seitenhieb gegen Trainer Thomas Tuchel
--  Boucle du Mouhoun : Le PDIC/REDD+ lancé à Ouarkoye
--  “الموارد البشرية والتوطين” تدعو شركات القطاع الخاص إلى تحقيق مستهدفات التوطين للعام 2023 قبل 31 ديسمبر الجاري تجنباً للمساهمات المالية
--  Силен земјотрес ја погоди Индија
--  Bobo-Dioulasso : L'artiste musicienne Fortuna fait son entrée sur la scène discographique avec son album Renaissance
--  Axios: главы ЦРУ и МОССАДа проведут встречу в Польше по заложникам ХАМАС
--  “국내 보안 산업, 글로벌 표준 맞게 상호 연동성 강화해야”
--  Nuit du droit d'auteur : Le BBDA célèbre le génie et le mérite des créateurs
--  وزارة التربية والتعليم تبرم اتفاقيتين لتعزيز الحراك العلمي في مجال الاستدامة
--  افتتاح مبنى المجمع الجديد لمحاكم صويلح الشرعية
--  اسرع حل لمشكلة النسيان إلى الأبد.. ستصبح ذاكرتك أقوى 10 مرات وتزيد قدرتك على الذكاء الخارق
--  "المشروب المعجزة".. تناول كوب واحد من الحلبة على الريق يوميًا يفتت الحصى ويضبط مستوى السكر في الدم
+-  Yıldız Holding imzayı attı: Enerji verimliliğine yönelik projelerine bir yenisini daha ekledi
+-  "이래서 '절대 명가'라고 하는구나!"…홈 '64G 연속골' 넣은 클럽이 있다, 'KIM도 한몫했어! 역사의 한 페이지 장식'
+-  서장훈, 155cm·100kg 사연女에 일침 "짧게 사는 것이 꿈? 그렇게 사는게 행복하냐" [물어보살]
+-  1942 yılında Bahçekapı'da 530 bin liraya satılık arsa!
+-  «Арсенал» яна биринчи ўринга қайтди, «Реал»да яна йўқотиш. Европада кун ўйинлари.
+-  İstanbuk Park'taki kiracı firmanın süresi doldu, tahliye yapılmadı! TOSFED'den kamu zararı uyarısı geldi!
+-  OnePlus AI Music Festival Kicks Off Tech-Art Crossover On The Big Stage
+-  Veraguas gana concurso 'Las Estrellas de los Valores Meduca 2023'
+-  En la próxima nómina de enero de 2024 los canarios también cobrarán menos: estos son los cambios que encontrarás
+-  Jähes Liebes-Aus: Trennung im Hause Kardashian-Jenner
