@@ -1,11 +1,11 @@
 # Latest News
--  Murat Cemcir , Ahmet Kural küslüğüyle ilgili itiraf geldi!
--  Adım Farah dizisi reytinglere dayanamadı! Final tarihi belli oldu
--  „Woche des verlorenen Kuscheltiers“ in den Niederlanden
--  Delhi excise policy case: ED issues fresh summons to Arvind Kejriwal
--  Punjab CM Bhagwant Mann announces 4 per cent DA hike for government employees
--  En Mérida realizaron vigilia por una “Navidad sin presos políticos”
--  Поляци запълниха петицата на ENCE
--  דרעי רומז: נתמוך בדחיית הבחירות המקומיות
--  Gabriel Boric in Chile: Eine historische Chance für einen jungen Präsidenten
--  Николай Денков: Преходът от младежкия към професионалния спорт има специфичен проблем, който трябва да бъде разрешен
+-  Törölték a Steamről a Godust és a Godus Warst
+-  eAssist Dental Solutions Launches New AI-Powered Technology
+-  أبوظبي و«RA» إلى نصف كأس سلطان بن زايد للبولو
+-  ‘토트넘은 웃고 있다’... 첼시, 결국 갤러거 판매 결정→658억 가격 책정
+-  NBA:ssakin pyörähtänyttä sentteriä syytetään kauheasta rikoksesta
+-  Miesten alppihiihdon maailmancupia hallitseva Marco Odermatt oli rautaa Alta Badiassa
+-  Rüya ne demek? Rüya isminin anlamı nedir?
+-  Dëshironi të rrisni të ardhurat në 2024? Ja disa ide si të fitoni para!
+-  Ljekari bolnice Danilo Prvi doprinijeli razvoju medicinske struke
+-  N500m Legal Threat: I’ve no regret fighting for Mohbad’s justice – Iyabo Ojo
