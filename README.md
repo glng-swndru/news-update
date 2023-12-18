@@ -1,51 +1,51 @@
 # Latest News
--  Банско откри ски сезона с много сняг и куп награди (СНИМКИ)
--  Immediate Momentum Reviews UK , South Africa, Australia 2023
--  Nagpur factory blast: Oppn alleges safety lapses; exploitation of workers
--  Life | SEE | Princess Charlene and Prince Albert share 2023 Christmas card
--  News24 Business | Container ships rerouted towards SA as anti-Israel militants attack vessels in Red Sea
--  Save 36% on LEGO’s vibrant Lunar New Year parade set
--  이경 민주당 부대변인, 보복운전 혐의 벌금 500만 원 선고
--  독립야구단 고양위너스, 새롭게 재 창단... 사령탑엔 김동현 감독
--  [화보] 쪽방촌에 찾아온 동장군
--  송석준 경기도당 위원장 "국민의힘 수도권 총선 승리 앞장"
--  임종성 경기도당 위원장 "이낙연 신당 성공하지 못할 것"
--  "할증보험료 부당"… 자동차 보험사기 피해자에 12억8천만원 환급
--  문화·예술과 교배… 농업의 역사 교육 명소로 뿌리내리다
--  경기소방본부, 외국인 위한 '재난유형별 행동요령' 5개 국어로 제작
--  인천시, 옹진군 북도면 수돗물 수용가 공급 개시
--  인천시, 어르신 맞춤형 돌봄서비스 지원 확대
--  '상생형(삼성) 스마트공장 지원사업' 참여 中企 92.3% "만족한다"
--  [알쏠상식 119] 화목보일러 사용 시 지켜야 할 안전수칙
--  Karan: Prvi put defile povodom Dana RS u večernjim satima
--  Ezernégyszáz üzenetből álló könyvet kapott Pintér Sándor a Tanítanék Mozgalomtól
--  В Чувашии грабитель пытался вскрыть банкомат овощечисткой
--  Nastroje niemieckiego biznesu zaskoczyły spadkiem
--  OPPO Find X7 series camera details & final design revealed
--  Brain drain: Resident doctors seek domestication of residency act
--  Pope Francis Condemns Israel for Attack That Never Happened
--  Bills de Búfalo congelan a los Vaqueros de Dallas 31-10
--  Casinos, la adicción al juego crece en México
--  [영상] KBS 사장 답변 거부 지시에 고민정 “사장님 뭐하시는 겁니까”
--  “누가 지웠나” 범인찾기…연합뉴스 ‘통일 유튜브’ 무단 비공개 조치 논란
--  Crece riesgo de sesgos en encuestas; ven propaganda disfrazada
--  유튜브 넷플릭스 가격인상에 정통부 장관 “설명했으면 좋지 않았나”
--  Попова ответила, нужно ли вводить ограничительные меры из-за коронавируса
--  عاجل.. طريقة الاستعلام عن المخالفات المرورية الجديدة من خلال منصة أبشر
--  Delivery Hero gaat reorganiseren
--  Tomaszów Lub.: Trzech pijanych w jednym aucie. Kierowca uderzył w inny samochód
--  Moja TV po 50 posto nižoj cijeni!
--  Задържаха мъж, опитал се да ограби 67-годишен русенец
--  Sınıfta ders sırasında tavanın sıvası düştü: 7 öğrenci yaralı
--  Eskişehirli öğrenciler Konya’yı gezdi
--  Velilere korsan servis uyarısı!
--  Ruhsatsız silah yakalamalarında artık tutuklama kararı verilecek! Hapis cezası 2-5 yıla çıkıyor
--  Çocuk ve yatak odasına en faydalı bitki
--  Новите Ray Ban очила и Меta прожектират образи, превеждат, показват картинки и предлагат съчетания от дрехи
--  Petugas Imigrasi yang Jatuh dari Apartemen di Tangerang Ternyata Dibunuh oleh WNA Korsel
--  El renacer del gol español
--  El renacer del gol español
--  ’ایسے تھوڑی نہ تھا یار‘ ۔۔۔ شاہ رخ خان ’کککککرن‘ کے نقالوں سے تنگ آگئے
--  И петият опит за избор на шеф на СОС върви към провал
--  Shillong Teer Result TODAY 18.12.2023 (OUT) First And Second Round Lottery Result
--  اکبر ایس بابر کا پی ٹی آئی وکلا کو لائیو مناظرے کا چیلنج
+-  LS adjourned for the day, over 30 MPs suspended for remainder of Winter Session
+-  Курутоб, гостеприимство, декольте: что показала Жанна Бадоева в «Жизни других» в Таджикистане?
+-  Comienzan campañas de solidaridad por época de Navidad para niños necesitados
+-  Патот Берово-Струмица е прооден за сите видови возила
+-  کراچی، سلنڈر دھماکا، 3 جاں بحق، متعدد زخمی
+-  "بوزيتيف زيرو" تقود حراك تحوّل الطاقة وتخفيض الانبعاثات الكربونية في دول الخليج
+-  Unesco reconoció al ceviche peruano como Patrimonio de la Humanidad
+-  Jurgen Klopp confirms Ryan Gravenberch injury blow after Manchester United draw
+-  الاحتلال يعترف بمقتل جندي من كتيبة الهندسة
+-  احتدام التنافس الانتخابي بين مرشح تحالف قوى الدولة الوطنية و مرشح نبني في واسط
+-  Council launches poster campaign to track down owners of derelict homes
+-  Alienados: nuestra vida validada por los likes
+-  Γιώργος Λιανός: Ο Γρηγόρης Αρναούτογλου με έχει στηρίξει σε πάρα πολλές φάσεις της ζωής μου
+-  منعت خاصية التعليقات: ميريام فارس تستعد لعيد الميلاد.. وفخامة الزينة تلفت الجمهور (فيديو)
+-  Portugal : Nouvelle passe décisive de Rafik Guitane
+-  إجتماع للجمعيّة التونسيّة للمكونين الشبّان في السياقة والسلامة المرورية
+-  “No siempre tienen disposición las OSC”; buscan construir enfoque integral
+-  Gary Oldman: ‘Aparezco donde quiero’
+-  "췌장암 4기 진단 후 남편 외도"…'물어보살' 출연자 결국 사망 →네티즌 애도 물결
+-  Unla combo & big band jazz lab live al Cotton Club
+-  ICSI CSEET May 2024 परीक्षा के लिए रजिस्ट्रेशन शुरू, ऐसे करें पंजीकरण
+-  Yemeksepeti'nin Sahibi Türkiye'den Çekiliyor: 2024 Ortasına Kadar İşten Çıkarmalar Devam Edecek
+-  El legado de Kissinger en América Latina
+-  Ishan Kishan withdrawn from India’s Test Squad
+-  볏집으로 만든 집, 얼마나 대단하기에 상까지 받았나
+-  5 holiday campaigns to solve all your last-minute gifting woes
+-  Activision Blizzard settles discrimination lawsuit out of court with $54 million settlement
+-  Ενημέρωση για τη Διαβίβαση Προσωπικών Δεδομένων από την Eurobank
+-  Cancer patient has to pay £5,000 every three weeks to stay alive
+-  LIVE TJ - Tra poco Juve in campo per l’allenamento aperto ai media e ai tifosi
+-  Tecnología en educación para menores
+-  Ecco il murale per non dimenticare Michelle Causo
+-  Mehmet Şimşek ile Hafize Gaye Erkan'ın planı sızdı '2024'te yapacakları ilk iş belli oldu'
+-  Armia izraelska odkryła olbrzymi tunel. Do sieci trafiło nagranie
+-  दुनिया का सबसे बड़ा मंदिर भारत नहीं इस देश में है, दीवारों पर है रामायण और महाभारत की कहानियां
+-  „Keine Überraschung, über die ich mich freue“: Bundeskanzler Olaf Scholz mit Corona infiziert
+-  Lusso, le vendite delle 100 aziende più grandi raggiungono i 347 miliardi di dollari
+-  Huawei and MDES Signed MoU to Establish Thailand as a Regional AI Hub
+-  Zangrillo: "Polemiche arbitrali? Sto cercando di capire come mai non ci hanno dato rigore contro..."
+-  Marintec China 2023 Concluded with Record-Breaking Success
+-  VÍDEO | Jorge Rey pronostica la llegada del temporal más fuerte desde hace 145 años
+-  S'pore woman finds cockroach in Filet-O-Fish box after buying takeaway from Funan Mall McDonald's
+-  何依婷結婚丨姊妹團豪過新娘？陳詩欣吊帶裙廁所打卡似拍《3日2夜》 大爆要等蔡嘉欣做一事
+-  Sie verachten uns: Pinkel-Attacke auf Schweinefleisch
+-  Give FT Minister time to assess proposal for local govt elections, says Fahmi
+-  Cezary Kulesza zapytany o dymisję. Jasna odpowiedź, nie pozostawił wątpliwości
+-  الجيش الإسرائيلي يعلن مقتل جندي في معارك شمالي قطاع غزة ليرتفع عدد الجنود القتلى اليوم إلى 5
+-  Former singer Stella Ng is pregnant with a ‘dragon boy’
+-  Preocupación por casos de injusticia y lento avance de encargos del GIEI
+-  Nestorović: Nećemo ići u koaliciјe, to bi bilo smrtonosno po nas
