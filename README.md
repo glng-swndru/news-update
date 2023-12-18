@@ -1,51 +1,51 @@
 # Latest News
--  Na Tajlandu ubijeno 15 krijumčara droge
--  Radnici zeničkog ArcelorMittala od jutros ponovo u pogonima
--  Cinquanta cani maltrattati: i vigili li sequestrano ma li lasciano lì
--  Dit is de tegenstander van PSV in de 8e finales van de Champions League
--  الموت يخطف نجم أسود الأطلس سابقا عبد الرحيم واكيلي
--  SPAK kërkon arrestimin, avokati i Berishës kërkon shtyrjen ose pezullimin e mbledhjes së Këshillit të Mandateve: Çështja është në Gjykatë Kushtetuese
--  Fadil Novalić za aferu “Respiratori” optužio aktuelnu vlast, tvrdi da nije dobijao naredbe od Sebije Izetbegović
--  PM Narendra Modi flags off 2nd Delhi-Varanasi Vande Bharat Express, other trains
--  أرسنال يواجه بورتو في ثمن نهائي دوري ابطال اوروبا
--  "Реал Сосьедад" сыграет в 1/8 финала Лиги чемпионов с ПСЖ
--  Минобороны РФ сообщило, что средства ПВО за сутки уничтожили 25 украинских беспилотников
--  Police Arrest Lawyer For Brutalizing His Wife, Set To Charge Him To Court
--  МО РФ заявило от отражении атаки ВСУ на краснолиманском направлении
--  Ιστορική εμπορική συμφωνία της ΕΕ με την Κένυα
--  "هاكاثون التحول الرقمي" في غرفة القصيم يؤكد تفوق "سوق المملكة"
--  Netflix fans go wild over 'hidden gem' movie with an 89% Rotten Tomatoes rating: 'A film hasn't made me feel like this for a long time'
--  В Прикамье будут судить подростков, устраивавших поджоги инфраструктурных объектов
--  Governo lança estratégia das Smart Cities. Investimento é de 60 milhões
--  À Abidjan, Aliou Cissé et son groupe ne devront que gagner ! (Par Madiambal Diagne)
--  Success of tourism on peninsula depends on level of council support – Cllr Albert Doherty
--  Торгпред РФ заявил о росте числа бизнес-контрактов с Таджикистаном в 2023 году почти вдвое
--  5.5 magnitude earthquake rocks Ladakh region
--  Wegen „illegaler Inhalte“: EU-Kommission eröffnet Verfahren gegen Onlinedienst X
--  Stop milking it! Plant-based food giant Oatly wins four-year court battle against Dairy UK to keep the word 'milk' on its vegan packaging
--  Neighbours' Krista star almost played two completely different roles in Aussie soap
--  El chavismo evalúa “acciones integrales” para combatir la delincuencia organizada en el país
--  حتى في هذه... لبنان أبرز المتضررين!
--  Udruženja žrtava: Sramno puštanje na slobodu osumnjičenih za genocid
--  عاجل.. برشلونة يواجه نابولي في دور الـ 16 من دوري أبطال أوروبا
--  Jak nenaletět při výběru dodavatele fotovoltaiky?
--  Who Has The Best Battery? Google, Samsung, And Apple's Smartwatch Showdown
--  Alex Batty's mother Melanie is a conspiracy theorist who wanted to set up a 'spiritual community' and thought Covid-19 'was created by the state to control people', friend says as Interpol join search for her
--  «Stilllegung wegen technischen Problemen» – Schweizer Armee groundet Schützenpanzerflotte
--  «Что бы хунта не делала, победа будет за нами!»
--  Unerwartete Probleme beim Self-Checkout: US-Supermärkte holen das Personal an die Kasse zurück
--  Breaking: INEC Announces Likely Date For Rerun, Bye-elections
--  The 10 used cars that have MADE money for their owners in 2023
--  Собянин сообщил об открытии движения в сторону области по Дмитровскому путепроводу
--  Sorteio da Champions AO VIVO: siga agora a definição dos confrontos das oitavas
--  Accidente vial en Huajuapan deja daños materiales
--  Aseguradas apenas 1.5% de viviendas y negocios
--  Þjónustujöfnuður jákvæður um 28 milljarða
--  В Думу внесли проект о немедленном освобождении больных осужденных по решению суда
--  Pacto entre Gobierno y CNTE llevan a la debacle educativa
--  Заем от близки и роднини - заслужава ли си?
--  Уведомление органов самоуправления за 5 дней о проведении стихийного собрания/манифестации признано неконституционным
--  (VIDEO)Bend Shotgun Sally objavio prvi singl i spot
--  PSV wacht fraai affiche: Eindhovenaren treffen Dortmund in Champions League
--  البصرة: احتدام التنافس بين مرشح تحالف قوى الدولة و مرشح تحالف نبني
--  10 Tahun Berkarier, Komika Indra Frimawan Umumkan Hiatus
+-  تحذير للمواطنين.. استعدّوا لبرد عنيف خلال الساعات المقبلة
+-  صنعاء تعلن صرف مرتبات شهر جمادى الأولى
+-  صنعاء تعلن صرف مرتبات شهر جمادى الأولى
+-  Ranveer Singh felt Peshwa Bajirao`s presence while shooting for Bajirao Mastani
+-  Kickoff | BREAKING: UCL round of 16 draw announced, big clashes lined up!
+-  Present en Waardeburgh gaan op 1 januari verder onder één naam: Waarderburgh
+-  Tại sao mạng 5G lại gây lo lắng? | Sức khỏe
+-  Community effort from Banff church's food bank ensures people are supported at Christmas
+-  Kıbrıs'ta yabancıların arazi alımları için mevzuat değiştirilecek!
+-  “He would do crazy things like take 100 tabs of acid in a day then jump out of the window of a moving taxi, or paint himself blue": Shane MacGowan's wife Victoria Clarke on the unorthodox, unbreakable love she shared with The Pogues' late frontman
+-  Neuren Phase 2 trial shows significant improvements in Phelan-McDermid syndrome
+-  TAILG Launches Advanced Sodium-Ion Battery Technology in China
+-  Meme Moguls (MGLS) and Shiba Inu (SHIB) Look More Promising Following This Dogecoin (DOGE) Price Prediction
+-  Giráldez, el estratega del imbatible Barça femenino, confirma su adiós
+-  اربعون مشارك يتلقون دورة تدريبية لمعالجة حالات الإسهال الحاد للكادر الصحي بلحج
+-  Andújar celebra su 38 Gala del Deporte para premiar el potencial de instituciones y deportistas
+-  Alonso figyelmeztet, újra kiábrándulhat a Forma-1-ből
+-  – تواصل الدورة التدريبية لمزارعي الزيتون بمدينة هون
+-  RCMP warn about spike in online extremism among Canadian youth
+-  FC Bayern im Achtelfinale gegen Lazio Rom
+-  Si tienes un coche con etiqueta C, atento: estas son las restricciones en Madrid a partir de 2024
+-  Mapa GPW: PlayWay, Allegro, CCC, BOŚ i Budimex w centrum uwagi
+-  Fundusze Quercusa powyżej progu 5 proc. w akcjonariacie Creepy Jara
+-  1,5 mld zł wsparcia dla właściciela sieci sklepów Biedronka. Celem transformacja energetyczna
+-  Vasle: oczekiwania na szybką obniżkę stóp EBC są przedwczesne
+-  Sytuacja na rynkach 18 grudnia - spokojny początek przedświątecznego tygodnia
+-  Analiza poranna – Przedstawiciele Fed postraszyli
+-  LEGO Ideas Polaroid Camera revealed for 2024 release
+-  משפחות החטופים חסמו את הכניסה לקריה: "רק עסקה תחזיר אותם בחיים - לא לחץ צבאי"
+-  אחיו של החטוף ששוחרר: "הבנו מישראל שרוסיה יכולה לשחרר את רון"
+-  פתחו יומנים: אושר כהן מתחתן ואנחנו כבר יודעים מתי ואיפה
+-  לטוס ל-280 יעדים בעולם: הקוד שייר החדש של אל על
+-  리버풀 스카우터 앞에서 멀티골 작렬…‘반드시 영입해야 할 센터백’ 재확인
+-  ‘교수님 리턴?’... 나겔스만, 토니 크로스 독일 국가대표 복귀 희망
+-  Exportadora de carne bovina abre vagas de estágio em 2 cidades de MT para 22 cursos
+-  Yogur de soya: plato fuerte de una malversación (+fotos y video)
+-  Ligue des Champions : Les affiches des huitièmes de finale au complet
+-  Ders sırasında tavanın sıvası düştü: 7 öğrenci yaralı
+-  Tuğçe Kandemir evlendi!
+-  Bakan Fidan'dan kritik görüşme
+-  FC Bayern im Achtelfinale gegen Lazio Rom
+-  대전 유성구 지방자치경쟁력 빛났다
+-  한밭새마을금고, 따뜻한 지역사회 만들기 앞장
+-  될성 부른 중소기업, 중견기업으로 육성
+-  밥심으로 사랑 실천하는 삼형제
+-  청주 명암약수터 굿당 10년째 국유지 무단 점유
+-  온기 잃어가는 무료급식소… “온정이 필요합니다”
+-  [특집] 충남대 R&D 역량으로 기술실용화까지 ‘으랏차차’
+-  양심과 욕심, 그리고 염치
+-  ‘청렴’ 아무리 강조해도 지나침이 없다
