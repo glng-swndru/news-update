@@ -1,11 +1,11 @@
 # Latest News
--  TCS Selected For Modernisation Project By Swiss and Spanish Financial Market Infrastructure Operator
--  Soccerladuma | Real Madrid 'Eyeing' Bellingham's Brother
--  Soccerladuma | Blackberry: What Pitso Told Me
--  Beşeri tıbbi ürünlerin fiyatlandırılmasında euro kuru yüzde 25 artırıldı
--  'Bitkisel ürün' uyarısı: Masum olmayabilir
--  Bursa'da kavşakta takla atıp yanan otomobilin sürücüsü olay yerinden kaçtı
--  Apple 2024: Watch redesign, iPhone 16 innovations
--  Fenerbahçe'de stoperde öncelik Çağlar Söyüncü
--  Adalet Bakanı Tunç: 32 bin 98 kira uyuşmazlığı arabuluculukta çözüldü
--  Commodity in movimento, ma petrolio e oro restano protagonisti anche nel 2024
+-  FIFA uudisti seurajoukkueiden MM-kisat - pelaajajärjestö pillastui
+-  Simic premiato dai giornali: «Debutto super, gara da veterano»
+-  NFP remains divided after contentious elective conference
+-  Slut med Alfa Romeo: Her er Saubers nye navn
+-  항문 부위 영구제모, 원하는 결과 얻으려면?
+-  Recensione FlexiSpot E7 Pro, la scrivania motorizzata che mischia praticità ed ergonomia
+-  VIDEO ​Porci transportați cu ambulanța, sacrificați, pârliți și tranșați într-un parc din Constanța
+-  PRONAŠAO TAJNA VRATA U HOTELSKOJ SOBI Kada je video šta se iza njih krije, pretrnuo je od straha (VIDEO)
+-  Erdoğan Macaristan'a gidiyor
+-  VIDÉO - Colette, le goût de la vie et la modernité en héritage
