@@ -1,11 +1,11 @@
 # Latest News
--  Witness Burj Khalifa NYE Fireworks with Exceptional Views From Maison De Curry at Souk Al Bahar
--  Soccerladuma | In Numbers: How Chiefs' Defence Has Improved This Season
--  Meta charging European users to remove ads is a privacy red herring
--  Manisa İYİ Parti'de istifa depremi
--  İspanya'ya gelen düzensiz göçmen sayısı 51 bini geçti
--  Somali Cumhurbaşkanı'ndan Yunus Emre Göçer'in ailesine taziye telefonu
--  الأردن.. اشتباكات على الحدود السورية وإحباط عملية تهريب مخدرات
--  Bakan Özhaseki 'Yerinde Dönüşüm' projesine başvuruların 250 bini aştığını duyurdu
--  Magazine: Advancing islet transplantation for type 1 diabetes
--  Business News | Rich and Varied Perspectives on Economic Policy and the Indian Economy Brought to the Fore at the ISB-NBER 2023 Conference
+-  Single political party cannot obtain majority due to electoral system&#039;
+-  Xabi Alonso and Leverkusen aim to take unbeaten run into 2024
+-  جيرالديز على أعتاب الرحيل عن تدريب فريق برشلونة للسيدات
+-  غالانت: لن نفرض سيطرة مدنية على قطاع غزة
+-  بالارقام .. ضربة اقتصادية قوية لمطار بن غوريون
+-  الملك مهنئا السيسي: علاقاتنا متجذرة وتعاوننا نموذجي
+-  إعلام عبري: عشرات السفن حولت مسارها في أعقاب تهديدات الحوثيين
+-  Times definidos: veja as escalações de Fluminense e Al Ahly para a semifinal do Mundial de Clubes
+-  وصول سفينتي مساعدات كويتية وتركية إلى ميناء العريش
+-  ¿A qué hora salen los boletos de la Feria de León 2024?
