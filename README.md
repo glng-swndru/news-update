@@ -1,11 +1,11 @@
 # Latest News
--  백경현 구리시장, ‘파독 60주년 기념 ART MEMORY 미술전시회’ 참석
--  Ask 411 Wrestling: Who Is Ric Flair’s Most Underrated Rival?
--  우리금융미래재단, 자립준비청년 금융 멘토링 1기 수료식 개최
--  Four killed in Bajura tractor accident
--  Relief for Ten Hag as Man United holds Liverpool to 0-0 draw at Anfield
--  North Korea fires long-range ballistic missile into sea in resumption of weapons launches
--  بعدما أثارت الجدل في تصريحاتها الأخيرة.. لقاء الخميسي تعتذر من متابعيها
--  الأمير ألبرت والأميرة شارلين يعايدان الشعب والعالم بمناسبة الكريسماس والعام الجديد
--  “클라우드·공공 마이데이터 활용으로 탄소배출 저감”
--  제주항공 승무원, 유기동물 보호소 찾아 봉사활동
+-  젬백스, 진행성핵상마비 치료제 글로벌 임상 개발 본격화
+-  식약처, 오늘부터 ‘의약품 변경허가 사전통보제’ 시범시행
+-  טניסאי מהמקום ה-1,145 בעולם ניצח את המדורגת 57 בסבב הנשים
+-  مجلس النواب يناقش 11سؤالا نيابيا
+-  الاحتلال ينشر فيديو لـ محمد السنوار بسيارة داخل نفق
+-  أجواء باردة نسبيا بأغلب المناطق حتى الخميس
+-  Night Temp Falls Below 10°C At 10 Places In Odisha; Bhubaneswar & Cuttack Continue To Feel The Chill
+-  국립대병원 교수 정원 확대·시설 및 장비 첨단화…지역완결형 필수의료체계 구축
+-  구미시 옥성면 저수지에 승용차 추락…60대 심정지 병원 이송
+-  내년에도 분양가 인상 기조…입지·가격 따라 청약 온도차 뚜렷할 듯
