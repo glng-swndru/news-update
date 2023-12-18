@@ -1,11 +1,51 @@
 # Latest News
--  Gaziantep Beylerbeyi'nde 66 m² 2+1 daire icradan satılıktır
--  IBM to acquire StreamSets and WebMethods from Software AG for $2.3B
--  Trabzon'un Sırtladığı Su Ürünleri İhracatı: Doğu Karadeniz'de Büyük Artış
--  Government guidance to force teachers to out trans kids to parents
--  Trevor Noah to host Grammy Awards for fourth straight time
--  Queens Of The Stone Age on stepping up to headline Download 2024: “There’s no reason to trip out”
--  'Sebenza girl' Thuso Mbedu joins Mark Ruffalo-led HBO crime drama series
--  Countryfile viewers blast BBC for ‘rip-off’ episode – and are seriously distracted by guest’s ‘fake’ appearance
--  Aqua Metals talks tech, ESS volumes and the opportunity in metals price fluctuations
--  U susret blagdanima: Božićni koncert učenika Osnovne glazbene škole
+-  নরসিংদীতে অটোরিকশাচালককে কুপিয়ে হত্যা
+-  احتدام التنافس بين المرشحة عن تحالف قوى الدولة و مرشحة دولة القانون بالديوانية
+-  জয়পুরহাটে আমগাছে ফেরিওয়ালার হাত-পা বাঁধা ঝুলন্ত লাশ
+-  Halkın içinde, halkla birlikte olursanız başarılı olursunuz
+-  Ereğli Belediyespor Bordospor’u devirdi
+-  Karapınar Anadolu firesiz devam ediyor
+-  Polygon Labs interrompe lo sviluppo di Polygon Edge
+-  Brotist inn í glæsilegt hús stórstjörnunnar um helgina
+-  Arbitre agressé à Jijel : la FAF appelle à l’application strict de la règlementation
+-  Samsung Galaxy XCover 7, NBTC Sertifikasyon Sitesinde Görüldü
+-  Glam teacher cost talented footballer his right foot in crash which left him '30 minutes from dying'
+-  "La autonomía indígena se ha sanatizado"; EZLN la rebeldía
+-  Allison XX, día verde y para no olvidar
+-  16 años sin hallar a su hijo ni justicia; todos tienen nombre
+-  Wonka, viva el rey chocolatero y taquillero
+-  Bayern - „Aufgelöste ältere Dame ohne Jacke“ in der Nacht auf Autobahnparkplatz vergessen
+-  يوم جديد من الحرب في غزة يحفر جراحه في الجسد الفلسطيني
+-  التعاون الدولي: بنك الاستثمار الأوروبي يتصدر شركاء التنمية في إتاحة التمويلات للقطاع الخاص
+-  Këshilli i Mandateve do mblidhet për heqjen e imunitetit/Berisha i bashkohet protestës para Kryesisë së Kuvendit
+-  সাহাবির মেহমানদারিতে আল্লাহ্‌র হাসি
+-  মিশুক মুনীরের স্মৃতি ফিল্ম আর্কাইভে
+-  MotoGP: Jorge Martin Ultimatum Ducati, Siap Susul Luca Marini ke Honda
+-  Χρόνια μετά την «εξαφάνιση» του: «Έχει τον τρόπο του ο Νότης…»
+-  Başkan Erdoğan Macaristan'da
+-  "그는 뛸 수 없다"…맨유 임대생 MF, 중원 싸움 대패에 리버풀 레전드 작심 비판
+-  "화려한 이름은 아니지만..." 류현진 가치 UP, 중간급 투수 시장이 움직인다
+-  2024시즌 경륜 경주운영 확 바뀐다! 임채빈 vs 정종진 '8번 격돌'
+-  Microsoft vervangt Teams Files door OneDrive for Teams
+-  꽁꽁 얼어붙은 FA 시장, 손발 묶인 구단들...샐러리캡이 도대체 뭐길래 [유진형의 현장 1mm]
+-  Champions League: Auf wen treffen die Bayern, der BVB und RB Leipzig? Die Auslosung der Achtelfinalspiele live
+-  Twee jeugdteams Vridos uit Giessenburg vieren kampioenschap
+-  Kerstpresentje voor deelnemers Zonnebloem Liesveld
+-  הצטרפו לדיווח החי: הגרלת שמינית גמר ליגת האלופות
+-  Buscan dar con el paradero de una menor desaparecida ayer en Villa del Rosario
+-  ব্যানার-পোস্টারে ছেয়ে গেছে ঢাকা (ফটোস্টোরি)
+-  Žoze Murinjo tvrdi: Nisam oterao De Brujnea i Salaha, u Junajtedu su me zbog izmene tužili za mobing
+-  Signs of dementia people notice when they're in the shower or bath
+-  مراسلنا في الديوانية: التنافس الانتخابي يحتدم بين المرشحيين عن تحالف قوى الدولة و مرشح نبني
+-  Bhandara : राज्यातील ग्रामसेवक, Gram Panchayatकर्मचारी संपावर, 27 हजार 800 ग्रामपंचायतीचं कामकाज बंद
+-  Heizölpreise steigen kräftig – wegen CO2-Steuer und höherer Ölpreise #heizölpreis #heizölkaufen
+-  رئيس الغرفة التجارية والصناعية بأبين يشيد بقرار رفع نقاط الجبايات الغير قانونية في المحافظة
+-  Artūras Jomantas išlydėtas pergale
+-  6 Tips Memilih Hadiah untuk Hari Ibu yang Spesial
+-  EuroLeague blasta la stampa europea?
+-  मेलम्चीका पानी छिटो ल्याउन माग गर्दै प्रदर्शन
+-  Temporal en Buenos Aires: decretan estado de emergencia y duelo por 72 horas
+-  Girona campeão espanhol? Quais são os times que furaram predomínio de Barcelona e Real Madrid nos últimos 40 anos de LALIGA
+-  A 'eterna zebra' da Premier League que caminha a passos largos para sair da 2ª divisão inglesa e o que você precisa ver pela ESPN no Star+
+-  Caronas com auxiliares, almoço por R$ 50 e amor por samba: como Diniz leva 'vida normal' às vésperas de fazer história no Fluminense
+-  A coincidência que liga Fluminense, rival da semifinal e últimos dois brasileiros campeões do Mundial de Clubes
