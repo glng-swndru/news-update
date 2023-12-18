@@ -1,11 +1,11 @@
 # Latest News
--  Bafra'da FETÖ firarisi kıskıvrak yakalandı
--  Arnavutluk'taki muhalefetten protesto
--  Pakistan ile İran arasında Gazze görüşmesi
--  DeMarcus Cousins signe avec les Taiwan Beer Leopards
--  Egypt presidential election: El-Sissi wins with 89.6 pc of the votes
--  Suomen ja USA:n DCA-sopimus on allekirjoitettu
--  В Крыму наградили лауреатов премии «Преград нет»
--  Путин продлил указ о специальных экономических мерах до конца 2025 года
--  Venezuela rechaza «preocupaciones» de Canadá por la disputa del Esequibo
--  Vatikán odobril možnosť požehnania pre páry rovnakého pohlavia
+-  Fenerbahçe'nin Konferans Ligi'ndeki rakibi belli oldu mu?
+-  От ЦСКА успокоиха феновете си
+-  Everyone sees a red box – but you have a high IQ if you can figure out what’s really going on in under 15 seconds
+-  EastEnders bosses go to extreme new lengths to keep murder victim’s identity a secret
+-  पहले से खाते में है इतना पैसा, पार्टी चलाने के लिए क्राउडफंडिंग कर रही Congress
+-  Anwohner hören Hilfeschreie: 26-Jähriger versucht Kölnerin in Niehl zu vergewaltigen
+-  המשרד להגנת הסביבה: לחייב ייבוא רכב ירוק במקום להעלות מסים
+-  Festive warning as poll reveals lax COVID-19 attitudes
+-  İYİ Parti’de sular durulmuyor. İstanbul'da bir ilçe yönetimi görevden el çektirildi
+-  Tyson Fury warned by ex-champ to ‘put his s*** together’ ahead of Oleksandr Usyk fight amid fears ‘his legs are gone
