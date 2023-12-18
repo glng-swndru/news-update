@@ -1,11 +1,11 @@
 # Latest News
--  Ministry of Defense discusses Red Sea shootings with partner countries
--  İsrail yine Gazze'ye saldırdı: En az 100 ölü
--  Bauern machen mobil gegen Aus für Agrardiesel-Vergünstigung
--  최태원 만난 홍익표 “기업투자 활성화 세제 개선 노력”
--  Аталанта и Салернитана закриват кръга в Италия
--  البحرية البريطانية: تحقيق بانفجار على بعد ميلين من سفينة جنوب ميناء المخا اليمني
--  कांग्रेस भी करेगी क्राउडफंडिंग, क्या होता है क्राडफंडिंग जानिए यहां
--  MP VidhanSabha Session Live: CM मोहन यादव ने विधानसभा के सदस्य की शपथ ली, उमंग सिंगार नेता प्रतिपक्ष नियुक्त
--  Khandwa: लाउड होते वॉल्यूम से पहले प्रशासन अलर्ट, खुद के वाहनों का जांचा डेसीबल, अब कार्रवाई के लिए हुआ तैयार
--  Train Accident: शहडोल-ब्यौहारी स्टेशन के पास मालगाड़ी हुई दुर्घटनाग्रस्त, कई यात्री ट्रेन हुई प्रभावित
+-  4 خطوات لتأهيل السجين نفسيًا بعد الإفراج عنه
+-  منها مكة.. "الأرصاد" يُحذر من رياح شديدة وتدني للرؤية بهذه المناطق لـ 4 مساءً
+-  Ebru Şallı'nın eşi Uğur Akkuş'a büyük şok!
+-  UEFA'da kura zamanı: Galatasaray'ın Rakibi Belli Oluyor!
+-  ‘Genshin Impact’ Version 4.3 Update “Roses and Muskets” Pre-Installation Is Now Live, Download Size Revealed for Mobile and PC
+-  정읍시 공공배달앱 ‘위메프 오’ 크리스마스 감사 이벤트
+-  문경署, 'BEST 문경 중앙자율방범대' 선정
+-  부안군, 2024년도 예산 사상 첫 8000억 달성
+-  진안군 '작은 학교 살리기 제289회 마이학당' 오픈
+-  익산시, 올해 특별교부세 98억 원 확보
