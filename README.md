@@ -1,51 +1,51 @@
 # Latest News
--  محافظ أسوان يُشيد بمشروع "أهل مصر" في لقائه بالمشاركات
--  Příklady, na kterých odvodech zaplatí OSVČ za rok 2023 nejvíce
 -  Agende 2024: le migliori da regalare a Natale
--  Dalla vetrina virtuale al lusso accessibile: un punto di riferimento per i gioielli palermitani
--  Tecniche innovative permettono di sconfiggere la miopia in modo sicuro, indolore e veloce
--  Sostenibilità, bellezza e qualità: ecco gli oli a km zero per valorizzare il territorio
+-  عاجل.. حساب المواطن.. خطوات الاستعلام عن أهلية الدفعة 74 وشروط الحصول على الدعم
+-  Hunter Biden will make first court appearance on tax charges on January 11
+-  Desde abril no crece la economía en Colombia
+-  Burnside house fire
+-  Police investigate fatal collision in Truganina
+-  Se suma diputado a trabajar por el autismo
+-  Sube presunto suicida a puente en Juárez
+-  Economiza para la cena navideña, Profeco te dice cómo
+-  Ve América duelo de gigantes ante Barcelona
+-  Video: 'Premia Conade pese a todo': Guevara
+-  Tiago Tomás mostra mensagens trocadas com Quaresma antes do Clássico
+-  Amorim sobre Conceição: "Ele falar depois de perder já é bom..."
+-  Apple suspende venta de algunos de sus relojes en EE.UU. por problemas de patente
+-  Pelo menos oito mortos após sismo no noroeste da China
+-  bet365 bonus code NYPNEWS: Claim $1k first bet or $150 for MNF, any sport
+-  '공중볼 몬스터 김민재에게 시달렸다→어떤 위협도 없었던 24골 합작 투톱'…슈투트가르트 동료도 질책
+-  찰스, 반가운 근황 공개…"子는 최연소 국가대표, 아내는 제주살이 중" 5년차 기러기 아빠의 혼자살이 [동상이몽2](종합)
+-  Haley, Trump lobby Scott for endorsement
+-  Deion Sanders explains why he would NEVER coach in the NFL after making Colorado one of the most-watched college teams: 'I'm having the time of my life'
+-  Tyra and Kale crowned winners of Love Island Australia 2023 after beating out rival couples Savanah and Clint and Lucinda and Zac
+-  Atlético de Madrid x Getafe: onde assistir ao vivo, horário e prováveis escalações do jogo pelo Campeonato Espanhol
+-  Homicide and other violent crimes in Milwaukee trending downwards as 2023 wraps
+-  Índia. Diretor de escola detido por forçar alunos a limpar fossa séptica
+-  Auto sale de la carretera y vuelca entre matorrales
+-  Rodríguez Uribes, nuevo presidente del Consejo Superior de Deportes
+-  By: Reed Griffin
+-  Atlético de Madrid x Getafe: veja informações e onde assistir ao jogo do Espanhol
+-  Urawa Reds x Manchester City: veja informações e onde assistir à semifinal do Mundial de Clubes
+-  [PGA ] 함정우, Q스쿨 공동 45위... 투어 직행 실패
 -  Agende 2024: le migliori da regalare a Natale
--  [ŽT] Nušluotas 2014-ųjų smurto simbolis. Galingi kadrai iš Izraelio. Kas vyksta (Video)
--  China Holds 97 Canadians in Prison, Government Says
--  Sanidad retoma el proyecto del búnker de protonterapia del Doctor Negrín
--  Urgencias del Insular vuelve a colapsarse con cien pacientes a la espera de ingreso
--  Ibnor Riza: Keluarga reda selepas dimaklum doktor 6 bulan lalu
+-  Tourism minister: Mas Ermieyati’s statement on MM2H causes ‘confusion’
+-  Funcionário preso por estuprar crianças com autismo na APAE é condenado a 22 anos de prisão, em RO
+-  Martín Palermo no continuará como director técnico de Platense
+-  Repentina muerte de querido personaje entristecerá profundamente“Juego de Ilusiones”
+-  Haley Surges in New Hampshire Just a Little Over a Month Before 1st-in-the-Nation Primary
+-  Eynicinsli fərdlərin nikahına xeyir-dua veriləcək
 -  Agende 2024: le migliori da regalare a Natale
--  La serie 'Zorro' se podrá ver en España desde el próximo 25 de enero
--  Fallece Iosseliani, homenajeado en el festival de cine de 2017
--  Agende 2024: le migliori da regalare a Natale
--  라임·옵티머스 후폭풍이 바꾸는 증권가 기상도
--  “사필귀정” “정치탄압”…‘송영길 구속’에 희비 엇갈린 여야
--  Agende 2024: le migliori da regalare a Natale
--  北, ICBM 발사 공식발표. 김정은 "더욱 공세적으로"
--  Projet de loi immigration: la commission mixte paritaire à nouveau suspendue
--  Unser Engagement zur Emissionsminderung – Wir sind ein „Climate Leader“ der Financial Times
--  Še vedno se pogovarjamo o stadionu
--  Saudi budget carrier flynas takes delivery of 3 A320neo aircraft
--  Max Q: See you next year
--  머스크의 ‘X’, 유럽서 퇴출되나…EU “DSA 위반 공식조사 착수”
--  「茶碗蒸し」が電子レンジで簡単に作れちゃう。あれを使うとなめらかな仕上がりに（レシピ）【2023年回顧】
--  Mecanismo de Prevención de la Tortura pide “garantizar el trato humano” en Tacumbú
--  Cherbourg-octeville. À l'occasion d'Octobre rose, Inéo Nucléaire offre 1 000 € à Cœur Cancer
--  Sporazum rešen, planet obsojen
--  Ne razumem!, 3.
--  Nepreslišano: Matjaž Kek, selektor slovenske nogometne reprezentance
--  Judje v Palestini
--  Shared Mobility Infrastructure Evolution in Top 20 Smart Cities: Tracking Investments, Technologies, Solution Implementation Status, and Future Trends Worldwide
--  Messi regala a Nadal su camiseta de Argentina campeona mundial
--  Servotronics Provides Investor Update on Strategic Vision to Maximize Long-Term Shareholder Value and Initial 2024 Outlook
--  Muere adulta mayor arrollada en La Guaira
--  Slovenská dvadsiatka v úvodnej previerke pred MS. Športový program na dnes (19. december)
--  Puščanje pečata z besedami in zamislimi
--  ‘Basically, I’m an employee’: Customer asks Walmart worker for company Christmas party details after having to check self out, bag own groceries
--  How to Fix Your Messed-up WiFi After the Latest Windows Update
--  Shiba Inu [SHIB] December End Price Prediction
--  Fed poskrbel za optimizem na borzah
--  Se kitajski gospodarski čudež končuje?
--  V petih letih bi Kranjska Gora lahko imela kabinsko žičnico
--  Velika Britanija: Koga in zakaj kralj vabi na božič
--  Vancouver-based Skeena closes $80M financing for Eskay Creek mine in B.C.
--  İranda 57 milyard dollarlıq korrupsiya
--  Polres Temukan Unsur Kelalaian pada Kematian Mahasiswa IAIN Gorontalo
--  Fox News Poll: TikTok ban favored by half of voters
+-  Bandung Rachmat Irianto Batal Ikuti Pemusatan Latihan Timnas Indonesia di Turki
+-  The death of natural diamonds: Owner of De Beers' shares drop by 20% after mine production cuts as eco-conscious customers opt for lab-grown gems loved by celebs like Taylor Swift instead
+-  Nicolas Guérin, président de la Fédération Française des Télécoms – 18/12
+-  춘천 후평동 원룸서 불… 60대 숨져
+-  [속보] 북, ICBM 화성-18형 발사훈련 보도…김정은 "더 공세적 맞대응"
+-  "Müssen Flugplan 2024 ausdünnen": Lufthansa-Chef verärgert über Kerosin-Steuer
+-  Omicidio Saman, oggi la sentenza di primo grado: attesa per il verdetto
+-  Présidentielle 2024 : Voici la liste des candidats qui ont déjà déposé leur caution
+-  Pressure on Richmond Sockeyes to score at annual Teddy Bear Toss
+-  Iceland volcano erupts after weeks of quake activity
+-  ‘Blue Rush’ Podcast Episode 172: Giants’ Playoff Hopes Out The Door After New Orleans Stinker
+-  EU opens formal probe of X
