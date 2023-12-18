@@ -1,51 +1,11 @@
 # Latest News
--  Konsulttijätti haluaa irtisanomispiikkit kuriin tekoälyllä – Vaikutuksia myös rekrytointiin
--  Podcast Historias Macabras: La mandó a matar pensando que era bruja
--  Tom Brady's personal photo ends up in ANOTHER family's CVS order during hilarious mix-up - as NFL legend jokingly blames his mom
--  إنتاج أول صورة ذهنية في العالم
--  "מסר ברור לחמאס": לוחמי גולני השמידו את הכיכר שמפאר את אסון הנגמ"ש:
--  Actor Jonathan Majors guilty of assault, harassment
--  Những cây trồng chủ lực trong xuất khẩu được Đắk Lắk lựa chọn
--  Từ chip nguồn đến giấc mơ bán dẫn của FPT
--  SBA: Nhà máy thủy điện Khe Diên hoàn thành kế hoạch sản lượng năm 2023
--  Elle empoche 100.000 dollars aux enchères grâce à un vase trouvé dans une brocante | Slate.fr
--  La méthode danoise pour lutter contre le stress de fin d'année | Slate.fr
--  Sofonisba Anguissola, légendaire portraitiste de la Renaissance à l'héritage oublié | Slate.fr
--  Pourrions-nous faire des bébés sur d'autres planètes? | Slate.fr
--  Les oiseaux migrateurs ne font pas le même trajet à l'aller et au retour | Slate.fr
--  Profession Père Noël: ils gagnent leur vie en enfilant costume et barbe blanche | Slate.fr
--  Pourquoi certains pays mangent-ils salé au petit déjeuner et d'autres sucré? | Slate.fr
--  L'étrange boucle psychologique qui pousse les gens à faire la queue en avance à l'aéroport | Slate.fr
--  BM’de Gazze krizi! Oturum ertelendi
--  We're CAMPING in Antarctica - here are the things we do and don't do while we are living here
--  Taylor Swift fan claims she was 'harassed and audibly booed' at Gillette Stadium for wearing jacket with pop star on it during Chiefs-Patriots game
--  إنفوجرافيك: أطعمة تجعلك أصغر سنا
--  Gümüşhane’de deprem!
--  Cruz Azul: Las primeras palabras de Martín Anselmi a su llegada a México
--  Sorteggi Champions, incredibile Zanetti: la sicurezza lo blocca all'entrata!
--  Comunitate etnică din Muntenia care s-a dat drept parte a altui popor pentru a scăpa de furia otomanilor
--  Projet de loi immigration: la commission mixte paritaire réunie à l'Assemblée nationale
--  LES ÉCLAIREURS - Immigration régulière: des prestations sociales durcies
--  Projet de loi immigration: "On n'est pas face à un compromis, on est face à une capitulation de la majorité", estime la députée écologiste Cyrielle Chatelain
--  Loi immigration: "Les négociations ont bien avancé (...) je reste très optimiste", assure Yaël Braun-Pivet
--  Mathilde Panot (LFI) sur la suspension de la commission mixte paritaire: "On assiste véritablement à une mascarade"
--  Projet de loi immigration: "Ça va être une négociation difficile, mais qui est nécessaire", pour Benjamin Haddad (Renaissance)
--  Projet de loi immigration: "L'essentiel est qu'à la fin on ait un texte qui soit fidèle à nos convictions et utile pour le pays", affirme Othman Nasrou (LR)
--  Suspension de la commission mixte paritaire sur la loi immigration: "Il y a de la théâtralisation", pour Richard Ramos (député MoDem)
--  Paris: protestation en cours contre le projet de loi immigration
--  Loi immigration: Borne s'engage à réformer l'aide médicale d'État "au début de l'année 2024"
--  Projet de loi immigration: la commission mixte paritaire suspendue
--  Projet de loi immigration: Yoann Gillet (RN) qualifie les discussions en commission mixte paritaire de "tambouille politique"
--  Caso EDP: Inspetor tributário realça pagamentos a Manuel Pinho nos ficheiros do GES
--  Macaristan Başbakanı Orban'dan nükteli paylaşım: '1 beygir verdim, karşılığında 435 beygir gücü aldım'
--  GQ Türkiye 'Men of The Year' ödülleri sahiplerini buldu! İlkin Aydın'dan törene damga vuran konuşma
--  Gümüşhane'de korkutan deprem!
--  Doanh nhân Ngô Nhật Phương: 'Tôi chỉ làm những thứ người khác không làm'
--  Armeesprecher wirft Hisbollah 'stetige Eskalation' an Grenze vor
--  Votarán mañana consejerías de Ichitaip, magistraturas y presupuesto 2024
--  Buscan a 4 más por el homicidio de activistas
--  Queen Silvia of Sweden is joined by her eight grandchildren as they pick this year's Christmas tree for the palace in annual family tradition
--  Condenan a prisión al fundador de los camiones eléctricos Nikola por mentir a inversores
--  Passengers could get $75 for delays under Southwest settlement
--  I’ve watched dozens of cheesy holiday rom-coms this year. Here are 5 good ones
--  Jeep can be transformed into apocalypse-ready off-roader with six wheels… but with surprisingly luxurious interior
+-  الاتحاد الأوروبي يصادق رسميًا على حزمة العقوبات الـ 12 ضد روسيا
+-  شركة مطارات جدة تعلن عن وظائف شاغرة.. المسميات وطريقة التقديم
+-  عاجل.. تعرف على أسعار ومواصفات سيارة تويوتا هايلكس 2024 الجديدة.. أيقونة الصحراء
+-  تعرف على أعطال سيارتك من لون العادم
+-  Marvel-stjerne er dømt for vold mod sin ekskæreste
+-  New trainers to tackle old problem
+-  School cleaners threatening legal action over pay cuts
+-  Home liquor licence granted
+-  Misconduct ’shambles’
+-  Γη της ελιάς: Η Ειρήνη εξομολογείται στον Ορέστη το σχέδιο εκδίκησης του πατέρα της
