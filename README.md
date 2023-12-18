@@ -1,11 +1,11 @@
 # Latest News
--  Several MoUs Worth More Than 770 Crores Signed At Annual Adventure Tourism Convention In Gujarat
--  Australia Announces USD 20 Million Aid To Afghanistan
--  PM Modi To Inaugurate Second Vande Bharat Train Connecting Varanasi To New Delhi
--  Тегишли маълумоти ва касб тайёргарлиги бўлмаганларга педагог сифатида ишлаш тақиқланади.
--  Россия Ўзбекистонга нефт етказиб бериш ҳажмини оширмоқчи.
--  Сенат 2024 йил учун давлат бюджети тўғрисидаги қонунни кўриб чиқади.
--  Россияда журналист аёл президентлик сайловида иштирок этиши мумкин.
--  Ўзбекистон ва БМТ Наркотиклар бўйича бошқармаси ўртасида Афғонистондаги вазият муҳокама қилинди.
--  Брюсселда Фаластинни қўллаб-қувватловчи оммавий акция ўтказилди.
--  Venezuela, la hija de 14 años de Paris Fury, madre de siete, luce irreconocible en una foto glamorosa y festiva
+-  PM Modi`s Twin Gifts To UP Today: Eastern Dedicated Freight Corridor, Vande Bharat Express
+-  치킨인류, 신메뉴 ‘핫K양념치킨’, ‘갈릭슈양념치킨’ 2종 출시
+-  이비스 스타일 앰배서더 인천 에어포트, ‘특별한 크리스마스 이벤트’ 선봬
+-  늦가을 비로 인한 일조량 부족, 엠지디세광 식물등 보광LED로 해결 가능
+-  파고다위크, 18일부터 오직 10일동안 할인주간
+-  Impacta patrulla estatal contra auto al omitir un alto en Juárez
+-  군포시 장애인센터 개소식 개최
+-  담양군, 연말 맞이 ‘담양장터 농특산물 특별 기획전’ 추진
+-  영광군, 2023 전라남도 인구정책 추진 종합평가‘우수상’수상
+-  청송군, 연말연시 맞아 불법 정당현수막 및 옥외광고물 일제 정비 나서
