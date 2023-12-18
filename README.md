@@ -1,11 +1,11 @@
 # Latest News
--  Yıldız Holding imzayı attı: Enerji verimliliğine yönelik projelerine bir yenisini daha ekledi
--  "이래서 '절대 명가'라고 하는구나!"…홈 '64G 연속골' 넣은 클럽이 있다, 'KIM도 한몫했어! 역사의 한 페이지 장식'
--  서장훈, 155cm·100kg 사연女에 일침 "짧게 사는 것이 꿈? 그렇게 사는게 행복하냐" [물어보살]
--  1942 yılında Bahçekapı'da 530 bin liraya satılık arsa!
--  «Арсенал» яна биринчи ўринга қайтди, «Реал»да яна йўқотиш. Европада кун ўйинлари.
--  İstanbuk Park'taki kiracı firmanın süresi doldu, tahliye yapılmadı! TOSFED'den kamu zararı uyarısı geldi!
--  OnePlus AI Music Festival Kicks Off Tech-Art Crossover On The Big Stage
--  Veraguas gana concurso 'Las Estrellas de los Valores Meduca 2023'
--  En la próxima nómina de enero de 2024 los canarios también cobrarán menos: estos son los cambios que encontrarás
--  Jähes Liebes-Aus: Trennung im Hause Kardashian-Jenner
+-  Von Böhmen bis nach New York: Adventskonzert der Concordia Strietwald in St.Konrad Kirche
+-  Die Ahornblättrige Platane kann ein stattlicher Baum werden
+-  ADAC: Staus besonders am Freitagnachmittag und Samstagvormittag
+-  "Wir waren immer für die Senioren da"
+-  Kinderkrankenhäuser wollen freie Betten schneller verteilen
+-  Regenwasser kostet in Weilbach künftig Kanalgebühr
+-  Schwarz-rote Regierungskoalition in Hessen ist besiegelt
+-  Märchenhafte Lieder zu Weihnachten präsentiert
+-  استشهاد إعلامي فلسطيني جراء استهداف منزل عائلته في منطقة جباليا
+-  وزير العدل يستقبل وفدا قضائيا من دولة الامارات لتبادل الخبرات القضائية
