@@ -1,51 +1,51 @@
 # Latest News
--  Iran, Azerbaijan to ink agreement on Araz road corridor
--  يقتلون الأجيال بأيديهم!| كتب عمر الشيابي
--  Wereld van familie stort in als Thomas (25) spoorloos verdwijnt na kerstborrel: ‘Durf zelf niet te zoeken’
--  Daniel hinulaang tatamlay ang career
--  نقيب الأشراف يهنئ الرئيس بالولاية الثالثة: سنظل خلف قيادتكم لدفع الوطن للأمام
--  "الوطنية للإعلام" تهنئ الرئيس السيسي بفوزه بالانتخابات الرئاسية 2024
--  رئيس الإنجيلية: السيسي قدم نموذجا للقيادة السياسية القادرة على بناء مصر الحديثة
--  القوات المسلحة تهنئ السيسي بفوزه في الانتخابات الرئاسية
--  بالصور.. مواطنون يحتفلون بفوز السيسي رئيسًا لمصر أمام مسجد مصطفى محمود
--  لمواجهة السيول والأزمات.. الجيزة تنفذ اصطفافًا للوقوف على جاهزية السيارات والمعدات
--  حزب مستقبل وطن يهنئ الرئيس السيسي بمناسبة فوزه في الانتخابات الرئاسية 2024
--  "مستقبل وطن" يهنئ السيسي لفوزه في الانتخابات: نعاهدكم على تقديم الدعم الكامل
--  أسامة الأزهري يهنِّئ الرئيس السيسي لفوزه في الانتخابات الرئاسية 2024
--  بعد قليل.. كلمة مهمة للرئيس عبد الفتاح السيسي
--  البورصة ترتفع بنسبة 2.19% في نهاية تعاملات اليوم الاثنين
--  "اتصال" تنظم بعثة تجارية للمشاركة في معرض "LEAP 2024" بالسعودية
--  قطاع الأعمال: مخطط لمشروع عمراني متكامل على أراضي "الحديد والصلب"
--  مخاطر لا تتوقعها لتناول البيض بهذه الطريقة.. منها التسمم الغذائي والإصابة بالسرطان
--  옥외광고협회 합천군지부 이웃돕기 성금
--  LX한국국토정보공사 함안지사 군에 장학기금
--  김춘근·오영옥 부부 하동군에 이웃돕기 성금
--  동훈 힐마루골프&온천리조트 창녕군에 성금
--  밀양시시설관리공단 인권영향평가 1등급
--  밀양 조은어린이집 시의회 견학
--  김해 진영농공단지 문화센터 2025년 준공
--  합천읍청년회 이웃 돕기 성금 기부
--  창녕 남지읍생활개선회 쌀국수 기탁
--  전문건협 경남도회 의령운영위 장학금 기탁
--  노인회 합천지회 노인대학 교육발전기금 전달
--  고성군 주민강좌·4060 신중년활력 발표회
--  밀양청소년수련관 '동페락 축제'
--  김해YMCA장애인지원센터 송년회 행사
--  산청군 시민정원사 양성교육 심화과정 수료식
--  거창군 하반기 우수공무원 6명 선정
--  농협중앙회 창원시지부 취약 농가에 떡국떡
--  ㈜소토축산 양산시에 인재 육성 장학금 전달
--  밀양시 '지역문화유산 활용' 문화재청장상
--  창원시 내년부터 보훈 수당 월 3만 원 인상
--  강제동원 피해자 삶 오래 기억하도록
--  산청군체육회 '체육인 화합행사' 개최
--  경남 도내 새터민 가정 아이들에게 축복을
--  양산시 상수원관리지역 관리 '매우 우수'
--  [취재수첩]마산해양신도시 정상화 저 멀리
--  [바튼소리] 윤석열 & '기필코'의 독기
--  [사설]일제 강제동원 피해자에게 진정한 사죄·배상을
--  [사설]열악한 지역의료 공백 메울 정책·재정 강화해야
--  Araştırmacılar: Sosyal medya kullanımını günlük 30 dakika azaltmak, zihin sağlığını geliştiriyor
--  [현장의 눈]하동 고교 야구부 창단, 불안한 미래
--  [기고]사랑받는 사람이 사랑도 줄 수 있다
--  [아침을 열며]필수의료·공공의료 위한 의대 정원 확대
+-  Han Kun LLP Opens in New York City to Offer Legal Services
+-  Reaching New Heights! VIVOTEK Climbs Five Spots to No. 12 in Global Security 50 Ranking
+-  GomSpace enters into Joint Venture with French company Ellipse Partners SAS
+-  ShangHai Honourable Women Entrepreneur Business Award 2023 (SHE 2023) Celebrates Outstanding Achievements of Malaysian Women Entrepreneurs
+-  EcoFlow Wins TIME Best Inventions 2023 Award
+-  Dialogue with China | Ecology or Economy? China Achieves Both
+-  How did a seed from Yangling take root in Kazakhstan?
+-  Retro Stage Launches Christmas Collection, Revisiting the Charm of Classic Fashion for the Holidays
+-  Biorithm Secures $3.5 Million in Series A Funding to Advance Maternal Care Worldwide
+-  BP suspends shipments through Red Sea after attacks
+-  Lemin kriisikuntamenettely on loppusuoralla – Muutosneuvottelujen jälkeen henkilöstön määrä vähenee
+-  EU probes X for allegedly sharing illegal content, disinformation on Israel-Hamas
+-  Кметът на Варна нареди спешна проверка защо още при първата буря се налага възстановяване на бронировката на пристанище Карантината (СНИМКИ)
+-  Варненските медии получиха писмо от фалшив имейл от името на пресдедателя на ОбС
+-  Baileys liqueur warning issued ahead of Christmas
+-  Jeste li vidjeli fotografiju Kate Middleton iz 1983. godine? Nema nikakve šanse da biste je prepoznali
+-  Borges: Maduro debe cumplir el acuerdo de Barbados y liberar a los presos políticos antes de Navidad
+-  Calviño afirma que la revisión del impuesto a la banca "está alineada con el acuerdo de Gobierno"
+-  BRICS+ e o futuro da ordem internacional
+-  तीसरी पारी में भारत को दुनिया की तीसरी बड़ी आर्थिक ताकत बनाएंगे, वाराणसी में बोले पीएम मोदी
+-  Humpolec bude mít brzy novou koalici i starostu, rozhodovat se má ve středu
+-  Naveen-ul-Haq banned for 20 months from ILT20 due to breach of contract
+-  AKTUÁLNE V obchodoch našli NEBEZPEČNÉ mäso! Objavili v ňom infekčné BAKTŔIE: Prišlo z Poľska, ak ho máte doma, VYHOĎTE ho
+-  Košičana obvinili z drogovej činnosti: Hrozí mu až 15-ročný trest
+-  Česko bude na Eurovízii zastupovať speváčka Aiko. O jej víťazstve rozhodli najmä hlasy zo zahraničia
+-  Kravu mali zabiť na bitúnku: Pred tragickým osudom ju zachránila deformácia! Pozrite, čo jej trčí z hlavy
+-  Liptov, Tatry, Orava: Takéto sú ceny skipasov v obľúbených lyžiarskych strediskách
+-  Slávna speváčka brutálne spadla z pódia: Nepríjemné zranenia a... Nezvyčajná prosba!
+-  Prezident Sísí si víťazstvom vo voľbách zaistil v Egypte tretie funkčné obdobie
+-  الأعلى للإعلام :السيسي أنقذ البلاد من السقوط وسيصل بها إلى بر الأمان
+-  تحليل رقمي لـ5 انتخابات رئاسية| زهران يتفوق على صباحي.. و"الوفد" أخيرا.. وتصاعد المشاركة
+-  غرفة القاهرة التجارية تهنئ الرئيس السيسي بعد فوزه بفترة رئاسية جديدة
+-  قبرص: أول سفينة مساعدات في طريقها إلى غزة
+-  حقق المركز الأخير.. عبدالسند يمامة: نقبل بنتيجة الانتخابات الرئاسية
+-  Egypte: Sissi réélu sans surprise pour un troisième mandat
+-  اختلط الحابل بالنابل في البرلمان.. نواب البام المشاركون في الحكومة جنباً إلى جنب مع المعارضة
+-  Galette des Rois exceptionnelle du Shangri-La Paris 2024 par Maxence Barbot
+-  10 atividades para aproveitar os dias de calor com as crianças
+-  Řidič špatně zabrzdil auto, sjelo do náhonu. Vůz z něj museli vytáhnout hasiči
+-  The INDIA Diary: Congress is key to the prospects of the alliance, anything less than 100 seats will not help
+-  Egy karácsonyi partin 12 embert öltek meg Mexikóban
+-  Santos tem interesse na contratação de Jorge, do Palmeiras
+-  Fenerbahçe'de Edin Dzeko şoku! Antrenmanda yer almadı
+-  Whindersson Nunes quebra silêncio sobre novo affair após conversas vazadas
+-  Apple will pause U.S. Apple Watch sales starting December 21
+-  Uitbreiding distributiecentrum Lidl aan Zwarthoofd Etten-Leur flinke stap dichterbij
+-  San Nicolás llega al callejón Machado
+-  찰스, 10년차 커튼업체 CEO 근황…"아들, 펜싱 청소년 국가대표"('동상이몽2')
+-  “Es una gran obra”: AMLO previo a la inauguración de la presa Santa María
+-  ΕΥΧΑΡΙΣΤΑ ΝΕΑ ΓΙΑ ΓΚΑΓΙΕΓΟ!
