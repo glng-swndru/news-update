@@ -1,51 +1,51 @@
 # Latest News
--  Argentina refuerza su plan nacional de vacunas para contener la encefalomielitis equina
--  Kate Middleton Tunjukkan Foto Natal saat Kecil, Mirip dengan Pangeran Louis
--  Prakiraan Cuaca BMKG: Hujan Ringan Mendominasi, kecuali di Jawa, Bali dan Nusa Tenggara
--  DFB-Comeback von Toni Kroos? Lothar Matthäus nennt Risiko
--  Chilena Codelco logra acuerdos de contrato con sindicatos y evita riesgo de huelga
--  이상인 "KBS 수신료 분리징수 정착 위해 점검 지속"
--  "Personne ne le sait…" : Chantal Goya fait une grande annonce pour la suite de sa carrière
--  وكالة يونهاب: كوريا الشمالية تقول إنها أطلقت صاروخا باليستيا عابرا للقارات
--  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
--  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
--  "소주 20병씩 먹다 입원. '이래서 죽는구나' 느꼈다" 허재 '금주 선언'[4인용식탁]
--  경정경륜총괄본부의 크리스마스 선물…취약계층 아동 위한 산타클로스
--  수빈X아린, 다시만난 아콩MC들의 귀여운 '아콩~!'
--  “상체로만 던진다” KIA 90SV 클로저의 美유학…류중일 쓴소리 해법 찾을까 ‘앞날 창창한 22세’
--  "전현무와 미술관 절대 안 가!" 이찬원 '손절 선언'[톡파원]
--  이적 성사되면 'RW에만' 4045억 투자...3년 만에 3명째 영입 추진 "더 이상 이적 불가 아니다"
--  Recibe presidente cubano a Secretario General de Consejo Mundial de Iglesias
--  [속보] 김정은 "더 위협적 방식 공세적 맞대응"… 핵무력발전 과업 제시
--  북, ICBM 화성-18형 발사훈련… 김정은 "더 공세적 맞대응"
--  구로구, 노후 공공와이파이 고도화 구축 완료
--  Meghan Markle svela il regalo di Natale sulla lista di Archie, ma costa troppo: “Non lo avrà”
--  금천GC생태포럼·시흥1동 범구민추진위, 금천구 청소년 위해 장학금 기탁
--  Intel XeSS usará extrapolação para competir com FSR 3 e DLSS 3
--  Jonathan Majors é declarado culpado em julgamento por agressão
--  Como mandar localização pelo WhatsApp | Guia Prático
--  Військовий експерт оцінив доцільність проведення флангової операції на лівобережжі Херсонщини
--  Kafe ve restoranlarda yeni dönem! 1 Ocak itibariyle başlıyor
--  Пентагон объявил многонациональную операцию по защите Красного моря
--  Viih Tube e Eliezer fazem ensaio encantador de Natal com a filha, Lua
--  Smeltende harten en brekend ijs in Winter vol liefde
--  VIDEO: Protest koalicije "Srbija protiv nasilja": Tepić i Aleksić počeli štrajk glađu
--  Air Jordans made for Spike Lee and donated to Oregon shelter auctioned for nearly $51,000
--  “La dejaron como el país, en ruinas”: el video que muestra el estado de la Casa Rosada
--  Bose’s Best Earbuds Yet Are the Last-Minute Stocking Stuffer You’ve Been Looking for
--  Türk voleybolu dünyanın zirvesinde
--  Leonel asegura que con la juventud y la mujer, arrasará en elecciones de 2024
--  Brand in pfälzischem Krankenhaus - zwei Tote gefunden
--  Открытый в 2020 году в Ашхабаде Эстетический центр продали родственникам Бердымухамедова с 90% скидкой, — Turkmen news
--  Weather radar forecast Australia for Christmas Day: Warm weather expected for much of Brisbane, Melbourne, Sydney and Adelaide, creating great conditions for Christmas
--  His car company was once worth more than Ford. Now this former billionaire is headed to jail
--  His car company was once worth more than Ford. Now this former billionaire is headed to jail
--  His electric truck company was once worth more than Ford. Now this former billionaire is headed to jail
--  His electric truck company was once worth more than Ford. Now this former billionaire is headed to jail
--  검찰, '400억 불법 리베이트' 경보제약 압수수색
--  79-year-old Tarrant woman arrested after city worker presses charges over dispute at council meeting
--  Dolly Parton opening new pirate-themed restaurant in Florida
--  Diego Topa, furioso por tener que desmentir su muerte: “No es nada gracioso todo esto”
--  الزراعة: ضبط 200 ألف طن بصل مخزن في محافظة واحدة -(فيديو)
--  اتحاد المصريين في الخارج يهنئ الرئيس السيسي بإعادة انتخابه
--  أمريكا تعلن عن عملية متعددة الجنسيات لحماية التجارة بالبحر الأحمر بقيادتها
+-  محافظ أسوان يُشيد بمشروع "أهل مصر" في لقائه بالمشاركات
+-  Příklady, na kterých odvodech zaplatí OSVČ za rok 2023 nejvíce
+-  Agende 2024: le migliori da regalare a Natale
+-  Dalla vetrina virtuale al lusso accessibile: un punto di riferimento per i gioielli palermitani
+-  Tecniche innovative permettono di sconfiggere la miopia in modo sicuro, indolore e veloce
+-  Sostenibilità, bellezza e qualità: ecco gli oli a km zero per valorizzare il territorio
+-  Agende 2024: le migliori da regalare a Natale
+-  [ŽT] Nušluotas 2014-ųjų smurto simbolis. Galingi kadrai iš Izraelio. Kas vyksta (Video)
+-  China Holds 97 Canadians in Prison, Government Says
+-  Sanidad retoma el proyecto del búnker de protonterapia del Doctor Negrín
+-  Urgencias del Insular vuelve a colapsarse con cien pacientes a la espera de ingreso
+-  Ibnor Riza: Keluarga reda selepas dimaklum doktor 6 bulan lalu
+-  Agende 2024: le migliori da regalare a Natale
+-  La serie 'Zorro' se podrá ver en España desde el próximo 25 de enero
+-  Fallece Iosseliani, homenajeado en el festival de cine de 2017
+-  Agende 2024: le migliori da regalare a Natale
+-  라임·옵티머스 후폭풍이 바꾸는 증권가 기상도
+-  “사필귀정” “정치탄압”…‘송영길 구속’에 희비 엇갈린 여야
+-  Agende 2024: le migliori da regalare a Natale
+-  北, ICBM 발사 공식발표. 김정은 "더욱 공세적으로"
+-  Projet de loi immigration: la commission mixte paritaire à nouveau suspendue
+-  Unser Engagement zur Emissionsminderung – Wir sind ein „Climate Leader“ der Financial Times
+-  Še vedno se pogovarjamo o stadionu
+-  Saudi budget carrier flynas takes delivery of 3 A320neo aircraft
+-  Max Q: See you next year
+-  머스크의 ‘X’, 유럽서 퇴출되나…EU “DSA 위반 공식조사 착수”
+-  「茶碗蒸し」が電子レンジで簡単に作れちゃう。あれを使うとなめらかな仕上がりに（レシピ）【2023年回顧】
+-  Mecanismo de Prevención de la Tortura pide “garantizar el trato humano” en Tacumbú
+-  Cherbourg-octeville. À l'occasion d'Octobre rose, Inéo Nucléaire offre 1 000 € à Cœur Cancer
+-  Sporazum rešen, planet obsojen
+-  Ne razumem!, 3.
+-  Nepreslišano: Matjaž Kek, selektor slovenske nogometne reprezentance
+-  Judje v Palestini
+-  Shared Mobility Infrastructure Evolution in Top 20 Smart Cities: Tracking Investments, Technologies, Solution Implementation Status, and Future Trends Worldwide
+-  Messi regala a Nadal su camiseta de Argentina campeona mundial
+-  Servotronics Provides Investor Update on Strategic Vision to Maximize Long-Term Shareholder Value and Initial 2024 Outlook
+-  Muere adulta mayor arrollada en La Guaira
+-  Slovenská dvadsiatka v úvodnej previerke pred MS. Športový program na dnes (19. december)
+-  Puščanje pečata z besedami in zamislimi
+-  ‘Basically, I’m an employee’: Customer asks Walmart worker for company Christmas party details after having to check self out, bag own groceries
+-  How to Fix Your Messed-up WiFi After the Latest Windows Update
+-  Shiba Inu [SHIB] December End Price Prediction
+-  Fed poskrbel za optimizem na borzah
+-  Se kitajski gospodarski čudež končuje?
+-  V petih letih bi Kranjska Gora lahko imela kabinsko žičnico
+-  Velika Britanija: Koga in zakaj kralj vabi na božič
+-  Vancouver-based Skeena closes $80M financing for Eskay Creek mine in B.C.
+-  İranda 57 milyard dollarlıq korrupsiya
+-  Polres Temukan Unsur Kelalaian pada Kematian Mahasiswa IAIN Gorontalo
+-  Fox News Poll: TikTok ban favored by half of voters
