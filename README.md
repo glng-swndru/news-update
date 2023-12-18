@@ -1,11 +1,51 @@
 # Latest News
--  NCT 127 신곡 ‘하얀 거짓말’로 선사할 애틋 감성
--  이천수, 모교 방문→성적표 공개 "학창 시절 별명 '무장공비'"('살림남')
--  '신랑수업' 신성, 뮤비 촬영장 방문한 박소영에 ‘토닥토닥’…스킨십 작렬
--  Israeli Airstrike on Jabalia Camp in Northern Gaza Claims Lives of 90 People - Reports
--  현대에버다임, ‘특수 재난 대응 설비 사업’ 진출
--  Faits divers. Intrusion à la cimenterie d'Altkirch : une action écologiste ?
--  Rugby. « Alsaciens de mes c… » : fin de match sous tension à Colmar, en Fédérale 3
--  Faits divers. Mulhouse : une voiture bloquée... sur une borne
--  Football. Wallemme évincé, des joueurs devraient suivre : le grand chambardement au SR Colmar
--  Guerre Israël-Hamas. Tsahal dit avoir découvert le « plus grand tunnel » sous la bande de Gaza
+-  PJ iniciará audiencia de control de acusación contra el excongresista Freddy Díaz
+-  ترند اليوم| زيادة المعاشات وطرح شقق الإسكان المتميز
+-  تعرف على البضائع والمواد المحظورة الممنوع اصطحابها في السفر
+-  Jenson Button participará con un Porsche en el Mundial de Resistencia
+-  올해 침대 트렌드 키워드는 '거거익선' ... 빅사이즈 호텔형 프레임 인기
+-  Cagayan de Oro gets ready for evacuations as Kabayan moves closer
+-  中 업체, 9천억원 규모 독일 북해 해상풍력 수주
+-  교육부-한국교원단체총연합회 교섭·협의 조인식
+-  삼척블루파워, 고교 졸업장학금 1억 2150만원 전달
+-  भारत को विकसित देश बनने के लिए कुपोषण जैसे मुद्दों का समाधान करना होगा: रघुराम राजन
+-  यमुना एक्सप्रेस-वे पर दो कारों की टक्कर में एक व्यक्ति की मौत, दो बच्चे घायल
+-  Tak Ingin Remehkan Lawan, Yuran Fernandes Bakal Waspadai Semua Pemain Persik Kediri
+-  छात्रा की मौत के मामले में आरोपी क्रेन चालक को नोएडा पुलिस ने गिरफ्तार किया
+-  दिल्ली : भाजपा प्रतिनिधिमंडल का दावा पुलिस ने ज्ञापन सौंपने से रोका
+-  오늘부터 노바백스 신규백신 접종
+-  सीआईडी ने संपत्ति विवाद मामले में कलकत्ता उच्च न्यायालय की न्यायाधीश के पति को समन जारी किया
+-  La política de austeridad de Scholz será un "freno importante" para Alemania
+-  ¡Riquelme es nuevo presidente de Boca Juniors! Román sacó ventaja irreversible a Ibarra-Macri
+-  राजस्थान, मध्‍य प्रदेश और छत्तीसगढ़ के नए मुख्यमंत्रियों ने दिल्ली में नड्डा से मुलाकात की
+-  จุดยืนไทยในความขัดแย้งอิสราเอล-ฮามาส
+-  Минобороны Японии: ракета КНДР при обычной траектории покрывает территорию США
+-  Make Healthier Fish and Chips This Summer
+-  부산시, 한파 취약계층 거주지 대상 순찰·점검 강화
+-  Individu baran boleh jadi punca kemalangan, bermasalah di tempat kerja
+-  부산정보산업진흥원 원장에 김태열 씨 임명
+-  Geofence Warrant: क्रिमिनल्स के लिए शामत तो मासूम जिंदगियों से खिलवाड़! जानें क्या है ये बला
+-  특허청-英 퀸 메리 런던대, 심사관 역량강화 협력
+-  iOS 17.3 Update For iPhone Users Expected In January 2024: These Features Coming
+-  Internet outage in Pakistan: Social media, YouTube connection disrupted
+-  Facing Pressure, Security Council To Vote On New Gaza Ceasefire Call
+-  Menelisik Gugatan PKPU ke Antam oleh Crazy Rich Surabaya Budi Said
+-  Vrishchik Saptahik Rashifal: इस हफ्ते आर्थिक मामलों में मिलेगी सफलता, कोई उठा सकता है फायदा
+-  محافظ دمياط تعتمد المخطط التفصيلي لمدينة كفر البطيخ
+-  셀트리온, 바이오시밀러 새 파이프라인 日 임상 1상 승인
+-  Exclusive Video: Dreamcatcher Reviews Their Own “OOTD,” Shares Warm Messages For Each Other, And More
+-  속초시 '2023년 10대 뉴스' 선정...1위에 시 승격 60주년 기념행사
+-  Travel: भारत की इस जगह घूमकर अमेरिका भूल जाएंगे आप! जानिए कैसे पहुंचे
+-  룸인어스, 친환경 프리미엄 라인 ‘2 in 1 제로매트 풀커버’ 출시
+-  EU:n pakkausjäteasetus voi mennä vielä huonoon suuntaan, sanoo pakkausalan lobbari
+-  중기중앙회, '2003 中企공동구매 전용보증 유공자' 포상
+-  내년 공공기관 청년인턴 2.2만명 채용…6개월 인턴 1만명 예상
+-  Kementerian Luar Negeri Prancis Mengutuk Serangan Israel yang Menewaskan Diplomatnya
+-  VIDEO: El Ejército israelí asegura haber descubierto el "mayor túnel de Hamás" hasta la fecha
+-  전국시도교육감협의회, 유보통합 재정 확보 방안 모색…국회정책토론회 개최
+-  김동욱 서울시의원, ‘무차별 범죄와의 전쟁’ 예방·지원 제도 마련
+-  National road toll climbs to worst level in five years
+-  전기차 충전사업 활발...해외 노리는 롯데, 오프라인 거점 확대하는 신세계
+-  양기대 의원, 김동연 도지사와 바이오 메디컬 클러스터 조성 협의
+-  संसद की सुरक्षा में सेंधमारी - ललित झा ने व्हाट्सएप पर कई लोगों से वीडियो साझा किया
+-  Denise Chariesta Murka Konten Menyusui Miliknya Dihujat dan Dilecehkan
