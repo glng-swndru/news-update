@@ -1,51 +1,11 @@
 # Latest News
--  몰테일, 해외직구 종합 플랫폼 도약 본격화
--  팀네이버, 건보공단과 초대규모 AI 기반 공공 서비스 혁신 협력
--  코어에이아이, 포스코이앤씨에 AI 비서 구축
--  엑스로그·효성ITX, ‘실시간 데이터 동기화 솔루션’ 공급 확대 맞손
--  국제사이버보안인증협회, ‘ISO 23806’ 국제인증심사원 배출
--  Siyonist terör devleti İsrail Gazze'den sonra gözünü o ülkeye dikti: The Guardian 'yeni bir savaş kaçınılmaz' uyarısında bulundu
--  Onuachu Kasım ayının oyuncusu seçildi
--  Zeray Next Capital'de yüzde 25 indirim fırsatı! 2025 sonunda teslim!
--  Jumlah mangsa banjir di Kelantan meningkat
--  अभिषेक-ऐश्वर्या: अगर अभिषेक और ऐश्वर्या का तलाक हो गया तो एक्ट्रेस को हर महीने कितना गुजारा भत्ता मिलेगा
--  בירדן מכחישים גשר יבשתי מדובאי לחיפה: "דיווחים שקריים"
--  Rivers Crisis: Amaewhule Breaks Silence, Says Tinubu’s Gesture Made 27 Lawmakers Defect To APC
--  لماذا تتراجع عن العطس في اللحظة الأخيرة؟. إليك السبب وحيلة لن تصدقها
--  تنبيه مهم من "أمانة الطائف" لملاك المباني التجارية والسكنية
--  قتل زوجة أخيه وابنتها بطريقة بشعة.. تنفيذ حكم الشرع بحق مواطن بمكة
--  Estrazione Million Day di oggi, 18 dicembre 2023: i numeri vincenti di lunedì
--  Corona-Zahlen im Landkreis Uckermark aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Teltow-Fläming aktuell: Zahlen und Fakten aus der Region
--  Hostages accidentally shot by Israel made help sign with leftover food
--  Läänemaa parimaks jalgpalluriks valiti teist aastat järjest Martin Salf
--  Corona-Zahlen im Landkreis Spree-Neiße aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Prignitz aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Man jumps into nuclear cooling tower, records surreal videos
--  Corona-Zahlen im Landkreis Potsdam-Mittelmark aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  “내 아내가 꿈에서 네가 골을 넣었대”... 풀백을 공격수로 출전시킨 감독→6분 만에 해트트릭 달성
--  Woman reveals what the ‘mug theory’ is and the cup she gives guests says everything about how much she likes them
--  Corona-Zahlen im Landkreis Ostprignitz-Ruppin aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Денежные переводы из России в Азербайджан сократились почти в 3 раза
--  Aqşinlə Hüseynin TikTokda nə işi var?
--  Залужный о прослушке в кабинете
--  Corona-Zahlen im Landkreis Oder-Spree aktuell: Inzidenz für Landkreis Oder-Spree, Brandenburg und Deutschland
--  HRT bi mogao nagrabusiti zbog Lepe Brene, slučaj se istražuje: ‘Ovo nije smjela raditi’
--  Corona-Zahlen im Landkreis Oberspreewald-Lausitz aktuell: Aktuelle Daten zum Coronavirus
--  Rivers APC accuses Fubara of burning Assembly complex as Ganduje receives 27 defected lawmakers
--  Corona-Zahlen im Landkreis Oberhavel aktuell: Inzidenz für Landkreis Oberhavel, Brandenburg und Deutschland
--  คมนาคมสั่งขนส่งอำนวยความสะดวกปชช.ช่วงปีใหม่
--  Corona-Zahlen im Landkreis Märkisch-Oderland aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  O vulpe a adus la disperare o familie din Jibou. Unde și-a făcut culcuș animalul sălbatic
--  Corona-Zahlen im Landkreis Havelland aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Elbe-Elster aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Dahme-Spreewald aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Corona-Zahlen im Landkreis Barnim aktuell: Zahlen und Fakten aus der Region
--  Германия — От одежды и игрушек до оливок и кальмаров: риск для здоровья и обман потребителей
--  Corona-Zahlen in Potsdam aktuell: Die Coronavirus-News aus der Region
--  Is tequilia the new G&T? Selfridges see sales increase 250% as Gen Z lap up celeb-loved drink that 'is cleaner' than other cocktails - while sales of gin, vodka and whisky plummet
--  Scholz erneut mit Coronavirus infiziert
--  "Il a détruit toute la série One Piece" : cette adaptation d'un célèbre anime par Netflix enflamme les abonnés
--  Corona-Zahlen in Frankfurt (Oder) aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen in Cottbus aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Corona-Zahlen in Brandenburg an der Havel aktuell: Aktuelle Daten zum Coronavirus
+-  Gaziantep Beylerbeyi'nde 66 m² 2+1 daire icradan satılıktır
+-  IBM to acquire StreamSets and WebMethods from Software AG for $2.3B
+-  Trabzon'un Sırtladığı Su Ürünleri İhracatı: Doğu Karadeniz'de Büyük Artış
+-  Government guidance to force teachers to out trans kids to parents
+-  Trevor Noah to host Grammy Awards for fourth straight time
+-  Queens Of The Stone Age on stepping up to headline Download 2024: “There’s no reason to trip out”
+-  'Sebenza girl' Thuso Mbedu joins Mark Ruffalo-led HBO crime drama series
+-  Countryfile viewers blast BBC for ‘rip-off’ episode – and are seriously distracted by guest’s ‘fake’ appearance
+-  Aqua Metals talks tech, ESS volumes and the opportunity in metals price fluctuations
+-  U susret blagdanima: Božićni koncert učenika Osnovne glazbene škole
