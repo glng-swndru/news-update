@@ -1,51 +1,11 @@
 # Latest News
--  49ers vencem a 6ª seguida na NFL; Bills atropelam os Cowboys e seguem vivos
--  ลุ้นปีหน้า! ก.พลังงานมอบของขวัญปีใหม่คนไทย "ลดค่าไฟ"
--  पुरस्कार र पदक वितरणमा बदमासी
--  "손흥민의 압박이 득점을 만들어냈다"→리버풀 레전드 극찬
--  셀트리온, 일본에서 건선 치료제 코센틱스 바이오시밀러 임상 1상 승인
--  문가영 '-11℃ 북극 한파, 배꼽 드러낸 패셔니스타'
--  [핫클릭] 한파에 달리던 KTX 열차 유리창도 파손 外
--  The Key to the Kebab
--  Dynamic duo Martinez and Thuram fire Inter four points clear
--  Rams move into NFC's No. 7 seed with 28-20 victory over Commanders
--  أوكرانيا تعلن العثور على جهاز تنصّت في مقر لرئاسة الأركان
--  توقيف نائب أوكراني فجر3 قنابل يدوية خلال اجتماع لمجلس قروي
--  Harga Kripto Hari Ini 18 Desember 2023: Bitcoin dan Ethereum Masih Babak Belur
--  신혼부부 10쌍 중 3쌍, 맞벌이·무자녀 '딩크족'
--  Ağrı'nın çeşitli ilçelerinde eğitime kar engeli
--  İsrailli aşırı sağcı bakandan hükümete insanlık dışı "yardım" tepkisi!
--  Sinir krizi geçirdi, camdan atladı: Aksaray'da kan donduran anlar
--  Aseguran que Kendall Jenner y Bad Bunny ya no son pareja
--  Video: Más de 2 horas de espera para cruzar por puentes internacionales a El Paso
--  Anaya no tiene orden de arresto, advierte Xóchitl
--  ¿Juan Escobar fue al Azteca a ver la final entre América y Tigres? La verdad detrás del video viral
--  풀무원, ‘풀스케어’ 연화식 2종 ‘고령친화우수식품’ 지정
--  В США заявили об «агрессивной вербовке» украинцев в ВСУ
--  전국 곳곳서 계량기 등 동파 130여건…한랭질환 주의
--  Théo Maledon signe chez les Suns !
--  Les notes de Spurs – Pelicans : nouvelle raclée pour Victor Wembanyama et sa bande, ça commence à faire beaucoup
--  Young family spends $4.8m on Camberwell home they saw half an hour before
--  Young family spends $4.8m on Camberwell home they saw half an hour before
--  Sarawak to provide free education at state tertiary institutions from 2026, says premier
--  Nationwide Police operation nets 83, including 45 wanted for narcotics, in crackdown
--  В России разработали изделие для призыва к пилотам дронов ВСУ сдаваться в плен
--  김포골드라인·경인국철 전철 지연으로 '출근 대란'
--  Северная Корея вновь запустила баллистическую ракету
--  Endrick vai ao Bernabéu e vê Real Madrid assumir liderança com goleada sobre o Villarreal
--  [속보] 합참 "북, 동해상으로 장거리탄도미사일 1발 발사"
--  US bank stocks drop as Fed policymaker plays down rate-cut expectations
--  हुलाकी राजमार्गमा अवरोध
--  Ætlaði að gista í Grindavík en var hótað handtöku
--  Minor earthquake strikes western Quebec on Sunday afternoon
--  Profil Bayer Leverkusen, Klub Jerman Favorit Juara Liga Europa
--  Polisi Geledah Kontrakan Terduga Teroris di Pasar Kemis Tangerang
--  Tentera rampas tiga tan kokain bernilai AS$210 juta
--  Nein zu Referendum: Chile lehnt auch konservativ geprägte Verfassung ab
--  Middletown Fire Department Brings Holiday Joy at New Department Store
--  Bad Bunny y Kendall Jenner terminaron su relación, según revista People
--  Cloudminer Introduces Pioneering AI-Driven Cloud Mining for
--  Death and transfer in the West Bank
--  Bumbung kelab sukan runtuh, 13 maut
--  Flamengo Sub-16 vence o São Paulo e conquista a Adidas Cup
--  用 AI 一鍵換裝試衣，這事就該阿里巴巴來做
+-  Rastrean por aire y tierra a desaparecido en El Largo Maderal
+-  '무보살', 세계 천재인명사전 1위 IQ 204 사연자 출연
+-  '찾아가는 전국민 희망콘서트', 보령서 올해 마지막 공연 연다
+-  지석진, 건강 문제로 '런닝맨' 출연 잠정 중단
+-  폴킴, 핑클 '화이트' 24년 만에 리메이크
+-  트렌드지, 2024년 1월11일 데뷔 2주년 스페셜 싱글로 컴백
+-  대성, 오늘 스페셜 싱글 '흘러간다'로 솔로 컴백
+-  '사랑한다고 말해줘' 정우성·신현빈, 키스 1초 전 포착
+-  치킨 4.5% 올라 3만원 육박 ... 소비자들, 가성비 좋은 마트·편의점 치킨 찾아
+-  '스타다큐 마이웨이' 심현섭, '심혜진과 3살 차 고모와 조카 사이였다'
