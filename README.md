@@ -1,51 +1,51 @@
 # Latest News
--  Kriisiseura harkitsee jo päävalmentajan potkuja - tämä huippunimi tilalle?
--  Profesorius apie Izraelio karių nušautus įkaitus: tai gali būti Netanyahu pabaigos pradžia
--  Funke Akindele excites movie lovers with ‘A Tribe Called Judah’
--  Landwirte-Protest: Trecker versperren B61 und Zufahrten bei Uchte
--  LEGA SERIE A STARS AT THE WORLD FOOTBALL SUMMIT ASIA IN SAUDI ARABIA
--  Sandstorm Gold Royalties Declares Quarterly Dividend for First Quarter 2024
--  REPORTERKA RT BALKAN POGOĐENA U GLAVU: Bahato ponašanje pristalica "Srija protiv nasilja" ispred RIK-a (VIDEO)
--  నెలలోగా నామినేటెడ్‌ పోస్టులు!
--  فلومينينسي يطيح بأحلام الأهلي المصري في مونديال الأندية
--  Arsenal top Premier League as Liverpool prepare to host Man Utd
--  Giants QB Tommy DeVito Embroiled in Bizarre New Jersey Pizzeria Drama
--  Sketch History
--  Die Entdeckungsreise ging mal wieder schief
--  Luftmatratzen mit Krawatten füllen
--  Vom Tierquäler zum Folterknecht
--  Napoleons neue Strategie
--  Die Erfindung des Zweitschlüssels
--  Technologien des CCS-Projekts: Der Abschluss des CCS4CEE-Projekts
--  Napoli-Frosinone, Soulè segna da fuori area? E Kaio Jorge...
--  Follia Rublev, nuovo scatto d’ira: mano in faccia al giudice di sedia
--  అసెంబ్లీలో స్ర్కీన్‌.!?
--  Stemming VN-Veiligheidsraad over wapenstilstand Gaza uitgesteld
--  Enerji işbirliği derinleşiyor! Dost ülke ile anlaşma sağlandı
--  Güney Afrika'dan UCM'ye çağrı: İsrail'in savaş suçları soruşturulsun
--  İşgalci İsrail'den Filistinli esirlere "sistematik" intikam!
--  Yahudi yerleşimcilerden skandal! Namaz kılan Müslümanlara biber gazı attılar
--  Lo que deja el quinto ciclo del diálogo del ELN y el Gobierno de Colombia en México
--  البعثة الروسية في بروكسل: العقوبات الأوروبية ضد موسكو فشلت تماما
--  Neue Supermarkt-Preisschilder: Kunden droht Kostenfalle
--  Slim apuesta a empresas detrás de megaproyecto petrolero de México
--  Hornets’ Miles Bridges denied access to Canada for game vs. Raptors due to legal problems
--  Nara Lokesh : నియంతృత్వంపై ప్రజాయుద్ధం
--  Leser-Fotos: So schön ist der Main-Kinzig-Kreis
--  Ryan Gosling gifts new version of ‘I’m Just Ken’ for Christmas
--  El PP acepta evaluar más en profundidad la calidad hospitalaria de Madrid
--  Minister Komati Reddy : కేటీఆర్‌, హరీశ్‌కు మతి భ్రమించింది
--  Massy, Salvation Army give back with annual holiday feeding programme
--  Vlammen slaan door het dak bij brand in appartement
--  «أمريكية الشارقة»: تخصص جديد في «الحماية من الحرائق»
--  DGB Energie moet 3 jaar stoppen met telefonische klantenwerving
--  الذهب يرتفع مع تراجع عوائد السندات
--  Whitney Cummings welcomes her first '3-D printed human,' a baby boy
--  ΑΕΚ: Μουκουντί και Γκατσίνοβιτς είναι εκτός τόπου και χρόνου
--  Ministarstvo zdravlja u Gazi: Neophodna evakuacija više od 5.000 ranjenih
--  اعتماد الاشتراطات المهنية للعاملين بمجال المواد البترولية
--  PIRAMAL PHARMA SOLUTIONS COMMEMORATES OPENING OF ITS ADC MANUFACTURING EXPANSION IN GRANGEMOUTH, SCOTLAND
--  Galatasaray Teknik Direktörü Buruk UEFA Avrupa Ligi'nde turu geçeceklerine inanıyor
--  VÍDEO: falta assinalada a Quaresma sobre João Mário e 2-0 anulado a Gyökeres
--  Odgođeno glasanje SB UN-a o rezoluciji o Gazi
--  Rocksteady confirma vazamentos de Esquadrão Suicida: Mate a Liga da Justiça
+-  “Ukraynaya ayrılan büdcə tükənir”
+-  이정후, 사이영상 투수와 같이 뛰나… 美 매체 “SF, 스넬 영입 근접”
+-  '新 조선의 4번타자' 김범석 “타이베이돔 1호 홈런공 박물관으로, 큰 영광”[스한 인터뷰]
+-  Soccer-Bela and Nzola included as Angola name squad for Cup of Nations finals
+-  Baileys liqueur warning issued ahead of Christmas
+-  Debevec i Mehmedagić još u prostorijama SIPA-e
+-  Championne du monde de handball, Alicia Toublanc décrit « une aventure humaine et sportive de fou ! »
+-  Un choc pour le Stade Rennais, le tableau complet de la Ligue Europa 2023-2024
+-  Quels métiers comptent le plus de travailleurs immigrés en Bretagne ?
+-  Dans les supermarchés, le rayon marée menacé de disparition
+-  Une « chasse à l'homme inédite » : Julie Depardieu défend son père
+-  Force Ouvrière : l'ex-patron finistérien Marc Hébert condamné à six mois ferme pour harcèlement sexue
+-  Illuminations de Noël en Bretagne : votez pour la plus belle photo de 2023
+-  États-Unis : le convoi de Joe Biden entre en collision avec une voiture
+-  La Corée du Nord tire un nouveau missile capable de toucher les États-Unis
+-  Guerre Israël-Hamas : les urgences de l'hôpital al-Shifa sont « un bain de sang », selon l'OMS
+-  Chine : au moins huit morts après un séisme dans le nord-ouest du pays
+-  « C'est un stress permanent » : l'insoutenable attente des parents de Coline Fay, incarcérée au Sénégal
+-  Ana Thaís elege melhor em campo pelo Fluminense e diz: 'Feio é ficar fora logo de cara'
+-  André é eleito o melhor jogador em campo na vitória do Fluminense sobre o Al Ahly no Mundial de Clubes
+-  La Evo 200 di CoopVoce torna disponibile per le feste: l'attivazione è gratuita grazie al codice sconto
+-  Cotação do Brent para entrega em fevereiro sobe 1,83% para 77,95 dólares
+-  Porro arrasador após 'bis' de Gyokeres ser anulado: "Achavam mesmo..."
+-  This mind-blowingly open-ended RPG might be the next Baldur's Gate 3: 'If you have the patience, you could wipe out an entire town by just turning everyone against each other'
+-  Vučić najavio: Moguće ponavljanje izbora u Beogradu pod jednim uslovom
+-  Marcelo, do Fluminense, define a final do Mundial de Clubes como: "O maior jogo das nossas vidas"
+-  “살라, 더 브라위너 내가 판 거 아닌데? 나는 억울해”... 첼시 시절 회상한 무리뉴
+-  GRAPHIC CONTENT WARNING: The Block's Elyse Knowles shocks as she shares picture of painful looking condition
+-  UK minister’s introduction ceremony in House of Lords interrupted by Mission: Impossible music
+-  God of War creator unhappy with series’ direction, says, “I don’t want these characters to grow”
+-  Moderation or Censorship? Illicit Content on Elon Musk’s X Draws EU Investigation
+-  (ВИДЕО) Насилство на протестот на опозицијата: Се удираа со клоци и тупаници
+-  Derek Adams Scottish football blast a 'sackable offence' for Ross County boss rages ex Premiership star
+-  Neil Lennon tells Celtic fans to be careful what they wish for as board abuse sparks Dermot Desmond defence
+-  Lawrence Shankland sends Rangers transfer sleuths into frenzy as Hearts striker 'likes' cup final party post
+-  Appalling Celtic transfers heap the pressure on standout stars as figurehead made to do four jobs
+-  John Hartson fires loaded Celtic rupture claim as 'coasting' players and Brendan Rodgers hit with brutal double whammy
+-  Philippe Clement goes Dutch to put Rangers first in Cup confession with rousing answer fans didn't get to hear
+-  Hamilton Accies believe they can still topple Falkirk in title bid, says Lewis Smith
+-  Toni Kroos 'seriously considering' Germany retirement U-turn as Euro 2024 hosts pull out all the stops for Scotland
+-  Rangers diehards soak up VAR rage from rivals on defiant Hotline as distraught regular predicts end game
+-  Rangers Treble tilt is ON but Philippe Clement won't even whisper it as Craig Moore makes transfer prediction
+-  Who takes blame for Celtic problems as Rodgers, Lawwell and Desmond all pulled in front of Monday Jury
+-  Celtic transfer bulletin as Mathias Kvistgaarden suitor list swells, Araujo latest and price 'rises' for signing wildcard
+-  Celtic and Rangers stuck in a 'time warp' as Martin O'Neill and Alex McLeish unite in blasting derby away fan lockout
+-  Scottish football pyro survey as fans have their say on fiery topic dividing opinion
+-  Kenny Miller claims Rangers have Celtic fans PANICKING as pundit senses fear inspired by Philippe Clement
+-  Aberdeen savage Rangers in astonishing official match report as referee, VAR and Todd Cantwell filleted
+-  Moment drink driver avoids drowning to death by inches after ploughing through a brick wall and onto a canal path after night out
+-  Пентагон 30 декабр куни Украинага ҳарбий ёрдам учун пул тугашини маълум қилди.
