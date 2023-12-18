@@ -1,51 +1,51 @@
 # Latest News
--  MAKI Nilai Firli Bahuri Tak Bisa Bawa Dokumen Penyidikan KPK untuk Kepentingan Pribadi di Praperadilan
--  Seahawks vs. Eagles odds, line, spread: Monday Night Football picks, predictions from model on 176-129 run
--  Mladík šokoval ľudí tým, čo zjedol: Z tejto špeciality sa vám obráti žalúdok
--  Winterpause auf Baustelle bei Breitendiel
--  Pfarrer Karl-Josef Kraus ist verstorben
--  Wer kennt diesen Hinterhof?
--  Horoskop: Magie zu Silvester – für diese Sternzeichen erfüllt sich schon bald ein Wunsch
--  Schaafheimern bleiben Steuererhöhungen erspart
--  Kreative Kinderbücher zum Thema Tierleben
--  ( 100 jordan ) في المدينة الوردية ( البترا )
--  الجيش الأردني : استمرار الاشتباكات على الحدود وضبط صواريخ روكيت و(آر بي جي)
--  جيش الاحتلال يعترف بمصرع جنديين جديدين بغزة
--  ما علاقة الإحساس بالجوع الدائم والنوم
--  'Baldur's Gate 3': How to Move Bookcase in the Cellar and Get the Treasure Inside
--  Traders and residents hit out at 'inconvenient' crossing plans
--  Türkiye’ye getirilen Gazzeli sevinçten secdeye kapandı
--  Cumhurbaşkanı Erdoğan ve Macaristan Başbakanı Orban'dan ortak basın toplantısı
--  Gazze’de can kaybı 19 bin 453’e yükseldi
--  Ece Ronay adli kontrol talebiyle hakimliğe sevk edildi
--  AB, X’e resmi soruşturma başlattı
--  Petrol devi BP, Kızıldeniz’deki petrol sevkiyatlarını durdurduğunu açıkladı
--  İYİ Partili Zorlu: Partimize yönelik planlı bir saldırı var
--  AB'den Rusya'ya yeni yaptırımlar
--  Ancelotti, Arda Gülerin forma giyeceği tarihi açıkladı!
--  Raffi Ahmad Buka Bisnis Baru di Gunungkidul, akan Jadi Beach Club Terbesar
--  IGATSES KOOLISKÄIMIST: röövitud Alex jõudis tagasi kodumaale
--  Yerinde Dönüşüm projesine başvurular 250 bini aştı
--  العصبة الإحترافية تبرمج مؤجلات البطولة
--  US Military Action Against Houthis May 'Expand War' in Yemen
--  Orbán Viktor: „A nagy terv az az, hogy a törökök meg a magyarok együtt lesznek győztesek a 21. században” – Egy „jó üzlet” már meg is köttetett – fotó
--  Гулжигит Алыкулов примет участие в Кубке Азии в составе сборной Кыргызстана
--  Три клуба первой лиги оповестили, когда выйдут из отпуска
--  У БАТЭ новый генеральный директор
--  "Кяпаз" двух белорусов завершил выступление в Кубке Азербайджана
--  "Штурм" — "Слован" и другие стыковые пары 1/16 финала в Лиге конференций
--  وزارة الصحة الليبية تبحث جلب أطباء أتراك لإجراء جراحات دقيقة ومتخصصة
--  Mer än var fjärde ung man saknar någon att prata med
--  This is the most absurd blend of retro-futuristic looks and server grade hardware that I've ever seen, and it's all in a laptop, and I want one badly
--  Stručno obrazovanje doprinosi ekonomskom razvoju države
--  With missed game, Tyreek Hill falls behind Calvin Johnson's receiving yardage record pace
--  מכבי חיפה פרסמה את מתווה המועדון להקצאת כרטיסים למשחקי הבית
--  Nach Hamas-Angriff auf Israel: Fast die Hälfte der jüdischen Schüler in Berlin blieb zeitweise aus Angst zu Hause
--  Zimsko izdanje Street Food festivala stiže na Vračar od 22. do 24. decembra
--  Esquadrão Suicida: Mate a Liga da Justiça tem detalhes de sua história vazados
--  PM Narendra Modi lays foundation stone and dedicates to nation multiple development projects worth over Rs 19,150 crores in Varanasi, Uttar Pradesh
--  영국에서 성폭행범→스페인에서 인생역전?... 바르셀로나 예의 주시
--  Judicial Working Group Recommends Reopening Connecticut Juvenile Training School
--  Prima del Milan c'è l'Atalanta: la Salernitana di Pippo Inzaghi gioca alle 20:45
--  ЕС введет санкции против "бенефициаров передачи имущества" в России
--  Profit Sales Continue in Bitcoin: The Whale Who Was Patient for 8 Months Made Sales of 9 Million Dollars! Here's the Profit!
+-  Gazze'de İsrail soykırımı devam ediyor: Öldürülenlerin sayısı 19 bin 453'e yükseldi
+-  Biden's approval rating at record low in new poll
+-  Santos has message for ex-colleagues: 'I'll outlive them'
+-  Ove vrste kruha trebate izbjegavati: Stručnjaci preporučuju najzdravije opcije
+-  Se autoriza la pesca de anchoveta con embarcaciones de cerco
+-  Lo que gana un médico en Estados Unidos, según la especialidad
+-  Masala lobt Pistorius-Vorschlag: "Das schwedische Modell ist der einzig gangbare Weg"
+-  Ermənistan bu iki ölkə ilə hərbi saziş imzaladı
+-  Aberdeen Women captain Hannah Stewart backs team to make improvements in the new year
+-  Aberdeen boss Barry Robson demands immediate Premiership response to Viaplay Cup final loss
+-  7 tips for a calmer Christmas from Longside’s Honest Mummy Instagram guru
+-  Duas casas são invadidas por criminosos em menos de menos 5 horas em Sinop; motocicleta e joias furtadas
+-  Caley Thistle boss Duncan Ferguson demands defensive improvement
+-  Crocodiles roam the streets of Australia after Cyclone Jasper floods whole neighbourhoods and sinks planes at airport
+-  Prigozhin Supporters Call to Name St. Petersburg Street in His Honor
+-  Egypt's Abdel Fattah al-Sisi Wins 3rd Term As President With 89.6% Votes
+-  Police say driver accidentally struck parked SUV in Biden’s motorcade near campaign headquarters
+-  Photodynamic action weakens resistance to antibiotics in bacteria that attack airways
+-  Exoplanets' climate: It takes nothing to switch from habitable to hell, say researchers
+-  Coral atoll islands may outpace sea-level rise with local ecological restoration, scientists say
+-  FTX Owes More to Lawyers Than Creditors in Bankruptcy Case
+-  Ziwe Exposes George Santos Once and for All in Scathing Sit-Down
+-  Driver Who Crashed Into Joe Biden’s Motorcade Slapped With DUI Charge
+-  Christian Rach: „Die deutsche Küche ist deutlich vielseitiger, als man denkt“
+-  Ze dachten even rust te hebben in Achtmaal, maar een grote ontwikkelaar wil windmolens toch doorzetten
+-  Mandatory return-to-office will mean an older, less diverse federal workforce
+-  Bayern Munich’s Thomas Müller is happy about the draw, finds SS Lazio “interesting”
+-  ‘I cant believe customers think its ok to throw food at service workers’: Viewers defend barista after customer threw old coffee at her
+-  'Amazing' manager Celtic looked at before Rodgers is top of table with 17 wins from 21
+-  Container für Flüchtlinge am Böbinger Wertstoffhof?
+-  The best graphics cards 2023: GPUs for every budget
+-  Nógrádban több ezer fiatal részesült anyagi támogatásban az Ifjúsági Garancia programban
+-  Watch Severe Winds Hit Airport In Argentina, Damaging Almost 20 Planes
+-  Report: Everton still want to sign 'incredible' attacker they bid £25m for a year ago
+-  When Will ‘Maestro’ Be on Netflix?
+-  احتفالات في شوارع الأقصر بفوز السيسي بفترة رئاسية جديدة
+-  وزير الأوقاف يهنئ السيسي بالفوز في الانتخابات: الشعب قال نعم للقائد البطل
+-  معيط: مبروك لمصر شعب اختار الوطن ورئيس أدى الأمانة بإخلاص
+-  أمين دُور وهيئات الإفتاء بالعالم يهنِّئ الرئيس السيسي بالفوز في الانتخابات الرئاسية
+-  وزير الدفاع الأمريكي: دعمنا لإسرائيل راسخ ونحثها على تقليل الضرر بين المدنيين بغزة
+-  المشاط تهنئ السيسي: الشعب استهدف الحفاظ على مقدرات الوطن وسط التحديات
+-  وزير دفاع الاحتلال: التمويل لغزة كان يستخدم لبناء الأنفاق
+-  مدبولي يتابع خطط النهوض بالصناعات اليدوية ضمن مبادرة "صنايعية مصر"
+-  وزير دفاع الاحتلال: لن يكون لنا دور مدني بغزة بعد القضاء على حماس
+-  GoTo, TikTok, dan UGM Kolaborasi Bangun Pusat Pengembangan Talenta Digital
+-  "Encontrar soluciones latinoamericanas": Moscú pide abstenerse de injerir en la disputa del Esequibo
+-  Streit zwischen Boris Becker und Nick Kyrgios: Tennis-Ikone fordert mehr Respekt
+-  Dorong Sektor Peternakan, DKP3 Kota Sukabumi Giatkan Sekolah Lapang
+-  „Istorinė diena ir momentas.“ Vokietijos kariuomenė atvyksta į Lietuvą
+-  Kinija praktikuosis karui kosmose. Kritikai pašiurpę – „tai prilygsta branduolinio karo kurstymui“ (Video)
