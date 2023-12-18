@@ -1,11 +1,11 @@
 # Latest News
--  Double trouble! Ranveer Singh launches his wax statues at Madam Tussaud`s
--  اس تصویر میں کتے کے رخ کا اندازہ لگانا بہت حیران کن ہے
--  Επεισόδιο ενδοοικογενειακής βίας στη Χαλκίδα: Άνδρας κατήγγειλε τη σύντροφό του για ξυλοδαρμό
--  Bill To Amend Some Provisions Of Trai Act Introduced In Lok Sabha
--  Roban el Niño Jesús del belén de un pueblo de Alicante y piden en redes un rescate de 2.000 euros
--  Setlere Ara Verdi: Ünlü Oyuncu Mesleği Olan Veterinerliğe Geri Döndü!
--  ردا على إجراء مماثل من تشاد.. السودان يأمر ثلاثة دبلوماسيين تشاديين بالمغادرة
--  삭스 슈즈 신경전이 벌어졌다
--  Pilihan raya Presiden Indonesia: Gandingan Prabowo, Gibran terus mendahului
--  Rishab Shetty adopts govt Kannada school in hometown Keradi
+-  Konya'da akaryakıt kaçakçılığı operasyonunda 8 bin 835 litre kaçak akaryakıt ele geçirildi
+-  Sacha Boey için bir iddia da Almanya'dan
+-  Krajne pravicová AfD získala v Sasku svoj prvý post starostu
+-  Prečo sa McDonald’s radí medzi najlepších zamestnávateľov na Slovensku?
+-  ASI ने वाराणसी कोर्ट में पेश की ज्ञानवापी सर्वे रिपोर्ट
+-  Promena u vodama “Bermudskog trougla”: O čemu se radi?
+-  정개특위, 위성정당 방지법 첫 논의…여야 견해차만 확인
+-  與 뉴시티 특위, '구리시 서울 편입' 특별법 내일 발의
+-  당정 "강원동계청소년올림픽, 잼버리처럼은 안돼…만반 준비"
+-  나경원 "우리 모두 내려놓고 반성하며 생동감 있는 정당을"
