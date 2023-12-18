@@ -1,51 +1,51 @@
 # Latest News
--  Más de 2,8 millones de venezolanos residen en Colombia, según el Gobierno
--  מזכיר ההגנה אוסטין הודיע אילו מדינות ישתתפו בכוח המשימה נגד החות'ים
--  Districts Get Their Annual ‘Report Card’ from State. How Did Fresno, Clovis, Central Fare?
--  California, accordo da 54 milioni per chiudere la causa per discriminazione di genere
--  Will and Kate's variety show outfits lead to surge in Google searches
--  INFOBIRD CO., LTD ANNOUNCES NEW BUSINESS COOPERATION IN INFORMATION TECHNOLOGY SYSTEM SOFTWARE DEVELOPMENT
--  LGD, 1조3600억 규모 유상증자…“OLED 사업경쟁력·성장기반 강화”
--  CJ 4DPLEX and Kinepolis Group Expand Partnership with 21 New ScreenX Auditoriums
--  Biotech giant Illumina will unwind takeover of cancer-screening company Grail
--  El actor Jonathan Majors es declarado culpable de agresión y acoso a su novia
--  Larry Kramer, outgoing CEO of mega climate funder the Hewlett Foundation, looks back on his tenure
--  Vivek Ramaswamy Tells Fear-Mongering CNN Pundit to 'Just Shut the F*** Up'
--  Fórmula E México 2024. ¿Cuándo es? ¿Dónde puedo comprar los boletos?
--  The 7 Best Cover Letter Templates for Google Docs
--  San Francisco prosecutors begin charging 80 protesters who blocked bridge while demanding cease-fire
--  Liga: injouable, Gérone gifle Alavés et reprend la tête du championnat
--  Ima mrtvih u zemljotresu koji je pogodio Kinu
--  Enphase Energy reducirá su plantilla en un diez por ciento
--  Se declara mamá YouTuber culpable de maltrato grave a sus hijos
--  [AM-PM] MLB 샌프란시스코 입단한 이정후 오늘 귀국 外
--  Johnny Depp was determined to carry late pal Shane MacGowan's wicker coffin - despite concerns from security
--  Best of Bird Photographer of the Year Awards pictures
--  Antetokounmpo y Doncic, jugadores de la semana en la NBA
--  BAHATOST NA DELU U ZGRADI RIK-a: Direktora zavoda za statistiku napalo desatak osoba i oborilo ga na zemlju (VIDEO)
--  Casa Blanca: Biden "está dispuesto a llegar a compromisos" con el Congreso para mantener la ayuda a Kiev
--  Kurtenbach Mailbag: Answering your questions on the SF Giants’ free agency issues, Draymond Green’s anger
--  الثلاثاء 6 جمادى الآخرة.. 7 ساعات بين صلاتي الفجر والظهر بمكة المكرمة
--  بعد إطلاقه .. تفاصيل أول مشروع نقل عام للحافلات يعمل بالطاقة النظيفة
--  Nezaustavljiva Đirona razbila i Alaves: Mićelovoj četi se ne silazi sa vrha Primere
--  Horror en Nueva York: Médico bombardeó a su esposa con dosis mortal de suplementos tras negarle la atención requerida
--  끊기 힘든 커피…건강하고 부작용 적게 마시려면?
--  KBO, 동아오츠카와 KBO리그 공식음료 스폰서십 계약 체결...2027 시즌까지 4년 연장
--  Rodríguez Uribes, exministro de Cultura, será el nuevo presidente del CSD
--  ‘또 강도 사건 발생!’... 도둑이 더 브라위너 집에 무단 침입→물품 도난당한 채 방치
--  Rodríguez Uribes, exministro de Cultura, será el nuevo presidente del CSD
--  Non lasciatevi scappare LIMBO e Redsun RTS tra le offerte di oggi sul Play Store!
--  Rang undang-undang kontroversial Perancis catat perkembangan positif
--  PF indicia Cariani por associação para o tráfico de drogas
--  دينا حايك تهنئ الشعب المصري بفوز الرئيس السيسي
--  Politiko: Uništeno najmanje 215 miliona doza vakcina protiv kovida u EU
--  Rolling Stones guitarist Keith Richards 'not friends' with Mick Jagger
--  El argentino Anselmi llega a Cruz Azul para convertirlo en un equipo competitivo
--  Costa Rican Prodigy Triumphs in Central American Biology Olympiad
--  Coca-Cola’s Red Tree Beverages Brings More Juice To Bev-Alc Category with Minute Maid Spiked
--  مندوب ليبيا بالأمم المتحدة: على الجميع التعامل بإيجابية مع حوار باتيلي
--  Travis Kelce Hints at Christmas Plans Amid Romance with Taylor Swift
--  Governo assina convênios para construção de escolas e feiras; parceria com senador garante recursos para saúde
--  Scholz positif COVID-19
--  Marvel Fires Jonathan Majors Following Domestic Violence Conviction
--  Was es mit Mondholz kurz vor Weihnachten im Lohrer Spessartwald auf sich hat
+-  Pep Guardiola’s daughter branded the ‘snow queen’ as she shares stunning pictures from ‘girls’ ski trip’
+-  중앙일보 “한동훈, 김건희 리스크 제어할 복안 제시해야”
+-  בזכות הטייסים: "היום אנחנו מצליחים להציל פצועים קשים שבעבר לא היו שורדים"
+-  [날씨] 아침 출근길 강추위…퇴근길 무렵 중부 중심 눈
+-  „ProGlas je maraton, a ne skok udalj“: Akademik Vladica Cvetković o izbornim rezultatima
+-  الاحتلال يقتحم بلدات وقرى بجنين
+-  جيرونا يواصل سلسلة انتصاراته ويستعيد الصدارة من ريال مدريد
+-  Prime Minister dodges spring General Election question and remains defiant over potential Tory wipeout in Central Belt
+-  "Humanitarni meč u Japanu doprineo prikupljanju pomoći Ukrajini"
+-  Odbojkaši Partizana protiv Prometeja u Kupu CEV
+-  YouTuber to take plea deal over child abuse
+-  YouTuber to take plea deal over child abuse
+-  문가영, 청재킷 속 넘치는 볼륨감…탄탄 몸매의 정석
+-  [스한:BOX] '서울의 봄' 27일째 흥행 1위…누적 908만 관객 동원
+-  ‘Worst drama I’ve seen in ages’, rage Vanishing Act viewers as they switch off ‘true story’ ITV series over ‘bad acting’
+-  ‘Worst drama I’ve seen in ages’, rage Vanishing Act viewers as they switch off ‘true story’ ITV series over ‘bad acting’
+-  Far-right Israeli minister barred from dishing out expedited gun permits in the Knesset
+-  EräViikingit oli yllättää, sitten Happee otti komennon
+-  YELLOWSTONE ACTOR BRENT WALKER INTRODUCES GROUNDBREAKING WESTERN WEAR INVENTION HATPAC
+-  Sean Payton won’t budge on Russell Wilson question after sideline scolding
+-  DC's James Gunn says Suicide Squad isn't necessarily the end of the Batman Arkham universe
+-  ABK Workers Alliance responds to Activision Blizzard ending hybrid working
+-  You can't talk about 2023 in games without talking about layoffs
+-  Max Payne, Alan Wake 2 voice actor James McCaffrey dies aged 65
+-  Microsoft cuts Xbox Series X/S hardware prices for the festive season
+-  Sony patents ability for games to adjust difficulty levels on the fly
+-  Le nouveau groupe d'experts en adaptation climatique est dévoilé
+-  Des plaintes auraient influencé la Saskatchewan dans sa loi sur l'éducation à la sexualité
+-  Pierre Poilievre s'oppose à la motion de l'ONU sur le cessez-le-feu à Gaza
+-  Teachers saying they’d rather be fired than tell parents their children think they’re trans should be sacked
+-  White Christmas forecast for northern UK with snow on December 25
+-  KT, 제2회 퓨처스 마케터 학술 공모전 성황리에 종료
+-  Sarıyer'de seyir halindeki İETT otobüsünde yangın çıktı
+-  Medtronic Chairman and CEO Geoff Martha to speak at J.P. Morgan healthcare conference
+-  ‘Bin 997 saniyede vurabilir’
+-  Perdieron: Ningún engendro constitucional de las derechas será legítimo
+-  安倍派二階派事務所 今日にも捜索
+-  Vulkanutbrudd på Island
+-  元寺尾死去 高田延彦は「放心」
+-  Fox News Digital crushes CNN, New York Times in key metrics during jam-packed November
+-  Novine: "Iznenađenja i razočaranja parlamentarnih izbora"; "SNS jači za 70.000 novih glasača"
+-  جهاد جريشة : ركلة جزاء فلومينينسي البرازيلي أمام الأهلي صحيحة
+-  Ohio company recalls deli salads because of possible Listeria contamination
+-  Your Hairbrush Is Grosser Than You Think
+-  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
+-  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
+-  Serbian vaaliviranomaiset vahvistivat sunnuntain vaalien alustavan tuloksen, presidentin puolue voitti odotetusti
+-  10 arrested over illegal mining in Kogi, 50 trucks impounded
+-  샌프란시스코 자이언츠 입단한 이정후, 오늘 귀국
+-  Latin Amerikalı elçiler konuştu: İran ile ilişkiler yeni düzen için önemli
