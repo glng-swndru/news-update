@@ -1,11 +1,51 @@
 # Latest News
+-  Banki nie akceptują bezwarunkowej konwersji wierzytelności na nowe akcje Rafako
+-  Left in blood: How a Michigan cold case was solved, 35 years later
+-  الكويت تلقت تعازي زعماء العالم بفقيدها الكبير
+-  Белый дом: возможность перемирия и обмена заключёнными в Газе не гарантирована
+-  Rechaza Nieto denuncia de lavado; acusa fines políticos
+-  Planea Ferrari conservar dupla Leclerc-Sainz hasta 2027
+-  Atacan rebeldes hutíes buques en el mar Rojo
+-  Débil, tráfico de viajeros aéreos
+-  Presenta Putin documentos para postularse a reelección
+-  GARRIOCH: Senators coach D.J. Smith fired with club in midst of four-game losing skid
+-  زيزو وعمر جابر ينتظمان في التدريبات الجماعية للزمالك
+-  Protege tus datos: nuevas normativas de privacidad en el 2024 en Perú
+-  Ukraine general criticises firing of recruitment chiefs
+-  Notable moments that coloured entertainment industry in 2023
+-  مشعل الأول
+-  Šta su načelnici uradili za tri godine: Brojna neispunjena obećanja
+-  صاحب السمو يتلقى برقيات تعزية من رؤساء وملوك و«الأوروبي» و«التعاون الإسلامي» والسيستاني
+-  Hundreds of millions spent on agency nurses as NSW health districts struggle to keep staff
+-  فريق لجنة التفتيش ينفذ عملية نزول ميداني إلى معسكر قيادة اللواء الرابع مقاومة بالضالع
+-  “水平線からのぼる初日の出を” 海岸に鳥居設置 静岡 掛川
+-  Biocon Biologics Concludes Integration Of Acquired Biosimilars Business In 120 Countries
+-  Ebix's Agreement With Zinnia Lays Out Expeditious Path For Debt Repayment
+-  Newgen, Evalueserve To Make Its Corporate Lending Process Vast
+-  CAF to enforce restriction of AFCON streaming
+-  Fonavi: Link de la lista de beneficiarios que cobrarán este 21 de diciembre
+-  Gwen Stefani pairs glamorous blowdry and make-up with casual plaid top and baggy blue jeans for dog walk in Los Angeles
+-  سفارات الكويت في الخارج... تواصل استقبال المُعزّين
+-  Terugblikken op een bewogen (werk)jaar: ‘Waar ben je trots op, en wat heb je verklooid?’
+-  Botjes en graten: dit kun je doen bij verslikking tijdens het kerstdiner (en zo voorkom je het)
+-  Ivanković: Ovo više nisu igrači nego superjunaci
+-  وزیراعلیٰ سندھ کا طیارہ کئی ماہ سے دبئی میں مرمت کا منتظر
+-  ACETI, Anthony 'Tony'
+-  ΣΥΡΙΖΑ-ΠΣ: Η εξεταστική επιτροπή για τα Τέμπη «δεν θα γίνει πλυντήριο κανενός»
+-  ΠΕΤΡΑΚΗΣ: «Να αποκτήσουμε συναισθηματική σταθερότητα που δεν θα μας βγάζει από το πλάνο μας»
+-  Homem é detido por suspeita de ameaçar companheira com faca em Volta Redonda
+-  Éric Dupond-Moretti remet 142 drones issus de saisies judiciaires à la préfecture de police
 -  Eriksens råd til kollapset Luton-anfører: Lyt til lægerne
+-  Rama dështon të hapë negociatat në Bruksel por bën festë e paga shtesë në Tiranë
+-  SAP : Update zu Finanzberichterstattung und Forderungsfinanzierung 2024
+-  Camionistas polacos voltam a bloquear fronteira com a Ucrânia
+-  Larissa Manoela e André Luiz Frambach se casam e atriz se declara: 'Estamos destinados a ser'
+-  Liveblog zum Krieg in Nahost: Israel plant "schrittweise" nächste Phase im Gazakrieg
+-  Farming family's 20-year battle with govt over 'crucial' error
 -  ER overcrowding is putting patient health at risk, Quebec doctors say
 -  Winnipeg Blue Bombers sign all-star guard to one-year deal
 -  Svećenike u Đakovu uznemirio program za Advent: Jedan čak stao pred kamion, ‘možeš samo preko mene’
+-  «Ασθενοφόρο γρήγορα»! Οι δραματικές συνομιλίες στον ασύρματο μετά την καταδίωξη στον Ασπρόπυργο που «κόστισε» τη ζωή αστυνομικού
 -  Mohamed Kordofani, Writer-Director of Sudanese Oscar Entry ‘Goodbye Julia,’ on Racism, Teargas and Thinking Big
--  Amerikansk youtuber erkender grov børnemishandling
--  Amerikansk youtuber erkender grov børnemishandling
--  What's the source of binary rogue planets?
--  University of Northern B.C. to offer bachelor’s degree in Nisga’a language
--  Трима с приза за №1 в спорта на Кърджали за годината
+-  «الحويج» يبحث أوجه التعاون بين وزارة الاقتصاد والأكاديمية الليبية للدراسات العليا
+-  سمو الأمير وآل صباح استقبلوا المُعزّين بفقيد الوطن
