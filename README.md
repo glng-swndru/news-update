@@ -1,51 +1,11 @@
 # Latest News
--  Testamento registrado por Pelé precisará ser cumprido, determina Justiça
--  Clubes da Espanha querem tirar Vitão do Internacional
--  صفاقس داخل محلات بيع اللبلابي : ملعقة من الزيت تنافس أسعار الذهب.
--  Un hospital con 2.700 sonrisas: los enfermos reciben postales navideñas en Cáceres
--  أميرنا الغالي الشيخ نواف تركتنا؟!.. بقلم: د.أحمد محمد الجمالي
--  Hakem Ali Şansalan pozisyonda ne dedi?
--  Sahadan çekilen İstanbulspor'un cezası ne olacak?
--  Abdullah Avcı: Yapabileceğim bir şey yok
--  Đurđić: Dobra igra u odbrani, još se uigravamo u napadu
--  IA transforma imagens de jogos antigos em versões com gráficos realistas
--  Rząd PiS obiecał Kuleszy 300 milionów. Teraz wszystko w rękach Nitrasa
--  Kita und Baugebiet als wichtigste Themen
--  İstanbulspor Trabzonspor maçı iptal mi, ertelendi mi? İstanbulspor Trabzonspor maçı neden bitti?
--  İstanbulspor'un sahadan çekilmesinin ardından Erman Toroğlu'ndan korkutan yorum!
--  Olay maç sonrası TFF'nin talimatnamesi ortaya çıktı! İşte İstanbulspor'un alacağı ceza...
--  Süper Lig'de yaşananların ardından Şahan Gökbakar ağzını fena bozdu: Bu ne böyle...
--  استشارة عامة حول المبادئ التوجيهية لحيادية الشبكة
--  Emil Forslund gör mål direkt efter lånet till Malmö: “Gick snabbt”
--  Дарвин Нунес прави много силен сезон, убедени са на "Анфийлд"
--  VALENSIJA – PARTIZAN Može li Parni valjak do petog trijumfa u nizu u Evroligi? I to protiv ekipe koju nikad nije dobio
--  حلم الامس أصبح حقيقة .. مجمع 22 مايو للبنات| كتب سالم عشيش
--  'Tulsa King' Season 2 - 7 Cast Members Expected to Return!
--  Vége a hajszának: Elfogták Cs. Zoltánt, aki el akart rabolni egy tinilányt Alsónémediben - a hajánál fogva rángatta áldozatát az autóba
--  Direction générale des Élections : Le mandataire de Sonko encore refoulé !
--  Pošto je Bugarska ukinula taksu na rusku naftu, Mađarska je pušta u Šengen
--  120+ best Amazon Christmas gifts you can still order on time for 2023
--  La Vuelta 2024 será la de la media montaña y la contrarreloj final de Madrid
--  La Vuelta 2024 será la de la media montaña y la contrarreloj final de Madrid
--  Fliegen wird teurer! Ampel hebt Steuer an – so viel kosten die Tickets bald mehr
--  임윤아, 클로즈업도 무결점
--  Extension of energy measures was necessary, Papanastasiou said in Brussels
--  Azra Mahmutagić učiteljica i šahistkinja za SC: Upoznala sam dječaka koji sa petgodina čita i igra šah, a ovaj sport mnogo pomaže
--  Forum de Coopération Arabo-Russe à Marrakech : Nasser Bourita s’entretient avec son homologue Bahreïni Abdullatif bin Rashid Al Zayani
--  Kärppien syöksy jatkui valmentajavaihdoksesta huolimatta
--  Instalan una chabola en el yacimiento arqueológico de Cercadilla en Córdoba
--  Говорова: На Олімпіаді-2024 у Парижі не повинні виступати представники країни-терориста
--  طرق العلاج من متحور كورونا الجديد «JN.1».. «اشرب سوائل دافئة»
--  France : Youcef Atal risque 10 mois de prison avec sursis
--  Já há percurso da Vuelta de 2024, que começa em Portugal
--  İstanbulspor'u bekleyen ceza
--  Lokalpolitiker Kurt Schreck gestorben
--  Estudiante de la UTP presenta dispositivo para personas con discapacidad visual
--  17 şirkete soruşturma! “İhalede danışıklı hareket etmek”
--  Notunterkunft: Wohl keine Zuweisungen zwischen den Jahren
--  Real pokazao klasu i lako savladao Crvenu Zvezdu
--  Fiestas de Fin de Año: hasta que hora abrirán los comercios en Córdoba
--  Montes y Benoit triunfaron en Águila de la Semana
--  Βαγγέλης Μαρινάκης: Σε αυτόν δίνει τα κλειδιά – Αλλάζουν όλα στον Ολυμπιακό
--  Budaun News: तमंचा दिखाकर किया दुष्कर्म, बनाया वीडियो, रिपोर्ट दर्ज
--  Budaun News: छेड़खानी के दोषी को तीन साल की सजा
+-  Prof. Dr. Naci Görür: Marmara depreminde fay eğer peş peşe kırılırsa 7.5'e kadar çıkar...
+-  News24 | Here are the Daily Lotto numbers
+-  Los Santos registra la segunda defunción por dengue
+-  Droga estaba oculta en el maletero de un taxi
+-  Grupos de derechos presentan una demanda contra ley de Texas que permite expulsar migrantes
+-  Chanceleres da Itália e Reino Unido se reúnem em Roma
+-  Premiê irlandês é alvo de trote de comediantes russos
+-  Argentina propõe cúpula entre América Latina e Ucrânia
+-  Safari magic as Werribee Open Range Zoo welcomes three little Giraffe
+-  Raspberries and cream Christmas tarts
