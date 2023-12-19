@@ -1,51 +1,51 @@
 # Latest News
--  Başkan Erdoğan'dan yerel seçim öncesi AK Parti teşkilatına talimat
--  Yeşim Demir'in ölümünde cinayet şüphesi! Erkek arkadaşı tutuklandı
--  Macaristan Başbakanı Orban'dan Türkiye mesajı: Önümüzdeki yüzyıl sizin olacak
--  수제 샌드위치&커피 전문점 ‘카페샌드리아’ … 안정성과 수익성 높여
--  홍천축산농협, '희망2024 나눔 캠페인' 성금 기탁
--  2024년 패션시장 키워드 '와인드업'
--  평산 신씨 홍천종친회, '희망2024 나눔 캠페인' 성금 기탁
--  파리바게뜨, 美 케이크 매출 증가…"현지 마케팅 주효"
--  홍형선 국민의힘 화성갑 국회의원 예비후보, 화성시 분시 방안 제안
--  '오픈 100일' 이랜드 팩토리아울렛 광명점, 매출 50% '껑충'
--  양양군, 일반건강·암 출장검진 실시
--  홍천군 의용소방대 연합회, 희망2024 나눔 캠페인 성금 기탁
--  홍천여성의용소방대, 훈훈한 송년회와 아름다운 기부
--  양양군, 2024 강원 동계청소년올림픽 성화투어 행사 개최
--  세종시, 올해 안전관리 미흡사례 139건 확인·후속조치 완료
--  화성시의회, 제226회 제2차 정례회 폐회
--  홍천다드림 축산, 삼남매의 따뜻한 기부
--  양양소방서, 겨울철 화목보일러 화재예방 적극 홍보
--  태안군, ‘2023 민·관 사회복지 소통 화합 도모
--  태안군, 내년 1월부터 상·하수도 요금 인상
--  군포시, 사회적경제 지원으로 기업경쟁력 강화
--  홍천농업고, '어그리비젼 발표회' 개최
--  케이뱅크, 투자계약증권 청약 위한 가상계좌 서비스 제공
--  의왕시, 수험생 위한 대입 정시 집중상담 운영
--  무이자할부 '실종'…카드사, 올해 할부수수료 1.5조 챙겨
--  갈 길 바쁜 '철산법 개정안'…21대 국회 통과 '불투명'
--  강원특별자치도청소년활동진흥센터, ‘따끈따끈 연탄나눔_핫데이’ 진행
--  최상목, "우리 경제 역동성 획기적으로 높이겠다"
--  내년 3월부터 청약통장 '배우자 보유기간' 합산
--  하림 "HMM 인수, 본계약 체결할 수 있도록 최선"
--  산업용 요소 등 77개 품목 할당관세…9670억원 규모
--  [기자수첩] '층간소음' 이번엔 잡을 수 있나
--  기아, 경총 협력…안전한 사업장 만든다
--  K-드론, 미국 등 드론 선진국에 144억원 수출
--  중국 간쑤성 '규모 6.2 지진'…건물 무너지며 100명 넘는 사망자 발생
--  성북구, 상징물 활용 가로 쓰레기통 설치
--  연말 증시 개인에 달렸다…주식양도세 완화 이슈
--  인천시교육청, 청천중 에코스마트팜 기반 마을리빙랩 거점 공간 마련
--  내부통제는 '부실'…김태오 회장은 '사법리스크'
--  कमाल का सुपरफूड! डायबिटीज-कब्ज के लिए रामबाण, जोड़ों के दर्द को भी कहें बाय
--  성탄절의 지정학
--  4기 중문동지역사회보장협의체를 마무리하며
--  Ruling coalition prioritizes good governance: Minister Gurung
--  Earthquake in northwestern China kills at least 116 people in Gansu and Qinghai provinces
--  Prosperity possible thru collective efforts: CM Karki
--  Tesla'dan maaşlara zam! En düşük saatlik ücret 22 dolar olacak
--  Kredi çekilerek para biriktirilir mi? Uzman isimden önemli yatırım tavsiyeleri
--  Lokanta, restoran, kafe ve pastanelerde yeni dönem
--  Yılın son faiz kararına iki gün kaldı
--  Европын холбоо Медведевийн хүү, Путиний хамаатны эсрэг хориг тавьжээ
+-  Marvel, Disney drop actor Jonathan Majors after he&#039;s convicted of assaulting his former girlfriend
+-  Handicraft fair makes transaction of Rs 20 million
+-  이정후 새 동료 생겼다…시애틀 출신 공격형 포수와 104억 계약 체결
+-  그야말로 미친 활약...맨시티 '1400억' 거뜬히 지른다!
+-  Elşad Miridən gündəmi alt-üst edən AÇIQLAMA
+-  VIDEO Island zaliala žeravá láva: Pre výbuch sopky evakuovali tisíce ľudí!
+-  NSW Police foil kidnap, seize $1 billion of cocaine seized
+-  NSW Police foil kidnap, seize $1 billion of cocaine seized
+-  NSW Police foil kidnap, seize $1 billion of cocaine seized
+-  أهم الأسباب التي تجعلك تشعر بالجوع الدائم وكيفية التغلب عليه
+-  ما حكم قراءة الرقية الشرعية على الماء والزيت والعسل؟ "الخثلان" يُجيب
+-  Dunki Advance Booking: Shah Rukh Khan’s movie mints over ₹15 crore
+-  BPJS Ketenagakerjaan Tingkatkan Pelayanan Agar PMI Terlindungi dan Sejahtera
+-  Sumudica sözleriyle yine ortalığı karıştı, Fenerbahçelileri ayaklandırdı! 'Galatasaray'da değil ama Fenerbahçe'de oynar'
+-  VIDÉO - Météo : quel temps ce mardi 19 décembre ? Consultez les prévisions de Guillaume Woznica
+-  ‘경성크리처’ 박서준X한소희, 절제된 로맨스…“슬픔 담은 K-크리처 선보일 것”(종합)[스한:현장]
+-  이승철, '친엄마' 같은 장모님과 포옹까지?…"사위 최고"('신랑수업')
+-  Democrat staffer sacked for US Senate sex tape
+-  Democratic staffer sacked for US Senate sex tape
+-  Democrat staffer sacked for US Senate sex tape
+-  Democratic staffer sacked for US Senate sex tape
+-  Voetbalpodcast | 'Feyenoord krijgt een mooie kans op revanche tegen AS Roma’
+-  লোহিত সাগরে দুটি পণ্যবাহী জাহাজে ‘হুতিদের’ হামলা
+-  Ο Δήμαρχος της Νέας Υόρκης θεωρεί σπουδαία την πόλη επειδή μπορεί να συμβεί ακόμα... και μια 11η Σεπτεμβρίου
+-  El Inter de Miami jugarán en ante el Newell’s
+-  A la Real tocó bailar con la más fea en los octavos
+-  Sanción ejemplar
+-  Errores defensivos sentencian a ‘La Roja’
+-  Hay que aguantar hasta el último asalto
+-  Sinaproc emite aviso vigilancia hasta el miércoles
+-  Gabinete modifica proyecto de Presupuesto del Estado
+-  Habrá cierre de calle temporal en Vista Alegre
+-  Voto adelantado: Hasta el 27 de diciembre para desistir
+-  Instituto de Salud de los Trabajadores tiene un 35% de avance
+-  Cuatro hombres condenados por doble homicidio
+-  Nadal confirma su participación en el torneo Conde de Godó
+-  Razones por las que tu ex quiere ser tu amiga
+-  72% de los trabajadores renuncian en buscade un mejor salario
+-  ¿Se suicidó o le volaron la cabeza de un tiro ?
+-  Rescatan a 14 mujeres víctimas de explotación sexual
+-  El diputado me dio dos latas de sardina por mi voto
+-  Atraco y muerte en un jardín de baile en La Chorrera
+-  Infidencias y confidencias del 19 de diciembre de 2023
+-  창원시, 12년만에 소방인력 82.4% 증원
+-  Papá chiricano quiere saber qué pasó con su hija
+-  팬이 짐짝이야?...보이넥스트도어 경호원 논란에 소속사 측 "업무 배제"
+-  Pred nama su sve ljepši dani, ovo je detaljna prognoza
+-  تشكيلة مانشستر سيتي المتوقعة أمام أوراوا الياباني في كأس العالم للأندية
+-  Bobby Deol reveals his one request to sons Aryaman and Dharam before film debut
+-  Morgonkoll: Blandat på Asienbörserna – oljan stabiliserad
