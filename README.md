@@ -1,11 +1,11 @@
 # Latest News
--  İBB'nin çözemediği ulaşım sorunu İstanbulluların ruh sağlığını bozuyor
--  Türkiye'den İspanya'ya ihracat rekoru
--  Filistin bayrağıyla kayak yaparken saldırıya uğradı! "Eğer İsrail bayrağı taşısaydım..."
--  Един мач от ФА Къп ще се играе днес
--  أسعار العملات اليوم الثلاثاء.. اليورو يسجل 4.10 ريال
--  رابط ومواعيد التسجيل في الزمالة للأطباء السعوديين في بريطانيا
--  Установлена личность одного из задавленных в бытовке рабочих
--  Веселина Александрова: Имало ли е нарушение при отдаването на общинска земя в "Тракия" в Пловдив?
--  Kruzifixe in Behörden? - Urteil zu bayerischem Kreuzerlass erwartet
--  Krankenkassen-Beiträge - Entwarnung für viele Versicherte in Bayern
+-  'MMA 세계 선수권대회 출전' 최영찬, 체급 랭킹 5위 등극...양서우 심판위원장, 세계 심판 자격증 취득
+-  "En el Bayern nos hemos asegurado de que David Alaba será operado por un médico de nuestra confianza"
+-  Injac i Borovinić Bojović položile vijenac na Spomenik Partizanu borcu
+-  Lazları sevdiği için adını ve soyadını değiştirdi! Duyanlar inanmayıp kimliğini istiyor: Hataylı adamın adı soyadı şaşırtıyor
+-  숨 고르는 이낙연, 이재명 ‘결단’ 촉구
+-  여야, 본회의 하루 앞두고 예산안 막판 협상 계속
+-  NH농협은행 대구중앙금융센터, 밀알후원회에 3천만원 기부
+-  경부고속도로 대구 일대 진출·연결부 상습정체구간 숨통 트였다
+-  김포시, 2023년 지속가능 교통도시 평가 ‘대상’ 선정
+-  부산시, 전문가 등 20여 명 참석 '의료관광추진협의회' 개최
