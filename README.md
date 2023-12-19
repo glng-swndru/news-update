@@ -1,11 +1,11 @@
 # Latest News
--  Sold Players in IPL Auction 2024 Live Updates: खिलाड़ियों का ऑक्शन शुरू
--  G. Ajitesh IPL Auction 2024 Live Updates: जी अजितेश आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
--  Matt Henry IPL Auction 2024 Live Updates: मैट हेनरी आईपीएल 2024 में कैप्ड, जानें नीलामी में क्या हुआ?
--  Avanish Rao Aravelly IPL Auction 2024 Live Updates: अवनीश राव अरावली आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
--  وصول توأم باندا عملاقة إلى الصين
--  %71 من سكان غزة يعانون من مستويات حادة في الجوع
--  الصحة العالمية: الفيروس التاجي المستجد مستمر بالتحور
--  SDT ne smije na Brana i Daku: Prošlo mjesec dana otkako su ih Amerikanci stavili na crnu listu
--  「서울의 봄」이 환기하는 절망과 희망의 현실
--  암울한 축소경제
+-  Okafor out sul più bello: svelati i tempi di recupero dell’attaccante
+-  สว.เห็นชอบ "แมนรัตน์" นั่ง กรรมการ ป.ป.ช. แทน "สุภา" ที่ดำรงตำแหน่งครบวาระ 9 ปี
+-  האחוזים צונחים, וגם הביטחון: אבדיה חוזר לדפוסים הישנים?
+-  [ŽT] Peskovas nenustoja džiuginti! Skelbia, kuo baigėsi „didysis kiaušinių mūšis“ (Foto)
+-  „Bundesvero brigada prieš Rusiją pradeda darbą.“ Skelbiama apie istorinę dieną Lietuvoje
+-  [ŽT] „Grėsmė pasauliui - JN1.“ Kas tai?
+-  Neįtikėta. Japonija išbandė naują raketų variklį, varomą... Nepatikėsite kuo! (Video)
+-  นาทีรวบ “วิน” มือยิงครูเจี๊ยบ-นศ.อุเทนฯ คาเต็นท์บนดอยปุย
+-  NH투자증권, 여가부 인증 '가족친화 우수기업' 선정
+-  KB국민은행, 고객 편의성 및 안전성 제고 위한 ‘소비자지원시스템’ 신설
