@@ -1,51 +1,51 @@
 # Latest News
--  Maduro ordena a las autoridades atender denuncias sobre fallas en servicios públicos
--  Tod eines jungen Flüchtlings – Polizisten vor Gericht
--  Wealthramp Review 2024
--  Israel-Blog: 20 weitere Deutsche verlassen Gazastreifen
--  GOP Sen. Is ‘Disappointed’ Trump’s Anti-Immigrant Rants Aren’t Harsher
--  Blue Origin’s New Shepard makes triumphant return flight
--  One in 10 men have this vision impairment — Here’s how to tell if you’re one of them
--  Muzikanten welkom bij Play Inn van Graafstrooms Fanfare
--  Cleverly ‘very confident’ Rwanda will abide by asylum deal terms
--  الخليف لـ "اليوم" : عام الإبل سيكون له كثير من الأبعاد التطويرية في مسيرة قطاع الإبل
--  Parkland massacre dad rips school over student’s viral parking-lot beating
--  Loi immigration : LR clame sa victoire
--  Нетаниягу посетил раненых бойцов ЦАХАЛа в реабилитационном центре при "Шибе"
--  Самолёт парвози пайтида қандай касалликлар кучайиши мумкинлиги айтилди .
--  Буюк Британия Украина билан хавфсизлик шартномаси тузган биринчи давлатга айланади.
--  Médicos por la Salud: 84 % de los servicios de tomografía en hospitales están cerrados
--  What Is Spotify’s AI Playlists Feature?
--  Man (52) arrested as police investigate Co Down bar assault
--  Ex-Proud Boy who cooperated gets reduced Jan. 6 sentence
--  Gardin is using generative AI and synthetic data to drive plant growth — here's how
--  Paranaense preso no Paraguai encabeça grupo que fornece armas para facções do RJ e SP, afirma ministro paraguaio
--  مستشار رئيس حركة حماس لـ"الشرق": لا جدية لدى إسرائيل بشأن إطلاق سراح الأسرى
--  RBNZ Gov. Orr: Inflation remains to high.
--  VIDEO: Kovačić zabio prvi gol za Manchester City! Pogledajte sjajan bijeg i egzekuciju hrvatskog majstora
--  New York City has become a 'hub' for the creator economy. Here's how a startup founder has turned meetups into a thriving community complete with sponsors and a newsletter.
--  Dina Boluarte y el gabinete ministerial realizan balance 2023
--  Pavliček: Neka se DP zapita zašto nitko s desnog centra ne želi ići s njima
--  تكليفات عاجلة من وزير التعليم بشأن امتحانات نصف العام الدراسي
--  تخصيص قطعة أرض بمساحة 7.5 فدان لإنشاء مستشفيات الأقصر الجامعية
--  وفد «التنسيقية» يقدم واجب العزاء في أمير الكويت
--  تجديد حبس المتهمين بخطف عامل بالتجمع الخامس 15 يومًا
--  التعليم: إتاحة امتحانات الصفين الأول والثاني الثانوي إلكترونيًا - تفاصيل
--  متحدث الري: إثيوبيا تراوغ للهروب من التوصل لاتفاق بشأن سد النهضة
--  إعلام عبري: من المحتمل أن تكون تكاليف صفقة تبادل الأسرى الجديدة مرتفعة لإسرائيل
--  Yarım kalan İstanbulspor-Trabzonspor maçının ne olacağını Turgay Beşyıldız açıkladı
--  Yıldız Tilbe’den sağlık durumuyla alakalı çıkan haberlere videolu yalanlama
--  Deportivo Guastatoya envía emotivo mensaje a sus jugadores
--  VÍDEO: Prefeita e professores de Maxaranguape, RN, se envolvem em confusão na entrada da Câmara de Vereadores
--  Dos años le dieron al que falsificó entradas de Bad Bunny
--  Cuelgan los restos de un lobo en un paso peatonal en Asturias
--  Twitch sees a 3% decrease in viewership for November
--  Berlin: Stolzenauer Landwirt war bei Demo dabei
--  All the Dirt George Santos Has Been Flinging Since Being Kicked Out of Office
--  A doença que está afetando soldados israelenses em Gaza
--  Sponsored Content: Duvall & Co. Offers a Variety of Handmade Wood Products. Enter CBS17's 17 Days of Christmas to win a Custom Charcuterie Board!
--  Ordning for havvindprojekter lukker og slukker
--  Ordning for havvindprojekter lukker og slukker
--  Nach Saudi-Einstieg: Spanien will zehn Prozent der Telefonica-Aktien kaufen
--  Gobernador de Kentucky: Discurso antiinmigrante de Trump es peligroso y deshumanizante
--  Grecia aprueba ley que dará permisos de trabajo a migrantes
+-  News24 | Here are the Powerball and Powerball Plus results
+-  News24 | No need to evacuate as Simon's Town mountain fire approaches properties, say officials
+-  Cancillería y Thomas Greg & Sons no llegan a acuerdo en conciliación
+-  Will your favorite Minnesota teams end up on Amazon Prime Video?
+-  Adidas To Release Special Edition Lionel Messi Samba Sneakers
+-  Ex Liverpool Striker Slams Darwin Nunez: What He Did Against Man Utd Was 'Absolutely Crazy'
+-  Este será el calendario de Pumas para el Clausura 2024
+-  Animaux. Quelles sont les bonnes questions à se poser avant d'adopter ?
+-  Religion. Le Vatican autorise la bénédiction des couples de même sexe : « Une très grosse avancée »
+-  Bellenod-sur-Seine. Une voiture s'encastre dans une maison, une femme de 84 ans meurt
+-  Interview. Loi immigration : « Oui, c'est une victoire idéologique du RN »
+-  Vielverge. Passionné par la forge, il propose des stages pour fabriquer votre couteau
+-  Saint-Seine-en-Bâche. Ces familles invitent les habitants du village à tour de rôle pendant les fêtes
+-  Immobilier - Location. Quels sont les frais d'agence à la charge du locataire ?
+-  Économie. Les objectifs de Macron fragilisés par les projections de la Banque de France
+-  En direct. Loi immigration : les sénateurs votent largement le projet de loi, en attendant l'Assemblée
+-  Justice. Patrick Poivre d'Arvor mis en examen pour un viol commis en 2009
+-  Désinfox. Non, personne n'a volé 20 000 € dans la caisse des étudiants de l'école de commerce BSB à ...
+-  Bourgogne-Franche-Comté. Comment la SNCF se prépare au rush de Noël dans les TER
+-  Bourgogne-Franche-Comté. L'Amour est dans le pré sur M6 : une agricultrice de la région dans la ...
+-  Lyon. Il va bientôt devenir père : le curé de la Croix-Rousse démissionne
+-  Raketa spoločnosti Blue Origin absolvovala po vyše roku úspešný let
+-  Zoff um Potsdamer Weihnachtsmarkt: Händler lehnen „Blauen Lichterglanz“ ab und wollen neues Konzept
+-  Coco Sily presentó a su nueva novia: “Dios cierra una ventana y abre una puerta”
+-  Belgrano: un fuerte choque provocó el vuelco de un auto en Avenida Del Libertador y Monroe
+-  Werder ärgert Leipzig und trotzt RB einen Punkt ab
+-  Dress worn by Princess Diana sells for new record of $1.14 million
+-  Slik reddet de livet på dødsveien
+-  منصة "تأشيرة السعودية".. كل ما تريد معرفته عن خدماتها
+-  हरियाणा सरकार 10 हजार मजदूरों को इजरायल भेजने की कर रही है तैयारी, विपक्षी दलों ने साधा निशाना
+-  Wizkid stirs health rumors, shares hospital bed photo
+-  Rikthehet pas një viti me projekte, këngëtari Luan Qallaku publikon këngën “Po vuaj”
+-  I used to have very thin hair – my tips for making it thicker, you’re probably not doing a key scalp treatment
+-  Projeto na Câmara muda data para conferência da idade mínima de vereadores
+-  صنعاء تحذّر من إطلاق النار غداً وتتوعد المخالفين
+-  El artista venezolano Danny Ocean encabeza las listas mundiales en 2023
+-  Law changes affecting safety and security in the Netherlands in 2024
+-  Raiffeisen Bank planuje zmniejszyć ekspozycję na Rosję. Transakcja w wysokości 1,5 mld USD
+-  Legendarni 'Titanic' premijerno je prikazan prije 26 godina
+-  Co-Trainer Christian Sobottka verlässt die BSG
+-  [ŽT] „Puola desantas, jūrų pėstininkai, „Štorm V“, „Štorm Z“. Syrskis skelbia apie okupantų tikslą
+-  SON DAKİKA: İstanbulspor yönetimi takımı sahadan çekti, maç yarıda kaldı
+-  Île-de-France: les montants dédiés aux projets retenus par le Loto du patrimoine dévoilés
+-  100.000 Betrugsnachrichten bei Whatsapp: Polizei nimmt mutmaßliche Täter fest
+-  Earth, Wind & Fire Members Now: Everything to Know About the Current Group & More
+-  Znanstvenici su simulirali moguću budućnost Zemlje: Situacija je prilično zastrašujuća
+-  Nunca fez risoto de salmão? Eis a (simples) receita
+-  長野 善光寺 茶室修復費用の工面困難で初のクラファン実施
+-  Zee5: Zee5 introduce soporte Dolby Vision en su plataforma: títulos soportados y otros detalles
+-  Desemprego na América Latina se aproxima de menor nível em uma década em 2023, mas pode reverter em 2024, diz OIT
