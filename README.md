@@ -1,11 +1,51 @@
 # Latest News
--  سيتي إلى نهائي كأس العالم للأندية
--  'A lot of improvement': Transportation leaders hope for smoother holiday travel season
--  'A lot of improvement': Transportation leaders hope for smoother holiday travel season
--  McConnell invokes his wife’s name to slam Trump’s controversial immigrant remarks
--  โปรดเกล้าฯ แต่งตั้งข้าราชการกระทรวงการคลัง 13 ราย
--  Pet zanimljivosti o Ljubljani koje niste znali: Najzeleniji grad u kom možete odsesti u zatvoru
--  Following a digital Rebrand, Little Black Book Looks Back at a Decade of Exponential Growth and Record Turnover
--  McConnell invokes his wife’s name to slam Trump’s controversial immigrant remarks
--  Ευγενία Σαμαρά: «Ποδόσφαιρο δεν είναι το Euro;» (vid)
--  هل تختلف القهوة السعودية عن الأخرى من حيث الأضرار؟.. النمر يكشف مفاجأة
+-  ניצחון חמישי ברצף: מוסינזון הוד השרון שמרה על המאזן המושלם
+-  Canada Joins Multinational Effort to Counter Attacks on Commercial Ships in Red Sea
+-  Marius Sumudica: Sezonun en iyi maçını oynadık
+-  İran'da tatbikat esnasında mühimmat patladı: 3 asker öldü
+-  Heimlich Methadon ins Getränk gemischt – Mann stirbt
+-  Vùng Vịnh nóng với liên minh chống Houthi của Mỹ
+-  Trấn Thành, Tóc Tiên có phải diễn sâu ở Ca sĩ mặt nạ?
+-  Doãn Hải My tay che bụng sau nghi vấn mang bầu, được Đoàn Văn Hậu đỡ khi ra sân bóng
+-  Thế hệ thứ 2: Con trai ông Phạm Nhật Vượng, Nguyễn Anh Tuấn… trở thành cánh tay đắc lực của bố trong ngành ô tô khi tuổi đời chưa đến 30
+-  Sau 65 tuổi, người khôn ngoan lựa chọn cuộc sống bình dị: Bớt toan tính, nửa cuối đời bình yên
+-  Cách vệ sinh cửa sổ trời tại nhà
+-  Quả chuối mua về có cần rửa hay không?
+-  Một ngôi sao đột ngột rời showbiz khiến fan trở tay không kịp, hé lộ nguyên do có thể qua đời bất kì lúc nào
+-  Lực lượng Hamas từ chối đàm phán trao đổi tù nhân, chỉ đồng ý đình chiến
+-  Tổng thống Putin: Nga nâng cấp kho VKHN, đặt lực lượng chiến lược ở mức sẵn sàng cao nhất
+-  Chelsea’s Moises Caicedo escapes with booking after horror tackle on Anthony Gordon ONE MINUTE into Newcastle clash
+-  Σβαμπ: «Οι άνθρωποι με ειδικές ανάγκες είναι πρότυπα»
+-  김해시, 신세계백화점에서 공예품 특별 판매전
+-  양산시립박물관, 오는 23일 ‘2023 송년음악회’ 연다
+-  김해율하도서관 아동 손뜨개 모자 기부
+-  비앤테크 김해장학재단 1000만 원 기탁
+-  넥센타이어 창녕공장 온기 가득 밥솥 나눔
+-  KAI 김장김치 2700포기 900가구 나눔
+-  김해시장애인종합복지관 송년음악회 개최
+-  하동군 농식품 바우처 시범사업 공모 선정
+-  하동케이블카 해넘이·새해 일출 행사
+-  김해도시개발공사 주거복지문화 최우수상
+-  거창 남하면 무릉전통한과 공유냉장고 기부
+-  몸·마음 묵은 때 싹 벗겨 드렸어요
+-  Search to resume for Victorian boy missing in waters
+-  Gérald Darmanin aux députés de la Nupes: "Par trois fois, vous avez trahi les aspirations du peuple"
+-  Enzo Fernandez injury fears as £107m Chelsea star subbed off just half an hour into Newcastle Carabao Cup clash
+-  CBC TV Ad Revenue Falls 16 Percent Compared to 2022
+-  Kahramanmaraş'ta deprem
+-  Fas ile İspanya'dan ortak operasyon
+-  Manchester City finale yükseldi!
+-  Serkan Damla: Takımın geri dönmesi beni mutlu etti
+-  '인성도 월클' 이정후, 계약 내용 중 '이것' 가장 만족했다
+-  Rotes Meer: Deutschland will USA bei Schutz von Schiffen im Roten Meer unterstützen
+-  Feijóo llevará al Congreso prohibir homenajes a etarras y que condenados por delitos de sangre puedan ir en listas
+-  Feijóo llevará al Congreso prohibir homenajes a etarras y que condenados por delitos de sangre puedan ir en listas
+-  Od 2035 r. w Kanadzie będą sprzedawane tylko samochody elektryczne i hybrydowe
+-  Cena złota wzrosła drugi dzień z rzędu
+-  Paulistão: Novorizontino inicia vendas e renovação dos planos de Sócio-Torcedor
+-  Diplomatically Isolated Belarus Seeks Allies in Africa
+-  Video: Cae tráiler de puente elevado en El Paso
+-  Discuten diputados por refinanciamiento de la deuda estatal
+-  غزة «أخطر مكان في العالم» للأطفال.. وأهلها «يموتون في الشوارع»
+-  أسابيع من الهزات تفجّر بركان ريكيانيس.. وسلطات آيسلندا: ليس حدثاً سياحياً
+-  الصين تكثّف جهود الإغاثة بعد زلزال قانسو وتشينغهاي
