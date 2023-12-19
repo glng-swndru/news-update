@@ -1,51 +1,51 @@
 # Latest News
--  القوات المسلحة: عملية الاشتباك مع المجموعات المسلحة استمرت 14 ساعة
--  الاعلام العبري : جنودنا تعرضوا لإصابات تهدد الخصوبة
--  El Supremo confirma la condena a 1 año y 9 meses de cárcel para 'El Pequeño Nicolás' por la falsificación del DNI
--  Sa tržišta povučen kineski bicikl za djecu
--  Y Combinator-backed Guac trains algorithms to predict grocery demand
--  Ekonomiści PKO Banku Polskiego: wzrost gospodarczy w 2024 r. zbliży się do 4 proc.
--  Prep roundup: Mitty, O’Dowd girls basketball cruise at Nike Tournament of Champions
--  Anti-ransomware startup Halcyon lands fresh $40M tranche
--  Dog cancer treatment ImpriMed aims to expand its AI technology into human oncology
--  Putin hails Russia's military performance in Ukraine and he vows to achieve Moscow's goals
--  Sen. Warren Targets Former Officials Amid Crypto Legislation Accusations
--  Terra (LUNA), Terra Classic (LUNC), USTC Prices Soar 10% In An Hour, Here’s Why
--  Dismembered Body Confirmed as Wife of Ex-Hollywood Exec’s Murder-Suspect Son
--  رئيس الوزراء البريطاني: نود رؤية هدنة إنسانية مستدامة تسمح بإطلاق المزيد من الرهائن ودخول المساعدات لغزة
--  Nadal confirma su participación en el próximo torneo Conde de Godó
--  Permascands vd om miljardbudet: “En kvalitetsstämpel”
--  Alec Baldwin é atacado e entra em conflito com manifestante sobre guerra em Israel
--  Sinochem Corp compra raro cargamento de crudo venezolano
--  Facebookは既に画像生成AIが作ったパクリ投稿で埋め尽くされている
--  Ausgrabungen: Hohengebraching im Frühmittelalter
--  Millionen-Investitionen: Unternehmer setzen auf Regensburg
--  Actores y actrices que abandonaron Cuba en 2023
--  Last minute gifting—this 1-year subscription of unlimited DVR streaming is only $34.97 and requires no shipping
--  Maintal: Autoaufbrecher wüten nachmittags auf Park- und Ride-Parkplatz
--  Vicepresidenta de EEUU anuncia eventos a nivel nacional enfocados en el aborto
--  A dash of optimism and a dollop of caution: Building AI for climate action
--  Maratha Reservation : मराठा आरक्षणावर सरकारकडून गाजर दाखवण्याचा प्रयत्न; मुख्यमंत्र्यांच्या निवेदनानंतर विरोधक आक्रमक
--  FC Schalke 04: Jetzt wird es heiß! Hammer-Rückkehr immer wahrscheinlicher
--  Edeka in NRW wird zur Schließung gezwungen – Kunden stehen gerade JETZT vor verschlossenen Türen
--  Erhalten Bürgergeld-Empfänger den teuren Führerschein umsonst? Das steckt hinter der Neid-Debatte im Netz
--  Poliisi valvoo joululiikennettä Lapissa viikonloppuna – huomiota kiinnitetään erityisesti ajonopeuksiin, ohituksiin ja ajoetäisyyksiin
--  Dışişleri Bakanlığından Çin için taziye mesajı: Can kayıplarından derin üzüntü duyuyoruz
--  Investim prej 1.7 milionësh në Parkun Industrial në Viti, Kurti: Do të ndikojë në zhvillimin ekonomik
--  אזולאי ערך אימון מלא בנתניה וצפוי לפתוח נגד בית"ר ירושלים
--  רצח את חברתו לפני 32 שנה - וישוחרר מהכלא 4 שנים לפני הזמן
--  Le corps sans vie d'un bébé découvert sur la voie publique à Paris
--  Durham to host inaugural LEGO convention
--  I thought I’d be dead by Christmas but returning to TV gave me my wings back, admits Hairy Bikers’ Dave Myers
--  تعرف على الدولة ذات الاقتصاد الأفضل أداء في عام 2023
--  2023 será el segundo año más caluroso en España detrás del 2022
--  المجالي رئيساً لجامعة الزيتونة الأردنية
--  Кметовете на Банско, Разлог, Белица и Якоруда искат изграждане на втора кабинкова линия
--  Ojo: así operaba estructura especializada en hurto de apartamentos en Cali
--  North Korea wants to be a tourist destination, is building beach resort: Report
--  Nikhil A Mehta Makes History as India's First & Only Tempter to walk out as a couple on Temptation Island India
--  Sismo originado frente a La Libertad sacude parte del país esta mañana de martes
--  Channel 5 viewer left mortified by VERY rude blunder on Christmas TV show
--  Dy letra anonime për të vrarë Arben Lleshin në burgun e Peqinit
--  【女歌手被追求者捅死】被捕時稱是死者“男友” 嫌犯將被控謀殺
--  Ar-Condicionado para a nossa roupa? É uma realidade!
+-  Court warns man time running out on paying compensation to brother
+-  Man on disability pension to pay for importing cannabis
+-  127 شركة تقود سوق الأسهم للارتفاع ويغلق عند 11713 نقطة
+-  عبر "ناجز".. وزير العدل يوجه بإطلاق خدمات "التبليغ العدلي"
+-  شروط الفحص الطبي قبل الزواج وكيفية حجز موعد
+-  عاجل.. كيفية تنازل الزوج لزوجته عن الدعم السكني.. تعرف على الإجراءات المطلوبة
+-  خطوة خطوة.. الاستعلام عن المخالفات المرورية عبر منصة أبشر ١٤٤٥
+-  الاستعلام عن رسوم المرافقين عبر منصة "أبشر"
+-  طريقة الاستعلام عن منفعة التعطل عن العمل "ساند".. بالخطوات والرابط
+-  "الأمن البيئي" يضبط 14 مخالفًا لتلويثهم البيئة بحرق مخلفات صناعية في مكة المكرمة
+-  نزار بركة ينتقد بشكل مبطن تقصير وزارة صديقي في مواجهة غلاء المنتجات الفلاحية
+-  New Orleans duo on cannabis, cocaine charges
+-  City resident remanded to prison on ammo charges
+-  En riesgo, exportaciones por cierre de cruces ferroviarios
+-  Uludağ'da drift atan 4 sürücüye 81 bin 368 TL ceza
+-  MIMORIADNE FOTO TOTO je NAJHĽADANEJŠÍ Slovák! Je obvinený z DVOJNÁSOBNEJ VRAŽDY, môže byť kdekoľvek: Pátra po ňom aj INTERPOL
+-  Kontrolné inštitúcie musia byť nezávislé od vládnej moci: Majú byť odborné a nezávislé
+-  Vírusová nálož KORONAVÍRUSU v odpadových vodách stúpla v šiestich krajoch
+-  Sepultura oznámila po 40 rokoch svoj koniec. Rozhodla sa odísť vedomou a plánovanou smrťou
+-  Experti varujú pred plastovými doskami na krájanie: Po tomto zistení ich okamžite vyhodíte von!
+-  Slovensko versus Rakúsko: Ekonómovia zverejnili veľké porovnanie cien potravín!
+-  VIDEO: Slon na Srí Lanke vnikol oknom do auta s turistami, hľadal niečo na jedenie
+-  Dzurinda prechádza so stranou povolebnou sebareflexiou: Nový názov, ktorý sa až nápadne podobá na konkurenciu
+-  Hviezdy slávneho seriálu povedali PRAVDU o kolegyni: Uff, TOTO je KRUTÝ DAR k narodeninám!
+-  Single screen owners refuse to open advances of Shah Rukh Khan’s Dunki for Friday
+-  New Show Alert! Sony Entertainment Television drops the promo of Mehndi Wala Ghar
+-  Ranveer Singh, Alia Bhatt starrer Rocky Aur Rani Kii Prem Kahaani to premiere on Christmas Eve on Colors Cineplex
+-  Národná diaľničná spoločnosť upozorňuje na mimoriadnu uzáveru tunela Bôrik
+-  Πουλήθηκε 635.000 δολάρια το κεφάλι του ΕΤ από την κλασική ταινία του Στίβεν Σπίλμπεργκ
+-  外星人傑作？泰國稻田驚現超可愛貓圖案 真相係……
+-  South African teams are the biggest drawcards in the URC
+-  Why does Gerwyn Price get booed at the World Darts Championships?
+-  PC gamers can grab an incredible 9/10 game completely free – but you’ll have to hurry
+-  AB'de kullanılmayan yaklaşık 4 milyar avroluk Kovid-19 aşısı imha edildi
+-  England cricket stars forced to hide inside hotel after man is gunned down and killed outside building
+-  Riksadvokaten godtar avgjørelsen i Tengs-saken
+-  البحث والتعرف على المفقودين: ملفات أسر ضحايا دانيال في درنة (1747) ملف
+-  Külföldön szereztetek nyelvvizsgát? Így tudjátok honosítani
+-  Αυξάνονται οι μηνιαίες αποδοχές των εξωκοινοβουλευτικών υπουργών
+-  Uživo: Pratite obraćanje Christiana Schmidta
+-  Bursaspor Başkanı Recep Günay: “Bursaspor için ölümü göze aldım”
+-  ΑΕΚ: Το καμπανάκι ήχησε απ’ την… Περιστερώνα μέχρι τη Λάρνακα
+-  Nasa testet hochmodernes Kommunikationssystem – und schickt Katzenvideo aus Raumsonde
+-  Инфлацията в Канада неочаквано остана без промяна през ноември
+-  Tonight on Uzalo: Mbatha’s guilty conscience brings him nightmares
+-  Foto: Otvoren četvrti Mali porodični dom
+-  Veliaj me nxënësit më të mirë të Tiranës: Nga janari bursa falas për kurset digjitale te Piramida
+-  Tusentals hemlösa efter Kinas värsta jordbävning på över tio år
+-  Statistics Canada reports record population growth in Q3, population grows by 430,000
+-  Политолог: В ситуации като сегашната Борисов се проявява като слаб лидер
