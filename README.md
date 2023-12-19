@@ -1,51 +1,11 @@
 # Latest News
--  ปชป.เครื่องร้อนยื่นคำร้องศาลขอไต่สวนบังคับคดีจำคุก "ทักษิณ"
--  एक सय ९५ शिक्षक र विद्यार्थीलाई पोशाक प्रदान
--  CC frena cuestionado Presupuesto 2024 con amparo provisional
--  Ahmedabad: ‘પતિ દ્ધારા પત્ની સાથે બળજબરી કરવામાં આવે તો પણ એ બળાત્કાર જ ગણાય’: હાઇકોર્ટ
--  Underworld Don Dawood Ibrahim: "भाई, 1 हजार टक्का फीट, मौत की अफवाहें गलत"; दाऊदचा हस्तक छोटा शकीलचा दावा
--  Devil: కళ్యాణ్ రామ్ 'డెవిల్'తో లిరిసిస్ట్‌గా మారిన ఫిమేల్ సింగర్!
--  IQAX eBL Partners with COSCO Shipping Captive Insurance to Achieve the First Synchronized Transfer of an eBL and an Electronic Insurance Policy
--  린나이 강영철 대표, 퇴임 통해 린나이의 새 시대 열어
--  VeriSilicon and Google Collaborate on the Open-Source Project
--  Bio-Link Introduces New Water Purification System, Revolutionizing Global Water Quality
--  '트리플 크라운 MVP' 빈자리, '왼손 원투펀치'로 메운다...NC, 카일 하트 90만 달러에 영입
--  Blinken, in call with Saudi counterpart, condemns Houthis for Red Sea attacks
--  South TN Rains: குறைந்தது மழை.. வடியத் தொடங்கும் வெள்ளம் - நெல்லை, தூத்துக்குடியில் மீட்பு பணிகள் தீவிரம்..
--  Mesej curang tarik perhatian pengguna media sosial
--  На юго-западе Исландии происходит извержение вулкана
--  ‘백현동 의혹’ 전관 입김 있었나…임정혁·곽정기 변호사 구속영장
--  India star performer, contributing more than 16% of global growth: IMF
--  LG Chem Gains Approval from EMA for Tigulixostat Phase 3 Trial in Gout Treatment
--  Хитойда зилзила оқибатида 100 дан ортиқ киши ҳалок бўлди.
--  Айрим ерларни аукционга чиқариш тартиби ўзгаради.
--  Ангренда ЙПХ инспектори ҳайдовчига нисбатан электрошокер ишлатди .
--  1 январдан эски намунадаги ҳайдовчилик гувоҳномалари ҳақиқий эмас деб ҳисобланади.
--  Исландия жануби-ғарбида вулқон отилишни бошлади.
--  Ўзбекистон ва БАА парвозлар сонини бир неча баробар оширишга келишиб олди.
--  Белградда сайловлардаги сохталаштиришга қарши намойиш ўтказилди .
--  '꽈당' 팬 내동댕이…폭행 수준 경호에, 하이브 결국 사과 [MD이슈]
--  박서준X한소희, 1945년 경성의 괴물과 맞서라…K-크리처물 신기원 '경성크리처' [MD현장](종합)
--  केंद्र सरकार की योजनाओं का लाभ अंतिम छोर तक पात्र व्यक्ति को मिले : प्रीति जैन
--  건설연, 제주 폐플라스틱 활용한 블록 제품 개발
--  Air Jordans made for Spike Lee and donated to Oregon shelter auctioned for nearly $51K
--  दिल्ली संसद अटैक: आरोपियों के बैंक खाते खंगाल रही पुलिस, GPay-Paytm से भी मांगी डिटेल्स
--  Ringgit kekal lemah, cecah RM3.52 berbanding dolar Singapura
--  Gyanvapi Case: चार बार सर्वे का आदेश... सर्वे की रिपोर्ट को 4 बार मांगी मोहलत; आखिरी बार मिली 18 दिसंबर की डेट
--  ソフトバンクが山川穂高の獲得を発表 ４年契約１２億円 背番号25
--  So where’s the info on applicants who misuse Malaysian citizenship? Suhakam asks Putrajaya
--  İletişim Başkanlığı: New York Times, Türk finansal sistemi hakkında yanıltıcı haber yapıyor
--  สำนักงานยุติธรรม จ.แพร่ เร่งช่วยเหลือ แม่ วัย 30 ปีประสบอุบัติเหตุสูญเสียลูกชาย
--  Йордания нанесе удари по свързани с Иран наркотрафиканти в Южна Сирия
--  พิธีบำเพ็ญกุศลศพ สวดพระอภิธรรม บิดาของ นายแพทย์ชลน่าน ศรีแก้ว
--  No paran: motociclista resulta lesionado tras choque en Elota
--  Temukan Fantasi Manga di Harajuku dan Omotesando, Pusat Fashion Anak Muda Jepang
--  "Худшая история": на Западе рассказали, как солдат ВСУ потерял зубы
--  歌舞伎町ホストクラブ、表示義務違反7割 シャンパンタワー料金など
--  Bank News: बैंकों को बेचने को लेकर सरकार ने लोकसभा में दिया जवाब, तुरंत चेक करें अपडेट
--  Volume of UPI Transactions Grew At 147 Pc Annually Over Past 5 Years: Centre
--  RBI Board Discusses Prevailing Economic, Financial Scenario At 605th Meet
--  OpenAI Unveils Safety Framework For Advanced AI Models
--  We Would Welcome India's Constructive Engagement: US On Resolving Russia-Ukraine, Israel-Hamas Conflicts
--  Semester I 2024, Legok Nangka Sudah Groundbreaking
--  日銀、大規模な金融緩和策を維持 景気下支え、賃上げなお見極め
+-  KB금융, '내부통제 디지털화' 추진…금융사고 예방 및 불건전영업행위 사전 차단
+-  Les Bulls surprennent les Sixers (108-104), la sixième victoire en neuf matchs pour Chicago
+-  ¡La canceló! El picante comentario de Milene Vázquez sobre Ale Fuller: “¿Por qué mejor no le dan la olla?”
+-  Timberwolves down Miami for best road win of season
+-  Stok Bapok Banjir, Zulhas Minta Warga Semarang Belanja Secukupnya
+-  توہین الیکشن کمیشن کیس، بانی پی ٹی آئی پر فردِ جرم عائد ہونے کا امکان
+-  Istri Ganjar Nyanyi 'Ikan Dalam Kolam', Ibu-ibu di Tulungagung Langsung Riuh
+-  عاجل.. تعرف على آخر أسعار البيض في جدة
+-  Lenovo Legion Pro 5 gaming laptop: up to Core i9-14900HX, up to RTX 4090
+-  أسعار النفط تواصل ارتفاعها
