@@ -1,51 +1,51 @@
 # Latest News
--  Youth Died in London: जालंधर के युवक का शव लंदन में मिला, वह 15 दिसंबर से लापता
--  President and COO of BeniComp seeks to change healthcare, one individual at a time
--  Google agrees $1 billion settlement in suit with consumers and US states
--  Quintis to dump entire portfolio of Managed Investment Scheme sandalwood projects after KPMG review finds them unviable
--  Turkish Airlines has been given the green light for more flights to Australia. What will it mean for flight prices?
--  Health minister rejects insurers' bids for large premium increases
--  A medical miracle for residents as Royal Flying Doctor Service to revive Condobolin GP surgery
--  Australia Post to pay $2.9m in compensation to business customers for lost or damaged parcels
--  US announces multinational operation as Houthi attacks on commercial ships upend global trade in vital Red Sea corridor
--  Hiltzik: The coming toll in vaccine-preventable diseases
--  Hiltzik: The coming toll in vaccine-preventable diseases
--  Google spends record $1.5 million on lobbying in California
--  Video: 49ers' Christian McCaffrey Correctly Predicts Eagles' Play Call on ManningCast
--  LeBron James: 'I Think It's Awesome' Lakers Raised NBA In-Season Tournament Banner
--  Video: 49ers' Christian McCaffrey Correctly Predicts Eagles' Play Call on ManningCast
--  Cowboys' Jerry Jones Backs Mike McCarthy After Blowout Loss to Josh Allen, Bills
--  7 Gifts the NHL Is Giving Us This Season
--  Former Giants RB Derrick Ward Arrested, Allegedly Committed Multiple Robberies
--  Justin Jefferson Talks Vikings' Playoff Chase, Nick Mullens and More in B/R Interview
--  Rockets GM Says Team Isn't 'Aggressively Hunting a Particular' Trade at NBA Deadline
--  Justin Jefferson Talks Vikings' Playoff Chase, Nick Mullens and More in B/R Interview
--  Pizzeria Cancels Tommy DeVito's Appearance After Sean Stellato Increases Fee to $20K
--  Eagles' Nick Sirianni: 'I Made the Decision' to Promote Matt Patricia over Sean Desai
--  Seth Rollins Rejuvenated, Creed Brothers' Rise, Big Tag Team Shake-up, More Raw Takes
--  NFL Scout Compares Michigan's J.J. McCarthy to 'Athletic' Version of Kirk Cousins
--  BS Meter on Latest NHL Trade and Free-Agency Rumors
--  BS Meter on Latest NHL Trade and Free-Agency Rumors
--  NFL GM Says Caleb Williams Is 'Close to a Lock' to Go No. 1 in 2024 NFL Draft
--  NFL GM Says Caleb Williams Is 'Close to a Lock' to Go No. 1 in 2024 NFL Draft
--  Jed Smolensky and Hudson Walker set to enter plea over 'drunken' Rivervale rooftop stand-off
--  Stateline survives as ABC looks elsewhere for budget savings
--  Edmond Margjini: Former Sword Boys gang member accused of violent Rockingham home invasion in 2011
--  Kevin Hawkins: Man accused of bomb threat on Perth bound Singaporean Scoot Airlines flight to plead guilty
--  Rockingham home invasion: Police charge 46yo man over attack on woman inside her home more than a decade ago
--  Man drives for help after being set on fire by stranger on Perth street
--  Money set aside for residential eating disorder facility will be spent setting up early intervention services
--  Čovjek koji je nokautirao suca u Turskoj: ‘Skočio mi je šećer, nisam bio svjestan’
--  Separate from wife-beating men, Yomi Fabiyi advises women
--  Opposition MPs Suspended: 49 और सांसद संसद से निलंबित, सुशील रिंकू बोले- ‘हूं है गांधी राजनीति’
--  "J'en suis consciente" : Jennifer (Mariés au premier regard) apparait amaigrie et inquiète ses abonnés, elle prend la parole pour faire une mise au point
--  Starc and Cummins become most expensive signings in IPL history to cap great 2023 for Aussie pacers
--  After 4 years out of test cricket, allrounder Mitchell Marsh is back in a big way for Australia
--  Putin hails Russia&#039;s military performance in Ukraine and he vows to achieve Moscow&#039;s goals
--  PNS ocupa lugar na primeira fila da bancada em entrada discreta
--  प्रदूषण: अब गेहूं में भी पानी…, दिल्ली की हवा अब भी जहरीली क्यों?
--  GNR recupera gavião "incapaz de voar" em rua de Proença-a-Nova
--  Fake call centre duping Americans with cheap airfares busted in Delhi, four arrested | Details
--  Έγινε το αναμενώμενο με τα εισιτήρια του ντέρμπι
--  « Pathé Californie » : Le nouveau joyau cinématographique de Casablanca ouvre ses portes !
--  Valverde "No hay miedo a que la euforia pueda con los jugadores"
+-  Шойгу Путинга ҳисобот берди ва «Россия армияси дунёдаги энг жанговар армия» эканини айтди.
+-  Handstaubsauger im Top-Angebot: Jetzt 50 Euro günstiger
+-  مستشار بالسفارة الليبية في بكين : انخفاض أفراد الجالية الليبية في الصين إلى أقل من النص عقب جائحة كورونا
+-  2024 will be the ‘biggest single crash year in our lifetimes,’ economist warns: ‘Do not listen to your financial adviser’
+-  Soccerladuma | REVEALED: 5 Leading Club Goalscorers In 2023
+-  Fiscales del Supremo presionan a García Ortiz para que actúe contra la portavoz de Junts
+-  Koliko će trajati izgradnja Majšanskog mosta
+-  La cascada escondida en un lugar de cuento a solo 1 hora de la Ciudad de Mendoza
+-  Operação Lex: Arguidos vão ser julgados pelo Supremo
+-  Реал Мадрид с ключова намеса за трансфер на Левски?
+-  SMHI varnar för kraftigt snöfall på torsdag
+-  Iceland volcano erupts, lava flow unlikely to hit town
+-  Padura critica la censura en Cuba y lamenta el éxodo masivo
+-  Ademi acuerda hasta RD$1,400 millones con FMO para microempresarios.
+-  Kesko valitsi uudeksi toimitusjohtajakseen Jorma Rauhalan
+-  Apuñalaron a un policía que custodiaba la casa de una víctima de violencia de género
+-  كتاب "نيابي" إلى ميقاتي والحلبي بشأن الأساتذة المتعاقدين لدى الجامعة اللبنانية
+-  Minister leaps to bureau's defence amid flood criticism
+-  Bancroft boosts hopes for Test call-up
+-  Rihanna gives cryptic response about releasing new music in 2024
+-  Evro sutra 117,17 dinara
+-  Джо Байдън притиска Израел! Пентагонът настоява за сериозна промяна в бойната тактика срещу Газа
+-  Vidéo. Guerre en Ukraine : quelles sont les conséquences sur l'environnement ?
+-  I polmoni artificiali che catturano la Co2: ecco l'impianto "salva clima"
+-  Ogun motorists complain of police extortion
+-  Thomas Mueller extends with Bayern Munich until 2025
+-  TATA IPL Auction 2024: आयपीएल 2024 लिलाव संपला, मिचेल स्टार्क आणि पॅट कमिन्सने तोडले सर्व रेकॉर्ड; येथे पाहा सर्व संघांची संपूर्ण खेळाडू
+-  Abreu Advogados assessora venda da Bifase Electric à Sanitop
+-  Anaemia reduction program launched in 50 girls' schools
+-  SAU conducts pre-entry test for admission to postgraduate degree program
+-  Pakistan's Ambassador presents letter of credence to Iranian FM
+-  Youth awarded life term, imposed fine for abducting, raping minor girl
+-  National electoral process commences across Hazara Division
+-  Sporting arms manufacturing unit discusses uplift of sector with KP Minister
+-  DC Pishin for safety arrangements in view of possible heavy rains, snowfall
+-  KU VC inaugurates Research Computer Lab
+-  SU Vice-Chancellor offers condolence on student's tragic demise in road accident
+-  Steps being taken for development, progress of tribal areas: Governor
+-  נציגי משפחות החטופים נפגשים עם נתניהו והירש: "נמאס לנו להציע הצעות ולקבל חיבוקים"
+-  רק רבע מבתי החולים בעזה עוד פועלים: "לאן ילדים ומשפחות ילכו?"
+-  HR beendet „Tatort“ mit Broich und Koch
+-  Banyoda doğum yaptı ve bebeği apartman boşluğuna attı
+-  Anuncian fechas de la Expo 2024
+-  Maratha Reservation: दोन माजी मुख्यमंत्र्यांची CM Eknath Shinde यांच्यावर सडकून टीका, सुनील प्रभू बरसले; मराठा आरक्षण मुद्दा ठरला कळीचा
+-  वकील से ‘दुर्व्यवहार’ पर कलकत्ता उच्च न्यायालय बार एसोसिएशन ने मुख्य न्यायाधीश को लिखा पत्र
+-  S&P/TSX composite up nearly 200 points, U.S. stock markets also climb
+-  S&P/TSX composite up nearly 200 points, U.S. stock markets also climb
+-  ഏവരും കാത്തിരുന്ന അനിമലിലെ ആ ചൂടേറിയ വീഡിയോ ഗാനം എത്തി, വെറും ചൂടല്ല, കൊടുംചൂട് !
+-  भाजपा ने सत्तारूढ़ सहयोगियों को संघ मुख्यालय में स्मारक देखने के लिए आमंत्रित किया
+-  पवार ने धनखड़ से संसद में सुरक्षा चूक और सांसदों के निलंबन की जांच कराने को कहा
