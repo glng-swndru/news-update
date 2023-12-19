@@ -1,51 +1,51 @@
 # Latest News
--  Hyundai makes donation
--  Motisons Jewellers IPO: Issue gets oversubscribed 15.02 times on day 1, GMP steady; should you subscribe?
--  La economía circular parte del proceso de innovación de las empresas: avances y desafíos
--  La Argentina ya tiene su propia Bolsa para el Mercado de Carbono
--  US SEC says no to new crypto rules; Coinbase asks court to review
--  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del martes 19 de diciembre minuto a minuto
--  Planes en el mercado de fichajes de América: no menos de 6 contrataciones
--  인류무형유산 '가곡'⸱ '판소리', 크로스오버⸱K-POP과 만나다... 라포엠 ⸱ 초아와 콜라보
--  Borrowers dodge rate rise as consumers trade down to save cash
--  Liz Cheney claims no double standard in her criticism of Trump or Biden: ‘We may have darker chapters ahead’
--  Tuff final för Anders och Linda – tappade i sammandraget
--  Tuff final för Anders och Linda – tappade i sammandraget
--  غزہ میں مزید 154 فلسطینی شہید، حماس کی سب سے بڑی سرنگ دریافت
--  Former member of Mr Bungle named by police as a "person of interest" in missing person/homicide investigation
--  ‘첼시 역대 최고의 수비수’ 존 테리의 고백... “와, 호나우지뉴랑 메시 막기 힘드더라”
--  Valtteri Puustinen syötti kaksi Pittsburghin maalia
--  Эвакуированный врач рассказал о сложных условиях мирных жителей в Рафахе
--  Nippon Steel Justifies Huge Premium for US Steel in Global Push
--  Çin'de 6.2 şiddetinde deprem: 100'den fazla kişi öldü
--  MX-30 R-EV: Wie Mazda mit Wankel-Mut ins E-Zeitalter fährt
--  Volcano erupts near Icelandic town of Grindavik
--  Delhi: BJP using bureaucrats to disrupt development projects, alleges Atishi
--  Muere una de las víctimas de volcadura frente al Poblado 7, Ahome
--  Chris Fernandes nets hat-trick in Ratnam FC’s MFA big win
--  Nora Fatehi wraps up shoot of `Crakk`
--  昇哥打卡 - 璀璨繽紛聖誕燈飾點亮城市
--  Year-Ender 2023: A Look at the Top 11 Space Moments of 2023
--  日央行持續實施負利率 每百日圓曾港元曾跌至「5.43算」
--  Asesinan a hombre dentro de su auto
--  Das Migrationsabkommen mit Georgien steht
--  Bundesverfassungsgericht: Urteil über Wahlwiederholung in Berlin
--  ‘Happy to represent’: Anne Curtis’ Christmas special song number go viral
--  Названа самая эффективная военная техника России
--  Laboratory filtration market to grow by USD 1.73 billion from 2023 to 2028 | North America to account for 42% of market growth- Technavio
--  BJD helping BJP spread communal rift in state: CPI general secretary D Raja
--  Papá en Apuros: Martín Seminario encaró a Ramón por preferir recoger basura en el mercado a trabajar con él
--  Во Франции одернули немецкого министра за заявление о России
--  اليونان تعتزم بيع سندات بقيمة 10 مليارات دولار بعد تحسين تصنيفها
--  Μακελείο στην Παραγουάη: 10 νεκροί και 60 τραυματίες σε επιχείρηση μεταγωγής φυλακισμένου αρχηγού συμμορίας
--  News24 Business | amaBhungane | Suspended PIC exec's R4.5m 'suspicious transactions'
--  News24 Business | e.tv channels to remain on DStv - for now
--  МЧС России сообщило о 136 пожарах из-за пиротехнических изделий с начала 2023 года
--  Vulkanausbruch auf Island
--  New Sunbury playground
--  ‘Out of his mind’ Harden erupts amid EPIC reaction; shock upset continues wild resurgence — NBA Wrap
--  무려 2000m 고지를 굽이굽이…피레네 산맥 달리는 꼬마기차 ‘화제’
--  Which African country has gone to space?
--  [MD포토] 경성크리처, '진짜 경성에서 온것 처럼'
--  박지훈, 악귀 들린 태자…홍예지와 비극 속 처절한 사랑 [환상연가]
--  [MD포토] 경성크리처, '넷플릭스에서 만나요'
+-  Мужчина узнал секрет воспитания матери и запретил ей оставаться с внуком
+-  BILLEDSERIE: Vulkanudbrud maler himlen over Island orange
+-  BILLEDSERIE: Vulkanudbrud maler himlen over Island orange
+-  Hamas releases footage of 3 Israeli hostages in Gaza
+-  The concerning STI on the rise among Aussies - and it's now hitting one group harder than others
+-  İngiltere'de milletvekillerinden Dışişleri Bakanı Cameron'a "Gazze'de ateşkes" mektubu
+-  Al-Ahly’s World Cup curse strikes again
+-  수현, 따뜻한 눈빛
+-  롯데카드, 롯데하이마트몰 연말 이벤트 진행…”최대 36개월 무이자 할부”
+-  조한철, 반가운 손인사
+-  대우건설, '대한민국 기부자 상' 수상
+-  김해숙, 푸근한 미소
+-  밸런스 질문에 신진서 9단 “1000만 유튜버 돼 바둑리그 알릴것” (KB국민은행 바둑리그 미디어데이 종합)
+-  '페디 떠난' NC, 좌완 카일 하트 영입… 2024시즌 외인투수 구성 완료[오피셜]
+-  BOJ keeps ultra-loose policy intact
+-  Yemen rebels attack Red Sea tankers as shipping firms suspend traffic
+-  ¿Quién es Fernando Gago, posible nuevo DT de Chivas? | En Caliente
+-  ചന്തുവാകാൻ മമ്മൂട്ടിയുടെ നിശബ്ദ പഠനം: വെളിപ്പെടുത്തി സത്യൻ അന്തിക്കാട്
+-  Hủy diệt đối thủ, Girona vượt Real Madrid chiếm ngôi đầu La Liga
+-  Ramos gửi thông điệp đặc biệt đến Alaba
+-  Barca cân nhắc bán Raphinha
+-  Thay Alaba, Real tạo sự bất ngờ cho Man Utd
+-  Hai lựa chọn giúp Barca có thể mua thêm người vào tháng 1
+-  Được đại gia EPL quan tâm, sao Barca sắp thoát khỏi cảnh dự bị
+-  Olympique Lyon muốn mượn người của Chelsea
+-  Bellingham đã làm thay đổi cả hàng tiền vệ Real
+-  Georges Mikautadze trở lại Pháp thi đấu
+-  Liverpool khó mua hiện tượng Bundesliga
+-  Man Utd bị trói chân buộc tay trong tháng 1
+-  Graeme Souness: Arsenal và Man City có thể vô địch Champions League
+-  Chuyên gia bênh vực Erik ten Hag
+-  Sắp có HLV thứ 2 bị sa thải tại EPL
+-  Luke Shaw thừa nhận thiếu sót lớn của Man United
+-  "Tôi đã khiến Ramsdale trở thành một thủ môn giỏi hơn"
+-  Cựu thủ môn Arsenal bị HLV nói bóng gió sau khi mắc sai lầm
+-  Mourinho loại Arsenal khỏi danh sách ứng viên vô địch EPL
+-  Eddie Howe: "Isak có cơ hội ra sân trước Chelsea"
+-  Mục tiêu của Man City tiết lộ gây sốc
+-  Sao Man City chưa có ý định đến Ả Rập
+-  5 điểm đáng chú ý trước vòng tứ kết Cúp Liên đoàn Anh: Carrick có bước tiếp?
+-  Shearer nêu tên thương vụ xuất sắc nhất Premier League mùa này
+-  "Khi còn ở Man United, tôi đã bị buộc tội bắt nạt cầu thủ"
+-  Mourinho: “Thật nực cười khi họ sa thải tôi”
+-  Luke Shaw: "Man United có thể thắng Liverpool"
+-  "Tôi thực sự nghĩ Arsenal là đối thủ duy nhất của Man City"
+-  'Thấy thương Hojlund khi tới Man Utd quá sớm'
+-  'Lính đánh thuê' Arsenal phục hồi thần kỳ
+-  OpenAI is giving its board veto powers over Sam Altman
+-  Delhi: ఢిల్లీలో విపక్ష కూటమి భేటీ నేడు
+-  Украинских солдат собрались вооружить лопатами
