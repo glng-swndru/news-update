@@ -1,51 +1,51 @@
 # Latest News
--  Hardoi News: लिपिकों पर कार्रवाई वापस न हुई तो होगा आंदोलन
--  Hardoi News: आग लगी तो खोजे नहीं मिलेंगे बुझाने के इंतजाम
--  Punjab: शादी में हुल्हड़बाजी के बाद हुआ झगड़ा, व्यक्ति की पीट-पीटकर हत्या, अमृतसर जिले का मामला
--  Etawah News: 22 और 23 को छोटे वाहनों के लिए बंद रहेगा चंबल पुल
--  Ambedkar Nagar News: कमरे में आग लगे तो काटें बिजली का कनेक्शन
--  Ambedkar Nagar News: एक वर्ष से चिकित्सक की कुुुर्सी खाली, मरीज परेशान
--  Saharanpur News: कोहरे और हवा से गिरा पारा, पांच डिग्री सेल्सियस पर आया
--  Ambedkar Nagar News: आत्महत्या को उकसाने में युवक को जेल
--  Saharanpur News: नहीं बदला ट्रांसफार्मर, एक माह से आधे गांव में अंधेरा
--  Ambedkar Nagar News: जल जीवन मिशन में शिथिलता पर डीएम ने लगाई फटकार
--  Saharanpur News: 11 पदों पर 30 अधिवक्ताओं ने किया नामांकन
--  Ambedkar Nagar News: सजा ऐतिहासिक गोविंद साहब मेला, शुभारंभ आज
--  Saharanpur News: विकास प्राधिकरण का सीमा विस्तार, शामिल हुए 33 नए गांव
--  Saharanpur News: लॉ पाठ्यक्रमों में प्रवेश के लिए ऑनलाइन पंजीकरण आज और कल
--  Saharanpur News: इन धार्मिक स्थलों को भी काया कल्प की दरकार
--  Saharanpur News: जमीन दिलवाने के नाम पर लाखों की धोखाधड़ी करने वाले पांच गैंगस्टर पकड़े
--  Udham Singh Nagar News: बार एसोसिएशन के अध्यक्ष पद पर होगा त्रिकोणीय मुकाबला
--  Jind News: दुष्कर्म करने के आरोप में युवक पर केस
--  Shamli News: जिले में इस मौसम का सबसे ठंडा दिन रहा, तापमान पहुंचा पांच डिग्री सेल्सियस
--  Jind News: मकान का ताला तोड़कर जेवरात व नकदी चोरी
--  Shamli News: यहां तो रुपये लगाकर कराई जाती है पिटबुल की फाइट
--  Jind News: गांव हाट पहुंची विकसित भारत संकल्प यात्रा का ग्रामीणों ने किया स्वागत
--  Shamli News: सीसीटीवी कैमरे की निगरानी में पालिका बोर्ड की बैठक कराने की मांग
--  औद्योगिक क्षेत्र में समस्याओं का तुरंत समाधान करें अधिकारी : एडीसी
--  Shamli News: अभी भी आतंक का पाठ तो नहीं पढ़ा रहे आईएसआई एजेंट, खुफिया एजेंसियां अलर्ट
--  Jind News: महिला ने दहेज प्रताड़ना का लगाया आरोप
--  Shamli News: प्राथमिक चिकित्सा किट में मिले लोहे के औजार
--  Jind News: युवक की हत्या करने के दोषी को उम्रकैद की सजा
--  Shamli News: पिटबुल होता है खतरनाक, घर में पालने से बचें
--  Jind News: रोडवेज कर्मचारियों ने लाखों रुपये के गहने लौटाकर दिया ईमानदारी का परिचय
--  Shamli News: फुगाना से लेकर ख्यावड़ी तक सर्विस लेन बनाने की मांग
--  Jind News: सरकारी स्कूलों में ई-अधिगम के लिए मिले टैबलेट का अब देना होगा हिसाब
--  Shamli News: मिर्च की फसल नष्ट करने के मामले में पांच के खिलाफ रिपोर्ट दर्ज
--  Jind News: चरस के साथ दो तस्करों को सीआईए ने किया गिरफ्तार
--  Shamli News: लाभांश बढ़ाने की मांग को लेकर जिले के कोटेदारों ने किया कलक्ट्रेट में प्रदर्शन
--  Jind News: सड़क दुर्घटनाएं रोकने के लिए सरकार के साथ-साथ लोगाें की भी जिम्मेदारी
--  Shamli News: अध्यक्ष, महासचिव और वरिष्ठ उपाध्यक्ष पद पर होगा सीधा मुकाबला
--  Jind News: चिकित्सकों ने काले बिल्ले लगाकर किया अस्पतालों में काम
--  Jind News: मार्केट फीस बढ़ोतरी के विरोध में आज बंद रहेगी सब्जी मंडी
--  Jind News: रोडवेज कर्मियों ने मांगें पूरी न किए जाने पर जताया रोष
--  Basti News: सांसद खेल महाकुंभ का शुभारंभ आज... भाजपा के राष्ट्रीय अध्यक्ष जेपी नड्डा और मुख्यमंत्री योगी आदित्यनाथ मौजूद रहेेेंगे
--  Panchkula News: बीमा कंपनियों को दिसंबर-2020 तक के लंबित वाहन हादसे के दावों की जानकारी सौंपने का आदेश
--  Basti News: 330 रुपये बोरी बिक रही यूरिया....अधिकारी बेफिक्र
--  Panchkula News: कोविड जैसे हालात से निपटने को पंजाब पूरी तरह तैयारः स्वास्थ्य मंत्री
--  Basti News: नायब तहसीलदार की जमानत अर्जी पर आज फिर सुनवाई
--  सांसद नहीं सदन से लोकतंत्र सस्पेंड हुआ: राघव चड्ढा
--  Basti News: आरोपी कुंदन की कॉल डिटेल्स भी तफ्तीश में होगी शामिल
--  Basti News: चोरी का बालू लदी ट्रैक्टर-ट्रॉली बरामद, तीन गिरफ्तार
--  Basti News: पश्चिमी विक्षोभ की सक्रियता के चलते दो तीन दिन में ठंड बढ़ने के आसार
--  Basti News: अमरमणि की संपत्ति कुर्क करने दो टीमें रवाना, आज होगी सुनवाई
+-  Maduro ordena a las autoridades atender denuncias sobre fallas en servicios públicos
+-  Tod eines jungen Flüchtlings – Polizisten vor Gericht
+-  Wealthramp Review 2024
+-  Israel-Blog: 20 weitere Deutsche verlassen Gazastreifen
+-  GOP Sen. Is ‘Disappointed’ Trump’s Anti-Immigrant Rants Aren’t Harsher
+-  Blue Origin’s New Shepard makes triumphant return flight
+-  One in 10 men have this vision impairment — Here’s how to tell if you’re one of them
+-  Muzikanten welkom bij Play Inn van Graafstrooms Fanfare
+-  Cleverly ‘very confident’ Rwanda will abide by asylum deal terms
+-  الخليف لـ "اليوم" : عام الإبل سيكون له كثير من الأبعاد التطويرية في مسيرة قطاع الإبل
+-  Parkland massacre dad rips school over student’s viral parking-lot beating
+-  Loi immigration : LR clame sa victoire
+-  Нетаниягу посетил раненых бойцов ЦАХАЛа в реабилитационном центре при "Шибе"
+-  Самолёт парвози пайтида қандай касалликлар кучайиши мумкинлиги айтилди .
+-  Буюк Британия Украина билан хавфсизлик шартномаси тузган биринчи давлатга айланади.
+-  Médicos por la Salud: 84 % de los servicios de tomografía en hospitales están cerrados
+-  What Is Spotify’s AI Playlists Feature?
+-  Man (52) arrested as police investigate Co Down bar assault
+-  Ex-Proud Boy who cooperated gets reduced Jan. 6 sentence
+-  Gardin is using generative AI and synthetic data to drive plant growth — here's how
+-  Paranaense preso no Paraguai encabeça grupo que fornece armas para facções do RJ e SP, afirma ministro paraguaio
+-  مستشار رئيس حركة حماس لـ"الشرق": لا جدية لدى إسرائيل بشأن إطلاق سراح الأسرى
+-  RBNZ Gov. Orr: Inflation remains to high.
+-  VIDEO: Kovačić zabio prvi gol za Manchester City! Pogledajte sjajan bijeg i egzekuciju hrvatskog majstora
+-  New York City has become a 'hub' for the creator economy. Here's how a startup founder has turned meetups into a thriving community complete with sponsors and a newsletter.
+-  Dina Boluarte y el gabinete ministerial realizan balance 2023
+-  Pavliček: Neka se DP zapita zašto nitko s desnog centra ne želi ići s njima
+-  تكليفات عاجلة من وزير التعليم بشأن امتحانات نصف العام الدراسي
+-  تخصيص قطعة أرض بمساحة 7.5 فدان لإنشاء مستشفيات الأقصر الجامعية
+-  وفد «التنسيقية» يقدم واجب العزاء في أمير الكويت
+-  تجديد حبس المتهمين بخطف عامل بالتجمع الخامس 15 يومًا
+-  التعليم: إتاحة امتحانات الصفين الأول والثاني الثانوي إلكترونيًا - تفاصيل
+-  متحدث الري: إثيوبيا تراوغ للهروب من التوصل لاتفاق بشأن سد النهضة
+-  إعلام عبري: من المحتمل أن تكون تكاليف صفقة تبادل الأسرى الجديدة مرتفعة لإسرائيل
+-  Yarım kalan İstanbulspor-Trabzonspor maçının ne olacağını Turgay Beşyıldız açıkladı
+-  Yıldız Tilbe’den sağlık durumuyla alakalı çıkan haberlere videolu yalanlama
+-  Deportivo Guastatoya envía emotivo mensaje a sus jugadores
+-  VÍDEO: Prefeita e professores de Maxaranguape, RN, se envolvem em confusão na entrada da Câmara de Vereadores
+-  Dos años le dieron al que falsificó entradas de Bad Bunny
+-  Cuelgan los restos de un lobo en un paso peatonal en Asturias
+-  Twitch sees a 3% decrease in viewership for November
+-  Berlin: Stolzenauer Landwirt war bei Demo dabei
+-  All the Dirt George Santos Has Been Flinging Since Being Kicked Out of Office
+-  A doença que está afetando soldados israelenses em Gaza
+-  Sponsored Content: Duvall & Co. Offers a Variety of Handmade Wood Products. Enter CBS17's 17 Days of Christmas to win a Custom Charcuterie Board!
+-  Ordning for havvindprojekter lukker og slukker
+-  Ordning for havvindprojekter lukker og slukker
+-  Nach Saudi-Einstieg: Spanien will zehn Prozent der Telefonica-Aktien kaufen
+-  Gobernador de Kentucky: Discurso antiinmigrante de Trump es peligroso y deshumanizante
+-  Grecia aprueba ley que dará permisos de trabajo a migrantes
