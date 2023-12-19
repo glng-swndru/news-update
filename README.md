@@ -1,51 +1,51 @@
 # Latest News
--  4316억원 슈퍼스타의 영상통화…日 25세 괴물에이스 붙잡기, 다저스·양키스·메츠 사이 ‘눈물겹네’
--  Putin, "dost olmayan ülkelerle" yapılan vergi anlaşmalarını iptal etti
--  Sultangazi'de 15 katlı binada yangın: Vatandaşlar mahsur kaldı
--  Başkan Erdoğan'dan dünyaya Gazze mesajı: Artık suçluların cezalandırılması için gerekeni yapmak vaktidir
--  Konya merkezli 3 ilde FETÖ operasyonu: 14 gözaltı
--  Soccerladuma | Sundowns' Next Plan In Luring Mayo From City?
--  Teilwiederholung der Bundestagswahl in Berlin am 11. Februar
--  Kinderleiche aus Fluss in Bingen geborgen
--  NeoVision泰山影像系统 高定三主摄 努比亚Z60 Ultra发布
--  '매디슨 공백 최소화' 로 셀소, 에버턴전도 출전 의심...토트넘은 긴장
--  Microsoft Edge, Süper Sürükle ve Bırak Özelliğini Duyurdu
--  Herausforderung für Finger und Füße
--  Letztes Spiel des Jahres: Preußen Münster ist beim BVB II gefordert
--  Nissan terá picape inédita de R$ 150 mil no segmento do Fiat Toro
--  Во недела ќе се одржи традиционалната Дедомразовска трка
--  VP's Rechtsback van de Eerste Seizoenshelft: vijf opties, uitblinkers PSV en AZ
--  Sie sind das erste Perfect Match bei "Are You The One?"
--  Echo Show 8 (3. Gen.) im Test: Mit Thread, Zigbee und Matter zur Smart-Home-Zentrale
--  Eredivisie-doder Spakenburg slijpt messen voor thuisduel met Excelsior in de beker
--  Lazio director on drawing Bayern Munich in the Champions League: “Worst draw we could have got”
--  沒直播就取消？ 于北辰節目籲趙少康：不要把成大當成中廣的
--  Gwrthod apêl National Theatre Wales ar ôl colli cyllid
--  내년 총선 관련 범죄 예방 `검경협의체' 가동
--  종일 주워도 고작 1만원 … 폐지 줍는 노인들 `寒겨울'
--  대전 화장품공장 화재
--  충북도 외자유치 4억3000만달러 달성
--  교육과정 운영 체계 교류 `맞손'
--  청주페이 한정판 캐릭터 카드 충북콘텐츠코리아랩 제작 출시
--  “R마드리드·바르샤 비켜” 지로나 라리가 선두 질주
--  브라질 플루미넨시FC FIFA 클럽월드컵 결승 선착
--  ‘NBA 올스타 군단’ 클리퍼스 8연승 상위권 도약
--  KBO 경력직 외인 우대?
--  챔스리그 16강서 한일 ‘친구 대결’
--  청주국제공항 민간전용 활주로 신설·활성화 촉구 거리행진
--  과도한 인공조명 공해 막는다
--  아침 간편식 운영 방식 어떻게?
--  한국 야구 세계랭킹 4위 유지 … 1위 일본·2위 멕시코
--  토트넘전 판정에 항의 맨시티 제재금 2억 징계
--  독일 분데스리가 김민재 슈투트가르트전 도움 삭제
--  시민 여론조사 `청주시선' 호응
--  충북도 산단 지정규모 전국 최대
--  참여연대 “충북시군의회의장협 해외연수 추진” 비판
--  한파 속 극락조 꽃 `활짝'
--  34평 1년 만에 4522만원 올랐다
--  검찰 오송참사 수사망 윗선 겨냥? 충북도청·청주시청 2차 압수수색
--  “충청타임즈는 ‘2024 지발위 우선지원대상사’ 신청을 하지 않기로했습니다”
--  교통대 역량강화 워크숍
--  정환희 서원대 교수 장학·대학발전기금 기탁
--  충북소주 연탄·이불 기탁
--  전이현 나라아트 꽃집 대표 화분 기탁
+-  라이드플럭스, 2023 IP-R&D 우수기관 선정
+-  개인정보위, 스마트카 업계 개인정보 보호 어려움 청취
+-  القوات البحرية تستلم الفرقاطة "القدير" من طراز (MEKO-A200)
+-  مجلس النواب يوافق مبدئيا على قانون نقابة التكنولوجيين
+-  وزير الدولة للإنتاج الحربي يؤكد أهمية السعي لتحقيق أقصى معدلات الجودة
+-  تابعة لـ "بلتون" تعتزم شراء 51% من أسهم شركة للتقاوي بـ 140 مليون جنيه
+-  Karşılıksız çek tutarı arttı
+-  La Casa de Papel dizisinin oyuncularından Gazze paylaşımı
+-  क्या आप जानते हैं सोया चंक्स के स्वास्थ्य लाभ?
+-  Само 27 проценти од учениците во Македонија се чувствуваат целосно безбедни во училиштето
+-  Vratar PSG-a žrtva provalnika i pljačkaša, njegova partnerica dobila je udarac u lice
+-  ممثلة اليونيسف في السودان: أشعر بقلق بالغ إزاء تصاعد العنف في مدينة ود مدني بولاية الجزيرة
+-  (VIDEO) Zbog jedne divne crne žene u Sao Paulu: Oružana otmica nekadašnjeg saigrača Miroslava Đukića u timu Valensije, strelca protiv Jugoslavije 1998.
+-  Isa Serra se presenta a las primarias de Podemos Madrid para intentar resucitar el proyecto en la capital
+-  क्या आप जानते हैं सर्दियों में ऐसा पानी पीने से क्या होता है?
+-  السيسي يستقبل المرشحين الذين خاضوا انتخابات رئاسة الجمهورية 2024 بقصر الاتحادية
+-  Detenido por utilizar una empresa de reformas sin actividad para vender drogas
+-  تعيين مرافق للسائق و"زر إيقاف" في نهاية الحافلة لعدم نسيان الطلاب
+-  فلسطين الآن.. استشهاد العشرات في قصف مستمر على قطاع غزة
+-  عاجل.. وظائف شاغرة بالخدمات الطبية للقوات المسلحة في عدة مدن
+-  彭博：劉德音全球擴業 魏哲家善溝通幽默聞名
+-  Massive Wolverine leaks include gameplay, story spoilers and release window
+-  Šta je pozadina hapšenja Debevca i Mehmedagića? Promenjena i odbrana, Vidović nedostupna javnosti
+-  Este es el primer concursante de 'El Conquistador del fin del mundo'
+-  इस घरेलू तेल से गंजे सिर की समस्या का स्थायी समाधान!
+-  Мицкоски: Марија Габриел им ја плесна вистината, власта лаже дека уставните измени се последна пречка
+-  '나솔' 18기 옥순='배우 출신' 진가현 맞지만…전 소속사 "연예계 떠나" 대신 해명 [MD이슈] (종합)
+-  "저 펩에게 하이재킹 당했어요!"…21세 '브라질 신성'이 바르샤 거부하고 맨시티 선택한 이유, 지금은 뭐하니? 라리가 1위팀 주역!
+-  Navigating Nepal&#039;s digital frontier: Understanding cybersecurity in the digital age, ensuring data safety, and the role of AI
+-  이필모, 5세 子 아데노이드 수술 앞두고…해신탕→스노우 파티 "아빠가 해준 건 다 맛있어요" 뭉클 [슈돌]
+-  Frota de veículos em Sorriso cresce e se aproxima dos 100 mil
+-  Valtionvarainministeriö synkensi talouden kasvuennustettaan vuodelle 2024 – työttömyysaste nousee ensi vuonna 7,5 prosenttiin, ministeriö arvioi
+-  Afghanistan has good relations with neighboring countries and beyond: Muttaqi
+-  Biodata dan Agama Katak Bhizer, Dikalahkan Rival Tawuran dalam Duel Tinju
+-  La industria automovilística acoge con satisfacción la norma Euro 7
+-  رئيسة اللجنة الوطنية للمرأة تلتقي وفد رفيع من البرلمان الأوروبي بعدن
+-  Мілан припинить співпрацю з Піолі
+-  Milan Rennes: sfida sul campo ma anche intrecci di mercato, lo scenario
+-  NOVAK NE JEDE ŠTA NAMA SPREME, NOSI SVOJE PAKETE! Đoković nije vegan, a u ovom slučaju se hrani kao i ostali teniseri
+-  POŽAR U STANU NA KARABURMI Tri vagrogasna vozila gasila vatru
+-  Mercato - PSG : Le Qatar a tout prévu pour Mbappé
+-  ‘We’ve enjoyed the revenue’ – Is clamping now all about money?
+-  EnchufeSolar instalará plantas fotovoltaicas en los Volvo-Vypsa de Córdoba y Málaga
+-  ЮАР угрожает уголовным преследованиям гражданам, служащим в ЦАХАЛе
+-  कानोड़िया महाविद्यालय में मैनेजमेंट फेस्ट समन्वय 2023 का आयोजन
+-  遭爆名下農地變停車場疑逃漏稅 柯文哲回應了：我爸買的！
+-  قيادة انتقالي خنفر تشارك في حفل تكريم النجم مسعود بجعار
+-  برشلونة يستأنف تدريباته استعداداً للقاء ألميريا
+-  Valioliigan jättiläiset saivat Fulhamilta nenilleen siirtomarkkinoilla
+-  Perdagangan Malaysia susut 7.5 peratus kepada RM2.4 trilion
