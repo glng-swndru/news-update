@@ -1,51 +1,51 @@
 # Latest News
+-  ABD'den Apple Watch kararı
+-  Dividend Declaration: Thames Ventures VCT 1 plc
+-  Licitação para concessão de linhas de ônibus foi deserta
+-  Casal é preso acusado de morte de criança de 3 anos
+-  Получить бесплатный горячий обед нуждающиеся вологжане могут по двум адресам
+-  Госавтоинспекция подвела итоги рейдов «Ремни безопасности» и «Источник света»
+-  Conservator decries use of dangerous chemicals by illegal miners in Cross River
+-  Эксперт Леонков оценил слова Шойгу о лучшей армии мира: «Так оно и есть»
+-  خطوة واحدة تفصل نونو سانتو عن العودة للدوري الإنجليزي
+-  Puljak: Uređenje plaže Žnjan koštat će 45 milijuna eura
+-  Nacionalni park “Sjeverni Velebit” na godišnjoj radionici članica mreže EDEN
+-  ¡Prepárese para la nieve!... Se aproximan 2 Frentes Fríos a México; junto a masa de aire frío, azotarán con caída de aguanieve, temperaturas de -10 grados y lluvias
+-  김지영 "김용림・남일우 부담에 남성진 프러포즈 거절…결혼하니 고마워"('돌싱포맨')
+-  Bomba Estéreo, Hombres G, SFDK o Trueno harán vibrar Zaragoza en el Vive Latino 2024
+-  स्कूल में नौकरी का मामला : डब्ल्यूबीएसएससी को हलफनामे में देनी होगी अनियमितताओं की जानकारी
+-  LISTEN | Zuma’s ‘not voting ANC’ will affect party: analyst Ongama Mtimka
+-  Inside £40k Dundee flat that can’t get a mortgage and needs ‘extensive’ renovations
+-  Panenkas and playing the panto villain: Ross Millen’s key role at Raith Rovers
+-  CHP Genel Başkanı Özgür Özel'den Maraş Katliamı paylaşımı
+-  अजमेर में प्रॉपर्टी सर्वे : खामियों से भरा टेंडर स्वायत्त शासन विभाग के निदेशक ने किया निरस्त
+-  Le cimetière juif de Kraainem tagué de croix gammées et d'étoiles de David cette nuit
+-  Sorteio da Libertadores: onde assistir e tudo que você precisa saber sobre definição de rivais de Botafogo e Bragantino
+-  Reino Unido se acha dono de suas ex-colônias, afirma Maduro
+-  17 Carrot Hacks That Will Make You Feel Like A Pro Chef
+-  Rosebud Communications Lands Lumotive: Becomes Semiconductor Company's Global Agency of Record
+-  Baždarević: Al-Tuwaijriju želim mnogo sreće, nadam se da sam ozbiljan kandidat za selektora Crne Gore
+-  Kate Middleton's favourite walking boots are reduced by £70 ahead of Christmas
+-  Strategjitë e menaxhimit të rreziqeve: Një rrugë efektive për të përmirësuar zhvillimin e biznesit tuaj
+-  Health D-G: Dengue cases drop slightly, three deaths recorded from December 3 to 9
+-  موعد تكريم ميسي في برشلونة
 -  Fenerbahçe'nin Kayserispor kadrosu açıklandı! 5 eksik var
 -  Ülkesi için fırsat olarak gördü: Türkiye'deki başarılı çalışmaların, ülkemizde yapılmasını umut ediyoruz
+-  Detenidos 31 pandilleros, 14 de ellos menores, tras varias reyertas en Madrid
 -  ABD'nin koalisyon kararına İran'dan yanıt: 55 bin kişilik deniz milisleri oluşturduk
+-  Detenidos 31 pandilleros, 14 de ellos menores, tras varias reyertas en Madrid
+-  Ptrijarh Porfirije: Srpski narod nije slučajno izabrao Svetog Nikolu
+-  Marcelinho Carioca: quem é a mulher que estava com ex-jogador
 -  โปรดเกล้าฯ "อรรถพล"นั่งอธิบดีอุทยานฯ-ปิ่นสักก์ กลับทช.
 -  โปรดเกล้าฯ แต่งตั้ง "ผู้นำเหล่าทัพ-ผบ.ตร." นั่ง สว.
+-  Путин: Русия е готова да разговаря за бъдещето на Украйна
+-  Seimas leido rūkalų gamintojams remti kovą su kontrabanda
+-  Nun herrscht traurige Gewissheit: Die seit Sonntag vermisste Zweijährige ist tot
 -  Суд рассмотрит ходатайство об аресте высокопоставленного чиновника СКР по Херсонской области
+-  Após perfis invadidos por hacker, Janja diz que redes sociais estão 'acima da lei' e que vai processar empresas
+-  Suspend synod decision on Mass celebrations, demands lay group
+-  "M jak miłość" 1768. Budzyńska będzie w szoku. "Co to do cholery było?"
 -  Galatasaraylı Davinson Sanchez'den flaş açıklamalar!
 -  Tarihi eser operasyonu: 5 heykel ele geçirildi
 -  Erdoğan'dan dünyaya Gazze mesajı: Biz hazırız
--  Белгородец пожаловался на состояние актового зала Старооскольского общества слепых
--  Eriksen ima savet za kapitena Lutona posle srčanog udara
--  Эрдоган усомнился в перспективах вступления Украины в ЕС
--  যুক্তরাষ্ট্রের মন গলাতে নিরাপত্তা পরিষদে তোলা প্রস্তাবে ভাষা বদল
--  ”Nej, livet är ingen teater – och det finns en orsak”
--  Police looking for suspect in connection with downtown Windsor stabbing
--  Грантовая поддержка ставропольских фермеров в 2024 году составит почти 180 млн рублей
--  Huippukokin keitetyt perunat – Mausta näin
--  Лидер ЛДПР Слуцкий выступил с речью на могиле Жириновского: видео
--  كيلو البصل بـ17 جنيهًا| طرح محصول الموسم الجديد.. ونقيب الفلاحين يكشف مفاجأة
--  Outgivna Monica Z-inspelningar ges ut
--  موعد إصدار اللائحة التنفيذية لقانون التصالح في مخالفات البناء
--  رئيس "سيرا": نحتاج لرفع نصيب القطاع الخاص إلى 40% من استثمارات التعليم
--  وزير الصحة: مصر تحتل الآن المركز الـ 14 من حيث عدد السكان في العالم
--  شركة سيرا للتعليم تنوي استثمار 700 مليون جنيه خلال العام 2024
--  رفع الجلسة العامة للبرلمان ومعاودة الانعقاد غدا
--  البورصة تهبط 1.02% في نهاية تعاملات اليوم الثلاثاء
--  Северян предупредили о вовлекающих в теракты украинских мошенниках
--  Silaturahim Kamtibmas Jelang Pemilu 2024, Polres Indramayu Kunjungi TPQ di Cidempet
--  Synoni majën, zbuloni cilat janë 5 shenjat e Horoskopit që do të kenë rritje spektakolare të karrierës në 2024
--  Slavni Brazilac čeka već drugo dijete s nećakinjom svoje bivše supruge: ‘Još jedan sin, još jedan blagoslov‘
--  صحيفة الشرق الأوسط: الجيش الأردني رصد مجموعات محلية متعاونة لتهريب المخدرات
--  شاهد كيف قصفت دبابات الاحتلال مستوطني بئيري يوم ٧ اكتوبر
--  Bernstein belässt Delivery Hero auf 'Outperform' - Ziel 60 Euro
--  Ağrı'da Afganistan ve Pakistan uyruklu 117 düzensiz göçmen yakalandı
--  Kamilla királyné saját podcastot indít, amiben a könyveké lesz a főszerep
--  경복궁 낙서범 잡고 보니 10대 연인
--  Man Burnt To Death: Wife & Paramour Arrested In Odisha’s Cuttack
--  TikTok, Mobil Uygulamasını Tabletler için Yeniden Tasarlıyor
--  إنريكي: مواجهة ريال سوسيداد ستكون صعبة للغاية
--  MN - Milanello, giovedì alle 14.30 la conferenza stampa di Pioli prima della Salernitana
--  Von Brömssen läser "Nyårsklockan" på Skansen
--  В Орловской области в своих квартирах едва не скончались две женщины
--  Агент Радулова: мы находимся в переговорном процессе с «Ак Барсом»
--  With Amo’s third app, the makers of Zenly release a Zenly-like app
--  معاودة ارتفاع أسعار الدولار في بغداد وأربيل مع إغلاق البورصتين
--  Preventive strategies for a healthy holiday season
--  El campo de la Región cierra un año duro
--  RBI Assistant Mains admit card 2023 released at rbi.org.in; check exam date here
--  الأزياء الشتوية تجذب الزوار في سوق الأولين بموسم الرياض
--  Akşener'den İmamoğlu ve Yavaş'a salvolar: Korkaklar, her yerde tek başına seçimlere gidiyoruz
+-  Μετράμε αντίστροφα για τα Χριστούγεννα με τα Ευχοστολίδια – Κάνουμε όλοι μαζί παιδικές ευχές πραγματικότητα
