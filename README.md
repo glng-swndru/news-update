@@ -1,11 +1,11 @@
 # Latest News
--  Okafor out sul più bello: svelati i tempi di recupero dell’attaccante
--  สว.เห็นชอบ "แมนรัตน์" นั่ง กรรมการ ป.ป.ช. แทน "สุภา" ที่ดำรงตำแหน่งครบวาระ 9 ปี
--  האחוזים צונחים, וגם הביטחון: אבדיה חוזר לדפוסים הישנים?
--  [ŽT] Peskovas nenustoja džiuginti! Skelbia, kuo baigėsi „didysis kiaušinių mūšis“ (Foto)
--  „Bundesvero brigada prieš Rusiją pradeda darbą.“ Skelbiama apie istorinę dieną Lietuvoje
--  [ŽT] „Grėsmė pasauliui - JN1.“ Kas tai?
--  Neįtikėta. Japonija išbandė naują raketų variklį, varomą... Nepatikėsite kuo! (Video)
--  นาทีรวบ “วิน” มือยิงครูเจี๊ยบ-นศ.อุเทนฯ คาเต็นท์บนดอยปุย
--  NH투자증권, 여가부 인증 '가족친화 우수기업' 선정
--  KB국민은행, 고객 편의성 및 안전성 제고 위한 ‘소비자지원시스템’ 신설
+-  Cumhurbaşkanı Erdoğan hediye etti: Macaristan Başbakanı Orban'dan Togg ile dikkat çeken paylaşım
+-  د. سارة ناصر الدين/كلية الصيدلة في جامعة عمان العربية تمثل الأردن كمخترع عالمي
+-  واشنطن تندد بهجمات الحوثيين على السفن التجارية
+-  Wydarzenia na Morzu Czerwonym podbijają notowania ropy
+-  الدولار بـ 1500؟
+-  Dossena a La Stampa elogia il Torino: "I ragazzi di Juric in lotta per l’Europa"
+-  «اقعيم» يطلع على أوضاع الأمن في الجبل الأخضر
+-  کراچی،ڈاکوؤں کا ڈاکٹر کے گھر پردھاوا،اہلخانہ کو یرغمال بنا کر لوٹ مار
+-  Россиян предупредили о риске исчезновения дешевого вина
+-  Cerca de 300 mil pessoas em fuga após combates em cidade refúgio no Sudão
