@@ -1,11 +1,11 @@
 # Latest News
--  “4·3학살자 이승만, 미국 동상 건립 추진 중단해야”
--  ‘소규모 건축물 현장관리인 인력 풀’ 제도 1년만에 폐지
--  Binance Bolsters Crypto Security with Successful SOC 2 Type II Audit
--  BMW Performace Motors Thamrin Hadirkan Pengalaman baru Konsumen
--  Royal Enfield Rilis Motor Shotgun 650, Harga Rp 50 Jutaan
--  벌써 20골 달성... 케인을 향한 투헬의 특급 칭찬, “역시는 역시네, 이런 선수 드물어”
--  알라바-밀라탕 십자인대 파열인데…레알 마드리드 수비수 영입 계획 X
--  Kehilangan Kursi MotoGP 2024, Pol Espargaro Dihadiahi KTM X-Bow
--  英國升學︱Gretton School 森林學校培育自信
--  Mersin'de şafak operasyonu! Çok sayıda polis katılıyor
+-  Anzeige – BUND-Weihnachtsbaumtest 2023: Über zwei Drittel der Bäume mit Pestiziden belastet / Umweltverband fordert Pestizidreduktion und Glyphosat-Einschränkung
+-  삼성, iToF·글로벌셔터 센터 ‘아이소셀 비전’ 2종 공개
+-  직장인 위한 방치형 무협 RPG ‘언박싱’ 정식 출시
+-  후티 공격에 홍해 물류 마비 위기…美, 다국군 대응 나서
+-  So hilft Big Dutchman, gewaltige Insekten-Farm zu bauen
+-  ברדה מחכה לפצועים. פליטר עשוי להמשיך לקבל קרדיט בהרכב
+-  휴전협상 논의 재개…"CIA·모사드수장·카타르총리 회동"
+-  Alleged Pawnshop Robbery Mastermind Aims to Attend Oathtaking After Release
+-  Omezení benefitů: Za které budou zaměstnanci platit a kolik
+-  MasterChef USA Season 7 Streaming: Watch & Stream Online via Hulu
