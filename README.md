@@ -1,51 +1,11 @@
 # Latest News
--  Félix Tshisekedi sur Paul Kagame : "Ils osent faire ça, mardi, mercredi, pendant que les congolais seront en train de voter, jeudi, je fais feu"
--  Una 'mesa de crisis' buscará soluciones en la comisaría tras el cambio de género de un ertzaina
--  Osakidetza justifica la espera de un año en Oftalmología por la «gran demanda»
--  Women Health: यूटीआई से सबसे ज्यादा पीड़ित होती हैं महिलाएं, जानें लक्षण और बचाव
--  예산시장 상인들에게 ‘국민신문고’ 신고당한 백종원
--  한미와 북한, '건들기만 해봐'식 철부지 치킨 게임 멈춰야 한다
--  lt;매경gt;이 최악의 경영 성적 기록했다는 코레일 정선선은 '지역 이어주는 동맥'
--  허은아 quot;한동훈 비대위원장? 고양이 목에 방울 다는 게 중요하지hellip;quot;
--  quot;정부여당 새만금 예산복원 답 없어quot; hellip; 전북 국회의원 최악 한파에도 국회 농성
--  송미령 quot;양곡관리법 반대hellip;직불제 확대로 농가 소득 안정quot;
--  '전당대회 돈봉투' 의혹 송영길 구속hellip;野 의원 줄소환되나
--  South Korea Sees Surge in ‘DINK’ Couples Among Newlyweds
--  सेहत: सर्दियों में बच्चे की इस तेल से करें मालिश, शरीर बनेगा स्वस्थ
--  Calon SPM kekal fokus ulang kaji pelajaran di PPS
--  La Justicia de México otorga prisión domiciliaria a Roberto Borge, exgobernador de Quintana Roo
--  The $KingGrok Token Wants To Unite The Grok-AI Meme Family
--  Mariah Carey & Bryan Tanaka Appear to Have Split After 7 Years Together
--  Statele Unite au anunțat discuții cu Israelul privind măsurile pentru a preveni implicarea Hezbollah în conflict.
--  Dua wakil beregu lelaki di Olimpik Paris bukan mustahil
--  Jeju Island Initiates Pilot Project for Electric Vehicle Battery Recycling
--  سباق الخيل «16» على كأس أوكس وداربي قطر
--  يلتقي الغرافة اليوم والخور مع الزعيم.. طائرة العربي تتطلع للصدارة
--  عمومية QSL اليوم
--  قطر تحصد جائزتين في «الداتاثون الخليجي 2023»
--  Vụ Vạn Thịnh Phát: Xử lý thế nào với 2 bị can người nước ngoài và 5 bị can người Việt đang bỏ trốn?
--  ¿Qué hacer en caso de un desastre durante las celebraciones navideñas?
--  Defensor del Pueblo de Colombia pide audiencia con Blinken para abordar crisis migratoria en el Darién
--  Fatih Portakal asgari ücret için rakam verdi: İktidardan önce açıklıyorum...
--  [오늘의 별자리 운세] 2023년 12월 19일 화요일
--  [오늘날씨] 기온 평년 되찾아도 여전한 '강추위'… 아침 최저 -14도
--  [오늘의 운세] 2023년 12월 19일 화요일(음력 11월 7일/일진:신해(辛亥)/띠별·생년월일 운세)
--  '돈봉투 의혹' 송영길 전 민주당 대표 구속
--  [이정우의 우문우답] 대학입시 개혁
--  सर्दी के मौसम में सर्दी-जुकाम से बचने के लिए अपनाएं ये उपाय
--  Quedó dañada durante la obra: rehabilitarán carretera hacia la presa Santa María, anuncia Rocha
--  팬들을 위한 크리스마스 선물... ‘24년 뮌헨 원클럽맨’, 2025년까지 계약 연장 완료
--  Video: Desde temprano acuden a la rueda de la fortuna
--  Renuncian cabezas del sistema operativo del INE
--  Hair fall connection with stomach: बालों के झड़ने का सीधा कनेक्शन पेट से, जीवनशैली में करें ये बदलाव
--  Record crowd expected for Ottawa PWHL team's opener
--  Apple banned from selling watches in the US starting this week due to infringement lawsuit
--  Washingtonians get easy vehicle access with Free2move
--  Incheon Unveils Pioneering ’100 Million+ i Dream’ Birth Policy to Tackle Decline in Birthrates
--  Минчанка узнала, что поделки в сад теперь можно купить, и сняла свою реакцию
--  Karim Wade, très triste : « C’est avec une profonde tristesse que j’ai appris le rappel à Dieu de… »
--  Xperia Pro-II could bring rotating camera rings for manual controls
--  Encuentran en El Dorado a una niña guineana que fue abandonada hace 9 días por dos adultos
--  PJ declara inadmisible recurso de apelación de Boluarte en caso de presunto plagio de libro
--  The New Orleans Gospel Stars insistiendo en el éxtasis en el Arriaga
--  कोई बचेगा नहीं…हरियाणा विधानसभा में CM खट्टर ने गीता पर हाथ रखकर खाई कसम
+-  Brighton And West Ham Secure Europa League Victories To Head Straight Into The Last 16
+-  Vice Names Former Miramax CEO Michael Lang As Executive Chairman
+-  'The Second Best Hospital In The Galaxy' Gets Premiere Date, Photos
+-  'The Second Best Hospital In The Galaxy' Gets Premiere Date, Photos
+-  Vice Names Former Miramax CEO Michael Lang As Executive Chairman
+-  Appeals court says Mark Meadows can't move Georgia election case charges to federal court
+-  Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers
+-  Texas governor signs bill that lets police arrest migrants who enter the US illegally
+-  Larry Kramer, outgoing CEO of mega climate funder the Hewlett Foundation, looks back on his tenure
+-  POLL ALERT: Purdue back at No. 1 in the AP Top 25 men's basketball poll; Oklahoma into top 10, Memphis and Ole Miss join
