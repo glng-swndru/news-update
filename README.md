@@ -1,51 +1,11 @@
 # Latest News
--  Military and veterans to get free national parks admission
--  Omar Apollo, Clairo, 070 Shake and More to Play Benefit Show for Gaza and Sudan in New Jersey
--  «Errenteria es un municipio vivo y eso tiene que ver mucho con el deporte»
--  El concurso 'Lasarte-Oria en tu objetivo' ya tiene a sus ganadores de esta edición
--  Acordes de nieve desde el mar
--  La trigésima edición del Antzerki Garaia levantará el telón con el año nuevo
--  Stiff-Person-Syndrom: Céline Dion hat die Kontrolle über ihre Muskeln verloren
--  Elizondo decide en Batzarre retirar las piedras y luces del suelo del puente de Muniartea
--  Preti velika opasnost: "Isparenja bi mogla da stignu do večeras ili do jutra"
--  Marine Le Pen : le baiser qui tue
--  Израелският президент предлага спиране на огъня в Газа - Труд
--  BlackRock Alters Coinbase's Role In Proposed Crypto Investment Vehicle
--  Los refuerzos de Cruz Azul con la llegada de Martín Anselmi
--  Everyone can see the ducks – but you have 20/20 vision if you can see the sneaky chick in the illusion in just 7 seconds
--  Everyone can see the ducks – but you have 20/20 vision if you can see the sneaky chick in the illusion in just 7 seconds
--  Herido grave el conductor de un camión tras caer de un puente en Peraleda del Zaucejo
--  Una mujer recuperó el olfato tres años después de recuperarse del COVID-19 y su reacción se hizo viral
--  Novità e cambiamenti per Google Podcast, YouTube TV e Chrome sui tablet
--  Thibaut Courtois definitivno propušta Europsko prvenstvo
--  Trojka podržala Schmidta: Izborni proces se mora učiniti poštenijim
--  German court convicts man inspired by Islamic State group of two knife attacks
--  El sueldo que podría tener Fernando Gago en Chivas
--  Novi protest u Beogradu: Traži se poništavanje izbora
--  Upravljanje građevinskim projektima sve zahtjevnije zbog regulative i stalnih promjena u hodu
--  What Is Nougat And How Is It Made?
--  Израелската армија уништи едно од најважните археолошки локалитети во Газа
--  Palestinians in Ireland beg Government to do more to help trapped loved ones leave Gaza
--  Electrocatalytic CO₂ conversion advancing toward large-scale deployment
--  Winnaar bouwplan Park Maashorst trekt zich terug, 4,5 hectare opnieuw beschikbaar
--  Eis os piores jogos de 2023
--  Selenskyj sieht "komplexen Plan": Ukrainische Armee will 450.000 Soldaten mobilisieren
--  Danny Cipriani's ex wife says she 'knew split was coming' amid cosy snaps with Strictly's Jowita
--  Şırnak'ta oynanan amatör maçta hakemlere saldırı: Jandarma müdahale etti
--  İYİ Parti Kurucusu Mesut Özarslan istifa etti: Akşener'in talimatları haricinde görüşme yapmadım
--  Galatasaraylı taraftarlarını üzen iddia: Icardi Real Madrid yolunda
--  Na adresu Radiotelevizije Srbije stigla dojava o bombi
--  Qué hacer si te detienen con la ley SB4 que se acaba de firmar en Texas
--  Erdogan čestitao Vučiću izbornu pobjedu
--  North Carolina voting rights lawsuit targets GOP's alleged dilution through redistricting
--  Ηράκλειο: Εξιχνιάστηκαν 27 υποθέσεις κλοπών και διαρρήξεων – Δύο 13χρονοι μεταξύ των συλληφθέντων
--  بعد فشل مفاوضات سد النهضة.. ما خطوة مصر المقبلة؟
--  رسوم الفحص والجدية.. ما مصير طلبات التصالح السابقة التي لم يتم البت فيها؟
--  رئيس الوزراء يلتقي رؤساء اللجان النوعية بالبرلمان.. ماذا حدث؟
--  إعلام عبري: إسرائيل مستعدة لتقديم تنازلات لإبرام صفقة أسرى مع حماس
--  هل تشعر بالدوخة أثناء الوقوف فجأة؟.. اعرف السر
--  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
--  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
--  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
--  Takmer 47 percent obyvateľov Slovenska je nespokojných s doterajšími krokmi Ficovej vlády
--  News24 | Trouble came looking for them: Pup on the mend after chasing down criminals in Khayelitsha
+-  G7 condena lanzamiento de misil de Corea del Norte, exigen fin a programa nuclear
+-  Why Your Business Needs a Paid Search Management Agency
+-  Südzucker will Cropenergies komplett übernehmen und von der Börse entfernen
+-  Meteo centar TV Vijesti: U srijedu bez padavina, do 17 stepeni
+-  Кальніченко оголосив про завершення кар’єри
+-  Soccerladuma | Top Five Best New Arrivals So Far in 23/24
+-  Reyna, a quien su pareja la atacó con un machete, ingresará a cirugía para reconstruirle su brazo
+-  Michael Schumacherin terveydentilasta tehtiin karmea paljastus
+-  Compugen signs cancer drug licensing deal with Gilead Sciences
+-  Toppmilitären åter i tjänst – hustrun portad från arbetsplatsen
