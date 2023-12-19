@@ -1,11 +1,11 @@
 # Latest News
--  Kassandra 2023'ü yeni yılda mumla arayacağız diyerek uyardı. ‘2024 keşke gelmeseydi’ diyeceksiniz
--  Ghost of Tsushima teve orçamento de US$ 60 milhões
--  WDR-Intendant hört auf: Tom Buhrow steht für dritte Amtszeit nicht zur Verfügung
--  Kalp hastaları soğukta aman dikkat
--  “แม่ครูเจี๊ยบ” บอกลูกสาว "ตำรวจจับมือยิงได้แล้ว" ได้รับความยุติธรรมแล้ว
--  Israel wipes out top Hamas banker Subhi Ferwana who paid terrorists' wages after troops find £1m in 's...
--  Colin Armstrong's daughter makes emotional plea for millionaire dad, 78, snatched in Ecuador…as son flies o...
--  Incredible 'gravity-defying' 342ft superyacht shaped like Star Wars Y-Wing fighter with THREE hulls...
--  At least 118 dead & 400 injured after huge 6.2 magnitude earthquake hits China as rescuers brave -13C to...
--  3 theories about Vanishing Act fraudster Melissa Caddick's death including 'amputated foot' and 'unre...
+-  "햄버거보다 맛있다!"…'어서와 한국' 미국 친구들, 순두부찌개 식당서 반한 '메뉴' 뭐길래?
+-  ضبط 3 باكستانيين أثناء ترويج مخدرات بجازان
+-  “Bank of Baku”dan peşə sahiblərinə özəl TƏKLİF
+-  Beşiktaş'a 5 isimden müjdeli haber
+-  MSB: 2 FETÖ mensubu sınırda yakalandı
+-  İsrail ordusu hizbullah hedeflerine saldırı düzenledi
+-  Sahipsiz köpekler yaşlı kadına saldırdı
+-  Alman devinden 9 milyar dolarlık sipariş
+-  İsrail'den insani ateşkes için yeni karar! Herzog: Hazırız
+-  Argyll police officer recognised for outstanding bravery
