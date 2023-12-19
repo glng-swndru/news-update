@@ -1,51 +1,11 @@
 # Latest News
--  مكاسب ستعود على الشباب من وراء ضم سلمان الفرج
--  Telegraph: Великобритания будет делиться военно-морским опытом с Украиной
--  Το Ισραήλ βομβαρδίζει στρατιωτική θέση στη Συρία
--  New WWE Women’s Tag Team Champions Crowned On Raw
--  Los Angeles-area boy, 4, shot and killed in road rage incident, 2 suspects arrested
--  "Надежная тетя": в США нашли, кому начать переговоры с Путиным по Украине
--  Cowboys’ blowout loss to Bills showed they are not ‘mentally tough’: Rob Gronkowski
--  Воронежский отряд «Лиза Алерт» присоединился к поискам девочки-подкидыша из Острогожска
--  La ONU alerta de que un tercio de la población birmana necesita ayuda humanitaria
--  Alerta por la crecida del Río de la Plata: el agua podría alcanzar esta noche alturas superiores a los tres metros
--  Gaeirense vence Vinhais por 8-3
--  Moraes valida acordos e manda soltar 46 presos pelo atos golpistas
--  Эксперты рассказали, как сэкономить на парковке в аэропортах
--  عيب كبير ظهر في بنزيما هذا الموسم
--  ВОЗ: обнаруженный четыре года назад коронавирус продолжает мутировать
--  الاتحاد … أكثر من يشعر بالحسرة بعد خسارة الأهلي المصري بالمونديال
--  දරුවාගේ දිවි බේරු සුදු තරුණයාට ගම්මුන්ගෙන් අල බතල පාටියක්
--  Pelanggan dari ‘neraka’, pertikai barangan dapur percuma dari pemilik ‘homestay’
--  국민은행, 민원 통합플랫폼 '소비자지원시스템' 신설
--  신한라이프, '신한 슈퍼SOL' 출시 기념 경품 지급 이벤트
--  농협은행, 2024년도 상반기 공개채용 실시…"530명 규모·블라인드 방식"
--  동양생명, 취약계층 아동 위한 '2024 희망 가득' 선물 꾸러미 전달
--  송영록 메트라이프생명 사장, 마약 근절 캠페인 'NO EXIT' 동참
--  에코프로, 젊은 과학자 발굴·지원 박차…'EYSA' 첫 시상
--  “상속세 납부 약속 어겼다”… 구광모 회장 직격한 LG家 ‘세 모녀’, 경영권 분쟁 불씨되나
--  LG전자, ‘히트펌프’ 기술 개발 앞장…국내 대학과 컨소시엄 구축
--  우아한청년들, 배민커넥트 라이더와 오프라인 토론회 진행
--  "10명 중 2~3명만 스스로 부자라고 생각"
--  KT DS, 현대해상 AI 분석계 시스템 재구축
--  Самолет Nordwind вернулся в Москву из-за ухудшения состояния пассажиров
--  이화여대, ‘디지털 시민 프로젝트 출범 1주년 성과 공유회’ 개최
--  ‘TIGER AI반도체핵심공정 ETF’ 순자산 1,000억원 돌파
--  '혹한기' 겪는 오피스텔 시장, 투자는 이렇게
--  'OK 비교대출' 가입자 6개월만에 10만명 돌파 ... 모든 금융기관 대출상품 확인
--  먹거리, 공산품, 체험권까지...영천이 고른 고향사랑기부제 '답례품'
--  Guerrero y su firme opinión sobre la salida de Reynoso de la selección: No conseguimos hacer ese 'clic'
--  보이넥스트도어 측, 과잉 경호 논란에 "피해자에 사과…사후 케어" [공식](전문)
--  아이브(IVE) 장원영 '롱패딩도 못 덮는 무릎, 황금 비율 워킹'
--  부어치킨, 완전체로 즐기세요 새로워진 ‘그릴후라이드 치킨’
--  [MD포토] 한소희, '깜찍 하트'
--  [MD포토] 박서준, '행복한 손하트'
--  '이젠 前 KIA' 파노니, 컵스와 마이너 계약 체결→ML 입성 도전…KIA 원·투 펀치 재구성 불가피
--  '쇼트트랙' 곽윤기 "은퇴=사형선고 같아…金 못따 그만두면 후회할듯" 고민 토로 [금쪽상담소]
--  정형돈, '눈밑 지방 재배치 시술' 후 근황 공개됐다 "'시골경찰' 발령도 다른 곳으로 재배치 받아서…" [종합]
--  5실점 대패→2경기 연속 무실점→분데스리가 데뷔골…투헬 "김민재가 자신의 수준을 보여줬다" 극찬
--  [MD포토] 정동윤 연출, '세계인들이 좋아하는 크리처물 만들고 싶었어'
--  [MD포토] 박서준, '훈훈하게 파이팅'
--  [MD포토] 한소희, '밝게 빛나는 예쁨'
--  [MD포토] 경성크리처, '확실한 배우들이 함께'
--  [MD포토] 한소희-수현, '예쁨 가득 손하트'
+-  GOSSIP AND TALES: Vengeance Shall Be Mine
+-  Slovo legende po Parizu
+-  Lingkar Kehidupan Thomas Lembong, Dulu Penasihat Jokowi Sejak Gubernur DKI dan Capres, Berulang Bersama Anies Baswedan
+-  Талибы освободили общественную активистку после трех месяцев ареста
+-  Only one team were trying to win: Virgil
+-  Guardiola pleased and excited by Man City’s FIFA Club World Cup prospects
+-  Kane brace helps Bayern keep pace with leaders Leverkusen
+-  Hamilton can win races with right car: Button
+-  Real Madrid thrash Villarreal to go top but Alaba injured
+-  Kids up to speed
