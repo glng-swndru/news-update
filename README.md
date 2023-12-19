@@ -1,11 +1,11 @@
 # Latest News
--  Stadt Dortmund zahlt Eigentümern Geld zurück: Rückerstattung in Millionenhöhe nach Abwasser-Urteil
--  רק בריאות: ידין גלמן אושפז פעם נוספת בבית החולים
--  Villa i Gävle får nya ägare – prislappen: 3 195 000 kronor
--  عدن.. حريق يتلهم محطة غاز بدار سعد
--  ShiraTronics Announces Landmark Achievement: World's First Implant of its Innovative Chronic Migraine System
--  Në pesë vjetët që kur u hap për trafikun, në urën Hong-Kong -Zhuhai – Makao kanë qarkulluar 7.5 milionë automjete dhe 36 milionë njerëz udhëtarë midis Guangdong-ut, Hong-Kongut dhe Makaos
--  Τα μέτρα της Τροχαίας τις ημέρες των Χριστουγένννων, της Πρωτοχρονιάς και των Θεοφανείων
--  Israël-Hamas : pour la première fois depuis le début de la guerre, des camions du secteur privé sont entrés dans Gaza
--  Elections en Serbie : des « achats de voix » et « bourrages d'urnes » observés
--  Tribune | Le 7 octobre ou la paix assassinée, par Emilie Frèche
+-  MİT'ten nokta operasyon: DEAŞ'ın sözde sorumlusu yakalandı
+-  Lübnan: İsrail, sınırdaki beldeleri "fosfor bombası" ile vurdu
+-  Yılın transferi! Stefan Savic, Türkiye'ye geliyor
+-  Filistinlilerden çağrı: Refah Sınır Kapısı kalıcı şekilde açılsın
+-  CANLI ANLATIM: İstanbulspor-Trabzonspor
+-  İsrail basınından çok önemli iddia: Tanklar İsrailli esirleri vurdu!
+-  Hizbullah, İsrail'le çatışmalarda 2 mensubunun daha öldüğünü duyurdu
+-  Suspenderán recolección de basura el 25 de diciembre y 1 de enero
+-  Desaparecen dos mujeres originarias de Veracruz en Cuauhtémoc
+-  남양주시, 수동면 청소년 시설 조성 설계 공모 당선작 선정
