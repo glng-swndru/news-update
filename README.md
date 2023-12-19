@@ -1,51 +1,51 @@
 # Latest News
--  Мужчина узнал секрет воспитания матери и запретил ей оставаться с внуком
--  BILLEDSERIE: Vulkanudbrud maler himlen over Island orange
--  BILLEDSERIE: Vulkanudbrud maler himlen over Island orange
--  Hamas releases footage of 3 Israeli hostages in Gaza
--  The concerning STI on the rise among Aussies - and it's now hitting one group harder than others
--  İngiltere'de milletvekillerinden Dışişleri Bakanı Cameron'a "Gazze'de ateşkes" mektubu
--  Al-Ahly’s World Cup curse strikes again
--  수현, 따뜻한 눈빛
--  롯데카드, 롯데하이마트몰 연말 이벤트 진행…”최대 36개월 무이자 할부”
--  조한철, 반가운 손인사
--  대우건설, '대한민국 기부자 상' 수상
--  김해숙, 푸근한 미소
--  밸런스 질문에 신진서 9단 “1000만 유튜버 돼 바둑리그 알릴것” (KB국민은행 바둑리그 미디어데이 종합)
--  '페디 떠난' NC, 좌완 카일 하트 영입… 2024시즌 외인투수 구성 완료[오피셜]
--  BOJ keeps ultra-loose policy intact
--  Yemen rebels attack Red Sea tankers as shipping firms suspend traffic
--  ¿Quién es Fernando Gago, posible nuevo DT de Chivas? | En Caliente
--  ചന്തുവാകാൻ മമ്മൂട്ടിയുടെ നിശബ്ദ പഠനം: വെളിപ്പെടുത്തി സത്യൻ അന്തിക്കാട്
--  Hủy diệt đối thủ, Girona vượt Real Madrid chiếm ngôi đầu La Liga
--  Ramos gửi thông điệp đặc biệt đến Alaba
--  Barca cân nhắc bán Raphinha
--  Thay Alaba, Real tạo sự bất ngờ cho Man Utd
--  Hai lựa chọn giúp Barca có thể mua thêm người vào tháng 1
--  Được đại gia EPL quan tâm, sao Barca sắp thoát khỏi cảnh dự bị
--  Olympique Lyon muốn mượn người của Chelsea
--  Bellingham đã làm thay đổi cả hàng tiền vệ Real
--  Georges Mikautadze trở lại Pháp thi đấu
--  Liverpool khó mua hiện tượng Bundesliga
--  Man Utd bị trói chân buộc tay trong tháng 1
--  Graeme Souness: Arsenal và Man City có thể vô địch Champions League
--  Chuyên gia bênh vực Erik ten Hag
--  Sắp có HLV thứ 2 bị sa thải tại EPL
--  Luke Shaw thừa nhận thiếu sót lớn của Man United
--  "Tôi đã khiến Ramsdale trở thành một thủ môn giỏi hơn"
--  Cựu thủ môn Arsenal bị HLV nói bóng gió sau khi mắc sai lầm
--  Mourinho loại Arsenal khỏi danh sách ứng viên vô địch EPL
--  Eddie Howe: "Isak có cơ hội ra sân trước Chelsea"
--  Mục tiêu của Man City tiết lộ gây sốc
--  Sao Man City chưa có ý định đến Ả Rập
--  5 điểm đáng chú ý trước vòng tứ kết Cúp Liên đoàn Anh: Carrick có bước tiếp?
--  Shearer nêu tên thương vụ xuất sắc nhất Premier League mùa này
--  "Khi còn ở Man United, tôi đã bị buộc tội bắt nạt cầu thủ"
--  Mourinho: “Thật nực cười khi họ sa thải tôi”
--  Luke Shaw: "Man United có thể thắng Liverpool"
--  "Tôi thực sự nghĩ Arsenal là đối thủ duy nhất của Man City"
--  'Thấy thương Hojlund khi tới Man Utd quá sớm'
--  'Lính đánh thuê' Arsenal phục hồi thần kỳ
--  OpenAI is giving its board veto powers over Sam Altman
--  Delhi: ఢిల్లీలో విపక్ష కూటమి భేటీ నేడు
--  Украинских солдат собрались вооружить лопатами
+-  ปชป.เครื่องร้อนยื่นคำร้องศาลขอไต่สวนบังคับคดีจำคุก "ทักษิณ"
+-  एक सय ९५ शिक्षक र विद्यार्थीलाई पोशाक प्रदान
+-  CC frena cuestionado Presupuesto 2024 con amparo provisional
+-  Ahmedabad: ‘પતિ દ્ધારા પત્ની સાથે બળજબરી કરવામાં આવે તો પણ એ બળાત્કાર જ ગણાય’: હાઇકોર્ટ
+-  Underworld Don Dawood Ibrahim: "भाई, 1 हजार टक्का फीट, मौत की अफवाहें गलत"; दाऊदचा हस्तक छोटा शकीलचा दावा
+-  Devil: కళ్యాణ్ రామ్ 'డెవిల్'తో లిరిసిస్ట్‌గా మారిన ఫిమేల్ సింగర్!
+-  IQAX eBL Partners with COSCO Shipping Captive Insurance to Achieve the First Synchronized Transfer of an eBL and an Electronic Insurance Policy
+-  린나이 강영철 대표, 퇴임 통해 린나이의 새 시대 열어
+-  VeriSilicon and Google Collaborate on the Open-Source Project
+-  Bio-Link Introduces New Water Purification System, Revolutionizing Global Water Quality
+-  '트리플 크라운 MVP' 빈자리, '왼손 원투펀치'로 메운다...NC, 카일 하트 90만 달러에 영입
+-  Blinken, in call with Saudi counterpart, condemns Houthis for Red Sea attacks
+-  South TN Rains: குறைந்தது மழை.. வடியத் தொடங்கும் வெள்ளம் - நெல்லை, தூத்துக்குடியில் மீட்பு பணிகள் தீவிரம்..
+-  Mesej curang tarik perhatian pengguna media sosial
+-  На юго-западе Исландии происходит извержение вулкана
+-  ‘백현동 의혹’ 전관 입김 있었나…임정혁·곽정기 변호사 구속영장
+-  India star performer, contributing more than 16% of global growth: IMF
+-  LG Chem Gains Approval from EMA for Tigulixostat Phase 3 Trial in Gout Treatment
+-  Хитойда зилзила оқибатида 100 дан ортиқ киши ҳалок бўлди.
+-  Айрим ерларни аукционга чиқариш тартиби ўзгаради.
+-  Ангренда ЙПХ инспектори ҳайдовчига нисбатан электрошокер ишлатди .
+-  1 январдан эски намунадаги ҳайдовчилик гувоҳномалари ҳақиқий эмас деб ҳисобланади.
+-  Исландия жануби-ғарбида вулқон отилишни бошлади.
+-  Ўзбекистон ва БАА парвозлар сонини бир неча баробар оширишга келишиб олди.
+-  Белградда сайловлардаги сохталаштиришга қарши намойиш ўтказилди .
+-  '꽈당' 팬 내동댕이…폭행 수준 경호에, 하이브 결국 사과 [MD이슈]
+-  박서준X한소희, 1945년 경성의 괴물과 맞서라…K-크리처물 신기원 '경성크리처' [MD현장](종합)
+-  केंद्र सरकार की योजनाओं का लाभ अंतिम छोर तक पात्र व्यक्ति को मिले : प्रीति जैन
+-  건설연, 제주 폐플라스틱 활용한 블록 제품 개발
+-  Air Jordans made for Spike Lee and donated to Oregon shelter auctioned for nearly $51K
+-  दिल्ली संसद अटैक: आरोपियों के बैंक खाते खंगाल रही पुलिस, GPay-Paytm से भी मांगी डिटेल्स
+-  Ringgit kekal lemah, cecah RM3.52 berbanding dolar Singapura
+-  Gyanvapi Case: चार बार सर्वे का आदेश... सर्वे की रिपोर्ट को 4 बार मांगी मोहलत; आखिरी बार मिली 18 दिसंबर की डेट
+-  ソフトバンクが山川穂高の獲得を発表 ４年契約１２億円 背番号25
+-  So where’s the info on applicants who misuse Malaysian citizenship? Suhakam asks Putrajaya
+-  İletişim Başkanlığı: New York Times, Türk finansal sistemi hakkında yanıltıcı haber yapıyor
+-  สำนักงานยุติธรรม จ.แพร่ เร่งช่วยเหลือ แม่ วัย 30 ปีประสบอุบัติเหตุสูญเสียลูกชาย
+-  Йордания нанесе удари по свързани с Иран наркотрафиканти в Южна Сирия
+-  พิธีบำเพ็ญกุศลศพ สวดพระอภิธรรม บิดาของ นายแพทย์ชลน่าน ศรีแก้ว
+-  No paran: motociclista resulta lesionado tras choque en Elota
+-  Temukan Fantasi Manga di Harajuku dan Omotesando, Pusat Fashion Anak Muda Jepang
+-  "Худшая история": на Западе рассказали, как солдат ВСУ потерял зубы
+-  歌舞伎町ホストクラブ、表示義務違反7割 シャンパンタワー料金など
+-  Bank News: बैंकों को बेचने को लेकर सरकार ने लोकसभा में दिया जवाब, तुरंत चेक करें अपडेट
+-  Volume of UPI Transactions Grew At 147 Pc Annually Over Past 5 Years: Centre
+-  RBI Board Discusses Prevailing Economic, Financial Scenario At 605th Meet
+-  OpenAI Unveils Safety Framework For Advanced AI Models
+-  We Would Welcome India's Constructive Engagement: US On Resolving Russia-Ukraine, Israel-Hamas Conflicts
+-  Semester I 2024, Legok Nangka Sudah Groundbreaking
+-  日銀、大規模な金融緩和策を維持 景気下支え、賃上げなお見極め
