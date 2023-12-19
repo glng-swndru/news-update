@@ -1,11 +1,51 @@
 # Latest News
--  [2024 증시전망] 코스피 상단 2770선 …"1분기 바닥 찍고 반등"
--  Quebec health minister asks public to avoid emergency rooms amid overcrowding
--  New Jersey, Princeton University Partner to Establish AI Hub
--  David Warner blocked on Instagram by former IPL franchise Sunrisers Hyderabad after Head, Cummins payday
--  Camioneta donde apareció hombre carbonizado estaba siendo vendida por su dueño: alcalde
--  ¡Una buena noticia para Juan José Ríos! Es un hecho que tendrán un hospital integral
--  Minten, Celebrini star as Canada beats Denmark’s U25 team 8-0 in world junior tune-up
--  Porirua will see an increased police presence and some road delays due to a gang-related funeral today
--  Awo Berlin und Verdi einigen sich in Tarifverhandlungen
--  국회, 오늘 본회의…내년도 예산안 처리되나
+-  أبرز تطورات اليوم الـ74 من العدوان على غزة
+-  تفاصيل عرض الاحتلال ورد حماس على الهدنة الجديدة
+-  רביב דרוקר נדהם: צבי יחזקאלי אמר בשידור שהיה צריך "להרוג 100 אלף" בעזה
+-  הסדרה הזו היא אחת המיוחדות בטלוויזיה כי היוצרים לא חוששים לפספס
+-  עצוב ומתסכל שסרט כל כך בינוני הפך לסרט הכי מדובר בנטפליקס
+-  עוד חוזר הניגון: נאפולי הודחה בשמינית גמר הגביע האיטלקי
+-  Kastaði upp í vitnastúkunni þegar saksóknari sýndi henni myndir af syninum sem hún vanrækti – „Hryllingur sem ekki einu sinni stríðsfangar þurfa að þola“
+-  Boost for shoppers as chains such as B&M & Asda start sales earlier than ever – we reveal best bargains on High Street
+-  ‘Dateline’ Finishes Year As Top Newsmagazine Program, NBC Touts More Than 160B Minutes Viewed
+-  TMZ Points Out the Obvious in Attempt to Dunk on Trump, Gets Schooled Instead
+-  Deadline’s Doc Talk Podcast: John Legend, Mike Jackson And Amy Schatz Stand Up & Shout With Music-Driven Documentary
+-  Isyana Sarasvati Menutup Tur Perkenalan Album Keempatnya di Tiga Kota Penuh Kenangan
+-  »Katapult«-Magazin: Polizei ermittelt nach mutmaßlichen Einschüchterungen
+-  Técnico do Manchester City, Guardiola revela desejo pelo Mundial: 'Queremos o título'
+-  Manchester City paineli MM-finaaliin
+-  Hallitseva mestari kukisti sarjakärjen F-liigassa
+-  Kuukauden pelaaja Erik Sajantila saatiin pidettyä aisoissa Korisliigassa
+-  Diputados del PRI buscan regular las encuestas ‘patito’ para evitar manipulación de ciudadanos
+-  Haljina princeze Dajane premašila rekord na aukciji: Prodana za više od milion dolara!
+-  El Río de la Plata llegó a los 3,62 metros por la mayor sudestada en los últimos 13 años
+-  Astrolozi otkrili koji će znakovi zauvijek živjeti u bijedi: Da li se i vi nalazite na listi „siromašnih“?
+-  قرقاش: جهود إماراتية مستمرة في مجلس الأمن لاستصدار قرار بوقف إطلاق النار في غزة
+-  Gottéron mit einem 2:1-Zittersieg
+-  “Ukrayna ordusuna əlavə 500 min əsgər lazımdır”
+-  تقارير.. المونتجويك مهدد بتسجيل أقل حضور جماهيري في لقاء ألميريا
+-  How to Watch ‘Elemental’: Stream the Pixar Film Online Now
+-  Nijerya'da 23 kişi kaçırıldı
+-  "거기 8살 꼬마 둘, 너희 UCL에서 만난다며?"…UCL이 이들의 멋진 재회를 선사할 것
+-  وظائف شاغرة عبر برنامج التأهيل والإحلال في عدد من التخصصات
+-  회사 女후배와 사적 문자 주고받은 남친…서장훈 "바람이라고 보기엔…" (연참)[어젯밤TV]
+-  فوضى في أمريكا .. حرب بالأسلحة النارية والرشاشات بين الشرطة وعصابة لخطف الأطفال
+-  Petróleo sobe 1% com preocupações com transporte marítimo no Mar Vermelho
+-  ذكرى تغييب فقيد الوطن «منصور الكيخيا»
+-  WHO declares JN.1 a COVID 'variant of interest'
+-  The Crown | Os principais eventos que ficaram de fora da série
+-  Energia/crise: Espanha descarta extensão de mecanismo ibérico
+-  Svenska förvaltare investerade i omstridda bolag
+-  Nej från industrijättar – trots mineralernas heta potential
+-  Britain’s drivers are being crippled by the cost of fuel… best Christmas present Chancellor can give is to lower duty
+-  «Наполи» крупно проиграла «Фрозиноне» в Кубке Италии
+-  Vrasja në burgun e Peqinit/ Artan Hoxha nxjerr dokumentin: Skaneri nuk punonte nga 21 Tetori
+-  Livestream - Sportschau in der englischen Woche, am 19.12. ab 22.56 Uhr
+-  Mel B Gets Praise For Shutting Down Blackface In Resurfaced Spice Girls Clip
+-  خمسة قتلى حصيلة تفجير الحسوة
+-  Jon Cryer was ‘gripped by paralyzing fear’ shooting new sitcom before a live audience
+-  My niece opened everyone else’s presents on Christmas Eve & even broke some, my brother’s mad at my plan for this year
+-  Projekt budżetu na 2024 r.: dochody podatkowe mają wynieść 603,9 mld zł
+-  Mitski, Father John Misty & More Artists’ Online Shops Affected After Merch Company SPC Shuts Down
+-  Max Paynen ääninäyttelijä James McCaffrey on kuollut
+-  How many students are still missing from American schools? Here's what the data says
