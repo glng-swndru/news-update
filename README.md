@@ -1,11 +1,11 @@
 # Latest News
--  "الربح السياسي" لقوى المعارضة والاستحقاقات اللاحقة للتمديد
--  술집 창업 브랜드 ‘푸른술집할라’, 70CM 팟타이 등 다양한 신메뉴 출시
--  간편 셀프 설치로 “급발진 증빙 가능한 다본다360 페달&계기판 블랙박스”
--  오산대, 2023학년도 전공·취업·창업 우수동아리 13팀 선발 공유회 개최
--  독일보청기 인천 부평점, 제품 업그레이드 및 무상점검 이벤트 진행
--  "한국의 디바 김완선, 'Feeling' 리믹스 앨범 출시! 클리언의 참여로 Alternative R&B 스타일로 감각적 재해석“
--  광명골프연습장, 이용객 대상 동계 골프 레슨 할인 이벤트 진행
--  유승돈 강동경희대병원 교수, 보건의료 발전 기여 복지부 장관 표창
--  에듀피디, 공무원·군무원·자격증 재도전 지원 ‘타사 환승 수강 할인쿠폰 이벤트’ 진행
--  (사)ESG코리아, 소상공인학회와 함께 플라스틱 사용 감축 전문가 토론회 개최
+-  যে ৫টি কাজ ভুলেও বাচ্চাদের সঙ্গে করবেন না
+-  Chances of injuries from fireworks are higher than the chances of winning the lottery
+-  Chuyên gia Nga: Những thứ này có thể đập tan các bãi mìn nguy hiểm ở "Phòng tuyến Zelensky" của Ukraine!
+-  Sếp Torino Design 'bóc' VinFast VF 7: Thân xe nhiều hình tam giác và điều dị thường hiếm ai thực hiện
+-  EVN muốn nhập khẩu điện gió từ Lào
+-  Đến tuổi trung niên, người bỏ được 3 “ham muốn” phù phiếm sẽ sống sung túc hết đời, tha hồ hưởng phúc
+-  Top 20 thí sinh bước vào chung kết Hoa hậu Thương hiệu Việt Nam 2023
+-  Bất ngờ khi thấy giúp việc tiếp khách "cao tay" hơn chủ nhà
+-  Ảnh màu cực hiếm của Uyển Dung - vị Hoàng hậu của sự thanh lịch và thời thượng
+-  Chuyên gia ăn kiêng tiết lộ cách ăn chuối giảm nguy cơ ung thư
