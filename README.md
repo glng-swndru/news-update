@@ -1,11 +1,51 @@
 # Latest News
--  قيادي حوثي: أي دولة تتحرك ضد اليمن ستستهدف سفنها في البحر الأحمر
--  Comissão Europeia diz que escalada de antissemitismo e islamofobia na UE "é chocante"
--  Presentan el plan de acción para el cierre ordenado y definitivo de Cobre Panamá
--  Schnarchen verhindern: Das hilft laut Stiftung Warentest
--  Manchester City kažnjen sa 140.000 eura zbog kritiziranja suca
--  الاحتلال يعترف بمصرع جندي جديد في غزة
--  لا تجهليها.. فوائد التمر للنساء أثناء الدورة الشهرية
--  אחרי תשעה חודשים: נועם מלמוד בהרכב הפועל ירושלים נגד חדרה
--  "Bu işin şakası yok" diyerek uyardı! Marmara, bir deprem tehdidi altında
--  Desmantelan red criminal que falsificaba medicamentos para enfermedades de alto costo
+-  Youth Died in London: जालंधर के युवक का शव लंदन में मिला, वह 15 दिसंबर से लापता
+-  President and COO of BeniComp seeks to change healthcare, one individual at a time
+-  Google agrees $1 billion settlement in suit with consumers and US states
+-  Quintis to dump entire portfolio of Managed Investment Scheme sandalwood projects after KPMG review finds them unviable
+-  Turkish Airlines has been given the green light for more flights to Australia. What will it mean for flight prices?
+-  Health minister rejects insurers' bids for large premium increases
+-  A medical miracle for residents as Royal Flying Doctor Service to revive Condobolin GP surgery
+-  Australia Post to pay $2.9m in compensation to business customers for lost or damaged parcels
+-  US announces multinational operation as Houthi attacks on commercial ships upend global trade in vital Red Sea corridor
+-  Hiltzik: The coming toll in vaccine-preventable diseases
+-  Hiltzik: The coming toll in vaccine-preventable diseases
+-  Google spends record $1.5 million on lobbying in California
+-  Video: 49ers' Christian McCaffrey Correctly Predicts Eagles' Play Call on ManningCast
+-  LeBron James: 'I Think It's Awesome' Lakers Raised NBA In-Season Tournament Banner
+-  Video: 49ers' Christian McCaffrey Correctly Predicts Eagles' Play Call on ManningCast
+-  Cowboys' Jerry Jones Backs Mike McCarthy After Blowout Loss to Josh Allen, Bills
+-  7 Gifts the NHL Is Giving Us This Season
+-  Former Giants RB Derrick Ward Arrested, Allegedly Committed Multiple Robberies
+-  Justin Jefferson Talks Vikings' Playoff Chase, Nick Mullens and More in B/R Interview
+-  Rockets GM Says Team Isn't 'Aggressively Hunting a Particular' Trade at NBA Deadline
+-  Justin Jefferson Talks Vikings' Playoff Chase, Nick Mullens and More in B/R Interview
+-  Pizzeria Cancels Tommy DeVito's Appearance After Sean Stellato Increases Fee to $20K
+-  Eagles' Nick Sirianni: 'I Made the Decision' to Promote Matt Patricia over Sean Desai
+-  Seth Rollins Rejuvenated, Creed Brothers' Rise, Big Tag Team Shake-up, More Raw Takes
+-  NFL Scout Compares Michigan's J.J. McCarthy to 'Athletic' Version of Kirk Cousins
+-  BS Meter on Latest NHL Trade and Free-Agency Rumors
+-  BS Meter on Latest NHL Trade and Free-Agency Rumors
+-  NFL GM Says Caleb Williams Is 'Close to a Lock' to Go No. 1 in 2024 NFL Draft
+-  NFL GM Says Caleb Williams Is 'Close to a Lock' to Go No. 1 in 2024 NFL Draft
+-  Jed Smolensky and Hudson Walker set to enter plea over 'drunken' Rivervale rooftop stand-off
+-  Stateline survives as ABC looks elsewhere for budget savings
+-  Edmond Margjini: Former Sword Boys gang member accused of violent Rockingham home invasion in 2011
+-  Kevin Hawkins: Man accused of bomb threat on Perth bound Singaporean Scoot Airlines flight to plead guilty
+-  Rockingham home invasion: Police charge 46yo man over attack on woman inside her home more than a decade ago
+-  Man drives for help after being set on fire by stranger on Perth street
+-  Money set aside for residential eating disorder facility will be spent setting up early intervention services
+-  Čovjek koji je nokautirao suca u Turskoj: ‘Skočio mi je šećer, nisam bio svjestan’
+-  Separate from wife-beating men, Yomi Fabiyi advises women
+-  Opposition MPs Suspended: 49 और सांसद संसद से निलंबित, सुशील रिंकू बोले- ‘हूं है गांधी राजनीति’
+-  "J'en suis consciente" : Jennifer (Mariés au premier regard) apparait amaigrie et inquiète ses abonnés, elle prend la parole pour faire une mise au point
+-  Starc and Cummins become most expensive signings in IPL history to cap great 2023 for Aussie pacers
+-  After 4 years out of test cricket, allrounder Mitchell Marsh is back in a big way for Australia
+-  Putin hails Russia&#039;s military performance in Ukraine and he vows to achieve Moscow&#039;s goals
+-  PNS ocupa lugar na primeira fila da bancada em entrada discreta
+-  प्रदूषण: अब गेहूं में भी पानी…, दिल्ली की हवा अब भी जहरीली क्यों?
+-  GNR recupera gavião "incapaz de voar" em rua de Proença-a-Nova
+-  Fake call centre duping Americans with cheap airfares busted in Delhi, four arrested | Details
+-  Έγινε το αναμενώμενο με τα εισιτήρια του ντέρμπι
+-  « Pathé Californie » : Le nouveau joyau cinématographique de Casablanca ouvre ses portes !
+-  Valverde "No hay miedo a que la euforia pueda con los jugadores"
