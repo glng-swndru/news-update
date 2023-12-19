@@ -1,51 +1,51 @@
 # Latest News
--  New research models critical climate collapse conditions in ecological and biological systems
--  İran'da tatbikatta facia: Mühimmat patlaması sonucu üç asker öldü
--  BMGK'daki Gazze oylaması ertelendi
--  Jamaica’s Prime Minister and Minister of Tourism Attend Grand Opening Ceremony at Hideaway at Royalton Blue Waters
--  Pročitajte što vam ove srijede donosi Večernji list BiH
--  Conoce las rutas de los Torinos Navideños
--  Bebés de silicona: ¿Cómo obtenerlas y cuánto cuestan estas muñecas?
--  Asamblea Nacional y dos ministerios recibirán propuesta de modificación de la Ley 409
--  Beteiligung an drei Morden: Ex-Frau von Serienmörder Fourniret zu lebenslanger Haft verurteilt
--  Ana Vega: «Para nada es una represalia. Vox quiere dar a Valencia el peso que le corresponde»
--  Taylor Swift and Travis Kelce 'WILL spend the holidays together' with the pop star 'set to attend the Chiefs' games on Christmas Day and New Years Eve'
--  Q&A: Meaningful social interactions are the only 'cure' for loneliness
--  검찰, 송영길 '변호인 외 접견금지'…증거인멸 우려 차단
--  La Audiencia de Valencia amplía a 2019 el análisis de los correos del equipo de Oltra en Igualdad
--  Passenger plane 'takes off' by itself as it is blown away by 100mph winds at Argentinian airport, smashing into staircase
--  В Италии мигранты из Пакистана получили пожизненное за убийство дочери
--  Caso Marcelo Pecci: Franciso Correa obtiene inmunidad por un año
--  Ciudadanos critica la falta de refuerzo de limpieza esta Navidad en Orihuela
--  Подозреваемого в избиении участника СВО в Петербурге арестовали
--  Lauren Sanchez shows off her enviable curves in an orange bikini and TINY tweed shorts as she strolls hand-in-hand with Jeff Bezos in St. Barts - before celebrating her 54th birthday with a red-themed party on his yacht
--  Nächster Eklat in der Süper Lig: Wütender Präsident erzwingt Spielabbruch in der Türkei
--  Aaron Rodgers’ return will come next season with Jets out of playoff hunt and QB not 100% healthy
--  Minivan Review: 2024 Kia Carnival SX
--  How Can We Best Summarize Taylor Swift’s 2023?
--  رئيس الهيئة العامة للتأمين الصحي الاجتماعي يشارك في فعاليات المؤتمر العربي الـ22 للأساليب الحديثة في إدارة المستشفيات
--  2 пъти над нормата е замърсяването на въздуха в София
--  CIA pushing to resume Hamas talks – media — RT World News
--  VIDEO: Pogledajte brutalno zakucavanje Hezonje protiv Zvezde
--  Pixel 8 Pro gets better, now supports ultrawide astrophotography
--  Ex-NFL running back calls for segregated Pro Bowl in racial tirade
--  Edin Višća upisao asistenciju, utakmica prekinuta jer je domaćin nezadovoljan suđenjem napustio teren
--  Wildlife Dept launches night search operation after terrifying leopard attack in Pampore
--  Human organ chip research shows a malaria drug treatment could save babies' lives
--  إلغاء مباراة تريزيجيه أمام إسطنبول سبور في الدوري التركي بعد انسحاب الخصم
--  FALI MI ANASTASIJA, ALI DOBRO...: Ceca ne može da sakrije emocije na dan slave, dotakla se i Bogdanine trudnoće
--  „Волстрит журнал“: Путин е победник на годината
--  New study reveals the 10 states with the fastest-rising adult obesity levels
--  Euromillones: resultados del sorteo del martes 19 de diciembre de 2023
--  ليكسوس اللؤلؤة التاريخية للمغرب: الأولى في إنتاج المنتجات البحرية ومنبع صناعة تعليب الأسماك
--  I Tried Caraway’s Stainless Steel Cookware (and Now I Have a Michelin Star)
--  City continues to install 'smart' bins
--  Local obituary: Kayla Driscoll, 34, Somerville massage therapist
--  DC Pulwama charts course for Archeological revival of sites in district
--  Guardia Nacional arranca Operativo vacacional de invierno en todo el país
--  البشت الحساوي يقاوم الاندثار بـ70 ألف زائر
--  هاكاثون التحول الرقمي يبرهن تفوق سوق المملكة عالميا
--  Zara Tindall reveals the disbelief she felt after winning BBC's Sports Personality of the Year in 2006 as she joins star-studded line-up in pre-recorded message for this year's awards
--  مدارس تعليم الرياض تتفاعل مع «ساعة برمجة»
--  كاوست تستحدث أول برنامج لماجستير الابتكار التقني
--  HSEK delegation calls on CS
+-  السيتي يعبر أوراوا لنهائي مونديال الأندية
+-  عموتة يستدعي فادي عوض وبني هاني لمنتخب الأردن
+-  Deranged man calling himself 'Captain America' charged after attempt to enter military base with AR-15
+-  Jerry Seinfeld meets with freed Israeli hostages, families of captives in Tel Aviv
+-  13-year-old who planned to shoot up synagogue sentenced to write book report on WWII hero
+-  Gaza hospital chief admits to being Hamas commander, using clinic as military base
+-  How NASA streamed a video of a cat named Taters from deep space
+-  Ex-Google programmer admits threat to kill Chief Justice John Roberts
+-  Jerry Seinfeld meets with freed Israeli hostages, families of captives in Tel Aviv
+-  Trump demands primary challenger for pro-DeSantis Rep. Chip Roy — but it's too late
+-  Trump demands primary challenger for pro-DeSantis Rep. Chip Roy — but it's too late
+-  Zelensky may call up 500,000 more troops while insisting US 'will not let us down' on added aid
+-  Gaza hospital chief admits to being Hamas commander, using clinic as military base
+-  Dozens arrested in Capitol Rotunda at anti-Israel rally led by Linda Sarsour
+-  Deranged man calling himself 'Captain America' charged after attempt to enter military base with AR-15
+-  Ex-Google programmer admits threat to kill Chief Justice John Roberts
+-  Zelensky may call up 500,000 more troops while insisting US 'will not let us down' on added aid
+-  13-year-old who planned to shoot up synagogue sentenced to write book report on WWII hero
+-  Dozens arrested in Capitol Rotunda at anti-Israel rally led by Linda Sarsour
+-  How NASA streamed a video of a cat named Taters from deep space
+-  Application de l’ordonnance réintégrant Sonko: « Que les juges (..) demandent à ce que Ousmane Sonko soit rétabli dans ces droits » (Me Ciré Clédor Ly)
+-  Mary Earps WINS BBC's Sports Personality of the Year award: Lioness goalkeeper storms to victory ahead of Stuart Broad and Katarina Johnson-Thompson
+-  Olli Jokinen hermostui toimittajan kysymykseen - "Ei ole asiallista pelin jälkeen keskustella"
+-  ESPN Taps Josh Krulewitz to Succeed Chris LaPlaca as Senior Vice President of Communications
+-  عاجل.. التقديم من اليوم ولمدة 5 أيام .. وظيفة شاغرة بجامعة الطائف
+-  بالفيديو .. حالة مطرية غزيرة على الجبيل
+-  "اللعنة عليها".. سقطة جديدة لـ بايدن في ذكرى قاضية شهيرة.. ويعتذر
+-  La picante broma del Brentford para Dibu Martínez tras su fuerte cruce con Maupay: "Todo lo mejor en tu..."
+-  Revelan cuál es la fecha del debut de Jonatan Viale en la pantalla de TN
+-  Diyarbakır'da 1800 yıllık ameliyat aletleri bulundu
+-  Komitmen Penyidik Kasus Firli Bahuri Usai Menangi Praperadilan, Apakah Segera Menahan?
+-  جوارديولا: لقب مونديال الأندية ما ينقص مانشستر سيتي.. وأعلم أن الأهلي في مستوى جيد
+-  Britney Spears is 'in talks' to reunite with celeb photographer who helped her shed her good girl image in VERY sultry 2004 shoot to mark 20 years since the iconic images... as he reveals popstar is ready to 'reinstate her legacy'
+-  Jodie Turner-Smith flashes her abs in a skimpy top as she enjoys a girls' night at Lakers game with best friend Nancy Gomez after ex Joshua Jackson confirmed Lupita Nyong'o romance
+-  Amazon Prime Video shares the first trailer for Expats starring Nicole Kidman
+-  Imarisio predica calma: « Il Rennes è una squadra da non sottovalutare»
+-  Happy New Year: How to Watch the New Year’s Eve Ball Drop & All the Performances Without Cable
+-  Rishi Sunak faces another by-election as Ex-Tory MP Peter Bone is kicked out of the Commons by constituents after sexual harassment case
+-  Accountability Court grants bail to four accused in M6 Motorway land scam case
+-  「米は見殺しにしない」とゼレンスキー氏
+-  Prescott, Ont. residents concerned over potential development on green space
+-  ABD'de fırtına can aldı... Yüzbinlerce kişi elektriksiz
+-  Naci Görür "Bu işin şakası yok" diyerek uyardı!
+-  كأس العالم للأندية - مدرب أوراوا ريدز: الأهلي مختلف عن مانشستر سيتي
+-  «مجلس الأمن» يرجئ مجدداً التصويت على مشروع قرار حول غزة إلى الأربعاء
+-  إنشاء الهيئة السعودية للألعاب والرياضات الالكترونية
+-  20 award-winning landscape photos to inspire your 2024 travel
+-  Police seek witnesses, video after 2 pedestrians struck in East Vancouver
+-  Šta su glavni ekonomski zadaci pred novom Vladom Srbije: Stručnjaci o tome šta je do sad bilo dobro, a šta sve mora bolje
+-  Bethesda plans to expand Fallout 76 with new areas, quests, and more in 2024
