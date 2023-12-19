@@ -1,51 +1,11 @@
 # Latest News
--  고민하는 디즈니+, '2024 韓 오리지널 확정작' 2개뿐
--  Sydney Sweeney says she considered getting a breast reduction at 18 until her mom talked her out of it
--  Goldman Sachs is considering a sweeping overhaul of its management committee. Here's what executives are thinking.
--  Maduro recibió a directivos de Repsol un día después del acuerdo para reactivar operaciones con Pdvsa
--  Rezovi na Malom Kalemegdanu: Kuzmić ide u FMP, Tobi ostaje da se popravi
--  “Sokol Mjaçaj dyshohet se fshehu armën në bidenë e banjos”, Artan Hoxha: 2 javë më parë unë mora një telefonatë…
--  أفضل صفقة مع أردوغان .. حصان مقابل 435 حصانًا
--  بوليتيكو: صاروخ بمليوني دولار يستخدم ضد مسيّرة حوثية بألفي دولار
--  حسين الشيخ: أوسلو ماتت
--  الاعلام العبري : ثمن صفقة الاسرى الجديدة سيكون باهظا
--  Valeriu Iftime a primit răspuns din Kentucky, de la antrenorul pe care l-a avut în vizor: „Sunt onorat, dar avem o vorbă: «rossonerii suntem noi»!”
--  خدمات شاملة وميسرة عبر "المنصة الوطنية الموحّدة للتأشيرات".. تعرف عليها
--  La sanción EXTREMA a Raúl Jiménez por su expulsión en Premier League
--  ‘We need to mobilize’ Adams says calling on New Yorkers to march in DC
--  Warhammer 40,000's movie and TV deal with Amazon now finalised
--  Mystiska herrgården – med eget stridsflyg
--  ŠTA JE OVO NA NEBU IZNAD OBRENOVCA? Žena snimila misterioznu pojavu, stigao odgovor - "Isto smo videli kod Lazarevca"
--  Two recent studies expand understanding of how early social housing helps dairy calves thrive
--  Vídeo | Alberth Elis calla bocas en Francia con un golazo
--  Luana Piovani coloca apartamento em NY à venda: 'Encerro o ciclo'
--  Piquete en las vías del Tren Roca: un grupo de vecinos interrumpió el funcionamiento del servicio
--  Savannah Guthrie rents out NYC loft asking $30K/month after finding no buyers
--  "بلومبرغ": أمريكا وحلفاؤها يدرسون توجيه ضربات عسكرية ضدّ الحوثيين
--  הג'יהאד האסלאמי פרסם סרטון של שני חטופים: גדי מוזס ואלעד קציר
--  Volkswagen, Porsche, Audi to adopt Tesla’s charging standard
--  לא כיסא ולא גלגלים: מוחמד דף חי - ובמצב הרבה יותר טוב משחשבנו
--  Herederos de Tolkien y CS Lewis donan manuscritos al Reino Unido para no pagar impuestos
--  $750 a month was given to homeless people in California. What they spent it on is more evidence that universal basic income works.
--  Estos son los alimentos que no pueden faltar en el desayuno según Harvard
--  Rights Groups Sue Texas to Block New Law That Targets Migrants
--  Daniel Noboa dice que aprobación de ley económica es "victoria" para el país
--  Patricia Bullrich acordó con la Ciudad un plan de acción para impedir los cortes de calles en la marcha piquetera del 20D
--  Türkiye-Irak heyetleri görüşmesinde ortak sonuç bildirisi yayımlandı
--  Navigating the Future of UK Online Gaming: Insights from Rainbow Riches to Regulation
--  Some health-care projects, including nursing homes, on pause in Manitoba
--  Some health-care projects, including nursing homes, on pause in Manitoba
--  Investment deal sends stockpiled minerals from NWT rare earths mine to China
--  Meduca conmemora el 20 de diciembre
--  Kitten hurt in Abbotsford prompts BC SPCA reminder
--  ZuckBucks are back, Claudine Gay’s record of race ideology and other commentary
--  Comprar propiedades como inversión: cuáles son los 6 barrios de CABA con mayor oferta de alquileres temporarios
--  Hate crime reports continue to rise in Toronto since Israel-Hamas war began: police
--  Hate crime reports continue to rise in Toronto since Israel-Hamas war began: police
--  Ministra Orellana y fianza que permitirá a Thompson jugar en Rusia: “No hablamos de una carrera futbolística, sino de la vida de una mujer”
--  Hombre de 42 años logró que su padre le diera pensión alimentaria: así lo logró
--  Predicting prenatal care to improve pregnancy outcomes
--  Hezonja odgovorio na brutalne uvrede tisuće Delija: 'Želim svu sreću Partizanu. Ali i Zvezdi...'
--  Aleksandra Prijović prisjetila se najboljih trenutaka iz Zagreba: 'Hvala za nezaboravne noći!'
--  Cena ropy w górę o ponad dolara. Notowania ropy najwyżej od 1 grudnia
--  Emergency Minister: ‘Too early’ to know full scale of Cyclone Jasper damage, more ADF evacuations under way
+-  [2024 증시전망] 코스피 상단 2770선 …"1분기 바닥 찍고 반등"
+-  Quebec health minister asks public to avoid emergency rooms amid overcrowding
+-  New Jersey, Princeton University Partner to Establish AI Hub
+-  David Warner blocked on Instagram by former IPL franchise Sunrisers Hyderabad after Head, Cummins payday
+-  Camioneta donde apareció hombre carbonizado estaba siendo vendida por su dueño: alcalde
+-  ¡Una buena noticia para Juan José Ríos! Es un hecho que tendrán un hospital integral
+-  Minten, Celebrini star as Canada beats Denmark’s U25 team 8-0 in world junior tune-up
+-  Porirua will see an increased police presence and some road delays due to a gang-related funeral today
+-  Awo Berlin und Verdi einigen sich in Tarifverhandlungen
+-  국회, 오늘 본회의…내년도 예산안 처리되나
