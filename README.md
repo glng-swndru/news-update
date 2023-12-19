@@ -1,51 +1,51 @@
 # Latest News
--  דנבר התגברה על מופע יחיד של דונצ'יץ', הקליפרס ממשיכים ברצף
--  لأول مرة.. ربط سيارات الإسعاف بإشارات المرور لفتح الطريق تلقائيًا
--  عاجل.. "الأرصاد" يتوقع استقرار الطقس على معظم مناطق المملكة وضباب بالشمالية
--  منها الرياض.. "الحصيني" يُبشّر سكان هذه المناطق باستمرار الأجواء المستقرة
--  Projet de loi « immigration » : la restriction des aides sociales aux étrangers au cœur du bras de fer entre la droite et la majorité
--  Ram Mandir: प्राण प्रतिष्ठा समारोह में कृपया न आएं आडवाणी और मुरली मनोहर जोशी, चंपत राय ने दिया यह तर्क
--  Lapsilisiin korotuksia ensi vuonna
--  Urawa Red vs. Manchester City en vivo, por Mundial de Clubes 2023: hora, TV y dónde verlo
--  اختفاء لاعب كرة قدم شهير في البرازيل... والشرطة تبحث عنه
--  Projet de loi « immigration » : du Palais-Bourbon à Matignon, en passant par l’Elysée, une journée de tractations inédite autour d’un introuvable accord
--  19 December Love Rashifal :इस राशि वालों को मिल सकता है धोखा, जानें आज का लव राशिफल
--  RMPSSU: कुलपति ने जताई नाराजगी, ज्यादातर महाविद्यालयों ने नहीं अपलोड किए मिड टर्म के अंक
--  Rishabh Pant:: తొలిసారి ఐపీఎల్‌ ఆక్షన్ ప్రక్రియలో యాక్టివ్ కెప్టెన్- రికార్డు సృష్టించబోతున్న పంత్‌
--  Emir launches public bus transport and 34 projects worth $266mln in Tabuk
--  검찰총장 윤석열 ‘정직 2개월’ 징계, 2심에서 뒤집어졌다
--  Muere calcinado adulto mayor en su casa
--  الأمم المتحدة: اعتداءات الاحتلال مسعورة على مستشفيات غزة
--  തെന്നിന്ത്യയിലെ യഥാര്‍ഥ സൂപ്പർതാരം മമ്മൂട്ടിയെന്ന് ജ്യോതിക; പ്രശംസിച്ച് സിദ്ധാർഥും
--  الربح بالدولار والضرائب بـ"اللولار"
--  Parliament Security Breach: INDIA Bloc Leaders To Continue Protest Against Suspension Of MPs Today
--  कौन है दाऊद का खास आदमी सलीम कुत्ता? जानिए कैसा है ये अजीब नाम
--  Gujarat Congress : લોકસભાની ચૂંટણી પહેલા મધ્ય ગુજરાતના વધેલા કોંગ્રેસના ગઢમાં પડશે ગાબડું
--  Perth childcare service fined $65k after kids wandered away from three of its centres
--  Viral Video: ఇది కశ్మీర్ కాదు.. మంచు అందాలతో మెరిసిపోతున్న ఈ ఏఐ నగరం ఏదో గుర్తుపట్టగలరా?
--  게임 전시회 E3, 역사 뒤안길로… 지스타 미래는?
--  MCDC incorporated with Jannat tours UK to distribute Hajj packages in Europe & the Americas
--  골프존, 랜섬웨어로 수백만명 개인정보 유출… 멀고도 험한 피해 보상
--  MLA Disqualification : शिवसेना आमदार अपात्रता सुनावणीला सुरूवात; देवदत्त कामत काय म्हणाले ?
--  Dawood इब्राहिम Last Wish: डॉन दाऊद इब्राहिम की आखिरी इच्छा रह गई थी अधूरी? जानना चाहते हैं क्या
--  Man City to play Copenhagen in Champions League last 16 short on glamour ties
--  Old heads lead Fluminense into Club World Cup final
--  North Korea's Kim warns Washington as biggest ICBM launched
--  Russia still banned from Olympic athletics - 'but things change': Coe
--  Felipe Contepomi takes over as Argentina rugby coach
--  UN prepares to start pulling peacekeepers from the Democratic Republic of Congo
--  Marvel drops actor Jonathan Majors after assault conviction
--  에코프로 젊은 과학자상에 고려대 유승호·서강대 박제영 교수
--  الخارجية الأميركية: دخول أولى الشاحنات المحمّلة بضائع تجارية إلى غزة
--  Lantbruksfastighet i Bergsjö såld för 500 000 kronor
--  디지털 퍼스트 기업 핵심 기술 ‘프라이빗 AI·XaaS·액체 냉각·지속가능성’
--  Crime: અમદાવાદમાં ઘરઘાટીની કરામત, માલિક બહાર જવા નીકળ્યાં ત્યારે ઘરમાં ઘૂસીને કરી 10.50 લાખ રૂપિયાની ચોરી
--  German Cultural Events Axed As Gaza War Tensions Spike
--  Happy Birthday Ricky Ponting: ਪੁਲ ਸ਼ਾਟ ਦੇ ਅਸਲੀ ਮਾਸਟਰ ਰਿਕੀ ਪੋਂਟਿੰਗ, ਜਾਣੋ ਰੋਹਿਤ ਸ਼ਰਮਾ ਨਾਲ ਉਨ੍ਹਾਂ ਦਾ ਰਿਸ਼ਤਾ ਅਤੇ ਕ੍ਰਿਕਟ 'ਚ ਅਨੋਖੇ ਰਿਕਾਰਡ
--  Saudi minister launches strategy and identity of General Authority of Media Regulation
--  삼성전자 '2030 시스템반도체 1위' 달성 속도 ... '아이소셀 비전' 차세대 2종 공개
--  Seahawks vencem com TD a 28s do fim e mantêm má fase dos Eagles
--  Profil Prabu Revolusi yang Dipecat dari TPN Ganjar-Mahfud
--  Dunki First Day Advance Booking: रिलीज से पहले ही ‘डंकी’ दिखा रही दम, एडवांस बुकिंग में कर लिया करोड़ों का कलेक्शन, पहले दिन कमाई के रिकॉर्ड तोड़ेगी SRK की फिल्म!
--  Malkajigiri: మల్కాజిగిరిపై ‘కమలం’ గురి.. టికెట్‌ కోసం ఇప్పటి నుంచే నేతల పోటీ
--  Miti: Malaysia records trade surplus of RM12.41b in November
+-  Başkan Erdoğan'dan yerel seçim öncesi AK Parti teşkilatına talimat
+-  Yeşim Demir'in ölümünde cinayet şüphesi! Erkek arkadaşı tutuklandı
+-  Macaristan Başbakanı Orban'dan Türkiye mesajı: Önümüzdeki yüzyıl sizin olacak
+-  수제 샌드위치&커피 전문점 ‘카페샌드리아’ … 안정성과 수익성 높여
+-  홍천축산농협, '희망2024 나눔 캠페인' 성금 기탁
+-  2024년 패션시장 키워드 '와인드업'
+-  평산 신씨 홍천종친회, '희망2024 나눔 캠페인' 성금 기탁
+-  파리바게뜨, 美 케이크 매출 증가…"현지 마케팅 주효"
+-  홍형선 국민의힘 화성갑 국회의원 예비후보, 화성시 분시 방안 제안
+-  '오픈 100일' 이랜드 팩토리아울렛 광명점, 매출 50% '껑충'
+-  양양군, 일반건강·암 출장검진 실시
+-  홍천군 의용소방대 연합회, 희망2024 나눔 캠페인 성금 기탁
+-  홍천여성의용소방대, 훈훈한 송년회와 아름다운 기부
+-  양양군, 2024 강원 동계청소년올림픽 성화투어 행사 개최
+-  세종시, 올해 안전관리 미흡사례 139건 확인·후속조치 완료
+-  화성시의회, 제226회 제2차 정례회 폐회
+-  홍천다드림 축산, 삼남매의 따뜻한 기부
+-  양양소방서, 겨울철 화목보일러 화재예방 적극 홍보
+-  태안군, ‘2023 민·관 사회복지 소통 화합 도모
+-  태안군, 내년 1월부터 상·하수도 요금 인상
+-  군포시, 사회적경제 지원으로 기업경쟁력 강화
+-  홍천농업고, '어그리비젼 발표회' 개최
+-  케이뱅크, 투자계약증권 청약 위한 가상계좌 서비스 제공
+-  의왕시, 수험생 위한 대입 정시 집중상담 운영
+-  무이자할부 '실종'…카드사, 올해 할부수수료 1.5조 챙겨
+-  갈 길 바쁜 '철산법 개정안'…21대 국회 통과 '불투명'
+-  강원특별자치도청소년활동진흥센터, ‘따끈따끈 연탄나눔_핫데이’ 진행
+-  최상목, "우리 경제 역동성 획기적으로 높이겠다"
+-  내년 3월부터 청약통장 '배우자 보유기간' 합산
+-  하림 "HMM 인수, 본계약 체결할 수 있도록 최선"
+-  산업용 요소 등 77개 품목 할당관세…9670억원 규모
+-  [기자수첩] '층간소음' 이번엔 잡을 수 있나
+-  기아, 경총 협력…안전한 사업장 만든다
+-  K-드론, 미국 등 드론 선진국에 144억원 수출
+-  중국 간쑤성 '규모 6.2 지진'…건물 무너지며 100명 넘는 사망자 발생
+-  성북구, 상징물 활용 가로 쓰레기통 설치
+-  연말 증시 개인에 달렸다…주식양도세 완화 이슈
+-  인천시교육청, 청천중 에코스마트팜 기반 마을리빙랩 거점 공간 마련
+-  내부통제는 '부실'…김태오 회장은 '사법리스크'
+-  कमाल का सुपरफूड! डायबिटीज-कब्ज के लिए रामबाण, जोड़ों के दर्द को भी कहें बाय
+-  성탄절의 지정학
+-  4기 중문동지역사회보장협의체를 마무리하며
+-  Ruling coalition prioritizes good governance: Minister Gurung
+-  Earthquake in northwestern China kills at least 116 people in Gansu and Qinghai provinces
+-  Prosperity possible thru collective efforts: CM Karki
+-  Tesla'dan maaşlara zam! En düşük saatlik ücret 22 dolar olacak
+-  Kredi çekilerek para biriktirilir mi? Uzman isimden önemli yatırım tavsiyeleri
+-  Lokanta, restoran, kafe ve pastanelerde yeni dönem
+-  Yılın son faiz kararına iki gün kaldı
+-  Европын холбоо Медведевийн хүү, Путиний хамаатны эсрэг хориг тавьжээ
