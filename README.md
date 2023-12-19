@@ -1,51 +1,51 @@
 # Latest News
--  양산시, 내년 고향사랑기부제 답례품 38개 품목 선정
--  초벌 부추 유명한 김해 대동면, 장유신도시에 직거래장터 개설
--  양산 도시공원, 시민 맞춤형 친환경 공원으로 탈바꿈
--  박완수 지사, 김해 공공의료원 도립으로 추진
--  BNK경남은행 인사
--  경남교육청, 학교 교육과정의 자율성, 전문성을 높인다
--  박종훈 교육감, 충무고에서 변화를 확인
--  '유·초 연계 이음학기’ 학부모 만족도 높다
--  세계시민으로 성장하는 국제교육교류 경험, 함께 나눠요
--  이병철 전 삼성그룹 회장 첫사업장 '정미소' 위치 기록 찾았다
--  ‘모두가 존중받는 학교’ 함께 만들어요
--  S'pore renewable energy company investing over S$850 million to build battery plant in Japan
--  Man in Clementi confronts & films cat feeder, argues that feeding strays is illegal
--  Jail for BMW driver who beat red light, causing death of sec school boy, 14, in Punggol
--  ङादी ग्रुप पावरले पुस २५ गते बोलायो साधारण सभा
--  मर्जर तथा प्राप्ति प्रस्ताव सहित बरूण हाइड्रोपावरले बोलायो साधारण सभा
--  मञ्जुश्री फाईनान्सले पुस २५ गते साधारण सभा गर्दै
--  हाथवे इन्भेष्टमेन्ट नेपालले प्रस्ताव गर्‍यो लाभांश, बोनससँगै नगद लाभांश पनि
--  शिवम् सिमेन्ट्सको साधारण सभा मिति तय, प्रस्ताव गर्‍यो लाभांश
--  दोस्रो एक्सचेन्जको आवश्यकता
--  सिमेन्टको मूल्यमा कार्टेलिङ
--  १० वर्षअघिको आर्थिक अभियानबाट: गभर्नर दण्डित !
--  निर्यात प्रवर्द्धन पहलका आयाम : परिमाण, मूल्य, गुणस्तर र आपूर्ति समयमा ध्यान दिन आवश्यक
--  मनकामना इन्जिनियरिङ्गको पहिलो त्रैमासिक वित्तीय विवरण, कस्तो छ वित्तिय अवस्था ?
--  नबिल बैंकको ९ प्रतिशत ब्याजदर भएको ऋणपत्र आजसम्म मात्र विक्रीमा रहने
--  हिमालयन लघुवित्तद्वारा पुस २५ गते साधारण सभा आह्वान
--  सानिमा मिडिल तमोरको वार्षिक साधारण सभा पुस २६ मा
--  सगरमाथा जलविद्युत कम्पनीले शतप्रतिशत हकप्रद शेयर निष्कासन गर्ने
--  Jürgen Rau nieuwe interim-directeur van Waardlanden
--  Spiderman sorprende a los niños ingresados en un hospital de Málaga
--  Headlines : ਲੰਡਨ 'ਚ ਲਾਪਤਾ ਸਿੱਖ ਨੌਜਵਾਨ ਗੁਰਸ਼ਮਨ ਭਾਟੀਆ ਦੀ ਮਿਲੀ ਲਾਸ਼,ਵੱਡੀਆਂ ਖ਼ਬਰਾਂ
--  ‘윤미향 1심 판결 검사 비방’ 민원 MBC 신장식 뉴스하이킥 ‘징계 예고’
--  “한동훈, 패소할 결심 아니라면 尹 징계 패소 즉시 상고하라”
--  Actrice Linda van Dyck op 75-jarige leeftijd overleden
--  🎥 | Nietsvermoedende dartsfan gaat los in Ally Pally: ‘Een in het plafond, een in de bullseye’
--  Bad Gyal pone en su sitio a Rauw Alejandro en pleno concierto
--  Chiara Ferragni pide perdón por su "práctica comercial incorrecta"
--  Aficionado de la Real cede su bono a una hincha del Betis para ver el partido
--  Kupcu lažno prikazao tehničku ispravnost i broj prijeđenih kilometara na vozilu
--  РЦИС познакомил гостей из Африки с цифровыми сервисами управления правами на кинопродукцию
--  Celine Dion schwer erkrankt: Schwester gibt Update über ihren Gesundheitszustand
--  TIP IZDVAJA ZA UTORAK: Komšijski derbi Atletiku
--  Türkiye, AB ve BM işbirliğiyle 94 mayın tarlasını temizledi
--  Okan Buruk'tan 2 transfere veto! "Sezon sonunu bekleyin"
--  İlk etap konutlarda sona gelindi! Mart ayına kadar hak sahiplerine teslim edilecek
--  Özel mektup Prof. Dr. Aziz Sancar'a ulaştırıldı
--  Almanya borç freni nedeniyle Kiev'e verilen desteğin aksamasından tedirgin
--  Bakanlıktan RTÜK'e "Yargı" dizisi şikayeti
--  Irak'tan Türkiye'ye kritik ziyaret
--  Fenerbahçe'de Edin Dzeko derbiye saklanacak
+-  Les titres-restaurant de Sodexo vont entrer en Bourse le 1er février
+-  Nadzwyczajne walne EC Będzin [RELACJA]
+-  Statki LNG rezygnują z żeglugi Morzem Czerwonym. Napięcie w regionie narasta
+-  Gaziantepli sanatseverler SANKO Sanat Galerisi’nde açılan karma sergiye yoğun ilgi gösteriyor
+-  면역항암제 ‘키트루다’, 국내 적응증 대폭 확대
+-  2023년도 제51회 작업치료사 국가시험 합격률 89.7%
+-  KNX Awarded Frost & Sullivan's 2023 Global Technology Innovation Leadership Award for Its Superior and Disruptive Smart Home and Building Technology
+-  จับกระแสการเมือง : วันที่ 19 ธ.ค.2566 คลื่นลูกเล็ก "ฤา สึนามิการเมือง เอื้อขัง "ทักษิณ" นอกคุก"
+-  OpenAI crée une équipe pour identifier et prévenir les risques liés à l'IA
+-  เอาแล้ว! ‘ธรรมนัส’ เตรียมเปิดข้อมูล ‘คดีหมูเถื่อน’ มีบริษัทใหญ่โดนด้วย ลั่นปิดคดีภายในสิ้นปี
+-  Apple will stop selling Apple Watch Series 9 and Apple Watch Ultra 2 in the U.S.
+-  Ο Γιώργος Κιμούλης έκανε πρεμιέρα σε θέατρο της Καλαμάτας χωρίς την αναμενόμενη προσέλευση κόσμου
+-  Türk Eximbank'tan ihracatçılara dev destek: 41 milyar dolara çıkacak
+-  Valilik saat verdi: 'Yüksek patlama sesi' uyarısı
+-  Enerjide hidrojen hamlesi: Türkiye'nin Avrupa inisiyatifine katılması önem taşıyor
+-  Irak'tan Türkiye'ye üst düzey ziyaret: İki isim geliyor
+-  Bakan Tunç: Arabuluculuk sistemin kira fiyatlarının düşmesine katkı sağlıyor
+-  Еще один крупный перевозчик решил перенаправить суда в обход Африки
+-  Berlin muss Bundestagswahl 2021 teilweise wiederholen
+-  5000 nitraten gevonden in auto in Drunen, drie mannen aangehouden
+-  "Ce n'est pas Bertrand Cantat": Julie Depardieu défend son père Gérard, visé par deux plaintes pour viols et agression sexuelle
+-  인사이너리, 비엠벤처스에서 30억원 투자유치
+-  클라우드메이트, 美 카토와 클라우드 네이티브 지리 공간 분석 사업 맞손
+-  Acuerdo en el Gobierno para elevar el subsidio por desempleo a 570 euros
+-  CVT: Thông báo thay đổi nhân sự
+-  EVG: CBTT thanh lý hợp đồng kiểm toán BCTC năm 2023
+-  MBB: Thông báo thay đổi địa điểm CN An Phú
+-  SCS: CBTT Nghị quyết HĐQT thông qua chốt danh sách cổ đông để tạm ứng cổ tức đợt 1 năm 2023 bằng tiền
+-  TCB: CBTT Nghị quyết HĐQT phê duyệt giao dịch với TCBS
+-  VNL: CBTT Quyết định về việc xử phạt vi phạm hành chính về thuế
+-  PDR: Báo cáo kết quả giao dịch cổ phiếu của người nội bộ Bùi Quang Anh Vũ
+-  BSI: Báo cáo kết quả giao dịch bán cổ phiếu quỹ
+-  KDH: Báo cáo thay đổi sở hữu của nhóm NĐTNN là CĐL Trương Ngọc Phượng
+-  CMG: Báo cáo về thay đổi sở hữu của cổ đông lớn Pyn Elite Fund (Non-UCITS)
+-  CDC: Thông báo giao dịch cổ phiếu của người có liên quan đến người nội bộ Nguyễn Hoằng
+-  IJC: Thông báo về việc thay đổi nội dung Thông báo ngày đăng ký cuối cùng
+-  SZL: Quyết định về việc thay đổi đăng ký niêm yết
+-  PGV: Thông báo về ngày ĐKCC tạm ứng cổ tức năm 2023 bằng tiền
+-  BIG: Báo cáo sở hữu của cổ đông lớn - Trương Huy Tâm
+-  NAB: Nguyễn Thanh Hải - người có liên quan đến Thành viên BKS - đăng ký bán 101.613 CP
+-  SZG: Thay đổi nhân sự
+-  TNG: Nỗ lực hoàn thành sớm kế hoạch năm
+-  CMD: Nghị quyết Hội đồng quản trị
+-  Kylie Jenner shfaqet atraktive me veshje sportive, në fotografitë e bëra brenda Bugattit luksoz
+-  ODE: Nghị quyết Hội đồng quản trị thông qua giao dịch với bên có liên quan của người nội bộ (Công ty TNHH Giáo dục Sunshine Maple Bear)
+-  CT3: Nghị quyết Hội đồng quản trị
+-  KHL: Quyết định 1274/QĐ-SGDHN ngày 07/12/2023
+-  BIG: Trương Huy Tâm không còn là cổ đông lớn
+-  DMS: Ngày đăng ký cuối cùng lấy ý kiến cổ đông bằng văn bản
+-  CE1: Nghị quyết Hội đồng quản trị
