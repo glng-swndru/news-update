@@ -1,51 +1,51 @@
 # Latest News
+-  우도환, 잘생김 뚝뚝
+-  [Vidéo] DGE : Me Clédor Ly bousculé par les les forces de défense et de sécurité
+-  Convicted killer declined parole
+-  Misterio en Nueva York: Gemelos de cinco años fueron hallados muertos en un apartamento de El Bronx
+-  Mary Earps tells young girls to 'work hard and get GCSEs and A-Levels' as the Lionesses' goalkeeper lines up against star-studded competition jockeying for coveted SPOTY award
+-  Jake Paul announces partnership with USA Boxing for 2024 Olympics as influencer-turned-boxer gears up to travel with Team USA to Paris: 'I believe the USA has the best boxers, let's put it to the test'
+-  Oil Price Rises 1% As Red Sea Shipping Concerns Unnerve Traders
+-  리버풀, '김민재 호위무사 될 뻔한 MF'에 관심 없다...뮌헨은 너무 비싸다고 여기는 중
+-  Selenskyjs Fernduell mit Putin: „Russland hat keine Erfolge erzielt“
+-  الشيخ: قرار عودة حركة فتح للسلاح يجب أن يكون جماعيا
+-  2 tenants charged for disabling smoke alarms before Hamilton house fire that killed 4 people
+-  Video/ Shikoni çfarë bën Guzman: portieri përjashtohet dhe fshihet poshtë mushamasë për të parë ndeshjen
+-  Paula Radcliffe, 50, shows off her incredible figure in midi dress as she joins husband Gary Lough at the BBC Sports Personality of the Year Awards
+-  Fluminense va întâlni câștigătoarea Champions League, în finala CM al Cluburilor
+-  Mondial des clubs : Manchester City rejoint Fliminense en finale (vidéos)
+-  Melissa Doyle shares emotional family post: ‘Time really does fly’
+-  19 Times Celebs Called Out “Unattainable Beauty Standards” In Hollywood
+-  Дагестан останавливает незаконный ввоз подкарантинной продукции
+-  LIVE TJ - ENTELLA-JUVENTUS NG 0-1 - Due minuti di recupero alla fine del primo tempo
+-  Aaj Ka Kark Tarot Card: कर्क राशि वाले आत्मविश्वास से करें काम तो मिल सकती है सफलता, स्वास्थ्य का ध्यान रखें
+-  OnlyFans performer spots former teacher in audience during XXX-rated livestream: ‘Uncomfortable’
+-  What you need to know about festival drug testing this summer
+-  Thibaut Courtois admits he snapped when Belgium coach threatened to leak conversations to press
+-  Taylor Swift Baked Cinnamon Rolls for Travis Kelce Before a Chiefs Game, Bernie Kosar Reveals
+-  Mercato - PSG : Ça bouge pour ce joueur de Deschamps
+-  Kakav promašaj! Europska komisija objavila dokument s pogrešnom hrvatskom zastavom: Pogledajte što im je promaknulo
+-  Στα Τρίκαλα η πιο στραβή εκκλησία του κόσμου: Ο ελληνικός… Πύργος της Πίζας έχει κλίση 17 μοιρών
+-  Kotaku Readers Share Their Most Anticipated 2024 Games
+-  Analiza Estado de NY indemnizaciones por esclavitud
+-  Пораз за Димитриевски и Рајо од Валенсија (ВИДЕО)
 -  בנימין: "יש בהפועל ת"א צעירים מהטובים בארץ, כולנו נגיע רחוק"
 -  ממשיכה בשלה: ריאל מדריד ניצחה את הכוכב האדום בלגרד
+-  List Of Producers For This Week’s WWE Raw
+-  Трое жителей Ростовской области погибли в СВО
+-  Alyssa Milano posts cryptic message about ‘resilience’ after she’s accused of getting Shannen Doherty fired from ‘Charmed’
+-  Selenskyj sieht Mobilisierung als heikle Frage für Ukraine
+-  हुकुमचंद मिल मजदूरों में खुशी की लहर, 464 करोड़ की बकाया राशि मिलेगी, CM मोहन यादव ने दी मंजूरी
+-  Foot : scène lunaire en Turquie, une équipe quitte le terrain après une décision arbitrale (vidéo)
+-  ABD'de şiddetli yağış ve fırtına nedeniyle 4 kişi yaşamını yitirdi
+-  Spojené štáty vyzvali Srbsko, aby riešilo obavy týkajúce sa priebehu volieb. Opozícia tvrdí, že boli zmanipulované
+-  Студенты Орла готовы принять «Тургеневский вызов»
+-  Günün ULDUZ FALI: yalnız qala bilərsiniz
+-  Michael Douglas and Catherine Zeta-Jones share rare family photos on holiday vacation
+-  PSG : toujours en chantier, Paris entame doucement sa nouvelle ère
+-  Sea Pre-Fall 2024
+-  চলন্ত ট্রেনে আতঙ্কের ভোর
+-  Ligji për evidencë amë nesër sërish në seancë të Gjykatës Kushtetuese
+-  Курской области на выставке «Россия» на ВДНХ в Москве посветят целый день 11 января
+-  Urawa Red Diamonds 0-3 Manchester City (MAÇ SONUCU-ÖZET)
 -  Blizzard releases roadmap for World of Warcraft leading up to The War Within
--  Kickoff | Man City book first-ever CWC final berth
--  VIDEO Pogledajte nevjerojatne prizore s Islanda: Lava posvuda, stupovi dima ispunili su nebo...
--  Jakšić Stojanović: Status prosvjetnih radnika rješavati...
--  Jeffrey Epstein list: More than 170 people may be named in the new year
--  VÍDEO: Mulher mostra por que banho em Husky siberiano é o mais caro da petshop
--  Uusi valmentaja, sama lopputulos - näin Kärpistä kommentoitiin tappiota
--  Risto Dufva veisteli Kärppien uudesta valmentajasta - "Ehkä mä lähden johonkin toiseen paikkaan"
--  Meg kell ismételni a 2021-es berlini választásokat
--  US leads Red Sea operation amid attacks trade fears
--  Cortizo entrega medalla a la excelencia en grado de oficial
--  Argentina no designará embajadores ante Venezuela, Cuba y Nicaragua
--  Recept na dnes: Zabudnite na vianočku, táto tvarohová štóla nesmie na vašom sviatočnom stole chýbať!
--  Belliboni pedirá una reunión con el ministerio de Seguridad porteño: “Si hay incidentes es culpa del Gobierno”
--  A1 Group von Moody's von Baa1 auf A3 hochgestuft, Ausblick stabil
--  Monique Olivier condamnée à la perpétuité pour complicité dans trois crimes commis par Fourniret
--  (UZNEMIRUJUĆ SNIMAK) PROZVALI GA ČETNIČKIM VOJVODOM: Tuča profesora i učenika u zagrebačkoj srednjoj školi, krv po učionici (VIDEO)
--  عاجل.. أهم 10.. قرارات جديدة لمجلس الوزراء وتطبيق حكم الشرع في مواطنين ارتكبا جرائم مروعة
--  Lewy obrońca Realu Madryt wypada z gry do końca roku
--  VIDEO: Pogledajte sjajnu prvu asistenciju Franjića u dresu Darmstadta
--  Сенат Франции одобрил текст проекта "об убежище и миграции"
--  إحصائية كارثية لألميريا قبل مواجهة برشلونة
--  Manchester City zieht ins Finale der Club-WM ein
--  'No matter the sacrifices': Houthi rebels vow to continue Red Sea attacks despite US-led task force
--  WATCH | Volcano erupts in southwest Iceland after weeks of earthquakes
--  US-Anleihen: Kursgewinne - Zinssenkungserwartungen dominieren weiter
--  Зеленский высказался по вопросу переговоров с Россией
--  بالصورة- بفستان أسود قصير..هنا شيحة تبهر الجمهور بلوك مميز وأنيق
--  بالصور- بلوك أبيض شيك..درة التونسية تتألق بجمالها وأناقتها
--  بالصورة- من داخل سيارتها.. أيتن عامر تخطف الأنظار بأنوثتها
--  Salernitana Milan, caos in casa granata: nominato il nuovo direttore generale!
--  سيتي يصعد لنهائي مونديال الأندية بثلاثية في مرمى أوراوا
--  Signa води преговори за продажбата на дела си в емблематичната Chrysler Building
--  VEĆ JE POZNATO Evo koji je Tobijev novi klub
--  خلال ساعات.. استشهاد 232 فلسطينيًا في القصف الإسرائيلي على غزة
--  СКА — «Сочи»: видеообзор матча КХЛ
--  El ejército ucraniano propone movilizar a 500.000 nuevos reclutas
--  VIDEO: Kramarić mirno zabio za vodstvo protiv Darmstadta
--  West Indies choose to bowl as Forde makes T20I debut
--  Baghpat News: भाई ने मोबाइल छीना, बहन ने फांसी लगाकर जान दी
--  Agra News: मत्स्य संपदा योजनाएं जन-जन तक पहुंचाई जाएं
--  Estopa regresa a Venezuela para celebrar por todo lo alto sus 25 años de carrera
--  Revelan INESPERADO MOTIVO por el que Chivas FICHÓ a Fernando Gago como su nuevo DT ¿En serio? | FICHAJES 2024
--  El único habitante de la Bitcoin City lleva 2 años esperando que se cumplan las promesas
--  La Junta de Cofradías otorga su Medalla de Oro al vicealmirante Ignacio Frutos
--  Bareilly News: आईवीआरआई में वेटरनरी पैथोलॉजी कांग्रेस आज से
--  Baghpat News: बागपत में खुलेआम नशे का धंधा, पुलिस बेखबर
--  Asi se vería el planeta Tierra sin agua, según la inteligencia artificial
