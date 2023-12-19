@@ -1,11 +1,11 @@
 # Latest News
--  'MMA 세계 선수권대회 출전' 최영찬, 체급 랭킹 5위 등극...양서우 심판위원장, 세계 심판 자격증 취득
--  "En el Bayern nos hemos asegurado de que David Alaba será operado por un médico de nuestra confianza"
--  Injac i Borovinić Bojović položile vijenac na Spomenik Partizanu borcu
--  Lazları sevdiği için adını ve soyadını değiştirdi! Duyanlar inanmayıp kimliğini istiyor: Hataylı adamın adı soyadı şaşırtıyor
--  숨 고르는 이낙연, 이재명 ‘결단’ 촉구
--  여야, 본회의 하루 앞두고 예산안 막판 협상 계속
--  NH농협은행 대구중앙금융센터, 밀알후원회에 3천만원 기부
--  경부고속도로 대구 일대 진출·연결부 상습정체구간 숨통 트였다
--  김포시, 2023년 지속가능 교통도시 평가 ‘대상’ 선정
--  부산시, 전문가 등 20여 명 참석 '의료관광추진협의회' 개최
+-  Қоғоз китоб маданиятини сақлаб қолган Пажу: Жанубий Кореядаги китоблар шаҳри ҳақида.
+-  Putnici se vraćaju vlakovima, ali sve manje je prevezene robe
+-  Қатар амири Тошкентга келди.
+-  제주출신 강도형 장관 후보자 "국민 여러분께 우선 사과드린다"
+-  〔제주일보 10대 뉴스〕 제주4.3기록물, 세계기록유산 등재 2025년 결정
+-  Ko će Crnoj Gori da pozajmi 110 miliona evra? Zainteresovane domaće banke
+-  La Seguridad Social perdió 16.272 afiliados extranjeros
+-  El 63% de los participantes en las Lanzaderas de Bizkaia encuentra empleo
+-  La Prealpina: ecco le cifre dell’affare Colbey Ross
+-  Anleger an Frankfurter Börse lassen es ruhig angehen
