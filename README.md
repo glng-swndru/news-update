@@ -1,11 +1,51 @@
 # Latest News
--  Corona-Zahlen im Landkreis Zwickau aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Grondeigenaren locaties windmolens in Molenlanden komen op uitnodiging van windmolenbouwer Pure Energie samen
--  Corona-Zahlen im Vogtlandkreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Landkreis Mittelsachsen aktuell: Aktuelle Daten zum Coronavirus
--  Скрипник відреагував на чутки про розірвання контракту з Ворсклою
--  Corona-Zahlen im Erzgebirgskreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Corona-Zahlen in Chemnitz aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Duisburg: Urteil gegen John-Reed-Attentäter gefallen – Worte des Verteidigers sprechen Bände
--  Corona-Zahlen im Landkreis Ludwigslust-Parchim aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Vorpommern-Greifswald aktuell: Aktuelle Daten zum Coronavirus
+-  (PISMO BRALCA) Hamas potiska Izraelce v morje – problem je v izraelski vladi?
+-  Banen er en byggeplass, men Brann selger billetter som aldri før
+-  Türkiye'den 119 üniversite dünyanın en iyi 3 bin üniversitesi arasına girdi
+-  الجغبير: القطاع الصناعي هو الأكثر تشغيلا للأيدي العاملة الوطنية
+-  رؤية بيزوس لـ 1000 أينشتاين تثير جدلا كبيرا!
+-  بلومبرغ: طائرات حماس تتفوق على جيش الاحتلال
+-  ما هي مادة (الفثالات) التي تؤدي لتأخر الحمل؟
+-  سفير إيران في السعودية يعلق لقب (خادم الحرمين الشريفين)
+-  منتدى الاستراتيجيات: النظام الضريبي في الأردن غير منصف
+-  Yüzünüzdeki bu değişime dikkat! Yanlış beslenme şekli...
+-  Erdoğan'dan kritik seçim mesajı: Tek hedefimiz seçimi kazanmak
+-  '취재진 70명+방송 카메라 9대 총출동' 성범죄 혐의 거포, 사죄로 입단식 시작했다
+-  '이범수♥' 이윤진, 무슨 일 있나? 의미심장 글…"가장 가까운 사람에게 친절 베풀지 않기로 결정했다" [MD이슈]
+-  "올시즌 최강의 팀은 아스널, 이렇게 고통스러운 경기는 처음이야"...'EPL 전술 천재'도 감탄했다
+-  안준호 감독 남자농구대표팀 사령탑으로 전격 현장 컴백, 서동철 코치와 함께, 이사회 심의만 남았다[오피셜]
+-  Camilo Cándido a Cruz Azul: los detalles del acuerdo por el nuevo refuerzo para el Clausura 2024
+-  Российские войска владеют инициативой, заявил Путин
+-  Galatasaray'da Sergio Oliveira ameliyat oldu
+-  Bulgaristan'dan gelen yolcu treninde her biri fileye konmuş 33 piton ele geçirildi
+-  В Анкаре прошла церемония памяти убитого посла России Карлова
+-  ميقاتي: نصرّ على ضرورة الإسراع في انتخاب رئيس... وعلى إعطاء الحقوق العادلة
+-  Поставки бронетехники в войска в 2023 году возросли втрое
+-  Como Diniz corrigiu Fluminense em momento delicado para garantir time na final do Mundial de Clubes
+-  Conmebol atualiza ranking histórico com Palmeiras assumindo liderança e Flamengo perdendo posição; veja
+-  Só um brasileiro não será cabeça de chave na Libertadores; veja os potes
+-  Libertadores 2024 tem último clube classificado; veja os 47 times que vão disputar competição no ano que vem
+-  Como Bruno Guimarães e Chelsea ficaram 'no quase' em várias novelas e o que você precisa ver pela ESPN no Star+
+-  Quem são as estrelas e como jogz o City, possível rival do Flu na final do Mundial?
+-  Integrante do Kasino, ícone da música pop, diz como virou fã do City e dá até 'puxão de orelha' em Guardiola: 'Relação de amor e ódio'
+-  Brock Purdy para MVP e 'lavadas': o resumo da semana 15 da NFL
+-  Путин рассказал о современном оружии в ядерной триаде
+-  ‘He is confused’: Phil Thompson calls for Jurgen Klopp to drop Liverpool 24-year-old
+-  حرب غزة.. أكثر من ربع مليون نازح أصيبوا بالأمراض المعدية
+-  أخبار السعودية.. ربط سيارات الإسعاف بإشارات المرور و30 ألف ريال تمويل موسمي من بنك التنمية
+-  Best of 2023: Top 10 OTT Shows Ranked & Where to Watch Them
+-  Ambulance paramedics may get military training in ways to keep queuing patients alive
+-  이정후 ‘샌프란시스코 자이언츠와 초대형 계약하고 금의 환양’ [MK포토]
+-  أمطار غزيرة وجيدة.. درجات الحرارة اليوم في ليبيا وخلال الساعات القادمة
+-  Nystartat investmentbolag i Örnsköldsvik
+-  עם עוגה בצורת מיני מאוס: אליקו חוגג יום הולדת ללירז
+-  U sarajevskom naselju Briješće sinoć ranjena žena hicem iz pištolja
+-  Nytt företag startar i Örnsköldsvik – ska verka i verkstadsbranschen
+-  Путин заявил о растраченных резервах ВСУ
+-  U 85 posto sudskih procesa privrednog kriminala ne dolazi do kažnjavanja
+-  Vratar PSG-a opljačkan u svom domu
+-  “Não está previsto qualquer aumento em sede de IMI”, garante Nuno Félix
+-  จากนางเอกในตำนาน จอย ศิริลักษณ์ เรื่องเหลือเชื่อ นิมิตได้ เชื่อมจิตถึง ‘หลวงพ่อโต’
+-  28㎓ '제4이통' 접수 마감…세종텔레콤·스테이지엑스·마이모바일 3파전
+-  '제4이통' 후보 3파전…세종텔레콤·스테이지파이브·마이모바일 (종합)
+-  Путин призвал поддерживать готовность ядерной триады
