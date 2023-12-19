@@ -1,11 +1,51 @@
 # Latest News
--  Plant and play fun
--  Search for driver continues following fatal collision in Truganina
--  México impugnará la reciente ley de Texas sobre arrestos y deportación de migrantes
--  El Gobernador de Texas aprueba un proyecto de ley contra los inmigrantes ilegales
--  ‘아스널 이적’ 걷어차는 브렌트포드 ST ‘충격’↔뿔난 아르테타, 올 시즌 PL서 17경기 9골 ST 영입추진…몸값도 절반인 820억 이면 충분
--  [MD앱테크] 12월 20일 캐시워크 돈버는 퀴즈 정답
--  [단독]심판 임원 갑질 및 폭언, "이 XX야, 나를 우습게 봐? 내가 있는 한 내 권한 최대한 활용할 테니까"…KFA 공정위원회 회부
--  '1476억' 잭팟→SF 연봉킹 등극…"지금까지의 보상" '악마'의 한마디가 이정후 부담 지웠다 [MD인천공항]
--  [인터뷰]서인국, ‘이재, 곧 죽습니다’…“더 성장하게 된 작품”
--  عاجل.. الجوازات تكشف إمكانية اختيار صورة المولود في جواز السفر
+-  팔공산 1cm 미만 눈...대구 팔공산로 일부 교통통제
+-  Barranquilla rinde homenaje a Shakira con una estatua que captura su esencia artística
+-  Banco de la República recorta 25 puntos a la tasa de interés y la deja en 13 %
+-  הנה כל מה שקובע את גודל כפות הרגליים שלכם - וכיצד תוכלו לשנות אותו
+-  צ'לסי ניצחה את ניוקאסל בפנדלים בגביע הליגה, בכורה לאנקונקו
+-  פריצת דרך מדעית: שיחה בין אדם ללווייתן תוביל ליצירת קשר עם חייזרים
+-  מזה עשור מנסים לפענח מה נכתב בפתק החבוי בשמלת משי מהמאה ה-19 - ועכשיו הצליחו
+-  „Haben uns alles anders vorgestellt“: BVB-Trainer Terzic nach Desaster vor dem Aus
+-  الاستخبارات الصهيونية : محمد الضيف يمشي على قدميه
+-  Gol düellosunda kazanan çıkmadı!
+-  İran, İsveç temyiz mahkemesinin Hamid Nuri kararını kınadı
+-  Napoli'ye kupada soğuk duş!
+-  Pınar Karşıyaka ikinci olarak play-in turuna kaldı
+-  Moment desperate neighbour lobs a FIREPIT at crazed ‘XL Bully’ to stop it mauling pup in vicious daylight attack
+-  Subasta de 5G: Esto es lo que debe saber del proceso que se hará el 20 de diciembre
+-  Partizan slavio u Valensiji
+-  Donald Trump holds lead in Iowa, New Hampshire
+-  ఇసుక కేసులో విచారణ నేటికి వాయిదా
+-  Expertos recomiendan que Barbie amplíe su abanico de profesiones médicas y científicas
+-  Seed farmers hope for dry weather
+-  "Igrali smo kako Valensija igra - pokazali smo karakter!" Prvi utisci Željka Obradovića nakon istorijskog trijumfa Partizana u Fonteti
+-  Fulham, Chelsea u Middlesbrough javvanzaw
+-  Marilina y Will podrían volver a mostrarse juntos esta noche
+-  Soccerladuma | Chelsea Through To Carabao Cup Semi-Finals
+-  Canucks Q&A: Engaging, educated Nikita Zadorov comes to the emotional rescue
+-  What the Apple Watch Import Ban Means for Consumers and the Company
+-  BYD Seal vs enthusiasts
+-  Japan Steps Up to Help Asia Achieve Its Decarbonization Goals
+-  Discovering the benefits of fee free TAFE
+-  Duck hunting discussed
+-  AUTOMOBILOM NALETELA NA DETE PA POBEGLA Nesreća u Sinju: Devojčica hitno prevezena u bolnicu
+-  Biljana Đorđević: Ovo je borba za naše glasove, a ne vlast
+-  Evelyn Vanessa Calderón tacha a Los Hackers de desagradables
+-  Andrea García aclara sus intenciones dehacer una bioserie o película sobre su padre
+-  Inside Adam Collard’s romantic holiday to Amsterdam with girlfriend Laura Woods as he shares plans for marriage and kids
+-  Inside Adam Collard’s romantic holiday to Amsterdam with girlfriend Laura Woods as he shares plans for marriage and kids
+-  Parents and uncle convicted of "honor killing" Pakistani teen in Italy
+-  Chelsea player ratings: Thiago Silva puts in another assured display but defensive partner Badiashile has horror show
+-  Chelsea player ratings: Thiago Silva puts in another assured display but defensive partner Badiashile has horror show
+-  Sorprese per il programma di autoriparazione di Samsung: arrivano i pieghevoli
+-  Njemački sud odlučio: Söderova uredba zakonita, raspela ostaju u bavarskim državnim ustanovama
+-  వ్యాజ్యాలపై లోతైన విచారణ జరుపుతాం
+-  Ensuring a safe boat season
+-  డీజీపీగా రవిగుప్తా కొనసాగింపు
+-  Chelsea fan runs onto the pitch and barges Newcastle goalkeeper Martin Dubravka
+-  Мадуро обсудил вопросы развития сотрудничества Венесуэлы с испанской компанией Repsol
+-  Food delivery workers face reduced hours and tips after NYC’s minimum wage hike: report
+-  Украине передали в качестве гуманитарной помощи безалкогольное пиво
+-  Donations needed to provide Ottawa households with a Christmas supper
+-  Englannin liigacupissa valtavaa draamaa - ukrainalainen tarjosi Chelsealle valonpilkahduksen
