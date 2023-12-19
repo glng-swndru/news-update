@@ -1,51 +1,51 @@
 # Latest News
--  News24 | Here are the Powerball and Powerball Plus results
--  News24 | No need to evacuate as Simon's Town mountain fire approaches properties, say officials
--  Cancillería y Thomas Greg & Sons no llegan a acuerdo en conciliación
--  Will your favorite Minnesota teams end up on Amazon Prime Video?
--  Adidas To Release Special Edition Lionel Messi Samba Sneakers
--  Ex Liverpool Striker Slams Darwin Nunez: What He Did Against Man Utd Was 'Absolutely Crazy'
--  Este será el calendario de Pumas para el Clausura 2024
--  Animaux. Quelles sont les bonnes questions à se poser avant d'adopter ?
--  Religion. Le Vatican autorise la bénédiction des couples de même sexe : « Une très grosse avancée »
--  Bellenod-sur-Seine. Une voiture s'encastre dans une maison, une femme de 84 ans meurt
--  Interview. Loi immigration : « Oui, c'est une victoire idéologique du RN »
--  Vielverge. Passionné par la forge, il propose des stages pour fabriquer votre couteau
--  Saint-Seine-en-Bâche. Ces familles invitent les habitants du village à tour de rôle pendant les fêtes
--  Immobilier - Location. Quels sont les frais d'agence à la charge du locataire ?
--  Économie. Les objectifs de Macron fragilisés par les projections de la Banque de France
--  En direct. Loi immigration : les sénateurs votent largement le projet de loi, en attendant l'Assemblée
--  Justice. Patrick Poivre d'Arvor mis en examen pour un viol commis en 2009
--  Désinfox. Non, personne n'a volé 20 000 € dans la caisse des étudiants de l'école de commerce BSB à ...
--  Bourgogne-Franche-Comté. Comment la SNCF se prépare au rush de Noël dans les TER
--  Bourgogne-Franche-Comté. L'Amour est dans le pré sur M6 : une agricultrice de la région dans la ...
--  Lyon. Il va bientôt devenir père : le curé de la Croix-Rousse démissionne
--  Raketa spoločnosti Blue Origin absolvovala po vyše roku úspešný let
--  Zoff um Potsdamer Weihnachtsmarkt: Händler lehnen „Blauen Lichterglanz“ ab und wollen neues Konzept
--  Coco Sily presentó a su nueva novia: “Dios cierra una ventana y abre una puerta”
--  Belgrano: un fuerte choque provocó el vuelco de un auto en Avenida Del Libertador y Monroe
--  Werder ärgert Leipzig und trotzt RB einen Punkt ab
--  Dress worn by Princess Diana sells for new record of $1.14 million
--  Slik reddet de livet på dødsveien
--  منصة "تأشيرة السعودية".. كل ما تريد معرفته عن خدماتها
--  हरियाणा सरकार 10 हजार मजदूरों को इजरायल भेजने की कर रही है तैयारी, विपक्षी दलों ने साधा निशाना
--  Wizkid stirs health rumors, shares hospital bed photo
--  Rikthehet pas një viti me projekte, këngëtari Luan Qallaku publikon këngën “Po vuaj”
--  I used to have very thin hair – my tips for making it thicker, you’re probably not doing a key scalp treatment
--  Projeto na Câmara muda data para conferência da idade mínima de vereadores
--  صنعاء تحذّر من إطلاق النار غداً وتتوعد المخالفين
--  El artista venezolano Danny Ocean encabeza las listas mundiales en 2023
--  Law changes affecting safety and security in the Netherlands in 2024
--  Raiffeisen Bank planuje zmniejszyć ekspozycję na Rosję. Transakcja w wysokości 1,5 mld USD
--  Legendarni 'Titanic' premijerno je prikazan prije 26 godina
--  Co-Trainer Christian Sobottka verlässt die BSG
--  [ŽT] „Puola desantas, jūrų pėstininkai, „Štorm V“, „Štorm Z“. Syrskis skelbia apie okupantų tikslą
--  SON DAKİKA: İstanbulspor yönetimi takımı sahadan çekti, maç yarıda kaldı
--  Île-de-France: les montants dédiés aux projets retenus par le Loto du patrimoine dévoilés
--  100.000 Betrugsnachrichten bei Whatsapp: Polizei nimmt mutmaßliche Täter fest
--  Earth, Wind & Fire Members Now: Everything to Know About the Current Group & More
--  Znanstvenici su simulirali moguću budućnost Zemlje: Situacija je prilično zastrašujuća
--  Nunca fez risoto de salmão? Eis a (simples) receita
--  長野 善光寺 茶室修復費用の工面困難で初のクラファン実施
--  Zee5: Zee5 introduce soporte Dolby Vision en su plataforma: títulos soportados y otros detalles
--  Desemprego na América Latina se aproxima de menor nível em uma década em 2023, mas pode reverter em 2024, diz OIT
+-  Testamento registrado por Pelé precisará ser cumprido, determina Justiça
+-  Clubes da Espanha querem tirar Vitão do Internacional
+-  صفاقس داخل محلات بيع اللبلابي : ملعقة من الزيت تنافس أسعار الذهب.
+-  Un hospital con 2.700 sonrisas: los enfermos reciben postales navideñas en Cáceres
+-  أميرنا الغالي الشيخ نواف تركتنا؟!.. بقلم: د.أحمد محمد الجمالي
+-  Hakem Ali Şansalan pozisyonda ne dedi?
+-  Sahadan çekilen İstanbulspor'un cezası ne olacak?
+-  Abdullah Avcı: Yapabileceğim bir şey yok
+-  Đurđić: Dobra igra u odbrani, još se uigravamo u napadu
+-  IA transforma imagens de jogos antigos em versões com gráficos realistas
+-  Rząd PiS obiecał Kuleszy 300 milionów. Teraz wszystko w rękach Nitrasa
+-  Kita und Baugebiet als wichtigste Themen
+-  İstanbulspor Trabzonspor maçı iptal mi, ertelendi mi? İstanbulspor Trabzonspor maçı neden bitti?
+-  İstanbulspor'un sahadan çekilmesinin ardından Erman Toroğlu'ndan korkutan yorum!
+-  Olay maç sonrası TFF'nin talimatnamesi ortaya çıktı! İşte İstanbulspor'un alacağı ceza...
+-  Süper Lig'de yaşananların ardından Şahan Gökbakar ağzını fena bozdu: Bu ne böyle...
+-  استشارة عامة حول المبادئ التوجيهية لحيادية الشبكة
+-  Emil Forslund gör mål direkt efter lånet till Malmö: “Gick snabbt”
+-  Дарвин Нунес прави много силен сезон, убедени са на "Анфийлд"
+-  VALENSIJA – PARTIZAN Može li Parni valjak do petog trijumfa u nizu u Evroligi? I to protiv ekipe koju nikad nije dobio
+-  حلم الامس أصبح حقيقة .. مجمع 22 مايو للبنات| كتب سالم عشيش
+-  'Tulsa King' Season 2 - 7 Cast Members Expected to Return!
+-  Vége a hajszának: Elfogták Cs. Zoltánt, aki el akart rabolni egy tinilányt Alsónémediben - a hajánál fogva rángatta áldozatát az autóba
+-  Direction générale des Élections : Le mandataire de Sonko encore refoulé !
+-  Pošto je Bugarska ukinula taksu na rusku naftu, Mađarska je pušta u Šengen
+-  120+ best Amazon Christmas gifts you can still order on time for 2023
+-  La Vuelta 2024 será la de la media montaña y la contrarreloj final de Madrid
+-  La Vuelta 2024 será la de la media montaña y la contrarreloj final de Madrid
+-  Fliegen wird teurer! Ampel hebt Steuer an – so viel kosten die Tickets bald mehr
+-  임윤아, 클로즈업도 무결점
+-  Extension of energy measures was necessary, Papanastasiou said in Brussels
+-  Azra Mahmutagić učiteljica i šahistkinja za SC: Upoznala sam dječaka koji sa petgodina čita i igra šah, a ovaj sport mnogo pomaže
+-  Forum de Coopération Arabo-Russe à Marrakech : Nasser Bourita s’entretient avec son homologue Bahreïni Abdullatif bin Rashid Al Zayani
+-  Kärppien syöksy jatkui valmentajavaihdoksesta huolimatta
+-  Instalan una chabola en el yacimiento arqueológico de Cercadilla en Córdoba
+-  Говорова: На Олімпіаді-2024 у Парижі не повинні виступати представники країни-терориста
+-  طرق العلاج من متحور كورونا الجديد «JN.1».. «اشرب سوائل دافئة»
+-  France : Youcef Atal risque 10 mois de prison avec sursis
+-  Já há percurso da Vuelta de 2024, que começa em Portugal
+-  İstanbulspor'u bekleyen ceza
+-  Lokalpolitiker Kurt Schreck gestorben
+-  Estudiante de la UTP presenta dispositivo para personas con discapacidad visual
+-  17 şirkete soruşturma! “İhalede danışıklı hareket etmek”
+-  Notunterkunft: Wohl keine Zuweisungen zwischen den Jahren
+-  Real pokazao klasu i lako savladao Crvenu Zvezdu
+-  Fiestas de Fin de Año: hasta que hora abrirán los comercios en Córdoba
+-  Montes y Benoit triunfaron en Águila de la Semana
+-  Βαγγέλης Μαρινάκης: Σε αυτόν δίνει τα κλειδιά – Αλλάζουν όλα στον Ολυμπιακό
+-  Budaun News: तमंचा दिखाकर किया दुष्कर्म, बनाया वीडियो, रिपोर्ट दर्ज
+-  Budaun News: छेड़खानी के दोषी को तीन साल की सजा
