@@ -1,11 +1,11 @@
 # Latest News
--  Rząd planuje przedłużenie zawieszenia wypłat dodatku energetycznego na 2024 r.
--  Kontrakty znów w zieleni
--  Deficyt budżetu na 2024 r. wyniesie 184 mld zł
--  'Here We Go' 로마노 컨펌! PSG, 브라질 20세 유망주 DF 영입 협상 빠르게 진행 중
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 20 декабря 2023 года
--  Tinubu Has No Constitutional Right To Intervene In Rivers Crisis – Robert Clarke
--  На Дону еще 804 человека подхватили ковид
--  Partidos de hoy, martes 19 de diciembre: revisa la programación de los torneos internacionales
--  সরিষাবাড়ীতে নৌকা ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ, আহত ৪
--  Ҳусийчилар юк кемаларга ҳужум қилмоқда, Пентагон халқаро коалиция тўплади.
+-  Članovi Galerije „Preporod“ Zenica posjetili Državni arhiv Dubrovnika
+-  Edin Dzeko Kayserispor maçının kamp kadrosunda yer almadı
+-  Marvel-less: Bombers' bid for extra MCG games
+-  Llanberis mountain rescuers face burnout after busiest year
+-  Nottingham: Family of student killed in police chase call for justice
+-  Mirror hacking victims demand criminal investigation
+-  Wasted wind power adds £40 to household energy bills, says think tank
+-  Abortion: PSNI investigate safe access zone protest law breaches
+-  Scotland's climate 'changing faster than expected'
+-  How will Scotland plug its £1.5bn budget shortfall?
