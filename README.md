@@ -1,51 +1,51 @@
 # Latest News
--  Başkan Erdoğan'ın ziyaretini böyle duyurdular: Türkiye olmadan güvenliğimiz yok
--  Konya'da aşırı hız yapan sürücüye 5 bin 15 lira ceza
--  Havacılıktaki yük taşımada yeni dönem! Resmi Gazete'de yayımlandı
--  Beşiktaş'tan büyük sürpriz! Kara Kartal, Anastasios Bakasetas'ın peşinde
--  Khám nhà đối tượng vận chuyển ma tuý, thu giữ 2 khẩu súng
--  Tại sao vàng lại là kênh đầu tư an toàn?
--  Clip: Taylor Swift xử lý bất ngờ khi bị khán giả la ó vì tới SVĐ cổ vũ bạn trai, nhưng lại mất kiểm soát trong tình huống này
--  Bệnh viện thẩm mỹ Nam An kiện Công ty Sen Vàng vì Facebook "Chiêm Quốc Thái"?
--  Em gái Mai Phương Thúy “vượt” chị, đã sinh con thứ 2, nhan sắc mẹ bỉm thăng hạng
--  Cảnh tượng hoang tàn sau động đất 6,2 độ ở Cam Túc, Trung Quốc
--  Sốc với dàn cast Tân Dòng Sông Ly Biệt phần 2: "Mỹ nhân gia thế khủng" thay Triệu Vy, cắt vai của Lâm Tâm Như?
--  HAGL gặp lịch thi đấu tử thần: Ghế của HLV Kiatisuk nóng từng ngày
--  Ấn Độ tăng cường cảnh giác trước biến thể Covid-19 mới
--  Hoàng Thuỳ Linh lần đầu kết hợp Kai Đinh và Grey D hát về tình yêu vô điều kiện, dân mạng phản ứng thế nào?
--  Trọng tài 'bẻ còi', khán giả Indonesia làm loạn
--  Những ngôi trường ở Việt Nam ĐẸP ĐẾN MỨC khiến giới kiến trúc thế giới phải ngỡ ngàng: Có trường tận vùng sâu vùng xa
--  Phụ huynh đánh học sinh lớp 9 nhập viện khai "chỉ muốn cảnh cáo, răn đe"
--  Quên cởi áo khoác khi lên sân khấu nhận giải, Triệu Lộ Tư giúp nhãn hàng "sold-out" trong một nốt nhạc
--  Giải thưởng Quảng cáo sáng tạo Việt Nam 2023: Hảo Hảo nhận giải Chiến dịch truyền thông ấn tượng
--  Giải cứu 5 người bị mắc kẹt trong thang máy ở TP.HCM
--  Hà Nội công nhận thêm 4 điểm du lịch cấp thành phố
--  3 trái cây trong danh sách đen gây ung thư, loại cuối nhiều người tiếc không vứt bỏ
--  Không phải điện thoại, màn hình máy tính mới là nguyên nhân gây ra cận thị
--  Nghệ An: Nữ tài xế đâm loạn xạ nhiều xe trên đường nghi nhầm chân ga
--  Han So Hee lộ diện giữa nghi vấn "dao kéo", nhưng ảnh thân mật với Park Seo Joon ở sự kiện mới là tâm điểm
--  “Đại gia” Hạt Mít flex căn hộ mới tậu: Một “mommy” khi mua nhà sẽ phải quan tâm đến điểm rất then chốt này
--  "Cô dâu hào môn" Phanh Lee khoe ảnh đi du lịch, netizen xuýt xoa vì mẹ hai con mà vẫn trẻ trung như thiếu nữ
--  Động đất ở Trung Quốc: Nạn nhân run rẩy kể lại phút tháo chạy dưới cái lạnh -14 độ, hàng ngàn người mất sạch nhà cửa sau vài phút
--  Ca sĩ Tuấn Khang (thành viên GMC) qua đời ở tuổi 43 do tai nạn
--  Khán giả đòi thay vai diễn của Huyền Lizzie
--  GMC - Nhóm nam có thành viên vừa qua đời: Hiện tượng âm nhạc những năm 2000, Ưng Đại Vệ - Hứa Vĩ Văn là tên tuổi nổi bật!
--  Gia đình gặp sự cố bất ngờ, phản ứng của bố mẹ khiến người xung quanh ngầm tán thưởng: Một gia đình tuyệt vời!
--  Độc quyền: Xác định thời gian Quang Hải làm lễ ăn hỏi với Chu Thanh Huyền
--  Giá iPhone 12 tiếp tục giảm sâu không thấy đáy, trở thành iPhone rẻ nhất của Apple
--  Ca sĩ Tuấn Khang (nhóm GMC) qua đời do té lầu, vợ ở Mỹ chưa kịp nhìn mặt chồng lần cuối
--  Thanh niên 16 tuổi mắc ung thư gan: Bác sĩ nhắc người trẻ cần làm một việc để phát hiện bệnh sớm
--  Lâu lắm mới thấy Lisa đi event Celine, fan ồ ạt kéo đến từ 4 tiếng trước để chờ idol
--  Vì sao mua cam canh, quýt bày bàn thờ nên kèm lá, đặc biệt trong dịp Tết?
--  Vợ sắp cưới của cầu thủ Quang Hải là ai?
--  Hoa hậu Ngân Anh đăng clip hé lộ quá trình sinh con, 1 chi tiết thể hiện quan hệ mẹ chồng - nàng dâu
--  Thấy bao cao su ở balo học sinh tiểu học, cô giáo cư xử khiến netizen cảm thán: Có chuyện như vậy sao?
--  Giá vàng đắt nhất lịch sử, sắp chạm 75 triệu đồng/lượng
--  Những ứng dụng giải trí không nên bỏ qua khi lên đời TV
--  Giá đồng hồ đính kim cương không hề đắt đỏ như bạn nghĩ
--  Mono Talk gây tiếng vang lớn khi ra mắt Bộ sưu tập mùa Lễ hội tại khách sạn 5 sao
--  Quán bánh xèo hot nhất Sài Gòn lúc này: Bé gái 11 tuổi đã làm "bếp trưởng", nghỉ học nuôi 2 em nhỏ mồ côi
--  Maroon 5 bất ngờ đăng tải hình ảnh chụp cùng bé Xệ Xệ lên story, còn tặng cháu của Double2T một món quà đặc biệt!
--  Chuyện tình Quang Hải và Chu Thanh Huyền: 3 năm yêu nhau đầy sóng gió và cái kết ngọt ngào
--  Vụ nữ sinh quỳ, khóc đến kiệt sức: Cô giáo bị kỷ luật Đảng
--  Dàn sao T1 khoe "hàng khủng" trên sóng livestream, check giá còn "sốc" hơn nữa
+-  Zorgen bij VVD en GroenLinks over busuitval in Stad
+-  Koalícia sa tesne vyhla veľkému faux pas: Z 1. septembra spravili pracovný deň, zabudli na zatvorené obchody!
+-  일산 두산위브더제니스 등 2곳 국토부 공동주택 우수관리단지 선정
+-  도 체납자 공탁금 압류 21억 징수
+-  10년 후 소아과 부족 예측 "걱정이 태산"
+-  수원시 등 9개 시·군 임야 토지거래 허가구역 재지정
+-  부실공사 예방 경기도 묘안 정부 정책에 대거 반영
+-  차세대융합기술연구원, ‘2023 벤처창업진흥 유공’ 장관상 수상
+-  수원형 공공재개발 공모 팔달·권선구 등 5곳 신청
+-  용인도시공사 평온의 숲 가족형 수목장 132기 추가 조성
+-  수원시 한파 취약계층 난방비 보탠다
+-  ‘국힘 영입 1호’ 이수정 수원정 출사표
+-  수변구역 규제 해제 관련 난개발 발언에 질타 쏟아져
+-  용인시 내년에 ‘인구 110만 명’ 벽 넘는다
+-  한우협회 연천군지부 사골곰탕 300팩 군에 나눔
+-  로보큐브테크 구리적십자에 기부금 2500만 원 전달
+-  농협 인천옹진군지부 등 지역 인재육성 장학금 기탁
+-  국민의힘 경기도당 주요 당직자 저소득층 주민에 연탄 나눔 봉사
+-  수원소방서 화재안전 대책 만전 연세수 요양병원서 컨설팅 마련
+-  인천 서구보건소 어르신 건강관리 성과
+-  포스코인터내셔널 노인복지 향상 ‘시동’
+-  김대남 국민의힘 용인갑 예비후보 제10회 독도 홍보대상 수상 ‘영예’
+-  40년 전 선배에게 받은 도움 후배들에게 갚아야죠
+-  KG 모빌리티 생산라인 유연성 확보… 평택공장 조립3라인 통합공사 준공
+-  삼성, IT 미래 씨앗 아낌없는 투자
+-  도 콘텐츠분야 창업 든든한 지원군
+-  벤처창업∼산학연 활성 도 경제 혁신성장 주역들
+-  고양창릉 자율주행~로봇 ‘스마트 빌딩’ 조성
+-  인천경찰청, 이선균 씨에게 먀약 공급한 의사 영장 재신청
+-  치과서 집중력 치료제 사용 수상 마약류 셀프 처방 50대 의사 입건
+-  마른 하늘에 대형 고드름 떨어질라 인천지역 곳곳 낙하사고 등 주의를
+-  행감서 공무원에 부적절 언행 서구의원 윤리특위 회부될까
+-  도로 얼면 어쩌려고… 꽉 막힌 빗물받이
+-  한파에 눈까지…
+-  연말 다가오는데 인천 이웃 나눔 열기는 싸늘
+-  인천경영포럼 시민과 함께하는 송년음악회
+-  인천 장애인콜택시 운행지 내일부터 수도권 전역 ‘콜’
+-  인천 남동구 주소정보시설 확충 행안부 장관 표창
+-  잘 지었나 볼까
+-  "인천서 사업하기 좋게끔 혁신 필요"
+-  인천 원도심 개발 휘슬 불었지만 아슬아슬
+-  푸드트럭 조리 중 폭발사고… 기다리던 아이 등 둘 화상
+-  대통령 처가 ‘양평 공흥지구 재판’ 증인신문 순서 놓고 공방
+-  폐기물 처리비용 받고 421t 불법 매립
+-  교육부, 내년 학교복합시설 40곳에 3600억 투입
+-  "CCTV 찍혀도 식별 못해" 쓰레기 무단 투기 대책 ‘골머리’
+-  제4회 올해의 기호자치의정대상 공모
+-  국힘 ‘서울메가 시티’ 고삐 풀린 광폭 행보
+-  송영길 구속 총선 ‘핫이슈’ 될까
+-  검단까지 서울행? 서구 주민 뿔났다
