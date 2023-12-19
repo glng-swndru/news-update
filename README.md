@@ -1,11 +1,11 @@
 # Latest News
--  Hedef tarımda pozitif değişim
--  Austrálska polícia zmarila únos: U obete potom našla 722 kg kokaínu
--  Rodičia z Kungälve takmer prišli o vianočný koncert svojich detí! Lístky skúpili fanúškovia francúzskeho Rytmusa
--  Politické dusno pred prezidentskými voľbami sa dá krájať: Odborník reaguje, môže Korčoka ohroziť Hamran?
--  Polícia obvinila 58-ročného Popradčana: Opitý nabúral s nákladným autom
--  Објавен списокот на 100 најдобри кујни во светот – на кое место е македонската
--  Sociedad Bolivariana del Magdalena tiene nuevos miembros
--  İşgalci İsrail'den Fransa hakkında açıklama
--  Antalya'da müstehcen içerik paylaşan şüpheli gözaltına alındı
--  İYİ Partililerden İmamoğlu'na rest: Değil oy selam bile vermeyeceğiz
+-  Berkay Yılmaz transferinde Beşiktaş'a tanıdık rakip
+-  Bakanlıktan fiyat etiketi kararı! 1 Ocak'ta başlıyor: Giriş kapısına asılacak
+-  Fatih Altaylı yazdı: Bir bankacı gözüyle Denizbank meselesi!
+-  Askeri helikopter düştü: 1 ölü
+-  MAS issues directive on remittances to China after reports of S$13 million frozen
+-  Monkey steals glove from M'sia traffic policeman, 'gives' it back after someone suggests 'asking nicely'
+-  Teochew Ah Ma, 86, stops operating Maxwell Food Centre porridge stall after 6 decades
+-  אבוקסיס לא בונה על מהפכה בינואר: "נשפר את השחקנים שכבר פה"
+-  HDP binasında teröristbaşının posterinin asılmasına ilişkin davada hapis cezası
+-  Divan Residence’in sloganı SOTCA ödülü ile tescillendi
