@@ -1,11 +1,11 @@
 # Latest News
--  בני ובראון בהרכב הפועל פתח תקוה, קוסטה בהתקפת בני ריינה
--  החשש אומת: טיבו קורטואה הודיע שלא ישתתף ביורו הקרוב
--  Filtran fotos de Eleazar Gómez muy cariñoso con un famoso influencer
--  Atención: La vía Cuenca, Girón, Pasaje está cerrada por un deslizamiento
--  Hovioikeus: Bensowin säätiön päiväkotihankkeessa Kauniaisissa tapahtui sittenkin törkeää lahjontaa
--  MİT'ten Mersin'de DEAŞ'a operasyon: Terör örgütünün 'kasası' yakalandı
--  Moody's'ten 'Türkiye' raporu: Sıkı parasal duruş sürerse kredi notu pozitife çevrilebiliir
--  Short Creepy Stories Dollhouse Key Location Guide
--  Soccerladuma | Mourinho Takes Big Swipe At Former Club
--  TrustPoint Selects SpiderOak’s Zero Trust Platform to Boost GNSS System Security
+-  Stadt Dortmund zahlt Eigentümern Geld zurück: Rückerstattung in Millionenhöhe nach Abwasser-Urteil
+-  רק בריאות: ידין גלמן אושפז פעם נוספת בבית החולים
+-  Villa i Gävle får nya ägare – prislappen: 3 195 000 kronor
+-  عدن.. حريق يتلهم محطة غاز بدار سعد
+-  ShiraTronics Announces Landmark Achievement: World's First Implant of its Innovative Chronic Migraine System
+-  Në pesë vjetët që kur u hap për trafikun, në urën Hong-Kong -Zhuhai – Makao kanë qarkulluar 7.5 milionë automjete dhe 36 milionë njerëz udhëtarë midis Guangdong-ut, Hong-Kongut dhe Makaos
+-  Τα μέτρα της Τροχαίας τις ημέρες των Χριστουγένννων, της Πρωτοχρονιάς και των Θεοφανείων
+-  Israël-Hamas : pour la première fois depuis le début de la guerre, des camions du secteur privé sont entrés dans Gaza
+-  Elections en Serbie : des « achats de voix » et « bourrages d'urnes » observés
+-  Tribune | Le 7 octobre ou la paix assassinée, par Emilie Frèche
