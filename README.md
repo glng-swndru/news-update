@@ -1,51 +1,11 @@
 # Latest News
--  자연, 역사, 혁신이 절묘한 조화를 이루는 중국 짜오좡시 샨팅구
--  Altitude Rooftop Bar and Lounge at Batam Marriott Hotel Harbour Bay Presents a Spectacular New Year Celebration with 24-Minute Fireworks
--  Kickoff | 'Performances are more important,' - Riveiro on Pirates' top 3 position
--  Colombia ante los dilemas de la transición energética
--  Új pályázatot írtak ki a Károli Gáspár Református Egyetem beruházására
--  Today's Top 3 News: Indonesia's Hajj Officer Quota Rises to 4,421
--  AS Jual Peralatan Komunikasi ke Taiwan, Cina Siapkan Sanksi
--  El estudiante de la UMU desaparecido en Francia llevaba su documentación, su móvil y su portátil
--  Prosecutor demands year in prison for Dusan Tadic robbery; Defendant blames twin brother
--  안준호 감독, 남자 농구대표팀 사령탑 최종 후보… 서동철 전 감독은 코치
--  장민호·이승현 "교통사고 경험 있다"('한블리')
--  Günümüz çocuklarının bilmediği geleneksel oyunlar okula geri dönüyor
--  เร่งช่วยคนไทยนับร้อยจากฝั่งปอยเปต หลัง 9 ชีวิตปีนรั้วหนีตาย
--  กสพท สั่งตัดข้อสอบ TPAT 1 ฉบับที่ 1 หลังพบคล้ายข้อสอบเก่า BMAT
--  สคอ.คาดอุบัติเหตุปีใหม่พุ่ง หลังเปิดผับถึงตี 4
--  ทลายโรงงานลูกชิ้นเถื่อนย่านปทุมฯ สถานที่สกปรก พบส่งขายตลาดนัด กทม.
--  มาแรง! ปี 67 "ธุรกิจสายมู- Soft Power" ทำเงินสะพัดกว่าแสนล้าน
--  คริสต์มาส! ประเดิมคิวแรกนักท่องเที่ยวลุยโถง 2,3 ถ้ำหลวง
--  Hamilton man brutally murdered by two cousins who teamed up and kicked him 'like a football'
--  В Новокузнецке возбудили дело из-за грубого обращения с постояльцами пансионата
--  Jonas Berglund stannar i Luleå
--  De la desaparición en Lagos de Moreno al horror en Salvatierra: los ataques recientes a jóvenes que sacuden a México
--  Mejores calificaciones y menos tiempo con el teléfono: una encuesta reveló los propósitos de niños y padres para 2024
--  Arkadaşlarıyla Evde Otururken Başından Vuruldu!
--  Wakil Lampung dan Jawa Timur jadi Pemenang Putra Putri Tenun Songket Indonesia 2023
--  Erdogan: Biden kopplade Sverige till F-16
--  Bakan açıkladı; 7 bin 158 personel alınacajk
--  Cumhurbaşkanı Erdoğan: Fikri iktidarımızı kuracağız
--  Pálmi Rafn staðfestir að tvö önnur félög sýndu áhuga
--  5 sons of physically-challenged mason top classes
--  Беларус билан чегарани мустаҳкамлаётган украинлар ва Бахмут атрофидаги вазият. Уруш суратлари.
--  Santa Cruz licita por 2,3 millones de euros la reparación de la escollera de Las Teresitas
--  Selçuklu Belediyesine 4 ödül birden
--  Konya'da FETÖ'nün güncel yapılanmasına operasyon: 14 gözaltı
--  SİGARANIN GÖLGESİNDE BÜYÜYEN ÇOCUKLAR
--  EKİN KAMBUR BÖCEĞİ (ZABRUS)
--  DEVLETİ GÖREBİLİR MİYİZ?
--  NEÜ’nün mutfağından uluslararası başarı
--  Психически больного россиянина с мечом задержали на улице в Таиланде
--  Metall- und Elektroindustrie hadert mit der Politik
--  Mann wird auf Rastplatz an A7 in Unterfranken schwer verletzt
--  Medizinische Probleme: Mann stirbt nach Unfall in Gemünden
--  Fünfjährige klemmt Finger im Badewannen-Abflussgitter ein
--  Wertheims Gasspeicher derzeit gut gefüllt
--  Marcelo Tinelli se emocionó al recibir un mensaje de Lionel Messi en vivo
--  Замглавы Нацполиции уволился после скандала о подозрениях в связях с Россией
--  Kenya reaps big as importers ditch Tanzanian Port for Mombasa Port over congestions and delays – RUTO’s plan is working
--  Wie die Bundesrepublik zu einem „Land der Träume“ werden könnte
--  Bank Mandiri Pamer Layanan Mandiri Contactless
--  After wild year, euro zone is top pick of world bond markets
+-  축구협회, 내년 예산 1천876억원 확정…올해 대비 '295억원↑'
+-  Hizbullah, Lübnan'dan İsrail'e ait noktaya saldırı düzenledi
+-  Türkiye, F-16'ların alternatifini kardeş ülkede buldu
+-  Davinson Sanchez: Tüm maçlara kazanmak için çıkıyoruz
+-  Fahiş fiyat artışına geçit verilmiyor! Bakanlıktan zincir marketlere eş zamanlı "fiyat ve etiket" denetimi
+-  Almanya'nın bazı bölgelerinde seçimler tekrar yapılacak
+-  Adalet Bakanı Tunç: Artık milli iradenin yanında duran bir yargı sistemimiz var
+-  TİKA'nın yardım eli Mozambik'e kadar uzandı
+-  EastEnders cancelled tonight as BBC soap replaced in fresh schedule shake-up
+-  Microsoft'un Yeni Özelliği Sosyal Medyada Viral Oldu: Kendinizi Yapay Zekâ ile Oyuncağa Dönüştürebilirsiniz
