@@ -1,11 +1,11 @@
 # Latest News
--  El MIR 2024 confirma su tribunal calificador con 'plaza' para Cardiología
--  Confianza y transparencia para impulsar la comunicación sobre genéricos
--  Украинские СМИ сообщили о взрывах в Черноморске и Одессе
--  Un prototipo di AirPower dimostra perché Apple ha abbandonato il progetto
--  للتحدث لموظف التأمينات.. هذه مواعيد عمل مركز الاتصال على الرقم المجاني
--  عاجل.. بدءا من اليوم وبدون خبرة.. وظائف شاغرة بوزارة الحرس الوطني
--  خسارة 20 مليار دولار.. سوق مشاريع الكويت يستقبل صدمة اقتصادية
--  الخطوط الحديدية تعلن عن وظائف شاغرة في عدة تخصصات
--  JO 2024 : à Dugny, le Terrain des Essences entame sa mue avant les épreuves
--  قلق في برشلونة منذ إصابة فاتي مع برايتون
+-  Mercato del Petrolio in Bilico: Analisi Tecnica e Prospettive Future
+-  Votações do 1º prêmio destaque cultural de Sinop terminam amanhã
+-  F1 : Alpine annonce un départ !
+-  Ficova koalícia to schytala od opozície: Prekáža im tento zákon, náklad prišiel aj od exministra, vraj sú to šťuky!
+-  Úrad verejného zdravotníctva upozorňuje na nebezpečné kozmetické výrobky: Sú medzi nimi aj obľúbené sprcháče
+-  Incident v Banskobystrickom kraji: Študenti súkromnej školy šikanovali mladšieho! Okamžitý vyhadzov, vec rieši polícia
+-  Sarah Engels: Schmerzen nach London-Trip – „Mir ist schwindelig“
+-  هيئة المراجعين
+-  Volvo-konkurrenten på väg mot ett nytt all time high
+-  مجلس المديرين
