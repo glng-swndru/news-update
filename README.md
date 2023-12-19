@@ -1,11 +1,51 @@
 # Latest News
--  Brighton And West Ham Secure Europa League Victories To Head Straight Into The Last 16
--  Vice Names Former Miramax CEO Michael Lang As Executive Chairman
--  'The Second Best Hospital In The Galaxy' Gets Premiere Date, Photos
--  'The Second Best Hospital In The Galaxy' Gets Premiere Date, Photos
--  Vice Names Former Miramax CEO Michael Lang As Executive Chairman
--  Appeals court says Mark Meadows can't move Georgia election case charges to federal court
--  Colorado releases first 5 wolves in reintroduction plan approved by voters to chagrin of ranchers
--  Texas governor signs bill that lets police arrest migrants who enter the US illegally
--  Larry Kramer, outgoing CEO of mega climate funder the Hewlett Foundation, looks back on his tenure
--  POLL ALERT: Purdue back at No. 1 in the AP Top 25 men's basketball poll; Oklahoma into top 10, Memphis and Ole Miss join
+-  J.P. Morgan predicts marginal financial impact from Apple Watch ban
+-  Revised law to boost parental leave benefits to maximum $29,963
+-  برلماني: فوز الرئيس السيسي تجديد لتمسك الشعب المصري بطريق 30 يونيو
+-  European Union Launches In-Depth Investigation into Elon Musk's X Under Digital Services Act
+-  강등 시련 극복한 신기웅, PBA 드림투어 4차 우승…한 시즌만에 1부 복귀 '눈앞'
+-  “경기가 많아도 너무 많다”... 뉴캐슬, 결국 크리스마스 파티 취소
+-  "거제사업장장에서 조선소장으로" 한화오션, 이길섭 부사장 임명
+-  [글로벌] 색각 이상 보완 콘택트렌즈 나온다…3D프린트로 개인 맞춤 제작
+-  모두의연구소-한국기술교육대, 직업훈련 혁신 위한 협력 논의
+-  윈드리버, VDC 리서치 보고서 선정 ‘엣지 OS 플랫폼’ 시장 1위 기업
+-  LG전자, LG디스플레이에 5000억원 수혈 나선다
+-  [속보]法 “윤석열 검찰총장 2개월 정직 처분 취소”…1심 뒤집혔다
+-  “다 잃었고, 다 내려놨다” 울먹이며 선처 호소한 정경심
+-  유상범 “한동훈, 국힘 비판적인 2030 여성에도 인기 높아”
+-  Bauchi lawmaker introduces subsidised shuttle buses for constituents
+-  السفير الرويلي يؤكد الدور المهم للمملكة في تعزيز حضور اللغة العربية عالميًا
+-  5878 مستفيدًا من خدمات مركز مكافحة الأمراض الوبائية في حجة
+-  Di IPB Anies Baswedan Klaim Satu-satunya Capres yang Punya Visi Agromaritm
+-  В Нью-Йорке неизвестный пытался поджечь генконсульство Греции
+-  DEEP Desak Bawaslu dan KPU Segera Usut Temuan PPATK soal Dana Kampanye
+-  Bailey Zappe talks second-half struggles, Bill Belichick’s future and more on WEEI
+-  경기도귀농귀촌지원센터, 베이비부머 농촌 한 달 체험 마무리
+-  कांग्रेस गण्डकी प्रदेश सम्मेलन आज
+-  Localizan cuerpo sin vida en el Chuvíscar
+-  Motor Tanpa Aki Tetap Dipakai Bepergian, Apa Efeknya?
+-  경기도 특사경, 폐수처리장 폐기물 불법매립‧보관 업체 등 무더기 적발
+-  تفسير حلم السقوط من مكان مرتفع.. «فوبيا ولا تورط في مشكلة؟»
+-  ‘바이든-날리면’ 재판 음성 감정, 결론은 감정 불가?
+-  Rahmat Allah SWT Begitu Luas, Baca Doa Ini Agar Mendapatkannya
+-  KPK Bawa Tiga Pejabat Pemprov Maluku Utara ke Jakarta
+-  Tanggapan Hamas Soal Terowongan: Misi Kami Sudah Tercapai, Kalian Terlambat
+-  Christopher Nolan On The State Of Movie Business & Says ‘Oppenheimer’ Is “The Most Succesful Film I’ve Ever Made”
+-  Friend in icy times of need: cold water scientist Giesbrecht retires from U of M
+-  मण्डलामा ‘पगला घोडा’
+-  “아들 사채업자에 납치…돈 보내라” 보이스피싱 감지한 제주은행 직원
+-  제주 문제 해결 디지터역량 강화 강소기업 육성 성과
+-  Accès aux soins et déserts médicaux, un texte sensible adopté au Parlement
+-  Loi Immigration : Borne s'engage à réformer l'Aide médicale d'État « en début d'année 2024 »
+-  Звезда «Эйфории» снялась в нижнем белье для журнала
+-  The Rolling Stones rocker Keith Richards celebrates both his 80th birthday and 40th wedding anniversary to wife Patti Hansen as his famous loved ones send tributes
+-  Tragic end to search for missing boatie as body found in water at Haywards Beach, Bermagui
+-  ‘쿠키런: 킹덤’, DDP서 크리스마스 테마 영상 콘텐츠 선봬
+-  신한카드, 아름인 도서관 통해 13년간 150억원 사회 환원
+-  LG헬로비전, 자립준비청년에 통신비 지원
+-  SKT, 양자내성암호로 5G망 보안성 높인다
+-  KT, 지능형 연구개발망에 1Tbps 백본망 구축
+-  KT 지니TV서 크리스마스·연말 볼거리 이벤트
+-  정보기술 ISC, 가톨릭관동대학교와 SQF 기반 직무역량 중심의 교육과정 만든다
+-  오라클, 애저 미국 동부 리전서 ‘오라클 DB@애저’ 상용화
+-  네이버 최수연, 직원들과 SME 연계 소셜 임팩트 활동 성과 공유
