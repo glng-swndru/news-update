@@ -1,51 +1,11 @@
 # Latest News
--  В Твери 104-летие отмечает ветеран войны, труженица тыла Екатерина Демина
--  Лучшим медикам Подмосковья вручат денежные премии
--  Костромской креатив: ушлые сограждане предлагают платные услуги по уборке снега во дворах
--  Михаил Мишустин назвал главные цели сотрудничества России и Китая
--  "Spider-Man"-utvecklaren hackad – enorm läcka
--  Tesla and Mercedes-Benz to compensate for loss of German EV subsidies
--  Semiconductor ETF Michael Burry shorted hits all-time high
--  Медиите в Гърция и Турция забъркаха каша с играч на Левски
--  ŁKS Łódź zaskoczy transferem? Z drużyną trenuje obrońca z doświadczeniem z LaLigi, Serie A i Ligue 1!
--  Eski Gelinini Darbeden Çift Tutuklandı
--  マルチ対応・学校脱出ホラー『迷宮校舎』2月22日配信へ。真っ暗な校舎で非常口を目指す、子どもたちの脱出劇
--  Hostes Öğrencilere Fazla Sandviç Verdi Sosyal Medya Karıştı: THY Açıklama Yaptı!
--  Jurgen Klopp explains why he is remaining 'completely calm' about Liverpool striker Darwin Nunez
--  TRAGEDIJA KOD MALOG POŽAREVCA: U saobraćajnoj nesreći jedna osoba POGINULA, troje teško povređeno
--  Фанаты нашли карту GTA 6 на постере игры
--  Irmã de Céline Dion atualiza estado de saúde da cantora
--  Soccerladuma | Tau's Al Ahly Secure R37m Minimum After Club World Cup Defeat
--  Camilla Läckberg stöttas av följarna efter sin senaste bild
--  General Interview Tips For PSC Jobs 2023
--  Four party leaders and deputies to start new round of Cabinet formation talks
--  When was the last Christmas Eve Premier League game and why has it been reintroduced for Wolves vs Chelsea?
--  शरीर में जमा चर्बी को पिघलाएं,आहार में शामिल करें ‘ये’ रोटियां!
--  ڈالر کی کیا مجال! ہمارے دور میں اپنی جگہ سے ہلا ہو، نواز شریف
--  Песков признал наличие проблем на АЭС в Белоруссии в ходе пуско-наладочных работ
--  Ученые из SETI впервые смогли поговорить с китами и теперь готовы к контакту с инопланетянами
--  La France et la Suède vont coopérer dans l'énergie nucléaire
--  Shane MacGowan’s widow recalls living on “edge of some kind of actual destruction” with Pogues icon
--  Best of cartoons, December 20, 2023
--  Гимнастка Мельникова призналась, что ей обидно из-за разницы в зарплатах с футболистами
--  Wirtschaftsministerium legt Strategie für Stromspeicher vor
--  "Основы безопасности и защиты Родины" и "Труд" станут обязательными школьными дисциплинами
--  Mübadele ne demek?
--  Россия предложила Китаю помощь с ликвидацией последствий землетрясения
--  "Ako Amerika donese pogrešnu odluku...": Kim Džong Un najavljuje OFANZIVNE AKCIJE nakon testiranja balističke rakete
--  Israel abatió a alto responsable financiero de Hamás en el sur de Gaza
--  Sefe und Equinor schließen langfristigen Gasliefervertrag
--  Ağır qəza keçirən PFL əməkdaşlarından xəbər var: İkisi...
--  Nach Förder-Aus: VW übernimmt E-Auto-Bonus vorerst selbst - VW-Aktie dennoch tiefer
--  Губерниев назвал биатлон спортом номер один в России
--  Pat Cummins: 3 reasons why Australia skipper is not worth Rs 20.50 crore
--  Göğüs kasında kopuk oluşan Sergio Oliveira ameliyat oldu
--  Цифровой рубль интегрируют в налоговую систему
--  Roman Giertych chce uchylenia immunitetu Zbigniewa Ziobry. "Idę po Ziobrę"
--  Pfister zersägt Motion von Rutz – SVP-Asyl-Session innert Minuten vorbei
--  In gara dopo il carcere, il ritorno di Angel Cabrera
--  Путин подписал закон, ограничивающий рост ставки по ипотеке при отмене страховки
--  В Новосибирской области появятся наставники для работы с трудными подростками
--  11-vuotias sotakoira Ira jää eläkkeelle
--  Meral Akşener'den Operasyon Çıkışı! Bu Bir Savaş İlanıdır
--  ЕБВР одобри увеличение на своя капитал с цел възстановяване на Украйна след войната
+-  Corona-Zahlen im Landkreis Zwickau aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Grondeigenaren locaties windmolens in Molenlanden komen op uitnodiging van windmolenbouwer Pure Energie samen
+-  Corona-Zahlen im Vogtlandkreis aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Landkreis Mittelsachsen aktuell: Aktuelle Daten zum Coronavirus
+-  Скрипник відреагував на чутки про розірвання контракту з Ворсклою
+-  Corona-Zahlen im Erzgebirgskreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen in Chemnitz aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Duisburg: Urteil gegen John-Reed-Attentäter gefallen – Worte des Verteidigers sprechen Bände
+-  Corona-Zahlen im Landkreis Ludwigslust-Parchim aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Vorpommern-Greifswald aktuell: Aktuelle Daten zum Coronavirus
