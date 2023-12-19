@@ -1,51 +1,11 @@
 # Latest News
--  Académie de Gestion Financière : Expertise et Responsabilité pour l’Afrique
--  החשד: בעל חברת משקאות גדולה קשור לארגון פשע בצפון
--  Kickoff | Dzvukamanja surprise absence explained
--  Bavarian derby draw: Nürnberg 1 - 1 Bayern Munich in the Frauen-Bundesliga
--  Крумовград изчисти дълг към бивш играч, нямало да има проблеми с новите през зимата - Труд
--  Teemu Grönros valittiin Lounais-Suomen vuoden poliisiksi – Jyskeläisille tuttu ringettevalmentaja
--  Azerbaijan allocates funds for road repairs in Zabrat, Sabunchu, Ramana settlements - decree
--  İsrail'den Gazze'ye zulüm! 53 bin ton bomba kullanıldı
--  NEET Success Story: 54-Year-Old Engineer Left High Paying Job To Pursue MBBS, Cracked NEET But With A Twist
--  Japan hands over turmeric processing center in Pyuthan
--  Google to pay $700M in antitrust settlement reached with states before recent Play Store trial loss
--  Locals in difficulty as Phalgunanda Road remains in limbo for three decades
--  Putin sieht nun „Problem“ mit Finnland – Experte gibt Helsinki klaren Rat
--  Somali liderinin oğlunun sebep olduğu ölüme ilişkin yeni rapor düzenlenecek
--  Ugg מקוריות וסמבה בהנחה? אתר ההנעלה "קינג שוז" מותקף בתלונות על הונאה וזיופים
--  Suomen Pankilta julki karut luvut – bkt pakkasella tänä ja ensi vuonna
--  검사→장관→與비대위원장?…한동훈 ‘여의도 등판’ 초읽기
--  갈 길 먼 본계약…하림, HMM 품을 수 있을까
--  경영권 분쟁, 굳히기? 조양래·효성첨단소재, 지분 1.3% 추가 매입
--  Soccerladuma | Sundowns In Danger Of Repeating Worst CAFCL Group Record
--  Eurovision boycott threatened over Israel involvement
--  I'm married to a man 13 years younger than me - people often mistake me for his mother
--  Yargı dizisindeki o sahne Aile ve Sosyal Hizmetler Bakanlığı'nı harekete geçirdi
--  Türkiye endüstriyel tasarım başvurularında Çin'in ardından ikinci sırada
--  Very heavy traffic expected at land checkpoints during Christmas & New Year's Day long weekends: ICA
--  News anchor Steve Lai leaves CNA after nearly 12 years, colleagues wish him the best
--  ‘부실시공’ 아파트의 반전...올해 청약 1위 등극한 곳
--  Retards, quais bondés, métros surchargés: la galère des usagers après l'accident grave sur le RER A
--  Is it safe to travel to Iceland as the volcano erupts? Latest advice
--  Max Verstappen Ferrarille? Tallipomolta hulvaton kommentti
--  PSG on nappaa brassin Liverpoolin nenän edestä
--  Most of Iran’s petrol stations hit by cyberattack
--  춘천시나눔봉사단 4·5대 단장 이취임식 개최
--  Industrie automobile : entrée du FNI dans le capital de l’usine FIAT Algérie
--  В Донецке кассетный снаряд ВСУ упал во двор больницы
--  Blackrock подаде актуализирано заявление за спот биткойн борсово търгуван фонд
--  UPC uvádza novinku – „Rýchla SIM cez UPC“
--  “เจริญศักดิ์ วงษ์กรณ์” เปิดใจหลังคัมแบ็คทีมชาติไทย
--  300+ 쌓인 카톡 대화 막막?…1분 만에 읽는 법 있다
--  Malmö FF-ikonen Bosse Larsson död – blev 79 år
--  How to Find the Best Hearing Test in London
--  Pat Cummins breaks IPL record as Sunrisers Hyderabad pay $3.66MILLION for Australia captain while India's World Cup final tormentor Travis Head is snapped up
--  Automobilski gigant prodaje fabriku u Rusiji
--  Мишустин встретился с премьером Госсовета КНР Ли Цяном
--  Российским компаниям станет сложнее банкротиться
--  高齡化威力！投資大戶看台灣剛需，生技、醫療、觀光都是長期成長標的
--  iPhone 12, üç aydır nehirde batık halde bulundu: İşte son durumu
--  Giochi PlayStation su Steam: trapelano i dati di vendita e riservano delle sorprese
--  ЕС и САЩ удължават примирието по митата върху стоманата и алуминия
--  В Азербайджане задержана группа лиц с фальшивыми долларами США
+-  A Kínai Tudományos Akadémia külföldi tagjának választották Stépán Gábort, a BME professzorát
+-  بالصورة- ملكة جمال لبنان 1984 بإطلالة ميلادية مع ابنتها.. جمالهما يخطف الأنظار
+-  إسماعيل تمر يرزق بطفله الثاني.. وهذا الإسم الذي أطلقه عليه
+-  دعـ ارة سرية تطال أسماء معروفة.."صور الفتيات التي رأيتها صدمتني"
+-  أصالة تحتفل بعيد ميلاد شقيقها أنس.. ووسامته حديث الجمهور
+-  أليك بالدوين يغضب الجمهور.. هكذا كشف مناهضته لفلسـ طين
+-  A pesar de la crisis, una nueva bodega abrió sus puertas en Mendoza
+-  ה-1:6 יושב בראש של מכבי תל אביב? רובי קין: "משחק שונה לגמרי"
+-  המשימה של הכוח הבינלאומי בים האדום מעורפלת, וספק אם היא תרתיע את החות'ים
+-  שמועות על שגעון: מה קרה בפודקאסט החדש של אמנדה ביינס?
