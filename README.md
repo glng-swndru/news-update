@@ -1,51 +1,51 @@
 # Latest News
--  Urteil im Prozess um versuchten Totschlag am Dittrichplatz in Plauen: „Ihnen war egal, ob das Opfer stirbt“
--  USA gründen Allianz zum Schutz von Schiffen – Esken skeptisch
--  Barkas-Talente schnuppern in neue Spielform hinein
--  Junger Rennpilot will auf kleiner Maschine nach vorn
--  Schweinsteiger möchte irgendwann für den DFB arbeiten
--  Helfer in der Not: Klingenthal rettet die Vierschanzentournee
--  Polizistin ins Gesicht geschlagen: Gericht kippt Gefängnisstrafe für Zwickauer Stadtrat
--  Frontalzusammenstoß auf B 101 in Schwarzenberg – drei Verletzte
--  Freiberg: Personeller Aderlass am Mittelsächsischen Theater
--  GDL-Mitglieder stimmen für unbefristete Streiks bei der Bahn
--  Gastronomischer Zuwachs in Chemnitz: Im alten Tillmann’s lockt bald internationale Vielfalt
--  Sportministerin: Hansa spielt nach Krawallen auf Bewährung
--  Schlimmer Unfall in Langenweißbach: Fünf Verletzte
--  Glasfaserfirma zieht sich aus Mittelsachsen zurück - Was bedeutet das für Penig und Lunzenau?
--  Río Negro anunció que pagará el aguinaldo en dos cuotas
--  صدمة داخل المخابرات الأمريكية .. ماذا حدث في خزانتها السرية؟
--  الصحة العالمية تصنف JN.1 متحورًا جديدًا منفصلًا
--  عاجل.. خطأ يقع فيه البعض في حساب المواطن يؤثر على الاستحقاق.. تعرف عليه
--  Faeser schließt Abkommen mit Georgien
--  Live KNVB-beker | Amateurs Quick Boys komen op voorsprong tegen De Graafschap
--  „Ha a kutya nincs, akkor mindketten meghalunk” - kutyája mentette meg tűzhaláltól az idős nemespátrói férfit – videó
--  Manchester City não inscreve Haaland, De Bruyne e Doku, e trio fica de fora de possível final contra o Fluminense
--  Incendie au dépôt d’hydrocarbures de Kaloum : le message du Dr Koureissy Condé, Président du parti ARENA
--  Urawa Reds x Manchester City AO VIVO: siga agora tudo da semifinal do Mundial de Clubes
--  Kille slogs medvetslös – fick blödningar i hjärnan
--  GPT and other #ai models can’t analyze an SEC filing, researchers find
--  Tikri burtai. Ekspertus išgąsdino „raganų buteliai“ (Foto)
--  Rusiška „Fiat Multipla“. Pristatytas šlykščiausias rusiškas elektromobilis (Foto)
--  Ukraina zmobilizuje dodatkowe 500 tys. żołnierzy? Zełenski: Potrzebuję konkretów
--  Ukraina zmobilizuje dodatkowe 500 tys. żołnierzy? Zełenski: Potrzebuję konkretów
--  "Je suis en tort, mais je l’aime": un fils en prison pour avoir bousculé et menacé de mort sa propre mère
--  BVB will gegen Mainz einen versöhnlichen Jahresabschluss: Bundesliga im Live-Ticker
--  [ŽT] Kuriozinė situacija. Valtis su „husiais“ sukėlė paniką (Foto)
--  Former royal butler Paul Burrell reveals Dean Sullivan's and Princess Diana were friends and he 'made her laugh' during calls to the palace as he attends Brookside star's Liverpool funeral
--  Congress State Unit Requests Rahul Gandhi, Priyanka Gandhi To Contest Lok Sabha Elections From Uttar Pradesh
--  Richard Madeley admits to blazing rows with wife of 37 years Judy Finnigan as he details hiding their personal troubles live on air
--  StaffMe et Monoprix condamnés aux prud’hommes pour travail dissimulé
--  He only gets a cameo in The Crown but his real-life role in the royal family spawned a thousand headlines ...so do you know who this dashing former cavalry officer is?
--  Business News | InfraBlaze 2023 Ignites Insights: Navigating India's Vision 2030, Ethical Policies, and Digital Transformation in Infrastructure Management
--  7 research-backed tips to help you live longer
--  Gáza a nemzetközi közösség erkölcsi kudarca is
--  Nuggets’ DeAndre Jordan takes vegan diet to London for Great American Baking Show’s celebrity holiday special
--  India News | Rajasthan CM's Car Driven into Roadside Drain on Way to Temple
--  Nationwide weather alert issued for 25 Provinces in the Dominican Republic
--  رئيس ليبيريا يطالب بإلغاء تصويت بلاده ضد وقف إطلاق النار في غزة بالأمم المتحدة
--  10 Most Anticipated Upcoming TV Seasons Revealed, Based on Google Searches!
--  City to Country: Extended €475k Dublin home or scenery at spacious Kerry escape
--  Rinku Singh Scalps His Maiden International Wicket, Achieves Feat By Dismissing Rassie van der Dussen During IND vs 2nd ODI 2023
--  ‘Dunki’: Shah Rukh delivers a cinematic masterpiece ahead of Christmas
--  Πανσερραϊκός – ΑΕΚ: Εκτός Αραούχο και Πόνσε για την Ένωση, ελπίδες για Σιντιμπέ
+-  Military and veterans to get free national parks admission
+-  Omar Apollo, Clairo, 070 Shake and More to Play Benefit Show for Gaza and Sudan in New Jersey
+-  «Errenteria es un municipio vivo y eso tiene que ver mucho con el deporte»
+-  El concurso 'Lasarte-Oria en tu objetivo' ya tiene a sus ganadores de esta edición
+-  Acordes de nieve desde el mar
+-  La trigésima edición del Antzerki Garaia levantará el telón con el año nuevo
+-  Stiff-Person-Syndrom: Céline Dion hat die Kontrolle über ihre Muskeln verloren
+-  Elizondo decide en Batzarre retirar las piedras y luces del suelo del puente de Muniartea
+-  Preti velika opasnost: "Isparenja bi mogla da stignu do večeras ili do jutra"
+-  Marine Le Pen : le baiser qui tue
+-  Израелският президент предлага спиране на огъня в Газа - Труд
+-  BlackRock Alters Coinbase's Role In Proposed Crypto Investment Vehicle
+-  Los refuerzos de Cruz Azul con la llegada de Martín Anselmi
+-  Everyone can see the ducks – but you have 20/20 vision if you can see the sneaky chick in the illusion in just 7 seconds
+-  Everyone can see the ducks – but you have 20/20 vision if you can see the sneaky chick in the illusion in just 7 seconds
+-  Herido grave el conductor de un camión tras caer de un puente en Peraleda del Zaucejo
+-  Una mujer recuperó el olfato tres años después de recuperarse del COVID-19 y su reacción se hizo viral
+-  Novità e cambiamenti per Google Podcast, YouTube TV e Chrome sui tablet
+-  Thibaut Courtois definitivno propušta Europsko prvenstvo
+-  Trojka podržala Schmidta: Izborni proces se mora učiniti poštenijim
+-  German court convicts man inspired by Islamic State group of two knife attacks
+-  El sueldo que podría tener Fernando Gago en Chivas
+-  Novi protest u Beogradu: Traži se poništavanje izbora
+-  Upravljanje građevinskim projektima sve zahtjevnije zbog regulative i stalnih promjena u hodu
+-  What Is Nougat And How Is It Made?
+-  Израелската армија уништи едно од најважните археолошки локалитети во Газа
+-  Palestinians in Ireland beg Government to do more to help trapped loved ones leave Gaza
+-  Electrocatalytic CO₂ conversion advancing toward large-scale deployment
+-  Winnaar bouwplan Park Maashorst trekt zich terug, 4,5 hectare opnieuw beschikbaar
+-  Eis os piores jogos de 2023
+-  Selenskyj sieht "komplexen Plan": Ukrainische Armee will 450.000 Soldaten mobilisieren
+-  Danny Cipriani's ex wife says she 'knew split was coming' amid cosy snaps with Strictly's Jowita
+-  Şırnak'ta oynanan amatör maçta hakemlere saldırı: Jandarma müdahale etti
+-  İYİ Parti Kurucusu Mesut Özarslan istifa etti: Akşener'in talimatları haricinde görüşme yapmadım
+-  Galatasaraylı taraftarlarını üzen iddia: Icardi Real Madrid yolunda
+-  Na adresu Radiotelevizije Srbije stigla dojava o bombi
+-  Qué hacer si te detienen con la ley SB4 que se acaba de firmar en Texas
+-  Erdogan čestitao Vučiću izbornu pobjedu
+-  North Carolina voting rights lawsuit targets GOP's alleged dilution through redistricting
+-  Ηράκλειο: Εξιχνιάστηκαν 27 υποθέσεις κλοπών και διαρρήξεων – Δύο 13χρονοι μεταξύ των συλληφθέντων
+-  بعد فشل مفاوضات سد النهضة.. ما خطوة مصر المقبلة؟
+-  رسوم الفحص والجدية.. ما مصير طلبات التصالح السابقة التي لم يتم البت فيها؟
+-  رئيس الوزراء يلتقي رؤساء اللجان النوعية بالبرلمان.. ماذا حدث؟
+-  إعلام عبري: إسرائيل مستعدة لتقديم تنازلات لإبرام صفقة أسرى مع حماس
+-  هل تشعر بالدوخة أثناء الوقوف فجأة؟.. اعرف السر
+-  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
+-  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
+-  Man Utd legend Dimitar Berbatov names shock Arsenal star as his successor as fans ‘laugh and cry at the same time’
+-  Takmer 47 percent obyvateľov Slovenska je nespokojných s doterajšími krokmi Ficovej vlády
+-  News24 | Trouble came looking for them: Pup on the mend after chasing down criminals in Khayelitsha
