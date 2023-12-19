@@ -1,11 +1,11 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan hediye etti: Macaristan Başbakanı Orban'dan Togg ile dikkat çeken paylaşım
--  د. سارة ناصر الدين/كلية الصيدلة في جامعة عمان العربية تمثل الأردن كمخترع عالمي
--  واشنطن تندد بهجمات الحوثيين على السفن التجارية
--  Wydarzenia na Morzu Czerwonym podbijają notowania ropy
--  الدولار بـ 1500؟
--  Dossena a La Stampa elogia il Torino: "I ragazzi di Juric in lotta per l’Europa"
--  «اقعيم» يطلع على أوضاع الأمن في الجبل الأخضر
--  کراچی،ڈاکوؤں کا ڈاکٹر کے گھر پردھاوا،اہلخانہ کو یرغمال بنا کر لوٹ مار
--  Россиян предупредили о риске исчезновения дешевого вина
--  Cerca de 300 mil pessoas em fuga após combates em cidade refúgio no Sudão
+-  Bank Of Japan Maintains Ultra-Easy Monetary Policy Amid High Uncertainties
+-  Devyani International Declares To Enter Thailand QSR Market, Shares Up 6%
+-  Çalışan emeklilere 5 bin lira düzenlemesi yılbaşından önce yasalaşacak
+-  Mantar zehirlenmesi organ yetmezliğine yol açabiliyor!
+-  '65 yaş üstü, toplu ulaşımı kimliğiyle ücretsiz kullanabilir'
+-  Konya'da iş yerinin bodrumunda çıkan yangın büyümeden söndürüldü
+-  Boş sanılan tabancayla şakalaşırken arkadaşını vurup öldürdü
+-  İstenmeyen siteler ve online oyunlarda oyuncular küçük tehlike büyük
+-  Второй человек в государстве. Рустаму Эмомали cегодня 36
+-  Тоҷикистон дар як моҳ ба Афғонистон қариб ба 2 млн доллар барқ фурӯхт
