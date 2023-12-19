@@ -1,11 +1,11 @@
 # Latest News
--  Sussanne Khan drops special birthday wish for boyfriend Arslan Goni
--  Bigg Boss 17: Munawar Faruqui makes amends with Ayesha Khan after cheating claim
--  Tientallen kramen en attracties bij grote winterfair in Nieuw-Lekkerland
--  총선 앞두고 모습 드러낸 2024년 ‘폴리널리스트’
--  Gaziantep'te çalınan motosiklet 22 yıl sonra emniyet tarafından bulundu
--  Beşiktaş, Tayyip Talha Sanuç'u bekliyor
--  ABD, Husilerin Kızıldeniz saldırılarını önlemek için uluslararası çok uluslu bir misyon başlattı
--  Pakistan ile ABD kritik görüşme
--  Gazze'de İsrail saldırılarında 97 gazeteci hayatını kaybetti
--  Bitlis'te PKK operasyonu
+-  Sold Players in IPL Auction 2024 Live Updates: खिलाड़ियों का ऑक्शन शुरू
+-  G. Ajitesh IPL Auction 2024 Live Updates: जी अजितेश आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
+-  Matt Henry IPL Auction 2024 Live Updates: मैट हेनरी आईपीएल 2024 में कैप्ड, जानें नीलामी में क्या हुआ?
+-  Avanish Rao Aravelly IPL Auction 2024 Live Updates: अवनीश राव अरावली आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
+-  وصول توأم باندا عملاقة إلى الصين
+-  %71 من سكان غزة يعانون من مستويات حادة في الجوع
+-  الصحة العالمية: الفيروس التاجي المستجد مستمر بالتحور
+-  SDT ne smije na Brana i Daku: Prošlo mjesec dana otkako su ih Amerikanci stavili na crnu listu
+-  「서울의 봄」이 환기하는 절망과 희망의 현실
+-  암울한 축소경제
