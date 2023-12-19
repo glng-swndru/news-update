@@ -1,51 +1,51 @@
 # Latest News
--  충남 도민 참여 숲 누적 기부금 20억 ‘훌쩍’
--  매달 15일 노인들 찾아가는 미용사 숙희씨
--  충북교육청 수요자 중심 ‘아침 간편식’ 운영 윤곽
--  열악한 생활여건·근로소득… 청주시 인구 유인 걸림돌
--  “청주국제공항 민간전용 활주로 신설 촉구”
--  학교폭력 안일한 대응, 피해 학생의 고통 키운다
--  지역 대학 생존문제… 존재의 이유를 찾아라
--  코로나19 잠잠해지자 음주 흡연 비만 경고음
--  희망나눔으로 우리지역 온도 높여요
--  충청권 시민들 건강관리 잘했다
--  첨단 전략산업 중심지 떠오른 청주… 대한민국 미래 이끈다
--  尹 대통령, 국가정보원장·외교부장관 후보 지명
--  국민의힘 ‘한동훈 카드’ 두고 고심… 충청 정치권도 의견 분분
--  세종전통시장에 ‘낮도깨비’ 떴다
--  임차권 등기하는 3가지 이유
--  ‘벽 허물기’ 나선 대전권 대학들… 지역사회 교류 활발
--  충청권 흡연율·음주율 증가세… 만성질환 관리는 양호
--  정용래 유성구청장, 민주 유성을 지역위원장 직무대행 돌입
--  중소기업 경영과 디지털 마인드
--  충남 탄소중립 민간·산업계도 함께 실천
--  [4·10 총선 누가 뛰나-아산을] 강훈식 3선 도전… 국힘 후보 오리무중
--  김지철 교육감, 충남학생인권조례 재의 절차 요구
--  그림자밟기
--  충남 신규 댐 후보지 ‘미포함’… 물 부족 해결 의지 있나
--  충남 12개월 연속 두자릿 수 수출감소 드디어 탈출
--  Pięcioro polskich wspinaczy powalczy w przyszłym roku o wyjazd na igrzyska olimpijskie w Paryżu
--  ส.ฟุตบอลไทย เปิดชื่อผู้มีสิทธิ์ลงเลือกตั้ง โดนตัดสิทธิ์ เอกสารสมัครไม่ครบ
--  Taiwan presidential candidate Ko Wen-je claims 70% of voters oppose Kuomintang
--  الإمارات تستقبل الدفعة السادسة من الأطفال الفلسطينيين الجرحى ومرضى السرطان
--  محمد بن راشد يبارك لنيفين الخشاب فوزها بجائزة نوابغ العرب عن فرع العلوم الطبيعية
--  “الجوازات” تصدر 17889 قرارًا إداريًا بحق مخالفين
--  DSV-aktien stiger - derfor sker det
--  DSV-aktien stiger - derfor sker det
--  Best Christmas puddings under £14 in 2023 plus free from, vegan and veggie treats to savour this festive season
--  جرس تنبيه
--  بيان الفريق ربيع
--  ثقب مظلم هائل يفتح في سطح الشمس.. أهم تأثيراته
--  شاهد بالصور.. اللبنانية نور صعب تستعرض حملها بجلسة تصوير ..!
--  مصدر إثيوبي: مصر تطلب مراجعة إجراءات الملء الرابع لسد النهضة
--  واردات الغاز الإسرائيلي إلى مصر تتجاوز مليار قدم مكعب يومياً
--  حرب كان يمكن تفاديها
--  هل استعادة الوزن سريعا بعد فقدانه يهدد تكوين الجسم؟
--  Sacha Boey devleri peşine takınca, Okan Buruk devreye girdi! "Hiç bir yere gidemezsin"
--  Бойко Борисов: Говорих с Орбан, вече няма пречки да ни подкрепят за Шенген
--  Okan Buruk'tan o iki yıldıza transferi izni çıkmadı
--  Putin imzaladı: O ülkelere vergi şoku!
--  Fenerbahçe'den Edin Dzeko açıklaması! İşte son durumu...
--  Засилени инспекциските контроли на храната, акцент ставен на новогодишните пакетчиња
--  HS: Helsingforsarenan öppnar igen 2024 – tvångsinlösning trolig
--  Viral News: ਇਸ ਸ਼ਹਿਰ ਦੀ ਖੂਬਸੂਰਤੀ ਬਣਾਈ ਰੱਖਣ ਲਈ ਸਰਕਾਰ ਨੇ ਕਾਰਾਂ 'ਤੇ ਲਗਾਈ ਪਾਬੰਦੀ, ਜਾਣੋ ਕਾਰਨ?
+-  자연, 역사, 혁신이 절묘한 조화를 이루는 중국 짜오좡시 샨팅구
+-  Altitude Rooftop Bar and Lounge at Batam Marriott Hotel Harbour Bay Presents a Spectacular New Year Celebration with 24-Minute Fireworks
+-  Kickoff | 'Performances are more important,' - Riveiro on Pirates' top 3 position
+-  Colombia ante los dilemas de la transición energética
+-  Új pályázatot írtak ki a Károli Gáspár Református Egyetem beruházására
+-  Today's Top 3 News: Indonesia's Hajj Officer Quota Rises to 4,421
+-  AS Jual Peralatan Komunikasi ke Taiwan, Cina Siapkan Sanksi
+-  El estudiante de la UMU desaparecido en Francia llevaba su documentación, su móvil y su portátil
+-  Prosecutor demands year in prison for Dusan Tadic robbery; Defendant blames twin brother
+-  안준호 감독, 남자 농구대표팀 사령탑 최종 후보… 서동철 전 감독은 코치
+-  장민호·이승현 "교통사고 경험 있다"('한블리')
+-  Günümüz çocuklarının bilmediği geleneksel oyunlar okula geri dönüyor
+-  เร่งช่วยคนไทยนับร้อยจากฝั่งปอยเปต หลัง 9 ชีวิตปีนรั้วหนีตาย
+-  กสพท สั่งตัดข้อสอบ TPAT 1 ฉบับที่ 1 หลังพบคล้ายข้อสอบเก่า BMAT
+-  สคอ.คาดอุบัติเหตุปีใหม่พุ่ง หลังเปิดผับถึงตี 4
+-  ทลายโรงงานลูกชิ้นเถื่อนย่านปทุมฯ สถานที่สกปรก พบส่งขายตลาดนัด กทม.
+-  มาแรง! ปี 67 "ธุรกิจสายมู- Soft Power" ทำเงินสะพัดกว่าแสนล้าน
+-  คริสต์มาส! ประเดิมคิวแรกนักท่องเที่ยวลุยโถง 2,3 ถ้ำหลวง
+-  Hamilton man brutally murdered by two cousins who teamed up and kicked him 'like a football'
+-  В Новокузнецке возбудили дело из-за грубого обращения с постояльцами пансионата
+-  Jonas Berglund stannar i Luleå
+-  De la desaparición en Lagos de Moreno al horror en Salvatierra: los ataques recientes a jóvenes que sacuden a México
+-  Mejores calificaciones y menos tiempo con el teléfono: una encuesta reveló los propósitos de niños y padres para 2024
+-  Arkadaşlarıyla Evde Otururken Başından Vuruldu!
+-  Wakil Lampung dan Jawa Timur jadi Pemenang Putra Putri Tenun Songket Indonesia 2023
+-  Erdogan: Biden kopplade Sverige till F-16
+-  Bakan açıkladı; 7 bin 158 personel alınacajk
+-  Cumhurbaşkanı Erdoğan: Fikri iktidarımızı kuracağız
+-  Pálmi Rafn staðfestir að tvö önnur félög sýndu áhuga
+-  5 sons of physically-challenged mason top classes
+-  Беларус билан чегарани мустаҳкамлаётган украинлар ва Бахмут атрофидаги вазият. Уруш суратлари.
+-  Santa Cruz licita por 2,3 millones de euros la reparación de la escollera de Las Teresitas
+-  Selçuklu Belediyesine 4 ödül birden
+-  Konya'da FETÖ'nün güncel yapılanmasına operasyon: 14 gözaltı
+-  SİGARANIN GÖLGESİNDE BÜYÜYEN ÇOCUKLAR
+-  EKİN KAMBUR BÖCEĞİ (ZABRUS)
+-  DEVLETİ GÖREBİLİR MİYİZ?
+-  NEÜ’nün mutfağından uluslararası başarı
+-  Психически больного россиянина с мечом задержали на улице в Таиланде
+-  Metall- und Elektroindustrie hadert mit der Politik
+-  Mann wird auf Rastplatz an A7 in Unterfranken schwer verletzt
+-  Medizinische Probleme: Mann stirbt nach Unfall in Gemünden
+-  Fünfjährige klemmt Finger im Badewannen-Abflussgitter ein
+-  Wertheims Gasspeicher derzeit gut gefüllt
+-  Marcelo Tinelli se emocionó al recibir un mensaje de Lionel Messi en vivo
+-  Замглавы Нацполиции уволился после скандала о подозрениях в связях с Россией
+-  Kenya reaps big as importers ditch Tanzanian Port for Mombasa Port over congestions and delays – RUTO’s plan is working
+-  Wie die Bundesrepublik zu einem „Land der Träume“ werden könnte
+-  Bank Mandiri Pamer Layanan Mandiri Contactless
+-  After wild year, euro zone is top pick of world bond markets
