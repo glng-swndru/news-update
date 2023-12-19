@@ -1,11 +1,51 @@
 # Latest News
--  Berkay Yılmaz transferinde Beşiktaş'a tanıdık rakip
--  Bakanlıktan fiyat etiketi kararı! 1 Ocak'ta başlıyor: Giriş kapısına asılacak
--  Fatih Altaylı yazdı: Bir bankacı gözüyle Denizbank meselesi!
--  Askeri helikopter düştü: 1 ölü
--  MAS issues directive on remittances to China after reports of S$13 million frozen
--  Monkey steals glove from M'sia traffic policeman, 'gives' it back after someone suggests 'asking nicely'
--  Teochew Ah Ma, 86, stops operating Maxwell Food Centre porridge stall after 6 decades
--  אבוקסיס לא בונה על מהפכה בינואר: "נשפר את השחקנים שכבר פה"
--  HDP binasında teröristbaşının posterinin asılmasına ilişkin davada hapis cezası
--  Divan Residence’in sloganı SOTCA ödülü ile tescillendi
+-  В Твери 104-летие отмечает ветеран войны, труженица тыла Екатерина Демина
+-  Лучшим медикам Подмосковья вручат денежные премии
+-  Костромской креатив: ушлые сограждане предлагают платные услуги по уборке снега во дворах
+-  Михаил Мишустин назвал главные цели сотрудничества России и Китая
+-  "Spider-Man"-utvecklaren hackad – enorm läcka
+-  Tesla and Mercedes-Benz to compensate for loss of German EV subsidies
+-  Semiconductor ETF Michael Burry shorted hits all-time high
+-  Медиите в Гърция и Турция забъркаха каша с играч на Левски
+-  ŁKS Łódź zaskoczy transferem? Z drużyną trenuje obrońca z doświadczeniem z LaLigi, Serie A i Ligue 1!
+-  Eski Gelinini Darbeden Çift Tutuklandı
+-  マルチ対応・学校脱出ホラー『迷宮校舎』2月22日配信へ。真っ暗な校舎で非常口を目指す、子どもたちの脱出劇
+-  Hostes Öğrencilere Fazla Sandviç Verdi Sosyal Medya Karıştı: THY Açıklama Yaptı!
+-  Jurgen Klopp explains why he is remaining 'completely calm' about Liverpool striker Darwin Nunez
+-  TRAGEDIJA KOD MALOG POŽAREVCA: U saobraćajnoj nesreći jedna osoba POGINULA, troje teško povređeno
+-  Фанаты нашли карту GTA 6 на постере игры
+-  Irmã de Céline Dion atualiza estado de saúde da cantora
+-  Soccerladuma | Tau's Al Ahly Secure R37m Minimum After Club World Cup Defeat
+-  Camilla Läckberg stöttas av följarna efter sin senaste bild
+-  General Interview Tips For PSC Jobs 2023
+-  Four party leaders and deputies to start new round of Cabinet formation talks
+-  When was the last Christmas Eve Premier League game and why has it been reintroduced for Wolves vs Chelsea?
+-  शरीर में जमा चर्बी को पिघलाएं,आहार में शामिल करें ‘ये’ रोटियां!
+-  ڈالر کی کیا مجال! ہمارے دور میں اپنی جگہ سے ہلا ہو، نواز شریف
+-  Песков признал наличие проблем на АЭС в Белоруссии в ходе пуско-наладочных работ
+-  Ученые из SETI впервые смогли поговорить с китами и теперь готовы к контакту с инопланетянами
+-  La France et la Suède vont coopérer dans l'énergie nucléaire
+-  Shane MacGowan’s widow recalls living on “edge of some kind of actual destruction” with Pogues icon
+-  Best of cartoons, December 20, 2023
+-  Гимнастка Мельникова призналась, что ей обидно из-за разницы в зарплатах с футболистами
+-  Wirtschaftsministerium legt Strategie für Stromspeicher vor
+-  "Основы безопасности и защиты Родины" и "Труд" станут обязательными школьными дисциплинами
+-  Mübadele ne demek?
+-  Россия предложила Китаю помощь с ликвидацией последствий землетрясения
+-  "Ako Amerika donese pogrešnu odluku...": Kim Džong Un najavljuje OFANZIVNE AKCIJE nakon testiranja balističke rakete
+-  Israel abatió a alto responsable financiero de Hamás en el sur de Gaza
+-  Sefe und Equinor schließen langfristigen Gasliefervertrag
+-  Ağır qəza keçirən PFL əməkdaşlarından xəbər var: İkisi...
+-  Nach Förder-Aus: VW übernimmt E-Auto-Bonus vorerst selbst - VW-Aktie dennoch tiefer
+-  Губерниев назвал биатлон спортом номер один в России
+-  Pat Cummins: 3 reasons why Australia skipper is not worth Rs 20.50 crore
+-  Göğüs kasında kopuk oluşan Sergio Oliveira ameliyat oldu
+-  Цифровой рубль интегрируют в налоговую систему
+-  Roman Giertych chce uchylenia immunitetu Zbigniewa Ziobry. "Idę po Ziobrę"
+-  Pfister zersägt Motion von Rutz – SVP-Asyl-Session innert Minuten vorbei
+-  In gara dopo il carcere, il ritorno di Angel Cabrera
+-  Путин подписал закон, ограничивающий рост ставки по ипотеке при отмене страховки
+-  В Новосибирской области появятся наставники для работы с трудными подростками
+-  11-vuotias sotakoira Ira jää eläkkeelle
+-  Meral Akşener'den Operasyon Çıkışı! Bu Bir Savaş İlanıdır
+-  ЕБВР одобри увеличение на своя капитал с цел възстановяване на Украйна след войната
