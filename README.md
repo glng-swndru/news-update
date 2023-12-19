@@ -1,11 +1,11 @@
 # Latest News
--  Anzeige – BUND-Weihnachtsbaumtest 2023: Über zwei Drittel der Bäume mit Pestiziden belastet / Umweltverband fordert Pestizidreduktion und Glyphosat-Einschränkung
--  삼성, iToF·글로벌셔터 센터 ‘아이소셀 비전’ 2종 공개
--  직장인 위한 방치형 무협 RPG ‘언박싱’ 정식 출시
--  후티 공격에 홍해 물류 마비 위기…美, 다국군 대응 나서
--  So hilft Big Dutchman, gewaltige Insekten-Farm zu bauen
--  ברדה מחכה לפצועים. פליטר עשוי להמשיך לקבל קרדיט בהרכב
--  휴전협상 논의 재개…"CIA·모사드수장·카타르총리 회동"
--  Alleged Pawnshop Robbery Mastermind Aims to Attend Oathtaking After Release
--  Omezení benefitů: Za které budou zaměstnanci platit a kolik
--  MasterChef USA Season 7 Streaming: Watch & Stream Online via Hulu
+-  카카오뱅크 고객센터, 오라클 DBMS서 ‘EDB EPAS’로 교체
+-  오라클, ‘오라클 데이터베이스앳애저’ 상용화 발표
+-  티맥스소프트, ‘T-커넥터 2기’ 공채 실시
+-  아시아나IDT, 여행 플랫폼 ‘게이트이륙’으로 스마트앱어워드 대상 수상
+-  아이티센그룹, 대한민국 신성장경영대상 국무총리 표창 수상
+-  티맥스티베로, ‘AWS ISV 엑셀러레이트 프로그램’ 파트너 선정
+-  Экс-мэр Петрозаводска Владимир Любарский рассказал, вернется ли он в соцсети
+-  Varslen ökar - rekordmånga med i a-kassan
+-  جنبلاط يُهدّد بفرط نصاب جلسة لا تعيّن رئيس الأركان
+-  Владимирские чиновники не замечают проблем со второй сменой в школах
