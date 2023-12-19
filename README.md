@@ -1,11 +1,11 @@
 # Latest News
--  Cumhurbaşkanı Erdoğan'dan Kuveyt'in yeni emiri Şeyh Meşal'e tebrik
--  PrimeLash Mascara Reviews - Must Read Before You Buy!
--  Yavatmal farmer consumes pesticide near Maharashtra legislature complex
--  Wolfsburg vs Bayern Munich: Lineups, team news, will Kimmich and Goretzka get benched, and more!
--  Exclusive Thanksgiving Deleted Scene From Eli Roth’s Latest Horror Movie
--  " نسيم الرياض" تحصل على شهادة الآيزو
--  الإطاحة بشخص في الجوف لترويجه 60 ألف قرص مخدر
--  للتحدث لموظف التأمينات.. تعرف على مواعيد عمل مركز الاتصال على الرقم المجاني
--  New Shepard, la petite fusée de Jeff Bezos, décolle pour la première fois plus d’un an après un accident
--  200 milyon dozdan fazla Covid-19 aşısı çöpe gitti
+-  El MIR 2024 confirma su tribunal calificador con 'plaza' para Cardiología
+-  Confianza y transparencia para impulsar la comunicación sobre genéricos
+-  Украинские СМИ сообщили о взрывах в Черноморске и Одессе
+-  Un prototipo di AirPower dimostra perché Apple ha abbandonato il progetto
+-  للتحدث لموظف التأمينات.. هذه مواعيد عمل مركز الاتصال على الرقم المجاني
+-  عاجل.. بدءا من اليوم وبدون خبرة.. وظائف شاغرة بوزارة الحرس الوطني
+-  خسارة 20 مليار دولار.. سوق مشاريع الكويت يستقبل صدمة اقتصادية
+-  الخطوط الحديدية تعلن عن وظائف شاغرة في عدة تخصصات
+-  JO 2024 : à Dugny, le Terrain des Essences entame sa mue avant les épreuves
+-  قلق في برشلونة منذ إصابة فاتي مع برايتون
