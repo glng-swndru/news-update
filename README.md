@@ -1,11 +1,51 @@
 # Latest News
--  Članovi Galerije „Preporod“ Zenica posjetili Državni arhiv Dubrovnika
--  Edin Dzeko Kayserispor maçının kamp kadrosunda yer almadı
--  Marvel-less: Bombers' bid for extra MCG games
--  Llanberis mountain rescuers face burnout after busiest year
--  Nottingham: Family of student killed in police chase call for justice
--  Mirror hacking victims demand criminal investigation
--  Wasted wind power adds £40 to household energy bills, says think tank
--  Abortion: PSNI investigate safe access zone protest law breaches
--  Scotland's climate 'changing faster than expected'
--  How will Scotland plug its £1.5bn budget shortfall?
+-  Fenerbahçe'nin Kayserispor kadrosu açıklandı! 5 eksik var
+-  Ülkesi için fırsat olarak gördü: Türkiye'deki başarılı çalışmaların, ülkemizde yapılmasını umut ediyoruz
+-  ABD'nin koalisyon kararına İran'dan yanıt: 55 bin kişilik deniz milisleri oluşturduk
+-  โปรดเกล้าฯ "อรรถพล"นั่งอธิบดีอุทยานฯ-ปิ่นสักก์ กลับทช.
+-  โปรดเกล้าฯ แต่งตั้ง "ผู้นำเหล่าทัพ-ผบ.ตร." นั่ง สว.
+-  Суд рассмотрит ходатайство об аресте высокопоставленного чиновника СКР по Херсонской области
+-  Galatasaraylı Davinson Sanchez'den flaş açıklamalar!
+-  Tarihi eser operasyonu: 5 heykel ele geçirildi
+-  Erdoğan'dan dünyaya Gazze mesajı: Biz hazırız
+-  Белгородец пожаловался на состояние актового зала Старооскольского общества слепых
+-  Eriksen ima savet za kapitena Lutona posle srčanog udara
+-  Эрдоган усомнился в перспективах вступления Украины в ЕС
+-  যুক্তরাষ্ট্রের মন গলাতে নিরাপত্তা পরিষদে তোলা প্রস্তাবে ভাষা বদল
+-  ”Nej, livet är ingen teater – och det finns en orsak”
+-  Police looking for suspect in connection with downtown Windsor stabbing
+-  Грантовая поддержка ставропольских фермеров в 2024 году составит почти 180 млн рублей
+-  Huippukokin keitetyt perunat – Mausta näin
+-  Лидер ЛДПР Слуцкий выступил с речью на могиле Жириновского: видео
+-  كيلو البصل بـ17 جنيهًا| طرح محصول الموسم الجديد.. ونقيب الفلاحين يكشف مفاجأة
+-  Outgivna Monica Z-inspelningar ges ut
+-  موعد إصدار اللائحة التنفيذية لقانون التصالح في مخالفات البناء
+-  رئيس "سيرا": نحتاج لرفع نصيب القطاع الخاص إلى 40% من استثمارات التعليم
+-  وزير الصحة: مصر تحتل الآن المركز الـ 14 من حيث عدد السكان في العالم
+-  شركة سيرا للتعليم تنوي استثمار 700 مليون جنيه خلال العام 2024
+-  رفع الجلسة العامة للبرلمان ومعاودة الانعقاد غدا
+-  البورصة تهبط 1.02% في نهاية تعاملات اليوم الثلاثاء
+-  Северян предупредили о вовлекающих в теракты украинских мошенниках
+-  Silaturahim Kamtibmas Jelang Pemilu 2024, Polres Indramayu Kunjungi TPQ di Cidempet
+-  Synoni majën, zbuloni cilat janë 5 shenjat e Horoskopit që do të kenë rritje spektakolare të karrierës në 2024
+-  Slavni Brazilac čeka već drugo dijete s nećakinjom svoje bivše supruge: ‘Još jedan sin, još jedan blagoslov‘
+-  صحيفة الشرق الأوسط: الجيش الأردني رصد مجموعات محلية متعاونة لتهريب المخدرات
+-  شاهد كيف قصفت دبابات الاحتلال مستوطني بئيري يوم ٧ اكتوبر
+-  Bernstein belässt Delivery Hero auf 'Outperform' - Ziel 60 Euro
+-  Ağrı'da Afganistan ve Pakistan uyruklu 117 düzensiz göçmen yakalandı
+-  Kamilla királyné saját podcastot indít, amiben a könyveké lesz a főszerep
+-  경복궁 낙서범 잡고 보니 10대 연인
+-  Man Burnt To Death: Wife & Paramour Arrested In Odisha’s Cuttack
+-  TikTok, Mobil Uygulamasını Tabletler için Yeniden Tasarlıyor
+-  إنريكي: مواجهة ريال سوسيداد ستكون صعبة للغاية
+-  MN - Milanello, giovedì alle 14.30 la conferenza stampa di Pioli prima della Salernitana
+-  Von Brömssen läser "Nyårsklockan" på Skansen
+-  В Орловской области в своих квартирах едва не скончались две женщины
+-  Агент Радулова: мы находимся в переговорном процессе с «Ак Барсом»
+-  With Amo’s third app, the makers of Zenly release a Zenly-like app
+-  معاودة ارتفاع أسعار الدولار في بغداد وأربيل مع إغلاق البورصتين
+-  Preventive strategies for a healthy holiday season
+-  El campo de la Región cierra un año duro
+-  RBI Assistant Mains admit card 2023 released at rbi.org.in; check exam date here
+-  الأزياء الشتوية تجذب الزوار في سوق الأولين بموسم الرياض
+-  Akşener'den İmamoğlu ve Yavaş'a salvolar: Korkaklar, her yerde tek başına seçimlere gidiyoruz
