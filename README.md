@@ -1,11 +1,11 @@
 # Latest News
--  KB금융, '내부통제 디지털화' 추진…금융사고 예방 및 불건전영업행위 사전 차단
--  Les Bulls surprennent les Sixers (108-104), la sixième victoire en neuf matchs pour Chicago
--  ¡La canceló! El picante comentario de Milene Vázquez sobre Ale Fuller: “¿Por qué mejor no le dan la olla?”
--  Timberwolves down Miami for best road win of season
--  Stok Bapok Banjir, Zulhas Minta Warga Semarang Belanja Secukupnya
--  توہین الیکشن کمیشن کیس، بانی پی ٹی آئی پر فردِ جرم عائد ہونے کا امکان
--  Istri Ganjar Nyanyi 'Ikan Dalam Kolam', Ibu-ibu di Tulungagung Langsung Riuh
--  عاجل.. تعرف على آخر أسعار البيض في جدة
--  Lenovo Legion Pro 5 gaming laptop: up to Core i9-14900HX, up to RTX 4090
--  أسعار النفط تواصل ارتفاعها
+-  “4·3학살자 이승만, 미국 동상 건립 추진 중단해야”
+-  ‘소규모 건축물 현장관리인 인력 풀’ 제도 1년만에 폐지
+-  Binance Bolsters Crypto Security with Successful SOC 2 Type II Audit
+-  BMW Performace Motors Thamrin Hadirkan Pengalaman baru Konsumen
+-  Royal Enfield Rilis Motor Shotgun 650, Harga Rp 50 Jutaan
+-  벌써 20골 달성... 케인을 향한 투헬의 특급 칭찬, “역시는 역시네, 이런 선수 드물어”
+-  알라바-밀라탕 십자인대 파열인데…레알 마드리드 수비수 영입 계획 X
+-  Kehilangan Kursi MotoGP 2024, Pol Espargaro Dihadiahi KTM X-Bow
+-  英國升學︱Gretton School 森林學校培育自信
+-  Mersin'de şafak operasyonu! Çok sayıda polis katılıyor
