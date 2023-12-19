@@ -1,51 +1,11 @@
 # Latest News
--  800V+升压+双枪+自加热，比亚迪把所有充电链路打通
--  Napad ili odbrana - da li je Partizan spreman za neosvojivu tvrđavu Valensije?
--  곽윤기 "10년 국대 생활, 은퇴 고민으로 혼란 느껴"('금쪽상담소')
--  동서발전, 울산 노후 공동주택 8개소에 에너지효율화 개선
--  한진그룹, 사회복지공동모금회에 이웃사랑성금 20억원 기탁
--  China poses biggest challenge to Korea's economic recovery: KCCI chief
--  S. Korea, US, Japan launch real-time NK missile data-sharing system
--  Finance minister nominee vows to speed up trade diversification
--  Spy chief nominee veteran diplomat with expertise in NK, US affairs
--  Kecelakaan Maut di Tol Cipali, Kemenhub Janji Pengawasan Operator Bus Ditingkatkan
--  Ex-top envoy to UN tapped as top diplomat
--  Congress needs to take a cue from the BJP and let youngsters take charge for lasting relevance
--  Il prezzo del gas ad Amsterdam apre in ribasso a 34 euro
--  Borsa: l'Europa quasi piatta in apertura, Francoforte +0,04%
--  Polarização está mantida: 30% são petistas no Brasil e 25% apoiam a extrema direita
--  용감한 컴퍼니, 반영구화장 교육 브랜드 'K뷰티마스터' 론칭
--  현대차, 작년 3월부터 가동 중단한 러시아 공장 2870억에 매각 결정
--  '벌써 20년' 동방신기, 명곡 셀 수 없이 많았다
--  올해 크리스마스 이브도 '성시경'과 함께
--  "법 좀 어찌 하자"…사망설→영정사진까지 선넘은 '가짜뉴스', 규제는 언제쯤? [MD포커스](종합)
--  뉴진스, 日 연말 무대 출격…대상까지 노린다
--  영천, 올해 시민공감 시책 '베스트 3' 선정
--  김선조 대구 행정부시장, 한파 취약계층 격려 현장 방문
--  평택시, ‘제5기 마을세무사’ 위촉·운영한다
--  상주 ‘2023 지역경제 포럼’ 참석
--  포항, 2024년도 공동주택관리 지원사업 추진
--  영양, 로컬푸드직매장 활성화 방안 모색
--  예천, 전국 정보화마을 운영평가 우수기관 선정
--  대구, 시민 주도적 참여 햇빛발전소 10~13호기 준공
--  구리시 “적십자봉사회 구리지구協·로보큐브테크, 지정기부금 전달”
--  시흥소방서, 제3회 1타강사 선발대회 우수강사 선정
--  대구시의회 교육위원회, 학교보안관-노인일자리사업 연계 협의회 개최
--  계명대 동산병원, 여성가족부 ‘가족친화기업’ 인증 획득
--  인천시 소득 무관 난임 치료 지원 기틀 마련
--  인천시, '군복무 인천청년 상해보험' 지원
--  대구시, 대한민국 지방재정대상 국무총리상 수상
--  화성시, 대한민국 지방재정대상 재정분석 2년 연속 '최우수'
--  화성시의회 유재호 의원, 봉담지역 상습정체구역 해소 방안 마련 촉구
--  계명대 방종인 대학원생, ‘2023 공예트렌드페어’ 우수작품상 수상
--  윤대통령 "정치·이념이 경제 지배 못하게 확실히 막겠다"
--  이재준 수원시장 “시민 참여 넘어 시민이 주도하는 지방자치 실현할 것”
--  경기도 광주소방서, 변경된 소방계획서 개정 안내
--  '또' 카카오, 공정거래법 위반…중기부, 공정위 고발
--  '21개월째 가동중단' 현대차, 러시아 공장 매각결정
--  "섬유산업 지속가능성이 최우선 과제"
--  190개국에 명품 판로 확보한 쿠팡 … K패션도 날개 달았다
--  롯데홈쇼핑, '엘클럽' 전용 라이브커머스 론칭
--  배상면주가 막걸리 폭풍성장
--  Retiros por desempleo suman monto máximo
--  Magda Gessler już tak nie wygląda. Internauci zwracają uwagę na jeden szczegół
+-  İBB'nin çözemediği ulaşım sorunu İstanbulluların ruh sağlığını bozuyor
+-  Türkiye'den İspanya'ya ihracat rekoru
+-  Filistin bayrağıyla kayak yaparken saldırıya uğradı! "Eğer İsrail bayrağı taşısaydım..."
+-  Един мач от ФА Къп ще се играе днес
+-  أسعار العملات اليوم الثلاثاء.. اليورو يسجل 4.10 ريال
+-  رابط ومواعيد التسجيل في الزمالة للأطباء السعوديين في بريطانيا
+-  Установлена личность одного из задавленных в бытовке рабочих
+-  Веселина Александрова: Имало ли е нарушение при отдаването на общинска земя в "Тракия" в Пловдив?
+-  Kruzifixe in Behörden? - Urteil zu bayerischem Kreuzerlass erwartet
+-  Krankenkassen-Beiträge - Entwarnung für viele Versicherte in Bayern
