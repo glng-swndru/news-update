@@ -1,11 +1,51 @@
 # Latest News
--  Empowering Independence: Seva Food Bank’s Innovative Project Receives Government Support
--  రైలు కింద పడి వ్యక్తి మృతి
--  ప్రధానమంత్రి విశ్వకర్మ యోజనను సద్వినియోగం చేసుకోవాలి
--  చలో పోలిపల్లి
--  Wiwynn Launches Next-Gen Edge Servers with Extraordinary Performance and Efficiency in a Short-depth Form Factor
--  Illumination's MIGRATION is First Major Animated Feature to Release Globally in CJ 4DPLEX's Immersive, 270-Degree Panoramic ScreenX Format
--  Estadio Azteca cierra sus puertas y se perfilan al Mundial 2026
--  ÚRSO pripravuje zmeny v oblasti cenovej regulácie elektroenergetiky a plynárenstva
--  Vendono a 150 euro una maschera: rigattiere la rivende a 4 milioni di euro
--  మార్కాపురం సబ్‌కలెక్టర్‌గా రాహుల్‌మీనా
+-  Urteil im Prozess um versuchten Totschlag am Dittrichplatz in Plauen: „Ihnen war egal, ob das Opfer stirbt“
+-  USA gründen Allianz zum Schutz von Schiffen – Esken skeptisch
+-  Barkas-Talente schnuppern in neue Spielform hinein
+-  Junger Rennpilot will auf kleiner Maschine nach vorn
+-  Schweinsteiger möchte irgendwann für den DFB arbeiten
+-  Helfer in der Not: Klingenthal rettet die Vierschanzentournee
+-  Polizistin ins Gesicht geschlagen: Gericht kippt Gefängnisstrafe für Zwickauer Stadtrat
+-  Frontalzusammenstoß auf B 101 in Schwarzenberg – drei Verletzte
+-  Freiberg: Personeller Aderlass am Mittelsächsischen Theater
+-  GDL-Mitglieder stimmen für unbefristete Streiks bei der Bahn
+-  Gastronomischer Zuwachs in Chemnitz: Im alten Tillmann’s lockt bald internationale Vielfalt
+-  Sportministerin: Hansa spielt nach Krawallen auf Bewährung
+-  Schlimmer Unfall in Langenweißbach: Fünf Verletzte
+-  Glasfaserfirma zieht sich aus Mittelsachsen zurück - Was bedeutet das für Penig und Lunzenau?
+-  Río Negro anunció que pagará el aguinaldo en dos cuotas
+-  صدمة داخل المخابرات الأمريكية .. ماذا حدث في خزانتها السرية؟
+-  الصحة العالمية تصنف JN.1 متحورًا جديدًا منفصلًا
+-  عاجل.. خطأ يقع فيه البعض في حساب المواطن يؤثر على الاستحقاق.. تعرف عليه
+-  Faeser schließt Abkommen mit Georgien
+-  Live KNVB-beker | Amateurs Quick Boys komen op voorsprong tegen De Graafschap
+-  „Ha a kutya nincs, akkor mindketten meghalunk” - kutyája mentette meg tűzhaláltól az idős nemespátrói férfit – videó
+-  Manchester City não inscreve Haaland, De Bruyne e Doku, e trio fica de fora de possível final contra o Fluminense
+-  Incendie au dépôt d’hydrocarbures de Kaloum : le message du Dr Koureissy Condé, Président du parti ARENA
+-  Urawa Reds x Manchester City AO VIVO: siga agora tudo da semifinal do Mundial de Clubes
+-  Kille slogs medvetslös – fick blödningar i hjärnan
+-  GPT and other #ai models can’t analyze an SEC filing, researchers find
+-  Tikri burtai. Ekspertus išgąsdino „raganų buteliai“ (Foto)
+-  Rusiška „Fiat Multipla“. Pristatytas šlykščiausias rusiškas elektromobilis (Foto)
+-  Ukraina zmobilizuje dodatkowe 500 tys. żołnierzy? Zełenski: Potrzebuję konkretów
+-  Ukraina zmobilizuje dodatkowe 500 tys. żołnierzy? Zełenski: Potrzebuję konkretów
+-  "Je suis en tort, mais je l’aime": un fils en prison pour avoir bousculé et menacé de mort sa propre mère
+-  BVB will gegen Mainz einen versöhnlichen Jahresabschluss: Bundesliga im Live-Ticker
+-  [ŽT] Kuriozinė situacija. Valtis su „husiais“ sukėlė paniką (Foto)
+-  Former royal butler Paul Burrell reveals Dean Sullivan's and Princess Diana were friends and he 'made her laugh' during calls to the palace as he attends Brookside star's Liverpool funeral
+-  Congress State Unit Requests Rahul Gandhi, Priyanka Gandhi To Contest Lok Sabha Elections From Uttar Pradesh
+-  Richard Madeley admits to blazing rows with wife of 37 years Judy Finnigan as he details hiding their personal troubles live on air
+-  StaffMe et Monoprix condamnés aux prud’hommes pour travail dissimulé
+-  He only gets a cameo in The Crown but his real-life role in the royal family spawned a thousand headlines ...so do you know who this dashing former cavalry officer is?
+-  Business News | InfraBlaze 2023 Ignites Insights: Navigating India's Vision 2030, Ethical Policies, and Digital Transformation in Infrastructure Management
+-  7 research-backed tips to help you live longer
+-  Gáza a nemzetközi közösség erkölcsi kudarca is
+-  Nuggets’ DeAndre Jordan takes vegan diet to London for Great American Baking Show’s celebrity holiday special
+-  India News | Rajasthan CM's Car Driven into Roadside Drain on Way to Temple
+-  Nationwide weather alert issued for 25 Provinces in the Dominican Republic
+-  رئيس ليبيريا يطالب بإلغاء تصويت بلاده ضد وقف إطلاق النار في غزة بالأمم المتحدة
+-  10 Most Anticipated Upcoming TV Seasons Revealed, Based on Google Searches!
+-  City to Country: Extended €475k Dublin home or scenery at spacious Kerry escape
+-  Rinku Singh Scalps His Maiden International Wicket, Achieves Feat By Dismissing Rassie van der Dussen During IND vs 2nd ODI 2023
+-  ‘Dunki’: Shah Rukh delivers a cinematic masterpiece ahead of Christmas
+-  Πανσερραϊκός – ΑΕΚ: Εκτός Αραούχο και Πόνσε για την Ένωση, ελπίδες για Σιντιμπέ
