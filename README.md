@@ -1,11 +1,11 @@
 # Latest News
--  MİT'ten nokta operasyon: DEAŞ'ın sözde sorumlusu yakalandı
--  Lübnan: İsrail, sınırdaki beldeleri "fosfor bombası" ile vurdu
--  Yılın transferi! Stefan Savic, Türkiye'ye geliyor
--  Filistinlilerden çağrı: Refah Sınır Kapısı kalıcı şekilde açılsın
--  CANLI ANLATIM: İstanbulspor-Trabzonspor
--  İsrail basınından çok önemli iddia: Tanklar İsrailli esirleri vurdu!
--  Hizbullah, İsrail'le çatışmalarda 2 mensubunun daha öldüğünü duyurdu
--  Suspenderán recolección de basura el 25 de diciembre y 1 de enero
--  Desaparecen dos mujeres originarias de Veracruz en Cuauhtémoc
--  남양주시, 수동면 청소년 시설 조성 설계 공모 당선작 선정
+-  قيادي حوثي: أي دولة تتحرك ضد اليمن ستستهدف سفنها في البحر الأحمر
+-  Comissão Europeia diz que escalada de antissemitismo e islamofobia na UE "é chocante"
+-  Presentan el plan de acción para el cierre ordenado y definitivo de Cobre Panamá
+-  Schnarchen verhindern: Das hilft laut Stiftung Warentest
+-  Manchester City kažnjen sa 140.000 eura zbog kritiziranja suca
+-  الاحتلال يعترف بمصرع جندي جديد في غزة
+-  لا تجهليها.. فوائد التمر للنساء أثناء الدورة الشهرية
+-  אחרי תשעה חודשים: נועם מלמוד בהרכב הפועל ירושלים נגד חדרה
+-  "Bu işin şakası yok" diyerek uyardı! Marmara, bir deprem tehdidi altında
+-  Desmantelan red criminal que falsificaba medicamentos para enfermedades de alto costo
