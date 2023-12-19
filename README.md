@@ -1,51 +1,51 @@
 # Latest News
--  우도환, 잘생김 뚝뚝
--  [Vidéo] DGE : Me Clédor Ly bousculé par les les forces de défense et de sécurité
--  Convicted killer declined parole
--  Misterio en Nueva York: Gemelos de cinco años fueron hallados muertos en un apartamento de El Bronx
--  Mary Earps tells young girls to 'work hard and get GCSEs and A-Levels' as the Lionesses' goalkeeper lines up against star-studded competition jockeying for coveted SPOTY award
--  Jake Paul announces partnership with USA Boxing for 2024 Olympics as influencer-turned-boxer gears up to travel with Team USA to Paris: 'I believe the USA has the best boxers, let's put it to the test'
--  Oil Price Rises 1% As Red Sea Shipping Concerns Unnerve Traders
--  리버풀, '김민재 호위무사 될 뻔한 MF'에 관심 없다...뮌헨은 너무 비싸다고 여기는 중
--  Selenskyjs Fernduell mit Putin: „Russland hat keine Erfolge erzielt“
--  الشيخ: قرار عودة حركة فتح للسلاح يجب أن يكون جماعيا
--  2 tenants charged for disabling smoke alarms before Hamilton house fire that killed 4 people
--  Video/ Shikoni çfarë bën Guzman: portieri përjashtohet dhe fshihet poshtë mushamasë për të parë ndeshjen
--  Paula Radcliffe, 50, shows off her incredible figure in midi dress as she joins husband Gary Lough at the BBC Sports Personality of the Year Awards
--  Fluminense va întâlni câștigătoarea Champions League, în finala CM al Cluburilor
--  Mondial des clubs : Manchester City rejoint Fliminense en finale (vidéos)
--  Melissa Doyle shares emotional family post: ‘Time really does fly’
--  19 Times Celebs Called Out “Unattainable Beauty Standards” In Hollywood
--  Дагестан останавливает незаконный ввоз подкарантинной продукции
--  LIVE TJ - ENTELLA-JUVENTUS NG 0-1 - Due minuti di recupero alla fine del primo tempo
--  Aaj Ka Kark Tarot Card: कर्क राशि वाले आत्मविश्वास से करें काम तो मिल सकती है सफलता, स्वास्थ्य का ध्यान रखें
--  OnlyFans performer spots former teacher in audience during XXX-rated livestream: ‘Uncomfortable’
--  What you need to know about festival drug testing this summer
--  Thibaut Courtois admits he snapped when Belgium coach threatened to leak conversations to press
--  Taylor Swift Baked Cinnamon Rolls for Travis Kelce Before a Chiefs Game, Bernie Kosar Reveals
--  Mercato - PSG : Ça bouge pour ce joueur de Deschamps
--  Kakav promašaj! Europska komisija objavila dokument s pogrešnom hrvatskom zastavom: Pogledajte što im je promaknulo
--  Στα Τρίκαλα η πιο στραβή εκκλησία του κόσμου: Ο ελληνικός… Πύργος της Πίζας έχει κλίση 17 μοιρών
--  Kotaku Readers Share Their Most Anticipated 2024 Games
--  Analiza Estado de NY indemnizaciones por esclavitud
--  Пораз за Димитриевски и Рајо од Валенсија (ВИДЕО)
--  בנימין: "יש בהפועל ת"א צעירים מהטובים בארץ, כולנו נגיע רחוק"
--  ממשיכה בשלה: ריאל מדריד ניצחה את הכוכב האדום בלגרד
--  List Of Producers For This Week’s WWE Raw
--  Трое жителей Ростовской области погибли в СВО
--  Alyssa Milano posts cryptic message about ‘resilience’ after she’s accused of getting Shannen Doherty fired from ‘Charmed’
--  Selenskyj sieht Mobilisierung als heikle Frage für Ukraine
--  हुकुमचंद मिल मजदूरों में खुशी की लहर, 464 करोड़ की बकाया राशि मिलेगी, CM मोहन यादव ने दी मंजूरी
--  Foot : scène lunaire en Turquie, une équipe quitte le terrain après une décision arbitrale (vidéo)
--  ABD'de şiddetli yağış ve fırtına nedeniyle 4 kişi yaşamını yitirdi
--  Spojené štáty vyzvali Srbsko, aby riešilo obavy týkajúce sa priebehu volieb. Opozícia tvrdí, že boli zmanipulované
--  Студенты Орла готовы принять «Тургеневский вызов»
--  Günün ULDUZ FALI: yalnız qala bilərsiniz
--  Michael Douglas and Catherine Zeta-Jones share rare family photos on holiday vacation
--  PSG : toujours en chantier, Paris entame doucement sa nouvelle ère
--  Sea Pre-Fall 2024
--  চলন্ত ট্রেনে আতঙ্কের ভোর
--  Ligji për evidencë amë nesër sërish në seancë të Gjykatës Kushtetuese
--  Курской области на выставке «Россия» на ВДНХ в Москве посветят целый день 11 января
--  Urawa Red Diamonds 0-3 Manchester City (MAÇ SONUCU-ÖZET)
--  Blizzard releases roadmap for World of Warcraft leading up to The War Within
+-  Masimo open to an Apple Watch settlement, if Apple would only call
+-  Endgültiger Umstieg ab 2035: Kanada lässt bald nur noch Fahrzeuge ohne CO2-Ausstoß zu
+-  Krcata dvorana u Beogradu vikala Hrvatu da je pi*ka ustaška, on ponizio Crvenu zvezdu na terenu
+-  مانشستر سيتي يهزم أوراوا ويصعد إلى نهائي كأس العالم للأندية
+-  Black Cap picked up by Super Kings for $2.69m
+-  三原則運用指針改正でPAC3をライセンス元のアメリカに輸出へ
+-  El Gobierno admite 'resultados adversos' en la inversión extranjera en Cuba, pero culpa al 'bloqueo'
+-  Isabel Zambrano: “Es mi favorito para quedarse con la final”
+-  Panamá anuncia plan de cierre de mina canadiense que causó masivas protestas
+-  "Zihnimiz Bize Bunu Niye Yapıyor?" Diyeceğiniz Birbirinden İlginç Psikolojik Sendromlar (Bazıları Düşman Başına)
+-  Noel Ağacına Benzeyen "NGC 2264" Yıldız Kümesinin Hayran Kalacağınız Fotoğrafı Paylaşıldı
+-  3 Ay Nehrin Dibinde Kalan Bir iPhone 12, Tamamen Çalışır Hâlde Bulundu!
+-  صفارات الإنذار تدوي في "يفتاح" في إصبع الجليل عند الحدود اللبنانية الفلسطينية
+-  Temporal: Aerolíneas Argentinas emitió un comunicado para explicar cómo se dañaron las 20 aeronaves
+-  El durísimo spot contra Ibarra, Macri y la justicia: "Respeten lo que los socios eligieron"
+-  اليمن تجدد التأكيد على موقفها الثابت الداعم للوحدة الترابية للمملكة
+-  المقاومة تواصل ضرب جيش الاحتلال في غزة
+-  GlobalLogic kondigt overname van Mobiveil aan
+-  Demanda Condado de El Paso a Texas por criminalizar migrantes
+-  Mueren 3 en choque sobre carretera Camargo-Conchos
+-  Costa responde a Passos. “O azedume não merece comentário”, disse
+-  İstanbulspor-Trabzonspor maçında atılan goller sayılacak mı?
+-  Hat ile 10 yıl
+-  Ndërron jetë një 58-vjeçar në Çarshinë e Shkupit
+-  Next PL domino falls as battlers ruthlessly axe club hero with replacement looming
+-  Real ubjedljiv u Beogradu
+-  Invallers Linssen en Schalk kunnen niet stunten: Aké met Manchester City naar finale WK
+-  ABD'de şiddetli yağış ve fırtına can aldı: 4 kişi öldü
+-  Oynamak için başkanın ayaklarına kapandı!
+-  Sivasspor: Kara gece
+-  Sudan ordusu, stratejik Vad Medeni kentindeki güçlerinin çatışmadan çekilmesini araştırıyor
+-  Con “Canelo” Álvarez presente; “Eddy” Reynoso gana el Premio Nacional del Deporte 2023
+-  Solidžios gynybos dėka „Real“ užtikrintai įveikė Giedraičio ekipą
+-  “Todo parece indicar que es un tema familiar”: Lamenta alcalde agresión contra Reyna Guadalupe
+-  Lane’s 18 lead Georgia State over Toccoa Falls 122-45
+-  Gophers coach P.J. Fleck adjusts philosophy for quarterback recruiting
+-  Italian shot putter Ponzio banned for 18 months in doping case, will miss Paris Olympics
+-  Tan bonito… pero peligroso: ¡El lirio acuático afecta plantas de agua y agudiza la sequía!
+-  جنبلاط: لقد حان الوقت للرد!
+-  Antiquair die zeldzaam masker voor 149 euro kocht en voor miljoenen doorverkocht, misleidde bejaard stel niet
+-  Man finds 4.87-carat diamond in Arkansas state park, largest discovery since 2020
+-  ذي إيكونوميست: ليبيا أغنى الدول المغاربية
+-  Apple suspende venta de relojes en EEUU por disputa de patentes
+-  Demandas brasileñas vinculan a JBS con destrucción de Amazonía en área protegida
+-  0-500 Mamá continúa apoyando a las mujeres embarazadas
+-  Lebenslängliche Haft für Ex-Frau des französischen Serienmörders Fourniret
+-  Manchester City se cita con el Fluminense en la final de Mundial de Clubes
+-  Man finds 4.87-carat diamond in Arkansas state park, largest discovery since 2020
+-  Playoff Youth League: Inter con l'Olympiacos. Il Milan è già agli ottavi
+-  Percentual de biodiesel no diesel subirá para 14% em março de 2024
