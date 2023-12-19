@@ -1,51 +1,11 @@
 # Latest News
--  윤대통령 "실거주 의무 폐지 '주택법' 국회 처리 서둘러달라"
--  尹 "네덜란드와 '반도체 동맹', 국방 역량 확충에 기여할 것"
--  배민 서빙로봇 운영사 비-로보틱스, 30억원 투자 유치
--  농협, 배합사료 포대당 700원 추가 인하
--  NH농협은행, 2024년도 상반기 신규직원 채용
--  신세계면세점, 캐세이와 파트너십…개별관광 수요 공략
--  LH, 임대주택 관리비·임대료 조회 '스마트홈 서비스' 도입
--  [분양소식] 층간 소음 저감 설계 '포레나 제주에듀시티' 입주자 모집
--  내달 27일 서울 '기후동행카드' 첫선
--  Se cumplen 175 años de la muerte de Emily Brontë, la escritora que rompió con los tabúes victorianos
--  "야간 도로 안전하게"… 제주 가로등 조명등급 기준 개선
--  강릉 주문진항서 밍크고래 혼획…8000만원에 위판
--  28㎓ 제4이통에 마이모바일·세종텔레콤 신청…스테이지파이브 검토중
--  Rey Mysterio Reportedly Signs New Deal With WWE
--  언론사 여성임원 첫 두 자릿수 기록했지만 "여전히 미약한 숫자"
--  العبود إلى الشباب … صفقة مثيرة للإهتمام
--  펄어비스 '검은사막', 북미 최대 게임 미디어 '최고 MMO' 등 3관왕
--  The Young and the Restless actress Camryn Grimes gives birth! The soap opera star and fiance Brock Powell share FIRST photos of their baby boy
--  Are trans-inclusive policies appropriate for sports?
--  Judge criticizes Trump's expert witness as he again refuses to toss fraud lawsuit
--  Flagler County leaders approve deal to house Florida State Guard training facility
--  ใกล้อนุมัติอีกขั้น ! Bitcoin Spot ETF ของ BlackRock ได้รับสัญลักษณ์ “IBIT” จาก SEC
--  Authorities call off search for Pocatello teen who fell in pond 12 days ago
--  Spot Bitcoin ETF Filings: Blackrock, WisdomTree Amend Form S-1
--  IPL Auction 2024 Live Streaming: আজ আইপিএলের নিলাম দেখবেন কোথায়? জানুন বিস্তারিত
--  アメリカの半導体輸出規制を受けて中国企業が高性能GPUの組み立てをマレーシア企業に委託、一方で日本の半導体企業は先進的でない半導体製造装置の輸出で影響を相殺
--  Weihnachten: Rekord: Hittfelder Schüler spenden Geschenke für Kinder
--  Descubre tu destino para hoy, 19 de diciembre, según tu signo del zodíaco
--  apoBank erwartet gutes Jahr 2024 für Anleger
--  연말 데이트 장소로 제격! 서울 빛초롱 축제 근처 맛집 4
--  How to Fix Your Messed-up Wifi After the Latest Windows Update
--  جوارديوﻻ إلى دوري روشن … أكبر دليل على إمكانية حدوث ذلك
--  Peiner Hag: Neuer Mieter für Prisdorfer Gewerbepark – das sind die Pläne
--  Nelly no soportó la sazón de Armando Machuca: “No hay que malograr así la navidad” | El Gran Chef Famosos: La Revancha
--  蘋果聖誕前突停售兩款Apple Watch 測血氧功能涉侵權
--  Karnataka : কোভিড আতঙ্ক,৬০ এর উর্দ্ধে ব্যক্তির মাস্ক বাধ্যতামূলক করল কর্ণাটক সরকার
--  Inclusive support for Macedon schools
--  Bindi Irwin shares Kelly Slater's tribute to her late father Steve as Crocodile Hunter and surfing legend's unlikely friendship is revealed
--  ¡No pudieron con la cena navideña! Armando Machuca, Mayra Goñi y Ale Fuller fueron sentenciados
--  Outdoor Christmas at Kingsfield
--  BREAKING: Another half off the market as Cowboys stun rivals with monster deal
--  Christian Ysla, Milene Vázquez y Mauricio Mesones pasaron a la siguiente etapa
--  गुलियाकर्मी सधैँ अमिला
--  Thomas Massie Blasts 2024 Presidential Hopeful as a 'Brunette Liz Cheney'
--  Governor - CM: ఒకే విమానంలో గవర్నర్‌ - సీఎం.. అభివాదమే తప్ప పలకరించుకోని వైనం?!
--  Warriors CEO Cameron George is crediting coach Andrew Webster for the team's stellar season in rugby league's NRL
--  Marvel demite Jonathan Majors após ator ser declarado culpado em julgamento por assédio e agressão
--  Jet fuel pipeline works completed
--  Tallebudgera Creek closed after major sewage leak spills into bushland and waterways
--  চীনকে পেছনে ফেলে পোশাক রপ্তানিতে শীর্ষে বাংলাদেশ
+-  للحفاظ على عمر البطارية.. إعدادات عليك ضبطها في هاتف آيفون
+-  Renuncia al INE Jorge Humberto Torres, encargado de Informática y el PREP
+-  Video: Transmitió en vivo presunto suicida
+-  Intentan ganarle paso al tren y son arrastrados
+-  Ким Чен Ын: пуском «Хвасон-18» КНДР ответила на «ошибочное решение» США
+-  العاهل الأردني يؤكد على الدور المهم للولايات المتحدة في الدفع باتجاه الوقف الفوري لإطلاق النار في غزة
+-  시큐어시스템즈 ‘시큐어오케스트라’, GS 인증 1등급 획득
+-  EDB, 카뱅 고객센터 오라클 DBMS 교체 위해 EPAS 공급
+-  AWS-클래리티AI, 기업·펀드 지속가능성과 사회적 영향 측정
+-  한국IDC, 4년 연속 IIAR 선정…‘올해의 애널리스트 기업’ 부문 수상
