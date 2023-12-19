@@ -1,11 +1,51 @@
 # Latest News
--  카카오뱅크 고객센터, 오라클 DBMS서 ‘EDB EPAS’로 교체
--  오라클, ‘오라클 데이터베이스앳애저’ 상용화 발표
--  티맥스소프트, ‘T-커넥터 2기’ 공채 실시
--  아시아나IDT, 여행 플랫폼 ‘게이트이륙’으로 스마트앱어워드 대상 수상
--  아이티센그룹, 대한민국 신성장경영대상 국무총리 표창 수상
--  티맥스티베로, ‘AWS ISV 엑셀러레이트 프로그램’ 파트너 선정
--  Экс-мэр Петрозаводска Владимир Любарский рассказал, вернется ли он в соцсети
--  Varslen ökar - rekordmånga med i a-kassan
--  جنبلاط يُهدّد بفرط نصاب جلسة لا تعيّن رئيس الأركان
--  Владимирские чиновники не замечают проблем со второй сменой в школах
+-  전기오토바이 젠트로피 제트 2024년형 출시…”환경부 보조금 없이 구매 가능”
+-  문종호 순천향대 부천병원 교수, 홍콩 ‘소화기 치료내시경 워크숍’서 라이브 시술 선봬
+-  이건숙 구리 동구동 24통장, 취약계층 아동 장학금 50만 원 전달
+-  박주호 온가족 출동…제주신화월드서 행복한 연말 보내
+-  ‘It’s extremely hot’: Why Muslim boxer had to fight harder than most for Olympics spot
+-  ‘It’s extremely hot’: Why Muslim boxer had to fight harder than most for Olympics spot
+-  John Deere führt schon wieder neuen StarFire-Empfänger #automatischelenksysteme #empfänger
+-  ‘A world class front rower’: Sharks emerge as 2025 premiership contenders after signing Addin Fonua-Blake
+-  ‘술 권하는 제주’ 고위험음주율 상승세 여전
+-  제주 빛낸 9명 2023 제주도 문화상 시상식
+-  김종민 "돈봉투 받은 20명 공천배제? 이재명 못할 것"
+-  López Obrador y Rubén Rocha Moya inauguran la presa Santa María
+-  Duo Sayuri Kembali Dapat Panggilan STY, Berikut 29 Pemain yang Akan Mengikuti TC Timnas di Turki
+-  Chet Holmgren, SGA Take Bite Out of Grizzlies 116-97
+-  Tyler Herro et Bam Adebayo étaient de retour cette nuit à Mayami : le Heat était donc… au complet ?!?!?!
+-  Gazze'de acı bilanço! İsrail her metrekaresini bombaladı
+-  Çin'in Gansu eyaletinde deprem: Çok sayıda ölü var
+-  Число жертв землетрясения в Китае увеличилось как минимум до 116 человек
+-  Bombarded with scam calls and messages? There’s a way they could be stopped
+-  Bombarded with scam calls and messages? There’s a way they could be stopped
+-  이젠 민주당이 답해야 할 차례
+-  Javier Aquino se quejó del arbitraje y lanzó un dardo al América tras la Final de la Liga MX
+-  Bareilly News: नवाबगंज में किसान की हत्या, आधी रात पशु चोरी करने आए बदमाशों ने मारी गोली
+-  Moradabad: लापरवाही पर 20 दिन में ही लाइन हाजिर हो गए मूंढापांडे इंस्पेक्टर, नहीं लगा पाए अपराधों पर लगाम
+-  Pressestimme: 'Volksstimme' zur Sparpolitik der Ampelregierung
+-  Pressestimme: 'Frankfurter Rundschau' zum Sieg der AfD bei der OB-Wahl in Pirna
+-  Pressestimme: 'Kölner Stadt-Anzeiger' zum Haushaltskompromiss der Koalition
+-  Pressestimme: 'Stuttgarter Nachrichten' zur Segnung homosexuelle Paare
+-  Pressestimme: 'Schwäbische Zeitung' zum Protest der Landwirte in Berlin
+-  Pressestimme: 'Leipziger Volkszeitung' zu Pirna
+-  Pressestimme: 'Rhein-Neckar-Zeitung' zu Kirche/Homosexuelle
+-  Pressestimme: 'Junge Welt' zum Verfassungsreferendum in Chile
+-  Pressestimme: 'Frankfurter Allgemeine Zeitung' zum Bauernprotest in Berlin
+-  Pressestimme: 'Handelsblatt' zum verpatzten Haushaltsfrieden
+-  우본, '우체국 동행 카드' 출시
+-  카카오내비, 이용자 선호 경로 반영
+-  1년간 자동차 보험사기 피해자 2633명에 12억8천만원 환급
+-  국내 주요항공사 앱 월간 이용자 300만명 육박
+-  내년 1월 국제선 유류할증료 인하
+-  日 '자가용 승차 공유' 내년 4월부터 부분 도입
+-  Ψηφίζεται σήμερα με διακομματική στήριξη η τροπολογία Καιρίδη - Η στάση Σαμαρά και οι διαφωνούντες βουλευτές της ΝΔ
+-  Quick Charge Podcast: December 18, 2023
+-  ΗΠΑ: Ο κυβερνήτης του Τέξας υπογράφει νόμο που ποινικοποιεί την παράνομη είσοδο μεταναστών
+-  El precio de la vivienda frenará en 2024 y crecerá por debajo de la inflación
+-  『魔導物語1－2－3（PC-9801版）』が「プロジェクトEGG」で本日リリース！
+-  IRCTC, IRFC, RVNL and IREDA Share Price Today
+-  Foreign Portfolio Investors Drive Record Purchases In Indian Equities
+-  Peso de la economía informal en el PIB alcanza su mayor nivel en 20 años
+-  İYİ Parti’de yaprak dökümü! İstanbul’da görevden alma, Manisa’da 21 istifa
+-  Ghaziabad में रेडीमेड कपड़ा फैक्टरी में लगी भीषण आग, एक घायल
