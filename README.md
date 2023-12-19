@@ -1,51 +1,11 @@
 # Latest News
--  주우재, 멋진 엄지척
--  주지훈 '힐링 미소'
--  김종국-주우재-하하, 유쾌한 포즈
--  Ezekre a címekre számíthatunk az Insomniactól
--  VAR danışıqlarından hamının xəbəri olacaq
--  رئيس المؤتمر يعزي بوفاة القاضي مطهر الارياني
--  Ukrajinska vojska želi mobilizirati još pola miliona ljudi
--  Limassol tourism board spearheads cycling network project
--  Cuidado con el Perro flow viejo de Wendy Guevara
--  Video/Foto: Sarajevo blista u prazničnoj atmosferi
--  رئيس الحكومة الليبية المكلفة يفتتح عدداً من الطرق والمشاريع الخدمية بطبرق
--  Mercato - PSG : Son transfert plombé par Zaïre-Emery ?
--  Κουίζ: Μπορείς να βρεις τη λέξη που λείπει από 10 ελληνικές παροιμίες;
--  Harvard College early applications drop 17% from last year
--  الجيش السوداني يفتح تحقيقا حول انسحاب قواته من مدينة "ود مدني"
--  U srijedu pretežno sunčano, najviša dnevna temperatura do 16 stepeni
--  Đurđev za BORBU: Mandića napadaju jer žele razbijanje jedinstvenog srpskog nacionalnog i duhovnog bića koje predstavlja opasnost za sve novokomponovane nacionalne identitete
--  الرئيس الأوكراني: واشنطن لن تتخلى عنّا وستمدنا بمنظومات دفاعية إضافية
--  أستاذة مناعة تحذر: أطعمة "موجودة في كل منزل" تدمر الكبد
--  مطور عقاري: العاصمة الإدارية الخيار الأول للاستثمار.. و5 مطالب لدعم المطورين
--  وزير دفاع الاحتلال: سنحضر كبار قادة حماس إلى المقبرة أو السجن
--  في استهداف قوة خاصة.. المقاومة تؤكد مقتل 8 جنود إسرائيليين شمال غزة
--  إعلام عبري: جنود مصابين في غزة يرفضون لقاء نتنياهو
--  بعد مدة من الحزن.. 5 أبراج على موعد مع انفراجات وحظ وأخبار سعيدة
--  الخارجية الأمريكية: يمكن التوصل إلى هدنة ممتدة إذا وافقت حماس على إطلاق سراح الأسرى
--  Unatoč aferi i štrajku Jurdani će i treći put produljiti mandat u Čistoći, jednostavno ne mogu naći boljega
--  Turci „preselili“ Savića i Krunića u Fenerbahče: Stefanov menadžer demantovao
--  الاحتلال يقتحم مستشفى المعمداني بغزة ويخرجه عن الخدمة
--  درجات حرارة حول الصفر وصقيع محتمل في الاردن
--  الحاج عمر عبد الرحيم العجل الحياري في ذمة الله
--  لا شيء مستحيل.. بسن التسعين حصلت على الماجستير
--  Elvis Merzlikins kan trejdas bort från Columbus Blue Jackets
--  Nucléaire: l'alliance industrielle sur les petits réacteurs se précise en Europe
--  Pétrole : pas de pénurie en vue en France malgré les tensions en mer Rouge
--  Climat : les économistes sceptiques sur les ambitions budgétaires du gouvernement
--  En Corse, la ministre Olivia Grégoire promeut l'installation de petits commerces ruraux
--  Projet de loi immigration : c'est officiel, députés et sénateurs ont arraché un accord
--  Games Inbox: What new consoles will be released in 2024?
--  Spider-Man: The Great Web was a PS5 live service title like GTA Online
--  Insomniac PS5 hack leaks Wolverine game footage and new X-Men game
--  Asgard's Wrath 2 review - VR game of the year
--  Paula Fernandes posa em árvore luxuosa de Natal
--  Assange appeal against US extradition set for February
--  عصير يقي من خطر الإصابة بالسرطان والسكري.. تحضير سهل في المنزل
--  Millions in opioid settlement funds sit untouched as overdose deaths rise
--  Dichiarazione dei Redditi 2024: nuovo calendario e Precompilata
--  Xóchitl Gálvez, al estilo AMLO, promete mantener programas sociales: ‘Gente dejará de ser pobre’
--  Pavel: Ako Tramp pobijedi na izborima doći do mirovnih pregovora bez obzira na mišljenje Kijeva ili EU
--  Bancada colorada felicita al Gobierno por el operativo en Tacumbú
--  Pysäyttäjää ei tunnu löytyvän - Tapparan raju voittoputki sai jatkoa
+-  Kärpät potki Lauri Marjamäen ulos - tulos ei muuttunut mihinkään
+-  Pelicans voitti taas HIFK:n - yksi taklaus sai Tommi Niemelän raivostumaan täysin
+-  القطاع المصرفي يستقطب ربع تريليون درهم ودائع في 12 شهراً
+-  كم راتب العاملة المنزلية؟ منصة مساند تجيب
+-  عاجل.. مداهمة مفاجئة لسكن عمالة في جدة .. ماذا عثر بداخله؟
+-  Θρίλερ με τον θάνατο δίδυμων παιδιών στο Μπρονξ - Η μητέρα τους τα βρήκε ξαφνικά νεκρά στο σαλόνι
+-  Minnesord om Gun Rinkmar Bengtsson
+-  In un finale punto a punto il Lietkabelis batte in casa Ulm
+-  Moti i keq në SHBA, humbin jetën 4 persona
+-  Liberados los norteamericanos Airan Berry y Luke Denman tras acuerdos de Barbados
