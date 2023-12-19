@@ -1,51 +1,11 @@
 # Latest News
--  4 فئات أكثر عرضة للإصابة بمتحور كورونا الجديد «JN.1».. اعرف طرق الوقاية
--  Le Canada affiche une croissance démographique record au troisième trimestre
--  Teens struggle to identify misinformation about Israel-Hamas conflict
--  Almost $2.7M in respite funding announced for 3 NWO programs
--  İşgalcilerin Kıbrıs'tan Gazze'ye 'deniz koridoru' planı: GKRY ile görüşme yapıldı
--  Maharashtra: 13 bonded labourers rescued, five out of 11 gang members held
--  News24 | Wednesday's weather: Partly cloudy, but warm to hot with scattered thunderstorms
--  Duro colpo alle IPTV illegali in Italia
--  Russian oligarch's 'mistress' who was left £100m inheritance including £12m Surrey mansion upon his death WINS court fight with his adult children who claimed his will 'had been torn up'
--  All The Best New Pop Music From This Week
--  Mosquera asegura que ningún ciudadano notará cambios con la Zona de Bajas Emisiones
--  Finma mit Flucht nach vorn
--  Μπισάνγκ: «Με συγκίνησαν οι αντιδράσεις, ξεκινώντας από εκείνη του Ολυμπιακού»
--  Mayor of North East Lincolnshire to do a 24 hour danceathon for charity
--  A man claiming to be a former Russian officer wants to give evidence to the ICC about Ukraine crimes
--  Girl, 13, among two arrested after police seize stolen toys near Camborne
--  UN Security Council in intense negotiations on Gaza humanitarian resolution, trying to avoid US veto
--  Au sud de Bordeaux, le Marché d’intérêt national de Brienne va être agrandi
--  Caso EDP: José Sócrates admite que "não sabia dos pagamentos" a Manuel Pinho
--  ‘Signs were there’: Kirsten Kluyts accused killer joked about drugging women
--  Friends organise huge charity ball in memory of tragic classmate
--  You Can Still Attend Madonna’s Celebration Tour: Here’s Where to Buy Tickets
--  Poseidón se destacó en el Campeonato Nacional de Natación Infantil en Pereira
--  UN Security Council in intense negotiations on Gaza humanitarian resolution, trying to avoid US veto
--  Se desborda de compradores Las Pulgas, Las Playitas y demás centros comerciales a cinco días de la llegada de la Navidad
--  Bundesverwaltungsgericht zu Kreuzerlass: Bayerische Kreuze siegen in Leipzig
--  В Южной Корее задержали симпатизировавшего КНДР китайского шпиона
--  KPRM: deficyt budżetu państwa w 2024 r. ma wynieść 184 mld zł
--  Controversial African mask sale cleared by French court
--  Российская актриса Александра Бортич снялась без штанов в подъезде
--  SUV driver Marisol Wentling who tipped car while doing donuts causing vehicle to CRUSH five people is seen in mugshot
--  Зеленский ответил, закончится ли война в 2024 году
--  Jorge Braz: «Queremos fechar a qualificação com 18 pontos»
--  Russian Wartime Emigres Head Westward in Europe in Search of Acceptance, Tolerance
--  Halifax County deputies want your help locating robbery suspect, sheriff's office says
--  Modern slavery ‘a feature’ of care sector in England since Brexit
--  Crise du logement : une start-up propose de construire des habitations dans les jardins des particuliers
--  Fusione degli aeroporti sardi, iniziato lo scontro davanti al Tar
--  Anabel Belloso llama a los salvadoreños a votar por el FMLN para volver al país de hace algunos años
--  Απόλλων Λεμεσού: Πλήγμα με Γιούρσεβιτς και Πεμπερνές
--  Profesor koji se tukao s učenikom doživio je tešku obiteljsku tragediju i bio rastrojen, zašto je uopće radio!?
--  TV presenter Phil Spencer's parents in their 80s died after their car crashed in accident on the family farm and overturned in a river, coroner rules
--  Poland’s new government appoints new chiefs for intelligence, security and anti-corruption agencies
--  I tried Glossybox's £25 rival beauty box to Boots with over £100-worth of Rituals, Bobbi Brown, Laura Mercier and bareMinerals products
--  Thomas Müller verlängert Vertrag beim FC Bayern München!
--  VELIKI UDARAC ZA FAVORITA IZ SENKE Belgija bez prvog golmana na Evropskom prvenstvu
--  Ongehoord Nederland mag definitief blijven uitzenden
--  Tirsdagens aktier: DSV kørte fra alle mens Mærsk fik en dukkert på humørfyldt dag
--  Tirsdagens aktier: DSV kørte fra alle mens Mærsk fik en dukkert på humørfyldt dag
--  Pretoria veut que le génocide contre le peuple palestinien cesse
+-  Cumhurbaşkanı Erdoğan'dan Kuveyt'in yeni emiri Şeyh Meşal'e tebrik
+-  PrimeLash Mascara Reviews - Must Read Before You Buy!
+-  Yavatmal farmer consumes pesticide near Maharashtra legislature complex
+-  Wolfsburg vs Bayern Munich: Lineups, team news, will Kimmich and Goretzka get benched, and more!
+-  Exclusive Thanksgiving Deleted Scene From Eli Roth’s Latest Horror Movie
+-  " نسيم الرياض" تحصل على شهادة الآيزو
+-  الإطاحة بشخص في الجوف لترويجه 60 ألف قرص مخدر
+-  للتحدث لموظف التأمينات.. تعرف على مواعيد عمل مركز الاتصال على الرقم المجاني
+-  New Shepard, la petite fusée de Jeff Bezos, décolle pour la première fois plus d’un an après un accident
+-  200 milyon dozdan fazla Covid-19 aşısı çöpe gitti
