@@ -1,51 +1,51 @@
 # Latest News
+-  Arkas Spor play-off turunda
+-  Cenas de Navidad y Año Nuevo: tres recetas buenas, bonitas y baratas
+-  Ex-wife Of French Serial Killer Sentenced To Life Over Three Murders
+-  Araçlarını soğuktan böyle korudular
+-  الأعلى تقييمًا في مباراة تشيلسي ونيوكاسل
+-  Scooter Braun visits hostage families HQ and offers support
+-  Inside: Das Main-Echo-Reporterteam in Lohr
+-  [AM-PM] 내년도 예산안 처리 시한…여야 막판 협상 外
+-  Ex-gang leader seeking release from Las Vegas jail ahead of trial in 1996 killing of Tupac Shakur
+-  Complicado duelo en Pucela
+-  Frosinone izbacio aktualnog prvaka iz Coppa Italije
+-  पंजाब कांग्रेस में एक बार फिर सिद्धू वर्सेज ऑल, प्रताप सिंह बाजवा ने दी नसीहत
+-  పొట్టకూటికి వెళ్లి ఎడారిలో అనాథ శవమై..
+-  మేడిగడ్డ దర్యాప్తుపై మీ వైఖరేంటి?
 -  팔공산 1cm 미만 눈...대구 팔공산로 일부 교통통제
+-  Пак скандал в Турция заради недоволен от съдия президент
+-  ALBA PRIREDILA SENZACIJU Virtus slavio u derbiju, Makabi bolji od Baskonije
 -  Barranquilla rinde homenaje a Shakira con una estatua que captura su esencia artística
 -  Banco de la República recorta 25 puntos a la tasa de interés y la deja en 13 %
+-  إحصائيات مباراة تشيلسي ونيوكاسل يونايتد في كأس الرابطة الإنجليزية
+-  కోడికత్తి కేసులో మధ్యంతర ఉత్తర్వులు పొడిగింపు
+-  Le projet de loi immigration est adopté à l’Assemblée, grâce aux voix de LR et du RN
 -  הנה כל מה שקובע את גודל כפות הרגליים שלכם - וכיצד תוכלו לשנות אותו
 -  צ'לסי ניצחה את ניוקאסל בפנדלים בגביע הליגה, בכורה לאנקונקו
 -  פריצת דרך מדעית: שיחה בין אדם ללווייתן תוביל ליצירת קשר עם חייזרים
 -  מזה עשור מנסים לפענח מה נכתב בפתק החבוי בשמלת משי מהמאה ה-19 - ועכשיו הצליחו
+-  జగన్‌ తీరుతోనే వైసీపీలో తిరుగుబాటు
+-  Gambling reform would honour late MP's work: advocates
+-  永瀬廉 「今年はもうほぼ海人」
 -  „Haben uns alles anders vorgestellt“: BVB-Trainer Terzic nach Desaster vor dem Aus
 -  الاستخبارات الصهيونية : محمد الضيف يمشي على قدميه
 -  Gol düellosunda kazanan çıkmadı!
 -  İran, İsveç temyiz mahkemesinin Hamid Nuri kararını kınadı
 -  Napoli'ye kupada soğuk duş!
+-  Volunteers, Aid Workers Rally To Help Guinea After Fuel Depot Fire
+-  శ్వేతపత్రాలకు వేళాయె!
+-  వీఆర్‌ఏలు చేసిన పాపమేంటి?
+-  G7 외교장관, 北 ICBM 발사에 "가장 강력히 규탄"
 -  Pınar Karşıyaka ikinci olarak play-in turuna kaldı
+-  PRIZNANJE ZA PIKSIJA Dragan Stojković postao počasni građanin Gradske opštine Palilula u Nišu
+-  Milan, giovedì pomeriggio la partenza per Salerno. Il rientro a Milano subito dopo la partita
 -  Moment desperate neighbour lobs a FIREPIT at crazed ‘XL Bully’ to stop it mauling pup in vicious daylight attack
+-  30 శాతం ఐఆర్‌ ప్రకటించండి!
+-  Terzic: "Wie lange ich hier bin, das entscheide nicht ich"
+-  Qué migrantes quedarían eximidos de la severa ley SB4 promulgada en Texas
 -  Subasta de 5G: Esto es lo que debe saber del proceso que se hará el 20 de diciembre
+-  Die Gebetsraumfrage und der Berliner Schulfrieden : Bildungssenatorin sieht Grenzen bei der Religionsausübung
 -  Partizan slavio u Valensiji
--  Donald Trump holds lead in Iowa, New Hampshire
--  ఇసుక కేసులో విచారణ నేటికి వాయిదా
--  Expertos recomiendan que Barbie amplíe su abanico de profesiones médicas y científicas
--  Seed farmers hope for dry weather
--  "Igrali smo kako Valensija igra - pokazali smo karakter!" Prvi utisci Željka Obradovića nakon istorijskog trijumfa Partizana u Fonteti
--  Fulham, Chelsea u Middlesbrough javvanzaw
--  Marilina y Will podrían volver a mostrarse juntos esta noche
--  Soccerladuma | Chelsea Through To Carabao Cup Semi-Finals
--  Canucks Q&A: Engaging, educated Nikita Zadorov comes to the emotional rescue
--  What the Apple Watch Import Ban Means for Consumers and the Company
--  BYD Seal vs enthusiasts
--  Japan Steps Up to Help Asia Achieve Its Decarbonization Goals
--  Discovering the benefits of fee free TAFE
--  Duck hunting discussed
--  AUTOMOBILOM NALETELA NA DETE PA POBEGLA Nesreća u Sinju: Devojčica hitno prevezena u bolnicu
--  Biljana Đorđević: Ovo je borba za naše glasove, a ne vlast
--  Evelyn Vanessa Calderón tacha a Los Hackers de desagradables
--  Andrea García aclara sus intenciones dehacer una bioserie o película sobre su padre
--  Inside Adam Collard’s romantic holiday to Amsterdam with girlfriend Laura Woods as he shares plans for marriage and kids
--  Inside Adam Collard’s romantic holiday to Amsterdam with girlfriend Laura Woods as he shares plans for marriage and kids
--  Parents and uncle convicted of "honor killing" Pakistani teen in Italy
--  Chelsea player ratings: Thiago Silva puts in another assured display but defensive partner Badiashile has horror show
--  Chelsea player ratings: Thiago Silva puts in another assured display but defensive partner Badiashile has horror show
--  Sorprese per il programma di autoriparazione di Samsung: arrivano i pieghevoli
--  Njemački sud odlučio: Söderova uredba zakonita, raspela ostaju u bavarskim državnim ustanovama
--  వ్యాజ్యాలపై లోతైన విచారణ జరుపుతాం
--  Ensuring a safe boat season
--  డీజీపీగా రవిగుప్తా కొనసాగింపు
--  Chelsea fan runs onto the pitch and barges Newcastle goalkeeper Martin Dubravka
--  Мадуро обсудил вопросы развития сотрудничества Венесуэлы с испанской компанией Repsol
--  Food delivery workers face reduced hours and tips after NYC’s minimum wage hike: report
--  Украине передали в качестве гуманитарной помощи безалкогольное пиво
--  Donations needed to provide Ottawa households with a Christmas supper
--  Englannin liigacupissa valtavaa draamaa - ukrainalainen tarjosi Chelsealle valonpilkahduksen
+-  Latino Film Institute Reveals 2024 Inclusion Fellows
+-  Here are a few last-minute gifts you can still grab in time for the holidays
