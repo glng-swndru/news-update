@@ -1,11 +1,51 @@
 # Latest News
--  Prof. Dr. Naci Görür: Marmara depreminde fay eğer peş peşe kırılırsa 7.5'e kadar çıkar...
--  News24 | Here are the Daily Lotto numbers
--  Los Santos registra la segunda defunción por dengue
--  Droga estaba oculta en el maletero de un taxi
--  Grupos de derechos presentan una demanda contra ley de Texas que permite expulsar migrantes
--  Chanceleres da Itália e Reino Unido se reúnem em Roma
--  Premiê irlandês é alvo de trote de comediantes russos
--  Argentina propõe cúpula entre América Latina e Ucrânia
--  Safari magic as Werribee Open Range Zoo welcomes three little Giraffe
--  Raspberries and cream Christmas tarts
+-  בנימין: "יש בהפועל ת"א צעירים מהטובים בארץ, כולנו נגיע רחוק"
+-  ממשיכה בשלה: ריאל מדריד ניצחה את הכוכב האדום בלגרד
+-  Blizzard releases roadmap for World of Warcraft leading up to The War Within
+-  Kickoff | Man City book first-ever CWC final berth
+-  VIDEO Pogledajte nevjerojatne prizore s Islanda: Lava posvuda, stupovi dima ispunili su nebo...
+-  Jakšić Stojanović: Status prosvjetnih radnika rješavati...
+-  Jeffrey Epstein list: More than 170 people may be named in the new year
+-  VÍDEO: Mulher mostra por que banho em Husky siberiano é o mais caro da petshop
+-  Uusi valmentaja, sama lopputulos - näin Kärpistä kommentoitiin tappiota
+-  Risto Dufva veisteli Kärppien uudesta valmentajasta - "Ehkä mä lähden johonkin toiseen paikkaan"
+-  Meg kell ismételni a 2021-es berlini választásokat
+-  US leads Red Sea operation amid attacks trade fears
+-  Cortizo entrega medalla a la excelencia en grado de oficial
+-  Argentina no designará embajadores ante Venezuela, Cuba y Nicaragua
+-  Recept na dnes: Zabudnite na vianočku, táto tvarohová štóla nesmie na vašom sviatočnom stole chýbať!
+-  Belliboni pedirá una reunión con el ministerio de Seguridad porteño: “Si hay incidentes es culpa del Gobierno”
+-  A1 Group von Moody's von Baa1 auf A3 hochgestuft, Ausblick stabil
+-  Monique Olivier condamnée à la perpétuité pour complicité dans trois crimes commis par Fourniret
+-  (UZNEMIRUJUĆ SNIMAK) PROZVALI GA ČETNIČKIM VOJVODOM: Tuča profesora i učenika u zagrebačkoj srednjoj školi, krv po učionici (VIDEO)
+-  عاجل.. أهم 10.. قرارات جديدة لمجلس الوزراء وتطبيق حكم الشرع في مواطنين ارتكبا جرائم مروعة
+-  Lewy obrońca Realu Madryt wypada z gry do końca roku
+-  VIDEO: Pogledajte sjajnu prvu asistenciju Franjića u dresu Darmstadta
+-  Сенат Франции одобрил текст проекта "об убежище и миграции"
+-  إحصائية كارثية لألميريا قبل مواجهة برشلونة
+-  Manchester City zieht ins Finale der Club-WM ein
+-  'No matter the sacrifices': Houthi rebels vow to continue Red Sea attacks despite US-led task force
+-  WATCH | Volcano erupts in southwest Iceland after weeks of earthquakes
+-  US-Anleihen: Kursgewinne - Zinssenkungserwartungen dominieren weiter
+-  Зеленский высказался по вопросу переговоров с Россией
+-  بالصورة- بفستان أسود قصير..هنا شيحة تبهر الجمهور بلوك مميز وأنيق
+-  بالصور- بلوك أبيض شيك..درة التونسية تتألق بجمالها وأناقتها
+-  بالصورة- من داخل سيارتها.. أيتن عامر تخطف الأنظار بأنوثتها
+-  Salernitana Milan, caos in casa granata: nominato il nuovo direttore generale!
+-  سيتي يصعد لنهائي مونديال الأندية بثلاثية في مرمى أوراوا
+-  Signa води преговори за продажбата на дела си в емблематичната Chrysler Building
+-  VEĆ JE POZNATO Evo koji je Tobijev novi klub
+-  خلال ساعات.. استشهاد 232 فلسطينيًا في القصف الإسرائيلي على غزة
+-  СКА — «Сочи»: видеообзор матча КХЛ
+-  El ejército ucraniano propone movilizar a 500.000 nuevos reclutas
+-  VIDEO: Kramarić mirno zabio za vodstvo protiv Darmstadta
+-  West Indies choose to bowl as Forde makes T20I debut
+-  Baghpat News: भाई ने मोबाइल छीना, बहन ने फांसी लगाकर जान दी
+-  Agra News: मत्स्य संपदा योजनाएं जन-जन तक पहुंचाई जाएं
+-  Estopa regresa a Venezuela para celebrar por todo lo alto sus 25 años de carrera
+-  Revelan INESPERADO MOTIVO por el que Chivas FICHÓ a Fernando Gago como su nuevo DT ¿En serio? | FICHAJES 2024
+-  El único habitante de la Bitcoin City lleva 2 años esperando que se cumplan las promesas
+-  La Junta de Cofradías otorga su Medalla de Oro al vicealmirante Ignacio Frutos
+-  Bareilly News: आईवीआरआई में वेटरनरी पैथोलॉजी कांग्रेस आज से
+-  Baghpat News: बागपत में खुलेआम नशे का धंधा, पुलिस बेखबर
+-  Asi se vería el planeta Tierra sin agua, según la inteligencia artificial
