@@ -1,51 +1,51 @@
 # Latest News
--  Zorgen bij VVD en GroenLinks over busuitval in Stad
--  Koalícia sa tesne vyhla veľkému faux pas: Z 1. septembra spravili pracovný deň, zabudli na zatvorené obchody!
--  일산 두산위브더제니스 등 2곳 국토부 공동주택 우수관리단지 선정
--  도 체납자 공탁금 압류 21억 징수
--  10년 후 소아과 부족 예측 "걱정이 태산"
--  수원시 등 9개 시·군 임야 토지거래 허가구역 재지정
--  부실공사 예방 경기도 묘안 정부 정책에 대거 반영
--  차세대융합기술연구원, ‘2023 벤처창업진흥 유공’ 장관상 수상
--  수원형 공공재개발 공모 팔달·권선구 등 5곳 신청
--  용인도시공사 평온의 숲 가족형 수목장 132기 추가 조성
--  수원시 한파 취약계층 난방비 보탠다
--  ‘국힘 영입 1호’ 이수정 수원정 출사표
--  수변구역 규제 해제 관련 난개발 발언에 질타 쏟아져
--  용인시 내년에 ‘인구 110만 명’ 벽 넘는다
--  한우협회 연천군지부 사골곰탕 300팩 군에 나눔
--  로보큐브테크 구리적십자에 기부금 2500만 원 전달
--  농협 인천옹진군지부 등 지역 인재육성 장학금 기탁
--  국민의힘 경기도당 주요 당직자 저소득층 주민에 연탄 나눔 봉사
--  수원소방서 화재안전 대책 만전 연세수 요양병원서 컨설팅 마련
--  인천 서구보건소 어르신 건강관리 성과
--  포스코인터내셔널 노인복지 향상 ‘시동’
--  김대남 국민의힘 용인갑 예비후보 제10회 독도 홍보대상 수상 ‘영예’
--  40년 전 선배에게 받은 도움 후배들에게 갚아야죠
--  KG 모빌리티 생산라인 유연성 확보… 평택공장 조립3라인 통합공사 준공
--  삼성, IT 미래 씨앗 아낌없는 투자
--  도 콘텐츠분야 창업 든든한 지원군
--  벤처창업∼산학연 활성 도 경제 혁신성장 주역들
--  고양창릉 자율주행~로봇 ‘스마트 빌딩’ 조성
--  인천경찰청, 이선균 씨에게 먀약 공급한 의사 영장 재신청
--  치과서 집중력 치료제 사용 수상 마약류 셀프 처방 50대 의사 입건
--  마른 하늘에 대형 고드름 떨어질라 인천지역 곳곳 낙하사고 등 주의를
--  행감서 공무원에 부적절 언행 서구의원 윤리특위 회부될까
--  도로 얼면 어쩌려고… 꽉 막힌 빗물받이
--  한파에 눈까지…
--  연말 다가오는데 인천 이웃 나눔 열기는 싸늘
--  인천경영포럼 시민과 함께하는 송년음악회
--  인천 장애인콜택시 운행지 내일부터 수도권 전역 ‘콜’
--  인천 남동구 주소정보시설 확충 행안부 장관 표창
--  잘 지었나 볼까
--  "인천서 사업하기 좋게끔 혁신 필요"
--  인천 원도심 개발 휘슬 불었지만 아슬아슬
--  푸드트럭 조리 중 폭발사고… 기다리던 아이 등 둘 화상
--  대통령 처가 ‘양평 공흥지구 재판’ 증인신문 순서 놓고 공방
--  폐기물 처리비용 받고 421t 불법 매립
--  교육부, 내년 학교복합시설 40곳에 3600억 투입
--  "CCTV 찍혀도 식별 못해" 쓰레기 무단 투기 대책 ‘골머리’
--  제4회 올해의 기호자치의정대상 공모
--  국힘 ‘서울메가 시티’ 고삐 풀린 광폭 행보
--  송영길 구속 총선 ‘핫이슈’ 될까
--  검단까지 서울행? 서구 주민 뿔났다
+-  Martes mayormente nublado
+-  동대구~부전 ITX새마을-마음 운행 시작
+-  월암초 류연후, NIE 환경일기 공모전 ‘대상’
+-  신나는효목지역아동센터 사랑의 몰래산타 대작전
+-  계명대, 대학생 공작기계 창의아이디어 ‘최우수’
+-  野, 北 미사일 도발에 “尹정부 안보 무능 걱정”
+-  최상목 “부동산 PF, 연차륙 지원·제도 개선”
+-  기후위기 대응 첫 번째 ‘푸른 발자국’
+-  내년 상반기 거짓 구인광고 온라인 신고센터 운영
+-  ‘함께의 가치’ 실현…취약계층 어르신에 김장 배달
+-  아프리카TV, 신입사원 공채…총 9개 부문
+-  출향인 신동수씨, 상주 함창읍에 1천만원 기탁
+-  민주, 비명 공천 부적격 판정에 “친명 검증 시작인가”
+-  與, 비대위원장 이번 주말까지 지명할 듯
+-  해수부, 오징어 어업인에 긴급경영안정자금 지원
+-  한동훈 “모든 길, 처음엔 길이 아니었다”
+-  경산시, 올해 최종 예산안 1조4천220억 편성
+-  “사랑나눔 교육기부 앞장 선 여러분들에 감사”
+-  지난달 엔화 예금 역대 최대 폭 증가
+-  “지방화 이끌 출발점 만든 한해...내년 민간주도 지역발전 전환”
+-  울릉군, 먼 섬 지원 특별법 통과 총력전
+-  포항시-대구한의대, 해양 전문인력 양성 협약
+-  경산 장애인보호시설서 10대 학대 복지사 4명 검찰, 불구속 기소 처분
+-  안동병원, 결핵 적정성 평가 ‘최우수 등급’
+-  대구신문 손님
+-  대구 시민햇빛발전소 10~13호기 준공
+-  제18회 DIMF 창작사업 참가 작품 공모
+-  안동댐 물문화관 26일부터 운영 종료
+-  가스公 서구 주민설명회 또 파행…“생명 담보로 장사하냐”
+-  “대구 안경산업 가능성 확인” 아이웨어 디자인어워즈 성료
+-  K팝 음반 판매량 연간 ‘1억장’ 시대…11월 월간 최고치
+-  대구기업 ESG 경영 컨설팅 지원사업 최종 보고회
+-  차별화 꾀한 ‘경성크리처’ ... “슬픈 정서 담은 우리만의 괴물”
+-  Солиқ идораларининг уч нафар мансабдори қамоққа олинди.
+-  МБнинг Бухоро вилояти бўйича бошлиғи ва собиқ туман ҳокими ҳибсга олинди.
+-  Operação fiscaliza ar-condicionado dos ônibus intermunicipais
+-  포스코홀딩스, 지배구조 개선안 확정…21일 CEO후보추천위원회 본격 가동
+-  'Ami KKR' Mitchell Starc Reacts After Becoming Most Expensive Player in IPL History (Watch Video)
+-  UK: 16-year-old Girl Dies From Blood Clot in Brain Weeks After Taking Contraceptive Pill to Ease Period Pain
+-  El restaurado mural de Gascón Castelló ya decora la fachada del Museo Boca del Calvari de Benidorm
+-  Akşener'den istifalara tepki: Ben bu konuda idmanlıyım
+-  100 bin TL'lik kira çok geldi! Afra Saraçoğlu taşınıyor
+-  Süper Lig devinden Bakasetas hamlesi
+-  TATA IPL Auction 2024 Live Update: रिकी भुईला दिल्ली कॅपिटल्सच्या ताफ्यात, 20 लाख रुपयांत केले खरेदी
+-  Muscat's 'hasty' constitutional case on VGH inquiry leaks puts him in a legal hole, court told
+-  Sports News | IPL Auction: Karun Nair, Manish Pandey, Steven Smith Go Unsold
+-  Simboli i shqiponjës dykrenare po kthehet në trend botëror/ Pas Drake, edhe sportisti i njohur surprizon shqiptarët
+-  No Russia at Davos – ambassador — RT World News
+-  아이브 장원영, 어떤 드레스도 입었다 하면 '공주님'
+-  Pilotka Sandra za svoj sen zaplatila viac ako 60-tisíc eur: Počas pristávania sa nám raz nevysunuli klapky
