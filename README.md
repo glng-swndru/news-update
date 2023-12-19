@@ -1,11 +1,11 @@
 # Latest News
--  القوات المسلحة ترسل طائرة مساعدات إغاثية إلى غزة
--  روسيا: إسرائيل ألقت 29 ألف قنبلة على غزة
--  القسام تقصف كريات شمونة وتستهدف قوة إسرائيلية وسط القطاع
--  محام فرنسي يؤكد المضي بمقاضاة نتنياهو أمام الجنائية الدولية
--  LIVE TOTO KNVB Beker | Quick Boys en De Graafschap trappen bekeravond af
--  فصل مبرمج للكهرباء عن مناطق بالأغوار الشمالية الاربعاء
--  2e manager die de zak krijgt in de Premier League: Steve Cooper ontslagen door Nottingham Forest
--  Karnataka to increase COVID-19 testing to 5,000 a day, issues guidelines for genome sequencing
--  Scende dal bus ma si dimentica il freno: 4 passeggeri all'ospedale
--  Este es el pasaporte “más poderoso del mundo”, codiciado por los hispanos
+-  台積電劉德音突宣告2024退休，魏哲家有望接董座
+-  AEW Collision Has Very Small Rise in Ratings & Viewership for Texas Show
+-  توجيه من الشؤون الإسلامية بشأن خطبة الجمعة القادمة
+-  "الأحوال المدنية" تكشف عن 4 خطوات لتنفيذ خدمة تفعيل الهوية الوطنية
+-  Защитник на Локо Пловдив: Сам ще реша бъдещето си, очаквам оферти
+-  Sticky fingers and burger wars: odd moments in IP law 2023
+-  Company behind Auckland apartment development owes $8m
+-  Failed property developer’s debts climb
+-  Một quỹ thuộc Dragon Capital công bố hiệu suất cao gấp đôi VN-Index
+-  Khi những sản phẩm du lịch mới trở thành biểu tượng
