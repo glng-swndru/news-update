@@ -1,51 +1,11 @@
 # Latest News
--  La Audiencia Nacional rastrea los ingresos y el contrato del exadministrador de la RFEF
--  La Audiencia Nacional rastrea los ingresos y el contrato del exadministrador de la RFEF
--  IPL Auction 2024 LIVE: 77 खेळाडूंवर खर्च होणार 263 कोटी, लिलावासाठी 333 खेळाडू मैदानात
--  Yarından itibaren benzine 1 lira 49 kuruşluk zam geliyor
--  Bahisçilere şafak operasyonu
--  İletişim Başkanlığı'ndan New York Times'a tepki
--  Meteoroloji uyardı: Sıcaklık mevsim normallerinin altına düşüyor
--  Kurtlar sürüye saldırdı
--  Çin'de 6.2 büyüklüğünde deprem!
--  Feijóo exige un intercambio por escrito de los temas a tratar o no habrá reunión con Sánchez
--  이통 3사 '양자암호통신 기술' 개발 각축전...6G 적용에도 속도
--  '애 낳으면 1억 준다' 파격 정책 쏟아지자 돌아보게 되는 허경영 공약
--  IPL Auction 2023 LIVE: Australian stars go under the hammer in Dubai
--  IPL Auction 2023 LIVE: Australian stars go under the hammer in Dubai
--  First Australian baby produced from uterus transplant born
--  Les Etats-Unis annoncent une coalition de 10 pays, dont le Bahreïn, contre les attaques des Houthis
--  حزب الله يتوعد بالرد على استهداف المدنيين و"إسرائيل": الحرب باتت أقرب
--  Suomen väkiluku ylitti 5,6 miljoonaa henkeä
--  המס על הקולה: הסיפור האמיתי והאשם הלא צפוי
--  Aktivistischer Investor Cevian steigt bei UBS ein
--  내년 자동차보험 정비요금 3.5% 인상…국토부 중재로 극적 타결
--  Участок на "оранжевой" ветке метро будет закрыт с 3 по 8 января из-за прокладки теплосети
--  روما يفتح أبواب رحيله أمام ريناتو سانشيز
--  김일성 찬양물 만든 해군 병장 기소…中에 군사기밀 유출도
--  İstanbul’un bir çilesi daha bitiyor! İmamoğlu yeni metro hattını duyurdu
--  [속보] 코스피, 1.69p(0.07%) 오른 2568.55 마감
--  Resul Tosun yazdı: Ebu Ubeydelere adanan ödül!
--  Ferudun Niğdelioğlu yazdı: Yolun sonu
--  Fenerbahçe'den Ferdi Kadıoğlu resti! "Teklif getirmeyin"
--  Türkiye'nin hakikat mücadelesi
--  Amerikan akademisinde Filistin imtihanı
--  Galatasaray ile Fatih Karagümrük, 19. kez kozlarını paylaşacak
--  Susarak, tarihsel günahınıza yenisini eklediniz
--  Anwerbung soll attraktiver werden: Lauterbach will Pflegekräften per Gesetz mehr medizinische Kompetenzen geben
--  Adnoc bereitet höheres Covestro-Übernahmeangebot vor - Agentur
--  Ravi Chauhan IPL Auction 2024 Live Updates: रवि चौहान आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
--  Lalit Yadav IPL Auction 2024 Live Updates: ललित यादव आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
--  Kuldip Yadav IPL Auction 2024 Live Updates: -कुलदीप यादव आईपीएल 2024 में अनकैप्ड, जानें नीलामी में क्या हुआ?
--  دول تزعم أمريكا أنها حاولت التدخل في انتخابات الكونغرس.. كيف حدث ذلك؟
--  오스템임플란트, 사우디 산자부 만났다···"'치과 인프라 구축' 맞손"
--  Previsión del tiempo en Melilla: martes 19 de diciembre de 2023
--  ميلان يرسل كشافيه لألمانيا من أجل جيراسي
--  رئيس وزراء النيجر: الأسلحة الروسية ساعدتنا في مواجهة الجماعات المسلحة بفعالية ونسعى لتعاون أوسع
--  최대 한파에도 신안군 야외(노지) 겨울꽃 축제 성공
--  Wetter im Ticker - Kurz vor Höchststand: Hochwasser-Lage am Rhein spitz sich zu
--  Tracked (2023) Season 1 Streaming: Watch & Stream Online via HBO Max
--  تفاصيل مباراة مانشستر سيتي أمام أوراوا الياباني في كأس العالم للأندية
--  Auffällige Tarnung - Russland setzt auf Drohnen-Perücken zur Abwehr von Drohnen
--  Китай струсонув страшний землетрус: майже 120 загиблих та сотні поранених
--  韓國電商 Coupang 收購精品電商平台 Farfetch
+-  Узнали, когда и на сколько таджикские школьники уйдут на зимние каникулы
+-  송기섭 진천군수
+-  최재형 보은군수
+-  황규철 옥천군수
+-  정영철 영동군수
+-  송인헌 괴산군수
+-  조길형 충주시장
+-  김문근 단양군수
+-  김창규 제천시장
+-  이완섭 서산시장
