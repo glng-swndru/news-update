@@ -1,51 +1,11 @@
 # Latest News
--  Martes mayormente nublado
--  동대구~부전 ITX새마을-마음 운행 시작
--  월암초 류연후, NIE 환경일기 공모전 ‘대상’
--  신나는효목지역아동센터 사랑의 몰래산타 대작전
--  계명대, 대학생 공작기계 창의아이디어 ‘최우수’
--  野, 北 미사일 도발에 “尹정부 안보 무능 걱정”
--  최상목 “부동산 PF, 연차륙 지원·제도 개선”
--  기후위기 대응 첫 번째 ‘푸른 발자국’
--  내년 상반기 거짓 구인광고 온라인 신고센터 운영
--  ‘함께의 가치’ 실현…취약계층 어르신에 김장 배달
--  아프리카TV, 신입사원 공채…총 9개 부문
--  출향인 신동수씨, 상주 함창읍에 1천만원 기탁
--  민주, 비명 공천 부적격 판정에 “친명 검증 시작인가”
--  與, 비대위원장 이번 주말까지 지명할 듯
--  해수부, 오징어 어업인에 긴급경영안정자금 지원
--  한동훈 “모든 길, 처음엔 길이 아니었다”
--  경산시, 올해 최종 예산안 1조4천220억 편성
--  “사랑나눔 교육기부 앞장 선 여러분들에 감사”
--  지난달 엔화 예금 역대 최대 폭 증가
--  “지방화 이끌 출발점 만든 한해...내년 민간주도 지역발전 전환”
--  울릉군, 먼 섬 지원 특별법 통과 총력전
--  포항시-대구한의대, 해양 전문인력 양성 협약
--  경산 장애인보호시설서 10대 학대 복지사 4명 검찰, 불구속 기소 처분
--  안동병원, 결핵 적정성 평가 ‘최우수 등급’
--  대구신문 손님
--  대구 시민햇빛발전소 10~13호기 준공
--  제18회 DIMF 창작사업 참가 작품 공모
--  안동댐 물문화관 26일부터 운영 종료
--  가스公 서구 주민설명회 또 파행…“생명 담보로 장사하냐”
--  “대구 안경산업 가능성 확인” 아이웨어 디자인어워즈 성료
--  K팝 음반 판매량 연간 ‘1억장’ 시대…11월 월간 최고치
--  대구기업 ESG 경영 컨설팅 지원사업 최종 보고회
--  차별화 꾀한 ‘경성크리처’ ... “슬픈 정서 담은 우리만의 괴물”
--  Солиқ идораларининг уч нафар мансабдори қамоққа олинди.
--  МБнинг Бухоро вилояти бўйича бошлиғи ва собиқ туман ҳокими ҳибсга олинди.
--  Operação fiscaliza ar-condicionado dos ônibus intermunicipais
--  포스코홀딩스, 지배구조 개선안 확정…21일 CEO후보추천위원회 본격 가동
--  'Ami KKR' Mitchell Starc Reacts After Becoming Most Expensive Player in IPL History (Watch Video)
--  UK: 16-year-old Girl Dies From Blood Clot in Brain Weeks After Taking Contraceptive Pill to Ease Period Pain
--  El restaurado mural de Gascón Castelló ya decora la fachada del Museo Boca del Calvari de Benidorm
--  Akşener'den istifalara tepki: Ben bu konuda idmanlıyım
--  100 bin TL'lik kira çok geldi! Afra Saraçoğlu taşınıyor
--  Süper Lig devinden Bakasetas hamlesi
--  TATA IPL Auction 2024 Live Update: रिकी भुईला दिल्ली कॅपिटल्सच्या ताफ्यात, 20 लाख रुपयांत केले खरेदी
--  Muscat's 'hasty' constitutional case on VGH inquiry leaks puts him in a legal hole, court told
--  Sports News | IPL Auction: Karun Nair, Manish Pandey, Steven Smith Go Unsold
--  Simboli i shqiponjës dykrenare po kthehet në trend botëror/ Pas Drake, edhe sportisti i njohur surprizon shqiptarët
--  No Russia at Davos – ambassador — RT World News
--  아이브 장원영, 어떤 드레스도 입었다 하면 '공주님'
--  Pilotka Sandra za svoj sen zaplatila viac ako 60-tisíc eur: Počas pristávania sa nám raz nevysunuli klapky
+-  Rząd planuje przedłużenie zawieszenia wypłat dodatku energetycznego na 2024 r.
+-  Kontrakty znów w zieleni
+-  Deficyt budżetu na 2024 r. wyniesie 184 mld zł
+-  'Here We Go' 로마노 컨펌! PSG, 브라질 20세 유망주 DF 영입 협상 빠르게 진행 중
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 20 декабря 2023 года
+-  Tinubu Has No Constitutional Right To Intervene In Rivers Crisis – Robert Clarke
+-  На Дону еще 804 человека подхватили ковид
+-  Partidos de hoy, martes 19 de diciembre: revisa la programación de los torneos internacionales
+-  সরিষাবাড়ীতে নৌকা ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ, আহত ৪
+-  Ҳусийчилар юк кемаларга ҳужум қилмоқда, Пентагон халқаро коалиция тўплади.
