@@ -1,51 +1,51 @@
 # Latest News
--  라이드플럭스, 2023 IP-R&D 우수기관 선정
--  개인정보위, 스마트카 업계 개인정보 보호 어려움 청취
--  القوات البحرية تستلم الفرقاطة "القدير" من طراز (MEKO-A200)
--  مجلس النواب يوافق مبدئيا على قانون نقابة التكنولوجيين
--  وزير الدولة للإنتاج الحربي يؤكد أهمية السعي لتحقيق أقصى معدلات الجودة
--  تابعة لـ "بلتون" تعتزم شراء 51% من أسهم شركة للتقاوي بـ 140 مليون جنيه
--  Karşılıksız çek tutarı arttı
--  La Casa de Papel dizisinin oyuncularından Gazze paylaşımı
--  क्या आप जानते हैं सोया चंक्स के स्वास्थ्य लाभ?
--  Само 27 проценти од учениците во Македонија се чувствуваат целосно безбедни во училиштето
--  Vratar PSG-a žrtva provalnika i pljačkaša, njegova partnerica dobila je udarac u lice
--  ممثلة اليونيسف في السودان: أشعر بقلق بالغ إزاء تصاعد العنف في مدينة ود مدني بولاية الجزيرة
--  (VIDEO) Zbog jedne divne crne žene u Sao Paulu: Oružana otmica nekadašnjeg saigrača Miroslava Đukića u timu Valensije, strelca protiv Jugoslavije 1998.
--  Isa Serra se presenta a las primarias de Podemos Madrid para intentar resucitar el proyecto en la capital
--  क्या आप जानते हैं सर्दियों में ऐसा पानी पीने से क्या होता है?
--  السيسي يستقبل المرشحين الذين خاضوا انتخابات رئاسة الجمهورية 2024 بقصر الاتحادية
--  Detenido por utilizar una empresa de reformas sin actividad para vender drogas
--  تعيين مرافق للسائق و"زر إيقاف" في نهاية الحافلة لعدم نسيان الطلاب
--  فلسطين الآن.. استشهاد العشرات في قصف مستمر على قطاع غزة
--  عاجل.. وظائف شاغرة بالخدمات الطبية للقوات المسلحة في عدة مدن
--  彭博：劉德音全球擴業 魏哲家善溝通幽默聞名
--  Massive Wolverine leaks include gameplay, story spoilers and release window
--  Šta je pozadina hapšenja Debevca i Mehmedagića? Promenjena i odbrana, Vidović nedostupna javnosti
--  Este es el primer concursante de 'El Conquistador del fin del mundo'
--  इस घरेलू तेल से गंजे सिर की समस्या का स्थायी समाधान!
--  Мицкоски: Марија Габриел им ја плесна вистината, власта лаже дека уставните измени се последна пречка
--  '나솔' 18기 옥순='배우 출신' 진가현 맞지만…전 소속사 "연예계 떠나" 대신 해명 [MD이슈] (종합)
--  "저 펩에게 하이재킹 당했어요!"…21세 '브라질 신성'이 바르샤 거부하고 맨시티 선택한 이유, 지금은 뭐하니? 라리가 1위팀 주역!
--  Navigating Nepal&#039;s digital frontier: Understanding cybersecurity in the digital age, ensuring data safety, and the role of AI
--  이필모, 5세 子 아데노이드 수술 앞두고…해신탕→스노우 파티 "아빠가 해준 건 다 맛있어요" 뭉클 [슈돌]
--  Frota de veículos em Sorriso cresce e se aproxima dos 100 mil
--  Valtionvarainministeriö synkensi talouden kasvuennustettaan vuodelle 2024 – työttömyysaste nousee ensi vuonna 7,5 prosenttiin, ministeriö arvioi
--  Afghanistan has good relations with neighboring countries and beyond: Muttaqi
--  Biodata dan Agama Katak Bhizer, Dikalahkan Rival Tawuran dalam Duel Tinju
--  La industria automovilística acoge con satisfacción la norma Euro 7
--  رئيسة اللجنة الوطنية للمرأة تلتقي وفد رفيع من البرلمان الأوروبي بعدن
--  Мілан припинить співпрацю з Піолі
--  Milan Rennes: sfida sul campo ma anche intrecci di mercato, lo scenario
--  NOVAK NE JEDE ŠTA NAMA SPREME, NOSI SVOJE PAKETE! Đoković nije vegan, a u ovom slučaju se hrani kao i ostali teniseri
--  POŽAR U STANU NA KARABURMI Tri vagrogasna vozila gasila vatru
--  Mercato - PSG : Le Qatar a tout prévu pour Mbappé
--  ‘We’ve enjoyed the revenue’ – Is clamping now all about money?
--  EnchufeSolar instalará plantas fotovoltaicas en los Volvo-Vypsa de Córdoba y Málaga
--  ЮАР угрожает уголовным преследованиям гражданам, служащим в ЦАХАЛе
--  कानोड़िया महाविद्यालय में मैनेजमेंट फेस्ट समन्वय 2023 का आयोजन
--  遭爆名下農地變停車場疑逃漏稅 柯文哲回應了：我爸買的！
--  قيادة انتقالي خنفر تشارك في حفل تكريم النجم مسعود بجعار
--  برشلونة يستأنف تدريباته استعداداً للقاء ألميريا
--  Valioliigan jättiläiset saivat Fulhamilta nenilleen siirtomarkkinoilla
--  Perdagangan Malaysia susut 7.5 peratus kepada RM2.4 trilion
+-  충남 도민 참여 숲 누적 기부금 20억 ‘훌쩍’
+-  매달 15일 노인들 찾아가는 미용사 숙희씨
+-  충북교육청 수요자 중심 ‘아침 간편식’ 운영 윤곽
+-  열악한 생활여건·근로소득… 청주시 인구 유인 걸림돌
+-  “청주국제공항 민간전용 활주로 신설 촉구”
+-  학교폭력 안일한 대응, 피해 학생의 고통 키운다
+-  지역 대학 생존문제… 존재의 이유를 찾아라
+-  코로나19 잠잠해지자 음주 흡연 비만 경고음
+-  희망나눔으로 우리지역 온도 높여요
+-  충청권 시민들 건강관리 잘했다
+-  첨단 전략산업 중심지 떠오른 청주… 대한민국 미래 이끈다
+-  尹 대통령, 국가정보원장·외교부장관 후보 지명
+-  국민의힘 ‘한동훈 카드’ 두고 고심… 충청 정치권도 의견 분분
+-  세종전통시장에 ‘낮도깨비’ 떴다
+-  임차권 등기하는 3가지 이유
+-  ‘벽 허물기’ 나선 대전권 대학들… 지역사회 교류 활발
+-  충청권 흡연율·음주율 증가세… 만성질환 관리는 양호
+-  정용래 유성구청장, 민주 유성을 지역위원장 직무대행 돌입
+-  중소기업 경영과 디지털 마인드
+-  충남 탄소중립 민간·산업계도 함께 실천
+-  [4·10 총선 누가 뛰나-아산을] 강훈식 3선 도전… 국힘 후보 오리무중
+-  김지철 교육감, 충남학생인권조례 재의 절차 요구
+-  그림자밟기
+-  충남 신규 댐 후보지 ‘미포함’… 물 부족 해결 의지 있나
+-  충남 12개월 연속 두자릿 수 수출감소 드디어 탈출
+-  Pięcioro polskich wspinaczy powalczy w przyszłym roku o wyjazd na igrzyska olimpijskie w Paryżu
+-  ส.ฟุตบอลไทย เปิดชื่อผู้มีสิทธิ์ลงเลือกตั้ง โดนตัดสิทธิ์ เอกสารสมัครไม่ครบ
+-  Taiwan presidential candidate Ko Wen-je claims 70% of voters oppose Kuomintang
+-  الإمارات تستقبل الدفعة السادسة من الأطفال الفلسطينيين الجرحى ومرضى السرطان
+-  محمد بن راشد يبارك لنيفين الخشاب فوزها بجائزة نوابغ العرب عن فرع العلوم الطبيعية
+-  “الجوازات” تصدر 17889 قرارًا إداريًا بحق مخالفين
+-  DSV-aktien stiger - derfor sker det
+-  DSV-aktien stiger - derfor sker det
+-  Best Christmas puddings under £14 in 2023 plus free from, vegan and veggie treats to savour this festive season
+-  جرس تنبيه
+-  بيان الفريق ربيع
+-  ثقب مظلم هائل يفتح في سطح الشمس.. أهم تأثيراته
+-  شاهد بالصور.. اللبنانية نور صعب تستعرض حملها بجلسة تصوير ..!
+-  مصدر إثيوبي: مصر تطلب مراجعة إجراءات الملء الرابع لسد النهضة
+-  واردات الغاز الإسرائيلي إلى مصر تتجاوز مليار قدم مكعب يومياً
+-  حرب كان يمكن تفاديها
+-  هل استعادة الوزن سريعا بعد فقدانه يهدد تكوين الجسم؟
+-  Sacha Boey devleri peşine takınca, Okan Buruk devreye girdi! "Hiç bir yere gidemezsin"
+-  Бойко Борисов: Говорих с Орбан, вече няма пречки да ни подкрепят за Шенген
+-  Okan Buruk'tan o iki yıldıza transferi izni çıkmadı
+-  Putin imzaladı: O ülkelere vergi şoku!
+-  Fenerbahçe'den Edin Dzeko açıklaması! İşte son durumu...
+-  Засилени инспекциските контроли на храната, акцент ставен на новогодишните пакетчиња
+-  HS: Helsingforsarenan öppnar igen 2024 – tvångsinlösning trolig
+-  Viral News: ਇਸ ਸ਼ਹਿਰ ਦੀ ਖੂਬਸੂਰਤੀ ਬਣਾਈ ਰੱਖਣ ਲਈ ਸਰਕਾਰ ਨੇ ਕਾਰਾਂ 'ਤੇ ਲਗਾਈ ਪਾਬੰਦੀ, ਜਾਣੋ ਕਾਰਨ?
