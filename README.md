@@ -1,11 +1,51 @@
 # Latest News
--  A Kínai Tudományos Akadémia külföldi tagjának választották Stépán Gábort, a BME professzorát
--  بالصورة- ملكة جمال لبنان 1984 بإطلالة ميلادية مع ابنتها.. جمالهما يخطف الأنظار
--  إسماعيل تمر يرزق بطفله الثاني.. وهذا الإسم الذي أطلقه عليه
--  دعـ ارة سرية تطال أسماء معروفة.."صور الفتيات التي رأيتها صدمتني"
--  أصالة تحتفل بعيد ميلاد شقيقها أنس.. ووسامته حديث الجمهور
--  أليك بالدوين يغضب الجمهور.. هكذا كشف مناهضته لفلسـ طين
--  A pesar de la crisis, una nueva bodega abrió sus puertas en Mendoza
--  ה-1:6 יושב בראש של מכבי תל אביב? רובי קין: "משחק שונה לגמרי"
--  המשימה של הכוח הבינלאומי בים האדום מעורפלת, וספק אם היא תרתיע את החות'ים
--  שמועות על שגעון: מה קרה בפודקאסט החדש של אמנדה ביינס?
+-  বাংলাদেশে শ্রমিকদের পাশে দাঁড়াতে চিঠি দিল মার্কিন কংগ্রেস সদস্যরা
+-  هددت بسحب جنسيتهم.. دولة أفريقية تحذر مواطنيها من القتال مع الجيش الاسرائيلي
+-  Salario mínimo de Colombia es de los más bajos de Latinoamérica
+-  Economía de Colombia registró decrecimiento
+-  Ingrid Betancourt pone en duda declaraciones de Gustavo Petro
+-  Colombia tendrá fábrica de Sinovac
+-  Jó formában a Fradi KL-ellenfele, tapadnak az élmezőnyre
+-  Lust auf Elder Scrolls-Spin-offs? Pech, denn Bethesda lehnte Obsidians Vorschläge angeblich alle ab
+-  دراسة: من لا يتفاعون بـ "اللايك" في وسائل التواصل الاجتماعي يعانون من تلك الحالة
+-  عاجل.. "ويسعون في الأرض فسادًا".. تنفيذ حكم الشرع بمواطن ارتكب عدة جرائم نكراء
+-  تنبيه من "شؤون الحرمين" للمعتمرين بخصوص لقاح الأنفلونزا
+-  Banks Request RBI Approval To Postpone Penal Interest Guideline By 3 Months
+-  India Gained Global Stature Under PM Modi's Leadership: Bhupender Yadav
+-  US Court Charges Binance $2.7 Bn In Penalty
+-  천둥♥︎미미, 4년 열애 끝 내년 5월 결혼
+-  مستعمرون يقتحمون المسجد الأقصى
+-  الخارجية الفرنسية: عقوبات منتظرة ضد المتطرفين الإسرائيليين في الضفة
+-  وزير التنمية المحلية يلتقي محافظ مطروح لمتابعة عدد من الملفات الخدمية للمواطنين
+-  بدء الجلسة العامة للنواب لمناقشة قانون نقابة التكنولوجيين
+-  إحالة 3 قرارات جمهورية و5 قوانين للجان المختصة بالبرلمان
+-  انطلاق منتدى منظمي حفلات الزفاف والمؤتمرات والحوافز "IMWF" بشرم الشيخ -صور
+-  رئيس البرلمان يعلن خلو مقعد النائب خليفة رضوان
+-  بعد إعلان نتيجة الانتخابات الرئاسية.. موعد حركة المحافظين الجديدة
+-  الحكومة تنفي ذبح سلالات دواجن نادرة نتيجة عدم توافر الأعلاف
+-  "الأجدر والأقدر".. ماذا قال رئيس مجلس النواب بعد فوز السيسي بالانتخابات الرئاسية؟
+-  أسعار الحديد والأسمنت في الأسواق اليوم الثلاثاء (موقع رسمي)
+-  ارتفاع متوسط أسعار الدواجن في الأسواق اليوم الثلاثاء (موقع رسمي)
+-  جهينة ترفع أسعار "زبادو" والرايب بدءا من اليوم
+-  مخاوف من ارتفاع النفط والسلع.. هل تؤثر توترات البحر الأحمر على الاقتصاد العالمي؟
+-  Como a decisão da Netflix de divulgar dados de audiência pode mudar o streaming
+-  Tubecon kommer till Åbo – evenemanget har samlat youtubare och influencers i 10 år
+-  V29 5G ile en uzun geceyi kutlamaya değer
+-  وزيرة التجار تلتقى سفير الصين بتونس.
+-  Un guardia civil dispara a un hombre en Gran Canaria que retenía a una menor
+-  Bakanlık 'Yargı' dizisi ile ilgili harekete geçti: RTÜK'e şikayette bulunuldu
+-  Cientos de alumnos del British Centre Melilla logran superar el examen del Trinity College London
+-  Emotional Drew Lock gets choked-up in powerful interview after inspiring Seahawks to comeback win vs Eagles
+-  Cezaevinden firar eden şahıs jandarmaya yakalandı
+-  경남도 승진 인사
+-  진보당 이은영 예비후보, 양산갑 총선 출마
+-  정의당 '창원 대중교통 3만 원 프리패스 조례' 통과 촉구
+-  경남 진해신항·통영항·삼천포항 등 33개 사업 정부에 요청
+-  민주당 총선 경남 출마예정자들 "균형발전정책 살릴 것"
+-  차주목 예비후보 "윤핵관에 도전장" 창원 마산회원구 출마
+-  창원시 재난 대응 119신고 '콜백 시스템' 도입
+-  창원시 '주거복지 대상' 국토부 장관 표창
+-  윤 대통령, 우주항공청법 제정 국회에 다시 한 번 요청
+-  국민의힘 '메가시티특별법' 발의에 경남-부산 행정통합 영향은
+-  Coronation Street fans spot prop blunder as old actor appears years after quitting role
+-  학부모 10명 중 9명, 유·초등 연계 사업 '이음학기'에 만족
