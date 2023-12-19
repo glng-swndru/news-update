@@ -1,51 +1,11 @@
 # Latest News
--  Masimo open to an Apple Watch settlement, if Apple would only call
--  Endgültiger Umstieg ab 2035: Kanada lässt bald nur noch Fahrzeuge ohne CO2-Ausstoß zu
--  Krcata dvorana u Beogradu vikala Hrvatu da je pi*ka ustaška, on ponizio Crvenu zvezdu na terenu
--  مانشستر سيتي يهزم أوراوا ويصعد إلى نهائي كأس العالم للأندية
--  Black Cap picked up by Super Kings for $2.69m
--  三原則運用指針改正でPAC3をライセンス元のアメリカに輸出へ
--  El Gobierno admite 'resultados adversos' en la inversión extranjera en Cuba, pero culpa al 'bloqueo'
--  Isabel Zambrano: “Es mi favorito para quedarse con la final”
--  Panamá anuncia plan de cierre de mina canadiense que causó masivas protestas
--  "Zihnimiz Bize Bunu Niye Yapıyor?" Diyeceğiniz Birbirinden İlginç Psikolojik Sendromlar (Bazıları Düşman Başına)
--  Noel Ağacına Benzeyen "NGC 2264" Yıldız Kümesinin Hayran Kalacağınız Fotoğrafı Paylaşıldı
--  3 Ay Nehrin Dibinde Kalan Bir iPhone 12, Tamamen Çalışır Hâlde Bulundu!
--  صفارات الإنذار تدوي في "يفتاح" في إصبع الجليل عند الحدود اللبنانية الفلسطينية
--  Temporal: Aerolíneas Argentinas emitió un comunicado para explicar cómo se dañaron las 20 aeronaves
--  El durísimo spot contra Ibarra, Macri y la justicia: "Respeten lo que los socios eligieron"
--  اليمن تجدد التأكيد على موقفها الثابت الداعم للوحدة الترابية للمملكة
--  المقاومة تواصل ضرب جيش الاحتلال في غزة
--  GlobalLogic kondigt overname van Mobiveil aan
--  Demanda Condado de El Paso a Texas por criminalizar migrantes
--  Mueren 3 en choque sobre carretera Camargo-Conchos
--  Costa responde a Passos. “O azedume não merece comentário”, disse
--  İstanbulspor-Trabzonspor maçında atılan goller sayılacak mı?
--  Hat ile 10 yıl
--  Ndërron jetë një 58-vjeçar në Çarshinë e Shkupit
--  Next PL domino falls as battlers ruthlessly axe club hero with replacement looming
--  Real ubjedljiv u Beogradu
--  Invallers Linssen en Schalk kunnen niet stunten: Aké met Manchester City naar finale WK
--  ABD'de şiddetli yağış ve fırtına can aldı: 4 kişi öldü
--  Oynamak için başkanın ayaklarına kapandı!
--  Sivasspor: Kara gece
--  Sudan ordusu, stratejik Vad Medeni kentindeki güçlerinin çatışmadan çekilmesini araştırıyor
--  Con “Canelo” Álvarez presente; “Eddy” Reynoso gana el Premio Nacional del Deporte 2023
--  Solidžios gynybos dėka „Real“ užtikrintai įveikė Giedraičio ekipą
--  “Todo parece indicar que es un tema familiar”: Lamenta alcalde agresión contra Reyna Guadalupe
--  Lane’s 18 lead Georgia State over Toccoa Falls 122-45
--  Gophers coach P.J. Fleck adjusts philosophy for quarterback recruiting
--  Italian shot putter Ponzio banned for 18 months in doping case, will miss Paris Olympics
--  Tan bonito… pero peligroso: ¡El lirio acuático afecta plantas de agua y agudiza la sequía!
--  جنبلاط: لقد حان الوقت للرد!
--  Antiquair die zeldzaam masker voor 149 euro kocht en voor miljoenen doorverkocht, misleidde bejaard stel niet
--  Man finds 4.87-carat diamond in Arkansas state park, largest discovery since 2020
--  ذي إيكونوميست: ليبيا أغنى الدول المغاربية
--  Apple suspende venta de relojes en EEUU por disputa de patentes
--  Demandas brasileñas vinculan a JBS con destrucción de Amazonía en área protegida
--  0-500 Mamá continúa apoyando a las mujeres embarazadas
--  Lebenslängliche Haft für Ex-Frau des französischen Serienmörders Fourniret
--  Manchester City se cita con el Fluminense en la final de Mundial de Clubes
--  Man finds 4.87-carat diamond in Arkansas state park, largest discovery since 2020
--  Playoff Youth League: Inter con l'Olympiacos. Il Milan è già agli ottavi
--  Percentual de biodiesel no diesel subirá para 14% em março de 2024
+-  سيتي إلى نهائي كأس العالم للأندية
+-  'A lot of improvement': Transportation leaders hope for smoother holiday travel season
+-  'A lot of improvement': Transportation leaders hope for smoother holiday travel season
+-  McConnell invokes his wife’s name to slam Trump’s controversial immigrant remarks
+-  โปรดเกล้าฯ แต่งตั้งข้าราชการกระทรวงการคลัง 13 ราย
+-  Pet zanimljivosti o Ljubljani koje niste znali: Najzeleniji grad u kom možete odsesti u zatvoru
+-  Following a digital Rebrand, Little Black Book Looks Back at a Decade of Exponential Growth and Record Turnover
+-  McConnell invokes his wife’s name to slam Trump’s controversial immigrant remarks
+-  Ευγενία Σαμαρά: «Ποδόσφαιρο δεν είναι το Euro;» (vid)
+-  هل تختلف القهوة السعودية عن الأخرى من حيث الأضرار؟.. النمر يكشف مفاجأة
