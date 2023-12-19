@@ -1,11 +1,51 @@
 # Latest News
--  축구협회, 내년 예산 1천876억원 확정…올해 대비 '295억원↑'
--  Hizbullah, Lübnan'dan İsrail'e ait noktaya saldırı düzenledi
--  Türkiye, F-16'ların alternatifini kardeş ülkede buldu
--  Davinson Sanchez: Tüm maçlara kazanmak için çıkıyoruz
--  Fahiş fiyat artışına geçit verilmiyor! Bakanlıktan zincir marketlere eş zamanlı "fiyat ve etiket" denetimi
--  Almanya'nın bazı bölgelerinde seçimler tekrar yapılacak
--  Adalet Bakanı Tunç: Artık milli iradenin yanında duran bir yargı sistemimiz var
--  TİKA'nın yardım eli Mozambik'e kadar uzandı
--  EastEnders cancelled tonight as BBC soap replaced in fresh schedule shake-up
--  Microsoft'un Yeni Özelliği Sosyal Medyada Viral Oldu: Kendinizi Yapay Zekâ ile Oyuncağa Dönüştürebilirsiniz
+-  Başkan Erdoğan'ın ziyaretini böyle duyurdular: Türkiye olmadan güvenliğimiz yok
+-  Konya'da aşırı hız yapan sürücüye 5 bin 15 lira ceza
+-  Havacılıktaki yük taşımada yeni dönem! Resmi Gazete'de yayımlandı
+-  Beşiktaş'tan büyük sürpriz! Kara Kartal, Anastasios Bakasetas'ın peşinde
+-  Khám nhà đối tượng vận chuyển ma tuý, thu giữ 2 khẩu súng
+-  Tại sao vàng lại là kênh đầu tư an toàn?
+-  Clip: Taylor Swift xử lý bất ngờ khi bị khán giả la ó vì tới SVĐ cổ vũ bạn trai, nhưng lại mất kiểm soát trong tình huống này
+-  Bệnh viện thẩm mỹ Nam An kiện Công ty Sen Vàng vì Facebook "Chiêm Quốc Thái"?
+-  Em gái Mai Phương Thúy “vượt” chị, đã sinh con thứ 2, nhan sắc mẹ bỉm thăng hạng
+-  Cảnh tượng hoang tàn sau động đất 6,2 độ ở Cam Túc, Trung Quốc
+-  Sốc với dàn cast Tân Dòng Sông Ly Biệt phần 2: "Mỹ nhân gia thế khủng" thay Triệu Vy, cắt vai của Lâm Tâm Như?
+-  HAGL gặp lịch thi đấu tử thần: Ghế của HLV Kiatisuk nóng từng ngày
+-  Ấn Độ tăng cường cảnh giác trước biến thể Covid-19 mới
+-  Hoàng Thuỳ Linh lần đầu kết hợp Kai Đinh và Grey D hát về tình yêu vô điều kiện, dân mạng phản ứng thế nào?
+-  Trọng tài 'bẻ còi', khán giả Indonesia làm loạn
+-  Những ngôi trường ở Việt Nam ĐẸP ĐẾN MỨC khiến giới kiến trúc thế giới phải ngỡ ngàng: Có trường tận vùng sâu vùng xa
+-  Phụ huynh đánh học sinh lớp 9 nhập viện khai "chỉ muốn cảnh cáo, răn đe"
+-  Quên cởi áo khoác khi lên sân khấu nhận giải, Triệu Lộ Tư giúp nhãn hàng "sold-out" trong một nốt nhạc
+-  Giải thưởng Quảng cáo sáng tạo Việt Nam 2023: Hảo Hảo nhận giải Chiến dịch truyền thông ấn tượng
+-  Giải cứu 5 người bị mắc kẹt trong thang máy ở TP.HCM
+-  Hà Nội công nhận thêm 4 điểm du lịch cấp thành phố
+-  3 trái cây trong danh sách đen gây ung thư, loại cuối nhiều người tiếc không vứt bỏ
+-  Không phải điện thoại, màn hình máy tính mới là nguyên nhân gây ra cận thị
+-  Nghệ An: Nữ tài xế đâm loạn xạ nhiều xe trên đường nghi nhầm chân ga
+-  Han So Hee lộ diện giữa nghi vấn "dao kéo", nhưng ảnh thân mật với Park Seo Joon ở sự kiện mới là tâm điểm
+-  “Đại gia” Hạt Mít flex căn hộ mới tậu: Một “mommy” khi mua nhà sẽ phải quan tâm đến điểm rất then chốt này
+-  "Cô dâu hào môn" Phanh Lee khoe ảnh đi du lịch, netizen xuýt xoa vì mẹ hai con mà vẫn trẻ trung như thiếu nữ
+-  Động đất ở Trung Quốc: Nạn nhân run rẩy kể lại phút tháo chạy dưới cái lạnh -14 độ, hàng ngàn người mất sạch nhà cửa sau vài phút
+-  Ca sĩ Tuấn Khang (thành viên GMC) qua đời ở tuổi 43 do tai nạn
+-  Khán giả đòi thay vai diễn của Huyền Lizzie
+-  GMC - Nhóm nam có thành viên vừa qua đời: Hiện tượng âm nhạc những năm 2000, Ưng Đại Vệ - Hứa Vĩ Văn là tên tuổi nổi bật!
+-  Gia đình gặp sự cố bất ngờ, phản ứng của bố mẹ khiến người xung quanh ngầm tán thưởng: Một gia đình tuyệt vời!
+-  Độc quyền: Xác định thời gian Quang Hải làm lễ ăn hỏi với Chu Thanh Huyền
+-  Giá iPhone 12 tiếp tục giảm sâu không thấy đáy, trở thành iPhone rẻ nhất của Apple
+-  Ca sĩ Tuấn Khang (nhóm GMC) qua đời do té lầu, vợ ở Mỹ chưa kịp nhìn mặt chồng lần cuối
+-  Thanh niên 16 tuổi mắc ung thư gan: Bác sĩ nhắc người trẻ cần làm một việc để phát hiện bệnh sớm
+-  Lâu lắm mới thấy Lisa đi event Celine, fan ồ ạt kéo đến từ 4 tiếng trước để chờ idol
+-  Vì sao mua cam canh, quýt bày bàn thờ nên kèm lá, đặc biệt trong dịp Tết?
+-  Vợ sắp cưới của cầu thủ Quang Hải là ai?
+-  Hoa hậu Ngân Anh đăng clip hé lộ quá trình sinh con, 1 chi tiết thể hiện quan hệ mẹ chồng - nàng dâu
+-  Thấy bao cao su ở balo học sinh tiểu học, cô giáo cư xử khiến netizen cảm thán: Có chuyện như vậy sao?
+-  Giá vàng đắt nhất lịch sử, sắp chạm 75 triệu đồng/lượng
+-  Những ứng dụng giải trí không nên bỏ qua khi lên đời TV
+-  Giá đồng hồ đính kim cương không hề đắt đỏ như bạn nghĩ
+-  Mono Talk gây tiếng vang lớn khi ra mắt Bộ sưu tập mùa Lễ hội tại khách sạn 5 sao
+-  Quán bánh xèo hot nhất Sài Gòn lúc này: Bé gái 11 tuổi đã làm "bếp trưởng", nghỉ học nuôi 2 em nhỏ mồ côi
+-  Maroon 5 bất ngờ đăng tải hình ảnh chụp cùng bé Xệ Xệ lên story, còn tặng cháu của Double2T một món quà đặc biệt!
+-  Chuyện tình Quang Hải và Chu Thanh Huyền: 3 năm yêu nhau đầy sóng gió và cái kết ngọt ngào
+-  Vụ nữ sinh quỳ, khóc đến kiệt sức: Cô giáo bị kỷ luật Đảng
+-  Dàn sao T1 khoe "hàng khủng" trên sóng livestream, check giá còn "sốc" hơn nữa
