@@ -1,51 +1,51 @@
 # Latest News
--  Шойгу Путинга ҳисобот берди ва «Россия армияси дунёдаги энг жанговар армия» эканини айтди.
--  Handstaubsauger im Top-Angebot: Jetzt 50 Euro günstiger
--  مستشار بالسفارة الليبية في بكين : انخفاض أفراد الجالية الليبية في الصين إلى أقل من النص عقب جائحة كورونا
--  2024 will be the ‘biggest single crash year in our lifetimes,’ economist warns: ‘Do not listen to your financial adviser’
--  Soccerladuma | REVEALED: 5 Leading Club Goalscorers In 2023
--  Fiscales del Supremo presionan a García Ortiz para que actúe contra la portavoz de Junts
--  Koliko će trajati izgradnja Majšanskog mosta
--  La cascada escondida en un lugar de cuento a solo 1 hora de la Ciudad de Mendoza
--  Operação Lex: Arguidos vão ser julgados pelo Supremo
--  Реал Мадрид с ключова намеса за трансфер на Левски?
--  SMHI varnar för kraftigt snöfall på torsdag
--  Iceland volcano erupts, lava flow unlikely to hit town
--  Padura critica la censura en Cuba y lamenta el éxodo masivo
--  Ademi acuerda hasta RD$1,400 millones con FMO para microempresarios.
--  Kesko valitsi uudeksi toimitusjohtajakseen Jorma Rauhalan
--  Apuñalaron a un policía que custodiaba la casa de una víctima de violencia de género
--  كتاب "نيابي" إلى ميقاتي والحلبي بشأن الأساتذة المتعاقدين لدى الجامعة اللبنانية
--  Minister leaps to bureau's defence amid flood criticism
--  Bancroft boosts hopes for Test call-up
--  Rihanna gives cryptic response about releasing new music in 2024
--  Evro sutra 117,17 dinara
--  Джо Байдън притиска Израел! Пентагонът настоява за сериозна промяна в бойната тактика срещу Газа
--  Vidéo. Guerre en Ukraine : quelles sont les conséquences sur l'environnement ?
--  I polmoni artificiali che catturano la Co2: ecco l'impianto "salva clima"
--  Ogun motorists complain of police extortion
--  Thomas Mueller extends with Bayern Munich until 2025
--  TATA IPL Auction 2024: आयपीएल 2024 लिलाव संपला, मिचेल स्टार्क आणि पॅट कमिन्सने तोडले सर्व रेकॉर्ड; येथे पाहा सर्व संघांची संपूर्ण खेळाडू
--  Abreu Advogados assessora venda da Bifase Electric à Sanitop
--  Anaemia reduction program launched in 50 girls' schools
--  SAU conducts pre-entry test for admission to postgraduate degree program
--  Pakistan's Ambassador presents letter of credence to Iranian FM
--  Youth awarded life term, imposed fine for abducting, raping minor girl
--  National electoral process commences across Hazara Division
--  Sporting arms manufacturing unit discusses uplift of sector with KP Minister
--  DC Pishin for safety arrangements in view of possible heavy rains, snowfall
--  KU VC inaugurates Research Computer Lab
--  SU Vice-Chancellor offers condolence on student's tragic demise in road accident
--  Steps being taken for development, progress of tribal areas: Governor
--  נציגי משפחות החטופים נפגשים עם נתניהו והירש: "נמאס לנו להציע הצעות ולקבל חיבוקים"
--  רק רבע מבתי החולים בעזה עוד פועלים: "לאן ילדים ומשפחות ילכו?"
--  HR beendet „Tatort“ mit Broich und Koch
--  Banyoda doğum yaptı ve bebeği apartman boşluğuna attı
--  Anuncian fechas de la Expo 2024
--  Maratha Reservation: दोन माजी मुख्यमंत्र्यांची CM Eknath Shinde यांच्यावर सडकून टीका, सुनील प्रभू बरसले; मराठा आरक्षण मुद्दा ठरला कळीचा
--  वकील से ‘दुर्व्यवहार’ पर कलकत्ता उच्च न्यायालय बार एसोसिएशन ने मुख्य न्यायाधीश को लिखा पत्र
--  S&P/TSX composite up nearly 200 points, U.S. stock markets also climb
--  S&P/TSX composite up nearly 200 points, U.S. stock markets also climb
--  ഏവരും കാത്തിരുന്ന അനിമലിലെ ആ ചൂടേറിയ വീഡിയോ ഗാനം എത്തി, വെറും ചൂടല്ല, കൊടുംചൂട് !
--  भाजपा ने सत्तारूढ़ सहयोगियों को संघ मुख्यालय में स्मारक देखने के लिए आमंत्रित किया
--  पवार ने धनखड़ से संसद में सुरक्षा चूक और सांसदों के निलंबन की जांच कराने को कहा
+-  4 فئات أكثر عرضة للإصابة بمتحور كورونا الجديد «JN.1».. اعرف طرق الوقاية
+-  Le Canada affiche une croissance démographique record au troisième trimestre
+-  Teens struggle to identify misinformation about Israel-Hamas conflict
+-  Almost $2.7M in respite funding announced for 3 NWO programs
+-  İşgalcilerin Kıbrıs'tan Gazze'ye 'deniz koridoru' planı: GKRY ile görüşme yapıldı
+-  Maharashtra: 13 bonded labourers rescued, five out of 11 gang members held
+-  News24 | Wednesday's weather: Partly cloudy, but warm to hot with scattered thunderstorms
+-  Duro colpo alle IPTV illegali in Italia
+-  Russian oligarch's 'mistress' who was left £100m inheritance including £12m Surrey mansion upon his death WINS court fight with his adult children who claimed his will 'had been torn up'
+-  All The Best New Pop Music From This Week
+-  Mosquera asegura que ningún ciudadano notará cambios con la Zona de Bajas Emisiones
+-  Finma mit Flucht nach vorn
+-  Μπισάνγκ: «Με συγκίνησαν οι αντιδράσεις, ξεκινώντας από εκείνη του Ολυμπιακού»
+-  Mayor of North East Lincolnshire to do a 24 hour danceathon for charity
+-  A man claiming to be a former Russian officer wants to give evidence to the ICC about Ukraine crimes
+-  Girl, 13, among two arrested after police seize stolen toys near Camborne
+-  UN Security Council in intense negotiations on Gaza humanitarian resolution, trying to avoid US veto
+-  Au sud de Bordeaux, le Marché d’intérêt national de Brienne va être agrandi
+-  Caso EDP: José Sócrates admite que "não sabia dos pagamentos" a Manuel Pinho
+-  ‘Signs were there’: Kirsten Kluyts accused killer joked about drugging women
+-  Friends organise huge charity ball in memory of tragic classmate
+-  You Can Still Attend Madonna’s Celebration Tour: Here’s Where to Buy Tickets
+-  Poseidón se destacó en el Campeonato Nacional de Natación Infantil en Pereira
+-  UN Security Council in intense negotiations on Gaza humanitarian resolution, trying to avoid US veto
+-  Se desborda de compradores Las Pulgas, Las Playitas y demás centros comerciales a cinco días de la llegada de la Navidad
+-  Bundesverwaltungsgericht zu Kreuzerlass: Bayerische Kreuze siegen in Leipzig
+-  В Южной Корее задержали симпатизировавшего КНДР китайского шпиона
+-  KPRM: deficyt budżetu państwa w 2024 r. ma wynieść 184 mld zł
+-  Controversial African mask sale cleared by French court
+-  Российская актриса Александра Бортич снялась без штанов в подъезде
+-  SUV driver Marisol Wentling who tipped car while doing donuts causing vehicle to CRUSH five people is seen in mugshot
+-  Зеленский ответил, закончится ли война в 2024 году
+-  Jorge Braz: «Queremos fechar a qualificação com 18 pontos»
+-  Russian Wartime Emigres Head Westward in Europe in Search of Acceptance, Tolerance
+-  Halifax County deputies want your help locating robbery suspect, sheriff's office says
+-  Modern slavery ‘a feature’ of care sector in England since Brexit
+-  Crise du logement : une start-up propose de construire des habitations dans les jardins des particuliers
+-  Fusione degli aeroporti sardi, iniziato lo scontro davanti al Tar
+-  Anabel Belloso llama a los salvadoreños a votar por el FMLN para volver al país de hace algunos años
+-  Απόλλων Λεμεσού: Πλήγμα με Γιούρσεβιτς και Πεμπερνές
+-  Profesor koji se tukao s učenikom doživio je tešku obiteljsku tragediju i bio rastrojen, zašto je uopće radio!?
+-  TV presenter Phil Spencer's parents in their 80s died after their car crashed in accident on the family farm and overturned in a river, coroner rules
+-  Poland’s new government appoints new chiefs for intelligence, security and anti-corruption agencies
+-  I tried Glossybox's £25 rival beauty box to Boots with over £100-worth of Rituals, Bobbi Brown, Laura Mercier and bareMinerals products
+-  Thomas Müller verlängert Vertrag beim FC Bayern München!
+-  VELIKI UDARAC ZA FAVORITA IZ SENKE Belgija bez prvog golmana na Evropskom prvenstvu
+-  Ongehoord Nederland mag definitief blijven uitzenden
+-  Tirsdagens aktier: DSV kørte fra alle mens Mærsk fik en dukkert på humørfyldt dag
+-  Tirsdagens aktier: DSV kørte fra alle mens Mærsk fik en dukkert på humørfyldt dag
+-  Pretoria veut que le génocide contre le peuple palestinien cesse
