@@ -1,51 +1,51 @@
 # Latest News
--  Companies rush to avert disruption from Red Sea attacks as shipping rates rise
--  Lepší drahý úvěr než chleba za tisícovku
--  I’m happy with the results-we play a very good and technic game, but I’m not happy with the few player on the pitch in the first half because there error bring on the pressure on us…. Pochettino reveal that he is not impressed with the 25-y-old boy in the first half
--  Palmeiras contrata atacante Bruno Rodrigues
--  Manchester City jugará la final del Mundial de Clubes ante Fluminense
--  Astronaut training for moon mission looks like a fun day at a playground
--  Brit underwear model Alexina Graham shows off her curves in sexy lingerie with see-through bra
--  Shift in Chinese retailers’ strategy risks entrenching deflation
--  Trump, excluido por un tribunal de Colorado (EEUU) excluye a de las elecciones estatales de 2024
--  Trump, excluido por un tribunal de Colorado (EEUU) excluye a de las elecciones estatales de 2024
--  Trump, excluido por un tribunal de Colorado (EEUU) excluye a de las elecciones estatales de 2024
--  Jennifer Love Hewitt Addresses Claim She Looks 'Unrecognizable': 'Aging Is Really Hard in Hollywood'
--  بتوجيه من ولي العهد.. وزير الدفاع يبدأ زيارة رسمية إلى فرنسا
--  โปรดเกล้าฯ แต่งตั้ง 28 ผู้ตรวจราชการ - ผู้ว่าราชการจังหวัด
--  Deportivo Cali fichajes: ahora sí, exámenes aprobados y llegó el quinto
--  Raptors all-star Pascal Siakam wowed by Data Dunkers program he supports
--  Missouri Supreme Court strikes down law against homelessness, COVID vaccine mandates
--  Loi immigration: Darmanin reconnaît que des mesures du texte "sont contraires à la Constitution"
--  Fans Manchester United Harus Gigit Jari di Bursa Transfer Januari 2024
--  No va a albergues, porque no lo reciben con su mascota
--  Aplikasi Disney Plus Dihapus dari Tesla, Imbas Disney Setop Iklan di X?
--  Condenaron a un "capo narco" de Rosario: tendrá 15 años de cárcel
--  על חבל דאק: פרסקוט והקאובויס ממשיכים לאכזב בזמן אמת
--  Mother-to-be sparks FURIOUS debate after filming herself doing intense WEIGHT LIFTING routines while 37-weeks pregnant - as critics accuse her of causing 'harm' to her baby
--  Black Cap Daryl Mitchell's $2.7m IPL deal will help family 'enjoy the things they love'
--  NZ News Live: Police provide update on Stokes Valley homicide investigation
--  Receita. O bolinho 'fit' que fica pronto em menos de dois minutos
--  금감원 "자동차 품질인증부품 활성화, 수리비·보험료 절감"
--  Raketa Blue Origin opet leti u svemir
--  Raptors all-star Pascal Siakam wowed by Data Dunkers program he supports
--  Raptors all-star Pascal Siakam wowed by Data Dunkers program he supports
--  Raptors all-star Pascal Siakam wowed by Data Dunkers program he supports
--  4 Fakta Mobil di Bekasi Dirusak Massa Diviralkan Halangi Damkar
--  Dozens of Minneapolis police officers, civilian lauded for going above the call of duty
--  Hadir atau Tidak, Dewas KPK akan Tetap Gelar Sidang Dugaan Pelanggaran Etik Firli Bahuri
--  Stanford heart surgeon comes to Visalia as part of Kaweah Health program
--  Gwen Stefani shakes and shimmies in brightly colored holiday dress with a fringe hem as she showcases her Christmas style
--  Commerce Commission takes sanitiser maker Zoono to court over germ-killing claims
--  Inside Strictly star Craig Revel Horwood’s wedding plans at his countryside mansion with VIP guest list and ROYAL invite
--  Inside Strictly star Craig Revel Horwood’s wedding plans at his countryside mansion with VIP guest list and ROYAL invite
--  Un Donatello en la fachada
--  В Канаде с 2035 года разрешат продавать только электромобили
--  『フォールアウト: ニューベガス』開発元、『The Elder Scrolls』などのスピンオフ開発を何度も打診したがベセスダに却下されていたとの報告。『スカイリム』後の空白期間を埋める提案だった
--  Tragedia en el parque Pucará de Loja: Adolescente fallece en circunstancias misteriosas
--  How To Win a Social Security Disability Hearing
--  YVR airport expects more than half million travellers this week
--  YVR airport expects more than half million travellers this week
--  Colorado Supreme Court rules Trump is ineligible for the presidency
--  Colorado Supreme Court disqualifies Donald Trump from 2024 election ballot citing 14th Amendment’s ‘insurrectionist ban’
--  TMW Radio - Marchetti sul mercato di gennaio: "Sicuramente il Milan inserirà qualcosa in difesa per gli infortuni"
+-  D. José Ornelas critica pressa na aprovação da lei da autodeterminação de género nas escolas
+-  Costa diz que antigos líderes do PSD são "profetas da desgraça"
+-  Pedro Nuno Santos: "Passos não percebeu que maioria do povo chumbou a sua governação"
+-  Pedro Nuno diz que PS não precisa de começar do zero ao contrário da direita
+-  O que se passa no caso das "golas antifumo"?
+-  António Costa: "Podem-nos derrubar pela segunda vez", mas só PS garante estabilidade
+-  Como as novas regras de eficiência energética podem impactar no preço das geladeiras
+-  Ganjar Pranowo dan Mahfud Md Akan Berkampanye di Jakarta Hari Ini
+-  Etapa brasileira do Circuito Mundial de Bodyboarding é eleita melhor do ano
+-  UK Petrol Prices Hit a Two-Year Low Amid Drivers Contending Fluctuating Prices and Economic Uncertainties
+-  PF prende 5 em investigação que colocou policiais no rastro de deputada 'madrinha da milícia'
+-  ¿Las vas a poder llevar a tu casa? Estos serán los precios de las vacunas COVID en México
+-  Gobernador de Texas autoriza expulsión de Migrantes
+-  بتوجيه من ولي العهد.. وزير الدفاع يصل باريس في زيارةٍ رسمية
+-  استشاري يحذر من خطورة الوجبات السريعة على صحة الأطفال
+-  서해안에 최대 30㎝ ‘눈’…내일·모레 영하 20도 강추위
+-  El hospital Insular está al 100% de su capacidad tanto en UCI como en planta
+-  El Tribunal de Contratos Públicos tumba el concurso de Parques y Jardines de Telde
+-  «Mis asesores para todo en Urbanismo, incluido Naturgy, son los técnicos y juristas municipales»
+-  El Cabildo de Gran Canaria convoca las ayudas para el sector audiovisual
+-  La gala de los Premios Canarios de la Música viajará a una isla menor de Santa Cruz de Tenerife
+-  Ataques a navios no Mar Vermelho precisam parar, diz Casa Branca
+-  Empresas tendrían que irse a paros técnicos de prolongarse el cierre al ferrocarril de carga en Piedras Negras
+-  'Alguém fabricou um falso dossiê', sugere defesa de Alexandre Correa sobre novas denúncias de Ana Hickmann
+-  Jason Momoa e Chris Hemsworth hanno litigato? Ecco il significato della “frecciatina” sui social…
+-  Eduardo Coudet renova o contrato com o Internacional
+-  Atletico slip up at home in Spanish league title race
+-  Trump darf nicht bei Vorwahlen in Colorado antreten
+-  Activistas impugnan ley antimigrante de Texas en frontera de EU y México
+-  Incendie à Kaloum : les associations professionnelles de médias proposent gratuitement leurs services…
+-  [포토] “우리 삶을 지켜온 산성을 남기고 싶었다” 사진전 ‘산성의 나라’ 개막
+-  Oral health is health: Better access to dental care may have potential benefits beyond Canadians' mouths
+-  В России разработали мобильное убежище от ядерных угроз
+-  위장약 PPI제제 좋은 줄 알았더니 ···.
+-  अगर आप सर्दियों में वजन कम करना चाहते हैं तो इन 5 तरह के आटे को अपनी डाइट में शामिल करें
+-  Utemeljitelji HDZ-a održali sjednicu te dali punu potporu projektu izgradnje Kaznionice u Gospiću
+-  Deion Sanders, CU Buffs crushed the transfer portal again. But what will it take for Coach Prime to give Colorado high school football recruits a look?
+-  Pode anotar: O vermelho vai além do Natal e será tendência em 2024, diz expert em moda. 30 looks de famosas com a cor!
+-  Fãs de Kelvin e Ramiro, de 'Terra e Paixão', instalam outdoors pedindo série do casal
+-  Australia se alătură Uniunii Europene și NATO pentru a condamna atacurile rebelilor Houthi din Marea Roșie
+-  Liga de Quito: Paolo Guerrero no continuaría para la siguiente temporada
+-  Simeone: "No pudimos defender de la mejor manera lo que el Getafe provocó al final"
+-  Napoli’s struggles continue with Frosinone cup humiliation
+-  2nd ODI SA vs IND : కొట్టలేక.. పడగొట్టలేక!
+-  مطار العريش يستقبل 5 طائرات مساعدات إغاثية لغزة
+-  Conozca un lugar en donde cocinan los chicharrones en un estañón
+-  Info Terkini Gempa M5,2 di Laut Guncang Morotai Maluku Utara, Tidak Berpotensi Tsunami
+-  Con esta cifra de casos de dengue y toneladas de cacharros cierra el año Salud Ahome
+-  Felipe Contepomi es el nuevo entrenador de Los Pumas
+-  Donald Trump es inelegible para presidente en Colorado: Corte estatal lo saca de boleta primaria
