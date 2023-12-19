@@ -1,11 +1,11 @@
 # Latest News
--  "햄버거보다 맛있다!"…'어서와 한국' 미국 친구들, 순두부찌개 식당서 반한 '메뉴' 뭐길래?
--  ضبط 3 باكستانيين أثناء ترويج مخدرات بجازان
--  “Bank of Baku”dan peşə sahiblərinə özəl TƏKLİF
--  Beşiktaş'a 5 isimden müjdeli haber
--  MSB: 2 FETÖ mensubu sınırda yakalandı
--  İsrail ordusu hizbullah hedeflerine saldırı düzenledi
--  Sahipsiz köpekler yaşlı kadına saldırdı
--  Alman devinden 9 milyar dolarlık sipariş
--  İsrail'den insani ateşkes için yeni karar! Herzog: Hazırız
--  Argyll police officer recognised for outstanding bravery
+-  “Kapitalbank” Visa тўлов тизими бўйича Ўзбекистон банклари орасида етакчилигини яна тасдиқлади.
+-  Ўзбекистон Марказий Осиёдаги минтақавий инвестициялар ҳажми бўйича иккинчи ўринда қайд этилди .
+-  Қашқадарёда 7-синф қиз унаштирилгани ҳақида хабар тарқалди, болалар омбудсмани муносабат билдирди .
+-  „Absoluter Vernichtungswille“: Angeklagter nach Schüssen in Mercedes-Werk zu lebenslanger Haft verurteilt
+-  Sánchez cree que Feijóo evita reunirse con él porque no ha asumido su derrota
+-  EU agreement to include Lelylijn as a key rail connection to the European rail network
+-  Maisons individuelles : qui sont les ménages qui font construire ?
+-  Τετάρτη με φιλικό για τη μικτή Κ16
+-  INDIA Bloc Meeting: Why Mallikarjun Kharge is Right Choice as PM Face But...
+-  ברק בכר: "הנהלת הכוכב האדום לא צריכה להציב לי אולטימטום"
