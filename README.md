@@ -1,11 +1,51 @@
 # Latest News
+-  Trump disqualified from Colorado’s 2024 primary ballot in court ruling
+-  YK:n turvallisuusneuvosto yrittää jälleen sopia päätöslauselmasta Gazan taisteluiden keskeyttämiseksi
+-  Winnipeg airport expanding the amount of cargo it can process with new facility
+-  118th US Congress Reaches New Dysfunctional Highs, Data Reveals
+-  London, Ont. man in custody in relation to April shooting
+-  عامل قد يقلل خطر الإصابة بالسكتات الدماغية- لن تتوقعه
+-  إبراهيم عيسى: الدولة لن تحتمل حتى أبريل المقبل لتشكيل حكومة جديدة
+-  إبراهيم عيسى: الدولة لن تحتمل حتى أبريل المقبل لتشكيل حكومة جديدة
+-  تفاصيل مسابقة "القومي للترجمة" بالنسخة الـ12 من كشاف المترجمين
+-  مفكر استراتيجي: تحويل سير السفن من باب المندب إلى رأس الرجاء الصالح خطر
+-  Krásna herečka (†32) sa Vianoc nedožila: Záhadná smrť plná otáznikov!
+-  Desivá prognóza! Národná diaľničná spoločnosť varuje: Obrovský nárast dopravy počas sviatkov! TIETO úseky budú najhoršie
+-  «Общественное»: в Харькове произошли взрывы
+-  문가영, 압도적 글래머러스한 몸매…우아함의 정석
+-  Colorado Supreme Court removes Trump from 2024 ballot based on Constitution's insurrection clause
+-  Félix Tshisekedi sur les élections en RDC : «J’ai déjà le numéro de l’organisation russe qui tente d’attaquer le serveur de la CENI»
+-  Consultations de la SADC en RDC : Jakaya Kikwete sollicite une rencontre avec Joseph Kabila un jour avant la tenue des scrutins
+-  P for plagiarism, not president: Letters to the Editor — Dec. 19, 2023
+-  Praxen wegen Krankheitswelle "auf dem Zahnfleisch"
+-  ‘Past time for Ottawa to listen’: Alberta continuing fight against national plastics ban as feds file appeal
+-  Colorado Supreme Court bans Trump from the state’s ballot under Constitution’s insurrection clause
+-  The 10 Best Games of 2023, According to Metacritic
+-  పొట్టకూటికి వెళ్లి ఎడారిలో అనాథ శవమై..
+-  الكل في خدمة جيرونا.. أتلتيكو مدريد يتعثر في الدوري الإسباني
+-  Kelly Clarkson Is Having a Very Cher Christmas With ‘DJ Play a Christmas Song’ Kellyoke Cover
+-  Fed's Goolsbee cautions the market has gotten itself euphoric on likely Fed rate cuts
+-  Feliz Navidad
+-  ఔటర్‌ లీజుపై సర్కారు ఆరా
+-  СБ ООН отложил голосование по резолюции, требующей от Израиля приостановить операцию в Газе
 -  Dan un respiro a los bomberos
 -  Acusan inconsistencias en designación de plazas en el Issste en Juárez
+-  #apple’s #iphone satellite system has a new option for roadside assistance
+-  La reacción de una famosa actriz tras el anuncio del Vaticano sobre las parejas homosexuales
 -  Defensoría del Consumidor recupera $32.3 millones en 2023
+-  بروة العقارية تتبرع بمليون ريال للأشقاء في القطاع
+-  بسبب القلق من الإمدادت.. أسعار النفط في أعلى مستوى منذ أسبوعين
+-  النائب الأول لوزير الاقتصاد الأوزبكي: الدوحة سبّاقة في تعزيز الشفافية والنزاهة
+-  تعزيز التعاون المالي والاقتصادي مع أيرلندا
+-  وزير الأوقاف: اليوم الوطني يستحضر مسيرة حافلة بالإنجازات
+-  رئيس «الرقابة الإدارية»: محطة مهمة للالتفاف حول القيادة الرشيدة
+-  وزير الدولة لشؤون مجلس الوزراء: قوة دفع جديدة على طريق العمل والإنجاز
+-  نائب وزير خارجية أوزبكستان: الجائزة تعكس الجهود القطرية الفاعلة
+-  رئيس «مكافحة الفساد» بأوزبكستان: قطر حققت نتائج متميزة عالمياً
+-  NFL players face pressure as never before, in the digital-age surge of betting and fantasy
 -  ¡A la memoria de su abuelo! José Luna y sus grandes relevos, con dedicatoria al Cielo
--  Destructoid’s award for Best PS4 / PS5 Game of 2023 goes to…
--  Wall Street: Νέο ρεκόρ για τον δείκτη Dow Jones
--  NASA: Iz svemira na Zemlju stigao snimak mačke
--  Colorado Supreme Court bans Trump from the state’s ballot under Constitution’s insurrection clause
--  Marvel Studios demite Jonathan Majors após ator ser condenado por agressão
--  신한금융, 9개 자회사 CEO 전원 연임
+-  Cara Memainkan Genshin Impact di Android Pakai Controller
+-  Queens man forged absentee ballots in Democratic primary as part of voter fraud scheme: DA
+-  Liga MX: Audios del VAR serán públicos para el Clausura 2024 y el arbitraje será autónomo
+-  US politics - Colorado Supreme Court disqualifies Trump from 2024 presidential ballot
+-  ذا ساوث أفريكان: جماعة إرهابية في مالي تفرج عن رهينة تم خطفها في ليبيا
