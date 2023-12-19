@@ -1,51 +1,51 @@
 # Latest News
--  (VIDEO). ¿Mba’e piko? Polis trasladan a un tipo en una moto y en una rarófila forma
--  City Of Hamilton Holiday Garbage Collection
--  الخارجية الأمريكية: بلينكن بحث مع سامح شكري إقامة دولة فلسطينية مستقلة
--  بلومبيرج: واشنطن وحلفاؤها يدرسون توجيه ضربات عسكرية محتملة ضد الحوثيين
--  بداية لاضطرابات كبيرة.. مصطفى الفقي: السياسة الإثيوبية نسخة من السياسة الإسرائيلية
--  أكثر من غزة 20 مرة.. أحمد موسى ينفعل بسبب تغافل العالم عن أزمات السودان
--  حظك اليوم وتوقعات الأبراج 20-12: تحذيرات لهذا البرج.. ونصائح لهؤلاء
--  MultiMetaVerse Holdings Limited Announces 2023 Unaudited Half Year Financial Results
--  Kickoff | Chelsea advance to Carabao Cup last four
--  Oyem : passation de charges à la Mairie
--  బీజేపీ అధికారంలోకి రాకుండా అన్ని పార్టీలు ఏకం కావాలి: రామకృష్ణ
--  Melhores momentos: Borussia Dortmund 1 x 1 Mainz (Bundesliga)
--  Julian Brandt anota golaço de falta contra o Mainz; confira
--  Fábio Carille é o novo treinador do Santos
--  Torcedor mirim do Hoffenheim rouba a cena em comemoração de gol; confira
--  I’m obsessed with my new Amazon jumpsuit – I don’t need to wear a bra, but if I turn around it might break the internet
--  Motosikletteki akrobatik hareketleri olay olmuştu. Cezadan kaçamadı
--  ఎన్నారైల సేవలను జనసేన మరువదు: పవన్‌
--  Foşur Foşur Reis Cem Özkök Sayesinde Kahve İçmeye Bahanelerini Sayan Kullanıcılar Gümletti
--  Xankəndiyə ilk bu şəxslər köçürüləcək
--  Drama u Liga kupu: Chelsea i Fulham prošli na penale
--  PSG: l'appel de Daniel Riolo à Kylian Mbappé
--  Furious Robbie Williams fan is denied a refund after missing start of show due to traffic chaos - but who is in the right?
--  Dupla é presa com grande quantidade de maconha em chácara no interior de SP
--  El PSOE se suma a los votos de PP y Vox para apoyar el respeto "escrupuloso" a los jueces
--  Brisbane family left with half-finished home with defects by 5Rivers Engineering sole trader Karan Bhalla
--  Pour Gérald Darmanin, "Marine Le Pen n'est qu'une petite politicienne" qui "trompe" ses électeurs parce qu'elle "refuse le débat" et "a voté des mesures de régularisation"
--  Futbolista del PSG fue secuestrado junto a su familia durante el violento asalto de su vivienda
--  Bar fined £120k for serving tequilas made with caustic soda instead of salt which left clubbers with mouth burns
--  Antoine Griezmann égale le record de Luis Aragones, l'Atlético de Madrid accroché
--  Love Actually. There’s a New Christmas Movie to Fight About This Year.]]>
--  Overdue overhaul for Jets power play
--  More Than Stenography: Exploring Court Record Options (Part 2)
--  Tanggapi Putusan Praperadilan, Firli Bahuri: Bukan Ditolak tapi tak Diterima
--  IMÁGENES IMPACTANTES: Asciende a 127 el número de fallecidos tras sismo de 6.2 en China
--  Amplify unveils anti-surveillance suit to safeguard Santa’s journey this Christmas
--  Demanda de energía aumentó 6,32% en noviembre, jalonada por el mercado regulado
--  "حزب الله" يعلن استشهاد عنصر رابع بمواجهات مع الاحتلال الإسرائيلي
--  Subsidio por desempleo: estas serán las nuevas cuantías y requisitos a partir de 2024
--  ISAK (3) JE JEDVA JEO, A BOLEST SE ŠIRILA Intervencijom koja je prvi put urađena u Srbiji njegovim mukama došao je kraj
--  Report: Arsenal now interested in £33m midfield giant amid Patrick Vieira comparison
--  PUTIN NAJAVIO ŽESTOK OBRAČUN SA STRANIM SLUŽBAMA Evo gde je najkritičnije za Rusiju
--  Ecopetrol convocó asamblea de accionistas para decidir sobre reforma de estatutos
--  Διεθνείς αγορές: Νέο ρεκόρ, το 4ο στην σειρά για τον δείκτη Dow Jones – Νέα άνοδος για πετρέλαιο και χρυσό
--  ఐఏఎ్‌సల బదిలీలు
--  I’ve never encountered someone like Rangers hero James Tavernier before reveals Philippe Clement
--  Κύπελλο Αγγλίας: Δραματική πρόκριση στα πέναλτι για την Τσέλσι – Στα ημιτελικά και η Φούλαμ
--  Spirit of Sturgis TT: Progressive American Flat Track Hits the Streets for a Historic Debut on August 11, 2024
--  Incredibly rare Christmas card signed by JFK and Jackie Onassis just DAYS before the former President was assassinated goes on sale for a staggering $35,000
--  Chelsea 1-1 Newcastle (4-2 pens): Djordje Petrovic saves Matt Ritchie's penalty in shoot-out as Mauricio Pochettino's side reach Carabao Cup semi-final after dramatic late equaliser from Mykhailo Mudryk
+-  Patriots claim Canadian QB Nathan Rourke off waivers from Jacksonville
+-  20 Prodi UI dengan Persaingan Terendah Jalur SNBP dan SNBT untuk Referensi 2024
+-  FNDC pede veto a mudanças de regras para concessões de rádio e TV
+-  Kajuru celebra aprovação da reforma tributária
+-  Nova Lei de Diretrizes Orçamentárias é aprovada e vai à sanção
+-  Cota de exibição de filmes brasileiros nos cinemas segue para sanção
+-  Mulheres com deficiência são as maiores vítimas de violações de direitos, apontam especialistas
+-  Sefaz alinha implantação de projetos de modernização fiscal com recursos do BID
+-  [스한:BOX] '서울의 봄' 28일 연속 흥행 독주…누적 921만
+-  Prefeitura de Várzea Grande já alcançou 78% das metas estabelecidas, aponta relatório prévio
+-  Protetor solar: esta parte do corpo é a mais esquecida e a mais acometida pelo câncer de pele
+-  Argentina não terá embaixadores na Venezuela, Nicarágua e Cuba
+-  OMS pede mais controle sobre cigarros eletrônicos
+-  La Generación Z modificando el mundo laboral
+-  🎥 | Sensatie in Engeland! 2 partijen in de League Cup eindigen met penaltyreeks
+-  中 e커머스 '알리·테무·쉬인' 국내 시장 위협 ... 해외직구 비중 50% 육박
+-  부동산 침체기에 퇴직연금 깨 집구입 줄고 … 전월세 위한 중도인출은 늘어
+-  ‘2023년도 경상북도 투자유치대상 평가’ 대상에 영천시
+-  농협, 2023 축산물 브랜드 경진대회 시상식 개최
+-  홍천군청소년안전망, 2023년 4분기 청소년복지실무위원회 진행
+-  춘천지역자활센터 ‘2023 사업보고회’ 성료
+-  춘천시, 강원도·(주)에이앤티파마와 투자협약 체결
+-  춘천시 ESG 행정 ‘주목’…도내 유일 ‘A’ 등급
+-  법무부 청소년범죄예방위원 춘천지역협, 범죄예방 한마음대회 개최
+-  강원도교육청, 기후·건강·교육 위한 지역식단 전담조직 운영 결과 보고회 개최
+-  밀양아리랑대축제, ‘정부지정 2024∼2025 문화관광축제’ 선정
+-  북한 찬양 및 군사상 기밀 유출 혐의 해군병사 기소
+-  김진표 국회의장, 제25회 백봉신사상 시상식에 참석해 수상자들에게 시상
+-  김명수 합참의장, 지상작전사령부 군사대비태세 점검
+-  동대문구시설관리공단, '대한민국 사회공헌대상' 서울시장상 수상
+-  동대문구 의사회, 사랑의 쌀과 장학금 기탁
+-  홍천 미소지움아파트, 환경개선 마무리 입주민들께 ‘감사’
+-  홍천군여성자율방범대, 명동보육원에 사랑의 생필품 전달
+-  춘천문화재단, '시민문화활동 안녕주간' 성료
+-  양천구, 새해 금연 다짐 성공 도울 이동 금연클리닉 운영
+-  금천구, 2024년도 겨울방학 대학생 아르바이트 100명 모집
+-  관악구, 노후 CCTV 교체하고 지역사회 안전 강화 나서
+-  통일맞이 홍천군민과 함께하는 '통일 음악회', 성황리 개최
+-  ‘Primero mis hijos’: la historia de boda fallida en Córdoba que se hizo viral por video
+-  [오피셜] 'KIM과 함께 1년 더 뛴다!'...뮌헨, 레전드와 2025년까지 재계약 완료
+-  "산만함=살기 위한 본능적 몸부림" 이필모, 子 3가지 수술 모두 '결정'[슈돌](종합)
+-  "디바 저격글, 참다 지른 것" 채리나, '전말 공개'[놀던언니]
+-  이승철, 살가운 사위였네…장모에 "엄마~" 따뜻 포옹 [신랑수업]
+-  전현무, 결혼식 대체 어떻게 하려고?…"스몰웨딩? 없다→비공개도 안한다" [강심장VS](종합)
+-  Frankreichs Parlament stimmt für verschärftes Immigrationsgesetz
+-  Mercado: Pablo Aguilar podría volver a Cruz Azul como refuerzo para 2024
+-  New Year’s return of Alberta gas tax limited to 9 cents per litre
+-  e-Sportime (20/12): Κατέβασε την ηλεκτρονική εφημερίδα – Η έκρηξη του σκακιστή
+-  Mutfwang Assures Mighty Jets Football Club Of Responsible Financial Management
+-  Bakıda QANLI GECƏ: dava düşdü, yeznə qaynını...
