@@ -1,11 +1,51 @@
 # Latest News
--  Prachařova EX na fotografii z detstva: Čožeee? Jej otec je celý princ Charles!
--  Polícia vyšetruje únik neznámej látky v bývalej bioplynovej stanici Senec
--  V prípadoch, ktoré sú na ŠTS, budú aj naďalej konať súčasní prokurátori Úradu špeciálnej prokuratúry
--  Bomba na školskom internáte v Rači sa nenašla: Kraj konanie odsudzuje
--  احذر.. علامة غير معروفة قد تكشف الإصابة بمرض "قاتل صامت"
--  لماذا يجب عليك النوم عاريا حتى في الشتاء؟.. خبير يكشف
--  مدبولي: الحكومة تشجع القطاع الخاص للتوسع في المشاركة في تقديم خدمات الرعاية الصحية
--  "الزراعة" و"الفاو" تنظمان دورة تدريبية لـ120 مزارعا بأسوان حول أفضل الممارسات الزراعية
--  Baydenin oğlu mühakimə olunacaq
--  Karaman’da evden hırsızlık yapan 1 kişi tutuklandı
+-  दाऊद को लगता था पुलिस की थर्ड डिग्री से डर, भारत लौटने के लिए रखी थी ये शर्त
+-  Петербургских блокадников наградят почётным знаком в 2024 году
+-  Украина потеряла более €1 млрд из-за блокировки границы польскими перевозчиками
+-  Sanofi licenses fourth NK cell engager from Innate Pharma
+-  Ekrem İmamoğlu'ndan kendisini hedef alan Meral Akşener'e cevap: Bazen haddini aşan cümleler kurabiliyor
+-  Mutlu yıllar mutlu zamanlar: Saat&Saat'ten özel indirim fırsatlar
+-  Diyarbakır'da DEAŞ operasyonu: 6 terör şüphelisi yakalandı
+-  В Башкирии 2024 год объявлен годом заботы о людях с ОВЗ
+-  طلب تحويل تأشيرة الزيارة إلى إقامة عمل 1445
+-  بالصور.. الدفاع المدني بمحافظة ضرماء يحرر إصبع شخص علق في قطعة معدنية،
+-  Tesla, Nio und MG übernehmen befristet Kaufprämie für E-Autos
+-  Подведены итоги конкурса проектов Сквера памяти в Ижевске
+-  Strictly's Bobby Brazier cosies up to a mystery blonde companion on a night out - weeks after 'romance with fashion consultant Boadecia Evan'
+-  The Perfume Shop employee is dubbed a 'queen' and 'instant icon' as she sends fans wild as she becomes an unlikely TikTok star after her gift-wrapping skills capture the attention of millions
+-  В Крыму раскрыли 69,8% преступлений в 2023 году
+-  नाबालिग से गैंगरेप पर मृत्युदंड, भड़काऊ भाषण पर 5 साल की सजा… गृहमंत्री अमित शाह ने पेश किए 3 बिल, आसान भाषा समझें
+-  Er zijn van die momenten dat ik me doodschaam voor mijn seksegenoten en gisteravond was daar een van
+-  Oktobers stormflod tegner til at blive den dyreste hidtil
+-  Oktobers stormflod tegner til at blive den dyreste hidtil
+-  Dagaal Xoogan Oo Laga Cabsi Qabo In Uu Ka Qarxo Badda Cas Iyo Quwadaha Shisheeye Ee Laga Cabsi Qabo In Ay Ku Dagaalamaan
+-  Bullfrog to become California’s amphibious illegal alien
+-  How stumbling Warriors, refreshed Celtics took divergent paths since 2022 NBA Finals
+-  Keine generelle Maskenpflicht in der EJK
+-  경북·대구 '1인 가구', 10명 중 4명 40~60대 중장년층
+-  尹대통령 “과도한 정치·이념, 경제 지배 못하게 막겠다”
+-  Claire Sweeney joins Brookside star Dean Sullivan's on-screen wife Sue Jenkins at Liverpool Parish Church for late actor's funeral
+-  Asigurătorii și brokerii cer Guvernului să nu continue plafonarea prețurilor RCA și în 2024: Va crește riscul ieșirii altor jucători din piață
+-  '지드래곤 누나' 권다미, 누명 벗은 동생에 전한 메시지 "내년에는…" [종합]
+-  Λαρεντζάκης: Έκανε δωρεά σε σχολεία της Κύθνου
+-  AVG 0.283에 17홈런타자와 일단 결별…외인타자만큼 궁금한 공룡들 1루수, 2024년의 키맨
+-  Λέκκας για σεισμό στην Κωνσταντινούπολη: «Το ρήγμα της Ανατολίας έχει κατεύθυνση προς την Ελλάδα»
+-  Aantal afgegeven Amerikaanse bouwvergunningen meer dan verwacht omlaag
+-  Girona must earn the right to be La Liga title contenders, says coach Michel
+-  Insomniac Games: vazamento envolve mais de 1 milhão de arquivos e 1 TB de dados
+-  Luč miru iz Betlehema tudi pri Urški Klakočar Zupančič
+-  نقيب المهندسين يثمن قرار إنشاء نقابة التكنولوجيين
+-  UVEK ĆE VAM BITI PRI RUCI Zamrznite sunđer za sudove, nećete verovati koliko će vam koristiti u ovoj situaciji
+-  Muslim boxer creates history as she makes Australia's Paris Olympics team - and reveals how she deals with fighting in a hijab
+-  МВД России объявило в розыск псковского журналиста Камалягина
+-  Al menos 118 muertos y cerca de 200 heridos por terremoto de 6,2° en China
+-  Gremios empresariales y sindicales convocan hoy a marcha contra la delincuencia
+-  Άρης: Το πλάνο για τη Λαμία δεν θα έχει αλλαγές
+-  تأجيل محاكمة متهمين باقتحام مركز شرطة مطاي بالمنيا لفبراير المقبل
+-  Canadian Press NewsAlert: Record population growth in Q3, population grows by 430,000
+-  Canadian Press NewsAlert: Record population growth in Q3, population grows by 430,000
+-  Ben Doak suffers nightmare injury news as Scotland Euro 2024 hopeful told he needs surgery and ‘it’s not a good one’
+-  Ana Terradillos propone a Junqueras como colaborador de 'La mirada crítica': "A lo mejor me apunto"
+-  Ana Terradillos propone a Junqueras como colaborador de 'La mirada crítica': "A lo mejor me apunto"
+-  SAOBRAĆAJNA NESREĆA KOD PANČEVA Prevrnula se cisterna puna alkohola
+-  Politik-News im Überblick: Erlass rechtmäßig: Söders Kreuze dürfen hängenbleiben
