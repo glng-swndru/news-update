@@ -1,51 +1,11 @@
 # Latest News
--  Court warns man time running out on paying compensation to brother
--  Man on disability pension to pay for importing cannabis
--  127 شركة تقود سوق الأسهم للارتفاع ويغلق عند 11713 نقطة
--  عبر "ناجز".. وزير العدل يوجه بإطلاق خدمات "التبليغ العدلي"
--  شروط الفحص الطبي قبل الزواج وكيفية حجز موعد
--  عاجل.. كيفية تنازل الزوج لزوجته عن الدعم السكني.. تعرف على الإجراءات المطلوبة
--  خطوة خطوة.. الاستعلام عن المخالفات المرورية عبر منصة أبشر ١٤٤٥
--  الاستعلام عن رسوم المرافقين عبر منصة "أبشر"
--  طريقة الاستعلام عن منفعة التعطل عن العمل "ساند".. بالخطوات والرابط
--  "الأمن البيئي" يضبط 14 مخالفًا لتلويثهم البيئة بحرق مخلفات صناعية في مكة المكرمة
--  نزار بركة ينتقد بشكل مبطن تقصير وزارة صديقي في مواجهة غلاء المنتجات الفلاحية
--  New Orleans duo on cannabis, cocaine charges
--  City resident remanded to prison on ammo charges
--  En riesgo, exportaciones por cierre de cruces ferroviarios
--  Uludağ'da drift atan 4 sürücüye 81 bin 368 TL ceza
--  MIMORIADNE FOTO TOTO je NAJHĽADANEJŠÍ Slovák! Je obvinený z DVOJNÁSOBNEJ VRAŽDY, môže byť kdekoľvek: Pátra po ňom aj INTERPOL
--  Kontrolné inštitúcie musia byť nezávislé od vládnej moci: Majú byť odborné a nezávislé
--  Vírusová nálož KORONAVÍRUSU v odpadových vodách stúpla v šiestich krajoch
--  Sepultura oznámila po 40 rokoch svoj koniec. Rozhodla sa odísť vedomou a plánovanou smrťou
--  Experti varujú pred plastovými doskami na krájanie: Po tomto zistení ich okamžite vyhodíte von!
--  Slovensko versus Rakúsko: Ekonómovia zverejnili veľké porovnanie cien potravín!
--  VIDEO: Slon na Srí Lanke vnikol oknom do auta s turistami, hľadal niečo na jedenie
--  Dzurinda prechádza so stranou povolebnou sebareflexiou: Nový názov, ktorý sa až nápadne podobá na konkurenciu
--  Hviezdy slávneho seriálu povedali PRAVDU o kolegyni: Uff, TOTO je KRUTÝ DAR k narodeninám!
--  Single screen owners refuse to open advances of Shah Rukh Khan’s Dunki for Friday
--  New Show Alert! Sony Entertainment Television drops the promo of Mehndi Wala Ghar
--  Ranveer Singh, Alia Bhatt starrer Rocky Aur Rani Kii Prem Kahaani to premiere on Christmas Eve on Colors Cineplex
--  Národná diaľničná spoločnosť upozorňuje na mimoriadnu uzáveru tunela Bôrik
--  Πουλήθηκε 635.000 δολάρια το κεφάλι του ΕΤ από την κλασική ταινία του Στίβεν Σπίλμπεργκ
--  外星人傑作？泰國稻田驚現超可愛貓圖案 真相係……
--  South African teams are the biggest drawcards in the URC
--  Why does Gerwyn Price get booed at the World Darts Championships?
--  PC gamers can grab an incredible 9/10 game completely free – but you’ll have to hurry
--  AB'de kullanılmayan yaklaşık 4 milyar avroluk Kovid-19 aşısı imha edildi
--  England cricket stars forced to hide inside hotel after man is gunned down and killed outside building
--  Riksadvokaten godtar avgjørelsen i Tengs-saken
--  البحث والتعرف على المفقودين: ملفات أسر ضحايا دانيال في درنة (1747) ملف
--  Külföldön szereztetek nyelvvizsgát? Így tudjátok honosítani
--  Αυξάνονται οι μηνιαίες αποδοχές των εξωκοινοβουλευτικών υπουργών
--  Uživo: Pratite obraćanje Christiana Schmidta
--  Bursaspor Başkanı Recep Günay: “Bursaspor için ölümü göze aldım”
--  ΑΕΚ: Το καμπανάκι ήχησε απ’ την… Περιστερώνα μέχρι τη Λάρνακα
--  Nasa testet hochmodernes Kommunikationssystem – und schickt Katzenvideo aus Raumsonde
--  Инфлацията в Канада неочаквано остана без промяна през ноември
--  Tonight on Uzalo: Mbatha’s guilty conscience brings him nightmares
--  Foto: Otvoren četvrti Mali porodični dom
--  Veliaj me nxënësit më të mirë të Tiranës: Nga janari bursa falas për kurset digjitale te Piramida
--  Tusentals hemlösa efter Kinas värsta jordbävning på över tio år
--  Statistics Canada reports record population growth in Q3, population grows by 430,000
--  Политолог: В ситуации като сегашната Борисов се проявява като слаб лидер
+-  Kassandra 2023'ü yeni yılda mumla arayacağız diyerek uyardı. ‘2024 keşke gelmeseydi’ diyeceksiniz
+-  Ghost of Tsushima teve orçamento de US$ 60 milhões
+-  WDR-Intendant hört auf: Tom Buhrow steht für dritte Amtszeit nicht zur Verfügung
+-  Kalp hastaları soğukta aman dikkat
+-  “แม่ครูเจี๊ยบ” บอกลูกสาว "ตำรวจจับมือยิงได้แล้ว" ได้รับความยุติธรรมแล้ว
+-  Israel wipes out top Hamas banker Subhi Ferwana who paid terrorists' wages after troops find £1m in 's...
+-  Colin Armstrong's daughter makes emotional plea for millionaire dad, 78, snatched in Ecuador…as son flies o...
+-  Incredible 'gravity-defying' 342ft superyacht shaped like Star Wars Y-Wing fighter with THREE hulls...
+-  At least 118 dead & 400 injured after huge 6.2 magnitude earthquake hits China as rescuers brave -13C to...
+-  3 theories about Vanishing Act fraudster Melissa Caddick's death including 'amputated foot' and 'unre...
