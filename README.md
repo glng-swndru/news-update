@@ -1,51 +1,51 @@
 # Latest News
--  दाऊद को लगता था पुलिस की थर्ड डिग्री से डर, भारत लौटने के लिए रखी थी ये शर्त
--  Петербургских блокадников наградят почётным знаком в 2024 году
--  Украина потеряла более €1 млрд из-за блокировки границы польскими перевозчиками
--  Sanofi licenses fourth NK cell engager from Innate Pharma
--  Ekrem İmamoğlu'ndan kendisini hedef alan Meral Akşener'e cevap: Bazen haddini aşan cümleler kurabiliyor
--  Mutlu yıllar mutlu zamanlar: Saat&Saat'ten özel indirim fırsatlar
--  Diyarbakır'da DEAŞ operasyonu: 6 terör şüphelisi yakalandı
--  В Башкирии 2024 год объявлен годом заботы о людях с ОВЗ
--  طلب تحويل تأشيرة الزيارة إلى إقامة عمل 1445
--  بالصور.. الدفاع المدني بمحافظة ضرماء يحرر إصبع شخص علق في قطعة معدنية،
--  Tesla, Nio und MG übernehmen befristet Kaufprämie für E-Autos
--  Подведены итоги конкурса проектов Сквера памяти в Ижевске
--  Strictly's Bobby Brazier cosies up to a mystery blonde companion on a night out - weeks after 'romance with fashion consultant Boadecia Evan'
--  The Perfume Shop employee is dubbed a 'queen' and 'instant icon' as she sends fans wild as she becomes an unlikely TikTok star after her gift-wrapping skills capture the attention of millions
--  В Крыму раскрыли 69,8% преступлений в 2023 году
--  नाबालिग से गैंगरेप पर मृत्युदंड, भड़काऊ भाषण पर 5 साल की सजा… गृहमंत्री अमित शाह ने पेश किए 3 बिल, आसान भाषा समझें
--  Er zijn van die momenten dat ik me doodschaam voor mijn seksegenoten en gisteravond was daar een van
--  Oktobers stormflod tegner til at blive den dyreste hidtil
--  Oktobers stormflod tegner til at blive den dyreste hidtil
--  Dagaal Xoogan Oo Laga Cabsi Qabo In Uu Ka Qarxo Badda Cas Iyo Quwadaha Shisheeye Ee Laga Cabsi Qabo In Ay Ku Dagaalamaan
--  Bullfrog to become California’s amphibious illegal alien
--  How stumbling Warriors, refreshed Celtics took divergent paths since 2022 NBA Finals
--  Keine generelle Maskenpflicht in der EJK
--  경북·대구 '1인 가구', 10명 중 4명 40~60대 중장년층
--  尹대통령 “과도한 정치·이념, 경제 지배 못하게 막겠다”
--  Claire Sweeney joins Brookside star Dean Sullivan's on-screen wife Sue Jenkins at Liverpool Parish Church for late actor's funeral
--  Asigurătorii și brokerii cer Guvernului să nu continue plafonarea prețurilor RCA și în 2024: Va crește riscul ieșirii altor jucători din piață
--  '지드래곤 누나' 권다미, 누명 벗은 동생에 전한 메시지 "내년에는…" [종합]
--  Λαρεντζάκης: Έκανε δωρεά σε σχολεία της Κύθνου
--  AVG 0.283에 17홈런타자와 일단 결별…외인타자만큼 궁금한 공룡들 1루수, 2024년의 키맨
--  Λέκκας για σεισμό στην Κωνσταντινούπολη: «Το ρήγμα της Ανατολίας έχει κατεύθυνση προς την Ελλάδα»
--  Aantal afgegeven Amerikaanse bouwvergunningen meer dan verwacht omlaag
--  Girona must earn the right to be La Liga title contenders, says coach Michel
--  Insomniac Games: vazamento envolve mais de 1 milhão de arquivos e 1 TB de dados
--  Luč miru iz Betlehema tudi pri Urški Klakočar Zupančič
--  نقيب المهندسين يثمن قرار إنشاء نقابة التكنولوجيين
--  UVEK ĆE VAM BITI PRI RUCI Zamrznite sunđer za sudove, nećete verovati koliko će vam koristiti u ovoj situaciji
--  Muslim boxer creates history as she makes Australia's Paris Olympics team - and reveals how she deals with fighting in a hijab
--  МВД России объявило в розыск псковского журналиста Камалягина
--  Al menos 118 muertos y cerca de 200 heridos por terremoto de 6,2° en China
--  Gremios empresariales y sindicales convocan hoy a marcha contra la delincuencia
--  Άρης: Το πλάνο για τη Λαμία δεν θα έχει αλλαγές
--  تأجيل محاكمة متهمين باقتحام مركز شرطة مطاي بالمنيا لفبراير المقبل
--  Canadian Press NewsAlert: Record population growth in Q3, population grows by 430,000
--  Canadian Press NewsAlert: Record population growth in Q3, population grows by 430,000
--  Ben Doak suffers nightmare injury news as Scotland Euro 2024 hopeful told he needs surgery and ‘it’s not a good one’
--  Ana Terradillos propone a Junqueras como colaborador de 'La mirada crítica': "A lo mejor me apunto"
--  Ana Terradillos propone a Junqueras como colaborador de 'La mirada crítica': "A lo mejor me apunto"
--  SAOBRAĆAJNA NESREĆA KOD PANČEVA Prevrnula se cisterna puna alkohola
--  Politik-News im Überblick: Erlass rechtmäßig: Söders Kreuze dürfen hängenbleiben
+-  القوات المسلحة: عملية الاشتباك مع المجموعات المسلحة استمرت 14 ساعة
+-  الاعلام العبري : جنودنا تعرضوا لإصابات تهدد الخصوبة
+-  El Supremo confirma la condena a 1 año y 9 meses de cárcel para 'El Pequeño Nicolás' por la falsificación del DNI
+-  Sa tržišta povučen kineski bicikl za djecu
+-  Y Combinator-backed Guac trains algorithms to predict grocery demand
+-  Ekonomiści PKO Banku Polskiego: wzrost gospodarczy w 2024 r. zbliży się do 4 proc.
+-  Prep roundup: Mitty, O’Dowd girls basketball cruise at Nike Tournament of Champions
+-  Anti-ransomware startup Halcyon lands fresh $40M tranche
+-  Dog cancer treatment ImpriMed aims to expand its AI technology into human oncology
+-  Putin hails Russia's military performance in Ukraine and he vows to achieve Moscow's goals
+-  Sen. Warren Targets Former Officials Amid Crypto Legislation Accusations
+-  Terra (LUNA), Terra Classic (LUNC), USTC Prices Soar 10% In An Hour, Here’s Why
+-  Dismembered Body Confirmed as Wife of Ex-Hollywood Exec’s Murder-Suspect Son
+-  رئيس الوزراء البريطاني: نود رؤية هدنة إنسانية مستدامة تسمح بإطلاق المزيد من الرهائن ودخول المساعدات لغزة
+-  Nadal confirma su participación en el próximo torneo Conde de Godó
+-  Permascands vd om miljardbudet: “En kvalitetsstämpel”
+-  Alec Baldwin é atacado e entra em conflito com manifestante sobre guerra em Israel
+-  Sinochem Corp compra raro cargamento de crudo venezolano
+-  Facebookは既に画像生成AIが作ったパクリ投稿で埋め尽くされている
+-  Ausgrabungen: Hohengebraching im Frühmittelalter
+-  Millionen-Investitionen: Unternehmer setzen auf Regensburg
+-  Actores y actrices que abandonaron Cuba en 2023
+-  Last minute gifting—this 1-year subscription of unlimited DVR streaming is only $34.97 and requires no shipping
+-  Maintal: Autoaufbrecher wüten nachmittags auf Park- und Ride-Parkplatz
+-  Vicepresidenta de EEUU anuncia eventos a nivel nacional enfocados en el aborto
+-  A dash of optimism and a dollop of caution: Building AI for climate action
+-  Maratha Reservation : मराठा आरक्षणावर सरकारकडून गाजर दाखवण्याचा प्रयत्न; मुख्यमंत्र्यांच्या निवेदनानंतर विरोधक आक्रमक
+-  FC Schalke 04: Jetzt wird es heiß! Hammer-Rückkehr immer wahrscheinlicher
+-  Edeka in NRW wird zur Schließung gezwungen – Kunden stehen gerade JETZT vor verschlossenen Türen
+-  Erhalten Bürgergeld-Empfänger den teuren Führerschein umsonst? Das steckt hinter der Neid-Debatte im Netz
+-  Poliisi valvoo joululiikennettä Lapissa viikonloppuna – huomiota kiinnitetään erityisesti ajonopeuksiin, ohituksiin ja ajoetäisyyksiin
+-  Dışişleri Bakanlığından Çin için taziye mesajı: Can kayıplarından derin üzüntü duyuyoruz
+-  Investim prej 1.7 milionësh në Parkun Industrial në Viti, Kurti: Do të ndikojë në zhvillimin ekonomik
+-  אזולאי ערך אימון מלא בנתניה וצפוי לפתוח נגד בית"ר ירושלים
+-  רצח את חברתו לפני 32 שנה - וישוחרר מהכלא 4 שנים לפני הזמן
+-  Le corps sans vie d'un bébé découvert sur la voie publique à Paris
+-  Durham to host inaugural LEGO convention
+-  I thought I’d be dead by Christmas but returning to TV gave me my wings back, admits Hairy Bikers’ Dave Myers
+-  تعرف على الدولة ذات الاقتصاد الأفضل أداء في عام 2023
+-  2023 será el segundo año más caluroso en España detrás del 2022
+-  المجالي رئيساً لجامعة الزيتونة الأردنية
+-  Кметовете на Банско, Разлог, Белица и Якоруда искат изграждане на втора кабинкова линия
+-  Ojo: así operaba estructura especializada en hurto de apartamentos en Cali
+-  North Korea wants to be a tourist destination, is building beach resort: Report
+-  Nikhil A Mehta Makes History as India's First & Only Tempter to walk out as a couple on Temptation Island India
+-  Sismo originado frente a La Libertad sacude parte del país esta mañana de martes
+-  Channel 5 viewer left mortified by VERY rude blunder on Christmas TV show
+-  Dy letra anonime për të vrarë Arben Lleshin në burgun e Peqinit
+-  【女歌手被追求者捅死】被捕時稱是死者“男友” 嫌犯將被控謀殺
+-  Ar-Condicionado para a nossa roupa? É uma realidade!
