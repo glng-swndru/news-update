@@ -1,51 +1,51 @@
 # Latest News
--  전기오토바이 젠트로피 제트 2024년형 출시…”환경부 보조금 없이 구매 가능”
--  문종호 순천향대 부천병원 교수, 홍콩 ‘소화기 치료내시경 워크숍’서 라이브 시술 선봬
--  이건숙 구리 동구동 24통장, 취약계층 아동 장학금 50만 원 전달
--  박주호 온가족 출동…제주신화월드서 행복한 연말 보내
--  ‘It’s extremely hot’: Why Muslim boxer had to fight harder than most for Olympics spot
--  ‘It’s extremely hot’: Why Muslim boxer had to fight harder than most for Olympics spot
--  John Deere führt schon wieder neuen StarFire-Empfänger #automatischelenksysteme #empfänger
--  ‘A world class front rower’: Sharks emerge as 2025 premiership contenders after signing Addin Fonua-Blake
--  ‘술 권하는 제주’ 고위험음주율 상승세 여전
--  제주 빛낸 9명 2023 제주도 문화상 시상식
--  김종민 "돈봉투 받은 20명 공천배제? 이재명 못할 것"
--  López Obrador y Rubén Rocha Moya inauguran la presa Santa María
--  Duo Sayuri Kembali Dapat Panggilan STY, Berikut 29 Pemain yang Akan Mengikuti TC Timnas di Turki
--  Chet Holmgren, SGA Take Bite Out of Grizzlies 116-97
--  Tyler Herro et Bam Adebayo étaient de retour cette nuit à Mayami : le Heat était donc… au complet ?!?!?!
--  Gazze'de acı bilanço! İsrail her metrekaresini bombaladı
--  Çin'in Gansu eyaletinde deprem: Çok sayıda ölü var
--  Число жертв землетрясения в Китае увеличилось как минимум до 116 человек
--  Bombarded with scam calls and messages? There’s a way they could be stopped
--  Bombarded with scam calls and messages? There’s a way they could be stopped
--  이젠 민주당이 답해야 할 차례
--  Javier Aquino se quejó del arbitraje y lanzó un dardo al América tras la Final de la Liga MX
--  Bareilly News: नवाबगंज में किसान की हत्या, आधी रात पशु चोरी करने आए बदमाशों ने मारी गोली
--  Moradabad: लापरवाही पर 20 दिन में ही लाइन हाजिर हो गए मूंढापांडे इंस्पेक्टर, नहीं लगा पाए अपराधों पर लगाम
--  Pressestimme: 'Volksstimme' zur Sparpolitik der Ampelregierung
--  Pressestimme: 'Frankfurter Rundschau' zum Sieg der AfD bei der OB-Wahl in Pirna
--  Pressestimme: 'Kölner Stadt-Anzeiger' zum Haushaltskompromiss der Koalition
--  Pressestimme: 'Stuttgarter Nachrichten' zur Segnung homosexuelle Paare
--  Pressestimme: 'Schwäbische Zeitung' zum Protest der Landwirte in Berlin
--  Pressestimme: 'Leipziger Volkszeitung' zu Pirna
--  Pressestimme: 'Rhein-Neckar-Zeitung' zu Kirche/Homosexuelle
--  Pressestimme: 'Junge Welt' zum Verfassungsreferendum in Chile
--  Pressestimme: 'Frankfurter Allgemeine Zeitung' zum Bauernprotest in Berlin
--  Pressestimme: 'Handelsblatt' zum verpatzten Haushaltsfrieden
--  우본, '우체국 동행 카드' 출시
--  카카오내비, 이용자 선호 경로 반영
--  1년간 자동차 보험사기 피해자 2633명에 12억8천만원 환급
--  국내 주요항공사 앱 월간 이용자 300만명 육박
--  내년 1월 국제선 유류할증료 인하
--  日 '자가용 승차 공유' 내년 4월부터 부분 도입
--  Ψηφίζεται σήμερα με διακομματική στήριξη η τροπολογία Καιρίδη - Η στάση Σαμαρά και οι διαφωνούντες βουλευτές της ΝΔ
--  Quick Charge Podcast: December 18, 2023
--  ΗΠΑ: Ο κυβερνήτης του Τέξας υπογράφει νόμο που ποινικοποιεί την παράνομη είσοδο μεταναστών
--  El precio de la vivienda frenará en 2024 y crecerá por debajo de la inflación
--  『魔導物語1－2－3（PC-9801版）』が「プロジェクトEGG」で本日リリース！
--  IRCTC, IRFC, RVNL and IREDA Share Price Today
--  Foreign Portfolio Investors Drive Record Purchases In Indian Equities
--  Peso de la economía informal en el PIB alcanza su mayor nivel en 20 años
--  İYİ Parti’de yaprak dökümü! İstanbul’da görevden alma, Manisa’da 21 istifa
--  Ghaziabad में रेडीमेड कपड़ा फैक्टरी में लगी भीषण आग, एक घायल
+-  דנבר התגברה על מופע יחיד של דונצ'יץ', הקליפרס ממשיכים ברצף
+-  لأول مرة.. ربط سيارات الإسعاف بإشارات المرور لفتح الطريق تلقائيًا
+-  عاجل.. "الأرصاد" يتوقع استقرار الطقس على معظم مناطق المملكة وضباب بالشمالية
+-  منها الرياض.. "الحصيني" يُبشّر سكان هذه المناطق باستمرار الأجواء المستقرة
+-  Projet de loi « immigration » : la restriction des aides sociales aux étrangers au cœur du bras de fer entre la droite et la majorité
+-  Ram Mandir: प्राण प्रतिष्ठा समारोह में कृपया न आएं आडवाणी और मुरली मनोहर जोशी, चंपत राय ने दिया यह तर्क
+-  Lapsilisiin korotuksia ensi vuonna
+-  Urawa Red vs. Manchester City en vivo, por Mundial de Clubes 2023: hora, TV y dónde verlo
+-  اختفاء لاعب كرة قدم شهير في البرازيل... والشرطة تبحث عنه
+-  Projet de loi « immigration » : du Palais-Bourbon à Matignon, en passant par l’Elysée, une journée de tractations inédite autour d’un introuvable accord
+-  19 December Love Rashifal :इस राशि वालों को मिल सकता है धोखा, जानें आज का लव राशिफल
+-  RMPSSU: कुलपति ने जताई नाराजगी, ज्यादातर महाविद्यालयों ने नहीं अपलोड किए मिड टर्म के अंक
+-  Rishabh Pant:: తొలిసారి ఐపీఎల్‌ ఆక్షన్ ప్రక్రియలో యాక్టివ్ కెప్టెన్- రికార్డు సృష్టించబోతున్న పంత్‌
+-  Emir launches public bus transport and 34 projects worth $266mln in Tabuk
+-  검찰총장 윤석열 ‘정직 2개월’ 징계, 2심에서 뒤집어졌다
+-  Muere calcinado adulto mayor en su casa
+-  الأمم المتحدة: اعتداءات الاحتلال مسعورة على مستشفيات غزة
+-  തെന്നിന്ത്യയിലെ യഥാര്‍ഥ സൂപ്പർതാരം മമ്മൂട്ടിയെന്ന് ജ്യോതിക; പ്രശംസിച്ച് സിദ്ധാർഥും
+-  الربح بالدولار والضرائب بـ"اللولار"
+-  Parliament Security Breach: INDIA Bloc Leaders To Continue Protest Against Suspension Of MPs Today
+-  कौन है दाऊद का खास आदमी सलीम कुत्ता? जानिए कैसा है ये अजीब नाम
+-  Gujarat Congress : લોકસભાની ચૂંટણી પહેલા મધ્ય ગુજરાતના વધેલા કોંગ્રેસના ગઢમાં પડશે ગાબડું
+-  Perth childcare service fined $65k after kids wandered away from three of its centres
+-  Viral Video: ఇది కశ్మీర్ కాదు.. మంచు అందాలతో మెరిసిపోతున్న ఈ ఏఐ నగరం ఏదో గుర్తుపట్టగలరా?
+-  게임 전시회 E3, 역사 뒤안길로… 지스타 미래는?
+-  MCDC incorporated with Jannat tours UK to distribute Hajj packages in Europe & the Americas
+-  골프존, 랜섬웨어로 수백만명 개인정보 유출… 멀고도 험한 피해 보상
+-  MLA Disqualification : शिवसेना आमदार अपात्रता सुनावणीला सुरूवात; देवदत्त कामत काय म्हणाले ?
+-  Dawood इब्राहिम Last Wish: डॉन दाऊद इब्राहिम की आखिरी इच्छा रह गई थी अधूरी? जानना चाहते हैं क्या
+-  Man City to play Copenhagen in Champions League last 16 short on glamour ties
+-  Old heads lead Fluminense into Club World Cup final
+-  North Korea's Kim warns Washington as biggest ICBM launched
+-  Russia still banned from Olympic athletics - 'but things change': Coe
+-  Felipe Contepomi takes over as Argentina rugby coach
+-  UN prepares to start pulling peacekeepers from the Democratic Republic of Congo
+-  Marvel drops actor Jonathan Majors after assault conviction
+-  에코프로 젊은 과학자상에 고려대 유승호·서강대 박제영 교수
+-  الخارجية الأميركية: دخول أولى الشاحنات المحمّلة بضائع تجارية إلى غزة
+-  Lantbruksfastighet i Bergsjö såld för 500 000 kronor
+-  디지털 퍼스트 기업 핵심 기술 ‘프라이빗 AI·XaaS·액체 냉각·지속가능성’
+-  Crime: અમદાવાદમાં ઘરઘાટીની કરામત, માલિક બહાર જવા નીકળ્યાં ત્યારે ઘરમાં ઘૂસીને કરી 10.50 લાખ રૂપિયાની ચોરી
+-  German Cultural Events Axed As Gaza War Tensions Spike
+-  Happy Birthday Ricky Ponting: ਪੁਲ ਸ਼ਾਟ ਦੇ ਅਸਲੀ ਮਾਸਟਰ ਰਿਕੀ ਪੋਂਟਿੰਗ, ਜਾਣੋ ਰੋਹਿਤ ਸ਼ਰਮਾ ਨਾਲ ਉਨ੍ਹਾਂ ਦਾ ਰਿਸ਼ਤਾ ਅਤੇ ਕ੍ਰਿਕਟ 'ਚ ਅਨੋਖੇ ਰਿਕਾਰਡ
+-  Saudi minister launches strategy and identity of General Authority of Media Regulation
+-  삼성전자 '2030 시스템반도체 1위' 달성 속도 ... '아이소셀 비전' 차세대 2종 공개
+-  Seahawks vencem com TD a 28s do fim e mantêm má fase dos Eagles
+-  Profil Prabu Revolusi yang Dipecat dari TPN Ganjar-Mahfud
+-  Dunki First Day Advance Booking: रिलीज से पहले ही ‘डंकी’ दिखा रही दम, एडवांस बुकिंग में कर लिया करोड़ों का कलेक्शन, पहले दिन कमाई के रिकॉर्ड तोड़ेगी SRK की फिल्म!
+-  Malkajigiri: మల్కాజిగిరిపై ‘కమలం’ గురి.. టికెట్‌ కోసం ఇప్పటి నుంచే నేతల పోటీ
+-  Miti: Malaysia records trade surplus of RM12.41b in November
