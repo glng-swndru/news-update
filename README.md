@@ -1,51 +1,51 @@
 # Latest News
--  (PISMO BRALCA) Hamas potiska Izraelce v morje – problem je v izraelski vladi?
--  Banen er en byggeplass, men Brann selger billetter som aldri før
--  Türkiye'den 119 üniversite dünyanın en iyi 3 bin üniversitesi arasına girdi
--  الجغبير: القطاع الصناعي هو الأكثر تشغيلا للأيدي العاملة الوطنية
--  رؤية بيزوس لـ 1000 أينشتاين تثير جدلا كبيرا!
--  بلومبرغ: طائرات حماس تتفوق على جيش الاحتلال
--  ما هي مادة (الفثالات) التي تؤدي لتأخر الحمل؟
--  سفير إيران في السعودية يعلق لقب (خادم الحرمين الشريفين)
--  منتدى الاستراتيجيات: النظام الضريبي في الأردن غير منصف
--  Yüzünüzdeki bu değişime dikkat! Yanlış beslenme şekli...
--  Erdoğan'dan kritik seçim mesajı: Tek hedefimiz seçimi kazanmak
--  '취재진 70명+방송 카메라 9대 총출동' 성범죄 혐의 거포, 사죄로 입단식 시작했다
--  '이범수♥' 이윤진, 무슨 일 있나? 의미심장 글…"가장 가까운 사람에게 친절 베풀지 않기로 결정했다" [MD이슈]
--  "올시즌 최강의 팀은 아스널, 이렇게 고통스러운 경기는 처음이야"...'EPL 전술 천재'도 감탄했다
--  안준호 감독 남자농구대표팀 사령탑으로 전격 현장 컴백, 서동철 코치와 함께, 이사회 심의만 남았다[오피셜]
--  Camilo Cándido a Cruz Azul: los detalles del acuerdo por el nuevo refuerzo para el Clausura 2024
--  Российские войска владеют инициативой, заявил Путин
--  Galatasaray'da Sergio Oliveira ameliyat oldu
--  Bulgaristan'dan gelen yolcu treninde her biri fileye konmuş 33 piton ele geçirildi
--  В Анкаре прошла церемония памяти убитого посла России Карлова
--  ميقاتي: نصرّ على ضرورة الإسراع في انتخاب رئيس... وعلى إعطاء الحقوق العادلة
--  Поставки бронетехники в войска в 2023 году возросли втрое
--  Como Diniz corrigiu Fluminense em momento delicado para garantir time na final do Mundial de Clubes
--  Conmebol atualiza ranking histórico com Palmeiras assumindo liderança e Flamengo perdendo posição; veja
--  Só um brasileiro não será cabeça de chave na Libertadores; veja os potes
--  Libertadores 2024 tem último clube classificado; veja os 47 times que vão disputar competição no ano que vem
--  Como Bruno Guimarães e Chelsea ficaram 'no quase' em várias novelas e o que você precisa ver pela ESPN no Star+
--  Quem são as estrelas e como jogz o City, possível rival do Flu na final do Mundial?
--  Integrante do Kasino, ícone da música pop, diz como virou fã do City e dá até 'puxão de orelha' em Guardiola: 'Relação de amor e ódio'
--  Brock Purdy para MVP e 'lavadas': o resumo da semana 15 da NFL
--  Путин рассказал о современном оружии в ядерной триаде
--  ‘He is confused’: Phil Thompson calls for Jurgen Klopp to drop Liverpool 24-year-old
--  حرب غزة.. أكثر من ربع مليون نازح أصيبوا بالأمراض المعدية
--  أخبار السعودية.. ربط سيارات الإسعاف بإشارات المرور و30 ألف ريال تمويل موسمي من بنك التنمية
--  Best of 2023: Top 10 OTT Shows Ranked & Where to Watch Them
--  Ambulance paramedics may get military training in ways to keep queuing patients alive
--  이정후 ‘샌프란시스코 자이언츠와 초대형 계약하고 금의 환양’ [MK포토]
--  أمطار غزيرة وجيدة.. درجات الحرارة اليوم في ليبيا وخلال الساعات القادمة
--  Nystartat investmentbolag i Örnsköldsvik
--  עם עוגה בצורת מיני מאוס: אליקו חוגג יום הולדת ללירז
--  U sarajevskom naselju Briješće sinoć ranjena žena hicem iz pištolja
--  Nytt företag startar i Örnsköldsvik – ska verka i verkstadsbranschen
--  Путин заявил о растраченных резервах ВСУ
--  U 85 posto sudskih procesa privrednog kriminala ne dolazi do kažnjavanja
--  Vratar PSG-a opljačkan u svom domu
--  “Não está previsto qualquer aumento em sede de IMI”, garante Nuno Félix
--  จากนางเอกในตำนาน จอย ศิริลักษณ์ เรื่องเหลือเชื่อ นิมิตได้ เชื่อมจิตถึง ‘หลวงพ่อโต’
--  28㎓ '제4이통' 접수 마감…세종텔레콤·스테이지엑스·마이모바일 3파전
--  '제4이통' 후보 3파전…세종텔레콤·스테이지파이브·마이모바일 (종합)
--  Путин призвал поддерживать готовность ядерной триады
+-  4316억원 슈퍼스타의 영상통화…日 25세 괴물에이스 붙잡기, 다저스·양키스·메츠 사이 ‘눈물겹네’
+-  Putin, "dost olmayan ülkelerle" yapılan vergi anlaşmalarını iptal etti
+-  Sultangazi'de 15 katlı binada yangın: Vatandaşlar mahsur kaldı
+-  Başkan Erdoğan'dan dünyaya Gazze mesajı: Artık suçluların cezalandırılması için gerekeni yapmak vaktidir
+-  Konya merkezli 3 ilde FETÖ operasyonu: 14 gözaltı
+-  Soccerladuma | Sundowns' Next Plan In Luring Mayo From City?
+-  Teilwiederholung der Bundestagswahl in Berlin am 11. Februar
+-  Kinderleiche aus Fluss in Bingen geborgen
+-  NeoVision泰山影像系统 高定三主摄 努比亚Z60 Ultra发布
+-  '매디슨 공백 최소화' 로 셀소, 에버턴전도 출전 의심...토트넘은 긴장
+-  Microsoft Edge, Süper Sürükle ve Bırak Özelliğini Duyurdu
+-  Herausforderung für Finger und Füße
+-  Letztes Spiel des Jahres: Preußen Münster ist beim BVB II gefordert
+-  Nissan terá picape inédita de R$ 150 mil no segmento do Fiat Toro
+-  Во недела ќе се одржи традиционалната Дедомразовска трка
+-  VP's Rechtsback van de Eerste Seizoenshelft: vijf opties, uitblinkers PSV en AZ
+-  Sie sind das erste Perfect Match bei "Are You The One?"
+-  Echo Show 8 (3. Gen.) im Test: Mit Thread, Zigbee und Matter zur Smart-Home-Zentrale
+-  Eredivisie-doder Spakenburg slijpt messen voor thuisduel met Excelsior in de beker
+-  Lazio director on drawing Bayern Munich in the Champions League: “Worst draw we could have got”
+-  沒直播就取消？ 于北辰節目籲趙少康：不要把成大當成中廣的
+-  Gwrthod apêl National Theatre Wales ar ôl colli cyllid
+-  내년 총선 관련 범죄 예방 `검경협의체' 가동
+-  종일 주워도 고작 1만원 … 폐지 줍는 노인들 `寒겨울'
+-  대전 화장품공장 화재
+-  충북도 외자유치 4억3000만달러 달성
+-  교육과정 운영 체계 교류 `맞손'
+-  청주페이 한정판 캐릭터 카드 충북콘텐츠코리아랩 제작 출시
+-  “R마드리드·바르샤 비켜” 지로나 라리가 선두 질주
+-  브라질 플루미넨시FC FIFA 클럽월드컵 결승 선착
+-  ‘NBA 올스타 군단’ 클리퍼스 8연승 상위권 도약
+-  KBO 경력직 외인 우대?
+-  챔스리그 16강서 한일 ‘친구 대결’
+-  청주국제공항 민간전용 활주로 신설·활성화 촉구 거리행진
+-  과도한 인공조명 공해 막는다
+-  아침 간편식 운영 방식 어떻게?
+-  한국 야구 세계랭킹 4위 유지 … 1위 일본·2위 멕시코
+-  토트넘전 판정에 항의 맨시티 제재금 2억 징계
+-  독일 분데스리가 김민재 슈투트가르트전 도움 삭제
+-  시민 여론조사 `청주시선' 호응
+-  충북도 산단 지정규모 전국 최대
+-  참여연대 “충북시군의회의장협 해외연수 추진” 비판
+-  한파 속 극락조 꽃 `활짝'
+-  34평 1년 만에 4522만원 올랐다
+-  검찰 오송참사 수사망 윗선 겨냥? 충북도청·청주시청 2차 압수수색
+-  “충청타임즈는 ‘2024 지발위 우선지원대상사’ 신청을 하지 않기로했습니다”
+-  교통대 역량강화 워크숍
+-  정환희 서원대 교수 장학·대학발전기금 기탁
+-  충북소주 연탄·이불 기탁
+-  전이현 나라아트 꽃집 대표 화분 기탁
