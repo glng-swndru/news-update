@@ -1,51 +1,51 @@
 # Latest News
--  Ammar, Tangara ile düzensiz göç sorununu görüştü
--  Hakem golü verdi, İstanbulspor sahadan çekildi!
--  Bakan Fidan, Lagodinsky'yi kabul etti
--  Reactions As BNXN Falls Off Stage While Performing At His Lagos Concert
--  Silah boş mu dolu mu şakası kanlı bitti. Bir kişi öldü
--  Hideo Kojima Is ‘Too Tired And Exhausted These Days’
--  Tragedija v vrtcu: umrl je leto dni star fantek
--  Museu Malhoa reabre na Caldas da Rainha após requalificação
--  Anthony Joshua gives frosty interview at Grand Arrivals ahead of Otto Wallin fight
--  La emeritense Mariu Cano se alza con el oro a nivel nacional en La Manga
--  Karhu Basket kipuaa kohti kärkeä Korisliigassa
--  Karhu Basket kipuaa kohti kärkeä Korisliigassa
--  В ООН заявили, что удары хуситов в Красном море могут навредить торговле и экологии
--  Nottingham Forest have dismissed manager Steve Cooper and are poised to bring in former Wolverhampton and Tottenham boss Nuno Espirito Santo as his replacement
--  Green Hell developer Creepy Jar reveals new sci-fi base builder StarRupture
--  Deutschland streicht E-Auto-Kaufprämie: Wie machen es andere Länder?
--  575.000 euros alloués au Nord-Pas-de-Calais pour le loto du patrimoine
--  Fußball-Bundesliga: Union Berlin strebt gegen Köln versöhnlichen Jahresausklang an
--  بين اكثرية ممدِّدة واقلية متمردة، ينقسم لبنان
--  Plaza Piar de Maturín se engalano con la “Ruta Cultural Navideña”
--  Projet de loi immigration: "Au regard de la crise migratoire que nous vivons aujourd'hui, il faut des mesures fermes et pragmatiques", pour Virginie Duby-Muller (LR)
--  Pilibhit News: किराये पर रह रहा युवक दे रहा था चोरी की घटनाओं को अंजाम
--  Pilibhit News: तैयबा का भाई बोला- आग लगी तो बहन को ऑपरेशन टेबल पर छोड़कर भाग गए डॉक्टर
--  Pilibhit News: कड़ाके की ठंड में खुले आसमान के नीचे बसों का इंतजार करते हैं यात्री
--  Pilibhit News: इस माह पूरा हो जाएगा बढेपुरा का आईटीआई कॉलेज भवन
--  Pilibhit News: अधिवक्ता की पत्नी ने दी आत्मदाह की धमकी
--  Pilibhit News: शादी का झांसा देकर युवती से एक वर्ष तक करता रहा दुष्कर्म
--  Pilibhit News: बाघ ने गाय को मार डाला
--  Pilibhit News: गोशाला के पीछे दिखाई दिया तेंदुआ, सूचना के बाद भी नहीं पहुंची टीम
--  Pilibhit News: शहीदों को याद कर भाकपा ने मनाया एकता बनाओ दिवस
--  Haridwar News: कोर्ट से महंत रघुमुनि के पक्ष में आया फैसला, तीनों महंतों के प्रस्ताव निरस्त
--  Pilibhit News: सुनसान जगह पर बाइक रोककर महिला से दुष्कर्म
--  Haridwar News: शोरुम का शटर उखाड़कर लाखों के मोबाइल फोन, नकदी उड़ाई
--  Pilibhit News: ठीक हुई मोटर, पांच मोहल्लों में आज से शुरू होगी जलापूर्ति
--  Haridwar News: सीएचसी, पीएचसी पर रखे जाएंगे दो किलो के ट्रैवल ऑक्सीजन सिलिंडर
--  Pilibhit News: बाघ ने फिर बदला क्षेत्र, अब नवदिया में मौजूदगी
--  Haridwar News: कोर्ट के आदेश पर कांग्रेस का कार्यालय खाली कराया
--  Pilibhit News: वॉलीबाॅल और कबड्डी में बरखेड़ा टीम प्रथम
--  Haridwar News: विकसित भारत यात्रा से आमजन को मिल रही योजनाओं की जानकारी
--  Pilibhit News: बंगाली विस्थापितों को दिलाएं अनुसूचित जाति का दर्जा
--  Pilibhit News: ट्रेन के फेरे बढ़ें और समय बदले, तभी मिलेगा यात्रियों को फायदा
--  Bahraich News: यू-डायस पोर्टल पर डाटा फीड नहीं, रुकेगा शिक्षकों का वेतन
--  Bahraich News: बाइक टकराने पर दो पक्ष भिड़े, जमकर चले लाठी डंडे, दो गंभीर
--  Bahraich News: छह दिन बाद होना था निकाह, फंदे से लटकता मिला शव
--  Kanpur News: फाटक में खराबी आने से एक घंटे जाम में फंसे यात्री
--  Kanpur News: जलापूर्ति होते ही जगह-जगह से लीक हो गई नई पाइप लाइन
--  Kanpur News: कमरे के कुंडे में फंदे पर लटकी मिली महिला
--  Kanpur News: किसान के सीने पर तमंचा लगाकर भैंस ले गए मवेशी चोर
--  Banda News: निमोनिया पीड़ित मासूम की मौत, 71 बच्चे पहुंचे अस्पताल
--  Banda News: सांप के साथ बेटे को लेकर अस्पताल पहुंचे परिजन
+-  주우재, 멋진 엄지척
+-  주지훈 '힐링 미소'
+-  김종국-주우재-하하, 유쾌한 포즈
+-  Ezekre a címekre számíthatunk az Insomniactól
+-  VAR danışıqlarından hamının xəbəri olacaq
+-  رئيس المؤتمر يعزي بوفاة القاضي مطهر الارياني
+-  Ukrajinska vojska želi mobilizirati još pola miliona ljudi
+-  Limassol tourism board spearheads cycling network project
+-  Cuidado con el Perro flow viejo de Wendy Guevara
+-  Video/Foto: Sarajevo blista u prazničnoj atmosferi
+-  رئيس الحكومة الليبية المكلفة يفتتح عدداً من الطرق والمشاريع الخدمية بطبرق
+-  Mercato - PSG : Son transfert plombé par Zaïre-Emery ?
+-  Κουίζ: Μπορείς να βρεις τη λέξη που λείπει από 10 ελληνικές παροιμίες;
+-  Harvard College early applications drop 17% from last year
+-  الجيش السوداني يفتح تحقيقا حول انسحاب قواته من مدينة "ود مدني"
+-  U srijedu pretežno sunčano, najviša dnevna temperatura do 16 stepeni
+-  Đurđev za BORBU: Mandića napadaju jer žele razbijanje jedinstvenog srpskog nacionalnog i duhovnog bića koje predstavlja opasnost za sve novokomponovane nacionalne identitete
+-  الرئيس الأوكراني: واشنطن لن تتخلى عنّا وستمدنا بمنظومات دفاعية إضافية
+-  أستاذة مناعة تحذر: أطعمة "موجودة في كل منزل" تدمر الكبد
+-  مطور عقاري: العاصمة الإدارية الخيار الأول للاستثمار.. و5 مطالب لدعم المطورين
+-  وزير دفاع الاحتلال: سنحضر كبار قادة حماس إلى المقبرة أو السجن
+-  في استهداف قوة خاصة.. المقاومة تؤكد مقتل 8 جنود إسرائيليين شمال غزة
+-  إعلام عبري: جنود مصابين في غزة يرفضون لقاء نتنياهو
+-  بعد مدة من الحزن.. 5 أبراج على موعد مع انفراجات وحظ وأخبار سعيدة
+-  الخارجية الأمريكية: يمكن التوصل إلى هدنة ممتدة إذا وافقت حماس على إطلاق سراح الأسرى
+-  Unatoč aferi i štrajku Jurdani će i treći put produljiti mandat u Čistoći, jednostavno ne mogu naći boljega
+-  Turci „preselili“ Savića i Krunića u Fenerbahče: Stefanov menadžer demantovao
+-  الاحتلال يقتحم مستشفى المعمداني بغزة ويخرجه عن الخدمة
+-  درجات حرارة حول الصفر وصقيع محتمل في الاردن
+-  الحاج عمر عبد الرحيم العجل الحياري في ذمة الله
+-  لا شيء مستحيل.. بسن التسعين حصلت على الماجستير
+-  Elvis Merzlikins kan trejdas bort från Columbus Blue Jackets
+-  Nucléaire: l'alliance industrielle sur les petits réacteurs se précise en Europe
+-  Pétrole : pas de pénurie en vue en France malgré les tensions en mer Rouge
+-  Climat : les économistes sceptiques sur les ambitions budgétaires du gouvernement
+-  En Corse, la ministre Olivia Grégoire promeut l'installation de petits commerces ruraux
+-  Projet de loi immigration : c'est officiel, députés et sénateurs ont arraché un accord
+-  Games Inbox: What new consoles will be released in 2024?
+-  Spider-Man: The Great Web was a PS5 live service title like GTA Online
+-  Insomniac PS5 hack leaks Wolverine game footage and new X-Men game
+-  Asgard's Wrath 2 review - VR game of the year
+-  Paula Fernandes posa em árvore luxuosa de Natal
+-  Assange appeal against US extradition set for February
+-  عصير يقي من خطر الإصابة بالسرطان والسكري.. تحضير سهل في المنزل
+-  Millions in opioid settlement funds sit untouched as overdose deaths rise
+-  Dichiarazione dei Redditi 2024: nuovo calendario e Precompilata
+-  Xóchitl Gálvez, al estilo AMLO, promete mantener programas sociales: ‘Gente dejará de ser pobre’
+-  Pavel: Ako Tramp pobijedi na izborima doći do mirovnih pregovora bez obzira na mišljenje Kijeva ili EU
+-  Bancada colorada felicita al Gobierno por el operativo en Tacumbú
+-  Pysäyttäjää ei tunnu löytyvän - Tapparan raju voittoputki sai jatkoa
