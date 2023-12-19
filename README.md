@@ -1,51 +1,51 @@
 # Latest News
--  السيتي يعبر أوراوا لنهائي مونديال الأندية
--  عموتة يستدعي فادي عوض وبني هاني لمنتخب الأردن
--  Deranged man calling himself 'Captain America' charged after attempt to enter military base with AR-15
--  Jerry Seinfeld meets with freed Israeli hostages, families of captives in Tel Aviv
--  13-year-old who planned to shoot up synagogue sentenced to write book report on WWII hero
--  Gaza hospital chief admits to being Hamas commander, using clinic as military base
--  How NASA streamed a video of a cat named Taters from deep space
--  Ex-Google programmer admits threat to kill Chief Justice John Roberts
--  Jerry Seinfeld meets with freed Israeli hostages, families of captives in Tel Aviv
--  Trump demands primary challenger for pro-DeSantis Rep. Chip Roy — but it's too late
--  Trump demands primary challenger for pro-DeSantis Rep. Chip Roy — but it's too late
--  Zelensky may call up 500,000 more troops while insisting US 'will not let us down' on added aid
--  Gaza hospital chief admits to being Hamas commander, using clinic as military base
--  Dozens arrested in Capitol Rotunda at anti-Israel rally led by Linda Sarsour
--  Deranged man calling himself 'Captain America' charged after attempt to enter military base with AR-15
--  Ex-Google programmer admits threat to kill Chief Justice John Roberts
--  Zelensky may call up 500,000 more troops while insisting US 'will not let us down' on added aid
--  13-year-old who planned to shoot up synagogue sentenced to write book report on WWII hero
--  Dozens arrested in Capitol Rotunda at anti-Israel rally led by Linda Sarsour
--  How NASA streamed a video of a cat named Taters from deep space
--  Application de l’ordonnance réintégrant Sonko: « Que les juges (..) demandent à ce que Ousmane Sonko soit rétabli dans ces droits » (Me Ciré Clédor Ly)
--  Mary Earps WINS BBC's Sports Personality of the Year award: Lioness goalkeeper storms to victory ahead of Stuart Broad and Katarina Johnson-Thompson
--  Olli Jokinen hermostui toimittajan kysymykseen - "Ei ole asiallista pelin jälkeen keskustella"
--  ESPN Taps Josh Krulewitz to Succeed Chris LaPlaca as Senior Vice President of Communications
--  عاجل.. التقديم من اليوم ولمدة 5 أيام .. وظيفة شاغرة بجامعة الطائف
--  بالفيديو .. حالة مطرية غزيرة على الجبيل
--  "اللعنة عليها".. سقطة جديدة لـ بايدن في ذكرى قاضية شهيرة.. ويعتذر
--  La picante broma del Brentford para Dibu Martínez tras su fuerte cruce con Maupay: "Todo lo mejor en tu..."
--  Revelan cuál es la fecha del debut de Jonatan Viale en la pantalla de TN
--  Diyarbakır'da 1800 yıllık ameliyat aletleri bulundu
--  Komitmen Penyidik Kasus Firli Bahuri Usai Menangi Praperadilan, Apakah Segera Menahan?
--  جوارديولا: لقب مونديال الأندية ما ينقص مانشستر سيتي.. وأعلم أن الأهلي في مستوى جيد
--  Britney Spears is 'in talks' to reunite with celeb photographer who helped her shed her good girl image in VERY sultry 2004 shoot to mark 20 years since the iconic images... as he reveals popstar is ready to 'reinstate her legacy'
--  Jodie Turner-Smith flashes her abs in a skimpy top as she enjoys a girls' night at Lakers game with best friend Nancy Gomez after ex Joshua Jackson confirmed Lupita Nyong'o romance
--  Amazon Prime Video shares the first trailer for Expats starring Nicole Kidman
--  Imarisio predica calma: « Il Rennes è una squadra da non sottovalutare»
--  Happy New Year: How to Watch the New Year’s Eve Ball Drop & All the Performances Without Cable
--  Rishi Sunak faces another by-election as Ex-Tory MP Peter Bone is kicked out of the Commons by constituents after sexual harassment case
--  Accountability Court grants bail to four accused in M6 Motorway land scam case
--  「米は見殺しにしない」とゼレンスキー氏
--  Prescott, Ont. residents concerned over potential development on green space
--  ABD'de fırtına can aldı... Yüzbinlerce kişi elektriksiz
--  Naci Görür "Bu işin şakası yok" diyerek uyardı!
--  كأس العالم للأندية - مدرب أوراوا ريدز: الأهلي مختلف عن مانشستر سيتي
--  «مجلس الأمن» يرجئ مجدداً التصويت على مشروع قرار حول غزة إلى الأربعاء
--  إنشاء الهيئة السعودية للألعاب والرياضات الالكترونية
--  20 award-winning landscape photos to inspire your 2024 travel
--  Police seek witnesses, video after 2 pedestrians struck in East Vancouver
--  Šta su glavni ekonomski zadaci pred novom Vladom Srbije: Stručnjaci o tome šta je do sad bilo dobro, a šta sve mora bolje
--  Bethesda plans to expand Fallout 76 with new areas, quests, and more in 2024
+-  Bei diesen "Bauer sucht Frau"-Singles hat es nicht geklappt!
+-  ¡Que tristeza! Murió Bianca, la niña con atrofia muscular espinal
+-  Reportan falla de semáforo en la avenida Universidad
+-  Ante el juez, ministerial acusado de choque fatal
+-  “حماد” يفتتح عدداً من المشاريع الخدمية الرئيسية في طبرق
+-  SF가 이정후를 매력적으로 본 이유… 바로 '도전정신'[초점]
+-  Bakırköy Ata Spor Kulübü, "Sporun Enleri"ni seçti
+-  ABD: İsrail'e zor sorular sorduk
+-  Gazze'de ateşkes oylaması BMGK'de ikinci kez ertelendi
+-  Ziraat Bankkart, set vermeden kazandı!
+-  Sivasspor Başkanı Mecnun Otyakmaz'dan hakem tepkisi!
+-  Türk Telekom evinde mağlup oldu!
+-  Darüşşafaka Lassa grubun son maçında galip!
+-  İstanbulspor Başkanı konuştu: Yapacak bir şey yok, takdir kamuoyunun
+-  Σλοβακία: Διαδηλώσεις κατά της μείωσης των ποινών για διαφθορά
+-  Russian Security Forces Have All Powers to Ensure Country's Defense - Putin
+-  Wheels threaten to come off DeSantis campaign
+-  Ветер и снег продолжат 20 декабря испытывать жителей Карелии на прочность
+-  Iznenađenje u Berlinu – Alba pobedila Barselonu
+-  Per gennaio il Toro mette nel mirino un croato della Salernitana
+-  Lebenslange Haft für Ex-Frau von Serienmörder Fourniret
+-  В Адыгее сгорела легковушка
+-  Sejm przyjął ustawę o przedłużeniu ważności orzeczeń o niepełnosprawności
+-  #vr market keeps shrinking even as Meta pours billions of dollars a quarter into metaverse
+-  Astrobotic ready to launch Peregrine lunar lander in early January
+-  Incendio consume varios locales en el Mercado Revolución de Morelia, Michoacán
+-  セールスフォース、得意のマーケティングで自社AIの「信頼と安全」をアピール。ただし顧客は半信半疑
+-  Aaj Ka Vrishchik Tarot Card: वृश्चिक राशि वाले जा सकते हैं सुखद यात्रा पर, बड़ों की सीख सलाह का लाभ उठाएं
+-  Cousins Properties Announces Its Fourth Quarter 2023 Common Stock Dividend
+-  Seurat Technologies draws recognition from the Boston Globe as a "Top Place to Work" on the heels of its $99M Series C lead by NVIDIA and Capricorn
+-  CHRIS BRUZZO JOINS PELOTON BOARD OF DIRECTORS
+-  Hogs add Addison Nichols from Vols
+-  আজ টিভিতে যা দেখবেন (২০ ডিসেম্বর ২০২৩)
+-  60e Oscars “Sud Ouest” du Sport : une cuvée de prestige pour les soixante ans
+-  Can the Church of England's and Pope Francis' strides on same-sex marriage help save dying institutions?
+-  Crédito emergêncial das enchentes tem alta procura, informa o BRDE
+-  ظاهرة جوية مُسيطرة.. الأرصاد تكشف تفاصيل طقس الأربعاء (بيان بالدرجات)
+-  غلق محور عمرو بن العاص لمدة 5 ساعات غدًا
+-  التعليم: توزيع المعلمين الجدد وفقًا للتوزيع الجغرافي ومناطق سد العجز
+-  التعليم: توفير نسخ من البرامج التعليمية على منصات الوزارة وقنوات "مدرستنا"
+-  وزير التعليم: مراعاة إجازات وأعياد المسيحيين عند إعداد جداول الامتحانات
+-  बिल्डिंग परमिशन और कम्पाउडिंग की नियम-प्रक्रिया करें आसान, CM मोहन यादव ने दिया निर्देश
+-  Guardiola e a importância do Mundial de Clubes: «É uma oportunidade única»
+-  Benzine zam geldi
+-  Grave lutto per Lilli Gruber, morta la mamma: aveva 96 anni
+-  ¿Qué le pasa a mi bebé? Un estudio identifica los tipos de llanto y qué significa cada uno
+-  Food industry groups accuse Galen Weston of inaccurate claim over grocery code
+-  MÄRKTE USA/Wall Street erklimmt neue Rekordmarken
+-  Путин отметил эффективную работу российских спецслужб
+-  Israeli airstrikes kills dozens across central, south Gaza
