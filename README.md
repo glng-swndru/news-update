@@ -1,51 +1,51 @@
 # Latest News
--  ניצחון חמישי ברצף: מוסינזון הוד השרון שמרה על המאזן המושלם
--  Canada Joins Multinational Effort to Counter Attacks on Commercial Ships in Red Sea
--  Marius Sumudica: Sezonun en iyi maçını oynadık
--  İran'da tatbikat esnasında mühimmat patladı: 3 asker öldü
--  Heimlich Methadon ins Getränk gemischt – Mann stirbt
--  Vùng Vịnh nóng với liên minh chống Houthi của Mỹ
--  Trấn Thành, Tóc Tiên có phải diễn sâu ở Ca sĩ mặt nạ?
--  Doãn Hải My tay che bụng sau nghi vấn mang bầu, được Đoàn Văn Hậu đỡ khi ra sân bóng
--  Thế hệ thứ 2: Con trai ông Phạm Nhật Vượng, Nguyễn Anh Tuấn… trở thành cánh tay đắc lực của bố trong ngành ô tô khi tuổi đời chưa đến 30
--  Sau 65 tuổi, người khôn ngoan lựa chọn cuộc sống bình dị: Bớt toan tính, nửa cuối đời bình yên
--  Cách vệ sinh cửa sổ trời tại nhà
--  Quả chuối mua về có cần rửa hay không?
--  Một ngôi sao đột ngột rời showbiz khiến fan trở tay không kịp, hé lộ nguyên do có thể qua đời bất kì lúc nào
--  Lực lượng Hamas từ chối đàm phán trao đổi tù nhân, chỉ đồng ý đình chiến
--  Tổng thống Putin: Nga nâng cấp kho VKHN, đặt lực lượng chiến lược ở mức sẵn sàng cao nhất
--  Chelsea’s Moises Caicedo escapes with booking after horror tackle on Anthony Gordon ONE MINUTE into Newcastle clash
--  Σβαμπ: «Οι άνθρωποι με ειδικές ανάγκες είναι πρότυπα»
--  김해시, 신세계백화점에서 공예품 특별 판매전
--  양산시립박물관, 오는 23일 ‘2023 송년음악회’ 연다
--  김해율하도서관 아동 손뜨개 모자 기부
--  비앤테크 김해장학재단 1000만 원 기탁
--  넥센타이어 창녕공장 온기 가득 밥솥 나눔
--  KAI 김장김치 2700포기 900가구 나눔
--  김해시장애인종합복지관 송년음악회 개최
--  하동군 농식품 바우처 시범사업 공모 선정
--  하동케이블카 해넘이·새해 일출 행사
--  김해도시개발공사 주거복지문화 최우수상
--  거창 남하면 무릉전통한과 공유냉장고 기부
--  몸·마음 묵은 때 싹 벗겨 드렸어요
--  Search to resume for Victorian boy missing in waters
--  Gérald Darmanin aux députés de la Nupes: "Par trois fois, vous avez trahi les aspirations du peuple"
--  Enzo Fernandez injury fears as £107m Chelsea star subbed off just half an hour into Newcastle Carabao Cup clash
--  CBC TV Ad Revenue Falls 16 Percent Compared to 2022
--  Kahramanmaraş'ta deprem
--  Fas ile İspanya'dan ortak operasyon
--  Manchester City finale yükseldi!
--  Serkan Damla: Takımın geri dönmesi beni mutlu etti
--  '인성도 월클' 이정후, 계약 내용 중 '이것' 가장 만족했다
--  Rotes Meer: Deutschland will USA bei Schutz von Schiffen im Roten Meer unterstützen
--  Feijóo llevará al Congreso prohibir homenajes a etarras y que condenados por delitos de sangre puedan ir en listas
--  Feijóo llevará al Congreso prohibir homenajes a etarras y que condenados por delitos de sangre puedan ir en listas
--  Od 2035 r. w Kanadzie będą sprzedawane tylko samochody elektryczne i hybrydowe
--  Cena złota wzrosła drugi dzień z rzędu
--  Paulistão: Novorizontino inicia vendas e renovação dos planos de Sócio-Torcedor
--  Diplomatically Isolated Belarus Seeks Allies in Africa
--  Video: Cae tráiler de puente elevado en El Paso
--  Discuten diputados por refinanciamiento de la deuda estatal
--  غزة «أخطر مكان في العالم» للأطفال.. وأهلها «يموتون في الشوارع»
--  أسابيع من الهزات تفجّر بركان ريكيانيس.. وسلطات آيسلندا: ليس حدثاً سياحياً
--  الصين تكثّف جهود الإغاثة بعد زلزال قانسو وتشينغهاي
+-  New research models critical climate collapse conditions in ecological and biological systems
+-  İran'da tatbikatta facia: Mühimmat patlaması sonucu üç asker öldü
+-  BMGK'daki Gazze oylaması ertelendi
+-  Jamaica’s Prime Minister and Minister of Tourism Attend Grand Opening Ceremony at Hideaway at Royalton Blue Waters
+-  Pročitajte što vam ove srijede donosi Večernji list BiH
+-  Conoce las rutas de los Torinos Navideños
+-  Bebés de silicona: ¿Cómo obtenerlas y cuánto cuestan estas muñecas?
+-  Asamblea Nacional y dos ministerios recibirán propuesta de modificación de la Ley 409
+-  Beteiligung an drei Morden: Ex-Frau von Serienmörder Fourniret zu lebenslanger Haft verurteilt
+-  Ana Vega: «Para nada es una represalia. Vox quiere dar a Valencia el peso que le corresponde»
+-  Taylor Swift and Travis Kelce 'WILL spend the holidays together' with the pop star 'set to attend the Chiefs' games on Christmas Day and New Years Eve'
+-  Q&A: Meaningful social interactions are the only 'cure' for loneliness
+-  검찰, 송영길 '변호인 외 접견금지'…증거인멸 우려 차단
+-  La Audiencia de Valencia amplía a 2019 el análisis de los correos del equipo de Oltra en Igualdad
+-  Passenger plane 'takes off' by itself as it is blown away by 100mph winds at Argentinian airport, smashing into staircase
+-  В Италии мигранты из Пакистана получили пожизненное за убийство дочери
+-  Caso Marcelo Pecci: Franciso Correa obtiene inmunidad por un año
+-  Ciudadanos critica la falta de refuerzo de limpieza esta Navidad en Orihuela
+-  Подозреваемого в избиении участника СВО в Петербурге арестовали
+-  Lauren Sanchez shows off her enviable curves in an orange bikini and TINY tweed shorts as she strolls hand-in-hand with Jeff Bezos in St. Barts - before celebrating her 54th birthday with a red-themed party on his yacht
+-  Nächster Eklat in der Süper Lig: Wütender Präsident erzwingt Spielabbruch in der Türkei
+-  Aaron Rodgers’ return will come next season with Jets out of playoff hunt and QB not 100% healthy
+-  Minivan Review: 2024 Kia Carnival SX
+-  How Can We Best Summarize Taylor Swift’s 2023?
+-  رئيس الهيئة العامة للتأمين الصحي الاجتماعي يشارك في فعاليات المؤتمر العربي الـ22 للأساليب الحديثة في إدارة المستشفيات
+-  2 пъти над нормата е замърсяването на въздуха в София
+-  CIA pushing to resume Hamas talks – media — RT World News
+-  VIDEO: Pogledajte brutalno zakucavanje Hezonje protiv Zvezde
+-  Pixel 8 Pro gets better, now supports ultrawide astrophotography
+-  Ex-NFL running back calls for segregated Pro Bowl in racial tirade
+-  Edin Višća upisao asistenciju, utakmica prekinuta jer je domaćin nezadovoljan suđenjem napustio teren
+-  Wildlife Dept launches night search operation after terrifying leopard attack in Pampore
+-  Human organ chip research shows a malaria drug treatment could save babies' lives
+-  إلغاء مباراة تريزيجيه أمام إسطنبول سبور في الدوري التركي بعد انسحاب الخصم
+-  FALI MI ANASTASIJA, ALI DOBRO...: Ceca ne može da sakrije emocije na dan slave, dotakla se i Bogdanine trudnoće
+-  „Волстрит журнал“: Путин е победник на годината
+-  New study reveals the 10 states with the fastest-rising adult obesity levels
+-  Euromillones: resultados del sorteo del martes 19 de diciembre de 2023
+-  ليكسوس اللؤلؤة التاريخية للمغرب: الأولى في إنتاج المنتجات البحرية ومنبع صناعة تعليب الأسماك
+-  I Tried Caraway’s Stainless Steel Cookware (and Now I Have a Michelin Star)
+-  City continues to install 'smart' bins
+-  Local obituary: Kayla Driscoll, 34, Somerville massage therapist
+-  DC Pulwama charts course for Archeological revival of sites in district
+-  Guardia Nacional arranca Operativo vacacional de invierno en todo el país
+-  البشت الحساوي يقاوم الاندثار بـ70 ألف زائر
+-  هاكاثون التحول الرقمي يبرهن تفوق سوق المملكة عالميا
+-  Zara Tindall reveals the disbelief she felt after winning BBC's Sports Personality of the Year in 2006 as she joins star-studded line-up in pre-recorded message for this year's awards
+-  مدارس تعليم الرياض تتفاعل مع «ساعة برمجة»
+-  كاوست تستحدث أول برنامج لماجستير الابتكار التقني
+-  HSEK delegation calls on CS
