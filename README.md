@@ -1,51 +1,51 @@
 # Latest News
--  Arkas Spor play-off turunda
--  Cenas de Navidad y Año Nuevo: tres recetas buenas, bonitas y baratas
--  Ex-wife Of French Serial Killer Sentenced To Life Over Three Murders
--  Araçlarını soğuktan böyle korudular
--  الأعلى تقييمًا في مباراة تشيلسي ونيوكاسل
--  Scooter Braun visits hostage families HQ and offers support
--  Inside: Das Main-Echo-Reporterteam in Lohr
--  [AM-PM] 내년도 예산안 처리 시한…여야 막판 협상 外
--  Ex-gang leader seeking release from Las Vegas jail ahead of trial in 1996 killing of Tupac Shakur
--  Complicado duelo en Pucela
--  Frosinone izbacio aktualnog prvaka iz Coppa Italije
--  पंजाब कांग्रेस में एक बार फिर सिद्धू वर्सेज ऑल, प्रताप सिंह बाजवा ने दी नसीहत
--  పొట్టకూటికి వెళ్లి ఎడారిలో అనాథ శవమై..
--  మేడిగడ్డ దర్యాప్తుపై మీ వైఖరేంటి?
--  팔공산 1cm 미만 눈...대구 팔공산로 일부 교통통제
--  Пак скандал в Турция заради недоволен от съдия президент
--  ALBA PRIREDILA SENZACIJU Virtus slavio u derbiju, Makabi bolji od Baskonije
--  Barranquilla rinde homenaje a Shakira con una estatua que captura su esencia artística
--  Banco de la República recorta 25 puntos a la tasa de interés y la deja en 13 %
--  إحصائيات مباراة تشيلسي ونيوكاسل يونايتد في كأس الرابطة الإنجليزية
--  కోడికత్తి కేసులో మధ్యంతర ఉత్తర్వులు పొడిగింపు
--  Le projet de loi immigration est adopté à l’Assemblée, grâce aux voix de LR et du RN
--  הנה כל מה שקובע את גודל כפות הרגליים שלכם - וכיצד תוכלו לשנות אותו
--  צ'לסי ניצחה את ניוקאסל בפנדלים בגביע הליגה, בכורה לאנקונקו
--  פריצת דרך מדעית: שיחה בין אדם ללווייתן תוביל ליצירת קשר עם חייזרים
--  מזה עשור מנסים לפענח מה נכתב בפתק החבוי בשמלת משי מהמאה ה-19 - ועכשיו הצליחו
--  జగన్‌ తీరుతోనే వైసీపీలో తిరుగుబాటు
--  Gambling reform would honour late MP's work: advocates
--  永瀬廉 「今年はもうほぼ海人」
--  „Haben uns alles anders vorgestellt“: BVB-Trainer Terzic nach Desaster vor dem Aus
--  الاستخبارات الصهيونية : محمد الضيف يمشي على قدميه
--  Gol düellosunda kazanan çıkmadı!
--  İran, İsveç temyiz mahkemesinin Hamid Nuri kararını kınadı
--  Napoli'ye kupada soğuk duş!
--  Volunteers, Aid Workers Rally To Help Guinea After Fuel Depot Fire
--  శ్వేతపత్రాలకు వేళాయె!
--  వీఆర్‌ఏలు చేసిన పాపమేంటి?
--  G7 외교장관, 北 ICBM 발사에 "가장 강력히 규탄"
--  Pınar Karşıyaka ikinci olarak play-in turuna kaldı
--  PRIZNANJE ZA PIKSIJA Dragan Stojković postao počasni građanin Gradske opštine Palilula u Nišu
--  Milan, giovedì pomeriggio la partenza per Salerno. Il rientro a Milano subito dopo la partita
--  Moment desperate neighbour lobs a FIREPIT at crazed ‘XL Bully’ to stop it mauling pup in vicious daylight attack
--  30 శాతం ఐఆర్‌ ప్రకటించండి!
--  Terzic: "Wie lange ich hier bin, das entscheide nicht ich"
--  Qué migrantes quedarían eximidos de la severa ley SB4 promulgada en Texas
--  Subasta de 5G: Esto es lo que debe saber del proceso que se hará el 20 de diciembre
--  Die Gebetsraumfrage und der Berliner Schulfrieden : Bildungssenatorin sieht Grenzen bei der Religionsausübung
--  Partizan slavio u Valensiji
--  Latino Film Institute Reveals 2024 Inclusion Fellows
--  Here are a few last-minute gifts you can still grab in time for the holidays
+-  (VIDEO). ¿Mba’e piko? Polis trasladan a un tipo en una moto y en una rarófila forma
+-  City Of Hamilton Holiday Garbage Collection
+-  الخارجية الأمريكية: بلينكن بحث مع سامح شكري إقامة دولة فلسطينية مستقلة
+-  بلومبيرج: واشنطن وحلفاؤها يدرسون توجيه ضربات عسكرية محتملة ضد الحوثيين
+-  بداية لاضطرابات كبيرة.. مصطفى الفقي: السياسة الإثيوبية نسخة من السياسة الإسرائيلية
+-  أكثر من غزة 20 مرة.. أحمد موسى ينفعل بسبب تغافل العالم عن أزمات السودان
+-  حظك اليوم وتوقعات الأبراج 20-12: تحذيرات لهذا البرج.. ونصائح لهؤلاء
+-  MultiMetaVerse Holdings Limited Announces 2023 Unaudited Half Year Financial Results
+-  Kickoff | Chelsea advance to Carabao Cup last four
+-  Oyem : passation de charges à la Mairie
+-  బీజేపీ అధికారంలోకి రాకుండా అన్ని పార్టీలు ఏకం కావాలి: రామకృష్ణ
+-  Melhores momentos: Borussia Dortmund 1 x 1 Mainz (Bundesliga)
+-  Julian Brandt anota golaço de falta contra o Mainz; confira
+-  Fábio Carille é o novo treinador do Santos
+-  Torcedor mirim do Hoffenheim rouba a cena em comemoração de gol; confira
+-  I’m obsessed with my new Amazon jumpsuit – I don’t need to wear a bra, but if I turn around it might break the internet
+-  Motosikletteki akrobatik hareketleri olay olmuştu. Cezadan kaçamadı
+-  ఎన్నారైల సేవలను జనసేన మరువదు: పవన్‌
+-  Foşur Foşur Reis Cem Özkök Sayesinde Kahve İçmeye Bahanelerini Sayan Kullanıcılar Gümletti
+-  Xankəndiyə ilk bu şəxslər köçürüləcək
+-  Drama u Liga kupu: Chelsea i Fulham prošli na penale
+-  PSG: l'appel de Daniel Riolo à Kylian Mbappé
+-  Furious Robbie Williams fan is denied a refund after missing start of show due to traffic chaos - but who is in the right?
+-  Dupla é presa com grande quantidade de maconha em chácara no interior de SP
+-  El PSOE se suma a los votos de PP y Vox para apoyar el respeto "escrupuloso" a los jueces
+-  Brisbane family left with half-finished home with defects by 5Rivers Engineering sole trader Karan Bhalla
+-  Pour Gérald Darmanin, "Marine Le Pen n'est qu'une petite politicienne" qui "trompe" ses électeurs parce qu'elle "refuse le débat" et "a voté des mesures de régularisation"
+-  Futbolista del PSG fue secuestrado junto a su familia durante el violento asalto de su vivienda
+-  Bar fined £120k for serving tequilas made with caustic soda instead of salt which left clubbers with mouth burns
+-  Antoine Griezmann égale le record de Luis Aragones, l'Atlético de Madrid accroché
+-  Love Actually. There’s a New Christmas Movie to Fight About This Year.]]>
+-  Overdue overhaul for Jets power play
+-  More Than Stenography: Exploring Court Record Options (Part 2)
+-  Tanggapi Putusan Praperadilan, Firli Bahuri: Bukan Ditolak tapi tak Diterima
+-  IMÁGENES IMPACTANTES: Asciende a 127 el número de fallecidos tras sismo de 6.2 en China
+-  Amplify unveils anti-surveillance suit to safeguard Santa’s journey this Christmas
+-  Demanda de energía aumentó 6,32% en noviembre, jalonada por el mercado regulado
+-  "حزب الله" يعلن استشهاد عنصر رابع بمواجهات مع الاحتلال الإسرائيلي
+-  Subsidio por desempleo: estas serán las nuevas cuantías y requisitos a partir de 2024
+-  ISAK (3) JE JEDVA JEO, A BOLEST SE ŠIRILA Intervencijom koja je prvi put urađena u Srbiji njegovim mukama došao je kraj
+-  Report: Arsenal now interested in £33m midfield giant amid Patrick Vieira comparison
+-  PUTIN NAJAVIO ŽESTOK OBRAČUN SA STRANIM SLUŽBAMA Evo gde je najkritičnije za Rusiju
+-  Ecopetrol convocó asamblea de accionistas para decidir sobre reforma de estatutos
+-  Διεθνείς αγορές: Νέο ρεκόρ, το 4ο στην σειρά για τον δείκτη Dow Jones – Νέα άνοδος για πετρέλαιο και χρυσό
+-  ఐఏఎ్‌సల బదిలీలు
+-  I’ve never encountered someone like Rangers hero James Tavernier before reveals Philippe Clement
+-  Κύπελλο Αγγλίας: Δραματική πρόκριση στα πέναλτι για την Τσέλσι – Στα ημιτελικά και η Φούλαμ
+-  Spirit of Sturgis TT: Progressive American Flat Track Hits the Streets for a Historic Debut on August 11, 2024
+-  Incredibly rare Christmas card signed by JFK and Jackie Onassis just DAYS before the former President was assassinated goes on sale for a staggering $35,000
+-  Chelsea 1-1 Newcastle (4-2 pens): Djordje Petrovic saves Matt Ritchie's penalty in shoot-out as Mauricio Pochettino's side reach Carabao Cup semi-final after dramatic late equaliser from Mykhailo Mudryk
