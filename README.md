@@ -1,11 +1,51 @@
 # Latest News
--  차엽, 미모의 아내와 로맨틱 웨딩 화보…꼭 붙어 '달달'
--  로봇·자율차·UAM 친화형 건물 1만동 들어선다
--  AYAYI, '리얼 유토피아'를 구축하며 차세대 PHYSICAL 브랜드 이끌다
--  Billy Crystal Returned To The Scene Of The Most Iconic/Notorious Bit From ‘When Harry Met Sally…’
--  이정식 고용노동부 장관, 해양환경보호 위한 수협은행 공익상품 가입
--  İsrail'de "Netanyahu görevden alınsın" çağrısı
--  Netanyahu'nun sonu geliyor! İçeriden yaylım ateşi: Toplumunun boynunda değirmen taşı oldu
--  SK디앤디, 1210억원 '의성 황학산 풍력발전단지' EPC 계약 체결
--  경남 양산시 ‘시민통합위원회’ 시민소통 우수모델 주목
--  맥도날드, 뷰 맛집 특별한 곳으로 함께 떠나요
+-  Wohnhaus in Kirchen bei Explosion stark beschädigt
+-  82 motosikal disita ubah suai brek belakang
+-  Trabajadores remotos y viajeros de negocios: riesgos de ciberseguridad aumentan en fin de año
+-  Dreyfus accuses opposition of undermining police over Benbrika release
+-  Original Zustand: JCB Fastrac 2155 4WS Traktor für 113.050 Euro #maschinedestages #gebrauchtmaschine
+-  ماليزيا تمنع شركة الشحن الإسرائيلية "زيم" من الرسو بموانئها
+-  KGC인삼공사 정관장, 크리스마스 기획전 진행
+-  동아ST, ‘앱티스(AbTis)’ 인수로 ADC 신약 개발 본격화
+-  Resumen y conclusiones de la COP28
+-  Not just for Christmas: Britain’s M&S targets more regular food shoppers
+-  '울보에서 블로킹 1위' 이제는 배구계의 돌부처?… 생일축하 노래에도 연습 삼매경 [곽경훈의 현장]
+-  '사령탑이 직접 뽑았다' KBL, 올스타전 팀 구성 발표..."좋은 경기·퍼포먼스 보여주기 바란다"
+-  이윤진, '♥이범수와 이혼설' 후 밝은 근황…딸 소을과 백화점 나들이
+-  '레전드 아역 스타' 미달이 김성은 "키즈 모델 에이전시 이사" 근황 공개 [살아있네!]
+-  ‘억울한 마녀사냥’ 지드래곤, ‘마약혐의’ 벗고 갤럭시코퍼레이션과 화려한 부활[MD이슈](종합)
+-  박명수 "♥한수민에게 '일 못하면 어떡하냐'고 하자…'정신 차리라'는 답 돌아왔다" 폭로 [라디오쇼](종합)
+-  '이강인의 마법에 걸려 들었다'→PSG 루이스 엔리케 감독 "모든 것을 갖춘 선수" 극찬
+-  "분노유발 전두광은 잊어라" 황정민, 염정아와 손잡고 오락액션 '크로스'로 돌아온다
+-  Jak jsou otevřené obchody o Vánocích, na Silvestra a Nový rok
+-  محاكمة المتهم بقتل شقيقه ووالدته بالهرم.. اليوم
+-  حدث ليلاً| بيان عاجل بشأن سد النهضة وتفاصيل لائحة قانون التصالح الجديد
+-  كتل هوائية.. تفاصيل حالة الطقس اليوم الأربعاء (بيان رسمي)
+-  Sri Lanka Unveils Cutting-Edge Disaster Early Warning System
+-  India can provide sustainable solutions to global challenges: PM Modi
+-  ठंड में रखें पशुओं का खास ख्याल, वरना हो सकती है परेशानी;डॉक्टर से जानें टिप्स
+-  「ろう者」「難聴者」役などをドラマで演じた当事者たち
+-  بوركينا فاسو: توقيف 4 فرنسيين بتهمة "التجسس"
+-  서귀포시 새해 예산 1조2394억원 확정
+-  서귀포시 동부도서관, ‘길 위의 인문학 ’우수도서관 선정
+-  2023년 4분기 ‘건축행정 역량강화 워크숍’ 개최
+-  청소년방과후 아카데미 참여자 모집
+-  성산중, 제주서 두 번째 IB MYP 월드스쿨 공식 지정
+-  Bļugers rezultatīvs ceturto spēli pēc kārtas, "Blue Jackets" iemet deviņas ripas "Sabres" vārtos
+-  عاجل.. استقرار الطقس على معظم مناطق المملكة وضباب بالشرقية والشمالية
+-  ОАВ: НАТОда Россиянинг эҳтимолий ғалабаси оқибатлари муҳокама қилиняпти.
+-  Ўзбекистонда мандарин нархи рекорд даражада арзонлашди.
+-  Исроил Ғазо секторида янги гуманитар паузага тайёргарлик кўряпти.
+-  ОАВ: Самарқандда қўлда тўқилган энг яхши гиламнинг баҳоси Москвадаги квартира нархи билан тенг.
+-  Mobiuz ISO сертификациясидан муваффақиятли ўтди.
+-  Сафарбар этилганларнинг хотинлари: фронтдаги эрларимизни қўрқитишмоқда.
+-  Секин овқатланиш орқали ортиқча вазндан халос бўлиш мумкин – тадқиқот.
+-  Самарқандда ўқувчини уриб юбориб қочиб кетган ҳайдовчи 15 ёшли мактаб ўқувчиси бўлиб чиқди.
+-  Что вреднее — выпивать часто и по чуть-чуть или редко, но метко
+-  ABC presenter is axed days after starting her radio job over 'anti-Israel comments'
+-  Naci Görür depremde en riskli yeri açıkladı. Orada insanların yaşamaması lazım kurtulma şansları yok
+-  Veikkausliigan uusilla joukkueilla evakkouhka
+-  Shreyas Talpade Health Update: हृदयविकाराच्या झटक्यानंतर अभिनेता श्रेयस तळपदेने दिली स्वत:च हेल्थ अपडेट
+-  The Artist Behind the ‘Sgt. Pepper’ Cover Wasn’t a Beatles Fan
+-  Islamic Jihad releases video of two Israeli hostages pleading for their release
+-  제주도 내년 상반기 정기인사 1월 19일 예고...쇄신인사, 발탁 승진
