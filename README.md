@@ -1,11 +1,11 @@
 # Latest News
--  2024년 세계야구소프트볼연맹 프리미어12 참가국 확정
--  2024년 정규리그 개막 D-100 앞두고 MLB 얼굴로 나선 이정후
--  내년 마스터스 골프대회 77명 출전 예상…1985년 이후 최소
--  맨시티, 우라와 격파…플루미넨시와 FIFA 클럽월드컵 결승전
--  데이타솔루션, 2023 하반기 학술파트너 모임 성황리에 개최
--  Sudoku difícil: 20 de diciembre de 2023
--  Sudoku medio: 20 de diciembre de 2023
--  Sudoku fácil: 20 de diciembre de 2023
--  Sudoku mini: 20 de diciembre de 2023
--  Crucigrama difícil: 20 de diciembre de 2023
+-  Fas: Uluslararası toplumun İsrail'in Gazze'ye yönelik saldırılarını durduramaması artık kabul edilemez
+-  Ters yönde ilerledi, karşıdan gelen otomobile çarptı: Kartal'da feci kaza
+-  ห้ามพลาด! 10 วัดดังติดไฟให้ไหว้สิ่งศักดิ์สิทธิ์-ถ่ายรูปยามค่ำช่วงปีใหม่
+-  Sales slump at Superdry in 'challenging' trading environment
+-  Britain can lead the world in AI defence technology
+-  Stamp duty raised from property sales in London hits a record £5.6 bn
+-  De La Rue cheers half-year earnings after currency demand rebound
+-  Hipgnosis fund delays results amid questions over how much songs are worth
+-  NHS braces for junior doctors' strike
+-  EFL and Papa Johns broke rules by sending pizza ads to children – watchdog
