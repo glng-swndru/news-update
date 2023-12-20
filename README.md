@@ -1,51 +1,11 @@
 # Latest News
--  Stress und Überstunden: Beschäftigte leiden unter Personalengpässen
--  DNA Exclusive: Influx Of Rohingya Refugees And Threat To India`s Security
--  ‘బోర్డు’ పెట్టేదెప్పుడు..?!
--  RMC Sport: экс-игрока ПСЖ госпитализировали с ножевым ранением
--  Cyberpunk 2077 Ultimate Edition slices 33% off in GOG Winter Sale
--  Presidente do Corinthians diz que tem 'total condição' de contratar Gabigol
--  You can snag 7 Yakuza games for just $28 in the GOG Winter Sale
--  Iliad lancia una nuova utile opzione pensata per chi deve recarsi all’estero
--  'فرانسهٔ من'؛ فلم روایت‌گر مشکلات پناهجویان افغان در فرانسه
--  VIDÉO - Un petit geste pour un grand sourire : et si vous offriez un cadeau solidaire ?
--  الصحة العالمية قلقة من متحور جديد لكورونا
--  إنزال جوي سادس لمساعدات للمستشفى الأردني (2) جنوب غزة - صور
--  Daily deals Dec. 20: Apple Watch Ultra $599, M1 Max Mac Studio $1,499, M2 Mac mini $479, more
--  Diablo 4 players reveal “real reason” behind Helltide hate
--  Fenerbahçe, Kayseri'de 3 puanı aldı, zirvedeki yerini korudu
--  Selling Sunset fans are begging for Nicole Young’s exit
--  EU-Länder einigen sich auf Grundsätze für neue Schuldenregeln
--  Potvrđeno odigravanje prijateljskog meča: Piksijevi izabranici gostuju Rusiji 21. marta
--  Skärpt säkerhet under junior-VM: ”Jätteviktigt”
--  ندوة حول العنف الأسري والوقاية والعلاج في جامعة مؤتة
--  Two women spat at while riding Guelph Transit bus: police
--  Un deseo llamado Karol G: Tenerife quiere traer a 'La Bichota' a un concierto en la Isla
--  Пирин разби закъсалия Хебър в Националната волейболна лига при мъжете
--  Ab 1. Januar mehr Netto vom Brutto für jeden
--  Klart för nya budgetregler i EU
--  Pad telefoniranja na mobitelima
--  Von Putins schärfstem Kritiker fehlt jede Spur: US-Regierung besorgt über Berichte zu Nawalnys Verschwinden
--  Live η ορκωμοσία του νέο περιφερειάρχη Αττικής Νίκου Χαρδαλιά
--  FC Bayern beim VfL Wolfsburg im Live-Ticker: Weihnachtsgeschenk für Müller?
--  Mert Hakan Yandaş'ın kırmızı kartı sonrası İsmail Kartal çılgına döndü! Fenerbahçeli taraftarlar tecrübeli oyuncuya öfke kusuyor
--  GALATASARAY FATİH KARAGÜMRÜK MAÇI CANLI İZLE! Galatasaray Fatih Karagümrük maçı ne zaman, saat kaçta, hangi kanalda? İlk 11'ler
--  Versailles: le château à nouveau évacué ce mercredi après une alerte à la bombe
--  Блинкен заявил, что у США есть четкий план будущего развития Украины
--  Enjoy this festive 49-minute video of a National Post reporter sitting in front of a fireplace
--  Suite de l’épisode SAMU976 et Tribune « des soignants désabusés »
--  Suspect in Dartmouth, N.S. stabbing injured after police chase
--  Los Veintisiete alcanzan un acuerdo para reformar las reglas fiscales que limitan la deuda y el déficit
--  How to watch South Park Prime Hydration special
--  Piłkarze biją na alarm, a oni śmieją im się w twarz. Granice przekroczone
--  Journalist moots Tottenham clash as ‘perfect time’ for Dyche to start Everton man
--  ¡Lo que el viento se llevó! Ataúdes salen volando de una casa funeraria por fuerte temporal
--  Sir Jim Ratcliffe is set to recommend job cuts at Man United as the INEOS CEO plots major restructuring following his £1.25bn takeover - having determined the Red Devils are OVERSTAFFED
--  Mehr als 130 Tote bei Erdbeben in China
--  Palmeiras reabre negociação com Caio Alexandre após 'sumiço', mas Fortaleza ainda aguarda oferta
--  ¿Barcelona le hará PASILLO DE CAMPEÓN al América? ¡Revelan posible decisión!
--  Αντιπολίτευση: «Όχι» στο πολυνομοσχέδιο του ΥΠΟΙΚ, επί της αρχής - «Ναι» και «παρών» σε δεκάδες άρθρα
--  Ung man skjuten till döds i Norrköping
--  Contas da JMJ apresentadas até final de março com lucro esperado
--  Локомотив без лагер в чужбина! "Черно-белите" обявиха пет контроли
--  Royal Air Maroc réélue « meilleure compagnie aérienne en Afrique » !
+-  I calciatori del Torino in visita all’ospedale Regina Margherita
+-  Anuncian traslado de la tuneladora que excavará el túnel de la Línea 3 del Metro
+-  Mariah Carey is white-hot in $2,500 Prada puffer coat in Aspen amid Bryan Tanaka breakup rumors
+-  متي سيحسم ألونسو قراره النهائي بشأن خضوعه للعملية الجراحية؟
+-  جدول ترتيب الدوري السعودي قبل انطلاق الجولة 18
+-  Complaint alleges developer suppressed info to obtain RERA registration
+-  أمين عام محلي أبين يفتتح عدد من الوحدات الصحية بمديرية خنفر
+-  L’histoire sordide de Chance Comanche, ancien joueur de G League qui a tué une femme de 23 ans à Las Vegas
+-  Jenna Bush Hager and Hoda Kotb Hilariously Fail Gen Z Slang Quiz on ‘Today’: “Never Heard It”
+-  Gen Z is obsessed with dating ‘icks’ — but they could ruin future relationships, experts warn
