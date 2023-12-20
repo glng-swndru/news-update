@@ -1,11 +1,51 @@
 # Latest News
--  Fas: Uluslararası toplumun İsrail'in Gazze'ye yönelik saldırılarını durduramaması artık kabul edilemez
--  Ters yönde ilerledi, karşıdan gelen otomobile çarptı: Kartal'da feci kaza
--  ห้ามพลาด! 10 วัดดังติดไฟให้ไหว้สิ่งศักดิ์สิทธิ์-ถ่ายรูปยามค่ำช่วงปีใหม่
--  Sales slump at Superdry in 'challenging' trading environment
--  Britain can lead the world in AI defence technology
--  Stamp duty raised from property sales in London hits a record £5.6 bn
--  De La Rue cheers half-year earnings after currency demand rebound
--  Hipgnosis fund delays results amid questions over how much songs are worth
--  NHS braces for junior doctors' strike
--  EFL and Papa Johns broke rules by sending pizza ads to children – watchdog
+-  승강기 사고대응력 제주가 1위… 초기 대응·구조력 최상
+-  “매출 상위 500대 기업 지난해 사회공헌 지출액 3조5367억원”
+-  취약계층 학원비 등 지원 '꿈바당 교육문화카드' 포인트 연말 소멸
+-  New Gaza truce efforts as aid system nears collapse
+-  Jusuf Kalla Tegaskan Dukung Anies-Muhaimin di Pilpres 2024
+-  Médico da seleção diz que Neymar não vai disputar a Copa América e crê em volta em agosto: 'Sem chance de pular etapas'
+-  2/4분기 보건산업 수익성 다소 개선
+-  선천성 이루공 근막고정봉합술 안전성·유효성 입증
+-  Gold price increases marginally for 24 carat, 22 carat gold in India on December 20
+-  Pick up Microsoft Office Home & Business for Mac for $39.94
+-  Gempa bumi sederhana melanda utara Halmahera
+-  Arsenal tak mampu julang kejuaraan EPL
+-  Reaksi Pep Guardiola usai Manchester City Menang 3-0 atas Urawa Reds dan ke Final Piala Dunia Antarklub 2023
+-  It’s good to be alert to criminals, even at weddings!
+-  The rain-bow and Cupid’s arrow!
+-  Why political parties in Nigeria should be reformed
+-  Style gurus predict fashionable looks that could rock your wardrobe in 2024
+-  How this nation-wide festival aims to make art more accessible to people
+-  Christmas 2023: Want to shop for decorations? Here are the best places in Mumbai
+-  Fathers can bond with their children at this intimate event in Mumbai this week
+-  Europaplätze: Eintracht will mit Sieg dranbleiben
+-  Ман Сити обра наградите на BBC за 2023 г.
+-  DG of NGA restates commitment to building National Gallery edifice
+-  박보미, 하늘 나라로 떠나 보낸 아들에 대한 그리움 전해
+-  이혜정 고민환 부부, '가상 이혼' 절차 돌입
+-  송강·한소희, 크리스마스 함께 보내고 싶은 남녀 스타 1위
+-  있지 예지, 신보 솔로곡 뮤비 공개
+-  참깨 수입업자가 관세 4483억원을 체납한 배경
+-  현대차 이동석 신임 사장...5년 연속 무분규·최대 생산실적
+-  LG의 신년 화두 '차별적 고객가치'…구광모 "온리원 기업으로"
+-  David Warner blocked by former Indian Premier League club Sunrisers Hyderabad on Instagram
+-  Promoting tech worth through scientific study
+-  La historia de cómo Disney manipuló el juego de ‘El Rey León’ para Mega Drive y SNES, para hacer al título lo más difícil posible
+-  키즈토피아, 누적 가입자 20만명 돌파…글로벌 진출 청신호
+-  Bunga mayat akhirnya berbuah
+-  Hatay Havalimanı 4.5 metre yükselecek
+-  Sulamaya 527 yeni tesis
+-  Brève : Arrestation du tireur présumé coupable de Kaweni
+-  “What’s told in the story still resonates today”: a conversation with Masao Maruyama on ‘Pluto’, NME’s best Asian TV show of 2023
+-  HDI인간경영대상에 김상고 모아저축은행 회장
+-  日職》從經典賽打到亞冠賽 橫濱隊長加薪1億1000萬還破球團紀錄！
+-  Could Chick-fil-A Restaurants In NY Open On Sundays?
+-  Harvard's Claudine Gay Created Task Force to Reduce the Visual Presence of White Men
+-  Hoje na TV 247 - 20 de dezembro
+-  Ludovic Nkoth shares his creative process behind this year’s Dior Lady Art project
+-  The 10 best Asian TV shows of 2023
+-  USBハブ、スケルトンなだけで欲しくなる
+-  청년·신혼부부용 시세 반값 매입임대…올해 마지막 입주자 모집
+-  Mikróhullámú sütőtől az arany ékszerig: milyen tárgyakat adtunk zálogba az elmúlt évtizedekben?
+-  More Fianna Fáil councillors breaking ranks over government immigration and refugee policies
