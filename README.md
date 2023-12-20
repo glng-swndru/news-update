@@ -1,51 +1,51 @@
 # Latest News
+-  Vuelve un CAMPEÓN: Joel Graterol, parte 2
+-  Rajasthan Assembly session for swearing-in of MLAs to begin today
+-  Kendall Jenner is SLAMMED for wearing a $27K real shearling fur coat as fans brand her 'vile': 'How many innocent animals died?'
+-  IND vs SA 2nd ODI Result: টনি ডি জর্জির শতকে তরুণ ভারতকে হারিয়ে ৮ উইকেটে জয় প্রোটিয়ার
+-  Australia's Jai Hindley wins Giro d’Italia
+-  Australia's Jai Hindley wins Giro d’Italia
+-  누빅스, 세나테크놀로지와 ESG 경영 솔루션 구축 계약 체결
+-  UL Solutions 및 현대 모비스 북미 전기 파워트레인, 전기차 배터리의 안전 및 성능을 개선하기 위해 MOU를 체결하다
+-  В Запорожье спрогнозировали сроки обрушения фронта ВСУ
+-  Dunki: Stunning drone show lights up Dubai with SRK`s signature pose, watch!
+-  "كبير آسيا" يكسب الوحدة
+-  الهلال يكسب “التعاون”.. ويتأهل إلى نصف النهائي
+-  Стоимость газопровода Шелек-Кеген-Нарынкол по ТЭО оценивается в 24 млрд тенге
+-  Priest declares 'church the winner' in battle with lightning storm ahead of Christmas
+-  Entre la Reserva Federal y el "austericidio": ¿por qué se desacelera la economía latinoamericana?
+-  Колорадо суди Доналд Трампга президентлик сайловида қатнашишни тақиқлади.
+-  Ўзбекистонда 15 кунда 73 млрд сўмлик газ ва электрдан ноқонуний фойдаланилгани аниқланди.
+-  Зеленский: уруш қачон тугашини ҳеч ким билмайди.
+-  Ўзбекистон пахта саноатида Швейцария уюшмаси тажрибаси татбиқ этилади.
+-  ЕТТБ Украинани қўллаб-қувватлаш учун капитални 4 млрд еврога оширади.
+-  Ўзбекистон соғлом турмуш тарзини тарғиб этишда Индонезия тажрибасини ўрганяпти.
+-  Reportan devastador incendio en el último piso de un edificio en Miraflores
+-  Monic Pérez comparte su experiencia al dar a luz su tercer bebé en Nepal
+-  WA dodgy apartment builders on notice, but shakeup will miss shonky homes
+-  WA dodgy apartment builders on notice, but shakeup will miss shonky homes
+-  Kazakhstan's Atyrau Oil Refinery opens tender into fuel dye
+-  Another City Sued by California for Not Building Its ‘Fair Share of Housing’
+-  Should Ahi Tuna Be Cooked?
 -  '미스트롯3' 장민호 "정동원 능가 어린 참가자? 마스터 들었다 놨다하더라"
 -  '114억 2638만원' 샐러리캡 초과한 팀은 없었다…'111억 8175만원' 두산 1위, '-49억' 키움 10위 [공식발표]
 -  아찔한 '천국도'는 어디?…'메기' 조민지♥이진석, 은밀 플러팅→수영장 데이트 [마데핫리뷰]
+-  Reafirma Cuba política de respeto a asuntos internos de otras naciones
 -  구혜선, 재계약했다…아이오케이 "폭넓은 활동 이어갈 수 있도록 적극 지원"
+-  Fatal collision in southwest Middlesex
+-  City goleia Urawa Red e vai à final contra o Flu no Mundial de Clubes
+-  B.C. mine operators fined $25K for not installing electric fences to deter bears
+-  Yerel seçim kararları Resmi Gazete’de
+-  El intercambiador de El Humedal suma nueva oposición: "causará atascos y retrasos", denuncia el comité de Emtusa
+-  Esto es lo que va a subir el subsidio por desempleo (y estos son los asturianos que lo cobran)
+-  Reflexón resignada sobre la democracia
+-  El Instituto Cervantes prepara 2024 en Avilés, con planes de expansión y apoyo explícito de la Reina
+-  "La creación cultural da impulso a la expansión del español"
+-  El inicio del montaje del "arpa" en la entrada a Oviedo obliga desde hoy a reordenar el tráfico en Santullano
+-  Jeremy’s WWE NXT Review 12.19.23
+-  Kathmandu, Rip Curl report low sales despite Black Friday boost
+-  Nets get no respite after daunting Western trip
+-  Finback Brewery to Return to Queens Roots With Third Outpost
 -  وزير الدفاع ونظيره الفرنسي يشهدان توقيع مشروع خطة تنفيذية للتعاون في الصناعات العسكرية
+-  WIKA Pertahankan Predikat Badan Publik Informatif
 -  Jusuf Kalla Blak-blakan Mengapa Akhrinya Mendukung Anies
--  Greta Gerwig & Noah Baumbach Marry at City Hall After 12 Years Together!
--  AC/DC se apresentará no Brasil em 2024, afirma jornalista
--  Takiyuddin is the one who should apologise for making unconstitutional remarks, says Kit Siang
--  צעיר בן 16 נרצח בקטטה בבאקה אל-גרבייה
--  Laznas DPF dan Mandiri Amal Insani Salurkan Beasiswa untuk 100 Guru
--  Chinese rescuers brave cold to find quake survivors
--  India, EU Discuss Avenues For Strategic Security, Defence Cooperation
--  „Egyáltalán nincs rendben, hogy egy gyerek hibája ráég a szülőre, mint egy levakarhatatlan, makacsul ott maradó bélyeg”
--  檢, ‘대통령실 앞 흉기난동’ 70대 남성에 징역 7년 구형
--  기록적 한파에 커진 ‘건강 적신호’…겨울나기 요령 3
--  News24 Business | Wandile Sihlobo | The good news about SA's food price outlook
--  Life | REVIEW | Omid Scobie calls the monarchy in controversial Endgame
--  Suomi hurjassa nousussa koripallossa
--  ตะลึง ‘พิซซ่า ฮัท’ เปิดตัว พิซซ่าความยาว 1.2 เมตร สำหรับช่วงเทศกาลปีใหม่
--  ఆ జిల్లా గెస్ట్‌ హౌస్‌లో వాస్తు దోషం..
--  Aman Bertransaksi di Musim Libur, Simak Tips Ini dari BI
--  În Grecia, prețul biletelor la Acropola din Atena în 2025 va crește cu 50%
--  Percy Jackson’s Producers Share If Season 2 Is In The Works Yet, And Why They Aren’t Worried About The Series’ Stars Already Growing Up
--  Eight arrested in over deadly Sydney shooting
--  Eight arrested in over deadly Sydney shooting
--  字幕：ミス・フランスの「新しさ」に誇り ショートヘア提案の美容師
--  Mazeppa Bay’s iconic bridge closed due to safety fears
--  動画：東北文化がテーマの観光列車、中国黒竜江省を快走
--  La primera dama de Brasil demandará a la red social X por el pirateo de su cuenta
--  Daftar Harga Pohon Natal Asli dan Imitasi Terbaru 2023
--  Cerrojazo de oro al 2023 con el Novato del Año
--  뇌물수수 혐의 김주수 의성군수 2심도 무죄
--  인사말하는 신영균 명예회장
--  全球農業機械龍頭 Kubota，入股電動車電池新創行競科技
--  "ชัยธวัช" รับ สนองพระบรมราชโองการโปรดเกล้าฯ นั่งผู้นำฝ่ายค้าน
--  인사말하는 신영균 국민의힘 상임고문단 명예회장
--  인사말하는 윤재옥 당대표 권한대행
--  인사하는 윤재옥 권한대행
--  Elbújt a világ elől Bródy János: megtörte a zenészt, hogy a fia börtönbe került
--  Punjab News: AAP को नए वादे करने के बजाय पहले किए गए वादे पूरे करने चाहिए: बाजवा
--  Disaster assistance to flow for flood-hit Queenslanders
--  Gigante japonés de aceites para autos despide a su presidente por abrazar a una mujer en estado de embriaguez
--  टेंशन बढ़ा रहा कोरोना, 9 दिन में दोगुने हुए मामले, आज केंद्र सरकार की बड़ी बैठक
--  ট্রেনে কারা আগুন দিয়েছে জানাল রেলমন্ত্রী
--  ООН гласува единодушно за изтегляне на мироопазващите сили от Конго до края на годината
--  $15.6m payout from Fiji Ports Corp and Fiji Ports Terminal
--  Prediksi Liverpool vs West Ham United di Carabao Cup: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
--  ΠΑΣ Γιάννινα: Προπόνηση εξοικείωσης με τους άδειους «Ζωσιμάδες»
--  Mehrweg-Angebotspflicht? - Ruf nach Nachbesserungen
