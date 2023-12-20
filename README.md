@@ -1,11 +1,11 @@
 # Latest News
--  Речи о введении обязательного масочного режима в Петербурге не идет
--  Россия и Марокко планируют наращивать сотрудничество в ТЭК, заявил Лавров
--  Presentes Raúl Castro y Díaz-Canel en sesiones del parlamento cubano
--  Число раненных при обстреле Горловки выросло до трех
--  Виктор Орбан отново е недоволен! Будапеща скочи срещу пакта на ЕС за миграцията
--  Stephan Ordóñez: El hondureño que triunfa como fotógrafo capturando a celebridades internacionales
--  „The Iron Claw“ im Kino: Der Fluch im Wrestling-Ring
--  방통위 제동 건 법원 “2인 체제, 입법 목적 저해”
--  Раскрыты детали обмена кума Путина Медведчука на "азовцев"
--  트레킹 리스트에 오른 'DMZ 평화의 길'
+-  Soccerladuma | Lewandowski Set For Barca Exit? Agent Breaks Silence
+-  Bawaslu Temukan Kasus Money Politic di 10 Kabupaten/Kota di Jabar
+-  Homem é socorrido com fratura após colisão em avenida de Colíder
+-  Pide AMLO indagar más sobre masacre en Salvatierra
+-  Descarta Ana Guevara irse de la Conade
+-  Detienen a hombre en posesión de cristal en Anáhuac
+-  Kyle Kuzma suit la hype Tidjane Salaün de près : “Ce gamin s’est approché de moi et m’a dit rendez-vous dans deux ans”
+-  Amerikaanse olievoorraden onverwacht gestegen
+-  EU-Gericht kippt Coronahilfen Frankreichs für Air France
+-  בזכות הכוונה מודיעינית ותקיפות מדויקות: כך חוסלו בכירי המערך האווירי של חמאס
