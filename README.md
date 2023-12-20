@@ -1,51 +1,51 @@
 # Latest News
--  Samosa Pinwheel to Pazham Pori: Tempting chai combos to relish during winter
--  You Can Directly Complain Against Your MP With PM Narendra Modi. Know Process Here
--  `Have Been Facing Insults For Last 20 Years`: PM Modi Dials VP Jagdeep Dhankhar
--  Sandeep Reddy Vanga on the criticised `big pelvis` line in Animal
--  Taylor Swift y Travis Kelce celebrarán la Navidad juntos
--  Se perderá Neymar la Copa América 2024
--  Šlykšti vieta vandenyne. Ši jūra išgyvena blogiausius laikus istorijoje. Kas darosi
--  على مدار 12 عامًا.. محطات في رحلة مفاوضات سد النهضة
--  DBKL umum Belanjawan 2024 sebanyak RM2.66 billion
--  Pasienyje su Baltarusija neteisėtų migrantų nefiksuota, skelbia VSAT
--  Sud u Coloradu zabranio Trumpu kandidaturu zbog uloge u napadu na američki Kapitol
--  ‘อนุทิน’ นำทีมลงพื้นที่ จ.เชียงใหม่ ตรวจเปิดผับตี 4-หนี้นอกระบบ-ฝุ่น PM2.5
--  Danla Bilic kabusu yaşadı! Takıntılı hayranı kapısına dayandı
--  西甲｜阿拿巴成皇家馬德里季內斷韌帶第3位主力 母會拜仁慕尼黑願出手相助
--  Japan sees projection that income will move up more than prices in the next fiscal year
--  Bu türk dövlətinin bayrağı dəyişdi
--  Kafes-22 Operasyonu'nda 302 şahıs daha paketlendi! İşte o görüntüler...
--  Rekabet cezalarının alt sınırı 167 bin 473 lira olarak belirlendi
--  Snabbkoll på nattens nyheter
--  VIDEO : दिल्ली के मोती नगर में खतरनाक बस हादसा, कार से हुई भिड़ंत, देखें हादसे का वीडियो
--  Director whose interest in theatre rivalled only by surfing
--  Hangi ışık erken yaşlandırıyor
--  Ather 450 Apex: એથરે શરૂ કર્યું 450 એપેક્સ ઇલેક્ટ્રિક સ્કૂટરનું બુકિંગ, માર્ચ 2024થી શરૂ થશે ડિલીવરી
--  Ünlü yorumcu Güntekin Onay canlı yayında 'Haberiniz yok belki ama...' diyerek duyurdu! Meğer o kulüp de sahadan çekilecekmiş
--  اكتشاف مضاد حيوي جديد في أنف الإنسان
--  저가커피도 글로벌로…컴포즈 커피, BTS 뷔 모델 발탁
--  Bakan Yerlikaya duyurdu: Kafes Operasyonu'nda 302 şüpheli şahıs yakalandı
--  Krieg im Nahen Osten: Israel bietet Feuerpause im Gaza-Streifen an – und attackiert Stellungen im Libanon
--  Israël et le Hamas multiplient les signaux en faveur d'une nouvelle trêve
--  Krieg im Nahen Osten: Israel bietet Feuerpause im Gaza-Streifen an – und attackiert Stellungen im Libanon
--  Rugby : Après la désillusion de la Coupe du monde, Dupont s’est enfin relancé
--  콘텐츠진흥원 내년 예산 6124억원…조현래 원장 "우리 콘텐츠 글로벌 주역으로"
--  Loi immigration : le texte adopté avec le soutien de l’extrême droite, crise ouverte dans la majorité
--  Neformalusis suaugusiųjų švietimas: reikia atviros širdies ir meilės darbui
--  2023년 과수산업 육성 시책 평가 김천시 '우수상' 수상
--  Agra: चला अभियान तो बिजलीघर चौराहे की बदल गई सूरत, 27 के चालान और 16 ऑटो किए गए सीज
--  TEG names Phil King as Ticketek Australia’s managing director
--  Bu yıl rekor kıran otomotiv satışları 2024'te dengelenecek
--  Fubara vs Wike: Peace pact flops as PDP, Clark, others reject 8-point agreement
--  Tuzla Piyade Okulu’nda ‘Atatürk fotoğrafı’ kriziyle gündeme gelen teğmenler alt devrelerini tarikat toplantısına çağırmış!
--  Nicolás Maduro se solidariza con Xi Jinping ante terremoto que dejó 127 muertos en China
--  올해 한국인이 가장 많이 사용한 앱은 '카카오톡'
--  도발 세리머니→어깨빵→보복→멱살잡이→퇴장! 축구야? 격투기야? '괴짜 GK' 에밀신도 당황한 '싸움 축구'
--  별사랑, 패자부활전→본선 2차전 진출 확정 [현역가왕]
--  La rebaja en el límite de población allana la desanexión definitiva de Usansolo
--  SABATON’S “History Rocks” Project Deemed Tremendous Success By Museums Around The World
--  박성연, '삐에로는 우릴 보고 웃지' 완벽 재해석…대성 홀렸다 [현역가왕]
--  몸, 옥새 교통카드 크라우드 펀딩 2만 퍼센트 달성
--  Morgonkoll: Blandat på Asienbörserna – biltillverkare lyfter i Tokyo
--  Logitech's superb G Pro X Superlight esports mouse is down to $59.99 refurbished in the US
+-  뱅크샐러드, 2023년 금융 서비스 이용 고객 데이터 분석 결과 공개
+-  KCC정보통신 권혁상 대표, 마약 근절 ‘노 엑시트’ 캠페인 동참
+-  에스트래픽, 태그리스 활용 서울지하철 스피드개집표기 사업 수주
+-  엔텔스, 스마트시티 안전서비스 특허 획득…AI 서비스 사업 본격화
+-  Korea, Japan agree to expand cooperation on digital shift, financial innovation
+-  N. Korean economy shrinks for 3rd consecutive year in 2022
+-  SK Broadband launches AI-based IPTV service
+-  Suzy in hanbok to light up Times Square on Christmas Eve
+-  Middle-aged people earn 1.5 times more than younger population in 2022
+-  BOK sees inflation slowing down to 2% late next year
+-  Milletvekilinden yabancıya konut satışına yeni kriter getirilsin önerisi!
+-  2023 Necip Fazıl Şiir Ödülü Sahibi Günvar: Necip Fazıl statükoya karşı mücadelesiyle bayraklaşmış bir isimdir
+-  Every Starter Pokemon location in Pokemon Scarlet & Violet’s Indigo Disk DLC
+-  Sonia Gandhi: ప్రజాస్వామ్యం గొంతు నొక్కారు.. ఎంపీల సస్పెన్షన్‌పై సోనియా మండిపాటు
+-  The safest small US cities and towns are in the Northeast, new study finds
+-  Pawan Kalyan: మంగళగిరి పార్టీ కార్యాలయంలో పవన్ కళ్యాణ్
+-  Tajna ručka s Tuđmanom koji je promijenio Hrvatsku: ‘Totalno nas je nabrijao’
+-  Three dead after single-vehicle crash in New South Wales
+-  Triple-Zero whistleblowers say embattled service riddled with issues
+-  콘진원 내년 화두는 ‘퍼플 오션’…“콘텐츠 문화강국 실현 노력”
+-  [취재수첩] 공정위 플랫폼 규제법으로 ‘유튜브 천하’ 빨라진다
+-  카카오 김범수 “개발자들, 기술 통한 선한 임팩트 경험하길”
+-  국가 전략기술 R&D 인력 투 트랙으로…공통·특화 '따로' 양성
+-  NHN데이터-바이브컴퍼니, 올해 트렌드 담은 ‘세상의 취향 2023’ 리포트 공개
+-  KCC정보통신 권혁상 대표, 마약 근절을 위한 ‘노 엑시트’ 캠페인 동참
+-  "올해 디지털 수출 116억원"…과기정통부-기업 간담회
+-  KBO 10개 구단, 샐러리캡 상한액 지켰다… ‘111억8175만원’ 두산, 최다지출
+-  Върховният съд на Колорадо забрани на Тръмп да се кандидатира за Белия дом - Труд
+-  Дубль Ничушкина не спас «Колорадо» от поражения в матче с «Чикаго»
+-  Fire truck rolls as Toodyay residents urged to evacuate
+-  IndusInd Bank Considering Sale Of 2.86% Stake In Nippon AMC For Rs 762 Cr In Block Deal: Sources
+-  RBI Strengthens Regulations On Banks, NBFCs' Investments In Alternative Investment Funds
+-  Loše vijesti za Zelenskog i Ukrajince: Američki Senat neće glasati o paketu pomoći
+-  NST: Малайзия запретила Израилю использовать свою портовую инфраструктуру
+-  Қорақалпоғистонда оиланинг 5 аъзоси ис газидан захарланиб вафот этди
+-  "วันนอร์" มอบ "พิเชษฐ์" ถกกำหนดวันพิจารณางบฯ 67 วาระแรก
+-  A médiapluralizmust és a szerkesztőségi függetlenséget támogatja az EU új szabályozása
+-  Israel-Palestine conflict: UN Security Council faces fresh delay
+-  New Telecom Bill Divides: Telcos Cheer Legislation but Rights Groups Sound Alarm
+-  Канада планирует запретить продажу бензиновых и дизельных автомобилей к 2035 году
+-  계명대, ‘미래 기계·로봇·모빌리티 3D 디자인’ 교내 공모전 개최
+-  안성시, 탄소중립·녹색성장 기본계획 수립 최종보고회 개최
+-  의성군, 경북도 ‘2023년 농촌활력평가’서 대상 수상
+-  거창군, 승진자·신규자 ‘반부패·청렴교육’ 시행
+-  성남시의회, 제290회 임시회 의원발의 조례안 입법예고
+-  성남시의회, ‘3분 조례- 김윤환 의원 편’ SNS 통해 공개
+-  한국가스공사, ‘가스 산업 안전문화 실천 결의대회’ 개최
+-  익산소방서, 시민과 함께 해온 75년 '백서' 발간
+-  전북금연지원센터, 제4기 지역금연 민간보조사업 수행기관 재선정
+-  딩동댕어린이집, 경기도 광주시 광남2동에 이웃돕기 성금 기탁
