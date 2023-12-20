@@ -1,51 +1,51 @@
 # Latest News
--  인천 서구문화재단 내년 원도심· 생활문화· 예술교육 꽃핀다
--  ‘평택메타코딩아카데미’ 26명 수료식 …총 28개 소프트웨어 작품 전시
--  중국 빈서 방문단, 국내 1호 일반산단 성남 하이테크밸리찾아 경제 탐방
--  롯데칠성(주) 성남지점-산성리 상인회, 남한산성면 행정센터에 라면 261박스 기탁
--  성남시의회, 의원발의 조례안 제정 6건·일부개정 11건·전부개정 1건 입법예고
--  과천시, 공직자 전화친절도 ‘우수 등급’…맞춤형 친절교육 효과
--  화성시 2024년도 예산 3조 1850억 원 규모 확정
--  시흥시, 하중동∼월곶동 총 175필지 360억 원 가치 토지 소유권 확보
--  이천시, 2023 대한민국 주거복지대상 국토부 장관상 쾌거
--  이케아 광명점, ‘2023 위드-호프 기부 릴레이’ 참 지역 아동용 홈퍼니싱 제품 기부
--  광명시, 테이크호텔 광명서 ‘2023 지방자치어워드 시상식’가져
--  이신남 오산 예비후보 "용인·화성·수원·평택 묶어 로 나갈 것"
--  이천시봉사센터, 찾아가는 탄소중립 실천 교육 1000여명 참가 성료
--  이천교육청-이천시-반도체 4개사, 현장 맞춤형 전문 인재 양성 업무 협약
--  내년도 정부예산안, 지역화폐 예산 3000억 증액
--  বুধবার দর বৃদ্ধির শীর্ষ ১০ শেয়ার
--  Efeler yolları asfaltlıyor vatandaşların yüzü gülüyor
--  Noël : avec l'inflation, les produits des fêtes déjà en solde dans les grandes surfaces
--  Rakastetun Elf-jouluelokuvan ihastuttaa – kuljetettiin poliisisaattueessa
--  В 2024 году будут увеличены выплаты семьям из Марий Эл с приемными детьми
--  بنك الإسكان يتوّج بطلاً لبطولة البنوك الكروية الثانية 2023
--  Во Владимирской области ищут мужчину в черной шапке
--  صادرات التمور التونسية ترتفع بنسبة 17,4% إلى 162 م د في نهاية نوفمبر 2023
--  Corona-Symptome: Trockener Mund, Flecken auf der Zunge, Geschmacksveränderung – was ist darüber bekannt?
--  Le gui est-il dangereux pour le chat ?
--  TrustedHousesitters finds new $100m home at Mayfair Equity Partners
--  ONLINE: Veľmi ťažký zápas pre Slovan. Po smrti majiteľa Hrubého má na lavičke premiéru tréner Oremus
--  Fractal Partners with Coursera to launch Data Science Professional Certificate
--  "Ne bo imel časa, prezgodaj je"
--  Nearshoring: 3,000 empresas quieren invertir en México y Scotiabank así busca aprovecharlo
--  Workflow effizienter machen: "KI schafft idealerweise neue Arbeitsplätze"
--  Татарстан в новогодние дни готов встретить около 160 тысяч туристов
--  ‘I judged my father for hitting me – but his wartime PTSD was behind it’
--  To μυστήριο με το Tesla Cybertruck που χρειάστηκε ένα Ford για να ξεκολλήσει από τα χιόνια (vid)
--  Lucka 20: Ska du besöka en kyrka under julhelgen?
--  Cantor e a mãe partilham memórias e histórias de vida (exclusivo)
--  «Россия 25» — нужна ли такая сборная? Live с Зислисом, Шевченко и Потаповым — в 14.00
--  Son dakika! MSB'den Tuzla Piyade Okulu'ndaki iddialara ilişkin açıklama
--  Wolfsburg gegen Bayern: Bundesliga am Mittwoch im TV und Livestream
--  GfK-Konsumklima hellt sich auf: Verbraucher werden mit steigenden Einkommen zuversichtlicher
--  Dünyada yılın en iyi projesi seçilmişti: 1915 Çanakkale Köprüsü'nün yetkilileri ödülü aldı
--  Uluslararası ekonomistler faizlerin düşüşe geçeceği tarihi paylaştı: Keskin ve hızlı bir indirim beklenmiyor
--  Sosyal medyada gündem olan hatıra 5 liraların üzerindeki Atatürk rölyefi için Darphane'den açıklama geldi
--  Mobil Göç Noktası aracı bir ilde daha hizmete girdi: Düzensiz göçe geçit yok
--  В США сделали заявление касательное боеприпасов для Украины
--  Doctor Who Christmas Special 2023: Cast, how to watch and release date
--  Самарқандда бир неча мансабдорга жиноят иши қўзғатилди.
--  Check if you qualify for £55 one-off winter heating payment as money starts landing in bank accounts
--  구미시, 신공항 교통망 구축 전력투구
--  영덕산 샤인머스캣 대만인 입맛 잡는다…개척단-현지회사 MOU
+-  วอนช่วยตามหาเจ้าของน้องหมา พิกัดเจอ ม.แสนดีโมเดิร์นวิลล์ สารภี เชียงใหม่
+-  Tehlike arttı! Karadeniz'de korkutan deprem uyarısı!
+-  DSÖ'den Kovid-19 açıklaması!
+-  Google, antitröst davasında 700 milyon dolar ödemeyi kabul etti!
+-  Man allegedly steals 400kg of meat from Queensland butcher
+-  Man allegedly steals 400kg of meat from Queensland butcher
+-  News24 | French court sentences Rwandan ex-doctor to 24 years imprisonment over 1994 genocide
+-  A šta ako Putin pobedi?
+-  From G20 Summit to Chandrayaan 3: 2023 – The Year That Was
+-  องคมนตรีเชิญสิ่งของพระราชทานเนื่องในวันปีใหม่ พุทธศักราช 2567
+-  Afyonkarahisar'da eşi ve 3 yakınını öldürüp kaçan koca yakalandı
+-  Neymar'a kötü haber! 2024 Kupa Amerika'da olmayacak
+-  Konya'da hava kompresörün gizlenmiş 6 kilo 102 gram metamfetamin ele geçirildi
+-  Gazze'de acil ateşkes talebi için kullandıkları "hayır" oyunu "evet" olarak değiştirdiler
+-  Hidhte inerte në lumin Erzen, arrestohet 50-vjeçari! Balla: Do marrë fund hedhja e mbetjeve në vendet që nuk lejohet
+-  OFICJALNIE: Plan przygotowań Stali Mielec przed rundą wiosenną Ekstraklasy
+-  AI 이용 가짜뉴스 사이트, 7개월 간 11배 급증
+-  Inflation falls by more than expected to 2-year low of 3.9 per cent
+-  Nagle Karpiel-Bułecka oficjalnie ogłosił. To koniec domysłów o jego małżeństwie z Krupińską
+-  [2024 정시] 한성대, 학생 자율선택 '전공트랙제' 운영
+-  경남FC 사랑의 골 적립 경남사랑 전달식
+-  [2023 기록할 만한 지도자] '명품씨름단' 일군 거제시청 최석이 감독
+-  창원LG 크리스마스 3연전 풍성한 행사
+-  김해영운고 윤진명·이준석 중고역도연맹회장기 3관왕
+-  México emitió cantidades “extremas” de metano en 2019, descubren científicos
+-  Schülerin in Hessen getötet: Bekannter wegen Mordes an 14-Jähriger angeklagt
+-  ทม.แพร่ ประชุมเพื่อเตรียมความพร้อมในการจัดทำแผนชุมชน
+-  Affordable housing target remains ‘important’ despite cut, says Robison
+-  Wellingborough contest to provide early test for Sunak in election year
+-  Park Min-young talks dramatic weight loss for ‘Marry My Husband’
+-  У Расеі на выбары прэзыдэнта вылучылася журналістка, якая выступае супраць палітычных рэпрэсій і вайны ва Ўкраіне
+-  Saving Rudolph: AI used to deter deer from railway tracks this Christmas
+-  A Genève, les crèches enfantent de multiples inégalités de traitement
+-  СМИ узнали детали переговоров по перемирию в секторе Газа
+-  HDC현대산업개발, 기술제안공모제 시상식 개최…"협력기업과 상생할 것"
+-  Эксперт: для комнаты матери и ребенка в аэропортах нужны единые правила
+-  BigBoss Show: బిగ్ బాస్ షోపై తెలంగాణ హెచ్చార్సీకి ఫిర్యాదు
+-  Una de las grandes apuestas de Renault cuesta menos de 22.000 euros en España
+-  Ipotermia negli animali domestici: i sintomi da riconoscere e come evitare problemi di salute
+-  'Bom dreigt te barsten bij PSV-opponent Dortmund: Reus leidt coup tegen trainer'
+-  Mercato : Ayoub Abdellaoui prolonge au MC Alger
+-  Kuwait's new emir sworn in, wants comprehensive review
+-  'Radiografía' del atropello de un animal en España: víctimas, zonas más peligrosas...
+-  Wer ist 2023 gestorben? Von diesen Promis mussten wir Abschied nehmen
+-  "Rozkoszny" dostał fuchę w TVN. Będzie "łącznikiem" w nowym show dla nastolatków
+-  [2024 정시] 한국외대, AI융합대 신설...서울캠 첫 자연계열 학과
+-  Гандболисты «Скифа» уступили в домашней игре «Зениту» из Санкт-Петербурга
+-  Överlevare söks i Kina – fler än 130 döda
+-  تاحیات نااہلی کیس، سماعت کیلیے 7رکنی لارجر بنچ تشکیل دیدیا گیا
+-  Lebensgefahr! Listerien in Edeka Gemüse – Rückruf gestartet
