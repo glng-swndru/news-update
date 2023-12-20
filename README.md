@@ -1,11 +1,51 @@
 # Latest News
--  Detalji ročišta: Šta su argumetni tužioca, a šta odbrane
--  장애인 고용 외면한 기관‧기업 457곳 명단공표…프라다코리아 10년 넘게 ‘0명’
--  Vođa Huta prijeti napadom na američke ratne brodove ako napadnu Jemen
--  올들어 성매개감염병 약 3만5000건 발생…전년比 5.6%↑
--  MAFS UK’s Luke claims producers told him to initiate on-screen bust-up with Jordan that got him axed
--  “살모넬라균 오염 가능성 발견”…코스트코, 퀘이커 심플리 그래놀라 전량 리콜
--  Loose Women star Charlene White joins ‘superheroes’ at baby bank as she backs The Sun’s Cosy at Christmas campaign
--  Leinster boss Leo Cullen hails RG Snyman signing but denies any sly behaviour towards rivals Munster
--  폐암‧췌장암 치료제 ‘엘로티닙’ 제제, 간염‧간부전 이상반응 추가
--  Next-Gen Apple CarPlay UI Teased With Porsche And Aston Martin First In Line
+-  ¡Adopta, no compres! “Don Ramón”, el “Chicles” y la “Chimichurris” quieren ser parte de tu familia
+-  Hipgnosis Songs Fund Appoints New Auditor
+-  RBD Closes its Soy Rebelde Reunion Tour in Mexico City: ‘We’ll See What Destiny has in Store for Us’
+-  Германия — H&M, Ikea, Rewe, Thalia: общенациональные забастовки в канун Рождества
+-  한겨레 "한동훈, 김건희 호위무사 자처하며 정치적 중립 의무 저버려"
+-  బిగ్‌ బాస్‌ విజేత పల్లవి ప్రశాంత్‌ అరెస్టు
+-  Klopp: Curtis Jones þarf að bæta sig
+-  Naturgy advirtió a Ingenio de daños económicos por retrasar la licencia
+-  El Concierto Popular de Año Nuevo de la Sinfónica de Las Palmas estrena quinta función
+-  El gran estreno con 14 años de Luís Dias Canali
+-  Los autónomos pueden aportar hasta 5.750 euros a planes de pensiones desde este año
+-  Taraji P. Henson Got Teary As She Talked About Maybe Quitting Acting Over Ever-Crappy Pay: ‘The Math Ain’t Mathing’
+-  ¿Qué tiene de especial ‘Los cuatro acuerdos’? Libro de mexicano también es el favorito de una Kardashian
+-  Steuereinnahmen treten im November auf der Stelle
+-  Ministerium : Tempo weiteren Inflationsrückgangs mit Unsicherheit behaftet
+-  Ministerium : Belebung wirtschaftlicher Dynamik lässt weiter auf sich warten
+-  Ministerium : Steuereinnahmen von Januar bis November um 2,1% über Vj
+-  Ministerium : Steuereinnahmen des Bundes legen im November um 2,4% gg Vj zu
+-  Finanzministerium : Steuereinnahmen steigen im November insgesamt um 0,1% gg Vj
+-  Soccer-Liverpool meets Fulham, while Middlesbrough takes on Chelsea in League Cup semis
+-  Acusan a Kimberly Loaiza de copiar estilo musical de Karol G en su nuevo disco
+-  'Game of Thrones': George R.R. Martin le suplicó a HBO que la serie tuviera 10 temporadas para que fuera "una experiencia más satisfactoria y entretenida"
+-  Paramount, Warner Bros. Discovery are in talks to merge
+-  Болоња го елиминираше Интер од Купот на Италија (ВИДЕО)
+-  Festive self-care important for those with a disability and their carers
+-  Debts to 27.8 percent of the state's gross product! : ₹671757 కోట్లు
+-  Les Belges à l'étranger : Triple Victoire belge en Ligue 1 avec les succès de Rennes, Strasbourg et Reims
+-  إسرائيل تنشر فيديو لتدمير مقر عمليات حزب الله في لبنان
+-  المركزي الأوروبي: تأثير وضع البحر الأحمر على التضخم غير مؤكد
+-  5 New York State Bills Waiting To be Signed That You Didn't Know
+-  Horoskop am 21.12.23: Ihr Tageshoroskop für den 21. Dezember
+-  Residents discuss pokies
+-  Droughts exacerbated by El Niño widen poverty gaps in Peru
+-  US charges Hezbollah member for Buenos Aires attack in 1994
+-  GuocoLand’s unit enters joint venture for Lentor Central property development
+-  Trump attacks Colorado Supreme Court decision to exclude him from primaries
+-  Senado aprova MP com potencial de arrecadação de R$ 35 bilhões a Haddad, entenda
+-  2024 Ford F-150 Raptor R, Cars You Can Import, Hyundai N Vision 74 News: RAC 155
+-  Se dagens premie i julekalenderen
+-  Daihatsu Terlibat Skandal Keselamatan Mobil, Begini Detailnya
+-  Nicolás Maduro promete a los jóvenes para el 2024: Viviendas, trabajo, estudio y felicidad
+-  Terpopuler: Bos Garuda Dilaporkan ke Polisi, Jokowi Bulan Depan ke IKN Groundbreaking 10 Proyek Lebih
+-  Ripple XRP Price Prediction For December End
+-  ‘Unacceptable!’ - Xavi blasts Barca’s lack of spirit
+-  Futbol üzerinden Türkiye’de fay hattı oluşturmaya çalışan kirli eller devrede: Türk futboluna KUMPAS
+-  A 'guerra' continua! Ex de Piovani responde a 'farpas' da atriz
+-  تطوير طريقة لتحليل تركيبة حصى الكلى أثناء العملية الجراحية
+-  'Major milestone' as new culvert installed at Leura Falls Creek
+-  Plug and Play Japan Selects 73 startups for its Winter/Spring 2024 Batch Accelerator Program
+-  Global Nutraceuticals Market Outlook Report 2023-2028: Shifting Preference for Non-pill Nutraceuticals Products
