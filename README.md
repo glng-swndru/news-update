@@ -1,11 +1,11 @@
 # Latest News
--  Context and future of Sri Lanka’s newly developed export brand
--  ZagTrader, a leading financial technology software provider, expands into Sri Lanka through partnership with Bridge-IT
--  Technocity and Lenovo unveil future of technology at Lenovo Innovate ‘23 event
--  Macubator by Guardian Angels Fund empowers aspiring entrepreneurs to launch innovative startups
--  Mathura News: दक्षिण भारतीय रंगनाथ मंदिर के बैकुंठ द्वार से भगवान गोदारंगमन्नार देंगे दर्शन
--  Muzaffarnagar News: सुशील मूंछ का मकान कुर्क होने की आख्या दाखिल की
--  Panchkula News: मुआवजे में भेदभाव का आरोप, पंजाब सरकार को हाईकोर्ट का नोटिस
--  Mirzapur News: पालिका अध्यक्ष ने किया रैन बसेरा का निरीक्षण
--  Mirzapur News: लखीमपुर की टीम ने छह विकेट से जीता मैच
--  Kathua News: मनमाने दामों की कैंची से कट रही ग्राहकों की जेब
+-  Revoluție pe piața eolienelor: o turbină poate valorifica energia mașinilor care trec pe lângă ea VIDEO
+-  Mercato - PSG : Victoire totale pour ce transfert, trois menaces KO
+-  Zapanjujuće otkriće na Marsu: Otkrivena aktivnost koju nitko nije očekivao
+-  نصائح مهمة للتعامل مع فصل الشتاء.. منها الحرص على شرب المياه
+-  Când ajunge în România furtuna Pia care răvășește Europa. Avertismentul meteorologilor despre ce ne așteaptă
+-  ارتداء الكمامات غير إلزامي في ماليزيا
+-  ‘Christmas is cancelled’ says Dancing On Ice legend as he reveals secret health battle
+-  Ajax Vrouwen stunt ook tegen Bayern en pakt leiding in Champions League-groep
+-  Fendi reveals luxury Pokemon collaboration for 2024
+-  Lionel Messi: Las veces que enfrentó a un país de Centroamérica, a quién le anotó más goles y cuándo jugará contra El Salvador
