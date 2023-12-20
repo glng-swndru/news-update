@@ -1,51 +1,51 @@
 # Latest News
--  Vuelve un CAMPEÓN: Joel Graterol, parte 2
--  Rajasthan Assembly session for swearing-in of MLAs to begin today
--  Kendall Jenner is SLAMMED for wearing a $27K real shearling fur coat as fans brand her 'vile': 'How many innocent animals died?'
--  IND vs SA 2nd ODI Result: টনি ডি জর্জির শতকে তরুণ ভারতকে হারিয়ে ৮ উইকেটে জয় প্রোটিয়ার
--  Australia's Jai Hindley wins Giro d’Italia
--  Australia's Jai Hindley wins Giro d’Italia
--  누빅스, 세나테크놀로지와 ESG 경영 솔루션 구축 계약 체결
--  UL Solutions 및 현대 모비스 북미 전기 파워트레인, 전기차 배터리의 안전 및 성능을 개선하기 위해 MOU를 체결하다
--  В Запорожье спрогнозировали сроки обрушения фронта ВСУ
--  Dunki: Stunning drone show lights up Dubai with SRK`s signature pose, watch!
--  "كبير آسيا" يكسب الوحدة
--  الهلال يكسب “التعاون”.. ويتأهل إلى نصف النهائي
--  Стоимость газопровода Шелек-Кеген-Нарынкол по ТЭО оценивается в 24 млрд тенге
--  Priest declares 'church the winner' in battle with lightning storm ahead of Christmas
--  Entre la Reserva Federal y el "austericidio": ¿por qué se desacelera la economía latinoamericana?
--  Колорадо суди Доналд Трампга президентлик сайловида қатнашишни тақиқлади.
--  Ўзбекистонда 15 кунда 73 млрд сўмлик газ ва электрдан ноқонуний фойдаланилгани аниқланди.
--  Зеленский: уруш қачон тугашини ҳеч ким билмайди.
--  Ўзбекистон пахта саноатида Швейцария уюшмаси тажрибаси татбиқ этилади.
--  ЕТТБ Украинани қўллаб-қувватлаш учун капитални 4 млрд еврога оширади.
--  Ўзбекистон соғлом турмуш тарзини тарғиб этишда Индонезия тажрибасини ўрганяпти.
--  Reportan devastador incendio en el último piso de un edificio en Miraflores
--  Monic Pérez comparte su experiencia al dar a luz su tercer bebé en Nepal
--  WA dodgy apartment builders on notice, but shakeup will miss shonky homes
--  WA dodgy apartment builders on notice, but shakeup will miss shonky homes
--  Kazakhstan's Atyrau Oil Refinery opens tender into fuel dye
--  Another City Sued by California for Not Building Its ‘Fair Share of Housing’
--  Should Ahi Tuna Be Cooked?
--  '미스트롯3' 장민호 "정동원 능가 어린 참가자? 마스터 들었다 놨다하더라"
--  '114억 2638만원' 샐러리캡 초과한 팀은 없었다…'111억 8175만원' 두산 1위, '-49억' 키움 10위 [공식발표]
--  아찔한 '천국도'는 어디?…'메기' 조민지♥이진석, 은밀 플러팅→수영장 데이트 [마데핫리뷰]
--  Reafirma Cuba política de respeto a asuntos internos de otras naciones
--  구혜선, 재계약했다…아이오케이 "폭넓은 활동 이어갈 수 있도록 적극 지원"
--  Fatal collision in southwest Middlesex
--  City goleia Urawa Red e vai à final contra o Flu no Mundial de Clubes
--  B.C. mine operators fined $25K for not installing electric fences to deter bears
--  Yerel seçim kararları Resmi Gazete’de
--  El intercambiador de El Humedal suma nueva oposición: "causará atascos y retrasos", denuncia el comité de Emtusa
--  Esto es lo que va a subir el subsidio por desempleo (y estos son los asturianos que lo cobran)
--  Reflexón resignada sobre la democracia
--  El Instituto Cervantes prepara 2024 en Avilés, con planes de expansión y apoyo explícito de la Reina
--  "La creación cultural da impulso a la expansión del español"
--  El inicio del montaje del "arpa" en la entrada a Oviedo obliga desde hoy a reordenar el tráfico en Santullano
--  Jeremy’s WWE NXT Review 12.19.23
--  Kathmandu, Rip Curl report low sales despite Black Friday boost
--  Nets get no respite after daunting Western trip
--  Finback Brewery to Return to Queens Roots With Third Outpost
--  وزير الدفاع ونظيره الفرنسي يشهدان توقيع مشروع خطة تنفيذية للتعاون في الصناعات العسكرية
--  WIKA Pertahankan Predikat Badan Publik Informatif
--  Jusuf Kalla Blak-blakan Mengapa Akhrinya Mendukung Anies
+-  दुई दशकदेखि न्याय खोज्दै द्वन्द्वपीडित
+-  군포시 아동참여위원회 활동 성과발표회 개최
+-  이상일 용인특례시장, 처인구 백암면 ‘고등기술연구원(IAE)’ 방문…
+-  신성훈 감독, 인도 ‘라즈기르 국제영화제’서 2관왕 수상
+-  용인특례시, 포곡읍 삼계리에 축구장 7개 크기 도시숲 조성한다
+-  '에스파' 닝닝, 국내 첫 단독 화보 공개
+-  용인특례시, 건설사업 예방 감사로 103억 5천만원 절감 효과
+-  고양특례시, 국토교통부와 스마트+ 빌딩 공동연구에 나서
+-  이천시, 대한민국 주거복지대상 국토교통부 장관상 쾌거
+-  파주시, 오는 26일까지 고향사랑기부금 답례품 공급업체 모집
+-  의왕시, 의왕학습레일 사업 성과공유회 성료
+-  시흥시, 360억 원가량 토지 소유권 확보… 재정 확충
+-  한수원 월성원자력본부, 동경주지역 취약계층 난방비 2천만원 추가 긴급 지원
+-  고양시, 미래 성장동력 ‘지능형 도시’ 본궤도
+-  KCC, 서초동 사옥에 대형 크리스마스 트리 설치
+-  연천군, 1호선 전철 개통 맞이 소상공인 간담회
+-  백경현 구리시장, 소상공인연합회 ‘목민감사패’ 수상
+-  광주시, 보육유공 정부포상 ‘국무총리’ 기관표창 수상
+-  경기도, 2040년 시흥 도시기본계획 승인… 인구 69만명 목표
+-  동구의회, 한국자산관리공사 인천지역본부 방문해 고철처리장 관련 현안 논의
+-  [기고문]중소기업의 든든한 현장 지원군, 비즈니스지원단
+-  남동구의회 육은아 의원, 전국지방의회 친환경 최우수 의원상 수상
+-  광명시, 온실가스 감축 실적 우수 세대 및 아파트 단지에 탄소중립포인트 인센티브 지급
+-  남양주시 호평동 주평강교회, 호평·평내동 이웃 위한 성탄꾸러미 100상자 후원
+-  하남시, 찾아가는 법률서비스 ‘법률홈닥터’ 2024년 배치기관 선정
+-  국립양평치유의숲, 행복버스 유치를 통한 지방소멸 위기 극복 앞장
+-  동대문구의회, 2024년도 예산 7972억원 예산안 확정하고 제325회 정례회 마무리
+-  강북구의회, 제268회 제2차 정례회 폐회
+-  하남시의회 오승철 의원, 층간소음 없는 ‘행복한 공동주택’과 ‘안전한 교통 환경’ 조성에 박차
+-  민주평통 여주시협의회, 4분기 정기회의 열고 ‘글로벌 복합위기 대응 방안’ 논의
+-  가평군, 명지산 구름다리 개통… 지역경제 활성화
+-  Hamas chief due in Egypt for Gaza ceasefire talks
+-  Waning influence of OPEC+ in spotlight as prices flag
+-  삼성쉐르빌 입주자대표회, 가평 청평면에 이불 20채 기탁
+-  농심 안양공장, 군포 취약계층에 라면 500박스 기탁
+-  CCTV jadi mata-mata polis bantu kurangkan kadar jenayah
+-  İsrail medyasından Netanyahu açıklaması: "Gazze" bahanesiyle yolsuzluktan davasından kaçıyor
+-  島根 出雲大社で「すす払い」 1年のほこり払い落とす
+-  Rashmika Mandanna deepfake case: Police track down four suspects
+-  Democrats celebrate end of Tuberville military holds
+-  Chinese rescuers brave freezing cold to find earthquake survivors
+-  ”ต้าเหนิง กัญญาวีร์” รับเจอ”ลิซ่า” แจงไม่ได้กลัวดราม่าที่ไม่ลงภาพ มองเป็นเรื่องส่วนตัว
+-  Jutes "cannot imagine" his life without Demi Lovato
+-  장흥군농업기술센터, 농촌진흥사업 종합평가 ‘우수상’
+-  여수시, 국가산단 내 발전·생산시설 등 7,500억 규모 투자협약
+-  영광군, NH농협은행 영광군지부 영광군에 축산물꾸러미 80세트 기탁
+-  담양군, “EDM 공연과 함께하는 담양 크리스마스 파티에 초대합니다”
+-  고흥군, 전남도 농촌진흥사업 종합평가 ‘우수상’ 수상
+-  जिंदगी बनी जहन्नुम! इजराइल के हमले ने ली 17 दिन की बच्ची की जान, भाई की भी हुई मौत
+-  Bloomberg รายงาน ‘กสิกรไทย’ เตรียมรุกตลาดคริปโต หวังให้บริษัทไทยมีการระดมทุนมากขึ้น
