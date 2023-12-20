@@ -1,51 +1,51 @@
 # Latest News
--  Kim Jong Un threatens ‘more actions’ against US
--  Israel continues strikes and raids
--  Iceland volcano erupts weeks after thousands evacuated
--  Australia is set to release convicted terrorist from prison
--  Bangladesh Opposition party accused of arson
--  CBI chief visits Imphal to review investigations
--  After 141 MPs suspended, Oppn leaders compare Parl with ‘N Korean assembly’
--  Суд в Колорадо запретил Трампу участвовать в президентских выборах
--  “차량용 투명 디스플레이 공개”…현대모비스, CES서 혁신기술 선봬
--  경륜경정총괄본부 6년째 ‘사랑의 산타클로스’ 사업 전개
--  Israeli Business Continue To Collapse And Beg For Customers
--  BenQ ZOWIE XL2586X gaming monitor: crazy 540Hz refresh rate for esports fanatics
--  It’s Time to Enter Your Greek Mythology Era, Percy Jackson Is Back
--  연기금, HMM은 사고 팬오션은 팔고
--  Балицкий спрогнозировал сроки обрушения линии фронта ВСУ
--  Risk adjusted net present value: What is the current valuation of Erasca’s ERAS-601?
--  Risk adjusted net present value: What is the current valuation of Alphamab Oncology’s JSKN-003?
--  بطولة إسبانيا: أتلتيكو المنقوص يفلت من فخّ خيتافي وإشبيلية وفالنسيا يتنفّسان الصعداء
--  كأس الرابطة: تشلسي يقلب الطاولة على نيوكاسل ويبلغ نصف النهائي
--  مونديال الأندية: سيتي ينفض غبار عثراته المحلية ويؤكد تشبّثه بالخماسية
--  Risk adjusted net present value: What is the current valuation of Outlook Therapeutics’s Lytenava?
--  Risk adjusted net present value: What is the current valuation of Takeda Pharmaceutical’s Zasocitinib?
--  Risk adjusted net present value: What is the current valuation of Xilio Therapeutics’s XTX-202?
--  30 Incredible Ways to Cook Potatoes This Christmas
--  त्रिवि दीक्षितको ऊर्जा
--  Llevan más de 10 horas la sesión de Congreso
--  Despiden a 7 jóvenes asesinados en Salvatierra
--  '다시 새롭게'… 포천시 소흘도서관 재개관
--  وزير الخارجية البريطاني يزور الأردن ومصر هذا الأسبوع
--  UNDERCOVERの過去の名作アウターが渋谷のSTAGEに集結
--  Washington Post: президент Путин завершает год на триумфальной ноте
--  Risk adjusted net present value: What is the current valuation of Neumora Therapeutics’s Navacaprant?
--  Risk adjusted net present value: What is the current valuation of NRX Pharmaceuticals’s Cycloserine + Lurasidone Hydrochloride?
--  Risk adjusted net present value: What is the current valuation of Karuna Therapeutics’s (Trospium chloride + Xanomeline)?
--  이어룡 회장, 나주·괴산 복지시설에 성금 전달
--  철원 근남면 양지마을 문화예술 프로그램 인기
--  서울 강남 나누리병원, 철원군 내대2리 의료봉사
--  최철규 강원랜드 강원랜드 경영진 겨울 성수기 특별 안전점검 실시[사진]
--  Tragédia Izlandon: bezárták a Kék Lagúnát
--  No Irianto, No Problem! Menguak Alasan Shin Tae-yong Biarkan Timnas Indonesia Hilang Satu Pemain Jelang Piala Asia
--  Cak Imin Sempat Diprotes Soal Program Bantuan Langsung Bagi Ibu Hamil
--  ปศุสัตว์อำเภอลองแพร่ ติดตามการจัดส่งนมโรงเรียน ภาคเรียนที่ 2 ปีการศึกษา 2566
--  Hiện tượng Mono - em trai Sơn Tùng - trở lại mặt đất
--  내년부터 은행권 '24시간 보이스피싱 모니터링시스템' 확대 가동
--  “연예인도 울고갈 미모”…화장품 모델 데뷔 조민에 난리난 지지자들
--  JW중외제약 "혈우병 신약 헴리브라, 삶의 질 개선 입증"
--  Risk adjusted net present value: What is the current valuation of Regeneron Pharmaceuticals’s Odronextamab?
--  Risk adjusted net present value: What is the current valuation of Erasca’s Naporafenibum?
--  Risk adjusted net present value: What is the current valuation of Erasca’s ERAS-007?
--  Taspen Sediakan Fasilitas Buat ASN Bisa Kredit Rumah Hingga 40 Tahun
+-  অবশেষে হাফসেঞ্চুরির দেখা পেলেন সৌম্য সরকার
+-  পাঁচ বছর পর সৌম্যর সেঞ্চুরি
+-  সৌম্যের সেঞ্চুরিতে ভর করে কিউইদের ২৯২ রানের লক্ষ্য দিলো টাইগাররা
+-  আজ সিলেট থেকে নির্বাচনি প্রচার শুরু করবেন শেখ হাসিনা
+-  জিএম কাদের কেন সামনে নেই?
+-  ডায়াবেটিসের মহৌষধ করলা, আটকে দিতে পারে ক্যানসারও!
+-  ঠেকানো যাচ্ছে না রেলে নাশকতা
+-  দূষিত বায়ুর শহরের তালিকায় দ্বিতীয় স্থানে ঢাকা
+-  দুর্ঘটনায় আহত ঝিনাইদহের সাংবাদিক সেলিম মারা গেছেন
+-  মানুষ থেকে মানুষে ছড়াচ্ছে ‘নিপাহ’ ভাইরাস, সংস্পর্শে এলেই সর্বনাশ
+-  MSD 키트루다, HER2 양성 위암 1차 치료 병용 적응증 확대
+-  서울아산병원 황신 교수, 대한이식학회 신임 이사장
+-  가락시장 공동 배송사업 성공적 추진 다짐
+-  류마티스 관절염 환자, '폐암' 위험 49% 증가
+-  정식품, 2024년 정기 임원 인사
+-  뷰웍스, 경량화·휴대성 기술로 엑스레이 디텍터 시장 선도
+-  명지병원–고양특례시, '정밀의료 클러스터 조성' 업무협약 체결
+-  경희대치과병원, 中 하얼빈 제2병원에 특화센터 개소
+-  식약처 '의약품 변경허가 사전통보제' 시범운영
+-  농협경제지주, 연말맞이 소외이웃 위한 '사랑의 물품'나눔
+-  농기평, 한국형 발효유 종균 개발
+-  축평원, 농식품 통계데이터 분석·활용 경진대회 장관상 수상
+-  샘표 밸런스죽, 동지 특집 기획전 이벤트
+-  식약처 국장급 공무원 인사
+-  의약품 부작용 피해구제 추가부담금 차등 부과
+-  코스맥스NBT 'K푸드 수출탑' 수상 "K건기식 영토 확장 앞장"
+-  대한제분 '케이엠비 아뺑드 밀가루 T65' 출시
+-  모다모다, 취약계층 위한 연말 사회공헌활동 '훈훈'
+-  건강기능식품판매업 보수교육 수료 독려
+-  올 동지에도 영양 많은 우리 팥으로 든든하게
+-  농협, 성탄 맞아'따뜻한 연말 사랑나눔'
+-  마녀공장 '9.9.9 클리어런스 세일' 최대 86% 할인
+-  WHO ने कोरोना के नए सब-वेरिएंट JN.1 को ‘वेरिएंट ऑफ इंटरेस्ट’ की श्रेणी में रखा है, जानें कितना खतरनाक है ये
+-  QV：新西兰房价连第4个月上涨！明年将缓慢复苏！
+-  喜大普奔！北岛这条重要的旅游公路今天恢复通车啦……
+-  终于！ANZ银行宣布降低部分房贷利率
+-  【伍勇讲生意】圣诞快乐，新年进步
+-  新西兰副总理兼外长对中国甘肃地震表示慰问
+-  隋兵Bryan - 本周生意推荐（1220）
+-  新中商协成功举办难忘的圣诞游艇出海活动
+-  आरबीआई ने एआईएफ के माध्यम से ऋणदाताओं द्वारा सदाबहार ऋणों की उगाही पर अंकुश लगाने के लिए मानदंड कड़े किए
+-  เด็กนักเรียนบึงกาฬรื้อตู้ใส่เสื้อหนาวรอบใหม่!
+-  20 दिसंबर के लिए Petrol, Diesel की ताजा कीमतें घोषित: अपने शहर में ईंधन दरें जांचें
+-  한화제약, 천식 치료제 ‘씨투스정’ 겨냥 제네릭 개발 돌입
+-  안저검사 망막 사진으로 자폐스펙트럼장애 예측
+-  Alcaldesa en CDMX denunciará a Fiscalía por presuntamente espiarla
+-  Homicide victim found dead in 1979 near Las Vegas Strip ID’d as missing 19-year-old from Cincinnati
+-  សម្តេចធិបតី ហ៊ុន ម៉ាណែត អញ្ជើញសម្ពោធដាក់ឱ្យប្រើប្រាស់ អគារធនាគារវីងថៅវើ
+-  Capturan a sujeto tras encontrarle cocaína y más de 7 mil dólares en efectivo en Santa Ana
+-  Brightcom Group Share Price Live blog for 20 Dec 2023
