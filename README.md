@@ -1,51 +1,51 @@
 # Latest News
--  Katili Netanyahu için çember daralıyor! Yaralı askerler görüşmeyi reddetti
--  Sokak ortasında silahlı saldırı: 1 kişi hayatını kaybetti
--  Hooggerechtshof Colorado: Trump niet op stembiljet voorverkiezingen in 2024
--  대전현대직업전문학교, VR 시스템 자동차 및 전기차 정비 학원 교육과정에 도입
--  라이프스타일 뷰티 브랜드 논픽션, 신세계백화점 센텀시티점 팝업 스토어 오픈
--  주식회사 푸른바다, 이탈리아 푸른꽃게 해외 수출
--  No 'Firm Date' For Stopping The Boats, Admits British Prime Minister Rishi Sunak
--  Colossal Costs and Insatiable Influencers: How One Cake Maker Is Weathering the Storm With Swagger
--  Manchester City Midfielder Bernardo Silva Takes Aim At Intense Football Schedule
--  How Climate Change Impacts Everyone - The Insidexpress
--  George Clooney's Reflection On His Relationship With The Late Matthew Perry - The Insidexpress
--  Maestro Producer Addresses Casting Backlash: Key Insights - The Insidexpress
--  Home Alone 2 Star's Heartbreaking Near-Death Ordeal - The Insidexpress
--  Netflix Announces Wednesday Spin-Off Starring Uncle Fester - The Insidexpress
--  James Gunn's Latest Update On Superman: Legacy - The Insidexpress
--  Paul Mescal's Adorable Dating Red Flag At A Restaurant - The Insidexpress
--  Volcan en Islande: les images impressionnantes de l'éruption dans le sud-ouest du pays
--  "Poutine doit perdre": David Cameron réaffirme le soutien à l'Ukraine lors de sa visite en France
--  Présidentielle américaine 2024: Donald Trump jugé inéligible par la Cour suprême du Colorado dans cet État
--  Intempéries en Australie: des crocodiles aperçus dans les rues inondées
--  "Comme une scène de film": aux États-Unis, un bébé emporté par une tornade retrouvé vivant dans un arbre
--  "Une muraille de feu de 4 km": les images spectaculaires de la nouvelle éruption volcanique en Islande
--  Gérard Larcher et des sénateurs se rendent mercredi en Israël et dans les Territoires palestiniens
--  Volcan en Islande: les images impressionnantes de l'éruption dans le sud-ouest du pays
--  Attaques en mer Rouge: ce que l'on sait de la coalition créée par Washington et à laquelle la France...
--  Chine: au moins 118 morts et plus de 400 blessés dans un séisme de magnitude 5,9
--  En Allemagne, les artistes jugés trop pro-palestiniens exclus de la vie culturelle
--  KB유니콘클럽, 초격차 스타트업 등용문이 되다
--  Disability and loneliness in the United Kingdom: cross-sectional and longitudinal analyses of trends and transitions - BMC Public Health
--  NASA to launch new mission to help build 3D map of Milky Way
--  Twist Introduced to High-Temperature Superconductors
--  Groundbreaking Discovery: New Form of Light Challenges Classical Physics
--  Plant Metabolism More Complex Than Previously Thought
--  Upcoming SpaceX Launch to Include First Direct-to-Cell Starlink Satellites
--  Global Sound Inventory Enhances Understanding of Aquatic Ecosystems
--  An Astronaut's Guide To Communication Skills Training
--  Former NASA Astronaut Explains How to Poop in Space
--  China's Spaceplane Has Released Multiple Mystery Objects In Orbit
--  24,000-year-old secret sea ice highway, path to America discovered
--  Human Brains Show More Parallel Traffic Than Animal Brains
--  Climate Impact on African Aardvarks Studied Through Fecal Analysis
--  A piece of Staffordshire is going to the Moon
--  These scientists want to put a massive 'sunshade' in orbit to help fight climate change
--  Machine learning boosts search for new materials
--  Methane Cleaner Invention May Revolutionize Cattle, Pig Barns
--  Growing Old Could Have Played a Critical Role in Our Evolution
--  Neanderthal DNA may explain why some of us are morning people
--  Scientists discover hidden population of stars that are the "bluest of blue"
--  ファルコンズはコルツ戦でQBハイニケを先発に、QBリッダーは今季2度目のベンチへ
--  Sentencia contra Aras no tiene precedentes: César Jáuregui
+-  HMM 품은 하림, 이틀째 강세…‘유상증자’ 팬오션은 ↓
+-  카카오모빌리티, 가맹택시 콜 몰아주기 혐의 검찰 수사 전망..중기부 "공정위에 고발요청"
+-  Erməni keşiş xütbəsində hayları Azərbaycanla müharibəyə çağırdı
+-  에스파 닝닝이 밝힌 혼자만의 시간 "주로 테크노를 들어요" [화보]
+-  '나는 솔로', 비드라마 화제성 1위→'솔로지옥3' 4위로 진입…출연자 화제성 1위는 '이 배우'
+-  유신열 신세계면세점 대표 “자유여행 방한 외국인 관광객 잡겠다”
+-  Kelowna Rockets forward Tij Iginla to play in CHL Top Prospects Game
+-  To work together for China-Vietnam community with shared future that carries strategic significance
+-  Unique ethnic culture leads to booming rural tourism in China's Guangxi
+-  List of Jeffrey Epstein's associates must be unsealed, judge rules
+-  Pregnant Mum, Kids Killed In Honda Fit Accident
+-  Entre la coyuntura y las transformaciones necesarias: hacia una industria más sustentable, diversa e inclusiva
+-  Southwest Airlines, pilots union reach tentative labour deal
+-  Daniel Bocanegra, ¿y el primer paso para su llegada a América de Cali?
+-  ‘सपने में आती है…’, मनचले की हरकतों से छात्रा ने छोड़ी पढ़ाई तो उसकी मां से कर दी छेड़छाड़
+-  O.U.R. files countersuit alleging defamation
+-  North Korea and Russia clash with US, South Korea and allies over Pyongyang’s latest missile launch
+-  US technology sales to Russia lead to a Kansas businessman’s conspiracy plea
+-  Mother of a child punished by a court for urinating in public refuses to sign probation terms
+-  Н.Энхрийхэн шатрын өсвөр үеийн Ази тивийн аваргаас мөнгөн медаль хүртлээ
+-  Bruce Springsteen ‘in talks to headline next year’s Glastonbury’
+-  La presidenta de Perú pide celeridad a Corte Interamericana de DDHH sobre excarcelación de Fujimori
+-  Se complica la situación del acusado por el robo millonario a la familia de Antonela Roccuzzo
+-  Court disqualifies Trump from Colorado ballot
+-  Vasco conclui acordo e encerra pendência por Lucas Piton
+-  광주정보문화산업진흥원(GICON), 시민자문위원 위촉
+-  양육비이행관리원 "양육비 채무자의 가상자산 압류한다"
+-  Nonprofit news organization launching to cover Utah state politics
+-  How ‘Star Wars’ lingo found a place in everyday conversations
+-  Corte Suprema de Colorado falla que Trump está “descalificado” para ocupar la presidencia de EEUU
+-  Utah State football: Safety Devin Dye transferring to Kansas
+-  두세훈 민주당 법률위원회 부위원장, 완주·진안·무주·장수 출마
+-  PAGASA Releases Latest Weather Update for Wednesday (December 20, 2023)
+-  Байден отреагировал на цитирование Путина Трампом
+-  Aaron Rodgers Discusses If He'll Play in the NFL Again After Ankle Injury
+-  श्रमिक बिदेसिएको अनुपातमा विप्रेषण कम
+-  SK에코플랜트, 디지털 탄소 관리 솔루션 '웨이블 디카본' 출시
+-  DL건설, 창원 회원2구역 신탁형정비사업 시공권 확보
+-  George Clooney Says Matthew Perry Wasn’t Happy on Friends
+-  Gelar Sidak Makanan di Solo, Balai Besar Jateng-DIY Periksa 5 Kios di Terminal Tirtonadi
+-  Firli Bahuri Belum Bisa Pastikan Kehadirannya dalam Sidang Etik Hari Ini
+-  SPC삼립, 최초 한글조리서 '음식디미방' 활용한 상화병 출시
+-  Doja Cat Wears Daring Sheer Outfit to Celebrate End of Her Tour
+-  Pedro Geromel revela vontade de seguir no Grêmio
+-  콜로라도州 대법원 "트럼프, 대선 경선 출마자격 없어"
+-  وزير الدفاع السعودي يبحث مع نظيره الفرنسي التعاون العسكري والتطورات في المنطقة
+-  Al menos 112 toneladas de droga han sido incautadas en eL 2023
+-  Shane MacGowan’s widow struggling to feel ‘sad’ he’s dead: ‘He’s in a very blissful state’
+-  Kinkkua ei tarvitse syödä raakana – sähkön hinta laskee jouluna
+-  경복궁 담벼락 낙서테러범 "안 죄송해, 예술 했을 뿐"
