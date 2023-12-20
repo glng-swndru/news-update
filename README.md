@@ -1,51 +1,51 @@
 # Latest News
--  Mais de 10.700 pessoas viviam como sem-abrigo em 2022
--  '선 넘은 패밀리' 안정환, "산타는 모두 뻥이야"…극 현실주의
--  與 ‘친족 강간 변호’ 공지연 인재 ‘유지’키로…“이재명 조카 건과 달라”
--  박상우 국토부 장관 후보자 “실거주 의무 폐지해야”
--  친명계 이경 ‘보복운전’에 총선 출마 물거품
--  눈길 속 절규…“길에서 생 마감한 아이들, ‘특별법 통과’ 마지막 기회”
--  Nils Åman spräckte målnollan - efter nya kontraktet
--  Euroleague: Αυτοκτονία Ολυμπιακού στην Μπολόνια
--  제주-중앙 청년 만나 '청년정책 활성화 방안' 모색
--  Liga kup Engleske: Čelsi i Fulam penalima do polufinala
--  하늘길 따라 이어진 제주사랑… 대한항공 고향사랑 기부 동참
--  Kako nas varaju: Ove vrste voća i povrća morate uvijek, ali baš uvijek, vagati prije kupovine
--  Барселона, Ливърпул, Байерн, ПСЖ и Интер в телевизионния ефир днес
--  Debakl Napolija u Kupu Italije
--  Владислав Панев: По-добра алтернатива за управление в момента няма
--  Hrvatska je bacila preko dva milijuna doza cjepiva protiv Covida; pogledajte brojke u EU
--  Τζένιφερ Λόπεζ και Μπεν Άφλεκ: το χριστουγεννιάτικο πάρτι του λαμπερού ζευγαριού
--  AMSCG: Oprezno zbog poledice
--  JPMorgan verhoogt koersdoel Philips
--  Kolorado teismas blokavo Trumpo dalyvavimą JAV prezidento rinkimuose
--  Вологда не заплатит подрядчикам за некачественную уборку снега
--  De grootste kerstboom van Goudriaan geplaatst bij de kerk
--  Lokale omroepen in de Drechtsteden en Molenlanden starten samenwerking
--  Emre Belözoğlu'ndan Halil Umut Meler'e jet cevap! "3 kez aradım"
--  Taas uusi skandaali - seurapomo marssitti joukkueensa kentältä kesken ottelun Turkissa
--  Başkan Erdoğan'dan Viktor Orban'a ikinci hediye
--  Franse president Macron verdedigt zijn omstreden migratiewet op tv
--  Frankreichs Präsident Macron verteidigt sein umstrittenes Migrationsgesetz im Fernsehen
--  มติบอร์ดขึ้นค่าแรงตามเดิม 2-16 บ.ย้ำการเมืองอย่าแทรกแซง
--  ارتفاع أسعار الأغذية في الأردن 0.8% الشهر الماضي
--  الشيخ مشعل الأحمد يؤدي اليمين الدستورية أميراً للكويت
--  عمان العربية تعقد ورشة عمل حول الأمن السيبراني في نقابة المهندسين / فرع جرش
--  Гризман с исторически голове за Атлетико Мадрид - Труд
--  Nappieras paliks „Crvena Zvezda“ ekipą
--  В Финляндии зарегистрировали рекордное за 25 лет число банкротств компаний
--  গাজায় সাময়িক যুদ্ধবিরতিতে রাজি ইসরায়েল, জানালেন প্রেসিডেন্ট
--  Opet odložena sednica SB UN; Razlog američki veto
--  EU verkündet Durchbruch in Verhandlungen zu Asylreform
--  В Тверской области мужчина предстанет перед судом за убийство знакомого со второй попытки
--  Westbridge to build $40m Cottesloe townhouses
--  VEGOILS-Palm breidt stijgingen uit na beslissing van Brazilië om biodieselmix te verhogen
--  VEGOILS-Palm legt nach Brasiliens Entscheidung zur Erhöhung des Biodieselanteils weiter zu
--  Këshilla kundër fryrjes së barkut
--  8 مشكلات جلدية يسببها النوم بالمكياج.. احذريها
--  대구경찰청 마약사범 728명 검거…10대 사범, 작년 12명→올해 47명
--  남진복 경북도의원, 울릉군예산 323억원 확보
--  Сегашните промени в Конституцията са революционна промяна в съдебната власт, смята Панев
--  FT: Индия обеспокоена деятельностью базирующихся за рубежом экстремистских группировок
--  Przez cztery dekady belgijski Kościół odbierał noworodki niezamężnym kobietom i sprzedawał do "lepszych rodzin"
--  Депутатите излизат в почивка от петък
+-  Spajić i Gorčević u Briselu
+-  UPSC Success Story: Unveiling Journey Of IAS Priyanka Goel, Overcoming 5 UPSC Failures To Secure Success On The 6th Attempt With An Impressive AIR….
+-  Le FGIS lance une campagne de recrutement de cadres gabonais
+-  Kakao Pay, Siebert agree to terminate acquisition deal
+-  Blondie & Garfield - DECEMBER 21, 2023
+-  Will probe into first lady begin after general elections?
+-  Instagram dancing video in Iran leads to arrests
+-  [INTERVIEW] Korea to spearhead global initiative to fight disease threats
+-  Be more responsible
+-  US deploys B-1B bomber after NK ICBM launch
+-  Rival parties reach final agreement on national budget for 2024
+-  Korean-born, Australian-based teenager signs with Pittsburgh Pirates
+-  Shares of Harim Holdings soar, Pan Ocean fall after HMM acquisition announcement
+-  Number of Korean arms importers triples in 2023
+-  Korean platform firms could fall victim to new regulations
+-  메시→홀란드, 이제는 홀란드 시대! 2023년 BBC 선정 올해의 월드 스포츠 스타
+-  2023년, 당신은 어떤 프로그램을 좋아하셨나요? [MD포커스]
+-  '명불허전' 신혜선, 넷플릭스서 영화·드라마 동시 1위
+-  성태준, '맥베스' 공연 중 두피 타박상으로 응급실행…"봉합 진행 후 내원 치료 예정" [공식]
+-  김남일♥김보민 "중3 아들, 키 185cm…축구는 포기→피지컬 때문 친구들 다칠까봐" [옥문아]
+-  손해보험업계, 내년 자동차보험료 2.5~3% 인하…메리츠화재 인하율 제일 높아
+-  월스트리트 잉글리시, '2023년 가족친화 인증기업' 선정…조재범 대표 "건강한 조직문화 형성에 앞장설 것"
+-  "굿윌스토어 점포 100곳 건립 등" 우리금융, '사회공헌 10년 전략' 발표… 재원은 있나?
+-  우리은행, '고객 중심 자산관리 실천 서약식' 개최
+-  신한라이프, 취약계층 위한 '사랑의 빵만들기' 봉사 진행
+-  '화수분 야구' 초석 다진 김태룡 단장, 두산 부사장 승진…"단장직은 유지" [공식발표]
+-  배경화 현대카드 디지털부문 대표, 부사장 승진
+-  Hiszpański bank centralny obniża prognozy wzrostu
+-  Sprzedaż aut w Europie nadal rośnie
+-  제주 국제 크루즈 올해 76회, 관광객 10만명...내년 300회 넘을 듯
+-  Hummelgaard har nævnt Pitzner-sag for emiratisk minister
+-  Hummelgaard har nævnt Pitzner-sag for emiratisk minister
+-  كوريا الجنوبية واليابان تعقدان مباحثات اقتصادية بعد توقف لمدة 8 أعوام
+-  강원 국제수소포럼에 따른 기업유치 업무협약식
+-  가톨릭관동대 성과관리위원회 개최
+-  화천군산천어축제 주전부리 음식 시식회
+-  제38회 강릉노인대학 졸업식 개최
+-  정선 남면 낙동2리 경로당 준공
+-  횡성한우사관학교 수료식
+-  캘리이야기 오붓하게, 냉장고 후원
+-  송정동단체협의회 성금 1000만원 기탁
+-  민주평통정선군협의회 통일 토크 콘서트
+-  두루바른사회적협동조합, 지역자율형사회서비스투자사업 최우수상 수상
+-  한국장애인고용공단 강원지사 공공기관 인사부서장 간담회
+-  원주 삼산병원, 건강보험 빅데이터 진료지원 플랫폼 협력병원 현판식
+-  원주제일 라이온스클럽 난방유, 겨울이불 전달
+-  남원주농협 농가주부모임, 불우이웃돕기성금 전달
+-  축협봉사회 사랑의 성금 기탁
+-  2023년 연말 군 위문품 전달
+-  NH평창 농협군지부 이웃돕기 성금 기탁
