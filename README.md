@@ -1,11 +1,11 @@
 # Latest News
--  Борислава Христова поведе Сепси към втора победа в Евролигата
--  Israel says it has uncovered major Hamas command center
--  Bombons de Natal saudáveis? Aqui tem a receita
--  "제나벨" 12월 21일 캐시워크 퀴즈 정답 공개
--  СМИ: найденный "жучок" накалит противостояние между Зеленским и Залужным
--  Liverpool murjoi West Hamin liigacupin puolivälierissä
--  التعليم تطالب الموارد البشرية بعرض ما يتعلق بالرخصة المهنية على "لجنة البت"
--  0:2-Niederlage bei Union: Zukunft von Steffen Baumgart ist offen
--  L’Inter esce dalla Coppa Italia, ma c’è ansia per Lautaro: ecco le ultime
--  "Bateu, levou", diz Quaquá após reagir a agressão
+-  Akber : ఏది నిజం.. ఏది అబద్ధం.?
+-  ¡Video inédito! Revelan insultos de Scaloni a Messi y sus jugadores en final de Mundial
+-  삼성전자 성과급 희비...반도체 일부 제로, 모바일은 75%
+-  الإثنين.. وزير الكهرباء يترأس اجتماع عمومية "النقل" و"القابضة"
+-  Projeto sobre Mercado de Carbono deve atender as necessidades e expectativas dos povos da Amazônia, afirma Socorro Neri
+-  Quatre fonctionnaires Français arrêtés à Ouagadougou
+-  I’m A Celeb feud ramps up as Nella Rose snubs unexpected campmate weeks after jungle final
+-  A Russian ally's purchase of French and Indian weapons is another sign Moscow is losing influence in its neighborhood
+-  Kindred's Riley Sunram makes it official with Minnesota Gophers
+-  పౌర సరఫరాల సంస్థ అప్పు రూ.56,146 కోట్లు
