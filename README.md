@@ -1,11 +1,11 @@
 # Latest News
--  Beylikdüzü Belediyesi önlem almadı... Pis koku ve dev fareler vatandaşı canından bezdirdi
--  İstanbulspor Başkanı Ecmel Faik Sarıalioğlu konuştu! "Bardağı taşıran son damla oldu"
--  İsrailli Bakan Ben-Gvir, "insani ara" verilmesine karşı
--  AP Raportörü'nden Türkiye ile ilgili skandal sözler! TBMM toplantısında cevabını aldı
--  Les assurés résilient plus souvent leur couverture santé, mais sans faire baisser les prix
--  Ceredigion tractor dealership plans expansion
--  Pour son jean, Seize point neuf combine économie solidaire et fabrication française
--  Raihaanun Cerita Tantangan Berperan sebagai Kinan di Film Layangan Putus
--  Thriller, Liebesgeschichte, Fantasy: Diese Bücher empfehlen Halterner zu Weihnachten
--  ‘Survivor’ Season 45 Boasts Renewed Ratings Success For CBS As Younger Audiences Flock To Long-Running Competition Series
+-  Renewa Closes White Wing Solar Sale Lease-Back Transaction With LRE
+-  Zeinab nasungkit ang bonggang regalo
+-  Zeinab nasungkit ang bonggang regalo
+-  ג'ירף חדש נולד לג'ירפה "טוי" בפארק מדבריום בבאר שבע
+-  הכנסת אישרה: לוחמים משוחררים יקבלו מימון מלא לתואר
+-  Suriname Court Upholds 20-year Sentence For Ex-president In Murder Trial
+-  Quase metade das empresas de transporte rodoviário de mercadorias em risco de incumprimento
+-  شاهد.. ماذا حدث لنرويجي قفز من ارتفاع 40.5 متر في المياه المتجمدة؟
+-  رسمياً: هذه هي المهن التي لن تجدد إقامتهم في السعودية وسيتم الاستغناء عنهم ابتداءً من هذا الموعد
+-  سعر لكزس GX موديل 2024 في السعودية
