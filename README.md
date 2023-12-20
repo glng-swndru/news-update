@@ -1,51 +1,11 @@
 # Latest News
--  วอนช่วยตามหาเจ้าของน้องหมา พิกัดเจอ ม.แสนดีโมเดิร์นวิลล์ สารภี เชียงใหม่
--  Tehlike arttı! Karadeniz'de korkutan deprem uyarısı!
--  DSÖ'den Kovid-19 açıklaması!
--  Google, antitröst davasında 700 milyon dolar ödemeyi kabul etti!
--  Man allegedly steals 400kg of meat from Queensland butcher
--  Man allegedly steals 400kg of meat from Queensland butcher
--  News24 | French court sentences Rwandan ex-doctor to 24 years imprisonment over 1994 genocide
--  A šta ako Putin pobedi?
--  From G20 Summit to Chandrayaan 3: 2023 – The Year That Was
--  องคมนตรีเชิญสิ่งของพระราชทานเนื่องในวันปีใหม่ พุทธศักราช 2567
--  Afyonkarahisar'da eşi ve 3 yakınını öldürüp kaçan koca yakalandı
--  Neymar'a kötü haber! 2024 Kupa Amerika'da olmayacak
--  Konya'da hava kompresörün gizlenmiş 6 kilo 102 gram metamfetamin ele geçirildi
--  Gazze'de acil ateşkes talebi için kullandıkları "hayır" oyunu "evet" olarak değiştirdiler
--  Hidhte inerte në lumin Erzen, arrestohet 50-vjeçari! Balla: Do marrë fund hedhja e mbetjeve në vendet që nuk lejohet
--  OFICJALNIE: Plan przygotowań Stali Mielec przed rundą wiosenną Ekstraklasy
--  AI 이용 가짜뉴스 사이트, 7개월 간 11배 급증
--  Inflation falls by more than expected to 2-year low of 3.9 per cent
--  Nagle Karpiel-Bułecka oficjalnie ogłosił. To koniec domysłów o jego małżeństwie z Krupińską
--  [2024 정시] 한성대, 학생 자율선택 '전공트랙제' 운영
--  경남FC 사랑의 골 적립 경남사랑 전달식
--  [2023 기록할 만한 지도자] '명품씨름단' 일군 거제시청 최석이 감독
--  창원LG 크리스마스 3연전 풍성한 행사
--  김해영운고 윤진명·이준석 중고역도연맹회장기 3관왕
--  México emitió cantidades “extremas” de metano en 2019, descubren científicos
--  Schülerin in Hessen getötet: Bekannter wegen Mordes an 14-Jähriger angeklagt
--  ทม.แพร่ ประชุมเพื่อเตรียมความพร้อมในการจัดทำแผนชุมชน
--  Affordable housing target remains ‘important’ despite cut, says Robison
--  Wellingborough contest to provide early test for Sunak in election year
--  Park Min-young talks dramatic weight loss for ‘Marry My Husband’
--  У Расеі на выбары прэзыдэнта вылучылася журналістка, якая выступае супраць палітычных рэпрэсій і вайны ва Ўкраіне
--  Saving Rudolph: AI used to deter deer from railway tracks this Christmas
--  A Genève, les crèches enfantent de multiples inégalités de traitement
--  СМИ узнали детали переговоров по перемирию в секторе Газа
--  HDC현대산업개발, 기술제안공모제 시상식 개최…"협력기업과 상생할 것"
--  Эксперт: для комнаты матери и ребенка в аэропортах нужны единые правила
--  BigBoss Show: బిగ్ బాస్ షోపై తెలంగాణ హెచ్చార్సీకి ఫిర్యాదు
--  Una de las grandes apuestas de Renault cuesta menos de 22.000 euros en España
--  Ipotermia negli animali domestici: i sintomi da riconoscere e come evitare problemi di salute
--  'Bom dreigt te barsten bij PSV-opponent Dortmund: Reus leidt coup tegen trainer'
--  Mercato : Ayoub Abdellaoui prolonge au MC Alger
--  Kuwait's new emir sworn in, wants comprehensive review
--  'Radiografía' del atropello de un animal en España: víctimas, zonas más peligrosas...
--  Wer ist 2023 gestorben? Von diesen Promis mussten wir Abschied nehmen
--  "Rozkoszny" dostał fuchę w TVN. Będzie "łącznikiem" w nowym show dla nastolatków
--  [2024 정시] 한국외대, AI융합대 신설...서울캠 첫 자연계열 학과
--  Гандболисты «Скифа» уступили в домашней игре «Зениту» из Санкт-Петербурга
--  Överlevare söks i Kina – fler än 130 döda
--  تاحیات نااہلی کیس، سماعت کیلیے 7رکنی لارجر بنچ تشکیل دیدیا گیا
--  Lebensgefahr! Listerien in Edeka Gemüse – Rückruf gestartet
+-  Punjab Gangster Amritpal Singh Dies In Shootout With Police Over Drug Haul
+-  الاحتلال يزعم وصوله أكثر من مرة لموقع السنوار
+-  الباندا حيوان اجتماعي!
+-  طرح البوستر الرسمي لمسلسل حالة خاصة
+-  Türkiye Futbol Federasyonu'nun özerk olmadığını Sedat Kaya 3 maddede açıkladı
+-  500+米冰雪赛道硬核考验，玄武钢化昆仑玻璃可靠性颠覆认知
+-  Fazıl Say'ın açıklamaları gündem olmuştu: Paylaşımları sosyal medyayı salladı!
+-  华为玄武钢化昆仑玻璃有多硬核？7级莫氏硬度仍无明显划痕
+-  ANITINA MAJKA PONIZILA MATORU I NJENE RODITELJE Nije birala reči, skandal u najavi: Jovana da ima para, ne bi njeni živeli kako žive
+-  В Татарстане после падения снега с крыши дома пострадал ребенок
