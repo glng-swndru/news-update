@@ -1,51 +1,11 @@
 # Latest News
--  Two railroad crossings are temporarily closed in Texas. Will there be a significant impact on trade?
--  Texas begins flying migrants from US-Mexico border to Chicago, with 1st plane carrying 120 people
--  ‘잘 있어, 나는 더 좋은 팀 간다’... 노팅엄에서 경질→크리스탈 팰리스 감독 예정
--  Phantom Wallet Integrates Bitcoin, Ordinals, and BRC-20 Tokens
--  How Colorado’s election laws made the state ripe for challenging Donald Trump’s candidacy
--  Kapal Israel diharam berlabuh di Malaysia
--  Empowering financial resilience: How Lia Holmgren is bridging gender gaps in the trading world
--  Patrick Radden Keefe y las caras del mal
--  Slow-moving Pacific storm threatens to bring California flooding and mudslides
--  Reps probe NNPCL JV deals, $60bn revenue loss
--  Global Supply Chains Under Threat Amid Houthi Attacks on Shipping in Red Sea
--  Chucky
--  Amputácia nohy na dvakrát: Korpulentná žena predsedu zo Slunce, seno... Bojovala s cukrovkou!
--  NEUVERITEĽNÝ zjav: VIDEO Teľa cupitalo po ceste v reflexnej veste! Okolnosti prípadu vás dorazia
--  सर्दियों में वजन कम करना है तो रोजाना खाली पेट पिएं ये पेय पदार्थ
--  The FTC proposes new rules to curb the monetization of children’s data
--  Weißer Ring: Frauen brauchen Schutz vor Gewalt ihrer Partner
--  Writer’s Strike Contributes to Projected Decline in 2024 Global Box Office Sales: Analyst Firm
--  대입 수시 합격자 등록 마감… 그 결과는?
--  산림청 '도시숲법' 개정...과도한 가로수 가지치기 안돼
--  봉화군, 농촌활력분야 평가 우수상 수상!
--  진천군, 충북혁신도시 정주 여건 개선 박차
--  충주시, SY그룹·SY행복나눔재단, 연말 사랑의 나눔 실천
--  El argumentario
--  Thousands take to the streets to protest austerity measures of Argentina's new president
--  Ice-T "wouldn't care" if his 'Law and Order' character was played by AI
--  As Disney Streaming Streamlining Continues, Star+ To Shutter Next Year In Latin America As Content Shifts Onto Disney+
--  Masina/Centre Collège des Ambassadeurs : la police chasse témoins et électeurs à coup de gaz lacrymogène et tirs de sommation
--  Mbappé celebró su 25 cumpleaños con un doblete
--  Νέα φέσια 567 εκατ. ευρώ στην Εφορία τον Οκτώβριο
--  Πληρωμή συντάξεων, επιδομάτων: Τι καταβάλλεται έως την Παρασκευή
--  Rivers Assembly withdraws Fubara impeachment notice
--  व्यायाम के लाभ: हल्के व्यायाम से बुजुर्गों को होता है लाभ
--  Minneapolis in midst of surge in late-year homicides; 5 in recent dayslong span
--  By: yenibosna eskort
--  Μπάκιτς: «Κρίμα που θα παίξουμε χωρίς κόσμο» (vid)
--  Bayern Munich battle past Wolfsburg 2-1 with Kane on target again
--  De Kennedy a Otegi
--  Inmigrantes cubanos se enfrentarán en 2024 a nuevas reglas de migración y asilo de la Unión Europea
--  السماح باستيراد 10 آلاف طن من أحطاب التدفئة الجافة
--  We take a look at the Silicon Valley bosses who’ve been properly plucked in 2023
--  Push for jail time for Kristina Keneally’s police officer son over false evidence
--  Push for jail time for Kristina Keneally’s police officer son over false evidence
--  Weißer Ring: Frauen brauchen Schutz vor Gewalt ihrer Partner
--  [국제유가] 홍해 지정학적 불안에 3거래일째 상승…WTI 0.38%↑
--  은행권, '2조원+α' 상생안 마련…취약 차주당 최대 300만원 이자 캐시백
--  When Jack Johnson won the world title in Sydney
--  When Jack Johnson won the world title in Sydney
--  La Superliga, ante el fallo clave: todas las preguntas y respuestas de cara a la sentencia del Tribunal Europeo
--  Электрогрузовик на одних солнечных батареях поднялся на самый высокий вулкан
+-  Борислава Христова поведе Сепси към втора победа в Евролигата
+-  Israel says it has uncovered major Hamas command center
+-  Bombons de Natal saudáveis? Aqui tem a receita
+-  "제나벨" 12월 21일 캐시워크 퀴즈 정답 공개
+-  СМИ: найденный "жучок" накалит противостояние между Зеленским и Залужным
+-  Liverpool murjoi West Hamin liigacupin puolivälierissä
+-  التعليم تطالب الموارد البشرية بعرض ما يتعلق بالرخصة المهنية على "لجنة البت"
+-  0:2-Niederlage bei Union: Zukunft von Steffen Baumgart ist offen
+-  L’Inter esce dalla Coppa Italia, ma c’è ansia per Lautaro: ecco le ultime
+-  "Bateu, levou", diz Quaquá após reagir a agressão
