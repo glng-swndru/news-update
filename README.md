@@ -1,51 +1,51 @@
 # Latest News
--  네오위즈, 연말 맞이 할인 이벤트 진행… ‘P의거짓’‧‘산나비’ 해볼까
--  '마이데몬' 넷플릭스 전세계 TV 2위, '솔로지옥' 4위
--  WD, 미디어·전문가 겨냥 샌디스크 신규 저장장치 국내 출시
--  고양시, 노후계획도시 재건축 준비에 속도
--  고창군, 내년 아이돌봄서비스 본인부담금 군비 확대 지원
--  파주시, 신축 운정보건소 개소…시민 건강 지킨다
--  청송군, 2023년 경상북도 산림행정 종합평가 “3년 연속 우수기관”선정
--  NO load shedding implemented on WEDNESDAY
--  努比亚Z60 Ultra体验评测：更独特的设计 影像玩法更丰富
--  사단법인 제주복지UP연구소 창립
--  김영지·이주호, 2023 서귀포시체육회 대상 수상
--  湯怡兩歲半囡囡麥QQ變家務擔當 全副武裝拖地網民留意表情變化
--  한국 방산수출 최근 2년 평균 150억 달러 달성
--  कहीं नूडल्स से तो कहीं फिशिंग, इन देशों का न्यू ईयर सेलिब्रेशन है बेहद अनोखा
--  Reasoning Quiz For Bank Mains Exam 2023-20th December
--  महिला ने अपनी बेस्ट फ्रेंड को लिया गोद, बन गई ‘मां’, वजह है बेहद खास
--  [인사] 한국전력
--  Mantap! Harga Emas Antam Rabu Pagi Naik Lagi
--  Michael Saylor: Spot Bitcoin ETF Nod To Create Demand Shock For BTC
--  Texas Lt. Guv Threatens to Take Biden Off State’s Ballot After Colorado Ruling
--  Dólar hoy: a cuánto opera este miércoles 20 de diciembre
--  서울교육청, 학생이 상담 예약할 수 있는 통합 플랫폼 개발·시범운영
--  Karin Widerstedt grundade Hjärta till hjärta med maken
--  Río Negro pagará el aguinaldo en dos cuotas
--  Reclamo de Mendoza por retenciones al vino
--  서울교육청, 학교현장실습학기제 시범운영 결과 발표
--  Provincia no adherirá al protocolo antipiquetes de Patricia Bullrich
--  21 mujeres emprendedoras reciben reconocimiento “Peruanas que brillan”
--  Frankfurter Allgemeine Zeitung -artikkeli | Psykoterapeutti neuvoo, miten lapsesta kasvatetaan itseensä luottava, jämäkkä ja empaattinen
--  Vi kan fortsatt glädjas åt Lars Kvissbergs gärningar
--  Nyckeln bakom storformen: ”Passar mitt spel”
--  Rolf Holmgren var vänlig och kunnig
--  Kicillof pide $10.000 millones de auxilio por el temporal
--  중소기업계 선정 2024년 사자성어 '운외창천'
--  Euro hoy y Euro blue hoy: a cuánto opera este miércoles 20 de diciembre
--  Sejarah Baru, Miss France 2024 Eve Gilles Bergaya Rambut Pendek: Kita Semua Unik
--  Presidentinvaalikone: Enemmistö ehdokkaista olisi valmis sallimaan eutanasian
--  Diduga Curi Barang di Bagasi Senilai Rp34 Miliar, Petugas Bandara di Spanyol Ditahan
--  Ini 11 Karakter dalam Drama Korea Terbaru Death's Game
--  Malestar en Tucumán y el NOA por la medida de Nación que grava con 15% las exportaciones citrícolas
--  How do we get the North West to net zero? Liverpool report has some answers - but lots of questions too
--  Poliisiksi on kova hinku – ensi vuoden kurssit täyteen ensi kerran sitten vuoden 2018
--  지난해 육아휴직 14% 늘어 20만명…대기업 쏠림현상 여전
--  Nyckeln bakom storformen: ”Passar mitt spel”
--  Среда, 20 декабря: днем +3, пасмурно
--  Dólar blue hoy: a cuánto cotiza este miércoles 20 de diciembre
--  Alexis Mac Allister injury timeline becomes clear as Darwin Nunez Liverpool plan confirmed
--  경찰, 국고보조금 부정수급 1620명 검거...공무원 유착 사례도 적발
--  В субботу состоится очередная бесплатная экскурсия по Даугавпилсу
--  Воронежским школьникам запретили мобильники на уроках
+-  '미스트롯3' 장민호 "정동원 능가 어린 참가자? 마스터 들었다 놨다하더라"
+-  '114억 2638만원' 샐러리캡 초과한 팀은 없었다…'111억 8175만원' 두산 1위, '-49억' 키움 10위 [공식발표]
+-  아찔한 '천국도'는 어디?…'메기' 조민지♥이진석, 은밀 플러팅→수영장 데이트 [마데핫리뷰]
+-  구혜선, 재계약했다…아이오케이 "폭넓은 활동 이어갈 수 있도록 적극 지원"
+-  وزير الدفاع ونظيره الفرنسي يشهدان توقيع مشروع خطة تنفيذية للتعاون في الصناعات العسكرية
+-  Jusuf Kalla Blak-blakan Mengapa Akhrinya Mendukung Anies
+-  Greta Gerwig & Noah Baumbach Marry at City Hall After 12 Years Together!
+-  AC/DC se apresentará no Brasil em 2024, afirma jornalista
+-  Takiyuddin is the one who should apologise for making unconstitutional remarks, says Kit Siang
+-  צעיר בן 16 נרצח בקטטה בבאקה אל-גרבייה
+-  Laznas DPF dan Mandiri Amal Insani Salurkan Beasiswa untuk 100 Guru
+-  Chinese rescuers brave cold to find quake survivors
+-  India, EU Discuss Avenues For Strategic Security, Defence Cooperation
+-  „Egyáltalán nincs rendben, hogy egy gyerek hibája ráég a szülőre, mint egy levakarhatatlan, makacsul ott maradó bélyeg”
+-  檢, ‘대통령실 앞 흉기난동’ 70대 남성에 징역 7년 구형
+-  기록적 한파에 커진 ‘건강 적신호’…겨울나기 요령 3
+-  News24 Business | Wandile Sihlobo | The good news about SA's food price outlook
+-  Life | REVIEW | Omid Scobie calls the monarchy in controversial Endgame
+-  Suomi hurjassa nousussa koripallossa
+-  ตะลึง ‘พิซซ่า ฮัท’ เปิดตัว พิซซ่าความยาว 1.2 เมตร สำหรับช่วงเทศกาลปีใหม่
+-  ఆ జిల్లా గెస్ట్‌ హౌస్‌లో వాస్తు దోషం..
+-  Aman Bertransaksi di Musim Libur, Simak Tips Ini dari BI
+-  În Grecia, prețul biletelor la Acropola din Atena în 2025 va crește cu 50%
+-  Percy Jackson’s Producers Share If Season 2 Is In The Works Yet, And Why They Aren’t Worried About The Series’ Stars Already Growing Up
+-  Eight arrested in over deadly Sydney shooting
+-  Eight arrested in over deadly Sydney shooting
+-  字幕：ミス・フランスの「新しさ」に誇り ショートヘア提案の美容師
+-  Mazeppa Bay’s iconic bridge closed due to safety fears
+-  動画：東北文化がテーマの観光列車、中国黒竜江省を快走
+-  La primera dama de Brasil demandará a la red social X por el pirateo de su cuenta
+-  Daftar Harga Pohon Natal Asli dan Imitasi Terbaru 2023
+-  Cerrojazo de oro al 2023 con el Novato del Año
+-  뇌물수수 혐의 김주수 의성군수 2심도 무죄
+-  인사말하는 신영균 명예회장
+-  全球農業機械龍頭 Kubota，入股電動車電池新創行競科技
+-  "ชัยธวัช" รับ สนองพระบรมราชโองการโปรดเกล้าฯ นั่งผู้นำฝ่ายค้าน
+-  인사말하는 신영균 국민의힘 상임고문단 명예회장
+-  인사말하는 윤재옥 당대표 권한대행
+-  인사하는 윤재옥 권한대행
+-  Elbújt a világ elől Bródy János: megtörte a zenészt, hogy a fia börtönbe került
+-  Punjab News: AAP को नए वादे करने के बजाय पहले किए गए वादे पूरे करने चाहिए: बाजवा
+-  Disaster assistance to flow for flood-hit Queenslanders
+-  Gigante japonés de aceites para autos despide a su presidente por abrazar a una mujer en estado de embriaguez
+-  टेंशन बढ़ा रहा कोरोना, 9 दिन में दोगुने हुए मामले, आज केंद्र सरकार की बड़ी बैठक
+-  ট্রেনে কারা আগুন দিয়েছে জানাল রেলমন্ত্রী
+-  ООН гласува единодушно за изтегляне на мироопазващите сили от Конго до края на годината
+-  $15.6m payout from Fiji Ports Corp and Fiji Ports Terminal
+-  Prediksi Liverpool vs West Ham United di Carabao Cup: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
+-  ΠΑΣ Γιάννινα: Προπόνηση εξοικείωσης με τους άδειους «Ζωσιμάδες»
+-  Mehrweg-Angebotspflicht? - Ruf nach Nachbesserungen
