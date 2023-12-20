@@ -1,51 +1,11 @@
 # Latest News
--  Cerrarán comunitarios y alberca del DIF Municipal en periodo vacacional
--  Intentó quemar casa y huir en Villas del Real
--  Yo me quedo como regidor en 2024: Félix Martínez
--  Nombran a Napoleón Raya juez en proceso de Duarte
--  Futuro resuelto para Diego Herazo
--  Newborn girl found abandoned in temple in Bargarh
--  Ülkeler sıraya girdi: Türklere 492 milyar dolarlık proje
--  Suudi Arabistan gol krallığı yarışında kim zirvede: Cristiano Ronaldo kaç gol attı?
--  İmzalar atıldı: Türk Dünyasının iş birliği kalkınma alanında da güçleniyor
--  Profilgruppens vd har köpt aktier för 2,4 miljoner
--  Galatasaray-Fatih Karagümrük (CANLI)
--  Dünyanın ilk borsasına ev sahipliği yapan yer: Borsa İstanbul'un 150'nci yıl gongu Cumhurbaşkanı Erdoğan'ın katılımıyla çalacak
--  TBMM Başkanı Kurtulmuş'tan Milli Görüş'ün önemli isimlerinden Ali Yılmaz Örnek için başsağlığı mesajı
--  Fenerbahçeli Fred hangi maçlarda forma giyemeyecek?
--  Fenerbahçe Batshuayi'nin golleriyle deplasmanda Kayserispor'u 4-3 mağlup etti |ÖZET
--  İsmail Kartal: Bu kırmızı kartlar nasıl oldu?
--  Fred Süper Kupa'da forma giyebilir
--  النصافي: نقابة «الأوقاف» تهنئ سمو الأمير بتولي مسند الإمارة
--  Tiesitkö tämän? Metsästä kotiin kannetun joulukuusen mukana voi saada huiman määrän neulasia
--  "Je suis musulman, je vais refaire un 14 juillet": huit mois ferme pour un homme au lourd passif psychiatrique
--  HJK-kapteeni Tenho siirtyy Ruotsiin
--  HJK-kapteeni Tenho siirtyy Ruotsiin
--  Fed-chefen: Borde sänka räntorna – men inte direkt
--  Five players sent off, karate kick and riot police needed to break up brawl at Turkish football match
--  Otkriveno da suprug švedske prijestolonasljednice često odlazi u bolnice, ali ne radi sebe. Razlog je iznenadio sve
--  Israel captures Hamas’s ‘Elite Quarter’ in Gaza including terror-tunnels under house of ‘Gaza’s Bin Laden’s secretary’
--  Hombres G actuarán en Sanxenxo el 3 de agosto en el Festival Costa Feira 2024
--  How much daylight you'll have on the shortest day of 2023
--  Mettes forfærdelige hus rives ned - og nu har hun et overraskende tilbud
--  Una semana después del incendio de Zalamea no hay rastro de la hermana desaparecida
--  Mettes forfærdelige hus rives ned - og nu har hun et overraskende tilbud
--  No regrets over missed IPLs as Starc counts winnings
--  Zilja bie 90 sekonda më herët, studentët në Korenë e Jugut padisin qeverinë e Seulit
--  Minister welcomes signs of worker peace at state hospitals
--  Aceites Abril se alía con panaderías y confiterías gallegas en defensa del roscón de Reyes
--  Asgari ücrete zam gelmeden fiyatlar arttı! Etiketler değişiyor...
--  Kupa Voley'de çeyrek final eşleşmeleri belli oldu
--  أزمة سد النهضة تتصاعد ومصر تؤكد حقها في الدفاع عن أمنها المائي والقومي
--  ISL 2023-24: Mumbai City FC beats Mohun Bagan Super Giant 2-1 in a match riddled with red cards
--  Detroit: Become Human ha venduto 9 milioni di copie, annuncia Quantic Dream
--  Savoie. Une première "Fête des Alpes" sera organisée en juin 2024 avec la Vallée d'Aoste
--  البزري عرض مع رئيس بلدية صيدا مشكلة جمع النفايات في المدينة
--  పూల వ్యాపారులపై ప్రతాపం
--  Winnebago faller på rapport – lägre resultat än väntat
--  సొంత పార్టీ వారే ఓడించారు
--  Ars, Sala Pio La Torre: consegnata targa in memoria del giornalista Michele Russotto
--  Kotimaista ihmissuhdedraamaa uudella kulmalla – Selma Vilhusen Neljä pientä aikuista tarraa monisuhteisuuteen herkällä otteella
--  外銷訂單終止14黑！金額達506億美元年增1%
--  2024元旦第一道曙光景點15選！日出時間、交通資訊全攻略
--  Australia lucha contra los incendios forestales en plena ola de calor a 46 grados
+-  Netanyahu ne pristaje na prekid vatre u Gazi
+-  State budget passed with comfortable majority
+-  الأمن ينظم حملة تبرع بالدم لصالح الخدمات الطبية الملكية
+-  قصف صاروخي إسرائيلي باتجاه الأراضي السورية
+-  وفاة بانفجار أسطوانة غاز بمخبز في جرش
+-  Sister Wives’ Christine Brown Gives Husband David a Brief Lap Dance at Their Wedding Reception
+-  Regresan desplazados a sus comunidades en Guadalupe y Calvo
+-  Aprueban descuento del 50% al DAP en 2024
+-  Esta es la grave sanción que podrías recibir si no regularizas tu auto chocolate durante diciembre
+-  Ozigbo Commitment To Youth Devt As He Sponsors NYSC Carol Night In Anambra
