@@ -1,51 +1,11 @@
 # Latest News
--  وزيرة التخطيط: برنامج الطروحات يؤكد قدرة القطاع المصري على جذب المزيد من الاستثمارات
--  الداخلية تكشف كواليس فيديو خطف طفلتين من الأسانسير
--  "الموت الدماغي".. 7 علامات تكشف الإصابة - احذرها
--  صفقات بـ5.6 مليار دولار.. مدبولي: 4 قطاعات لها أولوية في برنامج الطروحات
--  ماجد شوقي: توفير الرعاية للمستثمر المحلي مفتاح جذب نظيره الأجنبي
--  "القناة للتوكيلات الملاحية": القطاع البحري جذب الاستثمارات في آخر 5 سنوات
--  ساويرس: 200 مليون دولار استثمارات في 3 فنادق بالساحل الشمالي والأهرامات
--  البطريق: الاستثمارات الآسيوية ارتفعت الفترة الماضية من أجل التصنيع بمصر
--  אחרי 13 שנה: הגופיה של לוחם סיירת נח"ל אותרה בארון בגדים בלב בעזה
--  מנהיג החות'ים: אם ארה"ב תתקוף את תימן - נפגע בספינות שלה
--  חוגי חזר ל-11 של סכנין, פוליאקוב ונוי בהרכב בהפועל חיפה
--  유인영, 섹시미+귀여움 넘나든 수영복 비주얼…섹시 글래머
--  Ψηφίστηκε στη Βουλή το πολυνομοσχέδιο του υπουργείου Οικονομικών - «Καλά μυαλά» ευχήθηκε στην κυβέρνηση η Ζωή Κωνσταντοπούλου
--  প্রাথমিক শিক্ষক নিয়োগের প্রথম ধাপের ফল প্রকাশ, উত্তীর্ণ ৯৩৩৭
--  Лиле Стефанова влезе во Републичкото обвинителство
--  NEMANJA RADONJIĆ POSLAO MOĆNU PORUKU Evo šta je poručio pred derbi
--  A27 tussen Everdingen en Lexmond afgesloten na ongeval
--  Коледен базар ще събира средства за социално слаби семейства в Благоевград
--  Vučić: Građani RS - izvinite zbog strašne kampanje koja se protiv vas vodi
--  Абу Даби приема за първи път Световното по джудо
--  Futsal: Sete anos depois, seleção nacional volta a perder um jogo oficial
--  সাধারণ জ্ঞান ও বুদ্ধিমত্তা প্রশ্নোত্তর - (৭৭) | ক্যাডেট কলেজে ৭ম শ্রেণিতে ভর্তি প্রস্তুতি ২০২৪
--  Lukaku verso l’Arabia: cosa può fare la Roma
--  KAČAVENDI SE SPREMA TOTALNI HAOS! Očekuje nas veliki povratak diskvalifikovanog učesnika, otkriveno i vreme njegovog ulaska
--  Izboden nekada najplaćeniji fudbaler svijeta, sumnja se na njegovog brata
--  Congreso contratará más funcionarios y Beto Ovelar dice que es “normal” que contraten a su hijo
--  Æfingahópar U16 kvenna og U15 karla valdir
--  Kal Ka Makar Rashifal: अपने काम को मेहनत से करते रहें, कुछ संघर्ष के बाद सफलता मिल सकती है, पढ़ें राशिफल
--  Schmidt razgovarao sa predstavnicama majki enklava Srebrenica i Žepa
--  Muškarac u Indiji odsjekao supruzi glavu jer mu je predugo kuhala čaj
--  PR guineense avisa PM que luta contra corrupção é para levar até ao fim
--  MultiMax Store patrocinante oficial de la 71° edición del Miss Venezuela sorprendió con la entrega de un carro “0” kilómetros
--  Trient: Mann wegen Missbrauch von 3 Mädchen verurteilt
--  NJ Has The 2nd Highest Number Of Credit Cards In US
--  Immigration : pour Gilles Le Gendre, « la pire des choses serait de nier la crise »
--  Hoffentlich ist Ihres nicht dabei: Die Hitliste der unsichersten Passwörter
--  Brake failure: Trailer kills motorcyclist in Anambra
--  Décarbonés, silencieux, les dirigeables bientôt de retour dans le ciel
--  Flightless Bird: E-Scooter Company Bird Declares Bankruptcy
--  Imperial Kitchen & Dimsum Resmi Terima Sertifikasi Halal dari MUI
--  EU Court Rejects Abramovich’s Appeal to Lift Sanctions
--  Ruzie op de begraafplaats weer gesust: buitenaula mag er komen, maar wel in stilte
--  Washington man accused of killing 4 by luring victims with promises of buried gold, authorities say
--  Eerst weggelachen, gekleineerd of ontslagen, nu terug in het centrum van de macht
--  Aqualia ve reconocido el impacto positivo de su financiación verde
--  3D atomic details of next-generation medium- and high-entropy alloys revealed for first time
--  Using AI, researchers identify a new class of antibiotic candidates that can kill a drug-resistant bacterium
--  Declines in insect numbers are largely driven by losses of more abundant species, find researchers
--  محفوظ عابدين: نكسة ود مدني.. درس مستفاد
--  Colorado Springs Independent, an alternative weekly newspaper, indefinitely ceases publication
+-  Maharashtra Assembly winter session concludes, next session from Feb 26
+-  Equinox crowned world’s greatest horse as he adds another award to the trophy cabinet
+-  BVB in der Krise: Wie es bei Borussia Dortmund nun weitergeht
+-  Uber i Bolt będą płaciły wyższe stawki kierowcom we Francji. Na horyzoncie przepisy UE
+-  S&P Global Ratings planuje w '24 dwa przeglądy ratingu Polski
+-  BE arrin marrëveshje “historike” për reformimin e ligjeve të azilit
+-  Why Do People Keep Calling Me “Tomás”?
+-  Nienburg: Diese Kneipen haben an Heiligabend geöffnet
+-  Ermittlungen nach Vorfall mit Chrupalla eingestellt
+-  EpiVax Licenses ISPRI Toolkit to Eisai for Preclinical in silico Immunogenicity Screening
