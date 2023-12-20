@@ -1,11 +1,51 @@
 # Latest News
--  Legislative council passes bill to waive duty on electricity charges for Metro
--  Maharashtra govt announces Rs 5/litre subsidy for milk producers
--  INDIA alliance candidate against NDA on every seat in 2024 Lok Sabha polls: Cong
--  Türk bayraklı gemileri hakkında güvenlik kararı
--  Beyonce milyarder olma yolunda
--  Listen to Shygirl’s ravey new single with Kingdom, ‘f@k€’
--  רעידת אדמה: בקרוב יחשפו שמות 170 של מקורבים לג'פרי אפשטיין
--  BYD דולפין החשמלית: מ-137 אלף שקל
--  Enugu: Police Rescue Victims Hours After Abduction, Recover Weapons
--  A Pioneer In Sustainability
+-  Chandrayaan-3 Success: ISRO Awarded Prestigious Leif Erikson Lunar Prize
+-  Microsoft adds Intel but skips new AMD CPUs on Windows 11 official supported processor list
+-  Boyacá Chicó y Millonarios: Acuerdo por Delvin Alfonzo
+-  Top Dutch employers to stop using disposable cups at workplaces from January 2024
+-  Fans angry Ana de Armas movie scrapped because of Maestro
+-  La fuerte decisión que Chiqui Tapia tomará en la AFA tras 81 años
+-  محكمة أمريكية تستبعد دونالد ترامب من انتخابات 2024
+-  وصفة مذهلة للتخلص من الزوائد الجلدية خلال أيام
+-  متحور كورونا الجديد JN.1 يضرب أمريكا.. و"الصحة العالمية" تحذر
+-  تراند اليوم : تعرف على أسعار الدولار اليوم 20 ديسمبر
+-  تراند اليوم : أسعار الذهب اليوم الأربعاء 20 ديسمبر 2023
+-  Dattatreya Jayanti 2023: दत्तात्रेय जयंती पर किस देवता की होती है पूजा? क्या है इसका महत्व
+-  UŽIVO: Odgođen glavni pretres na suđenju Dodiku, pratite obraćanja
+-  تراند اليوم : فوائد عصير الجزر الستة هذه يمكن أن تجعل شتاءك أفضل وأكثر إشراقا
+-  تراند اليوم : وظائف من صحف عمان اليوم لجميع التخصصات وظائف في سلطنة عمان
+-  تراند اليوم : أسعار الحديد والأسمنت اليوم
+-  Lifestyle expert offers tips on how to have a happy, healthy holiday
+-  New York Elected Officials Raise their Voice in Support of WellNow Urgent Care over Excellus BlueCross BlueShield in Rate Dispute
+-  ADP to Announce Second Quarter Fiscal 2024 Financial Results on January 31, 2024
+-  DispatchHealth Unveils Case Study on its 'Hospital-at-Home' Model and Its Influence on Caregivers' Lives
+-  Bain & Company Named as a "Leader" in Digital Transformation
+-  SciTech Development Announces First Patient Dosed in Phase 1 Clinical Trial of ST-001
+-  Polacy na potęgę zastrzegają swoje numery PESEL. Dlaczego?
+-  Fans have unearthed the Ted Lasso of the NBA after hilarious halftime interviews go viral
+-  e-Bike Company eBliss Global Taps Into the Automotive Market by Appointing Well-Known Industry Veteran as President
+-  Don't Wind Up in the Holiday Doghouse: Give The Last Minute Gift of In-Home Massage Through Zeel
+-  Windward Launches Route Deviation Alerts To Improve Supply Chain Management Amidst Red Sea Crisis
+-  GORE ANNOUNCES FIRST PATIENT IMPLANT IN THE ARISE II PIVOTAL STUDY OF THE GORE® ASCENDING STENT GRAFT
+-  Sudije "MasterChefa" otkrile detalje sa snimanja VIDEO
+-  Deutschland im Viren-Winter: Wie schlimm wird er noch?
+-  PLANET FITNESS, INC. ANNOUNCES UPCOMING CONFERENCE PARTICIPATION
+-  Akebia Therapeutics to Present at the 42nd Annual J.P. Morgan Healthcare Conference
+-  COVID-19 preparedness: Drill across govt. hospitals in Mysuru today
+-  Neymar: Brasilien-Arzt rechnet nicht mit Comeback zur Copa América 2024
+-  مجلس الحسابات: مسؤولان كبيران و رؤساء دواوين وزراء رفضوا التصريح بالممتلكات
+-  PRR. Costa recomenda ao Governo que execute e não tente renegociar com UE
+-  Pronađeno naoružanje i municija u blizini granice sa Hrvatskom
+-  Forto: Cilj je što veći broj prevezenih putnika i što veći broj destinacija s naših aerodroma
+-  HIFK:n hyvästellyt pelaaja siirtyy Veikkausliigaan - ”Minuun vetoavaa jalkapallokulttuuria”
+-  Sieltä se tuli: Kiekko-Espoolle on myönnetty ehdollinen Liiga-lisenssi - TuTolle takaisku
+-  Loi immigration: quel vote pour les députés et les sénateurs des Alpes du Sud?
+-  Black Child, 2, Subjected to Mock Arrest in Daycare’s Rosa Parks Lesson
+-  هل التنهدات المتكرّرة لها علاقة بمشكلات القلب؟ .. دكتور سعودي يجيب ويحسم الجدل!
+-  شاهد: دكتور سعودي يكشف عن زيت يعمل على إنبات الشعر في وقت قصير
+-  وداعاً لضعف البصر.. فاكهة شهيرة يهملها الكثيرون تعمل على تعزيز الرؤية وتقوي النظر
+-  ظهور هذه العلامة أثناء الاستحمام قد تكون جرس إنذار على إصابتك بسرطان الدم
+-  من هي الفئة الأكثر عرضة للإصابة بجرثومة المعدة وما أعراضها؟
+-  Вердер - Лейпциг 1:1: огляд матчу Бундесліги ВІДЕО
+-  Todesursache bekannt: Daran starb TV-Star Gunther Emmerlich
+-  Ahmet Çakar, Halil Umut Meler'e ''bu nasıl iş?'' dedi: Sahip çıktık ama yalan söylemişsin
