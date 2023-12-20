@@ -1,11 +1,11 @@
 # Latest News
--  Bad crash on the A20, Schiphol train issues cause messy rush hour; Holiday traffic expected
--  When little Salman Khan threw stone at brother Sohail Khan while watching Tarzan
--  Maharashtra: Man mows down three with van over enmity in Amravati
--  Müstehcen içerikli yayın yapan kadına 2 yıl hapis istemi
--  Tekirdağ merkezli 3 ilde "rüşvet" operasyonu
--  Kamera kayıtları ortaya çıktı! İşte Emre Belözoğlu ve Halil Umut Meler'in görüntüleri
--  Ukrayna, 18 Rus İHA'sını imha etti
--  Müzik platformları Filistin'i destekleyen şarkısını kısıtladı
--  Fahiş fiyat uygulamasına geçit yok! Ticaret Bakanı Bolat: Kendi ayaklarına kurşun sıkıyorlar
--  عاجل.. جريمة نكراء.. تنفيذ حُكم الشرع في مقيم أنهى حياة عدة أشخاص بهذه الطريقة
+-  Bir aile dehşeti yaşadı! Tren, otomobili 30 metre sürükledi
+-  MEVLANA VE MEVLANACILIK
+-  Konya'da sobadan zehirlenen 5 tarım işçisi hastaneye kaldırıldı
+-  KAI, 수리온 성능개량형 사업 수주
+-  회원2구역 재개발사업 시공사에 DL 건설 낙점
+-  창원주민대회 주택·교통·경제분야 '10대 요구'에 시 답변은
+-  SiC 섬유발열체 '그로닉'으로 신 생태계 구축
+-  62회 경남도 문화상 수상자 6명 발표
+-  두산에너빌리티㈜ 정연인 대표이사, 부회장 승진
+-  경남 사회공헌자 10명, 경남도지사 표창
