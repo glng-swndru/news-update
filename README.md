@@ -1,11 +1,11 @@
 # Latest News
--  רפאלוב עם בעיטה חופשית מושלמת, לברקוזן רוקדת: צפו בשערי השבוע
--  נפל או הותקף? שחקן העבר אסקיאל לאבצי אושפז עם פצע דקירה ושבר
--  News24 | Delays in DRC polls not 'uncommon' - SADC observers
--  Exguvernéra Národnej banky Ilmarsa Rimševičsa odsúdili za korupciu
--  Najkrajšia Slovenka odletela za oddychom: Dovolenka ako za TREST… Ku*va, je TOTO normálne?!
--  Opinion | Métiers en tension : mieux prendre en compte les spécificités locales
--  Life | George Clooney says Matthew Perry's Friends fame didn't bring him happiness or peace
--  Corinthians muda discurso e encaminha venda de Moscardo ao PSG: 'Que ele seja feliz'
--  Mrekulli në Gjermani, treni kaloi sipër burrit të dehur – nuk pësoi as edhe lëndimin më të vogël
--  Analysts say Ukraine&#039;s forces are pivoting to defense after Russia held off their counteroffensive
+-  Речи о введении обязательного масочного режима в Петербурге не идет
+-  Россия и Марокко планируют наращивать сотрудничество в ТЭК, заявил Лавров
+-  Presentes Raúl Castro y Díaz-Canel en sesiones del parlamento cubano
+-  Число раненных при обстреле Горловки выросло до трех
+-  Виктор Орбан отново е недоволен! Будапеща скочи срещу пакта на ЕС за миграцията
+-  Stephan Ordóñez: El hondureño que triunfa como fotógrafo capturando a celebridades internacionales
+-  „The Iron Claw“ im Kino: Der Fluch im Wrestling-Ring
+-  방통위 제동 건 법원 “2인 체제, 입법 목적 저해”
+-  Раскрыты детали обмена кума Путина Медведчука на "азовцев"
+-  트레킹 리스트에 오른 'DMZ 평화의 길'
