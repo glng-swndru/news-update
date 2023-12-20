@@ -1,51 +1,51 @@
 # Latest News
--  نصيحة من "حزب الله" لهذا الطرف!
--  मंगल उदय: जनवरी 2024 में उदय होगा मंगल, 5 राशियों को मिलेगा अचानक धन, करियर में मिलेगा बेहतरीन मौका
--  Άραβας σχολιαστής περιέγραψε τραγουδώντας το πέναλτι του Ονάνα της Έβερτον
--  Plenković s Habijanom dolazi u Sabor: Pljuštat će pitanja zastupnika
--  Κωνσταντέλιας: «Θα κάνει κι άλλη κίνηση η Γαλατασαράι», σύμφωνα με τους Τούρκους
--  Έκρηξη ηφαιστείου στην Ισλανδία: Εικόνες «αποκάλυψης» με φλόγες και λάβα
--  Miraculous Temple: मंदिर में मंत्रों का जाप करने पर यह शिवलिंग 360 डिग्री घूम जाता है, इस शिवलिंग की स्थापना स्वयं श्री राम ने की
--  "على طريق القدس"... شهيدان جديدان لـ حزب الله
--  협동조합 주인, 한국서부발전(주)과 함께하는 Project. 상생 사회적관광 활성화 사업 성료
--  딥센트, 스마트 혁신가전으로 산업통산부 장관상 수상
--  인도네시아 조폐공사, 디지털 보안 기술 상호 협력 위해 센스톤 방문
--  아로씽킹, HBLab과 MOU 체결...국내외 에듀테크 교육 신시장 개척 나서
--  한국산업지능화협회, 제 2회 중견 DX 챌린지데이 개최
--  피엠인터내셔널 독일 '2023 리더십 컨벤션' 행사 성료
--  딥엑스, 2024 CES에서 고성능 AI 서버용 ‘DX-H1’ 공개
--  올윈에듀, 중소벤처기업부 주관 ‘중소기업 혁신바우처 지원사업’ 수행기관 선정
--  (주)삼웅테크, 日 SA Inc.社와 일본 에스테틱 시장 진출 MOU 체결
--  IT기반 퀵서비스 운영 기업 (주)그린플래닛, 벤처기업인증 획득
--  3D 프린팅 기업 폼랩, 순수 실리콘 'SIlicone 40A' 레진 및 알루미나 ‘Alumina 4N’ 레진 출시
--  본코스메틱, 제60회 무역의 날 '700만불 수출의 탑' 수상
--  한국해비타트, LG유플러스와 함께 아동 그룹홈과 화재 피해주택에 주거환경개선
--  الأردن يؤكد ضرورة وقف العدوان على غزة
--  متحرش جنسي.. مرشح لخوض الانتخابات الرئاسية في روسيا
--  طبيب منتخب البرازيل يؤكد غياب نيمار عن كوبا أمريكا 2024
--  이인화 "불능상태 빠진 남양주 지역정치 청산에 앞장 서겠다"
--  남양주소방서(서장 조창근) 김윤석 소방교, 경기도 베스트 친절 공무원에 선정
--  백현종 의원, ‘경기도의회 도시환경위원회 행정사무감사 우수위원상’ 수상
--  조안면 물의정원 일원, 환경부 공모 ‘생태계보전부담금 반환사업’에 선정
--  남양주시, '평내 체육문화센터 건립 사업' 12월 26일 착공
--  남양주시, 2023년 연말 청렴 캠페인 실시
--  백경현 구리시장, 소상공인연합회 ‘목민감사패’ 수상
--  구리시, ‘자원순환 교육센터’ 개소
--  지방시대 실현할 경기도지방시대위원회 ‘첫발’
--  오후석 행정2부지사, 별내선 내년 개통 준비 상황 점검
--  경기도, 기획부동산 의심거래 조사 추진. 불법행위자 273명 적발
--  Rádiók fogtak össze a daganatos beteg gyermekekért
--  Ausverkauf bei Bäcker Geck in Haibach: Zum Jahresende ist Schluss
--  Blackpink Release Trailer for Virtual Reality Concert With Meta
--  الدولار يُعاود ارتفاعه بعد استقرار: هل بدأ العمل بمنصة "بلومبرغ"؟
--  +++ Eilmeldung +++: Durchbruch in Verhandlungen: EU-Mitgliedsstaaten und EU-Parlament einigen sich auf Asylreform
--  +++ Eilmeldung +++: Durchbruch in Verhandlungen: EU-Mitgliedsstaaten und EU-Parlament einigen sich auf Asylreform
--  NASCAR Driver Chase Briscoe Brings Christmas Cheer for 700 Kids in Incredible Gesture
--  의정부시, 궁촌교‧동막교의 스마트한 변화, 교량하부 ICT 쉼터 구축
--  가평군, 내년부터 학교 수도 요금 톤당 110원 인하
--  청도군, 경북 시군 가축방역평가 우수상 수상
--  평택시, ‘임금님 만나러 가는 길’ 프로그램, 2년 연속 문화재청 우수사업으로 선정
--  포스코그룹, 정기 임원 인사 단행…김지용 미래기술연구원장 사장 승진
--  Top projekty, do ktorých sa zapájajú tisíce Slovákov: Toto im odkazuje Lidl!
--  Na Gérarda Depardieua sa to sype: Ďalšie obvinenie zo znásilnenia a... Už dostal prvé tresty!
--  [ŽT] „Vyksta ketvirtasis veiksmas.“ Galingas pareiškimas. Ką skelbia Prancūzija ir JK
+-  Mais de 10.700 pessoas viviam como sem-abrigo em 2022
+-  '선 넘은 패밀리' 안정환, "산타는 모두 뻥이야"…극 현실주의
+-  與 ‘친족 강간 변호’ 공지연 인재 ‘유지’키로…“이재명 조카 건과 달라”
+-  박상우 국토부 장관 후보자 “실거주 의무 폐지해야”
+-  친명계 이경 ‘보복운전’에 총선 출마 물거품
+-  눈길 속 절규…“길에서 생 마감한 아이들, ‘특별법 통과’ 마지막 기회”
+-  Nils Åman spräckte målnollan - efter nya kontraktet
+-  Euroleague: Αυτοκτονία Ολυμπιακού στην Μπολόνια
+-  제주-중앙 청년 만나 '청년정책 활성화 방안' 모색
+-  Liga kup Engleske: Čelsi i Fulam penalima do polufinala
+-  하늘길 따라 이어진 제주사랑… 대한항공 고향사랑 기부 동참
+-  Kako nas varaju: Ove vrste voća i povrća morate uvijek, ali baš uvijek, vagati prije kupovine
+-  Барселона, Ливърпул, Байерн, ПСЖ и Интер в телевизионния ефир днес
+-  Debakl Napolija u Kupu Italije
+-  Владислав Панев: По-добра алтернатива за управление в момента няма
+-  Hrvatska je bacila preko dva milijuna doza cjepiva protiv Covida; pogledajte brojke u EU
+-  Τζένιφερ Λόπεζ και Μπεν Άφλεκ: το χριστουγεννιάτικο πάρτι του λαμπερού ζευγαριού
+-  AMSCG: Oprezno zbog poledice
+-  JPMorgan verhoogt koersdoel Philips
+-  Kolorado teismas blokavo Trumpo dalyvavimą JAV prezidento rinkimuose
+-  Вологда не заплатит подрядчикам за некачественную уборку снега
+-  De grootste kerstboom van Goudriaan geplaatst bij de kerk
+-  Lokale omroepen in de Drechtsteden en Molenlanden starten samenwerking
+-  Emre Belözoğlu'ndan Halil Umut Meler'e jet cevap! "3 kez aradım"
+-  Taas uusi skandaali - seurapomo marssitti joukkueensa kentältä kesken ottelun Turkissa
+-  Başkan Erdoğan'dan Viktor Orban'a ikinci hediye
+-  Franse president Macron verdedigt zijn omstreden migratiewet op tv
+-  Frankreichs Präsident Macron verteidigt sein umstrittenes Migrationsgesetz im Fernsehen
+-  มติบอร์ดขึ้นค่าแรงตามเดิม 2-16 บ.ย้ำการเมืองอย่าแทรกแซง
+-  ارتفاع أسعار الأغذية في الأردن 0.8% الشهر الماضي
+-  الشيخ مشعل الأحمد يؤدي اليمين الدستورية أميراً للكويت
+-  عمان العربية تعقد ورشة عمل حول الأمن السيبراني في نقابة المهندسين / فرع جرش
+-  Гризман с исторически голове за Атлетико Мадрид - Труд
+-  Nappieras paliks „Crvena Zvezda“ ekipą
+-  В Финляндии зарегистрировали рекордное за 25 лет число банкротств компаний
+-  গাজায় সাময়িক যুদ্ধবিরতিতে রাজি ইসরায়েল, জানালেন প্রেসিডেন্ট
+-  Opet odložena sednica SB UN; Razlog američki veto
+-  EU verkündet Durchbruch in Verhandlungen zu Asylreform
+-  В Тверской области мужчина предстанет перед судом за убийство знакомого со второй попытки
+-  Westbridge to build $40m Cottesloe townhouses
+-  VEGOILS-Palm breidt stijgingen uit na beslissing van Brazilië om biodieselmix te verhogen
+-  VEGOILS-Palm legt nach Brasiliens Entscheidung zur Erhöhung des Biodieselanteils weiter zu
+-  Këshilla kundër fryrjes së barkut
+-  8 مشكلات جلدية يسببها النوم بالمكياج.. احذريها
+-  대구경찰청 마약사범 728명 검거…10대 사범, 작년 12명→올해 47명
+-  남진복 경북도의원, 울릉군예산 323억원 확보
+-  Сегашните промени в Конституцията са революционна промяна в съдебната власт, смята Панев
+-  FT: Индия обеспокоена деятельностью базирующихся за рубежом экстремистских группировок
+-  Przez cztery dekady belgijski Kościół odbierał noworodki niezamężnym kobietom i sprzedawał do "lepszych rodzin"
+-  Депутатите излизат в почивка от петък
