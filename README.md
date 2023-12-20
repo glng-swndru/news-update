@@ -1,11 +1,11 @@
 # Latest News
--  Heart disease warning sign of silent killer that can be noticed in your breath
--  İsrail'in soykırımında 4 bin 185 Fransız askeri: Hükümete inceleme talebinde bulunuldu
--  BM'de İsrail tepkisi! "Silinmez bir kara leke"
--  ABD açıkladı: 2025'te Ay'a gönderilecek astronotlardan biri başka ülkeden
--  Adriana de Moura screams at Larsa Pippen for ‘kissing the Kardashians’ ass’ during explosive ‘RHOM’ fight
--  الخارجية الأميركية: ملتزمون مع فرنسا وألمانيا وبريطانيا بإقامة دولة فلسطينية
--  مسؤول بالفيدرالي: الخطوة التالية ستكون خفض الفائدة
--  Orban a spus că admiterea Ucrainei în UE va îngenunchea economia europeană
--  BBL star Spencer Johnson opens up on whirlwind 12 months leading to stunning IPL auction price
--  The Qur'anic Explanation Of The Rules Of War
+-  Ceny ropy w górę. Napięcia na Morzu Czerwonym
+-  Cricket Australia extends partnership with MKTG Sports + Entertainment
+-  Fidelity Youth Account Review 2024
+-  The 6 best vibrators of 2023, according to sex experts and hours of testing
+-  Iglesia Santa Inés en Cumaná fue decretada basílica menor
+-  NewsNation Anchor Makes Heartbreaking On-Air Breast Cancer Announcement
+-  Çarpışan iki otomobil takla attı, yoldan geçen yaya ile 4 yolcu yaralandı
+-  Telescópio NEOWISE completa 10 anos e será aposentado em 2025
+-  Portugal vai contar em 2024 com maior número de sempre de árbitros internacionais
+-  Ο Καναδάς αγοράζει 11 στρατιωτικά drones έναντι 1,7 δισ. ευρώ
