@@ -1,11 +1,51 @@
 # Latest News
--  Oficial: Chivas anuncia a Fernando Gago como DT
--  Es María Selene Prieto la tercera consejera de Ichitaip
--  Colorado’s Trump Ballot Ruling Just Gave the U.S. Supreme Court a Shot at Redemption
--  Xi revealed China’s plans for Taiwan to Biden – NBC — RT World News
--  L'intégrale du Good Evening Business du mercredi 20 décembre
--  La respuesta de Martín Anselmi que enamoró a la afición de Cruz Azul
--  Le communiqué et les nominations en Conseil des Ministres de ce 20 décembre 2023
--  Brittany Mahomes Sends Message for ‘Rude’ People After Striking Up Friendship With Taylor Swift
--  Teens found guilty of 'senseless' killing of transgender teenager in UK
--  Şota Arveladze: Kaos varken gittim kaosta geldim
+-  Sergi Roberto alivia al Barça
+-  Şota Arveladze: "Son dakikalarda puan alabilirdik"
+-  Matt Shirvington laments the end of one very Australian Christmas tradition and calls its cancellation 'grinchy': 'I used to do this as a kid'
+-  “Christmas Pajama Day” en La Feria The Park
+-  Femke Bol dé grote ster op aangepast Sportgala: ‘Ik ben supertrots en vind het heel bijzonder’
+-  Cortizo convoca a sesiones extraordinarios para analizar el presupuesto
+-  Двум предприятиям из Тверской области частично компенсируют затраты на приобретение и установку оборудования
+-  ReGen talks roll into yet another year
+-  Analitičar o protestu opozicije: Ili će doći do kompromisa ili ulazimo u političku krizu
+-  Bodrum açıklarında 89 düzensiz göçmen yakalandı
+-  Symphony Floating Rate Senior Loan Fund Declares Special Year End Distributions
+-  Western Countries Plotting Against Establishment of Palestinian State - Lavrov
+-  Tesla Cybertruck Takes On The Ocean
+-  Brompton Flaherty & Crumrine Investment Grade Preferred ETF Declares Special Year End Distribution
+-  Ľady poľavili! Turecko je ochotné hlasovať o vstupe Švédska do NATO: Erdogan si kladie TIETO podmienky
+-  Vianočný ZÁZRAK: Len pred týždňom oznámila rakovinu a... Hviezda Teórie je VYLIEČENÁ!
+-  أعراض تشير إلى قرب احتشاء عضلة القلب
+-  بايدن يصف ترامب بالمتمرد
+-  ماكرون: محاربة الإرهاب لا تعني تدمير كل شيء بغزة
+-  ЦАХАЛ сообщает о захвате элитного квартала ХАМАС в Газе
+-  ガザ決議案の採決また延期
+-  Britanac pričao o Nikoli Tesli, iznio jezive činjenice: ‘Bio je opsjednut, borio se s tim’
+-  Prefeitura de Lucas sorteia prêmio de R$ 50 mil do Nota Luverdense
+-  Ўзбекистон Республикаси Олий Мажлиси Сенатининг қирқ саккизинчи ялпи мажлиси тўғрисида АХБОРОТ
+-  Янги Ўзбекистон мактаб остонасидан бошланади
+-  Замонавий тиббиёт пункти ишга тушди
+-  Илк маротаба мурaккаб жарроҳлик амалга оширилди
+-  Янги Маънавият ва маърифат маскани
+-  1000+ jobs gone as major labour hire firm enters receivership
+-  Илк бор Халқаро информатика олимпиадаси Ўзбекистонда ўтказилади (+видео)
+-  20-летний форвард «Бреста» оформил покер за тайм в матче Лиги 1 с «Лорьяном»
+-  Warner Bros. Discovery shares fall on report about Paramount merger talks
+-  ‘메시 최고의 파트너가 어쩌다가’... 알베스, 성폭행으로 9년 구형→24년에 재판 예정
+-  Man Bites Officer’s Forearm During Arrest At Gas Station, Police Said
+-  Fijian Drua at Sand Dunes
+-  DOI, Alice ‘Ali’
+-  Wall Street doet een stap terug
+-  «Отпугнёт международных инвесторов»: как развивается ситуация с заморозкой российских активов на Западе
+-  Ψαράς ισχυρίζεται ότι βρήκε συντρίμμια του αεροπλάνου που είχε εξαφανιστεί το 2014 (vid)
+-  Projet de loi immigration, fin de vie, affaire Gérard Depardieu... Ce qu'il faut retenir de l'interview d'Emmanuel Macron dans "C à vous"
+-  Авиакомпания «Россия» скоро получит необходимые разрешения для полетов в Пекин
+-  В конгрессе призвали ввести масштабные санкции против энергосектора России
+-  Франсуа Олланд: новый закон Франции о миграции — это поражение для Республики
+-  Policie popřela, že by znala totožnost klánovického vraha a tajila to
+-  The $2.15 ALDI Product Rated Better Than Expensive Stain Removers
+-  Barcellona vince a fatica, match winner è Sergi Roberto
+-  Supreme Court to hear arguments on blocking EPA cross-state smog pollution rule
+-  إعلام عبري: حماس تشترط الإفراج عن مروان وعبد الله البرغوثي وأحمد سعدات بصفقة الأسرى
+-  وزير خارجية إسرائيل: سنعمل على اغتيال هنية ومشعل ولن يموتوا موتًا طبيعيّا
+-  Nomad reveals Qi2 version of the Stand that charges the iPhone at 15W without MagSafe
