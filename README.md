@@ -1,11 +1,11 @@
 # Latest News
--  بلينكن: حل الدولتين سيتطلب من الجميع خيارات صعبة بما فيهم أمريكا
--  وزير خارجية بريطانيا يصل القاهرة لمتابعة وصول المساعدات بلاده إلى غزة
--  Toter Mensch bei Brand in Haus gefunden
--  Chelsea on tehnyt kovan ratkaisun tammikuun siirtoikkunan suhteen
--  شاهد.. زهور الخزامى الجميلة تكسو سهول الصمان بعد هطول الأمطار
--  "وقاية": المتحور JN.1 سريع الانتشار .. ولا زيادة في التنويم داخل العنايات المركزة
--  Así es el drama que está viviendo Neymar para recuperarse: Gritos de dolor y llantos
--  Gustavo Zerbino, superviviente de los Andes: «En vez de asustarme de la muerte, me entregué a vivirla»
--  Komentarz po sesji: Nowe rekordy w Warszawie
--  త్వరలో ప్రచారం ప్రారంభిస్తా.: సుగవాసి
+-  Wife of Navy Officer Who Was Jailed Abroad and Locked Up Upon Returning to US Calls Out Biden
+-  VIDEO Ponovno odgođeno otvaranje glavnog pretresa u predmetu Dodik i drugi
+-  El monumento inaugurado en Puerto Colombia está entre los más altos del mundo
+-  देश की खबरें | दमनकारी आपराधिक विधेयकों को पारित करने के लिए विपक्षी सांसदों को निलंबित किया गया : कांग्रेस
+-  Фенове на "Левски": Клубът е в критично състояние, трябва нов модел на управление
+-  Live KNVB-beker | ADO Den Haag en Sparta zetten volle bekeravond in beweging
+-  Live KNVB-beker | ADO Den Haag en Sparta zetten volle bekeravond in beweging
+-  Live CL Vrouwen | Ajax begonnen aan tweede groepsduel met Bayern
+-  Live CL Vrouwen | Ajax begonnen aan tweede groepsduel met Bayern
+-  "Sigurnost na Kosovu je ključ stabilnosti Zapadnog Balkana"
