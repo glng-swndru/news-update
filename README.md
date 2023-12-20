@@ -1,51 +1,51 @@
 # Latest News
--  آخرهم يوسف عطال.. رياضيون تعرضوا للهجوم والعقوبات بسبب تعاطفهم مع غزة
--  انشيلوتي يتحدث عن مواجهة الافيس في الليغا
--  Son 2 Ayın En Çok Kazandıran Halka Arzı Hangi Şirket Oldu? Son 10 Halka Arzın En Az ve En Çok Kazandıran Hisseleri
--  Brittany Higgins and her fiancé David Sharaz ditch all-white 'suffragette' colour scheme as they touch down in Paris to start their new life away from the spotlight
--  Ja Morant shares emotional pre-game messages with his mom that inspired game-winning return to NBA
--  حماد ، زرتاج گل، فرخ حبیب سمیت روپوش پی ٹی آئی رہنماؤں کی تلاش تیز
--  Tak wyglądał moment wyłączenia TVP.info. Nagle pojawiła się plansza TVP 1
--  करीना कपूर-सैफ अली पटौदी पैलेस में मना रहे छुट्टी, देशी नाश्ते के साथ फुल एन्जॉय| Photos
--  Cotton futures close higher
--  Inter-Zonal Women Four Games begins in a colourful ceremony
--  Soybean futures close higher
--  Meghan, Duchess of Sussex makes brief return to acting as intern in coffee ad
--  Événement. Camille Etienne, débats, animations… « Ici on agit ! » au cœur de Lyon en mai
--  Paris. La chanteuse lyonnaise Vitaa cambriolée et séquestrée avec sa famille
--  Désinfox. La loi immigration a-t-elle vraiment été votée « sans les voix du RN » ?
--  Circulation. Les routes seront chargées ce week-end : comment éviter les bouchons ?
--  Loi immigration. Régularisations, quotas migratoires, droit du sol... Que contient le texte ?
--  Proche Orient. Le chef du Hamas est en Egypte pour des discussions sur une trêve
--  Politique. Loi immigration : la majorité présidentielle fracturée comme jamais
--  "Hay responsabilidades que solo pueden asumirse con el A1 y eso buscan"
--  The twelve greatest rounds in boxing history – iconic Mike Tyson KO, Tyson Fury’s resurrection and Anthony Joshua’s downfall
--  BYD aims to storm Japan: 30,000 EVs sold annually by 2025 and 100 dealerships
--  Réckgang vu PIB ëm 1%-Punkt: No liichter Rezessioun gëtt 2024 eng ekonomesch Reprise erwaart
--  We lost our mother for nothing, Dora Akunyili’s son laments
--  Emmerdale star Emma Atkins teases Charity Dingle murder twist during Christmas showdown
--  Winds up to 110 km/h set to hit Northern Netherlands as Storm Pia arrives Thursday
--  Rockstar Games'in zorlu çalışma koşulları: "Haftada 100 saat mesai yapıyorduk"
--  Hamas leader visits Egypt amid intensive talks on new ceasefire
--  خط وسط برشلونة أمام ألميريا بعد غياب بيدري
--  Ooh prawn cocktail! Hilarious moment amazed Brits try new 'exotic' flavoured crisps for the first time in 1981 BBC archive clip from Esther Rantzen's That's Life
--  "Plus belle la vie": comment le reboot du feuilleton espère séduire un nouveau public
--  Roselyne Bachelot va faire une apparition surprise dans "Scènes de ménages"
--  "Le Comte de Monte-Cristo": première image de Pierre Niney dans la peau d'Edmond Dantès
--  "Maestro": pourquoi ce film de Bradley Cooper a suscité un débat sur l'antisémitisme à Hollywood
--  "Une mise à mort": Fanny Ardant prend la défense de son "ami" Gérard Depardieu
--  Miss France 2024: le créateur de la robe de Miss Lorraine ne s'attendait pas à "autant de méchanceté"
--  "Det är mycket stora paket"
--  Studien der WTO: Ein deutscher Apfel ist nicht immer klimafreundlicher als ein Importapfel
--  Tottenham step up Radu Dragusin transfer chase and are already in talks to hijack Man Utd’s top target
--  Streit doch noch beigelegt: Ampel einigt sich auf mehr Abschiebungen und schnellere Einbürgerungen
--  Zustand besser als gedacht: Überraschendes Video von Hamas-Phantom Deif aufgetaucht
--  Novo zagueiro do Athletico, Gamarra revela superação durante a pandemia: 'Foi muito difícil'
--  Gabriel Pec lidera Vasco em participações ofensivas em 2023; veja dados:
--  Veja números e informações de Bruno Rodrigues, novo jogador do Palmeiras
--  Pasikeitusios oro sąlygos turistų neišgąsdino
--  Natação: Trio caldense esteve em grande plano em Leiria
--  Alarm w Śląsku Wrocław. Erik Expósito wysyła bardzo zły sygnał
--  The surprising detail in Keith Urban's outfit as wife Nicole Kidman towers over him at Expats screening
--  Valérie Damidot fait une belle déclaration à son compagnon
--  Ambre (Familles nombreuses) soutient Jennifer (Mariés au premier regard) après des remarques sur son poids
+-  정신질환자 지속치료 지원 시범사업 연장
+-  내년부터 비염·소화불량 한방 첩약도 건강보험 적용
+-  수술전후 관리 교육상담 시범사업 종료
+-  "النواب" يوافق على الترخيص لوزير البترول بشأن التعاقد للبحث عن البترول في "عش الملاحة"
+-  المجلس الأعلى للثقافة: 31 ديسمبر آخر موعد للتقدم لجوائز الدولة لعام 2024
+-  أسعار شرائح الكهرباء.. مصدر بـ"الكهرباء": انتهاء وضع مقترحات زيادات الأسعار يناير المقبل
+-  معهد البحوث الفلكية: آخر ذروة للشهب في عام 2023 تزين السماء غدا
+-  "النواب" يحيل 23 تقريرا عن اقتراحات برغبات للحكومة لاتخاذ اللازم بشأن ما ورد بها من توصيات
+-  6 علامات تحذيرية للخرف.. لا تتجاهلها
+-  5 أطعمة تناولها في الصباح يسبب ارتفاع مضاعف لضغط الدم.. أحذرها
+-  Vozač kamiona poludio na vozačicu, blicao joj i trubio. Ona mu pokazala srednji prst, nastao je kaos
+-  Eksponati Arheološkog muzeja Istre u Muzeju »J. J. Winckelmann«: Reprezentativni predmeti bogate materijalne kulture
+-  LH 취약계층 난방비 지원
+-  윤건영 충북교육감 옥천서 등교 학생 맞이
+-  `불량 공기청정기' 설치 업자 제재
+-  청주의료원.충북테크노파크 장애인 고용 `외면'
+-  경찰의 꽃 총경 몇명 배출될까
+-  오송참사유가족·생존자協 `시민진상조사위원회' 발족
+-  맨시티 FIFA 클럽월드컵 결승行
+-  홀란 ‘올해의 월드 스포츠 스타’
+-  수원 삼성 500만원 징계 … 팬이 던진 연막탄 탓
+-  ‘이재성 풀타임’ 마인츠 도르트문트와 1대 1 무
+-  유럽구단 `아시안컵 차출 어쩌나'
+-  한국 스포츠 저력 재확인
+-  ‘U-20 월드컵 4강’ 김은중 감독 수원FC 지휘봉
+-  이노스페이스 또 `국내 최초'
+-  착한가격·개발호재 … 청주 분양시장 고공행진
+-  동지 앞둔 풍경
+-  환경단체 청남대 불법행위 의혹 공익감사 청구
+-  여야 내년도 예산안 합의
+-  청주국제공항 재도약 준비 착착
+-  인파 사고도 사회재난 규정 재난안전법 개정안 국회 통과
+-  제천 화재 유가족 보상 길 열린다
+-  중장년 평균소득 청년의 1.5배
+-  지난해 억대 연봉자 131만명
+-  “이동채 전 에코프로 회장 선처를” 청주상의 구명 서명운동 전개
+-  조은희 충북도농업기술원장 영농현장 점검
+-  수도계량기 동파 `경계'
+-  청주 남일면 작은도서관 `이음' 문 활짝
+-  장애인복지법 국회 본회의 통과
+-  전국 최고 첨단산업 인프라 확충 `1위'
+-  충북 바살협 자립준비 청년과 함께하는 송년회
+-  ㈜금성개발 `사랑의 간식차' 행사
+-  한마음의료재단 하나병원 후원금 전달
+-  백송 13년째 `아름다운 선행'
+-  서청주우체국 겨울내의 기탁
+-  아이케이엠앤에스 청주시에 도서구입비 기탁
+-  최성호 충북대 축산학과 교수 키르기즈스탄 ODA 사업 수주
+-  대웅제약 오송공장 플로깅 행사
+-  사단법인 해피맘 충북센터 후원물품 기탁
