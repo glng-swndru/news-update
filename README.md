@@ -1,11 +1,11 @@
 # Latest News
--  Fólk trúir varla að hann hafi sloppið með þetta ljóta brot í gær
--  Mali : El Hadj Ag Gamou refait surface à Kidal. Une fois encore. Jusqu'à quand ?
--  Quetzalcoatl, la verdadera pesadilla antes de Navidad
--  Monheims Bürgermeister: Alles Nazis, außer ich?
--  Jogos de PC por menos de R$ 50 na Epic Games Store – Ofertas de Fim de Ano
--  Германия — Делаем рождественские подарки и увеличиваем капитал
--  Qantas taken to Federal Court after refusing to let assistance dog on flight
--  Have you been unable to reunite with your loved ones this holiday season? Tell us
--  Tropical fruit growers plead for help from consumers, PM Albanese as Cyclone Jasper flooding clean-up begins
--  Jimmy Barnes given the all clear by doctors to head home for Christmas after heart surgery
+-  Elektra realiza rebaja en los Samsung Galaxy A04e
+-  [날씨]서울 체감온도 21도, 전국 최강 한파 몸살, 서해안 폭설
+-  Central London double garage just yards from Selfridges and Oxford Street goes up for sale for £750,000 (but it does come with superfast broadband)
+-  حسم أمر غياب نيمار عن كوبا أمريكا 2024
+-  Bundesliga: Boniface wins fifth consecutive Rookie of the Month award
+-  سفيرة أميركيّة جديدة في لبنان... من هي؟
+-  TURISTI NE MARE ZA UPOZORENJA, POTRAŽNJA ZA PUTOVANJIMA U EU NIKAD VEĆA! Postoji opasnost od TERORIZMA, niko ne otkazuje
+-  Inició la Ruta Niño Jesus en Bolívar con la entrega de más de 7500 juguetes
+-  Katie Price slammed by cruel trolls as she makes stage debut in Sleeping Beauty pantomime
+-  ŠAMAR JASTREBOVIMA IZ VAŠINGTONA Amerika da prestane da igra ulogu svetskog policajca
