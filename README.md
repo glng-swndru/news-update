@@ -1,11 +1,11 @@
 # Latest News
--  Dutch central bank leader: No reason for ECB to quickly reduce interest rates
--  Why your coffee is going to get more bitter and expensive
--  تأجيل التصويت على مشروع قرار بمجلس الأمن بشأن غزة
--  هآرتس: الناطق باسم الجيش يكذب والإسرائيليون يحتاجون أكاذيبه
--  The Rock Buys Toys For Every Kid Shopping At FAO Schwarz
--  Ministri financií Únie sa dohodli na reforme Paktu stability a rastu, má pomôcť zadlženým
--  Travis Scott Nearly Gets Knocked Over During Concert by Giant Floating Head Prop
--  ΤΤ Ρίγα - Ολυμπιακός 70-65: Το εμπόδιο του πρώτου αγώνα ήταν τεράστιο
--  75 يوما على عدوان الاحتلال.. حصاد مرعب لحرب الإبادة الجماعية في غزة
--  Сливен пак остана без план- сметката за чистота
+-  U pet općina KS proglašena Uzbuna, na snazi i interventne mjere
+-  Talous on jämähtänyt taantumaan – julkista taloutta odottavat lisäsopeutukset
+-  Kalvin Phillips ‘lays out transfer demand’ and more Man City rumours
+-  Report: Tottenham have bid ready for £25m star as Spurs also open Todibo talks
+-  Sir Jim Ratcliffe can give Erik ten Hag the thing he needs most at Manchester United
+-  Jeffrey Epstein Victim Taunts His Associates Ahead of Document Dump
+-  Дніпро переміг Харківські Берсерки у чемпіонаті України
+-  Brejnev fəxri vətəndaş titulundan məhrum edildi
+-  Mrak Taritaš: Plenković je poput zlostavljača koji kaže ženi “sama si to tražila”
+-  تراند اليوم : لأصحاب التحدي| أوجد الاختلافات الـ 5 بين صورتي العائلة خلال 9 ثوان فقط
