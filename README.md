@@ -1,51 +1,51 @@
 # Latest News
--  Veterans minister vows to transform Seoul National Cemetery into more visitor-friendly site
--  ЕС запретил серый реэкспорт товаров двойного назначения в Россию
--  18 civil representatives to join bell-tolling event for New Year's Eve
--  Outdoor ice skating rink at Seoul Plaza to open to visitors Friday
--  Man who placed 'possessed' child in fire, hit Highlands County deputy with metal bar fatally shot, officials say
--  Festive of flavors: How to make Holidays healthier with non-alcoholic drinks
--  After 44 years, body found near Las Vegas Strip ID'd as missing Ohio 19-year-old
--  Morant's buzzer-beater on NBA return
--  Morant's buzzer-beater on NBA return
--  Sand dunes damaged during storms in Pinellas County; some access points closed
--  Buscan candados para ocupar cargo de ministro
--  Intentan ejecutar al “Gallero” en su casa
--  Remueven a delegado del IMSS en Chihuahua
--  Tenza Beach Festival brings good vibes and early Christmas for locals
--  '만난 지 10주년' LG 이우찬, 우승하고 행복한 웨딩마치 올린다
--  '슬의생2' 이후 3년만…조정석, 복귀작으로 '세작' 선택한 이유
--  [현장] SK브로드밴드 “AI Btv로 드라마 보며쇼핑까지…IPTV 성장 정체기 극복할 것”
--  토트넘, '쏘니' 없으면 어떻게 할래? 英 매체 "활약 인상적·18라운드 최고의 선수 3위 예상"
--  "실력·스타성→관상 볼 것"…'미스트롯3', 송가인·양지은 이을 '新트롯 여제' 탄생할까 [종합]
--  عاجل.. حساب المواطن يوضح كيف تستفيد زوجة المواطن غير السعودية في حالة سجنه؟
--  김종인 “한동훈 비대위원장? 尹 마음의 결정한 듯…정치 등판 너무 빨라”
--  삼척시 관광문화발전 포럼 21일 개최
--  Lok Sabha Passes Bill To Align Some Provisions of CGST Act With Tribunal Reforms Act
--  Wednesday At Market: Market Back On Track, IRFC, Zomato, IDFC Bank In A Bullish Mood
--  OTT ‘K콘텐츠 버블’ 속 늘어가는 드라마 스태프 임금체불
--  “윤석열 징계사유 판단 없는 항소심, 사안의 본질 외면”
--  [영상] 장경태 “한동훈, 조선제일검이라더니 김건희 호위검”
--  Isländischer Außenminister: Vulkanausbruch macht ehrfürchtig
--  Richard Still: Ballroom dance champion jailed for six years after grooming 15yo girl and getting her pregnant
--  Viral Dokter Ngeluh Artis Youtube Tak Sopan Saat Berobat, Netizen Singgung Anamnesis: Proses Apa Sih Itu?
--  Within INDIA, the Congress' Problem is Lack of Credibility. Can Kharge Fix That?
--  VIVOTEK's Latest Sustainability Report Successfully Verified for the First Time under AA1000 Standards
--  Countdown to Compliance: Allion Labs Addresses the EU's USB Type-C Rule
--  TECH LEADERS JOIN TO EXTEND MANAGED IT SERVICES FOR AEC & MANUFACTURING INDUSTRIES ACROSS ANZ
--  Ansys Launches AVxcelerate Autonomy
--  Elon Musk provoca la ira del Tesla Hoe
--  Resumen 2023: la ausencia de Tekashi en los Premios Juventud, lo más leído en Entretenimiento
--  14 figuras políticas con señalamientos en su contra irían tras un cargo electivo en 2024
--  Sebelum Digugat, Virgoun Ogah Bertemu Inara Rusli Buat Bahas Pengalihan Royalti ke Label Musik
--  상임고문단 만난 국민의힘
--  국민의힘 상임고문단 회의
--  인사말하는 신영균 상임고문단 명예회장
--  Pergerakan Orang Mudik Nataru Naik 43 Persen, Kemenhub Beberkan Penyebabnya
--  Jika Ini Terjadi, BI Berpeluang Turunkan Suku Bunga
--  ปชป.ไม่ร่วมยินดี”ชัยธวัช”ผู้นำฝ่ายค้านเตรียมตัวไม่ทัน
--  Satu Alasan Saja Shin Tae-yong Kepincut dengan Syahrul Trisna Hingga Dibawa ke TC Piala Asia 2023
--  "Logan got off and said to me 'I zigged when I should have zagged.'"
--  Morant puts up 34 pts., buzzer-beater in return
--  Ministro de Salud inaugura el cuarto Centro de Salud Mental Comunitaria en San Juan de Lurigancho
--  엠넷 〈스걸파2〉 도전 중인 경남 10대 댄스팀 '더퀸즈'
+-  춘천시청소년유해환경감시단, 숙박업소 집중 모니터링 진행
+-  SGC에너지, 군산 소룡·미성동 저소득층 월동비 지원
+-  홍천군 남면-인천 남동구 구월1동, 자매결연 협약 체결
+-  GS25, '혜자도시락' 연말 나눔 캠페인 실시!
+-  금산 삼계탕축제, 충남도 1품 축제 선정
+-  '2024년 사자성어' 운외창천…중소기업게, 난곽극복 도약기대
+-  홍천 영귀미면 의용소방대, 사랑의 이웃돕기 성금 기탁
+-  퇴직연금 수익률, 가입자 교육이 관건이다.
+-  LG전자, 텀블러 세척기 '마이컵' 선보인다
+-  군산시, 내년부터 디딤씨앗통장 가입 대상자 확대
+-  올해 파주시민이 뽑은 최고의 뉴스 1위, ‘긴급에너지 생활안정지원금’
+-  영암왕인문화축제, 문체부 '대한민국 대표 문화관광축제' 선정
+-  하남시, 찾아가는 법률서비스 ‘법률홈닥터’ 2024년 배치기관 선정
+-  홍천군, 찾아가는 맞춤형 어린이 안전교육 실시
+-  새만금문화학당 수강생, 4년만의 군산 방문
+-  이용록 홍성군수, K-딸기 전 세계 소비 1위 '홍콩' 공략
+-  삼척시, 관광문화발전 위한 포럼 개최
+-  동해시, 지방재정대상 종합 최우수 도시 선정
+-  부여군, '자랑스러운 병역명문가 문패 달아주기 사업' 추진
+-  홍천군, 제306차 안전점검의 날 행사 실시
+-  홍천군청소년문화의집, 청소년 체험활동 프로그램 종료
+-  지난해 연말정산 근로자 평균 급여액 4213만원…5년 전보다 566만원↑
+-  보령시의회 보령댐 특위, 댐 주변 발전 위해 수공과 머리 맞대
+-  DL건설, '창원 회원2 재개발' 시공권 확보…올해 도정 1조6950억원 수주
+-  사라지는 체크카드…간편결제 확산에 경쟁력 ‘뚝’
+-  연천소방서, 겨울철 화목보일러 사용에 주의 당부
+-  21일부터 청년·신혼부부 매입임대주택 3493호 입주자 모집
+-  코스피, 외국인·기관 순매수에 3개월 만에 장중 2600선 돌파
+-  함평군, 전남도 '음식문화개선 평가' 우수기관 선정
+-  Bodenbearbeitung: So beseitigen Landwirte die Spuren der Rübenmaus
+-  OmniFocus Review (2023): Features, Pricing, & Alternatives
+-  Руска тенис звезда се похвали, че тренира с Григор Димитров
+-  딥엑스, 2024 CES서 고성능 AI 서버용 ‘DX-H1’ 공개
+-  EVSIS, 인도네시아 전기차 충전 인프라 조성 프로젝트 수주
+-  Liga Élite de Béisbol: Leones comprometen aspiraciones de los Gallos
+-  Тавантолгой түлш ХХК-ийн ТУЗ-ийн гишүүд 1.1 тэрбум төгрөгөөр өөрсдийгөө шагнажээ
+-  KT, '수원 사랑의 산타' 행사 따뜻한 온기 전달...취약 계층에 5천만원 상당 물품 후원
+-  '호러쇼 선사 → 전력 외 전락' 다이어, '토트넘 최악의 먹튀' 따라 튀르키예 진출 가능성 제기...페네르바체가 노린다
+-  ห้ามลืม! โฆษก มท.ย้ำคำสั่งห้ามพกปืน 1 ปีมีผลใช้บังคับแล้ว
+-  Change of govt doesn’t mean neglecting orders: HC
+-  Kylian Mbappé, l'alter ego di Michael Jordan e LeBron James. A cui manca la Champions
+-  Bishnoi Jail Interview: ਲਾਰੈਂਸ ਦੀ ਜੇਲ੍ਹ ਇੰਟਰਵਿਊ ਮਾਮਲੇ ਦੀ ਹਾਈਕੋਰਟ 'ਚ ਸੁਣਵਾਈ, ਪੁਲਿਸ ਦਰਜ ਕਰੇਗੀ FIR
+-  Ukraine economy heads for tough 2024 as Western aid concerns grow
+-  Tradiții și superstiții de Ignat, ziua când se sacrifică porcii. Ce e interzis să faci pe 20 decembrie, cum alungi relele
+-  Soni Razdan made Alia Bhatt travel by economy class as child
+-  Christmas at Mumbai’s Khotachiwadi: Why did Black stop playing Santa Claus?
+-  Colbert Kicks the Hell Out of Rudy Giuliani While He’s Down
+-  These are New Laws About to Take Effect in NJ
+-  Elon Musk Draws the Ire of the Tesla Hoe
+-  Unhoused people in Vancouver’s CRAB Park launch human rights complaint against City and Park Board
