@@ -1,51 +1,51 @@
 # Latest News
--  웨스턴디지털, 샌디스크 프로페셔널 및 샌디스크 신제품 국내 출시
--  „Alice Schwarzer sehe ich die Feministin an“: Gottschalk äußert sich zu „Wetten, dass..?“ mit Shirin David
--  تنفيذ حكم القتل تعزيرًا بحق بنجلاديشي قتل 3 أشخاص طعنًا بسكين ومقص
--  Drei Bedingungen für Walter: Dann bleibt er HSV-Trainer
--  Nueva noche gélida en Córdoba a vísperas del invierno
--  Neue Informationstafel am Kulturweg Aschaffenburg-Strietwald eingeweiht
--  Die Mistel: Ein Baumbewohner für Liebesschwüre
--  Neues Angebot zur Seelsorge am Waldfriedhof
--  Welche Immobilien Lohr verkaufen will und für welche es überraschende Pläne gibt
--  Elsenfelder Schreibwarengeschäft Schnarr macht zu
--  Bold Spirits, Vibrant City: Glenfiddich Mavericks Craft Whisky Wonderland at Drinks.NG in Lagos
--  En qué se equivocaron Elon Musk, Bill Gates y Stephen Hawking al predecir el impacto de la Inteligencia Artificial
--  Rekabet Kurumu'ndan 5 firmaya soruşturma
--  THY önemli davayı kazandı
--  My dad is legendary football manager of Champions League giants – now I’m following in his footsteps as his assistant
--  Celebrating 60 Stores Bringing Apple Closer To You
--  Yogi Adityanth Govt To Set Up Cyber Crime Police Stations In 57 Districts Of UP
--  Tata Boeing Aerospace delivers 250th fuselage for AH-64 Apache helicopter
--  Ja Morant sur son buzzer-beater : “La fin parfaite”
--  رئيس الأعيان يلتقي السفير البلغاري لدى المملكة
--  حداد للحكومة: لا تنغمسوا في المشاكل الإقليمية
--  The Biden administration has a new strategy for getting federal funds to grassroots environmental groups
--  Deslumbrá en 2024 con los colores de cabello de última tendencia
--  Lada "mejd in Etiopija"? Može
--  Nemci se okreću Norvežanima: Ide gas
--  Narednih dana oblačno vrijeme, u četvrtak slaba kiša u nižim i snijeg u višim područjima Bosne
--  El Colegio de Enfermería rechaza la nueva norma del SAS que causa éxodo laboral
--  Bir aile dehşeti yaşadı! Tren, otomobili 30 metre sürükledi
--  MEVLANA VE MEVLANACILIK
--  Konya'da sobadan zehirlenen 5 tarım işçisi hastaneye kaldırıldı
--  اتفاقية بين الجامعة الأردنية و"حقول السمسم"
--  Жители Восточного Иерусалима подозреваются в сексуализированном насилии в отношении инвалида
--  Saborski zastupnici mogli bi se pozdraviti sa zgradom u centru? Stigle dvije ponude za prostor
--  Save massive 56% on MSI's 34-inch ultra-wide QHD monitor with 165Hz refresh rate
--  BİM Aktüel 22 Aralık 2023 Kataloğu Açıklandı! Philips airfryer, ankastre set, kahve makinesi, bot...
--  Albanac sa KiM ubio trudnicu u Italiji
--  KAI, 수리온 성능개량형 사업 수주
--  회원2구역 재개발사업 시공사에 DL 건설 낙점
--  창원주민대회 주택·교통·경제분야 '10대 요구'에 시 답변은
--  SiC 섬유발열체 '그로닉'으로 신 생태계 구축
--  62회 경남도 문화상 수상자 6명 발표
--  두산에너빌리티㈜ 정연인 대표이사, 부회장 승진
--  경남 사회공헌자 10명, 경남도지사 표창
--  전기연 토양 가열해 병해충 방제기술 개발...농가 근심 해소 기대
--  경남 농산어촌 불법 소각 막을 방법은?
--  창원시 '2023 자원봉사자대회' 열어
--  Kinder besuchen Senioren im Seniorenheim Altenstadt
--  Nicht wirklich was los rund um den Frankenplatz auf dem Wartberg
--  Rimborsi 730: calendario pagamenti da dicembre e marzo
--  Halil Umut Meler'in Emre Belözoğlu hakkındaki iddialarının ardından olaylı gecenin görüntüleri ortaya çıktı
+-  Will COP28 Deliver On Its Pledges?
+-  Now They Expand
+-  Loopify: Pioneering Sustainable Gifting
+-  Since we began our journey, our focus has been to bring care to healthcare: Abhay Soi
+-  More Nuanced Approach Needed
+-  Celebrating New Beginning Of Washington Apples In India
+-  Бюджет тақчиллигининг лимити 3 фоиздан 5,5 фоизга ўзгартириш ҳақидаги қонун маъқулланди
+-  Wendy’s worker sparks outrage after revealing how “fresh” fries can be faked
+-  Πούτιν: Θα υπάρξει αυστηρή απάντηση σε ξένες ειδικές υπηρεσίες που επιδιώκουν να αποσταθεροποιήσουν τη χώρα
+-  UCLG Başkanı Altay, UCLG-MEWA Yıllık İştişare Toplantısı'na katıldı
+-  Fatih Erbakan: İstanbul, Ankara ve İzmir dışındaki her yerde kendi adaylarımızla seçime gireceğiz
+-  Çanakkale'de 40 kaçak göçmen yakalandı
+-  If opposite parties return to JCPOA, Iran to fulfill its obligations, says Vice President
+-  צבי יחזקאלי חשף את התחושות בימין, אבל עוד יותר מכך את הבלבול בשמאל
+-  "זה לא יעבוד": אפל רוצה למנוע את איסור מכירת השעונים באמצעות עדכון תוכנה
+-  נכנסו להדממה: ערביי ישראל נטשו את הרשתות החברתיות מפרוץ המלחמה
+-  Kırıkkale’de korkunç olay: Müteahhit trafikte tartıştığı kişiyi öldürdü
+-  Nuno orðinn stjóri Forest (Staðfest)
+-  [인사] 한전
+-  Bilim adamlarından şaşırtan araştırma: İnsanların nefes alması küresel ısınmayı artırıyor
+-  Wushu Milli Takımı Avrupa Şampiyonu Oldu
+-  Kenialaismies teki palveluksen pomolleen – Kuoli
+-  The Recruit saison 2 (Netflix) : intrigues, casting... ce que l'on sait sur la suite de la série
+-  Abramowitsch scheitert mit Klage gegen Sanktionen vor EU-Gericht
+-  LKL国际690万卖地
+-  Κουβέιτ: Στην ομιλία της ορκωμοσίας του, ο νέος εμίρης επέκρινε την κυβέρνηση και το κοινοβούλιο
+-  Indizien häufen sich: Zieht Sarah Kern ins Dschungelcamp?
+-  Geisterfahrer auf der A9 gestoppt: 51-Jähriger ignorierte Totalsperre
+-  صدمة جديدة.. نيمار يغيب عن كوبا أمريكا
+-  Akuzat ndaj SPAK, përgjigjet Altin Dumani: Retorika politike apo presioni mediatik nuk ndikojnë tek unë
+-  Man seriously injured after 'XL bully' dog savages him in Penzance street
+-  Mitropolit Joanikije: Crnogorske vlasti pokušavaju da zaobiđu Nemanjiće ali najdublji korijeni naše duhovnosti su iz njihovog doba
+-  Football-Mondial des clubs : ce sera Fluminense/City pour la finale ce vendredi
+-  김승남 의원, 농수산물 도매시장 '정가·수의매매' 활성화 방안 마련
+-  Sultana actress Winnie Bwire appeals for Ksh7M support to seek cancer treatment
+-  Neymar se queda sin Copa América
+-  2023, año histórico para para el beisbol mexicano
+-  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
+-  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
+-  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
+-  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
+-  Drake teases that he’ll “definitely” tour Europe in 2024
+-  IPN y Conagua crean la carrera de meteorología
+-  Leave the World Behind gets knocked off Netflix top spot by kids movie
+-  В «Оренбурге» заявили, что близки к трансферу Томпсона
+-  Rheinmetall : trennt sich von der Kolbenproduktion – Verkauf des Kleinkolbenbereichs an Comitans Capital
+-  Parfümeriekette Douglas erstmals mit mehr als 4 Milliarden Euro Umsatz
+-  Движение трамвая третьего маршрута восстановлено
+-  Zaštitnik građana pokrenuo kontrolu vrtića na Novom Beogradu u kom je dete preminulo
+-  문체부 "대한체육회 성명서 발표, 유감"...국가스포츠정책위 '인사 논란'
