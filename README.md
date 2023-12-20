@@ -1,11 +1,11 @@
 # Latest News
--  Christmas 2023: 10 Interesting Facts About Christmas
--  Povjerenstvo odlučuje je li Grlić Radman kršio zakon kada je prešutio milijunske dividende
--  Mađarska pita: Zašto svi ćutite?
--  Maestro (English) Movie Review: On the whole, MAESTRO has a few shortcomings but is worth watching.
--  لجان مقاومة الحصاحيصا : المليشيا استولت على رئاسة الشرطة ونهبت الدكاكين بإستخدام دفار الشرطة
--  İstanbulspor Başkanı Ecmel Faik Sarıalioğlu'ndan açıklama! ''Benim inip birini tokatlayacak durumum yok''
--  İstanbulspor Başkanı Ecmel Faik Sarıalioğlu'ndan açıklama! ''Benim inip birini tokatlayacak durumum yok, isterlerse küme düşürsünler!''
--  Santander: systematyczny wzrost produkcji przemysłowej zacznie się wiosną 2024 r.
--  Ofcom complaints doubled in 2023 as angry viewers slammed King's Coronation and GB News
--  Ministarstvo: Svinjokolja može početi u četvrtak!
+-  Beylikdüzü Belediyesi önlem almadı... Pis koku ve dev fareler vatandaşı canından bezdirdi
+-  İstanbulspor Başkanı Ecmel Faik Sarıalioğlu konuştu! "Bardağı taşıran son damla oldu"
+-  İsrailli Bakan Ben-Gvir, "insani ara" verilmesine karşı
+-  AP Raportörü'nden Türkiye ile ilgili skandal sözler! TBMM toplantısında cevabını aldı
+-  Les assurés résilient plus souvent leur couverture santé, mais sans faire baisser les prix
+-  Ceredigion tractor dealership plans expansion
+-  Pour son jean, Seize point neuf combine économie solidaire et fabrication française
+-  Raihaanun Cerita Tantangan Berperan sebagai Kinan di Film Layangan Putus
+-  Thriller, Liebesgeschichte, Fantasy: Diese Bücher empfehlen Halterner zu Weihnachten
+-  ‘Survivor’ Season 45 Boasts Renewed Ratings Success For CBS As Younger Audiences Flock To Long-Running Competition Series
