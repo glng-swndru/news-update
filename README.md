@@ -1,11 +1,11 @@
 # Latest News
--  “Por supuesto que no”: Ni pavo ni platillo especial tendrás si caes en el “Torito” esta Navidad
--  Venezuela a Spojené štáty americké sa dohodli na výmene väznených osôb
--  Netflix estrena una película que se encamina a ser un gran éxito mundial
--  Frecciarossa contro regionale: il macchinista al telefono era sceso lasciando il treno "in folle"
--  نتنياهو يستبعد وقف النار في غزة
--  الدوري السعودي يرفض الاستسلام أمام لوكاكو
--  النشامى يبدأ تدريباته استعدادا لكأس آسيا
--  برشلونة يحقق فوزاً صعباً أمام ألميريا
--  قوات الاحتلال تقتحم بلدة عتيل في طولكرم
--  الغول.. من هو اسطورة التصنيع العسكري بالقسام؟
+-  Lo que debes saber de la vacuna contra Covid en farmacias
+-  Regresan Los Dorados a la Liga Mexicana de Béisbol
+-  استقرار أسعار الذهب
+-  Populist High Chief Wellington Bobo Congratulates High Chief Dr Oweizide Ekpomupolo Tompolo Over Honorary Doctorate Degree
+-  Thổ Nhĩ Kỳ - minh chứng dầu thô của Nga là loại "ngọt" nhất
+-  Tiền Giang: Tổng kim ngạch xuất khẩu đạt 4,6 tỷ USD, tăng gần 13%
+-  Có một khủng hoảng nợ đang chực chờ?
+-  «Αφοσιώνομαι πλήρως στον Χριστό», λέει ο Χαλκ Χόγκαν που βαφτίστηκε στα 70 του
+-  VIDEO: Harry Kane spektakularno ‘skinuo paučinu’ s gola Wolfsburga!
+-  Toyota ruft in den USA eine Million Fahrzeuge zurück
