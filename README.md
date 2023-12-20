@@ -1,7 +1,40 @@
 # Latest News
+-  웨스턴디지털, 샌디스크 프로페셔널 및 샌디스크 신제품 국내 출시
+-  „Alice Schwarzer sehe ich die Feministin an“: Gottschalk äußert sich zu „Wetten, dass..?“ mit Shirin David
+-  تنفيذ حكم القتل تعزيرًا بحق بنجلاديشي قتل 3 أشخاص طعنًا بسكين ومقص
+-  Drei Bedingungen für Walter: Dann bleibt er HSV-Trainer
+-  Nueva noche gélida en Córdoba a vísperas del invierno
+-  Neue Informationstafel am Kulturweg Aschaffenburg-Strietwald eingeweiht
+-  Die Mistel: Ein Baumbewohner für Liebesschwüre
+-  Neues Angebot zur Seelsorge am Waldfriedhof
+-  Welche Immobilien Lohr verkaufen will und für welche es überraschende Pläne gibt
+-  Elsenfelder Schreibwarengeschäft Schnarr macht zu
+-  Bold Spirits, Vibrant City: Glenfiddich Mavericks Craft Whisky Wonderland at Drinks.NG in Lagos
+-  En qué se equivocaron Elon Musk, Bill Gates y Stephen Hawking al predecir el impacto de la Inteligencia Artificial
+-  Rekabet Kurumu'ndan 5 firmaya soruşturma
+-  THY önemli davayı kazandı
+-  My dad is legendary football manager of Champions League giants – now I’m following in his footsteps as his assistant
+-  Celebrating 60 Stores Bringing Apple Closer To You
+-  Yogi Adityanth Govt To Set Up Cyber Crime Police Stations In 57 Districts Of UP
+-  Tata Boeing Aerospace delivers 250th fuselage for AH-64 Apache helicopter
+-  Ja Morant sur son buzzer-beater : “La fin parfaite”
+-  رئيس الأعيان يلتقي السفير البلغاري لدى المملكة
+-  حداد للحكومة: لا تنغمسوا في المشاكل الإقليمية
+-  The Biden administration has a new strategy for getting federal funds to grassroots environmental groups
+-  Deslumbrá en 2024 con los colores de cabello de última tendencia
+-  Lada "mejd in Etiopija"? Može
+-  Nemci se okreću Norvežanima: Ide gas
+-  Narednih dana oblačno vrijeme, u četvrtak slaba kiša u nižim i snijeg u višim područjima Bosne
+-  El Colegio de Enfermería rechaza la nueva norma del SAS que causa éxodo laboral
 -  Bir aile dehşeti yaşadı! Tren, otomobili 30 metre sürükledi
 -  MEVLANA VE MEVLANACILIK
 -  Konya'da sobadan zehirlenen 5 tarım işçisi hastaneye kaldırıldı
+-  اتفاقية بين الجامعة الأردنية و"حقول السمسم"
+-  Жители Восточного Иерусалима подозреваются в сексуализированном насилии в отношении инвалида
+-  Saborski zastupnici mogli bi se pozdraviti sa zgradom u centru? Stigle dvije ponude za prostor
+-  Save massive 56% on MSI's 34-inch ultra-wide QHD monitor with 165Hz refresh rate
+-  BİM Aktüel 22 Aralık 2023 Kataloğu Açıklandı! Philips airfryer, ankastre set, kahve makinesi, bot...
+-  Albanac sa KiM ubio trudnicu u Italiji
 -  KAI, 수리온 성능개량형 사업 수주
 -  회원2구역 재개발사업 시공사에 DL 건설 낙점
 -  창원주민대회 주택·교통·경제분야 '10대 요구'에 시 답변은
@@ -9,3 +42,10 @@
 -  62회 경남도 문화상 수상자 6명 발표
 -  두산에너빌리티㈜ 정연인 대표이사, 부회장 승진
 -  경남 사회공헌자 10명, 경남도지사 표창
+-  전기연 토양 가열해 병해충 방제기술 개발...농가 근심 해소 기대
+-  경남 농산어촌 불법 소각 막을 방법은?
+-  창원시 '2023 자원봉사자대회' 열어
+-  Kinder besuchen Senioren im Seniorenheim Altenstadt
+-  Nicht wirklich was los rund um den Frankenplatz auf dem Wartberg
+-  Rimborsi 730: calendario pagamenti da dicembre e marzo
+-  Halil Umut Meler'in Emre Belözoğlu hakkındaki iddialarının ardından olaylı gecenin görüntüleri ortaya çıktı
