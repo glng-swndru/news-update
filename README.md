@@ -1,51 +1,11 @@
 # Latest News
--  بشرى.. إتاحة خدمة الغسيل البريتوني لمرضى الفشل الكلوى بالمنازل
--  كيف يستفيد الحاصل على الدعم السكني من الضمان المطور؟
--  رفع الجلسة العامة لمجلس النواب.. ومعاودة الانعقاد 2 يناير
--  إحالة إدارة مدرسة إعدادي ببني سويف للتحقيق
--  ضبط 3 أشخاص جمعوا 175 مليون جنيه حصيلة تجارة المخدرات في الدقهلية
--  هبوط جماعي لمؤشرات البورصة في نهاية تعاملات اليوم الأربعاء
--  I was an England star but quit football to launch fashion brand – now I make £35m-a-year and have an Oxford Street shop
--  Food industry groups accuse Galen Weston of inaccurate claim over grocery code
--  ¡Prepárate! Clima en Durango será gélido este miércoles 20 de diciembre
--  ‘La Gomera’, el avión de Binter con el que volarás a Madrid: filas anchas y 132 asientos
--  Designing for Comfort and Wellbeing with Ergonomic Interiors
--  वाघाच्या हल्ल्यात गाय व बैल गंभीर जखमी | Batmi Express
--  من اللاعب الذي يتوافق مع إندريك في ريالمدريد.. مبابي أما هالاند؟
--  For many who are suffering with prolonged grief, the holidays can be a time to reflect and find meaning in loss
--  Игнатьев считает продуманным решение РФС отказаться от перехода в Азию
--  Smer-SD by vyhral znova, súčasnú koalíciu by však nevyskladali a Matovičovi neverí až 77 percent ľudí
--  Ogromni 'ro-ro' putnički brod proizveden u Kini isplovio za Italiju
--  Technikumokkal kötött együttműködési megállapodást a Széchenyi István Egyetem
--  احتجاجا على "قانون الهجرة" المثير للجدل... وزير الصحة الفرنسي يقدم استقالته
--  La CEOE acusa al Gobierno de «despreciar» el diálogo social
--  Održani prosvjedi ispred OHR-a, traži se nametanje tehničkih izmjena Izbornog zakona
--  OpenAI’s GPTBot is a Major Cyberthreat for Online Retailers During Holiday Sales: Report
--  Motorola Moto G 5G (2024) se filtra en renders revelando un sutil rediseño
--  تمديد صلاحية تأشيرة هيا حتى 24 فبراير 2024
--  23-årig mand skammer sig over skyderi i Field's
--  23-årig mand skammer sig over skyderi i Field's
--  ‘Need to maintain energy’: Harmanpreet Kaur ahead of one-off Test against Australia
--  ICG Result 2023: Know how to check Indian Coast Guard Navik result at joinindiancoastguard.cdac.in
--  20 stores in 23 years: Lotus Electronics Director shares insights into company growth, future plans
--  Dortmund rutscht in fundamenatele Krise – Projekt Terzic gescheitert?: BVB-Podcast 410
--  Cabinet approves National Marine Spatial Plan
--  Арзон дегани манфаатли дегани эмас: расмий Samsung смартфонини норасмийдан қандай ажратиш мумкин ва нима учун иккинчиси тавсияга лойиқ эмас?.
--  Nicht einfach in Gesamtschule umwandelbar: Schulamt kritisiert Schließung der Potsdamer Fontane-Oberschule
--  «Ҳомиладорлик ва туғиш нафақалари ҳар қандай ҳолатда ҳам тўлаб берилади» – Танзила Норбоева.
--  10 Best 65-inch QLED TVs with premium features and immersive experience: Top picks from OnePlus, Nu and more
--  Nesten i mål med TV 2s kostnadskutt
--  Usta oyuncu Turgay Tanülkü ünlü diziye dahil oldu!
--  Montelena, Cold Pursuit, Sonic Dash and Conscious Keeper impress
--  Míchel, Reyes Estévez y la Selección femenina de fútbol, entre los Silvestres del año
--  My son died at home and my family still lives there. I never had negative emotions about the house.
--  Is the ‘Wonka’ the new ‘Rachel’ for It boys? Timothée Chalamet’s hairdresser tells all to Tatler – and reveals how to recreate that artfully tousled Willy-esque look
--  Литовский перевозчик в 15 раз занизил стоимость ввозимых автозапчастей
--  İcma Ermənistan XİN-dən başçısının müavininə cavab
--  Umstrittene Mobilmachung: Kiew will Mangel an Soldaten lösen
--  藍批綠打壞兩岸關係 蕭美琴：澳、菲遭打壓「這2國有民進黨嗎？」
--  サムティ、ホーチミン市で高層マンション開発
--  المنتدى العربي الروسي بمراكش.. مساعٍ لتعزيز التعاون سياسيا واقتصاديا
--  Ex-president Desi Bouterse van Suriname krijgt in hoger beroep 20 jaar cel voor Decembermoorden
--  «Телефон и ноутбук я точно не потяну, у меня зарплата $300»
--  Das Christkind kommt nach Erlenbach
+-  경북신보재단 '대통령 기관 표창'…비대면 업무처리 프로그램 인정
+-  구미상의 경북FTA통상진흥센터, 알리바바 플랫폼 입점 8개사 지원
+-  경북도의원 12명 '우수의정대상' 수상
+-  안동시의회 시설관리공단 조사특위, 방만 운영 등 17건 지적…100일간 활동 마무리
+-  봉화군의회, 제261회 정례회 폐회
+-  김택환 경기대학교 산학협력단 교수, TBC '보물지도' 출연…23일 방송
+-  문경 점촌상여소리보존회, 한국민속예술제 경북도 대표 선정
+-  "성탄절엔 환상 가득 마술쇼"…영양문화원, 21일 저녁 공연
+-  Victim of Green River Killer Is Identified After Nearly 40 Years
+-  CSE, SEC revise corporate governance rules to drive capital market forward.
