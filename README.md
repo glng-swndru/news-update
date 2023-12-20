@@ -1,11 +1,51 @@
 # Latest News
--  Netanyahu ne pristaje na prekid vatre u Gazi
--  State budget passed with comfortable majority
--  الأمن ينظم حملة تبرع بالدم لصالح الخدمات الطبية الملكية
--  قصف صاروخي إسرائيلي باتجاه الأراضي السورية
--  وفاة بانفجار أسطوانة غاز بمخبز في جرش
--  Sister Wives’ Christine Brown Gives Husband David a Brief Lap Dance at Their Wedding Reception
--  Regresan desplazados a sus comunidades en Guadalupe y Calvo
--  Aprueban descuento del 50% al DAP en 2024
--  Esta es la grave sanción que podrías recibir si no regularizas tu auto chocolate durante diciembre
--  Ozigbo Commitment To Youth Devt As He Sponsors NYSC Carol Night In Anambra
+-  What have the stars done for humankind?
+-  Prepping for data from the Nancy Grace Roman Space Telescope
+-  How a program giving millions to residents to improve their neighborhoods also risks entrenching inequality
+-  Cher «Les Affaires», pour 2024 je souhaite...
+-  Pathways for enhancing sustainability and resilience in India's critical small dairy operations
+-  Türkiye'den Somali'ye yardım eli
+-  Osayi-Samuel: Bizim için en önemli şey galibiyetti
+-  BMGK'daki Gazze oylaması 3. kez ertelendi
+-  Пекинский аэропорт отказался принимать рейсы авиакомпании "Россия"
+-  Cengiz Ünder: Daha fazlasını yapacağıma herkes emin olsun
+-  I ovaj Božić mnogi će umirovljenici provesti sami
+-  Niemcy skonfiskują ponad 790 mln USD od Rosjan
+-  Residents in fire-threatened WA town urged to leave
+-  (VIDEO) Uhapšeno šest osoba u Beogradu, sumnja se da su novac ukraden od Eklstona i Lamparda ulagali u nekretnine u Srbiji
+-  U Ministarstvu vanjskih poslova organizirano predavanje za studente Pravnog fakulteta IUS
+-  Union Berlin bleibt eisern bei der Ablehnung von E-Sport
+-  이태우(대구시 대신동) 씨
+-  Huge solar flare disrupts radio transmissions on Earth
+-  Intel Layoffs 2023: What to Know About the Latest INTC Job Cuts
+-  12월 21일(음력 11월 9일) 오늘의 운세
+-  “Ajkule” ubjedljive protiv Francuske na “Sardinija kupu”
+-  Brand in Fertigungshalle nach Reinigungsmittel-Entzündung
+-  Chiapas se viste de blanco con la primera helada
+-  Блинкен заявил о планах США взаимодействовать с Китаем с позиции силы
+-  Fraud is a problem so big we need to start teaching children how to spot it in schools
+-  Dommer vil give livstid: To 16-årige fundet skyldige i drab på transkønnet pige i England
+-  Chemicals from wildfire smoke found in whales: UBC research
+-  Realizan Jornada Multidisciplinaria en Salud en Veraguas
+-  Le président de l’UBO vent debout contre la loi immigration : « Je ne peux que m’opposer »
+-  Varianti i ri i Covid po përhapet me shpejtësi
+-  В Ленинградской области осквернивший мемориал выплатит крупный штраф
+-  SNAPSHOTS: Soft schedule likely not what it seems for Maple Leafs
+-  Аксенов рассказал о высокой безопасности Крыма
+-  Treći protest ispred RIK-a: Tepić štrajkuje glađu, Aleksić traži da se izbori ponište
+-  Meghan mund të kthehet në familjen mbretërore , por me një kusht
+-  Tjetër protestë në Beograd, opozita nuk pranon fitoren e Vuçiç
+-  Под Свислочью могут построить предприятие по майнингу криптовалют
+-  Мактаб ўқувчиси Gentra'да уриб юборган боланинг аҳволи қандай?.
+-  Kış geldi yün yorgana talep arttı! Soğukları gören yün yorgana sarılıyor: Tek kişilik yün yorganın fiyatı ise bakın ne kadar?
+-  The Bold and the Beautiful spoilers: is Ridge being unfair to Zende?
+-  EIC: 1,2 milijarde eura za strateške tehnologije i tvrtke koje se povećavaju
+-  Will Levis won't practice Wednesday, Ryan Tannehill will start if Levis ruled out
+-  Treffen mit Projektleiterin: So entsteht das „China Lights Festival“ im Kölner Zoo – Bisher schon 250.000 Besucher
+-  Zuzana Čaputová víta dohodu na migračnom pakte, hovorí o začiatku spoločného riešenia
+-  Психолог Жукова рассказала петербуржцам, как сократить расходы на Новый год
+-  Beşiktaş, Hatayspor maçına 100. yıl formasıyla çıkacak
+-  Matt Booty vai substituir Bobby Kotick no comando da Activision
+-  చిరుత సంచారంపై పుకార్లు
+-  العراق ضمن الدول الاكثر استخداماً لـ سناب شات في 2023
+-  పదో తరగతి విద్యార్థి బలవన్మరణం
