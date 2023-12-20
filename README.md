@@ -1,11 +1,11 @@
 # Latest News
--  Serbiassa järjestetään osittaiset uusintavaalit vilppiepäilyjen vuoksi
--  Djurgårdens galna hemmaform fortsätter: "Laget som alla vill slå"
--  مفاجأة.. هذا يحدث للجسم عند تناول فص من الثوم قبل النوم مباشرة
--  Taraji P. Henson Breaks Down In Tears Over Pay Disparity In Hollywood: “The Math Ain’t Math-Ing”
--  Cena złota spadła. Zmiana sytuacji na rynku złota
--  Neden Diğer Memeliler Tıpkı İnsanlar ve Primatlar Gibi Âdet Görmez? (Biri Dışında!)
--  NASA'nın "Asteroid Avcısı" Teleskobu Ömrünü Tamamlıyor
--  Dünyanın En Büyük Teknoloji YouTuber'ı Marques Brownlee, 2023 Yılının En İyi Telefonlarını Açıkladı
--  Geleceğe Dönüş ile Akıllara Kazınan Efsane Otomobil DeLorean'ın Tasarımcısı, Tesla Cybertruck'ı Övdü: "Otomobillerin Picasso'su"
--  Paseo de Regalos Navideños en la casa cecualera
+-  “Por supuesto que no”: Ni pavo ni platillo especial tendrás si caes en el “Torito” esta Navidad
+-  Venezuela a Spojené štáty americké sa dohodli na výmene väznených osôb
+-  Netflix estrena una película que se encamina a ser un gran éxito mundial
+-  Frecciarossa contro regionale: il macchinista al telefono era sceso lasciando il treno "in folle"
+-  نتنياهو يستبعد وقف النار في غزة
+-  الدوري السعودي يرفض الاستسلام أمام لوكاكو
+-  النشامى يبدأ تدريباته استعدادا لكأس آسيا
+-  برشلونة يحقق فوزاً صعباً أمام ألميريا
+-  قوات الاحتلال تقتحم بلدة عتيل في طولكرم
+-  الغول.. من هو اسطورة التصنيع العسكري بالقسام؟
