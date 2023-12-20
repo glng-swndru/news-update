@@ -1,51 +1,51 @@
 # Latest News
--  Tudásmenet, sztrájk, Erasmus-botrány - ezek voltak 2023 januárjának legfontosabb történései
--  IT Campus Hiring To Drop At Least 50% In CY2024
--  BharatPe To Raise Rs 500 Cr In Funds, Appoints New Board Members: Report
--  ယူအန်စင်မြင့်၊ နိုင်ငံတကာနဲ့ အိမ်နီးချင်းဆက်ဆံရေး အတိုင်းအတာတွေ
--  مزايا تنافسية.. الموارد البشرية تطرح عشرات الوظائف في مختلف المناطق
--  CounterAttack: Uprising Is Coming to the Epic Games Store
--  Scopri l'importanza della prevenzione dermatologica
--  В Донецке при обстреле погиб мирный житель
--  Vain viidesosa huumehoidon asiakkaista on työelämässä tai opiskelee, kertoo THL
--  Vain viidesosa huumehoidon asiakkaista on työelämässä tai opiskelee, kertoo THL
--  Debati publik “(Jo) digjitalizimit të universiteteve shtetërore”
--  Świetne występy zawodników UKP “Ósemki” Legionowo oraz UKS “Delfin” Legionowo podczas zawodów „Bijemy Rekordy Pływackie” w Wyszkowie
--  Pesme koje su propale kad su objavljenje, a onda su godinama kasnije postale hitovi
--  Španci ne leže Zvezdi ove sezone - Real produbio probleme
--  Na ovom evropskom aerodromu nije mrsko čekati: Može se uživati u filmovima, biciklima, zelenilu
--  How to be safe when using the ATM this festive season
--  Holnapig ingyen begyűjtheted magadnak a GOG-ról a Lost Ruins-t
--  Ford отказался продавать свой последний автосборочный завод в Индии
--  NASA streams cat video from deep, deep space
--  Dita nis me mot të kthjellët, pasditja sjell vranësira të shpeshta. Si do të luhaten temperaturat sot
--  Une panne affecte certains services de Desjardins
--  "Obustavite svu pomoć Prištini"
--  Élő adásban vágnak disznót Balázsék, hatalmas bulival búcsúztatják Vadon Janit
--  Vukovi preplivali Drinu, meštani u strahu od čopora: Nisu viđeni u tom kraju 70 godina VIDEO
--  Kako su povezani dijabetes i prekomerna telesna težina?
--  Kathmandu, Rip Curl sales tank amid higher temperatures and lower budgets
--  Kathmandu, Rip Curl sales tank amid higher temperatures and lower budgets
--  Manifestimi i Ditës së Arsimit turq në UNB
--  Mathura: बीमारी से परेशान महिला ने मौत को लगाया गले... तो ई-रिक्शा चालक की हत्या का आरोपी बाल अपचारी गिरफ्तार
--  Schalke-Termine im Winter: Trainingslager und Testspiele im Überblick
--  بأمر الإدارية.. فصل موظفة بالتأمين الاجتماعي بسبب رشوة 500 جنيه
--  [조성진의 가창신공] 작사가‧프로듀서 최갑원…세계적 발라드 명가 꿈꾼다
--  L’Amour est dans le Pré : un Lorrain à l’affiche de la 19e saison
--  Tierheim in NRW: Plötzlich steht ein Mädchen vor der Tür – was sie im Gepäck hat, rührt zu Tränen
--  الشيخ مشعل الأحمد الجابر الصباح يؤدي اليمين الدستورية أميرا لدولة الكويت
--  Holiday travel peaks in Europe despite security warnings
--  Jeffrey Epstein’s 177 high profile pals to be NAMED in Prince Andrew accuser lawsuit as papers unsealed in 2024
--  Stormen Pia truer juletrafikken - følg med her
--  Stormen Pia truer juletrafikken - følg med her
--  금남로 앞 모인 단체들 “광주MBC 비정규직 문제 해결하라”
--  Prezantim i konceptit të ri dhe bashkëpunim i ZZHTI-së dhe Odës ekonomike
--  Montpellier-OM : à quelle heure et sur quelle chaîne voir le match ?
--  Lisieux : au Secours catholique, des cadeaux et un goûter de Noël pour les enfants
--  AZAL Pekinə uçuşlara başladı
--  Türkiye'de ahırdaki tüm buzağılara hemen bunu yapmak gerekiyor. İnek nüfusu patlama yapar. Acele edin
--  Украина осталась на следующий год
--  Uttarakhand: सीएम पुष्कर सिंह धामी का हेलीकॉप्टर फंसा, पुलिस दे रही धक्का, देखें वीडियो
--  De overwinning van Rikkie Kollé haalt het slechtste bij mensen naar boven
--  В Совфеде поддержали идею дать Росгвардии полномочия по охране школ
--  Tidningsbil stulen i natt – så påverkas utdelningen
+-  نصيحة من "حزب الله" لهذا الطرف!
+-  मंगल उदय: जनवरी 2024 में उदय होगा मंगल, 5 राशियों को मिलेगा अचानक धन, करियर में मिलेगा बेहतरीन मौका
+-  Άραβας σχολιαστής περιέγραψε τραγουδώντας το πέναλτι του Ονάνα της Έβερτον
+-  Plenković s Habijanom dolazi u Sabor: Pljuštat će pitanja zastupnika
+-  Κωνσταντέλιας: «Θα κάνει κι άλλη κίνηση η Γαλατασαράι», σύμφωνα με τους Τούρκους
+-  Έκρηξη ηφαιστείου στην Ισλανδία: Εικόνες «αποκάλυψης» με φλόγες και λάβα
+-  Miraculous Temple: मंदिर में मंत्रों का जाप करने पर यह शिवलिंग 360 डिग्री घूम जाता है, इस शिवलिंग की स्थापना स्वयं श्री राम ने की
+-  "على طريق القدس"... شهيدان جديدان لـ حزب الله
+-  협동조합 주인, 한국서부발전(주)과 함께하는 Project. 상생 사회적관광 활성화 사업 성료
+-  딥센트, 스마트 혁신가전으로 산업통산부 장관상 수상
+-  인도네시아 조폐공사, 디지털 보안 기술 상호 협력 위해 센스톤 방문
+-  아로씽킹, HBLab과 MOU 체결...국내외 에듀테크 교육 신시장 개척 나서
+-  한국산업지능화협회, 제 2회 중견 DX 챌린지데이 개최
+-  피엠인터내셔널 독일 '2023 리더십 컨벤션' 행사 성료
+-  딥엑스, 2024 CES에서 고성능 AI 서버용 ‘DX-H1’ 공개
+-  올윈에듀, 중소벤처기업부 주관 ‘중소기업 혁신바우처 지원사업’ 수행기관 선정
+-  (주)삼웅테크, 日 SA Inc.社와 일본 에스테틱 시장 진출 MOU 체결
+-  IT기반 퀵서비스 운영 기업 (주)그린플래닛, 벤처기업인증 획득
+-  3D 프린팅 기업 폼랩, 순수 실리콘 'SIlicone 40A' 레진 및 알루미나 ‘Alumina 4N’ 레진 출시
+-  본코스메틱, 제60회 무역의 날 '700만불 수출의 탑' 수상
+-  한국해비타트, LG유플러스와 함께 아동 그룹홈과 화재 피해주택에 주거환경개선
+-  الأردن يؤكد ضرورة وقف العدوان على غزة
+-  متحرش جنسي.. مرشح لخوض الانتخابات الرئاسية في روسيا
+-  طبيب منتخب البرازيل يؤكد غياب نيمار عن كوبا أمريكا 2024
+-  이인화 "불능상태 빠진 남양주 지역정치 청산에 앞장 서겠다"
+-  남양주소방서(서장 조창근) 김윤석 소방교, 경기도 베스트 친절 공무원에 선정
+-  백현종 의원, ‘경기도의회 도시환경위원회 행정사무감사 우수위원상’ 수상
+-  조안면 물의정원 일원, 환경부 공모 ‘생태계보전부담금 반환사업’에 선정
+-  남양주시, '평내 체육문화센터 건립 사업' 12월 26일 착공
+-  남양주시, 2023년 연말 청렴 캠페인 실시
+-  백경현 구리시장, 소상공인연합회 ‘목민감사패’ 수상
+-  구리시, ‘자원순환 교육센터’ 개소
+-  지방시대 실현할 경기도지방시대위원회 ‘첫발’
+-  오후석 행정2부지사, 별내선 내년 개통 준비 상황 점검
+-  경기도, 기획부동산 의심거래 조사 추진. 불법행위자 273명 적발
+-  Rádiók fogtak össze a daganatos beteg gyermekekért
+-  Ausverkauf bei Bäcker Geck in Haibach: Zum Jahresende ist Schluss
+-  Blackpink Release Trailer for Virtual Reality Concert With Meta
+-  الدولار يُعاود ارتفاعه بعد استقرار: هل بدأ العمل بمنصة "بلومبرغ"؟
+-  +++ Eilmeldung +++: Durchbruch in Verhandlungen: EU-Mitgliedsstaaten und EU-Parlament einigen sich auf Asylreform
+-  +++ Eilmeldung +++: Durchbruch in Verhandlungen: EU-Mitgliedsstaaten und EU-Parlament einigen sich auf Asylreform
+-  NASCAR Driver Chase Briscoe Brings Christmas Cheer for 700 Kids in Incredible Gesture
+-  의정부시, 궁촌교‧동막교의 스마트한 변화, 교량하부 ICT 쉼터 구축
+-  가평군, 내년부터 학교 수도 요금 톤당 110원 인하
+-  청도군, 경북 시군 가축방역평가 우수상 수상
+-  평택시, ‘임금님 만나러 가는 길’ 프로그램, 2년 연속 문화재청 우수사업으로 선정
+-  포스코그룹, 정기 임원 인사 단행…김지용 미래기술연구원장 사장 승진
+-  Top projekty, do ktorých sa zapájajú tisíce Slovákov: Toto im odkazuje Lidl!
+-  Na Gérarda Depardieua sa to sype: Ďalšie obvinenie zo znásilnenia a... Už dostal prvé tresty!
+-  [ŽT] „Vyksta ketvirtasis veiksmas.“ Galingas pareiškimas. Ką skelbia Prancūzija ir JK
