@@ -1,51 +1,51 @@
 # Latest News
--  뱅크샐러드, 2023년 금융 서비스 이용 고객 데이터 분석 결과 공개
--  KCC정보통신 권혁상 대표, 마약 근절 ‘노 엑시트’ 캠페인 동참
--  에스트래픽, 태그리스 활용 서울지하철 스피드개집표기 사업 수주
--  엔텔스, 스마트시티 안전서비스 특허 획득…AI 서비스 사업 본격화
--  Korea, Japan agree to expand cooperation on digital shift, financial innovation
--  N. Korean economy shrinks for 3rd consecutive year in 2022
--  SK Broadband launches AI-based IPTV service
--  Suzy in hanbok to light up Times Square on Christmas Eve
--  Middle-aged people earn 1.5 times more than younger population in 2022
--  BOK sees inflation slowing down to 2% late next year
--  Milletvekilinden yabancıya konut satışına yeni kriter getirilsin önerisi!
--  2023 Necip Fazıl Şiir Ödülü Sahibi Günvar: Necip Fazıl statükoya karşı mücadelesiyle bayraklaşmış bir isimdir
--  Every Starter Pokemon location in Pokemon Scarlet & Violet’s Indigo Disk DLC
--  Sonia Gandhi: ప్రజాస్వామ్యం గొంతు నొక్కారు.. ఎంపీల సస్పెన్షన్‌పై సోనియా మండిపాటు
--  The safest small US cities and towns are in the Northeast, new study finds
--  Pawan Kalyan: మంగళగిరి పార్టీ కార్యాలయంలో పవన్ కళ్యాణ్
--  Tajna ručka s Tuđmanom koji je promijenio Hrvatsku: ‘Totalno nas je nabrijao’
--  Three dead after single-vehicle crash in New South Wales
--  Triple-Zero whistleblowers say embattled service riddled with issues
--  콘진원 내년 화두는 ‘퍼플 오션’…“콘텐츠 문화강국 실현 노력”
--  [취재수첩] 공정위 플랫폼 규제법으로 ‘유튜브 천하’ 빨라진다
--  카카오 김범수 “개발자들, 기술 통한 선한 임팩트 경험하길”
--  국가 전략기술 R&D 인력 투 트랙으로…공통·특화 '따로' 양성
--  NHN데이터-바이브컴퍼니, 올해 트렌드 담은 ‘세상의 취향 2023’ 리포트 공개
--  KCC정보통신 권혁상 대표, 마약 근절을 위한 ‘노 엑시트’ 캠페인 동참
--  "올해 디지털 수출 116억원"…과기정통부-기업 간담회
--  KBO 10개 구단, 샐러리캡 상한액 지켰다… ‘111억8175만원’ 두산, 최다지출
--  Върховният съд на Колорадо забрани на Тръмп да се кандидатира за Белия дом - Труд
--  Дубль Ничушкина не спас «Колорадо» от поражения в матче с «Чикаго»
--  Fire truck rolls as Toodyay residents urged to evacuate
--  IndusInd Bank Considering Sale Of 2.86% Stake In Nippon AMC For Rs 762 Cr In Block Deal: Sources
--  RBI Strengthens Regulations On Banks, NBFCs' Investments In Alternative Investment Funds
--  Loše vijesti za Zelenskog i Ukrajince: Američki Senat neće glasati o paketu pomoći
--  NST: Малайзия запретила Израилю использовать свою портовую инфраструктуру
--  Қорақалпоғистонда оиланинг 5 аъзоси ис газидан захарланиб вафот этди
--  "วันนอร์" มอบ "พิเชษฐ์" ถกกำหนดวันพิจารณางบฯ 67 วาระแรก
--  A médiapluralizmust és a szerkesztőségi függetlenséget támogatja az EU új szabályozása
--  Israel-Palestine conflict: UN Security Council faces fresh delay
--  New Telecom Bill Divides: Telcos Cheer Legislation but Rights Groups Sound Alarm
--  Канада планирует запретить продажу бензиновых и дизельных автомобилей к 2035 году
--  계명대, ‘미래 기계·로봇·모빌리티 3D 디자인’ 교내 공모전 개최
--  안성시, 탄소중립·녹색성장 기본계획 수립 최종보고회 개최
--  의성군, 경북도 ‘2023년 농촌활력평가’서 대상 수상
--  거창군, 승진자·신규자 ‘반부패·청렴교육’ 시행
--  성남시의회, 제290회 임시회 의원발의 조례안 입법예고
--  성남시의회, ‘3분 조례- 김윤환 의원 편’ SNS 통해 공개
--  한국가스공사, ‘가스 산업 안전문화 실천 결의대회’ 개최
--  익산소방서, 시민과 함께 해온 75년 '백서' 발간
--  전북금연지원센터, 제4기 지역금연 민간보조사업 수행기관 재선정
--  딩동댕어린이집, 경기도 광주시 광남2동에 이웃돕기 성금 기탁
+-  '마약 무혐의' 지드래곤 측, 기자회견 연다 "본인은 불참"
+-  김보라, 커다란 눈망울
+-  장동윤, 꽃받침도 훈훈
+-  장동윤 이주명, 선남선녀 비주얼
+-  이주명, 예쁜 손인사
+-  진실 밝혀지나… '김하성 공갈-협박 혐의' 임혜동, 경찰 소환 조사
+-  رئيس الحكومة يشيد بالنتائج الإيجابية لبرنامج تقليص الفوارق المجالية
+-  جراء شراسة المعارك بغزة.. 500 جندي إسرائيلي أصيبوا بصدمات نفسية
+-  올겨울 역주행 캐럴! 엑소 ‘첫눈’ 챌린지 모음.zip
+-  Slowakei: Große Proteste gegen geplante Strafrechtsreform
+-  ما حكم التفاؤل والتشاؤم بالأشخاص في البيع والشراء؟ "الخثلان" يوضح
+-  Sports scoreboard for Tuesday, Dec. 19, 2023
+-  Την διατήρηση των 156 σχολικών επιτροπών αποφάσισε η δημοτική αρχή του Δήμου Ρόδου
+-  [단독]삼성디스플레이 성과급, 기본급 100% 받는다
+-  Rektor UII Sampaikan 4 Poin Sikap atas Perkembangan Demokrasi Saat Ini
+-  নির্বাচন সুষ্ঠু না হলে এর দায় সরকারের ওপরেও পড়বে
+-  ബഷീർ പെരുമ്പാവൂരിന് 'ഓർമ' യുടെ യാത്രയയപ്പ്
+-  Coyotes rally past Senators 4-3 to spoil Martin's return
+-  [포토]여야, '2024년도 예산안 처리 합의...21일 본회의 처리'
+-  مجلس النواب يستمع لخطاب موازنة 2024
+-  هل يمكن للحامل تناول مضادات الاكتئاب؟
+-  (الموت الفجائي) يخطف 5 فنانين في 2023
+-  الفيفا يدافع عن النظام الجديد لكأس العالم للأندية
+-  عصير الشمندر يدعم علاج مرضى الرئة
+-  دراسة: (البروبيوتيك) يقاوم فيروس كورونا الحاد
+-  الصحة العالمية تحذر من انتشار الأوبئة بغزة
+-  3 أمور إذا فعلتها أهلكتك.. علي جمعة يحذر منها
+-  ما حكم التهنئة بالسنة الميلادية الجديدة ؟
+-  Dobos Evelin mesebeli helyre utazott a párjával a Sztárbox után: így turbékolnak a szerelmesek – fotó
+-  หอการค้าเชียงใหม่ ร่วมกิจกรรม “โครงการสภากาแฟ”
+-  ศาลสั่งจำคุก "ลุงพล" 20 ปี คดี "น้องชมพู่" ยกฟ้อง "ป้าแต๋น"
+-  “ราชทัณฑ์” โบ้ย “ทักษิณ” นอน รพ.ตร.หลังครบ 120 วัน “ดุลยพินิจหมอ”
+-  [포토]여야, '652.7조 2024년도 예산안 처리 합의'
+-  Nieuw azc in Dongen zal niet de laatste in de regio zijn, ondanks PVV-winst: ‘Maar het sentiment in de samenleving is duidelijk’
+-  Chelsea: un fan entre sur le terrain pour s’en prendre au gardien de Newcastle
+-  Ayuso introducirá nuevos contenidos en las aulas: más Constitución, Historia y defensa del ejército
+-  Socceroo Luongo retires ahead of Asian Cup
+-  Raport: Liczba mobilnych kart zbliżeniowych Google Pay, Apple Pay i HCE – III kw. 2023
+-  W Chinach stopy ponownie bez zmian
+-  Παν. Τοκούζης, πρόεδρος ΣΕΤΚΕ: Προτείνεται η ένταξη των καταλυμάτων στο σύστημα κατηγοριοποίησης
+-  "이강인은 팀에 매우 중요한 선수! 그는 모든 걸 갖추고 있어"...LEE 향한 비판 정면 반박한 엔리케 감독
+-  타케시 코치 6년 만에 복귀...KIA, 2024시즌 코칭스태프 확정
+-  'Here We Go' 로마노 독점 보도! 라이프치히, 나폴리 시절 '김민재 前 동료' 영입 위해 356억 제안
+-  Nederlandse consument weer minder negatief gestemd
+-  Aurubis erzielt gutes Gesamtjahresergebnis von 349 Mio. € trotz Sondereffekten aus kriminellen Handlungen
+-  Bekerwinst is voor Feyenoord de enige reële route naar de Coolsingel: ‘Dat brengt energie in de ploeg’
+-  Bekerwinst is voor Feyenoord de enige reële route naar de Coolsingel: ‘Dat brengt energie in de ploeg’
+-  Chief Minister: వరద బాధిత ప్రాంతాల్లో మరికొన్ని హెలికాప్టర్లు
+-  授予佳沛的 "单一窗口 "法定出口权 在全球水果市场上是独一无二的
+-  突发！奥克兰这座火山发生火灾！3男子纵火被捕
