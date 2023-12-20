@@ -1,11 +1,11 @@
 # Latest News
--  I calciatori del Torino in visita all’ospedale Regina Margherita
--  Anuncian traslado de la tuneladora que excavará el túnel de la Línea 3 del Metro
--  Mariah Carey is white-hot in $2,500 Prada puffer coat in Aspen amid Bryan Tanaka breakup rumors
--  متي سيحسم ألونسو قراره النهائي بشأن خضوعه للعملية الجراحية؟
--  جدول ترتيب الدوري السعودي قبل انطلاق الجولة 18
--  Complaint alleges developer suppressed info to obtain RERA registration
--  أمين عام محلي أبين يفتتح عدد من الوحدات الصحية بمديرية خنفر
--  L’histoire sordide de Chance Comanche, ancien joueur de G League qui a tué une femme de 23 ans à Las Vegas
--  Jenna Bush Hager and Hoda Kotb Hilariously Fail Gen Z Slang Quiz on ‘Today’: “Never Heard It”
--  Gen Z is obsessed with dating ‘icks’ — but they could ruin future relationships, experts warn
+-  Pakistan- Islamabad Earthquake: पाकिस्तान के इस्लामाबाद में भूकंप के तेज झटके, 5.8 की तीव्रता से हिली धरती
+-  Risk adjusted net present value: What is the current valuation of Ocular Therapeutix’s Axitinib?
+-  Xildhibaano Mucaarad ku ah Dowlada oo eedeyn ba’an u jeediyay Ra’iisulwasaaraha
+-  Christmas spirit among waste collection staff
+-  Kanye West Is Asking $53 Million for His Tadao Ando-Designed Malibu Home
+-  Volkswagen löi lukkoon 10 miljardin euron matokuurin
+-  Reemtsma-Entführer Drach soll nie wieder frei sein: Staatsanwaltschaft fordert Maximalstrafe
+-  El Mesón Sándwiches busca crecer en el estado de la Florida
+-  Ex-employees blast Instagram chief Adam Mosseri’s ‘mixed record’ on youth safety: report
+-  Çocuğa 'istismar' Davasında Akılalmaz Savunma: 'Yaşlı-Başlı Adamım'
