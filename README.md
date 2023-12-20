@@ -1,51 +1,51 @@
 # Latest News
--  Kolme golfaria sai kymppitonnin joululahjan - Mikko Korhosen perustamalle rahastolle uusi nimikkokisa
--  Continuan los trabajos de terracería y proyectos de mejoramientos en calles de Utila
--  Yeşilova Esnaf Spor Kulübü Başkanı Ahmet Ulaş'a silahlı kişilerce saldırı! Hastaneye kaldırıldı
--  Estos son los países africanos a los que el gobierno Petro eliminó visa de tránsito
--  قطر تضع موازنة 2024 على أساس سعر برميل النفط عند 60 دولارا
--  Reiner Fuellmich angeklagt: Anwalt soll eine Million Euro Spenden abgezweigt haben
--  El Ayuntamiento de Córdoba pide permiso al juez para retirar la chabola de Cercadilla
--  HDZ napustio sjednicu: Blokirano imenovanje generala OSBIH
--  Lanisek dostał nagrodę za to, co zrobił dla Kubackiego! Polak zrobił mu niespodziankę
--  Percy Jackson debuts with near perfect Rotten Tomatoes score
--  女子やり投げ 北口榛花「アスリート・オブ・ザ・イヤー」に
--  Oude foto's en dia's gezocht voor de Seniorendagen in Groot-Ammers
--  Leerlingen doorleven verhaal van Scrooge op obs De Knotwilg in Nieuwpoort
--  FAVBET підтримали зустріч Національної платформи доброчесності спорту з представниками хокейної спільноти України
--  Ukraine: Vertrauen in Selenskyj sinkt – Chance für Armeechef?
--  Akcija Bolja cena snizila inflaciju
--  Akcija Bolja cena snizila inflaciju
--  الإحصاء: انخفاض الحوادث المرورية الجسمية في المملكة بنسبة 6.8%
--  ملتقى الحكومة الرقمية.. "المرور" تحقّق التميّز بخدمة مبايعة المركبات عبر "ابشر"
--  عاجل.. السجن 5 سنوات إحداها.. مكافحة التستر تقرر 5 عقوبات رادعة بحق المخالفين
--  Cornwall dog owner ordered to pay £1,500 for not picking up poo
--  Feast your eyes: Exciting slate of new restaurants, entertainment concepts coming to DFW in 2024
--  Elite Life FSM'de yüzde 40 peşinatla! 18 ay sonra teslim!
--  Lara Álvarez se despide emocionada de 'GH VIP' y anuncia el estreno de su nuevo proyecto
--  Homem é preso por armazenar pornografia infatno-juvenil
--  Неймар пропустить Кубок Америки через пошкодження
--  NENAD ALEKSIĆ ŠA DOŽIVEO NERVNI SLOM - BEŽI IZ ELITE Žestoko se sukobio sa Mionom, ona ga spustila pred svima: "Ne pravi idiota od sebe"
--  PSX stayed bearish, loses 385 more points
--  Knock-off North Face jackets 'worth £5k' seized from Midlands stall
--  SECP warns public against illegal investment schemes of Prime Zone
--  Schnee an Weihnachten in Ihrer Stadt? So hoch (oder niedrig) ist die Wahrscheinlichkeit
--  Pronóstico : mar de leva en los balnearios de todo el Caribe colombiano
--  ‏مليار درهم من «أبوظبي الإسلامي» لدعم مشاريع «الدار» المستدامة
--  La Diputación de Valencia redirige la mitad de las ayudas a una entidad antiabortista a otra implicada en el robo de bebés
--  Brad natural sau artificial- care e de fapt mai ecologic?
--  礦工寮就是礦工的眷村 ！鍾年晃：稱為「違建」是莫大污衊！
--  Bapanas Explores Cooperation with India to Bolster Food Availability
--  Russia Jails Left-Wing Activist for ‘Extremism’ After Transfer From Kyrgyzstan
--  Ermittlungen zu vermeintlicher Nadelstich-Attacke auf AfD-Chef Tino Chrupalla eingestellt
--  "TRUJU KRV NAŠE ZEMLJE" Tramp šokirao novim izjavama, optužili ga da koristi nacistički rečnik: "NIKAD NISAM ČITAO HITLEROVU KNJIGU"
--  Cattleya’s Center logra beneficiar a sus miembros con carnets para personas con discapacidad
--  مسؤول فلسطيني: الاحتلال مضطر للقبول بمبدأ الكل مقابل الكل في أي صفقة تبادل
--  Fenerbahçe-Galatasaray derbisinin bilet fiyatları cep yaktı: En ucuzu bin 100 TL
--  總統政見會》批柯還債570億不踏實 賴清德：別再說最重財政紀律
--  9 yaşındaki kızına cinsel istismarda bulundu! İşte verilen ceza
--  بيربوك عن الاتفاق على إصلاح نظام اللجوء: ضروري للغاية وطال انتظاره
--  An Weihnachten in NRW einkaufen: Diese Öffnungszeiten gelten für Supermärkte
--  Protokol o lažnim dojavama: Država prebacuje odgovornost na prosvetare
--  Scorpio 21 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  TECNO’s Upcoming SPARK 20 Pro+ to Feature Sleek Double Curve Design and 108MP Camera for Gen Z Consumers
+-  Citypress | Corruption-implicated Lotteries Commission official's R1.7m pension frozen by SIU
+-  News24 | Suspected robber killed in shootout with security guards after crashing stolen Range Rover on N1
+-  Beşiktaş, 2024'e yeni hocayla girmek istiyor! Çalımbay'ın yerine 2 aday var
+-  Aslı Enver 5 aylık kızı Elay'la yolculuk yaptığı anları paylaştı!
+-  Trendyol Süper Lig | Kayserispor-Fenerbahçe maçının ilk 11'leri
+-  Nečakaný krok v Markíze: DLHOROČNÁ tvár KONČÍ!
+-  Erlensee: Busticket kostet nur noch 1 Euro
+-  Bhajan in Delhi Metro: दिल्ली मेट्रो में लड़कों ने गाया भगवान का भजन, वायरल VIDEO की जमकर हो रही तारीफ
+-  Himachal Pradesh Receives Just 6.40% of Estimated Loss from Centre, CM Sukhu Claims
+-  Galatasaray'da gündem yeniden Giannis Konstantelias
+-  7 yılda 7 milyon kullanıcı! Avrasya Tüneli ülke ekonomisine 1,5 milyar dolar katkı sağladı
+-  CANLI ANLATIM: Kayserispor-Fenerbahçe
+-  Sabiha Gökçen Havalimanı'nda hazırlıklar sona erdi
+-  Ukrayna, bin km ve üzeri hedefi vurabilecek SİHA'lar üretmeyi planlıyor
+-  Cukup Pakai 2 Bahan Dapur, Lap yang Berminyak Bisa Bersih Tanpa Noda dan Tidak Bau Apek
+-  Just In: Lagos Orders Trucks, Tankers Parked On Apapa-Oshodi Expressway To Vacate Immediately
+-  '138만 유튜버' 핏블리, 2천만원 기부…"나눔에 동참해서 기쁘다"
+-  مكتبة الإسكندرية تحتفل باليوم العالمي للغة العربية
+-  بقرار من شيخ الأزهر.. عباس شومان أمينًا عامًّا لهيئة كبار العلماء
+-  داليا تطلب خلع زوجها: "ضربي بالشبشب وطردني.. نسيت انزل أكل لأمه"
+-  المشدد لـ8 متهمين باستعراض القوة وقتل شخص بالقليوبية
+-  أمر أميري كويتي بقبول استقالة الحكومة واستمرارها في تصريف الأعمال
+-  إيران تعلن تجهيز قوارب بصواريخ ذكية لرصد السفن الأمريكية في المنطقة
+-  ورد النيل يغطي شواطئ بورسعيد.. ما القصة؟- صور
+-  مجلس النواب يوافق على مشروع تصنيع وحدات قطار مترو الأنفاق
+-  "التموين" تتعاقد على 50 ألف طن سكر خام مستورد
+-  تظهر على الجلد.. احذر 3 علامات تشير إلى أمراض القلب
+-  पार्टनर के खर्राटों ने हराम की है रात की नींद! तो यूज कराइये 199 रुपये की ये डिवाइस
+-  한방 첩약에 건강보험 적용…2026년까지 연장한다
+-  Are doctors open on Christmas Day?
+-  ارتفاع سعر خام برنت إلى 80 دولارا للبرميل بسبب التوترات في البحر الأحمر
+-  الأمين العام المساعد يواسي آل المغاربي
+-  Анита Мейзер с нов здравословен проблем
+-  В Москве к девяти годам приговорили мужчину, отправившего девушке в подарок взрывчатку
+-  Prisión preventiva a exfugitivo de Operación Discovery 2.0 detenido en aeropuerto
+-  Son Mendoza, Merino y Reyes, nuevos magistrados
+-  캡틴 SON 아시안컵 차출 앞둔 토트넘...공격의 열쇠는 '이 선수'에게 있다
+-  Destituyen a jueza en Zulia por incitar a los funcionarios a sobornar para agilizar trámites
+-  OIT proyecta un escenario laboral «altamente complejo» en América Latina y Caribe
+-  Pakistani 'honour killing' parents are jailed for life in Italy over the murder of their daughter, 18, who had her neck broken when she refused an arranged marriage
+-  Fördermittel für neue Bewegungsprojekte
+-  LRT Jabodebek Adds More Trips to Welcome Holiday Season
+-  В Москве состоялась жеребьевка "Игр будущего"
+-  Peruda 6,1 bal gücündə ZƏLZƏLƏ
+-  Factbox - Wat staat er in het nieuwe migratie- en asielakkoord van de EU?
+-  Factbox-Was beinhaltet das neue EU-Migrations- und Asylabkommen?
+-  Desi Bouterse (78) moet definitief boeten voor zijn rol bij de Decembermoorden: 20 jaar de cel in
+-  Realus nedarbas Latvijoje lapkritį padidėjo iki 6,4 proc.
+-  Aktien New York Ausblick: Anleger nach Rekordlauf erst einmal vorsichtiger
+-  MER-C: Israel Menjadikan Rumah Sakit Indonesia di Gaza sebagai Markas
