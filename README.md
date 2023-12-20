@@ -1,51 +1,11 @@
 # Latest News
--  Is Ariana Grande Shooting A New Music Video?
--  Microsoft nevylučuje bezplatný Xbox Cloud Gaming sponzorovaný reklamami
--  ‘Echo’: Everything We Know About The New Marvel Series Including The Release Date, Cast, Trailer & More Info
--  איקאה העולמית: "המצב בתעלת סואץ יגרום לעיכובים ומחסור באספקת מוצרים"
--  ‘వైసీపీలో అక్రమార్కులకే అధిక ప్రాధాన్యం’
--  Svagt plus på Wall Street – kryptobolag stiger
--  Inflation Is Harming Consumption And Is Likely To Stifle India's Growth: RBI
--  రెండు ఆలయాల్లో చోరీ
--  Expectación por las obras de Luzuriaga
--  Jabier Muguruza: «Gabezian gelditu beharrean, egunero abiatzen da Jajatxo abenturak bizitzera»
--  La San Silvestre cumple 50 años
--  SDP-u LGBTIQ glavna politika?! Evo čime se sada hvale pred izbore
--  5 priežastys, kodėl šaltuoju sezonu priaugame svorio – vaistininkė patarė, kaip tai kontroliuoti
--  [Vokietija!] 2,5 karto pigiau nei Lietuvoje įspūdingų galimybių buitinis aliejaus spaudimo presas - paskutiniai vienetai (Video)
--  [ŽT] „500 milijonų.“ Monstriška jėga. Ukraina ruošia armadą
--  [ŽT] „Dešimtys tūkstančių.“ Husiai mobilizuoja žmones. Kas vyksta (Video)
--  Amsterdamo valdžia pasiūlė naują vietą „raudonųjų žibintų kvartalui“
--  Ne vėliau kaip 2026 m. Estija skelbia Ukrainos pergalės kare planą
--  [ŽT] „Tai reiškia, kad Ukraina laimi. Tai labai rimta operacija...“ Zelenskis skelbia sensaciją
--  [ŽT] „1 000 000. Žinau, kad taip bus.“ Rusų laukia košmaras. Zelenskis skelbia, ką 2024 m. padarys Ukraina
--  „Orbanas be ES ir NATO.“ Ar bus reikalingas Putinui (Video)
--  26 నుంచి మున్సిపల్‌ కార్మికుల సమ్మె
--  Ministri financií EÚ sa dohodli na reforme Paktu stability a rastu
--  The best tablets of 2023: Expert tested and reviewed
--  Igrač kolabirao na terenu pa se utakmica prekinula, PL obavijestila da će se ponoviti
--  Đilas o glasačima iz RS: Nemate pravo da odlučujete u Beogradu
--  Совбез ООН перенёс голосование о гуманитарной резолюции по Газе на 21 декабря
--  ఐదేళ్ల బాలిక కిడ్నాప్‌
--  Duvnjak otvorio dušu: Uništili su mi snove. Kad legnem u krevet, vrati mi se film
--  సమస్యాత్మక పోలింగ్‌ కేంద్రాలకు భద్రత పెంచండి
--  Premier League-kamp skal starte forfra efter hjertestop
--  Premier League-kamp skal starte forfra efter hjertestop
--  CGES upozorava: Energetski sistem ne može da prihvati nove solarne...
--  뮌헨서 데뷔골 터뜨린 ‘괴물’ 김민재, 볼프스부르크 원정 선발 출전 [분데스리가]
--  «Решили бороться за свои права в УЕФА»: исполком РФС отказался от перехода в Азиатскую конфедерацию
--  Gledatelji negodovali zbog serijala Andrije Jarka: ‘Mlati praznu slamu, sve već viđeno’
--  Two arrested after stolen credit card used at downtown business
--  Tio miljarder till vården – en besvikelse enligt S
--  మందుల ధరలు తగ్గించాలి
--  Trans-Canada Highway: Vehicle incident impacting traffic near Revelstoke, B.C.
--  A Mercedes "nem bánkódhat" folyamatosan azon, hogy kikaptak a Red Bulltól
--  حماس تعلق على زيارة هنية إلى القاهرة.. وتؤكد: لا تفاوض حول الأسرى إلا بوقف العدوان
--  Column: The year America burned, literally and figuratively
--  Column: The year America burned, literally and figuratively
--  Mexico's fliers: An ancient tradition from 100 feet up
--  Mexico's fliers: An ancient tradition from 100 feet up
--  In India's embattled news media, women are fighting to be heard
--  China Earthquake: In Bitter Cold, a Struggle to Help Survivors
--  China Earthquake: In Bitter Cold, a Struggle to Help Survivors
--  French Parliament Approves Immigration Overhaul
+-  Dutch central bank leader: No reason for ECB to quickly reduce interest rates
+-  Why your coffee is going to get more bitter and expensive
+-  تأجيل التصويت على مشروع قرار بمجلس الأمن بشأن غزة
+-  هآرتس: الناطق باسم الجيش يكذب والإسرائيليون يحتاجون أكاذيبه
+-  The Rock Buys Toys For Every Kid Shopping At FAO Schwarz
+-  Ministri financií Únie sa dohodli na reforme Paktu stability a rastu, má pomôcť zadlženým
+-  Travis Scott Nearly Gets Knocked Over During Concert by Giant Floating Head Prop
+-  ΤΤ Ρίγα - Ολυμπιακός 70-65: Το εμπόδιο του πρώτου αγώνα ήταν τεράστιο
+-  75 يوما على عدوان الاحتلال.. حصاد مرعب لحرب الإبادة الجماعية في غزة
+-  Сливен пак остана без план- сметката за чистота
