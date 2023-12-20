@@ -1,51 +1,51 @@
 # Latest News
--  نائبة بالكنيست: نتنياهو أصبح حجرا في عنق الدولة ويجب إقالته
--  Paslaptingi signalai iš kosmoso darosi vis keistesni. Ką atrado mokslininkai
--  TOP 5. Supermaistas smegenų sveikatai
--  Seimas nusprendė: teks apdrausti galingesnius paspirtukus bei žoliapjoves
--  [ŽT] Soc. tinklai šėlsta. „Geriausia šventinė dovana orkams!“ Aukštosios mados namai „sukūrė“ uniformą rusams (Foto)
--  Kodėl žmogus nuolat nori valgyti. Tai verta perskaityti
--  „Dešimtmečius nematytas teroras.“ Kas nutiks Ukrainai, jei laimės Rusija
--  Domovi zdravlja krcati, deca masovno ne idu u školu i vrtić
--  Aumentar las tarifas, falta de visión: WTTC
--  Former USFK base in Incheon fully returned to S. Korea
--  All 10 KBO clubs stay under salary cap in 1st year of implementation
--  Dr Jitendra Singh lauds change in work culture following a series of Governance reforms brought under the leadership of Prime Minister Shri Narendra Modi in the last over nine years
--  Polizei nimmt zwei Tatverdächtige in Lünen und Kamen fest: Nach Geld-Betrug von zwei Senioren
--  Yabancı uzmanlar: MB para politikasının sıkılaşma döngüsünde sona yaklaşmış olabilir
--  Yeni yılda yapay zeka ve e-dönüşüme odaklanılacak! Ticaret Bakanı Bolat'tan açıklama
--  Hüseyin Aytekin'den Emre Belözoğlu açıklaması
--  3 milyardan fazla insan sisteme dahil değil! Türkiye başat rol oynayabilir
--  "Kanlı Noel" katliamının 60. yılı... Tanıkları yaşadıkları acıları anlattı
--  Dünya basını Cumhurbaşkanı Erdoğan'ın ABD restini yazdı! Dikkat çeken İsveç detayı
--  Tüketici ve işverenler yeni yıla yeni düzenlemelerle girecek
--  YSK, propaganda serbestliği ve seçim yasaklarını açıkladı
--  Rıza Çalımbay, Beşiktaş'taki geleceği hakkında konuştu
--  Cüneyd Altıparmak yazdı: EYT'si iptal edilenler ne yapacak!
--  Кольское Заполярье попало в топ-30 трезвых регионов России
--  Gry komputerowe w Rosji będą cenzurowane
--  Inflacja w Wlk. Brytanii spowalnia mocniej niż oczekiwano. Rosną szansę na obniżkę stóp
--  Kazakhstan plans to build new reservoirs, recovating old ones
--  Gabriela Guillén acude a Urgencias tras la advertencia de Bertín Osborne
--  Соловьев заявил, что стоит ужесточить наказание за нападение на ветеранов СВО
--  [인사] 한국동서발전
--  Hairy Bikers' Dave Myers leaves fans in tears with an emotional health update as he shares unseen clips of his hospital treatment after his cancer diagnosis
--  Количество вагонов на нижегородских "Ласточках" увеличат в новогодние праздники
--  Максимальная стоимость платной парковки в Рязанской области составит 52,5 рубля
--  რეფინანსირების განაკვეთი შემცირდა, სესხების ნაწილი გაიაფდება
--  Quality education for persons with disabilities, a priority for FG – Commission
--  بھارتی اداکارہ رشمیکا مندانا کی غیر اخلاقی ویڈیو وائرل کرنے والے متشبہ افراد کا سراغ مل گیا
--  मर्निङ वाकमा निस्केका वृद्धको हात्तीको आक्रमणबाट मृत्यु
--  台灣第一大健身品牌明年元月上市！世界健身-KY 拓 12 店拚百億營收
--  “친구야, 온몸 문신하고 ‘전국구 깡패’ 되자”…조폭도 ‘1020대’ MZ 전성시대?
--  Воспитательница детсада в Петрозаводске предстанет перед судом за ожог малыша
--  Более 270 млн рублей помогли сохранить от мошенников сотрудники Волго-Вятского банка Сбербанка своим клиентам
--  6/45 LOTTO RESULT Today, Wednesday, December 20, 2023
--  iPhone／iPad／Mac版『バイオハザード RE:4』が本日配信！『ヴィレッジ』も含めた記念セールを開催
--  İsrailli rehine yakını: Erdoğan bize yardım etsin
--  QIAGEN-Aktie: JPMorgan hebt Ziel für QIAGEN auf 50 US-Dollar - 'Overweight'
--  Lilard: Neću da se pretvaram, znači mi rekord VIDEO
--  Hairy Bikers' Dave Myers leaves fans in tears with an emotional health update as he shares unseen clips of his hospital treatment after his cancer diagnosis
--  Loi immigration : la macronie à la recherche de son bouc émissaire pour justifier sa division
--  Biggest EV myths revealed – seven of the biggest misconceptions debunked
--  Goldman Sachs senkt Kursziel für Meyer Burger um mehr als die Hälfte - Firma «weiterhin gut aufgestellt»
+-  "시나리오 보는 순간, 강한 끌림"…김정현, 강력반 형사로 스크린 컴백했다
+-  페이커 등 롤드컵 우승팀 'T1 5인', '아는형님'에 뜬다 [공식]
+-  장윤정, 유통사 실수로 신곡 연습용 음원 공개 '어질어질'…"하아 이런 일이"
+-  탕후루 만들던 장원영, 언니 안유진에 "그래, 유진아" 무슨 일?…벌써부터 기대감 최고조→'1,2,3 IVE 시즌4' 온다
+-  임윤아, 시청자가 뽑은 올해의 배우…제28회 소비자의 날 시상식서 2관왕
+-  DGB금융, 주주 대상으로 사외이사 예비후보자 추천 받는다
+-  신동엽 이어 두번째 게스트는 성시경…"이소라, 대한민국에 너무 빨리 태어난 것 같아" [슈퍼마켙 소라]
+-  Sää kylmenee tuntuvasti – tammikuulle luvassa hyytäviä pakkasia
+-  IPL 2024: Full List Of England Cricketers Sold At Indian Premier League Auction
+-  ‘No such thing as overpriced in IPL’: Gujarat Titans coach Asish Nehra unsurprised by Mitchell Starc’s price tag
+-  Production d’électricité à partir des énergies renouvelables : Fin du conflit entre la STEG et les sociétés d’autoproduction
+-  علی امین گنڈہ پور کی جانب سے روپوشی ختم کیے جانے کا امکان
+-  Ahmed Hacheni pilote des initiatives pour une gestion efficace des déchets publics
+-  WHO warns mpox can spread across the globe again
+-  CLAT 2024: Counselling registration window closes today at consortiumofnlus.ac.in
+-  Pretoria propose d'inviter Moscou à la table des négociations avec l'Ukraine
+-  Minister urges Gombe lawmakers, executives to strengthen collaboration
+-  Israel está lista para una nueva tregua, según su presidente
+-  Rishi Sunak considered giving millions of Brits pre-paid debit cards during Covid crisis
+-  Abia Govt Directs LG Chairs To Remove All Political Billboards
+-  NVS phase 2 admit card 2023 released at navodaya.gov.in; How to download
+-  Explained: When is an incident declared a natural calamity?
+-  Mgn Art - enskild firma startar i Linköping
+-  «Медведев посинеет и лопнет»
+-  Маникюр Роберта Паттинсона на обложке журнала вызвал ажиотаж в сети
+-  Tarım ve Orman Bakanlığı 7 bin 158 personel alacak
+-  Karaman'da park halindeki otomobil yandı; 'kundaklama' şüphesi
+-  'Konyalı John Wick' yöre diliyle Anadolu'yu tanıtıyor
+-  Darphane'den 5 lira açıklaması
+-  Konya'da anne ve 10 yaşındaki kızı, yedikleri mantardan zehirlendi
+-  `Barbie` director Greta Gerwig, Noah Baumbach marry after 12 years of dating
+-  Maharashtra Oppn legislators wear black ribbons to condemn suspension of MPs
+-  Innbrudd hos bedrift i Ytre Arna
+-  Rize açıklarından çıktı! TPAO test etti, petrol olduğu açıklandı
+-  Police complaint against TMC MP for mimicry of Vice-Prez in Parliament complex
+-  Muere abatido por la policía tras disparar contra la casa de su excuñada en Girona
+-  이철규 의원, 특허청 특별사법경찰관 직무범위 확대 사법경찰직무법 국회 본회의 통과
+-  이양수 의원 대표발의, '등대 보존 및 활용에 관한 법률안' 국회 본회의 통과
+-  노용호 의원, 기업·농업 지방세 감면 혜택 등 담은 대표발의 법안 4건 본회의 통과
+-  논산딸기축제 글로벌화 가능성 `공인'
+-  지구의 사막화
+-  아버지가 꽃을 좋아하셨구나
+-  잃어버린 꿈을 찾아서
+-  Call of Duty 2025 offrira une suite légendaire à Black Ops 2 selon un rapport
+-  조길형 충주시장 CEO 리더십 대상
+-  화재대피안내 시스템 설치 협약
+-  “군 재정 어려움 군민과 함께 타파”
+-  음성품바축제 `전국 최고'
+-  음성군 골프장 지역상생 협력 간담회 개최
+-  금산삼계탕축제 특산물 소비촉진 호평
