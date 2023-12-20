@@ -1,51 +1,51 @@
 # Latest News
--  D. José Ornelas critica pressa na aprovação da lei da autodeterminação de género nas escolas
--  Costa diz que antigos líderes do PSD são "profetas da desgraça"
--  Pedro Nuno Santos: "Passos não percebeu que maioria do povo chumbou a sua governação"
--  Pedro Nuno diz que PS não precisa de começar do zero ao contrário da direita
--  O que se passa no caso das "golas antifumo"?
--  António Costa: "Podem-nos derrubar pela segunda vez", mas só PS garante estabilidade
--  Como as novas regras de eficiência energética podem impactar no preço das geladeiras
--  Ganjar Pranowo dan Mahfud Md Akan Berkampanye di Jakarta Hari Ini
--  Etapa brasileira do Circuito Mundial de Bodyboarding é eleita melhor do ano
--  UK Petrol Prices Hit a Two-Year Low Amid Drivers Contending Fluctuating Prices and Economic Uncertainties
--  PF prende 5 em investigação que colocou policiais no rastro de deputada 'madrinha da milícia'
--  ¿Las vas a poder llevar a tu casa? Estos serán los precios de las vacunas COVID en México
--  Gobernador de Texas autoriza expulsión de Migrantes
--  بتوجيه من ولي العهد.. وزير الدفاع يصل باريس في زيارةٍ رسمية
--  استشاري يحذر من خطورة الوجبات السريعة على صحة الأطفال
--  서해안에 최대 30㎝ ‘눈’…내일·모레 영하 20도 강추위
--  El hospital Insular está al 100% de su capacidad tanto en UCI como en planta
--  El Tribunal de Contratos Públicos tumba el concurso de Parques y Jardines de Telde
--  «Mis asesores para todo en Urbanismo, incluido Naturgy, son los técnicos y juristas municipales»
--  El Cabildo de Gran Canaria convoca las ayudas para el sector audiovisual
--  La gala de los Premios Canarios de la Música viajará a una isla menor de Santa Cruz de Tenerife
--  Ataques a navios no Mar Vermelho precisam parar, diz Casa Branca
--  Empresas tendrían que irse a paros técnicos de prolongarse el cierre al ferrocarril de carga en Piedras Negras
--  'Alguém fabricou um falso dossiê', sugere defesa de Alexandre Correa sobre novas denúncias de Ana Hickmann
--  Jason Momoa e Chris Hemsworth hanno litigato? Ecco il significato della “frecciatina” sui social…
--  Eduardo Coudet renova o contrato com o Internacional
--  Atletico slip up at home in Spanish league title race
--  Trump darf nicht bei Vorwahlen in Colorado antreten
--  Activistas impugnan ley antimigrante de Texas en frontera de EU y México
--  Incendie à Kaloum : les associations professionnelles de médias proposent gratuitement leurs services…
--  [포토] “우리 삶을 지켜온 산성을 남기고 싶었다” 사진전 ‘산성의 나라’ 개막
--  Oral health is health: Better access to dental care may have potential benefits beyond Canadians' mouths
--  В России разработали мобильное убежище от ядерных угроз
--  위장약 PPI제제 좋은 줄 알았더니 ···.
--  अगर आप सर्दियों में वजन कम करना चाहते हैं तो इन 5 तरह के आटे को अपनी डाइट में शामिल करें
--  Utemeljitelji HDZ-a održali sjednicu te dali punu potporu projektu izgradnje Kaznionice u Gospiću
--  Deion Sanders, CU Buffs crushed the transfer portal again. But what will it take for Coach Prime to give Colorado high school football recruits a look?
--  Pode anotar: O vermelho vai além do Natal e será tendência em 2024, diz expert em moda. 30 looks de famosas com a cor!
--  Fãs de Kelvin e Ramiro, de 'Terra e Paixão', instalam outdoors pedindo série do casal
--  Australia se alătură Uniunii Europene și NATO pentru a condamna atacurile rebelilor Houthi din Marea Roșie
--  Liga de Quito: Paolo Guerrero no continuaría para la siguiente temporada
--  Simeone: "No pudimos defender de la mejor manera lo que el Getafe provocó al final"
--  Napoli’s struggles continue with Frosinone cup humiliation
--  2nd ODI SA vs IND : కొట్టలేక.. పడగొట్టలేక!
--  مطار العريش يستقبل 5 طائرات مساعدات إغاثية لغزة
--  Conozca un lugar en donde cocinan los chicharrones en un estañón
--  Info Terkini Gempa M5,2 di Laut Guncang Morotai Maluku Utara, Tidak Berpotensi Tsunami
--  Con esta cifra de casos de dengue y toneladas de cacharros cierra el año Salud Ahome
--  Felipe Contepomi es el nuevo entrenador de Los Pumas
--  Donald Trump es inelegible para presidente en Colorado: Corte estatal lo saca de boleta primaria
+-  Katili Netanyahu için çember daralıyor! Yaralı askerler görüşmeyi reddetti
+-  Sokak ortasında silahlı saldırı: 1 kişi hayatını kaybetti
+-  Hooggerechtshof Colorado: Trump niet op stembiljet voorverkiezingen in 2024
+-  대전현대직업전문학교, VR 시스템 자동차 및 전기차 정비 학원 교육과정에 도입
+-  라이프스타일 뷰티 브랜드 논픽션, 신세계백화점 센텀시티점 팝업 스토어 오픈
+-  주식회사 푸른바다, 이탈리아 푸른꽃게 해외 수출
+-  No 'Firm Date' For Stopping The Boats, Admits British Prime Minister Rishi Sunak
+-  Colossal Costs and Insatiable Influencers: How One Cake Maker Is Weathering the Storm With Swagger
+-  Manchester City Midfielder Bernardo Silva Takes Aim At Intense Football Schedule
+-  How Climate Change Impacts Everyone - The Insidexpress
+-  George Clooney's Reflection On His Relationship With The Late Matthew Perry - The Insidexpress
+-  Maestro Producer Addresses Casting Backlash: Key Insights - The Insidexpress
+-  Home Alone 2 Star's Heartbreaking Near-Death Ordeal - The Insidexpress
+-  Netflix Announces Wednesday Spin-Off Starring Uncle Fester - The Insidexpress
+-  James Gunn's Latest Update On Superman: Legacy - The Insidexpress
+-  Paul Mescal's Adorable Dating Red Flag At A Restaurant - The Insidexpress
+-  Volcan en Islande: les images impressionnantes de l'éruption dans le sud-ouest du pays
+-  "Poutine doit perdre": David Cameron réaffirme le soutien à l'Ukraine lors de sa visite en France
+-  Présidentielle américaine 2024: Donald Trump jugé inéligible par la Cour suprême du Colorado dans cet État
+-  Intempéries en Australie: des crocodiles aperçus dans les rues inondées
+-  "Comme une scène de film": aux États-Unis, un bébé emporté par une tornade retrouvé vivant dans un arbre
+-  "Une muraille de feu de 4 km": les images spectaculaires de la nouvelle éruption volcanique en Islande
+-  Gérard Larcher et des sénateurs se rendent mercredi en Israël et dans les Territoires palestiniens
+-  Volcan en Islande: les images impressionnantes de l'éruption dans le sud-ouest du pays
+-  Attaques en mer Rouge: ce que l'on sait de la coalition créée par Washington et à laquelle la France...
+-  Chine: au moins 118 morts et plus de 400 blessés dans un séisme de magnitude 5,9
+-  En Allemagne, les artistes jugés trop pro-palestiniens exclus de la vie culturelle
+-  KB유니콘클럽, 초격차 스타트업 등용문이 되다
+-  Disability and loneliness in the United Kingdom: cross-sectional and longitudinal analyses of trends and transitions - BMC Public Health
+-  NASA to launch new mission to help build 3D map of Milky Way
+-  Twist Introduced to High-Temperature Superconductors
+-  Groundbreaking Discovery: New Form of Light Challenges Classical Physics
+-  Plant Metabolism More Complex Than Previously Thought
+-  Upcoming SpaceX Launch to Include First Direct-to-Cell Starlink Satellites
+-  Global Sound Inventory Enhances Understanding of Aquatic Ecosystems
+-  An Astronaut's Guide To Communication Skills Training
+-  Former NASA Astronaut Explains How to Poop in Space
+-  China's Spaceplane Has Released Multiple Mystery Objects In Orbit
+-  24,000-year-old secret sea ice highway, path to America discovered
+-  Human Brains Show More Parallel Traffic Than Animal Brains
+-  Climate Impact on African Aardvarks Studied Through Fecal Analysis
+-  A piece of Staffordshire is going to the Moon
+-  These scientists want to put a massive 'sunshade' in orbit to help fight climate change
+-  Machine learning boosts search for new materials
+-  Methane Cleaner Invention May Revolutionize Cattle, Pig Barns
+-  Growing Old Could Have Played a Critical Role in Our Evolution
+-  Neanderthal DNA may explain why some of us are morning people
+-  Scientists discover hidden population of stars that are the "bluest of blue"
+-  ファルコンズはコルツ戦でQBハイニケを先発に、QBリッダーは今季2度目のベンチへ
+-  Sentencia contra Aras no tiene precedentes: César Jáuregui
