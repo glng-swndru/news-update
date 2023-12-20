@@ -1,51 +1,51 @@
 # Latest News
+-  Veterans minister vows to transform Seoul National Cemetery into more visitor-friendly site
+-  ЕС запретил серый реэкспорт товаров двойного назначения в Россию
+-  18 civil representatives to join bell-tolling event for New Year's Eve
+-  Outdoor ice skating rink at Seoul Plaza to open to visitors Friday
+-  Man who placed 'possessed' child in fire, hit Highlands County deputy with metal bar fatally shot, officials say
+-  Festive of flavors: How to make Holidays healthier with non-alcoholic drinks
+-  After 44 years, body found near Las Vegas Strip ID'd as missing Ohio 19-year-old
+-  Morant's buzzer-beater on NBA return
+-  Morant's buzzer-beater on NBA return
+-  Sand dunes damaged during storms in Pinellas County; some access points closed
+-  Buscan candados para ocupar cargo de ministro
+-  Intentan ejecutar al “Gallero” en su casa
+-  Remueven a delegado del IMSS en Chihuahua
+-  Tenza Beach Festival brings good vibes and early Christmas for locals
+-  '만난 지 10주년' LG 이우찬, 우승하고 행복한 웨딩마치 올린다
+-  '슬의생2' 이후 3년만…조정석, 복귀작으로 '세작' 선택한 이유
+-  [현장] SK브로드밴드 “AI Btv로 드라마 보며쇼핑까지…IPTV 성장 정체기 극복할 것”
+-  토트넘, '쏘니' 없으면 어떻게 할래? 英 매체 "활약 인상적·18라운드 최고의 선수 3위 예상"
+-  "실력·스타성→관상 볼 것"…'미스트롯3', 송가인·양지은 이을 '新트롯 여제' 탄생할까 [종합]
+-  عاجل.. حساب المواطن يوضح كيف تستفيد زوجة المواطن غير السعودية في حالة سجنه؟
+-  김종인 “한동훈 비대위원장? 尹 마음의 결정한 듯…정치 등판 너무 빨라”
+-  삼척시 관광문화발전 포럼 21일 개최
+-  Lok Sabha Passes Bill To Align Some Provisions of CGST Act With Tribunal Reforms Act
+-  Wednesday At Market: Market Back On Track, IRFC, Zomato, IDFC Bank In A Bullish Mood
+-  OTT ‘K콘텐츠 버블’ 속 늘어가는 드라마 스태프 임금체불
+-  “윤석열 징계사유 판단 없는 항소심, 사안의 본질 외면”
+-  [영상] 장경태 “한동훈, 조선제일검이라더니 김건희 호위검”
+-  Isländischer Außenminister: Vulkanausbruch macht ehrfürchtig
+-  Richard Still: Ballroom dance champion jailed for six years after grooming 15yo girl and getting her pregnant
+-  Viral Dokter Ngeluh Artis Youtube Tak Sopan Saat Berobat, Netizen Singgung Anamnesis: Proses Apa Sih Itu?
+-  Within INDIA, the Congress' Problem is Lack of Credibility. Can Kharge Fix That?
+-  VIVOTEK's Latest Sustainability Report Successfully Verified for the First Time under AA1000 Standards
+-  Countdown to Compliance: Allion Labs Addresses the EU's USB Type-C Rule
+-  TECH LEADERS JOIN TO EXTEND MANAGED IT SERVICES FOR AEC & MANUFACTURING INDUSTRIES ACROSS ANZ
+-  Ansys Launches AVxcelerate Autonomy
+-  Elon Musk provoca la ira del Tesla Hoe
+-  Resumen 2023: la ausencia de Tekashi en los Premios Juventud, lo más leído en Entretenimiento
+-  14 figuras políticas con señalamientos en su contra irían tras un cargo electivo en 2024
+-  Sebelum Digugat, Virgoun Ogah Bertemu Inara Rusli Buat Bahas Pengalihan Royalti ke Label Musik
+-  상임고문단 만난 국민의힘
+-  국민의힘 상임고문단 회의
+-  인사말하는 신영균 상임고문단 명예회장
+-  Pergerakan Orang Mudik Nataru Naik 43 Persen, Kemenhub Beberkan Penyebabnya
+-  Jika Ini Terjadi, BI Berpeluang Turunkan Suku Bunga
+-  ปชป.ไม่ร่วมยินดี”ชัยธวัช”ผู้นำฝ่ายค้านเตรียมตัวไม่ทัน
+-  Satu Alasan Saja Shin Tae-yong Kepincut dengan Syahrul Trisna Hingga Dibawa ke TC Piala Asia 2023
+-  "Logan got off and said to me 'I zigged when I should have zagged.'"
+-  Morant puts up 34 pts., buzzer-beater in return
+-  Ministro de Salud inaugura el cuarto Centro de Salud Mental Comunitaria en San Juan de Lurigancho
 -  엠넷 〈스걸파2〉 도전 중인 경남 10대 댄스팀 '더퀸즈'
--  샐러리캡 초과 구단 없다...KBO, 2023년 구단별 연봉 상위 40명 합계 금액 발표
--  ‘อนุทิน’ ขนคณะขึ้นเชียงใหม่ตรวจงานตามนโยบายรัฐบาล!
--  What We Liked and Didn’t Like About the Phones of 2023
--  India’s largest SNZ for rough diamond trade to soon open at Surat Diamond Bourse
--  Severe Cold Grips Kashmir, Minus 4.4°C In Srinagar
--  '솔로지옥3' 메기 조민지 등장, 더 뜨거워졌다
--  Bloquear el norte de Bogotá, un desastre social y ambiental
--  Kolhapur Crime : कोल्हापुरात पोलीस मुख्यालयातील पेट्रोल पंपावर पोलिसाला मारहाण
--  Dana Kampanye dari Tambang Ilegal, Ekonom Celios Usul Reformasi Pendanaan Parpol
--  La contre-playlist de Noël : 40 titres pour oublier ses classiques
--  Modern Men récidive avec "Antifrance", complainte électro-punk
--  El consejero delegado de Alibaba dirigirá también sus dos principales portales de comercio
--  Israel Sebut Banyaknya Korban Sipil Gaza Konsekuensi dari Kampanye Hancurkan Hamas
--  Cyclisme - Dopage : Pogacar met fin à un mythe
--  내년 1월 25일 제주도체육회장 보궐선거
--  پاک آسٹریلیا میچز: سٹے بازی کی ویب سائٹس کی تشہیر والے چینلز کیخلاف کارروائی کا حکم
--  Elections 2023 : près de 44 millions de Congolais attendus ce mercredi aux urnes
--  甘肅地震｜甘青兩省罹難者升至131人 救援基本結束重點轉善後重建｜持續更新
--  Johnson’s 25 lead Southern Illinois past North Dakota State 76-63
--  Accused drunk driver, 17, fatally mowed down sleeping homeless woman, tried to bribe witnesses to let him flee
--  Cerca de 1 millón 200 mil vehículos: Cuál será el día más complicado para transitar en la Ciudad de Guatemala previo a la Navidad
--  RBI Says: ਬੈਂਕਾਂ NBFC ਦੇ Alternative Investment Funds ਵਿੱਚ ਨਿਵੇਸ਼ 'ਤੇ ਸਖ਼ਤ ਹੋਈ RBI, ਜਾਰੀ ਕੀਤੀ ਐਡਵਾਈਜ਼ਰੀ
--  Alcohol: వామ్మో.. మనోళ్లు బాగానే తాగేస్తున్నారుగా.. పెరిగిన మద్యం విక్రయాలు
--  Fake ‘Home Alone 3’ trailer prompts fans to beg Macaulay Culkin to reprise Kevin McCallister
--  Include life skills to build strong school curriculum: Prez Murmu
--  MK Bakal Umumkan Pembentukan MKMK Permanen Hari Ini
--  डोनाल्ड ट्रंप नहीं लड़ सकेंगे 2024 का चुनाव! कोलोराडो सुप्रीम कोर्ट ने राष्ट्रपति पद के लिए अयोग्य ठहराया
--  강원특별자치도 ‘강원 MICE 얼라이언스 베뉴분과 전략회의’ 개최
--  Morning Headlines 20th December : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा Morning News
--  IPL: संन्यास की कगार पर खड़े खिलाड़ी की खुली किस्मत, नेहरा ने दिया 5.80 करोड़ का ‘सरप्राइज’
--  गले में सांप डालकर वीडियो शूट… एल्विश यादव मामले में पुलिस की जांच से खुश नहीं NGO, अब 20 जनवरी को सुनवाई
--  Jadwal Final Piala Dunia Antarklub 2023: Fluminense vs Manchester City
--  Google'a Doodle olan Sedad Hakkı Eldem kimdir, neden doodle oldu? Sedad Hakkı Eldem kaç yaşında, ne zaman öldü, ne iş yapıyordu?
--  Mampu Cetus Ketegangan
--  Australia Joins US in Condemning Houthi Attacks on Red Sea Vessels
--  Gray scores 16, Cornell takes down Siena 95-74
--  Китай ще разширява енергийното сътрудничество с Русия
--  Punjab Weather Update: ਸ਼ਿਮਲਾ ਤੋਂ ਵੀ ਠੰਢਾ ਹੋਇਆ ਪੰਜਾਬ! ਮੌਸਮ ਵਿਭਾਗ ਦਾ 18 ਜ਼ਿਲ੍ਹਿਆਂ ਲਈ ਅਲਰਟ
--  Harimau belang ditangkap guna tembakan ubat pelali
--  Uric Acid : हिवाळ्यात युरीक ॲसिड वाढण्याचा धोका, 'या' 7 पदार्थांपासून दूर राहा
--  คุมตัว "วิน" มือยิงครูเจี๊ยบสอบปากคำ-ยึดรถกระบะตรวจดีเอ็นเอ
--  "พิธา" ไร้กังวลไต่สวนคดีถือหุ้นสื่อ ITV
--  "ชัยธวัช" มั่นใจคดีแก้มาตรา 112 โทษไม่ถึงยุบพรรคก้าวไกล
--  เทศบาลตำบลสันโป่ง จัดพิธีบวงสรวงศาลกรมหลวงชุมพรฯ
--  Поставки нефти из России в Китай выросли в январе - ноябре на 22%
--  Nalgonda Collector orders allocation of prefabricated units for vendors
--  Congress’ Bharat Jodo Yatra 2.0: Expected launch date, states to be covered and all you need to know
--  What is a snow bridge and how can you cross it?
--  Williamson scores 18 as SMU takes down Houston Christian 89-53
