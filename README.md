@@ -1,51 +1,51 @@
 # Latest News
--  Entinen F1-kuski myöntää tehneensä pahan virheen
--  Sud u Coloradu zabranio Trumpu kandidaturu za predsjednika, to se dogodilo prvi put u povijesti SAD-a
--  Ropa czeka na rozwój wydarzeń na Morzu Czerwonym
--  Pierwszy od trzech miesięcy spadek eksportu Japonii
--  Odisha ministerial staff call off strike after assurance from 5T Chairman
--  Эмомали Рахмон примет участие в неформальном саммите СНГ в Санкт-Петербурге
--  СУАР нарастил объем торговли с Таджикистаном на 97,3%
--  Yırtılıyor, metal fırlatıyor! İnceleme yapıldı, karar çıktı... Milyonlarca araç geri çağırılabilir
--  에스트래픽, 서울지하철 ‘스피드개집표기 개량 제작구매설치 2차 사업’ 수주
--  엠로, 2024년 주요 공급망 키워드 5가지 발표
--  씨플랫폼 김중균 대표, 마약 근절 캠페인 ‘노엑시트’ 동참
--  LG CNS, 고려대 융합데이터과학대학원 ‘AI 데이터사이언스학과’ 석사과정 모집
--  이브이시스, 인도네시아 전기차 충전 인프라 조성 프로젝트 수주
--  SAS, 다올저축은행에 AI 분석 플랫폼 ‘SAS 바이야’ 공급
--  Ejecución del cierre de la mina tardaría entre 2 y 10 años
--  Horrible, un camión le pasó por encima
--  Waterman en la mira del Emelecy Colo Colo
--  Jair Palacios, un técnico ganador
--  Panamá es #10, pero el trabajo continúa
--  Celine Dione ya no puede cantar
--  Madonna arremete contra Andy Cohen
--  Le dan calle a adolescente que participó en atraco
--  Lo madrugaron a balazos en una vereda en Santa Marta
--  Jiovany Ramos ficha por un histórico de Perú
--  Un tribunal manda a prisión a ‘Zaza’ por presunto homicidio
--  Sorprenden a pela'o con una pistola de ‘mentirita’
--  Cumple su sueño
--  Metro espera dar la gran batalla
--  La IV independencia
--  ¡Prepárese! En 2024 no habrá vale digital ni subsidio de combustible
--  Despachan a balazos a dos hombres más en Colón
--  [VIDEO] Interrogantes tras 34 años de la invasión de Estados Unidos a Panamá
--  La tarifa de los "Bien Cuida'o" subió
--  Infidencias y confidencias del 20 de diciembre de 2023
--  Customs YES 35會員展湘鄉歷史文化考察之旅 追尋毛澤東足跡｜Kelly Online
--  Donald Trump barred from running for US presidency again
--  ‘The Voice’ 2023: Who won? Huntley is the Season 24 winner
--  LIVE TEXT | Război în Ucraina. Dronele rusești au sistem electronice mai elaborate Sistemele de siguranță au fost reparate la CNE Zaporojie
--  폭우 피해 예방 두 가지 기본 요소 병행
--  계절성 우울증에서 벗어나기
--  스포츠산업과 관광 융합...제주형 스포츠관광 육성 방안 모색
--  Ciner Grubu'na İzin Çıktı: Kaz Dağları'nda Maden Tehlikesi!
--  ইতিহাসের এই দিনে: প্রথম পারমাণবিক বিদ্যুৎকেন্দ্র চালু
--  與 '한동훈 비대위 출범' 사실상 가닥…비주류도 "韓 도와줘야"
--  국회의장 "예산안 오늘 오후 2시 합의 발표…내일 오전 10시 처리"
--  Cyprus Business Now
--  Megjelent a rendelet: a 2024/25-ös tanévben lehet a pedagógusok első teljesítményértékelése
--  MPs Suspended From Parliament: PM Narendra Modi, BJP Want To Establish ‘Single Party Rule’ in Country, Says Mallikarjun Kharge on Suspension of 141 MPs
--  Vivek Ramaswamy Pledges to Withdraw From Colorado GOP Primary Ballot After Trump Is Disqualified
--  역대급 메기女 조민지 등장…'직진남' 이진석, ♥안민영과 러브라인 흔들리나 [솔로지옥3](종합)
+-  Samosa Pinwheel to Pazham Pori: Tempting chai combos to relish during winter
+-  You Can Directly Complain Against Your MP With PM Narendra Modi. Know Process Here
+-  `Have Been Facing Insults For Last 20 Years`: PM Modi Dials VP Jagdeep Dhankhar
+-  Sandeep Reddy Vanga on the criticised `big pelvis` line in Animal
+-  Taylor Swift y Travis Kelce celebrarán la Navidad juntos
+-  Se perderá Neymar la Copa América 2024
+-  Šlykšti vieta vandenyne. Ši jūra išgyvena blogiausius laikus istorijoje. Kas darosi
+-  على مدار 12 عامًا.. محطات في رحلة مفاوضات سد النهضة
+-  DBKL umum Belanjawan 2024 sebanyak RM2.66 billion
+-  Pasienyje su Baltarusija neteisėtų migrantų nefiksuota, skelbia VSAT
+-  Sud u Coloradu zabranio Trumpu kandidaturu zbog uloge u napadu na američki Kapitol
+-  ‘อนุทิน’ นำทีมลงพื้นที่ จ.เชียงใหม่ ตรวจเปิดผับตี 4-หนี้นอกระบบ-ฝุ่น PM2.5
+-  Danla Bilic kabusu yaşadı! Takıntılı hayranı kapısına dayandı
+-  西甲｜阿拿巴成皇家馬德里季內斷韌帶第3位主力 母會拜仁慕尼黑願出手相助
+-  Japan sees projection that income will move up more than prices in the next fiscal year
+-  Bu türk dövlətinin bayrağı dəyişdi
+-  Kafes-22 Operasyonu'nda 302 şahıs daha paketlendi! İşte o görüntüler...
+-  Rekabet cezalarının alt sınırı 167 bin 473 lira olarak belirlendi
+-  Snabbkoll på nattens nyheter
+-  VIDEO : दिल्ली के मोती नगर में खतरनाक बस हादसा, कार से हुई भिड़ंत, देखें हादसे का वीडियो
+-  Director whose interest in theatre rivalled only by surfing
+-  Hangi ışık erken yaşlandırıyor
+-  Ather 450 Apex: એથરે શરૂ કર્યું 450 એપેક્સ ઇલેક્ટ્રિક સ્કૂટરનું બુકિંગ, માર્ચ 2024થી શરૂ થશે ડિલીવરી
+-  Ünlü yorumcu Güntekin Onay canlı yayında 'Haberiniz yok belki ama...' diyerek duyurdu! Meğer o kulüp de sahadan çekilecekmiş
+-  اكتشاف مضاد حيوي جديد في أنف الإنسان
+-  저가커피도 글로벌로…컴포즈 커피, BTS 뷔 모델 발탁
+-  Bakan Yerlikaya duyurdu: Kafes Operasyonu'nda 302 şüpheli şahıs yakalandı
+-  Krieg im Nahen Osten: Israel bietet Feuerpause im Gaza-Streifen an – und attackiert Stellungen im Libanon
+-  Israël et le Hamas multiplient les signaux en faveur d'une nouvelle trêve
+-  Krieg im Nahen Osten: Israel bietet Feuerpause im Gaza-Streifen an – und attackiert Stellungen im Libanon
+-  Rugby : Après la désillusion de la Coupe du monde, Dupont s’est enfin relancé
+-  콘텐츠진흥원 내년 예산 6124억원…조현래 원장 "우리 콘텐츠 글로벌 주역으로"
+-  Loi immigration : le texte adopté avec le soutien de l’extrême droite, crise ouverte dans la majorité
+-  Neformalusis suaugusiųjų švietimas: reikia atviros širdies ir meilės darbui
+-  2023년 과수산업 육성 시책 평가 김천시 '우수상' 수상
+-  Agra: चला अभियान तो बिजलीघर चौराहे की बदल गई सूरत, 27 के चालान और 16 ऑटो किए गए सीज
+-  TEG names Phil King as Ticketek Australia’s managing director
+-  Bu yıl rekor kıran otomotiv satışları 2024'te dengelenecek
+-  Fubara vs Wike: Peace pact flops as PDP, Clark, others reject 8-point agreement
+-  Tuzla Piyade Okulu’nda ‘Atatürk fotoğrafı’ kriziyle gündeme gelen teğmenler alt devrelerini tarikat toplantısına çağırmış!
+-  Nicolás Maduro se solidariza con Xi Jinping ante terremoto que dejó 127 muertos en China
+-  올해 한국인이 가장 많이 사용한 앱은 '카카오톡'
+-  도발 세리머니→어깨빵→보복→멱살잡이→퇴장! 축구야? 격투기야? '괴짜 GK' 에밀신도 당황한 '싸움 축구'
+-  별사랑, 패자부활전→본선 2차전 진출 확정 [현역가왕]
+-  La rebaja en el límite de población allana la desanexión definitiva de Usansolo
+-  SABATON’S “History Rocks” Project Deemed Tremendous Success By Museums Around The World
+-  박성연, '삐에로는 우릴 보고 웃지' 완벽 재해석…대성 홀렸다 [현역가왕]
+-  몸, 옥새 교통카드 크라우드 펀딩 2만 퍼센트 달성
+-  Morgonkoll: Blandat på Asienbörserna – biltillverkare lyfter i Tokyo
+-  Logitech's superb G Pro X Superlight esports mouse is down to $59.99 refurbished in the US
