@@ -1,51 +1,51 @@
 # Latest News
--  दुई दशकदेखि न्याय खोज्दै द्वन्द्वपीडित
--  군포시 아동참여위원회 활동 성과발표회 개최
--  이상일 용인특례시장, 처인구 백암면 ‘고등기술연구원(IAE)’ 방문…
--  신성훈 감독, 인도 ‘라즈기르 국제영화제’서 2관왕 수상
--  용인특례시, 포곡읍 삼계리에 축구장 7개 크기 도시숲 조성한다
--  '에스파' 닝닝, 국내 첫 단독 화보 공개
--  용인특례시, 건설사업 예방 감사로 103억 5천만원 절감 효과
--  고양특례시, 국토교통부와 스마트+ 빌딩 공동연구에 나서
--  이천시, 대한민국 주거복지대상 국토교통부 장관상 쾌거
--  파주시, 오는 26일까지 고향사랑기부금 답례품 공급업체 모집
--  의왕시, 의왕학습레일 사업 성과공유회 성료
--  시흥시, 360억 원가량 토지 소유권 확보… 재정 확충
--  한수원 월성원자력본부, 동경주지역 취약계층 난방비 2천만원 추가 긴급 지원
--  고양시, 미래 성장동력 ‘지능형 도시’ 본궤도
--  KCC, 서초동 사옥에 대형 크리스마스 트리 설치
--  연천군, 1호선 전철 개통 맞이 소상공인 간담회
--  백경현 구리시장, 소상공인연합회 ‘목민감사패’ 수상
--  광주시, 보육유공 정부포상 ‘국무총리’ 기관표창 수상
--  경기도, 2040년 시흥 도시기본계획 승인… 인구 69만명 목표
--  동구의회, 한국자산관리공사 인천지역본부 방문해 고철처리장 관련 현안 논의
--  [기고문]중소기업의 든든한 현장 지원군, 비즈니스지원단
--  남동구의회 육은아 의원, 전국지방의회 친환경 최우수 의원상 수상
--  광명시, 온실가스 감축 실적 우수 세대 및 아파트 단지에 탄소중립포인트 인센티브 지급
--  남양주시 호평동 주평강교회, 호평·평내동 이웃 위한 성탄꾸러미 100상자 후원
--  하남시, 찾아가는 법률서비스 ‘법률홈닥터’ 2024년 배치기관 선정
--  국립양평치유의숲, 행복버스 유치를 통한 지방소멸 위기 극복 앞장
--  동대문구의회, 2024년도 예산 7972억원 예산안 확정하고 제325회 정례회 마무리
--  강북구의회, 제268회 제2차 정례회 폐회
--  하남시의회 오승철 의원, 층간소음 없는 ‘행복한 공동주택’과 ‘안전한 교통 환경’ 조성에 박차
--  민주평통 여주시협의회, 4분기 정기회의 열고 ‘글로벌 복합위기 대응 방안’ 논의
--  가평군, 명지산 구름다리 개통… 지역경제 활성화
--  Hamas chief due in Egypt for Gaza ceasefire talks
--  Waning influence of OPEC+ in spotlight as prices flag
--  삼성쉐르빌 입주자대표회, 가평 청평면에 이불 20채 기탁
--  농심 안양공장, 군포 취약계층에 라면 500박스 기탁
--  CCTV jadi mata-mata polis bantu kurangkan kadar jenayah
--  İsrail medyasından Netanyahu açıklaması: "Gazze" bahanesiyle yolsuzluktan davasından kaçıyor
--  島根 出雲大社で「すす払い」 1年のほこり払い落とす
--  Rashmika Mandanna deepfake case: Police track down four suspects
--  Democrats celebrate end of Tuberville military holds
--  Chinese rescuers brave freezing cold to find earthquake survivors
--  ”ต้าเหนิง กัญญาวีร์” รับเจอ”ลิซ่า” แจงไม่ได้กลัวดราม่าที่ไม่ลงภาพ มองเป็นเรื่องส่วนตัว
--  Jutes "cannot imagine" his life without Demi Lovato
--  장흥군농업기술센터, 농촌진흥사업 종합평가 ‘우수상’
--  여수시, 국가산단 내 발전·생산시설 등 7,500억 규모 투자협약
--  영광군, NH농협은행 영광군지부 영광군에 축산물꾸러미 80세트 기탁
--  담양군, “EDM 공연과 함께하는 담양 크리스마스 파티에 초대합니다”
--  고흥군, 전남도 농촌진흥사업 종합평가 ‘우수상’ 수상
--  जिंदगी बनी जहन्नुम! इजराइल के हमले ने ली 17 दिन की बच्ची की जान, भाई की भी हुई मौत
--  Bloomberg รายงาน ‘กสิกรไทย’ เตรียมรุกตลาดคริปโต หวังให้บริษัทไทยมีการระดมทุนมากขึ้น
+-  엠넷 〈스걸파2〉 도전 중인 경남 10대 댄스팀 '더퀸즈'
+-  샐러리캡 초과 구단 없다...KBO, 2023년 구단별 연봉 상위 40명 합계 금액 발표
+-  ‘อนุทิน’ ขนคณะขึ้นเชียงใหม่ตรวจงานตามนโยบายรัฐบาล!
+-  What We Liked and Didn’t Like About the Phones of 2023
+-  India’s largest SNZ for rough diamond trade to soon open at Surat Diamond Bourse
+-  Severe Cold Grips Kashmir, Minus 4.4°C In Srinagar
+-  '솔로지옥3' 메기 조민지 등장, 더 뜨거워졌다
+-  Bloquear el norte de Bogotá, un desastre social y ambiental
+-  Kolhapur Crime : कोल्हापुरात पोलीस मुख्यालयातील पेट्रोल पंपावर पोलिसाला मारहाण
+-  Dana Kampanye dari Tambang Ilegal, Ekonom Celios Usul Reformasi Pendanaan Parpol
+-  La contre-playlist de Noël : 40 titres pour oublier ses classiques
+-  Modern Men récidive avec "Antifrance", complainte électro-punk
+-  El consejero delegado de Alibaba dirigirá también sus dos principales portales de comercio
+-  Israel Sebut Banyaknya Korban Sipil Gaza Konsekuensi dari Kampanye Hancurkan Hamas
+-  Cyclisme - Dopage : Pogacar met fin à un mythe
+-  내년 1월 25일 제주도체육회장 보궐선거
+-  پاک آسٹریلیا میچز: سٹے بازی کی ویب سائٹس کی تشہیر والے چینلز کیخلاف کارروائی کا حکم
+-  Elections 2023 : près de 44 millions de Congolais attendus ce mercredi aux urnes
+-  甘肅地震｜甘青兩省罹難者升至131人 救援基本結束重點轉善後重建｜持續更新
+-  Johnson’s 25 lead Southern Illinois past North Dakota State 76-63
+-  Accused drunk driver, 17, fatally mowed down sleeping homeless woman, tried to bribe witnesses to let him flee
+-  Cerca de 1 millón 200 mil vehículos: Cuál será el día más complicado para transitar en la Ciudad de Guatemala previo a la Navidad
+-  RBI Says: ਬੈਂਕਾਂ NBFC ਦੇ Alternative Investment Funds ਵਿੱਚ ਨਿਵੇਸ਼ 'ਤੇ ਸਖ਼ਤ ਹੋਈ RBI, ਜਾਰੀ ਕੀਤੀ ਐਡਵਾਈਜ਼ਰੀ
+-  Alcohol: వామ్మో.. మనోళ్లు బాగానే తాగేస్తున్నారుగా.. పెరిగిన మద్యం విక్రయాలు
+-  Fake ‘Home Alone 3’ trailer prompts fans to beg Macaulay Culkin to reprise Kevin McCallister
+-  Include life skills to build strong school curriculum: Prez Murmu
+-  MK Bakal Umumkan Pembentukan MKMK Permanen Hari Ini
+-  डोनाल्ड ट्रंप नहीं लड़ सकेंगे 2024 का चुनाव! कोलोराडो सुप्रीम कोर्ट ने राष्ट्रपति पद के लिए अयोग्य ठहराया
+-  강원특별자치도 ‘강원 MICE 얼라이언스 베뉴분과 전략회의’ 개최
+-  Morning Headlines 20th December : देश विदेशातील महत्त्वाच्या बातम्या एका क्लिकवर, वाचा Morning News
+-  IPL: संन्यास की कगार पर खड़े खिलाड़ी की खुली किस्मत, नेहरा ने दिया 5.80 करोड़ का ‘सरप्राइज’
+-  गले में सांप डालकर वीडियो शूट… एल्विश यादव मामले में पुलिस की जांच से खुश नहीं NGO, अब 20 जनवरी को सुनवाई
+-  Jadwal Final Piala Dunia Antarklub 2023: Fluminense vs Manchester City
+-  Google'a Doodle olan Sedad Hakkı Eldem kimdir, neden doodle oldu? Sedad Hakkı Eldem kaç yaşında, ne zaman öldü, ne iş yapıyordu?
+-  Mampu Cetus Ketegangan
+-  Australia Joins US in Condemning Houthi Attacks on Red Sea Vessels
+-  Gray scores 16, Cornell takes down Siena 95-74
+-  Китай ще разширява енергийното сътрудничество с Русия
+-  Punjab Weather Update: ਸ਼ਿਮਲਾ ਤੋਂ ਵੀ ਠੰਢਾ ਹੋਇਆ ਪੰਜਾਬ! ਮੌਸਮ ਵਿਭਾਗ ਦਾ 18 ਜ਼ਿਲ੍ਹਿਆਂ ਲਈ ਅਲਰਟ
+-  Harimau belang ditangkap guna tembakan ubat pelali
+-  Uric Acid : हिवाळ्यात युरीक ॲसिड वाढण्याचा धोका, 'या' 7 पदार्थांपासून दूर राहा
+-  คุมตัว "วิน" มือยิงครูเจี๊ยบสอบปากคำ-ยึดรถกระบะตรวจดีเอ็นเอ
+-  "พิธา" ไร้กังวลไต่สวนคดีถือหุ้นสื่อ ITV
+-  "ชัยธวัช" มั่นใจคดีแก้มาตรา 112 โทษไม่ถึงยุบพรรคก้าวไกล
+-  เทศบาลตำบลสันโป่ง จัดพิธีบวงสรวงศาลกรมหลวงชุมพรฯ
+-  Поставки нефти из России в Китай выросли в январе - ноябре на 22%
+-  Nalgonda Collector orders allocation of prefabricated units for vendors
+-  Congress’ Bharat Jodo Yatra 2.0: Expected launch date, states to be covered and all you need to know
+-  What is a snow bridge and how can you cross it?
+-  Williamson scores 18 as SMU takes down Houston Christian 89-53
