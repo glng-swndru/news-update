@@ -1,51 +1,51 @@
 # Latest News
--  إبراهيم عيسى: تيار الإسلام السياسي مكلف بمهمة تشويش وتشويه محمد صلاح
--  رئيس اتحاد حماية المستهلك: هناك فوضى في الأسعار.. والمجتمع "غير قادر على عتاولة رجال الأعمال"
--  واشنطن: نشكر قطر على جهودها لتأمين إطلاق سراح أمريكيين محتجزين في فنزويلا
--  وزير التموين: طوابير السكر انتهت.. وسعر الكيلو 27 جنيها
--  إحالة متهم بالإتجار في الحشيش والهيروين بدار السلام للجنايات
--  أزهري: لا يجوز للحائض دخول المسجد حتى لدروس العلم - فيديو
--  إبراهيم عيسى: الرئيس السيسي حمى القضية الفلسطينية من التصفية منذ أحداث أكتوبر
--  خالد الجندي: لا دليل بالقرآن والسنة على قتل قابيل لأخيه هابيل - فيديو
--  لم تنقذ طفلا واحدا.. إبراهيم عيسى: يجب محاسبة حماس على ما فعلته في غزة
--  عضو بـ "التطوير العقاري": العقارات تحافظ على قيمتها طوال الوقت
--  تقييم فريق ميتز بعد الهزيمة من باريس سان جيرمان
--  임찬규·함덕주·김민성 중 누가 크리스마스 선물이 될까, 차명석 단장 "거의 합의 본 선수 있다"
--  "손흥민은 케인이 필요 없다는 것을 증명했다!"…맨유 전설의 찬사, "진짜 프로, 절대적으로 훌륭한 선수"
--  유재석도 인정한 '영앤리치' 페이커 "집에 사우나·스크린 골프장 있어…숨바꼭질도 가능" [유퀴즈](MD리뷰)
--  580억 22살 DF '먹튀'되나→역시 '헛돈 넘버 1' 첼시 오명 확인→7.5년 계약인데 1년만에 1월 이적추진
--  규현 측 "아티스트 사칭해 금전적 이득 취하려는 사례 확인" 주의 당부
--  Apple halts some Watch sales in the US
--  Las autoridades francesas multan a Sony con 13,5 millones de euros
--  Fears of higher oil prices after Red Sea attacks
--  [오피셜] 선수가 심장마비로 쓰러진 루턴 타운 vs 본머스 경기, 결국 전체 재경기로 결정
--  Kerr scores in Chelsea's Swedish Champions League win
--  מומחים מתכננים "לכבות את השמש" בניסיון להציל את כדור הארץ משינויי האקלים
--  הורים לילדים חיים יותר, כך עולה ממחקר - אבל רק עם מספר כזה של ילדים
--  אמבפה חגג יום הולדת עם צמד, רביעייה תוך 25 דקות לקשר ברסט
--  ¿Por qué Cristiano Ronaldo pelea 19.5 millones con la Juventus?
--  Edward’s house from ‘Twilight’ is getting a LEGO set
--  ​Infantino: Kupa e Botës në Katar ishte më e mira në histori
--  Christmas crafts, but make it sustainable
--  Pitch perfect summer
--  Bayern Münih yıldızlarıyla güldü
--  Gazze'de çocuklar için açlık hastalık ölüm var! DSÖ Genel Direktörü duyurdu
--  Kırıkkale'de feci kaza! 2 araç çarpıştı: 4 yaralı
--  Anadolu Efes, Münih deplasmanından çıkamadı
--  Warner Bros. Discovery and Paramount in discussions for a max merger
--  Solana’s Q4 Rally: Activity Hits New Highs, Outpaces Ethereum by 300%
--  The Brooklyn Nets Just Launched Its Own Fashion Brand
--  ‘Perfect storm’ of market conditions threatens Vancouver rental projects: CMHC
--  Rusi kreću u veliki juriš: Ovo su ciljevi
--  VIDEO Miroslav Škoro našalio se na račun kilograma pa digao sve hitovima 'Sude mi' i 'Mata'
--  Dave Filoni Sees Hera Syndulla as Thrawn’s Ultimate Foe
--  Liverpool utrpao ‘petardu’ West Hamu i plasirao se u polufinale Liga kupa
--  Interino e investigado Javier Pacheco desmantela la Procuraduría General del Estado
--  Demolácia na Anfielde. Liverpool rozdrvil West Ham a postúpil do semifinále
--  Soccerladuma | Five-Star Liverpool Advance To Carabao Cup Semis
--  Starfield Tops 13 Million Players, 40 Hour Average Playtime Per Player
--  PlayStation Plus Game Catalog and Classics for December 2023 Now Available
--  Anthem Sold 5 Million Units Lifetime, According to Former EA Employee
--  Amazon to Develop Warhammer 40,000 Movies and TV Series
--  Activision Blizzard CEO Bobby Kotick is Leaving on December 29
--  Blizzard Details World of Warcraft 2024 Roadmap
+-  남녀노소 가리지 않는 ‘고혈압’…예방·극복하려면 어떻게?
+-  [단독]심판 임원 '막말' 피해자 2명 더 있다…"장애 아니야?", "실패한 인생이네"
+-  "히딩크, 날 너무 힘들게 했다. 지금도 싫어" 이천수 '뒤끝 작렬'[살림남2]
+-  Chaco cerró el año de Letras de Tesorería sin conseguir financiamiento neto
+-  Ceylon Cinnamon, ‘the True Cinnamon’ showcased in Stockholm
+-  Baurs paves way towards sustainable nitrogen management with super urea for agriculture
+-  Weekly auction positive momentum continues
+-  “Tap to pay is a game changer and definitely here to stay” says Visa
+-  Crossings bolster Bourse turnover to Rs. 5 b; sentiments remain bearish
+-  SJB frowns at Govt. move to import rice despite coming bumper harvest
+-  Felicitation of doyen of Sinhala journalism Siri Ranasinghe
+-  World News | Wisconsin Elections Commission Rejects Complaint Against Trump Fake Electors for Second Time
+-  올겨울 '최강 한파' 온다…서해·제주엔 많은 눈 예상
+-  Hollywood abuzz with reports of Warner Bros Discovery, Paramount Global talks
+-  Casi 700 toneladas de cocaína han sido incautadas este año por las autoridades en Colombia
+-  美 증시 랠리에 '제동' 페덱스 "매출 감소 예상"
+-  El remaster HD de El Shaddai llegará a Switch en abril de 2024
+-  Desenvolve Floresta investe R$ 2,4 milhões em pesquisa sobre clones de eucalipto em MT
+-  Portal Impacto Uriaçu – Inovando o Mundo das Notícias
+-  Procon possui atendimento no Ganha Tempo para facilitar encaminhamentos de reclamações
+-  Sema-MT divulga procedimentos para garantir segurança de barragens
+-  Lula destaca “fotografia histórica” da reforma tributária
+-  Mediator : Servier condamné à rembourser plus de 415 millions d'euros aux organismes de sécurité sociale
+-  Stream It Or Skip It: ‘Maestro’ on Netflix, Bradley Cooper’s Overtly Artsy Leonard Bernstein Biopic
+-  Around Town: Boys & Girls Club
+-  “Kushtetuesja dështoi, argumenti budallëk me brirë”
+-  ‘Powerful’ cordless electric power cleaning brush with close to 4,000 reviews is reduced in price: ‘It’s brilliant’
+-  Mbappé trifft doppelt am Geburtstag: PSG siegt gegen Metz
+-  Produtores rurais do interior de Pelotas protestam por falta de luz
+-  Mbappé trifft doppelt am Geburtstag: PSG siegt gegen Metz
+-  Bugarski parlament smanjio ovlasti proruskom predsjedniku države
+-  TV stations are upgrading their over-the-air signals, but the rollout has been bumpy
+-  🔴 EN VIVO | Tensión en la Legislatura: la oposición niega al cuórum en una sesión caliente
+-  فريق كرة القدم للناشئين يتحصل على الترتيب الثالث في بطولة شمال أفريقيا
+-  Makron osudio ‘hajku’ na Depardjea i rekao da Legija časti ‘nije tu da propoveda moral’
+-  Una argentina denunció una red de trata en Abu Dhabi y ahora está internada tras caer de un primer piso
+-  Qual local, capacidade e custo do novo ginásio que Joinville planeja construir
+-  Enter ‘Chilla-i-Kalan’
+-  סכנה: זה החדר בבית שלכם שאסור לכם לתלות בו כביסה לייבוש
+-  אנסה גבר במטוס, השתוללה וזכתה ל"תשואות" מהנוסעים ועונש מגוחך
+-  World News | Philadelphia News Helicopter Crashes in New Jersey Forest, Killing Pilot and Photographer
+-  Multi-crore investment fraud: Cyber police raids multiple locations in Srinagar
+-  Politische Kehrtwende unter Tusk: Polens neues Parlament stuft Umbau der Justiz durch PiS als verfassungswidrig ein
+-  Mercado da Bola: Veja as movimentações no futebol desta quarta-feira (20/12/2023)
+-  New Rickstones Academy Witham rated Good by Ofsted
+-  The iMenace: Meet the Startup CEO Hellbent on Bursting Apple's Bubble
+-  Stingy Banks Open Their Wallets to Microsoft's AI; Automation Comes For Google's Salespeople
+-  Stingy Banks Open Their Wallets to Microsoft's AI; Automation Comes For Google's Salespeople
+-  Google Plans Ad Sales Restructuring as Automation Booms
+-  Google Plans Ad Sales Restructuring as Automation Booms
