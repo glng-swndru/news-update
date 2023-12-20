@@ -1,51 +1,51 @@
 # Latest News
--  "สมศักดิ์" แจงชัด "ทักษิณ" เข้าข่ายขังนอกคุก ชี้ไม่ใช่นักโทษอุกฉกรรจ์
--  O ses yılbaşı özel programında kadro belli oldu! Jüride sürpriz isim...
--  ज्यामिरेमा बर्थिङ सेन्टर सञ्चालन
--  `Democracy Being Strangled`: Sonia Gandhi Attacks Modi Govt On Suspension Of MPs
--  `Hindi Is Our National Language...`: Nitish Kumar Fumes At DMK Leader Over Translation Request At INDIA Bloc Meeting
--  Pritty Vishy Throws Shade At Stevo Simple Boy’s Marriage
--  הפועל ירושלים נושמת לרווחה: "במצב שלנו אי אפשר להתלונן"
--  דבר המנכ"ל: יעל ארקין, מנכ"לית עמותת תנו לחיות לחיות
--  Zuid-Holland demands answers about health risks of PFAS found in sea foam
--  חדשות המותגים: מתנות קטנות מפרובאנס וניחוחות שמתחשבים בסביבה
--  강도형 해수부장관 후보자 인사청문 보고서 채택 연기
--  Loi immigration : crise ouverte, démissions, prise de parole de Macron... Suivez la situation en direct
--  우상호 “한동훈 비대위, 민주당엔 반가운 일…與에 불리한 바보같은 짓”
--  “배 12척 한동훈에 맡겨보자” 비대위 출범 카운트다운
--  ‘훅’ 안더니 ‘파페치’까지 삼켰다…아마존 지켜본 쿠팡의 ‘다음 계획’은
--  ‘교통유도경비’ 도입해 사고 예방 넘어 국민 안전 확보해야
--  ‘스쿨존 사망사고’ 조은결군 父 “징역 6년, 경종 울릴 형량 아냐”
--  남북한 소득 격차 30배…무역액 격차는 892배
--  القناة 12 الإسرائيلية: إسرائيل تدرس وقفا طويلا لإطلاق النار من أجل إتاحة المجال أمام حماس لجمع المخطوفين
--  무인점포 때려 부순 후 CCTV에 ‘V’…문신男 정체는 ‘16세 고교생’
--  Bundeskabinett befasst sich mit Haushaltskürzungen für 2024
--  Kickoff | BANNED: 3 key Man City stars blocked from playing CWC final
--  Soccerladuma | Kompany: Foster Can't Play At AFCON
--  مرصد حقوقي يوثق إعدام الاحتلال ميدانيا معتقلين من غزة
--  İşte İstanbulspor'un alacağı muhtemel ceza! Bedeli çok ağır olabilir...
--  32 ilin oy verme saati değişti
--  Rekabet cezalarının alt sınırı belirlendi
--  Bakan Yerlikaya duyurdu: Mali suç örgütlerine 63 ilde eş zamanlı operasyon! 302 gözaltı
--  DOSTA JE BILO MUČENJA - IZ ZVEZDE ODLAZI I TOBI? Izviždani Amerikanac već našao novi klub, daleko od Evrolige
--  Higher Education Minister Ponmudy is third T.N. legislator to face disqualification in past 10 years
--  Количество наркопреступников в Кольском Заполярье снизилось на 11%
--  Muutoksia Rauteen johtoryhmässä
--  Wipro och Stockholm Exergi i samarbete för grön IT-omställning
--  Χαμός στο κάστινγκ της Sugarbabes: Χιλιάδες οι αιτήσεις για μια νέα καριέρα στον ερωτικό κινηματογράφο
--  Op dag van hervatting direct nieuwe rel in Turkije: voorzitter haalt spelers van het veld uit onvrede over arbitrage
--  AZAL Pekinə uçuşlara başladı
--  "Rapinarono una coppia di anziani vicino al centro commerciale": due arresti
--  İstanbul'da 'askerlik' şebekesine operasyon: Hepsi paketlendi
--  ABD: İsrail'e zor sorular sorduk
--  Vizsgálat indult a beomlott székelyudvarhelyi diákotthon ügyében
--  ‘He wept, looked away’: The moment actor Madeleine West confronted her abuser in court
--  "แม่หยอด"บุกบช.น.ติดตามมือยิงลูกชายถูกจับ
--  49 псковичей обратились на «горячую линию» Роспотребнадзора с вопросами о качестве новогодних подарков
--  เปิดคำพิพากษาฉบับเต็ม เส้นผม 1 เส้น มัดคุก 20 "ลุงพล" คดี "น้องชมพู่"
--  الذكاء الاصطناعي يتنبأ بوقت الوفاة
--  السجن مدى الحياة لسوري في ألمانيا
--  حديث بين حوت وعلماء استمر لـ20 دقيقة
--  "Cette inquiétude est invivable": la mère de l'un des trois derniers otages français du Hamas à Gaza témoigne
--  Ветер до 20 м/с и гололедица: какая погода будет в Петербурге 20 декабря
--  Hamas objavio snimke talaca koji mole za puštanje na slobodu
+-  과기정통부, 내년도 사이버보안 인재양성 20% 증액한다
+-  주니퍼네트웍스, 아리랑국제방송 네트워크 인프라 구축
+-  콘진원 “수출 다변화·단계별 지원으로 K-게임 해외 경쟁력 강화”
+-  콘진원, 내년 예산 6124억…게임 29억 증액
+-  16세 천재 바둑소녀 김은지, 최연소·최단기 ‘9단’ 등극
+-  Lidl: Öffnungszeiten an Heiligabend geändert – wann du beim Discounter einkaufen kannst
+-  Bürgergeld-Empfänger macht Praktikum: Fazit nach einer Woche ist eindeutig
+-  이주승 '앙증 꽃받침'
+-  이주승 '시골 경찰'
+-  장동윤-이재준, 씨름에 진심
+-  김보라, 사슴 눈망울
+-  Korean, Chinese business leaders to cooperate on stabilizing parts, materials supply chain
+-  EcoPro to set up foundation to revitalize provincial areas
+-  Selm verbietet das Füttern von Enten an Burg Botzlar: Tiere können sterben
+-  우즈, 내년 1월 19일 피날레 콘서트 개최
+-  Наполи получи звучен шамар от Фрозиноне за Купата на Италия - Труд
+-  Markus Lanz wird in ZDF-Show emotional – „Mir tut das in der Seele weh“
+-  “사실상 공짜폰, 카메라는 괜찮네”… ‘미친 가성비’ 갤S23 FE 써보니
+-  홍천군여성자율방범대 성품 기탁
+-  도교육청유아교육원, 2023 교원 인성 연수
+-  임주영 소방관 우수 구급대원 선정
+-  서울대 시스템면역의학연구소 의과학캠프
+-  국민 4명 중 1명꼴 갑질 경험…직장 내 갑질 최다
+-  올해 트렌드 '일본여행·절약사회·내돈편살·도파민양극화'
+-  강원중기청 횡성 아카데미안경원 백년가게 현판 제막식
+-  강원중기청 정선 여량양조장 백년가게 현판 제막식
+-  ലക്ഷങ്ങൾ കൊടുത്ത് ലേബർ വീസയിൽ സൗദിയിൽ; 'ചതിക്കപ്പെട്ടത്' അറിഞ്ഞത് മൂന്ന് മാസത്തിന് ശേഷം, 11 മലയാളികൾ 'രക്ഷപ്പെട്ട്' നാട്ടിൽ
+-  [MD포토] 이주승 '훈훈한 인사'
+-  [MD포토] 장동윤·이주명 '성장 로맨스 함께해요'
+-  엘라스트, 日 단콘 '투 네버랜드' 안방 1열서 본다
+-  [MD포토] 장동윤 '이재준, 한 판 붙어보자'
+-  [MD포토] 김보라 '시선을 사로잡는 시스루룩'
+-  [MD포토] 성장 로맨스 '모래에도 꽃이 핀다' 함께해요
+-  [MD포토] 김보라 '포즈 만큼 사랑스러운 미모'
+-  [MD포토] 김보라 '예쁜 꽃 피었어요'
+-  "14kg 증량→매일 훈련" 씨름선수 된 장동윤, 성장통 그린 '모래꽃'으로 전할 감동 [MD현장](종합)
+-  'X-MAS, 케빈 아닌 LG와 함께' 홈 3연전 이벤트 개최...에디션 유니폼 200벌 한정 판매
+-  김보라 '망사 치마에 고스란히 드러낸 다리 라인' [한혁승의 포톡]
+-  드레스코드 몰라…장동윤, '인간 모래판' 된 심경 "좀 불편하네요" [MD현장]
+-  Дрозденко поздравил сотрудников органов безопасности РФ с праздником
+-  IND vs SA: दूसरे वनडे में दक्षिण अफ्रीका ने भारत को 8 विकेट से हराया, सीरीज 1-1 से बराबर
+-  സാരിയിൽ അതിമനോഹരിയായി ആലിയ ഭട്ട്, ‘ഇത് വല്ലാത്തൊരു സ്റ്റൈലായിപ്പോയി’; ഹെയർസ്റ്റൈലിന് വിമർശനം
+-  Dpa-AFX Börsentag auf einen Blick: Hoffnung auf kleine Weihnachtsrally
+-  Лжетеррористы атаковали сразу 5 школ в Кондопоге
+-  В Росреестре сообщили, что число ипотечных сделок в Москве за ноябрь уменьшилось на 10,2%
+-  Demokrasi, semak imbang tetap dijamin tanpa pilihan raya PBT
+-  IND vs SA: सेंट जॉर्ज पार्क में छठी बार हारा भारत, साउथ अफ्रीका ने बनाया ये अहम रिकॉर्ड
+-  [오늘의 앵커픽] 여야, 내년도 예산안 합의…내일 본회의 처리 外
+-  Morning Briefing International
+-  Известный YouTube-блогер выстрелил себе в лицо из гранатомета-ФОТО -ВИДЕО
