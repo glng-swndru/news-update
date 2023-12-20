@@ -1,51 +1,51 @@
 # Latest News
--  Citypress | Corruption-implicated Lotteries Commission official's R1.7m pension frozen by SIU
--  News24 | Suspected robber killed in shootout with security guards after crashing stolen Range Rover on N1
--  Beşiktaş, 2024'e yeni hocayla girmek istiyor! Çalımbay'ın yerine 2 aday var
--  Aslı Enver 5 aylık kızı Elay'la yolculuk yaptığı anları paylaştı!
--  Trendyol Süper Lig | Kayserispor-Fenerbahçe maçının ilk 11'leri
--  Nečakaný krok v Markíze: DLHOROČNÁ tvár KONČÍ!
--  Erlensee: Busticket kostet nur noch 1 Euro
--  Bhajan in Delhi Metro: दिल्ली मेट्रो में लड़कों ने गाया भगवान का भजन, वायरल VIDEO की जमकर हो रही तारीफ
--  Himachal Pradesh Receives Just 6.40% of Estimated Loss from Centre, CM Sukhu Claims
--  Galatasaray'da gündem yeniden Giannis Konstantelias
--  7 yılda 7 milyon kullanıcı! Avrasya Tüneli ülke ekonomisine 1,5 milyar dolar katkı sağladı
--  CANLI ANLATIM: Kayserispor-Fenerbahçe
--  Sabiha Gökçen Havalimanı'nda hazırlıklar sona erdi
--  Ukrayna, bin km ve üzeri hedefi vurabilecek SİHA'lar üretmeyi planlıyor
--  Cukup Pakai 2 Bahan Dapur, Lap yang Berminyak Bisa Bersih Tanpa Noda dan Tidak Bau Apek
--  Just In: Lagos Orders Trucks, Tankers Parked On Apapa-Oshodi Expressway To Vacate Immediately
--  '138만 유튜버' 핏블리, 2천만원 기부…"나눔에 동참해서 기쁘다"
--  مكتبة الإسكندرية تحتفل باليوم العالمي للغة العربية
--  بقرار من شيخ الأزهر.. عباس شومان أمينًا عامًّا لهيئة كبار العلماء
--  داليا تطلب خلع زوجها: "ضربي بالشبشب وطردني.. نسيت انزل أكل لأمه"
--  المشدد لـ8 متهمين باستعراض القوة وقتل شخص بالقليوبية
--  أمر أميري كويتي بقبول استقالة الحكومة واستمرارها في تصريف الأعمال
--  إيران تعلن تجهيز قوارب بصواريخ ذكية لرصد السفن الأمريكية في المنطقة
--  ورد النيل يغطي شواطئ بورسعيد.. ما القصة؟- صور
--  مجلس النواب يوافق على مشروع تصنيع وحدات قطار مترو الأنفاق
--  "التموين" تتعاقد على 50 ألف طن سكر خام مستورد
--  تظهر على الجلد.. احذر 3 علامات تشير إلى أمراض القلب
--  पार्टनर के खर्राटों ने हराम की है रात की नींद! तो यूज कराइये 199 रुपये की ये डिवाइस
--  한방 첩약에 건강보험 적용…2026년까지 연장한다
--  Are doctors open on Christmas Day?
--  ارتفاع سعر خام برنت إلى 80 دولارا للبرميل بسبب التوترات في البحر الأحمر
--  الأمين العام المساعد يواسي آل المغاربي
--  Анита Мейзер с нов здравословен проблем
--  В Москве к девяти годам приговорили мужчину, отправившего девушке в подарок взрывчатку
--  Prisión preventiva a exfugitivo de Operación Discovery 2.0 detenido en aeropuerto
--  Son Mendoza, Merino y Reyes, nuevos magistrados
--  캡틴 SON 아시안컵 차출 앞둔 토트넘...공격의 열쇠는 '이 선수'에게 있다
--  Destituyen a jueza en Zulia por incitar a los funcionarios a sobornar para agilizar trámites
--  OIT proyecta un escenario laboral «altamente complejo» en América Latina y Caribe
--  Pakistani 'honour killing' parents are jailed for life in Italy over the murder of their daughter, 18, who had her neck broken when she refused an arranged marriage
--  Fördermittel für neue Bewegungsprojekte
--  LRT Jabodebek Adds More Trips to Welcome Holiday Season
--  В Москве состоялась жеребьевка "Игр будущего"
--  Peruda 6,1 bal gücündə ZƏLZƏLƏ
--  Factbox - Wat staat er in het nieuwe migratie- en asielakkoord van de EU?
--  Factbox-Was beinhaltet das neue EU-Migrations- und Asylabkommen?
--  Desi Bouterse (78) moet definitief boeten voor zijn rol bij de Decembermoorden: 20 jaar de cel in
--  Realus nedarbas Latvijoje lapkritį padidėjo iki 6,4 proc.
--  Aktien New York Ausblick: Anleger nach Rekordlauf erst einmal vorsichtiger
--  MER-C: Israel Menjadikan Rumah Sakit Indonesia di Gaza sebagai Markas
+-  بشرى.. إتاحة خدمة الغسيل البريتوني لمرضى الفشل الكلوى بالمنازل
+-  كيف يستفيد الحاصل على الدعم السكني من الضمان المطور؟
+-  رفع الجلسة العامة لمجلس النواب.. ومعاودة الانعقاد 2 يناير
+-  إحالة إدارة مدرسة إعدادي ببني سويف للتحقيق
+-  ضبط 3 أشخاص جمعوا 175 مليون جنيه حصيلة تجارة المخدرات في الدقهلية
+-  هبوط جماعي لمؤشرات البورصة في نهاية تعاملات اليوم الأربعاء
+-  I was an England star but quit football to launch fashion brand – now I make £35m-a-year and have an Oxford Street shop
+-  Food industry groups accuse Galen Weston of inaccurate claim over grocery code
+-  ¡Prepárate! Clima en Durango será gélido este miércoles 20 de diciembre
+-  ‘La Gomera’, el avión de Binter con el que volarás a Madrid: filas anchas y 132 asientos
+-  Designing for Comfort and Wellbeing with Ergonomic Interiors
+-  वाघाच्या हल्ल्यात गाय व बैल गंभीर जखमी | Batmi Express
+-  من اللاعب الذي يتوافق مع إندريك في ريالمدريد.. مبابي أما هالاند؟
+-  For many who are suffering with prolonged grief, the holidays can be a time to reflect and find meaning in loss
+-  Игнатьев считает продуманным решение РФС отказаться от перехода в Азию
+-  Smer-SD by vyhral znova, súčasnú koalíciu by však nevyskladali a Matovičovi neverí až 77 percent ľudí
+-  Ogromni 'ro-ro' putnički brod proizveden u Kini isplovio za Italiju
+-  Technikumokkal kötött együttműködési megállapodást a Széchenyi István Egyetem
+-  احتجاجا على "قانون الهجرة" المثير للجدل... وزير الصحة الفرنسي يقدم استقالته
+-  La CEOE acusa al Gobierno de «despreciar» el diálogo social
+-  Održani prosvjedi ispred OHR-a, traži se nametanje tehničkih izmjena Izbornog zakona
+-  OpenAI’s GPTBot is a Major Cyberthreat for Online Retailers During Holiday Sales: Report
+-  Motorola Moto G 5G (2024) se filtra en renders revelando un sutil rediseño
+-  تمديد صلاحية تأشيرة هيا حتى 24 فبراير 2024
+-  23-årig mand skammer sig over skyderi i Field's
+-  23-årig mand skammer sig over skyderi i Field's
+-  ‘Need to maintain energy’: Harmanpreet Kaur ahead of one-off Test against Australia
+-  ICG Result 2023: Know how to check Indian Coast Guard Navik result at joinindiancoastguard.cdac.in
+-  20 stores in 23 years: Lotus Electronics Director shares insights into company growth, future plans
+-  Dortmund rutscht in fundamenatele Krise – Projekt Terzic gescheitert?: BVB-Podcast 410
+-  Cabinet approves National Marine Spatial Plan
+-  Арзон дегани манфаатли дегани эмас: расмий Samsung смартфонини норасмийдан қандай ажратиш мумкин ва нима учун иккинчиси тавсияга лойиқ эмас?.
+-  Nicht einfach in Gesamtschule umwandelbar: Schulamt kritisiert Schließung der Potsdamer Fontane-Oberschule
+-  «Ҳомиладорлик ва туғиш нафақалари ҳар қандай ҳолатда ҳам тўлаб берилади» – Танзила Норбоева.
+-  10 Best 65-inch QLED TVs with premium features and immersive experience: Top picks from OnePlus, Nu and more
+-  Nesten i mål med TV 2s kostnadskutt
+-  Usta oyuncu Turgay Tanülkü ünlü diziye dahil oldu!
+-  Montelena, Cold Pursuit, Sonic Dash and Conscious Keeper impress
+-  Míchel, Reyes Estévez y la Selección femenina de fútbol, entre los Silvestres del año
+-  My son died at home and my family still lives there. I never had negative emotions about the house.
+-  Is the ‘Wonka’ the new ‘Rachel’ for It boys? Timothée Chalamet’s hairdresser tells all to Tatler – and reveals how to recreate that artfully tousled Willy-esque look
+-  Литовский перевозчик в 15 раз занизил стоимость ввозимых автозапчастей
+-  İcma Ermənistan XİN-dən başçısının müavininə cavab
+-  Umstrittene Mobilmachung: Kiew will Mangel an Soldaten lösen
+-  藍批綠打壞兩岸關係 蕭美琴：澳、菲遭打壓「這2國有民進黨嗎？」
+-  サムティ、ホーチミン市で高層マンション開発
+-  المنتدى العربي الروسي بمراكش.. مساعٍ لتعزيز التعاون سياسيا واقتصاديا
+-  Ex-president Desi Bouterse van Suriname krijgt in hoger beroep 20 jaar cel voor Decembermoorden
+-  «Телефон и ноутбук я точно не потяну, у меня зарплата $300»
+-  Das Christkind kommt nach Erlenbach
