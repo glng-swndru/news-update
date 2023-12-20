@@ -1,51 +1,51 @@
 # Latest News
--  Spajić i Gorčević u Briselu
--  UPSC Success Story: Unveiling Journey Of IAS Priyanka Goel, Overcoming 5 UPSC Failures To Secure Success On The 6th Attempt With An Impressive AIR….
--  Le FGIS lance une campagne de recrutement de cadres gabonais
--  Kakao Pay, Siebert agree to terminate acquisition deal
--  Blondie & Garfield - DECEMBER 21, 2023
--  Will probe into first lady begin after general elections?
--  Instagram dancing video in Iran leads to arrests
--  [INTERVIEW] Korea to spearhead global initiative to fight disease threats
--  Be more responsible
--  US deploys B-1B bomber after NK ICBM launch
--  Rival parties reach final agreement on national budget for 2024
--  Korean-born, Australian-based teenager signs with Pittsburgh Pirates
--  Shares of Harim Holdings soar, Pan Ocean fall after HMM acquisition announcement
--  Number of Korean arms importers triples in 2023
--  Korean platform firms could fall victim to new regulations
--  메시→홀란드, 이제는 홀란드 시대! 2023년 BBC 선정 올해의 월드 스포츠 스타
--  2023년, 당신은 어떤 프로그램을 좋아하셨나요? [MD포커스]
--  '명불허전' 신혜선, 넷플릭스서 영화·드라마 동시 1위
--  성태준, '맥베스' 공연 중 두피 타박상으로 응급실행…"봉합 진행 후 내원 치료 예정" [공식]
--  김남일♥김보민 "중3 아들, 키 185cm…축구는 포기→피지컬 때문 친구들 다칠까봐" [옥문아]
--  손해보험업계, 내년 자동차보험료 2.5~3% 인하…메리츠화재 인하율 제일 높아
--  월스트리트 잉글리시, '2023년 가족친화 인증기업' 선정…조재범 대표 "건강한 조직문화 형성에 앞장설 것"
--  "굿윌스토어 점포 100곳 건립 등" 우리금융, '사회공헌 10년 전략' 발표… 재원은 있나?
--  우리은행, '고객 중심 자산관리 실천 서약식' 개최
--  신한라이프, 취약계층 위한 '사랑의 빵만들기' 봉사 진행
--  '화수분 야구' 초석 다진 김태룡 단장, 두산 부사장 승진…"단장직은 유지" [공식발표]
--  배경화 현대카드 디지털부문 대표, 부사장 승진
--  Hiszpański bank centralny obniża prognozy wzrostu
--  Sprzedaż aut w Europie nadal rośnie
--  제주 국제 크루즈 올해 76회, 관광객 10만명...내년 300회 넘을 듯
--  Hummelgaard har nævnt Pitzner-sag for emiratisk minister
--  Hummelgaard har nævnt Pitzner-sag for emiratisk minister
--  كوريا الجنوبية واليابان تعقدان مباحثات اقتصادية بعد توقف لمدة 8 أعوام
--  강원 국제수소포럼에 따른 기업유치 업무협약식
--  가톨릭관동대 성과관리위원회 개최
--  화천군산천어축제 주전부리 음식 시식회
--  제38회 강릉노인대학 졸업식 개최
--  정선 남면 낙동2리 경로당 준공
--  횡성한우사관학교 수료식
--  캘리이야기 오붓하게, 냉장고 후원
--  송정동단체협의회 성금 1000만원 기탁
--  민주평통정선군협의회 통일 토크 콘서트
--  두루바른사회적협동조합, 지역자율형사회서비스투자사업 최우수상 수상
--  한국장애인고용공단 강원지사 공공기관 인사부서장 간담회
--  원주 삼산병원, 건강보험 빅데이터 진료지원 플랫폼 협력병원 현판식
--  원주제일 라이온스클럽 난방유, 겨울이불 전달
--  남원주농협 농가주부모임, 불우이웃돕기성금 전달
--  축협봉사회 사랑의 성금 기탁
--  2023년 연말 군 위문품 전달
--  NH평창 농협군지부 이웃돕기 성금 기탁
+-  “115년 만 공급된 수돗물 인천 섬 소식 검색하니 연합뉴스 기사만 나온다”
+-  업스테이지, AI사업단과 GPU 장비 활용 MOU 체결
+-  바이브컴퍼니-NHN데이터, ‘세상의 취향 2023’ 리포트 공개
+-  KOSA, ‘2023 글로벌 시장 진출 오픈세미나’ 개최
+-  메가존소프트, 알리바바 클라우드 국내 데이터센터 할인 프로모션 진행
+-  오나인솔루션즈, 파스타 제조 식품기업 바릴라에 통합 계획 기능 구축
+-  AWS, 상하이자동차 스마트 커넥티드 차량 플랫폼 개발·확산 지원
+-  네이버, 설문 플랫폼 ‘네이버 폼’ 베타 출시
+-  두들린 이태규 대표, 중소벤처기업부 장관 표창 수상
+-  SKT-코레일, 통신 빅데이터 기반 광역철도 혼잡도 서비스 제공 협력
+-  KT, 성탄절·연말연시 대비 통신망 집중 관리 체제 운영
+-  티맥스메타버스-KT그룹 주스, ‘시청각 융합’ 메타버스 플랫폼 마련 협력
+-  포자랩스, 인공지능 학회 AAAI서 데이터셋 연구 논문 채택
+-  SK브로드밴드, Btv에 AI 대거 접목…차세대 초개인화 IPTV 서비스 지원
+-  เพจดังทิ้งปม ดาราสาว ลบรูป-คลิปคู่ ลั่น เรื่องเดียวที่ถอย คือเรื่องผู้หญิง !?
+-  İstanbulspor'un Trabzonspor maçında sahadan çekilmesinin ardından çok sert yorum! "Bu oyunun katilisiniz... Bu lig nasıl bitecek?"
+-  Asuntolainakatto palautetaan taas 90 prosenttiin
+-  इस एग रोल का लाजवाब स्वाद, खास तरीके से होता है तैयार, लोग हैं इसके दीवाने,
+-  Director Venkatesh Maha deletes Twitter post backlash over support to Dunki
+-  Путин: Очаквайте твърд отговор
+-  Saldırıya uğrayan Halil Umut Meler'den Emre Belözoğlu'na suçlama
+-  İstanbul'da iş yerinde çıkan ve üst katlara sıçrayan yangında 1 kişi öldü, 5 kişi yaralandı
+-  Afyonkarahisar'da 4 kişinin katledildiği olayda acı detay
+-  Spencer Matthews explains reason behind his sudden weight loss after sparking concern
+-  Kidnapped British millionaire is RESCUED in Ecuador: Police say he is 'safe and healthy' as nine crooks are arrested in raid
+-  Kidnapped British millionaire is RESCUED in Ecuador: Police say he is 'safe and healthy' as nine crooks are arrested in raid
+-  How the markets and the economy surprised investors and economists in 2023, by the numbers
+-  From AI and inflation to Elon Musk and Taylor Swift, the business stories that dominated 2023
+-  DreameBot D10s Robot süpürge ve paspas
+-  İsmail Kartal maç öncesi son kez uyardı: Derbiyi kafanızdan silin
+-  İstanbul'da korkunç yangın! 1 kişi öldü, 5 kişi yaralandı
+-  Samsunspor'un rakibi Konyaspor
+-  İsrail'in "yanlışlıkla" öldürdüğü esirin babasından Netanyahu hükümetine eleştiri: Oğlumu iki kez öldürdünüz
+-  Uluslararası Polis Teşkilatı'nın "acil yakalama mesajı" ile aradığı Rus şüpheli Türkiye'de yakalandı
+-  2024'te alınacak personele ilişkin detaylar belli oldu
+-  Kartal'a İngiltere'den kiralık golcü
+-  İstanbul'da aranan 822 zanlı yakalandı
+-  "ערים בלילות ובוכים בימים": אביב גפן הוציא שיר עם מיאה ליימברג ששוחררה מהשבי
+-  חזר לחופשי: כוס חורבות שנפצע בתאונת דרכים שוחרר לטבע
+-  Nio electric car achieves more than 1,000km on a single charge
+-  LF푸드 모노마트, 외식 소상공인 홍보 지원사격
+-  메가존소프트, 알리바바클라우드 한국 데이터센터 할인 프로모션 진행
+-  시큐리온 OnAV, 31번째 AV-TEST 인증 획득… 2023년 평가 탐지율 100%
+-  F5, 다수 IT 어워드서 수상… “일관된 노력 인정받은 결과”
+-  The Bachelors Recap: Could This Satisfying Grand Finale Potentially Save The Entire Franchise?
+-  Shoppers go wild for £1.99 chocolate selection box still on the shelves at Home Bargains
+-  Sadikin Aksa Akui Pernah Ketemu Perwakilan Amran Sulaiman, Bahas Soal Masalah Ini
+-  «Faire semblant de rigoler pendant deux jours, c'est absurde!» : comment les entreprises se trompent sur les effets du team building
+-  Inside Rangers hero’s life-changing surgery hours before Luton’s Tom Lockyer collapsed – an accidental fall saved him
+-  Det er rendyrket snobberi, når borgmestre vil ændre københavnske julemarkeder
