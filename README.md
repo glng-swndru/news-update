@@ -1,11 +1,11 @@
 # Latest News
--  Pakistan- Islamabad Earthquake: पाकिस्तान के इस्लामाबाद में भूकंप के तेज झटके, 5.8 की तीव्रता से हिली धरती
--  Risk adjusted net present value: What is the current valuation of Ocular Therapeutix’s Axitinib?
--  Xildhibaano Mucaarad ku ah Dowlada oo eedeyn ba’an u jeediyay Ra’iisulwasaaraha
--  Christmas spirit among waste collection staff
--  Kanye West Is Asking $53 Million for His Tadao Ando-Designed Malibu Home
--  Volkswagen löi lukkoon 10 miljardin euron matokuurin
--  Reemtsma-Entführer Drach soll nie wieder frei sein: Staatsanwaltschaft fordert Maximalstrafe
--  El Mesón Sándwiches busca crecer en el estado de la Florida
--  Ex-employees blast Instagram chief Adam Mosseri’s ‘mixed record’ on youth safety: report
--  Çocuğa 'istismar' Davasında Akılalmaz Savunma: 'Yaşlı-Başlı Adamım'
+-  بلينكن: حل الدولتين سيتطلب من الجميع خيارات صعبة بما فيهم أمريكا
+-  وزير خارجية بريطانيا يصل القاهرة لمتابعة وصول المساعدات بلاده إلى غزة
+-  Toter Mensch bei Brand in Haus gefunden
+-  Chelsea on tehnyt kovan ratkaisun tammikuun siirtoikkunan suhteen
+-  شاهد.. زهور الخزامى الجميلة تكسو سهول الصمان بعد هطول الأمطار
+-  "وقاية": المتحور JN.1 سريع الانتشار .. ولا زيادة في التنويم داخل العنايات المركزة
+-  Así es el drama que está viviendo Neymar para recuperarse: Gritos de dolor y llantos
+-  Gustavo Zerbino, superviviente de los Andes: «En vez de asustarme de la muerte, me entregué a vivirla»
+-  Komentarz po sesji: Nowe rekordy w Warszawie
+-  త్వరలో ప్రచారం ప్రారంభిస్తా.: సుగవాసి
