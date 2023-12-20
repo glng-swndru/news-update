@@ -1,51 +1,51 @@
 # Latest News
+-  Two railroad crossings are temporarily closed in Texas. Will there be a significant impact on trade?
+-  Texas begins flying migrants from US-Mexico border to Chicago, with 1st plane carrying 120 people
+-  ‘잘 있어, 나는 더 좋은 팀 간다’... 노팅엄에서 경질→크리스탈 팰리스 감독 예정
+-  Phantom Wallet Integrates Bitcoin, Ordinals, and BRC-20 Tokens
+-  How Colorado’s election laws made the state ripe for challenging Donald Trump’s candidacy
+-  Kapal Israel diharam berlabuh di Malaysia
+-  Empowering financial resilience: How Lia Holmgren is bridging gender gaps in the trading world
+-  Patrick Radden Keefe y las caras del mal
+-  Slow-moving Pacific storm threatens to bring California flooding and mudslides
+-  Reps probe NNPCL JV deals, $60bn revenue loss
+-  Global Supply Chains Under Threat Amid Houthi Attacks on Shipping in Red Sea
+-  Chucky
+-  Amputácia nohy na dvakrát: Korpulentná žena predsedu zo Slunce, seno... Bojovala s cukrovkou!
+-  NEUVERITEĽNÝ zjav: VIDEO Teľa cupitalo po ceste v reflexnej veste! Okolnosti prípadu vás dorazia
+-  सर्दियों में वजन कम करना है तो रोजाना खाली पेट पिएं ये पेय पदार्थ
+-  The FTC proposes new rules to curb the monetization of children’s data
+-  Weißer Ring: Frauen brauchen Schutz vor Gewalt ihrer Partner
+-  Writer’s Strike Contributes to Projected Decline in 2024 Global Box Office Sales: Analyst Firm
 -  대입 수시 합격자 등록 마감… 그 결과는?
 -  산림청 '도시숲법' 개정...과도한 가로수 가지치기 안돼
 -  봉화군, 농촌활력분야 평가 우수상 수상!
 -  진천군, 충북혁신도시 정주 여건 개선 박차
 -  충주시, SY그룹·SY행복나눔재단, 연말 사랑의 나눔 실천
+-  El argumentario
+-  Thousands take to the streets to protest austerity measures of Argentina's new president
+-  Ice-T "wouldn't care" if his 'Law and Order' character was played by AI
+-  As Disney Streaming Streamlining Continues, Star+ To Shutter Next Year In Latin America As Content Shifts Onto Disney+
 -  Masina/Centre Collège des Ambassadeurs : la police chasse témoins et électeurs à coup de gaz lacrymogène et tirs de sommation
 -  Mbappé celebró su 25 cumpleaños con un doblete
 -  Νέα φέσια 567 εκατ. ευρώ στην Εφορία τον Οκτώβριο
 -  Πληρωμή συντάξεων, επιδομάτων: Τι καταβάλλεται έως την Παρασκευή
+-  Rivers Assembly withdraws Fubara impeachment notice
+-  व्यायाम के लाभ: हल्के व्यायाम से बुजुर्गों को होता है लाभ
 -  Minneapolis in midst of surge in late-year homicides; 5 in recent dayslong span
 -  By: yenibosna eskort
+-  Μπάκιτς: «Κρίμα που θα παίξουμε χωρίς κόσμο» (vid)
 -  Bayern Munich battle past Wolfsburg 2-1 with Kane on target again
+-  De Kennedy a Otegi
 -  Inmigrantes cubanos se enfrentarán en 2024 a nuevas reglas de migración y asilo de la Unión Europea
 -  السماح باستيراد 10 آلاف طن من أحطاب التدفئة الجافة
 -  We take a look at the Silicon Valley bosses who’ve been properly plucked in 2023
 -  Push for jail time for Kristina Keneally’s police officer son over false evidence
 -  Push for jail time for Kristina Keneally’s police officer son over false evidence
+-  Weißer Ring: Frauen brauchen Schutz vor Gewalt ihrer Partner
 -  [국제유가] 홍해 지정학적 불안에 3거래일째 상승…WTI 0.38%↑
 -  은행권, '2조원+α' 상생안 마련…취약 차주당 최대 300만원 이자 캐시백
 -  When Jack Johnson won the world title in Sydney
 -  When Jack Johnson won the world title in Sydney
 -  La Superliga, ante el fallo clave: todas las preguntas y respuestas de cara a la sentencia del Tribunal Europeo
 -  Электрогрузовик на одних солнечных батареях поднялся на самый высокий вулкан
--  Confirma Sheinbaum el tren Monterrey-Nuevo Laredo
--  عاجل.. طريقة ورابط الاستعلام عن أهلية الدفعة 74 من حساب المواطن
--  مستشفى الملك فيصل التخصصي يعلن عن 130 وظيفة شاغرة
--  مسؤول مجري يصدم أوكرانيا بشأن الانضمام الأوروبي: يدمرون اقتصادنا
--  بعد سنوات من العلاقات المتوترة .. إطلاح سراح حليف رئيس فنزويلا مقابل 10 أمريكيين
--  Alabama backup QB Tyler Buchner heading back to Notre Dame for lacrosse, degree
--  Late-stage cancer diagnoses hit 100,000 to leave England trailing Europe in survival rates
--  김정은 "적 핵 도발하면 주저없이 핵 공격 불사"
--  Woman, 72, Uses Shovel to Chase Naked Intruder From Her Vancouver Home, Police Say
--  '고딩엄빠4' 개인 회생 상황에도 택시비 4만원 "말이 되냐" 격분
--  Mercato: le PSG annonce la prolongation de Kimpembe, malgré sa blessure
--  Tucumán: hartos, los vecinos lincharon a dos motochorros que robaron en la puerta de un sanatorio
--  Joe Bennett and Alex Gorrin hoping to get longer deal at Oxford United
--  Oxfordshire youth cup to be named after Micky Lewis
--  FETÖ'ye dev operasyon: 5 tutuklu
--  Katana Chance & Kayden Carter On Their WWE Women’s Tag Team Title Win, Journey As a Team
--  Benítez: "Estoy decepcionado de lo que hemos hecho en el primer tiempo"
--  부천·횡성·영동·고흥, 일자리연계형 지원주택 570가구 공급
--  Castilla y León premiará tesis universitarias que «deslegitimen» el terrorismo
--  Ritüel ne demek? Ritüel yapmak günah mı? Ritüel nedir, nasıl yapılır?
--  Mayoría de incendios en diciembre son por el árbol navideño ¿lo cubre un seguro?
--  Suomi saa frisbeegolfin MM-kisat
--  Latin America Can Boost Economic Growth by Reducing Crime — Global Issues
--  Valverde: "Ha sido un gol de coraje""
--  غينيا بيساو: مرسوم رئاسي بتعيين وزيرا أول جديد
--  Congress expands scope of Harvard investigation to include allegations of president's plagiarism
--  Liverpool pobijedio West Ham i plasirao se u polufinale EFL Cupa
