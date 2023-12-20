@@ -1,51 +1,11 @@
 # Latest News
--  İsrail, Hamas ile yeni bir esir takası mutabakatına varılması için önerisini Katar'a iletti
--  İsmail Kartal'dan İrfan Can Kahveci'ye özel uyarı
--  Süper Lig'de günün VAR hakemleri açıklandı
--  Kirli bilanço ifşa oldu... Mansur Yavaş'ın fiyaskosu dudak uçuklattı
--  Cumhurbaşkanı Yardımcısı Cevdet Yılmaz'dan Bakü'de şehitliklere ziyaret
--  Okan Buruk onay verdi! Real Madrid'in yıldızı Galatasaray'a
--  Stovky hasičov bojujú s lesným požiarom pri Kapskom meste
--  Az általános iskolások oktatásába is bevezetné a mesterséges intelligenciát egy magyar programozó iskola
--  Xankəndidə nə qədər seçici səs verəcək?
--  Lekka poprawa nastrojów niemieckich konsumentów
--  W listopadzie spadła produkcja przemysłowa
--  LASRRA expands registration database
--  [김천24시] “원도심 공동화 해결 해야” 나영민 시의원, 지역대학 활용 촉구
--  “조합장 친인척 배제한다더니” 목포수협 ‘조합 사유화’ 논란
--  ‘尹心’과 ‘韓心’은 다를까…이동하는 국민의힘 ‘권력의 추’
--  Snimka užasa: 'Mislili smo da ih je auto poklopio. Kako je mama uspjela zgrabiti dijete? Čudo!'
--  Zweites Fest im Krieg: Ukraine sendet eindeutige Weihnachtsbotschaft an Putin
--  Geisenheim: Schottergarten- und Freiraumsatzung vom Tisch
--  Von Jamie Foxx bei Dreh fertiggemacht? Cameron Diaz bricht ihr Schweigen
--  The Finals com medidas adicionais para lidar com batoteiros
--  পান্নুন হত্যাচেষ্টা নিয়ে প্রথম মুখ খুললেন মোদি
--  Pogled s Trebevića: Sarajevo pod otrovnim oklopom magle i smoga
--  Cara Mahfud MD Selesaikan Ketimpangan Ekonomi, Dimulai dari Pemberantasan Korupsi
--  스쿨존 사망사고 조은결군 아버지, 버스기사 엄벌 요구
--  Uprkos najavi Schmidta, danas protest pred OHR-om
--  האוצר נגד מעמד הביניים: הקטנועים יתייקרו בינואר באלפי שקלים
--  בישראל אסורה כניסת עובדים פלסטינים, אבל אלפים מהם יעבדו בהתנחלויות
--  Dax bleibt nah am Rekord träge
--  Covington y una excusa para la historia: "Perdí porque los jueces odian a Trump"
--  La Fiscalía francesa anuncia que el joven español desaparecido en Lille está en Islandia
--  Soccerladuma | Over R40m? Sundowns' Transfer Fee For Latest Signing
--  Televizyon programına katılan boşanan çiftin tartışması kanlı bitti: Koca getirdiği tüfekle katliam yaptı
--  Emre Belözoğlu: "Haklının acelesi yok özür diledim ama bir karşılığı olmadı"
--  109 kişi hayatını kaybetmişti: Ebrar Sitesi B Blok'ta kolon ve kirişler yetersizmiş
--  Tabuta sığmayan şehidin annesi Daşdemir İmamoğlu’na seslendi: ‘Oğlumu seçim reklamında kullanamazsın’
--  "No Hard Feelings" mit Jennifer Lawrence kommt zu Netflix
--  16-årig dreng sigtet for at sætte ild til hoveddør
--  Ankara-İstanbul arasına 'Süper Hızlı Tren' müjdesi: Ulaşım 80 dakikaya indirecek! Detaylar belli oldu
--  모텔 돌며 불법촬영 중국인…징역 2년 실형
--  People left 'speechless' at 13-year-old's wildly extravagant Christmas list
--  Usindiso fire inquiry recuses commissioner accused of xenophobia
--  פאון, אומאונגה ויאנגה צפויים לפתוח יחד בסכנין נגד הפועל חיפה
--  המלך נאתכו מול הטוענים לכתר: הדרבי הכי ישראלי של בלגרד
--  בריינה מתמוגגים: "הסוד שלנו? אנחנו מדברים בעיקר במגרש"
--  Цены на нефть превысили 80 долларов за баррель
--  הכדורסלן האמריקאי הודה ברצח אישה באמצעות כבל HDMI
--  Combis nastavlja stabilan rast i u 2024.
--  フェラーリF1代表 FIAとヴォルフの論争は「F1にとって非常に恥ずかしい」
--  Phishing scams: 7 safety tips from a cybersecurity expert
--  TS Assembly: కాళేశ్వరంపై సీఎం రేవంత్, హరీష్‌ రావు మధ్య హాట్ హాట్ కామెంట్స్
+-  전도연, 송혜교・한소희 불발 '자백의 대가' 출연할까…"검토 중"
+-  Sport | Argentine golf champ Cabrera reinstated by PGA Tour after prison stay - report
+-  Российский айтишник лишился новогоднего отпуска из-за опечатки в загранпаспорте
+-  उदयपुर सिमेन्ट कारखाना सञ्चालन गर्न सामूहिक सुधारको खाँचो
+-  Hantaviren an der Front – Mäusefieber befällt Russlands Soldaten im Ukraine-Krieg
+-  Wike vs Fubara: Your directive unacceptable, null, void – Rivers elders to Tinubu
+-  Ram Check Sasar Kendaraan Umum di Terminal Tirtonadi Solo, 2 Bus Ditilang karena Langgar Syarat Administratif
+-  الكشف عن الكرة الرسمية لنهائي كأس آسيا
+-  حديث لتايلندي شهد قتل إسرائيل لثلاثة من مواطنيها
+-  Perú alista una refinería de litio con capacidad de 100.000 toneladas al año
