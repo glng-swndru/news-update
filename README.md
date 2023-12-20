@@ -1,51 +1,51 @@
 # Latest News
--  Sergi Roberto alivia al Barça
--  Şota Arveladze: "Son dakikalarda puan alabilirdik"
--  Matt Shirvington laments the end of one very Australian Christmas tradition and calls its cancellation 'grinchy': 'I used to do this as a kid'
--  “Christmas Pajama Day” en La Feria The Park
--  Femke Bol dé grote ster op aangepast Sportgala: ‘Ik ben supertrots en vind het heel bijzonder’
--  Cortizo convoca a sesiones extraordinarios para analizar el presupuesto
--  Двум предприятиям из Тверской области частично компенсируют затраты на приобретение и установку оборудования
--  ReGen talks roll into yet another year
--  Analitičar o protestu opozicije: Ili će doći do kompromisa ili ulazimo u političku krizu
--  Bodrum açıklarında 89 düzensiz göçmen yakalandı
--  Symphony Floating Rate Senior Loan Fund Declares Special Year End Distributions
--  Western Countries Plotting Against Establishment of Palestinian State - Lavrov
--  Tesla Cybertruck Takes On The Ocean
--  Brompton Flaherty & Crumrine Investment Grade Preferred ETF Declares Special Year End Distribution
--  Ľady poľavili! Turecko je ochotné hlasovať o vstupe Švédska do NATO: Erdogan si kladie TIETO podmienky
--  Vianočný ZÁZRAK: Len pred týždňom oznámila rakovinu a... Hviezda Teórie je VYLIEČENÁ!
--  أعراض تشير إلى قرب احتشاء عضلة القلب
--  بايدن يصف ترامب بالمتمرد
--  ماكرون: محاربة الإرهاب لا تعني تدمير كل شيء بغزة
--  ЦАХАЛ сообщает о захвате элитного квартала ХАМАС в Газе
--  ガザ決議案の採決また延期
--  Britanac pričao o Nikoli Tesli, iznio jezive činjenice: ‘Bio je opsjednut, borio se s tim’
--  Prefeitura de Lucas sorteia prêmio de R$ 50 mil do Nota Luverdense
--  Ўзбекистон Республикаси Олий Мажлиси Сенатининг қирқ саккизинчи ялпи мажлиси тўғрисида АХБОРОТ
--  Янги Ўзбекистон мактаб остонасидан бошланади
--  Замонавий тиббиёт пункти ишга тушди
--  Илк маротаба мурaккаб жарроҳлик амалга оширилди
--  Янги Маънавият ва маърифат маскани
--  1000+ jobs gone as major labour hire firm enters receivership
--  Илк бор Халқаро информатика олимпиадаси Ўзбекистонда ўтказилади (+видео)
--  20-летний форвард «Бреста» оформил покер за тайм в матче Лиги 1 с «Лорьяном»
--  Warner Bros. Discovery shares fall on report about Paramount merger talks
--  ‘메시 최고의 파트너가 어쩌다가’... 알베스, 성폭행으로 9년 구형→24년에 재판 예정
--  Man Bites Officer’s Forearm During Arrest At Gas Station, Police Said
--  Fijian Drua at Sand Dunes
--  DOI, Alice ‘Ali’
--  Wall Street doet een stap terug
--  «Отпугнёт международных инвесторов»: как развивается ситуация с заморозкой российских активов на Западе
--  Ψαράς ισχυρίζεται ότι βρήκε συντρίμμια του αεροπλάνου που είχε εξαφανιστεί το 2014 (vid)
--  Projet de loi immigration, fin de vie, affaire Gérard Depardieu... Ce qu'il faut retenir de l'interview d'Emmanuel Macron dans "C à vous"
--  Авиакомпания «Россия» скоро получит необходимые разрешения для полетов в Пекин
--  В конгрессе призвали ввести масштабные санкции против энергосектора России
--  Франсуа Олланд: новый закон Франции о миграции — это поражение для Республики
--  Policie popřela, že by znala totožnost klánovického vraha a tajila to
--  The $2.15 ALDI Product Rated Better Than Expensive Stain Removers
--  Barcellona vince a fatica, match winner è Sergi Roberto
--  Supreme Court to hear arguments on blocking EPA cross-state smog pollution rule
--  إعلام عبري: حماس تشترط الإفراج عن مروان وعبد الله البرغوثي وأحمد سعدات بصفقة الأسرى
--  وزير خارجية إسرائيل: سنعمل على اغتيال هنية ومشعل ولن يموتوا موتًا طبيعيّا
--  Nomad reveals Qi2 version of the Stand that charges the iPhone at 15W without MagSafe
+-  Puštena Vasvija Vidović nakon saslušanja u Tužilaštvu BiH
+-  Schick-Hattrick, Bayer souverän: FC Bayern zittert sich trotz Kane-Traumtor zu Minimalsieg
+-  SAD i Venecuela postigle dogovor o razmjeni zatvorenika
+-  La VII San Silvestre se celebrará el próximo domingo 31 de diciembre
+-  ITC denies Apple’s request to delay looming Apple Watch ban
+-  بعد ظهوره في جزر فرسان .. معلومات مذهلة لا تعرفها عن حوت الأوركا القاتل
+-  عاجل.. طعن أمه حتى الموت.. تنفيذ حكم الشرع في وافد ارتكب جريمة "يُندى لها الجَبين"
+-  "إدارة الدَين" ينتهي من ترتيب تمويل بقيمة مليار يورو عبر (SACE)
+-  ZA SVE JE KRIV JOKIĆ Arbitar koji ga je isključio nije delegiran već sedmu noć
+-  Blackmagic Cinema Camera 6K Review: Affordable L-Mount Filmmaking Achieved
+-  Sieg in Wolfsburg: FC Bayern gewinnt mit letzter Kraft
+-  Hertfordshire council repairs extra 20,000 potholes
+-  Tributes pour in as 'beautiful' Irish influencer and mum-of-two dies suddenly
+-  Married At First Sight's Mel Schilling opens up on her fitness regime amid cancer diagnosis
+-  Sydney Sweeney used to dream of breast reduction but now calls them her 'best friends'
+-  Esther Rantzen's desperate appeal to MPs as she joins Dignitas after stage four cancer diagnosis
+-  Lady Louise Windsor returns from uni to join royals at King Charles' huge Christmas party
+-  Tommy Fury says baby Bambi is better than any boxing victory as he shares proudest moment
+-  John Lennon's son Julian breaks silence on rumours of ugly feud with brother Sean
+-  Celebrity Masterchef star Richard Blackwood's sad loss and heartbreaking struggle after bankruptcy
+-  Christine McGuinness 'misunderstood' before autism diagnosis and struggled with eating disorder
+-  Only Connect Victoria Coren Mitchell's whirlwind love story with David - first meeting and new baby
+-  Dannii Minogue sparks hysteria as she hints she's representing Australia at Eurovision 2024
+-  Spandau Ballet's Tony Hadley shares heartbreaking reason he never touched drugs
+-  Charlotte Dawson's shares heartbreaking update after fiancé hospitalised just weeks after son
+-  Paul O'Grady's daughter shares poignant way her son remembers late star every day
+-  Noddy Holder shares moment he told Queen's Freddie Mercury he is 'never going to be a pop star'
+-  Kucoin Review 2024
+-  Los adoquines no entran en el plan
+-  Self Reliance: release date, trailer, cast and everything we know about the Jake Johnson comedy
+-  Montenegro acusa Pedro Nuno Santos de desonestidade e Pizarro recusa comentar processos do caso das gémeas
+-  Kickoff | SuperSport finally off the mark in Confederation Cup
+-  The junior doctors strike is out and out greed – we’ll be lucky to get through coming days without unnecessary deaths
+-  %30 من طلاب المملكة مصابون بضغط الدم
+-  Macron admite que la reforma migratoria contiene apartados anticonstitucionales
+-  تعيينات في وزارة العدل والتهذيب(بيان )
+-  Statt Jimi: Yeliz Koc ist bei "Diese Ochsenknechts" zu sehen
+-  التصعيد الإقليمي عبر تصدير الأزمات
+-  케인 넣고 김민재 막고! 뮌헨, 볼프스부르크 원정서 2-1 승리…전반기 2위 마무리 [분데스리가]
+-  David Foster hopes the 34-year age gap between himself and Katharine McPhee is starting to seem less "weird"
+-  تشافي: هدفنا الرئيسي لهذا الموسم الفوز بالألقاب
+-  BBC: rząd premiera Tuska rozpoczął odpolitycznianie mediów w Polsce
+-  A California doctor accused of trying to poison her husband with Drano is now facing a lawsuit for botching a skin cancer patient's surgery
+-  Crash between car and van as emergency crews scrambled and busy Scots road shut
+-  São Paulo oficializa volante Bobadilla: "Ansioso para jogar no Morumbi e viver noites mágicas"
+-  مبابي يعزز تقدم باريس سان جيرمان أمام ميتز
+-  Soccerladuma | Red Cards Dished Out As SSU Get First Confed Cup Win
+-  Jornada de convivencia para dar por concluido el primer trimestre de este curso
+-  “Inwentura 2023.”: U subotu se otvara godišnja izložba članova Fotokluba Rijeka
+-  Bürgergeld-Debatte: Wie der Staat die Fleißigen vom Arbeiten abhält
