@@ -1,11 +1,11 @@
 # Latest News
--  U pet općina KS proglašena Uzbuna, na snazi i interventne mjere
--  Talous on jämähtänyt taantumaan – julkista taloutta odottavat lisäsopeutukset
--  Kalvin Phillips ‘lays out transfer demand’ and more Man City rumours
--  Report: Tottenham have bid ready for £25m star as Spurs also open Todibo talks
--  Sir Jim Ratcliffe can give Erik ten Hag the thing he needs most at Manchester United
--  Jeffrey Epstein Victim Taunts His Associates Ahead of Document Dump
--  Дніпро переміг Харківські Берсерки у чемпіонаті України
--  Brejnev fəxri vətəndaş titulundan məhrum edildi
--  Mrak Taritaš: Plenković je poput zlostavljača koji kaže ženi “sama si to tražila”
--  تراند اليوم : لأصحاب التحدي| أوجد الاختلافات الـ 5 بين صورتي العائلة خلال 9 ثوان فقط
+-  وفا : عباس يجري فحوصات طبية روتينية
+-  هيئة البث العبرية: إسرائيل اقترحت صفقة للإفراج عن الرهائن
+-  السعودية: رصد انتشار متحور «JN.1» محلياً
+-  التموين: 3.6 مليون معاملة للسجل التجارى فى 2023
+-  Katsina Correctional Service recaptures two escaped inmates
+-  Mimicry row: Delhi advocate seeks FIR against TMC MP
+-  Partizan dobio Zvezdu u derbiju
+-  هاري كين يقود هجوم بايرن ميونخ أمام فولفسبورج في البوندسليجا
+-  Iroska Elvir y Fátima Mena ya no forman parte de la Junta Directiva del CN, según diputada del PSH
+-  Finals of Smart India Hackathon 2023 under way at city college
