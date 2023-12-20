@@ -1,11 +1,11 @@
 # Latest News
--  3 شقيقات يتيمات غزويات يناشدن أهل الخير لدفع اجار المنزل
--  بن طريف من عمان العربية يحاضر حول النزاهة ومكافحة الفساد
--  عمان العربية تعقد ورشات متخصصة في المحاسبة لمنتسبي بلدية كفرنجة وجمعية كفرنجة
--  الأردن وبرنامج الأغذية يسيران قافلة برية إلى غزة
--  طلبة العلوم الحاسوبية في عمان العربية يتميزون على الصعيدين المحلي والدولي
--  경북신보, 중소벤처기업 금융지원 ‘대통령 기관표창’
--  세원그룹, 영진전문대에 장학금 2천만원 기탁
--  베어링아트, 영주시에 성금 700만원 기탁
--  윤재옥 “선거 전 선심성·매표용 예산 최소화”
--  정효경 이노비즈 대경지회장 경북도 디지털 전환 위원회 문화·복지 분과 위원장 위촉
+-  Legislative council passes bill to waive duty on electricity charges for Metro
+-  Maharashtra govt announces Rs 5/litre subsidy for milk producers
+-  INDIA alliance candidate against NDA on every seat in 2024 Lok Sabha polls: Cong
+-  Türk bayraklı gemileri hakkında güvenlik kararı
+-  Beyonce milyarder olma yolunda
+-  Listen to Shygirl’s ravey new single with Kingdom, ‘f@k€’
+-  רעידת אדמה: בקרוב יחשפו שמות 170 של מקורבים לג'פרי אפשטיין
+-  BYD דולפין החשמלית: מ-137 אלף שקל
+-  Enugu: Police Rescue Victims Hours After Abduction, Recover Weapons
+-  A Pioneer In Sustainability
