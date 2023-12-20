@@ -1,51 +1,11 @@
 # Latest News
--  HMM 품은 하림, 이틀째 강세…‘유상증자’ 팬오션은 ↓
--  카카오모빌리티, 가맹택시 콜 몰아주기 혐의 검찰 수사 전망..중기부 "공정위에 고발요청"
--  Erməni keşiş xütbəsində hayları Azərbaycanla müharibəyə çağırdı
--  에스파 닝닝이 밝힌 혼자만의 시간 "주로 테크노를 들어요" [화보]
--  '나는 솔로', 비드라마 화제성 1위→'솔로지옥3' 4위로 진입…출연자 화제성 1위는 '이 배우'
--  유신열 신세계면세점 대표 “자유여행 방한 외국인 관광객 잡겠다”
--  Kelowna Rockets forward Tij Iginla to play in CHL Top Prospects Game
--  To work together for China-Vietnam community with shared future that carries strategic significance
--  Unique ethnic culture leads to booming rural tourism in China's Guangxi
--  List of Jeffrey Epstein's associates must be unsealed, judge rules
--  Pregnant Mum, Kids Killed In Honda Fit Accident
--  Entre la coyuntura y las transformaciones necesarias: hacia una industria más sustentable, diversa e inclusiva
--  Southwest Airlines, pilots union reach tentative labour deal
--  Daniel Bocanegra, ¿y el primer paso para su llegada a América de Cali?
--  ‘सपने में आती है…’, मनचले की हरकतों से छात्रा ने छोड़ी पढ़ाई तो उसकी मां से कर दी छेड़छाड़
--  O.U.R. files countersuit alleging defamation
--  North Korea and Russia clash with US, South Korea and allies over Pyongyang’s latest missile launch
--  US technology sales to Russia lead to a Kansas businessman’s conspiracy plea
--  Mother of a child punished by a court for urinating in public refuses to sign probation terms
--  Н.Энхрийхэн шатрын өсвөр үеийн Ази тивийн аваргаас мөнгөн медаль хүртлээ
--  Bruce Springsteen ‘in talks to headline next year’s Glastonbury’
--  La presidenta de Perú pide celeridad a Corte Interamericana de DDHH sobre excarcelación de Fujimori
--  Se complica la situación del acusado por el robo millonario a la familia de Antonela Roccuzzo
--  Court disqualifies Trump from Colorado ballot
--  Vasco conclui acordo e encerra pendência por Lucas Piton
--  광주정보문화산업진흥원(GICON), 시민자문위원 위촉
--  양육비이행관리원 "양육비 채무자의 가상자산 압류한다"
--  Nonprofit news organization launching to cover Utah state politics
--  How ‘Star Wars’ lingo found a place in everyday conversations
--  Corte Suprema de Colorado falla que Trump está “descalificado” para ocupar la presidencia de EEUU
--  Utah State football: Safety Devin Dye transferring to Kansas
--  두세훈 민주당 법률위원회 부위원장, 완주·진안·무주·장수 출마
--  PAGASA Releases Latest Weather Update for Wednesday (December 20, 2023)
--  Байден отреагировал на цитирование Путина Трампом
--  Aaron Rodgers Discusses If He'll Play in the NFL Again After Ankle Injury
--  श्रमिक बिदेसिएको अनुपातमा विप्रेषण कम
--  SK에코플랜트, 디지털 탄소 관리 솔루션 '웨이블 디카본' 출시
--  DL건설, 창원 회원2구역 신탁형정비사업 시공권 확보
--  George Clooney Says Matthew Perry Wasn’t Happy on Friends
--  Gelar Sidak Makanan di Solo, Balai Besar Jateng-DIY Periksa 5 Kios di Terminal Tirtonadi
--  Firli Bahuri Belum Bisa Pastikan Kehadirannya dalam Sidang Etik Hari Ini
--  SPC삼립, 최초 한글조리서 '음식디미방' 활용한 상화병 출시
--  Doja Cat Wears Daring Sheer Outfit to Celebrate End of Her Tour
--  Pedro Geromel revela vontade de seguir no Grêmio
--  콜로라도州 대법원 "트럼프, 대선 경선 출마자격 없어"
--  وزير الدفاع السعودي يبحث مع نظيره الفرنسي التعاون العسكري والتطورات في المنطقة
--  Al menos 112 toneladas de droga han sido incautadas en eL 2023
--  Shane MacGowan’s widow struggling to feel ‘sad’ he’s dead: ‘He’s in a very blissful state’
--  Kinkkua ei tarvitse syödä raakana – sähkön hinta laskee jouluna
--  경복궁 담벼락 낙서테러범 "안 죄송해, 예술 했을 뿐"
+-  2024년 세계야구소프트볼연맹 프리미어12 참가국 확정
+-  2024년 정규리그 개막 D-100 앞두고 MLB 얼굴로 나선 이정후
+-  내년 마스터스 골프대회 77명 출전 예상…1985년 이후 최소
+-  맨시티, 우라와 격파…플루미넨시와 FIFA 클럽월드컵 결승전
+-  데이타솔루션, 2023 하반기 학술파트너 모임 성황리에 개최
+-  Sudoku difícil: 20 de diciembre de 2023
+-  Sudoku medio: 20 de diciembre de 2023
+-  Sudoku fácil: 20 de diciembre de 2023
+-  Sudoku mini: 20 de diciembre de 2023
+-  Crucigrama difícil: 20 de diciembre de 2023
