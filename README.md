@@ -1,51 +1,51 @@
 # Latest News
--  لبنان لا يحتمل أكثر ...شركات شحن عالمية تغيِّر مسارها: أسعار السلع سترتفع قريباً
--  أجواء باردة نسبيا بأغلب المناطق الأربعاء
--  레드벨벳 ‘칠 킬’, 전 세계로 뻗어나간 음악성…‘반전 매력’ 통했다[스한:초점]
--  엔시티 127, 22일 윈터송 발매 기념 생방송 진행
--  '외계+인' 2부 메인 예고편 공개…"시간의 문, 다시 열린다"
--  Scoreboard for Tuesday, Dec. 19
--  과징금 271억원에 검찰 수사까지…카카오모빌리티 수난사는 계속
--  [트위치 韓철수]③ 스트리머·이용자 분노, 결국 어디로 향했나
--  Signal aus dem All bestätigt: Forscher entdecken Ursprung ganz in unserer Nähe
--  Šilalės rajone eismo sąlygas sunkina rūkas, praneša kelininkai
--  Krav på halsskydd efter dödsfallen – NHL avvaktar
--  An earthquake in northwestern China kills at least 131 people and is the deadliest in 9 years
--  In Pictures: Scientific Flood Hazard Mural Art in Tikapur
--  Two Indians arrested with four quintals of marijuana
--  بري مُعاتباً ضيفته الفرنسية: ما فعلتِه مُستهجن
--  고액·상습 체납 228명 명단 공개……100억 이상 체납자 9명
--  “빚 많아서 무작위로”…초등생 납치해 ‘2억’ 요구한 40대男의 변명
--  하태경 “野, 국회의원은 음주운전 되고 장관은 안 되나…내로남불”
--  또 ‘전관’ 특혜 의혹…국토부 장관 후보자, LH서 광고도 받아
--  Klopp bu komandaya baş məşqçi gəlir
--  Pastor Jerome s bail application fixed for hearing
--  180 साल पुरानी दुकान पर बनती है गजब की चंद्रकला मिठाई, स्वाद के दीवाने हैं लोग
--  SINUANO Día y Noche HOY, 20 de diciembre, EN VIVO: resultados oficiales del SORTEO colombiano
--  Trabzonspor Başkanı Ertuğrul Doğan: Ecmel Bey'in ciddi sıkıntıları var
--  63 ilde "Kafes-22" operasyonu: 302 gözaltı
--  Nets expected to give health update on Ben Simmons
--  MIMORIADNY ONLINE Zelenskyj odmietol vstup Ukrajiny do NATO bez okupovaných území: Rusko podniklo už piaty vzdušný útok na Kyjev
--  MIMORIADNY ONLINE Hlasovanie Bezpečnostnej rady OSN o Pásme Gazy opäť odložili
--  Vláda sa zľutovala nad fajčiarmi, daň z tabaku raketovo neporastie! TAKTO budú vyzerať nové sumy
--  ANKETA Lidl pripravil v roku 2023 zaujímavé projekty: Rozhodni, ktorý bol ten najlepší
--  Νέες ταινίες: «Καπετάν Μιχάλης» και «Aquaman: Το Χαμένο Βασίλειο»
--  В Петербурге после обрушения шестиэтажного здания эвакуировали 27 человек
--  إيمييه: "إنّهم مجانين ولا يمكن اجتناب حربهم على لبنان"؟
--  송경남 "윤석열 정권 심판·진보 대단결로 총선 승리"
--  «Βράδυ στην Αθήνα»: Μια μουσική παράσταση της Λίνας Νικολακοπούλου και του Παρασκευά Καρασούλου
--  Τριήρεις από ασήμι
--  Amazon: Πουλάει κρεμάστρες με κρυμμένη κάμερα - Γυναίκα ζητά αποζημίωση
--  AI bot ruthlessly judges your Spotify by analyzing your 'awful taste in music' -
--  Israel-News: Aktuelle Nachrichten zum Krieg in Nahost (Mittwoch, 20.12.2023)
--  Thailand’s LGBTQ+ community hopeful as Marriage Equality Bill is set to be discussed in Parliament
--  Ο «Μπλε Δράκος» της Βακαγιάμα: Τρομοκρατούσε τις θάλασσες της προϊστορικής Ιαπωνίας
--  Toshiba: Τέλος εποχής για την ιστορική ιαπωνική εταιρεία
--  Ισλανδία: Ενα ηφαίστειο που βρυχάται μετά από 6.000 χρόνια - Πόσο θα επηρεάσει τις πτήσεις
--  Man City thrash Urawa to set up final against Fluminense
--  Tante Enso, Arztpraxis und Wohnungen für Senioren sind in Stöckse in einem Servicecenter geplant
--  Benzine büyük zam geldi
--  Garena Free Fire Redeem Codes for December 20, 2023: Get leaked Booyah Pass rewards and daily codes
--  Си Цзиньпин: развитие отношений с Россией отвечает интересам народов двух стран
--  Vlasic gioca sempre: è troppo importante, ma quelle pause in campo…
--  Bucci: “Vanja continua così, le qualità le hai. A Gemello darei un’altra chance”
+-  Entinen F1-kuski myöntää tehneensä pahan virheen
+-  Sud u Coloradu zabranio Trumpu kandidaturu za predsjednika, to se dogodilo prvi put u povijesti SAD-a
+-  Ropa czeka na rozwój wydarzeń na Morzu Czerwonym
+-  Pierwszy od trzech miesięcy spadek eksportu Japonii
+-  Odisha ministerial staff call off strike after assurance from 5T Chairman
+-  Эмомали Рахмон примет участие в неформальном саммите СНГ в Санкт-Петербурге
+-  СУАР нарастил объем торговли с Таджикистаном на 97,3%
+-  Yırtılıyor, metal fırlatıyor! İnceleme yapıldı, karar çıktı... Milyonlarca araç geri çağırılabilir
+-  에스트래픽, 서울지하철 ‘스피드개집표기 개량 제작구매설치 2차 사업’ 수주
+-  엠로, 2024년 주요 공급망 키워드 5가지 발표
+-  씨플랫폼 김중균 대표, 마약 근절 캠페인 ‘노엑시트’ 동참
+-  LG CNS, 고려대 융합데이터과학대학원 ‘AI 데이터사이언스학과’ 석사과정 모집
+-  이브이시스, 인도네시아 전기차 충전 인프라 조성 프로젝트 수주
+-  SAS, 다올저축은행에 AI 분석 플랫폼 ‘SAS 바이야’ 공급
+-  Ejecución del cierre de la mina tardaría entre 2 y 10 años
+-  Horrible, un camión le pasó por encima
+-  Waterman en la mira del Emelecy Colo Colo
+-  Jair Palacios, un técnico ganador
+-  Panamá es #10, pero el trabajo continúa
+-  Celine Dione ya no puede cantar
+-  Madonna arremete contra Andy Cohen
+-  Le dan calle a adolescente que participó en atraco
+-  Lo madrugaron a balazos en una vereda en Santa Marta
+-  Jiovany Ramos ficha por un histórico de Perú
+-  Un tribunal manda a prisión a ‘Zaza’ por presunto homicidio
+-  Sorprenden a pela'o con una pistola de ‘mentirita’
+-  Cumple su sueño
+-  Metro espera dar la gran batalla
+-  La IV independencia
+-  ¡Prepárese! En 2024 no habrá vale digital ni subsidio de combustible
+-  Despachan a balazos a dos hombres más en Colón
+-  [VIDEO] Interrogantes tras 34 años de la invasión de Estados Unidos a Panamá
+-  La tarifa de los "Bien Cuida'o" subió
+-  Infidencias y confidencias del 20 de diciembre de 2023
+-  Customs YES 35會員展湘鄉歷史文化考察之旅 追尋毛澤東足跡｜Kelly Online
+-  Donald Trump barred from running for US presidency again
+-  ‘The Voice’ 2023: Who won? Huntley is the Season 24 winner
+-  LIVE TEXT | Război în Ucraina. Dronele rusești au sistem electronice mai elaborate Sistemele de siguranță au fost reparate la CNE Zaporojie
+-  폭우 피해 예방 두 가지 기본 요소 병행
+-  계절성 우울증에서 벗어나기
+-  스포츠산업과 관광 융합...제주형 스포츠관광 육성 방안 모색
+-  Ciner Grubu'na İzin Çıktı: Kaz Dağları'nda Maden Tehlikesi!
+-  ইতিহাসের এই দিনে: প্রথম পারমাণবিক বিদ্যুৎকেন্দ্র চালু
+-  與 '한동훈 비대위 출범' 사실상 가닥…비주류도 "韓 도와줘야"
+-  국회의장 "예산안 오늘 오후 2시 합의 발표…내일 오전 10시 처리"
+-  Cyprus Business Now
+-  Megjelent a rendelet: a 2024/25-ös tanévben lehet a pedagógusok első teljesítményértékelése
+-  MPs Suspended From Parliament: PM Narendra Modi, BJP Want To Establish ‘Single Party Rule’ in Country, Says Mallikarjun Kharge on Suspension of 141 MPs
+-  Vivek Ramaswamy Pledges to Withdraw From Colorado GOP Primary Ballot After Trump Is Disqualified
+-  역대급 메기女 조민지 등장…'직진남' 이진석, ♥안민영과 러브라인 흔들리나 [솔로지옥3](종합)
