@@ -1,11 +1,11 @@
 # Latest News
--  Elektra realiza rebaja en los Samsung Galaxy A04e
--  [날씨]서울 체감온도 21도, 전국 최강 한파 몸살, 서해안 폭설
--  Central London double garage just yards from Selfridges and Oxford Street goes up for sale for £750,000 (but it does come with superfast broadband)
--  حسم أمر غياب نيمار عن كوبا أمريكا 2024
--  Bundesliga: Boniface wins fifth consecutive Rookie of the Month award
--  سفيرة أميركيّة جديدة في لبنان... من هي؟
--  TURISTI NE MARE ZA UPOZORENJA, POTRAŽNJA ZA PUTOVANJIMA U EU NIKAD VEĆA! Postoji opasnost od TERORIZMA, niko ne otkazuje
--  Inició la Ruta Niño Jesus en Bolívar con la entrega de más de 7500 juguetes
--  Katie Price slammed by cruel trolls as she makes stage debut in Sleeping Beauty pantomime
--  ŠAMAR JASTREBOVIMA IZ VAŠINGTONA Amerika da prestane da igra ulogu svetskog policajca
+-  רפאלוב עם בעיטה חופשית מושלמת, לברקוזן רוקדת: צפו בשערי השבוע
+-  נפל או הותקף? שחקן העבר אסקיאל לאבצי אושפז עם פצע דקירה ושבר
+-  News24 | Delays in DRC polls not 'uncommon' - SADC observers
+-  Exguvernéra Národnej banky Ilmarsa Rimševičsa odsúdili za korupciu
+-  Najkrajšia Slovenka odletela za oddychom: Dovolenka ako za TREST… Ku*va, je TOTO normálne?!
+-  Opinion | Métiers en tension : mieux prendre en compte les spécificités locales
+-  Life | George Clooney says Matthew Perry's Friends fame didn't bring him happiness or peace
+-  Corinthians muda discurso e encaminha venda de Moscardo ao PSG: 'Que ele seja feliz'
+-  Mrekulli në Gjermani, treni kaloi sipër burrit të dehur – nuk pësoi as edhe lëndimin më të vogël
+-  Analysts say Ukraine&#039;s forces are pivoting to defense after Russia held off their counteroffensive
