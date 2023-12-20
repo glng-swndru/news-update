@@ -1,51 +1,11 @@
 # Latest News
--  Councils not impressed by Scottish budget
--  Jubilarni Zagreb Connect u fokus stavio globalne uspjehe domaćih startupova
--  Restaurant review: The Shopkeeper & Co, Limassol
--  Türkiye'nin mega projesi ödüle doymuyor! Yetkililer teslim aldı
--  ABD'ye "rehin" tepkisi! Alamadıkları F-35'ler nedeniyle Türkiye'yi hedef aldılar
--  Kayseri'de sanayi sitesinde yangın
--  Kuveyt'in yeni Emiri es-Sabah yemin etti
--  Дніпро-1 ймовірно отримав трансферний бан
--  Budva: Prikupljeno 4.302 eura na đačkom bazaru za liječenje Bojane...
--  Brnabić: Granicu između Republike Srpske i Srbije prešlo 20.368 ljudi na dan izbora
--  Defected Rivers Lawmakers Withdraw Impeachment Notice Against Fubara
--  Pembangunan Taman Budaya Embung Giwangan Capai 92%
--  Ungaria renunţă la opoziția față de intrarea Bulgariei în Schengen. Cum s-a răzgândit Budapesta
--  박상우 “도심내 주택 공급 최우선 서울-양평고속도로는 진행시켜야”
--  Πάλι καλά που η ΑΕΚ αποκλείστηκε από την Ευρώπη
--  Mihajlovići obeležili krsnu slavu: Sveti Nikola drži porodicu na okupu - Sinišin brat i majka sa Arijanom i sinovima /FOTO/
--  Yumruk olayı sonrası, Emre Belözoğlu Halil Umut Meler'in koşarak yanına gitti! Eryaman Stadyumu'nun koridorlarında yaşananlar ortaya çıktı
--  Petrović imao posebnu podršku na "Stamford Bridžu": Pogledajte kako je otac srpskog golmana ispratio penale Čelsija /VIDEO/
--  La fiesta del esquí inclusivo se celebra finalmente este fin de semana
--  Οπαδός της Τσέλσι έπεσε πάνω στον τερματοφύλακα της Νιούκαστλ τη στιγμή του πανηγυρισμών
--  Cabalgata y actividades para celebrar la Navidad en el barrio de San José: esta es la programación
--  "Mer än dubbelt så mycket el behövs 2045"
--  Katarzyna Lubnauer: Nie pamiętam tak złego stylu przekazywania władzy. PiS pilnuje stołków
--  Historiallinen läpimurto: Turvapaikkauudistuksesta alustava sopu EU:ssa
--  POLICAJAC VAN DUŽNOSTI UDARIO ŽENU NA PEŠAČKOM Užas na Novom Beogradu: Odbacio je na auto javnog tužioca, sa teškim povredama prevezena u Urgentni centar
--  Od sada mogući beskamatni krediti za finansiranje projekata iz oblasti turizma u FBiH
--  Fim de ano: 5 maneiras de minimizar os efeitos do álcool
--  Mitos e verdades sobre Lipo Lad
--  Frango: ABPA estima que Brasil vai exportar 37,8% do consumo mundial
--  Revista Pensar Agro e o livro “O Poder Público e o Agronegócio Brasileiro” já estão disponíveis
--  Produção de amora dobrou em dez anos no Paraná
--  Exportação de carne de pato deve crescer 30% em 2024
--  Cowboy builder in court over shoddy Halesowen extension
--  Brasil quebra recorde histórico: 100 milhões de toneladas de soja exportadas
--  Outro recorde quebrado: exportações de milho chegam a 50 milhões de toneladas
--  Pesquisa da Aprosoja estima em 20% a quebra da safra de soja em Mato Grosso
--  CNA promove capacitação em rotulagem para empresários rurais
--  Beogradska berza zakazala vanrednu Skupštinu: U planu povećanje osnovnog kapitala kroz izdavanje novih akcija
--  Moncloa lleva al Constitucional el paquete de medidas energéticas del Gobierno de Lambán
--  Haos ispred zagrebačke pekare: Lopov ukrao automobil u kojem je bilo dijete
--  « Un corps sous la lave » : un souffle de révolte postcoloniale, à l’image incandescente
--  'He isn't going to be happy': Arsenal told Jesus will be upset if Arteta signs 'talented player'
--  Rat sa apsolutnom podrškom
--  Xinhua Silk Road: Chinese baijiu maker Wuliangye holds 27th Annual Convention, showcasing its brand achievements
--  EastEnders’ Danielle Harold finally sets record straight on Pete Wicks romance
--  경복궁 낙서 10대들 “SNS서 의뢰받아…10만원 받았다”
--  라온시큐어, 만기 전 전환사채(CB) 취득 후 소각 결정
--  Matthew Wright isn’t spending Christmas with his family: ‘It does my head in’
--  KISA, 2023년 가족친화 우수기업 여가부 장관 표창
--  আইইউবিএটি চলছে স্বপ্নদ্রষ্টা আলিমউল্যা মিয়ানের দেখানো পথে
+-  Félix Tshisekedi inaugure les nouveaux bâtiments de l’hôpital général de Kinshasa et du Centre financier de Kinshasa
+-  BMW : Bernstein bevestigt koopadvies
+-  MERCEDES-BENZ GROUP : Bernstein herhaalt koopadvies
+-  „Ausschreibung machen“: Debatten über Ort der Darts-WM
+-  성시경 "이소라, 해외였으면 슈퍼스타…韓과 안 맞아, 너무 일찍 태어났다" [슈퍼마켙 소라]
+-  Hyundai to sell its Russian car factory for R1,400
+-  PORSCHE AG : Bernstein herhaalt het Neutraal advies
+-  PORSCHE SE : Bernstein is Neutraal gestemd over aandeel
+-  VOLKSWAGEN VORZÜGE : Bernstein herhaalt het Neutraal advies
+-  Usindiso fire inquiry recuses commissioner accused of xenophobia
