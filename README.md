@@ -1,51 +1,51 @@
 # Latest News
--  Will COP28 Deliver On Its Pledges?
--  Now They Expand
--  Loopify: Pioneering Sustainable Gifting
--  Since we began our journey, our focus has been to bring care to healthcare: Abhay Soi
--  More Nuanced Approach Needed
--  Celebrating New Beginning Of Washington Apples In India
--  Бюджет тақчиллигининг лимити 3 фоиздан 5,5 фоизга ўзгартириш ҳақидаги қонун маъқулланди
--  Wendy’s worker sparks outrage after revealing how “fresh” fries can be faked
--  Πούτιν: Θα υπάρξει αυστηρή απάντηση σε ξένες ειδικές υπηρεσίες που επιδιώκουν να αποσταθεροποιήσουν τη χώρα
--  UCLG Başkanı Altay, UCLG-MEWA Yıllık İştişare Toplantısı'na katıldı
--  Fatih Erbakan: İstanbul, Ankara ve İzmir dışındaki her yerde kendi adaylarımızla seçime gireceğiz
--  Çanakkale'de 40 kaçak göçmen yakalandı
--  If opposite parties return to JCPOA, Iran to fulfill its obligations, says Vice President
--  צבי יחזקאלי חשף את התחושות בימין, אבל עוד יותר מכך את הבלבול בשמאל
--  "זה לא יעבוד": אפל רוצה למנוע את איסור מכירת השעונים באמצעות עדכון תוכנה
--  נכנסו להדממה: ערביי ישראל נטשו את הרשתות החברתיות מפרוץ המלחמה
--  Kırıkkale’de korkunç olay: Müteahhit trafikte tartıştığı kişiyi öldürdü
--  Nuno orðinn stjóri Forest (Staðfest)
--  [인사] 한전
--  Bilim adamlarından şaşırtan araştırma: İnsanların nefes alması küresel ısınmayı artırıyor
--  Wushu Milli Takımı Avrupa Şampiyonu Oldu
--  Kenialaismies teki palveluksen pomolleen – Kuoli
--  The Recruit saison 2 (Netflix) : intrigues, casting... ce que l'on sait sur la suite de la série
--  Abramowitsch scheitert mit Klage gegen Sanktionen vor EU-Gericht
--  LKL国际690万卖地
--  Κουβέιτ: Στην ομιλία της ορκωμοσίας του, ο νέος εμίρης επέκρινε την κυβέρνηση και το κοινοβούλιο
--  Indizien häufen sich: Zieht Sarah Kern ins Dschungelcamp?
--  Geisterfahrer auf der A9 gestoppt: 51-Jähriger ignorierte Totalsperre
--  صدمة جديدة.. نيمار يغيب عن كوبا أمريكا
--  Akuzat ndaj SPAK, përgjigjet Altin Dumani: Retorika politike apo presioni mediatik nuk ndikojnë tek unë
--  Man seriously injured after 'XL bully' dog savages him in Penzance street
--  Mitropolit Joanikije: Crnogorske vlasti pokušavaju da zaobiđu Nemanjiće ali najdublji korijeni naše duhovnosti su iz njihovog doba
--  Football-Mondial des clubs : ce sera Fluminense/City pour la finale ce vendredi
--  김승남 의원, 농수산물 도매시장 '정가·수의매매' 활성화 방안 마련
--  Sultana actress Winnie Bwire appeals for Ksh7M support to seek cancer treatment
--  Neymar se queda sin Copa América
--  2023, año histórico para para el beisbol mexicano
--  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
--  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
--  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
--  Hangesta kuntoaan kaivellut Pärmäkoski palaa maailmancupiin Tour de Skillä
--  Drake teases that he’ll “definitely” tour Europe in 2024
--  IPN y Conagua crean la carrera de meteorología
--  Leave the World Behind gets knocked off Netflix top spot by kids movie
--  В «Оренбурге» заявили, что близки к трансферу Томпсона
--  Rheinmetall : trennt sich von der Kolbenproduktion – Verkauf des Kleinkolbenbereichs an Comitans Capital
--  Parfümeriekette Douglas erstmals mit mehr als 4 Milliarden Euro Umsatz
--  Движение трамвая третьего маршрута восстановлено
--  Zaštitnik građana pokrenuo kontrolu vrtića na Novom Beogradu u kom je dete preminulo
--  문체부 "대한체육회 성명서 발표, 유감"...국가스포츠정책위 '인사 논란'
+-  İYİ Parti'de istifa depremi!
+-  Rıza Çalımbay'dan geleceği için açıklama!
+-  Soccerladuma | Official: EPL Side Appoints New Manager
+-  Diese Wahlbezirke sind betroffen: Wo die Bundestagswahl in Berlin wiederholt wird
+-  南科前10月營業額逾1.2兆 再創新高
+-  Property where Jill Barclay was murdered to be ‘refurbished’ as community campaign to buy it fails
+-  נלי תגר נגד איתמר בן גביר: "העבריין הבריון, מעריץ רוצחים"
+-  Deficit plánuje vláda v budúcom roku znížiť na 5,97 % HDP, tvrdí Kamenický
+-  Viaceré budovy UNB, UNLP aj internát UK sa majú zrekonštruovať
+-  Návrh štátneho rozpočtu podľa Najvyššieho kontrolného úradu podporuje ekonomický rast
+-  RECENZIA Nová japonská Godzilla je výborná: Do kín dorazila lahôdka pre fanúšikov
+-  Best of cartoons, December 21, 2023
+-  Best of cartoons, December 21, 2023
+-  Seçmen kütükleri askıya çıkıyor! Tarih belli oldu
+-  Bakan Güler, Khaled Nordin ile telefon görüşmesi gerçekleştirdi
+-  ABD'nin Kızıldeniz'deki çok uluslu misyonuna katılan İtalya'da muhalefet tepkili: Başka bir çatışmanın içine sürükleniyoruz
+-  Deprem bölgesi ayağa kaldırılıyor! Bakan Kacır: 4 milyar liralık yeni finansman imkanı sunduk
+-  Zeytin Dalı bölgesinde 4 PKK/YPG'li terörist etkisiz hâle getirildi
+-  Milot Rashica: Sakatlık kabusu peşimizi bırakmadı
+-  "Polisiz" diyerek 600 bin lira dolandırdılar: 2 tutuklama
+-  驚傳「中國國師」劉鶴被捕？ 蔡慎坤：若屬實習近平必遭眾叛親離
+-  才子佳人！《芭比》編導搭檔葛莉塔、諾亞正式結婚
+-  Michy Batshuayi yeniden ilk 11'de
+-  انخفضت 2.1%.. تعرف على عدد حالات الوفاة بسبب الحوادث المرورية بالمملكة 2022
+-  وزير الطاقة: سنوفر الطاقة المستدامة للقطاع الصناعي بسعر تنافسي "فيديو"
+-  Höhere Inflation erwartet: Haushaltskompromiss lässt Preise steigen
+-  Baldur’s Gate 3 revela que el secuestro de Orin iba a ser muy diferente
+-  Après sa retraite footballistique, Eden Hazard pratique un nouveau sport (PHOTOS)
+-  JOKIĆ I DRUŽINA PREGAZILI DONČIĆEV DALAS: Nagetsi jure nove bodove!
+-  明年2大連假沒了！最強請假攻略1次看：請3天休12天
+-  Makinat Volvo raportojnë rritje të shitjeve prej 8% në nëntor
+-  Aragonès espera que hi hagi pressupostos “el més aviat possible” amb “un acord ampli”
+-  Naujoji lenkų valdžia paskelbė atleidžianti visuomeninių žiniasklaidos priemonių vadovybę
+-  En vivo: previo al DNU, Javier Milei reúne a todo su Gabinete
+-  Kuveyt'in yeni Emiri Şeyh Meşal yemin etti
+-  TVP Info wyłączyło nadawanie. Nie działa też strona internetowa stacji
+-  Como ataques de piratas a navios no Mar Vermelho podem afetar seu bolso
+-  ВМРО-ДПМНЕ: СДС и ДУИ преку Јакимовски упорно фаворизираат фирма на пратеник за изградба на висококатници кај „Алумина“
+-  صحيفة عبرية تكشف عن "فضيحة" عملياتية أدت إلى مقتل الأسرى الثلاثة
+-  Meras nacionalinio stadiono nelaidoja, bet įspėja – naujos kainos gali ir nepalaiminti
+-  Kars'ta bir binada patlama sonrası yangın
+-  Nová poľská vláda mení vedenie verejnoprávnych médií
+-  WA taxpayers slugged extra $4 million to discard expired RATs
+-  Russlands Präsident Putin erwägt Alternative zu Olympischen Spielen
+-  EU claims a migration deal breakthrough after years of talks, Metsola hails historic pact
+-  V. Benkunskas: kitąmet bus atnaujinamos Senamiesčio gatvės, mikrorajonų aikštelės
+-  El relato de Donald sobre el mal de Parkinson que padece
+-  Košarkašice Budućnosti gostuju Banovićima
+-  Yeni Gaziantep Valilik binası Mart’ta hizmette
+-  Ketamine
