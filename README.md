@@ -1,51 +1,51 @@
 # Latest News
--  [현대차사장단] 현대오토에버 CEO 김윤구 사장은 누구
--  광명시, 지방자치 축제 한마당 ‘2023 지방자치어워드’ 성황리에 마쳐
--  청도군, 경북 22개 시군 대상 가축방역 평가 '우수상'
--  성남시, 2023년 주소정보 업무 추진 평가 ‘우수기관’ 선정
--  경산시의회, 제250회 정례회 폐회
--  수원시, 침수위험도 높은 4개 지하차도에 비상대피 시설물 설치 완료
--  수성구, 대구시 자연재난 관리실태 평가 '최우수기관'
--  의정부시, 2023년 찾아가는 반부패·청렴교육 실시
--  자담치킨, GS그룹 사내식당과 콜라보 특식 … 다양한 메뉴와 우수한 품질 알려
--  김포소방서, 겨울철 대비 주택용 소방시설 설치 홍보
--  [인사] 한국농어촌공사
--  대구보건대 김소진 교수, 보건의료 R&D 우수성과 30선 선정
--  '케인 대체자로 낙점' 토트넘, '992억' 멕시코 폭격기 영입 명단에 포함...첼시-아스널과 경쟁
--  “직장 내 괴롭힘, 성별에 따라 우울증 위험도 달라”
--  חברת הביטוח התחמקה בגלל העבר הנפשי של הנפגע, ונאלצה לשלם מיליונים
--  יש ילדים זיגזג: הפועל תל אביב סוף סוף גורמת לאוהדים קצת נחת
--  ലിറ്റിൽ ഡ്രോ ഗ്രാൻഡ് റാഫിൾ നറുക്കെടുപ്പ് 25 ന്; ഒരു മില്യൻ ദിർഹം വരെ നേടാന്‍ അവസരം
--  PLN Raih Predikat Badan Publik Informatif di Anugerah Keterbukaan Informasi Publik 2023
--  Thomas Greg & Sons demanda al Estado por licitación de pasaportes
--  Proyecto de ley para mejorar tratamiento de tuberculosis avanza en el Senado colombiano
--  Colombia mantiene altas tasas de desempleo notables en América Latina
--  Poseidón dará balance general de competiciones nacionales
--  Colombia en los 15 mejores en el Ranking de la WBSC
--  El Inter avanza con el proyecto de nuevo estadio
--  Mañana cielo parcialmente nublado
--  عاجل.. الإعلان عن أكثر من 740 وظيفة بمختلف مناطق المملكة
--  Security Council due to vote again on Gaza — Global Issues
--  Colorado Yüksek Mahkemesi'nden Trump'a kötü haber: Başkanlık yarışına giremez
--  63 ilde mali suç örgütleri üyelerine yönelik 'Kafes' operasyonu: 302 şüpheli şahıs yakalandı
--  解密股王世芯的鍍金之路！7年前比特幣暴跌差點倒閉 大戶賈文中精準重押：當時我只確定3件事就出手
--  Tüketici Hakem Heyeti'ne yapılacak başvurularda parasal sınır 104 bin lira olarak belirlendi
--  TGA public transport project in Tabuk entails 25% electric buses
--  사천시시설관리공단 한재천 이사장, 대한민국 CEO 리더십' 대상
--  Man films 19 young children as they shower at Brisbane pool
--  Man films 19 young children as they shower at Brisbane pool
--  Man films 19 young children as they shower at Brisbane pool
--  Man films 19 young children as they shower at Brisbane pool
--  ‘KBank Private Banking-Lombard Odier’ เปิด 4 เมกะเทรนด์ลงทุน พร้อมรับการเปลี่ยนแปลง จากผลกระทบทั่วโลก
--  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
--  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
--  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
--  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
--  디제이맥스, 하이츠와 진행한 팝업 스토어 성료
--  Resmi Gazete'de yayımlandı: 32 ilde oy kullanma saatleri değişti
--  Valensija se oglasila nakon incidenta sa navijačima Partizana
--  유인촌 “2014강원동계청소년올림픽 준비에 만전”
--  ‘지역의사제법’ 국회 복지위서 野 주도로 처리…與 “반대 심한 법안” 반발
--  [생중계] 강원문화예술, ESG를 통해 위기를 기회로!
--  '하늘 내린 인제 사과' 홈쇼핑서 인기…1억여원 판매고 올려
--  ﻿현대해상, 자동차 보험료 2.5% 인하
+-  لبنان لا يحتمل أكثر ...شركات شحن عالمية تغيِّر مسارها: أسعار السلع سترتفع قريباً
+-  أجواء باردة نسبيا بأغلب المناطق الأربعاء
+-  레드벨벳 ‘칠 킬’, 전 세계로 뻗어나간 음악성…‘반전 매력’ 통했다[스한:초점]
+-  엔시티 127, 22일 윈터송 발매 기념 생방송 진행
+-  '외계+인' 2부 메인 예고편 공개…"시간의 문, 다시 열린다"
+-  Scoreboard for Tuesday, Dec. 19
+-  과징금 271억원에 검찰 수사까지…카카오모빌리티 수난사는 계속
+-  [트위치 韓철수]③ 스트리머·이용자 분노, 결국 어디로 향했나
+-  Signal aus dem All bestätigt: Forscher entdecken Ursprung ganz in unserer Nähe
+-  Šilalės rajone eismo sąlygas sunkina rūkas, praneša kelininkai
+-  Krav på halsskydd efter dödsfallen – NHL avvaktar
+-  An earthquake in northwestern China kills at least 131 people and is the deadliest in 9 years
+-  In Pictures: Scientific Flood Hazard Mural Art in Tikapur
+-  Two Indians arrested with four quintals of marijuana
+-  بري مُعاتباً ضيفته الفرنسية: ما فعلتِه مُستهجن
+-  고액·상습 체납 228명 명단 공개……100억 이상 체납자 9명
+-  “빚 많아서 무작위로”…초등생 납치해 ‘2억’ 요구한 40대男의 변명
+-  하태경 “野, 국회의원은 음주운전 되고 장관은 안 되나…내로남불”
+-  또 ‘전관’ 특혜 의혹…국토부 장관 후보자, LH서 광고도 받아
+-  Klopp bu komandaya baş məşqçi gəlir
+-  Pastor Jerome s bail application fixed for hearing
+-  180 साल पुरानी दुकान पर बनती है गजब की चंद्रकला मिठाई, स्वाद के दीवाने हैं लोग
+-  SINUANO Día y Noche HOY, 20 de diciembre, EN VIVO: resultados oficiales del SORTEO colombiano
+-  Trabzonspor Başkanı Ertuğrul Doğan: Ecmel Bey'in ciddi sıkıntıları var
+-  63 ilde "Kafes-22" operasyonu: 302 gözaltı
+-  Nets expected to give health update on Ben Simmons
+-  MIMORIADNY ONLINE Zelenskyj odmietol vstup Ukrajiny do NATO bez okupovaných území: Rusko podniklo už piaty vzdušný útok na Kyjev
+-  MIMORIADNY ONLINE Hlasovanie Bezpečnostnej rady OSN o Pásme Gazy opäť odložili
+-  Vláda sa zľutovala nad fajčiarmi, daň z tabaku raketovo neporastie! TAKTO budú vyzerať nové sumy
+-  ANKETA Lidl pripravil v roku 2023 zaujímavé projekty: Rozhodni, ktorý bol ten najlepší
+-  Νέες ταινίες: «Καπετάν Μιχάλης» και «Aquaman: Το Χαμένο Βασίλειο»
+-  В Петербурге после обрушения шестиэтажного здания эвакуировали 27 человек
+-  إيمييه: "إنّهم مجانين ولا يمكن اجتناب حربهم على لبنان"؟
+-  송경남 "윤석열 정권 심판·진보 대단결로 총선 승리"
+-  «Βράδυ στην Αθήνα»: Μια μουσική παράσταση της Λίνας Νικολακοπούλου και του Παρασκευά Καρασούλου
+-  Τριήρεις από ασήμι
+-  Amazon: Πουλάει κρεμάστρες με κρυμμένη κάμερα - Γυναίκα ζητά αποζημίωση
+-  AI bot ruthlessly judges your Spotify by analyzing your 'awful taste in music' -
+-  Israel-News: Aktuelle Nachrichten zum Krieg in Nahost (Mittwoch, 20.12.2023)
+-  Thailand’s LGBTQ+ community hopeful as Marriage Equality Bill is set to be discussed in Parliament
+-  Ο «Μπλε Δράκος» της Βακαγιάμα: Τρομοκρατούσε τις θάλασσες της προϊστορικής Ιαπωνίας
+-  Toshiba: Τέλος εποχής για την ιστορική ιαπωνική εταιρεία
+-  Ισλανδία: Ενα ηφαίστειο που βρυχάται μετά από 6.000 χρόνια - Πόσο θα επηρεάσει τις πτήσεις
+-  Man City thrash Urawa to set up final against Fluminense
+-  Tante Enso, Arztpraxis und Wohnungen für Senioren sind in Stöckse in einem Servicecenter geplant
+-  Benzine büyük zam geldi
+-  Garena Free Fire Redeem Codes for December 20, 2023: Get leaked Booyah Pass rewards and daily codes
+-  Си Цзиньпин: развитие отношений с Россией отвечает интересам народов двух стран
+-  Vlasic gioca sempre: è troppo importante, ma quelle pause in campo…
+-  Bucci: “Vanja continua così, le qualità le hai. A Gemello darei un’altra chance”
