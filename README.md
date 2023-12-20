@@ -1,6 +1,34 @@
 # Latest News
+-  Celine Dion has lost 'control of her muscles' amid health battle
+-  Donald Trump Disqualified: আসন্ন মার্কিন নির্বাচনের লড়াইয়ে নিষেধাজ্ঞা জারি ট্রাম্পের ওপর
+-  Young gangsters on the rise; 75% between 10s-30s
+-  US reaffirms commitment to S. Korea after N. Korea warns US against making 'wrong' choice
+-  BTS' docuseries 'Beyond the Star' set to be unveiled on Disney+
+-  Korean, US finance ministers discuss economic cooperation
+-  FIFA Club World Cup to expand to 32 teams, give more opportunities to Korean teams
+-  이재명 “尹, 국민 지배하는 왕인가…국가 전체가 대통령 사유물 돼가”
+-  홍익표 “예산안 법정기일 넘겨 송구…오전 중 합의 노력”
+-  İsrail'de sular durulmuyor: Genelkurmay Başkanı "Beni tehdit etmeyin" diye bağırdı
+-  현대차, ‘14만원’에 러시아 공장 매각…‘바이백’ 조건
+-  Despareció Octavio en Parral desde el pasado sábado
+-  Esperan más de dos horas para cruzar a El Paso
+-  George Clooney thinks he is "punching above his weight" with his wife Amal
+-  Two hands better than one to make Marc on Sydney-Hobart
+-  Estos son los cuatro parques eólicos que ha autorizado Industria, pero al menos dos serán rechazados por Urbanismo
+-  서울시, 성탄절·연말연시 안전하도록…인파밀집지역 안전관리 나선다
+-  Dwaraka Tirumala: చిన వెంకన్న ఆలయంలో ఉత్తర ద్వార దర్శనానికి ఏర్పాట్లు
+-  MP Jerantut konsisten wujudkan tahfiz vokasional
+-  설 선물도 '양극화'...9900원 김세트? 아님 70만9000원 위스키냐?
+-  메리츠화재, 내년 자동차 보험료 3.0% 인하
+-  ایټالیا کې پاکستاني مورو پلار د لور وژلو له کبله په عمري قید محکوم شول
 -  ‘놀던언니’ 김현정, “인사, 딱 세 번 지켜봤다”
 -  넥슨, 스노우플레이크와 통합 데이터 플랫폼 '모노레이크' 구축
+-  Begini Cara Mengirim Pesan Suara Sekali Dengar di WhatsApp
+-  Left-arm sensation Spencer Johnson continues meteoric rise with $1.78m IPL contract
+-  Newcastle Disingkirkan Chelsea, Eddie Howe: Sangat Menyakitkan
+-  Left-arm sensation Spencer Johnson continues meteoric rise with $1.78m IPL contract
+-  Endrick se torna a maior exposição da marca Palmeiras na História
+-  Vivo India back in the black in FY23, reports Rs 211-cr net profit
 -  내년 공급망 주요 화두는 “프렌드쇼어링·알타시아·예측 기반 물류”
 -  “불경기에 고효율 광고 뜬다...CTV 광고·AI 마케팅 주목”
 -  LS전선, 동박용 신소재 ‘큐플레이크’ 개발…친환경 소재사업 강화
@@ -8,44 +36,16 @@
 -  네이버, 새로운 설문 플랫폼 '네이버 폼' 베타 출시
 -  폼랩, 순수 실리콘 '실리콘 40A 레진'·‘알루미나 4N 레진’ 출시
 -  EY한영 ESG 임팩트 허브, 옥용식·이수열·정동일 석좌연구교수 위촉
+-  원희룡 "헌신·책임 다 할 것…과감한 변화로 행동해야 국민 마음 회복해야"
+-  2023年シーズン第16週プレーオフ戦線のシナリオ
+-  Banyodaki o yeri temizlemek kimsenin aklına gelmiyor! Meğer hepsinden çok daha pismiş: İşte tüm mikropların toplanma alanı…
+-  विश्व ब्यांकको तथ्याङ्क : नेपालबाट बाहिरिने रेमिटेन्स वार्षिक पाँच अर्ब ३२ करोड
 -  '회이룬에 불만족' 맨유, 세리에 A 득점왕 출신 FW 임대 영입에 관심
+-  คำพิพากษาคดีน้องชมพู่ ทนายเดชา ชี้ สามารถออกได้ 3 แนวทาง แบบนี้!
+-  Tougher French immigration bill passes, Macron’s parliament majority wobbles
 -  Signa muss nun Chrysler Building und Medienbeteiligungen verkaufen
+-  A fertility doctor said his wife fell down the stairs. An O.C. jury convicted him of murder
+-  이동환 고양시장 "한파 녹이는 '3안 행정' 적극 추진"
 -  شاهد بالصورة والفيديو.. فتاة سودانية تفجرها داوية وتكشف عن شخصية الرجل “البلحة”.. استطيع أن أعرف أنه “بلحة” من تعليق واحد أو من أنفاسه وبتكلم كتير عشان يغطي على حاجاته “الصغيرة”
+-  경복궁 두번째 낙서범 "예술을 한 것일 뿐" 주장
 -  엔도가 리버풀 동료들에게 당부하다, "우리 계속 이렇게 긍정적으로 경기하자!"
--  '마약 누명' 벗은 지드래곤, 새 둥지는 YG?…"확인 어렵다" [공식입장]
--  '초대 우승→제2회 준우승' 韓 대표팀 명예회복의 시간…2024 프리미어12 참가국 확정
--  [오피셜] 노팅엄, '황의조 영입한' 사령탑 경질...후임은 '손흥민 前스승'? Here We Go "英으로 가는 중"
--  WHO classifies JN.1 as COVID-19 ‘variant of interest’
--  อั้ม พัชราภา แซวประโยคชวนเขิน แอฟ-นนกุล #หารักด้วยใจเธอ..หาเจอหรือยัง?
--  경기지역 표준지·표준주택 공시가격 모두 1% 이상 상승
--  Juez ordena publicar nombres de personas asociadas con caso de Epstein
--  В Дальнереченске в Приморье из-за аварии остались без воды больница, школа и два детсада
--  Star хамтлаг ДАШТ-ий тавдугаар байрт шалгарчээ
--  Situasi Kemanusiaan Myanmar Gawat, PBB: Sepertiga Penduduk Butuh Bantuan
--  Guinea explosion: Huge oil depot fire leaves 18 dead and over 200 injured in Conakry as shocking footage reveals how towering fireball damaged buildings almost a mile away
--  Huge investment in Tesla rival Nio to power global expansion
--  Colorado armed robbers' getaway vehicle stolen during heist in ironic twist
--  МО: артиллерия ЗВО уничтожила на Купянском направлении командные пункты ВСУ
--  $5.4 million in repairs coming to Cache Creek crossing: province
--  Chelsea back from brink to reach League Cup semis
--  韓國區塊鏈工程師超怕蟲，架網站互動地圖追蹤臭蟲床蝨出沒地
--  Ezeife, the bridge builder
--  살 뺐다가 다시 찌면 더 늙는다?
--  [20일 인천 부평구] 차준택 구청장 '겨울철 재난안전 대비' 현장점검 등
--  محكمة تقضي بعدم أهلية ترامب لخوض انتخابات الرئاسة التمهيدية
--  ترند اليوم| قفزة في أسعار الذهب وقانون التصالح في مخالفات البناء
--  "حكم صلاة السيدات في المنزل خلف إمام المسجد".. أمين الفتوى يجيب
--  فيوتشر يشعل الترند مع اقتراب لقائه مع اتحاد العاصمة الجزائري
--  الأهلي يحسم أولى صفقاته الشتوية (تفاصيل)
--  إسعاد يونس تعلن موعد إطلاق فيلم "عصابة عظيمة"
--  ŠTA SE DEŠAVA SA MEDVEDIMA?! Životinje poludele, umesto da spavaju, prave haos: SVE VIŠE NAPADAJU LJUDE
--  المدينة المنورة.. القبض على 5 أشخاص لترويجهم الحشيش والإمفيتامين
--  PDWP Punjab approves two uplift schemes
--  IND Vs SA 2nd ODI: பேட்டிங்கில் சொதப்பிய இந்தியா! 2வது ஒருநாள் போட்டியில் தென்னாப்பிரிக்கா அபார வெற்றி!
--  Turyści z Polski w pierwszej dziesiątce w Czarnogórze
--  Cuidado con los excesos: ¿Puede la comida navideña contribuir al desarrollo de cáncer de estómago?
--  김종인 "한동훈, 정치 등판 너무 빨라...尹 결정한 듯"
--  속초시, 새 캐릭터 '짜니', '래요' 이모티콘 무료 배부
--  속초서 시작된 마상 무예 '기사' 2030 아시안게임 종목 채택 추진
--  '정선아리랑제' 문체부 2024~2025 문화관광축제 선정
--  대통령실 앞 근무 중이던 경찰에 흉기 휘두른 70대 징역 7년 구형
