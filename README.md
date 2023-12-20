@@ -1,51 +1,51 @@
 # Latest News
--  What have the stars done for humankind?
--  Prepping for data from the Nancy Grace Roman Space Telescope
--  How a program giving millions to residents to improve their neighborhoods also risks entrenching inequality
--  Cher «Les Affaires», pour 2024 je souhaite...
--  Pathways for enhancing sustainability and resilience in India's critical small dairy operations
--  Türkiye'den Somali'ye yardım eli
--  Osayi-Samuel: Bizim için en önemli şey galibiyetti
--  BMGK'daki Gazze oylaması 3. kez ertelendi
--  Пекинский аэропорт отказался принимать рейсы авиакомпании "Россия"
--  Cengiz Ünder: Daha fazlasını yapacağıma herkes emin olsun
--  I ovaj Božić mnogi će umirovljenici provesti sami
--  Niemcy skonfiskują ponad 790 mln USD od Rosjan
--  Residents in fire-threatened WA town urged to leave
--  (VIDEO) Uhapšeno šest osoba u Beogradu, sumnja se da su novac ukraden od Eklstona i Lamparda ulagali u nekretnine u Srbiji
--  U Ministarstvu vanjskih poslova organizirano predavanje za studente Pravnog fakulteta IUS
--  Union Berlin bleibt eisern bei der Ablehnung von E-Sport
--  이태우(대구시 대신동) 씨
--  Huge solar flare disrupts radio transmissions on Earth
--  Intel Layoffs 2023: What to Know About the Latest INTC Job Cuts
--  12월 21일(음력 11월 9일) 오늘의 운세
--  “Ajkule” ubjedljive protiv Francuske na “Sardinija kupu”
--  Brand in Fertigungshalle nach Reinigungsmittel-Entzündung
--  Chiapas se viste de blanco con la primera helada
--  Блинкен заявил о планах США взаимодействовать с Китаем с позиции силы
--  Fraud is a problem so big we need to start teaching children how to spot it in schools
--  Dommer vil give livstid: To 16-årige fundet skyldige i drab på transkønnet pige i England
--  Chemicals from wildfire smoke found in whales: UBC research
--  Realizan Jornada Multidisciplinaria en Salud en Veraguas
--  Le président de l’UBO vent debout contre la loi immigration : « Je ne peux que m’opposer »
--  Varianti i ri i Covid po përhapet me shpejtësi
--  В Ленинградской области осквернивший мемориал выплатит крупный штраф
--  SNAPSHOTS: Soft schedule likely not what it seems for Maple Leafs
--  Аксенов рассказал о высокой безопасности Крыма
--  Treći protest ispred RIK-a: Tepić štrajkuje glađu, Aleksić traži da se izbori ponište
--  Meghan mund të kthehet në familjen mbretërore , por me një kusht
--  Tjetër protestë në Beograd, opozita nuk pranon fitoren e Vuçiç
--  Под Свислочью могут построить предприятие по майнингу криптовалют
--  Мактаб ўқувчиси Gentra'да уриб юборган боланинг аҳволи қандай?.
--  Kış geldi yün yorgana talep arttı! Soğukları gören yün yorgana sarılıyor: Tek kişilik yün yorganın fiyatı ise bakın ne kadar?
--  The Bold and the Beautiful spoilers: is Ridge being unfair to Zende?
--  EIC: 1,2 milijarde eura za strateške tehnologije i tvrtke koje se povećavaju
--  Will Levis won't practice Wednesday, Ryan Tannehill will start if Levis ruled out
--  Treffen mit Projektleiterin: So entsteht das „China Lights Festival“ im Kölner Zoo – Bisher schon 250.000 Besucher
--  Zuzana Čaputová víta dohodu na migračnom pakte, hovorí o začiatku spoločného riešenia
--  Психолог Жукова рассказала петербуржцам, как сократить расходы на Новый год
--  Beşiktaş, Hatayspor maçına 100. yıl formasıyla çıkacak
--  Matt Booty vai substituir Bobby Kotick no comando da Activision
--  చిరుత సంచారంపై పుకార్లు
--  العراق ضمن الدول الاكثر استخداماً لـ سناب شات في 2023
--  పదో తరగతి విద్యార్థి బలవన్మరణం
+-  Is Ariana Grande Shooting A New Music Video?
+-  Microsoft nevylučuje bezplatný Xbox Cloud Gaming sponzorovaný reklamami
+-  ‘Echo’: Everything We Know About The New Marvel Series Including The Release Date, Cast, Trailer & More Info
+-  איקאה העולמית: "המצב בתעלת סואץ יגרום לעיכובים ומחסור באספקת מוצרים"
+-  ‘వైసీపీలో అక్రమార్కులకే అధిక ప్రాధాన్యం’
+-  Svagt plus på Wall Street – kryptobolag stiger
+-  Inflation Is Harming Consumption And Is Likely To Stifle India's Growth: RBI
+-  రెండు ఆలయాల్లో చోరీ
+-  Expectación por las obras de Luzuriaga
+-  Jabier Muguruza: «Gabezian gelditu beharrean, egunero abiatzen da Jajatxo abenturak bizitzera»
+-  La San Silvestre cumple 50 años
+-  SDP-u LGBTIQ glavna politika?! Evo čime se sada hvale pred izbore
+-  5 priežastys, kodėl šaltuoju sezonu priaugame svorio – vaistininkė patarė, kaip tai kontroliuoti
+-  [Vokietija!] 2,5 karto pigiau nei Lietuvoje įspūdingų galimybių buitinis aliejaus spaudimo presas - paskutiniai vienetai (Video)
+-  [ŽT] „500 milijonų.“ Monstriška jėga. Ukraina ruošia armadą
+-  [ŽT] „Dešimtys tūkstančių.“ Husiai mobilizuoja žmones. Kas vyksta (Video)
+-  Amsterdamo valdžia pasiūlė naują vietą „raudonųjų žibintų kvartalui“
+-  Ne vėliau kaip 2026 m. Estija skelbia Ukrainos pergalės kare planą
+-  [ŽT] „Tai reiškia, kad Ukraina laimi. Tai labai rimta operacija...“ Zelenskis skelbia sensaciją
+-  [ŽT] „1 000 000. Žinau, kad taip bus.“ Rusų laukia košmaras. Zelenskis skelbia, ką 2024 m. padarys Ukraina
+-  „Orbanas be ES ir NATO.“ Ar bus reikalingas Putinui (Video)
+-  26 నుంచి మున్సిపల్‌ కార్మికుల సమ్మె
+-  Ministri financií EÚ sa dohodli na reforme Paktu stability a rastu
+-  The best tablets of 2023: Expert tested and reviewed
+-  Igrač kolabirao na terenu pa se utakmica prekinula, PL obavijestila da će se ponoviti
+-  Đilas o glasačima iz RS: Nemate pravo da odlučujete u Beogradu
+-  Совбез ООН перенёс голосование о гуманитарной резолюции по Газе на 21 декабря
+-  ఐదేళ్ల బాలిక కిడ్నాప్‌
+-  Duvnjak otvorio dušu: Uništili su mi snove. Kad legnem u krevet, vrati mi se film
+-  సమస్యాత్మక పోలింగ్‌ కేంద్రాలకు భద్రత పెంచండి
+-  Premier League-kamp skal starte forfra efter hjertestop
+-  Premier League-kamp skal starte forfra efter hjertestop
+-  CGES upozorava: Energetski sistem ne može da prihvati nove solarne...
+-  뮌헨서 데뷔골 터뜨린 ‘괴물’ 김민재, 볼프스부르크 원정 선발 출전 [분데스리가]
+-  «Решили бороться за свои права в УЕФА»: исполком РФС отказался от перехода в Азиатскую конфедерацию
+-  Gledatelji negodovali zbog serijala Andrije Jarka: ‘Mlati praznu slamu, sve već viđeno’
+-  Two arrested after stolen credit card used at downtown business
+-  Tio miljarder till vården – en besvikelse enligt S
+-  మందుల ధరలు తగ్గించాలి
+-  Trans-Canada Highway: Vehicle incident impacting traffic near Revelstoke, B.C.
+-  A Mercedes "nem bánkódhat" folyamatosan azon, hogy kikaptak a Red Bulltól
+-  حماس تعلق على زيارة هنية إلى القاهرة.. وتؤكد: لا تفاوض حول الأسرى إلا بوقف العدوان
+-  Column: The year America burned, literally and figuratively
+-  Column: The year America burned, literally and figuratively
+-  Mexico's fliers: An ancient tradition from 100 feet up
+-  Mexico's fliers: An ancient tradition from 100 feet up
+-  In India's embattled news media, women are fighting to be heard
+-  China Earthquake: In Bitter Cold, a Struggle to Help Survivors
+-  China Earthquake: In Bitter Cold, a Struggle to Help Survivors
+-  French Parliament Approves Immigration Overhaul
