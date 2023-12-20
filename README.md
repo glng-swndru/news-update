@@ -1,11 +1,11 @@
 # Latest News
--  وفا : عباس يجري فحوصات طبية روتينية
--  هيئة البث العبرية: إسرائيل اقترحت صفقة للإفراج عن الرهائن
--  السعودية: رصد انتشار متحور «JN.1» محلياً
--  التموين: 3.6 مليون معاملة للسجل التجارى فى 2023
--  Katsina Correctional Service recaptures two escaped inmates
--  Mimicry row: Delhi advocate seeks FIR against TMC MP
--  Partizan dobio Zvezdu u derbiju
--  هاري كين يقود هجوم بايرن ميونخ أمام فولفسبورج في البوندسليجا
--  Iroska Elvir y Fátima Mena ya no forman parte de la Junta Directiva del CN, según diputada del PSH
--  Finals of Smart India Hackathon 2023 under way at city college
+-  Carmina Burana als Spektakel zum Jahresende
+-  Marek P. w YetiForce. Prawie jak Yeti
+-  Polmed zrobił historyczne zakupy
+-  Będzie praca w sektorze dóbr i usług konsumpcyjnych
+-  Tłum chętnych po Bezpieczny kredyt 2 proc.
+-  Comarch z szansą na duży kontrakt w ZUS
+-  Ikona poprowadzi WebTalk w świat
+-  Spadająca inflacja osłabiła funta
+-  Jak zapobiegać wypadkom w firmach
+-  Dlaczego pracownicy chcą zmienić pracę
