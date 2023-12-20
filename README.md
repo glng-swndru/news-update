@@ -1,51 +1,51 @@
 # Latest News
--  與, '한동훈 비대위원장' 사실상 확정… "의렴 수렴 과정 마무리"
--  대신증권, 나주·괴산 등 사회복지시설에 사랑의 성금 전달
--  PMI 롤프 소르그, 건강기능식품 '피트라인' 가격 인하 선언
--  סלאח שוב מכעיס את העולם הערבי: "פועל בניגוד לחוקי האיסלאם"
--  REs Can Not Make Investment In AIF Where Debtor Company Is Involved: RBI
--  Jugendcafé im Gögginger Hallenbad kommt in Fahrt
--  Max of Mathieu, wie verdient titel Sportman van het jaar meer? ‘Ze zouden gek zijn als ze Van der Poel niet kiezen’
--  Mannelijkheid staat onder druk, zeggen jonge mannen. Maar ze vinden emotie ook belangrijk
--  Eigen mok wordt de norm: kantoren gaan honderden miljoenen bekertjes besparen
--  Bangga berwajah Melayu, laris bak pisang goreng panas – Azrel Ismail
--  Jumlah korban gempa bumi di barat daya China bertambah
--  How To Start a Healthy Habit (And Keep It) in 2024
--  주두식·김범모·오찬우 ‘자랑스러운 제주경찰’ 선정
--  Don’t overdo alcohol – or arguments: nine ways to stay healthy and happy this Christmas
--  Rohstoffkosten stiegen 2022 auf Rekordhöhe
--  تمكين أصحاب التأشيرات من المقيمين معرفة صلاحية دخول المملكة
--  كيف تتجنب حوادث السخانات بالمنزل؟.. مسؤول يكشف عن دليل الأمان (فيديو)
--  ¿Qué pasó en GESTIÓN un día como hoy, 20 de diciembre?
--  خبير طقس يُحذر من أجواء الكتلة القطبية الباردة وانخفاض الحرارة
--  Auf die Reischlesche Wirtschaftsschule ab der fünften Klasse?
--  LISTA: Så generös är tomten där du jobbar
--  LISTA: Så generös är tomten där du jobbar
--  Hazırladığı formülle 14 kez büyük ikramiyeyi kazandı! İşte o loto kazandıran formül
--  Michael Lindner verlässt die GZ-Redaktion zum Jahresende
--  Újabb névmódosítást jelentett be a Sauber F1-es csapata
--  Große Orchesterkoalition beim vorweihnachtlichen Kirchenkonzert in Thannhausen
--  Tempo 20 in der Maximilianstraße: Das wünschen sich die Mindelheimer
--  E-Akte für Zivil- und Familiensachen wird am Nördlinger Amtsgericht eingeführt
--  Sjokkerer Bjørndalen: – Detaljene er hemmelig
--  Znani v zvezdah: Zaradi stresa bo korenito spremenila življenje (Suzy)
--  Najbolj seksi ženske so rojene v teh petih astroloških znakih
--  Ali vaš ljubljenček preveč pije? Možnih je veliko dejavnikov, zaradi katerih to počne
--  LISTA: Så generös är tomten där du jobbar
--  Efter 25 år på Sandvik – nu blir Daniel polis
--  Voetbalpodcast | ‘Ik miste alleen nog Dirk Kuyt met een parachute op de middellijn’
--  LISTA: Så generös är tomten där du jobbar
--  Ravintolaäänestys sai uuden voittajan! – Näin kärki vaihtui, lue Paras Tamperelainen Ravintola 2023 top 50 täältä
--  LISTA: Så generös är tomten där du jobbar
--  Zukunftspläne um Helmut-Haller-Platz: "Hoffentlich dann weniger Süchtige"
--  ¿Simón Bolívar, además de libertador, visionario?
--  Aichacher Stadtrat streicht Integrationsstelle in der Verwaltung
--  Dahmen gegen Nübel: Das Duell der Kronprinzen im Tor
--  Man who helped bilk US woman out of RM5.58mil is sentenced to prison and ordered to repay the money
--  Ein Premier in Affengestalt
--  ZEEKR predstavio bateriju koja se za 15 minuta puni do 80%
--  Nach 0:16-Rückstand drehen die Baskets groß auf
--  Serializd – zajednica namijenjena strastvenim ljubiteljima televizijskih serija
--  Donauwörths OB Sorré warnt vor Spaltung und der AfD
--  LISTA: Så generös är tomten där du jobbar
--  Phison će na CES-u prikazati četiri nova proizvoda, uključujući prototip Gen 5 SSD-a
+-  [현대차사장단] 현대오토에버 CEO 김윤구 사장은 누구
+-  광명시, 지방자치 축제 한마당 ‘2023 지방자치어워드’ 성황리에 마쳐
+-  청도군, 경북 22개 시군 대상 가축방역 평가 '우수상'
+-  성남시, 2023년 주소정보 업무 추진 평가 ‘우수기관’ 선정
+-  경산시의회, 제250회 정례회 폐회
+-  수원시, 침수위험도 높은 4개 지하차도에 비상대피 시설물 설치 완료
+-  수성구, 대구시 자연재난 관리실태 평가 '최우수기관'
+-  의정부시, 2023년 찾아가는 반부패·청렴교육 실시
+-  자담치킨, GS그룹 사내식당과 콜라보 특식 … 다양한 메뉴와 우수한 품질 알려
+-  김포소방서, 겨울철 대비 주택용 소방시설 설치 홍보
+-  [인사] 한국농어촌공사
+-  대구보건대 김소진 교수, 보건의료 R&D 우수성과 30선 선정
+-  '케인 대체자로 낙점' 토트넘, '992억' 멕시코 폭격기 영입 명단에 포함...첼시-아스널과 경쟁
+-  “직장 내 괴롭힘, 성별에 따라 우울증 위험도 달라”
+-  חברת הביטוח התחמקה בגלל העבר הנפשי של הנפגע, ונאלצה לשלם מיליונים
+-  יש ילדים זיגזג: הפועל תל אביב סוף סוף גורמת לאוהדים קצת נחת
+-  ലിറ്റിൽ ഡ്രോ ഗ്രാൻഡ് റാഫിൾ നറുക്കെടുപ്പ് 25 ന്; ഒരു മില്യൻ ദിർഹം വരെ നേടാന്‍ അവസരം
+-  PLN Raih Predikat Badan Publik Informatif di Anugerah Keterbukaan Informasi Publik 2023
+-  Thomas Greg & Sons demanda al Estado por licitación de pasaportes
+-  Proyecto de ley para mejorar tratamiento de tuberculosis avanza en el Senado colombiano
+-  Colombia mantiene altas tasas de desempleo notables en América Latina
+-  Poseidón dará balance general de competiciones nacionales
+-  Colombia en los 15 mejores en el Ranking de la WBSC
+-  El Inter avanza con el proyecto de nuevo estadio
+-  Mañana cielo parcialmente nublado
+-  عاجل.. الإعلان عن أكثر من 740 وظيفة بمختلف مناطق المملكة
+-  Security Council due to vote again on Gaza — Global Issues
+-  Colorado Yüksek Mahkemesi'nden Trump'a kötü haber: Başkanlık yarışına giremez
+-  63 ilde mali suç örgütleri üyelerine yönelik 'Kafes' operasyonu: 302 şüpheli şahıs yakalandı
+-  解密股王世芯的鍍金之路！7年前比特幣暴跌差點倒閉 大戶賈文中精準重押：當時我只確定3件事就出手
+-  Tüketici Hakem Heyeti'ne yapılacak başvurularda parasal sınır 104 bin lira olarak belirlendi
+-  TGA public transport project in Tabuk entails 25% electric buses
+-  사천시시설관리공단 한재천 이사장, 대한민국 CEO 리더십' 대상
+-  Man films 19 young children as they shower at Brisbane pool
+-  Man films 19 young children as they shower at Brisbane pool
+-  Man films 19 young children as they shower at Brisbane pool
+-  Man films 19 young children as they shower at Brisbane pool
+-  ‘KBank Private Banking-Lombard Odier’ เปิด 4 เมกะเทรนด์ลงทุน พร้อมรับการเปลี่ยนแปลง จากผลกระทบทั่วโลก
+-  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
+-  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
+-  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
+-  Bail for Christmas, handwritten notes amid fears for crime boss George Marrogi’s brother
+-  디제이맥스, 하이츠와 진행한 팝업 스토어 성료
+-  Resmi Gazete'de yayımlandı: 32 ilde oy kullanma saatleri değişti
+-  Valensija se oglasila nakon incidenta sa navijačima Partizana
+-  유인촌 “2014강원동계청소년올림픽 준비에 만전”
+-  ‘지역의사제법’ 국회 복지위서 野 주도로 처리…與 “반대 심한 법안” 반발
+-  [생중계] 강원문화예술, ESG를 통해 위기를 기회로!
+-  '하늘 내린 인제 사과' 홈쇼핑서 인기…1억여원 판매고 올려
+-  ﻿현대해상, 자동차 보험료 2.5% 인하
