@@ -1,51 +1,11 @@
 # Latest News
--  남녀노소 가리지 않는 ‘고혈압’…예방·극복하려면 어떻게?
--  [단독]심판 임원 '막말' 피해자 2명 더 있다…"장애 아니야?", "실패한 인생이네"
--  "히딩크, 날 너무 힘들게 했다. 지금도 싫어" 이천수 '뒤끝 작렬'[살림남2]
--  Chaco cerró el año de Letras de Tesorería sin conseguir financiamiento neto
--  Ceylon Cinnamon, ‘the True Cinnamon’ showcased in Stockholm
--  Baurs paves way towards sustainable nitrogen management with super urea for agriculture
--  Weekly auction positive momentum continues
--  “Tap to pay is a game changer and definitely here to stay” says Visa
--  Crossings bolster Bourse turnover to Rs. 5 b; sentiments remain bearish
--  SJB frowns at Govt. move to import rice despite coming bumper harvest
--  Felicitation of doyen of Sinhala journalism Siri Ranasinghe
--  World News | Wisconsin Elections Commission Rejects Complaint Against Trump Fake Electors for Second Time
--  올겨울 '최강 한파' 온다…서해·제주엔 많은 눈 예상
--  Hollywood abuzz with reports of Warner Bros Discovery, Paramount Global talks
--  Casi 700 toneladas de cocaína han sido incautadas este año por las autoridades en Colombia
--  美 증시 랠리에 '제동' 페덱스 "매출 감소 예상"
--  El remaster HD de El Shaddai llegará a Switch en abril de 2024
--  Desenvolve Floresta investe R$ 2,4 milhões em pesquisa sobre clones de eucalipto em MT
--  Portal Impacto Uriaçu – Inovando o Mundo das Notícias
--  Procon possui atendimento no Ganha Tempo para facilitar encaminhamentos de reclamações
--  Sema-MT divulga procedimentos para garantir segurança de barragens
--  Lula destaca “fotografia histórica” da reforma tributária
--  Mediator : Servier condamné à rembourser plus de 415 millions d'euros aux organismes de sécurité sociale
--  Stream It Or Skip It: ‘Maestro’ on Netflix, Bradley Cooper’s Overtly Artsy Leonard Bernstein Biopic
--  Around Town: Boys & Girls Club
--  “Kushtetuesja dështoi, argumenti budallëk me brirë”
--  ‘Powerful’ cordless electric power cleaning brush with close to 4,000 reviews is reduced in price: ‘It’s brilliant’
--  Mbappé trifft doppelt am Geburtstag: PSG siegt gegen Metz
--  Produtores rurais do interior de Pelotas protestam por falta de luz
--  Mbappé trifft doppelt am Geburtstag: PSG siegt gegen Metz
--  Bugarski parlament smanjio ovlasti proruskom predsjedniku države
--  TV stations are upgrading their over-the-air signals, but the rollout has been bumpy
--  🔴 EN VIVO | Tensión en la Legislatura: la oposición niega al cuórum en una sesión caliente
--  فريق كرة القدم للناشئين يتحصل على الترتيب الثالث في بطولة شمال أفريقيا
--  Makron osudio ‘hajku’ na Depardjea i rekao da Legija časti ‘nije tu da propoveda moral’
--  Una argentina denunció una red de trata en Abu Dhabi y ahora está internada tras caer de un primer piso
--  Qual local, capacidade e custo do novo ginásio que Joinville planeja construir
--  Enter ‘Chilla-i-Kalan’
--  סכנה: זה החדר בבית שלכם שאסור לכם לתלות בו כביסה לייבוש
--  אנסה גבר במטוס, השתוללה וזכתה ל"תשואות" מהנוסעים ועונש מגוחך
--  World News | Philadelphia News Helicopter Crashes in New Jersey Forest, Killing Pilot and Photographer
--  Multi-crore investment fraud: Cyber police raids multiple locations in Srinagar
--  Politische Kehrtwende unter Tusk: Polens neues Parlament stuft Umbau der Justiz durch PiS als verfassungswidrig ein
--  Mercado da Bola: Veja as movimentações no futebol desta quarta-feira (20/12/2023)
--  New Rickstones Academy Witham rated Good by Ofsted
--  The iMenace: Meet the Startup CEO Hellbent on Bursting Apple's Bubble
--  Stingy Banks Open Their Wallets to Microsoft's AI; Automation Comes For Google's Salespeople
--  Stingy Banks Open Their Wallets to Microsoft's AI; Automation Comes For Google's Salespeople
--  Google Plans Ad Sales Restructuring as Automation Booms
--  Google Plans Ad Sales Restructuring as Automation Booms
+-  "김보민 하도 울어 ♥김남일과 진짜 사이 안 좋은 줄" 절친 이찬원 '충격 증언'[옥문아]
+-  신민아 고등학생 시절 연기한 배우, 누군가 했더니…김현수, '3일의 휴가'서 존재감 있는 호연
+-  비즈메카 그룹웨어, 최대 60% 특별 할인 이벤트 진행
+-  Fans claim Apex Legends is “choosing to die” with repetitive events and limited content
+-  La aviación civil proyecta nivel récord en diciembre en vuelos nacionales e internacionales
+-  10 nouveaux restaurants coups de coeur à tester absolument en janvier à Paris
+-  Loi immigration: François Hollande juge qu'Emmanuel Macron a pris les "idées" de l'extrême droite
+-  LES ÉCLAIREURS - Interview d'Emmanuel Macron: les réactions politiques
+-  Twitch streamer devastated after stealthy thief pickpockets her phone
+-  Hasil Carabao Cup 2023: Liverpool Kalahkan West Ham 5-1, Lolos ke Babak Semifinal
