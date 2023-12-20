@@ -1,11 +1,51 @@
 # Latest News
--  Portekiz denemenin sonuçlarını açıkladı: Haftada 4 gün mesai stresi azalttı
--  Müşteri gibi geldiği iş yerinde araç çalıp kayıplara karıştı
--  TEM Oto Yolu'nda kamyonetin bariyerlere sıkıştırdığı motosikletli ölümden döndü!
--  Erken yaşlardaki bazı hastalıklar, çocuk sahibi olmama ihtimalini artırabilir
--  Yumurta alırken nelere dikkat etmeli?
--  Kathmandu Valley reports cases of looting in pretext of exchanging dollars
--  Transformative Disaster Risk Reduction Communication unveiled in Tikapur Municipality through Scientific Flood Hazard Mural Art
--  Veiligheidsplan in Suriname rond eindvonnis Bouterse over Decembermoorden
--  राजस्थान में बहुत पसंद की जाती है बाजरे की रोटी, इस विधि से बनाएं स्वादिष्ट
--  Neet Success Story: From Kashmir To Success, Twin Triumphs In NEET Exam Fulfill A Mother`s Unwavering Dream
+-  Tudásmenet, sztrájk, Erasmus-botrány - ezek voltak 2023 januárjának legfontosabb történései
+-  IT Campus Hiring To Drop At Least 50% In CY2024
+-  BharatPe To Raise Rs 500 Cr In Funds, Appoints New Board Members: Report
+-  ယူအန်စင်မြင့်၊ နိုင်ငံတကာနဲ့ အိမ်နီးချင်းဆက်ဆံရေး အတိုင်းအတာတွေ
+-  مزايا تنافسية.. الموارد البشرية تطرح عشرات الوظائف في مختلف المناطق
+-  CounterAttack: Uprising Is Coming to the Epic Games Store
+-  Scopri l'importanza della prevenzione dermatologica
+-  В Донецке при обстреле погиб мирный житель
+-  Vain viidesosa huumehoidon asiakkaista on työelämässä tai opiskelee, kertoo THL
+-  Vain viidesosa huumehoidon asiakkaista on työelämässä tai opiskelee, kertoo THL
+-  Debati publik “(Jo) digjitalizimit të universiteteve shtetërore”
+-  Świetne występy zawodników UKP “Ósemki” Legionowo oraz UKS “Delfin” Legionowo podczas zawodów „Bijemy Rekordy Pływackie” w Wyszkowie
+-  Pesme koje su propale kad su objavljenje, a onda su godinama kasnije postale hitovi
+-  Španci ne leže Zvezdi ove sezone - Real produbio probleme
+-  Na ovom evropskom aerodromu nije mrsko čekati: Može se uživati u filmovima, biciklima, zelenilu
+-  How to be safe when using the ATM this festive season
+-  Holnapig ingyen begyűjtheted magadnak a GOG-ról a Lost Ruins-t
+-  Ford отказался продавать свой последний автосборочный завод в Индии
+-  NASA streams cat video from deep, deep space
+-  Dita nis me mot të kthjellët, pasditja sjell vranësira të shpeshta. Si do të luhaten temperaturat sot
+-  Une panne affecte certains services de Desjardins
+-  "Obustavite svu pomoć Prištini"
+-  Élő adásban vágnak disznót Balázsék, hatalmas bulival búcsúztatják Vadon Janit
+-  Vukovi preplivali Drinu, meštani u strahu od čopora: Nisu viđeni u tom kraju 70 godina VIDEO
+-  Kako su povezani dijabetes i prekomerna telesna težina?
+-  Kathmandu, Rip Curl sales tank amid higher temperatures and lower budgets
+-  Kathmandu, Rip Curl sales tank amid higher temperatures and lower budgets
+-  Manifestimi i Ditës së Arsimit turq në UNB
+-  Mathura: बीमारी से परेशान महिला ने मौत को लगाया गले... तो ई-रिक्शा चालक की हत्या का आरोपी बाल अपचारी गिरफ्तार
+-  Schalke-Termine im Winter: Trainingslager und Testspiele im Überblick
+-  بأمر الإدارية.. فصل موظفة بالتأمين الاجتماعي بسبب رشوة 500 جنيه
+-  [조성진의 가창신공] 작사가‧프로듀서 최갑원…세계적 발라드 명가 꿈꾼다
+-  L’Amour est dans le Pré : un Lorrain à l’affiche de la 19e saison
+-  Tierheim in NRW: Plötzlich steht ein Mädchen vor der Tür – was sie im Gepäck hat, rührt zu Tränen
+-  الشيخ مشعل الأحمد الجابر الصباح يؤدي اليمين الدستورية أميرا لدولة الكويت
+-  Holiday travel peaks in Europe despite security warnings
+-  Jeffrey Epstein’s 177 high profile pals to be NAMED in Prince Andrew accuser lawsuit as papers unsealed in 2024
+-  Stormen Pia truer juletrafikken - følg med her
+-  Stormen Pia truer juletrafikken - følg med her
+-  금남로 앞 모인 단체들 “광주MBC 비정규직 문제 해결하라”
+-  Prezantim i konceptit të ri dhe bashkëpunim i ZZHTI-së dhe Odës ekonomike
+-  Montpellier-OM : à quelle heure et sur quelle chaîne voir le match ?
+-  Lisieux : au Secours catholique, des cadeaux et un goûter de Noël pour les enfants
+-  AZAL Pekinə uçuşlara başladı
+-  Türkiye'de ahırdaki tüm buzağılara hemen bunu yapmak gerekiyor. İnek nüfusu patlama yapar. Acele edin
+-  Украина осталась на следующий год
+-  Uttarakhand: सीएम पुष्कर सिंह धामी का हेलीकॉप्टर फंसा, पुलिस दे रही धक्का, देखें वीडियो
+-  De overwinning van Rikkie Kollé haalt het slechtste bij mensen naar boven
+-  В Совфеде поддержали идею дать Росгвардии полномочия по охране школ
+-  Tidningsbil stulen i natt – så påverkas utdelningen
