@@ -1,11 +1,11 @@
 # Latest News
--  “Ganamos un décimo del Gordo entre cuatro compañeras dos meses antes de que la empresa se fuera a la ruina”: así le salvó la vida la Lotería de Navidad a dos hermanas de Tenerife
--  हिसार : उत्तर पश्चिम रेलवे महाप्रबंधक ने किया रेवाड़ी-बठिंडा रेल मार्ग का दौरा
--  Troje kandidata za direktora/direktoricu Turističke zajednice grada Zadra danas predstavili programe rada, jedan odustao!
--  Hrvatski institut za kibernetičku sigurnost prvi put dodijelio nagrade
--  Lleva Municipio la Navidad a Punta Oriente
--  馬場密探048｜「多多配合」首勝谷草千二
--  U Sarajevu počeo sastanak Trojke i HDZ-a: Ovo su teme
--  Mokinių verslumo mugė – ne tik apie verslą, bet ir apie dalijimąsi gerumu
--  आगामी लोकसभा चुनाव के मद्देनजर सेक्टर दंडाधिकारियों और पुलिस पदाधिकारियों को दिया प्रशिक्षण
--  KIOXIA 2TB microSDXC memory card now available
+-  हेमा मालिनी ने संसद में अक्षय कुमार के डायलॉग में की अमित शाह की तारीफ... गृह मंत्री भी मुस्कुराए
+-  Acudirán a Cámara de Diputados a pedir celeridad de nueva ley
+-  Fransa'da göç tasarısı krizi
+-  Negocio restaurantero evoluciona con ‘Fiuto’, el primer sitio de Italia para perros y personas
+-  Депутатите приеха на второ четене бюджетите на социалното, здравното и просветното министерствa
+-  이혜영 "이상민 영상편지, 진심이었다…처음엔 열받아서 탁재훈에 전화" 솔직 고백 [라디오스타](종합)
+-  Patrik Sundström om att bli ordinarie vd på Inera
+-  Özdemir bleibt bei Nein zu Sparmaßnahmen in der Landwirtschaft
+-  PORODICA U BEOGRADU KAO HORDA SKOČILA NA POLICIJU Došli da privedu muža zbog nasilja, pa nastao karambol: Otac, majka i brat krenuli da ih tuku
+-  Megmenekült a francia kormány, sikerült keresztülvinnie a parlamenten a vitatott bevándorlási törvény szigorúbb változatát
