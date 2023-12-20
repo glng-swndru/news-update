@@ -1,51 +1,11 @@
 # Latest News
--  춘천시청소년유해환경감시단, 숙박업소 집중 모니터링 진행
--  SGC에너지, 군산 소룡·미성동 저소득층 월동비 지원
--  홍천군 남면-인천 남동구 구월1동, 자매결연 협약 체결
--  GS25, '혜자도시락' 연말 나눔 캠페인 실시!
--  금산 삼계탕축제, 충남도 1품 축제 선정
--  '2024년 사자성어' 운외창천…중소기업게, 난곽극복 도약기대
--  홍천 영귀미면 의용소방대, 사랑의 이웃돕기 성금 기탁
--  퇴직연금 수익률, 가입자 교육이 관건이다.
--  LG전자, 텀블러 세척기 '마이컵' 선보인다
--  군산시, 내년부터 디딤씨앗통장 가입 대상자 확대
--  올해 파주시민이 뽑은 최고의 뉴스 1위, ‘긴급에너지 생활안정지원금’
--  영암왕인문화축제, 문체부 '대한민국 대표 문화관광축제' 선정
--  하남시, 찾아가는 법률서비스 ‘법률홈닥터’ 2024년 배치기관 선정
--  홍천군, 찾아가는 맞춤형 어린이 안전교육 실시
--  새만금문화학당 수강생, 4년만의 군산 방문
--  이용록 홍성군수, K-딸기 전 세계 소비 1위 '홍콩' 공략
--  삼척시, 관광문화발전 위한 포럼 개최
--  동해시, 지방재정대상 종합 최우수 도시 선정
--  부여군, '자랑스러운 병역명문가 문패 달아주기 사업' 추진
--  홍천군, 제306차 안전점검의 날 행사 실시
--  홍천군청소년문화의집, 청소년 체험활동 프로그램 종료
--  지난해 연말정산 근로자 평균 급여액 4213만원…5년 전보다 566만원↑
--  보령시의회 보령댐 특위, 댐 주변 발전 위해 수공과 머리 맞대
--  DL건설, '창원 회원2 재개발' 시공권 확보…올해 도정 1조6950억원 수주
--  사라지는 체크카드…간편결제 확산에 경쟁력 ‘뚝’
--  연천소방서, 겨울철 화목보일러 사용에 주의 당부
--  21일부터 청년·신혼부부 매입임대주택 3493호 입주자 모집
--  코스피, 외국인·기관 순매수에 3개월 만에 장중 2600선 돌파
--  함평군, 전남도 '음식문화개선 평가' 우수기관 선정
--  Bodenbearbeitung: So beseitigen Landwirte die Spuren der Rübenmaus
--  OmniFocus Review (2023): Features, Pricing, & Alternatives
--  Руска тенис звезда се похвали, че тренира с Григор Димитров
--  딥엑스, 2024 CES서 고성능 AI 서버용 ‘DX-H1’ 공개
--  EVSIS, 인도네시아 전기차 충전 인프라 조성 프로젝트 수주
--  Liga Élite de Béisbol: Leones comprometen aspiraciones de los Gallos
--  Тавантолгой түлш ХХК-ийн ТУЗ-ийн гишүүд 1.1 тэрбум төгрөгөөр өөрсдийгөө шагнажээ
--  KT, '수원 사랑의 산타' 행사 따뜻한 온기 전달...취약 계층에 5천만원 상당 물품 후원
--  '호러쇼 선사 → 전력 외 전락' 다이어, '토트넘 최악의 먹튀' 따라 튀르키예 진출 가능성 제기...페네르바체가 노린다
--  ห้ามลืม! โฆษก มท.ย้ำคำสั่งห้ามพกปืน 1 ปีมีผลใช้บังคับแล้ว
--  Change of govt doesn’t mean neglecting orders: HC
--  Kylian Mbappé, l'alter ego di Michael Jordan e LeBron James. A cui manca la Champions
--  Bishnoi Jail Interview: ਲਾਰੈਂਸ ਦੀ ਜੇਲ੍ਹ ਇੰਟਰਵਿਊ ਮਾਮਲੇ ਦੀ ਹਾਈਕੋਰਟ 'ਚ ਸੁਣਵਾਈ, ਪੁਲਿਸ ਦਰਜ ਕਰੇਗੀ FIR
--  Ukraine economy heads for tough 2024 as Western aid concerns grow
--  Tradiții și superstiții de Ignat, ziua când se sacrifică porcii. Ce e interzis să faci pe 20 decembrie, cum alungi relele
--  Soni Razdan made Alia Bhatt travel by economy class as child
--  Christmas at Mumbai’s Khotachiwadi: Why did Black stop playing Santa Claus?
--  Colbert Kicks the Hell Out of Rudy Giuliani While He’s Down
--  These are New Laws About to Take Effect in NJ
--  Elon Musk Draws the Ire of the Tesla Hoe
--  Unhoused people in Vancouver’s CRAB Park launch human rights complaint against City and Park Board
+-  차엽, 미모의 아내와 로맨틱 웨딩 화보…꼭 붙어 '달달'
+-  로봇·자율차·UAM 친화형 건물 1만동 들어선다
+-  AYAYI, '리얼 유토피아'를 구축하며 차세대 PHYSICAL 브랜드 이끌다
+-  Billy Crystal Returned To The Scene Of The Most Iconic/Notorious Bit From ‘When Harry Met Sally…’
+-  이정식 고용노동부 장관, 해양환경보호 위한 수협은행 공익상품 가입
+-  İsrail'de "Netanyahu görevden alınsın" çağrısı
+-  Netanyahu'nun sonu geliyor! İçeriden yaylım ateşi: Toplumunun boynunda değirmen taşı oldu
+-  SK디앤디, 1210억원 '의성 황학산 풍력발전단지' EPC 계약 체결
+-  경남 양산시 ‘시민통합위원회’ 시민소통 우수모델 주목
+-  맥도날드, 뷰 맛집 특별한 곳으로 함께 떠나요
