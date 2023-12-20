@@ -1,51 +1,51 @@
 # Latest News
--  Celine Dion has lost 'control of her muscles' amid health battle
--  Donald Trump Disqualified: আসন্ন মার্কিন নির্বাচনের লড়াইয়ে নিষেধাজ্ঞা জারি ট্রাম্পের ওপর
--  Young gangsters on the rise; 75% between 10s-30s
--  US reaffirms commitment to S. Korea after N. Korea warns US against making 'wrong' choice
--  BTS' docuseries 'Beyond the Star' set to be unveiled on Disney+
--  Korean, US finance ministers discuss economic cooperation
--  FIFA Club World Cup to expand to 32 teams, give more opportunities to Korean teams
--  이재명 “尹, 국민 지배하는 왕인가…국가 전체가 대통령 사유물 돼가”
--  홍익표 “예산안 법정기일 넘겨 송구…오전 중 합의 노력”
--  İsrail'de sular durulmuyor: Genelkurmay Başkanı "Beni tehdit etmeyin" diye bağırdı
--  현대차, ‘14만원’에 러시아 공장 매각…‘바이백’ 조건
--  Despareció Octavio en Parral desde el pasado sábado
--  Esperan más de dos horas para cruzar a El Paso
--  George Clooney thinks he is "punching above his weight" with his wife Amal
--  Two hands better than one to make Marc on Sydney-Hobart
--  Estos son los cuatro parques eólicos que ha autorizado Industria, pero al menos dos serán rechazados por Urbanismo
--  서울시, 성탄절·연말연시 안전하도록…인파밀집지역 안전관리 나선다
--  Dwaraka Tirumala: చిన వెంకన్న ఆలయంలో ఉత్తర ద్వార దర్శనానికి ఏర్పాట్లు
--  MP Jerantut konsisten wujudkan tahfiz vokasional
--  설 선물도 '양극화'...9900원 김세트? 아님 70만9000원 위스키냐?
--  메리츠화재, 내년 자동차 보험료 3.0% 인하
--  ایټالیا کې پاکستاني مورو پلار د لور وژلو له کبله په عمري قید محکوم شول
--  ‘놀던언니’ 김현정, “인사, 딱 세 번 지켜봤다”
--  넥슨, 스노우플레이크와 통합 데이터 플랫폼 '모노레이크' 구축
--  Begini Cara Mengirim Pesan Suara Sekali Dengar di WhatsApp
--  Left-arm sensation Spencer Johnson continues meteoric rise with $1.78m IPL contract
--  Newcastle Disingkirkan Chelsea, Eddie Howe: Sangat Menyakitkan
--  Left-arm sensation Spencer Johnson continues meteoric rise with $1.78m IPL contract
--  Endrick se torna a maior exposição da marca Palmeiras na História
--  Vivo India back in the black in FY23, reports Rs 211-cr net profit
--  내년 공급망 주요 화두는 “프렌드쇼어링·알타시아·예측 기반 물류”
--  “불경기에 고효율 광고 뜬다...CTV 광고·AI 마케팅 주목”
--  LS전선, 동박용 신소재 ‘큐플레이크’ 개발…친환경 소재사업 강화
--  상하이자동차-AWS, 스마트 커넥티드 차량 플랫폼 개발·확산 협력
--  네이버, 새로운 설문 플랫폼 '네이버 폼' 베타 출시
--  폼랩, 순수 실리콘 '실리콘 40A 레진'·‘알루미나 4N 레진’ 출시
--  EY한영 ESG 임팩트 허브, 옥용식·이수열·정동일 석좌연구교수 위촉
--  원희룡 "헌신·책임 다 할 것…과감한 변화로 행동해야 국민 마음 회복해야"
--  2023年シーズン第16週プレーオフ戦線のシナリオ
--  Banyodaki o yeri temizlemek kimsenin aklına gelmiyor! Meğer hepsinden çok daha pismiş: İşte tüm mikropların toplanma alanı…
--  विश्व ब्यांकको तथ्याङ्क : नेपालबाट बाहिरिने रेमिटेन्स वार्षिक पाँच अर्ब ३२ करोड
--  '회이룬에 불만족' 맨유, 세리에 A 득점왕 출신 FW 임대 영입에 관심
--  คำพิพากษาคดีน้องชมพู่ ทนายเดชา ชี้ สามารถออกได้ 3 แนวทาง แบบนี้!
--  Tougher French immigration bill passes, Macron’s parliament majority wobbles
--  Signa muss nun Chrysler Building und Medienbeteiligungen verkaufen
--  A fertility doctor said his wife fell down the stairs. An O.C. jury convicted him of murder
--  이동환 고양시장 "한파 녹이는 '3안 행정' 적극 추진"
--  شاهد بالصورة والفيديو.. فتاة سودانية تفجرها داوية وتكشف عن شخصية الرجل “البلحة”.. استطيع أن أعرف أنه “بلحة” من تعليق واحد أو من أنفاسه وبتكلم كتير عشان يغطي على حاجاته “الصغيرة”
--  경복궁 두번째 낙서범 "예술을 한 것일 뿐" 주장
--  엔도가 리버풀 동료들에게 당부하다, "우리 계속 이렇게 긍정적으로 경기하자!"
+-  Kim Jong Un threatens ‘more actions’ against US
+-  Israel continues strikes and raids
+-  Iceland volcano erupts weeks after thousands evacuated
+-  Australia is set to release convicted terrorist from prison
+-  Bangladesh Opposition party accused of arson
+-  CBI chief visits Imphal to review investigations
+-  After 141 MPs suspended, Oppn leaders compare Parl with ‘N Korean assembly’
+-  Суд в Колорадо запретил Трампу участвовать в президентских выборах
+-  “차량용 투명 디스플레이 공개”…현대모비스, CES서 혁신기술 선봬
+-  경륜경정총괄본부 6년째 ‘사랑의 산타클로스’ 사업 전개
+-  Israeli Business Continue To Collapse And Beg For Customers
+-  BenQ ZOWIE XL2586X gaming monitor: crazy 540Hz refresh rate for esports fanatics
+-  It’s Time to Enter Your Greek Mythology Era, Percy Jackson Is Back
+-  연기금, HMM은 사고 팬오션은 팔고
+-  Балицкий спрогнозировал сроки обрушения линии фронта ВСУ
+-  Risk adjusted net present value: What is the current valuation of Erasca’s ERAS-601?
+-  Risk adjusted net present value: What is the current valuation of Alphamab Oncology’s JSKN-003?
+-  بطولة إسبانيا: أتلتيكو المنقوص يفلت من فخّ خيتافي وإشبيلية وفالنسيا يتنفّسان الصعداء
+-  كأس الرابطة: تشلسي يقلب الطاولة على نيوكاسل ويبلغ نصف النهائي
+-  مونديال الأندية: سيتي ينفض غبار عثراته المحلية ويؤكد تشبّثه بالخماسية
+-  Risk adjusted net present value: What is the current valuation of Outlook Therapeutics’s Lytenava?
+-  Risk adjusted net present value: What is the current valuation of Takeda Pharmaceutical’s Zasocitinib?
+-  Risk adjusted net present value: What is the current valuation of Xilio Therapeutics’s XTX-202?
+-  30 Incredible Ways to Cook Potatoes This Christmas
+-  त्रिवि दीक्षितको ऊर्जा
+-  Llevan más de 10 horas la sesión de Congreso
+-  Despiden a 7 jóvenes asesinados en Salvatierra
+-  '다시 새롭게'… 포천시 소흘도서관 재개관
+-  وزير الخارجية البريطاني يزور الأردن ومصر هذا الأسبوع
+-  UNDERCOVERの過去の名作アウターが渋谷のSTAGEに集結
+-  Washington Post: президент Путин завершает год на триумфальной ноте
+-  Risk adjusted net present value: What is the current valuation of Neumora Therapeutics’s Navacaprant?
+-  Risk adjusted net present value: What is the current valuation of NRX Pharmaceuticals’s Cycloserine + Lurasidone Hydrochloride?
+-  Risk adjusted net present value: What is the current valuation of Karuna Therapeutics’s (Trospium chloride + Xanomeline)?
+-  이어룡 회장, 나주·괴산 복지시설에 성금 전달
+-  철원 근남면 양지마을 문화예술 프로그램 인기
+-  서울 강남 나누리병원, 철원군 내대2리 의료봉사
+-  최철규 강원랜드 강원랜드 경영진 겨울 성수기 특별 안전점검 실시[사진]
+-  Tragédia Izlandon: bezárták a Kék Lagúnát
+-  No Irianto, No Problem! Menguak Alasan Shin Tae-yong Biarkan Timnas Indonesia Hilang Satu Pemain Jelang Piala Asia
+-  Cak Imin Sempat Diprotes Soal Program Bantuan Langsung Bagi Ibu Hamil
+-  ปศุสัตว์อำเภอลองแพร่ ติดตามการจัดส่งนมโรงเรียน ภาคเรียนที่ 2 ปีการศึกษา 2566
+-  Hiện tượng Mono - em trai Sơn Tùng - trở lại mặt đất
+-  내년부터 은행권 '24시간 보이스피싱 모니터링시스템' 확대 가동
+-  “연예인도 울고갈 미모”…화장품 모델 데뷔 조민에 난리난 지지자들
+-  JW중외제약 "혈우병 신약 헴리브라, 삶의 질 개선 입증"
+-  Risk adjusted net present value: What is the current valuation of Regeneron Pharmaceuticals’s Odronextamab?
+-  Risk adjusted net present value: What is the current valuation of Erasca’s Naporafenibum?
+-  Risk adjusted net present value: What is the current valuation of Erasca’s ERAS-007?
+-  Taspen Sediakan Fasilitas Buat ASN Bisa Kredit Rumah Hingga 40 Tahun
