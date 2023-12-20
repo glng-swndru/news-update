@@ -1,51 +1,51 @@
 # Latest News
--  "시나리오 보는 순간, 강한 끌림"…김정현, 강력반 형사로 스크린 컴백했다
--  페이커 등 롤드컵 우승팀 'T1 5인', '아는형님'에 뜬다 [공식]
--  장윤정, 유통사 실수로 신곡 연습용 음원 공개 '어질어질'…"하아 이런 일이"
--  탕후루 만들던 장원영, 언니 안유진에 "그래, 유진아" 무슨 일?…벌써부터 기대감 최고조→'1,2,3 IVE 시즌4' 온다
--  임윤아, 시청자가 뽑은 올해의 배우…제28회 소비자의 날 시상식서 2관왕
--  DGB금융, 주주 대상으로 사외이사 예비후보자 추천 받는다
--  신동엽 이어 두번째 게스트는 성시경…"이소라, 대한민국에 너무 빨리 태어난 것 같아" [슈퍼마켙 소라]
--  Sää kylmenee tuntuvasti – tammikuulle luvassa hyytäviä pakkasia
--  IPL 2024: Full List Of England Cricketers Sold At Indian Premier League Auction
--  ‘No such thing as overpriced in IPL’: Gujarat Titans coach Asish Nehra unsurprised by Mitchell Starc’s price tag
--  Production d’électricité à partir des énergies renouvelables : Fin du conflit entre la STEG et les sociétés d’autoproduction
--  علی امین گنڈہ پور کی جانب سے روپوشی ختم کیے جانے کا امکان
--  Ahmed Hacheni pilote des initiatives pour une gestion efficace des déchets publics
--  WHO warns mpox can spread across the globe again
--  CLAT 2024: Counselling registration window closes today at consortiumofnlus.ac.in
--  Pretoria propose d'inviter Moscou à la table des négociations avec l'Ukraine
--  Minister urges Gombe lawmakers, executives to strengthen collaboration
--  Israel está lista para una nueva tregua, según su presidente
--  Rishi Sunak considered giving millions of Brits pre-paid debit cards during Covid crisis
--  Abia Govt Directs LG Chairs To Remove All Political Billboards
--  NVS phase 2 admit card 2023 released at navodaya.gov.in; How to download
--  Explained: When is an incident declared a natural calamity?
--  Mgn Art - enskild firma startar i Linköping
--  «Медведев посинеет и лопнет»
--  Маникюр Роберта Паттинсона на обложке журнала вызвал ажиотаж в сети
--  Tarım ve Orman Bakanlığı 7 bin 158 personel alacak
--  Karaman'da park halindeki otomobil yandı; 'kundaklama' şüphesi
--  'Konyalı John Wick' yöre diliyle Anadolu'yu tanıtıyor
--  Darphane'den 5 lira açıklaması
--  Konya'da anne ve 10 yaşındaki kızı, yedikleri mantardan zehirlendi
--  `Barbie` director Greta Gerwig, Noah Baumbach marry after 12 years of dating
--  Maharashtra Oppn legislators wear black ribbons to condemn suspension of MPs
--  Innbrudd hos bedrift i Ytre Arna
--  Rize açıklarından çıktı! TPAO test etti, petrol olduğu açıklandı
--  Police complaint against TMC MP for mimicry of Vice-Prez in Parliament complex
--  Muere abatido por la policía tras disparar contra la casa de su excuñada en Girona
--  이철규 의원, 특허청 특별사법경찰관 직무범위 확대 사법경찰직무법 국회 본회의 통과
--  이양수 의원 대표발의, '등대 보존 및 활용에 관한 법률안' 국회 본회의 통과
--  노용호 의원, 기업·농업 지방세 감면 혜택 등 담은 대표발의 법안 4건 본회의 통과
--  논산딸기축제 글로벌화 가능성 `공인'
--  지구의 사막화
--  아버지가 꽃을 좋아하셨구나
--  잃어버린 꿈을 찾아서
--  Call of Duty 2025 offrira une suite légendaire à Black Ops 2 selon un rapport
--  조길형 충주시장 CEO 리더십 대상
--  화재대피안내 시스템 설치 협약
--  “군 재정 어려움 군민과 함께 타파”
--  음성품바축제 `전국 최고'
--  음성군 골프장 지역상생 협력 간담회 개최
--  금산삼계탕축제 특산물 소비촉진 호평
+-  인천 서구문화재단 내년 원도심· 생활문화· 예술교육 꽃핀다
+-  ‘평택메타코딩아카데미’ 26명 수료식 …총 28개 소프트웨어 작품 전시
+-  중국 빈서 방문단, 국내 1호 일반산단 성남 하이테크밸리찾아 경제 탐방
+-  롯데칠성(주) 성남지점-산성리 상인회, 남한산성면 행정센터에 라면 261박스 기탁
+-  성남시의회, 의원발의 조례안 제정 6건·일부개정 11건·전부개정 1건 입법예고
+-  과천시, 공직자 전화친절도 ‘우수 등급’…맞춤형 친절교육 효과
+-  화성시 2024년도 예산 3조 1850억 원 규모 확정
+-  시흥시, 하중동∼월곶동 총 175필지 360억 원 가치 토지 소유권 확보
+-  이천시, 2023 대한민국 주거복지대상 국토부 장관상 쾌거
+-  이케아 광명점, ‘2023 위드-호프 기부 릴레이’ 참 지역 아동용 홈퍼니싱 제품 기부
+-  광명시, 테이크호텔 광명서 ‘2023 지방자치어워드 시상식’가져
+-  이신남 오산 예비후보 "용인·화성·수원·평택 묶어 로 나갈 것"
+-  이천시봉사센터, 찾아가는 탄소중립 실천 교육 1000여명 참가 성료
+-  이천교육청-이천시-반도체 4개사, 현장 맞춤형 전문 인재 양성 업무 협약
+-  내년도 정부예산안, 지역화폐 예산 3000억 증액
+-  বুধবার দর বৃদ্ধির শীর্ষ ১০ শেয়ার
+-  Efeler yolları asfaltlıyor vatandaşların yüzü gülüyor
+-  Noël : avec l'inflation, les produits des fêtes déjà en solde dans les grandes surfaces
+-  Rakastetun Elf-jouluelokuvan ihastuttaa – kuljetettiin poliisisaattueessa
+-  В 2024 году будут увеличены выплаты семьям из Марий Эл с приемными детьми
+-  بنك الإسكان يتوّج بطلاً لبطولة البنوك الكروية الثانية 2023
+-  Во Владимирской области ищут мужчину в черной шапке
+-  صادرات التمور التونسية ترتفع بنسبة 17,4% إلى 162 م د في نهاية نوفمبر 2023
+-  Corona-Symptome: Trockener Mund, Flecken auf der Zunge, Geschmacksveränderung – was ist darüber bekannt?
+-  Le gui est-il dangereux pour le chat ?
+-  TrustedHousesitters finds new $100m home at Mayfair Equity Partners
+-  ONLINE: Veľmi ťažký zápas pre Slovan. Po smrti majiteľa Hrubého má na lavičke premiéru tréner Oremus
+-  Fractal Partners with Coursera to launch Data Science Professional Certificate
+-  "Ne bo imel časa, prezgodaj je"
+-  Nearshoring: 3,000 empresas quieren invertir en México y Scotiabank así busca aprovecharlo
+-  Workflow effizienter machen: "KI schafft idealerweise neue Arbeitsplätze"
+-  Татарстан в новогодние дни готов встретить около 160 тысяч туристов
+-  ‘I judged my father for hitting me – but his wartime PTSD was behind it’
+-  To μυστήριο με το Tesla Cybertruck που χρειάστηκε ένα Ford για να ξεκολλήσει από τα χιόνια (vid)
+-  Lucka 20: Ska du besöka en kyrka under julhelgen?
+-  Cantor e a mãe partilham memórias e histórias de vida (exclusivo)
+-  «Россия 25» — нужна ли такая сборная? Live с Зислисом, Шевченко и Потаповым — в 14.00
+-  Son dakika! MSB'den Tuzla Piyade Okulu'ndaki iddialara ilişkin açıklama
+-  Wolfsburg gegen Bayern: Bundesliga am Mittwoch im TV und Livestream
+-  GfK-Konsumklima hellt sich auf: Verbraucher werden mit steigenden Einkommen zuversichtlicher
+-  Dünyada yılın en iyi projesi seçilmişti: 1915 Çanakkale Köprüsü'nün yetkilileri ödülü aldı
+-  Uluslararası ekonomistler faizlerin düşüşe geçeceği tarihi paylaştı: Keskin ve hızlı bir indirim beklenmiyor
+-  Sosyal medyada gündem olan hatıra 5 liraların üzerindeki Atatürk rölyefi için Darphane'den açıklama geldi
+-  Mobil Göç Noktası aracı bir ilde daha hizmete girdi: Düzensiz göçe geçit yok
+-  В США сделали заявление касательное боеприпасов для Украины
+-  Doctor Who Christmas Special 2023: Cast, how to watch and release date
+-  Самарқандда бир неча мансабдорга жиноят иши қўзғатилди.
+-  Check if you qualify for £55 one-off winter heating payment as money starts landing in bank accounts
+-  구미시, 신공항 교통망 구축 전력투구
+-  영덕산 샤인머스캣 대만인 입맛 잡는다…개척단-현지회사 MOU
