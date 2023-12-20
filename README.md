@@ -1,51 +1,51 @@
 # Latest News
--  Wohnhaus in Kirchen bei Explosion stark beschädigt
--  82 motosikal disita ubah suai brek belakang
--  Trabajadores remotos y viajeros de negocios: riesgos de ciberseguridad aumentan en fin de año
--  Dreyfus accuses opposition of undermining police over Benbrika release
--  Original Zustand: JCB Fastrac 2155 4WS Traktor für 113.050 Euro #maschinedestages #gebrauchtmaschine
--  ماليزيا تمنع شركة الشحن الإسرائيلية "زيم" من الرسو بموانئها
--  KGC인삼공사 정관장, 크리스마스 기획전 진행
--  동아ST, ‘앱티스(AbTis)’ 인수로 ADC 신약 개발 본격화
--  Resumen y conclusiones de la COP28
--  Not just for Christmas: Britain’s M&S targets more regular food shoppers
--  '울보에서 블로킹 1위' 이제는 배구계의 돌부처?… 생일축하 노래에도 연습 삼매경 [곽경훈의 현장]
--  '사령탑이 직접 뽑았다' KBL, 올스타전 팀 구성 발표..."좋은 경기·퍼포먼스 보여주기 바란다"
--  이윤진, '♥이범수와 이혼설' 후 밝은 근황…딸 소을과 백화점 나들이
--  '레전드 아역 스타' 미달이 김성은 "키즈 모델 에이전시 이사" 근황 공개 [살아있네!]
--  ‘억울한 마녀사냥’ 지드래곤, ‘마약혐의’ 벗고 갤럭시코퍼레이션과 화려한 부활[MD이슈](종합)
--  박명수 "♥한수민에게 '일 못하면 어떡하냐'고 하자…'정신 차리라'는 답 돌아왔다" 폭로 [라디오쇼](종합)
--  '이강인의 마법에 걸려 들었다'→PSG 루이스 엔리케 감독 "모든 것을 갖춘 선수" 극찬
--  "분노유발 전두광은 잊어라" 황정민, 염정아와 손잡고 오락액션 '크로스'로 돌아온다
--  Jak jsou otevřené obchody o Vánocích, na Silvestra a Nový rok
--  محاكمة المتهم بقتل شقيقه ووالدته بالهرم.. اليوم
--  حدث ليلاً| بيان عاجل بشأن سد النهضة وتفاصيل لائحة قانون التصالح الجديد
--  كتل هوائية.. تفاصيل حالة الطقس اليوم الأربعاء (بيان رسمي)
--  Sri Lanka Unveils Cutting-Edge Disaster Early Warning System
--  India can provide sustainable solutions to global challenges: PM Modi
--  ठंड में रखें पशुओं का खास ख्याल, वरना हो सकती है परेशानी;डॉक्टर से जानें टिप्स
--  「ろう者」「難聴者」役などをドラマで演じた当事者たち
--  بوركينا فاسو: توقيف 4 فرنسيين بتهمة "التجسس"
--  서귀포시 새해 예산 1조2394억원 확정
--  서귀포시 동부도서관, ‘길 위의 인문학 ’우수도서관 선정
--  2023년 4분기 ‘건축행정 역량강화 워크숍’ 개최
--  청소년방과후 아카데미 참여자 모집
--  성산중, 제주서 두 번째 IB MYP 월드스쿨 공식 지정
--  Bļugers rezultatīvs ceturto spēli pēc kārtas, "Blue Jackets" iemet deviņas ripas "Sabres" vārtos
--  عاجل.. استقرار الطقس على معظم مناطق المملكة وضباب بالشرقية والشمالية
--  ОАВ: НАТОда Россиянинг эҳтимолий ғалабаси оқибатлари муҳокама қилиняпти.
--  Ўзбекистонда мандарин нархи рекорд даражада арзонлашди.
--  Исроил Ғазо секторида янги гуманитар паузага тайёргарлик кўряпти.
--  ОАВ: Самарқандда қўлда тўқилган энг яхши гиламнинг баҳоси Москвадаги квартира нархи билан тенг.
--  Mobiuz ISO сертификациясидан муваффақиятли ўтди.
--  Сафарбар этилганларнинг хотинлари: фронтдаги эрларимизни қўрқитишмоқда.
--  Секин овқатланиш орқали ортиқча вазндан халос бўлиш мумкин – тадқиқот.
--  Самарқандда ўқувчини уриб юбориб қочиб кетган ҳайдовчи 15 ёшли мактаб ўқувчиси бўлиб чиқди.
--  Что вреднее — выпивать часто и по чуть-чуть или редко, но метко
--  ABC presenter is axed days after starting her radio job over 'anti-Israel comments'
--  Naci Görür depremde en riskli yeri açıkladı. Orada insanların yaşamaması lazım kurtulma şansları yok
--  Veikkausliigan uusilla joukkueilla evakkouhka
--  Shreyas Talpade Health Update: हृदयविकाराच्या झटक्यानंतर अभिनेता श्रेयस तळपदेने दिली स्वत:च हेल्थ अपडेट
--  The Artist Behind the ‘Sgt. Pepper’ Cover Wasn’t a Beatles Fan
--  Islamic Jihad releases video of two Israeli hostages pleading for their release
--  제주도 내년 상반기 정기인사 1월 19일 예고...쇄신인사, 발탁 승진
+-  'Gazze kasabı' Netanyahu için yolun sonu göründü: Kazan kaldırıp 'görevden alınsın' çağrısında buldular
+-  Fas'tan uluslararası topluma Gazze isyanı: Saldırıların durdurulamaması artık kabul edilemez
+-  İsrail kabinesinde 'camide dua okuyan asker' gerilimi: Genelkurmay başkanı bakana 'Beni tehdit etmeyin' diye bağırdı
+-  Balıkesir'de korkutan deprem
+-  Игнажден е! Вижте кои са имениците
+-  Programan audiencia para acusados de homicidio ocurrido fuera de Cbtis 114
+-  Dan 20 años de prisión a ex policía por muerte de Ocaña
+-  MBC 출신 김도인, 언론재단 정부광고본부장 낙점
+-  Tennis Highlights: Coco Gauff v Aryna Sabalenka
+-  Alcaraz clinches incredible victory
+-  Tennis Highlights: Coco Gauff v Aryna Sabalenka
+-  Alcaraz clinches incredible victory
+-  Опубликована расшифровка телеграммы НКГБ СССР о скором начале войны с Германией
+-  Rebooting Asia as front and centre of Australia’s foreign policy
+-  สรุปให้คดีน้องชมพู่ ที่ยืดเยื้อมานานกว่า 3 ปี ก่อนพิพากษา ลุงพล-ป้าแต๋น
+-  台中２處洋紅風鈴木秘境綻放！漫步粉紅花梯、同框復古紅牆超浪漫
+-  Опубликована одна из последних шифровок спецслужб СССР о планах атаки Германии
+-  Death toll in China`s earthquake rises to 131
+-  Mens Leather Bomber: Timeless Elegance and Heritage
+-  Mbappe Hingga Djokovic, Atlet yang Paling Dicari di Google Sepanjang 2023
+-  Man City ease into Club World Cup final but must cope without Haaland
+-  Burger, De Zorzi take Proteas to ODI victory over India
+-  Đại học California chịu đựng chủ nghĩa Marx văn hóa cực đoan
+-  Aumentan cruces ilegales en áreas remotas; EU sopesa importantes límites al asilo
+-  [오후시황] 코스피, 2600선 안착… 대형주 중심 상승세
+-  쥴릭파마코리아, 어린이 대상 안전한 의약품 복용 사회공헌활동 실시
+-  도로공사, 휴게소에 ‘휴-게이트’ 도입... 통행료 사후납부 등 고객편의 강화
+-  현대해상, 자동차보험료 2.5% 인하
+-  삼성, '갤럭시' 자가 수리 프로그램 대상 모델·국가 확대
+-  메리츠화재, 내년 자동차보험료 3.0% 인하
+-  LS Cable & System develops CuFlakeTM, the world's first new material for copper foil
+-  보령-HK이노엔, 내년부터 ‘카나브-케이캡’ 공동판매 나선다
+-  DL E&C Canakkale Bridge Wins ENR's Global Best Project Award
+-  النائب شريم: معركة الجيش ضد المهربين حماية للوطن وأمنه الداخلي
+-  ไม่ได้ไล่ออก! ‘เลขาฯสภา’ แจงแม่บ้านถ่ายภาพห้องพัก ‘สส.ไอซ์ รักชนก’ ยื่นลาออกเอง
+-  SON DAKİKA: Balıkesir'de 3,7 büyüklüğünde deprem
+-  'Ya ben ya köpek' dedi, 9 yıllık evlilik tek celsede bitti!
+-  來勢洶洶 世衛組織列JN.1為需留意變異株
+-  How much will RG Snyman get paid at Leinster?
+-  TS DEECET 2023 Counselling: డీఈఈసెట్‌ కౌన్సెలింగ్‌‌‌ ప్రక్రియ ప్రారంభం, సీట్ల కేటాయింపు ఎప్పుడంటే?
+-  Darts-Urgestein Beaton dankt ab: Nur noch ein Jahr
+-  أليجري وعقوبة جديدة بسبب سلوكه مع الحكام
+-  Liver Cancer Risk Factors : కాలేయ క్యాన్సర్​కు ప్రధాన కారకాలు ఇవే.. మధుమేహమున్నవారు తస్మాత్ జాగ్రత్త
+-  కాంగ్రెస్ గెలుపులో వ్యూహ‌క‌ర్త‌లు వీరే..
+-  Tragic news for footy star Corey Harawira-Naera after he suffered a seizure on the field in the middle of a game
+-  Индекс Hang Seng на бирже Гонконга вырос на 0,87% на открытии торгов
+-  미 전기차 충전, 테슬라 방식 통일…현대차도 적용
+-  攻擊-11無人機現身武漢航母樓 料準備上福建艦
+-  Hyundai, Rusya'daki tesisini satma kararı aldı
+-  Balıkesir'de deprem oldu
