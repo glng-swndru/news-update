@@ -1,51 +1,11 @@
 # Latest News
--  Blue Origin Rebounds With New Shepard’s Successful Launch After Previous Mission Failure
--  أبو عبيدة يكشف حصيلة خسائر جيش الاحتلال
--  مصرع شخص وإصابة 6 آخرين في حادث تصادم بطريق الداخلة - الفرافرة
--  Mohali News: आईएएस का फेसबुक मैसेंजर अकाउंट हैक कर शातिरों ने ठग लिए 60 हजार
--  Barcelona sofre com lanterna de LALIGA, mas conta com show de Sergi Roberto e volta a vencer
--  Ko je Stefan Šenah – šef posmatračke misije koji je na izborima u Srbiji video šokantne stvari?
--  Koffee With Karan 8: Karan Johar talks about rift with Ajay Devgn, says, `...
--  Poonch News: पुंछ-जम्मू में शुरू होगी शीतकालीन हेलिकॉप्टर सेवा
--  Pratapgarh News: बारात लेकर जा रही बस का स्टेयरिंग लॉक टूटा, बाल- बाल बचे 50 बराती
--  مخبأة بطريقة ماكرة.. ضبط كمية كبيرة من الحشيش خرجت من مدينة عربية
--  عاجل.. أهم 10.. تنفيذ حكم الشرع في قاتل النساء وجريمة غير مسبوقة في تاريخ الكويت
--  نصائح مهمة للأم بشأن الاستعداد للولادة في الشتاء
--  رغم تفاقم الكارثة.. مساعدات لا تسد الرمق في رفح وتكدس كبير للشاحنات
--  Mohali News: स्कूल में खेलते हुए गिरा छात्र, गर्दन की हड्डी टूटी, मौत
--  ANALYSIS: Europe’s Farmer Protests a Warning as Ottawa Looks to Cut Cattle Emissions
--  La tajante advertencia de Miguel Russo antes de la final contra River: "No busquemos cosas raras donde..."
--  Concejo Deliberante Tartagal: aprobaron la prórroga del Presupuesto Municipal 2023
--  Hailey Bieber Looks Ready to Rule Narnia in Her Winter Lingerie
--  Lucknow News: एल्डिको ग्रीन में संपत्तियों के नामांतरण को मंजूरी
--  Abdullah: Filistin için "güçlü ve yüksek sesle" çalışacağız
--  Fatih Karagümrük futbolcularından hakem tepkisi!
--  Estos son los cambios que aplicará BANXICO a transferencias electrónicas
--  Знаете ли историята на най-известните магове в Царска България?
--  Prayagraj News: युवक को पेड़ से बांधकर पीटा, वीडियो वायरल
--  Российская нефть застряла в танкерах по пути в Индию
--  DiversyFund Review 2024
--  A Andel, le poulet au lait de Marie-Jeanne, une valeur sûre pour le réveillon
--  Tresnuraghes, a breve i lavori per la messa in sicurezza della Torre di Columbargia
--  فيديو.. أحمد موسى: محمد صلاح شخص محترم وتبرع بالملايين من أجل أهل غزة
--  Crvena zvezda slavila pokojnu zvijezdu iz vukovarskog kraja, a nakon utakmice nastao lom
--  Bareilly News: पैनल में फॉल्ट, सेमीखेड़ा चीनी मिल में पेराई ठप
--  El Barcelona gana a última hora pero no se encuentra
--  Rajouri News: दरहाल से मंजाकोट तक घूमा जागरूकता का पहिया, योजनाओं का बंटा ज्ञान
--  Noida News: अतिक्रमण सेल हटाएगा प्राधिकरण की जमीनों से अवैध कब्जे
--  Вижте какво предложи пловдивчанин да има на мястото на Альоша
--  Drame en haute mer : la fiction avec Barbara Schulz et Arié Elmaleh est-elle adaptée d’une histoire vraie ?
--  Manchester United face competition for striker 'target' and other transfer rumours
--  El Levante se recompone y remonta dos goles en La Romareda
--  Microsoft Copilot can write songs for you now. Here's how to try it
--  Pratapgarh News: सांगीपुर अठेहा में बिजली के खंभे से टकराई रोडवेज बस
--  Sambhal News: शवों की अस्थियां बाहर पड़ी देख आक्रोशित हुए लोग
--  Supreme Court Will Consider Putting Biden’s Plan to Address Air Pollution on Hold
--  Biden promete que seguirá vigilando que Venezuela cumpla con la ruta electoral
--  UDF opposed to politicisation of universities, says Hassan
--  Jarry y mellizas Abraham ganaron el premio Mejor de los Mejores de este 2023
--  माहौल खराब करने वालों को बख्शा नहीं जाएगा : एसपी
--  Alex Saab llega a Caracas tras su liberación en Estados Unidos
--  Günün ULDUZ FALI: Daha təcrübəli insandan məsləhətlər almaqdan çəkinməyin
--  Experto comenta la liberación de Saab: "EE.UU. tiene distintos frentes de guerra en el mundo"
--  Múltiples allanamientos por venta de droga en Resistencia, Sáenz Peña y Charata
+-  Serbiassa järjestetään osittaiset uusintavaalit vilppiepäilyjen vuoksi
+-  Djurgårdens galna hemmaform fortsätter: "Laget som alla vill slå"
+-  مفاجأة.. هذا يحدث للجسم عند تناول فص من الثوم قبل النوم مباشرة
+-  Taraji P. Henson Breaks Down In Tears Over Pay Disparity In Hollywood: “The Math Ain’t Math-Ing”
+-  Cena złota spadła. Zmiana sytuacji na rynku złota
+-  Neden Diğer Memeliler Tıpkı İnsanlar ve Primatlar Gibi Âdet Görmez? (Biri Dışında!)
+-  NASA'nın "Asteroid Avcısı" Teleskobu Ömrünü Tamamlıyor
+-  Dünyanın En Büyük Teknoloji YouTuber'ı Marques Brownlee, 2023 Yılının En İyi Telefonlarını Açıkladı
+-  Geleceğe Dönüş ile Akıllara Kazınan Efsane Otomobil DeLorean'ın Tasarımcısı, Tesla Cybertruck'ı Övdü: "Otomobillerin Picasso'su"
+-  Paseo de Regalos Navideños en la casa cecualera
