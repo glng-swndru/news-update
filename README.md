@@ -1,11 +1,11 @@
 # Latest News
--  Félix Tshisekedi inaugure les nouveaux bâtiments de l’hôpital général de Kinshasa et du Centre financier de Kinshasa
--  BMW : Bernstein bevestigt koopadvies
--  MERCEDES-BENZ GROUP : Bernstein herhaalt koopadvies
--  „Ausschreibung machen“: Debatten über Ort der Darts-WM
--  성시경 "이소라, 해외였으면 슈퍼스타…韓과 안 맞아, 너무 일찍 태어났다" [슈퍼마켙 소라]
--  Hyundai to sell its Russian car factory for R1,400
--  PORSCHE AG : Bernstein herhaalt het Neutraal advies
--  PORSCHE SE : Bernstein is Neutraal gestemd over aandeel
--  VOLKSWAGEN VORZÜGE : Bernstein herhaalt het Neutraal advies
--  Usindiso fire inquiry recuses commissioner accused of xenophobia
+-  Bad crash on the A20, Schiphol train issues cause messy rush hour; Holiday traffic expected
+-  When little Salman Khan threw stone at brother Sohail Khan while watching Tarzan
+-  Maharashtra: Man mows down three with van over enmity in Amravati
+-  Müstehcen içerikli yayın yapan kadına 2 yıl hapis istemi
+-  Tekirdağ merkezli 3 ilde "rüşvet" operasyonu
+-  Kamera kayıtları ortaya çıktı! İşte Emre Belözoğlu ve Halil Umut Meler'in görüntüleri
+-  Ukrayna, 18 Rus İHA'sını imha etti
+-  Müzik platformları Filistin'i destekleyen şarkısını kısıtladı
+-  Fahiş fiyat uygulamasına geçit yok! Ticaret Bakanı Bolat: Kendi ayaklarına kurşun sıkıyorlar
+-  عاجل.. جريمة نكراء.. تنفيذ حُكم الشرع في مقيم أنهى حياة عدة أشخاص بهذه الطريقة
