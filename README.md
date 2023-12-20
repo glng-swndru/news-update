@@ -1,51 +1,51 @@
 # Latest News
--  'Gazze kasabı' Netanyahu için yolun sonu göründü: Kazan kaldırıp 'görevden alınsın' çağrısında buldular
--  Fas'tan uluslararası topluma Gazze isyanı: Saldırıların durdurulamaması artık kabul edilemez
--  İsrail kabinesinde 'camide dua okuyan asker' gerilimi: Genelkurmay başkanı bakana 'Beni tehdit etmeyin' diye bağırdı
--  Balıkesir'de korkutan deprem
--  Игнажден е! Вижте кои са имениците
--  Programan audiencia para acusados de homicidio ocurrido fuera de Cbtis 114
--  Dan 20 años de prisión a ex policía por muerte de Ocaña
--  MBC 출신 김도인, 언론재단 정부광고본부장 낙점
--  Tennis Highlights: Coco Gauff v Aryna Sabalenka
--  Alcaraz clinches incredible victory
--  Tennis Highlights: Coco Gauff v Aryna Sabalenka
--  Alcaraz clinches incredible victory
--  Опубликована расшифровка телеграммы НКГБ СССР о скором начале войны с Германией
--  Rebooting Asia as front and centre of Australia’s foreign policy
--  สรุปให้คดีน้องชมพู่ ที่ยืดเยื้อมานานกว่า 3 ปี ก่อนพิพากษา ลุงพล-ป้าแต๋น
--  台中２處洋紅風鈴木秘境綻放！漫步粉紅花梯、同框復古紅牆超浪漫
--  Опубликована одна из последних шифровок спецслужб СССР о планах атаки Германии
--  Death toll in China`s earthquake rises to 131
--  Mens Leather Bomber: Timeless Elegance and Heritage
--  Mbappe Hingga Djokovic, Atlet yang Paling Dicari di Google Sepanjang 2023
--  Man City ease into Club World Cup final but must cope without Haaland
--  Burger, De Zorzi take Proteas to ODI victory over India
--  Đại học California chịu đựng chủ nghĩa Marx văn hóa cực đoan
--  Aumentan cruces ilegales en áreas remotas; EU sopesa importantes límites al asilo
--  [오후시황] 코스피, 2600선 안착… 대형주 중심 상승세
--  쥴릭파마코리아, 어린이 대상 안전한 의약품 복용 사회공헌활동 실시
--  도로공사, 휴게소에 ‘휴-게이트’ 도입... 통행료 사후납부 등 고객편의 강화
--  현대해상, 자동차보험료 2.5% 인하
--  삼성, '갤럭시' 자가 수리 프로그램 대상 모델·국가 확대
--  메리츠화재, 내년 자동차보험료 3.0% 인하
--  LS Cable & System develops CuFlakeTM, the world's first new material for copper foil
--  보령-HK이노엔, 내년부터 ‘카나브-케이캡’ 공동판매 나선다
--  DL E&C Canakkale Bridge Wins ENR's Global Best Project Award
--  النائب شريم: معركة الجيش ضد المهربين حماية للوطن وأمنه الداخلي
--  ไม่ได้ไล่ออก! ‘เลขาฯสภา’ แจงแม่บ้านถ่ายภาพห้องพัก ‘สส.ไอซ์ รักชนก’ ยื่นลาออกเอง
--  SON DAKİKA: Balıkesir'de 3,7 büyüklüğünde deprem
--  'Ya ben ya köpek' dedi, 9 yıllık evlilik tek celsede bitti!
--  來勢洶洶 世衛組織列JN.1為需留意變異株
--  How much will RG Snyman get paid at Leinster?
--  TS DEECET 2023 Counselling: డీఈఈసెట్‌ కౌన్సెలింగ్‌‌‌ ప్రక్రియ ప్రారంభం, సీట్ల కేటాయింపు ఎప్పుడంటే?
--  Darts-Urgestein Beaton dankt ab: Nur noch ein Jahr
--  أليجري وعقوبة جديدة بسبب سلوكه مع الحكام
--  Liver Cancer Risk Factors : కాలేయ క్యాన్సర్​కు ప్రధాన కారకాలు ఇవే.. మధుమేహమున్నవారు తస్మాత్ జాగ్రత్త
--  కాంగ్రెస్ గెలుపులో వ్యూహ‌క‌ర్త‌లు వీరే..
--  Tragic news for footy star Corey Harawira-Naera after he suffered a seizure on the field in the middle of a game
--  Индекс Hang Seng на бирже Гонконга вырос на 0,87% на открытии торгов
--  미 전기차 충전, 테슬라 방식 통일…현대차도 적용
--  攻擊-11無人機現身武漢航母樓 料準備上福建艦
--  Hyundai, Rusya'daki tesisini satma kararı aldı
--  Balıkesir'de deprem oldu
+-  พบ “สารไฮโดรเจนไซยาไนด์” ในดวงจันทร์เอนเซลาดัส สารประกอบของชีวิตจากข้อมูลเก่า “ยานแคสสินี”
+-  แจงวุ่น! ปัดไล่ออกแม่บ้านถ่ายภาพห้องพักสส. "ไอซ์ รักชนก"
+-  Nová GeForce RTX 3050 6GB bude patrně odložena na únor
+-  Rána pro Apple: v USA přestane prodávat hodinky Watch 9 a Ultra 2 kvůli patentům
+-  Лавров прибыл в Марокко для участия в Российско-арабском форуме сотрудничества
+-  BRS: కాంగ్రెస్ ప్రభుత్వం శ్వేత పత్రాలకు బీఆర్‌ఎస్ కౌంటర్
+-  Tomljanovic to shake off ‘bad juju’ as comeback begins
+-  Cummins’ perfect day: Beach, home-cooked meal, a whisky … and a $3.67m deal
+-  Tungt för Ukrainas soldater: "Svårt och kallt"
+-  Tomljanovic to shake off ‘bad juju’ as comeback begins
+-  Tungt för Ukrainas soldater: "Svårt och kallt"
+-  Cummins’ perfect day: Beach, home-cooked meal, a whisky … and a $3.67m deal
+-  서울 '고척동 253번지 일대' 신통기획 확정…친환경 초품아 단지로
+-  이재명-김부겸 회동… "함께 힘 모아" "통합" 한목소리
+-  홍천군, '사랑의 땔감나누기'로 이웃사랑 실천
+-  '육군항공 최고 명사수(TOP Heligun)' 탄생
+-  계양, 주소정책 업무평가 우수기관 선정
+-  구미상의 경북FTA통상진흥센터, ‘2023년 알리바바 플랫폼 입점지원 사업 최종보고회’ 개최
+-  통일맞이 홍천군민과 함께하는 '통일 음악회' 성황리 개최
+-  아산시의회 행정사무조사 특별위원회, 건축·토목 관계자 간담회
+-  대전도시공사, 갑천1BL 트리풀시티 힐스테이트 아파트 범죄예방 최우수시설 인증
+-  마산보건소 치매안심센터, 치매지역사회협의체 하반기 정기회의 개최
+-  김성 장흥군수, 대한민국 CEO 리더십 대상 수상
+-  부평풍물대축제, 전국 축제로 거듭났다
+-  창원시, 자매결연지 영광군 경영인연합회 방문
+-  신안군 청소년참여위원회 2023년 활동 마무리
+-  대전시, 제29회 경제과학대상 수여
+-  창원소방본부, 성탄절 연말연시 대비 특별경계근무
+-  아산시, 민선 8기 일반산업단지 승인 성과
+-  대덕구 비래한신휴플러스아파트, 2023년 전국 공동주택 최우수
+-  윤형선 국힘 계양을 당협위원장, 총선출마 선언
+-  무안군의회, 제291회 임시회 폐회… 의사일정 마무리
+-  서구보건소, 석안 등 4개권역 건강생활지원센터 운영협의회 개최
+-  토스, 월간 광고 매출 100억원 첫 돌파
+-  “피해자 깔린 것 알고도 후진”…롤스로이스 가해자 징역 20년 구형
+-  구미도시공사, ‘지역사회공헌 인정제’ 인정기관 선정
+-  한동훈 “직접 물으라” 이준석 “반쯤 긁은 복권”…‘김건희 특검’으로 1차전?
+-  카카오뱅크, 자립준비청년 후원 위한 임직원 기부금 전달
+-  창원해경, 해군 진해기지사령부와 해양 안보 협력
+-  지난해 육아휴직자 20만명 육박…대부분 대기업 직원
+-  김부겸·이재명 회동…金 “범민주·진보 아울러야” 李 “힘 모으고 변화해야”
+-  Loopring Kurs aktuell: Ist der Loopring unterbewertet?
+-  Tellor Prognose aktuell: Steigt der Tellor weiter?
+-  ‘Vital’ Oxford Street cycleway to go ahead despite community split
+-  이루다, '혁신도약형 의료기기 기업' 재인증…우수한 기술 경쟁력 입증
+-  검은사막, 신규 클래스 '스칼라' 전 세계 동시 업데이트
+-  골든걸스, 2024년 전국 투어 콘서트 확정
+-  영화 ‘노량’ 개봉 첫날 예매율 49.3%…'서울의 봄' 흥행 잇나
+-  임영웅·뉴진스 '올해를 빛낸 가수 1위' 선정
+-  '김주성표' 크블몽팀-'조상현표' 공아지팀, 올스타전 베스트5 발표
