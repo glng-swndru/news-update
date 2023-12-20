@@ -1,51 +1,11 @@
 # Latest News
--  Küresel piyasalarda pozitiflik hakim
--  Mauro İcardi'nin bonservisi bile belli! 'Ocak ayında transferi gerçekleşecek' iddiası
--  Meteoroloji uyardı: Sağanak ve kar o illeri vuracak!
--  Yarıçıplak halde protesto yaptı!
--  Pesantren Tebuireng Jombang Masifkan Edukasi Pengelolaan Sampah
--  Rıza Çalımbay’dan kadro dışı yorumu
--  Global Times: EUA podem resolver problema no Mar Vermelho se abrirem caminho para o cessar-fogo em Gaza
--  Rekordne nízke teploty: Sever Číny postihlo extrémne chladné počasie
--  ANKETA Lidl hodnotí úspešné projekty v roku 2023: Veľký odkaz pre Slovákov!
--  'Everybody should do this as a hobby': Joanna Gaines's new project preserves nature in its most beautiful form
--  데뷔전서 '투신' 김재웅 꺾었던 '코브라' 샤밀 가사노프, 한국 선수 또 이길까...오호택과 맞대결
--  '건강히 돌아오길' 매디슨, 내년 1월 복귀 위해 박차...두바이서 러닝 머신 세션 중
--  "Key Emoji Means Cocaine": How Drugs Are Sold In Online Gaming Chatrooms
--  French Couple Lose Court Case Over Rare African Mask Worth $4.6 Million
--  What to know about abortion policy across the US heading into 2024
--  Cathie Wood’s Ark Invest Offloads Coinbase (COIN) and Robinhood (HOOD) Shares Amid Rally
--  Senator Elizabeth Warren Lashes Out At Crypto Firms For Building Lobbying Army
--  A 360-degree heads-up display view could warn drivers of road obstacles in real time
--  Kayseri'nin bu geleneksel lezzetini denediniz mi?
--  Granit Xhaka tells Kai Havertz how to win Arsenal fans round after frank admission
--  Die Welt endet nicht, wenn du 17 bist – beweist dieser TikTok-Trend
--  Rodri Sebut Piala Dunia Antarklub Berikan City Jeda untuk Atur Ulang Performa
--  Razzia wegen Unterstützung palästinensischer Terrorgruppe
--  2023화랑대기 전국태권도대회 성료
--  "ศรีสุวรรณ" ร้องสอบ "กรมฝนหลวง" ปมประมูลซื้อเครื่องบิน 1,188 ล้าน
--  與野, 내년도 예산안 최종 합의…R&D 6천억·새만금 3천억↑
--  CCTV captures X-Factor star Isaiah Firebrace’s alleged DV attack: court
--  아크릴, 타슈켄트 공공병원 의료정보시스템 ‘나디아’ 오픈
--  Japońska spółka po 74 latach wyszła z giełdy
--  پاکستان بلاک پالیٹکس سے پرہیز کرتا ہے، متوازن تعلقات چاہتے ہیں، آرمی چیف
--  Москвичам назвали время возвращения снегопадов
--  츄, 첫 단독 美 투어 성료
--  용준형, 솔로 신곡 아이튠즈 7개 지역 최상위권
--  Ile kosztuje funt? Kurs funta do złotego PLN/GBP 20.12.2023
--  В последней песне «Пухляша из клипа Little Big» нашли пророчество
--  Психотерапевт предостерегла от совершения нескольких критичных ошибок в браке
--  В США задержали десятки ворвавшихся протестующих в Капитолии
--  토트넘, 커리어 마지막까지 손흥민 붙잡는다→'재계약 문제 없을 것' 확신
--  [현장] 이창용 한은 총재 “유가 불확실성 커…인플레이션 2% 마지막 걸음 쉽지 않아”
--  토픽·바이오베이코리아·민영크리에이티브, ‘뷰티 라이브 파티 인 서울’ 성황리 종료
--  "궁금해서 잠을 못 자겠다" 마쓰이 샌디에이고행 보도에 다르빗슈도 설렘 폭발
--  보령, HK이노엔 ‘케이캡’ 판매권 확보…자사 카나브도 공동판매키로
--  부다, 모바일쇼핑 플랫폼 ‘포켓팡팡’ 태국 정식 론칭
--  Bianca Manalo Rob Gomez Issue: Alleged Messages Exposed
--  '범죄예방 대응·사기 진작'...현장경찰 활성화 TF 논의 속도
--  Léopold Sédar Senghor, le poète président
--  Here are most search terms in Google PH for 2023
--  ارتفاع أسعار الـذهب بالأردن 50 قرشا
--  صدمات الطفولة تُفاقم الألم المزمن مستقبلاً
--  كورتوا: لن أشارك في يورو 2024
+-  Portekiz denemenin sonuçlarını açıkladı: Haftada 4 gün mesai stresi azalttı
+-  Müşteri gibi geldiği iş yerinde araç çalıp kayıplara karıştı
+-  TEM Oto Yolu'nda kamyonetin bariyerlere sıkıştırdığı motosikletli ölümden döndü!
+-  Erken yaşlardaki bazı hastalıklar, çocuk sahibi olmama ihtimalini artırabilir
+-  Yumurta alırken nelere dikkat etmeli?
+-  Kathmandu Valley reports cases of looting in pretext of exchanging dollars
+-  Transformative Disaster Risk Reduction Communication unveiled in Tikapur Municipality through Scientific Flood Hazard Mural Art
+-  Veiligheidsplan in Suriname rond eindvonnis Bouterse over Decembermoorden
+-  राजस्थान में बहुत पसंद की जाती है बाजरे की रोटी, इस विधि से बनाएं स्वादिष्ट
+-  Neet Success Story: From Kashmir To Success, Twin Triumphs In NEET Exam Fulfill A Mother`s Unwavering Dream
