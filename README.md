@@ -1,11 +1,11 @@
 # Latest News
--  Maharashtra CM Shinde avoided speaking on Vidarbha in House, claims opposition
--  Maharashtra legislative council clears bill regulating bovine breeding
--  Wacky Wednesday: Twinkle Khanna left audience in splits when she revealed...
--  Lenovo predstavio prijenosna računala s Intel Core Ultra procesorima
--  Skiljebos tunga smäll – tappar nyckelspelaren
--  Skiljebos tunga smäll – tappar nyckelspelaren
--  Konya'da iki grup arasında çıkan silahlı kavgayla ilgili 2 şüpheli tutuklandı
--  Çalışan emekli için 5 bin TL ikramiyede tarih belli oldu
--  احذر هذه الأعراض.. نجاة امرأة من ورم في المخ بعد تشخيصها بالاكتئاب
--  شكري يبحث مع لافروف التعاون الثنائي والقضية الفلسطينية
+-  “Ganamos un décimo del Gordo entre cuatro compañeras dos meses antes de que la empresa se fuera a la ruina”: así le salvó la vida la Lotería de Navidad a dos hermanas de Tenerife
+-  हिसार : उत्तर पश्चिम रेलवे महाप्रबंधक ने किया रेवाड़ी-बठिंडा रेल मार्ग का दौरा
+-  Troje kandidata za direktora/direktoricu Turističke zajednice grada Zadra danas predstavili programe rada, jedan odustao!
+-  Hrvatski institut za kibernetičku sigurnost prvi put dodijelio nagrade
+-  Lleva Municipio la Navidad a Punta Oriente
+-  馬場密探048｜「多多配合」首勝谷草千二
+-  U Sarajevu počeo sastanak Trojke i HDZ-a: Ovo su teme
+-  Mokinių verslumo mugė – ne tik apie verslą, bet ir apie dalijimąsi gerumu
+-  आगामी लोकसभा चुनाव के मद्देनजर सेक्टर दंडाधिकारियों और पुलिस पदाधिकारियों को दिया प्रशिक्षण
+-  KIOXIA 2TB microSDXC memory card now available
