@@ -1,51 +1,51 @@
 # Latest News
--  Šnekos atpažinimo technologijos: ar namų asistentai prabils lietuviškai?
--  Putinas skelbia Ukrainai naujas sąlygas dėl derybų
--  Rusai puola Krynkus. ISW skelbia apie pažangą
--  „Ukrainai būtina užšaldyti karą ir pavadinti tai „pergale“
--  Jei įmesite moliūgą į vandenyną, ar jis sprogs tam tikrame gylyje. Atsakymas paprastas (Video)
--  [ŽT] „Mes tavęs ten nesiuntėm!“ Rusai žiauriai „atsidėkojo“ iš fronto grįžusiam tautiečiui (Video)
--  Festival de Carcassonne 2024 : Status Quo, IAM... rejoignent la programmation
--  লিবরা ইনফিউশন স্পট মার্কেটে যাচ্ছে বৃহস্পতিবার
--  Dolar, rekor seviyede yükselişini sürdürüyor: Gözler yarınki Merkez Bankası kararında
--  45 bin TL'ye 'çürük raporu'na operasyon: Hastane yöneticileri de gözaltında
--  Kako nas varaju: Ove vrste voća i povrća morate uvijek, ali baš uvijek, vagati prije kupovine
--  İstanbul için kötü haberler peşpeşe! Bir ile daha uyarı geldi: Hazırlıksız yakalananın hali duman olacak
--  رئيس "برلمانية التجمع": المجتمع الدولي تخاذل في حل أزمة سد النهضة
--  제31회 거창겨울연극제 폐막, 거창 북상초교 대상
--  “Yaşma”dan qorxan general İrəvanda hərbi çevriliş hazırlayır
--  Sjećate li se Marije i Marija? Pobijedili su u 'Superparu', a sada nemaju ni zajedničku fotku
--  Italian religious statue stolen in 2014 returned to Italy from the Netherlands
--  몬스타기어, 카오세라의 신작 스위치 ‘큐피드’ 출시
--  웨스턴디지털, 전문가 위한 샌디스크 프로페셔널/샌디스크 신제품 국내 출시
--  에이스프로젝트, '9UP 프로야구'에 23년도 선수 신규 추가
--  LG전자, 4K@240Hz / FHD@480Hz 동시 구현한 OLED 게이밍 모니터 공개
--  Exclusive : ‘चेन्नई एक्सप्रेस’ के थंगबली बने रावण, अरविंद त्रिवेदी से तुलना पर बोले- जो राम जी चाहें वही होगा
--  Život pored termoelektrane u Tuzli: ‘Ovde je normalno ako dođeš do pedesete i onda umreš’
--  Sähköverkkoyhtiöt valmistautuvat hintojen halpuuttamiseen – Leppäkoski aloitti osakeannin
--  ধ্বনির উচ্চারণ ও ‘চিঠি বিলি’ ছড়া : দ্বিতীয় অধ্যায় | বাংলা - ষষ্ঠ শ্রেণি
--  MARKO GOBELJIĆ PRESKOČIO ĆERKIN ROĐENDAN! Katarini Grujić teško: Obećao je! Ne želim u to da ulazim, propalo je sve...(VIDEO)
--  Savitri Jindal Emerges As India’s Fifth-wealthiest Individual With $25 Bn Fortune
--  Nifty And Sensex Scale New Highs, As IT And FMCG Rally
--  투모로우바이투게더, 日 오리콘 연말 결산 차트에 올해 앨범 모두 진입
--  EXID 혜린, 첫 디지털 싱글 '알아주길 바랬어' 발매
--  클라씨, 데뷔 첫 겨울 시즌송 '윈터 블룸' 발매
--  '미스트롯3', 온라인 중계로 제작발표회 진행
--  이채연, '첫 팬미팅' 카라 허영지 스페셜 MC
--  지드래곤, 21일 마약 무혐의 기자회견
--  새 예능 '아파트404' 유재석·차태현·제니, 라인업 공개
--  RM255 juta disalurkan kepada pekebun kecil getah
--  日 장기금리, 0.560%로 5개월 만에 최저 하락…"금융완화 유지로"
--  안보실, 전산망 장애 후속조치 점검…특별점검 결과 내주 발표
--  대통령실, 여야 예산안 합의에 "늦었지만 다행…잘 집행되도록 준비"
--  내년도 예산, 4조2천억 삭감 652조7천억…R&D 6천억↑·새만금과 지역상품 3천억 ↑
--  작년 '억대연봉' 근로자 131만명 돌파…평균 소득 4213만원
--  '중국산 김치 465t 국내산 둔갑'…11억 어치 판매한 업자 송치
--  올해 방산수출 18조원 달성…수출국·무기체계 모두 확대
--  조태열 "한중관계, 한미동맹 못지 않게 중요…발전 길 찾겠다"
--  한미 연합 특수작전 훈련 시행…미 특전사 한반도 전개
--  안보리, '北 ICBM 발사' 회의…외교부 "단호한 대응 필요"
--  10년 이상 소화기 이렇게 처리하세요
--  마음을 사로잡은 신천지 빌립지파 ‘10만 수료식 사진전’ 눈길
--  송기섭 진천군수
--  최재형 보은군수
+-  Küresel piyasalarda pozitiflik hakim
+-  Mauro İcardi'nin bonservisi bile belli! 'Ocak ayında transferi gerçekleşecek' iddiası
+-  Meteoroloji uyardı: Sağanak ve kar o illeri vuracak!
+-  Yarıçıplak halde protesto yaptı!
+-  Pesantren Tebuireng Jombang Masifkan Edukasi Pengelolaan Sampah
+-  Rıza Çalımbay’dan kadro dışı yorumu
+-  Global Times: EUA podem resolver problema no Mar Vermelho se abrirem caminho para o cessar-fogo em Gaza
+-  Rekordne nízke teploty: Sever Číny postihlo extrémne chladné počasie
+-  ANKETA Lidl hodnotí úspešné projekty v roku 2023: Veľký odkaz pre Slovákov!
+-  'Everybody should do this as a hobby': Joanna Gaines's new project preserves nature in its most beautiful form
+-  데뷔전서 '투신' 김재웅 꺾었던 '코브라' 샤밀 가사노프, 한국 선수 또 이길까...오호택과 맞대결
+-  '건강히 돌아오길' 매디슨, 내년 1월 복귀 위해 박차...두바이서 러닝 머신 세션 중
+-  "Key Emoji Means Cocaine": How Drugs Are Sold In Online Gaming Chatrooms
+-  French Couple Lose Court Case Over Rare African Mask Worth $4.6 Million
+-  What to know about abortion policy across the US heading into 2024
+-  Cathie Wood’s Ark Invest Offloads Coinbase (COIN) and Robinhood (HOOD) Shares Amid Rally
+-  Senator Elizabeth Warren Lashes Out At Crypto Firms For Building Lobbying Army
+-  A 360-degree heads-up display view could warn drivers of road obstacles in real time
+-  Kayseri'nin bu geleneksel lezzetini denediniz mi?
+-  Granit Xhaka tells Kai Havertz how to win Arsenal fans round after frank admission
+-  Die Welt endet nicht, wenn du 17 bist – beweist dieser TikTok-Trend
+-  Rodri Sebut Piala Dunia Antarklub Berikan City Jeda untuk Atur Ulang Performa
+-  Razzia wegen Unterstützung palästinensischer Terrorgruppe
+-  2023화랑대기 전국태권도대회 성료
+-  "ศรีสุวรรณ" ร้องสอบ "กรมฝนหลวง" ปมประมูลซื้อเครื่องบิน 1,188 ล้าน
+-  與野, 내년도 예산안 최종 합의…R&D 6천억·새만금 3천억↑
+-  CCTV captures X-Factor star Isaiah Firebrace’s alleged DV attack: court
+-  아크릴, 타슈켄트 공공병원 의료정보시스템 ‘나디아’ 오픈
+-  Japońska spółka po 74 latach wyszła z giełdy
+-  پاکستان بلاک پالیٹکس سے پرہیز کرتا ہے، متوازن تعلقات چاہتے ہیں، آرمی چیف
+-  Москвичам назвали время возвращения снегопадов
+-  츄, 첫 단독 美 투어 성료
+-  용준형, 솔로 신곡 아이튠즈 7개 지역 최상위권
+-  Ile kosztuje funt? Kurs funta do złotego PLN/GBP 20.12.2023
+-  В последней песне «Пухляша из клипа Little Big» нашли пророчество
+-  Психотерапевт предостерегла от совершения нескольких критичных ошибок в браке
+-  В США задержали десятки ворвавшихся протестующих в Капитолии
+-  토트넘, 커리어 마지막까지 손흥민 붙잡는다→'재계약 문제 없을 것' 확신
+-  [현장] 이창용 한은 총재 “유가 불확실성 커…인플레이션 2% 마지막 걸음 쉽지 않아”
+-  토픽·바이오베이코리아·민영크리에이티브, ‘뷰티 라이브 파티 인 서울’ 성황리 종료
+-  "궁금해서 잠을 못 자겠다" 마쓰이 샌디에이고행 보도에 다르빗슈도 설렘 폭발
+-  보령, HK이노엔 ‘케이캡’ 판매권 확보…자사 카나브도 공동판매키로
+-  부다, 모바일쇼핑 플랫폼 ‘포켓팡팡’ 태국 정식 론칭
+-  Bianca Manalo Rob Gomez Issue: Alleged Messages Exposed
+-  '범죄예방 대응·사기 진작'...현장경찰 활성화 TF 논의 속도
+-  Léopold Sédar Senghor, le poète président
+-  Here are most search terms in Google PH for 2023
+-  ارتفاع أسعار الـذهب بالأردن 50 قرشا
+-  صدمات الطفولة تُفاقم الألم المزمن مستقبلاً
+-  كورتوا: لن أشارك في يورو 2024
