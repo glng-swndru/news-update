@@ -1,51 +1,51 @@
 # Latest News
--  Nova Mutum ganha mais de 1,6 mil novas empresas, aponta ministério
--  Tragedija na Primorskem: neznanec do smrti povozil pešca in pobegnil
--  Южный Кавказ дрейфует в Европу?
--  খালেদের ৭ উইকেট, পূর্বাঞ্চলের প্রথম শিরোপা
--  Top Glove plans to turn around by the end of FY2024, says MD
--  اردوی اسرائیل کارمندان دو شفاخانه فعال در شمال غزه را بازداشت کرد
--  6 علامات تكشف عن مقاطع الفيديو المزيفة.. كيف تعرفها؟
--  ظهور هذه العلامة في الرقبة يشير إلى الإصابة بالسكري
--  Magtel diseña un vehículo flotante para medir el impacto de plantas fotovoltaicas en embalses
--  أخبار السعودية.. خطوات نقل المديونية وإعادة جدولة الدعم السكني وأمطار ورياح على هذه المناطق
--  নরম্যান বেল গেডেস মার্ক–১ কম্পিউটারের কভার নকশা করেন
--  Бесими: Со 560 милиони евра од ЕИБ, ЕБОР, ЕУ и ИПА го заокруживме финансирањето на деценискиот проект за изградба на железницата кон Бугарија
--  Μπέττυ Μαγγίρα για Μαρία Κορινθίου: «Δεν με πίκρανε, λατρεύω τα beefs!»
--  Töre: KKTC üniversiteler adası bir ülke
--  Универсальные подарки на Новый год: что можно купить в последний момент
--  NaaS Technology Establishes Strategic Partnership with SHNE to Jointly Build New Energy Market
--  Los detalles del DNU de desregulación del Estado que firmará Javier Milei
--  Slavni Francuz ne skida pogled s 29 godina mlađe cure. Kad je vidite u bikiniju, bit će vam jasno zašto...
--  South Africans prioritise value for money in festive season spending
--  British and US women face two years in Bali jail for 'attacking salon staff during row over prices' - but they claim they were 'held hostage' when they tried to go to a cash machine to fetch money to pay
--  La Selección Gallega absoluta regresa para disputar el XXX Manuel Luaces
--  EU Organic Journey event Dubai toop place on 13th of December 2023
--  EastEnders fans spot a subtle clue that 'CONFIRMS' three Christmas exits ahead of blockbuster festive death episode
--  'Onschuldige' Sanil B. richt zich tot OM in Mallorca-zaak: 'Kunt u 's nachts wel slapen?'
--  Najnovší PRIESKUM ukazuje prekvapivé výsledky: Smer kraľuje aj po protestoch
--  Red Sea crisis: How will it affect global shipping trade?
--  جامعة مصر للمعلوماتية تستضيف فاعليات اليوم الختامي لمؤتمر اليابان- إفريقيا للإلكترونيات
--  Гулҷаҳон Бобосодиқова: “Беҳтарин анъанаҳои оилаи тоҷикиро бояд паҳн кунем”
--  Zara McDermott shows off her incredible figure in a blue bikini in sizzling throwback snap - after undergoing a mystery procedure in hospital
--  New regional bid to help people tackle their maths fears
--  Delivering festive cheer to Airedale Hospital children's ward
--  Как да се храним, за да останем енергични по време на празниците?
--  ৪ দিনের নতুন কর্মসূচি দিলো বিএনপি
--  Folgen der Beschlagnahme von Russland-Beteiligung für OMV überschaubar
--  Paulo Raimundo defende construção e gestão pública para Hospital do Oeste
--  An AI doom calculator can predict when you’ll die – and it’s scarily accurate
--  immobilier ancien : bilan 2023, perspectives 2024
--  ECI Festival 2023 Wuxi: Shaping tomorrow with tech and human values
--  土瓜灣哥登堡餐廳預告結業 老牌「平民扒房」屹立40多年不敵1個原因
--  TeamViewer 15.49.2
--  Why Apple and Goldman Sachs credit card partnership ended
--  البيئة تنفذ البرنامج الثاني بالمرحلة الأولى للعمالة غير المنتظمة في إدارة المخلفات بالمنوفية
--  ‘Oman can work with India in fight against climate change’
--  Better air quality control can improve construction efficiency in SA
--  "Ostatnia wieczerza" w TVP. Wicemarszałek Sejmu czeka na usprawiedliwienia
--  ASRock anuncia placas-mãe NUC Ultra 100 com CPUs Meteor Lake-H
--  محافظة مطروح: استلام 837 كرتونة مواد غذائية لتوزيعها على الأسر الأولى بالرعاية
--  ReversingLabs u novom Gartnerovom izvješću o sigurnosti lanca opskrbe softvera
--  وكالة الطاقة الدولية: الهيدروجين الأخضر يكتسب أهمية سريعة في التحول لاقتصاد خال من الكربون
--  Антоанета Христова: Сложни взаимообвързаности движат в момента политиката и това не е добре
+-  آخرهم يوسف عطال.. رياضيون تعرضوا للهجوم والعقوبات بسبب تعاطفهم مع غزة
+-  انشيلوتي يتحدث عن مواجهة الافيس في الليغا
+-  Son 2 Ayın En Çok Kazandıran Halka Arzı Hangi Şirket Oldu? Son 10 Halka Arzın En Az ve En Çok Kazandıran Hisseleri
+-  Brittany Higgins and her fiancé David Sharaz ditch all-white 'suffragette' colour scheme as they touch down in Paris to start their new life away from the spotlight
+-  Ja Morant shares emotional pre-game messages with his mom that inspired game-winning return to NBA
+-  حماد ، زرتاج گل، فرخ حبیب سمیت روپوش پی ٹی آئی رہنماؤں کی تلاش تیز
+-  Tak wyglądał moment wyłączenia TVP.info. Nagle pojawiła się plansza TVP 1
+-  करीना कपूर-सैफ अली पटौदी पैलेस में मना रहे छुट्टी, देशी नाश्ते के साथ फुल एन्जॉय| Photos
+-  Cotton futures close higher
+-  Inter-Zonal Women Four Games begins in a colourful ceremony
+-  Soybean futures close higher
+-  Meghan, Duchess of Sussex makes brief return to acting as intern in coffee ad
+-  Événement. Camille Etienne, débats, animations… « Ici on agit ! » au cœur de Lyon en mai
+-  Paris. La chanteuse lyonnaise Vitaa cambriolée et séquestrée avec sa famille
+-  Désinfox. La loi immigration a-t-elle vraiment été votée « sans les voix du RN » ?
+-  Circulation. Les routes seront chargées ce week-end : comment éviter les bouchons ?
+-  Loi immigration. Régularisations, quotas migratoires, droit du sol... Que contient le texte ?
+-  Proche Orient. Le chef du Hamas est en Egypte pour des discussions sur une trêve
+-  Politique. Loi immigration : la majorité présidentielle fracturée comme jamais
+-  "Hay responsabilidades que solo pueden asumirse con el A1 y eso buscan"
+-  The twelve greatest rounds in boxing history – iconic Mike Tyson KO, Tyson Fury’s resurrection and Anthony Joshua’s downfall
+-  BYD aims to storm Japan: 30,000 EVs sold annually by 2025 and 100 dealerships
+-  Réckgang vu PIB ëm 1%-Punkt: No liichter Rezessioun gëtt 2024 eng ekonomesch Reprise erwaart
+-  We lost our mother for nothing, Dora Akunyili’s son laments
+-  Emmerdale star Emma Atkins teases Charity Dingle murder twist during Christmas showdown
+-  Winds up to 110 km/h set to hit Northern Netherlands as Storm Pia arrives Thursday
+-  Rockstar Games'in zorlu çalışma koşulları: "Haftada 100 saat mesai yapıyorduk"
+-  Hamas leader visits Egypt amid intensive talks on new ceasefire
+-  خط وسط برشلونة أمام ألميريا بعد غياب بيدري
+-  Ooh prawn cocktail! Hilarious moment amazed Brits try new 'exotic' flavoured crisps for the first time in 1981 BBC archive clip from Esther Rantzen's That's Life
+-  "Plus belle la vie": comment le reboot du feuilleton espère séduire un nouveau public
+-  Roselyne Bachelot va faire une apparition surprise dans "Scènes de ménages"
+-  "Le Comte de Monte-Cristo": première image de Pierre Niney dans la peau d'Edmond Dantès
+-  "Maestro": pourquoi ce film de Bradley Cooper a suscité un débat sur l'antisémitisme à Hollywood
+-  "Une mise à mort": Fanny Ardant prend la défense de son "ami" Gérard Depardieu
+-  Miss France 2024: le créateur de la robe de Miss Lorraine ne s'attendait pas à "autant de méchanceté"
+-  "Det är mycket stora paket"
+-  Studien der WTO: Ein deutscher Apfel ist nicht immer klimafreundlicher als ein Importapfel
+-  Tottenham step up Radu Dragusin transfer chase and are already in talks to hijack Man Utd’s top target
+-  Streit doch noch beigelegt: Ampel einigt sich auf mehr Abschiebungen und schnellere Einbürgerungen
+-  Zustand besser als gedacht: Überraschendes Video von Hamas-Phantom Deif aufgetaucht
+-  Novo zagueiro do Athletico, Gamarra revela superação durante a pandemia: 'Foi muito difícil'
+-  Gabriel Pec lidera Vasco em participações ofensivas em 2023; veja dados:
+-  Veja números e informações de Bruno Rodrigues, novo jogador do Palmeiras
+-  Pasikeitusios oro sąlygos turistų neišgąsdino
+-  Natação: Trio caldense esteve em grande plano em Leiria
+-  Alarm w Śląsku Wrocław. Erik Expósito wysyła bardzo zły sygnał
+-  The surprising detail in Keith Urban's outfit as wife Nicole Kidman towers over him at Expats screening
+-  Valérie Damidot fait une belle déclaration à son compagnon
+-  Ambre (Familles nombreuses) soutient Jennifer (Mariés au premier regard) après des remarques sur son poids
