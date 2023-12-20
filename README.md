@@ -1,51 +1,51 @@
 # Latest News
+-  대입 수시 합격자 등록 마감… 그 결과는?
+-  산림청 '도시숲법' 개정...과도한 가로수 가지치기 안돼
+-  봉화군, 농촌활력분야 평가 우수상 수상!
+-  진천군, 충북혁신도시 정주 여건 개선 박차
+-  충주시, SY그룹·SY행복나눔재단, 연말 사랑의 나눔 실천
+-  Masina/Centre Collège des Ambassadeurs : la police chasse témoins et électeurs à coup de gaz lacrymogène et tirs de sommation
+-  Mbappé celebró su 25 cumpleaños con un doblete
+-  Νέα φέσια 567 εκατ. ευρώ στην Εφορία τον Οκτώβριο
+-  Πληρωμή συντάξεων, επιδομάτων: Τι καταβάλλεται έως την Παρασκευή
+-  Minneapolis in midst of surge in late-year homicides; 5 in recent dayslong span
+-  By: yenibosna eskort
+-  Bayern Munich battle past Wolfsburg 2-1 with Kane on target again
+-  Inmigrantes cubanos se enfrentarán en 2024 a nuevas reglas de migración y asilo de la Unión Europea
+-  السماح باستيراد 10 آلاف طن من أحطاب التدفئة الجافة
+-  We take a look at the Silicon Valley bosses who’ve been properly plucked in 2023
+-  Push for jail time for Kristina Keneally’s police officer son over false evidence
+-  Push for jail time for Kristina Keneally’s police officer son over false evidence
+-  [국제유가] 홍해 지정학적 불안에 3거래일째 상승…WTI 0.38%↑
+-  은행권, '2조원+α' 상생안 마련…취약 차주당 최대 300만원 이자 캐시백
+-  When Jack Johnson won the world title in Sydney
+-  When Jack Johnson won the world title in Sydney
+-  La Superliga, ante el fallo clave: todas las preguntas y respuestas de cara a la sentencia del Tribunal Europeo
+-  Электрогрузовик на одних солнечных батареях поднялся на самый высокий вулкан
+-  Confirma Sheinbaum el tren Monterrey-Nuevo Laredo
+-  عاجل.. طريقة ورابط الاستعلام عن أهلية الدفعة 74 من حساب المواطن
+-  مستشفى الملك فيصل التخصصي يعلن عن 130 وظيفة شاغرة
+-  مسؤول مجري يصدم أوكرانيا بشأن الانضمام الأوروبي: يدمرون اقتصادنا
+-  بعد سنوات من العلاقات المتوترة .. إطلاح سراح حليف رئيس فنزويلا مقابل 10 أمريكيين
+-  Alabama backup QB Tyler Buchner heading back to Notre Dame for lacrosse, degree
+-  Late-stage cancer diagnoses hit 100,000 to leave England trailing Europe in survival rates
+-  김정은 "적 핵 도발하면 주저없이 핵 공격 불사"
+-  Woman, 72, Uses Shovel to Chase Naked Intruder From Her Vancouver Home, Police Say
+-  '고딩엄빠4' 개인 회생 상황에도 택시비 4만원 "말이 되냐" 격분
+-  Mercato: le PSG annonce la prolongation de Kimpembe, malgré sa blessure
+-  Tucumán: hartos, los vecinos lincharon a dos motochorros que robaron en la puerta de un sanatorio
+-  Joe Bennett and Alex Gorrin hoping to get longer deal at Oxford United
+-  Oxfordshire youth cup to be named after Micky Lewis
 -  FETÖ'ye dev operasyon: 5 tutuklu
+-  Katana Chance & Kayden Carter On Their WWE Women’s Tag Team Title Win, Journey As a Team
+-  Benítez: "Estoy decepcionado de lo que hemos hecho en el primer tiempo"
+-  부천·횡성·영동·고흥, 일자리연계형 지원주택 570가구 공급
+-  Castilla y León premiará tesis universitarias que «deslegitimen» el terrorismo
+-  Ritüel ne demek? Ritüel yapmak günah mı? Ritüel nedir, nasıl yapılır?
 -  Mayoría de incendios en diciembre son por el árbol navideño ¿lo cubre un seguro?
 -  Suomi saa frisbeegolfin MM-kisat
--  Изтеглиха жребия за полуфиналите на Карабао Къп
--  Faye Winter claims she looked like a dead FISH on Love Island before getting her fillers dissolved as she competes on Celebrity MasterChef
--  소셜벤처기업 2,448개사…절반 이상이 7년 이내 창업기업
--  Saint-Louis : une tentative de migration clandestine déjouée par les gendarmes
--  Saint-Louis : l’édition 2024 des classes « formation école-entreprise » lancée
--  Mali skromné začiatky: Prvé autá celebrít vás PREKVAPIA!
--  Acteurs communautaires, reprenez le pouvoir
--  ما حقيقة طلاق تيم حسن ووفاء الكيلاني
--  Qualifications announced for ABC News' New Hampshire Republican debate
--  Brief closure of pool Thursday morning
--  Grandi sfide, lavoro di squadra e sviluppo dei partner e della comunità IT
--  철원 임남 -24.7도 강원 '엄동설한'… 내일까지 전국 눈
--  '최강 한파' 중대본 2단계… 대설 위기경보 '경계' 상향
--  Migrants are being held for days at a time at Eagle Pass are seen passing out as THOUSANDS crowd into makeshift pen with no roof over their heads because ALL Border Patrol facilities in Texas are at capacity
--  Patrick Mahomes buys Kansas City Chiefs ENTIRE offensive line golf carts for Christmas... as team linebacker Willie Gay hilariously admits he's jealous and wants to switch positions!
--  Aprovado projeto que viabiliza novas obras em Osasco
--  7 Overlooked Growth Stocks Gearing Up for 10X Gains
--  10 Tokoh Indonesia Paling Dicari di Google Sepanjang Tahun 2023, Ada Aaliyah Massaid
--  „Este doar începutul”: Republica Moldova primește un radar de apărare aeriană din Franța
--  "NE VOLIM STARU KOŽU, LJUBAVNIK BI MORAO DA IMA 20!" Ljubavni život Džejn Fonde (86) bio je pravi ROLERKOSTER
--  Biden afviste at kommentere Trumps nederlag i Colorado. Men så ombestemte han sig
--  Hamas says it will not free any more hostages until Israel ends its war in Palestine ahead of ceasefire talks in Cairo
--  دراسة: التنفس العميق أثناء النوم يعزز الذاكرة
--  وزير قطاع الأعمال: الفترة المقبلة تشهد استثمارات كثيرة في مجال الدواء
--  مصرع فتاة أسفل عجلات القطار في بني سويف
--  لجنة المصالحات بالأزهر تنجح في إنهاء خصومة ثأرية بين عائلتين بالقاهرة
--  How to Watch ‘The Simpsons’ Online: The Animated Series Is Now Streaming for Free
--  Densus 88 Ungkap Modus Pendanaan Terorisme 2023: Kripto hingga Fundraising
--  Hartman kijkt terug op 2023: 'Heel veel spelers zijn beter geworden, waaronder ik'
--  Balanza comercial agroalimentaria presentó superávit de 6 mil 270 mdd
--  [오늘의 증시 리포트] “종근당, 더 이상 저평가 받을 이유가 없다”
--  Apple Fails To Delay ITC Ban Of Apple Watch Series 9 And Ultra 2
--  Trump : ట్రంప్‌పై అనర్హత వేటు
--  Giants great Tiki Barber admits to being left in complete shock by former teammate Derrick Ward's arrest for alleged robberies earlier this week: 'I feel like he got his life right'
--  انطلاق الانتخابات الرئاسية والبرلمانية والمحلية في الكونغو الديمقراطية
--  محافظ جدة يستقبل أبطال الألعاب السعودية 2023
--  Cara Menebalkan Teks di iPhone
--  Detienen a 2 acusados de robar en Parral
--  Thais Fersoza relembra término de namoro com Bruno Gagliasso: 'Foi se desfazendo'
--  Horoskop za 21. decembar: Bik oseća grižu savesti, Rak teško prihvata poraz, ovaj znak neka izbegava loše navike
--  Membrey ready to return to best
--  García Ortiz cincela el muro
--  Newlyweds Greta Gerwig and husband Noah Baumbach hold hands in NYC as they are seen for the first time since tying the knot
--  Two stranded dolphins rescued in one day on Cape Cod
--  Real-life 'Home Alone' incidents – from machete attack to case that changed the law
--  Margrethe Vestager fortsætter gerne som EU-kommissær
--  Fyrverkeriattacker i Malmö – en till sjukhus
+-  Latin America Can Boost Economic Growth by Reducing Crime — Global Issues
+-  Valverde: "Ha sido un gol de coraje""
+-  غينيا بيساو: مرسوم رئاسي بتعيين وزيرا أول جديد
+-  Congress expands scope of Harvard investigation to include allegations of president's plagiarism
+-  Liverpool pobijedio West Ham i plasirao se u polufinale EFL Cupa
