@@ -1,51 +1,11 @@
 # Latest News
--  Presidente eleito, Augusto Melo admite saída de Moscardo do Corinthians: "Está caminhando para isso"
--  Durante férias do Flamengo, Tite realiza cirurgia no joelho
--  Carille relembra briga com Dracena e justifica retorno ao Santos: "Projeto me encantou"
--  İstanbullular Sultan Abdülmecid'in hayalini tercih ediyor
--  Bakan Kacır, Çin'de temaslarda bulunuyor
--  Miguel Crespo: Önce Kayserispor sonra derbi
--  Lavrov: Halkın acıları İsrail'in ablukası sonucu ağırlaşıyor
--  Bu bir ilk! Uzayın derinliklerinden Dünya'ya gönderildi
--  Donald Trump: Warum das Colorado-Urteil seine Kandidatur nicht stoppen wird
--  Wenige Investitionen geplant: Südergellersen beschließt den Haushalt
--  Qué es la lluvia engelante que ha causado multiples accidentes de tráfico hoy
--  Kako odabrati savršen krevet i madrac za zdrav san?
--  Stručnjaci upozoravaju, uzimanje ovih dodataka hrani je besmisleno: Neki čak i štete zdravlju
--  Bármikor zárolhatja a már feloldott uniós forrásokat az Európai Bizottság
--  「はやぶさ３」２４年１月２０日就航 青函フェリーウェブ予約限定割引も
--  APPSC Group 2 Notification 2023: Registration begins tomorrow for 897 posts
--  Ganjar Tanggapi Dukungan Jusuf Kalla ke Anies-Muhaimin: Sejak Dulu Sudah Terlihat
--  Tenía Chihuahua 'adicción' a deuda de corto plazo
--  Comisión Permanente a sesión este miercoles
--  تشافي في حيرة قبل ساعات من مواجهة ألميريا
--  Kirli Sepeti 13. bölüm fragmanı yayınlandı mı? Kirli Sepeti yeni bölüm ne zaman?
--  Jovem faz leilão da própria virgindade e maior lance chega a R$6,3 milhões
--  Implats Mine sit-in turns into a hostage situation
--  $3.8 Billion Dollar - Privé Black Label - Off Market Private European Property Portfolio
--  YS Biopharma Co., Ltd. to Hold Extraordinary General Meeting on December 28, 2023
--  Seeq Awarded Frost & Sullivan's 2023 Global Market Leadership Award for Industrial Analytics
--  Dx&Vx co-develops a bio-healthcare big data platform with LG CNS
--  مفاجأة تشافي في مباراة ألميريا!
--  ‘If your mind is Italian you won't…’: Amit Shah takes a dig at Gandhi family
--  Exclusivo J10: Amoroso vê bom ano do São Paulo e sugere Cavani como reforço
--  Vasco faz acordo com credora e reparcela dívida por Lucas Piton
--  (Video) Joven visita cementerio y le cuenta a su abuelo que ya se graduó: 'Para ti'
--  PlayStation 5, 50 milyon adet satışa ulaştı
--  El permiso de ocho semanas para la crianza de los hijos será remunerado
--  Kabardıkça kabaran vişneli muffin tarifi! Görümceniz tarifi için size yağ çekecek: Her ısırığı mest ediyor
--  Video: Marshmello y Fuerza Regida sorprenden con su primera colaboración; así suena
--  İngiltere'deki doktorlardan 3 günlük grev
--  Thousands receive offer letters at rural job mela in Chandragiri
--  Ørsted skal opføre verdens største havvindmøllepark i Storbritannien
--  Ørsted skal opføre verdens største havvindmøllepark i Storbritannien
--  Anthony, Combs, Bryan and Wilson: Country Was on a Roll in 2023 — Can It Stay Hot?
--  Şanlıurfa’da pamuk yüklü kamyon alev aldı
--  В Минкульте рассказали, куда можно сходить с ребенком на новогодних праздниках
--  Woman posed as a man to con partner into having sex with her
--  ATINA ILI LISABON Dva evropska bisera za nezaboravan doček nove 2024. godine uz popuste do 100 evra
--  Bursaspor - Diyarbekirspor maçında olay çıktı! Uçak tekmelerin bile olduğu mücadelede 5 kırmızı kart aynı anda çıktı
--  شبهات فساد وهدر للمال في شركة نفط البصرة
--  Odbor za bezbjednost sjutra razmatra prošlogodišnje izvještaje
--  Nicole Kidman Gets Keith Urban's Support at 'Expats' Screening!
--  Orlando Pirates star set to sign bumper new deal
+-  Maharashtra CM Shinde avoided speaking on Vidarbha in House, claims opposition
+-  Maharashtra legislative council clears bill regulating bovine breeding
+-  Wacky Wednesday: Twinkle Khanna left audience in splits when she revealed...
+-  Lenovo predstavio prijenosna računala s Intel Core Ultra procesorima
+-  Skiljebos tunga smäll – tappar nyckelspelaren
+-  Skiljebos tunga smäll – tappar nyckelspelaren
+-  Konya'da iki grup arasında çıkan silahlı kavgayla ilgili 2 şüpheli tutuklandı
+-  Çalışan emekli için 5 bin TL ikramiyede tarih belli oldu
+-  احذر هذه الأعراض.. نجاة امرأة من ورم في المخ بعد تشخيصها بالاكتئاب
+-  شكري يبحث مع لافروف التعاون الثنائي والقضية الفلسطينية
