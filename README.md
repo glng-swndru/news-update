@@ -1,11 +1,51 @@
 # Latest News
--  Maharashtra Assembly winter session concludes, next session from Feb 26
--  Equinox crowned world’s greatest horse as he adds another award to the trophy cabinet
--  BVB in der Krise: Wie es bei Borussia Dortmund nun weitergeht
--  Uber i Bolt będą płaciły wyższe stawki kierowcom we Francji. Na horyzoncie przepisy UE
--  S&P Global Ratings planuje w '24 dwa przeglądy ratingu Polski
--  BE arrin marrëveshje “historike” për reformimin e ligjeve të azilit
--  Why Do People Keep Calling Me “Tomás”?
--  Nienburg: Diese Kneipen haben an Heiligabend geöffnet
--  Ermittlungen nach Vorfall mit Chrupalla eingestellt
--  EpiVax Licenses ISPRI Toolkit to Eisai for Preclinical in silico Immunogenicity Screening
+-  Opel’de yılın son ayında, seçili modellerde yeni fiyat listesi...
+-  Nieoczekiwany wzrost sprzedaży domów w USA
+-  VIDEO: Kao da je svjetska zvijezda – Sudac u Turskoj uz policiju ispraćen s terena
+-  Soccerladuma | Griezmann Makes Big Greenwood Admission
+-  Descubra as belezas naturais e culturais das Ilhas Maurício
+-  Teleexpress nie wyruszył. Co z Wiadomościami? Nowi ludzie od informacji już w TVP
+-  الوداد يشكو الحكم الغابوني للكاف
+-  파운드리 0%, 모바일 75%...삼성전자 성과급 희비 엇갈려
+-  الوطنية لحقوق الإنسـان في ليبيا تطالب بضمان حق التقاضي
+-  Kylie Jenner Pakai Filter Justin Bieber, Kumisan Tapi Bahagia
+-  Jeepney groups seek SC’s TRO vs orders for PUVMP
+-  Face au projet du Contournement ouest de Nîmes, un collectif pour la transformation des mobilités voit le jour
+-  Billy Joel’s Daughters Della, 8, and Remy, 6, Join Him On Stage at MSG for Christmas Song
+-  Solana sbarca anche su Trezor | $SOL continua a volare
+-  Air India Delhi-Mumbai flight reports engine fire warning, issue Mayday call
+-  Beckham nasmejal internet z vajo, ki mu pri posteljnih aktivnostih lahko pride prav (VIDEO)
+-  مذيع الجزيرة يحتمي من قصف مرعب هز محيط المستشفى الكويتي على الهواء
+-  El Observatorio de Ceuta y Melilla, a profundizar en los informes de 2023
+-  Vilhjálmur prins sagður vera hænuhaus
+-  Con este WD Black SSD de 2 TB compatible con PS5 no tendrás problemas para tener más juegos en tu consola
+-  Ruim 8.000 kinderschoenen om aandacht te vragen voor overleden Palestijnse kinderen
+-  «Ha sido imprevisto, pero bienvenido», dice Marta Carazo sobre su llegada al 'Telediario 2'
+-  «Ha sido imprevisto, pero bienvenido», dice Marta Carazo sobre su llegada al 'Telediario 2'
+-  غرفة العمليات تحرم برشلونة من نجم جديد
+-  نجم ريال مدريد ينضم لطابور المصابين
+-  مغير السرحان يحبط السلط - فيديو
+-  Santiago Giménez es nombrado el Hombre del Año en los Países Bajos
+-  El Gordo: Spain’s Legendary Christmas Lottery Tradition
+-  শ্বশুরবাড়ির লোকজনের দেওয়া আগুনে দগ্ধ রেবেকা পাঁচ দিন লড়াই করে মারা গেলেন
+-  Szpital miejski rozpoczął operacje robotem da Vinci
+-  EU-komissio ehdottaa suden suojeluasemaan muutosta – metsästäjät iloitsivat heti
+-  Mãe de recém-nascido encontrado dentro de sacola em terreno de Chapecó presta depoimento
+-  El PP solicitará en el pleno un acuerdo para completar la avenida Comunidad Europea
+-  KRÖNIKA: Oscarsson och Halldorf är lika tvärsäkert svartvita
+-  ”Min far hade den här enorma kraften att skapa sitt liv”
+-  Dojučerašnji fudbaler Borca se objavom na Instagramu oprostio od banjalučkog kluba
+-  Change the inferior bitumen, repair worst ‘bleeding’ sites urgently
+-  Filet Wellington im Miniformat ist das perfekte Fingerfood für besondere Anlässe
+-  Change the inferior bitumen, repair worst ‘bleeding’ sites urgently
+-  Heart transplant survivor climbs the Andes
+-  What's on in Gisborne over the festive season?
+-  SWERTRES RESULT Today, Thursday, December 21, 2023
+-  Nice – Lens : à quelle heure et sur quelle chaîne suivre le match ?
+-  Fitch ratings rassure : Les banques marocaines sont résilientes
+-  Virudhunagar Collector inspects affected areas
+-  Estudo de Harvard aponta quanto dinheiro você precisa para “ser feliz”
+-  Ford Is The Most Recalled Brand In America For 2023 And It's Not Even Close
+-  FCT-IRS Targets N500bn Annual Revenue Benchmark Within 4 Years
+-  Κηφισιά: Χωρίς Ιπαλίμπο αλλά με Πέιο κόντρα στον ΠΑΟΚ
+-  Soraya Arnelas vuelve a estar embarazada a los 42 años
