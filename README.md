@@ -1,11 +1,11 @@
 # Latest News
--  CAN Côte d'Ivoire 2023 : « Je connais les joueurs que j'ai retenus par cœur », déclare Hubert Vélud
--  Antimicrobial resistance leads to more deaths and illnesses in the WHO African region than anywhere else: Study
--  Study suggests domestication of dogs led to darker irises
--  तीन साल से ज्यादा नहीं चलेगा कोई मुकदमा, खत्म होगा देशद्रोह कानून, अंग्रेजों के जमाने से इतने अलग हैं नए कानून
--  Economía cubana estima una contracción en 2023, según proyecciones
--  Town overcomes setbacks to welcome flood evacuees
--  Chris Jordan in awe of WA's special talent Aaron Hardie
--  Neymar no jugará la Copa América 2024 por lesión: ¿Qué tiene y cuándo volverá?
--  The S&P 500 could tumble 20% this spring — then surge to a record high by the end of 2024, strategist says
--  Another Nepali in Russian Army dies, four captive in Ukraine
+-  Destaca gran concurrencia en feria de ambulantes en el Centro
+-  Muestra Mariana Rodríguez INE con residencia en Monterrey
+-  Habrá premios por pago a tiempo de predial en Parral
+-  Derrama económica por turismo superará los 16 mil mdp en 2023
+-  Pedirá asilo en México ex Vicepresidente ecuatoriano
+-  Českému expremiérovi Nečasovi súd potvrdil podmienečný trest za trafiky pre poslancov
+-  Turista na dovolenke stratil telefón: Vypísal naň odmenu dva milióny! Dodržal slovo a vyplatil ich nálezcovi
+-  Návrh rozpočtu neprináša potrebnú konsolidáciu, ale nárast dlhu, uviedol Michal Šimečka
+-  Padol rozsudok: Renáta D. je vinná z ohrozovania mravnej výchovy mládeže, dostala podmienku
+-  Пригожин считает, что Загитовой не нужно обращать внимание на негативные комментарии
