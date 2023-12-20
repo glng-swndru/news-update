@@ -1,51 +1,51 @@
 # Latest News
--  과기정통부, 내년도 사이버보안 인재양성 20% 증액한다
--  주니퍼네트웍스, 아리랑국제방송 네트워크 인프라 구축
--  콘진원 “수출 다변화·단계별 지원으로 K-게임 해외 경쟁력 강화”
--  콘진원, 내년 예산 6124억…게임 29억 증액
--  16세 천재 바둑소녀 김은지, 최연소·최단기 ‘9단’ 등극
--  Lidl: Öffnungszeiten an Heiligabend geändert – wann du beim Discounter einkaufen kannst
--  Bürgergeld-Empfänger macht Praktikum: Fazit nach einer Woche ist eindeutig
--  이주승 '앙증 꽃받침'
--  이주승 '시골 경찰'
--  장동윤-이재준, 씨름에 진심
--  김보라, 사슴 눈망울
--  Korean, Chinese business leaders to cooperate on stabilizing parts, materials supply chain
--  EcoPro to set up foundation to revitalize provincial areas
--  Selm verbietet das Füttern von Enten an Burg Botzlar: Tiere können sterben
--  우즈, 내년 1월 19일 피날레 콘서트 개최
--  Наполи получи звучен шамар от Фрозиноне за Купата на Италия - Труд
--  Markus Lanz wird in ZDF-Show emotional – „Mir tut das in der Seele weh“
--  “사실상 공짜폰, 카메라는 괜찮네”… ‘미친 가성비’ 갤S23 FE 써보니
--  홍천군여성자율방범대 성품 기탁
--  도교육청유아교육원, 2023 교원 인성 연수
--  임주영 소방관 우수 구급대원 선정
--  서울대 시스템면역의학연구소 의과학캠프
--  국민 4명 중 1명꼴 갑질 경험…직장 내 갑질 최다
--  올해 트렌드 '일본여행·절약사회·내돈편살·도파민양극화'
--  강원중기청 횡성 아카데미안경원 백년가게 현판 제막식
--  강원중기청 정선 여량양조장 백년가게 현판 제막식
--  ലക്ഷങ്ങൾ കൊടുത്ത് ലേബർ വീസയിൽ സൗദിയിൽ; 'ചതിക്കപ്പെട്ടത്' അറിഞ്ഞത് മൂന്ന് മാസത്തിന് ശേഷം, 11 മലയാളികൾ 'രക്ഷപ്പെട്ട്' നാട്ടിൽ
--  [MD포토] 이주승 '훈훈한 인사'
--  [MD포토] 장동윤·이주명 '성장 로맨스 함께해요'
--  엘라스트, 日 단콘 '투 네버랜드' 안방 1열서 본다
--  [MD포토] 장동윤 '이재준, 한 판 붙어보자'
--  [MD포토] 김보라 '시선을 사로잡는 시스루룩'
--  [MD포토] 성장 로맨스 '모래에도 꽃이 핀다' 함께해요
--  [MD포토] 김보라 '포즈 만큼 사랑스러운 미모'
--  [MD포토] 김보라 '예쁜 꽃 피었어요'
--  "14kg 증량→매일 훈련" 씨름선수 된 장동윤, 성장통 그린 '모래꽃'으로 전할 감동 [MD현장](종합)
--  'X-MAS, 케빈 아닌 LG와 함께' 홈 3연전 이벤트 개최...에디션 유니폼 200벌 한정 판매
--  김보라 '망사 치마에 고스란히 드러낸 다리 라인' [한혁승의 포톡]
--  드레스코드 몰라…장동윤, '인간 모래판' 된 심경 "좀 불편하네요" [MD현장]
--  Дрозденко поздравил сотрудников органов безопасности РФ с праздником
--  IND vs SA: दूसरे वनडे में दक्षिण अफ्रीका ने भारत को 8 विकेट से हराया, सीरीज 1-1 से बराबर
--  സാരിയിൽ അതിമനോഹരിയായി ആലിയ ഭട്ട്, ‘ഇത് വല്ലാത്തൊരു സ്റ്റൈലായിപ്പോയി’; ഹെയർസ്റ്റൈലിന് വിമർശനം
--  Dpa-AFX Börsentag auf einen Blick: Hoffnung auf kleine Weihnachtsrally
--  Лжетеррористы атаковали сразу 5 школ в Кондопоге
--  В Росреестре сообщили, что число ипотечных сделок в Москве за ноябрь уменьшилось на 10,2%
--  Demokrasi, semak imbang tetap dijamin tanpa pilihan raya PBT
--  IND vs SA: सेंट जॉर्ज पार्क में छठी बार हारा भारत, साउथ अफ्रीका ने बनाया ये अहम रिकॉर्ड
--  [오늘의 앵커픽] 여야, 내년도 예산안 합의…내일 본회의 처리 外
--  Morning Briefing International
--  Известный YouTube-блогер выстрелил себе в лицо из гранатомета-ФОТО -ВИДЕО
+-  Šnekos atpažinimo technologijos: ar namų asistentai prabils lietuviškai?
+-  Putinas skelbia Ukrainai naujas sąlygas dėl derybų
+-  Rusai puola Krynkus. ISW skelbia apie pažangą
+-  „Ukrainai būtina užšaldyti karą ir pavadinti tai „pergale“
+-  Jei įmesite moliūgą į vandenyną, ar jis sprogs tam tikrame gylyje. Atsakymas paprastas (Video)
+-  [ŽT] „Mes tavęs ten nesiuntėm!“ Rusai žiauriai „atsidėkojo“ iš fronto grįžusiam tautiečiui (Video)
+-  Festival de Carcassonne 2024 : Status Quo, IAM... rejoignent la programmation
+-  লিবরা ইনফিউশন স্পট মার্কেটে যাচ্ছে বৃহস্পতিবার
+-  Dolar, rekor seviyede yükselişini sürdürüyor: Gözler yarınki Merkez Bankası kararında
+-  45 bin TL'ye 'çürük raporu'na operasyon: Hastane yöneticileri de gözaltında
+-  Kako nas varaju: Ove vrste voća i povrća morate uvijek, ali baš uvijek, vagati prije kupovine
+-  İstanbul için kötü haberler peşpeşe! Bir ile daha uyarı geldi: Hazırlıksız yakalananın hali duman olacak
+-  رئيس "برلمانية التجمع": المجتمع الدولي تخاذل في حل أزمة سد النهضة
+-  제31회 거창겨울연극제 폐막, 거창 북상초교 대상
+-  “Yaşma”dan qorxan general İrəvanda hərbi çevriliş hazırlayır
+-  Sjećate li se Marije i Marija? Pobijedili su u 'Superparu', a sada nemaju ni zajedničku fotku
+-  Italian religious statue stolen in 2014 returned to Italy from the Netherlands
+-  몬스타기어, 카오세라의 신작 스위치 ‘큐피드’ 출시
+-  웨스턴디지털, 전문가 위한 샌디스크 프로페셔널/샌디스크 신제품 국내 출시
+-  에이스프로젝트, '9UP 프로야구'에 23년도 선수 신규 추가
+-  LG전자, 4K@240Hz / FHD@480Hz 동시 구현한 OLED 게이밍 모니터 공개
+-  Exclusive : ‘चेन्नई एक्सप्रेस’ के थंगबली बने रावण, अरविंद त्रिवेदी से तुलना पर बोले- जो राम जी चाहें वही होगा
+-  Život pored termoelektrane u Tuzli: ‘Ovde je normalno ako dođeš do pedesete i onda umreš’
+-  Sähköverkkoyhtiöt valmistautuvat hintojen halpuuttamiseen – Leppäkoski aloitti osakeannin
+-  ধ্বনির উচ্চারণ ও ‘চিঠি বিলি’ ছড়া : দ্বিতীয় অধ্যায় | বাংলা - ষষ্ঠ শ্রেণি
+-  MARKO GOBELJIĆ PRESKOČIO ĆERKIN ROĐENDAN! Katarini Grujić teško: Obećao je! Ne želim u to da ulazim, propalo je sve...(VIDEO)
+-  Savitri Jindal Emerges As India’s Fifth-wealthiest Individual With $25 Bn Fortune
+-  Nifty And Sensex Scale New Highs, As IT And FMCG Rally
+-  투모로우바이투게더, 日 오리콘 연말 결산 차트에 올해 앨범 모두 진입
+-  EXID 혜린, 첫 디지털 싱글 '알아주길 바랬어' 발매
+-  클라씨, 데뷔 첫 겨울 시즌송 '윈터 블룸' 발매
+-  '미스트롯3', 온라인 중계로 제작발표회 진행
+-  이채연, '첫 팬미팅' 카라 허영지 스페셜 MC
+-  지드래곤, 21일 마약 무혐의 기자회견
+-  새 예능 '아파트404' 유재석·차태현·제니, 라인업 공개
+-  RM255 juta disalurkan kepada pekebun kecil getah
+-  日 장기금리, 0.560%로 5개월 만에 최저 하락…"금융완화 유지로"
+-  안보실, 전산망 장애 후속조치 점검…특별점검 결과 내주 발표
+-  대통령실, 여야 예산안 합의에 "늦었지만 다행…잘 집행되도록 준비"
+-  내년도 예산, 4조2천억 삭감 652조7천억…R&D 6천억↑·새만금과 지역상품 3천억 ↑
+-  작년 '억대연봉' 근로자 131만명 돌파…평균 소득 4213만원
+-  '중국산 김치 465t 국내산 둔갑'…11억 어치 판매한 업자 송치
+-  올해 방산수출 18조원 달성…수출국·무기체계 모두 확대
+-  조태열 "한중관계, 한미동맹 못지 않게 중요…발전 길 찾겠다"
+-  한미 연합 특수작전 훈련 시행…미 특전사 한반도 전개
+-  안보리, '北 ICBM 발사' 회의…외교부 "단호한 대응 필요"
+-  10년 이상 소화기 이렇게 처리하세요
+-  마음을 사로잡은 신천지 빌립지파 ‘10만 수료식 사진전’ 눈길
+-  송기섭 진천군수
+-  최재형 보은군수
