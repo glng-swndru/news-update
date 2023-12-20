@@ -1,51 +1,11 @@
 # Latest News
--  “115년 만 공급된 수돗물 인천 섬 소식 검색하니 연합뉴스 기사만 나온다”
--  업스테이지, AI사업단과 GPU 장비 활용 MOU 체결
--  바이브컴퍼니-NHN데이터, ‘세상의 취향 2023’ 리포트 공개
--  KOSA, ‘2023 글로벌 시장 진출 오픈세미나’ 개최
--  메가존소프트, 알리바바 클라우드 국내 데이터센터 할인 프로모션 진행
--  오나인솔루션즈, 파스타 제조 식품기업 바릴라에 통합 계획 기능 구축
--  AWS, 상하이자동차 스마트 커넥티드 차량 플랫폼 개발·확산 지원
--  네이버, 설문 플랫폼 ‘네이버 폼’ 베타 출시
--  두들린 이태규 대표, 중소벤처기업부 장관 표창 수상
--  SKT-코레일, 통신 빅데이터 기반 광역철도 혼잡도 서비스 제공 협력
--  KT, 성탄절·연말연시 대비 통신망 집중 관리 체제 운영
--  티맥스메타버스-KT그룹 주스, ‘시청각 융합’ 메타버스 플랫폼 마련 협력
--  포자랩스, 인공지능 학회 AAAI서 데이터셋 연구 논문 채택
--  SK브로드밴드, Btv에 AI 대거 접목…차세대 초개인화 IPTV 서비스 지원
--  เพจดังทิ้งปม ดาราสาว ลบรูป-คลิปคู่ ลั่น เรื่องเดียวที่ถอย คือเรื่องผู้หญิง !?
--  İstanbulspor'un Trabzonspor maçında sahadan çekilmesinin ardından çok sert yorum! "Bu oyunun katilisiniz... Bu lig nasıl bitecek?"
--  Asuntolainakatto palautetaan taas 90 prosenttiin
--  इस एग रोल का लाजवाब स्वाद, खास तरीके से होता है तैयार, लोग हैं इसके दीवाने,
--  Director Venkatesh Maha deletes Twitter post backlash over support to Dunki
--  Путин: Очаквайте твърд отговор
--  Saldırıya uğrayan Halil Umut Meler'den Emre Belözoğlu'na suçlama
--  İstanbul'da iş yerinde çıkan ve üst katlara sıçrayan yangında 1 kişi öldü, 5 kişi yaralandı
--  Afyonkarahisar'da 4 kişinin katledildiği olayda acı detay
--  Spencer Matthews explains reason behind his sudden weight loss after sparking concern
--  Kidnapped British millionaire is RESCUED in Ecuador: Police say he is 'safe and healthy' as nine crooks are arrested in raid
--  Kidnapped British millionaire is RESCUED in Ecuador: Police say he is 'safe and healthy' as nine crooks are arrested in raid
--  How the markets and the economy surprised investors and economists in 2023, by the numbers
--  From AI and inflation to Elon Musk and Taylor Swift, the business stories that dominated 2023
--  DreameBot D10s Robot süpürge ve paspas
--  İsmail Kartal maç öncesi son kez uyardı: Derbiyi kafanızdan silin
--  İstanbul'da korkunç yangın! 1 kişi öldü, 5 kişi yaralandı
--  Samsunspor'un rakibi Konyaspor
--  İsrail'in "yanlışlıkla" öldürdüğü esirin babasından Netanyahu hükümetine eleştiri: Oğlumu iki kez öldürdünüz
--  Uluslararası Polis Teşkilatı'nın "acil yakalama mesajı" ile aradığı Rus şüpheli Türkiye'de yakalandı
--  2024'te alınacak personele ilişkin detaylar belli oldu
--  Kartal'a İngiltere'den kiralık golcü
--  İstanbul'da aranan 822 zanlı yakalandı
--  "ערים בלילות ובוכים בימים": אביב גפן הוציא שיר עם מיאה ליימברג ששוחררה מהשבי
--  חזר לחופשי: כוס חורבות שנפצע בתאונת דרכים שוחרר לטבע
--  Nio electric car achieves more than 1,000km on a single charge
--  LF푸드 모노마트, 외식 소상공인 홍보 지원사격
--  메가존소프트, 알리바바클라우드 한국 데이터센터 할인 프로모션 진행
--  시큐리온 OnAV, 31번째 AV-TEST 인증 획득… 2023년 평가 탐지율 100%
--  F5, 다수 IT 어워드서 수상… “일관된 노력 인정받은 결과”
--  The Bachelors Recap: Could This Satisfying Grand Finale Potentially Save The Entire Franchise?
--  Shoppers go wild for £1.99 chocolate selection box still on the shelves at Home Bargains
--  Sadikin Aksa Akui Pernah Ketemu Perwakilan Amran Sulaiman, Bahas Soal Masalah Ini
--  «Faire semblant de rigoler pendant deux jours, c'est absurde!» : comment les entreprises se trompent sur les effets du team building
--  Inside Rangers hero’s life-changing surgery hours before Luton’s Tom Lockyer collapsed – an accidental fall saved him
--  Det er rendyrket snobberi, når borgmestre vil ændre københavnske julemarkeder
+-  Osvrt na roman »Četiri lakta unutra« Eve Simčić: Debitantski iskorak mlade riječke književnice
+-  «Масъуллар чипта билан боғлиқ муаммоларни ҳал қилиш имконсизлиги ҳақида асоссиз баёнот берган» – сенатор.
+-  Тошкентда талабалар ўртасида интеллектуал олимпиада бўлиб ўтяпти.
+-  İstanbulspor'dan Açıklama Geldi
+-  PM Modi responds to US assassination plot allegations, downplays ramifications
+-  Ucapan Terima Kasih Agatha Pricilla kepada Ibunda Lewat Lagu Sampai Nanti
+-  Hızla Yayılıyor! Dünya Sağlık Örgütü Alarma Geçti!
+-  Hellenic Cables: Ηλεκτροδοτήθηκε υπεράκτιο αιολικό πάρκο στην Νέα Υόρκη– Η ελληνική υπογραφή στις ΗΠΑ
+-  Maganda kurşunu 11 yaşındaki kızın boynuna isabet etti!
+-  Konya Büyükşehir, 31 ilçede 300'den fazla yerleşim yerine içme suyu kaynağı sağladı
