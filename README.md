@@ -1,51 +1,51 @@
 # Latest News
--  İYİ Parti'de istifa depremi!
--  Rıza Çalımbay'dan geleceği için açıklama!
--  Soccerladuma | Official: EPL Side Appoints New Manager
--  Diese Wahlbezirke sind betroffen: Wo die Bundestagswahl in Berlin wiederholt wird
--  南科前10月營業額逾1.2兆 再創新高
--  Property where Jill Barclay was murdered to be ‘refurbished’ as community campaign to buy it fails
--  נלי תגר נגד איתמר בן גביר: "העבריין הבריון, מעריץ רוצחים"
--  Deficit plánuje vláda v budúcom roku znížiť na 5,97 % HDP, tvrdí Kamenický
--  Viaceré budovy UNB, UNLP aj internát UK sa majú zrekonštruovať
--  Návrh štátneho rozpočtu podľa Najvyššieho kontrolného úradu podporuje ekonomický rast
--  RECENZIA Nová japonská Godzilla je výborná: Do kín dorazila lahôdka pre fanúšikov
--  Best of cartoons, December 21, 2023
--  Best of cartoons, December 21, 2023
--  Seçmen kütükleri askıya çıkıyor! Tarih belli oldu
--  Bakan Güler, Khaled Nordin ile telefon görüşmesi gerçekleştirdi
--  ABD'nin Kızıldeniz'deki çok uluslu misyonuna katılan İtalya'da muhalefet tepkili: Başka bir çatışmanın içine sürükleniyoruz
--  Deprem bölgesi ayağa kaldırılıyor! Bakan Kacır: 4 milyar liralık yeni finansman imkanı sunduk
--  Zeytin Dalı bölgesinde 4 PKK/YPG'li terörist etkisiz hâle getirildi
--  Milot Rashica: Sakatlık kabusu peşimizi bırakmadı
--  "Polisiz" diyerek 600 bin lira dolandırdılar: 2 tutuklama
--  驚傳「中國國師」劉鶴被捕？ 蔡慎坤：若屬實習近平必遭眾叛親離
--  才子佳人！《芭比》編導搭檔葛莉塔、諾亞正式結婚
--  Michy Batshuayi yeniden ilk 11'de
--  انخفضت 2.1%.. تعرف على عدد حالات الوفاة بسبب الحوادث المرورية بالمملكة 2022
--  وزير الطاقة: سنوفر الطاقة المستدامة للقطاع الصناعي بسعر تنافسي "فيديو"
--  Höhere Inflation erwartet: Haushaltskompromiss lässt Preise steigen
--  Baldur’s Gate 3 revela que el secuestro de Orin iba a ser muy diferente
--  Après sa retraite footballistique, Eden Hazard pratique un nouveau sport (PHOTOS)
--  JOKIĆ I DRUŽINA PREGAZILI DONČIĆEV DALAS: Nagetsi jure nove bodove!
--  明年2大連假沒了！最強請假攻略1次看：請3天休12天
--  Makinat Volvo raportojnë rritje të shitjeve prej 8% në nëntor
--  Aragonès espera que hi hagi pressupostos “el més aviat possible” amb “un acord ampli”
--  Naujoji lenkų valdžia paskelbė atleidžianti visuomeninių žiniasklaidos priemonių vadovybę
--  En vivo: previo al DNU, Javier Milei reúne a todo su Gabinete
--  Kuveyt'in yeni Emiri Şeyh Meşal yemin etti
--  TVP Info wyłączyło nadawanie. Nie działa też strona internetowa stacji
--  Como ataques de piratas a navios no Mar Vermelho podem afetar seu bolso
--  ВМРО-ДПМНЕ: СДС и ДУИ преку Јакимовски упорно фаворизираат фирма на пратеник за изградба на висококатници кај „Алумина“
--  صحيفة عبرية تكشف عن "فضيحة" عملياتية أدت إلى مقتل الأسرى الثلاثة
--  Meras nacionalinio stadiono nelaidoja, bet įspėja – naujos kainos gali ir nepalaiminti
--  Kars'ta bir binada patlama sonrası yangın
--  Nová poľská vláda mení vedenie verejnoprávnych médií
--  WA taxpayers slugged extra $4 million to discard expired RATs
--  Russlands Präsident Putin erwägt Alternative zu Olympischen Spielen
--  EU claims a migration deal breakthrough after years of talks, Metsola hails historic pact
--  V. Benkunskas: kitąmet bus atnaujinamos Senamiesčio gatvės, mikrorajonų aikštelės
--  El relato de Donald sobre el mal de Parkinson que padece
--  Košarkašice Budućnosti gostuju Banovićima
--  Yeni Gaziantep Valilik binası Mart’ta hizmette
--  Ketamine
+-  Nova Mutum ganha mais de 1,6 mil novas empresas, aponta ministério
+-  Tragedija na Primorskem: neznanec do smrti povozil pešca in pobegnil
+-  Южный Кавказ дрейфует в Европу?
+-  খালেদের ৭ উইকেট, পূর্বাঞ্চলের প্রথম শিরোপা
+-  Top Glove plans to turn around by the end of FY2024, says MD
+-  اردوی اسرائیل کارمندان دو شفاخانه فعال در شمال غزه را بازداشت کرد
+-  6 علامات تكشف عن مقاطع الفيديو المزيفة.. كيف تعرفها؟
+-  ظهور هذه العلامة في الرقبة يشير إلى الإصابة بالسكري
+-  Magtel diseña un vehículo flotante para medir el impacto de plantas fotovoltaicas en embalses
+-  أخبار السعودية.. خطوات نقل المديونية وإعادة جدولة الدعم السكني وأمطار ورياح على هذه المناطق
+-  নরম্যান বেল গেডেস মার্ক–১ কম্পিউটারের কভার নকশা করেন
+-  Бесими: Со 560 милиони евра од ЕИБ, ЕБОР, ЕУ и ИПА го заокруживме финансирањето на деценискиот проект за изградба на железницата кон Бугарија
+-  Μπέττυ Μαγγίρα για Μαρία Κορινθίου: «Δεν με πίκρανε, λατρεύω τα beefs!»
+-  Töre: KKTC üniversiteler adası bir ülke
+-  Универсальные подарки на Новый год: что можно купить в последний момент
+-  NaaS Technology Establishes Strategic Partnership with SHNE to Jointly Build New Energy Market
+-  Los detalles del DNU de desregulación del Estado que firmará Javier Milei
+-  Slavni Francuz ne skida pogled s 29 godina mlađe cure. Kad je vidite u bikiniju, bit će vam jasno zašto...
+-  South Africans prioritise value for money in festive season spending
+-  British and US women face two years in Bali jail for 'attacking salon staff during row over prices' - but they claim they were 'held hostage' when they tried to go to a cash machine to fetch money to pay
+-  La Selección Gallega absoluta regresa para disputar el XXX Manuel Luaces
+-  EU Organic Journey event Dubai toop place on 13th of December 2023
+-  EastEnders fans spot a subtle clue that 'CONFIRMS' three Christmas exits ahead of blockbuster festive death episode
+-  'Onschuldige' Sanil B. richt zich tot OM in Mallorca-zaak: 'Kunt u 's nachts wel slapen?'
+-  Najnovší PRIESKUM ukazuje prekvapivé výsledky: Smer kraľuje aj po protestoch
+-  Red Sea crisis: How will it affect global shipping trade?
+-  جامعة مصر للمعلوماتية تستضيف فاعليات اليوم الختامي لمؤتمر اليابان- إفريقيا للإلكترونيات
+-  Гулҷаҳон Бобосодиқова: “Беҳтарин анъанаҳои оилаи тоҷикиро бояд паҳн кунем”
+-  Zara McDermott shows off her incredible figure in a blue bikini in sizzling throwback snap - after undergoing a mystery procedure in hospital
+-  New regional bid to help people tackle their maths fears
+-  Delivering festive cheer to Airedale Hospital children's ward
+-  Как да се храним, за да останем енергични по време на празниците?
+-  ৪ দিনের নতুন কর্মসূচি দিলো বিএনপি
+-  Folgen der Beschlagnahme von Russland-Beteiligung für OMV überschaubar
+-  Paulo Raimundo defende construção e gestão pública para Hospital do Oeste
+-  An AI doom calculator can predict when you’ll die – and it’s scarily accurate
+-  immobilier ancien : bilan 2023, perspectives 2024
+-  ECI Festival 2023 Wuxi: Shaping tomorrow with tech and human values
+-  土瓜灣哥登堡餐廳預告結業 老牌「平民扒房」屹立40多年不敵1個原因
+-  TeamViewer 15.49.2
+-  Why Apple and Goldman Sachs credit card partnership ended
+-  البيئة تنفذ البرنامج الثاني بالمرحلة الأولى للعمالة غير المنتظمة في إدارة المخلفات بالمنوفية
+-  ‘Oman can work with India in fight against climate change’
+-  Better air quality control can improve construction efficiency in SA
+-  "Ostatnia wieczerza" w TVP. Wicemarszałek Sejmu czeka na usprawiedliwienia
+-  ASRock anuncia placas-mãe NUC Ultra 100 com CPUs Meteor Lake-H
+-  محافظة مطروح: استلام 837 كرتونة مواد غذائية لتوزيعها على الأسر الأولى بالرعاية
+-  ReversingLabs u novom Gartnerovom izvješću o sigurnosti lanca opskrbe softvera
+-  وكالة الطاقة الدولية: الهيدروجين الأخضر يكتسب أهمية سريعة في التحول لاقتصاد خال من الكربون
+-  Антоанета Христова: Сложни взаимообвързаности движат в момента политиката и това не е добре
