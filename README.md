@@ -1,51 +1,51 @@
 # Latest News
--  ¡Adopta, no compres! “Don Ramón”, el “Chicles” y la “Chimichurris” quieren ser parte de tu familia
--  Hipgnosis Songs Fund Appoints New Auditor
--  RBD Closes its Soy Rebelde Reunion Tour in Mexico City: ‘We’ll See What Destiny has in Store for Us’
--  Германия — H&M, Ikea, Rewe, Thalia: общенациональные забастовки в канун Рождества
--  한겨레 "한동훈, 김건희 호위무사 자처하며 정치적 중립 의무 저버려"
--  బిగ్‌ బాస్‌ విజేత పల్లవి ప్రశాంత్‌ అరెస్టు
--  Klopp: Curtis Jones þarf að bæta sig
--  Naturgy advirtió a Ingenio de daños económicos por retrasar la licencia
--  El Concierto Popular de Año Nuevo de la Sinfónica de Las Palmas estrena quinta función
--  El gran estreno con 14 años de Luís Dias Canali
--  Los autónomos pueden aportar hasta 5.750 euros a planes de pensiones desde este año
--  Taraji P. Henson Got Teary As She Talked About Maybe Quitting Acting Over Ever-Crappy Pay: ‘The Math Ain’t Mathing’
--  ¿Qué tiene de especial ‘Los cuatro acuerdos’? Libro de mexicano también es el favorito de una Kardashian
--  Steuereinnahmen treten im November auf der Stelle
--  Ministerium : Tempo weiteren Inflationsrückgangs mit Unsicherheit behaftet
--  Ministerium : Belebung wirtschaftlicher Dynamik lässt weiter auf sich warten
--  Ministerium : Steuereinnahmen von Januar bis November um 2,1% über Vj
--  Ministerium : Steuereinnahmen des Bundes legen im November um 2,4% gg Vj zu
--  Finanzministerium : Steuereinnahmen steigen im November insgesamt um 0,1% gg Vj
--  Soccer-Liverpool meets Fulham, while Middlesbrough takes on Chelsea in League Cup semis
--  Acusan a Kimberly Loaiza de copiar estilo musical de Karol G en su nuevo disco
--  'Game of Thrones': George R.R. Martin le suplicó a HBO que la serie tuviera 10 temporadas para que fuera "una experiencia más satisfactoria y entretenida"
--  Paramount, Warner Bros. Discovery are in talks to merge
--  Болоња го елиминираше Интер од Купот на Италија (ВИДЕО)
--  Festive self-care important for those with a disability and their carers
--  Debts to 27.8 percent of the state's gross product! : ₹671757 కోట్లు
--  Les Belges à l'étranger : Triple Victoire belge en Ligue 1 avec les succès de Rennes, Strasbourg et Reims
--  إسرائيل تنشر فيديو لتدمير مقر عمليات حزب الله في لبنان
--  المركزي الأوروبي: تأثير وضع البحر الأحمر على التضخم غير مؤكد
--  5 New York State Bills Waiting To be Signed That You Didn't Know
--  Horoskop am 21.12.23: Ihr Tageshoroskop für den 21. Dezember
--  Residents discuss pokies
--  Droughts exacerbated by El Niño widen poverty gaps in Peru
--  US charges Hezbollah member for Buenos Aires attack in 1994
--  GuocoLand’s unit enters joint venture for Lentor Central property development
--  Trump attacks Colorado Supreme Court decision to exclude him from primaries
--  Senado aprova MP com potencial de arrecadação de R$ 35 bilhões a Haddad, entenda
--  2024 Ford F-150 Raptor R, Cars You Can Import, Hyundai N Vision 74 News: RAC 155
--  Se dagens premie i julekalenderen
--  Daihatsu Terlibat Skandal Keselamatan Mobil, Begini Detailnya
--  Nicolás Maduro promete a los jóvenes para el 2024: Viviendas, trabajo, estudio y felicidad
--  Terpopuler: Bos Garuda Dilaporkan ke Polisi, Jokowi Bulan Depan ke IKN Groundbreaking 10 Proyek Lebih
--  Ripple XRP Price Prediction For December End
--  ‘Unacceptable!’ - Xavi blasts Barca’s lack of spirit
--  Futbol üzerinden Türkiye’de fay hattı oluşturmaya çalışan kirli eller devrede: Türk futboluna KUMPAS
--  A 'guerra' continua! Ex de Piovani responde a 'farpas' da atriz
--  تطوير طريقة لتحليل تركيبة حصى الكلى أثناء العملية الجراحية
--  'Major milestone' as new culvert installed at Leura Falls Creek
--  Plug and Play Japan Selects 73 startups for its Winter/Spring 2024 Batch Accelerator Program
--  Global Nutraceuticals Market Outlook Report 2023-2028: Shifting Preference for Non-pill Nutraceuticals Products
+-  FETÖ'ye dev operasyon: 5 tutuklu
+-  Mayoría de incendios en diciembre son por el árbol navideño ¿lo cubre un seguro?
+-  Suomi saa frisbeegolfin MM-kisat
+-  Изтеглиха жребия за полуфиналите на Карабао Къп
+-  Faye Winter claims she looked like a dead FISH on Love Island before getting her fillers dissolved as she competes on Celebrity MasterChef
+-  소셜벤처기업 2,448개사…절반 이상이 7년 이내 창업기업
+-  Saint-Louis : une tentative de migration clandestine déjouée par les gendarmes
+-  Saint-Louis : l’édition 2024 des classes « formation école-entreprise » lancée
+-  Mali skromné začiatky: Prvé autá celebrít vás PREKVAPIA!
+-  Acteurs communautaires, reprenez le pouvoir
+-  ما حقيقة طلاق تيم حسن ووفاء الكيلاني
+-  Qualifications announced for ABC News' New Hampshire Republican debate
+-  Brief closure of pool Thursday morning
+-  Grandi sfide, lavoro di squadra e sviluppo dei partner e della comunità IT
+-  철원 임남 -24.7도 강원 '엄동설한'… 내일까지 전국 눈
+-  '최강 한파' 중대본 2단계… 대설 위기경보 '경계' 상향
+-  Migrants are being held for days at a time at Eagle Pass are seen passing out as THOUSANDS crowd into makeshift pen with no roof over their heads because ALL Border Patrol facilities in Texas are at capacity
+-  Patrick Mahomes buys Kansas City Chiefs ENTIRE offensive line golf carts for Christmas... as team linebacker Willie Gay hilariously admits he's jealous and wants to switch positions!
+-  Aprovado projeto que viabiliza novas obras em Osasco
+-  7 Overlooked Growth Stocks Gearing Up for 10X Gains
+-  10 Tokoh Indonesia Paling Dicari di Google Sepanjang Tahun 2023, Ada Aaliyah Massaid
+-  „Este doar începutul”: Republica Moldova primește un radar de apărare aeriană din Franța
+-  "NE VOLIM STARU KOŽU, LJUBAVNIK BI MORAO DA IMA 20!" Ljubavni život Džejn Fonde (86) bio je pravi ROLERKOSTER
+-  Biden afviste at kommentere Trumps nederlag i Colorado. Men så ombestemte han sig
+-  Hamas says it will not free any more hostages until Israel ends its war in Palestine ahead of ceasefire talks in Cairo
+-  دراسة: التنفس العميق أثناء النوم يعزز الذاكرة
+-  وزير قطاع الأعمال: الفترة المقبلة تشهد استثمارات كثيرة في مجال الدواء
+-  مصرع فتاة أسفل عجلات القطار في بني سويف
+-  لجنة المصالحات بالأزهر تنجح في إنهاء خصومة ثأرية بين عائلتين بالقاهرة
+-  How to Watch ‘The Simpsons’ Online: The Animated Series Is Now Streaming for Free
+-  Densus 88 Ungkap Modus Pendanaan Terorisme 2023: Kripto hingga Fundraising
+-  Hartman kijkt terug op 2023: 'Heel veel spelers zijn beter geworden, waaronder ik'
+-  Balanza comercial agroalimentaria presentó superávit de 6 mil 270 mdd
+-  [오늘의 증시 리포트] “종근당, 더 이상 저평가 받을 이유가 없다”
+-  Apple Fails To Delay ITC Ban Of Apple Watch Series 9 And Ultra 2
+-  Trump : ట్రంప్‌పై అనర్హత వేటు
+-  Giants great Tiki Barber admits to being left in complete shock by former teammate Derrick Ward's arrest for alleged robberies earlier this week: 'I feel like he got his life right'
+-  انطلاق الانتخابات الرئاسية والبرلمانية والمحلية في الكونغو الديمقراطية
+-  محافظ جدة يستقبل أبطال الألعاب السعودية 2023
+-  Cara Menebalkan Teks di iPhone
+-  Detienen a 2 acusados de robar en Parral
+-  Thais Fersoza relembra término de namoro com Bruno Gagliasso: 'Foi se desfazendo'
+-  Horoskop za 21. decembar: Bik oseća grižu savesti, Rak teško prihvata poraz, ovaj znak neka izbegava loše navike
+-  Membrey ready to return to best
+-  García Ortiz cincela el muro
+-  Newlyweds Greta Gerwig and husband Noah Baumbach hold hands in NYC as they are seen for the first time since tying the knot
+-  Two stranded dolphins rescued in one day on Cape Cod
+-  Real-life 'Home Alone' incidents – from machete attack to case that changed the law
+-  Margrethe Vestager fortsætter gerne som EU-kommissær
+-  Fyrverkeriattacker i Malmö – en till sjukhus
