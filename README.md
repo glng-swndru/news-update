@@ -1,11 +1,51 @@
 # Latest News
--  Lo que debes saber de la vacuna contra Covid en farmacias
--  Regresan Los Dorados a la Liga Mexicana de Béisbol
--  استقرار أسعار الذهب
--  Populist High Chief Wellington Bobo Congratulates High Chief Dr Oweizide Ekpomupolo Tompolo Over Honorary Doctorate Degree
--  Thổ Nhĩ Kỳ - minh chứng dầu thô của Nga là loại "ngọt" nhất
--  Tiền Giang: Tổng kim ngạch xuất khẩu đạt 4,6 tỷ USD, tăng gần 13%
--  Có một khủng hoảng nợ đang chực chờ?
--  «Αφοσιώνομαι πλήρως στον Χριστό», λέει ο Χαλκ Χόγκαν που βαφτίστηκε στα 70 του
--  VIDEO: Harry Kane spektakularno ‘skinuo paučinu’ s gola Wolfsburga!
--  Toyota ruft in den USA eine Million Fahrzeuge zurück
+-  Este jueves sesiona el Concejo Deliberante
+-  ما حقيقة إزالة جبل أحد بالسعودية؟
+-  ‘카멜레온 같은 초보감독’ 유병훈이 쓰는 ‘안양 승격노트 첫장’[스한 인터뷰]
+-  HIFK-tähti veisteli joukkueen lamasta - "Ei tässä varmaan mihinkään Hyvinkään Sveitsiin tartte lähteä"
+-  MTV: Jokerit-pomo nousee Mestiksen puheenjohtajaksi
+-  Canada's competition laws just changed: here's what you need to know
+-  Reforma do Pacto de Estabilidade representa melhora, diz Itália
+-  Economic injustice could make 2024 ‘Vimukthi Vasara’, Year of Liberation
+-  Rampur News: बेसिक शिक्षा विभाग के 110 स्कूलों में रसोईघर नहीं
+-  Liverpool zostanie ubiegnięty przez ligową konkurencję? Trzy kluby stają w szranki o niemiecki talent
+-  Economic calendar in Asia 21 December 2023 - a light one
+-  US stocks hit new highs and then reverse in a nasty move lower
+-  Trade ideas thread - Thursday, 21 December, insightful charts, technical analysis, ideas
+-  Rampur News: सरकारी अस्पतालों की भी फायर एनओसी नहीं
+-  Jalandhar News : बीएसएफ ने धनोए खुर्द में पौने सात घंटे में पकड़े दो पाकिस्तानी ड्रोन, हेरोइन भी बरामद
+-  Fed-bestuurder Harker: sta open voor een renteverlaging, maar niet op korte termijn
+-  Yaptırımlar altındaki Rusya'ya basın turu: Kendi üretim gücüyle zorlukları aşabilmek
+-  El look de Be Sifrah para el 2024 trae 20 aperturas e ¿internacionalización?
+-  Dodged IRD to the tune of $216,000
+-  Bakan Özhaseki: İstanbul’un hızla dönüşümü için yol haritamız belli
+-  Uzman isim uyardı: Büyük İstanbul depremi kapıda! Sadece İstanbul'u etkilemeyecek
+-  21 Aralık 2023 Medyanın Halleri
+-  Tiny house : pourquoi la maison mobile séduit-elle ?
+-  Rite Aid can’t use facial recognition technology for the next five years
+-  Böyük müharibə planlaşdırılır
+-  Ana Hickmann registra notícia-crime contra Alexandre Correa por associação criminosa
+-  Sam Thompson and Pete Wicks add new dates to Staying Relevant tour after it sold out within hours following his I'm A Celebrity victory
+-  Biden: Nije upitno da je Trump podržavao pobunu, svi ste to vidjeli
+-  I'm Just Ken : Ryan Gosling sort un inattendu EP de quatre titres
+-  Incidente en la Metrovía: Mujeres se enfrentan a golpes dentro de un bus en Guayaquil
+-  The Crown's Dominic West says he 'understands' criticism and 'discomfort' around the Netflix show - and 'thought a lot about that' before taking on the role of Charles
+-  Rampur News: पूर्व पीएम की जयंती पर सम्मानित होंगे 62 किसान
+-  Karnal News: बस की टक्कर से बाइक सवार की मौत
+-  Preocupación de la Fedecom por el aumento “desmedido” de precios de los proveedores
+-  Commerzbank: Alle Genehmigungen für neues Aktienrückkaufprogramm von bis zu 600 Mio EUR
+-  LG 이우찬, 만난 지 10년 만에 23일 결혼…“기다려준 아내·가족들에게 미안하고 고마워”
+-  Ponovo odloženo glasanje o Gazi u Vijeću sigurnosti UN-a
+-  Strautmanei astoņi punkti zaudētā FIBA Eirokausa cīņā
+-  Lindsay Lohan looks incredible in leggings and a tee for a Pilates session... five months after welcoming her first child
+-  Rampur News: 1321 करोड़ की 57 नई इकाइयों को हरी झंडी
+-  BMGK'da Gazze krizi devam ediyor: Oturum yine ertelendi
+-  Leona Lewis embraces the festive spirit in a sparkly pink suit as she joins Mo Gilligan on The Lateish Show for last ever episode after Channel 4 axing
+-  Banmédica y Vida Tres renuncian a la Asociación de Isapres en medio de la crisis del sector
+-  Viaje de Francia Márquez a África no tuvo que ver con cambios en visas: Cancillería
+-  Estas son las cinco empresas ganadoras en subasta de licencias para operar tecnología 5G
+-  Nebojša Rodić novi ambasador Srbije u Crnoj Gori
+-  فيديو.. رئيس شعبة الذهب: الأسعار محليا غير مسبوقة ومتوازنة مع السوق العالمي
+-  Okan Buruk, Icardi'nin performansı hakkında konuştu! ''Ceza sahası içerisinde daha fazla buluşturmamız gerekiyor''
+-  Fenerbahçe - Galatasaray maçı ne zaman, saat kaçta? Fenerbahçe - Galatasaray derbi maçı hangi kanalda canlı yayınlanacak?
+-  Panipat News: सीवर लाइन डालते समय मिट्टी गिरने से दो मजदूर दबे, एक की मौत
