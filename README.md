@@ -1,11 +1,11 @@
 # Latest News
--  हेमा मालिनी ने संसद में अक्षय कुमार के डायलॉग में की अमित शाह की तारीफ... गृह मंत्री भी मुस्कुराए
--  Acudirán a Cámara de Diputados a pedir celeridad de nueva ley
--  Fransa'da göç tasarısı krizi
--  Negocio restaurantero evoluciona con ‘Fiuto’, el primer sitio de Italia para perros y personas
--  Депутатите приеха на второ четене бюджетите на социалното, здравното и просветното министерствa
--  이혜영 "이상민 영상편지, 진심이었다…처음엔 열받아서 탁재훈에 전화" 솔직 고백 [라디오스타](종합)
--  Patrik Sundström om att bli ordinarie vd på Inera
--  Özdemir bleibt bei Nein zu Sparmaßnahmen in der Landwirtschaft
--  PORODICA U BEOGRADU KAO HORDA SKOČILA NA POLICIJU Došli da privedu muža zbog nasilja, pa nastao karambol: Otac, majka i brat krenuli da ih tuku
--  Megmenekült a francia kormány, sikerült keresztülvinnie a parlamenten a vitatott bevándorlási törvény szigorúbb változatát
+-  Fólk trúir varla að hann hafi sloppið með þetta ljóta brot í gær
+-  Mali : El Hadj Ag Gamou refait surface à Kidal. Une fois encore. Jusqu'à quand ?
+-  Quetzalcoatl, la verdadera pesadilla antes de Navidad
+-  Monheims Bürgermeister: Alles Nazis, außer ich?
+-  Jogos de PC por menos de R$ 50 na Epic Games Store – Ofertas de Fim de Ano
+-  Германия — Делаем рождественские подарки и увеличиваем капитал
+-  Qantas taken to Federal Court after refusing to let assistance dog on flight
+-  Have you been unable to reunite with your loved ones this holiday season? Tell us
+-  Tropical fruit growers plead for help from consumers, PM Albanese as Cyclone Jasper flooding clean-up begins
+-  Jimmy Barnes given the all clear by doctors to head home for Christmas after heart surgery
