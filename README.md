@@ -1,11 +1,11 @@
 # Latest News
--  Revoluție pe piața eolienelor: o turbină poate valorifica energia mașinilor care trec pe lângă ea VIDEO
--  Mercato - PSG : Victoire totale pour ce transfert, trois menaces KO
--  Zapanjujuće otkriće na Marsu: Otkrivena aktivnost koju nitko nije očekivao
--  نصائح مهمة للتعامل مع فصل الشتاء.. منها الحرص على شرب المياه
--  Când ajunge în România furtuna Pia care răvășește Europa. Avertismentul meteorologilor despre ce ne așteaptă
--  ارتداء الكمامات غير إلزامي في ماليزيا
--  ‘Christmas is cancelled’ says Dancing On Ice legend as he reveals secret health battle
--  Ajax Vrouwen stunt ook tegen Bayern en pakt leiding in Champions League-groep
--  Fendi reveals luxury Pokemon collaboration for 2024
--  Lionel Messi: Las veces que enfrentó a un país de Centroamérica, a quién le anotó más goles y cuándo jugará contra El Salvador
+-  Ја убива ли вибраторот вашата вагина?
+-  Acun Ilıcalı'dan Adnan Oktar itirafları! 35 yıl önce yaşananları ilk kez anlattı
+-  Chick-fil-A Could Soon Be Forced Open on Sundays in Some Locations
+-  Galatasaray derbi öncesi moral buldu! Galibiyet golü Kerem'den
+-  Histórico déficit de arroz en Honduras, se prevé una brecha de 4.5 millones de quintales
+-  «مؤجلة» العربي والسالمية اليوم
+-  العراق: «الإطار التنسيقي» الفائز الأكبر في مجالس المحافظات
+-  التضامن يضع سيلا على قائمة المغادرين
+-  «السكنية» تخفّض القسط الشهري لمديونيات بدل الإيجار من 150 إلى 50 ديناراً شهرياً
+-  المنتدى العربي ـ الروسي يدعو إلى«وقف دائم للنار» في غزة ويشدد على ضمان سلامة الملاحة في الخليج والبحر الأحمر
