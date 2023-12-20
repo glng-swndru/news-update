@@ -1,51 +1,51 @@
 # Latest News
--  '마약 무혐의' 지드래곤 측, 기자회견 연다 "본인은 불참"
--  김보라, 커다란 눈망울
--  장동윤, 꽃받침도 훈훈
--  장동윤 이주명, 선남선녀 비주얼
--  이주명, 예쁜 손인사
--  진실 밝혀지나… '김하성 공갈-협박 혐의' 임혜동, 경찰 소환 조사
--  رئيس الحكومة يشيد بالنتائج الإيجابية لبرنامج تقليص الفوارق المجالية
--  جراء شراسة المعارك بغزة.. 500 جندي إسرائيلي أصيبوا بصدمات نفسية
--  올겨울 역주행 캐럴! 엑소 ‘첫눈’ 챌린지 모음.zip
--  Slowakei: Große Proteste gegen geplante Strafrechtsreform
--  ما حكم التفاؤل والتشاؤم بالأشخاص في البيع والشراء؟ "الخثلان" يوضح
--  Sports scoreboard for Tuesday, Dec. 19, 2023
--  Την διατήρηση των 156 σχολικών επιτροπών αποφάσισε η δημοτική αρχή του Δήμου Ρόδου
--  [단독]삼성디스플레이 성과급, 기본급 100% 받는다
--  Rektor UII Sampaikan 4 Poin Sikap atas Perkembangan Demokrasi Saat Ini
--  নির্বাচন সুষ্ঠু না হলে এর দায় সরকারের ওপরেও পড়বে
--  ബഷീർ പെരുമ്പാവൂരിന് 'ഓർമ' യുടെ യാത്രയയപ്പ്
--  Coyotes rally past Senators 4-3 to spoil Martin's return
--  [포토]여야, '2024년도 예산안 처리 합의...21일 본회의 처리'
--  مجلس النواب يستمع لخطاب موازنة 2024
--  هل يمكن للحامل تناول مضادات الاكتئاب؟
--  (الموت الفجائي) يخطف 5 فنانين في 2023
--  الفيفا يدافع عن النظام الجديد لكأس العالم للأندية
--  عصير الشمندر يدعم علاج مرضى الرئة
--  دراسة: (البروبيوتيك) يقاوم فيروس كورونا الحاد
--  الصحة العالمية تحذر من انتشار الأوبئة بغزة
--  3 أمور إذا فعلتها أهلكتك.. علي جمعة يحذر منها
--  ما حكم التهنئة بالسنة الميلادية الجديدة ؟
--  Dobos Evelin mesebeli helyre utazott a párjával a Sztárbox után: így turbékolnak a szerelmesek – fotó
--  หอการค้าเชียงใหม่ ร่วมกิจกรรม “โครงการสภากาแฟ”
--  ศาลสั่งจำคุก "ลุงพล" 20 ปี คดี "น้องชมพู่" ยกฟ้อง "ป้าแต๋น"
--  “ราชทัณฑ์” โบ้ย “ทักษิณ” นอน รพ.ตร.หลังครบ 120 วัน “ดุลยพินิจหมอ”
--  [포토]여야, '652.7조 2024년도 예산안 처리 합의'
--  Nieuw azc in Dongen zal niet de laatste in de regio zijn, ondanks PVV-winst: ‘Maar het sentiment in de samenleving is duidelijk’
--  Chelsea: un fan entre sur le terrain pour s’en prendre au gardien de Newcastle
--  Ayuso introducirá nuevos contenidos en las aulas: más Constitución, Historia y defensa del ejército
--  Socceroo Luongo retires ahead of Asian Cup
--  Raport: Liczba mobilnych kart zbliżeniowych Google Pay, Apple Pay i HCE – III kw. 2023
--  W Chinach stopy ponownie bez zmian
--  Παν. Τοκούζης, πρόεδρος ΣΕΤΚΕ: Προτείνεται η ένταξη των καταλυμάτων στο σύστημα κατηγοριοποίησης
--  "이강인은 팀에 매우 중요한 선수! 그는 모든 걸 갖추고 있어"...LEE 향한 비판 정면 반박한 엔리케 감독
--  타케시 코치 6년 만에 복귀...KIA, 2024시즌 코칭스태프 확정
--  'Here We Go' 로마노 독점 보도! 라이프치히, 나폴리 시절 '김민재 前 동료' 영입 위해 356억 제안
--  Nederlandse consument weer minder negatief gestemd
--  Aurubis erzielt gutes Gesamtjahresergebnis von 349 Mio. € trotz Sondereffekten aus kriminellen Handlungen
--  Bekerwinst is voor Feyenoord de enige reële route naar de Coolsingel: ‘Dat brengt energie in de ploeg’
--  Bekerwinst is voor Feyenoord de enige reële route naar de Coolsingel: ‘Dat brengt energie in de ploeg’
--  Chief Minister: వరద బాధిత ప్రాంతాల్లో మరికొన్ని హెలికాప్టర్లు
--  授予佳沛的 "单一窗口 "法定出口权 在全球水果市场上是独一无二的
--  突发！奥克兰这座火山发生火灾！3男子纵火被捕
+-  [22대 총선] 예비 후보자 등록 현황 - 부천시
+-  [22대 총선] 예비 후보자 등록 현황 - 광명시
+-  [22대 총선] 예비 후보자 등록 현황 - 용인시
+-  프로야구 올 연봉, SSG 108억4천여만 원·KT 94억8천여만 원 지급
+-  윤호중 국회의원, 지하철 8호선 별내선 공사 현장 점검
+-  '이웃 사랑 실천'… 구리 인창C구역 재개발조합, 市에 성금 300만원 전달
+-  [인사]고양시
+-  عاجل.. خطوات نقل المديونية وإعادة جدولة الدعم السكني (تفاصيل)
+-  "سعود الطبية" تكشف أهم النصائح لمرضى الصدفية في الشتاء
+-  메리츠화재, 2월부터 자동차보험료 3.0% 인하
+-  각종 설문조사 어떻게 할까…“이제 네이버에 맡겨요”
+-  스카이TV, KBS PD 출신 김호상 대표 선임
+-  Rekabet cezalarında alt sınır yeniden belirlendi
+-  İbrahim Güneş yazdı: Savaş ilan edildi
+-  İstanbul'da gece etkili olan sis sabah saatlerinde de etkisini gösterdi
+-  Karadeniz'e müjde... Rüya gerçek oldu! Ham petrol kaynağı tespit edildi
+-  인스타판 별풍선 韓 상륙…‘릴스’에 ‘기프트’ 쏜다
+-  Skandal müfettişlere takıldı! Edirne Belediye Başkanı hakkında soruşturma başlatıldı
+-  Rekabet cezalarının alt sınırı 167 bin 473 lira olarak belirlendi
+-  İçişleri Bakanı açıkladı: Kafes-22 operasyonlarında 302 şüpheli yakalandı
+-  Yerel seçim için YSK'dan önemli karar: 32 ilde oy kullanma saatleri değişti
+-  Afyonkarahisar'da eski eş katliam yaptı: 3'ü kadın, 4 ölü!
+-  Darts-WM: Berliner Ricardo Pietreczko zieht souverän in die zweite Runde ein
+-  Best Of 2023: ये रहें साल के टॉप 10 वेब सीरिज जिन्होने OTT पर मचाया धमाल
+-  Россиянам назвали два обязательных лекарства для домашней аптечки
+-  vivo Y27s Launched in Pakistan — Redefining Style and Innovation
+-  Najjači NASA-in teleskop uhvatio nevjerojatan prizor u Sunčevu sustavu: Pogledajte što je snimio oko Urana
+-  Журналист Рёпке: западное оружие оказалось непригодным для долгого конфликта
+-  익산시, 전북 농촌지도사업 종합평가 대상 수상
+-  김포FC, 제2대 조성희 사무국장 취임
+-  홍천 내촌중-서석중, 전국학생오케스트라경연대회 교육부 장관상 수상
+-  유성구, 방동저수지 두꺼비로드킬 환경개선사업 4.5억 원 확보
+-  경산시의회, '희망 2024 나눔 캠페인' 성금 150만원 전달
+-  거창 마리면 귀농·귀촌인 연합회, 지역사랑 나눔 실천
+-  경주천년한우, 농림축산식품부 장관상 수상
+-  거창 고제면, 한파 이기는 따뜻한 이웃사랑 이어져
+-  강원도, '찾아가는 마스터클래스', '직업 진로 특강' 성황리 마무리
+-  영양교육지원청, 학교운영위원회 발전 방향 논의 협의회 개최
+-  의왕시의회, 의왕도시공사 본부장 명절수당 셀프신설 지적
+-  동두천시 자유수호평화박물관, 제1회 이호왕 박사 기념 청소년 미술대전 개최
+-  군포시 시민건강위원회, 2023년 활동 마무리
+-  울진군 북면, 노인일자리 사업 해단식 및 안전 소양교육 실시
+-  문경시, 희망2024나눔캠페인 성금기탁 줄이어
+-  봉화군새마을회, 새마을운동 종합평가대회 개최
+-  운흥초 학생자치회, 12월 학년말 이벤트 개최
+-  의왕시, ‘2040 중장기 시정발전계획 최종보고회’ 개최
+-  영주시, 지적행정업무 추진실적 평가 우수기관 선정
+-  정읍시, 2년 연속 잔류농약 분석 우수성 입증
+-  이창용 한은 총재, "2%대 물가 목표치, 내년 말 돼야"
+-  «Аврора» ответила на претензии по полетам на Дальнем Востоке
