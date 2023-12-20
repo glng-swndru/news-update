@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | Lewandowski Set For Barca Exit? Agent Breaks Silence
--  Bawaslu Temukan Kasus Money Politic di 10 Kabupaten/Kota di Jabar
--  Homem é socorrido com fratura após colisão em avenida de Colíder
--  Pide AMLO indagar más sobre masacre en Salvatierra
--  Descarta Ana Guevara irse de la Conade
--  Detienen a hombre en posesión de cristal en Anáhuac
--  Kyle Kuzma suit la hype Tidjane Salaün de près : “Ce gamin s’est approché de moi et m’a dit rendez-vous dans deux ans”
--  Amerikaanse olievoorraden onverwacht gestegen
--  EU-Gericht kippt Coronahilfen Frankreichs für Air France
--  בזכות הכוונה מודיעינית ותקיפות מדויקות: כך חוסלו בכירי המערך האווירי של חמאס
+-  Bernard Jackman believes RG Snyman can help Leinster "get over the line"
+-  São anuncia contratação de meio-campista paraguaio, Damián Bobadilla
+-  Baldur’s Gate 3: Durch Idle Champions bestätigt – So alt sind Astarion und Co
+-  El nuevo emir de Kuwait revela su hoja de ruta para el país
+-  Zack Sabre Jr On Why He Thinks Will Ospreay Signed With AEW,
+-  Met Office issues yellow warning for thunderstorms, hail
+-  Salud Pública: se presenta la historia clínica electrónica en Salta
+-  Another US Mercenary Bites the Dust on Ukrainian Battlefield
+-  Mujer triunfa en el “Big Brother” del póker: claves del éxito en un terreno masculino
+-  Two torture-obsessed teenagers are found guilty of murdering Brianna Ghey: Boy and girl, both 16, stabbed transgender schoolgirl 28 times with a hunting knife in 'frenzied' attack before tying to blame each other for the killing
