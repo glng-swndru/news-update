@@ -1,51 +1,51 @@
 # Latest News
--  অবশেষে হাফসেঞ্চুরির দেখা পেলেন সৌম্য সরকার
--  পাঁচ বছর পর সৌম্যর সেঞ্চুরি
--  সৌম্যের সেঞ্চুরিতে ভর করে কিউইদের ২৯২ রানের লক্ষ্য দিলো টাইগাররা
--  আজ সিলেট থেকে নির্বাচনি প্রচার শুরু করবেন শেখ হাসিনা
--  জিএম কাদের কেন সামনে নেই?
--  ডায়াবেটিসের মহৌষধ করলা, আটকে দিতে পারে ক্যানসারও!
--  ঠেকানো যাচ্ছে না রেলে নাশকতা
--  দূষিত বায়ুর শহরের তালিকায় দ্বিতীয় স্থানে ঢাকা
--  দুর্ঘটনায় আহত ঝিনাইদহের সাংবাদিক সেলিম মারা গেছেন
--  মানুষ থেকে মানুষে ছড়াচ্ছে ‘নিপাহ’ ভাইরাস, সংস্পর্শে এলেই সর্বনাশ
--  MSD 키트루다, HER2 양성 위암 1차 치료 병용 적응증 확대
--  서울아산병원 황신 교수, 대한이식학회 신임 이사장
--  가락시장 공동 배송사업 성공적 추진 다짐
--  류마티스 관절염 환자, '폐암' 위험 49% 증가
--  정식품, 2024년 정기 임원 인사
--  뷰웍스, 경량화·휴대성 기술로 엑스레이 디텍터 시장 선도
--  명지병원–고양특례시, '정밀의료 클러스터 조성' 업무협약 체결
--  경희대치과병원, 中 하얼빈 제2병원에 특화센터 개소
--  식약처 '의약품 변경허가 사전통보제' 시범운영
--  농협경제지주, 연말맞이 소외이웃 위한 '사랑의 물품'나눔
--  농기평, 한국형 발효유 종균 개발
--  축평원, 농식품 통계데이터 분석·활용 경진대회 장관상 수상
--  샘표 밸런스죽, 동지 특집 기획전 이벤트
--  식약처 국장급 공무원 인사
--  의약품 부작용 피해구제 추가부담금 차등 부과
--  코스맥스NBT 'K푸드 수출탑' 수상 "K건기식 영토 확장 앞장"
--  대한제분 '케이엠비 아뺑드 밀가루 T65' 출시
--  모다모다, 취약계층 위한 연말 사회공헌활동 '훈훈'
--  건강기능식품판매업 보수교육 수료 독려
--  올 동지에도 영양 많은 우리 팥으로 든든하게
--  농협, 성탄 맞아'따뜻한 연말 사랑나눔'
--  마녀공장 '9.9.9 클리어런스 세일' 최대 86% 할인
--  WHO ने कोरोना के नए सब-वेरिएंट JN.1 को ‘वेरिएंट ऑफ इंटरेस्ट’ की श्रेणी में रखा है, जानें कितना खतरनाक है ये
--  QV：新西兰房价连第4个月上涨！明年将缓慢复苏！
--  喜大普奔！北岛这条重要的旅游公路今天恢复通车啦……
--  终于！ANZ银行宣布降低部分房贷利率
--  【伍勇讲生意】圣诞快乐，新年进步
--  新西兰副总理兼外长对中国甘肃地震表示慰问
--  隋兵Bryan - 本周生意推荐（1220）
--  新中商协成功举办难忘的圣诞游艇出海活动
--  आरबीआई ने एआईएफ के माध्यम से ऋणदाताओं द्वारा सदाबहार ऋणों की उगाही पर अंकुश लगाने के लिए मानदंड कड़े किए
--  เด็กนักเรียนบึงกาฬรื้อตู้ใส่เสื้อหนาวรอบใหม่!
--  20 दिसंबर के लिए Petrol, Diesel की ताजा कीमतें घोषित: अपने शहर में ईंधन दरें जांचें
--  한화제약, 천식 치료제 ‘씨투스정’ 겨냥 제네릭 개발 돌입
--  안저검사 망막 사진으로 자폐스펙트럼장애 예측
--  Alcaldesa en CDMX denunciará a Fiscalía por presuntamente espiarla
--  Homicide victim found dead in 1979 near Las Vegas Strip ID’d as missing 19-year-old from Cincinnati
--  សម្តេចធិបតី ហ៊ុន ម៉ាណែត អញ្ជើញសម្ពោធដាក់ឱ្យប្រើប្រាស់ អគារធនាគារវីងថៅវើ
--  Capturan a sujeto tras encontrarle cocaína y más de 7 mil dólares en efectivo en Santa Ana
--  Brightcom Group Share Price Live blog for 20 Dec 2023
+-  네오위즈, 연말 맞이 할인 이벤트 진행… ‘P의거짓’‧‘산나비’ 해볼까
+-  '마이데몬' 넷플릭스 전세계 TV 2위, '솔로지옥' 4위
+-  WD, 미디어·전문가 겨냥 샌디스크 신규 저장장치 국내 출시
+-  고양시, 노후계획도시 재건축 준비에 속도
+-  고창군, 내년 아이돌봄서비스 본인부담금 군비 확대 지원
+-  파주시, 신축 운정보건소 개소…시민 건강 지킨다
+-  청송군, 2023년 경상북도 산림행정 종합평가 “3년 연속 우수기관”선정
+-  NO load shedding implemented on WEDNESDAY
+-  努比亚Z60 Ultra体验评测：更独特的设计 影像玩法更丰富
+-  사단법인 제주복지UP연구소 창립
+-  김영지·이주호, 2023 서귀포시체육회 대상 수상
+-  湯怡兩歲半囡囡麥QQ變家務擔當 全副武裝拖地網民留意表情變化
+-  한국 방산수출 최근 2년 평균 150억 달러 달성
+-  कहीं नूडल्स से तो कहीं फिशिंग, इन देशों का न्यू ईयर सेलिब्रेशन है बेहद अनोखा
+-  Reasoning Quiz For Bank Mains Exam 2023-20th December
+-  महिला ने अपनी बेस्ट फ्रेंड को लिया गोद, बन गई ‘मां’, वजह है बेहद खास
+-  [인사] 한국전력
+-  Mantap! Harga Emas Antam Rabu Pagi Naik Lagi
+-  Michael Saylor: Spot Bitcoin ETF Nod To Create Demand Shock For BTC
+-  Texas Lt. Guv Threatens to Take Biden Off State’s Ballot After Colorado Ruling
+-  Dólar hoy: a cuánto opera este miércoles 20 de diciembre
+-  서울교육청, 학생이 상담 예약할 수 있는 통합 플랫폼 개발·시범운영
+-  Karin Widerstedt grundade Hjärta till hjärta med maken
+-  Río Negro pagará el aguinaldo en dos cuotas
+-  Reclamo de Mendoza por retenciones al vino
+-  서울교육청, 학교현장실습학기제 시범운영 결과 발표
+-  Provincia no adherirá al protocolo antipiquetes de Patricia Bullrich
+-  21 mujeres emprendedoras reciben reconocimiento “Peruanas que brillan”
+-  Frankfurter Allgemeine Zeitung -artikkeli | Psykoterapeutti neuvoo, miten lapsesta kasvatetaan itseensä luottava, jämäkkä ja empaattinen
+-  Vi kan fortsatt glädjas åt Lars Kvissbergs gärningar
+-  Nyckeln bakom storformen: ”Passar mitt spel”
+-  Rolf Holmgren var vänlig och kunnig
+-  Kicillof pide $10.000 millones de auxilio por el temporal
+-  중소기업계 선정 2024년 사자성어 '운외창천'
+-  Euro hoy y Euro blue hoy: a cuánto opera este miércoles 20 de diciembre
+-  Sejarah Baru, Miss France 2024 Eve Gilles Bergaya Rambut Pendek: Kita Semua Unik
+-  Presidentinvaalikone: Enemmistö ehdokkaista olisi valmis sallimaan eutanasian
+-  Diduga Curi Barang di Bagasi Senilai Rp34 Miliar, Petugas Bandara di Spanyol Ditahan
+-  Ini 11 Karakter dalam Drama Korea Terbaru Death's Game
+-  Malestar en Tucumán y el NOA por la medida de Nación que grava con 15% las exportaciones citrícolas
+-  How do we get the North West to net zero? Liverpool report has some answers - but lots of questions too
+-  Poliisiksi on kova hinku – ensi vuoden kurssit täyteen ensi kerran sitten vuoden 2018
+-  지난해 육아휴직 14% 늘어 20만명…대기업 쏠림현상 여전
+-  Nyckeln bakom storformen: ”Passar mitt spel”
+-  Среда, 20 декабря: днем +3, пасмурно
+-  Dólar blue hoy: a cuánto cotiza este miércoles 20 de diciembre
+-  Alexis Mac Allister injury timeline becomes clear as Darwin Nunez Liverpool plan confirmed
+-  경찰, 국고보조금 부정수급 1620명 검거...공무원 유착 사례도 적발
+-  В субботу состоится очередная бесплатная экскурсия по Даугавпилсу
+-  Воронежским школьникам запретили мобильники на уроках
