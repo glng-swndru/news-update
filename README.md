@@ -1,51 +1,51 @@
 # Latest News
--  Projekt ustawy budżetowej na 2024 r. skierowany do komisji
--  Court fines companies €8,000 for workplace safety violations
--  Sanidad rechaza alargar la edad de jubilación de médicos a los 72 años y "exprimir a los profesionales"
--  Bombeiros gastam 80 milhões em emergência médica e INEM só paga metade
--  البعثة الأممية تُعرب عن قلقها إزاء وفاة «المهدي البرغثي»
--  EuGH-Urteil: Infantino gelassen - Faeser gegen Super League
--  Beşiktaş'ta Alex Oxlade-Chamberlain şoku!
--  PAO pobedio, ali Janakopulos opet o sudijama: Da nije ušla trojka, bila to nova krađa
--  Superliga Europeia: Barcelona e Real Madrid podem receber bolada bilionária por fidelidade
--  مع دخول الشتاء.. 3 مراحل للإصابة بالبرد وطرق الوقاية من المرض الشائع
--  "Sukob u Ukrajini može da se završi i za pet dana"
--  Эстония пообещала не мешать выборам президента РФ в посольстве в Таллине
--  تحذير لـ5 فئات من مغادرة المنزل خلال الـ24 ساعة المقبلة.. رياح مثيرة للأتربة
--  Έγινε αυτό που περιμέναμε και με τον Γουίλι Σεμέδο
--  Troubleshooter: When big vehicles meet small driveways
--  Utah lievittää Markkasen takareisirasitusta – suomalaistähti sivussa Detroit-ottelusta
--  Így takarítanak otthon a magyarok: aggasztó dolgok derültek ki egy friss kutatásból
--  Heizungs-Förderung: Antragstellung verzögert sich – Was die Ampel jetzt plant
--  Identifican a matrimonio muerto en choque carretero
--  «Vitico» Davalillo fue extraordinario para volverse una verdadera leyenda
--  Cumprimentos de Natal do Governo: Marcelo faz balanço de coabitação com Costa e conclui que "valeu a pena"
--  El CD Extremadura camina firme y empieza a ilusionar
--  Nastavnici iz više opština traže generalni štraјk zbog plata
--  Orbán z sarkazmem komentuje zmiany w mediach w Polsce
--  Vaza foto do Honor Magic 6 com câmera tripla e zoom de 100x
--  Justiça determina fornecimento do medicamento mais caro do mundo para bebê no RS
--  Connexus Credit Union Personal Loans Review 2024
--  Warum England bei der Super League besonders im Fokus steht
--  Please Let Paul Giamatti Play A James Bond Villain
--  Beşiktaş'tan Avrupa Süper Ligi açıklaması: Reddediyoruz
--  Lian Li adds an LCD screen to its latest RGB case fans
--  I did a killer Amazon haul, I found a dupe for the $400 Ganni flats and the pants I will be living in
--  Alemãs adiantam-se no marcador e dificultam 'missão' do Benfica
--  Shrinking Kim Kardashian shows off her VERY slender frame in cheeky back shot - after staying trim following 21 lb weight loss
--  Die besten Memes und Reaktionen zur Super League
--  Babasını öldürüp cesedini sobada yakmaya çalıştı
--  Quebec introducing new rule to reduce bat deaths linked to wind farms
--  O seu mal é sono? Evite fazer exercício físico depois desta hora
--  Para transferlerinde FAST limiti 50 bin lira oldu
--  LIVE: 3-year-old shot, killed in Birmingham
--  कोरोना के नए सब-वेरिएंट JN.1 से दिल्ली अलर्ट, जानें स्वास्थ्य विभाग का नया कदम
--  مصر.. الحكومة تخصص أكثر من مليار دولار لتمويل الشركات لإنشاء فنادق سياحية
--  Rudy Giuliani files for bankruptcy after being ordered to pay $148m to election workers he defamed
--  The 7 best men's workout shirts in 2023
--  MP News: वीडी शर्मा बने रहेंगे प्रदेश भाजपा अध्यक्ष, लोकसभा चुनाव तक नहीं होगा परिवर्तन
--  MP News: सीएम दिल्ली दौरे पर, मंत्रिमंडल विस्तार को लेकर आलाकमान से करेंगे चर्चा
--  Beyoncé and Jay Z rented a bus for private tour of New York City
--  Betul Crime: प्रेम प्रसंग में की गई थी पॉलिटेक्निक छात्र की हत्या, सड़क किनारे मिला था शव, दो आरोपी गिरफ्तार
--  Adam Driver Says He Relates to Enzo Ferrari’s ‘Relentlessness and Ambition’ in New Featurette
--  Adam Driver Says He Relates to Enzo Ferrari’s ‘Relentlessness and Ambition’ in New Featurette
+-  Двое взрослых и трое детей погибли в ДТП с участием грузовика под Ростовом
+-  Ghazipur News: 1 लाख 30 हजार की एलोपैथिक दवाएं सीज
+-  Ghazipur News: दो बच्चे के पिता ने किशोरी के साथ किया दुष्कर्म
+-  Ghazipur News: विवाहिता का फंदे पर लटकता मिला शव, दहेज उत्पीड़न का आरोप
+-  Ghazipur News: सामूहिक दुष्कर्म के मामले में दोषी को 38 तारीखों में सजा
+-  Ghazipur News: हत्या और लूट के मामले में एक को उम्रकैद और दो को पांच-पांच वर्ष की सजा
+-  Faridabad News: ओजोन पार्क सोसाइटी में लिफ्ट अटकने से महिला हुई घायल
+-  Faridabad News: आठ साल के मासूम की गला दबाकर हत्या, कुकर्म की आशंका
+-  Faridabad News: पिता को ईंट व पतीले के पीट-पीटकर मौत के घाट उतारा
+-  Dehradun News: एसटीएफ व ऊधमसिंह नगर पुलिस ने बचाई युवक की जान
+-  Dehradun News: उपराष्ट्रपति के हरिद्वार भ्रमण के दौरान रुट रहेगा डायवर्ट
+-  Dehradun News: आज बदलेगा मौसम, पर्वतीय जिलों में बारिश व बर्फबारी के आसार
+-  Dehradun News: टप्पेबाजों ने कार से उड़ाया पैसो और गहनों से भरा पर्स
+-  Pilibhit News: अधिक समय तक ईयरफोन का इस्तेमाल बढ़ा रहा कानों का दर्द
+-  Pilibhit News: क्रिसमिस को लेकर सजने लगे चर्च, तैयारियां तेज
+-  Pilibhit News: बाग कटान की अनुमति निरस्त, डीएम ने बैठाई जांच
+-  Pilibhit News: नाला निर्माण होने से कस्बे के पानी का निकास बंद
+-  Pilibhit News: भाजयुमो ने नारेबाजी कर राहुल गांधी का फूंका पुतला
+-  Firozabad News: महापुरुषों व प्रतिमाओं पर दिखे अवैध पोस्टर, 14 लोगों पर जुर्माना
+-  Firozabad News: दुकानों पर मिली 15.7 किलो पॉलिथीन, 31000 हजार जुर्माना
+-  Firozabad News: पीएम से परीक्षा पर चर्चा करने का मौका, क्विज के पंजीकरण शुरू
+-  Firozabad News: अभद्रता का विरोध करने पर दबंगों ने एफसीआई गोदाम के इंचार्ज का पीटा
+-  Firozabad News: उधार के रुपये मांगने पर सरिया से सिर फोड़ा, 12 टांके आए
+-  Firozabad News: सर्द हवाओं ने बढ़ाई सर्दी, गर्म कपड़ों की बढ़ी बिक्री
+-  Firozabad News: राष्ट्रीय जिन्मास्टिक चैंपियनशिप के लिए राहुल चोपड़ा बने यूपी आब्जर्वर
+-  Firozabad News: बीडीओ महीने में दो बार करेंगे गोशाला का निरीक्षण
+-  Sitapur News: किशोरी से दुष्कर्म करने वाले दो दोषियों को कारावास
+-  Sitapur News: पुजारी के सीने पर हुआ था वार, पसलियां टूटीं, फेफड़ा फटा
+-  Jind News: पात्र लाभार्थियों के ऋण आवेदनों का प्राथमिकता से निपटारा करें अधिकारी
+-  Lakhimpur Kheri News: बैंक प्रबंधक और पांच अन्य पर धोखाधड़ी का केस
+-  Kushinagar News: क्रिकेटर मोहित शर्मा का गोरखपुर एयरपोर्ट पर हुआ स्वागत
+-  Kushinagar News: भूजल निष्कर्षण के लिए वेब पोर्टल पर करें आवेदन
+-  Kushinagar News: शंखनाद व वैदिक मंत्रों के साथ बुद्धा घाट पर हुई गंगा आरती
+-  Kushinagar News: सामूहिक विवाह का आयोजन मार्च में
+-  हिरण्यवती नदी की तस्वीर पहले से हुई खूबसूरत : भंते श्रद्धा वंश
+-  Kushinagar News: ईसा मसीह के जन्म की झांकी ने मोहा मन
+-  Chandigarh News: चंडीगढ़ को आज करोड़ों रुपये की सौगात देंगे अमित शाह, कल उपराष्ट्रपति जगदीप धनखड़ आएंगे
+-  आज चंडीगढ़ में शाह: दो घंटे हरियाणा के अधिकारियों संग करेंगे बैठक, सीएम मनोहर लाल के साथ अलग से करेंगे मंथन
+-  Basti News: दिव्यांगों से बदसलूकी करने पर नपेंगे चालक-परिचालक
+-  राम मूरत हत्याकांड: मुफ्त में बैनामा कराया 20 लाख की जमीन,पांच लाख नकद भी हड़पा
+-  UP News : निकायों की नौकरी में भी दिव्यांगों को मिलेगा चार प्रतिशत आरक्षण, शासनादेश जारी
+-  Lucknow News: अभियान में 63 संदिग्ध कुष्ठ रोगी मिले
+-  Basti News: गन्ना बेचने में किसानों की दुर्दशा, ट्रॉलियों के नीचे गुजार रहे सर्द भरी रात
+-  Basti News: जानलेवा हमले में छह को पांच-पांच वर्ष की सजा
+-  Lucknow News: दिनभर छाए बादल, हवा ने बढ़ाई ठिठुरन
+-  Lucknow News: मधुमक्खियों के हमले में किसान घायल
+-  Sultanpur News: दुष्कर्मी को 10 वर्ष की सजा
+-  Sultanpur News: माइनर में कटान, 40 बीघे की फसल जलमग्न
+-  Sultanpur News: दिव्यांग बहन को चाकू मारकर किया लहूलुहान
+-  Basti News: हर्रैया तहसील का राजस्व निरीक्षक 10 हजार रुपये रिश्वत लेते गिरफ्तार
