@@ -1,11 +1,51 @@
 # Latest News
--  Is US on track for an explosive outbreak in care homes this winter? CDC report shows as little as 10% of elderly residents have had their seasonal vaccines
--  حساب المواطن يحدد الوقت المخصص للاعتراض على الأهلية
--  عاجل.. "تعليم الرياض" يكشف عن تسمم 9 طالبات ويوضح آخر تطورات حالتهن الصحية
--  شاهد.. سهول شرق المجمعة تكتسي بالأخضر بعد هطول الأمطار
--  السد يسحق أم صلال بسداسية ويستعيد قمة الدوري القطري
--  Speaker Johnson urges Biden to take executive action on the border
--  Teacher goes viral after revealing the hilarious gift suggestions his 7th grade students made for people in their 30s - from 'bingo cards' to 'hip IMPLANTS'
--  Fraser-McGurk goes bang!
--  Fraser-McGurk goes bang!
--  Analyysi | Sihvonen niputtaa tarkan pelin ottelun: Shakkia kaukalossa á la Kerho ja Sport
+-  القسام توجه رسالة للمستوطنين: نتنياهو مصرّ على قتل الأسرى
+-  Wildcat strike at Eurotunnel ends with train traffic set to resume
+-  4 آلاف فرنسي يقاتلون مع الجيش الإسرائيلي بغزة
+-  "التعليم" و "نزاهة" تستعرضان تجارب عملية في تطبيق الحوكمة في القطاع العام
+-  Mısır: Kızıldeniz'de ortaklarla işbirliği içindeyiz
+-  Avrupalı liderlerden Çekya'daki saldırıya kınama
+-  Ankaragücü ve Hatayspor maçında kazanan çıkmadı
+-  Etawah News: दो ऑटो की भिड़ंत में चार महिलाओं सहित पांच घायल
+-  Etawah News: परीक्षा पे चर्चा के लिए पंजीकरण शुरू
+-  Etawah News: शिशु वर्ग की सामूहिक नृत्य प्रतियोगिता में माउंट लिट्राजी अव्वल
+-  समाज के उपेक्षित वर्ग की आवाज बनेगा सर्वजन सुखाय पार्टी : शिवप्रसाद
+-  Etawah News: वकीलों ने कराई सेहत की जांच, दी गई दवाई
+-  Etawah News: सहकारी समिति से डीएपी की बोरी चुराने में तीन गिरफ्तार
+-  Farrukhabad News: 36 अपूर्ण मुख्यमंत्री आवासों को पूरा कराने के निर्देश
+-  Etawah News: लूट के मामले में तीन को सात-सात साल की सजा
+-  Farrukhabad News: अधिशासी अभियंता शहरी ने एसडीओ जेई को सौंपी मामले की जांच
+-  Etawah News: प्रदेश में कोरोना की दस्तक ने बढ़ा दी लोगाें की चिंता
+-  Farrukhabad News: आठ घरों में लाखों की चोरी में पुलिस के हाथ खाली
+-  Farrukhabad News: ईवीएम वेयर हाउस में लगाई गई आग, मुकदमा दर्ज
+-  Rishikesh News: हथकरघा का प्रशिक्षण ले रहीं 30 महिलाएं
+-  Rishikesh News: गंगा में राफ्ट पलटने से बंगलूरू के पर्यटक की मौत
+-  Rishikesh News: तीन दिन में दो हाथियों की मौत, सुरक्षा पर उठने लगे सवाल
+-  Rishikesh News: बरसाती नाले पर अतिक्रमण, बना दी तीन दुकानें
+-  Dehradun News: धोखाधड़ी से संपत्ति अपने नाम करने वाले चार आरोपी गिरफ्तार
+-  Dehradun News: मुख्यालय और सीआईडी में तैनात कर्मचारियों को देनी होगी घंटे के हिसाब से काम की जानकारी
+-  Dehradun News: कोरोना के डर से न खाएं अनावश्यक दवाएं, काढ़ा भी पूछकर लें
+-  Dehradun : उद्योगपति सुधीर विंडलास गिरफ्तार, सीबीआई ने पिछले साल दर्ज किये थे जमीन धोखाधड़ी के तीन मामले
+-  Siddharthnagar News: सभी पात्रों को मिल रहा योजनाओं का लाभ
+-  Siddharthnagar News: प्रशासन पर पक्षपात करने का लगाया आरोप
+-  Siddharthnagar News: 10 अस्पतालों में आग से बचाव के लिए दी जानकारी
+-  Siddharthnagar News: हादसे में घायल के बचाव के लिए आएं आगे
+-  Siddharthnagar News: किसी पशु को नहीं पहनाया काउ कोट, ठंड से बेहाल बेजुबान
+-  Siddharthnagar News: भगवान साथ हैं लेकिन हमें भी उनके साथ रहना होगा
+-  Maharajganj News: जिला सहकारी बैंक में किसानों को तीन प्रतिशत पर केसीसी लोन
+-  Siddharthnagar News: धूप पर भारी पड़ी पछुआ हवा, गलन से कांपे लोग
+-  Maharajganj News: दोपहर में एक घंटे नहीं मिलीं गोरखपुर और ठूठीबारी की बसें, यात्री परेशान
+-  Hardoi News: वाहन ने ऑटो में मारी टक्कर, सभासद के बेटे की मौत
+-  Siddharthnagar News: 68 किमी नेपाल सीमा पर लगेंगे 24 टॉवर, आठ किमी दायरे में बेहतर होगी कनेक्टिविटी
+-  Maharajganj News: फरार आरोपी को बारह दिन बाद किया गिरफ्तार
+-  Hardoi News: दिव्यांग मेले के लिए डीएम ने सौंपी जिम्मेदारियां
+-  Siddharthnagar News: ब्लॉक स्तरीय सांसद खेल महाकुंभ कराने की बनी रणनीति
+-  Maharajganj News: पनिअहवां पुल से नदी में कूद गया ठूठीबारी का व्यापारी
+-  Hardoi News: लंबी कूद में करन, ऊंची कूद में फारूख ने मारी बाजी
+-  Maharajganj News: दिव्यांगों को कैरियर बनाकर सरहद पार करा रहे नशे का सामान
+-  Hardoi News: ग्राम पंचायत सदस्यों को 23 माह का मानदेय न देने पर वेतन रोका
+-  Maharajganj News: फर्जी पासपोर्ट के साथ पकड़े गए ईरानी नागरिक को दो वर्ष की सजा
+-  Maharajganj News: नेपाल के बेलहिया में भारतीय पर्यटकों से बिचौलिए कर रहे अवैध वसूली
+-  हसुड़ी औसानुपर : कार्बन न्यूट्रल पंचायत बनाने के लिए बजट पर मंथन
+-  Jind News: जिले के 1472 विदुर व अविवाहितों की बनेगी पेंशन
+-  Jind News: पत्नी ने गांव के युवक के साथ मिलकर पति की डंडों से पीटकर की हत्या
