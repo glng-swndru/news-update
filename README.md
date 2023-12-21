@@ -1,11 +1,11 @@
 # Latest News
--  장동훈 "아이들과 청년들의 미래 책임질 적임자"..총선 출마 선언
--  Dolar kaç TL oldu? (21 Aralık 2023 dolar - euro fiyatları)
--  [사진뉴스] 고드름에서 물줄기로...'순간포착'
--  Lufthansa orders 80 planes from Boeing and Airbus for $9 bln
--  L’ictus nel mezzo della vita: "Il mio risveglio spirituale"
--  Ferragni e il pandoro griffato. Aperto fascicolo senza indagati. Il caso in mano al pool anti truffa
--  Tuya Smart to Showcase Its Cutting-edge Technologies and Innovative Solutions at CES 2024
--  Vándalos pintaron los accesos al memorial de Lincoln en Washington
--  서귀포시 지역 환경오염물질 배출 사업장 급증
--  동광리 우사 건축허가 반대 집회 개최
+-  Blackhawk Network, Kakao 및 디즈니+와 제휴
+-  ΔΕΔΔΗ: Διακοπές ρεύματος σε Αθήνα, Άλιμο, Πετρούπολη
+-  Vivek Ramaswamy Hits Out As California Look To Bar Trump From Polls
+-  Bitcoin ETF Approval Can Come Earlier Than Expected, BTC levels To Watch
+-  Billionaires Turn to Legal Bribery in Quest to Build Utopia
+-  Seth Meyers Breaks Down Trump’s Colorado Ballot Nightmare
+-  Justice SK Kaul: A Supreme Court Judge, An Artist
+-  НАСА и Лос Аламос с революционен експеримент - почистване на атмосферата от ядрен взрив
+-  How much cash a person can keep at home? Details of Income Tax rules about cash limits
+-  How the next Kobbie Mainoo is being nurtured as inside story of Man United starlet revealed
