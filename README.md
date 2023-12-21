@@ -1,11 +1,11 @@
 # Latest News
--  장나라·손호준·소이현, '나의 해피엔드' 엄지척
--  손호준·장나라·소이현·이기택 , 화기애애한 분위기
--  Egypt seeks to broker Gaza ceasefire as Hamas, Israel assert demands
--  9 yaşındaki çocuğu istismar eden 81 yaşındaki sapığın savunması: Ben yaşlı başlı adamım
--  طفلك لا يهتم بالدراسة.. تعرّفي على أسباب المشكلة والحل
--  Above 18 Years and No Aadhaar Card? Passport-like verification system now made compulsory
--  VULKANSKA KIŠA STIŽE NA BALKAN Oblaci sa crnim česticama sa Islanda kreću se ka nama, evo kada će udariti na Srbiju
--  가평군, 2023 지방자치어워드 은상 수상
--  의정부 사회복지의 구심점, ‘의정부시 사회복지회관’ 개관
--  남양주시, 평내 체육문화센터 건립 사업...오는 26일 착공
+-  ลิเวอร์พูล คืนฟอร์มถล่ม เวสต์แฮม 5-1 ลิ่วรอบรองฯ คาราบาวคัพ
+-  홍성군, 2023 도민참여예산 활성화 유공 우수기관 선정
+-  함평군, 청소년정책 우수기관 2년 연속 선정 '장관상'
+-  '하남이‧방울이' 지피 조회수 '84만'…하남시, 뉴미디어 활용 홍보 '성과'
+-  목포시 목련봉사회, 아름다운 가게에 기부 물품 700점 전달
+-  '건축계 거장' 김광현 충남도 총괄건축가, 보령 빛돌숲 찾아
+-  보령시의회 의원연구회 활동 성료, 주제별 정책 제안 눈길
+-  진도군, 2024년 연고산업육성사업 공모 S등급 선정
+-  В Германии раскрыли чудовищные данные о потерях ВСУ
+-  Экстренные службы в Краснодаре не получали от жителей сообщений о взрывах
