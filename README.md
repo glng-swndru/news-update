@@ -1,11 +1,11 @@
 # Latest News
--  Carnival Corporation : Melius Research verlaagt advies naar Neutraal
--  Hatay'da 4.1 büyüklüğünde deprem
--  Firari FETÖ'cü Bursa'da kıskıvrak yakalandı
--  To nesitikėjo niekas. Vokiečiams šokas. Kokį dekretą pasirašė Putinas
--  Kalėdos jau ateina! O kaip su pelėmis?
--  Krankenkassenbeiträge steigen immer weiter – für Vollversorgung von Asylanten und Bürgergeldempfängern
--  Incendie de Kaloum : le Président de la HAC « appelle à la solidarité » en faveur des médias impactés
--  버려진 옷의 '새활용'… 세상 단 하나뿐인 패션으로 탄생 [Weekend 스타일]
--  Зелените производители на ток учат изкуството на оцеляване
--  ”Ta bladet från munnen och berätta hur det var!”
+-  Is US on track for an explosive outbreak in care homes this winter? CDC report shows as little as 10% of elderly residents have had their seasonal vaccines
+-  حساب المواطن يحدد الوقت المخصص للاعتراض على الأهلية
+-  عاجل.. "تعليم الرياض" يكشف عن تسمم 9 طالبات ويوضح آخر تطورات حالتهن الصحية
+-  شاهد.. سهول شرق المجمعة تكتسي بالأخضر بعد هطول الأمطار
+-  السد يسحق أم صلال بسداسية ويستعيد قمة الدوري القطري
+-  Speaker Johnson urges Biden to take executive action on the border
+-  Teacher goes viral after revealing the hilarious gift suggestions his 7th grade students made for people in their 30s - from 'bingo cards' to 'hip IMPLANTS'
+-  Fraser-McGurk goes bang!
+-  Fraser-McGurk goes bang!
+-  Analyysi | Sihvonen niputtaa tarkan pelin ottelun: Shakkia kaukalossa á la Kerho ja Sport
