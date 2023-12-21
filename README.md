@@ -1,11 +1,11 @@
 # Latest News
--  이병헌♥︎이민정, 오늘(21일) 둘째 출산
--  [게임소식] 조이시티, '3on3 프리스타일' 신규 캐릭터 '제네사' 업데이트 외
--  "업데이트 1년 전"…유통업계, 메타버스 제페토 진출 후 사실상 방치
--  Gov't to again push for third-party reimbursement plan for forced labor victims
--  새마을금고중앙회, 제19대 회장에 김인 이사장 당선
--  La Unión Europea acuerda reubicar a 30 mil migrantes
--  ‘Es evidente que Trump apoyó una rebelión’, dice Biden
--  Reciben cartas para Santaclós y los Reyes Magos
--  "الأرصاد" تكشف حالة الطقس خلال الـ 6 أيام القادمة.. نشاط رياح وأمطار
--  وزيرا النقل والتعاون الدولي يشهدان توقيع اتفاقية تمويل إنشاء البنية الفوقية لمحطة "تحيا مصر 1"
+-  Marszałek Sejmu: sprawa mediów publicznych domaga się rozwiązania ustawowego
+-  ING Kadınlar Basketbol Süper Ligi başlıyor!
+-  Otoparktaki araçların camlarını kırdı
+-  Roling Stoun odabrao najbolju seriju u 2023. godini: „Poslednja sezona remek-delo“
+-  1860 München im freien Fall: „Scheißgefühl“
+-  NOVARTIS AG : Barclays is nog steeds negatief gestemd
+-  Neue Wasserleitung versorgt Gazastreifen aus Ägypten
+-  Barclays belässt Novartis auf 'Underweight' - Ziel 85 Franken
+-  "2금융권에서 5~7%대로 대출받은 소상공인도 이자환급" 금융위
+-  과기정통부, 내년 공공용 주파수 17.2㎓ 폭 공급
