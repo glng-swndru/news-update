@@ -1,11 +1,51 @@
 # Latest News
--  Πανέτοιμο το νέο Hilux της Toyota Gazoo Racing για το Dakar
--  شجرة عيد الميلاد في الفضاء.. «ناسا» ترصد مشهدا مذهلا
--  Israel-Hamas War: హమాస్‌తో యుద్ధంలో కీలక పరిణామం.. కమాండ్ సెంటర్ ఇజ్రాయెల్ అధీనం
--  Gold prices dip in Pakistan in line with international trend
--  한양대, 서울대·카이스트 이어 'AI 반도체대학원' 개원
--  "내 면역세포로 암세포 제거"…UNIST, 'NK 세포전달 나노드론' 개발
--  UK bans Rimmel makeup ad for 'playing on young girls' insecurities'
--  5 times wild animals were spotted roaming SA's streets this year
--  Police appeal to public for info related to Delft triple murder
--  Transport Dept 'trying everything' to curb long-haul bus attacks - Chikunga
+-  Corona-Zahlen im Landkreis Rotenburg (Wümme) aktuell: Inzidenz für Landkreis Rotenburg (Wümme), Niedersachsen und Deutschland
+-  Corona-Zahlen im Landkreis Osterholz aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Landkreis Lüneburg aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: Inzidenz für Landkreis Lüchow-Dannenberg, Niedersachsen und Deutschland
+-  ד"ש מהשטח: פרטנר וצה"ל ישלחו גלויות מהלוחמים למשפחות
+-  Temporary rail line closures begin Saturday for 10 months
+-  Corona-Zahlen im Landkreis Harburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Dohoda ministrů financí EU cílí na rozpočtovou odpovědnost členských vlád
+-  Corona-Zahlen im Landkreis Cuxhaven aktuell: Neuinfektionen für Landkreis Cuxhaven, Niedersachsen und Deutschland
+-  Corona-Zahlen im Landkreis Celle aktuell: Neuinfektionen für Landkreis Celle, Niedersachsen und Deutschland
+-  제주 관련 국비 13개 사업 예산 추가 확보...현안 사업 미반영도
+-  Cyclist, 45, killed in hit-and-run accident on Nicoll Highway, driver, 33, arrested
+-  Corona-Zahlen im Landkreis Schaumburg aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  F1 S'pore Grand Prix 2023 lauded as 'Best Race' of season by international motorsport community
+-  Corona-Zahlen im Landkreis Nienburg (Weser) aktuell: Neuinfektionen für Landkreis Nienburg (Weser), Niedersachsen und Deutschland
+-  Graf dne - CADJPY po zveřejnění ek. prognózy japonské vlády
+-  Corona-Zahlen im Landkreis Holzminden aktuell: Zahlen und Fakten aus der Region
+-  Diagnóstico acertado de Julio Velázquez: «Nos pegamos un tiro en los pies»
+-  Symptoms of little-known STI that could cause cancer as alert is raised
+-  Corona-Zahlen im Landkreis Hildesheim aktuell: Neuinfektionen für Landkreis Hildesheim, Niedersachsen und Deutschland
+-  Corona-Zahlen im Landkreis Hameln-Pyrmont aktuell: Neuinfektionen für Landkreis Hameln-Pyrmont, Niedersachsen und Deutschland
+-  أرباح بملايين الدولارات.. شركة صينية تقترح استخراج المعادن من مخلفات المياه المالحة بقناة السويس
+-  سكين وحديدة وشطة.. أسرار التوصيلة الأخيرة في مقتل طالب بمنشأة القناطر
+-  "الإسكان "توقع مذكرة تفاهم مع زيمبابوي لتوفير وحدات منخفضة ومتوسطة التكاليف
+-  جيش الاحتلال: إصابة 8 جنود إسرائيليين في معارك شمال وجنوب غزة
+-  صرخة يابانية تثير لغزا داخل فندق بالهرم
+-  جيش الاحتلال: قصفنا 230 هدفًا لحماس في غزة أمس
+-  لعدم تركيب الملصق.. سحب 1700 رخصة قيادة في 24 ساعة
+-  "البنك الأفريقي للتنمية" يسحب جميع موظفيه الدوليين من إثيوبيا
+-  Corona-Zahlen im Landkreis Diepholz aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Araç sahipleri dikkat! Motorine zam geliyor! İşte güncel fiyat listesi
+-  UEFA ve FIFA şokta! Adalet divanı karar verdi
+-  Unbekannte brechen in Wohnmobil ein
+-  Yola çıkacaklar dikkat! Kapatılıyor
+-  Corona-Zahlen im Landkreis Region Hannover aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  맨유, 쿠보 영입 나선다...'1400억 먹튀' 안토니 대체자로 낙점!→이적료 700억
+-  '패스와 움직임으로 상대 수비진 무너뜨렸다'→이강인, 음바페와 함께 최고 평점
+-  Corona-Zahlen im Landkreis Wolfenbüttel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Landkreis Peine aktuell: Die Coronavirus-News aus der Region
+-  Un dezvoltator imobiliar a obținut desființarea Asociației Salvați Bucureștiul în instanță / Decizia nu este definitivă
+-  Corona-Zahlen im Landkreis Northeim aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Helmstedt aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Landkreis Gifhorn aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Goslar aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen in Wolfsburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Какими подарками наполнить адвент-календарь? Делаем своими руками
+-  Poľský prezident Andrej Duda kritizuje kroky novej vlády pri reforme verejnoprávnych médií
+-  بطاقة المتقاعد.. للموظف أم المتقاعد فقط؟
+-  للثانوية فأعلى.. وظائف شاغرة بالشؤون الصحية بوزارة الحرس الوطني
+-  Corona-Zahlen in Salzgitter aktuell: RKI-Fallzahlen, Impfquoten und mehr
