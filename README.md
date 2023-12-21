@@ -1,51 +1,51 @@
 # Latest News
--  VIDEO. "Il y a des éléments troublants" : Cyril Hanouna dézingue le "Complément d'enquête" sur Depardieu et appelle Tristan Waleckx
--  Гуардиола: Никога не сме срещали отбор, който играе като Флуминензе
--  Jyrki Aho sai potkut Ranskassa – Syy on raadollinen
--  Italien blockiert Reform des Euro-Rettungsfonds
--  برنامج ريف: 5 منتجات وأنشطة مشمولة بالدعم في الدوادمي
--  ما حكم قتل الفئران باللاصق وتركها للموت تحت أشعة الشمس؟
--  Εξιχνιάστηκε απάτη 200 χιλιάδων ευρώ σε βάρος στοιχηματικής εταιρείας
--  Hallan por primera vez un diente de megalodón incrustado en el fondo marino
--  Nach Amtsmissbrauch in Polen: Knast für zwei PiS-Politiker
--  Soccer-UEFA President Ceferin mocks 'fantastic' Super League
--  Former Buccaneer Mike Williams' cause of death confirmed by officials
--  ЦСКА 1948 договори Русев в Швейцария
--  US Finds Fewer Cases of Avian Flu in Wild Birds, Good Sign for Poultry
--  حجز ملف قضيّة رضا شرف الدين للتصريح بالحكم
--  Hajj 2024: Kaduna pilgrims agency calls for increased registration as deadline draws closer
--  Wind turbines beat production record as Storm Pia descends
--  The Finals temporada 2: fecha de salida y contenido
--  Extreme E's Final Race As An EV Series Will Take Place In America
--  Coinbase secures crypto license in France, pushing deeper in Europe amid rift with the SEC
--  Radiografía del saqueo: Ana Lilia Pérez desnuda el 'modus operandi' del neoliberalismo en México
--  حكم تاريخي من محكمة العدل الأوروبية بخصوص بطولة دوري السوبر
--  أنغولا تعلن انسحابها من (أوبك)
--  الاحتلال ينسف منطقة مسجد فلسطين في حي الرمال
--  روسيا: الغرب غير جاهز لتفعيل حل الدولتين
--  5 مدربين على طاولة الوحدات
--  الخدمات الطبية تعلن 24 و 31 كانون أول عطلة في مستشفياتها
--  Τέλος από τον Ιωνικό ο Σίμος
--  Jeu-concours NBA Paris Game avec ParionsSport : gagnez vos places pour tenter le shoot à 100 000 € !
--  Ultimate couples in football rich list, as Ronaldo and Rodriguez’s wealth is revealed – but they are not No1
--  Horizon: Ein offizielles Kochbuch mit über 60 Rezepten kommt
--  Guerre en Ukraine EN DIRECT : Deux femmes tuées par des frappes russes dans le sud du pays…
--  Guerre Hamas – Israël : Le conflit a fait 20.000 morts à Gaza, selon le Hamas
--  Jordanie : Emmanuel Macron se rend dans le royaume pour fêter Noël avec des militaires français
--  Espagne : L'Eglise minimise largement le bilan des victimes de pédocriminalité dans ses rangs
--  Présidentielle américaine 2024 : La question de l'inéligibilité de Donald Trump plonge l'élection dans l'inconnu
--  Intelligence artificielle : Non, cette vidéo de Poutine ne prouve pas que l'homme n'a jamais marché sur la lune
--  La Croatie déchirée sur l'inscription du féminicide dans la loi
--  Argentine : Le nouveau président annonce une dérégulation massive de l'économie
--  Suède : Des protections périodiques pour les appelées sous les drapeaux
--  Chine : Un séisme fait au moins 135 morts
--  Kim Jong-un droht mit Atomangriff: Nordkorea wird „nicht zögern“
--  Kim Jong-un droht mit Atomangriff: Nordkorea wird „nicht zögern“
--  Police want to install luggage scanners, archways at Dhaka metro rail stations
--  Bigg Boss 17: Ayesha Khan styles Munawar Faruqui`s hair
--  Gabi Novak o posljednjoj želji Arsena Dedića: ‘Žao mi je što mu je nisam ispunila’
--  Bahçesine giren eski eniştesini öldürmüştü: Karartı görünce o yöne ateş ettim
--  Şanlıurfa'da yemekten sonra rahatsızlanan 150 öğrenci hastaneye kaldırıldı
--  La Caixa reunirá su colección en el nuevo centro ArtStudio de L'Hospitalet de Llobregat
--  La Caixa reunirá su colección en el nuevo centro ArtStudio de L'Hospitalet de Llobregat
--  Булс и Лейкърс правят размяна между ЛаВийн и Ръсел?
+-  Pokemon Go player “buzzing” after catching one of rarest Shinys
+-  Podemos 'quita' a UPN el altavoz sanitario del Grupo Mixto en el Congreso
+-  Más relatos sobre la invasión
+-  اللجنة النقابية بجريدة الوفد تعلق الاعتصام بعد تحقيق جزئي للمطالب
+-  وزير الخارجية التركي: مواصلة جهود وقف إطلاق النار في غزة
+-  المقاومة تعلن قنص جنديين إسرائيليين في محيط مسجد فلسطين بمدينة غزة
+-  بسبب الدولار.. بنوك تدرس وقف عمل "الكريدت كارد" المصدر حديثا خارج مصر
+-  Cae presunto extorsionador en Operación Haker
+-  President Ranil engages in dialogue with Tamil MPs from North and East
+-  Μακελειό στην Πράγα: Τουλάχιστον 11 νεκροί και 24 τραυματίες από τους πυροβολισμούς σε πανεπιστήμιο
+-  Alterra Mountain Company Celebrates Art & Culture of the Mountains With Forward Stance Studio
+-  Science-fiction : Et si les Pistons gagnaient un match de basket-ball ce soir ?
+-  Καραπαπάς στη συνάντηση με Βρούτση: «Δεν υπάρχει αθλητική ή οπαδική βία, αλλά κοινωνική, βαρέθηκα να ακούω για οπαδικούς στρατούς»
+-  FC Volendam gaat langer door met trainers Michael Dingsdag en Regillio Simons
+-  FC Volendam gaat langer door met trainers Michael Dingsdag en Regillio Simons
+-  Eliminoi Inter, Thiago Motta: “Zirkzee fantastik, duhet të vazhdojë kështu”
+-  Ime leta 2023 na Valu 202 je Primož Roglič
+-  Ime leta 2023 na Valu 202 je Primož Roglič
+-  تحقيق "لواشنطن بوست" يفند رواية الاحتلال عن وجود أنفاق بمجمع الشفاء في غزة
+-  Избоскан туманининг собиқ ҳокими қамоққа олинди .
+-  Мудофаа вазирлиги Ўзбекистон ўз хавфсизлигини таъминлаш учун етарли Қуролли кучларга эгалигини эслатди.
+-  PHOTOS – Inside Cassper Nyovest’s star-studded birthday party
+-  (VIDEO) Ceca Ražnatović ZAPOSLILA AZIJATKINJU U VILI NA DEDINJU Evo kako izgleda njena nova kućna pomoćnica
+-  Tiroteo en Universidad Carolina de Praga, República Checa, deja varios muertos y heridos
+-  مجلس الوزراء الفلسطيني: الاحتفالات بعيد الميلاد تقتصر على الشعائر الدينية فقط
+-  देश की खबरें | ओडिशा की शराब कंपनी में हालिया तलाशी अभियान में 351 करोड़ रुपये से अधिक नकदी जब्त: सीबीडीटी
+-  Prahassa joukkoampuminen yliopistossa, runsaasti uhreja
+-  Prahassa joukkoampuminen yliopistossa, runsaasti uhreja
+-  HSK Mazeret Kararnamesi tamamlandı! 504 hakim ve savcının görev yerleri değişti
+-  Putin poručio Americi i EU: 'Prestanite se glupirati'
+-  [Ekstra] Mulig vei rundt eksportforbud: Ukraina trenger luftvernmissiler – hjelpa kan komme fra Japan
+-  Mener zeolitt-mineraler er løsningen: Skal fange CO2 direkte fra luften
+-  BEŞİKTAŞ ALANYASPOR MAÇI CANLI İZLE! Beşiktaş Alanyaspor maçı saat kaçta, hangi kanalda? Maç nerede oynanacak? İşte Beşiktaş Alanyaspor maçı kadrosu
+-  Weniger Bürokratie und mehr Digitalisierung?
+-  Genetec shares top physical security trends for 2024
+-  Potret Korban Gempa China Berjuang Melawan Dingin di Pengungsian
+-  Park with Purpose: ZipBy’s Annual Drive to Donate for Greater Vancouver Food Bank!
+-  Nevjerovatna fotografija: Studenti nisu birali način da se spase od ubice
+-  Algunos consejos para proteger la salud mental en los más pequeños, según expertos
+-  Силовики задержали пять человек, которые помогали белорусам с получением карты поляка
+-  'Ten' dead and dozens wounded in Prague university shooting: Students balance on high ledge as they hide from gunman and terrified crowds flee across tourist spot bridge before shooter 'eliminated'
+-  Bez podrške inicijativi za smjenu ministra Košarca
+-  Borussia Dortmund: Terzic-Entscheidung wohl gefallen! SO geht es beim BVB weiter
+-  Horrifying moment young couple accidentally film 'Canadian' tourist, 76, being killed in a terrifying 'shark attack' just meters away while they frolic with their toddler on a Mexican beach
+-  С февраля 2024 года в Вильнюсе и некоторых районах Литвы подорожает холодная вода
+-  'Past Lives' star Greta Lee, 'Color Purple' costumer Francine Jamison-Tanchuck join The Envelope
+-  जम्मू-कश्मीर: पुंछ में सेना की गाड़ी पर आतंकी हमला, 3 जवान शहीद
+-  How to restore energy & health in Avatar: Frontiers of Pandora
+-  „Noch nie betrunken“: Früherer Butler enthüllt Trinkgewohnheiten der Royals
+-  Schulterschluss beim BVB: Terzic bleibt Trainer
