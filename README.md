@@ -1,51 +1,51 @@
 # Latest News
--  Yeni varyant açıklaması: Yayılım hızı çok yüksek
--  Bakan Bolat, Cabbarov'la görüştü
--  Marmara Denizi'nde deprem
--  İsrail, Gazze'deki hükümetin Medya Ofisi ile ona ait bir basın kuruluşunu bombaladı
--  Ben-Gvir: Saldırılar azalırsa Savaş Kabinesi'nin dağıtılması gerekiyor
--  Adalet Divanı'nı Avrupa Süper Ligi kararına İspanya'dan ilk tepkiler
--  Kızıldeniz'deki saldırılar Süveyş Kanalı'ndan geçişleri tehlikeye atarken eski ticaret rotası yeniden gündemde
--  Çifte cinayet işlenen Beylikdüzü katliamında yargılama sürüyor
--  Filistinli direniş gruplarından yeni karar! Hamas duyurdu
--  Подозреваемый в убийстве бывшей жены в Череповецком районе предстанет в суде
--  На Дону пострадавший водитель «БМВ» ищет свидетелей аварии
--  В Белгороде впервые проходят Всероссийские соревнования «Игры несклоняемых»
--  Mandić - Meken: Borba protiv kriminala i korupcije ključna oblast...
--  Производство электрооборудования в Александрове будет расширено
--  Πανσερραϊκός – ΑΕΚ: Σέντρα στις 17:00
--  Предложение Захара Прилепина присоединить территории Узбекистана вызвало дипломатический скандал
--  Wall Street åpner opp
--  Keine Abstimmung über Gesetz für die Pensionskasse des Staatspersonals
--  Hrvatska pošta izdala prigodni žig povodom 10. godišnjice referenduma o braku
--  Not Being Able to Burp Actually Sounds Pretty Horrific
--  Hundreds alleged assault by youth detention workers. Years later, most suspects face no charges
--  Holocaust past meets Amsterdam present in Steve McQueen's 'Occupied City'
--  Hövding begär sig själva i konkurs
--  К услугам Центра поддержки экспорта прибегли 195 компаний Мурманской области
--  Young open cluster Messier 39 investigated in detail
--  أخبار السعودية.. تحويل الدراسة عن بعد في هذه الحالات وتحذير من الدفاع المدني لسكان المدينة وتبوك
--  بتوجيه من ولي العهد .. وزير الدفاع يصل العاصمة البريطانية لندن في زيارةٍ رسمية
--  Mies katseli paloa, joka järkytti joulun rauhaa Rautjärvellä – Sitten epäilty löytyi kuolleena
--  Glen Powell Is the Rom-Com Stud We Deserve
--  Пострадавший от пожара отель Kamarooms в Челнах откроют в начале 2024 года
--  Odbor nije predložio kandidate za DIK
--  Sein Herz schlug für den Bergbau und die Kumpel: Halterner Michael Albers starb mit 65 Jahren
--  Uyuşturucuyla mücadele sürüyor: Düzenlenen operasyonunda 6 şüpheli yakalandı
--  Hamas Tak Mau Tukar Sandera dengan Gencatan Senjata
--  Şeflerin tabağını aratmayan tarif! Yiyen kendini lokantada sanacak, işte elti çatlatan kağıt kebabı tarifi
--  Gokkers moeten zich eerder verantwoorden als ze veel geld storten op goksite
--  Deputados italianos rejeitam reforma do fundo de resgate da zona euro
--  Malegoan News : मालेगाव महापालिकेचा भोंगळ कारभार, विविध विभागातील फाईल्स बाजार पेठेतील रस्त्यावर
--  Kamiński i Wąsik bez mandatów poselskich. Reaguje prezydent
--  Metalen zitten het hele jaar vast tussen oude en nieuwe cycli: Andy Home
--  Kent Police suspect fire at Margate High Street address is 'arson' as woman in hospital and residents evacuated
--  Why is DJ Ace leaving Radio 1Xtra?
--  El cinismo de Sturzenegger y Feinmann con el cacerolazo: "Qué rápido que leyeron el DNU"
--  В Курске перекроют движение транспорта по мосту на улице Малых
--  Chef Haryo Meninggal, Unggahan 9 Hari Lalu Pesan Terakhir untuk Putranya
--  Muğla'da belediye ekipleri yağmur mesaisinde
--  Hasipoğlu: Geçmişi unutmayacağız, unutturmayacağız
--  Borað á Gálmaströnd
--  Keine spürbare Zunahme der Diebstähle durch SB-Kassen
--  Reprezentant kraju w Śląsku Wrocław! Jest pierwszy transfer
+-  5 صفات تتميز بها القصيرات دون عن غيرها
+-  جاهة المهندس مؤمن سامي ياسين
+-  48 عاما وراء القضبان.. البراءة لصاحب أطول حكم ظالم في تاريخ أمريكا
+-  تراجع نشاط ميناء إيلات بنسبة 85% بسبب هجمات الحوثيين
+-  6 فوائد مذهلة للخس أبرزها لمرضى السكر.. احرصوا على تناوله
+-  Непреземање на големи чекори во справување со аерозагадувањето е срам и трагедија за цела држава, реагираат од „О2 Иницијатива“
+-  TCL to Showcase Leading Technology Portfolio and Solutions to Inspire Greatness at CES 2024
+-  Xinhua Silk Road: 해외 방문객, 텅저우의 특별한 문화 매력 경험
+-  Chiny zakazały eksportu kluczowych technologii. Powodem bezpieczeństwo narodowe
+-  Rosja wydała już na wsparcie sektora lotniczego ponad 12 mld USD
+-  Shares of Warner Bros. Discovery, Paramount Dip as Investors Take Stock of Potential Merger
+-  MTV: Järisyttävä uutispaukku - tässä on mestarivalmentaja Pekka Virran uusi seura
+-  Ky kalkulator parashikon se kur do të vdisni – me një saktësi të frikshme
+-  Citypress | SA Tourism employees say acting CEO Nombulelo Guliwe is an 'insulting bully out for revenge'
+-  Hövding ansöker om konkurs
+-  BioMarin appeases an activist
+-  CCBS PREZANTON RAPORTIN E PARË TË QËNDRUESHMËRISË, PËR NJË QASJE TË CERTIFIKUAR DHE PRAGMATIKE NDAJ PËRGJEGJËSISË SOCIALE
+-  Tube passenger accused of shoving a commuter onto the tracks and attacking another stranger denies attempted murder
+-  Edona e ashpër me Ganinë: Ti je alkoolik, dil jashtë dhe kërko ndihmë tek doktori sepse ke një problem të madh
+-  Reps Demand List Of Institutions Conducting Illegal Admissions From JAMB
+-  Firli Bahuri Minta Maaf ke Rakyat Indonesia
+-  Fuerte explosión de polvorín deja daños materiales en San Gabriel Chilac
+-  Glasgow organisations hosting free Christmas dinners this year for those struggling
+-  Luton v Newcastle 8/1 BuildABet: BTTS, Wilson to score, Adebayo 1+ SOT, Guimaraes 1+ foul with Sky Bet
+-  Bancada de Libre a reunión a las 9 de la mañana de este jueves
+-  TV조선 추천 인사의 TV조선 선거방송 심의 결과는 '문제없음'
+-  젊은 기자들이 만든 Q저널리즘상, ‘제1회’ 시상식 열렸다
+-  European Commission projects moderate growth trajectory for Cyprus
+-  Обновеният стрелбищен комплекс "Гео Милев" ще бъде открит до три месеца
+-  Zabudni na počítače na školách. Tento slovenský startup mení školstvo aj za našimi hranicami
+-  İkinci el araç alıp satanlar dikkat!
+-  Minister David Burch Applauds SDP Graduates
+-  Albanian asylum seeker, 27, died by hanging himself on board Bibby Stockholm barge, inquest hears
+-  Albanian asylum seeker, 27, died by hanging himself on board Bibby Stockholm barge, inquest hears
+-  «Цифры немаленькие»: Силуанов напомнил о замороженных в России активах Запада
+-  EastEnders is hit by HUGE scheduling shake-up ahead of blockbuster Christmas episode - as fans count down to THAT body reveal
+-  Researchers create first programmable, logical quantum processor
+-  Full list of trains cancelled as Storm Pia causes trees to fall on tracks across West Midlands
+-  'Türkiye'nin en kötü yemeği' seçilmişti... Satışları patladı, fiyatı iki katına çıktı!
+-  Marmara Denizi'nde deprem!
+-  El picante ultimátum del presidente de Huracán a Diego Martínez, con Boca en el medio: "Si no paga, vamos a..."
+-  Neue Regel auch in Deutschland: Was sich an Autobahnen bald ändern dürfte
+-  Toman experiencia de AL en reducción de jornada laboral
+-  Presidenti i UEFA-s reagon pas vendimit për Superligën Evropiane, thumbon Real Madridin dhe Barcelonën
+-  KAD SAM MUŽU REKLA ŠTA MI RADI SVEKRVA, DOBILA SAM ULTIMATUM! Ispovest Dijane - "Smestila mi je i tad je sve ESKALIRALO"
+-  Glamorous prison officer who admitted having phone sex with jailed drug-dealing gangster is cleared of illicit affair after claiming she only took his calls to 'pacify' him
+-  ये पहाड़ी फूड शाकाहारियों के लिए ताकतवर व्यंजन, चटनी-शहद से खाओ, स्वाद लाजवाब
+-  Insändare. ”Låt flera olika föreningar nominera nämndemän”
+-  নির্বাচনী প্রচারণায় ভিন্ন মাত্রা, ক্ষুদেবার্তায় ভোট চাইতে পারবেন প্রার্থীরা
+-  Ајдин Османовиќ, момчето со волшебен глас се сретна со Пендаровски
