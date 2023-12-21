@@ -1,51 +1,51 @@
 # Latest News
--  '양구군청 펜싱클럽' 첫 대회 출전에 동메달 입상 쾌거
--  สสจ.เพชรบุรี แจงปมสาว 25 ปีเสียชีวิตหลังถอนฟัน เหตุป่วยมะเร็ง
--  ปัดรัฐบาลแทรกแซง "ขึ้นค่าแรงขั้นต่ำ" ทบทวนเพื่อแรงงาน
--  UBA rewards 74 customers
--  وول ستريت جورنال: حماس تتمسك بوقف إطلاق النار وترفض هدنة إسرائيلية مؤقتة لمدة أسبوع
--  Soccerladuma | Pirates To Listen To Ofori Offers?
--  Soccerladuma | Klopp Names Favourite EPL Player Outside Of Liverpool
--  Bulls overwhelm Lakers with 8 double-figure scorers
--  ΕΦΚΑ: Οι νέες εισφορές για τους ελεύθερους επαγγελματίες - Mέχρι πότε η επιλογή και ποια η διαδικασία
--  В Индонезии обвинили НАТО в начале конфликта на Украине
--  Pohjois-Korea lähettänyt Venäjälle yli tuhat konttia ammuksia
--  창녕군, 경상남도 규제혁신 우수사례 경진대회 '우수상 ' 받아
--  밀양시의회 석희억 부의장, 강창오 총무위원장, 정희정 산업건
--  김해 출신 골프선수 최혜진, 김해시 방문 "미국서도 전국
--  사천축협 우량암소 인증서 수여
--  남해군의회 장영자, 박종식 의원 의정봉사상 수상
--  جمهور فلومينينسي يسخر من غوارديولا بطريقة غريبة
--  الاحتلال يطالب بإخلاء السكان من خانيونس
--  وفاتان بانفجار إطار شاحنة في عمان
--  الصقور تحرس محاصيل العنب الأمريكية
--  الاحتلال يعلن عن إصابة 5 جنود بجراح خطيرة بمعارك خانيونس
--  تحوّل الكلاب إلى أليفة يجعل لون عيونها فاتحاً
--  Madras HC sentences DMK minister K Ponmudy to 3 yrs in prison in disproportionate assets case
--  Kako je glasala srpska dijaspora u Njemačkoj?
--  Amerikaan die 48 jaar onschuldig vastzat eindelijk vrij
--  Hyderabad: CP invokes 107 CrPC to maintain peace
--  Дипмиссия РФ опровергла сообщение, что 200 тыс. россиян посетят Шри-Ланку в 2024 году
--  В Приморье на 30% выросло число поручительств для получения бизнесом кредитов
--  30分放置するだけでピカピカに。カビ掃除が1ヶ月1回になるぞ
--  Thomas says Albury Wodonga Health won't be split up under new plan
--  Nervous Christmas wait for Keneally’s son with jail ‘hanging over head’
--  ROUNDUP: Mützenich warnt wegen Einsparungen vor Spaltung der Gesellschaft
--  ROUNDUP: Russland fliegt Drohnenangriffe auf Ukraine - Die Nacht im Überblick
--  ROUNDUP: Ein Jahr Lieferkettengesetz - wie wirksam sind die Regeln?
--  Dunki Twitter reviews: Shah Rukh Khan-Taapsee Pannu lack chemistry, Vicky Kaushal is the highlight
--  ROUNDUP/Netanjahu: Krieg gegen Hamas 'bis zum Ende' - Die Nacht im Überblick
--  스파크랩, 제조 공정 생산성 솔루션 기업 ‘앰버로드’에 시드 투자
--  이호재 KT넥스알 대표 “성장전략 목표 ‘ABC’…고객과 동반성장”
--  에누리 가격비교, 2023년 하반기 히트브랜드 발표
--  How to Identify Fake 5000 Rs Notes? State Bank Released Video Guide
--  Un nouveau Burger King ouvre ce jeudi midi dans le Pas-de-Calais : voici où
--  TS News: వడ్డీ వ్యాపారి ఇంటిపై ముగ్గురు మహిళల దాడి
--  Podd: Efter attacken tystnade mobilen – vem kan skydda Gazas civilbefolkning?
--  Loans created assets: Former TS finance minister T Harish Rao
--  Россиянка расправилась с мужем из-за алкоголя и попала под суд
--  حرب الرئاسة بدأت… والتعيين غصباً عن باسيل!
--  В Сахалинской области сообщили о появлении услуг связи во всех малых селах региона
--  Dette visste du kanskje ikke om julefilmen «Elf»
--  France paves way for return of Indigenous Australian remains
--  מרק עוף אמיתי, שלב אחר שלב
+-  Govt. expects of over US $ 4 b gross official reserves by end December
+-  Secret cop pleads not guilty to drink driving
+-  Noel en entreprise : quand Christmas party rime avec écologie
+-  سابق چیف جسٹس ثاقب نثار کے گھر پر گرنیڈ حملے کا مقدمہ درج
+-  ‘อนุทิน’ ขึ้นเหนือตรวจสถานบันเทิงเชียงใหม่ เล็งเพิ่มชั่วโมงจำหน่าย ‘แอลกอฮอล์’
+-  สุดว้าว 'ทะเลบัวแดง'บานสะพรั่งเต็ม'อ่างเก็บน้ำหนองคอกช้าง'นครพนม
+-  โกงเวลาติดคุก!‘ราเมศ’ฟันเปรี้ยงความอยุติธรรมเรื่อง‘ทักษิณ’คือจุบจบของรัฐบาล
+-  ‘กมธ.ตำรวจ’บี้ง้างปาก‘ราชทัณฑ์’ ยันบุกชั้น14 ฉะปม‘ทักษิณ’2มาตรฐานก็อยู่ยาก
+-  ‘โรม’รับตอบยาก! ‘ก้าวไกล’ผนึกรวม‘ร่างกม.นิรโทษฯ’จากสารพัดพรรคหรือไม่?
+-  เดินหน้าเพิ่มค่าแรง! รัฐบาลรับทราบมติไตรภาคีคงค่าจ้างตามเดิม
+-  ไม่รอด! ตำรวจมุกดาหารเห็นท่าทีมีพิรุธ สกัดจับยาบ้า1.2ล้านเม็ด
+-  ‘ต่อ เรืองฤทธิ์’ ดาราดัง ถูกตำรวจจับเมาขับ ผลตรวจวัดสูงถึง 235 มิลลิกรัมเปอร์เซ็นต์
+-  ลุ้นรอเลย!!! ‘ก.อุตสาหกรรม’เตรียมของขวัญปีใหม่ให้ประชาชน
+-  หมดยุคการเมืองน้ำเน่า‘อนุทิน’ลุยแก้ฝุ่นPM2.5เชียงใหม่ ชี้รัฐบาลช่วยกันทำงาน ไร้เตะเจาะยาง
+-  以加快农业农村现代化更好推进中国式现代化建设（社论）
+-  为加快建设农业强国而努力奋斗——从中央农村工作会议看2024年“三农”工作战略部署
+-  数读中国 | 六组数据读懂“丰收答卷”因何而来
+-  开创乡村全面振兴新局面
+-  着力扩大国内需求——从中央经济工作会议听“动力”
+-  前11月我国多项经济运行指标回升向好
+-  我国交通运输经济持续稳定恢复 “人享其行、物畅其流”的美好愿景正加快成为现实
+-  冬季地震灾后注意防范人体失温 这些知识请收藏并转发
+-  【追梦火焰蓝 守护万家灯火】谭远林：加入消防队伍最光荣
+-  震后做好这“六防”很重要！
+-  “两节”期间粮油肉蛋菜市场供给充裕 为群众欢度节日营造良好环境
+-  焦点访谈：八方驰援 共渡难关
+-  积石山6.2级地震|“报告校长，孩子们全部安全撤离到操场了！”
+-  有衣穿 有饭吃 不受冻——甘肃积石山县6.2级地震灾区见闻
+-  建行益阳市分行成功堵截一起电信网络诈骗
+-  旗舰实至名归：希影H9 Max获得华为商城双节单品销售额和销量双Top1
+-  首届盐田山海国际公路自行车赛迎寒流劲风顺利完赛
+-  筑就音乐梦想，施坦威举办钢琴比赛助力中国音乐教育事业的发展
+-  湘潭：举报环境违法行为有奖！最高奖励6000元
+-  康姿百德床垫效果舒适与全方位支撑，助您每晚享受健康睡眠
+-  「阿根廷牛肉尊享季」圆满落幕！赴暖冬之约，享丰腴滋味！
+-  如何完成滑雪初体验？奥地利红牛：保持勇敢，享受不设限人生
+-  热评丨醉驾新规：刑事政策宽严相济，不是放松打击
+-  数读中国这十年｜新增就业年均1300万人 建成世界最大社保体系
+-  中国红十字会总会向甘肃、青海灾区追加调拨第二批救灾物资
+-  “两高两部”印发关于办理醉酒危险驾驶刑事案件的意见 坚持严格依法办案 加强醉驾综合治理
+-  新华解码|新一轮保障性住房建设启动，保障谁？怎么保？谁来建？
+-  甘肃积石山6.2级地震：群众饮水受到影响问题基本能得到解决
+-  青海震区见闻：冰点气温下的温暖爱心餐
+-  “一人一策”制定诊疗方案 地震灾区医疗力量加强 争分夺秒全力救治
+-  医保服务“一车送达”！“流动医院”保障群众严寒天气享受便捷医疗服务
+-  食品和御寒物资陆续运抵 记者探访青海草滩村群众集中安置点
+-  航拍大河家镇安置点震后第一夜 救灾帐篷有序安置
+-  低温环境下 该如何在震后保护好自己？
+-  震区可爱的孩子们 我们和月亮一起守护你
+-  【党旗在基层一线高高飘扬】无畏艰险 奋战在救援一线
