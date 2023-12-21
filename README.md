@@ -1,11 +1,51 @@
 # Latest News
--  Başakşehir'den Avrupa Süper Ligi kararı
--  İYİ Parti'de Ankara depremi! 4 ilçe başkanı görevden alındı
--  Signa-Gruppe löst prominent besetzen Beirat auf
+-  VIDEO. "Il y a des éléments troublants" : Cyril Hanouna dézingue le "Complément d'enquête" sur Depardieu et appelle Tristan Waleckx
+-  Гуардиола: Никога не сме срещали отбор, който играе като Флуминензе
+-  Jyrki Aho sai potkut Ranskassa – Syy on raadollinen
 -  Italien blockiert Reform des Euro-Rettungsfonds
--  Emma Daumas poste une photo de ses retrouvailles avec des anciens élèves de sa promotion de la Star Academy
--  Prague university shooting leaves ‘several’ dead, police say
--  Prague university shooting leaves ‘several’ dead, police say
--  Love for elephants leads Ain to become a mahout
--  Zahlreiche Unfälle wegen Alkohol und Betäubungsmitteln
--  Bizarný prípad! Muž si na svoj účet vložil falošné bankovky: Teraz mu hrozí väzenie
+-  برنامج ريف: 5 منتجات وأنشطة مشمولة بالدعم في الدوادمي
+-  ما حكم قتل الفئران باللاصق وتركها للموت تحت أشعة الشمس؟
+-  Εξιχνιάστηκε απάτη 200 χιλιάδων ευρώ σε βάρος στοιχηματικής εταιρείας
+-  Hallan por primera vez un diente de megalodón incrustado en el fondo marino
+-  Nach Amtsmissbrauch in Polen: Knast für zwei PiS-Politiker
+-  Soccer-UEFA President Ceferin mocks 'fantastic' Super League
+-  Former Buccaneer Mike Williams' cause of death confirmed by officials
+-  ЦСКА 1948 договори Русев в Швейцария
+-  US Finds Fewer Cases of Avian Flu in Wild Birds, Good Sign for Poultry
+-  حجز ملف قضيّة رضا شرف الدين للتصريح بالحكم
+-  Hajj 2024: Kaduna pilgrims agency calls for increased registration as deadline draws closer
+-  Wind turbines beat production record as Storm Pia descends
+-  The Finals temporada 2: fecha de salida y contenido
+-  Extreme E's Final Race As An EV Series Will Take Place In America
+-  Coinbase secures crypto license in France, pushing deeper in Europe amid rift with the SEC
+-  Radiografía del saqueo: Ana Lilia Pérez desnuda el 'modus operandi' del neoliberalismo en México
+-  حكم تاريخي من محكمة العدل الأوروبية بخصوص بطولة دوري السوبر
+-  أنغولا تعلن انسحابها من (أوبك)
+-  الاحتلال ينسف منطقة مسجد فلسطين في حي الرمال
+-  روسيا: الغرب غير جاهز لتفعيل حل الدولتين
+-  5 مدربين على طاولة الوحدات
+-  الخدمات الطبية تعلن 24 و 31 كانون أول عطلة في مستشفياتها
+-  Τέλος από τον Ιωνικό ο Σίμος
+-  Jeu-concours NBA Paris Game avec ParionsSport : gagnez vos places pour tenter le shoot à 100 000 € !
+-  Ultimate couples in football rich list, as Ronaldo and Rodriguez’s wealth is revealed – but they are not No1
+-  Horizon: Ein offizielles Kochbuch mit über 60 Rezepten kommt
+-  Guerre en Ukraine EN DIRECT : Deux femmes tuées par des frappes russes dans le sud du pays…
+-  Guerre Hamas – Israël : Le conflit a fait 20.000 morts à Gaza, selon le Hamas
+-  Jordanie : Emmanuel Macron se rend dans le royaume pour fêter Noël avec des militaires français
+-  Espagne : L'Eglise minimise largement le bilan des victimes de pédocriminalité dans ses rangs
+-  Présidentielle américaine 2024 : La question de l'inéligibilité de Donald Trump plonge l'élection dans l'inconnu
+-  Intelligence artificielle : Non, cette vidéo de Poutine ne prouve pas que l'homme n'a jamais marché sur la lune
+-  La Croatie déchirée sur l'inscription du féminicide dans la loi
+-  Argentine : Le nouveau président annonce une dérégulation massive de l'économie
+-  Suède : Des protections périodiques pour les appelées sous les drapeaux
+-  Chine : Un séisme fait au moins 135 morts
+-  Kim Jong-un droht mit Atomangriff: Nordkorea wird „nicht zögern“
+-  Kim Jong-un droht mit Atomangriff: Nordkorea wird „nicht zögern“
+-  Police want to install luggage scanners, archways at Dhaka metro rail stations
+-  Bigg Boss 17: Ayesha Khan styles Munawar Faruqui`s hair
+-  Gabi Novak o posljednjoj želji Arsena Dedića: ‘Žao mi je što mu je nisam ispunila’
+-  Bahçesine giren eski eniştesini öldürmüştü: Karartı görünce o yöne ateş ettim
+-  Şanlıurfa'da yemekten sonra rahatsızlanan 150 öğrenci hastaneye kaldırıldı
+-  La Caixa reunirá su colección en el nuevo centro ArtStudio de L'Hospitalet de Llobregat
+-  La Caixa reunirá su colección en el nuevo centro ArtStudio de L'Hospitalet de Llobregat
+-  Булс и Лейкърс правят размяна между ЛаВийн и Ръсел?
