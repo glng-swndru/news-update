@@ -1,51 +1,51 @@
 # Latest News
--  HLB, 코스피 이전 상장 추진 본격화
--  창원해경, 거제 이수도 인근 해상 어선 간 충돌 발생
--  수원특례시의회, 공유형 이동장치 안전 대책 마련 촉구
--  해남군, 폭설 내린 읍면 시가지 중심 제설작업 '구슬땀'
--  성산구, 상남 상업지역 불법광고물 야간특별단속 실시
--  신영재 홍천군수, 바르게살기운동 홍천군협의회 가정나라사랑 강연회 및 성과대회 참석
--  Desperate Dad Begs Alms From Bus Passengers for Newly-Born Child’s Hospitalization
--  BDDK'dan kredi düzenlemesi
--  Carta a Xavi
--  Laura
--  Moviments de població que marquen tendències de futur
--  Google Pixel Tablet Full Specs, Features, Price In Philippines
--  DH Awards 2023 : Et le vainqueur est… Thierry Neuville !
--  Járvány ütötte fel a fejét a fronton, Kijev idén már nem kap pénzt Amerikától - Háborús híreink csütörtökön
--  Б.Чойжилсүрэн, Л.Халтар нар ОХУ руу яаралтай томилолтоор явжээ
--  공주시 옥룡동 해피뱅크, 사랑의 장학금 전달
--  금산군 26일부터 택시 기본요금 700원 오른다
--  남자가 1.3배 더 많다… 당진 청년 성비 불균형 심각
--  괴산·청천전통시장, 충북 우수 전통시장 선정
--  민주평통 김영길 자문위원, 민주평통 의장 표창
--  눈폭탄 맞은 내포신도시
--  Projet de Super League en foot : le basket et l’Euroligue comme seul exemple
--  СМИ: еще в 16 штатах потребовали не допустить Трампа к выборам
--  Argentyna: prezydent podpisał dekret o deregulacji gospodarki, ludność protestuje
--  الصحة العالمية تطالب بتتبع متحور كورونا الجديد
--  Мазаалай баавгайг үндэсний бахархалт амьтнаар зарлажээ
--  هل الخوف من العين والحسد جائز أم محرم؟ "الفوزان" يُجيب
--  منها الرياض.. تحذير عاجل من أمطار ورياح شديدة على هذه المناطق لـ 8 مساءً
--  تعمل على تعزيز صلة الرحم.. 4 شروط لتأسيس الصناديق العائلية
--  Virus tötet Tausende Katzen auf Zypern
--  Der Anwalt und die „Reichsbürger“: Paul G. wollte Außenminister werden
--  Julien de Sart, un des meilleurs joueurs de Pro League cette saison, raconte sa vision du jeu : “Je vois les mouvements des autres au ralenti”
--  Jagan-Chandrababu: విశాఖ ఎయిర్‌పోర్టుకి ఏకకాలంలో చేరుకున్న జగన్, చంద్రబాబు.
--  Umfrage: Trend zurück vom Online-Handel zum Ladengeschäft
--  "ישראל הולכת לקטסטרופה כלכלית, הנינים שלנו עוד ישלמו את החובות"
--  Milletvekilinden çarpıcı öneri: Büyük deprem hazırlığı için İstanbul nüfusu diğer bölgelere dağıtılmalı!
--  أرقام رودريجو مع ريال مدريد هذا الموسم
--  Vladaјuća većina spremna da podrži penzionisanje bivših radnika metalskog sektora
--  Invité vun der Redaktioun (21. Dezember): Alex Donnersbach, Vize-President Logementskommissioun
--  Redes sociales sin control, un peligro latente
--  Matan a celador y a ‘Cholo Pritti’ en Panamá Este
--  Los apodos imponen respeto en el típico
--  La plata de ese jamón no salió de su bolsillo
--  Infidencias y confidencias del 21 de diciembre de 2023
--  Kesha is said to have parted ways with Dr. Luke's record label - six months after the pair settled their long-running court fight
--  กมธ.ตำรวจ เชิญ "ราชทัณฑ์-ยุติธรรม" แจง "ทักษิณ" รักษาตัวชั้น 14 รพ.ตำรวจ
--  "คมนาคม" คุมเข้ม ถ.พระราม 2 จ่อขึ้นบัญชีดำรับเหมาก่ออุบัติเหตุ
--  “ภูมิธรรม“ ชี้กรณี “ทักษิณ” อย่าโยงการเมือง ทำตามระเบียบ-คุกแออัด
--  Pour le Standard, la fin de saison risque d'être longue, très longue, trop longue...
--  Schlag gegen syrische Drogendealer: Spur führt auch nach Berlin
+-  '양구군청 펜싱클럽' 첫 대회 출전에 동메달 입상 쾌거
+-  สสจ.เพชรบุรี แจงปมสาว 25 ปีเสียชีวิตหลังถอนฟัน เหตุป่วยมะเร็ง
+-  ปัดรัฐบาลแทรกแซง "ขึ้นค่าแรงขั้นต่ำ" ทบทวนเพื่อแรงงาน
+-  UBA rewards 74 customers
+-  وول ستريت جورنال: حماس تتمسك بوقف إطلاق النار وترفض هدنة إسرائيلية مؤقتة لمدة أسبوع
+-  Soccerladuma | Pirates To Listen To Ofori Offers?
+-  Soccerladuma | Klopp Names Favourite EPL Player Outside Of Liverpool
+-  Bulls overwhelm Lakers with 8 double-figure scorers
+-  ΕΦΚΑ: Οι νέες εισφορές για τους ελεύθερους επαγγελματίες - Mέχρι πότε η επιλογή και ποια η διαδικασία
+-  В Индонезии обвинили НАТО в начале конфликта на Украине
+-  Pohjois-Korea lähettänyt Venäjälle yli tuhat konttia ammuksia
+-  창녕군, 경상남도 규제혁신 우수사례 경진대회 '우수상 ' 받아
+-  밀양시의회 석희억 부의장, 강창오 총무위원장, 정희정 산업건
+-  김해 출신 골프선수 최혜진, 김해시 방문 "미국서도 전국
+-  사천축협 우량암소 인증서 수여
+-  남해군의회 장영자, 박종식 의원 의정봉사상 수상
+-  جمهور فلومينينسي يسخر من غوارديولا بطريقة غريبة
+-  الاحتلال يطالب بإخلاء السكان من خانيونس
+-  وفاتان بانفجار إطار شاحنة في عمان
+-  الصقور تحرس محاصيل العنب الأمريكية
+-  الاحتلال يعلن عن إصابة 5 جنود بجراح خطيرة بمعارك خانيونس
+-  تحوّل الكلاب إلى أليفة يجعل لون عيونها فاتحاً
+-  Madras HC sentences DMK minister K Ponmudy to 3 yrs in prison in disproportionate assets case
+-  Kako je glasala srpska dijaspora u Njemačkoj?
+-  Amerikaan die 48 jaar onschuldig vastzat eindelijk vrij
+-  Hyderabad: CP invokes 107 CrPC to maintain peace
+-  Дипмиссия РФ опровергла сообщение, что 200 тыс. россиян посетят Шри-Ланку в 2024 году
+-  В Приморье на 30% выросло число поручительств для получения бизнесом кредитов
+-  30分放置するだけでピカピカに。カビ掃除が1ヶ月1回になるぞ
+-  Thomas says Albury Wodonga Health won't be split up under new plan
+-  Nervous Christmas wait for Keneally’s son with jail ‘hanging over head’
+-  ROUNDUP: Mützenich warnt wegen Einsparungen vor Spaltung der Gesellschaft
+-  ROUNDUP: Russland fliegt Drohnenangriffe auf Ukraine - Die Nacht im Überblick
+-  ROUNDUP: Ein Jahr Lieferkettengesetz - wie wirksam sind die Regeln?
+-  Dunki Twitter reviews: Shah Rukh Khan-Taapsee Pannu lack chemistry, Vicky Kaushal is the highlight
+-  ROUNDUP/Netanjahu: Krieg gegen Hamas 'bis zum Ende' - Die Nacht im Überblick
+-  스파크랩, 제조 공정 생산성 솔루션 기업 ‘앰버로드’에 시드 투자
+-  이호재 KT넥스알 대표 “성장전략 목표 ‘ABC’…고객과 동반성장”
+-  에누리 가격비교, 2023년 하반기 히트브랜드 발표
+-  How to Identify Fake 5000 Rs Notes? State Bank Released Video Guide
+-  Un nouveau Burger King ouvre ce jeudi midi dans le Pas-de-Calais : voici où
+-  TS News: వడ్డీ వ్యాపారి ఇంటిపై ముగ్గురు మహిళల దాడి
+-  Podd: Efter attacken tystnade mobilen – vem kan skydda Gazas civilbefolkning?
+-  Loans created assets: Former TS finance minister T Harish Rao
+-  Россиянка расправилась с мужем из-за алкоголя и попала под суд
+-  حرب الرئاسة بدأت… والتعيين غصباً عن باسيل!
+-  В Сахалинской области сообщили о появлении услуг связи во всех малых селах региона
+-  Dette visste du kanskje ikke om julefilmen «Elf»
+-  France paves way for return of Indigenous Australian remains
+-  מרק עוף אמיתי, שלב אחר שלב
