@@ -1,51 +1,51 @@
 # Latest News
--  Surrey player Gus Atkinson insists his maiden Test call-up will be a ‘a tough challenge’… with 25-year-old set to be one of the pace options for England captain Ben Stokes during five-match series starting next month
--  Imagens mostram motoristas saqueando carga de carreta tombada na BR-470
--  The mistake Wilder could make that would ruin ‘biggest fight in the world’ dream: Ultimate Guide
--  KFC a Christmas tradition in Japan
--  Sindrom iznenadne smrti kod dece: Pedijatri objašnjavaju kada može da nastane VIDEO
--  Ekonomski analitičari za N1: Kakva će biti 2024., gdje se imamo čemu nadati, a gdje prijeti opasnost
--  ضحايا في اليمن... احتفالاً بفوز منتخب الناشئين
--  Costco Is Selling One of the Rarest Wines In the World
--  Μόντσα – Παναθηναϊκός 3-0: Την κοίταξε στα μάτια μόνο για ένα σετ και αποκλείστηκε
--  Hatay'da İsrail protestosu
--  Fatih Tekke: Sadece 3 puan kazandık
--  Otomotiv devine davet! Türkiye elektrikli araç üretim üssü olacak
--  Türk Kızılay, İslahiye'de depremzedelere kışlık giysi ve malzeme desteğinde bulundu
--  PFDK sevkleri açıkladı! Fenerbahçeli Fred'in durumu...
--  Pavel ve Fiala'dan üniversitedeki silahlı saldırıya tepki
--  Beşiktaş'tan 20 sayı fark!
--  Ajax'tan kupaya sürpriz veda! 4. Lig ekibine elendi
--  Gazze'de iletişim ve internet hizmetleri tekrar sağlanmaya başladı
--  Realizan jornada de salud en Arraiján
--  Rusch till matbutikerna inför årets julbord
--  ‘Rupture his spleen’: Aussie receives brutal threat ahead of boxing blockbuster
--  Keln ostao bez trenera
--  IND vs SA: दक्षिण अफ्रीका में पांच साल बाद वनडे सीरीज जीता भारत, सैमसन के शतक बाद अर्शदीप ने बरपाया कहर
--  Frontalzusammenstoß bei Straubing: Zwei Schwerverletzte
--  Vladimir Putin misery as new electric car mocked as ‘ugliest EVER designed’ | World | News
--  تقييم بونو في 90 دقيقة أمام أبها
--  Байден маъмурияти Россиянинг музлатилган активларини Украинага бериш учун музокара бошлади — ОАВ.
--  نجوم رحلوا في 2023
--  6 فوائد صحية مهمة لتناول البصل النيئ
--  فوائد ذهبية لعصير طبيعي.. يخفض مخاطر السرطان والسكري
--  منها اللهو بالهواء الطلق.. نصائح لحماية نظر الأطفال
--  دراسة تربط بين قطط المنزل وخطر الإصابة بالفصام
--  الطلاق يضرب مشاهير الوسط الفني بمصر في 2023
--  بدقة 100٪ .. تقنية جديدة تشخص مرض التوحد في الطفولة
--  Proračun Neuma za 2024. je razvojni i iznosi 13,515.000 KM
--  Δημοσκόπηση Pulse: «Ναι» σε μη κρατικά ΑΕΙ, στα μέτρα για την οπαδική βία, διχασμός για τα παιδιά ομόφυλων ζευγαριών
--  تأجيل التصويت بمجلس الأمن على مشروع قرار بشأن غزة
--  Биткоинот се искачи на речиси 40.200 евра
--  Хамас не сака да преговара за заложниците додека Израел не ги запре воените напади
--  Kärppien uusi valmentaja ei saanut vieläkään voittoa - "Tiedettiin kyllä se"
--  JYPin uusi luotsi heti melkoisen painajaisen keskellä - "Syö rotan lailla"
--  Малолетник од Скопје ја нападнал сестрата, па со нож му се заканувал на својот татко
--  بن غفير يهدد نتنياهو بالتخلي عنه
--  МВР: Нападната е медицинска сестра во скопскиот Клинички центар
--  الرئيس الإسرائيلي يحمل الأمم المتحدة مسؤولية نقص المساعدات المقدمة إلى غزة
--  Lech Poznań, a potem Śląsk Wrocław? Lider Ekstraklasy potwierdza, że chce tego zawodnika
--  البرهان: قوات الدعم السريع "سرطان" ولن نوقع اتفاق سلام فيه مهانة وذل للجيش والشعب السوداني
--  ملك الأردن: الضفة وغزة امتداد للدولة الفلسطينية الواحدة وعلى العالم أن يضغط لوقف الحرب
--  Жена во Турција одбила понуда за брак, нејзиното момче ја турнало од карпа од 30 метри височина
--  Božićna poruka biskupa Škvorčevića: Možemo li radosno slaviti Božić zbog svega što se zbiva u svijetu?
+-  Court revives Nirvana lawsuit over Nevermind cover
+-  Usvojen novi Statut Dinama kao i financijski plan za 2024.
+-  Tiroler Tageszeitung, Leitartikel vom 22. Dezember 2023. Von Anita Heubacher: "Gesperrte Betten, kein Problem mehr?".
+-  Pierwsza od czterech sesji przecena ropy
+-  Prima Dauphin, poi Heim: l'Ambrì batte il Servette e lo passa
+-  Tech’s DEI backlash is here
+-  Author donates profits to the Women’s Refuge
+-  СКА — ЦСКА: видеообзор матча КХЛ
+-  Lopetegui hefur hafnað tilboðum: Vill bara úrvalsdeildina
+-  Raffle brings a touch of magic
+-  Christmas cheer to share around
+-  الهلال يستعرض في شباك أبها بسباعية نظيفة
+-  Mujeres, protagonistas en el sicariato y venta de drogas en Juárez
+-  Trendet teremtett a Spotify, már a bankok is másolják
+-  الاعلان عن تفاصيل موسم الحج 1445هـ / 2024م و حصص القرعة في ليبيا
+-  Wells Fargo Personal Loans Review 2024
+-  عطاف يستدعي سفير جمهورية مالي بالجزائر
+-  المجلس الشعبي الوطني يصادق على قانون الطيران المدني الجديد
+-  ربيقة : توثيق بطولات المجاهدين وتخليدها يعتمد حاليا على التقنيات الحديثة
+-  استئناف الرحلات بين الجزائر العاصمة وبيروت يعكس دعم الجزائر وتضامنها الدائم تجاه لبنان
+-  الأمن الوطني : فتح مسابقة لتوظيف أعوان متعاقدين لسنة 2023
+-  Nairo Quintana:"Soy un luchador y espero aportar experiencia para una gran temporada"
+-  Ivanović ostao bez igrača: Bek se vraća u Italiju
+-  Third Federal Review 2024
+-  POKUŠAO POLICAJCIMA DA OTKRIJE LOKACIJU UBICE, PA URADIO NEŠTO NEVIĐENO Snimak otkrio JUNAKA iz Praga: "Tu sam pucaj u mene" VIDEO
+-  Ermittlungen in Tschechien: Der Horror von Prag dauerte nur wenige Minuten – am Ende sind 14 Menschen erschossen
+-  "BOLJE DA NE UZIMAŠ MIKROFON U RUKE" Branku napali nakon SKANDALA sa falširanjem: Oglasila se pa ŽUSTRO odgovorila a krivac je..
+-  אשפוז ללא הגבלת זמן: נגזר עונשו האקר שהדליף את GTA 6
+-  Popular Analyst Pointed to This Date for Altcoin Rally: "Altcoins Will Start Rising After This Event!"
+-  Want a White Christmas? It's gonna cost you.
+-  Video: Tältä näyttää joulu Kiovassa
+-  Así están las plantillas de Superliga a falta de un mes para el arranque de competición
+-  No di Roma e Inter, Napoli apre al dialogo. Milan: 'Presto per esprimere opinioni'
+-  За здравството има дијагноза, ама засега нема терапија
+-  Tiental Almere City worstelt zich langs amateurs, Vitesse schakelt Heerenveen uit
+-  Popping bottles with care: Why a flying champagne cork is a huge injury risk
+-  South Park: Snow Day launches March 26, and it has a pretty sweet Collector's Edition
+-  Usher praises 'Queen' Rihanna as she hypes his Super Bowl show: 'Real recognize real'
+-  Vice President Kamala Harris to visit Myrtle Beach on Jan. 6
+-  Connection not just good grades
+-  Fiscal Magali Quiroz regresa a poner orden en caso "Cuellos Blancos del Puerto"
+-  Sturmtief "Zoltan": Viele Einsätze wegen umgestürzter Bäume - Zug evakuiert
+-  The Fed has prolonged an unhealthy co-dependence with markets and it threatens financial stability, Mohamed El-Erian says
+-  Novi dobar rezultat ekipe Saše Ilića
+-  Atirador matou 15 e feriu 30 em universidade de Praga
+-  Friday horse racing tips from Tom Lunn for Ascot
+-  Need To Revive The Reading Culture
+-  MT embarga garimpo e aplica R$180 mil em multas durante ação de combate a extração mineral ilegal
+-  Former Nice and PSG coach Christophe Galtier is cleared of accusations of racism
+-  Samson century and four wickets from Arshdeep propel India to series win over Proteas
