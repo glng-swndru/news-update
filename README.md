@@ -1,51 +1,11 @@
 # Latest News
--  Cycle of success as Reid rides into the history books
--  More farmers willing to be bought out under new nitrogen scheme than expected
--  Se vedi un'auto con le luci blu potrebbe non essere la Polizia
--  عاجل.. خانوا الأمانة.. "النيابة" توقف 4 مواطنين بتهمة التصرف بأموال جمعية غير ربحية
--  طريقة وشروط تأسيس الشركات المساهمة والمبسطة
--  استشاري بالمؤتمر الطبي يُبشر مرضى الروماتيزم بأمر طال انتظاره (فيديو)
--  Đedović Handanović: Srbija će se svrstati među najveće proizvođače bakra u Evropi i vodeće proizvođače zlata
--  Flugvél TUI fær nafnið Reykjavík
--  New Year’s Day public holiday confirmed for employees in the UAE
--  Exploring ABCs Puppy Zs Goldendoodle Varieties: From Mini to Micro Teacup
--  "Percy Jackson": Wie viele Folgen gibt es und wann ist das Finale?
--  KT, '퓨처스 연고지' 익산서 사랑의 선물 꾸러미 후원 행사 개최... 취약계층에 2천만원 상당 생필품 후원
--  Questa CPU 1-bit può fare solo 3 cose, ma è andata a ruba
--  Akşener'den sonra Oktay Vural da İmamoğlu’nu hedef aldı
--  Hesap 85 bin, bahşiş 175 bin TL: Rus milyarder Abramoviç garsonları sevindirdi
--  Мъж е осъден на 6 години затвор за блудство с жена в Петрич
--  Întâlniri între oficiali ucraineni și omologi polonezi pentru aplanarea tensiunilor de la frontieră
--  Northern Gaza no longer has a functional hospital: WHO
--  Backmischungen selbst machen: Süße Grüße als Geschenkidee
--  Rekordfund der Droge Captagon in Deutschland sichergestellt
--  &quot;OŽIVEO&quot; VOJVODINU, A SADA IDE U JAPAN Ranko Popović ima novi klub
--  When is winter solstice in 2023? From date to Indian timings, know all about the shortest day of year
--  Ikea Singapore to absorb increase in GST from Jan 1
--  Man arraigned for allegedly killing father in Kwara
--  Lewis Hamilton Receives Threat From Mercedes Teammate George Russell Ahead Of 2024 Campaign
--  วิสามัญฆาตกรรม 2 ผู้ค้ายาเสพติด ชายแดนแม่อาย จ.เชียงใหม่
--  ชายแทร่! เมื่อความเป็น "ชาย" กลายเป็นคำดูถูก
--  Путин поручил провести осенний призыв 2024 года через единый реестр военнообязанных
--  İstanbul'da son bir yılda trafik kazalarında 155 kişi hayatını kaybetti
--  Berisha, në burg apo në shtëpi? SPAK do i drejtohet gjyqtares Irena Gjoka për ashpërsimin e masës
--  Hamarosan búcsút kell intenünk a Google egyik népszerű szolgáltatásának
--  Seçil Erzan davasında Emre Belözoğlu'ndan yeni açıklama: Fatih Terim bilerek bu işin içine girmez
--  В «Реал Сосьедад» сообщили, что Захарян пропустит матч с «Кадисом»
--  港股淡靜難捱 傳有券商去年獎金仍未發 業界嘆「全行都係保就業」耀才逆市有花紅
--  Police nab five for illegal possession of firearm in Katsina
--  MasterChef Australia's Khanh Ong shares his boozy recipe for Christmas ham - and you'll never guess the secret ingredient
--  “부장님 제발 집 좀 가세요”…퇴근 못하는 남자들, 몇시간 일하나
--  Σοκαρισμένοι οι γονείς και οι δάσκαλοι του 8χρονου - «Στο σχολείο είχαμε αραιά κρούσματα στρεπτόκοκκου» λέει ο διευθυντής
--  क्या केंद्र की कठपुतली बन जाएगा चुनाव आयोग! कौन सा बिल मोदी सरकार ने लोकसभा से भी करा लिया पास
--  한국투자금융지주 정기 임원인사 ··· 윤형준 부사장 승진
--  To brande på samme nat ved Dronninglund var ikke påsatte
--  Kalle Rovanperän kartanlukija haluaa hurjiakin muutoksia - näin ei voi jatkua
--  JK Nyatakan Mendukung Paslon Nomor Urut 1 Anies-Muhaimin, Diyakini Dongkrak Suara di Sulsel
--  UP के लिए लगातार उपयोगी सिद्ध हो रहे Yogi, Prabhasakshi की 22वीं वर्षगाँठ पर मिला सर्वश्रेष्ठ राज्य सरकार का पुरस्कार
--  Yahudi gazetecinin gözünü kan bürüdü! Meslektaşını böyle hedef gösterdi
--  La Corée du Nord promet une riposte atomique si elle est « provoquée » par des armes nucléaires
--  Popisano više od 588 hiljada građana
--  Orbán Viktor: Ha valakivel vitánk van, azt velük intézzük el
--  दिल्ली के कनॉट प्लेस की गोपालदास बिल्डिंग में आगः धू-धू कर जले 9, 10, 11 फ्लोर, जानें हुआ क्या
--  Opinion: तुम्हारी गोलियां खत्म हो जाएंगी, मैं जिंदा रहूंगा… ओवैसी जी! आपकी अमरता का राज क्या है?
+-  Πανέτοιμο το νέο Hilux της Toyota Gazoo Racing για το Dakar
+-  شجرة عيد الميلاد في الفضاء.. «ناسا» ترصد مشهدا مذهلا
+-  Israel-Hamas War: హమాస్‌తో యుద్ధంలో కీలక పరిణామం.. కమాండ్ సెంటర్ ఇజ్రాయెల్ అధీనం
+-  Gold prices dip in Pakistan in line with international trend
+-  한양대, 서울대·카이스트 이어 'AI 반도체대학원' 개원
+-  "내 면역세포로 암세포 제거"…UNIST, 'NK 세포전달 나노드론' 개발
+-  UK bans Rimmel makeup ad for 'playing on young girls' insecurities'
+-  5 times wild animals were spotted roaming SA's streets this year
+-  Police appeal to public for info related to Delft triple murder
+-  Transport Dept 'trying everything' to curb long-haul bus attacks - Chikunga
