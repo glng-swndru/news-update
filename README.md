@@ -1,51 +1,11 @@
 # Latest News
--  پنجاب میں شدید دھند، موٹروے کو مختلف مقامات سے بند کر دیا گیا
--  Bemba Royal Establishment Disapproves Unlawful Use of Chitimukulu’s Image in Political Messaging
--  Corona Virus: ਮੁੜ ਵੱਧਣ ਲੱਗੇ ਕੋਰੋਨਾ ਵਾਇਰਸ ਦੇ ਕੇਸ, ਚੰਡੀਗੜ੍ਹ ਨੇ ਜਾਰੀ ਕੀਤੀ ਸਖ਼ਤੀ, ਹੋਰ ਦੇਖੋ ਕਿਹੜੇ ਸੂਬੇ ਨੇ ਲਾਗੂ ਕੀਤੀ ਐਡਵਾਈਜ਼ਰੀ
--  IMF Disburses US$187 Million To Zambia
--  تربت لانگ مارچ اسلام آباد پہنچنے پر راستے بند
--  드림어스컴퍼니, 미스틱스토리 손잡고 IP 비즈니스 확대 가속
--  ขอให้โชคดีนะ! "ชิซุกะ-โนบิตะ-ไบรอัล" ลิงอุรังอุรังกลับบ้าน
--  강정애 “보훈이 국민통합 마중물…보훈정책 근본 혁신”
--  전국적 한파경보에…건강한 겨울 ‘집콕’ 생활 요령 3
--  ‘20만 명 투약 분량’ 케타민 대량 밀수 총책, 항소심도 징역 14년
--  Parliament Security Breach: सभी को एक साथ बिठाकर हुई पूछताछ, संसद सुरक्षा चूक मामले में आज आरोपियों की कोर्ट में पेशी
--  Warner Bros. Discovery CEO David Zaslav’s Paramount Deal Talks
--  Officials give warning about device converting a weapon into a fully automatic machine gun
--  ഉറങ്ങുമ്പോൾ വരെ സാരിയുടുക്കും, അന്ന് വാണിയമ്മ പറഞ്ഞത് മറക്കില്ല; വല്ലാത്തൊരു ഫീലാണ് സാരി: മഞ്ജരി
--  고창군 최대 23㎝폭설에 제설작업 총력전
--  홍천군, 청소년정책 우수지자체 선정, 국무총리상 수상
--  관광도시 강진, ‘반값 강진 관광’ 활성화 전략포럼 가져
--  청송군, 2023 재정분석「우수 자치단체」선정
--  파주시, 도시형교통모델 2년 연속 추가예산 확보
--  Cestovní pouzdro pro retro herní konzoli Super Pocket
--  İsrail'e açık uyarı: Derhal çekil! Savaşa neden olabilir
--  میرے الیکشن لڑنے کا فیصلہ عدالتیں کریں گی، سرفراز بگٹی
--  2023 Celebrity Highs, Lows, and WTF Moments: Nepo Babies and More
--  Health minister defends film shoot at Peace Arch Hospital
--  PNB declares income distribution of 5.25 sen for ASB
--  Oficiální přehled ocenění Last Train Home
--  Serán Andrea Chávez y Loera candidatos al Senado por Morena
--  Con armas largas y encapuchados quitan a persona su vehículo
--  Morning briefing: Friction in INDIA bloc; poll panel's policy revamp plan, and all the latest news
--  Asegura Israel que tomó control del centro de poder político y militar de Hamás
--  Maratha Reservation : मनोज जरांगे 24 डिसेंबरच्या अल्टिमेटमवर ठाम; पोलीस प्रशासन लागलं कामाला
--  Verification Compulsory For These Aadhaar: 18 वर्षांवरील नव्याने आधारकार्ड काढणार्‍याचं आता प्रत्यक्ष व्हेरिफिकेशन होणार!
--  Macron says French film star Depardieu target of a 'manhunt'
--  Insulin : मधुमेही रुग्णांना आता 100 टक्के देशी इन्सुलिन मिळणार, किंमतही स्वस्त
--  Merrill anota 27 puntos, por Cavs, que derrotan 124-116 a Jazz
--  Coreia do Norte ameaça 'ataque nuclear' se for provocado
--  Jennifer Lopez confesses she and Ben Affleck still have 'PTSD' from their first romance... but now they are 'older' and 'wiser' as a married couple
--  करूर वैश्य बैंक से ग्लेनमार्क फार्मा तक, आने वाले हफ्तों में लाभ कमाने के लिए 10 स्टॉक विकल्प
--  Girl Delivery Baby Rescued From Srivaikuntam: ஹெலிகாப்டர் உதவியுடன் மீட்கப்பட்ட கர்ப்பிணிக்கு குழந்தை பிறந்தது: தாய்-சேய் நலம்.!
--  바이오헬스케어 기업 종사 인력 증가세
--  [MD포토] 장나라 '포즈가 알려주는 동안미'
--  '0골 1400억 윙어 골칫거리 내보낸다' 맨유, 이강인 절친 레이더 포착→708억 장전했다
--  [MD포토] 장나라 '여전한 방부제 미모'
--  “계약 전에 페디에게 연락했더니…” ML 달랑 2승? 152km 좌완이야, 공룡들 구세주일지도 몰라
--  [MD포토] 손호준 '1인 3역 같은 열연'
--  [MD포토] 손호준 '달달한 포즈'
--  [MD포토] 손호준 '수줍은 미소 볼 하트'
--  [MD포토] 소이현 '매력적인 미소'
--  [MD포토] 소이현 '2년 만에 연기 선보여요'
--  [MD포토] 소이현 '아름다운 옆태'
+-  장나라·손호준·소이현, '나의 해피엔드' 엄지척
+-  손호준·장나라·소이현·이기택 , 화기애애한 분위기
+-  Egypt seeks to broker Gaza ceasefire as Hamas, Israel assert demands
+-  9 yaşındaki çocuğu istismar eden 81 yaşındaki sapığın savunması: Ben yaşlı başlı adamım
+-  طفلك لا يهتم بالدراسة.. تعرّفي على أسباب المشكلة والحل
+-  Above 18 Years and No Aadhaar Card? Passport-like verification system now made compulsory
+-  VULKANSKA KIŠA STIŽE NA BALKAN Oblaci sa crnim česticama sa Islanda kreću se ka nama, evo kada će udariti na Srbiju
+-  가평군, 2023 지방자치어워드 은상 수상
+-  의정부 사회복지의 구심점, ‘의정부시 사회복지회관’ 개관
+-  남양주시, 평내 체육문화센터 건립 사업...오는 26일 착공
