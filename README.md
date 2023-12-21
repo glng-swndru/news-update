@@ -1,11 +1,11 @@
 # Latest News
--  Polish president denounces Tusk’s state media overhaul as ‘anarchy’
--  Un hombre resulta herido en Gandia después de que su expareja trate de "arrancarle" los testículos
--  تعامد الشمس على معابد الكرنك معلنة بداية الشتاء
--  حزب الله يقصف إسرائيل إثر ضربة على جيش سوريا..هجمات على الأميركيين بسوريا والعراق
--  طقس العراق.. أمطار رعدية وثلوج بدءاً من الغد
--  حادث مأساوي يودي بحياة لاعبين بفريق جزائري وتعليق لمباريات الدوري
--  الداخلية تشكل 14 فوجاً لتأمين الحدود
--  HS Ad, Coupang to co-work for retail media advertising
--  L'Equipe in prima pagina sul successo del PSG contro il Metz: "I fratelli sorridono"
--  Jokić se rastao sa Nikeom i iznenadio odabirom nove sportske marke
+-  이병헌♥︎이민정, 오늘(21일) 둘째 출산
+-  [게임소식] 조이시티, '3on3 프리스타일' 신규 캐릭터 '제네사' 업데이트 외
+-  "업데이트 1년 전"…유통업계, 메타버스 제페토 진출 후 사실상 방치
+-  Gov't to again push for third-party reimbursement plan for forced labor victims
+-  새마을금고중앙회, 제19대 회장에 김인 이사장 당선
+-  La Unión Europea acuerda reubicar a 30 mil migrantes
+-  ‘Es evidente que Trump apoyó una rebelión’, dice Biden
+-  Reciben cartas para Santaclós y los Reyes Magos
+-  "الأرصاد" تكشف حالة الطقس خلال الـ 6 أيام القادمة.. نشاط رياح وأمطار
+-  وزيرا النقل والتعاون الدولي يشهدان توقيع اتفاقية تمويل إنشاء البنية الفوقية لمحطة "تحيا مصر 1"
