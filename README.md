@@ -1,11 +1,11 @@
 # Latest News
--  ADA Shines Bright at the Prestigious Effie Awards, Securing Gold, Silver, and Bronze Accolades for Exceptional Excellence
--  [영상] 윤재옥 “한동훈 장관, 가장 젊고 참신한 비대위원장 될 것”
--  기자가 되고 싶습니다
--  크루즈 관광 빈 껍데기 되지 않으려면
--  제주지역 축산 악취, 지속적으로 관리해야
--  예술이 있어 떨림으로 가득찬 1년이었다
--  Samsung to Invest $280 Mn In Japanese Chip Packaging Facility Over Five Years
--  Citigroup To Depart From Distressed Debt Trading Sector
--  «الإشريكية القولونية» تهدد حياة جنود جيش الاحتلال الإسرائيلي.. لا علاج لها
--  ระบบทะเบียน “ยานอวกาศ” ทำงานอย่างไร ?
+-  송기섭 진천군수
+-  최재형 보은군수
+-  황규철 옥천군수
+-  정영철 영동군수
+-  송인헌 괴산군수
+-  조길형 충주시장
+-  김문근 단양군수
+-  김창규 제천시장
+-  이응우 계룡시장
+-  박범인 금산군수
