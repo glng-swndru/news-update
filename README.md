@@ -1,51 +1,51 @@
 # Latest News
--  IPS Success Story: Aashna Chaudhary`s Resilient Journey To UPSC Success In Her Third Attempt
--  Breaking: Fire Breaks Out At Gopaldas Building In Delhi`s Barakhamba Road, Firefighters Rush To Spot
--  UK: Indian student, who went missing after night out with friends, found dead
--  Centre`s Big Move - CISF Likely To Take Over Parliament`s Security After Massive Breach
--  Büyük maçların en golcüsü Mauro Icardi!
--  Özgür Özel ile Ekrem İmamoğlu arasında aday krizi
--  İYİ Parti'de kriz! Talat Atilla duyurdu: Yüksel Arslan istifa etti!
--  Hande Yener zor günlerini anlattı! "Durakta her ayağım ıslandığında ağlıyordum"
--  Uzman doktordan çocuk diyabetine karşı uyarı!
--  للمرة الأولى.. اختبار دم يكشف الرغبة في الانتحار
--  C-Majör İş’ten Sesler Korosu, Safranbolu’da eğitim yararına konser verecek
--  Salt: మీరు విన్నది నిజమే.. ఉప్పు కిలో రూ.53 వేలు
--  Мбапе за дебюта на брат му: Не мислех, че ме очаква толкова специален ден
--  Suomalaisjoukkue teki kovan tempun eurokentillä
--  Miksi ihmeessä tämä kuski ei kilpaile F1-sarjassa?
--  Gemeente Molenlanden: aansluiting industrieterrein Vlietskade in Arkel op A27 niet mogelijk
--  [취재수첩] AI, AI, AI… “바보야, 문제는 비즈니스야”
--  "X에 아무것도 안 보여요"… 옛 트위터 전 세계서 '먹통'
--  [DD퇴근길] 해커와 협상 안 한 골프존…“제2 배민·쿠팡 탄생 못하나"
--  폴라리스오피스-오비고, AI 기반 차량용 업무서비스 개발 협력
--  "AI 시대, 실질적인 개인정보 가이드라인 필요"…스타트업 한목소리
--  업비트, ‘착오전송 복구 수수료 무료’ 내년 1월까지 연장
--  Kim Jong-un prijeti nuklearnim napadom: "Nećemo oklijevati"
--  Historiallista: Raide-Jokeri alitti budjetin miljoonilla euroilla
--  SON DAKİKA : İtalyanlar duyurdu! Fenerbahçe'nin yıldızından vazgeçmiyorlar...
--  Optycznie odmłodzą i odejmą kilogramów. Te ubrania i dodatki to strzał w dziesiątkę na Wigilię
--  Michał Janota blisko nowego klubu
--  Giriiga oo ansixiyay sharci siinaya muhaajiriinta Sharciga degenaanshaha Wadanka
--  Ezek a legjobb művészeti karok a 2024-es HVG-rangsor szerint
--  Israel-Hamas war live: Hamas 'rejects' Israel ceasefire offer
--  [현장연결] '비대위원장 수락' 한동훈 법무장관 이임식
--  V lete a či v zime, na čistinke každému je dobre
--  Ayyannapatrudu: గూగుల్‌ని అడిగినా నువ్వు 420 సీఎం అని చెబుతుంది
--  Sądny dzień dla Superligi. Już dzisiaj dowiemy się, czy powstaną konkurencyjne rozgrywki dla Ligi Mistrzów
--  Wszystko jasne. Świątek i Hurkacz poznali terminy meczów [TERMINARZ]
--  Popularni njemački lanac supermarketa zatvara sve poslovnice
--  İYİ Partili bir milletvekili daha istifa etti
--  Afroamerikaner nach 48 Jahren Gefängnis freigesprochen
--  OFICJALNIE: Półfinałowe pary Pucharu Ligi Angielskiej rozlosowane. Wyraźni faworyci
--  Bernardeschi a La Stampa: "Juve? Spero di tornare. Europeo? Sono a disposizione"
--  منظمة العفو تدعو لإطلاق سراح جميع الفلسطينيين "المحتجزين تعسفا"
--  Başkan Gökhan Yüksel muhtarlık personeli ile bir araya geldi
--  Una niña sorda habla con Papá Noel por lengua de signos gracias a un elfo
--  Xabi Alonso wskrzesił napastnika Bayeru Leverkusen. Występ okraszony hat-trickiem w bardzo ważnym momencie
--  Defensor Legii Warszawa nie owija w bawełnę: Musimy przeprosić kibiców
--  아주대병원 허훈 교수팀, 새로운 AXL 억제제로 위암 면역항암치료 내성 극복
--  수원시립미술관, 2023 도슨트 간담회 개최
--  공군 제10전투비행단, AI·SW 교육장 개장식 진행
--  경기대학교, 서울캠퍼스 갤러리 다온 ‘흰구름과의 동행’ 전(展) 개최
--  가톨릭대학교 성빈센트병원, 2023 한국의료질향상학회 우수상 동시 수상
+-  2024년 농식품부 예산안 첫 18조 돌파…직불금 3.1조 확대
+-  서울 아파트값, 낙폭 키우며 3주째 하락
+-  농협은행 안산시지부-군자농협 김장김치·유자청 나눔 실천
+-  Experiment met nieuw QR-politielint in Molenlanden, Gorinchem en Hardinxveld-Giessendam
+-  Lekkage van ammoniak bij zuivelfabriek De Graafstroom in Bleskensgraaf
+-  기미·잡티 등 색소성 피부질환, 원인에 맞춘 시술로 개선해야
+-  “Il n’y a pas assez de drogue au monde pour que j’y revienne” : George Clooney regrette amèrement ce rôle pourtant culte
+-  Perdana, Petinju Muslimah Berjilbab Ini Wakili Australia di Olimpiade
+-  Vogntog kjørte med knust frontrute - ble stoppet i Vågsbotn
+-  Макрон: Борбата против терористите не значи уништување на Појасот Газа
+-  ‘ทรูวิชั่นส์’ ชวนร่วมตัดสินใจเลือกระหว่าง ‘ความถูกต้อง’ และ ‘ความรัก’
+-  Ikuti Pelatihan Internasional, Bea Cukai Perkuat UMKM Go Global
+-  Hizballáh reagoval na útok Izraela ostreľovaním mesta Kirjat Šmona kaťušami
+-  '나는 솔로' 16기 영숙 "진실 밝히려 준비했지만 고소 관련 연락 없어"
+-  Parfumdiebstahl endet mit sechs Monaten Haft ohne Bewährung
+-  Mitchell Robinson, opéré à la cheville, sera absent pour le reste de la saison…
+-  Nagyobbacska téli frissítést kapott a Dying Light 2
+-  Trayce Jackson-Davis, l’invité surprise des Warriors ?
+-  메가존클라우드, 인포블록스와 MOU 체결
+-  Badminton, Beninati “Tesserati in crescita, anno positivo”
+-  Udtrækningsmeddelelse (CK95) - Nykredit Realkredit A/S
+-  ចិន​ត្រៀមខ្លួន​ជា​ស្រេច ដើម្បី​ពង្រីក​កិច្ច​សហប្រតិ​បត្តិ​ការ​ថាមពល​ជាមួយនឹង​រុ​ស្ស៊ី
+-  Kylian Mbappe na rođendan zaigrao s bratom koji je debitirao za PSG
+-  Sabahın havası açıqlandı
+-  Iva je osvojila Brunu ispred kamera, a zajedno imaju dijete: 'Naš susret je bio sudbonosan!'
+-  Haaland acusado de ignorar filhos de craques do Fluminense
+-  연소득 7000만원 근로자도 자녀 장려금 받는다
+-  656조6천억 내년도 예산안 국회 본회의 통과
+-  정선아리랑문화재단 대한민국 한류대상 수상
+-  Ternana, verso il ‘mini’ esodo di tifosi al Tardini. ‘Nodo’ Liberati: anticipati i termini per l’iscrizione al campionato
+-  האתר הקולינרי 'כרמלה' מרחיב את ההיצע לקראת ימי החורף הקרים
+-  انتخابات 2024 / پشتونخوا میپ کے امیدوار
+-  עם החברה הצעירה והופעה של זמר ישראלי: חגיגות יום ההולדת של בראד פיט
+-  האופרה "תיאודור" תצולם ותופץ בבתי הקולנוע בישראל ובעולם
+-  ג'ניפר לופז על מערכת היחסים עם בן אפלק: "יש לנו פוסט טראומה"
+-  Espanha: 576 pessoas pediram eutanásia em 2022, quase 300 conseguiram
+-  Roberto scores twice to help Barcelona avoid Almeria scare in La Liga
+-  Lille dansk aktie i markant fald efter ny melding
+-  Lille dansk aktie i markant fald efter ny melding
+-  Wife donates kidneys to his brother, husband gives triple talaq in Uttar Pradesh
+-  چودھری پرویز الٰہی نے انتخابات میں شیخ رشید کی حمایت کا اعلان کردیا
+-  Клуни: Нема таква дрога што ќе ме натера повторно да го глумам Бетмен
+-  Entendimento entre IL e PSD? Só com Chega fora da equação
+-  Izračunali su koliko Kevinova obitelj iz 'Sam u kući' ima love: Letjeli u Pariz, peglali karticu...
+-  Turun yleiskaava kesti hallinto-oikeudessa – viisi valitusta veti vesiperän
+-  Аэропорт Баку предлагает широкий выбор направлений для путешествий зимой
+-  Krapović: Na Sinjajevini 99% neće biti vojnog poligona
+-  Social Scene Costa del Sol 21 – 27 December 2023 Issue 2007
+-  Честитка од претседателот Пендаровски по повод 21 декември – Денот на наставата на турски јазик
+-  जुवातास खेलिरहेको अवस्थामा १० जना पक्राउ
