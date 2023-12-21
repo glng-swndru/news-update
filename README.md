@@ -1,11 +1,11 @@
 # Latest News
--  Akber : ఏది నిజం.. ఏది అబద్ధం.?
--  ¡Video inédito! Revelan insultos de Scaloni a Messi y sus jugadores en final de Mundial
--  삼성전자 성과급 희비...반도체 일부 제로, 모바일은 75%
--  الإثنين.. وزير الكهرباء يترأس اجتماع عمومية "النقل" و"القابضة"
--  Projeto sobre Mercado de Carbono deve atender as necessidades e expectativas dos povos da Amazônia, afirma Socorro Neri
--  Quatre fonctionnaires Français arrêtés à Ouagadougou
--  I’m A Celeb feud ramps up as Nella Rose snubs unexpected campmate weeks after jungle final
--  A Russian ally's purchase of French and Indian weapons is another sign Moscow is losing influence in its neighborhood
--  Kindred's Riley Sunram makes it official with Minnesota Gophers
--  పౌర సరఫరాల సంస్థ అప్పు రూ.56,146 కోట్లు
+-  30대 외국인, 고속도로 한복판서 중앙분리대 넘다 중상
+-  أمريكا تفرض عقوبات ضد بائعي النفط الروسي
+-  استشهاد أكثر من 40 فلسطينيًا في قصف وحشي إسرائيلي
+-  فرنسا.. وزير الدفاع يزور الفرقاطة "شوفالييه بول" ويشهد تمرين "الرافال"
+-  الجنيه الإسترليني ينخفض مقابل الدولار واليورو
+-  제주 표준주택·표준지 공시가 모두 하락
+-  관광 성장 도우며 일자리 창출
+-  성탄절 연휴 하루 평균 3만2700여명 제주로
+-  [제주일보 10대 뉴스] 조합 32곳 중 11곳 수장 바뀌어
+-  Secret inspector pleads not guilty to ‘drunk crash’ in NorthConnex
