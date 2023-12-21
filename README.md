@@ -1,51 +1,11 @@
 # Latest News
--  השופטים יקבלו רענון, האיגוד: פסילת הפנדל למכבי תל אביב שגויה
--  ‘A Comprehensive Failure of Humanity’: Thomas Sadoski on the Crisis in Yemen and Why Hollywood Must Step Up
--  البوعيشي : زوجات الليبيين من الجنسيات الأجنبية في قائمة حجاج الموسم الحالي .
--  اختتام أعمال المنتدى الوزاري العربي الخامس للإسكان والتنمية الحضرية بطرابلس.
--  التعليم : الاثنين القادم الامتحانات النهائية للفصل الدراسي الأول لصفوف النقل بمرحلتي التعليم الأساسي والثانوي .
--  صندوق الضمان الاجتماعي يحيل قيمة فروقات الزيادة للمتقاعدين عن شهري 1و 2 من العام 2022.
--  اختام الدورة التدريبية في مجال الادارة الرياضية التي نظمتها اللجنة الاولمبية الليبية .
--  نورلاند وبرنت يثنيان على الدبيبة لتقديمه أسماء ممثليه في المحادثات التحضيرية التي يقترح باتيلي عقدها لحل القضايا السياسية التي تعيق الانتخابات وتشكيل حكومة وطنية موحدة.
--  التعاون يفوز على ضيفه الصقور بهدف دون رد .
--  البعثة الأممية تعرب عن قلقها إزاء الإعلان عن وفاة المهدي البرغثي.
--  Pakistan squad kicks off training for Boxing Day Test against Australia
--  الحويج يصدر قرارا بوقف العمل مؤقتاً بالقرار السابق الخاص بتنظيم إستيراد السلع .
--  Fenerbahçe Avrupa Süper Ligi'ni desteklemiyor
--  CANLI| Beşiktaş-Alanyaspor
--  Çaykur Rizespor evinde Pendikspor'u 5-1 mağlup etti |ÖZET
--  Kara Kartal'ın golcüsü stoper Colley
--  Anzeige – Jubiläumsausgabe: 50 Jahre AVU Heimatvorteil: Ein Blick zurück und nach vorn
--  London travel chaos as Euston services cancelled and last-minute strike hits Eurostar
--  Hurry! iRobot's 1-day Christmas shipping ends today - save up to $645 on robot vacuums and mops
--  The 15-inch Apple MacBook Air for under $1,000 is worth getting as a late Christmas present
--  المالية أعلنت آلية تقديم التصريح الشخصي لضريبة الدخل عبر النظام الالكتروني
--  Lesor 105, prvi sledći 79 - Ledej i Mitrović jedini "večiti" u Top 20
--  UŽIVO Može li Zvezda da nastavi seriju protiv Makabija?
--  Asegura síndica que cuidarán aplicación del presupuesto en 2024
--  Suspendidos vuelos en aeropuerto de Juárez por neblina
--  Tiroteo en universidad de Praga deja 11 muertos
--  Cae uno por muerte de 5 estudiantes de medicina en Celaya
--  Abschied aus MotoGP-Programm: Paolo Ciabatti als Ducati-Sportdirektor abgelöst
--  Hamas rejected another hostage-for-prisoner exchange without a permanent cease-fire
--  Soccerladuma | Messi Was 'Furious' With Argentina Teammate During World Cup
--  Northern Suburbs RFC name captain for new season
--  Michael B. Jordan and the ‘Creed III’ Team On Taking Inspiration from Anime and the Film’s Universal Message
--  7 More Things We Just Learned About Final Fantasy VII Rebirth
--  Legende Reala pobedile Partizan
--  Şili'nin kuzeyinde 5,7 büyüklüğünde deprem
--  O kojim video-igrama se najviše pisalo ove godine?
--  Musk väittää Teslan Autopilotin olevan ihmiskuskia turvallisempi – Tutkija penkoi totuuden tilastoista
--  Сказочная новогодняя елка от Федерации бокса России пройдет в Серпухове‎
--  پاکستانی شناختی کارڈ بنوانے کی کوشش میں افغان شہری دروش نادرا آفس سے گرفتار،
--  Manchester United otti kantaa kohuttuun Superliigaan
--  Nuorilla Leijonilla edessään MM-kenraali - tässä kokoonpano
--  Un millón de euros para Las Edades del Hombre en Villafranca del Bierzo
--  Spectacular boomer shooter Ultrakill adds Layer 7 of Hell itself
--  Турпоток из России на Кубу в январе-октябре вырос в 3,5 раза
--  Mueren dos militares por unos ejercicios con bajas temperaturas en un lago
--  El llamativo sincericidio de Rihanna tras presentar su nueva colección
--  BayCare Names Kristy Croom Tucker New Vice President, Marketing
--  Холтофф устоял после удара бутылкой, но оказался бессилен перед бордюром
--  Southampton U21 coach sends thankful goodbye message after departure
--  Feyenoord samen met tientallen clubs tegen Super League
+-  Dutch man among those hurt in Prague shooting that left 17 dead
+-  كيف يمكن أن يؤثر موسم البرد على سلوكياتنا؟
+-  అంగన్‌వాడీ వర్కర్ల సమ్మె
+-  ఆదివాసీ మహిళ నిర్మలకు న్యాయం చేయాలి
+-  పకడ్బందీగా ‘పంచతంత్ర’ అమలుచేయాలి
+-  రేషన్‌ బియ్యం కొనుగోలు చేయొద్దు
+-  Ράσταβατς: «Η συγκεκριμένη νίκη αποκτά άλλη αξία γιατί την πήραμε στην έδρα του ΟΦΗ»
+-  Prentvélaeftirlit ríkisins
+-  Lövöldözés volt a prágai Károly Egyetemen, legalább tizenöten meghaltak
+-  Kyrgyzstan sees positive industrial development dynamic
