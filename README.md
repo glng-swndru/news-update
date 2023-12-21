@@ -1,11 +1,51 @@
 # Latest News
--  هل مضادات الاكتئاب متاحة للحوامل؟
--  Dončić od junaka do tragičara - Embid ubacio 51 poen VIDEO
--  뉴로클·디지아톰, 실무형 AI 인재 양성 맞손
--  Meteorologinja ubila zadnju nadu za bijeli Božić: ‘Ta fama se stvorila zbog američkih filmova’
--  Новогодняя сказка: какие дома можно купить возле Минска со скидкой
--  [오피셜] '아킬레스건 파열 경력 있는데 괜찮아?' PSG, 유스 출신 DF와 2026년까지 계약 연장
--  KBO, 2024년 비디오판독센터 사업 대행업체 선정 입찰 실시
--  리버풀, 살라와 작별 대비한다…대체자는 ‘1400억 전 맨시티 윙어’
--  MICRON TECHNOLOGY INC : Een koopadvies van UBS
--  유태오, 美 넷플릭스 시리즈 '더 리크루트2' 주연 발탁…글로벌 행보[공식]
+-  Lauri Markkasen ex-joukkuekaveri tunnusti karmean teon - murhasi seksityöntekijän
+-  Voor Henri Behr is celstraf Bouterse een triomf voor vermoorde broer: ‘Nu werken aan beschaafd Suriname’
+-  Gazipaşa’da icradan satılık arsa
+-  El show de Pedro y Alberto
+-  Türkiye'nin en uzun gecesi Sinop'ta yaşanacak
+-  1975'te idam cezası müebbete çevrilen mahkumun 50 yıl sonra suçsuz olduğu anlaşıldı
+-  ABD, Güney Kore ve Japonya ortak bildiriyle Kuzey Kore'nin füze fırlatmasını kınadı
+-  Özel ile İmamoğlu arasında İzmir ve İstanbul için aday gerilimi! Dikkat çeken "Muharrem İnce" detayı
+-  İstanbul'da FETÖ operasyonu: 13 gözaltı
+-  Adana Büyükşehir Belediyesindeki rüşvet operasyonunda yeni gelişme
+-  Beşiktaş-Alanyaspor maçının dikkat çeken istatistikleri
+-  Bodrum açıkların 89 düzensiz göçmen yakalandı
+-  İki parti arasındaki kavga büyüyor! İYİ Parti'den İmamoğlu'na "fırıldak" çıkışı
+-  Avustralya, Husilere karşı oluşturulan ABD öncülüğündeki misyonuna asker yolluyor
+-  한국에너지전환사업단(유), 경인항 인천터미널 주차장 태양광발전시설 완공
+-  Legionowo. Zima w mieście. Dzieciakami znów zajmą się legionowskie Poczytalnia, MOK, Arena, Muzeum Historyczne i Wodne Piaski
+-  央視：黑龍江雞西煤礦事故致最少12死13傷
+-  동아제약, 박상현 프로와 아름다운 동행 이어간다
+-  "방산업계 최초" KAI, 정보보안경영시스템 국제 표준인증 획득
+-  신한금융그룹, 행안부와 지역경제 활성화 업무협약 체결
+-  넷마블, 주요 게임 11종 크리스마스시즌 기념 다양한 이벤트
+-  넷마블 '신의 탑: 새로운 세계', 맘스터치와 콜라보 이벤트
+-  동원홈푸드, 발달장애 화가 전시회 ‘함께 하는 삶 展’ 후원
+-  넥슨, ‘카트라이더 러쉬플러스’ 시즌 23 ‘어비스’ 업데이트
+-  IDEALNA TAKTIKA DONALDA TRAMPA? PRED IZBORE STVARA HAOS KAKAV ŽELI! "On se ovim hrani kao što se vatra hrani kiseonikom"
+-  에스넷그룹, 한국IT복지진흥원 ‘사랑의 PC 보내기’ 운동 동참
+-  KOSA “SW기술자 평균 임금 전년비 8.25% 증가”
+-  과기정통부, ‘제4회 인공지능 데이터 활용협의회’ 개최
+-  맨텍솔루션 아코디언, K-PaaS 적합성 시험 어드밴스드 인증 획득
+-  KT넥스알, 올해 성과 공유 및 내년도 성장전략 발표
+-  네이버, AI 스타트업 발굴 위해 공모전 개최
+-  크레더, 실물 예치 기반 금 코인 발행
+-  트레드링스, 예맨 반군 홍해 선박 위협에 솔루션 긴급 무료 지원
+-  인스웨이브시스템즈, 신한은행 전자서식 시스템에 ‘PDF스퀘어’ 공급
+-  Politie treft bij minderjarige verdachte honderden nitraten aan in woning in Sliedrecht
+-  Gunadarma Bangun Kampus di IKN, Ini Kata Jokowi
+-  코오롱베니트, SK증권 ‘데이터 플랫폼 고도화 사업’ 완료
+-  Aquaman 2 advance booking: Jason Momoa's movie expected to earn ₹2 crore on Day 1
+-  台灣海虎潛艦重大意外 6官兵落水3人失蹤
+-  Jorge Giménez Bech: “Coz de caballo”
+-  2023อีกปีทองกอล์ฟหญิงไทย สู่ความเร้าใจในศึก ‘ฮอนด้า LPGA ไทยแลนด์ 2024’
+-  Bonbons au THC: un groupe d'amis hospitalisés à Paris après en avoir mangé
+-  За два місяці - мінус 60 тисяч росіян: оглядач вказав на важливу особливість наступальної тактики РФ
+-  Andrzej Duda o zmianach w TVP: Doszło do złamania konstytucji. To jest anarchia
+-  Lemondó miniszterek, érettségi bojkott, Corvinus-botrány - ezek voltak 2023 februárjának legfontosabb történései
+-  [마감시황] 글로벌 증시 동조화…코스피 14.28p·코스닥 3.54p↓
+-  정비사업 규제 완화 띄운 尹…전문가 "사업 활성화에 긍정적"
+-  안산시, 중소기업 제조혁신 종합지원 거점 '디지털전환허브' 개관
+-  화성시인재육성재단 동탄목동이음터, '어울림종합사회복지관' 방한물품 65개 기부
+-  정선군, 2024년 군정 주요업무 보고회 개최
