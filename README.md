@@ -1,51 +1,11 @@
 # Latest News
--  Hande Fırat'tan çarpıcı açıklamalar: Gazeteler ölmedi, gazeteleri biz öldürüyoruz!
--  Winter solstice 2023: Sunrise and sunset times for NYC as days start to get longer
--  Amid `Dunki vs Salaar` clash, `Drishyam` pair quietly release their new film
--  Decomisan 4.000 tortugas de la Amazonía peruana que serían traficadas en Indonesia
--  تحالف الأزواديين يعلن فرض حصار على الطرق الرئيسة شمال مالي
--  Huset på Skogsvägen 6 i Ställdalen får nya ägare
--  Does COVID prefer the gut now? JN.1 is fastest-growing variant to emerge in past two years.
--  Water from Vaigai reaches Big Tank
--  Paris: trois interpellations après une tentative de home-jacking dans le 16e arrondissement
--  Sydney to stick by Gomes during ALM goal drought
--  Bruce Lehrmann's defamation trial enters last day
--  Police urged to apologise for handling of hate crimes
--  أكبر فوز لريال مدريد ضد ألافيس
--  WhatsApp tendrá un acceso privilegiado Instagram
--  Jurgen Klopp suggests some Liverpool fans should give up tickets for Arsenal game after flat atmosphere against West Ham
--  Bruce Lehrmann's defamation trial enters last day
--  Sydney to stick by Gomes during ALM goal drought
--  5 أبراج من الرجال ستتغير حياتهم في يناير 2024
--  موظف ينهي آلامه النفسية بقطعة قماش في الدقي
--  Suprema Corte de EU aborda disputas legales de Trump en vísperas de las elecciones de 2024
--  المقاومة الفلسطينية تقصف تل أبيب بدفعة من الصواريخ
--  Boy and girl convicted of murdering British transgender teenager Brianna Ghey in knife attack
--  Professeure d'arts plastiques empoisonnée au goûter de Noël : deux élèves en garde à vue, mauvaise "blague"... ce que l'on sait
--  Lousteau salió al cruce del DNU de Milei: «El Presidente debería reemplazarlo por una ley espejo»
--  Украина потребовала отменить футбольный матч Россия-Сербия
--  Arriva il pacemaker in miniatura per chi soffre di cuore
--  Todos los detalles de la boda de la hermana de Antonela Roccuzzo
--  روسيا تعلن تعاوناً دفاعياً شاملاً مع كوريا الشمالية
--  10 ember halt meg a prágai lövöldözésben
--  Policija otkrila identitet ubice iz Praga: Ovo je muškarac koji je usmrtio najmanje deset osoba
--  Srbija protiv nasilja traži uvid u izborni materijalu
--  Ramanathapuram Chamber of Commerce seeks development measures from PM
--  Marseille: "73% des faits d'homicides volontaires ou tentatives d'homicide en bande organisée sont imputables au contentieux entre la 'DZ Mafia' et 'Yoda'" affirme le procureur
--  Zabıta şoke oldu! Bu evden 3 ton çöp, tomar tomar para çıktı
--  15-Jährige aus Adelsheim-Sennfeld vermisst
--  Eleştiri yapmayalım. Samsun’ dan beraberlik ile dönmek iyidir
--  28-jähriger Mann aus Retzbach vermisst
--  Olly Alexander criticised for signing statement calling Israel an “apartheid state” and accusing it of genocide
--  In Verbindung mit Epstein: Gericht will Namen von 156 Personen freigeben
--  El gobernador de Texas, Greg Abbott, inicia vuelos de migrantes a Chicago
--  El truco definitivo para limpiar y eliminar las manchas en las paredes sin quitar la pintura
--  Klopp, Liverpool taraftarına fırça attı: Cumartesi günü Arsenal maçında kendinize gelin
--  LeddarTech Becomes a Publicly Traded Company After Completing Business Combination with Prospector Capital Corp., Will Commence Trading on Nasdaq Under Ticker Symbol "LDTC"
--  Bagaja koyduğu 3 çocuğun canını hiçe saydı
--  Melvyn Jaminet interdit de Stade ?
--  Kako će presuda Vrhovnog suda u Coloradu utjecati na Trumpovu predsjedničku kandidaturu?
--  Legia Warszawa: Jest stanowisko w sprawie Kosty Runjaicia
--  حرس الحدود بجازان يحبط محاولة تهريب 105 كجم من القات المخدر
--  الإمداد الطبي: فرع فزان استلم مخصصاته من المستلزمات الطبية
--  Baldur’s Gate 3 ocenzurowane w Japonii. Listek zawsze w wiadomym miejscu
+-  Soccerladuma | African Giants 'Make Decision' On Boss' Future After Sundowns Defeat
+-  Once muertos y decena de heridos deja tiroteo en universidad de Praga
+-  Nordenbörserna åt olika håll – fraktjätten steg
+-  Muere el periodista parralense Ernesto Salayandía
+-  ‘Ketamine bladder’ kills 26-year-old son: ‘He was in a lot of pain’, mom says
+-  Detienen a Manuel G. por presunta violación a menor
+-  Craft professional video content in hundreds of languages with vidBoard’s AI, now under $40
+-  Sturmtief wütet in Deutschland: Weihnachtsmärkte und Schulen dicht, Bahn eingeschränkt
+-  Nijerya'da 66 milyon dolarlık kaçak petrol yakalandı
+-  Bakan Işıkhan: İŞKUR, son 21 yılda 13,4 milyon kişinin istihdamına aracılık etti
