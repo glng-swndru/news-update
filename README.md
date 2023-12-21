@@ -1,11 +1,51 @@
 # Latest News
--  Covid-19 Scare In Kerala; 300 New Infections, 3 Deaths Reported In Past 24 Hours
--  강원랜드사회공헌재단 ‘정태영삼 맛캐다’ 28호점 재개장
--  평창서 2024강원동계청소년올림픽대회 성화투어 열려
--  김진국 창하네 야채과일 대표 동해 쌀 등 기탁
--  한전산업개발, 쌀 기탁
--  최문순 화천군수 대한민국 CEO리더십 대상
--  퇴계동 지역사회보장협의체 지역아동센터 아동 선물 전달
--  정선 여량면 기관단체 동지팥죽 나눔 사업 실시
--  강남동 새마을부녀회 성금 전달
--  춘천도시공사-춘천도시공사노동조합 임금협약 체결
+-  HLB, 코스피 이전 상장 추진 본격화
+-  창원해경, 거제 이수도 인근 해상 어선 간 충돌 발생
+-  수원특례시의회, 공유형 이동장치 안전 대책 마련 촉구
+-  해남군, 폭설 내린 읍면 시가지 중심 제설작업 '구슬땀'
+-  성산구, 상남 상업지역 불법광고물 야간특별단속 실시
+-  신영재 홍천군수, 바르게살기운동 홍천군협의회 가정나라사랑 강연회 및 성과대회 참석
+-  Desperate Dad Begs Alms From Bus Passengers for Newly-Born Child’s Hospitalization
+-  BDDK'dan kredi düzenlemesi
+-  Carta a Xavi
+-  Laura
+-  Moviments de població que marquen tendències de futur
+-  Google Pixel Tablet Full Specs, Features, Price In Philippines
+-  DH Awards 2023 : Et le vainqueur est… Thierry Neuville !
+-  Járvány ütötte fel a fejét a fronton, Kijev idén már nem kap pénzt Amerikától - Háborús híreink csütörtökön
+-  Б.Чойжилсүрэн, Л.Халтар нар ОХУ руу яаралтай томилолтоор явжээ
+-  공주시 옥룡동 해피뱅크, 사랑의 장학금 전달
+-  금산군 26일부터 택시 기본요금 700원 오른다
+-  남자가 1.3배 더 많다… 당진 청년 성비 불균형 심각
+-  괴산·청천전통시장, 충북 우수 전통시장 선정
+-  민주평통 김영길 자문위원, 민주평통 의장 표창
+-  눈폭탄 맞은 내포신도시
+-  Projet de Super League en foot : le basket et l’Euroligue comme seul exemple
+-  СМИ: еще в 16 штатах потребовали не допустить Трампа к выборам
+-  Argentyna: prezydent podpisał dekret o deregulacji gospodarki, ludność protestuje
+-  الصحة العالمية تطالب بتتبع متحور كورونا الجديد
+-  Мазаалай баавгайг үндэсний бахархалт амьтнаар зарлажээ
+-  هل الخوف من العين والحسد جائز أم محرم؟ "الفوزان" يُجيب
+-  منها الرياض.. تحذير عاجل من أمطار ورياح شديدة على هذه المناطق لـ 8 مساءً
+-  تعمل على تعزيز صلة الرحم.. 4 شروط لتأسيس الصناديق العائلية
+-  Virus tötet Tausende Katzen auf Zypern
+-  Der Anwalt und die „Reichsbürger“: Paul G. wollte Außenminister werden
+-  Julien de Sart, un des meilleurs joueurs de Pro League cette saison, raconte sa vision du jeu : “Je vois les mouvements des autres au ralenti”
+-  Jagan-Chandrababu: విశాఖ ఎయిర్‌పోర్టుకి ఏకకాలంలో చేరుకున్న జగన్, చంద్రబాబు.
+-  Umfrage: Trend zurück vom Online-Handel zum Ladengeschäft
+-  "ישראל הולכת לקטסטרופה כלכלית, הנינים שלנו עוד ישלמו את החובות"
+-  Milletvekilinden çarpıcı öneri: Büyük deprem hazırlığı için İstanbul nüfusu diğer bölgelere dağıtılmalı!
+-  أرقام رودريجو مع ريال مدريد هذا الموسم
+-  Vladaјuća većina spremna da podrži penzionisanje bivših radnika metalskog sektora
+-  Invité vun der Redaktioun (21. Dezember): Alex Donnersbach, Vize-President Logementskommissioun
+-  Redes sociales sin control, un peligro latente
+-  Matan a celador y a ‘Cholo Pritti’ en Panamá Este
+-  Los apodos imponen respeto en el típico
+-  La plata de ese jamón no salió de su bolsillo
+-  Infidencias y confidencias del 21 de diciembre de 2023
+-  Kesha is said to have parted ways with Dr. Luke's record label - six months after the pair settled their long-running court fight
+-  กมธ.ตำรวจ เชิญ "ราชทัณฑ์-ยุติธรรม" แจง "ทักษิณ" รักษาตัวชั้น 14 รพ.ตำรวจ
+-  "คมนาคม" คุมเข้ม ถ.พระราม 2 จ่อขึ้นบัญชีดำรับเหมาก่ออุบัติเหตุ
+-  “ภูมิธรรม“ ชี้กรณี “ทักษิณ” อย่าโยงการเมือง ทำตามระเบียบ-คุกแออัด
+-  Pour le Standard, la fin de saison risque d'être longue, très longue, trop longue...
+-  Schlag gegen syrische Drogendealer: Spur führt auch nach Berlin
