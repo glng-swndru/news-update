@@ -1,51 +1,51 @@
 # Latest News
+-  EU to shift new regulations as probe into X
+-  Unify: ecco la piattaforma per il calcio in streaming della Superlega
+-  Edirne Belediye Başkanı hakkında istenen ceza belli oldu. Üç ayrı suçtan yargılanıyor
+-  ICAR-CIFA organised Farmer-Scientist Interface Programme on Freshwater Aquaculture in Aloi, Balipatna, Khordha
+-  Michelle Keegan wows in LBD as she joins husband Mark Wright and family to celebrate his dad's birthday
+-  పేదల ఆరోగ్యం, ఆర్థికాభివృద్ధే ప్రధాని మోదీ లక్ష్యం
+-  నిండుకుండను తలపిస్తున్న కోయిల్‌సాగర్‌ ప్రాజెక్టు
+-  Dürr scheidet im ersten Durchgang aus - Shiffrin zur Halbzeit vorne
+-  استياء متزايد بين الأميركيين من دعم بلادهم لإسرائيل في حرب غزة
+-  أكثر من 15 قتيلا بإطلاق نار في جامعة تشيكية
+-  سرايا القدس تقصف حشود الاحتلال بخان يونس
+-  Körper und Seele wieder in Einklang bringen
+-  Einbruch in Mömbriser Getränkemarkt
+-  SVI DETALJI SVAĐE SESTARA KOVAČ Kristina napisala otvoreno pismo i JAVNO SE ODREKLA rođene sestre Aleksandre: "To što je izrekao njen partner je skandalozno"
+-  Un ladrón con una careta de Darth Vader apuñala a un hombre para robarle 80.000 euros
+-  Yunanistan'da pembe bayrak tartışması
+-  Lideri UAE čestitali Vučiću pobedu SNS na izborima
+-  Nana Falemi a venit la premiera din România a filmului cu Jason Momoa. Ce vedete autohtone au mai venit la eveniment.
+-  Iarna se dezlănțuie: când începe urgia. Zonele cele mai afectate de furtuna Pia, cât ține vremea rea
+-  Zevenaarse Joënna brengt vrede rond op de fiets
+-  Caso Letty Cando: Reformulan cargos contra el sospechoso
+-  Conferencia en la central obrera: “La CGT y todos los gremios estamos en pie de lucha para que el pueblo argentino no pierda un solo derecho”
+-  Professeure empoisonnée dans les Yvelines: "Il ne peut pas s'agir d'une mauvaise blague", pour Maxime Reppert (vice-président du Syndicat national des lycées, collèges, écoles et du supérieur)
+-  ابو عبيدة: نوجه التحية لشعبنا في الضفة والقدس الذي يواجه الهجمة النازية للاحتلال ونحيّي مقاتلي أمتنا الذين يربكون العدو وخصوصاً في جبهتي اليمن ولبنان
+-  LASWA, NIMASA, Others Reiterate Commitment to Waterways Safety
+-  أبرز المحطات في قضية لوكربي
+-  Plagiarism charges against Harvard's president throws school into more investigations
+-  Toluca estaría cerca de fichar a jugador del Liverpool
+-  هل يمكن النظر في طلبات التملك التي تم إحياؤها بعد 1387هـ؟ إحكام توضح
+-  تفاصيل جديدة في واقعة اختطاف طفلتين بعد تخديرهما في مصر.. "الأم" تخرج عن صمتها
+-  La course au Coach de l’année NBA 2024 : qui est le numéro 1 du classement ? Apéro TrashTalk
+-  Рэпер, обвиняемый в насилии в отношении женщины, выступит на предновогоднем мероприятии
+-  End-year break delays City Power from resolving electricity outages
+-  Нафтата с трансфер
+-  Casal é acordado por ladrão em Balneário Camboriú e invasão acaba com dois esfaqueados
+-  Diego Guauque dedica emotivo video a su mujer: 'Necesita un esposo y ahí voy a estar'
+-  Fusillades à Marseille: la difficulté de "récupérer" les jeunes pris dans les trafics
+-  Where is American child star Bow Wow now?
+-  Var: la commémoration des 100 ans de la disparition du dirigeable Dixmude
+-  Jetzt ist es sicher: Kai Häfner ist bei der EM dabei
+-  Quaker retira del mercado lote de granola que se distribuyó en Costa Rica por posible bacteria
+-  Charles Michel diz que ataques como o de Praga não podem crescer na UE
+-  Nice: jugé pour harcèlement et discrimination, Christophe Galtier relaxé
+-  US Hopes New Polish Gov’t Will ‘Seize Initiative’ and Become EU Leader
+-  Vuelo MH370 de Malaysia Airlines: testigo clave rompió el silencio y reveló detalles
+-  Île-de-France: trafic "exceptionnel" sur les routes, plus de 450 km de bouchons cumulés
+-  ¿Qué significa ‘tutaina tuturumá’? Este es el origen del famoso villancico en Colombia
+-  The Super League had its day in court and won. What is it and why do some fans and clubs object?
+-  ليبيا.. المنفي يبحث مع الكبير تحديد آلية تنسيق أعمال اللجنة المالية العليا
 -  AK Parti Sözcüsü Ömer Çelik açıkladı: 10 ilde adaylar belli oldu!
--  Spieler bedauern Abschied: Baumgart geht – der 1. FC Köln verliert seinen Kultcoach
--  Serrano vs Meinke set for March 2, Jake Paul on undercard
--  Universiteti i Tetovës dhe Shoqata “Reka e Epërme” organizuan tryezë të rrumbullakët, me temë “Ringjallja dhe e ardhmja e Rekës së Epërme”
--  הטרור הפסיכולוגי של חמאס: פרסם סרטון של 3 חטופים שגופותיהם חולצו
--  «Аталанта» Миранчука выступила против создания Суперлиги
--  [ŽT] Baigė kaip tarakonai. Okupantai savimi išbandė „Bradley“ svorį (Video)
--  Žemėlapių programėlė „Google Maps“ praneša apie atnaujinimą: nauja funkcija jau veikia ir Lietuvoje
--  „Eleport“ Kauno „Akropolyje“ įrengs didžiausią elektromobilių įkrovimo parką Baltijos šalyse
--  Audra kasdien. „Atrodo, kad Rusija eina va bank. 100 kovų per dieną.“ Ždanovas apie padėtį fronte (Video)
--  105 metų moteris papasakojo apie savo ilgaamžiškumo paslaptį. „Dar ir dabar ji geria viskį“ (Foto)
--  Ким Чен Ын заявил, что КНДР способна нанести ядерный удар в ответ на провокцию
--  Irak'tan Gazze'ye 10 milyon litre akaryakıt yardımı
--  Ürdün, Gazze'ye 89 tır ve 28 uçak yardım yolladı
--  Steariinikattila syttyi iltapäiväkerhossa – hälytys Rauman Lapista
--  2023 йилнинг энг машҳур ҳаво йўналишлари номи маълум бўлди .
--  Чехиядаги университетда талаба оммавий қирғин уюштирди, 11 киши ўлди .
--  Narcobanditisme : sur les 47 morts en 2023 à Marseille, 7 victimes mineures
--  Three-bedroom home in Saratoga sells for $4.2 million
--  صفاقس: استكمال تركيز التطبيقة الاعلامية e-pharmacie للإنطلاق في استغلالها بمراكز الصحة الأساسية
--  Воздушная тревога объявлена в Харьковской и Днепропетровской областях Украины
--  Kiefer Sutherland: See Photos of the Actor
--  Weihnachten in der Flüchtlingsunterkunft
--  Ministar vanjskih poslova Crne Gore u posjetu RH; Otvorena pitanja iz Domovinskog rata
--  Boa's balen van uitlachen op televisie: ‘Het is totale nonsens dat we halve criminelen zouden zijn’
--  تواصل منافسات بطولة الاستقلال للشباب وشباب لودر يقصي شباب مودية ويضرب موعدا ناري مع شباب زاره في الدور الثاني.
--  Tinder's $500 a Month Membership Tier Has Me Embracing Loneliness
--  A wildcat strike shuts down English Channel rail services, causing misery for Christmas travelers
--  After a dozen failures, Salmon trustees vote to float another bond
--  Researchers reveal linkage between wildfire activity and abrupt climate events during the Holocene
--  Opinion: Climate change solutions require collaboration between politicians, scientists and entrepreneurs
--  Men and women who hold sexist views are less responsive as parents, research finds
--  Circle Gains French DASP Registration Boosting EU Presence
--  Trump’s Law Clerk Gag Order Remains for Now, High Court Rules
--  Caso Superlega, Abodi annuncia: "I grandi Paesi si vedranno il 10 gennaio a Bruxelles"
--  This Mansion-Sized Apartment Listed for $50 Million Is the Most Expensive Condo in Los Angeles
--  PlusLiga: PSG Stal Nysa - KGHM Cuprum Lubin. Relacja i wynik na żywo
--  Taxisterben: Wenn kein Taxi mehr kommt in Saalfeld-Rudolstadt
--  Spendenaktion: Die Ausdauer der Jenaer Montessorischüler brachte 26.000 Euro für sterbenskranke Menschen
--  Čudo od 16 godina izdominirao na SP-u, a 3000 navijača ustalo i pjevalo: ‘Ujutro moraš u školu’
--  Fleischloses Weihnachtsessen: „Schweinelendchen“ mit Herzoginkartoffeln und Gemüseauflauf
--  Prilepin ÇAXNAŞMA YARATDI: Rusiya səfiri Özbəkistan XİN-ə çağırıldı
--  Liga Mistrzów: Cucine Lube Civitanova - VK Lvi Praha. Relacja i wynik na żywo
--  Universität: Ein „Herzengel“, der Büchern in Jena den Weg ins digitale Zeitalter bereitete
--  PlayStation: Hunderte TV-Serien werden entfernt, trotz Kauf – Update
--  Φρέντι Μπελέρης: Ο Έντι Ράμα τον αναγνωρίζει ως εκλεγμένο δήμαρχο της Χειμάρρας
--  صفقتان بـ200 مليون لبرلماني وشقيقه لتأثيث مقر شركة معادن
--  Trasladan de urgencia a hospital a señor que se cayó de árbol y se golpeó la cabeza
--  Курчатовский институт поставил российский рекорд по длительности импульса в токамаке
--  Amy Robach Addresses Rumors That Robin Roberts And Other ABC Colleagues ‘Abandoned’ Her Amid The T.J. Holmes Drama
