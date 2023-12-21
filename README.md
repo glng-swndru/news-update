@@ -1,51 +1,51 @@
 # Latest News
--  మతసామరస్యాన్ని దెబ్బతీసే నిర్మాణాలపై చర్యలు తీసుకోవాలి
--  పెన్షన్‌ వస్తుందో.. రాదో
--  ఆగుతూ ‘సాగు’తూ..
--  Indian Trade Curbs To Cut Exports By $4 Bn, Red Sea Attacks A Risk: Report
--  China Bans Export Of Rare Earth Processing Tech Over National Security
--  IndiGo Settles Revised Rs 20 Lakh Penalty With DGCA For Four Tail Strikes
--  Ukraine Gets Last Tranche Of EU’s 18 Bn Euro Aid Package
--  M3M To Invest Rs 700 Cr In Noida Luxury Retail, Serviced Apartment Project
--  US, China Top Military Officials Speak After Year Amid Stretched Relations
--  Regulatory Body Bans Anti-cold Drug Combination For Kids Aged Under Four
--  Yes Bank Co-founder Rana Kapoor Gets Bail In ED’s Case, Will Remain In Jail
--  India Gets Consular Access In Nikhil Gupta Case In Czech Republic
--  EU, UK Extend Trade Rules To Avoid Tariffs On Electric Vehicles
--  నాలుగేళ్లుగా నిరుపయోగంగా!
--  ప్రమాదవశాత్తు వ్యక్తి..
--  Германия — Климат, пенсии, полеты, пособия: на чем правительство планирует экономить
--  Nokia snizila ciljnu dobit za 2026.
--  Ivanka Trump sports a bulletproof vest as she and husband Jared Kushner tour an Israeli kibbutz left devastated by Hamas horror attack - and speak to residents forced to flee their homes amid violent siege
--  Koalicja 15 Października uznaje zmiany w mediach za fakt dokonany
--  తెల్లబోతున్నారు..!
--  John Legend holds son Wren after landing at JFK Airport in New York with his family and team of FOUR nannies
--  Nicole Scherzinger shows off her dramatic hair transformation as she poses in a busty crop top for latest social media snaps
--  Defensoría del Pueblo de Colombia reporta el asesinato de 163 defensores de los DD.HH. durante 2023
--  న్యాయం చేసేవరకు పోరాటం
--  La familia a la que se le quemó la casa en Tordoia espera poder cerrar el tejado este fin de semana
--  Trent Brown: "Everybody" on Patriots believed Malik Cunningham deserved chance to play quarterback
--  Jakob Norén knockad i JVM-genrepet: "Ingen klockren tackling"
--  Μητσοτάκης για μακελειό στην Πράγα: Συντετριμμένοι όλοι μας από την αποτρόπαια επίθεση
--  Maduro y Putin conversan telefónicamente para afianzar «la cooperación multifacética a todo nivel»
--  Naira scarcity heavy burden for Nigerians – CACOL laments
--  BREAKING: Two Rhode Island men face assault charges after fight with New England Patriots fan Dale Mooney who died in the stands
--  В РФ приговорили к 12 годам колонии миллиардера родом из Беларуси
--  Red Dead Redemption on Switch is already discounted in holiday sale
--  “Buy me this players” Mauricio Pochettino makes £706m January transfer window promise amid Chelsea radar expansion
--  Muere la escritora y periodista Cristina Pacheco
--  أمريكا تكشف عن مخاوفها بشأن مشروع القرار الأممي الداعي لوقف القتال في غزة
--  రెగ్యులర్‌ చేయాల్సిందే
--  Жизни вне опасности: детский омбудсмен рассказала о состоянии детей из поезда Тюмень — Адлер
--  گاڑیوں کے شوقین افراد کیلئے اچھی خبر آگئی
--  Pour 2024, la Ville de Lorient veut mettre le paquet sur la végétalisation
--  BRS victory would have expedited SCB-GHMC merger, says Cantonment MLA
--  Донецкая муздрама провела более сотни показов для детей
--  Streľba v Prahe: Prezidentka vyjadrila sústrasť a ponúkla prípadnú pomoc
--  Här är de 15 mest lästa reportagen 2023
--  Withdraw orderlies from retired IPS officers’ homes, says Karnataka govt.
--  A jednak! Klub Polaka zszokował ws. Superligi
--  Ausgezeichnete Architektur: Junge Architekten aus Stuttgart starten durch
--  Winnipeg police investigate fatal stabbing, 19-year-old suspect in custody
--  Ατρόμητος – Ολυμπιακός LIVE για την 15η αγωνιστική της Super League
--  מבלי לתלוש פוסטרים: הוקם קיר החטופים הגדול בעולם
+-  Drug shown to block artery fat takes a major step forward thanks to Aberdeen scientists
+-  Glecirasib by Jacobio Pharmaceuticals Group for Solid Tumor: Likelihood of Approval
+-  MT-8421 by Molecular Templates for Esophageal Squamous Cell Carcinoma (ESCC): Likelihood of Approval
+-  Джошуа та Валлін провели битву поглядів
+-  Dismissed former trustee taking school board to court, hopes to be reinstated
+-  Dvije Hrvatice u top 10 prve vožnje slaloma u Francuskoj
+-  Akıllı Balina Bu Altcoine 42 Dolarlık Yatırım Yaptı, Milyoner Oldu!
+-  Jordan expands probe into Smith's handling of Trump cases
+-  Honda recalls nearly 300k vehicles in Canada due to defect potentially causing engine failure
+-  Auto con falla mecánica provoca aparatoso choque
+-  Një i burgosur shpallet i pafajshëm pasi kaloi 48 vite në burg
+-  DNA Exclusive: Revamped Crime Laws to Ensure Genuine Justice
+-  Judge Rules Only a Few of Over 150 Names Will Remain Anonymous on Epstein List After Appeals
+-  DRŽAVA ĆE UVEK BITI UZ MAJKE! Ministarka zdravlja Danica Grujičić otvorila drugu konferenciju Asocijacije mama Srbije
+-  Scandale des déchets du BTP à l’Ouest des Alpes-Maritimes: "Nous demandons une réponse ferme" réagit l’Aspic
+-  الوهباني يعزي بوفاة القاضي مطهر الإرياني
+-  Rudy Giuliani files for bankruptcy days after being ordered to pay $148 million in defamation case
+-  Forscher machen irre Entdeckung – Amerika und Asien könnte es so bald nicht mehr geben
+-  Totalenergies verkauft Anteil an Windpark Seagreen an thailändische PTTEP
+-  Côte D'ivoire :: Le Comité D’organisation De La Can 2023 Établit Des Règles Strictes Pour La Retransmission Des Match :: Cote D'ivoire
+-  OFICJALNIE: Z Lecha Poznań do Polonii Warszawa
+-  RTS Planeta: Programska promocija za nedelju od 25. do 31. decembra 2023.
+-  Trump ally Rudy Giuliani files for bankruptcy after $148 million judgment in case
+-  B.C. woman faces multiple charges for under-18 sex trafficking, say Langley RCMP
+-  "علامات تظهر في الليل".. تشير إلى إصابتك بمرض القلب
+-  إحباط صفقة مخدرات بـ 1.2 مليون جنيه في كرداسة
+-  بالفيديو.. قتلى وجرحى بإطلاق نار داخل مبنى جامعي في التشيك
+-  A forint ma sokkal jobb formát mutatott, mint az időjárás
+-  No discussion with Israel on possibility of Indian workers replacing Palestinian labourers: MEA
+-  In Argentina contratti in Bitcoin e crypto? Sì, anche se…
+-  Generación de basura y consumo de energía durante fiestas navideñas y de año nuevo, crece 30%
+-  Los alumnos de Les Mariñes, de visita en la Villa
+-  OFICJALNIE: Obrońca wraca do Rakowa Częstochowa. Za nim trudne chwile
+-  Projektohet “operacioni fshesa” te Lazio, rrezikon edhe Hysaj
+-  ROUNDUP: Schwere Sturmfluten erwartet - Bahn- und Fährverkehr gestört
+-  Two new EggConsole PC-8801 games hit Switch today, Silpheed and Hydlide
+-  „Hoffe, du fühlst dich dein Leben lang schlecht“ - Als Totraser von München sich im Gericht entschuldigt, reagiert Zeuge eiskalt
+-  Çalışan emekliye 5 bin lira ikramiye için tarih belli oldu
+-  مؤسسة النفط تعلن إجمالي إنتاج الخام والغاز الطبيعي خلال نوفمبر
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 22 декабря 2023 года
+-  يحدث فقط في جنوب إفريقيا.. احتجاجات العمال تحت الأرض للمطالبة بحقوقهم
+-  Kokoa TV Alternatives: Free Ways to Watch Latest Movies in 2024
+-  ¡Caída libre! La Sele pasó del puesto 32 al 52 en el ranking FIFA en tan solo un año
+-  Hattyút mentettek a közutasok az M0-son – videó
+-  Joulukuusesta löytyi kutsumaton asukas Yhdysvalloissa – Video sulattaa sydämet
+-  صافي أرباح البنوك الروسية بلغ 3.2 تريليون روبل منذ بداية العام الجاري
+-  Trumps tidigare advokat i konkurs efter jätteskadestånd
+-  5 things to know before watching Aquaman 2
+-  Garner man wins two $100,000 Powerball prizes, gifts one to twin brother
+-  Prisão preventiva para homem que agredia a esposa em Celorico da Beira
