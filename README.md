@@ -1,51 +1,51 @@
 # Latest News
--  Fans all call Dermot Kennedy ‘amazing’ as he makes incredible gesture for charity with intimate Dublin gig
--  Course au MVP selon ESPN : Joel Embiid est en route pour le doublé
--  Le programme de la nuit en NBA : des Clippers en back-to-back se déplacent chez le Thunder
--  مصر للطيران تنقل أبطال السوبر المصري في نسخته الجديدة بالامارات
--  خصص دعمًا ماليًا لـ30 إيبارشية.. البابا تواضروس يلتقي كهنة الرعاية الاجتماعية
--  8 ورش لتنمية المهارات.. ختام برنامج "نتشارك" في مركز شباب أبو زنيمة بجنوب سيناء
--  متلازمة تنهي حياة رضيعة بشكل مفاجىء.. كيف حدث ذلك؟
--  الاحتلال يزعم السيطرة على حي الشجاعية ويعمل على إقامة منطقة عازلة
--  وزير الإسكان يلتقى أعضاء جمعية مستثمرى أسوان.. ويستعرض موقف المشروعات
--  تحذيرات من الطقس المتقلب.. كيف استعدت أسيوط؟
--  وزير الصحة يناقش الاستراتيجية القومية لعلاج سرطان الأطفال
--  اليوم العالمي لذوي الهمم.. دورة تعليمية ويوم ترفيهي في "ثقافة شرم الشيخ" - صور
--  Podcast "Eine Halbzeit mit...": Die neue Folge vom 21.12.2023 hier hören
--  ريال مدريد وبرشلونة ينتظران مليار يورو
--  أبو عبيدة: استهدفنا 720 آلية منذ بدء العدوان البري
--  أبو عبيدة : الاحتلال مشغول بالبحث عن صور النصر والإنجاز
--  تبيان توفيق: نقطة ضعف المليشيا (..)
--  El presidente Luis Abinader garantiza seguridad alimentaria
--  Patient data stolen in ransomware attack affecting millions of healthcare victims
--  Bettina Tietjen: „Meine erste Sendung war in einem kleinen, hutzeligen Kellerstudio“
--  Das Kunsthaus Kaufbeuren lotet Grenzen des Realismus aus
--  Lundabo döms till fängelse för oaktsam våldtäkt
--  Best Thunderbolt docks 2023: Extend your laptop’s capabilities
--  Tako pozna večerja ogroža zdravje
--  Top 100 Yankees: #44 Jack Chesbro
--  Uniós forrásból újult meg a Semmelweis Egyetem több épülete
--  Lundabo döms till fängelse för oaktsam våldtäkt
--  Tillslag mot mc-gäng i Ekeby – flera brottsmisstänkta
--  The Role of Pharmacists in HIV Care Continues to Expand
--  Colisão frontal entre carros deixa três feridos na zona rural de Alta Floresta
--  New England cities dominate top 10 Zillow searches of 2023
--  Stormy Daniels says hosting gay dating show is the ‘best job’ ever: ‘And I don’t even get to have an orgasm!’
--  I rescued an adorable baby kitten but it turned out to be something far more dangerous – even vets were baffled
--  Ledare: Julen borde vara en fristad
--  Фигурантов дела Абызова приговорили к срокам от 5 до 12 лет
--  El tendón de Aquiles ensucia el gran 2023 de Cuadrado
--  An American man was 'completely convinced' he was participating in a UK Christmas tradition. It turned out his British wife made the whole thing up.
--  Russian elite’s sordid near-naked ‘Sodom & Gomorrah’ bash attended by Putin’s ‘goddaughter’ sparks fury of war fanatics
--  Russian elite’s sordid near-naked ‘Sodom & Gomorrah’ bash attended by Putin’s ‘goddaughter’ sparks fury of war fanatics
--  Margareth Menezes desmente ataque bolsonarista à Lei Rouanet (vídeo)
--  Veliki broj poslodavaca može organizirati praktičnu nastavu za učenike i studente
--  EPL: Ian Wright predicts scoreline for Liverpool, Arsenal clash
--  Bu günədək Qəzzadan Türkiyəyə 1 149 nəfər təxliyə edilib
--  Andrew Tate applies for return to UK after mum Eileen suffers heart attack as he’s banned from leaving Romania
--  Andrew Tate applies for return to UK after mum Eileen suffers heart attack as he’s banned from leaving Romania
--  Mercedes inspired by Avatar film lets you control car with your MIND – there’s NO steering wheel & tyres move sideways
--  Mercedes inspired by Avatar film lets you control car with your MIND – there’s NO steering wheel & tyres move sideways
--  Jennifer Lopez reveals ‘PTSD’ over Ben Affleck romance — how pals didn’t support their work reunion
--  Denise Richards Says 'I Made an A** Out of Myself' Upon Returning to 'Real Housewives of Beverly Hills'
--  Para eliminar o bolor só precisa de uma coisa (vodca)
+-  Omiljena grickalica može vam pomoći u borbi s kilogramima: Bitno je da pazite na jedno
+-  Çaykur Rizespor, Pendikspor'a 5 attı
+-  أوكرانيا: روسيا أطلقت 7400 صاروخ و3700 طائرة مسيرة منذ بدء الحرب
+-  FAST işlemlerinde limit 50 bin TL'ye yükseltildi
+-  Costco pone en descuento único el whisky. ¿Qué marcas participan?
+-  مقتل ثلاثة جنود هنود في اشتباك مع انفصاليين بكشمير
+-  Instagram ve Facebook, Filistin yanlısı paylaşımlara sistemli sansür uyguluyor
+-  Ο Γιάννης Αντετοκούνμπο είναι αμφίβολος για το Μιλγουόκι Μπακς – Ορλάντο Μάτζικ με πρόβλημα στο πέλμα
+-  Се зголемува бројот на загинатите во Прага
+-  Gătitul de Sărbători poate avea efect terapeutic
+-  Minkur
+-  Ready for an Electrifying 2024? Grab Some RIVN Stock Now!
+-  Nasser Bourita : « Les relations Maroc-Tanzanie ont de tout temps été fondées sur la solidarité au service des causes africaines » !
+-  నకిలీ విత్తనాలతో మోసం
+-  Amazon reduces Prime Lite membership price by ₹200: What are new benefits?
+-  Пилоты объявили чрезвычайную ситуацию из-за сигнала о возгорании двигателя
+-  Asociația Salvați Bucureștiul nu este singura pentru care un dezvoltator imobiliar a obținut dizolvarea în instanță / O altă asociație, care a cerut anularea autorizației pentru niște turnuri din Floreasca, a pățit la fel
+-  As Public Health Agencies Transform, ASTHO Launches a New Interactive Data Visualization Tool to Track Progress and Trends
+-  Woman sexual assaulted in Kitchener on Wednesday evening: police
+-  Nigerians Will Enjoy Better Telecoms Service In 2024 – NCC
+-  Texas border facilities overwhelmed by migrant influx, officials say
+-  HSK Kararnamesi yayımlandı! 506 hakim ve savcının görev yeri değişti
+-  Finlandia envía a Ucrania un nuevo paquete de ayuda militar de 106 millones de euros
+-  మళ్లీ కరోనా కలవరం
+-  “Σχεδόν γκολ στο πρώτο άγγιγμα”
+-  Başıboş köpek sorunu nasıl çözülecek? A Haber ekranlarında uzman isim cevapladı: "Saldırganlık sebebi sadece açlık değil"
+-  Россиянам раскрыли способы сэкономить при продаже дачи
+-  Teacher dead, 6 students injured in accident during school trip
+-  Keleş: Üzgünüz ama 1 puan da kötü değil
+-  ¿Casa con jardín en los ochenta y un pisito en 2023? Así renta el Gordo según dónde vivas
+-  Onze pessoas, incluindo atirador, são mortas em ataque a universidade em Praga
+-  В ДНР расстрелявшему 25 мирных жителей военному ВСУ вынесли приговор
+-  Verteidigungsfähigkeit: Donald Trump und die deutsche Bombe
+-  Pasará en prisión al menos 3 meses por sustraer a su hijastro
+-  Нетаньяху заявил, что Израиль не остановит войну в Газе пока не вернет всех заложников
+-  వైసీపీ బలవంతపు ఆట!
+-  Projet de loi immigration : la ministre de l'Enseignement supérieur, Sylvie Retailleau, a présenté sa démission, qui a été refusée
+-  Superlega, Figc: "Difenderemo sempre i campionati nazionali"
+-  נהיגה ראשונה בקאן אם מאבריק R: מפלצת שבילים
+-  Nemecká prokuratúra začala vyšetrovanie v prípade úmrtia rodiny v Pásme Gazy
+-  Firefighters battle heavy flames at Brooklyn apartment building
+-  Elbe, Weser und Ems steht schwere Sturmflut bevor
+-  Choque de moto contra carro deja dos personas lesionadas de gravedad por la carretera Mochis-Ahome
+-  Kıbrıs olayları nasıl başladı? 1963'teki Kanlı Noel'den 1974'e kadar neler yaşandı? İşte Yavru Vatan'ın kurtuluş hikayesi
+-  Zorro vai ganhar série no Prime Video; veja trailer
+-  S&P/TSX composite up more than 150 points, U.S. stock markets also higher
+-  Pingelised läbirääkimised uueks vaherahuks Gazas
+-  Deficitul de locuințe din Olanda se datorează politicilor publice deficitare și nu migranților - experți
+-  Last-Minute Pop Culture Holiday Shopping Guide for Procrastinators
+-  LV-katugallup | Lahjahankinnat aiheuttavat stressiä ja myös rahanmeno hirvittää espoolaisessa kauppakeskuksessa – "Lahjoihin sijoittaa aina liikaa"
