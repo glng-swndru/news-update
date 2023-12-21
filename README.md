@@ -1,51 +1,51 @@
 # Latest News
--  Knicks roll past rival Nets to end road trip on high note
--  Decenas de comunidades aisladas en Australia por inundaciones causadas por un ciclón
--  Guatemala: cumplen posada por la democracia y cantan villancicos contra corrupción
--  Home Alone fans point out surprise hidden detail in iconic Christmas film and a glaring mistake
--  Colombia: 697 toneladas de cocaína han sido incautadas este año por las autoridades
--  La Casa Blanca critica la nueva ley de Texas porque "deshumaniza" a los migrantes
--  I analysed Sydney Sweeney's 'it factor' - and how any woman can use her subtle tricks to make men obsessed with them
--  Los humanos, responsables de la extinción de 1.430 especies de aves, según estudio
--  Nova star hilariously claims Kim Kardashian 'stole his look' after he gets corrective eye surgery
--  Debat Cawapres, Mahfud akan Jelaskan Skenario Cara Ekonomi Tumbuh Bisa Sampai 7 persen
--  “Ўзагросуғурта” АЖ дан навбатдаги акция (+видео)
--  Tunggu Keputusan Suku Bunga BI, IHSG Diprediksi Bergerak Variatif
--  Everest Medicines' Partner Calliditas Therapeutics Announces Nefecon® the Only FDA-approved Treatment for IgA Nephropathy to Significantly Slow Kidney Function Decline
--  KOSA, 2023 글로벌 시장 진출 오픈세미나 성료
--  솥뚜껑삼겹살 전문점 무쇠돈 ‘전주 아중리점’ 오픈
--  ㈜다이오드전자 이탈리아 POSEICO 반도체 신형 2200V 다이오드 모듈 출시
--  “삼성전자, 日 요코하마에 반도체 연구개발 거점 신설 예정”
--  ‘한동훈 비대위원장’이 與 총선 이끈다…당내 우려 잠재울까
--  Microsoft prescribes command-line surgery for HP Smart app malady
--  Women in IT are on a 283-year march to parity, BCS warns
--  This could still wing its way to you, if you have the dosh: One Concorde engine seeks new home
--  SSH shaken, not stirred by Terrapin vulnerability
--  Study uncovers presence of CSAM in popular AI training dataset
--  NASA makes purrrr-fect deep space transmission of cat vid
--  FTC bans Rite Aid from using AI facial recognition in stores for 5 years
--  Microsoft offers rollback for those affected by Windows wireless futility
--  Japan to allow limited rideshare services starting April 2024
--  UK officials caught napping ahead of 2G and 3G doomsday
--  Calculating Pi in the sky: Axiom Space plans to launch 'orbital datacenter'
--  Manchester's finest drowning in paperwork as Freedom of Information requests pile up
--  Cybercrooks book a stay in hotel email inboxes to trick staff into spilling credentials
--  Alves set to go on trial for rape in February
--  ‘Only title we don’t have’
--  Govinda turns 60: Actor starts celebration with family, paparazzi & little fans
--  Rapiña ¡de ganchos' tras volcadura en carretera
--  Sports Ministry confirm Khel Ratna for Sat-Chi
--  MSSA’s top individual honours go to Vignesh, Swanandi
--  LG Chem Breaks Ground on $1.7 Billion Anode Plant in Tennessee for Electric Vehicles
--  ‘The Masked Singer’: Which ‘00s R&B Hitmaker Is the Season 10 Winner?
--  هل قائمة المنقولات من الميراث أم ملك للزوجة؟ أمين الفتوى يجيب - فيديو
--  The Battle For Germany’s EV Market, Part XI — BMW Shines!
--  ぴちぴち鮮魚が舞い踊る 舟盛り＆お造りのカプセルトイで遊んでみた
--  Lawson drops our Christmas cake, responds with god-like customer service
--  "الحكومة الرقمية": 97% من الخدمات الحكومية إلكترونية (فيديو)
--  عاجل.. حساب المواطن يوضح تأثير قرض العمل الحر على الدعم
--  Debonair Supper Club to open New Year’s Eve in downtown Orlando
--  Trending warmer, then wetter on Christmas Day across Central Florida
--  ‘Keeping our hopes high.’ Pocatello teen’s family determined to recover his body
--  BTC Whales Return As Blackrock Makes Bitcoin ETF Approval ‘Key Priority’
--  GOP-Led House Panel Now Probing Alleged Plagiarism by Harvard Prez
+-  Altech DFS predicts AU$5b EBITDA for anodes project
+-  ‘คลัง’ เตรียมถกแบงก์รัฐหั่นดอกเบี้ยอุ้มหนี้ข้าราชการ
+-  김태흠 지사 “대설·한파 대응 철저” 당부
+-  Mother likely suffered 'violent' death, coroner finds
+-  भुक्तानी ढिलाइले तनावमा ठेकेदार
+-  Two men have been charged with stealing equipment from telecommunications sites in the Far North
+-  China warns Philippines to resolve South China Sea tensions via dialogue
+-  川島海荷 所属事務所との契約終了
+-  What we learned: Cowboys still searching for answers away from home
+-  Congress in Rajasthan Assembly condemns suspension of MPs
+-  한동훈, 국민의힘 비대위원장직 수락…오후 이임식 예정
+-  '주식 큰손' 양도세 확 준다…대주주 기준 10억→50억원
+-  ◇대구시교육청 인사(1월1일자)
+-  尹대통령, 독거노인 집 찾아 주거환경 점검
+-  달빛철도 특별법 국토위 법안소위 통과
+-  В Курской области потушили загоревшийся компьютер в офисном помещении
+-  MCG curator Matt Page drops first hint on second Test pitch against Pakistan
+-  Ρωσία-Αραβικός Σύνδεσμος: Χρειάζεται να υπάρξουν εγγυήσεις για την ασφάλεια των θαλάσσιων μεταφορών
+-  Lika-Liku Gugatan Praperadilan Firli Bahuri, Hakim Imelda Herawati: Permohonan Tidak Diterima
+-  विदेश जाने महिनामै पौने लाख
+-  بايدن: ترامب يشكل العديد من التهديدات لبلدنا وديمقراطيتنا
+-  Arriban granaderos a retirar a pobladores de Xalmimilulco en la Puebla-México
+-  Mahmut Cigercioglu: Jealous husband jailed after brazen streetside attack over ‘rejection’
+-  Mahmut Cigercioglu: Jealous husband jailed after brazen streetside attack over ‘rejection’
+-  松野氏らに任意聴取を要請 特捜部
+-  3 điều rút ra trong chiến thắng của Liverpool trước West Ham
+-  Mourinho cứu rỗi sao Chelsea
+-  David Moyes hoàn toàn bất lực trước sát thủ mang tên Liverpool
+-  Inter Milan “méo mặt” vì chấn thương của Lautaro Martinez
+-  Huyền thoại Liverpool chỉ ra cái tên đáng sợ nhất đội hình Arsenal
+-  Quỷ đỏ có quyết định cuối cùng dành cho Varane, Casemiro
+-  Danny Murphy dự đoán kết quả đại chiến Liverpool - Arsenal
+-  Sir Jim đến, Antony phải ra đi
+-  "Cậu ta cứ như ngọn hải đăng vậy"
+-  Xavi: "Không thể chấp nhận được"
+-  BLV Quang Huy nói thẳng vấn đề của Kiatisuk tại HAGL
+-  CHÍNH THỨC: Premier League ra thông báo sau sự việc ngừng tim
+-  Thắng nghẹt thở đội bét bảng, Barca trở lại top 3 La Liga
+-  Chấm điểm Liverpool: Đâu cần tới Salah, vì Klopp đã có Curtis Jones!
+-  8 lần chấp tay đôi thắng, tiền đạo Liverpool gây ấn tượng mạnh
+-  Người hùng Barca: 'Tôi đã nghe thấy CĐV la ó'
+-  Những ngôi sao Ngoại hạng Anh sắp vắng mặt vì Asian Cup 2023
+-  Với Curtis Jones, ông già Noel đã đến sớm với Liverpool
+-  Nghịch lý kẻ Barca muốn bán cho M.U
+-  Mất trắng 73 triệu bảng, M.U đẩy 'cừu đen' khỏi Old Trafford
+-  Jarell Quansah có điều khoản lạ trong hợp đồng với Liverpool
+-  Xavi ca ngợi cứu tinh của Barca
+-  Thắng giòn giã, Klopp vẫn thẳng thắn chê một điều tại Anfield
+-  Đấu Arsenal, Klopp cầu cứu Anfield
+-  Xavi: "Barca trả giá đắt vì sai lầm cá nhân"
