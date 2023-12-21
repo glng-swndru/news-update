@@ -1,11 +1,11 @@
 # Latest News
--  CBDT Modifies Safe Harbour Definition For Group Loans
--  BJP Confident Of Winning Over 50 Seats In J&K, Will Not Enter Into Pre-Poll Alliance: Ashok Koul
--  Personal Loan Interest Rates Today, December 21, 2023 | Get a Personalized Quote
--  Simon Gregson flooded with support from Coronation Street co-stars as he trades soap for BBC show this week
--  New Discoveries Shed Light on Cellular Aging and Potential Treatments
--  Football : le Real Madrid et le FC Barcelone main dans la main pour défendre le projet de Super Ligue
--  Football: l'UEFA affiche sa «confiance» dans la légalité de ses nouvelles règles
--  Le journal du mercato : Kimpembe prolonge au PSG, Sage évasif sur son avenir à l'OL
--  Football: «La Super Ligue est un modèle égoïste et élitiste», déplore La Liga
--  Football: la Superligue remporte une bataille judiciaire face à l'UEFA
+-  ABD medyasından Tayvan iddiası: Xi, Biden'a söyledi
+-  Rudy Giuliani Hawks Unapproved Supplements as Judge Orders He Cough Up $148M
+-  В Сморгони вандал атаковал костел и авто священников
+-  Ukraina laillistaa lääkekannabiksen
+-  Vuçiç: Vullneti elektoral i qytetarëve do të mbrohet
+-  Χάρης Δούκας: Υποψήφιος για την προεδρία της ΚΕΔΕ
+-  Britannian pyrkimys lähettää turvapaikanhakijat Ruandaan tuskin pysäyttäisi luvatonta maahantuloa Englannin kanaalin yli, arvioivat asiantuntijat
+-  Emerging Brands on The Radar for Christmas Gifting
+-  A Mancomunidade instalará novos puntos limpos de proximidade
+-  Tüketici kredilerinde düşüş
