@@ -1,11 +1,51 @@
 # Latest News
--  PSG: Ex-Trainer Christophe Galtier nach Rassismusvorwürfen freigesprochen
--  TransThera Announces the Global Multicenter Phase 3 Clinical Trial Completed First Patient Dosing in the US Evaluating Tinengotinib in FGFRi Relapsed/Refractory Patients with Cholangiocarcinoma
--  Creator-First Social Membership Network VERO Introduces VERO Music™
--  illuni Ushers in New Era of Virtual Socialization with Global Launch of Moii
--  CRE-AR of Alijas : Redefining Cosmetic Marketing with Revolutionary AR Filters in the US
--  Pixelworks Enables Lifelike Visual Display on HONOR 90 GT Smartphone
--  אליאן רוחנא חתם בהפועל תל אביב: "חלום שלי ושל כל המשפחה"
--  "הרכב פגע בי, היה בום אדיר, חושך תהומי ירד עלי"
--  ‘Is there something you are telling us?’ – Mzansi react to Nota Baloyi’s lookalike [photo]
--  Northern Luzon binaha
+-  ძალადობასა და ნარკოდანაშაულში ბრალდებული კაბუ ახალციხეში, საახალწლო კონცერტზე იმღერებს
+-  Christodoulides to choose Cyprob negotiating team in January
+-  Rizz: why the word of the year is misunderstood
+-  Pažangiausias pasaulyje. Naujausias JAV karo monstras – „Orca“. Kas žinoma (Foto)
+-  Kosminė kirpykla. Kaip plaukus kerpa orbitoje esantys Kinijos astronautai (Video)
+-  M. Civilka. Vienas namuose 2.0 – sukčiams prasideda šventinis darbymetis
+-  „Tai ką, sveiki vaikinai...“ Žaibišku greičiu plinta „naujas“ video su Prigožinu. Kas vyksta (Video)
+-  Neįtikėtina. „Štabai, biurai ir visa kita...“ Parodytas požeminis „Hamas“ lyderių miestas (Video)
+-  BREAKING: 3 Soldiers Dead, Three Injured in Big Terrorist Ambush In JK`s Poonch
+-  ¿Por qué las mujeres embarazadas deben evitar las bebidas energéticas?
+-  NVIDIA GeForce Now adds 11 more games to the cloud streaming service
+-  Identificados por furto de combustível no Concelho de Águeda
+-  3 Jawans Killed As Terrorists Ambush 2 Army Vehicles In Poonch
+-  "Srbija protiv nasilja" pisala EU; Gajić: Ovo je tražila i Austrougarska 1914. godine
+-  Ünlü mağazada 250 bin dolarlık soygun
+-  7 صفقات رياضية سعودية كبرى.. أيها الأنجح برأيك؟
+-  Identidad cultural venezolana se transmite de padres a hijos
+-  En video: ‘Bocas de Ceniza’, el tren turístico de Barranquilla ya está pidiendo pista
+-  Oh du fröhliche Feinstaubzeit: Kerzen erzeugen kleinste toxische Partikel
+-  Johan Esk: Efter Pest vs Kolera är det upplagt för fotbollskaos
+-  NGO charges INEC, security agencies to address vote buying
+-  Shrenu Parikh and Akshay Mhatre wedding: The couple ties the knot, see pics!
+-  `Dabdaba tha, dabdaba rahega`: Brij Bhushan after aide Sanjay elected WFI chief
+-  بين "تسوية بكين" و"استسلام بكين"... إيران وسياسة الضّغوط القصوى على السعودية!
+-  Colorado Decision Triggers Rush to Remove Trump From Blue-State Ballots
+-  Była minister z PiS pisze: Don Tuskone, per analogia, Putin. "Jezus Maria", "Peron odjechał"
+-  شائعات مفبركة لا أساس لها من الصحة...مكتب الرئيس عون يوضح
+-  Дневните търгувани биткойн обеми изпреварват акциите на Apple със 75%
+-  Top 3 Tekno Berita Hari Ini: Relawan Prabowo Gibran Luncurkan Platform AI, Genomic Forum 2023
+-  Avanzan las negociaciones legislativas para designar al FG y FGA
+-  Näin ”Mr. Arctic Ralli” kuittaa somessa käynnissä olevan hurjan arvuuttelun huippunimistä: ”Sen verran voin paljastaa…”
+-  Ruotsalaismediat: Olli Jokisesta suorastaan tapellaan
+-  IS: Kalle Rovanperä joutui poliisin tutkittavaksi - jättimäiset sakot tulossa?
+-  Youth Training Key To Nation’s Growth, Prosperity – Abbas
+-  Rama lajmëron zëvëndësimin e Fredi Belerit në krye të Himarës, vendimi pas bllokimit nga Mitcotakis
+-  검찰, '이경 보복운전 벌금' 판결에 항소
+-  Zimbabwean cricketers Madhevere, Mavuta suspended over drugs
+-  Tom Lockyer: Luton-Kapitän nach Herzstillstand aus Krankenhaus entlassen
+-  Prince George conservation group talks wood pellets in Japan
+-  العام الجديد يتصل.. واتساب يتيح لمستخدميه إجراء مكالمات فيديو جماعية
+-  Silly season: Ny tränare i Björna
+-  Silly season: Ny tränare i Björna
+-  Orthez : le « barreau centre » de la rocade ne se fera pas avant 2028
+-  Ripple to dump all its unlocked XRP reserves as 2023 ends
+-  Leones vence a Magallanes y sella su clasificación
+-  בלי טובות מהמדינה: הפתרונות הטכנולוגיים שמאפשרים לנו לשרוד
+-  סמארט חוזרת כקרוסאובר חשמלי, מ-170 אלף שקל
+-  فيديو.. منى الشاذلي تُذيع أداءً صوتيًا لأشرف عبد الغفور لرواية "أوراق شمعون المصري"
+-  ننشر جدول امتحانات الشهادة الإعدادية في السويس
+-  سعر الدولار اليوم الخميس مقابل الجنيه في 10 بنوك مع نهاية التعاملات
