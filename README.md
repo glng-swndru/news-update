@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | African Giants 'Make Decision' On Boss' Future After Sundowns Defeat
--  Once muertos y decena de heridos deja tiroteo en universidad de Praga
--  Nordenbörserna åt olika håll – fraktjätten steg
--  Muere el periodista parralense Ernesto Salayandía
--  ‘Ketamine bladder’ kills 26-year-old son: ‘He was in a lot of pain’, mom says
--  Detienen a Manuel G. por presunta violación a menor
--  Craft professional video content in hundreds of languages with vidBoard’s AI, now under $40
--  Sturmtief wütet in Deutschland: Weihnachtsmärkte und Schulen dicht, Bahn eingeschränkt
--  Nijerya'da 66 milyon dolarlık kaçak petrol yakalandı
--  Bakan Işıkhan: İŞKUR, son 21 yılda 13,4 milyon kişinin istihdamına aracılık etti
+-  العراقية "لانيا هادي" تحقق النحاس في بطولة العرب للدراجات الهوائية
+-  EMG On Board to Help Sky Sports Offer Atmospheric Coverage of the PDC World Darts Championship
+-  VSTVBiH: Imenovane tri sutkinje u Općinskom sudu Zenica i tri tužitelja u Tužilaštvu ZDK
+-  Los mejores destinos para viajar a fin de año cerca de Bogotá
+-  Burkina : Le président de la Transition donne des instructions pour la résolution des difficultés du pouvoir judiciaire
+-  Još jedan košarkaš opleo po Mesini: Ne sviđa mi se kao trener, nije dobra osoba
+-  FGR pide penas “ejemplares” contra siete pandilleros acusados de varios homicidios
+-  Ir-Renju Unit: Il-Maltempata ‘Pia’ qed tħarbat l-ivvaġġar u l-pjanijiet għall-Milied għall-mijiet tal-eluf tal-Britanniċi
+-  WhatsApp Beta Sürümlerinde Müzik ve Video Paylaşım Özellikleri Test Ediliyor
+-  Ako si užiť sviatky v pohode a nepodľahnúť vianočnému ošiaľu
