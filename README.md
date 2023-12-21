@@ -1,51 +1,51 @@
 # Latest News
+-  ‘정치인 한동훈’ 1면 채운 신문들 “윤석열 아바타 극복” 주문
+-  Peixoto reforçara segurança em ambientes escolares com câmeras de monitoramento; R$ 527 mil
+-  Real siegt spät in Unterzahl und schiebt sich auf Rang eins
+-  Patenkompanie der Bundeswehr mit schwerem Gerät zu Besuch
+-  Real Madrid supera expulsão, vence com gol nos acréscimos e recupera liderança de LALIGA
+-  [날씨] 전국 강추위 기승…충청·호남·제주 많은 눈
+-  22일 제주도 지방시대위 정책 연찬 워크숍 기상악화로 취소
+-  UN says up to 300,000 Sudanese fled their homes after a notorious group seized their safe haven
+-  [리뷰] 영원히 간직할 '위시', 100주년 맞은 디즈니의 선물
+-  민니, 포니테일 머리 하고 뽐낸 청순 비주얼
+-  אנדראה בוצ'לי התרגש לשמוע שיפה אדר זימזמה את שיריו בשבי - והזמין אותה להופעה
+-  "♥엄태웅과 키스? 아까 하고 왔다" 윤혜진 '금실 과시'[다시갈지도]
+-  박종민의 디카詩-
+-  김아중, 몰래 도넛 먹다 차태현에 들켜 '머쓱'…"선식+만둣국 먹고 빵도 먹냐" [어사장3](MD리뷰)
+-  '21득점 원맨쇼' 안영준 "연승 흐름 타서 좋다...선형이형·세근이형 점점 올라오고 있다"
+-  55 ఏళ్ల పాలనలో..కాంగ్రెస్‌ 6 గంటలే కరెంట్‌ ఇచ్చింది: కేటీఆర్‌
+-  US Vetoes UNSC Gaza Peace Bids as Resolutions Would Give ‘Legitimacy’ to Actions Against Israel
+-  임윤찬 실황음반, NYT '올해 최고의 클래식 음반'에 선정
+-  NjUJORK TAJMS TVRDI: SAD započele pregovore o korišćenju zamrznute ruske imovine
+-  Justiça defere pedido e Mixto Esporte Clube entra em recuperação judicial por dívidas de R$ 1,3 milhão
+-  ICNF esclarece que não emitiu parecer sobre parque fotovoltaico em Coimbra
+-  국공립 공연ㆍ전시장, 연 1회 이상 장애예술인 작품 의무
+-  Angélica Lozano pide al Congreso que apresure envío a sanción de ley de ‘Chao marcas’
+-  Man sent pals to woman's home with 'gun' after she argued with his mum in pub
+-  ఎమ్మెల్యే కౌశిక్‌రెడ్డి హల్‌చల్‌
+-  Aussie couple just 100m away from mass shooting in Prague
+-  Aliança Democrática? IL avança sozinha e Chega fala em "desespero"
+-  Superlega, Paolo Rossi: "Si fa fatica a non essere ingolosito. Qualche tono da bulli da populismo dei potenti non si sente più..."
+-  "Benfica mostrou muito respeito por nós ao meter a equipa titular"
+-  L’Espagne donne ses raisons du refus de renouveler la carte de séjour à Aminatou Haidar
+-  Se incendia el centro comercial Tik Tok en Monterrey
+-  미중, 軍소통 채널 되살렸지만…냉온탕 오가는 미중관계
+-  Jets QB Zach Wilson still out with a concussion. It appears likely Trevor Siemian will start Sunday
+-  New York bill could interfere with Chick-fil-A’s long-standing policy to close Sundays
+-  Complaints mount against adjustable bed company: Tampa woman still waiting for half of her order
+-  Biden believes U.S. Steel sale to Japanese company warrants ‘serious scrutiny,’ White House says
+-  Mercados acionistas norte-americanos fecham em alta
+-  Cardinal Capital Management joins calls for Chamandy to return as Gildan CEO
+-  Cardinal Capital Management joins calls for Chamandy to return as Gildan CEO
+-  Cardinal Capital Management joins calls for Chamandy to return as Gildan CEO
+-  Cardinal Capital Management joins calls for Chamandy to return as Gildan CEO
+-  İSO Başkanı Bahçıvan: 2024’te enflasyona taviz verilmemeli
+-  Taran Killam couldn’t walk in his high school graduation because of The Amanda Show
+-  Lukas Vaskez odveo Real na vrh tabele
+-  Kano To Spend N15bn On New Interchange Bridges – Commissioner
 -  Aussie coach Michael Valkanis suffers humiliating loss as Ajax fall to fourth-tier side Hercules in Dutch Cup
+-  Lightning, Culvers team up for 'Curds in the Third' promotion
 -  Portland’s record homeless deaths driven by meth, fentanyl
--  Real može sa desetoricom, Lukas Vaskes u nadoknadi srušio Alaves
--  수급불안정 해열제 · 항생제, 새해부터 약가 인상
--  안양시, 2024년 주민참여예산 52억5천만원 확정
--  [금요칼럼] 기후위기 빨간불, 골든타임 확보 나선 'COP 28'
--  [부고] 김재훈(기획재정부 미래전략국장)씨 모친상
--  Profs ask police to launch criminal probe into ex-dean
--  Hermès heir wants to leave $6 billion to his former gardener
--  مسؤولون إسرائيليون يجرون اتصالات مع رئيس شركة ميتا للتصدي لهجمات سيبرانية
--  إعلام عبري: انسحاب لواء جولاني من غزة مؤقتا
--  Esta es la forma de pagar tu crédito Infonavit hasta con 50% de descuento
--  Real slavio s desetoricom, Ancelotti nakon isključenja “žrtvovao” Modrića
--  Hermès heir wants to leave $6 billion to his former gardener
--  Emilio Izaguirre deja escapar el fichaje de Carlos Small
--  De vacaciones en Costa Rica: Internautas difunden imágenes del príncipe Harry y Meghan Markle en la provincia de Guanacaste
--  NBC News' Ben Collins Triggered by Newspapers Covering Harvard Plagiarism Scandal
--  Single-family home sells for $3 million in Palo Alto
--  إصابة مدير عام الصحة في غزة واستشهاد ابنته بقصف إسرائيلي على جباليا
--  إعادة فتح "نويبع".. انتظام حركة الملاحة في موانئ البحر الأحمر
--  Carro con doble fondo tenía 14 paquetes de droga
--  Rosengård utslaget ur CL efter storförlust
--  An Israel-Hamas conflict ceasefire ‘can’t be one-sided:’ Trudeau
--  I put 5 AI image generators to the test to see which makes the best Christmas card — here’s the winner
--  Sinfonía de sabores: tlayudas que reflejan toda la riqueza de México
--  Renzo Malanca, el mendocino que hizo historia en el fútbol chileno
--  Amnesty International Minta Junta Myanmar Diselidiki atas Kejahatan Perang
--  Cobertura Saints vs Rams EN VIVO | Thursday Night Football, Semana 16 NFL 2023
--  Firli Bahuri Mundur, IM57+ Institute: Upaya Melarikan Diri dari Masalah
--  Macky Sall délivre le message de l’APR à Amadou Bâ : « War Nga Yokk Taxawaay. Car, nous avons confiance en vous… »
--  B.C.'s Nisga’a Nation goes to court to evict ‘outlaws’
--  Ross County manager says expanding Scottish Premiership would improve quality of game
--  &quot;SAKRIO SAM SE ISPOD STOLA I PRIPREMAO SAM SE ZA...&quot; Jezivo svedočenje studenta o pucnjaviu Pragu: Profesor je pokušao da zaključa vrata, ali nije uspeo
--  Machu Picchu visitor cap increased to 5600 a day to bolster Peru tourism
--  A Codecool programozóiskola átveszi a Green Fox Academy tanulóit és oktatóit
--  Grande Fratello, l’addio di Beatrice Luzzi potrebbe essere definitivo
--  Aprueban accionistas de AHMSA financiamiento de 600 mdd
--  Jack Smith to Trump: Start Prepping for Florida Jury Trial
--  Catholic High School Student Suspended Over Gender Beliefs Loses Appeal
--  KRALJEVSKI KLUB SLAVIO SA DESETORICOM Real se vratio na prvo mesto
--  Hochgeschwindigkeits-Transportunternehmen Hyperloop One stellt den Betrieb ein - Bloomberg News
--  Hogesnelheidsbedrijf Hyperloop One gaat sluiten - Bloomberg News
--  Van Wolfswinkel zegt bekerloting last minute af: Twente-selectie wil niet wachten
--  Hasil, Top Skor, Klasemen Liga Inggris Pekan Ke-18: Crystal Palace vs Brighton 1-1
--  Candaan Zulhas, Tokoh NU Yakin tidak Ada Niat Mencela Agama
--  Gaziantep'te Yakalandılar! İş yerini kurşunlayan şüpheliler Gaziantep’te yakalandı
--  В Хмельницкой области Украины произошли взрывы
--  Oakland man charged with setting occupied park car on fire with accelerant, killing 30-year-old man
--  Cristina Pacheco, foremost chronicler of street life in Mexico for half a century, has died at 82
--  Ουκρανία: Αναστολή πληρωμής χρέους ως τον Μάρτιο του 2027
+-  Portland’s record homeless deaths driven by meth, fentanyl
+-  పర్వదినాల మార్గశిరం!
