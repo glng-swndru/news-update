@@ -1,11 +1,11 @@
 # Latest News
--  Spectacular must-visit countdown in Thailand at Central World, the Times Square of Asia
--  WIN SOURCE Electronics, Sponsor of the 21st ELEKTRA AWARDS, Congratulates This Year's Winners
--  Argentina – Catherine Colonna’s meeting with her Argentinian counterpart (20.12.23)
--  Ajuste en Córdoba: paro y movilización de gremios de estatales por sueldos y descuentos
--  Consistent generating unit maintenance key to averting power cuts - Ramokgopa
--  IMF approves $187 mn for Zambia following debt deal
--  UEFA bid to block Super League broke EU law
--  Gauteng police note an uptick in contact crimes since start of festive season
--  آبل تصدر تحديثًا لنظام التشغيل iOS 17 لإصلاح أخطاء آيفون ومعالجة مشكلات البطارية
--  عاجل.. خطوات الحصول على وحدة سكنية عبر برنامج القسط الميسر
+-  Ticaret Bakanı Bolat Bakü'de Türk şehitliklerini ziyaret etti
+-  Merkez Bankası yılın son faiz kararını açıkladı
+-  ABD'nin Kızıldeniz hamlesine bölgeden destek yok
+-  BDDK'dan kredi kararı! Kredi çekme esasları değişti: Tüketici kredisi...
+-  İnsan vücudunda yeni bir organ keşfedildi! Meğer hep oradaymış...
+-  Coforge, Microsoft Partner To Implement Generative AI’s Next-gen Solutions For Enterprises
+-  Rural, Semi-Urban UPI Transactions Rise By 118%
+-  Intel Unleashes Core Ultra, 5th Gen Xeon & Gaudi 3; Locks Horns With AMD, Nvidia
+-  Intel Unleashes Core Ultra, 5th Gen Xeon & Gaudi 3; Locks Horns With AMD, Nvidia
+-  Intel Unleashes Core Ultra, 5th Gen Xeon & Gaudi 3; Locks Horns With AMD, Nvidia
