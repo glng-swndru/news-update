@@ -1,51 +1,51 @@
 # Latest News
--  Omiljena grickalica može vam pomoći u borbi s kilogramima: Bitno je da pazite na jedno
--  Çaykur Rizespor, Pendikspor'a 5 attı
--  أوكرانيا: روسيا أطلقت 7400 صاروخ و3700 طائرة مسيرة منذ بدء الحرب
--  FAST işlemlerinde limit 50 bin TL'ye yükseltildi
--  Costco pone en descuento único el whisky. ¿Qué marcas participan?
--  مقتل ثلاثة جنود هنود في اشتباك مع انفصاليين بكشمير
--  Instagram ve Facebook, Filistin yanlısı paylaşımlara sistemli sansür uyguluyor
--  Ο Γιάννης Αντετοκούνμπο είναι αμφίβολος για το Μιλγουόκι Μπακς – Ορλάντο Μάτζικ με πρόβλημα στο πέλμα
--  Се зголемува бројот на загинатите во Прага
--  Gătitul de Sărbători poate avea efect terapeutic
--  Minkur
--  Ready for an Electrifying 2024? Grab Some RIVN Stock Now!
--  Nasser Bourita : « Les relations Maroc-Tanzanie ont de tout temps été fondées sur la solidarité au service des causes africaines » !
--  నకిలీ విత్తనాలతో మోసం
--  Amazon reduces Prime Lite membership price by ₹200: What are new benefits?
--  Пилоты объявили чрезвычайную ситуацию из-за сигнала о возгорании двигателя
--  Asociația Salvați Bucureștiul nu este singura pentru care un dezvoltator imobiliar a obținut dizolvarea în instanță / O altă asociație, care a cerut anularea autorizației pentru niște turnuri din Floreasca, a pățit la fel
--  As Public Health Agencies Transform, ASTHO Launches a New Interactive Data Visualization Tool to Track Progress and Trends
--  Woman sexual assaulted in Kitchener on Wednesday evening: police
--  Nigerians Will Enjoy Better Telecoms Service In 2024 – NCC
--  Texas border facilities overwhelmed by migrant influx, officials say
--  HSK Kararnamesi yayımlandı! 506 hakim ve savcının görev yeri değişti
--  Finlandia envía a Ucrania un nuevo paquete de ayuda militar de 106 millones de euros
--  మళ్లీ కరోనా కలవరం
--  “Σχεδόν γκολ στο πρώτο άγγιγμα”
--  Başıboş köpek sorunu nasıl çözülecek? A Haber ekranlarında uzman isim cevapladı: "Saldırganlık sebebi sadece açlık değil"
--  Россиянам раскрыли способы сэкономить при продаже дачи
--  Teacher dead, 6 students injured in accident during school trip
--  Keleş: Üzgünüz ama 1 puan da kötü değil
--  ¿Casa con jardín en los ochenta y un pisito en 2023? Así renta el Gordo según dónde vivas
--  Onze pessoas, incluindo atirador, são mortas em ataque a universidade em Praga
--  В ДНР расстрелявшему 25 мирных жителей военному ВСУ вынесли приговор
--  Verteidigungsfähigkeit: Donald Trump und die deutsche Bombe
--  Pasará en prisión al menos 3 meses por sustraer a su hijastro
--  Нетаньяху заявил, что Израиль не остановит войну в Газе пока не вернет всех заложников
--  వైసీపీ బలవంతపు ఆట!
--  Projet de loi immigration : la ministre de l'Enseignement supérieur, Sylvie Retailleau, a présenté sa démission, qui a été refusée
--  Superlega, Figc: "Difenderemo sempre i campionati nazionali"
--  נהיגה ראשונה בקאן אם מאבריק R: מפלצת שבילים
--  Nemecká prokuratúra začala vyšetrovanie v prípade úmrtia rodiny v Pásme Gazy
--  Firefighters battle heavy flames at Brooklyn apartment building
--  Elbe, Weser und Ems steht schwere Sturmflut bevor
--  Choque de moto contra carro deja dos personas lesionadas de gravedad por la carretera Mochis-Ahome
--  Kıbrıs olayları nasıl başladı? 1963'teki Kanlı Noel'den 1974'e kadar neler yaşandı? İşte Yavru Vatan'ın kurtuluş hikayesi
--  Zorro vai ganhar série no Prime Video; veja trailer
--  S&P/TSX composite up more than 150 points, U.S. stock markets also higher
--  Pingelised läbirääkimised uueks vaherahuks Gazas
--  Deficitul de locuințe din Olanda se datorează politicilor publice deficitare și nu migranților - experți
--  Last-Minute Pop Culture Holiday Shopping Guide for Procrastinators
--  LV-katugallup | Lahjahankinnat aiheuttavat stressiä ja myös rahanmeno hirvittää espoolaisessa kauppakeskuksessa – "Lahjoihin sijoittaa aina liikaa"
+-  John Fetterman: Political right, left 'both wishing that I die'
+-  Gaza sees more airstrikes and UN says half a million people are &#039;starving&#039;
+-  Történelmi kvíz: emlékeztek, mi történt Mezopotámiában?
+-  Verkehrsunfall mit zwei Familienautos bei St. Marienkirchen
+-  عدوى تقاوم الأدوية تهدد جنود الاحتلال الإسرائيلي بغزة.. تؤدي للوفاة
+-  Apple показа повече от новия CarPlay
+-  Gewerkschaft droht mit Warnstreik bei Lufthansa-Tochter Discover
+-  Aktien Europa Schluss: Leichte Verluste - Ruhiger Handel vor Weihnachten
+-  నల్ల బెలూన్లతో అంగన్‌వాడీల నిరసన
+-  Gewerkschaft droht mit Warnstreik bei Lufthansa-Tochter
+-  الشرطة التشيكية: مطلق النار بكلية الفنون في براغ كان طالبا في الجامعة
+-  كلمة مسجّلة لـ"أبو عبيدة".. ماذا أعلن فيها عن المعارك؟
+-  إسبانيا تدعو للاعتراف بدولة فلسطين
+-  British Indian prodigy creates history in European chess championship
+-  Байерн каза за Суперлигата
+-  Denise Richards refusing to watch Real Housewives of Beverly Hills return after comeback sparked chaos
+-  An der Tanke in Brandenburg: "Uns wird nicht geholfen. Uns vergessen sie irgendwo alle"
+-  Minister Sridhar Babu: ఆర్థిక అంశాలను ప్రజల ముందు ఉంచాం
+-  NAJVIŠI LIDERI UAE REDOM ČESTITALI PREDSEDNIKU VUČIĆU Velika pobeda na izborima u Srbiji
+-  World’s sexiest volleyball player Kayla Simmons posts sweaty sauna snap as fans hail ‘perfection’
+-  Dez drinks especiais para brindar o fim de ano; veja receitas
+-  (UŽIVO) Još jedno okupljanje ispred RIK-a: Traži se uvid u birački materijal i revizija biračkih spiskova
+-  رغم مؤشرات عن اتفاق هدنة.. نتنياهو: لن نوقف الحرب وأمام حماس الاستسلام أو الموت
+-  صور.. وزير الإسكان يتفقد مشروع السياحة العلاجية في أسوان الجديدة
+-  جانتس: لا نية لدينا لوقف الحرب في غزة ومصير قادة حماس هو الموت
+-  وزير الصحة يعلن إطلاق العمل بالمشروع القومي لـ"ميكنة العلاج الحر"
+-  رئيس جامعة السويس: دخلنا تصنيف الجامعات العربية AUR بالمركز 37 عربيًا
+-  أبو عبيدة: دمرنا 720 آلية إسرائيلية بجانب عشرات القتلى من الجنود خلال 70 يومًا
+-  شاب ينهي حياته عن طريق الخطأ في قنا
+-  3 أعراض في الأذن احذرها.. علامة على ارتفاع الكوليسترول في الدم
+-  بزعامة صيدلانية وصيدلي.. سقوط عصابة لتصنيع الأقراص المخدرة
+-  "ثلاثتهم قتلوا بنيران جيشكم".. المقاومة تبث فيديو جديد لأسرى إسرائيليين بغزة
+-  Boom des fraudes bancaires par manipulation à l'approche de Noël
+-  Манчестър Юнайтед с ясна позиция за Суперлигата и УЕФА
+-  Bitcoin Exchange Coinbase Received a Crypto License from an Important Country!
+-  Derfor blir årets jul annerledes for Kadafi Zaman
+-  En medio de las tensiones, Javier Milei designa al embajador en China
+-  CECA ZAPOSLILA AZIJATKINJU Otkriveno kako izgleda nova kućna pomoćnica u vili na Dedinju
+-  BLOKADA U CENTRU GRADA U toku četvrti po redu protest SPN u Beogradu (FOTO/VIDEO)
+-  Θετική εξέλιξη στην υπόθεση Μπελέρη - Το Δικαστήριο απεφάνθει ότι παραμένει ο εκλεγμένος δήμαρχος Χειμάρρας
+-  Une alternative au fromage : sans lait mais avec du goût
+-  Ćavi: Ovom timu nedostaje duša
+-  Pretila žena odbila se odreći dodatnog sjedala u zrakoplovu koje je platila kako bi dijete druge žene moglo sjediti
+-  BASF SE : Jefferies is niet overtuigd
+-  استشاري مخ وأعصاب: البرد الشديد قد يؤدي إلى حدوث جلطة.. وهذه خطورة الآيس كريم
+-  Vinci vereinbart Aktienrückkauf mit Investmentdienstleister
+-  الأسباب الحقيقية للإصابة بالسرطان في سن مبكر
+-  ماذا يحدث لجسمك عند تناول مشروب الشعير على الريق؟
+-  MÄRKTE USA/Etwas Fester - Micron nach Zahlenausweis kräftig im Plus
+-  Jefferies belässt BASF auf 'Underperform' - Ziel 39 Euro
