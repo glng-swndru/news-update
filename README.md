@@ -1,51 +1,51 @@
 # Latest News
--  Drug shown to block artery fat takes a major step forward thanks to Aberdeen scientists
--  Glecirasib by Jacobio Pharmaceuticals Group for Solid Tumor: Likelihood of Approval
--  MT-8421 by Molecular Templates for Esophageal Squamous Cell Carcinoma (ESCC): Likelihood of Approval
--  Джошуа та Валлін провели битву поглядів
--  Dismissed former trustee taking school board to court, hopes to be reinstated
--  Dvije Hrvatice u top 10 prve vožnje slaloma u Francuskoj
--  Akıllı Balina Bu Altcoine 42 Dolarlık Yatırım Yaptı, Milyoner Oldu!
--  Jordan expands probe into Smith's handling of Trump cases
--  Honda recalls nearly 300k vehicles in Canada due to defect potentially causing engine failure
--  Auto con falla mecánica provoca aparatoso choque
--  Një i burgosur shpallet i pafajshëm pasi kaloi 48 vite në burg
--  DNA Exclusive: Revamped Crime Laws to Ensure Genuine Justice
--  Judge Rules Only a Few of Over 150 Names Will Remain Anonymous on Epstein List After Appeals
--  DRŽAVA ĆE UVEK BITI UZ MAJKE! Ministarka zdravlja Danica Grujičić otvorila drugu konferenciju Asocijacije mama Srbije
--  Scandale des déchets du BTP à l’Ouest des Alpes-Maritimes: "Nous demandons une réponse ferme" réagit l’Aspic
--  الوهباني يعزي بوفاة القاضي مطهر الإرياني
--  Rudy Giuliani files for bankruptcy days after being ordered to pay $148 million in defamation case
--  Forscher machen irre Entdeckung – Amerika und Asien könnte es so bald nicht mehr geben
--  Totalenergies verkauft Anteil an Windpark Seagreen an thailändische PTTEP
--  Côte D'ivoire :: Le Comité D’organisation De La Can 2023 Établit Des Règles Strictes Pour La Retransmission Des Match :: Cote D'ivoire
--  OFICJALNIE: Z Lecha Poznań do Polonii Warszawa
--  RTS Planeta: Programska promocija za nedelju od 25. do 31. decembra 2023.
--  Trump ally Rudy Giuliani files for bankruptcy after $148 million judgment in case
--  B.C. woman faces multiple charges for under-18 sex trafficking, say Langley RCMP
--  "علامات تظهر في الليل".. تشير إلى إصابتك بمرض القلب
--  إحباط صفقة مخدرات بـ 1.2 مليون جنيه في كرداسة
--  بالفيديو.. قتلى وجرحى بإطلاق نار داخل مبنى جامعي في التشيك
--  A forint ma sokkal jobb formát mutatott, mint az időjárás
--  No discussion with Israel on possibility of Indian workers replacing Palestinian labourers: MEA
--  In Argentina contratti in Bitcoin e crypto? Sì, anche se…
--  Generación de basura y consumo de energía durante fiestas navideñas y de año nuevo, crece 30%
--  Los alumnos de Les Mariñes, de visita en la Villa
--  OFICJALNIE: Obrońca wraca do Rakowa Częstochowa. Za nim trudne chwile
--  Projektohet “operacioni fshesa” te Lazio, rrezikon edhe Hysaj
--  ROUNDUP: Schwere Sturmfluten erwartet - Bahn- und Fährverkehr gestört
--  Two new EggConsole PC-8801 games hit Switch today, Silpheed and Hydlide
--  „Hoffe, du fühlst dich dein Leben lang schlecht“ - Als Totraser von München sich im Gericht entschuldigt, reagiert Zeuge eiskalt
--  Çalışan emekliye 5 bin lira ikramiye için tarih belli oldu
--  مؤسسة النفط تعلن إجمالي إنتاج الخام والغاز الطبيعي خلال نوفمبر
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 22 декабря 2023 года
--  يحدث فقط في جنوب إفريقيا.. احتجاجات العمال تحت الأرض للمطالبة بحقوقهم
--  Kokoa TV Alternatives: Free Ways to Watch Latest Movies in 2024
--  ¡Caída libre! La Sele pasó del puesto 32 al 52 en el ranking FIFA en tan solo un año
--  Hattyút mentettek a közutasok az M0-son – videó
--  Joulukuusesta löytyi kutsumaton asukas Yhdysvalloissa – Video sulattaa sydämet
--  صافي أرباح البنوك الروسية بلغ 3.2 تريليون روبل منذ بداية العام الجاري
--  Trumps tidigare advokat i konkurs efter jätteskadestånd
--  5 things to know before watching Aquaman 2
--  Garner man wins two $100,000 Powerball prizes, gifts one to twin brother
--  Prisão preventiva para homem que agredia a esposa em Celorico da Beira
+-  Projekt ustawy budżetowej na 2024 r. skierowany do komisji
+-  Court fines companies €8,000 for workplace safety violations
+-  Sanidad rechaza alargar la edad de jubilación de médicos a los 72 años y "exprimir a los profesionales"
+-  Bombeiros gastam 80 milhões em emergência médica e INEM só paga metade
+-  البعثة الأممية تُعرب عن قلقها إزاء وفاة «المهدي البرغثي»
+-  EuGH-Urteil: Infantino gelassen - Faeser gegen Super League
+-  Beşiktaş'ta Alex Oxlade-Chamberlain şoku!
+-  PAO pobedio, ali Janakopulos opet o sudijama: Da nije ušla trojka, bila to nova krađa
+-  Superliga Europeia: Barcelona e Real Madrid podem receber bolada bilionária por fidelidade
+-  مع دخول الشتاء.. 3 مراحل للإصابة بالبرد وطرق الوقاية من المرض الشائع
+-  "Sukob u Ukrajini može da se završi i za pet dana"
+-  Эстония пообещала не мешать выборам президента РФ в посольстве в Таллине
+-  تحذير لـ5 فئات من مغادرة المنزل خلال الـ24 ساعة المقبلة.. رياح مثيرة للأتربة
+-  Έγινε αυτό που περιμέναμε και με τον Γουίλι Σεμέδο
+-  Troubleshooter: When big vehicles meet small driveways
+-  Utah lievittää Markkasen takareisirasitusta – suomalaistähti sivussa Detroit-ottelusta
+-  Így takarítanak otthon a magyarok: aggasztó dolgok derültek ki egy friss kutatásból
+-  Heizungs-Förderung: Antragstellung verzögert sich – Was die Ampel jetzt plant
+-  Identifican a matrimonio muerto en choque carretero
+-  «Vitico» Davalillo fue extraordinario para volverse una verdadera leyenda
+-  Cumprimentos de Natal do Governo: Marcelo faz balanço de coabitação com Costa e conclui que "valeu a pena"
+-  El CD Extremadura camina firme y empieza a ilusionar
+-  Nastavnici iz više opština traže generalni štraјk zbog plata
+-  Orbán z sarkazmem komentuje zmiany w mediach w Polsce
+-  Vaza foto do Honor Magic 6 com câmera tripla e zoom de 100x
+-  Justiça determina fornecimento do medicamento mais caro do mundo para bebê no RS
+-  Connexus Credit Union Personal Loans Review 2024
+-  Warum England bei der Super League besonders im Fokus steht
+-  Please Let Paul Giamatti Play A James Bond Villain
+-  Beşiktaş'tan Avrupa Süper Ligi açıklaması: Reddediyoruz
+-  Lian Li adds an LCD screen to its latest RGB case fans
+-  I did a killer Amazon haul, I found a dupe for the $400 Ganni flats and the pants I will be living in
+-  Alemãs adiantam-se no marcador e dificultam 'missão' do Benfica
+-  Shrinking Kim Kardashian shows off her VERY slender frame in cheeky back shot - after staying trim following 21 lb weight loss
+-  Die besten Memes und Reaktionen zur Super League
+-  Babasını öldürüp cesedini sobada yakmaya çalıştı
+-  Quebec introducing new rule to reduce bat deaths linked to wind farms
+-  O seu mal é sono? Evite fazer exercício físico depois desta hora
+-  Para transferlerinde FAST limiti 50 bin lira oldu
+-  LIVE: 3-year-old shot, killed in Birmingham
+-  कोरोना के नए सब-वेरिएंट JN.1 से दिल्ली अलर्ट, जानें स्वास्थ्य विभाग का नया कदम
+-  مصر.. الحكومة تخصص أكثر من مليار دولار لتمويل الشركات لإنشاء فنادق سياحية
+-  Rudy Giuliani files for bankruptcy after being ordered to pay $148m to election workers he defamed
+-  The 7 best men's workout shirts in 2023
+-  MP News: वीडी शर्मा बने रहेंगे प्रदेश भाजपा अध्यक्ष, लोकसभा चुनाव तक नहीं होगा परिवर्तन
+-  MP News: सीएम दिल्ली दौरे पर, मंत्रिमंडल विस्तार को लेकर आलाकमान से करेंगे चर्चा
+-  Beyoncé and Jay Z rented a bus for private tour of New York City
+-  Betul Crime: प्रेम प्रसंग में की गई थी पॉलिटेक्निक छात्र की हत्या, सड़क किनारे मिला था शव, दो आरोपी गिरफ्तार
+-  Adam Driver Says He Relates to Enzo Ferrari’s ‘Relentlessness and Ambition’ in New Featurette
+-  Adam Driver Says He Relates to Enzo Ferrari’s ‘Relentlessness and Ambition’ in New Featurette
