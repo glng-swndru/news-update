@@ -1,51 +1,51 @@
 # Latest News
--  Almanya’da aşırı sağ hızla yükseliyor
--  Trump’a ön seçim yasağı
--  Fiyatlarda düşüş sürer
--  Kısıklı Park'ta satışlar başladı
--  Kararlıyız enflasyon düşecek
--  Filistinliler asla susmayacak
--  Anadolu’nun mirası sandıktan sergiye
--  Dev sığınak yaptırıyor
--  Gazze için Oradaydılar
--  Katledilen gazeteciler anısına ‘Gazze’te
--  45 bine çürük raporu
--  'Yarısı Bizden'in bütçesi hazır
--  5 yılda ancak temeli atıldı
--  Medyanın zekâsı yapay tehdit altında mı?
--  Uyanın, Türkiye artık bambaşka bir ülke!
--  Hillcrest jumping castle operator allegedly failed to secure anchor points before students died
--  Capstone Copper Announces Commissioning Activities Underway at MVDP and Provides Corporate Update
--  2 California Cities Still Late on Preparing Their Financial Audits for 2019
--  לא בפעם הראשונה: טויוטה מכריזה על ריקול ענק לרכביה בארה"ב
--  Você se sente meio triste no Natal? Psicóloga revela filme da Pixar perfeito para lidar com a melancolia de fim de ano
--  Série mais bem-sucedida dos EUA está em crise? Após escândalo com Kevin Costner, autor processa outra estrela
--  Gabigol, do Flamengo, treina na praia nas férias: 'Trabalhando muito'
--  10 loại vitamin, khoáng chất và chất dinh dưỡng phụ nữ nên tiêu thụ hàng ngày
--  Transport minister savages airlines after worst performance in more than a year
--  Transport minister savages airlines after worst performance in more than a year
--  Ram Temple: सोनिया और खरगे को प्राण-प्रतिष्ठा समारोह के लिए मिला निमंत्रण, इन नेताओं को भी भेजा गया न्योता
--  Odisha government expands Karuna Silk project to seven more districts
--  Sempurna Kalahkan West Ham, Eh Liverpool Malah Dapat Masalah Baru Jelang Lawan Arsenal
--  India has the power to lead the world with peace: Mohan Bhagwat
--  Herzogtum Lauenburg: Neue App verhindert langes Warten auf den Bus
--  에피바이오텍, 모유두세포 기반 세계 최초 남성형 탈모 치료제 개발 돌입
--  FDA, IgA 신장병증 치료제 ‘타르페요’ 정식 허가 ... 국내는 허가 심사 중
--  동성제약, 공기살균청정기 사업 나선다
--  ‘뇌경색’ 환자 절반 이상이 70대 이상 고령층
--  ¡Cibacopa! Define Pioneros de Los Mochis a sus 3 extranjeros firmados en Las Vegas
--  군산시, 사회서비스형 선도모델사업 추진
--  연천군의회, 제281회 제2차 정례회 폐회
--  서산시, 시내버스 이르면 22일부터 운행 재개
--  잘 키운 백화점 대표 점포 매출 '고공행진'
--  양양군, 22일 ‘고·고 양양 페스타’ 개최
--  Jackie Matubia reveals her divorce cost her 300K
--  Read Princess Mary's cryptic Christmas message about loneliness a month after Prince Frederik's 'affair' scandal rocked the royal house: 'We need each other'
--  En Coahuila: va Morena con Luis Fernando Salazar y Cecilia Guadiana como fórmula por el Senado
--  Farmacéutica es condenada a pagar 460 millones de dólares por medicamento mortal para adelgazar
--  अवैध कपडा सशस्त्रको नियन्त्रणमा
--  Video: Van 79 muertes viales en El Paso en 2023
--  Video: Realizan Caravana Navideña Movi 2023
--  L'inflation plombe les ventes des cadeaux de Noël
--  Chauffeurs VTC : de nouvelles garanties de rémunération
--  دليل جديد على تفوق دوري روشن
+-  Knicks roll past rival Nets to end road trip on high note
+-  Decenas de comunidades aisladas en Australia por inundaciones causadas por un ciclón
+-  Guatemala: cumplen posada por la democracia y cantan villancicos contra corrupción
+-  Home Alone fans point out surprise hidden detail in iconic Christmas film and a glaring mistake
+-  Colombia: 697 toneladas de cocaína han sido incautadas este año por las autoridades
+-  La Casa Blanca critica la nueva ley de Texas porque "deshumaniza" a los migrantes
+-  I analysed Sydney Sweeney's 'it factor' - and how any woman can use her subtle tricks to make men obsessed with them
+-  Los humanos, responsables de la extinción de 1.430 especies de aves, según estudio
+-  Nova star hilariously claims Kim Kardashian 'stole his look' after he gets corrective eye surgery
+-  Debat Cawapres, Mahfud akan Jelaskan Skenario Cara Ekonomi Tumbuh Bisa Sampai 7 persen
+-  “Ўзагросуғурта” АЖ дан навбатдаги акция (+видео)
+-  Tunggu Keputusan Suku Bunga BI, IHSG Diprediksi Bergerak Variatif
+-  Everest Medicines' Partner Calliditas Therapeutics Announces Nefecon® the Only FDA-approved Treatment for IgA Nephropathy to Significantly Slow Kidney Function Decline
+-  KOSA, 2023 글로벌 시장 진출 오픈세미나 성료
+-  솥뚜껑삼겹살 전문점 무쇠돈 ‘전주 아중리점’ 오픈
+-  ㈜다이오드전자 이탈리아 POSEICO 반도체 신형 2200V 다이오드 모듈 출시
+-  “삼성전자, 日 요코하마에 반도체 연구개발 거점 신설 예정”
+-  ‘한동훈 비대위원장’이 與 총선 이끈다…당내 우려 잠재울까
+-  Microsoft prescribes command-line surgery for HP Smart app malady
+-  Women in IT are on a 283-year march to parity, BCS warns
+-  This could still wing its way to you, if you have the dosh: One Concorde engine seeks new home
+-  SSH shaken, not stirred by Terrapin vulnerability
+-  Study uncovers presence of CSAM in popular AI training dataset
+-  NASA makes purrrr-fect deep space transmission of cat vid
+-  FTC bans Rite Aid from using AI facial recognition in stores for 5 years
+-  Microsoft offers rollback for those affected by Windows wireless futility
+-  Japan to allow limited rideshare services starting April 2024
+-  UK officials caught napping ahead of 2G and 3G doomsday
+-  Calculating Pi in the sky: Axiom Space plans to launch 'orbital datacenter'
+-  Manchester's finest drowning in paperwork as Freedom of Information requests pile up
+-  Cybercrooks book a stay in hotel email inboxes to trick staff into spilling credentials
+-  Alves set to go on trial for rape in February
+-  ‘Only title we don’t have’
+-  Govinda turns 60: Actor starts celebration with family, paparazzi & little fans
+-  Rapiña ¡de ganchos' tras volcadura en carretera
+-  Sports Ministry confirm Khel Ratna for Sat-Chi
+-  MSSA’s top individual honours go to Vignesh, Swanandi
+-  LG Chem Breaks Ground on $1.7 Billion Anode Plant in Tennessee for Electric Vehicles
+-  ‘The Masked Singer’: Which ‘00s R&B Hitmaker Is the Season 10 Winner?
+-  هل قائمة المنقولات من الميراث أم ملك للزوجة؟ أمين الفتوى يجيب - فيديو
+-  The Battle For Germany’s EV Market, Part XI — BMW Shines!
+-  ぴちぴち鮮魚が舞い踊る 舟盛り＆お造りのカプセルトイで遊んでみた
+-  Lawson drops our Christmas cake, responds with god-like customer service
+-  "الحكومة الرقمية": 97% من الخدمات الحكومية إلكترونية (فيديو)
+-  عاجل.. حساب المواطن يوضح تأثير قرض العمل الحر على الدعم
+-  Debonair Supper Club to open New Year’s Eve in downtown Orlando
+-  Trending warmer, then wetter on Christmas Day across Central Florida
+-  ‘Keeping our hopes high.’ Pocatello teen’s family determined to recover his body
+-  BTC Whales Return As Blackrock Makes Bitcoin ETF Approval ‘Key Priority’
+-  GOP-Led House Panel Now Probing Alleged Plagiarism by Harvard Prez
