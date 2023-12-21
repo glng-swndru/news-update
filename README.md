@@ -1,51 +1,11 @@
 # Latest News
--  США могут представить России новое предложение по обмену заключенными
--  OBROVSKÁ RANA Pri nehode opatrovateliek ZOMRELA mama a vedúca FOLKLÓRNEHO súboru IVETKA: Prvé slová SESTRY trhajú srdce
--  لجنة اممية : خطر المجاعة في غزة يتزايد كل يوم
--  كتائب شهداء الأقصى تكشف حصيلة عملياتها خلال 3 ايام
--  Москва: Киев загуби 160.000 војници за шест месеци
--  مؤتمر دولي بنواكشوط حول "تمكين المرأة في المجال الرقمي"
--  Más de 2 horas estuvo cerrada vía Panamericana por derrumbe de tierra
--  JYPin uuden päävalmentajan debyytistä tuli karmea painajainen
--  Lauri Marjamäen potkinut Kärpät hävisi taas
--  Fiocruz firma acordo que torna acessível tratar artrite reumatoide
--  Ο ΠΟΥ κρούει τον κώδωνα του κινδύνου: Η νέα υποπαραλλαγή JN.1 του κορονοϊού εξαπλώνεται ταχύτατα σε όλο τον κόσμο
--  Müllwagenfahrer gerät in Gegenverkehr – Alkoholtest liefert bedenkliches Ergebnis
--  Com Endrick e John Kennedy, Ramon convoca Seleção para o Pré-Olímpico
--  نواز شریف نے مریم نواز کے الیکشن لڑنے کی شرط لگا دی
--  «Аякс» вылетел из Кубка Нидерландов, проиграв «Геркулесу» из третьего дивизиона
--  Gabigol se pronuncia e nega exigências divulgadas em relação à renovação com o Flamengo
--  Кирби прокомментировал вопрос об использовании активов России для Украины
--  Ex-Man Utd star demands club bring back Mason Greenwood after star striker’s performances at Getafe
--  إنتاج الطماطم في المغرب.. تراجع خطير وارتفاع غير مسبوق في الأسعار
--  Eintracht Frankfurt adia 'festa' do apuramento do Benfica aos quartos
--  Yuletide: Tinubu arrives Lagos for holidays
--  Biokaasutankki tipahti kuljetusauton kyydistä Oulussa
--  Así operará el transporte público en la CDMX estas fiestas decembrinas
--  Traveling for the holidays? Check out Sky Harbor's newest restaurants
--  UEFA Women's Champions League 2023/24: Alle Ergebnisse: So schlug sich Eintracht Frankfurt gegen SL Benfica
--  REAL - PARTIZAN Crno-beli na mestu zločina protiv prvaka Evrope
--  VASPITAČICA GOVORILA U POLICIJI O TRAGEDIJI U VRTIĆU &quot;Dečak je zaspao, a posle nekog vremena budile su svu decu...&quot;
--  Police conduct drug awareness programme at 2,300 schools and colleges across Karnataka
--  Ashley Cain’s ex Safiyya cosies up to Towie star and says she’s finally ‘got a smile back on her face’
--  Ashley Cain’s ex Safiyya cosies up to Towie star and says she’s finally ‘got a smile back on her face’
--  Un miliardo di euro in meno ai poveri: così il governo fa cassa sui più poveri
--  Platia výstrahy pred snežením aj povodňami
--  Rudy Giuliani meldet Insolvenz an
--  Zvezda podelila poklone deci sa Instituta za onkologiju i radiologiju
--  Pijan na trajektu napao kapetana i vrijeđao policiju pa završio u zatvoru
--  Skupština Dinama usvojila novi Statut kluba
--  Vujović: Finansiranje NVO iz javnih fondova je ulaganje u razvoj
--  Мадуро рассказал про "братский разговор" с Путиным
--  Honor 90 GT chega com até 24 GB de RAM e recargas de 100 W
--  Estudo leva voluntários a inalar poluição para ver impacto no cérebro
--  Grêmio entra em 'briga' com Juventude por zagueiro do Palmeiras
--  Filme italiano entra em 'shortlist' do Oscar de melhor estrangeiro
--  كاتبان أمريكيان: إرسال بايدن حشودا عسكرية للشرق الأوسط توريط لواشنطن
--  First of DIA’s new concourse train cars pulls into the station, more on the way
--  DOBRO RAZMISLITE PRE NEGO ŠTO KUPITE AUTOMOBIL: Evo koji se najviše kvare, a i koji su najpouzdaniji
--  Τραγωδία στην Ημαθία: Καταπλακώθηκε από το αυτοκίνητό του και πέθανε
--  Kierrosraportti: KalPa löi murskalukemat taululle Lappeenrannassa, kolme veräjänvartijaa piti maalinsa puhtaana
--  برنامج تنمية القدرات البشرية يعلن عن وظائف بعدة تخصصات
--  Rudy Giuliani meldet Insolvenz an
--  بعد وضعها تحت مخالبه.. أفعى تنهي حياة صقر بحيلة ماكرة
+-  SaiPa hävisi 0-7, valmentajien vaihtaminen ei ole auttanut - tästä tilanteesta SM-liiga lähtee joulutauolle
+-  Vinculan a proceso a agente ministerial por choque
+-  Champions League der Frauen: Eintracht Frankfurt droht das Aus
+-  '곧 돌아온다' 매디슨, 빠르면 내일 토트넘 훈련 복귀...두바이에서 회복 세션 마쳤다
+-  Descubre el motivo de por qué los perros pequeños viven más años que los grandes
+-  An idea from Eden Prairie High School students turned into a way to help their peers in need
+-  Verkehrsunfall im Bezirk Ried: Fußgänger bei Dunkelheit schwer verletzt
+-  Israel-Hamas war 'most dangerous ever' for journalists: Rights group
+-  أكاديمية البحث العلمي والتكنولوجيا تحتفل بتدشين الشبكة القومية لمتاحف ومراكز العلوم
+-  دعمًا للاستثمار الأجنبي والتنمية.. وزير العمل: ملتزمون بـ "إعلان المبادئ الثُلاثي"
