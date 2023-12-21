@@ -1,51 +1,11 @@
 # Latest News
--  Positiva, nuevo patrocinador de la Federación Colombiana de Patinaje
--  Presentado el recorrido de la Vuelta a España 2024
--  City vs. Fluminense, la Gran Final del Mundial de Clubes
--  제주 하원테크노벨리 기회발전특구 지정 추진
--  Соловьеву уже не отмазаться
--  Race-by-race preview and tips for Wagga on Friday
--  Race-by-race preview and tips for Wagga on Friday
--  مراد سعید، حماد اظہر، زرتاج گل اور 48 پی ٹی آئی رہنماؤں کے نا قابل ضمانت وارنٹ گرفتاری جاری
--  JB금융그룹, 한패스(hanpass)와 전략적 투자계약 체결
--  넷마블, 여성가족부 ‘가족친화기업’ 인증 재획득
--  현대엘리베이터, ‘굿윌스토어’와 ESG 캠페인 ‘현대:Re’ 진행
--  컴투스 ‘아이모’, 연말 맞이 특별 이벤트 실시
--  워커힐 호텔앤리조트, ‘2023 산타 키즈 빌리지’ 프로모션 진행
--  Co dalej ze sportem w TVP? Zwrot akcji ws. transmisji meczów Ekstraklasy
--  근로자 1명 고용하는 데 월 600만원 든다
--  日 방문 관광객 2000만 명 돌파…4명 중 1명은 ‘한국인’
--  2023 FIFA Kulüpler Dünya Kupası finalinde, Manchester City ile Fluminense karşılaşacak
--  Jandarmadan nefes kesen operasyon
--  Lamas limonunda hasat 5 TL ile başladı
--  Yhä useamman kuolinonnettomuuden taustalla ylinopeus vuonna 2022
--  Yhä useamman kuolinonnettomuuden taustalla ylinopeus vuonna 2022
--  Cluj County issues 10-year EUR 76 mln bond
--  Schiesserei in Sitten VS war laut Polizei kaum zu verhindern
--  2023 FIFA Kulüpler Dünya Kupası finaline geri sayım: Manchester City ile Fluminense karşılaşacak
--  Под Москвой огромный кусок льда рухнул на головы россиян под военкоматом
--  Modernizing the Internet’s architecture through software-defined networks
--  יקבל צ'אנס אחרון: קוז'וך צפוי לעמוד על הקווים מול הפועל חיפה
--  שלושה משחקים בשלוש מדינות? הפועל חולון תפגוש את אוסטנד בפלייאין
--  הטכניון: דוחים בשבוע נוסף את פתיחת שנת הלימודים
--  กสิกรไทย ประกาศผล HACKATHON 2023 แอปฯ ‘How are you?’ คว้าชนะเลิศ
--  במ.ס אשדוד חוששים: סבן ייאלץ לעבור ניתוח שיסיים לו את העונה?
--  נתראה בעוד חודש: הפועל ירושלים תפגוש את טנריפה בטופ 16
--  X down oggi giovedì 21 dicembre 2023, cosa è successo all’ex Twitter
--  DEBATT: Bättre att ge vårdpersonal presentkort eller fruktkorg
--  DEBATT: Bättre att ge vårdpersonal presentkort eller fruktkorg
--  여주시, 2023년 안전한국훈련 우수기관 선정
--  관악구, 난곡생활권중심 지구단위계획 재정비 고시
--  태백시민향토장학회, 2024년부터 고등학교 졸업생 졸업축하장학금 지원
--  경주시, 2023년 전략작물직불금 1347농가 13억원 지급
--  2024 강원 동계청소년올림픽대회 성화, 평창 도착
--  연수구 의정동우회, 이재호 청장 '공로패'·김영임 의원 '의정상'
--  삼척시, 문화재청 국가유산 관리역량 진단 등 ‘우수 지자체’ 선정
--  태백시, 철암고 핸드볼·레슬링팀 창단식 개최
--  청도군, 지역개발사업 추진실적 평가 '우수상' 수상
--  동해시, 북평민속시장에 문화광장·거점시설 조성
--  홍성교육지원청 특수교육지원센터, 2022 개정 특수교육 교육과정 전달 연수 실시
--  서문·칠성 야시장, 22~24일 크리스마스 특별행사
--  용인, 세종-포천고속도로 동용인IC 신설 첫 관문 통과
--  충남도, 제2차 경제상황점검회의 개최
--  충남도의회 ‘청소년 약물중독’ 예방과 상담 개입 방안 논의
+-  소셜러스, 유튜브 채널과 제휴로 소유권 분할 판매
+-  스타이카, 메타오아시스와 전략적 업무협약 체결
+-  코나아이 ‘모나’, 아이쿠카와 협업으로 알뜰폰 요금제 5종 출시
+-  LS전선, ‘장애인 예술단’ 창단…경제적·사회적 자립 지원
+-  Həbsdəki araşdırmaçı jurnalist: 'Polislər evimdən səhmlərimi aparıb, onların təhlükəsizliyinə görə narahatam'
+-  White Paper On Electricity Department : విద్యుత్ రంగాన్ని నష్టాలపాల్జేసింది బీఆర్ఎస్‌- శ్వేతపత్రంలో ఎంత అప్పులు చూపించారంటే?
+-  NFL Pays Tribute to Travis Kelce & Taylor Swift's Relationship With Cute Easter Egg
+-  黃湘婷「壞男孩」慘遭綁架性侵！煎熬想吐認了：還要多久
+-  Viktor Orbán. Ce faci cu un trădător aflat în interiorul Alianței Nord Atlantice?
+-  Oväntade beviset i tvisten mot Zlatan: Julkort
