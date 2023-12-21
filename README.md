@@ -1,51 +1,11 @@
 # Latest News
--  “No ha habido ningún caso complicado”: en Mazatlán aumentan consultas por enfermedades respiratorias
--  ¡Ya casi! El aguinaldo ya está en las arcas de la UAS, en breve se reflejará en cuentas bancarias
--  استشهاد مدير شرطة مركز خانيونس وإصابة مدير صحة غزة
--  Derek Hough verrät: So geht es seiner Frau nach Schädel-OP!
--  ¡Buenas noticias! “Queremos ayudarle”: Bienestar Sinaloa apoyará a don Ramiro, hombre sin hogar
--  Localiza Sedena megalaboratorio clandestino para la elaboración de drogas sintéticas en Sonora
--  Två styrelseledamöter lämnar Oscar Properties
--  Do Kijowa przybył nowy ambasador RP Jarosław Guzy
--  NaaS Technology Inc. Announces Amendment of Share Incentive Plan
--  El Real Madrid desintegra al Partizán con un Musa descomunal
--  Por qué llueve tanto en Bogotá a pesar de ser diciembre
--  'Dukes Of Hazzards' Star Suggests Biden Be Executed In Now-Deleted Tweet
--  #android phones may finally be getting a battery health indicator
--  Cali Approved Sewage Waste To Be Converted To Drinking Water, But Should Black Folk be Wary?
--  ANĐELO ODUVAO ANITU Javno priznao da ne želi vezu sa njom, pa je ponizio pred svima
--  Zelena zima ...
--  Here’s Who Actually Gave Taylor Swift That Sparkling Ring for Her Birthday
--  Sales of some Apple Watch models to be halted in U.S. amid patent dispute
--  Karmea takaisku - SM-liigatähden käsi murtui
--  Nuorten Leijonien MM-kenraali meni nappiin - yksi asia lupaa todella hyvää
--  Morning Headlines
--  Türkiye'nin BM Daimi Temsilcisi: PKK/YPG'nin sinsi planlarını gerçekleştirmesine izin vermeyeceğiz
--  Trabzonspor'dan Avrupa Süper Ligi açıklaması!
--  Dışişlerinden Çekya'daki silahlı saldırı için başsağlığı mesajı
--  Lider Girona'ya Real Betis engeli!
--  Emre Belözoğlu: Beraberlik için üzgünüm
--  Antalya-Konya kara yoluna kar engeli: Tır geçişine kapatıldı
--  Beşiktaş'ta hareketli saatler! Yönetim, Nevzat Demir Tesisleri'ne gidiyor
--  Sultangazi'de otomatik silahlı saldırı: 1 kişi öldü
--  Uhapšen kradljivac bagera: Iz Lučana ga prevezao u Suboticu
--  Pokemon Scarlet & Violet DLC: How to open secret room in Area Zero
--  ספרופולוס: "המפגש היה מיוחד ומוזר בשבילי. הקרדיט לתיאודוסיץ'"
--  Kartal’da elektronik atık ve atık pil toplayan site, muhtarlık ve okullar kazanıyor
--  Sergio González: "Es un punto de mucho valor"
--  Wall Street podniosła się po środowej przecenie
--  Natal sem Fome distribui 2 mil toneladas de alimentos em todo o país
--  Sharks’ center had procedure done to fix year-long issue
--  نقابة الصحفيين الفلسطينيين: استشهاد 83 صحفيا خلال عدوان الاحتلال المتواصل على غزة
--  '가오갤 그루트' 빈 디젤, 성폭행 혐의로 피소…충격 [해외이슈]
--  배용준♥박수진→송중기 선택한 하와이…한달 살기 좋은 나라 TOP3 이유는? [세모집]
--  비비지 엄지, 개미허리라 가능한 의상…이렇게 말랐다고? [MD★스타]
--  조현아 "연예인과 나이트클럽서 즉석만남 했다" 폭탄발언 [힛트쏭]
--  "안 될 거 없잖아?"…멜빈 감독이 콕 집었다! "이정후는 리드오프"
--  Hombre sin vida es localizado en los juegos infantiles del Bosque de Chapultepec, CDMX
--  وزيرة الثقافة تجدد الثقة في خالد عبد الجليل رئيساً للرقابة على المصنفات الفنية
--  واشنطن بوست الأمريكية تكشف كذب روايات الاحتلال بشأن أنفاق مستشفى الشفاء بغزة
--  خبير اقتصادي يكشف سبب توجه البنك المركزي لتثبيت سعر الفائدة
--  أمين الفتوى بدار الافتاء يوضح دعاء تيسير الزواج
--  9 مصابين إثر حادث تصادم في بني سويف
--  كابوس المقاومة يُجبر "نخبة الاحتلال" على الانسحاب من غزة.. ماذا نعرف عن لواء جولاني؟
+-  [오피셜] '코리안 가이' 황희찬, 울버햄튼과 2028년까지 재계약...1년 연장 옵션 포함
+-  Incendie de Kaloum : 23 morts, « un nombre important de disparus… » (gouvernement)
+-  Top US officials to visit Mexico for border talks as immigration negotiations with Congress continue
+-  Will we have a white Christmas in eastern Idaho?
+-  Weather Forecast For Friday December 22
+-  Zi në botën e futbollit italian, vritet në moshën 22-vjeçare ish-lojtari i Palermos dhe Torinos
+-  Nanotechnology approaches for creating biodeterioration-resistant wood
+-  Researchers find cancer-causing metals in a Chesapeake Bay tributary adjacent to a coal ash landfill
+-  In mighty Atlantic Ocean, ecosystem wonders and threats lie below the surface
+-  Vin Diesel Accused of Firing Ex-Assistant Hours After Sexually Assaulting Her
