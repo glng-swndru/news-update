@@ -1,51 +1,51 @@
 # Latest News
--  Court revives Nirvana lawsuit over Nevermind cover
--  Usvojen novi Statut Dinama kao i financijski plan za 2024.
--  Tiroler Tageszeitung, Leitartikel vom 22. Dezember 2023. Von Anita Heubacher: "Gesperrte Betten, kein Problem mehr?".
--  Pierwsza od czterech sesji przecena ropy
--  Prima Dauphin, poi Heim: l'Ambrì batte il Servette e lo passa
--  Tech’s DEI backlash is here
--  Author donates profits to the Women’s Refuge
--  СКА — ЦСКА: видеообзор матча КХЛ
--  Lopetegui hefur hafnað tilboðum: Vill bara úrvalsdeildina
--  Raffle brings a touch of magic
--  Christmas cheer to share around
--  الهلال يستعرض في شباك أبها بسباعية نظيفة
--  Mujeres, protagonistas en el sicariato y venta de drogas en Juárez
--  Trendet teremtett a Spotify, már a bankok is másolják
--  الاعلان عن تفاصيل موسم الحج 1445هـ / 2024م و حصص القرعة في ليبيا
--  Wells Fargo Personal Loans Review 2024
--  عطاف يستدعي سفير جمهورية مالي بالجزائر
--  المجلس الشعبي الوطني يصادق على قانون الطيران المدني الجديد
--  ربيقة : توثيق بطولات المجاهدين وتخليدها يعتمد حاليا على التقنيات الحديثة
--  استئناف الرحلات بين الجزائر العاصمة وبيروت يعكس دعم الجزائر وتضامنها الدائم تجاه لبنان
--  الأمن الوطني : فتح مسابقة لتوظيف أعوان متعاقدين لسنة 2023
--  Nairo Quintana:"Soy un luchador y espero aportar experiencia para una gran temporada"
--  Ivanović ostao bez igrača: Bek se vraća u Italiju
--  Third Federal Review 2024
--  POKUŠAO POLICAJCIMA DA OTKRIJE LOKACIJU UBICE, PA URADIO NEŠTO NEVIĐENO Snimak otkrio JUNAKA iz Praga: "Tu sam pucaj u mene" VIDEO
--  Ermittlungen in Tschechien: Der Horror von Prag dauerte nur wenige Minuten – am Ende sind 14 Menschen erschossen
--  "BOLJE DA NE UZIMAŠ MIKROFON U RUKE" Branku napali nakon SKANDALA sa falširanjem: Oglasila se pa ŽUSTRO odgovorila a krivac je..
--  אשפוז ללא הגבלת זמן: נגזר עונשו האקר שהדליף את GTA 6
--  Popular Analyst Pointed to This Date for Altcoin Rally: "Altcoins Will Start Rising After This Event!"
--  Want a White Christmas? It's gonna cost you.
--  Video: Tältä näyttää joulu Kiovassa
--  Así están las plantillas de Superliga a falta de un mes para el arranque de competición
--  No di Roma e Inter, Napoli apre al dialogo. Milan: 'Presto per esprimere opinioni'
--  За здравството има дијагноза, ама засега нема терапија
--  Tiental Almere City worstelt zich langs amateurs, Vitesse schakelt Heerenveen uit
--  Popping bottles with care: Why a flying champagne cork is a huge injury risk
--  South Park: Snow Day launches March 26, and it has a pretty sweet Collector's Edition
--  Usher praises 'Queen' Rihanna as she hypes his Super Bowl show: 'Real recognize real'
--  Vice President Kamala Harris to visit Myrtle Beach on Jan. 6
--  Connection not just good grades
--  Fiscal Magali Quiroz regresa a poner orden en caso "Cuellos Blancos del Puerto"
--  Sturmtief "Zoltan": Viele Einsätze wegen umgestürzter Bäume - Zug evakuiert
--  The Fed has prolonged an unhealthy co-dependence with markets and it threatens financial stability, Mohamed El-Erian says
--  Novi dobar rezultat ekipe Saše Ilića
--  Atirador matou 15 e feriu 30 em universidade de Praga
--  Friday horse racing tips from Tom Lunn for Ascot
--  Need To Revive The Reading Culture
--  MT embarga garimpo e aplica R$180 mil em multas durante ação de combate a extração mineral ilegal
--  Former Nice and PSG coach Christophe Galtier is cleared of accusations of racism
--  Samson century and four wickets from Arshdeep propel India to series win over Proteas
+-  طريقة مجانية لمتابعة مباراة الأهلي ضد أوراوا الياباني في كأس العالم للأندية
+-  أقوى شتاء منذ 10 سنوات يبدأ خلال دقائق.. ماذا تفعل ظاهرة النينو؟
+-  ¿Cuánto duran los capítulos What If 2 en Disney+ México?
+-  MLB widening runner's lane to first, changing a rule that has caused World Series controversy
+-  Can Arsenal, Liverpool or Aston Villa end Man City's Premier League dominance?
+-  UEFA court defeat revives battle with breakaway Super League
+-  Javier Bernal Delivers a Christmas Gift on Tomorrow’s WWE NXT Level Up
+-  Shohei Ohtani named AP Male Athlete of the Year for 2nd time in 3 years
+-  San Jose: Celtic Winterdance returns for Trinity concert tonight
+-  CHP'de 126 aday daha belli oldu! İşte il il tam liste...
+-  Trabzonspor'dan Avrupa Süper Ligi açıklaması
+-  Talat Atilla yazdı: İktidar ve MHP Kurtulmuş'a mesafe mi koydu?
+-  "ייענש בכל חומרת הדין": נעצר אנטישמי שחילל את "החנוכייה הגדולה באירופה"
+-  ניקי היילי: "הפלשתינים צריכים לעבור למדינות פרו חמאסיות כמו קטאר, איראן ותורכיה"
+-  אלו זמני כניסת ויציאת צום עשרה בטבת תשפ"ד 2023
+-  הביע סולידריות עם הפלשתינים וננזף: ענף הספורט שלא נותן לפוליטיקה לזלוג אליו
+-  החורף הגיע: לקראת סוף שבוע גשום וסוער במיוחד | תחזית מזג האוויר
+-  אוניברסיטאות, חכו ללוחמים
+-  ביהמ"ש העליון קבע: איש ציבור לא יוכל לחסום משתמשים שהביעו ביקורת בחשבונותיו ברשתות החברתיות
+-  לרפא את הגעגוע: חנן בן ארי שר ללוחמי גדוד 13 של גולני, שאיבדו 44 חברים
+-  טייבה: המשטרה חוקרת נסיבות אירוע רצח במהלכו נורה צעיר ברכבו
+-  שאלה של חינוך
+-  כשהפלגנים ייצאו מהרשת, הם יגלו שהפכו למיעוט
+-  לכודים במלכוד של ממשל ביידן
+-  מזל דגים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל גדי, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל קשת, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל עקרב, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל מאזניים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל בתולה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל אריה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל סרטן, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל תאומים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל שור, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  מזל טלה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
+-  לצורך הההכרעה במלחמה - מוכרחים לחדש את המצור על רצועת עזה
+-  אבסורד: צה"ל דורש מאנשי כיתות הכוננות בצפון להחזיר נשקים
+-  4 Indian soldiers killed and 3 wounded in an ambush by rebels in disputed Kashmir
+-  Eurotunnel unions call off strike after massive disruption to cross-Channel train traffic
+-  Uygun Fiyata Amiral Gemisi Seviyesinde Özellikler Sunan HONOR 90 GT Tanıtıldı
+-  Man accused of texting death threats to Ramaswamy faces similar charges involving 2 more candidates
+-  [1보] 국제유가 하락…WTI 0.44%↓
+-  Myanmar's military should be investigated for war crimes, Amnesty International says
+-  Affaire Norbert Zongo et ses compagnons d'infortune : La France annule le décret d'extradition de François Compaoré
+-  Top U.S. military officer speaks with Chinese counterpart
+-  ‘You’ve got school in the morning’: 16-year-old lights up World Darts Championship
+-  ‘You’ve got school in the morning’: 16-year-old lights up World Darts Championship
+-  Russia has fired 7,400 missiles, 3,700 Shahed drones in war so far, Kyiv says
+-  Appeal issued after three-figure sum stolen from high street business in West Lothian
+-  Olivia Dunne's signed LSU leotards sell out within hours for $130 each - and are already being resold for $1,000 - but auction is flooded with creepy fans asking: 'Do gymnasts typically wear underwear with these?'
