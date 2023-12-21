@@ -1,51 +1,11 @@
 # Latest News
--  Meteorológovia varujú: Na väčšine Slovenska sa môže tvoriť poľadovica
--  V Bratislave vystavia jedinečný model Lego Lamborghini Sian v životnej veľkosti: Zostavili ho z viac ako 400-tisíc dielikov
--  First AI streamers livestream in Vietnam, sets sales record with thousands of orders
--  디스이즈, ‘제5차 넥스트 유니콘’ 최종 3개 기업 선정
--  Zillennials in the mil-liminal space: who are the contemporary ‘microgenerations’ in the misty marshland between established epochs?
--  Renversement du bus du MC El-Bayadh, 2 décès : condoléances de Tebboune
--  Sejm wznowił obrady; przeprowadzi pierwsze czytanie ustawy budżetowej na 2024 r.
--  אגם גולדשטיין על רגעי החטיפה: "אמרתי לאמא - 'הולכים לאנוס אותי'"
--  Президент Ирана провел телефонный разговор с Николом Пашиняном
--  Citypress | Bester and Meyiwa: 2023's two biggest courtroom dramas
--  India Confronts New Covid Challenge: The JN.1 Variant
--  مذكرة تفاهم لإدارة وتشغيل الاسواق الحرة بمطار الملك عبدالعزيز الدولي في جدة
--  مجمع اللغة العربية يكرم السلمان من جامعة البترا بجائزة أفضل كتاب مؤلف
--  ما أسباب الدوّار وطرق علاجه؟
--  ماكرون يزور الأردن ويلتقي الملك
--  View: Dyche to axe two Englishmen, fringe player to start - Everton predicted XI v Tottenham
--  대주주 양도세 완화 후폭풍…野 “시행령 통치” 강력 반발
--  [대구24시] “이젠 투어도 MBTI 취향으로”…‘My Best Tour Is 중구’ 23일 개최
--  [진주24시] 진주시, 고속도로 휴게소에 특산물 홍보관 조성
--  “전두환 유해 고향에 안장해야” vs “어처구니 없다”
--  Police probe disgraced jockey Danny Nikolic after confrontation on busy road
--  [전북교육24시] 전북교육청, ‘전북직업교육센터’ 설립 추진
--  Mercedes-Motoren zukünftig von Deutz - was steckt dahinter? #deutzag #mercedes-benz
--  Houthi attacks on Red Sea likely won’t end anytime soon
--  I tried Dunnes Stores’ new Skims dupes from €7 – and they make the perfect last minute gift
--  Assassinat du gérant d’une station-service à Touba : l’enquête accable deux pompistes de garde
--  尹대통령, 한동훈 법무 장관 면직안 재가
--  ‘한동훈 비대위’ 연내 출범... 與, 26일 전국위 의결 거쳐 공식 임명
--  Rauch ruft rund um Weihnachten zu Vorsicht wegen Corona auf
--  قلق إسرائيلي كبير: هذا ما يخفيه حزب الله تحت الأرض
--  लखनऊ में बीच सड़क पर महिला डॉक्टर के साथ छेड़छाड़, विरोध करने पर पति को पीटा
--  Police probing perfume subscription service I’vre after complaints of wrong charges, unfulfilled orders
--  Fransa'da "Karagöz ile Hacivat ve Nasrettin Hoca" etkinlikleri düzenlendi
--  ডিএনএ পরীক্ষায় জানা গেল সেই নারী পেলের সন্তান নন
--  Asgari ücretle neler değişecek? İşsizlik maaşı, kıdem tazminatı, 65 yaş aylığı, GSS borcu...
--  Mujeres de Leioa deportistas nutren el calendario local
--  При ударах Израиля на юге Газы погибли более 50 человек
--  Kenya’s Catholic Bishops Seek Clarification On Same-Sex Blessings By The Pope
--  Elon Musk păstrează tăcerea după ce „X”, platforma social media pe care o deține, a căzut joi în întreaga lume
--  8.000 estudiantes de toda España participan en un concurso on line realizado desde Baza
--  Colt CZ: Vláda schválila koncepci armády do roku 2035
--  "عاجلا أم آجلا... ستجبر إسرائيل "حزب الله" على القتال بجدية
--  Loi immigration: Chenu juge qu'"il faudra réformer la Constitution" en cas de censure du Conseil constitutionnel
--  NZD/USD se nachází v rostoucím kanálu
--  India sends special charter flight with relief supplies as part of $1 million aid to Papua New Guinea hit by volcanic eruption
--  Premian montaje mexicano en Seúl; Riñon de cerdo para el desconsuelo
--  Empresas de parquímetros reducirán sus ganancias; pactan otra distribución
--  Erupción eleva alerta por contaminación
--  98 „Christkinder“ aus Hessen
--  Федерация ММА Пензенской области стала первой во всероссийском рейтинге
+-  Polish president denounces Tusk’s state media overhaul as ‘anarchy’
+-  Un hombre resulta herido en Gandia después de que su expareja trate de "arrancarle" los testículos
+-  تعامد الشمس على معابد الكرنك معلنة بداية الشتاء
+-  حزب الله يقصف إسرائيل إثر ضربة على جيش سوريا..هجمات على الأميركيين بسوريا والعراق
+-  طقس العراق.. أمطار رعدية وثلوج بدءاً من الغد
+-  حادث مأساوي يودي بحياة لاعبين بفريق جزائري وتعليق لمباريات الدوري
+-  الداخلية تشكل 14 فوجاً لتأمين الحدود
+-  HS Ad, Coupang to co-work for retail media advertising
+-  L'Equipe in prima pagina sul successo del PSG contro il Metz: "I fratelli sorridono"
+-  Jokić se rastao sa Nikeom i iznenadio odabirom nove sportske marke
