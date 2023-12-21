@@ -1,51 +1,11 @@
 # Latest News
--  Corona-Zahlen im Landkreis Rotenburg (Wümme) aktuell: Inzidenz für Landkreis Rotenburg (Wümme), Niedersachsen und Deutschland
--  Corona-Zahlen im Landkreis Osterholz aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Landkreis Lüneburg aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Landkreis Lüchow-Dannenberg aktuell: Inzidenz für Landkreis Lüchow-Dannenberg, Niedersachsen und Deutschland
--  ד"ש מהשטח: פרטנר וצה"ל ישלחו גלויות מהלוחמים למשפחות
--  Temporary rail line closures begin Saturday for 10 months
--  Corona-Zahlen im Landkreis Harburg aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Dohoda ministrů financí EU cílí na rozpočtovou odpovědnost členských vlád
--  Corona-Zahlen im Landkreis Cuxhaven aktuell: Neuinfektionen für Landkreis Cuxhaven, Niedersachsen und Deutschland
--  Corona-Zahlen im Landkreis Celle aktuell: Neuinfektionen für Landkreis Celle, Niedersachsen und Deutschland
--  제주 관련 국비 13개 사업 예산 추가 확보...현안 사업 미반영도
--  Cyclist, 45, killed in hit-and-run accident on Nicoll Highway, driver, 33, arrested
--  Corona-Zahlen im Landkreis Schaumburg aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
--  F1 S'pore Grand Prix 2023 lauded as 'Best Race' of season by international motorsport community
--  Corona-Zahlen im Landkreis Nienburg (Weser) aktuell: Neuinfektionen für Landkreis Nienburg (Weser), Niedersachsen und Deutschland
--  Graf dne - CADJPY po zveřejnění ek. prognózy japonské vlády
--  Corona-Zahlen im Landkreis Holzminden aktuell: Zahlen und Fakten aus der Region
--  Diagnóstico acertado de Julio Velázquez: «Nos pegamos un tiro en los pies»
--  Symptoms of little-known STI that could cause cancer as alert is raised
--  Corona-Zahlen im Landkreis Hildesheim aktuell: Neuinfektionen für Landkreis Hildesheim, Niedersachsen und Deutschland
--  Corona-Zahlen im Landkreis Hameln-Pyrmont aktuell: Neuinfektionen für Landkreis Hameln-Pyrmont, Niedersachsen und Deutschland
--  أرباح بملايين الدولارات.. شركة صينية تقترح استخراج المعادن من مخلفات المياه المالحة بقناة السويس
--  سكين وحديدة وشطة.. أسرار التوصيلة الأخيرة في مقتل طالب بمنشأة القناطر
--  "الإسكان "توقع مذكرة تفاهم مع زيمبابوي لتوفير وحدات منخفضة ومتوسطة التكاليف
--  جيش الاحتلال: إصابة 8 جنود إسرائيليين في معارك شمال وجنوب غزة
--  صرخة يابانية تثير لغزا داخل فندق بالهرم
--  جيش الاحتلال: قصفنا 230 هدفًا لحماس في غزة أمس
--  لعدم تركيب الملصق.. سحب 1700 رخصة قيادة في 24 ساعة
--  "البنك الأفريقي للتنمية" يسحب جميع موظفيه الدوليين من إثيوبيا
--  Corona-Zahlen im Landkreis Diepholz aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Araç sahipleri dikkat! Motorine zam geliyor! İşte güncel fiyat listesi
--  UEFA ve FIFA şokta! Adalet divanı karar verdi
--  Unbekannte brechen in Wohnmobil ein
--  Yola çıkacaklar dikkat! Kapatılıyor
--  Corona-Zahlen im Landkreis Region Hannover aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  맨유, 쿠보 영입 나선다...'1400억 먹튀' 안토니 대체자로 낙점!→이적료 700억
--  '패스와 움직임으로 상대 수비진 무너뜨렸다'→이강인, 음바페와 함께 최고 평점
--  Corona-Zahlen im Landkreis Wolfenbüttel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Corona-Zahlen im Landkreis Peine aktuell: Die Coronavirus-News aus der Region
--  Un dezvoltator imobiliar a obținut desființarea Asociației Salvați Bucureștiul în instanță / Decizia nu este definitivă
--  Corona-Zahlen im Landkreis Northeim aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Helmstedt aktuell: Aktuelle Daten zum Coronavirus
--  Corona-Zahlen im Landkreis Gifhorn aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Goslar aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen in Wolfsburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Какими подарками наполнить адвент-календарь? Делаем своими руками
--  Poľský prezident Andrej Duda kritizuje kroky novej vlády pri reforme verejnoprávnych médií
--  بطاقة المتقاعد.. للموظف أم المتقاعد فقط؟
--  للثانوية فأعلى.. وظائف شاغرة بالشؤون الصحية بوزارة الحرس الوطني
--  Corona-Zahlen in Salzgitter aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Vlak narazil do skupiny robotníkov: Dvaja na mieste zahynuli
+-  Skončí vládna konsolidácia fiaskom? Namiesto znižovania deficitu hrozí v budúcom roku pravý opak!
+-  Slávny herec spravil Slovensku krásnu reklamu: Náš tradičný výrobok vychválil do nebies!
+-  Akou knihou potešíš frajera, brata či ocina? Máme tip aj pre futbalových fanúšikov
+-  Obrovská tragédia! Opatrovateľky zrámoval kamión: Jedna z nich sa už domov na Vianoce nevráti
+-  Стефковски: По 50 години ја реконструираме градинката во Ченто
+-  110 Tahun Teka Teki Silang, Ini Kilas Balik Penemuan dan Penerbitan Perdananya
+-  X Suffers Biggest Outage Since Musk’s Takeover
+-  EU court: FIFA and UEFA defy competition law by blocking Super League
+-  Mahfud MD Sebut Food Estate Proyek Gagal, Jurkam TPN: Seharusnya Tak Bergantung pada Satu Bahan Pokok
