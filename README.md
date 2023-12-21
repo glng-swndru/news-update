@@ -1,51 +1,51 @@
 # Latest News
--  “연말연시 가족·친지와 제주로 관광오세요”
--  올해 노지감귤 평균가격 1만원 돌파… 가격 조사 이래 최고치
--  오등봉 민간특례사업 수익금 배분 진통
--  Beduk berusia tujuh dekad kekal utuh
--  Sunrise weatherman Sam Mac tests out his Scottish accent while visiting a Tasmanian winery
--  Investor Lokal Bangun Nusantara Superblock di IKN, Jokowi: Bukan Barang Kecil, Hotel hingga Apartemen
--  류진 회장 “새해 한경협 싱크탱크 원년...빅테크와도 접점 늘릴 것”
--  수출, 3개월 연속 플러스 보인다…정부 "'상저하고' 실현 확실시" [종합]
--  이혼설 해명은 없다...이윤진 “서울에 오니 눈이 내리네요”
--  대구 달서구 금은방서 1천400만원 상당 귀금속 훔쳐 달아난 20대 경찰 검거
--  환상 도움으로 비판 잠재운 이강인 '새해 아시안컵 우승 배달!'
--  김민재 풀타임+케인 21호골…뮌헨, 볼프스부르크 꺾고 2연승
--  이강인 시즌 2호 도움으로 한해 마무리…PSG 메스에 3-1 승
--  PGA 투어 최고 장타자는 매킬로이…안병훈은 8위
--  김연아·최민정, 청소년올림픽서 뭉친다…레슨에 토크콘서트까지
--  미래에셋증권, RPA로 약 10만 시간 아꼈다
--  ‘범실 29개’ 흥국생명, 현대건설에 완패…아본단자 감독 “끔찍한 경기”
--  엠제트아트 갤러리 소속 마가렛윤정, 이규홍 작가 2023 서울아트쇼 참가
--  ‘강남진해장’ 2023 한국브랜드 소비자평가 대상 1위 선정
--  ‘강릉순두부장칼국수’…2023 한국브랜드 소비자평가 대상 수상
--  프리미엄 건강기능성 신발 슈올즈, MBN '현역가왕' 제작지원
--  트러스트케어 프리미엄 노인보행기 ‘렛츠플라이’, 장기요양급여지원 제품허가 취득
--  ‘강릉해변막국수’ 2023 KBEI 한국브랜드 소비자평가 대상 1위 달성
--  Gini f&s의 ‘지니크룽지’, 2023 한국소비자베스트브랜드대상 1위 수상
--  딥스톤파트너스, 패션IT기업 엔제이아이앤티에 SI투자로 가상피팅서비스 개발
--  맘이랜서, ‘디지털새싹 놀이터’ 부스 운영…2023 늘봄학교·교육기부 박람회 참여
--  원주 목재 ‘광성목재’ 2023 한국브랜드 소비자평가 대상 1위 선정
--  ‘매운향솥’ 2023 한국브랜드 소비자평가 대상 1위 선정
--  동문시장 “봉봉탕후루”, 2023 KBEI 한국브랜드 소비자평가 대상’ 중식 부문 대상 수상
--  이인화 전 청와대 행정관, 남양주을 출마 공식 선언
--  경복대-㈜테크디엔에이, 지식재산분석 전문가 양성 협약
--  부천 시온고 동아리 ‘애드 홉’, 교육용 보드게임 개발 수익금 전액 기부
--  부천사회적기업협, 근로자장학재단·시 노동복지회관에 총 1000만 원 기부
--  소사국민체육센터팀, 부천도시공사 심폐소생술 대회서 최우수상
--  성남교육청, ‘마약류·약물 오남용 예방교육’ 주제 교육부장관상 수상
--  전문건설협 안양시협, 회비 절약 이웃돕기 성금 500만 원 시에 기탁
--  삼흥산업(주), 안양소방서 ‘제1호 안전 사업장’ 선정 기념 현판식가져
--  "60세 브래드 피트, 26살 연하 여자친구와 생일 기념"
--  Mustang grapplers aiming for more after program-best finish at state duals last season
--  Contraintes d’approvisionnement prévues en 2024 pour un médicament contre le diabète
--  IND vs SA: सीरीज जीतने के लिए बदलेगी टीम इंडिया, कोहली के शागिर्द को मिलेगा प्लेइंग 11 में मौका?
--  7 AM Headlines: காலை 7 மணிக்கு ஏழு உலக செய்திகள்.. நடந்தவை, நடக்கப்போகுறது எல்லாம் உங்களுக்காக..!
--  İşgalci İsrail'den Kızıldeniz'e saldırı tehdidi
--  क्रिसमस पर पहनना है रेड, बॉलीवुड की इन हसीनाओं के साड़ी लुक्स से लें टिप्स
--  Celine Dion alami kekejangan otot sukar dikawal
--  Mokshada Ekadashi: मोक्षदा एकादशी का व्रत कैसे करें, जानें पूजा से जुड़े सभी नियम
--  Un mahorais aux Jeux Olympiques de Paris
--  "다른 구단 생각하지 않았다" 임찬규, LG와 4년 총액 50억원 FA 계약 [공식발표]
--  अकाउंट में नहीं है एक भी रुपया तो क्या देनी पड़ेगी पेनल्टी? RBI के इस नियम में है जवाब
--  Mahindra XUV 700: अगले साल आएगा महिंद्रा एक्सयूवी 700 का 6-सीटर वेरिएंट, देखें क्या कुछ होगा खास
+-  장종태 전 대전 서구청장 “박병석 자존심 서구 갑, 반드시 사수”
+-  “선원으로 일할게”... 선주 속여 선용금 수천만원 가로챈 사기꾼 구속
+-  철원, 동계청소년올림픽대회 붐업 위한 전국초교 스피드스케이팅 대회 개최
+-  식약처, 의료제품 이어 식품도 사전상담제 도입 ... 제품화 전략적 지원
+-  Groundbreaking Kodim IKN, Jokowi Minta Pembangunan tak Banyak Tebang Pohon
+-  Ofrece FBI 25 mil dólares de recompensa por homicidio de 1994
+-  Pasangan kekasih terselamat dua nahas berbeza hari sama
+-  Liverpool pesta gol belasah West Ham
+-  Federal judge blocks California law that would have banned carrying firearms in most public places
+-  งานเข้า! ตำรวจจับ ดาราดัง เมาแล้วขับ แอลกอฮอล์พุ่งสูง 235 มิลลิกรัม
+-  서울 체감 '영하 22도' 시베리아 추위…모스크바보다 20도 낮다
+-  Microsoft inks carbon removal deal with offsets startup Chestnut
+-  USD/JPY dropping under 143.00 - sings of higher inflation in Japan weighing
+-  Federal judge blocks California law that would have banned carrying firearms in most public places
+-  कोलकाता में चिकन 60 रुपये प्रति किलोग्राम महंगा हुआ, क्या UP, बिहार समेत दूसरे राज्यों में भी महंगा होगा? जानें
+-  Trolean de lo lindo a China Suárez por escaso público en show musical que presentó en un mall
+-  Mariah Carey cozies up to Joe Biden, takes her twins to White House after Bryan Tanaka split
+-  Youtuber Cilik Asal Jogja Leika Garudita Merilis Lagu Main Sepatu Roda
+-  Necessity for climate- resilient practices in construction highlighted
+-  Fonavi: horarios para cobrar desde este jueves 21, qué documentos llevar y quiénes podrán hacerlo
+-  Naqvi orders land allocation for smart police stations
+-  Inmates teach prisoners how to cook gravy on national gravy day
+-  Inmates teach prisoners how to cook gravy on national gravy day
+-  Cuaca Besok Jumat 22 Desember 2023: Langit Jakarta Siang hingga Malam Berawan
+-  Trent Brown doubles down on post about Malik Cunningham: ‘I’m glad he’s in a better place’
+-  Senamhi lanza alerta naranja por lluvias en Perú: ¿dónde se sentirán y hasta cuándo?
+-  Union minister Dharmendra Pradhan seeks Centre’s help on Rourkela diarrhoea outbreak
+-  Ерөнхийлөгч асан Х.Баттулга сонсголд ирсэнгүй
+-  FACT CHECK: ‘Privacy note’ to stop use of Facebook photos, info is fake
+-  Meeting finalises KP Health Security Action Plan 2024-2028
+-  В Красноярске провели масштабный капремонт музыкальной школы
+-  МО РФ рассказало об операции по извлечению взрывателя от ВОГ из раненого солдата
+-  Insólito: cajera rompió billete de 100.000 en su primer día de trabajo y no se lo perdonaron en redes
+-  Does Apple have a plan for resolving the patent issue affecting certain Watch models in the US?
+-  Kylian Mbappé marcó dos goles, jugó con su hermano y se abrazó al entrenador Luis Enrique en el triunfo de PSG el día de su cumpleaños 25
+-  Boşanmaların əsas səbəbləri bunlardır
+-  ‘서울의 봄’ 단체 관람 두고…보수단체 “교육권 침해” vs 전교조 “학교의 선택”
+-  Milei firmó un DNU con más de 300 reformas para iniciar la “desregulación económica de la Argentina”
+-  Ind W vs Aus W: पहला टेस्ट आज से, इतिहास की पहली जीत दर्ज करेगी टीम इंडिया?
+-  People term election as pivotal for progress
+-  Study shows AI image-generators being trained on explicit photos of children
+-  Sectores primarios y estratégicos, prioridad del presupuesto del Estado para 2024
+-  Odisha ranks lowest in inflow of FDI in last 5 years
+-  ¡Lamentable! Joven se quita la vida al interior de su domicilio en Tehuacán
+-  PAS under-training officers call on KP Chief Secretary
+-  Puncak Musim Liburan Di Tengah Peringatan Ancaman Keamanan
+-  Hyundai Home Shopping Elevates Deal-Commerce with ‘The Naked Ad Studio’ on YouTube
+-  ترسيخ قيم الإيجابية والوطنية.. "أوقاف القاهرة" تعقد لقاء ثقافيا بكلية الدعوة بمدينة نصر
+-  Beyoncé and Jay-Z rent bus for private tour of NYC with kids, visit Christmas tree at Rockefeller Center
+-  Hujan berterusan di Pantai Timur, Johor sehingga Isnin
