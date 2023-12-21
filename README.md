@@ -1,51 +1,51 @@
 # Latest News
--  5 صفات تتميز بها القصيرات دون عن غيرها
--  جاهة المهندس مؤمن سامي ياسين
--  48 عاما وراء القضبان.. البراءة لصاحب أطول حكم ظالم في تاريخ أمريكا
--  تراجع نشاط ميناء إيلات بنسبة 85% بسبب هجمات الحوثيين
--  6 فوائد مذهلة للخس أبرزها لمرضى السكر.. احرصوا على تناوله
--  Непреземање на големи чекори во справување со аерозагадувањето е срам и трагедија за цела држава, реагираат од „О2 Иницијатива“
--  TCL to Showcase Leading Technology Portfolio and Solutions to Inspire Greatness at CES 2024
--  Xinhua Silk Road: 해외 방문객, 텅저우의 특별한 문화 매력 경험
--  Chiny zakazały eksportu kluczowych technologii. Powodem bezpieczeństwo narodowe
--  Rosja wydała już na wsparcie sektora lotniczego ponad 12 mld USD
--  Shares of Warner Bros. Discovery, Paramount Dip as Investors Take Stock of Potential Merger
--  MTV: Järisyttävä uutispaukku - tässä on mestarivalmentaja Pekka Virran uusi seura
--  Ky kalkulator parashikon se kur do të vdisni – me një saktësi të frikshme
--  Citypress | SA Tourism employees say acting CEO Nombulelo Guliwe is an 'insulting bully out for revenge'
--  Hövding ansöker om konkurs
--  BioMarin appeases an activist
--  CCBS PREZANTON RAPORTIN E PARË TË QËNDRUESHMËRISË, PËR NJË QASJE TË CERTIFIKUAR DHE PRAGMATIKE NDAJ PËRGJEGJËSISË SOCIALE
--  Tube passenger accused of shoving a commuter onto the tracks and attacking another stranger denies attempted murder
--  Edona e ashpër me Ganinë: Ti je alkoolik, dil jashtë dhe kërko ndihmë tek doktori sepse ke një problem të madh
--  Reps Demand List Of Institutions Conducting Illegal Admissions From JAMB
--  Firli Bahuri Minta Maaf ke Rakyat Indonesia
--  Fuerte explosión de polvorín deja daños materiales en San Gabriel Chilac
--  Glasgow organisations hosting free Christmas dinners this year for those struggling
--  Luton v Newcastle 8/1 BuildABet: BTTS, Wilson to score, Adebayo 1+ SOT, Guimaraes 1+ foul with Sky Bet
--  Bancada de Libre a reunión a las 9 de la mañana de este jueves
--  TV조선 추천 인사의 TV조선 선거방송 심의 결과는 '문제없음'
--  젊은 기자들이 만든 Q저널리즘상, ‘제1회’ 시상식 열렸다
--  European Commission projects moderate growth trajectory for Cyprus
--  Обновеният стрелбищен комплекс "Гео Милев" ще бъде открит до три месеца
--  Zabudni na počítače na školách. Tento slovenský startup mení školstvo aj za našimi hranicami
--  İkinci el araç alıp satanlar dikkat!
--  Minister David Burch Applauds SDP Graduates
--  Albanian asylum seeker, 27, died by hanging himself on board Bibby Stockholm barge, inquest hears
--  Albanian asylum seeker, 27, died by hanging himself on board Bibby Stockholm barge, inquest hears
--  «Цифры немаленькие»: Силуанов напомнил о замороженных в России активах Запада
--  EastEnders is hit by HUGE scheduling shake-up ahead of blockbuster Christmas episode - as fans count down to THAT body reveal
--  Researchers create first programmable, logical quantum processor
--  Full list of trains cancelled as Storm Pia causes trees to fall on tracks across West Midlands
--  'Türkiye'nin en kötü yemeği' seçilmişti... Satışları patladı, fiyatı iki katına çıktı!
--  Marmara Denizi'nde deprem!
--  El picante ultimátum del presidente de Huracán a Diego Martínez, con Boca en el medio: "Si no paga, vamos a..."
--  Neue Regel auch in Deutschland: Was sich an Autobahnen bald ändern dürfte
--  Toman experiencia de AL en reducción de jornada laboral
--  Presidenti i UEFA-s reagon pas vendimit për Superligën Evropiane, thumbon Real Madridin dhe Barcelonën
--  KAD SAM MUŽU REKLA ŠTA MI RADI SVEKRVA, DOBILA SAM ULTIMATUM! Ispovest Dijane - "Smestila mi je i tad je sve ESKALIRALO"
--  Glamorous prison officer who admitted having phone sex with jailed drug-dealing gangster is cleared of illicit affair after claiming she only took his calls to 'pacify' him
--  ये पहाड़ी फूड शाकाहारियों के लिए ताकतवर व्यंजन, चटनी-शहद से खाओ, स्वाद लाजवाब
--  Insändare. ”Låt flera olika föreningar nominera nämndemän”
--  নির্বাচনী প্রচারণায় ভিন্ন মাত্রা, ক্ষুদেবার্তায় ভোট চাইতে পারবেন প্রার্থীরা
--  Ајдин Османовиќ, момчето со волшебен глас се сретна со Пендаровски
+-  Echipa clasată în Top 4 din La Liga care n-ar putea avea dreptul să joace în Champions League
+-  'Go see the movie…': SRK reacts to fan dressed like Hardy; fans dance to Lutt Putt in theatres [watch]
+-  محكمة النقض ..الزواج العرفي بطفلة يعتبر جريمة “هتك عرض”
+-  Sanctions await Wike, others – PDP
+-  النيابة العامة توقف 4 مواطنين لخيانة الأمانة والتصرف بأموال جمعية خيرية
+-  בעקבות זעם המילואימניקים: מינהלת החטופים תישאר בידי הצבא חודש נוסף
+-  6 جثث في معركة الفجر.. كيف قضت "الداخلية" على "عصابة صدفا"؟
+-  الاحتلال يزعم قتل 4 من قادة "لواء غزة" التابع لحماس
+-  التحريات تكشف لغز جثة فتاة الحي الإيطالي بأكتوبر
+-  البابا تواضروس يهنئ أمير الكويت الجديد
+-  بروتوكول بين بنك مصر و جهاز تنمية التجارة لدعم الدفع الإلكتروني
+-  وزير الإسكان يتفقد شقق "سكن لكل المصريين" بأسوان الجديدة
+-  Kejurnas PBSI 2023: Bobby/Melati Belum Terbendung
+-  Weniger Kinder lebten 2022 in Heim oder Pflegefamilie
+-  VJT: Podignuta optužnica za osumnjičenog za ubistvo u stanu na Voždovcu
+-  Deontay Wilder reveals how he once left drug-cheat heavyweight Jarrell Miller hospitalised
+-  Apple Car Play’in yeni özellikleri belli oldu! Kimler kullanabilecek?
+-  Arbeitsagentur-Chefin Nahles kritisiert Bundesregierung scharf: 5,2 Milliarden Euro-Rückforderung
+-  Ўзэкспомарказда Республика тармоқлараро саноат ярмаркаси бўлиб ўтди.
+-  Christmas getaway journeys ruined as French strike stops cross-Channel trains
+-  Қозоғистон Хитойга янги темир йўл қурилишини бошлади.
+-  İngiltere'de 50 Pound ile Markete Girdi, Almadığı Kalmadı!
+-  थोड़ा कर लो इंतजार! सस्ते के चक्कर में अभी मत खरीदो कार, जल्द आएंगी ये नई गाड़ियां
+-  ¿Maturín se quedó sin gasolina?
+-  “Arrestin do e kryejë në shtëpi apo në seli?”, Berisha reagon sërish nga selia e PD
+-  Byli szefowie TAI wezwali pracowników do "trybu gotowości". Twierdzą, że nikt nie został zwolniony
+-  भारत में प्रेस एवं पत्र-पत्रिका पंजीकरण अधिनियम 2023 लागू, विधेयक डाउनलोड करें- Hindi News
+-  Milyonlarca emekliyi ilgilendiren gelişme. Emekli maaşınız düşük mü? Aradaki fark hesaplanıp geri ödenecek!
+-  Ramštajn u prazničnom duhu: Bend šalje poseban poziv fanovima u Srbiji!
+-  New Video: Stefflon Don feat. Victony — Deadly
+-  Si do të jetë Super League: 64 skuadra e tre liga me promocione e rënie dhe transmetim falas
+-  Are diamonds GaN's best friend? Revolutionizing transistor technology
+-  Julsmällen: Granarna nära ta slut
+-  Julsmällen: Granarna nära ta slut
+-  A new map shows all above-ground biomass in the Brazilian Amazon
+-  Offiziell: 1. FC Köln und Trainer Steffen Baumgart trennen sich
+-  3 soldiers killed, 3 injured in encounter in J&K’s Poonch
+-  Altınordu'nun genç oyuncusu ameliyat oldu
+-  Deepika Padukone becomes the brand ambassador of Bisleri
+-  Felipe Melo dá forte resposta a jornal que chamou Flu de 'time de aposentados', cita Endrick e detona: 'Dar voz a idiotas'
+-  Kartik Aaryan becomes brand ambassador for football on Sony Sports Network
+-  Diniz vê City 'melhor do mundo' e revela qual será postura do Flu na final
+-  Harbolnas 2023 Mencatat Angka Transaksi Rp 25,7 Triliun Lebih, Didominasi Produk Lokal
+-  Everything we know about Alex Batty’s disappearance and how he was found
+-  NUC okays take off of Niger University of Education
+-  Путин: Русија не се затвора кон Америка и Европа и време е тие да престанат да се глупираат
+-  Erste Bewohner in Notunterkunft in Karlstadter Ammann-Halle einquartiert
+-  Tesla rutscht von Straße und landet in Wertheimer Garten
+-  Ladendieb fährt betrunken zur neuen Tat
+-  شاهد رجل الأعمال مساعد بن سيار يعرض وثائق تاريخية نادرة للملك عبدالعزيز وشقيقته الأميرة منيرة
