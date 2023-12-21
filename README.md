@@ -1,51 +1,51 @@
 # Latest News
--  Lauri Markkasen ex-joukkuekaveri tunnusti karmean teon - murhasi seksityöntekijän
--  Voor Henri Behr is celstraf Bouterse een triomf voor vermoorde broer: ‘Nu werken aan beschaafd Suriname’
--  Gazipaşa’da icradan satılık arsa
--  El show de Pedro y Alberto
--  Türkiye'nin en uzun gecesi Sinop'ta yaşanacak
--  1975'te idam cezası müebbete çevrilen mahkumun 50 yıl sonra suçsuz olduğu anlaşıldı
--  ABD, Güney Kore ve Japonya ortak bildiriyle Kuzey Kore'nin füze fırlatmasını kınadı
--  Özel ile İmamoğlu arasında İzmir ve İstanbul için aday gerilimi! Dikkat çeken "Muharrem İnce" detayı
--  İstanbul'da FETÖ operasyonu: 13 gözaltı
--  Adana Büyükşehir Belediyesindeki rüşvet operasyonunda yeni gelişme
--  Beşiktaş-Alanyaspor maçının dikkat çeken istatistikleri
--  Bodrum açıkların 89 düzensiz göçmen yakalandı
--  İki parti arasındaki kavga büyüyor! İYİ Parti'den İmamoğlu'na "fırıldak" çıkışı
--  Avustralya, Husilere karşı oluşturulan ABD öncülüğündeki misyonuna asker yolluyor
--  한국에너지전환사업단(유), 경인항 인천터미널 주차장 태양광발전시설 완공
--  Legionowo. Zima w mieście. Dzieciakami znów zajmą się legionowskie Poczytalnia, MOK, Arena, Muzeum Historyczne i Wodne Piaski
--  央視：黑龍江雞西煤礦事故致最少12死13傷
--  동아제약, 박상현 프로와 아름다운 동행 이어간다
--  "방산업계 최초" KAI, 정보보안경영시스템 국제 표준인증 획득
--  신한금융그룹, 행안부와 지역경제 활성화 업무협약 체결
--  넷마블, 주요 게임 11종 크리스마스시즌 기념 다양한 이벤트
--  넷마블 '신의 탑: 새로운 세계', 맘스터치와 콜라보 이벤트
--  동원홈푸드, 발달장애 화가 전시회 ‘함께 하는 삶 展’ 후원
--  넥슨, ‘카트라이더 러쉬플러스’ 시즌 23 ‘어비스’ 업데이트
--  IDEALNA TAKTIKA DONALDA TRAMPA? PRED IZBORE STVARA HAOS KAKAV ŽELI! "On se ovim hrani kao što se vatra hrani kiseonikom"
--  에스넷그룹, 한국IT복지진흥원 ‘사랑의 PC 보내기’ 운동 동참
--  KOSA “SW기술자 평균 임금 전년비 8.25% 증가”
--  과기정통부, ‘제4회 인공지능 데이터 활용협의회’ 개최
--  맨텍솔루션 아코디언, K-PaaS 적합성 시험 어드밴스드 인증 획득
--  KT넥스알, 올해 성과 공유 및 내년도 성장전략 발표
--  네이버, AI 스타트업 발굴 위해 공모전 개최
--  크레더, 실물 예치 기반 금 코인 발행
--  트레드링스, 예맨 반군 홍해 선박 위협에 솔루션 긴급 무료 지원
--  인스웨이브시스템즈, 신한은행 전자서식 시스템에 ‘PDF스퀘어’ 공급
--  Politie treft bij minderjarige verdachte honderden nitraten aan in woning in Sliedrecht
--  Gunadarma Bangun Kampus di IKN, Ini Kata Jokowi
--  코오롱베니트, SK증권 ‘데이터 플랫폼 고도화 사업’ 완료
--  Aquaman 2 advance booking: Jason Momoa's movie expected to earn ₹2 crore on Day 1
--  台灣海虎潛艦重大意外 6官兵落水3人失蹤
--  Jorge Giménez Bech: “Coz de caballo”
--  2023อีกปีทองกอล์ฟหญิงไทย สู่ความเร้าใจในศึก ‘ฮอนด้า LPGA ไทยแลนด์ 2024’
--  Bonbons au THC: un groupe d'amis hospitalisés à Paris après en avoir mangé
--  За два місяці - мінус 60 тисяч росіян: оглядач вказав на важливу особливість наступальної тактики РФ
--  Andrzej Duda o zmianach w TVP: Doszło do złamania konstytucji. To jest anarchia
--  Lemondó miniszterek, érettségi bojkott, Corvinus-botrány - ezek voltak 2023 februárjának legfontosabb történései
--  [마감시황] 글로벌 증시 동조화…코스피 14.28p·코스닥 3.54p↓
--  정비사업 규제 완화 띄운 尹…전문가 "사업 활성화에 긍정적"
--  안산시, 중소기업 제조혁신 종합지원 거점 '디지털전환허브' 개관
--  화성시인재육성재단 동탄목동이음터, '어울림종합사회복지관' 방한물품 65개 기부
--  정선군, 2024년 군정 주요업무 보고회 개최
+-  نيمار يمنع مبابي من الانضمام إلى ريال مدريد
+-  ماذا تفعل الآن لتحمي الذاكرة مستقبلاً؟
+-  شركة شحن نرويجية تعلن تعليق عمليات النقل عبر البحر الأحمر
+-  الأردنيون على موعد مع منخفض جوي وأجواء باردة
+-  “연말연시 통신장애 없도록”…이동통신업계, 품질 집중 관리 시작
+-  [오피셜] "대구는 나의 집"...'원클럽맨' 최영은, 대구와 2년 재계약 체결
+-  K-드라마 연말정산…'KBS 연기대상', 티저 영상 공개
+-  물고, 꼬집고…동생 괴롭히는 금쪽이, 오은영의 해법은? [금쪽같은 내새끼]
+-  '노량: 죽음의 바다' 김윤석→공명, 관객 향한 뜨거운 ♥…게릴라 무대인사 출격
+-  최강창민 "예명 여전히 창피하지만…그걸로 돈 많이 벌었다" [마데핫리뷰]
+-  Horský priechod Donovaly je uzavretý pre autá s dĺžkou nad desať metrov
+-  Požiar ohrozuje predmestie miliónového austrálskeho mesta
+-  KT, 익산 '사랑의 선물 꾸러미' 후원 행사 진행…생필품 및 야구용품 기탁
+-  Nočné šialenstvo v parlamente: Opozícia rokovala celú noc, Grendel čítal pozmeňovák takmer 7 hodín!
+-  EASYJET : JP Morgan is neutraal gestemd over het aandeel
+-  Kuyumcular yeni madeni 5 lirayı değerlendirdi
+-  Kan donduran cinayet: Babasını öldürüp sobada yaktı!
+-  AYM, istinafa başvuru için 5 bin lira alt sınırını iptal etti
+-  عشرات الشهداء في غارات إسرائيلية على خان يونس
+-  Ulen shifrat e emigrantëve të paligjshëm që kalojnë me varka drejt ‘tokës së ëndrrave’
+-  Pengamat Sebut Golput Berdampak Besar pada Pembangunan Bangsa
+-  “사람을 바꾸면 제주가 바뀐다”
+-  작년 제주 가족친화인증기업 103개소 ‘껑충’
+-  Opportunity to replace, redraft colonial criminal laws "wasted": Chidambaram
+-  नियमनभन्दा सहजीकरण गर्न संघको सुझाव
+-  New CA law requires gender-neutral toy sections at large retail stores
+-  進度成謎！傳上海微電子成功開發 28 奈米曝光機，不久原出處遭刪
+-  Aktien Asien/Pazifik: Überwiegend Verluste nach Gewinnmitnahmen an den US-Börsen
+-  Meeting postcolonial au Musée national de l'immigration
+-  Jean-Christophe Kerdelhué, le Elon Musk des champs ?
+-  Guerre Israël-Hamas : Netanyahou ne veut pas d'un cessez-le-feu avant « l'élimination » du groupe terroriste palestinien
+-  Trafic de drogue et violences : la criminalité en hausse de 57 %, un niveau record
+-  [Melun] Loi immigration : la grande comédie antifasciste est de retour
+-  Présidentielle américaine 2024 : Donald Trump disqualifié par la Cour suprême du Colorado
+-  Macron en Jordanie, Meloni… Les 4 infos dont vous allez entendre parler demain
+-  Immigration, fin de vie, Israël-Hamas… ce qu'il faut retenir de l'interview d'Emmanuel Macron
+-  « Sans les voix du RN » : mauvais calculs, mauvaise foi et ostracisme parlementaire
+-  La chanteuse Vitaa victime d'un home-jacking en présence de sa famille
+-  Affaire Depardieu : un chroniqueur de TPMP prend la défense de l'acteur et exprime « de gros doutes sur le montage du Complément d'Enquête »
+-  Paul-Henri Mathieu, capitaine des Bleus : « On a un réservoir très intéressant de joueurs »
+-  How Russia's invasion of Ukraine and the green transition have shaped EU energy policy
+-  الجيش الإسرائيلي: استهدفنا نحو 230 موقعا لحماس في قطاع غزة خلال الساعات الـ24 الأخيرة
+-  Geneviève O'Gleman, bien investir pour mieux savourer la vie
+-  구리시, 2023년 재정분석 평가 우수 지자체 선정
+-  구리시, 광개토부대 국군장병 위문 격려
+-  구리시, 서민경제 안정과 지역경제 활성화 모두 잡는다
+-  남양주시, ‘제3회 주거복지대상’ 최우수 지자체로 뽑혀
+-  주광덕 남양주시장, 별내선 개통 앞두고 현장점검
+-  남양주시, 해넘이‧해맞이 명소 안전관리 강화
+-  남양주시, 2023년 장애인차별금지 및 인권보장위원회 정기회의 개최
