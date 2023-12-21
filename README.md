@@ -1,11 +1,51 @@
 # Latest News
--  傳字節跳動今年營業額逾 1,100 億美元，有望超越騰訊
--  GAA 才剛量產，英特爾、三星、台積電開始展示下一代 CFET 架構
--  US House Committee Sends Harvard A Letter Demanding Documents in Plagiarism 'Investigation'
--  Kiderült, mennyi pénzért „hajolnak le” a telekocsisok
--  Mercato - PSG : Neymar va plomber la carrière de Mbappé ?
--  Экс-главу ЦБ Латвии приговорили к шести годам колонии за рыбалку
--  Gelorakan Pemilu Damai, Ditpamobvit Polda Riau 'NGOPI' Bareng ASN
--  Τέλη κυκλοφορίας: Έως πότε έχετε προθεσμία για την πληρωμή - Τι θα γίνει με την παράταση
--  [21일 인천 강화군] 고향사랑기부제 목표액 초과 등
--  Mackenzie Arnold AKA Australia’s Minister Of Defence Has Returned To Surprise Fans This Xmas
+-  지드래곤, 마약 퇴치 재단 설립계획 밝혀… "행동해야 한다고 생각"
+-  [속보] 한동훈 '별의순간 되나'...국힘 비대위원장직 수락
+-  대법 "일본기업, 강제동원 피해자들에게 배상하라”
+-  내년 22대 총선 정부여당 지원 43% · 견제 45% ‘팽팽’[NBS]
+-  Lübnan'dan İsrail'e uyarı! "Topraklarımızdan derhal çekilmeli"
+-  Día del Gemelo: por qué se celebra cada 21 de diciembre en Argentina
+-  Así va el mercado de fichajes de Atlético Nacional: altas, salidas y próximos movimientos
+-  صفقة تبادل سجناء بين أمريكا وفنزويلا بوساطة قطرية
+-  Top Hamas leader in Cairo for talks on war in Gaza
+-  Australia, New Zealand leaders seek to fortify defence ties
+-  Japan court orders Okinawa to build runways for US Marines
+-  Donald Trump banned from Colorado ballot
+-  Will look into it: PM Modi on US charges over foiled plot
+-  Nuno is Nottingham Forest’s new manager
+-  Suspended MPs to hold protest at Jantar Mantar
+-  ¿Cambiar las universidades por los carros?, Petro responde a trino de Galán
+-  Woman jailed for rape of girl, 14, with boyfriend
+-  Boston College counting on quality over quantity with 2023 recruiting class
+-  桜島で初冠雪を観測
+-  미플게임즈, 21일 무역 어드벤처 MMORPG 신작 ‘대항해일지’ 공식 출항
+-  국토부, ‘UAM 인증기준 안내서’ 마련…UAM 조기 상용화 지원
+-  미국채 30년물 사흘만에 4% 위협...증시 밀리자 반사이익도
+-  एनसेलमा दुध–पानी
+-  Woman jailed for rape of girl, 14, with boyfriend
+-  “숏패딩 만으로는 안돼” 한파에 잘 팔리는 패션 아이템은
+-  SsangYong is now KGM in the UK, so is Australia next?
+-  포스코DX, 5거래일만에 상승세…14% 급등 [특징주]
+-  Suspects indicted in shooting that killed pregnant woman’s baby in Holyoke
+-  Bisa Buka Rekening BRI di Luar Negeri, Ikuti Cara Ini
+-  ‘SOL 종합채권(AA-이상) 액티브’ 연초이후 성과 1위
+-  ＡＩ事業者指針、３月公表へ
+-  Ulduz futbolçunun evi yarıldı
+-  “사람도 외로운데…” ‘개는 솔로 – 반려견 소개팅’ 주목
+-  장예찬 "한동훈, 과감하게 혁신하고 개혁할 수 있는 적임자"
+-  가상자산 회계·공시 강화…‘백서’ 의무 다해야 수익 인식 가능
+-  세훈, 오늘(21일) 엑소 마지막 입대…2025년 완전체 기대 [MD이슈]
+-  지드래곤 측 "악플·허위사실, 일주일 시간 준다…이후엔 무관용 원칙"
+-  한·일 여자농구 라이징스타, WKBL 올스타 페스티벌에서 맞대결
+-  日本企業に再び賠償命令
+-  ‘더핑크퐁컴퍼니’ 상장 소식에 대주주 삼성출판사 상한가
+-  Académico del Centro de Estudios Latinoamericanos de Georgetown analiza los liderazgos de la región
+-  [뉴스3끼]‘문화도시’ 정책 개편에 예산 26억 원 날아갈 판
+-  هل يفوت الهلال تلك الفرصة في سوق الانتقالات؟
+-  Tehdään selkoa! Anne Leinonen toivoo selkokirjallisuuden kehittyvän ja nuortenkirjojen aiheiden monipuolistuvan
+-  Líderes del Socialismo Democrático aseguran estar abiertos a respaldar nueva candidatura de Michelle Bachelet
+-  Airlines cop heavy flak as number of late flights soars
+-  Cold wave grips Odisha, 14 cities record temperature below 10 degree Celsius
+-  Nahiem Alleyne does it all as St. John’s rolls by Xavier in impressive Big East opener
+-  Cacerolazos en Buenos Aires en rechazo al decreto de Milei
+-  New Jersey 13-car pileup leads to injuries, jackknifed tractor trailer leaking fuel
