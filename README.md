@@ -1,51 +1,51 @@
 # Latest News
--  How Prague bloodbath unfolded: Lone gunman armed with a sniper rifle killed his father then picked people off from roof top during hour-long rampage that ended when elite cops stormed university and found student dead
--  37 امرأة أجنبية يشهرن إسلامهن في الخرج بعد محاضرات دعوية
--  النفط يهبط بعد إعلان أنغولا الانسحاب من "أوبك".. و"برنت" عند 79 دولارا للبرميل
--  Bekerblamage Ajax tegen amateurs Hercules gaat de wereld over: ‘Echt beseffen doe ik het nog niet’
--  Bekerblamage Ajax tegen amateurs Hercules gaat de wereld over: ‘Echt beseffen doe ik het nog niet’
--  Travis Kelce did NOT give Taylor Swift her enormous opal birthday ring as mystery behind opulent jewel is FINALLY revealed
--  You can test Starfield updates before they roll out to everyone – here’s how
--  Sahadan çekilen İstanbulspor için istenen ceza belli oldu
--  Honda recalls 2.5 MILLION vehicles over fuel pump fault that officials warn can cause cars to crash - is YOUR model affected?
--  Honda recalls 2.5 MILLION vehicles over fuel pump fault that officials warn can cause cars to crash - is YOUR model affected?
--  El primer mensaje de la Iglesia a Javier Milei tras el DNU
--  Birleşmiş Milletler'den Kritik Uyarı: Kıtlık Riski Kapıda!
--  Teenage darts sensation Luke Littler continues his fairytale run at PDC World Championships... and 16-year-old vows to celebrate second-round victory with a kebab
--  Pour NoÃ«l, Geekbuying sacrifie le prix de ce superbe laptop gaming Ã double Ã©cran !
--  Microsoft abandonne Windows Mixed Reality alors qu'Apple se lance dans la réalité mixte
--  Un voleur d'iPhone révèle comment il a ruiné des centaines de victimes
--  Samsung Galaxy S24 UItra : une fuite massive dÃ©voile presque tout
--  Verkoop beeldbepalende Kropholler-panden baart toch ook zorgen: ‘Liever geen automatenhal’
--  FTC proposes strengthening children's online privacy rules to address tracking, push notifications
--  Warner Bros. Discovery merging with Paramount? Some analysts say it would look 'desperate'
--  Toyota and Lexus recall: Airbag defect impacts 1 million vehicles
--  FTC proposes strengthening children's online privacy rules to address tracking, push notifications
--  How Ukraine's research community has been decimated by war with Russia
--  Toyota and Lexus recall: Airbag defect impacts 1 million vehicles
--  The 25 best new apps of 2023
--  How Ukraine's research community has been decimated by war with Russia
--  The 25 best new apps of 2023
--  Warner Bros. Discovery merging with Paramount? Some analysts say it would look 'desperate'
--  Βαθμολογία Euroleague: Ακάθεκτη η Ρεάλ Μαδρίτης – Ήττες για Μακάμπι Τελ Αβίβ και Βίρτους Μπολόνια
--  How to spot a deep fake
--  Musk's X goes down globally
--  Moment home collapses in bushfire
--  Meghan Markle shared awkward moment with the Royal Family which they found 'jarring'
--  BBC Bargain Hunt's Charles Hanson breaks silence on police charges after 'domestic incident'
--  ALISON BOSHOFF: Critics may not love Kenneth Branagh's portrayal of Hercule Poirot - but Agatha Christie's family say he's perfect
--  Khloe Kardashian shocks fans as she shows off a major change to her appearance
--  Helen Flanagan hints at single status following David Haye throuple rumours
--  Ashley Cain hits back after ex Safiyaa reveals emotional details about their split
--  Tom Skinner reveals why 'a deal couldn't be done' to appear on ITV I'm A Celebrity this year
--  Bargain Hunt's Charles Hanson won't be appearing on BBC in 'imminent future' after assault charge
--  Katie Piper making 'the best of life' after painful surgery to avoid losing eye
--  Love Island's Davide takes huge step with Ekin-Su as they prepare for special year ahead together
--  Jamie Oliver's Christmas soup recipe is brimming with flavour - with an unusual twist
--  ITV Love Island star Davide shares milestone in relationship with Ekin-Su after rekindling romance
--  Claudia Winkleman looks completely unrecognisable in throwback snap with no fringe and blonde hair
--  Helen Flanagan shares struggle with daughter after being told she hated her over cupcake blunder
--  BBC Motherland cast now - Hollywood fame, childfree vow and husband's shock death
--  Molly-Mae Hague brutally slammed for sporting controversial Christmas jacket in striking snap
--  EL RAP CELEBRA SU 30 ANIVERSARIO AL SERVICIO DE LA SOCIEDAD HONDUREÑA
--  Izbori su dogovoreni, shodno tome i namešteni i nepošteni: Lični stav Miroslava Parovića
+-  “No ha habido ningún caso complicado”: en Mazatlán aumentan consultas por enfermedades respiratorias
+-  ¡Ya casi! El aguinaldo ya está en las arcas de la UAS, en breve se reflejará en cuentas bancarias
+-  استشهاد مدير شرطة مركز خانيونس وإصابة مدير صحة غزة
+-  Derek Hough verrät: So geht es seiner Frau nach Schädel-OP!
+-  ¡Buenas noticias! “Queremos ayudarle”: Bienestar Sinaloa apoyará a don Ramiro, hombre sin hogar
+-  Localiza Sedena megalaboratorio clandestino para la elaboración de drogas sintéticas en Sonora
+-  Två styrelseledamöter lämnar Oscar Properties
+-  Do Kijowa przybył nowy ambasador RP Jarosław Guzy
+-  NaaS Technology Inc. Announces Amendment of Share Incentive Plan
+-  El Real Madrid desintegra al Partizán con un Musa descomunal
+-  Por qué llueve tanto en Bogotá a pesar de ser diciembre
+-  'Dukes Of Hazzards' Star Suggests Biden Be Executed In Now-Deleted Tweet
+-  #android phones may finally be getting a battery health indicator
+-  Cali Approved Sewage Waste To Be Converted To Drinking Water, But Should Black Folk be Wary?
+-  ANĐELO ODUVAO ANITU Javno priznao da ne želi vezu sa njom, pa je ponizio pred svima
+-  Zelena zima ...
+-  Here’s Who Actually Gave Taylor Swift That Sparkling Ring for Her Birthday
+-  Sales of some Apple Watch models to be halted in U.S. amid patent dispute
+-  Karmea takaisku - SM-liigatähden käsi murtui
+-  Nuorten Leijonien MM-kenraali meni nappiin - yksi asia lupaa todella hyvää
+-  Morning Headlines
+-  Türkiye'nin BM Daimi Temsilcisi: PKK/YPG'nin sinsi planlarını gerçekleştirmesine izin vermeyeceğiz
+-  Trabzonspor'dan Avrupa Süper Ligi açıklaması!
+-  Dışişlerinden Çekya'daki silahlı saldırı için başsağlığı mesajı
+-  Lider Girona'ya Real Betis engeli!
+-  Emre Belözoğlu: Beraberlik için üzgünüm
+-  Antalya-Konya kara yoluna kar engeli: Tır geçişine kapatıldı
+-  Beşiktaş'ta hareketli saatler! Yönetim, Nevzat Demir Tesisleri'ne gidiyor
+-  Sultangazi'de otomatik silahlı saldırı: 1 kişi öldü
+-  Uhapšen kradljivac bagera: Iz Lučana ga prevezao u Suboticu
+-  Pokemon Scarlet & Violet DLC: How to open secret room in Area Zero
+-  ספרופולוס: "המפגש היה מיוחד ומוזר בשבילי. הקרדיט לתיאודוסיץ'"
+-  Kartal’da elektronik atık ve atık pil toplayan site, muhtarlık ve okullar kazanıyor
+-  Sergio González: "Es un punto de mucho valor"
+-  Wall Street podniosła się po środowej przecenie
+-  Natal sem Fome distribui 2 mil toneladas de alimentos em todo o país
+-  Sharks’ center had procedure done to fix year-long issue
+-  نقابة الصحفيين الفلسطينيين: استشهاد 83 صحفيا خلال عدوان الاحتلال المتواصل على غزة
+-  '가오갤 그루트' 빈 디젤, 성폭행 혐의로 피소…충격 [해외이슈]
+-  배용준♥박수진→송중기 선택한 하와이…한달 살기 좋은 나라 TOP3 이유는? [세모집]
+-  비비지 엄지, 개미허리라 가능한 의상…이렇게 말랐다고? [MD★스타]
+-  조현아 "연예인과 나이트클럽서 즉석만남 했다" 폭탄발언 [힛트쏭]
+-  "안 될 거 없잖아?"…멜빈 감독이 콕 집었다! "이정후는 리드오프"
+-  Hombre sin vida es localizado en los juegos infantiles del Bosque de Chapultepec, CDMX
+-  وزيرة الثقافة تجدد الثقة في خالد عبد الجليل رئيساً للرقابة على المصنفات الفنية
+-  واشنطن بوست الأمريكية تكشف كذب روايات الاحتلال بشأن أنفاق مستشفى الشفاء بغزة
+-  خبير اقتصادي يكشف سبب توجه البنك المركزي لتثبيت سعر الفائدة
+-  أمين الفتوى بدار الافتاء يوضح دعاء تيسير الزواج
+-  9 مصابين إثر حادث تصادم في بني سويف
+-  كابوس المقاومة يُجبر "نخبة الاحتلال" على الانسحاب من غزة.. ماذا نعرف عن لواء جولاني؟
