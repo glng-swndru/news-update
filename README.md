@@ -1,51 +1,51 @@
 # Latest News
--  Avrupa Adalet Divanı'ndan "Süper Lig" kararı
--  [공식발표] 현대캐피탈, 최태웅 감독 전격 경질.... 진순기 수석코치가 잔여 시즌 팀 이끈다
--  Yunanistan, Refah Muhafızı Operasyonu'na katılması için Kızıldeniz'e fırkateyn gönderiyor
--  시크릿 송지은, 유튜버 박위와 열애 "제 삶 선물 같은 사람" [MD이슈] (전문)
--  “언론플레이 달인으로 통했다”는 한동훈, 비대위원장으로 오면…
--  Su App Store arriva “Grand Theft Auto III – Definitive Edition”
--  Apple er veldig nærme
--  300 करोड़ की मालिक है फेमस एक्टर की वाइफ, पति से कई अमीर, पसंद है सादगी
--  OFICJALNIE: Zapadł wyrok w sprawie Superligi. Porażka FIFA i UEFA
--  Romance publishers to launch string of ‘spicy’ books aimed at TikTok users
--  لجنة صون المها العربي تعقد اجتماعها السابع في أبوظبي
--  김기현 “한동훈 비대위원장 잘할 것…난 울산 발전에 전념”
--  여준성 등 ‘더 새로’ 포럼 인사, “윤석열 정부 맞서 검찰과 정치 모두 바꾸겠다”
--  정선군 HACCP인증 무료상담 서비스 큰 호응
--  강릉부시장에 양원모 재난안전실장 등 부단체장 9곳 내정, 국장급 승진 8명 발표
--  [속보] 한동훈 국힘 구원투수 "서민과 약자 편에 서고 싶었다"
--  동지(冬至) 아침 영하 20도 추위 '절정'…일부지역 30cm 눈소식
--  이인숙 태백시 세무과장 4급 서기관 승진
--  [영상] 북극발 '최강 한파', 평년 보다 일찍 얼어붙은 춘천 공지천
--  도소방본부 소방서장급 17명 정기인사 단행
--  Aj tento typ oblečenia podlieha módnym trendom: Táto farba je skokanom roka
--  Mrazivé VIDEO vydesilo ľudí: Vodič netuší, čo sa nachádza za ním! Keď to uvidíte, strasie vás
--  Dáte si Green Rachel alebo Sparkling Night? Namiešajte si šteklivé bublinky, ktoré vám spríjemnia nielen sviatky
--  Kuriózna situácia v Novej Dedinke: Cesta z ničoho nič skončila! Reakcie vodičov na seba nenechali dlho čakať
--  Prečo musia neziskové organizácie stále obhajovať svoje miesto v spoločnosti? Granty a dve percentá pomáhajú hlavne ľuďom v núdzi!
--  롯데정보통신, 내년 1월 美 CES 2024 참여…3년 연속
--  카카오뱅크, 고려대와 LLM 평가방법론 공동 연구
--  티맥스소프트, 워라벨 실천 기업문화로 연이은 수상
--  디베이스앤, ‘KODAF 2023’서 대상 2개 수상
--  신세계아이앤씨, 연말 맞이 임직원 참여 나눔 활동 진행
--  Zum Jahresabschluss: Sebastian Hoeneß wendet sich an VfB-Fans
--  POPULARNI LANAC MARKETA U NEMAČKOJ ZATVARA SVE FILIJALE! Kriza u zemlji gde živi 400.000 Srba: Ovo je kraj jedne ere!
--  Tür für Super League geöffnet: Kommt jetzt die Milliardenliga?“
--  Parliament security breach case | Delhi court extends police custody of 4 accused till Jan 5
--  जब मौत के मुंह से बचकर आए थे अमिताभ बच्चन, महिला ने दी बड़ी चेतावनी
--  Sigurnost na prvom mjestu uz Galaxy S23 seriju
--  Ökänd hackergrupp bakom angrepp mot kyrkan
--  한국환경체육청소년연맹-스포츠한국, 업무협약 체결
--  '괴물' 쿠로카와X히이라기 "한국서 30만 관람 놀라워…뜨거운 사랑 감사"(종합)[스한:현장]
--  라온피플, 스포츠 및 뷰티 인재양성 위해 서경대학교와 업무협약 체결
--  Fernando Tejero ya está en Córdoba para protagonizar "Camino al zoo"
--  Full list of major stations closed due to rail works this Christmas plunging Brits into getaway chaos
--  Ростехнадзор повторно приостановил добычу угля в шахте "Сибирская"
--  La Mamma : Cinquante ans après
--  ΗΠΑ: Αθωώθηκε έπειτα από 48 χρόνια στη φυλακή για φόνο που δεν διέπραξε
--  Η Γερμανία θα παράσχει ενεργειακή βοήθεια 88,5 εκατ. ευρώ στην Ουκρανία
--  Tradição de comprar bacalhau para a consoada ainda se mantém na Rua do Arsenal em Lisboa
--  Матвиенко заявила, что кабмин не намерен повышать налоговую нагрузку на бизнес
--  Zwist im indischen Parlament: Nach Rauchbomben-Attacke: Modi-Regierung suspendiert 141 Parlamentarier
--  Опрос: в кинопроизводстве хочет работать 40% заинтересованной в медиаотрасли молодежи
+-  Cycle of success as Reid rides into the history books
+-  More farmers willing to be bought out under new nitrogen scheme than expected
+-  Se vedi un'auto con le luci blu potrebbe non essere la Polizia
+-  عاجل.. خانوا الأمانة.. "النيابة" توقف 4 مواطنين بتهمة التصرف بأموال جمعية غير ربحية
+-  طريقة وشروط تأسيس الشركات المساهمة والمبسطة
+-  استشاري بالمؤتمر الطبي يُبشر مرضى الروماتيزم بأمر طال انتظاره (فيديو)
+-  Đedović Handanović: Srbija će se svrstati među najveće proizvođače bakra u Evropi i vodeće proizvođače zlata
+-  Flugvél TUI fær nafnið Reykjavík
+-  New Year’s Day public holiday confirmed for employees in the UAE
+-  Exploring ABCs Puppy Zs Goldendoodle Varieties: From Mini to Micro Teacup
+-  "Percy Jackson": Wie viele Folgen gibt es und wann ist das Finale?
+-  KT, '퓨처스 연고지' 익산서 사랑의 선물 꾸러미 후원 행사 개최... 취약계층에 2천만원 상당 생필품 후원
+-  Questa CPU 1-bit può fare solo 3 cose, ma è andata a ruba
+-  Akşener'den sonra Oktay Vural da İmamoğlu’nu hedef aldı
+-  Hesap 85 bin, bahşiş 175 bin TL: Rus milyarder Abramoviç garsonları sevindirdi
+-  Мъж е осъден на 6 години затвор за блудство с жена в Петрич
+-  Întâlniri între oficiali ucraineni și omologi polonezi pentru aplanarea tensiunilor de la frontieră
+-  Northern Gaza no longer has a functional hospital: WHO
+-  Backmischungen selbst machen: Süße Grüße als Geschenkidee
+-  Rekordfund der Droge Captagon in Deutschland sichergestellt
+-  &quot;OŽIVEO&quot; VOJVODINU, A SADA IDE U JAPAN Ranko Popović ima novi klub
+-  When is winter solstice in 2023? From date to Indian timings, know all about the shortest day of year
+-  Ikea Singapore to absorb increase in GST from Jan 1
+-  Man arraigned for allegedly killing father in Kwara
+-  Lewis Hamilton Receives Threat From Mercedes Teammate George Russell Ahead Of 2024 Campaign
+-  วิสามัญฆาตกรรม 2 ผู้ค้ายาเสพติด ชายแดนแม่อาย จ.เชียงใหม่
+-  ชายแทร่! เมื่อความเป็น "ชาย" กลายเป็นคำดูถูก
+-  Путин поручил провести осенний призыв 2024 года через единый реестр военнообязанных
+-  İstanbul'da son bir yılda trafik kazalarında 155 kişi hayatını kaybetti
+-  Berisha, në burg apo në shtëpi? SPAK do i drejtohet gjyqtares Irena Gjoka për ashpërsimin e masës
+-  Hamarosan búcsút kell intenünk a Google egyik népszerű szolgáltatásának
+-  Seçil Erzan davasında Emre Belözoğlu'ndan yeni açıklama: Fatih Terim bilerek bu işin içine girmez
+-  В «Реал Сосьедад» сообщили, что Захарян пропустит матч с «Кадисом»
+-  港股淡靜難捱 傳有券商去年獎金仍未發 業界嘆「全行都係保就業」耀才逆市有花紅
+-  Police nab five for illegal possession of firearm in Katsina
+-  MasterChef Australia's Khanh Ong shares his boozy recipe for Christmas ham - and you'll never guess the secret ingredient
+-  “부장님 제발 집 좀 가세요”…퇴근 못하는 남자들, 몇시간 일하나
+-  Σοκαρισμένοι οι γονείς και οι δάσκαλοι του 8χρονου - «Στο σχολείο είχαμε αραιά κρούσματα στρεπτόκοκκου» λέει ο διευθυντής
+-  क्या केंद्र की कठपुतली बन जाएगा चुनाव आयोग! कौन सा बिल मोदी सरकार ने लोकसभा से भी करा लिया पास
+-  한국투자금융지주 정기 임원인사 ··· 윤형준 부사장 승진
+-  To brande på samme nat ved Dronninglund var ikke påsatte
+-  Kalle Rovanperän kartanlukija haluaa hurjiakin muutoksia - näin ei voi jatkua
+-  JK Nyatakan Mendukung Paslon Nomor Urut 1 Anies-Muhaimin, Diyakini Dongkrak Suara di Sulsel
+-  UP के लिए लगातार उपयोगी सिद्ध हो रहे Yogi, Prabhasakshi की 22वीं वर्षगाँठ पर मिला सर्वश्रेष्ठ राज्य सरकार का पुरस्कार
+-  Yahudi gazetecinin gözünü kan bürüdü! Meslektaşını böyle hedef gösterdi
+-  La Corée du Nord promet une riposte atomique si elle est « provoquée » par des armes nucléaires
+-  Popisano više od 588 hiljada građana
+-  Orbán Viktor: Ha valakivel vitánk van, azt velük intézzük el
+-  दिल्ली के कनॉट प्लेस की गोपालदास बिल्डिंग में आगः धू-धू कर जले 9, 10, 11 फ्लोर, जानें हुआ क्या
+-  Opinion: तुम्हारी गोलियां खत्म हो जाएंगी, मैं जिंदा रहूंगा… ओवैसी जी! आपकी अमरता का राज क्या है?
