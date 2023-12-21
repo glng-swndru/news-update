@@ -1,51 +1,51 @@
 # Latest News
--  2024년 농식품부 예산안 첫 18조 돌파…직불금 3.1조 확대
--  서울 아파트값, 낙폭 키우며 3주째 하락
--  농협은행 안산시지부-군자농협 김장김치·유자청 나눔 실천
--  Experiment met nieuw QR-politielint in Molenlanden, Gorinchem en Hardinxveld-Giessendam
--  Lekkage van ammoniak bij zuivelfabriek De Graafstroom in Bleskensgraaf
--  기미·잡티 등 색소성 피부질환, 원인에 맞춘 시술로 개선해야
--  “Il n’y a pas assez de drogue au monde pour que j’y revienne” : George Clooney regrette amèrement ce rôle pourtant culte
--  Perdana, Petinju Muslimah Berjilbab Ini Wakili Australia di Olimpiade
--  Vogntog kjørte med knust frontrute - ble stoppet i Vågsbotn
--  Макрон: Борбата против терористите не значи уништување на Појасот Газа
--  ‘ทรูวิชั่นส์’ ชวนร่วมตัดสินใจเลือกระหว่าง ‘ความถูกต้อง’ และ ‘ความรัก’
--  Ikuti Pelatihan Internasional, Bea Cukai Perkuat UMKM Go Global
--  Hizballáh reagoval na útok Izraela ostreľovaním mesta Kirjat Šmona kaťušami
--  '나는 솔로' 16기 영숙 "진실 밝히려 준비했지만 고소 관련 연락 없어"
--  Parfumdiebstahl endet mit sechs Monaten Haft ohne Bewährung
--  Mitchell Robinson, opéré à la cheville, sera absent pour le reste de la saison…
--  Nagyobbacska téli frissítést kapott a Dying Light 2
--  Trayce Jackson-Davis, l’invité surprise des Warriors ?
--  메가존클라우드, 인포블록스와 MOU 체결
--  Badminton, Beninati “Tesserati in crescita, anno positivo”
--  Udtrækningsmeddelelse (CK95) - Nykredit Realkredit A/S
--  ចិន​ត្រៀមខ្លួន​ជា​ស្រេច ដើម្បី​ពង្រីក​កិច្ច​សហប្រតិ​បត្តិ​ការ​ថាមពល​ជាមួយនឹង​រុ​ស្ស៊ី
--  Kylian Mbappe na rođendan zaigrao s bratom koji je debitirao za PSG
--  Sabahın havası açıqlandı
--  Iva je osvojila Brunu ispred kamera, a zajedno imaju dijete: 'Naš susret je bio sudbonosan!'
--  Haaland acusado de ignorar filhos de craques do Fluminense
--  연소득 7000만원 근로자도 자녀 장려금 받는다
--  656조6천억 내년도 예산안 국회 본회의 통과
--  정선아리랑문화재단 대한민국 한류대상 수상
--  Ternana, verso il ‘mini’ esodo di tifosi al Tardini. ‘Nodo’ Liberati: anticipati i termini per l’iscrizione al campionato
--  האתר הקולינרי 'כרמלה' מרחיב את ההיצע לקראת ימי החורף הקרים
--  انتخابات 2024 / پشتونخوا میپ کے امیدوار
--  עם החברה הצעירה והופעה של זמר ישראלי: חגיגות יום ההולדת של בראד פיט
--  האופרה "תיאודור" תצולם ותופץ בבתי הקולנוע בישראל ובעולם
--  ג'ניפר לופז על מערכת היחסים עם בן אפלק: "יש לנו פוסט טראומה"
--  Espanha: 576 pessoas pediram eutanásia em 2022, quase 300 conseguiram
--  Roberto scores twice to help Barcelona avoid Almeria scare in La Liga
--  Lille dansk aktie i markant fald efter ny melding
--  Lille dansk aktie i markant fald efter ny melding
--  Wife donates kidneys to his brother, husband gives triple talaq in Uttar Pradesh
--  چودھری پرویز الٰہی نے انتخابات میں شیخ رشید کی حمایت کا اعلان کردیا
--  Клуни: Нема таква дрога што ќе ме натера повторно да го глумам Бетмен
--  Entendimento entre IL e PSD? Só com Chega fora da equação
--  Izračunali su koliko Kevinova obitelj iz 'Sam u kući' ima love: Letjeli u Pariz, peglali karticu...
--  Turun yleiskaava kesti hallinto-oikeudessa – viisi valitusta veti vesiperän
--  Аэропорт Баку предлагает широкий выбор направлений для путешествий зимой
--  Krapović: Na Sinjajevini 99% neće biti vojnog poligona
--  Social Scene Costa del Sol 21 – 27 December 2023 Issue 2007
--  Честитка од претседателот Пендаровски по повод 21 декември – Денот на наставата на турски јазик
--  जुवातास खेलिरहेको अवस्थामा १० जना पक्राउ
+-  Meteorológovia varujú: Na väčšine Slovenska sa môže tvoriť poľadovica
+-  V Bratislave vystavia jedinečný model Lego Lamborghini Sian v životnej veľkosti: Zostavili ho z viac ako 400-tisíc dielikov
+-  First AI streamers livestream in Vietnam, sets sales record with thousands of orders
+-  디스이즈, ‘제5차 넥스트 유니콘’ 최종 3개 기업 선정
+-  Zillennials in the mil-liminal space: who are the contemporary ‘microgenerations’ in the misty marshland between established epochs?
+-  Renversement du bus du MC El-Bayadh, 2 décès : condoléances de Tebboune
+-  Sejm wznowił obrady; przeprowadzi pierwsze czytanie ustawy budżetowej na 2024 r.
+-  אגם גולדשטיין על רגעי החטיפה: "אמרתי לאמא - 'הולכים לאנוס אותי'"
+-  Президент Ирана провел телефонный разговор с Николом Пашиняном
+-  Citypress | Bester and Meyiwa: 2023's two biggest courtroom dramas
+-  India Confronts New Covid Challenge: The JN.1 Variant
+-  مذكرة تفاهم لإدارة وتشغيل الاسواق الحرة بمطار الملك عبدالعزيز الدولي في جدة
+-  مجمع اللغة العربية يكرم السلمان من جامعة البترا بجائزة أفضل كتاب مؤلف
+-  ما أسباب الدوّار وطرق علاجه؟
+-  ماكرون يزور الأردن ويلتقي الملك
+-  View: Dyche to axe two Englishmen, fringe player to start - Everton predicted XI v Tottenham
+-  대주주 양도세 완화 후폭풍…野 “시행령 통치” 강력 반발
+-  [대구24시] “이젠 투어도 MBTI 취향으로”…‘My Best Tour Is 중구’ 23일 개최
+-  [진주24시] 진주시, 고속도로 휴게소에 특산물 홍보관 조성
+-  “전두환 유해 고향에 안장해야” vs “어처구니 없다”
+-  Police probe disgraced jockey Danny Nikolic after confrontation on busy road
+-  [전북교육24시] 전북교육청, ‘전북직업교육센터’ 설립 추진
+-  Mercedes-Motoren zukünftig von Deutz - was steckt dahinter? #deutzag #mercedes-benz
+-  Houthi attacks on Red Sea likely won’t end anytime soon
+-  I tried Dunnes Stores’ new Skims dupes from €7 – and they make the perfect last minute gift
+-  Assassinat du gérant d’une station-service à Touba : l’enquête accable deux pompistes de garde
+-  尹대통령, 한동훈 법무 장관 면직안 재가
+-  ‘한동훈 비대위’ 연내 출범... 與, 26일 전국위 의결 거쳐 공식 임명
+-  Rauch ruft rund um Weihnachten zu Vorsicht wegen Corona auf
+-  قلق إسرائيلي كبير: هذا ما يخفيه حزب الله تحت الأرض
+-  लखनऊ में बीच सड़क पर महिला डॉक्टर के साथ छेड़छाड़, विरोध करने पर पति को पीटा
+-  Police probing perfume subscription service I’vre after complaints of wrong charges, unfulfilled orders
+-  Fransa'da "Karagöz ile Hacivat ve Nasrettin Hoca" etkinlikleri düzenlendi
+-  ডিএনএ পরীক্ষায় জানা গেল সেই নারী পেলের সন্তান নন
+-  Asgari ücretle neler değişecek? İşsizlik maaşı, kıdem tazminatı, 65 yaş aylığı, GSS borcu...
+-  Mujeres de Leioa deportistas nutren el calendario local
+-  При ударах Израиля на юге Газы погибли более 50 человек
+-  Kenya’s Catholic Bishops Seek Clarification On Same-Sex Blessings By The Pope
+-  Elon Musk păstrează tăcerea după ce „X”, platforma social media pe care o deține, a căzut joi în întreaga lume
+-  8.000 estudiantes de toda España participan en un concurso on line realizado desde Baza
+-  Colt CZ: Vláda schválila koncepci armády do roku 2035
+-  "عاجلا أم آجلا... ستجبر إسرائيل "حزب الله" على القتال بجدية
+-  Loi immigration: Chenu juge qu'"il faudra réformer la Constitution" en cas de censure du Conseil constitutionnel
+-  NZD/USD se nachází v rostoucím kanálu
+-  India sends special charter flight with relief supplies as part of $1 million aid to Papua New Guinea hit by volcanic eruption
+-  Premian montaje mexicano en Seúl; Riñon de cerdo para el desconsuelo
+-  Empresas de parquímetros reducirán sus ganancias; pactan otra distribución
+-  Erupción eleva alerta por contaminación
+-  98 „Christkinder“ aus Hessen
+-  Федерация ММА Пензенской области стала первой во всероссийском рейтинге
