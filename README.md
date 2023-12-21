@@ -1,51 +1,51 @@
 # Latest News
--  중소기업중앙회 제주, 사업자가 알아야 할 노무관리 설명회
--  ‘도박 중독 공격수’, 1월에 팀 떠난다... 디렉터도 인정, “이적할 시기가 다가온다”→첼시, 아스널 2파전
--  توقعات "الأرصاد": أمطار رعدية على تبوك والجوف وضباب بهذه المناطق
--  عاجل.. حساب المواطن يرد على المستفيدين ويكشف سر هذه المشكلة
--  "التعليم" تطالب بفك الارتباط بين العلاوة السنوية والرخصة المهنية
--  بشرى للخريجين.. "روشن" تفتح باب التقديم لعشرات الوظائف في مختلف التخصصات
--  Hong Kong unionist jailed for taking sister's phone, laptop before search
--  태백시 레슬링선수들. 대회 '금·은·동' 메달 싹쓸이
--  졸업식에 교육감표창 6년만 재추진…전교조 강원지부, 도교육청 규탄 회견
--  전세계 124개 국민들이 즐기는 김 수출 1조 달성
--  윤 대통령 "도심 소규모 정비사업 활성화 주거환경 개선하자"
--  임영웅의 선한 영향력, 지역 아동들의 따뜻한 겨울로 전파
--  이석천 양양군분재연구회장, 자랑스런 임업인상 수상
--  속초종합사회복지관 성과보고회
--  양양군의회 교육간담회
--  철원지역 농협 겨울나기 성금 2500만원 전달
--  우미린어린이집 월드비전에 사랑의 빵 저금통 전달
--  원주 중앙성결교회, 소외이웃 후원품 전달
--  원주 대성중고 총동문회, 취약계층 이불 후원
--  강원특별자치도 문화관광해설사 상생협력 포럼 개최
--  삼척시청소년수련관, 목공예품 기부
--  경동, 이웃돕기 성금 기탁
--  고성군수협 이웃돕기 성금 기탁
--  안재필 행정복지국장 명예퇴직 공로패 수여
--  믿음이엔지 고성향토장학회 장학금·사랑의 성금 기탁
--  고성청년회의소 사랑의 성품 기탁
--  강원에너지산업 화재 재난가구 지원
--  서석면 남녀의용소방대 성금 기탁
--  바르게살기운동 홍천군협의회 성과대회
--  NH농협 홍천군지부 성품 전달
--  내설악 백공미술관 성금 기탁
--  대한노인회 인제군지회 성금 기탁
--  선영어린이집 이웃돕기 후원
--  도청소년활동진흥센터 운영위원회
--  임영웅 팬클럽 초록우산 강원본부에 후원금 전달
--  K-water 강원지역협력단 난방기 지원
--  도남자단기·일시(고정형)청소년쉼터 운영위원회
--  کاغذات نامزدگی وصول اور جمع کرانے کا سلسلہ دوسرے روز بھی جاری
--  Gratis! Tol Pamulang-Cinere Dibuka Mulai Besok Pukul 00.00 WIB
--  IPW Desak Penyidik Polda Metro Jaya Segera Tahan Firli Bahuri
--  동서발전, 에너지 혁신성장 위한 노사 공동선언·단체협약 체결
--  98 Tahun Mahathir Mohamad, Perjalanan Petugas Medis Menjadi Perdana Menteri Malaysia
--  ForexLive Asia-Pacific FX news wrap: USD/JPY back under 143.00
--  손흥민, 팬이 보낸 편지에 ‘울컥’ 눈물 쏟았다…“인생에서 가장 중요한건”
--  Tribunal Imposes Rs 1,400 Cr Liability On Sebi, NSE, And NSDL In Karvy Scandal
--  आज का राशिफल 1 जनवरी 2024, Aaj Ka Rashifal 1 January 2024
--  Jokowi Senang Ada Investor Masuk dari Kalimantan Timur dan Balikpapan untuk Pembangunan IKN
--  尹 “재개발·재건축 절차 원점 재검토…착수기준 ‘노후성’으로 바꿔야”
--  檢, ‘허위보도 의혹’ 前 민주당 화천대유 TF 대변인 압수수색
--  술자리서 직장 동료 폭행해 숨지게 한 60대 현행범 체포
+-  몬스타기어, 깜찍한 자체 개발 키캡 ‘블루 버니’ 출시
+-  멈췄던 서산 서령버스 22일부터 정상 운행
+-  심경락 민주평통 충주시 자문위원 ‘대통령상’
+-  Traditions & Festivals in Maldives
+-  Korea’s Caregiving Crisis: A Call for Health Insurance Coverage as Families Struggle with Soaring Costs
+-  인성정보, 재외국민대상 한국 전문의 상담 케어 서비스 ‘오케이닥’ 론칭
+-  슈프리마, ‘출산·육아 모범 수출기업’ 선정 장관상 수상
+-  프루프포인트, 테시안 인수 완료
+-  메가존클라우드, 글로벌 DDI 솔루션 기업 ‘인포블록스’와 MOU 체결
+-  라온시큐어, SGI서울보증 ‘모바일 신분증 검증 시스템’ 구축 사업 성료
+-  이글루코퍼레이션, 활용성 높은 플레이북 공유하는 ‘SOAR 커뮤니티’ 오픈
+-  펜타시스템, 신호현시 기반 맵 데이터 개발
+-  금융보안원, 2023년 금융권 버그바운티 운영 결과 발표
+-  За пять лет на Московском инновационном кластере авторизовались свыше 150 тыс. человек
+-  Neue Erkenntnisse zu Hamas-Tunneln vorgelegt
+-  Bischof Ackermann: Kirche im größten Umbruch seit 200 Jahren
+-  Argentinere demonstrerer mod Mileis økonomiske chokterapi
+-  Argentinere demonstrerer mod Mileis økonomiske chokterapi
+-  DIRECT. Loi immigration: Emmanuel Macron défend son texte malgré les critiques
+-  Apple Vision Pro launch nears
+-  Rusija skelbia panaudojusi naujausią savo ginklą. 70 km nuotolis. Kas tai per monstras
+-  Gözler Merkez Bankası'nda: Yılın son faiz kararı bugün belli oluyor
+-  Five killed, nine injured in Rukum (West) tractor accident
+-  US Embassy announces application for USYC 2024
+-  Klopp unhappy with Anfield atmosphere ahead of Arsenal's visit
+-  The Covid productivity bubble has burst
+-  The Covid productivity bubble has burst
+-  दिल्ली: 400 रुपये के लिए ई-रिक्शा वाले ने की हत्या, छाती-गर्दन पर मारे चाकू, सड़क किनारे फेंका शव
+-  Australia sends personnel but no ship to counter Houthi threat
+-  Australia sends personnel but no ship to counter Houthi threat
+-  Nightmare start for Australia with run out
+-  The Most-Popular Christmas Song in New Jersey in 2023 is a Reigning Champion
+-  Nightmare start for Australia with run out
+-  จัดพิธีบายศรีสู่ขวัญ "ลุงพล-ป้าแต๋น" หลังศาลตัดสินจำคุก 20 ปี
+-  대법원, 또 일제 강제동원 피해자 손 들어줬다
+-  Yargıtay hamlesi sonrası gözler AYM’de! Can Atalay için kritik gün
+-  Samsung to set up chip packaging research facility in Japan
+-  카카오뱅크, 고려대와 금융분야 대규모 언어모델 평가방법론 공동 연구
+-  인천백병원 정수영 팀장, 제9대 인천국제의료협의회장 선출
+-  횡성읍새마을지도자회, 새마을운동 평가대회 우수상 상금 '기부'
+-  대구 서구, 행안부 '지자체 재정분석 평가' 우수지자체 선정
+-  경기기숙사, 내년도 입사생 1월26일까지 모집
+-  홍천군청소년수련관, 청소년동아리보고대회&청소년어울림마당 ‘겨울축제' 개최
+-  수원, 주차난 세류2동 제2공영주차장 준공
+-  영월군 주천면, 연말연시 맞아 이웃돕기 잇따라
+-  계명대 국제학연구소, 통일부 ‘대학생 위한 통일강좌 사업’ 선정
+-  의정부, 민선 8기 공약 사회복지회관 개관
+-  홍천 자원봉사센터, 재난 및 안전관리 교육 개최
+-  연천 구석기축제 ‘2024-2025 문화관광축제’ 선정
+-  강원특별자치도남자단기·일시청소년쉼터, '2023년 4분기 통합운영위' 개최
