@@ -1,11 +1,11 @@
 # Latest News
--  Vlak narazil do skupiny robotníkov: Dvaja na mieste zahynuli
--  Skončí vládna konsolidácia fiaskom? Namiesto znižovania deficitu hrozí v budúcom roku pravý opak!
--  Slávny herec spravil Slovensku krásnu reklamu: Náš tradičný výrobok vychválil do nebies!
--  Akou knihou potešíš frajera, brata či ocina? Máme tip aj pre futbalových fanúšikov
--  Obrovská tragédia! Opatrovateľky zrámoval kamión: Jedna z nich sa už domov na Vianoce nevráti
--  Стефковски: По 50 години ја реконструираме градинката во Ченто
--  110 Tahun Teka Teki Silang, Ini Kilas Balik Penemuan dan Penerbitan Perdananya
--  X Suffers Biggest Outage Since Musk’s Takeover
--  EU court: FIFA and UEFA defy competition law by blocking Super League
--  Mahfud MD Sebut Food Estate Proyek Gagal, Jurkam TPN: Seharusnya Tak Bergantung pada Satu Bahan Pokok
+-  เปย์ไม่อั้น คนไทย 71% ทุ่มฉลอง "ปีใหม่"คาดสะพัดแสนล้าน
+-  ฝากขังพ่อสารภาพ “ฆ่าถ่วงน้ำ” ลูกชาย 23 ปี อำพรางศพ 3 เดือน
+-  Ice Bath: सर्दियों में कितना खतरनाक हो सकता है बर्फीले पानी से नहाना, जानिए क्या कहते हैं एक्सपर्ट
+-  News24 Business | Lights should stay on over festive season, says electricity minister
+-  En uzun gece ruh sağlığını olumsuz etkileyebilir
+-  Naci Görür'den İBB adaylığı açıklaması
+-  Putin’s 2024 Campaign Headquarters Open
+-  Arteum, le trublion du commerce culturel, se lance dans l'exploitation de musées
+-  Overeating at Christmas can cause weight gain – but that doesn’t necessarily mean it’s permanent
+-  How Charles Dickens’s A Christmas Carol anticipated the psychology of Freud in its tale of childhood trauma
