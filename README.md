@@ -1,11 +1,11 @@
 # Latest News
--  ABD medyasından Tayvan iddiası: Xi, Biden'a söyledi
--  Rudy Giuliani Hawks Unapproved Supplements as Judge Orders He Cough Up $148M
--  В Сморгони вандал атаковал костел и авто священников
--  Ukraina laillistaa lääkekannabiksen
--  Vuçiç: Vullneti elektoral i qytetarëve do të mbrohet
--  Χάρης Δούκας: Υποψήφιος για την προεδρία της ΚΕΔΕ
--  Britannian pyrkimys lähettää turvapaikanhakijat Ruandaan tuskin pysäyttäisi luvatonta maahantuloa Englannin kanaalin yli, arvioivat asiantuntijat
--  Emerging Brands on The Radar for Christmas Gifting
--  A Mancomunidade instalará novos puntos limpos de proximidade
--  Tüketici kredilerinde düşüş
+-  Сирени в Тел Авив! Хамас изстрелва ракети от Газа
+-  청년·신혼부부 매입임대주택 입주자 모집
+-  국토부, 전세사기 피해자 470건 추가 결정
+-  대구 아파트 매매가·전세가 하락 폭 확대
+-  대영에코건설, ‘동호동 사업’ 우선 협상
+-  대구·경북 공매 관심 물건
+-  [결혼] 신랑 최준영 ♥ 신부 조진경
+-  정태룡 전국 시·군·구 지방공기업협의회장
+-  조명래 대한고관절학회장
+-  영남대병원 응급의학과 정한솔 교수, 응급의료 전진대회 ‘복지부장관 표창’
