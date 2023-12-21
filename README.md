@@ -1,11 +1,51 @@
 # Latest News
--  العراقية "لانيا هادي" تحقق النحاس في بطولة العرب للدراجات الهوائية
--  EMG On Board to Help Sky Sports Offer Atmospheric Coverage of the PDC World Darts Championship
--  VSTVBiH: Imenovane tri sutkinje u Općinskom sudu Zenica i tri tužitelja u Tužilaštvu ZDK
--  Los mejores destinos para viajar a fin de año cerca de Bogotá
--  Burkina : Le président de la Transition donne des instructions pour la résolution des difficultés du pouvoir judiciaire
--  Još jedan košarkaš opleo po Mesini: Ne sviđa mi se kao trener, nije dobra osoba
--  FGR pide penas “ejemplares” contra siete pandilleros acusados de varios homicidios
--  Ir-Renju Unit: Il-Maltempata ‘Pia’ qed tħarbat l-ivvaġġar u l-pjanijiet għall-Milied għall-mijiet tal-eluf tal-Britanniċi
--  WhatsApp Beta Sürümlerinde Müzik ve Video Paylaşım Özellikleri Test Ediliyor
--  Ako si užiť sviatky v pohode a nepodľahnúť vianočnému ošiaľu
+-  Fans all call Dermot Kennedy ‘amazing’ as he makes incredible gesture for charity with intimate Dublin gig
+-  Course au MVP selon ESPN : Joel Embiid est en route pour le doublé
+-  Le programme de la nuit en NBA : des Clippers en back-to-back se déplacent chez le Thunder
+-  مصر للطيران تنقل أبطال السوبر المصري في نسخته الجديدة بالامارات
+-  خصص دعمًا ماليًا لـ30 إيبارشية.. البابا تواضروس يلتقي كهنة الرعاية الاجتماعية
+-  8 ورش لتنمية المهارات.. ختام برنامج "نتشارك" في مركز شباب أبو زنيمة بجنوب سيناء
+-  متلازمة تنهي حياة رضيعة بشكل مفاجىء.. كيف حدث ذلك؟
+-  الاحتلال يزعم السيطرة على حي الشجاعية ويعمل على إقامة منطقة عازلة
+-  وزير الإسكان يلتقى أعضاء جمعية مستثمرى أسوان.. ويستعرض موقف المشروعات
+-  تحذيرات من الطقس المتقلب.. كيف استعدت أسيوط؟
+-  وزير الصحة يناقش الاستراتيجية القومية لعلاج سرطان الأطفال
+-  اليوم العالمي لذوي الهمم.. دورة تعليمية ويوم ترفيهي في "ثقافة شرم الشيخ" - صور
+-  Podcast "Eine Halbzeit mit...": Die neue Folge vom 21.12.2023 hier hören
+-  ريال مدريد وبرشلونة ينتظران مليار يورو
+-  أبو عبيدة: استهدفنا 720 آلية منذ بدء العدوان البري
+-  أبو عبيدة : الاحتلال مشغول بالبحث عن صور النصر والإنجاز
+-  تبيان توفيق: نقطة ضعف المليشيا (..)
+-  El presidente Luis Abinader garantiza seguridad alimentaria
+-  Patient data stolen in ransomware attack affecting millions of healthcare victims
+-  Bettina Tietjen: „Meine erste Sendung war in einem kleinen, hutzeligen Kellerstudio“
+-  Das Kunsthaus Kaufbeuren lotet Grenzen des Realismus aus
+-  Lundabo döms till fängelse för oaktsam våldtäkt
+-  Best Thunderbolt docks 2023: Extend your laptop’s capabilities
+-  Tako pozna večerja ogroža zdravje
+-  Top 100 Yankees: #44 Jack Chesbro
+-  Uniós forrásból újult meg a Semmelweis Egyetem több épülete
+-  Lundabo döms till fängelse för oaktsam våldtäkt
+-  Tillslag mot mc-gäng i Ekeby – flera brottsmisstänkta
+-  The Role of Pharmacists in HIV Care Continues to Expand
+-  Colisão frontal entre carros deixa três feridos na zona rural de Alta Floresta
+-  New England cities dominate top 10 Zillow searches of 2023
+-  Stormy Daniels says hosting gay dating show is the ‘best job’ ever: ‘And I don’t even get to have an orgasm!’
+-  I rescued an adorable baby kitten but it turned out to be something far more dangerous – even vets were baffled
+-  Ledare: Julen borde vara en fristad
+-  Фигурантов дела Абызова приговорили к срокам от 5 до 12 лет
+-  El tendón de Aquiles ensucia el gran 2023 de Cuadrado
+-  An American man was 'completely convinced' he was participating in a UK Christmas tradition. It turned out his British wife made the whole thing up.
+-  Russian elite’s sordid near-naked ‘Sodom & Gomorrah’ bash attended by Putin’s ‘goddaughter’ sparks fury of war fanatics
+-  Russian elite’s sordid near-naked ‘Sodom & Gomorrah’ bash attended by Putin’s ‘goddaughter’ sparks fury of war fanatics
+-  Margareth Menezes desmente ataque bolsonarista à Lei Rouanet (vídeo)
+-  Veliki broj poslodavaca može organizirati praktičnu nastavu za učenike i studente
+-  EPL: Ian Wright predicts scoreline for Liverpool, Arsenal clash
+-  Bu günədək Qəzzadan Türkiyəyə 1 149 nəfər təxliyə edilib
+-  Andrew Tate applies for return to UK after mum Eileen suffers heart attack as he’s banned from leaving Romania
+-  Andrew Tate applies for return to UK after mum Eileen suffers heart attack as he’s banned from leaving Romania
+-  Mercedes inspired by Avatar film lets you control car with your MIND – there’s NO steering wheel & tyres move sideways
+-  Mercedes inspired by Avatar film lets you control car with your MIND – there’s NO steering wheel & tyres move sideways
+-  Jennifer Lopez reveals ‘PTSD’ over Ben Affleck romance — how pals didn’t support their work reunion
+-  Denise Richards Says 'I Made an A** Out of Myself' Upon Returning to 'Real Housewives of Beverly Hills'
+-  Para eliminar o bolor só precisa de uma coisa (vodca)
