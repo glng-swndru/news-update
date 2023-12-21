@@ -1,51 +1,11 @@
 # Latest News
--  אחרי האבדות הקשות: לוחמי גולני יצאו מעזה לארוחה חגיגית
--  עיר ענקית שעלותה 100 מיליארד דולר נותרה ריקה כמעט לחלוטין: "רק קרוקודילים שורצים כאן"
--  אנשים מבולבלים: למה אנחנו רואים ירח מלא בשמיים באמצע היום? "זה לא אמור לקרות"
--  محتجزة أفرجت المقاومة عنها: قلت لنفسي سأموت بسبب الصواريخ الإسرائيلية
--  الدويري: سحب لواء جولاني ينفي سيطرة إسرائيل على شمال غزة
--  STF suspende novas convocações de aprovados para o Corpo de Bombeiros e Polícia Militar em MT
--  Viih Tube e Eliezer presenteiam funcionária com carro: ‘Papai Noel passou aqui em casa’
--  Comissão Mista de Orçamento aprova novos créditos ao Orçamento de 2023; assista
--  Bares e restaurantes têm dificuldades na hora de contratar empregados
--  Slovenec, ki so mu zaupali pilotiranje tega letalskega orjaka #foto
--  Overwatch 2 Left A Trail Of Broken Promises In 2023
--  Teste de tela | Nothing Phone (2) tem display OLED de boa qualidade
--  Así se jugarán los Playoffs de la Temporada 2023 de la NFL
--  Benfica goleia time da 2ª divisão de Portugal e avança à semi da Taça da Liga
--  Fortaleza empresta zagueiro à Chapecoense para a temporada de 2024
--  Crystal Palace e Brighton ficam no empate na abertura da 18ª rodada do Campeonato Inglês
--  雪でスリップか トラック横転 複数の車が追突 福岡 筑紫野
--  ¡Cierre de la mina! Cobre Panamá desea contribuir al plan del gobierno
--  Ricardo Arjona se toma un descanso de las giras por problemas en la espalda
--  "GTA VI" : le hacker qui a piraté le jeu de Rockstar Games condamné à vie à la prison-hôpital
--  Traffic A131 near Chelmsford following report of crash
--  Maldon District to benefit from funding from commissioner
--  Burnham GP surgery addresses controversial future of site
--  СМИ: в Финляндии предложили "план Б" по обходу вето Венгрии на помощь Киеву
--  Manchester City x Fluminense: onde assistir ao vivo, horário e escalações da final do Mundial de Clubes
--  Festival de Berlim homenageará Martin Scorsese com Leão de Ouro pela carreira
--  Strictly Christmas Special's Dan Snow nearly 'passed out' after his 'intense' first rehearsal with pro partner Nadiya Bychkova as he reveals it's his 'lifetime ambition' to learn how to dance
--  Love Island stars Davide Sanclimenti and Molly Marsh swap the sun for the stage as they join ITV2 co-stars for Britain Get Singing on Christmas Eve
--  MSP’s Top Commercial Real Estate Sales of 2023
--  "맨유 미래"극찬받은 18살 MF 등장에 27살 MF '고향앞으로'→4개월전만 해도 영구이적 추진 '충격적인 반전'
--  '대상배우' 김동욱, 오늘(22일) 결혼…신부는 '미모 겸비한 재원' [MD픽]
--  '서울의 봄' 김의성 "900만 돌파…관객 지지와 응원에 감동" [인터뷰①]
--  [단독]심판 임원, '정신적 고통 호소' 피해자와 가해자 화해 시도+가해자 옹호 발언…피해자 빠진 공정위원회?
--  [오피셜] 울버햄튼, 황희찬과 2028년까지 재계약…"훌륭한 피니셔→팀에 필요한 선수"
--  김의성, 보수단체 '서울의 봄' 단체관람 고발에 "역사적 사실 있는데…헛웃음 나와" [인터뷰②]
--  "개그맨→전재산 사기→목사→뇌종양 수술 3번→후유증" 최형만 '근황 공개'[특종세상](종합)
--  김연우, 조카 '미스트롯3' 참가에 '당황'…"형의 큰딸, 네가 왜 거기서 나오니?" [MD리뷰]
--  최예나가 돌아온다…내년 1월 15일 컴백 확정 [공식]
--  ¿Ya tienes tus tarjetas de navidad? Así puedes crearlas con inteligencia artificial
--  Man, 25, charged after several stolen vehicles recovered
--  Siegreicher Auftakt: Clemens bei Darts-WM in Runde drei
--  శబ్దమాంత్రికుడు రేడియో రామం
--  CISF : పార్లమెంటు భద్రత ఇక సీఐఎస్‌ఎఫ్‌కు
--  Novinarke Tamara Todorović i Danica Đokić dobitnice godišnje nagrade „Marina Kovačev“
--  Homem boicota amigo secreto no local de trabalho após receber 'isto'
--  Ondo acting gov, Aiyedatiwa presents N384,533b budget for 2024
--  Mehrere Züge am Eurotunnel wegen Streiks gestrichen
--  ‘Ginny & Georgia’ Dominated Netflix In First Half Of 2023; Data Reveals High Interest In YA & Female-Led Titles
--  Creator Universe star Amy-Jo Simpson takes a swipe at Sam Ryder as rivals race to Christmas number one
--  Creator Universe star Amy-Jo Simpson takes a swipe at Sam Ryder as rivals race to Christmas number one
+-  عاجل.. بالتفصيل.. طريقة حساب جمارك السيارات المستعملة وشروط استيراد سيارة 1445
+-  "ورث المهنة عن أجداده".. شاب بالقطيف يمتلك مزرعة بمساحة مليون متر مربع
+-  Αλαβές – Ρεάλ Μαδρίτης 0-1: Ηρωική απόδραση στο 90’+2’ και πρώτη στη La Liga! (vid)
+-  Polícia prende trio envolvido em desaparecimento de dois jovens em Mato Grosso
+-  La ONU constata el asesinato de 69 defensores de DDHH hasta noviembre en Colombia
+-  Negociaciones sobre el incremento del salario mínimo en Colombia continúan sin acuerdo
+-  – رئيس حكومة الوحدة الوطنية يستقبل المبعوث الأمريكي الخاص إلى ليبيا
+-  صور.. تشميع 4 مراكز دروس خصوصية في البحيرة
+-  البرهان: الجيش سيقاتل لآخر جندي حتى ينعم أهل السودان بالأمن والأمان
+-  تحذير في الإسكندرية.. شركة الصرف تتوقع ارتفاع الأمواج لـ3 أمتار غدًا
