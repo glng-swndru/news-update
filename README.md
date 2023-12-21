@@ -1,11 +1,11 @@
 # Latest News
--  Сирени в Тел Авив! Хамас изстрелва ракети от Газа
--  청년·신혼부부 매입임대주택 입주자 모집
--  국토부, 전세사기 피해자 470건 추가 결정
--  대구 아파트 매매가·전세가 하락 폭 확대
--  대영에코건설, ‘동호동 사업’ 우선 협상
--  대구·경북 공매 관심 물건
--  [결혼] 신랑 최준영 ♥ 신부 조진경
--  정태룡 전국 시·군·구 지방공기업협의회장
--  조명래 대한고관절학회장
--  영남대병원 응급의학과 정한솔 교수, 응급의료 전진대회 ‘복지부장관 표창’
+-  Unemployment falls to 3.5 percent, despite uptick in benefits recipients
+-  A mediocridade nos faz festejar uma reforma pífia
+-  Ukrainan puolustusministeri länsimedioille: "Ulkomailla olevat sotilasiän miehet kutsutaan palveluun, Krim voidaan vapauttaa ensi vuonna"
+-  與 “한동훈, 젊고 참신…국힘·대한민국 정치 바꿔 갈 것 분명”
+-  한동훈 “약자 편에서 나라 미래 대비하고 싶었다”
+-  ‘구원투수’ 한동훈…與, 환영·기대 속 제안 쏟아져
+-  尹 대통령, 한동훈 법무부 장관 면직안 재가
+-  대구한의대 임상병리학과 ‘청소년 건강 지킴이 프로그램’
+-  이낙연 “민주 통합형 비대위 필요성 공감”
+-  서문·칠성 야시장서 ‘특별한 크리스마스’
