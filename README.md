@@ -1,51 +1,11 @@
 # Latest News
--  Pokemon Go player “buzzing” after catching one of rarest Shinys
--  Podemos 'quita' a UPN el altavoz sanitario del Grupo Mixto en el Congreso
--  Más relatos sobre la invasión
--  اللجنة النقابية بجريدة الوفد تعلق الاعتصام بعد تحقيق جزئي للمطالب
--  وزير الخارجية التركي: مواصلة جهود وقف إطلاق النار في غزة
--  المقاومة تعلن قنص جنديين إسرائيليين في محيط مسجد فلسطين بمدينة غزة
--  بسبب الدولار.. بنوك تدرس وقف عمل "الكريدت كارد" المصدر حديثا خارج مصر
--  Cae presunto extorsionador en Operación Haker
--  President Ranil engages in dialogue with Tamil MPs from North and East
--  Μακελειό στην Πράγα: Τουλάχιστον 11 νεκροί και 24 τραυματίες από τους πυροβολισμούς σε πανεπιστήμιο
--  Alterra Mountain Company Celebrates Art & Culture of the Mountains With Forward Stance Studio
--  Science-fiction : Et si les Pistons gagnaient un match de basket-ball ce soir ?
--  Καραπαπάς στη συνάντηση με Βρούτση: «Δεν υπάρχει αθλητική ή οπαδική βία, αλλά κοινωνική, βαρέθηκα να ακούω για οπαδικούς στρατούς»
--  FC Volendam gaat langer door met trainers Michael Dingsdag en Regillio Simons
--  FC Volendam gaat langer door met trainers Michael Dingsdag en Regillio Simons
--  Eliminoi Inter, Thiago Motta: “Zirkzee fantastik, duhet të vazhdojë kështu”
--  Ime leta 2023 na Valu 202 je Primož Roglič
--  Ime leta 2023 na Valu 202 je Primož Roglič
--  تحقيق "لواشنطن بوست" يفند رواية الاحتلال عن وجود أنفاق بمجمع الشفاء في غزة
--  Избоскан туманининг собиқ ҳокими қамоққа олинди .
--  Мудофаа вазирлиги Ўзбекистон ўз хавфсизлигини таъминлаш учун етарли Қуролли кучларга эгалигини эслатди.
--  PHOTOS – Inside Cassper Nyovest’s star-studded birthday party
--  (VIDEO) Ceca Ražnatović ZAPOSLILA AZIJATKINJU U VILI NA DEDINJU Evo kako izgleda njena nova kućna pomoćnica
--  Tiroteo en Universidad Carolina de Praga, República Checa, deja varios muertos y heridos
--  مجلس الوزراء الفلسطيني: الاحتفالات بعيد الميلاد تقتصر على الشعائر الدينية فقط
--  देश की खबरें | ओडिशा की शराब कंपनी में हालिया तलाशी अभियान में 351 करोड़ रुपये से अधिक नकदी जब्त: सीबीडीटी
--  Prahassa joukkoampuminen yliopistossa, runsaasti uhreja
--  Prahassa joukkoampuminen yliopistossa, runsaasti uhreja
--  HSK Mazeret Kararnamesi tamamlandı! 504 hakim ve savcının görev yerleri değişti
--  Putin poručio Americi i EU: 'Prestanite se glupirati'
--  [Ekstra] Mulig vei rundt eksportforbud: Ukraina trenger luftvernmissiler – hjelpa kan komme fra Japan
--  Mener zeolitt-mineraler er løsningen: Skal fange CO2 direkte fra luften
--  BEŞİKTAŞ ALANYASPOR MAÇI CANLI İZLE! Beşiktaş Alanyaspor maçı saat kaçta, hangi kanalda? Maç nerede oynanacak? İşte Beşiktaş Alanyaspor maçı kadrosu
--  Weniger Bürokratie und mehr Digitalisierung?
--  Genetec shares top physical security trends for 2024
--  Potret Korban Gempa China Berjuang Melawan Dingin di Pengungsian
--  Park with Purpose: ZipBy’s Annual Drive to Donate for Greater Vancouver Food Bank!
--  Nevjerovatna fotografija: Studenti nisu birali način da se spase od ubice
--  Algunos consejos para proteger la salud mental en los más pequeños, según expertos
--  Силовики задержали пять человек, которые помогали белорусам с получением карты поляка
--  'Ten' dead and dozens wounded in Prague university shooting: Students balance on high ledge as they hide from gunman and terrified crowds flee across tourist spot bridge before shooter 'eliminated'
--  Bez podrške inicijativi za smjenu ministra Košarca
--  Borussia Dortmund: Terzic-Entscheidung wohl gefallen! SO geht es beim BVB weiter
--  Horrifying moment young couple accidentally film 'Canadian' tourist, 76, being killed in a terrifying 'shark attack' just meters away while they frolic with their toddler on a Mexican beach
--  С февраля 2024 года в Вильнюсе и некоторых районах Литвы подорожает холодная вода
--  'Past Lives' star Greta Lee, 'Color Purple' costumer Francine Jamison-Tanchuck join The Envelope
--  जम्मू-कश्मीर: पुंछ में सेना की गाड़ी पर आतंकी हमला, 3 जवान शहीद
--  How to restore energy & health in Avatar: Frontiers of Pandora
--  „Noch nie betrunken“: Früherer Butler enthüllt Trinkgewohnheiten der Royals
--  Schulterschluss beim BVB: Terzic bleibt Trainer
+-  معان يفوز على الأهلي بثنائية
+-  الملك لماكرون : على العالم بأسره الضغط لوقف فوري لإطلاق النار في غزة
+-  Pellegrini nevylúčil, že diskusiu pri rozpočte pre obštrukcie ukončí
+-  নতুন বছরে রেকর্ড বরাদ্দ নিয়ে ইউক্রেন যুদ্ধে এগিয়ে যেতে চান পুতিন
+-  Češki mediji: Identifikovan napadač iz Praga, student Fakulteta umetnosti
+-  Kickoff | Kgatlana at top of highest-paid women footballers?
+-  Weird training bug strikes Garmin Forerunner and Fenix watches – here's how to fix it
+-  Wardwizard Innovations & Mobility Ltd and BEEAH Group – Sharjah -UAE , Signs a Strategic Collaboration to manufacture electric vehicles and promote sustainable environmental practices
+-  Sorge um Verkehrsbelastung: Pläne für neue Grundschule in Roggendorf/Thenhoven vorgestellt
+-  Ný stofnun – Rannsóknastofnun lífeyrismála
