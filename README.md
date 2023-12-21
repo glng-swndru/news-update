@@ -1,51 +1,51 @@
 # Latest News
--  Nat'l Assembly passes 2024 budget of $503.5 bil.
--  Dodgers, Padres to play exhibition games in Seoul ahead of 2024 MLB opening series
--  North Korea tests missiles that can reach the US
--  Gimpo airport aims to turn into business-friendly travel hub
--  Fenerbahçe Beko'nun THY Avrupa Ligi'nde rakibi ALBA Berlin
--  Süre daralıyor! Başvurular 2 Ocak'ta sona erecek
--  Fenerbahçe'de dev derbinin en deneyimlisi Serdar Aziz
--  Mauro Icardi derbileri boş geçmedi! 10 gole imza attı
--  Çeyrek altın 3 bin 140 lira
--  Başkan Erdoğan, 4 ilin teşkilat üyeleriyle bir araya geldi
--  ABD'den İsrailli askerlere "savaş suçu" soruşturması
--  Trafiğe bir yılda 624 bin yeni araç çıktı
--  제주바다서 발견 미기록종 연산호
--  중국 안후이성과 경제·관광·과학기술 협력 ‘물꼬’
--  “노동자 배제 카지노산업 토론 규탄”
--  내년 총선 ‘딥페이크’ 악용 원천 차단
--  [속보] 농촌융복합산업 세일 페스타 취소
--  ‘폭설에 강풍’으로 사고 속출…항공기 운항도 차질
--  “4·3 교전지·주민들 희생 컸던 학살터 지금은 흔적도 없어”
--  ‘위조 신분증으로 버젓이 도외 이탈’
--  Cumhurbaşkanı Erdoğan, Kılıçdaroğlu'ndan kazandığı manevi tazminatı Gazzeli çocuklara bağışladı
--  Eduardo Antonio Parra: el cuento, la joya de la narrativa
--  EU indulta y libera al testaferro de maduro
--  Government fails to honour agreement with Kamra tal-Periti on budget allocation
--  국회 656조6천억원 내년도 예산안 의결
--  [속보] 尹대통령, 한동훈 법무부 장관 면직안 재가
--  Social media platform X experiences technical issues
--  Those responsible for Lulama Dinginto's murder must face full might of law - MEC
--  'Takes two to tango': RTMC to go after corrupt officers, complicit motorists
--  WC MEC Wenger praises private sector for helping to grow economy, create jobs
--  Transport Minister urges drivers to 'do what's right' during festive season
--  Canada bids farewell to plastic straws, cutlery and checkout bags
--  둔촌주공 비상 걸렸다…실거주 의무 폐지법 통과 ‘불발’
--  송영길, 이틀 연속 검찰 조사 거부…檢 “진실 규명에 협조 기대”
--  신원식 “시간 없어 《서울의 봄》 안 봤다…마음 불편해서 아냐”
--  “최순실 땐 왜?” ‘김건희 특검 악법’ 한동훈에 놓인 세 가지 딜레마
--  외도 들킨 후 감시에…아내 물 빠뜨리고 돌던져 살해한 30대
--  ‘한동훈 명예훼손’ 유시민, 벌금형에 “韓 공격한 적 없어”
--  Добрата новина: В Бургас ще има кръвен център
--  Новата техника в ОП "Благоустрояване" вече е в действие в Габрово
--  KOWR: 1,3 mln osób rocznie korzysta z pomocy żywnościowej
--  [사설] 포씨 삼형제 힘 모아 글로벌 과학기술도시로
--  [인사] 대구시교육청
--  [유천의 세상이야기] 한동훈 ‘윤 아바타’ 벗어날 수 있을까
--  [경북포럼] 장수는 축복인가 아니면 비극인가
--  [동서남북] 간절한 기도 하옵니다
--  고상범 문경시의원 "다자녀장학금 2자녀 가정으로 확대 지급해야"
--  성주군의회, 이장연합회와 소통 간담회 가져
--  영천시새마을회, 새마을운동 종합평가대회·한마음 전진대회 개최
--  서울튼튼신경외과의원·(재)청구공원, 칠곡군 고향사랑기부금 기탁
+-  IPS Success Story: Aashna Chaudhary`s Resilient Journey To UPSC Success In Her Third Attempt
+-  Breaking: Fire Breaks Out At Gopaldas Building In Delhi`s Barakhamba Road, Firefighters Rush To Spot
+-  UK: Indian student, who went missing after night out with friends, found dead
+-  Centre`s Big Move - CISF Likely To Take Over Parliament`s Security After Massive Breach
+-  Büyük maçların en golcüsü Mauro Icardi!
+-  Özgür Özel ile Ekrem İmamoğlu arasında aday krizi
+-  İYİ Parti'de kriz! Talat Atilla duyurdu: Yüksel Arslan istifa etti!
+-  Hande Yener zor günlerini anlattı! "Durakta her ayağım ıslandığında ağlıyordum"
+-  Uzman doktordan çocuk diyabetine karşı uyarı!
+-  للمرة الأولى.. اختبار دم يكشف الرغبة في الانتحار
+-  C-Majör İş’ten Sesler Korosu, Safranbolu’da eğitim yararına konser verecek
+-  Salt: మీరు విన్నది నిజమే.. ఉప్పు కిలో రూ.53 వేలు
+-  Мбапе за дебюта на брат му: Не мислех, че ме очаква толкова специален ден
+-  Suomalaisjoukkue teki kovan tempun eurokentillä
+-  Miksi ihmeessä tämä kuski ei kilpaile F1-sarjassa?
+-  Gemeente Molenlanden: aansluiting industrieterrein Vlietskade in Arkel op A27 niet mogelijk
+-  [취재수첩] AI, AI, AI… “바보야, 문제는 비즈니스야”
+-  "X에 아무것도 안 보여요"… 옛 트위터 전 세계서 '먹통'
+-  [DD퇴근길] 해커와 협상 안 한 골프존…“제2 배민·쿠팡 탄생 못하나"
+-  폴라리스오피스-오비고, AI 기반 차량용 업무서비스 개발 협력
+-  "AI 시대, 실질적인 개인정보 가이드라인 필요"…스타트업 한목소리
+-  업비트, ‘착오전송 복구 수수료 무료’ 내년 1월까지 연장
+-  Kim Jong-un prijeti nuklearnim napadom: "Nećemo oklijevati"
+-  Historiallista: Raide-Jokeri alitti budjetin miljoonilla euroilla
+-  SON DAKİKA : İtalyanlar duyurdu! Fenerbahçe'nin yıldızından vazgeçmiyorlar...
+-  Optycznie odmłodzą i odejmą kilogramów. Te ubrania i dodatki to strzał w dziesiątkę na Wigilię
+-  Michał Janota blisko nowego klubu
+-  Giriiga oo ansixiyay sharci siinaya muhaajiriinta Sharciga degenaanshaha Wadanka
+-  Ezek a legjobb művészeti karok a 2024-es HVG-rangsor szerint
+-  Israel-Hamas war live: Hamas 'rejects' Israel ceasefire offer
+-  [현장연결] '비대위원장 수락' 한동훈 법무장관 이임식
+-  V lete a či v zime, na čistinke každému je dobre
+-  Ayyannapatrudu: గూగుల్‌ని అడిగినా నువ్వు 420 సీఎం అని చెబుతుంది
+-  Sądny dzień dla Superligi. Już dzisiaj dowiemy się, czy powstaną konkurencyjne rozgrywki dla Ligi Mistrzów
+-  Wszystko jasne. Świątek i Hurkacz poznali terminy meczów [TERMINARZ]
+-  Popularni njemački lanac supermarketa zatvara sve poslovnice
+-  İYİ Partili bir milletvekili daha istifa etti
+-  Afroamerikaner nach 48 Jahren Gefängnis freigesprochen
+-  OFICJALNIE: Półfinałowe pary Pucharu Ligi Angielskiej rozlosowane. Wyraźni faworyci
+-  Bernardeschi a La Stampa: "Juve? Spero di tornare. Europeo? Sono a disposizione"
+-  منظمة العفو تدعو لإطلاق سراح جميع الفلسطينيين "المحتجزين تعسفا"
+-  Başkan Gökhan Yüksel muhtarlık personeli ile bir araya geldi
+-  Una niña sorda habla con Papá Noel por lengua de signos gracias a un elfo
+-  Xabi Alonso wskrzesił napastnika Bayeru Leverkusen. Występ okraszony hat-trickiem w bardzo ważnym momencie
+-  Defensor Legii Warszawa nie owija w bawełnę: Musimy przeprosić kibiców
+-  아주대병원 허훈 교수팀, 새로운 AXL 억제제로 위암 면역항암치료 내성 극복
+-  수원시립미술관, 2023 도슨트 간담회 개최
+-  공군 제10전투비행단, AI·SW 교육장 개장식 진행
+-  경기대학교, 서울캠퍼스 갤러리 다온 ‘흰구름과의 동행’ 전(展) 개최
+-  가톨릭대학교 성빈센트병원, 2023 한국의료질향상학회 우수상 동시 수상
