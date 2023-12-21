@@ -1,11 +1,11 @@
 # Latest News
--  Marszałek Sejmu: sprawa mediów publicznych domaga się rozwiązania ustawowego
--  ING Kadınlar Basketbol Süper Ligi başlıyor!
--  Otoparktaki araçların camlarını kırdı
--  Roling Stoun odabrao najbolju seriju u 2023. godini: „Poslednja sezona remek-delo“
--  1860 München im freien Fall: „Scheißgefühl“
--  NOVARTIS AG : Barclays is nog steeds negatief gestemd
--  Neue Wasserleitung versorgt Gazastreifen aus Ägypten
--  Barclays belässt Novartis auf 'Underweight' - Ziel 85 Franken
--  "2금융권에서 5~7%대로 대출받은 소상공인도 이자환급" 금융위
--  과기정통부, 내년 공공용 주파수 17.2㎓ 폭 공급
+-  Rusi, spremite se. Čeka vas šok, nećete moći da se sakrijete, a onda slede udari
+-  Valter Attila: Sokkal stabilabb voltam, mint amire számítottunk
+-  Emelik a tanárok bérét? Megveszik a ferihegyi repülőteret? – Kormányinfó Orbán Viktorral percről percre
+-  Keine Lust aufs IOC: Darts-Boss schimpft massiv auf Olympia
+-  UEFA verliert vor EuGH im Super-League-Streit
+-  أمراض يعالجها شرب الماء على الريق
+-  6 نجمات عرب في احتفال رأس السنة بالرياض
+-  دعاء السفر.. ردده عند الخروج
+-  마산자유무역지역 수출 유공자에 김광희 대신금속 선임 등 19명 선정
+-  무학, 소주 좋은데이 22일 출고분부터 가격 인하
