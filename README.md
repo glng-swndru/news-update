@@ -1,11 +1,51 @@
 # Latest News
--  เปย์ไม่อั้น คนไทย 71% ทุ่มฉลอง "ปีใหม่"คาดสะพัดแสนล้าน
--  ฝากขังพ่อสารภาพ “ฆ่าถ่วงน้ำ” ลูกชาย 23 ปี อำพรางศพ 3 เดือน
--  Ice Bath: सर्दियों में कितना खतरनाक हो सकता है बर्फीले पानी से नहाना, जानिए क्या कहते हैं एक्सपर्ट
--  News24 Business | Lights should stay on over festive season, says electricity minister
--  En uzun gece ruh sağlığını olumsuz etkileyebilir
--  Naci Görür'den İBB adaylığı açıklaması
--  Putin’s 2024 Campaign Headquarters Open
--  Arteum, le trublion du commerce culturel, se lance dans l'exploitation de musées
--  Overeating at Christmas can cause weight gain – but that doesn’t necessarily mean it’s permanent
--  How Charles Dickens’s A Christmas Carol anticipated the psychology of Freud in its tale of childhood trauma
+-  بشرى من "الأمن الغذائي" حول مستحقات المزارعين
+-  استشاري أمراض معدية: لقاحات أحادية للوقاية من متحور jn.1 (فيديو)
+-  أخبار السعودية.. وظائف لحاملي الثانوية براتب 10 آلاف ريال وزيادة أسعار الطماطم إلى الضعف
+-  In der Schule schwerverletzt: Jugendliche sticht im Klassenraum auf Mitschülerin ein
+-  İşte Süper Lig'de günün VAR hakemleri
+-  Kavgaya Ali Babacan da dahil oldu! Akşener'e yaylım ateşi: Dün 'adayımdır' dediğinize bugün 'korkak' derseniz güven oluşturamazsınız
+-  Corona-Zahlen im Landkreis Ostprignitz-Ruppin aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Oder-Spree aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Jalkapallon kohuttu Superliiga taas tapetilla - EU-tuomioistuin: FIFA ja UEFA rikkoivat lakia
+-  Ajay Devgn reveals what he wants from SRK, Salman Khan, and Akshay Kumar
+-  Corona-Zahlen im Landkreis Oberspreewald-Lausitz aktuell: Neuinfektionen für Landkreis Oberspreewald-Lausitz, Brandenburg und Deutschland
+-  Corona-Zahlen im Landkreis Oberhavel aktuell: Zahlen und Fakten aus der Region
+-  จินตหรา โดนหางเลข ปม ลุงพล จำคุก 20 ปี ชาวเน็ตแซะจะออกมาขอโทษสังคมไหม
+-  بالصور- وضع إكليل الزهور على النصب التذكاري في عيد النصر ببورسعيد
+-  أوكرانيا تعترف بالمكاسب العسكرية الروسية في الهجوم البري
+-  مصدر: نتيجة كلية الشرطة خلال أيام.. وطريقتان لمعرفة المقبولين
+-  مجلس أمناء جامعة الإسكندرية يناقش الاستعدادات الإدارية للامتحانات - صور
+-  الأمم المتحدة تطالب بإعادة تهيئة الظروف للمساعدة في إنقاذ حياة الناس
+-  Corona-Zahlen im Landkreis Märkisch-Oderland aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Havelland aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Elbe-Elster aktuell: Inzidenz für Landkreis Elbe-Elster, Brandenburg und Deutschland
+-  EU Court Rules Against FIFA And UEFA
+-  Alberto Fernández denuncia ditadura de Milei: “a República está em risco”
+-  Corona-Zahlen im Landkreis Dahme-Spreewald aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Mengapa Ekspor Benih Lobster Dilarang?
+-  Corona-Zahlen im Landkreis Barnim aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  SazkaMobil mění majitele, posílí Vodafone
+-  Corona-Zahlen in Potsdam aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Teurer Fliegen: Wissing verteidigt höhere Ticketsteuer
+-  Corona-Zahlen in Frankfurt (Oder) aktuell: Neuinfektionen für Frankfurt (Oder), Brandenburg und Deutschland
+-  UE fecha acordo para reduzir déficit e conter dívida pública após guerras e pandemia
+-  Corona-Zahlen in Cottbus aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen in Brandenburg an der Havel aktuell: Zahlen und Fakten aus der Region
+-  КК Црвена звезда Меридианбет – Обавештење о статусу играча Шабаза Нејпира
+-  Positiva VIK-beskedet: ”Kunde stödja på benet”
+-  Positiva VIK-beskedet: ”Kunde stödja på benet”
+-  Corona-Zahlen im Landkreis St. Wendel aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Saarpfalz-Kreis aktuell: Die Coronavirus-News aus der Region
+-  Kampe tvinger FN-organisation til at indstille nødhjælp i Sudan
+-  Kampe tvinger FN-organisation til at indstille nødhjælp i Sudan
+-  Corona-Zahlen im Landkreis Saarlouis aktuell: Neuinfektionen für Landkreis Saarlouis, Saarland und Deutschland
+-  Corona-Zahlen im Landkreis Neunkirchen aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  İkinci EYT teklifi Meclis'te! 2000'den sonra sigortalı olanlara kademeli emeklilik! 43'ten başlayıp 52 yaşa kadar
+-  Felismeri gyerekkori fotóján a népszerű magyar énekesnőt?
+-  Corona-Zahlen im Landkreis Merzig-Wadern aktuell: Zahlen und Fakten aus der Region
+-  Father-of-two, 63, who shattered his wrist after road 'safety measure' threw him off his bike sues council claiming he couldn't see black 'base' because it was too dark
+-  Father-of-two, 63, who shattered his wrist after road 'safety measure' threw him off his bike sues council claiming he couldn't see black 'base' because it was too dark
+-  Minka Kreho imenovana za v.d. predsjednice Suda BiH
+-  Corona-Zahlen in Regionalverband Regionalverband Saarbrücken aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Oberallgäu aktuell: Die Coronavirus-Daten im Überblick
