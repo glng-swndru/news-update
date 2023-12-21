@@ -1,11 +1,11 @@
 # Latest News
--  Kickoff | Amazing rise of Bafana’s youngest AFCON squad member
--  UK deep tech Siloton scoops £1M for its at-home AMD diagnostic imaging device
--  Tunnels from Hamas leaders’ homes found under Gaza City
--  Zorro, il trailer ufficiale della serie ci mostra il ritorno del giustiziere mascherato [VIDEO]
--  Kuvendi i hap rrugë SPAK-ut për arrestimin e Berishës, vendimi jehonë në mediat e huaja
--  Negosyanteng pilantropo namudmod ng Pamasko sa mga Manileño
--  „Will hier den Klassenerhalt schaffen“: Krattenmacher deutet Verbleib in Haching an
--  Nyt tuli kuuma huhu F1:n kuljettajamarkkinoilta - Ferrari virittelee sensaatiomaista kaappausta
--  Persona muere arrollada sobre la autopista Comalapa
--  Nasser Bourita reçoit le Ministre des Affaires Étrangères et de la Coopération Est-Africaine de la République Unie de Tanzanie, January Yusuf Makamba !
+-  Halkapınar'da Kaymakamlık Voleybol Turnuvası tamamlandı
+-  Göçükte yaralanan işçi: Kaçak ocak sahipleri aramadı
+-  Dramatičan snimak: Majka spasila dete od sigurne smrti VIDEO
+-  Čeferin se grohotom smeje: Imaće divnu Superligu sa dva kluba!
+-  SOMO -- Revolutionizing the Global Influencer Industry with Intelligent Solutions
+-  جامعة الإمام عبدالرحمن بن فيصل تفتح التقديم على 3 برامج أكاديمية
+-  النمر: 3 أرقام لا تتجاهلها أبدًا من أجل صحتك
+-  محلل سياسي: حركة حماس لا تريد أن تكون غائبة عن المشهد السياسي بعد انتهاء الحرب.. والفلسطينيون يريدون نتائج تفضي إلى حل الدولتين
+-  المصرف العربي للتنمية الاقتصادية في أفريقيا يعقد اجتماعه السابع في الرياض
+-  गठबन्धन सरकार सफल छः प्रधानमन्त्री प्रचण्ड
