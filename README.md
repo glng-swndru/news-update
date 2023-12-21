@@ -1,51 +1,51 @@
 # Latest News
--  év végére 6 százalék alá is eshet az éves infláció
--  Ankaragücü-Hatayspor maçı golsüz eşitlikle sona erdi
--  Alex Batty: l'adolescent retrouvé 7 ans après sa disparition placé sous mesure de protection
--  Jadwal KRL Jogja Solo dan KRL Solo Jogja Terbaru Hari Ini, Jumat 22 Desember 2023
--  UŽIVO! REAL - PARTIZAN! Meč koji svi čekaju: Crno-beli gostuju šampionu i lideru!
--  Sales finally start for condos at fraud-tied San Jose housing project
--  Fluks udhëtarësh në Qafë Thanë
--  BEŞİKTAŞ ALANYASPOR MAÇ SONUCU! Beşiktaş Alanyaspor maçı kaç kaç bitti? Kartal galibiyete hasret!
--  ¿Cuál es el sueldo por trabajar en el campo en Estados Unidos? Extranjeros lo revelan
--  Allocations familiales, APL... Y a-t-il vraiment de la préférence nationale dans la loi immigration?
--  «أزرق السلة» يلتقي ليبيا في ختام تحضيراته لـ «العربية»
--  «الأزرق» مستقر بالمركز 136 عالمياً
--  العربي يتخطى السالمية.. ويستعيد الصدارة
--  القادسية للانفراد بالصدارة أمام الجهراء غداً
--  النخبة العربية الثالثة للتنس تنطلق في قطر الأحد المقبل
--  2216 ديناراً متوسط تكلفة مرضى «كورونا» والحالات الحادة تكلف ثلاثة أضعاف البسيطة
--  اليرموك يتعادل مع الساحل في «الأولى»
--  العوضي: «السكنية» تطرح مناقصتين لإنجاز البنية التحتية لـ 13812 قسيمة بجنوب صباح الأحمد السكنية 24 الشهر الجاري
--  انطلاق الجولة الثانية لدوري الفروسية اليوم
--  قتلى بإطلاق نار في براغ.. والشرطة التشيكية تؤكد مقتل المنفذ
--  «السكنية» تجري القرعة للدفعة السابعة من الضاحية الرابعة بجنوب سعد العبدالله الأحد
--  ختام «فروسية الراحل مهند البحر»
--  وزير خارجية الإمارات وأمين سر منظمة التحرير الفلسطينية بحثا الأوضاع الإنسانية في غزة
--  Lille: le lycée Averroès avait fait l'objet d'un "rapport extrêmement positif"
--  «الكهرباء»: منح 15 وحدة تنظيمية شهادة الأيزو 2015..9001
--  وزير الأشغال زار مستشفى الولادة الجديد
--  Peacock espera que los cuartos de la NFL sin publicidad lo saquen de una espiral de muerte
--  Panamá registró la mayor subida en el ránking FIFA de 2023
--  Ejecutivos internacionales conocen operación de STATCOM de ETESA
--  "Türkiye'deki Şehirler Transformer Olsaydı Nasıl Görünürdü?" Sorumuza Yapay Zekânın Verdiği Şahane Cevaplar
--  حدث في 8 ساعات| الصحة تكشف موقف المتحور الجديد.. وإطلاق المشروع القومي لـ"ميكنة العلاج الحر"
--  "الفصل المظلم" من تاريخ إسرائيل.. وثائق تكشف علاقة تعاون بين قادة الصهيونية والنازية
--  "اتخانق مع اخوه".. كواليس جثة بولاق الطائرة
--  ليلة رأس السنة.. 3 أبراج فلكية على موعد مع الفرج
--  Aplicaciones de inteligencia artificial como Stable Difussion se han entrenado con imágenes de abuso sexual infantil
--  Nowe otwarcie w TVP. Przed "Wiadomościami" pojawiła się plansza
--  Marcin Ociepa z PiS wypowiedział się dla nowych "Wiadomości" TVP. "Nie ma bojkotu?"
--  Israelische NGO verklagt Rotes Kreuz wegen unterlassener Hilfeleistung an Geiseln
--  Nigerian government to inaugurate committee for selection of new ambassadors
--  Mandić: Milatović mogao da se suzdrži od komentara, u Beogradu sam...
--  "Ajkule" promašile peterac za pobjedu, Italiji trofej
--  Santa Clara County reports low COVID-19 vaccination rates for latest booster shot
--  Valle Colino se plantea volver a cobrar por la adopción de animales abandonados de Tenerife
--  Lekkoatletyka. Gwiazdy spadają na święta. Nasza elita wraca z zagranicznych wojaży. Hiszpania, Portugalia, RPA, Katar i... Spała.
--  La oportunidad de los muelles
--  "Entre los médicos molesta que llamen doctora a una enfermera"
--  BEŞİKTAŞ HABERLERİ - Omar Colley: Kabus gibiydi!
--  Quick! Get these last-minute gifts for the gamer in your life
--  A 9-month-long cruise is going viral on TikTok. We spoke to the passengers
--  KOLIKA JE PROSEČNA UŠTEÐEVINA HRVATA? Iznenadiće vas i broj milionera u komšiluku
+-  Chandigarh: aumento del 31% en las plazas en las escuelas públicas para la sesión académica 2024-25
+-  “ولي العهد المتهور تعلم الدرس”.. سبب غياب الرياض وأبوظبي عن التحالف الدولي ضد الحوثي
+-  Farrukhabad News: अफसरों की लापरवाही से जख्मी सड़कें दे रहीं जनता को दर्द
+-  Farrukhabad News: छह माह बाद संस्कृत विद्यालय में शिक्षक पद के लिए हुआ साक्षात्कार
+-  Farrukhabad News: हाजिरी रजिस्टर में रसोइया की चढ़ा दी एडवांस अनुपस्थिति
+-  Farrukhabad News: चीनी से ज्यादा मीठा है गुड़ का कारोबार
+-  Farrukhabad News: सचिव के आदेश पर भी अपलोड नहीं की पदोन्नत शिक्षकों की सूची
+-  Fylkir fær varnarmann úr efstu deild í Bandaríkjunum (Staðfest)
+-  शिक्षा व जल संरक्षण के काम में न हो लापरवाही : राज्यपाल
+-  Amethi News: अध्यक्ष, सचिव सहित चार पदों के लिए 26 को होगा मतदान
+-  Jhajjar-Bahadurgarh News: साइबर ठगी के मामले बढे़, टॉस्क पूरा कर कमीशन का लालच दे रहे ठग
+-  Jhajjar-Bahadurgarh News: नागरिक अस्पताल में कब ठीक होगी लिफ्ट, मरीज व तीमारदार परेशान
+-  Rusko pridalo Navaľného spojenkyňu na zoznam hľadaných osôb
+-  Jhajjar-Bahadurgarh News: कानौंदा में 15 लाख से होगा गली का निर्माण
+-  Jhajjar-Bahadurgarh News: विवाहिता की आत्महत्या के मामले में तीन पर केस दर्ज
+-  Jhajjar-Bahadurgarh News: महेंद्रगढ़ कैनाल पर 1.50 करोड़ की लागत से बन रहा पुल
+-  Jhajjar-Bahadurgarh News: वैध कॉलोनियों में अवैध जमीन को मान्य करवाने की कार्रवाई तेज
+-  Jhajjar-Bahadurgarh News: हड्डी के रोगी धूप निकलने के बाद करें सैर
+-  Jhajjar-Bahadurgarh News: एक लाख रुपये के इनामी फुटबाॅल महाकुंभ का आगाज
+-  Shamli News: जिले में तीन हजार फर्जी वोटरों का खुलासा, मरने के बाद भी जिंदा थे 7584 वोटर
+-  Shamli News: राज्यमंत्री ने दिए लंबित मामलों का जल्द निस्तारण करने के निर्देश
+-  Shamli News: एटीएम उखाड़ने के प्रकरण में काशीपुर क्राइम ब्रांच ने डेरा डाला
+-  Shamli News: जिला अस्पताल से इलाज की जद्दोजहद, नहीं मिल रहे चिकित्सक
+-  यूपी बोर्ड : अब 128 केंद्रों पर 98 हजार परीक्षार्थी देंगे परीक्षा, तीन केंद्र बढ़े
+-  Shamli News: भाजपा कार्यकर्ताओं ने राहुल गांधी और कल्याण बनर्जी का पुतला फूंका
+-  राष्ट्रीय गणित दिवस:बीएचयू में वैदिक गणित में शुरू होगा डिप्लोमा कोर्स, विद्यार्थी जान सकेंगे बारीकियां
+-  Pilibhit News: बीसलपुर में घर से तीन दिन की नवजात लापता
+-  Pilibhit News: गन्ना लदी ट्रैक्टर-ट्राॅली की टक्कर से एंबुलेंस चालक की गई जान
+-  Pilibhit News: बालिका से दुष्कर्म की कोशिश करने वाले को दस वर्ष की कैद
+-  Pilibhit News: बाघ का अब नया ठिकाना खन्नौत नदी की झाड़ियां
+-  Jind News: कड़ाके की ठंड में मुसाफिरों को मिलेगा आशियाना
+-  Jind News: मिमिक्री को मुद्दा बना कर जाटों व खापों से जोड़ने पर माजरा खाप ने जताया रोष
+-  España fortalece su cooperación en Darién ante el récord de llegadas de migrantes en 2023
+-  Aligarh News: अतरौली में सांड़ के हमले से लकड़ी के ठेकेदार की मौत, लगाया जाम
+-  Aligarh News: सात महीने से बकाया वेतन नहीं मिलने पर दिया धरना
+-  Chandigarh News: बिजली उपभोक्ता की शिकायत का निवारण नहीं करने पर एक्सईएन व एसडीओ निलंबित
+-  Chandigarh News: आईएएस विजय दहिया और जयबीर आर्य बहाल, अभी नहीं दिए विभाग
+-  Chhattisgarh : धमतरी में बड़ा हादसा, शटरिंग गिरने से तीन मजदूर दबे, एक की मौत, दोनों घायल अस्पताल में
+-  Fatehpur News: विद्युत सप्लाई बाधित कर लाखों के ट्रांसफार्मर उपकरण चोरी
+-  Fatehpur News: पारा नौ डिग्री तक गिरा, जिला अस्पताल में बढ़े दमा रोगी
+-  Fatehpur News: पूर्वी से पश्चिमी बाईपास तक सड़क की होगी मरम्मत
+-  Fatehpur News: मतदाता सूची में शामिल होंगे 52 हजार नए मतदाता
+-  Sonipat News: ढाबे पर खाना खाने आए दो गाड़ी चालकों में झगड़ा, किया हवाई फायर
+-  Sonipat News: 13 लाख लोगों ने लगवाई थी कोरोना की दूसरी डोज, बूस्टर डोज 62 हजार ने ही लगवाई
+-  Sonipat News: इलेक्ट्रिक तराजू में छेड़छाड़ कर गेहूं खरीद के तोल में झोल
+-  Sonipat News: कैसे जगमग होगा शहर, फैंसी लाइट लगाने का सामान खत्म, अटका काम
+-  Sonipat News: महिला का हत्यारा 23 साल बाद गिरफ्तार, बाबा बनकर रह रहा था
+-  Sonipat News: एनसीआर प्रदूषण मुक्ति की ओर... अगले माह से 375 इलेक्ट्रिक बसें शुरू होंगी
+-  Sonipat News: ओलंपियन रवि दहिया के गांव नाहरी में नहीं बना खेल स्टेडियम व पीएचसी भवन
+-  Sonipat News: कच्चे क्वार्टर बाजार में प्रधानों ने खुद हटवाया अतिक्रमण
