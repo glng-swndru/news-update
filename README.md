@@ -1,51 +1,11 @@
 # Latest News
--  장종태 전 대전 서구청장 “박병석 자존심 서구 갑, 반드시 사수”
--  “선원으로 일할게”... 선주 속여 선용금 수천만원 가로챈 사기꾼 구속
--  철원, 동계청소년올림픽대회 붐업 위한 전국초교 스피드스케이팅 대회 개최
--  식약처, 의료제품 이어 식품도 사전상담제 도입 ... 제품화 전략적 지원
--  Groundbreaking Kodim IKN, Jokowi Minta Pembangunan tak Banyak Tebang Pohon
--  Ofrece FBI 25 mil dólares de recompensa por homicidio de 1994
--  Pasangan kekasih terselamat dua nahas berbeza hari sama
--  Liverpool pesta gol belasah West Ham
--  Federal judge blocks California law that would have banned carrying firearms in most public places
--  งานเข้า! ตำรวจจับ ดาราดัง เมาแล้วขับ แอลกอฮอล์พุ่งสูง 235 มิลลิกรัม
--  서울 체감 '영하 22도' 시베리아 추위…모스크바보다 20도 낮다
--  Microsoft inks carbon removal deal with offsets startup Chestnut
--  USD/JPY dropping under 143.00 - sings of higher inflation in Japan weighing
--  Federal judge blocks California law that would have banned carrying firearms in most public places
--  कोलकाता में चिकन 60 रुपये प्रति किलोग्राम महंगा हुआ, क्या UP, बिहार समेत दूसरे राज्यों में भी महंगा होगा? जानें
--  Trolean de lo lindo a China Suárez por escaso público en show musical que presentó en un mall
--  Mariah Carey cozies up to Joe Biden, takes her twins to White House after Bryan Tanaka split
--  Youtuber Cilik Asal Jogja Leika Garudita Merilis Lagu Main Sepatu Roda
--  Necessity for climate- resilient practices in construction highlighted
--  Fonavi: horarios para cobrar desde este jueves 21, qué documentos llevar y quiénes podrán hacerlo
--  Naqvi orders land allocation for smart police stations
--  Inmates teach prisoners how to cook gravy on national gravy day
--  Inmates teach prisoners how to cook gravy on national gravy day
--  Cuaca Besok Jumat 22 Desember 2023: Langit Jakarta Siang hingga Malam Berawan
--  Trent Brown doubles down on post about Malik Cunningham: ‘I’m glad he’s in a better place’
--  Senamhi lanza alerta naranja por lluvias en Perú: ¿dónde se sentirán y hasta cuándo?
--  Union minister Dharmendra Pradhan seeks Centre’s help on Rourkela diarrhoea outbreak
--  Ерөнхийлөгч асан Х.Баттулга сонсголд ирсэнгүй
--  FACT CHECK: ‘Privacy note’ to stop use of Facebook photos, info is fake
--  Meeting finalises KP Health Security Action Plan 2024-2028
--  В Красноярске провели масштабный капремонт музыкальной школы
--  МО РФ рассказало об операции по извлечению взрывателя от ВОГ из раненого солдата
--  Insólito: cajera rompió billete de 100.000 en su primer día de trabajo y no se lo perdonaron en redes
--  Does Apple have a plan for resolving the patent issue affecting certain Watch models in the US?
--  Kylian Mbappé marcó dos goles, jugó con su hermano y se abrazó al entrenador Luis Enrique en el triunfo de PSG el día de su cumpleaños 25
--  Boşanmaların əsas səbəbləri bunlardır
--  ‘서울의 봄’ 단체 관람 두고…보수단체 “교육권 침해” vs 전교조 “학교의 선택”
--  Milei firmó un DNU con más de 300 reformas para iniciar la “desregulación económica de la Argentina”
--  Ind W vs Aus W: पहला टेस्ट आज से, इतिहास की पहली जीत दर्ज करेगी टीम इंडिया?
--  People term election as pivotal for progress
--  Study shows AI image-generators being trained on explicit photos of children
--  Sectores primarios y estratégicos, prioridad del presupuesto del Estado para 2024
--  Odisha ranks lowest in inflow of FDI in last 5 years
--  ¡Lamentable! Joven se quita la vida al interior de su domicilio en Tehuacán
--  PAS under-training officers call on KP Chief Secretary
--  Puncak Musim Liburan Di Tengah Peringatan Ancaman Keamanan
--  Hyundai Home Shopping Elevates Deal-Commerce with ‘The Naked Ad Studio’ on YouTube
--  ترسيخ قيم الإيجابية والوطنية.. "أوقاف القاهرة" تعقد لقاء ثقافيا بكلية الدعوة بمدينة نصر
--  Beyoncé and Jay-Z rent bus for private tour of NYC with kids, visit Christmas tree at Rockefeller Center
--  Hujan berterusan di Pantai Timur, Johor sehingga Isnin
+-  傳字節跳動今年營業額逾 1,100 億美元，有望超越騰訊
+-  GAA 才剛量產，英特爾、三星、台積電開始展示下一代 CFET 架構
+-  US House Committee Sends Harvard A Letter Demanding Documents in Plagiarism 'Investigation'
+-  Kiderült, mennyi pénzért „hajolnak le” a telekocsisok
+-  Mercato - PSG : Neymar va plomber la carrière de Mbappé ?
+-  Экс-главу ЦБ Латвии приговорили к шести годам колонии за рыбалку
+-  Gelorakan Pemilu Damai, Ditpamobvit Polda Riau 'NGOPI' Bareng ASN
+-  Τέλη κυκλοφορίας: Έως πότε έχετε προθεσμία για την πληρωμή - Τι θα γίνει με την παράταση
+-  [21일 인천 강화군] 고향사랑기부제 목표액 초과 등
+-  Mackenzie Arnold AKA Australia’s Minister Of Defence Has Returned To Surprise Fans This Xmas
