@@ -1,51 +1,51 @@
 # Latest News
--  القسام توجه رسالة للمستوطنين: نتنياهو مصرّ على قتل الأسرى
--  Wildcat strike at Eurotunnel ends with train traffic set to resume
--  4 آلاف فرنسي يقاتلون مع الجيش الإسرائيلي بغزة
--  "التعليم" و "نزاهة" تستعرضان تجارب عملية في تطبيق الحوكمة في القطاع العام
--  Mısır: Kızıldeniz'de ortaklarla işbirliği içindeyiz
--  Avrupalı liderlerden Çekya'daki saldırıya kınama
--  Ankaragücü ve Hatayspor maçında kazanan çıkmadı
--  Etawah News: दो ऑटो की भिड़ंत में चार महिलाओं सहित पांच घायल
--  Etawah News: परीक्षा पे चर्चा के लिए पंजीकरण शुरू
--  Etawah News: शिशु वर्ग की सामूहिक नृत्य प्रतियोगिता में माउंट लिट्राजी अव्वल
--  समाज के उपेक्षित वर्ग की आवाज बनेगा सर्वजन सुखाय पार्टी : शिवप्रसाद
--  Etawah News: वकीलों ने कराई सेहत की जांच, दी गई दवाई
--  Etawah News: सहकारी समिति से डीएपी की बोरी चुराने में तीन गिरफ्तार
--  Farrukhabad News: 36 अपूर्ण मुख्यमंत्री आवासों को पूरा कराने के निर्देश
--  Etawah News: लूट के मामले में तीन को सात-सात साल की सजा
--  Farrukhabad News: अधिशासी अभियंता शहरी ने एसडीओ जेई को सौंपी मामले की जांच
--  Etawah News: प्रदेश में कोरोना की दस्तक ने बढ़ा दी लोगाें की चिंता
--  Farrukhabad News: आठ घरों में लाखों की चोरी में पुलिस के हाथ खाली
--  Farrukhabad News: ईवीएम वेयर हाउस में लगाई गई आग, मुकदमा दर्ज
--  Rishikesh News: हथकरघा का प्रशिक्षण ले रहीं 30 महिलाएं
--  Rishikesh News: गंगा में राफ्ट पलटने से बंगलूरू के पर्यटक की मौत
--  Rishikesh News: तीन दिन में दो हाथियों की मौत, सुरक्षा पर उठने लगे सवाल
--  Rishikesh News: बरसाती नाले पर अतिक्रमण, बना दी तीन दुकानें
--  Dehradun News: धोखाधड़ी से संपत्ति अपने नाम करने वाले चार आरोपी गिरफ्तार
--  Dehradun News: मुख्यालय और सीआईडी में तैनात कर्मचारियों को देनी होगी घंटे के हिसाब से काम की जानकारी
--  Dehradun News: कोरोना के डर से न खाएं अनावश्यक दवाएं, काढ़ा भी पूछकर लें
--  Dehradun : उद्योगपति सुधीर विंडलास गिरफ्तार, सीबीआई ने पिछले साल दर्ज किये थे जमीन धोखाधड़ी के तीन मामले
--  Siddharthnagar News: सभी पात्रों को मिल रहा योजनाओं का लाभ
--  Siddharthnagar News: प्रशासन पर पक्षपात करने का लगाया आरोप
--  Siddharthnagar News: 10 अस्पतालों में आग से बचाव के लिए दी जानकारी
--  Siddharthnagar News: हादसे में घायल के बचाव के लिए आएं आगे
--  Siddharthnagar News: किसी पशु को नहीं पहनाया काउ कोट, ठंड से बेहाल बेजुबान
--  Siddharthnagar News: भगवान साथ हैं लेकिन हमें भी उनके साथ रहना होगा
--  Maharajganj News: जिला सहकारी बैंक में किसानों को तीन प्रतिशत पर केसीसी लोन
--  Siddharthnagar News: धूप पर भारी पड़ी पछुआ हवा, गलन से कांपे लोग
--  Maharajganj News: दोपहर में एक घंटे नहीं मिलीं गोरखपुर और ठूठीबारी की बसें, यात्री परेशान
--  Hardoi News: वाहन ने ऑटो में मारी टक्कर, सभासद के बेटे की मौत
--  Siddharthnagar News: 68 किमी नेपाल सीमा पर लगेंगे 24 टॉवर, आठ किमी दायरे में बेहतर होगी कनेक्टिविटी
--  Maharajganj News: फरार आरोपी को बारह दिन बाद किया गिरफ्तार
--  Hardoi News: दिव्यांग मेले के लिए डीएम ने सौंपी जिम्मेदारियां
--  Siddharthnagar News: ब्लॉक स्तरीय सांसद खेल महाकुंभ कराने की बनी रणनीति
--  Maharajganj News: पनिअहवां पुल से नदी में कूद गया ठूठीबारी का व्यापारी
--  Hardoi News: लंबी कूद में करन, ऊंची कूद में फारूख ने मारी बाजी
--  Maharajganj News: दिव्यांगों को कैरियर बनाकर सरहद पार करा रहे नशे का सामान
--  Hardoi News: ग्राम पंचायत सदस्यों को 23 माह का मानदेय न देने पर वेतन रोका
--  Maharajganj News: फर्जी पासपोर्ट के साथ पकड़े गए ईरानी नागरिक को दो वर्ष की सजा
--  Maharajganj News: नेपाल के बेलहिया में भारतीय पर्यटकों से बिचौलिए कर रहे अवैध वसूली
--  हसुड़ी औसानुपर : कार्बन न्यूट्रल पंचायत बनाने के लिए बजट पर मंथन
--  Jind News: जिले के 1472 विदुर व अविवाहितों की बनेगी पेंशन
--  Jind News: पत्नी ने गांव के युवक के साथ मिलकर पति की डंडों से पीटकर की हत्या
+-  év végére 6 százalék alá is eshet az éves infláció
+-  Ankaragücü-Hatayspor maçı golsüz eşitlikle sona erdi
+-  Alex Batty: l'adolescent retrouvé 7 ans après sa disparition placé sous mesure de protection
+-  Jadwal KRL Jogja Solo dan KRL Solo Jogja Terbaru Hari Ini, Jumat 22 Desember 2023
+-  UŽIVO! REAL - PARTIZAN! Meč koji svi čekaju: Crno-beli gostuju šampionu i lideru!
+-  Sales finally start for condos at fraud-tied San Jose housing project
+-  Fluks udhëtarësh në Qafë Thanë
+-  BEŞİKTAŞ ALANYASPOR MAÇ SONUCU! Beşiktaş Alanyaspor maçı kaç kaç bitti? Kartal galibiyete hasret!
+-  ¿Cuál es el sueldo por trabajar en el campo en Estados Unidos? Extranjeros lo revelan
+-  Allocations familiales, APL... Y a-t-il vraiment de la préférence nationale dans la loi immigration?
+-  «أزرق السلة» يلتقي ليبيا في ختام تحضيراته لـ «العربية»
+-  «الأزرق» مستقر بالمركز 136 عالمياً
+-  العربي يتخطى السالمية.. ويستعيد الصدارة
+-  القادسية للانفراد بالصدارة أمام الجهراء غداً
+-  النخبة العربية الثالثة للتنس تنطلق في قطر الأحد المقبل
+-  2216 ديناراً متوسط تكلفة مرضى «كورونا» والحالات الحادة تكلف ثلاثة أضعاف البسيطة
+-  اليرموك يتعادل مع الساحل في «الأولى»
+-  العوضي: «السكنية» تطرح مناقصتين لإنجاز البنية التحتية لـ 13812 قسيمة بجنوب صباح الأحمد السكنية 24 الشهر الجاري
+-  انطلاق الجولة الثانية لدوري الفروسية اليوم
+-  قتلى بإطلاق نار في براغ.. والشرطة التشيكية تؤكد مقتل المنفذ
+-  «السكنية» تجري القرعة للدفعة السابعة من الضاحية الرابعة بجنوب سعد العبدالله الأحد
+-  ختام «فروسية الراحل مهند البحر»
+-  وزير خارجية الإمارات وأمين سر منظمة التحرير الفلسطينية بحثا الأوضاع الإنسانية في غزة
+-  Lille: le lycée Averroès avait fait l'objet d'un "rapport extrêmement positif"
+-  «الكهرباء»: منح 15 وحدة تنظيمية شهادة الأيزو 2015..9001
+-  وزير الأشغال زار مستشفى الولادة الجديد
+-  Peacock espera que los cuartos de la NFL sin publicidad lo saquen de una espiral de muerte
+-  Panamá registró la mayor subida en el ránking FIFA de 2023
+-  Ejecutivos internacionales conocen operación de STATCOM de ETESA
+-  "Türkiye'deki Şehirler Transformer Olsaydı Nasıl Görünürdü?" Sorumuza Yapay Zekânın Verdiği Şahane Cevaplar
+-  حدث في 8 ساعات| الصحة تكشف موقف المتحور الجديد.. وإطلاق المشروع القومي لـ"ميكنة العلاج الحر"
+-  "الفصل المظلم" من تاريخ إسرائيل.. وثائق تكشف علاقة تعاون بين قادة الصهيونية والنازية
+-  "اتخانق مع اخوه".. كواليس جثة بولاق الطائرة
+-  ليلة رأس السنة.. 3 أبراج فلكية على موعد مع الفرج
+-  Aplicaciones de inteligencia artificial como Stable Difussion se han entrenado con imágenes de abuso sexual infantil
+-  Nowe otwarcie w TVP. Przed "Wiadomościami" pojawiła się plansza
+-  Marcin Ociepa z PiS wypowiedział się dla nowych "Wiadomości" TVP. "Nie ma bojkotu?"
+-  Israelische NGO verklagt Rotes Kreuz wegen unterlassener Hilfeleistung an Geiseln
+-  Nigerian government to inaugurate committee for selection of new ambassadors
+-  Mandić: Milatović mogao da se suzdrži od komentara, u Beogradu sam...
+-  "Ajkule" promašile peterac za pobjedu, Italiji trofej
+-  Santa Clara County reports low COVID-19 vaccination rates for latest booster shot
+-  Valle Colino se plantea volver a cobrar por la adopción de animales abandonados de Tenerife
+-  Lekkoatletyka. Gwiazdy spadają na święta. Nasza elita wraca z zagranicznych wojaży. Hiszpania, Portugalia, RPA, Katar i... Spała.
+-  La oportunidad de los muelles
+-  "Entre los médicos molesta que llamen doctora a una enfermera"
+-  BEŞİKTAŞ HABERLERİ - Omar Colley: Kabus gibiydi!
+-  Quick! Get these last-minute gifts for the gamer in your life
+-  A 9-month-long cruise is going viral on TikTok. We spoke to the passengers
+-  KOLIKA JE PROSEČNA UŠTEÐEVINA HRVATA? Iznenadiće vas i broj milionera u komšiluku
