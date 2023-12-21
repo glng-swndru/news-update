@@ -1,11 +1,51 @@
 # Latest News
--  Blackhawk Network, Kakao 및 디즈니+와 제휴
--  ΔΕΔΔΗ: Διακοπές ρεύματος σε Αθήνα, Άλιμο, Πετρούπολη
--  Vivek Ramaswamy Hits Out As California Look To Bar Trump From Polls
--  Bitcoin ETF Approval Can Come Earlier Than Expected, BTC levels To Watch
--  Billionaires Turn to Legal Bribery in Quest to Build Utopia
--  Seth Meyers Breaks Down Trump’s Colorado Ballot Nightmare
--  Justice SK Kaul: A Supreme Court Judge, An Artist
--  НАСА и Лос Аламос с революционен експеримент - почистване на атмосферата от ядрен взрив
--  How much cash a person can keep at home? Details of Income Tax rules about cash limits
--  How the next Kobbie Mainoo is being nurtured as inside story of Man United starlet revealed
+-  중소기업중앙회 제주, 사업자가 알아야 할 노무관리 설명회
+-  ‘도박 중독 공격수’, 1월에 팀 떠난다... 디렉터도 인정, “이적할 시기가 다가온다”→첼시, 아스널 2파전
+-  توقعات "الأرصاد": أمطار رعدية على تبوك والجوف وضباب بهذه المناطق
+-  عاجل.. حساب المواطن يرد على المستفيدين ويكشف سر هذه المشكلة
+-  "التعليم" تطالب بفك الارتباط بين العلاوة السنوية والرخصة المهنية
+-  بشرى للخريجين.. "روشن" تفتح باب التقديم لعشرات الوظائف في مختلف التخصصات
+-  Hong Kong unionist jailed for taking sister's phone, laptop before search
+-  태백시 레슬링선수들. 대회 '금·은·동' 메달 싹쓸이
+-  졸업식에 교육감표창 6년만 재추진…전교조 강원지부, 도교육청 규탄 회견
+-  전세계 124개 국민들이 즐기는 김 수출 1조 달성
+-  윤 대통령 "도심 소규모 정비사업 활성화 주거환경 개선하자"
+-  임영웅의 선한 영향력, 지역 아동들의 따뜻한 겨울로 전파
+-  이석천 양양군분재연구회장, 자랑스런 임업인상 수상
+-  속초종합사회복지관 성과보고회
+-  양양군의회 교육간담회
+-  철원지역 농협 겨울나기 성금 2500만원 전달
+-  우미린어린이집 월드비전에 사랑의 빵 저금통 전달
+-  원주 중앙성결교회, 소외이웃 후원품 전달
+-  원주 대성중고 총동문회, 취약계층 이불 후원
+-  강원특별자치도 문화관광해설사 상생협력 포럼 개최
+-  삼척시청소년수련관, 목공예품 기부
+-  경동, 이웃돕기 성금 기탁
+-  고성군수협 이웃돕기 성금 기탁
+-  안재필 행정복지국장 명예퇴직 공로패 수여
+-  믿음이엔지 고성향토장학회 장학금·사랑의 성금 기탁
+-  고성청년회의소 사랑의 성품 기탁
+-  강원에너지산업 화재 재난가구 지원
+-  서석면 남녀의용소방대 성금 기탁
+-  바르게살기운동 홍천군협의회 성과대회
+-  NH농협 홍천군지부 성품 전달
+-  내설악 백공미술관 성금 기탁
+-  대한노인회 인제군지회 성금 기탁
+-  선영어린이집 이웃돕기 후원
+-  도청소년활동진흥센터 운영위원회
+-  임영웅 팬클럽 초록우산 강원본부에 후원금 전달
+-  K-water 강원지역협력단 난방기 지원
+-  도남자단기·일시(고정형)청소년쉼터 운영위원회
+-  کاغذات نامزدگی وصول اور جمع کرانے کا سلسلہ دوسرے روز بھی جاری
+-  Gratis! Tol Pamulang-Cinere Dibuka Mulai Besok Pukul 00.00 WIB
+-  IPW Desak Penyidik Polda Metro Jaya Segera Tahan Firli Bahuri
+-  동서발전, 에너지 혁신성장 위한 노사 공동선언·단체협약 체결
+-  98 Tahun Mahathir Mohamad, Perjalanan Petugas Medis Menjadi Perdana Menteri Malaysia
+-  ForexLive Asia-Pacific FX news wrap: USD/JPY back under 143.00
+-  손흥민, 팬이 보낸 편지에 ‘울컥’ 눈물 쏟았다…“인생에서 가장 중요한건”
+-  Tribunal Imposes Rs 1,400 Cr Liability On Sebi, NSE, And NSDL In Karvy Scandal
+-  आज का राशिफल 1 जनवरी 2024, Aaj Ka Rashifal 1 January 2024
+-  Jokowi Senang Ada Investor Masuk dari Kalimantan Timur dan Balikpapan untuk Pembangunan IKN
+-  尹 “재개발·재건축 절차 원점 재검토…착수기준 ‘노후성’으로 바꿔야”
+-  檢, ‘허위보도 의혹’ 前 민주당 화천대유 TF 대변인 압수수색
+-  술자리서 직장 동료 폭행해 숨지게 한 60대 현행범 체포
