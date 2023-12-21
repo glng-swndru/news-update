@@ -1,11 +1,51 @@
 # Latest News
--  Özgür Özel, Fransa Büyükelçisi'ni Kabul Etti
--  Държавата може да изкупи вземания на БЕХ и “Булгаргаз” от “Топлофикация София” до 1.6 млрд. лв.
--  Meteoroloji'den çok sayıda il için uyarı geldi... Yarına dikkat: Çok kuvvetli olacak
--  Otomobilden Burun Farkıyla Kurtuldu, Motosikletten Kurtulamadı
--  वैदेशिक रोजगारीमा जानेका लागि आप्रवासी स्रोत केन्द्र
--  Prof. Görür İYİ Parti'nin İstanbul adayı mı olacak?
--  वक्तृत्वकलामा भानु मावि प्रथम
--  Полският министър на културата уволни шефовете на телевизията, радиото и ПАП
--  أخبار سارة للاردنيين.. منخفض الجمعة من الدرجة الثانية
--  أنتِ طالق
+-  بشرى من الجوازات بخصوص هذا الأمر.. التفاصيل
+-  آبل تصدر نظام التشغيل iOS 17 لإصلاح أخطاء آيفون ومعالجة مشكلات البطارية
+-  Borussia Dortmund tut es schon wieder – Fans sitzen auf heißen Kohlen
+-  Υποψήφιος στην ΚΕΔΕ ο Χάρης Δούκας
+-  Joulumatkustus on lähes koronaa edeltävällä tasolla – yleisin matkasairaus selvitettiin
+-  Chatta med DN:s Jonas Fröberg om jultrafiken
+-  Woman finds coded telegraph in antique dress, computer analyst cracks it
+-  Darkie: The History Behind Darlie’s Old Racist Name & Logo
+-  See what’s cooking at the Elgin Marble Company
+-  S'pore woman orders S$2,850 porcelain tile for renovations, contractors leave it at roadside for 3 days
+-  ΙΝΣΕΤΕ: Στα 24 δισ. ευρώ ή 11,5% του ΑΕΠ η άμεση συμβολή του τουρισμού το 2022
+-  Dinaphi convoque 39 pompiers volontaires après la non-reconduction de 4 pompiers volontaires accusés de ne pas avoir suivi leur quota de formations
+-  RTVS už láka divákov na svoj „Dunaj“: Pozrite si prvé zábery seriálu
+-  À Mont-Saint-Guibert, la première station de recharge électrique installée dans un parc d’affaires wallon
+-  В Казани снесут незаконно построенное кафе на Воровского и киоски
+-  Tesla Electric erases homeowner’s electricity bill and pays him $1000
+-  Znakomite efekty ciężkiej pracy
+-  A csempevágás művészete és praktikái
+-  Three talking points from Barcelona 3-2 Almeria
+-  Po Lidze Mistrzów czas na Superligę
+-  Canciller posesiona a dos nuevos Viceministros
+-  رايتس ووتش: ميتا تخنق الأصوات المؤيدة لفلسطين
+-  إقرار النظام الإداري لهيئة الخدمة والإدارة العامة
+-  الموافقة على تسوية الأوضاع الضريبية لـ 1170 شركة ومكلفا
+-  Снайперисти от силите за специални операции на ВСУ ликвидираха руски разузнавачи край Купянск
+-  بالفيديو: جندية إسرائيلية تقف بوجه دبابة أثناء إطلاق قذيفة
+-  Irmão de Zezé Di Camargo expõe polêmicas de Zilu: 'Chama todo mundo de retardado'
+-  Avrupa Süper Ligi'nin başlayacağı tarih belli oldu
+-  Orbán Viktor elmondta, hogy miért Magyarországon volt a legmagasabb az infláció
+-  Laporta, abierto al diálogo: «La posición del Barça no va contra LaLiga»
+-  الموافقة على تسوية الأوضاع الضريبية لـ1170 شركة ومكلَّفًا
+-  Девочка из ЛНР скончалась по пути домой из Тюмени
+-  قطر تستضيف اجتماع مجلس أمناء المركز العربي للبحوث التربوية لدول الخليج
+-  LaLiga pide a la Comisión Europea medidas para conservar la estabilidad del fútbol europeo
+-  الانتخابات و ” سلاح المليشيات ” ورشاوى الحوار والفساد .. المرصد تحاور باتيلي
+-  ВСУ обстреляли брянское село Сопычи: ранен местный житель
+-  Antiklimax när Aquaman gör comeback
+-  Vicky Kaushal takes social media by storm after Shah Rukh Khan’s Dunki release
+-  ŠERIF KONJEVIĆ ŠOKIRAO REAKCIJOM! Poznati biznismen mu u ruke gura 10.000 EVRA, a njegova reakcija je NEOČEKIVANA (FOTO+VIDEO)
+-  "حصيلة القتلى تبلغ 20 ألفا"... الجيش الإسرائيلي "يأمر" بإخلاء منطقة على الفور!
+-  Új célt fogalmaztak meg
+-  Rozdávame dobro
+-  22 декабря в Рязанской области ожидается мокрый снег и до +4 градусов
+-  «2024 es el año que debe trazar nuevos rumbos para el comercio local»
+-  Matt Lucas and David Walliams rebooting Little Britain already sparks backlash
+-  Problemen bij Leimuiderbrug mogelijk verholpen, nog één afsluiting om te testen
+-  Mrs Hinch reveals new diagnosis for her and son aged 4 with ‘hard but magical days’
+-  Epstein's 'Naughty List' Connected with Trump's Disqualification from Colorado' Ballot? Speculation on Social Media
+-  Refuerzan control policial en ferias
+-  Israel Bombs More Gaza Targets As Envoy Seek Truce
