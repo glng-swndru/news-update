@@ -1,11 +1,11 @@
 # Latest News
--  «التحول الرقمي» البرلمانية تستطلع آراء المؤسسات الحكومية في تعديل «المعاملات الإلكترونية»
--  Apple's latest bid to delay Apple Watch Sales Ban is Denied
--  İmmuniteti zəiflədən əsas səbəblər
--  И догодина ще има компенсации за скъпия ток
--  جمعية الفنانين الكويتيين تهنئ سمو الأمير: قائد حكيم أمين
--  Predstavljen logo Svetskog prvenstva u krosu u Beogradu /FOTO/
--  Komunalci oplemenili zelenu površinu u Ulici dinastije Balšića
--  Komunalci oplemenili zelenu površinu u Ulici dinastije Balšića
--  Daily horoscope for December 22: What are the stars trying to tell you?
--  Tiktok-stjärnan ska bli MMA-fajter: ”I ringen är det allvar”
+-  İYİ Parti Ankara'da 4 ilçe başkanı görevden alındı
+-  Gençlik ve hesap
+-  Kocasından devraldığı köy kahvesini 17 yıldır işletiyor
+-  Beyaz cennette ziyaretçi rekoru!
+-  Soumya Sarkar&#039;s 169 not enough as New Zealand beats Bangladesh by 7 wickets in 2nd ODI
+-  Ukrainian town faces tough winter, a year after driving out Russian forces
+-  انطلاق مباريات الجولة السابعة والثامنة من الدوري الليبي
+-  Help conserve water by choosing solar panels that are responsibly made: REC Group's call to action for homeowners and businesses
+-  Yksi Joutsenon henkirikoksesta tuomituista vaati vapauttamistaan hovioikeudessa
+-  ¿Hasta qué hora abren las administraciones de Lotería para comprar un décimo de Navidad 2023?
