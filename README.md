@@ -1,51 +1,51 @@
 # Latest News
--  EU to shift new regulations as probe into X
--  Unify: ecco la piattaforma per il calcio in streaming della Superlega
--  Edirne Belediye Başkanı hakkında istenen ceza belli oldu. Üç ayrı suçtan yargılanıyor
--  ICAR-CIFA organised Farmer-Scientist Interface Programme on Freshwater Aquaculture in Aloi, Balipatna, Khordha
--  Michelle Keegan wows in LBD as she joins husband Mark Wright and family to celebrate his dad's birthday
--  పేదల ఆరోగ్యం, ఆర్థికాభివృద్ధే ప్రధాని మోదీ లక్ష్యం
--  నిండుకుండను తలపిస్తున్న కోయిల్‌సాగర్‌ ప్రాజెక్టు
--  Dürr scheidet im ersten Durchgang aus - Shiffrin zur Halbzeit vorne
--  استياء متزايد بين الأميركيين من دعم بلادهم لإسرائيل في حرب غزة
--  أكثر من 15 قتيلا بإطلاق نار في جامعة تشيكية
--  سرايا القدس تقصف حشود الاحتلال بخان يونس
--  Körper und Seele wieder in Einklang bringen
--  Einbruch in Mömbriser Getränkemarkt
--  SVI DETALJI SVAĐE SESTARA KOVAČ Kristina napisala otvoreno pismo i JAVNO SE ODREKLA rođene sestre Aleksandre: "To što je izrekao njen partner je skandalozno"
--  Un ladrón con una careta de Darth Vader apuñala a un hombre para robarle 80.000 euros
--  Yunanistan'da pembe bayrak tartışması
--  Lideri UAE čestitali Vučiću pobedu SNS na izborima
--  Nana Falemi a venit la premiera din România a filmului cu Jason Momoa. Ce vedete autohtone au mai venit la eveniment.
--  Iarna se dezlănțuie: când începe urgia. Zonele cele mai afectate de furtuna Pia, cât ține vremea rea
--  Zevenaarse Joënna brengt vrede rond op de fiets
--  Caso Letty Cando: Reformulan cargos contra el sospechoso
--  Conferencia en la central obrera: “La CGT y todos los gremios estamos en pie de lucha para que el pueblo argentino no pierda un solo derecho”
--  Professeure empoisonnée dans les Yvelines: "Il ne peut pas s'agir d'une mauvaise blague", pour Maxime Reppert (vice-président du Syndicat national des lycées, collèges, écoles et du supérieur)
--  ابو عبيدة: نوجه التحية لشعبنا في الضفة والقدس الذي يواجه الهجمة النازية للاحتلال ونحيّي مقاتلي أمتنا الذين يربكون العدو وخصوصاً في جبهتي اليمن ولبنان
--  LASWA, NIMASA, Others Reiterate Commitment to Waterways Safety
--  أبرز المحطات في قضية لوكربي
--  Plagiarism charges against Harvard's president throws school into more investigations
--  Toluca estaría cerca de fichar a jugador del Liverpool
--  هل يمكن النظر في طلبات التملك التي تم إحياؤها بعد 1387هـ؟ إحكام توضح
--  تفاصيل جديدة في واقعة اختطاف طفلتين بعد تخديرهما في مصر.. "الأم" تخرج عن صمتها
--  La course au Coach de l’année NBA 2024 : qui est le numéro 1 du classement ? Apéro TrashTalk
--  Рэпер, обвиняемый в насилии в отношении женщины, выступит на предновогоднем мероприятии
--  End-year break delays City Power from resolving electricity outages
--  Нафтата с трансфер
--  Casal é acordado por ladrão em Balneário Camboriú e invasão acaba com dois esfaqueados
--  Diego Guauque dedica emotivo video a su mujer: 'Necesita un esposo y ahí voy a estar'
--  Fusillades à Marseille: la difficulté de "récupérer" les jeunes pris dans les trafics
--  Where is American child star Bow Wow now?
--  Var: la commémoration des 100 ans de la disparition du dirigeable Dixmude
--  Jetzt ist es sicher: Kai Häfner ist bei der EM dabei
--  Quaker retira del mercado lote de granola que se distribuyó en Costa Rica por posible bacteria
--  Charles Michel diz que ataques como o de Praga não podem crescer na UE
--  Nice: jugé pour harcèlement et discrimination, Christophe Galtier relaxé
--  US Hopes New Polish Gov’t Will ‘Seize Initiative’ and Become EU Leader
--  Vuelo MH370 de Malaysia Airlines: testigo clave rompió el silencio y reveló detalles
--  Île-de-France: trafic "exceptionnel" sur les routes, plus de 450 km de bouchons cumulés
--  ¿Qué significa ‘tutaina tuturumá’? Este es el origen del famoso villancico en Colombia
--  The Super League had its day in court and won. What is it and why do some fans and clubs object?
--  ليبيا.. المنفي يبحث مع الكبير تحديد آلية تنسيق أعمال اللجنة المالية العليا
--  AK Parti Sözcüsü Ömer Çelik açıkladı: 10 ilde adaylar belli oldu!
+-  השופטים יקבלו רענון, האיגוד: פסילת הפנדל למכבי תל אביב שגויה
+-  ‘A Comprehensive Failure of Humanity’: Thomas Sadoski on the Crisis in Yemen and Why Hollywood Must Step Up
+-  البوعيشي : زوجات الليبيين من الجنسيات الأجنبية في قائمة حجاج الموسم الحالي .
+-  اختتام أعمال المنتدى الوزاري العربي الخامس للإسكان والتنمية الحضرية بطرابلس.
+-  التعليم : الاثنين القادم الامتحانات النهائية للفصل الدراسي الأول لصفوف النقل بمرحلتي التعليم الأساسي والثانوي .
+-  صندوق الضمان الاجتماعي يحيل قيمة فروقات الزيادة للمتقاعدين عن شهري 1و 2 من العام 2022.
+-  اختام الدورة التدريبية في مجال الادارة الرياضية التي نظمتها اللجنة الاولمبية الليبية .
+-  نورلاند وبرنت يثنيان على الدبيبة لتقديمه أسماء ممثليه في المحادثات التحضيرية التي يقترح باتيلي عقدها لحل القضايا السياسية التي تعيق الانتخابات وتشكيل حكومة وطنية موحدة.
+-  التعاون يفوز على ضيفه الصقور بهدف دون رد .
+-  البعثة الأممية تعرب عن قلقها إزاء الإعلان عن وفاة المهدي البرغثي.
+-  Pakistan squad kicks off training for Boxing Day Test against Australia
+-  الحويج يصدر قرارا بوقف العمل مؤقتاً بالقرار السابق الخاص بتنظيم إستيراد السلع .
+-  Fenerbahçe Avrupa Süper Ligi'ni desteklemiyor
+-  CANLI| Beşiktaş-Alanyaspor
+-  Çaykur Rizespor evinde Pendikspor'u 5-1 mağlup etti |ÖZET
+-  Kara Kartal'ın golcüsü stoper Colley
+-  Anzeige – Jubiläumsausgabe: 50 Jahre AVU Heimatvorteil: Ein Blick zurück und nach vorn
+-  London travel chaos as Euston services cancelled and last-minute strike hits Eurostar
+-  Hurry! iRobot's 1-day Christmas shipping ends today - save up to $645 on robot vacuums and mops
+-  The 15-inch Apple MacBook Air for under $1,000 is worth getting as a late Christmas present
+-  المالية أعلنت آلية تقديم التصريح الشخصي لضريبة الدخل عبر النظام الالكتروني
+-  Lesor 105, prvi sledći 79 - Ledej i Mitrović jedini "večiti" u Top 20
+-  UŽIVO Može li Zvezda da nastavi seriju protiv Makabija?
+-  Asegura síndica que cuidarán aplicación del presupuesto en 2024
+-  Suspendidos vuelos en aeropuerto de Juárez por neblina
+-  Tiroteo en universidad de Praga deja 11 muertos
+-  Cae uno por muerte de 5 estudiantes de medicina en Celaya
+-  Abschied aus MotoGP-Programm: Paolo Ciabatti als Ducati-Sportdirektor abgelöst
+-  Hamas rejected another hostage-for-prisoner exchange without a permanent cease-fire
+-  Soccerladuma | Messi Was 'Furious' With Argentina Teammate During World Cup
+-  Northern Suburbs RFC name captain for new season
+-  Michael B. Jordan and the ‘Creed III’ Team On Taking Inspiration from Anime and the Film’s Universal Message
+-  7 More Things We Just Learned About Final Fantasy VII Rebirth
+-  Legende Reala pobedile Partizan
+-  Şili'nin kuzeyinde 5,7 büyüklüğünde deprem
+-  O kojim video-igrama se najviše pisalo ove godine?
+-  Musk väittää Teslan Autopilotin olevan ihmiskuskia turvallisempi – Tutkija penkoi totuuden tilastoista
+-  Сказочная новогодняя елка от Федерации бокса России пройдет в Серпухове‎
+-  پاکستانی شناختی کارڈ بنوانے کی کوشش میں افغان شہری دروش نادرا آفس سے گرفتار،
+-  Manchester United otti kantaa kohuttuun Superliigaan
+-  Nuorilla Leijonilla edessään MM-kenraali - tässä kokoonpano
+-  Un millón de euros para Las Edades del Hombre en Villafranca del Bierzo
+-  Spectacular boomer shooter Ultrakill adds Layer 7 of Hell itself
+-  Турпоток из России на Кубу в январе-октябре вырос в 3,5 раза
+-  Mueren dos militares por unos ejercicios con bajas temperaturas en un lago
+-  El llamativo sincericidio de Rihanna tras presentar su nueva colección
+-  BayCare Names Kristy Croom Tucker New Vice President, Marketing
+-  Холтофф устоял после удара бутылкой, но оказался бессилен перед бордюром
+-  Southampton U21 coach sends thankful goodbye message after departure
+-  Feyenoord samen met tientallen clubs tegen Super League
