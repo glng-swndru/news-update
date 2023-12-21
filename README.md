@@ -1,51 +1,51 @@
 # Latest News
--  Chandigarh: aumento del 31% en las plazas en las escuelas públicas para la sesión académica 2024-25
--  “ولي العهد المتهور تعلم الدرس”.. سبب غياب الرياض وأبوظبي عن التحالف الدولي ضد الحوثي
--  Farrukhabad News: अफसरों की लापरवाही से जख्मी सड़कें दे रहीं जनता को दर्द
--  Farrukhabad News: छह माह बाद संस्कृत विद्यालय में शिक्षक पद के लिए हुआ साक्षात्कार
--  Farrukhabad News: हाजिरी रजिस्टर में रसोइया की चढ़ा दी एडवांस अनुपस्थिति
--  Farrukhabad News: चीनी से ज्यादा मीठा है गुड़ का कारोबार
--  Farrukhabad News: सचिव के आदेश पर भी अपलोड नहीं की पदोन्नत शिक्षकों की सूची
--  Fylkir fær varnarmann úr efstu deild í Bandaríkjunum (Staðfest)
--  शिक्षा व जल संरक्षण के काम में न हो लापरवाही : राज्यपाल
--  Amethi News: अध्यक्ष, सचिव सहित चार पदों के लिए 26 को होगा मतदान
--  Jhajjar-Bahadurgarh News: साइबर ठगी के मामले बढे़, टॉस्क पूरा कर कमीशन का लालच दे रहे ठग
--  Jhajjar-Bahadurgarh News: नागरिक अस्पताल में कब ठीक होगी लिफ्ट, मरीज व तीमारदार परेशान
--  Rusko pridalo Navaľného spojenkyňu na zoznam hľadaných osôb
--  Jhajjar-Bahadurgarh News: कानौंदा में 15 लाख से होगा गली का निर्माण
--  Jhajjar-Bahadurgarh News: विवाहिता की आत्महत्या के मामले में तीन पर केस दर्ज
--  Jhajjar-Bahadurgarh News: महेंद्रगढ़ कैनाल पर 1.50 करोड़ की लागत से बन रहा पुल
--  Jhajjar-Bahadurgarh News: वैध कॉलोनियों में अवैध जमीन को मान्य करवाने की कार्रवाई तेज
--  Jhajjar-Bahadurgarh News: हड्डी के रोगी धूप निकलने के बाद करें सैर
--  Jhajjar-Bahadurgarh News: एक लाख रुपये के इनामी फुटबाॅल महाकुंभ का आगाज
--  Shamli News: जिले में तीन हजार फर्जी वोटरों का खुलासा, मरने के बाद भी जिंदा थे 7584 वोटर
--  Shamli News: राज्यमंत्री ने दिए लंबित मामलों का जल्द निस्तारण करने के निर्देश
--  Shamli News: एटीएम उखाड़ने के प्रकरण में काशीपुर क्राइम ब्रांच ने डेरा डाला
--  Shamli News: जिला अस्पताल से इलाज की जद्दोजहद, नहीं मिल रहे चिकित्सक
--  यूपी बोर्ड : अब 128 केंद्रों पर 98 हजार परीक्षार्थी देंगे परीक्षा, तीन केंद्र बढ़े
--  Shamli News: भाजपा कार्यकर्ताओं ने राहुल गांधी और कल्याण बनर्जी का पुतला फूंका
--  राष्ट्रीय गणित दिवस:बीएचयू में वैदिक गणित में शुरू होगा डिप्लोमा कोर्स, विद्यार्थी जान सकेंगे बारीकियां
--  Pilibhit News: बीसलपुर में घर से तीन दिन की नवजात लापता
--  Pilibhit News: गन्ना लदी ट्रैक्टर-ट्राॅली की टक्कर से एंबुलेंस चालक की गई जान
--  Pilibhit News: बालिका से दुष्कर्म की कोशिश करने वाले को दस वर्ष की कैद
--  Pilibhit News: बाघ का अब नया ठिकाना खन्नौत नदी की झाड़ियां
--  Jind News: कड़ाके की ठंड में मुसाफिरों को मिलेगा आशियाना
--  Jind News: मिमिक्री को मुद्दा बना कर जाटों व खापों से जोड़ने पर माजरा खाप ने जताया रोष
--  España fortalece su cooperación en Darién ante el récord de llegadas de migrantes en 2023
--  Aligarh News: अतरौली में सांड़ के हमले से लकड़ी के ठेकेदार की मौत, लगाया जाम
--  Aligarh News: सात महीने से बकाया वेतन नहीं मिलने पर दिया धरना
--  Chandigarh News: बिजली उपभोक्ता की शिकायत का निवारण नहीं करने पर एक्सईएन व एसडीओ निलंबित
--  Chandigarh News: आईएएस विजय दहिया और जयबीर आर्य बहाल, अभी नहीं दिए विभाग
--  Chhattisgarh : धमतरी में बड़ा हादसा, शटरिंग गिरने से तीन मजदूर दबे, एक की मौत, दोनों घायल अस्पताल में
--  Fatehpur News: विद्युत सप्लाई बाधित कर लाखों के ट्रांसफार्मर उपकरण चोरी
--  Fatehpur News: पारा नौ डिग्री तक गिरा, जिला अस्पताल में बढ़े दमा रोगी
--  Fatehpur News: पूर्वी से पश्चिमी बाईपास तक सड़क की होगी मरम्मत
--  Fatehpur News: मतदाता सूची में शामिल होंगे 52 हजार नए मतदाता
--  Sonipat News: ढाबे पर खाना खाने आए दो गाड़ी चालकों में झगड़ा, किया हवाई फायर
--  Sonipat News: 13 लाख लोगों ने लगवाई थी कोरोना की दूसरी डोज, बूस्टर डोज 62 हजार ने ही लगवाई
--  Sonipat News: इलेक्ट्रिक तराजू में छेड़छाड़ कर गेहूं खरीद के तोल में झोल
--  Sonipat News: कैसे जगमग होगा शहर, फैंसी लाइट लगाने का सामान खत्म, अटका काम
--  Sonipat News: महिला का हत्यारा 23 साल बाद गिरफ्तार, बाबा बनकर रह रहा था
--  Sonipat News: एनसीआर प्रदूषण मुक्ति की ओर... अगले माह से 375 इलेक्ट्रिक बसें शुरू होंगी
--  Sonipat News: ओलंपियन रवि दहिया के गांव नाहरी में नहीं बना खेल स्टेडियम व पीएचसी भवन
--  Sonipat News: कच्चे क्वार्टर बाजार में प्रधानों ने खुद हटवाया अतिक्रमण
+-  США могут представить России новое предложение по обмену заключенными
+-  OBROVSKÁ RANA Pri nehode opatrovateliek ZOMRELA mama a vedúca FOLKLÓRNEHO súboru IVETKA: Prvé slová SESTRY trhajú srdce
+-  لجنة اممية : خطر المجاعة في غزة يتزايد كل يوم
+-  كتائب شهداء الأقصى تكشف حصيلة عملياتها خلال 3 ايام
+-  Москва: Киев загуби 160.000 војници за шест месеци
+-  مؤتمر دولي بنواكشوط حول "تمكين المرأة في المجال الرقمي"
+-  Más de 2 horas estuvo cerrada vía Panamericana por derrumbe de tierra
+-  JYPin uuden päävalmentajan debyytistä tuli karmea painajainen
+-  Lauri Marjamäen potkinut Kärpät hävisi taas
+-  Fiocruz firma acordo que torna acessível tratar artrite reumatoide
+-  Ο ΠΟΥ κρούει τον κώδωνα του κινδύνου: Η νέα υποπαραλλαγή JN.1 του κορονοϊού εξαπλώνεται ταχύτατα σε όλο τον κόσμο
+-  Müllwagenfahrer gerät in Gegenverkehr – Alkoholtest liefert bedenkliches Ergebnis
+-  Com Endrick e John Kennedy, Ramon convoca Seleção para o Pré-Olímpico
+-  نواز شریف نے مریم نواز کے الیکشن لڑنے کی شرط لگا دی
+-  «Аякс» вылетел из Кубка Нидерландов, проиграв «Геркулесу» из третьего дивизиона
+-  Gabigol se pronuncia e nega exigências divulgadas em relação à renovação com o Flamengo
+-  Кирби прокомментировал вопрос об использовании активов России для Украины
+-  Ex-Man Utd star demands club bring back Mason Greenwood after star striker’s performances at Getafe
+-  إنتاج الطماطم في المغرب.. تراجع خطير وارتفاع غير مسبوق في الأسعار
+-  Eintracht Frankfurt adia 'festa' do apuramento do Benfica aos quartos
+-  Yuletide: Tinubu arrives Lagos for holidays
+-  Biokaasutankki tipahti kuljetusauton kyydistä Oulussa
+-  Así operará el transporte público en la CDMX estas fiestas decembrinas
+-  Traveling for the holidays? Check out Sky Harbor's newest restaurants
+-  UEFA Women's Champions League 2023/24: Alle Ergebnisse: So schlug sich Eintracht Frankfurt gegen SL Benfica
+-  REAL - PARTIZAN Crno-beli na mestu zločina protiv prvaka Evrope
+-  VASPITAČICA GOVORILA U POLICIJI O TRAGEDIJI U VRTIĆU &quot;Dečak je zaspao, a posle nekog vremena budile su svu decu...&quot;
+-  Police conduct drug awareness programme at 2,300 schools and colleges across Karnataka
+-  Ashley Cain’s ex Safiyya cosies up to Towie star and says she’s finally ‘got a smile back on her face’
+-  Ashley Cain’s ex Safiyya cosies up to Towie star and says she’s finally ‘got a smile back on her face’
+-  Un miliardo di euro in meno ai poveri: così il governo fa cassa sui più poveri
+-  Platia výstrahy pred snežením aj povodňami
+-  Rudy Giuliani meldet Insolvenz an
+-  Zvezda podelila poklone deci sa Instituta za onkologiju i radiologiju
+-  Pijan na trajektu napao kapetana i vrijeđao policiju pa završio u zatvoru
+-  Skupština Dinama usvojila novi Statut kluba
+-  Vujović: Finansiranje NVO iz javnih fondova je ulaganje u razvoj
+-  Мадуро рассказал про "братский разговор" с Путиным
+-  Honor 90 GT chega com até 24 GB de RAM e recargas de 100 W
+-  Estudo leva voluntários a inalar poluição para ver impacto no cérebro
+-  Grêmio entra em 'briga' com Juventude por zagueiro do Palmeiras
+-  Filme italiano entra em 'shortlist' do Oscar de melhor estrangeiro
+-  كاتبان أمريكيان: إرسال بايدن حشودا عسكرية للشرق الأوسط توريط لواشنطن
+-  First of DIA’s new concourse train cars pulls into the station, more on the way
+-  DOBRO RAZMISLITE PRE NEGO ŠTO KUPITE AUTOMOBIL: Evo koji se najviše kvare, a i koji su najpouzdaniji
+-  Τραγωδία στην Ημαθία: Καταπλακώθηκε από το αυτοκίνητό του και πέθανε
+-  Kierrosraportti: KalPa löi murskalukemat taululle Lappeenrannassa, kolme veräjänvartijaa piti maalinsa puhtaana
+-  برنامج تنمية القدرات البشرية يعلن عن وظائف بعدة تخصصات
+-  Rudy Giuliani meldet Insolvenz an
+-  بعد وضعها تحت مخالبه.. أفعى تنهي حياة صقر بحيلة ماكرة
