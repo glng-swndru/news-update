@@ -1,51 +1,11 @@
 # Latest News
--  Primi Passi nel Trading: Guida per Principianti
--  Primavera, verso Torino-Empoli: i granata per difendere i playoff
--  The iPhone 16 might be just as powerful as the iPhone 16 Pro Max
--  Menora Mivtachim leapfrogs top insurance rivals
--  طقس بارد ورطوبة منخفضة في هذه المناطق
--  Amphion open source Text-to-Speech (TTS) AI model
--  RSS backs caste census, says it should be used for societal development
--  Mariah Carey and Bryan Tanaka separate after 7 years
--  Covid-19 variant JN.1: Karnataka govt to form cabinet sub-committee
--  Tamil Nadu: Central team assesses flood damages in Tirunelveli district
--  Ultra Air Heater Reviews Revealed [Consumer Reports] Don’t Buy Until Ultra Air
--  BCCI provides crucial injury update on Ruturaj Gaikwad; Rajat Patidar makes ODI debut against South Africa in decider
--  Así es el formato de la Superliga: 64 equipos "sin miembros permanentes", ascensos y descensos, partidos gratis...
--  Merkez Bankası rezervlerinde üst üste 3. rekor
--  Police invite Phyna over failure to return rented wig
--  Christmas 2023: 9 creative ways to celebrate the festival with your pet
--  Milei anuncia un decreto para desregular la economía argentina y privatizar empresas públicas
--  'The melodies are mega!' Liam Gallagher and John Squire announce first single from joint LP
--  3 festive foods that'll help you sleep this Christmas (and 4 that'll keep you awake)
--  '95 years of adventures...': Metallica's Lars Ulrich mourns loss of dad Torben
--  Maren Morris was 'sick' when she recorded flawless Teddy Swims duet
--  Dschungelcamp 2024: Starttermin, Kandidaten, alle Infos zur Show
--  Sanxenxo amplía su programa navideño con un musical con sello vecinal
--  US-Regisseur Martin Scorsese erhält Goldenen Ehrenbären
--  Σε πανικό οι γονείς μετά τον θάνατο 8χρονου από στρεπτόκοκκο – Ποια είναι τα συμπτώματα και πότε κινδυνεύει το παιδί από σηπτικό σοκ
--  Club La Matica conquista vigésimo noveno torneo baloncesto superior La Vega
--  Japan protests South Korean Supreme Court ruling on forced labor compensation
--  Ankara Valiliği'nden belediyelere 'sokak hayvanları' talimatı
--  الجزيرة: دفعة صاروخية كبيرة باتجاه تل أبيب الكبرى
--  Sunoko će ove godine proizvesti više od 200.000 tona šećerne repe
--  El conflicto en el Mar Rojo pone en jaque el transporte de mercancías
--  ملک بھر میں بینک 3 دن بند رہیں گے
--  Hrvat preuzeo klub iz Kenije: ‘Ovdje ima 40 plemena s različitim jezicima, ne razumiju ni jedni druge‘
--  Pascal Praud et vous - Noël : les bons conseils du nutritionniste Jean-Michel Cohen avant le repas
--  El conflicto en el Mar Rojo pone en jaque el transporte de mercancías
--  OFICJALNIE: Komunikat Florentino Péreza w sprawie Superligi. „To wielki dzień dla historii futbolu i dla historii sportu”
--  PlayStation fans can grab an incredible 88-rated game for pennies – it’s 90% off
--  DFL unterstützt UEFA nach EuGH-Urteil: Ablehnung der Super League
--  Milei anuncia un decreto para desregular la economía argentina y privatizar empresas públicas
--  DR får kritik for »skræmmende« indslag i Israel-dækning. Nu retter de fejlen
--  NI: российский самолёт Су-35 — эффективный противник для истребителей США
--  OTS: J.P. Morgan Asset Management / Umfrage von J.P. Morgan Asset Management ...
--  ANALYSE-FLASH: Barclays senkt ProSiebenSat.1-Ziel auf 6,50 Euro - 'Equal Weight'
--  بانی پی ٹی آئی کا انتخابات میں حصہ لینے کا راستہ بند، توشہ خانہ فیصلہ معطل کرنے کی درخواست مسترد
--  Merkez Bankası rezervlerinde bir rekor daha
--  Razer Fujin Pro review - exceptional comfort, exceptionally pricey
--  Buffett, le principali mosse sui mercati nel 2023
--  Energie-Paket für die Ukraine: Bundesregierung zahlt Kiew fast 90 Millionen Euro
--  Marca de Selena Gomez tem novidades para o corpo - e estão à venda por cá
--  Shoppers racing to Primark for ‘classy and elegant’ outfit that’s perfect for party season – and the bodysuit is just £8
+-  CBDT Modifies Safe Harbour Definition For Group Loans
+-  BJP Confident Of Winning Over 50 Seats In J&K, Will Not Enter Into Pre-Poll Alliance: Ashok Koul
+-  Personal Loan Interest Rates Today, December 21, 2023 | Get a Personalized Quote
+-  Simon Gregson flooded with support from Coronation Street co-stars as he trades soap for BBC show this week
+-  New Discoveries Shed Light on Cellular Aging and Potential Treatments
+-  Football : le Real Madrid et le FC Barcelone main dans la main pour défendre le projet de Super Ligue
+-  Football: l'UEFA affiche sa «confiance» dans la légalité de ses nouvelles règles
+-  Le journal du mercato : Kimpembe prolonge au PSG, Sage évasif sur son avenir à l'OL
+-  Football: «La Super Ligue est un modèle égoïste et élitiste», déplore La Liga
+-  Football: la Superligue remporte une bataille judiciaire face à l'UEFA
