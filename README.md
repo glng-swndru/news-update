@@ -1,51 +1,11 @@
 # Latest News
--  Discussion on book at cancelled at last moment in Pune, publisher alleges
--  Nilgün Belgün'den kötü haber! Apar topar hastaneye kaldırıldı
--  Valioliiga-seura päivitti sydänkohtauksen saaneen kapteeninsa tilannetta
--  L’Ethiopie empoisonne le 3e mandat d’Al-Sissi : Elle continue de remplir son méga barrage au risque d’assécher l’Egypte
--  Impressive Bologna look to prove top-four credentials against Atalanta
--  مجمع الملك سلمان العالمي للغة العربية يختتم برنامج الاحتفاء باليوم العالمي للغة العربية في مقر الأمم المتحدة
--  Pääkirjoitus: Jouluksi mieluummin perille kuin sairaalaan
--  Ramai di Media Sosial soal iPad Penumpang Hilang di Bus, Begini Tanggapan Rosalia Indah
--  Isi Lengkap Surat G-Dragon Usai Gabung di Agensi Baru, Ungkap Resolusi 2024 hingga Umumkan Perang Lawan Narkoba
--  Llega Valoriza para gestionar la basura de Cáceres y se va Conyser
--  "Билайн" отключит на архивных тарифах опцию безлимитных звонков на Украину с 21 декабря
--  Силуанов сообщил, что размер ФНБ составляет 11,8 трлн рублей
--  Two boats on fire at Larnaca marina
--  Three men caught in £1m drugs and dirty money organised crime raid jailed
--  Los equipos del IES Marqués de Santillana visitan Grupo SIEC, su empresa guía
--  Силуанов: несмотря на волатильность цен на нефть обязательства бюджета будут выполнены
--  В Астане в рамках Дней Москвы открылась выставка "Люминесценция"
--  مصر .. تعامد الشمس على معابد الكرنك الفرعونية معلنة بداية فصل الشتاء
--  "Манчестер Юнайтед", "Атлетико" и "Бавария" отказались от участия в Суперлиге
--  Rite Aid banned from facial recognition tech use for 5 years after faulty theft targeting in stores
--  وزير الإسكان يتفقد الشريط النهري السياحي بأسوان
--  بسبب صواريخ المقاومة.. زعيم المعارضة الإسرائيلية يقطع اجتماعه مع مسؤولين فرنسيين
--  الفيضة الصغرى قادمة.. أجواء شتوية غائمة في بورسعيد- فيديو
--  الحماية المدنية تنقذ كلبًا عالقًا ببوابة حديقة بالفيوم
--  خالد جلال ينعى فنان السيرك القومي الدكتور عبد الله مراد
--  فيديو مرعب وبيان رسمي.. الداخلية تكشف تفاصيل اختطاف فتاة إلى المطار
--  محافظ القليوبية يتفقد الهايبرات بالخانكة والعبور للتأكد من توافر السلع
--  الأرصاد تُعلن طقس أول أيام الشتاء: أمطار وأتربة وتحذيرات - فيديو
--  بسبب هجمات الحوثيين.. إعلام عبري: نشاط ميناء إيلات الإسرائيلي تراجع بنسبة 85%
--  غرق سيدة في نهر النيل بسوهاج.. الابن كشف السبب
--  منها القرح وتساقط الشعر.. طبيبة توضح أهمية الزنك للجسم وأعراض نقصه
--  سعر الذهب اليوم في مصر يرتفع إلى 3 آلاف جنيه بمنتصف التعاملات
--  7 نصائح لمرضي الحساسية خلال وجود عواصف رملية.. حذرت منها «الأرصاد»
--  Htio je biti predsjednik, a sad je kralj: Radnicima dijeli ogromne božićnice i luksuzna putovanja
--  ارتفاع السكر واللحوم والعدس بالأسواق اليوم الخميس (موقع رسمي)
--  Силуанов считает устойчивым сформированный бюджет РФ на 2024-2026 годы
--  Türk bankacılık sektörüne faiz kararı etkisi
--  4 Fransız vatandaşı Burkino Faso'da casusluktan tutuklandı
--  İtfaiye aracı kaza ihbarına giderken devrildi: 3 yaralı
--  Derbinin kaderi kalecilerin ellerinde
--  İsrailli aşırı sağcı Weiss'ten küstah açıklama
--  Merkez Bankası deprem bölgesi için kararı uzattı
--  İspanyol basınından sürpriz iddia! Türk kulüplerinden Avrupa Süper Ligi kararı
--  Türkiye ve Çin'den batarya ortaklığı! Bakan Kacır: Farklı oyuncular da adım atabilir
--  YEARENDER | Djokovic still the man but youngsters knocking on the door
--  NGO redah banjir ‘termenung’ agih bantuan undang sebak penerima
--  Gaza: l’ONU réclame une enquête à Israël sur un «possible crime de guerre»
--  Nabil Ammar: Une invitation à visiter la Tunisie avait été envoyée à Vladimir Poutine
--  Bahra primila sakramente, sad je spremna za Božić: ‘Osjećam se nadarena Duhom svetim’
--  Эксперт Минздрава сообщил о росте заболеваемости коклюшем в России
+-  Sparatoria in discoteca, muore un ex giocatore del Toro
+-  Soccerladuma | Ronaldo & Juve Continue Court Battle Over R400m 'Owed'
+-  Soccerladuma | 'Now DJ Cleo will make a song about his son replacing Khune’
+-  Η Γιουνάιτεντ «έριξε άκυρο» και στη νέα European Super League!
+-  Operación Omega: 146 aprehendidos y 3 armas decomisadas
+-  दिल्ली ज्यूडिशियल सर्विस परीक्षा की आंसर की जारी, जानें कब आएगा रिजल्ट
+-  KL police chief: 1,101 foreign nationals held in integrated op in Jalan Silang
+-  Samsung Partners With Netflix To Bring ‘Squid Game’ Universe to Life in Immersive Live Experience
+-  Azerbaijani SOCAR counts on reaching zero emissions by 2050
+-  Gloucester Rugby in the latter stages of signing Welsh international scrum-half
