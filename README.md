@@ -1,51 +1,51 @@
 # Latest News
--  Altech DFS predicts AU$5b EBITDA for anodes project
--  ‘คลัง’ เตรียมถกแบงก์รัฐหั่นดอกเบี้ยอุ้มหนี้ข้าราชการ
--  김태흠 지사 “대설·한파 대응 철저” 당부
--  Mother likely suffered 'violent' death, coroner finds
--  भुक्तानी ढिलाइले तनावमा ठेकेदार
--  Two men have been charged with stealing equipment from telecommunications sites in the Far North
--  China warns Philippines to resolve South China Sea tensions via dialogue
--  川島海荷 所属事務所との契約終了
--  What we learned: Cowboys still searching for answers away from home
--  Congress in Rajasthan Assembly condemns suspension of MPs
--  한동훈, 국민의힘 비대위원장직 수락…오후 이임식 예정
--  '주식 큰손' 양도세 확 준다…대주주 기준 10억→50억원
--  ◇대구시교육청 인사(1월1일자)
--  尹대통령, 독거노인 집 찾아 주거환경 점검
--  달빛철도 특별법 국토위 법안소위 통과
--  В Курской области потушили загоревшийся компьютер в офисном помещении
--  MCG curator Matt Page drops first hint on second Test pitch against Pakistan
--  Ρωσία-Αραβικός Σύνδεσμος: Χρειάζεται να υπάρξουν εγγυήσεις για την ασφάλεια των θαλάσσιων μεταφορών
--  Lika-Liku Gugatan Praperadilan Firli Bahuri, Hakim Imelda Herawati: Permohonan Tidak Diterima
--  विदेश जाने महिनामै पौने लाख
--  بايدن: ترامب يشكل العديد من التهديدات لبلدنا وديمقراطيتنا
--  Arriban granaderos a retirar a pobladores de Xalmimilulco en la Puebla-México
--  Mahmut Cigercioglu: Jealous husband jailed after brazen streetside attack over ‘rejection’
--  Mahmut Cigercioglu: Jealous husband jailed after brazen streetside attack over ‘rejection’
--  松野氏らに任意聴取を要請 特捜部
--  3 điều rút ra trong chiến thắng của Liverpool trước West Ham
--  Mourinho cứu rỗi sao Chelsea
--  David Moyes hoàn toàn bất lực trước sát thủ mang tên Liverpool
--  Inter Milan “méo mặt” vì chấn thương của Lautaro Martinez
--  Huyền thoại Liverpool chỉ ra cái tên đáng sợ nhất đội hình Arsenal
--  Quỷ đỏ có quyết định cuối cùng dành cho Varane, Casemiro
--  Danny Murphy dự đoán kết quả đại chiến Liverpool - Arsenal
--  Sir Jim đến, Antony phải ra đi
--  "Cậu ta cứ như ngọn hải đăng vậy"
--  Xavi: "Không thể chấp nhận được"
--  BLV Quang Huy nói thẳng vấn đề của Kiatisuk tại HAGL
--  CHÍNH THỨC: Premier League ra thông báo sau sự việc ngừng tim
--  Thắng nghẹt thở đội bét bảng, Barca trở lại top 3 La Liga
--  Chấm điểm Liverpool: Đâu cần tới Salah, vì Klopp đã có Curtis Jones!
--  8 lần chấp tay đôi thắng, tiền đạo Liverpool gây ấn tượng mạnh
--  Người hùng Barca: 'Tôi đã nghe thấy CĐV la ó'
--  Những ngôi sao Ngoại hạng Anh sắp vắng mặt vì Asian Cup 2023
--  Với Curtis Jones, ông già Noel đã đến sớm với Liverpool
--  Nghịch lý kẻ Barca muốn bán cho M.U
--  Mất trắng 73 triệu bảng, M.U đẩy 'cừu đen' khỏi Old Trafford
--  Jarell Quansah có điều khoản lạ trong hợp đồng với Liverpool
--  Xavi ca ngợi cứu tinh của Barca
--  Thắng giòn giã, Klopp vẫn thẳng thắn chê một điều tại Anfield
--  Đấu Arsenal, Klopp cầu cứu Anfield
--  Xavi: "Barca trả giá đắt vì sai lầm cá nhân"
+-  پنجاب میں شدید دھند، موٹروے کو مختلف مقامات سے بند کر دیا گیا
+-  Bemba Royal Establishment Disapproves Unlawful Use of Chitimukulu’s Image in Political Messaging
+-  Corona Virus: ਮੁੜ ਵੱਧਣ ਲੱਗੇ ਕੋਰੋਨਾ ਵਾਇਰਸ ਦੇ ਕੇਸ, ਚੰਡੀਗੜ੍ਹ ਨੇ ਜਾਰੀ ਕੀਤੀ ਸਖ਼ਤੀ, ਹੋਰ ਦੇਖੋ ਕਿਹੜੇ ਸੂਬੇ ਨੇ ਲਾਗੂ ਕੀਤੀ ਐਡਵਾਈਜ਼ਰੀ
+-  IMF Disburses US$187 Million To Zambia
+-  تربت لانگ مارچ اسلام آباد پہنچنے پر راستے بند
+-  드림어스컴퍼니, 미스틱스토리 손잡고 IP 비즈니스 확대 가속
+-  ขอให้โชคดีนะ! "ชิซุกะ-โนบิตะ-ไบรอัล" ลิงอุรังอุรังกลับบ้าน
+-  강정애 “보훈이 국민통합 마중물…보훈정책 근본 혁신”
+-  전국적 한파경보에…건강한 겨울 ‘집콕’ 생활 요령 3
+-  ‘20만 명 투약 분량’ 케타민 대량 밀수 총책, 항소심도 징역 14년
+-  Parliament Security Breach: सभी को एक साथ बिठाकर हुई पूछताछ, संसद सुरक्षा चूक मामले में आज आरोपियों की कोर्ट में पेशी
+-  Warner Bros. Discovery CEO David Zaslav’s Paramount Deal Talks
+-  Officials give warning about device converting a weapon into a fully automatic machine gun
+-  ഉറങ്ങുമ്പോൾ വരെ സാരിയുടുക്കും, അന്ന് വാണിയമ്മ പറഞ്ഞത് മറക്കില്ല; വല്ലാത്തൊരു ഫീലാണ് സാരി: മഞ്ജരി
+-  고창군 최대 23㎝폭설에 제설작업 총력전
+-  홍천군, 청소년정책 우수지자체 선정, 국무총리상 수상
+-  관광도시 강진, ‘반값 강진 관광’ 활성화 전략포럼 가져
+-  청송군, 2023 재정분석「우수 자치단체」선정
+-  파주시, 도시형교통모델 2년 연속 추가예산 확보
+-  Cestovní pouzdro pro retro herní konzoli Super Pocket
+-  İsrail'e açık uyarı: Derhal çekil! Savaşa neden olabilir
+-  میرے الیکشن لڑنے کا فیصلہ عدالتیں کریں گی، سرفراز بگٹی
+-  2023 Celebrity Highs, Lows, and WTF Moments: Nepo Babies and More
+-  Health minister defends film shoot at Peace Arch Hospital
+-  PNB declares income distribution of 5.25 sen for ASB
+-  Oficiální přehled ocenění Last Train Home
+-  Serán Andrea Chávez y Loera candidatos al Senado por Morena
+-  Con armas largas y encapuchados quitan a persona su vehículo
+-  Morning briefing: Friction in INDIA bloc; poll panel's policy revamp plan, and all the latest news
+-  Asegura Israel que tomó control del centro de poder político y militar de Hamás
+-  Maratha Reservation : मनोज जरांगे 24 डिसेंबरच्या अल्टिमेटमवर ठाम; पोलीस प्रशासन लागलं कामाला
+-  Verification Compulsory For These Aadhaar: 18 वर्षांवरील नव्याने आधारकार्ड काढणार्‍याचं आता प्रत्यक्ष व्हेरिफिकेशन होणार!
+-  Macron says French film star Depardieu target of a 'manhunt'
+-  Insulin : मधुमेही रुग्णांना आता 100 टक्के देशी इन्सुलिन मिळणार, किंमतही स्वस्त
+-  Merrill anota 27 puntos, por Cavs, que derrotan 124-116 a Jazz
+-  Coreia do Norte ameaça 'ataque nuclear' se for provocado
+-  Jennifer Lopez confesses she and Ben Affleck still have 'PTSD' from their first romance... but now they are 'older' and 'wiser' as a married couple
+-  करूर वैश्य बैंक से ग्लेनमार्क फार्मा तक, आने वाले हफ्तों में लाभ कमाने के लिए 10 स्टॉक विकल्प
+-  Girl Delivery Baby Rescued From Srivaikuntam: ஹெலிகாப்டர் உதவியுடன் மீட்கப்பட்ட கர்ப்பிணிக்கு குழந்தை பிறந்தது: தாய்-சேய் நலம்.!
+-  바이오헬스케어 기업 종사 인력 증가세
+-  [MD포토] 장나라 '포즈가 알려주는 동안미'
+-  '0골 1400억 윙어 골칫거리 내보낸다' 맨유, 이강인 절친 레이더 포착→708억 장전했다
+-  [MD포토] 장나라 '여전한 방부제 미모'
+-  “계약 전에 페디에게 연락했더니…” ML 달랑 2승? 152km 좌완이야, 공룡들 구세주일지도 몰라
+-  [MD포토] 손호준 '1인 3역 같은 열연'
+-  [MD포토] 손호준 '달달한 포즈'
+-  [MD포토] 손호준 '수줍은 미소 볼 하트'
+-  [MD포토] 소이현 '매력적인 미소'
+-  [MD포토] 소이현 '2년 만에 연기 선보여요'
+-  [MD포토] 소이현 '아름다운 옆태'
