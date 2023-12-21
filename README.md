@@ -1,11 +1,51 @@
 # Latest News
--  Dutch man among those hurt in Prague shooting that left 17 dead
--  كيف يمكن أن يؤثر موسم البرد على سلوكياتنا؟
--  అంగన్‌వాడీ వర్కర్ల సమ్మె
--  ఆదివాసీ మహిళ నిర్మలకు న్యాయం చేయాలి
--  పకడ్బందీగా ‘పంచతంత్ర’ అమలుచేయాలి
--  రేషన్‌ బియ్యం కొనుగోలు చేయొద్దు
--  Ράσταβατς: «Η συγκεκριμένη νίκη αποκτά άλλη αξία γιατί την πήραμε στην έδρα του ΟΦΗ»
--  Prentvélaeftirlit ríkisins
--  Lövöldözés volt a prágai Károly Egyetemen, legalább tizenöten meghaltak
--  Kyrgyzstan sees positive industrial development dynamic
+-  మతసామరస్యాన్ని దెబ్బతీసే నిర్మాణాలపై చర్యలు తీసుకోవాలి
+-  పెన్షన్‌ వస్తుందో.. రాదో
+-  ఆగుతూ ‘సాగు’తూ..
+-  Indian Trade Curbs To Cut Exports By $4 Bn, Red Sea Attacks A Risk: Report
+-  China Bans Export Of Rare Earth Processing Tech Over National Security
+-  IndiGo Settles Revised Rs 20 Lakh Penalty With DGCA For Four Tail Strikes
+-  Ukraine Gets Last Tranche Of EU’s 18 Bn Euro Aid Package
+-  M3M To Invest Rs 700 Cr In Noida Luxury Retail, Serviced Apartment Project
+-  US, China Top Military Officials Speak After Year Amid Stretched Relations
+-  Regulatory Body Bans Anti-cold Drug Combination For Kids Aged Under Four
+-  Yes Bank Co-founder Rana Kapoor Gets Bail In ED’s Case, Will Remain In Jail
+-  India Gets Consular Access In Nikhil Gupta Case In Czech Republic
+-  EU, UK Extend Trade Rules To Avoid Tariffs On Electric Vehicles
+-  నాలుగేళ్లుగా నిరుపయోగంగా!
+-  ప్రమాదవశాత్తు వ్యక్తి..
+-  Германия — Климат, пенсии, полеты, пособия: на чем правительство планирует экономить
+-  Nokia snizila ciljnu dobit za 2026.
+-  Ivanka Trump sports a bulletproof vest as she and husband Jared Kushner tour an Israeli kibbutz left devastated by Hamas horror attack - and speak to residents forced to flee their homes amid violent siege
+-  Koalicja 15 Października uznaje zmiany w mediach za fakt dokonany
+-  తెల్లబోతున్నారు..!
+-  John Legend holds son Wren after landing at JFK Airport in New York with his family and team of FOUR nannies
+-  Nicole Scherzinger shows off her dramatic hair transformation as she poses in a busty crop top for latest social media snaps
+-  Defensoría del Pueblo de Colombia reporta el asesinato de 163 defensores de los DD.HH. durante 2023
+-  న్యాయం చేసేవరకు పోరాటం
+-  La familia a la que se le quemó la casa en Tordoia espera poder cerrar el tejado este fin de semana
+-  Trent Brown: "Everybody" on Patriots believed Malik Cunningham deserved chance to play quarterback
+-  Jakob Norén knockad i JVM-genrepet: "Ingen klockren tackling"
+-  Μητσοτάκης για μακελειό στην Πράγα: Συντετριμμένοι όλοι μας από την αποτρόπαια επίθεση
+-  Maduro y Putin conversan telefónicamente para afianzar «la cooperación multifacética a todo nivel»
+-  Naira scarcity heavy burden for Nigerians – CACOL laments
+-  BREAKING: Two Rhode Island men face assault charges after fight with New England Patriots fan Dale Mooney who died in the stands
+-  В РФ приговорили к 12 годам колонии миллиардера родом из Беларуси
+-  Red Dead Redemption on Switch is already discounted in holiday sale
+-  “Buy me this players” Mauricio Pochettino makes £706m January transfer window promise amid Chelsea radar expansion
+-  Muere la escritora y periodista Cristina Pacheco
+-  أمريكا تكشف عن مخاوفها بشأن مشروع القرار الأممي الداعي لوقف القتال في غزة
+-  రెగ్యులర్‌ చేయాల్సిందే
+-  Жизни вне опасности: детский омбудсмен рассказала о состоянии детей из поезда Тюмень — Адлер
+-  گاڑیوں کے شوقین افراد کیلئے اچھی خبر آگئی
+-  Pour 2024, la Ville de Lorient veut mettre le paquet sur la végétalisation
+-  BRS victory would have expedited SCB-GHMC merger, says Cantonment MLA
+-  Донецкая муздрама провела более сотни показов для детей
+-  Streľba v Prahe: Prezidentka vyjadrila sústrasť a ponúkla prípadnú pomoc
+-  Här är de 15 mest lästa reportagen 2023
+-  Withdraw orderlies from retired IPS officers’ homes, says Karnataka govt.
+-  A jednak! Klub Polaka zszokował ws. Superligi
+-  Ausgezeichnete Architektur: Junge Architekten aus Stuttgart starten durch
+-  Winnipeg police investigate fatal stabbing, 19-year-old suspect in custody
+-  Ατρόμητος – Ολυμπιακός LIVE για την 15η αγωνιστική της Super League
+-  מבלי לתלוש פוסטרים: הוקם קיר החטופים הגדול בעולם
