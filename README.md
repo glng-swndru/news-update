@@ -1,51 +1,11 @@
 # Latest News
--  PPC unveils underground power cable
--  БМТ Ўзбекистон томонидан илгари сурилган резолюцияни қабул қилди.
--  FT: АҚШ Россия МБнинг музлатилган активларини Украинага бермоқчи.
--  Ўзбекистон ташқи савдо айланмаси ҳажми 57 млрд доллардан ошди.
--  Тошкентда Spark уриб юборган пиёда вафот этди.
--  АҚШ Венесуэла раҳбарига яқин ҳисобланган колумбиялик тадбиркорни озод қилди.
--  Махсус инспекция транспорт устидан назоратни амалга оширади.
--  בסרביה צוחקים על ברק בכר, נאתכו מרחם עליו: הדרבי שהכריע
--  Bachelor star Matty Johnson teases shock new career move as a STRIPPER during live TV appearance
--  Thursday At Market: PC Jeweller, ONGC, Varun Beverages Survive Amidst A Big Fall
--  Google-backed AI Startup Anthropic Targets $750 Mn Funding Round Led By Menlo Ventures
--  หอการค้าฯ หนุนรัฐเร่งแก้หนี้อย่างยั่งยืน
--  김포 풍무동 ‘김포 더 센트럴 포레’ 2,168세대 중 9동 1,011세대 우선 공급
--  Org. Munir: Tüm dost ülkelerle ilişkileri dengeli bir şekilde sürdürmek istiyoruz
--  두산, ‘KT 출신’ 스위치히터 헨리 라모스 영입…알칸타라·브랜든과도 동반 재계약 [공식발표]
--  Росгвардейцы спасли жителя Бурятии, в доме которого произошел пожар
--  Merkez Bankası yılın son faiz kararını bugün açıklayacak
--  제주도교육청 안전복지국장에 양윤삼
--  بداية السنة الجديدة على "العتمة": مخزون الفيول اقترب من "الصفر"
--  HƏMAS İsrailin atəşkəs şərtlərini rədd etdi
--  평택 고덕자동차매매단지, 무허가 개발행위 강행...평택시 알고도 '뒷짐'
--  野, ‘尹정부 2기 내각’ 비판 공세 강화…“보은·낙하산 인사”
--  다가온 ‘초고령 사회’…100세 이상 국민연금 수급자 10년새 6배 증가
--  海運加拿大輪胎貨櫃藏毒來港 海關檢值5200萬元大麻花拘3人
--  نظام غذائي شائع قد يعزز فرص المرأة في الإنجاب!
--  البورصة السلعية تعقد جلسة لتداول السكر اليوم وطرحه بسعر 27 جنيها للكيلو
--  الأقصر تحتفل بتعامد الشمس على مقصورة قدس أقداس الكرنك لبدء فصل الشتاء
--  مواعيد قطارات السكة الحديد فى الوجهين البحرى والقبلى
--  بيانات تأكد من وجودها بفاتورة البيع بالتقسيط أبرزها العائد السنوى
--  تكنولوجيا: كيفية إنشاء ملصقات على iPhone باستخدام صورك فى iOS 17
--  أخبار × 24 ساعة.. الحكومة: صفقات بـ5.6 مليار دولار نتيجة التخارج من 14 شركة
--  হার্টের রিং সরবরাহ বন্ধের প্রভাব রাজধানীর হাসপাতালে
--  قطع المياه لمدة 8 ساعات عن بعض مناطق الحوامدية مساء غد
--  تكنولوجيا: لماذا يجب عليك تحديث أجهزة ماك بوك الخاصة بك فى أسرع وقت؟
--  كولر يدرس عودة ديانج لوسط الأهلى أمام أوراوا اليابانى
--  اليوم التقدم لوظيفة مندوب مساعد بقضايا الدولة لجامعتى الزقازيق وبنها
--  More records tumble as China cold snap persists
--  '나의 해피엔드' 제작발표회, 장나라(Jang Na Ra)부터 손호준(Son Ho Jun)까지...6인 6색 포토타임 [MD동영상]
--  "재단 만들 것"…마약 누명 벗은 지드래곤, 갤럭시 손잡고 2024년 컴백한다 [종합]
--  증선위, 상장사 사외이사 미공개중요정보 이용 적발…검찰에 통보
--  Arabai skelbia sensaciją. Gazos Ruože pasirodė „Ukrainos kariuomenė“. Ukrainos reakcija (Video)
--  Baldi: “No vine para quedar bien”
--  Япония се насочва към превръщането си в ядрена сила
--  vivo X100 Pro今日開賣 蔡司APO浮動長焦遠攝初試有驚喜 20倍Zoom高質可用｜新機報價
--  Aurora definirá su futuro copero en “San Valentín”
--  Alex Saab, aliado de Nicolás Maduro, llega a Venezuela tras ser liberado en EEUU
--  El Red golea y pasa en la Carabao Cup
--  前TVB主播陳嘉倩寒冷天氣下罕晒泳照 玩滑梯畫面獲讚最驚喜：福利又大咗喎
--  Barça ‘respira’ tras sufrido 3-2 en casa
--  Conmebol anuncia que llave de Sudamericana es en Tarija
+-  장동훈 "아이들과 청년들의 미래 책임질 적임자"..총선 출마 선언
+-  Dolar kaç TL oldu? (21 Aralık 2023 dolar - euro fiyatları)
+-  [사진뉴스] 고드름에서 물줄기로...'순간포착'
+-  Lufthansa orders 80 planes from Boeing and Airbus for $9 bln
+-  L’ictus nel mezzo della vita: "Il mio risveglio spirituale"
+-  Ferragni e il pandoro griffato. Aperto fascicolo senza indagati. Il caso in mano al pool anti truffa
+-  Tuya Smart to Showcase Its Cutting-edge Technologies and Innovative Solutions at CES 2024
+-  Vándalos pintaron los accesos al memorial de Lincoln en Washington
+-  서귀포시 지역 환경오염물질 배출 사업장 급증
+-  동광리 우사 건축허가 반대 집회 개최
