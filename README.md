@@ -1,51 +1,51 @@
 # Latest News
--  ძალადობასა და ნარკოდანაშაულში ბრალდებული კაბუ ახალციხეში, საახალწლო კონცერტზე იმღერებს
--  Christodoulides to choose Cyprob negotiating team in January
--  Rizz: why the word of the year is misunderstood
--  Pažangiausias pasaulyje. Naujausias JAV karo monstras – „Orca“. Kas žinoma (Foto)
--  Kosminė kirpykla. Kaip plaukus kerpa orbitoje esantys Kinijos astronautai (Video)
--  M. Civilka. Vienas namuose 2.0 – sukčiams prasideda šventinis darbymetis
--  „Tai ką, sveiki vaikinai...“ Žaibišku greičiu plinta „naujas“ video su Prigožinu. Kas vyksta (Video)
--  Neįtikėtina. „Štabai, biurai ir visa kita...“ Parodytas požeminis „Hamas“ lyderių miestas (Video)
--  BREAKING: 3 Soldiers Dead, Three Injured in Big Terrorist Ambush In JK`s Poonch
--  ¿Por qué las mujeres embarazadas deben evitar las bebidas energéticas?
--  NVIDIA GeForce Now adds 11 more games to the cloud streaming service
--  Identificados por furto de combustível no Concelho de Águeda
--  3 Jawans Killed As Terrorists Ambush 2 Army Vehicles In Poonch
--  "Srbija protiv nasilja" pisala EU; Gajić: Ovo je tražila i Austrougarska 1914. godine
--  Ünlü mağazada 250 bin dolarlık soygun
--  7 صفقات رياضية سعودية كبرى.. أيها الأنجح برأيك؟
--  Identidad cultural venezolana se transmite de padres a hijos
--  En video: ‘Bocas de Ceniza’, el tren turístico de Barranquilla ya está pidiendo pista
--  Oh du fröhliche Feinstaubzeit: Kerzen erzeugen kleinste toxische Partikel
--  Johan Esk: Efter Pest vs Kolera är det upplagt för fotbollskaos
--  NGO charges INEC, security agencies to address vote buying
--  Shrenu Parikh and Akshay Mhatre wedding: The couple ties the knot, see pics!
--  `Dabdaba tha, dabdaba rahega`: Brij Bhushan after aide Sanjay elected WFI chief
--  بين "تسوية بكين" و"استسلام بكين"... إيران وسياسة الضّغوط القصوى على السعودية!
--  Colorado Decision Triggers Rush to Remove Trump From Blue-State Ballots
--  Była minister z PiS pisze: Don Tuskone, per analogia, Putin. "Jezus Maria", "Peron odjechał"
--  شائعات مفبركة لا أساس لها من الصحة...مكتب الرئيس عون يوضح
--  Дневните търгувани биткойн обеми изпреварват акциите на Apple със 75%
--  Top 3 Tekno Berita Hari Ini: Relawan Prabowo Gibran Luncurkan Platform AI, Genomic Forum 2023
--  Avanzan las negociaciones legislativas para designar al FG y FGA
--  Näin ”Mr. Arctic Ralli” kuittaa somessa käynnissä olevan hurjan arvuuttelun huippunimistä: ”Sen verran voin paljastaa…”
--  Ruotsalaismediat: Olli Jokisesta suorastaan tapellaan
--  IS: Kalle Rovanperä joutui poliisin tutkittavaksi - jättimäiset sakot tulossa?
--  Youth Training Key To Nation’s Growth, Prosperity – Abbas
--  Rama lajmëron zëvëndësimin e Fredi Belerit në krye të Himarës, vendimi pas bllokimit nga Mitcotakis
--  검찰, '이경 보복운전 벌금' 판결에 항소
--  Zimbabwean cricketers Madhevere, Mavuta suspended over drugs
--  Tom Lockyer: Luton-Kapitän nach Herzstillstand aus Krankenhaus entlassen
--  Prince George conservation group talks wood pellets in Japan
--  العام الجديد يتصل.. واتساب يتيح لمستخدميه إجراء مكالمات فيديو جماعية
--  Silly season: Ny tränare i Björna
--  Silly season: Ny tränare i Björna
--  Orthez : le « barreau centre » de la rocade ne se fera pas avant 2028
--  Ripple to dump all its unlocked XRP reserves as 2023 ends
--  Leones vence a Magallanes y sella su clasificación
--  בלי טובות מהמדינה: הפתרונות הטכנולוגיים שמאפשרים לנו לשרוד
--  סמארט חוזרת כקרוסאובר חשמלי, מ-170 אלף שקל
--  فيديو.. منى الشاذلي تُذيع أداءً صوتيًا لأشرف عبد الغفور لرواية "أوراق شمعون المصري"
--  ننشر جدول امتحانات الشهادة الإعدادية في السويس
--  سعر الدولار اليوم الخميس مقابل الجنيه في 10 بنوك مع نهاية التعاملات
+-  Yeni varyant açıklaması: Yayılım hızı çok yüksek
+-  Bakan Bolat, Cabbarov'la görüştü
+-  Marmara Denizi'nde deprem
+-  İsrail, Gazze'deki hükümetin Medya Ofisi ile ona ait bir basın kuruluşunu bombaladı
+-  Ben-Gvir: Saldırılar azalırsa Savaş Kabinesi'nin dağıtılması gerekiyor
+-  Adalet Divanı'nı Avrupa Süper Ligi kararına İspanya'dan ilk tepkiler
+-  Kızıldeniz'deki saldırılar Süveyş Kanalı'ndan geçişleri tehlikeye atarken eski ticaret rotası yeniden gündemde
+-  Çifte cinayet işlenen Beylikdüzü katliamında yargılama sürüyor
+-  Filistinli direniş gruplarından yeni karar! Hamas duyurdu
+-  Подозреваемый в убийстве бывшей жены в Череповецком районе предстанет в суде
+-  На Дону пострадавший водитель «БМВ» ищет свидетелей аварии
+-  В Белгороде впервые проходят Всероссийские соревнования «Игры несклоняемых»
+-  Mandić - Meken: Borba protiv kriminala i korupcije ključna oblast...
+-  Производство электрооборудования в Александрове будет расширено
+-  Πανσερραϊκός – ΑΕΚ: Σέντρα στις 17:00
+-  Предложение Захара Прилепина присоединить территории Узбекистана вызвало дипломатический скандал
+-  Wall Street åpner opp
+-  Keine Abstimmung über Gesetz für die Pensionskasse des Staatspersonals
+-  Hrvatska pošta izdala prigodni žig povodom 10. godišnjice referenduma o braku
+-  Not Being Able to Burp Actually Sounds Pretty Horrific
+-  Hundreds alleged assault by youth detention workers. Years later, most suspects face no charges
+-  Holocaust past meets Amsterdam present in Steve McQueen's 'Occupied City'
+-  Hövding begär sig själva i konkurs
+-  К услугам Центра поддержки экспорта прибегли 195 компаний Мурманской области
+-  Young open cluster Messier 39 investigated in detail
+-  أخبار السعودية.. تحويل الدراسة عن بعد في هذه الحالات وتحذير من الدفاع المدني لسكان المدينة وتبوك
+-  بتوجيه من ولي العهد .. وزير الدفاع يصل العاصمة البريطانية لندن في زيارةٍ رسمية
+-  Mies katseli paloa, joka järkytti joulun rauhaa Rautjärvellä – Sitten epäilty löytyi kuolleena
+-  Glen Powell Is the Rom-Com Stud We Deserve
+-  Пострадавший от пожара отель Kamarooms в Челнах откроют в начале 2024 года
+-  Odbor nije predložio kandidate za DIK
+-  Sein Herz schlug für den Bergbau und die Kumpel: Halterner Michael Albers starb mit 65 Jahren
+-  Uyuşturucuyla mücadele sürüyor: Düzenlenen operasyonunda 6 şüpheli yakalandı
+-  Hamas Tak Mau Tukar Sandera dengan Gencatan Senjata
+-  Şeflerin tabağını aratmayan tarif! Yiyen kendini lokantada sanacak, işte elti çatlatan kağıt kebabı tarifi
+-  Gokkers moeten zich eerder verantwoorden als ze veel geld storten op goksite
+-  Deputados italianos rejeitam reforma do fundo de resgate da zona euro
+-  Malegoan News : मालेगाव महापालिकेचा भोंगळ कारभार, विविध विभागातील फाईल्स बाजार पेठेतील रस्त्यावर
+-  Kamiński i Wąsik bez mandatów poselskich. Reaguje prezydent
+-  Metalen zitten het hele jaar vast tussen oude en nieuwe cycli: Andy Home
+-  Kent Police suspect fire at Margate High Street address is 'arson' as woman in hospital and residents evacuated
+-  Why is DJ Ace leaving Radio 1Xtra?
+-  El cinismo de Sturzenegger y Feinmann con el cacerolazo: "Qué rápido que leyeron el DNU"
+-  В Курске перекроют движение транспорта по мосту на улице Малых
+-  Chef Haryo Meninggal, Unggahan 9 Hari Lalu Pesan Terakhir untuk Putranya
+-  Muğla'da belediye ekipleri yağmur mesaisinde
+-  Hasipoğlu: Geçmişi unutmayacağız, unutturmayacağız
+-  Borað á Gálmaströnd
+-  Keine spürbare Zunahme der Diebstähle durch SB-Kassen
+-  Reprezentant kraju w Śląsku Wrocław! Jest pierwszy transfer
