@@ -1,51 +1,51 @@
 # Latest News
--  John Fetterman: Political right, left 'both wishing that I die'
--  Gaza sees more airstrikes and UN says half a million people are &#039;starving&#039;
--  Történelmi kvíz: emlékeztek, mi történt Mezopotámiában?
--  Verkehrsunfall mit zwei Familienautos bei St. Marienkirchen
--  عدوى تقاوم الأدوية تهدد جنود الاحتلال الإسرائيلي بغزة.. تؤدي للوفاة
--  Apple показа повече от новия CarPlay
--  Gewerkschaft droht mit Warnstreik bei Lufthansa-Tochter Discover
--  Aktien Europa Schluss: Leichte Verluste - Ruhiger Handel vor Weihnachten
--  నల్ల బెలూన్లతో అంగన్‌వాడీల నిరసన
--  Gewerkschaft droht mit Warnstreik bei Lufthansa-Tochter
--  الشرطة التشيكية: مطلق النار بكلية الفنون في براغ كان طالبا في الجامعة
--  كلمة مسجّلة لـ"أبو عبيدة".. ماذا أعلن فيها عن المعارك؟
--  إسبانيا تدعو للاعتراف بدولة فلسطين
--  British Indian prodigy creates history in European chess championship
--  Байерн каза за Суперлигата
--  Denise Richards refusing to watch Real Housewives of Beverly Hills return after comeback sparked chaos
--  An der Tanke in Brandenburg: "Uns wird nicht geholfen. Uns vergessen sie irgendwo alle"
--  Minister Sridhar Babu: ఆర్థిక అంశాలను ప్రజల ముందు ఉంచాం
--  NAJVIŠI LIDERI UAE REDOM ČESTITALI PREDSEDNIKU VUČIĆU Velika pobeda na izborima u Srbiji
--  World’s sexiest volleyball player Kayla Simmons posts sweaty sauna snap as fans hail ‘perfection’
--  Dez drinks especiais para brindar o fim de ano; veja receitas
--  (UŽIVO) Još jedno okupljanje ispred RIK-a: Traži se uvid u birački materijal i revizija biračkih spiskova
--  رغم مؤشرات عن اتفاق هدنة.. نتنياهو: لن نوقف الحرب وأمام حماس الاستسلام أو الموت
--  صور.. وزير الإسكان يتفقد مشروع السياحة العلاجية في أسوان الجديدة
--  جانتس: لا نية لدينا لوقف الحرب في غزة ومصير قادة حماس هو الموت
--  وزير الصحة يعلن إطلاق العمل بالمشروع القومي لـ"ميكنة العلاج الحر"
--  رئيس جامعة السويس: دخلنا تصنيف الجامعات العربية AUR بالمركز 37 عربيًا
--  أبو عبيدة: دمرنا 720 آلية إسرائيلية بجانب عشرات القتلى من الجنود خلال 70 يومًا
--  شاب ينهي حياته عن طريق الخطأ في قنا
--  3 أعراض في الأذن احذرها.. علامة على ارتفاع الكوليسترول في الدم
--  بزعامة صيدلانية وصيدلي.. سقوط عصابة لتصنيع الأقراص المخدرة
--  "ثلاثتهم قتلوا بنيران جيشكم".. المقاومة تبث فيديو جديد لأسرى إسرائيليين بغزة
--  Boom des fraudes bancaires par manipulation à l'approche de Noël
--  Манчестър Юнайтед с ясна позиция за Суперлигата и УЕФА
--  Bitcoin Exchange Coinbase Received a Crypto License from an Important Country!
--  Derfor blir årets jul annerledes for Kadafi Zaman
--  En medio de las tensiones, Javier Milei designa al embajador en China
--  CECA ZAPOSLILA AZIJATKINJU Otkriveno kako izgleda nova kućna pomoćnica u vili na Dedinju
--  BLOKADA U CENTRU GRADA U toku četvrti po redu protest SPN u Beogradu (FOTO/VIDEO)
--  Θετική εξέλιξη στην υπόθεση Μπελέρη - Το Δικαστήριο απεφάνθει ότι παραμένει ο εκλεγμένος δήμαρχος Χειμάρρας
--  Une alternative au fromage : sans lait mais avec du goût
--  Ćavi: Ovom timu nedostaje duša
--  Pretila žena odbila se odreći dodatnog sjedala u zrakoplovu koje je platila kako bi dijete druge žene moglo sjediti
--  BASF SE : Jefferies is niet overtuigd
--  استشاري مخ وأعصاب: البرد الشديد قد يؤدي إلى حدوث جلطة.. وهذه خطورة الآيس كريم
--  Vinci vereinbart Aktienrückkauf mit Investmentdienstleister
--  الأسباب الحقيقية للإصابة بالسرطان في سن مبكر
--  ماذا يحدث لجسمك عند تناول مشروب الشعير على الريق؟
--  MÄRKTE USA/Etwas Fester - Micron nach Zahlenausweis kräftig im Plus
--  Jefferies belässt BASF auf 'Underperform' - Ziel 39 Euro
+-  AK Parti Sözcüsü Ömer Çelik açıkladı: 10 ilde adaylar belli oldu!
+-  Spieler bedauern Abschied: Baumgart geht – der 1. FC Köln verliert seinen Kultcoach
+-  Serrano vs Meinke set for March 2, Jake Paul on undercard
+-  Universiteti i Tetovës dhe Shoqata “Reka e Epërme” organizuan tryezë të rrumbullakët, me temë “Ringjallja dhe e ardhmja e Rekës së Epërme”
+-  הטרור הפסיכולוגי של חמאס: פרסם סרטון של 3 חטופים שגופותיהם חולצו
+-  «Аталанта» Миранчука выступила против создания Суперлиги
+-  [ŽT] Baigė kaip tarakonai. Okupantai savimi išbandė „Bradley“ svorį (Video)
+-  Žemėlapių programėlė „Google Maps“ praneša apie atnaujinimą: nauja funkcija jau veikia ir Lietuvoje
+-  „Eleport“ Kauno „Akropolyje“ įrengs didžiausią elektromobilių įkrovimo parką Baltijos šalyse
+-  Audra kasdien. „Atrodo, kad Rusija eina va bank. 100 kovų per dieną.“ Ždanovas apie padėtį fronte (Video)
+-  105 metų moteris papasakojo apie savo ilgaamžiškumo paslaptį. „Dar ir dabar ji geria viskį“ (Foto)
+-  Ким Чен Ын заявил, что КНДР способна нанести ядерный удар в ответ на провокцию
+-  Irak'tan Gazze'ye 10 milyon litre akaryakıt yardımı
+-  Ürdün, Gazze'ye 89 tır ve 28 uçak yardım yolladı
+-  Steariinikattila syttyi iltapäiväkerhossa – hälytys Rauman Lapista
+-  2023 йилнинг энг машҳур ҳаво йўналишлари номи маълум бўлди .
+-  Чехиядаги университетда талаба оммавий қирғин уюштирди, 11 киши ўлди .
+-  Narcobanditisme : sur les 47 morts en 2023 à Marseille, 7 victimes mineures
+-  Three-bedroom home in Saratoga sells for $4.2 million
+-  صفاقس: استكمال تركيز التطبيقة الاعلامية e-pharmacie للإنطلاق في استغلالها بمراكز الصحة الأساسية
+-  Воздушная тревога объявлена в Харьковской и Днепропетровской областях Украины
+-  Kiefer Sutherland: See Photos of the Actor
+-  Weihnachten in der Flüchtlingsunterkunft
+-  Ministar vanjskih poslova Crne Gore u posjetu RH; Otvorena pitanja iz Domovinskog rata
+-  Boa's balen van uitlachen op televisie: ‘Het is totale nonsens dat we halve criminelen zouden zijn’
+-  تواصل منافسات بطولة الاستقلال للشباب وشباب لودر يقصي شباب مودية ويضرب موعدا ناري مع شباب زاره في الدور الثاني.
+-  Tinder's $500 a Month Membership Tier Has Me Embracing Loneliness
+-  A wildcat strike shuts down English Channel rail services, causing misery for Christmas travelers
+-  After a dozen failures, Salmon trustees vote to float another bond
+-  Researchers reveal linkage between wildfire activity and abrupt climate events during the Holocene
+-  Opinion: Climate change solutions require collaboration between politicians, scientists and entrepreneurs
+-  Men and women who hold sexist views are less responsive as parents, research finds
+-  Circle Gains French DASP Registration Boosting EU Presence
+-  Trump’s Law Clerk Gag Order Remains for Now, High Court Rules
+-  Caso Superlega, Abodi annuncia: "I grandi Paesi si vedranno il 10 gennaio a Bruxelles"
+-  This Mansion-Sized Apartment Listed for $50 Million Is the Most Expensive Condo in Los Angeles
+-  PlusLiga: PSG Stal Nysa - KGHM Cuprum Lubin. Relacja i wynik na żywo
+-  Taxisterben: Wenn kein Taxi mehr kommt in Saalfeld-Rudolstadt
+-  Spendenaktion: Die Ausdauer der Jenaer Montessorischüler brachte 26.000 Euro für sterbenskranke Menschen
+-  Čudo od 16 godina izdominirao na SP-u, a 3000 navijača ustalo i pjevalo: ‘Ujutro moraš u školu’
+-  Fleischloses Weihnachtsessen: „Schweinelendchen“ mit Herzoginkartoffeln und Gemüseauflauf
+-  Prilepin ÇAXNAŞMA YARATDI: Rusiya səfiri Özbəkistan XİN-ə çağırıldı
+-  Liga Mistrzów: Cucine Lube Civitanova - VK Lvi Praha. Relacja i wynik na żywo
+-  Universität: Ein „Herzengel“, der Büchern in Jena den Weg ins digitale Zeitalter bereitete
+-  PlayStation: Hunderte TV-Serien werden entfernt, trotz Kauf – Update
+-  Φρέντι Μπελέρης: Ο Έντι Ράμα τον αναγνωρίζει ως εκλεγμένο δήμαρχο της Χειμάρρας
+-  صفقتان بـ200 مليون لبرلماني وشقيقه لتأثيث مقر شركة معادن
+-  Trasladan de urgencia a hospital a señor que se cayó de árbol y se golpeó la cabeza
+-  Курчатовский институт поставил российский рекорд по длительности импульса в токамаке
+-  Amy Robach Addresses Rumors That Robin Roberts And Other ABC Colleagues ‘Abandoned’ Her Amid The T.J. Holmes Drama
