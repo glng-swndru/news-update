@@ -1,51 +1,11 @@
 # Latest News
--  نيمار يمنع مبابي من الانضمام إلى ريال مدريد
--  ماذا تفعل الآن لتحمي الذاكرة مستقبلاً؟
--  شركة شحن نرويجية تعلن تعليق عمليات النقل عبر البحر الأحمر
--  الأردنيون على موعد مع منخفض جوي وأجواء باردة
--  “연말연시 통신장애 없도록”…이동통신업계, 품질 집중 관리 시작
--  [오피셜] "대구는 나의 집"...'원클럽맨' 최영은, 대구와 2년 재계약 체결
--  K-드라마 연말정산…'KBS 연기대상', 티저 영상 공개
--  물고, 꼬집고…동생 괴롭히는 금쪽이, 오은영의 해법은? [금쪽같은 내새끼]
--  '노량: 죽음의 바다' 김윤석→공명, 관객 향한 뜨거운 ♥…게릴라 무대인사 출격
--  최강창민 "예명 여전히 창피하지만…그걸로 돈 많이 벌었다" [마데핫리뷰]
--  Horský priechod Donovaly je uzavretý pre autá s dĺžkou nad desať metrov
--  Požiar ohrozuje predmestie miliónového austrálskeho mesta
--  KT, 익산 '사랑의 선물 꾸러미' 후원 행사 진행…생필품 및 야구용품 기탁
--  Nočné šialenstvo v parlamente: Opozícia rokovala celú noc, Grendel čítal pozmeňovák takmer 7 hodín!
--  EASYJET : JP Morgan is neutraal gestemd over het aandeel
--  Kuyumcular yeni madeni 5 lirayı değerlendirdi
--  Kan donduran cinayet: Babasını öldürüp sobada yaktı!
--  AYM, istinafa başvuru için 5 bin lira alt sınırını iptal etti
--  عشرات الشهداء في غارات إسرائيلية على خان يونس
--  Ulen shifrat e emigrantëve të paligjshëm që kalojnë me varka drejt ‘tokës së ëndrrave’
--  Pengamat Sebut Golput Berdampak Besar pada Pembangunan Bangsa
--  “사람을 바꾸면 제주가 바뀐다”
--  작년 제주 가족친화인증기업 103개소 ‘껑충’
--  Opportunity to replace, redraft colonial criminal laws "wasted": Chidambaram
--  नियमनभन्दा सहजीकरण गर्न संघको सुझाव
--  New CA law requires gender-neutral toy sections at large retail stores
--  進度成謎！傳上海微電子成功開發 28 奈米曝光機，不久原出處遭刪
--  Aktien Asien/Pazifik: Überwiegend Verluste nach Gewinnmitnahmen an den US-Börsen
--  Meeting postcolonial au Musée national de l'immigration
--  Jean-Christophe Kerdelhué, le Elon Musk des champs ?
--  Guerre Israël-Hamas : Netanyahou ne veut pas d'un cessez-le-feu avant « l'élimination » du groupe terroriste palestinien
--  Trafic de drogue et violences : la criminalité en hausse de 57 %, un niveau record
--  [Melun] Loi immigration : la grande comédie antifasciste est de retour
--  Présidentielle américaine 2024 : Donald Trump disqualifié par la Cour suprême du Colorado
--  Macron en Jordanie, Meloni… Les 4 infos dont vous allez entendre parler demain
--  Immigration, fin de vie, Israël-Hamas… ce qu'il faut retenir de l'interview d'Emmanuel Macron
--  « Sans les voix du RN » : mauvais calculs, mauvaise foi et ostracisme parlementaire
--  La chanteuse Vitaa victime d'un home-jacking en présence de sa famille
--  Affaire Depardieu : un chroniqueur de TPMP prend la défense de l'acteur et exprime « de gros doutes sur le montage du Complément d'Enquête »
--  Paul-Henri Mathieu, capitaine des Bleus : « On a un réservoir très intéressant de joueurs »
--  How Russia's invasion of Ukraine and the green transition have shaped EU energy policy
--  الجيش الإسرائيلي: استهدفنا نحو 230 موقعا لحماس في قطاع غزة خلال الساعات الـ24 الأخيرة
--  Geneviève O'Gleman, bien investir pour mieux savourer la vie
--  구리시, 2023년 재정분석 평가 우수 지자체 선정
--  구리시, 광개토부대 국군장병 위문 격려
--  구리시, 서민경제 안정과 지역경제 활성화 모두 잡는다
--  남양주시, ‘제3회 주거복지대상’ 최우수 지자체로 뽑혀
--  주광덕 남양주시장, 별내선 개통 앞두고 현장점검
--  남양주시, 해넘이‧해맞이 명소 안전관리 강화
--  남양주시, 2023년 장애인차별금지 및 인권보장위원회 정기회의 개최
+-  BAVIM SE NAJSTARIJIM ZANATOM, A OŽENJENI MUŠKARCI MI STALNO KUKAJU ZBOG OVOGA: Bolje što dolaze kod mene nego da idu kod PSIHOLOGA
+-  Faisalabad BISE Second Inter Exam Results: 62% Students Face Setback
+-  O artistă a cântat în fața unor doctori și a fost diagnosticată în timpul concertului: „Mi-a schimbat viața” VIDEO
+-  '대주주 양도세' 완화 호재 불구 코스피 2600선 턱걸이
+-  이지영 강원도의원, '응급차 이용비 지원 조례' 매니페스토 약속대상 수상
+-  동해안 바다열차 25일 이후 중단 역사속으로
+-  원주우리새마을금고, 겨울이불 전달
+-  금강고속 노동조합 성금 기탁
+-  카뉴/홍천농협고향주부모임 성금 기탁
+-  원제용 강원도의원, 한중경제문화교육협회 '의정활동 최우수 도의원'
