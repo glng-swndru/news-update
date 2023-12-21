@@ -1,51 +1,11 @@
 # Latest News
--  طريقة مجانية لمتابعة مباراة الأهلي ضد أوراوا الياباني في كأس العالم للأندية
--  أقوى شتاء منذ 10 سنوات يبدأ خلال دقائق.. ماذا تفعل ظاهرة النينو؟
--  ¿Cuánto duran los capítulos What If 2 en Disney+ México?
--  MLB widening runner's lane to first, changing a rule that has caused World Series controversy
--  Can Arsenal, Liverpool or Aston Villa end Man City's Premier League dominance?
--  UEFA court defeat revives battle with breakaway Super League
--  Javier Bernal Delivers a Christmas Gift on Tomorrow’s WWE NXT Level Up
--  Shohei Ohtani named AP Male Athlete of the Year for 2nd time in 3 years
--  San Jose: Celtic Winterdance returns for Trinity concert tonight
--  CHP'de 126 aday daha belli oldu! İşte il il tam liste...
--  Trabzonspor'dan Avrupa Süper Ligi açıklaması
--  Talat Atilla yazdı: İktidar ve MHP Kurtulmuş'a mesafe mi koydu?
--  "ייענש בכל חומרת הדין": נעצר אנטישמי שחילל את "החנוכייה הגדולה באירופה"
--  ניקי היילי: "הפלשתינים צריכים לעבור למדינות פרו חמאסיות כמו קטאר, איראן ותורכיה"
--  אלו זמני כניסת ויציאת צום עשרה בטבת תשפ"ד 2023
--  הביע סולידריות עם הפלשתינים וננזף: ענף הספורט שלא נותן לפוליטיקה לזלוג אליו
--  החורף הגיע: לקראת סוף שבוע גשום וסוער במיוחד | תחזית מזג האוויר
--  אוניברסיטאות, חכו ללוחמים
--  ביהמ"ש העליון קבע: איש ציבור לא יוכל לחסום משתמשים שהביעו ביקורת בחשבונותיו ברשתות החברתיות
--  לרפא את הגעגוע: חנן בן ארי שר ללוחמי גדוד 13 של גולני, שאיבדו 44 חברים
--  טייבה: המשטרה חוקרת נסיבות אירוע רצח במהלכו נורה צעיר ברכבו
--  שאלה של חינוך
--  כשהפלגנים ייצאו מהרשת, הם יגלו שהפכו למיעוט
--  לכודים במלכוד של ממשל ביידן
--  מזל דגים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל גדי, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל קשת, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל עקרב, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל מאזניים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל בתולה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל אריה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל סרטן, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל תאומים, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל שור, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  מזל טלה, תחזית הורוסקופ שבועית, לשבוע של 22.12.2023 - 28.12.2023
--  לצורך הההכרעה במלחמה - מוכרחים לחדש את המצור על רצועת עזה
--  אבסורד: צה"ל דורש מאנשי כיתות הכוננות בצפון להחזיר נשקים
--  4 Indian soldiers killed and 3 wounded in an ambush by rebels in disputed Kashmir
--  Eurotunnel unions call off strike after massive disruption to cross-Channel train traffic
--  Uygun Fiyata Amiral Gemisi Seviyesinde Özellikler Sunan HONOR 90 GT Tanıtıldı
--  Man accused of texting death threats to Ramaswamy faces similar charges involving 2 more candidates
--  [1보] 국제유가 하락…WTI 0.44%↓
--  Myanmar's military should be investigated for war crimes, Amnesty International says
--  Affaire Norbert Zongo et ses compagnons d'infortune : La France annule le décret d'extradition de François Compaoré
--  Top U.S. military officer speaks with Chinese counterpart
--  ‘You’ve got school in the morning’: 16-year-old lights up World Darts Championship
--  ‘You’ve got school in the morning’: 16-year-old lights up World Darts Championship
--  Russia has fired 7,400 missiles, 3,700 Shahed drones in war so far, Kyiv says
--  Appeal issued after three-figure sum stolen from high street business in West Lothian
--  Olivia Dunne's signed LSU leotards sell out within hours for $130 each - and are already being resold for $1,000 - but auction is flooded with creepy fans asking: 'Do gymnasts typically wear underwear with these?'
+-  ZACAPA LAUNCHES FIRST-EVER GLOBAL CREATIVE CAMPAIGN "LIPS TO SOUL," REDEFINING THE WORLD OF DARK SPIRITS INTO A WORLD OF VIBRANT WONDER
+-  إنتاج ليبيا من النفط يتجاوز 36 مليون برميل خلال شهر نوفمبر
+-  CC confirma que el presidente no puede sustituir a Alejandra Carrillo como directora del Instituto de la Víctima
+-  Man, 57, dies in horror three-vehicle crash during rush hour as Scots road shut for six hours
+-  Naujas evoliucijos lygis. DI robotas pirmą kartą „fiziškai“ pranoko žmones (Foto, Video)
+-  بالكوفية الفلسطينية.. محمد عادل إمام وياسمين صبري يحضران العرض الخاص لفيلم أبو نسب
+-  Matić nezadovoljan, želi da napusti Ren?
+-  الهلال الأحمر الفلسطيني: الجرحى ينزفون لساعات حتى الموت.. والأطباء عاجزون عن إنقاذهم
+-  Vazura posle derbija: Najbolji igrači nisu na prodaju, nadam se povratku "grobara"
+-  Wie beendet man Kriege, Herr Leonhard?
