@@ -1,51 +1,51 @@
 # Latest News
--  현대차, 올해 전기차 판매량 목표 달성에 ‘빨간불’
--  명랑 가족 코믹극 '우당탕탕 패밀리' 왜 이렇게 재미있나, 시청률 13% 돌파 "자체 최고 경신"
--  [전문] 'MBC 간판 아나운서' 박연경, 결혼 전격 발표…"작은 예식, 예쁘게 잘 살겠습니다" (종합)
--  폴킴, 핑클 '화이트' 리메이크 곡 발표
--  아이유 측, 저작권 침해 혐의에 대한 손해배상 청구소송 진행 중
--  '마약투약 혐의' 이선균, 23일 3차 소환조사
--  백종원, 5년 전 '골목식당' 솔루션으로 큰 화제가 됐던 '홍탁집' 근황 공개
--  '2023 SBS 가요대전', NCT·에스파 '동방신기' 커버 무대 선사
--  브라질 최고 유망주, 이강인 파트너 된다…’이적료 314억+보너스 42억’
--  Simon's Town fire update: Five support aircraft activated
--  Warner Bros połączy się z Paramount? Rozmowy są w toku
--  Centre To Release DPDP Rules By Fortnight
--  Comment Pinduoduo et TikTok menacent Alibaba, empereur de l'e-commerce chinois
--  Minibüs iki araca çarptıktan sonra aydınlatma direğini devirdi: 4 yaralı
--  Konya dahil 47 ilde eş zamanlı 'NARKOGÜÇ-40' Operasyonu! 376 uyuşturucu şüphelisi yakalandı
--  Pikniğe giden ailenin bulunduğu hafif ticari araç göle düştü: 7 yaralı
--  Twitter (X) çöktü mü? X'e erişim sorunu yaşanıyor!
--  Tuna Mobilya, gayrimenkul sektöründe büyümeyi hedefliyor!
--  Først ville regeringen droppe det, men nu reddes økologisk spisemærke
--  Social media platform X down for users globally — Downdetector
--  Incredible 999 call captures girl, 4, and sister, 2, saving mum’s life with CPR
--  В работе соцсети X произошел масштабный сбой
--  펄어비스, 땅스부대찌개와 ‘검은찜닭 부대찌개’ 신메뉴 출시
--  신한금융, 행안부와 지역 경제 활성화 업무협약 체결
--  국민은행, 군장병 대상 보이스피싱 근절 나선다
--  Galaxy S24 Ultra ekran koruması ile göz dolduracak
--  "뻥튀기 상장 막는다"…IPO 제도 내년 2분기 개선
--  타다 기사 측, 부당해고 취소 소송 항소심서 승소
--  한동훈, 尹에 사의 표명…국힘 비대위원장직 수락
--  '제4이통' 재수 나선 세종텔레콤 "주파수 경매 입찰 시 출혈 경쟁 생각없다"
--  튀김유값 내렸는데…가격 인상 저울질하는 bhc·교촌치킨
--  민주당, 이재명 사퇴 통합비대위…동의 47% 비동의 42%
--  금융위 "내년 시장안정 프로그램 확대 검토…PF 연착륙 지속"
--  홍익표 "한동훈, 유능함 보여준 적 없어 여당 바꿀 수 있을지 의문"
--  "공정위 플랫폼법 도입 시 한국에 투자 못해" 벤처 투자자들 강경 반대
--  Ehlers scorer sit 11. NHL-mål i sæsonen i hjemmebanesejr
--  법원 "국가, '형제복지원' 피해자에 배상하라" 손배소 첫 판결
--  Islamabad police baton-charge, arrest Baloch protesters
--  Spain Braces For Annual 'Fat One' Christmas Lottery
--  Westrand straks leefbaarder, mooier, veiliger en groener
--  Fans in Disbelief After Tony Stewart’s eSports Team Shuts Down Operation
--  Adhésion de l'Ukraine à l'UE : l'étude qui revoit nettement à la baisse l'impact financier
--  หอการค้าเชียงใหม่ ร่วมงานประชุมแนวทางการพัฒนานวัตกรรมในพื้นที่ภาคเหนือ
--  Sveti Mihej – prorokuje Mesijino rođenje u Betlehemu
--  BIO JE OMILJENI JUGOSLOVENSKI PEVAČ Svi su ga zaboravili, ženio se 10 puta, a prošle godine POGINUO u SAOBRAĆAJKI
--  Avesta 21.–27.12 | Praktilised õpetused igaks päevaks
--  My aunt died in Gaza – she’s sharing her grave with a child killed the night before
--  Akaryakıt fiyatlarına peş peşe dev zam (21 Aralık 2023 motorin-benzin-LPG fiyatları)
--  제주관광 연말연시 그랜드 감사 세일 이벤트 진행
--  LGU+도 20년 걸렸다..."제4이통 '비대칭규제' 필요, 출혈경쟁은 안할 것"
+-  Positiva, nuevo patrocinador de la Federación Colombiana de Patinaje
+-  Presentado el recorrido de la Vuelta a España 2024
+-  City vs. Fluminense, la Gran Final del Mundial de Clubes
+-  제주 하원테크노벨리 기회발전특구 지정 추진
+-  Соловьеву уже не отмазаться
+-  Race-by-race preview and tips for Wagga on Friday
+-  Race-by-race preview and tips for Wagga on Friday
+-  مراد سعید، حماد اظہر، زرتاج گل اور 48 پی ٹی آئی رہنماؤں کے نا قابل ضمانت وارنٹ گرفتاری جاری
+-  JB금융그룹, 한패스(hanpass)와 전략적 투자계약 체결
+-  넷마블, 여성가족부 ‘가족친화기업’ 인증 재획득
+-  현대엘리베이터, ‘굿윌스토어’와 ESG 캠페인 ‘현대:Re’ 진행
+-  컴투스 ‘아이모’, 연말 맞이 특별 이벤트 실시
+-  워커힐 호텔앤리조트, ‘2023 산타 키즈 빌리지’ 프로모션 진행
+-  Co dalej ze sportem w TVP? Zwrot akcji ws. transmisji meczów Ekstraklasy
+-  근로자 1명 고용하는 데 월 600만원 든다
+-  日 방문 관광객 2000만 명 돌파…4명 중 1명은 ‘한국인’
+-  2023 FIFA Kulüpler Dünya Kupası finalinde, Manchester City ile Fluminense karşılaşacak
+-  Jandarmadan nefes kesen operasyon
+-  Lamas limonunda hasat 5 TL ile başladı
+-  Yhä useamman kuolinonnettomuuden taustalla ylinopeus vuonna 2022
+-  Yhä useamman kuolinonnettomuuden taustalla ylinopeus vuonna 2022
+-  Cluj County issues 10-year EUR 76 mln bond
+-  Schiesserei in Sitten VS war laut Polizei kaum zu verhindern
+-  2023 FIFA Kulüpler Dünya Kupası finaline geri sayım: Manchester City ile Fluminense karşılaşacak
+-  Под Москвой огромный кусок льда рухнул на головы россиян под военкоматом
+-  Modernizing the Internet’s architecture through software-defined networks
+-  יקבל צ'אנס אחרון: קוז'וך צפוי לעמוד על הקווים מול הפועל חיפה
+-  שלושה משחקים בשלוש מדינות? הפועל חולון תפגוש את אוסטנד בפלייאין
+-  הטכניון: דוחים בשבוע נוסף את פתיחת שנת הלימודים
+-  กสิกรไทย ประกาศผล HACKATHON 2023 แอปฯ ‘How are you?’ คว้าชนะเลิศ
+-  במ.ס אשדוד חוששים: סבן ייאלץ לעבור ניתוח שיסיים לו את העונה?
+-  נתראה בעוד חודש: הפועל ירושלים תפגוש את טנריפה בטופ 16
+-  X down oggi giovedì 21 dicembre 2023, cosa è successo all’ex Twitter
+-  DEBATT: Bättre att ge vårdpersonal presentkort eller fruktkorg
+-  DEBATT: Bättre att ge vårdpersonal presentkort eller fruktkorg
+-  여주시, 2023년 안전한국훈련 우수기관 선정
+-  관악구, 난곡생활권중심 지구단위계획 재정비 고시
+-  태백시민향토장학회, 2024년부터 고등학교 졸업생 졸업축하장학금 지원
+-  경주시, 2023년 전략작물직불금 1347농가 13억원 지급
+-  2024 강원 동계청소년올림픽대회 성화, 평창 도착
+-  연수구 의정동우회, 이재호 청장 '공로패'·김영임 의원 '의정상'
+-  삼척시, 문화재청 국가유산 관리역량 진단 등 ‘우수 지자체’ 선정
+-  태백시, 철암고 핸드볼·레슬링팀 창단식 개최
+-  청도군, 지역개발사업 추진실적 평가 '우수상' 수상
+-  동해시, 북평민속시장에 문화광장·거점시설 조성
+-  홍성교육지원청 특수교육지원센터, 2022 개정 특수교육 교육과정 전달 연수 실시
+-  서문·칠성 야시장, 22~24일 크리스마스 특별행사
+-  용인, 세종-포천고속도로 동용인IC 신설 첫 관문 통과
+-  충남도, 제2차 경제상황점검회의 개최
+-  충남도의회 ‘청소년 약물중독’ 예방과 상담 개입 방안 논의
