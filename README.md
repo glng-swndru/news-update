@@ -1,11 +1,11 @@
 # Latest News
--  Lucas Vázquez recupera el liderato para el Real Madrid con un gol en el descuento
--  Kein Wunder von Venedig: Elfic scheidet im Eurocup aus
--  'A Fazenda 15': Após André Gonçalves aparecer pelado, Rachel e Kally fazem sugestão
--  Ministério da Saúde incorpora vacina contra a dengue no SUS
--  Memorial marks 35th anniversary of Pan Am 103 bombing
--  GTA 6: hacker responsável pelo leak condenado a prisão perpétua
--  Envían a la cárcel a sujeto que abusó de una menor
--  Cemig faz resgate antecipado de bonds
--  Lucas Esteves promove confraternização em escolinha de futebol e despista sobre futuro no Palmeiras
--  Com um a menos, Real Madrid vence Alavés no fim e assume a ponta do Campeonato Espanhol
+-  Arriva a Perugia una nuova Escape Room per divertirsi con amici e parenti
+-  Migliori bollicine per il cenone di Natale
+-  Vinculan a 3 acusados por secuestro y portación de armas
+-  Se triplican abusones en líneas para cruzar a El Paso
+-  Sierra Vista, punto de narcosatánicos
+-  Mardin’de akaryakıt yüklü TIR’ın tekerlekleri alev aldı: 2 yaralı
+-  El fin del firewall independiente
+-  Bakan Işıkhan'dan asgari ücret açıklaması
+-  Bakan Güler: TSK'nın caydırıcı güç olması bir tercih değil, zorunluluktur
+-  Real Madrid liderliği geri aldı!
