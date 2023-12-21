@@ -1,51 +1,51 @@
 # Latest News
--  משהו נפתח אצלו, ואצלה: דגו השתחרר, ומכבי חיפה בעקבותיו
--  JB Financial Group Acquires 15% Stake in Cross-Border Remittance Platform
--  Sternenhimmel im Dezember 2023 aktuell: Die längste Nacht des Jahres! Wintersonnenwende läutet den Winter ein
--  Alerta en salud colombiana: Crisis financiera pone en peligro estabilidad de EPS
--  Avanza conformación del gabinete de Federico Gutiérrez en Medellín
--  La Defensoría presenta acción por erosión fluvial que afecta comunidades en Magangué
--  Gobierno hará en 2024 una exploración al pecio del galeón San José
--  الرفاعي مدير الإعلام بوزارة السياحة يحصل على الدكتوراه بأطروحة نوعية عن العلاقات العامة والشائعات
--  إعلام عبري: صفقة مقبلة قد تشمل انسحاباً جزئياً من غزة
--  الولايات المتحدة وفنزويلا تتبادلان سجناء
--  Gerry’s offers holiday favorites, cater-to-go service for ‘Paskong Pamilyang Pinoy’
--  “하필 이 시기에” 노관규 순천시장 북콘서트 개최…‘정치행사’ 논란
--  Hundertjähriger Kalender im Dezember 2023: Weiße Weihnachten? Das prophezeit der 100-jährige Kalender
--  Технологиялар оламида ўзига хос муваффақият: HONOR X9b янги саноат стандартларини ўрнатмоқда.
--  Ўзбекистоннинг Эрондаги янги элчиси тайинланди.
--  АҚШга ноқонуний йўллар билан кетган 119 фуқаро Ўзбекистонга қайтарилди.
--  Slovenský šport v roku 2023: Ak nepohoríš v tomto KVÍZE, zaslúžiš si veľký potlesk
--  Keskituloisen ostovoima kääntyy ensi vuonna kasvuun
--  Trainer Cherundolo verlängert Vertrag bei LAFC
--  Keskituloisen ostovoima kääntyy ensi vuonna kasvuun
--  Heel het gemeentehuis op taalles; eindelijk krijgen inwoners van Etten-Leur brieven die te begrijpen zijn
--  توقعات حالة الطقس اليوم الخميس
--  Ski alpin - Coupe d’Europe. « Ça m’a marqué », comment Diego Orecchioni s'inspire de la star de la natation Léon Marchand
--  [MD포토] 차승준, 이상준 '제7회 이만수 포수상 및 홈런상' 수상자
--  '서울의 봄' 정우성, 12월 영화배우 브랜드평판 1위…2위 김혜수·3위 황정민
--  [MD포토] 용마고 차승준, 경기고 이상준 '제7회 이만수 포수상 및 홈런상 수상
--  소이현(SoEHyun) '걸음마다 시선 사로잡는 트임 포인트'
--  [MD포토] 인사말 하는 헐크파운데이션 이만수 이사장 '반갑습니다'
--  'KIA 지명' 이상준, 이만수 포수상 수상... 마산용마고 차승준 이만수 홈런상 주인공
--  '가요대전' NCT·에스파, 'SM 선배' 동방신기 커버 무대 꾸민다
--  추신수, '살림남' 전격 합류…가족 총출동 "리얼 일상 공개" [공식]
--  위너스맨, 국산마 첫 G1 2연패 달성…“올해 최강 경주마”
--  Il sequestro della discarica di Siculiana, il gip dice no all'utilizzo dell'impianto
--  Scappa all'Alt della polizia ma viene ritracciato e trovato in possesso di 13 grammi di crack: denunciato
--  Flood cost Oban millions
--  Sex attacker jailed
--  Названа возможная роль Тейлор Свифт в переизбрании Байдена в 2024 году
--  مخطط مالي يكشف سر أهم الخطوات الأساسية نحو تحقيق الحرية المالية
--  진해 안심정사 창원도량, 이웃돕기 백미 100포 기탁
--  익산 시민역사박물관 조성 본격 추진
--  아산시 음봉면 행정복지센터 증축 및 리모델링 공사 준공
--  문경, 경북도 일자리 창출 시군 평가 우수상 수상
--  سهم “بيور هيلث” يقفز 84% في الدقائق الأولى من بدء تداوله
--  윤대통령 "재건축·재개발 재검토… 착수 기준 '노후성'으로"
--  안성맞춤 남사당 바우덕이 축제, 문체부 '2024~2025년 문화관광축제' 선정
--  창원, 2024년도 블로그·소셜 기자단 발대
--  영양, 2023년 여성단체협의회 정기총회
--  Coca-Cola Truck-Tour 2023: Weihnachtszug am Freitag in Berlin! Alle Termine auf einen Blick
--  합천 ‘규제개혁 우수사례 경진대회’ 우수상
--  동해시, 연탄 기부 및 봉사활동 이어져
+-  日, 강제동원 2차소송 판결에 “매우 유감…韓정부가 대응할 것”
+-  김정은 “적 핵도발에 주저 없이 핵공격 불사할 것”
+-  ‘마약 무혐의’ 지드래곤 측의 최후통첩…“악플 삭제, 1주일 주겠다”
+-  동거녀 몸에 불지른 30대男 “겁주려고…살해 의도 없어”
+-  ‘前 법무장관’ 조국, 한동훈 與수장 등판에 “검찰정권 완성”
+-  신생기업 36%, 1년도 못 버티고 문 닫았다
+-  [함께 보는 어린이책] 〈금이 생겼어요〉 외 2권
+-  "או שמתאבדים, או שלא נזכה בכלום": צ'אבי גער בשחקני ברצלונה
+-  Finanshus skruer kursmålet op for C25-aktie
+-  Karaman'da eski damat ve kayınpeder arasında bıçaklı kavgası: 3 yaralı
+-  Konya'da sokak ortasında çatışma! 11 kişi yakalandı
+-  Jandarmadan uyuşturucu operasyonu: 38 kilogram metamfetamin ele geçirildi
+-  KWK 8: Ajay Devgn recalls father Veeru Devgan`s gangster days
+-  LeanBliss Reviews (Shocking Consumer Report Update): Read This Before You Buy
+-  Covid-19 surge: India`s active caseload at 2,669 as JN.1 cases spike
+-  The complex landscape of INDIA Alliance for the 2024 Lok Sabha polls
+-  Volkswagen Group Korea holds community outreach Christmas event for children
+-  รร.พิริยาลัย จ.แพร่ รับโล่สถานศึกษาต้นแบบปลอดบุหรี่และเครื่องดื่มแลกอฮอล์
+-  ¡El estado le echa la mano! Cumple Ayuntamiento de Escuinapa con pago de aguinaldo a Jumapae y DIF
+-  מחפשים דירה במרכז? מאות דירות צפויות להיבנות ברמת גן
+-  האיום החות'י הגיע לאיקאה: צפוי מחסור במוצרי החברה השבדית
+-  ביטוח לאומי מחלק מענקים עד 4,000 שקל: בדקן בחשבון הבנק
+-  חרבות ברזל, היום ה-76: שלושה חיילים נהרגו בעזה, שמונה נפצעו קשה
+-  אל על בבשורה מאכזבת: הטיסות האלה יתארכו מ-8 ל-11 שעות
+-  מגישת חדשות 12 מתפרקת: "אני מרוסקת, כמו כולם"
+-  תואר ראשון בחינם: מי יזכו למימון של 100% מהלימודים?
+-  משרתים במילואים? זו העיר שתעניק לכם כרטיס הטבות
+-  הזוכה ב-5 מיליון שקל בלוטו: זו השיטה שלי לזכות
+-  דרמה בסמסונג: החברה בדרך להפסדים של מיליארדי דולרים?
+-  בית המשפט פסק: בינה מלאכותית לא יכולה להחליף בני אדם
+-  לאס וגאס - קרית גת: זה מה שנתפס בפשיטה על בית העסק
+-  מחיר הדלק נקבע: זה המחיר שתשלמו עד סוף 2023
+-  יאיר נתניהו תמך בציוץ: "הפיכה צבאית בניצוחו של הרמטכ"ל"
+-  הסוף ל-GROO ובאליגם: אתרי הקופונים יורדים מהאוויר
+-  יונית לוי תעדר מחדשות 12: הסיבה לפציעה הקשה נחשפת
+-  ברק בכר בסוף הדרך? דיווחים בסרביה על פיטורי המאמן הישראלי
+-  מסתמן: אפל תשיק ב-2024 את הגרסה החדשה של ה-CarPlay
+-  הותר לפרסום: סוהרים חשודים ב"מעורבות אלימה" כלפי אסיר ביטחוני שמת
+-  Axel Jonsson Fjällby sköt säsongens första mål: "Skönt att det ger resultat"
+-  마래푸·헬리오도 발길 ‘뚝’...주택시장 한파에 아파트값 ‘뚝·뚝·뚝’
+-  본회의 참석하는 김기현 전 대표
+-  هل ينجح دونالد ترامب بالعودة إلى البيت الأبيض بعد حكم ولاية كولورادو؟
+-  Hamas: Biden Gazze'ye gönderen insani yardımları engelliyor
+-  한국동서발전, 울산 성신고에 9.6kW급 자원순환 태양광 쉼터 설치
+-  한화그룹, 사회복지공동모금회에 성금 40억 원 전달
+-  AI could play an important role in sustainability transition: ABN Amro
+-  이번엔 정말 도장 찍었다… LG, '우승 캡틴' 오지환과 6년 총액 124억 FA 계약
+-  Neue Erkenntnisse zu Hamas-Tunneln vorgelegt - Die Nacht im Überblick
+-  Do konca božično-novoletnega obdobja v večernem času brezplačne vožnje z ljubljanskimi mestnimi avtobusi
+-  Новый президент Аргентины объявил чрезвычайное положение в экономике Новый президент Аргентины взялся за дело: объявлено ЧП в экономике, здравоохранении и социальной сфере
