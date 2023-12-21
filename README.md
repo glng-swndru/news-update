@@ -1,11 +1,11 @@
 # Latest News
--  دراسة تكشف مفاجأة: 54% من المواطنين تعرضوا للاحتيال عبر الإنترنت
--  هل يلزم تطابق العنوان الوطني مع عقد الإيجار للحصول على دعم حساب المواطن؟
--  قرار عاجل من وزارة البيئة بشأن 5000 طن عسل محلي
--  [거주지·소득과 관계없이 난임 시술비 지원받는다
--  [보건복지부, 내년 예산 122조3779억원…전년 대비 12.1%↑
--  [경주시, 대규모 조직 개편 단행…'신성장산업과' 등 3개과 12개팀 신설
--  [[박정규의 작살]경기도 3대 특례시 ‘맹주’ 이상일, 드디어 발톱 드러냈다
--  [“몸에 좋다고, 약 끊고 매일 영양제 8개씩 먹었다” 20대 여성에 무슨 일이
--  [같은 아파트 살던 초등생 납치한 40대 구속…“돈 필요해서 그랬다”
--  [류성호 광주KBS 기자 “44대 광주전남기자협회장 당선”
+-  Ezekre figyeljetek, hogy ne veszítsétek el az állami ösztöndíjas helyeteket
+-  Ministry of Investment of Saudi Arabia, Regal Hotels Group and Cosmopolitan International Group announce MoU for Hotel Development and Management
+-  2023 Design Intelligence Award Held at China Academy of Art
+-  Last-minute COSRX Christmas Gifts to Shop
+-  Colleges Of Education Lecturers Demand Release Of Withheld Salaries
+-  Prag: Schüsse an Uni – mehrere Tote ++ Video zeigt panisch flüchtende Passanten
+-  الاتحاد الأوروبي يوفر آخر قرض هذا العام لأوكرانيا
+-  رمضان صبحي وعبدالله السعيد على رأس قائمة بيراميدز المشاركة في السوبر المصري
+-  الاحتلال يحقق في وفاة أسير فلسطيني جراء أعمال عنف
+-  رسميًا.. تأجيل مباراة القمة والأهلي ضد فاركو في الدوري الممتاز
