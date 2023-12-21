@@ -1,51 +1,51 @@
 # Latest News
--  지드래곤, 마약 퇴치 재단 설립계획 밝혀… "행동해야 한다고 생각"
--  [속보] 한동훈 '별의순간 되나'...국힘 비대위원장직 수락
--  대법 "일본기업, 강제동원 피해자들에게 배상하라”
--  내년 22대 총선 정부여당 지원 43% · 견제 45% ‘팽팽’[NBS]
--  Lübnan'dan İsrail'e uyarı! "Topraklarımızdan derhal çekilmeli"
--  Día del Gemelo: por qué se celebra cada 21 de diciembre en Argentina
--  Así va el mercado de fichajes de Atlético Nacional: altas, salidas y próximos movimientos
--  صفقة تبادل سجناء بين أمريكا وفنزويلا بوساطة قطرية
--  Top Hamas leader in Cairo for talks on war in Gaza
--  Australia, New Zealand leaders seek to fortify defence ties
--  Japan court orders Okinawa to build runways for US Marines
--  Donald Trump banned from Colorado ballot
--  Will look into it: PM Modi on US charges over foiled plot
--  Nuno is Nottingham Forest’s new manager
--  Suspended MPs to hold protest at Jantar Mantar
--  ¿Cambiar las universidades por los carros?, Petro responde a trino de Galán
--  Woman jailed for rape of girl, 14, with boyfriend
--  Boston College counting on quality over quantity with 2023 recruiting class
--  桜島で初冠雪を観測
--  미플게임즈, 21일 무역 어드벤처 MMORPG 신작 ‘대항해일지’ 공식 출항
--  국토부, ‘UAM 인증기준 안내서’ 마련…UAM 조기 상용화 지원
--  미국채 30년물 사흘만에 4% 위협...증시 밀리자 반사이익도
--  एनसेलमा दुध–पानी
--  Woman jailed for rape of girl, 14, with boyfriend
--  “숏패딩 만으로는 안돼” 한파에 잘 팔리는 패션 아이템은
--  SsangYong is now KGM in the UK, so is Australia next?
--  포스코DX, 5거래일만에 상승세…14% 급등 [특징주]
--  Suspects indicted in shooting that killed pregnant woman’s baby in Holyoke
--  Bisa Buka Rekening BRI di Luar Negeri, Ikuti Cara Ini
--  ‘SOL 종합채권(AA-이상) 액티브’ 연초이후 성과 1위
--  ＡＩ事業者指針、３月公表へ
--  Ulduz futbolçunun evi yarıldı
--  “사람도 외로운데…” ‘개는 솔로 – 반려견 소개팅’ 주목
--  장예찬 "한동훈, 과감하게 혁신하고 개혁할 수 있는 적임자"
--  가상자산 회계·공시 강화…‘백서’ 의무 다해야 수익 인식 가능
--  세훈, 오늘(21일) 엑소 마지막 입대…2025년 완전체 기대 [MD이슈]
--  지드래곤 측 "악플·허위사실, 일주일 시간 준다…이후엔 무관용 원칙"
--  한·일 여자농구 라이징스타, WKBL 올스타 페스티벌에서 맞대결
--  日本企業に再び賠償命令
--  ‘더핑크퐁컴퍼니’ 상장 소식에 대주주 삼성출판사 상한가
--  Académico del Centro de Estudios Latinoamericanos de Georgetown analiza los liderazgos de la región
--  [뉴스3끼]‘문화도시’ 정책 개편에 예산 26억 원 날아갈 판
--  هل يفوت الهلال تلك الفرصة في سوق الانتقالات؟
--  Tehdään selkoa! Anne Leinonen toivoo selkokirjallisuuden kehittyvän ja nuortenkirjojen aiheiden monipuolistuvan
--  Líderes del Socialismo Democrático aseguran estar abiertos a respaldar nueva candidatura de Michelle Bachelet
--  Airlines cop heavy flak as number of late flights soars
--  Cold wave grips Odisha, 14 cities record temperature below 10 degree Celsius
--  Nahiem Alleyne does it all as St. John’s rolls by Xavier in impressive Big East opener
--  Cacerolazos en Buenos Aires en rechazo al decreto de Milei
--  New Jersey 13-car pileup leads to injuries, jackknifed tractor trailer leaking fuel
+-  Almanya’da aşırı sağ hızla yükseliyor
+-  Trump’a ön seçim yasağı
+-  Fiyatlarda düşüş sürer
+-  Kısıklı Park'ta satışlar başladı
+-  Kararlıyız enflasyon düşecek
+-  Filistinliler asla susmayacak
+-  Anadolu’nun mirası sandıktan sergiye
+-  Dev sığınak yaptırıyor
+-  Gazze için Oradaydılar
+-  Katledilen gazeteciler anısına ‘Gazze’te
+-  45 bine çürük raporu
+-  'Yarısı Bizden'in bütçesi hazır
+-  5 yılda ancak temeli atıldı
+-  Medyanın zekâsı yapay tehdit altında mı?
+-  Uyanın, Türkiye artık bambaşka bir ülke!
+-  Hillcrest jumping castle operator allegedly failed to secure anchor points before students died
+-  Capstone Copper Announces Commissioning Activities Underway at MVDP and Provides Corporate Update
+-  2 California Cities Still Late on Preparing Their Financial Audits for 2019
+-  לא בפעם הראשונה: טויוטה מכריזה על ריקול ענק לרכביה בארה"ב
+-  Você se sente meio triste no Natal? Psicóloga revela filme da Pixar perfeito para lidar com a melancolia de fim de ano
+-  Série mais bem-sucedida dos EUA está em crise? Após escândalo com Kevin Costner, autor processa outra estrela
+-  Gabigol, do Flamengo, treina na praia nas férias: 'Trabalhando muito'
+-  10 loại vitamin, khoáng chất và chất dinh dưỡng phụ nữ nên tiêu thụ hàng ngày
+-  Transport minister savages airlines after worst performance in more than a year
+-  Transport minister savages airlines after worst performance in more than a year
+-  Ram Temple: सोनिया और खरगे को प्राण-प्रतिष्ठा समारोह के लिए मिला निमंत्रण, इन नेताओं को भी भेजा गया न्योता
+-  Odisha government expands Karuna Silk project to seven more districts
+-  Sempurna Kalahkan West Ham, Eh Liverpool Malah Dapat Masalah Baru Jelang Lawan Arsenal
+-  India has the power to lead the world with peace: Mohan Bhagwat
+-  Herzogtum Lauenburg: Neue App verhindert langes Warten auf den Bus
+-  에피바이오텍, 모유두세포 기반 세계 최초 남성형 탈모 치료제 개발 돌입
+-  FDA, IgA 신장병증 치료제 ‘타르페요’ 정식 허가 ... 국내는 허가 심사 중
+-  동성제약, 공기살균청정기 사업 나선다
+-  ‘뇌경색’ 환자 절반 이상이 70대 이상 고령층
+-  ¡Cibacopa! Define Pioneros de Los Mochis a sus 3 extranjeros firmados en Las Vegas
+-  군산시, 사회서비스형 선도모델사업 추진
+-  연천군의회, 제281회 제2차 정례회 폐회
+-  서산시, 시내버스 이르면 22일부터 운행 재개
+-  잘 키운 백화점 대표 점포 매출 '고공행진'
+-  양양군, 22일 ‘고·고 양양 페스타’ 개최
+-  Jackie Matubia reveals her divorce cost her 300K
+-  Read Princess Mary's cryptic Christmas message about loneliness a month after Prince Frederik's 'affair' scandal rocked the royal house: 'We need each other'
+-  En Coahuila: va Morena con Luis Fernando Salazar y Cecilia Guadiana como fórmula por el Senado
+-  Farmacéutica es condenada a pagar 460 millones de dólares por medicamento mortal para adelgazar
+-  अवैध कपडा सशस्त्रको नियन्त्रणमा
+-  Video: Van 79 muertes viales en El Paso en 2023
+-  Video: Realizan Caravana Navideña Movi 2023
+-  L'inflation plombe les ventes des cadeaux de Noël
+-  Chauffeurs VTC : de nouvelles garanties de rémunération
+-  دليل جديد على تفوق دوري روشن
