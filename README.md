@@ -1,51 +1,11 @@
 # Latest News
--  I wish it didn’t take federal crimes to see video games mid-development
--  Paphos luxury resort linked to alleged Russian tax fraud
--  China bans export of rare earths processing tech over national security
--  Power outages, traffic delays as bad weather sweeps island
--  Así usaron los Yankees a Hideki Matsui en reunión con Yoshinobu Yamamoto
--  «Манчестер Юнайтед» склоняется к тому, чтобы не выкупать Амрабата
--  이적료는 1359억 원으로 똑같지만...안토니는 먹튀가 될 위기에 처했고 케인은 뮌헨의 구세주가 됐다
--  נקודות תורפה, סימונים ודרגות: חוברות ההדרכה של חמאס נגד טנקים שמצאו הלוחמים בעזה
--  ולקאניס עמד על הקווים, אייאקס הפסידה לראשונה אי פעם לקבוצת חובבים
--  UN-Experten: Mangelhafte Zustände in australischen Gefängnissen
--  Bakan Fidan: AB'nin Türkiye için gerekli iradeyi sergilemesi gerek
--  Fatih Tekke: 'İlk defa böyle bir gol gördüm'
--  CHP'de 125 aday daha belli oldu! İşte il il tam liste...
--  В Курске восстановили отопление и горячее водоснабжение после аварии
--  В материи астероида Рюгу обнаружили органику из межзвездной среды
--  الوزير الزعوري في زيارة الى قصر عابدين بالقاهرة
--  Vojvodina sa desetoricom igrača izgubila od Voždovca
--  Jake Gyllenhaal's Body Looks Ripped in New 'Road House' First Look
--  Corte IDH advierte a Perú sobre desacato por liberar a expresidente Fujimori
--  Surging Colts look to protect their share of AFC South lead against slumping Falcons
--  Intolerancia: en La Guajira hombre decapitó a su yerno con machete frente a su nieto
--  What if Aliens’ biggest asshole lived?
--  El Presupuesto de Egresos 2024 será destinado para atender la obra social en Ahome: Alcalde
--  M:I’s Michelle Monaghan Made Out With Tom Cruise When She Was Supposed To Be On Honeymoon, And Shared Her Husband's Cool Response
--  Unwetter: Cuxhaven sichert Deichschart mit Sandsäcken vor Sturmflut
--  Darts-Teenie singt und siegt: Littler bei WM auf Kurs
--  Pezzella: "El empate fue un premio a la insistencia"
--  NDLEA Seizes 6, 911.28kg ‘Of Illicit Drugs In Kogi
--  Суд оставил Коломойского под стражей и уменьшил ему залог
--  How the proposed new-look European Super League would work
--  Świątek najlepiej zarabiającą sportsmenką w 2023 r.
--  4655 معتقلاً بالضفة الغربية منذ 7 أكتوبر
--  Ministro Salgado se «enorgullece» de inclusión en Lista Engel
--  SKANDAL Dušica Jakovljević zvala Tašketa u pola pet ujutru 20 puta zaredom, Viki Miljković se javila na telefon i rekla joj samo jedno!
--  Mi lett vele? Kiderült, mivel tölti a napjait Kovács Lázár, amióta eltűnt a képernyőkről
--  Parlamento de Ecuador aprueba reforma constitucional para que las FF.AA. apoyen a la Policía
--  Alavés-Real Madrid, en directo
--  عاجل.. أهم 10.. بيان عاجل من الديوان الملكي وتطبيق حكم الشرع في وافدين وإعفاء المتوفي من الرهن
--  كشفته الكاميرات.. شاب يرتكب جرائم مروعة وينهي حياة مسنين بدولة عربية
--  Армия Израиля сообщила об уничтожении 2 тыс. радикалов в секторе Газа с 1 декабря
--  Парламент Молдавии отправил в отставку главу Нацбанка
--  EastEnders Jack death 'sealed' as fans say there's 'no way back' after aggressive attack
--  Pazifikstaat droht der Untergang: Ein Marshallplan für die Marshallinseln
--  DA NASTAVIMO TAMO GDE SMO STALI Prvo obraćanje Nejpira po povratku u Milano
--  Rewelacja La Ligi zatrzymana. Zdecydował gol w końcówce [WIDEO]
--  Rewelacja La Ligi zatrzymana. Zdecydował gol w końcówce [WIDEO]
--  Geriausiu išrinktas Alekna džiaugėsi pažintimi su Meiltutyte: labai draugiška ir maloni sportininkė
--  Insecurity: Obi of Onitsha lends voice to Peace in South East Project
--  كولر: نحلم بالميدالية البرونزية على حساب أوراوا
--  Российская команда "Эдельвейс" стала бронзовым призером международного турнира по дзюдо
+-  Apple stops selling its Apple Watch Series 9 and Ultra 2 online TODAY as landmark ban comes into force - and shoppers have until Sunday night to buy one in-store
+-  ما حكم السفر يوم الجمعة قبل الزوال أو بعده؟
+-  Identifican a mujeres ejecutadas en el puente en Santa Lucía en Cuauhtémoc
+-  "ישראל צריכה 171 מיליארד שקל בשנה כדי לסגור את הפער עם המערב"
+-  От утре започва депутатската ваканция, следващият им работен ден ще е на 10 януари 2024 година
+-  “김하성, 트레이드 될 것 같지 않은데…” 샌디에이고 쇼핑 리스트 등극, 5000만달러 대출 ‘후폭풍’
+-  La France ferme son ambassade au Niger
+-  National Lab simulates Armageddon-style nuclear asteroid deflection
+-  Streľba v Prahe: V budove bol obrovský arzenál zbraní, povedal český policajný prezident
+-  Андоновски: И лани Данела не откри од каде се средствата за украсување на градот
