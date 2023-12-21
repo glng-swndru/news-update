@@ -1,51 +1,51 @@
 # Latest News
--  日, 강제동원 2차소송 판결에 “매우 유감…韓정부가 대응할 것”
--  김정은 “적 핵도발에 주저 없이 핵공격 불사할 것”
--  ‘마약 무혐의’ 지드래곤 측의 최후통첩…“악플 삭제, 1주일 주겠다”
--  동거녀 몸에 불지른 30대男 “겁주려고…살해 의도 없어”
--  ‘前 법무장관’ 조국, 한동훈 與수장 등판에 “검찰정권 완성”
--  신생기업 36%, 1년도 못 버티고 문 닫았다
--  [함께 보는 어린이책] 〈금이 생겼어요〉 외 2권
--  "או שמתאבדים, או שלא נזכה בכלום": צ'אבי גער בשחקני ברצלונה
--  Finanshus skruer kursmålet op for C25-aktie
--  Karaman'da eski damat ve kayınpeder arasında bıçaklı kavgası: 3 yaralı
--  Konya'da sokak ortasında çatışma! 11 kişi yakalandı
--  Jandarmadan uyuşturucu operasyonu: 38 kilogram metamfetamin ele geçirildi
--  KWK 8: Ajay Devgn recalls father Veeru Devgan`s gangster days
--  LeanBliss Reviews (Shocking Consumer Report Update): Read This Before You Buy
--  Covid-19 surge: India`s active caseload at 2,669 as JN.1 cases spike
--  The complex landscape of INDIA Alliance for the 2024 Lok Sabha polls
--  Volkswagen Group Korea holds community outreach Christmas event for children
--  รร.พิริยาลัย จ.แพร่ รับโล่สถานศึกษาต้นแบบปลอดบุหรี่และเครื่องดื่มแลกอฮอล์
--  ¡El estado le echa la mano! Cumple Ayuntamiento de Escuinapa con pago de aguinaldo a Jumapae y DIF
--  מחפשים דירה במרכז? מאות דירות צפויות להיבנות ברמת גן
--  האיום החות'י הגיע לאיקאה: צפוי מחסור במוצרי החברה השבדית
--  ביטוח לאומי מחלק מענקים עד 4,000 שקל: בדקן בחשבון הבנק
--  חרבות ברזל, היום ה-76: שלושה חיילים נהרגו בעזה, שמונה נפצעו קשה
--  אל על בבשורה מאכזבת: הטיסות האלה יתארכו מ-8 ל-11 שעות
--  מגישת חדשות 12 מתפרקת: "אני מרוסקת, כמו כולם"
--  תואר ראשון בחינם: מי יזכו למימון של 100% מהלימודים?
--  משרתים במילואים? זו העיר שתעניק לכם כרטיס הטבות
--  הזוכה ב-5 מיליון שקל בלוטו: זו השיטה שלי לזכות
--  דרמה בסמסונג: החברה בדרך להפסדים של מיליארדי דולרים?
--  בית המשפט פסק: בינה מלאכותית לא יכולה להחליף בני אדם
--  לאס וגאס - קרית גת: זה מה שנתפס בפשיטה על בית העסק
--  מחיר הדלק נקבע: זה המחיר שתשלמו עד סוף 2023
--  יאיר נתניהו תמך בציוץ: "הפיכה צבאית בניצוחו של הרמטכ"ל"
--  הסוף ל-GROO ובאליגם: אתרי הקופונים יורדים מהאוויר
--  יונית לוי תעדר מחדשות 12: הסיבה לפציעה הקשה נחשפת
--  ברק בכר בסוף הדרך? דיווחים בסרביה על פיטורי המאמן הישראלי
--  מסתמן: אפל תשיק ב-2024 את הגרסה החדשה של ה-CarPlay
--  הותר לפרסום: סוהרים חשודים ב"מעורבות אלימה" כלפי אסיר ביטחוני שמת
--  Axel Jonsson Fjällby sköt säsongens första mål: "Skönt att det ger resultat"
--  마래푸·헬리오도 발길 ‘뚝’...주택시장 한파에 아파트값 ‘뚝·뚝·뚝’
--  본회의 참석하는 김기현 전 대표
--  هل ينجح دونالد ترامب بالعودة إلى البيت الأبيض بعد حكم ولاية كولورادو؟
--  Hamas: Biden Gazze'ye gönderen insani yardımları engelliyor
--  한국동서발전, 울산 성신고에 9.6kW급 자원순환 태양광 쉼터 설치
--  한화그룹, 사회복지공동모금회에 성금 40억 원 전달
--  AI could play an important role in sustainability transition: ABN Amro
--  이번엔 정말 도장 찍었다… LG, '우승 캡틴' 오지환과 6년 총액 124억 FA 계약
--  Neue Erkenntnisse zu Hamas-Tunneln vorgelegt - Die Nacht im Überblick
--  Do konca božično-novoletnega obdobja v večernem času brezplačne vožnje z ljubljanskimi mestnimi avtobusi
--  Новый президент Аргентины объявил чрезвычайное положение в экономике Новый президент Аргентины взялся за дело: объявлено ЧП в экономике, здравоохранении и социальной сфере
+-  현대차, 올해 전기차 판매량 목표 달성에 ‘빨간불’
+-  명랑 가족 코믹극 '우당탕탕 패밀리' 왜 이렇게 재미있나, 시청률 13% 돌파 "자체 최고 경신"
+-  [전문] 'MBC 간판 아나운서' 박연경, 결혼 전격 발표…"작은 예식, 예쁘게 잘 살겠습니다" (종합)
+-  폴킴, 핑클 '화이트' 리메이크 곡 발표
+-  아이유 측, 저작권 침해 혐의에 대한 손해배상 청구소송 진행 중
+-  '마약투약 혐의' 이선균, 23일 3차 소환조사
+-  백종원, 5년 전 '골목식당' 솔루션으로 큰 화제가 됐던 '홍탁집' 근황 공개
+-  '2023 SBS 가요대전', NCT·에스파 '동방신기' 커버 무대 선사
+-  브라질 최고 유망주, 이강인 파트너 된다…’이적료 314억+보너스 42억’
+-  Simon's Town fire update: Five support aircraft activated
+-  Warner Bros połączy się z Paramount? Rozmowy są w toku
+-  Centre To Release DPDP Rules By Fortnight
+-  Comment Pinduoduo et TikTok menacent Alibaba, empereur de l'e-commerce chinois
+-  Minibüs iki araca çarptıktan sonra aydınlatma direğini devirdi: 4 yaralı
+-  Konya dahil 47 ilde eş zamanlı 'NARKOGÜÇ-40' Operasyonu! 376 uyuşturucu şüphelisi yakalandı
+-  Pikniğe giden ailenin bulunduğu hafif ticari araç göle düştü: 7 yaralı
+-  Twitter (X) çöktü mü? X'e erişim sorunu yaşanıyor!
+-  Tuna Mobilya, gayrimenkul sektöründe büyümeyi hedefliyor!
+-  Først ville regeringen droppe det, men nu reddes økologisk spisemærke
+-  Social media platform X down for users globally — Downdetector
+-  Incredible 999 call captures girl, 4, and sister, 2, saving mum’s life with CPR
+-  В работе соцсети X произошел масштабный сбой
+-  펄어비스, 땅스부대찌개와 ‘검은찜닭 부대찌개’ 신메뉴 출시
+-  신한금융, 행안부와 지역 경제 활성화 업무협약 체결
+-  국민은행, 군장병 대상 보이스피싱 근절 나선다
+-  Galaxy S24 Ultra ekran koruması ile göz dolduracak
+-  "뻥튀기 상장 막는다"…IPO 제도 내년 2분기 개선
+-  타다 기사 측, 부당해고 취소 소송 항소심서 승소
+-  한동훈, 尹에 사의 표명…국힘 비대위원장직 수락
+-  '제4이통' 재수 나선 세종텔레콤 "주파수 경매 입찰 시 출혈 경쟁 생각없다"
+-  튀김유값 내렸는데…가격 인상 저울질하는 bhc·교촌치킨
+-  민주당, 이재명 사퇴 통합비대위…동의 47% 비동의 42%
+-  금융위 "내년 시장안정 프로그램 확대 검토…PF 연착륙 지속"
+-  홍익표 "한동훈, 유능함 보여준 적 없어 여당 바꿀 수 있을지 의문"
+-  "공정위 플랫폼법 도입 시 한국에 투자 못해" 벤처 투자자들 강경 반대
+-  Ehlers scorer sit 11. NHL-mål i sæsonen i hjemmebanesejr
+-  법원 "국가, '형제복지원' 피해자에 배상하라" 손배소 첫 판결
+-  Islamabad police baton-charge, arrest Baloch protesters
+-  Spain Braces For Annual 'Fat One' Christmas Lottery
+-  Westrand straks leefbaarder, mooier, veiliger en groener
+-  Fans in Disbelief After Tony Stewart’s eSports Team Shuts Down Operation
+-  Adhésion de l'Ukraine à l'UE : l'étude qui revoit nettement à la baisse l'impact financier
+-  หอการค้าเชียงใหม่ ร่วมงานประชุมแนวทางการพัฒนานวัตกรรมในพื้นที่ภาคเหนือ
+-  Sveti Mihej – prorokuje Mesijino rođenje u Betlehemu
+-  BIO JE OMILJENI JUGOSLOVENSKI PEVAČ Svi su ga zaboravili, ženio se 10 puta, a prošle godine POGINUO u SAOBRAĆAJKI
+-  Avesta 21.–27.12 | Praktilised õpetused igaks päevaks
+-  My aunt died in Gaza – she’s sharing her grave with a child killed the night before
+-  Akaryakıt fiyatlarına peş peşe dev zam (21 Aralık 2023 motorin-benzin-LPG fiyatları)
+-  제주관광 연말연시 그랜드 감사 세일 이벤트 진행
+-  LGU+도 20년 걸렸다..."제4이통 '비대칭규제' 필요, 출혈경쟁은 안할 것"
