@@ -1,11 +1,51 @@
 # Latest News
--  عاجل.. بالتفصيل.. طريقة حساب جمارك السيارات المستعملة وشروط استيراد سيارة 1445
--  "ورث المهنة عن أجداده".. شاب بالقطيف يمتلك مزرعة بمساحة مليون متر مربع
--  Αλαβές – Ρεάλ Μαδρίτης 0-1: Ηρωική απόδραση στο 90’+2’ και πρώτη στη La Liga! (vid)
--  Polícia prende trio envolvido em desaparecimento de dois jovens em Mato Grosso
--  La ONU constata el asesinato de 69 defensores de DDHH hasta noviembre en Colombia
--  Negociaciones sobre el incremento del salario mínimo en Colombia continúan sin acuerdo
--  – رئيس حكومة الوحدة الوطنية يستقبل المبعوث الأمريكي الخاص إلى ليبيا
--  صور.. تشميع 4 مراكز دروس خصوصية في البحيرة
--  البرهان: الجيش سيقاتل لآخر جندي حتى ينعم أهل السودان بالأمن والأمان
--  تحذير في الإسكندرية.. شركة الصرف تتوقع ارتفاع الأمواج لـ3 أمتار غدًا
+-  Aussie coach Michael Valkanis suffers humiliating loss as Ajax fall to fourth-tier side Hercules in Dutch Cup
+-  Portland’s record homeless deaths driven by meth, fentanyl
+-  Real može sa desetoricom, Lukas Vaskes u nadoknadi srušio Alaves
+-  수급불안정 해열제 · 항생제, 새해부터 약가 인상
+-  안양시, 2024년 주민참여예산 52억5천만원 확정
+-  [금요칼럼] 기후위기 빨간불, 골든타임 확보 나선 'COP 28'
+-  [부고] 김재훈(기획재정부 미래전략국장)씨 모친상
+-  Profs ask police to launch criminal probe into ex-dean
+-  Hermès heir wants to leave $6 billion to his former gardener
+-  مسؤولون إسرائيليون يجرون اتصالات مع رئيس شركة ميتا للتصدي لهجمات سيبرانية
+-  إعلام عبري: انسحاب لواء جولاني من غزة مؤقتا
+-  Esta es la forma de pagar tu crédito Infonavit hasta con 50% de descuento
+-  Real slavio s desetoricom, Ancelotti nakon isključenja “žrtvovao” Modrića
+-  Hermès heir wants to leave $6 billion to his former gardener
+-  Emilio Izaguirre deja escapar el fichaje de Carlos Small
+-  De vacaciones en Costa Rica: Internautas difunden imágenes del príncipe Harry y Meghan Markle en la provincia de Guanacaste
+-  NBC News' Ben Collins Triggered by Newspapers Covering Harvard Plagiarism Scandal
+-  Single-family home sells for $3 million in Palo Alto
+-  إصابة مدير عام الصحة في غزة واستشهاد ابنته بقصف إسرائيلي على جباليا
+-  إعادة فتح "نويبع".. انتظام حركة الملاحة في موانئ البحر الأحمر
+-  Carro con doble fondo tenía 14 paquetes de droga
+-  Rosengård utslaget ur CL efter storförlust
+-  An Israel-Hamas conflict ceasefire ‘can’t be one-sided:’ Trudeau
+-  I put 5 AI image generators to the test to see which makes the best Christmas card — here’s the winner
+-  Sinfonía de sabores: tlayudas que reflejan toda la riqueza de México
+-  Renzo Malanca, el mendocino que hizo historia en el fútbol chileno
+-  Amnesty International Minta Junta Myanmar Diselidiki atas Kejahatan Perang
+-  Cobertura Saints vs Rams EN VIVO | Thursday Night Football, Semana 16 NFL 2023
+-  Firli Bahuri Mundur, IM57+ Institute: Upaya Melarikan Diri dari Masalah
+-  Macky Sall délivre le message de l’APR à Amadou Bâ : « War Nga Yokk Taxawaay. Car, nous avons confiance en vous… »
+-  B.C.'s Nisga’a Nation goes to court to evict ‘outlaws’
+-  Ross County manager says expanding Scottish Premiership would improve quality of game
+-  &quot;SAKRIO SAM SE ISPOD STOLA I PRIPREMAO SAM SE ZA...&quot; Jezivo svedočenje studenta o pucnjaviu Pragu: Profesor je pokušao da zaključa vrata, ali nije uspeo
+-  Machu Picchu visitor cap increased to 5600 a day to bolster Peru tourism
+-  A Codecool programozóiskola átveszi a Green Fox Academy tanulóit és oktatóit
+-  Grande Fratello, l’addio di Beatrice Luzzi potrebbe essere definitivo
+-  Aprueban accionistas de AHMSA financiamiento de 600 mdd
+-  Jack Smith to Trump: Start Prepping for Florida Jury Trial
+-  Catholic High School Student Suspended Over Gender Beliefs Loses Appeal
+-  KRALJEVSKI KLUB SLAVIO SA DESETORICOM Real se vratio na prvo mesto
+-  Hochgeschwindigkeits-Transportunternehmen Hyperloop One stellt den Betrieb ein - Bloomberg News
+-  Hogesnelheidsbedrijf Hyperloop One gaat sluiten - Bloomberg News
+-  Van Wolfswinkel zegt bekerloting last minute af: Twente-selectie wil niet wachten
+-  Hasil, Top Skor, Klasemen Liga Inggris Pekan Ke-18: Crystal Palace vs Brighton 1-1
+-  Candaan Zulhas, Tokoh NU Yakin tidak Ada Niat Mencela Agama
+-  Gaziantep'te Yakalandılar! İş yerini kurşunlayan şüpheliler Gaziantep’te yakalandı
+-  В Хмельницкой области Украины произошли взрывы
+-  Oakland man charged with setting occupied park car on fire with accelerant, killing 30-year-old man
+-  Cristina Pacheco, foremost chronicler of street life in Mexico for half a century, has died at 82
+-  Ουκρανία: Αναστολή πληρωμής χρέους ως τον Μάρτιο του 2027
