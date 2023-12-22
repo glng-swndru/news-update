@@ -1,11 +1,51 @@
 # Latest News
+-  El GBC es 007, tiene licencia para soñar
+-  Байден заявил, что был "убит горем" после одного известия из Газы
+-  عدد ألقاب جوليان ألفاريز حتى الآن
+-  البيت الأبيض يتهم إيران بـ"الضلوع بشدة بتخطيط" هجمات الحوثيين البحرية
+-  Update On When Xavier Woods May Be Back On The Road
+-  Rökutveckling på boende – man omkom
+-  "C'est très inquiétant": à Manosque, les urgences sont fermées entre Noël et le jour de l'an
+-  PF investiga em Manaus difamação eleitoral por inteligência artificial
+-  Mujer se quita la vida en vivienda de la colonia Zootecnia
+-  Jhon Arias explica que 'olé' de Grealish iniciou treta entre jogadores de Fluminense e Manchester City
+-  فيديو اشتباك فيليبي ميلو مع ووكر
+-  Exmilitar colombiano se declara culpable en caso del magnicidio en Haití
+-  États-Unis: l'impressionnant transport en hélicoptère de cerfs pour un examen de santé
+-  Karl Rove says Ronna McDaniel 'in trouble' over Trump's Michigan call
+-  Wisconsin Supreme Court overturns GOP-drawn maps legislative
+-  [걸어서 세계 속으로] 북방의 장미, 란나 왕국을 찾아서 - 태국
+-  Série A: Milan decepciona ao empatar com lanterna em 2 a 2
+-  ‘더 리흐트-우파메카노 못 믿어’…김민재 새 파트너로 독일 국대 센터백 낙점
+-  [인터뷰] 1년 만에 현장복귀 ‘펩태완’ 김태완 감독, 천안과 함께 할 도전 스토리
+-  Loi immigration: les groupes de gauche à l'Assemblée saisissent le Conseil constitutionnel
+-  BCCDC alerts parents to high cases of severe Strep A infections
+-  Résultats EuroMillions FDJ : le tirage du vendredi 22 décembre 2023
+-  Ski Report
+-  Curtea Supremă a SUA refuză să se pronunţe de urgenţă asupra imunităţii lui Donald Trump
+-  ВАРПЭ: запрет импорта продукции из российской рыбы ударит по самим США
+-  Пожар в магазине пиротехники в Югре полностью ликвидировали
+-  Eishockey-Regionalligist Adendorfer EC verliert gegen Timmendorf 1:5
+-  Corte Suprema deja sin efecto criterios de reducción de condena a violadores sexuales
+-  Mamelodi Sundowns coach picks favourite Man City star
+-  Tony Carreia no Altice Arena: conheça os bastidores da celebração dos 35 anos do artista
+-  Man City nhận tin buồn dù vô địch FIFA Club World Cup
+-  FIORENTINA SLAVILA MINIMALNIM REZULTATOM: Beltran srušio Moncu
+-  A la cárcel mujer acusada de prostituir a su sobrina menor de edad en Medellín
+-  SNOBELEN: Religion an easy target for misguided haters
 -  Fátima Herrera (PSOE): «No metan el tema de la amnistía para tapar todas las chapuzas que hacen»
+-  Sulmuesi në Universitetin e Pragës veproi i vetëm
+-  В Польше заявили о сохранении запрета на ввоз украинского зерна
+-  Austrian skier Schwarz wins night race in Italy to go top of overall and slalom standings
 -  39 ans après sa sortie, "Last Christmas" de Wham! devient (enfin) première chanson de Noël au Royaume-Uni
 -  La oposición se agarra a la subida del IBI en Almería para negarse a apoyar las cuentas del PP de 2024
 -  El Instituto de la Mujer invita a «sumar esfuerzos» para acabar con la violencia de género
 -  DOK JEDNI HVALE, DRUGI NEGODUJU: Hamas i Palestinska samouprava izrazili suprotne stavove o rezoluciji SB UN
+-  FOTO Pogledajte atmosferu na koncertu Prljavaca u Osijeku
+-  Messi ve Suarez yine aynı takımda
 -  Nicki Minaj Reveals If She'd Ever Want to Collaborate With Taylor Swift
 -  عاجل.. أعراض أشد خطورة لمتحور كورونا الجديد JN.1
 -  "الأرصاد" يُحذر من استمرار الأمطار على مناطق المملكة حتى ساعات الفجر
 -  Şehit ateşi Malatya'ya düştü: Baba ocağı Türk Bayrakları ile donatıldı
 -  Nicolo Zaniolo attı, Aston Villa son anda puanı kaptı!
+-  İntihar etmek için ırmağa gidiyordu: Çamura saplanıp mahsur kaldı
