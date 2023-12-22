@@ -1,11 +1,11 @@
 # Latest News
--  Perú rechaza haber desacatado sentencia de Corte IDH sobre excarcelación de expresidente Fujimori
--  Las últimas tropas francesas abandonan Níger tras el fin oficial de la cooperación militar
--  MRCB invertirá 270 millones de RM en el proyecto PJ Sentral y se desprenderá de activos no estratégicos
--  Rechaza China asentamientos de Israel en territorios ocupados
--  Postecoglou unimpressed by Euro Super League planners
--  'Project 10,000' is helping: Cele pleased with Western Cape police visibility
--  No injuries reported as Simon's Town fires, fanned by winds, rage on
--  'We can do better': Sindisiwe Chikunga to all festive season road users
--  Manhunt underway after mother-daughter duo injured in Durban drive-by shooting
--  هروي.. المفاجأة الكبرى
+-  Predčasný vianočný darček: Z Adama Ďuricu sa stal trojnásobný otec!
+-  130 مليون دولار لدعم السلطة الفلسطينية
+-  صفات تتميز بها المرأة المتزنة
+-  دراسة: حمية البحر المتوسط تعزز خصوبة الرجال
+-  Hävelid om Jakob Noréns status efter smällen: "Den tar otroligt dåligt”
+-  Nálunk nőtt a legnagyobb mértékben a félretett pénz összege a régióban
+-  Fuir Gaza sous les bombardements d’Israël, le calvaire d’une mère marocaine
+-  Christmas celebration at Hayatabad Medical Complex
+-  Christmas cake-cutting ceremony held at LHC
+-  Five laborers killed armed attack on under construction police station in SW
