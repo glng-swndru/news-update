@@ -1,51 +1,51 @@
 # Latest News
--  ג'ייקובן בראון עבר ניתוח בגרמניה, ייעדר בין 4 ל-6 שבועות
--  سائفر کیس میں بانی پی ٹی آئی اور شاہ محمود قریشی کی ضمانت منظور، جسٹس اطہر من اللہ کے اہم ریمارکس
--  Arsenal star Bukayo Saka shows off bold new hair as fans say ‘it’s over for Liverpool’
--  Major boost for thousands of Irish students as new bursaries see grants of €5k or €2k per year awarded
--  Soccerladuma | Castillo Reveals Adaptation To Chiefs & Life In South Africa
--  Year Ender 2023: సంచలనం సృష్టించిన టాప్‌-10 IPOలు, పెట్టుబడిదార్లకు కనక వర్షం
--  Африканец пытался уйти в Эстонию в поисках лучшей жизни, но попался псковским пограничникам
--  Tiroteo en universidad enluta a Praga; hay 14 fallecidos
--  Se irá a litigio reelección de siete chapulines
--  Crece el reclamo por periodistas fallecidos; muertes en la guerra Israel-Hamás
--  Buscan controlar flujo migratorio en frontera
--  Андрей Рюмин дал старт работе высокотехнологичных энергообъектов особой важности
--  На улице Каширина в Рязани водитель Renault сбил 12-летнего ребёнка
--  В Серпухове прошло первенство по пулевой стрельбе
--  Аналитик: ХАМАС потерял контроль над значительной частью сектора Газа-ФОТО
--  Gospodarka Wielkiej Brytanii skurczyła się w III kw.
--  Ceny domów w Niemczech kontynuują spadkową tendencję
--  Sangrur News: ਵਿਆਹੁਤਾ ਦੀ ਸ਼ੱਕੀ ਹਲਾਤਾਂ ਵਿੱਚ ਮੌਤ, 4 ਸਾਲ ਪਹਿਲਾਂ ਹੋਇਆ ਸੀ ਵਿਆਹ, ਸੱਸ-ਸਹੁਰੇ ਤੇ ਪਤੀ ਖ਼ਿਲਾਫ਼ ਮਾਮਲਾ ਦਰਜ
--  Osa joulusuklaista on jo paikoittain loppunut Lahden seudulla – Raija ja Arto Rämö löysivät etsimänsä vasta toisesta kaupasta
--  Gogglebox star Shaun Ryder reveals heartbreaking reason he still has to ‘work hard and make money’ at 61
--  Asyl: Rechtsberatung teils verfassungswidrig
--  Penthouse in Flammen: Unbeaufsichtigte Feuerschale setzt wegen Sturm Dachterrasse in Brand
--  IDF Shot American: इजरायली सैनिकों ने 13 साल के अमेरिकी बच्चे को मारी गोली, कपड़े उतारकर तलाशी ली गई, जानें पूरी कहानी
+-  Open government partnership: New framework for governance reforms
+-  Home sales values still down nearly 1% since last November, as dip continues to slow
+-  Χριστουγεννιάτικη ατονία στο Χρηματιστήριο
+-  Gaziantep Oğuzeli'nde avlulu kerpiç ev icradan satılıktır
+-  Virat Kohli Returns To India Due To Family Emergency
+-  Bayerische Staatsoper to Stream ‘Die Fledermaus’ with Diana Damrau
+-  Kalėdinės puošmenos gali tapti gaisro priežastimi: priminė, kaip jas naudoti tinkamai
+-  Neregėtas skandalas. „Prilepinui ir kitiems, norintiems užkariauti Uzbekistaną - eikit n#####.“ Audra Uzbekistane
+-  Zalužno pasiklausymas. Ždanovas skelbia paslaptį, ką „praleido“ kontržvalgyba (Video)
+-  Por que tiktoker brasileiro decidiu sumir das redes no auge da fama
+-  Trotz Haushaltskrise: Grünen-Chef Nouripour hält Ahrtal-Hilfe für sicher
+-  Wainua, el fármaco de AstraZeneca e Ionis para la hATTR-PN, recibe la aprobación de la FDA
+-  El Hang Seng cae un 1,7% ante el desplome de Tencent por regulaciones chinas a videojuegos
+-  Artist of the Week: Diana Damrau
+-  Fact Check : अंजली आर्य के वीडियो को मुस्लिम महिला का बताकर किया गया वायरल
+-  "토트넘의 글래디에이터, 다음 달 떠난다!"…유벤투스냐 나폴리냐, '그것이 문제로다'
+-  2024년 첫 걸그룹, 멤버들 비주얼 베일 벗었다
+-  [공식발표] 삼성, 'ML 출신' 새 외인 투수 코너 시볼드 100만 달러 영입
+-  '미스트롯3' 김소연, 첫 무대부터 '올하트'…"강약조절 완벽" 마스터 극찬
 -  Pressestimmen zum Super-League-Urteil: Zwischen „Zeitenwende“ und „Mauer des Neins“
--  Zdravotníčka šokovala vianočnou odmenou, ktorú dostala od šéfa: TOTO by ste určite dostať nechceli!
--  Former EastEnders star says she has 'the perfect gift' as she celebrates anniversary
--  Streľba na univerzite v Prahe je na titulných stránkach nemeckých denníkov
--  "ČUDNO, DAČIĆ NIJE MNOGO KASNIO" Vučić: Prvo postizborni razgovori (FOTO)
--  WSJ: Wagner-pomo Prigozhinin kuolema oli Putinin luottomiehen käsialaa
--  Disappointing to see `caste` brought into serious debate in Parl: Chidambaram
--  Court extends custodial remand of Lalit Jha till January 5
--  NDIA bloc protests suspension of oppn MPs, Kharge says democracy under threat
--  `Aquaman and the Lost Kingdom` movie review: Chaotic effects play spoilsport
--  Video of Karnataka CM in luxury jet goes viral, draws sharp reaction from BJP
--  By suspending 150 MPs, govt muffled voices of 60 pc people of India: Gandhi
--  Oppn MPs came with request for suspension after some lawmakers suspended: Joshi
--  Ukraine-Russia war live: Russia launches major drone attack on Kyiv
--  "צריך להגן על שחקנים כמו מילסון. בטרנר לא שמרו עליו"
--  [오늘의 중국 증시] 온라인 게임 산업 제한 계획 발표에 하락 마감
--  वैज्ञानिकों ने खसरा वायरस के मस्तिष्क में फैलने की बताई वजह
--  오픈베이스, 소프트웨어 천억클럽 어워즈 1천억클럽 멤버 선정
--  플레이스테이션, 내달 5일까지 겨울 세일…PC 타이틀 최대 75% 할인
--  데이터스트림즈, ‘의료분야 빅데이터 플랫폼 데이터 협력’ 협약식 개최
--  오케스트로, 첫 ‘파트너 데이’ 행사 개최…미래 비즈니스 모델 발표
--  Oscar-shortlistre került Buda Anna Flóra Arany Pálma-díjas animációs filmje
--  ก.แรงงาน จัดเต็ม มอบของขวัญปีใหม่ 11 ชิ้น ขึ่้นค่าแรงขั้นต่ำ - ช่วยปลดหนี้
--  Suspects to be prosecuted for racist projections on Rotterdam and Eindhoven buildings
--  Over 1,700 kilograms of cocaine found in banana and jelly shipments
--  Devolving of police powers the police minister's responsibilities - WC MEC Allen
--  Spar Group to phase out long-term exclusive lease agreements at shopping centres
+-  Frauke Ludowig: Oben-ohne-Hammer! RTL-Moderatorin (59) sorgt für nackte Tatsachen
+-  Beograd: Policija otkrila tinejdžere koji su naručivali slanje poruka o bombama
+-  Er spielte mit Kahn und Matthäus: Ehemaliger Bayern-Profi liebt sein Leben als Hausmeister
+-  Kickoff | Mammila reveals what he told Chiefs-linked Nwabili
+-  Calmon: Ford Ranger Raptor tem proposta marcantemente superior
+-  ArcelorMittal lässt eigene Sicherheitsstandards untersuchen
+-  Jake Gyllenhaal, l’attore è un concentrato di muscoli nelle prime immagini del remake di Road House [VIDEO]
+-  Plätzchen sind zu hart? Mit einem Stück Apfel oder Brot retten Sie die Leckerei
+-  Plätzchen sind zu hart? Mit einem Stück Apfel oder Brot retten Sie die Leckerei
+-  Αρμάνι: Αντέχει χωρίς Μίροτιτς και απειλεί τον Παναθηναϊκό με τρίποντα
+-  Madonna: "Du brauchst Ruhe, Oma!" Popstar entsetzt Fans mit Schamlos-Pose
+-  Opinion | L'industrie française doit descendre en gamme !
+-  Fubara Hands Over Official Vehicles To Rivers Commissioners
+-  En la UNAM se rompe récord de titulaciones
+-  Govt threatens to shut down unregistered colleges
+-  도심복합사업 두 번째 후보지는?…부산·광주·시흥 나란히
+-  "Mon loulou ne fait rien, à part le pinard": derrière la magie de Noël, la charge mentale invisible des femmes
+-  Ékszerbe fektetnéd a pénzed? Azonnal felejtsd el!
+-  Банки в Гърция глобени с милиони евро заради нелоялна конкуренция
+-  Surpriză în Republica Moldova: Fostul ministru român de Finanțe, Anca Dragu, propusă să fie noul guvernator al Băncii Naționale
+-  Sarajevski hirurg za Vijesti opisao horor u Pragu: U bolnici je bilo kao u ratu
+-  ‘전신마비 극복’ 유튜버 박위랑 사귀는 유명 가수 누구?
+-  Cadeaux de Noël: cinq mini-enceintes pour les mélomanes nomades
+-  120 cadetes participarán en el II Torneo Nacional de Baloncesto de Tarazona y Borja
+-  ג'ייקובן בראון עבר ניתוח בגרמניה, ייעדר בין 4 ל-6 שבועות
+-  경제도 ‘수도권 쏠림 현상’…서울 개인소득 6년 연속 1위
+-  눈 왔다고 ‘빗자루’로 차량 쓸어준 아저씨
+-  Schweiz steuert bei Zuwanderung auf Rekordjahr zu
+-  ताकम–मुना जोड्ने सडक स्तरोन्नति गरिने
+-  Työttömien määrä kasvoi Pohjois-Pohjanmaalla – uusien työpaikkojen laski lähes kaikissa ammattiryhmissä
