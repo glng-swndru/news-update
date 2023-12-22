@@ -1,11 +1,11 @@
 # Latest News
--  فيلمان عربيان في القائمة الأولية لأوسكار أفضل فيلم دولي
--  قصف لمخيم البريج واستشهاد شاب بخان يونس
--  صلاح يغيب 7 مباريات عن ليفربول
--  صورة التشيكي الذي قتل 15 شخصا بمجزرة استلهمها من طفلة روسية
--  Christmas Day Contest 2023 : participez au plus grand jeu du weekend de Noël en NBA !
--  Molenlanden voldoet niet aan taakstelling statushouders, 'maar is geen weigergemeente'
--  'Park Julianastraat' in Groot-Ammers wordt nu echt een park
--  Rotary Club Alblasserwaard en Albert Heijn Giessenburg schenken Voedselbank Alblasserwaard kerstbroden
--  Gemeente Molenlanden start procedure plan Vossenburcht in Goudriaan
--  Genç Oyuncu Apar Topar Hastaneye Kaldırıldı
+-  의협의 ‘의대 정원 증원 반대’ 투쟁 더 이상 안 통해 [쓴소리 곧은 소리]
+-  한총리, 안전관리 태세 강화 지시…“연말연시 인파 밀집 예상”
+-  17년 전 집에 혼자 있던 女 성폭행 혐의 70대…‘DNA 대조’로 덜미
+-  “제보자는 이낙연 최측근” 대장동 의혹 최초 보도 기자, 檢 소환
+-  잘못 걷은 주정차 과태료 20% 미환급…1억9000만원 달해
+-  ‘포스트 우상호’ 노리는 비례 이수진 “尹정부에 브레이크 걸어야”
+-  “돈 받고” “낙서일 뿐”…공분 산 경복궁 ‘낙서 테러범’ 2명 구속 기로
+-  [시론] 주역 관괘(觀卦)로 한동훈 등장을 읽다
+-  구속 위기 놓인 검·경 출신 변호사들…‘백현동 수사무마’ 혐의 부인
+-  삼구삼진→2안타, 다음은?...이정후 vs 야마모토, 동갑내기 한·일 라이벌 ML 무대서 리턴 매치 성사
