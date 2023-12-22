@@ -1,51 +1,51 @@
 # Latest News
--  TFF ve Kulüpler Birliği'nin kritik toplantısı sonrası flaş açıklamalar
--  WHO warns of significant global Dengue resurgence in 2023
--  USA är inte riktigt i hamn ännu
--  1,280 asistencias viales reporta el MOP en diciembre
--  Licencia permitirá a Shell y NGC producir gas en Venezuela por 30 años
--  Wall St sube tras los débiles datos de inflación; Nike cae
--  От 3 януари НАП затяга контрола върху превозите на стоки с висок фискален риск
--  رودريجو يتصدر المرشحين لجائزة الأفضل بالليجا في شهر ديسمبر
--  ¿Y mis 350 mdp? Trabajadores de Interjet acusan al Gobierno de retraso en pago de ‘indemnización’
--  List Of Corrupt Activities Allegedly Committed By Emefiele As Released By CBN Investigator
--  My husband is a neat freak but I spend £8K on Christmas tat – I have a dedicated ‘Santa room’ I enjoy all year round
--  Refuerzan vigilancia en el Centro por compras navideñas
--  Verdugo se afeita para cumplir con la regla de los Yankees
--  Shocking moment mourners at gypsy funeral are chased by cops as they huddle around COFFIN on back of truck on motorway
--  81-Year-Old Woman Sentenced to One Year for Her Faith in Retrial
--  الرجاء يتفوق على الآخرين في هذه الناحية
--  Skin de John Wick x Fortnite: cómo conseguir, estilos y más
--  Mottagning säger upp avtal i förtid när vårdval allergologi avvecklas
--  Kerry Katona attempts to urinate out of her £118k car on M56 motorway during traffic jam... and MISSES panto appearance with daughter Lilly-Sue, 20, due to overturned horsebox
--  Baleària compra el ferry Rusadir por 170 millones
--  El número feo y tardón reparte muchísima alegría
--  El número feo y tardón reparte muchísima alegría
--  112 Acil çağrı hattında yeni dönem
--  Are banks open today? Here's a list of U.S. bank holidays for 2023
--  The harrowing true story of the 'cursed' Von Erich brothers - from a freak electrocution accident to a fatal drug overdose - as Zac Efron-starring 'The Iron Claw' hits cinemas
--  Retenciones en Madrid, Barcelona, Tarragona, Valencia, Vizcaya y Guipúzcoa en la Operación Salida de Navidad
--  Simone Biles named AP Female Athlete of the Year for the third time after glorious comeback... gymnastics icon beats Caitlin Clark and Ballon d'Or winner Aitana Bonmati to crown
--  Retenciones en Madrid, Barcelona, Tarragona, Valencia, Vizcaya y Guipúzcoa en la Operación Salida de Navidad
--  Количество бригад скорой помощи увеличат на праздники в Петербурге
--  Jim Delahunt unveils his festive picks on Celtic v Livingston, Motherwell v Rangers, the EPL card and his weekend acca
--  Vlada predstavila demografsku strategiju, demograf kritizirao: 'Nema u njoj konkretnih mjera'
--  «Pas encore mon heure», un joueur du PSG fait une confidence après le drame
--  Kallelse till extra bolagsstämma i Footway Group AB
--  Milica Pavlović najavila koncert u Areni Zagreb
--  ส่งท้ายปี ‘ปิยะวดี-โรเตอร์-อะกิ’ แชมป์’โตโยต้า กาซู เรซซิ่ง2023′ สนาม5บุรีรัมย์
--  Image Systems tar miljonorder
--  Western Countries' Attempts to Cancel Russia in UNESCO Failing - Lavrov
--  Новый корпус Центра гигиены и эпидемиологии Управделами Президента открылся в Минске
--  Patrick Mahomes praises 'cool' Taylor Swift for her impact on Travis Kelce and her new friendship with Brittany: 'She's part of Chiefs Kingdom - she's top tier, her and Travis match so well'
--  "Нейросеть" стала главным словом уходящего года: видеодоказательство
--  Woman Killed After Christmas Tree Fell On Her
--  Gobierno de Perú niega haber incurrido en desacato con la liberación de Alberto Fujimori
--  Mauricio Pochettino delivers blunt warning to stars and agents moaning about lack of game time - insisting Chelsea are not a charity - and admitting he is 'annoyed' by behaviour as Blues languish in 10th
--  The Máxima festive spirit! Dutch royals show Kate and William how it's done as Queen and her family cuddle adorable dog Mambo in their official Christmas snaps
--  RHMZ IZDAO NOVO UPOZORENJE Spremite se, stižu sneg i kiša u ove krajeve! Samo jedan deo Srbije će biti pošteđen
--  Калининградские власти выполнили годовой план покупки квартир для детей-сирот
--  Rezultati istraživanja Ratela - dokaz vrhunskog kvaliteta mobilne telefonije u Srbiji: mts peti put zaredom najbolji
--  Bandits Releases 11 Of 30 Persons Abducted In Kaduna
--  Prvo ga optužili za seksualno zlostavljanje, a sad se pojavio i problematični snimak: 'Jezivo'
--  Actualité : Bon plan – Le smartphone Poco F4 GT 256 Go à 279,90 €
+-  Przedświąteczna rozgrzewka
+-  Illuminate Christmas Creativity with Monport Laser's GP50 Integrated Fiber Laser Engraver and Festive Event
+-  Kickoff | Thobejane: Glory days are back in Naturena
+-  Jellyfish regenerate functional Tentacles in days: Study
+-  Philippine labor market, students require upskilling for future jobs-readiness
+-  Cambodia-based OFWs hurdle licensure exam for teachers
+-  DLSAU grad lands 8th in 2023 Agriculturist Licensure Exams
+-  PHLPost chief of staff is CEU-Malolos’ top alumni
+-  Japan donates rice to Pateros Elementary School
+-  Israel’s military campaign in Gaza seen as among deadliest, most destructive in history, experts say
+-  Fantasia Barrino’s Husband: Get to Know ‘The Color Purple’ Star’s Love Kendall Taylor
+-  Доделени 45 социјални станови во Неготино
+-  Giving it a try
+-  Back from the quake
+-  Educational assistance
+-  AMLO lamenta muerte de la escritora Cristina Pacheco
+-  لا تتجاهل هذه العلامات.. قد تكون مؤشرًا على الإصابة بسرطان البنكرياس
+-  দুর্ভিক্ষের দ্বারপ্রান্তে গাজার বাসিন্দারা
+-  La OPE de Osakidetza, clave para acotar el récord de temporalidad pública
+-  TFF ve Kulüpler Birliği'nin kritik toplantısı bitti! İşte açıklamalar...
+-  Hamas'tan, İsrail'e Mescid-i Aksa tepkisi
+-  Beşiktaş, PFDK'ye sevk edildi
+-  MNE polaco promete apoio a Kyiv na sua "luta titânica" contra a Rússia
+-  Neue Bühne für Karneval: Kölner Stadtrat gibt 320.000 Euro frei
+-  Portugueses detidos por matarem compatriota em Espanha em 2019
+-  Die Fragwürdigkeit der deutschen Entwicklungshilfe
+-  Apple to stop some watch sales in US over patent dispute
+-  A grown-up’s Christmas list: The essential gift guide for adulting
+-  Vibal group forms tech affiliate
+-  Highlights of the Asia Artist Awards at the Philippine Arena
+-  Samsung, Versatech open first AV experiential hub in PHL
+-  Beyoncé ficou cerca de 6h em solo brasileiro; voo em jatinho durou mais
+-  Itália alerta para risco de terrorismo em festas de fim de ano
+-  Meta: la complessa equazione tra privacy e sicurezza online
+-  Top-News: Das war diese Woche wichtig
+-  Nach Gaza-Terror und offenem Judenhass: Immer mehr muslimische Schüler fordern einen Gebetsraum
+-  Nicole Scherzinger yllätti uudella tyylillä – ihastuttaa nyt blondina
+-  Reindeer Have This Bizarre, Innate Trait That Helps Them Sleep Soundly
+-  Optical Illusion: ఈ కింది ఫొటోలో మీరు మొదట గమనించిందేంటి? దానిని బట్టి మీకు ఏ రంగం సరిపోతుందంటే..
+-  5 easy ways to make everyday household items feel more festive – for a last-minute final flourish
+-  India News | CAL17 BH-COVID-NITISH Nitish Chairs High-level Meeting to Review Covid Situation in Bihar
+-  ‘.gov.nl’ wordt domeinnaam van alle overheidswebsites
+-  Diese Aktien empfehlen Experten zu kaufen
+-  Jan Bończa-Szabłowski: Samozaoranie Moniki Strzępki w Teatrze Dramatycznym
+-  Jak NKWD paliła rękopisy białoruskich poetów
+-  Bogdan Góralczyk: Z Mjanmy wypędzono prawie milion ludzi
+-  The Best Books Of 2023
+-  La Navidad "estremece el corazón" del hospital: "Lloras de emoción"
+-  Nie chcesz być milenialsem czy boomerem? I tak nim będziesz
+-  „Czysty wymysł. Jak japońska popkultura podbiła świat”: Skąd się wzięła słynna kotka
