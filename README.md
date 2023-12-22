@@ -1,51 +1,51 @@
 # Latest News
--  Measures against illegal property sales in north advancing, says spokesman
--  임윤찬 스타 탄생기…류이치 사카모토의 고별 연주
--  באופן חריג: השר לוין הגיע לדיוני וועדות המשנה של הועדה לבחירת שופטים
--  מכבי מעלה אדומים הפתיעה את ראשל"צ, שומרון חזרה לנצח
--  DPP reveals why DNA results for Shakahola victims are not yet out
--  The startup that attempted to bring Elon Musk's futuristic hyperloop dream to life is shutting down
--  Docuseries Wedding.con puts spotlight on dark side of online matchmaking
--  Nitish Kumar pushed for Jan deadline on seat-sharing at INDIA bloc meet: Report
--  Fastsættelse af rentekuponer for perioden 1. januar til 31. marts 2024 (EUR)
--  В США заявили о причастности ЦРУ к подготовке ГУР Украины для диверсий в России
--  Una panchina per Gaia, Camilla e Leo morti a corso Francia
--  Mahfud MD Kritik Gibran soal IKN: Belum Ada Satupun Investor yang Masuk
--  10 Must-Know Tips to Safeguard Against Digital Scams and Frauds
--  ¿Cuándo publicarán más listas de beneficiarios del Fonavi para devolución de aportes?
--  Fallout 76’s Remarkable Resurgence: 2024 Roadmap Reveals Expansion and Growing Player Base
--  Unfall-Datenschreiber und Fahrassistenz-Systeme werden Pflicht
--  La Audiencia Nacional levanta la suspensión de los trabajos de exhumación en Cuelgamuros
--  الأفريكوم ترد على انباء استهداف طائرتين روسيتين في ليبيا
--  Soccerladuma | Khune's 16-Year Fairytale… Is This The End?
--  Soccerladuma | Messi-Suarez Inter Miami Reunion 'Confirmed'
--  Nizozemsko na Ukrajinu pošle 18 stíhaček F-16, oznámil premiér Rutte
--  RedMagic 9 Pro passes durability tests with flying colors
--  DHB-Frauen spielen in Neu-Ulm um Olympia-Ticket
--  나토 사무총장 "푸틴, 우크라 전쟁 목표 달성 불가"
--  „Eine Ehre“: Meister-Macher Beutlhauser über Chefcoach-Position bei Eintracht Karlsfeld
--  В МИД отвергли разрушение Россией культурного наследия Украины
--  Depardieu: la chasse à l’ours est ouverte
--  Parquemet se mantendrá cerrado hoy tras incendio en el cerro San Cristóbal
--  Hazine ve Maliye Bakanlığı'ndan piyasa yapıcılığı kriterlerinde düzenleme
--  Kurtenbach: Six months later, the Warriors’ trade of Jordan Poole is proving to be a true sports rarity
--  'I Was Just So Madly In Love With Shane West': Mandy Moore Remembers Working On A Walk To Remember And How Far She's Come In Hollywood
--  AV-Comparatives publica un análisis completo de más de 30 soluciones de seguridad de TI empresarial
--  Сбер открыл возможность инвестиций по средней стоимости недвижимости в Москве
--  Три регистра русской жизни показали в рифмах: в РОСИЗО открылась выставка-поэма
--  ‘Superpeso’ tiene Navidad adelantada y regresa al terreno de las 16 unidades: Así cotiza este viernes
--  Wesołych Świąt życzy zespół Dziennika Wschodniego
--  Kommentar von Hugo-Müller Vogg - Nicht einmal Bundesnetzagentur traut den Kohleausstiegsplänen von Habeck
--  (Видео) Скокаат од тераса во надеж дека ќе се спасат од монструмот убиец: снимка од евакуацијата на студентите во Прага
--  Малолетници во Белград лажно дојавувале за поставени бомби, ќе има кривични пријави и против родителите
--  Peajes en Venezuela comienzan a cobrar nuevas tarifas este #22Dic
--  In UK Seaside Town, Migrants Call Barge Accommodation A 'Prison'
--  US Airlines Say They're Ready For Record Holiday Travel
--  UEFA Suffers Court Defeat, But Super League Finds Few Fans
--  UK And EU Agree Delay To Post-Brexit Electric Car Tariffs
--  Gunman Kills 14, Wounds 25 At Prague University
--  Best Robot Vacuum Cleaners with Mop Functionality and Pet-Friendly Precision
--  US Stocks Resume Upward Climb As Oil Dips On Angola OPEC Exit
--  Horóscopo semanal: previsão dos signos de 25 a 31 de dezembro de 2023
--  İstanbul için fırtına uyarısı
--  Šteta objavio snimak novog tramvaja: Bio i ostat će simbol Sarajeva
+-  [ŽT] „Mes okupuosime Briuselį!“ Orbanas atskleidė kortas
+-  Vokietija skambina pavojaus varpais. „Sumažėjo Bundesveras“
+-  Cak Imin Ingin Bangun 40 Kota Mirip Jakarta, Gibran: Aneh, tetapi Nolak IKN
+-  تفاقم ظاهرة البنايات الآيلة للسقوط في طرابلس
+-  Schalke-Transfergerüchte im Ticker: Wolfsburgs Fischer als Alternative zu Patris im Gespräch
+-  Three Singaporeans snag prestigious Schwarzman Scholarship for master’s programme at Tsinghua University
+-  Kakav je stav Hajduka o Superligi? Otkrio ga je Jakobušić
+-  Rita Pereira já chegou a Portugal... mas vai voltar a viajar
+-  Gradonačelnik Kasumović obišao radove na sanaciji krovnih ploha zgrade BNP-a
+-  ¡Tome nota! Minsa brinda recomendaciones para la manipulación de alimentos
+-  Aliança Democrática? Um "projeto de Direita" entre Passos, PSD e Chega
+-  Стипендии за специализация на медицински специалисти по здрави грижи гласува Общински съвет – Смолян
+-  Wetterin suunnattua antia merkittiin 3,4 miljoonalla eurolla
+-  Tormenta causa estragos en Europa
+-  "Every viewing of child pornography is a repetition of the victim’s abuse": US court reinstates right of 'Nevermind baby' Spencer Elden to sue Nirvana over iconic album sleeve
+-  Superleague: ΔΣ μέσω τηλεδιάσκεψης την Τετάρτη
+-  Miras paylaşımında o evlatlar daha şanslı: Artık mirastan en çok payı o evlat alacak
+-  Zemheri kışı kendini gösterdi! Meteoroloji günlerdir uyarıyordu, kar Türkiye'ye o ilden giriş yaptı
+-  Japan’s cabinet approves record $56 billion defense budget for 2024
+-  Kevin allein zu Haus: Sendetermine im TV und Streams 2023
+-  Oululainen Suvic Oy solmi urakkasopimuksen Suomen suurimpiin lukeutuvan aurinkopuiston rakentamisesta
+-  بعد أسبوعين من محاولة قتله... القبض على الرأس المدبّر!
+-  Last set of French troops exit Niger as Sahel sheds Parisian influence
+-  David Luiz ficou chocado quando chegou ao Arsenal: "Faltava fome"
+-  Bulls to unleash Springbok-powered lineup on Stormers
+-  Treasury proposes strict climate rules for lucrative hydrogen energy tax credit
+-  Unfall in Gelsenkirchen: Acht Autos beschädigt – 43-jährige Hertenerin schwer verletzt
+-  La Libertad: Martín Namay minimiza críticas de Elías Rodríguez
+-  Великотърновска област е първенец по върнати в училище ученици
+-  Katolíci v Nemecku aj tento rok hromadne odchádzali z cirkvi
+-  Nagy bajban van Amerika, váratlan bejelentést tett Oroszország
+-  Ambisi Besar Mahfud MD jika Terpilih Jadi Wakil Presiden, Tekad Besarnya Musnahkan Korupsi di Indonesia
+-  MIKE SONKO narrates how RUTO came to his rescue after he was accused of stealing a Range Rover belonging to former President DANIEL ARAP MOI
+-  Heikle Mission für Baumgart-Nachfolger: Köln sucht Coach
+-  Video of couple’s stripping and assault over a year ago in Cumilla goes ‘viral’
+-  Milojević preuzeo Zvezdu: Uradiću sve da nastavimo putem kojim smo krenuli prije par godina
+-  Проф. Герджиков: Начинът, по който се промени Конституцията, трябва да влезе в учебниците как не трябва да се променя
+-  ميقاتي: لبنان مستعدّ لتطبيق الـ1701 بشرط!
+-  "VIDELA SAM VOZ KAKO IDE KA NAMA, A ONDA PREKID FILMA": Potresna ispovest Andrijane koju je udario voz kod Niša
+-  Земетресение с магнитуд 4,7 удари Русия
+-  Osa työntekijöistä välttää hyvin­vointialueen tylyn joulu­yllätyksen – Pieni­palkkaisilta karhutaan jopa tuhatta euroa
+-  Русия се похвали: Износът ни на петрол се е увеличил със 7% през 2023 г., в сравнение с 2021 г.
+-  BYD-Aktie freundlich: BYD baut erstes europäisches Werk in Ungarn
+-  Disney+: todos los estrenos que llegan a la plataforma en enero de 2024
+-  HSBC expects deal with RBC to close in early 2024 following federal approval
+-  Javier Milei volverá al programa de Mirtha Legrand este sábado: lo prometido es deuda
+-  RUSIJA PRETI PREKIDOM ODNOSA SA AMERIKANCIMA?! Jedna stvar bi mogla da bude OKIDAČ: "Spremni smo na svaki scenario!"
+-  Зарадваха за Коледа социално слаби семейства в "Тракия" в Пловдив
+-  Journalistisk sværvægter Erling Bjøl blev 105 år
+-  Journalistisk sværvægter Erling Bjøl blev 105 år
