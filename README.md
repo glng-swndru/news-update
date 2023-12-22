@@ -1,51 +1,11 @@
 # Latest News
--  Avoid giving these: The six worst Holiday gifts ever
--  3000 جندي من الاحتلال يصنفون بإعاقات دائمة بسبب العدوان على غزة
--  Maкедонското вино на 13 место во светот
--  Madonna di Campiglio: Zubčić diskvalificiran, Rodeš do bodova
--  Premier Burt’s Trip To Washington Cost $3811.58
--  Researchers warn that Windows 11 restrictions could send 240 million computers to landfills
--  Pink Floyd’s David Gilmour working on “new album” in the studio
--  Fiscalía citará a declarar a jugadores de Colo Colo involucrados en la obtención de licencias de conducir falsas
--  Nicolás Jarry y Tomás Etcheverry están confirmados para el Chile Open 2024
--  Tekst Val að fá Söru og Berglindi heim?
--  Oscars Predictions: Original Song – Which One (or Two) ‘Barbie’ Songs Will Get Nominated?
--  London library services slowly returning after cyberattack
--  Bajdenov "kec u rukavu" za Arktik: Zelenski
--  Il City di Guardiola vince il Mondiale per Club: Fluminense battuto 4-0
--  Felipe Melo, mani addosso a Walker: rissa finale in City-Fluminense
--  Sarri: "No a Superlega e nuova Champions. Mercato? La Lazio a gennaio..."
--  Guardiola se corona, gana su cuarto Mundial de Clubes y supera a Carlo Ancelotti
--  Juve, la Procura di Roma comunica la fine delle indagini preliminari: la nota
--  Разворот Москвы в сторону Еревана? Что происходит?
--  Veja quais produtos são mais procurados em redes varejistas nesta fase do ano
--  Diputado Aedo (DC) por Pacto de Crecimiento: Es una “buena propuesta” pero “le falta realismo”
--  Anadolu Efes Sinan Erdem'de kaybetti
--  Unveiling the enigma: Bitcoin’s journey of revolution and its impact on the digital age
--  Video: Laimutis savas vienības trešajā uzvarā „Rīgai“ iemet trīs ripas
--  CNTV: 92% de los encuestados vio la franja electoral por televisión y 45% cree que comandos no la usaron de forma honesta
--  Schwarz si dal najkrajší vianočný darček, ovládol legendárny nočný slalom
--  [속보]뉴욕증시 보합 마감…8주연속 랠리 이어가
--  Día 7 de la Novena de Navidad: oraciones, reflexión y gozos de este 22 de diciembre
--  美 3대 지수 혼조…8주 연속 오른 시장
--  “섹스리스? 젊은 애들이 무슨”…Z세대는 ‘피 끓는’ 20대 아닙니다 [Books]
--  Wall Street neemt gas terug richting Kerst
--  Kylie Jenner's Throwback Family Christmas Card Leaves Fans Asking 'Who is Casey'
--  Le mari d’une Israélo-Canadienne a été tué lors de l’attaque du Hamas le 7 octobre
--  LIVE WK darts | Wattimena leeft nog na gemiste matchdart, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
--  LIVE WK darts | Wattimena leeft nog na gemiste matchdart, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
--  JEDNA STVAR JOŠ UVEK JE MISTERIJA Nove informacije o masakru u Pragu, policija otkrila detalj koji nikome nije jasan
--  Maksvytis – apie trenerio atsakomybę, banguojantį Jokubaitį ir katalonų tritaškius
--  Kanādas U20 zvaigzne nopelna noraidījumu līdz spēles beigām, vācieši gūst piecus vārtus
--  Dallas ISD educator's death determined to be homicide, medical examiner records show
--  I don’t get why dad bods are ‘hot’ but moms are ‘lazy and gross’ if they don’t ‘bounce back,’ I’m proud of my body
--  Iran 'deeply involved' in Red Sea ship attacks: US
--  Lazio return to winning ways, Genoa fight back
--  수익률 360% ‘떡상’…재주는 비트코인이, 돈은 ‘이 종목’이 벌었네
--  Wisconsin Supreme Court orders new legislative maps in redistricting case brought by Democrats
--  NESTOROVIĆ O SNS: Oni su pobedili na ovim izborima, nemamo problem da im čestitamo
--  Берлин предоставила Киеву новую партию военной помощи
--  Véhicule électrique: le bonus écologique pourrait baisser à 4.000 euros en 2024 pour les plus aisés
--  Art of Rally Ücretsiz Oldu
--  Ännu en vecka på plus på USA-börsen
--  Newsblog: Ukraine und Polen wollen Zusammenarbeit vertiefen
+-  현실 속 ‘계백순’, 그들이 잠긴 문을 열고 나오려면
+-  Colisão entre carretas interdita BR-163 entre Sinop e Itaúba após derramamento de cargas
+-  Cop shot injured, two culprits held with arms
+-  Sindh Madressatul Islam University to organise six Int’l conferences
+-  «Ман Сити» — клублар ўртасида жаҳон чемпиони.
+-  SSP Keamari dismisses 9 officials for crimes, 2 for absenteeism
+-  الأساتذة المتعاقدون في "اللّبنانيّة": للعمل بعدل ومساواة في النّظر إلى ملف التفرّغ
+-  Son dakika: İki başkanlı parti CHP! Partililer bile isyan etti! Belediye başkan adayları Özgür Özel'i değil Ekrem İmamoğlu'nu arıyor
+-  Müge Anlı'yı çıldırttı! Bengül eski kocası Mustafa Hakkulu kayıpken para derdine düşmüş! Alacak defteri ile kapı kapı gezdiği görüntüler ortaya çıktı
+-  Aldatmak 51. bölüm fragmanı yayınlandı: "Aşireti kışkırtmaya çalışıyor resmen!
