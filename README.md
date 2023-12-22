@@ -1,51 +1,11 @@
 # Latest News
--  Przedświąteczna rozgrzewka
--  Illuminate Christmas Creativity with Monport Laser's GP50 Integrated Fiber Laser Engraver and Festive Event
--  Kickoff | Thobejane: Glory days are back in Naturena
--  Jellyfish regenerate functional Tentacles in days: Study
--  Philippine labor market, students require upskilling for future jobs-readiness
--  Cambodia-based OFWs hurdle licensure exam for teachers
--  DLSAU grad lands 8th in 2023 Agriculturist Licensure Exams
--  PHLPost chief of staff is CEU-Malolos’ top alumni
--  Japan donates rice to Pateros Elementary School
--  Israel’s military campaign in Gaza seen as among deadliest, most destructive in history, experts say
--  Fantasia Barrino’s Husband: Get to Know ‘The Color Purple’ Star’s Love Kendall Taylor
--  Доделени 45 социјални станови во Неготино
--  Giving it a try
--  Back from the quake
--  Educational assistance
--  AMLO lamenta muerte de la escritora Cristina Pacheco
--  لا تتجاهل هذه العلامات.. قد تكون مؤشرًا على الإصابة بسرطان البنكرياس
--  দুর্ভিক্ষের দ্বারপ্রান্তে গাজার বাসিন্দারা
--  La OPE de Osakidetza, clave para acotar el récord de temporalidad pública
--  TFF ve Kulüpler Birliği'nin kritik toplantısı bitti! İşte açıklamalar...
--  Hamas'tan, İsrail'e Mescid-i Aksa tepkisi
--  Beşiktaş, PFDK'ye sevk edildi
--  MNE polaco promete apoio a Kyiv na sua "luta titânica" contra a Rússia
--  Neue Bühne für Karneval: Kölner Stadtrat gibt 320.000 Euro frei
--  Portugueses detidos por matarem compatriota em Espanha em 2019
--  Die Fragwürdigkeit der deutschen Entwicklungshilfe
--  Apple to stop some watch sales in US over patent dispute
--  A grown-up’s Christmas list: The essential gift guide for adulting
--  Vibal group forms tech affiliate
--  Highlights of the Asia Artist Awards at the Philippine Arena
--  Samsung, Versatech open first AV experiential hub in PHL
--  Beyoncé ficou cerca de 6h em solo brasileiro; voo em jatinho durou mais
--  Itália alerta para risco de terrorismo em festas de fim de ano
--  Meta: la complessa equazione tra privacy e sicurezza online
--  Top-News: Das war diese Woche wichtig
--  Nach Gaza-Terror und offenem Judenhass: Immer mehr muslimische Schüler fordern einen Gebetsraum
--  Nicole Scherzinger yllätti uudella tyylillä – ihastuttaa nyt blondina
--  Reindeer Have This Bizarre, Innate Trait That Helps Them Sleep Soundly
--  Optical Illusion: ఈ కింది ఫొటోలో మీరు మొదట గమనించిందేంటి? దానిని బట్టి మీకు ఏ రంగం సరిపోతుందంటే..
--  5 easy ways to make everyday household items feel more festive – for a last-minute final flourish
--  India News | CAL17 BH-COVID-NITISH Nitish Chairs High-level Meeting to Review Covid Situation in Bihar
--  ‘.gov.nl’ wordt domeinnaam van alle overheidswebsites
--  Diese Aktien empfehlen Experten zu kaufen
--  Jan Bończa-Szabłowski: Samozaoranie Moniki Strzępki w Teatrze Dramatycznym
--  Jak NKWD paliła rękopisy białoruskich poetów
--  Bogdan Góralczyk: Z Mjanmy wypędzono prawie milion ludzi
--  The Best Books Of 2023
--  La Navidad "estremece el corazón" del hospital: "Lloras de emoción"
--  Nie chcesz być milenialsem czy boomerem? I tak nim będziesz
--  „Czysty wymysł. Jak japońska popkultura podbiła świat”: Skąd się wzięła słynna kotka
+-  이기면 최소 2위→EPL 우승싸움 최대 변수, 안방 깡패 '이 팀'을 주목하라!
+-  Arizona officials charged over election results certification delay plead not guilty
+-  A Spinaceto l'istituto comprensivo intitolato a David Sassoli
+-  Қашқадарёда ҳайдовчи Damas машинасининг томига одам миндириб ҳаракатланди.
+-  Таътилга отланаётган талабалар учун қўшимча автобус йўналишлари ташкил этилди .
+-  Ғазода очарчилик кўланкаси, «хуфёна флоти» тўхтаб қолган Россия, Прагадаги қонли отишма — кун дайжести.
+-  Guerre en Ukraine : les Etats-Unis sur le point de lancer une arme économique redoutable contre l'effort de guerre russe
+-  Frische Brötchen an Weihnachten in NRW: Wann Bäcker öffnen – und wo Ausnahmen gelten
+-  Les Lakers et les Pacers en grosse galère depuis le In-Season Tournament
+-  LeddarTech, Prospector Capital Corp.와 기업 결합 완료 후 상장 기업이 되었으며 티커 심볼 'LDTC'로 나스닥에서 거래가 시작될 예정입니다
