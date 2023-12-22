@@ -1,51 +1,51 @@
 # Latest News
+-  Il Milan delude a Salerno, Pioli amareggiato: “La fiducia ci viene sempre meno”
+-  تصنيف 3000 كأصحاب إعاقات دائمة في جيش الاحتلال
+-  أوكسفام: فشل مجلس الأمن في وقف إطلاق النار بغزة غير مفهوم
+-  محللون إسرائيليون: القضاء على حماس وتحرير المحتجزين ليس واقعيا
+-  Travel-ready hip-replacement patient thwarted by task force end faces another year in agony
+-  Karina Banda confiesa su deseo de convertirse en madre
+-  Soğan faydaları
+-  Six-bedroom home in Palo Alto sells for $5.2 million
+-  Mike Tyson’s first coach reveals ‘wild’ prediction for Anthony Joshua vs Otto Wallin… with ‘huge upset’ on the cards
+-  Apple may be working on a way to let LLMs run on-device and change your iPhones forever
+-  The pick of the St. Nicks
+-  Aaj Ka Danik Tarot Card: कर्क, सिंह समेत इन 3 राशि वालों को होगा अचानक धन लाभ, नौकरी में मिल सकती है तरक्की
+-  Zaniolo's late goal salvages draw for Aston Villa
+-  Luis Ventura estalló contra un humorista por contar un secreto suyo muy vergonzoso
+-  Gobierno de Venezuela avanza con diálogos de doble vía, con la oposición y EE.UU.
+-  Reconoce las señales de un hígado enfermo
+-  Zadnja ekipa Premier lige prekinula senzacionalni niz Aston Ville
+-  Madona di Kampiljo talična za Švarca, nova pobeda u slalomu VIDEO
+-  All the farmers have debts of Rs.40 thousand crores : రుణమాఫీకి నిధులెలా?
+-  BAJDEN POTPISAO NOVI UKAZ: Amerika će izdvajati rekordnih 886 milijardi dolara na vojsku
+-  Conor Benn vs Peter Dobson set for Feb. 3 in Las Vegas
+-  Salernitana, Inzaghi: "Dispiace per i ragazzi, ma se c'è rammarico per un pareggio col Milan..."
+-  Intel CEO claims 18A node will at least match TSMC's N2 performance and beat it to market
+-  Zonguldak’a şehit ateşi düştü
+-  Andrew Cuomo for NYC mayor? Say it ain’t so, New York!
+-  Maduro: Milei busca “someter al pueblo a paquetes neoliberales” con medidas que “le dictan desde Washington”
+-  Oprah’s $100 Blunder: Online Backlash Explodes as Fans Label Her “Out of Touch”
+-  The head of Arkansas’ Board of Corrections says he’s staying despite governor’s call for resignation
+-  The head of Arkansas’ Board of Corrections says he’s staying despite governor’s call for resignation
+-  Taça da Liga: Nacional-Sp. Braga, 1-3 (crónica)
+-  Jović spasio Milan blamaže protiv Salernitane
+-  Novine: "Onima u Srbiji koji seju mržnju prema Srpskoj nikada nećemo oprostiti"; "Pljušte ostavke"
+-  Kulüpler Dünya Kupası'nda şampiyon Manchester City oldu
+-  Nuevo logro de ‘Generación 98′: Teleserie nocturna de Mega lideró su franja horaria toda la semana
+-  Most actively traded companies on the Toronto Stock Exchange
+-  Most actively traded companies on the Toronto Stock Exchange
+-  В СНБО Украины рассказали, когда начнут мобилизовывать полмиллиона граждан
+-  Dos nuevos mosaicos celebran la fauna neoyorquina en estación de metro del Bronx
 -  El GBC es 007, tiene licencia para soñar
+-  Foragido em cidade de SC, uruguaio procurado pela Interpol é extraditado
+-  Spotify ücretli mi?
+-  Perca peso já. Este sumo é uma 'bomba' contra os quilinhos a mais
+-  Veteran utilityman Niko Goodrum returns to Twins on minor-league deal
+-  – تشيكيا تعلن يوم غد السبت حدادا وطنيا على قتلى الهجوم في جامعة براغ .
 -  Байден заявил, что был "убит горем" после одного известия из Газы
--  عدد ألقاب جوليان ألفاريز حتى الآن
--  البيت الأبيض يتهم إيران بـ"الضلوع بشدة بتخطيط" هجمات الحوثيين البحرية
--  Update On When Xavier Woods May Be Back On The Road
--  Rökutveckling på boende – man omkom
--  "C'est très inquiétant": à Manosque, les urgences sont fermées entre Noël et le jour de l'an
--  PF investiga em Manaus difamação eleitoral por inteligência artificial
--  Mujer se quita la vida en vivienda de la colonia Zootecnia
--  Jhon Arias explica que 'olé' de Grealish iniciou treta entre jogadores de Fluminense e Manchester City
--  فيديو اشتباك فيليبي ميلو مع ووكر
--  Exmilitar colombiano se declara culpable en caso del magnicidio en Haití
--  États-Unis: l'impressionnant transport en hélicoptère de cerfs pour un examen de santé
--  Karl Rove says Ronna McDaniel 'in trouble' over Trump's Michigan call
--  Wisconsin Supreme Court overturns GOP-drawn maps legislative
--  [걸어서 세계 속으로] 북방의 장미, 란나 왕국을 찾아서 - 태국
--  Série A: Milan decepciona ao empatar com lanterna em 2 a 2
--  ‘더 리흐트-우파메카노 못 믿어’…김민재 새 파트너로 독일 국대 센터백 낙점
--  [인터뷰] 1년 만에 현장복귀 ‘펩태완’ 김태완 감독, 천안과 함께 할 도전 스토리
--  Loi immigration: les groupes de gauche à l'Assemblée saisissent le Conseil constitutionnel
--  BCCDC alerts parents to high cases of severe Strep A infections
--  Résultats EuroMillions FDJ : le tirage du vendredi 22 décembre 2023
--  Ski Report
--  Curtea Supremă a SUA refuză să se pronunţe de urgenţă asupra imunităţii lui Donald Trump
--  ВАРПЭ: запрет импорта продукции из российской рыбы ударит по самим США
--  Пожар в магазине пиротехники в Югре полностью ликвидировали
--  Eishockey-Regionalligist Adendorfer EC verliert gegen Timmendorf 1:5
--  Corte Suprema deja sin efecto criterios de reducción de condena a violadores sexuales
--  Mamelodi Sundowns coach picks favourite Man City star
--  Tony Carreia no Altice Arena: conheça os bastidores da celebração dos 35 anos do artista
--  Man City nhận tin buồn dù vô địch FIFA Club World Cup
--  FIORENTINA SLAVILA MINIMALNIM REZULTATOM: Beltran srušio Moncu
--  A la cárcel mujer acusada de prostituir a su sobrina menor de edad en Medellín
--  SNOBELEN: Religion an easy target for misguided haters
--  Fátima Herrera (PSOE): «No metan el tema de la amnistía para tapar todas las chapuzas que hacen»
--  Sulmuesi në Universitetin e Pragës veproi i vetëm
--  В Польше заявили о сохранении запрета на ввоз украинского зерна
--  Austrian skier Schwarz wins night race in Italy to go top of overall and slalom standings
--  39 ans après sa sortie, "Last Christmas" de Wham! devient (enfin) première chanson de Noël au Royaume-Uni
--  La oposición se agarra a la subida del IBI en Almería para negarse a apoyar las cuentas del PP de 2024
--  El Instituto de la Mujer invita a «sumar esfuerzos» para acabar con la violencia de género
--  DOK JEDNI HVALE, DRUGI NEGODUJU: Hamas i Palestinska samouprava izrazili suprotne stavove o rezoluciji SB UN
--  FOTO Pogledajte atmosferu na koncertu Prljavaca u Osijeku
--  Messi ve Suarez yine aynı takımda
--  Nicki Minaj Reveals If She'd Ever Want to Collaborate With Taylor Swift
--  عاجل.. أعراض أشد خطورة لمتحور كورونا الجديد JN.1
--  "الأرصاد" يُحذر من استمرار الأمطار على مناطق المملكة حتى ساعات الفجر
--  Şehit ateşi Malatya'ya düştü: Baba ocağı Türk Bayrakları ile donatıldı
--  Nicolo Zaniolo attı, Aston Villa son anda puanı kaptı!
--  İntihar etmek için ırmağa gidiyordu: Çamura saplanıp mahsur kaldı
+-  U Nevadi sakupljaju i sele hiljade divljih konja zbog suše
+-  Construction costs will keep in line with inflation as labor demand eases: Bill Shopoff
+-  Mladíci ukázali v príprave veľkú mentálnu silu. Slováci prehrávali s Nemcami už 2:5, ale napokon sa aj tak tešili
+-  Hamas, BMGK’da alınan kararı "yetersiz" buldu
+-  ‘Maestro’ of love: Read Bradley Cooper’s high school opinion about best friends hooking up
