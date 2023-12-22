@@ -1,51 +1,51 @@
 # Latest News
--  حارث ثاني أفضل ممرر في منافسة أوروبا ليغ
--  Special weather statement in effect for Waterloo Region
--  ‘యువగళం’ జోష్‌ కొనసాగించండి
--  వేతనాలు పెంచాలి
--  సీఎం తీరుపై అంగన్వాడీల ఆగ్రహం
--  Futebolista acusado de incitamento ao ódio: "Não fiz nada de grave..."
--  Trump Blames His Own Ignorance for Hitleresque Rhetoric
--  ఉత్తమ ఫలితాలే లక్ష్యంగా..
--  టీడీపీ గెలుపే లక్ష్యంగా పనిచేయాలి: శిరీష
--  బొబ్బిలి ఎమ్మెల్యేకి భారీ షాక్‌
--  צלפים בחלונות, ומלכודות בכל פינה: אתגרי הלוחמים שמשתלטים על עזה
--  "Forma como Israel conduz ofensiva cria obstáculos" à ajuda humanitária
--  Levosimendan by Orion for Acute Coronary Syndrome: Likelihood of Approval
--  Venäjän valuuttavarantojen käytöstä yritetään sopia helmikuussa – 300 miljardin potti pääosin yhdellä rahoituslaitoksella
--  الحظر الأمريكي على واردات المنتجات السمكية الروسية سيضرب السوق الأمريكية أولا
--  طرح بوسترات فيلم ليه تعيشها لوحدك تمهيدا لعرضه في مطلع يناير 2024
--  Ozempic by Novo Nordisk for Alzheimer’s Disease: Likelihood of Approval
--  Sıvacının İş Yaparken Isınmak İçin Bulduğu Yöntem Viral Oldu
--  Cem Özdemir: Förstern droht der Knast! Empörung über Gesetzesvorhaben des Grünen-Ministers
--  సుబ్బారావు పాణిగ్రాహి ఆశయాలు కొనసాగించాలి
--  చిన్నజీయర్‌ ఆశీస్సులందుకున్న మంత్రి తుమ్మల
--  Se confirma el primer caso en Guatemala de subvariante JN 1 de COVID-19
--  AMG-305 by Amgen for Malignant Mesothelioma: Likelihood of Approval
--  وزير الرياضة يهنيء اتحاد الخماسي الحديث على جوائز الاتحاد الدولي
--  నిరసనలు
--  America’s sugar shortfall leaves candy-makers scrounging
--  Indo-German collaboration sets eyes on Africa
--  AMG-305 by Amgen for Uterine Cancer: Likelihood of Approval
--  This growing malware threat actor is set to unleash a surge of attacks, experts warn
--  Les STUP saisissent 12 700 comprimés psychotropes à Blida
--  AMG-305 by Amgen for Non-Small Cell Lung Cancer: Likelihood of Approval
--  నవశకం విజయవంతం.. టీడీపీ విజయానికి తొలి అడుగు
--  Congresso analisa projeto da Lei Orçamentária de 2024; assista
--  Agricultura vai querer voltar para mercado de carbono, diz Haddad
--  Haddad diz que continuará a buscar déficit zero em 2024
--  COVID-19: India sees 22 cases of JN.1 variant as states brace for fresh outbreak
--  Sony quer jogos a quase R$ 500 até 2027, revelam vazamentos
--  AMG-305 by Amgen for Solid Tumor: Likelihood of Approval
--  6 فوائد صحية ربما لم تعرفها لتناول البصل النيئ
--  Ρέθυμνο: Δύο συλλήψεις για κατοχή ναρκωτικών και όπλων
--  Συγκλονίζει ο Θανάσης Βισκαδουράκης: Με τη σύζυγό μου χάσαμε το πρώτο μας παιδί
--  OFICJALNIE: Maja Strzelczyk odchodzi z Canal+ Sport
--  جيرو يقود هجوم ميلان لمواجهة ساليرنيتانا بالدوري الإيطالي
--  ¿Vacaciones en Semana Santa? Esto cuestan los boletos de avión desde Culiacán a 4 destinos
--  Buttler urges England to improve one-day death bowling
--  Buttler urges England to improve one-day death bowling
--  AMG-305 by Amgen for Gastric Cancer: Likelihood of Approval
--  From Caribbean islands to global impact: CariGenetics’ mission is closing the genomic data gap
--  Murder charge laid in 'senseless' stabbing of newcomer from Ukraine: Winnipeg police
--  Los resultados de la desmilitarización de Ucrania
+-  Hollanda'da yaklaşık 1,6 ton kokain ele geçirildi
+-  Bakan Koca'dan Sırrı Süreyya Önder'in sağlık durumuna ilişkin açıklama
+-  Kayseri'de iki otomobil çarpıştı: 5 yaralı
+-  VakıfBank deplasmanda galip geldi!
+-  "من الحب ما قتل".. عرض زواج تحول إلى جريمة لهذا السبب
+-  هجمات الحوثيين..اسبانيا لم تحسم قرارها بعد بالمشاركة في تحالف عسكري في البحر الأحمر
+-  Israëlisch-Nederlandse luitenant Jonathan (22) verloor been in Gaza: ‘Ik heb gestreden voor mijn huis’
+-  ‘Mijn verjaardag kon ik lekker in m’n eentje vieren’
+-  Əməliyyat olundu: 3-4 ay olmayacaq
+-  Viktor Orbán ei ole ainoa häirikkö – Velkakurivääntö kertoo karua kieltä siitä, missä jamassa EU on
+-  HomeKit Weekly: Yeelight Cube Smart Lamp Panel sets the perfect ambiance for any mood
+-  Tone Your Thighs & Butt With This Resistance Band Set That’s on Sale for Just $15
+-  Our reviewers’ verdicts of the films to see this summer
+-  Our reviewers’ verdicts of the films to see this summer
+-  Mirzapur News: अमृत सरोवर बने एक साल बीता, न हरियाली दिखी न सुविधा
+-  Mirzapur News: नामांकन वापसी के बाद अध्यक्ष, उपाध्यक्ष व महामंत्री पद पर मतदान तय
+-  Sitapur News: एफसीआई धर्मकांटे पर होती है घटतौली, नहीं मिला निदान
+-  Mirzapur News: टूटे चैंबर हो रहे जानलेवा, बढ़ी खतरे की आशंका
+-  Sitapur News: सौ मीटर दौड़ में मो. जैद व साबिया सबसे आगे
+-  Mirzapur News: सांसदों के निलंबन का विरोध, विपक्षी दलोें ने दो घंटे तक किया प्रदर्शन
+-  Sitapur News: 30 मोहल्लों में पांच घंटे गुल रही बिजली
+-  Sitapur News: जमीन विवाद सुलझाने पहुंची पुलिस टीम पर हमला, दो पुलिसकर्मी घायल
+-  Sitapur News: सड़क हादसों में तीन लोग जख्मी
+-  जनता तक पहुंच रही सरकारी की योजनाएं: यदुवंश
+-  Sitapur News: 181 शिक्षकों को जल्द मिलेंगे नियुक्ति पत्र
+-  Jalaun News: छपरा मेल निरस्त, 10 कई ट्रेनें देरी से पहुंची
+-  Bijnor News: बिजनौर पहुंची यूपी जोड़ो यात्रा, जोरदार स्वागत हुआ
+-  Sitapur News: नाव से पहुंची आबकारी टीम, 145 लीटर शराब बरामद
+-  Balrampur News: बेटियां छुएं मंजिल, पुलिस हर कदम उनके साथ
+-  Jalaun News: हैंडओवर से पहले ही सड़कें खराब, बुझ गईं लाइटें
+-  Sitapur News: 11 करोड़ से बनी सड़क में खामियां, नहीं बनवाया फुटपाथ
+-  Balrampur News: मनरेगा में गड़बड़ी पर लगाम कसेगी सोशल आडिट टीम
+-  Ambedkar Nagar News: 30 प्रधानाध्यापकों को निलंबन का नोटिस
+-  Jalaun News: संदिग्ध हालात में एक ही गांव के दो युवकों की मौत
+-  Balrampur News: विसंगतियों दूर करने को सौंपा ज्ञापन
+-  Ambedkar Nagar News: खाद्य टीम ने लिए छह नमूने, साफ सफाई का दिया निर्देश
+-  Jalaun News: गैरहाजिर रेल पथ निरीक्षक को कारण बताओ नोटिस
+-  Balrampur News: रामकथा सुनने से दूर होता है जीवन का हर संकट
+-  Etawah News: बच्ची से दुष्कर्म में एक को उम्रकैद, 76 दिन में आया फैसला
+-  Ambedkar Nagar News: बिना रजिस्ट्रेशन ई-रिक्शा बेचने वाले 41 डीलरों को नोटिस
+-  Jalaun News: कार की टक्कर से बाइक सवार की मौत, दो गंभीर
+-  Shamli News: पुलिस ने पिटबुल के मालिक और उसके पुत्र को किया गिरफ्तार
+-  Etawah News: फैंसी ड्रेस में जाश्वी, आव्या तेजस को मिला प्रथम स्थान
+-  Ambedkar Nagar News: 14 से समाप्त होगा ट्रेनों का रूट डायवर्जन
+-  Jalaun News: एडीओ पंचायत से स्पष्टीकरण, पंचायत सहायकों को नोटिस
+-  Shamli News: 142 सांसद निष्कासित किए जाने के विरोध में सपा कार्यकर्ता कलक्ट्रेट पहुंचे
+-  Etawah News: नौकरी के नाम पर ठगी करने में तीन गिरफ्तार
+-  Ambedkar Nagar News: महिला ने फांसी लगाकर दी जान
+-  Jalaun News: कार की टक्कर से वृद्ध की मौत
+-  Shamli News: पूर्व प्रधानमंत्री चौधरी चरण सिंह का जिले से रहा गहरा नाता
