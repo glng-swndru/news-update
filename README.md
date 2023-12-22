@@ -1,51 +1,51 @@
 # Latest News
--  संजू सैमसन, ‘बड़ी देर कर दी आपने आते-आते…’, अब तो शतक भी नहीं बचा पाएगा करियर!
--  Prezident Xocalının Pirlər kəndində oldu
--  Megint egymásnak estek a NER csúcsbírói, durva személyeskedésbe ment át a vita
--  Zloglasni "plavi ekran smrti" stigao i na Linux
--  التعاون الدولي: 2.5 مليار دولار استثمارات مؤسسة التمويل الدولية في مصر آخر 4 سنوات
--  (ВИДЕО) Чешката полиција со детали за масакрот: Објавена и снимка од потерата по убиецот
--  Delhi-NCR air pollution: Centre bans non-essential construction work, plying of polluting 4-wheelers
--  Ministerstvo školstva zvýšilo finančnú podporu linkám pomoci o 220-tisíc eur
--  Dvoch Sýrčanov obvinili z vojnových zločinov: Mali byť členmi Islamského štátu
--  Protestojnë punëtorët e KEK-ut, kërkojnë rritje të pagave
--  [인사] 우리금융지주·우리은행
--  Mourinho aborda o futuro: "Tive a possibilidade de sair para Portugal..."
--  Surprising Absolutely Nobody, Kanye West And Ty Dolla Sign Have Delayed Their Album ‘Vultures’ Yet Again
--  Sindikalna organizacija organa lokalne uprave: Političari da ne...
--  ‘निराश न हों खिलाड़ी, सत्य जीतेगा…’ साक्षी के संन्यास पर AAP विधायक दुर्गेश पाठक का BJP पर तंज
--  Çocuklarda kışla birlikte 'RSV' vakaları arttı
--  Basket: la lourde sanction du CSP Limoges a été réduite
--  Are Canada’s water bombers fit to fight climate change fuelled wildfires?
--  New Minnesota law will ban employers from asking a job candidate's salary history
--  New Minnesota law will ban employers from asking a job candidate's salary history
--  ‘Masovna ubojstva u školama se iz SAD-a sada poput bolesti šire Europom...‘
--  Brnabiç për zgjedhjet në Serbi: Vëzhguesit e huaj gënjejnë dhe po destabilizojnë vendin
--  Horoscope, December 23, 2023: Aries’ fresh beginnings, Leo’s quality improvement | Free prediction for all zodiac signs
--  Polski Cukier Start Lublin kontra sąsiad z ligowej tabeli
--  Kanye West planning to build city in the Middle East twice the size of New York
--  Lukossa käy ovi molempiin suuntiin - ”Osasyynä ovat perheasiat”
--  Mandić: Intenzivirati saradnju sa Marokom u oblasti obnovljivih izvora električne energije, IT i turizma
--  ‘선 넘은 패밀리’ 이혜원, “안정환 크리스마스에 산타복 입혔는데 아이들 대성통곡”
--  Cacerolazo en Córdoba: el fiscal asegura que el corte de calle no fue espontáneo
--  Kitchens@ sichert beeindruckende 65 Millionen USD in Serie-C-Finanzierung von der florierenden Wachstumsinvestitionsfirma Finnest
--  Ancelotti jep mendimin e tij mbi Superligën Evropiane
--  French President Emmanuel Macron Confirms India Visit As R-Day 2024 Chief Guest
--  Ayodhya Ram Mandir: कैसे विवादित ढांचे में प्रकट हुए रामलला? जानिए पूरा मामला
--  Dad’s ‘adorable’ welcome home gesture as he waits in airport with iconic product that’s ‘better than winning the lotto’
--  Кадагишвили: Обреченная попытка Саакашвили что-то объединить останется без ответа
--  Adiós a las calderas: esta es la fecha límite de la UE
--  Kiakasztotta rokonait egy fiatal nő, aki kukában talált ételekből készíti a karácsonyi menüt
--  18 की उम्र में 10 साल जैसा दिखाता है आपका बच्चा? इस बीमारी का हो सकता है शिकार
--  How to see 2024 Golden Globes host Jo Koy live on tour: Get tickets
--  How to see 2024 Golden Globes host Jo Koy live on tour: Get tickets
--  Queen Elizabeth II worried dying in Scotland would make her funeral 'difficult' for Royal Family, Princess Anne reveals
--  Federal court revives lawsuit against Nirvana over 1991 'Nevermind' naked baby album cover
--  Queen Elizabeth II worried dying in Scotland would make her funeral 'difficult' for Royal Family, Princess Anne reveals
--  Robert Pattinson and Suki Waterhouse are engaged: report
--  Federal court revives lawsuit against Nirvana over 1991 'Nevermind' naked baby album cover
--  Prince Harry, Meghan Markle made secret trip to Costa Rica with two kids ahead of the holidays
--  Robert Pattinson and Suki Waterhouse are engaged: report
--  'Dukes of Hazzard' star John Schneider denies calling for President Biden to be 'publicly hung'
--  Prince Harry, Meghan Markle made secret trip to Costa Rica with two kids ahead of the holidays
--  'Ferrari' review: Movie starts on cruise control and then floors it
+-  KIA 25세 150km 파이어볼러의 시간차 호주 유학…4G ERA 제로, 1군 비밀병기 기대해
+-  Pierwsze dni nowego wojewody: Granica, zdjęty krzyż i dyrektorskie wakaty
+-  Son dakika... Cumhurbaşkanı Erdoğan: Sermaye piyasalarını manipüle etmeye çalışan tamahkarlara meydanı boş bırakamayız
+-  وقف رحلات السفن عبر البحر الأحمر.. أسعار الشحن البحري تقفز 226%
+-  وضع كارثي.. متحدث مركز "الملك سلمان للإغاثة": غزة تحتاج 800 شاحنة يوميًا (فيديو)
+-  عاجل.. تنبيه مهم من "المرور" لتجنب غرامة 2000 ريال
+-  3 ريالات زيادة في أسعار الذهب اليوم الجمعة .. وعيار 24 يسجل 248 ريالًا
+-  Emmerdale SPOILER: Kidnapped Mackenzie leaves ex Chloe torn as he begs her to save his life in dramatic scenes
+-  Massive Roblox game Anime Adventures just got shut down in alleged DMCA hit
+-  مہنگائی میں کمی کا تسلسل سست روی کے ساتھ برقرار
+-  Money experts reveal five tips and tricks for cutting costs on Christmas shopping this year
+-  Emlak Konut GYO'nun İzmir'deki arsalarının 2023 değeri yaklaşık 90 milyon TL!
+-  Dermatologist reveals how to get clear, blemish-free skin just by changing the way you WASH your face
+-  Strzelanie z łuku jest dla mnie jak medytacja
+-  ضبط 34 مخالفة تموينية في الحديدة
+-  Земјотрес од 4,7 степени според Рихтер ја погоди Русија
+-  FG’ll pull 50 million out of poverty in 42 months
+-  West Ham United vs Manchester United prediction, odds and betting tips
+-  Life | Princess Anne reveals the royal family persuaded Queen Elizabeth to spend her final days in Scotland
+-  Kucherov maintient la cadence, inquiétude pour Carlsson
+-  Cole Caufield n'aime pas du tout notre poutine
+-  Ovechkin sort de sa coquille de belle façon
+-  Les Sabres servent un correction de 9 buts aux Leafs
+-  Justin Barron lance des fleurs à Stéphane Robidas
+-  « J'essaie d'en profiter le plus que je peux » - Fleury
+-  Le Real se hisse en tête devant Gérone avant la trêve
+-  Makhmudov veut utiliser Kabayel comme un tremplin
+-  Presque tous les entraîneurs de retour dans le nid
+-  Canadiens : le CH obtient un point au Minnesota; but gagnant de Kaprizov en prolongation | RDS
+-  Reprimanded for wearing black armband made no sense to me: Usman Khawaja
+-  LNH : Nathan MacKinnon a marqué son 300e but en carrière; 1er match de 4 buts | RDS
+-  رسميًا.. ليفربول يرفض المشاركة في دوري السوبر الأوروبي
+-  Musician Paul Mooney remembered as “a brilliant beam of sunshine”
+-  La Casa de Don Fernando se acicala para recibir a Papá Noel el domingo
+-  КЗК глоби производител на протеинови барчета за нелоялна конкуренция
+-  A brief coffee time review of 2023, before the return of real politics in 2024?
+-  স্বতন্ত্র প্রার্থীর নির্বাচনী ক্যাম্প ভাঙচুর ও কর্মীদের মারধরের অভিযোগ
+-  Posthaste: One of the last bastions of affordable housing in Canada is losing its edge
+-  Libra 23 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Фармацевтичната Bristol купува производител на лекарство срещу шизофрения за 14 млрд. долара
+-  צפו בבכר עוזב את בלגרד לצד קטורזה. המאמן החדש: כל השחקנים רצו שאגיע
+-  Luis Suarez nuk heq dorë nga futbolli, do të luajë sërish me Messin
+-  Female music teacher at £37,000-a-year boarding school romped with pupil in her car before telling them: 'You could get me in a lot of trouble'
+-  Police launch investigation into disappearance of Alex Batty six years after he went missing
+-  Debat Cawapes 2024, Cak Imin Mau Slepet 100 Orang Terkaya Indonesia Gara-Gara Ini
+-  Manchester United challenge five players to help Rasmus Hojlund
+-  پی ٹی آئی کی شکایات پر الیکشن کمیشن نے ہدایات جاری کردیں
+-  Bajrang Punia to return Padma Shri award to PM Narendra Modi
+-  SudTirol-Reggiana, i convocati di Nesta: si allunga la lista degli assenti. È fermo anche Rozzio
+-  Arsenal legend Martin Keown reveals rating for Mikel Arteta’s first four years at Arsenal
