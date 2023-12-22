@@ -1,51 +1,11 @@
 # Latest News
--  Vader. Zdjęcia z koncertu
--  PZL Leonardo Avia i Bogdanka Arka chcą pozytywnym akcentem zakończyć 2023 rok
--  Opposition shows mixed responses to ruling party's new interim head
--  Scandal-ridden securities firms to start next year with new CEOs
--  Korea Times, The Trinity forge partnership to enhance ESG through arts and culture
--  Kumho Petrochemical continues campaign for society
--  Far-right groups protest school groups watching film on military coup
--  Si te toca la Lotería de Navidad en Canarias 2023, ¿desde cuándo puedes cobrar el premio?
--  Lufthansa-Tochter Discover: Piloten gehen in den Warnstreik
--  В Германии высказались о выдаче украинских беженцев для службы в ВСУ
--  Япония прекращает производство популярного в России антибиотика. Минздрав заявил, что его запасов хватит на полгода
--  Ancelotti komentirao Superligu, a onda ‘upozorio’ i Dinamo
--  Android Auto smette di funzionare su alcuni vecchi smartphone
--  From our files, December 22 2023
--  Bolsa de Lisboa abre a subir 0,08%
--  전교조 해직교사 ‘특채 지시’ 혐의 김석준 前 부산교육감 불구속 기소
--  [인천24시] 인천시, 계양구 일부지역 토지거래허가구역 해제
--  [시흥24시] 시흥갯골축제, '2024-2025 문화관광축제' 선정
--  [성남24시] 성남시, 2023년 재정분석 평가 '효율성' 부문 '우수 지자체' 선정
--  경기도 2024년 예산 36조1210억원 확정…전년 比 6.8%↑
--  '수원화성' 주변 규제 완화, 재개발·재건축 가능해진다
--  복구명령 vs 버티기…위험은 주민 몫
--  ‘가덕신공항 건립’ 탄력받나…내년 정부예산안에 5363억 반영
--  화성시 펜싱팀 감독 '선수수당 갈취' 의혹…"지위 남용해 선수들 대리운전 강요"
--  [서부경남24시] 합천군, 지방규제혁신 평가 ‘전국 최우수’
--  광주~대구 달빛철도 첫발 뗐지만…‘복선·고속철’ 포기는 논란거리
--  [경주24시] “40년의 고통” 경주 안강읍 주민, 국방부에 포사격장 이전 촉구
--  [대구24시] 지역기업 내년 1분기도 ‘침체’…대구 상의, 기업경기전망지수 발표
--  [포천24시] 포천시, 2024년 1월 새해농업인 실용교육 실시
--  [기장24시] 기장군 내년 예산 7984억…2.2% 감소
--  В Кировской области дети участников СВО будут получать бесплатное питание в ссузах
--  Jokowi Nyaman Pakai Dasi Kuning, PDIP: Karena Elektoral Golkar Turun
--  What is waiver of premium rider with ULIP and why should one opt for it?
--  Мизрахи: Испратив допис до претседателот на Собранието да ги достават сите материјали од Анкетната комисија за Онкокогија до ЈО
--  UAE Central Bank raises 2024 economy growth forecast to 5.7%
--  Правительство Армении намерено погасить финансовые обязательства Нагорного Карабаха
--  В Ульяновске задержали участников драки в кафе, в которой пострадали три человека
--  "سحب قوس قزح" النادرة تزين سماء القطب الشمالي لمدة 3 أيام متتالية (صور)
--  Либертарианца Светова вновь оштрафовали за нарушение закона об иноагентах
--  Vreme: Danes bo pretežno oblačno
--  Jobless man jailed after stealing cologne for child’s mother
--  Investigation launched after EAC challenges competitor
--  US scrutinizing airline frequent flyer programs
+-  Girişimlerin yüzde 99'u KOBİ
+-  Марказий банк регулятор номидан фойдаланиб, фирибгарлик қилиш ҳолатлари кузатилаётганидан огоҳлантирди
 -  ¿Se te ha roto un décimo premiado en la Lotería de Navidad 2023? Esto debes tener en cuenta
--  Šahedi eliminisani
--  Ministère en charge du commerce : 115 récipiendaires décorés pour services rendus à la nation
--  검찰 '무혐의' 강릉 급발진 의심 사고 재수사 지시… 유족 "강자 편에 선 편파적 조치"
--  2024 강원동계청소년올림픽 성화투어 양구 행사 성황
--  신철우 양구군의원 ‘2023 대한민국 지방자치평가연계 의정정책대상’ 최우수상 수상
--  전청조 "혐의 모두 인정하지만 범행 부풀려져… 범죄 수익 남현희에 흘러 들어가"
+-  DEBATT: Ett möte mellan barn och vuxen kan också bli livslång vänskap
+-  Business Success Story: From Vision to Victory, Rahul Narvekar`s Trailblazing Journey in Transforming IndianRoots into a Global Brand
+-  [제약24시] 한국오가논 ‘코자정’, 뇌졸중 발생 위험 감소 적응증 추가
+-  대설·한파에 월동채소 등 농작물 피해 '비상'
+-  ¿Se te ha roto un décimo premiado en la Lotería de Navidad 2023? Esto debes tener en cuenta
+-  Kickoff | CONFIRMED: First new club to join European Super League revealed
+-  제주 폭설에 항공편 수백편 무더기 결항, 이용객 불편 극심
