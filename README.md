@@ -1,51 +1,51 @@
 # Latest News
--  Česká polícia potvrdila zhodu zbrane z Klánovíc so zbraňou strelca z Karlovej univerzity
--  Updated Ticket Sale Numbers For AEW Events, Including Worlds End
--  Irlanda prohíbe la venta de productos de vapeo a los menores de 18 años
--  VIDEO | Chiara Ferragni, come vanno le vendite nel negozio di Roma dopo lo "scandalo pandoro"?
--  BFM Bourse : 15h/16h - 22/12
--  Hedef gösterilen Kızıl Goncalar dizisinin yapım şirketinden açıklama
--  Premier League star ‘got beat up’ by Drake’s bodyguards after he asked for selfie of singer in gym
--  Adelantan entregas de abrigos del DIF
--  Gibran Soal Banjir Proyek di Solo: Saya Sering Dibantu Pak Ganjar
--  La Maddalena, vaccinazioni anti-Covid nella Casa della Comunità di Padule
--  Alex Verdugo y su reacción al enterarse fue que fue cambiado a los Yankees
--  ‘Aquaman 2’ $4.5M, ‘Migration’ $1.5M Previews – Christmas Caravan Of Films Begins At Box Office
--  İstanbul trafiği bir kez daha felç oldu! Her seferinde aynı senaryo...
--  В Петербурге вынесли приговор военному, разбившему "Панцирь-С" об мост
--  Div Com reviews operations of subsidized Heli services for snow-bound areas
--  Bigg Boss 17: Mannara Chopra gets upset with bestie Munawar Faruqui
--  FitSpresso Coffee Reviews: Is This Coffee Loophole Truly Effective For Weight
--  Las mejores películas de Zack Snyder
--  LeanBliss Reviews (Warning To Customers!) Does Lean Bliss Aid Weight Loss
--  BAJA MALI KNINDžA SNIMIO SPOT ZA NOVU PESMU: Republiko Srpska, majko naša, neka te čuva Bog (VIDEO)
--  Investigation launched after woman found dead in house in Rutherglen, South Lanarkshire
--  2023: The year we played with artificial intelligence – and weren’t sure what to do about it
--  Klopp bekräftigt Nein zur Super League - Urteil dennoch gut
--  Ubedljiva pobeda Čuke: Sjajan gol Cvetkovića
--  Car seller Lookers could cut hundreds of jobs after takeover
--  Alles schon vergessen?
--  FK Sarajevo prodalo igrača u američku MLS ligu
--  Miał ofertę z Rakowa Częstochowa, trafił do Lecha Poznań
--  Aquafest: 23 декабря открывается первый зимний аквапарк!
--  XV de France : Un cadre de Galthié n'a toujours pas digéré l'Afrique du Sud
--  Bitlis'te zincirleme kaza: 1 ölü
--  Yahudi yerleşimciler Filistinlilere ait ağaçları söktü
--  Filistin Kızılayı: İsrail, 8 Kızılay gönüllüsünü serbest bırakmadı
--  Тошкент вилоятида битта заправка 1,2 млрд сўмдан зиёд табиий газдан ноқонуний фойдалангани аниқланди .
--  FourFourTwo Alternative awards: the winners and losers of 2023
--  “Ўзбекнефтгаз” АЖ: Қашқадарёда ишга туширилган янги лойиҳа "Жанубий Тандирча" конининг умрини узайтиради.
--  شباب دمياط ينظم ندوة عن المخلفات الإلكترونية بمركز شباب الغوابين
--  Давлат идоралари раҳбар ва ходимлари театрларга ташриф буюриши керак — президент
--  Stratégové Citi varují před poklesem amerických akcií s tím, že jej ale lze využít k nákupu. Pozitivní jsou na banky a technologie
--  Na sídlisku Zornička v Galante sa prepadla pôda len kúsok od obytných domov, jama môže byť pozostatkom starej žumpy (foto)
--  Правительство утвердило правила установки QR-кодов на воинских мемориалах
--  Biden to pardon certain marijuana offenses, commute sentences of 11 nonviolent drug offenders
--  Epic Games Store makes a fresh exception to Adults-Only ban for blockchain games
--  أرتيتا يرفع شعار التحدي لتحقيق أول انتصار مع أرسنال على ملعب أنفيلد منذ 11 عاما
--  63 برس میں اسکول میں داخلہ مہنگا پڑ گیا، ٹک ٹاکرز نے زندگی مشکل کردی
--  Après les tensions, la Pologne manifeste son soutien à l'Ukraine dans la guerre face à la Russie
--  देश की खबरें | संसद में आपराधिक कानून विधेयकों पर चर्चा का “बहिष्कार” करने के लिए शाह ने विपक्ष पर निशाना साधा
--  जेवर विधायक Dhirendra Singh ने शिक्षकों को वितरित किए 197 टैबलेट, बोले- हाईटेक होंगे यूपी के शिक्षक और शिक्षण व्यवस्था
--  देश की खबरें | कश्मीर में आतंकवाद मृत्युशय्या पर : सिन्हा
--  Ο Κρέσπο και το άλλο κέντρο
+-  TFF ve Kulüpler Birliği'nin kritik toplantısı sonrası flaş açıklamalar
+-  WHO warns of significant global Dengue resurgence in 2023
+-  USA är inte riktigt i hamn ännu
+-  1,280 asistencias viales reporta el MOP en diciembre
+-  Licencia permitirá a Shell y NGC producir gas en Venezuela por 30 años
+-  Wall St sube tras los débiles datos de inflación; Nike cae
+-  От 3 януари НАП затяга контрола върху превозите на стоки с висок фискален риск
+-  رودريجو يتصدر المرشحين لجائزة الأفضل بالليجا في شهر ديسمبر
+-  ¿Y mis 350 mdp? Trabajadores de Interjet acusan al Gobierno de retraso en pago de ‘indemnización’
+-  List Of Corrupt Activities Allegedly Committed By Emefiele As Released By CBN Investigator
+-  My husband is a neat freak but I spend £8K on Christmas tat – I have a dedicated ‘Santa room’ I enjoy all year round
+-  Refuerzan vigilancia en el Centro por compras navideñas
+-  Verdugo se afeita para cumplir con la regla de los Yankees
+-  Shocking moment mourners at gypsy funeral are chased by cops as they huddle around COFFIN on back of truck on motorway
+-  81-Year-Old Woman Sentenced to One Year for Her Faith in Retrial
+-  الرجاء يتفوق على الآخرين في هذه الناحية
+-  Skin de John Wick x Fortnite: cómo conseguir, estilos y más
+-  Mottagning säger upp avtal i förtid när vårdval allergologi avvecklas
+-  Kerry Katona attempts to urinate out of her £118k car on M56 motorway during traffic jam... and MISSES panto appearance with daughter Lilly-Sue, 20, due to overturned horsebox
+-  Baleària compra el ferry Rusadir por 170 millones
+-  El número feo y tardón reparte muchísima alegría
+-  El número feo y tardón reparte muchísima alegría
+-  112 Acil çağrı hattında yeni dönem
+-  Are banks open today? Here's a list of U.S. bank holidays for 2023
+-  The harrowing true story of the 'cursed' Von Erich brothers - from a freak electrocution accident to a fatal drug overdose - as Zac Efron-starring 'The Iron Claw' hits cinemas
+-  Retenciones en Madrid, Barcelona, Tarragona, Valencia, Vizcaya y Guipúzcoa en la Operación Salida de Navidad
+-  Simone Biles named AP Female Athlete of the Year for the third time after glorious comeback... gymnastics icon beats Caitlin Clark and Ballon d'Or winner Aitana Bonmati to crown
+-  Retenciones en Madrid, Barcelona, Tarragona, Valencia, Vizcaya y Guipúzcoa en la Operación Salida de Navidad
+-  Количество бригад скорой помощи увеличат на праздники в Петербурге
+-  Jim Delahunt unveils his festive picks on Celtic v Livingston, Motherwell v Rangers, the EPL card and his weekend acca
+-  Vlada predstavila demografsku strategiju, demograf kritizirao: 'Nema u njoj konkretnih mjera'
+-  «Pas encore mon heure», un joueur du PSG fait une confidence après le drame
+-  Kallelse till extra bolagsstämma i Footway Group AB
+-  Milica Pavlović najavila koncert u Areni Zagreb
+-  ส่งท้ายปี ‘ปิยะวดี-โรเตอร์-อะกิ’ แชมป์’โตโยต้า กาซู เรซซิ่ง2023′ สนาม5บุรีรัมย์
+-  Image Systems tar miljonorder
+-  Western Countries' Attempts to Cancel Russia in UNESCO Failing - Lavrov
+-  Новый корпус Центра гигиены и эпидемиологии Управделами Президента открылся в Минске
+-  Patrick Mahomes praises 'cool' Taylor Swift for her impact on Travis Kelce and her new friendship with Brittany: 'She's part of Chiefs Kingdom - she's top tier, her and Travis match so well'
+-  "Нейросеть" стала главным словом уходящего года: видеодоказательство
+-  Woman Killed After Christmas Tree Fell On Her
+-  Gobierno de Perú niega haber incurrido en desacato con la liberación de Alberto Fujimori
+-  Mauricio Pochettino delivers blunt warning to stars and agents moaning about lack of game time - insisting Chelsea are not a charity - and admitting he is 'annoyed' by behaviour as Blues languish in 10th
+-  The Máxima festive spirit! Dutch royals show Kate and William how it's done as Queen and her family cuddle adorable dog Mambo in their official Christmas snaps
+-  RHMZ IZDAO NOVO UPOZORENJE Spremite se, stižu sneg i kiša u ove krajeve! Samo jedan deo Srbije će biti pošteđen
+-  Калининградские власти выполнили годовой план покупки квартир для детей-сирот
+-  Rezultati istraživanja Ratela - dokaz vrhunskog kvaliteta mobilne telefonije u Srbiji: mts peti put zaredom najbolji
+-  Bandits Releases 11 Of 30 Persons Abducted In Kaduna
+-  Prvo ga optužili za seksualno zlostavljanje, a sad se pojavio i problematični snimak: 'Jezivo'
+-  Actualité : Bon plan – Le smartphone Poco F4 GT 256 Go à 279,90 €
