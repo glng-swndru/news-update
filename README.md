@@ -1,51 +1,51 @@
 # Latest News
--  Il Milan delude a Salerno, Pioli amareggiato: “La fiducia ci viene sempre meno”
--  تصنيف 3000 كأصحاب إعاقات دائمة في جيش الاحتلال
--  أوكسفام: فشل مجلس الأمن في وقف إطلاق النار بغزة غير مفهوم
--  محللون إسرائيليون: القضاء على حماس وتحرير المحتجزين ليس واقعيا
--  Travel-ready hip-replacement patient thwarted by task force end faces another year in agony
--  Karina Banda confiesa su deseo de convertirse en madre
--  Soğan faydaları
--  Six-bedroom home in Palo Alto sells for $5.2 million
--  Mike Tyson’s first coach reveals ‘wild’ prediction for Anthony Joshua vs Otto Wallin… with ‘huge upset’ on the cards
--  Apple may be working on a way to let LLMs run on-device and change your iPhones forever
--  The pick of the St. Nicks
--  Aaj Ka Danik Tarot Card: कर्क, सिंह समेत इन 3 राशि वालों को होगा अचानक धन लाभ, नौकरी में मिल सकती है तरक्की
--  Zaniolo's late goal salvages draw for Aston Villa
--  Luis Ventura estalló contra un humorista por contar un secreto suyo muy vergonzoso
--  Gobierno de Venezuela avanza con diálogos de doble vía, con la oposición y EE.UU.
--  Reconoce las señales de un hígado enfermo
--  Zadnja ekipa Premier lige prekinula senzacionalni niz Aston Ville
--  Madona di Kampiljo talična za Švarca, nova pobeda u slalomu VIDEO
--  All the farmers have debts of Rs.40 thousand crores : రుణమాఫీకి నిధులెలా?
--  BAJDEN POTPISAO NOVI UKAZ: Amerika će izdvajati rekordnih 886 milijardi dolara na vojsku
--  Conor Benn vs Peter Dobson set for Feb. 3 in Las Vegas
--  Salernitana, Inzaghi: "Dispiace per i ragazzi, ma se c'è rammarico per un pareggio col Milan..."
--  Intel CEO claims 18A node will at least match TSMC's N2 performance and beat it to market
--  Zonguldak’a şehit ateşi düştü
--  Andrew Cuomo for NYC mayor? Say it ain’t so, New York!
--  Maduro: Milei busca “someter al pueblo a paquetes neoliberales” con medidas que “le dictan desde Washington”
--  Oprah’s $100 Blunder: Online Backlash Explodes as Fans Label Her “Out of Touch”
--  The head of Arkansas’ Board of Corrections says he’s staying despite governor’s call for resignation
--  The head of Arkansas’ Board of Corrections says he’s staying despite governor’s call for resignation
--  Taça da Liga: Nacional-Sp. Braga, 1-3 (crónica)
--  Jović spasio Milan blamaže protiv Salernitane
--  Novine: "Onima u Srbiji koji seju mržnju prema Srpskoj nikada nećemo oprostiti"; "Pljušte ostavke"
--  Kulüpler Dünya Kupası'nda şampiyon Manchester City oldu
--  Nuevo logro de ‘Generación 98′: Teleserie nocturna de Mega lideró su franja horaria toda la semana
--  Most actively traded companies on the Toronto Stock Exchange
--  Most actively traded companies on the Toronto Stock Exchange
--  В СНБО Украины рассказали, когда начнут мобилизовывать полмиллиона граждан
--  Dos nuevos mosaicos celebran la fauna neoyorquina en estación de metro del Bronx
--  El GBC es 007, tiene licencia para soñar
--  Foragido em cidade de SC, uruguaio procurado pela Interpol é extraditado
--  Spotify ücretli mi?
--  Perca peso já. Este sumo é uma 'bomba' contra os quilinhos a mais
--  Veteran utilityman Niko Goodrum returns to Twins on minor-league deal
--  – تشيكيا تعلن يوم غد السبت حدادا وطنيا على قتلى الهجوم في جامعة براغ .
--  Байден заявил, что был "убит горем" после одного известия из Газы
--  U Nevadi sakupljaju i sele hiljade divljih konja zbog suše
--  Construction costs will keep in line with inflation as labor demand eases: Bill Shopoff
--  Mladíci ukázali v príprave veľkú mentálnu silu. Slováci prehrávali s Nemcami už 2:5, ale napokon sa aj tak tešili
--  Hamas, BMGK’da alınan kararı "yetersiz" buldu
--  ‘Maestro’ of love: Read Bradley Cooper’s high school opinion about best friends hooking up
+-  الزعيــــم .. صـــدارة عــــن جـــدارة
+-  «76.2» مليار مشتريات حكومية في «2024»
+-  «68» خطة عمل لتطوير الخدمات المصرفية
+-  Teemu Pulkkisella onneton paluu koomisen yleisömäärän edessä
+-  UAEA açıkladı: Kuzey Kore'de 2. nükleer reaktör faaliyette
+-  Savunma sanayindeki başarıya dikkati çekti: Türkiye bir devrim yaşadı
+-  Başkan Erdoğan imzaladı! Atama kararları Resmi Gazete'de
+-  أسعار النفط تتراجع
+-  الزكاة والضريبة تحذر: أنت متهم بالتهرب الضريبي في حال تقديم هذه السجلات والمستندات
+-  Corte Suprema EEUU rechaza solicitud del fiscal, aún no se pronunciará sobre la inmunidad de Trump
+-  FedEx nombra a una ejecutiva de Danone miembro de su consejo de administración
+-  السبت 10 جمادى الآخرة.. مواقيت الصلاة في مكة والمدينة ومناطق المملكة
+-  [속보] 포스코 포항제철소 발전소서 화재…공장 대다수 가동 중단
+-  فرحة جديدة في بيت محمد ثروت بعد شهر من زفاف نجله.. ماذا حدث؟
+-  VIDEO: Dani Flow enfurece con un fan y lo corre por “nacada” en pleno concierto
+-  Banco comandado por Dilma garante empréstimo de US$ 200 milhões para Minas Gerais
+-  الاحتلال يواصل الاعتداء على طواقم الهلال الأحمر الفلسطيني
+-  اليابان تعتزم تسليم الولايات المتحدة صواريخ باتريوت
+-  زيلينسكي يحث الدبلوماسيين على بذل الجهود لكسب التعاطف مع أوكرانيا
+-  "모두가 수비 괴물을 좋아한다!"…하지만 바이에른 뮌헨은 '딜레마'에 빠졌다, 투헬 "뮌헨에 불행한 시기"
+-  [손태규의 직설] 르브론 제임스 '말'로 두들겨 팬 UFC 선수
+-  ‘마약혐의’ 이선균 오늘(23일) 3차 소환, 女실장 “집에서 필로폰·케타민 투약했다” 진실 밝혀지나[MD이슈](종합)
+-  "어마어마 수상경력→전교 1등→선생님 극찬" 이찬원, 모범생 표본 생기부 '공개'[편스토랑]
+-  바르샤와 레알이 '맨유 22살 신성'에 미쳤다→임대로 내보낸 맨유 “기회 왔을 때 팔자”흐뭇
+-  맨시티 핵심 MF→"EPL에서 가장 어려운 상대는 손흥민"
+-  "10일 동안 –5kg·제니 어깨 가능!" 진서연 '비법 大공개'[편스토랑]
+-  성탄절 경마, 서울 단독 이벤트 12R 시행
+-  رولان مهنا يستقبل العام الجديد بحفل فني في صيدا
+-  نوال الزغبي تعلن عن خبر سار قبل نهاية العام.. مفاجأة بانتظار جمهورها
+-  “وقته المتبقي لنا”.. فهرية أفجان تعلق على سفر بوراك أوزجيفيت المتكرر
+-  براد بيت يحتفل بعيد ميلاده الستين مع حبيبته الجديدة
+-  La otra cara de diciembre: nostalgia por las fechas y “depresión invernal” ¡Esto dice un especialista!
+-  عمرو دياب يفاجئ الجمهور بأولى أغنيات ألبومه الجديد.. “المعنويات مرتفعة”
+-  عشاء غريب جمع مارثا ستيوارت مع سنوب دوغ.. إليكم ما كشفته
+-  Sixth man arrested over major cocaine seizure at Foynes Port
+-  Dışişleri'nden GKRY'ye 'Deniz Saha Planlaması’ tepkisi
+-  حظك اليوم وتوقعات الأبراج 23-12: توتر وقلق لهذا البرج.. ونصائح لهؤلاء
+-  Philippe Clement ramps up St Johnstone attack as Rangers boss says he’d be RAGING if his players made similar tackles
+-  América le hará una gran oferta de renovación a Henry Martín para continuar dos años más
+-  Dayton, Ohio, Commission Votes to Expand ALPR System
+-  Removal of Banksy artwork reported to police to ‘help get it back’
+-  Affaire Agnès Firmin Le Bodo : ce que dit la loi sur les "cadeaux d'affaires"
+-  Ivana napustila 'MasterChef' pa poručila: 'Sretna sam i ponosna. Bilo je dosta borbe, ali i sreće'
+-  Украинский телеведущий сбежал в Европу после саммита ЕС
+-  35 puntos para soñar con la Champions
+-  Victoria López: «Si no se regula la inteligencia artificial, se irá de las manos y nada será verdad»
+-  Saussemesnil. Les parents d'élèves de la Ribambelle remettent un chèque de 6 000 euros à l'école
+-  Tramp upozorava Amerikance: Čuvajte se, FBI šalje prikrivene špijune na vas
+-  Trump Criticizes ‘Scam’ Poll Showing Nikki Haley Trailing By Just 4 Points In New Hampshire
+-  Kourtney Kardashian and Travis Barker Share First Pics of Son Rocky
