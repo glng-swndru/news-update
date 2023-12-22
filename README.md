@@ -1,11 +1,11 @@
 # Latest News
--  Dior Atelier of Dreams Unveil a Festive Christmas Takeover at Hong Kong International Airport
--  "재개발·재건축 정보를 한 곳에서" 정비사업 전문 부동산 플랫폼 ‘재모’ 출시
--  Gordon Ramsay’s former mistress reveals why Christmas is the most miserable time to be a mistress
--  Why These 7 AI Stocks Should Be on Your Radar in 2024
--  3 Contrarian Stock Plays for Bold Investors in 2024
--  Asia stocks see slim weekly gain, await US inflation
--  롯데건설, 서울 서초구 전원마을에서 ‘사랑의 연탄‧라면 나눔’ 봉사활동 실시
--  전북, 주장 홍정호와 연장계약... 최철순과도 협상 진행중
--  UK-based composer brings her late father`s forgotten Christmas carols to life
--  This storytelling session dives into the life of three actors through monologue
+-  ‘어떻게든 시간 끌어서 버틴다’... 포그바, 전략 세우기 위해 반도핑 재판 연기 요청
+-  손흥민과 ‘한일 원투펀치’ 성사되나…토트넘, ‘쿠보 쟁탈전’ 뛰어들었다
+-  '축신' 메시-'테니스 황제' 조코비치 제친 오타니, AP 선정 '올해의 남자 선수' 등극
+-  5in1 퍼퓸 캡슐 세제 런칭 기념, 클라 라이프케어 사전예약 이벤트
+-  한국건강관리협회 인천지부, 구월동 신청사 기공식 진행
+-  2023 서울특별시 체육인의 밤, 오세훈 서울시장 등 체육인들 모여 축제의 장으로 성료
+-  가평군, ‘모두, 함께, 다시’ 슬로건으로 2023년 마을공동체 성과 공유회
+-  양기대 의원, 광명시 수영연맹 간담회서 수영장 건립에 힘모으기로
+-  염태영 경기도 경제부지사 이임 "대한민국 바꾸기 위해 경기도가 앞장서야"
+-  ‘통영해녀해물다찌’ 2023 한국브랜드 소비자평가 대상 1위 수상
