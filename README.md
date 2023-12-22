@@ -1,11 +1,11 @@
 # Latest News
--  Fransız askerleri Nijer'den ayrıldı
--  Ozan Tufanlı Hull City, deplasmanda kayıp!
--  Salernita ile Milan puanları paylaştı!
--  AC Milanille shokkihoitoa Serie A:ssa
--  El índice KSE-100 se desploma casi 1.000 puntos en medio del sentimiento bajista del mercado
--  Hamás y la Autoridad Palestina están divididos ante resolución de la ONU sobre Gaza
--  Aaj Ka Kumbh Tarot Card: कुंभ राशि वाले अनजान लोगों पर जल्दी से भरोसा न करें, नहीं तो मिल सकता है धोखा
--  Cartoon
--  Veja as datas do Mercúrio Retrógrado em 2024
--  Vancouver junior miner questions perks of former CEO
+-  Fátima Herrera (PSOE): «No metan el tema de la amnistía para tapar todas las chapuzas que hacen»
+-  39 ans après sa sortie, "Last Christmas" de Wham! devient (enfin) première chanson de Noël au Royaume-Uni
+-  La oposición se agarra a la subida del IBI en Almería para negarse a apoyar las cuentas del PP de 2024
+-  El Instituto de la Mujer invita a «sumar esfuerzos» para acabar con la violencia de género
+-  DOK JEDNI HVALE, DRUGI NEGODUJU: Hamas i Palestinska samouprava izrazili suprotne stavove o rezoluciji SB UN
+-  Nicki Minaj Reveals If She'd Ever Want to Collaborate With Taylor Swift
+-  عاجل.. أعراض أشد خطورة لمتحور كورونا الجديد JN.1
+-  "الأرصاد" يُحذر من استمرار الأمطار على مناطق المملكة حتى ساعات الفجر
+-  Şehit ateşi Malatya'ya düştü: Baba ocağı Türk Bayrakları ile donatıldı
+-  Nicolo Zaniolo attı, Aston Villa son anda puanı kaptı!
