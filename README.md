@@ -1,11 +1,51 @@
 # Latest News
+-  Kar yağışı kazaları beraberinde getirdi: Kayan araç dereye düştü
+-  Çatıdan akan suyu kesmek isteyen şahıs, düşerek hayatını kaybetti
+-  Konya'da kontrolden çıkan otomobil takla attı: 4 kişi yaralandı
+-  Yeni asgari ücrette sona doğru
+-  Korea seeks to develop 2 blockbuster drugs worth $768 bil. by 2027
+-  Érkezik a Jeti Moziba a Digitális nomádom című dokumentumfilm
+-  Русия може да скъса дипломатическите си отношения със САЩ, ако конфискуват нейни активи
+-  Sot vendoset kampioni i ri i botës për klube, Man City dhe Fluminense në një betejë për miliona euro
+-  Baldur's Gate 3 z pierwszą obniżką ceny. Ruszyła zimowa wyprzedaż Steam
+-  SON DAKİKA: Süper Lig ekibi Samsunspor iki dönem transfer yasağı aldıklarını açıkladı!
+-  Hrgović prije meča i zapjevao: ‘Mislio sam biti blag, ali…’
+-  Fenerbahçe'de beklenmedik Mert Hakan Yandaş kararı! Kayserispor karşılaşması son maçı olabilir,
+-  Anayasa'ya uygun bulundu! CHP'nin başvurusuna ret!
+-  Много дълги уикенди: Ето как ще почиваме през 2024-а година - Труд
+-  Azərbaycanda dollara tələb iki dəfə artdı - Nə baş verir?
+-  LEPE SCENE U MADRIDU, OVO JE MALO KO OČEKIVAO! Navijači Reala GROMOGLASNIM APLAUZOM pozdravili jednog košarkaša Partizana!
+-  HƏMAS bu üç adamı tələb edir: Girov danışıqları dalana dirəndi
+-  Wisconsin university sued for allegedly demoting staff member from diversity position for being ‘White’
+-  Нововъведение във Варна
 -  Česká polícia prijala preventívne opatrenie zamerané na školy, platia v celej republike
+-  Rodinná dráma medzi súrodencami: Brat sa im vyhrážal zabitím
+-  Ruszyła największa zimowa wyprzedaż gier. Jest na czym oszczędzać
+-  Всичко, което трябва да знаем за отпуските – правата и задълженията на работодател и служител
+-  Toksykologia otwarta. Nowy oddział, nowe metody leczenia
+-  우울과 불안의 새로운 원인
+-  Задържаха крадеца на дарения от храма в Брезник, бил добър познайник на полицията
+-  Suspende operaciones el ferry que conectaba El Salvador y Costa Rica por escasa demanda de trayectos
+-  Χρηματιστήριο Αθηνών: Μικρές απώλειες στο Γενικό Δείκτη – Στάση αναμονής στην Ευρώπη και μεγάλα κέρδη για το πετρέλαιο
+-  佩洛西访台后中断年余 中美军官重启对话
+-  Szijjártó korábban tagadta, de most bejelentette: Szegeden épít gyárat a legnagyobb kínai elektromosautó-gyártó
 -  Yılbaşında Dünyayı Türk Çiçekleri Süslüyor
+-  Evakuirana osnovna škola u Drnju, učenici osjetili čudan miris. Stigli policajci, vatrogasci…
+-  Queen Elizabeth wollte nicht auf Schloss Balmoral sterben
+-  惠誉:气候稳定产量增加 明年棕油价料降至RM3012
+-  Carl's Jr., Indonesia akan Tutup, Simak Asal-usul Restoran Burger Ini
+-  Herojstvo i ljubav keruše Gabi
 -  Ministry takes measures to reduce violence in schools
+-  พณ.เข้ม “ปั๊ม” ให้เติมน้ำมันเต็มลิตรดูแลปชช.เดินทางปีใหม่
+-  Ayodhya Ram Mandir: रामलला के प्रकट होने पर एक बड़ी गवाही क्या है? 1 महीने बाद प्राण प्रतिष्ठा
+-  نقل مريض بشكل طارئ إلى مستشفى في بيروت.. ما هو المرض الذي أصيب به؟
+-  Mogłem poczekać z graniem w Starfield
 -  NASS Directs Audit Of Government Properties
+-  Васил Терзиев: Близо 34 млн. лева ще бъдат инвестирани в северните райони на столицата
+-  Hacker de GTA 6 encaminhado para um hospital psiquiátrico
+-  Başakşehir, yarın Trabzonspor'a konuk olacak
 -  Gyásznapot hirdettek Csehországban a prágai egyetemi lövöldözést követően
 -  Qingdao makes great strides in urban renewal
--  Bivša asistentica poznatog glumca optužila za seksualno zlostavljanje: ‘Dirao mi je grudi i ljubio me!‘
--  Россиянам рассказали об опасных елочных украшениях
--  В Ярославле в Новый год не будет общегородского салюта
--  Accordo Governo-Sindacati per il rinnovo del contratto dei salariati AASLP
+-  Bu Araçtan Sağ Çıktılar!
+-  White House urges 'serious scrutiny' of US Steel takeover deal
+-  Preise für Wohnimmobilien fallen noch schneller
