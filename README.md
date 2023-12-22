@@ -1,51 +1,11 @@
 # Latest News
--  Asseco SEE umacnia się w utilities
--  OREiN by AiDot Wins German Design Award for OL005 Bathroom Fan with Bluetooth Speaker
--  Niemal idealna powtórka z przeszłości na GPW. Co wróży?
--  ഒടുവിൽ രതീഷിന് താൻ താരമായ ശേഷം നായക വേഷങ്ങൾ ചെയ്തു തുടങ്ങിയ മമ്മൂട്ടിയും, മോഹൻലാലും സൂപ്പർ താരങ്ങളായി വളരുന്നത് നോക്കി നിൽക്കാനേ കഴിഞ്ഞുള്ളൂ
--  [오늘의 운세] 12월 23일 오늘의 띠별 운세
--  [마흔엔튜닝] 넥스트 크리스마스
--  [솔로지옥3 천국도 체험기①] 제주 드림타워, ♥사랑이 피어나는 스위트룸
--  Round Table 235 und Grammer erfüllen Kinderwünsche
--  Vijay Sethupathi says he was supposed to do `Laal Singh Chaddha`
--  Vita Keto Fuel Gummies Reviews (Buyers In Canada) Toronto | Pure Balance Keto
--  Priyanka Gandhi Meets Sakshi Malik A Day After Her Resignation
--  قوافل المملكة.. شاهد أعداد كبيرة من الشاحنات الإغاثية تستعد لدخول غزة
--  تنبيه عاجل من "الموارد البشرية" بخصوص وظائف الأحوال المدنية
--  العالم في أسبوع.. تحويل الدراسة عن بعد في هذه الحالات ومميزات منصة تأشيرة السعودية
--  Medusa Tattoos Send a Powerful Message
--  Festive flavours in a flash
--  Naval force gathering
--  Naval force gathering
--  Петросян — о тройном акселе: «Я его потеряла за две недели до чемпионата. Это моя вина и ошибка, что не вернула»
--  أمن مطار مراكش يعتقل إندونيسياً حاول تهريب حيوانات زاحفة
--  Prince Albert and Princess Charlene of Monaco play Mr and Mrs Claus at this year’s traditional children’s Christmas party in the principality
--  Шалтерите за издавање готови документи во МРТВ и Беко ќе работат и во сабота
--  Ясните знаци, че той НЕ ви харесва
--  ابراهيم افتتح القرية الميلادية في سيدة النجاة
--  Kickoff | Hunt triggers rivalry with Pirates: 'It Left A Bitter Taste'
--  Kickoff | CLOSE: Chelsea deal for African star 'almost done'
--  The Holiday fans share terrifying theory about Jude Law's character in the Christmas favourite
--  العاصفة «بيا» تضرب 4 دول أوروبية.. هل تصل مصر؟
--  Rejuvenated Ginebra back on track with win vs Meralco as Thompson returns
--  Grève Eurostar: "C'est très bien de choisir des grèves à des moments où ça peut poser problème", estime Philippe Poutou
--  Pápež František vyjadril blízkosť obetiam streľby v Prahe
--  DESIVÉ svedectvo českej herečky: Výčiňanie VRAHA v Prahe videla na vlastné oči!
--  Environmental technicians warn of damage to wetland in Samaná violates agreements
--  These cities and towns are most dangerous in the US, study finds
--  IND vs AUS: Fifties by Jemimah, Richa and Deepti help India take 157-run lead against Australia on Day 2
--  Andre Russell eyes T20 World Cup 2024 spot after impressive return to international cricket
--  Lionel Messille kovan luokan seurakaveri
--  9 أشياء عليك فعلها قبل بيع هاتفك الخاص
--  قرار استثنائي لصالح أرملة الصحفي خاشقجي
--  استهداف قوة إسرائيلية بعبوة مضادة للأفراد
--  DSB genoptager normal køreplan efter storm
--  DSB genoptager normal køreplan efter storm
--  Adiós a un clásico de la televisión: el canal I.Sat dejará de existir
--  VIDÉO - "J'ai froid, j'ai froid" : ils partaient en croisière aux Bahamas, ils débarquent... au Canada
--  Λουτσέσκου: «Ο ΠΑΟΚ είναι η ψυχή μου»
--  ياسين: للتحقيق بصرف تمويل وضعته الدولة بقانون 2016
--  مدينة بروم تسعد للإحتفال باليوم الوطني لحضرموت والذكرى العاشرة للهبة الشعبية الحضرمية
--  NBCUniversal and NFL to Air First-Ever Commercial Free Fourth Quarter During Bills-Chargers “Peacock Holiday Exclusive” on Saturday, December 23
--  Cycle lane plans labelled ‘waste of public money’
--  El ETF de Bitcoin podría obtener aprobación antes del 10 de enero y el mercado se entusiasma
+-  Perú rechaza haber desacatado sentencia de Corte IDH sobre excarcelación de expresidente Fujimori
+-  Las últimas tropas francesas abandonan Níger tras el fin oficial de la cooperación militar
+-  MRCB invertirá 270 millones de RM en el proyecto PJ Sentral y se desprenderá de activos no estratégicos
+-  Rechaza China asentamientos de Israel en territorios ocupados
+-  Postecoglou unimpressed by Euro Super League planners
+-  'Project 10,000' is helping: Cele pleased with Western Cape police visibility
+-  No injuries reported as Simon's Town fires, fanned by winds, rage on
+-  'We can do better': Sindisiwe Chikunga to all festive season road users
+-  Manhunt underway after mother-daughter duo injured in Durban drive-by shooting
+-  هروي.. المفاجأة الكبرى
