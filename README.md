@@ -1,51 +1,11 @@
 # Latest News
--  KIA 25세 150km 파이어볼러의 시간차 호주 유학…4G ERA 제로, 1군 비밀병기 기대해
--  Pierwsze dni nowego wojewody: Granica, zdjęty krzyż i dyrektorskie wakaty
--  Son dakika... Cumhurbaşkanı Erdoğan: Sermaye piyasalarını manipüle etmeye çalışan tamahkarlara meydanı boş bırakamayız
--  وقف رحلات السفن عبر البحر الأحمر.. أسعار الشحن البحري تقفز 226%
--  وضع كارثي.. متحدث مركز "الملك سلمان للإغاثة": غزة تحتاج 800 شاحنة يوميًا (فيديو)
--  عاجل.. تنبيه مهم من "المرور" لتجنب غرامة 2000 ريال
--  3 ريالات زيادة في أسعار الذهب اليوم الجمعة .. وعيار 24 يسجل 248 ريالًا
--  Emmerdale SPOILER: Kidnapped Mackenzie leaves ex Chloe torn as he begs her to save his life in dramatic scenes
--  Massive Roblox game Anime Adventures just got shut down in alleged DMCA hit
--  مہنگائی میں کمی کا تسلسل سست روی کے ساتھ برقرار
--  Money experts reveal five tips and tricks for cutting costs on Christmas shopping this year
--  Emlak Konut GYO'nun İzmir'deki arsalarının 2023 değeri yaklaşık 90 milyon TL!
--  Dermatologist reveals how to get clear, blemish-free skin just by changing the way you WASH your face
--  Strzelanie z łuku jest dla mnie jak medytacja
--  ضبط 34 مخالفة تموينية في الحديدة
--  Земјотрес од 4,7 степени според Рихтер ја погоди Русија
--  FG’ll pull 50 million out of poverty in 42 months
--  West Ham United vs Manchester United prediction, odds and betting tips
--  Life | Princess Anne reveals the royal family persuaded Queen Elizabeth to spend her final days in Scotland
--  Kucherov maintient la cadence, inquiétude pour Carlsson
--  Cole Caufield n'aime pas du tout notre poutine
--  Ovechkin sort de sa coquille de belle façon
--  Les Sabres servent un correction de 9 buts aux Leafs
--  Justin Barron lance des fleurs à Stéphane Robidas
--  « J'essaie d'en profiter le plus que je peux » - Fleury
--  Le Real se hisse en tête devant Gérone avant la trêve
--  Makhmudov veut utiliser Kabayel comme un tremplin
--  Presque tous les entraîneurs de retour dans le nid
--  Canadiens : le CH obtient un point au Minnesota; but gagnant de Kaprizov en prolongation | RDS
--  Reprimanded for wearing black armband made no sense to me: Usman Khawaja
--  LNH : Nathan MacKinnon a marqué son 300e but en carrière; 1er match de 4 buts | RDS
--  رسميًا.. ليفربول يرفض المشاركة في دوري السوبر الأوروبي
--  Musician Paul Mooney remembered as “a brilliant beam of sunshine”
--  La Casa de Don Fernando se acicala para recibir a Papá Noel el domingo
--  КЗК глоби производител на протеинови барчета за нелоялна конкуренция
--  A brief coffee time review of 2023, before the return of real politics in 2024?
--  স্বতন্ত্র প্রার্থীর নির্বাচনী ক্যাম্প ভাঙচুর ও কর্মীদের মারধরের অভিযোগ
--  Posthaste: One of the last bastions of affordable housing in Canada is losing its edge
--  Libra 23 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Фармацевтичната Bristol купува производител на лекарство срещу шизофрения за 14 млрд. долара
--  צפו בבכר עוזב את בלגרד לצד קטורזה. המאמן החדש: כל השחקנים רצו שאגיע
--  Luis Suarez nuk heq dorë nga futbolli, do të luajë sërish me Messin
--  Female music teacher at £37,000-a-year boarding school romped with pupil in her car before telling them: 'You could get me in a lot of trouble'
--  Police launch investigation into disappearance of Alex Batty six years after he went missing
--  Debat Cawapes 2024, Cak Imin Mau Slepet 100 Orang Terkaya Indonesia Gara-Gara Ini
--  Manchester United challenge five players to help Rasmus Hojlund
--  پی ٹی آئی کی شکایات پر الیکشن کمیشن نے ہدایات جاری کردیں
--  Bajrang Punia to return Padma Shri award to PM Narendra Modi
--  SudTirol-Reggiana, i convocati di Nesta: si allunga la lista degli assenti. È fermo anche Rozzio
--  Arsenal legend Martin Keown reveals rating for Mikel Arteta’s first four years at Arsenal
+-  مستوى تاريخي.. لماذا قفزت أسعار الذهب في مصر إلى 3030 جنيها للجرام؟
+-  5 طرق مجانية لمشاهدة مباراة الأهلي وأوراوا في كأس العالم للأندية
+-  E-factura, nu e-factura | 4 misiuni pentru antreprenori
+-  Max Verstappen perustaa oman tiimin
+-  Ер юзини тўлдираётган пластик – хавфли чиқиндиларни энг кўп чиқараётган давлатлар (2-қисм).
+-  4 ойга ёпилган «Туркистон» ва «Юнусобод» метро бекатлари қачондан очилиши аниқ эмас.
+-  Москвада поезд остига йиқилиб тушган йигит омон қолди .
+-  Яман ҳусийчилари кимлар ва улар нега савдо кемаларига ҳужум қилмоқда?.
+-  1.2 juta pengguna domestik bakal hadapi kenaikan bil elektrik bulanan tahun depan
+-  Mendoza: Los sueños se cumplen si trabajas por ellos
