@@ -1,51 +1,51 @@
 # Latest News
--  Oho, todella erikoinen maali NHL:ssä - suomalaishyökkääjä oli itsekin ymmällään: ”Outo pomppu”
--  Mikko Rantanen oli tulikuuma - tutkapari teki vielä jotain hämmästyttävämpää: ”Melkoinen saavutus”
--  김천예다회, 다향(茶香)으로 겨울을 녹이다
--  '타임빌라스 수성' 착공, 신속건립 합의 9개월 만의 결실
--  Phantomtor bei Partie in Straubing: Puck rutscht unter Tor
--  Ohne Vier: Die Baustellen des 1. FC Köln
--  Sturmtief „Zoltan“ unterwegs: So war die Lage in der Nacht von Donnerstag zu Freitag im Landkreis Zwickau
--  Schlechtes Internet? Preisminderung nur wenig genutzt
--  Diebe auf Baustelle in Hohenstein-Ernstthal: Neben Werkzeug wird auch eine Gastherme entwendet
--  Bauministerin rechnet 2024 mit 265.000 neuen Wohnungen
--  Sturmtief „Zoltan“ hält Vogtland seit Donnerstagnacht in Griff
--  Zahl der Kirchenaustritte weiter hoch
--  Diez lugares para conocer y pasear a precios rebajados por fiestas de fin de año
--  Świąteczny repertuar kin i teatrów w weekend w Lublinie i regionie [22-26.12]
--  عام انتخابات: کاغذات نامزدگی جمع کرانے کی تاریخ میں توسیع
--  Partiler sonuçları anlık takip edebilecek
--  Devisen: Euro notiert bei 1,10 US-Dollar
--  Ile kosztują święta [PODCAST]
--  ריאל מדריד שוב הוכיחה אופי הירואי, אנצ'לוטי: "יש לנו אנרגיה סודית"
--  수도권 아파트 매매가 상승지역 ‘전무’
--  '경성크리처' 스페셜 로맨스 포스터 공개!
--  Australians owed millions in unclaimed cash: How to check if you're eligible
--  Историю падения Римской империи переписали новые раскопки
--  Česká republika vyhlásila na 23. december štátny smútok: Uctia si pamiatku obetí streľby
--  Dánsko a USA podpísali spoločnú dohodu o obrannej spolupráci
--  맨유에서 망했는데 분데스 강팀들이 원한다…걸림돌은 완전이적 조항
--  “건강하게 돌아와, 기다릴게!”... 레알 선수들, 십자인대 부상당한 알라바를 위한 유니폼 착용
--  Streľba na univerzite v Prahe: Biden, Macron a Guterres kondolovali Česku
--  '몇 주 안에 답 없으면 끝' 토트넘, 리그앙 최소 실점 DF 영입 어려우면 다른 선수로 눈 돌린다
--  Inédits de Fragonard: "Une trentaine d’œuvres peuvent réapparaître"
--  В Пензе нашли водителя фуры, сбившего пешехода
--  Sturmtief wirbelt im Norden Deutschlands
--  Special Food Talk Series “พลิกโฉมผลิตภัณฑ์อาหารด้วยค่าดัชนีน้ำตาล”
--  Russia to Deliver 20 Tons of Humanitarian Aid to Gaza
--  경복궁 담장 '최초 낙서' 10대 구속심사…묵묵부답
--  18-year-old Lapsus$ hacker behind GTA 6 leak using a Amazon Fire Stick faces ‘Secure Hospital’ indefinite stay
--  Nikad blaža zima: Danas i sutra iznadprosječno toplo, od Božića stiže ipak nestabilnije vrijeme
--  Hatay'da 5 katlı okula iş makinesi dokundu, yerle bir oldu
--  Friss felmérés: ezekkel a mesterdiplomákkal lehet a legjobban keresni
--  La constante Kaprekar o el número de Lotería de Navidad que solo se vende en Córdoba
--  OVO SU VREDNOSTI PO KOJIM MENJAČNICE PRODAJU VALUTE: Narodna banka Srbije objavila današnji kurs evra
--  “10대에게 몹쓸 짓”…성매매·티켓 구매 강요한 디스코팡팡 직원들 실형
--  임윤찬 콩쿠르 실황 ‘초절기교 연습곡’, NYT 올해의 클래식 음반
--  더불어민주당 임종성 의원"광주시 국도3호선 초월 쌍동JC 상습정체 해소 빨라진다"
--  국민의힘 안병길 의원"부산 서·동구 2024년 국비 1,275억원 투입 확정"
--  국회 본회의"2024년도 예산안 및 세입부수법안 처리"
--  더불어민주당 김한규 의원"스마트공동물류센터 조성·장애인거주시설 확충 등 제주시 국비 예산 46.6억원 확보"
--  국민의힘 윤재옥 당 대표 권한대행"국민의힘 비대위원장으로 한동훈 법무부 장관 추천하기로 했다"
--  대한민국 국회" '새로운 희망 만드는 민생·소통·혁신 국회' 위한 2024년도 국회 예산 확정"
--  KGC인삼공사, 이웃돕기 성금 마련 ‘2023 동인비 바자회’ 개최
+-  [신메뉴] 배스킨라빈스·이연에프엔씨·맥도날드 외
+-  Beşiktaş'ın yenilgisi sonrası spor yazarlarından olay yaratacak sözler! "Bu böyle gitmez, çekilecek kahır değil"
+-  Turbolentno na Wall Street-u: Oporavak indeksa na krilima tehnološkog sektora
+-  Oudere bewoonster Nieuw-Lekkerland trapt niet in babbeltruc en gooit deur dicht in gezicht dader
+-  HP Assembly Winter Session: बेरोजगारी के मुद्दे पर सदन में हंगामा, नारेबाजी कर विपक्ष ने किया वाकआउट
+-  임플란트 재수술, 원인 파악 위한 정확한 검진 우선돼야
+-  Novi broj Dubrovačkog vjesnika
+-  “Sədərək Yusif”in arvadı və oğlu məhkəməyə məcbur gətiriləcək
+-  Ανακοινώθηκε η τιμή της motocross KOVE MX 250
+-  Argentina To Accept Contracts In Bitcoin, Says New Minister
+-  Bitcoin’s Profit Supply Ratio Flashes Signs of Caution, Altcoins Provide Opportunity
+-  عاجل.. سيول ورياح متربة على مكة والمدينة وهذه المناطق
+-  Las fugas del PRI que tambalearon la administración de Alito Moreno
+-  Uno más, uno menos...
+-  Noël : les cadeaux, on les ouvre le 24 au soir ou le 25 au matin ?
+-  NBA AS GUBI 126 MILIONA DOLARA ZBOG DEBLJINE? Posebna klauzula u ugovoru može SKUPO da ga košta!
+-  لتحسين تجربة المريض.. تبوك الصحي يطلق مبادرة "أنا معك"
+-  ZBOG PROSIDBE SU MOGLI DA BUDU UHAPŠENI Ovako je Basti zatražio ruku Ane Ivanović, ZAKUPIO ČITAV PARK U LONDONU
+-  Demi Lovatos Verlobungsring kostete fast 850.000 Euro!
+-  Bakalar možda ne pliva u našem Jadranu, ali zato Hrvatskom trčkara skoro četiri milijuna ovaca
+-  Хапун на «Гродножилстрое»: рабочих скрутили прямо на работе
+-  La maison mère de Pornhub paye 1,8 million de dollars pour stopper des poursuites pour trafic sexuel
+-  Passengers to get 25% rebate for cancelled flights – NCAA
+-  There's nothing better than two desperate teams playing each other
+-  EQT-fond blir majoritetsägare i indiskt mjukvarubolag
+-  Dowalda oo sheegtay in guud ahaan Alshabaab ay soo afjarayan ka hor bisha Febraayo
+-  Kanpur: ट्रक में आलू के बोरों में छिपाकर रखी थी शराब, पुलिस ने 80 लाख की 765 पेटी पकड़ी, चालक गिरफ्तार
+-  Samohrana majka troje djece izaziva Putina: ‘Sad još samo da prikupim tih 300 tisuća potpisa za kandidaturu!‘
+-  Αντώνης Ρέμος: Πλήθος επωνύμων στην παρουσίαση του δίσκου του
+-  UP: 'हमारे सिर पर आजम खां का हाथ है...', दुबई में नौकरी लगवा देंगे, बुटीक संचालक को झांसा देकर ठगा
+-  Gunman kills 14 in unprecedented attack at Prague university
+-  Un tribunal reaviva la demanda por pornografía infantil contra Nirvana por la portada de 'Nevermind'
+-  Panettone, choux... Ces pâtisseries qui font de la concurrence à la bûche de Noël
+-  Iconic band facing fresh legal action over naked baby album cover
+-  Bybit Secures Top Rankings in Institutional Crypto Futures
+-  Тренер «Вашингтона» отреагировал на окончание безголевой серии Овечкина
+-  Китайский генерал призвал США к осторожности в словах и поступках
+-  Super-League-Agentur baut auf große Unterstützung
+-  Sturmtief Zoltan in Deutschland sorgt für Bahn-Chaos vor Weihnachten
+-  Burgemeester bij kerstlunch Zonnebloem Culemborg
+-  讀《菜根譚》聞惡不即就 聞善不急親 | 國學經典
+-  정읍시, 내년 정읍사랑상품권 600억원 발행
+-  '제복 영웅' 유가족 만난 尹 "여러분을 잊지 않는 국가가 늘 있다" [종합]
+-  "JE L' TO I ONA PRETERALA S INTERVENCIJAMA?!" Vesna Pisarović neprepoznatljiva - nestala sa scene, a ovako SADA IZGLEDA!
+-  Yonhap: В Южной Корее автобус въехал в толпу людей, есть погибший
+-  Los Anđeles Lejkersi u slobodnom padu! Minesota slavila i nanela peti poraz Lejkersima u poslednjih šest utakmica /VIDEO/
+-  Luke-ing the Beast in the Eye: The advent of the impatient generation (Republished)
+-  पिंजड़े में बिता दी पूरी जिंदगी, कंकाल बन गया शरीर!
+-  Partial export suspension after abattoir cruelty claims
+-  ByLockçu imam yakalandı
