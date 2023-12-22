@@ -1,11 +1,11 @@
 # Latest News
--  이기면 최소 2위→EPL 우승싸움 최대 변수, 안방 깡패 '이 팀'을 주목하라!
--  Arizona officials charged over election results certification delay plead not guilty
--  A Spinaceto l'istituto comprensivo intitolato a David Sassoli
--  Қашқадарёда ҳайдовчи Damas машинасининг томига одам миндириб ҳаракатланди.
--  Таътилга отланаётган талабалар учун қўшимча автобус йўналишлари ташкил этилди .
--  Ғазода очарчилик кўланкаси, «хуфёна флоти» тўхтаб қолган Россия, Прагадаги қонли отишма — кун дайжести.
--  Guerre en Ukraine : les Etats-Unis sur le point de lancer une arme économique redoutable contre l'effort de guerre russe
--  Frische Brötchen an Weihnachten in NRW: Wann Bäcker öffnen – und wo Ausnahmen gelten
--  Les Lakers et les Pacers en grosse galère depuis le In-Season Tournament
--  LeddarTech, Prospector Capital Corp.와 기업 결합 완료 후 상장 기업이 되었으며 티커 심볼 'LDTC'로 나스닥에서 거래가 시작될 예정입니다
+-  Conozca cuántos panameños están inscritos en partidos políticos
+-  Censo 2022: Saiba qual é a cidade com mais pessoas autodeclaradas pretas
+-  INTERPOL: Oduzeto 300 miliona dolara i uhapšeno 3.500 osumnjičenih u međunarodnoj operaciji finansijskog kriminala
+-  Weihnachtsfoto der Oranjes: Mit Hund und Wintermantel
+-  The Witcher, il doppiatore di Geralt esprime la propria frustrazione per l'uso delle IA
+-  Shoppers to spend $1.25b on Boxing Day alone
+-  Bakan Şimşek: Borsa bir oyun alanı değildir
+-  José Cachin démissionne de la présidence de l’Île de loisirs de Saint-Quentin-en-Yvelines
+-  Love Island star Molly Marsh reveals huge career change five months after leaving show
+-  Noël : la volaille de Bresse, star du menu du Réveillon
