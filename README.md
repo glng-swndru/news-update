@@ -1,11 +1,51 @@
 # Latest News
+-  تنبيه عاجل من حساب المواطن بخصوص تعطل التطبيق والقيام بهذا الإجراء
+-  بريطانيا: اختطاف سفينة تجارية قرب سواحل الصومال
+-  [오늘날씨] 오후부터 기온 올라… 제주·전라서해안은 눈
+-  포스코 포항제철소 불… 공장 대다수 가동 중단
+-  “우리집이 붕세권“ 집으로 들어온 길거리 간식
+-  포스코 포항제철소 2고로 불… 일부 공장 가동 중단
+-  Ολυμμπιακός: Η Σαν Λορέντζο έκανε κίνηση για τον Παλαβεσίνο αλλά εκείνος περιμένει πρόταση από τους Ερυθρόλευκους! (vid)
+-  What’s Coming Next from Hyundai & Kia?
+-  ΑΕΚ: Εκτός με Ατρόμητο ο Μάνταλος
 -  OpenAI está en conversaciones para recaudar US$100.000 millones en nuevos fondos
+-  유엔 안보리, 가자지구 인도지원 확대 결의안 채택…미국·러시아 기권
 -  Carlton Street assault suspect on probation for threatening off-duty police officer
+-  Paulo Alves vai treinar o Lugo da terceira divisão espanhola
+-  Un acertante del sorteo de Euromillones se lleva un bote de 55,6 millones en Portugal
 -  Video: Enfrentan regidores a Óscar Murillo por casa de cambio de El Chamizal
 -  Video: Reanudan operaciones en cruce ferroviario en Juárez
 -  Pide SAT a contribuyentes denunciar a vendedores de facturas ilegales
+-  Rewind Hispano 2023 | Las grandes ausencias del vídeo del año: Ibai, Luzu, Willyrex, AriGameplays...
 -  Manchester City beat Fluminense 4-0 to win Club World Cup
+-  América es el favorito para ser bicampeón en el Clausura 2024
+-  Inauguración del Tren Interoceánico: ¿Quiénes gozarán del descuento VITALICIO y de cuánto será?
 -  'Delulu', el mantra de la Generación Z para ser feliz
+-  Autoridades islandesas sem certezas sobre se erupção vulcânica já acabou
 -  DEDA MRAZ PAO U SMRT! Jeziva nesreća:Pokušao da se spusti, pa stadao:Sve gledali njegova žena i deca, OKUPLJENI MISLILI DA JE ŠALA
+-  Russia slipping into 'totalitarianism': exiled writer Akunin
 -  Più Newcastle che Juve per Phillips
 -  Nicki Minaj Ranked Her Albums, & She Knows Her Barbz Won't All Agree With Her Decisions
+-  عام التحديات.. 6 إنجازات جديدة تنتظر محمد صلاح في 2024
+-  بصمة جوارديولا وأسرع هدف.. 6 مشاهد تزين تتويج مانشستر سيتي بمونديال الأندية
+-  SEOM تصدر بيانا أوليا بعد حول الانتخابات العامة في جمهورية الكونغو الديمقراطية
+-  Loi immigration: François Braun estime que l'Aide médicale d'État est "essentielle" pour la santé publique
+-  ‘Mission accomplished’: After nearly 40 years, Wham! song finally reaches Christmas number one
+-  ‘Mission accomplished’: After nearly 40 years, Wham! song finally reaches Christmas number one
+-  بعثة مراقبة الانتخابات في الكونغو "عمليات التصويت سارت بشكل جيد نسبيا"
+-  ‘Mission accomplished’: After nearly 40 years, Wham! song finally reaches Christmas number one
+-  الكونغو الدبمقراطى تنتخب رئيسها..هل ينجو الاستحقاق الدستورى من الحرب؟
+-  Danas vetrovito sa kišom, na planinama sneg
+-  فرنسا خارج النيجر..نهاية مكافحة الإرهاب الغربي في منطقة الساحل
+-  Klassiska bakverk i hemlig vinter­trädgård
+-  Turisterna flockas till pasta­krogarna
+-  Pioli deluso: "Sono amareggiato e preoccupato. Serve ritrovare entusiasmo ed energie"
+-  Pep Guardiola rompe récord en el Mundial de Clubes tras título del Manchester City
+-  Netflix’s Rebel Moon, the Hunger Games prequel, and every new movie to watch at home this weekend
+-  ONU aprueba ayuda humanitaria para Gaza: ¿Pero por qué EU no votó a favor?
+-  VÍDEO: Grealish sai com «seguranças» do estádio por causa de Felipe Melo
+-  Mauricio Pochettino confirms Enzo Fernandez will miss Wolves vs Chelsea on Christmas Eve
+-  Tiago Margarido: «Resultado bastante dilatado para o que foi o jogo»
+-  Biden proposes climate stipulations for hydrogen tax credit
+-  Van Barneveld siegt bei WM: Darts-Duell mit Littler in Sicht
+-  Espinoza por críticas de oposición a Barrios: “Callan cuando de sus partidos han estado involucrados en irregularidades”
