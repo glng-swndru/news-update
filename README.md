@@ -1,51 +1,51 @@
 # Latest News
--  Hollanda'da yaklaşık 1,6 ton kokain ele geçirildi
--  Bakan Koca'dan Sırrı Süreyya Önder'in sağlık durumuna ilişkin açıklama
--  Kayseri'de iki otomobil çarpıştı: 5 yaralı
--  VakıfBank deplasmanda galip geldi!
--  "من الحب ما قتل".. عرض زواج تحول إلى جريمة لهذا السبب
--  هجمات الحوثيين..اسبانيا لم تحسم قرارها بعد بالمشاركة في تحالف عسكري في البحر الأحمر
--  Israëlisch-Nederlandse luitenant Jonathan (22) verloor been in Gaza: ‘Ik heb gestreden voor mijn huis’
--  ‘Mijn verjaardag kon ik lekker in m’n eentje vieren’
--  Əməliyyat olundu: 3-4 ay olmayacaq
--  Viktor Orbán ei ole ainoa häirikkö – Velkakurivääntö kertoo karua kieltä siitä, missä jamassa EU on
--  HomeKit Weekly: Yeelight Cube Smart Lamp Panel sets the perfect ambiance for any mood
--  Tone Your Thighs & Butt With This Resistance Band Set That’s on Sale for Just $15
--  Our reviewers’ verdicts of the films to see this summer
--  Our reviewers’ verdicts of the films to see this summer
--  Mirzapur News: अमृत सरोवर बने एक साल बीता, न हरियाली दिखी न सुविधा
--  Mirzapur News: नामांकन वापसी के बाद अध्यक्ष, उपाध्यक्ष व महामंत्री पद पर मतदान तय
--  Sitapur News: एफसीआई धर्मकांटे पर होती है घटतौली, नहीं मिला निदान
--  Mirzapur News: टूटे चैंबर हो रहे जानलेवा, बढ़ी खतरे की आशंका
--  Sitapur News: सौ मीटर दौड़ में मो. जैद व साबिया सबसे आगे
--  Mirzapur News: सांसदों के निलंबन का विरोध, विपक्षी दलोें ने दो घंटे तक किया प्रदर्शन
--  Sitapur News: 30 मोहल्लों में पांच घंटे गुल रही बिजली
--  Sitapur News: जमीन विवाद सुलझाने पहुंची पुलिस टीम पर हमला, दो पुलिसकर्मी घायल
--  Sitapur News: सड़क हादसों में तीन लोग जख्मी
--  जनता तक पहुंच रही सरकारी की योजनाएं: यदुवंश
--  Sitapur News: 181 शिक्षकों को जल्द मिलेंगे नियुक्ति पत्र
--  Jalaun News: छपरा मेल निरस्त, 10 कई ट्रेनें देरी से पहुंची
--  Bijnor News: बिजनौर पहुंची यूपी जोड़ो यात्रा, जोरदार स्वागत हुआ
--  Sitapur News: नाव से पहुंची आबकारी टीम, 145 लीटर शराब बरामद
--  Balrampur News: बेटियां छुएं मंजिल, पुलिस हर कदम उनके साथ
--  Jalaun News: हैंडओवर से पहले ही सड़कें खराब, बुझ गईं लाइटें
--  Sitapur News: 11 करोड़ से बनी सड़क में खामियां, नहीं बनवाया फुटपाथ
--  Balrampur News: मनरेगा में गड़बड़ी पर लगाम कसेगी सोशल आडिट टीम
--  Ambedkar Nagar News: 30 प्रधानाध्यापकों को निलंबन का नोटिस
--  Jalaun News: संदिग्ध हालात में एक ही गांव के दो युवकों की मौत
--  Balrampur News: विसंगतियों दूर करने को सौंपा ज्ञापन
--  Ambedkar Nagar News: खाद्य टीम ने लिए छह नमूने, साफ सफाई का दिया निर्देश
--  Jalaun News: गैरहाजिर रेल पथ निरीक्षक को कारण बताओ नोटिस
--  Balrampur News: रामकथा सुनने से दूर होता है जीवन का हर संकट
--  Etawah News: बच्ची से दुष्कर्म में एक को उम्रकैद, 76 दिन में आया फैसला
--  Ambedkar Nagar News: बिना रजिस्ट्रेशन ई-रिक्शा बेचने वाले 41 डीलरों को नोटिस
--  Jalaun News: कार की टक्कर से बाइक सवार की मौत, दो गंभीर
--  Shamli News: पुलिस ने पिटबुल के मालिक और उसके पुत्र को किया गिरफ्तार
--  Etawah News: फैंसी ड्रेस में जाश्वी, आव्या तेजस को मिला प्रथम स्थान
--  Ambedkar Nagar News: 14 से समाप्त होगा ट्रेनों का रूट डायवर्जन
--  Jalaun News: एडीओ पंचायत से स्पष्टीकरण, पंचायत सहायकों को नोटिस
--  Shamli News: 142 सांसद निष्कासित किए जाने के विरोध में सपा कार्यकर्ता कलक्ट्रेट पहुंचे
--  Etawah News: नौकरी के नाम पर ठगी करने में तीन गिरफ्तार
--  Ambedkar Nagar News: महिला ने फांसी लगाकर दी जान
--  Jalaun News: कार की टक्कर से वृद्ध की मौत
--  Shamli News: पूर्व प्रधानमंत्री चौधरी चरण सिंह का जिले से रहा गहरा नाता
+-  Лавров: Западът не успя да изключи Русия от ЮНЕСКО
+-  الإعلان عن تغيير في القيادات العسكرية (أسماء)
+-  Кметът на Ямбол се срещна с младите надежди на ямболския баскетбол
+-  MSB acı haberi duyurdu: 3 asker şehit oldu
+-  Füzulidə nəhəng stadion tikiləcək
+-  Саакашвили: США и ряд стран Европы готовятся к прямому вступлению в войну на территории Украины
+-  Congreso de Brasil aprueba proyecto de presupuesto para 2024
+-  Informe de resultados: AAR Corp registra un fuerte crecimiento y adquiere Triumph Support
+-  Informe de resultados: Apogee Enterprises presume de sólidos resultados en el tercer trimestre de 2024
+-  Informe de resultados: Mission Produce navega por los cambios del mercado en el cuarto trimestre de 2023
+-  Informe de resultados: BlackBerry esboza un plan de separación y apunta a un flujo de caja positivo
+-  Dorinel Munteanu nu știe dacă va continua la Oțelul, după eșecul cu ultima clasată – 10 jucători părăsesc echipa
+-  Kızıldeniz'de Husi saldırıları: Gemiler rotayı değiştirdi
+-  ఆర్టీసీ డ్రైవర్‌కు జైలు, జరిమానా
+-  Fall of Prosperity Indicator ‘Unprecedented Outside a Recession,’ Says National Bank
+-  لبنان: ملتزمون بالقرارات الدولية بشرط انسحاب إسرائيل من أراضينا
+-  В Украине назвали страхи лидеров Кремля
+-  Παρατείνεται η σύμβαση ΟΑΣΑ- ΚΤΕΛ για δρομολόγια στην Αττική: «Πράσινο» από το Ελεγκτικό Συνέδριο
+-  MAJA NIKOLIĆ BEZ DLAKE NA JEZIKU O EVROVIZIJI I KOLEGAMA: Neka ode neko ko zna da peva, svako bira način da dođe do cilja
+-  KOEN DAO ČVRSTO OBEĆANjE: Izrael nastavlja sa borbama do oslobađanja svih talaca
+-  Ibrahimovic è a Salerno! Prima trasferta per il nuovo dirigente rossonero
+-  أستون فيلا بالقوة الضاربة في مواجهة شيفيلد يونايتد بالدوري الإنجليزي
+-  जहां से हमास आतंकियों को मिलता था कमांड, इजरायल ने तबाह किया पूरा आतंकी शहर
+-  ఆంధ్రుల భవిష్యత్తు కోసమే టీడీపీ- జనసేన పొత్తు
+-  Vijeće sigurnosti UN-a usvojilo rezoluciju o hitnoj humanitarnoj pomoći Gazi
+-  명색이 레알 마드리드 주장인데… 리그 선발 5경기 중 2경기에서 다이렉트 퇴장
+-  أنور قرقاش: الإمارات حققت اختراقاً تاريخياً باعتماد مجلس الأمن قراراً يعزز الوضع الإنساني في غزة
+-  జీలుగుమిల్లి ఎన్‌హెచ్‌ 365 విస్తరణ
+-  Новый министр внутренних дел Польши планирует укреплять забор на границе с Беларусью
+-  Fayetteville Police Department searching for missing teen
+-  Ruski automobil budućnosti – masovna proizvodnja bi počela 2025. godine
+-  Acusan a empresa aérea Sistem de bloquear cambio de sindicato
+-  Ekspert alarmuje: Polsko, przygotuj się na ponowne uderzenie Putina i Łukaszenki
+-  MSB acı haberi duyurdu: 3 askerimiz şehit oldu
+-  Kartoffelsalat mit Würstchen erneut teurer als im Vorjahr
+-  Mladić u Zagrebu ubio oca koji mu je godinama tukao majku. Osuđen na 2 godine i 8 mjeseci zatvora
+-  Cristina Pacheco rompió con los estereotipos: Laura Emilia Pacheco
+-  Acı haber: 3 asker şehit oldu!
+-  Toronto Officer Acquitted in 2017 Assault Facing New Charge
+-  Ministri i Drejtësisë mirëpret në Tiranë ambasadorin e BE, zbardhen detaje nga takimi
+-  Tráiler saca del camino a paisanos y se da a la fuga, en la carretera a Monclova
+-  ON NE NAJOMRAŽENIJI DIREKTOR U OVOM TRENU &quot;Radnici moraju da rade duže sati, posao i život su jedno&quot;
+-  గిరి ప్రదక్షిణకు తరలిన..సప్త గిరివాసుడు
+-  Coup de filet antiterroriste : cinq personnes interpellées ce vendredi à la veille du week-end de Noël
+-  ఎంపీ అభ్యర్థులు కావలెను
+-  انطلاق الشوط الثاني من مباراة مانشستر سيتي ضد فلومينينسي
+-  కేంద్ర మాజీ మంత్రి వెంకటస్వామికి ఘన నివాళి
+-  Söder und Wagenknecht legen in neuer Umfrage deutlich zu – Ampel schmiert ab
+-  Söder und Wagenknecht legen in neuer Umfrage deutlich zu – Ampel schmiert ab
+-  ‘It’s so cosy’ in my VW Golf after I transformed it into a campervan using items anyone can buy at The Range
