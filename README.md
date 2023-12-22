@@ -1,11 +1,51 @@
 # Latest News
--  Salaar: Part 1 – Ceasefire movie review: Oh, please, cease (fire)!
--  `Dunki` movie review: Done!
--  UN Security Council acts to boost aid to Gaza after US abstains
--  Buy Samsung Foldable at $300 Off, Get $50 Gift Card for Free
--  Claims Confirmed: Seven Companies Meet SEC On Same Day For Bitcoin Spot ETF
--  Winnipeg Police to provide update on Watt Street, Talbot Avenue stabbing
--  L'invité de Bonsoir la Côte d'Azur: Théo Pourchaire, champion de F2
--  LES ÉCLAIREURS - Gérard Depardieu: polémiques en série
--  Czy rok 2024 będzie kontynuacją hossy na GPW?
--  Komentarz po sesji: Świąteczne wyciszenie
+-  El veterano Cristian Zapata ficha por el Vitória de Brasil
+-  يصيب 1% من المواطنين.. هذه سبل الوقابة من الروماتيزم
+-  احذر.. إطعام قرود البابون يعرضك لغرامة 500 ريال
+-  Świąteczne śpiewanie
+-  لا يُصدق.. شاهد السيول تُغطي مساحات واسعة شرق ينبع الصناعية
+-  Toplitz Productions Joins Steam Winter Sale
+-  بتعليمات ملكية.. المغرب يقوي الشراكة مع أندونيسيا أحد عمالة اقتصادات آسيا
+-  Bund zieht überwiegend positives Fazit zu Corona-Härtefallhilfen
+-  BMGK Gazze'ye yardım tasarısını kabul etti
+-  Lionsgate crea un gigante degli studios da 4,6 miliardi
+-  کیا ملا فضل اللہ کی بیٹی کو بھی احتجاج کرنا چاہیے، بلوچ مزاحمت کاروں کو رعایت نہیں دے سکتے، جان اچکزئی
+-  Car crashes into side of a house and is still lodged two days later
+-  Researchers use VLT exoplanet hunter to study Jupiter's winds
+-  Diálisis y Farmacia ganan el concurso de Navidad en Cuenca
+-  J&K's Kishtwar emerges as key habitat for endangered Snow Leopards in India [details]
+-  GOG Unleashes Next Phase of Winter Sale With Massive Savings
+-  إيهود أولمرت: لن يكون هناك تدمير "لحماس" ويجب التخلص من "نتنياهو"
+-  "A vonaton még nem volt semmi baj": melyik könyv első mondata?
+-  بالفيديو – الأمطار الغزيرة تتسبب في طوفان طريق خلدة وتعرقل حركة السير
+-  TFI International announces deal to acquire Daseke for $8.30 per share
+-  Un Gordo tardío y una lluvia de quintos premios dejan casi 20 millones en Aragón
+-  Weltsicherheitsrat: mehr humanitäre Hilfe für Gazastreifen
+-  BiH bez robnih rezervi lijekova i medicinskih sredstava
+-  Ignacio Rivera, de Estrella Galicia, presidirá el Instituto de la Empresa Familiar
+-  ΟΛΘ: 4 σχήματα υπέβαλαν αρχικό ενδιαφέρον στο διαγωνισμό για την επέκταση του Προβλήτα 6
+-  Turkki käsittelee Ruotsin Nato-hakemusta tapaninpäivänä
+-  Eklat in Italien: „Jesus“ einfach gestrichen - Schule ändert Liedtext und singt vom Kuckuck
+-  Así han celebrado el premio en Alhama de Aragón: “Es una alegría muy grande”
+-  Aktien Osteuropa Schluss: Wenig Bewegung kurz vor Weihnachten
+-  Robots vs. humans: Which do children trust more when learning new information?
+-  Los Angeles Rams sensation can rival CJ Stroud for Offensive Rookie of the Year
+-  I cosmopòliti ospiti al teatro Savio, per l’uscita del nuovo album "Linfa"
+-  Były szef TVP Sport: Ostatnio nie działo się najlepiej
+-  Manchester United cannot afford to repeat January transfer window mistakes
+-  Dulović: Hvala novinarima; Petrović: Ponosan na svoj rad i svoju redakciju
+-  Restalia amplía su presencia en Europa abriendo su primer local en Ámsterdam
+-  ‘The Holdovers’ Hits Peacock Over The Holidays
+-  Καιρός αύριο: Λίγα σύννεφα με ομίχλες – Πού θα πέσουν βροχές και καταιγίδες
+-  Detenido un hombre de 73 años por intentar asesinar a su mujer en Madrid
+-  "Comico Eduardo": lo spettacolo natalizio del teatro Nuovo
+-  2025 Porsche 911 gets new hybrid powertrain and 3.6-litre engine
+-  Aktien Osteuropa Schluss: Wenig Bewegung kurz vor Weihnachten
+-  Isa Pantoja defiende a su madre de las declaraciones de Fran Rivera
+-  VIDÉO - Expo Johnny à Paris : vive émotion à l'ouverture des portes
+-  Salernitana vs Milán: ¿Dónde y a qué hora VER partido HOY de la Serie A?
+-  Weltsicherheitsrat fordert mehr humanitäre Hilfe für den Gazastreifen
+-  Colocan bonos por USD 220 millones, 4 veces el máximo que los anteriores
+-  Fontos újítás jött a Facebook Messengerben: ennek nagyon sokan fognak örülni
+-  ΦΩΤΟΓΡΑΦΙΑ: Καταζητείται 32χρονος για την απόπειρα φόνου στην Πάφο
+-  Od Vlade Japana 51.000 eura za popravku vrtića u Mojkovcu
