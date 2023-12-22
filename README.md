@@ -1,11 +1,51 @@
 # Latest News
--  By: Health Stay
--  [2023년 결산/디지털금융②] 'IT인프라 안전' 강화… 만만치않은 '차세대시스템' 여정
--  [현장] "이순신 장군 동상, 어디서 볼 수 있나요?" 광화문에 등장한 'AI 번역' 서비스
--  SKB 웹 예능 '학원 전생', 주인공으로 'TXT 태현' 낙점
--  "디지털 트윈으로 재난안전관리"…과기정통부, 충북 오창서 민생현장 점검
--  Dawood Ibrahim in Karachi? Pakistan Accuses India of Propaganda
--  „Štrajk glađu nije nikakva patetika i performans“: Novinar Danasa kod Marinike Tepić u poslaničkom klubu
--  میرا تجربہ زیادہ ہے، عمران کے بعد پارٹی عہدہ میرے پاس ہے، لطیف کھوسہ
--  Hoá ra các sao nữ đều có chung hành trình đầu tư cho trái tim
--  Đón Giáng sinh với món cà phê "độc lạ" Việt Nam
+-  전국 최강 한파에 수도계량기 동파사고 200건 넘게 속출…서울 90건
+-  Zadranka otkrila tajnu jeftinog blagdanskog ručka: ‘Stalno sam radila ovu grešku, skupo me koštala’
+-  AWS·암젠, 생성AI로 신약 개발 가속화
+-  염태영, 경기부지사 사임하고 총선 출사표
+-  49 il əvvəl Xankəndidə nələr yaşanmışdı?
+-  Wieso man beim VfB Stuttgart nie dem Braten traut
+-  Danas je prvi dan zime: Evo kakvo nas vrijeme očekuje
+-  Bagasjetrøbbel på Flesland: – Full stans
+-  UN Security Council aims to vote Friday to boost aid to Gaza
+-  Полицейский погиб при ДТП в Вожегодском округе
+-  Artık, Karalahana yemiyoruz...
+-  بلوچ مظاہرین کی گرفتاری کیخلاف درخواست ؛ اسلام آباد ہائیکورٹ نے آدھے گھنٹے میں آئی جی کو طلب کرلیا
+-  32 İlde Eş Zamanlı Operasyon: 304 IŞİD şüphelisi Gözaltına Alındı!
+-  가자 '휴전 재협상' 난항…美 "저강도 전쟁 조기 전환해야"
+-  Encontrar la luz en invierno
+-  La prima pagina de La Gazzetta dello Sport titola: "Superlega, un muro di no"
+-  Markkanen sivussa, Jazzin jalkoihin jäänyt Pistons lähentelee NBA:n tappioennätystä
+-  US$10,000 Reward For Info On Missing Indian On FBI’s ‘Worst Kidnappings’ List
+-  7 опита за "ало"- измами спрени само за ден във Варна
+-  RSS: కులగణనకు తాము వ్యతిరేకం కాదు.. డేటాను సమాజ హితానికి ఉపయోగించాలన్న ఆర్ఎస్ఎస్
+-  Formel 1: Verstappen-Seitenhieb gegen Hamilton und Co. – seine Antwort spricht Bände
+-  Orbán Viktor úgy értesült, hogy az Európai Parlament embereit is Soros György irányítja
+-  Sánchez y Feijóo se reúnen sin visos de grandes acuerdos
+-  Minister Tiran says committed to carry on drug operations despite challenges
+-  Full List: 31 Premier League Club Players Face Suspension Ahead Of Christmas Fixtures
+-  Recuerdos de Navidad
+-  Bidenov tim usporedio tri Trumpove i tri Hitlerove izjave
+-  Η μελαγχολία των γιορτών και πως να την αντιμετωπίσετε
+-  Steam日本語アプデ配信『How 2 Escape』の“スマホを併用した友人との列車脱出劇”が面白い。指示側と脱出側に分かれる非対称列車脱出
+-  Die Details zum Heizungsgesetz: So sieht die Förderung aus
+-  Le aperture dei quotidiani italiani e stranieri di oggi, venerdì 22 dicembre
+-  Семейный МФЦ планируют открыть в ДНР в первой половине следующего года
+-  युवा विदेश जाने बाध्यता अन्त्य गर्नुपर्छ : सभापति लामिछाने
+-  Fastigheten på Åsen 31 i Lingbo har fått ny ägare
+-  Fastigheten på Åsen 31 i Lingbo har fått ny ägare
+-  ตร.บางเขน ส่งฟ้องดารา "ต่อ เรืองฤทธิ์" ข้อหาเมาแล้วขับ
+-  ระทึก อพยพนักท่องเที่ยว 70 ชีวิตกลางทะเล หมู่เกาะอ่างทอง
+-  “ข้าวหอมมะลิไทย” ยืนหนึ่งตลาดฮ่องกง คาดปี 67 แข่งราคาเดือด
+-  "พิพัฒน์" ขอกก.ไตรภาคีทบทวนขึ้นค่าแรงขั้นต่ำ 2-16 บาท
+-  สปส.ส่ง SMS 8.5 แสนเลขหมาย ชวนใช้สิทธิเลือกตั้งบอร์ดประกันสังคม
+-  Top news developments from Telangana today
+-  인천 동구, 고향사랑기부제 답례품 7개 추가 선정… 18개 품목으로 확대
+-  FG Floats Scheme To Boost Cassava Production
+-  [[김태열의 생생건강S펜] "고령층 '낙상'은 치명적 '삶의 질 저하' 부른다"
+-  [[김태열의 생생건강S펜] 류마티스 관절염 환자, 폐암 위험 49% 증가
+-  Serbest piyasada döviz açılış fiyatları (22.12.2023)
+-  [김기현 119억·서삼석 66억…여야 실세, ‘긴축 재정’에도 지역구 챙겼다
+-  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
+-  [尹, 순직 군인·경찰·소방관 가족과 대통령실 첫 성탄절 행사
+-  [서울월드컵경기장 잔디 ‘스마트’하게 관리한다…사물인터넷 시스템 도입
