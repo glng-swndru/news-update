@@ -1,11 +1,11 @@
 # Latest News
--  Girişimlerin yüzde 99'u KOBİ
--  Марказий банк регулятор номидан фойдаланиб, фирибгарлик қилиш ҳолатлари кузатилаётганидан огоҳлантирди
--  ¿Se te ha roto un décimo premiado en la Lotería de Navidad 2023? Esto debes tener en cuenta
--  DEBATT: Ett möte mellan barn och vuxen kan också bli livslång vänskap
--  Business Success Story: From Vision to Victory, Rahul Narvekar`s Trailblazing Journey in Transforming IndianRoots into a Global Brand
--  [제약24시] 한국오가논 ‘코자정’, 뇌졸중 발생 위험 감소 적응증 추가
--  대설·한파에 월동채소 등 농작물 피해 '비상'
--  ¿Se te ha roto un décimo premiado en la Lotería de Navidad 2023? Esto debes tener en cuenta
--  Kickoff | CONFIRMED: First new club to join European Super League revealed
--  제주 폭설에 항공편 수백편 무더기 결항, 이용객 불편 극심
+-  [신년사] 노연홍 제약바이오협회장 “연구개발 환경 강화하고 전문인력 양성할 것”(전문)
+-  이동국 사기미수 혐의 고소한 A씨 "내 오해서 비롯"→소송 취하 [공식]
+-  "운영의 폭 넓어졌다" OK금융그룹 전진선↔삼성화재 박성진, 1대1 트레이드 단행 [공식발표]
+-  '군 복무' BTS 지민, 오늘(22일) 팬송 'Closer Than This' 발표…아미 향한 약속·위로
+-  24K 금 깐 수영장→4억짜리 가구…홍현희, 상상초월 두바이 부촌집에 "여기서 일하고파" [세모집]
+-  아베 잃은 아베파 해체 위기…한미일 안보협력에 악영향 주나
+-  강원국 프로그램도 폐지... KBS 1라디오 ‘수시조정’ 공식화
+-  ‘윤 대통령 재벌총수 술자리’에 “국민 납득 못할 일들 보도되는데…”
+-  Gotovo polovica Europljana vidi svoje majke kao skrivene junakinje
+-  دعاء يجلب الرزق والخير.. احرص على ترديدده بعد قراءة سورة الكهف يوم الجمعة
