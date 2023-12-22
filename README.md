@@ -1,51 +1,11 @@
 # Latest News
--  Mauricio Kawas deja advertencia tras el tricampeonato de Olimpia
--  5 Drakor Bergendre Mirip True Beauty, Bisa Bikin Kamu Semakin Percaya Diri
--  Luhut: Presiden Jokowi akan Kenalkan Presiden Terpilih ke Pemimpin Dunia
--  Best Boxing Day early deals to purchase: Best Picks deputy editor shares the seven sale items she’ll be shopping before December 26
--  ইসলামিক ফাউন্ডেশনের নিয়োগপ্রক্রিয়া পাঁচ বছরেও শেষ হয়নি
--  মাহিয়া মাহি বললেন, ‘চৌধুরী সাহেবের হয়তো অনেক টাকা আছে, কিন্তু মন নেই’
--  UET teacher receives Quaid-e-Azam Gold Medal
--  ‘কুমির’-এর পেট থেকে বের হলো জীবন্ত মানুষ
--  Seth Meyers Exposes Trump’s Lifelong Hitler Obsession
--  224 females, 92 minority candidates file papers for NA, KP reserved seats
--  Czech envoy explores Peshawar’s rich cultural heritage
--  President appoints new Ministerial Secretaries and Chief Secretaries
--  Bakının əsas yollarında TIXAC var
--  China, Pakistan sign MoU on biodiversity conservation
--  Asyik! Batas Waktu Pemesanan Tiket Kereta Api Diperpanjang
--  La Nacion: в Аргентине прошли протесты против реформ Милея
--  해외 OTT 이용자, 자국·미국 이어 한국산 콘텐츠 가장 선호
--  전해철 “이낙연, 배려 없는 민주당에 상당한 서운함 느낀 듯”
--  ‘마약 투약’ 전두환 손자 전우원, 집행유예…法 “건강한 사회생활 기회 부여”
--  UzAuto Motors Cobalt, Damas ва Labo учун контрактацияни очади
--  Şarkıcı Hande Yener şöhret olmadan önceki hayatı: "Otobüs duraklarında ağlıyordum"
--  No more functioning hospitals in Northern Gaza: WHO Director-General
--  14 killed, 25 wounded in shooting at Prague university
--  سرکاری سکیم پر حج درخواستوں کی وصولی کا آج آخری دن، اسپانسر شپ اسکیم کی تاریخ میں ایک ہفتہ توسیع کا فیصلہ
--  La banca de EE UU arrebata cuota en la Bolsa a los brókers nacionales
--  Energía, seguros e infraestructuras, las apuestas de Norbolsa para 2024
--  Dora mom with double uterus gives birth to healthy baby girls
--  Jingle bites: Guide to the best plum cakes for Christmas 2023 in Mumbai
--  Овечкин — об антирекордной серии: я просто должен был забить один гол
--  [단독] 하이라이트→김재중, 베트남 K팝 페스티벌 대거 불참…"주최 측 계약 불이행"
--  펩은 떠난다→펩이 직접 찍은 맨시티 차기 감독 유력 후보는 바로 '이 감독'
--  청취자 깜짝 놀란 최백호 생방송 중 응급실行…"상태 호전됐다" [종합]
--  '흥행 강자' 최시원, '술도녀'→'사냥개들'→'이재, 곧 죽습니다' 연타 활약
--  "인생 암흑기" 제시카, 제 발로 나간 소녀시대 언급…반응이 영 안좋네 [MD이슈]
--  '태계일주' 기안84X빠니보틀X덱스, 2023년 꽉 채운 유일무이 '날 것의 팀워크'
--  Päť nebezpečných kombinácií LIEKOV a POTRAVÍN: Pozor, riskujete krvné zrazeniny či poškodenie pečene
--  Pakar: Mundur dari KPK, Firli Bahuri Bersiasat Tiru Jejak Lili Pintauli Siregar
--  주차만 해뒀는데…한파 속 테슬라 유리깨짐 속출
--  Bank Mandiri dan OttoDigital Kolaborasi Perluas Akses Pembiayaan UMKM
--  Cross Border Commissioner steps down
--  Ataşehir'de park halindeki araçta ceset bulundu
--  Dodgers agree to 12-year, $325-million deal with pitcher Yoshinobu Yamamoto
--  “태어난 모든 아동 보호 준비”…출생통보‧보호출산제도 시행 추진단 킥오프 회의 개최
--  Çin'in yeni taykonot ekibi ilk uzay yürüyüşünü gerçekleştirdi
--  Park halindeki otomobilin içinde ceset bulundu
--  İsrail Gazze Şeridi'ne ölüm yağdırdı: Çok sayıda Filistinli hayatını kaybetti
--  ต่อโปร! "อากาศหนาว" ยะเยือกรอบสุดท้าย 25 ธ.ค.นี้
--  Rahul Gandhi Speaks To Nitish Kumar After Mallikarjun Kharge Projected As INDIA Bloc`s PM Face
--  휴온스, 크리스탈생명과학 지분 100% 인수…자회사 편입
--  BYD, 헝가리에 전기차(EV) 공장 세우나…“현지 정부와 최종협상 중”
+-  애경케미칼 베트남 가소제 법인 지분 인수
+-  THT IMPACT: Elite Adventure provides Rs 1 lakh for Prema&#039;s treatment
+-  N. Korea condemns G7 over possible seizure of Russian assets for Ukraine aid
+-  Washington insta a México a "hacer más" para frenar la migración irregular
+-  [ŽT] Galingi kadrai. Izraelis šluoja „Gazos metro“ (Video)
+-  Tesla hofft auf schnelles Tempo für Ausbau der Fabrik
+-  Woolies recalls mince pies over metal contamination
+-  Pressestimme: 'Märkische Oderzeitung' zu Pisa-Ergebnissen
+-  Pressestimme: 'Nürnberger Zeitung' zu Schuldenbremse
+-  Pressestimme: 'Die Glocke' zu USA vor besonderem Wahljahr
