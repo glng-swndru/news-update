@@ -1,11 +1,51 @@
 # Latest News
--  Predčasný vianočný darček: Z Adama Ďuricu sa stal trojnásobný otec!
--  130 مليون دولار لدعم السلطة الفلسطينية
--  صفات تتميز بها المرأة المتزنة
--  دراسة: حمية البحر المتوسط تعزز خصوبة الرجال
--  Hävelid om Jakob Noréns status efter smällen: "Den tar otroligt dåligt”
--  Nálunk nőtt a legnagyobb mértékben a félretett pénz összege a régióban
--  Fuir Gaza sous les bombardements d’Israël, le calvaire d’une mère marocaine
--  Christmas celebration at Hayatabad Medical Complex
--  Christmas cake-cutting ceremony held at LHC
--  Five laborers killed armed attack on under construction police station in SW
+-  Česká polícia potvrdila zhodu zbrane z Klánovíc so zbraňou strelca z Karlovej univerzity
+-  Updated Ticket Sale Numbers For AEW Events, Including Worlds End
+-  Irlanda prohíbe la venta de productos de vapeo a los menores de 18 años
+-  VIDEO | Chiara Ferragni, come vanno le vendite nel negozio di Roma dopo lo "scandalo pandoro"?
+-  BFM Bourse : 15h/16h - 22/12
+-  Hedef gösterilen Kızıl Goncalar dizisinin yapım şirketinden açıklama
+-  Premier League star ‘got beat up’ by Drake’s bodyguards after he asked for selfie of singer in gym
+-  Adelantan entregas de abrigos del DIF
+-  Gibran Soal Banjir Proyek di Solo: Saya Sering Dibantu Pak Ganjar
+-  La Maddalena, vaccinazioni anti-Covid nella Casa della Comunità di Padule
+-  Alex Verdugo y su reacción al enterarse fue que fue cambiado a los Yankees
+-  ‘Aquaman 2’ $4.5M, ‘Migration’ $1.5M Previews – Christmas Caravan Of Films Begins At Box Office
+-  İstanbul trafiği bir kez daha felç oldu! Her seferinde aynı senaryo...
+-  В Петербурге вынесли приговор военному, разбившему "Панцирь-С" об мост
+-  Div Com reviews operations of subsidized Heli services for snow-bound areas
+-  Bigg Boss 17: Mannara Chopra gets upset with bestie Munawar Faruqui
+-  FitSpresso Coffee Reviews: Is This Coffee Loophole Truly Effective For Weight
+-  Las mejores películas de Zack Snyder
+-  LeanBliss Reviews (Warning To Customers!) Does Lean Bliss Aid Weight Loss
+-  BAJA MALI KNINDžA SNIMIO SPOT ZA NOVU PESMU: Republiko Srpska, majko naša, neka te čuva Bog (VIDEO)
+-  Investigation launched after woman found dead in house in Rutherglen, South Lanarkshire
+-  2023: The year we played with artificial intelligence – and weren’t sure what to do about it
+-  Klopp bekräftigt Nein zur Super League - Urteil dennoch gut
+-  Ubedljiva pobeda Čuke: Sjajan gol Cvetkovića
+-  Car seller Lookers could cut hundreds of jobs after takeover
+-  Alles schon vergessen?
+-  FK Sarajevo prodalo igrača u američku MLS ligu
+-  Miał ofertę z Rakowa Częstochowa, trafił do Lecha Poznań
+-  Aquafest: 23 декабря открывается первый зимний аквапарк!
+-  XV de France : Un cadre de Galthié n'a toujours pas digéré l'Afrique du Sud
+-  Bitlis'te zincirleme kaza: 1 ölü
+-  Yahudi yerleşimciler Filistinlilere ait ağaçları söktü
+-  Filistin Kızılayı: İsrail, 8 Kızılay gönüllüsünü serbest bırakmadı
+-  Тошкент вилоятида битта заправка 1,2 млрд сўмдан зиёд табиий газдан ноқонуний фойдалангани аниқланди .
+-  FourFourTwo Alternative awards: the winners and losers of 2023
+-  “Ўзбекнефтгаз” АЖ: Қашқадарёда ишга туширилган янги лойиҳа "Жанубий Тандирча" конининг умрини узайтиради.
+-  شباب دمياط ينظم ندوة عن المخلفات الإلكترونية بمركز شباب الغوابين
+-  Давлат идоралари раҳбар ва ходимлари театрларга ташриф буюриши керак — президент
+-  Stratégové Citi varují před poklesem amerických akcií s tím, že jej ale lze využít k nákupu. Pozitivní jsou na banky a technologie
+-  Na sídlisku Zornička v Galante sa prepadla pôda len kúsok od obytných domov, jama môže byť pozostatkom starej žumpy (foto)
+-  Правительство утвердило правила установки QR-кодов на воинских мемориалах
+-  Biden to pardon certain marijuana offenses, commute sentences of 11 nonviolent drug offenders
+-  Epic Games Store makes a fresh exception to Adults-Only ban for blockchain games
+-  أرتيتا يرفع شعار التحدي لتحقيق أول انتصار مع أرسنال على ملعب أنفيلد منذ 11 عاما
+-  63 برس میں اسکول میں داخلہ مہنگا پڑ گیا، ٹک ٹاکرز نے زندگی مشکل کردی
+-  Après les tensions, la Pologne manifeste son soutien à l'Ukraine dans la guerre face à la Russie
+-  देश की खबरें | संसद में आपराधिक कानून विधेयकों पर चर्चा का “बहिष्कार” करने के लिए शाह ने विपक्ष पर निशाना साधा
+-  जेवर विधायक Dhirendra Singh ने शिक्षकों को वितरित किए 197 टैबलेट, बोले- हाईटेक होंगे यूपी के शिक्षक और शिक्षण व्यवस्था
+-  देश की खबरें | कश्मीर में आतंकवाद मृत्युशय्या पर : सिन्हा
+-  Ο Κρέσπο και το άλλο κέντρο
