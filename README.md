@@ -1,11 +1,11 @@
 # Latest News
--  유스비, 여가부 주관 ‘가족친화기업’ 인증 획득
--  동국대 듀이카 영화학 전공, 입학상담…정시 기간 중복지원 가능
--  저탄소 종이기업 ‘무림’, 롯데월드 아쿠아리움과 ‘페이퍼리움’ 조성
--  ㈜탑코, 복지 사각지대의 이웃에게 기부활동
--  중소벤처기업인증원, 국민건강보험공단에 ‘인권경영시스템’ 인증
--  메타월드 글로벌-OKX 제휴, 웹 3.0 새로운 기록
--  국제직업전문학교, 2023년도 고교위탁교육 졸업 작품전 개최
--  우리넷 뮤지엄웨이브, 무료 전시에 제프 쿤스(Jeff Koons) 16억 아이코닉 조각 작품 선보여
--  한국사회복지협의회, “‘사회복지현장 규제 개혁’ 적극 지지”
--  인터프랫, 현지 코디네이터 감성통역 플랫폼 신규 서비스 통할통 런칭
+-  Amitabh Bachchan gets emotional at Anand Pandit's bash; quotes his father Harivansh Rai Bachchan while sharing a heartfelt personal message
+-  Ra.One filmmaker Anubhav Sinha reviews Dunki; appreciates Shah Rukh Khan and says, “Long live Raju”
+-  Ehemaliger CIA-Analyst: Putins Einsatz von Atomwaffen gegen NATO „sehr wahrscheinlich“
+-  Doctor murder accused has charge dropped, home for Xmas
+-  Las noticias más importantes del 21 de diciembre en México
+-  Saltillo: choca en V. Carranza y no acepta la culpa
+-  상속세 물납 ‘NXC’ 지분 공개매각 유찰…“입찰 참가자 없어”
+-  고위급 軍 소통 복원한 미·중…무슨 얘기 나눴나
+-  Polémica por el megadecreto de Milei en Argentina: "Es una apuesta muy arriesgada"
+-  Lancelin fire: Police probe begins into drone operator who halted firefighters for nearly an hour
