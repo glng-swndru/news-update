@@ -1,51 +1,51 @@
 # Latest News
--  El veterano Cristian Zapata ficha por el Vitória de Brasil
--  يصيب 1% من المواطنين.. هذه سبل الوقابة من الروماتيزم
--  احذر.. إطعام قرود البابون يعرضك لغرامة 500 ريال
--  Świąteczne śpiewanie
--  لا يُصدق.. شاهد السيول تُغطي مساحات واسعة شرق ينبع الصناعية
--  Toplitz Productions Joins Steam Winter Sale
--  بتعليمات ملكية.. المغرب يقوي الشراكة مع أندونيسيا أحد عمالة اقتصادات آسيا
--  Bund zieht überwiegend positives Fazit zu Corona-Härtefallhilfen
--  BMGK Gazze'ye yardım tasarısını kabul etti
--  Lionsgate crea un gigante degli studios da 4,6 miliardi
--  کیا ملا فضل اللہ کی بیٹی کو بھی احتجاج کرنا چاہیے، بلوچ مزاحمت کاروں کو رعایت نہیں دے سکتے، جان اچکزئی
--  Car crashes into side of a house and is still lodged two days later
--  Researchers use VLT exoplanet hunter to study Jupiter's winds
--  Diálisis y Farmacia ganan el concurso de Navidad en Cuenca
--  J&K's Kishtwar emerges as key habitat for endangered Snow Leopards in India [details]
--  GOG Unleashes Next Phase of Winter Sale With Massive Savings
--  إيهود أولمرت: لن يكون هناك تدمير "لحماس" ويجب التخلص من "نتنياهو"
--  "A vonaton még nem volt semmi baj": melyik könyv első mondata?
--  بالفيديو – الأمطار الغزيرة تتسبب في طوفان طريق خلدة وتعرقل حركة السير
--  TFI International announces deal to acquire Daseke for $8.30 per share
--  Un Gordo tardío y una lluvia de quintos premios dejan casi 20 millones en Aragón
--  Weltsicherheitsrat: mehr humanitäre Hilfe für Gazastreifen
--  BiH bez robnih rezervi lijekova i medicinskih sredstava
--  Ignacio Rivera, de Estrella Galicia, presidirá el Instituto de la Empresa Familiar
--  ΟΛΘ: 4 σχήματα υπέβαλαν αρχικό ενδιαφέρον στο διαγωνισμό για την επέκταση του Προβλήτα 6
--  Turkki käsittelee Ruotsin Nato-hakemusta tapaninpäivänä
--  Eklat in Italien: „Jesus“ einfach gestrichen - Schule ändert Liedtext und singt vom Kuckuck
--  Así han celebrado el premio en Alhama de Aragón: “Es una alegría muy grande”
--  Aktien Osteuropa Schluss: Wenig Bewegung kurz vor Weihnachten
--  Robots vs. humans: Which do children trust more when learning new information?
--  Los Angeles Rams sensation can rival CJ Stroud for Offensive Rookie of the Year
--  I cosmopòliti ospiti al teatro Savio, per l’uscita del nuovo album "Linfa"
--  Były szef TVP Sport: Ostatnio nie działo się najlepiej
--  Manchester United cannot afford to repeat January transfer window mistakes
--  Dulović: Hvala novinarima; Petrović: Ponosan na svoj rad i svoju redakciju
--  Restalia amplía su presencia en Europa abriendo su primer local en Ámsterdam
--  ‘The Holdovers’ Hits Peacock Over The Holidays
--  Καιρός αύριο: Λίγα σύννεφα με ομίχλες – Πού θα πέσουν βροχές και καταιγίδες
--  Detenido un hombre de 73 años por intentar asesinar a su mujer en Madrid
--  "Comico Eduardo": lo spettacolo natalizio del teatro Nuovo
--  2025 Porsche 911 gets new hybrid powertrain and 3.6-litre engine
--  Aktien Osteuropa Schluss: Wenig Bewegung kurz vor Weihnachten
--  Isa Pantoja defiende a su madre de las declaraciones de Fran Rivera
--  VIDÉO - Expo Johnny à Paris : vive émotion à l'ouverture des portes
--  Salernitana vs Milán: ¿Dónde y a qué hora VER partido HOY de la Serie A?
--  Weltsicherheitsrat fordert mehr humanitäre Hilfe für den Gazastreifen
--  Colocan bonos por USD 220 millones, 4 veces el máximo que los anteriores
--  Fontos újítás jött a Facebook Messengerben: ennek nagyon sokan fognak örülni
--  ΦΩΤΟΓΡΑΦΙΑ: Καταζητείται 32χρονος για την απόπειρα φόνου στην Πάφο
--  Od Vlade Japana 51.000 eura za popravku vrtića u Mojkovcu
+-  احذرها.. 5 أطعمة تسبب تهيج القولون العصبي قبل النوم
+-  В Питере обсудили творческое развитие инвалидов Запорожкой области
+-  В Германии раскрыли обман Киева в заявлениях о ситуации на фронте
+-  מועצת הביטחון אישרה הצעה להגדלת הסיוע ההומניטרי לעזה
+-  Morrissey announces 30th anniversary reissue of Siouxsie Sioux duet ‘Interlude’
+-  British swim great Peaty to make world titles return
+-  Letnie opony zimą – niedbalstwo i groźba odpowiedzialności
+-  Sikkerhedsråd har vedtaget Gaza-resolution
+-  Sikkerhedsråd har vedtaget Gaza-resolution
+-  Così il bilancio del Comune trasforma il territorio di Montesacro
+-  تقارير.. ريال مدريد مستمر في مراقبة إيكاردي
+-  این اے ون چترال سے آٹھ اور صوبائی اسمبلی کی دونشستوں کے لئے 22 امیدواروں نے کاغذات نامزدگی جمع کرادی،
+-  Kolumni: Ei aina voi tietää
+-  Пирин Благоевград договори пет контроли по време на паузата
+-  Krieg in Nahost: UN-Sicherheitsrat fordert mehr humanitäre Hilfe für Gaza
+-  What Stores Are Open and Closed on Christmas Eve?
+-  Канчельскис заявил, что подпишет контракт с «Мурас Юнайтед» через пару дней
+-  SSSCG: Medenici novi mandat
+-  مہنگائی سے پریشان شہریوں کیلئے بُری خبر آگئی
+-  لاعبان فقط من مانشستر سيتي شاركا أساسيين في جميع النهائيات
+-  Ted Nugent says Taylor Swift’s music is “all poppy nonsense” with “no fire” and “no sensuality”
+-  “الزوي” يتفقد أملاك الدولة والمنازل المتضررة جراء الفيضانات في درنة
+-  Dupla é presa suspeita de sequestro e homicídio, e armas são apreendidas
+-  Universal banks on 'Migration' to expand its animation lead over Disney
+-  A reventar la Cuarta por compras navideñas
+-  NYT: Украинските катери формират зона за сигурност в Черно море
+-  CT fires: City's disaster management urges residents to be ready for evacuation
+-  "كنت مزنوق في قرشين".. حل لغز سرقة كافيه بالشيخ زايد
+-  مندوبة الإمارات بمجلس الأمن: غزة على وشك المجاعة وتوسع الصراع أصبح محتملا
+-  مجلس الأمن يعتمد قرار بشأن توسيع المساعدات الإنسانية إلى قطاع غزة
+-  الطبيب الشرعي يحسم واقعة وفاة ربة منزل فجأة فى الدقهلية
+-  المقاومة تستهدف قوة صهيونية راجلة من 5 جنود بقذيفة الياسين 105 بشمال غزة
+-  بعد "واقعة اللوحات".. ضبط 5 متهمين بالتنقيب عن الآثار في الدقهلية
+-  "الإسكان": 5256 وحدة سكنية بسكن لكل المصريين
+-  خبير سياسات دولية: استفزاز مصر لن يحقق استقرارًا في الشرق الأوسط
+-  "الصحة" تضخ أكثر من 100 ألف جرعة من لقاح الإنفلونزا الموسمية
+-  الصحة: حملة "100 يوم صحة" قدمت أكثر من 56 مليونًا و244 ألف خدمة مجانية
+-  Saradnja sa BH Telecomom: Digitalizacija obrazovnog sektora KS
+-  Concordia Offers New Award of up to $4,000 in Response to Quebec Tuition Hike
+-  Wall Street status: Nike dumpes for svag prognose i ellers grønt marked
+-  Magnús Már og Arnar Gunnlaugs á X977 á morgun
+-  IVAN DAJE VIKENDICU I PLAC ZA 12.500 EVRA: Pravi raj, a prvog komšije ni na vidiku
+-  Двама задържани за обира на 5 млн. лева от инкасо в София, издирват Турчина
+-  Forge Group, Inc. Announces Share Repurchase Plan
+-  VIDEOROZHOVOR Vicepremiér Kaliňák: S porušovaním práv neprestali ani po voľbách, preto chceme expresne zrušiť Lipšicov úrad
+-  Irán zatvoril veľké kníhkupectvo v Teheráne pre porušenie zákona o hidžábe
+-  ‘Een doos van Pandora’: wat als het Westen 270 miljard euro aan bevroren Russische tegoeden vrijmaakt voor Oekraïne?
+-  2023: de ondergang van een politieke generatie
+-  Funt blisko najniższego poziomu od trzech lat. Będzie jeszcze taniał?
+-  Push to Disqualify Trump Pits Democracy Against the Rule of Law
