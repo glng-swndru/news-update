@@ -1,51 +1,51 @@
 # Latest News
--  In Pictures: Mungret St Paul's see off Monaleen in Limerick Premier U21 hurling final
--  400'ü Aşkın Kimsesiz Bebeği Acımadan Öldüren Seri Katil Amelia Dyer'ın Korkunç Hikâyesi
--  Insomniac Games, Wolverine Oyununun Sızmasına Neden Olan Hacklenme Olayıyla İlgili Sessizliğini Bozdu
--  MIMORIADNE Ďalšia obrovská dráma v Prahe! Muž mal mať pri sebe granát: Zasahovala polícia
--  Chcete dodať vyprážanému kaprovi šmrnc? S týmito nápadmi určite zabodujete!
--  Pisté par d'autres clubs, Lucas Beraldo ne veut que le PSG
--  Dominik Mathé quittera le PSG Handball à la fin de la saison
--  Le nouveau président des Corinthians ne décolère pas du futur départ de Moscardo
--  Canal Supporters vous propose sa newsletter PSG sur Whatsapp
--  PSG / Real Sociedad:La billetterie ouverte !
--  Coupe de France:Le PSG sur une pelouse de rugby face à l'US Revel
--  Damien Comolli (président du TFC) fait le point sur l'organisation du Trophée des Champions
--  Les nouvelles confidences de Sergio Rico sur sa période de convalescence
--  LdC – La Real Sociedad concède un triste match nul à Cadix
--  Darts-WM: Hempel gelingt spektakuläres Comeback gegen van den Bergh
--  Video/ Fluminense shkatërrohet në finale, City në majën e botës: titulli i pestë për Guardiolën në 2023-in
--  Scammers weaponising picture of dog hit by car in bid to trick Australians out of cash and data
--  Motorizado pierde la vida en accidente en la Tumba Muerto
--  FC 24 Winter Wildcards calendar with new items for Gullit, Havertz and Mbabu
--  Zugriff bei Anti-Terror-Einsatz: Frankreich setzt "extreme Wachsamkeit" vor Feiertagen um
--  Manchester City, campeón del Mundial de Clubes: goleó 4-0 al Fluminense con anotación veloz de Julián Álvarez
--  «Манчестер Сити» — первый английский клуб, выигравший за один год пять трофеев
--  রেহমান সোবহানের বক্তৃতা ও মুক্তিযুদ্ধের বই প্রকাশনা আজ
--  El aficionado que ignoró a Lewandowski por darle un abrazo a Fidalgo en América vs Barcelona
--  Secretaria de MT divulga lista de aprovados no seletivo para 4,4 mil vagas nas escolas militares
--  Zbardhet LISTA/ Taksa që do paguajnë nga 1 janari avokatët, mjekët, IT, mësuesit
--  Vijeće sigurnosti UN-a donijelo važnu rezoluciju o Gazi. SAD i Rusija bili suzdržani
--  UN Security Council passes Gaza aid resolution, but without calling for a cease-fire
--  How to get Kleavor in Pokemon Scarlet & Violet: The Indigo Disk
--  Best jumpshots in NBA 2K24: Curry, Kyrie & more
--  Novi dan: Pandemija agresije
--  Tenemos que reducir el consumo de azúcares y carbohidratos en fiestas decembrinas: Sedesa
--  ‘Happy Christmas for remains’ as skulls stolen by academics return home to Irish island for first time in 133 years
--  Córdoba: hondo pesar por la muerte del profesor emérito de la UNC, Raúl Enrique Altamira Gigena
--  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
--  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
--  De Laurentiis: Semjum við Osimhen og kaupum minnst þrjá leikmenn
--  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
--  Weltsicherheitsrat: Forderung nach mehr humanitäre Hilfe für den Gazastreifen
--  1 year from reopening, 'GMA' views Notre Dame Cathedral's new spire
--  Último pleno ¿municipal?: "Amnistía, Bildu, caca, culo, pedo, pis"
--  Fiscalía cotejará ADN con seis familiares de Amelia Sanjurjo
--  Gasi se Hyperloop One, u koji je ulagao i Richard Branson
--  Marin Katušić, direktor razvoja sadržaja Indexa, novi je član Izvršnog odbora HUDI-ja
--  How many women has Jason Oppenheim hooked up with on Selling Sunset?
--  لصحيفة الشرق الأوسط.. النايض: الطبقة السياسية المتنفذة تحرم الشعب الليبي من الانتخابات
--  18-year-old shot and left to die outside her family's home in Fridley
--  "A total game-changer" - AWS product chief on what AI can actually bring to your business
--  "A total game-changer" - AWS product chief on what AI can actually bring to your business
--  Get these HP, Lenovo, and Microsoft laptops for as low as $449 as a late Christmas present
+-  Parlament RS usvojio nacrte zakona o imunitetu i referendumu,...
+-  СБ ООН принял резолюцию по Газе
+-  RuPaul's Drag Race Alum Farrah Moan Comes Out as Transgender
+-  أحمد الخير عن اضرار الأمطار الطوفانية في المنية: الفرق الفنية بدأت عملها
+-  "حزب الله" نشر مشاهد من استهداف مزارع مستوطنة دوفيف
+-  مولوي متفقدًا مطار بيروت: عدد الطائرات خلال هذه الفترة ازداد والمطار في أمان
+-  معلومات "الجديد": تعيينات المجلس العسكري حُسمت واختيار العميد حسان عودة لرئاسة الأركان
+-  "حماس": أميركا أفرغت القرار الأممي بشأن غزة من جوهره وأخرجته بصيغة تسمح للاحتلال استكمال التدمير والقتل
+-  البيت الأبيض: إيران متورطة بشكل كبير في التخطيط للعمليات ضد السفن التجارية في البحر الأحمر
+-  هيئة البث الإسرائيلية: مقطع الفيديو الذي قدّم للشاباك ظهر فيه محمد الضيف وهو في وضع نشط
+-  Prague Police release bodycam footage following mass shooting
+-  Prague Police release bodycam footage following mass shooting
+-  Sutjeska protiv Superlige: Črvsto uz ECA, UEFA i FIFA
+-  ربيعة ينضم إلى قائمة الأكثر مشاركة في نسخ كأس العالم للأندية
+-  New waste management strategy denied by Waterloo regional councillors
+-  خطوة ينتظرها الملايين.. ميتا تجلب محادثات التطبيقات الأخرى إلى ماسنجر
+-  ما الأمور التي تجعل المسلم من المتقين؟ "الخثلان" يُجيب
+-  فلسطين: الاحتلال يستغل الانشغال بالإبادة في غزة ويشدد إجراءات التهويد ضد الأقصى
+-  Emergency-level fires downgraded in Perth
+-  Eltinizi çatır çatır çatlatacak kek! Her yediğinde tarifi için yalvaracak, enfes
+-  População brasileira se reconhece como preta e parda, na sua maioria
+-  Tunisie : Le vent fait des ravages au Cap Bon
+-  Lionesses hero Chloe Kelly shows off glittering diamond ring as beaming England star gets engaged under Northern Lights
+-  “이정후, 오타니·소토만큼 관심 못 끌지만…” 샌프란시스코는 좋아졌다, 1469억원 가치 ‘확실’
+-  Chegaram as promoções da Steam para este inverno
+-  Felipe Melo y Kyle Walker se fueron a las manos tras la final del Mundial de Clubes
+-  سيتي يكتسح فلومينينسي برباعية.. ويتوج بلقب مونديال الأندية
+-  Personal trainer charged with sex assault
+-  Protestanata sve manje, štrajkača glađu sve više
+-  PT confirma pedidos de cassação dos deputados
+-  Ukrajinské úrady zorganizovali návrat 12-ročného syna vojačky, ktorého odvliekli Rusi
+-  Van den Bergh is na inzinking volgende topspeler die strandt op WK darts
+-  Takmičarka "MasterChef Srbija" se posekla dok je kuvala: Ukazana joj pomoć
+-  أميركا: إيران «متورطة بشكل كبير» في العمليات ضد سفن تجارية بالبحر الأحمر
+-  Immunität Trumps: keine Entscheidung vom Obersten Gericht
+-  SAL-MIL (1-1): Doveri fischia due volte, squadre a riposo sull'1-1
+-  Immunität Trumps: keine Entscheidung vom Obersten Gericht
+-  Más de 3 mil tianguistas de Culiacán están listos para las “compras de pánico” por Navidad
+-  بطولة إنكلترا: تين هاغ يتوقّع عودة كازيميرو ومارتينيس في يناير
+-  Кубанскиот парламент ја одобри евтаназијата
+-  الأهلي المصري ينتزع المركز الثالث في مونديال الأندية
+-  سواريس ينضم إلى ميسي في إنتر ميامي الأميركي
+-  فلسطين: الاحتلال يفرض المزيد من إجراءات التهويد ضد الأقصى
+-  Hombre sufre caída desde la azotea de su casa
+-  Column: Florida State always seemed out of place in the ACC. Now the Seminoles want out
+-  Nowhere, la distopía más popular de Netflix habla español
+-  El archivo secreto de Bob Dylan: la historia de cómo desafió a sus fans y al mundo
+-  Rutas Seguras: “Vamos a intensificar los operativos móviles, la concientización y la educación vial”
+-  Salernitana-Milan, Maignan si infuria dopo il gol preso da Fazio
+-  PJ decidirá si ratifica condena por tráfico de influencias a Kenji Fujimori en enero
