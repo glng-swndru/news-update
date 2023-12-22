@@ -1,11 +1,11 @@
 # Latest News
--  ჩეხეთში, უნივერსიტეტში სროლის შემდეგ, გლოვის დღე გამოცხადდა
--  عشيرة الدباس تنعى فايز الدباس
--  نعي فاضل من آل ياسين إلى آل القادري
--  إصابة جندية إسرائيلية بعملية دهس قرب جنين
--  차주 주목해야 할 제약바이오 대장주는? 기관연속순매수+AI도 추천
--  中 규제 강화에 게임업계 직격탄… 서구권 진출 가속화되나
--  الأردن يعزي التشيك بضحايا الهجوم المسلح في براغ
--  Tämän viitekoron ekonomisti vaihtoi omaan asuntolainaansa – ”Yli ajan edullisin”
--  백패커, 디자인 쇼핑몰 '텐바이텐' 인수…GS리테일 지분 전량 매입
--  [게임소식] 라인게임즈, 콘솔 타이틀 '창세기전: 회색의 잔영' 정식 발매 외
+-  오픈베이스, 소프트웨어 천억클럽 어워즈 1천억클럽 멤버 선정
+-  플레이스테이션, 내달 5일까지 겨울 세일…PC 타이틀 최대 75% 할인
+-  데이터스트림즈, ‘의료분야 빅데이터 플랫폼 데이터 협력’ 협약식 개최
+-  오케스트로, 첫 ‘파트너 데이’ 행사 개최…미래 비즈니스 모델 발표
+-  Oscar-shortlistre került Buda Anna Flóra Arany Pálma-díjas animációs filmje
+-  ก.แรงงาน จัดเต็ม มอบของขวัญปีใหม่ 11 ชิ้น ขึ่้นค่าแรงขั้นต่ำ - ช่วยปลดหนี้
+-  Suspects to be prosecuted for racist projections on Rotterdam and Eindhoven buildings
+-  Over 1,700 kilograms of cocaine found in banana and jelly shipments
+-  Devolving of police powers the police minister's responsibilities - WC MEC Allen
+-  Spar Group to phase out long-term exclusive lease agreements at shopping centres
