@@ -1,51 +1,51 @@
 # Latest News
--  2023 AFCON: Yaya Toure snubs Super Eagles, picks favourites to win title
--  Özgür Özel Filistin’e gidiyor!
--  União de Leiria e Paços de Ferreira anulam-se em jogo antecipado
--  FUDBALSKA INJEKCIJA ZA KLUBOVE U PREMIJER LIGI: Milionski iznos iz UEFA stiže u Nogometni savez BiH
--  DEKLASIRAO FLUMINENSE: Manchester City postao klupski prvak svijeta
--  Bundesliga club Mainz appoint Jan Siewert full-time
--  Israel bombardeou áreas para onde ordenou que civis de Gaza fossem, aponta jornal
--  Ceny ropy wyraźnie wzrosły w tym tygodniu. Zmiany na rynku ropy naftowej
--  Diseñan Innovador Robot en Forma de Dragón para Combatir Incendios
--  JK POTROŠILA NEKOLIKO DESETINA HILJADA EVRA NA UKRASE: Jedan DETALJ u dvorištu svima privukao pažnju! VIDEO
--  Toripalimab by Shanghai Junshi Biosciences for Urethral Cancer: Likelihood of Approval
--  Maersk Sees Red Sea Shipping Chaos Lasting for Months
--  Toripalimab by Shanghai Junshi Biosciences for Metastatic Colorectal Cancer: Likelihood of Approval
--  Gesto solidario de Ziegel
--  Toripalimab by Shanghai Junshi Biosciences for Laryngeal Cancer: Likelihood of Approval
--  MEKANI PEŠKIRI ZA 10 MINUTA Uz najlakši trik će biti kao novi, samo obratite pažnju na jednu stvar
--  Fazio all’intervallo: «Bravi a restare in partita, dobbiamo essere più cattivi»
--  Generational Equity Advises Denille Industries in its Sale to Private Investor Group
--  Toripalimab by Shanghai Junshi Biosciences for Hypopharyngeal Cancer: Likelihood of Approval
--  Aaj Ka Kanya Tarot Card: कन्या राशि वाले अपनी योजना को लेकर निर्णय लेना शुरू करें, मिलेगी सफलता
--  Former council worker, 59, charged over ‘stealing more than £1million’ from Scots local authority
--  Власти США одобрили продажу ФРГ, Италии и Нидерландам 940 ракет для ПЗРК Stinger
--  Toripalimab by Shanghai Junshi Biosciences for Gallbladder Cancer: Likelihood of Approval
--  ¡Ya viene el refuerzo! Prevén que este sábado lleguen las nuevas patrullas para la Policía de Mazatlán.
--  Toripalimab by Shanghai Junshi Biosciences for Bladder Cancer: Likelihood of Approval
--  GOP House Candidate’s Local Bridge Expert Faces Election Charges
--  Toripalimab by Shanghai Junshi Biosciences for Cervical Cancer: Likelihood of Approval
--  UKOLIKO IMATE OVE SIMPTOME, ODMAH IDITE KOD DOKTORA! Lekari upozoravaju, ovi virusi haraju Srbijom
--  Brasil. Parlamento aprova orçamento e mantém meta de défice zero em 2024
--  Toripalimab by Shanghai Junshi Biosciences for Prostate Cancer: Likelihood of Approval
--  AMLO resalta avances en Venezuela tras acuerdos y relajación de sanciones
--  Celal Şengör ve Yunan, Amerikan benzerleri aynı masada
--  NXP-900 by Nuvectis Pharma for Esophageal Squamous Cell Carcinoma (ESCC): Likelihood of Approval
--  Colisão entre dois veículos faz três feridos em Cantanhede
--  NXP-900 by Nuvectis Pharma for Triple-Negative Breast Cancer (TNBC): Likelihood of Approval
--  Fatalne wieści dla Rakowa. Spełnia się najczarniejszy scenariusz
--  Вбив чотирьох пасажирок та зґвалтував дитину: в Одесі таксист отримав довічний строк
--  ASEAN iktiraf usaha MKM basmi kemiskinan
--  Pesawat C295MW tiba di Brunei Januari 2024
--  Suzana Pires sai em defesa de Paolla Oliveira após críticas na web: ‘Siga inspirando todas nós’
--  Франција го заврши повлекувањето на војниците од Нигер
--  Почина еден од ранетите во пукотницата на Карловиот Универзитет во Прага
--  اهلي السيسبان يكسب منافسه اتحاد22 في بطولة شهداء الشيخ عثمان
--  "Guruló dollárok?" Lepattant a kormány Márki-Zay Pterről
--  Kattilathu bestreitet Liebesbeziehung zu Amira Pocher
--  Program cetus sikap ingin tahu, teroka minat baharu
--  انٹرا پارٹی الیکشن پر الیکشن کمیشن کا فیصلہ، چیئرمین پی ٹی آئی نے حکمت عملی کا اعلان کر دیا
--  Sigurne pobede Baskonije i Olimpijakosa, Barselona preživela Žalgiris
--  Хавбек «Манчестер Сити» Родри признан лучшим игроком клубного ЧМ
--  Sport | Man City cruise to first Club World Cup triumph
+-  Météo: les températures prévues pour le samedi 23 décembre
+-  La picante respuesta de un carnicero a una movilera de LN+: "La carne bajó si, pero del camión"
+-  فيديو “طفل مصري يمد أبناء غزة بالخبز عبر ثقب” ليس صحيحا وهو مشهد من فيلم
+-  The best electric scooters for adults in 2024
+-  Dünya şampiyonu Manchester City!
+-  Uitslagen KKD: koploper Willem II wint van NAC Breda
+-  İzmir Bayraklı'da dehşet! Saldırgan, halasını satırla keserek öldürdü
+-  Manchester City campeón del Mundial de Clubes: otro récord para Guardiola
+-  Palæstinensisk udsending roser FN-resolution
+-  Palæstinensisk udsending roser FN-resolution
+-  Tokių nuostolių Rusija neturėjo nuo pavasario. „Visus surinkome. Gyvus ir mirusius.“ Kas vyko Pietų kryptimi (Foto)
+-  防衛装備品 輸出ルール緩和 共同開発の装備品輸出は議論継続へ
+-  Moradabad News: चार ट्रोमल में सिर्फ एक चलता मिला, कंपनी को नोटिस, जुर्माना के निर्देश
+-  Álvaro Morales revela por qué llegó Tuca a ESPN y no fue por la salida de Faitelson
+-  SM-liigan entinen pistekuningas sai ison sopimuksen
+-  "Prédateur", club "abasourdi"... Ce que l'on sait des suspicions de viols au sein du CS Neuville Football, près de Lyon
+-  Manchester United haluaa kaksi vahvistusta – katse tiukasti alelaarissa
+-  Силуанов считает, что серьезные изменения в налогах не нужны
+-  Nach IT-Migration: Postbank-Chaos zieht weitere Kreise
+-  Moradabad News: जमीन बेचने के नाम पर साढ़े 10 लाख रुपये की धोखाधड़ी
+-  Jammu News: क्रिसमस से पहले शोभायात्रा की धूम, सांता क्लॉस, देवदूतों के साथ किंग हैरोड की झांकियों ने किया मनमोहित
+-  LAJM I FUNDIT/ Aksident në Tiranë, përplaset një makinë e policisë
+-  I went to Ikea for the very first time. From the elaborate displays to an unexpected Christmas feast, here's what surprised me.
+-  محمد الضيف .. هكذا ظهر في الفيديو الذي زعمت اسرائيل عثورها عليه
+-  Jammu News: जीएमसी में कोविड परीक्षण शुरू, उधर तीन लहरें निकलने के बाद भी जीनोम सीक्वेंसिंग मशीन शोपीस
+-  'Maestro' focuses on famed conductor Leonard Bernstein — here's what his three children are up to now
+-  Dev finalin sonunda büyük olay! Felipe Melo ile Kyle Walker birbirine girdi
+-  Avustralya'da Filistin destekçilerinden İsrailli gemiye protesto
+-  Dışişlerinden GKRY'nin Deniz Saha Planlaması'na tepki
+-  İzlanda'da yanardağ patlaması nedeniyle tahliye edilenlerin evlerine dönmesine izin verildi
+-  Confira os horários de funcionamento dos pontos extras de vacinação no feriado de Natal
+-  İşgalci İsrail ordusu Nusayrat Mülteci Kampı'nı bombaladı
+-  Advanced Stat-Based Rankings Prove Popular Atlanta Falcons Theory To Be Correct: It Might Just Be on Arthur Smith
+-  Jammu News: जम्मू मेरी जिंद, कश्मीर मेरी जान ...प्रस्तुति पर झूमे दर्शक
+-  Tussenstand Serious Request nu al op ruim 3,5 miljoen euro, ruim een miljoen meer dan eindstand vorig jaar
+-  Tussenstand Serious Request nu al op ruim 3,5 miljoen euro, ruim een miljoen meer dan eindstand vorig jaar
+-  This startup wants to turn your classic car into an EV using scrapped Tesla batteries
+-  Junta Nacional de Justicia elije a Antonio de la Haza como nuevo presidente para el periodo 2024
+-  손흥민 새 호위무사 영입 계획 청신호…‘첼시가 성골 MF 매각 의향’
+-  الخارجية الفلسطينية تصف اعتماد قرار مجلس الأمن بأنه "خطوة نحو إنهاء العدوان" وتأمين وصول المساعدات إلى غزة
+-  LIVE WK darts | Wattimena op randje van afgrond, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
+-  LIVE WK darts | Wattimena op rand van afgrond, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
+-  Rivers Elders Drag Tinubu, Fubara, INEC, Others To Court
+-  Израел е готов за едноседмично примирие с Хамас в замяна на заложници
+-  Especialista revela como escolher vinhos para a ceia de Natal
+-  Es oficial: Jonatan Viale confirmó su llegada a TN y aseguró que se trata de un «sueño»
+-  Casa pega fogo no DCTA, em São José, e dois animais de estimação morrem no incêndio
+-  Côtes-d'Armor: un homme mis en examen pour le meurtre de sa femme 13 ans après les faits
+-  Podcast: Elon Musk’s Twitter drama leaks to Tesla, wireless charging, the dealer problem, and more
+-  Jammu News: पांचवें दिन देवताओं को आहुतियां अर्पित, उमड़े श्रद्धालु
