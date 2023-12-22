@@ -1,11 +1,51 @@
 # Latest News
--  IMGW ostrzega: silny wiatr i oblodzenie
--  Ankara'da pazar günü bazı yollar trafiğe kapatılacak
--  Manchester City, FIFA Kulüpler Dünya Kupası şampiyonu oldu!
--  AB'den Bulgaristan'a 1,2 milyar avroluk destek
--  Cumhurbaşkanı Yardımcısı Yılmaz: Rezervlerimiz 142,5 milyar dolara yükseldi
--  סיטי נכנסה לספרי ההיסטוריה, פודן: "משחק בלתי רגיל, זה ענק"
--  ¿Buscas trabajo nuevo para 2024? En el Portal del Empleo encontrarás cientos de vacantes
--  81-year-old Ellen Byas says getting a phone call at Christmas can be ‘lifesaving’ for the elderly
--  المقاومة تكبد الاحتلال قتلى جدد وتجبره على التراجع
--  Premios Óscar 2024: esta es la lista de películas preseleccionadas para recibir la estatuilla
+-  In Pictures: Mungret St Paul's see off Monaleen in Limerick Premier U21 hurling final
+-  400'ü Aşkın Kimsesiz Bebeği Acımadan Öldüren Seri Katil Amelia Dyer'ın Korkunç Hikâyesi
+-  Insomniac Games, Wolverine Oyununun Sızmasına Neden Olan Hacklenme Olayıyla İlgili Sessizliğini Bozdu
+-  MIMORIADNE Ďalšia obrovská dráma v Prahe! Muž mal mať pri sebe granát: Zasahovala polícia
+-  Chcete dodať vyprážanému kaprovi šmrnc? S týmito nápadmi určite zabodujete!
+-  Pisté par d'autres clubs, Lucas Beraldo ne veut que le PSG
+-  Dominik Mathé quittera le PSG Handball à la fin de la saison
+-  Le nouveau président des Corinthians ne décolère pas du futur départ de Moscardo
+-  Canal Supporters vous propose sa newsletter PSG sur Whatsapp
+-  PSG / Real Sociedad:La billetterie ouverte !
+-  Coupe de France:Le PSG sur une pelouse de rugby face à l'US Revel
+-  Damien Comolli (président du TFC) fait le point sur l'organisation du Trophée des Champions
+-  Les nouvelles confidences de Sergio Rico sur sa période de convalescence
+-  LdC – La Real Sociedad concède un triste match nul à Cadix
+-  Darts-WM: Hempel gelingt spektakuläres Comeback gegen van den Bergh
+-  Video/ Fluminense shkatërrohet në finale, City në majën e botës: titulli i pestë për Guardiolën në 2023-in
+-  Scammers weaponising picture of dog hit by car in bid to trick Australians out of cash and data
+-  Motorizado pierde la vida en accidente en la Tumba Muerto
+-  FC 24 Winter Wildcards calendar with new items for Gullit, Havertz and Mbabu
+-  Zugriff bei Anti-Terror-Einsatz: Frankreich setzt "extreme Wachsamkeit" vor Feiertagen um
+-  Manchester City, campeón del Mundial de Clubes: goleó 4-0 al Fluminense con anotación veloz de Julián Álvarez
+-  «Манчестер Сити» — первый английский клуб, выигравший за один год пять трофеев
+-  রেহমান সোবহানের বক্তৃতা ও মুক্তিযুদ্ধের বই প্রকাশনা আজ
+-  El aficionado que ignoró a Lewandowski por darle un abrazo a Fidalgo en América vs Barcelona
+-  Secretaria de MT divulga lista de aprovados no seletivo para 4,4 mil vagas nas escolas militares
+-  Zbardhet LISTA/ Taksa që do paguajnë nga 1 janari avokatët, mjekët, IT, mësuesit
+-  Vijeće sigurnosti UN-a donijelo važnu rezoluciju o Gazi. SAD i Rusija bili suzdržani
+-  UN Security Council passes Gaza aid resolution, but without calling for a cease-fire
+-  How to get Kleavor in Pokemon Scarlet & Violet: The Indigo Disk
+-  Best jumpshots in NBA 2K24: Curry, Kyrie & more
+-  Novi dan: Pandemija agresije
+-  Tenemos que reducir el consumo de azúcares y carbohidratos en fiestas decembrinas: Sedesa
+-  ‘Happy Christmas for remains’ as skulls stolen by academics return home to Irish island for first time in 133 years
+-  Córdoba: hondo pesar por la muerte del profesor emérito de la UNC, Raúl Enrique Altamira Gigena
+-  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
+-  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
+-  De Laurentiis: Semjum við Osimhen og kaupum minnst þrjá leikmenn
+-  Oscars’ Laughing Matter: How Best Picture Could Embrace Comedies and ‘Barbie’ Can Tie the All-Time Nomination Record
+-  Weltsicherheitsrat: Forderung nach mehr humanitäre Hilfe für den Gazastreifen
+-  1 year from reopening, 'GMA' views Notre Dame Cathedral's new spire
+-  Último pleno ¿municipal?: "Amnistía, Bildu, caca, culo, pedo, pis"
+-  Fiscalía cotejará ADN con seis familiares de Amelia Sanjurjo
+-  Gasi se Hyperloop One, u koji je ulagao i Richard Branson
+-  Marin Katušić, direktor razvoja sadržaja Indexa, novi je član Izvršnog odbora HUDI-ja
+-  How many women has Jason Oppenheim hooked up with on Selling Sunset?
+-  لصحيفة الشرق الأوسط.. النايض: الطبقة السياسية المتنفذة تحرم الشعب الليبي من الانتخابات
+-  18-year-old shot and left to die outside her family's home in Fridley
+-  "A total game-changer" - AWS product chief on what AI can actually bring to your business
+-  "A total game-changer" - AWS product chief on what AI can actually bring to your business
+-  Get these HP, Lenovo, and Microsoft laptops for as low as $449 as a late Christmas present
