@@ -1,11 +1,11 @@
 # Latest News
--  크리스마스 앞두고 ‘티니핑월드’ 만든 이 회사 샀다[주식 초고수는 지금]
--  הפועל באר שבע רוצה להציל את העונה, גיא בדש עשוי לקבל הזדמנות
--  为入门级用户打造舒适均衡的用机新体验 moto g34评测
--  红白之间二元对决 双面纹素皮无缝拼接 iQOO Neo9图赏
--  아이즈원 마지막 보석 '강혜원'도 터졌다…'소년시대' 종영소감 들어보니 [일문일답]
--  디지털플랫폼정부, 초거대AI로 공공서비스 혁신 나선다
--  [2023 IT혁신상품] 유아이패스, 자연어 이용 일상 작업 자동화하는 '오토파일럿'
--  Terkini: Ekonom Kasih 3 Catatan soal PSN Era Jokowi, Nasib Aset Negara di Jakarta Setelah Ibu Kota Pindah ke IKN
--  Jo Koy to host Golden Globes awards show
--  French President Emmanuel Macron Invited To Be Chief Guest At 2024 Republic Day Celebrations
+-  Cem Karaca’nın Gözyaşları filmine açılan ilk dava sonuçlandı
+-  Raport: Rynek bankowości elektronicznej – III kw. 2023 r.
+-  Memes 2023: 'लप्पू सा सचिन' से 'मोय-मोय' तक, इन भयकंर वायरल मीम्स ने गुदगुदाया
+-  MTN, CardinalStone, VFD Group, others get accolades at NGX Made of Africa Awards
+-  ‘男 미들블로커’ 리빙 레전드 등번호 30번까지 올라간다? “5000득점 도전해보고 싶네요.”
+-  City of Yarra Council under fire for 'political correctness gone mad' after it banned childcare workers from receiving Christmas gifts from grateful families
+-  Woking council tax could rise by 10% after Government green light
+-  Understaffed Guildford care home told to improve as residents 'wait for care'
+-  Newlywed Surrey couple urged to 'stay down' amid Prague shooting
+-  Met Office, BBC Weather and WX Charts give updated verdict on snow in Surrey this Christmas
