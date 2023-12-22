@@ -1,51 +1,51 @@
 # Latest News
--  افتتاح قسم لاصدار الجواز الالكتروني في قضاء بلد بصلاح الدين
--  العراق يسفر 41 شخصا
--  بالصور: العتبة الحسينية تنهي مهرجانا دينيا في واسط والسيد رشيد الحسيني يعتبره تأصيلا للوعي الديني
--  مجلس الأمن يمرر مشروع قرار بشأن توسيع المساعدات لغزة
--  وصفة تعيد الشباب لبشرتك
--  هكذا صنّعت القسام سلاحها الجوي
--  Pri pobreží Grécka zachránili 81 ľudí uviaznutých na lodi
--  V Katedrále svätého Víta, Václava a Vojtecha bude omša za obete streľby
--  Jeden z najčastejších PROBLÉMOV, ktoré spôsobujú vianočné dobroty: Otvorte chladničku a zbavte sa pálenia ZÁHY
--  Κριστιάνο Ρονάλντο: Άφησε πίσω του τον Χάαλαντ και κυνηγάει Μπαπέ και Κέιν για το «Χρυσό Παπούτσι» (vid)
--  BEOGRAĐANI POBESNELI Objavljen snimak sigurnosnih kamera, muškarac ušao u zgradu. pa uradio nešto nečuveno (VIDEO)
--  SNP ministers accused of ‘sneaky’ move by plugging huge budget gap with millions raided from sale of offshore wind plots
--  تصريحات أولمرت تضع نتنياهو في أزمة: “خياران أمام إسرائيل لا ثالث لهما”
--  Preocupante el estado de salud de la Princesa Mette Marit de Noruega
--  Soccerladuma | Wydad 'Choose' New Chiefs After President's Arrest
--  Кілька десятків застарілих F-16 не допоможуть вигнати росіян з України, - полковник ЗСУ
--  أستون فيلا الإنجليزي يهنئ الأهلى على برونزية العالم
--  Air Peace To Resume China Direct Flight
--  Arkansas Board of Corrections requests Gov, Sanders to activate National Guard for assistance
--  Nirvanabebisen till domstol – igen
--  Nirvanabebisen till domstol – igen
--  Marktwert verdreifacht: Ex-Bayern-Talent schießt durch die Decke – Geldregen aus Italien?
--  Съветник по правните въпроси на президента: Промените в Конституцията са неясни в частта за служебното правителство
--  BBC sports presenter reveals huge personal news – and is counting down to St Patrick’s Day
--  Προφυλακίστηκαν 10 άτομα για το κύκλωμα διακίνησης κοκαΐνης: Καρέ-καρέ η δράση του επίορκου λιμενικού
--  BRBLJIVICE BEBICE ŠIROM SVETA Ovo su neke od najsmešnijih prvih reči, ne govore svi samo mama i tata!
--  Controladora do Pornhub faz acordo na Justiça e aceita pagar US$ 1,8 milhão em caso de tráfico sexual nos EUA
--  بعد الممر البري.. مباحثات لاستخدام ميناءي العقبة أو دبي بدلا عن موانئ الاحتلال
--  Il governo: sì ai tempi parziali anche per i magistrati
--  Microsofts drag riskerar göra 240 miljoner datorer till skrot
+-  Wat kan AI voor een alledaags gezin betekenen? Een overzicht van 's ochtends vroeg tot 's avonds laat
+-  VN-Veiligheidsraad voor creëren voorwaarden einde strijd in Gaza
+-  EU-bureau: Neelie Kroes geen regels overtreden met lobbywerk Uber
+-  “일어나서는 안 되는 일”… UCL 4회 우승팀, 아마추어 상대로 2-3 ‘충격’ 패배
+-  理智線斷了才發現誤會孩子：阿德勒學者提「重要4C」信念
+-  和另一半相處「心想事成」沒那麼難！善用這3種說話技巧，讓彼此愈愛愈甜蜜
+-  OpenAI執行長，年末17點建議：當你看到胡說八道和官僚，請群起抵制它
+-  信義誠品將於12/24平安夜熄燈：買書看書外最多人來做「這件事」
+-  通膨時代年收百萬夠養家嗎？這2件事是關鍵
+-  日本羽田機場啟動QR Code掃碼入境，2024年1月試行
+-  超車「度假天堂」泰國！越南搶下台客旅遊熱點第四名
+-  Netflix、Disney+串流爭霸，華納探索、派拉蒙將合併對抗
+-  莊子如何解讀「天生我材必有用」？重點在你怎麼用
+-  成功人士想擺脫舊有舒適圈？先看穿「螃蟹效應」的心態
+-  FNM en Alstom tekenen contract voor levering van twee waterstoftreinen
+-  FNM und Alstom unterzeichnen Vertrag über die Lieferung von zwei Wasserstoffzügen
+-  Multa de casi 100 mil pesos por quemar basura en lotes baldíos
+-  Hallan abandonados 110 kilos de marihuana en Guadalupe y Calvo
+-  Pide AMLO a Biden diálogo con Cuba y Venezuela por migración
+-  Russische Drohnen greifen ukrainische Hafenstadt Odessa an
+-  Cuba autoriza abrir el camino a la eutanasia
+-  Futuros de la soja y los cereales operan dispares antes de las vacaciones de fin de año
+-  El Banco Mundial concede a Malawi 240 millones de dólares para resiliencia climática
+-  Se buscan inversores de Fisker para reclamaciones por discrepancias financieras
+-  Trump presionó a funcionarios de Michigan para que no certificaran triunfo de Biden en 2020: informe
+-  Saltillo: perro ataca a abuelita y a su nieto mientras recolectaban plástico para vender
+-  الیکشن کمیشن کے فیصلے پر چئیرمین پی ٹی آئی بیرسٹر گوہر کا بڑا اعلان
 -  Sunak defends rowback on family visa earnings threshold amid anger on Tory right
--  BJP के राष्ट्रीय पदाधिकारियों की मैराथन बैठक, PM मोदी भी हुए शामिल
--  VIDEO: Brozović zabio prvi prvenstveni gol za Al Nassr, Ronaldo mu asistirao pa burno slavio s Hrvatom
--  Kal Ka Mithun Rashifal: बेरोजगारों को मिलेगा रोजगार, मिथुन राशि वाले मानसिक तनाव से बचें
--  YK:n turvallisuusneuvosto vaatii sallimaan humanitaarisen avun pääsyn Gazaan
--  Προφυλακιστέοι οι 10 κατηγορούμενοι για το κύκλωμα κοκαΐνης: Αναμεσά τους και ο διοικητής της Δίωξης Ναρκωτικών
--  THY'den sefer iptali açıklaması!
--  Libanski premijer spreman da razoruža Hezbolah, ako se Izrael povuče
--  Κατολίσθηση στον Ισθμό της Κορίνθου – Δείτε βίντεο
--  Acuerdan capacitaciones para aprovechar auge turístico y comercial de Piribebuy
--  Γαλλία: Καθηλώθηκε αεροπλάνο με 303 επιβάτες – Υποψίες για trafficking
--  BOLNICA U MANČESTERU: ''Crveni đavoli'' bez pola tima u naredna tri meča
--  Should I encourage wife’s golf coach to offer her fun and foreplay?
--  OVAKO JE LEPA BRENA IZGLEDALA PRE 40 GODINA Svi u Jugoslaviji bili su zapanjeni kad su je takvu videli
--  Rohamra indultak a magyarok, már készültek egy ideje
--  ‘Is he coming home for X-mas?’ Israel demands release of baby Kfir as Hamas vow NO hostages will be freed until war ends
--  Luis Suarez potpisao za Inter i pridružio se Messiju
--  Banksy estrenó una obra contra la guerra… y la robaron horas después
--  法國男子槍殺情敵後埋屍田野 因一原因露出馬腳被捕...
--  World News | Mexico's President is Willing to Help with Border Migrant Crush but Wants US to Open Talks with Cuba
+-  Wham! make UK chart history as Last Christmas lands top spot
+-  Konya'da husumetlisi tarafından tabancayla vurulan kişi hayatını kaybetti
+-  מנהרת טרור מסועפת - מנקודת מבטו של כלב עוקץ | תיעוד טרם השמדתה
+-  Microsoft, OpenAI partnerstvo istraženo u Ujedinjenom Kraljevstvu i SAD-u
+-  Drones on lookout for fire hazards
+-  Amsterdamse AEX-index gaat met verlies kerstdagen in
+-  RTVE retransmitirá 400 horas de los Juegos de París 2024
+-  استئناف القتال في شرق الكونغو الديمقراطية غداة الانتخابات
+-  Steam Winter Sale 2023: Top 5 Games Under $10
+-  Aussies’ cyber sales obsession continues with record breaking month for online shopping
+-  A lesson in payphone use
+-  Garcia growing at the Saints
+-  Introducing the 2023 Don Deeble Sports Star finalists
+-  A new Russian military formation in Africa with the same name as a Nazi unit is trying to recruit former Wagner fighters and Ukraine war vets
+-  Doch Streik bei spanischer Fluglinie Iberia Anfang Januar
+-  Zimbabwe Tops Global Alcohol Consumption Rankings: Wise Voter Survey Reveals Startling Figures
+-  The full list of major US companies slashing staff next year, from Nike to Intel
+-  Costa fala em 455 mortes nas estradas e apela a condução responsável no Natal
+-  Ten festive things to try shoving up yourself this Christmas
+-  Grandparents chuckle heartily at suggestion they do Dry January
+-  Christmas sex act vouchers destined to expire unused in drawer
+-  It’s been a pretty good year for me sexually, says married man who’s had three shags in 2023
