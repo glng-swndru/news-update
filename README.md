@@ -1,51 +1,51 @@
 # Latest News
--  Лавров: Западът не успя да изключи Русия от ЮНЕСКО
--  الإعلان عن تغيير في القيادات العسكرية (أسماء)
--  Кметът на Ямбол се срещна с младите надежди на ямболския баскетбол
--  MSB acı haberi duyurdu: 3 asker şehit oldu
--  Füzulidə nəhəng stadion tikiləcək
--  Саакашвили: США и ряд стран Европы готовятся к прямому вступлению в войну на территории Украины
--  Congreso de Brasil aprueba proyecto de presupuesto para 2024
--  Informe de resultados: AAR Corp registra un fuerte crecimiento y adquiere Triumph Support
--  Informe de resultados: Apogee Enterprises presume de sólidos resultados en el tercer trimestre de 2024
--  Informe de resultados: Mission Produce navega por los cambios del mercado en el cuarto trimestre de 2023
--  Informe de resultados: BlackBerry esboza un plan de separación y apunta a un flujo de caja positivo
--  Dorinel Munteanu nu știe dacă va continua la Oțelul, după eșecul cu ultima clasată – 10 jucători părăsesc echipa
--  Kızıldeniz'de Husi saldırıları: Gemiler rotayı değiştirdi
--  ఆర్టీసీ డ్రైవర్‌కు జైలు, జరిమానా
--  Fall of Prosperity Indicator ‘Unprecedented Outside a Recession,’ Says National Bank
--  لبنان: ملتزمون بالقرارات الدولية بشرط انسحاب إسرائيل من أراضينا
--  В Украине назвали страхи лидеров Кремля
--  Παρατείνεται η σύμβαση ΟΑΣΑ- ΚΤΕΛ για δρομολόγια στην Αττική: «Πράσινο» από το Ελεγκτικό Συνέδριο
--  MAJA NIKOLIĆ BEZ DLAKE NA JEZIKU O EVROVIZIJI I KOLEGAMA: Neka ode neko ko zna da peva, svako bira način da dođe do cilja
--  KOEN DAO ČVRSTO OBEĆANjE: Izrael nastavlja sa borbama do oslobađanja svih talaca
--  Ibrahimovic è a Salerno! Prima trasferta per il nuovo dirigente rossonero
--  أستون فيلا بالقوة الضاربة في مواجهة شيفيلد يونايتد بالدوري الإنجليزي
--  जहां से हमास आतंकियों को मिलता था कमांड, इजरायल ने तबाह किया पूरा आतंकी शहर
--  ఆంధ్రుల భవిష్యత్తు కోసమే టీడీపీ- జనసేన పొత్తు
--  Vijeće sigurnosti UN-a usvojilo rezoluciju o hitnoj humanitarnoj pomoći Gazi
--  명색이 레알 마드리드 주장인데… 리그 선발 5경기 중 2경기에서 다이렉트 퇴장
--  أنور قرقاش: الإمارات حققت اختراقاً تاريخياً باعتماد مجلس الأمن قراراً يعزز الوضع الإنساني في غزة
--  జీలుగుమిల్లి ఎన్‌హెచ్‌ 365 విస్తరణ
--  Новый министр внутренних дел Польши планирует укреплять забор на границе с Беларусью
--  Fayetteville Police Department searching for missing teen
--  Ruski automobil budućnosti – masovna proizvodnja bi počela 2025. godine
--  Acusan a empresa aérea Sistem de bloquear cambio de sindicato
--  Ekspert alarmuje: Polsko, przygotuj się na ponowne uderzenie Putina i Łukaszenki
--  MSB acı haberi duyurdu: 3 askerimiz şehit oldu
--  Kartoffelsalat mit Würstchen erneut teurer als im Vorjahr
--  Mladić u Zagrebu ubio oca koji mu je godinama tukao majku. Osuđen na 2 godine i 8 mjeseci zatvora
--  Cristina Pacheco rompió con los estereotipos: Laura Emilia Pacheco
--  Acı haber: 3 asker şehit oldu!
--  Toronto Officer Acquitted in 2017 Assault Facing New Charge
--  Ministri i Drejtësisë mirëpret në Tiranë ambasadorin e BE, zbardhen detaje nga takimi
--  Tráiler saca del camino a paisanos y se da a la fuga, en la carretera a Monclova
--  ON NE NAJOMRAŽENIJI DIREKTOR U OVOM TRENU &quot;Radnici moraju da rade duže sati, posao i život su jedno&quot;
--  గిరి ప్రదక్షిణకు తరలిన..సప్త గిరివాసుడు
--  Coup de filet antiterroriste : cinq personnes interpellées ce vendredi à la veille du week-end de Noël
--  ఎంపీ అభ్యర్థులు కావలెను
--  انطلاق الشوط الثاني من مباراة مانشستر سيتي ضد فلومينينسي
--  కేంద్ర మాజీ మంత్రి వెంకటస్వామికి ఘన నివాళి
--  Söder und Wagenknecht legen in neuer Umfrage deutlich zu – Ampel schmiert ab
--  Söder und Wagenknecht legen in neuer Umfrage deutlich zu – Ampel schmiert ab
--  ‘It’s so cosy’ in my VW Golf after I transformed it into a campervan using items anyone can buy at The Range
+-  Wife identifies man killed in deputy-involved shooting in Franklin County
+-  News24 | Here are the Powerball and Powerball Plus results
+-  Hochwassergefahr: Wind und Regen auch in den kommenden Tagen
+-  El centro de Melilla se llena de todo el arte flamenco con el flashmob de villancicos
+-  ستاروں کی روشنی میں آپ کا آج (ہفتے) کا دن کیسا رہے گا؟
+-  Украина хориждаги эркакларни сафарбар қилиш бўйича қонун лойиҳасини тайёрламоқда .
+-  Dodik o samostalnosti RS: Jedne noći ćete to gledati uživo
+-  БМТ Хавфсизлик Кенгаши Ғазода ўт очишни тўхтатиш учун шарт-шароит яратишга чақирувчи резолюцияни қабул қилди .
+-  Kaushambi News: महिला बंदियों को दिया शाल, बच्चों को बांटी फल व किताबें
+-  Kaushambi News: शिक्षा विभाग के करीब 4500 कर्मचारी कराएंगे बोर्ड परीक्षा
+-  सांसों पर आफत : एक्यूआई पहुंचा 344, क्रिसमस तक राहत के आसार नहीं
+-  Jhajjar-Bahadurgarh News: संजय सिंह के कुश्ती संघ अध्यक्ष बनने पर खुशी जताई
+-  Jhajjar-Bahadurgarh News: तय समय पर काम नहीं किया तो वेतन से कटेंगे पांच हजार रुपये
+-  Jhajjar-Bahadurgarh News: साड़ी का फंदा लगाकर महिला ने दी जान, पति सहित छह पर केस
+-  2047 तक देश को दुनिया का धाकड़ देश बनाने के लिए आगे आएं युवा शक्ति : धनखड़
+-  Jhajjar-Bahadurgarh News: नहीं रुक रही एचपीसीएल के टैंकरों से डीजल की चोरी
+-  Jhajjar-Bahadurgarh News: पिस्तल के बल पर बैंक कर्मी से 78 हजार लूटे
+-  Jhajjar-Bahadurgarh News: कलेक्टर रेट...चार तहसीलों में कोई आपत्ति नहीं, एक जनवरी से महंगी होगी जमीन
+-  Jhajjar-Bahadurgarh News: गीता महोत्सव में बिखरी हरियाणवी कला की छटा
+-  Rishikesh News: एबीवीपी ने एसडीएस विवि के कुलपति का पुतला फूंका
+-  Rishikesh News: दो हाथियों की मौत के बाद वन विभाग ने बढ़ाई सतर्कता
+-  Rishikesh News: जरूरतमंद 125 छात्र-छात्राओं को बांटे ऊनी वस्त्र
+-  Rishikesh News: श्लोक वाचन, संभाषण, सुलेखन व चित्रकला में विद्यार्थियों ने दिखाया हुनर
+-  Jind News: मासूम शर्मा के भाई के घर में घुसकर हवाई फायरिंग करने के आरोप में पांच आरोपी गिरफ्तार
+-  Jind News: विकसित भारत संकल्प यात्रा के तहत लोगों को बांटे बीपीएल व आयुष्मान कार्ड
+-  Dehradun News: उत्तराखंड के सौरभ सीपीसीबी में बने वैज्ञानिक, बढ़ाया मान
+-  Dehradun News: नरेंद्रनगर बाजार में जाम की समस्या से व्यापारी परेशान
+-  Dehradun News: तीन डिग्री पहुंचा चकराता का न्यूनतम तापमान
+-  Dehradun News: नरेंद्रनगर में दो दिवसीय इंस्पायर अवार्ड प्रतियोगिता शुरू
+-  Man allvarligt knivskuren på hotell
+-  Dehradun News: घूम रहा पुलिस का रडार, तीनों चोर अब भी फरार
+-  Dehradun News: रातभर घूमता रहा दमकल, नहीं मिला गांव
+-  Dehradun News: तान्या ने जीता स्टूडेंट ऑफ द ईयर का खिताब
+-  Mathura: पाक से आकर 63 वर्षों से वीजा पर रह रही वृद्धा का हुआ निधन, खुफिया विभाग की कार्यशैली पर प्रश्न चिन्ह
+-  Dehradun News: किसानों ने बताई समस्या, मंडी समिति के अध्यक्ष ने कहा- जल्द होगा समाधान
+-  Dehradun News: दून अस्पताल में सुरक्षा कर्मचारी, सफाई कर्मचारी और सिस्टर को नोटिस जारी
+-  एकाग्रचित्त होकर सुननी चाहिए कथा : संजय जुगलान
+-  Lakhimpur Kheri News: तकनीकी खराबी से 20 घंटे ठप रही मिल, परेशान हुए किसान
+-  25 दिसंबर को सुशासन दिवस मनाया जाए : सिद्धार्थ अग्रवाल
+-  Lakhimpur Kheri News: आरोपी ने थाने के हवालात में खाया जहरीला पदार्थ
+-  عاجل.. توضيح من الزكاة والضريبة بخصوص برنامج "بناء التكاليف" والانضمام لسوق العمل
+-  Dehradun News: सीएचसी को मिले सर्जन, पर नहीं हो रहे ऑपरेशन
+-  Lakhimpur Kheri News: जंगली हाथियों ने रौंदी तीस बीघा गन्ने की फसल
+-  Dehradun News: अवैध कटान की शिकायत पर अधिकारियों ने की पेड़ों की गिनती
+-  Lakhimpur Kheri News: दुष्कर्म के बाद नाबालिग की हत्या करने वाले को मिली उम्रकैद
+-  विंटरलाइन कार्निवाल : पार्किंग, यातायात, सुरक्षा का प्लान तैयार करें : डीएम
+-  Dehradun News: नए साल में अपने छात्रावास भवन में शिफ्ट होंगी 100 बालिकाएं
+-  Dehradun News: लोकगीत में सुधांशु और लोकनृत्य में आकांक्षा अव्वल
+-  Dehradun News: संदिग्ध हालत में पंखे से लटका मिला युवती का शव
+-  Shahjahanpur News: जनपद रत्न से नवाजी जाएंगी लॉन टेनिस खिलाड़ी माहिका
