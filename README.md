@@ -1,51 +1,51 @@
 # Latest News
--  احذرها.. 5 أطعمة تسبب تهيج القولون العصبي قبل النوم
--  В Питере обсудили творческое развитие инвалидов Запорожкой области
--  В Германии раскрыли обман Киева в заявлениях о ситуации на фронте
--  מועצת הביטחון אישרה הצעה להגדלת הסיוע ההומניטרי לעזה
--  Morrissey announces 30th anniversary reissue of Siouxsie Sioux duet ‘Interlude’
--  British swim great Peaty to make world titles return
--  Letnie opony zimą – niedbalstwo i groźba odpowiedzialności
--  Sikkerhedsråd har vedtaget Gaza-resolution
--  Sikkerhedsråd har vedtaget Gaza-resolution
--  Così il bilancio del Comune trasforma il territorio di Montesacro
--  تقارير.. ريال مدريد مستمر في مراقبة إيكاردي
--  این اے ون چترال سے آٹھ اور صوبائی اسمبلی کی دونشستوں کے لئے 22 امیدواروں نے کاغذات نامزدگی جمع کرادی،
--  Kolumni: Ei aina voi tietää
--  Пирин Благоевград договори пет контроли по време на паузата
--  Krieg in Nahost: UN-Sicherheitsrat fordert mehr humanitäre Hilfe für Gaza
--  What Stores Are Open and Closed on Christmas Eve?
--  Канчельскис заявил, что подпишет контракт с «Мурас Юнайтед» через пару дней
--  SSSCG: Medenici novi mandat
--  مہنگائی سے پریشان شہریوں کیلئے بُری خبر آگئی
--  لاعبان فقط من مانشستر سيتي شاركا أساسيين في جميع النهائيات
--  Ted Nugent says Taylor Swift’s music is “all poppy nonsense” with “no fire” and “no sensuality”
--  “الزوي” يتفقد أملاك الدولة والمنازل المتضررة جراء الفيضانات في درنة
--  Dupla é presa suspeita de sequestro e homicídio, e armas são apreendidas
--  Universal banks on 'Migration' to expand its animation lead over Disney
--  A reventar la Cuarta por compras navideñas
--  NYT: Украинските катери формират зона за сигурност в Черно море
--  CT fires: City's disaster management urges residents to be ready for evacuation
--  "كنت مزنوق في قرشين".. حل لغز سرقة كافيه بالشيخ زايد
--  مندوبة الإمارات بمجلس الأمن: غزة على وشك المجاعة وتوسع الصراع أصبح محتملا
--  مجلس الأمن يعتمد قرار بشأن توسيع المساعدات الإنسانية إلى قطاع غزة
--  الطبيب الشرعي يحسم واقعة وفاة ربة منزل فجأة فى الدقهلية
--  المقاومة تستهدف قوة صهيونية راجلة من 5 جنود بقذيفة الياسين 105 بشمال غزة
--  بعد "واقعة اللوحات".. ضبط 5 متهمين بالتنقيب عن الآثار في الدقهلية
--  "الإسكان": 5256 وحدة سكنية بسكن لكل المصريين
--  خبير سياسات دولية: استفزاز مصر لن يحقق استقرارًا في الشرق الأوسط
--  "الصحة" تضخ أكثر من 100 ألف جرعة من لقاح الإنفلونزا الموسمية
--  الصحة: حملة "100 يوم صحة" قدمت أكثر من 56 مليونًا و244 ألف خدمة مجانية
--  Saradnja sa BH Telecomom: Digitalizacija obrazovnog sektora KS
--  Concordia Offers New Award of up to $4,000 in Response to Quebec Tuition Hike
--  Wall Street status: Nike dumpes for svag prognose i ellers grønt marked
--  Magnús Már og Arnar Gunnlaugs á X977 á morgun
--  IVAN DAJE VIKENDICU I PLAC ZA 12.500 EVRA: Pravi raj, a prvog komšije ni na vidiku
--  Двама задържани за обира на 5 млн. лева от инкасо в София, издирват Турчина
--  Forge Group, Inc. Announces Share Repurchase Plan
--  VIDEOROZHOVOR Vicepremiér Kaliňák: S porušovaním práv neprestali ani po voľbách, preto chceme expresne zrušiť Lipšicov úrad
--  Irán zatvoril veľké kníhkupectvo v Teheráne pre porušenie zákona o hidžábe
--  ‘Een doos van Pandora’: wat als het Westen 270 miljard euro aan bevroren Russische tegoeden vrijmaakt voor Oekraïne?
--  2023: de ondergang van een politieke generatie
--  Funt blisko najniższego poziomu od trzech lat. Będzie jeszcze taniał?
--  Push to Disqualify Trump Pits Democracy Against the Rule of Law
+-  افتتاح قسم لاصدار الجواز الالكتروني في قضاء بلد بصلاح الدين
+-  العراق يسفر 41 شخصا
+-  بالصور: العتبة الحسينية تنهي مهرجانا دينيا في واسط والسيد رشيد الحسيني يعتبره تأصيلا للوعي الديني
+-  مجلس الأمن يمرر مشروع قرار بشأن توسيع المساعدات لغزة
+-  وصفة تعيد الشباب لبشرتك
+-  هكذا صنّعت القسام سلاحها الجوي
+-  Pri pobreží Grécka zachránili 81 ľudí uviaznutých na lodi
+-  V Katedrále svätého Víta, Václava a Vojtecha bude omša za obete streľby
+-  Jeden z najčastejších PROBLÉMOV, ktoré spôsobujú vianočné dobroty: Otvorte chladničku a zbavte sa pálenia ZÁHY
+-  Κριστιάνο Ρονάλντο: Άφησε πίσω του τον Χάαλαντ και κυνηγάει Μπαπέ και Κέιν για το «Χρυσό Παπούτσι» (vid)
+-  BEOGRAĐANI POBESNELI Objavljen snimak sigurnosnih kamera, muškarac ušao u zgradu. pa uradio nešto nečuveno (VIDEO)
+-  SNP ministers accused of ‘sneaky’ move by plugging huge budget gap with millions raided from sale of offshore wind plots
+-  تصريحات أولمرت تضع نتنياهو في أزمة: “خياران أمام إسرائيل لا ثالث لهما”
+-  Preocupante el estado de salud de la Princesa Mette Marit de Noruega
+-  Soccerladuma | Wydad 'Choose' New Chiefs After President's Arrest
+-  Кілька десятків застарілих F-16 не допоможуть вигнати росіян з України, - полковник ЗСУ
+-  أستون فيلا الإنجليزي يهنئ الأهلى على برونزية العالم
+-  Air Peace To Resume China Direct Flight
+-  Arkansas Board of Corrections requests Gov, Sanders to activate National Guard for assistance
+-  Nirvanabebisen till domstol – igen
+-  Nirvanabebisen till domstol – igen
+-  Marktwert verdreifacht: Ex-Bayern-Talent schießt durch die Decke – Geldregen aus Italien?
+-  Съветник по правните въпроси на президента: Промените в Конституцията са неясни в частта за служебното правителство
+-  BBC sports presenter reveals huge personal news – and is counting down to St Patrick’s Day
+-  Προφυλακίστηκαν 10 άτομα για το κύκλωμα διακίνησης κοκαΐνης: Καρέ-καρέ η δράση του επίορκου λιμενικού
+-  BRBLJIVICE BEBICE ŠIROM SVETA Ovo su neke od najsmešnijih prvih reči, ne govore svi samo mama i tata!
+-  Controladora do Pornhub faz acordo na Justiça e aceita pagar US$ 1,8 milhão em caso de tráfico sexual nos EUA
+-  بعد الممر البري.. مباحثات لاستخدام ميناءي العقبة أو دبي بدلا عن موانئ الاحتلال
+-  Il governo: sì ai tempi parziali anche per i magistrati
+-  Microsofts drag riskerar göra 240 miljoner datorer till skrot
+-  Sunak defends rowback on family visa earnings threshold amid anger on Tory right
+-  BJP के राष्ट्रीय पदाधिकारियों की मैराथन बैठक, PM मोदी भी हुए शामिल
+-  VIDEO: Brozović zabio prvi prvenstveni gol za Al Nassr, Ronaldo mu asistirao pa burno slavio s Hrvatom
+-  Kal Ka Mithun Rashifal: बेरोजगारों को मिलेगा रोजगार, मिथुन राशि वाले मानसिक तनाव से बचें
+-  YK:n turvallisuusneuvosto vaatii sallimaan humanitaarisen avun pääsyn Gazaan
+-  Προφυλακιστέοι οι 10 κατηγορούμενοι για το κύκλωμα κοκαΐνης: Αναμεσά τους και ο διοικητής της Δίωξης Ναρκωτικών
+-  THY'den sefer iptali açıklaması!
+-  Libanski premijer spreman da razoruža Hezbolah, ako se Izrael povuče
+-  Κατολίσθηση στον Ισθμό της Κορίνθου – Δείτε βίντεο
+-  Acuerdan capacitaciones para aprovechar auge turístico y comercial de Piribebuy
+-  Γαλλία: Καθηλώθηκε αεροπλάνο με 303 επιβάτες – Υποψίες για trafficking
+-  BOLNICA U MANČESTERU: ''Crveni đavoli'' bez pola tima u naredna tri meča
+-  Should I encourage wife’s golf coach to offer her fun and foreplay?
+-  OVAKO JE LEPA BRENA IZGLEDALA PRE 40 GODINA Svi u Jugoslaviji bili su zapanjeni kad su je takvu videli
+-  Rohamra indultak a magyarok, már készültek egy ideje
+-  ‘Is he coming home for X-mas?’ Israel demands release of baby Kfir as Hamas vow NO hostages will be freed until war ends
+-  Luis Suarez potpisao za Inter i pridružio se Messiju
+-  Banksy estrenó una obra contra la guerra… y la robaron horas después
+-  法國男子槍殺情敵後埋屍田野 因一原因露出馬腳被捕...
+-  World News | Mexico's President is Willing to Help with Border Migrant Crush but Wants US to Open Talks with Cuba
