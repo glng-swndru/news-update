@@ -1,11 +1,11 @@
 # Latest News
--  El Madrid gana en el 90+2′ con un jugador menos y acaba como líder
--  Teen who ate gummy bear laced with cannabis before riding e-scooter gets driving ban
--  Ўзбекистоннинг Эрондаги янги элчиси Теҳронга етиб келди
--  Молдова келгуси йил охиригача МДҲдан чиқиш ниятида
--  “NASA” коинотда “арча”ни суратга олди
--  Ўзбекистондаги Хитой компаниялари сони 1800 дан ошди
--  Vin Diesel accused of sexually assaulting a former assistant
--  Vin Diesel accused of sexually assaulting a former assistant
--  Trên lòng hồ thuỷ điện Thượng Kon Tum
--  Thanh tra tài chính kiến nghị xử lý trên 107.000 tỷ đồng, tăng vọt so với cùng kỳ
+-  OK저축은행, 안산디자인문화고에 '1사1교' 금융교육 실시
+-  에스넷그룹, 운파문화장학회에 장학기금으로 5억6000만 원 출연
+-  한화시스템, 저고도 대(對)드론 체계 사업 연이어 수주
+-  다올TS, 20일 ‘ '다올TS & 델 테크놀로지스 2023 파트너 송년회’ 개최
+-  [2023 IT혁신상품] MMORPG 문법 깼다… 엔씨소프트 ‘TL’
+-  삼일제약, 임원 승진 인사 단행
+-  Defensoría y Tribunal Electoral firman convenio de cara a los comicios del 5 de mayo del 2024
+-  Millonarios y su mercado de fichajes: ¡Primeros nombres confirmados!
+-  Giá vàng hôm nay 22/12: Giá vàng tăng "nóng" chưa từng có sau dữ liệu kinh tế của Mỹ
+-  Người phụ nữ ở Bình Định đang nằm võng bất ngờ bị "chồng hờ" tưới xăng, bật lửa đốt
