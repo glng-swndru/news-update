@@ -1,11 +1,11 @@
 # Latest News
--  אשדוד הלחוצה תארח את סכנין ללא קהל וללא סבן: "צריך נקודות בדחיפות"
--  إحباط تهريب كميات كبيرة من المخدرات قادمة من سوريا
--  غزة التطبيق لا التنظير للتعاليم| كتب محمد علوي الجفري
--  Több milliárd euró a tét, így mára is maradhat egy hatalmas bejelentés
--  Pep Guardiola eyes historic Club World Cup victory
--  Hayley Williams to sell her favourite edibles at her salon
--  SRK says he would call up Anand Pandit when his films did not work, here`s why
--  India logs 640 fresh Covid cases, number of active cases rises to 2,997
--  [22일 거제시] 국도 5호선 거제~마산 구간 국비 50억원 확정 등
--  Smejkal zapsal premiérový bod v NHL, nastoupili čtyři čeští gólmani
+-  WOŚP 2024. Finał za miesiąc, ale Orkiestra już gra
+-  Bursa'da korku dolu anlar! Kazada aracın biri alev aldı
+-  Lueth: Türkiye'nin gücü takdire şayan
+-  YSK'dan yerel seçimler için genelge! Anlık olarak takip edebilecekler
+-  Okan Buruk ile İsmail Karta arasındaki 7. randevu
+-  Cijene nafte blizu 80 USD
+-  Лень повернувся до тренувань з Сакраменто
+-  რას შეცვლის გერმანიასთან გაფორმებული შეთანხმება საქართველოს მოქალაქეებისთვის
+-  Jo Koy to host Golden Globes Jan. 7 - UPI.com
+-  Jo Koy to host Golden Globes Jan. 7 - UPI.com
