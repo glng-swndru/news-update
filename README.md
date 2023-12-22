@@ -1,51 +1,51 @@
 # Latest News
--  Wat kan AI voor een alledaags gezin betekenen? Een overzicht van 's ochtends vroeg tot 's avonds laat
--  VN-Veiligheidsraad voor creëren voorwaarden einde strijd in Gaza
--  EU-bureau: Neelie Kroes geen regels overtreden met lobbywerk Uber
--  “일어나서는 안 되는 일”… UCL 4회 우승팀, 아마추어 상대로 2-3 ‘충격’ 패배
--  理智線斷了才發現誤會孩子：阿德勒學者提「重要4C」信念
--  和另一半相處「心想事成」沒那麼難！善用這3種說話技巧，讓彼此愈愛愈甜蜜
--  OpenAI執行長，年末17點建議：當你看到胡說八道和官僚，請群起抵制它
--  信義誠品將於12/24平安夜熄燈：買書看書外最多人來做「這件事」
--  通膨時代年收百萬夠養家嗎？這2件事是關鍵
--  日本羽田機場啟動QR Code掃碼入境，2024年1月試行
--  超車「度假天堂」泰國！越南搶下台客旅遊熱點第四名
--  Netflix、Disney+串流爭霸，華納探索、派拉蒙將合併對抗
--  莊子如何解讀「天生我材必有用」？重點在你怎麼用
--  成功人士想擺脫舊有舒適圈？先看穿「螃蟹效應」的心態
--  FNM en Alstom tekenen contract voor levering van twee waterstoftreinen
--  FNM und Alstom unterzeichnen Vertrag über die Lieferung von zwei Wasserstoffzügen
--  Multa de casi 100 mil pesos por quemar basura en lotes baldíos
--  Hallan abandonados 110 kilos de marihuana en Guadalupe y Calvo
--  Pide AMLO a Biden diálogo con Cuba y Venezuela por migración
--  Russische Drohnen greifen ukrainische Hafenstadt Odessa an
--  Cuba autoriza abrir el camino a la eutanasia
--  Futuros de la soja y los cereales operan dispares antes de las vacaciones de fin de año
--  El Banco Mundial concede a Malawi 240 millones de dólares para resiliencia climática
--  Se buscan inversores de Fisker para reclamaciones por discrepancias financieras
--  Trump presionó a funcionarios de Michigan para que no certificaran triunfo de Biden en 2020: informe
--  Saltillo: perro ataca a abuelita y a su nieto mientras recolectaban plástico para vender
--  الیکشن کمیشن کے فیصلے پر چئیرمین پی ٹی آئی بیرسٹر گوہر کا بڑا اعلان
--  Sunak defends rowback on family visa earnings threshold amid anger on Tory right
--  Wham! make UK chart history as Last Christmas lands top spot
--  Konya'da husumetlisi tarafından tabancayla vurulan kişi hayatını kaybetti
--  מנהרת טרור מסועפת - מנקודת מבטו של כלב עוקץ | תיעוד טרם השמדתה
--  Microsoft, OpenAI partnerstvo istraženo u Ujedinjenom Kraljevstvu i SAD-u
--  Drones on lookout for fire hazards
--  Amsterdamse AEX-index gaat met verlies kerstdagen in
--  RTVE retransmitirá 400 horas de los Juegos de París 2024
--  استئناف القتال في شرق الكونغو الديمقراطية غداة الانتخابات
--  Steam Winter Sale 2023: Top 5 Games Under $10
--  Aussies’ cyber sales obsession continues with record breaking month for online shopping
--  A lesson in payphone use
--  Garcia growing at the Saints
--  Introducing the 2023 Don Deeble Sports Star finalists
--  A new Russian military formation in Africa with the same name as a Nazi unit is trying to recruit former Wagner fighters and Ukraine war vets
--  Doch Streik bei spanischer Fluglinie Iberia Anfang Januar
--  Zimbabwe Tops Global Alcohol Consumption Rankings: Wise Voter Survey Reveals Startling Figures
--  The full list of major US companies slashing staff next year, from Nike to Intel
--  Costa fala em 455 mortes nas estradas e apela a condução responsável no Natal
--  Ten festive things to try shoving up yourself this Christmas
--  Grandparents chuckle heartily at suggestion they do Dry January
--  Christmas sex act vouchers destined to expire unused in drawer
--  It’s been a pretty good year for me sexually, says married man who’s had three shags in 2023
+-  El jefe de la UCI Pediátrica de la Paz, cesado por la Consejería de Sanidad
+-  Kickoff | Masilela: Sundowns are going to break their own record
+-  Lo vinculan a proceso por abusar sexualmente de dos menores
+-  The 6 best teeth whitening kits in 2023, according to dentists
+-  Tesla wycofała 120 tys. pojazdów. Ryzyko przypadkowego odblokowania drzwi kabiny
+-  Israel confirms death of Israeli American
+-  En qué canal ver Manchester City vs. Fluninense AHORA, por la final del Mundial de Clubes
+-  Inteligência artificial pode ter desvendado mistério sobre pintura de Rafael
+-  Food influencer reveals ‘correct’ way to eat a sandwich — but detractors say ‘nope’
+-  Best Low-Interest Personal Loans for January 2024
+-  Netflix codes that could help you find 'hidden' content
+-  Burgate House murderer will remain in prison, Parole Board rules
+-  Mourners pay respects to Bournemouth's 'Gordon the Tramp'
+-  Youths cause chaos by climbing on town hall scaffolding
+-  'Positive' pupils praised by Ofsted at The Swanage School
+-  Cherries apply for alterations to approved training complex plans
+-  New Forest: Three ponies killed in five animal accidents
+-  Reaction to planned closure of Burton medical practice
+-  Tesco: vapes worth more than £300 stolen
+-  CCTV: Police appeal after New Milton charity shop burglary
+-  New Forest paedophile jailed for 12 years of offences
+-  A31: Four months' worth of closures starting in new year
+-  Dorset locations most desired by yacht owners on Instagram
+-  Blandford: Up to 135 new homes could be created on field
+-  Railway line at Brockenhurst to close over Christmas
+-  Verwood doctor's surgery to expand with three new rooms
+-  Christmas Day weather forecast for Bournemouth and Dorset
+-  Profesor udario učenika ili je možda učenik provocirao i napao profesora?
+-  Фальшивые лекарства: как уберечь себя от подделки?
+-  Aumentan las denuncias en la Comisaría de Teruel por estafas en internet
+-  La comisión de Fiestas de Argente y el Casino de Teruel han repartido la mayoría del quinto premio que se ha vendido íntegro en la capital
+-  Олмаотада автобус йўловчи ва ҳайдовчи ўртасидаги можаро туфайли одамларни уриб юборди .
+-  ఫార్మాసిటీ ఎత్తివేత సరే.. కేసుల సంగతేంటి?
+-  Вардар се раздели со Педрињо и најави низа промени во клубот
+-  «Nous dénonçons les tambouilles politiques depuis longtemps!»
+-  Le RN en 2023 : une insupportable invisibilité…
+-  En tête-à-tête - Pour le neveu de Yasser Arafat, Mahmoud Abbas doit "prendre sa retraite"
+-  Miami teens suspended for spreading AI nudes of dozens of classmates
+-  Investigadores daneses utilizan el aprendizaje automático para predecir con exactitud aspectos de la vida de las personas, incluido su posible fallecimiento
+-  French President Emmanuel Macron to Attend 2024 Republic Day As Chief Guest: MEA
+-  Wild moment monster 12-foot, 600-pound alligator captured at Florida mall
+-  Burnaby Mounties celebrate tiny Christmas tree's 20th anniversary
+-  DIRECT. Guerre entre Israël et le Hamas : le Conseil de sécurité de l'ONU "exige" une aide humanitaire "à grande échelle" à Gaza
+-  Novo treinador do Vizela revela «ambiente fantástico» antes da receção ao Moreirense
+-  Simen Wangberg blir sportslig koordinator i Stabæk
+-  మొక్కలు నాటేందుకు స్థలాలను గుర్తించాలి
+-  Greece to offer exclusive Acropolis visits outside of regular hours — for a steep price
+-  Congresso aprova Orçamento com verba recorde para emendas parlamentares e fundo eleitoral
+-  Ontario Provincial Police investigating alleged homicide at long-term care home
+-  Oficial: Luis Suárez es nuevo jugador del Inter de Miami y se reunirá con Messi en la MLS
