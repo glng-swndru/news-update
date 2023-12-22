@@ -1,11 +1,11 @@
 # Latest News
--  국힘 윤재옥 "한동훈 어제와 전혀 다른 정치 기대해도 좋다"
--  '마약 투약 혐의' 전두환 손자 전우원씨, 집행유예 선고
--  [속보] 검찰, 민주당 부대변인 압수수색… 김용 재판 위증 관여 의혹
--  2 Variasi Resep Otak-Otak
--  El regalo de la 14: Sigue el Min a Min del América vs. Barcelona en EU
--  Reaksi La LIga setelah Pengadilan Keluarkan Putusan soal Liga Super Eropa
--  삼성증권, '국내주식 입고는 삼성증권으로' 이벤트 실시
--  삼성카드, 트레이더스 홀세일 클럽 '수원화서점' 오픈 기념 이벤트 진행
--  미래에셋증권, 0.5X 시장 대표지수 ETN 2종 최초 상장
--  코레일, 외국인 열차 예매 ‘QR스캔’으로 간편하게...
+-  Dior Atelier of Dreams Unveil a Festive Christmas Takeover at Hong Kong International Airport
+-  "재개발·재건축 정보를 한 곳에서" 정비사업 전문 부동산 플랫폼 ‘재모’ 출시
+-  Gordon Ramsay’s former mistress reveals why Christmas is the most miserable time to be a mistress
+-  Why These 7 AI Stocks Should Be on Your Radar in 2024
+-  3 Contrarian Stock Plays for Bold Investors in 2024
+-  Asia stocks see slim weekly gain, await US inflation
+-  롯데건설, 서울 서초구 전원마을에서 ‘사랑의 연탄‧라면 나눔’ 봉사활동 실시
+-  전북, 주장 홍정호와 연장계약... 최철순과도 협상 진행중
+-  UK-based composer brings her late father`s forgotten Christmas carols to life
+-  This storytelling session dives into the life of three actors through monologue
