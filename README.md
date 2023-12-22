@@ -1,51 +1,51 @@
 # Latest News
--  Beyşehir'de balık işleme tesislerinde denetim
--  Cikallehsi: Önümüzde kritik maçlar var
--  KONYASPOR'DA RAKİP KAYSERİSPOR, PAROLA GALİBİYET!
--  Yine Ahmet Oğuz yine penaltı
--  Adil Demirbağ: Kayserispor’u yeneceğiz
--  3 puan istiyorduk
--  Seriyi devam ettirelim
--  163 líderes sociales asesinados en Colombia durante el 2023
--  La Jep imputa crímenes de guerra a exmiembros del Bloque Occidental de las Farc
--  Komisja Budżetu i Finansów Publicznych przyjęła ustawę okołobudżetową na 2024 r. bez poprawek
--  Mapa GPW: Pure, Asbis, Enel-Med, Kogeneracja i Sanok w centrum uwagi
--  Daniel Zmeko sa spojil s vojakmi v zahraničí, zaujímal sa aj o trávenie sviatkov
--  Od spustenia zálohovania sa vyzbieralo takmer 1,9 miliárd nápojových obalov
--  Peter Pellegrini prerušil schôdzu: Poslanci sa zídu opäť od 8. januára
--  Dear S’porean parents, no one can be perfect role models to their kids but you’re more than enough for them
--  ليفربول يكشف موقفه من السوبرليج
--  Ciągnęło go do weterynarii, ale został... księdzem. Nocował u siebie hipisów
--  Viral Video: వార్నీ.. ఏం ఐడియా తల్లీ.. హై హీల్స్‌ను ఇలా కూడా వాడొచ్చా.. వీడియో వైరల్!
--  „Stovėjo eilėje prie karinio komisariato.“ Kas nutiko Maskvoje (Video)
--  Teroristai susimetė su teroristais. Ką monstriško Rusija išdarinėja Afganistane (Video)
--  „Tai bus katastrofa...“ Rusija ir OPEC+ šalys šokiruotos. Angola gali sugriauti pasaulį
--  [ŽT] Netikėtas antausis Putinui. „Šalys priėmė sprendimą.“ Ką pasirašė Suomija, Danija ir Švedija
--  [ŽT] Tai būtų metų vizitas! Neįtikėtina, kas pasiruošęs susitikti su Zelenskiu
--  [ŽT] Keičiasi Kremliaus derybų retorika. „Nauji tikslai.“ ISW paaiškino, kas vyksta
--  Rusijoje „laidojamas“ Šoigu. Kas nutiko „faneros maršalui“
--  "Dovevo cacciarlo già il primo giorno": caos-Napoli, la sfuriata di De Laurentiis
--  Kanadoje pastumtas 200 metų senumo pastatas – padėjo žmona (Video)
--  Parliament Security Breach Update: संसद स्मोक कांड को लेकर हाईकोर्ट पहुंची दिल्ली पुलिस
--  Erster Weltcupsieg für Sixtine Cousin + FIFA zahlt zwei Milliarden für globale Förderung
--  Israel-Palestine: ‘हमास सरेंडर कर दे या फिर मरने के लिए तैयार रहे’, इजराइली पीएम का बड़ा बयान
--  بيان عاجل من سفارة المملكة في براغ حول واقعة إطلاق النار
--  Team India: చరిత్ర సృష్టించిన టీమిండియా.. వన్డేల్లో మనోళ్లే తోపు
--  This cozy and chaotic co-op possum game might just be my next party game
--  Sony describes VR as “a bit of a challenging category right now”
--  Čarli Šin u životnoj opasnosti: Žena pokušala da ga ubije, a ovo nije prvi put FOTO
--  Emlak Konut GYO'nun Muğla'daki 17 parselinin değeri dudak uçuklattı!
--  Американски полковник обяви смъртта на Украйна като нация
--  Karácsonyi meglepetés: így rontottak rá a NAV kommandósai a Reszkessetek, betörők Kevinjére - videó
--  भांजे की शादी में पहुंचें उद्धव और राज, क्या ‘मुस्कुराहट’ से बदलने वाली है महाराष्ट्र की सियासत?
--  TV-Ton optimieren: Wenn der Dialog in Geräuschen versinkt
--  Peter Obi, Oladips, others make 2023 Google Most Searched Persons in Nigeria
--  Ada Perayaan Tahun Baru, Pemprov DKI Tiadakan CFD 31 Desember
--  العراقي سربست عبد الله يحصد الوسام النحاسي في بطولة العرب للدراجات الهوائية
--  ‘Eu vi’, diz ex-diretor da Globo ao detalhar parte íntima de Alexandre Frota
--  President Ilham Aliyev visits Pirjamal village of Khojaly district (PHOTO)
--  Neun Jahre: Lance Bass und sein Michael feiern Hochzeitstag
--  «In Piemonte la gente non si vaccina, la pagheremo cara». E il Covid fa di nuovo paura
--  Kinderen in Noordenveld ook in 2024 met ontbijt naar school
--  Russians go crazy for street gang TV tragedy set amid Soviet collapse
--  Президент Таджикистана произвел кадровые изменения в погранвойсках страны
+-  संजू सैमसन, ‘बड़ी देर कर दी आपने आते-आते…’, अब तो शतक भी नहीं बचा पाएगा करियर!
+-  Prezident Xocalının Pirlər kəndində oldu
+-  Megint egymásnak estek a NER csúcsbírói, durva személyeskedésbe ment át a vita
+-  Zloglasni "plavi ekran smrti" stigao i na Linux
+-  التعاون الدولي: 2.5 مليار دولار استثمارات مؤسسة التمويل الدولية في مصر آخر 4 سنوات
+-  (ВИДЕО) Чешката полиција со детали за масакрот: Објавена и снимка од потерата по убиецот
+-  Delhi-NCR air pollution: Centre bans non-essential construction work, plying of polluting 4-wheelers
+-  Ministerstvo školstva zvýšilo finančnú podporu linkám pomoci o 220-tisíc eur
+-  Dvoch Sýrčanov obvinili z vojnových zločinov: Mali byť členmi Islamského štátu
+-  Protestojnë punëtorët e KEK-ut, kërkojnë rritje të pagave
+-  [인사] 우리금융지주·우리은행
+-  Mourinho aborda o futuro: "Tive a possibilidade de sair para Portugal..."
+-  Surprising Absolutely Nobody, Kanye West And Ty Dolla Sign Have Delayed Their Album ‘Vultures’ Yet Again
+-  Sindikalna organizacija organa lokalne uprave: Političari da ne...
+-  ‘निराश न हों खिलाड़ी, सत्य जीतेगा…’ साक्षी के संन्यास पर AAP विधायक दुर्गेश पाठक का BJP पर तंज
+-  Çocuklarda kışla birlikte 'RSV' vakaları arttı
+-  Basket: la lourde sanction du CSP Limoges a été réduite
+-  Are Canada’s water bombers fit to fight climate change fuelled wildfires?
+-  New Minnesota law will ban employers from asking a job candidate's salary history
+-  New Minnesota law will ban employers from asking a job candidate's salary history
+-  ‘Masovna ubojstva u školama se iz SAD-a sada poput bolesti šire Europom...‘
+-  Brnabiç për zgjedhjet në Serbi: Vëzhguesit e huaj gënjejnë dhe po destabilizojnë vendin
+-  Horoscope, December 23, 2023: Aries’ fresh beginnings, Leo’s quality improvement | Free prediction for all zodiac signs
+-  Polski Cukier Start Lublin kontra sąsiad z ligowej tabeli
+-  Kanye West planning to build city in the Middle East twice the size of New York
+-  Lukossa käy ovi molempiin suuntiin - ”Osasyynä ovat perheasiat”
+-  Mandić: Intenzivirati saradnju sa Marokom u oblasti obnovljivih izvora električne energije, IT i turizma
+-  ‘선 넘은 패밀리’ 이혜원, “안정환 크리스마스에 산타복 입혔는데 아이들 대성통곡”
+-  Cacerolazo en Córdoba: el fiscal asegura que el corte de calle no fue espontáneo
+-  Kitchens@ sichert beeindruckende 65 Millionen USD in Serie-C-Finanzierung von der florierenden Wachstumsinvestitionsfirma Finnest
+-  Ancelotti jep mendimin e tij mbi Superligën Evropiane
+-  French President Emmanuel Macron Confirms India Visit As R-Day 2024 Chief Guest
+-  Ayodhya Ram Mandir: कैसे विवादित ढांचे में प्रकट हुए रामलला? जानिए पूरा मामला
+-  Dad’s ‘adorable’ welcome home gesture as he waits in airport with iconic product that’s ‘better than winning the lotto’
+-  Кадагишвили: Обреченная попытка Саакашвили что-то объединить останется без ответа
+-  Adiós a las calderas: esta es la fecha límite de la UE
+-  Kiakasztotta rokonait egy fiatal nő, aki kukában talált ételekből készíti a karácsonyi menüt
+-  18 की उम्र में 10 साल जैसा दिखाता है आपका बच्चा? इस बीमारी का हो सकता है शिकार
+-  How to see 2024 Golden Globes host Jo Koy live on tour: Get tickets
+-  How to see 2024 Golden Globes host Jo Koy live on tour: Get tickets
+-  Queen Elizabeth II worried dying in Scotland would make her funeral 'difficult' for Royal Family, Princess Anne reveals
+-  Federal court revives lawsuit against Nirvana over 1991 'Nevermind' naked baby album cover
+-  Queen Elizabeth II worried dying in Scotland would make her funeral 'difficult' for Royal Family, Princess Anne reveals
+-  Robert Pattinson and Suki Waterhouse are engaged: report
+-  Federal court revives lawsuit against Nirvana over 1991 'Nevermind' naked baby album cover
+-  Prince Harry, Meghan Markle made secret trip to Costa Rica with two kids ahead of the holidays
+-  Robert Pattinson and Suki Waterhouse are engaged: report
+-  'Dukes of Hazzard' star John Schneider denies calling for President Biden to be 'publicly hung'
+-  Prince Harry, Meghan Markle made secret trip to Costa Rica with two kids ahead of the holidays
+-  'Ferrari' review: Movie starts on cruise control and then floors it
