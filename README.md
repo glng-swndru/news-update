@@ -1,51 +1,51 @@
 # Latest News
--  Kar yağışı kazaları beraberinde getirdi: Kayan araç dereye düştü
--  Çatıdan akan suyu kesmek isteyen şahıs, düşerek hayatını kaybetti
--  Konya'da kontrolden çıkan otomobil takla attı: 4 kişi yaralandı
--  Yeni asgari ücrette sona doğru
--  Korea seeks to develop 2 blockbuster drugs worth $768 bil. by 2027
--  Érkezik a Jeti Moziba a Digitális nomádom című dokumentumfilm
--  Русия може да скъса дипломатическите си отношения със САЩ, ако конфискуват нейни активи
--  Sot vendoset kampioni i ri i botës për klube, Man City dhe Fluminense në një betejë për miliona euro
--  Baldur's Gate 3 z pierwszą obniżką ceny. Ruszyła zimowa wyprzedaż Steam
--  SON DAKİKA: Süper Lig ekibi Samsunspor iki dönem transfer yasağı aldıklarını açıkladı!
--  Hrgović prije meča i zapjevao: ‘Mislio sam biti blag, ali…’
--  Fenerbahçe'de beklenmedik Mert Hakan Yandaş kararı! Kayserispor karşılaşması son maçı olabilir,
--  Anayasa'ya uygun bulundu! CHP'nin başvurusuna ret!
--  Много дълги уикенди: Ето как ще почиваме през 2024-а година - Труд
--  Azərbaycanda dollara tələb iki dəfə artdı - Nə baş verir?
--  LEPE SCENE U MADRIDU, OVO JE MALO KO OČEKIVAO! Navijači Reala GROMOGLASNIM APLAUZOM pozdravili jednog košarkaša Partizana!
--  HƏMAS bu üç adamı tələb edir: Girov danışıqları dalana dirəndi
--  Wisconsin university sued for allegedly demoting staff member from diversity position for being ‘White’
--  Нововъведение във Варна
--  Česká polícia prijala preventívne opatrenie zamerané na školy, platia v celej republike
--  Rodinná dráma medzi súrodencami: Brat sa im vyhrážal zabitím
--  Ruszyła największa zimowa wyprzedaż gier. Jest na czym oszczędzać
--  Всичко, което трябва да знаем за отпуските – правата и задълженията на работодател и служител
--  Toksykologia otwarta. Nowy oddział, nowe metody leczenia
--  우울과 불안의 새로운 원인
--  Задържаха крадеца на дарения от храма в Брезник, бил добър познайник на полицията
--  Suspende operaciones el ferry que conectaba El Salvador y Costa Rica por escasa demanda de trayectos
--  Χρηματιστήριο Αθηνών: Μικρές απώλειες στο Γενικό Δείκτη – Στάση αναμονής στην Ευρώπη και μεγάλα κέρδη για το πετρέλαιο
--  佩洛西访台后中断年余 中美军官重启对话
--  Szijjártó korábban tagadta, de most bejelentette: Szegeden épít gyárat a legnagyobb kínai elektromosautó-gyártó
--  Yılbaşında Dünyayı Türk Çiçekleri Süslüyor
--  Evakuirana osnovna škola u Drnju, učenici osjetili čudan miris. Stigli policajci, vatrogasci…
--  Queen Elizabeth wollte nicht auf Schloss Balmoral sterben
--  惠誉:气候稳定产量增加 明年棕油价料降至RM3012
--  Carl's Jr., Indonesia akan Tutup, Simak Asal-usul Restoran Burger Ini
--  Herojstvo i ljubav keruše Gabi
--  Ministry takes measures to reduce violence in schools
--  พณ.เข้ม “ปั๊ม” ให้เติมน้ำมันเต็มลิตรดูแลปชช.เดินทางปีใหม่
--  Ayodhya Ram Mandir: रामलला के प्रकट होने पर एक बड़ी गवाही क्या है? 1 महीने बाद प्राण प्रतिष्ठा
--  نقل مريض بشكل طارئ إلى مستشفى في بيروت.. ما هو المرض الذي أصيب به؟
--  Mogłem poczekać z graniem w Starfield
--  NASS Directs Audit Of Government Properties
--  Васил Терзиев: Близо 34 млн. лева ще бъдат инвестирани в северните райони на столицата
--  Hacker de GTA 6 encaminhado para um hospital psiquiátrico
--  Başakşehir, yarın Trabzonspor'a konuk olacak
--  Gyásznapot hirdettek Csehországban a prágai egyetemi lövöldözést követően
--  Qingdao makes great strides in urban renewal
--  Bu Araçtan Sağ Çıktılar!
--  White House urges 'serious scrutiny' of US Steel takeover deal
--  Preise für Wohnimmobilien fallen noch schneller
+-  «Ўқувчининг туғилган куни бўлмаган» – Қашқадарёдаги мактаб қизлари билан нималар бўляпти?.
+-  “Империячилик касаллигининг иситмаси” — Прилепиннинг баёноти сиёсатшунослар нигоҳида.
+-  Ҳудудларда кучли таъсир қилувчи дориларини сотаётган шахслар ушланди.
+-  안치홍·김재윤이 특별하다? FA 아직도 11명 남았다…1월에 깜짝 이적 나오나 ‘느림의 미학’
+-  "인생 역전! 맨유에 버림받고 레알 Or 바르샤 간다고?"…성범죄 논란 FW, 최고의 경기력에 최고의 이적설까지
+-  대전교육청 정기인사 단행… 행정국장 정회근·대전학생교육문화원장 오광열
+-  Hrithik, Deepika gift a new sizzling beach track with Fighter song Ishq Jaisa
+-  BB17: Raveena Tandon and Abdu Rozik set to accompany Salman Khan during WKV
+-  Trener Dinamovog protivnika u KL zabrinut: ‘Iz različitih razloga ne zabijamo…’
+-  Mercato : C’est bouclé, Messi reçoit son cadeau de Noël !
+-  TUGA U DOMU SRPSKE FOLK ZVEZDE: Dragani Mirković preminula svekrva - potresna objava Tonija Bijelića osvanula na mrežama
+-  Milletvekili Kalaycı’ya teşekkür ediyorum. Bir de ricam var
+-  Konya'da saman balyasının altında kalan kadın yaralandı
+-  Boş arazide dua eden şahıs ekipleri harekete geçirdi
+-  Fransa’da kaybolduktan 6 yıl sonra bulunan İngiliz çocuk: Yalan söyledim
+-  İstanbul'da başıboş köpekler yoldan geçenlere saldırdı
+-  Alaaddin Camii Sultanlar Türbesi'nde sıra dışı gelenek
+-  Ebube Nwagbo Reveals Crushing On Emeka Ike
+-  Herlufsholm afskediger både rektor og forstander
+-  Herlufsholm afskediger både rektor og forstander
+-  Hallmark-style holiday markets are tiny examples of how much better our cities could be
+-  How to learn to play blackjack
+-  5 HOROSKOPSKIH ZNAKOVA KOJIMA ĆE 2024. BITI NAJSREĆNIJA GODINA! Ako januar krene turbulentno, NE ODUSTAJTE - slavićete!
+-  США считают, что РФ перевела экономику на военные рельсы
+-  Lines form early as holiday travel rush continues at Newark Liberty International Airport
+-  Ξεκινά η επένδυση του IRC στο Ελληνικό
+-  Public en feu, prodige de 16 ans, paris sportifs… Quand la folie s'empare des championnats du monde de fléchettes
+-  مفاوضات مفاجئة تدفع دهوك لتسمية أحمد خلف مدرباً لفريقها الكروي
+-  Семья девочки, мечту которой исполнил Путин, посетила выставку-форум "Россия"
+-  United Airlines is being sued by a first-class flier who says she was sexually assaulted by a 'highly intoxicated' passenger given 9 servings of alcohol
+-  ΠΑΟΚ: Ο Λουτσέσκου ξεπέρασε τον Αναστασιάδη, έγινε ο κορυφαίος σε νίκες στην Superleague
+-  В ГД внесли проект о сроках привлечения к ответственности за посты в соцсетях
+-  Ускоренное старение женских яичников связали с ростом активности гена CD38
+-  Στην Αγορά της Κυψέλης η ορκωμοσία του Χάρη Δούκα
+-  Kamiński, Wąsik, Duda i prawo łaski. Czy oni wiedzą, o czym mówią?
+-  Rigsadvokaten får lov at anke sag om IS-husmor til Højesteret
+-  Rigsadvokaten får lov at anke sag om IS-husmor til Højesteret
+-  وفد كويتي يزور مدرسة الملحة بردفان
+-  Estas serán las características del POCO X6, un teléfono Xiaomi de lo más completo
+-  Kako prestati biti lijen? Ovih 7 koraka je ključno, u trenu ćete si olakšati život
+-  Év végi bombameglepetés: Majka visszatér az RTL-hez!
+-  Crazy Kennar’s Girlfriend Finally Opens Up On Loss Of Their Unborn Child
+-  Kényelmes, nőies hosszú szárú csizmák körképe - Hóban, latyakban és hidegben is megállják a helyüket
+-  角田裕毅 アストンマーティンF1移籍の場合にライバルになるのは？
+-  В России наступил Пэгытти
+-  Crteži učenika OŠ Vežica krase zidove Klinike za tumore
+-  UAE’s new end-of-service benefits scheme for employees: Why should you switch?
+-  عملية بساط الريح؟| كتب محمد محمد المسوري
+-  Huthi-Angriffe im Roten Meer: Mehr als 20 Länder beteiligen sich an Allianz
+-  Weihnachtskracher beim ERSC Amberg: Mitkonkurrent um Play-off-Platz zu Gast
