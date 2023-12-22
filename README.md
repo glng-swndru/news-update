@@ -1,11 +1,11 @@
 # Latest News
--  Nancy Pelosi adquiere opciones de compra sobre NVIDIA valoradas en 5 millones de dólares
--  Prairie Operating Co. avanza hacia el mercado de capitales Nasdaq
--  Informe de resultados: Boqii presenta resultados mixtos del primer semestre del ejercicio fiscal 2024
--  Informe de resultados: Organigram reporta crecimiento en medio de los desafíos del mercado
--  Islandia rebaja nivel de amenaza por el volcán
--  El mercado inmobiliario de Sídney se dispara con ventas de alto nivel
--  AWS se fija un objetivo de ingresos de 90.000 millones de dólares y se centra en las tecnologías de IA
--  Пять названий старейшего кинотеатра в Душанбе
--  Nigeria to investigate killings of endangered wildlife, environment minister says
--  54 yr old dead in Limassol car crash
+-  IMGW ostrzega: silny wiatr i oblodzenie
+-  Ankara'da pazar günü bazı yollar trafiğe kapatılacak
+-  Manchester City, FIFA Kulüpler Dünya Kupası şampiyonu oldu!
+-  AB'den Bulgaristan'a 1,2 milyar avroluk destek
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Rezervlerimiz 142,5 milyar dolara yükseldi
+-  סיטי נכנסה לספרי ההיסטוריה, פודן: "משחק בלתי רגיל, זה ענק"
+-  ¿Buscas trabajo nuevo para 2024? En el Portal del Empleo encontrarás cientos de vacantes
+-  81-year-old Ellen Byas says getting a phone call at Christmas can be ‘lifesaving’ for the elderly
+-  المقاومة تكبد الاحتلال قتلى جدد وتجبره على التراجع
+-  Premios Óscar 2024: esta es la lista de películas preseleccionadas para recibir la estatuilla
