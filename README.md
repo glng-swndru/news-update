@@ -1,51 +1,51 @@
 # Latest News
--  ישי עוליאל ומיקה בוחניק זכו באליפות ישראל בטניס
--  SMUTNÁ SPRÁVA Náhle zomrel bývalý ŠÉF v SIS! Išiel za deťmi, domov sa už NEVRÁTIL: Smútia za ním aj ministri, silné slová POLITIKOV
--  Fiducia e imprese e consumatori in recupero: un segnale positivo ma non per tutti
--  Newly Released Records Show Joe Biden Repeatedly Emailed Hunter's Business Associate Before Burisma Appointment
--  Sanidad recomienda una dieta lo más equilibrada posible en las fiestas navideñas
--  Revelan el fuerte reclamo de Xavi a jugadores del Barcelona: "¡Quiero que corran como cerdos!"
--  El Gobierno dijo que el operativo de seguridad del 20D costó $60 millones y que se los cobrará a las organizaciones piqueteras
--  Estafan falsas agencias con viajes a Xcaret
--  Finale der Klub-WM: Manchester City - Fluminense live im TV und Online-Stream sehen
--  Луис Суарес се събира с Лео Меси в САЩ
--  Деятельность "Россети Северный Кавказ" - "Дагэнерго" проверят
--  Ranking de Netflix: las mejores 10 películas para ver este fin de semana
--  Directo | MoraBanc Andorra - Dreamland Gran Canaria
--  Nachfolger von Steffen Baumgart: So geht der 1. FC Köln die Trainer-Suche an
--  Страхам ряда стран ЕС из-за возможного конфликта с Москвой нашли объяснение
--  Megsértette az MMC jóhírét az MSZP az Alkotmánybíróság szerint
--  CCP’s Attempt to Interfere in Taiwan’s Election Yielded Minimal Results
--  الاحتلال يكثف القصف على البلدات اللبنانية الجنوبية
--  STRANCI GA TRAŽE, A NEMA GA NI ZA LEK: Nekad smo ga izvozili, sad nemamo ni za nas, CELOKUPAN ROD PRODAT JOŠ PRE MESECA DANA!
--  Nataša iz Beograda za Kurir.rs iz Praga: Još nisu objavljena imena nastradalih, neki mediji odbijaju da izveštavaju o ubici
--  Intersex Drama ‘Mistake,’ Honey Lauren’s Feature Directorial Debut, Casts Dominic Bogart, Kay Lenz (EXCLUSIVE)
--  Intersex Drama ‘Mistake,’ Honey Lauren’s Feature Directorial Debut, Casts Dominic Bogart, Kay Lenz (EXCLUSIVE)
--  CIDH insta a Honduras a garantizar independencia judicial en elección de FG
--  Aufatmen auf Island: Kein Lavaaustritt mehr
--  В администрации Туле провели рабочее совещание по развитию международных связей
--  DA LI ZNATE DA JE BAŠ OVA PESMA POSTALA NAJVEĆI HIT U SVAKOJ SRPSKOJ KAFANI? Ljudi ne prestaju da je SLUŠAJU
--  1000 Kelvin's AI-Powered Copilot for 3D Printing Goes Commercial, Adopted by Leading Manufacturers
--  Milli Məclisin növbəti iclasının GÜNDƏLİYİ
--  Kiesewetter für Unterstützung bei Rekrutierung von Ukraine-Geflüchteten
--  Nirvanabebisens fall ska prövas i domstol
--  Kyrgyzstan's president signs law approving to amend country's flag
--  ¡Ojo! Casos de Covid-19 van en aumento
--  Pensioner who died in devastating house fire named
--  Luto en el deporte venezolano: fallece la estrella del baloncesto venezolano Garly Sojo
--  السقاف: مشاركة بلادنا في المخيم الكشفي العربي مميزة ونوعية
--  Jens Lehmann zu 420.000-Euro-Geldstrafe im Kettensägen-Prozess verurteilt
--  Yleisöennätys romukoppaan – Suomen tennismiehet loivat hurjan buumin
--  Nin dilay 14 ruux kadibna is dilay
--  To będzie pierwszy świadek w sprawie wyborów kopertowych. "Miał ogromną wiedzę"
--  Lille: Ilévia annonce un renforcement de l'offre de transports en commun pour les fêtes
--  BioVaxys Executes Letter of Intent for Major Immunotherapeutics Technology Acquisition
--  Audi го намалува ЕВ производството, ќе ги форсира возилата со согорување
--  RUSIJA PRETI PREKIDOM ODNOSA SA AMERIKOM "Ovo je neprihvatljivo, Sjedinjene Države ne smeju da deluju u iluziji"
--  Straftäter nach fast fünf Jahren Flucht festgenommen
--  باكستان.. الإفراج عن عمران خان بكفالة في قضية التشفير
--  Oppo A59 5G launched in India; Check price and other details
--  El horóscopo de Nana Calistar para hoy, viernes 22 de diciembre
--  Investigan los motivos detrás de la peor matanza en la historia de República Checa
--  Britse tiener krijgt gedwongen verpleging na hacken bedrijf achter Grand Theft Auto
--  Britse tiener krijgt gedwongen verpleging na hacken bedrijf achter Grand Theft Auto
+-  مئات الأطفال يموتون خنقًا بسبب ستائر النوافذ.. كيف تحمي أبناءك الصغار؟
+-  شروط ترخيص ممارسة خدمة التحليلات العقارية للأفراد والمنشآت
+-  أمطار المدينة.. شاهد سيول واسط ينبع النخل شمال محافظة بدر
+-  Inflación anual de EEUU se desacelera aún más por debajo del 3% en noviembre
+-  La erupción de un volcán trunca las esperanzas navideñas de las familias islandesas de la zona
+-  Mercado anticipa que la Fed bajará las tasas a partir de marzo por enfriamiento de la inflación
+-  Holanda entregará 18 cazas F-16 a Ucrania
+-  La reanudación de Boeing en China podría liberar entre 500 y 1.000 millones de dólares en efectivo sin restricciones - Wells Fargo
+-  La revisión del PIB británico apunta a un inicio más temprano de la recesión
+-  LIVE Primavera Torino-Empoli: formazioni e prepartita in diretta
+-  Három eladásból 270 milliárd folyt be az államhoz, a ferihegyi repülőtér megvásárlására fordítják
+-  سپریم کورٹ نے سائفر کیس میں عمران خان اور شاہ محمود قریشی کی ضمانت کا تحریری فیصلہ جاری کردیا
+-  Otomobil Çarpıp Kaçmıştı: Üniversite Öğrencisi Genç Kız Öldü
+-  Etliche Kündigungen in Neuendorfer Betonwerk
+-  Familie Husaini aus Eschau lebt jetzt in Rück-Schippach
+-  Fall Wiesenfeld - Anklage zugelassen
+-  Ülke bayrağında değişikliğe gidiyorlar!
+-  Eczacıbaşı Dynavit rakibine set vermeden galip
+-  Sultan II. Abdülhamid'in fotoğraf koleksiyonu Kahire Yunus Emre Enstitüsü'nde sergilendi
+-  Costa Rica Hits Jackpot: IMF Unlocks a Treasure Chest of Over $770 Million
+-  Specsavers offers free glasses to homeless people at Christmas eye clinics in Edinburgh
+-  Ξεκίνησε έρευνα η αστυνομία στη Βρετανία για την απαγωγή του νεαρού Αλεξ Μπάτι
+-  Blandad öppning på New York – Nike rapportrasar
+-  Përditësohen vlerat në La Liga – Bellingham me rritje rekorde, nëntë lojtarë të Barcelonës zhvlerësohen
+-  Weihnachtsgruß vom Regierenden Bürgermeister: Kai Wegner wünscht Menschen in Berlin Hoffnung und Zuversicht
+-  Elon Musk’ın büyük hayallerle kurduğu şirket kapanıyor!
+-  UK Police Launch Child Abduction Probe Over Teen Found In France
+-  Cocaine Market Sees New Players, Bananas And Amazon Submarines: Report
+-  Teenagers jailed for killing stranger who ‘annoyed’ them on bus
+-  Ga gass like før dødsulykken
+-  Fremont’s German deli, Munchner Haus, is closing after 30-plus years
+-  U kallëzua nga Gaz Bardhi, Nuk nisin hetimet ndaj Lindita Nikollës
+-  Solid vs Case Analysis and Prediction
+-  В Казани в связи с оттепелью перенесли открытие новогодних елок
+-  À 76 ans, ce Varois remporte son 20e titre de karaté
+-  Why Is ‘The Drew Barrymore Show’ Off For Two Weeks?
+-  Elhanyagolt kilincsek és kapcsolók: nagyvonalúan takarítanak a magyarok
+-  Beyond the Clock: Expert shares hidden dangers of long workdays on mental and physical health
+-  Moldova's Parliament Extends Unique Tech Business Enabling Framework and 7% taxation ceiling up to 2035
+-  Skutki orkanu Pia w powiecie pleszewskim. Ile razy wyjeżdżała straż? [ZDJĘCIA]
+-  Charity shop refuses to reduce £6 coat for pensioner - so kind customer buys it for him
+-  Cak Imin Kritik Ketidakadilan Ekonomi di Indonesia: Ini Harus Kita Slepet
+-  Η ΟΜΟΝΟΙΑ ανασύρει από το αρχείο και ρωτά…
+-  ODLUKA JE DONETA! Zadrugari izabrali da ona napusti Belu kuću: Mnogi će se iznenaditi
+-  Modena, Bianco: "Ci piace confrontarci con squadre forti"
+-  Suspeito de tentativa de homicídio nas Caldas da Rainha detido pela PJ
+-  Shkollimi i shqiptarëve në Beograd
+-  Around-the-clock efforts to save animals fleeing raging Simon's Town fire
+-  Asiantuntija: SM-liigassa jysähtämässä siirtopommi – Ilves ja Tappara keskiössä
+-  Christian Chávez usa playera con la palabra put* y lanza fuerte mensaje: "si luchar por mi libertad es ser put*, entonces soy put*"
