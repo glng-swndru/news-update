@@ -1,11 +1,11 @@
 # Latest News
--  รู้ยัง! วันนี้ 22 ธ.ค. ‘วันเหมายัน’ กลางคืนยาวนานที่สุดในรอบปี รวม 12 ชม. 41 นาที
--  Beyoncé está na Bahia para lançar documentário de sua turnê
--  Ecobank unveils exclusive year-end loan campaign with a one-month repayment break
--  辜莞允泳池俯拍超震撼！粉色比基尼遮不住「白皙雙峰」
--  Revue de presse Ready or Not : Benchmark des ordinateurs portables et des ordinateurs de bureau
--  Soccer-Chelsea captain James undergoes hamstring surgery
--  NBA》主場球迷狂噓！ 活塞不敵殘陣爵士吞25連敗、逼近2大恥辱紀錄
--  «Мариуполда 20 кун» филми «Оскар» шорт-листига киритилди.
--  El turismo ruso a Cuba crece más del triple de enero a octubre de 2023
--  Ucapkan Selamat Hari Ibu, Jokowi Bicara Kekuatan dan Peran Besar Ibu
+-  Kirjavinkki lattemiehelle ja someen lukuhalunsa hukanneelle
+-  션, 루게릭병원 건립 이어 이번엔 '연탄은행에 1천만 원 기부'…"따뜻한 마음 전해지길" [종합]
+-  충격 “163kg 감량했는데”, 축 늘어진 피부에 경악[해외이슈]
+-  익산시, 요소수 확보·공급 T/F 가동
+-  Man in court for touching 33 women at Melbourne club
+-  [이태훈의 백세호흡①] 만성피로, ‘수면무호흡’ 치료가 관건이다
+-  ‘북극 한파’ 전국 덮쳤다…제주공항 폭설로 운영 중단
+-  “연준, 이르면 내년 3월 금리 인하”…美 경기 전망은 엇갈려
+-  檢, ‘김용 재판 위증 관여 의혹’ 민주당 부대변인 압수수색
+-  Chennai: కోర్టులో తీర్పు వెలువడగానే భోరున విలపించిన మంత్రి సతీమణి.. మంత్రివర్గం నుంచి మరొకరు అవుట్..
