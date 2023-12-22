@@ -1,11 +1,51 @@
 # Latest News
--  كولر يهدي برونزية كأس العالم لجماهير الأهلي
--  Mercato - ASSE : Il jubile après son transfert record à 15M€ !
--  Nach "Bachelor in Paradise": Kaan hat Michelle betrogen!
--  Žena chcela zabaviť deti a pustila im videá na svokrinom mobile: Pikantné odhalenie o mame jej priateľa
--  EXKLUZÍVNE FOTO prírodného divadla! Neuveriteľné, čo sa dialo nad Bratislavou
--  العاطفي: لدينا عدة خيارات تجاه العدو الصهيوني
--  محمد هاني: تتويجنا بالبرونزية جاء عن جدارة
--  ONZ: Guterres krytykuje Izrael za prowadzenie ofensywy utrudniającej dystrybucję pomocy humanitarnej dla Strefy Gazy
--  Police Witness Bicyclist Shot to Death in San Diego
--  MNE saúda aprovação de resolução da ONU para "ajuda humanitária" a Gaza
+-  Narsingdi-1: Can the ‘spirit of Lokman’ defeat the Awami League’s Hero?
+-  DRAMA NA LUKSUZNOM KRUZERU Čudovišni talas se poigrao sa brodom u Severnom moru: "Ljudi su leteli po palubi, popucali su prozori" (FOTO/VIDEO)
+-  CDC director sends holiday warning: Stay home if you're sick
+-  শিল্পকলার ‘অ্যাক্রোবেট’ প্রদর্শনী শেষ হচ্ছে শনিবার
+-  Ameliyatta hastasına yumruk atan doktorun kan dondurucu görüntüleri
+-  ​Concilier sport et études supérieures : à l’UGB, un tournoi de Basket indique le chemin
+-  La condamnation du maire de Dakar Barthélémy Dias confirmée par la Cour suprême
+-  La résolution tant attendue sur Gaza a été adoptée au Conseil de sécurité de l'ONU
+-  Skandal na vjenčanju: Mlada se predomislila pred matičarkom, za sve okrivila mladoženjinog oc
+-  Alerjiye Ne İyi Gelir: Doğal Çözümler ve Öneriler
+-  Pročitajte tko je dobio financijsku potporu
+-  عشاء تقشفي وأمسية طبية في جمعية أطباء النسائية لصالح غزة
+-  В Курске 24 декабря в спортшколе «Арена» откроют лыжный сезон
+-  Israeli army reverses decision to reduce security squads in northern border communities amid backlash
+-  Virusutbrott – svenskar sjuka på Gran Canaria
+-  STIGLI REZULTATI OBDUKCIJA VANJE I FRIZERA IZ VELESA Novi detalji dvostrukog ubistva u Makedoniji
+-  Alerjik Rinit Belirtileri: Burun Akıntısı, Hapşırık ve Daha Fazlası
+-  Жамнов отметил, что Ковальчук физически готов к матчам КХЛ
+-  Venezuela envía a 'El Libertador' a la carrera por el Oscar de lengua extranjera
+-  В Ватикане надеются, что визит Папы Римского в РФ и на Украину сможет состояться
+-  Grupos exportadores de granos de EEUU aplauden la reapertura de los cruces ferroviarios con México
+-  В Сухуме зажгли огни на главной елке Абхазии
+-  السفير التركي لدى القاهرة: حوارنا مع مصر مستمر لدعم الاستقرار في ليبيا
+-  Türkiye'nin Sırasını Görenler Çok Şaşırdı! İşte Dünyanın En Fazla Apartmanda Yaşayan Ülkeleri...
+-  83,462 హెక్టార్లలో పంటలకు నష్టం
+-  Todo lo que tiene que saber sobre el último día de Bogotá despierta
+-  CIS based AML Expert ‘Uppercase Legal Advisory’ opens UAE office
+-  Alerjik Astım Belirtileri: Nefes Darlığı ve Öksürük
+-  Alçak Gönüllü Ne Demek: Mütevazılığın Önemi
+-  Steam'de radikal değişim! Yeni dönem başladı: Güncelleme detaylarını paylaştı
+-  El Zunder Palencia 'corta' a Brandon Brown
+-  Banco Central de Reserva anticipa una contracción del 0.5 % en el PBI de Perú al cierre de 2023
+-  హోరెత్తిన ఆందోళన
+-  Province d’Azilal: 1.3 MMDH pour des projets de développement agricole et rural
+-  Rescatadas cinco personas por el incendio de una cocina en Calatayud
+-  ‘It Won’t Be Necessary If You Release Nnamdi Kanu’ – Ejimakor Tells Tinubu Over Soldiers Deployed To Southeast
+-  ముక్కోటి ఏకాదశికి ఉపమాక క్షేత్రం సిద్ధం
+-  Organization helps support law enforcement officers through tough times
+-  Amethi News: सांसदों के निलंबन पर भड़के सपाई, किया प्रदर्शन
+-  Amethi News: डंपर की टक्कर से साइकिल सवार बालक की मौत
+-  Amethi News: निरंतर अभ्यास से ही गणित में मिलेगी सफलता
+-  Amethi News: पति को आत्महत्या के लिए उकसाने में पत्नी गिरफ्तार
+-  Amethi News: दवा की दुकान में लगी आग
+-  Saharanpur News: कोरोना मरीजों की होगी जीनोम सिक्वेंसिंग, लखनऊ जाएगा सैंपल, निगरानी शुरू
+-  Mirzapur News: अल्ट्रासाउंड मशीनें चार, एक ही रेडियोलाजिस्ट की तैनाती, वह भी छुट्टी पर
+-  Saharanpur News: सांसदों को निलंबित किए जाने के विरुद्ध कांग्रेसियों का प्रदर्शन
+-  Mirzapur News: एक माह में 52 वाहन सीज, 34 का चालान
+-  Saharanpur News: 377 हेल्थ एंड वेलनेस सेंटर कहलाएंगे आयुष्मान आरोग्य मंदिर
+-  Saharanpur News: 15 फरवरी से होंगी बोर्ड परीक्षाएं, केंद्र अभी निर्धारित नहीं
+-  Saharanpur News: प्रवेश निरस्त होने पर छात्र-छात्राओं ने किया आईआईएमटी काॅलेज पर हंगामा
