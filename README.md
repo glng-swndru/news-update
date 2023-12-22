@@ -1,51 +1,11 @@
 # Latest News
--  [신메뉴] 배스킨라빈스·이연에프엔씨·맥도날드 외
--  Beşiktaş'ın yenilgisi sonrası spor yazarlarından olay yaratacak sözler! "Bu böyle gitmez, çekilecek kahır değil"
--  Turbolentno na Wall Street-u: Oporavak indeksa na krilima tehnološkog sektora
--  Oudere bewoonster Nieuw-Lekkerland trapt niet in babbeltruc en gooit deur dicht in gezicht dader
--  HP Assembly Winter Session: बेरोजगारी के मुद्दे पर सदन में हंगामा, नारेबाजी कर विपक्ष ने किया वाकआउट
--  임플란트 재수술, 원인 파악 위한 정확한 검진 우선돼야
--  Novi broj Dubrovačkog vjesnika
--  “Sədərək Yusif”in arvadı və oğlu məhkəməyə məcbur gətiriləcək
--  Ανακοινώθηκε η τιμή της motocross KOVE MX 250
--  Argentina To Accept Contracts In Bitcoin, Says New Minister
--  Bitcoin’s Profit Supply Ratio Flashes Signs of Caution, Altcoins Provide Opportunity
--  عاجل.. سيول ورياح متربة على مكة والمدينة وهذه المناطق
--  Las fugas del PRI que tambalearon la administración de Alito Moreno
--  Uno más, uno menos...
--  Noël : les cadeaux, on les ouvre le 24 au soir ou le 25 au matin ?
--  NBA AS GUBI 126 MILIONA DOLARA ZBOG DEBLJINE? Posebna klauzula u ugovoru može SKUPO da ga košta!
--  لتحسين تجربة المريض.. تبوك الصحي يطلق مبادرة "أنا معك"
--  ZBOG PROSIDBE SU MOGLI DA BUDU UHAPŠENI Ovako je Basti zatražio ruku Ane Ivanović, ZAKUPIO ČITAV PARK U LONDONU
--  Demi Lovatos Verlobungsring kostete fast 850.000 Euro!
--  Bakalar možda ne pliva u našem Jadranu, ali zato Hrvatskom trčkara skoro četiri milijuna ovaca
--  Хапун на «Гродножилстрое»: рабочих скрутили прямо на работе
--  La maison mère de Pornhub paye 1,8 million de dollars pour stopper des poursuites pour trafic sexuel
--  Passengers to get 25% rebate for cancelled flights – NCAA
--  There's nothing better than two desperate teams playing each other
--  EQT-fond blir majoritetsägare i indiskt mjukvarubolag
--  Dowalda oo sheegtay in guud ahaan Alshabaab ay soo afjarayan ka hor bisha Febraayo
--  Kanpur: ट्रक में आलू के बोरों में छिपाकर रखी थी शराब, पुलिस ने 80 लाख की 765 पेटी पकड़ी, चालक गिरफ्तार
--  Samohrana majka troje djece izaziva Putina: ‘Sad još samo da prikupim tih 300 tisuća potpisa za kandidaturu!‘
--  Αντώνης Ρέμος: Πλήθος επωνύμων στην παρουσίαση του δίσκου του
--  UP: 'हमारे सिर पर आजम खां का हाथ है...', दुबई में नौकरी लगवा देंगे, बुटीक संचालक को झांसा देकर ठगा
--  Gunman kills 14 in unprecedented attack at Prague university
--  Un tribunal reaviva la demanda por pornografía infantil contra Nirvana por la portada de 'Nevermind'
--  Panettone, choux... Ces pâtisseries qui font de la concurrence à la bûche de Noël
--  Iconic band facing fresh legal action over naked baby album cover
--  Bybit Secures Top Rankings in Institutional Crypto Futures
--  Тренер «Вашингтона» отреагировал на окончание безголевой серии Овечкина
--  Китайский генерал призвал США к осторожности в словах и поступках
--  Super-League-Agentur baut auf große Unterstützung
--  Sturmtief Zoltan in Deutschland sorgt für Bahn-Chaos vor Weihnachten
--  Burgemeester bij kerstlunch Zonnebloem Culemborg
--  讀《菜根譚》聞惡不即就 聞善不急親 | 國學經典
--  정읍시, 내년 정읍사랑상품권 600억원 발행
--  '제복 영웅' 유가족 만난 尹 "여러분을 잊지 않는 국가가 늘 있다" [종합]
--  "JE L' TO I ONA PRETERALA S INTERVENCIJAMA?!" Vesna Pisarović neprepoznatljiva - nestala sa scene, a ovako SADA IZGLEDA!
--  Yonhap: В Южной Корее автобус въехал в толпу людей, есть погибший
--  Los Anđeles Lejkersi u slobodnom padu! Minesota slavila i nanela peti poraz Lejkersima u poslednjih šest utakmica /VIDEO/
--  Luke-ing the Beast in the Eye: The advent of the impatient generation (Republished)
--  पिंजड़े में बिता दी पूरी जिंदगी, कंकाल बन गया शरीर!
--  Partial export suspension after abattoir cruelty claims
--  ByLockçu imam yakalandı
+-  אשדוד הלחוצה תארח את סכנין ללא קהל וללא סבן: "צריך נקודות בדחיפות"
+-  إحباط تهريب كميات كبيرة من المخدرات قادمة من سوريا
+-  غزة التطبيق لا التنظير للتعاليم| كتب محمد علوي الجفري
+-  Több milliárd euró a tét, így mára is maradhat egy hatalmas bejelentés
+-  Pep Guardiola eyes historic Club World Cup victory
+-  Hayley Williams to sell her favourite edibles at her salon
+-  SRK says he would call up Anand Pandit when his films did not work, here`s why
+-  India logs 640 fresh Covid cases, number of active cases rises to 2,997
+-  [22일 거제시] 국도 5호선 거제~마산 구간 국비 50억원 확정 등
+-  Smejkal zapsal premiérový bod v NHL, nastoupili čtyři čeští gólmani
