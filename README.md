@@ -1,51 +1,51 @@
 # Latest News
--  Llega nueva ola de migrantes a Chihuahua
--  Esta laptop gamer ASUS cuesta solo 10,000 pesos y tiene todo lo necesario para jugar o editar en 2024
--  Unos 25 perros y 10 gatos esperan ser adoptados en esta Navidad
--  ‘맨유 오면 주급 7배 올려줄게’…쿠보 영입 위해 파격 제안 꺼냈다
--  Diretor de novelas comenta sobre o pénis do ator: “Eu vi”
--  KOMPANIJA UVELA PRAVILO KOJE ĆE MNOGE OSTAVITI U ČUDU: Ako radnici žele bonus u iznosu cele plate, moraju da urade JEDNU STVAR
--  “Consideramos al DNU de Milei anticonstitucional”, aseveró el flamante director del Instituto del Derecho Laboral entrerriano
--  منها مكة والرياض.. “الأرصاد” يُحذر من أمطار ورياح على هذه المناطق لـ 5 مساءً
--  Labores de limpieza de Emaseo serán normales en Navidad
--  Rescuers search for 4-year-old girl after she falls into Quebec river
--  PRM se Fortalece en Castillo:Juan Maluca Anuncia Apoyo Total a Faurys Velez en la Carrera por la Alcaldía
--  Ciudadanía italiana: el consulado confirmó nuevos turnos en Mendoza
--  Las impactantes fotos de la joven novia de Tom Cruise
--  국내유가 11주째 하락…휘발유 넉달만에 1천500원대
--  Last-minute Christmas shoppers find inspiration on Park Slope's Fifth Avenue
--  Misinformation is becoming more sophisticated in Taiwan
--  Cadangan jeti bagi pelancong, penyelam di Terminal Feri Antarabangsa Labuan
--  Marcos Pitombo mostra queimadura de sol após esquecer protetor
--  Salles ou Nunes: quem receberá o apoio de Bolsonaro?
--  I won £500,000 Christmas lottery jackpot but only took home £12,500 because of a strict deal I made with pals
--  I won £500,000 Christmas lottery jackpot but only took home £12,500 because of a strict deal I made with pals
--  Dash camera video captures how officials responded to complaints about eventual Maine mass shooter
--  Young AFL superstar Connor Rozee shares baby news just months after engagement to Maisie Packer
--  3 أسباب تجعل عودة فاران إلى ريال مدريد ممكنة
--  Dazzle in Elegant Red Dress for Christmas
--  DR MICHAEL MOSLEY: Christmas puts your heart at risk - here's how to protect yourself
--  SEC tells spot bitcoin ETF hopefuls to make final changes by year-end -sources
--  Want to know why your Christmas parcels arrive late and soggy? We go undercover at UK's 'worst' courier firm
--  На Западе заявили об инициативе России на большей части фронта. Какие просчеты допустили Киев и его союзники?
--  5 estreias da Marvel que você perdeu em 2023
--  Marmaris’te alevli gece
--  Province Of Namosi
--  Brock Purdy rookie card sold for record $186K
--  Former Sarnia mayor and MPP has died
--  Após ser processado por agredir ex, Justiça não consegue intimar filho de Mr. Catra
--  Don Day tras ganar 'Desafío a la fama': “Nada fue amarrado”
--  Altı ülke vatandaşlarına vize muafiyeti. Resmi Gazete'de yayımlandı
--  Feliz Navidad
--  LA County Department Of Mental Health Announces It Was Victim Of Cyberattack
--  Commessi e camerieri: “Lo sciopero è riuscito. Pressioni per fermarci”
--  Primer contacto CUPRA León 190: ¿menos es más?
--  Regina house abandoned, used as shelter before it was intentionally set on fire: neighbour
--  “Me tiene bastante tranquilo, es el té del amor”: Jorge Valdivia se refirió a su actual situación amorosa
--  'How the hell does that even happen?' McCarthy exits Congress amid confusion over who can run to replace him
--  تنبيه عاجل من حساب المواطن بخصوص تعطل التطبيق والقيام بهذا الإجراء
--  Por la crisis, se canceló un histórico servicio ferroviario con los pasajes vendidos
--  بريطانيا: اختطاف سفينة تجارية قرب سواحل الصومال
--  Best Buy's Apple sale slashes prices by up to $300 with store pickup for Christmas
--  [오늘날씨] 오후부터 기온 올라… 제주·전라서해안은 눈
--  포스코 포항제철소 불… 공장 대다수 가동 중단
+-  دراسة حديثة.. تحفيز الحبل الشوكي يعالج الاكتئاب
+-  Donald Trump’s long fascination with ‘good genes’ and bloodlines gets fresh scrutiny
+-  Donald Trump’s long fascination with ‘good genes’ and bloodlines gets fresh scrutiny
+-  Channel 5's An Invitation to Murder: Full cast list
+-  Didcot charity receives record donations in Christmas appeal
+-  Marcham BMW driver out of hospital after triple fatal crash
+-  Honda driver with serious injuries after crash on A4130
+-  Britain's Got Talent band coming to Wantage venue on tour
+-  Faringdon pub given a two star food hygiene rating
+-  Oxford United game against Barnsley rearranged due to FA Cup
+-  Local company react to Biden's pardon for federal marijuana conviction
+-  INTUC, AITUC : అసెంబ్లీలో దోస్తీ.. సింగరేణిలో కుస్తీ!
+-  سيناتور أميركي يطالب بحجب المساعدات لإسرائيل
+-  اليكم أبرز الشركات التي علقت أو غيّرت مسار سفنها بعد هجمات الحوثيين
+-  أولمرت مهاجما نتنياهو : القضاء على حماس مستحيل ويجب وقف النار
+-  Akhir Pekan Jalan-jalan Keliling Kota Pakai Bus Trans Jogja, Cek Rutenya di Sini
+-  Persoon overleden bij steekpartij in binnenstad van Enschede
+-  Mickey Mouse ya es de todos
+-  Pete Davidson Cancels Several Shows, Citing “Unforeseen Circumstances”
+-  Four from Border linked to high speed chase in Melbourne
+-  Diez películas ideales para ver esta Navidad
+-  Pakistan, China behind the attacks in Poonch! : లద్దాఖ్‌ నుంచి భారత్‌ దృష్టి మరల్చేందుకే?
+-  Quintana Roo destinations receive the most cruise traffic in Mexico
+-  Mourinho procura reforço para a defesa e a solução pode ser 'bombástica'
+-  Manchester City, Quintuple dan Sejarah Baru Sepak Bola Inggris
+-  Brutálna vražda: Matka dobodala vlastného syna (†4)! Dôkazový materiál nechala pohodený v umývadle
+-  Úžasný Marián Geišberg by mal dnes 70: Jeho veľký talent a podmanivý hlas zbožňovali mnohí!
+-  Jennifer López y Ben Affleck confirman que sufren de estrés postraumático por culpa de los medios
+-  Resmi Gazete'de yayımlandı: PPK üyeliğine Fatma Özkul atandı
+-  5 Highly Underrated Practices To Combat Mouth Odor
+-  [인터뷰] '소년시대' 임시완 "'병맛' 코미디 매력에 푹…웃길 수 있어 좋았죠"
+-  [인터뷰] '운수 오진 날' 유연석 "사이코 역할에 악몽 꾸기도 했죠"
+-  La Sociedad de la Nieve: Platicamos con Carlitos Páez, sobreviviente del accidente de los Andes
+-  Constellation Software adquiere MEDHOST para reforzar su cartera de productos
+-  ウィリアムズ・レーシング 2024年F1マシンを2月5日に発表
+-  Tesla faz recall de 120 mil veículos devido ao risco de portas destrancadas durante um acidente
+-  'Art Deco' beachfront flats at prime Conwy site certain to 'attract lot of attention'
+-  Causes of death of three teenagers killed in crash confirmed in inquest opening
+-  Anglesey residents are fighting plans for double yellow lines to be introduced in their village
+-  Sentimental items in memory of child stolen as police launch probe
+-  Work on Anglesey secondary schools affected by RAAC crisis 'progressing well'
+-  North Wales pub among best for winter meals - but you won't get one before Christmas
+-  Pensioner with leukaemia punched multiple times in 'unprovoked' street attack
+-  Met Office issues Christmas Eve weather warning with flooding and power cuts possible
+-  Public will get more time to speak in Anglesey planning meetings
+-  Police launch search for teenager after man injured in Rhyl stabbing
+-  Welsh social club faces partial demolition due to growing sinkhole
+-  Tragedy as 18-year-old woman dies in Bangor
+-  Plan to build 94 homes at North Wales private school site given green light
+-  Trump's Long Fascination With Genes and Bloodlines Gets New Scrutiny
