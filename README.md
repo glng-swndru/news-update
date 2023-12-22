@@ -1,51 +1,51 @@
 # Latest News
--  «Ўқувчининг туғилган куни бўлмаган» – Қашқадарёдаги мактаб қизлари билан нималар бўляпти?.
--  “Империячилик касаллигининг иситмаси” — Прилепиннинг баёноти сиёсатшунослар нигоҳида.
--  Ҳудудларда кучли таъсир қилувчи дориларини сотаётган шахслар ушланди.
--  안치홍·김재윤이 특별하다? FA 아직도 11명 남았다…1월에 깜짝 이적 나오나 ‘느림의 미학’
--  "인생 역전! 맨유에 버림받고 레알 Or 바르샤 간다고?"…성범죄 논란 FW, 최고의 경기력에 최고의 이적설까지
--  대전교육청 정기인사 단행… 행정국장 정회근·대전학생교육문화원장 오광열
--  Hrithik, Deepika gift a new sizzling beach track with Fighter song Ishq Jaisa
--  BB17: Raveena Tandon and Abdu Rozik set to accompany Salman Khan during WKV
--  Trener Dinamovog protivnika u KL zabrinut: ‘Iz različitih razloga ne zabijamo…’
--  Mercato : C’est bouclé, Messi reçoit son cadeau de Noël !
--  TUGA U DOMU SRPSKE FOLK ZVEZDE: Dragani Mirković preminula svekrva - potresna objava Tonija Bijelića osvanula na mrežama
--  Milletvekili Kalaycı’ya teşekkür ediyorum. Bir de ricam var
--  Konya'da saman balyasının altında kalan kadın yaralandı
--  Boş arazide dua eden şahıs ekipleri harekete geçirdi
--  Fransa’da kaybolduktan 6 yıl sonra bulunan İngiliz çocuk: Yalan söyledim
--  İstanbul'da başıboş köpekler yoldan geçenlere saldırdı
--  Alaaddin Camii Sultanlar Türbesi'nde sıra dışı gelenek
--  Ebube Nwagbo Reveals Crushing On Emeka Ike
--  Herlufsholm afskediger både rektor og forstander
--  Herlufsholm afskediger både rektor og forstander
--  Hallmark-style holiday markets are tiny examples of how much better our cities could be
--  How to learn to play blackjack
--  5 HOROSKOPSKIH ZNAKOVA KOJIMA ĆE 2024. BITI NAJSREĆNIJA GODINA! Ako januar krene turbulentno, NE ODUSTAJTE - slavićete!
--  США считают, что РФ перевела экономику на военные рельсы
--  Lines form early as holiday travel rush continues at Newark Liberty International Airport
--  Ξεκινά η επένδυση του IRC στο Ελληνικό
--  Public en feu, prodige de 16 ans, paris sportifs… Quand la folie s'empare des championnats du monde de fléchettes
--  مفاوضات مفاجئة تدفع دهوك لتسمية أحمد خلف مدرباً لفريقها الكروي
--  Семья девочки, мечту которой исполнил Путин, посетила выставку-форум "Россия"
--  United Airlines is being sued by a first-class flier who says she was sexually assaulted by a 'highly intoxicated' passenger given 9 servings of alcohol
--  ΠΑΟΚ: Ο Λουτσέσκου ξεπέρασε τον Αναστασιάδη, έγινε ο κορυφαίος σε νίκες στην Superleague
--  В ГД внесли проект о сроках привлечения к ответственности за посты в соцсетях
--  Ускоренное старение женских яичников связали с ростом активности гена CD38
--  Στην Αγορά της Κυψέλης η ορκωμοσία του Χάρη Δούκα
--  Kamiński, Wąsik, Duda i prawo łaski. Czy oni wiedzą, o czym mówią?
--  Rigsadvokaten får lov at anke sag om IS-husmor til Højesteret
--  Rigsadvokaten får lov at anke sag om IS-husmor til Højesteret
--  وفد كويتي يزور مدرسة الملحة بردفان
--  Estas serán las características del POCO X6, un teléfono Xiaomi de lo más completo
--  Kako prestati biti lijen? Ovih 7 koraka je ključno, u trenu ćete si olakšati život
--  Év végi bombameglepetés: Majka visszatér az RTL-hez!
--  Crazy Kennar’s Girlfriend Finally Opens Up On Loss Of Their Unborn Child
--  Kényelmes, nőies hosszú szárú csizmák körképe - Hóban, latyakban és hidegben is megállják a helyüket
--  角田裕毅 アストンマーティンF1移籍の場合にライバルになるのは？
--  В России наступил Пэгытти
--  Crteži učenika OŠ Vežica krase zidove Klinike za tumore
--  UAE’s new end-of-service benefits scheme for employees: Why should you switch?
--  عملية بساط الريح؟| كتب محمد محمد المسوري
--  Huthi-Angriffe im Roten Meer: Mehr als 20 Länder beteiligen sich an Allianz
--  Weihnachtskracher beim ERSC Amberg: Mitkonkurrent um Play-off-Platz zu Gast
+-  Bezoeklocaties Werelderfgoed Kinderdijk deze winter beperkt geopend
+-  Zeven wensen van Kerstwensboom gaan in vervulling in Groot-Ammers
+-  Yoshitsu Co., Ltd Reports First Six Months of Fiscal Year 2024 Financial Results
+-  Exemplifying the ideal blend of technology and hospitality: PUDU Elevates Hotel with Smart Robotic Solutions
+-  클롭이 선택한 살라 후계자…‘13도움 라이징스타’ 영입 추진
+-  천안시티FC, 이도영 테크니컬 디렉터와 동행 마무리
+-  ‘늙지 않는’ 축구 교수님, 스페인 라리가 도움 1위 등극...이대로 유로 2024 참가하나?
+-  Revitalization of Paseo Marítimo Malecón: a milestone for Santo Domingo
+-  1000-asis „Roshel Senator“ Ukrainai - kuo šios kanadietiškos mašinos tokios geros?
+-  [ŽT] Rusijos elitas. Sunku patikėti net pamačius. Ką išdarinėja Kirkorovas, Sobčak ir kiti (Foto, Video)
+-  „Atkurti SSRS. 2 000 000 jūsų piliečių...“ Skelbiama apie visuotinę Rusijos kaimynų okupaciją (Video)
+-  [ŽT] „Stabdykite chamus.“ Armėnija siunčia įspėjimą Simonian (Foto)
+-  بعضهم يجتاز الخط الفاصل.. كيف يعمل صحفيون غزة وسط انقطاع الإنترنت والاتصالات؟
+-  2 M'sians claim S'pore system erroneously charged S$2,700 in VEP fees, didn't register vehicle's departure
+-  인천시, 2024년 예산에 역대 최대 국비 5.5조 확보
+-  경기도-전북도, '인공지능·미래차 산업' 2차 상생협력
+-  인천시 지역내총생산 첫 100조 돌파… 서울 이어 특별·광역시 경제규모 2위
+-  인천시의회 이오상·정해권·정종혁 의원 '2023년 지방의원 매니페스토 약속대상' 수상
+-  수원시립어린이집, 대한적십자사 경기도지사에 라면 나눔 트리 전달식
+-  의왕시에 4개 역사 들어선다… 이소영 국회의원 “지하철 인동선·월판선 동시 착공”
+-  김정우 전 국회의원, 총선 군포시 예비후보 등록… 본격 선거운동 돌입
+-  수원시야구소프트볼협회, 2023 수원시 야구인의 밤 성료
+-  PKL Dalem Kaum Alun-alun Kota Bandung Tolak Relokasi
+-  ΕΛΣΤΑΤ: Συνέχισαν να αυξάνονται οι τιμές των οικοδομικών υλικών
+-  박승원 광명시장·안성환 광명시의회 의장, 적십자 특별회비 전달
+-  International recruits graduate from WA Police transitional course
+-  SON DAKİKA: Merakla beklenen derbinin hakemi belli oldu... Fenerbahçe - Galatasaray derbisini Arda Kardeşler yönetecek!
+-  SON DAKİKA: Rıza Çalımbay takımdan gönderilişini anlattı... Beşiktaş'ta olaylı gece! "Maçtan sonra 1'de üç yönetici tesise geldi..."
+-  הותר לפרסום: גדי חגי בן ה-73 נרצח וגופתו מוחזקת בעזה, אשתו ג'ודי ווינשטיין פצועה בשבי
+-  FENERBAHÇE GALATASARAY MAÇI BİLET FİYATLARI! Fenerbahçe Galatasaray maçı ne zaman, saat kaçta, hangi kanalda? Derbi heyecanı!
+-  Tecnotreen rahoitussotkut ja viestintä riivaavat sijoittajia – Toimitusjohtaja avaa tilannetta ja kertoo myös, mihin katosi osa luvatuista osakeostoista
+-  La course au MVP NBA 2024 : qui est le numéro 1 du classement ? Apéro TrashTalk
+-  Ο δράστης της πολύνεκρης επίθεσης αυτοκτόνησε, ανακοίνωσε η τσεχική αστυνομία
+-  PUBG hayranlarına şok! Karar sonrası 60 milyar dolar buharlaştı
+-  Merkez 17 yıl sonra ilk kez ihaleyi yaptı
+-  Euro/dolar paritesinde 4.5 ayın zirvesi
+-  عطل يضرب منصة «X».. شكاوى متزايدة من المستخدمين بشأن 3 مشكلات
+-  Tesla'dan büyük geri çağırma
+-  I saved £1,550 in one ‘zero spend’ month — here’s how
+-  Προσεχώς: «Στοιχειωμένα Νερά»: Το νέο υπερφυσικό θρίλερ του Μπράις ΜακΓκουάιρ
+-  Finance minister questions new HIO hires, stresses productivity focus
+-  By Cc Interiör & Design - enskild firma startar i Motala
+-  Debat Cawapres, Muhaimin Pakai Jas, Gibran Kemeja Biru, Mahfud Md Kenakan Adat Madura
+-  Όλες οι παραβάσεις του οδηγού και το ιστορικό του αυτοκινήτου στο auto.gov.gr
+-  Le démarrage de construction du chemin de fer Tanzanie-Burundi prévu entre juin et septembre 2024
+-  Coro estreia-se em noite de lua cheia numa aldeia de Vila Real
+-  الشويهدي: الدبيبة أخبرني شخصياً برغبته في الاستمرار بالحكم 6 سنوات
+-  El Barcelona y el Girona se libran de un apuro que el Real Madrid no podrá evitar
+-  Fenprof protesta pela reinscrição de "milhares de professores" na CGA
+-  O que é lava vulcânica? Do magma às rochas ígneas
