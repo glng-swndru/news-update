@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | Defender Requests To Leave Sundowns?
--  오비맥주, ‘2023동반성장 다짐대회’ 개최
--  외식 프랜차이즈 전문기업 ㈜SY프랜차이즈, 국내 료칸 '유메모리' 오픈…얼리버드 프로모션 진행
--  쿠우쿠우 창원점 22일 그랜드 오픈
--  서울교통공사, 서울 강남구 '아동양육시설'에 300만원 기부
--  [속보] '백현동 수사 무마 의혹' 곽정기 구속영장 발부…임정기는 기각
--  크리에이터 위한 소셜 멤버십 네트워크 VERO, VERO Music TM 출시
--  Addentax Group Corp. Announces Signing of MOU for Strategic Cooperation with Zhongjiu Yihe
--  Unraveling the secret behind the success of China's engineering machinery
--  The Chinese market remains an attractive investment hub. Why?
+-  ישי עוליאל ומיקה בוחניק זכו באליפות ישראל בטניס
+-  SMUTNÁ SPRÁVA Náhle zomrel bývalý ŠÉF v SIS! Išiel za deťmi, domov sa už NEVRÁTIL: Smútia za ním aj ministri, silné slová POLITIKOV
+-  Fiducia e imprese e consumatori in recupero: un segnale positivo ma non per tutti
+-  Newly Released Records Show Joe Biden Repeatedly Emailed Hunter's Business Associate Before Burisma Appointment
+-  Sanidad recomienda una dieta lo más equilibrada posible en las fiestas navideñas
+-  Revelan el fuerte reclamo de Xavi a jugadores del Barcelona: "¡Quiero que corran como cerdos!"
+-  El Gobierno dijo que el operativo de seguridad del 20D costó $60 millones y que se los cobrará a las organizaciones piqueteras
+-  Estafan falsas agencias con viajes a Xcaret
+-  Finale der Klub-WM: Manchester City - Fluminense live im TV und Online-Stream sehen
+-  Луис Суарес се събира с Лео Меси в САЩ
+-  Деятельность "Россети Северный Кавказ" - "Дагэнерго" проверят
+-  Ranking de Netflix: las mejores 10 películas para ver este fin de semana
+-  Directo | MoraBanc Andorra - Dreamland Gran Canaria
+-  Nachfolger von Steffen Baumgart: So geht der 1. FC Köln die Trainer-Suche an
+-  Страхам ряда стран ЕС из-за возможного конфликта с Москвой нашли объяснение
+-  Megsértette az MMC jóhírét az MSZP az Alkotmánybíróság szerint
+-  CCP’s Attempt to Interfere in Taiwan’s Election Yielded Minimal Results
+-  الاحتلال يكثف القصف على البلدات اللبنانية الجنوبية
+-  STRANCI GA TRAŽE, A NEMA GA NI ZA LEK: Nekad smo ga izvozili, sad nemamo ni za nas, CELOKUPAN ROD PRODAT JOŠ PRE MESECA DANA!
+-  Nataša iz Beograda za Kurir.rs iz Praga: Još nisu objavljena imena nastradalih, neki mediji odbijaju da izveštavaju o ubici
+-  Intersex Drama ‘Mistake,’ Honey Lauren’s Feature Directorial Debut, Casts Dominic Bogart, Kay Lenz (EXCLUSIVE)
+-  Intersex Drama ‘Mistake,’ Honey Lauren’s Feature Directorial Debut, Casts Dominic Bogart, Kay Lenz (EXCLUSIVE)
+-  CIDH insta a Honduras a garantizar independencia judicial en elección de FG
+-  Aufatmen auf Island: Kein Lavaaustritt mehr
+-  В администрации Туле провели рабочее совещание по развитию международных связей
+-  DA LI ZNATE DA JE BAŠ OVA PESMA POSTALA NAJVEĆI HIT U SVAKOJ SRPSKOJ KAFANI? Ljudi ne prestaju da je SLUŠAJU
+-  1000 Kelvin's AI-Powered Copilot for 3D Printing Goes Commercial, Adopted by Leading Manufacturers
+-  Milli Məclisin növbəti iclasının GÜNDƏLİYİ
+-  Kiesewetter für Unterstützung bei Rekrutierung von Ukraine-Geflüchteten
+-  Nirvanabebisens fall ska prövas i domstol
+-  Kyrgyzstan's president signs law approving to amend country's flag
+-  ¡Ojo! Casos de Covid-19 van en aumento
+-  Pensioner who died in devastating house fire named
+-  Luto en el deporte venezolano: fallece la estrella del baloncesto venezolano Garly Sojo
+-  السقاف: مشاركة بلادنا في المخيم الكشفي العربي مميزة ونوعية
+-  Jens Lehmann zu 420.000-Euro-Geldstrafe im Kettensägen-Prozess verurteilt
+-  Yleisöennätys romukoppaan – Suomen tennismiehet loivat hurjan buumin
+-  Nin dilay 14 ruux kadibna is dilay
+-  To będzie pierwszy świadek w sprawie wyborów kopertowych. "Miał ogromną wiedzę"
+-  Lille: Ilévia annonce un renforcement de l'offre de transports en commun pour les fêtes
+-  BioVaxys Executes Letter of Intent for Major Immunotherapeutics Technology Acquisition
+-  Audi го намалува ЕВ производството, ќе ги форсира возилата со согорување
+-  RUSIJA PRETI PREKIDOM ODNOSA SA AMERIKOM "Ovo je neprihvatljivo, Sjedinjene Države ne smeju da deluju u iluziji"
+-  Straftäter nach fast fünf Jahren Flucht festgenommen
+-  باكستان.. الإفراج عن عمران خان بكفالة في قضية التشفير
+-  Oppo A59 5G launched in India; Check price and other details
+-  El horóscopo de Nana Calistar para hoy, viernes 22 de diciembre
+-  Investigan los motivos detrás de la peor matanza en la historia de República Checa
+-  Britse tiener krijgt gedwongen verpleging na hacken bedrijf achter Grand Theft Auto
+-  Britse tiener krijgt gedwongen verpleging na hacken bedrijf achter Grand Theft Auto
