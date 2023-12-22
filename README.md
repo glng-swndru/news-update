@@ -1,11 +1,11 @@
 # Latest News
--  Cem Karaca’nın Gözyaşları filmine açılan ilk dava sonuçlandı
--  Raport: Rynek bankowości elektronicznej – III kw. 2023 r.
--  Memes 2023: 'लप्पू सा सचिन' से 'मोय-मोय' तक, इन भयकंर वायरल मीम्स ने गुदगुदाया
--  MTN, CardinalStone, VFD Group, others get accolades at NGX Made of Africa Awards
--  ‘男 미들블로커’ 리빙 레전드 등번호 30번까지 올라간다? “5000득점 도전해보고 싶네요.”
--  City of Yarra Council under fire for 'political correctness gone mad' after it banned childcare workers from receiving Christmas gifts from grateful families
--  Woking council tax could rise by 10% after Government green light
--  Understaffed Guildford care home told to improve as residents 'wait for care'
--  Newlywed Surrey couple urged to 'stay down' amid Prague shooting
--  Met Office, BBC Weather and WX Charts give updated verdict on snow in Surrey this Christmas
+-  Lee Byung-hun, Lee Min-jung welcome second child
+-  Jeju Island's inbound tourism to surge in 2024 with increased air, sea routes
+-  Rahul praises youngsters after Samson ton sets up ODI series win against SA
+-  Hope leads West Indies to T20 series win over England
+-  UKCG simbol afirmaciјe stvaralaštva
+-  22일 퇴근길 노선버스 증차 운행… 제주도 "폭설로 이용객 증가 대비"
+-  שי וטל נפלו בקרבות ברצועה, 3 לוחמים נוספים נפצעו קשה
+-  התחזית: גשמים יירדו ברחבי הארץ ויתחזקו לקראת הערב, רק בשני יתחמם
+-  올해 괴산축제 성적표는요…
+-  음성생활체육공원·반다비 국민체육센터 준공
