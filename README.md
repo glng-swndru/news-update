@@ -1,11 +1,11 @@
 # Latest News
--  로그프레소, 가족친화인증·여성가족부장관 표창 수상
--  대전시교육청, 학교예술교육 성과 쾌거
+-  국힘 윤재옥 "한동훈 어제와 전혀 다른 정치 기대해도 좋다"
+-  '마약 투약 혐의' 전두환 손자 전우원씨, 집행유예 선고
 -  [속보] 검찰, 민주당 부대변인 압수수색… 김용 재판 위증 관여 의혹
--  인천서구시설관리공단, 전국지방공기업 우수사례 경진대회 최우수상 수상
--  유의동 "청소년 고의 위법 행위로 억울한 피해 입는 소상공인 없어야"
--  DGB대구은행, 'AI 은행원' 첫선
--  [인사] 산림청
--  天文台｜市區最低氣溫降至8°C 大帽山僅錄負1.6°C
--  ศิลปะบนนาข้าว อ.เทิง เริ่มเปลี่ยนสี! เตรียมเปิดเป็นทางการช่วงส่งท้ายปี
--  81-årig mand er død efter frontalt sammenstød i Tappernøje
+-  2 Variasi Resep Otak-Otak
+-  El regalo de la 14: Sigue el Min a Min del América vs. Barcelona en EU
+-  Reaksi La LIga setelah Pengadilan Keluarkan Putusan soal Liga Super Eropa
+-  삼성증권, '국내주식 입고는 삼성증권으로' 이벤트 실시
+-  삼성카드, 트레이더스 홀세일 클럽 '수원화서점' 오픈 기념 이벤트 진행
+-  미래에셋증권, 0.5X 시장 대표지수 ETN 2종 최초 상장
+-  코레일, 외국인 열차 예매 ‘QR스캔’으로 간편하게...
