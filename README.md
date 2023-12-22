@@ -1,51 +1,51 @@
 # Latest News
--  Parlament RS usvojio nacrte zakona o imunitetu i referendumu,...
--  СБ ООН принял резолюцию по Газе
--  RuPaul's Drag Race Alum Farrah Moan Comes Out as Transgender
--  أحمد الخير عن اضرار الأمطار الطوفانية في المنية: الفرق الفنية بدأت عملها
--  "حزب الله" نشر مشاهد من استهداف مزارع مستوطنة دوفيف
--  مولوي متفقدًا مطار بيروت: عدد الطائرات خلال هذه الفترة ازداد والمطار في أمان
--  معلومات "الجديد": تعيينات المجلس العسكري حُسمت واختيار العميد حسان عودة لرئاسة الأركان
--  "حماس": أميركا أفرغت القرار الأممي بشأن غزة من جوهره وأخرجته بصيغة تسمح للاحتلال استكمال التدمير والقتل
--  البيت الأبيض: إيران متورطة بشكل كبير في التخطيط للعمليات ضد السفن التجارية في البحر الأحمر
--  هيئة البث الإسرائيلية: مقطع الفيديو الذي قدّم للشاباك ظهر فيه محمد الضيف وهو في وضع نشط
--  Prague Police release bodycam footage following mass shooting
--  Prague Police release bodycam footage following mass shooting
--  Sutjeska protiv Superlige: Črvsto uz ECA, UEFA i FIFA
--  ربيعة ينضم إلى قائمة الأكثر مشاركة في نسخ كأس العالم للأندية
--  New waste management strategy denied by Waterloo regional councillors
--  خطوة ينتظرها الملايين.. ميتا تجلب محادثات التطبيقات الأخرى إلى ماسنجر
--  ما الأمور التي تجعل المسلم من المتقين؟ "الخثلان" يُجيب
--  فلسطين: الاحتلال يستغل الانشغال بالإبادة في غزة ويشدد إجراءات التهويد ضد الأقصى
--  Emergency-level fires downgraded in Perth
--  Eltinizi çatır çatır çatlatacak kek! Her yediğinde tarifi için yalvaracak, enfes
--  População brasileira se reconhece como preta e parda, na sua maioria
--  Tunisie : Le vent fait des ravages au Cap Bon
--  Lionesses hero Chloe Kelly shows off glittering diamond ring as beaming England star gets engaged under Northern Lights
--  “이정후, 오타니·소토만큼 관심 못 끌지만…” 샌프란시스코는 좋아졌다, 1469억원 가치 ‘확실’
--  Chegaram as promoções da Steam para este inverno
--  Felipe Melo y Kyle Walker se fueron a las manos tras la final del Mundial de Clubes
--  سيتي يكتسح فلومينينسي برباعية.. ويتوج بلقب مونديال الأندية
--  Personal trainer charged with sex assault
--  Protestanata sve manje, štrajkača glađu sve više
--  PT confirma pedidos de cassação dos deputados
--  Ukrajinské úrady zorganizovali návrat 12-ročného syna vojačky, ktorého odvliekli Rusi
--  Van den Bergh is na inzinking volgende topspeler die strandt op WK darts
--  Takmičarka "MasterChef Srbija" se posekla dok je kuvala: Ukazana joj pomoć
--  أميركا: إيران «متورطة بشكل كبير» في العمليات ضد سفن تجارية بالبحر الأحمر
--  Immunität Trumps: keine Entscheidung vom Obersten Gericht
--  SAL-MIL (1-1): Doveri fischia due volte, squadre a riposo sull'1-1
--  Immunität Trumps: keine Entscheidung vom Obersten Gericht
--  Más de 3 mil tianguistas de Culiacán están listos para las “compras de pánico” por Navidad
--  بطولة إنكلترا: تين هاغ يتوقّع عودة كازيميرو ومارتينيس في يناير
--  Кубанскиот парламент ја одобри евтаназијата
--  الأهلي المصري ينتزع المركز الثالث في مونديال الأندية
--  سواريس ينضم إلى ميسي في إنتر ميامي الأميركي
--  فلسطين: الاحتلال يفرض المزيد من إجراءات التهويد ضد الأقصى
--  Hombre sufre caída desde la azotea de su casa
--  Column: Florida State always seemed out of place in the ACC. Now the Seminoles want out
--  Nowhere, la distopía más popular de Netflix habla español
--  El archivo secreto de Bob Dylan: la historia de cómo desafió a sus fans y al mundo
--  Rutas Seguras: “Vamos a intensificar los operativos móviles, la concientización y la educación vial”
--  Salernitana-Milan, Maignan si infuria dopo il gol preso da Fazio
--  PJ decidirá si ratifica condena por tráfico de influencias a Kenji Fujimori en enero
+-  2023 AFCON: Yaya Toure snubs Super Eagles, picks favourites to win title
+-  Özgür Özel Filistin’e gidiyor!
+-  União de Leiria e Paços de Ferreira anulam-se em jogo antecipado
+-  FUDBALSKA INJEKCIJA ZA KLUBOVE U PREMIJER LIGI: Milionski iznos iz UEFA stiže u Nogometni savez BiH
+-  DEKLASIRAO FLUMINENSE: Manchester City postao klupski prvak svijeta
+-  Bundesliga club Mainz appoint Jan Siewert full-time
+-  Israel bombardeou áreas para onde ordenou que civis de Gaza fossem, aponta jornal
+-  Ceny ropy wyraźnie wzrosły w tym tygodniu. Zmiany na rynku ropy naftowej
+-  Diseñan Innovador Robot en Forma de Dragón para Combatir Incendios
+-  JK POTROŠILA NEKOLIKO DESETINA HILJADA EVRA NA UKRASE: Jedan DETALJ u dvorištu svima privukao pažnju! VIDEO
+-  Toripalimab by Shanghai Junshi Biosciences for Urethral Cancer: Likelihood of Approval
+-  Maersk Sees Red Sea Shipping Chaos Lasting for Months
+-  Toripalimab by Shanghai Junshi Biosciences for Metastatic Colorectal Cancer: Likelihood of Approval
+-  Gesto solidario de Ziegel
+-  Toripalimab by Shanghai Junshi Biosciences for Laryngeal Cancer: Likelihood of Approval
+-  MEKANI PEŠKIRI ZA 10 MINUTA Uz najlakši trik će biti kao novi, samo obratite pažnju na jednu stvar
+-  Fazio all’intervallo: «Bravi a restare in partita, dobbiamo essere più cattivi»
+-  Generational Equity Advises Denille Industries in its Sale to Private Investor Group
+-  Toripalimab by Shanghai Junshi Biosciences for Hypopharyngeal Cancer: Likelihood of Approval
+-  Aaj Ka Kanya Tarot Card: कन्या राशि वाले अपनी योजना को लेकर निर्णय लेना शुरू करें, मिलेगी सफलता
+-  Former council worker, 59, charged over ‘stealing more than £1million’ from Scots local authority
+-  Власти США одобрили продажу ФРГ, Италии и Нидерландам 940 ракет для ПЗРК Stinger
+-  Toripalimab by Shanghai Junshi Biosciences for Gallbladder Cancer: Likelihood of Approval
+-  ¡Ya viene el refuerzo! Prevén que este sábado lleguen las nuevas patrullas para la Policía de Mazatlán.
+-  Toripalimab by Shanghai Junshi Biosciences for Bladder Cancer: Likelihood of Approval
+-  GOP House Candidate’s Local Bridge Expert Faces Election Charges
+-  Toripalimab by Shanghai Junshi Biosciences for Cervical Cancer: Likelihood of Approval
+-  UKOLIKO IMATE OVE SIMPTOME, ODMAH IDITE KOD DOKTORA! Lekari upozoravaju, ovi virusi haraju Srbijom
+-  Brasil. Parlamento aprova orçamento e mantém meta de défice zero em 2024
+-  Toripalimab by Shanghai Junshi Biosciences for Prostate Cancer: Likelihood of Approval
+-  AMLO resalta avances en Venezuela tras acuerdos y relajación de sanciones
+-  Celal Şengör ve Yunan, Amerikan benzerleri aynı masada
+-  NXP-900 by Nuvectis Pharma for Esophageal Squamous Cell Carcinoma (ESCC): Likelihood of Approval
+-  Colisão entre dois veículos faz três feridos em Cantanhede
+-  NXP-900 by Nuvectis Pharma for Triple-Negative Breast Cancer (TNBC): Likelihood of Approval
+-  Fatalne wieści dla Rakowa. Spełnia się najczarniejszy scenariusz
+-  Вбив чотирьох пасажирок та зґвалтував дитину: в Одесі таксист отримав довічний строк
+-  ASEAN iktiraf usaha MKM basmi kemiskinan
+-  Pesawat C295MW tiba di Brunei Januari 2024
+-  Suzana Pires sai em defesa de Paolla Oliveira após críticas na web: ‘Siga inspirando todas nós’
+-  Франција го заврши повлекувањето на војниците од Нигер
+-  Почина еден од ранетите во пукотницата на Карловиот Универзитет во Прага
+-  اهلي السيسبان يكسب منافسه اتحاد22 في بطولة شهداء الشيخ عثمان
+-  "Guruló dollárok?" Lepattant a kormány Márki-Zay Pterről
+-  Kattilathu bestreitet Liebesbeziehung zu Amira Pocher
+-  Program cetus sikap ingin tahu, teroka minat baharu
+-  انٹرا پارٹی الیکشن پر الیکشن کمیشن کا فیصلہ، چیئرمین پی ٹی آئی نے حکمت عملی کا اعلان کر دیا
+-  Sigurne pobede Baskonije i Olimpijakosa, Barselona preživela Žalgiris
+-  Хавбек «Манчестер Сити» Родри признан лучшим игроком клубного ЧМ
+-  Sport | Man City cruise to first Club World Cup triumph
