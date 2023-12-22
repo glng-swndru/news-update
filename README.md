@@ -1,51 +1,51 @@
 # Latest News
--  مئات الأطفال يموتون خنقًا بسبب ستائر النوافذ.. كيف تحمي أبناءك الصغار؟
--  شروط ترخيص ممارسة خدمة التحليلات العقارية للأفراد والمنشآت
--  أمطار المدينة.. شاهد سيول واسط ينبع النخل شمال محافظة بدر
--  Inflación anual de EEUU se desacelera aún más por debajo del 3% en noviembre
--  La erupción de un volcán trunca las esperanzas navideñas de las familias islandesas de la zona
--  Mercado anticipa que la Fed bajará las tasas a partir de marzo por enfriamiento de la inflación
--  Holanda entregará 18 cazas F-16 a Ucrania
--  La reanudación de Boeing en China podría liberar entre 500 y 1.000 millones de dólares en efectivo sin restricciones - Wells Fargo
--  La revisión del PIB británico apunta a un inicio más temprano de la recesión
--  LIVE Primavera Torino-Empoli: formazioni e prepartita in diretta
--  Három eladásból 270 milliárd folyt be az államhoz, a ferihegyi repülőtér megvásárlására fordítják
--  سپریم کورٹ نے سائفر کیس میں عمران خان اور شاہ محمود قریشی کی ضمانت کا تحریری فیصلہ جاری کردیا
--  Otomobil Çarpıp Kaçmıştı: Üniversite Öğrencisi Genç Kız Öldü
--  Etliche Kündigungen in Neuendorfer Betonwerk
--  Familie Husaini aus Eschau lebt jetzt in Rück-Schippach
--  Fall Wiesenfeld - Anklage zugelassen
--  Ülke bayrağında değişikliğe gidiyorlar!
--  Eczacıbaşı Dynavit rakibine set vermeden galip
--  Sultan II. Abdülhamid'in fotoğraf koleksiyonu Kahire Yunus Emre Enstitüsü'nde sergilendi
--  Costa Rica Hits Jackpot: IMF Unlocks a Treasure Chest of Over $770 Million
--  Specsavers offers free glasses to homeless people at Christmas eye clinics in Edinburgh
--  Ξεκίνησε έρευνα η αστυνομία στη Βρετανία για την απαγωγή του νεαρού Αλεξ Μπάτι
--  Blandad öppning på New York – Nike rapportrasar
--  Përditësohen vlerat në La Liga – Bellingham me rritje rekorde, nëntë lojtarë të Barcelonës zhvlerësohen
--  Weihnachtsgruß vom Regierenden Bürgermeister: Kai Wegner wünscht Menschen in Berlin Hoffnung und Zuversicht
--  Elon Musk’ın büyük hayallerle kurduğu şirket kapanıyor!
--  UK Police Launch Child Abduction Probe Over Teen Found In France
--  Cocaine Market Sees New Players, Bananas And Amazon Submarines: Report
--  Teenagers jailed for killing stranger who ‘annoyed’ them on bus
--  Ga gass like før dødsulykken
--  Fremont’s German deli, Munchner Haus, is closing after 30-plus years
--  U kallëzua nga Gaz Bardhi, Nuk nisin hetimet ndaj Lindita Nikollës
--  Solid vs Case Analysis and Prediction
--  В Казани в связи с оттепелью перенесли открытие новогодних елок
--  À 76 ans, ce Varois remporte son 20e titre de karaté
--  Why Is ‘The Drew Barrymore Show’ Off For Two Weeks?
--  Elhanyagolt kilincsek és kapcsolók: nagyvonalúan takarítanak a magyarok
--  Beyond the Clock: Expert shares hidden dangers of long workdays on mental and physical health
--  Moldova's Parliament Extends Unique Tech Business Enabling Framework and 7% taxation ceiling up to 2035
--  Skutki orkanu Pia w powiecie pleszewskim. Ile razy wyjeżdżała straż? [ZDJĘCIA]
--  Charity shop refuses to reduce £6 coat for pensioner - so kind customer buys it for him
--  Cak Imin Kritik Ketidakadilan Ekonomi di Indonesia: Ini Harus Kita Slepet
--  Η ΟΜΟΝΟΙΑ ανασύρει από το αρχείο και ρωτά…
--  ODLUKA JE DONETA! Zadrugari izabrali da ona napusti Belu kuću: Mnogi će se iznenaditi
--  Modena, Bianco: "Ci piace confrontarci con squadre forti"
--  Suspeito de tentativa de homicídio nas Caldas da Rainha detido pela PJ
--  Shkollimi i shqiptarëve në Beograd
--  Around-the-clock efforts to save animals fleeing raging Simon's Town fire
--  Asiantuntija: SM-liigassa jysähtämässä siirtopommi – Ilves ja Tappara keskiössä
--  Christian Chávez usa playera con la palabra put* y lanza fuerte mensaje: "si luchar por mi libertad es ser put*, entonces soy put*"
+-  Oliver Pocher: Video zeigt sein neues Single-Leben – „Nach Trennung alles teurer“
+-  Klubrekordért igazolt magyar válogatott futballistát a Debrecen
+-  News24 | Simon's Town inferno: Cape Point closed as firefighters battle spreading blaze
+-  Pro und Contra: Lebkuchen bitte erst ab 1. Advent!
+-  Quique: "No tenemos buenos recuerdos del Atlético como sevillistas"
+-  Five men arrested following €21 million cocaine seizure in Limerick – as gardai investigate
+-  Inside Beckham’s workout which includes weighted vest & slamming medicine balls
+-  Unaprjeđenje pravosudnog odgovora na femicid i rodno zasnovano nasilje u fokusu mladih sudija
+-  Zac Efron napszemüvegben jelent meg egy tévéműsorban, de nem azért, amiért Kozso szokta
+-  Canada’s major climate failure
+-  El siguiente paso de la Superliga
+-  سواريز يقترب من مجاورة ميسي مرة أخرى
+-  Дания обяви при какви условия връща украинските бежанци у дома
+-  Rewe-Logistikzentrum darf vorerst nicht gebaut werden
+-  Čola oborio rekorde: Evo koliko će zaraditi za doček 2024. godine
+-  Penampilan Gibran di Debat Cawapres Lampaui Ekspektasi, Netizen: Underdog, Langsung Keliatan Bagus
+-  Usa: inflazione Pce core rallenta, tagli tassi Fed più probabili
+-  Пирин уреди контрола с Беласица
+-  Prezidentka Čaputová udelila pred Vianocami štyri podmienečné milosti
+-  LG Electronics shine the spotlight on HVAC Consultants and Contractors for their Contribution to Society
+-  “Rebel Moon - Part One: A Child of Fire”: los duros comentarios de la crítica a la nueva película de Zack Snyder
+-  강원대 2024학년도 편입학 원서접수 마감, 전년 대비 경쟁률 상승
+-  “의정연구회 중심 국외연수로 운영경비 절감해야”
+-  원주시 승진 인사 단행… 서기관 3명 발탁
+-  93361 y 41147, dos cuartos premios con mucho sabor mediterráneo
+-  '응급실 대기 중 사망' 강원대병원 "깊은 애도와 책임 통감…대책마련 시행"
+-  Weiter mit Walter, aber mit Veränderungen! So erklären es die HSV-Bosse
+-  Ohne Sohn Emilio (†): So ist Weihnachten für Simone Ballack
+-  Vámos Miklós: Teendők halálom előtt
+-  Berlin-Britz: Polizei findet bei Durchsuchungen tausende illegale Böller
+-  لجنة التنسيق اللبنانيّة – الأميركيّة: خطوة التّمديد لقادة الأجهزة الأمنيّة كسرٌ لدوّامة الفراغ
+-  Trabzonsporlu Trezeguet, kalitesini gösteriyor!
+-  Milica Pavlović najavila koncert u Areni Zagreb
+-  Jose Mourinho'dan flaş itiraf
+-  Comment obtenir du Fromage dans LEGO Fortnite
+-  Dünyanın en çok göç alan ülkesi ABD oldu
+-  USA rozważają wykorzystanie zamrożonych rosyjskich 300 mld dolarów na pomoc dla Ukrainy.
+-  Holandia dostarczy Ukrainie myśliwce F-16. To nie jedyna taka pomoc
+-  Mansoor Ali Khan ordered to pay costs of ₹1 lakh for filing case against co-stars Trisha, Kushboo and Chiranjeevi
+-  Разкрепостени снимки на риалити звезда станаха хит в мрежата
+-  La directive européenne sur les travailleurs « ubérisés » rejetée par plusieurs Etats membres, dont la France
+-  Jovanov: "Ima li kraja ludilu i mržnji?"; Orlić poručio Crti: "Sram vas bilo"
+-  Stari snimak Vina Dizela napravio haos na mrežama: "Tako si lepa, idemo odavde" VIDEO
+-  ‘ডামি’ নির্বাচনে দিল্লি প্রকাশ্য প্রভাব খাটাচ্ছে, অভিযোগ রিজভীর
+-  Ruhrgebiet: Verheerender Unfall – 14-Jähriger tot
+-  Лаша Талахадзе и Анастасия Губанова признаны лучшими спортсменами года в Грузии
+-  Rui Borges quer Moreirense equilibrado em jogo de "paixão" com o Vizela
+-  Барселона ще се подвизава в още един електронен спорт
+-  Fight Krampus This Christmas in Co-op Adventure, No More Snow
+-  بحضور أعضاء المكتب المديري للوداد..اجتماع طارئ بولاية الدار البيضاء
