@@ -1,51 +1,51 @@
 # Latest News
--  Revista elege Vini Jr. e mais oito brasileiros entre 100 melhores de 2023; Neymar fica fora
--  Exvicepresidente de Ecuador Jorge Glas pide asilo a gobierno de México: abogado
--  Las noches en vela aumentan el riesgo de ansiedad, según un estudio
--  FC Hongalta ulostulo seuran tilanteesta
--  Actividad bursátil vespertina: Nike, Karuna Therapeutics y otras
--  Preminula jedna od osoba ranjenih u napadu u Pragu
--  Public Mobile launches wireless coverage on TTC subway
--  Rundfunk-Streit in Polen: PiS-Blockade und eine neue Sendung
--  Invitan a médicos a ocupar plazas vacantes en el estado
--  Lo detienen tras atropellar y matar a 3 personas el año pasado
--  Encabeza Bonilla posada en Valle Dorado
--  OKB: Nëse lufta vazhdon, Gaza do të përballet me urinë ekstreme
--  В Беларуси запустили «производство» обновленных iPhone
--  Culmina la mejora de la cubierta del Polideportivo de Villa del Río
--  Marseille: des associations mobilisées pour les personnes réfugiées
--  Los regalos de moda que enloquecerá a las expertas en tendencias esta Navidad
--  BRNABIĆ UKAZALA NA PAKLENI PLAN &quot;Priznali su za parlamentarne, ali sada se prebacuju na beogradske izbore&quot;
--  Gibran Ngetwit 'Let Him Cook' usai Debat Cawapres
--  U Solitudu otvoren dječji vrtić ‘Čiopa‘, stanovi u zidinama obiteljima s više djece, Šumetu dječje i sportsko igralište
--  Alcalde de Ahome y sus funcionarios agradecen a Dios por las bendiciones del 2023
--  Ganjar-Mahfud Optimistis Elektabilitasnya Terus Bergerak Naik
--  Naskah Kuno Tulisan Tangan Sembilan Ulama di Pamerkan
--  Villefranche-sur-Saône: des jouets de seconde main
--  "IMAM RAK, A NJEMU KRV ŠIKLJA, OTKAZALI SU BUBREZI" - Rada zajecala: Molimo ljude za pomoć, ako ne koliko živimo-živimo!
--  Salernitana Milan streaming e diretta tv: dove vedere la partita di Serie A
--  News des Tages heute: Sarah Connor: Mega-Ausschnitt in Nahaufnahme! / Donald Trump: Verwirrung nach Todesmeldung!
--  Report: Google, Samsung Join Forces to Merge Nearby Share and Quick Share
--  Mercato : C’est officiel, une star retrouve Messi
--  Oletko valmis? Bitcoiniin suoraan sijoittava ETF-rahasto tulossa Yhdysvaltoihin
--  Ciao Darwin 9 streaming e diretta tv: dove vedere la quinta puntata
--  Taman Impian Jaya Ancol Lampaui Target Wisatawan pada 2023
--  Soupçons de traite d'êtres humains : un avion immobilisé dans la Marne avec 303 passagers indiens à bord
--  Mobilità sostenibile, cosa vuol dire pensare e implementare i sistemi di trasporto
--  Hochwassergefahr: Stadt richtet Krisenstab ein
--  ¿De qué murió Cristina Pacheco? Su hija reveló la verdadera causa y esto dijo… entérate
--  The Voice Kids 2023 streaming e diretta tv: dove vedere il talent show di Antonella Clerici
--  Izrečene prve presude zbog lažnih covid potvrda
--  Näissä museoissa vierailtiin eniten tänä vuonna
--  Un avion al companiei româneşti Legend Airlines a fost reţinut la sol în Franţa din cauza unor suspiciuni de trafic de persoane
--  El restaurante trujillano Los Arcos reparte 406.000 euros de la Lotería de Navidad
--  VIDÉO - Cadeaux de Noël : la revanche des petits commerces
--  Moldova qaz alışı üçün kredit götürmək qərarına gəlib
--  Bajden će pomilovati hiljade osuđenih za posjedovanje marihuane
--  Meloni ai dipendenti di Palazzo Chigi: “L’Italia è la nostra azienda di famiglia”
--  After The 10 Freeway Fire, What's Up With The Businesses Under The Freeway?
--  Africký šampión získal tretie miesto na MS klubov, zdolal súpera z Ázie
--  Objavljen popis najpopularnijih imena za dječake u Europi, evo koje je najčešće muško ime u Hrvatskoj, Italiji, Njemačkoj...
--  تحریک انصاف کے انٹراپارٹی الیکشن کالعدم قرار دیے جانے کے فیصلے پر پارٹی کا بڑا اعلان
--  La Superliga sigue muy en el aire pese a la sentencia del tribunal europeo
--  La Superliga sigue muy en el aire pese a la sentencia del tribunal europeo
+-  Soccerladuma | Tau Scores As Al Ahly Clinch Bronze Medal At CWC
+-  Şiddetli depremlerin binalarda yapacağı hasarı önceden ölçebilecek yeni bir sistem bulundu...
+-  Neurología e Ingeniería Biomédica se unen para potenciar la investigación
+-  ABD medyası desteği kanıtladı: İsrail, ABD'nin yıkıcı MK-84 bombasıyla Gazze'yi vurdu
+-  Beşiktaş'ta Ole Gunnar Solskjaer sürprizi! Görüşmelere başlandı
+-  Bakan Koca'dan yurt dışına giden doktorlara ilişkin iddialara cevap
+-  İşgalci İsrail 76 Filistinliyi daha katletti
+-  3 ilde "rüşvet" operasyonu! Gözaltına alınanlardan 4'ü tutuklandı
+-  Türk askerinin bölgedeki caydırıcı gücüne dikkati çektiler: Bunlar bizim kırmızı çizgimiz
+-  ¿Por qué Ana Rosa Quintana no presenta hoy 'TardeAR'?
+-  Avcılar Emniyet Müdürü Özburun görevden alındı
+-  The 5 most disappointing movies of 2023
+-  Sunak says barracks in his constituency are ‘not right’ for large asylum centre
+-  Olyan karaktert hoz vissza a Suicide Squad-játék, akire nem is gondoltunk volna
+-  Do I need to shock my penis? Probably not, but it does need looking after
+-  Sound Advice: Record cleaner a must for vinyl lovers
+-  Channel 5's The Madame Blanc Mysteries Christmas special start time, full cast list and series 3
+-  Elhoztuk 2023 márciusának legizgalmasabb borsodi bulvár és celeb híreit
+-  Swansea City v Preston North End Live: Kick-off time and score updates
+-  พนมเทียน นักเขียนมหัศจรรย์พันมือ ผู้สร้าง "เพชรพระอุมา" (1)
+-  A Professional Alpinist Put Montblanc’s Latest Timepiece to the Test in Antartica
+-  Quais são os menores e maiores países do mundo?
+-  Creative duo
+-  ‘Worthy winner’ Ciara Mageean picks up BBC NI’s Sports Personality of the Year award
+-  L’adhésion aux BRICS ouvre à l’Éthiopie des "possibilités formidables"
+-  Miskolc az ötödik legélhetőbb város kategóriájában
+-  Phénomène météo extraordinaire : le tsunami de glace
+-  Adams unsure over benefit of winter break
+-  Milan Sassuolo, in tribuna non ci sarà Ibrahimovic: svelato il motivo
+-  Resolute US leadership is needed to stem Houthi Red Sea shipping attacks
+-  Päätoimittajalta | Marketista Mariupoliin on hirvittävän pitkä matka
+-  Buch der Woche: „Memoria“ von Zoë Beck spielt mit unseren Erinnerungen
+-  Tonight's rugby news as Liam Williams finally starts new chapter and Wales star driven by tragedy
+-  Home Town's Ben Napier Revealed The 'Coolest' Gift Erin Ever Got Him, And It Really Fits Their Whole Vibe
+-  VIDEO: Skupština usvojila Budžet ZDK za 2024. godinu, premijer Pivić zadovoljan što su budžet i finansijski planovi usvojeni prije Nove godine
+-  Ein unvergesslicher Abend : Diese Weihnachtsfeier macht Schalke 04 zu einem besonderen Club
+-  Små rörelser på Europabörserna inför jul
+-  RS usvojila zakon kojim štiti političare od krivičnih gonjenja!
+-  Bygge stoppas av länsstyrelsen efter överklagan från grannar
+-  Yeşil çay faydaları
+-  Ah Ahly vence o Urawa Red e garante o 3º lugar do Mundial de Clubes 2023
+-  SriLankan Airlines expands fleet with new Airbus A320
+-  Cánticos contra Milei adentro y fuera del show de Ciro y Los Persas
+-  The best Christmas gifts if you have an emotionally distant relationship with your father
+-  Six twats from school you’d rather not see in the pub this Christmas
+-  Netflix 'Kübra'nın yayın tarihini duyurdu
+-  Volley League Γυναικών: Αυλαία στον 1ο γύρο και στο 2023 με δύο μεγάλα ντέρμπι
+-  Addvise fullföljer inte köpet av Innovative Endoscopy – men gör nytt förvärv
+-  В двух областях Украины объявили воздушную тревогу
+-  Валиева планирует исполнить четверной прыжок в произвольной программе на чемпионате России
