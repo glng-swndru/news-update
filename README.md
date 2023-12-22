@@ -1,11 +1,11 @@
 # Latest News
--  애경케미칼 베트남 가소제 법인 지분 인수
--  THT IMPACT: Elite Adventure provides Rs 1 lakh for Prema&#039;s treatment
--  N. Korea condemns G7 over possible seizure of Russian assets for Ukraine aid
--  Washington insta a México a "hacer más" para frenar la migración irregular
--  [ŽT] Galingi kadrai. Izraelis šluoja „Gazos metro“ (Video)
--  Tesla hofft auf schnelles Tempo für Ausbau der Fabrik
--  Woolies recalls mince pies over metal contamination
--  Pressestimme: 'Märkische Oderzeitung' zu Pisa-Ergebnissen
--  Pressestimme: 'Nürnberger Zeitung' zu Schuldenbremse
--  Pressestimme: 'Die Glocke' zu USA vor besonderem Wahljahr
+-  Hormati undang-undang kesalahan goda isteri orang – Mohd. Na’im
+-  '미우새' 한혜진 "기성용과 결혼 10년 차, 아직도 설레♥"
+-  Victor Wembanyama n’a fait que passer à Chicago : 7 points en 22 minutes, son match le plus timide de la saison
+-  Diese Stadt in Baden-Württemberg hat den kürzesten Namen aller deutschen Großstädte
+-  5 şirketin sermaye artırımına onay
+-  Ιδιωτικά Πανεπιστήμια: Οι θέλεις των κομμάτων - Ποιοι απορρίπτουν εξαρχής και ποιοι το…συζητούν αλλά με όρους
+-  “NEOWISE” กล้องโทรทรรศน์อวกาศเฝ้าระวังเทหวัตถุหนึ่งเดียว กับการปลดระวางของ NASA
+-  จับตาโควิดสายพันธุ์ย่อย "JN.1" ระบาดฤดูหนาว​
+-  생애 첫 내집마련에 7.4년 … 수도권서는 9년간 한푼도 안쓰고 모아야 가능
+-  Bakan Ersoy: Her geçen yıl kırılan rekorlarla Türkiye turizm ülkeleri arasındaki sıralamada konumunu yükseltti
