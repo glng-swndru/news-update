@@ -1,51 +1,11 @@
 # Latest News
--  Regisseur Barrie Kosky im Operettenrausch
--  KAI, 1,890억 규모 헬기용 동력전달장치 개발 협약 체결
--  엔씨(NC), 글로벌 AI 번역 경진대회 ‘WMT23’ 도메인 특화부문 1위
--  KB국민은행, 한국정보통신-이지샵과 소상공인 상생 위한 업무협약 체결
--  한미그룹 약국 플랫폼 HMP몰, 신세계그룹 SSG닷컴과 협력 나서
--  SPC 에그슬럿, 연말 기념 신메뉴 2종 출시
--  도로공사, ‘길벗 열린도서관’ 지역주민에 개방
--  쌍용건설, 춘천 '쌍용 더 플래티넘 스카이' 견본주택 오픈
--  Merkez Bankası'ndan 17 yıl sonra ilk depo alım ihalesi
--  Stromunterbrechungen in Gebieten Wächtersbach und Brachttal
--  Fahrzeugdiebstahl mit kuriosem Ausgang in Bad Ischl
--  Николай Воробьев принял участие в заседании Совета законодателей ЦФО
--  Жительница многоквартирного дома хотела заставить жильцов мыть стены в Тверской области
--  Singaporean artisan family keeps religious effigy art alive
--  Παναιτωλικός: Ο κομβικός Καπίνο και οι σημαντικές του επεμβάσεις (vids)
--  케이뱅크, 중저신용자 대출 32% 비중 맞추자 금리세일 ‘벼락치기’ 강행
--  이동국, 산부인과 원장 소송 취하에 "살다보니 별일이 다…믿고 응원해줘 감사" [MD이슈]
--  "팀, 팀, 팀, 팀, 팀"…'팀'에만 집중한 '팀 바보' 황희찬의 재계약 소감
--  [MD포토] 트와이스 모모 '코트 속 초미니'
--  한예슬 "30대엔 매일 술…40대에 만난 ♥10세연하=큰행운·마지막 기회" 러브스토리 [마데핫리뷰]
--  [MD포토] 트와이스 모모 '코트 속 미니원피스'
--  육성재, 큐브 떠나 아이윌미디어와 전속계약…"비투비 활동 적극 지원" [공식]
--  [MD포토] 트와이스 미나 '무스탕으로 아름답게'
--  키움, 후라도와 130만달러에 재계약 "좋은 동료와 다시 함께해 기쁘다" [오피셜]
--  '미쳤다 다저스' 12년 3억 2500만 달러에 日 최고 투수 품었다…오타니, 글래스노우에 이어 야마모토까지 왕조 구축 간다
--  최양락X이상준X박호산, 부부 손님 위한 포차 프러포즈 이벤트 오픈[깐죽포차]
--  SSG 추신수 성탄절 농구장에 뜬다, S더비 시구자 초청
--  'KIM 前 동료' 구단 역사상 최고 대우+바이아웃 2005억 재계약...구단주 "최종 단계에 있다"
--  정관장 12월 건강 프로젝트 시리즈 제1탄 크리스마스 '홍이장군 브랜드 데이'
--  '전참시' 구라걸즈, 128년 전통의 뱀탕 맛보고 "묘한 미소"
--  신도림테크노마트, 개점 16주년 할인 행사 진행 “고객 성원 보답하고자…”
--  넥슨 지주회사 NXC 주식 공매, 입찰자 ‘0명’…2대주주 찾기 쉽지 않네
--  우연도 이런 우연이...'마차도→구드럼→레이예스', 롯데와 마차도의 인연 [유진형의 현장 1mm]
--  김미경·서이숙·조재윤·김광규·김형묵 명품조연, 이하늬X이종원과 ‘단짠단짠’ 시너지 예고[밤에 피는 꽃]
--  '패패승승승' 4.4% 확률→리버스 스윕, 어느 팀이 가장 많이 달성했나
--  나인우 요리실력 형편없나, 문세윤도 포기 "나 안 먹어!"[1박2일]
--  트와이스 '입김 뒤에 숨은 미소 천사는 누구?' [한혁승의 포톡]
--  김완수 감독이 쏜다! 입장 관중 전원에게 바나나우유 증정…KB국민은행, '메리 스타즈마스' 이벤트 실시
--  '환상연가' 윤경아 작가, "박지훈은 눈빛과 표정만으로 모두를 끌어당겨" 극찬
--  믿고보는 배우 김법래, '큐피드'부터 '이재', '모래에도'까지 종횡무진 맹활약
--  맨유 21분 출전 MF, 드디어 떠나나…단장이 영입 자신 "우리랑 함께 할 거야"
--  “1000원 미만 적립” 신한 더모아카드 부정사용해 한달 100만 벌어…카드 정지
--  日25세 괴물에이스? 1777억원 이적생? 김하성 3월20일에 누굴 만나나…아무도 못 만날 수도
--  DGB대구은행, AI은행원 ‘한아름’ 사내 방송서 활용
--  Jordan: Ő lehet a 2024-es szezon meglepetésembere
--  মেরিন ফিশারিজ একাডেমিতে চাকরির সুযোগ
--  From cancer treatment to captaincy and a World Cup in between: Stott is proud of how far she’s come
--  From cancer treatment to captaincy and a World Cup in between: Stott is proud of how far she’s come
--  제주공항 오후 4시 이후 운항 재개...제설작업 마무리
--  Olimpia Milano-Panathinaikos | La situazione e dove vederla in tv
+-  션, 에너지 취약 계층 위해 1000만원 기부
+-  일루미네이션 대표 "'슈퍼배드' 오랜 사랑, 그루 가족+미니언 덕분"
+-  영광군, 전라남도 주관 산림행정 평가 모두 휩쓸어
+-  고성군, 송학고분군지구 생활밀착형 스마트기술 지원사업 마무리
+-  곡성 섬진강기차마을 눈썰매장, 얼음 봅슬레이 무료개장
+-  Life | Comedian Jo Koy to host Golden Globes awards show
+-  News24 | Proteas stalwart Dean Elgar to retire from international cricket: 'All good things come to an end'
+-  Türkiye'ye yılın ilk 11 ayında 52,7 milyondan fazla ziyaretçi geldi
+-  Venezuela mahkum takası anlaşması kapsamında 8 ABD'liyi serbest bıraktı
+-  Uzmanlar İstanbul'un trafik çilesi için öneride bulundu
