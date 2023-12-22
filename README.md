@@ -1,51 +1,51 @@
 # Latest News
--  Oliver Pocher: Video zeigt sein neues Single-Leben – „Nach Trennung alles teurer“
--  Klubrekordért igazolt magyar válogatott futballistát a Debrecen
--  News24 | Simon's Town inferno: Cape Point closed as firefighters battle spreading blaze
--  Pro und Contra: Lebkuchen bitte erst ab 1. Advent!
--  Quique: "No tenemos buenos recuerdos del Atlético como sevillistas"
--  Five men arrested following €21 million cocaine seizure in Limerick – as gardai investigate
--  Inside Beckham’s workout which includes weighted vest & slamming medicine balls
--  Unaprjeđenje pravosudnog odgovora na femicid i rodno zasnovano nasilje u fokusu mladih sudija
--  Zac Efron napszemüvegben jelent meg egy tévéműsorban, de nem azért, amiért Kozso szokta
--  Canada’s major climate failure
--  El siguiente paso de la Superliga
--  سواريز يقترب من مجاورة ميسي مرة أخرى
--  Дания обяви при какви условия връща украинските бежанци у дома
--  Rewe-Logistikzentrum darf vorerst nicht gebaut werden
--  Čola oborio rekorde: Evo koliko će zaraditi za doček 2024. godine
--  Penampilan Gibran di Debat Cawapres Lampaui Ekspektasi, Netizen: Underdog, Langsung Keliatan Bagus
--  Usa: inflazione Pce core rallenta, tagli tassi Fed più probabili
--  Пирин уреди контрола с Беласица
--  Prezidentka Čaputová udelila pred Vianocami štyri podmienečné milosti
--  LG Electronics shine the spotlight on HVAC Consultants and Contractors for their Contribution to Society
--  “Rebel Moon - Part One: A Child of Fire”: los duros comentarios de la crítica a la nueva película de Zack Snyder
--  강원대 2024학년도 편입학 원서접수 마감, 전년 대비 경쟁률 상승
--  “의정연구회 중심 국외연수로 운영경비 절감해야”
--  원주시 승진 인사 단행… 서기관 3명 발탁
--  93361 y 41147, dos cuartos premios con mucho sabor mediterráneo
--  '응급실 대기 중 사망' 강원대병원 "깊은 애도와 책임 통감…대책마련 시행"
--  Weiter mit Walter, aber mit Veränderungen! So erklären es die HSV-Bosse
--  Ohne Sohn Emilio (†): So ist Weihnachten für Simone Ballack
--  Vámos Miklós: Teendők halálom előtt
--  Berlin-Britz: Polizei findet bei Durchsuchungen tausende illegale Böller
--  لجنة التنسيق اللبنانيّة – الأميركيّة: خطوة التّمديد لقادة الأجهزة الأمنيّة كسرٌ لدوّامة الفراغ
--  Trabzonsporlu Trezeguet, kalitesini gösteriyor!
--  Milica Pavlović najavila koncert u Areni Zagreb
--  Jose Mourinho'dan flaş itiraf
--  Comment obtenir du Fromage dans LEGO Fortnite
--  Dünyanın en çok göç alan ülkesi ABD oldu
--  USA rozważają wykorzystanie zamrożonych rosyjskich 300 mld dolarów na pomoc dla Ukrainy.
--  Holandia dostarczy Ukrainie myśliwce F-16. To nie jedyna taka pomoc
--  Mansoor Ali Khan ordered to pay costs of ₹1 lakh for filing case against co-stars Trisha, Kushboo and Chiranjeevi
--  Разкрепостени снимки на риалити звезда станаха хит в мрежата
--  La directive européenne sur les travailleurs « ubérisés » rejetée par plusieurs Etats membres, dont la France
--  Jovanov: "Ima li kraja ludilu i mržnji?"; Orlić poručio Crti: "Sram vas bilo"
--  Stari snimak Vina Dizela napravio haos na mrežama: "Tako si lepa, idemo odavde" VIDEO
--  ‘ডামি’ নির্বাচনে দিল্লি প্রকাশ্য প্রভাব খাটাচ্ছে, অভিযোগ রিজভীর
--  Ruhrgebiet: Verheerender Unfall – 14-Jähriger tot
--  Лаша Талахадзе и Анастасия Губанова признаны лучшими спортсменами года в Грузии
--  Rui Borges quer Moreirense equilibrado em jogo de "paixão" com o Vizela
--  Барселона ще се подвизава в още един електронен спорт
--  Fight Krampus This Christmas in Co-op Adventure, No More Snow
--  بحضور أعضاء المكتب المديري للوداد..اجتماع طارئ بولاية الدار البيضاء
+-  Fernverkehr ab Hannover massiv Eingeschränkt: Strecken Richtung Süden gesperrt
+-  Nach Amoklauf in Prag: Ein Land im Schock
+-  Буџетот за 2024 година согласно новите фискални правила, обезбедува средства за раст и зголемни плати и пензии
+-  Barcelona je opäť v problémoch, hrozí jej zákaz štartu v Lige majstrov
+-  کالاش قبیلے کا سرمائی تہوار چیٹر مس یا چومس د وہفتے تک جاری رہنے کے بعد بمبوریت میں احتتام پذیر
+-  Gatchalian tikom sa `cheating scandal’ ng dyowa
+-  El negociazo que Mauricio Mejía, el suegro de Rigo en la novela, abrió en Medellín
+-  Convenzione per la concessione di servizi di comunicazioni elettroniche a uso pubblico
+-  Dulović: Čast boriti se za Crnu Goru
+-  Tiny Georgetown collected the most Toys for Tots in Essex County, again. Here’s how they do it.
+-  The top designer sale buys including Gucci & Jimmy Choo, according to fashion editors
+-  Warwick Academy To Hold Football Events
+-  Ten deser z PRL-u zbawiennie działa na jelita. Jest niskokaloryczny, tani i pyszny. Zrobisz go tylko z czterech składników
+-  Jens Lehmann und der Kettensäge-Prozess: Urteil für Ex-Nationaltorhüter gefallen
+-  2024: “Get Prepared For Tripple Hardship”, Primate Ayodele Tells Nigerians
+-  Damir Murseljević lični doživljaј muzike prenosi na fotografiјu
+-  Pregnant Suki Waterhouse shows off her dazzling '£260K engagement' ring as she poses in a quirky wet look gown after going braless in daring Harper's Bazaar shoot
+-  Reconnaissance faciale: la police britannique pourra utiliser les photos des permis de conduire
+-  Instagram: pourquoi le chiffrement des messages privés suscite des craintes
+-  Midjourney: voici les images impressionnantes de la nouvelle version de l'IA générative
+-  Cette promotion est le moment parfait pour vous procurer l'Apple Watch Ultra
+-  E.Leclerc fait fort avec cette remise sur le Samsung Galaxy S22, faites vous plaisir sans attendre
+-  Football: PHC Zebras Defeat North Village
+-  Manchester United Ngotot Datangkan Amadou Onana di Bursa Transfer Januari, Everton Pasang Banderol Rp1 Triliun Lebih
+-  Lazio, il ricordo della Supercoppa scatena Radu: il commento al post - FOTO
+-  Zanetti su Bergomi: "È stato il primo che mi ha aperto le porte all’Inter, sa che gli voglio bene"
+-  Cak Imin Bakal Berantas Ketidakadilan di Indonesia
+-  Varhelji pozdravio imenovanja u Sudskom savjetu
+-  Comissão aprova emendas à regulamentação do setor de controle de pragas urbanas
+-  Líderes da bancada governista e da oposição fazem balanço do ano
+-  Comissão aprova proposta que reabre prazo para repatriação de patrimônio no exterior
+-  Balanço 2023: Atuação de Chico à frente do Legislativo Municipal
+-  Sancionadas cinco leis que abrem crédito especial de mais de R$ 220 milhões
+-  Polícia Civil fecha escritório de estelionato e prende suspeitos na Capital
+-  Vídeo: Protesto contra Milei termina com presos e feridos na Argentina
+-  Nicolás Maduro admite que aún hay «pranes» en las cárceles
+-  RWE kauft Windkraftprojekte von Vattenfall für 1,1 Milliarden Euro
+-  Saints still have a $40 million commitment to Derek Carr
+-  Ρεκόρ όλων των εποχών στην επιβατική κίνηση στα αεροδρόμια: Τα στοιχεία της ΥΠΑ
+-  Die Hard star De'voreaux White FINALLY settles the debate on whether action-packed Bruce Willis favorite is REALLY a Christmas movie - and why plans to bring back his character Argyle were abandoned
+-  The Chase viewers delighted for Scots contestant as ‘smug’ chaser has meltdown in final chase
+-  Jens Stoltenberg o porażce Rosji, czyli jak Putin strzelił sobie w kolano "Nie zdoła już osiągnąć swoich celów"
+-  Teen hacker who leaked GTA 6 clips sectioned for life
+-  Smiles and Networking: Union Square Dental Practice Throws a Tooth-errific Soirée
+-  Little boy, seven, killed while playing football with his friends in hit-and-run just weeks before Christmas died of severe head injuries, inquest hears
+-  Little boy, seven, killed while playing football with his friends in hit-and-run just weeks before Christmas died of severe head injuries, inquest hears
+-  The Funniest Tweets From Parents This Week (Dec. 16-20)
+-  Nigella Lawson Has Given Us The Perfect Early Christmas Gift In New Outtakes Reel
+-  I'm A Gynaecologist – I Beg, Please Stop Doing This In Your Bath
+-  Gavin & Stacey: 19 Behind-The-Scenes Secrets You Didn't Know About The 2008 Christmas Special
