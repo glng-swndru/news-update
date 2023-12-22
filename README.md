@@ -1,11 +1,51 @@
 # Latest News
--  تنبيه عاجل لسفارة المملكة في كندا لجميع المواطنين
--  ماذا تعرف عن بطاقة امتياز الرقمية لكبار السن وكيفية استخراجها؟
--  الانقلاب الشتوي.. تعرف على سر التسمية
--  تعرف على برنامج جولة النصر في الصين لشهر يناير
--  Minister Sharma stresses digital transformation for economic prosperity
--  West Indies wins T20 series from England in tense final match
--  The Dutch government has taken another step toward donating 18 F-16 fighter jets to Ukraine
--  Cardamom production increases in Ilam
--  Krankzinnig: huisgenoten Hercules-held Pieters winnen bizarre bedragen
--  Грузинские и армянские депутаты обсудили в Дилижане форматы сотрудничества
+-  Revista elege Vini Jr. e mais oito brasileiros entre 100 melhores de 2023; Neymar fica fora
+-  Exvicepresidente de Ecuador Jorge Glas pide asilo a gobierno de México: abogado
+-  Las noches en vela aumentan el riesgo de ansiedad, según un estudio
+-  FC Hongalta ulostulo seuran tilanteesta
+-  Actividad bursátil vespertina: Nike, Karuna Therapeutics y otras
+-  Preminula jedna od osoba ranjenih u napadu u Pragu
+-  Public Mobile launches wireless coverage on TTC subway
+-  Rundfunk-Streit in Polen: PiS-Blockade und eine neue Sendung
+-  Invitan a médicos a ocupar plazas vacantes en el estado
+-  Lo detienen tras atropellar y matar a 3 personas el año pasado
+-  Encabeza Bonilla posada en Valle Dorado
+-  OKB: Nëse lufta vazhdon, Gaza do të përballet me urinë ekstreme
+-  В Беларуси запустили «производство» обновленных iPhone
+-  Culmina la mejora de la cubierta del Polideportivo de Villa del Río
+-  Marseille: des associations mobilisées pour les personnes réfugiées
+-  Los regalos de moda que enloquecerá a las expertas en tendencias esta Navidad
+-  BRNABIĆ UKAZALA NA PAKLENI PLAN &quot;Priznali su za parlamentarne, ali sada se prebacuju na beogradske izbore&quot;
+-  Gibran Ngetwit 'Let Him Cook' usai Debat Cawapres
+-  U Solitudu otvoren dječji vrtić ‘Čiopa‘, stanovi u zidinama obiteljima s više djece, Šumetu dječje i sportsko igralište
+-  Alcalde de Ahome y sus funcionarios agradecen a Dios por las bendiciones del 2023
+-  Ganjar-Mahfud Optimistis Elektabilitasnya Terus Bergerak Naik
+-  Naskah Kuno Tulisan Tangan Sembilan Ulama di Pamerkan
+-  Villefranche-sur-Saône: des jouets de seconde main
+-  "IMAM RAK, A NJEMU KRV ŠIKLJA, OTKAZALI SU BUBREZI" - Rada zajecala: Molimo ljude za pomoć, ako ne koliko živimo-živimo!
+-  Salernitana Milan streaming e diretta tv: dove vedere la partita di Serie A
+-  News des Tages heute: Sarah Connor: Mega-Ausschnitt in Nahaufnahme! / Donald Trump: Verwirrung nach Todesmeldung!
+-  Report: Google, Samsung Join Forces to Merge Nearby Share and Quick Share
+-  Mercato : C’est officiel, une star retrouve Messi
+-  Oletko valmis? Bitcoiniin suoraan sijoittava ETF-rahasto tulossa Yhdysvaltoihin
+-  Ciao Darwin 9 streaming e diretta tv: dove vedere la quinta puntata
+-  Taman Impian Jaya Ancol Lampaui Target Wisatawan pada 2023
+-  Soupçons de traite d'êtres humains : un avion immobilisé dans la Marne avec 303 passagers indiens à bord
+-  Mobilità sostenibile, cosa vuol dire pensare e implementare i sistemi di trasporto
+-  Hochwassergefahr: Stadt richtet Krisenstab ein
+-  ¿De qué murió Cristina Pacheco? Su hija reveló la verdadera causa y esto dijo… entérate
+-  The Voice Kids 2023 streaming e diretta tv: dove vedere il talent show di Antonella Clerici
+-  Izrečene prve presude zbog lažnih covid potvrda
+-  Näissä museoissa vierailtiin eniten tänä vuonna
+-  Un avion al companiei româneşti Legend Airlines a fost reţinut la sol în Franţa din cauza unor suspiciuni de trafic de persoane
+-  El restaurante trujillano Los Arcos reparte 406.000 euros de la Lotería de Navidad
+-  VIDÉO - Cadeaux de Noël : la revanche des petits commerces
+-  Moldova qaz alışı üçün kredit götürmək qərarına gəlib
+-  Bajden će pomilovati hiljade osuđenih za posjedovanje marihuane
+-  Meloni ai dipendenti di Palazzo Chigi: “L’Italia è la nostra azienda di famiglia”
+-  After The 10 Freeway Fire, What's Up With The Businesses Under The Freeway?
+-  Africký šampión získal tretie miesto na MS klubov, zdolal súpera z Ázie
+-  Objavljen popis najpopularnijih imena za dječake u Europi, evo koje je najčešće muško ime u Hrvatskoj, Italiji, Njemačkoj...
+-  تحریک انصاف کے انٹراپارٹی الیکشن کالعدم قرار دیے جانے کے فیصلے پر پارٹی کا بڑا اعلان
+-  La Superliga sigue muy en el aire pese a la sentencia del tribunal europeo
+-  La Superliga sigue muy en el aire pese a la sentencia del tribunal europeo
