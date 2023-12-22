@@ -1,51 +1,11 @@
 # Latest News
--  Moraes cassa decisão do STJ e restabelece quatro anos de prisão para ladrão de celular
--  Türkiye'nin Her Yerinde Kilo Kilo Satılıyor! Pişerken Köpürüyor Yiyenleri Fark Etmeden Zehirliyor
--  Cheer Board reaches limit, with finish line in sight
--  Симоньян порассуждала о внутреннем иммунитете России
--  City juara Piala Dunia Kelab FIFA, lakar sejarah rangkul 5 piala semusim
--  Fuchsov čovjek tvrdi: 'Nemam informaciju da je nastavnik bio pijan ili da će dobiti otkaz'
--  Monclova: aprueban cuenta pública de noviembre en última Sesión de Cabildo del 2023
--  Aprovado Orçamento, campanhas eleitorais terão R$ 4,9 bilhões em 2024
--  Manchester City vence o Fluminense e se consagra campeão do Mundial de Clubes pela primeira vez
--  الاحتلال يواصل الاعتداء على طواقم الهلال الأحمر الفلسطيني
--  Serie A: Monza-Fiorentina finisce 0-1, Salernitana-Milan 2-2
--  En Alemania afirman que la UEFA puede dejar al Barcelona fuera de Europa
--  How Cecilia Blomdahl in Svalbard Embraces Dark Days in the Arctic
--  How Cecilia Blomdahl in Svalbard Embraces Dark Days in the Arctic
--  It's OK to Call It Soccer
--  Yacouba Sawadogo, African Farmer Who Held Back the Desert, Dies at 77
--  When the season calls for merry murder mysteries
--  U.S. Increasingly Isolated Over Israel and Gaza After Leading on Ukraine
--  A Tokyo Taxi Driver Is Charged With Running Down a Pigeon
--  Antonio Negri, Philosopher Who Wrote a Surprise Best Seller, Dies at 90
--  Yacouba Sawadogo, African Farmer Who Held Back the Desert, Dies at 77
--  U.S. Increasingly Isolated Over Israel and Gaza After Leading on Ukraine
--  It's OK to Call It Soccer
--  A Tokyo Taxi Driver Is Charged With Running Down a Pigeon
--  When the season calls for merry murder mysteries
--  Antonio Negri, Philosopher Who Wrote a Surprise Best Seller, Dies at 90
--  Guillaume Labbé : la révélation sentimentale d'Escort Boys
--  «Nicolas Bedos a fait l'objet d'une cancellation» : dénonce l'avocate du réalisateur dans «C à vous»
--  Votre horoscope gratuit signe par signe du 23 au 29 décembre 2023 par Christine Haas
--  «On a fait une raclette avec Bolloré et Boccolini...» : Sébastien Thoen raconte les coulisses de son retour sur Canal+
--  Yann Moix : «Je suis sûr à 99% que Depardieu a tenu ces propos sur une cavalière qui n'était pas la petite fille»
--  Pour ses 10 ans, la famille « Prodiges » s'agrandit sur France 2
--  Six mois dans l'ombre des hommes de la BRI sur Canal + docs
--  «C à vous» et France 5 «vomissent» les propos de Carole Bouquet dans «Quotidien» sur Gérard Depardieu
--  «C'est en vous voyant travailler...» : émue aux larmes, Garance Pardigon a fait ses adieux à Gilles Bouleau et au journal de 20 heures de TF1
--  «Je t'aime» : Agathe Lecaron en larmes pour la dernière de Benjamin Muller dans «Les Maternelles»
--  Sophie Davant : «C'est étonnant qu'on en fasse une tartine sur la coupe courte de Miss France !»
--  Audiences : quel score pour le début de la saison 10 de «Prodiges» sur France 2 ?
--  « Je suis très fier » : le tendre message de Maxime Chattam adressé à son épouse Faustine Bollaert
--  GSK senkt US-Preise für Advair, Valtrex und Lamictal
--  GSK verlaagt Amerikaanse prijzen voor Advair, Valtrex en Lamictal
--  Fans reckon Fikayo Tomori has just cost himself a Prem transfer after hilarious botched goal celebration for AC Milan
--  Après la grève surprise dans le tunnel sous la Manche, Eurostar ajoute des trains
--  Най-малко 18 души бяха убити при обстрел в лагера Нусейрат в ивицата Газа
--  Caso Metástasis: Norero 'compró' la libertad de alias Madrid y Cuyuyui
--  El patrimonio de Guillermo Lasso está en la mira de la Comisión de Fiscalización
--  Дженоа з Малиновським дотиснула Сассуоло, Мілан вирвав нічию у Торіно: результати 17 туру Серії А
--  Manchester City conquista el Mundial de Clubes
--  Da Weasel no Sudoeste em 2024: "É um sítio onde fomos felizes"
--  Human tears contain substance that eases aggression, says study
+-  Fransız askerleri Nijer'den ayrıldı
+-  Ozan Tufanlı Hull City, deplasmanda kayıp!
+-  Salernita ile Milan puanları paylaştı!
+-  AC Milanille shokkihoitoa Serie A:ssa
+-  El índice KSE-100 se desploma casi 1.000 puntos en medio del sentimiento bajista del mercado
+-  Hamás y la Autoridad Palestina están divididos ante resolución de la ONU sobre Gaza
+-  Aaj Ka Kumbh Tarot Card: कुंभ राशि वाले अनजान लोगों पर जल्दी से भरोसा न करें, नहीं तो मिल सकता है धोखा
+-  Cartoon
+-  Veja as datas do Mercúrio Retrógrado em 2024
+-  Vancouver junior miner questions perks of former CEO
