@@ -1,11 +1,11 @@
 # Latest News
--  OK저축은행, 안산디자인문화고에 '1사1교' 금융교육 실시
--  에스넷그룹, 운파문화장학회에 장학기금으로 5억6000만 원 출연
--  한화시스템, 저고도 대(對)드론 체계 사업 연이어 수주
--  다올TS, 20일 ‘ '다올TS & 델 테크놀로지스 2023 파트너 송년회’ 개최
--  [2023 IT혁신상품] MMORPG 문법 깼다… 엔씨소프트 ‘TL’
--  삼일제약, 임원 승진 인사 단행
--  Defensoría y Tribunal Electoral firman convenio de cara a los comicios del 5 de mayo del 2024
--  Millonarios y su mercado de fichajes: ¡Primeros nombres confirmados!
--  Giá vàng hôm nay 22/12: Giá vàng tăng "nóng" chưa từng có sau dữ liệu kinh tế của Mỹ
--  Người phụ nữ ở Bình Định đang nằm võng bất ngờ bị "chồng hờ" tưới xăng, bật lửa đốt
+-  로그프레소, 가족친화인증·여성가족부장관 표창 수상
+-  대전시교육청, 학교예술교육 성과 쾌거
+-  [속보] 검찰, 민주당 부대변인 압수수색… 김용 재판 위증 관여 의혹
+-  인천서구시설관리공단, 전국지방공기업 우수사례 경진대회 최우수상 수상
+-  유의동 "청소년 고의 위법 행위로 억울한 피해 입는 소상공인 없어야"
+-  DGB대구은행, 'AI 은행원' 첫선
+-  [인사] 산림청
+-  天文台｜市區最低氣溫降至8°C 大帽山僅錄負1.6°C
+-  ศิลปะบนนาข้าว อ.เทิง เริ่มเปลี่ยนสี! เตรียมเปิดเป็นทางการช่วงส่งท้ายปี
+-  81-årig mand er død efter frontalt sammenstød i Tappernøje
