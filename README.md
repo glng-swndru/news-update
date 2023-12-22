@@ -1,11 +1,11 @@
 # Latest News
--  EEUU señala que Irán está "profundamente implicada" en ataques a buques comerciales en el mar Rojo
--  La ONU presiona para que se envíe más ayuda a Gaza; Israel amplía su ofensiva
--  Turismo interno movilizará 1,3 millones de personas por fin de año en Perú, según estudio
--  Alternus Energy completa su fusión con Clean Earth Acquisitions
--  Biden promulga ley de defensa estadounidense de 886.000 millones de dólares
--  유벤투스, 손흥민 동료 임대 불투명…토트넘이 ‘358억 완전 이적 조항’ 요구
--  Nick Knowles' fiancée Katie Dadzie dons racy see-through lingerie after hitting back at cruel trolls who slammed her for stripping off
--  Chiefs' Butker confirms underinflated footballs vs. Patriots
--  Deltona fire chief reflects on risky fight during takeoff
--  This Might Be the Last Hurdle for Bitcoin ETF Approval
+-  OpenAI está en conversaciones para recaudar US$100.000 millones en nuevos fondos
+-  Carlton Street assault suspect on probation for threatening off-duty police officer
+-  Video: Enfrentan regidores a Óscar Murillo por casa de cambio de El Chamizal
+-  Video: Reanudan operaciones en cruce ferroviario en Juárez
+-  Pide SAT a contribuyentes denunciar a vendedores de facturas ilegales
+-  Manchester City beat Fluminense 4-0 to win Club World Cup
+-  'Delulu', el mantra de la Generación Z para ser feliz
+-  DEDA MRAZ PAO U SMRT! Jeziva nesreća:Pokušao da se spusti, pa stadao:Sve gledali njegova žena i deca, OKUPLJENI MISLILI DA JE ŠALA
+-  Più Newcastle che Juve per Phillips
+-  Nicki Minaj Ranked Her Albums, & She Knows Her Barbz Won't All Agree With Her Decisions
