@@ -1,51 +1,11 @@
 # Latest News
--  Open government partnership: New framework for governance reforms
--  Home sales values still down nearly 1% since last November, as dip continues to slow
--  Χριστουγεννιάτικη ατονία στο Χρηματιστήριο
--  Gaziantep Oğuzeli'nde avlulu kerpiç ev icradan satılıktır
--  Virat Kohli Returns To India Due To Family Emergency
--  Bayerische Staatsoper to Stream ‘Die Fledermaus’ with Diana Damrau
--  Kalėdinės puošmenos gali tapti gaisro priežastimi: priminė, kaip jas naudoti tinkamai
--  Neregėtas skandalas. „Prilepinui ir kitiems, norintiems užkariauti Uzbekistaną - eikit n#####.“ Audra Uzbekistane
--  Zalužno pasiklausymas. Ždanovas skelbia paslaptį, ką „praleido“ kontržvalgyba (Video)
--  Por que tiktoker brasileiro decidiu sumir das redes no auge da fama
--  Trotz Haushaltskrise: Grünen-Chef Nouripour hält Ahrtal-Hilfe für sicher
--  Wainua, el fármaco de AstraZeneca e Ionis para la hATTR-PN, recibe la aprobación de la FDA
--  El Hang Seng cae un 1,7% ante el desplome de Tencent por regulaciones chinas a videojuegos
--  Artist of the Week: Diana Damrau
--  Fact Check : अंजली आर्य के वीडियो को मुस्लिम महिला का बताकर किया गया वायरल
--  "토트넘의 글래디에이터, 다음 달 떠난다!"…유벤투스냐 나폴리냐, '그것이 문제로다'
--  2024년 첫 걸그룹, 멤버들 비주얼 베일 벗었다
--  [공식발표] 삼성, 'ML 출신' 새 외인 투수 코너 시볼드 100만 달러 영입
--  '미스트롯3' 김소연, 첫 무대부터 '올하트'…"강약조절 완벽" 마스터 극찬
--  Pressestimmen zum Super-League-Urteil: Zwischen „Zeitenwende“ und „Mauer des Neins“
--  Frauke Ludowig: Oben-ohne-Hammer! RTL-Moderatorin (59) sorgt für nackte Tatsachen
--  Beograd: Policija otkrila tinejdžere koji su naručivali slanje poruka o bombama
--  Er spielte mit Kahn und Matthäus: Ehemaliger Bayern-Profi liebt sein Leben als Hausmeister
--  Kickoff | Mammila reveals what he told Chiefs-linked Nwabili
--  Calmon: Ford Ranger Raptor tem proposta marcantemente superior
--  ArcelorMittal lässt eigene Sicherheitsstandards untersuchen
--  Jake Gyllenhaal, l’attore è un concentrato di muscoli nelle prime immagini del remake di Road House [VIDEO]
--  Plätzchen sind zu hart? Mit einem Stück Apfel oder Brot retten Sie die Leckerei
--  Plätzchen sind zu hart? Mit einem Stück Apfel oder Brot retten Sie die Leckerei
--  Αρμάνι: Αντέχει χωρίς Μίροτιτς και απειλεί τον Παναθηναϊκό με τρίποντα
--  Madonna: "Du brauchst Ruhe, Oma!" Popstar entsetzt Fans mit Schamlos-Pose
--  Opinion | L'industrie française doit descendre en gamme !
--  Fubara Hands Over Official Vehicles To Rivers Commissioners
--  En la UNAM se rompe récord de titulaciones
--  Govt threatens to shut down unregistered colleges
--  도심복합사업 두 번째 후보지는?…부산·광주·시흥 나란히
--  "Mon loulou ne fait rien, à part le pinard": derrière la magie de Noël, la charge mentale invisible des femmes
--  Ékszerbe fektetnéd a pénzed? Azonnal felejtsd el!
--  Банки в Гърция глобени с милиони евро заради нелоялна конкуренция
--  Surpriză în Republica Moldova: Fostul ministru român de Finanțe, Anca Dragu, propusă să fie noul guvernator al Băncii Naționale
--  Sarajevski hirurg za Vijesti opisao horor u Pragu: U bolnici je bilo kao u ratu
--  ‘전신마비 극복’ 유튜버 박위랑 사귀는 유명 가수 누구?
--  Cadeaux de Noël: cinq mini-enceintes pour les mélomanes nomades
--  120 cadetes participarán en el II Torneo Nacional de Baloncesto de Tarazona y Borja
--  ג'ייקובן בראון עבר ניתוח בגרמניה, ייעדר בין 4 ל-6 שבועות
--  경제도 ‘수도권 쏠림 현상’…서울 개인소득 6년 연속 1위
--  눈 왔다고 ‘빗자루’로 차량 쓸어준 아저씨
--  Schweiz steuert bei Zuwanderung auf Rekordjahr zu
--  ताकम–मुना जोड्ने सडक स्तरोन्नति गरिने
--  Työttömien määrä kasvoi Pohjois-Pohjanmaalla – uusien työpaikkojen laski lähes kaikissa ammattiryhmissä
+-  Česká polícia prijala preventívne opatrenie zamerané na školy, platia v celej republike
+-  Yılbaşında Dünyayı Türk Çiçekleri Süslüyor
+-  Ministry takes measures to reduce violence in schools
+-  NASS Directs Audit Of Government Properties
+-  Gyásznapot hirdettek Csehországban a prágai egyetemi lövöldözést követően
+-  Qingdao makes great strides in urban renewal
+-  Bivša asistentica poznatog glumca optužila za seksualno zlostavljanje: ‘Dirao mi je grudi i ljubio me!‘
+-  Россиянам рассказали об опасных елочных украшениях
+-  В Ярославле в Новый год не будет общегородского салюта
+-  Accordo Governo-Sindacati per il rinnovo del contratto dei salariati AASLP
