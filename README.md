@@ -1,11 +1,11 @@
 # Latest News
--  Conozca cuántos panameños están inscritos en partidos políticos
--  Censo 2022: Saiba qual é a cidade com mais pessoas autodeclaradas pretas
--  INTERPOL: Oduzeto 300 miliona dolara i uhapšeno 3.500 osumnjičenih u međunarodnoj operaciji finansijskog kriminala
--  Weihnachtsfoto der Oranjes: Mit Hund und Wintermantel
--  The Witcher, il doppiatore di Geralt esprime la propria frustrazione per l'uso delle IA
--  Shoppers to spend $1.25b on Boxing Day alone
--  Bakan Şimşek: Borsa bir oyun alanı değildir
--  José Cachin démissionne de la présidence de l’Île de loisirs de Saint-Quentin-en-Yvelines
--  Love Island star Molly Marsh reveals huge career change five months after leaving show
--  Noël : la volaille de Bresse, star du menu du Réveillon
+-  تنبيه عاجل لسفارة المملكة في كندا لجميع المواطنين
+-  ماذا تعرف عن بطاقة امتياز الرقمية لكبار السن وكيفية استخراجها؟
+-  الانقلاب الشتوي.. تعرف على سر التسمية
+-  تعرف على برنامج جولة النصر في الصين لشهر يناير
+-  Minister Sharma stresses digital transformation for economic prosperity
+-  West Indies wins T20 series from England in tense final match
+-  The Dutch government has taken another step toward donating 18 F-16 fighter jets to Ukraine
+-  Cardamom production increases in Ilam
+-  Krankzinnig: huisgenoten Hercules-held Pieters winnen bizarre bedragen
+-  Грузинские и армянские депутаты обсудили в Дилижане форматы сотрудничества
