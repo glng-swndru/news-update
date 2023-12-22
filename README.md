@@ -1,11 +1,51 @@
 # Latest News
+-  Nonsan Strawberry Expo
+-  Soccerladuma | European Giants Knocked Out Of Cup By Amateur Team
+-  Soccerladuma | Ngcobo Responds To Chiefs Transfer News
+-  S-OIL, ‘고객이 가장 추천하는 기업’ 8년 연속 1위
+-  사과 생산량 전년比 30.3% 급감, 배는 26.8% 줄어
+-  인피니트 엘, 고양이보호단체에 2000만원 후원
+-  에스티젠바이오, ISO37001·ISO50001 국제 인증 획득
+-  채정안, 소아암 환아들 위해 유튜브 수익금 3000만원 기부
 -  션, 에너지 취약 계층 위해 1000만원 기부
 -  일루미네이션 대표 "'슈퍼배드' 오랜 사랑, 그루 가족+미니언 덕분"
 -  영광군, 전라남도 주관 산림행정 평가 모두 휩쓸어
+-  울진군 군수 직통 문자 민원서비스, 한 해 동안 군민들로부터 큰 호응
+-  고양시 2023년 통장 및 주민자치 유공자 표창장 수여식 개최
 -  고성군, 송학고분군지구 생활밀착형 스마트기술 지원사업 마무리
+-  안성시, 경기도의료원 안성병원, 소아청소년과 야간진료 순항 중
+-  장흥군, ‘지역에코혁신사업’ 성과 보고회 개최
 -  곡성 섬진강기차마을 눈썰매장, 얼음 봅슬레이 무료개장
+-  [2TV 생생정보 맛집] ‘낙지 한상’ 맛집
+-  강원특별자치도 경제성장률 3.0%, 지역총소득 증가율 전국 2위
 -  Life | Comedian Jo Koy to host Golden Globes awards show
 -  News24 | Proteas stalwart Dean Elgar to retire from international cricket: 'All good things come to an end'
+-  Османи за ОБСЕ: Докажавме пред целиот свет дека поседуваме политички и практичен капацитет, професионалност и посветеност
 -  Türkiye'ye yılın ilk 11 ayında 52,7 milyondan fazla ziyaretçi geldi
 -  Venezuela mahkum takası anlaşması kapsamında 8 ABD'liyi serbest bıraktı
 -  Uzmanlar İstanbul'un trafik çilesi için öneride bulundu
+-  Çekya'da 14 kişinin ölümüyle sonuçlanan silahlı saldırı nedeniyle 1 günlük ulusal yas ilan edildi
+-  Fitch ve S&P ekonomistlerinden Türkiye açıklaması
+-  Ödemeler bugün yapılacak! Bakan Yumaklı duyurdu
+-  İttifakın sonu geldi! Barkeshli: BAE'nin de gruba veda edeceğine neredeyse eminim
+-  Cumhurbaşkanlığının bütçesi TBMM Genel Kurulunda görüşülmeye başlandı
+-  1 senede 51,7 milyon ton atıktan 100 milyar TL ekonomiye kazandırıldı
+-  В Москве начали проверку после нападение азербайджанца на женщину из-за собак
+-  Merkez Bankası'ndan 17 yıl sonra bir ilk
+-  Mert Günok sonunda patladı, Amartey'e ağza alınmayacak sözler! O anlar saniye saniye ekrana yansıdı
+-  Овечкин признан третьей звездой дня в НХЛ, Капризов — второй
+-  South Africa’s Dean Elgar to retire from cricket after Test series against India
+-  Sturmtief Zoltan: Bahnstrecke nach Köln wegen Unwetter gesperrt – schwere Sturmböen am Freitag erwartet
+-  `2018` director apologises after India fails to make it to Oscars shortlist
+-  Shah Rukh Khan opens up about his next film after `Dunki`
+-  Noida, Greater Noida residents! If planning house party with alcohol this festive season, keep THIS rule in mind
+-  Salaar review: Theatres turn into stadium for Prabhas-starrer
+-  Terrorism has not ended: Farooq Abdullah on anti-terror ops
+-  Arshad Warsi: To be on the bigger screen you need to look a certain way
+-  RS Chairman Dhankhar writes to LoP Kharge, says disruptions unfortunate
+-  India united against scourge of terrorism: Kharge after terror attack in Jammu
+-  Etiketlerde 'asgari ücret' değişimi! Zam gelmeden zam geldi!
+-  Ümit Özdağ'dan yerel seçim kararı! Her yerde göreceksiniz
+-  O kentte araçlar battaniyeye sarıldı!
+-  Altın haftayı yükselişle kapatıyor! 22 Aralık çeyrek ve gram altın fiyatları
+-  Mersin'de liseli genç kız sınıf penceresinden atladı
