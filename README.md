@@ -1,11 +1,51 @@
 # Latest News
--  Amitabh Bachchan gets emotional at Anand Pandit's bash; quotes his father Harivansh Rai Bachchan while sharing a heartfelt personal message
--  Ra.One filmmaker Anubhav Sinha reviews Dunki; appreciates Shah Rukh Khan and says, “Long live Raju”
--  Ehemaliger CIA-Analyst: Putins Einsatz von Atomwaffen gegen NATO „sehr wahrscheinlich“
--  Doctor murder accused has charge dropped, home for Xmas
--  Las noticias más importantes del 21 de diciembre en México
--  Saltillo: choca en V. Carranza y no acepta la culpa
--  상속세 물납 ‘NXC’ 지분 공개매각 유찰…“입찰 참가자 없어”
--  고위급 軍 소통 복원한 미·중…무슨 얘기 나눴나
--  Polémica por el megadecreto de Milei en Argentina: "Es una apuesta muy arriesgada"
--  Lancelin fire: Police probe begins into drone operator who halted firefighters for nearly an hour
+-  Vin Diesel faces 2010 sex assault claim by former assistant
+-  حصوات الكلى.. كيف تحمي نفسك؟
+-  Tak Gentar JK Dukung Anies, TKD Prabowo-Gibran Optimis Ulangi Kemenangan Pilpres 2019 di Sulsel
+-  Season's strongest cold wave causes traffic, daily life chaos
+-  Grandson of ex-President Chun receives suspended jail term over illegal drug use
+-  143 internet sitesi için kapatma talebi
+-  ส่อง "หอผู้ป่วยพิเศษ" รพ.ตำรวจ หลัง "ทักษิณ" นอนครบ 120 วัน
+-  यूपी: एक डॉक्टर के नाम पर कई अस्पताल चलाने वालों पर कसेगा शिकंजा, सभी सीएमओ से मांगी गई रिपोर्ट
+-  Beklenen oldu! Motorine dev zam geldi
+-  Ukraina laillistaa lääkekannabiksen
+-  युवा नजरिया: अनुच्छेद 370 के उन्मूलन ने जम्मू-कश्मीर को दिया नया दृष्टिकोण, सरकार की एक साहसी पहल
+-  Kanpur: 79 करोड़ से चमकेगा रूमा औद्योगिक क्षेत्र, बनेंगे 200 कौशल विकास केंद्र, जल्द लगेगा दूसरा प्लांट
+-  В Госдуме призвали увеличить субсидию на погашение ипотеки для многодетных семей
+-  ตีปี๊บ! แก้หนี้นอกระบบเริ่มเห็นผล ลงทะเบียนทะลุแสน ไกล่เกลี่ยสำเร็จ 224 ราย
+-  Названы самые популярные у россиян услуги в 2023 году
+-  Сексолог раскрыла самые распространенные ошибки в постели
+-  Jopa kuusinumeroiset kasvuluvut: Tässä tämän vuoden kiinnostavimmat kasvuyritykset
+-  Soha nem ölelhette meg a kislányát az éber kómában fekvő ralis
+-  à¶ à·™à¶šà·Š à¶¢à¶±à¶»à¶¢à¶ºà·š à·€à·™à¶©à·’ à¶­à·�à¶¶à·“à¶¸à¶šà·Š: 15 à¶šà·Š à¶¸à¶»à·”à¶§
+-  චෙක් ජනරජයේ වෙඩි තැබීමක්: 15 ක් මරුට
+-  السفير التركي بالقاهرة: قوة العمالة الماهرة في مصر تجذب الشركات التركية
+-  KKP Bantah Rencana Buka Kran Ekspor Benur Lobster
+-  В Кольчугино ремонт библиотеки затянулся дольше положенного
+-  Ighalo, Dosu fault Peserio over NPFL players snub
+-  Inget skräp, inget krimskrams – här är tio upplevelsegåvor för musikvännen
+-  Purra: Finland likely to trigger EU’s excessive deficit procedure in 2024
+-  Orang Islam dilarang masuk kasino
+-  中國太陽能傳停產潮，台廠憂未蒙利先受害
+-  Аукцион на ремонт моста на Мерецкова в Петрозаводске объявлен
+-  Family of Army veteran demands answers after he was struck 8 times in Lake County
+-  iOS 17.2.1 güncellemesi ülkelere göre farklılık gösteriyor
+-  صدراعظم هنگری با رئیس جمهور اوکراین دیدار میکند
+-  David Alaba zum 10. Mal „Fußballer des Jahres“
+-  Il panettone d'oro farcito di diamanti per un nababbo indiano e non per la Ferragni
+-  Mestiksen tasaisessa keskikastissa kaikki portit ovat auki kotietuun tai jopa kesälomille
+-  KFC becomes KFCheese with new pie and raclette “drowning” burger in Japan
+-  Inga kaotiska scener vid mötet i Hycklinge
+-  Rakas, kallis joulu
+-  Vi behöver jobba för bättre villkor för vindkraften
+-  (S): Regeringen sätter skolan på svältkur
+-  دلالون لـ الشرق: المزادات الإلكترونية تصيب دلالة السيارات بالركود
+-  Större satsning på idrott – viktigt för integrationen
+-  Die fünf großen Baustellen der Bahn
+-  Stanna bussen vid den räfflade plattan
+-  Låt oss skapa ett samhälle som fungerar för alla
+-  شبكة الجزيرة تطالب بالعدالة للشهيد سامر أبو دقة
+-  디딤365-레드우드케이 합병… 클라우드 DX를 넘어 AI MSP로 도약
+-  Inför 6-timmars arbetsdag – sänk stressen
+-  DANAŠNJI KURS EVRA: Objavljena lista vrednosti stranih valuta
+-  Postkartenerpresser gefasst +++ Das Jahresquiz 2023
