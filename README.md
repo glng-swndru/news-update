@@ -1,11 +1,51 @@
 # Latest News
--  Advokat Tomanović: U Srbiji žene štajkuju glađu i bore se za primenu Ustava i zakona
--  بعد تصدر مسلسل "زينهم" التريند.. ما السر وراء الخوف من الوقوع في حب جديد؟
--  İsrail: Hizbullah'ın saldırısında bir askerimiz öldü
--  Kızıldeniz'deki saldırılar devam ederken rotalarını değiştiren gemilerin sayısı artıyor
--  Angelina Jolie'den BM'ye "Gazze" isyanı: Adalet herkes için aynı işlemiyor
--  İsrail'in göçe zorladığı Filistinliler Deyr el-Belah'taki olmayan "sığınağın" yolunu tuttu
--  Woman sexually assaulted in Toronto after getting into wrong rideshare car
--  Québecor asks CRTC to intervene on Bell’s alleged network access delay
--  Barril cotiza estable, tensiones en mar Rojo compensan posible futura mayor producción de Angola
--  Exsoldado colombiano se declara culpable por el asesinato del presidente de Haití
+-  حارث ثاني أفضل ممرر في منافسة أوروبا ليغ
+-  Special weather statement in effect for Waterloo Region
+-  ‘యువగళం’ జోష్‌ కొనసాగించండి
+-  వేతనాలు పెంచాలి
+-  సీఎం తీరుపై అంగన్వాడీల ఆగ్రహం
+-  Futebolista acusado de incitamento ao ódio: "Não fiz nada de grave..."
+-  Trump Blames His Own Ignorance for Hitleresque Rhetoric
+-  ఉత్తమ ఫలితాలే లక్ష్యంగా..
+-  టీడీపీ గెలుపే లక్ష్యంగా పనిచేయాలి: శిరీష
+-  బొబ్బిలి ఎమ్మెల్యేకి భారీ షాక్‌
+-  צלפים בחלונות, ומלכודות בכל פינה: אתגרי הלוחמים שמשתלטים על עזה
+-  "Forma como Israel conduz ofensiva cria obstáculos" à ajuda humanitária
+-  Levosimendan by Orion for Acute Coronary Syndrome: Likelihood of Approval
+-  Venäjän valuuttavarantojen käytöstä yritetään sopia helmikuussa – 300 miljardin potti pääosin yhdellä rahoituslaitoksella
+-  الحظر الأمريكي على واردات المنتجات السمكية الروسية سيضرب السوق الأمريكية أولا
+-  طرح بوسترات فيلم ليه تعيشها لوحدك تمهيدا لعرضه في مطلع يناير 2024
+-  Ozempic by Novo Nordisk for Alzheimer’s Disease: Likelihood of Approval
+-  Sıvacının İş Yaparken Isınmak İçin Bulduğu Yöntem Viral Oldu
+-  Cem Özdemir: Förstern droht der Knast! Empörung über Gesetzesvorhaben des Grünen-Ministers
+-  సుబ్బారావు పాణిగ్రాహి ఆశయాలు కొనసాగించాలి
+-  చిన్నజీయర్‌ ఆశీస్సులందుకున్న మంత్రి తుమ్మల
+-  Se confirma el primer caso en Guatemala de subvariante JN 1 de COVID-19
+-  AMG-305 by Amgen for Malignant Mesothelioma: Likelihood of Approval
+-  وزير الرياضة يهنيء اتحاد الخماسي الحديث على جوائز الاتحاد الدولي
+-  నిరసనలు
+-  America’s sugar shortfall leaves candy-makers scrounging
+-  Indo-German collaboration sets eyes on Africa
+-  AMG-305 by Amgen for Uterine Cancer: Likelihood of Approval
+-  This growing malware threat actor is set to unleash a surge of attacks, experts warn
+-  Les STUP saisissent 12 700 comprimés psychotropes à Blida
+-  AMG-305 by Amgen for Non-Small Cell Lung Cancer: Likelihood of Approval
+-  నవశకం విజయవంతం.. టీడీపీ విజయానికి తొలి అడుగు
+-  Congresso analisa projeto da Lei Orçamentária de 2024; assista
+-  Agricultura vai querer voltar para mercado de carbono, diz Haddad
+-  Haddad diz que continuará a buscar déficit zero em 2024
+-  COVID-19: India sees 22 cases of JN.1 variant as states brace for fresh outbreak
+-  Sony quer jogos a quase R$ 500 até 2027, revelam vazamentos
+-  AMG-305 by Amgen for Solid Tumor: Likelihood of Approval
+-  6 فوائد صحية ربما لم تعرفها لتناول البصل النيئ
+-  Ρέθυμνο: Δύο συλλήψεις για κατοχή ναρκωτικών και όπλων
+-  Συγκλονίζει ο Θανάσης Βισκαδουράκης: Με τη σύζυγό μου χάσαμε το πρώτο μας παιδί
+-  OFICJALNIE: Maja Strzelczyk odchodzi z Canal+ Sport
+-  جيرو يقود هجوم ميلان لمواجهة ساليرنيتانا بالدوري الإيطالي
+-  ¿Vacaciones en Semana Santa? Esto cuestan los boletos de avión desde Culiacán a 4 destinos
+-  Buttler urges England to improve one-day death bowling
+-  Buttler urges England to improve one-day death bowling
+-  AMG-305 by Amgen for Gastric Cancer: Likelihood of Approval
+-  From Caribbean islands to global impact: CariGenetics’ mission is closing the genomic data gap
+-  Murder charge laid in 'senseless' stabbing of newcomer from Ukraine: Winnipeg police
+-  Los resultados de la desmilitarización de Ucrania
