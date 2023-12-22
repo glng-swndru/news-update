@@ -1,51 +1,51 @@
 # Latest News
--  Dveriu ostaju bez lidera: Obradović sjutra podnosi ostavku
--  Familias en Herrera y Los Santos recibirán el 2024 con nuevas viviendas
--  Cumhurbaşkanı Erdoğan: Ülkemize yönelik kaynak akışı daha da hızlanacak
--  Ereğli'de Muhtarlar Lokali'nin açılışı yapıldı
--  "나는 3년 전에 울고 있는 아르테타를 발견했다!"…아스널 '전설'의 폭로, 무슨 일?
--  Youth and Sports Ministry, Esports Integrated to hold first EsportsCon Malaysia on January 6
--  За вработувања во јавниот сектор нема да треба согласност од Министерството за финансии
--  Bombe am Flugzeug? Putins rechte Hand soll verantwortlich für Ermordung von Prigoschin sein
--  Ask the Aunties: Can you be too young to realise you’re trans?
--  Kurti: Sam ću da napišem moderan evropski statut ZSO
--  FC Bayern angeblich an schnellstem deutschen Bundesliga-Verteidiger interessiert
--  Milli Emlak’tan 21 bin 500 liraya tapu sahibi olma fırsatı. Ucuz arsalar satışa çıktı
--  El Gobierno de Milei retoma temporalmente la política de precios pactados para algunos cortes de vacuno
--  Manchester United-stopper har blitt operert
--  Nach der verlorenen Wahl 2020: Trump setzte Wahlprüfer Bericht zufolge unter Druck
--  Turkmenistan experiences increase in authorized capital for local banks
--  Rosjanie montują zagłuszacze dronów na wozach. Ukraińcy i tak je wysadzają
--  Six months’ jail for man who made false bomb threat onboard Scoot flight from Singapore to Perth
--  Wielka kasa na Fundusz Kościelny to spadek po PiS. Rząd Tuska musi go mądrze skasować
--  Holiday togetherness can also mean family fights. But there are ways to try to sidestep the drama
--  Novedades en Espacio Zity: aforo de 30.000 personas, reducción de horario y descuentos para peñistas
--  Buques con GNL de EE.UU. con ruta a Asia toman rutas más largas y evitan Mar Rojo
--  (FOTO) SKRATILA DUGU CRNU KOSU NA PAŽ Aleksandra Prijović promenila imidž, pojavila se na proslavi kod bivšeg ministra i oduševila
--  What If…? Season 2 blends the MCU with an iconic sci-fi franchise
--  Viral Video: డాక్టర్ అవతారం ఎత్తిన గొరిల్లా.. గాయపడిన పక్షిని ఎలా పరిశీలిస్తోందో చూస్తే అవాక్కవుతారు..
--  İzmir'de Jandarma ekipleri 5 milyon 320 bin makaron ele geçirildi
--  Pokrenuta istraga protiv informatičara koji je prisvajao mobitele tužiteljstva
--  FDA seizes ‘thousands of units’ of fake Ozempic as demand soars
--  Shining Investment: Are Professional Car Cleaners in the UK Worth the Cost?
--  El mando de la misión de la ONU en Líbano remarca que la situación es "tensa e impredecible" pero continúa sus labores
--  Objavljena prva lista filmova koji ulaze u trku za nominaciju za nagradu Oskar: „Što se bore misli moje“ nije uspeo da uđe u uži krug
--  مستوى تاريخي.. لماذا قفزت أسعار الذهب في مصر إلى 3030 جنيها للجرام؟
--  Hakan Fidan mevkidaşı Lavrov ile görüştü
--  Kad Lalatović zapeva Stoju, u svlačionici nastane ludnica: "Nešto mi govori" i slavlje fudbalera Spartaka kakvo do sad nismo videli /VIDEO/
--  CEK FAKTA: Mahfud MD Sebut Pertumbuhan Ekonomi 7 % Hanya Tercapai Di Era Orde Baru, Benarkah?
--  Inside world’s most radioactive city the ‘Graveyard of the Earth’ with ‘Lake of Death’ that is kept secret by Putin
--  Inside world’s most radioactive city the ‘Graveyard of the Earth’ with ‘Lake of Death’ that is kept secret by Putin
--  Çin'de depremdeki can kaybı 148'e yükseldi
--  "Ce jour-là, il m’a détruit" : les confidences bouleversantes de Johnny Hallyday sur ses retrouvailles avec son père
--  Fans are only just realising Fulham badge has optical illusion on it as they say ‘glad I’m not the only one’
--  Fans are only just realising Fulham badge has optical illusion on it as they say ‘glad I’m not the only one’
--  La hostelería cerrará dos horas más tarde durante las fiestas navideñas
--  Prandelli elogia Zirkzee: "Non mi piace definirlo, preferisco ammirarlo. Può essere un modello"
--  Gemma Collins stuns fans as she reveals hidden talent and dances around £1.3m Essex mansion
--  5 طرق مجانية لمشاهدة مباراة الأهلي وأوراوا في كأس العالم للأندية
--  Azerbaijan reveals number of military personnel liable to receive new apartments
--  17^ di Serie A, le ultime: occasione da titolare per Ricci contro l'Udinese
--  Gibran Sebut Solo Technopark di Debat Cawapres, Apa Itu?
--  Get 49% off on Samsung Galaxy Tab S6 Lite with Amazon’s festive deal
--  المرور على 354 منشأة غذائية وتحرير 176 محضرا بالدقهلية
+-  Measures against illegal property sales in north advancing, says spokesman
+-  임윤찬 스타 탄생기…류이치 사카모토의 고별 연주
+-  באופן חריג: השר לוין הגיע לדיוני וועדות המשנה של הועדה לבחירת שופטים
+-  מכבי מעלה אדומים הפתיעה את ראשל"צ, שומרון חזרה לנצח
+-  DPP reveals why DNA results for Shakahola victims are not yet out
+-  The startup that attempted to bring Elon Musk's futuristic hyperloop dream to life is shutting down
+-  Docuseries Wedding.con puts spotlight on dark side of online matchmaking
+-  Nitish Kumar pushed for Jan deadline on seat-sharing at INDIA bloc meet: Report
+-  Fastsættelse af rentekuponer for perioden 1. januar til 31. marts 2024 (EUR)
+-  В США заявили о причастности ЦРУ к подготовке ГУР Украины для диверсий в России
+-  Una panchina per Gaia, Camilla e Leo morti a corso Francia
+-  Mahfud MD Kritik Gibran soal IKN: Belum Ada Satupun Investor yang Masuk
+-  10 Must-Know Tips to Safeguard Against Digital Scams and Frauds
+-  ¿Cuándo publicarán más listas de beneficiarios del Fonavi para devolución de aportes?
+-  Fallout 76’s Remarkable Resurgence: 2024 Roadmap Reveals Expansion and Growing Player Base
+-  Unfall-Datenschreiber und Fahrassistenz-Systeme werden Pflicht
+-  La Audiencia Nacional levanta la suspensión de los trabajos de exhumación en Cuelgamuros
+-  الأفريكوم ترد على انباء استهداف طائرتين روسيتين في ليبيا
+-  Soccerladuma | Khune's 16-Year Fairytale… Is This The End?
+-  Soccerladuma | Messi-Suarez Inter Miami Reunion 'Confirmed'
+-  Nizozemsko na Ukrajinu pošle 18 stíhaček F-16, oznámil premiér Rutte
+-  RedMagic 9 Pro passes durability tests with flying colors
+-  DHB-Frauen spielen in Neu-Ulm um Olympia-Ticket
+-  나토 사무총장 "푸틴, 우크라 전쟁 목표 달성 불가"
+-  „Eine Ehre“: Meister-Macher Beutlhauser über Chefcoach-Position bei Eintracht Karlsfeld
+-  В МИД отвергли разрушение Россией культурного наследия Украины
+-  Depardieu: la chasse à l’ours est ouverte
+-  Parquemet se mantendrá cerrado hoy tras incendio en el cerro San Cristóbal
+-  Hazine ve Maliye Bakanlığı'ndan piyasa yapıcılığı kriterlerinde düzenleme
+-  Kurtenbach: Six months later, the Warriors’ trade of Jordan Poole is proving to be a true sports rarity
+-  'I Was Just So Madly In Love With Shane West': Mandy Moore Remembers Working On A Walk To Remember And How Far She's Come In Hollywood
+-  AV-Comparatives publica un análisis completo de más de 30 soluciones de seguridad de TI empresarial
+-  Сбер открыл возможность инвестиций по средней стоимости недвижимости в Москве
+-  Три регистра русской жизни показали в рифмах: в РОСИЗО открылась выставка-поэма
+-  ‘Superpeso’ tiene Navidad adelantada y regresa al terreno de las 16 unidades: Así cotiza este viernes
+-  Wesołych Świąt życzy zespół Dziennika Wschodniego
+-  Kommentar von Hugo-Müller Vogg - Nicht einmal Bundesnetzagentur traut den Kohleausstiegsplänen von Habeck
+-  (Видео) Скокаат од тераса во надеж дека ќе се спасат од монструмот убиец: снимка од евакуацијата на студентите во Прага
+-  Малолетници во Белград лажно дојавувале за поставени бомби, ќе има кривични пријави и против родителите
+-  Peajes en Venezuela comienzan a cobrar nuevas tarifas este #22Dic
+-  In UK Seaside Town, Migrants Call Barge Accommodation A 'Prison'
+-  US Airlines Say They're Ready For Record Holiday Travel
+-  UEFA Suffers Court Defeat, But Super League Finds Few Fans
+-  UK And EU Agree Delay To Post-Brexit Electric Car Tariffs
+-  Gunman Kills 14, Wounds 25 At Prague University
+-  Best Robot Vacuum Cleaners with Mop Functionality and Pet-Friendly Precision
+-  US Stocks Resume Upward Climb As Oil Dips On Angola OPEC Exit
+-  Horóscopo semanal: previsão dos signos de 25 a 31 de dezembro de 2023
+-  İstanbul için fırtına uyarısı
+-  Šteta objavio snimak novog tramvaja: Bio i ostat će simbol Sarajeva
