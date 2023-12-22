@@ -1,51 +1,51 @@
 # Latest News
--  Aquaman and the Lost Kingdom is the quintessential DCEU movie
--  Adam collard leaves fans hot under the collar as he goes topless after sharing ‘marriage’ plans with Laura Woods
--  Nije samo poraz Zvezde muka za Makabi: Povredio se jedan od najboljih igrača, a sve brine potencijalno duga pauza
--  깜짝 재영입 박차! 안첼로티, 바란 복귀 원한다…걸림돌은 연봉 215억
--  Μπάγερν - Μονακό 80-91: Ο Μάικ Τζέιμς στη διάσωση (vid)
--  “No soy pesimista”: Centro de Justicia Penal de Guasave no está perdido, señala alcalde
--  İsrail ordusu mülteci kampına saldırdı
--  Wisconsin Supreme Court Orders New Legislative Maps In Redistricting Case Brought By Democrats
--  Putin e o Balanço Geral da Rússia em 2023, por Valdir da Silva Bezerra
--  Tortolì, clima di festa in Comune: auguri bipartisan ai dipendenti
--  Zeven personen verdacht van illegaal vangen van vogels in Ede
--  Nova portaria libera trânsito de vans com até 16 passageiros na rodovia que liga Cuiabá a Chapada
--  Parranda! In Puerto Rico, young people keep a Christmas musical tradition alive
--  In which we toot the horn of TubaChristmas, celebrating its 50th brassy birthday
--  NA ESTRADI ZGRNUO SILNE PARE I SAD ŽIVI U DVORCU Od ovakvog luksuza BOLE OČI: Statue vojnika, fontana ispred kuće, zlato, kristali i preskupi automobili
--  Flamanville. Fête de fin d'année du Rugby Ouest Cotentin
--  NACHBÖRSE/XDAX +0,1% auf 16.722 Pkt - Vorweihnachtlich ruhiger Handel
--  I Sutjeska bojkotuje Super ligu
--  Kopic, categoric în privința transferurilor lui Rotariu și Djokovic: „Știu cine sunt! Aici trebuie să joci cu inima, să înțelegi ce înseamnă Dinamo”
--  Las historias más sorprendes de los agraciados con el Gordo: desde la UCI o con la resaca de su vida
--  U.S. Supreme Court won’t fast-track ruling on whether Trump is immune from prosecution
--  Gareth Southgate couldn’t wish for better Christmas gift than seeing Kane and Bellingham tearing up Europe
--  Gala Lírica Solidaria en la iglesia de San Lorenzo
--  울진군, 신종 감염병 대응 최우수상 수상
--  1년간 "즉시 또는 3일 이내 민원 처리"
--  "후포 마룡산의 중요한 역사적 사실"
--  ¿Buscas una iPad? Bodega Aurrera tiene una en menos de 3 mil pesos
--  Which Premier League players are playing at AFCON 2023?
--  Μακελειό στην Πράγα: Ο δολοφόνος ήθελε να μπλοκάρει όλες τις εξόδους, για να σκοτώσει όσο το δυνατόν περισσότερους.
--  Woolworths recalls Christmas summer berry mince pies over contamination fears
--  Μπαρτζώκας για το Βιλερμπάν – Ολυμπιακός: «Να βελτιώσουμε τις λεπτομέρειες για να γίνουμε καλύτεροι»
--  Herido tras caer en la avenida de la Costa al esquivar una moto
--  France: Un avion transportant 303 passagers indiens à destination de Nicaragua, immobilisé
--  Live: Black Caps v Bangladesh - third ODI in Napier
--  Alba Berlin verliert zu Hause gegen Fenerbahce Istanbul
--  “Hay que dejarlo caminar, él tiene la legitimidad” dijo Dal Molin sobre Milei
--  Encontró a su hermano sin vida y con una bolsa en la cabeza
--  USA: HD avvisar vädjan om snabbt Trumpbeslut
--  크리스마스‧새해, 호텔로 간다…호캉스족 노린 각양각색 이벤트
--  USA: HD avvisar vädjan om snabbt Trumpbeslut
--  Ovo je radno vrijeme tržnica za blagdane
--  Carol Vorderman wows in VERY low cut dress as she shows off her figure in Christmas card photoshoot
--  Carol Vorderman wows in VERY low cut dress as she shows off her figure in Christmas card photoshoot
--  Fergusons ilska – fick inget möte med Bellingham
--  Luis Suarez Completes His Move To Lionel Messi’s Inter Miami
--  Macaya insiste en dividir discusión sobre pensiones: Propone aprobar la mitad y dejar el resto para el próximo gobierno
--  Tormentas geomagnéticas: ¿Qué es y cuáles son sus riesgos?
--  My couch was hiding loads of trash, now it smells amazing and will do all Christmas, thanks to a simple two-second tip
--  현실 속 ‘계백순’, 그들이 잠긴 문을 열고 나오려면
--  Валкан план на Британците: Сакале Новак да го оженат со благородничка за да го одвојат од Србија
+-  Ο Παναθηναϊκός «άλωσε» το Μιλάνο με σούπερ άμυνα και ηγέτη Ναν – Αγωνία για Λεσόρ
+-  Criança é resgatada de helicóptero após se afogar em piscina em Florianópolis
+-  Vrhovni sud se za sada neće baviti pitanjem Trampovog imuniteta
+-  Verano 2024: vacaciones tecnológicas son una buena opción para los chicos verano
+-  Naples: "Il laisse toujours un champ de ruine", le gros tacle de Rothen sur Rudi Garcia
+-  عميد بلدية نالوت: البلدية داعمة للمؤسسة العسكرية وليس للميليشيات القبلية
+-  బీఆర్‌ఎస్‌ స్వేదపత్రం
+-  المركز الثقافي الإسلامي في نيويورك يقيم صلاة الغائب على الأمير الراحل
+-  Kuba schválila eutanáziu ako druhá krajina v Latinskej Amerike a Karibiku
+-  Živý darček pod stromčekom? Odborníci zdvíhajú varovný prst: TOTO si treba zvážiť!
+-  ‘Rebel Moon — Part One: A Child of Fire’ review: Zack Snyder rips off ‘Star Wars’
+-  Fluminense é goleado pelo Man City na final do Mundial de Clubes
+-  UZNEMIRUJUĆE! MATIJAS LESOR SA BOLNOM GRIMASOM NAPUSTIO IGRU: Centar Panatinaikosa u bolovima posle strašnog pada
+-  Denizli milletvekili yıkılmak üzere olan tarihi camii için bakana seslendi: ‘Korumak için ille Galata Kulesi mi olması gerek?’
+-  مانشستر سيتي يتوج بلقب كأس العالم للأندية للمرة الأولى في تاريخه
+-  В Чехии опровергли сообщения, что стрелок в Праге предупреждал о намерениях
+-  “저축 그만하고 제발 돈 좀 써라”…예금금리 확 낮춰버린 이 나라
+-  مصرع وإصابة 7 أشخاص إثر حادث بالبحيرة
+-  Dana White Announces Multiple High-Profile UFC Fights For Early 2024
+-  Homeless infant dies on bus bench near LAX
+-  Dart. Krzysztof Ratajski w trzeciej rundzie PDC World Darts Championship. Dalsza gra Radka Szagańskiego, odpadniecie Krzysztofa Kciuka
+-  Päähän taklanneelle Pelicansin Niklas Virtaselle kolmen ottelun pelikielto
+-  En Gran Hermano estaban aburridos y se la agarraron con Fabra por la expulsión ante Fluminense
+-  Kassam Tugayları duyurdu: İsrail askerlerine füze saldırısı
+-  Fenerbahçe Beko, yeni koçuyla yükselişini sürdürüyor!
+-  Paris'te işgalci İsrail'in Gazze'de katlettiği Filistinliler anıldı
+-  KKTC'den Rumlara tepki! "Kabul edilemez"
+-  Bosna'da Filistin etkinliği: Gazze'yi beyaz önlüğümle korudum
+-  Şehit ateşi Tokat'a düştü
+-  Bakan Fidan'dan yeni büyükelçilere görev tebliği
+-  Le directeur adjoint de l'agence spatiale russe accusé de détournement de fonds
+-  مانشستر سيتي بطلاً لكأس العالم للأندية
+-  Weihnachtsmarkt Essen mit trauriger Nachricht – Besucher müssen sich jetzt entscheiden
+-  Cantor Bera explora paisagens cariocas em novo single natalino “Christmas on the Beach”
+-  Corona : చలి మీద పుట్రలా కరోనా
+-  来年度予算案決定 国債費過去最大 厳しい財政状況続く
+-  Canada announces 25-player roster for Spengler Cup
+-  Stock Car: Quando os erros (mais uma vez) afetam as boas provas
+-  Bilčik: Zabrinut sam zbog broja pritužbi i nepravilnosti na izborima u Srbiji
+-  LIVE WK darts | Van Barneveld heeft eerste pijlen in bord zitten, Wattimena kan beste WK-prestatie niet evenaren
+-  Giants sign Mason Crosby to practice squad to kick for them this week
+-  देश में कितनी तेजी से फैल रहा JN.1 वैरिएंट? अब तक कुल 22 मामले, जानें 5 बड़े अपडेट
+-  Denise van Outen showcases her jaw-dropping figure in off the shoulder gown as she attends Christmas event in Marbella
+-  फ्रांस ने 303 भारतीयों से भरे विमान को क्यों किया जब्त? पेरिस से दिल्ली तक हड़कंप!
+-  Nahost-Newsblog: Israel zu UN-Resolution: Gaza-Transporte werden weiter inspiziert
+-  विवेक बिंद्रा पर नोएडा में केस दर्ज, पत्नी यानिका को बेरहमी से पीटने का आरोप, संदीप माहेश्वरी को लेकर भी चर्चा में
+-  В Рославльском районе на пожаре погиб мужчина
+-  Review: The 'Doctor Who' Christmas special delivers a pure, exhilarating adventure
+-  Rusia ante la ONU: "EE.UU. vende a Israel una licencia de facto para matar a civiles en Gaza"
+-  Sentage Holdings Inc. Announces Financial Results for the First Six Months of Fiscal Year 2023
