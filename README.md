@@ -1,51 +1,51 @@
 # Latest News
--  Bezoeklocaties Werelderfgoed Kinderdijk deze winter beperkt geopend
--  Zeven wensen van Kerstwensboom gaan in vervulling in Groot-Ammers
--  Yoshitsu Co., Ltd Reports First Six Months of Fiscal Year 2024 Financial Results
--  Exemplifying the ideal blend of technology and hospitality: PUDU Elevates Hotel with Smart Robotic Solutions
--  클롭이 선택한 살라 후계자…‘13도움 라이징스타’ 영입 추진
--  천안시티FC, 이도영 테크니컬 디렉터와 동행 마무리
--  ‘늙지 않는’ 축구 교수님, 스페인 라리가 도움 1위 등극...이대로 유로 2024 참가하나?
--  Revitalization of Paseo Marítimo Malecón: a milestone for Santo Domingo
--  1000-asis „Roshel Senator“ Ukrainai - kuo šios kanadietiškos mašinos tokios geros?
--  [ŽT] Rusijos elitas. Sunku patikėti net pamačius. Ką išdarinėja Kirkorovas, Sobčak ir kiti (Foto, Video)
--  „Atkurti SSRS. 2 000 000 jūsų piliečių...“ Skelbiama apie visuotinę Rusijos kaimynų okupaciją (Video)
--  [ŽT] „Stabdykite chamus.“ Armėnija siunčia įspėjimą Simonian (Foto)
--  بعضهم يجتاز الخط الفاصل.. كيف يعمل صحفيون غزة وسط انقطاع الإنترنت والاتصالات؟
--  2 M'sians claim S'pore system erroneously charged S$2,700 in VEP fees, didn't register vehicle's departure
--  인천시, 2024년 예산에 역대 최대 국비 5.5조 확보
--  경기도-전북도, '인공지능·미래차 산업' 2차 상생협력
--  인천시 지역내총생산 첫 100조 돌파… 서울 이어 특별·광역시 경제규모 2위
--  인천시의회 이오상·정해권·정종혁 의원 '2023년 지방의원 매니페스토 약속대상' 수상
--  수원시립어린이집, 대한적십자사 경기도지사에 라면 나눔 트리 전달식
--  의왕시에 4개 역사 들어선다… 이소영 국회의원 “지하철 인동선·월판선 동시 착공”
--  김정우 전 국회의원, 총선 군포시 예비후보 등록… 본격 선거운동 돌입
--  수원시야구소프트볼협회, 2023 수원시 야구인의 밤 성료
--  PKL Dalem Kaum Alun-alun Kota Bandung Tolak Relokasi
--  ΕΛΣΤΑΤ: Συνέχισαν να αυξάνονται οι τιμές των οικοδομικών υλικών
--  박승원 광명시장·안성환 광명시의회 의장, 적십자 특별회비 전달
--  International recruits graduate from WA Police transitional course
--  SON DAKİKA: Merakla beklenen derbinin hakemi belli oldu... Fenerbahçe - Galatasaray derbisini Arda Kardeşler yönetecek!
--  SON DAKİKA: Rıza Çalımbay takımdan gönderilişini anlattı... Beşiktaş'ta olaylı gece! "Maçtan sonra 1'de üç yönetici tesise geldi..."
--  הותר לפרסום: גדי חגי בן ה-73 נרצח וגופתו מוחזקת בעזה, אשתו ג'ודי ווינשטיין פצועה בשבי
--  FENERBAHÇE GALATASARAY MAÇI BİLET FİYATLARI! Fenerbahçe Galatasaray maçı ne zaman, saat kaçta, hangi kanalda? Derbi heyecanı!
--  Tecnotreen rahoitussotkut ja viestintä riivaavat sijoittajia – Toimitusjohtaja avaa tilannetta ja kertoo myös, mihin katosi osa luvatuista osakeostoista
--  La course au MVP NBA 2024 : qui est le numéro 1 du classement ? Apéro TrashTalk
--  Ο δράστης της πολύνεκρης επίθεσης αυτοκτόνησε, ανακοίνωσε η τσεχική αστυνομία
--  PUBG hayranlarına şok! Karar sonrası 60 milyar dolar buharlaştı
--  Merkez 17 yıl sonra ilk kez ihaleyi yaptı
--  Euro/dolar paritesinde 4.5 ayın zirvesi
--  عطل يضرب منصة «X».. شكاوى متزايدة من المستخدمين بشأن 3 مشكلات
--  Tesla'dan büyük geri çağırma
--  I saved £1,550 in one ‘zero spend’ month — here’s how
--  Προσεχώς: «Στοιχειωμένα Νερά»: Το νέο υπερφυσικό θρίλερ του Μπράις ΜακΓκουάιρ
--  Finance minister questions new HIO hires, stresses productivity focus
--  By Cc Interiör & Design - enskild firma startar i Motala
--  Debat Cawapres, Muhaimin Pakai Jas, Gibran Kemeja Biru, Mahfud Md Kenakan Adat Madura
--  Όλες οι παραβάσεις του οδηγού και το ιστορικό του αυτοκινήτου στο auto.gov.gr
--  Le démarrage de construction du chemin de fer Tanzanie-Burundi prévu entre juin et septembre 2024
--  Coro estreia-se em noite de lua cheia numa aldeia de Vila Real
--  الشويهدي: الدبيبة أخبرني شخصياً برغبته في الاستمرار بالحكم 6 سنوات
--  El Barcelona y el Girona se libran de un apuro que el Real Madrid no podrá evitar
--  Fenprof protesta pela reinscrição de "milhares de professores" na CGA
--  O que é lava vulcânica? Do magma às rochas ígneas
+-  Beyşehir'de balık işleme tesislerinde denetim
+-  Cikallehsi: Önümüzde kritik maçlar var
+-  KONYASPOR'DA RAKİP KAYSERİSPOR, PAROLA GALİBİYET!
+-  Yine Ahmet Oğuz yine penaltı
+-  Adil Demirbağ: Kayserispor’u yeneceğiz
+-  3 puan istiyorduk
+-  Seriyi devam ettirelim
+-  163 líderes sociales asesinados en Colombia durante el 2023
+-  La Jep imputa crímenes de guerra a exmiembros del Bloque Occidental de las Farc
+-  Komisja Budżetu i Finansów Publicznych przyjęła ustawę okołobudżetową na 2024 r. bez poprawek
+-  Mapa GPW: Pure, Asbis, Enel-Med, Kogeneracja i Sanok w centrum uwagi
+-  Daniel Zmeko sa spojil s vojakmi v zahraničí, zaujímal sa aj o trávenie sviatkov
+-  Od spustenia zálohovania sa vyzbieralo takmer 1,9 miliárd nápojových obalov
+-  Peter Pellegrini prerušil schôdzu: Poslanci sa zídu opäť od 8. januára
+-  Dear S’porean parents, no one can be perfect role models to their kids but you’re more than enough for them
+-  ليفربول يكشف موقفه من السوبرليج
+-  Ciągnęło go do weterynarii, ale został... księdzem. Nocował u siebie hipisów
+-  Viral Video: వార్నీ.. ఏం ఐడియా తల్లీ.. హై హీల్స్‌ను ఇలా కూడా వాడొచ్చా.. వీడియో వైరల్!
+-  „Stovėjo eilėje prie karinio komisariato.“ Kas nutiko Maskvoje (Video)
+-  Teroristai susimetė su teroristais. Ką monstriško Rusija išdarinėja Afganistane (Video)
+-  „Tai bus katastrofa...“ Rusija ir OPEC+ šalys šokiruotos. Angola gali sugriauti pasaulį
+-  [ŽT] Netikėtas antausis Putinui. „Šalys priėmė sprendimą.“ Ką pasirašė Suomija, Danija ir Švedija
+-  [ŽT] Tai būtų metų vizitas! Neįtikėtina, kas pasiruošęs susitikti su Zelenskiu
+-  [ŽT] Keičiasi Kremliaus derybų retorika. „Nauji tikslai.“ ISW paaiškino, kas vyksta
+-  Rusijoje „laidojamas“ Šoigu. Kas nutiko „faneros maršalui“
+-  "Dovevo cacciarlo già il primo giorno": caos-Napoli, la sfuriata di De Laurentiis
+-  Kanadoje pastumtas 200 metų senumo pastatas – padėjo žmona (Video)
+-  Parliament Security Breach Update: संसद स्मोक कांड को लेकर हाईकोर्ट पहुंची दिल्ली पुलिस
+-  Erster Weltcupsieg für Sixtine Cousin + FIFA zahlt zwei Milliarden für globale Förderung
+-  Israel-Palestine: ‘हमास सरेंडर कर दे या फिर मरने के लिए तैयार रहे’, इजराइली पीएम का बड़ा बयान
+-  بيان عاجل من سفارة المملكة في براغ حول واقعة إطلاق النار
+-  Team India: చరిత్ర సృష్టించిన టీమిండియా.. వన్డేల్లో మనోళ్లే తోపు
+-  This cozy and chaotic co-op possum game might just be my next party game
+-  Sony describes VR as “a bit of a challenging category right now”
+-  Čarli Šin u životnoj opasnosti: Žena pokušala da ga ubije, a ovo nije prvi put FOTO
+-  Emlak Konut GYO'nun Muğla'daki 17 parselinin değeri dudak uçuklattı!
+-  Американски полковник обяви смъртта на Украйна като нация
+-  Karácsonyi meglepetés: így rontottak rá a NAV kommandósai a Reszkessetek, betörők Kevinjére - videó
+-  भांजे की शादी में पहुंचें उद्धव और राज, क्या ‘मुस्कुराहट’ से बदलने वाली है महाराष्ट्र की सियासत?
+-  TV-Ton optimieren: Wenn der Dialog in Geräuschen versinkt
+-  Peter Obi, Oladips, others make 2023 Google Most Searched Persons in Nigeria
+-  Ada Perayaan Tahun Baru, Pemprov DKI Tiadakan CFD 31 Desember
+-  العراقي سربست عبد الله يحصد الوسام النحاسي في بطولة العرب للدراجات الهوائية
+-  ‘Eu vi’, diz ex-diretor da Globo ao detalhar parte íntima de Alexandre Frota
+-  President Ilham Aliyev visits Pirjamal village of Khojaly district (PHOTO)
+-  Neun Jahre: Lance Bass und sein Michael feiern Hochzeitstag
+-  «In Piemonte la gente non si vaccina, la pagheremo cara». E il Covid fa di nuovo paura
+-  Kinderen in Noordenveld ook in 2024 met ontbijt naar school
+-  Russians go crazy for street gang TV tragedy set amid Soviet collapse
+-  Президент Таджикистана произвел кадровые изменения в погранвойсках страны
