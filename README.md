@@ -1,4 +1,44 @@
 # Latest News
+-  ג'ייקובן בראון עבר ניתוח בגרמניה, ייעדר בין 4 ל-6 שבועות
+-  سائفر کیس میں بانی پی ٹی آئی اور شاہ محمود قریشی کی ضمانت منظور، جسٹس اطہر من اللہ کے اہم ریمارکس
+-  Arsenal star Bukayo Saka shows off bold new hair as fans say ‘it’s over for Liverpool’
+-  Major boost for thousands of Irish students as new bursaries see grants of €5k or €2k per year awarded
+-  Soccerladuma | Castillo Reveals Adaptation To Chiefs & Life In South Africa
+-  Year Ender 2023: సంచలనం సృష్టించిన టాప్‌-10 IPOలు, పెట్టుబడిదార్లకు కనక వర్షం
+-  Африканец пытался уйти в Эстонию в поисках лучшей жизни, но попался псковским пограничникам
+-  Tiroteo en universidad enluta a Praga; hay 14 fallecidos
+-  Se irá a litigio reelección de siete chapulines
+-  Crece el reclamo por periodistas fallecidos; muertes en la guerra Israel-Hamás
+-  Buscan controlar flujo migratorio en frontera
+-  Андрей Рюмин дал старт работе высокотехнологичных энергообъектов особой важности
+-  На улице Каширина в Рязани водитель Renault сбил 12-летнего ребёнка
+-  В Серпухове прошло первенство по пулевой стрельбе
+-  Аналитик: ХАМАС потерял контроль над значительной частью сектора Газа-ФОТО
+-  Gospodarka Wielkiej Brytanii skurczyła się w III kw.
+-  Ceny domów w Niemczech kontynuują spadkową tendencję
+-  Sangrur News: ਵਿਆਹੁਤਾ ਦੀ ਸ਼ੱਕੀ ਹਲਾਤਾਂ ਵਿੱਚ ਮੌਤ, 4 ਸਾਲ ਪਹਿਲਾਂ ਹੋਇਆ ਸੀ ਵਿਆਹ, ਸੱਸ-ਸਹੁਰੇ ਤੇ ਪਤੀ ਖ਼ਿਲਾਫ਼ ਮਾਮਲਾ ਦਰਜ
+-  Osa joulusuklaista on jo paikoittain loppunut Lahden seudulla – Raija ja Arto Rämö löysivät etsimänsä vasta toisesta kaupasta
+-  Gogglebox star Shaun Ryder reveals heartbreaking reason he still has to ‘work hard and make money’ at 61
+-  Asyl: Rechtsberatung teils verfassungswidrig
+-  Penthouse in Flammen: Unbeaufsichtigte Feuerschale setzt wegen Sturm Dachterrasse in Brand
+-  IDF Shot American: इजरायली सैनिकों ने 13 साल के अमेरिकी बच्चे को मारी गोली, कपड़े उतारकर तलाशी ली गई, जानें पूरी कहानी
+-  Pressestimmen zum Super-League-Urteil: Zwischen „Zeitenwende“ und „Mauer des Neins“
+-  Zdravotníčka šokovala vianočnou odmenou, ktorú dostala od šéfa: TOTO by ste určite dostať nechceli!
+-  Former EastEnders star says she has 'the perfect gift' as she celebrates anniversary
+-  Streľba na univerzite v Prahe je na titulných stránkach nemeckých denníkov
+-  "ČUDNO, DAČIĆ NIJE MNOGO KASNIO" Vučić: Prvo postizborni razgovori (FOTO)
+-  WSJ: Wagner-pomo Prigozhinin kuolema oli Putinin luottomiehen käsialaa
+-  Disappointing to see `caste` brought into serious debate in Parl: Chidambaram
+-  Court extends custodial remand of Lalit Jha till January 5
+-  NDIA bloc protests suspension of oppn MPs, Kharge says democracy under threat
+-  `Aquaman and the Lost Kingdom` movie review: Chaotic effects play spoilsport
+-  Video of Karnataka CM in luxury jet goes viral, draws sharp reaction from BJP
+-  By suspending 150 MPs, govt muffled voices of 60 pc people of India: Gandhi
+-  Oppn MPs came with request for suspension after some lawmakers suspended: Joshi
+-  Ukraine-Russia war live: Russia launches major drone attack on Kyiv
+-  "צריך להגן על שחקנים כמו מילסון. בטרנר לא שמרו עליו"
+-  [오늘의 중국 증시] 온라인 게임 산업 제한 계획 발표에 하락 마감
+-  वैज्ञानिकों ने खसरा वायरस के मस्तिष्क में फैलने की बताई वजह
 -  오픈베이스, 소프트웨어 천억클럽 어워즈 1천억클럽 멤버 선정
 -  플레이스테이션, 내달 5일까지 겨울 세일…PC 타이틀 최대 75% 할인
 -  데이터스트림즈, ‘의료분야 빅데이터 플랫폼 데이터 협력’ 협약식 개최
