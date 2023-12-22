@@ -1,11 +1,51 @@
 # Latest News
+-  Chief Civil Supplies Officer arrested by Odisha Vigilance on DA charges
+-  Impact Fielder Of The ODI Series: दक्षिण आफ्रिकेविरुद्ध मालिका काबीज केल्यानंतर साई सुदर्शनला मिळीले इम्पॅक्ट फील्डर पदक, संजू सॅमसनचे करण्यात आले जोरदार कौतुक (Watch Video)
+-  «الصور المفبركة» حيلة جديدة من الاحتلال الإسرائيلي لتهديد الفلسطينيين
+-  濟州馬場雪中作賽
+-  Τέλη κυκλοφορίας: Αλλάζει και το σύστημα προστίμων -Θα είναι ανάλογο με την καθυστέρηση
+-  Meteoroloji açıkladı: Kuvvetli yağış ve rüzgar uyarısı!
+-  Altın fiyatlarında tarihi zirve
+-  Uzman açıkladı: Soğuk alerjisi olabilir
+-  NBA'de üst üste 6. galibiyetini aldı
+-  Prag'da 15 kişiyi katleden saldırganla ilgili yeni detay
+-  Borsa güne yükselişle başladı!
+-  YSK'dan seçim kararı: Partiler anlık olarak takip edebilecek
+-  Kenan Doğulu’nun Yeşil Kart şoku: Beren Saat tek gitti!
+-  FETÖ hükümlüsü yakalandı
+-  Liglerde haftanın programı!
+-  오케스트로, 2027년 매출액 5000억원 달성 목표
+-  인텔 신제품에 하나에 메모리 업계 '들썩'…이유는? [소부장반차장]
+-  [2024년 정기인사] BNK금융지주·부산은행·경남은행
+-  보험업계, '부당 승환계약' 방지로 소비자보호 강화…"보험계약 비교안내시스템 연내 구축"
+-  엔씨소프트, 중국 시장 진출 가시화…‘블소2’ 외자 판호 발급 받아
+-  ‘뉴스’ 서비스 개편, 속도 높이는 네이버
+-  본도시락, 세계 도시락 메뉴 추가…마라부대 찌개·볶음 출시
+-  네이버, 공정거래협약이행평가 ‘최우수’ 등급… 상생협력 모범 사례 발표
+-  골프존 데이터 훔친 ‘검은양복’, 러시아 해커?
+-  한화정밀기계, 신임 대표에 이성수 한화 사장…전략사업 추진 가속
+-  SGC솔루션, 발암물질 노출 차단 밀폐용기 누적 4만5000개 기부
+-  '2024 예산' 방통위, 2503억 확정…'글로벌 미디어 강국' 초석 마련
+-  부산진해경제자유구역청, 2023년 하반기 ‘Hello BJFEZ’ 청보 발간
+-  [결혼] 장선환(구성건축사 사무소 대표)씨 자혼
+-  대전시, 서남부 종합스포츠타운 조성사업 개발제한구역 해제 조건부 통과
+-  윤소식, 제22대 국회의원 선거 유성구갑 예비후보
+-  임지훈 인천시의원, 2023년 친환경 최우수의원 선정
+-  與 총선기획단 "정책-선거운영 두 축으로 효율적 선대위 구성"
+-  롯데백화점 '2024 상반기 신입 채용'…세 자릿수 규모
+-  DB손보, 연말 가족사랑 우체통 이벤트
+-  (사)평택당진항발전협, '송년의 밤 및 10대 뉴스 발표'
+-  '6선' 野 천정배 전 장관, 내년 총선 불출마 선언
+-  신한금융그룹, '슈퍼SOL' 5일 만에 가입자 100만 돌파
+-  [인사] BNK금융그룹
+-  ZDROWIE: Choroba w święta. Gdzie szukać pomocy?
+-  POWIAT ZAMOJSKI: Uwierzył, że ma do czynienia z pracownikiem banku. Stracił ogromne pieniądze
+-  TOMASZÓW LUB.: „Tomaszów Lubelski- wczoraj i dzisiaj”. Spacer po mieście
+-  BIŁGORAJ: Wspólne kolędowanie w ZSZiO. Wręczono też stypendia dla najlepszych uczniów
+-  JÓZEFÓW: Najładniejsze kartki, stroiki i szopki. Rozdano nagrody w konkursie
+-  TERESZPOL: Pisarka Joanną Olech spotkała się z uczniami. Autorka m.in. czytała fragmenty książek i rysowała
+-  蠱惑毒販將3700萬海洛英以雪條倒模法製成雕塑品 海關拘4男女
 -  تنبيه عاجل من قنصلية المملكة في أستراليا ودعوة للاتصال في حالات الطوارئ
+-  "الملك سعود" تتصدر التصنيف العربي للجامعات 2023
+-  BIŁGORAJ: Sukces pływaków z I LO im. ONZ
 -  البرهان: لا اتفاق سلام وسنقضي على الدعم السريع
--  유니크한 크리스마스 쿠키 찾는다면…촉촉쫄깃 ‘당밀 쿠키’
--  “흡연하면 뇌 쪼그라들어…끊어도 회복 안 돼” 美 연구진
--  Nonsan Strawberry Expo
--  Soccerladuma | European Giants Knocked Out Of Cup By Amateur Team
--  Soccerladuma | Ngcobo Responds To Chiefs Transfer News
--  코레일, 외국인 열차 예매 'QR 스캔'으로 단순화
--  S-OIL, ‘고객이 가장 추천하는 기업’ 8년 연속 1위
--  사과 생산량 전년比 30.3% 급감, 배는 26.8% 줄어
