@@ -1,51 +1,51 @@
 # Latest News
--  제13회 국제스포츠전문지도자협회 농구지도자 역량강화 연수, 30일 개최
--  네이버, 뉴스서비스 투명성 제고할 ‘혁신준비포럼’ 준비 착수
--  Deutsche Bauern haben 7 Prozent weniger Winterweizen gesät #getreideanbau #rapsanbau
+-  Vader. Zdjęcia z koncertu
+-  PZL Leonardo Avia i Bogdanka Arka chcą pozytywnym akcentem zakończyć 2023 rok
+-  Opposition shows mixed responses to ruling party's new interim head
+-  Scandal-ridden securities firms to start next year with new CEOs
+-  Korea Times, The Trinity forge partnership to enhance ESG through arts and culture
+-  Kumho Petrochemical continues campaign for society
+-  Far-right groups protest school groups watching film on military coup
+-  Si te toca la Lotería de Navidad en Canarias 2023, ¿desde cuándo puedes cobrar el premio?
+-  Lufthansa-Tochter Discover: Piloten gehen in den Warnstreik
+-  В Германии высказались о выдаче украинских беженцев для службы в ВСУ
+-  Япония прекращает производство популярного в России антибиотика. Минздрав заявил, что его запасов хватит на полгода
+-  Ancelotti komentirao Superligu, a onda ‘upozorio’ i Dinamo
+-  Android Auto smette di funzionare su alcuni vecchi smartphone
+-  From our files, December 22 2023
+-  Bolsa de Lisboa abre a subir 0,08%
+-  전교조 해직교사 ‘특채 지시’ 혐의 김석준 前 부산교육감 불구속 기소
+-  [인천24시] 인천시, 계양구 일부지역 토지거래허가구역 해제
+-  [시흥24시] 시흥갯골축제, '2024-2025 문화관광축제' 선정
+-  [성남24시] 성남시, 2023년 재정분석 평가 '효율성' 부문 '우수 지자체' 선정
+-  경기도 2024년 예산 36조1210억원 확정…전년 比 6.8%↑
+-  '수원화성' 주변 규제 완화, 재개발·재건축 가능해진다
+-  복구명령 vs 버티기…위험은 주민 몫
+-  ‘가덕신공항 건립’ 탄력받나…내년 정부예산안에 5363억 반영
+-  화성시 펜싱팀 감독 '선수수당 갈취' 의혹…"지위 남용해 선수들 대리운전 강요"
+-  [서부경남24시] 합천군, 지방규제혁신 평가 ‘전국 최우수’
+-  광주~대구 달빛철도 첫발 뗐지만…‘복선·고속철’ 포기는 논란거리
+-  [경주24시] “40년의 고통” 경주 안강읍 주민, 국방부에 포사격장 이전 촉구
+-  [대구24시] 지역기업 내년 1분기도 ‘침체’…대구 상의, 기업경기전망지수 발표
+-  [포천24시] 포천시, 2024년 1월 새해농업인 실용교육 실시
+-  [기장24시] 기장군 내년 예산 7984억…2.2% 감소
+-  В Кировской области дети участников СВО будут получать бесплатное питание в ссузах
+-  Jokowi Nyaman Pakai Dasi Kuning, PDIP: Karena Elektoral Golkar Turun
+-  What is waiver of premium rider with ULIP and why should one opt for it?
+-  Мизрахи: Испратив допис до претседателот на Собранието да ги достават сите материјали од Анкетната комисија за Онкокогија до ЈО
+-  UAE Central Bank raises 2024 economy growth forecast to 5.7%
+-  Правительство Армении намерено погасить финансовые обязательства Нагорного Карабаха
+-  В Ульяновске задержали участников драки в кафе, в которой пострадали три человека
+-  "سحب قوس قزح" النادرة تزين سماء القطب الشمالي لمدة 3 أيام متتالية (صور)
+-  Либертарианца Светова вновь оштрафовали за нарушение закона об иноагентах
+-  Vreme: Danes bo pretežno oblačno
+-  Jobless man jailed after stealing cologne for child’s mother
+-  Investigation launched after EAC challenges competitor
+-  US scrutinizing airline frequent flyer programs
 -  ¿Se te ha roto un décimo premiado en la Lotería de Navidad 2023? Esto debes tener en cuenta
--  해체재활용 광주·전남지부 지부장에 이명진 대표 선출
--  광주시 ‘소부장 특화단지 일자리 정책’ 산업부장관상 수상
--  현대모비스, 미 CES서 신기술 20종 전시
--  현대차 슈퍼널, 내달 CES서 신형 UAM 실물모형 첫 공개
--  자동차부품기업 일지테크, “2025년까지 경주4공장 설립”
--  카카오모빌리티, 국군수송사령부와 ‘국방 수송 발전’ 업무협약
--  전남도·제주도·고흥군, 녹동신항 물류센터 신설 위해 ‘맞손’
--  광주서 만든 장갑차, 아프리카 간다
--  광주시 “미래차산업 100년 기반 함께 채우자”
--  현대차그룹, 사장 5명 등 역대 최다 252명 승진
--  수도권2고속道 인천~안산 2025년 착공 목표
--  정부, 홍해 물류 리스크 점검
--  대전 유성마을버스 성인 요금 새해부터 250원 인상
--  진주~수서행 SRT 이용률 95%
--  BPA, 부산항 내년 물동량 2340만TEU 목표
--  생물법 국회 통과...성범죄자, 배달업 종사 못해
--  道 조례로 물류창고 난립 방지한다
--  조현민 한진 사장, “2025년 매출 3조5천억원 목표”
--  카포스 문경지회, 취약계층 겨울나기 지원
--  카포스 안동지회, 이웃돕기 성금 100만원 기부
--  세계 물류 위협 '홍해 리스크’...운임 인상 촉발
--  부산개별화물협회, 불우이웃돕기 성금 전달
--  최우수 관광벤처 7개사 '문체부 장관상' 수상
--  관광공사, 내부통제 실무위 구성키로
--  에어프레미아, 나리타 취항 1년에 13만5천명 이용
--  유인촌 장관, 서울역서 '로컬로' 캠페인 시작
--  이스타항공, 청주∼타이베이 국제선 운항 재개
--  인천공항 이용객 코로나19 이전 80% 회복
--  제주항공, 인천∼달랏 매일 운항
--  정선아리랑문화재단, 2023 대한민국 한류대상 수상
--  "새해 첫날 해맞이는 등대에서"
--  '아홉 숲의 긴 봄' 해남 땅 십 리 숲길
--  부산렌터카조합 “조합 중심 단합해 어려움 극복하자”
--  대한항공, 안전방재모 500개 기부
--  공단 부산본부, 교통문화발전대회 수상자 전수
--  서울관광재단, 복지부 건강친화기업 인증
--  지엠한마음재단, 겨울나기 지원 봉사활동
--  부산정비·정비업협동조합, 내년 사업계획과 세입·세출 예산 확정
--  우아한청년들, 신규 라이더 지침서 배포
--  부산개인택시組 ‘창립 46주년 기념식’ 성황
--  부산 마을버스 환승손실금 21억원 추가 지원
--  해운대 해수욕장서 내년 첫날 해맞이 축제
--  화천산천어축제 개막 앞두고 점등식 열려
--  투루카, '위치 관제 기술' 특허 등록
--  한서대 교육원, 산업구조변화 대응 훈련기관으로 선정
--  현대위아 임직원, 복지기관 20곳에 車 기부
+-  Šahedi eliminisani
+-  Ministère en charge du commerce : 115 récipiendaires décorés pour services rendus à la nation
+-  검찰 '무혐의' 강릉 급발진 의심 사고 재수사 지시… 유족 "강자 편에 선 편파적 조치"
+-  2024 강원동계청소년올림픽 성화투어 양구 행사 성황
+-  신철우 양구군의원 ‘2023 대한민국 지방자치평가연계 의정정책대상’ 최우수상 수상
+-  전청조 "혐의 모두 인정하지만 범행 부풀려져… 범죄 수익 남현희에 흘러 들어가"
