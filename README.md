@@ -1,51 +1,51 @@
 # Latest News
--  Ο Παναθηναϊκός «άλωσε» το Μιλάνο με σούπερ άμυνα και ηγέτη Ναν – Αγωνία για Λεσόρ
--  Criança é resgatada de helicóptero após se afogar em piscina em Florianópolis
--  Vrhovni sud se za sada neće baviti pitanjem Trampovog imuniteta
--  Verano 2024: vacaciones tecnológicas son una buena opción para los chicos verano
--  Naples: "Il laisse toujours un champ de ruine", le gros tacle de Rothen sur Rudi Garcia
--  عميد بلدية نالوت: البلدية داعمة للمؤسسة العسكرية وليس للميليشيات القبلية
--  బీఆర్‌ఎస్‌ స్వేదపత్రం
--  المركز الثقافي الإسلامي في نيويورك يقيم صلاة الغائب على الأمير الراحل
--  Kuba schválila eutanáziu ako druhá krajina v Latinskej Amerike a Karibiku
--  Živý darček pod stromčekom? Odborníci zdvíhajú varovný prst: TOTO si treba zvážiť!
--  ‘Rebel Moon — Part One: A Child of Fire’ review: Zack Snyder rips off ‘Star Wars’
--  Fluminense é goleado pelo Man City na final do Mundial de Clubes
--  UZNEMIRUJUĆE! MATIJAS LESOR SA BOLNOM GRIMASOM NAPUSTIO IGRU: Centar Panatinaikosa u bolovima posle strašnog pada
--  Denizli milletvekili yıkılmak üzere olan tarihi camii için bakana seslendi: ‘Korumak için ille Galata Kulesi mi olması gerek?’
--  مانشستر سيتي يتوج بلقب كأس العالم للأندية للمرة الأولى في تاريخه
--  В Чехии опровергли сообщения, что стрелок в Праге предупреждал о намерениях
--  “저축 그만하고 제발 돈 좀 써라”…예금금리 확 낮춰버린 이 나라
--  مصرع وإصابة 7 أشخاص إثر حادث بالبحيرة
--  Dana White Announces Multiple High-Profile UFC Fights For Early 2024
--  Homeless infant dies on bus bench near LAX
--  Dart. Krzysztof Ratajski w trzeciej rundzie PDC World Darts Championship. Dalsza gra Radka Szagańskiego, odpadniecie Krzysztofa Kciuka
--  Päähän taklanneelle Pelicansin Niklas Virtaselle kolmen ottelun pelikielto
--  En Gran Hermano estaban aburridos y se la agarraron con Fabra por la expulsión ante Fluminense
--  Kassam Tugayları duyurdu: İsrail askerlerine füze saldırısı
--  Fenerbahçe Beko, yeni koçuyla yükselişini sürdürüyor!
--  Paris'te işgalci İsrail'in Gazze'de katlettiği Filistinliler anıldı
--  KKTC'den Rumlara tepki! "Kabul edilemez"
--  Bosna'da Filistin etkinliği: Gazze'yi beyaz önlüğümle korudum
--  Şehit ateşi Tokat'a düştü
--  Bakan Fidan'dan yeni büyükelçilere görev tebliği
--  Le directeur adjoint de l'agence spatiale russe accusé de détournement de fonds
--  مانشستر سيتي بطلاً لكأس العالم للأندية
--  Weihnachtsmarkt Essen mit trauriger Nachricht – Besucher müssen sich jetzt entscheiden
--  Cantor Bera explora paisagens cariocas em novo single natalino “Christmas on the Beach”
--  Corona : చలి మీద పుట్రలా కరోనా
--  来年度予算案決定 国債費過去最大 厳しい財政状況続く
--  Canada announces 25-player roster for Spengler Cup
--  Stock Car: Quando os erros (mais uma vez) afetam as boas provas
--  Bilčik: Zabrinut sam zbog broja pritužbi i nepravilnosti na izborima u Srbiji
--  LIVE WK darts | Van Barneveld heeft eerste pijlen in bord zitten, Wattimena kan beste WK-prestatie niet evenaren
--  Giants sign Mason Crosby to practice squad to kick for them this week
--  देश में कितनी तेजी से फैल रहा JN.1 वैरिएंट? अब तक कुल 22 मामले, जानें 5 बड़े अपडेट
--  Denise van Outen showcases her jaw-dropping figure in off the shoulder gown as she attends Christmas event in Marbella
--  फ्रांस ने 303 भारतीयों से भरे विमान को क्यों किया जब्त? पेरिस से दिल्ली तक हड़कंप!
--  Nahost-Newsblog: Israel zu UN-Resolution: Gaza-Transporte werden weiter inspiziert
--  विवेक बिंद्रा पर नोएडा में केस दर्ज, पत्नी यानिका को बेरहमी से पीटने का आरोप, संदीप माहेश्वरी को लेकर भी चर्चा में
--  В Рославльском районе на пожаре погиб мужчина
--  Review: The 'Doctor Who' Christmas special delivers a pure, exhilarating adventure
--  Rusia ante la ONU: "EE.UU. vende a Israel una licencia de facto para matar a civiles en Gaza"
--  Sentage Holdings Inc. Announces Financial Results for the First Six Months of Fiscal Year 2023
+-  Moraes cassa decisão do STJ e restabelece quatro anos de prisão para ladrão de celular
+-  Türkiye'nin Her Yerinde Kilo Kilo Satılıyor! Pişerken Köpürüyor Yiyenleri Fark Etmeden Zehirliyor
+-  Cheer Board reaches limit, with finish line in sight
+-  Симоньян порассуждала о внутреннем иммунитете России
+-  City juara Piala Dunia Kelab FIFA, lakar sejarah rangkul 5 piala semusim
+-  Fuchsov čovjek tvrdi: 'Nemam informaciju da je nastavnik bio pijan ili da će dobiti otkaz'
+-  Monclova: aprueban cuenta pública de noviembre en última Sesión de Cabildo del 2023
+-  Aprovado Orçamento, campanhas eleitorais terão R$ 4,9 bilhões em 2024
+-  Manchester City vence o Fluminense e se consagra campeão do Mundial de Clubes pela primeira vez
+-  الاحتلال يواصل الاعتداء على طواقم الهلال الأحمر الفلسطيني
+-  Serie A: Monza-Fiorentina finisce 0-1, Salernitana-Milan 2-2
+-  En Alemania afirman que la UEFA puede dejar al Barcelona fuera de Europa
+-  How Cecilia Blomdahl in Svalbard Embraces Dark Days in the Arctic
+-  How Cecilia Blomdahl in Svalbard Embraces Dark Days in the Arctic
+-  It's OK to Call It Soccer
+-  Yacouba Sawadogo, African Farmer Who Held Back the Desert, Dies at 77
+-  When the season calls for merry murder mysteries
+-  U.S. Increasingly Isolated Over Israel and Gaza After Leading on Ukraine
+-  A Tokyo Taxi Driver Is Charged With Running Down a Pigeon
+-  Antonio Negri, Philosopher Who Wrote a Surprise Best Seller, Dies at 90
+-  Yacouba Sawadogo, African Farmer Who Held Back the Desert, Dies at 77
+-  U.S. Increasingly Isolated Over Israel and Gaza After Leading on Ukraine
+-  It's OK to Call It Soccer
+-  A Tokyo Taxi Driver Is Charged With Running Down a Pigeon
+-  When the season calls for merry murder mysteries
+-  Antonio Negri, Philosopher Who Wrote a Surprise Best Seller, Dies at 90
+-  Guillaume Labbé : la révélation sentimentale d'Escort Boys
+-  «Nicolas Bedos a fait l'objet d'une cancellation» : dénonce l'avocate du réalisateur dans «C à vous»
+-  Votre horoscope gratuit signe par signe du 23 au 29 décembre 2023 par Christine Haas
+-  «On a fait une raclette avec Bolloré et Boccolini...» : Sébastien Thoen raconte les coulisses de son retour sur Canal+
+-  Yann Moix : «Je suis sûr à 99% que Depardieu a tenu ces propos sur une cavalière qui n'était pas la petite fille»
+-  Pour ses 10 ans, la famille « Prodiges » s'agrandit sur France 2
+-  Six mois dans l'ombre des hommes de la BRI sur Canal + docs
+-  «C à vous» et France 5 «vomissent» les propos de Carole Bouquet dans «Quotidien» sur Gérard Depardieu
+-  «C'est en vous voyant travailler...» : émue aux larmes, Garance Pardigon a fait ses adieux à Gilles Bouleau et au journal de 20 heures de TF1
+-  «Je t'aime» : Agathe Lecaron en larmes pour la dernière de Benjamin Muller dans «Les Maternelles»
+-  Sophie Davant : «C'est étonnant qu'on en fasse une tartine sur la coupe courte de Miss France !»
+-  Audiences : quel score pour le début de la saison 10 de «Prodiges» sur France 2 ?
+-  « Je suis très fier » : le tendre message de Maxime Chattam adressé à son épouse Faustine Bollaert
+-  GSK senkt US-Preise für Advair, Valtrex und Lamictal
+-  GSK verlaagt Amerikaanse prijzen voor Advair, Valtrex en Lamictal
+-  Fans reckon Fikayo Tomori has just cost himself a Prem transfer after hilarious botched goal celebration for AC Milan
+-  Après la grève surprise dans le tunnel sous la Manche, Eurostar ajoute des trains
+-  Най-малко 18 души бяха убити при обстрел в лагера Нусейрат в ивицата Газа
+-  Caso Metástasis: Norero 'compró' la libertad de alias Madrid y Cuyuyui
+-  El patrimonio de Guillermo Lasso está en la mira de la Comisión de Fiscalización
+-  Дженоа з Малиновським дотиснула Сассуоло, Мілан вирвав нічию у Торіно: результати 17 туру Серії А
+-  Manchester City conquista el Mundial de Clubes
+-  Da Weasel no Sudoeste em 2024: "É um sítio onde fomos felizes"
+-  Human tears contain substance that eases aggression, says study
