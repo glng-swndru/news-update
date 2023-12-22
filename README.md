@@ -1,51 +1,11 @@
 # Latest News
--  동아ST-메쥬-피플앤드테크놀러지, 혁신적인 의료 솔루션 제공 업무협약 체결
--  Ўзбекистон ва Британия таълим соҳасида қўшма лойиҳаларни амалга оширади.
--  Киев хориждаги эркакларни сафарбарликка чақириш режасини рад этди.
--  Başkan Erdoğan yerel seçimler için sahaya iniyor! Tarih belli oldu
--  106 numaralı ölüm odası! İstenen cezalar belli oldu
--  국토부, 시흥 대야‧부산 구서‧광주 소태 등 역세권 중심 도심복합사업 선정
--  이정후-김하성 강적 추가된다, 오타니 이어 야마모토 다저스행 유력
--  How Mumbai`s Catholic community relishes this lesser-known Christmas delicacy
--  Accident près de Saint-Etienne : des bottes de foin se renversent sur une voiture
--  Ces étudiantes collectent des protections hygiéniques pour les jeunes filles dans le besoin
--  Perpignan. Un grand feu d'artifice et un concert pour célébrer Noël au pied du Castillet
--  Duedahl om sygehuset: - Folk tror jo, at det falder sammen
--  Politiet gør status fredag morgen: Sådan blev vi ramt
--  Alrededor de 61% de las empresas en España no tienen política de inclusión de género
--  Deserción escolar pone a Paraguay de penúltima en el Índice de Género de la región
--  Conservar paga
--  Brecha salarial y eliminación de barreras, las deudas de Iberoamérica con las mujeres
--  El fin de la estratificación
--  'Constelaciones', alumbrará hasta mañana la navidad
--  La mitad de los CEO en Perú son mujeres y 29% hacen parte de las juntas directivas
--  Torino, il Monza pensa a Radonjic. Palladino: ”È un ottimo giocatore”
--  Estos son los diez personajes que dieron de qué hablar durante lo corrido de este año
--  Las iniciaciones caen -24%, implicaciones en la economía y la reactivación
--  Daniel Ricciardolta vahva vihjaus tulevasta F1-tallistaan
--  Estas son las canciones más reproducidas en la plataforma Spotify durante este año
--  Conozca si su tarjeta de crédito le cobra intereses por hacer compras a una sola cuota
--  El Cyber Monday fue el día más popular para intentos de fraude previo a la Navidad
--  연천군 은대초등학교, 책 보따리를 싣고 온 산타
--  태백시-공무원노조 태백시지부, 2023년 단체협약 체결
--  이대영장학회·봉사회, 교육부장관 표창 수상
--  [결혼] 이교숙(대전시 감사위원회 주무관)씨 여혼
--  태백시 황지동행정복지센터, '황부자 행복한 산타클로스 행사' 진행
--  부평, 2023년 사회복지사 처우개선위원회 개최
--  시흥 거북섬에 별빛이 반짝반짝, 낭만 넘치는 ‘별빛공원’ 눈길
--  춘천시, 선한이웃 마을돌봄 마을복지계획 성과공유회 개최
--  시흥소방서, 성탄절·연말연시 대비 특별경계근무 돌입
--  홍천군, 2023년 주민참여예산 ‘교육’ 분야 특별상 수상
--  [속보] 수원역 환승센터서 버스 사고… "사상자 다수 발생"
--  Se prevé que tensión en el Mar Rojo podría afectar 30% del mercado marítimo global
--  Conozca cuáles son los videojuegos que disfrutan y le recomiendan algunos gerentes
--  La historia del Almanaque Pintoresco de Bristol, dos siglos en la tradición del campo
--  La desigualdad de género en Brasil se redujo para este año y se ubicó en más de 72%
--  Conozca cuáles son las películas y series más esperadas que se estrenarán el otro año
--  La diplomacia corporativa se impuso en la agenda, industria tech la gran protagonista
--  Gremios de la salud alertan retrasos en pagos de la UPC y en presupuestos máximos
--  Oroscopo Paolo Fox di oggi per Bilancia, Scorpione, Sagittario, Capricorno, Acquario e Pesci | Venerdì 22 dicembre 2023
--  El Caribe con hambre
--  Estos son los modelos de tenis recomendados para iniciarse en el mundo del running
--  Cinco casas de apuestas online que lideran casi 90% del mercado de juegos en línea
--  Oroscopo Paolo Fox di oggi per Ariete, Toro, Gemelli, Cancro, Leone e Vergine | Venerdì 22 dicembre 2023
+-  크리스마스 앞두고 ‘티니핑월드’ 만든 이 회사 샀다[주식 초고수는 지금]
+-  הפועל באר שבע רוצה להציל את העונה, גיא בדש עשוי לקבל הזדמנות
+-  为入门级用户打造舒适均衡的用机新体验 moto g34评测
+-  红白之间二元对决 双面纹素皮无缝拼接 iQOO Neo9图赏
+-  아이즈원 마지막 보석 '강혜원'도 터졌다…'소년시대' 종영소감 들어보니 [일문일답]
+-  디지털플랫폼정부, 초거대AI로 공공서비스 혁신 나선다
+-  [2023 IT혁신상품] 유아이패스, 자연어 이용 일상 작업 자동화하는 '오토파일럿'
+-  Terkini: Ekonom Kasih 3 Catatan soal PSN Era Jokowi, Nasib Aset Negara di Jakarta Setelah Ibu Kota Pindah ke IKN
+-  Jo Koy to host Golden Globes awards show
+-  French President Emmanuel Macron Invited To Be Chief Guest At 2024 Republic Day Celebrations
