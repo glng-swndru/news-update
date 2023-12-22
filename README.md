@@ -1,51 +1,51 @@
 # Latest News
+-  Piden revocar licitación para contratación de plataformas virtuales del Sena
+-  熊本・山鹿市のさくら湯、昭和レトロの雰囲気を再現 ２階資料室に洗い場や番台
+-  OnePlus Open receives an update, but it’s not Android 14 yet
+-  Najpopularnija imena u svijetu za djevojčice i dječake u 2023. godini
+-  Autistic Hacker Who Leaked 'Grand Theft Auto 6' Sentenced to Life in Hospital Prison
+-  חשד לשחיתות במשטרה: מפקד תחנת חיפה הוצא לחופשה כפויה לאחר שנחקר בתחילת השבוע
+-  “Hay más de 2 mil personas en lista de espera”: Médicos del IGSS de emergencias advierten de colapso por falta de personal e instalaciones
+-  Šokantne snimke iz Njemačke: Jaka oluja potopila Hamburg, voda je na nekim mjestima bila do struka!
+-  Επίδομα θέρμανσης με ρεύμα: Άνοιξε η πλατφόρμα για τις αιτήσεις – Τι πρέπει να γνωρίζετε
+-  వైవీకి చుక్కెదురు!
+-  ¿Cómo son los tenis Puma Swarovski? Te damos los detalles
+-  Urgent plan to save red handfish from extinction
+-  ఐఆర్‌ఆర్‌ కేసులో దర్యాప్తు అధికారులను లోకేశ్‌ బెదిరించారు!
+-  Millicom (Tigo) share repurchase activity
+-  7th Canadian dies from cantaloupe salmonella outbreak, PHAC says
+-  Powerball: La millonaria cantidad que podría ganarse en vísperas de Navidad
+-  Constellation Software’s Harris Operating Group Acquires MEDHOST, Inc.
+-  Atama ve görevden alma kararları Resmi Gazete'de
+-  La France a un incroyable talent : qui a gagné la saison 18 ?
+-  ‘Shoot here!’: reporter yelled at Prague gunman to help people flee
+-  ‘Shoot here!’: reporter yelled at Prague gunman to help people flee
+-  ‘Shoot here!’: reporter yelled at Prague gunman to help people flee
+-  Biden lamenta la muerte de un estadounidense que se creía que estaba secuestrado por Hamás
+-  İbrahim Çelikkol, Birce Akalay'ı omuzundan öpmüştü! Çok konuşulan görüntülerle ilgili Akalay'dan dikkat çeken açıklama!
+-  7-year-old Mass. girl sought after being placed on wrong transportation van
+-  Bir kadının ‘Ölmek istemiyorum’ çığlığı
+-  భార్య నల్లగా ఉందని విడాకులు ఇవ్వలేం
+-  La semaine de Marc (2/2): Que suivre en 2024 pour votre argent ? - 22/12
+-  A night on the tequila led Charles to his Syd-Hob debut
+-  Deseo cumplido: la conmovedora historia de los seis hermanitos que pidieron ser adoptados juntos y pasarán la primera Navidad con sus dos mamás
+-  Savor the Season: Celebrating the Health Benefits of Holiday Spices
+-  İranda 11 ay ərzində 700-dən çox məhbus edam edildi
+-  Definido cronograma legislativo para 2024
+-  US Supreme Court rejects prosecutor's request in Trump election fraud case
+-  వ్యూహం సినిమాకు బ్రేక్‌
+-  ‘토트넘 이적 막지 않을 것’…맨유 제치고 ‘프랑스 철벽’ 영입 가시화
+-  INTEC lleva la educación STEM a las escuelas
+-  Актера из сериала «СашаТаня» нашли мертвым в Москве
+-  Kourtney Kardashian & Travis Barker Share First Photos of Newborn Son Rocky Thirteen!
+-  B.C. prison officials seize $183K in contraband at maximum-security facility
+-  Četvorobroj “Vesti“
+-  L'intégrale de Iconic Business du vendredi 22 décembre
+-  쉘비 밀러, 1년 300만$에 디트로이트행
+-  Vila remizirala sa Šefildom: Tejlor i VAR obilježili duel
+-  Zvijezda NFL-a u pet mjeseci dobila troje djece s tri žene
+-  Un bărbat din Botoșani a murit, după ce a adormit cu ţigara aprinsă, iar casa i-a luat foc
+-  Издателя The Banner Saga и Pillars of Eternity больше нет — все сотрудники Versus Evil уволены
+-  Premier League: Zaniolo salva l'Aston Villa al 97'
+-  Elevate Your Look with DermaGym’s Exclusive Line and Signature Services
 -  الزعيــــم .. صـــدارة عــــن جـــدارة
--  «76.2» مليار مشتريات حكومية في «2024»
--  «68» خطة عمل لتطوير الخدمات المصرفية
--  Teemu Pulkkisella onneton paluu koomisen yleisömäärän edessä
--  UAEA açıkladı: Kuzey Kore'de 2. nükleer reaktör faaliyette
--  Savunma sanayindeki başarıya dikkati çekti: Türkiye bir devrim yaşadı
--  Başkan Erdoğan imzaladı! Atama kararları Resmi Gazete'de
--  أسعار النفط تتراجع
--  الزكاة والضريبة تحذر: أنت متهم بالتهرب الضريبي في حال تقديم هذه السجلات والمستندات
--  Corte Suprema EEUU rechaza solicitud del fiscal, aún no se pronunciará sobre la inmunidad de Trump
--  FedEx nombra a una ejecutiva de Danone miembro de su consejo de administración
--  السبت 10 جمادى الآخرة.. مواقيت الصلاة في مكة والمدينة ومناطق المملكة
--  [속보] 포스코 포항제철소 발전소서 화재…공장 대다수 가동 중단
--  فرحة جديدة في بيت محمد ثروت بعد شهر من زفاف نجله.. ماذا حدث؟
--  VIDEO: Dani Flow enfurece con un fan y lo corre por “nacada” en pleno concierto
--  Banco comandado por Dilma garante empréstimo de US$ 200 milhões para Minas Gerais
--  الاحتلال يواصل الاعتداء على طواقم الهلال الأحمر الفلسطيني
--  اليابان تعتزم تسليم الولايات المتحدة صواريخ باتريوت
--  زيلينسكي يحث الدبلوماسيين على بذل الجهود لكسب التعاطف مع أوكرانيا
--  "모두가 수비 괴물을 좋아한다!"…하지만 바이에른 뮌헨은 '딜레마'에 빠졌다, 투헬 "뮌헨에 불행한 시기"
--  [손태규의 직설] 르브론 제임스 '말'로 두들겨 팬 UFC 선수
--  ‘마약혐의’ 이선균 오늘(23일) 3차 소환, 女실장 “집에서 필로폰·케타민 투약했다” 진실 밝혀지나[MD이슈](종합)
--  "어마어마 수상경력→전교 1등→선생님 극찬" 이찬원, 모범생 표본 생기부 '공개'[편스토랑]
--  바르샤와 레알이 '맨유 22살 신성'에 미쳤다→임대로 내보낸 맨유 “기회 왔을 때 팔자”흐뭇
--  맨시티 핵심 MF→"EPL에서 가장 어려운 상대는 손흥민"
--  "10일 동안 –5kg·제니 어깨 가능!" 진서연 '비법 大공개'[편스토랑]
--  성탄절 경마, 서울 단독 이벤트 12R 시행
--  رولان مهنا يستقبل العام الجديد بحفل فني في صيدا
--  نوال الزغبي تعلن عن خبر سار قبل نهاية العام.. مفاجأة بانتظار جمهورها
--  “وقته المتبقي لنا”.. فهرية أفجان تعلق على سفر بوراك أوزجيفيت المتكرر
--  براد بيت يحتفل بعيد ميلاده الستين مع حبيبته الجديدة
--  La otra cara de diciembre: nostalgia por las fechas y “depresión invernal” ¡Esto dice un especialista!
--  عمرو دياب يفاجئ الجمهور بأولى أغنيات ألبومه الجديد.. “المعنويات مرتفعة”
--  عشاء غريب جمع مارثا ستيوارت مع سنوب دوغ.. إليكم ما كشفته
--  Sixth man arrested over major cocaine seizure at Foynes Port
--  Dışişleri'nden GKRY'ye 'Deniz Saha Planlaması’ tepkisi
--  حظك اليوم وتوقعات الأبراج 23-12: توتر وقلق لهذا البرج.. ونصائح لهؤلاء
--  Philippe Clement ramps up St Johnstone attack as Rangers boss says he’d be RAGING if his players made similar tackles
--  América le hará una gran oferta de renovación a Henry Martín para continuar dos años más
--  Dayton, Ohio, Commission Votes to Expand ALPR System
--  Removal of Banksy artwork reported to police to ‘help get it back’
--  Affaire Agnès Firmin Le Bodo : ce que dit la loi sur les "cadeaux d'affaires"
--  Ivana napustila 'MasterChef' pa poručila: 'Sretna sam i ponosna. Bilo je dosta borbe, ali i sreće'
--  Украинский телеведущий сбежал в Европу после саммита ЕС
--  35 puntos para soñar con la Champions
--  Victoria López: «Si no se regula la inteligencia artificial, se irá de las manos y nada será verdad»
--  Saussemesnil. Les parents d'élèves de la Ribambelle remettent un chèque de 6 000 euros à l'école
--  Tramp upozorava Amerikance: Čuvajte se, FBI šalje prikrivene špijune na vas
--  Trump Criticizes ‘Scam’ Poll Showing Nikki Haley Trailing By Just 4 Points In New Hampshire
--  Kourtney Kardashian and Travis Barker Share First Pics of Son Rocky
