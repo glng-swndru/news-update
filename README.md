@@ -1,51 +1,51 @@
 # Latest News
--  전국 최강 한파에 수도계량기 동파사고 200건 넘게 속출…서울 90건
--  Zadranka otkrila tajnu jeftinog blagdanskog ručka: ‘Stalno sam radila ovu grešku, skupo me koštala’
--  AWS·암젠, 생성AI로 신약 개발 가속화
--  염태영, 경기부지사 사임하고 총선 출사표
--  49 il əvvəl Xankəndidə nələr yaşanmışdı?
--  Wieso man beim VfB Stuttgart nie dem Braten traut
--  Danas je prvi dan zime: Evo kakvo nas vrijeme očekuje
--  Bagasjetrøbbel på Flesland: – Full stans
--  UN Security Council aims to vote Friday to boost aid to Gaza
--  Полицейский погиб при ДТП в Вожегодском округе
--  Artık, Karalahana yemiyoruz...
--  بلوچ مظاہرین کی گرفتاری کیخلاف درخواست ؛ اسلام آباد ہائیکورٹ نے آدھے گھنٹے میں آئی جی کو طلب کرلیا
--  32 İlde Eş Zamanlı Operasyon: 304 IŞİD şüphelisi Gözaltına Alındı!
--  가자 '휴전 재협상' 난항…美 "저강도 전쟁 조기 전환해야"
--  Encontrar la luz en invierno
--  La prima pagina de La Gazzetta dello Sport titola: "Superlega, un muro di no"
--  Markkanen sivussa, Jazzin jalkoihin jäänyt Pistons lähentelee NBA:n tappioennätystä
--  US$10,000 Reward For Info On Missing Indian On FBI’s ‘Worst Kidnappings’ List
--  7 опита за "ало"- измами спрени само за ден във Варна
--  RSS: కులగణనకు తాము వ్యతిరేకం కాదు.. డేటాను సమాజ హితానికి ఉపయోగించాలన్న ఆర్ఎస్ఎస్
--  Formel 1: Verstappen-Seitenhieb gegen Hamilton und Co. – seine Antwort spricht Bände
--  Orbán Viktor úgy értesült, hogy az Európai Parlament embereit is Soros György irányítja
--  Sánchez y Feijóo se reúnen sin visos de grandes acuerdos
--  Minister Tiran says committed to carry on drug operations despite challenges
--  Full List: 31 Premier League Club Players Face Suspension Ahead Of Christmas Fixtures
--  Recuerdos de Navidad
--  Bidenov tim usporedio tri Trumpove i tri Hitlerove izjave
--  Η μελαγχολία των γιορτών και πως να την αντιμετωπίσετε
--  Steam日本語アプデ配信『How 2 Escape』の“スマホを併用した友人との列車脱出劇”が面白い。指示側と脱出側に分かれる非対称列車脱出
--  Die Details zum Heizungsgesetz: So sieht die Förderung aus
--  Le aperture dei quotidiani italiani e stranieri di oggi, venerdì 22 dicembre
--  Семейный МФЦ планируют открыть в ДНР в первой половине следующего года
--  युवा विदेश जाने बाध्यता अन्त्य गर्नुपर्छ : सभापति लामिछाने
--  Fastigheten på Åsen 31 i Lingbo har fått ny ägare
--  Fastigheten på Åsen 31 i Lingbo har fått ny ägare
--  ตร.บางเขน ส่งฟ้องดารา "ต่อ เรืองฤทธิ์" ข้อหาเมาแล้วขับ
--  ระทึก อพยพนักท่องเที่ยว 70 ชีวิตกลางทะเล หมู่เกาะอ่างทอง
--  “ข้าวหอมมะลิไทย” ยืนหนึ่งตลาดฮ่องกง คาดปี 67 แข่งราคาเดือด
--  "พิพัฒน์" ขอกก.ไตรภาคีทบทวนขึ้นค่าแรงขั้นต่ำ 2-16 บาท
--  สปส.ส่ง SMS 8.5 แสนเลขหมาย ชวนใช้สิทธิเลือกตั้งบอร์ดประกันสังคม
--  Top news developments from Telangana today
--  인천 동구, 고향사랑기부제 답례품 7개 추가 선정… 18개 품목으로 확대
--  FG Floats Scheme To Boost Cassava Production
--  [[김태열의 생생건강S펜] "고령층 '낙상'은 치명적 '삶의 질 저하' 부른다"
--  [[김태열의 생생건강S펜] 류마티스 관절염 환자, 폐암 위험 49% 증가
--  Serbest piyasada döviz açılış fiyatları (22.12.2023)
--  [김기현 119억·서삼석 66억…여야 실세, ‘긴축 재정’에도 지역구 챙겼다
--  [‘지금은 무료지만…’ 유료 전환 소식에 개인투자자 ‘분주’, 대체 무엇?
--  [尹, 순직 군인·경찰·소방관 가족과 대통령실 첫 성탄절 행사
--  [서울월드컵경기장 잔디 ‘스마트’하게 관리한다…사물인터넷 시스템 도입
+-  Oho, todella erikoinen maali NHL:ssä - suomalaishyökkääjä oli itsekin ymmällään: ”Outo pomppu”
+-  Mikko Rantanen oli tulikuuma - tutkapari teki vielä jotain hämmästyttävämpää: ”Melkoinen saavutus”
+-  김천예다회, 다향(茶香)으로 겨울을 녹이다
+-  '타임빌라스 수성' 착공, 신속건립 합의 9개월 만의 결실
+-  Phantomtor bei Partie in Straubing: Puck rutscht unter Tor
+-  Ohne Vier: Die Baustellen des 1. FC Köln
+-  Sturmtief „Zoltan“ unterwegs: So war die Lage in der Nacht von Donnerstag zu Freitag im Landkreis Zwickau
+-  Schlechtes Internet? Preisminderung nur wenig genutzt
+-  Diebe auf Baustelle in Hohenstein-Ernstthal: Neben Werkzeug wird auch eine Gastherme entwendet
+-  Bauministerin rechnet 2024 mit 265.000 neuen Wohnungen
+-  Sturmtief „Zoltan“ hält Vogtland seit Donnerstagnacht in Griff
+-  Zahl der Kirchenaustritte weiter hoch
+-  Diez lugares para conocer y pasear a precios rebajados por fiestas de fin de año
+-  Świąteczny repertuar kin i teatrów w weekend w Lublinie i regionie [22-26.12]
+-  عام انتخابات: کاغذات نامزدگی جمع کرانے کی تاریخ میں توسیع
+-  Partiler sonuçları anlık takip edebilecek
+-  Devisen: Euro notiert bei 1,10 US-Dollar
+-  Ile kosztują święta [PODCAST]
+-  ריאל מדריד שוב הוכיחה אופי הירואי, אנצ'לוטי: "יש לנו אנרגיה סודית"
+-  수도권 아파트 매매가 상승지역 ‘전무’
+-  '경성크리처' 스페셜 로맨스 포스터 공개!
+-  Australians owed millions in unclaimed cash: How to check if you're eligible
+-  Историю падения Римской империи переписали новые раскопки
+-  Česká republika vyhlásila na 23. december štátny smútok: Uctia si pamiatku obetí streľby
+-  Dánsko a USA podpísali spoločnú dohodu o obrannej spolupráci
+-  맨유에서 망했는데 분데스 강팀들이 원한다…걸림돌은 완전이적 조항
+-  “건강하게 돌아와, 기다릴게!”... 레알 선수들, 십자인대 부상당한 알라바를 위한 유니폼 착용
+-  Streľba na univerzite v Prahe: Biden, Macron a Guterres kondolovali Česku
+-  '몇 주 안에 답 없으면 끝' 토트넘, 리그앙 최소 실점 DF 영입 어려우면 다른 선수로 눈 돌린다
+-  Inédits de Fragonard: "Une trentaine d’œuvres peuvent réapparaître"
+-  В Пензе нашли водителя фуры, сбившего пешехода
+-  Sturmtief wirbelt im Norden Deutschlands
+-  Special Food Talk Series “พลิกโฉมผลิตภัณฑ์อาหารด้วยค่าดัชนีน้ำตาล”
+-  Russia to Deliver 20 Tons of Humanitarian Aid to Gaza
+-  경복궁 담장 '최초 낙서' 10대 구속심사…묵묵부답
+-  18-year-old Lapsus$ hacker behind GTA 6 leak using a Amazon Fire Stick faces ‘Secure Hospital’ indefinite stay
+-  Nikad blaža zima: Danas i sutra iznadprosječno toplo, od Božića stiže ipak nestabilnije vrijeme
+-  Hatay'da 5 katlı okula iş makinesi dokundu, yerle bir oldu
+-  Friss felmérés: ezekkel a mesterdiplomákkal lehet a legjobban keresni
+-  La constante Kaprekar o el número de Lotería de Navidad que solo se vende en Córdoba
+-  OVO SU VREDNOSTI PO KOJIM MENJAČNICE PRODAJU VALUTE: Narodna banka Srbije objavila današnji kurs evra
+-  “10대에게 몹쓸 짓”…성매매·티켓 구매 강요한 디스코팡팡 직원들 실형
+-  임윤찬 콩쿠르 실황 ‘초절기교 연습곡’, NYT 올해의 클래식 음반
+-  더불어민주당 임종성 의원"광주시 국도3호선 초월 쌍동JC 상습정체 해소 빨라진다"
+-  국민의힘 안병길 의원"부산 서·동구 2024년 국비 1,275억원 투입 확정"
+-  국회 본회의"2024년도 예산안 및 세입부수법안 처리"
+-  더불어민주당 김한규 의원"스마트공동물류센터 조성·장애인거주시설 확충 등 제주시 국비 예산 46.6억원 확보"
+-  국민의힘 윤재옥 당 대표 권한대행"국민의힘 비대위원장으로 한동훈 법무부 장관 추천하기로 했다"
+-  대한민국 국회" '새로운 희망 만드는 민생·소통·혁신 국회' 위한 2024년도 국회 예산 확정"
+-  KGC인삼공사, 이웃돕기 성금 마련 ‘2023 동인비 바자회’ 개최
