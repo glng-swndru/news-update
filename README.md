@@ -1,51 +1,51 @@
 # Latest News
--  Météo: les températures prévues pour le samedi 23 décembre
--  La picante respuesta de un carnicero a una movilera de LN+: "La carne bajó si, pero del camión"
--  فيديو “طفل مصري يمد أبناء غزة بالخبز عبر ثقب” ليس صحيحا وهو مشهد من فيلم
--  The best electric scooters for adults in 2024
--  Dünya şampiyonu Manchester City!
--  Uitslagen KKD: koploper Willem II wint van NAC Breda
--  İzmir Bayraklı'da dehşet! Saldırgan, halasını satırla keserek öldürdü
--  Manchester City campeón del Mundial de Clubes: otro récord para Guardiola
--  Palæstinensisk udsending roser FN-resolution
--  Palæstinensisk udsending roser FN-resolution
--  Tokių nuostolių Rusija neturėjo nuo pavasario. „Visus surinkome. Gyvus ir mirusius.“ Kas vyko Pietų kryptimi (Foto)
--  防衛装備品 輸出ルール緩和 共同開発の装備品輸出は議論継続へ
--  Moradabad News: चार ट्रोमल में सिर्फ एक चलता मिला, कंपनी को नोटिस, जुर्माना के निर्देश
--  Álvaro Morales revela por qué llegó Tuca a ESPN y no fue por la salida de Faitelson
--  SM-liigan entinen pistekuningas sai ison sopimuksen
--  "Prédateur", club "abasourdi"... Ce que l'on sait des suspicions de viols au sein du CS Neuville Football, près de Lyon
--  Manchester United haluaa kaksi vahvistusta – katse tiukasti alelaarissa
--  Силуанов считает, что серьезные изменения в налогах не нужны
--  Nach IT-Migration: Postbank-Chaos zieht weitere Kreise
--  Moradabad News: जमीन बेचने के नाम पर साढ़े 10 लाख रुपये की धोखाधड़ी
--  Jammu News: क्रिसमस से पहले शोभायात्रा की धूम, सांता क्लॉस, देवदूतों के साथ किंग हैरोड की झांकियों ने किया मनमोहित
--  LAJM I FUNDIT/ Aksident në Tiranë, përplaset një makinë e policisë
--  I went to Ikea for the very first time. From the elaborate displays to an unexpected Christmas feast, here's what surprised me.
--  محمد الضيف .. هكذا ظهر في الفيديو الذي زعمت اسرائيل عثورها عليه
--  Jammu News: जीएमसी में कोविड परीक्षण शुरू, उधर तीन लहरें निकलने के बाद भी जीनोम सीक्वेंसिंग मशीन शोपीस
--  'Maestro' focuses on famed conductor Leonard Bernstein — here's what his three children are up to now
--  Dev finalin sonunda büyük olay! Felipe Melo ile Kyle Walker birbirine girdi
--  Avustralya'da Filistin destekçilerinden İsrailli gemiye protesto
--  Dışişlerinden GKRY'nin Deniz Saha Planlaması'na tepki
--  İzlanda'da yanardağ patlaması nedeniyle tahliye edilenlerin evlerine dönmesine izin verildi
--  Confira os horários de funcionamento dos pontos extras de vacinação no feriado de Natal
--  İşgalci İsrail ordusu Nusayrat Mülteci Kampı'nı bombaladı
--  Advanced Stat-Based Rankings Prove Popular Atlanta Falcons Theory To Be Correct: It Might Just Be on Arthur Smith
--  Jammu News: जम्मू मेरी जिंद, कश्मीर मेरी जान ...प्रस्तुति पर झूमे दर्शक
--  Tussenstand Serious Request nu al op ruim 3,5 miljoen euro, ruim een miljoen meer dan eindstand vorig jaar
--  Tussenstand Serious Request nu al op ruim 3,5 miljoen euro, ruim een miljoen meer dan eindstand vorig jaar
--  This startup wants to turn your classic car into an EV using scrapped Tesla batteries
--  Junta Nacional de Justicia elije a Antonio de la Haza como nuevo presidente para el periodo 2024
--  손흥민 새 호위무사 영입 계획 청신호…‘첼시가 성골 MF 매각 의향’
--  الخارجية الفلسطينية تصف اعتماد قرار مجلس الأمن بأنه "خطوة نحو إنهاء العدوان" وتأمين وصول المساعدات إلى غزة
--  LIVE WK darts | Wattimena op randje van afgrond, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
--  LIVE WK darts | Wattimena op rand van afgrond, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
--  Rivers Elders Drag Tinubu, Fubara, INEC, Others To Court
--  Израел е готов за едноседмично примирие с Хамас в замяна на заложници
--  Especialista revela como escolher vinhos para a ceia de Natal
--  Es oficial: Jonatan Viale confirmó su llegada a TN y aseguró que se trata de un «sueño»
--  Casa pega fogo no DCTA, em São José, e dois animais de estimação morrem no incêndio
--  Côtes-d'Armor: un homme mis en examen pour le meurtre de sa femme 13 ans après les faits
--  Podcast: Elon Musk’s Twitter drama leaks to Tesla, wireless charging, the dealer problem, and more
--  Jammu News: पांचवें दिन देवताओं को आहुतियां अर्पित, उमड़े श्रद्धालु
+-  Avoid giving these: The six worst Holiday gifts ever
+-  3000 جندي من الاحتلال يصنفون بإعاقات دائمة بسبب العدوان على غزة
+-  Maкедонското вино на 13 место во светот
+-  Madonna di Campiglio: Zubčić diskvalificiran, Rodeš do bodova
+-  Premier Burt’s Trip To Washington Cost $3811.58
+-  Researchers warn that Windows 11 restrictions could send 240 million computers to landfills
+-  Pink Floyd’s David Gilmour working on “new album” in the studio
+-  Fiscalía citará a declarar a jugadores de Colo Colo involucrados en la obtención de licencias de conducir falsas
+-  Nicolás Jarry y Tomás Etcheverry están confirmados para el Chile Open 2024
+-  Tekst Val að fá Söru og Berglindi heim?
+-  Oscars Predictions: Original Song – Which One (or Two) ‘Barbie’ Songs Will Get Nominated?
+-  London library services slowly returning after cyberattack
+-  Bajdenov "kec u rukavu" za Arktik: Zelenski
+-  Il City di Guardiola vince il Mondiale per Club: Fluminense battuto 4-0
+-  Felipe Melo, mani addosso a Walker: rissa finale in City-Fluminense
+-  Sarri: "No a Superlega e nuova Champions. Mercato? La Lazio a gennaio..."
+-  Guardiola se corona, gana su cuarto Mundial de Clubes y supera a Carlo Ancelotti
+-  Juve, la Procura di Roma comunica la fine delle indagini preliminari: la nota
+-  Разворот Москвы в сторону Еревана? Что происходит?
+-  Veja quais produtos são mais procurados em redes varejistas nesta fase do ano
+-  Diputado Aedo (DC) por Pacto de Crecimiento: Es una “buena propuesta” pero “le falta realismo”
+-  Anadolu Efes Sinan Erdem'de kaybetti
+-  Unveiling the enigma: Bitcoin’s journey of revolution and its impact on the digital age
+-  Video: Laimutis savas vienības trešajā uzvarā „Rīgai“ iemet trīs ripas
+-  CNTV: 92% de los encuestados vio la franja electoral por televisión y 45% cree que comandos no la usaron de forma honesta
+-  Schwarz si dal najkrajší vianočný darček, ovládol legendárny nočný slalom
+-  [속보]뉴욕증시 보합 마감…8주연속 랠리 이어가
+-  Día 7 de la Novena de Navidad: oraciones, reflexión y gozos de este 22 de diciembre
+-  美 3대 지수 혼조…8주 연속 오른 시장
+-  “섹스리스? 젊은 애들이 무슨”…Z세대는 ‘피 끓는’ 20대 아닙니다 [Books]
+-  Wall Street neemt gas terug richting Kerst
+-  Kylie Jenner's Throwback Family Christmas Card Leaves Fans Asking 'Who is Casey'
+-  Le mari d’une Israélo-Canadienne a été tué lors de l’attaque du Hamas le 7 octobre
+-  LIVE WK darts | Wattimena leeft nog na gemiste matchdart, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
+-  LIVE WK darts | Wattimena leeft nog na gemiste matchdart, straks nog Van Barneveld, Belgisch drama in Alexandra Palace
+-  JEDNA STVAR JOŠ UVEK JE MISTERIJA Nove informacije o masakru u Pragu, policija otkrila detalj koji nikome nije jasan
+-  Maksvytis – apie trenerio atsakomybę, banguojantį Jokubaitį ir katalonų tritaškius
+-  Kanādas U20 zvaigzne nopelna noraidījumu līdz spēles beigām, vācieši gūst piecus vārtus
+-  Dallas ISD educator's death determined to be homicide, medical examiner records show
+-  I don’t get why dad bods are ‘hot’ but moms are ‘lazy and gross’ if they don’t ‘bounce back,’ I’m proud of my body
+-  Iran 'deeply involved' in Red Sea ship attacks: US
+-  Lazio return to winning ways, Genoa fight back
+-  수익률 360% ‘떡상’…재주는 비트코인이, 돈은 ‘이 종목’이 벌었네
+-  Wisconsin Supreme Court orders new legislative maps in redistricting case brought by Democrats
+-  NESTOROVIĆ O SNS: Oni su pobedili na ovim izborima, nemamo problem da im čestitamo
+-  Берлин предоставила Киеву новую партию военной помощи
+-  Véhicule électrique: le bonus écologique pourrait baisser à 4.000 euros en 2024 pour les plus aisés
+-  Art of Rally Ücretsiz Oldu
+-  Ännu en vecka på plus på USA-börsen
+-  Newsblog: Ukraine und Polen wollen Zusammenarbeit vertiefen
