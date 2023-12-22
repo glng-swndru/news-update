@@ -1,51 +1,11 @@
 # Latest News
--  Vin Diesel faces 2010 sex assault claim by former assistant
--  حصوات الكلى.. كيف تحمي نفسك؟
--  Tak Gentar JK Dukung Anies, TKD Prabowo-Gibran Optimis Ulangi Kemenangan Pilpres 2019 di Sulsel
--  Season's strongest cold wave causes traffic, daily life chaos
--  Grandson of ex-President Chun receives suspended jail term over illegal drug use
--  143 internet sitesi için kapatma talebi
--  ส่อง "หอผู้ป่วยพิเศษ" รพ.ตำรวจ หลัง "ทักษิณ" นอนครบ 120 วัน
--  यूपी: एक डॉक्टर के नाम पर कई अस्पताल चलाने वालों पर कसेगा शिकंजा, सभी सीएमओ से मांगी गई रिपोर्ट
--  Beklenen oldu! Motorine dev zam geldi
--  Ukraina laillistaa lääkekannabiksen
--  युवा नजरिया: अनुच्छेद 370 के उन्मूलन ने जम्मू-कश्मीर को दिया नया दृष्टिकोण, सरकार की एक साहसी पहल
--  Kanpur: 79 करोड़ से चमकेगा रूमा औद्योगिक क्षेत्र, बनेंगे 200 कौशल विकास केंद्र, जल्द लगेगा दूसरा प्लांट
--  В Госдуме призвали увеличить субсидию на погашение ипотеки для многодетных семей
--  ตีปี๊บ! แก้หนี้นอกระบบเริ่มเห็นผล ลงทะเบียนทะลุแสน ไกล่เกลี่ยสำเร็จ 224 ราย
--  Названы самые популярные у россиян услуги в 2023 году
--  Сексолог раскрыла самые распространенные ошибки в постели
--  Jopa kuusinumeroiset kasvuluvut: Tässä tämän vuoden kiinnostavimmat kasvuyritykset
--  Soha nem ölelhette meg a kislányát az éber kómában fekvő ralis
--  à¶ à·™à¶šà·Š à¶¢à¶±à¶»à¶¢à¶ºà·š à·€à·™à¶©à·’ à¶­à·�à¶¶à·“à¶¸à¶šà·Š: 15 à¶šà·Š à¶¸à¶»à·”à¶§
--  චෙක් ජනරජයේ වෙඩි තැබීමක්: 15 ක් මරුට
--  السفير التركي بالقاهرة: قوة العمالة الماهرة في مصر تجذب الشركات التركية
--  KKP Bantah Rencana Buka Kran Ekspor Benur Lobster
--  В Кольчугино ремонт библиотеки затянулся дольше положенного
--  Ighalo, Dosu fault Peserio over NPFL players snub
--  Inget skräp, inget krimskrams – här är tio upplevelsegåvor för musikvännen
--  Purra: Finland likely to trigger EU’s excessive deficit procedure in 2024
--  Orang Islam dilarang masuk kasino
--  中國太陽能傳停產潮，台廠憂未蒙利先受害
--  Аукцион на ремонт моста на Мерецкова в Петрозаводске объявлен
--  Family of Army veteran demands answers after he was struck 8 times in Lake County
--  iOS 17.2.1 güncellemesi ülkelere göre farklılık gösteriyor
--  صدراعظم هنگری با رئیس جمهور اوکراین دیدار میکند
--  David Alaba zum 10. Mal „Fußballer des Jahres“
--  Il panettone d'oro farcito di diamanti per un nababbo indiano e non per la Ferragni
--  Mestiksen tasaisessa keskikastissa kaikki portit ovat auki kotietuun tai jopa kesälomille
--  KFC becomes KFCheese with new pie and raclette “drowning” burger in Japan
--  Inga kaotiska scener vid mötet i Hycklinge
--  Rakas, kallis joulu
--  Vi behöver jobba för bättre villkor för vindkraften
--  (S): Regeringen sätter skolan på svältkur
--  دلالون لـ الشرق: المزادات الإلكترونية تصيب دلالة السيارات بالركود
--  Större satsning på idrott – viktigt för integrationen
--  Die fünf großen Baustellen der Bahn
--  Stanna bussen vid den räfflade plattan
--  Låt oss skapa ett samhälle som fungerar för alla
--  شبكة الجزيرة تطالب بالعدالة للشهيد سامر أبو دقة
--  디딤365-레드우드케이 합병… 클라우드 DX를 넘어 AI MSP로 도약
--  Inför 6-timmars arbetsdag – sänk stressen
--  DANAŠNJI KURS EVRA: Objavljena lista vrednosti stranih valuta
--  Postkartenerpresser gefasst +++ Das Jahresquiz 2023
+-  Çin'in yeni taykonot ekibi ilk uzay yürüyüşünü gerçekleştirdi
+-  Park halindeki otomobilin içinde ceset bulundu
+-  İsrail Gazze Şeridi'ne ölüm yağdırdı: Çok sayıda Filistinli hayatını kaybetti
+-  ต่อโปร! "อากาศหนาว" ยะเยือกรอบสุดท้าย 25 ธ.ค.นี้
+-  Rahul Gandhi Speaks To Nitish Kumar After Mallikarjun Kharge Projected As INDIA Bloc`s PM Face
+-  BYD, 헝가리에 전기차(EV) 공장 세우나…“현지 정부와 최종협상 중”
+-  Manželé se podělí o důchod. Jak má novinka vypadat a komu se vyplatí
+-  사천경찰서 삼천포지구대, 연말연시 야간 특별방범활동 전개
+-  Friday At Market: Market Back At Being Bullish, Suzlon, BHEL, NMDC Get Strong
+-  Microsoft's Windows 10 End-of-Support Sparks Environmental Concerns
