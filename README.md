@@ -1,51 +1,11 @@
 # Latest News
--  Wife identifies man killed in deputy-involved shooting in Franklin County
--  News24 | Here are the Powerball and Powerball Plus results
--  Hochwassergefahr: Wind und Regen auch in den kommenden Tagen
--  El centro de Melilla se llena de todo el arte flamenco con el flashmob de villancicos
--  ستاروں کی روشنی میں آپ کا آج (ہفتے) کا دن کیسا رہے گا؟
--  Украина хориждаги эркакларни сафарбар қилиш бўйича қонун лойиҳасини тайёрламоқда .
--  Dodik o samostalnosti RS: Jedne noći ćete to gledati uživo
--  БМТ Хавфсизлик Кенгаши Ғазода ўт очишни тўхтатиш учун шарт-шароит яратишга чақирувчи резолюцияни қабул қилди .
--  Kaushambi News: महिला बंदियों को दिया शाल, बच्चों को बांटी फल व किताबें
--  Kaushambi News: शिक्षा विभाग के करीब 4500 कर्मचारी कराएंगे बोर्ड परीक्षा
--  सांसों पर आफत : एक्यूआई पहुंचा 344, क्रिसमस तक राहत के आसार नहीं
--  Jhajjar-Bahadurgarh News: संजय सिंह के कुश्ती संघ अध्यक्ष बनने पर खुशी जताई
--  Jhajjar-Bahadurgarh News: तय समय पर काम नहीं किया तो वेतन से कटेंगे पांच हजार रुपये
--  Jhajjar-Bahadurgarh News: साड़ी का फंदा लगाकर महिला ने दी जान, पति सहित छह पर केस
--  2047 तक देश को दुनिया का धाकड़ देश बनाने के लिए आगे आएं युवा शक्ति : धनखड़
--  Jhajjar-Bahadurgarh News: नहीं रुक रही एचपीसीएल के टैंकरों से डीजल की चोरी
--  Jhajjar-Bahadurgarh News: पिस्तल के बल पर बैंक कर्मी से 78 हजार लूटे
--  Jhajjar-Bahadurgarh News: कलेक्टर रेट...चार तहसीलों में कोई आपत्ति नहीं, एक जनवरी से महंगी होगी जमीन
--  Jhajjar-Bahadurgarh News: गीता महोत्सव में बिखरी हरियाणवी कला की छटा
--  Rishikesh News: एबीवीपी ने एसडीएस विवि के कुलपति का पुतला फूंका
--  Rishikesh News: दो हाथियों की मौत के बाद वन विभाग ने बढ़ाई सतर्कता
--  Rishikesh News: जरूरतमंद 125 छात्र-छात्राओं को बांटे ऊनी वस्त्र
--  Rishikesh News: श्लोक वाचन, संभाषण, सुलेखन व चित्रकला में विद्यार्थियों ने दिखाया हुनर
--  Jind News: मासूम शर्मा के भाई के घर में घुसकर हवाई फायरिंग करने के आरोप में पांच आरोपी गिरफ्तार
--  Jind News: विकसित भारत संकल्प यात्रा के तहत लोगों को बांटे बीपीएल व आयुष्मान कार्ड
--  Dehradun News: उत्तराखंड के सौरभ सीपीसीबी में बने वैज्ञानिक, बढ़ाया मान
--  Dehradun News: नरेंद्रनगर बाजार में जाम की समस्या से व्यापारी परेशान
--  Dehradun News: तीन डिग्री पहुंचा चकराता का न्यूनतम तापमान
--  Dehradun News: नरेंद्रनगर में दो दिवसीय इंस्पायर अवार्ड प्रतियोगिता शुरू
--  Man allvarligt knivskuren på hotell
--  Dehradun News: घूम रहा पुलिस का रडार, तीनों चोर अब भी फरार
--  Dehradun News: रातभर घूमता रहा दमकल, नहीं मिला गांव
--  Dehradun News: तान्या ने जीता स्टूडेंट ऑफ द ईयर का खिताब
--  Mathura: पाक से आकर 63 वर्षों से वीजा पर रह रही वृद्धा का हुआ निधन, खुफिया विभाग की कार्यशैली पर प्रश्न चिन्ह
--  Dehradun News: किसानों ने बताई समस्या, मंडी समिति के अध्यक्ष ने कहा- जल्द होगा समाधान
--  Dehradun News: दून अस्पताल में सुरक्षा कर्मचारी, सफाई कर्मचारी और सिस्टर को नोटिस जारी
--  एकाग्रचित्त होकर सुननी चाहिए कथा : संजय जुगलान
--  Lakhimpur Kheri News: तकनीकी खराबी से 20 घंटे ठप रही मिल, परेशान हुए किसान
--  25 दिसंबर को सुशासन दिवस मनाया जाए : सिद्धार्थ अग्रवाल
--  Lakhimpur Kheri News: आरोपी ने थाने के हवालात में खाया जहरीला पदार्थ
--  عاجل.. توضيح من الزكاة والضريبة بخصوص برنامج "بناء التكاليف" والانضمام لسوق العمل
--  Dehradun News: सीएचसी को मिले सर्जन, पर नहीं हो रहे ऑपरेशन
--  Lakhimpur Kheri News: जंगली हाथियों ने रौंदी तीस बीघा गन्ने की फसल
--  Dehradun News: अवैध कटान की शिकायत पर अधिकारियों ने की पेड़ों की गिनती
--  Lakhimpur Kheri News: दुष्कर्म के बाद नाबालिग की हत्या करने वाले को मिली उम्रकैद
--  विंटरलाइन कार्निवाल : पार्किंग, यातायात, सुरक्षा का प्लान तैयार करें : डीएम
--  Dehradun News: नए साल में अपने छात्रावास भवन में शिफ्ट होंगी 100 बालिकाएं
--  Dehradun News: लोकगीत में सुधांशु और लोकनृत्य में आकांक्षा अव्वल
--  Dehradun News: संदिग्ध हालत में पंखे से लटका मिला युवती का शव
--  Shahjahanpur News: जनपद रत्न से नवाजी जाएंगी लॉन टेनिस खिलाड़ी माहिका
+-  كولر يهدي برونزية كأس العالم لجماهير الأهلي
+-  Mercato - ASSE : Il jubile après son transfert record à 15M€ !
+-  Nach "Bachelor in Paradise": Kaan hat Michelle betrogen!
+-  Žena chcela zabaviť deti a pustila im videá na svokrinom mobile: Pikantné odhalenie o mame jej priateľa
+-  EXKLUZÍVNE FOTO prírodného divadla! Neuveriteľné, čo sa dialo nad Bratislavou
+-  العاطفي: لدينا عدة خيارات تجاه العدو الصهيوني
+-  محمد هاني: تتويجنا بالبرونزية جاء عن جدارة
+-  ONZ: Guterres krytykuje Izrael za prowadzenie ofensywy utrudniającej dystrybucję pomocy humanitarnej dla Strefy Gazy
+-  Police Witness Bicyclist Shot to Death in San Diego
+-  MNE saúda aprovação de resolução da ONU para "ajuda humanitária" a Gaza
