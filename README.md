@@ -1,51 +1,11 @@
 # Latest News
--  Fernverkehr ab Hannover massiv Eingeschränkt: Strecken Richtung Süden gesperrt
--  Nach Amoklauf in Prag: Ein Land im Schock
--  Буџетот за 2024 година согласно новите фискални правила, обезбедува средства за раст и зголемни плати и пензии
--  Barcelona je opäť v problémoch, hrozí jej zákaz štartu v Lige majstrov
--  کالاش قبیلے کا سرمائی تہوار چیٹر مس یا چومس د وہفتے تک جاری رہنے کے بعد بمبوریت میں احتتام پذیر
--  Gatchalian tikom sa `cheating scandal’ ng dyowa
--  El negociazo que Mauricio Mejía, el suegro de Rigo en la novela, abrió en Medellín
--  Convenzione per la concessione di servizi di comunicazioni elettroniche a uso pubblico
--  Dulović: Čast boriti se za Crnu Goru
--  Tiny Georgetown collected the most Toys for Tots in Essex County, again. Here’s how they do it.
--  The top designer sale buys including Gucci & Jimmy Choo, according to fashion editors
--  Warwick Academy To Hold Football Events
--  Ten deser z PRL-u zbawiennie działa na jelita. Jest niskokaloryczny, tani i pyszny. Zrobisz go tylko z czterech składników
--  Jens Lehmann und der Kettensäge-Prozess: Urteil für Ex-Nationaltorhüter gefallen
--  2024: “Get Prepared For Tripple Hardship”, Primate Ayodele Tells Nigerians
--  Damir Murseljević lični doživljaј muzike prenosi na fotografiјu
--  Pregnant Suki Waterhouse shows off her dazzling '£260K engagement' ring as she poses in a quirky wet look gown after going braless in daring Harper's Bazaar shoot
--  Reconnaissance faciale: la police britannique pourra utiliser les photos des permis de conduire
--  Instagram: pourquoi le chiffrement des messages privés suscite des craintes
--  Midjourney: voici les images impressionnantes de la nouvelle version de l'IA générative
--  Cette promotion est le moment parfait pour vous procurer l'Apple Watch Ultra
--  E.Leclerc fait fort avec cette remise sur le Samsung Galaxy S22, faites vous plaisir sans attendre
--  Football: PHC Zebras Defeat North Village
--  Manchester United Ngotot Datangkan Amadou Onana di Bursa Transfer Januari, Everton Pasang Banderol Rp1 Triliun Lebih
--  Lazio, il ricordo della Supercoppa scatena Radu: il commento al post - FOTO
--  Zanetti su Bergomi: "È stato il primo che mi ha aperto le porte all’Inter, sa che gli voglio bene"
--  Cak Imin Bakal Berantas Ketidakadilan di Indonesia
--  Varhelji pozdravio imenovanja u Sudskom savjetu
--  Comissão aprova emendas à regulamentação do setor de controle de pragas urbanas
--  Líderes da bancada governista e da oposição fazem balanço do ano
--  Comissão aprova proposta que reabre prazo para repatriação de patrimônio no exterior
--  Balanço 2023: Atuação de Chico à frente do Legislativo Municipal
--  Sancionadas cinco leis que abrem crédito especial de mais de R$ 220 milhões
--  Polícia Civil fecha escritório de estelionato e prende suspeitos na Capital
--  Vídeo: Protesto contra Milei termina com presos e feridos na Argentina
--  Nicolás Maduro admite que aún hay «pranes» en las cárceles
--  RWE kauft Windkraftprojekte von Vattenfall für 1,1 Milliarden Euro
--  Saints still have a $40 million commitment to Derek Carr
--  Ρεκόρ όλων των εποχών στην επιβατική κίνηση στα αεροδρόμια: Τα στοιχεία της ΥΠΑ
--  Die Hard star De'voreaux White FINALLY settles the debate on whether action-packed Bruce Willis favorite is REALLY a Christmas movie - and why plans to bring back his character Argyle were abandoned
--  The Chase viewers delighted for Scots contestant as ‘smug’ chaser has meltdown in final chase
--  Jens Stoltenberg o porażce Rosji, czyli jak Putin strzelił sobie w kolano "Nie zdoła już osiągnąć swoich celów"
--  Teen hacker who leaked GTA 6 clips sectioned for life
--  Smiles and Networking: Union Square Dental Practice Throws a Tooth-errific Soirée
--  Little boy, seven, killed while playing football with his friends in hit-and-run just weeks before Christmas died of severe head injuries, inquest hears
--  Little boy, seven, killed while playing football with his friends in hit-and-run just weeks before Christmas died of severe head injuries, inquest hears
--  The Funniest Tweets From Parents This Week (Dec. 16-20)
--  Nigella Lawson Has Given Us The Perfect Early Christmas Gift In New Outtakes Reel
--  I'm A Gynaecologist – I Beg, Please Stop Doing This In Your Bath
--  Gavin & Stacey: 19 Behind-The-Scenes Secrets You Didn't Know About The 2008 Christmas Special
+-  NATO-ov NCI odabire IBM za rješenja otpornosti na kibernetičku sigurnost
+-  Москвада поезд остига йиқилиб тушган ўсмир ҳалок бўлгани ва ўзбекистонлик экани тасдиқланмади.
+-  Cuatro exclusivos viajes en tren que te invitan a soñar
+-  Se recibió la primera médica de la comunidad wichi de Formosa: “Volveré a mi pueblo para colaborar con la salud de mi gente”
+-  Costa considera fundamental que “não se arrepie a política” de valorização de rendimentos
+-  IND vs SA 1st Test: सेंचुरियन में खेला जाएगा टीम इंडिया और साउथ अफ्रीका के बीच पहला टेस्ट, जानें इस मैदान पर कैसा है भारत का रिकॉर्ड
+-  USA Today : La fin de la prise en charge de Windows 10 pourrait se transformer en véritable catastrophe écologique par John Plassard - 22/12
+-  La izquierda francesa se alza contra la «preferencia nacional» que avala la reforma migratoria de Macron
+-  Live veldrijden | Reacties na fraaie zege Van der Poel in duel met Van Aert
+-  देश की खबरें | मणिपुर के महत्व को स्वीकार करने के लिए मुख्यमंत्री ने प्रधानमंत्री का धन्यवाद किया
