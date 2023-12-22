@@ -1,11 +1,51 @@
 # Latest News
--  News24 | FRIDAY BRIEFING | Eskom: Going nowhere slowly
--  В Чехии объявили день траура по жертвам стрельбы в Праге
--  Un nuevo rugido del Caracas hace temblar los cimientos de la nave
--  전남의사회 "지역의사 양성 위한 법률 폐기하라"
--  부천세종병원, 서울신학대에 대학발전기금 1700만원 기탁
--  라식, 라섹, 스마일라식 등 시력교정술 차이와 선택
--  이화의료원, 의료기기 국제표준 선점 기반 조성 세미나 개최
--  건국대병원, 성탄 맞이 특별 정오의 음악회 개최
--  서울케어-북부병원, 건강돌봄네트워크 10주년 기념 심포지엄
--  플라즈맵, 드림텍-LC바이오 50억원 투자 유치… 협업관계 구축
+-  Naci Görür: 23 kent fay hattı üzerinde! “Ne belediye başkanının haberi var, ne valinin…”
+-  Oscars 2024: India`s entry 2018 out of the race
+-  [뉴스3끼]합천군의회: 이한신 합천군의원의 발언은 지극히 개인적인 주장임을 알려드립니다
+-  KMC provides Rs 3 million to Nepal Children&#039;s Organization
+-  British teenager Alex Batty, who was found after going missing six years ago, says he left France for a better future
+-  피자마루, 2023 프랜차이즈산업발전유공 '농림축산식품부장관' 표창
+-  La historia de “Happy Xmas (War is Over)” de John Lennon y su mensaje contra la guerra
+-  채선당, 2023 프랜차이즈산업발전유공 '식약처장' 표창수여
+-  육군참모총장, UAE·카타르 방문 군사외교활동
+-  태안군, ‘한우·낙농·양돈·양계·양봉’ 분야별 의견청취 정책 반영
+-  인천시, 2023년 지하철 건설공사 안전·품질 우수현장 선정
+-  서구, 크리스마스 트리 문화행사 '정서진 With 크리스마스' 개최
+-  비상하는 대전시체육회, 2023년 송년회 개최
+-  미래에셋증권, 0.5X 시장 대표지수 ETN 2종 첫 상장
+-  수도권 내 집 마련 '9.3년 치 소득' 한 푼도 안 써야
+-  상반기 부동산 플랫폼 접수 '허위 매물 신고' 2121건…작년 比 38%↓
+-  내년 국토부 총지출 계획 60.9조원…올해보다 5.2조↑
+-  논산딸기축제, 충청남도 선정 ‘1시군 1품 축제’ 1위 기염
+-  銅鑼灣舖空置率跌至2.6% 戴德梁行：返2019年水平
+-  九龍城警打擊亂過馬路及違泊 拖走9車
+-  '英 정론지가 인정했다!' 손흥민-김민재, 2023 남자 축구선수 랭킹 TOP 100 포함..SON 24위-KIM 37위
+-  [오피셜] 충남아산, ‘베테랑 수비수’ 이학민과 재계약 체결
+-  ‘한때 日 에이스’ 제대로 망했다... 19경기 1골 1도움→짐 싸서 나갈 준비
+-  한동훈 비대위 내주 출범…연말 국회도 '가시밭길'
+-  Angola leaves OPEC in blow to oil producer group
+-  Leones se llevaron la serie particular ante Navegantes tras otra victoria en Valencia
+-  Sri Lanka Original Narrative Summary: 22/12
+-  Collingwood appoint former ballet coordinator and North Melbourne defender Sam Wright as AFLW senior coach
+-  The South Today Bulletin: Thursday, December 21
+-  ABC Melbourne’s Offices Spray-Painted With ‘Tell The Truth About Palestine’ Message Overnight
+-  Cak Imin Bawa Isu Pangan, Mahfud Fokus Akses Kebutuhan Pokok, Gibran Tegak Lurus Visi Misi
+-  Sznyt, charyzma, horror. 10 podcastów, których słuchaliśmy w 2023 r.
+-  Williamson and Jamieson to miss Bangladesh T20Is on 'medical advice'
+-  슈퍼리그 초대 회장 "우리의 승리!"→이강인 영입한 회장 "UCL 트로피 앞에서 그러고 싶어?" 일침
+-  พยากรณ์อากาศ 10 วันล่วงหน้า ‘เหนือ-อีสาน’ หนาวถึงปีใหม่
+-  검찰, 민주당 부대변인 압수수색…김용 재판 위증 관여 의혹
+-  Овечкин сократил отставание от Гретцки в списке лучших снайперов НХЛ до 66 голов
+-  '마약 투약' 전두환 손자 징역 2년 6개월·집행유예 4년
+-  বহুনির্বাচনি প্রশ্ন (৩১-৪০) : বঙ্গবাণী | বাংলা ১ম পত্র - নবম শ্রেণি
+-  Nike cuts annual sales forecast, seeks $2 billion in cost savings amid ‘softer’ outlook; shares plunge
+-  西甲｜皇家馬德里鬧中堅荒 作客10人應戰1:0贏艾拉維斯登榜首
+-  러시아군 총참모장 "북한과 적극·포괄적 협력 구축"
+-  Petrol Diesel Price Today: ਦੇਸ਼ ਭਰ 'ਚ ਪੈਟਰੋਲ-ਡੀਜ਼ਲ ਦੀਆਂ ਨਵੀਆਂ ਕੀਮਤਾਂ ਜਾਰੀ, ਜਾਣੋ ਕਿੱਥੇ ਸਸਤਾ ਤੇ ਕਿੱਥੇ ਮਹਿੰਗਾ ਹੋਇਆ ਪੈਟਰੋਲ
+-  바쁜데 유·무산소 운동을 따로?…한 번에 끝내는 ‘전신운동’ 3
+-  ‘한동훈 비대위’는 권력 이동의 신호탄?…딜레마에 빠진 ‘용산’
+-  송년회 ‘강제 춤 연습’ 의혹에…노동부, 이랜드 특별감독 나섰다
+-  SM엔터, ‘오디션 예능’ 직접 만든다…쇼미‧스걸파 PD 영입
+-  “트럼프 꺾을 것” 지지율 돌풍 헤일리, 대선 판세 흔드나
+-  우크라 "러 미사일 7,400발 중 1,600발 격추"
+-  Los 6 tips imprescindibles para unas vacaciones en la playa
