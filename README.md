@@ -1,51 +1,11 @@
 # Latest News
--  No frustration for Ange as he seeks solutions at Spurs
--  Cayó con droga en Capellanía de Natá
--  Desalmado le metió seis puñaladas a una mujer para robarle el celular
--  Crnogorka prva pratilja na izboru Miss Tourism World China 2023
--  Energy drinks recalled in Canada over non-compliances related to caffeine and labeling
--  Alejandro Sanz y Mónica Cruz, mucho más que amigos
--  “Hold on brothers am coming” Victor Osimhen sends Mudryk and Nkunku message as Napoli brace for Chelsea transfer offer
--  The highest form of stupidity as a man is training an ungrateful lady in the university with your hard-earned money – LADY says
--  “Non si vedeva dai tempi del Vietnam”: La stampa Usa contro i bombardamenti israeliani sui civili
--  L'éruption terminée en Islande ? "Impossible" de l'affirmer, selon les experts
--  Funders beware! Pro-Hamas Legal Aid union spews antisemitism loud and proud
--  Το τηλεφώνημα Μπάιντεν-Ερντογάν «ξεκλειδώνει» την ένταξη της Σουηδίας στο ΝΑΤΟ και την εκκρεμότητα των τουρκικών F-16
--  Διαμονή στους -5 βαθμούς: Ένα ξενοδοχείο κατασκευασμένο από πάγο μόλις άνοιξε στην Ευρώπη
--  Actor VIN DIESEL’s ex assistant sues him for SEXUAL battery, claims he ‘forced himself on her’ after hotel party during Fast 5 production in 2010
--  De 90-jarige moeder van Leon uit Emmen moet verhuizen. Zorggroep Tangenborgh sluit de dementie-afdeling waar ze woont. 'Een rotboodschap vlak voor kerst'
--  Cerca de 46,7 milhões de crianças africanas vão ter necessidades humanitárias em 2024
--  Watch the moment a doctor punches 82-year-old patient in the face three times while performing surgery on her eyes because she kept moving (VIDEO)
--  Uttar Pradesh: सीएम योगी का शनिवार को बिजनौर दौरा, जनसभा को करेंगे संबोधित
--  Kuru fasulyenin suyuna bir kaşık ekleyince gazını alıyor, mideyi asla rahatsız etmiyor! Bu yöntemle bol bol yiyebilirsiniz
--  EastEnders Nish 'rumbled' as Xmas victim – all the hints from Suki 'clue' to cufflinks theory
--  Cameron says watered-down UN vote on Gaza signals ‘greater unity’ over response
--  Harald (68) feirer julaften alene: – Jeg må ta den helt ut
--  Akşener: 4 kişilik bir aile asgari ücretle geçinemez
--  ‘Oteti‘ dječak pronađen nakon 6 godina otkrio detalje bijega: ‘Počeo sam sumnjati, a onda uzeo baklju, 100 eura i nož‘
--  Meta kažnjena sa 5,85 miliona evra zbog promovisanja kockanja
--  Holanda i jep ‘dritën jeshile’ Bullgarisë për pranimin në zonën Shengen, në pikëpyetje qëndrimi i Austrisë
--  Zubčić i Rodeš izborili drugu vožnju slaloma u Madonni, Kolegu koštala jedna jedina stotinka sekunde
--  Governo estende aumentos salariais dos médicos a sindicalizados da Fnam e não sindicalizados
--  Buscaglia: Con Varese match molto importante
--  المغرب يسجل 109 إصابات ب"كورونا" خلال أسبوع
--  السنغال تؤكد التزامها بالمساهمة في إنجاح مشروع خط أنابيب الغاز الاستراتيجي بين نيجيريا والمغرب
--  المغرب وإندونيسيا يوقعان مذكرة تفاهم تؤسس لشراكة استراتيجية
--  "التوجه الديمقراطي" تدعو الأساتذة إلى تعليق الاحتجاجات والعودة إلى المدارس
--  Dy adoleshentë të plagosur me thikë në Shkodër
--  Prime Minister Justin Trudeau heading to Jamaica for post-Christmas vacation
--  Vətən müharibəsi iştirakçısı vəfat etdi
--  Man left in shock after finding out he wasn’t the biological child of a man he had always called father shortly after his mum died
--  VIDEO / Bili smo na napokon dočekanom kolinju u Slavoniji, pogledajte kako je izgledalo
--  Natalia Dyer & Charlie Heaton Spotted on Rare Outing in NYC: Photos
--  El jefe de la UCI Pediátrica de la Paz, cesado por la Consejería de Sanidad
--  O život prišla riaditeľka aj učiteľ. Nešťastných osobných príbehov v súvislosti s krvavým útokom pribúda
--  Kickoff | Masilela: Sundowns are going to break their own record
--  Lo vinculan a proceso por abusar sexualmente de dos menores
--  Rubén de la Barrera antevê estreia pelo Vizela: «Espero uma atitude dos jogadores forte»
--  Karhu Basket kipusi joulutauolle kärjen tuntumaan
--  The 6 best teeth whitening kits in 2023, according to dentists
--  Cuba autoriza abrir el camino a la eutanasia, sería el segundo país de América Latina
--  Ortega Smith agrede a un concejal de Más Madrid tirándole una lata de refresco a la cara
--  Eishockey: Haie gehen als Tabellenfünfte in zwei wichtige Spiele gegen Augsburg und Frankfurt
--  Sırrı Süreyya Önder hastaneye kaldırıldı
+-  Advokat Tomanović: U Srbiji žene štajkuju glađu i bore se za primenu Ustava i zakona
+-  بعد تصدر مسلسل "زينهم" التريند.. ما السر وراء الخوف من الوقوع في حب جديد؟
+-  İsrail: Hizbullah'ın saldırısında bir askerimiz öldü
+-  Kızıldeniz'deki saldırılar devam ederken rotalarını değiştiren gemilerin sayısı artıyor
+-  Angelina Jolie'den BM'ye "Gazze" isyanı: Adalet herkes için aynı işlemiyor
+-  İsrail'in göçe zorladığı Filistinliler Deyr el-Belah'taki olmayan "sığınağın" yolunu tuttu
+-  Woman sexually assaulted in Toronto after getting into wrong rideshare car
+-  Québecor asks CRTC to intervene on Bell’s alleged network access delay
+-  Barril cotiza estable, tensiones en mar Rojo compensan posible futura mayor producción de Angola
+-  Exsoldado colombiano se declara culpable por el asesinato del presidente de Haití
