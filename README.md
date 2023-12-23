@@ -1,51 +1,51 @@
 # Latest News
--  Nikki Haley tries to expand coalition to beat Trump
--  '다 부서버릴거야!'…물박스 던지고→선수 멱살 잡아 흔들고→벤치 의자 부서버릴 듯 '실성'한 라리가 감독
--  'Aumento de licencia de paternidad, nueva carga para empresas'
--  AKTUÁLNE Cestári ostali opäť prekvapení: Neprejazdné úseky a popadané stromy spôsobujú kolóny! Horské priechody uzavreli
--  Promi mamička robila s deťmi medovníkový domček: HOTOVÁ KATASTROFA!
--  Hrozilo ďalšie nešťastie? V dome strelca z Karlovej univerzity našli policajti výbušné zariadenie! V dome bol pustený plyn
--  عاجل.. أغرق ابنتيه في حوض غسالة.. الداخلية تنفذ حكم الشرع في مواطن بالرياض
--  57 وظيفة شاغرة لدى شركة رعاية الطبية بعدة تخصصات
--  Delving into the Complexities of Artificial Intelligence: Recommended Books to Expand Your Understanding
--  Biden Urged Not to Attack Yemen Over Houthi Blockade of Israel in Red Sea
--  I Liga: Siga em direto os resultados e marcadores da 15.ª jornada
--  Top & Flop di Frosinone-Juventus
--  Nova služba u Hrvatskoj će otkrivati one koji prikrivaju stvarnu imovinu
--  Liberaron a comerciante antioqueño que estuvo secuestrado
--  Chris Wilder makes 'greedy' Aston Villa admission after Sheffield United draw
--  'Dunki' premiere: Fanfare and mixed reviews set stage for Shah Rukh Khan's final release of the year
--  ഒമാന്‍ കടലില്‍ ചരക്ക് കപ്പല്‍ കത്തിനശിച്ചു; 11 ഇന്ത്യക്കാരെ രക്ഷപ്പെടുത്തി
--  Yuletide: Rep Gagdi doles out N100 million, 3,600 bags of rice, 30 cows to constituents
--  هل انتهى الدعم الأميركي لأوكرانيا؟
--  Γνωρίζετε ποιο είναι το πραγματικό κέντρο της πρωτεύουσας;
--  Gaziantep, Karagümrük karşısında 3 puana 3 golle ulaştı
--  Geschichten aus dem Zauberwald: Grundschüler zeigen in der Kunsthalle Lindenthal ihre Malereien
--  Stuart Kettlewell: Motherwell ‘have to be at our absolute best’ against Rangers
--  Песков рассказал, каких политиков Путин не поздравит с Новым годом
--  Η Τσέλσι «χρειάζεται» 180 εκ. ευρώ για Ντιομάντ και Γιοκέρες
--  Fenyőárust akartak megkéselni, amikor a soroksári polgármesterjelölt közbelépett
--  Tierheim in NRW vermittelt Hund – Jahre später bekommen die Mitarbeiter plötzlich Post
--  Formel 1: Hammer-Rücktritt bei Mercedes? Wolff spricht Klartext
--  Ukrainian watchmaker fixes Newfoundland clock tower that hasn't told time in decades
--  Ukrainian watchmaker fixes Newfoundland clock tower that hasn't told time in decades
--  Friedrich Merz: Weihnachtsbaum-Aussage geht nach hinten los
--  অস্ট্রেলিয়ায় একুশে একাডেমির বিজয় দিবস উদযাপন
--  신동엽, 젠틀한 에스코트
--  조이현, 러블리한 츄~
--  조이현, 빈틈없는 예쁨
--  Rebecca Welch makes history as the Premier League's FIRST female referee as the 40-year-old officiates Fulham's clash against Burnley at Craven Cottage
--  Callao: extraen más de 100 llantas y otros residuos del mar chalaco
--  'Made Alia -Shaheen travel economy to Dubai, had only a Zen car': Soni Razdan trolled for her statements on 'middle-class upbringing'
--  Poljski vozači kamiona deblokirali jedan granični prijelaz između Poljske i Ukrajine
--  I dropped out of school at 16 because I HATED lessons but now I'm making £4million and celebrities love my business - here's my secret to success
--  副總統政見發表會，誰穿錯衣服？形象專家點評：他已經脫離專業範疇了！
--  Spas su za bubrege i jetru, snižavaju šećer, ali i tlak te se bore protiv upala. Bez ovih pet začina Božić nije potpun
--  Gérard Depardieu, el final de la impunidad para el 'Monstruo' del cine francés
--  Штипјанец силувал 27-годишна жена
--  Israel ignora resolução da ONU e ataca campo de refugiados em Gaza
--  Suspeitos de aplicar golpes em sites de compra e venda são presos em Várzea Grande
--  Premier League: Live score, team news and updates from the afternoon's kick-offs as Nuno Espirito Santo takes charge of Nottingham Forest for the first time and Rebecca Welch prepares to make history
--  Santana por posible candidatura presidencial de Bachelet: “Es muestra de la ansiedad política, que no es una buena consejera”
--  I ‘won’ £2million lottery but was refused my prize- I’ve spent nearly 25 years fighting for it & still want my jackpot
--  I ‘won’ £2million lottery but was refused my prize- I’ve spent nearly 25 years fighting for it & still want my jackpot
+-  Investigasi Washington Post Ungkap Israel Bohong soal Rumah Sakit Al Shifa Jadi Markas Hamas
+-  I sidste uge blev 35 jøders demonstration aflyst på opfordring af PET. I dag blev den afholdt: »Vi kan ikke leve i frygt«
+-  I sidste uge blev 35 jøders demonstration aflyst på opfordring af PET. I dag blev den afholdt: »Vi kan ikke leve i frygt«
+-  Novi poraz Junajteda
+-  Campbell Library Friends host book sale
+-  A Very Laufey Hoilday Drink Campuran Rasa Asam Manis Menyegarkan
+-  Cambia AMLO oootra vez dependencia para compra de medicinas
+-  Mann bei Unfall in Niedernberg leicht verletzt
+-  Hakim ve savcı yardımcılığı dönemi başlıyor!
+-  Тен Хаг прокомментировал поражение «Манчестер Юнайтед» от «Вест Хэма»
+-  Φωτορεπορτάζ: Αποέλ – ΟΜΟΝΟΙΑ
+-  Corrupción en la Policía: “Seguiremos amputando brazos para salvar el cuerpo”
+-  Girish Mahajan : जरांगेंना मुंबईत येण्याची वेळच येणार नाही, मराठा समाजाला आरक्षण मिळणारच-गिरीश महाजन
+-  Ataman: vittoria importante, nel secondo tempo la miglior difesa della stagione
+-  Safeguarding roads this festive heightened activity
+-  Coupe du Monde de cyclocross: Mathieu van der Poel intraitable à Anvers malgré un départ manqué (VIDEO)
+-  OSCG: Uručena priznanja najboljima u 2023. godini
+-  Jakob Norén missar JVM för Sverige
+-  Berisha: Duan të më burgosin, por s’kanë asnjë provë!
+-  Preocupación por el estado de salud de Sofía Suescun: "Los dolores me han tenido en vela"
+-  المستشفيات الميدانية الأردنية في فلسطين .. رسالة إنسانية تاريخية
+-  Theo Lindstein ersätter Jakob Norén i JVM
+-  Marco Buschmann: Justizminister will Polizei mit Elektroschockern ausrüsten – Kritik von Polizeigewerkschaft
+-  Скъпи ли са любимите свински пържоли по Коледа
+-  Directivo de club de motocicletas murió tras un supuesto intento de asalto en la calzada Roosevelt
+-  Marcus Rashford has 'more hair styles than goals' after Man Utd debuts new barnet
+-  Khách Ẩn Nguyệt - bà vú nuôi quyền lực Trung Hoa, có gì đặc biệt?
+-  Západ by nemal verejne preceňovať neúspechy Ruska na Ukrajine, tvrdí Inštitút pre štúdium vojny
+-  [농협은행 울산본부, 울산시에 이웃돕기 성금 1억원 전달
+-  ['천아용인' 김용태 "전 탈당 안 한다…이준석과 이별 선언은 아냐"
+-  [“사진 속 두 트리 비슷한가요?” ‘아이디어 베끼기’ 두고 시끌
+-  [롯데월드 어드벤처 부산, 크리스마스 기념 ‘찾아가는 테마파크’ 진행
+-  [이강덕 포항시장 "포항제철소 화재에 전 행정력 동원해 최대 지원하라"
+-  [‘성탄절 이브’ 서울엔 새벽 1∼3㎝ 눈 예보
+-  [美 이스라엘 설득 목표, 대선 앞둔 바이든 '시험대'
+-  [“행운을 빕니다” 한동훈, 장관 마지막 날 학생에게 책 선물
+-  [포항제철소 화재 진화완료…정전 복구 중
+-  [“이달 월급도 몽땅 코인 샀다” 12억원어치 코인 ‘몰빵’한 이 남자
+-  [美 안보 우산 아래로…북유럽 방위협정 '속속'
+-  [중국 간쑤성 강진 발생지역 학교, 25일부터 순차적 수업재개
+-  [강추위에 동파 속출…수도계량기 열풍기로 녹이다 불
+-  [민주 “비대위원장 한동훈, 김건희 특검법 수용하라”
+-  Kaizer Chiefs win third game on the bounce under Johnson
+-  [생방 중 화장 지운 여성 진행자…“난 26세 아닌 46세, 부끄러울 일 아냐”
+-  [[르포] “눈물의 손절매인데 아무도 안산다” 2030 오피스텔 투자자의 비명 [부동산360]
+-  [“정말 행복했어요” ‘오뚜기 3세’ 함연지, 돌연 유튜버 활동 중단 선언…대체 왜?
+-  [박지원 “민주당마저 실망의 연속…옛날 이낙연으로 돌아오라”
+-  [정용진의 ‘함박웃음’…아내 한지희 독주회 참석, 장남과 ‘특급외조’
+-  [러시아-우크라이나, 양국 포로 위해 편지·소포 첫 교환
+-  [“삼성도 빨리 만들어라”…‘5만원’ 애플 제품에 폭발한 사람들
