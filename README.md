@@ -1,11 +1,11 @@
 # Latest News
--  Travis Barker, Kourtney Kardashian drop first picture of son Rocky
--  Mobile Internet suspended inJ-K`s Poonch, Rajouri amid massive anti-terrorist op
--  Delhi`s AQI recorded under `severe` category on Saturday morning
--  Merkez Bankası atamasında kritik detay
--  Uzmanından rota ishallerine karşı uyarı !
--  Barcelona lisäsi Valioliigassa pelaavan jässikän ostoslistalleen
--  임영웅, 뉴진스 제치고 12월 가수 브랜드평판 1위 등극
--  Ötən sutka 26 yanğına çıxış olub - 15 nəfər xilas edildi
--  İstanbul'da 26 Milyon TL'lik Özelleştirme
--  Türkiye ile BAE'den kültürel işbirliği
+-  Jhalak Dikhhla Jaa 11: Is Bigg Boss OTT 2 fame Manisha Rani the new wildcard entry?
+-  Twitter violated contract by failing to pay millions in bonuses, US judge rules
+-  Urpilainen avaisi presidenttinä suomalaisyrityksille ovia nousevissa talouksissa: "Viennin edistäminen on osa ulkopolitiikkaa"
+-  Urpilainen avaisi presidenttinä suomalaisyrityksille ovia nousevissa talouksissa: "Viennin edistäminen on osa ulkopolitiikkaa"
+-  Внимавајте, магла на неколку патни правци
+-  Scientists Invent A New Test That Unveils Unseen Facets Of Creative Mind
+-  體育署》台灣運動產業博覽會今開展 谷筱霜、丁華恬美力論壇打頭陣
+-  खरगे को PM उम्मीदवार बनाने के प्रस्ताव पर भड़के JDU विधायक, कहा- उन्हें कोई नहीं जानता
+-  UŽIVO Izrael nastavio da bombarduje Pojas Gaze
+-  Polnjena jajca: krasna božična predjed
