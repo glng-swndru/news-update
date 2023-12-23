@@ -1,11 +1,51 @@
 # Latest News
--  في الرياض ومكة وجازان.. ضربات موجعة ضد مروجي ومهربي المخدرات
--  Mandi News: अयोध्या से आया अक्षत कलश पंडोह पहुंचा, लोगों ने किया भव्य स्वागत
--  Bahraich News: लापता युवक गांव के बाहर मृत मिला
--  Pilibhit News: बस सीज होने से भटके यात्री, परिचालक ने रुपये भी नहीं किए वापस
--  Ги осети ли некој парите? СДСМ тврди дека им вратиле 2,6 милијарди евра на граѓаните и компаниите
--  Nainital News: गुटबाजी से आहत किसान कांग्रेस के प्रदेश उपाध्यक्ष ने साथियों संग पद व सदस्यता से दिया इस्तीफा
--  Rishikesh News: छात्र संघ ने उच्च शिक्षा मंत्री को सौंपा ज्ञापन
--  Budaun News: पंचकोसी परिक्रमा शुरू... बरेली-मथुरा हाईवे पर रूट डायवर्ट, उझानी से गुन्नौर होकर निकलेंगे भारी वाहन
--  Dehradun News: मदरसे में नंगे फर्श पर बैठकर शिक्षा ग्रहण करते मिले छात्र
--  Dehradun News: बाइक और यूटिलिटी की टक्कर, गार्ड की मौत
+-  Czy o białym Bożym Narodzeniu możemy zapomnieć? Pogoda na święta
+-  Predvianočná tragédia v Poľsku: Vodič narazil do chodcov a zabil troch ľudí vrátane 7-ročného dieťaťa
+-  Bayern München sai todella karuja uutisia - edes megaluokan tarjous ei riitä
+-  Ankara’da “park yeri” kavgası kamerada
+-  Wie man sich bettet ...: So liegt man lange gut: Tipps für den Bettenkauf
+-  Accidente de tránsito en Matanzas ocasiona cuatro fallecidos y varios lesionados
+-  Milyonda bir! Çift rahimli kadın iki günde iki bebek doğurdu
+-  تشارلي شين يتعرض لاعتداء نسائي في منزله بماليبو
+-  أفضل 10 أغذية تلائم مريض السكري
+-  ఎస్‌ఐగాఎంపికైన రైతు బిడ్డ
+-  انتصارٌ قضائي .. ألمانيا ستهتف (فلسطين حرة من النهر إلى البحر)
+-  Knockout-Triumph in Riad: Kabayel schickt Machmudow auf den Boden
+-  సుందర శ్రీకర మహా యాగానికి శ్రీకారం
+-  Τι ομαδάρα παρουσίασες σήμερα ρε Γκαγιέγο με 8+1 απουσίες;
+-  సాంకేతిక ఆకలింపుతో సరైన బోధన
+-  సమష్టిగా పనిచేసి ఉమ్మడి అభ్యర్థులను గెలిపిస్తాం
+-  Boksa nije bilo! Ovo je samo ismijavanje Hrgovića, vrijeme je da ljudi konačno krenu raditi svoj posao
+-  భక్తిశ్రద్ధలతో ముక్కోటి ఏకాదశి
+-  Disidentka hotela kandidirati, ruska volilna komisija je zavrnila njeno kandidaturo
+-  బస్సులో బంగారు ఆభరణం లభ్యం
+-  Real-life tragedies of Paddington cast - cancer battle, family feud and bitter divorce
+-  Hallmark Filmed 2 Christmas Movies at Elvis’s Home of Graceland — Here’s Where to Watch Them
+-  'Aquaman and the Lost Kingdom' off to a slow start at holiday box office
+-  Millions of single mums forced to cut back on Christmas as cost of living bites
+-  Ribadesella inaugura un recinto de atracciones y juegos para esta Navidad
+-  టీడీపీతోనే బీసీల అభ్యున్నతి : గుండుమల
+-  Turkey says 12 soldiers killed in clashes with Kurdish militants
+-  רומן: "אני רוצה ויכול לאמן", אלחמיד: "לא בורח מהמינוסים שלי"
+-  సైన్స్‌ ప్రయోగాలతో విద్యార్థుల్లో చైతన్యం
+-  Британские ВМС заявили об инциденте у берегов Йемена
+-  U omiljenoj baletnoj predstavi Orašar ove su subote ispred zagrebačkog HNK besplatno uživali čak i slučajni prolaznici
+-  Kredi kartı sahiplerinden toplu kesinti yapılacak! Tarih belli oldu, herkes tıpış tıpış ödeyecek
+-  Tır şoförünü rehin aldı, o anları canlı paylaştı!
+-  Kirepült a pályáról a Liverpool sztárja, a saját edzőjét is letarolta - videó
+-  Kastamonu'da yoğun kar yağışı: Onlarca araç yolda kaldı
+-  ఇల.. వైకుంఠపురంలో...
+-  سقوط «مُروع» لـ كلوب في قمة ليفربول وأرسنال
+-  El día que México le ganó 3-1 ¡al Real Madrid de Hugo Sánchez! (VIDEO)
+-  దేశానికి రైతే వెన్నెముక
+-  L'influenceuse italienne Chiara Ferragni présente ses excuses, après une fausse campagne caritative
+-  Ferragnez ancora nei guai, interviene il Gip: imputazione coatta per Fedez
+-  Königin Camilla vermisst ihren alten Freund Paul O'Grady (†)
+-  Cel mai scump Crăciun din ultimii 25 de ani. Dar oamenii se re-orientează și vânează ofertele pentru a împăca masa „tradițională” cu bugetul limitat
+-  تدشين مهرجان العسل برجال المع
+-  Черноморский флот провел учения по отражению атаки вражеских беспилотников
+-  My mom bought a $70 lace dress from a Facebook ad – it was such a fail, what came looked nothing like the picture
+-  12/23: CBS Saturday Morning
+-  Abdullah Avcı Trabzonspor’un En Büyük Sorununu Açıkladı! 'Çok Canımızı Sıkıyor'
+-  లోక్‌ అదాలత్‌లో కేసుల పరిష్కారానికి కృషి చేయాలి
+-  Celebrity Big Brother star in talks to join Real Housewives of Beverly Hills
