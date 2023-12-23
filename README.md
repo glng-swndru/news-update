@@ -1,11 +1,51 @@
 # Latest News
--  Fourth teen suspect arrested in fatal Aurora shooting, scooter theft in Del Mar Park
--  'Twas three nights before Christmas at CVG: Families unite after holiday travel
--  Salaar box office collection Day 2: After ₹95 crore on Day 1, Prabhas' movie bags ₹20 crore in advance booking
--  Gestur Gibran Memancing Pendukung Bersorak, KPU Siapkan Teguran
--  Виктор Линдельоф претърпя операция
--  Λίβερπουλ – Άρσεναλ: Το κανάλι μετάδοσης της αναμέτρησης
--  Industrie sieht kaum noch Chancen für früheren Kohleausstieg
--  オスカー・ピアストリ マクラーレンでのF1デビューイヤーは「自信になった」
--  Mercato : Luis Enrique a réclamé un pactole avant le PSG
--  Jadwal Siaran Langsung Premier League di Vidio Hari Ini, Sabtu 23 Desember 2023
+-  TBMM'de 2024 bütçe görüşmeleri sürüyor: İlk 4 madde kabul edildi
+-  اللياقة البدنية.. المفتاح للاستشفاء السريع
+-  Χιλιάδες διαδηλωτές στην Υεμένη κατά του συνασπισμού υπό τις ΗΠΑ στην Ερυθρά Θάλασσα
+-  Der Gott der kleinen Dinge: Woher die Krippe stammt
+-  Der Gott der kleinen Dinge: Woher die Krippe stammt
+-  NCIS e lo "scontro tra civiltà": l'inquietante profezia nella celebre serie
+-  Madras High Court denies Mansoor from filing defamation case against Trisha
+-  Shark sighting at Auckland’s Long Beach, swimmers asked to exit water
+-  “북한, 韓드라마 봤다고 총살…해외 파견 후 귀국자 사상 조사”
+-  Just nu: Nedfallna träd påverkar trafiken
+-  한강서 즐기는 겨울 축제…한강공원 눈썰매장 개장
+-  Metro prep basketball roundup for Friday, Dec. 22
+-  Bu, Baking Dish di Transmart Full Day Sale Banting Harga! Buruan Beli
+-  Indian engineer Krishna Dev Radhakrishnan, who spent 6 years behind bars over accusations of ‘blasphemy’, finally released from Saudi jail
+-  Mosman community divided over the proposal for 24-hour restaurant
+-  Tafel-Chef: Wegen Andrangs gibt es Wartelisten
+-  年終出國潮 從檳機場離境 黃漢偉提醒提早3小時抵達
+-  Sources: QB Murphy transfers from Texas to Duke
+-  Orioles 3B Minor, who replaced Ripken, dies at 49
+-  スザンヌ 頭のよさ「変わんない」
+-  Video: Golpean borrachos a mujer policía...y ¡los tunden en redes!
+-  تحذير صارخ بشأن "بكتيريا خارقة" تؤثر على المثليين!
+-  ‘Ishq Jaisa Kuch’ laden with groove & punch with scorching chemistry between Hrithik and Deepika
+-  Nuno faz hoje a estreia pelo Nottingham Forest
+-  [영상구성] 방방곡곡
+-  Andi Arief soal Debat Cawapres: Ada yang Sigap, Ada yang Bertanya Belepotan
+-  [생생갤러리] 새하얀 설원 속 노루 한 마리 外
+-  หัวหน้าสำนักงานกีฬา มกช.นำทีมไปส่งทีมผู้บริหารจาก ว. กวางสี เดินทางกลับจีน
+-  سلامتی کونسل نے غزہ تک امدادی سامان کی ترسیل سے متعلق قرارداد منظور کرلی
+-  Lkw hinterlassen Spuren im Kurpark Unna: „Wir haben einen Fehler gemacht“
+-  Nigeria renueva su compromiso con la OPEP tras salida de Angola
+-  Navidad: Cuatro consejos para prevenir accidentes eléctricos en empresas
+-  指兩岸不談、不商量「激氣」 侯友宜：激久就會有代誌
+-  تطورات لافتة في حرب غزة
+-  Bangladesh seamers rout New Zealand for 98 in consolation win
+-  Kolaborasi Danamon Syariah Sediakan Layanan ATM Bank Sleman
+-  Timnas Amin Tanggapi Sindiran Gibran Rakabuming Soal Muhaimin Iskandar Ikut Potong Tumpeng IKN
+-  UHG vende Amil para José Seripieri Júnior, fundador da Qualicorp
+-  ചിക്കനും മുട്ടയ്ക്കും ഓഫറില്ല; വില കുറയുന്നുമില്ല
+-  Malatya'ya şehit ateşi düştü
+-  В «Роскосмосе» подтвердили задержание замгендиректора
+-  জরিমানা করায় থানার সামনে প্রতিমন্ত্রীর কর্মীদের বিক্ষোভ
+-  LMI vous souhaite de joyeuses fêtes de Noël
+-  광주서 백남준 특별전…작가가 꿈꾸던 예술 그리고 삶
+-  แวดวงคนกีฬา วันที่ 23 ธันวาคม 2566
+-  جاپان نے امریکہ کو پیٹریاٹ ایئر ڈیفنس سسٹم کا جدید ورژن فراہم کرنے کا فیصلہ کرلیا
+-  РИА Новости: бездействие ОБСЕ разоблачило фарс постановки в Буче
+-  COVID-19 Live Updates: India Logs 640 New COVID Cases, One Death in 24 Hours; Active Cases at 2,997
+-  India v Australia: women’s one-off Test, day three – live
+-  '12년 4234억' 야마모토, 계약 세부내용 공개… 옵트아웃 2번 가능-디퍼 없다
