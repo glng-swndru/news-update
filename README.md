@@ -1,11 +1,51 @@
 # Latest News
--  Solskjaer'den Beşiktaş'ın teklifine cevap geldi! ''Bana bir proje mi sunulacak, yoksa kısa vadeli çözüm mü aranıyor?''
--  Zaniolo, İngiltere'de görülmemiş bir güneş gibi parlıyor! Takımına puanı getirdi, taraftarlar övgüyle bahsetti...
--  Barcelona, Şampiyonlar Ligi'nden en az 1 yıl men edilebilir!
--  Bu 24 ilin başına talih kuşu kondu! TOKİ'den ev alamayan üzülmesin, bu illerde yüzde 25 peşinatla arsa satışları başlıyor
--  Coughing? When you may want to skip over-the-counter medication, according to experts
--  OFICIR 5. UKRAJINSKE BRIGADE: Za Ukrajinu, 2024. će biti najteža, a neki se kriju iza suknji
--  القسام ترجح مقتل اسرى (لا تتركونا نشيخ) - فيديو
--  "المشروب الذهبي".. طبيب يكشف عن طريقة سحرية تحمي من أمراض القلب وتقوية المناعة
--  8 علامات تكشف الإصابة بارتفاع ضغط الدماغ
--  Od jutra świąteczno-noworoczny rozkład jazdy. Sprawdź, które linie nie będą kursowały
+-  Nikki Haley tries to expand coalition to beat Trump
+-  '다 부서버릴거야!'…물박스 던지고→선수 멱살 잡아 흔들고→벤치 의자 부서버릴 듯 '실성'한 라리가 감독
+-  'Aumento de licencia de paternidad, nueva carga para empresas'
+-  AKTUÁLNE Cestári ostali opäť prekvapení: Neprejazdné úseky a popadané stromy spôsobujú kolóny! Horské priechody uzavreli
+-  Promi mamička robila s deťmi medovníkový domček: HOTOVÁ KATASTROFA!
+-  Hrozilo ďalšie nešťastie? V dome strelca z Karlovej univerzity našli policajti výbušné zariadenie! V dome bol pustený plyn
+-  عاجل.. أغرق ابنتيه في حوض غسالة.. الداخلية تنفذ حكم الشرع في مواطن بالرياض
+-  57 وظيفة شاغرة لدى شركة رعاية الطبية بعدة تخصصات
+-  Delving into the Complexities of Artificial Intelligence: Recommended Books to Expand Your Understanding
+-  Biden Urged Not to Attack Yemen Over Houthi Blockade of Israel in Red Sea
+-  I Liga: Siga em direto os resultados e marcadores da 15.ª jornada
+-  Top & Flop di Frosinone-Juventus
+-  Nova služba u Hrvatskoj će otkrivati one koji prikrivaju stvarnu imovinu
+-  Liberaron a comerciante antioqueño que estuvo secuestrado
+-  Chris Wilder makes 'greedy' Aston Villa admission after Sheffield United draw
+-  'Dunki' premiere: Fanfare and mixed reviews set stage for Shah Rukh Khan's final release of the year
+-  ഒമാന്‍ കടലില്‍ ചരക്ക് കപ്പല്‍ കത്തിനശിച്ചു; 11 ഇന്ത്യക്കാരെ രക്ഷപ്പെടുത്തി
+-  Yuletide: Rep Gagdi doles out N100 million, 3,600 bags of rice, 30 cows to constituents
+-  هل انتهى الدعم الأميركي لأوكرانيا؟
+-  Γνωρίζετε ποιο είναι το πραγματικό κέντρο της πρωτεύουσας;
+-  Gaziantep, Karagümrük karşısında 3 puana 3 golle ulaştı
+-  Geschichten aus dem Zauberwald: Grundschüler zeigen in der Kunsthalle Lindenthal ihre Malereien
+-  Stuart Kettlewell: Motherwell ‘have to be at our absolute best’ against Rangers
+-  Песков рассказал, каких политиков Путин не поздравит с Новым годом
+-  Η Τσέλσι «χρειάζεται» 180 εκ. ευρώ για Ντιομάντ και Γιοκέρες
+-  Fenyőárust akartak megkéselni, amikor a soroksári polgármesterjelölt közbelépett
+-  Tierheim in NRW vermittelt Hund – Jahre später bekommen die Mitarbeiter plötzlich Post
+-  Formel 1: Hammer-Rücktritt bei Mercedes? Wolff spricht Klartext
+-  Ukrainian watchmaker fixes Newfoundland clock tower that hasn't told time in decades
+-  Ukrainian watchmaker fixes Newfoundland clock tower that hasn't told time in decades
+-  Friedrich Merz: Weihnachtsbaum-Aussage geht nach hinten los
+-  অস্ট্রেলিয়ায় একুশে একাডেমির বিজয় দিবস উদযাপন
+-  신동엽, 젠틀한 에스코트
+-  조이현, 러블리한 츄~
+-  조이현, 빈틈없는 예쁨
+-  Rebecca Welch makes history as the Premier League's FIRST female referee as the 40-year-old officiates Fulham's clash against Burnley at Craven Cottage
+-  Callao: extraen más de 100 llantas y otros residuos del mar chalaco
+-  'Made Alia -Shaheen travel economy to Dubai, had only a Zen car': Soni Razdan trolled for her statements on 'middle-class upbringing'
+-  Poljski vozači kamiona deblokirali jedan granični prijelaz između Poljske i Ukrajine
+-  I dropped out of school at 16 because I HATED lessons but now I'm making £4million and celebrities love my business - here's my secret to success
+-  副總統政見發表會，誰穿錯衣服？形象專家點評：他已經脫離專業範疇了！
+-  Spas su za bubrege i jetru, snižavaju šećer, ali i tlak te se bore protiv upala. Bez ovih pet začina Božić nije potpun
+-  Gérard Depardieu, el final de la impunidad para el 'Monstruo' del cine francés
+-  Штипјанец силувал 27-годишна жена
+-  Israel ignora resolução da ONU e ataca campo de refugiados em Gaza
+-  Suspeitos de aplicar golpes em sites de compra e venda são presos em Várzea Grande
+-  Premier League: Live score, team news and updates from the afternoon's kick-offs as Nuno Espirito Santo takes charge of Nottingham Forest for the first time and Rebecca Welch prepares to make history
+-  Santana por posible candidatura presidencial de Bachelet: “Es muestra de la ansiedad política, que no es una buena consejera”
+-  I ‘won’ £2million lottery but was refused my prize- I’ve spent nearly 25 years fighting for it & still want my jackpot
+-  I ‘won’ £2million lottery but was refused my prize- I’ve spent nearly 25 years fighting for it & still want my jackpot
