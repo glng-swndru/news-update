@@ -1,51 +1,11 @@
 # Latest News
--  Batı Şeria'da İsrail terörü! 20 Filistinliye haksız gözaltı
--  Marmaris'te korkutan yangın
--  San Francisco'da Filistin'e destek gösterisi düzenlendi
--  Actor Charlie Sheen attacked in his Malibu home, suspect arrested
--  FT: غزة تمثل تحديا شخصيا لبايدن وبسببها قد يخسر رأسماله السياسي
--  الإعلام العبري : الجيش يستعد للمرحلة الثالثة من الحرب على غزة
--  Cheirar lágrimas reduz a agressividade? Corre a teoria de que sim
--  Hazar ölüyor 5 kıyıdaş acil can suyu taşısın
--  Panadería Zulay inventa el ‘rosconttone’ para celebrar la llegada de los Reyes Magos
--  "SVET JE BOLJI BEZ NJE" Žena dala čitulju pokojnoj majci pa razbesnela mnoge: "Ovo je mržnja prema voljenom članu zajednice" (FOTO)
--  İsrail askerleri Batı Şeria'da 20 Filistinliyi gözaltına aldı
--  A sweater made from new aerogel fiber tests warmer than one made from down
--  Swift 4-D printing with shape-memory polymers
--  23. Dezember 1973: Die Ölstaaten am Persischen Golf beschließen eine Verdoppelung des Rohölpreises zum 1. Jänner 1974
--  Boxing fans are hoping for a dream Anthony Joshua vs Deontay Wilder showdown next year... but their...
--  Colby Covington compares Leon Edwards' late father to Adolf Hitler, claiming they are 'the same...
--  Rodri names his four favourite players outside of Manchester City, with midfielder picking THREE...
--  Chris Wilder urges Sheffield United to summon the spirit of their 1991 Great Escape as they try to...
--  WONDERS OF THE PYRAMID: Danny's boy is leading the way among football's rising sons, with Bailey...
--  Furious Deportivo Alaves boss goes on mad touchline RAMPAGE after conceding late to lose against...
--  Retired NFL receiver Mike Williams' sudden death was the result bacterial sepsis caused by dental...
--  Manchester United slapped with 1/5 food hygiene rating after several people became unwell after...
--  Boxing analyst Larry Merchant, 92, is 'rushed to a Los Angeles-area hospital after suffering a...
--  Simone Biles named AP Female Athlete of the Year for the third time after glorious comeback......
--  Patrick Mahomes praises 'cool' Taylor Swift for her impact on Travis Kelce and her new friendship...
--  Tyreek Hill's domestic violence arrest and paternity claims against Dolphins receiver are being...
--  WBC reveal winner of Anthony Joshua vs Deontay Wilder will emerge as mandatory challenger for world...
--  Inter Miami 'set to complete Luis Suarez move TODAY' with the striker reuniting with Lionel Messi in...
--  Travis Kelce and Patrick Mahomes are planning an overseas trip to see Taylor Swift in concert with...
--  Victor Wembanyama tries his hand at hockey as the 7-foot-4 top NBA draft pick learns from the NHL's...
--  Travis Kelce's Chiefs teammate Rashee Rice reveals why he WON'T ask Taylor Swift for picture at a...
--  Carson Briere, son of Flyers GM and ex-NHL star Daniel, is given 15 months' probation and ordered to...
--  تراند اليوم : "اللي يشربه يكون من كوكب البنات".. شاهد: نقاش بين طفلين حول مشروب الفيمتو
--  تراند اليوم : بالفيديو.. مختص في علم النفس يكشف عن صفات الشخص النرجسي.. ويعلق: ‏لا تنصحه ولا توجهه
--  LA Animal Services Is On A Mission To Place Thousands of Animals Into Homes This Holiday Season
--  1 suspect outstanding in daytime robbery, stabbing of off-duty Toronto police officer
--  Pfarrer ruft Politik zu mehr Menschlichkeit auf
--  Aprender de los errores del pasado
--  Rare earth expert unsure why China is interested in N.W.T.'s Nechalacho mine project
--  Токийская башня отмечает 65-летие
--  USA beskylder Iran for at være dybt involveret i Houthi-angreb
--  El Santo Grial del pulp hispano
--  L’ultimo rifugio
--  Al volante del bus anche in abito sardo
--  Trump, en manos del Supremo
--  Il Cagliari in campo a Verona per sfatare il tabù trasferta
--  An Original 'Mean Girls' Star Revealed If They Were Appearing In The new Musical Movie
--  Stato-Regione, rapporto aspro tra ricorsi e risposte mancate
--  Deberes de Sánchez y Feijóo
--  Hamas and Palestinian Authority split on UN Gaza resolution
+-  Abren Superette en Distrito Uno
+-  ارتفاع موازنة (مكافحة الأوبئة) في الاردن
+-  اعتقال رئيس الوداد المغربي بتهمة تجارة المخدرات
+-  بدء محاكمة لاعبي ريال مدريد بقضية أخلاقية
+-  رسميا.. سواريز يزامل ميسي مجددا
+-  هلالات: السياحة في الاردن تترنح بسبب العدوان على عزة
+-  Corona de Adviento 2023: qué se reza cuando se enciende la vela del cuarto domingo
+-  Se agotan los boletos para el Tren Interoceánico
+-  France completes military withdrawal from Niger, leaving a gap in the terror fight in the Sahel
+-  Vídeo | Eduardo Maldonado celebra el título invicto de Olimpia
