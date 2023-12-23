@@ -1,11 +1,51 @@
 # Latest News
--  Congreso de EEUU pidió más datos sobre Víctor Manuel Rocha, el embajador que espiaba para Cuba
--  Venezolano que murió ahogado en el Río Bravo era oriundo de Barquisimeto
--  [속보] 세종 목욕탕서 입욕객 3명 감전 심정지
--  세종시 목욕탕서 입욕객 3명 감전 심정지
--  넥슨, 직원들과 어린이 꿈·건강 후원 한마음…'더블유WEEK' 4억 기부
--  스타벅스, 협력사 동반성장 포럼 진행
--  PICTURES: VP Chiwenga marries fellow soldier in lavish ceremony
--  ANZ workers refuse to help man who lost his home in bushfire
--  ANZ workers turn away man who lost his home in bushfire
--  Brain fade costs Mooney as Aussies fight for survival in India
+-  البحرية البريطانية: تفجير مسيرة قرب سفينة في باب المندب
+-  Guildford kidnapping: Police on the hunt for five men, after man kidnapped on Xmas Eve
+-  Men in Black star Mike Nussbaum dies aged 99
+-  Matt Martin still still not ready to return to Islanders from injury
+-  DODELJENO 71 DEČJE AUTO-SEDIŠTE: Lokalna samouprava u Malom Zvorniku nastavila višegodišnju praksu
+-  AFAD ekipleri seferber oldu! Kaybolan yaşlı Alzheimer hastası didik didik aranıyor
+-  Fırtına etkisiyle çatılar uçtu, araçlar hasar aldı
+-  Bakan Tunç: Teröre cesaret veren CHP ve DEM Parti'ye milletimiz gereken cevabı verecek
+-  Kiwi Parker scores shock decision win over Deontay Wilder
+-  Amanah tumpu bina identiti parti
+-  Top 3 Dunia: Resolusi PBB Soal Gaza Dikecam hingga Kebohongan RS Al Shifa Jadi Markas Hamas
+-  «الداخلية» توزّع هدايا على نزلاء المؤسسات العقابية
+-  «صالح الحمد المانع» تطلق عرض حصري على تشكيلة واسعة من سيارات الدفع الرباعي العائلية من نيسان
+-  «المصرف» يعزز خدماته المالية بإطلاق تطبيق QIB Lite
+-  مشاركة قياسية في ثاني جولات تحدي الدراج ريس
+-  تعادل الخور ولوسيل.. الشحانية يحافظ على صدارة «الثانية»
+-  الأحلام تخطى القطراوي والرهيب عبر الشرطة.. العربي يحافظ على صدارة الطائرة
+-  د. غانم العلي: «درب الساعي» نجح في تجسيد قيم اليوم الوطني
+-  Gritty Burnley shock Fulham to climb off bottom of Premier League
+-  carona : దేశంలో కొత్తగా 752 కొవిడ్‌ కేసులు
+-  La Navidad en Palencia, a plato y mesa puesta
+-  Spurs move into top four with 2-1 win over Everton
+-  El arbitraje de la segunda oportunidad en la prisión de Dueñas
+-  Israels Armee: Bodeneinsatz im Gazastreifen ausgeweitet
+-  El Ayuntamiento aprueba la semipeatonalización de la zona centro
+-  손흥민 시즌 11호골 폭발, 토트넘 3연승
+-  یک فرمانده نظامی ایران به بستن بحیره مدیترانه در واکنش به ادامه جنگ در غزه هشدار داد
+-  Frosinone, questa volta niente giant-killing. Ma con la Juve si esce a testa alta
+-  El cantante colombiano, Lisandro Meza, fallece a los 86 años
+-  Cinco muertos al caer una avioneta en un área residencial en Brasil
+-  Smith and Hakanpaa score in the final 15 seconds to lift the Stars over the Predators 3-2
+-  Smith and Hakanpaa score in the final 15 seconds to lift the Stars over the Predators 3-2
+-  Postecoglou praises keeper Vicario as Spurs hang on
+-  కశ్మీర్‌లో ఉద్రిక్త పరిస్థితులు
+-  배인혁, 이준혁 위협으로 쓰러져…이세영 '전력질주'에 긴장감↑ [열녀박씨](종합)
+-  크리스마스 연휴에 여기!...겨울 레포츠 성지 모음
+-  OSO Puji Mahfud di Debat Cawapres: Bagus, Pertanyaan dengan Jawaban Sesuai
+-  POJAVILE SE FOTOGRAFIJE ALEKSA IZ VREMENA DOK SE VODIO KAO NESTAO: Evo šta je radio tokom 6 godina boravka u Francuskoj
+-  Drivers warned loading up Christmas presents in their car could see them hit with huge fine
+-  Iran doạ đóng cửa biển Địa Trung Hải
+-  How my ex and I worked out the complexities of our first Christmas after splitting up
+-  Strategi Undur Diri Firli Dinilai Bisa Jebak Jokowi
+-  Pabrik Petrokimia Berlomba-lomba Wujudkan Industri Hijau, Begini Caranya
+-  Biden says he did not ask for cease-fire in call with Israel's Netanyahu
+-  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
+-  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
+-  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
+-  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
+-  German police search cathedral after security threat
+-  “It Is Possible”: Pierre Gasly Seeks Motivation From McLaren’s Astronomical Rise in 2023
