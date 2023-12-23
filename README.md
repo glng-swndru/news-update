@@ -1,11 +1,11 @@
 # Latest News
--  LIVE Torino-Udinese: formazioni e prepartita in diretta
--  החום של רוסאריו או האושר מהגעת לואיס סוארס לאינטר מיאמי? אשתו של ליאו מסי חושפת
--  צפו: הסערה מילאה את הנחלים ברחבי הארץ וגרמה לזרימה אדירה
--  הייתה מפקדת צוות ונפלה בדו קרב עם המחבלים: באיגוד השחייה עשו כבוד לעדן נימרי ז"ל
--  לאחר שדויד אלאבה גמר את העונה: זה הבלם שנמצא בראש רשימת הרכש של ריאל מדריד
--  "בקיץ אמרתם שהוא גאון, פתאום הוא מאמן רע? תפסיקו לזלזל": ברק בכר זכה להגנה מהמאמן שהביא לפיטוריו
--  סוכנו של גלוך הודה: "זה לא סוד שהרבה מועדונים מהטופ העולמי מתעניינים באוסקר"
--  Tragedias continuarán en el ingreso a la ciudad por ruta Interamericana si no se aplican medidas
--  समुन्नत एवं आत्मनिर्भर अर्थतन्त्र निर्माणमा राष्ट्रपतिको जोड
--  Pedro Sánchez viajará a Irak el 27 y 28 de diciembre
+-  속초서 로또 1등 나왔다… 전국 9명 각 29억6천만원씩
+-  Potkut tulossa päävalmentajalle - tämä shokkitulos oli jo liikaa
+-  Erdoğan-Hamza Yusuf görüşmesi Londra'yı neden rahatsız etti?
+-  Hasan Arat: Teknik direktör çalışmalarımız devam ediyor
+-  Büyükçekmece Pınartepe Mahallesi'nde bir apartmanın önünde el bombası bulundu
+-  Kenan Yıldız'dan muhteşem gol!
+-  Fortsatt store problemer i flytrafikken: Verken SAS eller Widerøe kan garantere at folk kommer frem til jul
+-  Disambangi Gibran, Pedagang Pasar Minggu Minta Harga Barang Stabil dan Terjangkau
+-  Ungarn: Brüssel drängt auf einen „Paket zur Aufrechterhaltung der Migration“
+-  Drops for Weight Balance - Support for your Goals
