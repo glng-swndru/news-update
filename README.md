@@ -1,11 +1,11 @@
 # Latest News
--  U17 WC 평정한 '제2의 메시' 내년 유럽행? 직접 입 열었다..."재계약 없다, 6개월 뛰고 상황 지켜볼 것"
--  태연 '찐친' 헤이즈, '놀라운 토요일' 뜬다…'탱이즈' 케미 보여준다
--  السفيرة الأميركية الجديدة... من الـ1559 إلى الـ1701
--  दराजका उत्कृष्ट १४ बिक्रेतालाई अवार्ड
--  Lebih 1,000 guru baharu ditempatkan di Sarawak
--  Gibran Rakabuming Bertanya Soal SGIE ke Muhaimin, Timnas Amin Singgung Strategi Jokowi
--  ميقاتي يعلن جهوزية لبنان لتطبيق القرار 1701.. واشتباكات الجنوب تمتد إلى ما وراء الحدود
--  JN.1 Covid 19 variant: Are coronavirus symptoms still the same? Expert says, ‘tricky to identify as…’
--  France grounds flight carrying 303 Indians on human trafficking suspicion
--  Canadians feeling the pinch while shopping for holiday dinner
+-  La probabile formazione dell’Udinese: Lucca guida l’attacco
+-  Tenor Ángel Vargas Joins Athlone Artists’ Roster
+-  Дневен хороскоп за 23.12.2023 г.
+-  Death of Classical 2023-24 Review: David Lang’s ‘The Little Match Girl Passion’
+-  癌症相关死亡人数 15年间增长超20% 引发热议
+-  Victoria Karkacheva Joins Tact Artists for General Management
+-  CortinAteatro to Present New Year’s Eve Gala
+-  장제원 "윤 정부 실패하면 4선 당선 의미 없어"
+-  Marcel Scheifl von der TSG 08 Roth lebt mit seiner Erkrankung: Fußball geht nur ab und zu
+-  Bronx Opera to Present Double Bill of ‘Il Signor Bruschino’ & ‘Gianni Schicchi’
