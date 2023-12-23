@@ -1,51 +1,51 @@
 # Latest News
--  Muere “Chonín” en triple colisión en Pesé
--  Sıfır otomobillerde büyük fırsat! 200 bin TL’ye kadar indirim! Bu özellikler doğuştan geliyor! Az öde çok kazan
--  Ne Köfteci Ramiz ne Köfteci Yusuf! Bu tarifi hepsini solda bırakıyor: İşte hepsini çatlatacak kremalı köfte tarifi
--  עוד כישלון של מערכת הביטחון: הגבול בין עזה למצרים - שהפך למוקד הברחות של חמאס
--  EFCC re-arrests convicted Italian for contempt of court
--  «مات من الفرحة».. تفاصيل اللحظات الأخيرة في حياة ياسر حسن المدير الإداري للترسانة
--  Iran shares data on weekly sales at its mercantile exchange
--  Siete generales serán retirados por sobornos del ex gobierno
--  Avaí anuncia o retorno do volante Judson após cinco temporadas
--  أرسنال يفعلها للمرة الرابعة في تاريخه
--  Moradores de Sinop são alvos de estelionatários em golpes aplicados nas redes sociais
--  EE.UU. expresa preocupación por el paradero de Navalni y exige su liberación
--  Contrary to politicians’ claims, offshore wind farms don’t kill whales. Here’s what to know
--  Familia de Anahí: ¿Quiénes son los papás y hermanas de la cantante?
--  Bursaspor'a ceza yağdı! 7 oyuncu men edildi
--  Clamoroso dalla Germania: la UEFA pronta ad escludere il Barcellona dalla prossima Champions
--  Calicut varsity to start music centre
--  Coinbase se registra en la AMF para prestar servicios de criptodivisas en Francia
--  Fannie Mae prevé un crecimiento de las ventas de viviendas hasta los 5,4 millones en 2025
--  Partes beligerantes en Yemen se comprometen con medidas para alto el fuego: enviado especial ONU
--  El presidente polaco dice que vetará las propuestas de gasto del gobierno
--  El CEO de Binance dimite en medio de una multa de 4.300 millones de dólares y retos regulatorios
--  Jahresendspurt bleibt aus – Union und Ampel in Umfrage weiter gleichauf
--  Jahresendspurt bleibt aus – Union und Ampel in Umfrage weiter gleichauf
--  ÖFB-Star Arnautovic glänzt mit einem Traum-Assist
--  Will motion passed by UN Security Council on Gaza have any impact?
--  We test three glittery eyeshadows at all price points for the party season – the winner is versatile
--  From Christmas food for dogs to buying a micro pig – your pet queries answered
--  '친정팀에 비수' 히샬리송, 사타구니 수술 이후 리그 3경기 연속골 '폭발'...부활의 신호탄 제대로 쐈다
--  Fotogalerie: Polizei sichert Kölner Dom nach Hinweis auf Anschlagsplan
--  Galería: A reventar, la Liber y la Cuarta por compras navideñas
--  Video: Desde ayer, cientos de migrantes varados en Sacramento
--  Vuelcan vacacionistas en la carretera Jiménez-Torreón
--  Help, I’m a woman, 41, and I often forget what I’m talking about mid-sentence…Dr Jeff answers your health questions
--  From ramblers group to backpack alternative – we test three winter walking essentials ahead of Boxing Day
--  No. 25 Mississippi beats Southern Miss 89-72 for 12th straight win
--  Nick and Aaron Carter’s sister, Bobbie Jean, dead at 41
--  عاجل.. القرار الرسمي في زيادة عدد المحترفين الأجانب بالدوري السعودي
--  From drink hacks to remedies – here’s all you need to know about hangovers this festive season
--  Bill shock warning for anyone calling friends and family this Christmas – and how to avoid huge charge
--  Marinković: Tražili smo da RIK formira radnu grupu kako bi se revidirao birački spisak i ukinuli fantomski birači
--  The dark web warped the minds of Brianna Ghey’s killers – it must be outlawed
--  As war tears the world apart, we should count our blessings to live in Britain this Christmas
--  Masakra w Pradze. Nie żyje nadzieja czeskiego sportu. Miała 20 lat
--  المقاومة الإسلامية تنعي شهيدًا لها!
--  الأهلي: تعرضنا للظلم من حكم مباراة فلومينينسي
--  İsrail Gazze'de 5 askerinin daha öldürüldüğünü duyurdu
--  RUSIJA TUGUJE: Poginula velika zvezda ruskog sporta
--  (Фото) Откажани божиќните прослави во Витлеем во знак на солидарност со жртвите во Газа
--  المملكة ترحب بقرار مجلس الأمن الداعي لاتخاذ خطوات عاجلة لوقف مستدام لإطلاق النار في غزة
+-  [ŽT] Rusijoje eglutės puošiamos kitaip (Video)
+-  [ŽT] Rusiškos dovanos. Rusija atakavo kritinę infrastruktūrą Chersone. Skelbiami nuostoliai (Video)
+-  Çocuk İstismarıyla Suçlanan Turizm Müdürü Gözaltına Alındı
+-  WWE’s Charlotte Flair on crutches in first public appearance since heartbreaking injury
+-  “Soy policía, amo el canto y la música”: quién es el cabo de la Policía de Córdoba que se lució cantando ‘O Sole Mio
+-  Zavedajte se, da šteje samo sedanji trenutek
+-  James Cleverly joked about spiking wife’s drink with date rape drug
+-  Gázolt a HÉV Mogyoródon
+-  Klevv predstavlja Cras V RGB Kit sa DDR5 8400MHz
+-  Huawei predstavlja elegantnu kreativnu moć: MatePad Pro
+-  اعلام عبري: العملية البرية وسط القطاع ستزيد من كلفة الحرب
+-  Serie A: in campo Roma-Napoli 1-0 DIRETTA
+-  Torta con crocante para Navidad
+-  AEW VP Set To Leave Company After Worlds End PPV
+-  ΓΛΥΚΟΠΙΚΡΗ γεύση / Αυτά πρέπει να κρατήσει παρά την ήττα
+-  Se estrelló una avioneta en Brasil: cinco muertos, uno de ellos menor de edad
+-  Eight-year-old boy fatally shot in chest after he and friend accidentally drove through target practice area
+-  Volleyball-Bundesliga: Berlin Volleys bleiben ungeschlagen
+-  OVO JE ŽENA KOJA JE NAPALA ČARLIJA ŠINA! Upala u kuću i krenula da ga DAVI
+-  ¡Azotó! Alex Lora sufre aparatosa caída en pleno escenario
+-  حرب غزة تستعر.. وحصيلة الضحايا ترتفع إلى 74 ألفاً
+-  На жителя Ингушетии в больнице напали неизвестные
+-  Arsenal mantuvo el empate en Anfield y lidera la Premier
+-  جدول مباريات اليوم الأحد 24 ديسمبر 2023 والقنوات الناقلة
+-  Selena Gomez reveals what made her fall for producer beau Benny Blanco
+-  Cristiano Ronaldo looks ‘terrified’ as Conor McGregor urges Manny Pacquiao to ‘man up’ and accept fight demands
+-  Cristiano Ronaldo looks ‘terrified’ as Conor McGregor urges Manny Pacquiao to ‘man up’ and accept fight demands
+-  Παραιτήθηκε ο ηττημένος δήμαρχος Χειμάρρας – Άλλον θα διορίσει ο Ράμα αντί του Μπελέρη
+-  Salario mínimo en Estados Unidos: a cuánto llegará el aumento en 25 estados el año 2024
+-  Sensation knapp verpasst: Der USC Münster spielt stark in Stuttgart
+-  İran'dan Rusya'ya protesto notası
+-  Punnenovs otro spēli pēc kārtas sargā Lozannas vārtus
+-  ليفربول يتعادل مع أرسنال في البريميرليغ
+-  أتلتيكو يعبر إشبيلية ويتقدم إلى الثالث
+-  Буркина-Фасо, Мали, Нигер и Чад поддержали атлантическую инициативу короля Марокко
+-  Vídeo: Martinelli explica treta com Grealish e parabeniza o Fluminense pela temporada: 'Foi um sonho'
+-  حفل دير جيست في مصر 2023.. إطلالات مميزة لنجوم الفن
+-  Министр обороны Италии призвал к переговорам по Украине
+-  Śnieżyca sparaliżowała Lubelszczyznę. Kierowcy walczą z siłami natury [WIDEO]
+-  الدرك يوقف نشطاء من "إيرا" أثناء زيارة الرئيس لمدينة اركيز
+-  Aparatoso accidente entre autobús y carro deja un fallecido y cinco heridos en Cartago
+-  Harvard pronašao recept za sreću i jednostavniji je nego što mislite
+-  Unglaubliche SVG Lüneburg verliert Fünfsatzwahnsinn gegen Berlin
+-  UBIJENO 76 ČLANOVA ISTE PORODICE! Krvavi napad u Gazi: Među stradalima član UN, njegova supruga i PETORO DECE!
+-  مطالب بمرافق خاصة وفتح الصالات الرياضية لنساء رأس الخيمة
+-  Tampa settles lawsuit with feds over parental leave for male workers
+-  Tampa settles lawsuit with feds over parental leave for male workers
+-  손흥민이야 이강인이야, SON의 환상적인 창조적 패스[스한 스틸컷]
+-  Retienen entre golpes a Alcalde de Oaxaca; exigen servicios
+-  Mum-of-11 shows how she organises her bumper family’s presents for Christmas, and everyone has the same question
