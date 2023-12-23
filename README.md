@@ -1,51 +1,11 @@
 # Latest News
--  العفو الدولية تجدد دعوتها للإفراج عن المحتجزين البهائيين
--  ZEC Defends Tshabangu, Throws Chamisa Under The Bus
--  INSÄNDARE: Tacksam för god sjukvård
--  Baca Dzikir Ini yang Menjadi Opsi Bacaan Agar Tobat Seorang Hamba Diterima
--  Russia: IEA in full control of situation in Afghanistan
--  Schuster: Keine Auswanderung jüdischer Menschen
--  Please Return It”: Woman weeps In heartache as her Christmas chicken Is stolen (Watch)
--  유재석, 크리스마스 선물 대체 뭐길래…"내가 ○○에 미친 사람이니?" [놀면 뭐하니]
--  사람인가? 천사인가? 션, 독립유공자 후손 위한 10호·11호 집 헌정
--  Bintang Barcelona Alami Kemajuan Pesat dalam Pemulihan Cederanya
--  Debat Cawapres soal Target Pertumbuhan Ekonomi, Ini Tanggapan Ekonom
--  Giliran skuad B-23 kecewakan China
--  Tony węgla zalegają na placu. Miasto ma problem ze sprzedażą
--  Gurdev Singh Kaunke: ਸਾਬਕਾ ਜਥੇਦਾਰ ਕਾਉਂਕੇ ਦੇ ਹਿਰਾਸਤ ’ਚੋਂ ‘ਲਾਪਤਾ’ ਹੋਣ ਦੀ ਜਾਂਚ ਰਿਪੋਰਟ 31 ਸਾਲ ਬਾਅਦ ਹੋਈ ਜਨਤਕ, ਵੱਡੇ ਖੁਲਾਸੇ
--  Partai Rakyat Adil Makmur Targetkan Prabowo-Gibran Menang di Pulau Jawa
--  «СТРАНА.ua»: в Кропивницком Кировоградской области произошли взрывы
--  中国春節、国連祝日に指定
--  RADOST U KIJEVU, UKRAJINCI TVRDE: Oborili smo tri ruska bombardera
--  Bekannte Grüne treten aus der Partei aus – „Verrat“
--  [포토] 이경 전 부대변인 지지자들, 공천 부적격 판정 재심의 요구
--  В Кривом Роге произошли взрывы
--  胴体引き揚げへ作業船到着
--  Πόλεμος στην Ουκρανία: Οι δηλώσεις Πούτιν, Ζελένσκι στο μικροσκόπιο
--  OKC: Za 24 sata 24 saobraćajne nezgode
--  Cold Conditions Ease Amid Cloud Cover In Kashmir
--  Officiel : Versement de la prime pour enfants issus de familles nécessiteuses
--  Посол ФРГ в России заявил, что Германии придется взаимодействовать с РФ
--  Рома е домакин на шампионите в дербито на кръга
--  Una campaña de ciclocrós apasionante: hasta en seis ocasiones se verán las caras Van der Poel, Van Aert y Pidcock
--  Malatya'da trafik kazasında 1 kişi hayatını kaybetti
--  OSTALI SPORTOVI: "Tip" - tiket za subotu
--  Jadi Freelance Bingung Cara Atur Duit? Cobain Dulu Cara Ini
--  MacBook Air, MacBook Pro and iMac Available at Discounted Prices During Christmas Sale: Check Prices
--  MacBook Air, MacBook Pro and iMac Available at Discounted Prices During Christmas Sale: Check Prices
--  Jonathan jokes about being the real ‘catch’ for Simone Biles
--  Torwart Leno feiert den Boxing Day „und das ganze Drumherum“
--  NBA: Nurkić nije nastupio u porazu Sunsa, Jokić ponovo odličan u pobjedi Nuggetsa
--  В ОНФ заявили, что собираемые в поддержку Путина подписи проверят юристы
--  Video | Bodycambeelden tonen klopjacht op schutter Praag
--  El aviso de la Seguridad Social sobre el informe de vida laboral
--  Dario Šarić solidan u četvrtoj uzastopnoj pobjedi Warriorsa
--  Jokić ispisao istoriju Nagetsa
--  Las cinco monedas de 1 peseta más valiosas según experto numismático
--  埼玉が３連勝
--  Aus der Sackgasse in Playoffs?: Buffalos schläfrige Büffelherde donnert durch die NFL
--  El nuevo precio de la bombona de butano: ¿qué día cambiará y cuánto?
--  МИД: отсутствие реакции на запрос России по Буче доказывает инсценировку событий
--  Estos serán los cambios en las bases de cotización para autónomos en 2024
--  Louletano encerra comemorações do centenário com lançamento de livro
--  Hardik Pandya: ਹਾਰਦਿਕ ਪਾਂਡਿਆ ਦੀ ਵਾਪਸੀ 'ਤੇ ਮੰਡਰਾ ਰਿਹਾ ਸੰਕਟ, ਅਫਗਾਨਿਸਤਾਨ ਖਿਲਾਫ ਸੀਰੀਜ਼ ਤੋਂ ਟੀਮ ਨੂੰ ਲੱਗੇਗਾ ਝਟਕਾ
+-  Sturmeinsätze von Salzburg bis Niederösterreich
+-  Cretan end of EuroAsia interconnector underway
+-  Ўзбекистон ва Қирғизистон сиёсий маслаҳатлашувлар навбатдаги даврасини ўтказди.
+-  АҚШ Россия мудофаа саноатига ёрдам берган молия институтларига қарши санкциялар киритиши мумкин.
+-  Муносиб меҳнат масалалари бўйича миллий маърузачи институти таъсис этилди.
+-  Тошкентда психотроп дориларни тарқатиб келган «закладчик»лар ушланди.
+-  Тошкентда «Яшил шаҳар» транспорт йўлаги тақдимоти ўтказилди.
+-  «СБУ»: Россиянинг 3 та Су-34 самолёти жанубий йўналишда уриб туширилди.
+-  La Goulette : Première ville de la banlieue nord de Tunis
+-  Режиссёр Жаҳонгир Аҳмедов президент администрациясига ишга ўтди.
