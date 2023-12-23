@@ -1,51 +1,11 @@
 # Latest News
--  В Кирове начнут собирать подписи в поддержку кандидата в Президенты РФ
--  רגע לפני חג המולד: יאניס ומילווקי שוב חגגו על ניו יורק
--  La capitalización bursátil de Apple sigue superando los 3 billones de dólares; dominan los inversores institucionales
--  Махачкала вошла в топ-10 городов для новогоднего отдыха москвичей
--  Nikolas Ferreira vai representar no MP contra página Choquei após morte de jovem
--  B.C. fire-generated tornado confirmed by experts in Gun Lake area
--  London, Ont. house fire spreads to 2 cars, several dogs ‘unaccounted for’
--  Urriza y Azpiroz, finalistas del Parejas de remonte
--  Lebontják a magyar ipar utolsó értékes emlékeit Angyalföldön
--  بيان حركة العدل والمساواة السودانية بمناسبة عيد الشهداء
--  ألغاز تاريخية حلّها العلماء في 2023
--  اشتباكات عنيفة في حيين بمدينة غزة
--  دراسة: ندرة الماء تجعل البشر يفكرون بشكل أفضل
--  PFDK, ceza yağdırdı! İstanbulspor ve Fred'in cezası açıklandı
--  Şehit ateşi Çorum'a düştü: Piyade Sözleşmeli Er Yılmaz'ın ailesine şehadet haberi verildi
--  Şehit Uzman Çavuş İyem'in şehadet haberi Gaziantep'teki ailesine verildi
--  Pacifisti delusi, sindaci e sindacati soddisfatti: le diverse reazioni alla sentenza Rwm
--  Bursaspor sahasında 10 sayı farkla kazandı!
--  يستفيد منها 25 صيادا .. انعقاد الدورة التدريبية حول التداول السليم للمنتجات السمكية
--  Za Program podrške poljoprivredi dodatnih 2,5 miliona KM
--  Brnabić odgovorila Violi fon Kramon: "Razumem da podržavate svoje favorite, ali držimo se činjenica"
--  Every Version of ‘A Christmas Carol,’ Ranked
--  Nu forstår jeg, hvorfor der er så mange offentligt ansatte
--  Nu forstår jeg, hvorfor der er så mange offentligt ansatte
--  Shkon në 7 numri i të plagosurve në aksin Levan-Tepelenë, fëmija 3-vjeç në gjendje të rëndë
--  Baksi pokorili "MSG"
--  PFDK sevkleri açıkladı! Fred, Galatasaray maçında oynayabilecek mi? İstanbulspor'un 3 puanı silindi...
--  Draw li ma jibdel xejn bejn Liverpool u Arsenal
--  Bonoloto: resultado del sorteo celebrado el sábado 23 de diciembre de 2023
--  Κλοπ: «O Τσιμίκας σίγουρα έσπασε την κλείδα του, θα έδινα τη δική μου για να είναι καλά»
--  UN pozvale na spasavanje 185 migranata sa broda u Indijskom okeanu
--  هيئة عقارات الدولة تعلن عن وظائف في عدد من التخصصات
--  طريقة حجز تصريح زيارة الروضة الشريفة
--  هل تشجع المشروعات الكبرى المستثمرين على الدخول في السوق؟
--  «Καλά Χριστούγεννα από την κορυφή»
--  Marija Šerifović novom objavom pokazala koliko joj je sin promijenio život
--  Quedan con lesiones: dos motociclistas derrapan por el asfalto mojado a la salida sur de Mazatlán
--  الحقوق تنتزع.. ماذا قصد الزبيدي؟!| كتب نايل عارف العمادي
--  Chivas tiene 'amarrado' a su delantero para el Clausura 2024
--  Sahadan çekilen İstanbulspor'un cezası açıklandı!
--  PHOTOS: Bayelsa gov Douye Diri hosts Timaya
--  La promesa de Javier Milei a la comunidad judía en Argentina en plena guerra con Hamás
--  Ordenan detención contra Rubén Zamora, Alfredo Cristiani y otros por Amnistía de 1993
--  Fred'in cezası belli oldu
--  المحكمة امريكية ترفض البت بسرعة بشأن حصانة ترامب
--  Umývanie zubov znižuje výskyt zápalu pľúc u hospitalizovaných pacientov, na "JISke" sú kratšie
--  2 men fake payments at self-checkout, steal items from Lowe's store, Roanoke Rapids police say
--  El tren navideño llega de nuevo este domingo a Cangas de Onís
--  Center for Economic Inclusion in St. Paul cuts staffing
--  Τσιμίκας: Για κάταγμα κλείδας κάνουν λόγο οι Άγγλοι
+-  Suspeito de tentativa de estupro é preso em Sorriso, confirma delegado
+-  Volcadura en la Parral-Durango deja 5 lesionados
+-  Critican presencia de crimen en tierra del Presidente
+-  Encuentran a persona muerta por broncoaspiración en Cuauhtémoc
+-  Buscan a migrantes que se ahogaron en Río Bravo
+-  %67 انخفاض معدل الولادات في المملكة
+-  نيويورك تايمز: حرب غزة الأخطر في التاريخ
+-  Minst 16 döda i bussolycka i Nicaragua
+-  مديحي: الظرفية تحتم بالضرورة إلتحام الجميع وراء الوداد
+-  Argentina: Justiça analisará ‘megadecreto’ de Javier Milei
