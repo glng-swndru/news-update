@@ -1,11 +1,11 @@
 # Latest News
--  نازح إلى غزة…
--  تساقط غزير للأمطار بمكة -فيديو
--  دراسة: رائحة دموع المرأة تخفف عدوانية الرجل
--  غرق لم تشهد له بيروت مثيلاً.. والأمطار تحاصر العشرات
--  대한민국 ESG경영혁신포럼 및 에코페어캠페인국민운동본부 발대식, 성공적으로 개최
--  Horario de atención del domingo 24 de diciembre de Costco, Walmart, Target, Sam’s Club y más tiendas
--  Guerre Israël-Hamas: un otage israélo-américain annoncé mort par son kibboutz et l'armée
--  Mitä tehdä joulupapereille ja mitkä ovat tosi suomalaisia ongelmia? Näköislehti ilmestyy verkossa ja sovelluksessa läpi joulun
--  2023 Necip Fazıl İlk Eserler Ödülü sahibi Sema Bayar: Ödüller 'yol'u ışıklandırıyor
--  81 ilde "Sis" operasyonu! 37 milyon TL'lik vergi kaybı engellendi
+-  류준열X김태리X김우빈, 먹교수 이영자 표 파김치에 '파친자' 빙의 [전지적 참견 시점]
+-  'UP&DOWN' 나이 속일 수밖에 없었던 ★들의 속사정[MD포커스]
+-  أسعار الخضار والفواكه بالأردن السبت
+-  غارة إسرائيلية تستهدف بلدة كفركلا جنوبي لبنان
+-  „Teisėti taikiniai“. Rusija grasina smogti NATO oro bazėms. Kas vyksta
+-  Jei Saulė šildo Žemę, kodėl kosminė erdvė tokia šalta. Mokslas turi atsakymą
+-  „Trypčioja vietoje. Okupantai savo planuose į kai ką neatsižvelgė.“ Kas vyksta prie Bachmuto
+-  Khloe Kardashian Compares Son Tatum to Rob Kardashian in Adorable New Photos!
+-  कवाडी सङ्कलनकर्ताका कारण उपत्यकाको फोहोर व्यवस्थापन सहज
+-  Number of new Covid cases increased 52 per cent globally in past one month: WHO
