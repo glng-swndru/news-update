@@ -1,51 +1,11 @@
 # Latest News
--  عاجل.. ما حكم منح الصيدليات نقاطا مجانية للمشتري؟
--  سقوط مسؤول بارز في "الدفاع الأوكرانية" سرق أموال مخصصة لشراء ذخيرة الحرب
--  توزيع السلال الغذائية في سقطرى اليمنية بحضور مدير العمليات العسكرية المدنية بالقوات المشتركة
--  جندي إسرائيلي يعترف بمقتل عدد كبير من زملائه ويكشف السبب.. ماذا قال؟
--  ¿Sabes qué país consume más panetones peruanos en el mundo?
--  Mandan a casa a víctimas de trata
--  Netflix Show for Preschoolers Shows Children Attending Gay Wedding - It All Makes Sense When You Look at Who Produced It
--  Realizarán sesiones extraordinarias para abordar Ganancias, eliminación de las PASO, movilidad jubilatoria y otros temas
--  Imputados dos jóvenes que hacían gimnasia en sus vehículos circulando en Barcelona
--  Pokutu 78 eur môžeš dostať, aj keď si za parkovanie zaplatil. Bratislavčania sa búria, je to „dojenie kráv“
--  สปีดโบ๊ทล่มกลางทะเลพัทยา ช่วย 25 นักท่องเที่ยวปลอดภัย
--  PETKOVIĆ O LAŽIMA IZ PRIŠTINE: Kurti ne želi normalizaciju odnosa, već želi nove krize i napade na sever KiM
--  Drone Hits Ship Near Gujarat Coast With 20 Indians Aboard, Causes Fire
--  이건 기회야! EPL 상위권 팀들 주춤, 리버풀-아스널 맞대결→토트넘 재도약 찬스
--  AITA loses appeal in ITF tribunal, Indian Davis Cup team will have to travel to Pakistan
--  '웰컴투 삼달리' 지창욱·신혜선, 빗속 포옹 포착 '멜로 무드 ON' [오늘밤TV]
--  Germany’s Traffic Light Coalition Unexpectedly Turns Red For EV Incentives
--  كم بلغ الحمل الكهربائي في أول أيام المربعانية؟
--  Le ultime dal Grande Torino: Vojvoda in panchina, giocano Lazaro e Soppy
--  Predsednik Srbije sutra se obraća javnosti
--  ”Vi blir som ett slags familj” – då Andreaskyrkan ordnar julaftonsmiddag har släktbanden ingen betydelse
--  '2024 será ano do orgulho italiano', promete Meloni
--  "Я себе ґвалтувала": Каменський зізналася, що погладшала
--  ODLAZAK VELIKOG HUMANISTE: Preminuo počasni konzul Srbije u Severnoj Makedoniji
--  بالفيديو- العدو الاسرائيلي يستهدف فريق المنار في منطقة الخردلي جنوب لبنان.. ولا إصابات!
--  Rusija i Ukrajina: Novi datum proslave Božića kao dodatni otklon...
--  Geklärt: Amira und Olli Pocher feiern Weihnachten getrennt!
--  2023: Η χρονιά της φωτιάς και του νερού μέσα σε 5 συγκλονιστικά λεπτά από το Up Stories
--  Fenerbahçe Galatasaray derbisi için ünlülerden skor tahmini
--  Mpumalanga murder suspects to remain behind bars over Christmas
--  Oppimisteknologiat palauttavat PISA-menestyksen
--  Governo de MT concluiu 194 pontes de concreto aguardadas há anos pelos moradores
--  Ankara'da bedava dağıtıldı, ortalık yangın yerine döndü! Yetişen koli koli evine götürdü, bakın birbirlerini ne için ezdiler?
--  Número de pardos supera o de brancos em Mato Grosso, diz IBGE
--  Förföljde och dödshotade sitt ex – döms till fängelse
--  В Азії знайшли одразу п'ять нових видів ссавців: відомо, чому їх не помічали раніше
--  Buschmann: Für Einsatz von Tasern in allen Bundesländern
--  Sochan powiedział, czego nie tyka przy wigilijnym stole. A Polacy to uwielbiają
--  Evine cam balkon yaptıranlar aman! Yargıtay’dan emsal karar çıktı: Milyonlarca kişi cam balkonlarını söktürmek zorunda kalabilir
--  Украинские войска обстреляли Горловку
--  Opta - Yildiz è il più giovane marcatore straniero della storia della Juventus
--  Άγιοι Βασίληδες έκαναν κουπί στον Θερμαϊκό και μαγνήτισαν τα βλέμματα μικρών και μεγάλων
--  Zo dan! Richard Veenstra veegt de vloer aan met Kim Huybrechts
--  통영대전고속도로 5중 추돌 사고...교통 정체 지속
--  VELIKI ŠEF DONEO ODLUKU Ovo se Aniti Stanojlović nikako neće svideti - moraće da se razdvoji od Anđela
--  تراند اليوم : ضاحي خلفان: ثبت تاريخيا أن الإخوان المسلمين أغبى المخلوقات
--  Młoda Padwa Zamość liderem grupy trzeciej II ligi
--  تراند اليوم : شاهد.. "سلمى الشيمي" في أحدث ظهور لها بعد خروجها من السجن: أنا مرغوب فيا وناس كتير بتحبني
--  تراند اليوم : بالفيديو .. مصطفى الفقي يكشف كيف كان الملك فيصل يعامل زوجة عبدالناصر أثناء أدائها الحج برفقة ابنتها
--  تراند اليوم : هل يستطيع الشخص المصاب بالإيدز الزواج من فتاة سليمة؟.. بالفيديو طبيبة تجيب
+-  بدء استقبال طلبات الترشيح للدورات التدريبية في مجال الاستشارات والتحليلات العقارية
+-  🔴 البرهان يلتقي يوم 28 ديسمبر بحميدتي بعنتبي برعاية الرئيس الجيبوتي
+-  ΠΑΟΚ: Ενδιαφέρον για τον Ροζιέ, σύμφωνα με τους Τούρκους
+-  Sieltä se tuli - tähtihyökkääjä on tehnyt jättisopimuksen
+-  المشاط تبحث مع المدير الإقليمي للبنك الدولي أولويات التعاون المستقبلية
+-  Φροζινόνε - Γιουβέντους 1-2: Ο λυτρωτής Βλάχοβιτς την κράτησε στο... κατόπι της Ίντερ
+-  Ποινική δίωξη για ανθρωποκτονία στον 16χρονο που μαχαίρωσε και σκότωσε τον πατέρα του στα Καλύβια (vid)
+-  Russia bars pro-peace candidate from presidential ballot
+-  "Zapad se sprema za novi hladni rat sa Rusijom"
+-  “Të zgjojmë luanin!”- Berisha: Rilindasit e Ramës janë hiena, por do t’ia mbathin me të katërta! Të mbrojmë logon dhe selinë nga…
