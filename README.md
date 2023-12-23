@@ -1,51 +1,11 @@
 # Latest News
--  Zeit zu verschenken: Landrat Henry Graichen besucht am 24. Dezember eine Kinder- und Jugendeinrichtung in Markkleeberg
--  Mercato - PSG : Un transfert surprise en janvier ?
--  С песни и наричания за здраве и благодатна година, коледари поздравяват във Видин
--  Twitter violated contract by failing to pay millions in bonuses
--  الیکشن کمیشن کے فیصلے سے دکھ ہوا، پلان بی بھی موجود ہے، بیرسٹر گوہر
--  Azerbaijani oil prices increase
--  حكومة دولة تجبر منظمي تظاهرة على دفع تكاليف التواجد الأمني
--  جوني ديب في ضيافة أحمد سعد بمنزله
--  السيتي يحرز الخماسية التاريخية
--  „Leck mich en de Täsch“: Hempel nach Comeback überwältigt
--  نادين نجيم تتعرض لوعكة صحية
--  Ainakin 7 miljoonaa ihmistä on paennut taisteluita Sudanin sisällä – YK:n turvallisuusneuvosto huolissaan
--  Yksin kotona julkaistiin 33 vuotta sitten – Näin elokuvien jättisuosio seuraa näyttelijöitä yhä
--  Йокич и Мъри с наказателна акция срещу Бруклин
--  500 penduduk mahu laluan baharu ganti jambatan Pasir Jering
--  Kritik an Gaza-Resolution: „Unverzüglich noch viel mehr nötig“
--  JOKIĆ KRVARIO USRED UTAKMICE! Kamere su sve SNIMILE - rade sve da ga "prebiju"
--  Загина бремена жена откако автомобил излета од патот во кањонот на Ибар
--  Snowboard-Übertragung im TV: Die nächsten Snowboard-Sendungen im Überblick
--  La DH a retrouvé le vrai père Noël, aka David Jeanmotte : “J’adore Noël, car c’est une fête qui me ressemble !”
--  CEVA Logistics to up Middle Corridor via TIR system - Kelvin Tang (Exclusive interview)
--  MAITSETE ADVENDIKALENDER 23 | Seapraad õuna-sibulakastmega
--  Важно: Ограничават движението по АМ "Хемус"
--  'If we don't serve UAE, who will?' Meet Emirati grandma who went viral for sweeping Abu Dhabi streets
--  Smith celebrates USC signing with ceremony
--  Odisha reports first COVID-19 +ve case amid new sub-variant scare
--  Байден подписал рекордный оборонный бюджет США
--  Simak Lagi 3 Pernyataan Gibran di Debat, Hilirisasi Disebut Solusi Konkret
--  Dernière ligne droite pour les pâtissiers à l'approche du réveillon de Noël
--  SAOBRAĆAJNA NESREĆA U NOVOM SADU: Više osoba teško povređeno, vozila potpuno smrskana (FOTO)
--  沿道「寺尾ありがとう」阿炎は涙
--  Dans les coulisses du plus grand magasin de jouet de France, en pleine crise du jouet
--  İki üniversiteye rektör atandı! Sosyal Yardımlar Genel Müdür Yardımcısı görevden alındı
--  Yasa dışı tütün mamullerine yönelik 81 ilde 'SİS-2' operasyonu: 457 şahıs hakkında adli işlem yapıldı
--  Irak'ın kuzeyinden Türkiye'yi yasa boğan haber: Altı şehidin kimliği açıklandı
--  Irak'ın kuzeyinden acı haber: Altı Mehmetçik şehit oldu
--  Bursa'da deniz ulaşımına hava engeli: Deniz otobüslerinin sekiz seferi iptal edildi
--  Cumhurbaşkanı Erdoğan'ın imzasıyla yayımlandı: Altı ülkenin vatandaşları için vize muafiyeti
--  Merkez Bankası PPK üyeliğine yeni atama
--  Argentina cifra en 60 millones el coste del despliegue por las protestas y lo reclama a los convocantes
--  OTSEBLOGI | REKORDNE SUMMA: USA kulutab julgeolekule 886 miljardit dollarit, Ukrainale antakse vaid 300 miljonit
--  Sport anuncia a contratação de Pablo Dyego
--  Maltempo, è ancora allarme nell’Isola: tromba d’aria sradica un tetto, tragedia sfiorata a Siniscola
--  Cristiano Ronaldo'dan yıldızlaştı, Al Nassr kazandı!
--  Ini Nilam, Asisten Cantik Hasil Kerja Bareng KAI & Microsoft
--  Andre Rosiade: Penampilan Gibran Bungkam Semua Kritik!
--  5 of the best ski resorts in Bulgaria for 2024
--  Holidaymakers warned of extra costs for basics when booking 'all-inclusive' holidays
--  Christmas travel chaos continues after storm Pia and Eurotunnel strike cancel flights and Eurostar trains
--  Why it's best to visit Venice in winter
+-  Siddhant Chaturvedi recalls partying with Shah Rukh Khan at Mannat
+-  Pyotr Qlıboçko İlham Əliyevə məktub göndərdi
+-  Masa Berlaku SIM Habis Saat Libur Nataru, Akan Dapat Dispensasi
+-  مبتعث يدرس على حسابه الخاص.. هل يستحق الدعم من حساب المواطن؟
+-  Delhi’s Air Quality Dips To ‘Severe’ Category, Water Sprinklers Deployed Across City
+-  Una nueva generación de mujeres cambia las reglas de la Navidad: "No me enterraré en la cocina"
+-  West Ham vs Manchester United, Erik Ten Hag Lega Christian Eriksen Kembali
+-  Bubblegum Movie: యాంకర్ సుమ కొడుకు సినిమా పెద్దలకు మాత్రమే
+-  Christmas 2023 : ख्रिसमसच्या उरलेल्या केकचं काय कराल? 'असा' केक साठवून ठेवा, महिनाभर टिकेल
+-  Netherlands looks to waive €835 name change fee for descendants of enslaved people
