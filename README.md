@@ -1,51 +1,11 @@
 # Latest News
--  ليبيا.. حبس مأمور ضبط قضائي بتهمة تلقي رشوة
--  Μακάμπι Τελ Αβίβ - Χάποελ Χάιφα 96-104: Δεν τα κατάφερε χωρίς τους ξένους της
--  مراسل الجديد: فرق الإسعاف توجهت الى بلدة عيترون في وقت تعمل فرق الإغاثة على رفع أنقاض المنزل المستهدف
--  Pedestrian dead after collision with vehicle in Townsend, Ont.
--  Doktorlar'ın Ela'sı ekran orucunu bozdu! 12 yılın ardından setlerde! Bölüm başı alacağı ücret dudak uçuklattı!
--  20-yr-old DU student kills self in central Delhi govt. quarters
--  Рома 0:0 Наполи, начало на мача
--  Кирил Болшаков: Победата е хубава заради борбата и себераздаването ни
--  Premier League: Klopp-Faller und Hand-Ärger: Liverpool 1:1 gegen Arsenal
--  Ertuğrul Sağlam rahatsızlandı basın toplantısına katılamadı
--  Kourtney Kardashian and Travis Barker share first pictures of baby Rocky
--  Despite missing NHL stars, ‘relentless’ Canada ready to defend gold at world juniors
--  Delhi L-G recommends CBI probe into supply of ‘fake’ drugs to hospitals
--  קטש: "יש החלטות שהן מעליי, לא נכנס למקומות שלא מתפקידי"
--  צדק צדק תרדוף: למה לבדוק עובדות אם אפשר להשמיץ לחינם?
--  Ματσάρα χωρίς νικητή, παραμένουν στην κορυφή οι Κανονιέρηδες
--  NRW: Polizeieinsatz am Kölner Dom – Terroranschläge zu Weihnachten und Silvester auch in Deutschland möglich
--  Sakaryaspor ile Kocaelispor'un karşılaştığı Marmara Derbisi'nde kazanan ev sahibi ekip oldu!
--  BREAKING NEWS: “they’ll not play against Wolves Tomorrow he is feeling. Bit Ill ” Chelsea manager Mauricio Pochettino confirms 3 Chelsea star won’t be available vs Wolves
--  Mauricio Jaimes, legislador de JPC, a cargo de la presidencia de la Comunidad Regional Calamuchita
--  VIDEO Atac de amploare al rușilor în Herson: Rușii au lovit blocuri / Au izbucnit mai multe incendii - șef regional
--  ‘Where is the line?’: Everton coach’s VAR rant after Spurs take ‘big three points’ after soft call
--  LG เปิดตัวเสาอากาศรถยนต์แบบโปร่งใสที่เป็นส่วนหนึ่งของกระจกหน้ารถ
--  Gefahrenhinweise am Kölner Dom – Polizei kündigt besondere Schutzmaßnahmen an
--  Gefahrenhinweise am Kölner Dom – Polizei kündigt besondere Schutzmaßnahmen an
--  Bulandshahar News: सुधीर गोयल की कॉलोनी के खिलाफ जिला पंचायत से नोटिस जारी
--  Bulandshahar News: गांव में मुनादी कर गोतस्कर की एक करोड़ की संपत्ति कुर्क
--  Bulandshahar News: थाना समाधान दिवस में 28 थानों में आई 75 शिकायतें
--  Bulandshahar News: जिले भर में याद किए गए चौधरी साहब, दूध से नहलाई प्रतिमा
--  Bulandshahar News: नहीं मिला ब्लड सेपरेशन यूनिट को लाइसेंस, अब कॉरिडोर बनाने की तैयारी
--  Bulandshahar News: यू-डायस डाटा नहीं भरने वाले स्कूलों को मान्यता रद्द करने की चेतावनी
--  Bijnor News: विद्युत निगम के अधिशासी अभियंता निलंबित
--  Bijnor News: अमानगढ़ रेंज में बाघ गणना का काम शुरू
--  भाजपा सरकार के राज में हर वर्ग परेशान : अजय राय
--  Mirzapur News: मानेक शॉ क्रूज की टक्कर से विश्वनाथम का चालक घायल, दूसरा गिरा गंगा में
--  सुरंग से गुजरते वक्त यात्री रहें बेफिक्र: न तो ट्रेन की चाल लड़खड़ाएगी, स्टेशन मास्टर से भी नहीं कटेगा संपर्क
--  Kaushambi News: युवक की हत्या कर शव सेफ्टी टैंक में छिपाने के दोषी भाई-बहन समेत चार को उम्रकैद
--  Kaushambi News: जानलेवा हमले के दोषी सगे भाई समेत चार को सजा
--  Kaushambi News: हत्या के दोषी सगे भाइयों को आजीवन कारावास, जुर्माना
--  Hardoi News: प्रदर्शनी की आय से बांटे जाएंगे कंबल, जलेंगे अलाव
--  Varanasi News: क्रिसमस पर कल लागू रहेगा रूट डायवर्जन प्लान
--  जागरूक बनें उपभोक्ता, अधिकारों की रक्षा के लिए 1915 पर करें कॉल : शर्मा
--  Varanasi News: पहली बार शंकराचार्य करेंगे शीतकालीन चार धाम यात्रा, टूटेंगे मिथक
--  Varanasi News: सर्दी, जुकाम, बुखार के मरीजों का होगा आरपीसीआर
--  Varanasi News: कबड्डी में मंगारी की टीम बनी विजेता
--  Varanasi News: ‘चांदपुर औद्योगिक आस्थान को बनाएं नो ट्रिपिंग जोन’
--  Varanasi News: अंतरजनपदीय वाहन चोर गिरोह का मास्टरमाइंड अपने साथी के साथ गिरफ्तार
--  Maharajganj News: दिल्ली, राजस्थान समेत अन्य महानगरों से काठमांडो जाने वाले पर्यटक रहे परेशान
--  Varanasi News: हेरौ उगना, हमर भंग पिसना कते गेलैं रूसना...
--  Maharajganj News: 15 साल पुरानी गाड़ियां बढ़ा रहीं प्रदूषण
+-  وزير إسرائيلي: الحرب لن تنتهي حتى لو استعدنا المحتجزين
+-  امتداد تأثير المنخفض الجوي نحو المناطق الوسطى
+-  كل ما تريد معرفته عن كأس آسيا 2023
+-  رؤساء كنائس القدس يفندون رواية الاحتلال عن لقائهم بهرتسوغ
+-  Szef KPRM o prezydenckim wecie: ta decyzja jest niezrozumiała, niepotrzebna, szkodliwa
+-  החטופים שעדיין בעזה על שער מצמרר בעיתון האמריקני: "השעון מתקתק"
+-  VIDEO: Cámara corporal de la policía captó cómo criminal disparó contra rehén secuestrado en su casa de Oregón
+-  Tottenham and Newcastle quoted massive transfer asking price for Marc Guehi with Palace desperate not to lose him
+-  "Ključ je u rukama SAD"
+-  Epic Games Store regala 'Fallout 3: Game of the Year Edition', para que visites los páramos apocalípticos de Washington antes de Navidad
