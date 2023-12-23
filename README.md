@@ -1,11 +1,11 @@
 # Latest News
--  Kocaeli Valiliği Uyardı: Kuvvetli fırtına bekleniyor
--  Fenerbahçe mi, Galatasaray mı? Derbi öncesi öne çıkan istatistikler
--  MHP Genel Başkanı Bahçeli: Terörizmle mücadele sonuna kadar devam edecektir
--  Yüksel Yıldırım: Samsunspor ligde kalacaktır
--  Çaykur Rizespor, Kasımpaşa mesaisi başladı
--  Necip Fazıl Ödülleri 30 Aralık 2023 cumartesi akşamı sahiplerini buluyor!
--  Türkiye, İsrail kaynaklı dezenformasyon saldırılarını boşa çıkardı
--  לפני מכבי ת"א, לבקוביץ' שואב השראה מחיפה: "גם אנחנו נצא מזה"
--  Dove vedere "Una poltrona per due" in streaming se non volete aspettare il ritorno in tv
--  Soccerladuma | Khanye: Khune Has Let Me Down
+-  Torino-Udinese è anche Buongiorno e Lucca: duello contro ex compagni
+-  उखु कृषकलाई अनुदानबापत ८० करोड भुक्तानी
+-  Дмитрий Медведев поздравил Президента Ильхама Алиева
+-  Ryan O'Neal, l'acteur de "Love Story", est mort d'une insuffisance cardiaque congestive
+-  TESK'ten merdiven altı üretim uyarısı
+-  Austrija treći rival Srbije pred odlazak na EURO
+-  Joulua vietetään lumisateessa – lämpötila on pakkasen puolella koko maassa
+-  Kupili ste haljinu ili sako i sad vam se ne sviđa ili vam ne odgovara veličina? Trgovac uopšte ne mora da vam vrati pare, evo zašto
+-  Soni prodao 50 miliona konzola za tri godine
+-  Зеленскийнинг идораси украиналик қочқинлар учун чақириқ эълон қилиш ғоясини маъқуллади.
