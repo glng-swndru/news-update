@@ -1,51 +1,11 @@
 # Latest News
--  מ.ס. אשדוד - בני סכנין 0:0 (מחצית 1)
--  UzAuto Motors шартномани қачон очади?.
--  وتستمر التغطية
--  الميثاق الوطني يطلق مؤتمرا شبابيا بعنوان: فلسطين في وجدان الأردنيين ملكاً وشعبا
--  قصف مكثف على شمال غزة بعد رشقة صاروخية للمقاومة
--  معظم الجثث المنتشلة من بيت لاهيا لاشخاص اعدموا ميدانيا
--  مصرع جندي صهيوني بقصف لحزب الله
--  IMAGES: VP Chiwenga ties the knot in lavish ceremony; former First Lady Grace Mugabe among guests
--  My Week with Celia Holman Lee: All that glitters is truly gold!
--  Osimhen rinovon me Napolin deri në 2026, klauzola 130 milionë euro
--  L.A.'s latest move to limit oil drilling in the city
--  The Big Payback ravasi sankariksi Äimärautiolla – "Hevonen oli tosi fiksu tänään"
--  Dejan en Riberas a ejecutado con mensaje en cartulina
--  Kal Ka Makar Rashifal: आपके पक्ष में आ सकते हैं कोर्ट कचहरी के मामले, बनाए रखें धैर्य
--  Stvarno najbolja! – Tijana Bošković
--  Bir kadın eşinin ayağını öptü, gündem oldu
--  Health experts reveal seven foods that can help your Christmas hangover
--  Doctor Who’s new TARDIS jukebox contains hints about upcoming plot points
--  تعرف على أبرز أعراض النوبة القلبية الصامتة
--  En Sarthe, évadé de la prison d'Angers, il frappe un homme et lui mord le mollet
--  Lot : 6 villages du causse forment un circuit pour faire briller la magie de Noël
--  Vannes agglo : prix, PMR... Ce qu'il faut savoir sur la nouvelle commande de vélo à la location
--  Des fouilles archéologiques vont retarder l'aménagement de la zone Eurochannel 3 à Dieppe
--  Tältä näyttää Dingo-elokuva – Levoton Tuhkimo -elokuvan teaser julki
--  ‘The Simpsons’ Takes On Sports Cheating and College Admissions Scandals Like ‘Varsity Blues’ (EXCLUSIVE CLIP)
--  30 Baumpaten packten mit an: Streuobstwiese in der "Malei" für Leinburg
--  College football predictions: James Madison the pick despite exits
--  Jeremy Allen White Talks Tap Dancing in Between ‘Iron Claw’ Takes, Reveals ‘The Bear’ Season 3 Returns to the ‘Functional Kitchen Atmosphere’
--  La curiosa historia del primer elevador que llegó a la CDMX
--  ‘Rebel Moon’ Writer Explains That Cliffhanger Ending and Confronts the Bad Reviews: ‘This Isn’t an IP. This Is an Original Story’
--  Stream It or Skip It?: ‘A Royal Christmas Holiday’ on Great American Family, in Which A Journalist and A Prince Predictably Fall in Love
--  Jeremy Allen White Talks Tap Dancing in Between ‘Iron Claw’ Takes, Reveals ‘The Bear’ Season 3 Returns to the ‘Functional Kitchen Atmosphere’
--  Här planeras mer vindkraft – 260 meter höga i Hofors
--  Żużel. Drużynowy Puchar Świata. Czas na SoN. Kolejny turniej za trzy lata
--  Ulrich Neumann ist Schatzsucher : Hobbyarchäologe ortet Römer-Relikte in Kamen
--  Aberdeenshire waste collection - a reminder of holiday changes
--  Ouche et Montagne. Eau potable : réparation d’urgence avant le remplacement d’une pompe
--  Jeremy Allen White Talks Tap Dancing in Between ‘Iron Claw’ Takes, Reveals ‘The Bear’ Season 3 Returns to the ‘Functional Kitchen Atmosphere’
--  Zweiter Blitzer-Caddy kommt 2024 zurück nach Lünen: Nach monatelangem Ausfall
--  How Well Do You Know Catering Christmas?
--  Lady Diana: Sensation! Royales Kleid erzielt Rekordpreis
--  Ligue 2: le syndicat des arbitres dénonce des insultes racistes envers un officiel à Bastia
--  김지혜 "♥박준형과 아침마다 부부싸움, '베커상' 안믿겨"…이채민·홍은채와 공동수상 [2023 KBS 연예대상]
--  붐 "내년 아빠 된다…꼬붐아, 건강한 모습으로 아빠랑 만나자" 깜짝 발표 [2023 KBS 연예대상]
--  이현중 타스마니아전 3점슛 1개 포함 9점 5리바운드 1블록, 일라와라 11점차 패배
--  '우수상' 주우재 오열에 홍진경도 울었다…"'홍김동전' 우리 진짜 잘했다" [2023 KBS 연예대상]
--  Gov Bago unveils Niger State’s plan to hit N1trn in revenue
--  ¿Por? Max Verstappen quedó furioso con Checo tras su victoria en Azerbaiyán
--  Bürgergeld: Arbeitsloser schickt Hunderte Euro ins Ausland – dann folgt das böse Erwachen
--  Aldi, Edeka, Kaufland und Co.: Hamsterkauf-Welle steht bevor – das ist der Grund
+-  Bazıları Fazla Hassas: Zaman Makinesine Binip Geçmişe Yolculuk Yapmışsınız Hissi Verecek 30 Tarihî Fotoğraf
+-  AKTUÁLNE Rúti sa na nás EXTRÉMNY SNEH! Bude mať fatálne NÁSLEDKY: Vianoce budú mať mnohí BEZ ELEKTRINY, TU to bude NAJHORŠIE
+-  Tomu sa povie prekvapenie: Adam Ďurica je 3-násobný otec, dcérka dostala krásne meno!
+-  Bratislava si užije Vianoce na snehu: Biela pokrývka komplikuje dopravu! Obyvatelia sídlisk si môžu užiť krásnu scenériu
+-  Po snehovej kalamite hrozia povodne: Na Slovensku sa cez sviatky výrazne oteplí
+-  „Тигрите“ на Оливер Спасовски впериле пиштол во бремена жена
+-  Objavljen posnetek, ki kaže, kako dramatično je bilo med strelskim pokolom (VIDEO)
+-  Festive donations for those in need
+-  Halavacs junto a productores en Pampa del Infierno y Sáenz Peña
+-  Top 14: Montpellier version Bernard Laporte retrouve enfin le chemin de la victoire en Championnat
