@@ -1,51 +1,51 @@
 # Latest News
--  [영화수다] '믿음'을 다시 생각하다
--  Εφορία: Όλες οι φορολογικές υποχρεώσεις μέχρι το τέλος του έτους
--  BYD'nin Avrupa'daki ilk elektrikli otomobil fabrikası için seçtiği ülke belli oldu
--  다올TS, “지속·적극적인 투자로 파트너 기회 확대할 것”
--  Det hände lördagen då biblioteket glömt att låsa dörren
--  চলনবিলের খাল কেনাবেচা করছেন স্থানীয় প্রভাবশালীরা
--  Очаква ни облачна и ветровита събота
--  J-Hope BTS Tiba-tiba Pulang ke Army Saat Wajib Militer
--  Juraj Slafkovsky scores as Montreal Canadiens rally past Chicago Blackhawks 5-2
--  Juraj Slafkovsky scores as Montreal Canadiens rally past Chicago Blackhawks 5-2
--  ITC Fabelle Chocolates introduces ‘5 Taste Sensations’
--  136 موظفا أمميا قُتلوا بالحرب على غزة
--  ألبانية تتوج ملكة جمال الأرض 2023
--  أجواء باردة بأغلب المناطق وأمطار بشمالي ووسط الأردن
--  Julie Seed's shattered fiancé Chris Smith reveals new details about how she was allegedly stabbed to death inside a Plympton, Adelaide real estate office
--  الحشد الشعبي: ضربنا هدفا إسرائيليا بالبحر الأبيض المتوسط
--  ഇന്ത്യൻ സ്കൂൾ ബഹ്‌റൈൻ 2023 - 2026 വർഷത്തെ ഭരണസമിതി അധികാരമേറ്റു
--  한 달에 8만5천 원 버는 기자의 자기암시
--  Šventinis savaitgalis bus drėgnas: sniegas maišysis su lietumi, temperatūra balansuos ties nuliu
--  “He’s the only Chelsea player I’m scared of playing against. I hope he gets benched against us”- wolves manager finally opens up that he’s scared of facing 25years old dynamic Chelsea star
--  Tenía varios días perdido y lo hallaron sin vida en paraje solitario
--  Cae mujer con hierba seca y polvo blanco en Loma Colorada
--  Muere motorizado al chocar con camión articulado
--  Manchester City son los reyes del mundo
--  Es hora de un cambio
--  ¿El Canal ya tiene competencia?
--  Cordillera, agua y minería
--  Vargas Llosa colgó la pluma
--  Cambiar o cambiar
--  Elizabeth Grimaldo está sufriendo con tortícolis
--  Gracie Bon se pone sexy al estilo navideño
--  Cuatro religiosos detenidos en Nicaragua en tres días
--  Desarrollan en Estados Unidos una píldora que vibra para combatir la obesidad
--  Corte Supremea de EE.UU. rechaza estudiar 'con urgencia' la inmunidad de Trump
--  Noche de sorpresas
--  Tribunal le plancha a Martinelli otro amparo de garantías por caso ‘New Business’
--  Gianna Rueda apuesta por una ‘transición pacífica’ en Udelas
--  Tengo que cuidar mi puesto de recto vitalicio
--  Infidencias y confidencias del 23 de diciembre de 2023
--  England captain Jos Buttler declares West Indies tour 'a success' despite T20 and ODI series losses
--  West Indies vs England: Shai Hope denies tourists in tense finale to seal four-wicket win and 3-2 T20 series victory
--  Hibernian vs Hearts: Sky Sports to deliver series of new innovations for Edinburgh derby
--  Manchester United's Old Trafford home given 1 out of 5 rating by Food Standards Agency after inspection
--  Usai Debat Cawapres Bahas Ekonomi Kerakyatan, Paginya Gibran Kunjungi Pasar untuk Cek Harga Pangan
--  Mahfud 'Serang' Gibran IKN Belum Ada Investor, Ridwan Kamil Ungkap 30 Proyek Rp 40 T
--  OOTD Nagita Slavina Saat Nonton Debat Cawapres, Totalnya 5 Kali Lipat Gaji Prabowo Subianto Sebagai Menteri
--  В Астрахани 22 декабря зажгли огни на главной елке города
--  샌디에이고, 토론토와 크로넨워스 트레이드 논의했다
--  NephroPlus and Indian Society of Nephrology (ISN) announce ‘RENOVATE’: The Data-Driven Academic Contest at ISNCON 2023
--  Nezabudnuteľná Alžbetka z Perinbaby: Dnes je z nej ŠEDIVÁ DÁMA... A takto spomína na nakrúcanie!
+-  India reports 752 new Covid-19 cases, four deaths in 24 hours
+-  Hamasin ja avustusjärjestöjen mukaan YK:n turvallisuusneuvoston päätöslauselma on riittämätön
+-  İYİ Parti'de büyükşehir adayları şekillendi: Formül ülkücü kökenli olmak
+-  Influential Orlando Pirates star suspended for SuperSport test
+-  Türkiyə ordusunun 6 hərbçisi ŞƏHİD OLDU
+-  '돈 받고 백현동 수사무마' 의혹 곽정기 구속, 임정혁 기각
+-  Italiano e lo scalino del grande allenatore, il suo 2023 allontana ogni accusa di integralismo
+-  LEDARE: Ernst och kons fjärde mage. Om julafton och idyllens dubbelansikte.
+-  Ukrainekrieg treibt Asylzahlen hoch
+-  SVETSKI ŠAMPION Zvezda NFL tima serijski pravi decu: Troje za pet meseci!
+-  Zwischen Frühstück und Gänsebraten zum Schwimmen in die Sportbäder
+-  The pretty European city four hours from UK where it's still 19C at Christmas
+-  Inversió de 27 M€ en infraestructures socials, accessibilitat i innovació a la vegueria de Girona
+-  Euro, dolar karşısında güçleniyor! 4.5 ayın zirvesinde (23 Aralık 2023 dolar-euro fiyatları)
+-  ANELI GRCA U SUZAMA ZBOG JANJUŠA, PLAČE KAO KIŠA! On je ignoriše: Ne mogu da se smirim, imam osećaj da se samo igra...
+-  강등권 탈출 이끌까…이재성의 마인츠, 지베르트 감독 대행과 정식 계약
+-  다이소, 차량 안전 미리 준비! ‘겨울철 차량용품 기획전’ 진행
+-  포스코 포항제철소 불 완진… "인명피해 없어"
+-  Terkini: Gibran Sebut-sebut soal Kebun Binatang dalam Debat Cawapres , Cak Imin Lontarkan SlepetNomics, dan Mahmud MD.
+-  TBMM'de 2024 bütçe görüşmeleri sürüyor: İlk 4 madde kabul edildi
+-  Kırmızı ışıkta geçen araca böyle çarptı
+-  메시와 4년 만에 재회→'수아레스 합류' 인터 마이애미 예상 베스트11
+-  Son dakika! 81 ilde 'Sis' Operasyonu: Yüzlerce kişi...
+-  Serie B, Venezia-Lecco: due compagini a caccia di riscatto
+-  민주 “김홍일 방통위원장 임명 막겠다…한동훈 ‘김건희 특검’ 당장 수용하라"
+-  460억원 투입 국민체육진흥공단 운영 스포츠가치센터 원주에 건립
+-  پاکستان ٹیلی کمیونیکیشن اتھارٹی نے عوام کو خبردار کردیا
+-  Primate Ayodele releases 2024 prophecies on Akpabio, Ekpa, Kanu, Igboho, Wike, NSA, others
+-  سُروں کی ملکہ ’نورجہاں‘ کی 23 ویں برسی
+-  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
+-  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
+-  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
+-  An innovative hydrogel for wounds: Combining seaweed and carbonated water
+-  Authentic Switzerland, from cheese to yodelling
+-  Более 1300 вологжан получили в этом году материальную помощь на газификацию жилья
+-  Ganjar Cerita Pernah Tersesat di Jalan yang Benar, Apa Maksudnya?
+-  LIST: Filipino celebrity pregnancies of 2023
+-  Best of Jamaica in London 2023 Winners
+-  Die Spengler-Cup-Pause wird wohl bald Geschichte sein
+-  – وزير المالية يبحث مع وزير الإقتصاد والمالية الإيطالي تفعيل اللجنة المشتركة وتجنب الازدواج الضريبي بين ليبيا وإيطاليا .
+-  Kemenhub Berangkatkan Peserta Mudik Gratis Nataru ke 11 Kota
+-  महाराष्ट्र पर मंडरा रहा जल संकट! बांधों में बचा 64 फीसदी पानी, यहां स्थिति चिंताजनक
+-  Filistin'e gideceğini açıklayan Özel, Erdoğan'a seslendi: Cesaretin varsa...
+-  Google zieht den Schlussstrich: Auf diesen Handys gibt es bald kein Android Auto mehr
+-  ویڈیو بنانے کا جنون ایک اور نوجوان کی جان لے گیا
+-  Montervino avverte il Napoli: "La Roma è la squadra più scomoda da affrontare"
+-  الارياني: استطاع منتخب الناشئين من توحيد مختلف الاطياف والمكونات السياسية خلفهم
+-  ΗΠΑ: Δύο διασώστες κρίθηκαν ένοχοι για ανθρωποκτονία εξ αμελείας για τον θάνατο ενός Αφροαμερικανού
+-  Fake tradie charged for allegedly pocketing $25,000 from people who booked him through job-tasking sites but he never did the work
+-  Товарооборот России и Индии впервые превысил 50 миллиардов долларов
