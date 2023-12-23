@@ -1,51 +1,51 @@
 # Latest News
--  Taiwán informa de más actividad militar china a medida que se acercan las elecciones
--  El precio medio de la luz superará los 69 euros/MWh en Nochebuena mientras cae en Europa
--  Objavio GTA VI trejler pre vremena, sud mu dao neočekivanu kaznu
--  '나는 솔로' 15기 광수, '나솔' 모임서 도청 피해 고백 "CCTV 확보 끝났다"
--  Što će Crkva sa zemljištem koje dobiva u zamjenu za stadion? “Zahvalni smo nogometašima”
--  ‘Blasphemous’ same-sex nativity scene angers conservatives in Italy
--  KAAN için geri sayım başladı: Yakında gök vatanla buluşuyor
--  Restorasi Istana Gyeongbokgung yang Dirusak Butuh Biaya Hampir Rp 56 Juta Sehari
--  レスリング全日本選手権 男子フリースタイル65キロ級 乙黒敗退
--  নির্বাচনে নারী ও সংখ্যালঘু সম্প্রদায়ের নিরাপত্তা নিশ্চিতের দাবি
--  日職》明年開幕戰先發不是「令和怪物」？ 羅德監督看好27歲左投
--  Guterres denuncia "enormes obstáculos" à distribuição de ajuda humanitária
--  Mann wird von Zaun-Teilen eingeklemmt: Tödlich verletzt
--  Cotentin. Avec sa nouvelle activité, Mélanie aide à se sentir mieux grâce à la décoration
--  Pemerintah Terbitkan Pedoman Etika Kecerdasan Buatan, Begini Isinya
--  Vuk Jeremić: Srbiji bolje ide sa atlantskim nego sa EU integracijama
--  Diskusi Pilpres 2024 Dinamis, Satu Putaran Logis?
--  Libra 24 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Hollanda, Ukrayna'ya silah yardımı! 18 F-16 savaş uçağı gönderiyorlar
--  Ukrajinská armáda hlási odrazenie pokračujúcich ruských útokov na Avdijivku
--  کراچی سمیت مختلف اضلاع میں آسمانی بجلی گرنے کی پیشگی اطلاع کا جدید نظام نصب کیا جائے گا
--  Поройни дъждове и наводнения, докато бурята "Золтан" опустошава Германия
--  Elkészült az első magyar gyártású Lynx
--  "Da budemo konkurentni Partizanu"
--  反戰女記者申請參選總統 俄國中選會以「文件不齊」駁回
--  Алберт Попов: Първият манш в Мадона ди Кампильо бе коледният подарък, който исках
--  Luto nacional na República Checa por tiroteiro que matou 15 pessoas
--  TKN: Prabowo-Gibran Komitmen Sejahterakan Seluruh Perempuan Indonesia
--  1 dead after Goldsboro shooting; police say suspect arrested, charged with murder
--  Dilan Polat'ın 'Şampiyonlar Ligi' masasındaydı! Fenomen Eylül Öztürk'ten ölüm tehditi açıklaması: Son şansın...
--  Son dakika: İstanbul Büyükçekmece'de el bombası paniği
--  Le terrain de basket installé avant le passage de la flamme olympique à Dieppe ?
--  Primele alegeri din 2024: Taiwan. De ce alegerile din 13 ianuarie sunt printre cele mai importante la nivel global
--  Derbiye özel prim! Başkanlar kesenin ağzını açtı
--  Indulto de Natal de Lula assume tom esquerdista e veta perdão a presos do 8 de janeiro
--  Vendi ku gratë konsumojnë më shumë alkool në botë
--  海軍士官落海搜獲救生衣 士官妻社團po文請討海人助「回家」
--  日職》填補今永昇太、鮑爾空缺 橫濱調查曾效力道奇的190公分巨投
--  Sánchez viajará a Irak el 27 y 28 de diciembre
--  ‘Share the Warmth Drive’: JSW Foundation’s Heartwarming Initiative
--  Fernando Estévez: El doctor que hizo el milagro
--  Grüne Weihnachten – so (un)gewöhnlich sind die hohen Temperaturen an den Festtagen
--  TKN Jelaskan Soal Hilirisasi Digital yang Disebut Gibran di Debat
--  दिल्ली में प्रदूषण: गोपाल राय ने दी GRAP3 की पाबंदियों की जानकारी, नियम तोड़ने पर लगेगा जुर्माना
--  Jay Cutler Reveals the Most Overlooked and Undertrained Body Part That He Worked ‘Every Other Day’
--  East Kilbride toddler home for Christmas after three-month meningitis battle
--  कर्नाटक में हिजाब पर बैन पर पलटे CM सिद्धारमैया, कहा: अभी नहीं लिया गया वापस
--  Wilfredo León ma przepiękną żonę. To dla Małgorzaty zmienił narodowe barwy!
--  8-vuotias tyttö voitti suurmestarin
--  Itt vannak az emelt szintű matekérettségi szóbeli témakörei
+-  عاجل.. ما حكم منح الصيدليات نقاطا مجانية للمشتري؟
+-  سقوط مسؤول بارز في "الدفاع الأوكرانية" سرق أموال مخصصة لشراء ذخيرة الحرب
+-  توزيع السلال الغذائية في سقطرى اليمنية بحضور مدير العمليات العسكرية المدنية بالقوات المشتركة
+-  جندي إسرائيلي يعترف بمقتل عدد كبير من زملائه ويكشف السبب.. ماذا قال؟
+-  ¿Sabes qué país consume más panetones peruanos en el mundo?
+-  Mandan a casa a víctimas de trata
+-  Netflix Show for Preschoolers Shows Children Attending Gay Wedding - It All Makes Sense When You Look at Who Produced It
+-  Realizarán sesiones extraordinarias para abordar Ganancias, eliminación de las PASO, movilidad jubilatoria y otros temas
+-  Imputados dos jóvenes que hacían gimnasia en sus vehículos circulando en Barcelona
+-  Pokutu 78 eur môžeš dostať, aj keď si za parkovanie zaplatil. Bratislavčania sa búria, je to „dojenie kráv“
+-  สปีดโบ๊ทล่มกลางทะเลพัทยา ช่วย 25 นักท่องเที่ยวปลอดภัย
+-  PETKOVIĆ O LAŽIMA IZ PRIŠTINE: Kurti ne želi normalizaciju odnosa, već želi nove krize i napade na sever KiM
+-  Drone Hits Ship Near Gujarat Coast With 20 Indians Aboard, Causes Fire
+-  이건 기회야! EPL 상위권 팀들 주춤, 리버풀-아스널 맞대결→토트넘 재도약 찬스
+-  AITA loses appeal in ITF tribunal, Indian Davis Cup team will have to travel to Pakistan
+-  '웰컴투 삼달리' 지창욱·신혜선, 빗속 포옹 포착 '멜로 무드 ON' [오늘밤TV]
+-  Germany’s Traffic Light Coalition Unexpectedly Turns Red For EV Incentives
+-  كم بلغ الحمل الكهربائي في أول أيام المربعانية؟
+-  Le ultime dal Grande Torino: Vojvoda in panchina, giocano Lazaro e Soppy
+-  Predsednik Srbije sutra se obraća javnosti
+-  ”Vi blir som ett slags familj” – då Andreaskyrkan ordnar julaftonsmiddag har släktbanden ingen betydelse
+-  '2024 será ano do orgulho italiano', promete Meloni
+-  "Я себе ґвалтувала": Каменський зізналася, що погладшала
+-  ODLAZAK VELIKOG HUMANISTE: Preminuo počasni konzul Srbije u Severnoj Makedoniji
+-  بالفيديو- العدو الاسرائيلي يستهدف فريق المنار في منطقة الخردلي جنوب لبنان.. ولا إصابات!
+-  Rusija i Ukrajina: Novi datum proslave Božića kao dodatni otklon...
+-  Geklärt: Amira und Olli Pocher feiern Weihnachten getrennt!
+-  2023: Η χρονιά της φωτιάς και του νερού μέσα σε 5 συγκλονιστικά λεπτά από το Up Stories
+-  Fenerbahçe Galatasaray derbisi için ünlülerden skor tahmini
+-  Mpumalanga murder suspects to remain behind bars over Christmas
+-  Oppimisteknologiat palauttavat PISA-menestyksen
+-  Governo de MT concluiu 194 pontes de concreto aguardadas há anos pelos moradores
+-  Ankara'da bedava dağıtıldı, ortalık yangın yerine döndü! Yetişen koli koli evine götürdü, bakın birbirlerini ne için ezdiler?
+-  Número de pardos supera o de brancos em Mato Grosso, diz IBGE
+-  Förföljde och dödshotade sitt ex – döms till fängelse
+-  В Азії знайшли одразу п'ять нових видів ссавців: відомо, чому їх не помічали раніше
+-  Buschmann: Für Einsatz von Tasern in allen Bundesländern
+-  Sochan powiedział, czego nie tyka przy wigilijnym stole. A Polacy to uwielbiają
+-  Evine cam balkon yaptıranlar aman! Yargıtay’dan emsal karar çıktı: Milyonlarca kişi cam balkonlarını söktürmek zorunda kalabilir
+-  Украинские войска обстреляли Горловку
+-  Opta - Yildiz è il più giovane marcatore straniero della storia della Juventus
+-  Άγιοι Βασίληδες έκαναν κουπί στον Θερμαϊκό και μαγνήτισαν τα βλέμματα μικρών και μεγάλων
+-  Zo dan! Richard Veenstra veegt de vloer aan met Kim Huybrechts
+-  통영대전고속도로 5중 추돌 사고...교통 정체 지속
+-  VELIKI ŠEF DONEO ODLUKU Ovo se Aniti Stanojlović nikako neće svideti - moraće da se razdvoji od Anđela
+-  تراند اليوم : ضاحي خلفان: ثبت تاريخيا أن الإخوان المسلمين أغبى المخلوقات
+-  Młoda Padwa Zamość liderem grupy trzeciej II ligi
+-  تراند اليوم : شاهد.. "سلمى الشيمي" في أحدث ظهور لها بعد خروجها من السجن: أنا مرغوب فيا وناس كتير بتحبني
+-  تراند اليوم : بالفيديو .. مصطفى الفقي يكشف كيف كان الملك فيصل يعامل زوجة عبدالناصر أثناء أدائها الحج برفقة ابنتها
+-  تراند اليوم : هل يستطيع الشخص المصاب بالإيدز الزواج من فتاة سليمة؟.. بالفيديو طبيبة تجيب
