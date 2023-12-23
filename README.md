@@ -1,51 +1,11 @@
 # Latest News
--  Tahan pemandu pengangkutan awam bawa warga asing palsu
--  'FNC 신예 아이돌' 앰퍼샌드원, 데뷔 첫 크리스마스 선물은…'Snowman' 커버였다
--  '이병헌♥' 이민정, 둘째 출산 소감 "감사한 마음만큼 돌려드리며 살겠다"
--  Video: Así es el narcolaboratorio asegurado en Sonora
--  Colmena, la primera misión espacial mexicana a la Luna ya tiene fecha de lanzamiento
--  Odisha clears projects worth over 1,400 cr rupees in seven districts
--  Purnawirawan TNI, Polri, dan ASN Dukung Anies-Muhaimin untuk Perubahan Indonesia
--  เริ่มแล้ว งานฤดูหนาวและของดีผลิตภัณฑ์ชุมชน อำเภอสันกำแพง
--  Meteoroloji alarm verdi: İkisi birden vuracak!
--  Motisons Jewellers IPO listing date announced. GMP signals strong debut after share allotment
--  Private varsities diluting evaluation: Dr MC Sudhakar
--  Actor Arshad Warsi Brings Home A Toyota Hilux
--  Tanya CCS dan SGIE ke Mahfud dan Cak Imin, Gibran: Itu Istilah Biasa dalam Investasi
--  ส.กีฬาเชียงราย จัดงานวันกีฬาแห่งชาติ พร้อมมอบใบประกาศเกียรติ ฯ
--  Al Jazeera: после ударов Израиля по лагерю беженцев погибли десятки взрослых и детей
--  Политолог Шпицен: большинство поляков — дезертиры
--  Week after marriage, motivational speaker Vivek Bindra booked for domestic violence. Details here
--  Review: ‘Aquaman and the Lost Kingdom’ struggles with balance, but skews positively
--  জাতিসংঘে ভাষণের সময় কান্নায় ভেঙে পড়লেন ফিলিস্তিনি রাষ্ট্রদূত
--  Samsung galaxy s23 fe: Zakaj ta telefon sploh obstaja?
--  Gibran Ngomporin Timses, Ketua KPU Singgung Kedewasaan
--  TKN Klaim Gibran Rakabuming Menang Debat, Ungkit Belimbing Sayur dan Samsul
--  吳欣盈要推一站式網路服務 數位部：早已建置平台
--  New artificial intelligence tool can help detect nerve disorder
--  趙少康為江啟臣站台又口誤 稱「江啟臣是台灣和平的恐怖份子」
--  CCI proposes draft rules on penalty under amended law
--  Nobar Debat Cawapres Tim Pemenangan Ganjar Mahfud
--  เทนยุเชียงใหม่ เสิร์ฟเมนูอาหารญี่ปุ่น โชว์ขึ้นปลาทูน่ายักษ์ น้ำหนักมากถึง 100 กิโลกรัม
--  Эстония готова выдавать Украине военнобязанных беженцев - МИД
--  Bricolacrous propose des idées cadeaux
--  台中市長盧秀燕訪苗栗竹南市場 陪陳超明拜票
--  Les pêcheurs, eux aussi, victimes de l’inflation
--  Pêcheurs de l’Albret à vos cannes
--  College Student Sells Bananas to Support Family & Education
--  Långa fängelsestraff för knarkhandel i Åre
--  Пушков поправил рассуждавшего о войне с Россией финского министра
--  LIVE BBL: McDermott’s Hurricanes take on de Kock’s Renegades in blockbuster clash
--  Polizei: US-Schauspieler Charlie Sheen tätlich angegriffen
--  BMCRI, BBMP ready to handle Covid emergencies
--  年末年始 明石家さんまMC多い訳
--  河南高校鴨子被凍人工湖冰面 老師划船破冰解救
--  Scoreboard for Friday, Dec. 22
--  বহুনির্বাচনি প্রশ্ন (৩১-৪০) : অধ্যায় ৩ | অর্থনীতি ২য় পত্র - এইচএসসি ২০২৪
--  Liked Kamiya then, why target her for Puri: BJD MP Manas Mangaraj on social media influencer entering temple
--  蕭美琴坦言民進黨要檢討改進 陳時中：整體還是比其他黨好
--  太醜了！蔡依林舉辦最醜毛衣爭霸戰 驚人樣貌搶先曝光
--  Stoppschild mit Kampfdrohnen: Neues Banksy-Kunstwerk aufgetaucht - und gleich abmontiert
--  Facturar desde casa, escáneres 3D, y trenes a las puertas de embarque: así será volar
--  Campaign to check traffic violations with help from citizens
--  Skyttedrottningen, poängmaskinerna och säkra utposten
+-  ป.ป.ส. เคลียร์ยาเสพติด 15.7 ตัน เตรียมทำลาย
+-  اليوم.. 4 مواجهات في دوري نجوم العراق لكرة القدم
+-  Do situationships affect our emotional intelligence? Experts say yes, here’s why
+-  Katrina Kaif reveals she looked up to Malaika Arora during modelling days
+-  ‘Al fondo hay sitio’: Alessia es apuñalada por Benjamín en impactante final de temporada
+-  Как ухаживать за волосами зимой? Важные советы от таджикского специалиста
+-  Навстречу выборам: в Костроме начал работу избирательный штаб сторонников Владимира Путина
+-  “เศรษฐา” มวย ONE ลุมพินี สนุกมาก แต่อยู่ไม่ทันคู่สุดท้าย
+-  Lost ancient colony off coast of Australia that hundreds of thousands once called home discovered
+-  Kartal'da İETT otobüsü duman çıkartarak ilerledi
