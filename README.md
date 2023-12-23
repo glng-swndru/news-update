@@ -1,51 +1,51 @@
 # Latest News
--  הדילמה לגבי תקיפה בלבנון אינה חדשה - אבל רלוונטית מתמיד
--  Por qué grandes compañías navieras y petroleras suspendieron sus envíos por el mar Rojo (y qué consecuencias puede tener para el comercio mundial)
--  TRT1 sevilen o dizinin fişini çekti! İzleyiciler bu habere çok üzülecek… Kanal son kararını verdi
--  성탄절에 해맞이 행사까지…서울 인파·안전 관리 ‘총력전’
--  Na današnji dan, 24. decembar
--  English pundit thinks Bayern Munich’s Harry Kane could have captured trophy with Tottenham Hotspur this season
--  Irak ve Suriye'nin kuzeyine hava harekatı: 29 hedef imha edildi
--  ما هو محور فيلادلفيا على الحدود المصرية مع غزة؟
--  KFOR patrolira na sjeveru Kosova nakon navoda da se priprema novi napad
--  Erick Thohir Bicara Soal Transformasi Sepak Bola Indonesia pada FIFA Football Summit 2023
--  Powering Up Queensland: Jackery's Exclusive Debut at 43 Bunnings Warehouses
--  Conocido presentador ucraniano no regresa a su país tras un viaje de trabajo en la UE
--  أفضل دعاء بعد صلاة الفجر لتفريج الهموم.. «واظب عليه ليسر قلبك»
--  Home secretary James Cleverly apologises for 'ironic joke' about spiking wife's drink
--  Stray Kids And BLACKPINK’s Lisa To Perform At Paris’s 2024 Gala Des Pièces Jaunes
--  Diese Terrorgruppe könnte hinter dem Anschlagsplan auf den Kölner Dom stecken
--  Las diabluras de Endrick jugando al futvoley: lo de sus piernas no tiene sentido alguno...
--  Wielka niespodzianka na gwiazdorskiej gali. Gigant poległ, nie będzie hitowego starcia
--  From best performer to celeb fall of the year – we round-up the best and worst moments of 2023
--  Gendarmería solicitó trasladar al indultado por Boric Luis Castillo a cárcel de mayor seguridad por ser un "reo peligroso"
--  Caroline Glachan’s heartbroken mum demands her daughter’s killers never be released from prison
--  BREAKING Deontay Wilder defeated by Joesph Parker after disappointing display on AJ undercard
--  Conflicting Reports on Cody Rhodes Signing New Deal With WWE
--  “Men Prefer Submissiveness”— Ini Edo Shares Opinion on Relationships
--  49ers bunkering in for Christmas Eve; Javon Hargrave may return to face Ravens
--  49ers bunkering in for Christmas Eve; Javon Hargrave may return to face Ravens
--  Nueva caravana migrante se prepara para salir hacia EE.UU. en Navidad
--  Muere el cantante colombiano de vallenato Lisandro Meza
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  District fisheries biologist offers Lake Sakakawea ice fishing preview in webcast
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  Generation Dupe: Why Gen Z admits to buying knock-off goods
--  العربـي يـحتـج رســميـاً
--  موازنة «2024» تحفز السوق العقاري
--  مهرجان قطر للتسوق ينطلق «1» يناير
--  وزير الرياضة والشباب يتوج الفائزين بكأس المؤسس
--  "Após a derrota em Alvalade, era importante marcar um ponto de viragem"
--  Neymar arremetió contra aquellos que propagan el odio en redes sociales
--  Por qué Mickey Mouse pasará a ser de dominio público y cualquiera podrá usarlo sin pedir permiso a Disney
--  Área automotriz cierra 2023 con 80 % de su capacidad productiva
--  PDP demands apology over fake story against Zamfara governor on EFCC’s Instagram page
--  Covid : l'invité inattendu des fêtes - 23/12
--  Ciara Mageean runs fastest-ever parkrun by a woman
--  Srpski vaterpolisti nastavili pripreme: U tim se vratili skoro svi povređeni
--  QUI ROMA - Mourinho: "Abbiamo giocatori con storia clinica difficile, non possiamo fissare obiettivo chiaro. Senza Smalling, Dybala e Sanches non siamo una rosa fantastica"
--  Edmonton’s ‘Can Man Dan’ camping out in support of food bank once again
--  Conoce a Carla Roccuzzo, la hermana de Antonela y cuñada de Messi que se casa este sábado
+-  ‘TV쇼 진품명품’ 독특한 매력과 우아한 기품이 느껴지는 ‘분청사기’ 등 감정 의뢰
+-  [기고] 오토바이 안전모 선택이 아닌 필수
+-  진도경찰서, 자율방범연합대 공식 출범
+-  Bolestná strata: Známy Slovák zomrel priamo na Vianoce!
+-  أنيقة وساحرة.. أبرز إطلالات النجمات في حفل دير جيست 2023
+-  Ataque al Grupo 5: presuntos delincuentes disparan contra residencia vinculada a la orquesta
+-  لمنع حصوات الكلى.. تجنب تناول هذه الأطعمة
+-  Rui Rocha diz que "quadradinho da IL tem de estar" no boletim de voto
+-  Charlatanes vs Expertos: cómo sobrevivir al 'cuñadismo financiero' estas Navidades
+-  Jayson Tatum, Jaylen Brown lead Celtics to a 145-108 rout of the Clippers
+-  „Derybos baigtos. Įsiveržkite net civilių aukų kaina“. Izraelio tankas į įkaitus atidengė ugnį. Kas vyksta (Video)
+-  Metė prištinę Putinui. Kas nutiko prieš karą nusiteikusiai kandidatei į prezidentus
+-  రేవంత్‌లో రాజన్నను చూస్తున్నాం
+-  '역시 빛카리오' 비카리오, '미친 선방쇼'로 팀 승리 사수...英 매체 팀 내 최고 평점 9점 부여
+-  España saca rédito de los festivales de música tras la pandemia
+-  España saca rédito de los festivales de música tras la pandemia
+-  España saca rédito de los festivales de música tras la pandemia
+-  Refugee family arrives in B.C. with help from volunteers
+-  Roma, de Mourinho, volta às vitórias ao bater em casa o Nápoles
+-  Las ganancias retornan a los parques de ocio tras encauzar su recuperación
+-  Las ganancias retornan a los parques de ocio tras encauzar su recuperación
+-  Las ganancias retornan a los parques de ocio tras encauzar su recuperación
+-  Forskare varnar för det sjätte massutdöendet
+-  Saka attore non protagonista dell'infortunio di Tsimikas, la sua versione dopo Liverpool-Arsenal
+-  హైకోర్టుకిచ్చే భూములను పరిశీలించిన మంత్రులు
+-  Bakan Güler, 29 hedefin imha edildiği hava harekatlarını sevk ve idare etti
+-  Seis países de la UE no se suman a la declaración sobre garantías de seguridad para Ucrania
+-  El Cartero Real recibirá a los más pequeños desde el martes 26 en la Plaza Mayor
+-  Nadia se va, nadie se queda
+-  Nadia se va, nadie se queda
+-  Nadia se va, nadie se queda
+-  Названа стоимость отелей на Новый год в популярных у туристов городах
+-  తప్పుల్ని కప్పిపుచ్చుకునేందుకే స్వేదపత్రం
+-  Ekonomi tumpuan kerajaan, kebimbangan terhadap ekstremisme – Anwar
+-  Pity The Poor Climate-Aware Billionaire Oligarchs
+-  ВС России уничтожили БМП Bradley и четыре танка ВСУ
+-  وزير العدل: خطة 2024 التدريبية تراعي «التنمية الوطنية»
+-  5 Tempat Liburan di Sekitar Bogor Tanpa Perlu Lewat Puncak
+-  تدريب الأعضاء الجدد بـ «الوطني لحقوق الإنسان» في الأردن
+-  مرتزقة يقاتلون حماس بغزة.. تحذيرات دولية وصمت إسرائيلي
+-  Bolaños aplaca el malestar de los jueces tras 40 días de alta tensión por el pacto con Junts
+-  Bolaños aplaca el malestar de los jueces tras 40 días de alta tensión por el pacto con Junts
+-  Rajuk penyu belimbing di Rantau Abang
+-  Two hospitalized following accident
+-  아베의 그림자가 너무 짙었나…어둠 속 헤매는 기시다
+-  ¿Qué le pasó a Irving Fabricio? Se estrelló en su motocicleta contra un vehículo estacionado en Guasave
+-  Edo 2024 and Race For Osadebe House
+-  Boxing: Joseph Parker stuns Deontay Wilder in heavyweight fight in Saudi Arabia
+-  కులోన్మాద హత్యాయత్నం కేసులో నలుగురి అరెస్టు
+-  El paraguas protector
