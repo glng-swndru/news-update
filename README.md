@@ -1,51 +1,51 @@
 # Latest News
--  ارتفاع عدد الشهداء الصحفيين إلى 99 منذ بدء العدوان على غزة
--  واشنطن بوست: مستوى الدمار في غزة لا مثيل له في هذا القرن
--  أردنيون مسيحيون يدينون لقاء رؤساء كنائس فلسطين برئيس الكيان - أسماء
--  Per Kūčias į kosmosą kils pirmas toks skrydis į Mėnulį
--  [ŽT] „Tai išgelbėjo karių gyvybes.“ IDF pirmą kartą parodė, ką paleido į „Hamas“ tunelius (Video)
--  „Rusija perėmė iniciatyvą kare Ukrainoje“. NYT skelbia karčią žinią
--  Ucrania dice que los camioneros polacos desbloquearon un paso fronterizo clave
--  Polonia y Ucrania crearán grupo de trabajo para resolver disputas por temas comerciales
--  Comisión electoral rusa rechaza candidatura de antibelicista Duntsova para competir contra Putin
--  Ένας νεκρός πυροσβέστης και τρεις τραυματίες σε τροχαίο στα Γιάννενα - Διαλύθηκαν τα δύο αυτοκίνητα
--  Sudah bermastautin lebih 20 tahun, lelaki Rohingya kecewa Indonesia enggan beri kad pengenalan
--  Сколько стоит свидетельство о рождении в Таджикистане, и в какой срок следует регистрировать ребенка?
--  شرکت تولید مواد خام برای بافت قالین در بامیان ایجاد شد
--  Itália: Vlahovic salta do banco para dar vitória à Juventus sobre o Frosinone
--  Accused sentenced to 10 years for raping minor girl
--  "في عالم من دون محاسبة تكبر المحسوبيات ويتفشى الفساد"... مكة: كفى غرقًا حان وقت الحساب!
--  DA LI ABA LIGA I DEFINITIVNO GUBI JEDNO MJESTO U EVROLIGI? Bodiroga se u Beogradu sastao sa njom - stiglo i saopštenje!
--  A-League Men: Perth Glory score three second-half goals to beat Macarthur FC 3-2
--  Krznarić otkrio kako je nastao Kićin najveći hit: ‘Jedne večeri sam se s Cetinskim vraćao kući’
--  PF Near Me on December 27
--  الأردن وقطر يبحثان وقف الحرب المستعرة على غزة وما سببته من معاناة إنسانية
--  Antarctic Davis Station runway shelved after $19 million spent on consultants and advice
--  Bruce Lehrmann's defamation trial has now wrapped in the Federal Court, but a decision isn't expected until well into next year
--  Última llamada para los Steelers: ganan o adiós Playoffs
--  Demanda Corral por estafa con camioneta
--  How Jenny the chihuahua became a pawn for Facebook fraudsters cheating Australians
--  خالد مرتجي: كان الله في عون موديست «ربنا يفتحها عليه»
--  Manchester United: six choses à savoir sur Willy Kambwala, le jeune Français titulaire pour la 1re fois en Premier League
--  DONIJELI SMO KONAČNU ODLUKU - NESTOROVIĆ SE OGLASIO PRED NOVINARIMA: Evo šta će biti sa beogradskim izborima
--  Canarias investiga por primera vez si el suelo volcánico distingue sus vinos
--  Sosial mediada 30 dəqiqədən artıq olmaq...
--  Argentina: River Plate, con De la Cruz y Seba Boselli, se adjudicó el Trofeo de Campeones
--  بيلينجهام يستعين بطباخ بنزيما في ريال مدريد
--  Congress workers behaved like a frenzied mob: Jayarajan
--  Pastoor René Aarden leidt op kerstavond vijf diensten en sjeest van dorp naar dorp – ‘Maria krijgt bij mij een vijfling’
--  "KURTI LAŽE I OBMANjUJE" Petković: Branićemo srpski narod i nastavićemo da čuvamo mir i stabilnost
--  Man Utd fans left pining over Louis van Gaal years and threaten to ‘switch over to Xmas movie’ in ‘dire’ West Ham clash
--  النصيري على رادار مانشستر يونايتد
--  Коринтианс се разделя с бивш играч на Лудогорец
--  Senior Citizens के लिए UP में लिया गया बड़ा फैसला, बच्चों से दुखी हुए बुजुर्ग, तो कर सकेंगे घर से बेदखल
--  Popular iPhone and iPad photo editing app brings watermark feature and more
--  भविष्य की पीढ़ियों को करें प्रशिक्षित, साक्षी और बजरंग के हैरतअंगेज फैसलों के बाद आया खेल मंत्री अनुराग ठाकुर का बड़ा बयान
--  Σταμάτης Μαλέλης: Καλά έκανε κι έφυγε η Σκορδά, ο Λιάγκας μπορεί να γυρίσει στην ενημέρωση
--  Bingöl’de kaza. 1 ölü, 4 yaralı
--  Kluczowe 24 godziny dla Legii Warszawa. Długo wyczekiwany transfer o krok
--  Matrubhoomi | भारत को बचाने के लिए निकले लौह पुरुष की कहानी | Sardar Patel: Telling the Untold
--  Laura Bozzo aprovecha su visita a 'De Viernes' para cargar contra Naomi: "¿Dónde está ella?"
--  Mutter ließ festgeschnallten Sohn (1) verdursten – „war für sie ein Störfaktor“
--  Levelling up funding for Scotland increased £840m in 2023, Scottish Secretary Alister Jack said
--  “किसान, मजदूर और बेरोजगारों की आवाज़ बन रही यूपी जोड़ो यात्रा”, यूपी कांग्रेस अध्यक्ष अजय राय से खास बातचीत
+-  300.000 Wunschzettel in Weihnachtspostfiliale in Himmelpfort eingegangen
+-  Invitan a usar servicio de acompañamiento bancario
+-  Une tren interoceánico el Golfo con el Pacífico
+-  ¿Qué es la depresión navideña y cómo evitarla?
+-  Кетма-кет 11 қурбон: умрбод қамалган “киракаш” синфдошларнинг серияли қотилликлари.
+-  Андижонда ҳоким маҳаллада кутубхона қуришни буюрди, уни 12 ёшли бола бошқаради.
+-  هذه أبرز 8 إنجازات طبية في 2023
+-  Ο Παναθηναϊκός ανακοίνωσε το sold out με τον Ερυθρό Αστέρα
+-  وول ستريت جورنال: سيطرة الاحتلال على شمال غزة لا تعني القضاء على حماس
+-  Кандидат на листата „Србија не смее да запре“ за пратеник во српското Собрание штрајкува со глад
+-  Rememora Sancti Spíritus aniversario 65 de su liberación (+ fotos)
+-  خريطة الأسعار اليوم: ارتفاع اللحوم والجبن وانخفاض السكر
+-  Bolão em Mato Grosso fatura prêmio após acertar 4 números na Quina
+-  Terceiro grupo de brasileiros repatriados de Gaza chegam ao Brasil
+-  Secretaria de Gestão divulga resultado dos prêmios Servidor Eficiente e Modernização do Serviço Público
+-  Kingdom of the Planet of the Apes director Wes Ball confirms new trilogy
+-  Mićić i Perišić najbolji sportisti Beograd - Dudi Ivkoviću nagrada za životno delo
+-  Macron: Terrordåd kan stoppa OS-invigningen
+-  Salto Uruguay…y casiocho meses al margen
+-  ৪২ দিন পর ঘরে ফিরলেন কাশ্মীরে নিহত তিনজন
+-  तीन करोड़ की व्हेल मछली की उल्टी जब्त !
+-  NYT: Putin skickar hemliga trevare om vapenvila
+-  Sismo en el noroeste de China que dejó 148 muertos causó pérdidas millonarias.
+-  Pertinent question of our time: Looking at Climate Financing, concerns and actions
+-  MARKO POZAJMIO PARE KOMŠIJAMA I DEBELO SE POKAJAO: Bili smo dobri prijatelji, bilo je na poverenje! Mogu li do para bez priznanice
+-  Božićni ugođaj i trenovski komadi na sunčanom Stradunu
+-  Don’t shake or stir: drinks firms push bottled cocktails for the holidays
+-  Bayern-Star verrät seine Zukunftspläne – und wie es in München weitergeht
+-  Little KITEs sub-district camps will begin on December 27
+-  Dengue autóctono en Córdoba: tres personas dieron positivo y son los primeros de la temporada
+-  Талентираниот Јилдиз издрибла тројца и постигна гол првенец, Јувентус до три бода против Фросиноне (ВИДЕО)
+-  СМИ: польская компания подала в суд на фирму из США из-за контракта по СПГ
+-  Ing. Francisco Cano (Nacional)»No estamos tan lejos de la decisión de jugar»
+-  Island: Bewohner von Grindavík können Weihnachten daheim feiern
+-  Ispovijest udovice Siniše Mihajlovića: ‘Znate li što je napravio tjedan dana prije smrti? Baš mi nedostaje...‘
+-  จัดเต็มกับความสุขส่งท้ายปี ในงาน Music at the Museum 2023
+-  Preso por hurtar un aire acondicionado de un colegio en San Félix
+-  Zgjedhjet presidenciale në Rusi/Përjashtohet nga gara gruaja që sfidoi Putin
+-  Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
+-  Empresa de Florida vendía productos '100% estadounidenses' y en realidad eran chinos
+-  POTRESNA ISPOVEST JEDNE OD NAJLEPŠIH ŽENA NA BALKANU: Bila sam u paklu droge, prostitucije i bluda! Zatrudnela sam, a on... FOTO
+-  [포토] 김숙·김병현·정호영·정지선·추성훈·히밥·전현무, '2023 KBS 연예대상 참석'
+-  Ind vs SA Test: पिच क्यूरेटर के बयान से हलचल, पहले टेस्ट में बनाई गई ऐसी पिच
+-  Vaiko accuses Centre of showing partiality in release of funds to States ruled by Opposition parties
+-  ‘Curse’ of Dawson’s Creek – including double amputation after horror hit & run and drunken bust-up at hockey game
+-  أمريكا تستعد لتخفيف القيود على بيع الأسلحة للسعودية.. "توقيت حساس"
+-  В Киеве демонтировали монумент участникам Январского восстания 1918 года
+-  Anger in remote parts of Indian-controlled Kashmir after 3 are killed while in army custody
+-  Figaro: 23% французов планируют перепродать ненужные подарки на Рождество
+-  Atilla Taş tutuklandı! Eğlenmeye gitti olay çıkartıp polisle tartıştı
