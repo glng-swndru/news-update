@@ -1,51 +1,51 @@
 # Latest News
--  나주시, 내년도 정부 예산 4513억원 확보
--  포스코 광양제철소, 달콤한 크리스마스 선물
--  장흥군, 전남도 투자 유치 ‘최우수상’
--  광양시, 해양수산 특화 복합문화공간 ‘광양수산물유통센터’ 개장
--  곡성군, 2024년도 남부권 광역관광 개발 442억원 확보
--  고흥군, 군정 평가·자문위원회
--  광양시 진상면 주택화재
--  담양군, 전남도 지역경제 활성화 ‘우수’
--  여수광양항만공사, 세 번째 해양 폐플라스틱 업사이클 제품 제작
--  국민의힘 엄태영 의원"2024년 제천·단양 발전 위한 국비 예산 2,088억원 확보"
--  더불어민주당 신동근 의원"인천 서구 발전 위한 2024년도 국비 1,370억원 확보"
--  국민의힘 윤재옥 당 대표 권한대행"한동훈 비상대책위원장 후보,탈진영 정치.탈팬덤정치 시대 열 잠재력 가지고 있는 분"
--  더불어민주당 홍익표 원내대표"국민의힘 한동훈 비대위원장,윤석열 대통령과의 관계 잘 설정해 주십시오"
--  더불어민주당 김주영 의원"2024년도 예산안에 김포골드라인 증차 지원 45.9억원,고촌 신곡사거리 입체교차로 설치 5억원,"
--  국민의힘 정희용 의원"국회 예산안 심사에서 지역구 8개 사업 신규 및 증액 확정"
--  더불어민주당 오기형 의원"우이방학 경전철 국비예산 13억원 반영"
--  국민의힘 최춘식 의원"2024년도 포천ㆍ가평 주요사업 추진 위한 정부예산 780억원 확정"
--  국민의힘 김정재 의원"2024년도 예산안 신규사업 58건 등 국비 1조 4,107억 원 확보"
--  이광재 국회사무총장"국회,전주국제영화제와 손잡고 국민과 문화 소통"
--  중국 불산시 방문단, 국제교류 활성화위한 성남시의회 방문
--  성남도시개발공사, 지역 이웃을 위한 김장김치 130박스 전달
--  한국전자기술연구원노동조합, 성남시청소년재단에 청소년을 위한 장학금 전달
--  Priyanka Chopra gives glimpse of holiday dinner with Nick Jonas, see pics
--  85 per cent of Gaza’s people displaced in 11 weeks
--  Search ops underway in Poonch a day after ambush
--  At least 20 villagers killed during rebel attack
--  Thankful: Congress on Ram temple ceremony invites
--  Storm disrupts train services in Germany, kills woman in Belgium
--  US hampering prisoner swap: Russian official
--  ‘หมอบอย เคลียร์ชัด’ สรุปดวงปี 2567 เผย 2 ราศีดวงพุ่ง ดวงปังที่สุดในรอบ 12 ปี
--  Khi về già, cố gắng đừng tham gia vào những việc này của con cái, nếu không muốn quan hệ trở nên xấu hổ
--  Se desata balacera al interior de taquería
--  กรมการปกครอง เปิดยื่นขอตรวจ DNA ช่วยคนไทยตกหล่นทางทะเบียนราษฎร
--  Marcos creates LGBTQIA+ Special Committee
--  Philadelphia’s Embiid plays through ankle injury to extend streak, 76ers beat Raptors 121-111
--  Will We Recycle FPGAs In The Future?
--  Lotstvister, brottsmisstankar och egen fotbollsklubb – HBL tittade närmare på Åborederiet som ständigt är i rubrikerna
--  Så undviker du konflikter under julen
--  I tyska Flensburg finns en livsstil som liknar den finlandssvenska – utom på en punkt
--  Därför är den danska minoriteten i Tyskland så stark just nu
--  Black Woman In US Dials 911 To Report Domestic Violence, Shot Dead By Cop
--  Pro-Khalistan Slogans On Walls Of Hindu Temple In US, Probe On
--  Nationshus som tusentals finlandssvenskar besökt räddas – det blir ingen rivning
--  Jamus Lim meets resident who says ‘All good governments need good opposition’
--  बाबा मनीराम अखाड़ा तालाब का होगा जीर्णोद्धार एवं सौंदर्यीकरण:बनेगा ओपन जिम, पेंटिंग के साथ तालाब के बीच में लगेगा फाउंटेन
--  박지원 “이낙연, 분열의 길로 가고 있어…옛날로 돌아오라”
--  'Sister Wives': Robyn Calls Out Kody for Putting the Blame on His Wives
--  이스라엘, 주민 대피령 내려놓고 초대형 폭탄으로 무차별 폭격
--  'Sister Wives' Recap: Christine Brown Says She Wants a Friendship With Ex Kody
--  Aston Villa offer update on Lenglet amid exit talk
+-  Cantora gospel de 18 anos morre após acidente grave. Detalhes!
+-  Volante Ramon Carvalho encaminha permanência na Ponte
+-  Animal Box Office Day 22: ‘डंकी’ और ‘सलार’ के बीच बुरी फंसा ‘एनिमल’, हो गया ऐसा हाल
+-  Rappler Communities: Tech FAQs
+-  পরিবারের দ্বন্দ্ব মেটাতেই বিলম্বিত পদক্ষেপ?
+-  Internauta compara a Dani Flow con Gustavo Cerati: "Es la reencarnación"
+-  Christian Bale perdeu 20 quilos para um filme que (quase) ninguém viu!
+-  Homem-Aranha 3: Pause aos 10 minutos e 17 segundos e dê uma boa olhada no capacete que Peter Parker está usando
+-  Arroz de natal que é sucesso sem muito trabalho, abra
+-  Molho Branco, ou béchamel: receita clássica, fácil de fazer
+-  Kentsel dönüşüm karşıtlarına sert tepki! Cumhurbaşkanı Yardımcısı Yılmaz: İnsanımızın canıyla oynuyorlar
+-  Fas'ta Filistin'e destek gösterileri düzenlendi
+-  ‘রিকশাচিত্রের কাজ আমি করতাম, নাম লিখতাম বাবার’
+-  Ecuador advierte que actuará con "absoluta firmeza" ante eventual asilo político de México a Glas
+-  Francia Márquez pide no "sembrar odio" tras hallazgo de dos niños africanos en aeropuerto de Bogotá
+-  Ban Vs Nz: जो कभी नहीं हुआ वो बांग्लादेश ने न्यूजीलैंड में कर दिया, वनडे में 9 विकेट से रौंदा
+-  दिल्ली में फिर प्रदूषण की मार, ग्रैप-3 लागू… वाहनों समेत इन चीजों पर लगी पाबंदी
+-  អគ្គនាយកដ្ឋានអន្តោប្រវេសន៍ ប្រកាសធ្វើតេស្ត រកសារធាតុញៀនលើមន្ត្រីក្រោមឱវាទរបស់ខ្លួន
+-  Canciller cubano califica como lamentable resolución del Consejo de Seguridad sobre Gaza
+-  John Stamos Remembers Bob Saget In Social Media Post With ‘Fuller House’ Cast
+-  سهرة غنائية لـ هانى شاكر الليلة فى بيروت احتفالا بالكريسماس
+-  اليوم.. بدء تلقى اعتذارات المنتدبين لأعمال امتحانات الشهادة الإعدادية بالغربية
+-  الرئيس الجزائرى يلقى خطابا أمام البرلمان يتناول الأوضاع السياسية والاقتصادية
+-  هل يجوز تنفيذ رحلات عمرة خارج الشركات السياحية؟ .. القانون يجيب
+-  موعد مباراة الأهلى القادمة أمام سيراميكا فى السوبر المصرى والقناة الناقلة
+-  مواعيد قطارات السكة الحديد فى الوجهين البحرى والقبلى
+-  لو اشتريت سيارة مستعملة وطلعت "بايظة".. اعرف هتاخد حقك إزاى
+-  حركة العدل والمساواة السودانية تنعي الحاجة /عائشة محمد ازرق
+-  المعمل الكميائى يحدد مصير ميكانيكى بعد ضبطه وبحوزته 5 كيلو حشيش بالشروق
+-  نقيب البيطريين: فتح أبواب مشروع العلاج اليوم لإتاحة فرصة الاشتراك للأعضاء
+-  إيه الفرق؟ أبرز الاختلافات بين هاتفى iPhone 14 Pro Max و iPhone 12 mini
+-  “म ‘पर्फेक्सनिस्ट’ होइन, छरिएको लेखक हुँ”
+-  Up to 90% waiver of traffic fines for motorists in TS
+-  En Chiapas, se replica la construcción del sistema de salud más grande del planeta: Zoé Robledo
+-  Reviven demanda del bebé en la portada del disco "Nevermind" de Nirvana
+-  Mom Sentenced in Gruesome Death of Daughter, 8, She Told to Crawl Under Stopped Train
+-  Lack of contribution to network costs from large traffic generating platforms a 'major challenge': COAI
+-  留戀山區風景...長髮女深夜赤腳短褲爬山 警徹夜搜山尋獲
+-  Η Κρήτη το χειμώνα: 7 πράγματα που μπορείς να απολαύσεις καλύτερα
+-  KT·LGU+ 점유율 싸움에 정부 통계방식 바꾼다…‘휴대폰회선’ 상단 배치
+-  게임업계에 산타 떴다… 크리스마스 이벤트 ‘펑펑’
+-  Ipswich Town Akan Pinjamkan Elkan Baggott Usai Bela Timnas Indonesia di Piala Asia 2023
+-  Canada: '2024 में ट्रंप जीते तो...' कनाडा के पीएम जस्टिन ट्रूडो ने जताई चिंता, दुनिया को किया आगाह
+-  New Zealand v Bangladesh third ODI scores
+-  メリーランド州エルクトンに位置するGORE-TEX®の本社をHAVENがレポート
+-  ‘Praja Palana’ to take govt to people’s doorstep in Telangana
+-  2 infants, 62-yr-old test Covid positive in Telangana
+-  Izbor največjegaslovenskega zvezdnika
+-  Sausar: हनीट्रैप में महिला कर्मचारी निलंबित, अश्लील वीडियो दिखाकर व्यापारी से की थी 50 लाख की डिमांड
+-  Dialog dengan Nelayan Indramayu, Ganjar Pranowo Janjikan Optimalisasi Maritim
