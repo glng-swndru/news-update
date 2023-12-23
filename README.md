@@ -1,11 +1,11 @@
 # Latest News
--  Siddhant Chaturvedi recalls partying with Shah Rukh Khan at Mannat
--  Pyotr Qlıboçko İlham Əliyevə məktub göndərdi
--  Masa Berlaku SIM Habis Saat Libur Nataru, Akan Dapat Dispensasi
--  مبتعث يدرس على حسابه الخاص.. هل يستحق الدعم من حساب المواطن؟
--  Delhi’s Air Quality Dips To ‘Severe’ Category, Water Sprinklers Deployed Across City
--  Una nueva generación de mujeres cambia las reglas de la Navidad: "No me enterraré en la cocina"
--  West Ham vs Manchester United, Erik Ten Hag Lega Christian Eriksen Kembali
--  Bubblegum Movie: యాంకర్ సుమ కొడుకు సినిమా పెద్దలకు మాత్రమే
--  Christmas 2023 : ख्रिसमसच्या उरलेल्या केकचं काय कराल? 'असा' केक साठवून ठेवा, महिनाभर टिकेल
--  Netherlands looks to waive €835 name change fee for descendants of enslaved people
+-  Ram Charan and Upasana Konidela meet Maharashtra CM Eknath Shinde
+-  Solar mission Aditya-L1 will reach destination on January 6: ISRO chairman
+-  Udhayanidhi Stalin: ’நிதியை தான் கேட்டேன்.. தவறாக பேசவில்லை ’ - நிர்மலா சீதாராமன் குற்றச்சாட்டை மறுத்த அமைச்சர் உதயநிதி
+-  Watch: Russian Paratroopers Hit Ukrainian Infantry Near Artemovsk With Drones
+-  PTCL landline, broadband prices increased by 10pc after latest surge
+-  Ukraine Oo Shaacisay In Ay Soo Riday Diyaarado Dagaal Oo Uu Ruushku Leeyahay
+-  मोटरसाइकल दुर्घटनामा दुईको मृत्यु
+-  Tänaval maganud ja alajahtunud inimeste elud päästeti
+-  Wow! Lottie Tomlinson zeigt durchtrainierten After-Baby-Body
+-  Sustainable Tourism Harapannya Bisa Bantu Kembangkan Desa Wisata
