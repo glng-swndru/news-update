@@ -1,51 +1,51 @@
 # Latest News
--  KFC vacsorára: melyik ország karácsonyi hagyománya?
--  20258 شهيداً و53688 مصاباً.. منذ بدء العدوان الإسرائيلي على غزة
--  Życzenia z okazji Świąt Bożego Narodzenia składa Bożena Krygier, przewodnicząca Rady Miasta Puławy
--  Prezydent Andrzej Duda zawetował ustawę okołobudżetową
--  Turkey says 12 soldiers killed in clashes with Kurdish militants
--  8 موضوعات محظورة على الاعلام العبري دون موافقة الجيش
--  OpenAI inicia tratativas para nova captação a um valuation de pelo menos US$ 100 bi
--  Incrementan 45% enfermedades respiratorias
--  חי מליגת העל: מכבי תל אביב - הפועל חיפה 0:0 (רבע 1)
--  Daily deals Dec. 23: $250 off M3 MacBook Pro, iPhones as low as $110, $20 off AirTags, more
--  Sabahetja e Prishtinës
--  Бестемьянова: на чемпионате России в Челябинске был фантастический уровень фигурного катания
--  Kickin’ It with Kiz: Dear Santa, could you please bring us a new Rockies owner that has a clue?
--  Tercera torre más alta de Los Ángeles se vendió por 45% menos que el precio de 2014
--  Juventus, nuova inchiesta della Procura di Roma: nel mirino il bilancio 2022
--  ללא הזרים ועם 6 צעירים: כך נראה סגל מכבי למשחק מול הפועל חיפה
--  CAN 2023 : Sept arbitres du Maroc retenus
--  Journalist shares what Richarlison did after Tottenham goal v Everton
--  맨시티 제쳤다… '손흥민 11호골-득점 2위' 토트넘, 에버턴 2-1 꺾고 4위
--  ‘리그 11호골-득점 2위’ 손흥민, 득점왕 가능성은[초점]
--  어느덧 득점 2위… 손흥민, 득점왕 시즌 우연 아니었음을 증명하다[스한 이슈人]
--  ‘I Did What I Had To Do’: Rihanna Reveals Her Viral Pregnancy Announcement At The Super Bowl Wasn’t Planned And Explains Why She Went Through With It
--  Tribunal sostiene descalificación del PNP a exfuncionario municipal que buscaba retar al alcalde de Cataño
--  Mansha Pasha reveals name of Indian actor she wants to work with
--  'सांसदों ने इरादतन मचाया था हंगामा', जगदीप धनखड़ ने मल्लिकार्जुन खरगे के पत्र के जवाब में और क्या कहा?
--  Vegavita CBD Gummies – {Review 2024} is it safe To Use and Worth to Buy?
--  VP Dhankhar writes to Kharge again, invites him to residence on Christmas Day
--  Umang 2023: Ranbir Kapoor and Bobby Deol hug each other as they pose together
--  Заради силния вятър фериботът Оряхово - Бекет спря работа
--  ФОТО. 20-летний украинский футболист Динамо женился
--  ECOWAS delegation in Sierra Leone after 'coup' attempt
--  Want to get through airport security faster? Avoid these 3 common mistakes
--  Dışişleri Bakanı Fidan, şehit askerler için taziye mesajı yayımladı
--  Arsovska mori pjesë në puntorinë për programet e reja për përkrahje të ndërmarrësisë dhe inovacionit
--  Totenhem zaustavio Everton, Luton uzeo mjeru Njukaslu
--  Haven’t used uncivil words against Union Minister, says Udhayanidhi
--  Hrvatska puni tribine na ušminkanoj zagrebačkoj Mladosti: ‘Velika je to stvar za hrvatski sport‘
--  BFM Stratégie (Cours n°254): Un an après ChatGPT, quel est l'impact business de l'IA générative ? – 23/12
--  إشادات واسعة بتنظيم السعودية كأس العالم للأندية
--  Naci Görür Hükümete Seslendi! 'Üzülerek Söylüyorum...'
--  Zračna luka Mostar uskoro u novom ruhu, evo kako će izgledati
--  Berater-Legende Roland Berger rechnet mit Bundeskanzler Scholz ab: „Er kann kein Land regieren“
--  Priyanka no longer U.P. in-charge; Sachin Pilot to handle Chhattisgarh
--  I’m an etiquette expert – why you should NEVER announce your pregnancy or engagement on Christmas Day
--  Славата с 6 контроли през зимата, две от проверките са срещу елитни тимове
--  ندوة حوارية تناقش المسرح السعودي في ظل رؤية 2030
--  أبو عبيدة يعلن فقدان الاتصال بـ5 أسرى ويرجح مقتلهم
--  ارتفاع عدد شهداء قطاع غزة إلى 20258
--  بن حبتور: اللغة العربية مرتبطة بتاريخ اليمنيين
--  Electric vehicle ecosystem in India needs a push: experts
+-  الاحتلال يعترف بمصرع 5 جنود في غزة
+-  Juniorkronorna koki valtavan takaiskun juuri ennen MM-kotikisojaan
+-  Zupa migdałowa na Wigilię, zrazy polskie na świąteczny obiad
+-  Kahramanmaraş'ta üç evi kontrolüne alan yangın söndürüldü
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 25 декабря 2023 года
+-  Praia: Feira Criativa de Natal decorre no Palácio Ildo Lobo até amanhã
+-  Kal Ka Kark Rashifal: विद्यार्थी वर्ग व्यवस्थित बना कर रखें अध्ययन की रूपरेखा, नहीं होगी कोई परेशानी
+-  Collision in Georgetown kills 90-year-old pedestrian
+-  Crash leaves 1 dead in Marion County, troopers say
+-  London police investigate the alleged theft of a Banksy stop sign decorated with military drones
+-  Stay safe on Idaho’s snowy roads with these winter driving tips
+-  Zo gaat het nu met deze oud-deelnemers van All You Need Is Love: ‘We hebben een dochtertje!’
+-  ‘Gotten away with it’: BBC pundit thinks Tottenham 24-year-old was ‘fortunate’ vs Everton
+-  Spotify-Jahresrückblick: Diese Songs, Künstler und Podcasts hat Datteln besonders oft gehört
+-  Hoogwater teistert Nederland: ‘Al onze auto’s staan in het water!’
+-  S obitelji se udobno zavalite na kauč i gledajte božićne filmove
+-  NFL Week 16 predictions: Picks against spread for Saturday games
+-  Asya’da Türk rüzgarı: Karsan e-JEST Japonya yollarında!
+-  Inverness man 'crossed the line' when encountering ex partner
+-  Hoogwater teistert Nederland: ‘Al onze auto’s staan in het water!’
+-  أتلتيكو يعبر إشبيلية ويتقدم للمركز الثالث في الدوري الإسباني
+-  ΚΟΣΚΕΛΑ: «Ήταν η καλύτερη εμφάνισή μας, αλλά ξανά μηδέν βαθμοί»
+-  James Wan adapterait Call of Cthulhu en film et en jeu vidéo
+-  Comment des hackers tentent de dérober votre compte Instagram
+-  Tesla : le Cybertruck a de gros soucis de batterie
+-  La commission européenne a décidé de surveiller 3 grands sites pornographiques
+-  Test – Pocky & Rocky Reshrined : le retour d'un classique du shoot them up
+-  Fenerbahçe derbi için hazır
+-  Çağlar, 4 dakikada atıldı! Atletico 3 puana uzandı
+-  Se desconoce el paradero de Noriega. Titulares noticiosos del 23 de diciembre de 1989
+-  Pacientes de hemodiálisis festejan la Navidad
+-  Entertainment News | 'Captain Miller': Second Song 'Un Oliyile' from Dhanush Starrer out Now
+-  Sainte-Cécile. Extension de la carrière : la demande d’autorisation retirée
+-  Vandalizam u Njemačkoj: Grob bivšeg kancelara i njegove žene prešarali su kukastim križevima
+-  Hrgović za nešto više od minute nokautirao Australca!
+-  Tunisie : Kasserine : Une infraction de violation du silence électoral relevée
+-  Ryan O'Neal Cause of Death Revealed, Love Story Star Passes Away Due to Congestive Heart Failure
+-  India arrests two senior employees of Chinese firm Vivo, says source
+-  Bolu Dağı'nda kar yağışı etkili oluyor
+-  BYD, Avrupa'daki ilk elektrikli otomobil fabrikasını Macaristan'da kuracak
+-  Adžiću i Vujoviću teško pada poštovanje ljudskih prava: Ubacivanje srpskog jezika u Ustav će im teško ići, iako bi to voljeli!
+-  Юных северодвинцев объединила Елка главы города
+-  Ganjar-Mahfud Janjikan 17 Juta Lapangan Kerja Baru, Ini Strategi Mereka
+-  Bilbrann inne i Karmøytunnelen – person omkommet
+-  Pedro Castillo continuará recluido en prisión por el fallido golpe de Estado tras decisión de Poder Judicial
+-  Indiana head coach gives confident answer on how he sells culture to recruits: ‘I win. Google me’
+-  Trujillo: Niños de la aldea infantil de Quirihuac celebran Navidad
+-  Premier League: Spurs move into top four with 2-1 win over Everton; Luton Town upsets Newcastle
+-  ΣΩΦΡΟΝΗΣ: «Δώσαμε δικαιώματα και αυτό μας πληγώνει – Δεν έχει κριθεί τίποτα»
+-  El Gordo desencadena un aumento de la demanda de Lotería de El Niño
