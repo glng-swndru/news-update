@@ -1,11 +1,51 @@
 # Latest News
--  – نورلاند يلتقي عددا من الطلبة الدارسين للغة الانجليزية في طرابلس من مدينة مرزق.
--  33떡볶이&꼬마김밥, 크리스마스 한정 특가 프로모션 진행
--  전국 대설특보 모두 해제… 기온 영상권 회복
--  ‘마약 혐의 3차 소환' 이선균 “심려 끼쳐 진심으로 사과”
--  Mini LED 機台改機為 Micro LED 產能，富采明年決定是否蓋新廠
--  5 Seconds Of Summer Dropped Their New Tour Documentary, Which Includes Footage Of Their Amsterdam Show
--  फुटपाथमा मान्द्रो ओढेको जाँतो !
--  สมาคมสตรีนักธุรกิจและวิชาชีพ จ.เชียงราย จัดกิจกรรมเฉลิมฉลองครบรอบ 25 ปี
--  Actor Lee Sun-kyun appears for 3rd police questioning over drug suspicions
--  Flights to and from Jeju normalized after snowstorm
+-  Liga Élite de Béisbol: Leñadores recortan opciones a los Gallos
+-  La opinión de un abogado constitucionalista sobre el DNU de Javier Milei: "No se justifica"
+-  गीत
+-  Lifeguards rescued nine people in lakes during a four-day trial. This year it’s been scrapped
+-  Abdullahian Lavrova etirazını bildirdi
+-  ทม.แม่เหียะ ฝึกอบรมอาสาสมัครป้องกันภัยฝ่ายพลเรือน (อปพร.)
+-  Cara Mengakses Statistik 2023 TikTok Wrapped
+-  প্রাগে হামলার ঘটনায় বন্দুকধারীর উদ্দেশ্য জানার চেষ্টায় কর্তৃপক্ষ
+-  พิธีมอบของขวัญ และรับฟังสารอวยพรวันขึ้นปีใหม่ ของผู้บัญชาการทหารอากาศ
+-  United Cup 2023: English star Katie Boulter opens up on facing partner Alex de Minaur in power couple showdown
+-  Lawns Nursing Home, Kempsey inundated after party problems
+-  Worcester Magistrates Court: Malvern woman accused of making 999 calls
+-  Worcestershire veterans offered mental health support
+-  Food waste recycling company transforms Christmas leftovers into power
+-  Jools Holland in surprise visit to Worcester Cathedral
+-  Birmingham Airport launches £10m upgrade project
+-  ISO QSL's Bingo Box campaign to support Worcester families
+-  Radio Wyvern's Julian Wharam back after cancer battle
+-  Santa joins Leo for charity chop at St Peters Garden Centre
+-  Multani brothers jailed after drug dealing in Worcester
+-  Christmas tips to stop burglars this festive season
+-  Star Wars, Indiana Jones, Ice Age to return to Vue Worcester
+-  Sports Replay: Worcester County Women & Malvern Victoria Ladies Bowls
+-  শীত উপেক্ষা করে মৌলভীবাজারে ইত্যাদির শুটিং দেখেছেন দর্শক
+-  Yayasan Bazma Salurkan Bantuan Palestina Rp 300 Juta Melalui Baznas
+-  Footage shows IDF Nahal Brigade soldiers in combat with terrorists in north Gaza
+-  အညာသူ - အညာမှတ်တမ်း
+-  Aura nails: 28 ideias para se inspirar
+-  59 frases para cartão de Natal que vão encantar
+-  Suprema Corte dos EUA adia decisão sobre ‘imunidade absoluta’ de Trump
+-  Milei’s reform plan faces two battle fronts: the streets and parliament
+-  Manchester City rout Fluminense to win Club World Cup
+-  Live Final BNI Kejurnas PBSI 2023, Saksikan di Sini!
+-  El susto y daños materiales deja incendio de una vagoneta en Los Mochis
+-  Как казахстанцы будут отдыхать в 2024 году: календарь
+-  Petrol Diesel Price Today 23 Dec: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
+-  USA varnar Iran om Huthistöd
+-  Estos son los proyectos que Javier Milei quiere tratar en extraordinarias
+-  Delhi: प्रोफेसर ऑफ प्रैक्टिस से घटेंगी उच्च शिक्षा में उद्योग और अकादमिक दूरियां, 11200 ने किया आवेदन
+-  গাজায় ত্রাণের জন্য জাতিসংঘ সমঝোতার প্রস্তাব পাস করেছে : অ্যামনেস্টি
+-  Noah Dobson’s Islanders success stems from intentional ‘sheltered role’
+-  Lalin Padat, One Way Arah Puncak Bogor Diterapkan Pagi Ini
+-  EE.UU. cree que Irán está "profundamente involucrado" en los ataques hutíes en el mar Rojo
+-  Ram Mandir: 84 सेकेंड के सूक्ष्म मुहूर्त में होगी रामलला की प्राण प्रतिष्ठा, यजमान पीएम के लिए भी बहुत शुभ
+-  Why is there no snow this Christmas?
+-  Chick-fil-A is always closed on Sundays, but a proposed law could change that in New York
+-  Chick-fil-A is always closed on Sundays, but a proposed law could change that in New York
+-  Today's top business headlines: Ikea delays, Nike cost-cutting, holiday layoffs
+-  Last-minute Christmas gift ideas have you losing hope? These retailers do express shipping
+-  Last-minute Christmas gift ideas have you losing hope? These retailers do express shipping
