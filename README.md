@@ -1,51 +1,11 @@
 # Latest News
--  Cantora gospel de 18 anos morre após acidente grave. Detalhes!
--  Volante Ramon Carvalho encaminha permanência na Ponte
--  Animal Box Office Day 22: ‘डंकी’ और ‘सलार’ के बीच बुरी फंसा ‘एनिमल’, हो गया ऐसा हाल
--  Rappler Communities: Tech FAQs
--  পরিবারের দ্বন্দ্ব মেটাতেই বিলম্বিত পদক্ষেপ?
--  Internauta compara a Dani Flow con Gustavo Cerati: "Es la reencarnación"
--  Christian Bale perdeu 20 quilos para um filme que (quase) ninguém viu!
--  Homem-Aranha 3: Pause aos 10 minutos e 17 segundos e dê uma boa olhada no capacete que Peter Parker está usando
--  Arroz de natal que é sucesso sem muito trabalho, abra
--  Molho Branco, ou béchamel: receita clássica, fácil de fazer
--  Kentsel dönüşüm karşıtlarına sert tepki! Cumhurbaşkanı Yardımcısı Yılmaz: İnsanımızın canıyla oynuyorlar
--  Fas'ta Filistin'e destek gösterileri düzenlendi
--  ‘রিকশাচিত্রের কাজ আমি করতাম, নাম লিখতাম বাবার’
--  Ecuador advierte que actuará con "absoluta firmeza" ante eventual asilo político de México a Glas
--  Francia Márquez pide no "sembrar odio" tras hallazgo de dos niños africanos en aeropuerto de Bogotá
--  Ban Vs Nz: जो कभी नहीं हुआ वो बांग्लादेश ने न्यूजीलैंड में कर दिया, वनडे में 9 विकेट से रौंदा
--  दिल्ली में फिर प्रदूषण की मार, ग्रैप-3 लागू… वाहनों समेत इन चीजों पर लगी पाबंदी
--  អគ្គនាយកដ្ឋានអន្តោប្រវេសន៍ ប្រកាសធ្វើតេស្ត រកសារធាតុញៀនលើមន្ត្រីក្រោមឱវាទរបស់ខ្លួន
--  Canciller cubano califica como lamentable resolución del Consejo de Seguridad sobre Gaza
--  John Stamos Remembers Bob Saget In Social Media Post With ‘Fuller House’ Cast
--  سهرة غنائية لـ هانى شاكر الليلة فى بيروت احتفالا بالكريسماس
--  اليوم.. بدء تلقى اعتذارات المنتدبين لأعمال امتحانات الشهادة الإعدادية بالغربية
--  الرئيس الجزائرى يلقى خطابا أمام البرلمان يتناول الأوضاع السياسية والاقتصادية
--  هل يجوز تنفيذ رحلات عمرة خارج الشركات السياحية؟ .. القانون يجيب
--  موعد مباراة الأهلى القادمة أمام سيراميكا فى السوبر المصرى والقناة الناقلة
--  مواعيد قطارات السكة الحديد فى الوجهين البحرى والقبلى
--  لو اشتريت سيارة مستعملة وطلعت "بايظة".. اعرف هتاخد حقك إزاى
--  حركة العدل والمساواة السودانية تنعي الحاجة /عائشة محمد ازرق
--  المعمل الكميائى يحدد مصير ميكانيكى بعد ضبطه وبحوزته 5 كيلو حشيش بالشروق
--  نقيب البيطريين: فتح أبواب مشروع العلاج اليوم لإتاحة فرصة الاشتراك للأعضاء
--  إيه الفرق؟ أبرز الاختلافات بين هاتفى iPhone 14 Pro Max و iPhone 12 mini
--  “म ‘पर्फेक्सनिस्ट’ होइन, छरिएको लेखक हुँ”
--  Up to 90% waiver of traffic fines for motorists in TS
--  En Chiapas, se replica la construcción del sistema de salud más grande del planeta: Zoé Robledo
--  Reviven demanda del bebé en la portada del disco "Nevermind" de Nirvana
--  Mom Sentenced in Gruesome Death of Daughter, 8, She Told to Crawl Under Stopped Train
--  Lack of contribution to network costs from large traffic generating platforms a 'major challenge': COAI
--  留戀山區風景...長髮女深夜赤腳短褲爬山 警徹夜搜山尋獲
--  Η Κρήτη το χειμώνα: 7 πράγματα που μπορείς να απολαύσεις καλύτερα
--  KT·LGU+ 점유율 싸움에 정부 통계방식 바꾼다…‘휴대폰회선’ 상단 배치
--  게임업계에 산타 떴다… 크리스마스 이벤트 ‘펑펑’
--  Ipswich Town Akan Pinjamkan Elkan Baggott Usai Bela Timnas Indonesia di Piala Asia 2023
--  Canada: '2024 में ट्रंप जीते तो...' कनाडा के पीएम जस्टिन ट्रूडो ने जताई चिंता, दुनिया को किया आगाह
--  New Zealand v Bangladesh third ODI scores
--  メリーランド州エルクトンに位置するGORE-TEX®の本社をHAVENがレポート
--  ‘Praja Palana’ to take govt to people’s doorstep in Telangana
--  2 infants, 62-yr-old test Covid positive in Telangana
--  Izbor največjegaslovenskega zvezdnika
--  Sausar: हनीट्रैप में महिला कर्मचारी निलंबित, अश्लील वीडियो दिखाकर व्यापारी से की थी 50 लाख की डिमांड
--  Dialog dengan Nelayan Indramayu, Ganjar Pranowo Janjikan Optimalisasi Maritim
+-  সরাইলে অবসরপ্রাপ্ত শিক্ষকের আত্মহত্যা
+-  বোমা বিস্ফোরণে আহত কুষ্টিয়ার ফজলু ঢাকা মেডিকেলে মারা গেছেন
+-  পাঁচবিবিতে নাশকতা মামলায় বিএনপি নেতা গ্রেপ্তার
+-  পাবনা-৫ আসনের নৌকার প্রার্থী প্রিন্সকে শোকজ
+-  ফের বঙ্গের ছবিতে পরীমনি, বিপরীতে এ বি এম সুমন
+-  মাশরাফির ভালোবাসায় ভোলা থেকে নড়াইলে যুবক
+-  টাইগারদের বোলিং তোপে ৯৮ রানেই অলআউট নিউজিল্যান্ড
+-  কক্সবাজারের টেকনাফে অজ্ঞাত দুই যুবকের মরদেহ উদ্ধার
+-  ঘরের মাঠে বিধ্বস্ত নিউজিল্যান্ড, ঐতিহাসিক জয় বাংলাদেশের
+-  প্রকৌশল গুচ্ছের ভর্তি পরীক্ষা আগামী ৪ মার্চ
