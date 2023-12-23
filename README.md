@@ -1,51 +1,51 @@
 # Latest News
--  U dom im je usred noći došao opaki piton: Pogledajte kako je čovjek spasio svoje kućne ljubimce
--  Covid 19 : Un nouveau variant s’invite pour la période des fêtes et fait parler de lui
--  Минобороны Турции заявило о нейтрализации 16 боевиков РПК в Ираке
--  Díaz-Canel: Ninguna medida resuelve por sí sola todos los desafíos
--  Stefan Jovanović podneo ostavku na mesto generalnog sekretara Narodne stranke
--  Nakon sedam godina inozemne karijere vratio se u Zagreb i pokazao klasu: ‘Ovo nije realna slika naše momčadi‘
--  Soccerladuma | Arsenal Top At Christmas As Salah Reaches Landmark
--  Bolsonarista de MT quer porte automático de arma na Câmara e Senado
--  వందేభారత్‌ 2 గంటలు ఆలస్యం
--  Vídeo | Luis Palma participa en goles del triunfo de Celtic
--  "Une situation désespérée": l'ONU appelle au sauvetage de 185 réfugiés à la dérive dans l'océan Indien
--  West Ham de Edson agrava la crisis del Manchester United
--  Deja su vehículo y huye a pie tras provocar un choque
--  Milei llama al Congreso a sesiones extraordinarias
--  Dejan motines en Tabasco 2 muertos tras noche violenta
--  Jääkiekon Suomen mestari jatkaa tutussa osoitteessa
--  Valioliigan huippuottelu päättyi tasapeliin - Arsenal sarjakärjessä joulutauolle
--  ¿Tienes alguna de estas fobias navideñas? Estas son las más raras y curiosas que existen
--  Kapiten Liverpula šokirao navijače onim što je rekao sudiji VIDEO
--  TO JE BILA VELIKA PROMENA U ODNOSU NA ŽIVOT U JEDNOM MALOM SELU: Evo čime se Dragana Mirković fascinirala kad je iz Kasidola došla u Beograd
--  Poslato upozorenje: Uočena opasnost
--  నాటడం, పీకడం!
--  Hearing set for two New Brunswick men whose murder convictions were overturned
--  PISANjE VOL STRIT DžURNALA NETAČNO: Kabinet Netanijahua negira da je bio planiran ''preventivni'' napad na Hezbolah
--  El décimo de la mala suerte en Combarro: lo cantaron en la tele pero no está premiado
--  Horoskopi ditor, e dielë 24 dhjetor 2023
--  VÍDEO: Liverpool e Arsenal empatam e deixam tudo igual no topo
--  Marinika Tepić na infuziji zbog narušenog zdravlja: ‘Ostajem u ovoj borbi sve do poništenja izbora‘
--  Acusado de matar homem a tiros é preso em Três Lagoas
--  Rahu Kaal timings for 24 December 2023 in Delhi, Mumbai, Surat, Bengaluru, Kolkata, Jaipur, and other cities
--  Mornar ponovo poražen
--  WA firefighters work through night to contain blazes
--  توتر ودعوات إلى ضبط النفس بعد الانتخابات في الكونغو الديموقراطية
--  «القسام» تعلن فقدان الاتصال بمجموعة تحتجز 5 إسرائيليين في غزة وترجح مقتلهم
--  المبعوث الأممي لليمن يعلن التوصل لمجموعة من التدابير لحل الأزمة تشمل وقفاً لإطلاق النار
--  النيابة العامة الصربية تطلب تحقيقاً في مزاعم تزوير الانتخابات
--  أنقرة تعلن مقتل عدداً من جنودها في هجوم على قاعدة عسكرية تركية في شمال العراق
--  كوريا الجنوبية تُطلق الفرقاطة «شيونان» تيمناً بسفينة تم استهدافها في 2010
--  مجموعة «ريد-تابارا» المتمردة تتبنى هجوماً أوقع قتلى في بوروندي
--  WA firefighters work through night to contain blazes
--  تركيا تعفي مواطني السعودية والإمارات وعُمان والبحرين من تأشيرة الدخول
--  نقل مدافع ليفربول للمستشفى بعد إصابته أمام أرسنال
--  El intratable Real Madrid desata la tormenta perfecta en Badalona
--  దసపల్లా హిల్స్‌లో రోడ్డు విస్తరణపై అభ్యంతరాలు!
--  "قيل لنا إنه آمن".. إدانة مسعفين بارتكاب جريمة قتل بسبب الإهمال بعد حقن رجل بعقار أدى لوفاته
--  Kremlin-Bicêtre: le maire Jean-Luc Laurent hospitalisé à la suite d'un accident cardio-vasculaire
--  Parandur airport: poised on a ‘watershed’ moment
--  Bất phân thắng bại, Liverpool và Arsenal chia điểm kịch tính tại Anfield
--  El Barça y su lucha para frenar la violencia contra los menores: "Queremos ser un espacio seguro"
--  El Barça y su lucha para frenar la violencia contra los menores: "Queremos ser un espacio seguro"
+-  ليبيا.. حبس مأمور ضبط قضائي بتهمة تلقي رشوة
+-  Μακάμπι Τελ Αβίβ - Χάποελ Χάιφα 96-104: Δεν τα κατάφερε χωρίς τους ξένους της
+-  مراسل الجديد: فرق الإسعاف توجهت الى بلدة عيترون في وقت تعمل فرق الإغاثة على رفع أنقاض المنزل المستهدف
+-  Pedestrian dead after collision with vehicle in Townsend, Ont.
+-  Doktorlar'ın Ela'sı ekran orucunu bozdu! 12 yılın ardından setlerde! Bölüm başı alacağı ücret dudak uçuklattı!
+-  20-yr-old DU student kills self in central Delhi govt. quarters
+-  Рома 0:0 Наполи, начало на мача
+-  Кирил Болшаков: Победата е хубава заради борбата и себераздаването ни
+-  Premier League: Klopp-Faller und Hand-Ärger: Liverpool 1:1 gegen Arsenal
+-  Ertuğrul Sağlam rahatsızlandı basın toplantısına katılamadı
+-  Kourtney Kardashian and Travis Barker share first pictures of baby Rocky
+-  Despite missing NHL stars, ‘relentless’ Canada ready to defend gold at world juniors
+-  Delhi L-G recommends CBI probe into supply of ‘fake’ drugs to hospitals
+-  קטש: "יש החלטות שהן מעליי, לא נכנס למקומות שלא מתפקידי"
+-  צדק צדק תרדוף: למה לבדוק עובדות אם אפשר להשמיץ לחינם?
+-  Ματσάρα χωρίς νικητή, παραμένουν στην κορυφή οι Κανονιέρηδες
+-  NRW: Polizeieinsatz am Kölner Dom – Terroranschläge zu Weihnachten und Silvester auch in Deutschland möglich
+-  Sakaryaspor ile Kocaelispor'un karşılaştığı Marmara Derbisi'nde kazanan ev sahibi ekip oldu!
+-  BREAKING NEWS: “they’ll not play against Wolves Tomorrow he is feeling. Bit Ill ” Chelsea manager Mauricio Pochettino confirms 3 Chelsea star won’t be available vs Wolves
+-  Mauricio Jaimes, legislador de JPC, a cargo de la presidencia de la Comunidad Regional Calamuchita
+-  VIDEO Atac de amploare al rușilor în Herson: Rușii au lovit blocuri / Au izbucnit mai multe incendii - șef regional
+-  ‘Where is the line?’: Everton coach’s VAR rant after Spurs take ‘big three points’ after soft call
+-  LG เปิดตัวเสาอากาศรถยนต์แบบโปร่งใสที่เป็นส่วนหนึ่งของกระจกหน้ารถ
+-  Gefahrenhinweise am Kölner Dom – Polizei kündigt besondere Schutzmaßnahmen an
+-  Gefahrenhinweise am Kölner Dom – Polizei kündigt besondere Schutzmaßnahmen an
+-  Bulandshahar News: सुधीर गोयल की कॉलोनी के खिलाफ जिला पंचायत से नोटिस जारी
+-  Bulandshahar News: गांव में मुनादी कर गोतस्कर की एक करोड़ की संपत्ति कुर्क
+-  Bulandshahar News: थाना समाधान दिवस में 28 थानों में आई 75 शिकायतें
+-  Bulandshahar News: जिले भर में याद किए गए चौधरी साहब, दूध से नहलाई प्रतिमा
+-  Bulandshahar News: नहीं मिला ब्लड सेपरेशन यूनिट को लाइसेंस, अब कॉरिडोर बनाने की तैयारी
+-  Bulandshahar News: यू-डायस डाटा नहीं भरने वाले स्कूलों को मान्यता रद्द करने की चेतावनी
+-  Bijnor News: विद्युत निगम के अधिशासी अभियंता निलंबित
+-  Bijnor News: अमानगढ़ रेंज में बाघ गणना का काम शुरू
+-  भाजपा सरकार के राज में हर वर्ग परेशान : अजय राय
+-  Mirzapur News: मानेक शॉ क्रूज की टक्कर से विश्वनाथम का चालक घायल, दूसरा गिरा गंगा में
+-  सुरंग से गुजरते वक्त यात्री रहें बेफिक्र: न तो ट्रेन की चाल लड़खड़ाएगी, स्टेशन मास्टर से भी नहीं कटेगा संपर्क
+-  Kaushambi News: युवक की हत्या कर शव सेफ्टी टैंक में छिपाने के दोषी भाई-बहन समेत चार को उम्रकैद
+-  Kaushambi News: जानलेवा हमले के दोषी सगे भाई समेत चार को सजा
+-  Kaushambi News: हत्या के दोषी सगे भाइयों को आजीवन कारावास, जुर्माना
+-  Hardoi News: प्रदर्शनी की आय से बांटे जाएंगे कंबल, जलेंगे अलाव
+-  Varanasi News: क्रिसमस पर कल लागू रहेगा रूट डायवर्जन प्लान
+-  जागरूक बनें उपभोक्ता, अधिकारों की रक्षा के लिए 1915 पर करें कॉल : शर्मा
+-  Varanasi News: पहली बार शंकराचार्य करेंगे शीतकालीन चार धाम यात्रा, टूटेंगे मिथक
+-  Varanasi News: सर्दी, जुकाम, बुखार के मरीजों का होगा आरपीसीआर
+-  Varanasi News: कबड्डी में मंगारी की टीम बनी विजेता
+-  Varanasi News: ‘चांदपुर औद्योगिक आस्थान को बनाएं नो ट्रिपिंग जोन’
+-  Varanasi News: अंतरजनपदीय वाहन चोर गिरोह का मास्टरमाइंड अपने साथी के साथ गिरफ्तार
+-  Maharajganj News: दिल्ली, राजस्थान समेत अन्य महानगरों से काठमांडो जाने वाले पर्यटक रहे परेशान
+-  Varanasi News: हेरौ उगना, हमर भंग पिसना कते गेलैं रूसना...
+-  Maharajganj News: 15 साल पुरानी गाड़ियां बढ़ा रहीं प्रदूषण
