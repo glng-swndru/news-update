@@ -1,11 +1,11 @@
 # Latest News
--  Susijengin MM-kisoissa kohdannut pelaaja on kuollut 24-vuotiaana
--  Winterstop? Vergeet het maar! In deze landen voetballen ze gewoon door in de kerstperiode
--  Le Heat va retirer le maillot d’Udonis Haslem, le 19 janvier prochain
--  Kardiolog otkriva: Ovu popularnu hranu ne jedite nikad, evo koje su njene zamene
--  Opšti haos na granicama, čeka se više od 14 sati FOTO
--  "Izgleda da neki sa kojima sam se družio završe u Partizanu"
--  المدير العام للأمن الوطني يقرر صرف دعم مالي لفائدة 269 مستفيدا
--  ماذا تفعل حال عدم توافر مواعيد بتطبيق صحتي؟.. توضيح مهم من "الصحة"
--  분데스리가도 정복한 김민재→2023-24시즌 전반기 베스트11 선정
--  "أتذكر الفلوجة" لفرات العاني: لا تنسى أن تتذكّر
+-  El Gobierno inicia procedimiento para la planificación de electricidad con horizonte 2030
+-  De ce a oprit Apple a oprit vânzarea Watch Series 9 și Ultra 2 ?
+-  „Angst und Verwirrung“: Papst Franziskus droht Konter-Revolte in katholischer Kirche
+-  Dachverband: Tafeln in Deutschland im „Dauerkrisenmodus“
+-  Doctor finally settles morning vs evening shower debate
+-  Cumhurbaşkanına hakaretten gözaltına alınmıştı: Şehinşah serbest bırakıldı
+-  "SLOBODNA SAM" O ljubavnom životu Nataše Rodić naširoko se priča - ona sada priznala da je RASKINULA sa zgodnim Crnogorcem
+-  কানের দুল গিলে ফেলে হাসপাতালে ছিনতাইকারী
+-  Detenidos dos vecinos de Torrevieja que usaron la tarjeta de una vecina de Camariñas para compras
+-  Mediziner-Verbund ruft Ärzte und Apotheken zum Impfstopp auf
