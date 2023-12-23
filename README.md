@@ -1,51 +1,51 @@
 # Latest News
+-  Etesa promueve "Navidad con reciclaje"
+-  Fenerbahçe'de Fred'in cezası açıklandı! Süper Kupa finalinde...
+-  Funkcioneri vratili nezakonito stečenih 47.500 eura
+-  'Here We Go' 로마로 인증! 이강인, PSG에서 후배 생긴다...20세 브라질 DF 영입 근접
+-  '레알의 차세대 스타' 벨링엄, 세계에서 가장 시장 가치가 높은 선수 등극...20세에 2582억
+-  Vatandaşlardan tepki yağıyor... DEM Parti ile iç içe olan CHP yine 'terör' diyemedi
+-  Irak ve Suriye'nin kuzeyine hava harekatı! 29 hedef ve çok sayıda terörist imha edildi
+-  Karim Benzema ve Kanteli Al Ittihad, evinde mağlup!
+-  Erbaş'tan tüm dünyaya çağrı: Hep birlikte Filistin'deki katliamı durduralım
+-  Tottenham, Everton'ı iki golle geçti
+-  Arsenal hold Liverpool in title showdown to seal top spot
+-  MSB’den Irak ve Suriye’nin kuzeyine hava harekatı! 29 hedef imha edildi
+-  عمرو أديب يُطلق سلسلة تحذيرات من متحور كورونا الجديد: متفجر الانتشار
+-  S.F. police arrest 18 people in anti-shoplifting operations in Stonestown, Mission District
+-  Breaking news:” we are ready to….” Mykhailo Mudryk fires three-word Chelsea warning to Wolves ahead of Christmas Eve clash
+-  ‘వైసీపీ’ దౌర్జన్యం
+-  By: Evelyn Hammond
+-  Ковачевски: Просечната плата СДСМ ја покачи на 630 евра, а во времето на ДПМНЕ беше 360 евра
+-  Virgil van Dijk appears to ask referee Chris Kavanagh if he has been DRINKING during Liverpool's clash against Arsenal after complaining about a foul
+-  LTV: "Jaunā vienotība" piedzīvo būtisku popularitātes kritumu
+-  Galatasaray'da Sanchez ve Ziyech'in son durumu belli oldu. Fenerbahçe derbisinde forma giyecekler mi?
+-  Irak'ın kuzeyinde şehit olan 6 askerin kimlikleri belli oldu
+-  MSB açıkladı! 29 hedef imha edildi
+-  İran, Körfez'deki adalarla ilgili Rusya'ya protesto notası verdi
+-  Biden Reportedly Talked Israel Down From Striking Hezbollah After Hamas Attack
+-  Number of new Covid cases increased 52% globally in past one month: WHO
+-  Cómo será la recolección de residuos en Resistencia durante las Fiestas
+-  Украинские войска обстреляли Горловку и Донецк
+-  Kickoff | Hunt praises young SSU defenders after Bucs win
+-  China shuts down 34,000 online accounts to stem rumours, ensure social stability
+-  Bez drame u Superligi: TENT rutinski sa Radničkim, pobedile i odbojkašice Partizana
+-  Mariah Carey Flashes Smile in Aspen After Reported Split from Bryan Tanaka: Photos
+-  Defesa Civil sobre igreja em MG: "O teto veio a desabar por conta da madeira que apodreceu"
 -  HRÔZA! Autom ZRÁMOVAL polku mesta, ľudia ZÚRIA: Mohol ZABIŤ desiatky NEVINNÝCH, TVRDÁ reakcia STAROSTU
 -  DESIVÁ TRAGÉDIA Peťa zabil RÝCHLIK v CENTRE mesta, do PRÁCE už nedošiel! Mrazivé SVEDECTVÁ: Toto na tom NESEDÍ
+-  Canucks: Injured defenceman Carson Soucy is back skating
+-  క్రిస్మస్‌ తర్వాత కలెక్టరేట్‌ను ముట్టడిస్తాం
 -  News24 | Here are the Daily Lotto numbers
+-  Hrvatica potresena, sina joj napali migranti: ‘Jedan ga uhvatio za rame, a dvojica mu blokirala put’
+-  SKUAST-K signs MoU with Lemon Ideas
+-  Gražulim kārtējā spilgtā spēle – lieliska precizitāte, 26 punkti un desmit atlēkušās bumbas
 -  ASUS ROG Tessen Mobile Controller to Launch Alongside ROG Phone 8 series
+-  CUK’s Maths Deptt celebrates National Mathematics Day
+-  RECAP: Marioo ndio msanii bora wa mwaka??
+-  سقوط القطينة يثير الهلع في قلوب السودانيين
+-  CUK Science Campus faculty participate in motivational session
 -  درنة: شركات عربية وأجنبية تقدمت لصيانة جسر وادي الناقة الرابط بين درنة والقبة
+-  Research Methodology: KU hosts 6-day workshop for scholars
+-  Enfurecida, quiso atropellar a los médicos de una guardia con su vehículo
 -  ليفربول وآرسنال يخدمان المنافسين بالتعادل في أنفيلد
--  Exjugador del América será parte del CUERPO TÉCNICO de Fernando Gago en Chivas
--  Hrvatski reprezentativac potpisuje za Partizan, ovo su detalji ugovora
--  Aaj Ka Kanya Tarot Card: कन्या राशि वालों की सेहत रहेगी अच्छी, यात्रा पर जाने की है संभावना
--  Klop: Cimikas polomio ključnu kost, bio je penal za nas
--  The X-Men Will Rise to a New Relaunch Next Summer
--  Погибший боксёр врезался в отбойник в день похорон матери
--  Täysi kriisi päällä - tässä on Manchester Unitedin surkeus numeroina
--  روزنامهٔ جاپانی آساهی: پروژه های ناتمام ناکامورا در افغانستان از سرگرفته میشود
--  Love Island fans speechless as Molly Marsh and Davide show off incredible singing voices on ITV show
--  Mãe de Jeff Machado desabafa após quase um ano da morte de ator de SC: “Como vai ser o meu Natal?”
--  La Premier League tiene a su primera árbitra: Rebecca Welch
--  Sacan de carrera presidencial a candidata opositora rusa
--  Sube la tasa de mortalidad infantil 11.59% en Chihuahua
--  Supervisa AMLO Tren Interoceánico de Coatzacoalcos a Teapa
--  Extrém kivágású ruhájából majd kiestek Köllő Babett hatalmas mellei - videó
--  В Кривом Роге в третий раз за день раздались взрывы
--  Dyrektor sportowy Napoli przemówił ws. Zielińskiego
--  Paura in Alto Adige, alberi cadono su una seggiovia per le forti raffiche di vento: 7 feriti
--  Oklahoma man decorates 22 homes on his block with lights for Christmas
--  ΝΒΑ: Επτά διαδοχικές νίκες για Μπακς, 130-111 τους Νικς
--  Trumpova mezimica odlučila preseliti u ‘bunker milijardera‘: ‘Postoji taj mit...‘
--  Ex-chairman of Erie County Democratic party sentenced for child sex abuse in NY
--  Boujdour: une unité des FAR sauve 56 migrants de la noyade
--  I stedet for at slække på støtten til Ukraine skal vi øge den
--  I stedet for at slække på støtten til Ukraine skal vi øge den
--  "NIKO NEMA SNAGU I SLOBODU KAO ONA" Ana Sević uzbuđena pred spektakl Milice Pavlović: Od početka se znalo da će se ovo desiti!
--  Nach Auktion: Vater von Amy Winehouse verklagt ihre Freunde!
--  R.I.P. Laura Lynch, founding member of The Chicks
--  Navijači Budućnosti ušli u svlačionicu, obezbjeđenje spriječilo sukob na terenu
--  Kangra News: मंत्री रोहित और गोमा को बताईं किसानों की समस्याएं
--  Neto: «Sinto que tenho protagonismo dentro do balneário todos os dias»
--  Son dakika! Irak ve Suriye'nin kuzeyine hava harekatı: 29 hedef imha edildi!
--  Canada court grants CCLA standing to challenge New Brunswick’s gender identity policy in school
--  Pirates coach defends Buthelezi’s blunder
--  Panchkula News: कार सीख रहे व्यक्ति ने ऑटो और बाइक को मारी टक्कर, महिला घायल
--  Kaithal News: श्रीकृष्ण की लीलाओं का मंचन कर बटोरी तालियां
--  Kangra News: गुलेर में किया इको सेंसिटिव जोन का विरोध
--  Senzacija u imotskom Crvenom jezeru: Pogledajte akciju postavljanja Božićnog drvca u grotlu najdubljeg hrvatskog jezera
--  Proučena hafiska dova Davudu Puškaru, najmlađem hafizu u Bosni i Hercegovini
--  Bonus mamme, 140 euro in più in busta paga a gennaio
--  La misteriosa isla abandonada frente a la costa de Nueva York que nadie puede visitar
--  Herfstachtig weer houdt aan, met kerst kans op wat zonnestralen
--  Savvy mum shares how she saves on the washing up for Christmas, but people aren’t sure if it’s ‘genius’ or wasteful
--  Savvy mum shares how she saves on the washing up for Christmas, but people aren’t sure if it’s ‘genius’ or wasteful
