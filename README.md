@@ -1,51 +1,51 @@
 # Latest News
--  بيولي يرفع شعار ” الراحة ممنوعة قبل مواجهة ساسولو”
--  Turistlere akıl almaz tuzak. Bakan Yerlikaya açıkladı: Turistlerin kabusu 5 çete çökertildi
--  Chicken waste: చికెన్‌ వ్యర్థాలు @ రూ.కోటిన్నర
--  Siracusa, rifiuti: per la Vigilia e Natale non si effettuerà la raccolta
--  Gingerbread: spices of holiday staple may have surprising health benefits
--  Hakkari'den acı haber! Altı ocağa şehit ateşi düştü
--  Birce Akalay sessizliğini bozdu!
--  Yargıtay'dan emsal karar! Hakaret sayılmadı
--  Adana Demirspor yarın Antalyaspor'u ağırlayacak!
--  Şanlıurfa'da korkunç kaza! Ölü ve yaralılar var
--  Hayvan nakillerine ilişkin düzenleme ertelendi
--  Manžel Marfuše (†79) z Mrázika bez nej nevedel žiť: Uznávaný režisér zomrel krátko po herečke!
--  Български лекар спасил жена с 5% шанс за оцеляване
--  MLADA NAPRAVILA HAOS NA VENČANJU Pred matičarem rekla &quot;NE&quot;, a kad čujete njeno objašnjenje, aplaudiraćete joj
--  NHL-superlupaus sivuun Suomea vastaan pelattavassa MM-avauksesta?
--  ميغيلي : الثقة غائبة بين لابورتا وتشافي
--  Koreanization: The subtle transformation
--  Fire at POSCO's Pohang Steelworks put out; facilities partially suspended
--  Beroš: Kreće reorganizacija bolničkog sustava, smanjili smo liste čekanja za 19 posto
--  Turkmenistan's industrial sector boosting processing of local raw materials
--  Рома прийматиме Наполі, Ювенутс зіграє з Фрозіноне: розклад матчів Серії А
--  Baznas Jawa Timur Salurkan Bantuan Kemanusiaan Palestina Senilai Rp 10 Miliar
--  Gaza’s journalists: ‘Targets’ or ‘casualties’ of Israel’s war?
--  Sánchez acaba el año a seis puntos y 36 escaños de Feijóo (a pesar del CIS)
--  موسيالا يرد على شائعات رحيله عن بايرن ميونخ
--  Süper Kupa'nın neden Arabistan'da oynanacağı ortaya çıktı! Erol Mütercimler'den skandal iddia
--  Cine sunt primii români de pe Threads și ce au de spus - Geoană, Măruță, dar și foarte mulți oameni care cred că e liber la înjurat
--  Hollanda Ukrayna'ya 18 adet F-16 savaş uçağı gönderecek
--  I FSS protiv fudbalske lige moćnih i bogatih
--  13년 만에 부활한 '천안함' 작전배치…서해 수호 돌입
--  পুরস্কার পেয়ে ‘অসম্মানিত’ ভারতের সেই ১২ কয়লাশ্রমিক
--  Mehe tapnud ja põletanud naine peab 14 aastaks vangi minema
--  24실책 중 단 2개? 흐름 바꾼 연속 실책→첫 홈 10연승 좌절…‘캡틴’ 이관희이기에 더욱 아쉬웠던 실수
--  "Love Story"-Star Ryan O'Neals (†82) Todesursache steht fest
--  Food to Reduce Period Pain: मासिक धर्म में दर्द या ऐंठन हो तो विज्ञान के अनुसार क्या खाएं और क्या न खाएं
--  „Szeretni és szeretve lenni” - szerelmes fotót tett közzé a boldogságban úszó Berki Mazsi
--  ワリエワがＳＰ首位
--  OGROMAN IRVAS U DVORIŠTU I TRI JELKE: Karleuša potrošila ogromne svote novca na ukrašavanje vile, kadrovi ostavljaju bez teksta!
--  Dodik: Građani Republike Srpske neće oprostiti onima koji seju mržnju prema njima
--  "शरिया कानून आएगा": कर्नाटक हिजाब विवाद पर कांग्रेस बोली- BJP को कुछ नहीं पता
--  1. FC Köln: Horst Heldt kann Aus von Steffen Baumgart nicht verstehen
--  Βαρόμετρο / Ομόνοια
--  “행운을 빕니다”…한동훈, 장관 마지막날 예비 고1에게 선물한 책은?
--  Cevdet Yılmaz: Memur emeklilerinin aylıklarındaki artış yüzde 50 civarında olacak
--  «Würde mich schämen, so viel zu lügen»: Arena-Zoff zur Asylpolitik
--  Naira drops against US Dollar at forex market ahead of Christmas
--  In the shadow of history
--  7 başlıkta geçen hafta
--  ল্যাথামের মুখেও বাংলাদেশের প্রশংসা
--  Lazio, il buongiorno speciale della società con l''urlo di Guendo' - FOTO
+-  العفو الدولية تجدد دعوتها للإفراج عن المحتجزين البهائيين
+-  ZEC Defends Tshabangu, Throws Chamisa Under The Bus
+-  INSÄNDARE: Tacksam för god sjukvård
+-  Baca Dzikir Ini yang Menjadi Opsi Bacaan Agar Tobat Seorang Hamba Diterima
+-  Russia: IEA in full control of situation in Afghanistan
+-  Schuster: Keine Auswanderung jüdischer Menschen
+-  Please Return It”: Woman weeps In heartache as her Christmas chicken Is stolen (Watch)
+-  유재석, 크리스마스 선물 대체 뭐길래…"내가 ○○에 미친 사람이니?" [놀면 뭐하니]
+-  사람인가? 천사인가? 션, 독립유공자 후손 위한 10호·11호 집 헌정
+-  Bintang Barcelona Alami Kemajuan Pesat dalam Pemulihan Cederanya
+-  Debat Cawapres soal Target Pertumbuhan Ekonomi, Ini Tanggapan Ekonom
+-  Giliran skuad B-23 kecewakan China
+-  Tony węgla zalegają na placu. Miasto ma problem ze sprzedażą
+-  Gurdev Singh Kaunke: ਸਾਬਕਾ ਜਥੇਦਾਰ ਕਾਉਂਕੇ ਦੇ ਹਿਰਾਸਤ ’ਚੋਂ ‘ਲਾਪਤਾ’ ਹੋਣ ਦੀ ਜਾਂਚ ਰਿਪੋਰਟ 31 ਸਾਲ ਬਾਅਦ ਹੋਈ ਜਨਤਕ, ਵੱਡੇ ਖੁਲਾਸੇ
+-  Partai Rakyat Adil Makmur Targetkan Prabowo-Gibran Menang di Pulau Jawa
+-  «СТРАНА.ua»: в Кропивницком Кировоградской области произошли взрывы
+-  中国春節、国連祝日に指定
+-  RADOST U KIJEVU, UKRAJINCI TVRDE: Oborili smo tri ruska bombardera
+-  Bekannte Grüne treten aus der Partei aus – „Verrat“
+-  [포토] 이경 전 부대변인 지지자들, 공천 부적격 판정 재심의 요구
+-  В Кривом Роге произошли взрывы
+-  胴体引き揚げへ作業船到着
+-  Πόλεμος στην Ουκρανία: Οι δηλώσεις Πούτιν, Ζελένσκι στο μικροσκόπιο
+-  OKC: Za 24 sata 24 saobraćajne nezgode
+-  Cold Conditions Ease Amid Cloud Cover In Kashmir
+-  Officiel : Versement de la prime pour enfants issus de familles nécessiteuses
+-  Посол ФРГ в России заявил, что Германии придется взаимодействовать с РФ
+-  Рома е домакин на шампионите в дербито на кръга
+-  Una campaña de ciclocrós apasionante: hasta en seis ocasiones se verán las caras Van der Poel, Van Aert y Pidcock
+-  Malatya'da trafik kazasında 1 kişi hayatını kaybetti
+-  OSTALI SPORTOVI: "Tip" - tiket za subotu
+-  Jadi Freelance Bingung Cara Atur Duit? Cobain Dulu Cara Ini
+-  MacBook Air, MacBook Pro and iMac Available at Discounted Prices During Christmas Sale: Check Prices
+-  MacBook Air, MacBook Pro and iMac Available at Discounted Prices During Christmas Sale: Check Prices
+-  Jonathan jokes about being the real ‘catch’ for Simone Biles
+-  Torwart Leno feiert den Boxing Day „und das ganze Drumherum“
+-  NBA: Nurkić nije nastupio u porazu Sunsa, Jokić ponovo odličan u pobjedi Nuggetsa
+-  В ОНФ заявили, что собираемые в поддержку Путина подписи проверят юристы
+-  Video | Bodycambeelden tonen klopjacht op schutter Praag
+-  El aviso de la Seguridad Social sobre el informe de vida laboral
+-  Dario Šarić solidan u četvrtoj uzastopnoj pobjedi Warriorsa
+-  Jokić ispisao istoriju Nagetsa
+-  Las cinco monedas de 1 peseta más valiosas según experto numismático
+-  埼玉が３連勝
+-  Aus der Sackgasse in Playoffs?: Buffalos schläfrige Büffelherde donnert durch die NFL
+-  El nuevo precio de la bombona de butano: ¿qué día cambiará y cuánto?
+-  МИД: отсутствие реакции на запрос России по Буче доказывает инсценировку событий
+-  Estos serán los cambios en las bases de cotización para autónomos en 2024
+-  Louletano encerra comemorações do centenário com lançamento de livro
+-  Hardik Pandya: ਹਾਰਦਿਕ ਪਾਂਡਿਆ ਦੀ ਵਾਪਸੀ 'ਤੇ ਮੰਡਰਾ ਰਿਹਾ ਸੰਕਟ, ਅਫਗਾਨਿਸਤਾਨ ਖਿਲਾਫ ਸੀਰੀਜ਼ ਤੋਂ ਟੀਮ ਨੂੰ ਲੱਗੇਗਾ ਝਟਕਾ
