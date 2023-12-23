@@ -1,51 +1,51 @@
 # Latest News
--  Liga Élite de Béisbol: Leñadores recortan opciones a los Gallos
--  La opinión de un abogado constitucionalista sobre el DNU de Javier Milei: "No se justifica"
--  गीत
--  Lifeguards rescued nine people in lakes during a four-day trial. This year it’s been scrapped
--  Abdullahian Lavrova etirazını bildirdi
--  ทม.แม่เหียะ ฝึกอบรมอาสาสมัครป้องกันภัยฝ่ายพลเรือน (อปพร.)
--  Cara Mengakses Statistik 2023 TikTok Wrapped
--  প্রাগে হামলার ঘটনায় বন্দুকধারীর উদ্দেশ্য জানার চেষ্টায় কর্তৃপক্ষ
--  พิธีมอบของขวัญ และรับฟังสารอวยพรวันขึ้นปีใหม่ ของผู้บัญชาการทหารอากาศ
--  United Cup 2023: English star Katie Boulter opens up on facing partner Alex de Minaur in power couple showdown
--  Lawns Nursing Home, Kempsey inundated after party problems
--  Worcester Magistrates Court: Malvern woman accused of making 999 calls
--  Worcestershire veterans offered mental health support
--  Food waste recycling company transforms Christmas leftovers into power
--  Jools Holland in surprise visit to Worcester Cathedral
--  Birmingham Airport launches £10m upgrade project
--  ISO QSL's Bingo Box campaign to support Worcester families
--  Radio Wyvern's Julian Wharam back after cancer battle
--  Santa joins Leo for charity chop at St Peters Garden Centre
--  Multani brothers jailed after drug dealing in Worcester
--  Christmas tips to stop burglars this festive season
--  Star Wars, Indiana Jones, Ice Age to return to Vue Worcester
--  Sports Replay: Worcester County Women & Malvern Victoria Ladies Bowls
--  শীত উপেক্ষা করে মৌলভীবাজারে ইত্যাদির শুটিং দেখেছেন দর্শক
--  Yayasan Bazma Salurkan Bantuan Palestina Rp 300 Juta Melalui Baznas
--  Footage shows IDF Nahal Brigade soldiers in combat with terrorists in north Gaza
--  အညာသူ - အညာမှတ်တမ်း
--  Aura nails: 28 ideias para se inspirar
--  59 frases para cartão de Natal que vão encantar
--  Suprema Corte dos EUA adia decisão sobre ‘imunidade absoluta’ de Trump
--  Milei’s reform plan faces two battle fronts: the streets and parliament
--  Manchester City rout Fluminense to win Club World Cup
--  Live Final BNI Kejurnas PBSI 2023, Saksikan di Sini!
--  El susto y daños materiales deja incendio de una vagoneta en Los Mochis
--  Как казахстанцы будут отдыхать в 2024 году: календарь
--  Petrol Diesel Price Today 23 Dec: తెలుగు రాష్ట్రాల్లో మారిన పెట్రోల్‌, డీజిల్‌ ధరలు - ఈ రోజు రేట్లు ఇవి
--  USA varnar Iran om Huthistöd
--  Estos son los proyectos que Javier Milei quiere tratar en extraordinarias
--  Delhi: प्रोफेसर ऑफ प्रैक्टिस से घटेंगी उच्च शिक्षा में उद्योग और अकादमिक दूरियां, 11200 ने किया आवेदन
--  গাজায় ত্রাণের জন্য জাতিসংঘ সমঝোতার প্রস্তাব পাস করেছে : অ্যামনেস্টি
--  Noah Dobson’s Islanders success stems from intentional ‘sheltered role’
--  Lalin Padat, One Way Arah Puncak Bogor Diterapkan Pagi Ini
--  EE.UU. cree que Irán está "profundamente involucrado" en los ataques hutíes en el mar Rojo
--  Ram Mandir: 84 सेकेंड के सूक्ष्म मुहूर्त में होगी रामलला की प्राण प्रतिष्ठा, यजमान पीएम के लिए भी बहुत शुभ
--  Why is there no snow this Christmas?
--  Chick-fil-A is always closed on Sundays, but a proposed law could change that in New York
--  Chick-fil-A is always closed on Sundays, but a proposed law could change that in New York
--  Today's top business headlines: Ikea delays, Nike cost-cutting, holiday layoffs
--  Last-minute Christmas gift ideas have you losing hope? These retailers do express shipping
--  Last-minute Christmas gift ideas have you losing hope? These retailers do express shipping
+-  나주시, 내년도 정부 예산 4513억원 확보
+-  포스코 광양제철소, 달콤한 크리스마스 선물
+-  장흥군, 전남도 투자 유치 ‘최우수상’
+-  광양시, 해양수산 특화 복합문화공간 ‘광양수산물유통센터’ 개장
+-  곡성군, 2024년도 남부권 광역관광 개발 442억원 확보
+-  고흥군, 군정 평가·자문위원회
+-  광양시 진상면 주택화재
+-  담양군, 전남도 지역경제 활성화 ‘우수’
+-  여수광양항만공사, 세 번째 해양 폐플라스틱 업사이클 제품 제작
+-  국민의힘 엄태영 의원"2024년 제천·단양 발전 위한 국비 예산 2,088억원 확보"
+-  더불어민주당 신동근 의원"인천 서구 발전 위한 2024년도 국비 1,370억원 확보"
+-  국민의힘 윤재옥 당 대표 권한대행"한동훈 비상대책위원장 후보,탈진영 정치.탈팬덤정치 시대 열 잠재력 가지고 있는 분"
+-  더불어민주당 홍익표 원내대표"국민의힘 한동훈 비대위원장,윤석열 대통령과의 관계 잘 설정해 주십시오"
+-  더불어민주당 김주영 의원"2024년도 예산안에 김포골드라인 증차 지원 45.9억원,고촌 신곡사거리 입체교차로 설치 5억원,"
+-  국민의힘 정희용 의원"국회 예산안 심사에서 지역구 8개 사업 신규 및 증액 확정"
+-  더불어민주당 오기형 의원"우이방학 경전철 국비예산 13억원 반영"
+-  국민의힘 최춘식 의원"2024년도 포천ㆍ가평 주요사업 추진 위한 정부예산 780억원 확정"
+-  국민의힘 김정재 의원"2024년도 예산안 신규사업 58건 등 국비 1조 4,107억 원 확보"
+-  이광재 국회사무총장"국회,전주국제영화제와 손잡고 국민과 문화 소통"
+-  중국 불산시 방문단, 국제교류 활성화위한 성남시의회 방문
+-  성남도시개발공사, 지역 이웃을 위한 김장김치 130박스 전달
+-  한국전자기술연구원노동조합, 성남시청소년재단에 청소년을 위한 장학금 전달
+-  Priyanka Chopra gives glimpse of holiday dinner with Nick Jonas, see pics
+-  85 per cent of Gaza’s people displaced in 11 weeks
+-  Search ops underway in Poonch a day after ambush
+-  At least 20 villagers killed during rebel attack
+-  Thankful: Congress on Ram temple ceremony invites
+-  Storm disrupts train services in Germany, kills woman in Belgium
+-  US hampering prisoner swap: Russian official
+-  ‘หมอบอย เคลียร์ชัด’ สรุปดวงปี 2567 เผย 2 ราศีดวงพุ่ง ดวงปังที่สุดในรอบ 12 ปี
+-  Khi về già, cố gắng đừng tham gia vào những việc này của con cái, nếu không muốn quan hệ trở nên xấu hổ
+-  Se desata balacera al interior de taquería
+-  กรมการปกครอง เปิดยื่นขอตรวจ DNA ช่วยคนไทยตกหล่นทางทะเบียนราษฎร
+-  Marcos creates LGBTQIA+ Special Committee
+-  Philadelphia’s Embiid plays through ankle injury to extend streak, 76ers beat Raptors 121-111
+-  Will We Recycle FPGAs In The Future?
+-  Lotstvister, brottsmisstankar och egen fotbollsklubb – HBL tittade närmare på Åborederiet som ständigt är i rubrikerna
+-  Så undviker du konflikter under julen
+-  I tyska Flensburg finns en livsstil som liknar den finlandssvenska – utom på en punkt
+-  Därför är den danska minoriteten i Tyskland så stark just nu
+-  Black Woman In US Dials 911 To Report Domestic Violence, Shot Dead By Cop
+-  Pro-Khalistan Slogans On Walls Of Hindu Temple In US, Probe On
+-  Nationshus som tusentals finlandssvenskar besökt räddas – det blir ingen rivning
+-  Jamus Lim meets resident who says ‘All good governments need good opposition’
+-  बाबा मनीराम अखाड़ा तालाब का होगा जीर्णोद्धार एवं सौंदर्यीकरण:बनेगा ओपन जिम, पेंटिंग के साथ तालाब के बीच में लगेगा फाउंटेन
+-  박지원 “이낙연, 분열의 길로 가고 있어…옛날로 돌아오라”
+-  'Sister Wives': Robyn Calls Out Kody for Putting the Blame on His Wives
+-  이스라엘, 주민 대피령 내려놓고 초대형 폭탄으로 무차별 폭격
+-  'Sister Wives' Recap: Christine Brown Says She Wants a Friendship With Ex Kody
+-  Aston Villa offer update on Lenglet amid exit talk
