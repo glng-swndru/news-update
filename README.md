@@ -1,11 +1,51 @@
 # Latest News
--  속초서 로또 1등 나왔다… 전국 9명 각 29억6천만원씩
--  Potkut tulossa päävalmentajalle - tämä shokkitulos oli jo liikaa
--  Erdoğan-Hamza Yusuf görüşmesi Londra'yı neden rahatsız etti?
--  Hasan Arat: Teknik direktör çalışmalarımız devam ediyor
--  Büyükçekmece Pınartepe Mahallesi'nde bir apartmanın önünde el bombası bulundu
--  Kenan Yıldız'dan muhteşem gol!
--  Fortsatt store problemer i flytrafikken: Verken SAS eller Widerøe kan garantere at folk kommer frem til jul
--  Disambangi Gibran, Pedagang Pasar Minggu Minta Harga Barang Stabil dan Terjangkau
--  Ungarn: Brüssel drängt auf einen „Paket zur Aufrechterhaltung der Migration“
--  Drops for Weight Balance - Support for your Goals
+-  487 Suspects Arrested In Ebonyi – Police
+-  كورونا يؤثر على صحة الشباب بطريقة صادمة.. احذر أعراض جديدة
+-  Amerikaanse vrouw met zeldzame dubbele baarmoeder bevalt in twee dagen van twee baby's
+-  Fatalny prognostyk przed TCS. PZN ujawnił, co dzieje się z Dawidem Kubackim
+-  Biden trató con Sánchez los ataques en el mar Rojo tras el bloqueo español a la misión naval en la UE
+-  چودھری نثار بھی انتخابی میدان میں اترگئے،عمران خان اور ن لیگ سے متعلق کیا کہا؟ جانیے
+-  West Ham 0-0 Man United - Premier League: Live score, team news and updates as Erik ten Hag hands debut to teenager Willy Kambwala at centre back with Raphael Varane out again
+-  Tiga remaja sesat, cedera di Bukit 300
+-  レスリング全日本選手権 女子68キロ級 石井亜海は初戦で敗れる
+-  Kaizer Chiefs vs Richards Bay: LIVE updates
+-  Визит к проктологу: мифы и реальность
+-  I'm a beauty influencer - these are wellness tips that will 'improve your life'... and why you should ditch the GYM
+-  The Pixel 8 Pro’s videos get a whole lot brighter with video boost — if you use it right
+-  Kaizer Chiefs: FULL LIST of players who could leave for FREE!
+-  Nochebuena con tormentas y chaparrones para el sur de Córdoba y otras provincias argentinas
+-  Twee jonge Belgische renners botsen frontaal op auto tijdens winterstage in Spanje
+-  Israe-Hamas जंग के बीच अमेरिका को ऑस्ट्रेलिया की तरफ से बड़ा झटका
+-  North Dinajpur News : জেদ-ইচ্ছাশক্তিতে বয়সকে বুড়ো আঙুল, ৪৪-এ স্নাতকোত্তর হয়ে বিথীকা বললেন 'স্বপ্নপূরণ করছি'
+-  Problemi s anketnim ispitivanjem dr. Stojanova: Što zna 500 ispitanika, a ne zna 4 milijuna građana
+-  Wall Street rastie, akcie podporilo spomalenie americkej inflácie
+-  Health Tips: చలికాలంలో పెరుగు తినాలా వద్దా...డాక్టర్లు చెప్పిన షాకింగ్ విషయాలు ఇవే..
+-  Božićni vikend na splitski način: banjanje u plićaku i poziranje za društvene mreže, da i drugi znaju tko je faca
+-  Solo traveller on the ultimate nine month long £48,000 cruise with Royal Caribbean reveals what her room looks like
+-  Revanth Reddy : ఆటోడ్రైవర్లు, గిగ్ వర్కర్ల సమస్యలపై రేవంత్ రెడ్డి దృష్టి - ఎగ్జిబిషన్ గ్రౌండ్స్ లో ప్రత్యేక సమావేశం !
+-  CGPSC ने जारी किया सिविल जज इंटरव्यू का एडमिट कार्ड, ऐसे करें डाउनलोड
+-  Ahan Shetty and Tania Shroff end their 11-Year romance, says report
+-  Vladajoča koalicija onečastila državni praznik
+-  „Klientas nežinomas.“ Rimta jėga. Ką daro italai Rumunijoje (Foto, Video)
+-  [ŽT] „Net visi pasaulio ginklai Ukrainai nepadės...“ Europoje nauja audra. Kas nutiko (Foto)
+-  [ŽT] Suomija atšaukia taiką. Skubiai didinama ginklų gamyba. Kas nutiko
+-  Rusija sukūrė slaptas oro linijas. Turkija – plano dalis. BILD skelbia detales (Žemėlapis)
+-  Inside Ecuador's most brutal gangs: How three bloodthirsty mobs - including one with links to a Mexican cannibal cartel - are battling for control in spiralling turf wars from beheadings to gun massacres
+-  Serie A UnipolSai 2023/24, il programma della 13ª giornata
+-  Real Madrid passa Gonçalo Inácio e António Silva para segundo plano
+-  Today's Top 3 News: Gibran Rakabuming's Debate Style Mirrors Jokowi's in 2014 Election
+-  ŽENA SKOČILA SA TERASE TREĆEG SPRATA Drama u kragujevačkom naselju
+-  Inameh prevé cielo despejado y baja probabilidad de precipitaciones en gran parte del país
+-  U Pridvorju održan koncert božićnih pjesama i kolendi "Izišla je zvijezda Danica", a večeras...
+-  John Dahlström om Växjö-chansen: "Aldrig varit mer sugen"
+-  مساعدات اماراتية للاجئين السودانيين في جنوب السودان
+-  LIV Golf Player Pips Jon Rahm in 2023’s Most Googled Stars With Tiger Woods & Rory McIlroy Topping List
+-  Gran slammed for buying three-year-old granddaughter very controversial birthday present: 'why would a child ever need this?'
+-  Fran Rivera responde a María Patiño y saca a la luz un episodio con la presentadora: "Me dejaba notitas en el parabrisas"
+-  Feminist author Clementine Ford announces shock career move after her podcast was axed by Nova amid backlash for her views on Israel-Gaza conflict
+-  Mediji: Izraelske protivoklopne rakete za hrvatska borbena vozila
+-  Kenan Yıldız tarihe geçti!
+-  Kedvezően alakul az illetékmentesség a Csok Plusznál
+-  Cak Imin Bilang Anggaran Nasional Jadi Sasaran SlepetNomiks
+-  Kickoff | Starting XIs: Arrows v TS Galaxy
+-  Kickoff | Starting XIs: Royal AM v Moroka Swallows
