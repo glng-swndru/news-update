@@ -1,51 +1,51 @@
 # Latest News
--  [ŽT] Rusijoje eglutės puošiamos kitaip (Video)
--  [ŽT] Rusiškos dovanos. Rusija atakavo kritinę infrastruktūrą Chersone. Skelbiami nuostoliai (Video)
--  Çocuk İstismarıyla Suçlanan Turizm Müdürü Gözaltına Alındı
--  WWE’s Charlotte Flair on crutches in first public appearance since heartbreaking injury
--  “Soy policía, amo el canto y la música”: quién es el cabo de la Policía de Córdoba que se lució cantando ‘O Sole Mio
--  Zavedajte se, da šteje samo sedanji trenutek
--  James Cleverly joked about spiking wife’s drink with date rape drug
--  Gázolt a HÉV Mogyoródon
--  Klevv predstavlja Cras V RGB Kit sa DDR5 8400MHz
--  Huawei predstavlja elegantnu kreativnu moć: MatePad Pro
--  اعلام عبري: العملية البرية وسط القطاع ستزيد من كلفة الحرب
--  Serie A: in campo Roma-Napoli 1-0 DIRETTA
--  Torta con crocante para Navidad
--  AEW VP Set To Leave Company After Worlds End PPV
--  ΓΛΥΚΟΠΙΚΡΗ γεύση / Αυτά πρέπει να κρατήσει παρά την ήττα
--  Se estrelló una avioneta en Brasil: cinco muertos, uno de ellos menor de edad
--  Eight-year-old boy fatally shot in chest after he and friend accidentally drove through target practice area
--  Volleyball-Bundesliga: Berlin Volleys bleiben ungeschlagen
--  OVO JE ŽENA KOJA JE NAPALA ČARLIJA ŠINA! Upala u kuću i krenula da ga DAVI
--  ¡Azotó! Alex Lora sufre aparatosa caída en pleno escenario
--  حرب غزة تستعر.. وحصيلة الضحايا ترتفع إلى 74 ألفاً
--  На жителя Ингушетии в больнице напали неизвестные
--  Arsenal mantuvo el empate en Anfield y lidera la Premier
--  جدول مباريات اليوم الأحد 24 ديسمبر 2023 والقنوات الناقلة
--  Selena Gomez reveals what made her fall for producer beau Benny Blanco
--  Cristiano Ronaldo looks ‘terrified’ as Conor McGregor urges Manny Pacquiao to ‘man up’ and accept fight demands
--  Cristiano Ronaldo looks ‘terrified’ as Conor McGregor urges Manny Pacquiao to ‘man up’ and accept fight demands
--  Παραιτήθηκε ο ηττημένος δήμαρχος Χειμάρρας – Άλλον θα διορίσει ο Ράμα αντί του Μπελέρη
--  Salario mínimo en Estados Unidos: a cuánto llegará el aumento en 25 estados el año 2024
--  Sensation knapp verpasst: Der USC Münster spielt stark in Stuttgart
--  İran'dan Rusya'ya protesto notası
--  Punnenovs otro spēli pēc kārtas sargā Lozannas vārtus
--  ليفربول يتعادل مع أرسنال في البريميرليغ
--  أتلتيكو يعبر إشبيلية ويتقدم إلى الثالث
--  Буркина-Фасо, Мали, Нигер и Чад поддержали атлантическую инициативу короля Марокко
--  Vídeo: Martinelli explica treta com Grealish e parabeniza o Fluminense pela temporada: 'Foi um sonho'
--  حفل دير جيست في مصر 2023.. إطلالات مميزة لنجوم الفن
--  Министр обороны Италии призвал к переговорам по Украине
--  Śnieżyca sparaliżowała Lubelszczyznę. Kierowcy walczą z siłami natury [WIDEO]
--  الدرك يوقف نشطاء من "إيرا" أثناء زيارة الرئيس لمدينة اركيز
--  Aparatoso accidente entre autobús y carro deja un fallecido y cinco heridos en Cartago
--  Harvard pronašao recept za sreću i jednostavniji je nego što mislite
--  Unglaubliche SVG Lüneburg verliert Fünfsatzwahnsinn gegen Berlin
--  UBIJENO 76 ČLANOVA ISTE PORODICE! Krvavi napad u Gazi: Među stradalima član UN, njegova supruga i PETORO DECE!
--  مطالب بمرافق خاصة وفتح الصالات الرياضية لنساء رأس الخيمة
--  Tampa settles lawsuit with feds over parental leave for male workers
--  Tampa settles lawsuit with feds over parental leave for male workers
--  손흥민이야 이강인이야, SON의 환상적인 창조적 패스[스한 스틸컷]
--  Retienen entre golpes a Alcalde de Oaxaca; exigen servicios
--  Mum-of-11 shows how she organises her bumper family’s presents for Christmas, and everyone has the same question
+-  Laura Lynch, Founding Member of the Dixie Chicks, Dead at 65
+-  గ్రామాల్లో కోత.. సర్‌ చార్జీల పేరుతో పట్టణాల్లో వాత
+-  Brit activist pictured with Jeremy Corbyn accused of being Hamas’s key liaison in Europe
+-  ليست اتفاقية سلام ولكنها تطوير للهدنة| كتب عبد الناصر المودع
+-  కేసుల కోసం ఎంపీలను తాకట్టు పెట్టారు: ఎంఏ షరీఫ్‌
+-  టెన్నిస్‌ జట్టు..పాక్‌ వెళ్లాల్సిందే!
+-  Артур — о поражении от Бивола: Дмитрий — один из лучших боксёров мира
+-  పారిశ్రామిక దుస్థితిపై బహిరంగ చర్చకు సిద్ధమా?
+-  U Austriji stablo usmrtilo čovjeka, sniježna oluja pogodila dio Evrope
+-  King Charles pokes fun about having ‘sausage fingers’ during coronation
+-  Ρόμα - Νάπολι 2-0: Ξύλο, αποβολές και επιστροφή στις νίκες
+-  సీఎం గారూ... మీపై సినిమా తీస్తే ఊరుకుంటారా?
+-  EUA preocupados com paradeiro de Alexei Navalny e exigem a sua libertação
+-  అల్టిమేట్‌ ఖో-ఖో నేటి నుంచే
+-  Antonio Plazibat pozvan među osam najboljih teškaša Gloryja
+-  Aaron And Nick Carter's Mother Speaks Out After Their Sister Bobbie Jean's Death At 41
+-  Pellegrini retribuiu a Mourinho com golaço no AS Roma-Napoli
+-  సచివాలయ సిబ్బంది, వలంటీర్లను దూరంగా ఉంచండి
+-  Tierheim Bochum: Blutig und abgemagert – so sehr musste dieser arme Hund leiden
+-  Paolo Rossi: "La bellezza dei gol di Yildiz e di Vlahovic..."
+-  'He's sick': Manager says wonderkid out through illness amid claims Spurs contract on the table
+-  HOROR U GAZI! UBIJENO 76 ČLANOVA ISTE PORODICE! Među stradalima radnik UN, njegova supruga i PETORO DECE!
+-  Teoдосиќ се разигра, стана и МВП на колото
+-  6న ఎల్‌1 పాయింట్‌కు ‘ఆదిత్య’
+-  Rising prices, shrinking libraries: How streaming TV is shaking down
+-  São Paulo disputa com River e Athletico a contratação do lateral-direito Leo Godoy, do Estudiantes
+-  Arsenal top at Christmas, Spurs fourth
+-  కుంతలంలో 7 డిగ్రీలు
+-  Director Christopher Landon has left "nightmare" Scream VII production
+-  AS Roma zegeviert in lelijke Italiaanse topper met twee rode kaarten
+-  The week in photos from Mexico: Chilpancingo to Zacatecas
+-  Split osigurao plasman u četvrtfinale Kupa
+-  Obama shares his favorite books of 2023
+-  Κλίπερς - Σέλτικς: Το φοβερό πόστερ του Τέιτουμ στον Τάις (vid)
+-  BONDARENKO, Barry Allan
+-  అనంతలో ఘోర ప్రమాదం
+-  Obama shares his favorite books of 2023
+-  Keir Starmer accused of trying to ‘pull wool over people’s eyes’ amid talk he is set to U-turn on £28bn green splurge
+-  تقدّم للملف الرئاسي وتفاقم في الجنوب والراعي: التوافق يتم أثناء دورات الانتخاب المتتالية
+-  Россия уведомила МАГАТЭ о достаточном количестве персонала для эксплуатации ЗАЭС
+-  National weather forecast for Sunday December 24
+-  Netto: Kunde schäumt bei Blick auf Angebot vor Wut – „Was stimmt nicht mit euch?“
+-  Laura Lynch, founding member of The Dixie Chicks, dies in car crash in Texas
+-  In Chad camps, survivors recount Sudan war horrors
+-  US ‘deeply concerned’ over fate of jailed Putin foe Navalny
+-  Calls for restraint in DR Congo after tense vote
+-  Ce policier s’est déguisé en Père Noël pour arrêter un gang de dealers
+-  Vicario ancora decisivo nel Tottenham, Postecoglou: "Anche oggi è stato bravissimo"
+-  وزير الخارجية المالي يؤكد انخراط بلاده في المبادرة الدولية لجلالة الملك لتسهيل ولوج دول الساحل إلى المحيط الأطلسي
+-  ఒకటి నుంచి సర్పంచుల శంఖారావం
