@@ -1,51 +1,11 @@
 # Latest News
--  Etesa promueve "Navidad con reciclaje"
--  Fenerbahçe'de Fred'in cezası açıklandı! Süper Kupa finalinde...
--  Funkcioneri vratili nezakonito stečenih 47.500 eura
--  'Here We Go' 로마로 인증! 이강인, PSG에서 후배 생긴다...20세 브라질 DF 영입 근접
--  '레알의 차세대 스타' 벨링엄, 세계에서 가장 시장 가치가 높은 선수 등극...20세에 2582억
--  Vatandaşlardan tepki yağıyor... DEM Parti ile iç içe olan CHP yine 'terör' diyemedi
--  Irak ve Suriye'nin kuzeyine hava harekatı! 29 hedef ve çok sayıda terörist imha edildi
--  Karim Benzema ve Kanteli Al Ittihad, evinde mağlup!
--  Erbaş'tan tüm dünyaya çağrı: Hep birlikte Filistin'deki katliamı durduralım
--  Tottenham, Everton'ı iki golle geçti
--  Arsenal hold Liverpool in title showdown to seal top spot
--  MSB’den Irak ve Suriye’nin kuzeyine hava harekatı! 29 hedef imha edildi
--  عمرو أديب يُطلق سلسلة تحذيرات من متحور كورونا الجديد: متفجر الانتشار
--  S.F. police arrest 18 people in anti-shoplifting operations in Stonestown, Mission District
--  Breaking news:” we are ready to….” Mykhailo Mudryk fires three-word Chelsea warning to Wolves ahead of Christmas Eve clash
--  ‘వైసీపీ’ దౌర్జన్యం
--  By: Evelyn Hammond
--  Ковачевски: Просечната плата СДСМ ја покачи на 630 евра, а во времето на ДПМНЕ беше 360 евра
--  Virgil van Dijk appears to ask referee Chris Kavanagh if he has been DRINKING during Liverpool's clash against Arsenal after complaining about a foul
--  LTV: "Jaunā vienotība" piedzīvo būtisku popularitātes kritumu
--  Galatasaray'da Sanchez ve Ziyech'in son durumu belli oldu. Fenerbahçe derbisinde forma giyecekler mi?
--  Irak'ın kuzeyinde şehit olan 6 askerin kimlikleri belli oldu
--  MSB açıkladı! 29 hedef imha edildi
--  İran, Körfez'deki adalarla ilgili Rusya'ya protesto notası verdi
--  Biden Reportedly Talked Israel Down From Striking Hezbollah After Hamas Attack
--  Number of new Covid cases increased 52% globally in past one month: WHO
--  Cómo será la recolección de residuos en Resistencia durante las Fiestas
--  Украинские войска обстреляли Горловку и Донецк
--  Kickoff | Hunt praises young SSU defenders after Bucs win
--  China shuts down 34,000 online accounts to stem rumours, ensure social stability
--  Bez drame u Superligi: TENT rutinski sa Radničkim, pobedile i odbojkašice Partizana
--  Mariah Carey Flashes Smile in Aspen After Reported Split from Bryan Tanaka: Photos
--  Defesa Civil sobre igreja em MG: "O teto veio a desabar por conta da madeira que apodreceu"
--  HRÔZA! Autom ZRÁMOVAL polku mesta, ľudia ZÚRIA: Mohol ZABIŤ desiatky NEVINNÝCH, TVRDÁ reakcia STAROSTU
--  DESIVÁ TRAGÉDIA Peťa zabil RÝCHLIK v CENTRE mesta, do PRÁCE už nedošiel! Mrazivé SVEDECTVÁ: Toto na tom NESEDÍ
--  Canucks: Injured defenceman Carson Soucy is back skating
--  క్రిస్మస్‌ తర్వాత కలెక్టరేట్‌ను ముట్టడిస్తాం
--  News24 | Here are the Daily Lotto numbers
--  Hrvatica potresena, sina joj napali migranti: ‘Jedan ga uhvatio za rame, a dvojica mu blokirala put’
--  SKUAST-K signs MoU with Lemon Ideas
--  Gražulim kārtējā spilgtā spēle – lieliska precizitāte, 26 punkti un desmit atlēkušās bumbas
--  ASUS ROG Tessen Mobile Controller to Launch Alongside ROG Phone 8 series
--  CUK’s Maths Deptt celebrates National Mathematics Day
--  RECAP: Marioo ndio msanii bora wa mwaka??
--  سقوط القطينة يثير الهلع في قلوب السودانيين
--  CUK Science Campus faculty participate in motivational session
--  درنة: شركات عربية وأجنبية تقدمت لصيانة جسر وادي الناقة الرابط بين درنة والقبة
--  Research Methodology: KU hosts 6-day workshop for scholars
--  Enfurecida, quiso atropellar a los médicos de una guardia con su vehículo
--  ليفربول وآرسنال يخدمان المنافسين بالتعادل في أنفيلد
+-  Durante discusión es herido con un cuchillo en el abdomen
+-  Jet, tatuajes y crucero en regalos de los Globos de Oro
+-  كلوب يكشف طبيعة إصابة تسيميكاس
+-  Bio je heroj Hajduka, a sada odlazi u srpskog prvoligaša
+-  قد تؤدي إلى الوفاة.. احذر إعادة تسخين هذه الأطعمة
+-  דובר ש"ס: "הציבור מעוניין לראות הנהגה חדשה וצעירה"
+-  IPC 295 - धार्मिक स्थल को अपवित्र करने वाले के खिलाफ धारा, कानून एवं सजा , legal advice
+-  BBB 24: Isabella Santoni confirma que recebeu convite para reality show
+-  Arrestato un sospettato per il furto dell’opera di Banksy a Londra – Il video
+-  تقارير.. أتلتيكو مدريد يطلب ضم توريس مقابل جواو فيليكس
