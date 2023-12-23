@@ -1,51 +1,11 @@
 # Latest News
--  Kreirati održive politike i mjere za kontrolu upotrebe duvana
--  Ako chutí svet: Vianoce v Chorvátsku sú sviatkom pre všetky zmysly
--  Kto nemá vianočný song, nech hodí salónkou! Slovenský hudobný Ježiško 2023
--  Muž sa chcel napiť limonády na južnom póle: Neskutočné VIDEO! Otvoril plechovku a...
--  Za teroristický čin jej hrozí doživotie: Obvinená z písania výhražných mailov škole v Banskej Bystrici ide do väzby!
--  NETRADIČNÁ vianočná záľuba markizáckej hviezdy: To NAOZAJ?!
--  Piyasaya çıkalı 1 yıl oldu! OpenAI'ın değeri 100 milyar doları geçebilir
--  Windows 11 Moment 5 is allegedly coming February 2024
--  España, el país de la UE con más pobreza infantil
--  Llega la segunda tormenta invernal
--  Sin ser identificada, calcinada en predio de Juárez
--  Llega a Acapulco Navidad entre basura
--  أفضل ما يمكن تناوله على معدة فارغة.. 6 أطعمة مثالية
--  Kaufland-Kunden lösen mit Lob bemerkenswerte Lautsprecher-Durchsage aus
--  Najbolji načini za rješavanje prehlade u jednom danu – i uobičajeni mitovi koji neće pomoći
--  Obsługa prawna spółek - co warto o wiedzieć?
--  Nowy wojewoda lubelski składa świąteczne życzenia Czytelnikom Dziennika Wschodniego
--  Rescatan a unos 160 niños que vivían en “inquilinato” en inmediaciones de la Terminal
--  Detenidos los líderes de una secta de Cáceres que afirmaban curar la homosexualidad con sexo
--  I tested hot water bottles you can WEAR – I found a game-changer that means I can leave the heating off
--  Apel za pomoć: Donacija za liječenje Orea
--  Ανάρτηση από «Αιώνια Πιστούς» για τη συμπεριφορά της αστυνομίας στο Fan Clab
--  أغرب من الخيال.. طائرة تهبط وسط الطريق أثناء مرور السيارات "فيديو"
--  كيف يساعد الشاي على نسف دهون البطن؟.. اعرف السر
--  Kurti: Radoičić pravi planove za druge napade na Kosovu
--  اختراع كبسولة هزازة لإنقاص الوزن.. تؤخذ قبل الأكل وتشعرك بالشبع
--  Красивый гол дебютанта. "Ювентус" победил "Фрозионе"
--  عدوى تنتقل عبر الجنس.. وتحذيرات من ارتفاع الإصابات في بريطانيا
--  20 مشروعًا بـ 2.3 مليار ريال لرفع كفاءة طرق الشرقية
--  Vyfajčil som 700 cigariet za deň. Víťaz Tour Ullrich opísal, ako sa z čistokrvného koňa stal sedliackym
--  Ara transfer dönemi ne zaman başlıyor? Devre arası transfer dönemi 2023-2024!
--  تشكيلة ايفرتون الرسمية للقاء توتنهام
--  HSK'dan kararname açıklaması: Sıkıntılar gözetildi
--  Pietreczko bei Darts-WM weiter - Vier Deutsche in Runde drei
--  Musi izmakla MVP nagrada u Euroligi, pripala srbijanskom asu
--  Президент Ирана призвал найти более эффективный механизм вместо Совбеза ООН
--  Coronavirus : राज्यात कोरोनाच्या नव्या 35 रुग्णांची भर, एकूण रुग्णसंख्या शंभरी पार
--  Surat Accident: સુરતમાં BRTS બસે સર્જ્યો અકસ્માત, બે લોકોના મોતની આશંકા, અન્ય બેની હાલત ગંભીર
--  ضد ريال مدريد .. مدرب يجن جنونه بعد هدف قاتل - فيديو
--  الاحتلال يبدأ عملية برية على حدود غزة مع مصر
--  تنميل القدمين مؤشر على مرض خطير يصيب الرجال فقط
--  هل نوم الزوجين في سرير واحد ضرورة؟
--  وقوع 4 جيبات صهيونية في كمين بجحر الديك
--  أردوغان يطلق أكبر حملة تحول عمراني بإسطنبول
--  So sehr leidet Matthias Reim unter dem Verlust seines Vaters
--  مقتل الطالب الأردني محمد بركات في ألمانيا
--  Mégis lesz fehér karácsony idén? A Bakonyban már majdnem húsz centiméter a hótakaró vastagsága - fotók
--  Congress: প্রিয়াঙ্কাকে সরানো হলো ইউপি থেকে, সচিনকে দায়িত্ব ছত্তিশগড়ে
--  Κώστας Χαριτοδιπλωμένος: Μου πρόσφεραν ένα εκατομμύριο λίρες να πάω στην Αγγλία
--  Show-stopping Christmas dessert takes minutes to make and only needs two cupboard staples – including Nutella
+-  'Kokina'ya İlgi Yılbaşı Yaklaştıkça Artıyor
+-  Accidentes cobran la vida de dos personas
+-  Los comunistas rusos proponen a Nikolái Jaritónov como candidato a la presidencia
+-  Reabre EU cruces; pierden 580 mdd
+-  Va mexicana por Óscar con corto sobre Holocausto
+-  İran ve Mısır Cumhurbaşkanları'nın görüşmesinde gündem Gazze
+-  Napoli, Victor Osimhen'in sözleşmesini uzattı
+-  Seminar of 64-Yoginis held at IITTM
+-  Прогноз на 2024 год: что ждёт Россию в 2024 году, мнения аналитиков
+-  Dark details emerge after Pacifica murder suspect dies by suicide
