@@ -1,11 +1,51 @@
 # Latest News
--  No Christmas In Bethlehem, Vatican Breakthrough & Himalayan Declaration
--  Florida woman who raped her autistic brother-in-law and had his baby claimed she was the victim: sheriff
--  وزير خارجية النيجر..المبادرة الأطلسية لجلالة الملك نابعة من إرادة المغرب تعزيز التنمية المشتركة لمنطقة الساحل
--  ندرة الماء تجعل البشر يفكرون بشكل أفضل
--  کراچی: ’کرسمس کا تہوار خوشیاں بانٹنے کا نام‘ تیاریاں عروج پر
--  Tribunal de EU resuelve que X violó contrato laboral
--  Umang 2023: Arbaaz Khan and Sshura Khan marrying on X'Mas Eve? Actor seals his lips when asked about venue [Watch Video]
--  بوريطة..المبادرة الدولية لجلالة الملك لتسهيل ولوج دول الساحل إلى المحيط الأطلسي ” تعد بتحول استراتيجي لبلداننا”
--  علماء يكتشفون عارضا مبكرا للأكزيما
--  Niebywałe sceny w La Liga. Piłkarz Atletico zupełnie się ośmieszył [WIDEO]
+-  Cumhurbaşkanı Erdoğan: Bölücü alçaklardan döktükleri kanın hesabı sorulmaktadır
+-  Marmara Derbisi'nde kazanan Sakaryaspor
+-  Sport | Ten Hag to Man United after West Ham loss: 'Be calm. Stick together. Stick to the plan'
+-  4 من أقوى التوابل الطبيعية لخفض الكوليسترول الضار والوقاية من أمراض القلب
+-  Yes, Bondi does have a local community
+-  La mala onda de Demichelis con los jugadores de River y el malvado comentario de Vignolo
+-  Gözoxşayan Laçın küçələri - VİDEO
+-  Благодаря перченой закуске минчанка получила от ресторана $106
+-  Los candidatos a la Xunta felicitan unas navidades preelectorales
+-  "Alkaras će biti pravi kada se reši povreda"
+-  FOTO: Predstava, crtani film i podjela paketića za mališane Gornje Zenice
+-  Leslie Shaw sobre Micheille Soifer: “Demostré mi humildad compitiendo con una chica que solo canta covers”
+-  Where is Donald Trump facing 14th Amendment challenges?
+-  To jeden z najzdrowszych kwiatów do sypialni. Hit PRL wraca do łask
+-  Marco Rossi vízilabdázó fia egyszer szívesen csatlakozna a magyar válogatott stábjához
+-  Los ocho regalos que más aprecian las personas en Navidad (y no son objetos)
+-  Siirt'te kar nedeniyle mahsur kalan hamile kadın hastaneye ulaştırıldı
+-  LKA ermittelt: Polizei erschießt mit Messer bewaffnete Person in Mannheim
+-  Les combats se poursuivent entre Tsahal et le Hamas, dans le nord de la bande de Gaza
+-  CAG Report: हिमाचल में पेंशन, उपदान और ऋण लेने के कारण बढ़ रहा राजस्व व्यय
+-  Rishikesh News: गीता जयंती पर बच्चों ने गीता के श्लोक का किया उच्चारण
+-  Sirsa: हुडा मैदान में पूर्व सीएम भूपेंद्र सिंह हुड्डा दिखाएंगे दम, किसान मजदूर जन आक्रोश रैली आज
+-  Budaun News: सुबह छाए रहे बादल, दिन में निकली धूप ने दी राहत
+-  Budaun News: शराब सेल्समैन से बंधक बनाकर 21 हजार लूटे
+-  Budaun News: 60 लीटर शराब बरामद, तीन गिरफ्तार
+-  Budaun News: पौने दो लाख लोगों को नहीं मिला पीएम किसान योजना का लाभ
+-  Budaun News: कार सवार दंपती से लूटपाट की कोशिश
+-  Budaun News: हत्या कर थाने में किया सरेंडर
+-  Farrukhabad News: जयंती पर किसानों के मसीहा चौधरी चरण सिंह को किया याद
+-  Budaun News: तमंचे के साथ पकड़ा गया 25 हजार का इनामी अपराधी
+-  Budaun News: दांतों से पत्नी की नाक चबाई
+-  अब गोली का जवाब गोले से देते हैं देश के सैनिक : मौर्य
+-  Sant Kabir Nagar News: जयंती पर याद किए गए चौधरी चरण सिंह
+-  Udham Singh Nagar News: जिले में 35 जनसेवा केंद्र खोलेगा सहकारिता विभाग
+-  Udham Singh Nagar News: फाइनल में पहुंची हेम और संजीव राज की जोड़ी
+-  Auraiya News: तांगा की टक्कर से बाइक सवार दो श्रमिकों की मौत (लीड)
+-  Agra News: दो और बसें मिली डिपो को, इस माह मिल चुकी हैं 6 बसें
+-  Auraiya News: मरम्मत के बाद पुल पर वाहनों का आवागमन शुरू
+-  शर्मनाक: पड़ोसियों ने महिला के बाल खींचे, रास्ते में गिरा-गिराकर पीटा...बेहोश हुई तो भाग गए
+-  Firozabad: गलत इंजेक्शन से महिला की मौत, घरवालों ने किया हंगामा; क्लीनिक पर ताला लगाकर चिकित्सक हुआ फरार
+-  Agra News: शिकायतों के निस्तारण में नहीं बरतें लापरवाही
+-  Agra News: सर्दी में शुगर और बीपी वाले मरीज बढ़े
+-  UP: आगरा पुलिस की बदमाशों से मुठभेड़, एक को लगी गोली; तीन भाग निकले
+-  Mainpuri: कदमों की हरकत ने करा दी पिटाई, पीआरडी जवान को भीड़ ने पकड़ा; बीच सड़क पर बरसाए थप्पड़
+-  ब्रज एयर सफारी: 101 शिव मंदिरों की हवाई परिक्रमा, फिर बटेश्वर में उतरा हेलिकॉप्टर; सीएम योगी करेंगे शुभारंभ
+-  Etah News: ऑटो में सवार महिला ने सराफ के बैग से तीन लाख के जेवर उड़ाए, नहीं लगी भनक
+-  تدعم العربية.. منصة إكس تطلق خدمة Grok لمنافسة شاتي جي بي تي (فيديو)
+-  Bahraich News: चार केक व दो रस्क के नूमने भरे
+-  Bahraich News: नेपाल से लाया जा रहा 44 पीपा घी बरामद, चालक गिरफ्तार
+-  Kannauj News: 38 किलोग्राम पॉलिथीन जब्त की, वसूला जुर्माना
