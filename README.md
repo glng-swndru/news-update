@@ -1,51 +1,51 @@
 # Latest News
--  487 Suspects Arrested In Ebonyi – Police
--  كورونا يؤثر على صحة الشباب بطريقة صادمة.. احذر أعراض جديدة
--  Amerikaanse vrouw met zeldzame dubbele baarmoeder bevalt in twee dagen van twee baby's
--  Fatalny prognostyk przed TCS. PZN ujawnił, co dzieje się z Dawidem Kubackim
--  Biden trató con Sánchez los ataques en el mar Rojo tras el bloqueo español a la misión naval en la UE
--  چودھری نثار بھی انتخابی میدان میں اترگئے،عمران خان اور ن لیگ سے متعلق کیا کہا؟ جانیے
--  West Ham 0-0 Man United - Premier League: Live score, team news and updates as Erik ten Hag hands debut to teenager Willy Kambwala at centre back with Raphael Varane out again
--  Tiga remaja sesat, cedera di Bukit 300
--  レスリング全日本選手権 女子68キロ級 石井亜海は初戦で敗れる
--  Kaizer Chiefs vs Richards Bay: LIVE updates
--  Визит к проктологу: мифы и реальность
--  I'm a beauty influencer - these are wellness tips that will 'improve your life'... and why you should ditch the GYM
--  The Pixel 8 Pro’s videos get a whole lot brighter with video boost — if you use it right
--  Kaizer Chiefs: FULL LIST of players who could leave for FREE!
--  Nochebuena con tormentas y chaparrones para el sur de Córdoba y otras provincias argentinas
--  Twee jonge Belgische renners botsen frontaal op auto tijdens winterstage in Spanje
--  Israe-Hamas जंग के बीच अमेरिका को ऑस्ट्रेलिया की तरफ से बड़ा झटका
--  North Dinajpur News : জেদ-ইচ্ছাশক্তিতে বয়সকে বুড়ো আঙুল, ৪৪-এ স্নাতকোত্তর হয়ে বিথীকা বললেন 'স্বপ্নপূরণ করছি'
--  Problemi s anketnim ispitivanjem dr. Stojanova: Što zna 500 ispitanika, a ne zna 4 milijuna građana
--  Wall Street rastie, akcie podporilo spomalenie americkej inflácie
--  Health Tips: చలికాలంలో పెరుగు తినాలా వద్దా...డాక్టర్లు చెప్పిన షాకింగ్ విషయాలు ఇవే..
--  Božićni vikend na splitski način: banjanje u plićaku i poziranje za društvene mreže, da i drugi znaju tko je faca
--  Solo traveller on the ultimate nine month long £48,000 cruise with Royal Caribbean reveals what her room looks like
--  Revanth Reddy : ఆటోడ్రైవర్లు, గిగ్ వర్కర్ల సమస్యలపై రేవంత్ రెడ్డి దృష్టి - ఎగ్జిబిషన్ గ్రౌండ్స్ లో ప్రత్యేక సమావేశం !
--  CGPSC ने जारी किया सिविल जज इंटरव्यू का एडमिट कार्ड, ऐसे करें डाउनलोड
--  Ahan Shetty and Tania Shroff end their 11-Year romance, says report
--  Vladajoča koalicija onečastila državni praznik
--  „Klientas nežinomas.“ Rimta jėga. Ką daro italai Rumunijoje (Foto, Video)
--  [ŽT] „Net visi pasaulio ginklai Ukrainai nepadės...“ Europoje nauja audra. Kas nutiko (Foto)
--  [ŽT] Suomija atšaukia taiką. Skubiai didinama ginklų gamyba. Kas nutiko
--  Rusija sukūrė slaptas oro linijas. Turkija – plano dalis. BILD skelbia detales (Žemėlapis)
--  Inside Ecuador's most brutal gangs: How three bloodthirsty mobs - including one with links to a Mexican cannibal cartel - are battling for control in spiralling turf wars from beheadings to gun massacres
--  Serie A UnipolSai 2023/24, il programma della 13ª giornata
--  Real Madrid passa Gonçalo Inácio e António Silva para segundo plano
--  Today's Top 3 News: Gibran Rakabuming's Debate Style Mirrors Jokowi's in 2014 Election
--  ŽENA SKOČILA SA TERASE TREĆEG SPRATA Drama u kragujevačkom naselju
--  Inameh prevé cielo despejado y baja probabilidad de precipitaciones en gran parte del país
--  U Pridvorju održan koncert božićnih pjesama i kolendi "Izišla je zvijezda Danica", a večeras...
--  John Dahlström om Växjö-chansen: "Aldrig varit mer sugen"
--  مساعدات اماراتية للاجئين السودانيين في جنوب السودان
--  LIV Golf Player Pips Jon Rahm in 2023’s Most Googled Stars With Tiger Woods & Rory McIlroy Topping List
--  Gran slammed for buying three-year-old granddaughter very controversial birthday present: 'why would a child ever need this?'
--  Fran Rivera responde a María Patiño y saca a la luz un episodio con la presentadora: "Me dejaba notitas en el parabrisas"
--  Feminist author Clementine Ford announces shock career move after her podcast was axed by Nova amid backlash for her views on Israel-Gaza conflict
--  Mediji: Izraelske protivoklopne rakete za hrvatska borbena vozila
--  Kenan Yıldız tarihe geçti!
--  Kedvezően alakul az illetékmentesség a Csok Plusznál
--  Cak Imin Bilang Anggaran Nasional Jadi Sasaran SlepetNomiks
--  Kickoff | Starting XIs: Arrows v TS Galaxy
--  Kickoff | Starting XIs: Royal AM v Moroka Swallows
+-  SPRIJEČITE NADUTOST I GASOVE: HRANA ZA VRIJEME PRAZNIKA KOJA NE DA MIRA VAŠEM STOMAKU
+-  Los hinchas de River le contestan a Flavio Azzaro por su furioso ataque al Diablito Echeverri
+-  الأونروا: ربع سكان غزة يتضورون جوعاً
+-  6 فوائد صحية مهمة لتناول البصل النيئ... ما هي؟
+-  Cumhurbaşkanı Erdoğan açıkladı: 350 bin konutu dönüştüreceğiz
+-  Komisija rekla ne: Duncova ipak ostaje bez kandidature
+-  ‘노량’ 100만 돌파, ‘서울의 봄’과 본격 쌍끌이 흥행 “크리스마스 극장가 웃는다”[MD픽]
+-  Teodosić MVP!
+-  Five-story Manhattan townhouse of ‘Home Alone 2: Lost in New York’ fame on market for $6.7M: ‘Iconic listing’
+-  El traje pirata del presidente
+-  Revolutionary Solar-Powered Device Transforms Polluted Water Into Clean Hydrogen Fuel & Purified Water
+-  Turska je druga zemlja na svetu sa najviše kulturnih dobara
+-  KIŠA, GRAD, SNEG, OLUJNI VETAR! Srbija na udaru eskstremnog vremena: Neće vam biti dobro kada vidite prognozu do Nove godine, ovog dana biće ČAK +18!
+-  DOGOVOR NIJE POSTIGNUT: Favorit rijalitija se ne vraća u “Elitu” nakon diskvalifikacije
+-  В Донецке начал работу первый пикет по сбору подписей за выдвижение Путина
+-  ‘নির্বাচনী প্রচারণায় স্লোগান শুনলেই বুক ধড়ফড় করে’
+-  John van ’t Schip denkt nog iedere dag aan overleden vrouw: ‘Ze zit in mijn lichaam, in mijn systeem’
+-  В Госдуму внесут законопроект о привлечении частного капитала в сферу науки
+-  Hanne über EM-Nominierung: «Gänsehaut am Hörer»
+-  טנקים ונגמ"שים: צה"ל בפעילות חריגה באזור ציר פילדלפי
+-  Weihnachts-Reisewelle – ADAC: „Großes Chaos ausgeblieben“
+-  В Москве произошло массовое ДТП
+-  Citypress | WATCH: World's top 7 unique festive season traditions
+-  Indulto de Biden a Saab le prohíbe lucrarse de películas o libros sobre su vida
+-  Interveñen 8.341 xoguetes en seis concellos na provincia de Pontevedra
+-  Мелле на пътя в София! Има ранени
+-  Diyanet İşleri Başkanı Erbaş, Fransa'da şehit askerler için dua etti
+-  CHP'nin ittifak ortağı DEM Parti'den skandal "Öcalan" tehdidi! Tepki yağdı
+-  Sivasspor bu sezon iç sahadaki ilk galibiyetini aldı
+-  Geri sayım başladı! KAAN için heyecanlandıran gelişme
+-  FIFA Forward'dan Türk futboluna 9,8 milyon dolarlık destek
+-  Стоилковски: Дали Оливер Спасовски возвраќа услуга на Командантот Баци, со тоа што синот не завршува во Шутка?
+-  Чемпион мира из России процитировал Роналду: «Чтобы прыгнуть выше надо сделать шаг назад»
+-  Detalji požara u Subotici: Nastradao muškarac, 11 vatrogasaca gasilo vatrenu stihiju
+-  Rusya'da başkanlık için 29 aday!
+-  Tunisie-Elections locales: Silence électoral, ce samedi
+-  Разведка Южной Кореи перешла на экстренный режим из-за угрозы провокаций КНДР
+-  Ex-BBB Cézar Black pede Kally Fonseca em namoro
+-  25 شخصاً سقطوا بـ«مخالفة الآداب العامة»
+-  Ovo je novi Galaxy S24: Procurele fotografije osnovnog modela u svim bojama
+-  Ambasador Niemiec: Putin nie zamierza negocjować ani zmieniać wojennego kursu
+-  "OTAC MI JE REKAO DA SAM BEZ MORALA I DA NISAM NJEGOVA ĆERKA" Zadrugarka šokirala priznanjem, otkrila svoju mračnu tajnu: "Napisala sam TESTAMENT"
+-  Atwell shoots Lynx past Flyers, Melbourne stars again
+-  Atwell shoots Lynx past Flyers, Melbourne stars again
+-  Jugar no es cosa de niños
+-  Papież powierzył Polakowi ważną misję
+-  Кметът на Берлин обещава да поддържа обществения ред в новогодишната нощ
+-  ŽIVĚ: Martin Koller přináší otázky k masakru na filozofické fakultě
+-  Bivša novinarka ne može protiv Putina: Duncovoj nije odobrena kandidatura za izbore
+-  Free bicycle scheme to cover over 16,000 Plus One students in Tiruppur district for 2023-24 session
