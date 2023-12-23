@@ -1,11 +1,11 @@
 # Latest News
--  Second man arrested for suspected drug dealing
--  The history of: croissants
--  Electro-twist on Christmas
--  عمران خان کا الیکشن میں حصہ لینے کیلئے سپریم کورٹ سے رجوع
--  শিশুর অটিজম শনাক্ত করবে কৃত্রিম বুদ্ধিমত্তা
--  Seca no Algarve. Produtores de laranja pedem ajuda para salvar produção
--  Quatro feridos graves e 35 detidos por excesso de álcool
--  Mariana Mortágua lança "grito contra a guerra" no Médio Oriente
--  Turkish parliament resumes debate Tuesday on Sweden NATO bid
--  Krunic via dal Milan? Già scelto il sostituto: può arrivare a gennaio
+-  Weekend PC Game Deals: Winter Sales 2023 Edition
+-  Tesla 120 bin aracını geri çağırıyor
+-  Kto zastąpi Ireneusza Mamrota w roli trenera Górnika Łęczna? Jest poważny kandydat
+-  Bakıda silah-sursat aşkarlandı
+-  Tego dnia sprawy nie załatwisz. Urzędnicy będą mieli dłuższy weekend
+-  Turizm cennetiydi... Artık kimse gitmiyor: 'Hiç bu kadar boş kalmıyordu' Tatilciler rotayı o ülkeye çevirdi...
+-  এ দেশের রাজনীতিতে বিষফোড়া বিএনপি
+-  Pregnant Justina Syokau ditches plan to release 2024 song after being bullied
+-  Tirana fitoi titullin si Kryeqyteti Mesdhetar i Kulturës, Kojdheli: Ja përfitimet që pritet t’i sjellë kryeqytetit
+-  晨光追擊│ 「最多歡笑」渾身是勁
