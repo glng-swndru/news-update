@@ -1,11 +1,51 @@
 # Latest News
+-  KFC vacsorára: melyik ország karácsonyi hagyománya?
+-  20258 شهيداً و53688 مصاباً.. منذ بدء العدوان الإسرائيلي على غزة
+-  Życzenia z okazji Świąt Bożego Narodzenia składa Bożena Krygier, przewodnicząca Rady Miasta Puławy
+-  Prezydent Andrzej Duda zawetował ustawę okołobudżetową
+-  Turkey says 12 soldiers killed in clashes with Kurdish militants
+-  8 موضوعات محظورة على الاعلام العبري دون موافقة الجيش
+-  OpenAI inicia tratativas para nova captação a um valuation de pelo menos US$ 100 bi
+-  Incrementan 45% enfermedades respiratorias
+-  חי מליגת העל: מכבי תל אביב - הפועל חיפה 0:0 (רבע 1)
+-  Daily deals Dec. 23: $250 off M3 MacBook Pro, iPhones as low as $110, $20 off AirTags, more
+-  Sabahetja e Prishtinës
+-  Бестемьянова: на чемпионате России в Челябинске был фантастический уровень фигурного катания
+-  Kickin’ It with Kiz: Dear Santa, could you please bring us a new Rockies owner that has a clue?
+-  Tercera torre más alta de Los Ángeles se vendió por 45% menos que el precio de 2014
+-  Juventus, nuova inchiesta della Procura di Roma: nel mirino il bilancio 2022
+-  ללא הזרים ועם 6 צעירים: כך נראה סגל מכבי למשחק מול הפועל חיפה
+-  CAN 2023 : Sept arbitres du Maroc retenus
+-  Journalist shares what Richarlison did after Tottenham goal v Everton
+-  맨시티 제쳤다… '손흥민 11호골-득점 2위' 토트넘, 에버턴 2-1 꺾고 4위
+-  ‘리그 11호골-득점 2위’ 손흥민, 득점왕 가능성은[초점]
+-  어느덧 득점 2위… 손흥민, 득점왕 시즌 우연 아니었음을 증명하다[스한 이슈人]
+-  ‘I Did What I Had To Do’: Rihanna Reveals Her Viral Pregnancy Announcement At The Super Bowl Wasn’t Planned And Explains Why She Went Through With It
+-  Tribunal sostiene descalificación del PNP a exfuncionario municipal que buscaba retar al alcalde de Cataño
+-  Mansha Pasha reveals name of Indian actor she wants to work with
+-  'सांसदों ने इरादतन मचाया था हंगामा', जगदीप धनखड़ ने मल्लिकार्जुन खरगे के पत्र के जवाब में और क्या कहा?
+-  Vegavita CBD Gummies – {Review 2024} is it safe To Use and Worth to Buy?
+-  VP Dhankhar writes to Kharge again, invites him to residence on Christmas Day
+-  Umang 2023: Ranbir Kapoor and Bobby Deol hug each other as they pose together
+-  Заради силния вятър фериботът Оряхово - Бекет спря работа
+-  ФОТО. 20-летний украинский футболист Динамо женился
+-  ECOWAS delegation in Sierra Leone after 'coup' attempt
+-  Want to get through airport security faster? Avoid these 3 common mistakes
+-  Dışişleri Bakanı Fidan, şehit askerler için taziye mesajı yayımladı
+-  Arsovska mori pjesë në puntorinë për programet e reja për përkrahje të ndërmarrësisë dhe inovacionit
+-  Totenhem zaustavio Everton, Luton uzeo mjeru Njukaslu
+-  Haven’t used uncivil words against Union Minister, says Udhayanidhi
+-  Hrvatska puni tribine na ušminkanoj zagrebačkoj Mladosti: ‘Velika je to stvar za hrvatski sport‘
+-  BFM Stratégie (Cours n°254): Un an après ChatGPT, quel est l'impact business de l'IA générative ? – 23/12
+-  إشادات واسعة بتنظيم السعودية كأس العالم للأندية
+-  Naci Görür Hükümete Seslendi! 'Üzülerek Söylüyorum...'
+-  Zračna luka Mostar uskoro u novom ruhu, evo kako će izgledati
+-  Berater-Legende Roland Berger rechnet mit Bundeskanzler Scholz ab: „Er kann kein Land regieren“
+-  Priyanka no longer U.P. in-charge; Sachin Pilot to handle Chhattisgarh
+-  I’m an etiquette expert – why you should NEVER announce your pregnancy or engagement on Christmas Day
+-  Славата с 6 контроли през зимата, две от проверките са срещу елитни тимове
+-  ندوة حوارية تناقش المسرح السعودي في ظل رؤية 2030
 -  أبو عبيدة يعلن فقدان الاتصال بـ5 أسرى ويرجح مقتلهم
 -  ارتفاع عدد شهداء قطاع غزة إلى 20258
 -  بن حبتور: اللغة العربية مرتبطة بتاريخ اليمنيين
--  8 فروری کو عوام مہنگائی کا ظلم ڈھانے والوں کا صفایا کردیں گے، شہباز شریف
--  Współpracowniczka prezydenta Dudy o wecie. "Wynika z kwestii, niestety, oczywistej"
--  توتنهام يفوز على إيفرتون في الدوري الإنجليزي
--  Ατλέτικο Μαδρίτης - Σεβίλλη 1-0: Επιστροφή στις νίκες για τους Ροχιμπλάνκος
--  A 10 años del estreno de Vikingos, así luce el actor que dio vida a Floki
--  Ďalšia rana pre Prahu, na letisku Václava Havla nahlásili bombu! Na mieste zasahuje polícia
--  Vianoce slovenskej speváčky: TOTO určite u nich NEČAKAJTE!
+-  Electric vehicle ecosystem in India needs a push: experts
