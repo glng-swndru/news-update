@@ -1,11 +1,11 @@
 # Latest News
--  ป.ป.ส. เคลียร์ยาเสพติด 15.7 ตัน เตรียมทำลาย
--  اليوم.. 4 مواجهات في دوري نجوم العراق لكرة القدم
--  Do situationships affect our emotional intelligence? Experts say yes, here’s why
--  Katrina Kaif reveals she looked up to Malaika Arora during modelling days
--  ‘Al fondo hay sitio’: Alessia es apuñalada por Benjamín en impactante final de temporada
--  Как ухаживать за волосами зимой? Важные советы от таджикского специалиста
--  Навстречу выборам: в Костроме начал работу избирательный штаб сторонников Владимира Путина
--  “เศรษฐา” มวย ONE ลุมพินี สนุกมาก แต่อยู่ไม่ทันคู่สุดท้าย
--  Lost ancient colony off coast of Australia that hundreds of thousands once called home discovered
--  Kartal'da İETT otobüsü duman çıkartarak ilerledi
+-  U17 WC 평정한 '제2의 메시' 내년 유럽행? 직접 입 열었다..."재계약 없다, 6개월 뛰고 상황 지켜볼 것"
+-  태연 '찐친' 헤이즈, '놀라운 토요일' 뜬다…'탱이즈' 케미 보여준다
+-  السفيرة الأميركية الجديدة... من الـ1559 إلى الـ1701
+-  दराजका उत्कृष्ट १४ बिक्रेतालाई अवार्ड
+-  Lebih 1,000 guru baharu ditempatkan di Sarawak
+-  Gibran Rakabuming Bertanya Soal SGIE ke Muhaimin, Timnas Amin Singgung Strategi Jokowi
+-  ميقاتي يعلن جهوزية لبنان لتطبيق القرار 1701.. واشتباكات الجنوب تمتد إلى ما وراء الحدود
+-  JN.1 Covid 19 variant: Are coronavirus symptoms still the same? Expert says, ‘tricky to identify as…’
+-  France grounds flight carrying 303 Indians on human trafficking suspicion
+-  Canadians feeling the pinch while shopping for holiday dinner
