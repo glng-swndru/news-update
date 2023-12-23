@@ -1,11 +1,11 @@
 # Latest News
--  딱 143억만 투자하면…메시 봉쇄한 우루과이 철벽, 손흥민 동료 된다
--  Azam baharu tahun baharu
--  Bekalan global terjejas, makin banyak kapal elak Laut Merah
--  Gibran Rakabuming Sebut Singkatan saat Bertanya ke Muhaimin, Anies Baswedan Singgung Soal Cerdas Cermat
--  '할리우드 악동' 찰리 신, 자택서 습격당해…범인은 이웃 여성
--  ‘마약 혐의 3차 소환’ 이선균 …인천경찰청 마지막 조사 장시간 예상
--  Jasa Marga Prediksi Arus Mudik Natal 2023 Terjadi Hari Ini
--  Israel Kembali Diadukan ke ICC atas Kejahatan Perang Terhadap Jurnalis Palestina di Gaza
--  Confuso próximo despegue de Mexicana de Aviación
--  Hay calles en penumbra en Punta Oriente
+-  클럽 월드컵 우승을 원해? '이 선수'를 영입해!...축구 역사상 최초 3개의 팀에서 모두 트로피 차지
+-  75만 유튜버 아옳이, 세금 2억 추징 "모르는 것도 잘못…실수 없도록 노력하겠다" [MD이슈](종합)
+-  'KBS 새 월화드라마 여주인공' 홍예지, '환상연가' 스틸 공개됐다
+-  학자금 대출 금리 1.7% 동결...지원금액도 확대
+-  2028년 대입 권고안 자세히 보니...수능에 "심화수학 없다"
+-  'SKY대' 수시 합격자 30% 등록 포기…여전히 의대 선호
+-  포항제철소 불, 1시간40분만에 진화…공장 일부 가동 중단
+-  의를 지키려는 성웅 이순신의 마지막 전투 《노량: 죽음의 바다》
+-  Kerala govt’s move to tighten eligibility norms, teachers' unions up in arms
+-  Demuestran su talento en cierre navideño
