@@ -1,11 +1,11 @@
 # Latest News
--  Jhalak Dikhhla Jaa 11: Is Bigg Boss OTT 2 fame Manisha Rani the new wildcard entry?
--  Twitter violated contract by failing to pay millions in bonuses, US judge rules
--  Urpilainen avaisi presidenttinä suomalaisyrityksille ovia nousevissa talouksissa: "Viennin edistäminen on osa ulkopolitiikkaa"
--  Urpilainen avaisi presidenttinä suomalaisyrityksille ovia nousevissa talouksissa: "Viennin edistäminen on osa ulkopolitiikkaa"
--  Внимавајте, магла на неколку патни правци
--  Scientists Invent A New Test That Unveils Unseen Facets Of Creative Mind
--  體育署》台灣運動產業博覽會今開展 谷筱霜、丁華恬美力論壇打頭陣
--  खरगे को PM उम्मीदवार बनाने के प्रस्ताव पर भड़के JDU विधायक, कहा- उन्हें कोई नहीं जानता
--  UŽIVO Izrael nastavio da bombarduje Pojas Gaze
--  Polnjena jajca: krasna božična predjed
+-  Teen wrangles alleged burglar until police arrive in Melbourne
+-  Teen wrangles alleged burglar until police arrive in Melbourne
+-  Vánoční svátky si mohou lidé na Vysočině zpestřit i kufrováním či šifrovací hrou
+-  10 il için "turuncu" ve "sarı" kodlu uyarı
+-  Beşiktaş transfer için düğmeye bastı! Hedefteki isim Can Keleş
+-  Hindistan'da başörtüsü takma yasağı kaldırılıyor
+-  Çok sayıda ülke Türkiye için sıraya girdi! Bakan Bolat: Birlikte iş yapmak istiyorlar
+-  İstanbul'da 636 aranan şüpheli gözaltına alındı
+-  Záchranárov počas Vianoc zamestnáva najmä pomoc pri bolestiach brucha
+-  Česko drží štátny smútok za obete streľby v Prahe
