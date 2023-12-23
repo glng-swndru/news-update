@@ -1,11 +1,11 @@
 # Latest News
--  Pag-IBIG Member Loans 2023 — Guide on Offers You May Apply For
--  DANAS NIGDE BEZ KIŠOBRANA! Pad temperature i padavine, a onda nagli preokret: Detaljna prognoza do Nove godine
--  Editorial: Bosques invaluables, pero insuficientes
--  ایپلی کیشن کا اجراء، حج آپریشن ڈیجیٹلائزڈ کردیا گیا
--  Uyaina Arshad idolakan Sarimah Ibrahim
--  9to5Rewards: Google Pixel 8 giveaway (+ Formovie Theatre 4K Ultra Short Throw Projector deal)
--  Entinen kolumbialaissotilas tunnusti osallistuneensa salajuoneen Haitin presidentin murhaamiseksi
--  Entinen kolumbialaissotilas tunnusti osallistuneensa salajuoneen Haitin presidentin murhaamiseksi
--  Richmond RCMP probes gunfire at 2 restaurants
--  Transmart Full Day Sale Hari Ini! Tempat Tidur Tingkat Diskon Rp 2 Jutaan
+-  Sickle cell and recuperation
+-  Albergarán migrantes en la ex escuela Morehead
+-  Filas de hasta 2 horas 40 minutos para cruzar a El Paso
+-  Priyanka meets wrestler Sakshi Malik, assures of support for fight in justice
+-  Жители Германии назвали Шольца самым слабым политиком в стране
+-  Bisa Diterapkan di Awal Tahun, Ikuti 5 Perubahan Sederhana Ini Agar Awet Muda dan Panjang Umur
+-  Horóscopo de hoy: lo que deparan los astros este 23 de diciembre
+-  Fine art ceramics lecturer helps to mould rural children
+-  Kenton Seagull Regatta trying for world record
+-  Xhosa designer’s dreams take her to New York Fashion Week
