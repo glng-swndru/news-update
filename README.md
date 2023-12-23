@@ -1,51 +1,11 @@
 # Latest News
--  Investigasi Washington Post Ungkap Israel Bohong soal Rumah Sakit Al Shifa Jadi Markas Hamas
--  I sidste uge blev 35 jøders demonstration aflyst på opfordring af PET. I dag blev den afholdt: »Vi kan ikke leve i frygt«
--  I sidste uge blev 35 jøders demonstration aflyst på opfordring af PET. I dag blev den afholdt: »Vi kan ikke leve i frygt«
--  Novi poraz Junajteda
--  Campbell Library Friends host book sale
--  A Very Laufey Hoilday Drink Campuran Rasa Asam Manis Menyegarkan
--  Cambia AMLO oootra vez dependencia para compra de medicinas
--  Mann bei Unfall in Niedernberg leicht verletzt
--  Hakim ve savcı yardımcılığı dönemi başlıyor!
--  Тен Хаг прокомментировал поражение «Манчестер Юнайтед» от «Вест Хэма»
--  Φωτορεπορτάζ: Αποέλ – ΟΜΟΝΟΙΑ
--  Corrupción en la Policía: “Seguiremos amputando brazos para salvar el cuerpo”
--  Girish Mahajan : जरांगेंना मुंबईत येण्याची वेळच येणार नाही, मराठा समाजाला आरक्षण मिळणारच-गिरीश महाजन
--  Ataman: vittoria importante, nel secondo tempo la miglior difesa della stagione
--  Safeguarding roads this festive heightened activity
--  Coupe du Monde de cyclocross: Mathieu van der Poel intraitable à Anvers malgré un départ manqué (VIDEO)
--  OSCG: Uručena priznanja najboljima u 2023. godini
--  Jakob Norén missar JVM för Sverige
--  Berisha: Duan të më burgosin, por s’kanë asnjë provë!
--  Preocupación por el estado de salud de Sofía Suescun: "Los dolores me han tenido en vela"
--  المستشفيات الميدانية الأردنية في فلسطين .. رسالة إنسانية تاريخية
--  Theo Lindstein ersätter Jakob Norén i JVM
--  Marco Buschmann: Justizminister will Polizei mit Elektroschockern ausrüsten – Kritik von Polizeigewerkschaft
--  Скъпи ли са любимите свински пържоли по Коледа
--  Directivo de club de motocicletas murió tras un supuesto intento de asalto en la calzada Roosevelt
--  Marcus Rashford has 'more hair styles than goals' after Man Utd debuts new barnet
--  Khách Ẩn Nguyệt - bà vú nuôi quyền lực Trung Hoa, có gì đặc biệt?
--  Západ by nemal verejne preceňovať neúspechy Ruska na Ukrajine, tvrdí Inštitút pre štúdium vojny
--  [농협은행 울산본부, 울산시에 이웃돕기 성금 1억원 전달
--  ['천아용인' 김용태 "전 탈당 안 한다…이준석과 이별 선언은 아냐"
--  [“사진 속 두 트리 비슷한가요?” ‘아이디어 베끼기’ 두고 시끌
--  [롯데월드 어드벤처 부산, 크리스마스 기념 ‘찾아가는 테마파크’ 진행
--  [이강덕 포항시장 "포항제철소 화재에 전 행정력 동원해 최대 지원하라"
--  [‘성탄절 이브’ 서울엔 새벽 1∼3㎝ 눈 예보
--  [美 이스라엘 설득 목표, 대선 앞둔 바이든 '시험대'
--  [“행운을 빕니다” 한동훈, 장관 마지막 날 학생에게 책 선물
--  [포항제철소 화재 진화완료…정전 복구 중
--  [“이달 월급도 몽땅 코인 샀다” 12억원어치 코인 ‘몰빵’한 이 남자
--  [美 안보 우산 아래로…북유럽 방위협정 '속속'
--  [중국 간쑤성 강진 발생지역 학교, 25일부터 순차적 수업재개
--  [강추위에 동파 속출…수도계량기 열풍기로 녹이다 불
--  [민주 “비대위원장 한동훈, 김건희 특검법 수용하라”
--  Kaizer Chiefs win third game on the bounce under Johnson
--  [생방 중 화장 지운 여성 진행자…“난 26세 아닌 46세, 부끄러울 일 아냐”
--  [[르포] “눈물의 손절매인데 아무도 안산다” 2030 오피스텔 투자자의 비명 [부동산360]
--  [“정말 행복했어요” ‘오뚜기 3세’ 함연지, 돌연 유튜버 활동 중단 선언…대체 왜?
--  [박지원 “민주당마저 실망의 연속…옛날 이낙연으로 돌아오라”
--  [정용진의 ‘함박웃음’…아내 한지희 독주회 참석, 장남과 ‘특급외조’
--  [러시아-우크라이나, 양국 포로 위해 편지·소포 첫 교환
--  [“삼성도 빨리 만들어라”…‘5만원’ 애플 제품에 폭발한 사람들
+-  Фанлар академиясининг ҳақиқий аъзолари тасдиқланди.
+-  Тошкентда жиноятда гумонланиб, 8 нафар шахс ушланди.
+-  İşgalci İsrail "vurmayacağız" dediği kilise ve manastırı hedef aldı
+-  İzmir'de göçmen kaçakçılığına operasyon: 15 tutuklandı
+-  Eski KGB ajanı kirli planları itiraf etti! Dört yöntem kullanılıyor
+-  Aydın'da uyuşturucu operasyonu
+-  Nyt alkaa olla jo tosi kovia puheita - ManU-legenda latasi rajua kritiikkiä
+-  Число жертв при атаках в Газе достигло 20 258 человек, заявили в Палестине
+-  Clarke wins Under 14 section in Online chess event
+-  Атанас Славов: Прокурорският съвет ще се председателства от негов член
