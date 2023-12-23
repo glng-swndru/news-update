@@ -1,11 +1,51 @@
 # Latest News
--  Ram Charan and Upasana Konidela meet Maharashtra CM Eknath Shinde
--  Solar mission Aditya-L1 will reach destination on January 6: ISRO chairman
--  Udhayanidhi Stalin: ’நிதியை தான் கேட்டேன்.. தவறாக பேசவில்லை ’ - நிர்மலா சீதாராமன் குற்றச்சாட்டை மறுத்த அமைச்சர் உதயநிதி
--  Watch: Russian Paratroopers Hit Ukrainian Infantry Near Artemovsk With Drones
--  PTCL landline, broadband prices increased by 10pc after latest surge
--  Ukraine Oo Shaacisay In Ay Soo Riday Diyaarado Dagaal Oo Uu Ruushku Leeyahay
--  मोटरसाइकल दुर्घटनामा दुईको मृत्यु
--  Tänaval maganud ja alajahtunud inimeste elud päästeti
--  Wow! Lottie Tomlinson zeigt durchtrainierten After-Baby-Body
--  Sustainable Tourism Harapannya Bisa Bantu Kembangkan Desa Wisata
+-  Palomas para Cristina Pacheco
+-  İnternette sahte kadın profilleri açıp insanları dolandırdılar! Sekiz gözaltı
+-  Lämpöakku rikkoi maailmanennätyksen – Kehitteillä olevaa prototyyppiä rahoittaa myös Bill Gates
+-  الاحتلال يهاجم عددا من مواقع حزب الله جنوب لبنان
+-  العلماء يكتشفون طفرة وراثية تسبب الصلع
+-  80% من أطفال غزة يعانون من فقر غذائي حاد
+-  علاج جديد للاكتئاب بتحفيز الحبل الشوكي
+-  Cyprus property market unaffected by regional conflict, stakeholder says
+-  Furiosa: itt a magyar előzetes az új Mad Max-filmhez
+-  ‘বইফেরীর জন্মোৎসব ও বেস্টসেলার অ্যাওয়ার্ড-২০২৩’ প্রদান অনুষ্ঠান
+-  [정형외과] “세상에 이런 질병도 있나요?” ... 흉곽출구증후군이란?
+-  Opravený zámek Akademie se stal perlou města
+-  Jak mohl získat zbrojní průkaz? David K. se měl dřív léčit s psychickými problémy
+-  Näin Venäjä ”lyödään kolmessa vuodessa” – Virolaisraportti latoo luvut pöytään
+-  Wrexham Council urges residents to check bin collection Day over Christmas
+-  Illuminations de Noël : où s’en mettre plein les yeux en Cornouaille ?
+-  Man City big-game partnership wins again and can help Premier League race
+-  সুরা বাকারার ২৮৫-২৮৬ আয়াত নিয়মিত পাঠ করলে জান্নাতের পথ সুগম করবে
+-  যেভাবে এক টিকিটে দুই দেশ ভ্রমণ করে এলাম
+-  Eva och Kent slog till med julbröllop
+-  Ki hogyan takarít meg a régióban? Mutatjuk!
+-  Jako unesené dítě mezi nepřáteli cítíte vnitřní boj, říká propuštěný Ukrajinec
+-  Charlie Sheen: US-Schauspieler von Nachbarin tätlich angegriffen
+-  ‘নৌকা না পাইলে খাড়ানো দূরের কথা, শুইয়া থাকতেও পারতা না’
+-  俄中商定擬有利合作項目
+-  Feijóo asume el desgaste y los ataques de Vox por el mediador europeo con Sánchez para el CGPJ
+-  THL:n pääjohtajana aloittava Mika Salminen verottaisi sokeria kovemmin ja pitäisi viinit poissa ruokakaupoista – hyvinvointipalveluita on Salmisen mielestä keskitettävä
+-  THL:n pääjohtajana aloittava Mika Salminen verottaisi sokeria kovemmin ja pitäisi viinit poissa ruokakaupoista – hyvinvointipalveluita on Salmisen mielestä keskitettävä
+-  Já že se budu živit tenisem? Naděje Nosková o lásce k New Yorku i přírodě
+-  Vánoční ozdobárium láká v Hranicích na ukázky baněk i dalších ozdob
+-  Já že se budu živit tenisem? Naděje Nosková o lásce k New Yorku i přírodě
+-  Winnipeg přehrál Boston, Mrázek s Chicagem nestačil na Montreal
+-  Karnataka: हिजाब विवाद पर कर्नाटक के मंत्री प्रियांक खरगे ने कहा, ‘हिजाब बैन हटाने का फैसला संविधान और कानून के दायरे में लिया गया’
+-  Veteran Nollywood Actor Turns Okada Rider
+-  Keysbrook: Heartbreak as more homes are lost in out-of-control WA bushfires
+-  Severe thunderstorms with ‘giant’ hail tipped for SEQ on Christmas Eve
+-  নোয়াখালীতে স্বতন্ত্র প্রার্থীর অনুসারী আওয়ামী লীগ নেতার বাড়িতে হামলার অভিযোগ
+-  Rayados le cierra las puertas a Funes Mori en Brasil: 'Gremio no será destino para Rogelio'
+-  Abolishing health deductible could increase premiums by €35, expert warns
+-  ‘Acted like a petulant child’: Cowan joins Curran debate as Sixers vow to back their man
+-  মেরিন একাডেমিতে ভর্তিতে আবেদনের সময় বাড়ল, দেখুন ৬৮৪ আসনের বিস্তারিত
+-  ‘Acted like a petulant child’: Cowan joins Curran debate as Sixers vow to back their man
+-  داد بیداد ۔ عوام کو مزید ۔ ڈاکٹرعنا یت اللہ فیضی
+-  Mojkovčani ne žele rudnik: "Šta će nam, nije dobar za zdravlje"
+-  Asgari Ücret Hafta başında açıklanabilir
+-  Tiada perbincangan, peniaga Medan Samudera minta penutupan jalan hanya 18 jam
+-  Biden 'heartbroken' that American believed kidnapped by Hamas is dead
+-  Les Suns battus autoritairement par les Kings (120-105)
+-  Beşiktaş Görüşmelere Başladı
+-  Трамп заявил, что в случае переизбрания передаст власть мирным путем преемнику
