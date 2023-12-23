@@ -1,51 +1,11 @@
 # Latest News
--  מוחמד עשוי לפתוח מול חדרה. דגו: "נזהר לא לסחוט את השחקנים"
--  Pešić o Jokiću na OI: Prerano je za to
--  Miroslav Đukić ide u Čile?
--  6 ile şehit ateşi düştü Türkiye'nin yüreği yandı! Şehit olacağını hisseden kahraman
--  Hayley Williams Selling Favorite Edibles at Salon
--  [극한직업] '장작, 참숯, 짚불' 직화의 불맛을 위해 고군분투하는 사람들
--  EBS [귀하신 몸] 성인 3명 중 1명 '탈모'-탈모 예방 솔루션
--  [그것이 알고싶다] 2023 위기의 교실 - 서이초 사건 그후
--  Ludger K. – Keine Satire! Habeck ist ein Held
--  التقديم ينتهي السبت المقبل.. وظائف شاغرة بجامعة الإمام محمد بن سعود
--  عاجل.. الحج والعمرة تتيح زيارة الروضة الشريفة بعد 365 يوماً من آخر تصريح
--  Πρόβλεψη εντεκάδας με Αποέλ
--  Das Armutszeugnis einer Regierung: Tafeln werden “überflutet”
--  Immunité de Trump: la Cour suprême refuse de statuer en urgence
--  Donald Trump Denies Knowledge of Hitler: I’m Not a Student | Latest US News
--  Poet, Naat Khawan Muzaffar Warsi remembered
--  British royals exchange ‘slightly rude’ Christmas gifts, including whoopee cushions and toilet seats
--  Betalált a nézőknél a Netflix legújabb manga-adaptációja
--  Szolnoki FLIRT lett a legmegbízhatóbb vonat az Egyesült Királyságban
--  Letzter Einkaufs-Samstag vor Heiligabend: Wie voll ist es in der Dortmunder City?
--  Christmas movies that lie about Santa Claus
--  Trotz höherer CO2-Abgabe: Leipziger Stadtwerke behalten angekündigte Preise für das Jahr 2024 bei
--  Petoro povređenih u saobraćajnoj nezgodi na auto-putu; Prevrnuo se autobus
--  Poznata voditeljka fotografijom Nikole Jokića nasmejala Ameriku: "Opet se desilo" FOTO
--  Der Wuppertaler Sportler der Woche: Duncan Brune stürmt als erster Deutscher für ein US-College-Team
--  Prizde takılı unutulan elektrik sobası konteynırı küle çevirdi
--  Kvrgić se našao u knjizi rekorda, a žena mu bila najveća podrška: 'Nikad nisam ton digao na nju'
--  Dolci e caramelle in dono ai bimbi malati del Regina Margherita
--  Sportsko srce za Eniza: Trče humanitarnu virtualnu utrku kako bi pomogli maratoncu
--  Spaziergänger - Weihnachtskarte in Korneuburg gefunden
--  Caryl Lewis a Valériane Leblond yn cydweithio ar lyfr 'tragwyddol' i'r Nadolig
--  From ‘Top Boy’ & ‘Anatomy Of A Fall’ To ‘The Newsreader’: The Deadline International Team Picks The Top Films & TV Shows Of 2023
--  Jährliche Förderung - NÖ Pflege- und Betreuungsscheck: Beantragungsfrist läuft bald ab
--  В деревне Аната неизвестными убиты двое жителей Восточного Иерусалима
--  حاكم الشارقة يعزي خادم الحرمين الشريفين بوفاة الأمير محمد بن بدر
--  Negoziante apre dopo il suo negozio: “Non c’è cosa più importante di mio figlio”
--  Pakënaqësi brenda dhe jashtë vendit mbi qëndrimin amerikan për Gazën
--  Loire-Atlantique. Après l'incendie du gymnase, les associations de cette commune démunies
--  Ekrem İmamoğlu, İYİ Parti'nin İstanbul teşkilatına karışıyor! Genel Başkan Yardımcısı söyledi
--  Teljes útzár az 1-es főúton: két ember beszorult autójukba a frontális karambol következtében
--  الاحتفاظ ببعض المحتجزين للمساومة.. إعلام إسرائيلي: خطة منظمة للسنوار لإنهاء الحرب على غزة
--  CDU und Grüne brüskiert: Der Bürgermeister holt die Rute raus
--  Man Utd’s Transfer Battle for Timo Werner on Loan as Aston Villa Competes for Striker in Title Bid
--  Affaire Ndella Madior Diouf : les nounous déballent, de graves révélations
--  SK호크스, 상무피닉스 잡고 4연승 질주...선두 경쟁 불지폈다
--  Burza wokół PAP. Suski zadzwonił do Budki
--  ΟΜΟΝΟΙΑ: Ανακοίνωσε σημαντικές πληροφορίες για τον κόσμο της ενόψει ΑΠΟΕΛ
--  Aufnahmestopps und Wartelisten - Tafeln beklagen Überlastung
--  Aslı Enver eşi ve kızı Elay'la Boston tatilinde!
--  Bakan Bolat: 6 ayda rekor kırıyoruz
+-  Разработан проект «Цифровой двойник Алматинской области»
+-  Marmara Denizi'nde fırtına uyarısı!
+-  MİT ve Emniyet'ten ortak operasyon
+-  iOS 17.2.1: Apple Suddenly Releases Unexpected Update For All iPhone Users
+-  Devir işlemlerinde dikkat!
+-  Тошкентда “лизингчилар” юзлаб фуқароларни бир неча млрд сўмга чув туширди.
+-  Sokak röportajında ekmeğin ve markanın fiyatını bildiler. Yiyemedikleri için pirzolanın fiyatını bilemediler
+-  Políticos, ¿nunca de vacaciones?
+-  Corte Suprema retrocede
+-  Fenerbahçe ve Galatasaray arasındaki rekabet forma fiyatlarına da yansıdı! İlan sayısı 4 bini geçti, en pahalı formanın fiyatı dudak uçuklattı
