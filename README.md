@@ -1,51 +1,11 @@
 # Latest News
--  300.000 Wunschzettel in Weihnachtspostfiliale in Himmelpfort eingegangen
--  Invitan a usar servicio de acompañamiento bancario
--  Une tren interoceánico el Golfo con el Pacífico
--  ¿Qué es la depresión navideña y cómo evitarla?
--  Кетма-кет 11 қурбон: умрбод қамалган “киракаш” синфдошларнинг серияли қотилликлари.
--  Андижонда ҳоким маҳаллада кутубхона қуришни буюрди, уни 12 ёшли бола бошқаради.
--  هذه أبرز 8 إنجازات طبية في 2023
--  Ο Παναθηναϊκός ανακοίνωσε το sold out με τον Ερυθρό Αστέρα
--  وول ستريت جورنال: سيطرة الاحتلال على شمال غزة لا تعني القضاء على حماس
--  Кандидат на листата „Србија не смее да запре“ за пратеник во српското Собрание штрајкува со глад
--  Rememora Sancti Spíritus aniversario 65 de su liberación (+ fotos)
--  خريطة الأسعار اليوم: ارتفاع اللحوم والجبن وانخفاض السكر
--  Bolão em Mato Grosso fatura prêmio após acertar 4 números na Quina
--  Terceiro grupo de brasileiros repatriados de Gaza chegam ao Brasil
--  Secretaria de Gestão divulga resultado dos prêmios Servidor Eficiente e Modernização do Serviço Público
--  Kingdom of the Planet of the Apes director Wes Ball confirms new trilogy
--  Mićić i Perišić najbolji sportisti Beograd - Dudi Ivkoviću nagrada za životno delo
--  Macron: Terrordåd kan stoppa OS-invigningen
--  Salto Uruguay…y casiocho meses al margen
--  ৪২ দিন পর ঘরে ফিরলেন কাশ্মীরে নিহত তিনজন
--  तीन करोड़ की व्हेल मछली की उल्टी जब्त !
--  NYT: Putin skickar hemliga trevare om vapenvila
--  Sismo en el noroeste de China que dejó 148 muertos causó pérdidas millonarias.
--  Pertinent question of our time: Looking at Climate Financing, concerns and actions
--  MARKO POZAJMIO PARE KOMŠIJAMA I DEBELO SE POKAJAO: Bili smo dobri prijatelji, bilo je na poverenje! Mogu li do para bez priznanice
--  Božićni ugođaj i trenovski komadi na sunčanom Stradunu
--  Don’t shake or stir: drinks firms push bottled cocktails for the holidays
--  Bayern-Star verrät seine Zukunftspläne – und wie es in München weitergeht
--  Little KITEs sub-district camps will begin on December 27
--  Dengue autóctono en Córdoba: tres personas dieron positivo y son los primeros de la temporada
--  Талентираниот Јилдиз издрибла тројца и постигна гол првенец, Јувентус до три бода против Фросиноне (ВИДЕО)
--  СМИ: польская компания подала в суд на фирму из США из-за контракта по СПГ
--  Ing. Francisco Cano (Nacional)»No estamos tan lejos de la decisión de jugar»
--  Island: Bewohner von Grindavík können Weihnachten daheim feiern
--  Ispovijest udovice Siniše Mihajlovića: ‘Znate li što je napravio tjedan dana prije smrti? Baš mi nedostaje...‘
--  จัดเต็มกับความสุขส่งท้ายปี ในงาน Music at the Museum 2023
--  Preso por hurtar un aire acondicionado de un colegio en San Félix
--  Zgjedhjet presidenciale në Rusi/Përjashtohet nga gara gruaja që sfidoi Putin
--  Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
--  Empresa de Florida vendía productos '100% estadounidenses' y en realidad eran chinos
--  POTRESNA ISPOVEST JEDNE OD NAJLEPŠIH ŽENA NA BALKANU: Bila sam u paklu droge, prostitucije i bluda! Zatrudnela sam, a on... FOTO
--  [포토] 김숙·김병현·정호영·정지선·추성훈·히밥·전현무, '2023 KBS 연예대상 참석'
--  Ind vs SA Test: पिच क्यूरेटर के बयान से हलचल, पहले टेस्ट में बनाई गई ऐसी पिच
--  Vaiko accuses Centre of showing partiality in release of funds to States ruled by Opposition parties
--  ‘Curse’ of Dawson’s Creek – including double amputation after horror hit & run and drunken bust-up at hockey game
--  أمريكا تستعد لتخفيف القيود على بيع الأسلحة للسعودية.. "توقيت حساس"
--  В Киеве демонтировали монумент участникам Январского восстания 1918 года
--  Anger in remote parts of Indian-controlled Kashmir after 3 are killed while in army custody
--  Figaro: 23% французов планируют перепродать ненужные подарки на Рождество
--  Atilla Taş tutuklandı! Eğlenmeye gitti olay çıkartıp polisle tartıştı
+-  Geek Preview – ‘Granblue Fantasy: Relink’ Delivers Gran(d) Combo Of Action RPG Flair & Multiplayer Fun
+-  Buque mercante afiliado a Israel es alcanzado por un vehículo aéreo frente a la India
+-  La Audiencia da la razón a sindicatos y dice que Ryanair vulneró derecho a huelga en 2022
+-  Irán amenaza con cerrar el Mediterráneo por la guerra en Gaza, pero no explica cómo
+-  Rusia subirá un 10% el pago a Bielorrusia por el tránsito de crudo desde febrero: Kommersant
+-  Sinop’taki balık tezgahlarında zargananın kilosu 150 lira
+-  몰도바 의회, 기술 비즈니스 프레임워크 연장 법안 통과
+-  Una persona muere atropellada en la vía Domingo Díaz
+-  Banden- und Drogenkriege in Marseille: Die blutige Entzauberung linker Multikulti-Wahnvorstellungen
+-  Lazio, Tare e il rapporto con Sarri: "Ecco cosa è successo tra di noi"
