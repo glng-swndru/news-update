@@ -1,11 +1,51 @@
 # Latest News
+-  Muere “Chonín” en triple colisión en Pesé
+-  Sıfır otomobillerde büyük fırsat! 200 bin TL’ye kadar indirim! Bu özellikler doğuştan geliyor! Az öde çok kazan
+-  Ne Köfteci Ramiz ne Köfteci Yusuf! Bu tarifi hepsini solda bırakıyor: İşte hepsini çatlatacak kremalı köfte tarifi
+-  עוד כישלון של מערכת הביטחון: הגבול בין עזה למצרים - שהפך למוקד הברחות של חמאס
+-  EFCC re-arrests convicted Italian for contempt of court
+-  «مات من الفرحة».. تفاصيل اللحظات الأخيرة في حياة ياسر حسن المدير الإداري للترسانة
+-  Iran shares data on weekly sales at its mercantile exchange
+-  Siete generales serán retirados por sobornos del ex gobierno
+-  Avaí anuncia o retorno do volante Judson após cinco temporadas
+-  أرسنال يفعلها للمرة الرابعة في تاريخه
+-  Moradores de Sinop são alvos de estelionatários em golpes aplicados nas redes sociais
+-  EE.UU. expresa preocupación por el paradero de Navalni y exige su liberación
+-  Contrary to politicians’ claims, offshore wind farms don’t kill whales. Here’s what to know
+-  Familia de Anahí: ¿Quiénes son los papás y hermanas de la cantante?
+-  Bursaspor'a ceza yağdı! 7 oyuncu men edildi
+-  Clamoroso dalla Germania: la UEFA pronta ad escludere il Barcellona dalla prossima Champions
+-  Calicut varsity to start music centre
+-  Coinbase se registra en la AMF para prestar servicios de criptodivisas en Francia
+-  Fannie Mae prevé un crecimiento de las ventas de viviendas hasta los 5,4 millones en 2025
+-  Partes beligerantes en Yemen se comprometen con medidas para alto el fuego: enviado especial ONU
+-  El presidente polaco dice que vetará las propuestas de gasto del gobierno
+-  El CEO de Binance dimite en medio de una multa de 4.300 millones de dólares y retos regulatorios
+-  Jahresendspurt bleibt aus – Union und Ampel in Umfrage weiter gleichauf
+-  Jahresendspurt bleibt aus – Union und Ampel in Umfrage weiter gleichauf
+-  ÖFB-Star Arnautovic glänzt mit einem Traum-Assist
+-  Will motion passed by UN Security Council on Gaza have any impact?
+-  We test three glittery eyeshadows at all price points for the party season – the winner is versatile
+-  From Christmas food for dogs to buying a micro pig – your pet queries answered
+-  '친정팀에 비수' 히샬리송, 사타구니 수술 이후 리그 3경기 연속골 '폭발'...부활의 신호탄 제대로 쐈다
+-  Fotogalerie: Polizei sichert Kölner Dom nach Hinweis auf Anschlagsplan
+-  Galería: A reventar, la Liber y la Cuarta por compras navideñas
+-  Video: Desde ayer, cientos de migrantes varados en Sacramento
+-  Vuelcan vacacionistas en la carretera Jiménez-Torreón
+-  Help, I’m a woman, 41, and I often forget what I’m talking about mid-sentence…Dr Jeff answers your health questions
+-  From ramblers group to backpack alternative – we test three winter walking essentials ahead of Boxing Day
+-  No. 25 Mississippi beats Southern Miss 89-72 for 12th straight win
+-  Nick and Aaron Carter’s sister, Bobbie Jean, dead at 41
+-  عاجل.. القرار الرسمي في زيادة عدد المحترفين الأجانب بالدوري السعودي
+-  From drink hacks to remedies – here’s all you need to know about hangovers this festive season
+-  Bill shock warning for anyone calling friends and family this Christmas – and how to avoid huge charge
+-  Marinković: Tražili smo da RIK formira radnu grupu kako bi se revidirao birački spisak i ukinuli fantomski birači
+-  The dark web warped the minds of Brianna Ghey’s killers – it must be outlawed
+-  As war tears the world apart, we should count our blessings to live in Britain this Christmas
+-  Masakra w Pradze. Nie żyje nadzieja czeskiego sportu. Miała 20 lat
+-  المقاومة الإسلامية تنعي شهيدًا لها!
+-  الأهلي: تعرضنا للظلم من حكم مباراة فلومينينسي
+-  İsrail Gazze'de 5 askerinin daha öldürüldüğünü duyurdu
+-  RUSIJA TUGUJE: Poginula velika zvezda ruskog sporta
+-  (Фото) Откажани божиќните прослави во Витлеем во знак на солидарност со жртвите во Газа
 -  المملكة ترحب بقرار مجلس الأمن الداعي لاتخاذ خطوات عاجلة لوقف مستدام لإطلاق النار في غزة
--  Judge rules Twitter, now X, breached contract by blocking millions of pay bonuses
--  تفاصيل الحالة الجوية يوم الاحد - تحذيرات
--  مجلس محافظة الزرقاء: إنشاء 22 مدرسة على برنامج المنح الدولية
--  87 حالة طارئة تتعامل معها بلدية غرب إربد خلال المنخفض الحالي
--  الملك يعزي عشيرتي الدباس وآل الصاحب
--  مستشفى سوروكا: استقبلنا 2284 مصابا منذ بدء الحرب
--  جيش الاحتلال: نخوض معارك ضارية في معاقل حماس
--  سلطة وادي الأردن تعلن الطوارئ المتوسطة
--  إعادة فتح طريق العدسية - الشونة الشمالية
