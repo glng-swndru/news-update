@@ -1,11 +1,51 @@
 # Latest News
--  Geek Preview – ‘Granblue Fantasy: Relink’ Delivers Gran(d) Combo Of Action RPG Flair & Multiplayer Fun
--  Buque mercante afiliado a Israel es alcanzado por un vehículo aéreo frente a la India
--  La Audiencia da la razón a sindicatos y dice que Ryanair vulneró derecho a huelga en 2022
--  Irán amenaza con cerrar el Mediterráneo por la guerra en Gaza, pero no explica cómo
--  Rusia subirá un 10% el pago a Bielorrusia por el tránsito de crudo desde febrero: Kommersant
--  Sinop’taki balık tezgahlarında zargananın kilosu 150 lira
--  몰도바 의회, 기술 비즈니스 프레임워크 연장 법안 통과
--  Una persona muere atropellada en la vía Domingo Díaz
--  Banden- und Drogenkriege in Marseille: Die blutige Entzauberung linker Multikulti-Wahnvorstellungen
--  Lazio, Tare e il rapporto con Sarri: "Ecco cosa è successo tra di noi"
+-  Sivasspor galibiyet serisini 5'e çıkardı!
+-  HSK'dan 'güz kararnamesi' açıklaması
+-  Katie Price reveals heartbreaking reason she’s eating curry on Christmas Day – after her panto performance is slammed
+-  5 tipov na filmy, ktoré si nemôžeš nechať na Vianoce ujsť. Všetky zaradili televízie do svojho programu
+-  В ДНР в результате обстрела со стороны ВСУ пострадали два человека
+-  Замминистра обороны РФ вручил орден Почета Тверскому суворовскому военному училищу
+-  העיניים של הלוחמים: כך מזהים את המחבלים מהאוויר - ותוקפים אותם
+-  Nova masovna pucnjava! Muškarac pucao kod knjižnice, ubio jednu osobu, a ranio četiri
+-  Milli futbolcu Kenan Yıldız, Juventus'ta siftahı yaptı
+-  US tensions with China are fraying long-cultivated academic ties. Will the chill hurt US interests?
+-  وزير الزراعة يطلق مبادرة «أحلم» لتمويل رؤوس الأبقار الحلاب بالشرقية
+-  Pakar Mikroekspresi Sebut Mahfud MD Pandai Kendalikan Ekspresi Emosi
+-  البام يعلن تجميد عضوية الناصري وبعوي في إنتظار إستكمال التحقيقات القضائية ضماناً لعدم التشويش على البحث
+-  Man Utd legend Paul Scholes slams ‘NAIVE’ Erik ten Hag for away-day struggles and claims ‘you can’t afford to do that’
+-  Man Utd legend Paul Scholes slams ‘NAIVE’ Erik ten Hag for away-day struggles and claims ‘you can’t afford to do that’
+-  BRITANSKA KRALJEVSKA PORODICA UVEK JEDE ISTU HRANU Praznična trpeza na dvoru je dosadna, a evo koji je glavni specijalitet za Božić
+-  تزامنا مع احتفالات اليوم الوطني.. إطلاق قطري لمشروع اللغة والثقافة العربية بأمريكا اللاتينية
+-  هجوم بطائرة مسيرة يستهدف سفينة تجارية قبالة سواحل الهند
+-  عاجل.. ارتكب 10 جرائم صادمة.. تنفيذ حكم الشرع في مواطن بالرياض
+-  حملة مفاجئة على العمالة الأجنبية في الأحساء.. وهذا ما تم ضبطه
+-  Chief Minister Jagan Mohan Reddy inaugurates ₹956-crore CenturyPly unit at Badvel in Andhra Pradesh’s Kadapa district
+-  Tragedia en vísperas de la Navidad: hijo asesina a su papá a machetazos en Magdalena
+-  Ryan Minor, Who Replaced Cal Ripken At End Of Record Streak, Dies
+-  West Ham fans moan ‘that man’s face has taken a BATTERING’ as Tomas Soucek left with black eye after Man Utd collision
+-  West Ham fans moan ‘that man’s face has taken a BATTERING’ as Tomas Soucek left with black eye after Man Utd collision
+-  На Украине рассматривают возможность вызывать в военкоматы электронными оповещениями
+-  Eagle-eyed fans spot Julian Alvarez copying idol Lionel Messi with eerily similar goal in Club World Cup final
+-  Eagle-eyed fans spot Julian Alvarez copying idol Lionel Messi with eerily similar goal in Club World Cup final
+-  Saldi invernali in Fvg: ecco quando inizieranno e come evitare le truffe
+-  Reaperturan Jardin Botanico Lancetilla, en Tela
+-  Somalili Korsanlar Ticari Gemiyi Kaçırdı
+-  Trafikte Karşılaştı, İnip Vurdu!
+-  Águilas vence a Leones en doble juego y subió al sexto de la tabla
+-  Focus is on bringing back normalcy in Southern districts: CM
+-  Serie A: Vlahovic nets winner as Juventus beat Frosinone 2-1
+-  كتائب القسام تعلن إيقاع 4 آليات للاحتلال في كمين محكم ومقتل جميع أفرادها
+-  Elég kemény a Nemzetközi Űrállomás edzésprogramja, de ez az űrhajósoknak létfontosságú
+-  Эксперт разоблачил ближайшие планы Путина
+-  Conference on Artificial Intelligence held
+-  Libur Nataru, Wisatawan Turut Serbu Paket Natal dan Malam Pergantian Tahun di Hotel Yogyakarta
+-  'I have used Munawar for limelight; I want to remove him from Bigg boss' : Ayesha's shocking revelation to Neil Bhatt
+-  الإمارات.. «الصحة» تعلن وفاة مريض سرطان ضمن القادمين من قطاع غزة
+-  Arjun Erigaisi: Not the best feeling to finish second on tiebreaks
+-  BVB will HSV-Talent Otto Stange als Ersatz für Paris Brunner
+-  Pisa-Ascoli, le formazioni ufficiali: Castori conferma il 3-5-2, Aquilani opta per la trequarti pesante
+-  Allemagne : des croix gammées découvertes sur la tombe de l'ancien chancelier Helmut Schmidt
+-  LIVE TMW - Salernitana, Sabatini: "Io non voglio retrocedere. Pretenderò tanto dalla squadra!"
+-  6 transport group tiklop sa LTFRB
+-  FC Bayern News: Möglicher Transfer von Ex-Spieler Joshua Zirkzee vom FC Bologna
+-  Η… αλλαγή του Καρσέδο
