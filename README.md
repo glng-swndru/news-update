@@ -1,11 +1,11 @@
 # Latest News
--  ג'ונס פותח בליברפול, סלאח שב להרכב נגד ארסנל
--  Manchester City conquista el Mundial de Clubes y Guardiola, otro récord
--  Recogen firmas para que “salven” a Derek Rosa, el niño de 14 años que mató a su madre en Florida
--  Maman j’ai raté l’avion : que deviennent les acteurs du film ?
--  الاحتلال يعترف بإصابة 44 عسكريا خلال 24 ساعة
--  Udinese, Cioffi: “Il Torino ha contenuti importanti, gli abbiamo concesso pochissimo”
--  Öğrencisini ilk yardımla hayata döndürmüştü... Bakan Tekin'den öğretmene ilişkin paylaşım
--  Yine gururlandırdı! Hakan Çalhanoğlu inanılmazı başardı
--  Sinfra bloqueia trecho da MT-251 próximo ao Portão do Inferno para avaliação de novo deslizamento
--  Gestos de amor e compromisso marcam visita à maternidade de Várzea Grande
+-  Varados migrantes frente a Central Camionera
+-  Government inaugurates works in Nagua; Solar Azul park is launched
+-  Kashmir-Central Asia Connect
+-  Jovan ih u dušu dirnuo
+-  Pomozite hrabroj majci
+-  غوغل تعيد إطلاق تطبيق الدردشة “تشات” بشكل جديد
+-  Creative Structures Built By Neanderthals Is Upending How We View the Species
+-  Strompreise stürzen ins Negative – zu viel Strom, für zu wenig Stromkunden #strompreis
+-  US Condemns Vandalism Of Hindu Temple In California
+-  Godzilla Minus One, Across the Spider-Verse Among Oscars Finalists
