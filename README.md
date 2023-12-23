@@ -1,11 +1,51 @@
 # Latest News
--  Asgari ücret için kritik hafta! İşte olasılıklar...
--  Salaar Box Office Collection Day 1: Prabhas’ Film Becomes Biggest Opener of 2023
--  Dunki BO day 2: SRK starrer loses grip on Friday collected about Rs 20 crore
--  Dr Misio w Zgrzycie [zdjęcia z koncertu]
--  Uzman uyardı: Size uygun olmayabilir
--  Путин отметил вклад СРЗП в сплочении и консолидации общества в России
--  Veľký predvianočný PRIESKUM: Voľby by vyhral Smer! Slováci najviac veria TOMUTO politikovi, ako obstáli lídri opozície?
--  Weihnachten bei den Royals: Alkohol-Enthüllung! So feuchtfröhlich geht es in Sandringham wirklich zu
--  Un libro asegura que el monarca emérito se hizola vasectomía tras nacer Felipe
--  El alcalde de Los Montesinos sube el sueldo a los funcionarios con carácter retroactivo sin informes que lo avalen, según Izquierda Unida
+-  "سويسرا" تتصدر التريند بعد استفتاء بشأن استيراد "كبد البط المسمن".. ما القصة؟
+-  الهيئة الملكية لمكة المكرمة والمشاعر المقدسة تفعّل مبادرة استخدام وسائل النقل الخفيفة
+-  ضبط مزور محررات رسمية وتقليد أختام حكومية بالجيزة
+-  Jetzt auch noch einen Soli für die Ukraine?
+-  Gewinnt einen SoundCore Space Q45 Kopfhörer mit aktiver Geräuschunterdrückung und vielen anderen Extras
+-  WeatherTalk: winter clouds are mostly flat clouds
+-  Inter lose stars Martinez and Dimarco to thigh strains
+-  Telefonunuzdan sıkıldınız mı? iPhone’unuzu Game Boy’a dönüştürmek!
+-  DİM imtahanların nəticələrini açıqladı
+-  Začasno odvzeto vozniško dovoljenje? Tukaj je rešitev.
+-  GAJIĆ OKUPIO OMILJENA TV LICA! Sanja Marinković, Voja Nedeljković i Suzana Mančić ovog vikenda u emisiji "dIvan show"
+-  Die spektakulärste Eröffnung seit God of War 2: Spider-Man 2 ist geradezu lächerlich aufregend
+-  Varnar för miljondraget: ”Han fixar juldegen nu”
+-  Tesla’s Cybertruck arrives with 340-mile range and 845bhp
+-  Σάρωσαν, αλλά σταματάνε: Οι 4 ελληνικές σειρές που τελειώνουν φέτος
+-  ‘अपाङ्गता भएका व्यक्तिको राजनीतिमा सहभागिता खै?’
+-  Naoružan kao Rambo pucao po susjedima, palio im kuće i aute, ali neće u zatvor! Tužiteljstvo ima drugu ideju
+-  Sam Ryder breaks his silence after Wham! beat him to the Christmas number one spot
+-  Kraj afere na Rujevici? Sopić našao ‘zamjenu‘ za Selahija, mogao bi postati jedan od najvećih transfera Rijeke
+-  Parzinger: „Wir vermissen das Pergamonmuseum“
+-  خلال أسبوع.. ضبط 5 أطنان سكر دون مستندات وتحرير 300 محضر تمويني بالإسكندرية
+-  Calvin Bassey reveals Rangers ice amid dressing room storm as he responds to sneering Ajax pundits who targeted him
+-  Les Knicks plus chauds que jamais pour transférer Evan Fournier ?
+-  „Historischer Verrat“: Geflüchtete treten bei den Grünen aus
+-  Türk Bilim İnsanları Akdeniz Bölgesi'nde İstilacı Yabancı Bitki Türü Keşfetti
+-  Airport Handlers Four-Day Strike Over Holiday Period
+-  Signos. Os números da sorte para encontrar o amor ainda em 2023
+-  Halid Makić dobio nagradu za popularizaciju nauke i promociju BiH
+-  Federalni zavod za Vijesti.ba: Penzije u januaru neće biti uvećane
+-  Arrestohet hajduti serial në Vlorë (Emri)
+-  Soccerladuma | Man City Star Accused Of Disrespecting Fluminense Players
+-  Kaivattu nimi sopimuspaperiin - ”Gnistan on ansainnut paikkansa Veikkausliigassa”
+-  KBS 연예대상 '슈퍼맨이 돌아왔다' 출연진 모두 한자리에
+-  'KBS 연예대상' 오늘(23일) 개최…전통 강호 VS 신흥 강자 '대상'은 누구 품에?
+-  Trabzonspor - RAMS Başakşehir maçının VAR'ı belli oldu
+-  سونے کی قیمت میں سیکڑوں روپے کمی
+-  EuroLeague Top-10: Με φανταστική ασίστ Λαρεντζάκη και Πόιθρες στην κορυφή (vid)
+-  Ini Dia Pertanyaan Killer Gibran Rakabuming Tiru Jokowi Menjebak Lawan Debat
+-  Enzo Pérez despede-se do River Plate após conquista: "Vou sentir falta"
+-  Sunshine Stars Official Dies After Gunmen Attack
+-  길어지는 '마약 혐의' 이선균 3차 조사…"새벽쯤 끝날 전망" [MD이슈]
+-  Reiseverkehr zu Weihnachten: Damit rechnet der ADAC im Norden
+-  Korkusu sebebiyle doktora gitmedi: Boğazındaki iki kiloluk kitleyle 50 yıl boyunca yaşadı
+-  Marapi Yanardağı patlaması nedeniyle Batı Sumatra'daki havalimanı kapatıldı
+-  «Сибирь» обменяет Прохоркина в «Трактор»
+-  Karamürselli Merih Demiral, Suudi Arabistan'da yıldızlaştı!
+-  Dramatičen pobeg državljana Moldavije pred slovenskimi policisti
+-  "OTAC JE BIO STROG PREMA NJEMU, NIJE MU DOZVOLJAVAO ŽURKE I DJEVOJKE"Komšije o ubici iz Praga: JEDAN POTEZ JE BIO ČUDAN
+-  X (Twitter) poursuivi par la justice pour non paiement de bonus à ses employés
+-  باتشيكو يطمئن على جاهزية رمضان صبحي قبل مواجهة فيوتشر
