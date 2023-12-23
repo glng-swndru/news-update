@@ -1,9 +1,24 @@
 # Latest News
+-  [영화수다] '믿음'을 다시 생각하다
+-  Εφορία: Όλες οι φορολογικές υποχρεώσεις μέχρι το τέλος του έτους
+-  BYD'nin Avrupa'daki ilk elektrikli otomobil fabrikası için seçtiği ülke belli oldu
+-  다올TS, “지속·적극적인 투자로 파트너 기회 확대할 것”
+-  Det hände lördagen då biblioteket glömt att låsa dörren
+-  চলনবিলের খাল কেনাবেচা করছেন স্থানীয় প্রভাবশালীরা
+-  Очаква ни облачна и ветровита събота
+-  J-Hope BTS Tiba-tiba Pulang ke Army Saat Wajib Militer
+-  Juraj Slafkovsky scores as Montreal Canadiens rally past Chicago Blackhawks 5-2
+-  Juraj Slafkovsky scores as Montreal Canadiens rally past Chicago Blackhawks 5-2
+-  ITC Fabelle Chocolates introduces ‘5 Taste Sensations’
 -  136 موظفا أمميا قُتلوا بالحرب على غزة
 -  ألبانية تتوج ملكة جمال الأرض 2023
 -  أجواء باردة بأغلب المناطق وأمطار بشمالي ووسط الأردن
+-  Julie Seed's shattered fiancé Chris Smith reveals new details about how she was allegedly stabbed to death inside a Plympton, Adelaide real estate office
 -  الحشد الشعبي: ضربنا هدفا إسرائيليا بالبحر الأبيض المتوسط
+-  ഇന്ത്യൻ സ്കൂൾ ബഹ്‌റൈൻ 2023 - 2026 വർഷത്തെ ഭരണസമിതി അധികാരമേറ്റു
 -  한 달에 8만5천 원 버는 기자의 자기암시
+-  Šventinis savaitgalis bus drėgnas: sniegas maišysis su lietumi, temperatūra balansuos ties nuliu
+-  “He’s the only Chelsea player I’m scared of playing against. I hope he gets benched against us”- wolves manager finally opens up that he’s scared of facing 25years old dynamic Chelsea star
 -  Tenía varios días perdido y lo hallaron sin vida en paraje solitario
 -  Cae mujer con hierba seca y polvo blanco en Loma Colorada
 -  Muere motorizado al chocar con camión articulado
@@ -27,25 +42,10 @@
 -  West Indies vs England: Shai Hope denies tourists in tense finale to seal four-wicket win and 3-2 T20 series victory
 -  Hibernian vs Hearts: Sky Sports to deliver series of new innovations for Edinburgh derby
 -  Manchester United's Old Trafford home given 1 out of 5 rating by Food Standards Agency after inspection
+-  Usai Debat Cawapres Bahas Ekonomi Kerakyatan, Paginya Gibran Kunjungi Pasar untuk Cek Harga Pangan
+-  Mahfud 'Serang' Gibran IKN Belum Ada Investor, Ridwan Kamil Ungkap 30 Proyek Rp 40 T
+-  OOTD Nagita Slavina Saat Nonton Debat Cawapres, Totalnya 5 Kali Lipat Gaji Prabowo Subianto Sebagai Menteri
+-  В Астрахани 22 декабря зажгли огни на главной елке города
+-  샌디에이고, 토론토와 크로넨워스 트레이드 논의했다
+-  NephroPlus and Indian Society of Nephrology (ISN) announce ‘RENOVATE’: The Data-Driven Academic Contest at ISNCON 2023
 -  Nezabudnuteľná Alžbetka z Perinbaby: Dnes je z nej ŠEDIVÁ DÁMA... A takto spomína na nakrúcanie!
--  Školník vydesil ľudí hrôzostrašným VIDEOM: Stačil jediný pohľad na balón v triede...
--  Floods, fires and more floods: Murray Watt has had a busy year
--  JOKIĆ POSTAVIO NOVI REKORD! Prestigao LEGENDU i dobio nagradu: "Kada si u istoj rečenici sa njim, onda..."
--  Esta es la propuesta en España para aumentar las ventas de los coches eléctricos
--  Ex Cruz Azul: Jesús Corona se gradúa como entrenador y habla del retiro
--  Carrera por el 5G en Colombia: ¿Quién será el pionero?
--  Junior vs. Millos: Definidos los horarios para la final de la Superliga
--  En Colombia más de 160 líderes fueron asesinados entre enero y noviembre
--  Cancillería colombiana buscará nuevo contratista para impresión de pasaportes desde enero
--  Productos que no subirán con la inflación en 2024: Multas, cuotas de salud y operaciones financieras
--  Petro dice que un gobierno de ultraderecha no va a borrar lo que se ha hecho
--  El Manchester City, líquida al Fluminense en el Mundial de Clubes
--  Alcaldía de Santa Marta anunció las Vacaciones Recreativas de Playa
--  Utopías y Distopías en la muestra “futuros inciertos”
--  India U-19 to participate in tri-series involving South Africa and Afghanistan ahead of World Cup
--  Refuerzan operativos para esta época festiva
--  Refuerzan operativos en Juárez por época festiva
--  नीतीश कुमार को फोन मिलाने के बाद राहुल गांधी ने अब शरद पवार से की मुलाकात
--  Trudeau: Trumpova pobjeda mogla bi ugroziti borbu protiv klimatskih promjena
--  AS Tuding Iran Terlibat dalam Serangan Houthi di Laut Merah
--  NEOBIČNA KROMPIR SALATA KAKVU NISTE PROBALI DO SAD: Malo se razlikuje od one na koju ste navikli, a ukus je bogovski! (RECEPT)
