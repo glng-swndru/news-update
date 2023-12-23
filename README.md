@@ -1,51 +1,11 @@
 # Latest News
--  India reports 752 new Covid-19 cases, four deaths in 24 hours
--  Hamasin ja avustusjärjestöjen mukaan YK:n turvallisuusneuvoston päätöslauselma on riittämätön
--  İYİ Parti'de büyükşehir adayları şekillendi: Formül ülkücü kökenli olmak
--  Influential Orlando Pirates star suspended for SuperSport test
--  Türkiyə ordusunun 6 hərbçisi ŞƏHİD OLDU
--  '돈 받고 백현동 수사무마' 의혹 곽정기 구속, 임정혁 기각
--  Italiano e lo scalino del grande allenatore, il suo 2023 allontana ogni accusa di integralismo
--  LEDARE: Ernst och kons fjärde mage. Om julafton och idyllens dubbelansikte.
--  Ukrainekrieg treibt Asylzahlen hoch
--  SVETSKI ŠAMPION Zvezda NFL tima serijski pravi decu: Troje za pet meseci!
--  Zwischen Frühstück und Gänsebraten zum Schwimmen in die Sportbäder
--  The pretty European city four hours from UK where it's still 19C at Christmas
--  Inversió de 27 M€ en infraestructures socials, accessibilitat i innovació a la vegueria de Girona
--  Euro, dolar karşısında güçleniyor! 4.5 ayın zirvesinde (23 Aralık 2023 dolar-euro fiyatları)
--  ANELI GRCA U SUZAMA ZBOG JANJUŠA, PLAČE KAO KIŠA! On je ignoriše: Ne mogu da se smirim, imam osećaj da se samo igra...
--  강등권 탈출 이끌까…이재성의 마인츠, 지베르트 감독 대행과 정식 계약
--  다이소, 차량 안전 미리 준비! ‘겨울철 차량용품 기획전’ 진행
--  포스코 포항제철소 불 완진… "인명피해 없어"
--  Terkini: Gibran Sebut-sebut soal Kebun Binatang dalam Debat Cawapres , Cak Imin Lontarkan SlepetNomics, dan Mahmud MD.
--  TBMM'de 2024 bütçe görüşmeleri sürüyor: İlk 4 madde kabul edildi
--  Kırmızı ışıkta geçen araca böyle çarptı
--  메시와 4년 만에 재회→'수아레스 합류' 인터 마이애미 예상 베스트11
--  Son dakika! 81 ilde 'Sis' Operasyonu: Yüzlerce kişi...
--  Serie B, Venezia-Lecco: due compagini a caccia di riscatto
--  민주 “김홍일 방통위원장 임명 막겠다…한동훈 ‘김건희 특검’ 당장 수용하라"
--  460억원 투입 국민체육진흥공단 운영 스포츠가치센터 원주에 건립
--  پاکستان ٹیلی کمیونیکیشن اتھارٹی نے عوام کو خبردار کردیا
--  Primate Ayodele releases 2024 prophecies on Akpabio, Ekpa, Kanu, Igboho, Wike, NSA, others
--  سُروں کی ملکہ ’نورجہاں‘ کی 23 ویں برسی
--  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
--  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
--  Yön uutiskooste | Ajokeli on huono valtaosassa maata, Israel sanoo jatkavansa sotaansa Gazassa, Tshekissä on tänään suruaika
--  An innovative hydrogel for wounds: Combining seaweed and carbonated water
--  Authentic Switzerland, from cheese to yodelling
--  Более 1300 вологжан получили в этом году материальную помощь на газификацию жилья
--  Ganjar Cerita Pernah Tersesat di Jalan yang Benar, Apa Maksudnya?
--  LIST: Filipino celebrity pregnancies of 2023
--  Best of Jamaica in London 2023 Winners
--  Die Spengler-Cup-Pause wird wohl bald Geschichte sein
--  – وزير المالية يبحث مع وزير الإقتصاد والمالية الإيطالي تفعيل اللجنة المشتركة وتجنب الازدواج الضريبي بين ليبيا وإيطاليا .
--  Kemenhub Berangkatkan Peserta Mudik Gratis Nataru ke 11 Kota
--  महाराष्ट्र पर मंडरा रहा जल संकट! बांधों में बचा 64 फीसदी पानी, यहां स्थिति चिंताजनक
--  Filistin'e gideceğini açıklayan Özel, Erdoğan'a seslendi: Cesaretin varsa...
--  Google zieht den Schlussstrich: Auf diesen Handys gibt es bald kein Android Auto mehr
--  ویڈیو بنانے کا جنون ایک اور نوجوان کی جان لے گیا
--  Montervino avverte il Napoli: "La Roma è la squadra più scomoda da affrontare"
--  الارياني: استطاع منتخب الناشئين من توحيد مختلف الاطياف والمكونات السياسية خلفهم
--  ΗΠΑ: Δύο διασώστες κρίθηκαν ένοχοι για ανθρωποκτονία εξ αμελείας για τον θάνατο ενός Αφροαμερικανού
--  Fake tradie charged for allegedly pocketing $25,000 from people who booked him through job-tasking sites but he never did the work
--  Товарооборот России и Индии впервые превысил 50 миллиардов долларов
+-  نازح إلى غزة…
+-  تساقط غزير للأمطار بمكة -فيديو
+-  دراسة: رائحة دموع المرأة تخفف عدوانية الرجل
+-  غرق لم تشهد له بيروت مثيلاً.. والأمطار تحاصر العشرات
+-  대한민국 ESG경영혁신포럼 및 에코페어캠페인국민운동본부 발대식, 성공적으로 개최
+-  Horario de atención del domingo 24 de diciembre de Costco, Walmart, Target, Sam’s Club y más tiendas
+-  Guerre Israël-Hamas: un otage israélo-américain annoncé mort par son kibboutz et l'armée
+-  Mitä tehdä joulupapereille ja mitkä ovat tosi suomalaisia ongelmia? Näköislehti ilmestyy verkossa ja sovelluksessa läpi joulun
+-  2023 Necip Fazıl İlk Eserler Ödülü sahibi Sema Bayar: Ödüller 'yol'u ışıklandırıyor
+-  81 ilde "Sis" operasyonu! 37 milyon TL'lik vergi kaybı engellendi
