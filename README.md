@@ -1,51 +1,11 @@
 # Latest News
--  김동건 아나운서, 특별공헌상 "50년을 KBS와 함께…시청자 은공으로 먹고살아" [2023 KBS 연예대상]
--  [오늘의 운세] 12월 24일 오늘의 띠별 운세
--  Pro-Palestinian protesters target Zara stores and bring Oxford Street to a standstill while chanting: 'while you're shopping, bombs are dropping'
--  La OPV de Motisons Jewellers suscita un gran interés en el mercado gris antes de su salida a bolsa
--  Corona-Zahlen im Kreis Dithmarschen aktuell: RKI-Fallzahlen, Impfquoten und mehr
--  Links-versifftes Wien schafft Bezeichnung “Fußgänger” ab
--  Applied Materials’ ‘face of philanthropy’ stepping down in 2024
--  Corona-Zahlen in Neumünster aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen in Lübeck aktuell: Zahlen und Fakten aus der Region
--  Guatemala: Democracy or an AG’s unbridled autocracy?
--  Did the GTA 6 leaks help or hinder Rockstar's long-awaited GTA 6 trailer reveal?
--  Corona-Zahlen in Kiel aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Sánchez viatjarà a l'Iraq el 27 i 28 de desembre
--  Doctor Who’s new TARDIS features a heartfelt tribute to a late colleague
--  Alex Scott goes Instagram official with girlfriend Jess Glynne as she shares snaps from BBC Sports Personality of the Year Awards
--  Corona-Zahlen in Flensburg aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
--  Солскяер поема турски гранд
--  Mire elolvad a hó, már a boltok polcain lesz az új South Park-játék
--  La necesidad de reformas para el Perú, ¿qué dice Julio Velarde sobre el tema?
--  bet365 bonus code NYPNEWS: Score $1k first bet or $150 for any sport, including Bengals-Steelers
--  Гороскоп на 24 грудня: Тельцям - романтичні зміни, Терези - фінансова криза
--  Tayland'da feribot faciası! Batmakta olan feribotta yolcular zor kurtuldu!
--  Kempeleläinen Ritva Rundgren, 73, on tiktokkaava joulumuori – ”Olen kertonut satuja koko työurani ajan”
--  Церковне свято 24 грудня: що потрібно зробити в Різдвяний святвечір
--  The Church’s new LGBT edict is confusing and ill-timed
--  Stream It Or Skip It: ‘Extended Family’ On NBC, A Half-Baked Sitcom With Jon Cryer, Donald Faison And Abigail Spencer
--  "Não vou dar prendas a ninguém. Vou fazer doações"
--  Sex, syphilis and speed: Wild true story of sports car king Enzo Ferrari as Adam Driver plays him
--  Трагедия в Пловдивско: Майка намери сина си обесен
--  Indian Davis Cup Team Will Have To Travel To Pakistan As AITA Loses Appeal
--  Delhi Medicine Scam: दिल्ली में एक और बड़ा घोटाला..दिल्ली के अस्पतालों में नकली दवाई मिलती है?
--  Vitor Pereira'dan ilginç Fenerbahçe-Galatasaray derbisi yorumu!
--  Fenerbahçe'den üst üste 15. galibiyet
--  Eriksen får comeback i ny Manchester United-nedtur
--  “Stradala” i Manja u naselju Dobrinje: Oštećena još jedna poslovnica Trivićeve pekare
--  Minister I. Periyasamy opens Vaigai dam water for 58-canal scheme areas
--  Atlético-Sevilla, en directo
--  Canada’s Trudeau says a second Trump presidency could harm climate goals
--  Shaq barks back at Chris Russo over NBA all-time center rankings: ‘Who the f-k is that?’
--  Vidula Jalan scholarship instituted at Indian School of Business
--  Історія дня. Під час виступів в НБА він перевів мільйон доларів на розвиток дитячого баскетболу в Україні
--  VEĆE ZA ŠEST POSTO Evo koliko će iznositi mirovine nakon povećanja u siječnju
--  Kela-korvaukset nousevat tammikuussa – Päätyykö 500 miljoonaa euroa lääkäreiden, yritysten tai rikkaiden taskuun?
--  Robert Habeck: „Kein Geheimnis, dass mir eine Reform der Schuldenbremse vorschwebt"
--  Congress Gears Up For 2024 LS Polls: Sachin Pilot Named Chhattisgarh GS, Priyanka Gandhi Without Designation
--  Caja de Seguro Social registra un aumento de casos de covid-19
--  Дяков пред Sportal.bg: Сервет е един от приемливите отбори - оптимист съм, че ние ще сме крайният победител
--  Лийдс и Илия Груев-младши не оставиха шансове на Ипсуич
--  الأردن يتابع تحقيقات مقتل بركات في المانيا
--  لا أردنيين بين ضحايا ومصابي هجوم جامعة براغ
+-  Solskjaer'den Beşiktaş'ın teklifine cevap geldi! ''Bana bir proje mi sunulacak, yoksa kısa vadeli çözüm mü aranıyor?''
+-  Zaniolo, İngiltere'de görülmemiş bir güneş gibi parlıyor! Takımına puanı getirdi, taraftarlar övgüyle bahsetti...
+-  Barcelona, Şampiyonlar Ligi'nden en az 1 yıl men edilebilir!
+-  Bu 24 ilin başına talih kuşu kondu! TOKİ'den ev alamayan üzülmesin, bu illerde yüzde 25 peşinatla arsa satışları başlıyor
+-  Coughing? When you may want to skip over-the-counter medication, according to experts
+-  OFICIR 5. UKRAJINSKE BRIGADE: Za Ukrajinu, 2024. će biti najteža, a neki se kriju iza suknji
+-  القسام ترجح مقتل اسرى (لا تتركونا نشيخ) - فيديو
+-  "المشروب الذهبي".. طبيب يكشف عن طريقة سحرية تحمي من أمراض القلب وتقوية المناعة
+-  8 علامات تكشف الإصابة بارتفاع ضغط الدماغ
+-  Od jutra świąteczno-noworoczny rozkład jazdy. Sprawdź, które linie nie będą kursowały
