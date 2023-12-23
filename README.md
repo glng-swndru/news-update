@@ -1,11 +1,51 @@
 # Latest News
+-  Officials use PIT maneuver on Tampa man fleeing at 100 mph in Hillsborough County
+-  Essonne: le parquet requiert un procès pour le policier qui a éborgné un jeune en 2020
+-  Ferrocarril es campeón en 4ª e Independiente en 3ª División del fútbol local
+-  Grim reality facing millions of Aussie families this Christmas
+-  Princess Kate beams as she surprises adults working in childcare with festive tea party in special for her carol concert
+-  Gazze'nin içler acısı durumu: İsrail BMGK kararını engelliyor
+-  Edin Dzeko'dan çarpıcı açıklamalar: Neden Fenerbahçe'yi seçtiğimi derbide göreceksiniz
+-  روما بقيادة مورينهو يهزم نابولي ويفسد فرحة تجديد عقد أوسيمين
+-  Antiterrorisme : qui sont les 5 gardés à vue ? - 23/12
+-  Ponovno glasanje na tri biračka mesta u Beogradu 30. decembra
+-  В торговом центре во Флориде произошла стрельба
+-  Empleo: cuáles son los sectores que experimentarán un crecimiento al inicio de 2024
+-  Watch: Jayson Tatum posterizes ex-teammate Daniel Theis
+-  Murió Lisandro Meza, cantautor colombiano símbolo de la música sabanera
+-  Selena Gomez gets caught 'texting a cute boy' on her cooking show... amid her new romance with Benny Blanco
+-  See Karen Gillan Go Christmas Shopping With Fellow Doctor Who Alum Alex Kingston In The Most Delightfully Chaotic Viral TikTok
+-  ¿Contra qué equipo debutará el Club América en el torneo Clausura 2024 de la Liga MX?
+-  París 2024: la nómina inicial de Los Leones de cara a los Juegos Olímpicos
+-  La contundente frase de Zanetti sobre el futuro de Scaloni en la Selección: "Creo que fue..."
+-  Âşık Veysel Viyana’da anıldı
+-  Family businesses set to lose £450,000 following collapse of Princess of Wales's parents' party supplies company earlier this year
+-  Kadıköy’de makas atarak ilerleyen otomobil kazaya neden oldu
+-  James Packer's ex-wife Erica debuts surprise romance with celebrity chef Shannon Bennett as the couple enjoy romantic beach date in Byron Bay
 -  '또 트레이드설' 중심에 선 김하성…SF 언론 "KIM 확보 해야" 주장, SD 언론은 체념? "트레이드해야 할 수도"
 -  القبض على مواطن ظهر في حادثة مشاجرة واعتداء بأحد الأماكن العامة
 -  استشاري يوضح العلاقة بين أدوية الحموضة وضعف الذاكرة والأعصاب
+-  Eco-activist King Charles will use Christmas day broadcast to deliver powerful message about the environment to millions of viewers across the country
+-  Fury as ‘idle’ civil servants STILL working from home despite demands to return to office
+-  Sem ela, não tem presente... e muito menos futuro!
+-  Rusia denuncia violaciones del espacio aéreo sirio por la coalición estadounidense
+-  Tutto nel finale: il primo Zarraga e Ilic di fortuna, gli highlights di Torino-Udinese 1-1
+-  „HEA TÜDRUK“ PODCAST 9. OSA | Anu Saagim: on täiesti okei pühade ajal üksi kodus kassida või baari pidutsema minna
+-  Australian boxer’s $680,000 first-round knockout
+-  Australian boxer’s $680,000 first-round knockout
 -  Watch fan’s incredible Rangers themed Christmas light show – even Celtic fans admit ‘I hate that this is cracking’
+-  The Cast of 'The Holiday,' Ranked By Net Worth (You Might Have Forgotten No. 2 is Even In The Christmas Classic!)
 -  مجلس الأمن يقر إيصال المساعدات الإنسانية إلى غزة
--  موسيقى بمكالمات «واتساب»
--  التدخين يسبب انكماش الدماغ
--  الصقور تحرس محاصيل العنب الأمريكية
--  مهرجان عربات الطعام
--  مانشستر سيتي بطلًا لكأس العالم للأندية 2023
+-  Police searching for two men after £2000 Waitrose theft
+-  Southampton road closed as emergency services attend incident
+-  Cannabis factory found at Landguard Road in Southampton
+-  Emergency incident in Marlands Car Park: here's what we know
+-  These are the Daily Echo's most read stories in April 2023
+-  The New Inn in Hounsdown installs defibrillator after tragedy
+-  What we know as woman's body found in Southampton house
+-  12 photos of babies celebrating their first Christmas
+-  Southampton council estate residents cannot buy back land
+-  Hampshire sleep expert shares tips for restful Christmas
+-  Santa brings presents to the children of Bursledon
+-  Southampton murder investigation: Men released on bail
+-  Mum and son jailed for trying to rob friends' Sikh wedding fund
