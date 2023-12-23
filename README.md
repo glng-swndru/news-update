@@ -1,11 +1,11 @@
 # Latest News
--  Разработан проект «Цифровой двойник Алматинской области»
--  Marmara Denizi'nde fırtına uyarısı!
--  MİT ve Emniyet'ten ortak operasyon
--  iOS 17.2.1: Apple Suddenly Releases Unexpected Update For All iPhone Users
--  Devir işlemlerinde dikkat!
--  Тошкентда “лизингчилар” юзлаб фуқароларни бир неча млрд сўмга чув туширди.
--  Sokak röportajında ekmeğin ve markanın fiyatını bildiler. Yiyemedikleri için pirzolanın fiyatını bilemediler
--  Políticos, ¿nunca de vacaciones?
--  Corte Suprema retrocede
--  Fenerbahçe ve Galatasaray arasındaki rekabet forma fiyatlarına da yansıdı! İlan sayısı 4 bini geçti, en pahalı formanın fiyatı dudak uçuklattı
+-  Second man arrested for suspected drug dealing
+-  The history of: croissants
+-  Electro-twist on Christmas
+-  عمران خان کا الیکشن میں حصہ لینے کیلئے سپریم کورٹ سے رجوع
+-  শিশুর অটিজম শনাক্ত করবে কৃত্রিম বুদ্ধিমত্তা
+-  Seca no Algarve. Produtores de laranja pedem ajuda para salvar produção
+-  Quatro feridos graves e 35 detidos por excesso de álcool
+-  Mariana Mortágua lança "grito contra a guerra" no Médio Oriente
+-  Turkish parliament resumes debate Tuesday on Sweden NATO bid
+-  Krunic via dal Milan? Già scelto il sostituto: può arrivare a gennaio
