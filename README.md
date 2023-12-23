@@ -1,11 +1,11 @@
 # Latest News
--  Këshilltarët e PL-së: Veliaj duhet të ishte i pandehur për inceneratorin e Tiranës që nuk ekziston
--  Kartal'ın yeni hocası belli oldu! Barcelona'nın efsane ismi Beşiktaş'ın başına geçiyor...
--  Turkey says Cyprus’ shipping plan undermines north’s maritime rights
--  Три истории на баскетболната легенда Георги Панов - Гецата
--  Banksy: Neues Kunstwerk in London schon wieder weg
--  I came in at half-time thinking I don’t want to play GAA anymore – it was terrible, says Dublin icon Diarmuid Connolly
--  Venäläinen oppositiopoliitikko varoittaa: Vapaus ei ole itsestäänselvyys
--  IOC-Boss Bach verteidigt Zulassung russischer Athleten
--  Trainer-Legende Wegner: „Millionär bin ich nicht geworden“
--  Met Eireann issue major Christmas update as ‘seriously strong’ jet stream hurls towards Ireland before weather switch
+-  Susijengin MM-kisoissa kohdannut pelaaja on kuollut 24-vuotiaana
+-  Winterstop? Vergeet het maar! In deze landen voetballen ze gewoon door in de kerstperiode
+-  Le Heat va retirer le maillot d’Udonis Haslem, le 19 janvier prochain
+-  Kardiolog otkriva: Ovu popularnu hranu ne jedite nikad, evo koje su njene zamene
+-  Opšti haos na granicama, čeka se više od 14 sati FOTO
+-  "Izgleda da neki sa kojima sam se družio završe u Partizanu"
+-  المدير العام للأمن الوطني يقرر صرف دعم مالي لفائدة 269 مستفيدا
+-  ماذا تفعل حال عدم توافر مواعيد بتطبيق صحتي؟.. توضيح مهم من "الصحة"
+-  분데스리가도 정복한 김민재→2023-24시즌 전반기 베스트11 선정
+-  "أتذكر الفلوجة" لفرات العاني: لا تنسى أن تتذكّر
