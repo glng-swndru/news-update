@@ -1,11 +1,11 @@
 # Latest News
--  클럽 월드컵 우승을 원해? '이 선수'를 영입해!...축구 역사상 최초 3개의 팀에서 모두 트로피 차지
--  75만 유튜버 아옳이, 세금 2억 추징 "모르는 것도 잘못…실수 없도록 노력하겠다" [MD이슈](종합)
--  'KBS 새 월화드라마 여주인공' 홍예지, '환상연가' 스틸 공개됐다
--  학자금 대출 금리 1.7% 동결...지원금액도 확대
--  2028년 대입 권고안 자세히 보니...수능에 "심화수학 없다"
--  'SKY대' 수시 합격자 30% 등록 포기…여전히 의대 선호
--  포항제철소 불, 1시간40분만에 진화…공장 일부 가동 중단
--  의를 지키려는 성웅 이순신의 마지막 전투 《노량: 죽음의 바다》
--  Kerala govt’s move to tighten eligibility norms, teachers' unions up in arms
--  Demuestran su talento en cierre navideño
+-  네이버·한국은행, IT 기반 금융·경제분야 디지털전환(DT) ‘맞손’
+-  Aumentó más de 580 mdp Presupuesto de Egresos 2024
+-  LITTLEBIGの2024年春夏コレクションが公開
+-  Join 411’s Live AEW Rampage Coverage
+-  Jodoh diatur orang tua bertahan hanya dua tahun
+-  لن تتخيل ما يحدث عند زيادة جرعة حقن التخسيس
+-  دموع المرأة.. سلاح غير متوقع ضد عدوانية الرجل
+-  محمود العسيلي لـ"حبر سري": "أرفض مقاطعة المنتجات الأجنبية المستثمر هيخاف"
+-  Ducati bakal kehilangan Ciabatti
+-  وزيرة البيئة: استضافة مصر مؤتمر المناخ أطلق شعلة التركيز على مخاطر التغير المناخي
