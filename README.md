@@ -1,11 +1,11 @@
 # Latest News
--  'Kokina'ya İlgi Yılbaşı Yaklaştıkça Artıyor
--  Accidentes cobran la vida de dos personas
--  Los comunistas rusos proponen a Nikolái Jaritónov como candidato a la presidencia
--  Reabre EU cruces; pierden 580 mdd
--  Va mexicana por Óscar con corto sobre Holocausto
--  İran ve Mısır Cumhurbaşkanları'nın görüşmesinde gündem Gazze
--  Napoli, Victor Osimhen'in sözleşmesini uzattı
--  Seminar of 64-Yoginis held at IITTM
--  Прогноз на 2024 год: что ждёт Россию в 2024 году, мнения аналитиков
--  Dark details emerge after Pacifica murder suspect dies by suicide
+-  Bedava bardak için birbirlerini ezdiler
+-  Los campesinos paisas que controlan los San Andresito del país
+-  Emeklilere müjde: 3 ödeme bir arada yapılacak!
+-  Covid-19'a bağlı ölümlerde artış!
+-  Kanadan superlupaus törkyili harjoituspelissä – välttyi kuitenkin pelikiellolta Suomea vastaan
+-  Kanadan superlupaus törkyili harjoituspelissä – välttyi kuitenkin pelikiellolta Suomea vastaan
+-  추성훈, 돌아가신 父에 "조금 있으면 저도 갑니다" 소감→장내 술렁 "퉤퉤퉤" [2023 KBS 연예대상]
+-  West Ham nadigrao Manchester United i tako produbio krizu Crvenih vragova
+-  Premier League: Ergebnis, Spielverlauf, Torschützen bei West Ham United gegen Manchester United
+-  Premier League: Ergebnis, Spielverlauf, Torschützen bei West Ham United gegen Manchester United
