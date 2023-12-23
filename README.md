@@ -1,11 +1,51 @@
 # Latest News
--  La probabile formazione dell’Udinese: Lucca guida l’attacco
--  Tenor Ángel Vargas Joins Athlone Artists’ Roster
--  Дневен хороскоп за 23.12.2023 г.
--  Death of Classical 2023-24 Review: David Lang’s ‘The Little Match Girl Passion’
--  癌症相关死亡人数 15年间增长超20% 引发热议
--  Victoria Karkacheva Joins Tact Artists for General Management
--  CortinAteatro to Present New Year’s Eve Gala
--  장제원 "윤 정부 실패하면 4선 당선 의미 없어"
--  Marcel Scheifl von der TSG 08 Roth lebt mit seiner Erkrankung: Fußball geht nur ab und zu
--  Bronx Opera to Present Double Bill of ‘Il Signor Bruschino’ & ‘Gianni Schicchi’
+-  136 موظفا أمميا قُتلوا بالحرب على غزة
+-  ألبانية تتوج ملكة جمال الأرض 2023
+-  أجواء باردة بأغلب المناطق وأمطار بشمالي ووسط الأردن
+-  الحشد الشعبي: ضربنا هدفا إسرائيليا بالبحر الأبيض المتوسط
+-  한 달에 8만5천 원 버는 기자의 자기암시
+-  Tenía varios días perdido y lo hallaron sin vida en paraje solitario
+-  Cae mujer con hierba seca y polvo blanco en Loma Colorada
+-  Muere motorizado al chocar con camión articulado
+-  Manchester City son los reyes del mundo
+-  Es hora de un cambio
+-  ¿El Canal ya tiene competencia?
+-  Cordillera, agua y minería
+-  Vargas Llosa colgó la pluma
+-  Cambiar o cambiar
+-  Elizabeth Grimaldo está sufriendo con tortícolis
+-  Gracie Bon se pone sexy al estilo navideño
+-  Cuatro religiosos detenidos en Nicaragua en tres días
+-  Desarrollan en Estados Unidos una píldora que vibra para combatir la obesidad
+-  Corte Supremea de EE.UU. rechaza estudiar 'con urgencia' la inmunidad de Trump
+-  Noche de sorpresas
+-  Tribunal le plancha a Martinelli otro amparo de garantías por caso ‘New Business’
+-  Gianna Rueda apuesta por una ‘transición pacífica’ en Udelas
+-  Tengo que cuidar mi puesto de recto vitalicio
+-  Infidencias y confidencias del 23 de diciembre de 2023
+-  England captain Jos Buttler declares West Indies tour 'a success' despite T20 and ODI series losses
+-  West Indies vs England: Shai Hope denies tourists in tense finale to seal four-wicket win and 3-2 T20 series victory
+-  Hibernian vs Hearts: Sky Sports to deliver series of new innovations for Edinburgh derby
+-  Manchester United's Old Trafford home given 1 out of 5 rating by Food Standards Agency after inspection
+-  Nezabudnuteľná Alžbetka z Perinbaby: Dnes je z nej ŠEDIVÁ DÁMA... A takto spomína na nakrúcanie!
+-  Školník vydesil ľudí hrôzostrašným VIDEOM: Stačil jediný pohľad na balón v triede...
+-  Floods, fires and more floods: Murray Watt has had a busy year
+-  JOKIĆ POSTAVIO NOVI REKORD! Prestigao LEGENDU i dobio nagradu: "Kada si u istoj rečenici sa njim, onda..."
+-  Esta es la propuesta en España para aumentar las ventas de los coches eléctricos
+-  Ex Cruz Azul: Jesús Corona se gradúa como entrenador y habla del retiro
+-  Carrera por el 5G en Colombia: ¿Quién será el pionero?
+-  Junior vs. Millos: Definidos los horarios para la final de la Superliga
+-  En Colombia más de 160 líderes fueron asesinados entre enero y noviembre
+-  Cancillería colombiana buscará nuevo contratista para impresión de pasaportes desde enero
+-  Productos que no subirán con la inflación en 2024: Multas, cuotas de salud y operaciones financieras
+-  Petro dice que un gobierno de ultraderecha no va a borrar lo que se ha hecho
+-  El Manchester City, líquida al Fluminense en el Mundial de Clubes
+-  Alcaldía de Santa Marta anunció las Vacaciones Recreativas de Playa
+-  Utopías y Distopías en la muestra “futuros inciertos”
+-  India U-19 to participate in tri-series involving South Africa and Afghanistan ahead of World Cup
+-  Refuerzan operativos para esta época festiva
+-  Refuerzan operativos en Juárez por época festiva
+-  नीतीश कुमार को फोन मिलाने के बाद राहुल गांधी ने अब शरद पवार से की मुलाकात
+-  Trudeau: Trumpova pobjeda mogla bi ugroziti borbu protiv klimatskih promjena
+-  AS Tuding Iran Terlibat dalam Serangan Houthi di Laut Merah
+-  NEOBIČNA KROMPIR SALATA KAKVU NISTE PROBALI DO SAD: Malo se razlikuje od one na koju ste navikli, a ukus je bogovski! (RECEPT)
