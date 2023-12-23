@@ -1,11 +1,11 @@
 # Latest News
--  Last minute gift idea: Ireland Adventure International Camp for teens in Co Donegal
--  युद्ध अन्त्यको मूल मर्मः शान्ति र सह अस्तित्व
+-  Asgari ücret için kritik hafta! İşte olasılıklar...
+-  Salaar Box Office Collection Day 1: Prabhas’ Film Becomes Biggest Opener of 2023
+-  Dunki BO day 2: SRK starrer loses grip on Friday collected about Rs 20 crore
+-  Dr Misio w Zgrzycie [zdjęcia z koncertu]
+-  Uzman uyardı: Size uygun olmayabilir
+-  Путин отметил вклад СРЗП в сплочении и консолидации общества в России
+-  Veľký predvianočný PRIESKUM: Voľby by vyhral Smer! Slováci najviac veria TOMUTO politikovi, ako obstáli lídri opozície?
+-  Weihnachten bei den Royals: Alkohol-Enthüllung! So feuchtfröhlich geht es in Sandringham wirklich zu
 -  Un libro asegura que el monarca emérito se hizola vasectomía tras nacer Felipe
--  Emeklinin ağlatan feryadı. 'Ahımız oy verenlerin yedi sülalesinden çıksın'
--  '충격' 구단주 교체 앞둔 英 명문 클럽, 뉴캐슬 디렉터 접촉 처음 아니다?..."이게 다 그 자식 때문이야"
--  정찬성 소속사인데 겁도 없이…AOMG "허위사실 유포·성희롱에 강경대응" [MD이슈] (전문)
--  Marvelous Nakamba to miss another Luton Town game
--  عمران خان کے سسر نے فلسطینیوں پر بم مارنے کیلئے 2 ارب ڈالر دیئے، راجہ ریاض
--  ΠΑΟΚ – Λουτσέσκου: «Δεν με χαλαρώνει η πρωτιά, έχω μεγαλύτερη ευθύνη»
--  MAHER Convocation: மீனாட்சி உயர்கல்வி மற்றும் ஆராய்ச்சிக்கழகத்தின் 17வது பட்டமளிப்பு விழா: பட்டங்களை பெற்ற 1158 மாணவர்கள்!
+-  El alcalde de Los Montesinos sube el sueldo a los funcionarios con carácter retroactivo sin informes que lo avalen, según Izquierda Unida
