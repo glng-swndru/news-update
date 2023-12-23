@@ -1,51 +1,51 @@
 # Latest News
--  Czy o białym Bożym Narodzeniu możemy zapomnieć? Pogoda na święta
--  Predvianočná tragédia v Poľsku: Vodič narazil do chodcov a zabil troch ľudí vrátane 7-ročného dieťaťa
--  Bayern München sai todella karuja uutisia - edes megaluokan tarjous ei riitä
--  Ankara’da “park yeri” kavgası kamerada
--  Wie man sich bettet ...: So liegt man lange gut: Tipps für den Bettenkauf
--  Accidente de tránsito en Matanzas ocasiona cuatro fallecidos y varios lesionados
--  Milyonda bir! Çift rahimli kadın iki günde iki bebek doğurdu
--  تشارلي شين يتعرض لاعتداء نسائي في منزله بماليبو
--  أفضل 10 أغذية تلائم مريض السكري
--  ఎస్‌ఐగాఎంపికైన రైతు బిడ్డ
--  انتصارٌ قضائي .. ألمانيا ستهتف (فلسطين حرة من النهر إلى البحر)
--  Knockout-Triumph in Riad: Kabayel schickt Machmudow auf den Boden
--  సుందర శ్రీకర మహా యాగానికి శ్రీకారం
--  Τι ομαδάρα παρουσίασες σήμερα ρε Γκαγιέγο με 8+1 απουσίες;
--  సాంకేతిక ఆకలింపుతో సరైన బోధన
--  సమష్టిగా పనిచేసి ఉమ్మడి అభ్యర్థులను గెలిపిస్తాం
--  Boksa nije bilo! Ovo je samo ismijavanje Hrgovića, vrijeme je da ljudi konačno krenu raditi svoj posao
--  భక్తిశ్రద్ధలతో ముక్కోటి ఏకాదశి
--  Disidentka hotela kandidirati, ruska volilna komisija je zavrnila njeno kandidaturo
--  బస్సులో బంగారు ఆభరణం లభ్యం
--  Real-life tragedies of Paddington cast - cancer battle, family feud and bitter divorce
--  Hallmark Filmed 2 Christmas Movies at Elvis’s Home of Graceland — Here’s Where to Watch Them
--  'Aquaman and the Lost Kingdom' off to a slow start at holiday box office
--  Millions of single mums forced to cut back on Christmas as cost of living bites
--  Ribadesella inaugura un recinto de atracciones y juegos para esta Navidad
--  టీడీపీతోనే బీసీల అభ్యున్నతి : గుండుమల
--  Turkey says 12 soldiers killed in clashes with Kurdish militants
--  רומן: "אני רוצה ויכול לאמן", אלחמיד: "לא בורח מהמינוסים שלי"
--  సైన్స్‌ ప్రయోగాలతో విద్యార్థుల్లో చైతన్యం
--  Британские ВМС заявили об инциденте у берегов Йемена
--  U omiljenoj baletnoj predstavi Orašar ove su subote ispred zagrebačkog HNK besplatno uživali čak i slučajni prolaznici
--  Kredi kartı sahiplerinden toplu kesinti yapılacak! Tarih belli oldu, herkes tıpış tıpış ödeyecek
--  Tır şoförünü rehin aldı, o anları canlı paylaştı!
--  Kirepült a pályáról a Liverpool sztárja, a saját edzőjét is letarolta - videó
--  Kastamonu'da yoğun kar yağışı: Onlarca araç yolda kaldı
--  ఇల.. వైకుంఠపురంలో...
--  سقوط «مُروع» لـ كلوب في قمة ليفربول وأرسنال
--  El día que México le ganó 3-1 ¡al Real Madrid de Hugo Sánchez! (VIDEO)
--  దేశానికి రైతే వెన్నెముక
--  L'influenceuse italienne Chiara Ferragni présente ses excuses, après une fausse campagne caritative
--  Ferragnez ancora nei guai, interviene il Gip: imputazione coatta per Fedez
--  Königin Camilla vermisst ihren alten Freund Paul O'Grady (†)
--  Cel mai scump Crăciun din ultimii 25 de ani. Dar oamenii se re-orientează și vânează ofertele pentru a împăca masa „tradițională” cu bugetul limitat
--  تدشين مهرجان العسل برجال المع
--  Черноморский флот провел учения по отражению атаки вражеских беспилотников
--  My mom bought a $70 lace dress from a Facebook ad – it was such a fail, what came looked nothing like the picture
--  12/23: CBS Saturday Morning
--  Abdullah Avcı Trabzonspor’un En Büyük Sorununu Açıkladı! 'Çok Canımızı Sıkıyor'
--  లోక్‌ అదాలత్‌లో కేసుల పరిష్కారానికి కృషి చేయాలి
--  Celebrity Big Brother star in talks to join Real Housewives of Beverly Hills
+-  אחרי סוף שבוע של חורפי וסוער: המערכת החורפית תימשך - אך ההתחממות באופק
+-  Geht es ihm gut? Pete Davidson cancelt mehrere seiner Shows!
+-  European markets ended lower: What led to the decline?
+-  Над 90 жертви при израелски удари по две жилищни сгради в Газа - Труд
+-  Die Hard and Melrose Place actress Selma Archerd dies aged 98
+-  Mali twist
+-  Izgubljeni kralj
+-  Λίβερπουλ - Άρσεναλ: Το πέναλτι που ζήτησαν οι γηπεδούχοι στο χέρι του Όντεγκααρντ (vid)
+-  Gerrit Schrijver zestig jaar bestuurslid IJsclub Zederik
+-  عاجل.. سكني: يمكن للأرامل الاستفادة من الدعم السكني بشرط
+-  الباحث خلدون ابراهيم باقطيان يتحصل على الماجستير بامتياز من جامعة عدن
+-  Tunisie : Bizerte : Ils volent tout ce qui contient du cuivre… Y compris des statuettes antiques
+-  La sugestiva aclaración del representante del Diablito Echeverri tras la bomba en River: “Claudio me pidió…”
+-  Ne znate kada da zamenite bateriju? Telefon će uskoro sam da vam kaže
+-  دعوة للمزارعين ومربي المواشي للتحوط خلال المنخفض
+-  ఆర్థిక ఇబ్బందులతో వ్యక్తి ఆత్మహత్య
+-  ‘మహాలక్ష్మి’తో ఆర్టీసీ కళకళ
+-  I never thought someone like me could be financially independent, but 3 steps are helping me reach that goal by 45
+-  Ψηφιακή πλατφόρμα για αντιμετώπιση του σχολικού εκφοβισμού
+-  Inter rutinski savladao Leće i sačuvao plus četiri
+-  Marijan Budimir više nije trener Širokog Brijega
+-  El exnovio de Jessica Bueno rehace su vida con una nueva compañera: "Hay amores que no se pueden explicar"
+-  Konfliktparteien im Jemen akzeptieren Feuerpause
+-  Βαλένθια - Γρανάδα 75-81: «Στραβοπάτημα» πριν τη Μπάγερν
+-  Second batch of eggs sent from Azerbaijan to Russia
+-  మంత్రి ఉషశ్రీచరణ్‌ చిత్రపటానికి చెప్పుల దండ
+-  AMD prý chystá nové čipsety generace 700 pro AM5 desky, vyjdou současně s LGA 1851 od Intelu
+-  فيديو مروع لاحتراق لنش تجاري في مياه سلطنة عمان .. والشرطة توضح
+-  Gazeta gjermane: Putin mund të sulmojë Europën në fund të 2024-ës, kur SHBA të jetë pa president
+-  QEH sees surge in patients at A&E, advises of long wait times
+-  مبعوث الأمم المتحدة: الجانبان المتحاربان في اليمن يلتزمان بخطوات لوقف إطلاق النار
+-  Minnesota official predicts Trump will either be on ballot 'everywhere or nowhere'
+-  Sramne scene u Podgorici: Jedan Podgoričanin napao sestru, drugi prijetio ocu, obojica uhapšeni!
+-  Awka Indigenes Cry Out Over Police Occupying Their Land Over Alleged Disputes
+-  ప్రజల సమస్యలపై పోరాడుదాం : సీపీఎం
+-  Colorado releases additional 5 gray wolves as part of reintroduction effort
+-  Querrás tenerlos cerca: estos son los signos del zodiaco más cómicos, según la astrología
+-  Ako zamjenu kuna u eure ne napravite u sljedeća četiri dana, preostaje vam samo još jedna opcija
+-  Obnovljena tužba protiv grupe Nirvana: Saga sa golom bebom se nastavlja FOTO
+-  Армия Израиля несет потери в Газе
+-  Gerüchte um Madrid-Interesse: Verlässt dieser Star die Bundesliga?
+-  Weihnachtsspecial! LIVESTREAM 18 Uhr!
+-  Serie A leader Inter beats Lecce. Juventus wins at Frosinone
+-  ‘ఆడుదాం ఆంధ్రా’ ర్యాలీ
+-  “A vivir en armonía estas fechas”, exhorta Amalia Gastélum, alcaldesa del municipio de Choix
+-  Huge ITV2 sitcom axed after just two series in another blow for Love Island star
+-  6 askerin şehit olduğu saldırının ayrıntıları
+-  Žestok napad: Ubijeno 20 ljudi
+-  Podgorica: Uhapšene dvije osobe osumnjičene za nasilje u porodici,...
+-  গাজার ২০০ যোদ্ধাকে গ্রেপ্তারের দাবি ইসরায়েলের
