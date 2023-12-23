@@ -1,11 +1,11 @@
 # Latest News
--  Na Žabljaku 11 centimetara snijega
--  Kickoff | Klopp calls out Liverpool fans ahead of Arsenal clash?
--  „Nesuprantu, kas įkalė į galvą, jog Rusiją galima nugalėti su F-16. Jiems 50 metų!“
--  Košmariška ateitis. „Financial Times“ skelbia, kas laukia pasaulio, jei Putinas laimės
--  Izraelio kariai rado tikrą monstrą. Vienas didžiausių Gazoje. Karšti video
--  [ŽT] „Pirmieji 18 naikintuvų F-16 parengti...“ Drebinanti žinia Ukrainai
--  „Tesla Cybertruck“ Europoje tikriausiai niekada nepasirodys. Štai kodėl
--  Vettel über Schumacher: „Ein Held meiner Generation“
--  Berguti: Enkaz altındakiler ile 27 bin Filistinli öldü
--  Merkez Bankası PPK'ya yeni üye... Fatma Özkul kimdir?
+-  Travis Barker, Kourtney Kardashian drop first picture of son Rocky
+-  Mobile Internet suspended inJ-K`s Poonch, Rajouri amid massive anti-terrorist op
+-  Delhi`s AQI recorded under `severe` category on Saturday morning
+-  Merkez Bankası atamasında kritik detay
+-  Uzmanından rota ishallerine karşı uyarı !
+-  Barcelona lisäsi Valioliigassa pelaavan jässikän ostoslistalleen
+-  임영웅, 뉴진스 제치고 12월 가수 브랜드평판 1위 등극
+-  Ötən sutka 26 yanğına çıxış olub - 15 nəfər xilas edildi
+-  İstanbul'da 26 Milyon TL'lik Özelleştirme
+-  Türkiye ile BAE'den kültürel işbirliği
