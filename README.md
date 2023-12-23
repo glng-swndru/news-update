@@ -1,51 +1,11 @@
 # Latest News
--  قوات الاحتـلال تقتحم طولكرم
--  Que esta Navidad los deseos de todos los niños se cumplan: Mensaje de Santa Claus a los sinaloenses
--  „Szklanka” na drogach, 12 pożarów i trzy fałszywe alarmy
--  FOTO: Izvedena najljepša novogodišnja baletna bajka „Kad padne noć“ – Krcko Oraščić u produkciji ARS Centra Zenica
--  تقييم رومارينيو في خسارة الاتحاد من الرائد
--  Tony Cetinski kao gost iznenađenja raspametio mladenca: Pustio mladu i pohitao pjevaču
--  Božićni koncert – Ovacije za Hor Zima
--  لتجنب الأرق.. فاكهة تساعدك على النوم بشكل عميق
--  وست هام يهزم يونايتد بالدوري الإنجليزي
--  إنتر يعزز صدارته بفوز جديد في الكالتشيو
--  يوفنتوس يتغلب بصعوبة على فورسينوني
--  توتنهام يتقدم إلى المركز الرابع
--  Iransk politi konfiskerer Mahsa Aminis pris fra EU
--  Marić o odlasku Strahonje: ‘Otišao je zbog prijetnje huligana, očekivali smo zaštitu televizije’
--  Staatsschutz ermittelt: Hinweise auf Anschlagsplan auf den Kölner Dom – Polizei setzt Spürhunde ein
--  Salar : సలార్‌ సంచలనం
--  تقييم كريم بنزيما في خسارة الاتحاد أمام الرائد
--  Gibran Ingin Lebur Ditjen Pajak dan Bea Cukai, Pengamat Sebut Belum Pasti Genjot Penerimaan Negara tapi...
--  حماس: فقدنا الاتصال بمجموعة مسؤولة عن 5 رهائن في غزة
--  حصاد ريال مدريد في الموسم الحالي حتى الآن
--  PF investiga esquema de aliciamento de indígenas menores de idade e favorecimento à prostituição
--  Relembre os projetos de conservação ambiental destacados pelo TG em 2023
--  Governo vai reforçar medidas de proteção ao povo Yanomami
--  Man beroofd op straat in Tilburg: dader op de vlucht
--  La macroencuesta de Segunda división: ascensos, descensos, decepción, revelación, Pichichi...
--  Mercato - PSG : Un grop coup 20M€ est bouclé
--  ВИДЕО. Роналду и Макгрегор прибыли на бой Джошуа – Валлин. КриРо взял сына
--  Тен Гаг: Наразі Манчестер Юнайтед - не топ
--  Proti Putinovi sa v prezidentských voľbách postaví aj TÁTO žena: Po ohlásení kandidatúry sa ju režim snažil konfrontovať
--  Eski Merkez Bankası Başkanı Emefiele serbest bırakıldı
--  Soykırım suçlusu İsrail Gazze'de 55 bin konutu yerle bir etti
--  Kardeş ülkeden şehitlerimiz için taziye mesajı
--  Sabah namazında tüm camilerde şehitlerimiz için dua edilecek
--  Neighbor accused of assaulting Charlie Sheen at his Malibu home
--  Neighbor accused of assaulting Charlie Sheen at his Malibu home
--  Carson Daly Shows off His New Tattoo Dedicated to His Late Mom
--  Brooke Shields Reveals What Happened To Her Iconic Calvin Klein Jeans
--  20 Best Animated Movies Available To Stream
--  Gwen Stefani Explains Why She And Blake Shelton Are Spending NYE Apart
--  Marlee Matlin Reveals She's Going to Be a Grandma in Cute Clip
--  Brooke Shields Reveals What Happened To Her Iconic Calvin Klein Jeans
--  Carson Daly Shows off His New Tattoo Dedicated to His Late Mom
--  Gwen Stefani Explains Why She And Blake Shelton Are Spending NYE Apart
--  20 Best Animated Movies Available To Stream
--  Marlee Matlin Reveals She's Going to Be a Grandma in Cute Clip
--  15 Vintage Christmas photos for timeless holiday style inspiration
--  Meghan Markle's generous pre-Christmas gift revealed following secret holiday
--  Sarah Ferguson shares rare insight into Christmas celebrations with grandchildren
--  Amy Robach and T.J. Holmes share how much co-star Jennifer Ashton really knew of their secret romance
--  Queen Maxima stuns in super stylish monochrome ensemble with lookalike daughters
+-  المملكة ترحب بقرار مجلس الأمن الداعي لاتخاذ خطوات عاجلة لوقف مستدام لإطلاق النار في غزة
+-  Judge rules Twitter, now X, breached contract by blocking millions of pay bonuses
+-  تفاصيل الحالة الجوية يوم الاحد - تحذيرات
+-  مجلس محافظة الزرقاء: إنشاء 22 مدرسة على برنامج المنح الدولية
+-  87 حالة طارئة تتعامل معها بلدية غرب إربد خلال المنخفض الحالي
+-  الملك يعزي عشيرتي الدباس وآل الصاحب
+-  مستشفى سوروكا: استقبلنا 2284 مصابا منذ بدء الحرب
+-  جيش الاحتلال: نخوض معارك ضارية في معاقل حماس
+-  سلطة وادي الأردن تعلن الطوارئ المتوسطة
+-  إعادة فتح طريق العدسية - الشونة الشمالية
