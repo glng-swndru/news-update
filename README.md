@@ -1,11 +1,51 @@
 # Latest News
--  Suspeito de tentativa de estupro é preso em Sorriso, confirma delegado
--  Volcadura en la Parral-Durango deja 5 lesionados
--  Critican presencia de crimen en tierra del Presidente
--  Encuentran a persona muerta por broncoaspiración en Cuauhtémoc
--  Buscan a migrantes que se ahogaron en Río Bravo
--  %67 انخفاض معدل الولادات في المملكة
--  نيويورك تايمز: حرب غزة الأخطر في التاريخ
--  Minst 16 döda i bussolycka i Nicaragua
--  مديحي: الظرفية تحتم بالضرورة إلتحام الجميع وراء الوداد
--  Argentina: Justiça analisará ‘megadecreto’ de Javier Milei
+-  Jesse Puljujärven kunnosta saatiin uutta tietoa
+-  Liverpoolin Jürgen Klopp parahti huippuottelun jälkeen - "Voi hyvä luoja"
+-  Einkunnir Liverpool og Arsenal: Saliba framúrskarandi
+-  이스라엘 전쟁이 촉발한 세대 갈등…Z세대와 베이비붐 세대의 엇갈린 시선
+-  CBC Sports: FIS Freestyle Ski Cross World Cup - Innichen
+-  메아리 없는 이낙연 '신당 최후통첩'…당내서도 "과하다"
+-  KAD DOĐOŠI MARŠIRAJU
+-  طائرة شحن تنجز رحلتها من دون طيّار
+-  Liverpool, Arsenal Share Spoils At Anfield As Arteta’s Side Maintains EPL Table Top
+-  Panatinaikos spremio novi ugovor za Amerikanca
+-  De Belastingdienst snapt niet dat Aaike (41) en Ragna (41) in één huis wonen, maar geen koppel zijn
+-  Fenerbahçe ve Galatasaray derbiye hazır! Oyunculara verilecek prim miktarı belli oldu...
+-  Fred'in cezası belli oldu! Süper Kupa'da oynayacak mı?
+-  Israel-News: Aktuelle Nachrichten zum Krieg in Nahost (Samstag, 23.12.2023)
+-  సుపరిపాలనతోనే వికసిత్ భారత్
+-  Kölner Dom: Hinweise auf geplanten Anschlag
+-  Arsenal-Liverpool derbisi ev sahibine yaradı! Topçular, liderliğini sürdürüyor...
+-  Dieron de baja a 7 generales PNP por presuntos pagos de US$40 mil para ascender de grado
+-  Un colectivo se incrustó contra una esquina en el centro de Villa Carlos Paz: hay dos heridos
+-  Lotossa lauantaina yksi täysosuma – kahden osuuden porukalle seitsemän miljoonaa euroa Jyväskylään
+-  The Israeli inventor who turns every soldier into a sharpshooter
+-  4 نصائح مهمة لتفادي جرائم الاحتيال والسرقة حال الشراء عبر الإنترنت
+-  Staatsschutz ermittelt: Hinweise auf Anschlagsplan auf den Kölner Dom – Polizei setzt Spürhunde ein
+-  Ice Spice Let Her Munch Flag Fly High Over The Capitol Records Building In Hollywood, And Now Fans Are On High Alert
+-  Milei convoca sessões extraordinárias do Congresso argentino para acelerar reformas
+-  DULISSE, Tony and Rose
+-  LIVE WK darts | Berry van Peer mist twee matchdarts, Josh Rock deelt Nederlander flinke tik uit
+-  Özgür Özel: Milli Savunma Bakanı derhal Meclis’i bilgilendirmelidir
+-  LIVE WK darts | Berry van Peer mist twee matchdarts, Josh Rock deelt Nederlander flinke tik uit
+-  샌프란시스코, 포수 톰 머피와 계약 발표...2년 825만$
+-  Casal de pinguins Rachel e Chandler se revezam para nascimento de filhotes em Balneário Camboriú
+-  Ковачевски: Повеќе за сите е мерката за поголеми плати на работниците во приватниот сектор од 3.000-9.000 денари
+-  Una enfermera virtual "nacida" en Alicante permite hacer el seguimiento de pacientes del ámbito rural tras recibir el alta
+-  Bulos, medios digitales, activismo y 11J: así cambió Cuba en cinco años de datos móviles
+-  Peña II y Albisu deslumbran en Bilbao
+-  Wurde Sinéad O'Connors früher Ruhm ihr Verhängnis?
+-  ¡Facturando! Mr. Hillman lanza promoción de 50% en lentes de sol tras destapar infidelidad de Melissa
+-  أرسنال وليفربول يعطلان بعضهما .. ومانشستر سيتي المستفيد
+-  Ed Zwick Remembers Making Of ‘My So-Called Life’: “I Vowed To Portray Real Adolescence”
+-  Sabou: "Lucho porque las personas que contraigan ELA tengan esperanza"
+-  Sabou: "Lucho porque las personas que contraigan ELA tengan esperanza"
+-  Cristiano Ronaldo consiguió gol y asistencia en victoria del Al Nassr
+-  Jail food services employee charged with battery domestic violence on girlfriend: PCSO
+-  Ispred RIK-a održan šesti protest
+-  Memur, öğretmen, hemşire, polis... Zamlı maaşlar meslek meslek hesaplandı! 2024'te kim ne kadar maaş alacak?
+-  Quem pode tomar a vacina contra dengue no SUS?
+-  Olmsted County regrouping after failed grant bid for homeless shelter
+-  (( الدَّان اللَّحجِي و مساجلاته الشِّعريَّة )) . . كتاب جديد صدر للشاعر القدير أحمد صلاح ناصر كُرْد
+-  Liverpool dealt injury blow as Jurgen Klopp faced with problem after Arsenal draw
+-  Berisha e përdori politikën, tashmë kjo po e degdis… në histori
