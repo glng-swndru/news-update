@@ -1,11 +1,51 @@
 # Latest News
--  El Gobierno inicia procedimiento para la planificación de electricidad con horizonte 2030
--  De ce a oprit Apple a oprit vânzarea Watch Series 9 și Ultra 2 ?
--  „Angst und Verwirrung“: Papst Franziskus droht Konter-Revolte in katholischer Kirche
--  Dachverband: Tafeln in Deutschland im „Dauerkrisenmodus“
--  Doctor finally settles morning vs evening shower debate
--  Cumhurbaşkanına hakaretten gözaltına alınmıştı: Şehinşah serbest bırakıldı
--  "SLOBODNA SAM" O ljubavnom životu Nataše Rodić naširoko se priča - ona sada priznala da je RASKINULA sa zgodnim Crnogorcem
--  কানের দুল গিলে ফেলে হাসপাতালে ছিনতাইকারী
--  Detenidos dos vecinos de Torrevieja que usaron la tarjeta de una vecina de Camariñas para compras
--  Mediziner-Verbund ruft Ärzte und Apotheken zum Impfstopp auf
+-  Ticaret Bakanı Bolat: Zamları geri alın uyarısı yapıyoruz
+-  Advice for fuelling on the run
+-  להחליף את המוטו: סייף חייב להסיר חלודה כדי להשתלב במכבי חיפה
+-  Snapshot of round nine of the A-League Women season
+-  Air fryer Christmas recipe which is a 'gamechanger'
+-  Жо Байден 2024 йил учун рекорд даражадаги мудофаа бюджетини имзолади.
+-  Нозима Давлетова президент администрациясида масъул лавозимга тайинланди.
+-  Тошкент – Мадина йўналиши бўйича айрим авиарейслар 12 соатдан кўпроққа кечиктирилди .
+-  Россия суди биринчи марта УҚКни молиялаштириш иши бўйича ҳукм чиқарди.
+-  ОАВ: Хива ислом дунёси туризм ландшафтида алоҳида ўрин эгаллашга ҳозирланмоқда.
+-  Дания ва АҚШ ҳарбий ҳамкорлик шартномасини имзолади.
+-  ‘Zero Tolerance For Extremism`: EAM S Jaishankar After Hindu Temple Vandalised In US
+-  ماراثون الراتب: والمخبى بان!!| كتب نعمان الحكيم
+-  KZN community calls for harsh punishment for man accused of killing mom & sister
+-  Simon's Town wildfires contained, says CoCT Disaster Risk Management
+-  Corona-Zahlen in Regensburg aktuell: Neuinfektionen für Regensburg, Bayern und Deutschland
+-  Arriva la prima pillola anticoncezionale per l’uomo: come funziona
+-  FFH-Just White! - Die Megaparty ganz in Weiß
+-  Corona-Zahlen in Amberg aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen im Landkreis Dingolfing-Landau aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Straubing-Bogen aktuell: Neuinfektionen für Landkreis Straubing-Bogen, Bayern und Deutschland
+-  AI-assisted piano allows disabled musicians to perform Beethoven
+-  Corona-Zahlen im Landkreis Rottal-Inn aktuell: Inzidenz für Landkreis Rottal-Inn, Bayern und Deutschland
+-  Tounes Lik : Voyage au Sud de la Tunisie avec Wajiha
+-  Corona-Zahlen im Landkreis Regen aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen im Landkreis Passau aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Landshut aktuell: Neuinfektionen für Landkreis Landshut, Bayern und Deutschland
+-  Aвтомобил се забил во возилото во кое било семејството на шефицата на албансиот специјален суд
+-  Armande Altaï de retour à la Star Academy, elle révèle le nom de son chouchou et c’est une surprise
+-  Corona-Zahlen im Landkreis Kelheim aktuell: Aktuelle Daten zum Coronavirus
+-  Corona-Zahlen im Landkreis Freyung-Grafenau aktuell: Neuinfektionen für Landkreis Freyung-Grafenau, Bayern und Deutschland
+-  Transport Dept prioritising the five provinces with most road fatalities
+-  Corona-Zahlen im Landkreis Deggendorf aktuell: Neuinfektionen für Landkreis Deggendorf, Bayern und Deutschland
+-  Where billionaires spend the holidays
+-  U čemu su turisti najviše uživali u Dubrovniku, a što im je zasmetalo tijekom odmora? Iako su ocjene za ukupan boravak visoke, mana ima
+-  Corona-Zahlen in Straubing aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen in Passau aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen in Landshut aktuell: Zahlen und Fakten aus der Region
+-  Oblak sedmič med najboljšimi 100 nogometaši, na vrhu je Haaland
+-  Oblak sedmič med najboljšimi 100 nogometaši, na vrhu je Haaland
+-  وزير الرياضة يحضر النسخة الخامسة من نصف ماراثون الأهرامات
+-  Corona-Zahlen im Landkreis Weilheim-Schongau aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Charlie Sheen “Assaulted In His LA Home By Neighbour Who Forced Her Way In”
+-  Brit holidaymaker missing after packed tourist boat carrying family sinks in rough seas off Thailand while on dive trip
+-  Corona-Zahlen im Landkreis Traunstein aktuell: Zahlen und Fakten aus der Region
+-  Mars'ın kolonileştirilmesi yolunda dev bir adım atıldı
+-  Corona-Zahlen im Landkreis Starnberg aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Rosenheim aktuell: Die Coronavirus-News aus der Region
+-  Nach Amoklauf in Prag – Tschechien hält Staatstrauer
+-  Corona-Zahlen im Landkreis Pfaffenhofen a.d.Ilm aktuell: Aktuelle Daten zum Coronavirus
