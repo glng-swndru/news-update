@@ -1,11 +1,11 @@
 # Latest News
--  Le pagelle di Torino-Udinese: Ilic decisivo, Tameze sbaglia, Sanabria spento
--  Juric: “Abbiamo dominato dall’inizio alla fine. Radonjic? Poteva fare meglio”
--  Ilic: “Il gol? Era un cross, sono stato fortunato. Non voglio parlare di Europa”
--  تسجيل حالتي كورونا جديدتين في حي هندي
--  José Flores: "El objetivo más urgente es que los profesionales sean felices en su trabajo"
--  Cum s-a împietenit Vanilla Ice cu Pablo Escobar, fără să știe cine este. „Eram mereu pe bărci, cu o grămadă de bikini în jur”
--  SL High Commissioner-designate Presents Credentials to the President of Pakistan
--  مظاهرة التضامن مع فلسطين بالعاصمة الألمانية تطالب بإنهاء الحرب في غزة
--  Phantasialand: Hiobsbotschaft für Besucher – besonders SIE werden sich ärgern
--  Sanjay Singh says being close to Brij Bhushan does not make him a “dummy candidate”
+-  ג'ונס פותח בליברפול, סלאח שב להרכב נגד ארסנל
+-  Manchester City conquista el Mundial de Clubes y Guardiola, otro récord
+-  Recogen firmas para que “salven” a Derek Rosa, el niño de 14 años que mató a su madre en Florida
+-  Maman j’ai raté l’avion : que deviennent les acteurs du film ?
+-  الاحتلال يعترف بإصابة 44 عسكريا خلال 24 ساعة
+-  Udinese, Cioffi: “Il Torino ha contenuti importanti, gli abbiamo concesso pochissimo”
+-  Öğrencisini ilk yardımla hayata döndürmüştü... Bakan Tekin'den öğretmene ilişkin paylaşım
+-  Yine gururlandırdı! Hakan Çalhanoğlu inanılmazı başardı
+-  Sinfra bloqueia trecho da MT-251 próximo ao Portão do Inferno para avaliação de novo deslizamento
+-  Gestos de amor e compromisso marcam visita à maternidade de Várzea Grande
