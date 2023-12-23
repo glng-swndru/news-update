@@ -1,11 +1,11 @@
 # Latest News
--  น้ำตาท่วมป่าช้า!!! เผาแล้ว'น้องฟิน'เหยื่อไอ้คลั่งโหด เสพยาบ้าจนหลอน
--  ตัวตึง'ก้าวไกล'รัวอีกชุด เสนอป.ป.ช.-ผู้ตรวจการฯ ตรวจสอบชั้น 14 เคลียร์ปม'นช.ทักษิณ'
--  ทบ.สั่งสอบ‘สิบเอก’บุกปล้ำทหารพรานหญิง งดบำเหน็จ-ขังคุกทหาร-ไล่ออกจากบ้านพัก
--  Soccerladuma | Riveiro Points Out Buthelezi's 'Absurd' Mistake In Big Loss
--  Gas Explosion Rocks Lagos Market
--  Expert: Spot Bitcoin ETF approval to be ‘buy the rumor, buy the news event’
--  UK And Switzerland Forge Unprecedented Financial Alliance
--  PESKOV O STAVOVIMA MOSKVE: Putin spreman da pregovara samo o postizanju ciljeva specijalne operacije
--  MPs push for 'Santa Clause' to stop reindeer being shipped out of UK for slaughter
--  المهنا: «مشعل الخير».. خير خلف لخير سلف
+-  No Christmas In Bethlehem, Vatican Breakthrough & Himalayan Declaration
+-  Florida woman who raped her autistic brother-in-law and had his baby claimed she was the victim: sheriff
+-  وزير خارجية النيجر..المبادرة الأطلسية لجلالة الملك نابعة من إرادة المغرب تعزيز التنمية المشتركة لمنطقة الساحل
+-  ندرة الماء تجعل البشر يفكرون بشكل أفضل
+-  کراچی: ’کرسمس کا تہوار خوشیاں بانٹنے کا نام‘ تیاریاں عروج پر
+-  Tribunal de EU resuelve que X violó contrato laboral
+-  Umang 2023: Arbaaz Khan and Sshura Khan marrying on X'Mas Eve? Actor seals his lips when asked about venue [Watch Video]
+-  بوريطة..المبادرة الدولية لجلالة الملك لتسهيل ولوج دول الساحل إلى المحيط الأطلسي ” تعد بتحول استراتيجي لبلداننا”
+-  علماء يكتشفون عارضا مبكرا للأكزيما
+-  Niebywałe sceny w La Liga. Piłkarz Atletico zupełnie się ośmieszył [WIDEO]
