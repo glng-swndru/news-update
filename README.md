@@ -1,11 +1,51 @@
 # Latest News
--  Bazıları Fazla Hassas: Zaman Makinesine Binip Geçmişe Yolculuk Yapmışsınız Hissi Verecek 30 Tarihî Fotoğraf
--  AKTUÁLNE Rúti sa na nás EXTRÉMNY SNEH! Bude mať fatálne NÁSLEDKY: Vianoce budú mať mnohí BEZ ELEKTRINY, TU to bude NAJHORŠIE
--  Tomu sa povie prekvapenie: Adam Ďurica je 3-násobný otec, dcérka dostala krásne meno!
--  Bratislava si užije Vianoce na snehu: Biela pokrývka komplikuje dopravu! Obyvatelia sídlisk si môžu užiť krásnu scenériu
--  Po snehovej kalamite hrozia povodne: Na Slovensku sa cez sviatky výrazne oteplí
--  „Тигрите“ на Оливер Спасовски впериле пиштол во бремена жена
--  Objavljen posnetek, ki kaže, kako dramatično je bilo med strelskim pokolom (VIDEO)
--  Festive donations for those in need
--  Halavacs junto a productores en Pampa del Infierno y Sáenz Peña
--  Top 14: Montpellier version Bernard Laporte retrouve enfin le chemin de la victoire en Championnat
+-  Manchester United sukeltaa syvällä - "On vaikeaa ajatella mitä juuri nyt tapahtuu"
+-  Huuhkajat-tähden joukkue otti elintärkeän murskavoiton
+-  Those Kiss Avatars Are Coming… in 2027
+-  Radhët e emigrantëve në Kapshticë e Kakavijë, Balla telefonatë me homologun grek: Rrisni numrin e sporteleve
+-  Exagente de la Policía Nacional fue condenado a 28 años de prisión
+-  El cine español sigue sin recuperarse de los estragos de la pandemia
+-  Deal Dive: Thank god a startup is solving the bed bug problem
+-  Kumaram Bheem Asifabad: దివ్యాంగుల సంక్షేమానికి చేయూత
+-  PSG dovodi brazilskog talennta kako bi pojačao odbranu
+-  Burnaby's Simone Duifhuis honoured for volunteer work on and off the ice
+-  సమస్యల పరిష్కారం కోసమే ప్రజా దర్బార్‌
+-  🎥 | Wat een beelden! WK-legende Steve Beaton zingt mee met walk-on Daryl Gurney
+-  Latino fue deportado de EEUU luego de que revisaran su celular y encontraran algo inesperado
+-  Mindestlohn, Bürgergeld, Cannabis: Das ändert sich 2024
+-  Baloch Yakjehti Committee gives 3-day ultimatum for detainees’ release as sit-in continues in Islamabad
+-  Stručnjak predlaže kako riješiti demografske probleme: Mlade treba poticati na brak
+-  GNW-Adhoc: Momcozy im Jahr 2023: Ein Triumph für die weltweite Mutterschaftshilfe
+-  ఘనంగా జాతీయ రైతు దినోత్సవం
+-  גורם ביטחוני: "באוויר ובארטילריה - רמת האש של צה"ל בעזה במגמת ירידה"
+-  Conor Benn to fight little-known unbeaten American Peter Dobson on February 3 in Las Vegas
+-  Kumaram Bheem Asifabad: సింగరేణి మనుగడకు కృషి చేద్దాం
+-  Edson Álvarez y West Ham vencen y ponen 'contra las cuerdas' al United
+-  Stasiun Pasar Senen Padat Menjelang Natal dan Tahun Baru
+-  DIRECT. Boxe: Suivez la grosse soirée avec Joshua et Wilder en live
+-  Friday's high school basketball scores
+-  క్రిస్మస్‌ పండుగను సంతోషంగా జరుపుకోవాలి
+-  ŠTETE OD NEVREMENA Prve žrtve velike oluje u Europi
+-  Novo lice Srbije: U Ivanjici nisu proglašeni izborni rezultati
+-  Congrès Féguifoot: la date du 6 janvier menacée!
+-  Renewing TV streaming services this year? What to know about prices, libraries
+-  Arsenal and Aston Villa transfer stances claimed as Douglas Luiz update emerges
+-  Latest News | BJP Misleading Public by Claiming Return of Normalcy in J-K: Cong's Vikar Rasool Wani
+-  الامارات | "العميد" ينتزع النقاط الثلاث من "الصقور" في آخر دقيقة
+-  الامارات | حمدان بن محمد: دبي تواصل جهودها لاستقطاب أفضل المواهب والكفاءات ورواد الأعمال
+-  الامارات | الجزيرة يهزم "الإعصار" ويبلغ النقطة 20
+-  الامارات | زبون طلب الحديث مع مدير المطعم ففاجأه الموظفون: "سوف تموت الليلة"
+-  الامارات | السيطرة على حريق في بناية بالمدينة العالمية
+-  Ρεκόρ αποθεμάτων ΦΑ στην ΕΕ αλλά στα ύψη οι λογαριασμοί
+-  Fagnaði með treyjunni hans Lockyer
+-  Em novo jogo-treino, Brasil empata por 1 a 1 com o São Luiz
+-  Τα οικονομικά δεδομένα για την απόκτηση του Λέο Περέιρα από τον Ολυμπιακό
+-  Bucks vs. Knicks prediction: NBA odds, picks, best bets for Saturday
+-  França. Cerca de 300 indianos retidos após operação contra tráfico humano
+-  نسور مالي يطمحون للتحليق بعيدا بكأس أمم أفريقيا 2023
+-  Hardik Pandya Injury: ఐపీఎల్ 2024కు హార్దిక్ పాండ్యా దూరం! రోహిత్ శర్మ చేతికే MI కెప్టెన్సీ పగ్గాలు!
+-  "Women from Kfar Aza told us 'Bring us the Oscar, bring us this hope'"
+-  Kumaram Bheem Asifabad- చుక్కల్లో ‘సన్నా’లు
+-  Mauvaise nouvelle pour les Lions : A Everton, Idrissa Gueye sort sur blessure après 25 minutes de jeu
+-  ਬ੍ਰਿਟੇਨ ਦੀ ਅਰਥਵਿਵਸਥਾ ਤੀਜੀ ਤਿਮਾਹੀ ‘ਚ 0.1 ਫੀਸਦੀ ਹੇਠਾਂ ਡਿੱਗੀ
+-  Mega slavi 25 godina postojanja
