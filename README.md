@@ -1,11 +1,11 @@
 # Latest News
--  ‘강남 한복판의 혈투’ 살인 조폭들의 29년 만의 최후 [정락인의 사건 속으로]
--  與, 송영길 아내 ‘한동훈 비판’에 “반성없는 일관된 부창부수”
--  野, 한동훈 향해 “‘김건희 특검법’ 당장 수용하라” 촉구
--  與, 野 ‘한동훈 비판’에 “자기 쟁기도 못 챙기면서 감 놔라, 배 놔라 비판”
--  Hrvatski glumac ispisao sina iz škole zbog profesora: 'Ponižavajuće ga udario nogom u stražnjicu'
--  Nieuwjaarsduik in Hoornaar; jongeren 'Groep van Nepal' uit Hoogblokland halen geld op voor werkvakantie
--  Zanger Kees Versluys uit Meerkerk brengt complete Aloho from Hawaii-show van Elvis Presley in het AFAS Circustheater
--  التخطيط: فحص ووسم أكثر من 25 كغم من الذهب المستورد قبل دخولها للعراق
--  オスプレイ引き揚げのサルベージ船現場到着
--  O ülkede kara gün! Altın madeni çöktü: Çok sayıda hayatını kaybeden var!
+-  Na Žabljaku 11 centimetara snijega
+-  Kickoff | Klopp calls out Liverpool fans ahead of Arsenal clash?
+-  „Nesuprantu, kas įkalė į galvą, jog Rusiją galima nugalėti su F-16. Jiems 50 metų!“
+-  Košmariška ateitis. „Financial Times“ skelbia, kas laukia pasaulio, jei Putinas laimės
+-  Izraelio kariai rado tikrą monstrą. Vienas didžiausių Gazoje. Karšti video
+-  [ŽT] „Pirmieji 18 naikintuvų F-16 parengti...“ Drebinanti žinia Ukrainai
+-  „Tesla Cybertruck“ Europoje tikriausiai niekada nepasirodys. Štai kodėl
+-  Vettel über Schumacher: „Ein Held meiner Generation“
+-  Berguti: Enkaz altındakiler ile 27 bin Filistinli öldü
+-  Merkez Bankası PPK'ya yeni üye... Fatma Özkul kimdir?
