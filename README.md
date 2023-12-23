@@ -1,11 +1,11 @@
 # Latest News
--  Las mejores imágenes y frases para desear ¡Feliz Navidad!
--  Decomisaron 235 kilos de pirotecnia en 10 días
--  Balzaretti torna a Torino, da avversario: quel “tradimento” non è stato perdonato
--  Sztuczna inteligencja odkryła nową klasę skutecznych antybiotyków
--  विश्वभर कोभिड–१९ का नयाँ सङ्क्रमितको सङ्ख्या ५२ प्रतिशतले वृद्धि
--  Pitch inspection scheduled at Scottish Premiership match as footy card hit by wintry weather
--  'Urban mining' offers green solution to old solar panels
--  Педагогликка биринчи марта ишга қабул қилинаётганларни касбий сертификатлаш тизими жорий этилади.
--  Самарқандда электр таъминотида қисқа муддатли узилиш кузатилмоқда.
--  Томди тумани ҳокими лавозимдан озод этилди.
+-  Këshilltarët e PL-së: Veliaj duhet të ishte i pandehur për inceneratorin e Tiranës që nuk ekziston
+-  Kartal'ın yeni hocası belli oldu! Barcelona'nın efsane ismi Beşiktaş'ın başına geçiyor...
+-  Turkey says Cyprus’ shipping plan undermines north’s maritime rights
+-  Три истории на баскетболната легенда Георги Панов - Гецата
+-  Banksy: Neues Kunstwerk in London schon wieder weg
+-  I came in at half-time thinking I don’t want to play GAA anymore – it was terrible, says Dublin icon Diarmuid Connolly
+-  Venäläinen oppositiopoliitikko varoittaa: Vapaus ei ole itsestäänselvyys
+-  IOC-Boss Bach verteidigt Zulassung russischer Athleten
+-  Trainer-Legende Wegner: „Millionär bin ich nicht geworden“
+-  Met Eireann issue major Christmas update as ‘seriously strong’ jet stream hurls towards Ireland before weather switch
