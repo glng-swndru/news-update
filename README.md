@@ -1,11 +1,11 @@
 # Latest News
--  Фанлар академиясининг ҳақиқий аъзолари тасдиқланди.
--  Тошкентда жиноятда гумонланиб, 8 нафар шахс ушланди.
--  İşgalci İsrail "vurmayacağız" dediği kilise ve manastırı hedef aldı
--  İzmir'de göçmen kaçakçılığına operasyon: 15 tutuklandı
--  Eski KGB ajanı kirli planları itiraf etti! Dört yöntem kullanılıyor
--  Aydın'da uyuşturucu operasyonu
--  Nyt alkaa olla jo tosi kovia puheita - ManU-legenda latasi rajua kritiikkiä
--  Число жертв при атаках в Газе достигло 20 258 человек, заявили в Палестине
--  Clarke wins Under 14 section in Online chess event
--  Атанас Славов: Прокурорският съвет ще се председателства от негов член
+-  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 23 décembre – Victor Wembanyama en France
+-  Le programme de la nuit en NBA : 13 matchs dont Clippers – Celtics (21h30), parfait avant le réveillon !
+-  Casemiro razmatra o opciji prelaska u Saudijsku Arabiju
+-  Student prava srušio Ajax i donio cimerima pravo bogatstvo, je li ovo najluđa oklada godine?
+-  Boll stoppade Everton – mitt i anfallet
+-  Poljski vozači kamiona deblokirali ključni granični prijelaz između Poljske i Ukrajine
+-  توقعات بتراجع أسعار السكر إلى مستوياتها الطبيعية مع بدء الإنتاج الجديد
+-  Həvəskar komandaya uduzdular, utandılar, pulu qaytardılar
+-  São Paulo vende Beraldo ao PSG por mais de R$ 100 milhões
+-  شركات تطوير عقاري تتنافس على شراء 126 فدانا بالساحل الشمالي تمتلكها جهة إدارية
