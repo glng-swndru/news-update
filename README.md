@@ -1,51 +1,51 @@
 # Latest News
--  Sivasspor galibiyet serisini 5'e çıkardı!
--  HSK'dan 'güz kararnamesi' açıklaması
--  Katie Price reveals heartbreaking reason she’s eating curry on Christmas Day – after her panto performance is slammed
--  5 tipov na filmy, ktoré si nemôžeš nechať na Vianoce ujsť. Všetky zaradili televízie do svojho programu
--  В ДНР в результате обстрела со стороны ВСУ пострадали два человека
--  Замминистра обороны РФ вручил орден Почета Тверскому суворовскому военному училищу
--  העיניים של הלוחמים: כך מזהים את המחבלים מהאוויר - ותוקפים אותם
--  Nova masovna pucnjava! Muškarac pucao kod knjižnice, ubio jednu osobu, a ranio četiri
--  Milli futbolcu Kenan Yıldız, Juventus'ta siftahı yaptı
--  US tensions with China are fraying long-cultivated academic ties. Will the chill hurt US interests?
--  وزير الزراعة يطلق مبادرة «أحلم» لتمويل رؤوس الأبقار الحلاب بالشرقية
--  Pakar Mikroekspresi Sebut Mahfud MD Pandai Kendalikan Ekspresi Emosi
--  البام يعلن تجميد عضوية الناصري وبعوي في إنتظار إستكمال التحقيقات القضائية ضماناً لعدم التشويش على البحث
--  Man Utd legend Paul Scholes slams ‘NAIVE’ Erik ten Hag for away-day struggles and claims ‘you can’t afford to do that’
--  Man Utd legend Paul Scholes slams ‘NAIVE’ Erik ten Hag for away-day struggles and claims ‘you can’t afford to do that’
--  BRITANSKA KRALJEVSKA PORODICA UVEK JEDE ISTU HRANU Praznična trpeza na dvoru je dosadna, a evo koji je glavni specijalitet za Božić
--  تزامنا مع احتفالات اليوم الوطني.. إطلاق قطري لمشروع اللغة والثقافة العربية بأمريكا اللاتينية
--  هجوم بطائرة مسيرة يستهدف سفينة تجارية قبالة سواحل الهند
--  عاجل.. ارتكب 10 جرائم صادمة.. تنفيذ حكم الشرع في مواطن بالرياض
--  حملة مفاجئة على العمالة الأجنبية في الأحساء.. وهذا ما تم ضبطه
--  Chief Minister Jagan Mohan Reddy inaugurates ₹956-crore CenturyPly unit at Badvel in Andhra Pradesh’s Kadapa district
--  Tragedia en vísperas de la Navidad: hijo asesina a su papá a machetazos en Magdalena
--  Ryan Minor, Who Replaced Cal Ripken At End Of Record Streak, Dies
--  West Ham fans moan ‘that man’s face has taken a BATTERING’ as Tomas Soucek left with black eye after Man Utd collision
--  West Ham fans moan ‘that man’s face has taken a BATTERING’ as Tomas Soucek left with black eye after Man Utd collision
--  На Украине рассматривают возможность вызывать в военкоматы электронными оповещениями
--  Eagle-eyed fans spot Julian Alvarez copying idol Lionel Messi with eerily similar goal in Club World Cup final
--  Eagle-eyed fans spot Julian Alvarez copying idol Lionel Messi with eerily similar goal in Club World Cup final
--  Saldi invernali in Fvg: ecco quando inizieranno e come evitare le truffe
--  Reaperturan Jardin Botanico Lancetilla, en Tela
--  Somalili Korsanlar Ticari Gemiyi Kaçırdı
--  Trafikte Karşılaştı, İnip Vurdu!
--  Águilas vence a Leones en doble juego y subió al sexto de la tabla
--  Focus is on bringing back normalcy in Southern districts: CM
--  Serie A: Vlahovic nets winner as Juventus beat Frosinone 2-1
--  كتائب القسام تعلن إيقاع 4 آليات للاحتلال في كمين محكم ومقتل جميع أفرادها
--  Elég kemény a Nemzetközi Űrállomás edzésprogramja, de ez az űrhajósoknak létfontosságú
--  Эксперт разоблачил ближайшие планы Путина
--  Conference on Artificial Intelligence held
--  Libur Nataru, Wisatawan Turut Serbu Paket Natal dan Malam Pergantian Tahun di Hotel Yogyakarta
--  'I have used Munawar for limelight; I want to remove him from Bigg boss' : Ayesha's shocking revelation to Neil Bhatt
--  الإمارات.. «الصحة» تعلن وفاة مريض سرطان ضمن القادمين من قطاع غزة
--  Arjun Erigaisi: Not the best feeling to finish second on tiebreaks
--  BVB will HSV-Talent Otto Stange als Ersatz für Paris Brunner
--  Pisa-Ascoli, le formazioni ufficiali: Castori conferma il 3-5-2, Aquilani opta per la trequarti pesante
--  Allemagne : des croix gammées découvertes sur la tombe de l'ancien chancelier Helmut Schmidt
--  LIVE TMW - Salernitana, Sabatini: "Io non voglio retrocedere. Pretenderò tanto dalla squadra!"
--  6 transport group tiklop sa LTFRB
--  FC Bayern News: Möglicher Transfer von Ex-Spieler Joshua Zirkzee vom FC Bologna
--  Η… αλλαγή του Καρσέδο
+-  Kreirati održive politike i mjere za kontrolu upotrebe duvana
+-  Ako chutí svet: Vianoce v Chorvátsku sú sviatkom pre všetky zmysly
+-  Kto nemá vianočný song, nech hodí salónkou! Slovenský hudobný Ježiško 2023
+-  Muž sa chcel napiť limonády na južnom póle: Neskutočné VIDEO! Otvoril plechovku a...
+-  Za teroristický čin jej hrozí doživotie: Obvinená z písania výhražných mailov škole v Banskej Bystrici ide do väzby!
+-  NETRADIČNÁ vianočná záľuba markizáckej hviezdy: To NAOZAJ?!
+-  Piyasaya çıkalı 1 yıl oldu! OpenAI'ın değeri 100 milyar doları geçebilir
+-  Windows 11 Moment 5 is allegedly coming February 2024
+-  España, el país de la UE con más pobreza infantil
+-  Llega la segunda tormenta invernal
+-  Sin ser identificada, calcinada en predio de Juárez
+-  Llega a Acapulco Navidad entre basura
+-  أفضل ما يمكن تناوله على معدة فارغة.. 6 أطعمة مثالية
+-  Kaufland-Kunden lösen mit Lob bemerkenswerte Lautsprecher-Durchsage aus
+-  Najbolji načini za rješavanje prehlade u jednom danu – i uobičajeni mitovi koji neće pomoći
+-  Obsługa prawna spółek - co warto o wiedzieć?
+-  Nowy wojewoda lubelski składa świąteczne życzenia Czytelnikom Dziennika Wschodniego
+-  Rescatan a unos 160 niños que vivían en “inquilinato” en inmediaciones de la Terminal
+-  Detenidos los líderes de una secta de Cáceres que afirmaban curar la homosexualidad con sexo
+-  I tested hot water bottles you can WEAR – I found a game-changer that means I can leave the heating off
+-  Apel za pomoć: Donacija za liječenje Orea
+-  Ανάρτηση από «Αιώνια Πιστούς» για τη συμπεριφορά της αστυνομίας στο Fan Clab
+-  أغرب من الخيال.. طائرة تهبط وسط الطريق أثناء مرور السيارات "فيديو"
+-  كيف يساعد الشاي على نسف دهون البطن؟.. اعرف السر
+-  Kurti: Radoičić pravi planove za druge napade na Kosovu
+-  اختراع كبسولة هزازة لإنقاص الوزن.. تؤخذ قبل الأكل وتشعرك بالشبع
+-  Красивый гол дебютанта. "Ювентус" победил "Фрозионе"
+-  عدوى تنتقل عبر الجنس.. وتحذيرات من ارتفاع الإصابات في بريطانيا
+-  20 مشروعًا بـ 2.3 مليار ريال لرفع كفاءة طرق الشرقية
+-  Vyfajčil som 700 cigariet za deň. Víťaz Tour Ullrich opísal, ako sa z čistokrvného koňa stal sedliackym
+-  Ara transfer dönemi ne zaman başlıyor? Devre arası transfer dönemi 2023-2024!
+-  تشكيلة ايفرتون الرسمية للقاء توتنهام
+-  HSK'dan kararname açıklaması: Sıkıntılar gözetildi
+-  Pietreczko bei Darts-WM weiter - Vier Deutsche in Runde drei
+-  Musi izmakla MVP nagrada u Euroligi, pripala srbijanskom asu
+-  Президент Ирана призвал найти более эффективный механизм вместо Совбеза ООН
+-  Coronavirus : राज्यात कोरोनाच्या नव्या 35 रुग्णांची भर, एकूण रुग्णसंख्या शंभरी पार
+-  Surat Accident: સુરતમાં BRTS બસે સર્જ્યો અકસ્માત, બે લોકોના મોતની આશંકા, અન્ય બેની હાલત ગંભીર
+-  ضد ريال مدريد .. مدرب يجن جنونه بعد هدف قاتل - فيديو
+-  الاحتلال يبدأ عملية برية على حدود غزة مع مصر
+-  تنميل القدمين مؤشر على مرض خطير يصيب الرجال فقط
+-  هل نوم الزوجين في سرير واحد ضرورة؟
+-  وقوع 4 جيبات صهيونية في كمين بجحر الديك
+-  أردوغان يطلق أكبر حملة تحول عمراني بإسطنبول
+-  So sehr leidet Matthias Reim unter dem Verlust seines Vaters
+-  مقتل الطالب الأردني محمد بركات في ألمانيا
+-  Mégis lesz fehér karácsony idén? A Bakonyban már majdnem húsz centiméter a hótakaró vastagsága - fotók
+-  Congress: প্রিয়াঙ্কাকে সরানো হলো ইউপি থেকে, সচিনকে দায়িত্ব ছত্তিশগড়ে
+-  Κώστας Χαριτοδιπλωμένος: Μου πρόσφεραν ένα εκατομμύριο λίρες να πάω στην Αγγλία
+-  Show-stopping Christmas dessert takes minutes to make and only needs two cupboard staples – including Nutella
