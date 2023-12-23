@@ -1,11 +1,51 @@
 # Latest News
--  Abren Superette en Distrito Uno
--  ارتفاع موازنة (مكافحة الأوبئة) في الاردن
--  اعتقال رئيس الوداد المغربي بتهمة تجارة المخدرات
--  بدء محاكمة لاعبي ريال مدريد بقضية أخلاقية
--  رسميا.. سواريز يزامل ميسي مجددا
--  هلالات: السياحة في الاردن تترنح بسبب العدوان على عزة
--  Corona de Adviento 2023: qué se reza cuando se enciende la vela del cuarto domingo
--  Se agotan los boletos para el Tren Interoceánico
--  France completes military withdrawal from Niger, leaving a gap in the terror fight in the Sahel
--  Vídeo | Eduardo Maldonado celebra el título invicto de Olimpia
+-  Former OU Star Ryan Minor Dies After Battle With Cancer
+-  Apple Explores AI Deals With News Publishers: Report
+-  East Idaho Eats: Malad pizzeria shines with secretly delicious dough
+-  Razer Wolverine V2: este control de Xbox te lleva al siguiente nivel con seis botones adicionales, máxima precisión y casi 50% de descuento
+-  Aurora paramedics convicted of criminally negligent homicide in Elijah McClain’s death
+-  Why Trump and His GOP Henchwoman Will Regret That Michigan Phone Call
+-  Detenido autor confeso de macabro asesinato en ensanche Piantini
+-  सातगाउँले जात्रा सुरु
+-  27-year-old man in custody on seven break-ins in Burnaby, Surrey
+-  कालीकोटमा नौ स्थानीय तहमध्ये आठमा बिजुली
+-  Desplome de gradas en Alameda de Oaxaca deja al menos ocho personas lesionadas
+-  Puncak Arus Momen Natal di Tol Cipali Diprediksi 23 Desember Ini
+-  Le loup va-t-il à nouveau être chassé en Europe ?
+-  L'ADN de petits poulpes alerte sur l'avenir de la calotte antarctique
+-  Un tissu chaud et moins épais: la révolution textile qui s'inspire des ours polaires
+-  Ces rabat-joie qui détestent les cadeaux
+-  Alexis Rosenfeld: «Les océans nous apportent beaucoup»
+-  Dan potem Češka zavita v črno
+-  Paramedics guilty of criminally negligent homicide in death of Elijah McClain
+-  बिम्स्टेक कृषि सहयोग विज्ञ समूहको बैठक
+-  Stocks – Is Being Bullish Still Justified? :: The Market Oracle ::
+-  Fed Delivers Christmas Champagne to Wall Street :: The Market Oracle ::
+-  Are Stocks Turning Bearish? Opportunities in Consolidation :: The Market Oracle ::
+-  Hey, Remember About Gold Price's Powerful Reversal? :: The Market Oracle ::
+-  Inside Kirk Cousins' rehab from torn Achilles: 'Well ahead of the curve'
+-  1889 White Bear Lake church turned into home with concert venue lists for $3.45 million
+-  Wild vs. Bruins game preview: Broadcast info, statistics and analysis
+-  St. Louis Park's Galaxy Drive In to become dog-friendly burger joint
+-  Veteran utilityman Niko Goodrum returns to Twins on minor-league deal
+-  Inside Kirk Cousins' rehab from torn Achilles: 'Well ahead of the curve'
+-  Timberwolves center Karl-Anthony Towns ready for membership in rare club
+-  Icelandic volcano spews more lava as engineers work to divert flow away from power plant
+-  1889 White Bear Lake church turned into home with concert venue lists for $3.45 million
+-  Evening forecast: Low of 38 and low clouds
+-  Three fishermen rescued after breaking through ice in Red Lake
+-  Veteran utilityman Niko Goodrum returns to Twins on minor-league deal
+-  Feeding Our Future defendant cannot travel to Saudi Arabia, judge rules
+-  St. Louis Park's Galaxy Drive In to become dog-friendly burger joint
+-  Icelandic volcano spews more lava as engineers work to divert flow away from power plant
+-  Vikings cornerback Byron Murphy Jr. will miss Lions game because of knee injury
+-  Evening forecast: Low of 38 and low clouds
+-  Three fishermen rescued after breaking through ice in Red Lake
+-  Minnesota's economy picked up speed in third quarter
+-  Feeding Our Future defendant cannot travel to Saudi Arabia, judge rules
+-  Vikings cornerback Byron Murphy Jr. will miss Lions game because of knee injury
+-  How to stay safe with COVID, flu and other viruses rising over holidays
+-  Minnesota's economy picked up speed in third quarter
+-  Wild vs. Bruins game preview: Broadcast info, statistics and analysis
+-  Timberwolves center Karl-Anthony Towns ready for membership in rare club
+-  How to stay safe with COVID, flu and other viruses rising over holidays
