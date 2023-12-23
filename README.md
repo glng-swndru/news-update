@@ -1,11 +1,51 @@
 # Latest News
--  Fransa'nın Montpellier kentinde toplu taşıma ücretsiz oldu
--  ABD'de çift rahimli kadın, bir gün arayla iki kez doğum yaptı
--  CHP Genel Başkanı Özel'den şehit askerler için başsağlığı mesajı
--  İsrail ordusundaki Fransız asıllı askerler hakkında suç duyurusu
--  İYİ Parti'den milli yas çağrısı
--  سائفر کیس میں ضمانت منظور ہونے کے باوجود شاہ محمود قریشی کو رہائی نہ مل سکی
--  Филипче направи операција на мозок со свесен пациент
--  Music maestro Ustad Rashid Khan in critical condition, undergoing treatment for prostate cancer
--  Hair Care : అందమైన జుట్టుకు మాస్క్‌లు
--  Zrážka vlaku s osobným autom: Na mieste zasahujú všetky záchranné zložky! Nepriaznivé počasie si vyberá svoju daň
+-  Elämää porojen ehdoilla – Sattuma vei enolaislähtöisen Tiia Karhapään pohjoisemmaksi kuin hän olisi arvannut
+-  2 günde 12 askerimiz şehit oldu! İYİ Parti'den yas çağrısı: Aldığımız nefes onların sayesinde
+-  وزير الري: إثيوبيا تريد الهيمنة على النيل وهو ما لن نسمح به
+-  "نتنياهو أراد لهم الموت".. المقاومة تنشر فيديو لأسرى إسرائيليين ترجح مقتلهم بقصف للاحتلال
+-  اندلاع حريق داخل مخزن أخشاب بالبدرشين
+-  "في قصف لحزب الله".. الاحتلال يؤكد مقتل أحد جنوده أمس شمالي إسرائيل
+-  رغم اهتمام ريال مدريد.. أوسيمين يوافق على تمديد عقده مع نابولي
+-  غدًا.. سحب ملفات المتقدمين لوظيفة معاون نيابة إدارية
+-  الاحتلال يعلن إصابة 44 عسكريًا خلال 24 ساعة في المعارك بغزة
+-  محمد صلاح يقود هجوم ليفربول لمواجهة أرسنال في الدوري الإنجليزي
+-  أستاذ مناعة: المتحور كورونا الجديد لا يبدأ بأعراض البرد التقليدية
+-  وزارة الدفاع التايوانية: رصد 10 طائرات حربية صينية في مضيق تايوان
+-  توتنهام يفوز على إيفرتون في مباراة مثيرة بالدوري الإنجليزي
+-  الاحتلال يعلن مقتل خمسة من جنوده بينهم ضابطان في معارك غزة
+-  "ستؤدي لحرب إقليمية".. بايدن يحذر نتنياهو من توجيه ضربة استباقية لحزب الله
+-  فانتازي.. ارتفاع سعر محمد صلاح اليوم
+-  حماس: قرار مجلس الأمن هزيل ولا يلبي الحاجة الملحة التي خلفتها آلة العدوان الإسرائيلية
+-  إيران: لبنان واليمن تعملان وفقًا لما يرونه مناسبًا لردع العدوان الإسرائيلي على الفلسطينيين
+-  لجنة الحكام تعلن حكم مباراة الأهلي وسيراميكا في نصف نهائي كأس السوبر المصري
+-  الجهاز التنفيذي للمشروعات يطرح شقق جديدة للحجز في محافظة القاهرة
+-  الإعلام الحكومي بغزة: الاحتلال نفذ عمليات إعدام ميداني لعدد 137 مدنيا في محافظتي غزة والشمال
+-  لوتون تاون يفوز على نيوكاسل بهدف نظيف في الدوري الإنجليزي
+-  بالصور.. النار تلتهم محتويات مخزن أخشاب في البدرشين
+-  رويترز: هيئة بحرية بريطانية تتلقى تقريرًا عن حادث بمحيط باب المندب جنوب اليمن
+-  Strictly's Ellie and Vito have fans in 'tears' after sharing heart-warming moment
+-  Russland-Wahl: Registrierung von Putin-Gegnerin verweigert
+-  Linn Wiik om den verste julegaven: – Lite romantisk!
+-  '1박2일' 팀, 두 번째 KBS연예대상… 폐지 '홍김동전' 홍진경·주우재 눈물[종합]
+-  Informatičar u osječkom ŽDO-u prisvajao službene mobitele i neovlašteno ugovarao pretplatničke ugovore
+-  Atletico Madrid otti todella arvokkaan voiton ja nousi FC Barcelonan edelle
+-  Украинада ҳарбий хизматга чақирув электрон хабарнома орқали амалга оширилади.
+-  Quiz champion distraught after watching herself on TV loses almost four stone
+-  Svinjogojci koji su na farmama imali zarazu dobit će dozvole za novi uzgoj, pod jednim uvjetom
+-  Fearing the worst. British tourist lost at sea in Thailand.
+-  فانتازي.. أفضل خطة لبيع صلاح وشراء هالاند في الجولة العشرين من الدوري الإنجليزي
+-  Irã confisca prêmio dado pela UE a Mahsa Amini
+-  In an unbelievable year for games, Soulslikes were so good that they could almost pass for FromSoftware originals
+-  لماذا يمكن أن تؤدي إزالة شعر الأنف إلى الموت؟
+-  الصحة بغزة: ارتفاع حصيلة ضحايا العدوان على القطاع إلى 20258 شهيدا و53688 إصابة
+-  Infrared Following Robot Built As Proof-of-Concept For Autonomous Luggage
+-  Verhoogd dreigingsniveau raakt moslims in Nederland: 'Mensen kijken met andere ogen'
+-  Pri Sežani rešujejo dva jamarja: Imela sta srečo, da sta sploh lahko poklicala na pomoč
+-  Familiar Limerick faces share their most treasured festive moments
+-  Vánoce na Disney+: přinášíme skvělé tipy na filmy, které musíte vidět
+-  تبيان توفيق: نظفوا صفوفكم يا أبناء نهر النيل!!
+-  Μαρούσι - Κολοσσός 85-74: Μαρουσάρα για... Χάρη του Περιστερίου (vid)
+-  Two killed in overnight north metro shootings
+-  Kristin Cavallari ei jaksa tekstailuvaihetta – pyytää treffeille heti
+-  Никонов день, 24 декабря: запрещается употреблять спиртные напитки и рубить ели
+-  Мужчину избили и порезали осколком бутылки в Петроградском районе Петербурга
