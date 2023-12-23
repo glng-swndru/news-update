@@ -1,11 +1,11 @@
 # Latest News
--  Bedava bardak için birbirlerini ezdiler
--  Los campesinos paisas que controlan los San Andresito del país
--  Emeklilere müjde: 3 ödeme bir arada yapılacak!
--  Covid-19'a bağlı ölümlerde artış!
--  Kanadan superlupaus törkyili harjoituspelissä – välttyi kuitenkin pelikiellolta Suomea vastaan
--  Kanadan superlupaus törkyili harjoituspelissä – välttyi kuitenkin pelikiellolta Suomea vastaan
--  추성훈, 돌아가신 父에 "조금 있으면 저도 갑니다" 소감→장내 술렁 "퉤퉤퉤" [2023 KBS 연예대상]
--  West Ham nadigrao Manchester United i tako produbio krizu Crvenih vragova
--  Premier League: Ergebnis, Spielverlauf, Torschützen bei West Ham United gegen Manchester United
--  Premier League: Ergebnis, Spielverlauf, Torschützen bei West Ham United gegen Manchester United
+-  فرمانده سپاه، آمریکا را تهدید به بستن دریای مدیترانه و جبل الطارق کرد
+-  Algunos obispos se rebelan contra bendición de parejas gays aprobada por el papa
+-  السيد رئيسي: الهزيمة ستكون مصير الكيان الصهيوني
+-  UOL NO VERÃO
+-  Paris'te büyük ödül 'Aylan Bebek'in!
+-  New Discovery: Homogeneous Catalysts Successfully Convert CO2 into Raw Materials
+-  Tunisie-Elections locales: Report des activités sportives, ce week-end
+-  Topligák: Egyre mélyebben a Manchester United, már a nyolcadik vereségét szenvedte el; a Juventus a hajrában döntött - eredmények, videók
+-  אלחמיד בהרכב הפועל חיפה, צרפתי ואבו חנא במכבי נתניה
+-  Violent Femmes' Brian Ritchie interview to discuss Beatles, Rolling Stones and other early influences
