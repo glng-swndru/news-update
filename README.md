@@ -1,51 +1,51 @@
 # Latest News
--  البحرية البريطانية: تفجير مسيرة قرب سفينة في باب المندب
--  Guildford kidnapping: Police on the hunt for five men, after man kidnapped on Xmas Eve
--  Men in Black star Mike Nussbaum dies aged 99
--  Matt Martin still still not ready to return to Islanders from injury
--  DODELJENO 71 DEČJE AUTO-SEDIŠTE: Lokalna samouprava u Malom Zvorniku nastavila višegodišnju praksu
--  AFAD ekipleri seferber oldu! Kaybolan yaşlı Alzheimer hastası didik didik aranıyor
--  Fırtına etkisiyle çatılar uçtu, araçlar hasar aldı
--  Bakan Tunç: Teröre cesaret veren CHP ve DEM Parti'ye milletimiz gereken cevabı verecek
--  Kiwi Parker scores shock decision win over Deontay Wilder
--  Amanah tumpu bina identiti parti
--  Top 3 Dunia: Resolusi PBB Soal Gaza Dikecam hingga Kebohongan RS Al Shifa Jadi Markas Hamas
--  «الداخلية» توزّع هدايا على نزلاء المؤسسات العقابية
--  «صالح الحمد المانع» تطلق عرض حصري على تشكيلة واسعة من سيارات الدفع الرباعي العائلية من نيسان
--  «المصرف» يعزز خدماته المالية بإطلاق تطبيق QIB Lite
--  مشاركة قياسية في ثاني جولات تحدي الدراج ريس
--  تعادل الخور ولوسيل.. الشحانية يحافظ على صدارة «الثانية»
--  الأحلام تخطى القطراوي والرهيب عبر الشرطة.. العربي يحافظ على صدارة الطائرة
--  د. غانم العلي: «درب الساعي» نجح في تجسيد قيم اليوم الوطني
--  Gritty Burnley shock Fulham to climb off bottom of Premier League
--  carona : దేశంలో కొత్తగా 752 కొవిడ్‌ కేసులు
--  La Navidad en Palencia, a plato y mesa puesta
--  Spurs move into top four with 2-1 win over Everton
--  El arbitraje de la segunda oportunidad en la prisión de Dueñas
--  Israels Armee: Bodeneinsatz im Gazastreifen ausgeweitet
--  El Ayuntamiento aprueba la semipeatonalización de la zona centro
--  손흥민 시즌 11호골 폭발, 토트넘 3연승
--  یک فرمانده نظامی ایران به بستن بحیره مدیترانه در واکنش به ادامه جنگ در غزه هشدار داد
--  Frosinone, questa volta niente giant-killing. Ma con la Juve si esce a testa alta
--  El cantante colombiano, Lisandro Meza, fallece a los 86 años
--  Cinco muertos al caer una avioneta en un área residencial en Brasil
--  Smith and Hakanpaa score in the final 15 seconds to lift the Stars over the Predators 3-2
--  Smith and Hakanpaa score in the final 15 seconds to lift the Stars over the Predators 3-2
--  Postecoglou praises keeper Vicario as Spurs hang on
--  కశ్మీర్‌లో ఉద్రిక్త పరిస్థితులు
--  배인혁, 이준혁 위협으로 쓰러져…이세영 '전력질주'에 긴장감↑ [열녀박씨](종합)
--  크리스마스 연휴에 여기!...겨울 레포츠 성지 모음
--  OSO Puji Mahfud di Debat Cawapres: Bagus, Pertanyaan dengan Jawaban Sesuai
--  POJAVILE SE FOTOGRAFIJE ALEKSA IZ VREMENA DOK SE VODIO KAO NESTAO: Evo šta je radio tokom 6 godina boravka u Francuskoj
--  Drivers warned loading up Christmas presents in their car could see them hit with huge fine
--  Iran doạ đóng cửa biển Địa Trung Hải
--  How my ex and I worked out the complexities of our first Christmas after splitting up
--  Strategi Undur Diri Firli Dinilai Bisa Jebak Jokowi
--  Pabrik Petrokimia Berlomba-lomba Wujudkan Industri Hijau, Begini Caranya
--  Biden says he did not ask for cease-fire in call with Israel's Netanyahu
--  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
--  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
--  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
--  Laura Lynch, miembro fundadora del grupo Dixie Chick, muere en un accidente de tráfico
--  German police search cathedral after security threat
--  “It Is Possible”: Pierre Gasly Seeks Motivation From McLaren’s Astronomical Rise in 2023
+-  Anthony Joshua destroys Otto Wallin in Saudi Arabia
+-  Israels Armee weitet Bodeneinsatz im Gazastreifen aus
+-  [속보] 세종시 목욕탕서 감전 3명 중 2명 사망
+-  «Con el CAR-T muchos pacientes se están curando»
+-  الحكومة الأرجنتينية الجديدة تبدأ في إعادة هيكلة الاقتصاد للبلاد
+-  صندوق التنمية السياحي يوقع اتفاقية تمويل بقيمة 4.35 مليارات ريال لوضع حجر أساس مشروع الأفنيوز الخبر
+-  دورات تدريبية في مجال الاستشارات والتحليلات العقارية
+-  ارتفاع أسعار النفط والغاز نتيجة المخاوف من توقف حركة الشحن عبر البحر الأحمر
+-  وزير النقل والخدمات اللوجستية يدشّن أحدث مركز لتوضيب محركات الطائرات
+-  وزير الصناعة يلتقي صناعيي عسير و«مدن» توقع عقوداً باستثمارات 513 مليون ريال
+-  إلى المدينة المنورة.. مرة أخرى - د. عبدالله محمد الزيد
+-  قراءة متأخرة في حياة كسينجر - د. أميرة حبارير
+-  وعي وأخلاق مرورية - تغريد إبراهيم الطاسان
+-  انهضوا بالإخراج
+-  صح لسانك
+-  فواصل
+-  صيتة بنت ثواب الظاهري: من رموز بلدة الشنانة النسائية (.... - 1309هـ) - د. محمد بن عبدالله السلومي
+-  المزمار... رقصة شعبية بهوية وإرث عتيد - ناهد الأغا
+-  هل يكفي للغة العربية يوم عالمي واحد للإشادة بها وبتاريخها؟ - علاء الدين محمد فوتنزي
+-  النجمة يحقق بطولة دوري منطقة القصيم لدرجة الشباب
+-  جوارديولا يؤكد أن كأس العالم للأندية كانت رائعة ومميزة
+-  توافد الجماهير نشط الحركة التجارية بجدة تزامناً مع بطولة كأس العالم للأندية
+-  سفير المملكة في الإمارات يستقبل المشاركين في المخيم الكشفي العربي
+-  وداعاً لإنسان البر والعطاء... وداعاً يا صديقي أبا ماهر - د.عبدالرحمن بن أحمد الجعفري
+-  المعلم القائد يوفر فرصاً أكبر للنجاح - د. هيا بنت عبدالرحمن السمهري
+-  خطة إعداد الهلال في فترة التوقف مرتبطة بقائمة الأخضر الآسيوية
+-  الرائد يعمق جراح الاتحاد بثلاثية.. والفتح أطاح بالتعاون على ملعبه
+-  رئيس الاتحاد الآسيوي: السعودية أبهرت العالم في تنظيم كأس العالم للأندية 2023
+-  إحباط تهريب 117 ألف حبة كبتاجون و6 آلاف جرام من «الشبو»
+-  «الخارجية» تنظم لسفراء الدول المعتمدين لدى المملكة زيارة إلى العُلا
+-  ناقشنا 50 فرصة استثمارية مقترحة بقيمة 31 مليار دولار في أوزبكستان
+-  توثيق البطولات والقرارات المرتبكة - سليمان الجعيلان
+-  آن للزعيم العالمي أن يمد رجليه - محمد بن علي الشهري
+-  النصر يفتح ملف الاتحاد بتدريب استشفائي
+-  وزير الرياضة يؤكد نجاح الحدث العالمي «كأس العالم للأندية 2023»
+-  توزيع السلال الغذائية في مخيم النازحين برفح
+-  «إنسان» تحتفي بالمتطوعين وتدشن مبادرة «قادة التطوع»
+-  المملكة وبريطانيا تستعرضان الشراكة الاستراتيجية وسبل تعزيز التعاون العسكري والدفاعي
+-  المساواة بين الطلاب ليست عدلاً - د.عبدالعزيز بن سعود العمر
+-  كوارث الإهمال الأسري - رقية سليمان الهويريني
+-  وانكشف الغطاء! - خالد بن حمد المالك
+-  For The Best Biscuits, Only Re-Roll The Dough Once
+-  Anita Baker Explains Her Frequent Tardiness to the Stage, Claims Other Artists Wouldn't Know Because 'They've Never Sold Out an Arena'
+-  'We Have Challenges in the Family': Former Baltimore Mayor Sheila Dixon Speaks Out After Being Attacked Live On Air By Man Inside Her Home
+-  Ex-South Carolina Law Enforcement Official Charged With Cruelty To Children After Being Accused of Biting 2-Year-Old
+-  'Unequivocally False and Baseless': Bishop T.D. Jakes Issues Statement Denouncing Explosive Allegations Linking Him to Sean 'Diddy' Combs
+-  'I Don't Regret Anyone': Brittany Renner Defends Her Body Count, Says She's Not Ashamed of How Many Men She's Slept With
+-  Mo'Nique and Viola Davis' Comments About Hollywood Pay Disparities Resurface as Taraji P. Henson Is Shown Support for Emotional Remarks About the Issue
+-  Two White Boaters Sentenced for Harassment in Montgomery Riverfront Brawl As Black Captain Has Charges Dismissed
+-  Anita Baker Explains Her Frequent Tardiness to the Stage, Claims Other Artists Wouldn't Know Because 'They've Never Sold Out an Arena'
