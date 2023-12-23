@@ -1,11 +1,51 @@
 # Latest News
--  بدء استقبال طلبات الترشيح للدورات التدريبية في مجال الاستشارات والتحليلات العقارية
--  🔴 البرهان يلتقي يوم 28 ديسمبر بحميدتي بعنتبي برعاية الرئيس الجيبوتي
--  ΠΑΟΚ: Ενδιαφέρον για τον Ροζιέ, σύμφωνα με τους Τούρκους
--  Sieltä se tuli - tähtihyökkääjä on tehnyt jättisopimuksen
--  المشاط تبحث مع المدير الإقليمي للبنك الدولي أولويات التعاون المستقبلية
--  Φροζινόνε - Γιουβέντους 1-2: Ο λυτρωτής Βλάχοβιτς την κράτησε στο... κατόπι της Ίντερ
--  Ποινική δίωξη για ανθρωποκτονία στον 16χρονο που μαχαίρωσε και σκότωσε τον πατέρα του στα Καλύβια (vid)
--  Russia bars pro-peace candidate from presidential ballot
--  "Zapad se sprema za novi hladni rat sa Rusijom"
--  “Të zgjojmë luanin!”- Berisha: Rilindasit e Ramës janë hiena, por do t’ia mbathin me të katërta! Të mbrojmë logon dhe selinë nga…
+-  ارتفاع عدد الشهداء الصحفيين إلى 99 منذ بدء العدوان على غزة
+-  واشنطن بوست: مستوى الدمار في غزة لا مثيل له في هذا القرن
+-  أردنيون مسيحيون يدينون لقاء رؤساء كنائس فلسطين برئيس الكيان - أسماء
+-  Per Kūčias į kosmosą kils pirmas toks skrydis į Mėnulį
+-  [ŽT] „Tai išgelbėjo karių gyvybes.“ IDF pirmą kartą parodė, ką paleido į „Hamas“ tunelius (Video)
+-  „Rusija perėmė iniciatyvą kare Ukrainoje“. NYT skelbia karčią žinią
+-  Ucrania dice que los camioneros polacos desbloquearon un paso fronterizo clave
+-  Polonia y Ucrania crearán grupo de trabajo para resolver disputas por temas comerciales
+-  Comisión electoral rusa rechaza candidatura de antibelicista Duntsova para competir contra Putin
+-  Ένας νεκρός πυροσβέστης και τρεις τραυματίες σε τροχαίο στα Γιάννενα - Διαλύθηκαν τα δύο αυτοκίνητα
+-  Sudah bermastautin lebih 20 tahun, lelaki Rohingya kecewa Indonesia enggan beri kad pengenalan
+-  Сколько стоит свидетельство о рождении в Таджикистане, и в какой срок следует регистрировать ребенка?
+-  شرکت تولید مواد خام برای بافت قالین در بامیان ایجاد شد
+-  Itália: Vlahovic salta do banco para dar vitória à Juventus sobre o Frosinone
+-  Accused sentenced to 10 years for raping minor girl
+-  "في عالم من دون محاسبة تكبر المحسوبيات ويتفشى الفساد"... مكة: كفى غرقًا حان وقت الحساب!
+-  DA LI ABA LIGA I DEFINITIVNO GUBI JEDNO MJESTO U EVROLIGI? Bodiroga se u Beogradu sastao sa njom - stiglo i saopštenje!
+-  A-League Men: Perth Glory score three second-half goals to beat Macarthur FC 3-2
+-  Krznarić otkrio kako je nastao Kićin najveći hit: ‘Jedne večeri sam se s Cetinskim vraćao kući’
+-  PF Near Me on December 27
+-  الأردن وقطر يبحثان وقف الحرب المستعرة على غزة وما سببته من معاناة إنسانية
+-  Antarctic Davis Station runway shelved after $19 million spent on consultants and advice
+-  Bruce Lehrmann's defamation trial has now wrapped in the Federal Court, but a decision isn't expected until well into next year
+-  Última llamada para los Steelers: ganan o adiós Playoffs
+-  Demanda Corral por estafa con camioneta
+-  How Jenny the chihuahua became a pawn for Facebook fraudsters cheating Australians
+-  خالد مرتجي: كان الله في عون موديست «ربنا يفتحها عليه»
+-  Manchester United: six choses à savoir sur Willy Kambwala, le jeune Français titulaire pour la 1re fois en Premier League
+-  DONIJELI SMO KONAČNU ODLUKU - NESTOROVIĆ SE OGLASIO PRED NOVINARIMA: Evo šta će biti sa beogradskim izborima
+-  Canarias investiga por primera vez si el suelo volcánico distingue sus vinos
+-  Sosial mediada 30 dəqiqədən artıq olmaq...
+-  Argentina: River Plate, con De la Cruz y Seba Boselli, se adjudicó el Trofeo de Campeones
+-  بيلينجهام يستعين بطباخ بنزيما في ريال مدريد
+-  Congress workers behaved like a frenzied mob: Jayarajan
+-  Pastoor René Aarden leidt op kerstavond vijf diensten en sjeest van dorp naar dorp – ‘Maria krijgt bij mij een vijfling’
+-  "KURTI LAŽE I OBMANjUJE" Petković: Branićemo srpski narod i nastavićemo da čuvamo mir i stabilnost
+-  Man Utd fans left pining over Louis van Gaal years and threaten to ‘switch over to Xmas movie’ in ‘dire’ West Ham clash
+-  النصيري على رادار مانشستر يونايتد
+-  Коринтианс се разделя с бивш играч на Лудогорец
+-  Senior Citizens के लिए UP में लिया गया बड़ा फैसला, बच्चों से दुखी हुए बुजुर्ग, तो कर सकेंगे घर से बेदखल
+-  Popular iPhone and iPad photo editing app brings watermark feature and more
+-  भविष्य की पीढ़ियों को करें प्रशिक्षित, साक्षी और बजरंग के हैरतअंगेज फैसलों के बाद आया खेल मंत्री अनुराग ठाकुर का बड़ा बयान
+-  Σταμάτης Μαλέλης: Καλά έκανε κι έφυγε η Σκορδά, ο Λιάγκας μπορεί να γυρίσει στην ενημέρωση
+-  Bingöl’de kaza. 1 ölü, 4 yaralı
+-  Kluczowe 24 godziny dla Legii Warszawa. Długo wyczekiwany transfer o krok
+-  Matrubhoomi | भारत को बचाने के लिए निकले लौह पुरुष की कहानी | Sardar Patel: Telling the Untold
+-  Laura Bozzo aprovecha su visita a 'De Viernes' para cargar contra Naomi: "¿Dónde está ella?"
+-  Mutter ließ festgeschnallten Sohn (1) verdursten – „war für sie ein Störfaktor“
+-  Levelling up funding for Scotland increased £840m in 2023, Scottish Secretary Alister Jack said
+-  “किसान, मजदूर और बेरोजगारों की आवाज़ बन रही यूपी जोड़ो यात्रा”, यूपी कांग्रेस अध्यक्ष अजय राय से खास बातचीत
