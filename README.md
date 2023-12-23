@@ -1,11 +1,11 @@
 # Latest News
--  „Iki 2030-ųjų. Putinas neturi jokių sveikatos problemų, todėl nesustos“
--  [ŽT] N-18! Specialiosios paskirties „Ranger“ batalionas patenka į mėsmalę (Video)
--  Naujasis atradimas sustiprina tikimybę, kad Saturno palydovo vandenyne gali egzistuoti gyvybė
--  Путин е информирал САЩ по тайни канали, че иска да преговаря за мир в Украйна
--  'Poor' - Sky Sports pundit fumes live on air at what he saw in 2-1 Everton loss v Spurs
--  نگران وزیراعظم انوارالحق کاکڑ نے تحریک انصاف کو ووٹ دینے کا اعتراف کرلیا
--  אסון בעזה: הותרו לפרסום שמם של 5 לוחמי צה"ל שנפלו בקרבות בדרום הרצועה
--  Po snehovej kalamite hrozia povodne: Na Slovensku sa cez sviatky výrazne oteplí, dnes večer sa bude tvoriť hmla
--  Paco Casielles, hijo predilecto de Pravia: "Gracias a todos los que se esfuerzan por sacar adelante nuestro pueblo"
--  Bizcocho de plátano con chocolate sin harina ni azúcar: prepáralo en pocos minutos
+-  Fransa'nın Montpellier kentinde toplu taşıma ücretsiz oldu
+-  ABD'de çift rahimli kadın, bir gün arayla iki kez doğum yaptı
+-  CHP Genel Başkanı Özel'den şehit askerler için başsağlığı mesajı
+-  İsrail ordusundaki Fransız asıllı askerler hakkında suç duyurusu
+-  İYİ Parti'den milli yas çağrısı
+-  سائفر کیس میں ضمانت منظور ہونے کے باوجود شاہ محمود قریشی کو رہائی نہ مل سکی
+-  Филипче направи операција на мозок со свесен пациент
+-  Music maestro Ustad Rashid Khan in critical condition, undergoing treatment for prostate cancer
+-  Hair Care : అందమైన జుట్టుకు మాస్క్‌లు
+-  Zrážka vlaku s osobným autom: Na mieste zasahujú všetky záchranné zložky! Nepriaznivé počasie si vyberá svoju daň
