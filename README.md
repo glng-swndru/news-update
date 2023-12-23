@@ -1,11 +1,51 @@
 # Latest News
--  Teen wrangles alleged burglar until police arrive in Melbourne
--  Teen wrangles alleged burglar until police arrive in Melbourne
--  Vánoční svátky si mohou lidé na Vysočině zpestřit i kufrováním či šifrovací hrou
--  10 il için "turuncu" ve "sarı" kodlu uyarı
--  Beşiktaş transfer için düğmeye bastı! Hedefteki isim Can Keleş
--  Hindistan'da başörtüsü takma yasağı kaldırılıyor
--  Çok sayıda ülke Türkiye için sıraya girdi! Bakan Bolat: Birlikte iş yapmak istiyorlar
--  İstanbul'da 636 aranan şüpheli gözaltına alındı
--  Záchranárov počas Vianoc zamestnáva najmä pomoc pri bolestiach brucha
--  Česko drží štátny smútok za obete streľby v Prahe
+-  بيولي يرفع شعار ” الراحة ممنوعة قبل مواجهة ساسولو”
+-  Turistlere akıl almaz tuzak. Bakan Yerlikaya açıkladı: Turistlerin kabusu 5 çete çökertildi
+-  Chicken waste: చికెన్‌ వ్యర్థాలు @ రూ.కోటిన్నర
+-  Siracusa, rifiuti: per la Vigilia e Natale non si effettuerà la raccolta
+-  Gingerbread: spices of holiday staple may have surprising health benefits
+-  Hakkari'den acı haber! Altı ocağa şehit ateşi düştü
+-  Birce Akalay sessizliğini bozdu!
+-  Yargıtay'dan emsal karar! Hakaret sayılmadı
+-  Adana Demirspor yarın Antalyaspor'u ağırlayacak!
+-  Şanlıurfa'da korkunç kaza! Ölü ve yaralılar var
+-  Hayvan nakillerine ilişkin düzenleme ertelendi
+-  Manžel Marfuše (†79) z Mrázika bez nej nevedel žiť: Uznávaný režisér zomrel krátko po herečke!
+-  Български лекар спасил жена с 5% шанс за оцеляване
+-  MLADA NAPRAVILA HAOS NA VENČANJU Pred matičarem rekla &quot;NE&quot;, a kad čujete njeno objašnjenje, aplaudiraćete joj
+-  NHL-superlupaus sivuun Suomea vastaan pelattavassa MM-avauksesta?
+-  ميغيلي : الثقة غائبة بين لابورتا وتشافي
+-  Koreanization: The subtle transformation
+-  Fire at POSCO's Pohang Steelworks put out; facilities partially suspended
+-  Beroš: Kreće reorganizacija bolničkog sustava, smanjili smo liste čekanja za 19 posto
+-  Turkmenistan's industrial sector boosting processing of local raw materials
+-  Рома прийматиме Наполі, Ювенутс зіграє з Фрозіноне: розклад матчів Серії А
+-  Baznas Jawa Timur Salurkan Bantuan Kemanusiaan Palestina Senilai Rp 10 Miliar
+-  Gaza’s journalists: ‘Targets’ or ‘casualties’ of Israel’s war?
+-  Sánchez acaba el año a seis puntos y 36 escaños de Feijóo (a pesar del CIS)
+-  موسيالا يرد على شائعات رحيله عن بايرن ميونخ
+-  Süper Kupa'nın neden Arabistan'da oynanacağı ortaya çıktı! Erol Mütercimler'den skandal iddia
+-  Cine sunt primii români de pe Threads și ce au de spus - Geoană, Măruță, dar și foarte mulți oameni care cred că e liber la înjurat
+-  Hollanda Ukrayna'ya 18 adet F-16 savaş uçağı gönderecek
+-  I FSS protiv fudbalske lige moćnih i bogatih
+-  13년 만에 부활한 '천안함' 작전배치…서해 수호 돌입
+-  পুরস্কার পেয়ে ‘অসম্মানিত’ ভারতের সেই ১২ কয়লাশ্রমিক
+-  Mehe tapnud ja põletanud naine peab 14 aastaks vangi minema
+-  24실책 중 단 2개? 흐름 바꾼 연속 실책→첫 홈 10연승 좌절…‘캡틴’ 이관희이기에 더욱 아쉬웠던 실수
+-  "Love Story"-Star Ryan O'Neals (†82) Todesursache steht fest
+-  Food to Reduce Period Pain: मासिक धर्म में दर्द या ऐंठन हो तो विज्ञान के अनुसार क्या खाएं और क्या न खाएं
+-  „Szeretni és szeretve lenni” - szerelmes fotót tett közzé a boldogságban úszó Berki Mazsi
+-  ワリエワがＳＰ首位
+-  OGROMAN IRVAS U DVORIŠTU I TRI JELKE: Karleuša potrošila ogromne svote novca na ukrašavanje vile, kadrovi ostavljaju bez teksta!
+-  Dodik: Građani Republike Srpske neće oprostiti onima koji seju mržnju prema njima
+-  "शरिया कानून आएगा": कर्नाटक हिजाब विवाद पर कांग्रेस बोली- BJP को कुछ नहीं पता
+-  1. FC Köln: Horst Heldt kann Aus von Steffen Baumgart nicht verstehen
+-  Βαρόμετρο / Ομόνοια
+-  “행운을 빕니다”…한동훈, 장관 마지막날 예비 고1에게 선물한 책은?
+-  Cevdet Yılmaz: Memur emeklilerinin aylıklarındaki artış yüzde 50 civarında olacak
+-  «Würde mich schämen, so viel zu lügen»: Arena-Zoff zur Asylpolitik
+-  Naira drops against US Dollar at forex market ahead of Christmas
+-  In the shadow of history
+-  7 başlıkta geçen hafta
+-  ল্যাথামের মুখেও বাংলাদেশের প্রশংসা
+-  Lazio, il buongiorno speciale della società con l''urlo di Guendo' - FOTO
