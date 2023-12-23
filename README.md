@@ -1,11 +1,51 @@
 # Latest News
+-  Director Christopher Landon leaves embattled 'Scream VII' project
+-  Rewanż wicemistrza, czyli Polski Cukier AZS UMCS przegrał w Polkowicach
+-  Pakar Sebut Bangun 40 Kota Setara Jakarta Jargon tidak Realistis
+-  A new kind of outback toilet gets a dry run, with 'huge possibilities' for remote tourism
+-  De mayor quiero ser joven
+-  12వ రోజూ అదే హోరు
+-  Alabama woman with rare double uterus gives birth to two children
+-  Engländer Bunting nächster Darts-Gegner von Hempel
+-  Guayaquil: En la 15 y Pedro Pablo Gómez hubo un atentado y piden que haya policías en UPC en desuso
+-  باكستان: كل المواطنين من جميع الأديان يتمتعون بحقوق متساوية
+-  INFY - INFOSYS Share Price का क्या होगा, 12500 करोड़ की डील कैंसिल हो गई है
 -  Six of the best batteries to power J-Bird to Hobart
+-  Soulja Boys Partnerin verklagt Blueface wegen Sexaussage!
 -  Benefícios para suinocultura e produção de biocombustíveis em MT são aprovados pelo governo
+-  తాగుడు సొమ్ముతో హ్యాపీ బర్త్‌ డే!
+-  Fiamme in una palazzina in via Gerso a Lugano
 -  Bayerns Unwetter-Weihnachten: Sturm, Hochwasser und Lawinengefahr
 -  Dreyer bliver matchvinder for Anderlecht i tillægstiden
 -  Dreyer bliver matchvinder for Anderlecht i tillægstiden
+-  Winnipeg police arrest 1 suspect in connection to assault of woman found in dumpster
+-  Where the cast from hit festive classic Die Hard are now - from £200m fortune to asbestos death
 -  للاطلاع على أحدث التقنيات والاستفادة من خبرات"التحلية".. وفد من وزارة البيئة التركية يزور منظومة الشعيبة
+-  En el inicio de su gobierno, Milei se refugia en su electorado y tensa al máximo su relación con el Congreso
+-  Basket-ball. Pro B : les réactions après Boulazac - Pau
 -  تقرير: المغرب الأول إفريقيا في مؤشر تنمية تكنولوجيا المعلومات والاتصالات
+-  Laura Lynch, founding member of The Dixie Chicks, killed in head-on crash in Texas, authorities say
 -  Arteta lyrisch na 'ongelooflijk' duel: 'Daarin is Liverpool beste ter wereld'
+-  మరో గ్యారంటీ అమలు దిశగా..
 -  ALLEGRI a Raisport: "Primi bilanci alla fine del girone d'andata"
+-  Fans all say the same thing after seeing Deontay Wilder’s royal ring walk outfit for Joseph Parker fight
+-  Juez admite tratar como proceso colectivo un amparo contra el megadecreto de Milei
 -  ما هو محور فيلادلفيا على الحدود المصرية مع غزة؟
+-  టీడీపీ, జనసేన, కాంగ్రెస్‌, వామపక్షాలు కలిసి పోటీ చేయాలి: నారాయణ
+-  Multiple people injured in what authorities describe as 'active shooting' at Florida shopping mall
+-  Multiple people injured in what authorities describe as 'active shooting' at Florida shopping mall
+-  Mnogi svakodnevno koriste vlažne maramice umjesto toalet papira, nemaju pojma koliko su štetne
+-  Шайба Дадонова помогла «Далласу» одержать волевую победу над «Нэшвиллом»
+-  Chelsea manager discuss how disappointed he is with Chelsea owner over Their decision to sell one of Chelsea best player this season, offer’s already coming in
+-  تراند اليوم : بالفيديو.. محامي كويتي يروي قصة رجل شك في زوجته وبعدما راقبها أثناء ذهابها إلى العمل كانت المفاجأة
+-  تراند اليوم : "أنور مالك" يطرح عدة أسئلة نيابة عن فلسطيني من غزة ويتحدى "قادة حماس" الإجابة عليها!
+-  تراند اليوم : الملاكم" ماكجريجور يجلس بجانب كريستيانو ..شاهد ردة فعله بعدما رأى ساعته الثمينة
+-  Exhibición de Rousselle en las fauces de su antiguo mentor
+-  Mercato - OM : Deux anciens de l’ASSE attendent Pablo Longoria ?
+-  Tufa ia Ianuari le Tului 2.4% mo Faisaofaga a le NPF
+-  تفاصيل اللحظات الأخيرة في حياة المدير الإداري للترسانة.. «مات من الفرحة»
+-  درك بوجدور يواصل شن حملات أمنية لمواجهة ظاهرة قوارب الصيد البحري العشوائية
+-  البيت الأبيض: بايدن حث نتنياهو على حماية المدنيين بغزة
+-  James Bond Could Have Been Played By Dick Van Dyke, And His Response After Being Offered The Role Was Perfect
+-  EDITORIAL: No right to protest on private property
+-  వైసీపీపై ప్రజల్లో వ్యతిరేకత
