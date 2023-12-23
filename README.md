@@ -1,51 +1,51 @@
 # Latest News
+-  Três suspeitos de envolvimento em golpes na internet são presos em Mato Grosso
+-  „Last Christmas“: "Wham!"-Song stürmt erstmals auf Platz eins der britischen Singlecharts
+-  Четыре атмосферных фильма 1990-х с духом Рождества
+-  Arkadaşını 9 Kez Bıçakladı: İfadesi Şaşırttı!
+-  Estrela teen dos anos 1990 vira avó na ficção e fãs reagem contra o novo trabalho
+-  أرقام كانتي في الشوط الأول أمام الرائد
+-  Rubilio Castillo define su nuevo equipo para el clausura
+-  Çağdaş Atan: Maçın hakkı beraberlikti
+-  Mauro Icardi'den derbi öncesi çarpıcı paylaşım!
+-  Şehit ateşi Yozgat'a düştü: Piyade Uzman Çavuş Arslan'ın şehadet haberi ailesine verildi
+-  Abdullah Avcı: Bugün kazanmaya daha yakındık
+-  Hakan asist yaptı, Inter galibiyete uzandı
+-  Emine Erdoğan'dan şehit askerler için taziye mesajı
+-  Trabzonspor'da Başakşehir maçının ardından açıklamalar!
+-  VIDEO: Rescatan a un perro atrapado bajo el hielo con la ayuda de la boya de un niño
+-  GUNTER: Liberals driving EVs down the disinformation highway
+-  مدرب البرتغال يتحدث عن تأثير برشلونة على الجواوين؟
+-  Vujnovac: Koja vlada je meni pomogla? Želim donijeti izvrsnost ovoj državi
+-  Engelse media keihard voor Erik ten Hag: ‘United koos de verkeerde linkspoot van Ajax’
+-  "Decyzja zapadła na Nowodrodzkiej". Politycy komentują weto Dudy
+-  Mercato - OM : Ça bouge déjà en interne pour le recrutement
+-  إنزاجي يقود الإنتر لسجل قياسي فى الكالتشيو
+-  عادة خاطئة يفعلها كثيرون أثناء الاستحمام تؤدي إلى العمى.. انتبه
+-  علامات إذا ظهرت على الركبة عند الجلوس دليل على نقص هذا الفيتامين.. احذرها
+-  تقييم المعيوف في 45 دقيقة أمام الرائد
+-  Justicia de Perú rechaza pedido de Pedro Castillo para anular su prisión preventiva
+-  Pas vu à l’écran : The Crown, le dernier jour du tournage émouvant qui a dégénéré en une danse endiablée
+-  NEĆU TO DA JEDEM Ovo su razlozi zašto vaš mališan odbija zdravu hranu, nije sve do njih
+-  PUTIN JE SPREMAN Hoće li biti prekida vatre?
+-  Ministarstvo odbrane najoštrije odbacilo navode Kurtija i Svečlje o umešanosti Vojske Srbije u događaje u Banjskoj
+-  Justicia salvadoreña ordena detención de expresidente Alfredo Cristiani por masacre El Mozote
+-  Escala la violencia en Villahermosa, Tabasco: Hombres armados provocan queman vehículos
+-  Oficial: Luís Campos deixa cargo de consultor desportivo do Celta Vigo
+-  Yılın En İyi 100 Futbolcusu Açıklandı! Liste Tek Türk Var
 -  אחרי סוף שבוע של חורפי וסוער: המערכת החורפית תימשך - אך ההתחממות באופק
--  Geht es ihm gut? Pete Davidson cancelt mehrere seiner Shows!
--  European markets ended lower: What led to the decline?
--  Над 90 жертви при израелски удари по две жилищни сгради в Газа - Труд
--  Die Hard and Melrose Place actress Selma Archerd dies aged 98
--  Mali twist
--  Izgubljeni kralj
--  Λίβερπουλ - Άρσεναλ: Το πέναλτι που ζήτησαν οι γηπεδούχοι στο χέρι του Όντεγκααρντ (vid)
--  Gerrit Schrijver zestig jaar bestuurslid IJsclub Zederik
--  عاجل.. سكني: يمكن للأرامل الاستفادة من الدعم السكني بشرط
--  الباحث خلدون ابراهيم باقطيان يتحصل على الماجستير بامتياز من جامعة عدن
--  Tunisie : Bizerte : Ils volent tout ce qui contient du cuivre… Y compris des statuettes antiques
--  La sugestiva aclaración del representante del Diablito Echeverri tras la bomba en River: “Claudio me pidió…”
--  Ne znate kada da zamenite bateriju? Telefon će uskoro sam da vam kaže
--  دعوة للمزارعين ومربي المواشي للتحوط خلال المنخفض
--  ఆర్థిక ఇబ్బందులతో వ్యక్తి ఆత్మహత్య
--  ‘మహాలక్ష్మి’తో ఆర్టీసీ కళకళ
--  I never thought someone like me could be financially independent, but 3 steps are helping me reach that goal by 45
--  Ψηφιακή πλατφόρμα για αντιμετώπιση του σχολικού εκφοβισμού
--  Inter rutinski savladao Leće i sačuvao plus četiri
--  Marijan Budimir više nije trener Širokog Brijega
--  El exnovio de Jessica Bueno rehace su vida con una nueva compañera: "Hay amores que no se pueden explicar"
--  Konfliktparteien im Jemen akzeptieren Feuerpause
--  Βαλένθια - Γρανάδα 75-81: «Στραβοπάτημα» πριν τη Μπάγερν
--  Second batch of eggs sent from Azerbaijan to Russia
--  మంత్రి ఉషశ్రీచరణ్‌ చిత్రపటానికి చెప్పుల దండ
--  AMD prý chystá nové čipsety generace 700 pro AM5 desky, vyjdou současně s LGA 1851 od Intelu
--  فيديو مروع لاحتراق لنش تجاري في مياه سلطنة عمان .. والشرطة توضح
--  Gazeta gjermane: Putin mund të sulmojë Europën në fund të 2024-ës, kur SHBA të jetë pa president
--  QEH sees surge in patients at A&E, advises of long wait times
--  مبعوث الأمم المتحدة: الجانبان المتحاربان في اليمن يلتزمان بخطوات لوقف إطلاق النار
--  Minnesota official predicts Trump will either be on ballot 'everywhere or nowhere'
--  Sramne scene u Podgorici: Jedan Podgoričanin napao sestru, drugi prijetio ocu, obojica uhapšeni!
--  Awka Indigenes Cry Out Over Police Occupying Their Land Over Alleged Disputes
--  ప్రజల సమస్యలపై పోరాడుదాం : సీపీఎం
--  Colorado releases additional 5 gray wolves as part of reintroduction effort
--  Querrás tenerlos cerca: estos son los signos del zodiaco más cómicos, según la astrología
--  Ako zamjenu kuna u eure ne napravite u sljedeća četiri dana, preostaje vam samo još jedna opcija
--  Obnovljena tužba protiv grupe Nirvana: Saga sa golom bebom se nastavlja FOTO
--  Армия Израиля несет потери в Газе
--  Gerüchte um Madrid-Interesse: Verlässt dieser Star die Bundesliga?
--  Weihnachtsspecial! LIVESTREAM 18 Uhr!
--  Serie A leader Inter beats Lecce. Juventus wins at Frosinone
--  ‘ఆడుదాం ఆంధ్రా’ ర్యాలీ
--  “A vivir en armonía estas fechas”, exhorta Amalia Gastélum, alcaldesa del municipio de Choix
--  Huge ITV2 sitcom axed after just two series in another blow for Love Island star
--  6 askerin şehit olduğu saldırının ayrıntıları
--  Žestok napad: Ubijeno 20 ljudi
--  Podgorica: Uhapšene dvije osobe osumnjičene za nasilje u porodici,...
--  গাজার ২০০ যোদ্ধাকে গ্রেপ্তারের দাবি ইসরায়েলের
+-  Polizei erschießt bewaffneten Mann – LKA ermittelt
+-  VIDEO | Mateo Messi, el prodigioso hijo de Lionel, deja boquiabiertos con su chilena para el Inter Miami
+-  Le pagelle del Cagliari - Makoumbou disastroso, Goldaniga sfortunato
+-  Niedersachsen: Mehrere Bomben aus Zweiten Weltkrieg in 2023 entschärft
+-  FC Schalke 04: Wirbel um DFL-Investor – S04-Boss mittendrin
+-  Patriots downgrade Hunter Henry, Conor McDermott to out on eve of Broncos matchup
+-  El asesinato del alcalde de Guachené conmociona a Colombia
+-  Fiatal vagy és magyar? Gyere focizni az NB I.-be, aztán 21 évesen menj, amerre látsz!
+-  Jak prezes PiS miał prezesa TVP na telefon i dlaczego to nie może się powtórzyć
+-  Collectors’ conference today, Revanth to stress on six poll guarantees implementation
+-  Inter se učvrstio na vrhu ljestvice, Verona bolja od Cagliarija
+-  Hamás reporta que cinco rehenes podrían haber muerto en un ataque israelí contra Gaza
+-  Καλύβια: Με 20 χτυπήματα σκότωσε τον πατέρα του και το μαχαίρι έσπασε - Οι καταθέσεις και η πρώτη δήλωση της μάνας
+-  Kourtney Kardashian i njezin partner objavili prve fotografije s novorođenim sinom
+-  سفير إسرائيل لدى برلين: ألمانيا أصبحت شريكنا الاستراتيجي الثاني بعد أمريكا جزئيا بعد هجمات حماس في 7 أكتوبر
