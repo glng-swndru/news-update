@@ -1,11 +1,11 @@
 # Latest News
--  מה עושה מאי גולן במשרד לקידום מעמד האישה? קשה לדעת
--  למערב אין ברירה: ארגון טרור בכפכפים עלול להביא למיתון עולמי
--  العين الدكتور ناصر الدين يُكرم مشاركي ورشة “المُقوّم المعتمد”
--  العين الدكتور ناصر الدين يحاور طلبة إعلام الشرق الأوسط حول الفساد الاستراتيجي الإعلامي
--  Libur Natal, Pengunjung Oceanarium BXSea di Bintaro Xchange Membludak
--  صفارات الإنذار تدوي في الجليل الغربي
--  Koniec lodowiska na drogach? IMGW ostrzega
--  Broj adolescenata s dijagnozom depresije porastao za trećinu. Psihijatrica iz KBC-a Rijeka: ‘Susrećemo se s tim svaki dan’
--  I’m a sleep expert and my hack will make sure your kids don’t wake up once this Christmas Eve
--  Erdő Péter: Az ember méltósága abból fakad, hogy Isten a saját képére alkotta
+-  현대차 '엑스터', 2024 인도 올해의 차에 등극
+-  [한국영화특선] ‘두 얼굴의 여친’-28회 청룡영화상 수상작
+-  هيئة العقار تدعو ملاك العقارات في 48 حيًا بهذه المدن لتسجيل عقاراتهم
+-  دراسة: الذين يسهرون الليل أكثر عرضة للإصابة بانسداد الشرايين
+-  Dilan Polat’ın parasını annesinin mezarında aradılar
+-  Detained Baloch protesters being released after bail approved: Islamabad police
+-  철원, 금연지구 ‘생활체육공원’ 준공
+-  철원경찰, 올해 하반기 지역치안협의회 정기회의
+-  '3분기 건설 계약액' 45.5조원…8년 3분기 중 '최소'
+-  香港仔香島道兩車迎頭相撞 兩人受傷
