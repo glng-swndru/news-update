@@ -1,51 +1,11 @@
 # Latest News
--  ¿Quién es el empresario que no sube en tarima a artistas con los que vende sus conciertos?
--  Naik Whoosh Dapat Bundling Promo Pariwisata, Ini Daftar Destinasi Diskonnya
--  MTN Nigeria y ATC deben suspender la ampliación de sus estaciones base
--  Toshiba sale de la bolsa de Tokio tras una compra de 14.000 millones de dólares
--  Ιταλία: Πυρκαγιά σε υποδομή συλλογής και διαχείρισης απορριμμάτων έξω από τη Ρώμη
--  بسبب موديست.. الاهلي يضحي بنجمه في يناير
--  فولهام يصدم ليفربول وتوتنهام بشأن بيع نجم الفريق
--  رونالدو ضد بنزيما.. تشكيل النصر والاتحاد المتوقع في الدوري السعودي
--  مفاجأة.. كونتي مرشح لتدريب ميلان حال إقالة بيولي
--  مبادئ الزمالك.. تعليقات ساخرة من جماهير الاهلي على تجديد عقد فتوح
--  حسين لبيب يوجه ضربة أولى لـ مرتضى منصور في الزمالك
--  Manitoba food banks faced record demand amidst challenges in 2023
--  Apple Watch Series 9 and Ultra 2 officially unavailable in the US as retail sales halt begins
--  Reino Unido enviará buque de guerra a Guyana por las tensiones con Venezuela
--  الزعاق يوضح معنى مقولة إذا طلعت الشولة طال الليل طولة.. فيديو
--  Sedia feri setiap jam sempena Natal
--  Laksana reformasi undang-undang 2024 – Peguam
--  "Пошла трещина". Экс-советник Пентагона заявил об "ударе" России по НАТО
--  تقييم ستيرلينغ في مباراة تشيلسي وولفرهامبتون
--  Cobertura Patriots vs Broncos EN VIVO | Semana 16 Sunday Night Football
--  Condò: "Il Milan sul punto di essere ingoiato come tutto il resto dal buco nero degli infortuni muscolari"
--  Yardıma giden kepçe uçurumdan düştü. 1 ölü 2 kayıp
--  Présidentielle 2023 : le candidat Radjabo crée la surprise derrière Katumbi et Tshisekedi
--  إذا أحسست بهذا الطعم في اللسان توجه للطبيب فوراً فهو جرس إنذار لمرض السرطان
--  Pertandingan memancing wanita guna kail pelepah salak
--  Dear Tom Hanks And Meg Ryan, I Think It’s High Time You Gave One Last Rom-Com A Go
--  يدمر ذاكرة الإنسان.. احترس من الهاتف المحمول في هذه الحالة!
--  Raplapla: Montreal’s unique doll adoption centre and hospital
--  Man killed, woman injured in ‘targeted’ afternoon shooting at a Florida shopping mall
--  لاعب جديد على عرش الأغلى في العالم
--  Políticos, a la escuela
--  Kapal tangki milik Jepun diserang dron
--  Beloved Montreal Christmas tree shines again in the gift of a book
--  إخلاء مبنى آيل للسقوط في جرش - صور
--  Lebih 300 penumpang India ditahan di Perancis
--  Unnao Teacher Murder: गंगा रेती में पड़ा मिला शव, आठ दिन से था लापता, सिर-पैर मिला...शरीर नोंचकर खा गए थे जानवर
--  Field of Dreams and Men in Black actor Mike Nussbaum dies aged 99
--  El personal del Metro de Londres irá al paro en enero en demanda de mejora
--  金世正捐款5000萬韓元！JYP朴振英大手筆捐10億「分送5醫院」
--  Еве како изгледа Стариот дворец во Белград по упадот на српските „шарени“
--  Jammu News: सेना प्रमुख जनरल पांडे आज पहुंचेंगे जम्मू, सैन्य अफसरों संग करेंगे मंथन
--  Lotto-Spielerin (17) gewinnt Millionen und erleidet Drama – „Gibt nichts Schlimmeres“
--  FC Schalke 04: Geht jetzt alles schnell? Erster Transfer-Hammer steht bevor
--  Wetter in NRW: Experte wird vor Weihnachten deutlich – „Vorsicht, Vorsicht!“
--  Putin: Kriegsgefahr 2024? „Scholz bereitet Deutschland aufs Schlimmste vor“
--  Konto von Bürgergeld-Empfängerin gepfändet: Ihr Mann kann darüber nur lachen
--  Usia sudah cecah 100 tahun, Evelyn masih ingat bahasa Portugis
--  미중 양국 펜타닐 공조 "이렇게 순조로울 수가"
--  Ein Traum und ein Anruf: «Wolfsland - Das schwarze Herz»
--  Film-Ikone Hanna Schygulla wird 80 - «Öfter mal was Neues»
+-  مشهد عجيب .. غواص يروض تمساحا في قاع البحر
+-  جامعة الإمام عبد الرحمن بن فيصل تعلن عن وظائف أكاديمية شاغرة
+-  More streetlights fall victim to reckless drivers
+-  مظاهرة أمام مقر "BBC" رفضا لاستهداف الصحفيين في غزة (شاهد)
+-  نصائح مفيدة لمرضى التهاب الجيوب الأنفية
+-  الوكرة يقفز لصدارة كأس اتحاد اليد
+-  تستولي على أراضي الفلسطينيين.. قوات الاحتلال تقتحم بيت لحم
+-  حملة توعوية للعاملين بسوق الأسماك بالخور
+-  «كتارا الدولي للكهرمان» يبدأ 15 يناير
+-  «الرياضة للجميع» يطلق المخيم الشتوي للمواي تاي
