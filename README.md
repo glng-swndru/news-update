@@ -1,11 +1,11 @@
 # Latest News
--  Cyprus Business Now: weekly wrap-up
--  제2의 홀란인 줄 알았는데…슈팅 0개+상대 박스 안 터치 1회→평점 3점 '혹평'
--  Rumores Sporting: Хлусевич может перейти в «Спортинг»
--  Jarmo Kekäläisen Columbus Blue Jacketsilla synkkä joulu
--  दरिंदगी: स्नैपचैट पर की दोस्ती, खुद को बताया कुंवारा, तीन साल तक युवती से दुष्कर्म करता रहा पुलिसवाला
--  Выезд на закрытую ледовую переправу может быть смертельно опасен
--  Ja Morant effect : trois matchs, trois victoires pour les Grizzlies, tout le monde s’éclate de nouveau à Memphis
--  بدر الدين سليمان.. حلم التنوير أو أقصى العقوبة حب السودان
--  „Steiner kirúgott, mert nem szereztem elég pontot – szerintem ez nem volt jogos!”
--  CAR Foreign Minister Expresses Hope for Increased Cooperation With BRICS Nations
+-  الجارديان: إسرائيل لم تعد تتحمل تبعات اغتيال رموز فلسطينية على أراضي دول أجنبية
+-  Roads need to have better protection of the pedestrian, Doctors for Road Safety says
+-  浜口順子、第1子女児を出産
+-  جوجل تحدث متصفح الإنترنت كروم للكمبيوتر المكتبي
+-  Merry Christmas czy Wesołych Świąt? Święta w innych kulturach
+-  Bolj kot izbira "pravih besed" šteje pristna skrb
+-  Michelle (19) uit Geesbrug in Hoogeveen gekroond tot mooiste meid van Drenthe. 'Ik durfde niet eens door de klas te lopen, nu loop ik hier als winnaar over de catwalk'
+-  เหลืออีก 2 ชม.! ผู้ประกันตน-นายจ้าง ทยอยใช้สิทธิเลือกบอร์ด ปกส.
+-  עמית סגל הוא לא יאיר לפיד החדש. הוא יותר מדי חכם בשביל זה
+-  דיווח: טיקטוק מסרבת לאשר פרסומות של מטה משפחות החטופים
