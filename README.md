@@ -1,11 +1,51 @@
 # Latest News
--  Soccerladuma | Official: Man Utd Announce R29.7 Billion Takeover
--  U Ankari održan 'Veliki skup podrške za Gazu'
--  Ronaldo se oglasio nakon viralne snimke s McGregorom
--  Know the cost of DIY
--  Lisieux : les Restos du cœur contraints de diminuer le nombre de repas distribués
--  Falaise : la statue de Guillaume-le-Conquérant, classée au titre des monuments historiques ?
--  Saint-Valery-sur-Somme : à 22 ans, Laurie se lance dans la peinture sur vitres
--  Videoblog: Was war der Schlüssel zum Heimsieg gegen Koblenz?
--  Manchester United 'target' Benjamin Sesko 'open to Premier League transfer' and other rumours
--  Videoblog: Was war der Schlüssel zum Heimsieg gegen Koblenz?
+-  曾是中年文組魯蛇，他如何從Subway店長轉職AI軟體技術長？
+-  勞基法規定「賺錢要分」，老闆不發年終獎金違法嗎？關鍵在「這條法規」
+-  The best gaming chairs you can buy right now
+-  نتنياهو يتعهد بخوض حرب طويلة في قطاع غزة
+-  المستشار عادل فهيم يفتتح مجمع محاكم مجلس الدولة الجديد بالمنوفية
+-  Hanlar Geçidi'nde zincirleme kaza: 17 yaralı!
+-  Бен Ходжес: Запад, а не Украина, потерпели неудачу
+-  Алиев отмечает день рождения в кругу семьи
+-  800 Jahre Krippe – eine franziskanische Tradition
+-  Wigilia u Stana Borysa
+-  Mazzarri in confusione, le pagelle dei quotidiani: "Manovra lenta e pochissime idee"
+-  خوسيلو تميمة حظ ريال مدريد
+-  Neel Nanda, Stand-Up Comedian Who Appeared on ‘Jimmy Kimmel Live,’ Comedy Central, Dies at 32
+-  Schedule for temporary closure of Narayangadh-Muglin road revised
+-  &#039;I feel trapped&#039;: Scores of underage Rohingya girls forced into abusive marriages in Malaysia
+-  رئيس بايرن ميونخ: نسعى للفوز بأكبر عدد من الألقاب في 2024
+-  Dean Elgar announces retirement from international cricket after India series
+-  NEA cuts off power to two more industries
+-  Netanjahu: Izrael produbljuje borbe
+-  مولانا فضل الرحمٰن الیکشن میں اپنے ہی بیٹے کے مدِمقابل آگئے؟
+-  Courier firm exec held for stealing 40 phones in Delhi
+-  Influencer estadounidense salió a comer sushi con su novio, pero olvidó su alergia al pescado y todo terminó mal (VIDEO)
+-  Now, I do not have anything to do with wrestling: Brij Bhushan
+-  لیگی رہنما راناثنااللہ کی گاڑی کو حادثہ
+-  مدرب سيراميكا يكشف موقف قندوسي من مواجهة الأهلي
+-  Hombre condenado a 30 años por abusar sexualmente de sus hijos
+-  УНИКС одержал пятую победу подряд, обыграв «Самару»
+-  Pakistan, Oman hold joint naval drill 'Thamar Al Tayyib 2023'
+-  QB Ryan Tannehill starts, Levis out for Titans with Seahawks on NFC playoff bubble
+-  Rusya: Ukrayna'ya ait 4 Savaş Uçağı Düşürdük
+-  Traffic fatality leads to the closure of El Camino Real in San Mateo
+-  Το είπε ο Σωφρόνης
+-  Rewe: Seniorin kann Einkauf nicht bezahlen – was sie an der Kasse erlebt, ist nicht zu glauben
+-  Kleiner Gasgrill bei Aldi: Enders Brooklyn Next 2 im Deal
+-  احذروا التنمر على مواقع التواصل الاجتماعي| كتب علي ناصر فلاحة
+-  سلمان الفرج بدأ في التواصل مع الاتحاد
+-  کیرون پولارڈ انگلینڈ کے اسسٹنٹ کوچ مقرر ہوگئے
+-  بحضور المحافظ ورئيس الانتقالي.. اجتماع موسع بالضالع يشدد على رفع الجهوزية القتالية استعداداً لأي طارئ.
+-  17-year-old dies 8 days after assault by group of teens in Delhi
+-  Apartment prices in Iran’s Tehran down
+-  Gabi Balint a revenit online ca să anunțe viitoarea echipă a lui Adi Mutu
+-  مصطفى بكري: أبطال القسام يصنعون ملحمة تاريخية
+-  اميركا في عُزلة دوليّة بسبب دعمها للاحتلال
+-  حكومة حرب إقتصادية
+-  Isigny-sur-Mer : quand la magie de Noël crée du lien
+-  Koszmarna Wigilia reprezentanta Polski. Zmarnował karnego w 90. minucie
+-  Авіація ЗСУ показала "клас": які удари окупантам приніс Святвечір
+-  Christmas Eve 2023 pub quiz - test your general knowledge with these 20 questions
+-  Rubens Sambueza confiesa que quería retirarse del futbol con el Club América
+-  В Орле для детей провели мастер-класс по созданию ёлочной композиции
