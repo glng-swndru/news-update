@@ -1,11 +1,11 @@
 # Latest News
--  Ürdün'den Gazze'de kilise operasyonu: Mahsur kalanlara paraşütlü yardım
--  రంగారెడ్డి జిల్లా కలెక్టర్‌ బదిలీ!
--  నా అనుమతి లేకుండా రేవంత్‌ విందుకు వెళ్తారా?
--  Suomen salibandyssa huolestuttavaa yleisökatoa
--  Det er ingen liten ting – en sykepleiers vennlighet
--  Arhiv javnih skupova: Najmasovniji protest posle izbora
--  وزير الخارجية الأسبق: إسرائيل مترنحة هذه الأيام ولا تستطيع التضحية بالسلام المصري
--  ఆదర్శ నియోజకవర్గంగా పులివెందుల
--  Manchester United'ın 4'te 1'i satıldı
--  Predsednik Srbije sazvao sednicu Saveta za nacionalnu bezbednost! Čeka se reakcija nadležnih
+-  Pochettino va tirando la toalla con Chelsea tras fallas ante Wolves: “Somos nuestro peor enemigo”
+-  Liga Élite de Béisbol: Leñadores dejan a los Gallos en el camino
+-  Marseille : un blessé léger et cinq personnes évacuées après une explosion dans un appartement
+-  Guerre Israël-Hamas : «Notre cœur, ce soir, est à Bethléem», dit le pape
+-  Guyane: trois enfants morts, un autre porté disparu après le chavirage d'une pirogue sur le fleuve Maroni
+-  Cinq nouvelles espèces de hérissons à fourrure douce mises au jour
+-  JO 2024 : le comité d'organisation annule des milliers de réservations d'hôtels, les établissements en colère
+-  L'Espagne refuse de participer à la coalition militaire en mer Rouge
+-  Nouvelle tragédie dans la famille Carter, l'aînée Bobbie Jean, est morte à 41 ans
+-  Guerre Hamas-Israël : Sébastien Lecornu le 31 décembre sur le Dixmude, où sont soignés des civils de Gaza
