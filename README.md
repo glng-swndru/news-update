@@ -1,11 +1,11 @@
 # Latest News
--  Плющев предположил, что Ковальчук войдёт в тренерский штаб Жамнова в будущем
--  Четверо жителей Горловки пострадали в результате обстрела ТЦ со стороны ВСУ
--  Lingerie tycoon Michelle Mone says she has been treated like drug lord Pablo Escobar after the bank accounts were frozen by National Crime Agency amid PPE scandal
--  Avengers, è in arrivo un film sulla nuova generazione di eroi ? Gli ultimi rumor fanno sognare i fan
--  Лавров: арабский мир настроен на координацию с РФ по формированию будущего мироустройства
--  Brian Austin Green holds hands with fiancee Sharna Burgess as they grab dinner in LA their son Zane
--  Hatay'da enkazların arasında Noel ayini yapıldı
--  Wild winger Kirill Kaprizov named NHL's No. 1 star of the week
--  2024: desvelan una ‘obsesión’ que acaparará debate en la atomizada oposición
--  Spór o media państwowe. Politycy PiS chcą komisji śledczej
+-  הלחץ עבד: ארה"ב הבטיחה ליווי לספינות וחברת המסחר הימי מארסק תחזור לים האדום
+-  חלק מאוהדי מכבי חיפה קיללו ושרו: "דיא סבע מת"
+-  Slavna Titova baza bila je vojni dragulj: Nakon godina propadanja jedan film promijenio je sve
+-  اسبانيا ترفض المشاركة في التحالف الدولي لحماية الملاحة في البحر الاحمر
+-  Vuçiç: Opozita t’i japë fund grevës së urisë për zgjedhjet
+-  Gazastreifen: Wütende Palästinenser protestieren gegen Hamas
+-  Pedían Q500 mil: la operación del comando antisecuestro que permitió la liberación de una niña de 5 años en Nochebuena
+-  İrfan Kahveci’den çok konuşulacak derbi itirafı: Yapamadım
+-  En video: Maluma armó fiesta en una chiva y cantó vallenato en las calles de Medellín
+-  ভোরের কাগজে সংবাদ প্রকাশ হওয়ার পর শিশু দিয়ার দায়িত্ব নিতে চান সিয়াম
