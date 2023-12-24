@@ -1,11 +1,51 @@
 # Latest News
--  Dem Parti’nin olaylı kongresinde en az 30 gözaltı
--  ‘Scream VII’ director exits film: ‘A dream job that turned into a nightmare’
--  Running back Darius Taylor on returning to the Gophers: ‘I love it here’
--  Galatasaray'da Icardi'nin son halini görenler bakamıyor! Yüzünü direğe çarpan golcü oyuncunun elmacık kemiği kırıldı
--  דגו: "הקבוצה לומדת אותי, אולי אני טיפה יותר משוחרר גם"
--  وكيل وزارة الصحة بدمياط يفاجئ العاملين في الوحدة الصحية بالشعراء
--  Израел: Оваа недела уапсени 200 членови на Хамас
--  Why couples often share high blood pressure, others – cardiologist
--  Chelsee Healey gives birth! Hollyoaks star welcomes second daughter and reveals their very unusual name
--  Жертвами ударов Израиля по лагерю беженцев в Газе стали более 60 человек
+-  A Magyar Tenger a 18.-19. században
+-  Bir kadın devrimi olarak Cumhuriyet -1: Kadınlar vatanı da özgürlükleri de birlikte kazandılar
+-  'Bilgiler ortada Tayyip Bey’e dosyalar ulaştırılmıyor'
+-  ABD Kızıldeniz’de yalnız kaldı
+-  Yeni bir dünya için iş birliği çağrısı
+-  Asgari ücretliler beklentilerini konuştu: İşveren lüksünden kıssın
+-  Aaj Ka Mithun Tarot Card: मिथुन राशि वाले दबाव में फैसले लेने से बचें, मिलेगी कोई जरूरी सूचना
+-  Türkiye ayakta CHP yönetimi PKK’nın yanında
+-  Sutran: Más de 900 inspectores en alerta total por Navidad
+-  Ovo povrće će učiniti čuda za vašu prljavu rernu
+-  Ferenc pápa: Betlehemben a fegyverek zaja ma sem ad helyet a gyermek Jézusnak
+-  تصعيد إسرائيلي وقصف كثيف يوقع عشرات الضحايا في غزة
+-  'May All of Their Souls Rot in Hell': Two Colorado Paramedics Who Injected Elijah McClain with an Overdose of Ketamine Found Guilty In His Death
+-  'May All of Their Souls Rot in Hell': Two Colorado Paramedics Who Injected Elijah McClain with an Overdose of Ketamine Found Guilty In His Death
+-  Cameron Diaz Denies Jamie Foxx Had a Meltdown on Movie Set Nearly Weeks Before Suffering a 'Medical Complication,' 'Really Made Me Angry'
+-  Cameron Diaz Denies Jamie Foxx Had a Meltdown on Movie Set Nearly Weeks Before Suffering a 'Medical Complication,' 'Really Made Me Angry'
+-  Waka Flocka Slammed for Appearing to Promote Donald Trump's Platinum Plan After Endorsing Him for President
+-  Waka Flocka Slammed for Appearing to Promote Donald Trump's Platinum Plan After Endorsing Him for President
+-  Conservative Think Tank Accuses Justice Ketanji Brown Jackson of 'Willfully' Failing to Report Her Husband's Earnings; Clarence Thomas Faced Similar Criticism a Decade Earlier
+-  Conservative Think Tank Accuses Justice Ketanji Brown Jackson of 'Willfully' Failing to Report Her Husband's Earnings; Clarence Thomas Faced Similar Criticism a Decade Earlier
+-  Beyoncé Surprises Fans In Brazil 10 Years After She Was Nearly Dragged Into the Audience There By a Fan
+-  Beyoncé Surprises Fans In Brazil 10 Years After She Was Nearly Dragged Into the Audience There By a Fan
+-  Fue tiroteo en Florida ataque específico contra víctima
+-  Κρήτη: Αγωνία για την 17χρονη που υπέστη αλλεργικό σοκ – Ξεκίνησε η διακοπή καταστολής της
+-  الامارات | محمد بن راشد يهنئ البروفيسور واسيني الأعرج لفوزه بـ «نوابغ العرب» عن فئة الأدب والفنون
+-  الامارات | «مرور العين» تدين 3 متهمين بسبب الضجيج والاستعراض في الطريق العام
+-  الامارات | حمدان بن محمد يعتمد صرف مكافأة أداء للموظفين المدنيين في حكومة دبي بـ 152 مليون درهم
+-  الامارات | شباب حتا ..هواء حتا يأسر قلوب الدرّاجين العالميين
+-  الامارات | 4 أسباب وراء عدم إجراء تعديلات في قائمة المنتخب استعداداً لكأس آسيا
+-  الامارات | «تنمية المجتمع» تعلن إطلاق مسح دخل وإنفاق الأسرة لعام 2024
+-  الامارات | «الناموس»: نحمل رسائل مجتمعية هادفة أكبر من الفوز بالبطولات
+-  Tori Spelling Chats With Mystery Man During Holiday Shopping With Daughter
+-  Derbi dünya basınında gündem oldu! "Hiçbir şey değişmedi"
+-  La alegría de la Navidad llegó a los niños de El Cacao
+-  3800 متقدم للنافذة الإلكترونية الموحّدة
+-  A London stop sign was Banksy’s newest canvas. Now it’s missing.
+-  India won the Test : ఆసీస్‌ను జయించారు
+-  Драмбаєвим цікавляться клуби з Бельгії, Нідерландів та Польщі
+-  Mısır'dan üç aşamalı ateşkes teklifi
+-  "الدفاع المدني" بالرياض يحرر إصبع شخص علق في قطعة معدنية
+-  Forsyth Park statue vandalism
+-  مصر تطالب بوقف إطلاق النار في غزة وتحذر من انفجار بالضفة
+-  新春の「歌会始」入選者決まる 新潟市の高校生など10人
+-  Βασίλης Καρράς: «Έκανε το τσιγάρο του» και έφυγε έχοντας την αγάπη όλης της Ελλάδας
+-  El Reino Unido anunció que enviará un Buque de Guerra a Guyana
+-  Más de 60 muertos en un ataque israelí contra el campo de refugiados de Al Maghazi
+-  Српската полиција приведува лица кои се обиделе насилно да упаднат во зградата на Градското собрание
+-  Papst mahnt in Christmette zu Frieden
+-  Bareilly News: बजट जारी...फिर भी अधर में फंसे अंडरपास, रुक रही एक लाख लोगों की राह
+-  المقاومة تقتل 9 جنود للاحتلال
