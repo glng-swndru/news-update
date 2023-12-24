@@ -1,11 +1,11 @@
 # Latest News
--  En auto a Brasil: las mejores playas, rutas sugeridas y los precios para el verano
--  Bellingham është tashmë futbollisti më i shtrenjtë në planet, së bashku me …
--  אחמד טיבי השווה בין השרשרת של נועה תשבי לקריאה לרצח עם
--  Роспотребнадзор рассказал, какие витамины нужны детям зимой
--  [ŽT] „Prasideda didelės problemos...“ To dar nebuvo. JK žvalgyba skelbia apie invaziją Ukrainoje
--  [ŽT] „Rusija puls 2024-2025 m. žiemą“. Bild gavo bauginančią informaciją
--  [ŽT] Ukrainoje audra. Dingo 1 500 000 000 sviedinių pirkimui
--  ЗША: дрон, які атакаваў танкер каля берагоў Індыі, быў запушчаны з Ірану
--  Suomen talviurheilun tilanne on huolestuttava
--  Кировская область способствует переселению соотечественников из-за рубежа
+-  Sport | INEOS's Ratcliffe agrees deal to buy 25 percent of Man United
+-  Sedes de las carreras sprint de Fórmula 1 para 2024
+-  Donosimo sve božićne epizode omiljenih serija
+-  Saturan el Centro por compras de pánico
+-  وهاب: لا تختبروا اليمنيين!
+-  عام 2024.. تغيرات إيجابية في حياة مواليد 4 أبراج
+-  POŽAR NA VODŽODVCU: Gusti crni dim kulja iz garaže, vatrogasci hitno izašli na teren (VIDEO)
+-  Politics roundtable: Predictions for 2024
+-  వైద్యశాఖలో ముగిసిన విచారణ
+-  నడిరోడ్డులో విద్యుత స్తంభం
