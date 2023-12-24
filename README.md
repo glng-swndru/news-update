@@ -1,51 +1,11 @@
 # Latest News
--  네타냐후 "목표달성까지 전쟁"…바이든 "휴전요구 안해"
--  O Globo plano do reino de Ratanabá
--  6천원대부터 30만원까지…크리스마스 케이크 '양극화'
--  El efecto que provocaría una mayor cosecha en 2024 en el precio de las uvas y los vinos
--  Addict stabs young man in the back
--  ‘He’ll be back’ – Anthony Joshua sends message to Deontay Wilder after rival suffers shock defeat to Joseph Parker
--  เตรียมให้พร้อม 4 ข้อ ก่อนเดินทางไกล หยุดยาวปีใหม่ 2567
--  Actor Bonda Mani: திரையுலகில் தொடரும் சோகம்.. பிரபல காமெடி நடிகர் போண்டா மணி காலமானார் - ரசிகர்கள் அதிர்ச்சி
--  – مديرية أمن مسلاتة تعلن العثور على أسلحة وذخائر كانت مخبأة داخل مغارة.
--  En vivo: Javier Milei se sienta en la mesa de Mirtha Legrand junto a Patricia Bullrich
--  العليا للحج والعمرة: 200 ألف مصري تحايلوا على السلطات السعودية العام الماضي
--  FKA Twigs Dragged by Taylor Swift Fans Over Kanye 'Famous' Bed Reenactment
--  松井裕樹 パドレスと5年契約合意
--  “한동훈씨, 닥치고 정치혁명입니다”［노원명 에세이］
--  Kvinde med to livmodere føder to babyer på to forskellige dage
--  Kvinde med to livmodere føder to babyer på to forskellige dage
--  한파 속 공사장 '가림막 사고' 사각지대…"덮칠까 불안"
--  Wild coach John Hynes on when to fight: ‘Sometimes it’s (about) time and score’
--  यस्तो छ आजको मौसम पूर्वानुमान
--  فيتوريا يكشف موقفه من ضم الشحات وإمام لمعسكر منتخب مصر القادم
--  Two-vehicle crash causes lane closure on I-65
--  Steinmeier: Mut und Miteinander in Demokratie gute Ratgeber
--  نشرة منتصف الليل| تطور جديد بشأن تخفيف أحمال الكهرباء.. والأرصاد تعلن طقس الساعات المقبلة
--  الجفاف قادم لا محالة.. عضو وفد التفاوض يحذر من أخطر مشاكل السد الإثيوبي
--  المجلس الأعلى للجامعات يعلن عن منصة رقمية لتسجيل الأنشطة الطلابية
--  عضو وفد التفاوض المصري: السد الإثيوبي كان أمرًا واقعًا عندما تولي الرئيس السيسي حكم البلاد
--  اطمئنوا.. عباس شراقي: الوضع الجيولوجي لا يسمح بتخزين المياه وراء سد النهضة
--  المقاومة تتصدى لقوة صهيونية وتوقع عددًا منهم بين قتيل وجريح قرب جباليا
--  Banjir gelombang ketiga bermula di Terengganu, 102 mangsa dipindahkan
--  Meriahkan Liburan dengan Diskon hingga Hadiah
--  Marina Calabró destruyó a Pamela David con una filosa advertencia y adelantó una nueva baja en Desayuno Americano
--  Saskatoon organizations upping preparations at warming centres
--  柯文哲岡山造勢喊衝破4萬人 四叉貓1張照片狂打臉
--  Артета: Получи се невероятен мач
--  JPost: армия Израиля ликвидировала ответственного за поставки оружия члена ХАМАС
--  KB케피탈, 취약계층 아동에게 도시락 후원금 지원
--  [인터뷰] 홍문표 의원 “남북통일, 농어업 축산으로 징검다리 역할 가능”
--  "Сините" момичета и италиански момчета спечелиха турнира за таланти на "Левски"
--  ราคาน้ำมันวันนี้ 24 ธ.ค. อัปเดตราคา ‘เบนซิน-ดีเซล-แก๊สโซฮอล์’ ล่าสุดที่นี่
--  Pirotecnia en Guatemala: las recomendaciones de Bomberos Voluntarios para prevenir accidentes y quemaduras
--  İzmit Sanayi'de yıllardır özgün makinalar tasarlayıp üretiyor
--  Kaoru Mitoma updates Brighton and Japan fans on injury
--  كيف تقي نفسك من الإصابة بالخرف؟
--  Dangerous conditions halt BBL clash
--  Dangerous conditions halt BBL clash
--  Dangerous conditions halt BBL clash
--  Dangerous conditions halt BBL clash
--  Lisandro Meza, 'no tengo palabras': así despiden al legendario artista colombiano
--  느려진 페북 제재했던 방통위, 1·2·3심 내리 ‘패소’ 이유는
--  Джошуа — о победе над Валлином: «Я боец, у которого есть особый дар»
+-  Quality dubbing takes centre stage
+-  Rani Mukerji: My character isn’t an action heroine kicking 10 villains
+-  [스한:BOX] '서울의 봄' 개봉 33일 만에 천만 돌파…올해 두 번째[공식]
+-  제니, 레이블 ‘오드 아틀리에’ 설립…“새로움 창작하는 공간”
+-  आज दुई संसदीय समितिको बैठक, यस्ता छन् एजेन्डा
+-  NZ boxer Parker shocks Wilder in unanimous decision
+-  NZ boxer Parker shocks Wilder in unanimous decision
+-  وفاة 16 شخصا على الأقل في حادث حافلة في نيكاراجوا
+-  Sudoku difícil: 24 de diciembre de 2023
+-  Sudoku medio: 24 de diciembre de 2023
