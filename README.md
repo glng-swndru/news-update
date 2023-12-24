@@ -1,51 +1,51 @@
 # Latest News
--  Türkiye tek yürek! Şehitlerimizi uğurluyoruz
--  Kış aylarının vazgeçilmezi kestanenin kilosu dudak uçuklattı
--  Bu derbi çok konuşulacak! 65 yılın en güçlüsü...
--  AK Parti'den memur zammı açıklaması
--  Tarihi handaki dükkan 5. kuşakla devam ediyor
--  Pittsburgh pone fin a su racha perdedora
--  Cannabis para uso recreativo aún no prende; se intenta regular desde hace 5 años
--  Posición 8 | Cristiano Ronaldo se quedó con la Champions árabe
--  رئيس شتوتجارت متفائل باستمرار الهداف الغيني سيرهو جيراسي
--  Quem é Rafael Borré, atacante disputado por Internacional e Atlético-MG
--  Entenda o que levou o Palmeiras a tentar 'chapéu' no São Paulo por Caio Paulista
--  Shillong Teer Result TODAY 24.12.2023 First And Second Round Lottery Result
--  الأقصر تتجمل استعدادا للكريسماس ورأس السنة
--  Houthi attack: Navy denies US claim, says MV SAIBABA tank not India-flagged
--  Prabhas starrer `Salaar` creates havoc, earns a total of 295.7 crore in two days
--  ‘아나운서 부당해고’ 판결에도 근로계약 대신 프로 없애버린 방송사
--  Метеоролог Старков предупредил о высокой лавинной опасности в горах Сочи
--  Konflik Palestin-Israel: Protes gesa boikot jenama pro-Israel di Oxford Street
--  Longer prayers, Top Gun and lots of chanting: How the monks of Pluscarden Abbey spend Christmas and New Year
--  صحيفة عبرية: إسرائيل بدأت بطرد موظفي الأمم المتحدة
--  وصفة المليادير الأميركي مارك كوبان إذا أردت أن تصبح مليونيراً
--  اللي بنوي على حرق البيادر بموت قبل الحصيدة
--  وفاة يسار ابراهيم الحباشنة
--  Verhuizing consultatiebureaus Breda leidt tot stress: ‘Gaan ouders niet afhaken?’
--  زين كاش تجهّز طرود غذائية لأهالي قِطاع غزّة بقيمة 25,000 دينار
--  BRIEVEN | Waarom wel voedselbos in Breda-Zuid en niet in Markdal?
--  ABD basını Netanyahu'nun Lübnan'ı vurmasını, Biden'ın engellediğini iddia etti
--  Lorik Cana: Derbiyi Galatasaray 2-1 kazanacak
--  Fenerbahçe-Galatasaray derbisi kapalı gişe! Taraftar stada akın edecek
--  Arnavutköy'de feci ölüm: İşçi metrelerce yüksekten beton silosuna düştü
--  Sebastian Szymanski derbi saatini bekliyor
--  Antakya'daki fabrika yangınına itfaiyenin müdahalesi sürüyor
--  Çorum'da ahşap ev küle döndü: 1 ölü
--  Novo Volkswagen Golf 2025 tem teaser revelado pela marca
--  고피자, 태국 방콕 수쿰빗에 1호 매장 열어…7개국 진출
--  الشهيد إبراهيم أبو نجا.. قائد كتائب القسام الذي أعاد تدوير أسلحة الاحتلال واستهدافهم بها
--  الكشف عن موقف الوقت الإضافي مباريات كأس سوبر الأبطال
--  Livet efter branden: ”Vågar inte släppa fram känslorna”
--  Here are Eurogamer's favourite games of 2023
--  Zum Lesen und Vorlesen: Endlich fröhliche Gesichter: Eine Weihnachtsgeschichte aus dem Saale-Orla-Kreis
--  Weihnachtswort: Weihnachtswort der Superintendentin des Kirchenkreises
--  Meen January Rashifal 2024: मीन राशि के लिए शुभता और सौभाग्य लेकर आएगा साल का पहला महीना, जानें जनवरी का मासिक राशिफल
--  Betlehemsko lučko so nesli na Lisco
--  Jahresrückblick: Rückblick 2023 Gera: Verborgenes Bild kommt ans Licht
--  Mercato - PSG : Le coup de théâtre est confirmé
--  Patriots vs. Broncos: How to watch, game time, TV schedule, live stream, radio and more
--  النائب محمد إسماعيل: الحوار الوطني لعب دورا كبيرا في تنمية الحياة السياسية
--  Kapustnica bez mäsa či čítanie knihy. Politici trávia Vianoce prevažne tradične, čas venujú blízkym a rodine
--  Isplati li se u 2024. ulagati u kriptovalute?
--  Ansturm auf die Rente mit 63 – Rentenkasse vor dem Kollaps?
+-  Einbrecher in Gaststätte in Sailauf
+-  Peugeot in Schlangenlinien auf der A3 bei Bessenbach
+-  Seat auf Parkplatz in Elsenfeld-Rück beschädigt
+-  ד"ר ענת בונשטיין מונתה לשותפה בקרן Mobilion Ventures
+-  Christmas 2023: Understanding the significance of the midnight mass
+-  رابط الاستعلام عن الدعم السكني وشروط الاستحقاق 1445
+-  Anil Kapoor Birthday 2023: Kareena Kapoor wishes ‘Absolute Best’ on his b`day
+-  5 طرق لزيادة متابعيك على منصة "إكس" من 0 إلى 10 آلاف
+-  הסרט התיעודי #NOVA הוא הדוקו הנצפה ביותר בתולדות yes
+-  הצפון קיבל תקציב זעום וגם אותו ייאלץ לחלוק עם יו"ש - סטרוק תקבע את הקריטריונים
+-  בית"ר ירושלים אירחה את איתי רגב ששוחרר מהשבי: "לפני הכדורגל"
+-  Eric Gordon frustré par son implication dans l’attaque des Suns
+-  “Autorit t’i bëhet testi i drogës”, gazetari: Përplasja e djalit të gjyqtares së Berishës s’është aksident i thjeshtë
+-  Indonezija: U eksploziji u talionici nikla poginulo 13 radnika, deseci ozlijeđeni
+-  Adres: Düzce! Telefonda tartıştığı dünürünün dükkanını basıp, 5 el ateş açtı
+-  Selçuklu’da 2023 sağlık hizmetleri yılı oldu
+-  Meram Belediyespor taekwondocuları kuşak terfi heyecanı yaşadı
+-  SIRF MUHALEFET OLSUN DİYE Mİ?..
+-  Rize'de fırtına: Çatı uçtu, pencere camları kırıldı
+-  Pirmas toks pasaulyje. Naujasis lustas nuties kelią 6G ryšiui
+-  Neįtikėtina! Įsiutęs Iranas iškvietė Rusiją „ant kilimėlio“. Kas vyksta
+-  [ŽT] P. Korėja ruošiasi košmarui. Skelbiama branduolinė ataka ir JAV armada
+-  [ŽT] „4 kryptys, 4000...“ Pasienyje tikra audra. Kas vyksta
+-  Taksici, korsan taksiciyi tehdit edip, kamera kaydı aldı
+-  مارچ شرکا ایجنڈے پر ہیں، بسوں سے اتار کر لوگوں کو قتل کیا گیا، جان اچکزئی
+-  Video/ Parker dominon një Wilder në rrugën e perëndimit, habit amerikani: “Bëra mjaft për të fituar”
+-  "IMAMO MALO DRUGAČIJI SLUČAJ NEGO 1996." Klačar: Poništavanje izbora moguće samo pod jednim uslovom
+-  Pleumeur-Bodou. Un pass annuel d'entrée pour le parc du radôme.
+-  Закир Гасанов соболезнует Гюлеру
+-  МО РФ заявило о сбитии трех Су-27 и одного Су-24 воздушных сил Украины
+-  Erős havazás miatt 18 ezer háztartás maradt áram nélkül Szlovákiában
+-  Sieg gegen Hamburg: Bonner Telekom Baskets stoppen nach Niederlagen-Serie den freien Fall
+-  La solidaridad, el mejor ritmo para la zumba
+-  '화끈한 감정표출' 김연경 "감추지말고 표현하면 좋겠다"[삼산 인터뷰]
+-  Les pompiers découvrent par hasard le corps d'un jeune homme dans une malle : un couple écroué, la victime non identifiée
+-  Праваслаўныя ўкраінцы ўпершыню будуць сьвяткаваць Каляды 25 сьнежня
+-  МО РФ заявило об уничтожении пусковы установок NASAMS и Crotale-NG на аэродроме
+-  – وزير الدفاع الإيطالي يؤكد أن الأزمة الأوكرانية يجب حلها عبر الوسائل السياسية
+-  Liverpool player ratings as Ibrahima Konate and three others excellent vs Arsenal
+-  Sean Dyche hits out at VAR over 'alarming' Everton decision during Tottenham defeat
+-  Tottenham Hotspur vs Everton - highlights and reaction
+-  West Ham chief makes Jarrod Bowen Liverpool claim after Jurgen Klopp comments
+-  William Saliba makes refreshingly honest Liverpool penalty admission after Arsenal controversy
+-  Bukayo Saka apologises to Kostas Tsimikas after serious Liverpool injury
+-  لمدة 4 أيام.. انطلاق حملة للتطعيم ضد مرض شلل الأطفال بالإسماعيلية
+-  Morbihan : découvertes récemment, les peintures murales de cette chapelle sont très anciennes
+-  Les anciens du lycée Louise Michel de Gisors se sont retrouvés
+-  Hardricourt : relève de l'aviron français, Antoine Lefebvre garde l'espoir d'être aux JO de Paris
+-  Déguisé en Père Noël pour passé "inaperçu", un policier infiltre un quartier et interpelle des dealers de drogue
+-  ABD'de yaşayanların çoğunun tadını bile bilmediği meyve: Frenk üzümü ve ilginç hikayesi
