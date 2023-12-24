@@ -1,51 +1,51 @@
 # Latest News
--  롯데리아, 앱 ‘롯데잇츠’ 통해 한우불고기 버거 세트 … 최대 50% 할인
--  सर्वोच्चका मुख्य रजिष्ट्रार र रजिष्ट्रार उच्च अदालतका न्यायाधीशमा सिफारिस
--  Envisioned rules revision to reduce number of capital gains tax payers by 70%
--  Yoon's approval rating inches up to 38.8%: poll
--  Mikael Granlundin tehovire jatkuu – Aleksander Barkov loisti finaaliuusinnassa
--  Artist's painterly ode to childhood memories
--  Fondazzjoni Sebħ asks people to spare a thought for domestic violence victims during holidays
--  Ram Mandir inauguration: क्या भगवान राम दिलाएंगे बीजेपी को 50% वोट ?
--  Elindult a felvételi, jön a pedagógus béremelés – ezek voltak a hét legfontosabb történései
--  EPL: Ten Hag lists six Man Utd players he’s expecting goals from
--  HSBC Malta Foundation’s Christmas initiative supports over 30 NGOs
--  בקרית שמואל יחלקו כבוד אחרון ללוחם שנפל
--  동학혁명을 주도했던 인물들이 나고 자란 곳
--  Da li ste počeli sa pisanjem novogodišnjih odluka: Izdvajamo jedan od hotela koji se mora naći na vašoj listi
--  Ular sawa kekenyangan telan ayam ditangkap
--  VIDEO: साउथ अफ्रीका ने 6 साल पहले जिससे कर लिया था किनारा, भारत के खिलाफ टेस्ट सीरीज से पहले अब वही बना सहारा!
--  Νέες επιθέσεις εναντίον πλοίων στην Ερυθρά Θάλασσα και στα ανοικτά της Ινδίας
--  عاجل.. بدء سريان توطين مهن المبيعات والمشتريات وإدارة المشاريع
--  Religious quotes and news – December 24, 2023
--  寒流低溫與水氣加持 南投仁愛、國姓梅花已開3、4成
--  Na Marjanu će se i ovoga Badnjaka održati najranija ponoćka na svijetu. Ako ne stignete, bez brige, tu je raspored misa
--  Cutremur de magnitudine 4 în Vrancea
--  Джошуа технічним нокаутом переміг Валліна в Саудівській Аравії
--  KPU Diminta Buka Data Riwayat Hidup Caleg di Pemilu 2024
--  Forecasting fashion trends for 2024
--  Sandeep Reddy Vanga reveals Parineeti`s reaction to being let go from `Animal`
--  Uttar Pradesh News । राज्यपाल Anandiben Patel के दौरे में लगाई मृत कर्मचारी की ड्यूटी, लिपिक निलंबित
--  Blagdansko čudo: žena s dvostrukom maternicom rodila dva puta u dva dana nakon 20 sati trudova
--  Jammu Kashmir के बारामूला में आतंकियों की कायराना हरकत, नमाज पढ़ने के दौरान Retired SSP को गोली मार कर की हत्या
--  В России резко вырос дефицит кадров
--  Kerala News । तिरुवनंतपुरम में हिंसा, कांग्रेस नेताओं के खिलाफ पुलिस ने दर्ज किया मामला
--  Cristiano Ronaldo podziwiał wieczór bokserski w Rijadzie, zwanym „Dniem Rozrachunku” z udziałem Joshuy, Wildera, Parkera, Dubois i Biwoła
--  BREAKING । WFI को लेकर खेल मंत्रालय का बड़ा फैसला, नया कुश्ती संघ किया निलंबित
--  Jeziva noć u Beogradu, ljudi su skakali u vodu: Potonuo splav, svemu prethodio incident
--  पहलवानों के ‘दंगल’ के बीच सरकार ने WFI को ही कर दिया सस्पेंड, ब्रजभूषण के प्रभाव में काम करना बड़ी वजह
--  Soccerladuma | Ouch! Liverpool Star Hospitalised After Colliding With Klopp
--  “الإعلامي الحكومي” بغزة: ارتفاع عدد الصحفيين القتلى إلى 100
--  ทบ.ลงโทษ "สิบเอก" บุกบ้านทหารหญิงหวังล่วงละเมิด
--  Ekşi Sözlük'te kahraman şehitlere hakaret ettiler: 'Kurtulalım sizden'
--  BILA JE LEPA KAO LUTKA, A ONDA JU JE BOLEST IZDEFORMISALA: Ceo život su joj se RUGALI, a njena sudbina je TRAGIČNA (VIDEO)
--  Il Roma apre con il ko del Napoli a Roma: "Natale all'inferno". Nel mirino anche gli arbitri
--  होम लोन घोटालाः पूर्व विधायक अंतरसिंह दरबार सहित आरोपियों को एक साल की सजा, अर्थदंड भी लगाया
--  Weather News: कोहरे की सफेद चादर से ढका दमोह शहर, सड़क पर लाइट जलाकर रेंगते नजर आए वाहन
--  "Σφυρί" για οικόπεδο 4,5 στρεμμάτων στον Ωρωπό
--  Chhindwara: अपने खिलाफ भ्रामक पोस्ट देखकर आगबबूला हुए भाजपा जिला अध्यक्ष, पूर्व कैबिनेट मंत्री पर लागाए आरोप
--  MP Politics: जीतू पटवारी ने विभागों से मांगी अपने काम की रिपोर्ट, लगातार चार दिन तक करेंगे संगठन की समीक्षा
--  MP News: कटनी पहुंचे पूर्व सीएम शिवराज सिंह चौहान, कहा- मोहन यादव के नेतृत्व में MP छुएगा विकास की नई उंचाई
--  Трассы горных курортов Сочи закрыли в связи с непогодой
--  ‘നേര്’ വൻ വിജയത്തിലേക്ക്, വിജയാഘോഷത്തിൻറെ വീഡിയോ
--  위메이드, 왐포아 디지털과 1억 달러 규모 웹3 펀드 조성 위한 파트너십
+-  ספורט וקמפינג: הרשת שיוצאת במבצעי חורף
+-  הפועל פתח תקוה מודאגת מהנאיביות, שיבלי או פודגוראנו מועמדים
+-  מל"ט ששוגר מאיראן פגע בספינה עם "קשרים לישראל" לחופי הודו
+-  Rusiya-Ərəb əməkdaşlığı İranı qəzəbləndirdi: Vəkili nazirliyə çağırdılar
+-  Безплатно паркиране в "синя зона" в Пловдив
+-  Внимавайте в моловете!
+-  VIDEO LaLiga: Atletico Madrid, pe podium după victoria cu Sevilla
+-  성시경과 친구들 백지영→싸이, 특별한 이브 밤 선사
+-  เจนนี่ BLACKPINK คอนเฟิร์ม! ขึ้นแท่น CEO เปิดค่ายตัวเอง ODD ATELIER
+-  ก่อไฟปรุงอาหารลุกลามไหม้บ้านทั้งหลัง นอภ.แม่อาย นำทีมลงพื้นที่ให้กำลังใจ
+-  Hall’s Collision Review – 12.23.23
+-  الجيش الإسرائيلي يعلن مقتل 8 من ضباطه وجنوده في المعارك الدائرة بقطاع غزة
+-  Rivers Governor, Fubara Pays 27 Lawmakers Nov, Dec Entitlements
+-  ശൈത്യകാലത്തിന്റെ വരവറിയിച്ച് 'ഫ്ലെമിംഗോ'കൾ ബഹ്‌റൈനിൽ എത്തി
+-  RJ Luis Jr.’s return could make St. John’s ‘very scary’ with added dynamic
+-  Whatever happened to Jason Smith? Former Home and Away star quits acting to pursue new industry job after welcoming first child with partner
+-  ‘It Will Be Disastrous If You Fail To Probe Buhari’ – Former Northern Governor Tells Tinubu
+-  بھارتی پروفیسر تقریب سے خطاب کے دوران اسٹیج پر ہی چل بسے
+-  Σε εορταστικούς ρυθμούς η αγορά – Εμπορικά και σούπερ μάρκετ ανοιχτά από τις 11:00 έως τις 18:00
+-  Knarkräder i Sri Lanka: 15 000 gripna
+-  'I totally understand': Alan Shearer and Ian Wright react to Tottenham-Everton controversy
+-  Blagoje je inženjer po struci, inovator po opredjeljenju, pisac iz...
+-  Vigilia di Natale 2023: supermercati e negozi aperti o chiusi oggi, 24 dicembre
+-  EFCC Indicts Buhari’s Minister, Contractor In N37 Billion Fraud
+-  Бостън вкара 145 на ЛА Клипърс
+-  حماس تدعو إلى تحقيق دولي في تنفيذ إسرائيل إعدامات ميدانية بحق مدنيين في غزة
+-  ‘It’s Atiku’s Personal Opinion, Not Officially Coming From The Party’ – PDP Chieftain Clarifies Plot To Displace Tinubu’s Govt
+-  阿邦佐哈里:体现多元团结 砂拉越人民共庆圣诞节
+-  'A ray of hope has come alive': Vinesh Phogat gives initial reaction on WFI body's suspension
+-  Dallas vände mot Nashville – under matchens sista 15 sekunder
+-  สวนนงนุชพัทยา นำช้างแสนรู้สร้างสีสันวันคริสต์มาส
+-  Bakan Özhaseki'den kentsel dönüşüm açıklaması: Ülkemizin yapı stokunun çoğu riskli!
+-  Popular Nollywood Actor Reportedly Shot By Ogun Police Officer, Battles For Life
+-  รฟม. แจงเหตุ ‘เหล็กเส้นร่วง’ ในพื้นที่ก่อสร้างสถานีวงเวียนใหญ่ ‘สายสีม่วง’ ดับ 1 ราย
+-  Weghorst barstte in huilen uit: 'Ik heb veel water bij de wijn gedaan'
+-  Putin privately signaled he's open to a cease-fire in Ukraine. But Western officials remain skeptical, NYT reported
+-  شكوى جنائية ضد 4185 جنديا من أصول فرنسية في الجيش الإسرائيلي
+-  Kronologi Tungku Smelter Morowali Meledak Milik PT ITSS
+-  Kickoff | Arsenal star makes big penalty admission against Liverpool
+-  이지혜, 볼륨감 넘치는 비키니 자태…군살 제로 몸매
+-  Какие праздники отмечают 25 декабря
+-  India Poised for Increased FDI Inflows in 2024; Remains a Premier Investment Hub
+-  What Utah thought of in-helmet communication system in Las Vegas Bowl
+-  Хуситы атакуют, американцы реагируют
+-  Началась выдача открепительных удостоверений
+-  Ryan O'Neal buried beside his longtime love Farrah Fawcett in intimate funeral
+-  Мокрый снег и дождь прогнозируют в Ростове 24 декабря
+-  Trabzon'dan uyardı! Türkiye’nin kırılmayacak hiçbir yeri yoktur
+-  FHN əhaliyə müraciət etdi
+-  Bļugeram vēl divas piespēles, ''Canucks'' tiek pie pārliecinošas uzvaras pret ''Sharks''
