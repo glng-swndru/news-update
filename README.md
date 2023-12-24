@@ -1,51 +1,51 @@
 # Latest News
--  Adalet Bakanlığı Sınavları tamamlandı! Sorular ve cevap anahtarı yayında
--  Sneh v Malých Karpatoch sa topí takým rýchlym tempom, akým napadol: V pondelok už nebude
--  Rakúsko zadržalo osoby podozrivé z islamizmu, posilňuje ochranu chrámov a trhov
--  Na strednom Slovensku je bez elektriny naďalej vyše 13-tisíc odberných miest
--  Aj umelé stromčeky si zaslúžia údržbu: Pár jednoduchých trikov, ako ich vyčistiť a predĺžiť im životnosť!
--  PRIZNANIE mamy z filmu Sám doma vás odrovná: Preboha! Ono sa to fakt stalo
--  «Нефтчи» попрощался с главным тренером Адрианом Муту
--  В Британии заявили, что Запад не может «проиграть войну России против Украины»
--  Blake Shelton Explains Why He Won’t Spend New Year’s Eve With Gwen Stefani in 2023
--  Astell & Kern A&ultima SP3000 review: a high-end hi-res digital audio player
--  Lo que debes saber de las bebidas vegetales, una alternativa sana a la leche
--  Samsung Galaxy Ring release date predictions: When do we think we'll see it?
--  Kolege profesora koji se sukobio s učenikom poslali pismo javnosti: Imamo potrebu reći neke stvari
--  Un vida repartiendo ilusión entre los niños y niñas ingresados
--  Más de 25 años poniendo la banda sonora al Olentzero en el Hospital de Basurto de Bilbao
--  Aparatoso accidente coche-moto en Tenerife
--  مباغتة أوكار للرذيلة في الكويت.. وقرار موجع بشأن عشرات الموقوفين
--  "انظر في وجه محدثك ولا تفرض رأيك" .. أبرز 10 نصائح لاجتياز مقابلات العمل بنجاح
--  برنامج ريف يوضح القطاعات المشمولة بالدعم في المنطقة الشرقية
--  المسجد النبوي يستقبل أكثر من 5 ملايين مصلٍّ وزائرٍ خلال الأسبوع الأول من جمادى الثاني
--  2024 could be the year the PC finally dumps x86 for Arm, all thanks to Windows 12 and Qualcomm's new chip
--  “Every guitarist should understand the drums. It's important to know where the kick and snare should land to complement your riffs.” Dave Grohl on the making of the Foo Fighters' There Is Nothing Left To Lose
--  Anna joulun lahjapapereille roskiksen sijasta uusi elämä – tässä vinkit
--  I Ängelholm kommer tomten på vattenskoter
--  Muhaimin Iskandar Ungkap Alasan Dulu Dukung IKN
--  Man döms för tolv olika brott
--  From ‘Doctor Who’ To ‘The Count Of Monte Cristo’: Deadline’s 15 Buzzy International TV Dramas To Look Out For In 2024
--  Dari Lesti Kejora hingga Nagita Slavina Hadiri Perayaan Ulang Tahun MS Glow
--  Han bjuder hemlösa på mat och julklapp
--  PUTIN IMA POBEDU U DŽEPU Rusija neće napustiti Krim, Donjeck i Lugansk, strategija EU ne funkcioniše
--  DOLAZAK U PARTIZAN SVE IZVESNIJI Džejlin Smit promenio agenta
--  ‘American Fiction’: How Cord Jefferson Took on Hollywood and Won
--  The Week In Gaming Opinions, From 2023's Best To 2024's Most Anticipated
--  Kourtney Kardashian will ihrem After-Baby-Body nur Gutes tun
--  What’s Popular On Streaming Now
--  Son dakika... Fenerbahçe-Galatasaray derbisinin ilk 11'leri belli oldu!
--  PERIGO: NATAL COM TEMPORAIS E VENTANIA NA REGIÃO SUL
--  باحثون يطورون لقاحاً لخفض الكولسترول
--  Вучиќ: Тешко дека Ана Брнабиќ повторно ќе биде премиерка
--  The horror! Jim Gaffigan on horrible kids' movies
--  Tahun Baru, Pertunjukan Air Mancur Menari Tirta Cerita TMII Bakal Ditambah
--  News24 | Fuel tanker explodes on N2 in Durban, 5 people killed in separate crash
--  Sickening 'worst rugby tackle of 2023' watched by 4.7 million viewers
--  Kuningatar Silvia muistelee suhteensa alkuaikoja: Piiloutui puskaan
--  Íñigo Llopis y Beatriz Lérida, vencedores en la Liga Axa de Natación paralímpica
--  Testing negative but still feeling sick? Doctors explain why
--  Shocking Video: నల్ల పులిని చూశారా? ఒడిశా అడవుల్లో అరుదైన పులులు.. వీడియో వైరల్!
--  Israel is losing ground at the lowest place on earth
--  „30 000 000 000. D linija.“ Didžiulis smūgis Maskvai. Skelbiama, ką daro Kinija
--  [ŽT] „Maskva degs.“ Neįtikėtini įvykiai (Video)
+-  İsmail Kartal'dan derbi öncesi konuştu! Fred açıklaması
+-  Adana Demirspor galibiyet özlemine son verdi!
+-  Dunki showcases tremendous growth as a feel-good film! Family audiences are celebrating the holiday season with the film!
+-  MEGA EXCLUSIVE: Ranbir Kapoor, Alia Bhatt, Prabhas, Yash, Tiger Shroff, Ajay Devgn, Sunny Deol, Ayushmann Khurrana invited to Ayodhya Ram Temple inauguration ceremony
+-  Kilder: Tilbageholdte indere i Frankrig kan rejse videre mandag
+-  Kilder: Tilbageholdte indere i Frankrig kan rejse videre mandag
+-  Kickoff | Chelsea handed eighth Premier League loss
+-  Kronprinsparret ankommer hånd i hånd til julegudstjeneste i Aarhus
+-  Kronprinsparret ankommer hånd i hånd til julegudstjeneste i Aarhus
+-  Cambiaso salta la Roma, multata la Juve: le decisioni del giudice sportivo
+-  Serie A, top 11 del 17° turno: brilla una stella Juve, ci sono Bisseck-Lukaku
+-  Lemina-Doherty, Chelsea ko: i Wolves agganciano Pochettino in classifica
+-  Christmas 2023: Wishes and quotes to share with friends and family
+-  Apoyan tránsitos a Santa Bombero
+-  Veselé Vánoce a šťastný nový rok přejeme čtenářům zpravodajství AC24.cz
+-  U Nikšiću održani "Dani atletike"
+-  President Abinader inaugurates Freddy Beras Goico Avenue in Santo Domingo East, worth 700 million pesos
+-  최동석, 박지윤과 이혼 후 전한 새해 다짐 "인생 한 번, 더 잘 살 거야"
+-  Trei presupuși islamiști aretați la Viena în perioada târgului de Crăciun. Poliția: "Nu există o ameninţare imediată de atac"
+-  Военные из США сообщили о полете Санта-Клауса над Россией
+-  Ex-Steelers player says he 'did not intend to lessen my white football brothers'
+-  ¿Por qué la comida no tiene el mismo sabor fuera de tu país?
+-  De jardinero a ganador y millonario de Yo me llamo, la historia de Juan Carlos Parra
+-  Entrenamiento en casa: los ejercicios que deberías hacer si quieres aumentar tus pechos
+-  Naoružajte se: Rusi prete
+-  ¿Cómo encontró el Girona a Dovbyk, el ‘nueve’ que asombra con 11 goles?
+-  LIVE: Tadic en Ziyech clashen in Turkse topper met hoog (oud) Eredivisie-gehalte
+-  «Праздник к нам приходит»: как жители Гродно украшают свои авто к Новому году
+-  Los cinco futbolistas de Boca que no podrían realizar la pretemporada completa: el motivo
+-  Müdafiə Nazirliyi həftəlik icmalı təqdim etdi
+-  [민주당 "검찰, 특활비로 스벅·아웃백 이용"…대검 "목적·용도 맞게 사용" 반박
+-  [부동산PF부터 홍콩ELS까지…내년 금융시장 ‘퍼펙트스톰’ 위기
+-  [강호동 율곡농협 조합장 “新농협 100년, 농업인 중심 지속가능한 사업 구현해야”
+-  [국세청, 올해 근로·자녀장려금 5.2조원 지급…작년보다 2200억원↑
+-  [“멋져지려고 ‘이것’까지 주사기 넣고 주입한다?” 英틱톡 난리…의사들 “안전성 미확인”
+-  [‘울산시장 선거개입’ 1심 실형 황운하 “성탄절, 박해받는 사람들 용기 내길”
+-  [‘전기차 수요 감소’에 중고 시장도 타격…신형 전기차가 반등의 열쇠로? [여車저車]
+-  [“이걸 믿어도 돼?” 총알 막은 아이폰…시끌벅적 사진 한장
+-  [[리얼푸드] ‘어드벤트 캘린더’ 미국의 인기 연말 마케팅
+-  [[리얼푸드]미국의 틈새 시장 뚫은 낙타 음료
+-  [[리얼푸드] ‘상품 전략에도 MBTI’, 중국의 새로운 마케팅
+-  [[리얼푸드] ‘가격 비싸도...’ 맥주 매력에 빠진 인도네시아
+-  [[리얼푸드] '에어프라이어 가장 많이 구입' 프랑스의 블랙 프라이데이
+-  [[리얼푸드] 쌀 간식 좋아하는 라오스, 한국 떡 관심 높아져
+-  [[리얼푸드] ‘프리미엄 라거 인기’ 필리핀 맥주 시장
+-  [[리얼푸드] 일본 절임류 시장에서 확대되는 김치
+-  [대통령실, '김건희 특검법'에 “총선 겨냥 흠집내기 의도”
+-  [12·12 군사 반란 ‘서울의 봄’ 개봉 33일 만에 “1000만 관객 돌파”
+-  [이태원클라쓰서 봤던 그건물…3500만원 나와 4.5억에 팔렸다 [부동산360]
+-  [“고민해서 선물했더니” 받는 족족 당근마켓 ‘되팔기’…크리스마스 선물 쏟아진다?
