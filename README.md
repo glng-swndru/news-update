@@ -1,11 +1,51 @@
 # Latest News
--  [ŽT] Netikėta žinia. Estija skelbia, ką darys su ukrainiečiais
--  „Atskleidė jau patvirtintus planus.“ Kuri valstybė Putino sąraše sekanti
--  Mercato - FC Nantes : Il planifie son transfert, sa destination dévoilée
--  Şehit babası: Demirtaş ve Kavala'ya özgürlük isteyenlere hakkımı helal etmiyorum
--  AB'den 'Gazze' uyarısı
--  İsmail Yüksek: Liderliğimiz devam ediyor
--  Türkiye kahraman şehitlerini uğurladı...
--  Vučić o protestima u Beogradu: Nikakva revolucija nije u toku
--  Mitos de Natal: Papai Noel não é inimigo de Jesus e nem foi inventado pela Coca-Cola
--  Memes. Ya se reportan víctimas del apagón
+-  هيئة التخصصات الصحية تعلن عن فرص تدريب وتوظيف
+-  حتى الـ 7 من مساء الغد.. تنبيه من الأرصاد على منطقة الرياض
+-  وزير الطاقة يبحث مجالات التعاون واستقرار أسواق النفط مع وزير الاقتصاد الياباني
+-  Israel bombs northern Gaza; Palestinians say 166 killed in 24 hours
+-  Palestinians recount ‘torture’ in Israeli army custody
+-  ولي العهد: كل ميلاد ونحن للسلام أقرب
+-  الملكة رانيا: أمنياتنا بالخير والبركة لإخواننا المسيحيين
+-  الجيش ينفذ إنزالاً جوياً سابعا بغزة
+-  عضو المجلس السياسي الأعلى في اليمن محمد الحوثي:
+-  తెర మూసిన తరుణం
+-  Kathua News: विक्की आकाश इलेवन पठानकोट और स्टेडियम इलेवन कठुआ ने जीते मैच
+-  Jalaun News: बिजली टीम पर हमला करने वालों पर लूट का भी मुकदमा
+-  Jalaun News: छुट्टी के दिन वसूली के लिए बकायेदारों के यहां दस्तक दी
+-  Jalaun News: आखिरी दिन पांच किलो पॉलीथिन जब्त कर 11,500 रुपए वसूले
+-  Jalaun News: जीआईसी अतिक्रमण की चपेट में, मेन गेट नहीं हो पा रहा बंद
+-  Jalaun News: शौचालयों पर लटक रहे ताले, खुलें में शौच को विवश नगर वाले
+-  Jalaun News: आयुष्मान लाभार्थियों के उपचार में जालौन बुंदेलखंड में अव्वल
+-  Firozabad News: रपड़ी पर्यटन केंद्र का आज मुख्यमंत्री करेंगे लोकार्पण
+-  Firozabad News: मृतक समझ कर ले आया अस्पताल से, जिंदा निकली नवजात
+-  Firozabad News: आगरा-लखनऊ एक्सप्रेसवे व सिक्सलेन बाईपास की कैमरे से निगरानी
+-  Firozabad News: टूंडला- फसलों को नुकसान कर रहे गोवंशों को किसानों ने बाडे़े में किया बंद
+-  Firozabad News: पांच घंटों तक देरी से चलीं ट्रेनें, चार निरस्त
+-  Firozabad News: शिक्षामंत्री से स्मार्ट फोन पाकर विद्यार्थियों के खिले चेहरे
+-  Firozabad News: विद्युत संविदा कर्मचारियों ने निकाला कैंडल मार्च
+-  Firozabad News: नगर आयुक्त पर टिप्पणी करने वाले भाजपा पार्षद के खिलाफ मुकदमा दर्ज
+-  Firozabad News: बिजली खंभे से गिरकर लाइनमैन घायल
+-  Udham Singh Nagar News: श्री श्री ठाकुर अनुकूल चंद्र का 136वां जन्मोत्सव मनाया
+-  Udham Singh Nagar News: अवैध खनन को लेकर खूनी संघर्ष, गोली भी चली, चार घायल
+-  Udham Singh Nagar News: चीनी मिल बंद होने पर किसानों ने चीफ इंजीनियर को बनाया बंधक
+-  Udham Singh Nagar News: सीएम धामी आज काशीपुर में, डीएम ने देखीं व्यवस्थाएं
+-  Udham Singh Nagar News: आशियाना बचाने के लिए सुप्रीम कोर्ट की शरण लेंगे ग्रामीण
+-  Udham Singh Nagar News: असम राइफल्स में उत्तराखंड का प्रतिनिधित्व बढ़ाने की मांग
+-  Udham Singh Nagar News: नौ लाख रुपये का तीन फर्माें पर निकला टैक्स
+-  Venäjälle oli jo ennakkotapaus olympialaisista
+-  Roorkee News: कारोबारी से ऑनलाइन ट्रेडिंग के नाम पर सात लाख की ठगी
+-  Roorkee News: पड़ोसी की तरफ दौड़ा कुत्ता तो हो गया झगड़ा
+-  Герцог: враг видит наши разногласия и ликует
+-  Jalandhar News: सिद्धू के करीबी शैरी को यूथ कांग्रेस ने दिखाया बाहर का रास्ता
+-  Jalandhar News: गायक सतविंदर को भाई ने ठहराया पत्नी की मौत का जिम्मेदार
+-  Jalandhar News: जेल के होमगार्ड जवान ने गायब किए 20 रौंद, केस दर्ज
+-  Muzaffarnagar News: रात में पाला, सुबह कोहरा और दिन में धूप
+-  Bulandshahar News: प्लॉट पर निर्माण के विरोध में पड़ोसी ने की फायरिंग
+-  Muzaffarnagar News: मुजफ्फरनगर - किनकी पर महंगाई का रंग, चावल के दाम कर रहे दंग
+-  Muzaffarnagar News: मुजफ्फरनगर - भाई ने ही साथी के साथ मिलकर की थी पिंटू की हत्या
+-  Muzaffarnagar News: मीरापुर - चिकित्सक के पक्ष में स्वास्थ्य सेवाएं बंद, विरोध में महिलाओं का हंगामा
+-  Muzaffarnagar News: मंसूरपुर - मंसूरपुर पहुंची संकल्प यात्रा, गिनाईं उपलब्धियां
+-  Muzaffarnagar News: मेरठ के लिए खास व्यापारी से लूट करने वाले पांच बदमाश मुठभेड़ में गिरफ्तार
+-  Muzaffarnagar News: मुजफ्फरनगर - नहीं आई उत्कल एक्सप्रेस, सात ट्रेनें विलंब से चलीं
+-  Muzaffarnagar News: मुजफ्फरनगर - सनातन धर्म महाविद्यालय ने हासिल की नैक की ए ग्रेड रैंकिंग
+-  Muzaffarnagar News: मुजफ्फरनगर - मेला लगा, फार्मासिस्ट ने देखे मरीज और बांटी दवाई
