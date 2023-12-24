@@ -1,51 +1,11 @@
 # Latest News
--  الملكة: أمنياتنا بالخير والبركة لإخواننا المسيحيين
--  Dončić iznenadio suigrače poklonima za Božić
--  Resguardan adulta mayor que deambulaba en Juárez
--  Advierten emergencias y hospitalizaciones por uso de pirotecnia
--  Encuentran mujer sin vida en unidad de transporte de personal
--  Почина известният гръцки певец Василис Карас
--  تراند اليوم : تتكون من 600 صحن.. شاهد: شخص يوثق أكبر وليمة عشاء
--  "Ne bih vratio Krosa – ne bi bilo dobro da igra za Nemačku"
--  Officer discharged firearm in Christmas Eve home invasion investigation: Ontario SIU
--  שער האריות: לאחר 29 שנה, דטרויט זכתה בראשות בית ועלתה לפלייאוף
--  Ataque ao Nord Stream orquestrado pelos EUA mirava Scholz, não Moscou, revela Seymour Hersh
--  Charlotte Dawson puts on an animated display in sequinned scarlet trousers as she enjoys a Christmas Eve night out with mum Tracy
--  Vučić objavio fotografiju kako jede jabuku
--  غزة.. 70 شهيداً بمجزرة إسرائيلية في مخيم المغازي
--  Come rimettersi in forma dopo le feste: ecco i regali su misura per voi
--  L'abbigliamento sportivo da neve per lui e lei oggi è in super offerta
--  Joel Embiid absent pour le Christmas Day, noyeux Joël à tous
--  Seven Babies Delivered in the Early Hours of Christmas
--  مقتل 60 فلسطينيا على الأقل في قصف إسرائيلي على مخيم المغازي وسط قطاع غزة
--  الحزن يكتنف أجواء أعياد الميلاد في اللاذقية بسبب ضحايا غزة... صور
--  好市多要來了嗎？會員卡申辦處前進彰化市區 縣府說話了
--  Форсберг попрощался с «Лейпцигом»: «Здесь я стал мужчиной»
--  Maja Šuput zablistala u finalu 'Supertalenta' u spektakularnoj haljini: 'U službi Maje Mraz...'
--  Putin rocked by troop revolt as entire Russian military unit rage at Ukraine war 'lies'
--  Choquei suspende publicações após repercussão negativa de caso de fake news
--  الإعلان خلال ساعات.. وسائل إعلام: أحمد فتوح يجدد عقده مع الزمالك
--  Roman Kemp pays emotional tribute to his late godfather George Michael during Royal Carols: Together At Christmas after singer's band Wham! scored a festive number one this week
--  Israel- Hamas conflict: At least 70 are killed in central Gaza, in one of the war's deadliest strikes
--  Calciomercato Milan, Marotta “copia” da Furlani: l’obiettivo in attacco dei nerazzurri
--  Обръщение на патриарх Неофит към миряните
--  Hårda vindar i Skåne under juldagen
--  Wedge Island shark attack: Windsurfer is mauled by predator on Christmas Eve
--  At least 70 are killed in central Gaza, in one of the war’s deadliest strikes
--  عاجل.. منصة مدرستي: طريقة دخول الطالب الحصص المدرسية 1445
--  الإثنين 12 جمادى الآخرة.. مواقيت الصلاة في جميع مناطق المملكة
--  ВСУ сбили еще один Су-34
--  В России некому работать
--  İran Dışişleri Bakanı ile ŞİÖ Genel Sekreteri "Filistin'deki gelişmeleri" görüştü
--  Джейхун Байрамов: Мирный договор не решит все на 100 процентов
--  Acidente entre carro e motorhome deixa 4 pessoas feridas, em Guarapuava
--  В Санкт-Петербурге скончался писатель-фантаст Николай Ютанов
--  Melissa Klug reflexiona en Navidad: “Gracias por el pan en mi mesa, gratitud infinita”
--  كلوب يستدعي لاعب الأكاديمية لحل مشكلة الظهير الأيسر
--  Kanal 7 ailesinin acı günü: Mahmut Sarıçiçek Hakk'ın rahmetine kavuştu
--  RDC : l’armée met en garde « Nyota TV et certains autres médias à la solde de l’ennemi »
--  Čelnik ‘Srbije protiv nasilja‘: Znali su da smo zastupnici, a tukli su nas pendrecima s leđa. Ljudima su noge polomili!
--  Fenerbahçe'den Galatasaray'a Icardi yanıtı!
--  Why is Christmas abbreviated as 'Xmas'?
--  Rafael Márquez será entrenador del FC Barcelona
--  U izraelskom zračnom napadu na izbjeglički kamp ubijeno 70 ljudi, palestinske vlasti: ‘To je masakr‘
+-  الاستمرار في مانشستر سيتي … قرار منطقي من ألفاريز
+-  El gigante naviero Maersk se prepara para reanudar sus operaciones en el mar Rojo
+-  Unilever adquiere la empresa biotecnológica de cuidado del cabello K18 en un cambio de estrategia de crecimiento
+-  Coinbase defiende sus prácticas de contratación en respuesta a las críticas de la senadora Warren
+-  Aussie couple’s Christmas miracle after seven years of infertility, 18 failed IVF treatments and multiple miscarriages
+-  Djali i Violetë Kukaj më në fund flet për babain
+-  ‘Quite dicey’: Severe thunderstorms and hail expected for large parts of Sydney to Hobart
+-  Matupá ganha 513 novas empresas e Colíder 508
+-  Don Omar pide a sus seguidores encontrar «un refugio» en la música
+-  Sex Offender Charged With Molesting Girl in Irvine
