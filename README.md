@@ -1,51 +1,51 @@
 # Latest News
--  إغلاق طريق عقبة الهدا في الطائف اليوم اعتبارًا من التاسعة صباحًا
--  مصلى مكة المعلق يدخل موسوعة جينيس للأرقام القياسية
--  Nyandarua sub-county administrator arrested for soliciting Ksh40K bribe from bar owners, EACC says
--  След коледните пости: Как плавно да преминем към пълноценно хранене
--  Мусулмонлар учун дўстона туризм: етакчи мамлакатлар ва Ўзбекистон учун имкониятлар.
--  10 ilde "Kahramanlar-35" operasyonu: Teröristlere ait 58 sığınak ve depo imha edildi
--  DEM Parti'den Türk milletine alçak tehdit: Tekirdağlı da Trabzonlu da rahat olmayacak
--  Шайба Ничушкина позволила «Колорадо» обыграть «Аризону» в НХЛ
--  Vrouw overleden en meerdere gewonden bij eenzijdig ongeval in Waalwijk
--  Bamyan: Orphans engaged in labor to be enrolled in orphanage
--  ¿Dónde invertir en 2024? Así construye sus carteras la gestora GVC Gaesco
--  20 of the Youngest Hosts in 'Saturday Night Live' History (& The Show's Youngest Host Was Only 7-Years-Old!)
--  Parte de la solución / Análisis de Ricardo Ávila
--  美 공화당 대선주자 라마스와미, 콜로라도 경선 보이콧 선언
--  US woman with rare double uterus gives birth to twin girls
--  Les critères de la location en montagne
--  ‘불법촬영 혐의 국대 박탈’ 황의조, 교체 20분 부상 복귀전서 침묵
--  Motorists groan over roadblocks, activities of security agents in South-East
--  Doncic scores 39 points in triple-double, Mavs rout Spurs 144-119 as Wembanyama sits
--  Europe 1 nuit du 23/12/2023
--  ЦАХАЛ: число погибших с 7 октября военных Израиля достигло 485
--  Bijelo Polje: Individualna ložišta i kotlarnice zagađuju vazduh
--  Ting skyllet i land frister tyve: Politiet fandt tyvekoster ved sommerhus
--  Nemecké orgány dostali informácie o plánovanom útoku na kolínsku katedrálu
--  Azərbaycan Premyer Liqasında ilin son oyunları
--  गणतन्त्रको विकल्प सुधारसहतिको गणतन्त्र हो : उपमहासचिव पुन
--  INSÄNDARE: Jublande jultomte delar ut hoppfulla klappar till ministrar
--  Pokwang wins deportation case against ex-partner Lee O’Brian
--  สธ.ออกประกาศคุมเข้ม ‘ผู้ขายใบกระท่อม’ ต้องติดป้ายห้ามขายให้เด็ก-สตรีมีครรภ์
--  مالية النواب تناقش اليوم موازنة وزارتي الأشغال والتخطيط
--  أجواء ضبابية وباردة وتساقط أمطار في أغلب المناطق
--  أنجلينا جولي: حقوق الإنسان بالعالم كذبة كبيرة
--  قرار سعودي جديد داخل مكة والمشاعر المقدسة
--  الاحتلال يقتحم مدينة طولكرم ومخيم نور شمس
--  สมเด็จพระสังฆราช ประทานพระรูป และคติธรรมลายพระหัตถ์ ส่งความสุขรับปีใหม่ 2567
--  UN urges rescue of 185 Rohingya adrift in Indian Ocean
--  Ahmedabad Corona:અમદાવાદમાં આ વિસ્તારમાંથી વધુ કોરોનાના પોઝિટિવ કેસ નોંધાયા, એક્ટિવ કેસની સંખ્યામાં વધારો,AMC એક્શનમાં
--  Adana'da gaz sızması zehirledi! 34 kişi hastaneye kaldırıldı
--  Mindestlohn steigt auf 12,41 Euro pro Stunde
--  Per Gobertą dėjimą sugrūdęs Sabonis surinko dar vieną trigubą dublį
--  Mindestlohn steigt auf 12,41 Euro pro Stunde
--  รถไฟฟ้าสายสีชมพู แจ้งหยุดเดินรถทุกสถานีชั่วคราวเที่ยงนี้!
--  Президент Аргентины заявил о работе по внесению ХАМАС в список террористов
--  Berlingske mener: Præster, nyd jeres rockstjernestatus i dag – og brug den rigtigt
--  Berlingske mener: Præster, nyd jeres rockstjernestatus i dag – og brug den rigtigt
--  Thousands file election nominations as deadline ends today
--  Terör örgütüne ağır vurgun! Ali Yerlikaya açıkladı: 10 ilde 58 mağara, sığınak ve depo imha edildi
--  Chiranjeevi congratulates Prabhas and Prashanth Neel for `Salaar` box office
--  Motociclista atropella a peatón y ambos salieron heridos, en Angostura
--  Liverpool's draw with Arsenal marred by Tsimikas injury: Klopp
+-  野, 김홍일 연일 공세… "양심 남았다면 스스로 물러나야"
+-  '국방예산 3%↑‧주한미군 유지'…바이든, 국방수권법 서명
+-  GS리테일, GS나누미 봉사단 전국 릴레이 연탄 봉사 진행
+-  ليبيا تعد خارطة طريق استراتيجية للتنقيب عن النفط والغاز في 2024
+-  Fin de semana largo por Navidad: ¿Martes 26 de diciembre será día no laborable o no en Perú? Esto dice la norma
+-  Na tanker zaútočil pri brehoch Indie dron odpálený z Iránu, uvideol Pentagón
+-  Americká loď zostrelila nad Červeným morom 4 drony: Útoku čelil aj ropný tanker
+-  Cum scăpăm de retenţia de apă din organism. Efectul ceaiului de păpădie
+-  Turecko uskutočnilo útoky proti "teroristickým cieľom" v Iraku a Sýrii
+-  Profil Masaki Aiba, Personel Boyband Jepang: Arashi
+-  Market capitalisation of 3 of 10 most valued firms jump ₹70,312.7 crore; RIL, HDFC Bank and HUL top gainers
+-  Szívszorító, Freddie Mercury mit küldött Elton Johnnak karácsonyra: a halála után jutott el az énekeshez az ajándék
+-  Fine del mercato tutelato di gas e luce: cosa succede se non si passa al libero
+-  Beşiktaş’taki talihsiz trafik kazası! 9 kişi yaralı
+-  EPL: VAR under fire as Arsenal play 1-1 draw with Liverpool
+-  24 Aralık 2023 burç yorumları: Koç, Boğa, İkizler, Yengeç, Aslan, Başak, Terazi, Akrep, Yay, Oğlak, Kova, Balık burcu...
+-  Cáceres, a reventar hoy con las cañas de Nochebuena
+-  Una docena de actos religiosos, en la catedral de Plasencia por Navidad
+-  Cáceres: un audiocuento personalizado para Luis
+-  Tranquilidad en la Madrila
+-  Tiada pesakit perlu terpinggir di negara Madani
+-  Libur Nataru, Simak Pengaturan Contraflow di Tol Jagorawi Arah Puncak
+-  Cours de pâtisserie, bar à desserts… Sur les Champs-Élysées, Ladurée innove dans un tout nouveau décor
+-  Expo Lego à Paris, patinoire à Vincennes, contes au château… 6 idées de sorties en Île-de-France
+-  « On ne peut pas les laisser » : à Paris, ils se mobilisent pour éviter que des enfants passent Noël à la rue
+-  VIDÉO. « On ne l'oubliera jamais » : l'exposition dédiée à Johnny Hallyday débarque à Paris
+-  Tuerie de la rue d'Enghien à Paris : un an après, la tristesse et la détermination de la communauté kurde
+-  Gare du Nord : la circulation des trains reprend après avoir été fortement perturbée
+-  تراند اليوم : شاهد.. عمرو أديب: إحنا في حرب وأمام عدو ليس لديه مبادئ.. ويوجه رسالة للمصريين بشأن الجيش
+-  POGLEDAJTE KAKO PRODAVCI NAVLAČE KUPCE LAŽNIM AKCIJAMA! Čovek sve usnimio i pokazao, pa sami procenite šta se više isplati!
+-  Naturschutz: Nabu zieht Bilanz zur Korkkampagne
+-  Gaduh berkumpulan guna parang, lelaki maut ditetak
+-  Antritt von „Bündnis Sahra Wagenknecht“ unklar
+-  LIVE TEXT | Război în Ucraina. Rusia folosește arme chimice împotriva Ucrainei. Putin vrea un armistițiu
+-  Masakan bergoreng guna kunyit hidup
+-  Main-board IPOs weather global headwinds, collect ₹52,000-cr in 2023
+-  Republik Czech berkabung peringati mangsa tembakan Universiti Prague
+-  2 Years After Rocking ‘Home Alone-Style’ Cleats, TJ Watt Sports Similar Themed Hoodie Before Thrashing the Bengals
+-  Prediksi Wolves vs Chelsea di Liga Inggris: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
+-  Delta NSCDC command deploys 1,100 personnel for yuletide security
+-  A Haber Spikeri Merve Özkan Çakaloğlu bu satırları okurken gözyaşlarına hakim olamadı: Göz kırpmaz can veririz biz bu vatan için...
+-  Feriado del lunes 25 de diciembre: ¿qué supermercados atenderán en Navidad?
+-  Smelter furnace blast kills 12 in Indonesia’s Morowali nickel industrial park - media
+-  Perjalanan Panjang Dimas Anggara Debut Jadi Sutradara Film
+-  Infidencias y confidencias del 24 de diciembre de 2023
+-  Son dakika! 10 ilde 'Kahramanlar' Operasyonu: 58 mağara imha edildi
+-  Maut sehari selepas lesen tamat tempoh
+-  Verdictul unui cunoscut analist în privința crizei. De ce vom primi toți mai puțini bani și vom plăti mai multe taxe
+-  Коледен обрат. В половин България става страшно
+-  Κλιμακώνεται η ένταση στην Ερυθρά Θάλασσα - Νέες επιθέσεις σε πλοία, ΗΠΑ και Βρετανία κατηγορούν το Ιράν
