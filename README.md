@@ -1,11 +1,51 @@
 # Latest News
--  台灣護理師大出逃，逃去哪？4大關鍵原因揭露低薪現實與苦悶
--  En noviembre se notificaron 906 nuevos casos de viruela del mono
--  Storm Super Cells Bringing Flash Flooding, Hail to NSW
--  조승완(남쪽바다합창단 지휘자) 씨 부친상
--  Dustin Poirier Steps Up as Challenger to Nate Diaz’s UFC 300 Quest
--  Last-minute digital Christmas gifts that will arrive via e-mail
--  Kassam Tugayları'ndan İsrail'e ağır darbe! Çok sayıda İsrailli asker öldürüldü
--  Toh, chi si rivede! Riecco Radonjic: torna in campo ma non convince Juric
--  Toro, un’altra occasione persa
--  ما حكم رسوم تطبيقات توصيل الأطعمة للمنازل؟ "الخثلان" يُجيب
+-  Pihak-pihak Berperang di Yaman Sepakat Menuju Gencatan Senjata
+-  Ingresos del sector formal e informal caen en 12%
+-  과기정통부, 사이버보안 펀드 200억원 투자… 산업계 갈증 해소할 ‘단비’ 될까
+-  תחזית מזג האוויר: שבוע של התחממות
+-  Alianzas público privada permitirá encarar desafíos del Mercosur
+-  Sugar, Rice, Imports from India Hindered by Policy Restriction: Bapanas
+-  Sharmila rancang ke Kuala Selangor sebelum hilang
+-  Vigyázat, már megint cserben hagyhat az iPhone-od ébresztője
+-  Polemik berkaitan Ashabul Kahfi tidak perlu diperbesarkan
+-  Invitan a viajar y recorrer Bolivia
+-  Sambut Tahun Baru, Sepatu-Sandal Diskon 50% + 40% di Transmart Full Day Sale
+-  OVO JE NAJMANJA DRŽAVA NA SVETU Velika je kao dva teniska terena, ima svoju kraljevsku porodicu i fudbalski tim: Preživela je čak i PUČ
+-  NIKO NE PROVALJUJE KO JE MAJKA, A KO ĆERKA Supruga Dragana Džajića u osmoj deceniji izgleda kao MILION DOLARA, a tek da je vidite u KUPAĆEM KOSTIMU
+-  Catat! Jalur Puncak Akan Ditutup Total saat Malam Tahun Baru
+-  लाल सागर में युद्ध जैसा माहौल, भारत का झंडा लगे एक जहाज पर ड्रोन अटैक
+-  Nagy bajban az ukrán lakosság a tél miatt, az oroszok intenzív támadást indítottak
+-  Luhut Sebut Semua Orang Apresiasi Jokowi: Mampu Bernavigasi di Dalam Ekonomi Dunia yang Sulit
+-  Israël-Hamas: Biden presse Netanyahu de protéger les civils dans la bande de Gaza
+-  Former Swiss finance executive guilty in tax evasion scheme
+-  Libur Nataru: Polisi Siapkan Rekayasa Lalu Lintas di Ragunan
+-  On a suivi le père Noël du marché de Lyon, il raconte son quotidien magique
+-  36ers end rut by unwrapping an NBL win over the Bullets
+-  Ukrainian Volunteers Went Abroad for Humanitarian Aid and Fled
+-  KPU Diadukan ke DKPP soal Proses Pencalonan Gibran, Ahli Bicara Putusan MK
+-  Uso abusivo de TikTok provoca narcolepsia entre adolescentes
+-  «Колорадо» — «Аризона»: видеообзор матча НХЛ
+-  जरांगे का 20 जनवरी से मुंबई में अनिश्चितकालीन हड़ताल का एलान, सीएम ने संयम बरतने का किया आग्रह
+-  Gazze Şeridi'nde üçüncü aşama: İsrail ordusu hazırlıklara başladı
+-  רק לא לאבד את הראש: למי באמת יש עניין בבחירות לרשויות המקומיות עכשיו?!
+-  חיזוק הביטחון הלאומי הוא גם תיקון פנים ישראלי
+-  Erste Schätzungen: Commercial Metals präsentiert Bilanzzahlen zum jüngsten Jahresviertel
+-  دراسة: محيط الخصر يرتبط بالعقم عند النساء
+-  Lebih enam jam terkandas, laluan Gua Musang-Lojing dilimpahi air
+-  Women's ministry working to provide high-quality services to all: Nancy
+-  NAKON PANČEVCA I BEOGRAĐANIN UKRASIO KOLA: Za ovim vozilom se ovih dana mnogi okreću! Narod se oduševio idejom! (FOTO)
+-  ठाणे में 1,000 से अधिक बच्चे कुपोषण का शिकार, जिले में 'कुपोषण मुक्तिसाथी दत्तक-पालक अभियान' की हुई शुरुआत
+-  Auditoría de expertos dice que España no estaba preparada para el covid-19
+-  仍在調查油公司有否合謀定價 陳家殷：公眾易將「平衡定價」混淆
+-  Turkey conducts air strikes in northern Iraq, Syria after 12 soldiers killed
+-  Lyon : un nouveau grand parc ouvre à côté des tours de la Part-Dieu
+-  ‘Red ball is still top of the tree’: Starc still favours Test cricket over IPL millions
+-  ‘Red ball is still top of the tree’: Starc still favours Test cricket over IPL millions
+-  Зеграс забил лакросс-гол в ворота «Сиэтла»
+-  Per Gobert`ą dėjimą atlikęs Sabonis su „Kings“ galiausiai pralaimėjo „Timberwolves“
+-  Fiasco à L’OM : 30 millions d’euros jetés par les fenêtres ?
+-  Health crisis in Matara Prison: 08 more admitted to hospital amid fever outbreak, 01 fatality reported in ICU
+-  Ярославцы характеризуют уборку города одним емким словом – беспредел
+-  KPK Tangkap Pihak Swasta Tersangka Kasus OTT Gubernur Maluku Utara
+-  शरद पवार ने की गौतम अदाणी की तारीफ
+-  Lidl, Aldi und Co.: Kassiererin greift in Schlange ein – Kundin geht auf die Barrikaden
