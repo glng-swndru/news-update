@@ -1,51 +1,51 @@
 # Latest News
--  Former Bison coach David Braun leads Wildcats to bowl victory
--  Religious leader appeals 23-year prison sentence over his sexual offenses
--  مانشستر سيتي ومحاولة فاشلة لخطف هدف برشلونة
--  Bihar: पुलिस को देखते ही नदी में कूद गया युवक, सर्च ऑपरेशन के बावजूद नहीं मिला; शराब पार्टी करने का आरोप
--  Bob “The Headmaster” Nyabinde Dies
--  Gold and silver prices Today on 24-12-2023 : Check latest rates in your city
--  UP: पिता के डांटने से नाराज हुआ 11वीं का छात्र, मालगाड़ी से कट कर दे दी जान, सोशल मीडिया से हुई पहचान
--  MacKinnon gets assist to extend point streak to 18 games, Avs cruise to 4-1 win over Coyotes
--  دوسرا ٹیسٹ ، شاہین شاہ آفریدی کا بیان بھی آگیا
--  Punjab: मातमी बिगुल बजाने पर SGPC को एतराज, कहा- साहिबजादों की शहादत मातम नहीं, चढ़दी कला का प्रतीक
--  Sakshee Malikkh worried as Brij Bhushan’s stronghold chosen as venue for Nationals
--  Les Pistons l’ont fait : 26 défaites de suite, record de la honte égalé, rendez-vous mardi soir pour le… grand soir
--  روما يعمل على وضع اللمسات الأخير في صفقة بونوتشي
--  Cómo surgió la leyenda de Yeti, el abominable hombre de las nieves que fascinó hasta a Alejandro Magno
--  Avs dismantle Coyotes in one of their most complete efforts of the season
--  WATCH: Arbaaz Khan pulls Bobby Deol`s pose from `Animal` for paps teasing him
--  Evidence of brain injury present even months after acute Covid infection, study finds
--  Tamil Nadu Fishing Boat Fire : तमिलनाडु के रामेश्वरम में मछुआरों के बोट में लगी आग,बुझाने का काम जारी
--  موجودہ حکومت ملکی تاریخ کی طویل مدتی نگران سیٹ اپ بن گئی
--  Фарғонада яшаш хонадонида 25 млн сўмлик пиротехникаларни сақлаб келган аёл аниқланди.
--  Андижонда қалбаки 500 минг долларни айирбошлашга уринган шахслар қўлга олинди.
--  Жиззахда ускунага тушиб кетган фуқаронинг ҳаёти сақлаб қолинди .
--  المباريات التي سيغيب عنها العويس مع الهلال
--  ‘마약 투약 혐의’ 이선균, 19시간 밤샘 조사 후 새벽귀가…“잘 판단 해달라”
--  Glücksforscherin: „Glück ist zurzeit weniger ein Thema“
--  UP: कार से उतरकर फास्टैग रिचार्ज कर रहे युवक को ट्रक ने कुचला, मौत; काशी दर्शन करने जा रहे थे पिता-पुत्र
--  iPhone 12 तीन महीने तक नदी में डूबा रहा! जब निकाला तो पाया ...
--  Buffalo Bills drill last-minute field goal to stay hot against Los Angeles Chargers
--  "די! כבד!": צפו בוויכוח הסוער בין מוריניו לקברצחליה
--  "סטטיסטיקה מדהימה": אנגליה "בהלם" מהנתונים של מנצ'סטר יונייטד
--  גם השוויון הדרמטי לא הרגיע את ברדה: הפציעות והטעויות שמעיבות על באר שבע
--  אלי לוי שוב מדוכדך: אשדוד כבר התאוששה, והנה שוב התחתית לוחצת
--  Dışarıdan içeriye mektuplar: Bugünler mutlaka geride kalacak
--  경남도, 스토킹 피해자 18명 신변 보호 지원...94일간 민간 경호 받아
--  Claudia Pizarro (DC) de La Pintana: "Yo creo que no soy la única alcaldesa que ha recibido amenazas de muerte"
--  Russia-Ukraine War: अगर-मगर पर विराम…यूक्रेन पहुंचे F-16 विमान !
--  Envía Maru mensaje navideño y de cierre de año
--  ¡Regresaron el squeeze play! Cañeros blanqueó 2-0 a Venados en el tercero de la serie
--  باپ کے ہاتھوں بیٹی سمیت تین افراد قتل لیکن وجہ کیا بنی؟ جانئے
--  Cak Imin Kampanye di Ponpes Lirboyo Semarang Hari Ini
--  Khawaja blocked from wearing symbol of peace on bat, shoes by ICC
--  Vikendica, voćnjak i veliko dvorište za 13.000 evra: Ankica prodaje pravi raj na zemlji, pogled kao sa razglednice
--  Telangana Chief Minister Revanth Reddy to hold first district collectors, SPs conference today
--  Landtechnik Marke Eigenbau: Das sind die Top-Tüftler von 2023 #landwirt #landwirtschaft
--  Top Tamil Nadu news developments today
--  Schäden im Holz durch Schnee und Sturm sicher aufarbeiten (Teil 1) #forst #svlfg
--  Setelah Resolusi DK PBB Dikeluarkan, Pertempuran di Gaza Utara Masih Sengit
--  एजुकेशन ब्रीफ: यूपी के स्कूलों में बनेंगे स्वास्थ्य क्लब, 10 जनवरी तक छात्रवृत्ति के लिए कर सकेंगे आवेदन
--  লন্ডনে শত শিশুর কণ্ঠে বাংলাদেশের জাতীয় সংগীত
--  윤 대통령 지지율 38.8%...한동훈, 與비대위원장 적합도 1위
+-  [ŽT] Apgaulinga ramybė. „Rezultatai bus greitai.“ Kokią informaciją siunčia Krynkų placdarmas
+-  [ŽT] Pastebėti nauji rusiškos technikos skiriamieji ženklai (Video)
+-  Dataran Kampung Bantal hampir tenggelam, air Sungai Tembeling makin meningkat
+-  '너무 비싼데...' 뮌헨, 김민재 지켜줄 수비형 미드필더 영입 난항...990억 이상 요구하는 풀럼
+-  '또 다시 도진 부상 악령' 부주장 로메로, 햄스트링 부상 의심돼 하프 타임 교체 아웃
+-  Por: Dennis Falvy // El Canal de Panamá sigue en problemas
+-  "Le Jour du Seigneur", plus vieille émission télé de France, fête ses 75 ans à Montpellier pour Noël
+-  CBP Hoa Kỳ: Tháng 11 là tháng có nhiều cuộc chạm trán nhất từng được ghi nhận ở biên giới phía Nam
+-  News24 | Two killed, scores injured in deadly Joburg crash
+-  Abgelehnt, weil er bei der AOK versichert ist? Fürther Patient wehrt sich
+-  Portada Diario La Razón (24/12/2023)
+-  Salzburg Festival Raises 186,000 Euros for Daniel Barenboim Foundation
+-  Barbara Hannigan Extends Contract with Göteborgs Symfoniker
+-  Michael Nündel Named Music Director of Musikalische Komödie⁩
+-  Weihnachten als Zeitenwende: Besinnliche Feiertage und die Geburt Christi
+-  Noch einmal ein Weihnachtsfest – von Theodor Fontane
+-  Gott kann heilen, ermutigen und neue Wege zeigen - nicht nur an Weihnachten
+-  Airbus on course for record jetliner orders in 2023
+-  Mit Festen durch das Jahr: So feiert das Weißenburger Altenheim St. Andreas Weihnachten
+-  Weihnachten in Gunzenhausen: Wie feiern eigentlich Menschen mit Behinderung?
+-  Weihnachtsfilme: Diese beliebten Klassiker muss jeder gesehen haben
+-  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
+-  Nach 34 Jahren gab es nun erstmals keine Treuchtlinger Advent-Feier
+-  বিসিক শিল্পনগরে ১০ শতাংশ প্লট পাবেন নারী উদ্যোক্তারা
+-  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
+-  Adventsfenster in Reichenschwand und Vorra: Menschliche Wärme unterm leuchtenden Fenster
+-  زلزال بقوة 5.8 درجة يضرب تشيلي
+-  ইন্টারনেটের সঙ্গে রাতে খেতে না পারার কী সম্পর্ক?
+-  Ehrenbürg-Gymnasium Forchheim sorgte für eineinhalb Stunden im Klang der Musik
+-  The Rockey road to freedom: An oasis in the madness
+-  Nach 34 Jahren gab es nun erstmals keine Treuchtlinger Advent-Feier
+-  Lucka 24 i Gävles konstadventskalender
+-  BILDEXTRA: Malin och Danne kunde inte motstå kyrkan
+-  Adventsfenster in Reichenschwand und Vorra: Menschliche Wärme unterm leuchtenden Fenster
+-  Frisch Auf Göppingen: So sieht der Trainer Ben Matschke seine Zukunft mit Frisch Auf
+-  LEDARE: Omfamna era egna jultraditioner – de gör er trygga
+-  XXL-Hundebett: Jessie J zeigt Lieblingsplatz von ihrem Sohn!
+-  Neues Restaurant in Herzogenaurach: Gastronom Tobias Tannebaum hat sich einen Traum erfüllt
+-  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
+-  "Dieser Abend ist anders als andere Abende": So feiert Fürth Weihnachten
+-  INSÄNDARE: Arbetsvillkoren i dag är inte hållbara
+-  "Dankbar sind alle": Lions Club beschenkt Familien zu Weihnachten, wenn die es nicht können
+-  Çilidə güclü zəlzələ olub
+-  El tráfico de pasajeros en aeropuerto de Incheon se recupera a casi 80 % de nivel precovid
+-  Sempat Dihentikan, Tol Jakarta-Cikampek Kembali Terapkan Contraflow
+-  Därför filmar Hilla dalaliv som sticker ut: ”Saknat kvinnliga förebilder”
+-  ‘พัชรวาท‘ รับมติ ครม.บังคับใช้กฎหมายจัดการกลุ่มซื้อ-ขายสัตว์ป่า เถื่อนอย่างเคร่งครัด
+-  Winter World Masters. Aprica ospita una prova delle Olimpiadi Over 30
+-  Viaggio no stop in Villa Reale. Da Peter Pan a valzer e quadriglie
+-  Premio a Babbo Natale maestro di solidarietà: "Donare è divertente"
