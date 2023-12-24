@@ -1,51 +1,51 @@
 # Latest News
--  블랙핑크 지수, 감탄 일으키는 청순 비주얼
--  ‘เทพไท’ ฟันเปรี้ยง! ‘ก้าวไกล’ ฝ่ายค้านถาวร ถ้าไม่แลนด์สไลด์
--  सिंगर ऊषा उत्थुप को सामने देख सलमान खान ने छुए पैर, भाईजान ने अंदाज ने जीता फैंस का दिल
--  बिहार में कैसी शराबबंदी! दारोगा ने जब्त की शराब, फिर खुद ही बेच दिया; क्या हुई कार्रवाई?
--  PM Dahal consults top leaders of major parties on finalizing TJ
--  Beşiktaş'ta ilk yolcu belli oldu: Valentin Rosier
--  BUDO'nun 6 seferi iptal edildi
--  Terör örgütüne ağır darbe! Bakan Güler duyurdu: Evlatlarımızın intikamını alacağız
--  A Xunta aumenta nun 8% o investimento na promoción de produtos do mar galegos
--  שטח חם: איוונקה טראמפ מדגימה לוק קרבי
--  First Angara-A5 Rocket Shipped to Vostochny Cosmodrome
--  Kickoff | Chiefs striker vows to find the goals
--  Антъни Джошуа прегази скандинавски гигант, ясна е следващата жертва
--  ワリエワは３位
--  Mehr als 40 Prozent sagen von sich: Ich bin zu lang am Handy
--  Leyla Əliyevadan Prezidentə TƏBRİK
--  Puolan ulkoministeri: Vain ukrainalaisilla on oikeus sotaväsymykseen
--  Названы имена шести жертв массовой стрельбы в Праге
--  Post-Game: Ότι έδωσε πήρε
--  Výbuch v továrni na spracovanie niklu! Indonézia hlási 12 obetí
--  Das überrascht George Clooney bei Erziehung seiner Zwillinge
--  إنفاذ القانون تشرع في إزالة وهدم المباني العشوائية والعوائق بمنفذ رأس أجدير
--  Минэнерго заявило о восстановлении энергоснабжения Дагестана
--  Lotto results: Saturday, 23 December 2023
--  Seaweed Downstreaming Could Generate More Income Than Nickel: Maritime Affairs Ministry
--  'They said The Last Supper was good, clearly haven't seen this': Frantic pictures of Swansea night out hailed as 2023's 'Renaissance' following in the footsteps of 2015's viral Manchester street scene
--  'They said The Last Supper was good, clearly haven't seen this': Frantic pictures of Swansea night out hailed as 2023's 'Renaissance' following in the footsteps of 2015's viral Manchester street scene
--  टेस्टी खाने के लिए मशहूर है दिल्ली का ये रेस्टोरेंट, जानें खासियत और लोकेशन
--  Link Streaming Misa Natal Gereja Katedral Jakarta 2023, Cek di Sini!
--  旧陸軍の風船爆弾基地、初の資料
--  Kuzmenko scores 2 as Canucks move atop Western Conference with 7-4 win over Sharks
--  Lisa Blackpink Makan di Restoran Pinggir Jalan di Bangkok, Apa Menunya?
--  ผสห.โวย! ปมเหตุ รถไฟฟ้าสายสีชมพู ลั่น งานชุ่ย ไม่พร้อมก็อย่าเปิด
--  Gyorssegély annak, aki még nem vásárolt be: boltok, ahová mehetnek
--  Prediksi Cuaca Minggu di Lokasi Wisata Jawa Barat, Ada Potensi Hujan Petir di Bandung
--  Ovčarima iz Bedekovčine divlji psi godinama napadaju ovce
--  Şehitler için ortak bildiriye CHP ve Dem Parti imza koymadı
--  ฟุตซอลไทย แซง อุซเบ เจ้าภาพฟุตซอลโลก2024 รั้งที่ 25 โลก
--  美軍神秘機型，SpaceX 將與太空軍合作試飛 X-37B
--  Danas su Materice: Najveći hrišćanski praznik majki i žena
--  El temor a mostrarse ante el espejo
--  "Let's Dance"-Special: Zuschauer erheben Manipulationsvorwürfe gegen RTL
--  Karşı Tarafta Görünce Koşar Adımlarla Uzaklaşmanız Gereken Toksik Özellikleri Sıralayan 22 Kişi
--  Más y mejor investigación
--  Lisieux : le bailleur Inolya démolit 309 logements à Hauteville
--  VIDEO. Noël dans le Calvados : « Des gens de Mayenne viennent voir ma maison illuminée »
--  Livre : Jean-Paul Le Buhan raconte les signatures et dédicaces de notre patrimoine
--  Pakistan vs New Zealand: Wahab Riaz confirms Babar Azam will play in T20I series
--  الجارديان: إسرائيل لم تعد تتحمل تبعات اغتيال رموز فلسطينية على أراضي دول أجنبية
--  Accident mortel à Tours : la policière au volant n'aurait pas commis d'imprudence
+-  İletişim Başkanlığı'ndan propaganda uyarısı
+-  İsmail Kartal, derbi öncesi özel toplantı gerçekleştirdi
+-  Ajax endurgreiðir stuðningsmönnum eftir óvænt tap
+-  Kickoff | Ten Hag sends message to Man Utd stars
+-  BBQ앱으로 치킨 주문하면 ‘닭다리살 스테이크’가 공짜
+-  이스라엘 가자지구 공습에 대가족 76명 몰살
+-  손흥민, 크리스마스 선물 쐈다… 24일 에버턴전 시즌 11호골
+-  “สุริยะ” สั่งงดให้บริการรถไฟฟ้าสายสีชมพู วันนี้ - หาสาเหตุรางจ่ายกระแสไฟฟ้าหลุดร่วง
+-  สหรัฐฯ กล่าวหา "อิหร่าน" ใช้โดรนโจมตีเรือนอกชายฝั่งอินเดีย
+-  Why does the NBA play games on Christmas Day every year?
+-  Covid : तेजी से बढ़ रहा संक्रमण, सरकारी अस्पतालों समेत अन्य स्थानों पर कोरोना की एंटीजन जांच शुरू
+-  Çin'in ilk yerli üretim kruvaziyer gemisi demir aldı
+-  Van'da sosyal medya üzerinde sporda şiddet içerikli paylaşım yapan 12 kişi gözaltına alındı
+-  9 milyonun üzerinde seçmenin bulunduğu Tunus'ta seçimler başladı
+-  Türkiye'ye kaçak yollarla sokulmak istenen 187 milyon liralık 15 lüks otomobile el koyuldu
+-  Bakan Güler, beraberinde TSK komuta kademesi ile Irak sınır hattına gitti
+-  Spektakulär! Das ist Europas größte Felsenstadt
+-  Detroit fa la storia negativa: vince Brooklyn, sono 26 ko di fila
+-  Seven cocaine packages wash up on NSW beaches
+-  Seven cocaine packages wash up on NSW beaches
+-  Oto najseksowniejsza piłkarka świata! Zobacz powalające zdjęcia. Internauci zachwyceni jej urodą. Oto Alisha Lehmann 24.12.2023
+-  2024 Hyundai Creta facelift launch date announced: Check details
+-  Η Χαμάς ζητεί διεθνή έρευνα για τις εκτελέσεις 137 Παλαιστινίων αμάχων στη Γάζα
+-  BRITANIJA ŠALJE RATNI BROD Tenzije rastu
+-  GORI&quot; INTERNET Snežana Borjan objavila fotografije sa odmora i zapalila društvene mreže (FOTO)
+-  Gaziantep Şehidi P. Uzm. Çvş. Abdülkadir İyem'i bugün son yolculuğuna uğurlanıyor.
+-  Iranska policija zaplijenila nagradu EU za Mahsu Amini
+-  Respons Jazilul soal Candaan Gus Yahya Sebut Cak Imin Tak Menang Pilpres
+-  Dehradun: भाजयुमो की विशाल युवा पदयात्रा में पहुंचे सीएम धामी, बड़ी संख्या में जुटे पार्टी कार्यकर्ता
+-  Egy kijevi csapat 25 focistáját sorozták be az ukrán hadseregbe
+-  Segini Kekayaan Muhammad Suryo, Diduga Sosok yang Bikin Irjen Karyoto Berani Ancam KPK
+-  Kard. Kazimierz Nycz złożył rezygnację z urzędu
+-  Camilerde şehit Mehmetçikler için dua edildi
+-  Jasad Bayi Baru Lahir Ditemukan Warga di Toilet Masjid
+-  Le journal de 8h - 24/12/2023
+-  Memphis continua a vincere con Morant, Atlanta ko in casa
+-  Lucknow: सपा के बलिया जिले के जिलाध्यक्ष की सड़क दुर्घटना में मौत, लोहिया पार्क के पास हुई दुर्घटना
+-  Balesettel indult a nap az M3-ason: torlódás Gelejnél
+-  5 Provinces at Risk for Wet Hydrometeorological Disasters: BNPB
+-  Court On Depriving Baby of Mom's Milk: बच्चे को मां के दूध से वंचित करना ‘गैर इरादत हत्या’, ठाणे सेशन कोर्ट ने दंपत्ति और एक अन्य को ठहराया दोषी
+-  Korea Selatan Bakal Keluarkan Visa Digital Nomad, Wisatawan Bisa Tinggal sampai Dua Tahun
+-  Kourtney Kardashian: le prime dolcissime foto del figlio Rocky
+-  Могилевчанин незаконно перевозил около 4 тонн цветного металла
+-  Parts of NSW hit by wild storm
+-  Parts of NSW hit by wild storm
+-  دراسة جديدة: اتباع نظام غذائي نباتي يقلل من خطر الإصابة بمرض السكري
+-  Otkriveni bezbednosni propusti u gotovo svim 5G pametnim telefonima
+-  بايدن: لم أطلب من نتنياهو وقف إطلاق النار
+-  البنك العربي يكرّم موظفيه المتطوعين ضمن برنامجه للمسؤولية الاجتماعية معاً
+-  قوات الاحتلال تقتحم مدرسة الرافعي بجباليا البلد
