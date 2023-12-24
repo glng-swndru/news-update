@@ -1,11 +1,11 @@
 # Latest News
--  Śnieg dał się we znaki. Blisko 150 kolizji w województwie
--  Ei kehitystä – Ruotsi hakkaa Suomen NHL:ssä ylivoimaisesti
--  Kickoff | 'I wanted to send disrespectful Man City star to hell'
--  رئيس جامعة الدلتا التكنولوجية بالمنوفية يجتمع مع أعضاء هيئة التدريس
--  Trujillo: Contraloría detecta deficiencias en obras que ejecuta Arturo Fernández
--  Ted DiBiase Recalls Shawn Michaels’ Heat In WWE, Sycho Sid As WWE Champion
--  Ortom Distributes Food Items, Money, Cows To Kinsmen, Preaches Peace At Yuletide
--  La electricidad en el mercado mayorista bajará a 63,09 euros/MWh en el día de Navidad
--  Incendio en un horno de fundición de níquel en Indonesia deja 13 muertos y 46 heridos
--  Camiones empiezan a cruzar la frontera polaca tras fin del bloqueo de agricultores, según Kiev
+-  Türk milletini tehdit eden Bakırhan yine sahnede! DEM Parti kongresinde skandal görüntüler
+-  Erden Timur derbi öncesi konuştu! "Kazanan biz olalım"
+-  Konyaspor 3 puanı penaltılarla kazandı
+-  Filistin Devlet Başkanı Abbas: İsrail'in saldırılarında dini ayrım yok
+-  Barcelona'ya Avrupa'dan men cezası yolda
+-  Pota derbisinde kazanan Galatasaray Ekmas
+-  Adalet Bakanı Yılmaz Tunç: DEM Parti kongresindeki olayla ilgili soruşturma açıldı
+-  Basketbol derbisinde tartışma çıktı
+-  Macron, Gazze'deki Katolik kilisesinin "dramatik" durumundan "derin endişe duyduğu" bildirildi
+-  Thousands march in Rabat demanding end to Morocco-Israel ties
