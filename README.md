@@ -1,11 +1,11 @@
 # Latest News
--  رانا ثنا اللہ کی گاڑی کو حادثہ، تشویشناک خبر آگئی
--  Ucrânia vai celebrar Natal pela 1° vez em 25 de dezembro
--  "התחלה משמחת הפכה לסוף החיים": אריה ריין הספיק להדליק עם משפחתו נר חנוכה, ונפל בקרבות
--  Вучич: Сербия никогда не признает Косово
--  On the weekend before Christmas, ‘Aquaman’ sequel drifts to first
--  Jury finds man guilty of attempted strangulation
--  Łotwa to bardzo dobry rynek dla polskich firm
--  GG's 2023 Game of the Year: Parallel
--  İsrail, bir askerinin daha öldürüldüğünü açıkladı
--  Boy, 3, set to finally spend Christmas at home after three life-saving heart surgeries
+-  En auto a Brasil: las mejores playas, rutas sugeridas y los precios para el verano
+-  Bellingham është tashmë futbollisti më i shtrenjtë në planet, së bashku me …
+-  אחמד טיבי השווה בין השרשרת של נועה תשבי לקריאה לרצח עם
+-  Роспотребнадзор рассказал, какие витамины нужны детям зимой
+-  [ŽT] „Prasideda didelės problemos...“ To dar nebuvo. JK žvalgyba skelbia apie invaziją Ukrainoje
+-  [ŽT] „Rusija puls 2024-2025 m. žiemą“. Bild gavo bauginančią informaciją
+-  [ŽT] Ukrainoje audra. Dingo 1 500 000 000 sviedinių pirkimui
+-  ЗША: дрон, які атакаваў танкер каля берагоў Індыі, быў запушчаны з Ірану
+-  Suomen talviurheilun tilanne on huolestuttava
+-  Кировская область способствует переселению соотечественников из-за рубежа
