@@ -1,11 +1,11 @@
 # Latest News
--  الأردن يُعلن الاتفاق مع مصر على مسار شحن جديد في ظل أزمة الملاحة في البحر الأحمر
--  رئيس وزراء فلسطيني: الجيش الإسرائيلي يعيد احتلال الضفة الغربية كاملة الآن
--  Жители Германии пьют все меньше игристого
--  Германия — Как вылезти из долговой спирали — честный анализ финансов
--  Из Орловской области в зону СВО доставили последний в этом году 40-тонный «аквагруз»
--  رئيس الأسقفية يدعو لصلاة الاستعداد ضمن طقوس قداس الميلاد
--  Okan Buruk: İlk yarı çok net bir penaltı vardı
--  قلة حظ ونحس.. تحذير لهؤلاء الأبراج الـ 3 في 2024
--  İsmail Kartal: Süper Kupa maçı farklı olacak
--  Stolen education: What’s happened since Taliban banned women from university in Afghanistan
+-  Who is the winner of Masked Singer Season 10?
+-  India is testing the use of AI to improve weather forecast accuracy
+-  Urgent action needed to curb info pollution: Naz Baloch
+-  Zimski spektakl u Gospiću: Malonogometni turnir s nagradnim fondom od 4.300 eura!
+-  Νέες απειλές από τους Χούθι: "Η Ερυθρά Θάλασσα θα γίνει φλεγόμενη αρένα"
+-  الیکشن کمیشن نے تحریک انصاف سے بلے کا نشان لے کر بہت غلط کیا، صدر سپریم کورٹ بار نے خرابی کی نشاندہی کر دی
+-  Otkriven Novakov autfit za Australijan open FOTO
+-  חברת Gloat מגייסת עובדות ועובדים
+-  ఆ 2 గంటలు.. చావుతో పోరాటం!
+-  VANREDNO OBRAĆANjE PREDSEDNIKA: Ne brinite, građani Srbije - Nikakva revolucija nije u toku!
