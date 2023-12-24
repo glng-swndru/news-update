@@ -1,51 +1,51 @@
 # Latest News
+-  Nkunku desencanta, mas Chelsea perde para os Wolves na véspera de Natal
+-  Dgcim se llevó a un capitán de su base en la frontera y la familia busca prueba de vida ante el silencio del chavismo
+-  سنتامين: زيادة احتياطات الذهب لمنجم السكري إلى 5.8 مليون أوقية
+-  بعد صعوده لأعلى مستوى.. سعر الذهب اليوم الأحد في مصر بتعاملات المساء
+-  “Shpëtim për repartin e Ohrit”, paralajmërojnë protesta – Struga shumë shpejt do të mbetet pa tre pediatër
+-  Andrés Lezcano guió al Comunicaciones a un nuevo título nacional
+-  وزير الخارجية الأردني: أعاد الله العيد وقد زال الاحتلال وعادت الحقوق
+-  El Horóscopo de las Mentes Gemelas: 24 de diciembre de 2023
+-  Çocukları İstismarla Suçlanan İl Kültür Müdürü Tutuklandı
+-  لخديم وكيشطا يستمتعان بطنجة وتيزنيت
+-  Antonio Robles, el lector perfecto
+-  প্রার্থিতা ফিরে পেলেন মেয়র মুহিবুর রহমান
+-  Five killed in KZN crash as festive season road deaths climb
+-  Western Cape police arrest over 460 suspects for various offences in one week
+-  Slovačka policija uhitila muškarca zbog prijetnje da će kopirati napad u Pragu
+-  Presidente Lula fará pronunciamento de Natal neste domingo
+-  Pedro Sánchez llama a detener el sufrimiento "inaceptable e insoportable" de la población de Gaza
+-  Qoku: Lëvizja Vetëvendosje, shtylla e katërt e opozitës shqiptare në Maqedoni
+-  Bivši rukometni reprezentativac BiH: Ljudi u Savezu su se plaše za svoje stolice
+-  Kontrolle über Porsche auf der A45 verloren: Mutter und Tochter verletzt
+-  Motorista fica ferido após carro capotar e parar em meio a árvores às margens da TO-335
+-  Nkunku-Tor zu wenig für Chelsea: 1:2 in Wolverhampton
+-  Nkunku-Tor zu wenig für Chelsea: 1:2 in Wolverhampton
+-  Slain Jammu And Kashmir Cop Laid To Rest In Baramulla, Police Detains Suspects
+-  Moldavská prezidentka Sanduová chce opäť kandidovať v budúcoročných prezidentských voľbách
+-  حزب الله يستهدف جنودا إسرائيليين بقلعة هونين
+-  الاحتلال يزعم استشهاد 8 آلاف مقاوم
+-  فورين أفيرز: نتنياهو أشرف على أسوأ هجوم وفشل استخباراتي بتاريخ إسرائيل
+-  محافظ قنا: معبد دندرة الأجمل وسط المعابد الفرعونية في مصر
 -  İsmail Kartal'dan derbi öncesi konuştu! Fred açıklaması
+-  Uhapšen muškarac osumnjičen za uklanjanje Benksijeve instalacije
 -  Adana Demirspor galibiyet özlemine son verdi!
+-  Justin Bieber’s star-studded ski trip with Kendall Jenner and friends
+-  Chandrababu: చంద్రబాబు ఇంట్లో ముగిసిన చండీ, సుదర్శన నారసింహ హోమాలు
+-  Premier League: Erstes Heiligabend-Spiel seit 28 Jahren: Chelsea verliert
 -  Dunki showcases tremendous growth as a feel-good film! Family audiences are celebrating the holiday season with the film!
 -  MEGA EXCLUSIVE: Ranbir Kapoor, Alia Bhatt, Prabhas, Yash, Tiger Shroff, Ajay Devgn, Sunny Deol, Ayushmann Khurrana invited to Ayodhya Ram Temple inauguration ceremony
--  Kilder: Tilbageholdte indere i Frankrig kan rejse videre mandag
--  Kilder: Tilbageholdte indere i Frankrig kan rejse videre mandag
--  Kickoff | Chelsea handed eighth Premier League loss
--  Kronprinsparret ankommer hånd i hånd til julegudstjeneste i Aarhus
--  Kronprinsparret ankommer hånd i hånd til julegudstjeneste i Aarhus
--  Cambiaso salta la Roma, multata la Juve: le decisioni del giudice sportivo
--  Serie A, top 11 del 17° turno: brilla una stella Juve, ci sono Bisseck-Lukaku
--  Lemina-Doherty, Chelsea ko: i Wolves agganciano Pochettino in classifica
--  Christmas 2023: Wishes and quotes to share with friends and family
--  Apoyan tránsitos a Santa Bombero
--  Veselé Vánoce a šťastný nový rok přejeme čtenářům zpravodajství AC24.cz
--  U Nikšiću održani "Dani atletike"
--  President Abinader inaugurates Freddy Beras Goico Avenue in Santo Domingo East, worth 700 million pesos
--  최동석, 박지윤과 이혼 후 전한 새해 다짐 "인생 한 번, 더 잘 살 거야"
--  Trei presupuși islamiști aretați la Viena în perioada târgului de Crăciun. Poliția: "Nu există o ameninţare imediată de atac"
--  Военные из США сообщили о полете Санта-Клауса над Россией
--  Ex-Steelers player says he 'did not intend to lessen my white football brothers'
--  ¿Por qué la comida no tiene el mismo sabor fuera de tu país?
--  De jardinero a ganador y millonario de Yo me llamo, la historia de Juan Carlos Parra
--  Entrenamiento en casa: los ejercicios que deberías hacer si quieres aumentar tus pechos
--  Naoružajte se: Rusi prete
--  ¿Cómo encontró el Girona a Dovbyk, el ‘nueve’ que asombra con 11 goles?
--  LIVE: Tadic en Ziyech clashen in Turkse topper met hoog (oud) Eredivisie-gehalte
--  «Праздник к нам приходит»: как жители Гродно украшают свои авто к Новому году
--  Los cinco futbolistas de Boca que no podrían realizar la pretemporada completa: el motivo
--  Müdafiə Nazirliyi həftəlik icmalı təqdim etdi
--  [민주당 "검찰, 특활비로 스벅·아웃백 이용"…대검 "목적·용도 맞게 사용" 반박
--  [부동산PF부터 홍콩ELS까지…내년 금융시장 ‘퍼펙트스톰’ 위기
--  [강호동 율곡농협 조합장 “新농협 100년, 농업인 중심 지속가능한 사업 구현해야”
--  [국세청, 올해 근로·자녀장려금 5.2조원 지급…작년보다 2200억원↑
--  [“멋져지려고 ‘이것’까지 주사기 넣고 주입한다?” 英틱톡 난리…의사들 “안전성 미확인”
--  [‘울산시장 선거개입’ 1심 실형 황운하 “성탄절, 박해받는 사람들 용기 내길”
--  [‘전기차 수요 감소’에 중고 시장도 타격…신형 전기차가 반등의 열쇠로? [여車저車]
--  [“이걸 믿어도 돼?” 총알 막은 아이폰…시끌벅적 사진 한장
--  [[리얼푸드] ‘어드벤트 캘린더’ 미국의 인기 연말 마케팅
--  [[리얼푸드]미국의 틈새 시장 뚫은 낙타 음료
--  [[리얼푸드] ‘상품 전략에도 MBTI’, 중국의 새로운 마케팅
--  [[리얼푸드] ‘가격 비싸도...’ 맥주 매력에 빠진 인도네시아
--  [[리얼푸드] '에어프라이어 가장 많이 구입' 프랑스의 블랙 프라이데이
--  [[리얼푸드] 쌀 간식 좋아하는 라오스, 한국 떡 관심 높아져
--  [[리얼푸드] ‘프리미엄 라거 인기’ 필리핀 맥주 시장
--  [[리얼푸드] 일본 절임류 시장에서 확대되는 김치
--  [대통령실, '김건희 특검법'에 “총선 겨냥 흠집내기 의도”
--  [12·12 군사 반란 ‘서울의 봄’ 개봉 33일 만에 “1000만 관객 돌파”
--  [이태원클라쓰서 봤던 그건물…3500만원 나와 4.5억에 팔렸다 [부동산360]
--  [“고민해서 선물했더니” 받는 족족 당근마켓 ‘되팔기’…크리스마스 선물 쏟아진다?
+-  Comedian Neel Nanda dead at 32: Matt Rife and Dane Cook lead tributes remembering the beloved stand-up who worked on Comedy Central
+-  2023 s'achève mais pas la sécheresse dans une partie de l'Occitanie
+-  Ancienne escrimeuse d'Orléans, Manon Fleury a rangé son sabre pour la gastronomie
+-  Merry Christmas Whatsapp Stickers Wishes: How to Download Happy Xmas Stickers Online for Whatsapp Status and Insta DM
+-  وسائل إعلام إسرائيلية: سقوط صاروخين مضادين للدروع أطلقا من جنوب لبنان وسط مرغليوت الحدودية بالجليل الأعلى
+-  YouTuber clarifies stance amid beef consumption allegations in Jagannath Temple row [WATCH]
+-  Wolves slog Chelsea i ifrågasatt julaftonmatch
+-  Fenerbahçe - Galatasaray derbisinde 3 yıldız kadro dışında kaldı
+-  Ngirozi Yehondo Silent Killer, Bhanditi Seh Calaz In Nasty Clash
+-  12 meses de nuevos aires para la pelota con el calendario del club Kurene de Sopela
+-  Comida solidaria en Bilbao para pasar la Navidad en compañía
+-  Você viu? Estupro de menina Yanomami, professores abonados e pescador agarra poraquê em RR
+-  El paso de la lluvia por Fuerteventura a vista de dron
