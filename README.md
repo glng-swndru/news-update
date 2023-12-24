@@ -1,11 +1,11 @@
 # Latest News
--  Who is the winner of Masked Singer Season 10?
--  India is testing the use of AI to improve weather forecast accuracy
--  Urgent action needed to curb info pollution: Naz Baloch
--  Zimski spektakl u Gospiću: Malonogometni turnir s nagradnim fondom od 4.300 eura!
--  Νέες απειλές από τους Χούθι: "Η Ερυθρά Θάλασσα θα γίνει φλεγόμενη αρένα"
--  الیکشن کمیشن نے تحریک انصاف سے بلے کا نشان لے کر بہت غلط کیا، صدر سپریم کورٹ بار نے خرابی کی نشاندہی کر دی
--  Otkriven Novakov autfit za Australijan open FOTO
--  חברת Gloat מגייסת עובדות ועובדים
--  ఆ 2 గంటలు.. చావుతో పోరాటం!
--  VANREDNO OBRAĆANjE PREDSEDNIKA: Ne brinite, građani Srbije - Nikakva revolucija nije u toku!
+-  Prezidentin qucağındakı həmin şəhid övladı...
+-  Vianočné upratovanie nikdy nebolo jednoduchšie: Koniec ulepeným skrinkám v kuchyni!
+-  Jednovaječné dvojčatá vyrastali v odlišných krajinách: Šokujúce rozdiely, toto zistili o sestre žijúcej v USA
+-  Božićna čestitka predsjednika države komentirala se i na zagrebačkoj špici
+-  El-Rufai Speaks After Meeting Obasanjo In Abeokuta
+-  결국 아스널 유니폼 입나…이적시장 전문가 “구체적인 시도 고려 중”
+-  في ثلاث مدن .. ضربات نوعية تطيح بمروجي المخدرات والسموم
+-  عاجل.. الإطاحة بـ 6 لصوص في الرياض.. سرقوا مركبات واستخدموها في عمليات سطو
+-  Medicul care a operat-o pe Rona Hartner spune tot despre boala artistei. Actrița a murit pe 23 noiembrie
+-  Dolly Parton affair: Star slams infidelity rumours and reveals why she didn’t have kids
