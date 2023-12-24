@@ -1,51 +1,51 @@
 # Latest News
--  "ไบเดน" สายตรง "เนทันยาฮู" วอนปกป้องพลเรือนในกาซา
--  Kış aylarının vazgeçilmezi kestanenin kilosu dudak uçuklattı
--  Instarán a aumentar reciclaje en propaganda
--  إجراءٌ عاجل داخل مستوطنات إسرائيلية قرب لبنان.. ما هو؟
--  Ateitis jau čia: sukūrė technologiją, galinčią „skaityti mintis“ (Video)
--  [ŽT] Bus revoliucija. „Maskva degs.“ Pulkininkas prognozuoja neįtikėtinus įvykius (Video)
--  Абате може тимчасово стати головним тренером Мілану
--  En France, la consommation de vin recule encore
--  Soyez le premier à accéder à la propriété en jouant à ce jeu de société
--  Jugé trop laid, cet hôtel 5 étoiles est menacé de démolition à Arcachon
--  Loi immigration : plus de 5000 soignants demandent le retrait du texte, jugé «mortifère pour la santé publique»
--  Face à l'inflation, les Français revoient leurs menus de fêtes
--  Noël : les Français n'ont jamais été aussi nombreux à prévoir de revendre leurs cadeaux, selon un sondage
--  Spotify, Nintendo, SNCF... Comment expliquer le succès fou des «rétrospectives»?
--  OpenAI et ChatGPT pourraient bientôt valoir 100 milliards de dollars
--  Vacances de Noël : un trafic exceptionnel sur les routes ce samedi 23 décembre, près de 900 kilomètres de bouchons cumulés
--  INDORE MP NEWS - पंजाब नेशनल बैंक ने बिना सूचना लॉकर तोड़ दिया, 84 लाख के आभूषण निकाल लिए
--  Как Турция стана рай за банди и престъпни босове
--  Soccerladuma | Possible Extension For Mngqithi At Downs
--  Wirja ta’ presepju fil-Maħżen tal-Armar fil-Mosta
--  Forget FAANG and GAMMA, the 'Magnificent 7' tech stocks - including Tesla and Nvidia - now dominate the market
--  어색한 포지션인데 스탯 미쳤다!...가로채기 8회+지상 경합 승률 86% →평점 8.6점
--  ماذا جرى في محيط عين التينة ليلاً؟
--  260 rescued from Birgunj transit point in a year
--  Premier ob praznikih: Slovenija se letos lahko spominja trenutkov, ki naj nas navdihujejo
--  Sri Lanka detains nearly 15,000 in drug crackdown
--  Local environmentalist wins case to preserve Indian burial ground
--  One year since Boksburg blast and no one's been held accountable
--  EC Premier Oscar Mabuyane wants to 'immortalise' Zahara with a cultural day
--  Founding member of country music's Dixie Chicks killed in car crash
--  Cak Imin: Dulu Dukung IKN karena Harap Investasi Besar Masuk tapi Nggak Ada
--  Anies Heran Diadukan ke Polisi soal 'AMIN': Kok Baru Sekarang?
--  ما هي استخدامات "مبرد الأظافر الكهربائي"؟
--  الدوار.. ما هي أسبابه وطرق الوقاية منه؟
--  Евакуирани 114 лица од сплавот што потона во Белград, очевидци раскажуваат: „мостот почна да пука, луѓето паѓаа во водата“
--  الميلاد ليس شجرة وزينة و"بابا نويل"
--  25 Kuruşun Maliyeti 1.64 TL'ye Çıktı!
--  Türksat, "Dijital Kimlik Doğrulama" ile kağıttan tasarruf etti
--  Hatayspor'un konuğu Beşiktaş
--  15 lüks araca el konuldu
--  PEVAČ JE HITNO EVAKUISAN! Otkriveno ko je nastupao na splavu u Beogradu u trenutku kada je kretao da tone
--  SAD SU IZGUBILE Vašington na nogama
--  NHL:ssä nähtiin melkoinen jouluyllätys
--  Sambangi Gereja di Solo, Ganjar Bicara Kerukunan Beragama
--  NSW Police search for cocaine packages washed up on several beaches
--  Halt und Gefahr durch Nostalgie: Früher war alles besser! - Wirklich?
--  LA NUEVA ESPAÑA de Avilés reúne a los portavoces municipales para hacer balance del año que termina
--  Ontologija tišine
--  Da roda aos cânticos. FC Porto reagiu à desilusão do Clássico e festejou
--  أماكن قد تُهدد اللبنانيين بـ"إنتشار أمراض"!
+-  Персидский лев, который грозен только на бумаге
+-  Противостояние Туска и Дуды. Столкнется ли Польша с политическим кризисом?
+-  Kickoff | Man City battle Barca to sign 'Next Messi'
+-  Тошкентда тўрт кишига қидирув эълон қилинди.
+-  Antep usulü kelle paça çorbasının püf noktası! Birçok kişi bu sırları bilmiyordu... Eğer Bunu Yaparsanız Tadına Tata Katıyor
+-  Džošua se vratio nokautom, ali svet boksa priča o velikoj senzaciji VIDEO
+-  Спортсмены из Энергодара и Мелитополя взяли медали на Кубке по муайтай
+-  Вижте най-печелившите куриерски фирми у нас, голяма изненада в Топ 3
+-  Каратисты Ставрополя привезли медали с турнира по Косики каратэ
+-  PT IMIP Ungkap Hasil Investigasi Awal Penyebab Tungku Smelter Nikel di Morowali Meledak
+-  Die Weihnachtsfest-Karriere: Wie Josef zum Patron der Patchworkfamilie wurde
+-  Епископ Сергей Ряховский назвал истинные смыслы Рождества
+-  Asal-Usul Ayam Gohyong, Kuliner Akulturasi dari Tinghoa dan Betawi
+-  TRT1’in beğenilen dizisine nokta koyulacak! Final tarihi ağızları açık bıraktırdı
+-  Aantal gemeenten dat vuurwerkverbod wil, loopt op: ‘lokale verboden niet te handhaven’
+-  Aantal gemeenten dat vuurwerkverbod wil, loopt op: ‘lokale verboden niet te handhaven’
+-  Интерконтиненталното дерби на Турция е за първото място
+-  Вместо бронирани машини: ВСУ изкарват на фронта стара техника без защита
+-  3분기 건설공사 계약액 45조5천억원…민간 부진에 급감
+-  В Нарьян-Маре назвали ровно два места для запуска салютов
+-  Белгородка посетовала на недостаток в Уразово детских педиатров и стоматологов
+-  Tierschützer fordern Abschaffung von Rassenliste
+-  Το Αφγανιστάν σταμάτησε την καλλιέργεια οπίου
+-  Gira il vento nei comuni: bastonate all’auto elettrica
+-  VIDEO Box: Înfrângere surprinzătoare pentru Deontay Wilder / Victorie clară pentru Anthony Joshua
+-  법원, 2주간 휴정기…1월 대형 사건 선고 앞둬
+-  На территории Смоленской области продолжается активная Подготовка к безопасности новогодних праздников
+-  여주 체육센터서 토치로 옥상 배수관 녹이다 화재...15명 대피
+-  SVS: Nema povređenih ni stradalih na splavu "Kartel"; Evakuisano 114 lica
+-  Ide kao alva: Za pola sata prodato prvih 1.000 primeraka
+-  Ova beogradska opština ostaje bez vode do daljnjega
+-  В экономику Ленобласти инвестируют 6,5 трлн рублей за семь лет
+-  Brand ausgelöst: Schiff im Indischen Ozean von iranischer Angriffsdrohne getroffen
+-  Καταδίωξη οχήματος στην περιφερειακή Αιγάλεω
+-  Tayland'da tur teknesinden kara haber: 2 kayıp
+-  Таен мост край Варна: Какво се знае за него?
+-  «У россиян осталось снарядов на полгода»
+-  Kakorlantas Polri Dapat Hibah Mobil Dinas BMW iX, Harganya Rp 2,5 Miliar
+-  CHP'nin adaylarının açıklanacağı tarih sızdı. Afişler asılmaya başlandı
+-  Trotz mehrerer Anklagen: Tiffany Haddish "ist guter Dinge"
+-  Corriere di Verona dopo il 2-0 al Cagliari: "L'Hellas torna a vincere dopo quattro mesi"
+-  Israel pushes for control in northern Gaza; Biden, Netanyahu discuss outlook
+-  ETF optimism fuels Bitcoin: How Borroe Finance fits into this new Crypto landscape
+-  Keine Festnahmen in NRW wegen Anschlagsplan auf Kölner Dom
+-  Meclis'te bütçe maratonu bitiyor
+-  اتحاد الكرة يدخل على خط "أزمة الوشم": لا نريد اتساع رقعة الخلاف في لجنة الحكام
+-  Vidéo. Périgueux : « Opération virtuose » pour redonner à l’orgue de l’église de la Cité une justesse irréprochable
+-  Названа связь между первым поцелуем и будущим влюбленных пар
+-  Żywność na święta droższa o ok. 6,4 proc.
+-  TikToker Korea, Seo Won Jeong, Sering Bikin Konten Bareng Artis Indonesia Ditangkap Kasus Pelecehan
