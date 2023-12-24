@@ -1,11 +1,11 @@
 # Latest News
--  이번 시즌까지 이강인과 함께!...음바페, 오는 겨울 이적시장에선 떠나지 않는다
--  عاجل.. أهم 10.. تنفيذ حكم الشرع في امرأة ارتكبت جُرمًا شنيعًا ورجل أنهى حياة زوجته وتحذير الأرصاد
--  ظاهرة مزعجة في الشتاء.. كيف يمكنك التخلص من برودة القدمين عند النوم؟
--  تنويه مهم من حساب المواطن بشأن جميع المكافآت الجامعية وتأثيرها على الدعم الشهري
--  المملكة ترحب ببيان المبعوث الأممي إلى اليمن بشأن التوصل إلى خارطة طريق لدعم مسار السلام
--  Acusa Tabasco que oportunismo y rumores alentaron psicosis
--  Arrecia guerra en Gaza y ensombrece Nochebuena en Belén
--  Israel’s war on Gaza ‘century’s most destructive’, US paper; 'Our lives, culture in rubble,' Mayor
--  JANA HOCKING: I'm sorry, but these are the signs your Christmas is 'bogan': Supermarket roast chooks, Jatz crackers on a platter, 'snags' and tacky 'fast fashion' presents
--  Der Durst nach Kontakt: Wie Einsamkeit Geist und Körper verändert
+-  City Seen Flashback: Pictures from Inverness at Christmas 2015
+-  Şiddetli tipi yüzünden araçlar hareket edemedi
+-  Galatasaray'dan penaltı tepkisi!
+-  Galatasaray, Kadıköy'den 1 puanla dönüyor
+-  Fenerbahçe'nin galibiyet serisi derbide sona erdi
+-  שר הפנים הבריטי "התבדח": "מכניס סם אונס למשקה של אשתי כל ערב"
+-  İsrail ordusu duyurdu: 5'inin cesedine ulaşıldı
+-  Ayefele Preaches Moderation, Love At Christmas
+-  Galatasaray'dan Fenerbahçe derbisi sonrası TFF'ye başvuru! ''Gerekli cezalar verilsin, takipçisi olacağız''
+-  Muslera'dan maç sonunda itiraf geldi! ''Hem Livakovic hem benim için sakin bir maç geçti''
