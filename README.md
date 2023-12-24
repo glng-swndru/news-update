@@ -1,11 +1,11 @@
 # Latest News
--  Prezidentin qucağındakı həmin şəhid övladı...
--  Vianočné upratovanie nikdy nebolo jednoduchšie: Koniec ulepeným skrinkám v kuchyni!
--  Jednovaječné dvojčatá vyrastali v odlišných krajinách: Šokujúce rozdiely, toto zistili o sestre žijúcej v USA
--  Božićna čestitka predsjednika države komentirala se i na zagrebačkoj špici
--  El-Rufai Speaks After Meeting Obasanjo In Abeokuta
--  결국 아스널 유니폼 입나…이적시장 전문가 “구체적인 시도 고려 중”
--  في ثلاث مدن .. ضربات نوعية تطيح بمروجي المخدرات والسموم
--  عاجل.. الإطاحة بـ 6 لصوص في الرياض.. سرقوا مركبات واستخدموها في عمليات سطو
--  Medicul care a operat-o pe Rona Hartner spune tot despre boala artistei. Actrița a murit pe 23 noiembrie
--  Dolly Parton affair: Star slams infidelity rumours and reveals why she didn’t have kids
+-  [ŽT] Netikėta žinia. Estija skelbia, ką darys su ukrainiečiais
+-  „Atskleidė jau patvirtintus planus.“ Kuri valstybė Putino sąraše sekanti
+-  Mercato - FC Nantes : Il planifie son transfert, sa destination dévoilée
+-  Şehit babası: Demirtaş ve Kavala'ya özgürlük isteyenlere hakkımı helal etmiyorum
+-  AB'den 'Gazze' uyarısı
+-  İsmail Yüksek: Liderliğimiz devam ediyor
+-  Türkiye kahraman şehitlerini uğurladı...
+-  Vučić o protestima u Beogradu: Nikakva revolucija nije u toku
+-  Mitos de Natal: Papai Noel não é inimigo de Jesus e nem foi inventado pela Coca-Cola
+-  Memes. Ya se reportan víctimas del apagón
