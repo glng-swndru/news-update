@@ -1,11 +1,51 @@
 # Latest News
--  Ukraine’s new Christmas Day unites Catholic-Orthodox family
--  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 24 décembre – Nikola Jokic reçoit le trophée de MVP dans son écurie
--  Müller, Oberdorf und Co.: So feiern die Sportstars Weihnachten
--  عريس يعقد قرانه على حبيبته بالمستشفى فور تشخيصه بالسرطان.. وهذا ما حدث أثناء علاجه
--  Глава МО Украины Умеров заявил о конкуренции Киева за боеприпасы
--  Giovanni Zarrella: Bruder Stefano verrät – SO verbringt die Familie Weihnachten
--  Hariprasad’s remarks that those terms Congress as Tipu Sultan’s follower were boot lickers of British ruffles BJP’s feathers
--  Two workers rescued in Thiruvananthapuram, as earth caves in
--  Fenerbahçe-Galatasaray derbisine geri sayım: 11'ler belli oldu
--  Berkali-kali Singgung Cuaca, Nayeon TWICE: Ini Natal Paling Panas
+-  Bliži se kraj roka kojeg je postavio visoki predstavnik: Kako će glasati državni poslanici?
+-  ВМС Ирана получили новые крылатые ракеты
+-  Upravljanje gradovima jednostavnije uz IoT rješenja
+-  Man Utd takeover CONFIRMED as Sir Jim Ratcliffe buys 25 per cent of club to kickstart new era
+-  Man Utd takeover CONFIRMED as Sir Jim Ratcliffe buys 25 per cent of club to kickstart new era
+-  Merry Christmas from Geeky Gadgets
+-  Wolves edge wasteful Chelsea 2-1 on Christmas eve
+-  Idaho Falls man arrested in early-morning SWAT team response
+-  Second suspect arrested in theft of Banksy stop sign artwork featuring military drones
+-  S’porean shares heartfelt message to maids in SG who can’t be with their families during Christmas holidays
+-  Weihnachten in Kindertagen: 4 bekannte Südtiroler erinnern sich
+-  In Christmas message, Trudeau urges Canadians to find strength in differences
+-  Mehr Geld für Schutz jüdischer Einrichtungen: Landesregierung stockt Mittel für 2024 auf
+-  Задържаха превантивно мъж в Словакия, готвел масова касапница като в Прага
+-  The top 10 in-demand jobs by salary growth in US: analysis
+-  Prezidentin ailəsi ilə doğum günü
+-  Mit Raketen und Kostümen: Wie die Karthikapallils aus Schwerte in Indien Weihnachten feierten
+-  Neubau des Multikulturellen Forums in Lünen: Nach Baustart kommt die Unterbrechung
+-  A second American civil war wouldn’t look like a movie
+-  İstanbul'da şehitler ve Filistin için yürüyüş düzenlendi
+-  Chelsea'de kötü gidişat durmuyor!
+-  „Син на годината“ од Тетово: Дивјачки ја рушил портата на татко му, му го смачкал возилото, па насрнал и на него
+-  الدويري : الحوثي ذكي و رقم صعب - فيديو
+-  جيش الاحتلال ينسحب من بيت حانون ويستهدفها بالطيران
+-  الحوثيون: بارجة أميركية أطلقت النار على طائرة يمنية بالبحر الأحمر
+-  الموسوي: نحن أمام معادلات كبرى تصنعها المقاومة واليوم زمن تشبيكها
+-  Konačno! Evo kada će novac od pomoći EU biti na računima građana
+-  Chelsea SUB is booked in Wolves defeat as fans moan ‘the indiscipline in this team is outrageous’
+-  Chelsea SUB is booked in Wolves defeat as fans moan ‘the indiscipline in this team is outrageous’
+-  Pidió defensa de 'El Cumbias' audiencia privada
+-  Srbi opleli po aferi Gorana Višnjića: ‘Sramno je varao suprugu, ima izvanbračnu kćer’
+-  VIDEO Viralna snimka Ronalda i McGregora: Cristianov izraz lica govori tisuću riječi
+-  Apsurdna situacija u Azerbejdžanu: Klub otpustio legendarnog trenera kad je otišao na sahranu majke, izrazili saučešće - i predstavili bivšeg trenera Zvezde!
+-  الحوثيين: بارجة أمريكية فتحت النار على طائرة استطلاع يمنية في البحر الأحمر
+-  Emotional Mario Lemina dedicates win over Chelsea to dad who is in hospital in powerful post-match interview
+-  Emotional Mario Lemina dedicates win over Chelsea to dad who is in hospital in powerful post-match interview
+-  VIDEO | Über dieses Tor staunt die NHL
+-  Trump pide a una corte de apelaciones desestimar la demanda por el asalto al Capitolio
+-  Trump pide a una corte de apelaciones desestimar la demanda por el asalto al Capitolio
+-  Dolly Parton, 77, reveals which cosmetic procedures she regrets
+-  الیکشن کمیشن نے سیاسی جماعتوں کی تازہ فہرست جاری کردی
+-  Bollywood singer Nikhita Gandhi, Rapper Big Deal steal the show at Patha Utsav in Odisha capital
+-  مجلس شئون التعليم والطلاب بجامعة الفيوم يبحث برنامج إعداد معلم العلوم التربوية والسياحية
+-  Волейболисты "Шахтера" стали шестикратными обладателями Кубка Беларуси
+-  Michael Cohen: 'Trump will continue to ride this grift as long as he can'
+-  Mother of woman killed by impaired driver: plan safe ride home during holidays
+-  Maharashtra: Man killed by duo on suspicion of mobile phone theft in Nagpur
+-  Kao u dobra stara vremena: Grad heroj ponovo šetao za Ukrajinu a Mandiću poručio da je u avionskom režimu
+-  Jhalak Dikhhla Jaa: Vivek Dahiya and Divyanka Tripathi renew their wedding vows
+-  Christmas 2023: Date, history, significance, here`s all you need know
