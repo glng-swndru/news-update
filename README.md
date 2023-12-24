@@ -1,51 +1,51 @@
 # Latest News
+-  Вучич заявил о задержании 35 человек в ходе беспорядков в Белграде
+-  Packers resisten andanada de los Panthers y ganan para seguir con aspiraciones a playoffs
+-  Bluebird Investments unveil $5m warehouse development
+-  צעירה גילתה שיש לה 77 אחים "סודיים" שלא ידעה על קיומם
+-  Harry Kane finally moves out of hotel after Bayern Munich team-mate's 'worry'
+-  Mujer se disfraza de hombre para intentar fugarse del penal de Santa Marta Acatitla; la descubren
+-  Dictan prisión preventiva a Enrique L. A., alias “El Cumbias”
+-  Marlon Brando asked iconic singer 'to f***' while wife was in other room but she had brutal response
+-  Slovakia's police arrest man who threatened to copy fatal Prague shooting
+-  Moments that changed everything for these celebrities | Rewind 2023
+-  Warm, sunny Christmas day expected with temps dropping through the week
+-  Last-minute shoppers flood stores days ahead of Christmas
+-  Florida Crimes of The Week: Deputy arrested for DUI
+-  Historic clock tower chimes again
+-  Matthew Perry's ex reveals tragic details of star's addiction
+-  Undercover Santa filmed carrying out drug busts in Peru
+-  Quão grande um floco de neve consegue ficar na natureza?
+-  Resmi Gazete'de duyuruldu: 1321 gelir uzman yardımcısı alınacak
+-  Brezilya'da uçak kazası: 5 ölü
+-  Šapić o protestu ispred Skupštine grada: To su mogli da urade samo ljudi bez svesti i odgovornosti
+-  Car’s front wheel ripped off by tree in shocking crash on Spencer Hwy in South Australia
+-  Τρένο…
+-  Сара Нетаниягу обратилась к Папе Римскому с просьбой содействовать возвращению похищенных израильтян
+-  В Горловке после удара ВСУ горит один из крупнейших ТЦ: видео
+-  „Do Božića celom svetu“: Vučić najavio „važno pismeno o uplivu strane zemlje“ u izbore
+-  Son dakika haberi: Edin Dzeko'dan flaş Galatasaray paylaşımı! Mauro Icardi hakkında...
+-  Integraba un reconocido clan, tenía pedido de captura desde 2021 y fue detenido por Gendarmería
+-  Timnas Indonesia Berusaha Keluar dari Zona Nyaman Jelang Piala Asia 2023, Latihan Fisik Jadi Kunci Penting
 -  Field of Dreams actor Mike Nussbaum dies aged 99
+-  Field of Dreams actor Mike Nussbaum dies aged 99
+-  El video viral de Jaime Alvarado cuando le preguntaron por Junior
+-  Sebastián Yatra dedicaría balada a Aitana en su próximo disco
+-  Therapist shares 2024 mental health predictions and tips for a healthier new year
+-  سلطات القليعة تواصل شن حملة تحرير الملك العمومي
+-  Ceccarini: "David operazione sempre molto complicata a livello economico"
+-  BOGDAN POGINUO NA PRVOJ LINIJI FRONTA U UKRAJINI Glumac pogođen tokom borbenog zadatka
+-  Grandes empresas lideraron el empleo con el 55,1% durante 2021, según el INE
+-  La película de ciencia ficción más larga del mundo: este fracaso cinematográfico solo se convirtió en culto por su versión de 5 horas
+-  ¿Cuál es tu Santa favorito? Chayanne y Julián Gil muestran su espíritu navideño
+-  The Repair Shop viewers sob as woman’s late son is honoured with special Abba tribute
+-  Εύβοια: Άνδρας έπεσε από μπαλκόνι στη Νέα Αρτάκη – Εντοπίστηκε σε κωματώδη κατάσταση
+-  Pochettino Geregetan Chelsea Buang-buang Peluang Lagi
+-  Cegah Pemadaman Listrik Berdampak ke Pasien, Ini 5 Sumber Listrik di Rumah Sakit
+-  Heartwarming Study Shows Non-Human Apes Recognize Friends Even After Decades Apart
+-  "Плитък" секс - техника, която гарантирано увеличава удоволствието за жените
 -  Sportitalia - Longari: "Juve a caccia del centrocampista. De Paul il non plus ultra per Allegri"
+-  Burial of Zimbabwe jazz maestro Bob Nyabinde set for Tuesday
+-  Aaj Ka Tarot Card: वृष, कर्क और कन्या समेत इन राशि वालों के लिए लकी रहेगा दिन, जानें किनको होगी दिक्कत
 -  Artista Paula Seling împlineşte 45 de ani. Piesa care i-a lansat cariera și a fost un succes uriaș VIDEO
--  The First-born of all that is
--  Katolici slave Božić
--  Katolici slave Božić
--  BHOJ University को यूजीसी और DEB ने डीलिस्ट किया, एडमिशन पर प्रतिबंध - NEWS TODAY
--  Jim Ratcliffe Resmi Berinvestasi di Manchester United, Awal Baru untuk Pemulihan Setan Merah
--  Teenager dies in Christmas Eve water-tubing accident
--  Light & Power wants comprehensive regulatory reform
--  Rosy Meurer, Olakunle Churchill Celebrate 4th Wedding Anniversary
--  حظك اليوم وتوقعات الأبراج 25-12: حظ سيء لهذا البرج.. وأخبار سارة لـ الجوزاء
--  Uche Ebere Criticises Emeka Ike’s Ex-Wife For Allowing Her Son Grant Interviews
--  Marcelo bebeu ginjinha e brindou "à paz" acompanhado do cardeal Américo Aguiar
--  "Treba imati u vidu i podstrekače nereda"! Dačić poslao jasnu poruku: "Trebaju nam uzdržanost i mir"
--  Ağrı'da feci kaza! Yol açma çalışması yapan iş makinesi uçuruma yuvarlandı
--  Fort Smith: Celebrating Christmas Eve and a birthday
--  «QNB» يحصد تصنيفات «يوروموني»
--  B&M fans go wild over Skittles and Starburst flavour they ‘need to try’
--  Casa iluminada de Blumenau é destaque no Domingão com Huck Especial de Natal
--  Irán y Nicaragua acuerdan más apoyo al pueblo palestino y condenan la ofensiva de Israel
--  Dos malas y una buena: la actualidad de los rugbiers mendocinos en el final del 2023
--  Près de Tours, un jeune renversé par la police - 24/12
--  Vaucluse : le maire agressé témoigne sur BFMTV - 24/12
--  ALKARAZ OTKRIO PLAN: Španac potvrdio učešće na ovih PET turnira!
--  OTIMAČINA SVETINJA: Priština bez konsultacija sa SPC vrši radove u crkvi u selu kod Mitrovice i proglašava je „katoličkom crkvom“!
--  Publican video que muestra el asesinato del rapero Lefty SM
--  Pertempuran beralih ke selatan Gaza
--  Jimmy Barnes gets into the festive spirit as he celebrates Christmas with his family following open heart surgery
--  Etecs de SP conquistam 42 medalhas na Olimpíada Brasileira de Matemática 2023
--  مسئولة الاتصال بالهلال الأحمر: المستشفيات في شمال غزة خارج الخدمة والوضع يزداد سوءا
--  Ho-Ho-Ho: Aquí puedes ver dónde está Santa Claus y seguir su recorrido en vivo
--  Devastated mum says her ‘world is shattered’ as son, 15, and 18-year-old killed in horror three-car crash
--  6 das viagens de trem mais incríveis do mundo
--  'Pokušaj Majdana': Policija razbila proteste u Beogradu
--  バルテリ・ボッタス レッドブルF1で苦境に立つセルジオ・ペレスに助言
--  Atilla Taş'ın tutuklanmasına neden olan görüntüler ortaya çıktı
--  Kekal waspada terhadap COVID – Uggah
--  SIU investigating after police officer fired weapon while responding to home invasion in Vaughan
--  What happened to football on Christmas Day? The lost history of a Victorian tradition
--  "MILINKOVIĆU, OČI TI ISPALE" Našeg pevača ŽENA KUĆI NAPALA ZBOG ZGODNE PEVAČICE, evo šta se desilo
--  La revelación de un futbolista amigo del Papu Gómez sobre su pelea en la Selección: “Fue algo triste lo que…”
--  "Rat" u Turskoj - Ikardi sa podlivom, Džeko poručio: Plaču za penalom, sramno VIDEO
--  Parliament | Breakdown of Civility
--  Bakan Güler açıkladı: 30 terörist öldürüldü
--  Poginuo vozač u slijetanju automobila s ceste u Lapatu
--  తెలంగాణ విధ్వంసకారుడు కేసీఆర్‌
--  Wigilijna noc na polskich drogach. Najnowsze informacje
--  ప్రజాస్వామ్య స్ఫూర్తికి విరుద్ధం ‘ఉపా’
--  El espectacular video del Atlético de Madrid para la Navidad hablando de los hinchas colchoneros
+-  'Do You Ever NOT Lie?' Ted Lieu Politicizes Tragic Miscarriage Story to Attack Republicans
