@@ -1,51 +1,51 @@
 # Latest News
--  شكوى ضد 4185 مرتزقا فرنسياً بتهمة التواطؤ مع الاحتلال
--  حل 40 جمعية خيرية بالأردن - أسماء
--  جامعة عمان الأهلية وجامعة أبو ظبي تبحثان التعاون المشترك
--  الأمراض تفتك بأطفال غزة
--  טקסים לזכר הנופלים ושיאים רבים נשברו בתחרות הארצית בשחייה
--  אייל סגל יחליט על המאמן הבא של נתניה, אלמוג כהן לא מעורב בהחלטה
--  Россия нимани афзал билади: ишончга кириш ёки куч ишлатиш?.
--  Acidente de autocarro faz pelo menos 19 mortos e 40 feridos na Nicarágua
--  İsrail'in vahşeti Hitleri geçti! Mezardaki Filistinlileri çıkarıp buldozerlerle ezdiler
--  Gaziantep FK'nin galibiyet hasreti son buldu
--  Sancaktepe'de feci kaza: Araçlar kullanılmaz hale gelirken 4 kişi ağır yaralandı
--  Utrecht's Jaarbeurs to host temporary vinyl shop with over 100,000 records for sale
--  DEBATT: Låt inte årets julklappströja sluta sina dagar i soporna
--  En Bilindik Otobüs Firmalarından "Ulusoy Turizm"i Neden Artık Yollarda Göremiyoruz?
--  Hyderabad: భార్య జెడ్పీటీసీ.. భర్త దొంగ..! మీరు విన్నది నిజమే.. అసలు కథ ఏంటంటే..
--  Xavier McKinney, Jason Pinnock give Giants top-notch safety tandem with uncertain future
--  Boks spektakl pripao Džošui! Entoni se vratio, Ronaldo i Konor Mekgregor iz prvog reda gledali nemilosrdnu borbu /VIDEO/
--  Bronze Bomber Battered: Joseph Parker Shocks Deontay Wilder in “Day of Reckoning” Upset
--  'ห้วยน้ำดัง'หนาวจับใจ อุณหภูมิต่ำสุด6องศา คาดลดลงอีกต่อเนื่อง
--  นัดมาเคลียร์! หนุ่มส่งพัสดุถูกคู่อริแทง เสียชีวิตหน้าร้านคาร์แคร์
--  ยิปซีพยากรณ์ดวงรายวัน ประจำวันอาทิตย์ 24 ธันวาคม 2566​
--  ข้าคือจอมขมังเวทย์!ชายชาวอุดรฯหลอนยาท่องคาถาหายตัว สุดท้ายไปต่อที่โรงพัก
--  สวนนงนุชพัทยา นำช้างแสนรู้สร้างสีสันวันคริสต์มาส ต้อนรับปีใหม่
--  NBM กราบขออภัย แจงเหตุรางจ่ายไฟ‘รถไฟฟ้าสายสีชมพู’หลุดร่วง
--  ตลาดไทยลาวหนองคายคนแน่น เลือกซื้อเสื้อกันหนาวมือสอง แนะซักก่อนใส่
--  ‘รถไฟฟ้าสายสีชมพู’นิวไฮ! 22 ธ.ค.ผู้โดยสารทะลุ 1 แสนคนครั้งแรก ดันใช้‘ระบบราง’ทุบสถิติ
--  London mayor relents on giving scrap cars to Ukraine — RT World News
--  "Silbernetz"-Hotline bis Neujahr durchgehend erreichbar
--  অবরোধের সমর্থনে রাজধানীতে জামায়াতের বিক্ষোভ
--  আচরণবিধি মানাতে কঠোর হচ্ছে ইসি
--  ডিএমপির মাদকবিরোধী অভিযানে ৩৮ জন গ্রেপ্তার
--  ধোলাইপাড়ে বিএনপির মিছিল
--  ৭ ঘণ্টা পর দৌলতদিয়া-পাটুরিয়া নৌরুটে ফেরি চলাচল শুরু
--  ঢাকা জেলা বিএনপির সভাপতি আশফাকের নেতৃত্বে মিছিল, আটক ১১
--  যশোরে ট্রেনের ধাক্কায় ট্রাকচালক ও হেলপার নিহত
--  ঢাকা মহানগর দক্ষিণের বিভিন্ন স্থানে জামায়াতের সড়ক অবরোধ ও বিক্ষোভ
--  নিকারাগুয়ায় সড়ক দুর্ঘটনায় শিশুসহ ১৯ জন নিহত
--  শুনানিতে অংশ নিতে শ্রম আদালতে ড. ইউনূস
--  সারা দেশে কমতে পারে রাতের তাপমাত্রা, পড়বে মাঝারি থেকে ঘন কুয়াশা
--  অবরোধ: সারাদেশে ১৪৭ প্লাটুন বিজিবি মোতায়েন
--  শক্তিশালী প্রতিদ্বন্দ্বী না থাকায় ফুরফুরে মির্জা আজম
--  শীতে আদা খাওয়ার স্বাস্থ্য উপকারিতা জানলে চমকে উঠবেন
--  ভারত মহাসাগরে ভাসমান ১৮৫ রোহিঙ্গাকে দ্রুত উদ্ধারের আহ্বান জাতিসংঘের
--  ٓآن لائن کاروبار کیلئے لائسنس لازمی قرار، طریقہ کار سامنے آگیا
--  Connor Bedard och Trevor Zegras med två zorro-mål – samma natt
--  Former Dynamos Player and Coach David George Has Died
--  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
--  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
--  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
--  Big Bash League: Adam Voges reveals why Perth Scorchers chose Aaron Hardie as captain over Josh Inglis
+-  롯데리아, 앱 ‘롯데잇츠’ 통해 한우불고기 버거 세트 … 최대 50% 할인
+-  सर्वोच्चका मुख्य रजिष्ट्रार र रजिष्ट्रार उच्च अदालतका न्यायाधीशमा सिफारिस
+-  Envisioned rules revision to reduce number of capital gains tax payers by 70%
+-  Yoon's approval rating inches up to 38.8%: poll
+-  Mikael Granlundin tehovire jatkuu – Aleksander Barkov loisti finaaliuusinnassa
+-  Artist's painterly ode to childhood memories
+-  Fondazzjoni Sebħ asks people to spare a thought for domestic violence victims during holidays
+-  Ram Mandir inauguration: क्या भगवान राम दिलाएंगे बीजेपी को 50% वोट ?
+-  Elindult a felvételi, jön a pedagógus béremelés – ezek voltak a hét legfontosabb történései
+-  EPL: Ten Hag lists six Man Utd players he’s expecting goals from
+-  HSBC Malta Foundation’s Christmas initiative supports over 30 NGOs
+-  בקרית שמואל יחלקו כבוד אחרון ללוחם שנפל
+-  동학혁명을 주도했던 인물들이 나고 자란 곳
+-  Da li ste počeli sa pisanjem novogodišnjih odluka: Izdvajamo jedan od hotela koji se mora naći na vašoj listi
+-  Ular sawa kekenyangan telan ayam ditangkap
+-  VIDEO: साउथ अफ्रीका ने 6 साल पहले जिससे कर लिया था किनारा, भारत के खिलाफ टेस्ट सीरीज से पहले अब वही बना सहारा!
+-  Νέες επιθέσεις εναντίον πλοίων στην Ερυθρά Θάλασσα και στα ανοικτά της Ινδίας
+-  عاجل.. بدء سريان توطين مهن المبيعات والمشتريات وإدارة المشاريع
+-  Religious quotes and news – December 24, 2023
+-  寒流低溫與水氣加持 南投仁愛、國姓梅花已開3、4成
+-  Na Marjanu će se i ovoga Badnjaka održati najranija ponoćka na svijetu. Ako ne stignete, bez brige, tu je raspored misa
+-  Cutremur de magnitudine 4 în Vrancea
+-  Джошуа технічним нокаутом переміг Валліна в Саудівській Аравії
+-  KPU Diminta Buka Data Riwayat Hidup Caleg di Pemilu 2024
+-  Forecasting fashion trends for 2024
+-  Sandeep Reddy Vanga reveals Parineeti`s reaction to being let go from `Animal`
+-  Uttar Pradesh News । राज्यपाल Anandiben Patel के दौरे में लगाई मृत कर्मचारी की ड्यूटी, लिपिक निलंबित
+-  Blagdansko čudo: žena s dvostrukom maternicom rodila dva puta u dva dana nakon 20 sati trudova
+-  Jammu Kashmir के बारामूला में आतंकियों की कायराना हरकत, नमाज पढ़ने के दौरान Retired SSP को गोली मार कर की हत्या
+-  В России резко вырос дефицит кадров
+-  Kerala News । तिरुवनंतपुरम में हिंसा, कांग्रेस नेताओं के खिलाफ पुलिस ने दर्ज किया मामला
+-  Cristiano Ronaldo podziwiał wieczór bokserski w Rijadzie, zwanym „Dniem Rozrachunku” z udziałem Joshuy, Wildera, Parkera, Dubois i Biwoła
+-  BREAKING । WFI को लेकर खेल मंत्रालय का बड़ा फैसला, नया कुश्ती संघ किया निलंबित
+-  Jeziva noć u Beogradu, ljudi su skakali u vodu: Potonuo splav, svemu prethodio incident
+-  पहलवानों के ‘दंगल’ के बीच सरकार ने WFI को ही कर दिया सस्पेंड, ब्रजभूषण के प्रभाव में काम करना बड़ी वजह
+-  Soccerladuma | Ouch! Liverpool Star Hospitalised After Colliding With Klopp
+-  “الإعلامي الحكومي” بغزة: ارتفاع عدد الصحفيين القتلى إلى 100
+-  ทบ.ลงโทษ "สิบเอก" บุกบ้านทหารหญิงหวังล่วงละเมิด
+-  Ekşi Sözlük'te kahraman şehitlere hakaret ettiler: 'Kurtulalım sizden'
+-  BILA JE LEPA KAO LUTKA, A ONDA JU JE BOLEST IZDEFORMISALA: Ceo život su joj se RUGALI, a njena sudbina je TRAGIČNA (VIDEO)
+-  Il Roma apre con il ko del Napoli a Roma: "Natale all'inferno". Nel mirino anche gli arbitri
+-  होम लोन घोटालाः पूर्व विधायक अंतरसिंह दरबार सहित आरोपियों को एक साल की सजा, अर्थदंड भी लगाया
+-  Weather News: कोहरे की सफेद चादर से ढका दमोह शहर, सड़क पर लाइट जलाकर रेंगते नजर आए वाहन
+-  "Σφυρί" για οικόπεδο 4,5 στρεμμάτων στον Ωρωπό
+-  Chhindwara: अपने खिलाफ भ्रामक पोस्ट देखकर आगबबूला हुए भाजपा जिला अध्यक्ष, पूर्व कैबिनेट मंत्री पर लागाए आरोप
+-  MP Politics: जीतू पटवारी ने विभागों से मांगी अपने काम की रिपोर्ट, लगातार चार दिन तक करेंगे संगठन की समीक्षा
+-  MP News: कटनी पहुंचे पूर्व सीएम शिवराज सिंह चौहान, कहा- मोहन यादव के नेतृत्व में MP छुएगा विकास की नई उंचाई
+-  Трассы горных курортов Сочи закрыли в связи с непогодой
+-  ‘നേര്’ വൻ വിജയത്തിലേക്ക്, വിജയാഘോഷത്തിൻറെ വീഡിയോ
+-  위메이드, 왐포아 디지털과 1억 달러 규모 웹3 펀드 조성 위한 파트너십
