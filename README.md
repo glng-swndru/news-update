@@ -1,51 +1,51 @@
 # Latest News
--  Marko Grubnić objavio božićnu čestitku, a Maja Šuput se javila s duhovitim komentarom
--  Jeder Dritte betroffen: Wie Einsamkeit krank macht – gerade an Weihnachten
--  Российский сноубордист Уайлд планирует выступить на Олимпийских играх 2026 года
--  Legendarni hrvatski izbornik uoči EP-a vaterpolista: “Imamo jaku ekipu, pokrivenu na svim mjestima”
--  Taksici, korsan taksiciyi tehdit edip, kameraya kayda aldı
--  İstanbul'da dehşete düşüren olay! Motosikletli saldırgan 2 kişiyi öldürdü
--  Uhapšen Podgoričanin: Osumnjičen za silovanje i nasilje u porodici
--  ما هو محور فيلادلفيا على الحدود المصرية مع قطاع غزة؟
--  عقدة الناجي.. ..كيف تتعامل مع الشعور بالذنب تجاه ضحايا غزة؟
--  ما أهم عوامل الإصابة بسرطان البروستاتا؟
--  افتتاح محطة وقود جديدة تابعة لشركة المناصير للزيوت والمحروقات باسم محطة الكرامة الزرقاء
--  محللون إسرائيليون: وحل غزة بات واقعا
--  منشورات مفزعة لسفاح الجامعة في براغ
--  ميتا ترفض منع ميزة ساعدت في استغلال الأطفال
--  Weihnacht im Krieg: Prozession von Jerusalem nach Bethlehem
--  عاجل.. إيداع 964 مليون ريال في حسابات مُستفيدي "سكني" لشهر ديسمبر
--  Мостовой считает Месси лучшим футболистом мира в 2023 году
--  Perth mother facing homelessness at Christmas
--  Perth mother facing homelessness at Christmas
--  El Teide regala a Tenerife una nevada por Navidad
--  Минобороны: ВСУ за сутки потеряли на Донецком направлении до 350 военных
--  22-Jähriger begrapscht junge Frau im Hauptbahnhof: Polizei erstattet Anzeige nach sexueller Belästigung
--  Karnı Ağrıyan Hastanın Midesinden 450 Parça Metal Çıktı
--  AURO-3D เตรียมเปิดตัว AURO-CX Codec เทคโนโลยีสุดล้ำที่งาน CES 2024
--  Pro-Palestine protesters disrupt Carols by Candlelight
--  Pro-Palestine protesters disrupt Carols by Candlelight
--  Over 50% of users may shun social media by 2025 as misinformation, toxicity grow
--  ADANA SE PROVUKLA U PROŠLOM KOLU: "Škorpioni" osam godina bez pobede na ovom gostovanju
--  For the Billionaire Who Has Everything, Consider an Island in the San Francisco Bay
--  Autofahrer überfährt Fußgänger in Polen - drei Tote
--  Kirche: Wiesemann ruft zu mehr Mitgefühl auf: "Niemanden ausgrenzen"
--  AK Parti Ardahan belediye başkan adayı kim oldu? 31 Mart 2024 Ardahan AK Parti MHP CHP İYİ Parti yerel seçim belediye başkan adayları listesi
--  الامارات | حمدان بن محمد يعتمد صرف مكافأة أداء للموظفين المدنيين في حكومة دبي
--  APSOLUTNI REKORD U ISTORIJI SRBIJE: Vučić o devizinim i rezervama zlata
--  Kardeşlerim Dizisinde Sürpriz Ayrılık! O İsim Diziden Ayrılıyor...
--  ৭ জানুয়ারির ভোট জনগণ রুখে দেবে
--  CM Revanth Reddy : తెలంగాణ స్వేచ్ఛను హరిస్తే సహించం
--  РИА Новости: учёные выяснили, где находится царство Пунт
--  Collecte de déchets, parcs, musées... Les horaires changent pour les fêtes de fin d'année à Bordeaux
--  El servicio de teleasistencia aumenta su atención a los mayores que viven solos en Navidad
--  Balıkesir'de renkli günler başladı!
--  Kultur: LWL-Besucherbilanz 2023: Deutliches Plus für die Museen
--  BIOLOŠKOG OCA UPOZNALA KADA JE IMALA 20 GODINA Ana Sević odrasla samo sa majkom, nije znala ko joj je tata: Imao je DRUGU PORODICU, a evo u kakvim je danas odnosima sa polustestrom
--  Anthony Joshua u Rijadu nastavio niz pobjeda, u Rijadu je svladao Otta Wallina
--  Уелтон отвя конкуренцията за гол №1 на 1/8-финалите за Купата
--  ВС России уничтожили пусковые установки ЗРК ВСУ на аэродроме Староконстантинов
--  YK vaatii pelastamaan rohingyapakolaisia kuljettavan veneen Intian valtamerellä
--  Chroniqueurs, Bruce Toussaint, plateau... Ce que l'on sait de "Bonjour !", la future matinale de TF1
--  Нетаниягу на 79-й день войны против террора: "Это будет долгая война"
--  세종시, 감전사고 재발 방지 대책 마련… 목욕탕 등 전기안전시설점검 실시
+-  Torey Lovullo ilumina la Navidad
+-  UNAM beca a 74% de su matrícula; hay diferentes tipos de apoyo
+-  Un año más sin abrazar a su hijo desaparecido en Tijuana
+-  ¡Santa adelantado!
+-  Rechazan cifra de extraviados por paso de Otis por Acapulco
+-  Crean magia para chicos y grandes con Barbie
+-  Jadavpur Univ: Convocation Amid Chancellor Absence, Post Vice-Chancellor Resignation
+-  APL-2301, a compound developed by Asieris for the treatment of Acinetobacter baumannii infection, was approved for Phase I clinical trials in Australia
+-  Vira video: పోలీస్ స్టేషన్‌లో ఊహించని పని చేసిన భర్త.. ఫీలింగ్స్‌ను కంట్రోల్ చేసుకోలేక ఆ భార్య..వైరల్ వీడియో..
+-  Културологът Юлия Владимирова: Добра 2023 година, с няколко много впечатляващи кино заглавия
+-  نائب رئيس أركان الاحتلال السابق: لا مفر من الاتفاق مع حماس.. وتهديد غالانت للسنوار "غبي"‏
+-  Special nativity on display at church to remind Scots of Ukrainians’ plight
+-  Cuaca Kaltim: Hujan Petir Diprediksi Landa Tujuh Daerah Ini Senin
+-  मिमिक्री विवाद पर उपराष्ट्रपति ने खुद को पीड़ित बताया:ट्रेनी अफसरों से कहा- संवैधानिक पद पर हूं, फिर भी लोग नहीं बख्शते
+-  MoDo kallar tillbaka Pontus Eltonius från Frisk Asker
+-  Почеттіно: Ми будемо готові провести трансфери
+-  Beşiktaş'ın kamp kadrosu belli oldu!
+-  La solidaridad empieza a activarse para la familia que perdió su casa en Corredoira
+-  CHP'nin ortak bildiriye imza atma şartına AK Parti'den tepki: Utanç verici
+-  Gdzie jest święty Mikołaj? Sprawdź, czy już do ciebie leci
+-  Voetbalprogramma tijdens de kerst: lees hier welke wedstrijden er gespeeld worden
+-  Microsoft dan Chestnut Tandatangani Kesepakatan Penghapusan 3 Juta Ton Karbon
+-  Ərdoğandan İlham Əliyevə səmimi təbrik
+-  Dunki Box Office Collection Day 4: 'डंकी' भर रही 'सालार' की रिलीज का हर्जाना! वीकेंड पर भी नहीं कर पा रही धांसू कमाई, जानें चौथे दिन का कलेक्शन
+-  Klay Thompson en mode Père-Noël : 26 points de moyenne sur les six derniers matchs, cinq victoires pour les Warriors
+-  CHP’den ‘ortak bildiri’ eleştirilerine yanıt
+-  La decisión clave que demora el chavismo: de qué depende la habilitación de María Corina Machado
+-  Občani v akciji: Podali so se v lov za migranti, ki so poskusili ugrabiti najstnika, in jih predali policiji
+-  Občani v akciji: Podali so se v lov za migranti, ki so poskusili ugrabiti najstnika, in jih predali policiji
+-  Mit jelent a négyzet, és mit a háromszög a ruhacímkén? Tönkreteheted, ha rosszul tudod
+-  Nicht von Travis! Von ihr bekam Taylor Swift Geburtstagsring
+-  Hava ilə bağlı əhaliyə XƏBƏRDARLIQ
+-  Želite se dobro naspavati za Božić? Ovih 5 namirnica bi vam moglo pomoći u tome
+-  Le Monde après nous : le film Netflix peut-il avoir une suite ?
+-  Texas DPS Is Less Amused With The “Model Y Superheavy” Than We Are
+-  Kickoff | Man Utd 'line up' transfer for African star
+-  Masz ten smartfon Samsunga? Dostał Androida 14 i nową nakładkę
+-  Песните на Бајага и инструктори во еден глас ги пееја и тинејџери кои дојдоа заедно со своите родители на синоќешниот концерт
+-  크리스마스 영상 핸드폰에 담으며
+-  '크리스마스 미디어파사드가 궁금해'
+-  인파 가득한 신세계백화점 인근... 미디어파사드 인기 '후끈'
+-  '크리스마스 미디어파사드 구경왔어요'
+-  Şehitlere yönelik suç içeren paylaşımlara soruşturma
+-  "ULOŽIĆEMO VIŠE NEGO IKAD U OBRAZOVANJE I ZDRAVSTVO" Vučić najavio: Potrošićemo 2 milijarde na puteve, POTPUNO NOVI KRVOTOK SRBIJE
+-  크리스마스 미디어파사드 관람 인파
+-  Stade Toulousain : "Trop de plaquages manqués, de duels perdus, ce n'était pas compliqué de faire mieux " assure Matthis Lebel après le réveil de Toulouse face à Toulon
+-  בא לשכונה בחור חדש: שי אולארצ'יק, המאמן האלמוני של הפועל ירושלים
+-  మెట్రో.. రూట్‌ చేంజ్‌!
+-  مستوطنة توبخ جنديا من لواء "جولاني".. اتهمته بقتل الأبرياء (فيديو)
+-  크리스마스 미디어파사드 관람을 위해
