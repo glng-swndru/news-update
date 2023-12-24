@@ -1,51 +1,11 @@
 # Latest News
--  Nkunku desencanta, mas Chelsea perde para os Wolves na véspera de Natal
--  Dgcim se llevó a un capitán de su base en la frontera y la familia busca prueba de vida ante el silencio del chavismo
--  سنتامين: زيادة احتياطات الذهب لمنجم السكري إلى 5.8 مليون أوقية
--  بعد صعوده لأعلى مستوى.. سعر الذهب اليوم الأحد في مصر بتعاملات المساء
--  “Shpëtim për repartin e Ohrit”, paralajmërojnë protesta – Struga shumë shpejt do të mbetet pa tre pediatër
--  Andrés Lezcano guió al Comunicaciones a un nuevo título nacional
--  وزير الخارجية الأردني: أعاد الله العيد وقد زال الاحتلال وعادت الحقوق
--  El Horóscopo de las Mentes Gemelas: 24 de diciembre de 2023
--  Çocukları İstismarla Suçlanan İl Kültür Müdürü Tutuklandı
--  لخديم وكيشطا يستمتعان بطنجة وتيزنيت
--  Antonio Robles, el lector perfecto
--  প্রার্থিতা ফিরে পেলেন মেয়র মুহিবুর রহমান
--  Five killed in KZN crash as festive season road deaths climb
--  Western Cape police arrest over 460 suspects for various offences in one week
--  Slovačka policija uhitila muškarca zbog prijetnje da će kopirati napad u Pragu
--  Presidente Lula fará pronunciamento de Natal neste domingo
--  Pedro Sánchez llama a detener el sufrimiento "inaceptable e insoportable" de la población de Gaza
--  Qoku: Lëvizja Vetëvendosje, shtylla e katërt e opozitës shqiptare në Maqedoni
--  Bivši rukometni reprezentativac BiH: Ljudi u Savezu su se plaše za svoje stolice
--  Kontrolle über Porsche auf der A45 verloren: Mutter und Tochter verletzt
--  Motorista fica ferido após carro capotar e parar em meio a árvores às margens da TO-335
--  Nkunku-Tor zu wenig für Chelsea: 1:2 in Wolverhampton
--  Nkunku-Tor zu wenig für Chelsea: 1:2 in Wolverhampton
--  Slain Jammu And Kashmir Cop Laid To Rest In Baramulla, Police Detains Suspects
--  Moldavská prezidentka Sanduová chce opäť kandidovať v budúcoročných prezidentských voľbách
--  حزب الله يستهدف جنودا إسرائيليين بقلعة هونين
--  الاحتلال يزعم استشهاد 8 آلاف مقاوم
--  فورين أفيرز: نتنياهو أشرف على أسوأ هجوم وفشل استخباراتي بتاريخ إسرائيل
--  محافظ قنا: معبد دندرة الأجمل وسط المعابد الفرعونية في مصر
--  İsmail Kartal'dan derbi öncesi konuştu! Fred açıklaması
--  Uhapšen muškarac osumnjičen za uklanjanje Benksijeve instalacije
--  Adana Demirspor galibiyet özlemine son verdi!
--  Justin Bieber’s star-studded ski trip with Kendall Jenner and friends
--  Chandrababu: చంద్రబాబు ఇంట్లో ముగిసిన చండీ, సుదర్శన నారసింహ హోమాలు
--  Premier League: Erstes Heiligabend-Spiel seit 28 Jahren: Chelsea verliert
--  Dunki showcases tremendous growth as a feel-good film! Family audiences are celebrating the holiday season with the film!
--  MEGA EXCLUSIVE: Ranbir Kapoor, Alia Bhatt, Prabhas, Yash, Tiger Shroff, Ajay Devgn, Sunny Deol, Ayushmann Khurrana invited to Ayodhya Ram Temple inauguration ceremony
--  Comedian Neel Nanda dead at 32: Matt Rife and Dane Cook lead tributes remembering the beloved stand-up who worked on Comedy Central
--  2023 s'achève mais pas la sécheresse dans une partie de l'Occitanie
--  Ancienne escrimeuse d'Orléans, Manon Fleury a rangé son sabre pour la gastronomie
--  Merry Christmas Whatsapp Stickers Wishes: How to Download Happy Xmas Stickers Online for Whatsapp Status and Insta DM
--  وسائل إعلام إسرائيلية: سقوط صاروخين مضادين للدروع أطلقا من جنوب لبنان وسط مرغليوت الحدودية بالجليل الأعلى
--  YouTuber clarifies stance amid beef consumption allegations in Jagannath Temple row [WATCH]
--  Wolves slog Chelsea i ifrågasatt julaftonmatch
--  Fenerbahçe - Galatasaray derbisinde 3 yıldız kadro dışında kaldı
--  Ngirozi Yehondo Silent Killer, Bhanditi Seh Calaz In Nasty Clash
--  12 meses de nuevos aires para la pelota con el calendario del club Kurene de Sopela
--  Comida solidaria en Bilbao para pasar la Navidad en compañía
--  Você viu? Estupro de menina Yanomami, professores abonados e pescador agarra poraquê em RR
--  El paso de la lluvia por Fuerteventura a vista de dron
+-  Kal Ka Meen Rashifal: किसी प्रकार का न उठाएं कोई जोखिम, वरना होगा लाइफ में आ सकती हैं दिक्कतें
+-  Ordenan detención del expresidente salvadoreño Alfredo Cristiani por masacre de El Mozote
+-  ‘बदलाव यात्रा में खट्टर सरकार के दावों की खुली पोल’, कैथल में बोले अनुराग ढांडा
+-  정우성, '천만 배우' 됐다…'서울의 봄' 천만 관객 돌파
+-  Los valores biotecnológicos de pequeña capitalización muestran potencial de crecimiento en medio de las subidas de tipos
+-  Това са най-популярните подаръци не само в България, а и в още 5 други държави
+-  First Down: Može li netko spasiti Chargerse?
+-  NA SAMRTI OTAC ĆERKI OTKRIO TAJNU KOJU JE ČUVAO 50 GODINA Priznanje je bilo ŠOK i istovremeno rješenje JEDNE OD NAJVEĆIH MISTERIJA
+-  Setjen DPR RI Komit Berdayakan Perempuan
+-  छत्तीसगढ़ में दंतेवाड़ा-सुकमा सीमा पर पुलिस के साथ मुठभेड़, 3 नक्सली ढ़ेर
