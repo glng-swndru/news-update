@@ -1,11 +1,11 @@
 # Latest News
--  Video: Caminan migrantes hacia Ciudad Juárez
--  Winter Wonderland at Hangang Park: Sledding Thrills and Enchanting Christmas Magic
--  تحديات كبيرة: كيف سيعالج السيسي مشاكل مصر في فترة رئاسته الجديدة؟
--  Miksi Leijonat hyytyi jääkiekon MM-kisoissa?
--  HOROR SCENA NA GROBU BIVŠEG KANCELARA Oskrnavljen je večni dom nemačkog kancelara, OVO su vandali radili
--  Regulatory Clarity Would Not Bring An End To Crypto Risk
--  Bethlehem: Weihnachten im Zeichen des Krieges
--  Elisa Mazzucchelli: Η πιο καυτή ομπρέλα στο pitlane του MotoGP
--  Moment Princess of Wales surprises teen footballer at Christmas tea party
--  مظاهرات حاشدة في أنقرة وإسطنبول دعما لأهالي غزة (شاهد)
+-  Ukraine’s new Christmas Day unites Catholic-Orthodox family
+-  Calendrier de l’Avent 2023 (24 souvenirs à la sauce TrashTalk) : 24 décembre – Nikola Jokic reçoit le trophée de MVP dans son écurie
+-  Müller, Oberdorf und Co.: So feiern die Sportstars Weihnachten
+-  عريس يعقد قرانه على حبيبته بالمستشفى فور تشخيصه بالسرطان.. وهذا ما حدث أثناء علاجه
+-  Глава МО Украины Умеров заявил о конкуренции Киева за боеприпасы
+-  Giovanni Zarrella: Bruder Stefano verrät – SO verbringt die Familie Weihnachten
+-  Hariprasad’s remarks that those terms Congress as Tipu Sultan’s follower were boot lickers of British ruffles BJP’s feathers
+-  Two workers rescued in Thiruvananthapuram, as earth caves in
+-  Fenerbahçe-Galatasaray derbisine geri sayım: 11'ler belli oldu
+-  Berkali-kali Singgung Cuaca, Nayeon TWICE: Ini Natal Paling Panas
