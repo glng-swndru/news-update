@@ -1,11 +1,11 @@
 # Latest News
--  Uvijek ugasite lampice na svom boru: Problem može nastati u sekundi
--  Antioquia llegó a los 66 quemados por pólvora y aún falta Navidad y Año Nuevo
--  Okan Buruk ve İsmail Kartal'ın penaltı tartışması!
--  PKK ile kol kola gezen CHP'ye şehit cenazesinde tepki yağdı! Özgür Özel'in gönderdiği çelenk parçalandı
--  Acı haber! Ünlü Yeşilçam oyuncuları Ayşen ve Yılmaz Gruda çiftinin kızı Elvan Gruda hayatını kaybetti
--  Krippenspiele öffnen die Herzen für weihnachtliche Botschaft
--  Eagles fans have long turned the page on snowball fiasco. 'No one was trying to hurt Santa Claus'
--  Revela iguarias que ficam a seu encargo no Natal
--  US-Luftwaffe hat Weihnachtsmann auf dem Radar: Die Flugroute von Santa Claus
--  US-Luftwaffe hat Weihnachtsmann auf dem Radar: Die Flugroute von Santa Claus
+-  Rıdvan Dilmen: Icardi'nin pozisyonu tartışmasız penaltı
+-  В Турции ведущую новостей уволили из-за стаканчика Starbucks
+-  En tablas de surf, Papás Noel toman playa en Florida por diversión y una buena causa (FOTOS)
+-  El rey de España recordó de que fuera de la Constitución no hay democracia ni paz
+-  ΑΕΚ: Σοκ στην Ένωση, κάταγμα ο Κουζμινσκας
+-  Temizliğe başladığınızda gerçek fitness seansı başlar :Ev işi yaparak kaç kalori yakabilirsiniz?
+-  Está garantizada la continuidad de la 4T en 2024: López Obrador
+-  Çanakkale'de düzensiz göçmen operasyonu
+-  Preço médio de combustíveis tem queda em Sinop
+-  В Иваново обрушился гараж
