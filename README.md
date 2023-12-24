@@ -1,11 +1,11 @@
 # Latest News
--  ACSA apologises for baggage chaos at OR Tambo International Airport
--  28 egzoplanetas tyrinėję mokslininkai rado, kuriose iš jų yra didžiausia gyvybei tinkamos aplinkos tikimybė
--  Rimta jėga. Ką daro italai NATO teritorijoje (Foto, Video)
--  „Netikėta invazija.“ Situacija grėsminga. Kas nutiko fronte
--  „500 kilometrų gylis. Turime mažiausiai tris mechanizmus iš Ukrainos ir du iš Rusijos“
--  Ne tik dūsta. Jis vos ištaria žodžius. Kas nutiko Lukašenkai (Video)
--  El campo cierra 2023 con subida salarial "insuficiente" y la vista puesta en el convenio
--  Karaman’da muhtar ile kayınpederinin bıçaklı kavgası olayında 1 tutuklama
--  Ankara Cumhuriyet Başsavcılığından şehitlere yönelik suç içeren paylaşımlara soruşturma
--  Dikkat uzman isim uyardı! Üşümenizin nedeni soğuk havalar olmayabilir
+-  נתונים חושפים: זה הסמארטפון המועדף על הישראלים
+-  MP Horror: Woman Burnt Alive By Brother-In-Law Over Family Feud In Ratlam
+-  Mirotić će se sa slobode braniti optužbi da je pomagao kopačima...
+-  How 3ft 2in star who played ‘The Grinch’ as a child died just two years after filming as he struggled with health battle
+-  Луѓето од фотографијата што стана симбол на теророт во Прага: „Го слушнавме како доаѓа“
+-  Aragón lidera el segundo proyecto de investigación en España sobre el cáncer de mama masculino
+-  Dilan Polat'ın astroloğundan tahliye iddiası: 'Haber gönderdi, yıldız haritasına baktım'
+-  İsrail Qəzzada əməliyyatları 4 saatlıq DAYANDIRDI
+-  Saldırının zamanlaması manidar... PKK'ya hava harekatı düzenleyen Türkiye'den ABD'ye anlamlı mesaj
+-  Üç gündür haber alınamayan yaşlı adam tek başına yaşadığı evde yarısını yanmış halde buldu
