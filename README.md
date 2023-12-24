@@ -1,11 +1,11 @@
 # Latest News
--  Kal Ka Meen Rashifal: किसी प्रकार का न उठाएं कोई जोखिम, वरना होगा लाइफ में आ सकती हैं दिक्कतें
--  Ordenan detención del expresidente salvadoreño Alfredo Cristiani por masacre de El Mozote
--  ‘बदलाव यात्रा में खट्टर सरकार के दावों की खुली पोल’, कैथल में बोले अनुराग ढांडा
--  정우성, '천만 배우' 됐다…'서울의 봄' 천만 관객 돌파
--  Los valores biotecnológicos de pequeña capitalización muestran potencial de crecimiento en medio de las subidas de tipos
--  Това са най-популярните подаръци не само в България, а и в още 5 други държави
--  First Down: Može li netko spasiti Chargerse?
--  NA SAMRTI OTAC ĆERKI OTKRIO TAJNU KOJU JE ČUVAO 50 GODINA Priznanje je bilo ŠOK i istovremeno rješenje JEDNE OD NAJVEĆIH MISTERIJA
--  Setjen DPR RI Komit Berdayakan Perempuan
--  छत्तीसगढ़ में दंतेवाड़ा-सुकमा सीमा पर पुलिस के साथ मुठभेड़, 3 नक्सली ढ़ेर
+-  Video: Caminan migrantes hacia Ciudad Juárez
+-  Winter Wonderland at Hangang Park: Sledding Thrills and Enchanting Christmas Magic
+-  تحديات كبيرة: كيف سيعالج السيسي مشاكل مصر في فترة رئاسته الجديدة؟
+-  Miksi Leijonat hyytyi jääkiekon MM-kisoissa?
+-  HOROR SCENA NA GROBU BIVŠEG KANCELARA Oskrnavljen je večni dom nemačkog kancelara, OVO su vandali radili
+-  Regulatory Clarity Would Not Bring An End To Crypto Risk
+-  Bethlehem: Weihnachten im Zeichen des Krieges
+-  Elisa Mazzucchelli: Η πιο καυτή ομπρέλα στο pitlane του MotoGP
+-  Moment Princess of Wales surprises teen footballer at Christmas tea party
+-  مظاهرات حاشدة في أنقرة وإسطنبول دعما لأهالي غزة (شاهد)
