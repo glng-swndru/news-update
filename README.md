@@ -1,51 +1,51 @@
 # Latest News
--  [박지원, 김대중 소환 “민주당 분열·열린우리당 창당때 극렬히 반대”
--  [세종 조치원 목욕탕서 여성 입욕객들 감전…2명 사망·1명 심정지
--  [학교·유치원 방과후 강사도 내년부터 산재보험 적용
--  [거침없는 푸틴, 진짜 속마음?…NYT “물밑서 우크라전쟁 휴전협상 타진”
--  [NYT “푸틴, 조용히 우크라전쟁 휴전 협상 타진 중”
--  [‘실적 암울’, ‘공급 과잉’, ‘재무 부담’…석유화학 ‘3중고’ [산업의 쌀을 지키자]
--  [“좋든 싫든 중국은 포기 안돼” 석유화학 ‘차이나 리스크’가 기회인 이유는? [산업의 쌀을 지키자]
--  [나이키, 매출 부진 우려에 ‘칼바람’…경쟁력 강화 목표 구조조정 단행
--  [“욕심내겠다” 정우성, 드디어 ‘천만배우’ 크리스마스 선물…서울의 봄 흥행
--  [경영진 횡령으로 상장폐지…법원 “허위 채권 발견 못한 회계법인, 20% 책임”
--  [‘마에스트라’ 선 넘는 불륜남편 김영재
--  [“애낳으면 1억 쏜다” 파격 인천시에 허경영 “국민 위한 길” 극찬…무슨 일
--  [너바나 앨범 ‘알몸 아기’ 소송 재개…2심서 1심 시효만료 판단 뒤집혀
--  [사진속 유명 ‘여배우’ 등근육 자랑하더니…넷플릭스도 꽂혔다
--  [전재산 1억 털어 마련한 내집…오피스텔 사들인 2030 괜찮을까? [부동산360]
--  [“결국 이지경까지” 노홍철, ‘지팡이·휠체어 신세’ 근황 깜짝…대체 무슨 일
--  [날 풀렸으니, 서울 ‘소울(soul) 로드’ 가볼까 [함영훈의 멋·맛·쉼]
--  [광주·전남 밤사이 22.5㎝ 눈…“무안·영광·장성·함평 대설주의보 해제”
--  [조선대병원, 몽골인 간암 환자에 무료 의료 수술
--  [명품 신안 참홍어 ‘대풍’… “가격하락·경기침체 이중고”
--  [아파트 관리사무소 직원에게 가스총 쏜 입주민, 2심서 집행유예로 석방…이유는?
--  [이찬원, ‘2023 KBS 연예대상’ 최우수상 수상 “더 유쾌한 재미‧뜨거운 감동 전해드릴것”
--  [[리얼푸드] ‘7개국 진출’…고피자, 태국 방콕에도 매장 오픈
--  [[리얼푸드] 파리바게뜨, ‘구세군두리홈’에 크리스마스 선물 전달
--  [[리얼푸드] ‘한국 과자 전문점 증가’ 중국 간식 시장의 성장
--  [[리얼푸드] ‘절벽 커피·고가 커피’ 중국 커피 시장의 치열한 경쟁
--  [세계 관광도시 평가, 서울 12계단, 도쿄 16계단 상승
--  [“한우·랍스터 반값에 가져가세요” 대형 마트 장사 얼마나 안되면…파격 할인
--  [조국 “‘왕세자’ 한동훈, 노태우의 길 가려할 것…‘쇼쇼쇼’ 준비되고 있어”
--  Pemain Bali United Tidak Dilirik Shin Tae Yong, Coach Teco Beri Respon
--  BVF Afrika ölkəsinə 73,8 milyon dollar kredit ayırdı
--  هل يصلح نواف العقيدي لحراسة مرمى منتخب السعودية في كأس آسيا؟
--  Profil Komika Jo Koy, Pemandu Acara Golden Globe Awards 2024 Keturunan Filipina
--  Thousands flock to stores for Christmas shopping despite new data showing cost-of-living crunch
--  أكبر عيب في الاتحاد هذا الموسم
--  Trabalhos forçados na defensiva
--  Fantasy fair featuring Dali, Basquiat returns to life in California
--  Huge hail hits south-east Queensland on Christmas Eve
--  Huge hail hits south-east Queensland on Christmas Eve
--  力拚苗栗縣山線立委 曾玟學提10鄉鎮重點政策
--  Sombre Bethlehem marks Christmas with vigil as bombs rain on Gaza
--  El tiempo en Vimianzo: previsión meteorológica para hoy, domingo 24 de diciembre
--  侯趙後援總會中台灣誓師 王金平︰集中選票支持「真正能過關的組合」
--  El tiempo en Valdoviño: previsión meteorológica para hoy, domingo 24 de diciembre
--  Orgaisation pledges to empower more women, youths
--  El tiempo en Val do Dubra: previsión meteorológica para hoy, domingo 24 de diciembre
--  El tiempo en Touro: previsión meteorológica para hoy, domingo 24 de diciembre
--  Лидер партии "Патриоты" считает губительной для Франции торговую политику главы ЕК
--  日職》羅德網羅33歲美籍新洋投 監督透露開季定位
--  El tiempo en Tordoia: previsión meteorológica para hoy, domingo 24 de diciembre
+-  Presidente de Brasil otorga indultos navideños a presos
+-  Bot pukat tunda, dua nelayan Myanmar ditahan APMM
+-  बैङ्कले घर फुटाएर छोडेपछि हारगुहार
+-  Χρηματοπιστωτικό σύστημα: Οι 13 παρεμβάσεις για σταθερές τράπεζες και μείωση του ιδιωτικού χρέους για το 2024
+-  Lyin’ George Santos rants about Delta experience, claims airline transports undocumented migrants: ‘This is bulls–t’
+-  Биоэтик и разработчик киберпротезов названы перспективными профессиями будущего
+-  F1: Carlos Sainz mahu kekal di Ferrari
+-  Compras de última hora en Mérida: ¿Qué buscan los yucatecos?
+-  江詩丹頓｜江詩丹頓與本地雕塑家林繁盛合作 永恆之光燃亮旗艦店櫥窗
+-  沙律張沛樂晒新歡合照放閃 擁抱相遮肚網民好奇揼大咗？
+-  1200 kilometriä pitkä Salpalinja oli valtava ponnistus – "Totuus toki on, että linnoitustöissä tehtiin myös paljon virheitä"
+-  Vapaaehtoiset oppaat päivystävät sairaalalla kahdessa vuorossa, koska OYS on niin sokkeloinen – Kolmessa tunnissa kertyy helposti 7 000 askelta
+-  Digiavunpyyntö saatetaan säästää joulupöytään – Hannele Niskanen, 74, sai neuvoja pojaltaan
+-  Kadıköy'de alkollü sürücünün kullandığı otomobil köprü arasında askıda kaldı
+-  ‘RWS’โกอินเตอร์ นัดแรกที่ญี่ปุ่น 12ก.พ.2024 ‘ซีอีโอ’โตเกียวโดมเปิดข่าวใหญ่
+-  Sekeluarga Pakai Baju Gambar Semangka di CFD: Jangan Berhenti Bela Palestina
+-  Patrick Mahomes Says Taylor Swift Is ‘Part of Chiefs’ Kingdom Now’
+-  Video: Trasladan a 'El Cumbias' del C-4 al Cereso
+-  Polis cari wanita dilaporkan hilang
+-  पर्यटकको सहजताका लागि झापामा ‘ट्रस ब्रिज’ निर्माण
+-  عاجل.. شروط وسن الاشتراك الإلزامي في نظام التأمينات الاجتماعية
+-  Beşiktaş'ta kafa kafaya korkunç kaza! 9 yaralı
+-  गुइँठाको प्रयोगमा वृद्धि
+-  UOL NO VERÃO
+-  Jultomte i Peru tog knarklangare
+-  전소미, 어둠 밝히는 화사한 비주얼
+-  '日 최고 마무리' 마쓰이 유키, SD 김하성과 한솥밥… 5년 2800만달러
+-  平安夜前夕 美佛州購物中心發生槍擊案1死1傷
+-  กิจกรรมโครงการนักเรียนรุ่นใหม่มีใบขับขี่ฯ รุ่นที่ 3
+-  "VAR 심판들 도대체 뭐 하는 거야? 앉아서 놀기만 하나?"...클롭, 'PK 논란'에 분노
+-  에버튼전 결승골→토트넘 3연승 이끈 손흥민…"2-0도 안심할 수 없었다"
+-  सवारीसाधनमा “जाऊँ हिँड रेसुङ्गा” अभियानको स्टिकर
+-  นิด้าโพลคนหนุน”พิธา”นายกฯชมวิสัยทัศน์ดี
+-  Gold Coast toddler drowns in swimming pool at Elanora
+-  Mason Rudolph receives game ball after leading Steelers to win over Bengals
+-  नियमावली नबन्दा ऐन प्रयोगविहीन
+-  पर्यटन प्रवर्द्धनका लागि सामुदायिक घरबास सञ्चालन
+-  新潟 湯沢町 スキー場で中国人観光客の女性が雪に埋まり死亡
+-  Tragedia en el Mall Plaza de Trujillo: Intensa balacera dejó al menos una persona herida
+-  Kata Pj Walkot Jogja Usai Gibran Sebut Wisata Solo Ramai Lebihi Jogja
+-  Sunday View: The Best Weekend Opinion Reads, Curated Just for You
+-  Chris Jericho Still Plans To Challenge for AEW World Tag Team Titles, Looking for Partner
+-  Punjab News: ਪੰਜਾਬ ਦੀਆਂ ਜੇਲ੍ਹਾਂ ਬਣੀਆਂ ਨਸ਼ਾ ਤਸਕਰੀ ਤੇ ਜੁਰਮਾਂ ਦਾ ਗੜ੍ਹ, ਜੇਲ੍ਹ 'ਚੋਂ 43000 ਫੋਨ ਕਾਲਾਂ ਨੇ ਮਚਾਇਆ ਹੜਕੰਪ, ਪੁਲਿਸ ਦਾ ਵੱਡਾ ਐਕਸ਼ਨ
+-  Angel Reese, boyfriend Cam’Ron Fletcher enjoy Christmas season together with NYC trip
+-  Jaime Ordiales reveló cuál fue la última operación que realizó como directivo de Cruz Azul
+-  Alperen Sengun has career-high 37 points, Rockets beat Pelicans 106-104
+-  'Milestone moment': Rebecca Welch becomes first female referee in English Premier League, handles Fulham-Burnley clash
+-  Take development works to grassroots: VK Pandian
+-  VIDEO: Activistas propalestinos organizan una protesta en La Scala de Milán
+-  Jagatsinghpur district headquarter hospital’s ICU in limbo over staff shortage
