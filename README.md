@@ -1,51 +1,51 @@
 # Latest News
--  İletişim Başkanlığı'ndan propaganda uyarısı
--  İsmail Kartal, derbi öncesi özel toplantı gerçekleştirdi
--  Ajax endurgreiðir stuðningsmönnum eftir óvænt tap
--  Kickoff | Ten Hag sends message to Man Utd stars
--  BBQ앱으로 치킨 주문하면 ‘닭다리살 스테이크’가 공짜
--  이스라엘 가자지구 공습에 대가족 76명 몰살
--  손흥민, 크리스마스 선물 쐈다… 24일 에버턴전 시즌 11호골
--  “สุริยะ” สั่งงดให้บริการรถไฟฟ้าสายสีชมพู วันนี้ - หาสาเหตุรางจ่ายกระแสไฟฟ้าหลุดร่วง
--  สหรัฐฯ กล่าวหา "อิหร่าน" ใช้โดรนโจมตีเรือนอกชายฝั่งอินเดีย
--  Why does the NBA play games on Christmas Day every year?
--  Covid : तेजी से बढ़ रहा संक्रमण, सरकारी अस्पतालों समेत अन्य स्थानों पर कोरोना की एंटीजन जांच शुरू
--  Çin'in ilk yerli üretim kruvaziyer gemisi demir aldı
--  Van'da sosyal medya üzerinde sporda şiddet içerikli paylaşım yapan 12 kişi gözaltına alındı
--  9 milyonun üzerinde seçmenin bulunduğu Tunus'ta seçimler başladı
--  Türkiye'ye kaçak yollarla sokulmak istenen 187 milyon liralık 15 lüks otomobile el koyuldu
--  Bakan Güler, beraberinde TSK komuta kademesi ile Irak sınır hattına gitti
--  Spektakulär! Das ist Europas größte Felsenstadt
--  Detroit fa la storia negativa: vince Brooklyn, sono 26 ko di fila
--  Seven cocaine packages wash up on NSW beaches
--  Seven cocaine packages wash up on NSW beaches
--  Oto najseksowniejsza piłkarka świata! Zobacz powalające zdjęcia. Internauci zachwyceni jej urodą. Oto Alisha Lehmann 24.12.2023
--  2024 Hyundai Creta facelift launch date announced: Check details
--  Η Χαμάς ζητεί διεθνή έρευνα για τις εκτελέσεις 137 Παλαιστινίων αμάχων στη Γάζα
--  BRITANIJA ŠALJE RATNI BROD Tenzije rastu
--  GORI&quot; INTERNET Snežana Borjan objavila fotografije sa odmora i zapalila društvene mreže (FOTO)
--  Gaziantep Şehidi P. Uzm. Çvş. Abdülkadir İyem'i bugün son yolculuğuna uğurlanıyor.
--  Iranska policija zaplijenila nagradu EU za Mahsu Amini
--  Respons Jazilul soal Candaan Gus Yahya Sebut Cak Imin Tak Menang Pilpres
--  Dehradun: भाजयुमो की विशाल युवा पदयात्रा में पहुंचे सीएम धामी, बड़ी संख्या में जुटे पार्टी कार्यकर्ता
--  Egy kijevi csapat 25 focistáját sorozták be az ukrán hadseregbe
--  Segini Kekayaan Muhammad Suryo, Diduga Sosok yang Bikin Irjen Karyoto Berani Ancam KPK
--  Kard. Kazimierz Nycz złożył rezygnację z urzędu
--  Camilerde şehit Mehmetçikler için dua edildi
--  Jasad Bayi Baru Lahir Ditemukan Warga di Toilet Masjid
--  Le journal de 8h - 24/12/2023
--  Memphis continua a vincere con Morant, Atlanta ko in casa
--  Lucknow: सपा के बलिया जिले के जिलाध्यक्ष की सड़क दुर्घटना में मौत, लोहिया पार्क के पास हुई दुर्घटना
--  Balesettel indult a nap az M3-ason: torlódás Gelejnél
--  5 Provinces at Risk for Wet Hydrometeorological Disasters: BNPB
--  Court On Depriving Baby of Mom's Milk: बच्चे को मां के दूध से वंचित करना ‘गैर इरादत हत्या’, ठाणे सेशन कोर्ट ने दंपत्ति और एक अन्य को ठहराया दोषी
--  Korea Selatan Bakal Keluarkan Visa Digital Nomad, Wisatawan Bisa Tinggal sampai Dua Tahun
--  Kourtney Kardashian: le prime dolcissime foto del figlio Rocky
--  Могилевчанин незаконно перевозил около 4 тонн цветного металла
--  Parts of NSW hit by wild storm
--  Parts of NSW hit by wild storm
--  دراسة جديدة: اتباع نظام غذائي نباتي يقلل من خطر الإصابة بمرض السكري
--  Otkriveni bezbednosni propusti u gotovo svim 5G pametnim telefonima
--  بايدن: لم أطلب من نتنياهو وقف إطلاق النار
--  البنك العربي يكرّم موظفيه المتطوعين ضمن برنامجه للمسؤولية الاجتماعية معاً
--  قوات الاحتلال تقتحم مدرسة الرافعي بجباليا البلد
+-  [ŽT] „Japonai perduoda Putinui linkėjimus“
+-  „150 lėktuvų.“ Tai bus sensacija. Skelbiama, ką gaus Ukraina dar iki 2023 m. pabaigos
+-  [ŽT] Deja, jau greitai. Žvalgyba skelbia, kada Putinas gali smogti Europai
+-  Soccerladuma | Kekana: What’s Next For Downs' Inspirational Captain?
+-  Soccerladuma | Barca 'Make Decision' On Felix Loan
+-  Najbolji besplatni video editing softver za Mac
+-  Nearly 40% of restaurants in the Netherlands close for Christmas
+-  ผลเลือกตั้ง กรรมการ กกส.สอ.ครูแพร่ จำกัด
+-  MEP anticipates EU anti SLAPPs directive publication by April, transposal by member states to follow
+-  Predstojeći partijski izbori pokazatelj opredijeljenosti ka daljem razvoju demokratije
+-  Remote working on the rise as cost-of-living crisis impacting more than half of office workers
+-  খালেদা জিয়ার কেবিনে যুবকের প্রবেশের চেষ্টা চক্রান্ত কি না, প্রশ্ন রিজভীর
+-  정세균·김부겸 회동 “민주당 공천 잡음 큰 우려…통합 위한 노력해야”
+-  『バルダーズ・ゲート3』初心者向けにあえて助言するなら。寝ずに遊んでしまう。Steamの新たなダンジョンRPG『Path of the Abyss』はスピード感抜群。今週のゲーミング
+-  Blondie & Garfield - DECEMBER 25, 2023
+-  Democracy and climate politics are set to collide next year
+-  Demographic dystopia
+-  Reindeer blames
+-  Peace on Earth
+-  High inheritance tax prompts more wealthy Koreans to emigrate
+-  Hyundai presence grows in India, shrinks in Russia
+-  Incheon's child-rearing support plan sparks controversy
+-  «وقت اللياقة» توقع اتفاقية تسهيلات ائتمانية بـ 150 مليون ريال
+-  «بدجت السعودية» توقع اتفاقية للاستحواذ على أسهم «عالم السيارات»
+-  انتخاب 5 أعضاء لمجلس إدارة «منزل الورق»
+-  «تبوك الزراعية»: الموافقة على طلب الرئيس التنفيذي بعدم تجديد عقده
+-  العلاج المبكر للروماتويد.. أبرز توصيات مؤتمر مستجدات أمراض الروماتيزم في جدة
+-  عاجل.. تساؤلات حول موعد صرف الدفعة الجديدة من حساب المواطن.. والبرنامج يرد
+-  كيفية إعادة تصحيح اختبار كفايات للمعلمين
+-  قوات الاحتلال تقتحم طولكرم بالضفة واستشهاد 214 في غزة
+-  10 أخبار لا تفوتك هذا الصباح.. موعد نزول الدعم السكني و6 شروط للتقديم على الوظائف التعليمية
+-  سارع بالتقديم.. "رعاية" تطرح عشرات الوظائف لحملة الثانوية فأعلى
+-  عبور 8 مقاتلات.. تصاعد النشاط العسكري الصيني حول تايوان
+-  وفاة 16 وإصابة 26.. حادث مروع في أكبر دول أمريكا الوسطى
+-  تراجع طفيف في أسعار الذهب اليوم الأحد .. وعيار 21 يسجل 217 ريالًا
+-  Germania reiterează sprijinul ferm pentru Ucraina. „Eșuarea acestui plan al lui Putin s-a datorat...”
+-  El moralejano Julio García presenta su novela histórica ‘Tagvs’
+-  SRBIN PREPORODIO ČELSI: Đorđe Petrović ističe ozbiljnu kandidaturu za ''jedinicu'' plavaca
+-  NAŠI PREDLOZI: "Tip" - tiket za nedelju
+-  Explosion dans une usine de nickel en Indonésie : 12 morts, 39 blessés
+-  N'oubliez pas les enfants : comment sont castés les enfants ?
+-  Cât cheltuie autoritățile pentru cele 10 minute de teroare a animalelor și păsărilor din Bacău, din noaptea de Revelion
+-  بركات: من أفسد الانتخابات ما زال في السلطة ومتشبثا بها
+-  สะพรึง!! โอไมครอน ‘JN.1’ กำลังกลายพันธุ์ส่วนหนามคล้าย ‘ไวรัสเมอร์ส’
+-  Ikävä ennuste asuntovelallisille: EKP:n ”äärihaukka” uskoo inflaation kääntyvän pian nousuun
+-  Slovák vyhrožoval, že zopakuje pražské vraždění. Policie ho rychle zadržela
+-  TRESLO SE PREKO OKEANA: Novi zemljotres jačine 5,8 stepeni po Rihteru
+-  BOGDANOVIĆ PREKINUO NIZ: Kapitenu reprezentacije Srbije ovo nije pošlo za rukom nakon sedam mečeva za redom
+-  Pistorius auf Platz 1 im Ranking der beliebtesten Politiker
+-  Snow: నిష్క్రమించనున్న ఈశాన్య రుతుపవనాలు.. రాష్ట్రవ్యాప్తంగా కురుస్తున్న మంచు
