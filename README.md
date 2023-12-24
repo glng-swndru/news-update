@@ -1,51 +1,51 @@
 # Latest News
--  Tebas: "È stato storico il rifiuto che Florentino Perez ha ricevuto anche stavolta"
--  Sırbistan'da seçim sonrası ayaklanmalar sürüyor! Göstericilere gazla müdahale edildi
--  Nijerya'da silahlı saldırı: 16 can kaybı
--  Seferihisar açıklarında 28 göçmen yakalandı
--  Anadolu Efes deplasmanda kazandı!
--  Capturan a presuntos narcomenudistas requeridos por la autoridad
--  Capturan a presuntos narcomenudistas en Juárez
--  Alertan riesgos de más desabasto de medicinas
--  Edison acquista 10 impianti mini-idroelettrici in Piemonte
--  Dall'Aston (mera)Villa di Emery al record di Kluivert jr.: le 10 curiosità della Premier League
--  ‘You can work your way up from the inside’: Cruise ship worker reveals how she got hired—and why she chose Norwegian over Royal Caribbean
--  Честито Рождество Христово!
--  Честито Рождество Христово!
--  Forget turtle doves - we're celebrating the 12 Days of Farming
--  రాష్ట్రంలో కొనసాగుతున్న చలి తీవ్రత
--  Atletiko postavio ultimatum Barseloni za Žoaa Feliksa
--  اشتية: تحول 180 درجة في الرأي العام العالمي
--  طيران الاحتلال يشن أحزمة نارية على مخيم البريج بغزة
--  Estadio Unión Barranco se convertirá en el más grande complejo deportivo municipal del país
--  జీతం ఇవ్వరు.. పనికి రావాల్సిందేనంటరు!
--  Ayşen ve Yılmaz Gruda çiftinin kızı Elvan Gruda hayatını kaybetti
--  ఎంపీ సీట్లపై అమిత్‌ షా దృష్టి
--  شاهد.. أجواء الربيع في بريدة بعد هطول الأمطار
--  "جافا ستينغارس".. أول سمكة منقرضة بسبب نشاط البشر
--  الإصابات وصلت لـ 50%.. انتشار سريع لمتحور كورونا الجديد في أمريكا
--  Pope says ‘our hearts are in Bethlehem’ as he presides over the Christmas Eve mass
--  Merry Christmas
--  В СБУ показали морской дрон "Мамай"
--  Vestido de Natal de Giovanna Ewbank rouba a cena em fotos com Bruno Gagliasso e filhos. Veja!
--  Kane finally moves out of £10k-a-night Munich hotel after racking up £1MILLION tab – and says goodbye to staff in style
--  Первый с 2020 года прямой авиарейс из Москвы прибыл в Гавану
--  Λίβερπουλ: Πώς «σκοτώνουν» την ώρα τους στις πτήσεις οι παίκτες – Η προτίμηση του Τσιμίκα
--  Петер Шмейхель: Багато гравців, які не заслуговують грати за МЮ
--  రేషన్‌కార్డే ఆధారం
--  انسحاب الصليب الأحمر من خان يونس.. علامة على تدهور الوضع
--  Touchdown von St. Brown verhilft Detroit zum Erfolg
--  В Тверской области водитель хочет найти и наказать виновника ДТП
--  TEŠKO POVREĐENI POLICAJCI: Jedva im zaustavljeno krvarenje, Đilasove pristalice ih gađale kockama kojima možete da ubijete čoveka
--  Gobierno ucraniano prepara una ley para la rotación de los soldados en el frente
--  UŽIVO Vučić: "Pokušano je nasilno zauzimanje institucija države Srbije. Sva lica će biti pohapšena"
--  معطيات خطيرة عن تحضيرات لتحويل لبنان بديلاً عن غزة عبر إمساك المخيمات
--  Katil İsrail ordusuna Hamas'tan soğuk duş: Son 4 günde 48 İsrail askeri öldürüldü
--  Zak Brown Was Prepared for Disaster Before Bromance Bug Bit Lando Norris And Daniel Ricciardo: “They Will Be Tough to Each Other”
--  Ρωσία: Κατάρριψη τεσσάρων ουκρανικών μαχητικών κατά το τελευταίο 24ωρο
--  Auto ramt voorligger die afslag wil nemen op A59 bij Raamsdonksveer
--  Petro: La violencia en el Cauca es un intento de grupos armados por controlar la población
--  הסדרות הטובות של 2023 - מקומות 50-41: ריק ומורטי, המלכה שרלוט, פוקר פייס
--  Delincuentes abandonan a su compañero porque se quedó sin gasolina (VIDEO)
--  పాత పద్ధతులను వదులుకోవాలి
--  GOP Congressman Posts, Deletes Clueless Take on the First Amendment … but We Got It!
+-  الملكة: أمنياتنا بالخير والبركة لإخواننا المسيحيين
+-  Dončić iznenadio suigrače poklonima za Božić
+-  Resguardan adulta mayor que deambulaba en Juárez
+-  Advierten emergencias y hospitalizaciones por uso de pirotecnia
+-  Encuentran mujer sin vida en unidad de transporte de personal
+-  Почина известният гръцки певец Василис Карас
+-  تراند اليوم : تتكون من 600 صحن.. شاهد: شخص يوثق أكبر وليمة عشاء
+-  "Ne bih vratio Krosa – ne bi bilo dobro da igra za Nemačku"
+-  Officer discharged firearm in Christmas Eve home invasion investigation: Ontario SIU
+-  שער האריות: לאחר 29 שנה, דטרויט זכתה בראשות בית ועלתה לפלייאוף
+-  Ataque ao Nord Stream orquestrado pelos EUA mirava Scholz, não Moscou, revela Seymour Hersh
+-  Charlotte Dawson puts on an animated display in sequinned scarlet trousers as she enjoys a Christmas Eve night out with mum Tracy
+-  Vučić objavio fotografiju kako jede jabuku
+-  غزة.. 70 شهيداً بمجزرة إسرائيلية في مخيم المغازي
+-  Come rimettersi in forma dopo le feste: ecco i regali su misura per voi
+-  L'abbigliamento sportivo da neve per lui e lei oggi è in super offerta
+-  Joel Embiid absent pour le Christmas Day, noyeux Joël à tous
+-  Seven Babies Delivered in the Early Hours of Christmas
+-  مقتل 60 فلسطينيا على الأقل في قصف إسرائيلي على مخيم المغازي وسط قطاع غزة
+-  الحزن يكتنف أجواء أعياد الميلاد في اللاذقية بسبب ضحايا غزة... صور
+-  好市多要來了嗎？會員卡申辦處前進彰化市區 縣府說話了
+-  Форсберг попрощался с «Лейпцигом»: «Здесь я стал мужчиной»
+-  Maja Šuput zablistala u finalu 'Supertalenta' u spektakularnoj haljini: 'U službi Maje Mraz...'
+-  Putin rocked by troop revolt as entire Russian military unit rage at Ukraine war 'lies'
+-  Choquei suspende publicações após repercussão negativa de caso de fake news
+-  الإعلان خلال ساعات.. وسائل إعلام: أحمد فتوح يجدد عقده مع الزمالك
+-  Roman Kemp pays emotional tribute to his late godfather George Michael during Royal Carols: Together At Christmas after singer's band Wham! scored a festive number one this week
+-  Israel- Hamas conflict: At least 70 are killed in central Gaza, in one of the war's deadliest strikes
+-  Calciomercato Milan, Marotta “copia” da Furlani: l’obiettivo in attacco dei nerazzurri
+-  Обръщение на патриарх Неофит към миряните
+-  Hårda vindar i Skåne under juldagen
+-  Wedge Island shark attack: Windsurfer is mauled by predator on Christmas Eve
+-  At least 70 are killed in central Gaza, in one of the war’s deadliest strikes
+-  عاجل.. منصة مدرستي: طريقة دخول الطالب الحصص المدرسية 1445
+-  الإثنين 12 جمادى الآخرة.. مواقيت الصلاة في جميع مناطق المملكة
+-  ВСУ сбили еще один Су-34
+-  В России некому работать
+-  İran Dışişleri Bakanı ile ŞİÖ Genel Sekreteri "Filistin'deki gelişmeleri" görüştü
+-  Джейхун Байрамов: Мирный договор не решит все на 100 процентов
+-  Acidente entre carro e motorhome deixa 4 pessoas feridas, em Guarapuava
+-  В Санкт-Петербурге скончался писатель-фантаст Николай Ютанов
+-  Melissa Klug reflexiona en Navidad: “Gracias por el pan en mi mesa, gratitud infinita”
+-  كلوب يستدعي لاعب الأكاديمية لحل مشكلة الظهير الأيسر
+-  Kanal 7 ailesinin acı günü: Mahmut Sarıçiçek Hakk'ın rahmetine kavuştu
+-  RDC : l’armée met en garde « Nyota TV et certains autres médias à la solde de l’ennemi »
+-  Čelnik ‘Srbije protiv nasilja‘: Znali su da smo zastupnici, a tukli su nas pendrecima s leđa. Ljudima su noge polomili!
+-  Fenerbahçe'den Galatasaray'a Icardi yanıtı!
+-  Why is Christmas abbreviated as 'Xmas'?
+-  Rafael Márquez será entrenador del FC Barcelona
+-  U izraelskom zračnom napadu na izbjeglički kamp ubijeno 70 ljudi, palestinske vlasti: ‘To je masakr‘
