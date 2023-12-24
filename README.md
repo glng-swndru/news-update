@@ -1,51 +1,51 @@
 # Latest News
--  Preobrat, nadarjeni Danec nemudoma k bogatim Britancem
--  Kosovska policija pronašla vojnu opremu na granici sa Srbijom
--  Francuska pojačava sigurnost za božićno razdoblje: Policija će biti ispred crkava diljem države
--  Тази година Витлеем е като призрачен град на Коледа заради войната в Газа
--  Após visitar 14 regiões, Natal da Gente 2023 encerra com neve e sonhos no Parque Tia Nair
--  Larissa Manoela reflete sobre 2023 e declara ano difícil: ‘Eu fui forte ‘
--  FBI investigaría a televisora de Miami por uso de dinero de Juan Guaidó
--  Nativity! star looks unrecognisable 14 years after she starred in Christmas film favourite - and says her parents 'still make me watch it every year'
--  Raičević i Nenezić čestitali katolički Božić
--  Raičević i Nenezić čestitali katolički Božić
--  MP में खत्म हो जाएगा लंबा इंतजार, मोहन यादव कैबिनेट का विस्तार कल
--  Who is Dave Brailsford, what’s Sky’s ‘marginal gains’ philosophy and how does he know Sir Jim Ratcliffe?
--  El título inspirado en leyendas de Japón creado por el mismo estudio de 'Hi-fi Rush' es el juego gratis de Epic Games Store de Nochebuena
--  60 sterkgroeiende halfgeleiderbedrijven
--  Epic Games'den 1047 TL değerinde oyun hediye! Hemen kütüphanenize ekleyin
--  Katolkinja i pravoslavac prvi put će zajedno slaviti Božić na novi datum
--  Equipo de Europa habría mandado oferta 'irrechazable' al América por Kevin Álvarez
--  Казанский «Зенит» стал 12-кратным победителем Кубка России по волейболу
--  رواں سال گاڑیوں کی فروخت میں حیران کن کمی
--  FOTO i VIDEO Novogodišnja jelka u Budvi: Krasi je više od 20.000...
--  폭설·한파에 잇단 사고 속출…농작물 피해 ‘비상’
--  Izbori u Rusiji: Ženi koja izaziva Putina ipak zabranjena kandidatura
--  Yuletide: NSCDC deploys 2,500 personnel in Plateau
--  الاتحاد يطرح تذاكر مباراته ضد النصر في الدوري السعودي
--  السعودية: استلام أوراق اعتماد أول سفير سوري بالرياض منذ 13 عاما
--  Seminar Atletskog saveza Crne Gore održan u Nikšiću
--  CHP'li belediyeler kültür-sanat etkinliklerini erteledi
--  VIDEO: Božićna poslanica Nadbiskupa barskog Rroka Gjonlleshaja
--  VIDEO: Božićna poslanica Nadbiskupa barskog Rroka Gjonlleshaja
--  Na tankom ledu: Reprezentacije nisu uspjele – nikad poraz, samo lekcija
--  Wolves hang on to beat wasteful Chelsea 2-1 in sole Premier League Christmas Eve fixture
--  Arsenal and Liverpool showcase title credentials in draw. Man United off to worst start since 1930
--  الجيش الإسرائيلي يعلن مقتل جندي آخر في المعارك مع المقاومة شمال غزة
--  Schwere Kritik an Festnahmen durch Israels Armee: „Physische und psychische Folter“
--  Schwere Kritik an Festnahmen durch Israels Armee: „Physische und psychische Folter“
--  33.5% of UDID disbursal completed in Tiruppur district
--  Генералният директор на СЗО призова отново за прекратяване на огъня в Газа
--  Wolves Beri Kado Natal Pahit Bagi Para Pemain Chelsea
--  Šamaranje na Badnji dan, HDZ uzvraća Milanoviću: ‘Valjda misli na Most, blizak je s njima’
--  Plazo estipulado por el TSJ a Contraloría sobre caso de María Corina Machado ha vencido
--  What’s Jim Ratcliffe’s net worth and how much of Manchester United has he bought?
--  What’s Jim Ratcliffe’s net worth and how much of Manchester United has he bought?
--  Caution Akume over Benue political wrangling – APC chieftain, Gololo urges Tinubu
--  Promulgan ley que amplía plazo para que docentes universitarios obtengan grados académicos
--  La météo pour ce lundi 25 décembre 2023
--  Virtus Segafredo Bologna, un successo la Prima Sessione di Turkish Airlines EuroLeague One Team
--  Денят по диагонал 24 декември 2023 г.
--  La cena un momento para educar
--  Two slain, one wounded in Oakland shootings
--  RTS VODITELJKA POKAZALA SESTRE BLIZNAKINJE: One su lepše od mene, nikad sebe nisam ni smatrala lepom
+-  Derbi öncesi koridorda arbede çıktı! Ali Yiğit Buruk, soyunma odasına alınmadı
+-  Galatasaray penaltı bekledi, hakem devam ettirdi!
+-  Akdeniz'de deprem
+-  Euro-Med: Gazze'deki BM okulları sivillere karşı suç işlenen alanlara döndü
+-  Tradicija se nastavlja: ronioci i ove godine okitili pa potopili božićno drvce u Mostarsko jezero; ‘Čestitamo svima...‘
+-  El Manchester United vende un 25% de su accionariado a INEOS
+-  Deshna Duggad to Karuna Pandey, telly stars reveal Christmas plans
+-  Conor McGregor seen dodging punches and barking instructions from ringside as Deontay Wilder takes brutal beating
+-  Premier League winners and losers: Everything goes Spurs’ way but Poch, Ten Hag and Howe sack talk intensifies further
+-  SRBI VODILI OLIMPIJAKOS DO POBEDE Petrušev zablistao, Milutinov standardan
+-  Stanbic IBTC top in cash withdrawal to customers
+-  3 Naxalites killed during encounter with police in Chhattisgarh
+-  Fenerbahçe-Galatasaray derbisi öncesi anlamlı pankart! "Şehitler ölmez, vatan bölünmez"
+-  Fenerbahçe Galatasaray derbisi öncesi soyunma odası koridorlarında arbede yaşandı!
+-  Tiket Sejumlah KA di Daop 9 Jember Habis Hingga Natal
+-  Vanzemljaci, Bosanci, i fantomi
+-  Ver Video. tiktoker argentina tras recorrer un supermercado en Chile: "Te crees que estás en Disney"
+-  VELIKA TRAGEDIJA U požaru poginuli žena i dete
+-  Dajte 180-ku a my prispejeme tisícku na dobrú vec. Sponzor vyprovokoval šípkarov, zaplatí poriadny balík
+-  Harry Kane moves out of Munich hotel he has been staying in since joining Bayern Munich from Tottenham
+-  EuroLeague, Βαλένθια: Έδωσε συμβόλαιο 45 ημερών στον Τζάστιν Άντερσον
+-  В Европе захотели профинансировать возведение стен и заборов с другими государствами
+-  Montreal police say basilica fire not arson, investigation shows cause was electrical
+-  В Волхове прошел забег с Дедом Морозом
+-  Na granici Srbije i Kosova zaustavljen muškarac s vojnom opremom u prtljažniku
+-  INAI lanza 10 recomendaciones para evitar que los menos sean víctimas de grooming
+-  El clásico de las fiestas de fin de año: ¿a qué hora es El Programa de Lavecchia?
+-  Pas-de-Calais: un homme retranché pendant plus de 15 heures chez lui à Balinghem, interpellé
+-  Her forsvinner pengene dine
+-  Tradiciones canarias para Navidad
+-  Kassam Tugayları duyurdu: Çok sayıda İsrail askerini öldürdük
+-  Ülker Stadı'nda şehitler unutulmadı
+-  Team doctor Bernabé Polanco sale en delantera basket navideño intramuros club San Vicente
+-  Kirjastosilta valaisee ympäristöään rauhan puolesta
+-  Umro suprug trudne influenserke koja je tragično izgubila život
+-  JEZIVO NAPADNUTA DEVOJKA U AUTOBUSU! Užas na liniji 860, osumnjičen strariji muškarac
+-  Islamic Jihad group visits Egypt as Israel bombs Gaza
+-  Islamic Jihad group visits Egypt as Israel bombs Gaza
+-  أحداث غزة.. نتنياهو: ثمن الحرب باهظ جدا على حياة جنودنا ولن نتوقف حتى نحقق النصر
+-  Navidad amarga en el Cauca: reportan el asesinato de un líder indígena en zona rural
+-  "بسبب مخاوف إرهابية".. دول أوروبية تعزز الإجراءات الأمنية قبيل احتفالات عيد الميلاد
+-  Ngezana, primit ca un star la revenirea în Africa de Sud » Imagini tari „scăpate” pe internet: „Frate!”
+-  Greeicy Rendón está de luto: se despidió de una familiar con un emotivo mensaje
+-  Kaksi savusaunaa tuhoutui tulipaloissa jouluaattona – Kaarinassa paloi paritalon puolikas
+-  Kaksi savusaunaa tuhoutui tulipaloissa jouluaattona – Kaarinassa paloi paritalon puolikas
+-  Omroep Gelderland wenst iedereen fijne feestdagen!
+-  Ți-ai făcut planurile pentru zilele următoare? La ce evenimente ne petrecem ultima săptămână a anului 2023
+-  Ver Video. La grave e insólita lesión que provocó Jürgen Klopp en empate de Liverpool
+-  Jalur Pendakian Gunung Rinjani Dibersihkan, Sampah yang Terkumpul Lebih dari 100 Kg
+-  مانشستر يونايتد يعلن بيع 25٪؜ من أسهمه إلى جيم راتكليف
