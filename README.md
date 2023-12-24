@@ -1,11 +1,11 @@
 # Latest News
--  Rıdvan Dilmen: Icardi'nin pozisyonu tartışmasız penaltı
--  В Турции ведущую новостей уволили из-за стаканчика Starbucks
--  En tablas de surf, Papás Noel toman playa en Florida por diversión y una buena causa (FOTOS)
--  El rey de España recordó de que fuera de la Constitución no hay democracia ni paz
--  ΑΕΚ: Σοκ στην Ένωση, κάταγμα ο Κουζμινσκας
--  Temizliğe başladığınızda gerçek fitness seansı başlar :Ev işi yaparak kaç kalori yakabilirsiniz?
--  Está garantizada la continuidad de la 4T en 2024: López Obrador
--  Çanakkale'de düzensiz göçmen operasyonu
--  Preço médio de combustíveis tem queda em Sinop
--  В Иваново обрушился гараж
+-  이번 시즌까지 이강인과 함께!...음바페, 오는 겨울 이적시장에선 떠나지 않는다
+-  عاجل.. أهم 10.. تنفيذ حكم الشرع في امرأة ارتكبت جُرمًا شنيعًا ورجل أنهى حياة زوجته وتحذير الأرصاد
+-  ظاهرة مزعجة في الشتاء.. كيف يمكنك التخلص من برودة القدمين عند النوم؟
+-  تنويه مهم من حساب المواطن بشأن جميع المكافآت الجامعية وتأثيرها على الدعم الشهري
+-  المملكة ترحب ببيان المبعوث الأممي إلى اليمن بشأن التوصل إلى خارطة طريق لدعم مسار السلام
+-  Acusa Tabasco que oportunismo y rumores alentaron psicosis
+-  Arrecia guerra en Gaza y ensombrece Nochebuena en Belén
+-  Israel’s war on Gaza ‘century’s most destructive’, US paper; 'Our lives, culture in rubble,' Mayor
+-  JANA HOCKING: I'm sorry, but these are the signs your Christmas is 'bogan': Supermarket roast chooks, Jatz crackers on a platter, 'snags' and tacky 'fast fashion' presents
+-  Der Durst nach Kontakt: Wie Einsamkeit Geist und Körper verändert
