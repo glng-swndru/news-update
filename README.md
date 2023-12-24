@@ -1,51 +1,11 @@
 # Latest News
--  عاجل.. تعرف على التعديلات المرتقبة على لائحة التصرف في عقارات الدولة
--  영화 '서울의 봄', 누적 관객 '1000만' 돌파...개봉 33일만
--  [속보] 세종시 목욕탕서 감전 3명 모두 사망
--  [속보] 세종시 목욕탕서 감전 3명 모두 사망
--  Hawthorn great Cyril Rioli teases AFL comeback with cryptic social media post
--  Reward up to $2,000 offered after 1 home, 14 cars broken into during just 2 hours in Creedmoor, officials say
--  Владимирским чиновникам «заморозят» зарплату в 2024 году
--  목욕탕 감전사고 70대 3명 사상…세종시 재난안전본부 꾸려
--  Arus Mudik Natal, Kendaraan Mulai Padati Tol Trans Sumatera Ruas Bengkulu-Taba Penanjung
--  TNB raih pengiktirafan peringkat antarabangsa
--  Woman with rare double uterus gives birth to two children
--  Frente Frío 19 en CDMX: Estas alcaldías recibirán la Navidad con frío de hasta 1 grado
--  J&K: Army says it will cooperate with probe into deaths of three civilians near gunfight site
--  ZNBTS Urges Collaboration to Dispel Myths and Promote Blood Donation
--  Land grabbing: Enugu community petitions IGP, fingers Ex-governor
--  Mehr Verbraucherbeschwerden über Haustürgeschäfte
--  Biden Telepon Netanyahu: Saya tidak Meminta Gencatan Senjata
--  US woman with double uterus gives birth to ‘miracle’ twins
--  دواء يحميك من زيادة الوزن بعد الإقلاع عن التدخين
--  LeBron James scores season-high 40 points, Lakers beat Thunder to end 4-game skid
--  Usman Khawaja’s new shoe logo to support Palestine victims rejected by cricket authorities
--  Usman Khawaja’s new shoe logo to support Palestine victims rejected by cricket authorities
--  US: Many hurt in `active shooting` at Florida shopping mall, say authorities
--  Chidambaram heads Congress manifesto committee
--  Pooch ambush: Compensation, jobs for kin of slain civilians
--  96th Oscars shortlist announced: Margot Robbie`s `Barbie` leads
--  Sharad Pawar praises Adani in helping set up tech centre in Baramati
--  BJP to target 50 pc vote share in 2024 Lok Sabha elections
--  Erstgeborene sind klüger als ihre Geschwister – stimmt das?
--  Karnataka: Reconsideration of hijab ban met with gratitude, criticism
--  NBM ขออภัยเหตุรางจ่ายกระแสไฟฟ้าร่วง - เร่งแก้ไข
--  Anil Kapoor reveals father Surinder Kapoor did not help him early in career
--  올해 전 세계 언론인 45명이 취재·보도로 세상을 떠났다
--  Президент Польши наложил вето на закон о финансировании государственных СМИ
--  切割俄罗斯 乌克兰首度25日庆圣诞节
--  Joyeux Noël à tous !
--  Un legislador alemán reconoce que Europa codicia las riquezas de litio del Donbás
--  Pengakuan Jujur Bek Arsenal: Liverpool Seharusnya Dapat Penalti!
--  В сквере “Радуга” в Улан-Удэ встретили наступающий Новый год
--  비싼 배달비에 주저했는데...구독자 4배 늘며 ‘환호’
--  Cheers! The Lord’s Chosen clocks 21 today
--  Mehr Verbraucherbeschwerden über Haustürgeschäfte
--  Спасение заложников в Офакиме 7 октября. Рассказывает офицер полиции Аркадий Шустер
--  Более шести тысяч тонн продукции экспортировали вологодские кондитеры в 15 стран мира
--  Soccer-Ex-players Scholes, Neville slam 'embarrassing' Man Utd after West Ham loss
--  TD Jakes Denies Recent Sex-Based Allegations
--  Schweizer Botschafterin besuchte umstrittene Hochschule
--  [속보] 세종시 목욕탕서 감전 3명 모두 사망
--  สุดเศร้า!ไฟไหม้บ้าน วอดทั้งรถยนต์ รถจยย.และสุนัขอีก 1 ตัว
--  Mumbai Pune Expressway Traffic Update: सलग सुट्ट्यांमुळे मुंबई-पुणे एक्सप्रेस वर वाहनांची लांबच लांब रांग
+-  “가스라이팅이 분명해”…가짜 교사와 사귀며 2500만원 뜯긴 여성
+-  Оптимистично за България: как страната се променя
+-  '명실상부한 세계 최고의 윙어' 살라, EPL 최다골 TOP 10 진입...리버풀 역대급 배신자 제쳤다
+-  Saturan el Centro por compras navideñas
+-  Sedinarnas familjebeslut – kan flytta hem till Sverige: ”Fyra år bort”
+-  "Apple" onlara 30 dollarlıq "iPhone" hədiyyə edəcək
+-  Arsenal transfer round-up: Gunners warned off Ivan Toney move after blow in striker search
+-  Puit lööb arhitektuuris laineid, eeskujuks riigigümnaasium
+-  OPINION: Midvinternattens viskningar och rop.
+-  Distributor celebrates a 30-year milestone
