@@ -1,51 +1,51 @@
 # Latest News
--  Bliži se kraj roka kojeg je postavio visoki predstavnik: Kako će glasati državni poslanici?
--  ВМС Ирана получили новые крылатые ракеты
--  Upravljanje gradovima jednostavnije uz IoT rješenja
--  Man Utd takeover CONFIRMED as Sir Jim Ratcliffe buys 25 per cent of club to kickstart new era
--  Man Utd takeover CONFIRMED as Sir Jim Ratcliffe buys 25 per cent of club to kickstart new era
--  Merry Christmas from Geeky Gadgets
--  Wolves edge wasteful Chelsea 2-1 on Christmas eve
--  Idaho Falls man arrested in early-morning SWAT team response
--  Second suspect arrested in theft of Banksy stop sign artwork featuring military drones
--  S’porean shares heartfelt message to maids in SG who can’t be with their families during Christmas holidays
--  Weihnachten in Kindertagen: 4 bekannte Südtiroler erinnern sich
--  In Christmas message, Trudeau urges Canadians to find strength in differences
--  Mehr Geld für Schutz jüdischer Einrichtungen: Landesregierung stockt Mittel für 2024 auf
--  Задържаха превантивно мъж в Словакия, готвел масова касапница като в Прага
--  The top 10 in-demand jobs by salary growth in US: analysis
--  Prezidentin ailəsi ilə doğum günü
--  Mit Raketen und Kostümen: Wie die Karthikapallils aus Schwerte in Indien Weihnachten feierten
--  Neubau des Multikulturellen Forums in Lünen: Nach Baustart kommt die Unterbrechung
--  A second American civil war wouldn’t look like a movie
--  İstanbul'da şehitler ve Filistin için yürüyüş düzenlendi
--  Chelsea'de kötü gidişat durmuyor!
--  „Син на годината“ од Тетово: Дивјачки ја рушил портата на татко му, му го смачкал возилото, па насрнал и на него
--  الدويري : الحوثي ذكي و رقم صعب - فيديو
--  جيش الاحتلال ينسحب من بيت حانون ويستهدفها بالطيران
--  الحوثيون: بارجة أميركية أطلقت النار على طائرة يمنية بالبحر الأحمر
--  الموسوي: نحن أمام معادلات كبرى تصنعها المقاومة واليوم زمن تشبيكها
--  Konačno! Evo kada će novac od pomoći EU biti na računima građana
--  Chelsea SUB is booked in Wolves defeat as fans moan ‘the indiscipline in this team is outrageous’
--  Chelsea SUB is booked in Wolves defeat as fans moan ‘the indiscipline in this team is outrageous’
--  Pidió defensa de 'El Cumbias' audiencia privada
--  Srbi opleli po aferi Gorana Višnjića: ‘Sramno je varao suprugu, ima izvanbračnu kćer’
--  VIDEO Viralna snimka Ronalda i McGregora: Cristianov izraz lica govori tisuću riječi
--  Apsurdna situacija u Azerbejdžanu: Klub otpustio legendarnog trenera kad je otišao na sahranu majke, izrazili saučešće - i predstavili bivšeg trenera Zvezde!
--  الحوثيين: بارجة أمريكية فتحت النار على طائرة استطلاع يمنية في البحر الأحمر
--  Emotional Mario Lemina dedicates win over Chelsea to dad who is in hospital in powerful post-match interview
--  Emotional Mario Lemina dedicates win over Chelsea to dad who is in hospital in powerful post-match interview
--  VIDEO | Über dieses Tor staunt die NHL
--  Trump pide a una corte de apelaciones desestimar la demanda por el asalto al Capitolio
--  Trump pide a una corte de apelaciones desestimar la demanda por el asalto al Capitolio
--  Dolly Parton, 77, reveals which cosmetic procedures she regrets
--  الیکشن کمیشن نے سیاسی جماعتوں کی تازہ فہرست جاری کردی
--  Bollywood singer Nikhita Gandhi, Rapper Big Deal steal the show at Patha Utsav in Odisha capital
--  مجلس شئون التعليم والطلاب بجامعة الفيوم يبحث برنامج إعداد معلم العلوم التربوية والسياحية
--  Волейболисты "Шахтера" стали шестикратными обладателями Кубка Беларуси
--  Michael Cohen: 'Trump will continue to ride this grift as long as he can'
--  Mother of woman killed by impaired driver: plan safe ride home during holidays
--  Maharashtra: Man killed by duo on suspicion of mobile phone theft in Nagpur
--  Kao u dobra stara vremena: Grad heroj ponovo šetao za Ukrajinu a Mandiću poručio da je u avionskom režimu
--  Jhalak Dikhhla Jaa: Vivek Dahiya and Divyanka Tripathi renew their wedding vows
--  Christmas 2023: Date, history, significance, here`s all you need know
+-  Preobrat, nadarjeni Danec nemudoma k bogatim Britancem
+-  Kosovska policija pronašla vojnu opremu na granici sa Srbijom
+-  Francuska pojačava sigurnost za božićno razdoblje: Policija će biti ispred crkava diljem države
+-  Тази година Витлеем е като призрачен град на Коледа заради войната в Газа
+-  Após visitar 14 regiões, Natal da Gente 2023 encerra com neve e sonhos no Parque Tia Nair
+-  Larissa Manoela reflete sobre 2023 e declara ano difícil: ‘Eu fui forte ‘
+-  FBI investigaría a televisora de Miami por uso de dinero de Juan Guaidó
+-  Nativity! star looks unrecognisable 14 years after she starred in Christmas film favourite - and says her parents 'still make me watch it every year'
+-  Raičević i Nenezić čestitali katolički Božić
+-  Raičević i Nenezić čestitali katolički Božić
+-  MP में खत्म हो जाएगा लंबा इंतजार, मोहन यादव कैबिनेट का विस्तार कल
+-  Who is Dave Brailsford, what’s Sky’s ‘marginal gains’ philosophy and how does he know Sir Jim Ratcliffe?
+-  El título inspirado en leyendas de Japón creado por el mismo estudio de 'Hi-fi Rush' es el juego gratis de Epic Games Store de Nochebuena
+-  60 sterkgroeiende halfgeleiderbedrijven
+-  Epic Games'den 1047 TL değerinde oyun hediye! Hemen kütüphanenize ekleyin
+-  Katolkinja i pravoslavac prvi put će zajedno slaviti Božić na novi datum
+-  Equipo de Europa habría mandado oferta 'irrechazable' al América por Kevin Álvarez
+-  Казанский «Зенит» стал 12-кратным победителем Кубка России по волейболу
+-  رواں سال گاڑیوں کی فروخت میں حیران کن کمی
+-  FOTO i VIDEO Novogodišnja jelka u Budvi: Krasi je više od 20.000...
+-  폭설·한파에 잇단 사고 속출…농작물 피해 ‘비상’
+-  Izbori u Rusiji: Ženi koja izaziva Putina ipak zabranjena kandidatura
+-  Yuletide: NSCDC deploys 2,500 personnel in Plateau
+-  الاتحاد يطرح تذاكر مباراته ضد النصر في الدوري السعودي
+-  السعودية: استلام أوراق اعتماد أول سفير سوري بالرياض منذ 13 عاما
+-  Seminar Atletskog saveza Crne Gore održan u Nikšiću
+-  CHP'li belediyeler kültür-sanat etkinliklerini erteledi
+-  VIDEO: Božićna poslanica Nadbiskupa barskog Rroka Gjonlleshaja
+-  VIDEO: Božićna poslanica Nadbiskupa barskog Rroka Gjonlleshaja
+-  Na tankom ledu: Reprezentacije nisu uspjele – nikad poraz, samo lekcija
+-  Wolves hang on to beat wasteful Chelsea 2-1 in sole Premier League Christmas Eve fixture
+-  Arsenal and Liverpool showcase title credentials in draw. Man United off to worst start since 1930
+-  الجيش الإسرائيلي يعلن مقتل جندي آخر في المعارك مع المقاومة شمال غزة
+-  Schwere Kritik an Festnahmen durch Israels Armee: „Physische und psychische Folter“
+-  Schwere Kritik an Festnahmen durch Israels Armee: „Physische und psychische Folter“
+-  33.5% of UDID disbursal completed in Tiruppur district
+-  Генералният директор на СЗО призова отново за прекратяване на огъня в Газа
+-  Wolves Beri Kado Natal Pahit Bagi Para Pemain Chelsea
+-  Šamaranje na Badnji dan, HDZ uzvraća Milanoviću: ‘Valjda misli na Most, blizak je s njima’
+-  Plazo estipulado por el TSJ a Contraloría sobre caso de María Corina Machado ha vencido
+-  What’s Jim Ratcliffe’s net worth and how much of Manchester United has he bought?
+-  What’s Jim Ratcliffe’s net worth and how much of Manchester United has he bought?
+-  Caution Akume over Benue political wrangling – APC chieftain, Gololo urges Tinubu
+-  Promulgan ley que amplía plazo para que docentes universitarios obtengan grados académicos
+-  La météo pour ce lundi 25 décembre 2023
+-  Virtus Segafredo Bologna, un successo la Prima Sessione di Turkish Airlines EuroLeague One Team
+-  Денят по диагонал 24 декември 2023 г.
+-  La cena un momento para educar
+-  Two slain, one wounded in Oakland shootings
+-  RTS VODITELJKA POKAZALA SESTRE BLIZNAKINJE: One su lepše od mene, nikad sebe nisam ni smatrala lepom
