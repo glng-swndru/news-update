@@ -1,51 +1,11 @@
 # Latest News
--  الملك: أمنياتنا بالسلام لإخواننا وأخواتنا المسيحيين بفلسطين والعالم
--  Dok je gubio u paklu Višnjika, Partizan objavio dolazak hrvatskog reprezentativca
--  Fenerbahçe'de İsmail Kartal: Daha baskılı oynadık
--  İsmail Kartal: Kazanamıyorsan kaybetmeyeceksin!
--  „Trys šimtai spartiečių nervingai rūko...“ Kas vyksta kairiajame Dniepro krante
--  پی ٹی آئی کی مخصوص نشستوں کےلئے جاری پرائیرٹی لسٹ میں بی بی فوزیہ اور وزیرزادہ دوبارہ شامل، جبکہ اے۔این۔پی نے خدیجہ بی بی کو نامزد کردیا
--  Multimillonario británico Jim Ratcliffe se hace con una participación en el Manchester United
--  Bil Gejts predviđa dešavanja u 2024.
--  La Navidad cuela sus adornos en siete de cada diez hogares
--  Dev derbiye fauller damga vurdu: Sezon rekoru kırıldı
--  « Nous n'avons aucune nouvelle de lui depuis le 7 octobre » : Yuli Ben Ami, au nom du père
--  Preuves de vie, corps retrouvés, incertitudes : que sait-on du sort des otages toujours à Gaza ?
--  DIRECT. Guerre Israël-Hamas : «Nous continuerons à nous battre», assure Netanyahou alors que 15 soldats sont morts à Gaza en 48 heures
--  « Abandonner l'héritage russe » : les Ukrainiens vont fêter Noël le 25 décembre pour la première fois
--  Gaza : Emmanuel Macron exprime sa « préoccupation » sur la situation « dramatique » de la paroisse catholique
--  Disney : trop de politique, pas assez de magie… Plongée dans un royaume désenchanté
--  Russie : qui est Ekaterina Dountsova, candidate pacifiste écartée de la présidentielle et opposante à Poutine ?
--  Le ministre des Armées sera le 31 décembre sur le Dixmude, où sont soignés des civils de Gaza
--  Nouvelles attaques de navires en mer Rouge et au large de l'Inde, Washington accuse l'Iran
--  Palermo, padre e figlio di 4 anni cadono dal sesto piano: l’uomo è morto
--  В Госдуме оценили одностороннее расширение границ США в Арктике
--  Kriptoprevare sve više na udaru MUP-a
--  Стало известно, какая страна «прокатила» Украину с истребителями
--  VIDEO: Livaković loše procijenio jednu loptu, pa popravio grešku
--  Fenerbahçe'de Miguel Crespo: Üstün olan taraf bizdik!
--  Surf’s up, Santa! Hundreds of festive surfers hit the Florida shore
--  Sea Giants Talking: Scientists Hold 'Conversation' With Humpback Whale
--  Нобелевский лауреат сравнил конфискацию активов России с катаклизмом
--  قراءة متأنية لمقال بن حبتور بعنوان باب المندب اليمني يساند اهلنا في قطاع غزة المحاصر
--  ONAJ ŠTO JE PROVALIO U KRALJIČINU SPAVAĆU SOBU I SEDEO NA NJENOM KREVETU: Odnos Brajana Adamsa i princeze Dajane intrigirao svet
--  Mars yolcusu Starship önemli bir testi geçti
--  قضية بارون المخدرات المالي.. الوكيل العام للملك بالدار البيضاء يوضح حيثيات الملف
--  Bigg Boss 17: Isha Malviya decides Aishwarya`s eviction
--  ليلة العيد.. كيف هي حال الطرقات؟
--  Haftanın Numerolojik Sayısı 1919
--  Exjugadores cremas desatan la magia navideña brindando por el histórico título 32 de Comunicaciones, el más ganador de Guatemala
--  Galatasaray'da Kerem Demirbay: Zor maç olacağını biliyorduk
--  Microsismos en CDMX: Estas son las alcaldías con más movimientos telúricos registrados
--  Боррель обвинил европейских избирателей в боязливости
--  UŽIVO VIDEO Razbijen ulaz u Skupštinu Beograda, žandarmerija u zgradi
--  ريمونتادا مثيرة.. الوصل يصعق شباب الأهلي ويؤمن صدارة الدوري الإماراتي
--  En vísperas de Navidad, el papa Francisco llamó a "no confundir la fiesta con el consumismo"
--  В зоне СВО погиб боец из Белой Калитвы
--  Proyectan que la economía argentina se caerá 2% este año: qué se espera para 2024
--  Crise avec le Venezuela : Londres envoie un navire de guerre au Guyana
--  DIRECT. Guerre Israël-Hamas : le chef de l'OMS dénonce un système de santé "décimé" dans la bande de Gaza
--  Pourquoi l'Apple Watch aura presque disparu des rayons, lundi 25 décembre, aux États-Unis
--  Royaume-Uni : ce fléau culinaire qui inquiète les autorités britanniques
--  Menaces en mer Rouge : l'Espagne refuse de participer à la coalition militaire internationale
--  "Que doit-on faire ?" : des élus de Charente-Maritime démunis face à la contamination de l'eau potable par des
+-  Плющев предположил, что Ковальчук войдёт в тренерский штаб Жамнова в будущем
+-  Четверо жителей Горловки пострадали в результате обстрела ТЦ со стороны ВСУ
+-  Lingerie tycoon Michelle Mone says she has been treated like drug lord Pablo Escobar after the bank accounts were frozen by National Crime Agency amid PPE scandal
+-  Avengers, è in arrivo un film sulla nuova generazione di eroi ? Gli ultimi rumor fanno sognare i fan
+-  Лавров: арабский мир настроен на координацию с РФ по формированию будущего мироустройства
+-  Brian Austin Green holds hands with fiancee Sharna Burgess as they grab dinner in LA their son Zane
+-  Hatay'da enkazların arasında Noel ayini yapıldı
+-  Wild winger Kirill Kaprizov named NHL's No. 1 star of the week
+-  2024: desvelan una ‘obsesión’ que acaparará debate en la atomizada oposición
+-  Spór o media państwowe. Politycy PiS chcą komisji śledczej
