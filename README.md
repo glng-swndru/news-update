@@ -1,11 +1,11 @@
 # Latest News
--  '만원관중앞' 김연경, 제대로 터졌다… 흥국생명, 정관장 꺾고 연패 탈출
--  '옐레나-김연경 부진→ 시즌 첫 연패' 흥국생명, 3연패는 없었다[초점]
--  임영웅, 팬들에게 애정 가득 크리스마스 인사…핑크도 어울리는 히어로
--  ‘런닝맨 김동현, “매달려 있는 게 밥 먹는 것보다 쉽다”…진기명기 '코어力'
--  МЧС предупреждает
--  ЦАР хочет в БРИКС
--  Mercato : Hadjam pourrait quitter Nantes en janvier
--  Rośnie brazylijska kolonia w Stali Kraśnik
--  القطيف.. طالبات الثانوية يستثمرن التقنية الحديثة للتعريف باللغة العربية
--  한동훈·이재명, 여야 수장으로 명운 건 총선 승부
+-  ACSA apologises for baggage chaos at OR Tambo International Airport
+-  28 egzoplanetas tyrinėję mokslininkai rado, kuriose iš jų yra didžiausia gyvybei tinkamos aplinkos tikimybė
+-  Rimta jėga. Ką daro italai NATO teritorijoje (Foto, Video)
+-  „Netikėta invazija.“ Situacija grėsminga. Kas nutiko fronte
+-  „500 kilometrų gylis. Turime mažiausiai tris mechanizmus iš Ukrainos ir du iš Rusijos“
+-  Ne tik dūsta. Jis vos ištaria žodžius. Kas nutiko Lukašenkai (Video)
+-  El campo cierra 2023 con subida salarial "insuficiente" y la vista puesta en el convenio
+-  Karaman’da muhtar ile kayınpederinin bıçaklı kavgası olayında 1 tutuklama
+-  Ankara Cumhuriyet Başsavcılığından şehitlere yönelik suç içeren paylaşımlara soruşturma
+-  Dikkat uzman isim uyardı! Üşümenizin nedeni soğuk havalar olmayabilir
