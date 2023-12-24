@@ -1,51 +1,51 @@
 # Latest News
--  Vujović: Da nas Božić podsjeti na važnost zajedništva, povjerenja, praštanja i pomirenja
--  Vučić: Od siječnja plaće veće za 10 posto, a mirovine za 14,8 posto
--  Božićna čestitka dopredsjednika Republike Srpske
--  U eksploziji u tvornici nikla u Indoneziji poginulo 13 radnika
--  เร่งเคลียร์รางจ่ายไฟ‘รถไฟฟ้าสายสีชมพู’ ทยอยเปิดการจราจร‘ถ.ติวานนท์’ฝั่งขาเข้า
--  ‘ซูเปอร์โพล’เช็คความหวังของคนไทย ปี2567อยากได้อะไรจาก‘รัฐบาลเศรษฐา’
--  เช็คเรตติ้ง‘การเมือง’!นิด้าโพลกางลิสต์วันนี้ปชช.เชียร์‘พรรค’ไหน-หนุนใคร‘นายกฯ’
--  หนึ่งในล้าน!!! หญิงมี 2 มดลูก ให้กำเนิดทารก 2 คนใน 2 วัน
--  เช็คที่นี่!อุตุประกาศฉบับ 13 ‘เหนือ-อีสาน’หนาวเย็น-เตือน‘ใต้’ฝนตกหนัก
--  มูลหนี้ 6,824 ล้าน! ‘มท.’เผยผลลงทะเบียน‘หนี้นอกระบบ’ 24 วัน 108,217 ราย
--  เปิดวิ่งแค่ 23 สถานี! ‘สุริยะ’แจงเหตุ รางจ่ายไฟรถไฟฟ้า‘สายสีชมพู’ร่วง
--  สปีดโบ๊ทจากหลีเป๊ะคลื่นซัดอัปปาง ทหารเรือช่วย 73 ชีวิตปลอดภัย ผู้ว่าฯ สั่งสอบฝ่าฝืนคำเตือนเอาผิดทันที
--  Era Gibran: Kilas Balik Pertumbuhan Ekonomi Kota Solo
--  Sunil kedar disqualified: ఎమ్మెల్యే సభ్యత్వాన్ని కోల్పోయిన కాంగ్రెస్ మాజీ మంత్రి
--  Gidugu Rudraraju: కార్పొరేషన్ల ముసుగులో సీఎం జగన్ వేలాది కోట్ల రూపాయలు దోపిడీ చేస్తున్నారు
--  پنتاگون: حمله بر کشتی حامل مواد کیمیایی در اقیانوس هند کار ایران بوده است
--  Phó Tổng giám đốc Tổng công ty Hàng hải Việt Nam: Chuyển đổi xanh là mục tiêu quan trọng hàng đầu
--  DPR: Chuyển đổi xanh đồng bộ và hiệu quả
--  Tuổi trẻ Supe Lâm Thao: Triển khai nhiều hoạt động ý nghĩa trong năm 2023
--  Cao su Nghệ An: Hoàn thành nhiệm vụ năm 2023
--  Xuất khẩu tôm sang Trung Quốc và Hồng Kông: Cơ hội nhiều nhưng cạnh tranh gay gắt
--  Пиротехника воситалари ушланди
--  Йилнинг энг фаоллари тақдирланди
--  Уламо ғайратли бўлса, миллат ислоҳ топади
--  Ёшлар билан очиқ мулоқот
--  Абдурахимова Анорахон Рустамбоевнанинг қишлоқ хўжалиги фанлари бўйича фалсафа докторлиги (PhD) диссертация иши ҳимояси тўғрисида
--  Kiky Saputri Kena Body Shaming Lagi Gegara Bicara Politik, Kini Dibilang Lebih Cocok Jadi ART
--  Um ano após falecimento de Aaron, irmã de Nick Carter morre aos 41 anos
--  Во Франции заявили об ужасной зиме для украинцев
--  СМИ: во Франции отпустили на свободу четырех из пяти задержанных за подготовку теракта
--  Один пострадавший после атаки БПЛА под Белгородом остается в реанимации
--  "אי אפשר יותר, כמה צער": הסלבס כותבים על עוד יום עצוב
--  חברות ההייטק הכי טובות לעובדים: מי מובילה את הטבלה כבר חמש שנים?
--  Atasi Dampak El Nino, Menko Airlangga Salurkan BLT Bagi Kelompok Rentan di Yogyakarta
--  مجلس النواب : الاستقلال تحقق بفضل المخلصين من انباء الشعب الليبي من الاباء والاجداد الذين امنوا بوحدة ليبيا.
--  موظفو مطار جنيف يضربون عن العمل للمطالبة بزيادة رواتبهم
--  مفوض الأمم المتحدة لشئون اللاجئين يؤكد أن الحرب في غزة تتحدى المنطق والإنسانية
--  جيش الاحتلال يعترف بارتفاع عدد قتلاه المعتدين على قطاع غزة إلى ( 152) جنديا .
--  مجلس الأمن الدولي يعرب عن قلقه تجاه العنف في السودان
--  حملة التشجير التي تستهدف غرس 100 مليون شجرة في انحاء البلاد تتواصل من داخل غابة البيرة بمصراته .
--  مؤسسات المجتمع المدنى بسبها تنظم الندوة الثانية حول الشأن السياسى الليبى
--  بدء الاقتراع لانتخاب أعضاء المجالس المحلية في تونس.
--  مقتل 130 عنصرا من حركة الشباب في عمليات للجيش الصومالي.
--  السفارة الأمريكية تدعو الفاعلين الليبيين قبول مبادرة (( باتيلي)) للحوار وتقديم التنازلات اللازمة لاحراز تقدم في العملية السياسية.
--  قوات الاحتلال الإسرائيلي اعتقلت 4695 فلسطينيا من الضفة الغربية منذ السابع من أكتوبر الماضي.
--  في ذكرى الاستقلال السفير الألماني : نتمنى عقد الانتخابات الليبية في العام القادم .
--  الدبيبة يفتتح المجمع الإداري والمبنى الاداري لدائرة الكهرباء ببني وليد.
--  الليبيون يحيون الذكرى الـ ( 72 ) للاستقلال في الرابع والعشرين من ديسمبر وهم يتطلعون الى ان يعم الامن والاستقرار والازدهار ربوع الوطن كافة ، وتتحقق المصالحة الوطنية المنشودة .
--  المصرف المركزي يبحث جدوى طرح التصنيف الائتماني في السوق الليبي
--  Muere hermana de Nick Carter, Bobbie Jean, a los 41 años
+-  Amanece la ciudad con sensación térmica de 4 grados
+-  Sufre Tabasco caos... y dicen 'fue confusión'
+-  ضبط 1400 سيارة ودراجة نارية في صنعاء
+-  الاحتلال يعتقل 9 قلسطينيين في الضفة
+-  देश की खबरें | कोरोना वायरस का जेएन.1 स्वरूप: मंत्री ने वेंटिलेटर की उपलब्धता सुनिश्चित करने के निर्देश दिये
+-  देश की खबरें | जम्मू कश्मीर : सेना ने शहीद जवानों को दी श्रद्धांजलि
+-  سحب قرعة كأس الرابطة نهاية ديسمبر
+-  Beijing records most hours of sub-zero temperatures in December since 1951
+-  AKP asgari ücret için tarih verdi
+-  देश की खबरें | अदालत ने अवमानना के लिए ठाणे के दो पुलिस अधिकारियों को कारण बताओ नोटिस जारी किया
+-  जरुरी जानकारी | सरकार ने खाद्य पदार्थों की कीमतों को नियंत्रित करने के लिए कई कदम उठाए: गोयल
+-  Diego Díaz y Carmen Rosa Pérez ganan la Copa de Cantabria de Carreras por Montaña Vertical 2023
+-  La CENCO rejette la bénédiction des couples de même sexe en RDC, en réponse à la déclaration du Vatican
+-  "Фокус на внутренних делах". Бразилец о том, почему его страна не активна на пути к многополярности
+-  Larm om knivman i Linköping
+-  Милан Милан сака Конте да биде наследникот на Пиоли
+-  Luisa Baptista tem melhora após ser atropelada e sofrer múltiplas fraturas
+-  Цуренко: Допускати до Олімпіади росіян – абсолютно нерозумне рішення
+-  Portugal: Schlaf schön! Wie übernächtigte Gäste im Schlafhotel endlich Ruhe finden – oder auch nicht
+-  محافظ المنيا يتابع خطة الرصف على مستوى مراكز المحافظة
+-  How to Watch Wolves vs Chelsea, Premier League 2023–24 Live Streaming Online in India? Get EPL Match Live Telecast on TV & Football Score Updates in IST
+-  Here's how to turn Skyrim into the year's 3 biggest games with the power of mods to beat inflation and save money
+-  World News | Furnace Explosion at Chinese-owned Nickel Plant in Indonesia Kills at Least 13 and Injures 46 Others
+-  สตช.ไฟลุก! ‘บิ๊กต่าย’ สั่งตรวจสอบด่วน หลัง ‘มท.1’ โผล่บุกบ่อน 2 เมืองใหญ่
+-  Стоичков: Политиката не е за мен! На здрава глава лед да слагам!
+-  India News | J'khand IMA Seeks CM Help to Arrest Extortionists Who Demanded Rs 1cr from Dhanbad Doctor Couple
+-  Entertainment News | Shah Rukh Khan's 'Dunki' to Be Screened at Rashtrapati Bhavan
+-  وزير الصحة وأمين محلي حضرموت يطلعان على التجهيزات النهائية لتشغيل مركز المكلا للعلاج الإشعاعي
+-  Indian-flagged oil tanker hit by drone fired by Houthis in Red Sea: US military
+-  देश की खबरें | खेल मंत्रालय ने आईओए से डब्ल्यूएफआई का कामकाज देखने के लिए तदर्थ समिति गठित करने को कहा
+-  Desejo do Botafogo, Medina pode oferecer diferentes opções táticas a Tiago Nunes
+-  Com orçamento limitado, Santos corre para readequar elenco a nova realidade financeira
+-  Evo rezultata s malonogometnog turnira koji se ovih dana održava u Biogradu
+-  Duílio encerra gestão no Corinthians com 'saldo negativo' nas contratações
+-  Infortunio Tomori, quante e quali partite salterà il difensore: a rischio i match di Europa League!
+-  Jak skorzystać z ChatGPT i innych usług AI. Co można zrobić? Poradnik
+-  Davíð Smári framlengir við Vestra (Staðfest)
+-  Três pessoas são baleadas em Sorriso
+-  Bayern Munich striker Harry Kane looking forward to his first ever Christmas break
+-  Amasya'da otomobil refüje çarptı! 5 kişi yaralandı
+-  Ilha Maldita foi destino brasileiro mais procurado, em 2023
+-  عبر مؤسسة " نداء " للتنمية والتطوير .. الهلال الأحمر التركي يوزع سلال غذائية في أبين
+-  ارتفاع مؤشر بورصة قطر
+-  Fortaleza acerta negociação com zagueiro argentino para 2024
+-  IND vs SA 1st Test: इस मामले में ईशांत शर्मा को पीछे छोड़ सकते हैं जसप्रीत बुमराह, साउथ अफ्रीका के खिलाफ टेस्ट सीरीज में होगी सबकी निगाहें
+-  Izrael bombardira sjeverni dio Pojasa Gaze
+-  Delhi Fire: Blaze Erupts in Godown in Karawal Nagar, 12 Fire Tenders Rushed to Spot
+-  Missa do Galo: por que a principal celebração do Natal recebe esse nome?
+-  İran uçağı motor arızası nedeniyle İsfahan'a zorunlu iniş yaptı
+-  Netanyahu'dan itiraf gibi açıklama: Savaş bize çok ağır bedel ödetiyor
