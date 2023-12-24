@@ -1,11 +1,11 @@
 # Latest News
--  El renacimiento de Miguel Bosé
--  موعد مباراة الأهلي وسيراميكا في السوبر المصرى.. والقناة الناقلة.. وتغييرات في تشكيل كولر
--  خلال 4 أيام.. أبو عبيدة: مجاهدونا قتــ..ــلوا 48 جنديا إسرائيليا ودمروا 35 آلية عسكرية
--  66 شهيدا بمجزرة جديدة في مخيم المغازي
--  Pueblo colombiano de Guachené llora el asesinato de su alcalde y exige justicia (Fotos)
--  سلطات أوكرانيا تعلن فتح معبر حدودي بعد إنهاء سائقي شاحنات بولنديين إغلاقه
--  توقيف ثلاثة اشخاص يشتبه في انتمائهم لجماعة إسلامية في النمسا
--  بكين تسجل رقما قياسيا جديدا لتدني درجات الحرارة في كانون الاول منذ 1951
--  المدير العام لمنظمة الصحة يندّد بالقضاء على النظام الصحي في غزة
--  تظاهرة حاشدة جديدة في المغرب ضد "حرب الإبادة" في غزة والتطبيع مع إسرائيل
+-  Dem Parti’nin olaylı kongresinde en az 30 gözaltı
+-  ‘Scream VII’ director exits film: ‘A dream job that turned into a nightmare’
+-  Running back Darius Taylor on returning to the Gophers: ‘I love it here’
+-  Galatasaray'da Icardi'nin son halini görenler bakamıyor! Yüzünü direğe çarpan golcü oyuncunun elmacık kemiği kırıldı
+-  דגו: "הקבוצה לומדת אותי, אולי אני טיפה יותר משוחרר גם"
+-  وكيل وزارة الصحة بدمياط يفاجئ العاملين في الوحدة الصحية بالشعراء
+-  Израел: Оваа недела уапсени 200 членови на Хамас
+-  Why couples often share high blood pressure, others – cardiologist
+-  Chelsee Healey gives birth! Hollyoaks star welcomes second daughter and reveals their very unusual name
+-  Жертвами ударов Израиля по лагерю беженцев в Газе стали более 60 человек
