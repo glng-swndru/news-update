@@ -1,11 +1,11 @@
 # Latest News
--  Archbishop lists national anthem’s ‘five treasures’ in Christmas message
--  Appreciate the beauty of peace, George Vella says in his last Christmas message as President
--  ليبيـا تعد خارطة طريق استراتيجية للتنقيب عن النفط والغاز في 2024
--  Dukić i Marković u Australiji traže olimpijsku vizu
--  Tko bi sljedeći mogao na mjesto premijera? Plenković na prvom mjestu, Grbin i Raspudić pri dnu
--  الحوثيون يهددون : كابلات الانترنت تمر عبر باب المندب
--  New claim MH370 hijacked by ‘experienced pilot’ before disappearance
--  السنغال: حجز 690 كلغ من الكوكايين واعتقال 5 إسبانيين
--  Firm Lauds Adoption Of Marketing Technology In Nigeria
--  Ερυθρός Αστέρας - ΚΚ Σπλιτ 89-67: Άνετος πριν τον Παναθηναϊκό
+-  Uvijek ugasite lampice na svom boru: Problem može nastati u sekundi
+-  Antioquia llegó a los 66 quemados por pólvora y aún falta Navidad y Año Nuevo
+-  Okan Buruk ve İsmail Kartal'ın penaltı tartışması!
+-  PKK ile kol kola gezen CHP'ye şehit cenazesinde tepki yağdı! Özgür Özel'in gönderdiği çelenk parçalandı
+-  Acı haber! Ünlü Yeşilçam oyuncuları Ayşen ve Yılmaz Gruda çiftinin kızı Elvan Gruda hayatını kaybetti
+-  Krippenspiele öffnen die Herzen für weihnachtliche Botschaft
+-  Eagles fans have long turned the page on snowball fiasco. 'No one was trying to hurt Santa Claus'
+-  Revela iguarias que ficam a seu encargo no Natal
+-  US-Luftwaffe hat Weihnachtsmann auf dem Radar: Die Flugroute von Santa Claus
+-  US-Luftwaffe hat Weihnachtsmann auf dem Radar: Die Flugroute von Santa Claus
