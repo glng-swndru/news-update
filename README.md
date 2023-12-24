@@ -1,51 +1,51 @@
 # Latest News
--  A Magyar Tenger a 18.-19. században
--  Bir kadın devrimi olarak Cumhuriyet -1: Kadınlar vatanı da özgürlükleri de birlikte kazandılar
--  'Bilgiler ortada Tayyip Bey’e dosyalar ulaştırılmıyor'
--  ABD Kızıldeniz’de yalnız kaldı
--  Yeni bir dünya için iş birliği çağrısı
--  Asgari ücretliler beklentilerini konuştu: İşveren lüksünden kıssın
--  Aaj Ka Mithun Tarot Card: मिथुन राशि वाले दबाव में फैसले लेने से बचें, मिलेगी कोई जरूरी सूचना
--  Türkiye ayakta CHP yönetimi PKK’nın yanında
--  Sutran: Más de 900 inspectores en alerta total por Navidad
--  Ovo povrće će učiniti čuda za vašu prljavu rernu
--  Ferenc pápa: Betlehemben a fegyverek zaja ma sem ad helyet a gyermek Jézusnak
--  تصعيد إسرائيلي وقصف كثيف يوقع عشرات الضحايا في غزة
--  'May All of Their Souls Rot in Hell': Two Colorado Paramedics Who Injected Elijah McClain with an Overdose of Ketamine Found Guilty In His Death
--  'May All of Their Souls Rot in Hell': Two Colorado Paramedics Who Injected Elijah McClain with an Overdose of Ketamine Found Guilty In His Death
--  Cameron Diaz Denies Jamie Foxx Had a Meltdown on Movie Set Nearly Weeks Before Suffering a 'Medical Complication,' 'Really Made Me Angry'
--  Cameron Diaz Denies Jamie Foxx Had a Meltdown on Movie Set Nearly Weeks Before Suffering a 'Medical Complication,' 'Really Made Me Angry'
--  Waka Flocka Slammed for Appearing to Promote Donald Trump's Platinum Plan After Endorsing Him for President
--  Waka Flocka Slammed for Appearing to Promote Donald Trump's Platinum Plan After Endorsing Him for President
--  Conservative Think Tank Accuses Justice Ketanji Brown Jackson of 'Willfully' Failing to Report Her Husband's Earnings; Clarence Thomas Faced Similar Criticism a Decade Earlier
--  Conservative Think Tank Accuses Justice Ketanji Brown Jackson of 'Willfully' Failing to Report Her Husband's Earnings; Clarence Thomas Faced Similar Criticism a Decade Earlier
--  Beyoncé Surprises Fans In Brazil 10 Years After She Was Nearly Dragged Into the Audience There By a Fan
--  Beyoncé Surprises Fans In Brazil 10 Years After She Was Nearly Dragged Into the Audience There By a Fan
--  Fue tiroteo en Florida ataque específico contra víctima
--  Κρήτη: Αγωνία για την 17χρονη που υπέστη αλλεργικό σοκ – Ξεκίνησε η διακοπή καταστολής της
--  الامارات | محمد بن راشد يهنئ البروفيسور واسيني الأعرج لفوزه بـ «نوابغ العرب» عن فئة الأدب والفنون
--  الامارات | «مرور العين» تدين 3 متهمين بسبب الضجيج والاستعراض في الطريق العام
--  الامارات | حمدان بن محمد يعتمد صرف مكافأة أداء للموظفين المدنيين في حكومة دبي بـ 152 مليون درهم
--  الامارات | شباب حتا ..هواء حتا يأسر قلوب الدرّاجين العالميين
--  الامارات | 4 أسباب وراء عدم إجراء تعديلات في قائمة المنتخب استعداداً لكأس آسيا
--  الامارات | «تنمية المجتمع» تعلن إطلاق مسح دخل وإنفاق الأسرة لعام 2024
--  الامارات | «الناموس»: نحمل رسائل مجتمعية هادفة أكبر من الفوز بالبطولات
--  Tori Spelling Chats With Mystery Man During Holiday Shopping With Daughter
--  Derbi dünya basınında gündem oldu! "Hiçbir şey değişmedi"
--  La alegría de la Navidad llegó a los niños de El Cacao
--  3800 متقدم للنافذة الإلكترونية الموحّدة
--  A London stop sign was Banksy’s newest canvas. Now it’s missing.
--  India won the Test : ఆసీస్‌ను జయించారు
--  Драмбаєвим цікавляться клуби з Бельгії, Нідерландів та Польщі
--  Mısır'dan üç aşamalı ateşkes teklifi
--  "الدفاع المدني" بالرياض يحرر إصبع شخص علق في قطعة معدنية
--  Forsyth Park statue vandalism
--  مصر تطالب بوقف إطلاق النار في غزة وتحذر من انفجار بالضفة
--  新春の「歌会始」入選者決まる 新潟市の高校生など10人
--  Βασίλης Καρράς: «Έκανε το τσιγάρο του» και έφυγε έχοντας την αγάπη όλης της Ελλάδας
--  El Reino Unido anunció que enviará un Buque de Guerra a Guyana
--  Más de 60 muertos en un ataque israelí contra el campo de refugiados de Al Maghazi
--  Српската полиција приведува лица кои се обиделе насилно да упаднат во зградата на Градското собрание
--  Papst mahnt in Christmette zu Frieden
--  Bareilly News: बजट जारी...फिर भी अधर में फंसे अंडरपास, रुक रही एक लाख लोगों की राह
--  المقاومة تقتل 9 جنود للاحتلال
+-  Ayşen Gruda ve Yılmaz Gruda'nın kızı Elvan Gruda hayatını kaybetti
+-  Zack Snyder: la película romántica que se convirtió en su favorita para ver en Navidad
+-  ارتفاع عدد شهداء مجزرة مخيم المغازي إلى 70
+-  Islamabad Capital Police beef up security for Christmas
+-  “Ubili smo 8000 palestinskih boraca”: Netanyahu najavio borbu do totalne pobjede
+-  Baloch protesters granted bail, to be released soon: Islamabad Police
+-  متحور كورونا الجديد JN.1 يصل هذه الدول.. وأمريكا تتصدر الإصابات
+-  Laçın sakini: "Erməni qadının evimdə paltar sərdiyini internetdən öyrəndim"
+-  Al menos nueve heridos dejó fuerte tiroteo entre policías y criminales en Río de Janeiro
+-  AI’s new inflection point and other 2024 tech-related predictions
+-  ‘Extremely harsh’ - Sky Sports journalist shares ‘lucky’ verdict after Everton loss v Tottenham
+-  Felipe VI enarbola la "dimensión" constitucional que ampara la sanidad
+-  Sophie Turner to spend Christmas with two kids in England amid Joe Jonas divorce
+-  Festim Halili: Në Xhermë kryetar të Forumit rinor zgjodhëm Shkëlqim Rushanin kurse Lulzim Ismailin në Çarshi të Epërme
+-  Pimenta defende regulação das redes e diz que internet não pode ser reino da impunidade
+-  Pirrig Batra tände ljuset: "Ville inkludera alla"
+-  Hollyoaks star Chelsee Healey welcomes second child with unusual and festive name
+-  Archbishop asks Pakistani Christians to contribute in progress, spread peace
+-  Армия Израиля сообщила о расширении операции в Хан-Юнисе на юге сектора Газа
+-  Rita Ora declares 'no days off' as she shares sweaty Christmas Eve workout during New Zealand trip
+-  Žene su potvrdile: Ovo je najjača bol, mnogo je jača od porođajne
+-  Reviving Mr Jinnah’s Pakistan: A Critical Reflection and a Call to Action
+-  HAOS NA IBARSKOJ: Automobil udario divlju svinju, a na njega naleteo kombi, povređen muškarac! (VIDEO)
+-  Gaza : 60 morts annoncés dans une frappe israélienne sur un camp de réfugiés
+-  Вышло рождественское обновление Telegram — оформление каналов, репосты публикаций в истории и многое другое
+-  PAO BEZ LESORA SLAVIO PRED ZVEZDU: Panatinaikos nastavio seriju pobeda uoči okršaja sa crveno-belima!
+-  Главком ВМФ РФ проинспектировал Тихоокеанский флот
+-  "Rolnik szuka żony". Anna i Jakub zaręczeni! "Powiedziała »tak«"
+-  Former Black Cap Corey Anderson is relishing his time back in New Zealand this Christmas, after spending a few years abroad
+-  DİŞ PROTEZ LABORATUVAR HİZMETİ ALINACAKTIR T.C. İZMİR VALİLİĞİ İL SAĞLIK MÜDÜRLÜĞÜ ATATÜRK EĞİTİM VE ARAŞTIRMA HASTANESİ
+-  FİDAN, TOHUM ÜRETİMİ VE BAKIMI HİZMETİ ALINACAKTIR ORMAN FİDANLIK MÜDÜRLÜĞÜ- İZMİR/TORBALI DİĞER ÖZEL BÜTÇELİ KURULUŞLAR ORMAN GENEL MÜDÜRLÜĞÜ
+-  İLAN İZMİR 2. ASLİYE HUKUK MAHKEMESİNDEN
+-  2024 YILI İÇERİSİNDE BELEDİYEMİZ HİZMETLERİNDE KULLANILMAK ÜZERE ARAÇ KİRALAMA İŞİ MENDERES BELEDİYESİ DESTEK HİZMETLERİ MÜDÜRLÜĞÜ
+-  Programación navideña en Latina: ¿qué películas y a qué hora ver este 24 y 25 de diciembre?
+-  Путин примет участие в Санкт-Петербурге в саммитах ЕАЭС и СНГ
+-  Kenya Power losses on unpaid bills hit Sh17bn
+-  NEMAČKI GIGANT PROGLASIO BANKROT PRED PRAZNIKE: Vest zatekla celu industriju, gase proizvodne linije, radnici ostaju bez posla
+-  Tragedia w Międzyzdrojach. W Wigilię doszło do kolejnej śmierci na tej samej ulicy
+-  ألفاريز يغلق الباب في وجه برشلونة وريال مدريد
+-  Partizani zhgënjen në prag të festave, mundet nga Erzeni
+-  FIA arrests co-accused in online women harassment case from Rawalpindi
+-  Knife wielding husband told wife ‘you’re faster than I thought’ as he chased her
+-  В Сербии спецназ разгоняет протестующих
+-  Reug Reug désigne son adversaire après avoir battu Bombardier : « C’est ça que je veux »
+-  วง 4 EVER โรงเรียนเมืองกระบี่ คว้าแชมป์ MCOT Acoustic Band Contest
+-  ‘ทุ่งทานตะวันวังทอง’บานแล้ว! รอรับนักท่องเที่ยวสัมผัสปีใหม่-ฤดูหนาวนี้
+-  ‘บิ๊ก NT’จ่อเจรจา‘กสทช.’ดึง 3 คลื่นเปิดให้บริการพื้นที่ห่างไกล ลุย 5G บน700MHz
+-  เร่งตามหาลูกเรือประมงลอบปู 6 ชีวิต หลังคลื่นซัดอับปาง สูญหาย 2 วัน ยังไม่พบตัว
+-  ลอยอังคาร‘สารวัตรแบงค์’ แม่สะอื้นบอกวิญญาณ‘ได้เวลาเดินทางแล้วลูก’
+-  วิ่งไปไฟไหม้ไป! ระทึกไฟไหม้รถขนฟาง ช่วยกันดับแทบไม่ทัน
