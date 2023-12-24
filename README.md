@@ -1,11 +1,11 @@
 # Latest News
--  Путин разрешил Росбанку выкупить у Societe Generale акции ряда компаний
--  Babiš s Fialom bavili celé Česko: Nuttela a rožok počas diskusie, bývalý premiér mal aj transparent
--  Боррель: Россия победит на Украине, если ЕС не мобилизует все возможности
--  Žreby, fastfood aj kolieskové korčule: Toto je 8 najbizarnejších vianočných tradícií sveta
--  Дроздов: «Спартак» хорошо выступает в сезоне благодаря грамотной селекции
--  Il Giornale sentenzia: «Panettone a pezzi, ora rischiano i preparatori»
--  Som otec jeho dcéry. Ruská hviezda si vystrelila z krajana, bývalá svetová jednotka sa však nebavila
--  Khiladis ready for Yoddhas challenge
--  `I`m done with wrestling`: Ex chief Brij Bhushan after govt`s suspension
--  Co obejrzeć w Boże Narodzenie? Sportowe święta w telewizji i internecie
+-  അക്ഷരാർത്ഥത്തിൽ ഒരു ‘കിളി പറക്കൽ’ അനുഭവമാവും നിങ്ങൾക്ക് ഈ സിനിമയിൽ നിന്നും ലഭിക്കുക
+-  Náročný deň pre slovenských hasičov: Po celom Slovensku v sobotu zasahovali viac ako 500-krát
+-  Mnangagwa Desperate For Grace Mugabe Endorsement
+-  Združeno kraljestvo proti Gvajani, svoji nekdanji koloniji, poslalo vojaško ladjo
+-  ঝিনাইদহে ৫০০ শীতার্তদের মাঝে কম্বল বিতরণ
+-  বাংলাদেশ-নিউজিল্যান্ডের টি-টোয়েন্টি সিরিজের সূচি
+-  গণতন্ত্র না থাকলে ইউরোপ-আমেরিকা নিষেধাজ্ঞা দেবে: নুর
+-  বিসিবির নতুন কেন্দ্রীয় চুক্তিতে থাকছেন না তামিম ইকবাল
+-  আওয়ামী লীগ গণতন্ত্রের জন্য বিষফোড়া: ডা. ইরান
+-  সাহস থাকলে দেশে এসে রাজনীতির মাঠে নামেন: তারেকের উদ্দেশে সাঈদ খোকন
