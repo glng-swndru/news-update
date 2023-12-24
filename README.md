@@ -1,11 +1,51 @@
 # Latest News
--  ZABRINUO PUBLIKU: Senad Bašić zbog zdravstvenih problema nije preuzeo nagradu
--  Αυτές είναι οι 4+1 βασικές παράμετροι για το πόσο κινδυνεύετε από καρδιά
--  Das ist das Foto der Woche
--  Изненадваща раздяла обмисля Барселона
--  Navidad: Nacimiento de 20 metros se exhibe en antigua casona que perteneció a presidente vitalicio Francisco García-Calderón
--  Новогодние праздники: будет ли рабочим или выходным днем 30 и 31 декабря
--  Altreifen, Mikrowelle und Bauschutt in der Natur: V+E sammelt in Waltrop eine Tonne Müll ein
--  Abschied von einer Kultfigur: „Klimbim“-Opa Wichart von Roëll trauert um Ingrid Steeger
--  Weihnachten 2023 in Herten: In vielen Wohnzimmern ist ein Tannenbaum bunt geschmückt
--  Sign Ivan Toney, bring in Aaron Ramsdale, and replace striker – What every club needs to do at Christmas
+-  US to welcome appointment of UN envoy to Cyprus
+-  ‘We’ve forgotten that childbirth is part of nature’
+-  Batmakta Olan Bir Kargo Gemisiyle Karşılaşırsanız Köşeyi Dönersiniz! (Ama Tek Bir Şartla)
+-  أمانة الأحساء تصدر 2928 ترخيصًا سكنيًا
+-  عاجل.. كم يومًا تبقى على إيداع رواتب الموظفين لشهر ديسمبر؟
+-  Uzman doktor: Şehir hayatı kalp hastalıklarının görülmesini 40'lı yaşlara düşürdü
+-  Mert Günok, Rıza Çalımbay'a cevap verdi
+-  Asgari ücretin açıklanacağı tarih belli oldu!
+-  DEM kongresinde skandal görüntüler! Teröristler için saygı duruşunda bulundular
+-  Demanti ministra Edina Đerleka na tekst u Kuriru
+-  Francuska pojačala sigurnost u crkvama zbog straha od terorističkih napada
+-  UK to send naval ship to Guyana amid Venezuela border dispute
+-  وكيل تعليم جنوب سيناء يشهد حفل ختام الأنشطة بالمدرسة المتميزة ويشيد بأنشطة الطلاب
+-  블랙핑크 로제, 크리스마스 맞아 동화에서 나온 공주님 '러블리'
+-  Zbog teške nesreće zatvorena autocesta A1: Na D8 poginuo motociklist, na A3 kolona duga 8 km, na Bajakovu 6 km
+-  Türkiyə ordusu 30 terrorçunu məhv etdi
+-  Trauer an Weihnachten: Matthias Reim spricht über Tod seines Vaters
+-  Liga Italia: Victor Osimhen Perpanjang Kontrak dengan Napoli hingga 2026
+-  El achuchón más deseado en las estaciones de Valladolid
+-  Bridges-Kammerorchester im Congress Park Hanau
+-  Auto-putem od početka godine prošlo 2,24 miliona vozila
+-  مصرع 9 أفراد من أسرة واحدة إثر حريق بغرب باكستان
+-  Saran agar Berat Badan Tetap Terjaga saat Rayakan Natal
+-  Chelsea y el insólito gol que falló estando 3 vs. 1: Sterling nos regaló el blooper de la Navidad
+-  Gobernador Ernesto Luna llevará juguetes a más de 300 mil niños en Monagas
+-  Soupçons de traite d'êtres humains : l'avion autorisé à quitter la Marne, les passagers bientôt réacheminés
+-  Cure jezivi detalji, poznati rezultati obdukcije ubijene djevojčice Vanje, bila je živa u automobilu
+-  'Nice TRY, Fed': Biden Posts 'His' Number, Tells People to Text Him New Year's Resolutions and OMG-LOL
+-  Ey Kızılcık Şerbeti, aşk her şeyi affeder mi?
+-  幸運兒是誰？機捷第1.5億位乘客耶誕節前出爐 車資只花25元
+-  בעיטה מדויקת לפינה הרחוקה: שער שני ברציפות לאצילי באל עין
+-  Özgür Özel’den bildiri açıklaması: Öyle yağma yok
+-  3D yazıcı ile modellenen 'simülatör inek' üretildi
+-  This Christmas tell your children the real Santa Claus story
+-  Nidderau: Weihnachtszauber beim Konzert der Bertha-von-Suttner-Schule
+-  Music artists honoured at inauguration of Paddhathi Music Fest
+-  Adolescente tem cabeça atravessada por tiro enquanto dormia em MT
+-  Dauerregen lässt Pegel in Rheinland-Pfalz nochmals ansteigen
+-  الجيش الإسرائيلي: عملياتنا البرية في خان يونس مستمرة ونستعد لتوسيعها
+-  «Λαβράκι» από την ΑΑΔΕ σε γνωστό κέντρο διασκέδασης ενηλίκων: Διαπίστωσαν φοροδιαφυγή 3 εκατ. ευρώ
+-  GDE SI PARKIRAO SANKE I IRVASE? Popularni Deda Mraz na druženju sa mališanima zaposlenih u "Novostima", u "MTS dvorani" (FOTO)
+-  Барнс повторив досягнення чотирьох легенд НБА
+-  Во Зрењанин: Еден мртов во караницата помеѓу двајца познаници
+-  Защитник се разбра с Интер за нов договор
+-  Grupo 5 se pronuncia ante extorsionadores que dispararon su vivienda en Los Olivos
+-  平安夜｜至下午4時有逾43萬人次出境 羅湖口岸佔最多
+-  Milanović ovo nije mogao prešutjeti u božićnoj poruci: Pred tom činjenicom nitko ne smije zatvarati oči
+-  Bayer-Aktie: Bayer kann nach Langem wieder einen Glyphosat-Fall in den USA gewinnwn
+-  "Babbo Natale non esiste", genitori infuriati contro dirigente scolastica
+-  "Hace 50 años" INFORMACIÓN recupera la historia de Alicante y su provincia a través de las imágenes de Perfecto Arjones
