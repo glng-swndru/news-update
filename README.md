@@ -1,11 +1,11 @@
 # Latest News
--  Más de 160 muertos en Gaza en las últimas 24 horas, más de 20.400 en toda la guerra
--  المواد الغذائية: "عبور لاند" ترفع أسعار منتجاتها من الجبن والألبان
--  تراجع متوسط أسعار الدواجن في الأسواق اليوم الأحد (موقع رسمي)
--  אושר מינוי ד"ר שמואל אברמזון לכלכלן הראשי במשרד האוצר
--  منها خفض الكوليسترول.. فوائد مذهلة عند تناول كوب من عصير الجزر - مفاجأة
--  יתרון לאייפוניסטים: מתקפות מבוססות בינה מלאכותית ושלל נוזקות ריגול לאנדרואיד
--  تحويل السير على طريق تُقبل - فوعرا بإربد
--  Suomi hiljentyi joulunviettoon Turun joulurauhan julistuksen myötä
--  Jason Momoa Weighs 260 Lbs And The Game Of Thrones Horses Wouldn’t Like It
--  Granatimet ruse vrasin katër persona në Herson
+-  Israel dan Hamas Terlibat Pertempuran Seru di Gaza Utara Minggu Pagi
+-  Afghanistan startet landesweite Impfkampagne gegen Polio
+-  Германия — Каждый житель страны должен получить компенсацию в 139 евро
+-  Forgotten Love Island star shares very sexy thong snap as she strikes sultry pose in bed
+-  Спортклубу кировской школы №5 вручили сертификат на 1,5 млн рублей
+-  Нетаняху: Военните действия на Израел се базират на собствената му преценка
+-  EVO ŠTA SVE MOŽE DA SE DESI LJUDIMA KOJI SU UPALI U LEDENU SAVU KAD JE SPLAV POČEO DA TONE: Dr otkrio niz ozbiljnih posledica!
+-  7 Macam Jajanan dan Hidangan Natal yang Sehat
+-  Festive music nights on the horizon
+-  عاجل.. إطلاق نار وحشيش.. تنفيذ حكم الشرع في قاتل مواطن بالرياض
