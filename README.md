@@ -1,11 +1,51 @@
 # Latest News
--  รถไฟฟ้าสายสีชมพู แจงเหตุ "รางที่ใช้จ่ายไฟฟ้า" ร่วง - หยุดให้บริการ 7 สถานี
--  ‘She’s been the wind beneath our wings’
--  God’s Spell, in Warli
--  Nursery admission in Delhi: Have you paid Rs 5,000 to book nursery seat?
--  Shah Rukh Khan, Deepika Padukone, Ranveer Singh look their best at Umang, Salman Khan greets Usha Uthup with warm hug
--  Today’s (Dec 24) weather: Showery condition to continue
--  Chief minister responsible for law and order deterioration: Kerala Governor
--  Romeo, filho de Marcos Mion, se apresenta no palco do Caldeirão e emociona pais e público
--  베이커리 카페 파운데이, 파운드케이크 누적 판매 200만 개 돌파
--  동국대 듀이카, 이달 29일 국비지원 2023학년도 동계방학 IT특강 신청 마감
+-  हात्तीको आक्रमणबाट एक जना घाइते
+-  Punjab: ਕਿਸਾਨ ਜਥੇਬੰਦੀਆਂ ਦਾ ਐਲਾਨ- ਇਸ ਵਾਰ ਮੁਹਾਲੀ ਨਹੀਂ, ਚੰਡੀਗੜ੍ਹ ਦੇ ਅੰਦਰ ਹੀ ਕਰਨਗੇ ਅੰਦੋਲਨ
+-  सुनसान भयो सुन्दर मुस्ताङ
+-  「二手禮物」風潮來襲！聖誕節變得精打細算，背後原因不只通膨？
+-  India will pay price if they don’t travel to Pakistan
+-  Sports Minister Thakur: No more comments on wrestling issue
+-  Synthesis for HPSL Indian 2000 Guineas (Gr 1)
+-  We have to be calm: Ten Hag
+-  Man City clinch first Club World Cup
+-  Ridhi Dogra watches SRK`s `Dunki`, shares fans there called her `Jawan ki mummy`
+-  पोस्ट ऑफिस की सेविंग स्कीम के दीवाने हुए भारतीय, ये सर्वे निवेश के प्रति आपका नजरिया बदल देगी
+-  93-year-old veteran receives more than 400 Christmas cards after making Facebook post
+-  Bitcoin Bull Cathie Wood’s Ark Invest Sold Over 343K Coinbase (COIN) Shares In A Week
+-  Bizman Behind Infomercial Drugs Had Taste for the Luxe Life
+-  18 टन खाना, 25000 वाइन की बोतलें… इतिहास की सबसे महंगी पार्टी, जो 2000 साल पुरानी राजशाही के लिए बनी ‘काल’
+-  الخميس.. "نجيب محفوظ.. رواية لا تغيب" فى ملتقى الهناجر الثقافى
+-  غدا.. "مراسم الأقصر" في معرض فني لقصور الثقافة بالأوبرا
+-  وزير الطيران يرد على خروج مصر للطيران من تصنيف أفضل 100 شركة عالميًا
+-  Vitamins: क्या शरीर में विटामिन की कमी होने पर इन्हें पूरा किया जा सकता है? जानिए क्या कहते हैं हेल्थ एक्सपर्ट
+-  محاكمة المتهمين بقتل طبيب بالتجمع الخامس.. اليوم
+-  10 Movies to Stream Tonight If You Can’t Stand Christmas
+-  Россиянам дали советы по приобретению духов в упаковке небольшого объёма
+-  دراسة: الإضاءة البيضاء أفضل خيار لنومك
+-  대전시, 2023 조달 이용 우수기관으로 선정
+-  [부고] 박승제(한국화이자제약 부장)씨 부친상
+-  본죽, ‘행운팥죽’ 죽차 운영… 직장인에 단팥죽 선물해
+-  Очеквейте: Везенков и компания срещу лидера в Западната конференция
+-  Breaking News Live Updates: देश के कई इलाकों में छाया कोहरा, ठंड से ठिठुरे लोग
+-  Arsenal Imbangi Liverpool di Anfield dan Tetap Pimpin Klasemen, Arteta: Kami Berhasil Melewati Ujian Berat
+-  Former Guv MM Rajendran passes away
+-  Fahira Idris Ingatkan Capres-Cawapres Perhatikan Kaum Ibu
+-  Delhi: दिल्ली सरकार पर दवा घोटाले की आंच..होगी CBI जांच?
+-  Rekap Prestasi Bulutangkis Indonesia Sepanjang 2023: Menjanjikan di Awal, Menurun di Akhir
+-  Queen Silvia of Sweden celebrates her 80th birthday with grandkids by her side
+-  Queen Silvia of Sweden celebrates her 80th birthday with grandkids by her side
+-  Gibran Cerita Punya 2 Detik Terakhir Ucapkan Selamat Natal saat Debat
+-  「現代の忍者」博士号を取得 忍びの探究を地域防災のあり方に広げる
+-  "القاهرة- جدة" ثاني أكثر الرحلات الجوية ازدحامًا في العالم
+-  Chhattisgarh CM and Deputy CMs meet PM Narendra Modi
+-  Fry Chhuhara: ਠੰਡ 'ਚ ਫ੍ਰਾਈ ਛੁਹਾਰੇ ਇਨ੍ਹਾਂ ਬਿਮਾਰੀਆਂ ਲਈ ਰਾਮਬਾਣ
+-  अंग्रेजी नयाँ वर्षको अवसरमा फुडफेस्टिवल आयोजना हुने
+-  한동훈은 누굴 추천했을까…검사 안해본 ‘이 사람’ 새 법무장관 후보 급부상
+-  Bills rally to take 14-10 halftime lead
+-  Norsk tanker utsatt för attack i Röda havet
+-  PM Modi Ayodhya Visit: पीएम के दौरे को लेकर सख्त होगी सुरक्षा, बाहरियों के अयोध्या प्रवेश पर रहेगी रोक
+-  Türkei fliegt Luftangriffe in Syrien und im Irak
+-  Dubai: அச்சச்சோ.. துபாயில் வெறும் காலுடன் 104 கி.மீ., ஓடிய பெங்களூருக்காரர்.. என்ன காரணம் தெரியுமா?
+-  Banksy artwork stolen in London; suspect arrested
+-  Akrab! Zulhas dan Putri SaraPAN Mi Lampung Bareng Raffi-Nagita
+-  Poder Judicial: Mauricio Fernandini solicitó que cese prisión preventiva en su contra
