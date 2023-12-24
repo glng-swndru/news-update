@@ -1,11 +1,51 @@
 # Latest News
--  Sport | INEOS's Ratcliffe agrees deal to buy 25 percent of Man United
--  Sedes de las carreras sprint de Fórmula 1 para 2024
--  Donosimo sve božićne epizode omiljenih serija
--  Saturan el Centro por compras de pánico
--  وهاب: لا تختبروا اليمنيين!
--  عام 2024.. تغيرات إيجابية في حياة مواليد 4 أبراج
--  POŽAR NA VODŽODVCU: Gusti crni dim kulja iz garaže, vatrogasci hitno izašli na teren (VIDEO)
--  Politics roundtable: Predictions for 2024
--  వైద్యశాఖలో ముగిసిన విచారణ
--  నడిరోడ్డులో విద్యుత స్తంభం
+-  مدير المنظومات الإعلامية والإعلام الآلي بوزارة الصحة : رقمنة قطاع الصحة بلغت نسبة لا تقل عن 75 بالمائة
+-  رئيس الجمهورية يترأس اجتماعا لمجلس الوزراء
+-  نور الدين بن براهم: المجتمع المدني سيضطلع بإدارة مشاريع اقتصادية تضامنية خلال الفترة المقبلة
+-  رئيس الجمهورية يوقع على قانون المالية لسنة 2024
+-  البطولة العربية العسكرية الثالثة للاتحاد العربي للرياضة العسكرية: الجزائر تتوج بالميدالية الذهبية في الكرة الطائرة
+-  2023..أشبال بلماضي دون هزيمة وإنجاز تاريخي لاتحاد الجزائر
+-  Peña: En esta Navidad ponemos nuestra esperanza y compromiso por un Paraguay mejor
+-  Velika je godina iza boksaškog i kickboxing kluba Armus: Ove godine uzeli 90 medalja
+-  Plagosje me armë zjarri në Kosovë, arrestohet autori
+-  Beyşehir Gölü sazlıklarında çıkan yangın balıkçıları korkuttu
+-  Fenerbahçe - Galatasaray derbisinde gol çıkmadı
+-  Creating a Frictionless Customer Journey with Food Delivery Systems
+-  ¿Por qué en Gamarra se tuvieron que repetir las elecciones este 24 de diciembre?
+-  Božični večer posebej slovesen v Vatikanu, kjer bo papež Frančišek daroval polnočnico
+-  Comerciante que morreu após levar descarga elétrica será sepultado em Sinop
+-  المياه الوطنية: 7 خطوات لتقديم شكوى في حالة انقطاع الخدمة
+-  "التأمينات" لا تقدم دعم لرواتب المشتركين من المواطنين في المنشآت.. توضيح مهم
+-  Why you should always stay by the gate even if your flight is massively delayed – or you risk missing it
+-  Fiscal de Santiago: Llama a celebrar Nochebuena y Navidad con prudencia.
+-  Нацполіція посилила заходи безпеки на Різдво
+-  صفاقس : الدورة 32 لصالون الموبيليا والديكور والصناعات التقليدية أوفت بوعودها
+-  Video: Luksusristeilijällä hurja vesiliukumäki – uskaltaisitko kokeilla?
+-  Salerno non è la goccia: il vaso di Pioli non trabocca ancora. L'ultimatum sa, però, di resa
+-  Galatasaray, Fenerbahçe derbisinde 10 dakika içinde iki yıldızını kaybetti! Sacha Boey ve Torreira Konyaspor maçında yok
+-  Le Bureau Exécutif du Conseil des Ministres Arabes de l’information salue le rôle de SM le Roi Mohammed VI au service d’Al-Qods et de la cause Palestinienne
+-  Major retailers confident of strong Boxing Day sales figures despite consumer pressures
+-  Niños oncológicos celebran la Navidad en Barranquilla a ritmo de champeta con Mr. Black
+-  SUTRA SLAVIMO OVOG SVECA Za njega se vezuju neverovatne priče
+-  Lottojahr 2023 in NRW: Mindestens 31 neue Millionäre
+-  Western Force recruit Nic White opens up on move out west, Rugby World Cup heartbreak and Eddie Jones
+-  SEC em contagem decrescente sobre ETF de bitcoin. Estes são os últimos ajustes
+-  The Economist: How to kill a goose quickly
+-  In Jerusalem, as war rages outside, a minister prepares for Christmas — even as other churches opt not to celebrate
+-  Do Brits only stick to turkey at Christmas out of habit?
+-  Best PlayStation games of all time: Top 13 PS1 games ranked
+-  Firewall Fortunes: 3 Best Bets in the Cybersecurity Sphere
+-  Michael ‘Venom’ Page didn’t sleep for 48 hours from UFC contract negotiations to signing
+-  Ce parfum de luxe est le plus populaire de l’année 2023
+-  Tom Cruise starred in the weirdest Christmas movie of all time
+-  Environnement. Déjections en ville : les maîtres de chiens exposés à 68 € d’amende à Montceau
+-  Your horoscope for Monday, December 25, 2023
+-  Nefeslerin tutulduğu derbide gol sesi çıkmadı: 0-0
+-  Colorado Weather: Holiday snow continues in the plains, foothills Sunday, potential blizzard looms
+-  Shohei Ohtani gifts Porsche to wife of Dodgers teammate Joe Kelly after her #Ohtake17 campaign helps persuade the superstar to sign $700m deal
+-  الحوثيون: البحر الأحمر سيكون ساحة مشتعلة إذا استمرت أمريكا في "البلطجة"
+-  بعد مقتل ضابط.. ارتفاع إجمالي عدد قتلى الاحتلال إلى 15 خلال 24 ساعة
+-  يديعوت أحرونوت: 12 إسرائيليا قتلوا يوم 7 أكتوبر بقذائف دبابة تابعة للجيش
+-  فيديو.. السرايا تنشر مشاهد لعملية إسقاط مسيّرة إسرائيلية والاستيلاء عليها
+-  فيديو.. المقاومة تنشر مشاهد لاشتباكات مقاتليها مع قوات الاحتلال اليوم بغزة
+-  "لا يمكننا الاستمرار".. أول تعليق من محمد صلاح على تعادل ليفربول مع أرسنال
