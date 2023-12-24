@@ -1,51 +1,11 @@
 # Latest News
--  Josip Manolić u 104. godini ponovno postao katolik
--  Soccerladuma | Marcelo Fires A Dig At Man City After CWC Scuffle
--  روما ينجح في إنهاء لعنة قديمة أمام نابولي
--  Käärijän joulu­kalenterin 24. luukusta paljastui alastonkuva
--  Clara Brugada reconoce a pueblos originarios
--  Más allá de lo religioso; la Navidad en el arte actual
--  "יש גידול בהתעניינות של משקיעים מארה"ב בחברות סטארטאפ ישראליות"
--  דווקא עכשיו: החברה שדוגלת בשילוב מגזרים מוחלשים בהייטק
--  אבי אנטבי מונה לתפקיד סמנכ"ל הטכנולוגיות של Cloudojo
--  בנזמה מטריף את הסעודים: "חסר איכפתיות, הוא בכלל לא מנסה"
--  שמה פס: בריטני ספירס לא הזמינה את ההורים שלה לארוחת חג המולד
--  חתיכים ותומכים: גרג סולקין וברנדון קורף עושים את ישראל
--  Operação Natal: GNR deteve 105 condutores alcoolizados e 42 sem carta
--  Sign language interpretation at KMC help desk
--  Christmas crowds
--  AirAsia passengers stranded at Incheon airport for 27 hours after technical errors
--  Fast 15.000 Festnahmen bei Anti-Drogen-Einsatz in Sri Lanka
--  В Разлог отброяват с чанове последните дни на 2023 година
--  Ventura diz que crise política deve servir para “ganhar clareza das escolhas” para 2024
--  Cabinet collapse, pricy & trendy Amsterdam, stormy weather among most read NL Times stories
--  خارطة الطريق اليمنية| كتب اصيل فدعق
--  الدبيبة: ليبيا لن تنقسم ولن تكون إلا دولة واحدة
--  12 قتيلاً و 39 جريحاً في انفجار مصنع بإندونيسيا
--  Kongres Demokratske Crne Gore biće održan danas
--  Feliz Navidad! It’s Spanish Christmas!
--  "Ispalio" kad je vidio policijsku ophodnju i krenuo vrijeđati i psovati policajce, a evo zašto ih najvjerojatnije ne voli...
--  قصة العبود مع الإتحاد انتهت بعد هذا التصريح
--  Camilerde şehit Mehmetçikler için dua edildi
--  Konya'da sokak ortasında işlenen cinayet kamerada!
--  Aksaray'da müstakil evde yangın faciası: Yaşlı kadın öldü, gelini dumandan zehirlendi
--  Konyalı kadın girişimci, evinde tek başına başladığı unlu mamuller yapımını 150 çalışanıyla sürdürüyor
--  Aksaray'da polisten kaçan alkollü ve ehliyetsiz sürücü emniyeti alarma geçirdi
--  Ardahan-Kars kara yolunda zincirleme buzlanma kazası: 8 araç birbirine girdi
--  Αρνητικός πρωταγωνιστής
--  Bila jedna od najpopularnijih pop pjevačica u regiji, a onda je nestala! Napokon se zna i zašto; pomogli su joj lijekovi
--  Um morto e um ferido em tiroteio num centro comercial na Florida
--  ‘I Really Hate My Father’ – Emeka Ike’s First Son Speaks
--  ইনস্টাগ্রামে মালবিকা–ঝড়
--  Hati-Hati Kolesterol Jebol Selama Liburan!
--  Android will soon tell us when to replace our phone’s battery
--  …as PDP insists 25 defected lawmakers can’t return to House
--  Şehit haberini alınca konserini yavaşlattı!
--  Długa grupa jak Covid
--  Süper Lig'de play-off düşünceleri
--  Peterhead hope for positive news after David Wilson left unable to move neck following collision in loss to Forfar Athletic
--  الجزيرة: غارات جوية إسرائيلية على منطقة اللبونة جنوبي لبنان
--  IIIT Bhubaneswar concludes workshop- Digital Data Tools for Managing Agriculture: Focusing on Earth Observation and Climate Change
--  Tito Berni se reinventa como empresario de éxito
--  زيادة المعاشات والمرتبات وخفض الأسعار.. 3 هدايا من الحكومة أول يناير المقبل
--  Od glavne zvijezde na koncertima do fotografije sa obožavaocem iz Komunalnog
+-  מה עושה מאי גולן במשרד לקידום מעמד האישה? קשה לדעת
+-  למערב אין ברירה: ארגון טרור בכפכפים עלול להביא למיתון עולמי
+-  العين الدكتور ناصر الدين يُكرم مشاركي ورشة “المُقوّم المعتمد”
+-  العين الدكتور ناصر الدين يحاور طلبة إعلام الشرق الأوسط حول الفساد الاستراتيجي الإعلامي
+-  Libur Natal, Pengunjung Oceanarium BXSea di Bintaro Xchange Membludak
+-  صفارات الإنذار تدوي في الجليل الغربي
+-  Koniec lodowiska na drogach? IMGW ostrzega
+-  Broj adolescenata s dijagnozom depresije porastao za trećinu. Psihijatrica iz KBC-a Rijeka: ‘Susrećemo se s tim svaki dan’
+-  I’m a sleep expert and my hack will make sure your kids don’t wake up once this Christmas Eve
+-  Erdő Péter: Az ember méltósága abból fakad, hogy Isten a saját képére alkotta
