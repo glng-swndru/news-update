@@ -1,51 +1,51 @@
 # Latest News
--  [ŽT] „Japonai perduoda Putinui linkėjimus“
--  „150 lėktuvų.“ Tai bus sensacija. Skelbiama, ką gaus Ukraina dar iki 2023 m. pabaigos
--  [ŽT] Deja, jau greitai. Žvalgyba skelbia, kada Putinas gali smogti Europai
--  Soccerladuma | Kekana: What’s Next For Downs' Inspirational Captain?
--  Soccerladuma | Barca 'Make Decision' On Felix Loan
--  Najbolji besplatni video editing softver za Mac
--  Nearly 40% of restaurants in the Netherlands close for Christmas
--  ผลเลือกตั้ง กรรมการ กกส.สอ.ครูแพร่ จำกัด
--  MEP anticipates EU anti SLAPPs directive publication by April, transposal by member states to follow
--  Predstojeći partijski izbori pokazatelj opredijeljenosti ka daljem razvoju demokratije
--  Remote working on the rise as cost-of-living crisis impacting more than half of office workers
--  খালেদা জিয়ার কেবিনে যুবকের প্রবেশের চেষ্টা চক্রান্ত কি না, প্রশ্ন রিজভীর
--  정세균·김부겸 회동 “민주당 공천 잡음 큰 우려…통합 위한 노력해야”
--  『バルダーズ・ゲート3』初心者向けにあえて助言するなら。寝ずに遊んでしまう。Steamの新たなダンジョンRPG『Path of the Abyss』はスピード感抜群。今週のゲーミング
--  Blondie & Garfield - DECEMBER 25, 2023
--  Democracy and climate politics are set to collide next year
--  Demographic dystopia
--  Reindeer blames
--  Peace on Earth
--  High inheritance tax prompts more wealthy Koreans to emigrate
--  Hyundai presence grows in India, shrinks in Russia
--  Incheon's child-rearing support plan sparks controversy
--  «وقت اللياقة» توقع اتفاقية تسهيلات ائتمانية بـ 150 مليون ريال
--  «بدجت السعودية» توقع اتفاقية للاستحواذ على أسهم «عالم السيارات»
--  انتخاب 5 أعضاء لمجلس إدارة «منزل الورق»
--  «تبوك الزراعية»: الموافقة على طلب الرئيس التنفيذي بعدم تجديد عقده
--  العلاج المبكر للروماتويد.. أبرز توصيات مؤتمر مستجدات أمراض الروماتيزم في جدة
--  عاجل.. تساؤلات حول موعد صرف الدفعة الجديدة من حساب المواطن.. والبرنامج يرد
--  كيفية إعادة تصحيح اختبار كفايات للمعلمين
--  قوات الاحتلال تقتحم طولكرم بالضفة واستشهاد 214 في غزة
--  10 أخبار لا تفوتك هذا الصباح.. موعد نزول الدعم السكني و6 شروط للتقديم على الوظائف التعليمية
--  سارع بالتقديم.. "رعاية" تطرح عشرات الوظائف لحملة الثانوية فأعلى
--  عبور 8 مقاتلات.. تصاعد النشاط العسكري الصيني حول تايوان
--  وفاة 16 وإصابة 26.. حادث مروع في أكبر دول أمريكا الوسطى
--  تراجع طفيف في أسعار الذهب اليوم الأحد .. وعيار 21 يسجل 217 ريالًا
--  Germania reiterează sprijinul ferm pentru Ucraina. „Eșuarea acestui plan al lui Putin s-a datorat...”
--  El moralejano Julio García presenta su novela histórica ‘Tagvs’
--  SRBIN PREPORODIO ČELSI: Đorđe Petrović ističe ozbiljnu kandidaturu za ''jedinicu'' plavaca
--  NAŠI PREDLOZI: "Tip" - tiket za nedelju
--  Explosion dans une usine de nickel en Indonésie : 12 morts, 39 blessés
--  N'oubliez pas les enfants : comment sont castés les enfants ?
--  Cât cheltuie autoritățile pentru cele 10 minute de teroare a animalelor și păsărilor din Bacău, din noaptea de Revelion
--  بركات: من أفسد الانتخابات ما زال في السلطة ومتشبثا بها
--  สะพรึง!! โอไมครอน ‘JN.1’ กำลังกลายพันธุ์ส่วนหนามคล้าย ‘ไวรัสเมอร์ส’
--  Ikävä ennuste asuntovelallisille: EKP:n ”äärihaukka” uskoo inflaation kääntyvän pian nousuun
--  Slovák vyhrožoval, že zopakuje pražské vraždění. Policie ho rychle zadržela
--  TRESLO SE PREKO OKEANA: Novi zemljotres jačine 5,8 stepeni po Rihteru
--  BOGDANOVIĆ PREKINUO NIZ: Kapitenu reprezentacije Srbije ovo nije pošlo za rukom nakon sedam mečeva za redom
--  Pistorius auf Platz 1 im Ranking der beliebtesten Politiker
--  Snow: నిష్క్రమించనున్న ఈశాన్య రుతుపవనాలు.. రాష్ట్రవ్యాప్తంగా కురుస్తున్న మంచు
+-  טרגדיה רודפת טרגדיה: אחותו של ניק קרטר מתה בגיל 41
+-  בני סכנין: "דראפיץ' עושה עבודה נהדרת, השערים של גנטוס הם רק בונוס"
+-  BYD מוכרת בישראל יותר מכוניות מאשר בכל אירופה. זה הולך להשתנות
+-  רצח בחולון: צעיר נעצר בחשד שדקר למוות את אמו
+-  MUP: Sva lica sa splava "Kartel" su evakuisana; Sve je počelo dojavom o tuči VIDEO
+-  “Ngħożżu l-valur tas-solidarjetà”
+-  'Show' de Daniel Bragança não passou despercebido: "Anda que chutas bem"
+-  Marselino Ferdinan Latihan Perdana Bareng Timnas Indonesia, Pastikan Kondisinya Siap Main di Piala Asia 2023
+-  Horoskopi 24 Dhjetor 2023
+-  ديوان الطيران المدني والمطارات يوفر ثماني شاحنات انقاذ وإطفاء حرائق للمطارات
+-  Men on run after spraying Melbourne home with bullets
+-  Yusril Ihza Yakini KPU Tak Lakukan Pelanggaran Etik saat Loloskan Gibran Cawapres
+-  ती व्यक्तिले के कति कारणले सभापति लामिछानेमाथि मकैको खोया प्रहार गरे खुलेको छैन: रास्वपा
+-  KARDIOLOG DETALJNO OBJASNIO Evo na kojoj ruci treba meriti pritisak, da bi rezultat bio tačan
+-  Εορταστικό ωράριο: Ανοιχτά μαγαζιά σήμερα Κυριακή 24 Δεκεμβρίου – Τι γίνεται τις υπόλοιπες μέρες!
+-  Man Found Shot in Remote Area of Lucerne Valley and Airlifted to Trauma Center
+-  Дмитрий Бивол с 22-а поредна победа на боксовия ринг, спечели нова титла
+-  انڈونیشیا کے نکل پلانٹ میں دھماکا، 12 افراد ہلاک 39 زخمی
+-  عقب صدور قرار مجلس الأمن بزيادة المساعدات إلى قطاع غزة.. الصهاينة يؤكدون مواصلة الحرب
+-  Investiční výhled 2024: Před námi je podprůměrný růst ekonomiky, hlavní alternativou zhoršení kondice
+-  Paolo Bonolis, Natale rovinato da Antonella Clerici: clamoroso in tv
+-  Golob v novoletni poslanici o navdihujočih preteklih trenutkih
+-  Zara i dalje izaziva bes: Snimak muškarca iz Osla glavna tema društvenih mreža VIDEO
+-  Azərbaycanda faktiki hava açıqlandı
+-  कौन हैं अविनाश पांडे...? प्रियंका गांधी की जगह बनाया गया उत्‍तर प्रदेश का प्रभारी
+-  12 ศพ สังเวยเหตุ ‘โรงงานนิกเกิลอินโดนีเซีย’ ระเบิด เจ็บอีก 39 ราย
+-  Shuttler Eogene to work on physical fitness to challenge seniors
+-  Нов тендер за универзален снабдувач за струја, нови пониски цени на струјата за домаќинствата
+-  Πήραν κλήση Ντάλσιο και Κασάμα
+-  The owners really tried to make this club outstanding but the previous Managers are too extravagent in spending. Pochettino blast previous Managers on recruiting under performing player
+-  Joulunpyhien sää varsin talvinen koko maassa
+-  El PSOE recurrirá a Zapatero para la campaña de las gallegas y participará en su Conferencia Política
+-  MEKGREGOR "UDAVIO" RONALDA! Snimak o kom bruji planeta: Konor seo pored Kristijana i počeo da "MELJE", ovaj se SMORIO kao nikad!
+-  בגלל אי תשלום הבוררות לוורמוט: הפועל חיפה נקנסה ב-10,000 שקל
+-  “นายกเศรษฐา” บุก ONE ลุมพินี 46 ดันมวยไทยซอฟต์พาวเวอร์ดังไกลทั่วโลก
+-  Štrajk pilota u Lufthansinoj turističkoj podružnici Discover Airlines
+-  Dilan Polat'ın astroloğundan dikkat çeken açıklama: Tutuklanacağını söylemiştim; tahliyesi için de tarih verdim
+-  आर्थिक पुनरुत्थान रणनीति बनाउन घोषणापत्र
+-  Avion immobilisé dans la Marne : jusqu'à lundi, l'aéroport de Vatry se transforme en salle d'audience
+-  ESKALACIJA NA VRHUNCU - RAT SE ŠIRI SVIJETOM: Napadnut brod kod Indije! Pentagon upire prstom u zakletog neprijatelja!
+-  Nickel Smelter Furnace Explosion Kills 12 People, Wounds Dozens in Morowali
+-  Das ist Ruth Moschners absolutes "Masked Singer"-Highlight!
+-  Mercedes-Benz Tests Hydrogen-Powered Unimog Prototype
+-  Parker shocks Wilder in heavyweight upset
+-  사흘째 모습 안 보이는 한동훈…‘세대교체’ 비대위 인선 고심
+-  Kažu da su učenici grozni: Pogledajte što su priredili u karlovačkoj školi
+-  Le Barça fixé en février en vue d'une possible exclusion de la Ligue des champions
+-  WFI chief Sanjay Singh's first reaction as sports ministry suspends newly elected wresting body
+-  لبيد: لا ثقة بين النظامين الأمني والسياسي
+-  مقترح لإضافة وحدة جديدة للأمن الغذائي في وزارة الزراعة
