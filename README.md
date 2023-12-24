@@ -1,11 +1,51 @@
 # Latest News
+-  احذر أن تشرب أكثر من مرة في اليوم.. نصائح مهمة لمربي المواشي المستوردة حديثا
+-  Dakar: la confrérie Tijane organise les 43es Journées culturelles islamiques sous le patronage du Roi, Amir Al-Mouminine
+-  ג'נריישן קפיטל מפחיתה את דמי הניהול: יירדו בהיקף של מעל 40%
+-  Στο πιο σημαντικό δεν ήταν Ομόνοια…
+-  Josh Kerr: “I’ve got Olympic bronze and I’m bored of the colour”
+-  Zogović: Rekonstrukcija Vlade moguća odmah poslije novogodišnjih praznika; Skupština na čelu sa Mandićem napravila rezultate koje nije imala vlast predvođena DPS-om
+-  El Salvador cierra con cero homicidios el sábado 23 de diciembre
+-  Duqa Muqdisho oo maanta dhagax dhigay wado isku xirta Laba Degmo
+-  Санду хочет в президенты и Евросоюз
+-  Krščani razočarani: v rojstnem mestu Jezusa Kristusa ne bo božičnih praznovanj
+-  Taberna La Fuenseca presenta su villancico anual en la 'Tardebuena'
+-  Санират два жилищни блока в Стралджа по ПВУ
+-  Na ruskom pracovnom trhu chýbajú milióny ľudí. Problém bude pretrvávať aj v budúcom roku
+-  Nu är bästa jullåten på Svensktoppen korad
+-  Drink Insider Cartoon: „Vine Moşu’!”
+-  Ruim 700 deelnemers lopen ‘Van Woensdrecht naar Bethlehem’: ‘Mooie tocht, en een verdiend lintje’
+-  Bringing Christmas joy at a time of tragedy
+-  "واهم ومخطئ ولا يقرأ التاريخ"... فضل الله يردّ على من يطالب بـ"الحياد"
+-  Christmas shooting in Florida: One dead, several injured after gunmen storms mall
+-  Última hora sobre el estado de salud de Joaquín Torres tras recibir el alta médica: "He vuelto a renacer"
+-  60% Of Signboards Must Be In Kannada, Orders Bengaluru Civic Body
+-  대전 오정동 식당서 가스폭발 12명 중경상
+-  Svolta storica al Manchester United: Jim Ratcliffe acquista il 25% del club, oggi l'annuncio
+-  Kemenperin Turunkan Tim Penanganan Kecelakaan Kerja di ITSS Morowali
+-  Tragedia din Odorheiu Secuiesc. Patronul firmei care a făcut lucrările va afla miercuri dacă rămâne sub control judiciar
+-  Pastikan Keamanan Nataru, BNPT Lakukan Asesmen Tempat Ibadah dan Ruang Publik
+-  What Is Imitation Lobster?
+-  Francuska pojačava sigurnost u crkvama za božićno razdoblje
+-  NYT: هكذا تعتمد "إسرائيل" على الكلاب العسكرية في غزة لترويع السكان
+-  70-Year-Old Grandma, Son Nabbed For Drug Trafficking
+-  Flugroute live: US-Luftwaffe hat wieder den Weihnachtsmann auf dem Radar
+-  WFI suspension: Bajrang Punia refuses to take back Padma Shri, says 'will not take back until…’
+-  Mutmaßliche Anschlagspläne in Köln: Gottesdienst mit Polizeischutz
+-  Otobüste cüzdan çalan şüpheli yakalandı
+-  Un tânăr de 27 de ani a murit, după ce a fost atacat de un bărbat în gara din Arad
+-  Hamas, Gazze'nin güneyinde İsrail'e karşı üstünlük sağladı iddiası!
+-  When Mammon threatens Churches’ credibility, existence
+-  El corazón árabe de EEUU abandona a Biden por su postura en la guerra de Gaza
+-  London Diary: Indian students ‘gaming’ the visa system
+-  ПРЕТСТАВИ И ИЗЛОЖБА НА ТЕАТАРСКИ КОСТИМИ, ПЛАКАТИ И ЦРТЕЖИ ЗА 100 ГОДИНИ ТЕАТАРСКА ДЕЈНОСТ ВО ШТИП
+-  Еди Хърн: Джошуа се завърна, Хъргович е следващ
+-  هل تحول فيروس كورونا إلى استهداف أعضاء أخرى من الجسم؟
+-  Millimizin voleybolçusu Türkiyə klubu ilə anlaşdı
+-  ŽIVOTNA PRIČA BUBE MIRANOVIĆ: Kad me pitaš ko sam ja i šta sam, pogledaš samo moju decu i to su odgovori JA SAM MAJKA DOBRIH LJUDI
+-  Чорноморець залишився без віцепрезидента
+-  "كالذاهب إلى كازينو الميسر"... كليب: نتنياهو سيخسر!
 -  העגבניות מטורקיה? מהיום תוכלו לדעת
--  السوداني يوجه بتحديد ناطق رسمي للعراق لـ"إشاعة الثقافة البيئية والصحية"
--  الدفاع المدني بغزة : جباليا تتعرض لإبادة جماعية حقيقية
--  وفد حركة الجهاد الإسلامي يصل القاهرة
--  القيسي: ندعم خطوات وقف الاعتداءات على البترا
--  حادث خطف طفلتي المصعد بمصر.. قرار قضائي ضد شخصين
--  اجتماع في العقبة يبحث دعم القطاعات السياحية والتجارية
--  Каррера: я бы с удовольствием вернулся в Россию
--  إعلان فقدان .
--  Ludo, luđe, koš Nikole Milutinova: Neverovatan pogodak Srbina /VIDEO/
+-  Νετανιάχου: «Βαρύ το τίμημα» του πολέμου στη Γάζα για τον ισραηλινό στρατό – 14 Ισραηλινοί στρατιώτες νεκροί το τελευταίο 24ωρο
+-  Rolling Stone India’s Top 10 Games of 2023
+-  Mahfud MD Hadiri Misa Malam Natal di Gereja Katedral, Harap Kehidupan Antarumat Beragama Semakin Baik
