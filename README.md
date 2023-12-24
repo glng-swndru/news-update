@@ -1,11 +1,11 @@
 # Latest News
--  لماذا تختفى عروق بعض الأشخاص عند سحب الدم؟- اعرف السر
--  يقي من السرطان وأمراض القلب.. مشروب يخفض ضغط الدم ويقوي المناعة
--  تحذير من الاندفاع على شراء الذهب: أسباب توقعات زيادة سعره قد لا تتحقق
--  От Манчестър Юнайтед обявиха голямата новина
--  Νεκρή 19χρονη και δύο σοβαρά τραυματισμένες γυναίκες σε τροχαίο έξω από την Αλεξανδρούπολη
--  Taux de participation aux élections locales en Tunisie : 1,9% à 10h
--  India clinch women's Test against Australia to end 46 years of hurt
--  ЦАХАЛ заявляет о контроле над севером Газы
--  Иран стреляет по всему, что движется и грозит перекрыть Гибралтар
--  «Карабах» уходит на зимний перерыв с 12-очковым превосходством
+-  Сергей Ковальчук в пятый раз возглавит брестское "Динамо"? Клуб намекнул на это в ролике на YouTube
+-  У "Нефтчи" Богомольского — новый главный тренер
+-  Юлия Слесарчик: "Возрастные игроки с нами не церемонились. Порой доходило до слез и неприятных мыслей"
+-  Азербайджан. "Ассист" Богомольского помог "Нефтчи" победить "Кяпаз" Василючека и Хвалько
+-  Kerala To Kashmir, Nation Glows With Vibrant Lights On Christmas Eve - Watch
+-  Newly-appointed ministers in Lumbini Province sworn in
+-  شباب وضباب| كتب خالد شرفان
+-  Toma nota: ¿cuáles son los impuestos que se cobran en Miami?
+-  Elf viewers are all baffled after only just realising 'legendary Christmas star' appears in the Will Ferrell movie
+-  Jarlan Barrera, ya en Deportivo Cali: ¿Y cuándo lo presentan?
