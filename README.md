@@ -1,51 +1,11 @@
 # Latest News
--  Presidente de Brasil otorga indultos navideños a presos
--  Bot pukat tunda, dua nelayan Myanmar ditahan APMM
--  बैङ्कले घर फुटाएर छोडेपछि हारगुहार
--  Χρηματοπιστωτικό σύστημα: Οι 13 παρεμβάσεις για σταθερές τράπεζες και μείωση του ιδιωτικού χρέους για το 2024
--  Lyin’ George Santos rants about Delta experience, claims airline transports undocumented migrants: ‘This is bulls–t’
--  Биоэтик и разработчик киберпротезов названы перспективными профессиями будущего
--  F1: Carlos Sainz mahu kekal di Ferrari
--  Compras de última hora en Mérida: ¿Qué buscan los yucatecos?
--  江詩丹頓｜江詩丹頓與本地雕塑家林繁盛合作 永恆之光燃亮旗艦店櫥窗
--  沙律張沛樂晒新歡合照放閃 擁抱相遮肚網民好奇揼大咗？
--  1200 kilometriä pitkä Salpalinja oli valtava ponnistus – "Totuus toki on, että linnoitustöissä tehtiin myös paljon virheitä"
--  Vapaaehtoiset oppaat päivystävät sairaalalla kahdessa vuorossa, koska OYS on niin sokkeloinen – Kolmessa tunnissa kertyy helposti 7 000 askelta
--  Digiavunpyyntö saatetaan säästää joulupöytään – Hannele Niskanen, 74, sai neuvoja pojaltaan
--  Kadıköy'de alkollü sürücünün kullandığı otomobil köprü arasında askıda kaldı
--  ‘RWS’โกอินเตอร์ นัดแรกที่ญี่ปุ่น 12ก.พ.2024 ‘ซีอีโอ’โตเกียวโดมเปิดข่าวใหญ่
--  Sekeluarga Pakai Baju Gambar Semangka di CFD: Jangan Berhenti Bela Palestina
--  Patrick Mahomes Says Taylor Swift Is ‘Part of Chiefs’ Kingdom Now’
--  Video: Trasladan a 'El Cumbias' del C-4 al Cereso
--  Polis cari wanita dilaporkan hilang
--  पर्यटकको सहजताका लागि झापामा ‘ट्रस ब्रिज’ निर्माण
--  عاجل.. شروط وسن الاشتراك الإلزامي في نظام التأمينات الاجتماعية
--  Beşiktaş'ta kafa kafaya korkunç kaza! 9 yaralı
--  गुइँठाको प्रयोगमा वृद्धि
--  UOL NO VERÃO
--  Jultomte i Peru tog knarklangare
--  전소미, 어둠 밝히는 화사한 비주얼
--  '日 최고 마무리' 마쓰이 유키, SD 김하성과 한솥밥… 5년 2800만달러
--  平安夜前夕 美佛州購物中心發生槍擊案1死1傷
--  กิจกรรมโครงการนักเรียนรุ่นใหม่มีใบขับขี่ฯ รุ่นที่ 3
--  "VAR 심판들 도대체 뭐 하는 거야? 앉아서 놀기만 하나?"...클롭, 'PK 논란'에 분노
--  에버튼전 결승골→토트넘 3연승 이끈 손흥민…"2-0도 안심할 수 없었다"
--  सवारीसाधनमा “जाऊँ हिँड रेसुङ्गा” अभियानको स्टिकर
--  นิด้าโพลคนหนุน”พิธา”นายกฯชมวิสัยทัศน์ดี
--  Gold Coast toddler drowns in swimming pool at Elanora
--  Mason Rudolph receives game ball after leading Steelers to win over Bengals
--  नियमावली नबन्दा ऐन प्रयोगविहीन
--  पर्यटन प्रवर्द्धनका लागि सामुदायिक घरबास सञ्चालन
--  新潟 湯沢町 スキー場で中国人観光客の女性が雪に埋まり死亡
--  Tragedia en el Mall Plaza de Trujillo: Intensa balacera dejó al menos una persona herida
--  Kata Pj Walkot Jogja Usai Gibran Sebut Wisata Solo Ramai Lebihi Jogja
--  Sunday View: The Best Weekend Opinion Reads, Curated Just for You
--  Chris Jericho Still Plans To Challenge for AEW World Tag Team Titles, Looking for Partner
--  Punjab News: ਪੰਜਾਬ ਦੀਆਂ ਜੇਲ੍ਹਾਂ ਬਣੀਆਂ ਨਸ਼ਾ ਤਸਕਰੀ ਤੇ ਜੁਰਮਾਂ ਦਾ ਗੜ੍ਹ, ਜੇਲ੍ਹ 'ਚੋਂ 43000 ਫੋਨ ਕਾਲਾਂ ਨੇ ਮਚਾਇਆ ਹੜਕੰਪ, ਪੁਲਿਸ ਦਾ ਵੱਡਾ ਐਕਸ਼ਨ
--  Angel Reese, boyfriend Cam’Ron Fletcher enjoy Christmas season together with NYC trip
--  Jaime Ordiales reveló cuál fue la última operación que realizó como directivo de Cruz Azul
--  Alperen Sengun has career-high 37 points, Rockets beat Pelicans 106-104
--  'Milestone moment': Rebecca Welch becomes first female referee in English Premier League, handles Fulham-Burnley clash
--  Take development works to grassroots: VK Pandian
--  VIDEO: Activistas propalestinos organizan una protesta en La Scala de Milán
--  Jagatsinghpur district headquarter hospital’s ICU in limbo over staff shortage
+-  [단독] 다시 만난 정세균-김부겸, 이낙연 향한 당내 거친 공세에 “깊은 불쾌감”
+-  딥브레인AI, 초개인화 가상인간 솔루션 ‘드림아바타’ 공개
+-  İsrail'in saldırıları sonucu 1 Hizbullah mensubu hayatını kaybetti
+-  Japonya'da 2024 bütçe taslağı onaylandı
+-  Anthony Joshua says he'll '100 percent fight Tyson Fury' as he hints he'd prefer a clash with the Gypsy King over Filip Hrgovic next - but insists he's not 'dodging' the Croatian
+-  24 Mega-Viral Food Trends And Recipes That Practically Defined 2023, According To Two Chronically Online Food Writers
+-  People Are Sharing "Poor People Foods" That Were Ruined By The Wealthy, And They're Not Wrong
+-  '강철 체력의 대명사' 사르, 에버턴전 선제골 기점 + 유효 슈팅 2개 → 평점 8점...英 매체 "경기장 모든 곳에 있었다"
+-  Merry Christmas 2023: 5 intriguing traditions from around the world
+-  国民 玉木代表 トリガー条項“自民公明と早期に実務者協議を”
