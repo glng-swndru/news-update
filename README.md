@@ -1,11 +1,11 @@
 # Latest News
--  Türk milletini tehdit eden Bakırhan yine sahnede! DEM Parti kongresinde skandal görüntüler
--  Erden Timur derbi öncesi konuştu! "Kazanan biz olalım"
--  Konyaspor 3 puanı penaltılarla kazandı
--  Filistin Devlet Başkanı Abbas: İsrail'in saldırılarında dini ayrım yok
--  Barcelona'ya Avrupa'dan men cezası yolda
--  Pota derbisinde kazanan Galatasaray Ekmas
--  Adalet Bakanı Yılmaz Tunç: DEM Parti kongresindeki olayla ilgili soruşturma açıldı
--  Basketbol derbisinde tartışma çıktı
--  Macron, Gazze'deki Katolik kilisesinin "dramatik" durumundan "derin endişe duyduğu" bildirildi
--  Thousands march in Rabat demanding end to Morocco-Israel ties
+-  Más de 160 muertos en Gaza en las últimas 24 horas, más de 20.400 en toda la guerra
+-  المواد الغذائية: "عبور لاند" ترفع أسعار منتجاتها من الجبن والألبان
+-  تراجع متوسط أسعار الدواجن في الأسواق اليوم الأحد (موقع رسمي)
+-  אושר מינוי ד"ר שמואל אברמזון לכלכלן הראשי במשרד האוצר
+-  منها خفض الكوليسترول.. فوائد مذهلة عند تناول كوب من عصير الجزر - مفاجأة
+-  יתרון לאייפוניסטים: מתקפות מבוססות בינה מלאכותית ושלל נוזקות ריגול לאנדרואיד
+-  تحويل السير على طريق تُقبل - فوعرا بإربد
+-  Suomi hiljentyi joulunviettoon Turun joulurauhan julistuksen myötä
+-  Jason Momoa Weighs 260 Lbs And The Game Of Thrones Horses Wouldn’t Like It
+-  Granatimet ruse vrasin katër persona në Herson
