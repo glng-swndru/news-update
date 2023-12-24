@@ -1,51 +1,51 @@
 # Latest News
--  올 한 해 직장인들이 가장 힘들었던 점은…“저임금·장시간 노동”
--  إنقاص الوزن بهذه الطريقة يسبب تغييرات جذرية في الدماغ
--  Viaceré domácnosti v TEJTO lokalite budú mať pokazené Vianoce! Nepriaznivé počasie a Štedrý deň bez elektrického prúdu
--  แผ่นเหล็กเส้นกำแพงกันดินหล่นทับคนงาน ขณะก่อสร้างรถไฟฟ้าสายสีม่วง
--  Sports Ministry suspends newly-elected WFI body
--  До -5 градусов ожидается в Ленобласти 24 декабря
--  나훈아·조용필·임영웅…국민가수들의 연말 공연 대격돌
--  Ποιος είναι ο 17χρονος που έχει ξετρελάνει τον Ολυμπιακό
--  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
--  Beneficiaries must be protected from negative effects of weather: Qaiser Amin Butt
--  سعر الدولار اليوم في لبنان الأحد 24 ديسمبر 2023.. تعطيل "هيئة الأسواق المالية"
--  2023.. عام حصاد رؤوس الدواعش بالعالم
--  OM – Mercato : coup de froid sur trois départs en janvier !
--  Sixers’ appeal for under-fire star thrown out as CA preaches ‘essential’ respect for umpires
--  Ništa od obećanja o uređenju Alipašinih izvora
--  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
--  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
--  Moradabad: दिल्ली रोड पर सफाई नायक को पीटा, थाने पर जमकर हंगामा, धूल उड़ने पर बाइक सवार हुआ गुस्सा
--  حقيقة رحيل ستيفانو بيولي عن ميلان
--  Det er en klassisk julefejl, og den kan blive voldsomt dyr. Her er eksperternes råd til at undgå akut diarré og vilde regninger
--  Det er en klassisk julefejl, og den kan blive voldsomt dyr. Her er eksperternes råd til at undgå akut diarré og vilde regninger
--  "SOMBORSKI DABL" MAESTRALNOG NIKOLE JOKIĆA! Srbin ponovo BACAO MAGIJU, Nagetsi na gostovanju srušili Šarlot! (VIDEO)
--  Όχι καλή εποχή για Χριστιανούς
--  Восстановлено регулярное авиасообщение между Москвой и Гонконгом
--  Το Point System γίνεται ψηφιακό
--  CM condoles over journalist’s demise
--  [OTT레이더] 서울에 나타난 괴물의 비밀…넷플릭스 '경성크리처'
--  Analytikerne ser potentiale i aktien i underholdningsselskabet
--  Analytikerne ser potentiale i aktien i underholdningsselskabet
--  Decaying Pillsbury mill in Illinois that once churned flour into opportunity is now getting new life
--  Hedef gösterilen 'Kızıl Goncalar' dizisinin mekan izinleri iptal edildi
--  陳東紅 - 緣份｜芽芽學英語
--  Κύπρος: Είμαστε κράτος της Ε.Ε κι όχι τουρκικό τσιφλίκι
--  Azam simpan duit tahun ini sudah tercapaikah?
--  Anthony Joshua murjoi ruotsalaisen kunnolla
--  Lauri Markkaselta upea esitys aatonaattona
--  Życzenia dla czytelników "Rzeczpospolitej"
--  SSP Atif Nazir affirms commitment to public service, security in Christmas celebration
--  Saharanpur: बदमाशों ने तमंचा दिखा आधी रात को लेखपाल से की लूट, कपड़े भी ले गए, ठिठुरती ठंड में निर्वस्त्र छोड़ा
--  Hrvatska je domovina dvaju malih endemskih jezika: Sada im prijeti izumiranje
--  Şəkər tozu xeyli ucuzlaşdı
--  Lahore Police register 10,797 cases against drug pushers
--  Епископ Сионий: Трябва да подготвим не само душите, но и сърцата си за посрещането на Богомладенеца Христос
--  Album/EP Terbaik 2023 Pilihan Rondivu
--  Le résumé de la nuit en NBA : Rudy Gobert et les Wolves, c’est toujours aussi sérieux
--  Bakan Fidan'dan kritik görüşme
--  Flick: 'Takımı görünce vazgeçtim'
--  Kızıl Goncalar dizisine RTÜK'ten müdahale!
--  CM Revanth Reddy: దీపాదాస్ మున్షీని స్వాగతిస్తున్నాం..
--  Резултати от НХЛ
+-  شكوى ضد 4185 مرتزقا فرنسياً بتهمة التواطؤ مع الاحتلال
+-  حل 40 جمعية خيرية بالأردن - أسماء
+-  جامعة عمان الأهلية وجامعة أبو ظبي تبحثان التعاون المشترك
+-  الأمراض تفتك بأطفال غزة
+-  טקסים לזכר הנופלים ושיאים רבים נשברו בתחרות הארצית בשחייה
+-  אייל סגל יחליט על המאמן הבא של נתניה, אלמוג כהן לא מעורב בהחלטה
+-  Россия нимани афзал билади: ишончга кириш ёки куч ишлатиш?.
+-  Acidente de autocarro faz pelo menos 19 mortos e 40 feridos na Nicarágua
+-  İsrail'in vahşeti Hitleri geçti! Mezardaki Filistinlileri çıkarıp buldozerlerle ezdiler
+-  Gaziantep FK'nin galibiyet hasreti son buldu
+-  Sancaktepe'de feci kaza: Araçlar kullanılmaz hale gelirken 4 kişi ağır yaralandı
+-  Utrecht's Jaarbeurs to host temporary vinyl shop with over 100,000 records for sale
+-  DEBATT: Låt inte årets julklappströja sluta sina dagar i soporna
+-  En Bilindik Otobüs Firmalarından "Ulusoy Turizm"i Neden Artık Yollarda Göremiyoruz?
+-  Hyderabad: భార్య జెడ్పీటీసీ.. భర్త దొంగ..! మీరు విన్నది నిజమే.. అసలు కథ ఏంటంటే..
+-  Xavier McKinney, Jason Pinnock give Giants top-notch safety tandem with uncertain future
+-  Boks spektakl pripao Džošui! Entoni se vratio, Ronaldo i Konor Mekgregor iz prvog reda gledali nemilosrdnu borbu /VIDEO/
+-  Bronze Bomber Battered: Joseph Parker Shocks Deontay Wilder in “Day of Reckoning” Upset
+-  'ห้วยน้ำดัง'หนาวจับใจ อุณหภูมิต่ำสุด6องศา คาดลดลงอีกต่อเนื่อง
+-  นัดมาเคลียร์! หนุ่มส่งพัสดุถูกคู่อริแทง เสียชีวิตหน้าร้านคาร์แคร์
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันอาทิตย์ 24 ธันวาคม 2566​
+-  ข้าคือจอมขมังเวทย์!ชายชาวอุดรฯหลอนยาท่องคาถาหายตัว สุดท้ายไปต่อที่โรงพัก
+-  สวนนงนุชพัทยา นำช้างแสนรู้สร้างสีสันวันคริสต์มาส ต้อนรับปีใหม่
+-  NBM กราบขออภัย แจงเหตุรางจ่ายไฟ‘รถไฟฟ้าสายสีชมพู’หลุดร่วง
+-  ตลาดไทยลาวหนองคายคนแน่น เลือกซื้อเสื้อกันหนาวมือสอง แนะซักก่อนใส่
+-  ‘รถไฟฟ้าสายสีชมพู’นิวไฮ! 22 ธ.ค.ผู้โดยสารทะลุ 1 แสนคนครั้งแรก ดันใช้‘ระบบราง’ทุบสถิติ
+-  London mayor relents on giving scrap cars to Ukraine — RT World News
+-  "Silbernetz"-Hotline bis Neujahr durchgehend erreichbar
+-  অবরোধের সমর্থনে রাজধানীতে জামায়াতের বিক্ষোভ
+-  আচরণবিধি মানাতে কঠোর হচ্ছে ইসি
+-  ডিএমপির মাদকবিরোধী অভিযানে ৩৮ জন গ্রেপ্তার
+-  ধোলাইপাড়ে বিএনপির মিছিল
+-  ৭ ঘণ্টা পর দৌলতদিয়া-পাটুরিয়া নৌরুটে ফেরি চলাচল শুরু
+-  ঢাকা জেলা বিএনপির সভাপতি আশফাকের নেতৃত্বে মিছিল, আটক ১১
+-  যশোরে ট্রেনের ধাক্কায় ট্রাকচালক ও হেলপার নিহত
+-  ঢাকা মহানগর দক্ষিণের বিভিন্ন স্থানে জামায়াতের সড়ক অবরোধ ও বিক্ষোভ
+-  নিকারাগুয়ায় সড়ক দুর্ঘটনায় শিশুসহ ১৯ জন নিহত
+-  শুনানিতে অংশ নিতে শ্রম আদালতে ড. ইউনূস
+-  সারা দেশে কমতে পারে রাতের তাপমাত্রা, পড়বে মাঝারি থেকে ঘন কুয়াশা
+-  অবরোধ: সারাদেশে ১৪৭ প্লাটুন বিজিবি মোতায়েন
+-  শক্তিশালী প্রতিদ্বন্দ্বী না থাকায় ফুরফুরে মির্জা আজম
+-  শীতে আদা খাওয়ার স্বাস্থ্য উপকারিতা জানলে চমকে উঠবেন
+-  ভারত মহাসাগরে ভাসমান ১৮৫ রোহিঙ্গাকে দ্রুত উদ্ধারের আহ্বান জাতিসংঘের
+-  ٓآن لائن کاروبار کیلئے لائسنس لازمی قرار، طریقہ کار سامنے آگیا
+-  Connor Bedard och Trevor Zegras med två zorro-mål – samma natt
+-  Former Dynamos Player and Coach David George Has Died
+-  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
+-  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
+-  Ensimmäisen joulun lumi on nyt jäätä Tanskassa – jäätikkötutkijoiden pakastimessa on henkäyksiä tuhansien vuosien takaa
+-  Big Bash League: Adam Voges reveals why Perth Scorchers chose Aaron Hardie as captain over Josh Inglis
