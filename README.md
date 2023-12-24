@@ -1,11 +1,11 @@
 # Latest News
--  Şehit askerden yürek burkan paylaşım: Al bayrağa sarılı tabut...
--  與사령탑 된 한동훈, 앞은 ‘꽃길’ 아닌 ‘가시밭길’?
--  尹대통령, ‘김건희 특검법’ 거부할 결심?
--  Ring of Honor Taping Results From Last Night (SPOILERS)
--  Hold på sjov hat og skøre briller nytårsaften: Nu vil eksperter have skruelåg på den festlige drik
--  Hold på sjov hat og skøre briller nytårsaften: Nu vil eksperter have skruelåg på den festlige drik
--  Indian Tourism Is Thriving: Unveiling 10 Key Factors
--  Unlocking The Potential Of CFD Trading In India: Opportunities And Challenges
--  «صُنع في مصر» بخط اليد على «خيامية محمد»: إحنا الأصل
--  La Policía de Eslovaquia dice haber impedido un ataque como el de Praga
+-  Qarax goor dhaw lagu dilay mid ka mida shaqaalaha Hormuud.
+-  Las empresas de telecomunicaciones nigerianas esperan un aumento de los ingresos gracias a las llamadas y el uso de datos en Navidad
+-  SBI y Dalmia Bharat reciben recomendaciones de compra, precios objetivo establecidos
+-  Extensas zonas de Australia soportan una ola de calor que eleva el riesgo de incendios forestales
+-  Investigations underway following alleged sexual assault in West Donegal
+-  Cae con carrizos de cocaína en Coclé
+-  全球首例，美軍與新創公司成功以量子無線電進行長距離收發
+-  Суд разрешил вылет задержанного во Франции самолета, перевозившего 300 индийцев
+-  Financial Times: Ako Rusija pobijedi, otvara se nekoliko scenarija
+-  Ο Σπανός επέστρεψε στον Ιωνικό
