@@ -1,11 +1,51 @@
 # Latest News
--  الاستمرار في مانشستر سيتي … قرار منطقي من ألفاريز
--  El gigante naviero Maersk se prepara para reanudar sus operaciones en el mar Rojo
--  Unilever adquiere la empresa biotecnológica de cuidado del cabello K18 en un cambio de estrategia de crecimiento
--  Coinbase defiende sus prácticas de contratación en respuesta a las críticas de la senadora Warren
--  Aussie couple’s Christmas miracle after seven years of infertility, 18 failed IVF treatments and multiple miscarriages
--  Djali i Violetë Kukaj më në fund flet për babain
--  ‘Quite dicey’: Severe thunderstorms and hail expected for large parts of Sydney to Hobart
--  Matupá ganha 513 novas empresas e Colíder 508
--  Don Omar pide a sus seguidores encontrar «un refugio» en la música
--  Sex Offender Charged With Molesting Girl in Irvine
+-  Field of Dreams actor Mike Nussbaum dies aged 99
+-  Sportitalia - Longari: "Juve a caccia del centrocampista. De Paul il non plus ultra per Allegri"
+-  Artista Paula Seling împlineşte 45 de ani. Piesa care i-a lansat cariera și a fost un succes uriaș VIDEO
+-  The First-born of all that is
+-  Katolici slave Božić
+-  Katolici slave Božić
+-  BHOJ University को यूजीसी और DEB ने डीलिस्ट किया, एडमिशन पर प्रतिबंध - NEWS TODAY
+-  Jim Ratcliffe Resmi Berinvestasi di Manchester United, Awal Baru untuk Pemulihan Setan Merah
+-  Teenager dies in Christmas Eve water-tubing accident
+-  Light & Power wants comprehensive regulatory reform
+-  Rosy Meurer, Olakunle Churchill Celebrate 4th Wedding Anniversary
+-  حظك اليوم وتوقعات الأبراج 25-12: حظ سيء لهذا البرج.. وأخبار سارة لـ الجوزاء
+-  Uche Ebere Criticises Emeka Ike’s Ex-Wife For Allowing Her Son Grant Interviews
+-  Marcelo bebeu ginjinha e brindou "à paz" acompanhado do cardeal Américo Aguiar
+-  "Treba imati u vidu i podstrekače nereda"! Dačić poslao jasnu poruku: "Trebaju nam uzdržanost i mir"
+-  Ağrı'da feci kaza! Yol açma çalışması yapan iş makinesi uçuruma yuvarlandı
+-  Fort Smith: Celebrating Christmas Eve and a birthday
+-  «QNB» يحصد تصنيفات «يوروموني»
+-  B&M fans go wild over Skittles and Starburst flavour they ‘need to try’
+-  Casa iluminada de Blumenau é destaque no Domingão com Huck Especial de Natal
+-  Irán y Nicaragua acuerdan más apoyo al pueblo palestino y condenan la ofensiva de Israel
+-  Dos malas y una buena: la actualidad de los rugbiers mendocinos en el final del 2023
+-  Près de Tours, un jeune renversé par la police - 24/12
+-  Vaucluse : le maire agressé témoigne sur BFMTV - 24/12
+-  ALKARAZ OTKRIO PLAN: Španac potvrdio učešće na ovih PET turnira!
+-  OTIMAČINA SVETINJA: Priština bez konsultacija sa SPC vrši radove u crkvi u selu kod Mitrovice i proglašava je „katoličkom crkvom“!
+-  Publican video que muestra el asesinato del rapero Lefty SM
+-  Pertempuran beralih ke selatan Gaza
+-  Jimmy Barnes gets into the festive spirit as he celebrates Christmas with his family following open heart surgery
+-  Etecs de SP conquistam 42 medalhas na Olimpíada Brasileira de Matemática 2023
+-  مسئولة الاتصال بالهلال الأحمر: المستشفيات في شمال غزة خارج الخدمة والوضع يزداد سوءا
+-  Ho-Ho-Ho: Aquí puedes ver dónde está Santa Claus y seguir su recorrido en vivo
+-  Devastated mum says her ‘world is shattered’ as son, 15, and 18-year-old killed in horror three-car crash
+-  6 das viagens de trem mais incríveis do mundo
+-  'Pokušaj Majdana': Policija razbila proteste u Beogradu
+-  バルテリ・ボッタス レッドブルF1で苦境に立つセルジオ・ペレスに助言
+-  Atilla Taş'ın tutuklanmasına neden olan görüntüler ortaya çıktı
+-  Kekal waspada terhadap COVID – Uggah
+-  SIU investigating after police officer fired weapon while responding to home invasion in Vaughan
+-  What happened to football on Christmas Day? The lost history of a Victorian tradition
+-  "MILINKOVIĆU, OČI TI ISPALE" Našeg pevača ŽENA KUĆI NAPALA ZBOG ZGODNE PEVAČICE, evo šta se desilo
+-  La revelación de un futbolista amigo del Papu Gómez sobre su pelea en la Selección: “Fue algo triste lo que…”
+-  "Rat" u Turskoj - Ikardi sa podlivom, Džeko poručio: Plaču za penalom, sramno VIDEO
+-  Parliament | Breakdown of Civility
+-  Bakan Güler açıkladı: 30 terörist öldürüldü
+-  Poginuo vozač u slijetanju automobila s ceste u Lapatu
+-  తెలంగాణ విధ్వంసకారుడు కేసీఆర్‌
+-  Wigilijna noc na polskich drogach. Najnowsze informacje
+-  ప్రజాస్వామ్య స్ఫూర్తికి విరుద్ధం ‘ఉపా’
+-  El espectacular video del Atlético de Madrid para la Navidad hablando de los hinchas colchoneros
