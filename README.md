@@ -1,51 +1,51 @@
 # Latest News
--  טרגדיה רודפת טרגדיה: אחותו של ניק קרטר מתה בגיל 41
--  בני סכנין: "דראפיץ' עושה עבודה נהדרת, השערים של גנטוס הם רק בונוס"
--  BYD מוכרת בישראל יותר מכוניות מאשר בכל אירופה. זה הולך להשתנות
--  רצח בחולון: צעיר נעצר בחשד שדקר למוות את אמו
--  MUP: Sva lica sa splava "Kartel" su evakuisana; Sve je počelo dojavom o tuči VIDEO
--  “Ngħożżu l-valur tas-solidarjetà”
--  'Show' de Daniel Bragança não passou despercebido: "Anda que chutas bem"
--  Marselino Ferdinan Latihan Perdana Bareng Timnas Indonesia, Pastikan Kondisinya Siap Main di Piala Asia 2023
--  Horoskopi 24 Dhjetor 2023
--  ديوان الطيران المدني والمطارات يوفر ثماني شاحنات انقاذ وإطفاء حرائق للمطارات
--  Men on run after spraying Melbourne home with bullets
--  Yusril Ihza Yakini KPU Tak Lakukan Pelanggaran Etik saat Loloskan Gibran Cawapres
--  ती व्यक्तिले के कति कारणले सभापति लामिछानेमाथि मकैको खोया प्रहार गरे खुलेको छैन: रास्वपा
--  KARDIOLOG DETALJNO OBJASNIO Evo na kojoj ruci treba meriti pritisak, da bi rezultat bio tačan
--  Εορταστικό ωράριο: Ανοιχτά μαγαζιά σήμερα Κυριακή 24 Δεκεμβρίου – Τι γίνεται τις υπόλοιπες μέρες!
--  Man Found Shot in Remote Area of Lucerne Valley and Airlifted to Trauma Center
--  Дмитрий Бивол с 22-а поредна победа на боксовия ринг, спечели нова титла
--  انڈونیشیا کے نکل پلانٹ میں دھماکا، 12 افراد ہلاک 39 زخمی
--  عقب صدور قرار مجلس الأمن بزيادة المساعدات إلى قطاع غزة.. الصهاينة يؤكدون مواصلة الحرب
--  Investiční výhled 2024: Před námi je podprůměrný růst ekonomiky, hlavní alternativou zhoršení kondice
--  Paolo Bonolis, Natale rovinato da Antonella Clerici: clamoroso in tv
--  Golob v novoletni poslanici o navdihujočih preteklih trenutkih
--  Zara i dalje izaziva bes: Snimak muškarca iz Osla glavna tema društvenih mreža VIDEO
--  Azərbaycanda faktiki hava açıqlandı
--  कौन हैं अविनाश पांडे...? प्रियंका गांधी की जगह बनाया गया उत्‍तर प्रदेश का प्रभारी
--  12 ศพ สังเวยเหตุ ‘โรงงานนิกเกิลอินโดนีเซีย’ ระเบิด เจ็บอีก 39 ราย
--  Shuttler Eogene to work on physical fitness to challenge seniors
--  Нов тендер за универзален снабдувач за струја, нови пониски цени на струјата за домаќинствата
--  Πήραν κλήση Ντάλσιο και Κασάμα
--  The owners really tried to make this club outstanding but the previous Managers are too extravagent in spending. Pochettino blast previous Managers on recruiting under performing player
--  Joulunpyhien sää varsin talvinen koko maassa
--  El PSOE recurrirá a Zapatero para la campaña de las gallegas y participará en su Conferencia Política
--  MEKGREGOR "UDAVIO" RONALDA! Snimak o kom bruji planeta: Konor seo pored Kristijana i počeo da "MELJE", ovaj se SMORIO kao nikad!
--  בגלל אי תשלום הבוררות לוורמוט: הפועל חיפה נקנסה ב-10,000 שקל
--  “นายกเศรษฐา” บุก ONE ลุมพินี 46 ดันมวยไทยซอฟต์พาวเวอร์ดังไกลทั่วโลก
--  Štrajk pilota u Lufthansinoj turističkoj podružnici Discover Airlines
--  Dilan Polat'ın astroloğundan dikkat çeken açıklama: Tutuklanacağını söylemiştim; tahliyesi için de tarih verdim
--  आर्थिक पुनरुत्थान रणनीति बनाउन घोषणापत्र
--  Avion immobilisé dans la Marne : jusqu'à lundi, l'aéroport de Vatry se transforme en salle d'audience
--  ESKALACIJA NA VRHUNCU - RAT SE ŠIRI SVIJETOM: Napadnut brod kod Indije! Pentagon upire prstom u zakletog neprijatelja!
--  Nickel Smelter Furnace Explosion Kills 12 People, Wounds Dozens in Morowali
--  Das ist Ruth Moschners absolutes "Masked Singer"-Highlight!
--  Mercedes-Benz Tests Hydrogen-Powered Unimog Prototype
--  Parker shocks Wilder in heavyweight upset
--  사흘째 모습 안 보이는 한동훈…‘세대교체’ 비대위 인선 고심
--  Kažu da su učenici grozni: Pogledajte što su priredili u karlovačkoj školi
--  Le Barça fixé en février en vue d'une possible exclusion de la Ligue des champions
--  WFI chief Sanjay Singh's first reaction as sports ministry suspends newly elected wresting body
--  لبيد: لا ثقة بين النظامين الأمني والسياسي
--  مقترح لإضافة وحدة جديدة للأمن الغذائي في وزارة الزراعة
+-  Католиците и дел од православните вечер го празнуваат Бадник, во пресрет на Божик
+-  La República Centroafricana espera ampliar la cooperación con los BRICS
+-  CNC Torna Çeşitleri Nelerdir? Nasıl Kullanılır?
+-  Weather to be sunny and clear for Christmas holidays
+-  Unwetter-Warnung an Heiligabend: Die Lage in Dortmund im Live-Ticker
+-  Πώς μπορείτε να έχετε καλύτερο WiFi στο σπίτι σας – Χρήσιμες συμβουλές
+-  اكتشاف ضفادع صغيرة ذات أنياب في إندونيسيا
+-  كيف تزيد عشبة كف مريم الوزن؟.. إليك الجواب
+-  وفيات الاردن الأحد 24-12-2023
+-  المقاومة بين أزمة إيران أمريكا إسرائيل.. وفخ حرب الموانئ
+-  Political capitalism is thriving in Cyprus
+-  噴射飛航售票處入閘登船復常 網上售票仍未修復
+-  Gaziantep Organize Sanayi Bölgesi Başkanı Şimşek’ten 25 Aralık kutlama mesajı
+-  區議員有Say｜中西區施永泰：三色回收桶收走減廢有難度 冀加設「綠在半山」
+-  From Netflix’s killer new line-up to Attack on Titan’s farewell, 2023 was one of anime’s best years ever
+-  Dermatoloji uzmanından, kışın cilt bakımı için 6 öneri
+-  Süper Lig'de Gaziantep FK, 4 maç sonra galip gelmeyi başardı
+-  Meteoroloji'den 21 ile sarı kodlu uyarı: Dikkat! İstanbul ve Ankara'da hava nasıl olacak?
+-  England's Curran has 'deep regrets' over intimidating umpire
+-  Regulation of cannabis use is not encouraging new users, authority head says
+-  Serve up some marvellous mince pies
+-  Cicibanček Luka Sešek: Nisem se še utegnil zaljubiti (Suzy)
+-  Терміново перевірте гаманець: ці рідкісні монети можуть вас озолотити
+-  EastEnders Christmas spoilers: Terror on the Square as Jack Branning puts Suki Panesar in deadly danger
+-  Razkrito, s čim se za božič gostijo kraljevi: njihova miza je …
+-  Auf Tour mit Werner Lorant und Horst Hrubesch: Jürgen Woköck wird Schiedsrichter des Jahres
+-  Echte Bäume und Fensterschmuck: So erlebt Anastasia Fedotova Weihnachten in Deutschland
+-  MPs can feast on Christmas boar for less than the price of a pub lunch
+-  Nutricionista ensina truques para evitar excessos alimentares
+-  LeBron James i Luka Dončić dominantni u pobjedama Lakersa i Mavericksa, naš Garza ponovo bez minuta
+-  Milan Gutkowski (42) startet besondere Weihnachts-Aktion: „Ich merke, wie groß das Thema Einsamkeit ist“
+-  Alle BVB-Profis vertrauen Bärbel Huber: Mit Jürgen Klopp in der Garage auf eine Zigarette
+-  Ces précieux conseils pour sortir indemne des repas de Noël en famille
+-  Jelang Natal, 53 Ribu Kendaraan Tinggalkan Jakarta Lewat Tol Japek
+-  Päivän tv-vinkit | Mieleni niin pahoitin
+-  Wüst über K-Frage: Keine Personaldebatten zur Unzeit
+-  Meera Chopra On Getting No Help From Star Cousins Priyanka And Parineeti Chopra; ‘Never Had A Strong Sister Bond'
+-  Çorum’da kahreden olay! 3 katlı ahşap ev yandı: 1 kişi öldü...
+-  Дедомразовска трка низ Скопје, почнува напладне пред „Сити мол“
+-  The Masked Singer: Fans vor Finale sicher – SIE stecken unter den Masken
+-  Aldi, Edeka, Kaufland und Co.: Hamsterkauf-Welle steht bevor – das ist der Grund
+-  Islamischer Staat Provinz Khorasan: Diese Terrororganisation könnte den Kölner Dom im Visier haben
+-  “Ölün, öle öle azalın, kurtulalım sizden” Ekşi Sözlük'te alçak paylaşımlar: Şehitlerimizle böyle alay ettiler
+-  우크라이나 100년만의 12월25일 성탄절, 왜?…트리엔 이것 주렁주렁
+-  اداکارہ میرا کا چوری ہونے والا قیمتی ہار اور گھڑی برآمد
+-  Мобилизация 500 тысяч украинцев: Данилов расставил точки над «і»
+-  Opération antiterroriste en Meurthe-et-Moselle : 4 suspects relâchés, le dernier toujours en garde à vue
+-  ŽENA SA DVE MATERICE PORODILA SE U UTORAK, PA U SREDU! Doktori u čudu: Ovo je SVETSKI fenomen, "jedan u MILION"
+-  وفـاة مدير وكالة الرأي الفلسطينية في غزة
+-  En una escuela de Córdoba, le dieron una medalla de egresada a una perra
