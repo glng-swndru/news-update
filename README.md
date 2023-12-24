@@ -1,11 +1,11 @@
 # Latest News
--  عاجل.. تنبيه مهم من الصندوق العقاري بشأن تمديد الدفعات للمواطنين
--  إحصائية صادمة.. 135 ألف طفل رضيع في غزة فقدوا احتياجاتهم الغذائية
--  Diversity-Märchen: „Die verkaufte Prinzessin“
--  Ein Traum und ein Anruf: „Wolfsland - Das schwarze Herz“
--  Film-Ikone Hanna Schygulla wird 80 - „Öfter mal was Neues“
--  メルセデスF1代表 「WECはミック・シューマッハのF1復帰の助けになる」
--  '이십세기 힛트쏭' 김희철, 클럽 마니아 고백 "로컬 나이트클럽 즐긴다"
--  '주식 리딩방' 도용 피해 모델男 호소 "저 아니에요"('물어보살')
--  [인터뷰] 이무생 "이순신 팬…'노량: 죽음의 바다' 합류, 뛸 듯이 기뻤죠"
--  Esta noche no es para confrontarnos: AMLO desea feliz Navidad a los mexicanos
+-  Man killed, woman injured in ‘targeted’ afternoon shooting at a Florida shopping mall
+-  لاعب جديد على عرش الأغلى في العالم
+-  إخلاء مبنى آيل للسقوط في جرش - صور
+-  Unnao Teacher Murder: गंगा रेती में पड़ा मिला शव, आठ दिन से था लापता, सिर-पैर मिला...शरीर नोंचकर खा गए थे जानवर
+-  Jammu News: सेना प्रमुख जनरल पांडे आज पहुंचेंगे जम्मू, सैन्य अफसरों संग करेंगे मंथन
+-  Lotto-Spielerin (17) gewinnt Millionen und erleidet Drama – „Gibt nichts Schlimmeres“
+-  FC Schalke 04: Geht jetzt alles schnell? Erster Transfer-Hammer steht bevor
+-  Wetter in NRW: Experte wird vor Weihnachten deutlich – „Vorsicht, Vorsicht!“
+-  Putin: Kriegsgefahr 2024? „Scholz bereitet Deutschland aufs Schlimmste vor“
+-  Konto von Bürgergeld-Empfängerin gepfändet: Ihr Mann kann darüber nur lachen
