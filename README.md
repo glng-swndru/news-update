@@ -1,51 +1,51 @@
 # Latest News
+-  Nochebuena: cuál es su origen y por qué se celebra cada 24 de diciembre
+-  Wie das Röthenbacher Christkind Weihnachten feiert
+-  Wie das Röthenbacher Christkind Weihnachten feiert
+-  BVB macht ernst – Transfergerücht wird immer heißer
+-  Weihnachtsmärkte in NRW: Weiter Lust auf Glühwein? Diese Märkte haben auch nach dem Fest geöffnet
+-  Annalena Baerbock postet nacktes Körperteil – dann wird es eklig
+-  ARD: Eine Ära endet – Kult-Sendung muss Schlussstrich ziehen
+-  Teen killed in Forestdale shooting two days before Christmas
+-  'A constant companion on my patio': Santas bring holiday cheer atop one city's balconies
+-  Rains: బంగాళాఖాతంలో బాహ్య ఉపరితల ద్రోణి.. 28 వరకు తేలికపాటి వర్షాలకు అవకాశం
+-  Actor Lee Sun-kyun returns home after 19-hour questioning over drug suspicions
+-  70% of NK defectors in Seoul have hard time making ends meet: think tank
+-  Son Heung-min scores 11th goal of season in Spurs' win over Everton
+-  US expresses serious concern over signs of NK commissioning light-water reactor
+-  El tiempo en Pozoblanco: previsión meteorológica para hoy, domingo 24 de diciembre
+-  Syarat KPR BRI untuk Wiraswasta, Nggak Banyak Kok!
+-  Registra números récord migración en frontera EEUU-México
+-  “พยัคฆ์” บุกเสมอ ชัยนาท 2-2 เชียงใหม่ เอฟซี ลงเตะศึก T2 นัดสุดท้ายของปี
+-  El tiempo en Lucena: previsión meteorológica para hoy, domingo 24 de diciembre
+-  港大莊月明化學樓男子倒臥平台 疑墮樓昏迷送院
+-  Mirtha Legrand se emocionó en su programa con Milei: qué pasó y qué respondió el Presidente
+-  【速報】ルーテル３１位、千原台５１位 全国高校駅伝女子
+-  Remembering Laura Lynch: 3 songs that all fans of the Chicks should hear
+-  [2023년 결산/디지털금융③] 'AI와의 아름다운 동행'은 환상일까
+-  "이 정도면 이적 확정 아닌가?"…토트넘 스카우터→토트넘 '단장' 이탈리아 포착, 모두 같은 '센터백' 보기 위해! 21세+191cm+유벤투스 출신+A대표팀, 누구?
+-  박수홍♥김다예, 결혼식 영상 추가 공개…사회 손헌수 '오열'→축가 멜로망스·김호중 [마데핫리뷰]
+-  지드래곤 오락가락 진술 女실장, 이선균 마약 신빙성 있을까[MD이슈](종합)
+-  LG전자, CES 2024 ‘시네빔 큐브’ 공개…어디서나 극장개봉
+-  '24살 연하♥' 최성국, 52세에 얻은 子 추석이 최초 공개 [조선의 사랑꾼2]
+-  Tahun Ini Perum DAMRI Target Punya 100 Bus Listrik, Tahukah Singkatan DAMRI?
+-  Empieza el juicio al conductor que mató y dijo que era “perseguido por el Diablo”
+-  Localise magistrate and justices: Turaga
+-  JMS 정명석 ‘여신도 성폭행 혐의’ 징역 23년에 항소
+-  Gaabor's Payday Sale: The ultimate year-end budol coming this Dec 28-30
+-  Storm super cells bringing flash flooding, hail to NSW
+-  可怕！南韓公共澡堂3老婦觸電無心跳 送醫後2人不治
+-  Bray Wyatt Has Posthumous Role In Disney’s Diary of a Wimpy Kid Christmas: Cabin Fever
+-  সোনার দাম বেড়ে ভরি ছাড়িয়েছে ১ লাখ ১১ হাজার টাকা
+-  雪山圈谷積雪10公分 雪管處提醒注意安全
+-  – الأهلي طرابلس يعزز صدارة المجموعة الثانية بفوزه على ضيفه اساريا.
+-  ’เอ็นบีเอ็ม‘ แจงรางจ่ายไฟฟ้าสายสีชมพูร่วงหล่น ไม่ใช่รางรถไฟ
+-  Two Kelantan rivers breach danger level as of 9am
+-  Liverpool star breaks collarbone in bizarre sideline collision
+-  Liverpool star breaks collarbone in bizarre sideline collision
+-  Storm super cells bringing flash flooding, hail to NSW
+-  Liquor outlets and wine shops closed for two days, observing Christmas and Poya Day
+-  Panwascam Menteng Temukan Warga Pakai Baju Pasangan Capres-Cawapres 2024 di Area CFD Jakarta
 -  हात्तीको आक्रमणबाट एक जना घाइते
--  Punjab: ਕਿਸਾਨ ਜਥੇਬੰਦੀਆਂ ਦਾ ਐਲਾਨ- ਇਸ ਵਾਰ ਮੁਹਾਲੀ ਨਹੀਂ, ਚੰਡੀਗੜ੍ਹ ਦੇ ਅੰਦਰ ਹੀ ਕਰਨਗੇ ਅੰਦੋਲਨ
--  सुनसान भयो सुन्दर मुस्ताङ
--  「二手禮物」風潮來襲！聖誕節變得精打細算，背後原因不只通膨？
--  India will pay price if they don’t travel to Pakistan
--  Sports Minister Thakur: No more comments on wrestling issue
--  Synthesis for HPSL Indian 2000 Guineas (Gr 1)
--  We have to be calm: Ten Hag
--  Man City clinch first Club World Cup
--  Ridhi Dogra watches SRK`s `Dunki`, shares fans there called her `Jawan ki mummy`
--  पोस्ट ऑफिस की सेविंग स्कीम के दीवाने हुए भारतीय, ये सर्वे निवेश के प्रति आपका नजरिया बदल देगी
--  93-year-old veteran receives more than 400 Christmas cards after making Facebook post
--  Bitcoin Bull Cathie Wood’s Ark Invest Sold Over 343K Coinbase (COIN) Shares In A Week
--  Bizman Behind Infomercial Drugs Had Taste for the Luxe Life
--  18 टन खाना, 25000 वाइन की बोतलें… इतिहास की सबसे महंगी पार्टी, जो 2000 साल पुरानी राजशाही के लिए बनी ‘काल’
--  الخميس.. "نجيب محفوظ.. رواية لا تغيب" فى ملتقى الهناجر الثقافى
--  غدا.. "مراسم الأقصر" في معرض فني لقصور الثقافة بالأوبرا
--  وزير الطيران يرد على خروج مصر للطيران من تصنيف أفضل 100 شركة عالميًا
--  Vitamins: क्या शरीर में विटामिन की कमी होने पर इन्हें पूरा किया जा सकता है? जानिए क्या कहते हैं हेल्थ एक्सपर्ट
--  محاكمة المتهمين بقتل طبيب بالتجمع الخامس.. اليوم
--  10 Movies to Stream Tonight If You Can’t Stand Christmas
--  Россиянам дали советы по приобретению духов в упаковке небольшого объёма
--  دراسة: الإضاءة البيضاء أفضل خيار لنومك
--  대전시, 2023 조달 이용 우수기관으로 선정
--  [부고] 박승제(한국화이자제약 부장)씨 부친상
--  본죽, ‘행운팥죽’ 죽차 운영… 직장인에 단팥죽 선물해
--  Очеквейте: Везенков и компания срещу лидера в Западната конференция
--  Breaking News Live Updates: देश के कई इलाकों में छाया कोहरा, ठंड से ठिठुरे लोग
--  Arsenal Imbangi Liverpool di Anfield dan Tetap Pimpin Klasemen, Arteta: Kami Berhasil Melewati Ujian Berat
--  Former Guv MM Rajendran passes away
--  Fahira Idris Ingatkan Capres-Cawapres Perhatikan Kaum Ibu
--  Delhi: दिल्ली सरकार पर दवा घोटाले की आंच..होगी CBI जांच?
--  Rekap Prestasi Bulutangkis Indonesia Sepanjang 2023: Menjanjikan di Awal, Menurun di Akhir
--  Queen Silvia of Sweden celebrates her 80th birthday with grandkids by her side
--  Queen Silvia of Sweden celebrates her 80th birthday with grandkids by her side
--  Gibran Cerita Punya 2 Detik Terakhir Ucapkan Selamat Natal saat Debat
--  「現代の忍者」博士号を取得 忍びの探究を地域防災のあり方に広げる
--  "القاهرة- جدة" ثاني أكثر الرحلات الجوية ازدحامًا في العالم
--  Chhattisgarh CM and Deputy CMs meet PM Narendra Modi
--  Fry Chhuhara: ਠੰਡ 'ਚ ਫ੍ਰਾਈ ਛੁਹਾਰੇ ਇਨ੍ਹਾਂ ਬਿਮਾਰੀਆਂ ਲਈ ਰਾਮਬਾਣ
--  अंग्रेजी नयाँ वर्षको अवसरमा फुडफेस्टिवल आयोजना हुने
--  한동훈은 누굴 추천했을까…검사 안해본 ‘이 사람’ 새 법무장관 후보 급부상
--  Bills rally to take 14-10 halftime lead
--  Norsk tanker utsatt för attack i Röda havet
--  PM Modi Ayodhya Visit: पीएम के दौरे को लेकर सख्त होगी सुरक्षा, बाहरियों के अयोध्या प्रवेश पर रहेगी रोक
--  Türkei fliegt Luftangriffe in Syrien und im Irak
--  Dubai: அச்சச்சோ.. துபாயில் வெறும் காலுடன் 104 கி.மீ., ஓடிய பெங்களூருக்காரர்.. என்ன காரணம் தெரியுமா?
--  Banksy artwork stolen in London; suspect arrested
--  Akrab! Zulhas dan Putri SaraPAN Mi Lampung Bareng Raffi-Nagita
--  Poder Judicial: Mauricio Fernandini solicitó que cese prisión preventiva en su contra
+-  3 Cara Cek Saldo BRIZZI Lewat HP, Memudahkan dan Praktis
+-  MACC confirms probing Daim over graft, money laundering claims
