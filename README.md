@@ -1,51 +1,11 @@
 # Latest News
--  Derbi öncesi koridorda arbede çıktı! Ali Yiğit Buruk, soyunma odasına alınmadı
--  Galatasaray penaltı bekledi, hakem devam ettirdi!
--  Akdeniz'de deprem
--  Euro-Med: Gazze'deki BM okulları sivillere karşı suç işlenen alanlara döndü
--  Tradicija se nastavlja: ronioci i ove godine okitili pa potopili božićno drvce u Mostarsko jezero; ‘Čestitamo svima...‘
--  El Manchester United vende un 25% de su accionariado a INEOS
--  Deshna Duggad to Karuna Pandey, telly stars reveal Christmas plans
--  Conor McGregor seen dodging punches and barking instructions from ringside as Deontay Wilder takes brutal beating
--  Premier League winners and losers: Everything goes Spurs’ way but Poch, Ten Hag and Howe sack talk intensifies further
--  SRBI VODILI OLIMPIJAKOS DO POBEDE Petrušev zablistao, Milutinov standardan
--  Stanbic IBTC top in cash withdrawal to customers
--  3 Naxalites killed during encounter with police in Chhattisgarh
--  Fenerbahçe-Galatasaray derbisi öncesi anlamlı pankart! "Şehitler ölmez, vatan bölünmez"
--  Fenerbahçe Galatasaray derbisi öncesi soyunma odası koridorlarında arbede yaşandı!
--  Tiket Sejumlah KA di Daop 9 Jember Habis Hingga Natal
--  Vanzemljaci, Bosanci, i fantomi
--  Ver Video. tiktoker argentina tras recorrer un supermercado en Chile: "Te crees que estás en Disney"
--  VELIKA TRAGEDIJA U požaru poginuli žena i dete
--  Dajte 180-ku a my prispejeme tisícku na dobrú vec. Sponzor vyprovokoval šípkarov, zaplatí poriadny balík
--  Harry Kane moves out of Munich hotel he has been staying in since joining Bayern Munich from Tottenham
--  EuroLeague, Βαλένθια: Έδωσε συμβόλαιο 45 ημερών στον Τζάστιν Άντερσον
--  В Европе захотели профинансировать возведение стен и заборов с другими государствами
--  Montreal police say basilica fire not arson, investigation shows cause was electrical
--  В Волхове прошел забег с Дедом Морозом
--  Na granici Srbije i Kosova zaustavljen muškarac s vojnom opremom u prtljažniku
--  INAI lanza 10 recomendaciones para evitar que los menos sean víctimas de grooming
--  El clásico de las fiestas de fin de año: ¿a qué hora es El Programa de Lavecchia?
--  Pas-de-Calais: un homme retranché pendant plus de 15 heures chez lui à Balinghem, interpellé
--  Her forsvinner pengene dine
--  Tradiciones canarias para Navidad
--  Kassam Tugayları duyurdu: Çok sayıda İsrail askerini öldürdük
--  Ülker Stadı'nda şehitler unutulmadı
--  Team doctor Bernabé Polanco sale en delantera basket navideño intramuros club San Vicente
--  Kirjastosilta valaisee ympäristöään rauhan puolesta
--  Umro suprug trudne influenserke koja je tragično izgubila život
--  JEZIVO NAPADNUTA DEVOJKA U AUTOBUSU! Užas na liniji 860, osumnjičen strariji muškarac
--  Islamic Jihad group visits Egypt as Israel bombs Gaza
--  Islamic Jihad group visits Egypt as Israel bombs Gaza
--  أحداث غزة.. نتنياهو: ثمن الحرب باهظ جدا على حياة جنودنا ولن نتوقف حتى نحقق النصر
--  Navidad amarga en el Cauca: reportan el asesinato de un líder indígena en zona rural
--  "بسبب مخاوف إرهابية".. دول أوروبية تعزز الإجراءات الأمنية قبيل احتفالات عيد الميلاد
--  Ngezana, primit ca un star la revenirea în Africa de Sud » Imagini tari „scăpate” pe internet: „Frate!”
--  Greeicy Rendón está de luto: se despidió de una familiar con un emotivo mensaje
--  Kaksi savusaunaa tuhoutui tulipaloissa jouluaattona – Kaarinassa paloi paritalon puolikas
--  Kaksi savusaunaa tuhoutui tulipaloissa jouluaattona – Kaarinassa paloi paritalon puolikas
--  Omroep Gelderland wenst iedereen fijne feestdagen!
--  Ți-ai făcut planurile pentru zilele următoare? La ce evenimente ne petrecem ultima săptămână a anului 2023
--  Ver Video. La grave e insólita lesión que provocó Jürgen Klopp en empate de Liverpool
--  Jalur Pendakian Gunung Rinjani Dibersihkan, Sampah yang Terkumpul Lebih dari 100 Kg
--  مانشستر يونايتد يعلن بيع 25٪؜ من أسهمه إلى جيم راتكليف
+-  لماذا تختفى عروق بعض الأشخاص عند سحب الدم؟- اعرف السر
+-  يقي من السرطان وأمراض القلب.. مشروب يخفض ضغط الدم ويقوي المناعة
+-  تحذير من الاندفاع على شراء الذهب: أسباب توقعات زيادة سعره قد لا تتحقق
+-  От Манчестър Юнайтед обявиха голямата новина
+-  Νεκρή 19χρονη και δύο σοβαρά τραυματισμένες γυναίκες σε τροχαίο έξω από την Αλεξανδρούπολη
+-  Taux de participation aux élections locales en Tunisie : 1,9% à 10h
+-  India clinch women's Test against Australia to end 46 years of hurt
+-  ЦАХАЛ заявляет о контроле над севером Газы
+-  Иран стреляет по всему, что движется и грозит перекрыть Гибралтар
+-  «Карабах» уходит на зимний перерыв с 12-очковым превосходством
