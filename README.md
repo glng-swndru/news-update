@@ -1,51 +1,51 @@
 # Latest News
--  Nochebuena: cuál es su origen y por qué se celebra cada 24 de diciembre
--  Wie das Röthenbacher Christkind Weihnachten feiert
--  Wie das Röthenbacher Christkind Weihnachten feiert
--  BVB macht ernst – Transfergerücht wird immer heißer
--  Weihnachtsmärkte in NRW: Weiter Lust auf Glühwein? Diese Märkte haben auch nach dem Fest geöffnet
--  Annalena Baerbock postet nacktes Körperteil – dann wird es eklig
--  ARD: Eine Ära endet – Kult-Sendung muss Schlussstrich ziehen
--  Teen killed in Forestdale shooting two days before Christmas
--  'A constant companion on my patio': Santas bring holiday cheer atop one city's balconies
--  Rains: బంగాళాఖాతంలో బాహ్య ఉపరితల ద్రోణి.. 28 వరకు తేలికపాటి వర్షాలకు అవకాశం
--  Actor Lee Sun-kyun returns home after 19-hour questioning over drug suspicions
--  70% of NK defectors in Seoul have hard time making ends meet: think tank
--  Son Heung-min scores 11th goal of season in Spurs' win over Everton
--  US expresses serious concern over signs of NK commissioning light-water reactor
--  El tiempo en Pozoblanco: previsión meteorológica para hoy, domingo 24 de diciembre
--  Syarat KPR BRI untuk Wiraswasta, Nggak Banyak Kok!
--  Registra números récord migración en frontera EEUU-México
--  “พยัคฆ์” บุกเสมอ ชัยนาท 2-2 เชียงใหม่ เอฟซี ลงเตะศึก T2 นัดสุดท้ายของปี
--  El tiempo en Lucena: previsión meteorológica para hoy, domingo 24 de diciembre
--  港大莊月明化學樓男子倒臥平台 疑墮樓昏迷送院
--  Mirtha Legrand se emocionó en su programa con Milei: qué pasó y qué respondió el Presidente
--  【速報】ルーテル３１位、千原台５１位 全国高校駅伝女子
--  Remembering Laura Lynch: 3 songs that all fans of the Chicks should hear
--  [2023년 결산/디지털금융③] 'AI와의 아름다운 동행'은 환상일까
--  "이 정도면 이적 확정 아닌가?"…토트넘 스카우터→토트넘 '단장' 이탈리아 포착, 모두 같은 '센터백' 보기 위해! 21세+191cm+유벤투스 출신+A대표팀, 누구?
--  박수홍♥김다예, 결혼식 영상 추가 공개…사회 손헌수 '오열'→축가 멜로망스·김호중 [마데핫리뷰]
--  지드래곤 오락가락 진술 女실장, 이선균 마약 신빙성 있을까[MD이슈](종합)
--  LG전자, CES 2024 ‘시네빔 큐브’ 공개…어디서나 극장개봉
--  '24살 연하♥' 최성국, 52세에 얻은 子 추석이 최초 공개 [조선의 사랑꾼2]
--  Tahun Ini Perum DAMRI Target Punya 100 Bus Listrik, Tahukah Singkatan DAMRI?
--  Empieza el juicio al conductor que mató y dijo que era “perseguido por el Diablo”
--  Localise magistrate and justices: Turaga
--  JMS 정명석 ‘여신도 성폭행 혐의’ 징역 23년에 항소
--  Gaabor's Payday Sale: The ultimate year-end budol coming this Dec 28-30
--  Storm super cells bringing flash flooding, hail to NSW
--  可怕！南韓公共澡堂3老婦觸電無心跳 送醫後2人不治
--  Bray Wyatt Has Posthumous Role In Disney’s Diary of a Wimpy Kid Christmas: Cabin Fever
--  সোনার দাম বেড়ে ভরি ছাড়িয়েছে ১ লাখ ১১ হাজার টাকা
--  雪山圈谷積雪10公分 雪管處提醒注意安全
--  – الأهلي طرابلس يعزز صدارة المجموعة الثانية بفوزه على ضيفه اساريا.
--  ’เอ็นบีเอ็ม‘ แจงรางจ่ายไฟฟ้าสายสีชมพูร่วงหล่น ไม่ใช่รางรถไฟ
--  Two Kelantan rivers breach danger level as of 9am
--  Liverpool star breaks collarbone in bizarre sideline collision
--  Liverpool star breaks collarbone in bizarre sideline collision
--  Storm super cells bringing flash flooding, hail to NSW
--  Liquor outlets and wine shops closed for two days, observing Christmas and Poya Day
--  Panwascam Menteng Temukan Warga Pakai Baju Pasangan Capres-Cawapres 2024 di Area CFD Jakarta
--  हात्तीको आक्रमणबाट एक जना घाइते
--  3 Cara Cek Saldo BRIZZI Lewat HP, Memudahkan dan Praktis
--  MACC confirms probing Daim over graft, money laundering claims
+-  [박지원, 김대중 소환 “민주당 분열·열린우리당 창당때 극렬히 반대”
+-  [세종 조치원 목욕탕서 여성 입욕객들 감전…2명 사망·1명 심정지
+-  [학교·유치원 방과후 강사도 내년부터 산재보험 적용
+-  [거침없는 푸틴, 진짜 속마음?…NYT “물밑서 우크라전쟁 휴전협상 타진”
+-  [NYT “푸틴, 조용히 우크라전쟁 휴전 협상 타진 중”
+-  [‘실적 암울’, ‘공급 과잉’, ‘재무 부담’…석유화학 ‘3중고’ [산업의 쌀을 지키자]
+-  [“좋든 싫든 중국은 포기 안돼” 석유화학 ‘차이나 리스크’가 기회인 이유는? [산업의 쌀을 지키자]
+-  [나이키, 매출 부진 우려에 ‘칼바람’…경쟁력 강화 목표 구조조정 단행
+-  [“욕심내겠다” 정우성, 드디어 ‘천만배우’ 크리스마스 선물…서울의 봄 흥행
+-  [경영진 횡령으로 상장폐지…법원 “허위 채권 발견 못한 회계법인, 20% 책임”
+-  [‘마에스트라’ 선 넘는 불륜남편 김영재
+-  [“애낳으면 1억 쏜다” 파격 인천시에 허경영 “국민 위한 길” 극찬…무슨 일
+-  [너바나 앨범 ‘알몸 아기’ 소송 재개…2심서 1심 시효만료 판단 뒤집혀
+-  [사진속 유명 ‘여배우’ 등근육 자랑하더니…넷플릭스도 꽂혔다
+-  [전재산 1억 털어 마련한 내집…오피스텔 사들인 2030 괜찮을까? [부동산360]
+-  [“결국 이지경까지” 노홍철, ‘지팡이·휠체어 신세’ 근황 깜짝…대체 무슨 일
+-  [날 풀렸으니, 서울 ‘소울(soul) 로드’ 가볼까 [함영훈의 멋·맛·쉼]
+-  [광주·전남 밤사이 22.5㎝ 눈…“무안·영광·장성·함평 대설주의보 해제”
+-  [조선대병원, 몽골인 간암 환자에 무료 의료 수술
+-  [명품 신안 참홍어 ‘대풍’… “가격하락·경기침체 이중고”
+-  [아파트 관리사무소 직원에게 가스총 쏜 입주민, 2심서 집행유예로 석방…이유는?
+-  [이찬원, ‘2023 KBS 연예대상’ 최우수상 수상 “더 유쾌한 재미‧뜨거운 감동 전해드릴것”
+-  [[리얼푸드] ‘7개국 진출’…고피자, 태국 방콕에도 매장 오픈
+-  [[리얼푸드] 파리바게뜨, ‘구세군두리홈’에 크리스마스 선물 전달
+-  [[리얼푸드] ‘한국 과자 전문점 증가’ 중국 간식 시장의 성장
+-  [[리얼푸드] ‘절벽 커피·고가 커피’ 중국 커피 시장의 치열한 경쟁
+-  [세계 관광도시 평가, 서울 12계단, 도쿄 16계단 상승
+-  [“한우·랍스터 반값에 가져가세요” 대형 마트 장사 얼마나 안되면…파격 할인
+-  [조국 “‘왕세자’ 한동훈, 노태우의 길 가려할 것…‘쇼쇼쇼’ 준비되고 있어”
+-  Pemain Bali United Tidak Dilirik Shin Tae Yong, Coach Teco Beri Respon
+-  BVF Afrika ölkəsinə 73,8 milyon dollar kredit ayırdı
+-  هل يصلح نواف العقيدي لحراسة مرمى منتخب السعودية في كأس آسيا؟
+-  Profil Komika Jo Koy, Pemandu Acara Golden Globe Awards 2024 Keturunan Filipina
+-  Thousands flock to stores for Christmas shopping despite new data showing cost-of-living crunch
+-  أكبر عيب في الاتحاد هذا الموسم
+-  Trabalhos forçados na defensiva
+-  Fantasy fair featuring Dali, Basquiat returns to life in California
+-  Huge hail hits south-east Queensland on Christmas Eve
+-  Huge hail hits south-east Queensland on Christmas Eve
+-  力拚苗栗縣山線立委 曾玟學提10鄉鎮重點政策
+-  Sombre Bethlehem marks Christmas with vigil as bombs rain on Gaza
+-  El tiempo en Vimianzo: previsión meteorológica para hoy, domingo 24 de diciembre
+-  侯趙後援總會中台灣誓師 王金平︰集中選票支持「真正能過關的組合」
+-  El tiempo en Valdoviño: previsión meteorológica para hoy, domingo 24 de diciembre
+-  Orgaisation pledges to empower more women, youths
+-  El tiempo en Val do Dubra: previsión meteorológica para hoy, domingo 24 de diciembre
+-  El tiempo en Touro: previsión meteorológica para hoy, domingo 24 de diciembre
+-  Лидер партии "Патриоты" считает губительной для Франции торговую политику главы ЕК
+-  日職》羅德網羅33歲美籍新洋投 監督透露開季定位
+-  El tiempo en Tordoia: previsión meteorológica para hoy, domingo 24 de diciembre
