@@ -1,51 +1,51 @@
 # Latest News
--  Pihak-pihak Berperang di Yaman Sepakat Menuju Gencatan Senjata
--  Ingresos del sector formal e informal caen en 12%
--  과기정통부, 사이버보안 펀드 200억원 투자… 산업계 갈증 해소할 ‘단비’ 될까
--  תחזית מזג האוויר: שבוע של התחממות
--  Alianzas público privada permitirá encarar desafíos del Mercosur
--  Sugar, Rice, Imports from India Hindered by Policy Restriction: Bapanas
--  Sharmila rancang ke Kuala Selangor sebelum hilang
--  Vigyázat, már megint cserben hagyhat az iPhone-od ébresztője
--  Polemik berkaitan Ashabul Kahfi tidak perlu diperbesarkan
--  Invitan a viajar y recorrer Bolivia
--  Sambut Tahun Baru, Sepatu-Sandal Diskon 50% + 40% di Transmart Full Day Sale
--  OVO JE NAJMANJA DRŽAVA NA SVETU Velika je kao dva teniska terena, ima svoju kraljevsku porodicu i fudbalski tim: Preživela je čak i PUČ
--  NIKO NE PROVALJUJE KO JE MAJKA, A KO ĆERKA Supruga Dragana Džajića u osmoj deceniji izgleda kao MILION DOLARA, a tek da je vidite u KUPAĆEM KOSTIMU
--  Catat! Jalur Puncak Akan Ditutup Total saat Malam Tahun Baru
--  लाल सागर में युद्ध जैसा माहौल, भारत का झंडा लगे एक जहाज पर ड्रोन अटैक
--  Nagy bajban az ukrán lakosság a tél miatt, az oroszok intenzív támadást indítottak
--  Luhut Sebut Semua Orang Apresiasi Jokowi: Mampu Bernavigasi di Dalam Ekonomi Dunia yang Sulit
--  Israël-Hamas: Biden presse Netanyahu de protéger les civils dans la bande de Gaza
--  Former Swiss finance executive guilty in tax evasion scheme
--  Libur Nataru: Polisi Siapkan Rekayasa Lalu Lintas di Ragunan
--  On a suivi le père Noël du marché de Lyon, il raconte son quotidien magique
--  36ers end rut by unwrapping an NBL win over the Bullets
--  Ukrainian Volunteers Went Abroad for Humanitarian Aid and Fled
--  KPU Diadukan ke DKPP soal Proses Pencalonan Gibran, Ahli Bicara Putusan MK
--  Uso abusivo de TikTok provoca narcolepsia entre adolescentes
--  «Колорадо» — «Аризона»: видеообзор матча НХЛ
--  जरांगे का 20 जनवरी से मुंबई में अनिश्चितकालीन हड़ताल का एलान, सीएम ने संयम बरतने का किया आग्रह
--  Gazze Şeridi'nde üçüncü aşama: İsrail ordusu hazırlıklara başladı
--  רק לא לאבד את הראש: למי באמת יש עניין בבחירות לרשויות המקומיות עכשיו?!
--  חיזוק הביטחון הלאומי הוא גם תיקון פנים ישראלי
--  Erste Schätzungen: Commercial Metals präsentiert Bilanzzahlen zum jüngsten Jahresviertel
--  دراسة: محيط الخصر يرتبط بالعقم عند النساء
--  Lebih enam jam terkandas, laluan Gua Musang-Lojing dilimpahi air
--  Women's ministry working to provide high-quality services to all: Nancy
--  NAKON PANČEVCA I BEOGRAĐANIN UKRASIO KOLA: Za ovim vozilom se ovih dana mnogi okreću! Narod se oduševio idejom! (FOTO)
--  ठाणे में 1,000 से अधिक बच्चे कुपोषण का शिकार, जिले में 'कुपोषण मुक्तिसाथी दत्तक-पालक अभियान' की हुई शुरुआत
--  Auditoría de expertos dice que España no estaba preparada para el covid-19
--  仍在調查油公司有否合謀定價 陳家殷：公眾易將「平衡定價」混淆
--  Turkey conducts air strikes in northern Iraq, Syria after 12 soldiers killed
--  Lyon : un nouveau grand parc ouvre à côté des tours de la Part-Dieu
--  ‘Red ball is still top of the tree’: Starc still favours Test cricket over IPL millions
--  ‘Red ball is still top of the tree’: Starc still favours Test cricket over IPL millions
--  Зеграс забил лакросс-гол в ворота «Сиэтла»
--  Per Gobert`ą dėjimą atlikęs Sabonis su „Kings“ galiausiai pralaimėjo „Timberwolves“
--  Fiasco à L’OM : 30 millions d’euros jetés par les fenêtres ?
--  Health crisis in Matara Prison: 08 more admitted to hospital amid fever outbreak, 01 fatality reported in ICU
--  Ярославцы характеризуют уборку города одним емким словом – беспредел
--  KPK Tangkap Pihak Swasta Tersangka Kasus OTT Gubernur Maluku Utara
--  शरद पवार ने की गौतम अदाणी की तारीफ
--  Lidl, Aldi und Co.: Kassiererin greift in Schlange ein – Kundin geht auf die Barrikaden
+-  إغلاق طريق عقبة الهدا في الطائف اليوم اعتبارًا من التاسعة صباحًا
+-  مصلى مكة المعلق يدخل موسوعة جينيس للأرقام القياسية
+-  Nyandarua sub-county administrator arrested for soliciting Ksh40K bribe from bar owners, EACC says
+-  След коледните пости: Как плавно да преминем към пълноценно хранене
+-  Мусулмонлар учун дўстона туризм: етакчи мамлакатлар ва Ўзбекистон учун имкониятлар.
+-  10 ilde "Kahramanlar-35" operasyonu: Teröristlere ait 58 sığınak ve depo imha edildi
+-  DEM Parti'den Türk milletine alçak tehdit: Tekirdağlı da Trabzonlu da rahat olmayacak
+-  Шайба Ничушкина позволила «Колорадо» обыграть «Аризону» в НХЛ
+-  Vrouw overleden en meerdere gewonden bij eenzijdig ongeval in Waalwijk
+-  Bamyan: Orphans engaged in labor to be enrolled in orphanage
+-  ¿Dónde invertir en 2024? Así construye sus carteras la gestora GVC Gaesco
+-  20 of the Youngest Hosts in 'Saturday Night Live' History (& The Show's Youngest Host Was Only 7-Years-Old!)
+-  Parte de la solución / Análisis de Ricardo Ávila
+-  美 공화당 대선주자 라마스와미, 콜로라도 경선 보이콧 선언
+-  US woman with rare double uterus gives birth to twin girls
+-  Les critères de la location en montagne
+-  ‘불법촬영 혐의 국대 박탈’ 황의조, 교체 20분 부상 복귀전서 침묵
+-  Motorists groan over roadblocks, activities of security agents in South-East
+-  Doncic scores 39 points in triple-double, Mavs rout Spurs 144-119 as Wembanyama sits
+-  Europe 1 nuit du 23/12/2023
+-  ЦАХАЛ: число погибших с 7 октября военных Израиля достигло 485
+-  Bijelo Polje: Individualna ložišta i kotlarnice zagađuju vazduh
+-  Ting skyllet i land frister tyve: Politiet fandt tyvekoster ved sommerhus
+-  Nemecké orgány dostali informácie o plánovanom útoku na kolínsku katedrálu
+-  Azərbaycan Premyer Liqasında ilin son oyunları
+-  गणतन्त्रको विकल्प सुधारसहतिको गणतन्त्र हो : उपमहासचिव पुन
+-  INSÄNDARE: Jublande jultomte delar ut hoppfulla klappar till ministrar
+-  Pokwang wins deportation case against ex-partner Lee O’Brian
+-  สธ.ออกประกาศคุมเข้ม ‘ผู้ขายใบกระท่อม’ ต้องติดป้ายห้ามขายให้เด็ก-สตรีมีครรภ์
+-  مالية النواب تناقش اليوم موازنة وزارتي الأشغال والتخطيط
+-  أجواء ضبابية وباردة وتساقط أمطار في أغلب المناطق
+-  أنجلينا جولي: حقوق الإنسان بالعالم كذبة كبيرة
+-  قرار سعودي جديد داخل مكة والمشاعر المقدسة
+-  الاحتلال يقتحم مدينة طولكرم ومخيم نور شمس
+-  สมเด็จพระสังฆราช ประทานพระรูป และคติธรรมลายพระหัตถ์ ส่งความสุขรับปีใหม่ 2567
+-  UN urges rescue of 185 Rohingya adrift in Indian Ocean
+-  Ahmedabad Corona:અમદાવાદમાં આ વિસ્તારમાંથી વધુ કોરોનાના પોઝિટિવ કેસ નોંધાયા, એક્ટિવ કેસની સંખ્યામાં વધારો,AMC એક્શનમાં
+-  Adana'da gaz sızması zehirledi! 34 kişi hastaneye kaldırıldı
+-  Mindestlohn steigt auf 12,41 Euro pro Stunde
+-  Per Gobertą dėjimą sugrūdęs Sabonis surinko dar vieną trigubą dublį
+-  Mindestlohn steigt auf 12,41 Euro pro Stunde
+-  รถไฟฟ้าสายสีชมพู แจ้งหยุดเดินรถทุกสถานีชั่วคราวเที่ยงนี้!
+-  Президент Аргентины заявил о работе по внесению ХАМАС в список террористов
+-  Berlingske mener: Præster, nyd jeres rockstjernestatus i dag – og brug den rigtigt
+-  Berlingske mener: Præster, nyd jeres rockstjernestatus i dag – og brug den rigtigt
+-  Thousands file election nominations as deadline ends today
+-  Terör örgütüne ağır vurgun! Ali Yerlikaya açıkladı: 10 ilde 58 mağara, sığınak ve depo imha edildi
+-  Chiranjeevi congratulates Prabhas and Prashanth Neel for `Salaar` box office
+-  Motociclista atropella a peatón y ambos salieron heridos, en Angostura
+-  Liverpool's draw with Arsenal marred by Tsimikas injury: Klopp
