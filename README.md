@@ -1,11 +1,51 @@
 # Latest News
+-  블랙핑크 지수, 감탄 일으키는 청순 비주얼
+-  ‘เทพไท’ ฟันเปรี้ยง! ‘ก้าวไกล’ ฝ่ายค้านถาวร ถ้าไม่แลนด์สไลด์
+-  सिंगर ऊषा उत्थुप को सामने देख सलमान खान ने छुए पैर, भाईजान ने अंदाज ने जीता फैंस का दिल
+-  बिहार में कैसी शराबबंदी! दारोगा ने जब्त की शराब, फिर खुद ही बेच दिया; क्या हुई कार्रवाई?
+-  PM Dahal consults top leaders of major parties on finalizing TJ
+-  Beşiktaş'ta ilk yolcu belli oldu: Valentin Rosier
+-  BUDO'nun 6 seferi iptal edildi
+-  Terör örgütüne ağır darbe! Bakan Güler duyurdu: Evlatlarımızın intikamını alacağız
+-  A Xunta aumenta nun 8% o investimento na promoción de produtos do mar galegos
+-  שטח חם: איוונקה טראמפ מדגימה לוק קרבי
+-  First Angara-A5 Rocket Shipped to Vostochny Cosmodrome
+-  Kickoff | Chiefs striker vows to find the goals
+-  Антъни Джошуа прегази скандинавски гигант, ясна е следващата жертва
+-  ワリエワは３位
+-  Mehr als 40 Prozent sagen von sich: Ich bin zu lang am Handy
+-  Leyla Əliyevadan Prezidentə TƏBRİK
+-  Puolan ulkoministeri: Vain ukrainalaisilla on oikeus sotaväsymykseen
+-  Названы имена шести жертв массовой стрельбы в Праге
+-  Post-Game: Ότι έδωσε πήρε
+-  Výbuch v továrni na spracovanie niklu! Indonézia hlási 12 obetí
+-  Das überrascht George Clooney bei Erziehung seiner Zwillinge
+-  إنفاذ القانون تشرع في إزالة وهدم المباني العشوائية والعوائق بمنفذ رأس أجدير
+-  Минэнерго заявило о восстановлении энергоснабжения Дагестана
+-  Lotto results: Saturday, 23 December 2023
+-  Seaweed Downstreaming Could Generate More Income Than Nickel: Maritime Affairs Ministry
+-  'They said The Last Supper was good, clearly haven't seen this': Frantic pictures of Swansea night out hailed as 2023's 'Renaissance' following in the footsteps of 2015's viral Manchester street scene
+-  'They said The Last Supper was good, clearly haven't seen this': Frantic pictures of Swansea night out hailed as 2023's 'Renaissance' following in the footsteps of 2015's viral Manchester street scene
+-  टेस्टी खाने के लिए मशहूर है दिल्ली का ये रेस्टोरेंट, जानें खासियत और लोकेशन
+-  Link Streaming Misa Natal Gereja Katedral Jakarta 2023, Cek di Sini!
+-  旧陸軍の風船爆弾基地、初の資料
+-  Kuzmenko scores 2 as Canucks move atop Western Conference with 7-4 win over Sharks
+-  Lisa Blackpink Makan di Restoran Pinggir Jalan di Bangkok, Apa Menunya?
+-  ผสห.โวย! ปมเหตุ รถไฟฟ้าสายสีชมพู ลั่น งานชุ่ย ไม่พร้อมก็อย่าเปิด
+-  Gyorssegély annak, aki még nem vásárolt be: boltok, ahová mehetnek
+-  Prediksi Cuaca Minggu di Lokasi Wisata Jawa Barat, Ada Potensi Hujan Petir di Bandung
+-  Ovčarima iz Bedekovčine divlji psi godinama napadaju ovce
+-  Şehitler için ortak bildiriye CHP ve Dem Parti imza koymadı
+-  ฟุตซอลไทย แซง อุซเบ เจ้าภาพฟุตซอลโลก2024 รั้งที่ 25 โลก
+-  美軍神秘機型，SpaceX 將與太空軍合作試飛 X-37B
+-  Danas su Materice: Najveći hrišćanski praznik majki i žena
+-  El temor a mostrarse ante el espejo
+-  "Let's Dance"-Special: Zuschauer erheben Manipulationsvorwürfe gegen RTL
+-  Karşı Tarafta Görünce Koşar Adımlarla Uzaklaşmanız Gereken Toksik Özellikleri Sıralayan 22 Kişi
+-  Más y mejor investigación
+-  Lisieux : le bailleur Inolya démolit 309 logements à Hauteville
+-  VIDEO. Noël dans le Calvados : « Des gens de Mayenne viennent voir ma maison illuminée »
+-  Livre : Jean-Paul Le Buhan raconte les signatures et dédicaces de notre patrimoine
+-  Pakistan vs New Zealand: Wahab Riaz confirms Babar Azam will play in T20I series
 -  الجارديان: إسرائيل لم تعد تتحمل تبعات اغتيال رموز فلسطينية على أراضي دول أجنبية
--  Roads need to have better protection of the pedestrian, Doctors for Road Safety says
--  浜口順子、第1子女児を出産
--  جوجل تحدث متصفح الإنترنت كروم للكمبيوتر المكتبي
--  Merry Christmas czy Wesołych Świąt? Święta w innych kulturach
--  Bolj kot izbira "pravih besed" šteje pristna skrb
--  Michelle (19) uit Geesbrug in Hoogeveen gekroond tot mooiste meid van Drenthe. 'Ik durfde niet eens door de klas te lopen, nu loop ik hier als winnaar over de catwalk'
--  เหลืออีก 2 ชม.! ผู้ประกันตน-นายจ้าง ทยอยใช้สิทธิเลือกบอร์ด ปกส.
--  עמית סגל הוא לא יאיר לפיד החדש. הוא יותר מדי חכם בשביל זה
--  דיווח: טיקטוק מסרבת לאשר פרסומות של מטה משפחות החטופים
+-  Accident mortel à Tours : la policière au volant n'aurait pas commis d'imprudence
