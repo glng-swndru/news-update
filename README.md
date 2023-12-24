@@ -1,51 +1,11 @@
 # Latest News
--  Вучич заявил о задержании 35 человек в ходе беспорядков в Белграде
--  Packers resisten andanada de los Panthers y ganan para seguir con aspiraciones a playoffs
--  Bluebird Investments unveil $5m warehouse development
--  צעירה גילתה שיש לה 77 אחים "סודיים" שלא ידעה על קיומם
--  Harry Kane finally moves out of hotel after Bayern Munich team-mate's 'worry'
--  Mujer se disfraza de hombre para intentar fugarse del penal de Santa Marta Acatitla; la descubren
--  Dictan prisión preventiva a Enrique L. A., alias “El Cumbias”
--  Marlon Brando asked iconic singer 'to f***' while wife was in other room but she had brutal response
--  Slovakia's police arrest man who threatened to copy fatal Prague shooting
--  Moments that changed everything for these celebrities | Rewind 2023
--  Warm, sunny Christmas day expected with temps dropping through the week
--  Last-minute shoppers flood stores days ahead of Christmas
--  Florida Crimes of The Week: Deputy arrested for DUI
--  Historic clock tower chimes again
--  Matthew Perry's ex reveals tragic details of star's addiction
--  Undercover Santa filmed carrying out drug busts in Peru
--  Quão grande um floco de neve consegue ficar na natureza?
--  Resmi Gazete'de duyuruldu: 1321 gelir uzman yardımcısı alınacak
--  Brezilya'da uçak kazası: 5 ölü
--  Šapić o protestu ispred Skupštine grada: To su mogli da urade samo ljudi bez svesti i odgovornosti
--  Car’s front wheel ripped off by tree in shocking crash on Spencer Hwy in South Australia
--  Τρένο…
--  Сара Нетаниягу обратилась к Папе Римскому с просьбой содействовать возвращению похищенных израильтян
--  В Горловке после удара ВСУ горит один из крупнейших ТЦ: видео
--  „Do Božića celom svetu“: Vučić najavio „važno pismeno o uplivu strane zemlje“ u izbore
--  Son dakika haberi: Edin Dzeko'dan flaş Galatasaray paylaşımı! Mauro Icardi hakkında...
--  Integraba un reconocido clan, tenía pedido de captura desde 2021 y fue detenido por Gendarmería
--  Timnas Indonesia Berusaha Keluar dari Zona Nyaman Jelang Piala Asia 2023, Latihan Fisik Jadi Kunci Penting
--  Field of Dreams actor Mike Nussbaum dies aged 99
--  Field of Dreams actor Mike Nussbaum dies aged 99
--  El video viral de Jaime Alvarado cuando le preguntaron por Junior
--  Sebastián Yatra dedicaría balada a Aitana en su próximo disco
--  Therapist shares 2024 mental health predictions and tips for a healthier new year
--  سلطات القليعة تواصل شن حملة تحرير الملك العمومي
--  Ceccarini: "David operazione sempre molto complicata a livello economico"
--  BOGDAN POGINUO NA PRVOJ LINIJI FRONTA U UKRAJINI Glumac pogođen tokom borbenog zadatka
--  Grandes empresas lideraron el empleo con el 55,1% durante 2021, según el INE
--  La película de ciencia ficción más larga del mundo: este fracaso cinematográfico solo se convirtió en culto por su versión de 5 horas
--  ¿Cuál es tu Santa favorito? Chayanne y Julián Gil muestran su espíritu navideño
--  The Repair Shop viewers sob as woman’s late son is honoured with special Abba tribute
--  Εύβοια: Άνδρας έπεσε από μπαλκόνι στη Νέα Αρτάκη – Εντοπίστηκε σε κωματώδη κατάσταση
--  Pochettino Geregetan Chelsea Buang-buang Peluang Lagi
--  Cegah Pemadaman Listrik Berdampak ke Pasien, Ini 5 Sumber Listrik di Rumah Sakit
--  Heartwarming Study Shows Non-Human Apes Recognize Friends Even After Decades Apart
--  "Плитък" секс - техника, която гарантирано увеличава удоволствието за жените
--  Sportitalia - Longari: "Juve a caccia del centrocampista. De Paul il non plus ultra per Allegri"
--  Burial of Zimbabwe jazz maestro Bob Nyabinde set for Tuesday
--  Aaj Ka Tarot Card: वृष, कर्क और कन्या समेत इन राशि वालों के लिए लकी रहेगा दिन, जानें किनको होगी दिक्कत
--  Artista Paula Seling împlineşte 45 de ani. Piesa care i-a lansat cariera și a fost un succes uriaș VIDEO
--  'Do You Ever NOT Lie?' Ted Lieu Politicizes Tragic Miscarriage Story to Attack Republicans
+-  Buon Natale da Milannews24!
+-  BTS’s Jimin Becomes 1st Soloist From Any Country To Have 7 Songs With 100 No. 1s Each On iTunes Charts
+-  Akademisyen de göç kervanında
+-  Kayıp çiftin cesetleri ırmağa düşen araçta bulundu
+-  Українська Перша Ліга-2023/24 - Група вибування: календар матчів, турнірна таблиця
+-  Today’s ‘Quordle’ Hints And Answers For Christmas Day, Monday, December 25
+-  Apple Cider Vinegar Is The Secret Ingredient For An Unbeatable Apple Pie
+-  SKANDAL U SVETU TENISA Teniser do detalja otkrio kako su ga primoravalii da namesti meč
+-  Jusuf Kalla Pilih Dukung Anies Timbang Prabowo, Airlangga: Senior Kita Hormati
+-  Samoa Joe Says Swerve Strickland vs. Hangman Page at AEW Full Gear Exceeded Expectations
