@@ -1,11 +1,51 @@
 # Latest News
--  Podľa prieskumu slovenské e-shopy medziročne rástli: Koncom roka čakajú vyššie tržby
--  АПЛда яна бир можаро, «Атлетико» «Барса»ни қувиб ўтди. Европада кун ўйинлари.
--  אשתו של סיינפלד על הביקור בארץ: "מעולם לא ראיתי את ישראל מאוחדת יותר"
--  Boy, 6, rushed to hospital after being stabbed at Whiston home as woman, 33, arrested
--  My family has been made homeless for Christmas, our kids will wake up in a tent tomorrow, it’s breaking our hearts
--  Sacchi dà colpe al mercato: "Sono stati presi giocatori senza sapere i pregi e i difetti"
--  Χριστουγεννιάτικα κάλαντα από το Καστελλόριζο είπαν στον Κυριάκο Μητσοτάκη
--  «Μερακλήδες» είχαν στήσει μπαρμπουτιέρα σε καφετέρια αλλά τους έκαναν «τσακωτούς»
--  Koliko su koštale ulaznice i rezervacije na splavu „Kartel“ u noći kada je potonuo?
--  Desconfianza hunde a la inversión privada: caerá 7,3%
+-  Türkiye tek yürek! Şehitlerimizi uğurluyoruz
+-  Kış aylarının vazgeçilmezi kestanenin kilosu dudak uçuklattı
+-  Bu derbi çok konuşulacak! 65 yılın en güçlüsü...
+-  AK Parti'den memur zammı açıklaması
+-  Tarihi handaki dükkan 5. kuşakla devam ediyor
+-  Pittsburgh pone fin a su racha perdedora
+-  Cannabis para uso recreativo aún no prende; se intenta regular desde hace 5 años
+-  Posición 8 | Cristiano Ronaldo se quedó con la Champions árabe
+-  رئيس شتوتجارت متفائل باستمرار الهداف الغيني سيرهو جيراسي
+-  Quem é Rafael Borré, atacante disputado por Internacional e Atlético-MG
+-  Entenda o que levou o Palmeiras a tentar 'chapéu' no São Paulo por Caio Paulista
+-  Shillong Teer Result TODAY 24.12.2023 First And Second Round Lottery Result
+-  الأقصر تتجمل استعدادا للكريسماس ورأس السنة
+-  Houthi attack: Navy denies US claim, says MV SAIBABA tank not India-flagged
+-  Prabhas starrer `Salaar` creates havoc, earns a total of 295.7 crore in two days
+-  ‘아나운서 부당해고’ 판결에도 근로계약 대신 프로 없애버린 방송사
+-  Метеоролог Старков предупредил о высокой лавинной опасности в горах Сочи
+-  Konflik Palestin-Israel: Protes gesa boikot jenama pro-Israel di Oxford Street
+-  Longer prayers, Top Gun and lots of chanting: How the monks of Pluscarden Abbey spend Christmas and New Year
+-  صحيفة عبرية: إسرائيل بدأت بطرد موظفي الأمم المتحدة
+-  وصفة المليادير الأميركي مارك كوبان إذا أردت أن تصبح مليونيراً
+-  اللي بنوي على حرق البيادر بموت قبل الحصيدة
+-  وفاة يسار ابراهيم الحباشنة
+-  Verhuizing consultatiebureaus Breda leidt tot stress: ‘Gaan ouders niet afhaken?’
+-  زين كاش تجهّز طرود غذائية لأهالي قِطاع غزّة بقيمة 25,000 دينار
+-  BRIEVEN | Waarom wel voedselbos in Breda-Zuid en niet in Markdal?
+-  ABD basını Netanyahu'nun Lübnan'ı vurmasını, Biden'ın engellediğini iddia etti
+-  Lorik Cana: Derbiyi Galatasaray 2-1 kazanacak
+-  Fenerbahçe-Galatasaray derbisi kapalı gişe! Taraftar stada akın edecek
+-  Arnavutköy'de feci ölüm: İşçi metrelerce yüksekten beton silosuna düştü
+-  Sebastian Szymanski derbi saatini bekliyor
+-  Antakya'daki fabrika yangınına itfaiyenin müdahalesi sürüyor
+-  Çorum'da ahşap ev küle döndü: 1 ölü
+-  Novo Volkswagen Golf 2025 tem teaser revelado pela marca
+-  고피자, 태국 방콕 수쿰빗에 1호 매장 열어…7개국 진출
+-  الشهيد إبراهيم أبو نجا.. قائد كتائب القسام الذي أعاد تدوير أسلحة الاحتلال واستهدافهم بها
+-  الكشف عن موقف الوقت الإضافي مباريات كأس سوبر الأبطال
+-  Livet efter branden: ”Vågar inte släppa fram känslorna”
+-  Here are Eurogamer's favourite games of 2023
+-  Zum Lesen und Vorlesen: Endlich fröhliche Gesichter: Eine Weihnachtsgeschichte aus dem Saale-Orla-Kreis
+-  Weihnachtswort: Weihnachtswort der Superintendentin des Kirchenkreises
+-  Meen January Rashifal 2024: मीन राशि के लिए शुभता और सौभाग्य लेकर आएगा साल का पहला महीना, जानें जनवरी का मासिक राशिफल
+-  Betlehemsko lučko so nesli na Lisco
+-  Jahresrückblick: Rückblick 2023 Gera: Verborgenes Bild kommt ans Licht
+-  Mercato - PSG : Le coup de théâtre est confirmé
+-  Patriots vs. Broncos: How to watch, game time, TV schedule, live stream, radio and more
+-  النائب محمد إسماعيل: الحوار الوطني لعب دورا كبيرا في تنمية الحياة السياسية
+-  Kapustnica bez mäsa či čítanie knihy. Politici trávia Vianoce prevažne tradične, čas venujú blízkym a rodine
+-  Isplati li se u 2024. ulagati u kriptovalute?
+-  Ansturm auf die Rente mit 63 – Rentenkasse vor dem Kollaps?
