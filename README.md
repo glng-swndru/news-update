@@ -1,51 +1,51 @@
 # Latest News
--  Einbrecher in Gaststätte in Sailauf
--  Peugeot in Schlangenlinien auf der A3 bei Bessenbach
--  Seat auf Parkplatz in Elsenfeld-Rück beschädigt
--  ד"ר ענת בונשטיין מונתה לשותפה בקרן Mobilion Ventures
--  Christmas 2023: Understanding the significance of the midnight mass
--  رابط الاستعلام عن الدعم السكني وشروط الاستحقاق 1445
--  Anil Kapoor Birthday 2023: Kareena Kapoor wishes ‘Absolute Best’ on his b`day
--  5 طرق لزيادة متابعيك على منصة "إكس" من 0 إلى 10 آلاف
--  הסרט התיעודי #NOVA הוא הדוקו הנצפה ביותר בתולדות yes
--  הצפון קיבל תקציב זעום וגם אותו ייאלץ לחלוק עם יו"ש - סטרוק תקבע את הקריטריונים
--  בית"ר ירושלים אירחה את איתי רגב ששוחרר מהשבי: "לפני הכדורגל"
--  Eric Gordon frustré par son implication dans l’attaque des Suns
--  “Autorit t’i bëhet testi i drogës”, gazetari: Përplasja e djalit të gjyqtares së Berishës s’është aksident i thjeshtë
--  Indonezija: U eksploziji u talionici nikla poginulo 13 radnika, deseci ozlijeđeni
--  Adres: Düzce! Telefonda tartıştığı dünürünün dükkanını basıp, 5 el ateş açtı
--  Selçuklu’da 2023 sağlık hizmetleri yılı oldu
--  Meram Belediyespor taekwondocuları kuşak terfi heyecanı yaşadı
--  SIRF MUHALEFET OLSUN DİYE Mİ?..
--  Rize'de fırtına: Çatı uçtu, pencere camları kırıldı
--  Pirmas toks pasaulyje. Naujasis lustas nuties kelią 6G ryšiui
--  Neįtikėtina! Įsiutęs Iranas iškvietė Rusiją „ant kilimėlio“. Kas vyksta
--  [ŽT] P. Korėja ruošiasi košmarui. Skelbiama branduolinė ataka ir JAV armada
--  [ŽT] „4 kryptys, 4000...“ Pasienyje tikra audra. Kas vyksta
--  Taksici, korsan taksiciyi tehdit edip, kamera kaydı aldı
--  مارچ شرکا ایجنڈے پر ہیں، بسوں سے اتار کر لوگوں کو قتل کیا گیا، جان اچکزئی
--  Video/ Parker dominon një Wilder në rrugën e perëndimit, habit amerikani: “Bëra mjaft për të fituar”
--  "IMAMO MALO DRUGAČIJI SLUČAJ NEGO 1996." Klačar: Poništavanje izbora moguće samo pod jednim uslovom
--  Pleumeur-Bodou. Un pass annuel d'entrée pour le parc du radôme.
--  Закир Гасанов соболезнует Гюлеру
--  МО РФ заявило о сбитии трех Су-27 и одного Су-24 воздушных сил Украины
--  Erős havazás miatt 18 ezer háztartás maradt áram nélkül Szlovákiában
--  Sieg gegen Hamburg: Bonner Telekom Baskets stoppen nach Niederlagen-Serie den freien Fall
--  La solidaridad, el mejor ritmo para la zumba
--  '화끈한 감정표출' 김연경 "감추지말고 표현하면 좋겠다"[삼산 인터뷰]
--  Les pompiers découvrent par hasard le corps d'un jeune homme dans une malle : un couple écroué, la victime non identifiée
--  Праваслаўныя ўкраінцы ўпершыню будуць сьвяткаваць Каляды 25 сьнежня
--  МО РФ заявило об уничтожении пусковы установок NASAMS и Crotale-NG на аэродроме
--  – وزير الدفاع الإيطالي يؤكد أن الأزمة الأوكرانية يجب حلها عبر الوسائل السياسية
--  Liverpool player ratings as Ibrahima Konate and three others excellent vs Arsenal
--  Sean Dyche hits out at VAR over 'alarming' Everton decision during Tottenham defeat
--  Tottenham Hotspur vs Everton - highlights and reaction
--  West Ham chief makes Jarrod Bowen Liverpool claim after Jurgen Klopp comments
--  William Saliba makes refreshingly honest Liverpool penalty admission after Arsenal controversy
--  Bukayo Saka apologises to Kostas Tsimikas after serious Liverpool injury
--  لمدة 4 أيام.. انطلاق حملة للتطعيم ضد مرض شلل الأطفال بالإسماعيلية
--  Morbihan : découvertes récemment, les peintures murales de cette chapelle sont très anciennes
--  Les anciens du lycée Louise Michel de Gisors se sont retrouvés
--  Hardricourt : relève de l'aviron français, Antoine Lefebvre garde l'espoir d'être aux JO de Paris
--  Déguisé en Père Noël pour passé "inaperçu", un policier infiltre un quartier et interpelle des dealers de drogue
--  ABD'de yaşayanların çoğunun tadını bile bilmediği meyve: Frenk üzümü ve ilginç hikayesi
+-  Marko Grubnić objavio božićnu čestitku, a Maja Šuput se javila s duhovitim komentarom
+-  Jeder Dritte betroffen: Wie Einsamkeit krank macht – gerade an Weihnachten
+-  Российский сноубордист Уайлд планирует выступить на Олимпийских играх 2026 года
+-  Legendarni hrvatski izbornik uoči EP-a vaterpolista: “Imamo jaku ekipu, pokrivenu na svim mjestima”
+-  Taksici, korsan taksiciyi tehdit edip, kameraya kayda aldı
+-  İstanbul'da dehşete düşüren olay! Motosikletli saldırgan 2 kişiyi öldürdü
+-  Uhapšen Podgoričanin: Osumnjičen za silovanje i nasilje u porodici
+-  ما هو محور فيلادلفيا على الحدود المصرية مع قطاع غزة؟
+-  عقدة الناجي.. ..كيف تتعامل مع الشعور بالذنب تجاه ضحايا غزة؟
+-  ما أهم عوامل الإصابة بسرطان البروستاتا؟
+-  افتتاح محطة وقود جديدة تابعة لشركة المناصير للزيوت والمحروقات باسم محطة الكرامة الزرقاء
+-  محللون إسرائيليون: وحل غزة بات واقعا
+-  منشورات مفزعة لسفاح الجامعة في براغ
+-  ميتا ترفض منع ميزة ساعدت في استغلال الأطفال
+-  Weihnacht im Krieg: Prozession von Jerusalem nach Bethlehem
+-  عاجل.. إيداع 964 مليون ريال في حسابات مُستفيدي "سكني" لشهر ديسمبر
+-  Мостовой считает Месси лучшим футболистом мира в 2023 году
+-  Perth mother facing homelessness at Christmas
+-  Perth mother facing homelessness at Christmas
+-  El Teide regala a Tenerife una nevada por Navidad
+-  Минобороны: ВСУ за сутки потеряли на Донецком направлении до 350 военных
+-  22-Jähriger begrapscht junge Frau im Hauptbahnhof: Polizei erstattet Anzeige nach sexueller Belästigung
+-  Karnı Ağrıyan Hastanın Midesinden 450 Parça Metal Çıktı
+-  AURO-3D เตรียมเปิดตัว AURO-CX Codec เทคโนโลยีสุดล้ำที่งาน CES 2024
+-  Pro-Palestine protesters disrupt Carols by Candlelight
+-  Pro-Palestine protesters disrupt Carols by Candlelight
+-  Over 50% of users may shun social media by 2025 as misinformation, toxicity grow
+-  ADANA SE PROVUKLA U PROŠLOM KOLU: "Škorpioni" osam godina bez pobede na ovom gostovanju
+-  For the Billionaire Who Has Everything, Consider an Island in the San Francisco Bay
+-  Autofahrer überfährt Fußgänger in Polen - drei Tote
+-  Kirche: Wiesemann ruft zu mehr Mitgefühl auf: "Niemanden ausgrenzen"
+-  AK Parti Ardahan belediye başkan adayı kim oldu? 31 Mart 2024 Ardahan AK Parti MHP CHP İYİ Parti yerel seçim belediye başkan adayları listesi
+-  الامارات | حمدان بن محمد يعتمد صرف مكافأة أداء للموظفين المدنيين في حكومة دبي
+-  APSOLUTNI REKORD U ISTORIJI SRBIJE: Vučić o devizinim i rezervama zlata
+-  Kardeşlerim Dizisinde Sürpriz Ayrılık! O İsim Diziden Ayrılıyor...
+-  ৭ জানুয়ারির ভোট জনগণ রুখে দেবে
+-  CM Revanth Reddy : తెలంగాణ స్వేచ్ఛను హరిస్తే సహించం
+-  РИА Новости: учёные выяснили, где находится царство Пунт
+-  Collecte de déchets, parcs, musées... Les horaires changent pour les fêtes de fin d'année à Bordeaux
+-  El servicio de teleasistencia aumenta su atención a los mayores que viven solos en Navidad
+-  Balıkesir'de renkli günler başladı!
+-  Kultur: LWL-Besucherbilanz 2023: Deutliches Plus für die Museen
+-  BIOLOŠKOG OCA UPOZNALA KADA JE IMALA 20 GODINA Ana Sević odrasla samo sa majkom, nije znala ko joj je tata: Imao je DRUGU PORODICU, a evo u kakvim je danas odnosima sa polustestrom
+-  Anthony Joshua u Rijadu nastavio niz pobjeda, u Rijadu je svladao Otta Wallina
+-  Уелтон отвя конкуренцията за гол №1 на 1/8-финалите за Купата
+-  ВС России уничтожили пусковые установки ЗРК ВСУ на аэродроме Староконстантинов
+-  YK vaatii pelastamaan rohingyapakolaisia kuljettavan veneen Intian valtamerellä
+-  Chroniqueurs, Bruce Toussaint, plateau... Ce que l'on sait de "Bonjour !", la future matinale de TF1
+-  Нетаниягу на 79-й день войны против террора: "Это будет долгая война"
+-  세종시, 감전사고 재발 방지 대책 마련… 목욕탕 등 전기안전시설점검 실시
