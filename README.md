@@ -1,11 +1,11 @@
 # Latest News
--  Israel dan Hamas Terlibat Pertempuran Seru di Gaza Utara Minggu Pagi
--  Afghanistan startet landesweite Impfkampagne gegen Polio
--  Германия — Каждый житель страны должен получить компенсацию в 139 евро
--  Forgotten Love Island star shares very sexy thong snap as she strikes sultry pose in bed
--  Спортклубу кировской школы №5 вручили сертификат на 1,5 млн рублей
--  Нетаняху: Военните действия на Израел се базират на собствената му преценка
--  EVO ŠTA SVE MOŽE DA SE DESI LJUDIMA KOJI SU UPALI U LEDENU SAVU KAD JE SPLAV POČEO DA TONE: Dr otkrio niz ozbiljnih posledica!
--  7 Macam Jajanan dan Hidangan Natal yang Sehat
--  Festive music nights on the horizon
--  عاجل.. إطلاق نار وحشيش.. تنفيذ حكم الشرع في قاتل مواطن بالرياض
+-  Pençe-Kilit bölgesinde etkisiz hale getirilen terörist sayısı 30'a yükseldi
+-  Rusya Ukrayna'ya ait 4 savaş uçağını vurduğunu açıkladı
+-  Cumhurbaşkanı Erdoğan, şehit olan askerlerin ailelerine başsağlığı mesajı gönderdi
+-  Derbi öncesi kötü haber! Serdar Aziz yeniden sakatlandı
+-  İsrail'in kuzeyindeki Yukarı Celil bölgesinde siren sesleri duyuldu
+-  SUTRA KATOLICI SLAVE BOŽIĆ, EVO KAKO SE PRAVILNO ČESTITA! Ne zaboravite na jednu rečenicu - mnogi se ZBUNE
+-  President to meet cheesemakers in growing Halloumi milk ratio debate
+-  Christmas Day Weather: How to keep safe from thunderstorms
+-  Shruti Sinha receives great support from fans, see how discussions are going on social media!
+-  Frau flieht mit mehr als 200 km/h vor Polizei - unter Drogen
