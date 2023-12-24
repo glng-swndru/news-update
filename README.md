@@ -1,11 +1,51 @@
 # Latest News
+-  Issuance of Time Barred GST DRC-01 w.r.t. ITC Demand in Form GST TRAN-1: Rajasthan HC stays Issuance of Final Order [Read Order]
+-  No material for examination and evaluation placed regarding alleged AP TIDCO scam: Andhra Pradesh HC rejects Bail Petition [Read Order]
+-  Withholding 10% Pension is unjustified as no Departmental or Criminal Proceedings are pending: Madhya Pradesh HC slams action of Commercial Tax Commissioner [Read Order]
+-  Entrega Consulado de México 250 pavos para la Nochebuena
+-  Vandalizan tumba de Debanhi Escobar en Galeana
+-  Muere Bobbie Jean Carter, hermana de Nick, a los 41 años
+-  Dicas para em 2023 não cair em golpe prova no INSS
+-  Se muestran cruces internacionales inusualmente libres
+-  ‘หงส์แดง’ พลาดโอกาสทอง เปิดรังเจ๊า ‘ปืนใหญ่’ 1-1 บิ๊กแมตช์พรีเมียร์ ลีก
+-  ‘ธนกร’ ฝาก ก.คมนาคม-CAAT คุมราคาตั๋วเครื่องบิน
+-  Caixa paga em 2023 a parcela do Bolsa Família para dezembro
+-  „Marvels Spider-Man 2“-Regisseur erinnert sich "Erhitzt" Moment mit PlayStation während der Entwicklung des Spiels
+-  Joulumuistio 2023
+-  বড়দিনে বাড়িতে বানান রেড ভেলভেট কেক
+-  Sau ngày Đông chí, 4 con giáp này không thiếu may mắn, tình tiền tề tựu, cuộc sống bước lên tầm cao mới
+-  Bihar: ओवैसी की पार्टी AIMIM के नेता को हत्या, हमलावरों ने ताबड़तोड़ मारी गोली
+-  Bürgergeld: Arbeitslose fahren im Luxus-Auto durch Krefeld – „Fehlt nur noch Champagner“
+-  McDonald’s: Kunde bestellt für 200 Euro wegen Monopoly-Aktion – überraschendes Ergebnis
+-  Lotto-König Chico im Shopping-Rausch – jetzt kennt er keine Grenzen mehr
+-  Borussia Dortmund macht es offiziell – schwerer Schock für den BVB
+-  Bauern und GDL: Mega-Generalstreik könnte Deutschland am 8. Januar lahmlegen
+-  간헐적 단식, 장내 미생물 군집의 다양성 높여
 -  [단독] 다시 만난 정세균-김부겸, 이낙연 향한 당내 거친 공세에 “깊은 불쾌감”
+-  Milwaukee Bucks beat New York Knicks 130-111 before Christmas Day rematch
+-  Fiender i Jemen tar steg för vapenvila
+-  Fiender i Jemen tar steg för vapenvila
 -  딥브레인AI, 초개인화 가상인간 솔루션 ‘드림아바타’ 공개
+-  तेजी से फैलने लगा COVID का JN.1 वेरिएंट, ओमिक्रॉन से अधिक संक्रामक, जानिए क्या कहते हैं एक्सपर्ट
+-  ‘ผีแดง’ ไร้ชัย 4 เกมติด บุกพ่าย ‘เวสต์แฮม’ 0-2 ร่วงรั้งที่ 8
 -  İsrail'in saldırıları sonucu 1 Hizbullah mensubu hayatını kaybetti
 -  Japonya'da 2024 bütçe taslağı onaylandı
+-  Todas as datas e valores de saques do PIS/Pasep 2024
+-  साल 2023 में विराट कोहली और रोहित शर्मा से ज्यादा मैच फीस कमा गया ये खिलाड़ी, देखें टॉप-10 लिस्ट
+-  विदेश की खबरें | फ्लोरिडा शॉपिंग मॉल गोलीबारी: एक व्यक्ति की मौत, एक अन्य घायल
+-  7旬女騎士違規左轉 釀後車20歲騎士追撞2人當場噴飛
 -  Anthony Joshua says he'll '100 percent fight Tyson Fury' as he hints he'd prefer a clash with the Gypsy King over Filip Hrgovic next - but insists he's not 'dodging' the Croatian
 -  24 Mega-Viral Food Trends And Recipes That Practically Defined 2023, According To Two Chronically Online Food Writers
 -  People Are Sharing "Poor People Foods" That Were Ruined By The Wealthy, And They're Not Wrong
+-  Claim of Export Service Refund: CESTAT Remands Matter for Scrutinize FIRCs and individual invoices [Read Order]
+-  The Hair Pick Hack For Safely Chopping Veggies In A Pinch
 -  '강철 체력의 대명사' 사르, 에버턴전 선제골 기점 + 유효 슈팅 2개 → 평점 8점...英 매체 "경기장 모든 곳에 있었다"
+-  Bolsa Família: como devo pedir para receber o valor
 -  Merry Christmas 2023: 5 intriguing traditions from around the world
+-  M-1決勝 過去データから優勝予想
 -  国民 玉木代表 トリガー条項“自民公明と早期に実務者協議を”
+-  Cadastro Único: como devo entrar nos programas
+-  Inside Trentham Garden Centre's Christmas winter wonderland
+-  The 23 criminals handed longest jail sentences in North Staffordshire in 2023
+-  Jerry Bengtson manda una advertencia a Wilmer Velásquez
+-  Recap: M6 updates following crash near A500 junction after crash
