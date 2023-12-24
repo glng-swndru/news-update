@@ -1,11 +1,11 @@
 # Latest News
--  City Seen Flashback: Pictures from Inverness at Christmas 2015
--  Şiddetli tipi yüzünden araçlar hareket edemedi
--  Galatasaray'dan penaltı tepkisi!
--  Galatasaray, Kadıköy'den 1 puanla dönüyor
--  Fenerbahçe'nin galibiyet serisi derbide sona erdi
--  שר הפנים הבריטי "התבדח": "מכניס סם אונס למשקה של אשתי כל ערב"
--  İsrail ordusu duyurdu: 5'inin cesedine ulaşıldı
--  Ayefele Preaches Moderation, Love At Christmas
--  Galatasaray'dan Fenerbahçe derbisi sonrası TFF'ye başvuru! ''Gerekli cezalar verilsin, takipçisi olacağız''
--  Muslera'dan maç sonunda itiraf geldi! ''Hem Livakovic hem benim için sakin bir maç geçti''
+-  El renacimiento de Miguel Bosé
+-  موعد مباراة الأهلي وسيراميكا في السوبر المصرى.. والقناة الناقلة.. وتغييرات في تشكيل كولر
+-  خلال 4 أيام.. أبو عبيدة: مجاهدونا قتــ..ــلوا 48 جنديا إسرائيليا ودمروا 35 آلية عسكرية
+-  66 شهيدا بمجزرة جديدة في مخيم المغازي
+-  Pueblo colombiano de Guachené llora el asesinato de su alcalde y exige justicia (Fotos)
+-  سلطات أوكرانيا تعلن فتح معبر حدودي بعد إنهاء سائقي شاحنات بولنديين إغلاقه
+-  توقيف ثلاثة اشخاص يشتبه في انتمائهم لجماعة إسلامية في النمسا
+-  بكين تسجل رقما قياسيا جديدا لتدني درجات الحرارة في كانون الاول منذ 1951
+-  المدير العام لمنظمة الصحة يندّد بالقضاء على النظام الصحي في غزة
+-  تظاهرة حاشدة جديدة في المغرب ضد "حرب الإبادة" في غزة والتطبيع مع إسرائيل
