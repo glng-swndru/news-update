@@ -1,51 +1,11 @@
 # Latest News
--  ספורט וקמפינג: הרשת שיוצאת במבצעי חורף
--  הפועל פתח תקוה מודאגת מהנאיביות, שיבלי או פודגוראנו מועמדים
--  מל"ט ששוגר מאיראן פגע בספינה עם "קשרים לישראל" לחופי הודו
--  Rusiya-Ərəb əməkdaşlığı İranı qəzəbləndirdi: Vəkili nazirliyə çağırdılar
--  Безплатно паркиране в "синя зона" в Пловдив
--  Внимавайте в моловете!
--  VIDEO LaLiga: Atletico Madrid, pe podium după victoria cu Sevilla
--  성시경과 친구들 백지영→싸이, 특별한 이브 밤 선사
--  เจนนี่ BLACKPINK คอนเฟิร์ม! ขึ้นแท่น CEO เปิดค่ายตัวเอง ODD ATELIER
--  ก่อไฟปรุงอาหารลุกลามไหม้บ้านทั้งหลัง นอภ.แม่อาย นำทีมลงพื้นที่ให้กำลังใจ
--  Hall’s Collision Review – 12.23.23
--  الجيش الإسرائيلي يعلن مقتل 8 من ضباطه وجنوده في المعارك الدائرة بقطاع غزة
--  Rivers Governor, Fubara Pays 27 Lawmakers Nov, Dec Entitlements
--  ശൈത്യകാലത്തിന്റെ വരവറിയിച്ച് 'ഫ്ലെമിംഗോ'കൾ ബഹ്‌റൈനിൽ എത്തി
--  RJ Luis Jr.’s return could make St. John’s ‘very scary’ with added dynamic
--  Whatever happened to Jason Smith? Former Home and Away star quits acting to pursue new industry job after welcoming first child with partner
--  ‘It Will Be Disastrous If You Fail To Probe Buhari’ – Former Northern Governor Tells Tinubu
--  بھارتی پروفیسر تقریب سے خطاب کے دوران اسٹیج پر ہی چل بسے
--  Σε εορταστικούς ρυθμούς η αγορά – Εμπορικά και σούπερ μάρκετ ανοιχτά από τις 11:00 έως τις 18:00
--  Knarkräder i Sri Lanka: 15 000 gripna
--  'I totally understand': Alan Shearer and Ian Wright react to Tottenham-Everton controversy
--  Blagoje je inženjer po struci, inovator po opredjeljenju, pisac iz...
--  Vigilia di Natale 2023: supermercati e negozi aperti o chiusi oggi, 24 dicembre
--  EFCC Indicts Buhari’s Minister, Contractor In N37 Billion Fraud
--  Бостън вкара 145 на ЛА Клипърс
--  حماس تدعو إلى تحقيق دولي في تنفيذ إسرائيل إعدامات ميدانية بحق مدنيين في غزة
--  ‘It’s Atiku’s Personal Opinion, Not Officially Coming From The Party’ – PDP Chieftain Clarifies Plot To Displace Tinubu’s Govt
--  阿邦佐哈里:体现多元团结 砂拉越人民共庆圣诞节
--  'A ray of hope has come alive': Vinesh Phogat gives initial reaction on WFI body's suspension
--  Dallas vände mot Nashville – under matchens sista 15 sekunder
--  สวนนงนุชพัทยา นำช้างแสนรู้สร้างสีสันวันคริสต์มาส
--  Bakan Özhaseki'den kentsel dönüşüm açıklaması: Ülkemizin yapı stokunun çoğu riskli!
--  Popular Nollywood Actor Reportedly Shot By Ogun Police Officer, Battles For Life
--  รฟม. แจงเหตุ ‘เหล็กเส้นร่วง’ ในพื้นที่ก่อสร้างสถานีวงเวียนใหญ่ ‘สายสีม่วง’ ดับ 1 ราย
--  Weghorst barstte in huilen uit: 'Ik heb veel water bij de wijn gedaan'
--  Putin privately signaled he's open to a cease-fire in Ukraine. But Western officials remain skeptical, NYT reported
--  شكوى جنائية ضد 4185 جنديا من أصول فرنسية في الجيش الإسرائيلي
--  Kronologi Tungku Smelter Morowali Meledak Milik PT ITSS
--  Kickoff | Arsenal star makes big penalty admission against Liverpool
--  이지혜, 볼륨감 넘치는 비키니 자태…군살 제로 몸매
--  Какие праздники отмечают 25 декабря
--  India Poised for Increased FDI Inflows in 2024; Remains a Premier Investment Hub
--  What Utah thought of in-helmet communication system in Las Vegas Bowl
--  Хуситы атакуют, американцы реагируют
--  Началась выдача открепительных удостоверений
--  Ryan O'Neal buried beside his longtime love Farrah Fawcett in intimate funeral
--  Мокрый снег и дождь прогнозируют в Ростове 24 декабря
--  Trabzon'dan uyardı! Türkiye’nin kırılmayacak hiçbir yeri yoktur
--  FHN əhaliyə müraciət etdi
--  Bļugeram vēl divas piespēles, ''Canucks'' tiek pie pārliecinošas uzvaras pret ''Sharks''
+-  Cyprus Business Now: weekly wrap-up
+-  제2의 홀란인 줄 알았는데…슈팅 0개+상대 박스 안 터치 1회→평점 3점 '혹평'
+-  Rumores Sporting: Хлусевич может перейти в «Спортинг»
+-  Jarmo Kekäläisen Columbus Blue Jacketsilla synkkä joulu
+-  दरिंदगी: स्नैपचैट पर की दोस्ती, खुद को बताया कुंवारा, तीन साल तक युवती से दुष्कर्म करता रहा पुलिसवाला
+-  Выезд на закрытую ледовую переправу может быть смертельно опасен
+-  Ja Morant effect : trois matchs, trois victoires pour les Grizzlies, tout le monde s’éclate de nouveau à Memphis
+-  بدر الدين سليمان.. حلم التنوير أو أقصى العقوبة حب السودان
+-  „Steiner kirúgott, mert nem szereztem elég pontot – szerintem ez nem volt jogos!”
+-  CAR Foreign Minister Expresses Hope for Increased Cooperation With BRICS Nations
