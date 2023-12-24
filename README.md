@@ -1,51 +1,51 @@
 # Latest News
--  Anthony Joshua destroys Otto Wallin in Saudi Arabia
--  Israels Armee weitet Bodeneinsatz im Gazastreifen aus
--  [속보] 세종시 목욕탕서 감전 3명 중 2명 사망
--  «Con el CAR-T muchos pacientes se están curando»
--  الحكومة الأرجنتينية الجديدة تبدأ في إعادة هيكلة الاقتصاد للبلاد
--  صندوق التنمية السياحي يوقع اتفاقية تمويل بقيمة 4.35 مليارات ريال لوضع حجر أساس مشروع الأفنيوز الخبر
--  دورات تدريبية في مجال الاستشارات والتحليلات العقارية
--  ارتفاع أسعار النفط والغاز نتيجة المخاوف من توقف حركة الشحن عبر البحر الأحمر
--  وزير النقل والخدمات اللوجستية يدشّن أحدث مركز لتوضيب محركات الطائرات
--  وزير الصناعة يلتقي صناعيي عسير و«مدن» توقع عقوداً باستثمارات 513 مليون ريال
--  إلى المدينة المنورة.. مرة أخرى - د. عبدالله محمد الزيد
--  قراءة متأخرة في حياة كسينجر - د. أميرة حبارير
--  وعي وأخلاق مرورية - تغريد إبراهيم الطاسان
--  انهضوا بالإخراج
--  صح لسانك
--  فواصل
--  صيتة بنت ثواب الظاهري: من رموز بلدة الشنانة النسائية (.... - 1309هـ) - د. محمد بن عبدالله السلومي
--  المزمار... رقصة شعبية بهوية وإرث عتيد - ناهد الأغا
--  هل يكفي للغة العربية يوم عالمي واحد للإشادة بها وبتاريخها؟ - علاء الدين محمد فوتنزي
--  النجمة يحقق بطولة دوري منطقة القصيم لدرجة الشباب
--  جوارديولا يؤكد أن كأس العالم للأندية كانت رائعة ومميزة
--  توافد الجماهير نشط الحركة التجارية بجدة تزامناً مع بطولة كأس العالم للأندية
--  سفير المملكة في الإمارات يستقبل المشاركين في المخيم الكشفي العربي
--  وداعاً لإنسان البر والعطاء... وداعاً يا صديقي أبا ماهر - د.عبدالرحمن بن أحمد الجعفري
--  المعلم القائد يوفر فرصاً أكبر للنجاح - د. هيا بنت عبدالرحمن السمهري
--  خطة إعداد الهلال في فترة التوقف مرتبطة بقائمة الأخضر الآسيوية
--  الرائد يعمق جراح الاتحاد بثلاثية.. والفتح أطاح بالتعاون على ملعبه
--  رئيس الاتحاد الآسيوي: السعودية أبهرت العالم في تنظيم كأس العالم للأندية 2023
--  إحباط تهريب 117 ألف حبة كبتاجون و6 آلاف جرام من «الشبو»
--  «الخارجية» تنظم لسفراء الدول المعتمدين لدى المملكة زيارة إلى العُلا
--  ناقشنا 50 فرصة استثمارية مقترحة بقيمة 31 مليار دولار في أوزبكستان
--  توثيق البطولات والقرارات المرتبكة - سليمان الجعيلان
--  آن للزعيم العالمي أن يمد رجليه - محمد بن علي الشهري
--  النصر يفتح ملف الاتحاد بتدريب استشفائي
--  وزير الرياضة يؤكد نجاح الحدث العالمي «كأس العالم للأندية 2023»
--  توزيع السلال الغذائية في مخيم النازحين برفح
--  «إنسان» تحتفي بالمتطوعين وتدشن مبادرة «قادة التطوع»
--  المملكة وبريطانيا تستعرضان الشراكة الاستراتيجية وسبل تعزيز التعاون العسكري والدفاعي
--  المساواة بين الطلاب ليست عدلاً - د.عبدالعزيز بن سعود العمر
--  كوارث الإهمال الأسري - رقية سليمان الهويريني
--  وانكشف الغطاء! - خالد بن حمد المالك
--  For The Best Biscuits, Only Re-Roll The Dough Once
--  Anita Baker Explains Her Frequent Tardiness to the Stage, Claims Other Artists Wouldn't Know Because 'They've Never Sold Out an Arena'
--  'We Have Challenges in the Family': Former Baltimore Mayor Sheila Dixon Speaks Out After Being Attacked Live On Air By Man Inside Her Home
--  Ex-South Carolina Law Enforcement Official Charged With Cruelty To Children After Being Accused of Biting 2-Year-Old
--  'Unequivocally False and Baseless': Bishop T.D. Jakes Issues Statement Denouncing Explosive Allegations Linking Him to Sean 'Diddy' Combs
--  'I Don't Regret Anyone': Brittany Renner Defends Her Body Count, Says She's Not Ashamed of How Many Men She's Slept With
--  Mo'Nique and Viola Davis' Comments About Hollywood Pay Disparities Resurface as Taraji P. Henson Is Shown Support for Emotional Remarks About the Issue
--  Two White Boaters Sentenced for Harassment in Montgomery Riverfront Brawl As Black Captain Has Charges Dismissed
--  Anita Baker Explains Her Frequent Tardiness to the Stage, Claims Other Artists Wouldn't Know Because 'They've Never Sold Out an Arena'
+-  네타냐후 "목표달성까지 전쟁"…바이든 "휴전요구 안해"
+-  O Globo plano do reino de Ratanabá
+-  6천원대부터 30만원까지…크리스마스 케이크 '양극화'
+-  El efecto que provocaría una mayor cosecha en 2024 en el precio de las uvas y los vinos
+-  Addict stabs young man in the back
+-  ‘He’ll be back’ – Anthony Joshua sends message to Deontay Wilder after rival suffers shock defeat to Joseph Parker
+-  เตรียมให้พร้อม 4 ข้อ ก่อนเดินทางไกล หยุดยาวปีใหม่ 2567
+-  Actor Bonda Mani: திரையுலகில் தொடரும் சோகம்.. பிரபல காமெடி நடிகர் போண்டா மணி காலமானார் - ரசிகர்கள் அதிர்ச்சி
+-  – مديرية أمن مسلاتة تعلن العثور على أسلحة وذخائر كانت مخبأة داخل مغارة.
+-  En vivo: Javier Milei se sienta en la mesa de Mirtha Legrand junto a Patricia Bullrich
+-  العليا للحج والعمرة: 200 ألف مصري تحايلوا على السلطات السعودية العام الماضي
+-  FKA Twigs Dragged by Taylor Swift Fans Over Kanye 'Famous' Bed Reenactment
+-  松井裕樹 パドレスと5年契約合意
+-  “한동훈씨, 닥치고 정치혁명입니다”［노원명 에세이］
+-  Kvinde med to livmodere føder to babyer på to forskellige dage
+-  Kvinde med to livmodere føder to babyer på to forskellige dage
+-  한파 속 공사장 '가림막 사고' 사각지대…"덮칠까 불안"
+-  Wild coach John Hynes on when to fight: ‘Sometimes it’s (about) time and score’
+-  यस्तो छ आजको मौसम पूर्वानुमान
+-  فيتوريا يكشف موقفه من ضم الشحات وإمام لمعسكر منتخب مصر القادم
+-  Two-vehicle crash causes lane closure on I-65
+-  Steinmeier: Mut und Miteinander in Demokratie gute Ratgeber
+-  نشرة منتصف الليل| تطور جديد بشأن تخفيف أحمال الكهرباء.. والأرصاد تعلن طقس الساعات المقبلة
+-  الجفاف قادم لا محالة.. عضو وفد التفاوض يحذر من أخطر مشاكل السد الإثيوبي
+-  المجلس الأعلى للجامعات يعلن عن منصة رقمية لتسجيل الأنشطة الطلابية
+-  عضو وفد التفاوض المصري: السد الإثيوبي كان أمرًا واقعًا عندما تولي الرئيس السيسي حكم البلاد
+-  اطمئنوا.. عباس شراقي: الوضع الجيولوجي لا يسمح بتخزين المياه وراء سد النهضة
+-  المقاومة تتصدى لقوة صهيونية وتوقع عددًا منهم بين قتيل وجريح قرب جباليا
+-  Banjir gelombang ketiga bermula di Terengganu, 102 mangsa dipindahkan
+-  Meriahkan Liburan dengan Diskon hingga Hadiah
+-  Marina Calabró destruyó a Pamela David con una filosa advertencia y adelantó una nueva baja en Desayuno Americano
+-  Saskatoon organizations upping preparations at warming centres
+-  柯文哲岡山造勢喊衝破4萬人 四叉貓1張照片狂打臉
+-  Артета: Получи се невероятен мач
+-  JPost: армия Израиля ликвидировала ответственного за поставки оружия члена ХАМАС
+-  KB케피탈, 취약계층 아동에게 도시락 후원금 지원
+-  [인터뷰] 홍문표 의원 “남북통일, 농어업 축산으로 징검다리 역할 가능”
+-  "Сините" момичета и италиански момчета спечелиха турнира за таланти на "Левски"
+-  ราคาน้ำมันวันนี้ 24 ธ.ค. อัปเดตราคา ‘เบนซิน-ดีเซล-แก๊สโซฮอล์’ ล่าสุดที่นี่
+-  Pirotecnia en Guatemala: las recomendaciones de Bomberos Voluntarios para prevenir accidentes y quemaduras
+-  İzmit Sanayi'de yıllardır özgün makinalar tasarlayıp üretiyor
+-  Kaoru Mitoma updates Brighton and Japan fans on injury
+-  كيف تقي نفسك من الإصابة بالخرف؟
+-  Dangerous conditions halt BBL clash
+-  Dangerous conditions halt BBL clash
+-  Dangerous conditions halt BBL clash
+-  Dangerous conditions halt BBL clash
+-  Lisandro Meza, 'no tengo palabras': así despiden al legendario artista colombiano
+-  느려진 페북 제재했던 방통위, 1·2·3심 내리 ‘패소’ 이유는
+-  Джошуа — о победе над Валлином: «Я боец, у которого есть особый дар»
