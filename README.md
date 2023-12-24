@@ -1,51 +1,11 @@
 # Latest News
--  [ŽT] Apgaulinga ramybė. „Rezultatai bus greitai.“ Kokią informaciją siunčia Krynkų placdarmas
--  [ŽT] Pastebėti nauji rusiškos technikos skiriamieji ženklai (Video)
--  Dataran Kampung Bantal hampir tenggelam, air Sungai Tembeling makin meningkat
--  '너무 비싼데...' 뮌헨, 김민재 지켜줄 수비형 미드필더 영입 난항...990억 이상 요구하는 풀럼
--  '또 다시 도진 부상 악령' 부주장 로메로, 햄스트링 부상 의심돼 하프 타임 교체 아웃
--  Por: Dennis Falvy // El Canal de Panamá sigue en problemas
--  "Le Jour du Seigneur", plus vieille émission télé de France, fête ses 75 ans à Montpellier pour Noël
--  CBP Hoa Kỳ: Tháng 11 là tháng có nhiều cuộc chạm trán nhất từng được ghi nhận ở biên giới phía Nam
--  News24 | Two killed, scores injured in deadly Joburg crash
--  Abgelehnt, weil er bei der AOK versichert ist? Fürther Patient wehrt sich
--  Portada Diario La Razón (24/12/2023)
--  Salzburg Festival Raises 186,000 Euros for Daniel Barenboim Foundation
--  Barbara Hannigan Extends Contract with Göteborgs Symfoniker
--  Michael Nündel Named Music Director of Musikalische Komödie⁩
--  Weihnachten als Zeitenwende: Besinnliche Feiertage und die Geburt Christi
--  Noch einmal ein Weihnachtsfest – von Theodor Fontane
--  Gott kann heilen, ermutigen und neue Wege zeigen - nicht nur an Weihnachten
--  Airbus on course for record jetliner orders in 2023
--  Mit Festen durch das Jahr: So feiert das Weißenburger Altenheim St. Andreas Weihnachten
--  Weihnachten in Gunzenhausen: Wie feiern eigentlich Menschen mit Behinderung?
--  Weihnachtsfilme: Diese beliebten Klassiker muss jeder gesehen haben
--  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
--  Nach 34 Jahren gab es nun erstmals keine Treuchtlinger Advent-Feier
--  বিসিক শিল্পনগরে ১০ শতাংশ প্লট পাবেন নারী উদ্যোক্তারা
--  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
--  Adventsfenster in Reichenschwand und Vorra: Menschliche Wärme unterm leuchtenden Fenster
--  زلزال بقوة 5.8 درجة يضرب تشيلي
--  ইন্টারনেটের সঙ্গে রাতে খেতে না পারার কী সম্পর্ক?
--  Ehrenbürg-Gymnasium Forchheim sorgte für eineinhalb Stunden im Klang der Musik
--  The Rockey road to freedom: An oasis in the madness
--  Nach 34 Jahren gab es nun erstmals keine Treuchtlinger Advent-Feier
--  Lucka 24 i Gävles konstadventskalender
--  BILDEXTRA: Malin och Danne kunde inte motstå kyrkan
--  Adventsfenster in Reichenschwand und Vorra: Menschliche Wärme unterm leuchtenden Fenster
--  Frisch Auf Göppingen: So sieht der Trainer Ben Matschke seine Zukunft mit Frisch Auf
--  LEDARE: Omfamna era egna jultraditioner – de gör er trygga
--  XXL-Hundebett: Jessie J zeigt Lieblingsplatz von ihrem Sohn!
--  Neues Restaurant in Herzogenaurach: Gastronom Tobias Tannebaum hat sich einen Traum erfüllt
--  Tony Leung and Andy Lau Reunite in ‘The Goldfinger,’ Reviving the Hong Kong Noir Genre: ‘Epic Stories Are Making a Comeback’
--  "Dieser Abend ist anders als andere Abende": So feiert Fürth Weihnachten
--  INSÄNDARE: Arbetsvillkoren i dag är inte hållbara
--  "Dankbar sind alle": Lions Club beschenkt Familien zu Weihnachten, wenn die es nicht können
--  Çilidə güclü zəlzələ olub
--  El tráfico de pasajeros en aeropuerto de Incheon se recupera a casi 80 % de nivel precovid
--  Sempat Dihentikan, Tol Jakarta-Cikampek Kembali Terapkan Contraflow
--  Därför filmar Hilla dalaliv som sticker ut: ”Saknat kvinnliga förebilder”
--  ‘พัชรวาท‘ รับมติ ครม.บังคับใช้กฎหมายจัดการกลุ่มซื้อ-ขายสัตว์ป่า เถื่อนอย่างเคร่งครัด
--  Winter World Masters. Aprica ospita una prova delle Olimpiadi Over 30
--  Viaggio no stop in Villa Reale. Da Peter Pan a valzer e quadriglie
--  Premio a Babbo Natale maestro di solidarietà: "Donare è divertente"
+-  台灣護理師大出逃，逃去哪？4大關鍵原因揭露低薪現實與苦悶
+-  En noviembre se notificaron 906 nuevos casos de viruela del mono
+-  Storm Super Cells Bringing Flash Flooding, Hail to NSW
+-  조승완(남쪽바다합창단 지휘자) 씨 부친상
+-  Dustin Poirier Steps Up as Challenger to Nate Diaz’s UFC 300 Quest
+-  Last-minute digital Christmas gifts that will arrive via e-mail
+-  Kassam Tugayları'ndan İsrail'e ağır darbe! Çok sayıda İsrailli asker öldürüldü
+-  Toh, chi si rivede! Riecco Radonjic: torna in campo ma non convince Juric
+-  Toro, un’altra occasione persa
+-  ما حكم رسوم تطبيقات توصيل الأطعمة للمنازل؟ "الخثلان" يُجيب
