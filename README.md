@@ -1,11 +1,11 @@
 # Latest News
--  Pençe-Kilit bölgesinde etkisiz hale getirilen terörist sayısı 30'a yükseldi
--  Rusya Ukrayna'ya ait 4 savaş uçağını vurduğunu açıkladı
--  Cumhurbaşkanı Erdoğan, şehit olan askerlerin ailelerine başsağlığı mesajı gönderdi
--  Derbi öncesi kötü haber! Serdar Aziz yeniden sakatlandı
--  İsrail'in kuzeyindeki Yukarı Celil bölgesinde siren sesleri duyuldu
--  SUTRA KATOLICI SLAVE BOŽIĆ, EVO KAKO SE PRAVILNO ČESTITA! Ne zaboravite na jednu rečenicu - mnogi se ZBUNE
--  President to meet cheesemakers in growing Halloumi milk ratio debate
--  Christmas Day Weather: How to keep safe from thunderstorms
--  Shruti Sinha receives great support from fans, see how discussions are going on social media!
--  Frau flieht mit mehr als 200 km/h vor Polizei - unter Drogen
+-  ZABRINUO PUBLIKU: Senad Bašić zbog zdravstvenih problema nije preuzeo nagradu
+-  Αυτές είναι οι 4+1 βασικές παράμετροι για το πόσο κινδυνεύετε από καρδιά
+-  Das ist das Foto der Woche
+-  Изненадваща раздяла обмисля Барселона
+-  Navidad: Nacimiento de 20 metros se exhibe en antigua casona que perteneció a presidente vitalicio Francisco García-Calderón
+-  Новогодние праздники: будет ли рабочим или выходным днем 30 и 31 декабря
+-  Altreifen, Mikrowelle und Bauschutt in der Natur: V+E sammelt in Waltrop eine Tonne Müll ein
+-  Abschied von einer Kultfigur: „Klimbim“-Opa Wichart von Roëll trauert um Ingrid Steeger
+-  Weihnachten 2023 in Herten: In vielen Wohnzimmern ist ein Tannenbaum bunt geschmückt
+-  Sign Ivan Toney, bring in Aaron Ramsdale, and replace striker – What every club needs to do at Christmas
