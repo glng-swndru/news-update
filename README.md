@@ -1,11 +1,11 @@
 # Latest News
--  Quality dubbing takes centre stage
--  Rani Mukerji: My character isn’t an action heroine kicking 10 villains
--  [스한:BOX] '서울의 봄' 개봉 33일 만에 천만 돌파…올해 두 번째[공식]
--  제니, 레이블 ‘오드 아틀리에’ 설립…“새로움 창작하는 공간”
--  आज दुई संसदीय समितिको बैठक, यस्ता छन् एजेन्डा
--  NZ boxer Parker shocks Wilder in unanimous decision
--  NZ boxer Parker shocks Wilder in unanimous decision
--  وفاة 16 شخصا على الأقل في حادث حافلة في نيكاراجوا
--  Sudoku difícil: 24 de diciembre de 2023
--  Sudoku medio: 24 de diciembre de 2023
+-  รถไฟฟ้าสายสีชมพู แจงเหตุ "รางที่ใช้จ่ายไฟฟ้า" ร่วง - หยุดให้บริการ 7 สถานี
+-  ‘She’s been the wind beneath our wings’
+-  God’s Spell, in Warli
+-  Nursery admission in Delhi: Have you paid Rs 5,000 to book nursery seat?
+-  Shah Rukh Khan, Deepika Padukone, Ranveer Singh look their best at Umang, Salman Khan greets Usha Uthup with warm hug
+-  Today’s (Dec 24) weather: Showery condition to continue
+-  Chief minister responsible for law and order deterioration: Kerala Governor
+-  Romeo, filho de Marcos Mion, se apresenta no palco do Caldeirão e emociona pais e público
+-  베이커리 카페 파운데이, 파운드케이크 누적 판매 200만 개 돌파
+-  동국대 듀이카, 이달 29일 국비지원 2023학년도 동계방학 IT특강 신청 마감
