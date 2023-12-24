@@ -1,51 +1,51 @@
 # Latest News
--  野, 김홍일 연일 공세… "양심 남았다면 스스로 물러나야"
--  '국방예산 3%↑‧주한미군 유지'…바이든, 국방수권법 서명
--  GS리테일, GS나누미 봉사단 전국 릴레이 연탄 봉사 진행
--  ليبيا تعد خارطة طريق استراتيجية للتنقيب عن النفط والغاز في 2024
--  Fin de semana largo por Navidad: ¿Martes 26 de diciembre será día no laborable o no en Perú? Esto dice la norma
--  Na tanker zaútočil pri brehoch Indie dron odpálený z Iránu, uvideol Pentagón
--  Americká loď zostrelila nad Červeným morom 4 drony: Útoku čelil aj ropný tanker
--  Cum scăpăm de retenţia de apă din organism. Efectul ceaiului de păpădie
--  Turecko uskutočnilo útoky proti "teroristickým cieľom" v Iraku a Sýrii
--  Profil Masaki Aiba, Personel Boyband Jepang: Arashi
--  Market capitalisation of 3 of 10 most valued firms jump ₹70,312.7 crore; RIL, HDFC Bank and HUL top gainers
--  Szívszorító, Freddie Mercury mit küldött Elton Johnnak karácsonyra: a halála után jutott el az énekeshez az ajándék
--  Fine del mercato tutelato di gas e luce: cosa succede se non si passa al libero
--  Beşiktaş’taki talihsiz trafik kazası! 9 kişi yaralı
--  EPL: VAR under fire as Arsenal play 1-1 draw with Liverpool
--  24 Aralık 2023 burç yorumları: Koç, Boğa, İkizler, Yengeç, Aslan, Başak, Terazi, Akrep, Yay, Oğlak, Kova, Balık burcu...
--  Cáceres, a reventar hoy con las cañas de Nochebuena
--  Una docena de actos religiosos, en la catedral de Plasencia por Navidad
--  Cáceres: un audiocuento personalizado para Luis
--  Tranquilidad en la Madrila
--  Tiada pesakit perlu terpinggir di negara Madani
--  Libur Nataru, Simak Pengaturan Contraflow di Tol Jagorawi Arah Puncak
--  Cours de pâtisserie, bar à desserts… Sur les Champs-Élysées, Ladurée innove dans un tout nouveau décor
--  Expo Lego à Paris, patinoire à Vincennes, contes au château… 6 idées de sorties en Île-de-France
--  « On ne peut pas les laisser » : à Paris, ils se mobilisent pour éviter que des enfants passent Noël à la rue
--  VIDÉO. « On ne l'oubliera jamais » : l'exposition dédiée à Johnny Hallyday débarque à Paris
--  Tuerie de la rue d'Enghien à Paris : un an après, la tristesse et la détermination de la communauté kurde
--  Gare du Nord : la circulation des trains reprend après avoir été fortement perturbée
--  تراند اليوم : شاهد.. عمرو أديب: إحنا في حرب وأمام عدو ليس لديه مبادئ.. ويوجه رسالة للمصريين بشأن الجيش
--  POGLEDAJTE KAKO PRODAVCI NAVLAČE KUPCE LAŽNIM AKCIJAMA! Čovek sve usnimio i pokazao, pa sami procenite šta se više isplati!
--  Naturschutz: Nabu zieht Bilanz zur Korkkampagne
--  Gaduh berkumpulan guna parang, lelaki maut ditetak
--  Antritt von „Bündnis Sahra Wagenknecht“ unklar
--  LIVE TEXT | Război în Ucraina. Rusia folosește arme chimice împotriva Ucrainei. Putin vrea un armistițiu
--  Masakan bergoreng guna kunyit hidup
--  Main-board IPOs weather global headwinds, collect ₹52,000-cr in 2023
--  Republik Czech berkabung peringati mangsa tembakan Universiti Prague
--  2 Years After Rocking ‘Home Alone-Style’ Cleats, TJ Watt Sports Similar Themed Hoodie Before Thrashing the Bengals
--  Prediksi Wolves vs Chelsea di Liga Inggris: Jadwal, Kondisi Tim, H2H, Perkiraan Susunan Pemain
--  Delta NSCDC command deploys 1,100 personnel for yuletide security
--  A Haber Spikeri Merve Özkan Çakaloğlu bu satırları okurken gözyaşlarına hakim olamadı: Göz kırpmaz can veririz biz bu vatan için...
--  Feriado del lunes 25 de diciembre: ¿qué supermercados atenderán en Navidad?
--  Smelter furnace blast kills 12 in Indonesia’s Morowali nickel industrial park - media
--  Perjalanan Panjang Dimas Anggara Debut Jadi Sutradara Film
--  Infidencias y confidencias del 24 de diciembre de 2023
--  Son dakika! 10 ilde 'Kahramanlar' Operasyonu: 58 mağara imha edildi
--  Maut sehari selepas lesen tamat tempoh
--  Verdictul unui cunoscut analist în privința crizei. De ce vom primi toți mai puțini bani și vom plăti mai multe taxe
--  Коледен обрат. В половин България става страшно
--  Κλιμακώνεται η ένταση στην Ερυθρά Θάλασσα - Νέες επιθέσεις σε πλοία, ΗΠΑ και Βρετανία κατηγορούν το Ιράν
+-  «Держите караван!» — Белорусы застряли в многокилометровой пробке на границе в Польше. Что там происходит? — Видео
+-  [써봤다] 맥북 중의 맥북, 'M3 맥스' 탑재한 '맥북 프로 16'
+-  공정위는 中 구글-알리 천하 원하나…학계 "플랫폼 악마로 몰아 세우면 미래 없다"
+-  조국 “한동훈, 노태우의 길 가려 할 것…완벽한 검찰공화국”
+-  งานเข้า "คัตโตะ" ถูก ก.ล.ต.กล่าวโทษ ชวนเทรด "สินทรัพย์ดิจิทัล"
+-  Quel ciel sur Toulouse et l'Occitanie, selon Météo France, en cette veille de Noël ?
+-  Nice. Mais pourquoi le Grand café de Lyon, à Jean-Médecin, s'appelle ainsi ?
+-  Top 14. Montpellier respire, Toulouse s'arrache... les résultats de la 10e journée et le classement
+-  HMM 품은 하림 ‘제2 치킨게임’ 살아남을까 [심층기획-글로벌 해운업계 지각변동]
+-  Δίαιτα keto: Τι επιτρέπεται να τρώτε και τι θέλει ιδιαίτερη προσοχή
+-  Fallece el cantautor colombiano de música vallenata Lisandro Meza
+-  Un terremoto de magnitud 5,8 sacude el noreste de Nueva Caledonia en el Pacífico
+-  استشاري أسري: هذه الخطوة تضر بأنوثة المرأة وتُنهي فكرة القوامة للزوج
+-  Došao je u Hrvatsku napraviti velike stvari, ali kad nije dobio plaću tri mjeseca malo se iznenadio
+-  Wembanyama da el susto y Doncic firma un triple-doble en solo tres cuartos
+-  Familiares de desaparecidos en México vivieron "caos" y desprotección en 2023
+-  סלט אבוקדו ואשכולית אדומה של חורף
+-  Kerstavond: hoeveel weet jij van All you need is love?
+-  Teška nesreća u Ilici, poginuo motociklist
+-  Direktiva broj 24
+-  Sky, DAZN und Co.: Knüller an Weihnachten! Mit DIESEN Highlights entfliehst du dem Feiertagsstress
+-  Sarah Connor: Besondere Aktion auf Konzert – DAS bekam kaum jemand mit
+-  Aldi, Lidl & Co: Dein Kassenbon fällt immer viel zu hoch aus? DAS musst du beim Einkaufen beachten
+-  Decoration Tips : न्यू ईयर पार्टी के लिए DIY डेकोर टिप्स से झटपट सजाएं घर, बजट में रहेगा फिट
+-  Na današnji dan: Sukobi tokom građanskih protesta u Beogradu 1996, osnovan Kju-Kluks-Klan...
+-  Alperen Sengun a un message pour vous : 37 points face aux Pelicans, cet homme est officiellement le nouveau patron des Rockets
+-  Potonuo poznati beogradski splav! Ljudi skaču u Savu i plivaju do obale, vatrogasci koriste čamce (foto, video)
+-  정우성, ‘천만 배우’ 됐다…‘서울의 봄’ 천만 관객 돌파
+-  아이브 안유진, 2년 연속 ‘SBS 가요대전’ MC발탁
+-  Ja Morant resucita a los Grizzlies con tres victorias en tres partidos desde su regreso
+-  Mehmetçik inlerini başlarına yıktı: 2 bin 156 terörist etkisiz hale getirildi
+-  Meet some of the Wales Air Ambulance working this Christmas
+-  Deniz ulaşımına fırtına engeli: İşte olumsuz hava koşulları nedeniyle iptal edilen seferler
+-  Terör örgütüne büyük darbe: Bakan Yerlikaya duyurdu 10 ilde 58 mağara sığınak ve depoları yok edildi
+-  Les jeunes diplômés mis à l'honneur par le CCAS et la commune d'Étalondes
+-  Lot : les messes de Noël
+-  Dans l'Eure, un couple illumine sa maison et donne vie à la magie de Noël
+-  Sarthe. Elodie Bourdin prépare un livre sur ses grands-parents résistants
+-  Le Mans. A 60 ans, l'ancien restaurateur fan de café devient torréfacteur
+-  Yhteistyötä yli sukupolvien – nuoret lauloivat päivätoiminnan puurojuhlassa
+-  À Vannes, des jeunes du quartier de Kercado participent à un stage de lutte bretonne
+-  L’illusionista saudita: perché il regime di Mbs è più fragile di quel che sembra
+-  RoKin kolme toivetta joulupukille: kiekkoa kiinni, jäähyt pois ja sairastupa tyhjäksi
+-  Report: Wonderkid almost certain to complete January exit, Arsenal favourites ahead of Man Utd
+-  A jednak! Mikołaj istnieje. Nie uwierzysz, gdzie się pojawił [WIDEO]
+-  פתיתים, נקניקיות, בית: ארוחה שלמה ב-10 דקות עבודה
+-  Kolossaler Elektro-SUV im Praxis-Check – erste Ausfahrt im Kia EV9
+-  מרק אפונה עשיר מ-3 מרכיבים בלבד
+-  I want a Christmas fancy dress wedding but my bride-to-be is spoiling my fun
+-  Iran threatens Mediterranean closure over Gaza
