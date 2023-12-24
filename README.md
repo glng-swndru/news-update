@@ -1,11 +1,51 @@
 # Latest News
+-  Asgari ücret ne zaman açıklanacak? Tarih belli oldu... AKP'den asgari ücret ile memur ve emekli maaşı açıklaması
+-  Frizell scores four as Kobe Steelers succumb to Lupus
+-  Namahoua Touré (DG, ARTCI) a-t-elle pour mission d’éradiquer le syndicalisme ?
+-  VIDEO Momentul în care două tramvaie se ciocnesc frontal în București. Ce spune STB despre cauza probabilă a accidentului soldat cu trei răniți
+-  Oroscopo Paolo Fox di domani per Ariete, Toro, Gemelli, Cancro, Leone e Vergine | Lunedì 25 dicembre 2023
+-  Oroscopo Paolo Fox di domani per Bilancia, Scorpione, Sagittario, Capricorno, Acquario e Pesci | Lunedì 25 dicembre 2023
+-  UK minister faces backlash over remarks on spiking drinks
+-  CCC In Audacious Gambit To Force Reinstatement Of Recalled Officials
+-  “Best Defence Ever Seen. Better Than Prime Djokovic & Nadal”: Fans Awestruck at Peak Roger Federer Against Lleyton Hewitt at 2004 Australian Open
+-  Nachhaltigkeit: Müssen wir noch Tiere töten, um uns satt zu essen?
+-  "ANI BRNABIĆ JE VAŽNIJE ŠTA O NjOJ MISLE GRAĐANI SRBIJE": Vučić o sramnim izjavama Đilasa na račun premijerke
+-  JÕULUDE SÜNGEMAD TEGELASED: koletuslik Krampus pidi lapsi karistama, riukalikku Musta Peetrit peetakse rassistlikuks
+-  O QUE É FEITO DOS NOSSOS BRANCOS?
+-  Flood risk as heavy rain to hit Greater Manchester with new Met Office weather warning issued
+-  Jani Nyman on nautiskellut Ilveksessä "Liigan kahden parhaan pelaajan" tarjoilusta
+-  Jani Nyman on nautiskellut Ilveksessä "Liigan kahden parhaan pelaajan" tarjoilusta
+-  Cak Imin Benar soal Klaim Kecepatan Internet Indonesia Rendah, Diakui Kominfo
+-  «Μας έχουν αφήσει νηστικούς»: Ταλαιπωρία για δεκάδες Έλληνες στο αεροδρόμιο της Βουδαπέστης
+-  Kompetisi BRI Liga 1 Libur Panjang, Pelatih Borneo FC Kasih Ultimatum ke Pemain meski Nyaman di Puncak Klasemen
+-  Man, 40s, seriously injured after Co Cavan assault as Gardai follow ‘definite lines of enquiry’ in major probe
+-  Arbaaz Khan chooses sister Arpita’s house for intimate wedding with alleged GF Shura Khan
+-  +++ Nachrichten im Nahost-Krieg +++: Verstärkte Offensive in Gaza
+-  सन्दीपविरुद्धको मुद्दा ‘हेर्दाहेर्दै’ मा
+-  Moldova’s pro-European president Sandu says she will seek second term
+-  Y llegó la Navidad: el Teide ofrece su mejor regalo a los canarios
+-  Unveiling the Secrets of PR for Tech Startups: An Exclusive Interview with Taufik Khisam
+-  उच्च अदालतमा स्वचालित पेशी प्रणाली सुरु
+-  Muškarac zamolio goste da na božićnu zabavu donesu svoju hranu ili da mu plate
+-  Die beste Eintracht-Elf der Geschichte laut ChatGPT
+-  Die beste Eintracht-Elf der Geschichte laut ChatGPT
+-  Как ние посрещаме Коледа и Нова година (Видео)
+-  Die beste Eintracht-Elf der Geschichte laut ChatGPT
+-  ইতালির এই শহরে থাকতে আগ্রহী হলেই পাবেন ৩০ লাখ টাকা
+-  PREDSEDNIK O VELIKIM PROJEKTIMA, KOSOVU I METOHIJI, IZBORIMA... Vučić se obratio javnosti - Do kraja februara formiranje Vlade
+-  جامعة قطر توقع مذكرة تفاهم للتعاون البحثي مع التجمع الكوري للمياه
+-  Ministro de Economía italiano dice fue "impropio" no ratificar el MEDE y piden dimisión
+-  Böllerwurf auf Nachbarhaus: Explosion zerschlägt Fenster – Scherben prasseln auf schlafendes Baby (1)
+-  Lebensgefahr für Autofahrer: B6 Abfahrt Nienburg West und K2 Drakenburg-Balge ab sofort gesperrt
 -  Haut op RTL, RTL.lu an um RTL Play vun 22.30 Auer un: Chrëschtmetten aus der Kathedral
+-  Amazing Places To Visit During Christmas Holidays
 -  AK Partili Belediye Başkanı Birol, kalp krizi sonucu hayatını kaybetti
 -  Motosikletten düşen genç aracın altında kalmaktan son anda kurtuldu
 -  Şehidimizin son videosu yürekleri sızlattı: Komutanım yolumuz ne yolu?
+-  В Дагестане из-за сильного ветра без света остались сто тысяч человек
+-  U narednim danima sunčano vrijeme uz povremenu oblačnost u BiH
+-  Mission patrimoine 2023 : un beau chèque pour sauver cette église du Lot-et-Garonne
 -  역대급 재회 나올 수도 있다!…'친정팀 상대로 세리머니' 했는데 복귀 가능성 ↑
+-  Bus à Quimper : un nouveau réseau en 2025 ?
 -  F1 : Verstappen va briser le rêve d’Hamilton ?
--  Datum revela un alto nivel de desaprobación para el Ejecutivo al concluir el año 2023
--  Johnny Hallyday "papa cool", mais… Ses filles Jade et Joy révèlent ce qu'il leur interdisait de faire, et c’est étonnant
--  Cuatro muertos en una nueva oleada de bombardeos rusos en Jersón
--  الحكومة تعاملت مع 160 شكوى حول التجارة الإلكترونية
+-  Momen Fuji Gombal ke Anak Bos Skincare Makassar, Gonzalo Sampai Tersipu Malu
