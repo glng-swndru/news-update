@@ -1,51 +1,11 @@
 # Latest News
--  Jeux vidéo : ces « one-man studios » derrière de gros succès
--  Andrej Plenković za Novi list: Ne prijete nam recesija ni stagnacija, građane ćemo zaštititi od šokova
--  Leka main telefon tepi jalan, pencuri laju ‘buat kerja’
--  Tại sao thời cổ đại tù nhân bị chém đầu, quản ngục lại đặt một miếng thịt hôi thối trong bữa ăn cuối? Người tù khi nhìn thấy rất biết ơn
--  Wer ist alles noch im Gschänkli-Endspurt?
--  امریکا از سرنوشت نامعلوم الکسی ناوالنی ابراز نگرانی کرد
--  Počas Vianoc znášajú pobyt v nemocnici najťažšie deti
--  Serbest bırakılan İsrailli kadın anlattı: Kassam mensupları bizi bedenleriyle koruyordu
--  AK Parti, bu hafta YRP ve BBP ile görüşecek
--  Kuzey Irak saldırısının ardından MİT'ten PKK/YPG'ye ağır darbe!
--  Fransa, yakıt ikmali için havalimanına inen uçağın kalkmasına izin vermedi
--  Kardeş ülkeden Türkiye'ye taziye mesajı
--  রংপুরে বিএনপির ডাকা হরতালে বিস্ফোরণ
--  क्रिकेट से दूर मैंने हमेशा पत्नी के साथ... ऑस्ट्रेलियाई क्रिकेटर का बड़ा बयान
--  Konyaspor- Kayserispor (0-0) CANLI ANLATIM
--  Milli Savunma Bakanı Güler: Dün gece 13, bugün 12 bölücü terör örgütü mensubu etkisiz hale getirildi
--  Hatay’da hortum seraları vurdu
--  Çocuklardaki viral enfeksiyonlarda 'antibiyotikte ısrarcı olunmamalı' uyarısı
--  Regaip Kandili ne zaman idrak edilecek? 2024 Diyanet dini günler takvimi
--  Ayvacık’ta minibüs ile kamyonet kasasından 63 kaçak göçmen çıktı, 2 organizatör yakalandı
--  ভোটের দিন দুই ঘণ্টা পরপর ভোট গ্রহণের হার প্রচার করা হবে: সিইসি
--  Milinkovic-Savic: l’imbattibilità finisce dopo 376 minuti
--  Corey Kispert is improving, even if his shooting numbers aren't
--  Corey Kispert is improving, even if his shooting numbers aren't
--  Сахалинец показал популярное туристическое место с нового ракурса
--  Soccerladuma | 16 PSL Coaches: Are They Qualified?
--  الضرائب: القانون يتيح الاستفادة من تيسيرات ضريبية غير مسبوقة في هذه الحالة
--  120 วัน “ทักษิณ” ป่วย ฝ่ายค้านเพิ่งตื่น ถามหาเท่าเทียม
--  Vianočné prianie prezidentky: Všetkým želám, aby im na Vianoce nechýbala pohoda, vľúdnosť a ľudskosť
--  Минобороны сообщило о почти 10 отраженных атаках ВС РФ
--  Митрополит Владимир: в Молдавии очерняют имидж православной церкви
--  Warning issued to any households cooking turkey for Christmas dinner
--  KPK Izinkan Tahanan Rayakan Natal Bersama Keluarga
--  The RIGHT trousers! As Wallace and Gromit: The Wrong Trousers celebrates its 30th anniversary,...
--  ਕੋਲਕਾਤਾ 'ਚ ਭਗਵਦ ਗੀਤਾ ਦਾ ਪਾਠ ਕਰਕੇ ਵਿਸ਼ਵ ਰਿਕਾਰਡ ਬਣਾਉਣ ਦੀਆਂ ਚੱਲ ਰਹੀਆਂ ਤਿਆਰੀਆਂ, ਵੇਖੋ ਰਿਪੋਰਟ
--  แจกพิกัด สวดมนต์ข้ามปี 2567 ในพื้นที่ กทม. ส่งท้ายปีเก่า ต้อนรับปีใหม่
--  Teliti: Veliaj kaloi buxhetin e bashkisë si Lindita Nikolla, në 6 minuta
--  “간단한 망막사진 촬영으로 의료 현장에 혁신”
--  [내일 날씨] 올해는 ‘화이트 크리스마스’…수도권 최대 10㎝ 눈
--  Подростков задержали за нападение на дворников-мигрантов в Петербурге
--  Nigel Farage’s Reform UK vows to fight the Tories in every seat at next year’s general election
--  El gran perdedor es el pueblo dominicano (OPINION)
--  নানা দুর্ভোগের পর গ্রিসে বাংলাদেশি প্রবাসীদের মুখে তৃপ্তির হাসি
--  Vučić o slučaju Banjska: Porodice Srba poginulih nisu dobili nalaze obdukcije – Priština ih krije
--  Tatar requests help from Greek Cypriots in finding woman’s killers
--  В Сочи начали проверку после падения дерева на мужчину
--  Több ezer háztartás maradt áram nélkül Szlovákiában karácsonyra
--  Какие дела нужно обязательно успеть сделать к Новому году
--  Video: क्या मुंबई के रेस्टोबार में वेट्रेस बन गईं उर्फी जावेद? वायरल हुआ एक्ट्रेस का चौंका देने वाला वीडियो
--  Reclusos de penal Castro Castro estrenan videoclip navideño
+-  ما سبب الإصابة بالاكتئاب الشتوي؟.. اعرف الأعراض وطرق العلاج
+-  La fotocamera di iPhone 15 è la migliore del 2023 secondo un popolare canale YouTube
+-  So genervt hat man Superstar Cristiano Ronaldo lange nicht gesehen
+-  HJK kaltoinkohtelema seuraikoni saa kostomahdollisuuden
+-  Aucun crime électoral n’a été commis par les candidats, dixit Bouasker
+-  Beşiktaş, bu maça da eksik çıkacak
+-  İrem Derici'den Murat Boz itirafı!
+-  Bénévolat : cette commune de l'Eure a remis une médaille à quatre habitants engagés
+-  Sambut Nataru, ada 5 Layanan Posko Siaga Mitsubishi Motors di Pulau Jawa
+-  Woman ‘engaged to a US prisoner’ she met through a website is branded ‘crazy’ by trolls but she ‘knows it’s true love’
