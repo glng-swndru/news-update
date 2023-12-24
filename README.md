@@ -1,11 +1,11 @@
 # Latest News
--  הלחץ עבד: ארה"ב הבטיחה ליווי לספינות וחברת המסחר הימי מארסק תחזור לים האדום
--  חלק מאוהדי מכבי חיפה קיללו ושרו: "דיא סבע מת"
--  Slavna Titova baza bila je vojni dragulj: Nakon godina propadanja jedan film promijenio je sve
--  اسبانيا ترفض المشاركة في التحالف الدولي لحماية الملاحة في البحر الاحمر
--  Vuçiç: Opozita t’i japë fund grevës së urisë për zgjedhjet
--  Gazastreifen: Wütende Palästinenser protestieren gegen Hamas
--  Pedían Q500 mil: la operación del comando antisecuestro que permitió la liberación de una niña de 5 años en Nochebuena
--  İrfan Kahveci’den çok konuşulacak derbi itirafı: Yapamadım
--  En video: Maluma armó fiesta en una chiva y cantó vallenato en las calles de Medellín
--  ভোরের কাগজে সংবাদ প্রকাশ হওয়ার পর শিশু দিয়ার দায়িত্ব নিতে চান সিয়াম
+-  الأردن يُعلن الاتفاق مع مصر على مسار شحن جديد في ظل أزمة الملاحة في البحر الأحمر
+-  رئيس وزراء فلسطيني: الجيش الإسرائيلي يعيد احتلال الضفة الغربية كاملة الآن
+-  Жители Германии пьют все меньше игристого
+-  Германия — Как вылезти из долговой спирали — честный анализ финансов
+-  Из Орловской области в зону СВО доставили последний в этом году 40-тонный «аквагруз»
+-  رئيس الأسقفية يدعو لصلاة الاستعداد ضمن طقوس قداس الميلاد
+-  Okan Buruk: İlk yarı çok net bir penaltı vardı
+-  قلة حظ ونحس.. تحذير لهؤلاء الأبراج الـ 3 في 2024
+-  İsmail Kartal: Süper Kupa maçı farklı olacak
+-  Stolen education: What’s happened since Taliban banned women from university in Afghanistan
