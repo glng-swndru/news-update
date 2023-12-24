@@ -1,51 +1,51 @@
 # Latest News
--  «Держите караван!» — Белорусы застряли в многокилометровой пробке на границе в Польше. Что там происходит? — Видео
--  [써봤다] 맥북 중의 맥북, 'M3 맥스' 탑재한 '맥북 프로 16'
--  공정위는 中 구글-알리 천하 원하나…학계 "플랫폼 악마로 몰아 세우면 미래 없다"
--  조국 “한동훈, 노태우의 길 가려 할 것…완벽한 검찰공화국”
--  งานเข้า "คัตโตะ" ถูก ก.ล.ต.กล่าวโทษ ชวนเทรด "สินทรัพย์ดิจิทัล"
--  Quel ciel sur Toulouse et l'Occitanie, selon Météo France, en cette veille de Noël ?
--  Nice. Mais pourquoi le Grand café de Lyon, à Jean-Médecin, s'appelle ainsi ?
--  Top 14. Montpellier respire, Toulouse s'arrache... les résultats de la 10e journée et le classement
--  HMM 품은 하림 ‘제2 치킨게임’ 살아남을까 [심층기획-글로벌 해운업계 지각변동]
--  Δίαιτα keto: Τι επιτρέπεται να τρώτε και τι θέλει ιδιαίτερη προσοχή
--  Fallece el cantautor colombiano de música vallenata Lisandro Meza
--  Un terremoto de magnitud 5,8 sacude el noreste de Nueva Caledonia en el Pacífico
--  استشاري أسري: هذه الخطوة تضر بأنوثة المرأة وتُنهي فكرة القوامة للزوج
--  Došao je u Hrvatsku napraviti velike stvari, ali kad nije dobio plaću tri mjeseca malo se iznenadio
--  Wembanyama da el susto y Doncic firma un triple-doble en solo tres cuartos
--  Familiares de desaparecidos en México vivieron "caos" y desprotección en 2023
--  סלט אבוקדו ואשכולית אדומה של חורף
--  Kerstavond: hoeveel weet jij van All you need is love?
--  Teška nesreća u Ilici, poginuo motociklist
--  Direktiva broj 24
--  Sky, DAZN und Co.: Knüller an Weihnachten! Mit DIESEN Highlights entfliehst du dem Feiertagsstress
--  Sarah Connor: Besondere Aktion auf Konzert – DAS bekam kaum jemand mit
--  Aldi, Lidl & Co: Dein Kassenbon fällt immer viel zu hoch aus? DAS musst du beim Einkaufen beachten
--  Decoration Tips : न्यू ईयर पार्टी के लिए DIY डेकोर टिप्स से झटपट सजाएं घर, बजट में रहेगा फिट
--  Na današnji dan: Sukobi tokom građanskih protesta u Beogradu 1996, osnovan Kju-Kluks-Klan...
--  Alperen Sengun a un message pour vous : 37 points face aux Pelicans, cet homme est officiellement le nouveau patron des Rockets
--  Potonuo poznati beogradski splav! Ljudi skaču u Savu i plivaju do obale, vatrogasci koriste čamce (foto, video)
--  정우성, ‘천만 배우’ 됐다…‘서울의 봄’ 천만 관객 돌파
--  아이브 안유진, 2년 연속 ‘SBS 가요대전’ MC발탁
--  Ja Morant resucita a los Grizzlies con tres victorias en tres partidos desde su regreso
--  Mehmetçik inlerini başlarına yıktı: 2 bin 156 terörist etkisiz hale getirildi
--  Meet some of the Wales Air Ambulance working this Christmas
--  Deniz ulaşımına fırtına engeli: İşte olumsuz hava koşulları nedeniyle iptal edilen seferler
--  Terör örgütüne büyük darbe: Bakan Yerlikaya duyurdu 10 ilde 58 mağara sığınak ve depoları yok edildi
--  Les jeunes diplômés mis à l'honneur par le CCAS et la commune d'Étalondes
--  Lot : les messes de Noël
--  Dans l'Eure, un couple illumine sa maison et donne vie à la magie de Noël
--  Sarthe. Elodie Bourdin prépare un livre sur ses grands-parents résistants
--  Le Mans. A 60 ans, l'ancien restaurateur fan de café devient torréfacteur
--  Yhteistyötä yli sukupolvien – nuoret lauloivat päivätoiminnan puurojuhlassa
--  À Vannes, des jeunes du quartier de Kercado participent à un stage de lutte bretonne
--  L’illusionista saudita: perché il regime di Mbs è più fragile di quel che sembra
--  RoKin kolme toivetta joulupukille: kiekkoa kiinni, jäähyt pois ja sairastupa tyhjäksi
--  Report: Wonderkid almost certain to complete January exit, Arsenal favourites ahead of Man Utd
--  A jednak! Mikołaj istnieje. Nie uwierzysz, gdzie się pojawił [WIDEO]
--  פתיתים, נקניקיות, בית: ארוחה שלמה ב-10 דקות עבודה
--  Kolossaler Elektro-SUV im Praxis-Check – erste Ausfahrt im Kia EV9
--  מרק אפונה עשיר מ-3 מרכיבים בלבד
--  I want a Christmas fancy dress wedding but my bride-to-be is spoiling my fun
--  Iran threatens Mediterranean closure over Gaza
+-  올 한 해 직장인들이 가장 힘들었던 점은…“저임금·장시간 노동”
+-  إنقاص الوزن بهذه الطريقة يسبب تغييرات جذرية في الدماغ
+-  Viaceré domácnosti v TEJTO lokalite budú mať pokazené Vianoce! Nepriaznivé počasie a Štedrý deň bez elektrického prúdu
+-  แผ่นเหล็กเส้นกำแพงกันดินหล่นทับคนงาน ขณะก่อสร้างรถไฟฟ้าสายสีม่วง
+-  Sports Ministry suspends newly-elected WFI body
+-  До -5 градусов ожидается в Ленобласти 24 декабря
+-  나훈아·조용필·임영웅…국민가수들의 연말 공연 대격돌
+-  Ποιος είναι ο 17χρονος που έχει ξετρελάνει τον Ολυμπιακό
+-  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
+-  Beneficiaries must be protected from negative effects of weather: Qaiser Amin Butt
+-  سعر الدولار اليوم في لبنان الأحد 24 ديسمبر 2023.. تعطيل "هيئة الأسواق المالية"
+-  2023.. عام حصاد رؤوس الدواعش بالعالم
+-  OM – Mercato : coup de froid sur trois départs en janvier !
+-  Sixers’ appeal for under-fire star thrown out as CA preaches ‘essential’ respect for umpires
+-  Ništa od obećanja o uređenju Alipašinih izvora
+-  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
+-  Fattiga OS-stjärnor extraknäcker: "Inte jättefett"
+-  Moradabad: दिल्ली रोड पर सफाई नायक को पीटा, थाने पर जमकर हंगामा, धूल उड़ने पर बाइक सवार हुआ गुस्सा
+-  حقيقة رحيل ستيفانو بيولي عن ميلان
+-  Det er en klassisk julefejl, og den kan blive voldsomt dyr. Her er eksperternes råd til at undgå akut diarré og vilde regninger
+-  Det er en klassisk julefejl, og den kan blive voldsomt dyr. Her er eksperternes råd til at undgå akut diarré og vilde regninger
+-  "SOMBORSKI DABL" MAESTRALNOG NIKOLE JOKIĆA! Srbin ponovo BACAO MAGIJU, Nagetsi na gostovanju srušili Šarlot! (VIDEO)
+-  Όχι καλή εποχή για Χριστιανούς
+-  Восстановлено регулярное авиасообщение между Москвой и Гонконгом
+-  Το Point System γίνεται ψηφιακό
+-  CM condoles over journalist’s demise
+-  [OTT레이더] 서울에 나타난 괴물의 비밀…넷플릭스 '경성크리처'
+-  Analytikerne ser potentiale i aktien i underholdningsselskabet
+-  Analytikerne ser potentiale i aktien i underholdningsselskabet
+-  Decaying Pillsbury mill in Illinois that once churned flour into opportunity is now getting new life
+-  Hedef gösterilen 'Kızıl Goncalar' dizisinin mekan izinleri iptal edildi
+-  陳東紅 - 緣份｜芽芽學英語
+-  Κύπρος: Είμαστε κράτος της Ε.Ε κι όχι τουρκικό τσιφλίκι
+-  Azam simpan duit tahun ini sudah tercapaikah?
+-  Anthony Joshua murjoi ruotsalaisen kunnolla
+-  Lauri Markkaselta upea esitys aatonaattona
+-  Życzenia dla czytelników "Rzeczpospolitej"
+-  SSP Atif Nazir affirms commitment to public service, security in Christmas celebration
+-  Saharanpur: बदमाशों ने तमंचा दिखा आधी रात को लेखपाल से की लूट, कपड़े भी ले गए, ठिठुरती ठंड में निर्वस्त्र छोड़ा
+-  Hrvatska je domovina dvaju malih endemskih jezika: Sada im prijeti izumiranje
+-  Şəkər tozu xeyli ucuzlaşdı
+-  Lahore Police register 10,797 cases against drug pushers
+-  Епископ Сионий: Трябва да подготвим не само душите, но и сърцата си за посрещането на Богомладенеца Христос
+-  Album/EP Terbaik 2023 Pilihan Rondivu
+-  Le résumé de la nuit en NBA : Rudy Gobert et les Wolves, c’est toujours aussi sérieux
+-  Bakan Fidan'dan kritik görüşme
+-  Flick: 'Takımı görünce vazgeçtim'
+-  Kızıl Goncalar dizisine RTÜK'ten müdahale!
+-  CM Revanth Reddy: దీపాదాస్ మున్షీని స్వాగతిస్తున్నాం..
+-  Резултати от НХЛ
