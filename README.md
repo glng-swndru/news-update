@@ -1,11 +1,51 @@
 # Latest News
--  נתונים חושפים: זה הסמארטפון המועדף על הישראלים
--  MP Horror: Woman Burnt Alive By Brother-In-Law Over Family Feud In Ratlam
--  Mirotić će se sa slobode braniti optužbi da je pomagao kopačima...
--  How 3ft 2in star who played ‘The Grinch’ as a child died just two years after filming as he struggled with health battle
--  Луѓето од фотографијата што стана симбол на теророт во Прага: „Го слушнавме како доаѓа“
--  Aragón lidera el segundo proyecto de investigación en España sobre el cáncer de mama masculino
--  Dilan Polat'ın astroloğundan tahliye iddiası: 'Haber gönderdi, yıldız haritasına baktım'
--  İsrail Qəzzada əməliyyatları 4 saatlıq DAYANDIRDI
--  Saldırının zamanlaması manidar... PKK'ya hava harekatı düzenleyen Türkiye'den ABD'ye anlamlı mesaj
--  Üç gündür haber alınamayan yaşlı adam tek başına yaşadığı evde yarısını yanmış halde buldu
+-  กองทุนพัฒนาสื่อปลอดภัยและสร้างสรรค์ ขึ้นเหนือสร้างเครือข่ายอย่างต่อเนื่อง
+-  تشييع جثامين 7 عناصر إجرامية لقوا مصرعهم أثناء مداهمة أمنية بالدقهلية
+-  India chase history in Test series in South Africa
+-  Συγκλονίζει η Νόρα Βαλσάμη για την τελευταία της συνάντηση με τη Μαίρη Χρονοπούλου – «Είχε μεγάλη ψυχή»
+-  Pożar przyczepy. W środku odnaleziono zwłoki mężczyzny
+-  Auto erfasst Mann auf A4: Vollsperrung
+-  الفلبين ترصد 18 حالة إصابة بمتحور كورونا الجديد جيه.إن.1
+-  Los Cowboys enfrentan un duro juicio
+-  Camilo Cándido México unirse Cruz Azul
+-  رئيس الوزراء الصيني يزور المناطق المتضررة من الزلزال ويتفقد أعمال إعادة الإعمار
+-  مقترح برلماني لعودة وزارة الاستثمار في الحكومة الجديدة المرتقبة
+-  दुबईबाट रूसी सेनामा गएका धनुषाका विमल सम्पर्कविहीन
+-  ΠΑΟΚ: Συμφωνία με τον Ροζιέρ αναφέρουν oι Τούρκοι
+-  Il declino del Milan di Pioli, sempre peggio dopo 17 giornate: ecco i numeri
+-  Za 24 sata 19 saobraćajnih nezgoda
+-  ชวนชมกล้วยไม้ ครองถ้วยพระราชทานประกวดกล้วยไม้ ไม้ดอกไม้ประดับ
+-  Nemecká polícia vyšetruje teroristickú hrozbu, chrám v Kolíne je pod dozorom
+-  Fireworks, festivals and Boxing Day blockbusters: Things to do in Brisbane this week
+-  Fireworks, festivals and Boxing Day blockbusters: Things to do in Brisbane this week
+-  Religion / Bénédiction des homosexuels : Les évêques africains vont se prononcer à l'unisson
+-  27-vjeçarja përplas këmbësorin në Vlorë, transportohet me urgjencë drejt spitalit
+-  مهيدات للنواب: 640 مليون دينار صادرات الأدوية ولا نصنع المطاعيم
+-  Nueva Radio Ya: число пострадавших в ДТП с автобусом в Никарагуа возросло до 43
+-  Royal Enfield : बुलेट 350 च्या विक्रीत प्रचंड वाढ; हंटर 350 च्या विक्रीत घट, जाणून घ्या रॉयल एनफील्ड कंपनीचा विक्री अहवाल
+-  غارات إسرائيلية عنيفة على جنوب لبنان
+-  Fodor Zsóka: Mostanában gyakran gondolok a halálra
+-  Кемерон натякнув на можливе збільшення британської допомоги Україні
+-  LifeSigns gears up to raise fresh funding for expansion
+-  قرية متخصصة لصيانة وإصلاح الطائرات بجدة..بدعم "الاستثمارات العامة"
+-  اختراق علمي يوقف انتشار سرطان الثدي
+-  400-Meter-Lawine in Österreich – Suchaktion nach Verschütteten im Pitztal
+-  Медведев в канун Рождества справился о здоровье "заболевшей" Европы
+-  В Москве обновили фасады четырех вокзалов
+-  CERN’de bir Kıbrıslı Türk… Bilin, CERN’e uzanan yolculuğunu anlattı
+-  बाघको आक्रमणबाट बर्दियामा साढे चार वर्षमा ३४ जनाको मृत्यु
+-  Boltba menne? Ezekben az üzletekben még van esélye vásárolni
+-  Şanlıurfa’da sis etkili oluyor
+-  Nick Carter, cantante de los Backstreet Boys, llora la muerte de su tercer hermano
+-  Odisha Reports Second COVID-19 Case, RMRC to Analyze Samples for Variant Identification
+-  – طقس : اعتدال نسبي على أغلب مناطق البلاد .
+-  Užas u Sl. Brodu, vozačica krenula pretjecati pa se zabila u auto: Poginuo muškarac (75), ozlijeđeno dijete (2)
+-  Un nuevo pacto social contra la crisis y la incertidumbre
+-  수면의 질 높이려면 "부부가 각방 써라(?)"
+-  نائب محافظ البحيرة: مراجعة المعديات والمراكب النيلية حفاظا على سلامة المواطنين
+-  Δεν το πίστευε
+-  Här är julfarorna för husdjuren
+-  خابا هداف بالبطولة الكويتية
+-  MBC, ‘한국인이 가장 즐겨보는 방송 뉴스’ 1위
+-  Refuerzan seguridad de catedral de Colonia ante riesgo a atentado
+-  รัฐบาลกำชับผู้ประกอบการจัด "กระเช้าปีใหม่" ไม่เอาเปรียบผู้บริโภค
