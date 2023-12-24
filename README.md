@@ -1,51 +1,51 @@
 # Latest News
+-  «Этот ритуал появился не очень давно, но уже прижился»
+-  Sedam načina kako potrošiti dodatnih 100 kalorija na dan
+-  Postoje mjesta na svijetu gdje je Božić zabranjen: Pogledajte gdje se ne smije slaviti
+-  غيّر طريقته في غزو خلايا الجسم.. هل يستهدف متحور كورونا الجديد الأمعاء؟
+-  ‘Bigg Boss 17’: Isha Malviya decides who’s evicted from show, says ...
+-  Christmas 2023: Dua Lipa enjoys her time in India, check out her happy pictures
+-  Яқин Шарқдаги вазият: ЦАҲАЛ Ғазо шимолида назорат ўрнатганини айтмоқда; Қизил денгизда савдо кемалари ўққа тутилмоқда.
+-  عاجل.. توقعات بهطول أمطار رعدية من اليوم وحتى السبت المقبل على هذه المناطق
+-  تجاوز عمره 15 عاماً هل يلزمه إصدار الهوية الوطنية؟
+-  أمير القصيم يطلق المها الوضيحي والظبي الريم لأول مرة في المنتزة الوطني بالمنطقة
+-  Protest ispred RIK u Beogradu: Traži se poništavanje izbora na...
+-  Calciomercato Milan, Kehrer in pole per la difesa: Furlani convinto da questa cosa
+-  Muere atropellada una mujer en Crecente
+-  Apagón: Trabajan en restablecer energía eléctrica
+-  Más de 190 aprehendidos en las últimas 24 horas
+-  Roban 2.000 galones de gasolina a la Armada en el Pacífico colombiano
+-  Tom Sandoval leaves Missouri bar with mystery woman after sharing anti-cheating PSA
+-  Så firar idrottsstjärnorna jul: Khaddi Sagnia dyker upp på Nordpolen (?)
+-  Περιστέρι – ΑΕΚ 89-78: Η ομάδα του Βασίλη Σπανούλη λύγισε την Ένωση
+-  Testing negative but still feeling sick? Doctors explain why
+-  Environment Canada warns travelers to slow down as fog hovers across Ontario
+-  Hijos del solar
+-  Declaran legal detención de 'El Cumbias'
+-  Vuelca Ómnibus de México en la vía corta y deja 30 heridos
+-  Selenskyj sendet Weihnachtsgrüße: „Das Böse wird besiegt“
+-  Džeko se sukobio sa Icardijem, napeto prvo poluvrijeme derbija
+-  „Noi ne-am pus viețile în pericol”. Șoferi blocați pe munte după ce au ignorat avertismentele polițiștilor
+-  Ações educativas do Detran alcançaram mais de 60 mil pessoas no Estado em 2023
+-  Icardi penaltı bekledi, hakem Arda Kardeşler VAR ile konuştuktan sonra 'devam' dedi!
+-  Özgür Özel’den Noel mesajı
+-  Fenerbahçe-Galatasaray derbi tarihinde görülmemiş istatistik!
+-  Acaba novela de Mbappé: ya tomó una decisión… ¿le dará el ‘sí’ al Real Madrid?
+-  Kumaram Bheem Asifabad: మల్లన్న దర్శనానికి పోటెత్తిన భక్తులు
+-  Paranormal activity in Almeria
+-  'I won £800k on the lottery but it ruined my life and I lost everything'
+-  Počeo sedmi protest opozicije ispred RIK-a, prisutna žandarmerija
+-  ديوان الخدمة المدنية والتطوير الحكومي يدشن منصة "شارك" لتوحيد تجربة المتعاملين
+-  Сбогом: Почина големият гръцки певец Василис Карас - Труд
+-  Bartosiak: Myślę, że jesteśmy o krok od implozji państwa ukraińskiego
+-  L'assegno che sostituisce il Reddito di cittadinanza: chi riceve 10.920 euro
+-  KUMA KAČAVENDA POPUSTILA NA PRAZNIK Milena rešila da dozvoli Samiru da pokušaju pa kako bude
+-  "People were crowdsurfing in the lotus position." Dharma are a Taiwan-based Buddhist collective that play death metal and have a nun in their ranks. Chances are, you've never met another band like them
+-  العراق يستعيد ملياري دينار بقضايا فساد لمسؤولين سابقين
+-  Latin Patriarch takes Christmas procession route
+-  El mensaje del capitán Ramos: "Hay cosas que mejorar y lo haremos, juntos"
+-  Кой е големият празник у нас - Бъдни вечер или Коледа? Отговорът на етнолог
+-  'Euphoria' star Wanna Walton to make pro boxing debut
 -  曾是中年文組魯蛇，他如何從Subway店長轉職AI軟體技術長？
 -  勞基法規定「賺錢要分」，老闆不發年終獎金違法嗎？關鍵在「這條法規」
--  The best gaming chairs you can buy right now
--  نتنياهو يتعهد بخوض حرب طويلة في قطاع غزة
--  المستشار عادل فهيم يفتتح مجمع محاكم مجلس الدولة الجديد بالمنوفية
--  Hanlar Geçidi'nde zincirleme kaza: 17 yaralı!
--  Бен Ходжес: Запад, а не Украина, потерпели неудачу
--  Алиев отмечает день рождения в кругу семьи
--  800 Jahre Krippe – eine franziskanische Tradition
--  Wigilia u Stana Borysa
--  Mazzarri in confusione, le pagelle dei quotidiani: "Manovra lenta e pochissime idee"
--  خوسيلو تميمة حظ ريال مدريد
--  Neel Nanda, Stand-Up Comedian Who Appeared on ‘Jimmy Kimmel Live,’ Comedy Central, Dies at 32
--  Schedule for temporary closure of Narayangadh-Muglin road revised
--  &#039;I feel trapped&#039;: Scores of underage Rohingya girls forced into abusive marriages in Malaysia
--  رئيس بايرن ميونخ: نسعى للفوز بأكبر عدد من الألقاب في 2024
--  Dean Elgar announces retirement from international cricket after India series
--  NEA cuts off power to two more industries
--  Netanjahu: Izrael produbljuje borbe
--  مولانا فضل الرحمٰن الیکشن میں اپنے ہی بیٹے کے مدِمقابل آگئے؟
--  Courier firm exec held for stealing 40 phones in Delhi
--  Influencer estadounidense salió a comer sushi con su novio, pero olvidó su alergia al pescado y todo terminó mal (VIDEO)
--  Now, I do not have anything to do with wrestling: Brij Bhushan
--  لیگی رہنما راناثنااللہ کی گاڑی کو حادثہ
--  مدرب سيراميكا يكشف موقف قندوسي من مواجهة الأهلي
--  Hombre condenado a 30 años por abusar sexualmente de sus hijos
--  УНИКС одержал пятую победу подряд, обыграв «Самару»
--  Pakistan, Oman hold joint naval drill 'Thamar Al Tayyib 2023'
--  QB Ryan Tannehill starts, Levis out for Titans with Seahawks on NFC playoff bubble
--  Rusya: Ukrayna'ya ait 4 Savaş Uçağı Düşürdük
--  Traffic fatality leads to the closure of El Camino Real in San Mateo
--  Το είπε ο Σωφρόνης
--  Rewe: Seniorin kann Einkauf nicht bezahlen – was sie an der Kasse erlebt, ist nicht zu glauben
--  Kleiner Gasgrill bei Aldi: Enders Brooklyn Next 2 im Deal
--  احذروا التنمر على مواقع التواصل الاجتماعي| كتب علي ناصر فلاحة
--  سلمان الفرج بدأ في التواصل مع الاتحاد
--  کیرون پولارڈ انگلینڈ کے اسسٹنٹ کوچ مقرر ہوگئے
--  بحضور المحافظ ورئيس الانتقالي.. اجتماع موسع بالضالع يشدد على رفع الجهوزية القتالية استعداداً لأي طارئ.
--  17-year-old dies 8 days after assault by group of teens in Delhi
--  Apartment prices in Iran’s Tehran down
--  Gabi Balint a revenit online ca să anunțe viitoarea echipă a lui Adi Mutu
--  مصطفى بكري: أبطال القسام يصنعون ملحمة تاريخية
--  اميركا في عُزلة دوليّة بسبب دعمها للاحتلال
--  حكومة حرب إقتصادية
--  Isigny-sur-Mer : quand la magie de Noël crée du lien
--  Koszmarna Wigilia reprezentanta Polski. Zmarnował karnego w 90. minucie
--  Авіація ЗСУ показала "клас": які удари окупантам приніс Святвечір
--  Christmas Eve 2023 pub quiz - test your general knowledge with these 20 questions
--  Rubens Sambueza confiesa que quería retirarse del futbol con el Club América
--  В Орле для детей провели мастер-класс по созданию ёлочной композиции
+-  Niños y mayores disfrutan de la visita de Papa Noel en La Nadala de La Vila
