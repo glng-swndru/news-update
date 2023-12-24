@@ -1,11 +1,11 @@
 # Latest News
--  Dólar hoy y dólar blue hoy, en vivo: cuál es la cotización del domingo 24 de diciembre minuto a minuto
--  Kamyonun arkasından tutunan çocukların tehlikeli oyunu yürekleri ağıza getirdi
--  Filistin: İsrail BMGK'nin Gazze'ye yardım kararının uygulanmasını engelliyor
--  남양주시, 오남역 앞 도시계획도로 개통
--  구리시, 2023년 환경동아리 활동 지원사업 최종성과 보고회 개최
--  직장인 10명 중 4명, 올해 가장 힘들었던 일 '열악한 노동조건' 응답
--  윤대통령 지지율 38.8%… 與 비대위원장 적합도 1위 한동훈
--  공진원, 사업 성료
--  Günther fordert „normalen Arbeitsmodus“ von Ampel-Koalition
--  세종시 목욕탕 참변…감전으로 3명 모두 숨져
+-  عاجل.. أمطار رعدية وضباب على الرياض و4 مناطق
+-  Laura Lynch: Dixie Chicks Founding Member Dies Aged 65 in Tragic Head-On Car Crash in Texas
+-  코트라 "내년 반도체·화장품 수출 10% 증가"
+-  Ola Electric IPO: Checkout top 10 key risk factors from the draft papers
+-  Bu meyve tam bir antioksidan! Dağda yetişiyor, gelen geçen topluyor... 200 liradan satılıyor ama kapış kapış gidiyor
+-  “공정위 온플법, AI산업 죽일 것”…법조·IT업계 한목소리 ‘질타’
+-  Polis masih buru wanita hilang bersama teman lelaki 10 hari lalu
+-  BUDO'da sefer iptalleri
+-  Cenzurirani Božič in utišani Bog
+-  “หมอช้าง” ทำนายดวง 12 ราศี ปี 2567 บอกหมดเปลือกไม่มีกั๊ก!
