@@ -1,51 +1,11 @@
 # Latest News
--  «Этот ритуал появился не очень давно, но уже прижился»
--  Sedam načina kako potrošiti dodatnih 100 kalorija na dan
--  Postoje mjesta na svijetu gdje je Božić zabranjen: Pogledajte gdje se ne smije slaviti
--  غيّر طريقته في غزو خلايا الجسم.. هل يستهدف متحور كورونا الجديد الأمعاء؟
--  ‘Bigg Boss 17’: Isha Malviya decides who’s evicted from show, says ...
--  Christmas 2023: Dua Lipa enjoys her time in India, check out her happy pictures
--  Яқин Шарқдаги вазият: ЦАҲАЛ Ғазо шимолида назорат ўрнатганини айтмоқда; Қизил денгизда савдо кемалари ўққа тутилмоқда.
--  عاجل.. توقعات بهطول أمطار رعدية من اليوم وحتى السبت المقبل على هذه المناطق
--  تجاوز عمره 15 عاماً هل يلزمه إصدار الهوية الوطنية؟
--  أمير القصيم يطلق المها الوضيحي والظبي الريم لأول مرة في المنتزة الوطني بالمنطقة
--  Protest ispred RIK u Beogradu: Traži se poništavanje izbora na...
--  Calciomercato Milan, Kehrer in pole per la difesa: Furlani convinto da questa cosa
--  Muere atropellada una mujer en Crecente
--  Apagón: Trabajan en restablecer energía eléctrica
--  Más de 190 aprehendidos en las últimas 24 horas
--  Roban 2.000 galones de gasolina a la Armada en el Pacífico colombiano
--  Tom Sandoval leaves Missouri bar with mystery woman after sharing anti-cheating PSA
--  Så firar idrottsstjärnorna jul: Khaddi Sagnia dyker upp på Nordpolen (?)
--  Περιστέρι – ΑΕΚ 89-78: Η ομάδα του Βασίλη Σπανούλη λύγισε την Ένωση
--  Testing negative but still feeling sick? Doctors explain why
--  Environment Canada warns travelers to slow down as fog hovers across Ontario
--  Hijos del solar
--  Declaran legal detención de 'El Cumbias'
--  Vuelca Ómnibus de México en la vía corta y deja 30 heridos
--  Selenskyj sendet Weihnachtsgrüße: „Das Böse wird besiegt“
--  Džeko se sukobio sa Icardijem, napeto prvo poluvrijeme derbija
--  „Noi ne-am pus viețile în pericol”. Șoferi blocați pe munte după ce au ignorat avertismentele polițiștilor
--  Ações educativas do Detran alcançaram mais de 60 mil pessoas no Estado em 2023
--  Icardi penaltı bekledi, hakem Arda Kardeşler VAR ile konuştuktan sonra 'devam' dedi!
--  Özgür Özel’den Noel mesajı
--  Fenerbahçe-Galatasaray derbi tarihinde görülmemiş istatistik!
--  Acaba novela de Mbappé: ya tomó una decisión… ¿le dará el ‘sí’ al Real Madrid?
--  Kumaram Bheem Asifabad: మల్లన్న దర్శనానికి పోటెత్తిన భక్తులు
--  Paranormal activity in Almeria
--  'I won £800k on the lottery but it ruined my life and I lost everything'
--  Počeo sedmi protest opozicije ispred RIK-a, prisutna žandarmerija
--  ديوان الخدمة المدنية والتطوير الحكومي يدشن منصة "شارك" لتوحيد تجربة المتعاملين
--  Сбогом: Почина големият гръцки певец Василис Карас - Труд
--  Bartosiak: Myślę, że jesteśmy o krok od implozji państwa ukraińskiego
--  L'assegno che sostituisce il Reddito di cittadinanza: chi riceve 10.920 euro
--  KUMA KAČAVENDA POPUSTILA NA PRAZNIK Milena rešila da dozvoli Samiru da pokušaju pa kako bude
--  "People were crowdsurfing in the lotus position." Dharma are a Taiwan-based Buddhist collective that play death metal and have a nun in their ranks. Chances are, you've never met another band like them
--  العراق يستعيد ملياري دينار بقضايا فساد لمسؤولين سابقين
--  Latin Patriarch takes Christmas procession route
--  El mensaje del capitán Ramos: "Hay cosas que mejorar y lo haremos, juntos"
--  Кой е големият празник у нас - Бъдни вечер или Коледа? Отговорът на етнолог
--  'Euphoria' star Wanna Walton to make pro boxing debut
--  曾是中年文組魯蛇，他如何從Subway店長轉職AI軟體技術長？
--  勞基法規定「賺錢要分」，老闆不發年終獎金違法嗎？關鍵在「這條法規」
--  Niños y mayores disfrutan de la visita de Papa Noel en La Nadala de La Vila
+-  رانا ثنا اللہ کی گاڑی کو حادثہ، تشویشناک خبر آگئی
+-  Ucrânia vai celebrar Natal pela 1° vez em 25 de dezembro
+-  "התחלה משמחת הפכה לסוף החיים": אריה ריין הספיק להדליק עם משפחתו נר חנוכה, ונפל בקרבות
+-  Вучич: Сербия никогда не признает Косово
+-  On the weekend before Christmas, ‘Aquaman’ sequel drifts to first
+-  Jury finds man guilty of attempted strangulation
+-  Łotwa to bardzo dobry rynek dla polskich firm
+-  GG's 2023 Game of the Year: Parallel
+-  İsrail, bir askerinin daha öldürüldüğünü açıkladı
+-  Boy, 3, set to finally spend Christmas at home after three life-saving heart surgeries
