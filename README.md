@@ -1,51 +1,11 @@
 # Latest News
--  Appeal after man attacked by masked gang in Paisley flat
--  Typical American family got about 37% richer, in real terms, between 2019 and 2022
--  العامة للكهرباء تعلن دخول المنطقة الشرقية في “إظلام تام”
--  Mauricio Pochettino explains why Moises Caicedo missed Chelsea’s clash at Wolves
--  Kai Cenat loses top spot on Twitch as Jynxzi overtakes him again with huge sub count
--  Video appears to show 'exceptional levels of rat and mice infestation' troops are facing on the front lines in Ukraine
--  Gemini 25 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Mungesa e fuqisë punëtore, sfide e kompanive për vitin 2024
--  وزير الدفاع التركي يؤكد دعم بلاده لاستقرار ليبيا
--  5 лучших канапе на Новый год 2024: пошаговые рецепты
--  Condò: "Inter, vittoria nonostante il peso supplementare. Per lo Scudetto al massimo sarà duello"
--  Süper Lig'de 18. hafta: Kasımpaşa'nın konuğu Çaykur Rizespor
--  Ново земетресение в окръг Вранча в Румъния - Труд
--  “Anthrobots” successfully tested by Biomedical Engineers at Tufts University
--  Bebek bekleyen Tuğçe Tayfur ve Muhammet Aydın’dan şok hamle! Ayrıldılar mı?
--  Man evicted after posting raw octopus through widow’s letterbox in neighbour row
--  Question vin : quel vin choisir à la place d’un vin doux ? La réponse de notre spécialiste
--  Beaurain: opération Caïza, 60 ans de soutien à la Bolivie
--  Daftar Lengkap Pemuncak Klasemen Saat Natal di Era Premier League: Musim Ini Arsenal Juara?
--  Un cuento
--  Prince Andrew ‘in torment’ as name ‘set to appear’ in unsealed Jeffrey Epstein docs alongside paedo’s rich & famous pals
--  I quit my job in consulting and spent $7,000 on a 9-week coding boot camp in Bali. It's given me a whole new take on imposter syndrome.
--  Il City a cannone su Echeverri: pronti 25 milioni per il 17enne del River Plate
--  ‘Brilliant’ Aldi trolley trick will make your shopping less stressful
--  Dublin GAA star celebrates Christmas engagement to partner
--  „Navzájem se vlastně máme rádi“. Pražský primátor rozléval rybí polévku
--  الأحدب مستنكرا إحراق شجرة الميلاد في طرابلس: ماذا يفعل رئيس الحكومة ووزير الداخلية ونواب طرابلس؟
--  אלפים מלווים את רס"ר אוחנה ז"ל בדרכו האחרונה
--  Taurus 25 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  La situación política, Gaza y el papel de la princesa centrarán el discurso navideño de Felipe VI
--  نادي الصقور يتعاقد مع المدرب عبد الحفيظ إربيش مدربا للفريق الأول لكرة القدم
--  فؤاد عبد الواحد يحتفل بألبومه الجديد في الرياض
--  В Минобороны проведен итоговый брифинг за 2023 год для военных атташе стран-партнеров
--  أصالة جدة للمرة الأولى
--  خاص - ظافر العابدين : لم أخف من مقارنتي بمحمود ياسين .. وهكذا كانت ردة فعلي على كلام لبلبة ويسرا
--  ريم الشريف تثير جدلاً بتصريحها أن تفسير القرآن محرف والإسلام لم يحرم الخمر
--  الدكتورة يومي: "أنا هربانة من الفقر"-بالفيديو
--  Marruecos apuesta por el desarrollo con el acceso del Sahel al Atlántico, un punto de inflexión estratégico
--  İlham Əliyev Ağdama getdi
--  Dok su mu uručivali Oskara, njoj se rušio ceo svet: Glumica otkrila sve o trenutku velike tuge
--  Bakan Güler yaralı askerleri ziyaret etti
--  Meclis'te fahiş kira tepkisi: Kiralık uygun ev bulmak hayal oldu!
--  Rusia afirma que derribó tres cazas y un bombardero ucraniano en un día
--  Security is stepped up around Christmas celebrations in Germany and Austria over attack concerns
--  IND Vs AUS: भारतीय महिला क्रिकेट टीम ने रचा इतिहास, ऑस्ट्रेलिया पर टेस्ट में पहली जीत
--  האנה מונטנה: לא תאמינו לשינוי המוחלט במראה של פריס הילטון
--  כדי להתמודד עם הצעירים המורעלים בארה"ב, ישראל צריכה לשנות גישה
--  Un joven disfrazado de Papá Noel muere al caer de un piso 24 en un espectáculo navideño en Rusia
--  ‘Our fight is not with govt…,’ wrestler Sakshee Malikkh hints at a possible return
--  Renewables Are On Track to Surpass Coal Power in the United States
+-  Śnieg dał się we znaki. Blisko 150 kolizji w województwie
+-  Ei kehitystä – Ruotsi hakkaa Suomen NHL:ssä ylivoimaisesti
+-  Kickoff | 'I wanted to send disrespectful Man City star to hell'
+-  رئيس جامعة الدلتا التكنولوجية بالمنوفية يجتمع مع أعضاء هيئة التدريس
+-  Trujillo: Contraloría detecta deficiencias en obras que ejecuta Arturo Fernández
+-  Ted DiBiase Recalls Shawn Michaels’ Heat In WWE, Sycho Sid As WWE Champion
+-  Ortom Distributes Food Items, Money, Cows To Kinsmen, Preaches Peace At Yuletide
+-  La electricidad en el mercado mayorista bajará a 63,09 euros/MWh en el día de Navidad
+-  Incendio en un horno de fundición de níquel en Indonesia deja 13 muertos y 46 heridos
+-  Camiones empiezan a cruzar la frontera polaca tras fin del bloqueo de agricultores, según Kiev
