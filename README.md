@@ -1,11 +1,51 @@
 # Latest News
--  Qarax goor dhaw lagu dilay mid ka mida shaqaalaha Hormuud.
--  Las empresas de telecomunicaciones nigerianas esperan un aumento de los ingresos gracias a las llamadas y el uso de datos en Navidad
--  SBI y Dalmia Bharat reciben recomendaciones de compra, precios objetivo establecidos
--  Extensas zonas de Australia soportan una ola de calor que eleva el riesgo de incendios forestales
--  Investigations underway following alleged sexual assault in West Donegal
--  Cae con carrizos de cocaína en Coclé
--  全球首例，美軍與新創公司成功以量子無線電進行長距離收發
--  Суд разрешил вылет задержанного во Франции самолета, перевозившего 300 индийцев
--  Financial Times: Ako Rusija pobijedi, otvara se nekoliko scenarija
--  Ο Σπανός επέστρεψε στον Ιωνικό
+-  Adalet Bakanlığı Sınavları tamamlandı! Sorular ve cevap anahtarı yayında
+-  Sneh v Malých Karpatoch sa topí takým rýchlym tempom, akým napadol: V pondelok už nebude
+-  Rakúsko zadržalo osoby podozrivé z islamizmu, posilňuje ochranu chrámov a trhov
+-  Na strednom Slovensku je bez elektriny naďalej vyše 13-tisíc odberných miest
+-  Aj umelé stromčeky si zaslúžia údržbu: Pár jednoduchých trikov, ako ich vyčistiť a predĺžiť im životnosť!
+-  PRIZNANIE mamy z filmu Sám doma vás odrovná: Preboha! Ono sa to fakt stalo
+-  «Нефтчи» попрощался с главным тренером Адрианом Муту
+-  В Британии заявили, что Запад не может «проиграть войну России против Украины»
+-  Blake Shelton Explains Why He Won’t Spend New Year’s Eve With Gwen Stefani in 2023
+-  Astell & Kern A&ultima SP3000 review: a high-end hi-res digital audio player
+-  Lo que debes saber de las bebidas vegetales, una alternativa sana a la leche
+-  Samsung Galaxy Ring release date predictions: When do we think we'll see it?
+-  Kolege profesora koji se sukobio s učenikom poslali pismo javnosti: Imamo potrebu reći neke stvari
+-  Un vida repartiendo ilusión entre los niños y niñas ingresados
+-  Más de 25 años poniendo la banda sonora al Olentzero en el Hospital de Basurto de Bilbao
+-  Aparatoso accidente coche-moto en Tenerife
+-  مباغتة أوكار للرذيلة في الكويت.. وقرار موجع بشأن عشرات الموقوفين
+-  "انظر في وجه محدثك ولا تفرض رأيك" .. أبرز 10 نصائح لاجتياز مقابلات العمل بنجاح
+-  برنامج ريف يوضح القطاعات المشمولة بالدعم في المنطقة الشرقية
+-  المسجد النبوي يستقبل أكثر من 5 ملايين مصلٍّ وزائرٍ خلال الأسبوع الأول من جمادى الثاني
+-  2024 could be the year the PC finally dumps x86 for Arm, all thanks to Windows 12 and Qualcomm's new chip
+-  “Every guitarist should understand the drums. It's important to know where the kick and snare should land to complement your riffs.” Dave Grohl on the making of the Foo Fighters' There Is Nothing Left To Lose
+-  Anna joulun lahjapapereille roskiksen sijasta uusi elämä – tässä vinkit
+-  I Ängelholm kommer tomten på vattenskoter
+-  Muhaimin Iskandar Ungkap Alasan Dulu Dukung IKN
+-  Man döms för tolv olika brott
+-  From ‘Doctor Who’ To ‘The Count Of Monte Cristo’: Deadline’s 15 Buzzy International TV Dramas To Look Out For In 2024
+-  Dari Lesti Kejora hingga Nagita Slavina Hadiri Perayaan Ulang Tahun MS Glow
+-  Han bjuder hemlösa på mat och julklapp
+-  PUTIN IMA POBEDU U DŽEPU Rusija neće napustiti Krim, Donjeck i Lugansk, strategija EU ne funkcioniše
+-  DOLAZAK U PARTIZAN SVE IZVESNIJI Džejlin Smit promenio agenta
+-  ‘American Fiction’: How Cord Jefferson Took on Hollywood and Won
+-  The Week In Gaming Opinions, From 2023's Best To 2024's Most Anticipated
+-  Kourtney Kardashian will ihrem After-Baby-Body nur Gutes tun
+-  What’s Popular On Streaming Now
+-  Son dakika... Fenerbahçe-Galatasaray derbisinin ilk 11'leri belli oldu!
+-  PERIGO: NATAL COM TEMPORAIS E VENTANIA NA REGIÃO SUL
+-  باحثون يطورون لقاحاً لخفض الكولسترول
+-  Вучиќ: Тешко дека Ана Брнабиќ повторно ќе биде премиерка
+-  The horror! Jim Gaffigan on horrible kids' movies
+-  Tahun Baru, Pertunjukan Air Mancur Menari Tirta Cerita TMII Bakal Ditambah
+-  News24 | Fuel tanker explodes on N2 in Durban, 5 people killed in separate crash
+-  Sickening 'worst rugby tackle of 2023' watched by 4.7 million viewers
+-  Kuningatar Silvia muistelee suhteensa alkuaikoja: Piiloutui puskaan
+-  Íñigo Llopis y Beatriz Lérida, vencedores en la Liga Axa de Natación paralímpica
+-  Testing negative but still feeling sick? Doctors explain why
+-  Shocking Video: నల్ల పులిని చూశారా? ఒడిశా అడవుల్లో అరుదైన పులులు.. వీడియో వైరల్!
+-  Israel is losing ground at the lowest place on earth
+-  „30 000 000 000. D linija.“ Didžiulis smūgis Maskvai. Skelbiama, ką daro Kinija
+-  [ŽT] „Maskva degs.“ Neįtikėtini įvykiai (Video)
