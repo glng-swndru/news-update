@@ -1,11 +1,11 @@
 # Latest News
--  Сергей Ковальчук в пятый раз возглавит брестское "Динамо"? Клуб намекнул на это в ролике на YouTube
--  У "Нефтчи" Богомольского — новый главный тренер
--  Юлия Слесарчик: "Возрастные игроки с нами не церемонились. Порой доходило до слез и неприятных мыслей"
--  Азербайджан. "Ассист" Богомольского помог "Нефтчи" победить "Кяпаз" Василючека и Хвалько
--  Kerala To Kashmir, Nation Glows With Vibrant Lights On Christmas Eve - Watch
--  Newly-appointed ministers in Lumbini Province sworn in
--  شباب وضباب| كتب خالد شرفان
--  Toma nota: ¿cuáles son los impuestos que se cobran en Miami?
--  Elf viewers are all baffled after only just realising 'legendary Christmas star' appears in the Will Ferrell movie
--  Jarlan Barrera, ya en Deportivo Cali: ¿Y cuándo lo presentan?
+-  Soccerladuma | Official: Man Utd Announce R29.7 Billion Takeover
+-  U Ankari održan 'Veliki skup podrške za Gazu'
+-  Ronaldo se oglasio nakon viralne snimke s McGregorom
+-  Know the cost of DIY
+-  Lisieux : les Restos du cœur contraints de diminuer le nombre de repas distribués
+-  Falaise : la statue de Guillaume-le-Conquérant, classée au titre des monuments historiques ?
+-  Saint-Valery-sur-Somme : à 22 ans, Laurie se lance dans la peinture sur vitres
+-  Videoblog: Was war der Schlüssel zum Heimsieg gegen Koblenz?
+-  Manchester United 'target' Benjamin Sesko 'open to Premier League transfer' and other rumours
+-  Videoblog: Was war der Schlüssel zum Heimsieg gegen Koblenz?
