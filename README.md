@@ -1,11 +1,11 @@
 # Latest News
--  ما سبب الإصابة بالاكتئاب الشتوي؟.. اعرف الأعراض وطرق العلاج
--  La fotocamera di iPhone 15 è la migliore del 2023 secondo un popolare canale YouTube
--  So genervt hat man Superstar Cristiano Ronaldo lange nicht gesehen
--  HJK kaltoinkohtelema seuraikoni saa kostomahdollisuuden
--  Aucun crime électoral n’a été commis par les candidats, dixit Bouasker
--  Beşiktaş, bu maça da eksik çıkacak
--  İrem Derici'den Murat Boz itirafı!
--  Bénévolat : cette commune de l'Eure a remis une médaille à quatre habitants engagés
--  Sambut Nataru, ada 5 Layanan Posko Siaga Mitsubishi Motors di Pulau Jawa
--  Woman ‘engaged to a US prisoner’ she met through a website is branded ‘crazy’ by trolls but she ‘knows it’s true love’
+-  Haut op RTL, RTL.lu an um RTL Play vun 22.30 Auer un: Chrëschtmetten aus der Kathedral
+-  AK Partili Belediye Başkanı Birol, kalp krizi sonucu hayatını kaybetti
+-  Motosikletten düşen genç aracın altında kalmaktan son anda kurtuldu
+-  Şehidimizin son videosu yürekleri sızlattı: Komutanım yolumuz ne yolu?
+-  역대급 재회 나올 수도 있다!…'친정팀 상대로 세리머니' 했는데 복귀 가능성 ↑
+-  F1 : Verstappen va briser le rêve d’Hamilton ?
+-  Datum revela un alto nivel de desaprobación para el Ejecutivo al concluir el año 2023
+-  Johnny Hallyday "papa cool", mais… Ses filles Jade et Joy révèlent ce qu'il leur interdisait de faire, et c’est étonnant
+-  Cuatro muertos en una nueva oleada de bombardeos rusos en Jersón
+-  الحكومة تعاملت مع 160 شكوى حول التجارة الإلكترونية
