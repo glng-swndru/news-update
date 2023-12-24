@@ -1,51 +1,51 @@
 # Latest News
--  Amanece la ciudad con sensación térmica de 4 grados
--  Sufre Tabasco caos... y dicen 'fue confusión'
--  ضبط 1400 سيارة ودراجة نارية في صنعاء
--  الاحتلال يعتقل 9 قلسطينيين في الضفة
--  देश की खबरें | कोरोना वायरस का जेएन.1 स्वरूप: मंत्री ने वेंटिलेटर की उपलब्धता सुनिश्चित करने के निर्देश दिये
--  देश की खबरें | जम्मू कश्मीर : सेना ने शहीद जवानों को दी श्रद्धांजलि
--  سحب قرعة كأس الرابطة نهاية ديسمبر
--  Beijing records most hours of sub-zero temperatures in December since 1951
--  AKP asgari ücret için tarih verdi
--  देश की खबरें | अदालत ने अवमानना के लिए ठाणे के दो पुलिस अधिकारियों को कारण बताओ नोटिस जारी किया
--  जरुरी जानकारी | सरकार ने खाद्य पदार्थों की कीमतों को नियंत्रित करने के लिए कई कदम उठाए: गोयल
--  Diego Díaz y Carmen Rosa Pérez ganan la Copa de Cantabria de Carreras por Montaña Vertical 2023
--  La CENCO rejette la bénédiction des couples de même sexe en RDC, en réponse à la déclaration du Vatican
--  "Фокус на внутренних делах". Бразилец о том, почему его страна не активна на пути к многополярности
--  Larm om knivman i Linköping
--  Милан Милан сака Конте да биде наследникот на Пиоли
--  Luisa Baptista tem melhora após ser atropelada e sofrer múltiplas fraturas
--  Цуренко: Допускати до Олімпіади росіян – абсолютно нерозумне рішення
--  Portugal: Schlaf schön! Wie übernächtigte Gäste im Schlafhotel endlich Ruhe finden – oder auch nicht
--  محافظ المنيا يتابع خطة الرصف على مستوى مراكز المحافظة
--  How to Watch Wolves vs Chelsea, Premier League 2023–24 Live Streaming Online in India? Get EPL Match Live Telecast on TV & Football Score Updates in IST
--  Here's how to turn Skyrim into the year's 3 biggest games with the power of mods to beat inflation and save money
--  World News | Furnace Explosion at Chinese-owned Nickel Plant in Indonesia Kills at Least 13 and Injures 46 Others
--  สตช.ไฟลุก! ‘บิ๊กต่าย’ สั่งตรวจสอบด่วน หลัง ‘มท.1’ โผล่บุกบ่อน 2 เมืองใหญ่
--  Стоичков: Политиката не е за мен! На здрава глава лед да слагам!
--  India News | J'khand IMA Seeks CM Help to Arrest Extortionists Who Demanded Rs 1cr from Dhanbad Doctor Couple
--  Entertainment News | Shah Rukh Khan's 'Dunki' to Be Screened at Rashtrapati Bhavan
--  وزير الصحة وأمين محلي حضرموت يطلعان على التجهيزات النهائية لتشغيل مركز المكلا للعلاج الإشعاعي
--  Indian-flagged oil tanker hit by drone fired by Houthis in Red Sea: US military
--  देश की खबरें | खेल मंत्रालय ने आईओए से डब्ल्यूएफआई का कामकाज देखने के लिए तदर्थ समिति गठित करने को कहा
--  Desejo do Botafogo, Medina pode oferecer diferentes opções táticas a Tiago Nunes
--  Com orçamento limitado, Santos corre para readequar elenco a nova realidade financeira
--  Evo rezultata s malonogometnog turnira koji se ovih dana održava u Biogradu
--  Duílio encerra gestão no Corinthians com 'saldo negativo' nas contratações
--  Infortunio Tomori, quante e quali partite salterà il difensore: a rischio i match di Europa League!
--  Jak skorzystać z ChatGPT i innych usług AI. Co można zrobić? Poradnik
--  Davíð Smári framlengir við Vestra (Staðfest)
--  Três pessoas são baleadas em Sorriso
--  Bayern Munich striker Harry Kane looking forward to his first ever Christmas break
--  Amasya'da otomobil refüje çarptı! 5 kişi yaralandı
--  Ilha Maldita foi destino brasileiro mais procurado, em 2023
--  عبر مؤسسة " نداء " للتنمية والتطوير .. الهلال الأحمر التركي يوزع سلال غذائية في أبين
--  ارتفاع مؤشر بورصة قطر
--  Fortaleza acerta negociação com zagueiro argentino para 2024
--  IND vs SA 1st Test: इस मामले में ईशांत शर्मा को पीछे छोड़ सकते हैं जसप्रीत बुमराह, साउथ अफ्रीका के खिलाफ टेस्ट सीरीज में होगी सबकी निगाहें
--  Izrael bombardira sjeverni dio Pojasa Gaze
--  Delhi Fire: Blaze Erupts in Godown in Karawal Nagar, 12 Fire Tenders Rushed to Spot
--  Missa do Galo: por que a principal celebração do Natal recebe esse nome?
--  İran uçağı motor arızası nedeniyle İsfahan'a zorunlu iniş yaptı
--  Netanyahu'dan itiraf gibi açıklama: Savaş bize çok ağır bedel ödetiyor
+-  Appeal after man attacked by masked gang in Paisley flat
+-  Typical American family got about 37% richer, in real terms, between 2019 and 2022
+-  العامة للكهرباء تعلن دخول المنطقة الشرقية في “إظلام تام”
+-  Mauricio Pochettino explains why Moises Caicedo missed Chelsea’s clash at Wolves
+-  Kai Cenat loses top spot on Twitch as Jynxzi overtakes him again with huge sub count
+-  Video appears to show 'exceptional levels of rat and mice infestation' troops are facing on the front lines in Ukraine
+-  Gemini 25 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Mungesa e fuqisë punëtore, sfide e kompanive për vitin 2024
+-  وزير الدفاع التركي يؤكد دعم بلاده لاستقرار ليبيا
+-  5 лучших канапе на Новый год 2024: пошаговые рецепты
+-  Condò: "Inter, vittoria nonostante il peso supplementare. Per lo Scudetto al massimo sarà duello"
+-  Süper Lig'de 18. hafta: Kasımpaşa'nın konuğu Çaykur Rizespor
+-  Ново земетресение в окръг Вранча в Румъния - Труд
+-  “Anthrobots” successfully tested by Biomedical Engineers at Tufts University
+-  Bebek bekleyen Tuğçe Tayfur ve Muhammet Aydın’dan şok hamle! Ayrıldılar mı?
+-  Man evicted after posting raw octopus through widow’s letterbox in neighbour row
+-  Question vin : quel vin choisir à la place d’un vin doux ? La réponse de notre spécialiste
+-  Beaurain: opération Caïza, 60 ans de soutien à la Bolivie
+-  Daftar Lengkap Pemuncak Klasemen Saat Natal di Era Premier League: Musim Ini Arsenal Juara?
+-  Un cuento
+-  Prince Andrew ‘in torment’ as name ‘set to appear’ in unsealed Jeffrey Epstein docs alongside paedo’s rich & famous pals
+-  I quit my job in consulting and spent $7,000 on a 9-week coding boot camp in Bali. It's given me a whole new take on imposter syndrome.
+-  Il City a cannone su Echeverri: pronti 25 milioni per il 17enne del River Plate
+-  ‘Brilliant’ Aldi trolley trick will make your shopping less stressful
+-  Dublin GAA star celebrates Christmas engagement to partner
+-  „Navzájem se vlastně máme rádi“. Pražský primátor rozléval rybí polévku
+-  الأحدب مستنكرا إحراق شجرة الميلاد في طرابلس: ماذا يفعل رئيس الحكومة ووزير الداخلية ونواب طرابلس؟
+-  אלפים מלווים את רס"ר אוחנה ז"ל בדרכו האחרונה
+-  Taurus 25 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  La situación política, Gaza y el papel de la princesa centrarán el discurso navideño de Felipe VI
+-  نادي الصقور يتعاقد مع المدرب عبد الحفيظ إربيش مدربا للفريق الأول لكرة القدم
+-  فؤاد عبد الواحد يحتفل بألبومه الجديد في الرياض
+-  В Минобороны проведен итоговый брифинг за 2023 год для военных атташе стран-партнеров
+-  أصالة جدة للمرة الأولى
+-  خاص - ظافر العابدين : لم أخف من مقارنتي بمحمود ياسين .. وهكذا كانت ردة فعلي على كلام لبلبة ويسرا
+-  ريم الشريف تثير جدلاً بتصريحها أن تفسير القرآن محرف والإسلام لم يحرم الخمر
+-  الدكتورة يومي: "أنا هربانة من الفقر"-بالفيديو
+-  Marruecos apuesta por el desarrollo con el acceso del Sahel al Atlántico, un punto de inflexión estratégico
+-  İlham Əliyev Ağdama getdi
+-  Dok su mu uručivali Oskara, njoj se rušio ceo svet: Glumica otkrila sve o trenutku velike tuge
+-  Bakan Güler yaralı askerleri ziyaret etti
+-  Meclis'te fahiş kira tepkisi: Kiralık uygun ev bulmak hayal oldu!
+-  Rusia afirma que derribó tres cazas y un bombardero ucraniano en un día
+-  Security is stepped up around Christmas celebrations in Germany and Austria over attack concerns
+-  IND Vs AUS: भारतीय महिला क्रिकेट टीम ने रचा इतिहास, ऑस्ट्रेलिया पर टेस्ट में पहली जीत
+-  האנה מונטנה: לא תאמינו לשינוי המוחלט במראה של פריס הילטון
+-  כדי להתמודד עם הצעירים המורעלים בארה"ב, ישראל צריכה לשנות גישה
+-  Un joven disfrazado de Papá Noel muere al caer de un piso 24 en un espectáculo navideño en Rusia
+-  ‘Our fight is not with govt…,’ wrestler Sakshee Malikkh hints at a possible return
+-  Renewables Are On Track to Surpass Coal Power in the United States
