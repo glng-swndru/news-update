@@ -1,51 +1,11 @@
 # Latest News
--  Манджгаладзе: Бидзина Иванишвили – это битый козырь «Грузинской мечты»
--  Kapstadt: Fünf Highlights der Stadt in Südafrika
--  TÜİK açıkladı: Aylık ortalama kişi başı kazanç 12 bin 450 TL
--  Buschmann: Justizminister will Bekenntnis zu Israel bei Einbürgerung in Deutschland
--  مفتي سلطنة عمان يوجه رسالة إلى اليمنيين كافة
--  الدعم النفسي لضحايا الحرب
--  Можем да следим докъде в стигнал Дядо Коледа в реално време онлайн
--  Βασίλης Καρράς: Έτσι τον αποχαιρέτησε η Άννα Βίσση
--  El pavo en Navidad: Una tradición que cruzó océanos
--  Kvíz: "Zas ti to spadlo, asi vítr, ne?" Poznejte vánoční pohádky podle slavné hlášky
--  ابتكار هوائي محمول يخترق الماء واليابسة
--  Décès de Mahmoud Triki, diplomate et homme de lettres
--  Дневен хороскоп за 25 декември: Вашата стабилност е клучна за успехот
--  Türkiye’ye örnek olan gelenek! 27 yıldır şehit ailesini yalnız bırakmıyorlar
--  Wilders'ten Erdoğan eleştirisi
--  Undang-undang anti-Ali Baba hukum rakyat Malaysia sewa lesen kepada warga asing
--  Mengenal Kota Bethlehem di Palestina, Tempat Kelahiran Yesus yang Tiadakan Perayaan Natal Tahun Ini
--  Maç bitti tartışmalar devam etti! Dzeko-Icardi gerginliği saha dışına taştı
--  Евангелическо-баптистская церковь отмечает Рождество Христово
--  Инстасамка раскрыла действенный способ похудеть на 20 килограммов
--  Google to Fire 30,000 More Employees as AI Takes Over Ad Sales Job
--  Ledakan Tungku Smelter PT ITSS Diduga karena Lemahnya K3
--  Тарасова ответила осудившей ее за оскорбления фигуристов олимпийской чемпионке
--  Журналистка раскрыла секрет прогресса Алексея Протаса в НХЛ
--  Руководство ТСЖ элитного жилого комплекса в Москве заподозрили в хищениях
--  পাঁচ কারণে ‘ডানকি’র চেয়ে এগিয়ে গেল ‘সালার’
--  Николай Денков: На този светъл ден да преодолеем различията си
--  Zahl der Arbeitstage sinkt 2024 leicht
--  KRAPOVIĆ TVRDI DA JE DOSTA BILO PARTIJSKOG ZAPOŠLJAVANJA
--  Radics Gigi meglepő vallomása a volt párjáról: "Nap mint nap bebizonyítja, hogy jobb apukája nem is lehetne a kislányomnak" - videó
--  Με Μιλγουόκι Μπακς και αγώνες για το ΝΒΑ οι αθλητικές μεταδόσεις των Χριστουγέννων(25/12)
--  TRANSFER HABERİ: Galatasaray'da Yusuf Demir şoku! Ocak ayında...
--  Niederlande-Tipp: Traditionelle Töpferkunst in Tegelen bei Venlo
--  Почувствуван земјотрес во Скопје, епицентарот во Косово
--  Main Atal Hoon Song ‘Desh Pehle’ Out: Makers of Pankaj Tripathi-Starrer Drop First Song on 99th Birth Anniversary of Former Prime Minister Atal Bihari Vajpayee (Watch Video)
--  India vs South Africa 1st Test 2023 Preview: Likely Playing XIs, Key Players, H2H, and Other Things You Need To Know About IND vs SA Boxing Day Cricket Match in Centurion
--  Zee Real Heroes Awards: `From Meerut To Connaught Place To Savor Ice Cream`, Nitin Gadkari Shares Funny Tale Linked To Delhi-Meerut-Expressway
--  Пожар на руски атомен контейнеровоз, но е овладян
--  Лукашенко отправился в Петербург
--  'Allah'ın elçisiyim' deyip Türk Silahlı Kuvvetleri'ni hedef almıştı: Gözaltına alındı
--  Роструд напомнил о десятидневных новогодних выходных
--  Хванаха крадците на елхата от коледната украса на Перник
--  Can Atalay'ın avukatlarından ikinci kez tahliye başvurusu
--  제주도의회 '매니페스토 약속대상' 연속 최우수상
--  Сильный пожар в гипермаркете «Леруа Мерлен» в Петербурге сняли на видео
--  Галкин поздравил Пугачеву с годовщиной свадьбы
--  Kapstadts bunte Vielfalt: Das sind die 5 Highlights der Stadt
--  Afyonkarahisar’da hava durumu
--  Tak Pernah Pacaran Kelewat Batas, Prinsip Catheez Tuai Pujian
--  देश की खबरें | गरीब, युवा, महिलाएं और किसान मेरे लिए ‘‘सबसे बड़ी चार जातियां’’ : प्रधानमंत्री
+-  Transportadora russa Rossiya retoma voos diretos entre Moscovo e Havana
+-  Larm om villabrand i Orsa
+-  Larm om villabrand i Orsa
+-  Companhias japonesas decidem evitar mar Vermelho após ataques dos Huthi
+-  Sokak ortasında kan donduran cinayet! Sopayla başına defalarca vurup...
+-  İstanbul'da bir gece kulübüne silahlı saldırı
+-  “ชาดา” ขอแสดงความเสียใจ เหตุ ตำรวจ ถูกผู้ป่วยจิตเวชทำร้าย เสียชีวิต ระหว่างเข้าระงับเหตุ
+-  Kurze Weihnachtspause für zwei Südtirolerinnen
+-  Último Natal em 'casa'? Craques portugueses que vão ficar livres em 2024
+-  14 ilde okullar tatil ilan edildi! Valilikten peş peşe açıklamalar geliyor: Giresun, Bingöl, Bayburt, Erzurum, Bitlis...
