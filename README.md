@@ -1,51 +1,11 @@
 # Latest News
--  “나가는 거 안 잡는다”... 라이프치히, ‘한때 레반도프스키 다음가는 공격수’ 판매 준비 완료
--  إسرائيل قدمت مقترحًا من 7 بنود والمقاومة رفضته - تفاصيل
--  مقتل منسق مليشيات المستوطنين (فتية التلال) بـ غزة
--  هل يمكن اكتشاف التوحد في سن مبكر؟
--  بعد الجزائر.. وباء يجتاج الإبل والأغنام بدولة عربية جديدة
--  عاجل.. كيفية تفعيل رخصة القيادة الرقمية عبر تطبيق أبشر
--  لأول مرة .. دولة عربية تصرف مساعدات اجتماعية مباشرة لمواطنيها
--  Revelaron cómo es la transmisión de la encefalitis equina en humanos
--  Adli, Pioli lo ha dimenticato? Nessun minuto contro Monza e Salernitana
--  경기혁신센터, 美 실리콘밸리 VC와 ‘맞손’…韓 스타트업 진출 돕는다
--  Manchester City entra na briga para tirar André do Fluminense, diz jornal
--  Netanyahu po shtyn planet për emigrim vullnetar të palestinezëve në Gaza
--  Paris Hilton looks as glamorous as ever in Christmas PJs as she snuggles up with her 'beautiful family of four' in festive holiday snaps with husband Carter Reum and their two babies
--  Love Island star Matt Zukowski surprises his fiancée Tammy Hembrow with a trip to Japan as they celebrate their first Christmas together
--  Heartwarming moment seven-year-old Virginia girl dances in The Nutcracker after her feet had to be reattached when they were severed in horrific car accident
--  Antonio Pierce gets emotional after Raiders’ stunning Christmas win: ‘Hell of a job’
--  Regresa un vuelo de British Airways de Delhi a Londres tras una alerta de incendio
--  U podgoričkom naselju Siti kvart izbio požar u podrumu kafića
--  Behind the headlines
--  상주제일장례식장 허일진 대표, 상주시에 1000만원 기탁
--  구로구, 내년 모든 경로당에 비상호출벨 설치
--  강서구, 치매관리사업 성과평가 서울특별시장상(대상) 수상
--  이기재 양천구청장 “소통과 혁신의 가치로 기분 좋은 변화 이끌어갈 것”
--  정선군, '2023년 체육인의 밤 행사' 개최
--  "더 이상 아파도 참지 마세요" 관악구, 저소득주민 국민건강보험료 지원 대상 확대
--  남면행정복지센터-자미원 백운사, 동지팥죽 나눔행사
--  정선군, 330억 투입해 선제적 자연재해예방 나서
--  정선 가리왕산 케이블카, 국내 대표 ‘해돋이 명소’ 등극
--  상주 ㈜토리식품, 동지맞이 팥죽 나눔 펼쳐
--  상주시 해동건축사 대표 정용호, 연탄 5000장 기탁
--  상주시 공공산후조리원 개원식 개최
--  상산신문사&(사)수와진의 사랑더하기 생필품 기탁
--  법무부 청소년범죄예방위원 상주지구위원회 쌀 기탁
--  상주시, 탄소중립 생활실천 2년 연속 우수
--  문경관광진흥공단, 희망 2024 나눔켐페인 참여
--  상주모서 김이봉님, 5년간 모은 동전 성금 기탁
--  문경시, 경북도 시군 가축방역평가서 대상 수상
--  상주시, 재난 대응용 드론 기증받다
--  상주시, 경북도 산림자원분야 종합평가 우수상 수상
--  ㈜HCN 화재대피용 방연마스크 상주시 기탁
--  우주항공 산업계·학계 종사자 및 대학(원)생 10명 중 9명, “우주항공청 설립 요구”
--  반려동물 유모차가 아기용 '유모차' 판매량 추월
--  조원태 "아시아나 합병에 100% 걸었다" ... EU 경쟁국, 합병에 비관론
--  Atropella a quince personas y se da a la fuga en Melilla
--  Atropella a quince personas y se da a la fuga en Melilla
--  Nyale Institute calls attention to reproductive justice for child survivors of sexual violence
--  What the December 'cold' full moon means for your star sign: Wild lunar event is set to send emotions spiralling this festive season, astrologers warn
--  Стало известно о взрывах в Николаеве
--  Xəzərə axıdılan tullantı suları içməli suya çevriləcək
--  서울 지하철 노선도 디자인 40년 만에 변경
+-  추신수 완벽 시투…'성탄절 더비' 승리는 SK
+-  Beyonce stuns in sequined bra and double denim as she flies on private jet
+-  Boxing Day Test LIVE: Australia and Pakistan go toe-to-toe at the MCG
+-  Boxing Day Test LIVE: Australia and Pakistan go toe-to-toe at the MCG
+-  Tormenta de nieve complica la movilidad en el Medio Oeste de EEUU en Navidad
+-  MOHAMED SALAH: Učestvujemo u bolu ožalošćenih porodica u Gazi
+-  Anthony Joshua to be ringside for Fury vs Usyk blockbuster as he reveals his ‘creme de la creme’ next fight plan
+-  Anthony Joshua to be ringside for Fury vs Usyk blockbuster as he reveals his ‘creme de la creme’ next fight plan
+-  부산시 '15분도시 비전투어' 사상구 편…하강선대 역사공원 조성 추진
+-  '피의 성탄절'…가자지구 공습에 하루새 250명 사망
