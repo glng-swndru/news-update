@@ -1,11 +1,11 @@
 # Latest News
--  내년 집값 '고금리·대출 규제'가 발목 ... "부동산 불황 장세 가능성"
--  노량, 연휴에도 1위 지키며 220만 관객 돌파
--  금융지주 연말 인사 톱아보니, 핵심은 '조직 슬림화'
--  نتنياهو : انا غائب عن زوجتي منذ شهرين
--  Mit kreativen Lösungen die Kita offenhalten: Was Kita-Leiterinnen in Main-Spessart sagen
--  الدويري: انسحابات الاحتلال للتخلص من معركة فاشلة
--  Kirche mit Graffiti beschmiert
--  La ofensiva contra el mosquito Aedes avanza en Piletas: 200 casas inspeccionadas y 24 fumigadas
--  İYİ Partili Zorlu: Özel'e yönelik bu tutumu doğru bulmuyoruz
--  Balean a mujer por celos; expareja el agresor
+-  Bronte Beach left trashed
+-  İdlib'e düzenlenen hava saldırısında 3'ü çocuk 5 sivil öldü
+-  Prep Athletes of the Week: Hastings' Blake Beissel intently pursues a wrestling hat trick
+-  Diyarbakır'da köpeğe çarpmamak için manevra yaptı! Yol kenarına devrildi
+-  Por qué los hipocondríacos mueren antes que aquellos que se preocupan menos por su salud
+-  Irão diz que contactos com Egito vão "no bom caminho" para "nova página"
+-  Turkey steps up airstrikes against Kurdish groups in Syria and Iraq after 12 soldiers were killed
+-  Incendio forestal en el parque nacional Henri Pittier
+-  Karabük'te karın tadını çıkarmak isteyen sürücünün aracı takla attı
+-  OMS revela testemunhos "dilacerantes" após bombardeamento de campo de refugiados em Gaza
