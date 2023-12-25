@@ -1,51 +1,11 @@
 # Latest News
--  LG경영硏 "내년 경제성장률 1.8%…L자형 장기 저성장 진입"
--  딸기의 계절, 세븐일레븐 '국내산 딸기 3종' 출시
--  "홈쇼핑 1분으로 줄였다"…GS샵, 모바일 최적화 '숏픽' 론칭
--  Leijonat nöyryytti Börje Salmingia – unohtui tv-sarjasta
--  Domestic abuse victims urged to seek help at Christmas
--  XTB: gospodarka USA trzyma się nieźle, ale w Europie bardzo blisko jest do recesji
--  "J’ai réévalué mes priorités" : Karine Ferri maman à 40 ans, elle explique en quoi sa dernière grossesse a été "différente"
--  Endrick, la guinda del pastel y la sombra de Mbappé
--  Zurabişvili də İlham Əliyevi TƏBRİK ETDİ
--  El Real Madrid consuma el traspaso de poderes
--  Venezuela acusa Reino Unido de provocação ao enviar navio de guerra para a Guiana
--  Cara Cek CCTV Lalu Lintas Agar Terhindar Macet Libur Natal 2023
--  V Parizu izgradili 84 odstotkov potrebne infrastrukture za OI
--  المجلس الوطني للذكاء الاصطناعي يناقش محاور المرحلة الثانية من الاستراتيجية الوطنية للذكاء الاصطناعي
--  Manchester City 2023'e damga vurdu: 1 yılda 5 kupa
--  Etats-Unis : l'année désastreuse du Congrès
--  Путин поздравил Вучича с наступающим Новым Годом и Рождеством
--  How does a magnetic compass work? And what happens if you take it to the North Poles?
--  İşte Ole Gunnar Solskjaer'in Beşiktaş'tan talebi
--  507 bin 538 depremzedeye psikososyal destek
--  Ertuğrul Doğan döneminin en iyisi Abdullah Avcı
--  Osmaniye'de Asayiş Şube Müdürlüğü ekiplerinin denetimlerinde 12 şahıs tutuklandı
--  Kayserispor'da Olivier Kemen sözleşmesini feshetti
--  Bečić: Nema više brukanja časne policijske uniforme
--  Devlet desteğiyle Edirne'deki sera alanı genişledi
--  Consolider le leadership multidimensionnel du Royaume
--  Zašto ne biste proveli januar na Crvenom moru?
--  El Gobierno busca empresas para destruir plantaciones de marihuana en Alicante ante la avalancha decomisada
--  El divertido sincericidio de Messi sobre cómo vivió la vuelta a Argentina con la Copa del Mundo: "Pensé que iba a haber más..."
--  Какие матчи КХЛ пройдут в Санкт-Петербурге в новогодние праздники: расписание и время начала игр (25 декабря — 7 января)
--  Elektrické blechy se nebojte. Smarty na baterky je tajný tip z bazaru
--  Останній тиждень 2023 року здивує українців аномальною температурою
--  LSDM “ndihmon” bujqit pak para zgjedhjeve, shihet si ndihmë apo gjah ndaj votave?
--  Estos son los 8 modelos que Hacienda simplificará para hacérselo más fácil a los autónomos
--  KL Alabamassa: Metsän keskeltä löytyy tappiokierteen selättänyt suomalainen tehdas, jonka tuotetta halajaa nyt itse Elon Musk
--  Toppolitiker hoppar av: ”Tråkigt”
--  Selain Jennie Blackpink, 5 Artis K-Pop Ini juga Mendirikan Agensi Sendiri
--  Rovaniemeläismies välitti ulkomaisten netti-ihastuksiensa varoja eteenpäin – tuomittiin rahanpesurikoksesta
--  New iPhone 15 Pro? The 11 features you should try first
--  Riban Demonstran di Beograd Tuntut Pemilu Serbia Diulang
--  Ολυμπιακός - Παναθηναϊκός στον Καρρά: Οι φιέστες των «αιωνίων» στον άρχοντα
--  Kinderkrankengeld: Neue Regeln ab 2024 – das müssen Eltern wissen
--  'I pay for my family's Christmas by decorating people's trees - I've earned £2k'
--  Grlić Radman: Nečuveno je da hrvatski predsjednik zloupotrebljava božićne blagdane
--  El aviso del SEPE sobre lo que ocurre con el paro o prestación de un fallecido
--  Na ruskom nuklearnom ledolomcu nakratko izbio požar
--  Παναθηναϊκός: Ο Σλούκας ισοφάρισε το ρεκορ καριέρας στα κλεψίματα
--  UNEC-də yeni təyinat - FOTO
--  В Махачкале продолжается республиканская ярмарка
--  Τέλη κυκλοφορίας: Η τελική προθεσμία καταβολής για τους οδηγούς – Υπάρχει τελικά παράταση;
+-  Başkan Altay, Konya'da tarımın gelişmesi için 461 milyon lira destek sağladıklarını açıkladı
+-  KONYA BÜYÜKŞEHİR İLK YARIYI LİDER BİTİRDİ
+-  Tekvandocular Konya’da terleyecek
+-  Ereğli Belediye eli boş döndü
+-  Karapınar ilk kez mağlup oldu
+-  BAL’da zirve alev alev
+-  Konya'da yurtta kalan öğrenciler terörü lanetledi
+-  Za jedan od najstrašnijih događaja u povijesti je malo tko čuo: Pogledajte gdje je i kako nastao najveći tsunami
+-  Stjärnan om näthatet: "Massa kvinnor skrev"
+-  Deux cambrioleurs pris sur le fait à Bereldange et Luxembourg
