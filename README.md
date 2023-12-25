@@ -1,51 +1,51 @@
 # Latest News
--  Negli USA si fa quadrato per salvare la US Cup. Noi ci stiamo ‘americanizzando’, loro si stanno ‘europeizzando’?
--  ประชาชนส่วนใหญ่ ยังมั่นใจ ขอใช้รถไฟฟ้าสายสีชมพูต่อ
--  ക്രിസ്മസ് ആഘോഷത്തില്‍ ഒമാന്‍; അവധി ദിനമല്ലെങ്കിലും എങ്ങും 'ആഹ്ലാദം'
--  Ex-Council Boss Charges Leaders To Invest More In Education For Devt
--  Έτσι έρχονται οι παίκτες στην Ανόρθωση / Ο Πριέτο εξήγησε πως διαλέγουμε τους ποδοσφαιριστές
--  Three killed in accident due to dense fog in Rajasthan`s Barmer
--  Ravezzani sicuro sul Milan: «Crisi prevedibile per questo motivo»
--  ELFBAR and LOST MARY showcase industry-leading manufacturing at FEWO smart plant
--  Alonso: Változtatni kellene az F1-es időmérőkön!
--  Madhya Pradesh Cabinet Expansion: सरकार गठन के बाद कैबिनेट का विस्तार, प्रह्लाद सिंह पटेल, कैलाश विजयवर्गीय समेत 28 विधायकों ने ली मंत्री पद की शपथ- VIDEO
--  Australia unchanged for 2nd Test, Pakistan drop veteran Ahmed
--  COCT authorities on high alert following level 2 warning for extreme weather
--  Somber Christmas for 400 residents after Hillview informal settlement fire
--  Na sześć miesięcy do "psychuszki" za posty o wojnie w Ukrainie. Blogerka już odsiedziała za to półtora roku w areszcie
--  Nusrat Sehar Abbasi announces retirement from active politics
--  PTI to challenge ‘flawed’ ECP verdict on intraparty polls, electoral symbol in Peshawar High Court
--  غدا.. انطلاق الدورة الثالثة من مهرجان القاهرة للسينما الفرنكوفونية بدار الأوبرا
--  В Курганской области анонсировали увеличение выплат для ветеранов
--  Fikk du en julegave du ikke likte? Slik får du pengene tilbake
--  Finansal Hizmetler Güven Endeksi Aralık'ta yükseldi
--  Τροχαίο ατύχημα με μηχανάκι που «σφήνωσε» κάτω από ΙΧ
--  В Евпатории у детей из лагеря "Юность" выявили респираторную инфекцию
--  Almelo woman killed, driver under investigation after car crashes waterway
--  الاحتلال يداهم منازل المواطنين ويستولي على مركباتهم بمسافر يطا
--  Putin uputio čestitke Vučiću povodom predstojećih praznika: Računam na nastavak našeg dijaloga
--  РПЛ выделила «Краснодар» и «Зенит» в борьбе за чемпионский титул
--  Na Štedrý deň ošetrili v Bratislave 340 pacientov, jeden zjedol polievku s jedovatými hubami
--  Президент Таджикистана отправился в Санкт-Петербург на неформальную встречу лидеров СНГ
--  ВТБ: в 2023 году рынок рублевых сбережений вырастет на 21%
--  M1 iPad Pro holiday deal drops tablet to lowest-ever price
--  India proudly acknowledges Christian community's contribution, says PM Modi
--  Ovih 5 znakova imaju najveće šanse da u 2024. stanu na ludi kamen, svadbena zvona se već čuju
--  Аксёнов: Киеву необходимо забыть о Крыме, эта тема для Украины ушла навсегда
--  COVID-19: कोरोनाच्या नव्या व्हेरिएंटचा झपाट्याने पसार, देशात JN.1 चे 63 रुग्ण, सक्रिय रुग्णांची संख्या 4 हजारांच्या पुढे
--  Absichtlich Radmuttern abgelöst?: Rad an Berliner Rettungswagen löst sich während der Fahrt
--  Politiet reddet mann i bokser på toppen av Munkebotn
--  Fifas markering – hotar straffa Brasilien
--  Kovaçevski për Slloboden Peaçat: Me masat antikrizë mbrojtëm standardin e qytetarëve
--  देश की खबरें | कर्नाटक में कथित खाद्य विषाक्तता के कारण एक महिला की मौत, 70 अन्य अस्पताल में भर्ती
--  Число раненных при обстреле ТЦ в Горловке увеличилось до девяти
--  Resume In 7-Day Or Face Legal Action, NGO Warns Osun JUSUN
--  Fifas markering – hotar straffa Brasilien
--  Fifas markering – hotar straffa Brasilien
--  Yılbaşı öncesi kaçak alkol baskını
--  Uludağ’da günlük kayak maliyeti dudak uçuklattı! İşte o rakam...
--  МИД Ирана пытается наладить отношения с Талибаном
--  "ŽELJKO ME ZVAO NA TELEFON, SAMO BOG ZNA ZAŠTO NISAM OTIŠAO U PARTIZAN" Brutalni Hrvat odbio crno-bele, pa ih žestoko PONIZIO!
--  PRAZNIČNI KOLAPS NA GRANICAMA: Kolone vozila čekaju na ulazu i izlazu iz zemlje, a haos tek sledi! Naoružajte se strpljenjem
--  Israels Armee erleidet zunehmende Verluste
--  Bardzo silny wiatr nie odpuszcza. Wiemy, kiedy pogoda się uspokoi [MAPY]
+-  패션업계, '트렌드' 이끄는 2030 여성 모시기 경쟁
+-  Bäume sicher fällen mit Seilwindenunterstützung #baumfällen #forst
+-  Parte megacaravana de migrantes
+-  Así es nombrado Santaclós por el mundo
+-  Una Navidad diferente; películas que son, pero no parecen
+-  भोजपुरी गाना सुनकर मंच पर चढ़े मुखिया जी… उड़ाए नोट, डांसर के साथ लगाए ठुमके
+-  मध्य प्रदेश की मोहन सरकार के मंत्रियों की लिस्ट, List of ministers of Madhya Pradesh
+-  INDIA: नीतीश ने नाराजगी से किया इनकार, कहा, ‘हमें नहीं चाहिए कोई पोस्ट’
+-  شرطة مكة تطيح بشخصين بسبب كاميرا هذا الجهاز
+-  جوجل توفر ميزة صحة البطارية في نظام أندرويد
+-  Belén, lugar donde nació Jesús, ha celebrado una Navidad atípica
+-  Israel FA take credit for Celtic Uefa fine after Palestine flag display as they hit out at Green Brigade and authorities
+-  דיווח: סינוואר הבהיר להנהגת חמאס - לא אכנע לתנאים של ישראל
+-  מלחמת עזה: נפגעי העורף ייאלצו לתבוע את ביטוח לאומי על מנת לקבל פיצוי
+-  İzmir'de eşi tarafından bıçaklanan kadın öldü
+-  Taraftar tribünde ismini haykırmıştı, yönetim kayıtsız kalmadı! Beşiktaş Sergen Yalçın ile görüştü, Yalçın ilk isteğini söyledi
+-  81 ilde ortak sınavlar başlıyor
+-  بلاول اور آصفہ نے کراچی کا انتخابی میدان چھوڑ دیا ، کسی نشست سے کاغذات نامزدگی جمع نہیں کرائے
+-  Han er en af Danmarks yderst erfarne topdiplomater – og han har en klar besked: Ukraine kan ikke vinde krigen
+-  Han er en af Danmarks yderst erfarne topdiplomater – og han har en klar besked: Ukraine kan ikke vinde krigen
+-  Doğu Karadeniz'de kar: 367 köy yolu kapandı
+-  Meram’da toplu tapu dağıtım töreni gerçekleştirildi
+-  72 Yılın En Uzun Süren Soğuğu!
+-  Rohit Sharma focused on 'moving on' from World Cup final defeat vs Australia
+-  Honey Trap : हसीना की वीडियो कॉल..और पूरा अकाउंट साफ ! क्या बला है हनी ट्रैप !
+-  Premier Forum sur les droits de l'enfant à Chartres, une célébration de l'engagement
+-  "Une folie douce" : Christian illumine son pavillon du Calvados avec un village de Noël
+-  7 anyagcsere-pörgető meleg ital a hideg napokra - Serkentik a zsírégetést és segítik az emésztést
+-  Key features of Indian Navy’s ‘latest stealth-guided missile destroyer’ ‘INS Imphal’
+-  Sabah 3 rayonda qaz olmayacaq
+-  Tjuvarnas märkliga plan efter inbrottet i Stockholm: ”Rena Jönssonligan”
+-  В Сочи возводят школу на 1100 мест
+-  Исроилнинг қочқинлар лагерига йўллаган зарбаси оқибатида 70 киши ҳалок бўлгани хабар қилинди.
+-  Набиуллина: SWIFT’дан узилиш ва активларнинг музлатилиши оғриқли.
+-  축성작업에 강제 동원…마을에 남은 주민은 집단학살
+-  ‘Painkiller swaad anusaar?’ Man finds medicine in chicken ordered from Mumbai’s Leopold Cafe via Swiggy
+-  Dursun Özbek'ten penaltı yorumu ve Ali Koç'a gönderme
+-  Расписание выхода второго сезона анимационного сериала Marvel «Что, если?»
+-  Urošević: Abazović neosnovano obećavao i izigrao prosvjetare i radnike Željezare
+-  Лысого псковича восточной внешности разыскивают с сентября
+-  FINALE DE LA ZONE 3: Abdou Karim NDIAYE, le parrain, invite les ASC à développer des activités génératrices de revenus.
+-  Zamjenik ruskog premijera: Proizvodimo puno oružja
+-  美 대법, 특검 패스트 트랙 거부…트럼프, 대형 사법리스크 제거
+-  Самарқанд вилоятида ноқонуний майнинг билан шуғулланган корхона аниқланди
+-  İzmir'de Kadın Cinayeti: Eşini Bıçaklayarak Öldürdü
+-  Снайпер ВСУ назвал направление с наибольшими потерями
+-  Ole Gunnar Solskjaer’den Beşiktaş’a mesaj
+-  Šta BBC piše o demonstracijama ispred Skupštine grada: “Prvi nasilni protesti”
+-  Princ William i Kate čestitali su Božić preslatkom fotkom djece
+-  2023 yılında yoksulluk sınırı 20 bin 713 TL yükseldi!
