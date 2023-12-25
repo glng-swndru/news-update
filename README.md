@@ -1,11 +1,51 @@
 # Latest News
--  İsak Vural'a piyango! Dev talip çıktı
--  ABD, İsrail'e 230 uçak ve 20 gemi dolusu silah yolladı
--  CANLI ANLATIM: Hatayspor-Beşiktaş
--  Dengue: 16 personas han muerto y se acumulan más de 15 mil casos en todo el país
--  Intentaron meter droga a La Nueva Joya en roscas de pan
--  Lebuh raya sesak, ramai pulang lambat nak tol percuma
--  Netanyahu mødt af buhråb fra gidslers familier
--  Netanyahu mødt af buhråb fra gidslers familier
--  Spasojević o protestima: Opozicija ne želi porast nasilja, vlast se uzda u moć prisile i praznike
--  Η Δέσποινα Βανδή «λύγισε» στην πίστα μιλώντας για τον Βασίλη Καρρά
+-  İsrail'den gerilimi tırmandıracak saldırı: İranlı komutan öldürüldü!
+-  Adalet Bakanlığında istihdam edilecek 486 personel için sözlü sınav sonuçları yayımlandı
+-  Fenerbahçe'den Galatasaray'a cevap!
+-  Gazze kasabı Netanyahu'dan ateşkes açıklaması
+-  Alanyaspor doludizgin!
+-  Kasımpaşa ile Rizespor yenişemedi!
+-  KHL-pelaajilla ei mitään asiaa Kanadan maajoukkueeseen
+-  풍자, 반려견 학대 경찰 신고에 황당 "어이 없는 하루"
+-  بعد مستويات تاريخية.. سعر الذهب اليوم الاثنين في مصر بتعاملات المساء
+-  5 علامات إذا ظهرت عليك تدل على ارتفاع مضاعف في الكوليسترول
+-  Pide Iglesia por los jóvenes y familias en esta Navidad
+-  Kano: Kwankwaso Speaks After Special Prayer For Supreme Court Judgment
+-  Kijów grzmi w sprawie pomocy Zachodu. "Potrzebujemy tego jak najszybciej"
+-  ڈراپ کرنے کا لفظ سخت ہے، سرفراز احمد کو تھوڑا آرام دیا ہے، شان مسعود
+-  «Демак, бизни алдаган бўлиб чиқяпсизлар». Депутат газ ва нефть ишлаб чиқарувчи компанияларга бериладиган имтиёзларга қарши чиқди
+-  «Яндекс» назвал пропажу названия Эгейского моря с карты технической ошибкой
+-  Şimdiden yaza hazırlık yapın! Bu kür sayesinde yaza şimdiden fit girin! İşte size limon kürü tarifi
+-  Salah'tan 'Gazze' paylaşımı: Lütfen onları unutmayın
+-  Чемпион мира по боксу из США принял ислам
+-  “Қизимни узатиб қутулай деган ниятда бўлиш керак эмас” — Танзила Норбоева эрта унаштирувлар ҳақида.
+-  Un viaje al tubo volcánico del Tajogaite
+-  Колорадо суди Трампга сайловда қатнашишни тақиқлади. Бу нимага олиб келиши мумкин?.
+-  After Raha, Bipasha Basu reveals Devi’s adorable face for the first time
+-  Sabah bu rayonlarda qaz olmayacaq
+-  Slováci sa Čechov neboja. Čaká nás derby, ale máme kvalitu na víťazstvo
+-  Birden fazla evi olanlar dikkat! Çift vergi geliyor
+-  Así fue como Ana María Estupiñán se hizo la estrella de Tv que todos los canales quieren tener
+-  شام میں اسرائیلی فضائی حملے میں اعلیٰ ایرانی جنرل جاں بحق
+-  Soma maden faciasında 28 kamu görevlisi hakkında dava açıldı
+-  Çukur Çetesi çökertildi: 11 milyarlık mal varlığına el konuldu
+-  İYİ Parti Sözcüzü Kürşad Zorlu: Teröristlerle poz veren vekiller, Türk milletinin temsilcisi olamaz
+-  Natale, il Papa: 'Quante stragi di nnocenti nel mondo, i Gesù di oggi'
+-  عبد الجليل يناقش مع لجنة إعانة مرضى الأورام الاستعداد للبدء بتسليم الدفعة الثانية
+-  ABD'de vakalar artıyor! Zombi geyik hastalığı uyarısı!
+-  'Çukur Çetesi'ne operasyon: Antalya'da 11 milyon TL'lik vurgun!
+-  Промоција на Монографија „70 години Тениска Федерација на Македонија“
+-  Tasnim: в Сирии из-за удара ВС Израиля погиб советник КСИР Сейед Рази
+-  ¡Feliz Navidad! Así celebra el Club América esta época con sus fieles seguidores
+-  5 vitamins you absolutely need in the winter for good health
+-  Russian opposition leader Alexei Navalny found in Arctic prison after losing contact for 20 days
+-  Москвичка объявила любовнику о расставании и лишилась пальца
+-  Alanyaspor galip gelmeye devam ediyor
+-  PM Modi to launch low-budget push-pull Amrit Bharat train from Ayodhya soon
+-  Οικογένειες ομήρων γιούχαραν τον Μπέντζαμιν Νετανιάχου στην ομιλία του στην Κνεσέτ - «Απελευθερώστε τους τώρα!»
+-  Ianis Hagi a semnat „contractul vieții” în prima zi de Crăciun
+-  Foreign Affairs Minister Tuggar urges Nigerians to foster peaceful relations
+-  Irão condena ataque ao campo de refugiados de Maghazi na Faixa de Gaza
+-  2 years after stormy tour, Virat Kohli looks to rekindle South Africa love affair
+-  U Srbiji izrečena jedna doživotna kazna: Koliko je ljudi završilo u zatvoru u 2022. godini
+-  Honkai Star Rail Black Swan: Ascension and Trace level-up materials
