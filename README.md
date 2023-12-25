@@ -1,51 +1,51 @@
 # Latest News
--  '동상이몽2' 찰스 아내 한고운 "남편 지갑서 못 보던 카드…거짓말 기분 나빠"
--  الأحد.. حفل توقيع لكتاب «مشروعية حرب أكتوبر في القانون الدولي» بثقافة بورسعيد
--  Mateo Kovačić još jednom je pokazao koliki je vjernik, pogledajte gdje je snimljen za Božić!
--  Украинская Рада предложила ввести День благодарения Богу
--  تنبيه مهم من متحدث العاصمة المقدسة حول غرامة إطعام الحمام أو الطيور
--  الليلة.. افتتاح معرض مراسم الأقصر للرسم والتصوير في مركز الهناجر
--  Tak polscy siatkarze spędzają święta (ZDJĘCIA)
--  Нуждающийся в деньгах мальчик нашел два миллиона рублей и вернул их владельцу
--  Μα, τι είναι τα Χριστούγεννα;
--  Atchannaidu: ముర్షావలి సస్పెన్షన్ ఆర్డర్‌ను ఉపసంహరించుకోవాలి
--  В Кремле оценили возможность встречи Алиева и Пашиняна
--  كاتب إسرائيلي: تحويل مليوني نسمة لنازحين يستوي مع حلم الإبادة لدى نتنياهو
--  Vienas populiariausių socialinių tinklų sulaukė didžiulio atnaujinimo
--  Akcija progresivne Vojvodine: Izbore treba poništiti, naši članovi biračkih odbora svedočili su brojnim nepravilnostima
--  VIDEO. Les images impressionnantes de la salle de basket de Gravelines ravagée par un incendie
--  «Για πάντα θα τον τραγουδάμε» - «Λύγισαν» οι πίστες για τον Βασίλη Καρρά, το «αντίο» στον «άρχοντα της νύχτας»
--  NAJVIŠE TRGOVACA I AUTOMEHANIČARA: U Novom Gradu prednjače zaposleni u oblasti prometa i popravke motornih vozila
--  Número de pacientes famintos nos hospitais de Gaza alarma OMS
--  "ZAVRŠILI SMO, NISI NORMALNA! OSTAVI ME NA MIRU" Janjuš presekao i odlučio da ostavi Aneli: Neću da mi prilaziš više!
--  مؤسسة أكشن إيد: الأمهات المرضعات في غزة غير قادرات على إرضاع أطفالهن
--  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan – vanha Ford Escort palautti mieleen muistot Jyväskylän vuoden 1996 MM-rallista
--  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan – vanha Ford Escort palautti mieleen muistot Jyväskylän vuoden 1996 MM-rallista
--  KO JE UZ RUSIJU - BOG GA JE POGLEDAO: Putin potpisao zakon koji će obradovati sve prijateljske zemlje
--  DODELjENE NAGRADE ANI DOBROTI, ISIDORI KEŠELj I MILICI RADAKOVIĆ: Tri naučnice krče put damama u nauci
--  Ersin Tatar: Gastronomi alanında elde edilen başarı, ülkeye değer katacak
--  Ελένη Χατζίδου: Στεναχωριέμαι με την ανθρωποφαγία στην τηλεόραση
--  Папата се заложи за прекин на војната во Газа и го осуди абортусот
--  Christmas Wishes for “Peace on Earth” Are Empty Without Ceasefire in Gaza
--  لهذه الأسباب.. احرص على تناول الموز يوميا
--  الجيزة تشن حملة بحي الطالبية لمنع التعدي على الطريق العام
--  محصول الحبوب في روسيا يسجل 142.6 مليون طن في 2023
--  Байрам кунлари Тошкентда автобуслар қисқартирилган жадвал асосида ҳаракатланади.
--  Зўравонлик кузатилган оилаларда эр-хотин ярашиш муддатисиз ажратилиши мумкин .
--  رئيس الوزراء يتابع الموقف التنفيذي لمشروع تنمية وتطوير منطقة شق الثعبان
--  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan
--  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan
--  Same-sex nativity scene at church ripped as ‘blasphemous’
--  ХАМАС отказалось от предложения Египта о перемирии в обмен на власть в Газе
--  CARINICI NA GRADINI PRETRESLI PETOČLANU PORODICU! Otvorili im torbe pa zatekli "plen" vredan VŠE OD 7 MILIONA - šok zaplena (FOTO)
--  "זו קטסטרופה עצומה": צפו בשריפה שחירבה את אולם הכדורסל
--  Las hermanas Bogado celebraron navidad en Villarrica
--  Planinari pronašli tijelo: Bili uvjereni da je riječ o tragediji, ali posrijedi je povijesno otkriće
--  Zaječar i Knjaževac: Vozili pod dejstvom kokaina i alkohola
--  القومي للحوكمة يختتم تدريب المرحلة الأولى من مبادرة معا لدمج الأشخاص ذوي الإعاقة
--  ما يجب تناوله وتجنبه... نظام غذائي خاص بمرضى الصداع النصفي
--  AP NEWS: ఏపీలో రేపటి నుంచి మున్సిపల్ కార్మికుల సమ్మె
--  Gəncədə ATS-də yanğın oldu
--  So oft wären "Kevin - Allein zu Haus"-Einbrecher gestorben!
--  Nikola Ristić: Radikalizacija protesta ne znači ubacivanje nasilja na proteste
--  রুপালী বাংলাদেশের লোগো উন্মোচন
+-  Alexei Navalny reaparece em prisão russa no Ártico
+-  Süper Kupa'nın hakemi belli oldu
+-  Johnson & Johnson'tan siyonist İsrail'in katliamına açık destek: Skandal sözler sonrası boykot çağrısı
+-  AK Parti Ankara İl Başkanı Özcan'dan Mansur Yavaş'a tepki: Kıblesi belli olmayan siyasetiyle en sonunda DEM Parti'ye geçerse şaşırmayız
+-  Derbinin tartışılan pozisyonu hakkında çarpıcı iddia: VAR'a görüntü gitmedi
+-  Edin Dzeko - Mauro Icardi tartışması dünya basınını salladı: "Gerçekleri söyledi utanç verici"
+-  Bir yıldan uzun sürüyorsa dikkat! Depresyonun sinsi hali: Distimi
+-  İDDEF 2023'te 56 ülkede ihtiyaç sahiplerinin yanında oldu
+-  Çin'in Tianmu-1 meteoroloji uyduları yörüngeye oturdu
+-  Kirada yüzde 25 sınırı kalkacak mı? İlk açıklama geldi
+-  Hamas lideri 'paramparça ettik' diyerek ilk kez paylaştı: İsrail'in kaybı binlerce
+-  İstanbul'da asayiş operasyonu: Çeşitli suçlardan aranan 12 bin 504 şüpheli yakalandı
+-  Lewandowski'nin yeni adresini açıkladılar
+-  Papa'dan İsrail'e Gazze çağrısı: Operasyonlara son verin
+-  Elon Musk şokta: Hayalleri resmen suya düştü
+-  Filistin Kızılayı Gazze'nin kuzeyinden 34 yaralıyı güneydeki hastanelere nakletti
+-  İYİ Parti Genel Başkanı Meral Akşener, Divan üyeleriyle toplandı!
+-  Malatya'da bıçaklı saldırıya uğrayan genç ağır yaralandı
+-  Ali Erbaş "Hayata Köprü Sanat" projesi etkinliğine katıldı
+-  Mantar toplamak için gittiği ormanda kayboldu, jandarma ailesine teslim etti
+-  MEB, 850 öğrenciyi yurt dışına burslu gönderecek!
+-  Şanlıurfa'da devrilen tırın sürücüsü hayatını kaybetti!
+-  Adıyaman'da otomobille motosiklet çarpıştı: 1 ağır yaralı
+-  Galata Köprüsü'nde 1 Ocak'ta düzenlenecek Filistin eylemi için ortak çağrı
+-  Kahramanmaraş'ta deprem oldu
+-  Van'da iş makinesinin üzerine çığ düştü
+-  Tanju Özcan şehitler için '7 günlük' yas ilan etti!
+-  UNICEF: 2023, dünyada çocuklar için en zor yıllardan biri oldu
+-  Karabük'te kar nedeniyle kapanan 107 köy yolunun 73'ü açıldı
+-  TFF'den Süper Kupa biletlerinde indirim!
+-  Kremlin: Üçüncü bir gücün Sırbistan'da düzensizliği kışkırtma girişimlerini görüyoruz
+-  Çorum'da 36 yaşındaki adamdan 4 gündür haber alınamıyor
+-  Papa Franciscus "Gazze'de acil ateşkes" çağrısını yineledi
+-  Sakarya'da bir samanlık alev topuna döndü!
+-  Bakan Kacır: Oluşturulmaya çalışılan terör koridoru haritalarını yırtıp atıyoruz
+-  "Türk Edebiyatının İncileri" ve "Sen Ne Kadar Tatlısın, Ey Acı Hayat!" kitapları Ankara'da tanıtıldı
+-  Kum ocağının çöken istinat duvarının altında kalan 2 kuzenden 1'i öldü
+-  Körfez'de çocuklar sinemayla buluştu
+-  Vanspor - Bursaspor maçında yoğun güvenlik önlemi alındı
+-  Bakan Güler, Suudi Arabistan Genelkurmay Başkanı ile görüştü!
+-  Gazze'de can kaybı 20 bin 674'e yükseldi
+-  Çanakkale'de 'askeri personel' yalanıyla 500 bin TL dolandıran şahıslar yakalandı
+-  সান্তা ক্লজের ইতিকথা
+-  Pogled unazad na izazove i uspjehe IT sektora u 2023. godini
+-  Saopćenje za javnost NES BiH
+-  Za sufinansiranje projekata 16 privrednih subjekata u BPK izdvojeno 84.000 KM
+-  Veljko Papić sentenced to two years in prison for crimes in Grbavica and Kovačići
+-  Osmanović i Fazlić potpisali sporazum o privremenom smještaju pripadnika braniteljske populacije
+-  Primopredaja vozila namijenjenih Kantonalnoj bolnici i GSS-u u Bihaću
+-  Predstavnici uprave ASA Bolnice o mogućnostima saradnje sa BPK Goražde
