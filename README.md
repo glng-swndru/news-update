@@ -1,11 +1,51 @@
 # Latest News
--  Навалний Ямал-Ненецдаги режими кучайтирилган колониядан топилди .
--  2024 йилда электротехника, кимё ва фармацевтикада 12 миллиард долларлик 24 та лойиҳа бошланади .
--  Itt vannak a 2024-es emelt szintű biológiaérettségi témakörei
--  Sukesh Chandrshekar moves Delhi court against Jacqueline’s plea against his letters
--  Bus exiting Ajmer parking lot runs over people; 3 dead, as many injured
--  Maharashtra: Gas cylinder blast claims life of 4-year-old boy in Nagpur
--  Með skýra sýn
--  Uzmanı uyarıyor: Glutensiz diyet herkese uygun olmayabilir
--  'Significant' winter storm hits Plains, much of country gets wet Christmas
--  Planinari pronašli misteriozno tijelo: Bili su uvjereni u jedno, a onda je uslijedilo iznenađenje
+-  الدوخة المفاجئة قد تنذر بكارثة صحية.. متى تذهب إلى الطبيب؟
+-  Stolzer Papa: Travis Barker feiert Alabamas 18. Geburtstag!
+-  ชงไทยเป็นสมาชิก OECD หวังยกระดับผลสอบ PISA
+-  Когда Украина получит F-16?
+-  Неуловимый Яхья Синвар нарушил молчание
+-  ΠΑΟΚ: Οι υψηλές πτήσεις του «Δικεφάλου» σε Ελλάδα και Ευρώπη (vids)
+-  Кундан кунга “Beeline Uzbekistan” иловасининг фойдаланувчилари сони ортиб бормоқда.
+-  Ўзбекистондаги бензин баҳоси жаҳондаги нефт нархига қай даражада боғлиқ?.
+-  Gazze'deki yoğun saldırılarla çöken sağlık sistemi 9 binden fazla Filistinlinin ölümüne neden oldu
+-  Papa Franciscus, Gazze'de askeri operasyonların durdurulması için çağrı yaptı
+-  Burak Kızılhan'dan Galatasaray'a sert cevap! "Yalan operasyonun devamı"
+-  CHP MYK toplandı! Tek gündem 12 şehit
+-  ΠΑΟΚ: Παντρεύεται ο Σουαλιό Μεϊτέ την εκλεκτή της καρδιάς του
+-  Cuerona abrió las piernas por navidad
+-  Sky - Bonucci - Roma i discorsi vanno avanti
+-  ŽENA GA UHVATILA KAKO GLEDA U ZGODNU KOLEGINICU! Srpski pevač sve priznao - Otkrio šta se desilo kada je došao kući!
+-  Joséphine, ange gardien : une ancienne candidate de The Voice Kids joue dans l'épisode de ce lundi
+-  Akali Dal Eyes BJP Alliance For 2024 Polls, SAD Delhi President Sets Conditions
+-  Fenerbahçe'den Icardi'nin gözünün morarmasıyla ilgili açıklama! ''Penaltı pozisyonuyla alakası yok, Galatasaray ile aynı masaya oturmayacağız!''
+-  Razmas 3. kārtas spēle pret čempionu Smitu gaidāma trešdien kā noslēdzošā
+-  General Forecast 2024: Nation’s leading Astro-numerologist makes predictions for year
+-  پاکستان میں پھر زلزلہ، شدت کتنی تھی؟
+-  Baldur’s Gate 3 players narrow down list for new Origin characters
+-  "RAT NIJE NI BLIZU KRAJA" Netanjahu: Izrael će u narednim danima proširiti kopnenu ofanzivu na Pojas Gaze
+-  Fondo Mivivienda recibe cerca de S/ 3 millones para el Bono del Buen Pagador
+-  Lady Louise Windsor looks effortlessly chic in navy coat as she joins cousins Beatrice, Eugenie and Zara at Sandringham
+-  Notorni grafiter napao ‘nove‘ Tomaševićeve tramvaje i pritom napravio grešku koja bi ga konačno mogla otkriti!
+-  Petro reconoce que el 2023 fue "duro" y llama a luchar para alcanzar la paz
+-  الهلال الأحمر الفلسطيني: نتلقى يوميا بلاغات حول وجود شهداء ومصابين في غزة ولا نستطيع الوصول إليهم
+-  Cluny. Face aux crises hydriques à répétition, le Clunisois se tourne vers les chercheurs
+-  Guinness, KFC et sculpture sur radis : voici les traditions de Noël les plus insolites !
+-  [ŽT] „Rusija gali ramiai eiti link Kyjivo.“ Pribloškiantis pareiškimas
+-  D-30 suplėšytas į gabalus. Rusų artilerijos laukia tikras košmaras (Foto)
+-  Kada iš tiesų gimė Jėzus Kristus? Štai kokias versijas siūlo mokslas
+-  [ŽT] Eilinio Peskovo misija nepavyko. „Putinas aklavietėje“
+-  Verstappen kart met schoonfamilie, Courtois poseert met kleinkinderen Trump, Wiegman deelt videoboodschap
+-  Verstappen kart met schoonfamilie, Courtois poseert met kleinkinderen Trump, Wiegman deelt videoboodschap
+-  Gondot okozhat a Dunai áradása a Gemenci-erdő vadállományának
+-  İstanbul'da yıkım sırasında bina caddeye çöktü
+-  OnePlus 12R 5G specifications leaked ahead of scheduled January 23 launch in India
+-  Οι αναλύσεις της Αντιτρομοκρατικής μετά την ανάληψη ευθύνης για τη βόμβα στα ΜΑΤ: «Επικίνδυνη οργάνωση» (vid)
+-  Industrie automobile: 2023, l’année de tous les records
+-  Süper Kupa maçının biletlerinde yüzde 50 indirim
+-  अपना दायरा बढ़ाएगा अकाली दल, सिख आबादी वाले राज्यों में स्थापित करेगी पार्टी यूनिट, सुखबीर सिंह बादल का ऐलान
+-  50-vuotislahjasta tuli tärkeä osa Heidi Saarisen joulu­perinnettä
+-  President signs Telecom Act, rulemaking to follow for implementation
+-  Tonight on Umkhokha: The Curse | The Council threatens MaMzobe but Ndlovu buys her time
+-  동자청-동해이씨티, 망상1지구 개발사업시행자 취소 처분 법정 다툼
+-  Şike teklifini açıkladı: Bu işten geçimini sağlayanlar var!
+-  Budimir prokomentirao topli potez koji je oduševio Španjolce: ‘Da je moja baka u pitanju, i ja bih to očekivao‘
