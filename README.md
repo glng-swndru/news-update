@@ -1,11 +1,11 @@
 # Latest News
--  Brnabić objasnila šta se dešava: Ovako ide njihova priča... FOTO
--  Disfrutan familias la Navidad en el Centro
--  Últimos días para convertir crédito Infonavit a pesos
--  삼성바이오에피스, ‘솔리리스’ 국내 특허무효 도전 2차전도 ‘承’
--  Llegan otros 46 inmigrantes a Gran Canaria en un cayuco, el quinto desde la Nochebuena
--  En 2023 'la cigüeña' llegó cuatro veces al Metro de la CDMX
--  చీరలంటూ 3 లక్షలకు టోకరా
--  Claves económicas que marcarán la semana en América
--  Лукашенко: Русија и Белорусија не сакаат нов конфликт со НАТО
--  Desarticularon a una banda que cometió secuestros en tres provincias
+-  [ŽT] Visiškas košmaras Rusijai. Skelbiama, ką numušė Ukraina
+-  Rusijos armija virsta žygiuojančiais batalionais, primenančiais Antrąjį pasaulinį karą
+-  [ŽT] Skelbiama apie Ukrainos kariuomenės „demobilizaciją“. Kas nutiko
+-  Medvedevas grasina NATO: „jei kuri nors išprotėjusi šalis nuspręs Ukrainoje...“
+-  Mantienen vigilancia en ríos y playas durante fiestas de fin de año
+-  Украина жанг майдонида тактикани ўзгартирмоқда – ОАВ .
+-  Arnavutköy’de 87 kaçak göçmen yakalandı
+-  Pljušte reakcije na božićnu čestitku predsjednika Zorana Milanovića
+-  متقاعدون عسكريون: نقف خلف الملك في مواقفه المساندة للفلسطينيين
+-  Киев заявил о планируемом запуске «коалиции» по поддержке ВСУ в Париже
