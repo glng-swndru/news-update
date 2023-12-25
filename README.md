@@ -1,51 +1,51 @@
 # Latest News
--  Baldur’s Gate 3 player accidentally derails game in search for boots
--  Германия — AfD и CDU/CSU на 20% сильнее, чем на федеральных выборах 2021 года
--  Reus zeigt Verständnis für Fan-Frust: „Manchmal ist es nicht ganz so leicht“
--  فضل الرحمن جیسا لالچی انسان زندگی میں نہیں دیکھا : پرویز خٹک
--  (VIDEO) Trenutak o kojem priča cijela Turska: ‘VAR soba i 26 kamera ne mogu ovo vidjeti’
--  Nissan Juke'ta 150 bin TL'ye sıfır faiz 12 ay vade fırsatı başladı! İşte Nissan Juke Aralık 2023 fiyat listesi
--  Livestream | Koning Willem-Alexander houdt kersttoespraak
--  रास्वपाको नारायणगढ-बुटवल दबाब यात्रा
--  यस्तो छ स्वास्थ्य क्षेत्रमा भएको प्रगति
--  Bewoners afgebrande woonboerderijen in Werkendam blikken terug: 'Dat laat diepe indruk achter'
--  Nói điều này, Alvarez làm rõ tương lai
--  Chạm mặt Man United, Villa lo lắng vì chấn thương trụ cột
--  Pep chia sẻ thẳng thắn sau khi được hỏi về "người thừa"
--  Klopp chia sẻ về khả năng ra sân của Jota
--  HLV Klopp xử lý thế nào với vị trí hậu vệ trái?
--  Walcott so sánh Ivan Toney và "người cũ" Arsenal
--  Top 3 trung vệ có thể gia nhập Man Utd dưới thời Sir Jim Ratcliffe
--  So sánh Mbappe và Haaland trong năm 2023
--  Nhận mức lương “khủng”, cựu đội trưởng Arsenal bị nghi ngờ
--  Rice - Saliba - Gabriel: 3 hòn núi cao của Arsenal
--  Santo cần làm gì để vực dậy Nottingham?
--  Khen Nkunku, Pochettino nói thẳng 1 câu về Nicolas Jackson
--  PSG vồ hụt tiền vệ xuất sắc của Chelsea
--  RC Strasbourg nhắm sao trẻ của Man City
--  Monaco nhắm đến trung vệ Adarabioyo trong tháng 1
--  "Chelsea rất thất vọng và tức giận"
--  Ca chấn thương trong trận Chelsea
--  Gianluigi Donnarumma biết ơn sự ủng hộ của Luis Enrique
--  Manchester United đừng vội mừng với Jean-Claude Blanc
--  Tottenham "thở phào" về Romero
--  Saka: "Vẫn còn quá sớm để nói về chức vô địch"
--  3 điều chắc chắn sẽ xảy ra sau khi Sir Jim tiếp quản Man Utd
--  Đội hình đỉnh nhất Premier League hiện tại: Bom tấn Arsenal; Vua Ai Cập
--  Foden: Thợ săn danh hiệu tại Man City
--  Chuyên gia cảnh báo điều tồi tệ với Man United
--  "Lời nói của Mbappe không còn giá trị với Real nữa"
--  Hé lộ mẫu tiền vệ Barca theo đuổi
--  Nacho Fernandez đuổi kịp 'kỷ lục buồn' của Sergio Ramos
--  Real chốt tương lai của bộ đôi người Tây Ban Nha
--  Ngả mũ trước Sergio Ramos
--  Giữa bão chấn thương, Real Madrid nhận hung tin
--  Tương lai bất định của Kepa
--  Endrick nhắc đến khoảnh khắc đắt giá với Vinicius và Rodrygo
--  Ramos: "Sevilla sẽ mạnh mẽ hơn trong năm mới"
--  Barca phải dừng lại ngay lối tư duy ăn xổi!
--  Điều duy nhất ngăn Barca mua đứt Joao Cancelo
--  Endrick đánh giá về Benzema, Kane, Haaland và Suarez
--  Xavi ra tối hậu thư cho Raphinha
--  Xavi hé lộ mục tiêu của Barca trong năm 2024
--  Real Madrid ra quyết định với Kroos
+-  مدتها 9 أيام .. ثاني إجازة مطولة للطلاب والكوادر التعليمية
+-  السجن سنتين وغرامة 100 ألف ريال.. عقوبة التعدي على المرافق العامة
+-  Християнин направи дарение от 150 000 лева за доизграждане на джамията в Момчилград
+-  ڈکار نہ مار پانا کس طرح آپ کے رشتوں کو متاثر کرتا ہے؟
+-  Una Nochebuena empañada por las guerras
+-  מחכים לפצועי המלחמה: עדי נגב מצטרפת לליגה לאומית ב' בכדורסל כסאות גלגלים
+-  הגולנצ'יק יצא מעזה וגילה שהעסק קרס: "המצב קטסטרופה, המקרר ריק. פניתי לכולם ולא קיבלנו שקל"
+-  Salihli'de jandarma uyuşturucu operasyonu: 2 satıcısı tutuklandı
+-  İsrail'in 7 ekimden bu yana gözaltına aldığı Filistinli sayısı 4 bin 730 oldu
+-  "Bakan Şimşek, yüzde 25 kira zammı sınırının kaldırılacağını açıkladı" iddiasına yalanlama: Manipülasyon içermektedir
+-  2023'te 254 milyar dolarlık ihracatın yüzde 60'ı deniz yoluyla yapıldı
+-  Müge Anlı canlı yayınında akıl almaz itiraf! Günlerdir kayıp adamın katili en yakın arkadaşı çıktı! "Karımın fotoğrafını görünce
+-  „Риба во(н) мрежа“ од Jована Mатевска Aтанасова е добитник на наградата „Пегаз“ за 2023 година
+-  جڑانوالہ واقعے کے ذمہ داران کو سزا ہونے تک چین سے نہیں بیٹھیں گے، محسن نقوی
+-  Мицкоски најави нови проекти ширум Македонија: Изградба на градинки, локални патишта, училишта, амбуланти, спортски сали во 15 општини…
+-  Соглашение ЕАЭС с Ираном о свободной торговле подписано в Санкт-Петербурге
+-  Christmas: Biting effects of bad govt policies have dampened hope of most Nigerians – Peter Obi
+-  Светослав Иванов с 15 точки, Акуш загуби драматично от Девели
+-  Galatasaray Fenerbahçe maçının hakemi Abdulkadir Bitigen kimdir, nereli ve kaç yaşında? Süper Kupa maçının hakemi Abdulkadir Bitigen oldu
+-  არ აქვს მნიშვნელობა რომელი მიმართულებიდან იქნება აგრესია, ნატო ვალდებულია იმოქმედოს – ბურჭულაძე ოჩამჩირეზე
+-  Galatasaray Fenerbahçe Süper Kupa maçı ne zaman, saat kaçta? Süper Kupa finali Galatasaray Fenerbahçe maçı hangi kanalda, şifresiz mi?
+-  Na bronca, senador Wellington afirma que mandou R$ 18 para estrada de Chapada que estão retidos ICMBio
+-  Grote reddingsactie in Poederoijen, gebied konikpaarden en Rode Geuzen onder water
+-  بريطاني مسلم يبيع قميص محمد صلاح في مزاد بـ 300 ألف دولار لصالح فلسطين
+-  CM भजनलाल का Action, अचानक पहुंच गए SMS Hospital; सीटों से नदारद मिले कई कार्मिक
+-  총선 D-106일…예비후보 '눈치싸움' 치열
+-  재경포항향우회 정기총회 개최…‘포스텍 의과대학 설립’ 퍼포먼스
+-  포항사랑실천의집, 포항탈북민연합회에 생필품 전달 '훈훈'
+-  봉화군, 민-관 함께 군정 발전 머리 맞대
+-  استعدادات لتسهيل إجراءات السفر خلال فترات الإجازة
+-  Noch vor Wahlen 2025 - Neue Umfrage-Klatsche! Fast jeder zweite Deutsche glaubt, dass Ampel zerbricht
+-  Mixail Qusman İlham Əliyevə məktub ünvanladı
+-  مخرج فيلم مخرج "Home Alone 2": ترامب إقتحم الفيلم .. وتعرضنا للتخويف من قبله لكي يشارك فيه
+-  ميليسا برايرا: "أتمنى ألا تتجاهلوا الفلســ طينيين في عيد الميلاد .. هذا نفس ما مر به المسيح "
+-  وفاء عامر تنضم الى مسلسل " بدون مقابل " الى جانب هاني رمزي
+-  بالفيديو- طرح أغنية "إسأل عني" .. من فيلم " الحريفة "
+-  ईसाई समुदाय के साथ मेरा बहुत पुराना और आत्मीय नाता रहा है, क्रिसमस कार्यक्रम में बोले प्रधानमंत्री मोदी
+-  2023'te yoksulluk sınırı 20 bin 713 lira arttı! Açlık sınırı asgari ücretten beş bin lira fazla
+-  Efsanevi aktör Robert De Niro 'Oscar' rekorunu kırmaya çok yakın
+-  Key developments of Tajikistan's transport sector in 2023
+-  Райан Гослинг записал рождественскую версию песни I'm Just Ken из фильма «Барби»
+-  عقل: تعاضد عائلاتنا سبب صمودنا واستمرارنا
+-  Veer Bal Diwas के अवसर पर आयोजित कार्यक्रम में शिरकत करेंगे PM Modi
+-  Modrić već sve dogovorio s novim klubom? Presudio razgovor s Ronaldom i ogromna ponuda
+-  Maharashtra के मंत्री Dhananjay Munde कोरोना वायरस से संक्रमित, Ajit Pawar ने दी जानकारी
+-  Prenses Diana'nın elbisesi açık artırmada rekor fiyata satıldı!
+-  Tunisie : les élections locales ont été largement boudées par les électeurs
+-  FC Schalke 04 – Transfer-News und Gerüchte: Wechsel steht bevor – S04 winkt Geldregen
+-  COVID 19 Updates । महाराष्ट्र में सामने आए कोरोना के 50 नए मामले, नौ मामले जेएन.1 उपस्वरूप के
+-  श्रमिकों को सम्मान और वंचितों को मान दिलाना हमारी प्राथमिकता – प्रधानमंत्री श्री मोदी
