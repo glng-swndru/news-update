@@ -1,11 +1,11 @@
 # Latest News
--  서울의 해맞이 명소 17곳에서 신년 행사 ... 일출 오전 7시47분경 예정
--  봉화군, 양수발전소 유치 범군민 결의대회 열어…막바지 총력전
--  진천군, 2023년 제3회 추경예산 7천343억 원 확정
--  충주시, ‘음식물쓰레기 종량제봉투(칩) 판매가격 조정’
--  Josef de Souza, Süper Lig'e dönüyor! Sosyal medya hesabından duyurdu!
--  Körfez krizi bölgeye yayıldı: Umman Denizi'ne savaş gemileri konuşlandırıldı
--  Şehidimizin naaşı göz yaşlarıyla memleketi Sinop'a getirildi
--  Şehidimiz Uzman Çavuş Mehmet Serinkan'ın naaşı memleketi Denizli'ye getirildi
 -  Cosa fare durante le vacanze di Natale: tante attività da condividere
 -  Cosa fare durante le vacanze di Natale: tante attività da condividere
+-  [오늘의 투자전략] 코스피, 연말까지 2540~2640 예상…27일 배당락일 전후 영향 고려해야
+-  Steve Kerr furieux contre l’arbitrage : “Si j’étais un fan, je n’aurais même pas voulu regarder la 2e mi-temps”
+-  Leadership shake-ups, policy backflips, and who will rise to save the Libs? The WA politics news that shaped 2023
+-  Leadership shake-ups, policy backflips, and who will rise to save the Libs? The WA politics news that shaped 2023
+-  Leadership shake-ups, policy backflips, and who will rise to save the Libs? The WA politics news that shaped 2023
+-  Business ideas - मात्र एक लाख में प्रोडक्शन यूनिट, 3 लाख की कमाई, सरकार सपोर्ट करती है
+-  Five WA university courses you probably haven’t heard of
+-  Five WA university courses you probably haven’t heard of
