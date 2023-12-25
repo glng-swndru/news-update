@@ -1,51 +1,51 @@
 # Latest News
+-  Actor Charlie Sheen es atacado por una vecina en los Ángeles
+-  Sumar ve el discurso del Rey "anclado en el pasado": "No habló de los problemas que preocupan a los españoles"
+-  Pope calls for end to Gaza war as world celebrates Christmas
+-  Kup Srbije: Zvezda protiv Vršca
+-  Экс-сотрудник ЦРУ Джонсон: солдаты ВСУ отказываются выполнять приказы Зеленского
+-  ABP माझा टॉप 10 हेडलाईन्स | 25 डिसेंबर 2023| सोमवार
+-  Paris Fury reveals time-saving trick for creating a Masterchef-worthy Christmas dinner & she’s got Jamie Oliver to thank
+-  Западот се обидува да ја дестабилизира ситуацијата во Србија, обвини Захарова
+-  Dólar hoy, dólar blue hoy: a cuánto cotiza este lunes 25 de diciembre
+-  ‘A disgrace to the end’ – Gary Neville blasts ‘truly awful’ Sir Jim Ratcliffe announcement from Man Utd
+-  «Бахмут 2.0»: экс-командир роты батальона «Айдар» рассказал об упорных боях за Авдеевку
+-  Audi opoziva gotovo 100.000 automobila u Americi zbog opasnosti za kućne instalacije
+-  Big relief for consumers! Govt and IRDAI to review key hospitalisation rule to simplify mediclaims | Details
+-  Bourse de Tunis : Fusion de la société COFIB Finances Capital et Bourse UBCI
+-  হবিগঞ্জের ডিসিকে প্রত্যাহারের নির্দেশ
+-  Jsou trhy odtržené od ekonomiky?
+-  Aquarius 26 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Présumée escroquerie sur le Fichier électoral : Un ancien de la DAF arrêté
+-  El PP respalda la llamada del Rey a respetar la Constitución "y mantener vivo su espíritu"
+-  Nisu svi oko odojka i francuske, znamo tko se za Božić ‘usrećio‘ i provodi ga na poslu: ‘Nema ti u nas neradnih dana‘
+-  Nellore Politics: మాజీ మంత్రి అనిల్ తో మాట్లాడేది ఆ ఇద్దరు ఎమ్మెల్యేలేనా? ఎందుకీ పరిస్థితి!
+-  Završena je većina infrastrukture za OI u Parizu, već su prodani milijuni ulaznica
+-  Pejabat Kemenhan Ukraina Dituduh Korupsi Peluru Artileri 45 Juta Dolar
+-  Interia: применение нового ЗРК «Панцирь-СМ» ВС России создаст проблемы для ВСУ
+-  Class action lawsuit alleges abuse at Quebec's Indigenous day schools
+-  Barishtja “magjike” që rregullon kolesterolin, sheqerin dhe rrit testosteronin
+-  Azerbaijan extends duration of some tax benefits
+-  الدعم الاجتماعي المباشر: حوالي مليون أسرة ستستفيد من الدفعة الأولى ابتداء من 28 دجنبر الجاري
+-  Bir fincan qəhvə, bir bilet: vəssəlam, şüt-tamam - MİLYONÇU OLDU
+-  Промоутер: Я впевнений, що Джошуа вирубить Ф’юрі
+-  ''SVE ĆU VAS UNIŠTITI!'' Šelton preti svima pa i Đokoviću
 -  태연, 나이를 거꾸로 먹는 비주얼…"귀염 탱구"
 -  '가요무대' 오늘(25일) 출연진…박혜신 진성 김수찬 이진관 윤수현 등
+-  Top 3 Tekno Berita Hari Ini: Video Viral Teleprompter yang Dipakai Gibran, Cara Kerja Teleprompter
+-  Ayodhya: राम मंदिर दर्शन करने वालों के लिए रेलवे की बड़ी सौगात, सस्ता रेल सफ़र कराने आ रही है अमृत भारत ट्रेन
 -  5 أماكن على الأرض لا تزرها الشمس في الشتاء.. ظاهرة عجيبة ساحرة
 -  Waterschap Rivierenland laat Arkelse Damsluis sluiten
+-  Aruba advierte a balseros venezolanos que serán detenidos en el mar y no recibirán asilo
+-  Overmacht Van der Poel imponeert ploegleider: 'Een van zijn beste versies ooit'
+-  Overmacht Van der Poel imponeert ploegleider: 'Een van zijn beste versies ooit'
+-  Se quedó dormido en la calle y no le robaron nada
 -  الذكاء الاصطناعي ينير شوارع المدينة المنورة
+-  Year Ender 2023: इस साल रिलीज हुईं ये 8 सुपरहीरो फिल्में, इंडियन स्पाइडरमैन 'पवित्र प्रभाकर' की भी हुई दमदार एंट्री
 -  مياه أمطار شعيب الشوكي تشكل خريطة طبيعية شرق تمير باالرياض
+-  Person finder krucifiks fra den tidlige middelalder med metaldetektor
+-  POLICIJA ZAUSTAVILA SUMNJIVI AUTO U SURDULICI! Dvojica muškaraca izašla, pa PRENERAZILI policajce - zbog ovoga su HITNO UHAPŠENI
+-  Вбито 100 цивільних за ніч: ХАМАС звинуватив Ізраїль у найкривавіших ударах за час війни
 -  Emmerdale's Charley Webb reminisces on Christmases with co-star ex as he 'moves on'
 -  Российские палубные истребители провели учения близ границы стран НАТО
--  100 جنيه زيادة اليوم.. سعر الذهب يحلق لمستوى تاريخي جديد في مصر
--  خريطة الأسعار اليوم: زيادة الأرز والطماطم وهبوط الحديد ومستوى جنوني للذهب
--  حسام موافي يحذر: هذا النوع من الضغط يسبب انفجار المخ
--  El PSOE apoya el mensaje del Rey y reivindica la Constitución como "marco idóneo para la convivencia"
--  Reece Hawkins goes Instagram official with his new girlfriend - after ex Tammy Hembrow announced her engagement to Love Island star
--  Krajišnici i Srebrenčani jedini bez poraza u sezoni
--  Инстасамка призналась в желании избавиться от имплантов
--  Paris : onze migrants s'évadent du Centre de rétention administrative de Vincennes
--  Лукашэнка прыехаў на два дні ў Санкт-Пецярбург
--  سيدة تلد توأما في يومين مختلفين
--  Предсказано будущее отношений России и Ирана после протеста Тегерана к Москве
--  الاحتلال يهدد الفلسطينيين بالضفة: مصيركم مثل غزة
--  Russia moves Navalny to a prison in the Arctic
--  Пронајден Алексеј Навални, се чувствува добро, објави неговата портпаролка
--  Nicole Scherzinger couldn't look happier as she and fiancé Thom Evans hold hands before hitting the rides at Winter Wonderland
--  Luis Aragonés: "Griezmann es más completo como jugador, pero mi padre era más líder"
--  Cyberangriff auf Universität Innsbruck
--  Cyberangriff auf Universität Innsbruck verübt
--  Shock as Transport CS MURKOMEN accuses his Treasury counterpart NJUGUNA NDUNGU of sabotaging construction of roads in Narok County.
--  Person finder krucifiks fra den tidlige middelalder med metaldetektor
--  Person finder krucifiks fra den tidlige middelalder med metaldetektor
--  ROMA OSLABLJENA IDE U NAPAD NA STARU DAMU Veliki derbi bez najjačeg aduta, Argentinac preskače nekadašnji klub
--  Szefowa Banku Rosji mówi, które sankcje są najdotkliwsze
--  Szefowa Banku Rosji mówi, które sankcje są najdotkliwsze
--  Минпросвещения поручили посодействовать в создании материалов о дизайне школьной среды
--  Academia de Hollywood define sus primeros finalistas para los Oscar
--  Jimmy Kimmel Live fame Neel Nanda passes away at 32, cause of death unknown
--  Эпидпорог по заболеваемости гриппом и ОРВИ в Казани превышен на 73%
--  The Future of Smart Home Fitness: Embracing the Convergence of IoT and Health Tech
--  Alexeï Navalny : l'opposant russe localisé dans une colonie pénitentiaire de l'Arctique
--  Қамчиқда қор ёғиши ва туман бўлиши кутилмоқда.
--  ЕXEED – Янги йилга муносиб совға!.
--  Танзила Норбоева: “Ўзбекистон ҳеч кимга мустамлака бўлмайди”.
--  Inaki Pena'dan Galatasaray sözleri! "Gelen teklif..."
--  FOTO známeho herca zo Sám doma láme srdce: Po mozgovej mŕtvici skončil na vozíku!
--  Živá hudba a vianočné pozdravy od detí základných škôl: Vybrať iba štyri bolo naozaj náročné, vysvetlila prezidentka Čaputová
--  Токаев приехал в Петербург на саммиты ЕАЭС И СНГ
--  Ценам на сладости во всем мире предрекли рост из-за одного феномена
--  В Ростове-на-Дону районный прокурор избил офицера Росгвардии
--  Llega a México la vacuna de Moderna contra Covid-19
--  Advierten inexperiencia de Birmex para compra de fármacos
--  10 deseos navideños en los clubes de Liga MX
+-  जम्मू-कश्मीर के पुंछ में 3 नागरिकों की मौत पर कोर्ट ऑफ इंक्वायरी के आदेश, ब्रिगेडियर रैंक के अधिकारी का तबादला
