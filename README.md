@@ -1,51 +1,51 @@
 # Latest News
+-  عاجل.. سحب ممطرة ورياح وضباب على الرياض ومعظم مناطق المملكة
+-  شتاء قارص.. "الحصيني" يكشف موعد انتهاء المربعانية وبداية الشبط
+-  Number of Koreans studying in China dwindles 78% from 6 years ago
+-  BNP Paribas, HSBC fined $20.3 mil. for illegal short selling
+-  First PHOTOS: Arbaaz Khan and Sshura Khan tie the knot in an intimate ceremony in Mumbai
+-  Sandeep Reddy Vanga opens up about Parineeti Chopra exiting Animal; says, “I didn’t see Geetanjali in her”
+-  Spikar på vägen i Stockholm
+-  העברות בעולם, 25.12: פ.ס.ז' מצאה חיזוק, גם ליברפול וארסנל מסמנות
+-  "אנחנו האויב של עצמנו": פוצ'טינו סוער אחרי התבזות של צ'לסי
+-  "ננטש" על ידי הקבוצה: הנסיעה הביזארית של מצארי מרומא לנאפולי
+-  Rysk nationalist kandiderar från fängelse
+-  Rysk nationalist kandiderar från fängelse
+-  Ponguleti: క్రిస్మస్ సోదరులకు శుభాకాంక్షలు తెలిపిన మంత్రి పొంగులేటి
+-  Tarot Card Horoscope: ਮੇਖ, ਕਰਕ, ਤੁਲਾ ਰਾਸ਼ੀ ਵਾਲਿਆਂ ਦਾ ਖ਼ਰਚਾ ਅੱਜ ਹੋ ਸਕਦੈ ਜ਼ਿਆਦਾ, ਸਾਰੀਆਂ ਰਾਸ਼ੀਆਂ ਦਾ ਜਾਣੋ ਟੈਰੋ ਕਾਰਡ ਤੋਂ ਰਾਸ਼ੀਫਲ
+-  Noua destinație a lui Adrian Mutu, după ce a fost dat afară de la Neftchi Baku
+-  La Bolsa de Hong Kong no opera hoy por festivo
+-  أحد خطط يوفنتوس لتعزيز الهجوم
+-  Erakko katseli paloa, joka järkytti joulurauhaa Rautjärvellä – Sitten epäilty löytyi kuolleena
+-  “Kəpənək” maskası adı altında hansı məşhur gizlənib?
+-  지드래곤, 마약 퇴치 재단에 3억원 첫 기부
+-  Ahok, Anies, dan Heru Budi Kompak Suarakan Kedamaian di Pesan Natal
+-  Jobs Alert: DSSSB में निकली 2300 से ज्यादा पद पर भर्ती, 9 जनवरी से कर पाएंगे अप्लाई, ऐसे होगा सेलेक्शन
+-  Watch: Arbaaz Khan sings with son Arhaan Khan at his wedding; Salman Khan dances
+-  WFI Suspension : 2 मिनट में देखिए सुबह की बड़ी खबरें | Brij Bhushan Singh
+-  МИД рассказал о намеренно наносящем вред россиянам Западе
+-  Toronto prospect is Canada captain
+-  수성못 밤하늘 수놓은 드론의 향연… 31일에도 화려한 드론쇼
+-  경산시보건소, 올해 각종 성과대회서 7개 기관상 수상
+-  칠곡군, 사과·배농가 '과수화상병 방제 약제' 신청 접수
+-  닥터포헤어, 론칭 10주년…전문성·차별성 강화
+-  칠곡군, 경상북도 일자리창출 평가 ‘대상’ 수상
+-  당근, 전 직구 공채…우수 인재 영입
+-  [인사] 삼일제약
+-  [인사] 한미약품그룹
+-  COVID-19: Maharashtra reports 50 new cases; nine of them JN.1 infections
+-  Ragam Kesalahan yang Terjadi saat Natal dan Cara Menghindarinya
+-  التكبالي: الدبيبة يعترض إرادة الليبيين بتمسكه بالكرسي
+-  Arkansas man arrested for allegedly having 6 homemade bombs; held on $1 million bond
+-  Việt Nam: Giá vàng miếng SJC vượt mốc 77 triệu đồng dù nhu cầu không tăng mạnh
+-  “Komandir, şəhid olsam, bu videomu saxla” - VİDEO
+-  Sunday Night Football: Chad Ryland's 56-yard FG gives Patriots 26-23 upset of Broncos
+-  換股案延燒 智冠網銀隔空叫戰
+-  SL to reopen previously closed diplomatic missions and establish new ones
+-  1 dead, 3 wounded in shooting at Colorado mall on Christmas Eve
+-  Мантуров рассказал, сколько власти закажут беспилотников в ближайшие годы
+-  גלאטסראיי פרסמה תמונה של איקרדי עם פנס וזעמה על השיפוט, דז'קו: מביך
 -  Fenerbahçe Galatasaray maçı kaç kaç bitti? Süper Lig Fenerbahçe Galatasaray puan durumu
--  Paras air Sungai Tembeling di Kuala Tahan menurun, aktiviti ekopelancongan terus rancak
--  2023 Necip Fazıl Ödülleri Çocuk Edebiyatı Ödülü sahibi Figen Yaman Coşar: Kalemi keskin duruşu nettir
--  မောင်ဘဦး - ဗိုလ် သခင် ဆရာ
--  Milei defiende su decreto y descalifica las protestas: "Estamos ganando la batalla cultural"
--  KT '갤럭시 점프' 시리즈 150만대 돌파…재구매율 높아
--  Indore News: 12 बजे मिल मजदूरों को संबोधित करेंगे पीएम मोदी, 11.30 बजे आएंगे सीएम मोहन यादव
--  고금리·고물가·내수침체… 한계 다다른 지역민·중소기업
--  “양식어류 폐사 막아라” 충남 서해 저수온 주의보 발령
--  বিক্ষোভে আটকে গেল পিএসসি চেয়ারম্যানের গাড়ি
--  Maut disengat tebuan ketika aktiviti permotoran
--  Kapolri Tinjau Gereja Katedral dan GRII Sambut Natal dan Tahun Baru 2024
--  Fact Check: ସୀମା ହାଇଦରଙ୍କ ପୂର୍ବତନ ସ୍ୱାମୀଙ୍କ ମୃତ୍ୟୁକୁ ନେଇ ନକଲି ଭିଡିଓ ଭାଇରାଲ ହୋଇଛି
--  על חודו של גול: מכבי תל אביב מנצחת ללא הפסקה, אבל לא מרשימה
--  Мастера Вологодчины могут принять участие в областном конкурсе ткачества
--  PM Modi, Shah, Nadda remember Vajpayee on 99th birth anniversary
--  Как правильно выбрать гостиницу на новогодние праздники
--  Помои текут из крана у жителей Олонца
--  Currency Rate In Pakistan - Dollar, Euro, Pound, Riyal Rates On 25 December 2023
--  BBVA consolida su remontada desde 2020 con el impulso de España y México
--  Luces y sombras para el ahorro conservador en 2024
--  Nav Canada issues delay YVR flights on Christmas Eve
--  Nav Canada issues delay YVR flights on Christmas Eve
--  Benjamin Melman: “La contracción del crédito bancario obliga al BCE a bajar ya los tipos de interés”
--  感覺每個人都在生病，研究：病毒流行模式改變
--  «Бахти Ташкентский»нинг ўғли ва қатор гумонланувчилар ушланди
--  올겨울 마음을 따뜻하게 녹여줄 동화 느낌 나는 장소 3곳
--  Top 15 News Roundup For Latest Nigeria News December 25
--  Weather In Rajasthan: सर्दी के साथ कोहरे का असर बढ़ा, विजिबलिटी हुई कम, जयपुर सहित 10 जिले प्रभावित
--  رئيس نادي الروضة: ماحصل في ملعب الوحدة من ضرب للرصاص أمر فضيع
--  Gunfire erupts at Colorado Springs mall on Christmas Eve. One man is dead and 3 people are hurt.
--  WFI के निलंबित अध्यक्ष संजय सिंह बोले खेलमंत्री से मिलकर करेंगे निलंबन खत्म करने की अपील
--  В Госдуме назвали одностороннее расширение границ США в Арктике недопустимым
--  حماس تصدر بيانا بشأن عيد الميلاد وتثمن موقف مسيحيي الشعب الفلسطيني الوطني المشرف
--  Набиуллина: льготная ипотека не станет экзотикой на фоне ужесточения условий
--  Tepkileri umursamadı Noel pozları gündem oldu! "Şuursuzluk"
--  台積電放棄進駐龍潭擴廠計畫！桃園五大產業園區工業用地仍飆
--  3 Lockscreen HyperOS Baru yang Bakal Hadir di Xiaomi
--  La Cicloneta: «Спартак» предлагал $6 млн за форварда «Сан-Лоренсо» Барейро
--  ये क्यूट रूम हीटर सर्दी को करेगा रफूचक्कर, मिलेगी 2 साल की वारंटी और 3 साइड सेफ्टी
--  District of Squamish warns trail-users of active bear den
--  ملک بھر میں مسیحی برادری آج کرسمس کا تہوار انتہائی جوش و خروش سے منا رہی ہے
--  Tejashwi Yadav Responds To DMK Leader`s `Bihar People Clean Toilet` In Tamil Nadu Remark
--  Baba Bageshwar Dhirendra Shastri Suggests How Hindus Should Celebrate `Christmas`
--  แอนโทเนีย โพซิ้ว สวยระดับจักรวาล แฟชั่นฉลองคริสต์มาส จึ้งจนละสายตาไม่ได้
--  Krieg gegen die Ukraine: So ist die Lage
--  নারায়ণগঞ্জে তৈরি পোশাক কারখানা করবে প্যাসিফিক জিনস গ্রুপ
--  Japon denizcilik firmaları rotalarını değiştiriyor
--  ABD öncülüğündeki deniz gücünde çatlak! Koalisyona katılmayacaklarını bildirdiler
--  Japon denizcilik firmaları, Kızıldeniz'deki saldırılar sonrası rotalarını değiştiriyor
+-  موقف ستيرلنج من المشاركة أمام كريستال بالاس
+-  Two hurt after car crashes into scaffolding in Flatbush, Brooklyn
+-  Merz will die Ampel-Regierung so schnell wie möglich ablösen
