@@ -1,51 +1,11 @@
 # Latest News
--  We dressed as Pacman and superheroes for Christmas party and spent £150k on nightclub booze then won the Premier League
--  ఏసయ్యా.. కరుణించు
--  Nový fond pivovaru Šariš rozdelil viac ako 11-tisíc eur na štyri verejnoprospešné projekty
--  యేసుక్రీస్తు జననం.. జగమంతా సంబరం
--  Istraživač - Nobelovac Konstantin Novoselov
--  COK - dodjela priznanja
--  Pembrolizumab by Merck for Bladder Cancer: Likelihood of Approval
--  Atezolizumab by F. Hoffmann-La Roche for Colorectal Cancer: Likelihood of Approval
--  Amivantamab by Johnson & Johnson for Hepatocellular Carcinoma: Likelihood of Approval
--  మా బతుకులు బాగుపడేదెన్నడు..?
--  На Македонија сериозно ѝ недостува медицински персонал, но и возила за прва помош
--  Правозащитники посетили задержанных «лидеров» сепаратистов
--  Иран в гневе
--  42 persona në Spitalin e Lushnjës/ Brataj: Janë jashtë rrezikut për jetën. Asnjë i bllokuar në qendrën tregtare e godinat përreth
--  భక్తిశ్రద్ధలతో దత్త జయంతి
--  LNP-3794 by Lupin for Solid Tumor: Likelihood of Approval
--  Vas-01 by VasGene Therapeutics for Oropharyngeal Cancer: Likelihood of Approval
--  Gebasaxturev by Merck for Oropharyngeal Cancer: Likelihood of Approval
--  ప్రభువా.. జగనకు మంచి బుద్ధిని ప్రసాదించు
--  نتنياهو : نعمل على ايجاد دول لاستضافة لاجئي غزة
--  القسام : استهدفنا 40 جنديا تصحنوا في منزل
--  Optocht met verlichte trekkers. Dit is de definitieve route van Lichtjestoer gemeente Barneveld
--  Pikantni džem od luka idealan kao prilog na svečanoj trpezi, a može i za originalan poklon
--  Nienburg: Stadt bekommt zum 1000. Geburtstag eine Sonderbriefmarke
--  Nach Augen-OP: Hailey Bieber trägt Taucherbrille beim Essen
--  సీఎం గారూ.. మా వైపు చూడండి..
--  Avelumab by Merck for Malignant Mesothelioma: Likelihood of Approval
--  Avelumab by Merck for Leptomeningeal Disease (Neoplastic Meningitis, Leptomeningeal Carcinomatosis): Likelihood of Approval
--  BI-1206 by BioInvent International for Sarcomas: Likelihood of Approval
--  Animada, Ana Hickmann prepara a casa para chegada de familiares: ‘Como eu amo’
--  Alexei Navalny é encontrado na Sibéria após duas semanas desaparecido
--  110 సంవత్సరాల వృద్ధురాలి మృతి
--  I’ve got the perfect recipe for your Christmas dinner leftovers – my pie is easy to make & totally mouth watering
--  I’ve got the perfect recipe for your Christmas dinner leftovers – my pie is easy to make & totally mouth watering
--  Jezivo upozorenje: "Očekujte uskoro! Zatvoriće se Sredozemno more i Gibraltar"
--  Переговоры о будущем Газы возможны после прекращения огня, заявило ХАМАС
--  Stenoparib by Allarity Therapeutics for Mantle Cell Lymphoma: Likelihood of Approval
--  Avelumab by Merck for Esophageal Cancer: Likelihood of Approval
--  Plogosertib by Cyclacel Pharmaceuticals for Peripheral T-Cell Lymphomas (PTCL): Likelihood of Approval
--  El bar al que llegó la primera televisión de Villardeveyo celebra 65 años con la tercera generación al frente: "La Vega es nuestra vida"
--  یکم جنوری سے پیٹرول کتنا سستا ہوگا؟ خوشخبری سنا دی گئی
--  MN - Difensori a gennaio. Passerini: "Caldi Mukiele e Lenglet. Gabbia piano A"
--  Dit ging er in 2023 allemaal mis bij Ajax
--  IOCL green H2 tender in legal mess, gets one bid
--  శ్రీశైలంలో ట్రాఫిక్‌ నియంత్రణపై సమావేశం
--  క్రిస్మస్‌ సందడి
--  Allt om Tour de Ski i Expressen – gratis tidning på köpet
--  Тўйиб овқатланолмаётган Ғазо болалари, Ироқда операция бошлаган Туркия ва Қизил денгиз коалициясига қўшилган Евроиттифоқ — кун дайжести.
--  Ер тарихидаги энг катта кўл Гиннес рекордлар китобига киритилди.
--  Nämä suomalaisvalmentajat voittaneet nuorten MM-kultaa
+-  В Израиле переименовали турецкий кофе
+-  Watch Hollywood Movies Online: A Guide to iBomma English Movies
+-  تأكيدات على الأهمية الاستراتيجية لمطار كسلا
+-  Podcast Historias Macabras: El Chacal de Guachipelín [VIDEO]
+-  (여자)아이들 우기, 미소 머금고~
+-  ΝΒΑ: Σε επέμβαση στο γόνατο θα υποβληθεί ο Γκέιμπ Βίνσεντ των Λέικερς
+-  Alexei Navalny is found in ARCTIC penal colony: Kremlin critic, jailed on trumped-up charges of slamming Putin's regime, is discovered caged in Russia's harshest jail dubbed 'Polar Wolf' after being secretly moved from outskirts of Moscow
+-  Οι Σαουδάραβες τρελάθηκαν: Αυξάνουν το όριο των ξένων!
+-  విద్యుదాఘాతంతో యువకుడి మృతి
+-  Severina podelila snimak nezgode sa koncerta: Mislila sam da me je pas ugrizao!
