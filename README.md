@@ -1,11 +1,11 @@
 # Latest News
--  إيثار الشبول .. مبارك التخرج
--  طهران: نحتفظ بحق الرد على اغتيال موسوي
--  المحكمة العليا الإسرائيلية تعلن موعد استئناف محاكمة نتنياهو
--  غزة.. استشهاد 250 شخصًا خلال 24 ساعة
--  48 ألف طفل يعانون من سوء التغذية الحاد في مخيمات النزوح بمأرب
--  الوزير الزعوري يلتقي مساعد الامين العام للجامعة العربية ووزيري التنمية الاجتماعية في فلسطين والمغرب
--  «خيارات جديدة» لوقف حرب غزة.. ترحيل قادة «حماس» مقابل إطلاق الرهائن
--  البابا فرنسيس يستنكر في رسالة الميلاد «الحصد المروع» لأرواح المدنيين في القطاع
--  الشتاء يفاقم الأوضاع الصعبة للنازحين في القطاع
--  «الأشغال» تنتظر موازنة تثمينية لترسية مشروع مجرور غرب عبدالله المبارك بـ 5.6 ملايين دينار
+-  더보이즈 영훈, 달달한 눈빛
+-  Prefiere pasar la Navidad entre rejas antes que solo y pide ser encarcelado
+-  المليشيا وبما تمارسه من عنف تلفظ أنفاسها الأخيرة
+-  Nach tagelanger Blockade: Flugzeug mit 276 Indern verlässt Frankreich
+-  Nytt företag startar i Örnsköldsvik : Birk Arkitektur Fastigheter AB
+-  Banorët në Kinë kalojnë Krishtlindjet me mot të pazakontë
+-  PF prende estelionatário condenado a 20 anos após “selfie natalina” durante ceia em Mato Grosso
+-  'Maintain Asian forest diversity to avoid climate change impact,' suggests new study
+-  Researchers develop 'electronic soil' that enhances crop growth
+-  Avian influenza has killed millions of seabirds around the world: Antarctica could be next
