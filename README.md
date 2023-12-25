@@ -1,51 +1,51 @@
 # Latest News
--  Kevin Spacey diz que Netflix existe por sua causa: "coloquei eles no mapa e tentaram me enterrar"
--  الإمارات.. انخفاض في درجات الحرارة الثلاثاء
--  Türkleri kızdıracak araştırma! Dünyanın en misafirperver ülkeleri açıklandı, Türkiye'nin konumu şok etti, bu liste kavga çıkarır
--  إيران تنفي اتهاماً أمريكياً بمهاجمة ناقلة كيماويات قرب الهند
--  One man dead and two seriously injured in Colorado mall shooting after fight broke out on Christmas Eve
--  Papa'dan Gazze'deki saldırıları durdurun çağrısı
--  Η Μαράια Κάρεϊ ανέβασε ένα ξεκαρδιστικό βίντεο με τα παιδιά της: «Μην ξαναπείς το All I Want for Christmas»
--  "السم البطيء".. طبيب يحذر من مكعبات مرق الدجاج - كارثة تحدث لجسمك
--  Spajić: Odluka da li aerodromi idu u zakup do kraja sedmice
--  Saudi-Arabia haluaisi Mestareiden liigaan
--  تفاهم بين «تدرا» و«دبي البحرية» لتعزيز كفاءة الأعمال التجارية
--  63 cases of JN.1 Covid variant in India: Health Ministry
--  Torre de Manaca-Iznaga entre interesantes propuestas del turismo cubano
--  विदेश की खबरें | फ्रांसीसी हवाई अड्डे से भारतीय यात्रियों को लेकर रोमानियाई विमान के प्रस्थान में देरी हुई: रिपोर्ट
--  जरुरी जानकारी | इंदौर में शक्कर, चना बेसन में मांग मजबूत
--  Hamas-Chef Sinwar: Keine Unterwerfung unter Bedingungen Israels
--  Avrupa Yakası'yla ilgili yıllar sonra ortaya çıkan gerçek herkesi şaşırttı! Duyanlar 'Gülse Birsel ne akıllı kadınsın' dedi!
--  Galo, Pepino e mais: os melhores mascotes do futebol
--  IND vs SA 1st Test 2023: साउथ अफ्रीका के कप्तान तेम्बा बावुमा को भारत के गेंदबाजी अटैक से डर, बताया खतरनाक
--  Rússia está em vantagem na corrida armamentista com Ocidente, diz ministro russo
--  SEÇİMLER YAKLAŞIYOR
--  Mersin'de tapu anlaşmazlığı faciası! Ablasını öldüren kardeş, intihar etti
--  Yüzde 25 kira zammı sınırının kaldırılacağı iddiası yalanlandı
--  Ennyi volt, tényleg beszüntette az Apple Watchok forgalmazását az Apple
--  Cristiano Ronaldo pokazał, co myśli o Superlidze. Wszystko jasne
--  Ermənistan artıq Moskvadan uzaqlaşaraq Qərbə yaxınlaşmağa başlayıb - Kolomina
--  Hackers Increase Attacks on Israel During War in Gaza
--  Full text in English & video of King Willem-Alexander's 2023 Christmas speech
--  Ивановски ја заврши годината на 326. место на АТП листата
--  Body found in Venlo home may be linked to violent crime, police say
--  Autorsko vođenje kroz izložbu "Staklo" u sredu u Muzeju Vojvodine
--  روسيا تسجل ثاني أكبر محصول من الحبوب في تاريخها خلال 2023
--  25 ديسمبر 2023.. البورصة تعاود الصعود
--  Chad Ryland ‘didn’t waver in confidence at all’ before kicking game-winner against Broncos
--  Autostrada Kërçovë-Ohër do të shkel edhe një afat
--  الحل في عسكرة وفد التفاوض مع إثيوبيا!
--  مصرف ليبي يتيح إمكانية طلب سلفة بدون أي فوائد ربوية
--  Prison bosses launch internal probe after female lag went missing from Mountjoy’s Dochas unit
--  Zvanično saopštenje MDULS: Učesnici protesta pristalice Đilasa i protagonista tuđinskih interesa
--  Hochwassergefahr in Teilen Deutschlands - Sturmfluten erwartet
--  "מסי עבר לגור לידי - ומאז ערך הבית שלי עלה ב-25 מיליון דולר"
--  לקראת פרידה מהפועל באר שבע: היעדים אפשריים של אסטריט סלמאני
--  ספלאש: היידי קלום לוהטת בתמונות חדשות מהחופשה בקאריביים
--  Yamin Ahmadzai bags five-fer as Afghanistan thump UAE in first practice match
--  Kontrolden çıkan tır devrildi
--  Ολυμπιακοί Αγώνες: Μάχη με τον χρόνο για το… ιδανικό παπούτσι που θα φέρει ένα ρεκόρ στον μαραθώνιο
--  Ukrajina sestrelila več ruskih letalnikov, Moskva se hvali s povečanim obsegom vojaške industrije
--  แนะลูกค้าประกันรถ "สินมั่นคง" เข้าอู่กลางลดข้อโต้แย้งเคลมไม่ได้
--  Por que jogar no Natal se tornou ainda mais especial para LeBron James na NBA e o que você precisa assistir pela ESPN no Star+
--  Quatro pontos que apimentam Lakers x Celtics (e LeBron x Tatum) no Natal da NBA
+-  Yurt dışından gelen telefonlarda süre uzuyor! 180 gün kullanılabilecek
+-  ПСЖ се подсилва с обещаващ бразилец
+-  Das sind besten Thermen und Wellnessbäder Deutschlands - inklusive Karte
+-  توضيح مهم بخصوص صرف المعاشات لمستفيدي أنظمة التقاعد
+-  "الجوازات" تدعو المواطنين والمقيمين لهذا الأـمر المهم
+-  Jovem é esfaqueado no peito e fica em estado grave ao ser atacado durante “forró” na véspera de Natal
+-  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الاثنين 25 ديسمبر
+-  Covid JN1 Subvariat: మళ్లీ కోరలు చాచుతున్న కరోనా.. భారీగా పెరిగిన జెఎన్1 సబ్‌వేరియంట్ కేసులు
+-  البورصة تتعافى بصعود 1.7% مع نهاية تعاملات جلسة اليوم الاثنين
+-  Калоян Методиев и неговата честитка за Коледа: Който не иска - да не меси
+-  ‘결국 히샬리송 버리나’... ‘분데스리가 폭격기’, 맨유 제안 거절→토트넘행 급물살
+-  Banjir Pahang: Jumlah mangsa meningkat 600 orang di Raub, Lipis
+-  Mann bei Attacke in Dubliner Steakhaus getötet
+-  BRUTALAN NAPAD NA SPLAVU U SMEDEREVU! MUŠKARAC PRETUKAO MLADIĆE: Jednom polomljena šaka, drugom povređeno lice
+-  14 Kereta Berhenti Luar Biasa untuk Antisipasi Kemacetan Natal
+-  Diyarbakır'da tarihi eser kaçakçılarına darbe
+-  "Газпром" получит газовый участок в Якутии за 328,5 млн рублей
+-  Объем экспорта в Дагестане в 2023 году вырастет на 40%
+-  Архиепископ Аксий наградил школьницу из Серпухова
+-  Venezuela vê provocação no envio de navio de guerra britânico à Guiana
+-  Dunelm shoppers are rushing to buy a ‘stunning’ mirror £510 CHEAPER than Anthropologie version
+-  Госпитализированный Красовский рассказал о своем состоянии
+-  В Краснодаре 200 талантливых детей получат новогодние подарки от местных властей
+-  Përplasi 62-vjeçarin i cili ndërroi jetë në spital, arrestohet e reja në Vlorë
+-  Angriff in Dubliner Steakhaus: Ein Mann getötet
+-  Вердикт вынесен: во что Ватикану обошлась лондонская недвижимость
+-  Рекордните 22,5 градуса са измерени в Монтана на Коледа
+-  Коледарският танц буенек оглася Ямбол
+-  Guru Besar FKM UI Sarankan Terapi Insulin Pasien Diabetes Dilakukan di Faskes Tingkat Pertama
+-  Twitter Terbukti PHP Tak Beri Bonus ke Karyawan
+-  Впервые в новой школе Кисловодска прошли соревнования по плаванию
+-  На Дону мужчина погиб при пожаре из-за непотушенной сигареты
+-  Навального нашли в самой северной колонии России
+-  Косули заполонили пригород Омска из-за аномальной зимы
+-  Maignan è il portiere che vanta più assist in Serie A dal 2004/2005
+-  Man arrested in double murder case in Namakkal
+-  Balkondan döktükleri kül yangın çıkarttı
+-  Ülke genelinde ortak yazılı sınavlar başlıyor
+-  I travelled in time while out shopping – the street totally changed & I was nearly run over… it didn’t just happen to me
+-  Центр национальных видов борьбы создадут в Чувашии
+-  وداعًا للكرش.. وصفة تخسيس ممتازة تخلصك من الوزن الزائد والدهون بدون ريجيم .. شاهدي النتيجة في 7 أيام
+-  وداعاً للسكري.. بذور صغيرة ولكنها فتاكة متوفرة بكثرة تمتص السكر في الدم وتفتت الحصى في الكلى
+-  Alberto Giuliani dönemi yaklaşık 11 ay sürdü
+-  Türk İHA ANKA-S filoya giriyor! Kardeş ülke askeri denemelere başladı
+-  Yurt dışından getirilen araçlar için yeni dönem! Süre belli oldu
+-  TFF'den Süper Kupa biletlerine indirim!
+-  Criticul Kremlinului Alexei Navalnîi a fost mutat într-o colonie penală din Arctica
+-  Lübnan İsrail sınırı saldırıların etkisiyle 'savaş bölgesine' döndü
+-  Briga por causa de cigarro termina em tentativa de homicídio em Sinop
+-  KONAČNA ODLUKA O BEOGRADU "PADA" VEČERAS! NESTOROVIĆ: "Pokušali nasilne proteste, je l' to nije dobar naslov za novine?"
