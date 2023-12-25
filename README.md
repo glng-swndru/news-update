@@ -1,51 +1,51 @@
 # Latest News
--  Gökyüzünün lideri Türkiye'ye dev proje! Başkan Erdoğan'ın katılımıyla açılıyor
--  15 uzman yardımcısı alınacak! Şartlar açıklandı
--  Minibüs bariyere çarptı! 15 yolcu yaralandı
--  Önemi dün gece yeniden anlaşıldı! Fred'siz Fenerbahçe kazanamıyor
--  Develi Belediyespor parkeden galip ayrıldı
--  1360 personel alınacak! Karar Resmi Gazete'de yayımlandı
--  Hakkari'de yoğun kar yağışı: 32 yerleşim yerinin yolu ulaşıma kapandı
--  Edirne'de devrilen traktör römorkundan saçılan 5 ton ayçiçeği trafikte aksamaya neden oldu
--  Esnaf ortağı tarafından kamyonetinde silahla başından vurulan kişi hayatını kaybetti
--  "Galatasaray'dan korkuyorlardı..." Arda Kardeşler yorumu sonrası Fenerbahçeli futbolcular için söyledikleri tansiyonu yükseltti!
--  Soccerladuma | Mathe: Riveiro Should Help Saleng
--  [포토] 화이트 크리스마스에 눈사람 만드는 어린이들
--  [포토] 눈 쌓인 스케이트장
--  [포토] 눈 내리는 크리스마스
--  CHIESA FOR PRESIDENT, RINNOVO A TEMPO, RUOLO CENTRALE MA C’È UN RISCHIO
--  แนวถนัด! ‘นายกฯ’ ธีมเนคไทเขียว ถุงเท้าแดงข้าง-เขียวข้าง เมอรี่คริสต์มาสสื่อ
--  [포토] 화이트 크리스마스 스케이트
--  [포토] 눈오는 성탄절의 스케이트
--  Pourquoi les valeurs minières n'ont pas profité de l'envolée des cours de l'or en 2023
--  Afghan schoolgirls are finishing sixth grade in tears. Under Taliban rule, their education is over
--  [포토] 한국의 눈 만끽하는 관광객들
--  Shiba Inu Burn Rate Soars 5000% As Whale Reshuffles 4 Tln SHIB, What’s Happening?
--  Binance Announces Special Listings Of ADA, AVAX, DOGE, LINK, MATIC & Other Crypto
--  KyberSwap CEO Announces 50% Workforce Reduction Amid Security Exploit Fallout
--  China OKs 105 online games in Christmas gesture of support after draft curbs trigger massive losses
--  Manchester United sells 25 percent of its shares to INEOS
--  2023 legjobb társasjátékai – Böjti szerint
--  Sudakov, anche il Chelsea e lo United su di lui
--  ‘43%→37%→35%’ 지친 세르비아 외인, 김종민도 걱정 “이렇게 많이 때린 적이 없다 보니…” [MK김천]
--  Una transición liderada por los ciudadanos frente a una COP28 histórica pero insuficiente
--  Nächstenliebe: Oberhausener auf Afrika-Reise: „Uns wurde ganz anders“
--  Rob James - Exploring the mystery of Christmas Day
--  Der Stadtrat tagte: Leipzig bekommt einen Umweltgerechtigkeitsatlas
--  "Seltsamer Gesangsstil": Cher hasst ihre eigene Stimme!
--  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
--  Soziales: Hausgeburt: Amelie aus Voerde kam auf der Couch zur Welt
--  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
--  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
--  Lego Masters : qui est Aveline Stockart, la nouvelle juge de l'émission de M6 ?
--  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
--  Stórslagurinn í Tyrklandi stóðst alls ekki væntingar
--  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
--  Mercato : PSG, Real Madrid… Quel est le meilleur choix pour l’avenir de Mbappé ?
--  Merry Christmas from Wrexham.com!
--  OVO JE PRAVA PRIČA O ČOVEKU KOJI JE STVORIO FERARI Bio je tiranin opsednut ženama, hvalio se da je bio sa više od 3.000 njih
--  [포토] 눈내리는 크리스마스
--  충남시·군의회의장협 정례회 성료
--  덕산읍 발전협의회 등 진천군 온정의 손길 잇따라
--  대전시 2년 연속 국비 4조시대
--  “서산·태안 국비 5천억 시대 개막”
+-  Aksaray'da haber alınamayan yaşlı adam evinde ölü bulundu
+-  Konya'da 81 bin uyuşturucu hap ele geçirildi: 9 kişi tutuklandı
+-  1500 parçalık mini biblo koleksiyonu için ülke ülke gezdi
+-  Tarifeye aykırı ekmek satışı yapan işletmelere 9,4 milyon lira ceza kesildi
+-  İzmir'de kafeteryada darp edilen öğretim üyesi hayatını kaybetti
+-  Uludağ’da günlük kayak maliyeti 5 bin lira
+-  MSB: Hava harekatlarında en az 26 terörist etkisiz hale getirildi
+-  Edirne'de 1 haftada 262 kaçak göçmen, 12 organizatör şüphelisi yakalandı
+-  日시민단체도 분노했다…“강제동원 日기업, 韓피해자에 사죄하라”
+-  “조국 내외 선처” 탄원, 이틀 만에 ‘4만 시민’ 모였다…핵심 지지층 확인?
+-  Ispala veka: Pozvao druga da mu se pohvali veridbom, pa doživeo transfer blama VIDEO
+-  Депутат оказался заказчиком жестокого убийства
+-  Ильхам Алиев поздравляет президента Швейцарии и эмира Кувейта
+-  Украинцы сбили российский Су-30
+-  妇科炎症吃什么消炎药效果好
+-  妇科炎症怎么调理自愈
+-  妇科炎症是什么原因引起的
+-  „Ne Stalinas. Bus kaip su Nikolajumi II.“ Skelbiamas Putino likimas
+-  Kitas lygis! „Tesla“ pristatė tikroviškiausią ir pažangiausią iki šiol sukurtą robotą (Video)
+-  Bombomis atakuotas Niujorkas. Yra sužeistų
+-  Putinas kovos iki galo. ES likimas ant kortos
+-  „Tai katastrofa Europai.“ Skelbiama Rusijos imperija. Ką darys Putinas
+-  [ŽT] Kaip apsaugoti Kalėdų eglę nuo katino? Skelbiamas genialus triukas (Video)
+-  [ŽT] „Amžinasis skrydis.“ Rusai nervinasi. Karštligiškai ieško, kas numušė Su-34
+-  Gašioć posetio povređene policajce u Urgentnom centru
+-  Dschungelcamp: RTL hat genug – Promi-Plan angeblich verworfen
+-  Tropas russas destroem mais de 10 mil drones da Ucrânia durante operação especial, diz Ministério da Defesa
+-  Mensagem de Natal de presidente palestino foi apelo por fim do genocídio praticado por Israel
+-  Nijerya'da çobanlar ile çiftçiler çatıştı: 16 ölü
+-  Menajerler önerdi! Beşiktaş için son aday: Leonardo Jardim
+-  Oyun oynarken nehre düşen çocuğu arama çalışmaları devam ediyor
+-  Makanan Sehat Ciptakan Lingkungan Berkelanjutan? Ini Kata Studi
+-  Gašić obišao povređene policajce: Napadi na one koji štite zakon su nedopustivi FOTO
+-  Lavlji grad: Milion atrakcija i bezbroj atraktivnih prostora FOTO
+-  Mahfud Md Batal Kampanye di NTB, Staf Khusus Sebut Dokter Sarankan Istirahat
+-  Joséphine, ange gardien : que vaut l'épisode inédit de la série avec Mimie Mathy diffusé ce soir ? Notre avis
+-  4 Tingkatan Status Gunung Berapi, Apa Langkah yang Harus Dilakukan di Tiap Status?
+-  Jaga Kondusivitas Natal, Forkopimda Sleman Kunjungi Sejumlah Gereja
+-  El nacimiento navideño, una tradición europea
+-  [2023 기록할 만한 전시] 세비야에서 온 사진, 광저우로 간 그림
+-  [아이들 글로 보는 세상] 1. 엄마 아빠 이야기
+-  देश की खबरें | नया मंत्रिमंडल मध्यप्रदेश की बेहतरी के लिए काम करेगा : मुख्यमंत्री यादव
+-  Virat Kohli Most Popular Sportsperson In India: भारत में नवंबर के महीने में विराट कोहली सबसे लोकप्रिय खिलाड़ी- रिपोर्ट
+-  Bu yol əsaslı təmir olunacaq
+-  ‘풀백들이 무려 114도움’... 알렉산더 아놀드, PL 역대 수비수 어시스트 공동 1위 달성
+-  불붙은 ‘김민재 팀동료’ 쟁탈전…바르사-맨시티 이어 맨유가 관찰 중
+-  學童輕生︱中學三層應急機制為「買時間」 林正財：政府早預知問題
+-  Ky është parashikimi i motit për sot
+-  Grupos Central e Oriental dos Açores com aviso amarelo de chuva forte
+-  Palestinians feel 'no joy' as Israel bombs Gaza on Christmas
