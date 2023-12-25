@@ -1,51 +1,51 @@
 # Latest News
--  Army Chief Manoj Pande To Visit J&K To Review Security As Poonch Anti-Terror Ops Enter Day 6
--  “국민 10명 중 8명 OTT 본다”…콘텐츠 적극 소비층 ‘1030세대’ 주목
--  [IT클로즈업] 제4이통 도전 3사 '동상이몽'…투자금 확보·운용 계획은?
--  5G 스마트폰 이용율 절반 넘어…통신비 4년 만에 첫 감소
--  Qui est responsable si des bougies de Noël enflamment la jupe d’une invitée ?
--  «Реализовать совместные проекты»: какие вопросы затронут на саммите лидеры стран Евразийского экономического союза
--  La hipótesis de Dios
--  Pri zraneniach duše sa nelámu kosti, bolia však rovnako
--  “El antisemitismo está muy vinculado con la propaganda difundida durante la guerra entre Israel y Hamás”
--  3 Fakta Menarik Suki Waterhouse, Debut Akting pada 2012
--  Gänserndorf-Süd - Schimpansin starb: Gut Aiderbichl trauert um ehemaligen Laboraffen
--  Yakup Köse yazdı: Türkiye-Gazze cephe hattına saldırı
--  ’ساس تو سب کی ہوتی ہے، ماں کسی کسی کو ملتی ہے‘
--  শাকিবের সঙ্গে আসামে যাচ্ছেন ইধিকা, নিরবের সঙ্গে বুবলী
--  Så blir din skatt 2024 – se skillnaden mot 2023
--  پولیس صربیا دو افغان را به اتهام قاچاق انسان دستگیر کرد
--  Afrikas größter Club-Fan: Der Traum vom Heimspiel im Max-Morlock-Stadion lebt weiter
--  Afrikas größter Club-Fan: Der Traum vom Heimspiel im Max-Morlock-Stadion lebt weiter
--  'Korona’sınız farkında değil misiniz
--  "Don't Necessarily Think...": Healy's Honest Take On Spat With Harmanpreet
--  Почему трехминутная тренировка под ритмичную музыку улучшает работу мозга
--  ‘It feels good helping someone who helps others’: How Jess brought Christmas cheer to Maree
--  ‘It feels good helping someone who helps others’: How Jess brought Christmas cheer to Maree
--  В Хакасии отменили уличные новогодние гуляния после обрушения горки с детьми
--  Российские спецназовцы взяли опорный пункт ВСУ под Артемовском
--  제주 숙박업소 신축 공사장서 불…인명피해 없어
--  “허웅과 제대로 해봐” 5769명 창원 팬 열광케 한 이관희의 열정, 패배에도 빛난 ‘캡틴’
--  Sri Lanka frees 1,000 prisoners to mark Christmas
--  Luka Doncic chases 10,000 mark as Mavericks face Suns on Christmas
--  “SUZUKI SWIFT” ครองใจลูกค้า ตอบโจทย์คุ้มค่า ราคาเข้าถึงได้ง่าย
--  Cold wave tightens grip on north India, Delhi shivers in dense fog with 'Very Poor' air quality
--  Dallas hospital hosts Christmas Eve wedding for late-stage cancer patient
--  कांग्रेस सभापति देउवा आज तनहुँ आउनु हुँदै
--  Tausende Unterschriften für das Wildbad: Verkaufs-Absicht der Kirche schlägt hohe Wellen
--  „Zitterpartie“ für Familien in Waltrop: 346 Kinder für das Kita-Jahr 2024/25 angemeldet
--  Heike Dewald spendet 1100 Euro ans Kinderpalliativzentrum: „Es ist meine Herzensaktion“
--  Dans la peau d'un autre
--  Franken-Therme feiert im November einen neuen Rekord: Aber ab diesem Termin wird es teurer
--  Gazze’de can kaybı 20 bin 424’e yükseldi
--  สุดเศร้า! “ดารุณี กฤตบุญญาลัย” เสียชีวิตอย่างสงบ “อั๋น ภูวนาท” โพสต์อาลัย
--  ศาลเลื่อนไต่สวนถอนประกัน ‘ตะวัน-บุ้ง ทะลุวัง’ คดี 112
--  민형배 "'깐족이' 한동훈, 비대위원장 중도하차할 것"
--  등대·벽화·카페 품은 우체국…‘장애물 없는’ 건물로 거듭나
--  Shawn Johnson Shares Why She Refused Narcotic Pain Meds After Recently Giving Birth
--  “끝까지 불명예스럽네” 맨전드 네빌의 분노…왜? “인수 발표 타이밍이 정말 끔찍해”
--  "김치! 참치! 꽁치" 한덕수 총리 마산 신신예식장서 '깜짝 주례'
--  [경남도립미술관 소장품 산책] 9. 자연과 인체를 융합한 괴암(魁巖)의 세계 - 김주석
--  Число погибших при обрушении гаража в Иваново увеличилось до двух
--  "Mr. Christmas Tree" brings holiday cheer to shoppers at Columbus Circle
--  '소년시대' 임시완, 12월 배우 브랜드평판 1위 '우뚝'
+-  Valtteri Bottaksen F1-ura uhkaa päättyä pian
+-  Brutal reality of Australia's cost-of-living crisis: Nurse reveals how her bills kept her separated from her family this Christmas
+-  "جردة حساب" مع زهران
+-  الیکشن کمیشن نے سیاسی جماعتوں کی تازہ لسٹ جاری ک دی ، سربراہان میں عمران خان کا نام شامل ہے یا نہیں ؟
+-  영탁, 고민견 행동·심리 분석…강형욱도 '감탄'('개훌륭')
+-  Москвичам рассказали о погоде в понедельник
+-  Mets add reliever Chad Smith on minor league deal
+-  NVIDIA股價五年漲1400％！資深員工「半退休」，每個人都成富翁？
+-  PPS SK Sungai Machang ditutup
+-  Did you know that Mumbai’s churches depict the Nativity of Jesus?
+-  지역에서 영화 만든 주부들의 이야기를 책과 영화로
+-  ¿Qué deparará 2024 a los mercados emergentes? Schroders ve oportunidades de inversión
+-  Ni estradnjacima nije oduvek bilo sve med i mleko! On je kopao kanale, ona zarađivala u pekari, a tek druga zanimanja da čujete
+-  Paytm Laysoff 1000 Employees Amid Restructuring Efforts Including AI-Powered Automation, A Sad Beginning To The New Year
+-  Horoskop za 25. Decembar Devici sledi razočaranje, Škorpiji lepo poznanstvo, Raku slab imunitet
+-  파주시 ‘2024년 장애인복지 예산’ 65억 증액 763억 원 편성
+-  엄태연 청소년안전망팀장, 12월 파주시 칭찬공무원 뽑혀
+-  인천시교육청, 일선 학교에 학교장터(S2B) 이용 권장 영상 콘텐츠 제작 배포
+-  인천 화도진도서관, 초1~6학년 대상 겨울방학 특별프로그램 운영
+-  인하대, 내년 1월3일부터 정시 1천229명 모집…반도체시스템공학과 신설
+-  인천 남동구, 위기청소년 맞춤형 프로그램 추진…위기 청소년 지원
+-  인하대, 제7차 국제 제론테크놀로지 엑스포·포럼 개최
+-  인천세관, 지정장치장 화물관리인 지정계획 공고
+-  경기도교육청, 중고교생 10명 중 7명 "창업캠프 참여 희망"
+-  인하대병원, 인천시 노사 상생문화 우수기업 표창 수상
+-  재능대, 2023년 매치업(Match業) 사업설명회 및 참여기업 협약식 개최
+-  경기도, "내년부터 ‘똑타 앱’에서 공유자전거ㆍ택시 이용하세요"
+-  고향사랑기부제 모금액 연말정산 앞두고 증가세
+-  민주당, 윤 대통령 욕설 사과 촉구
+-  국힘, 26일 전국위원회 한동훈 비대위원장 임명
+-  국힘, 네이버 "책임의 외주화 중단, 뉴스 공정성" 촉구
+-  여야, 김건희 특검법, 이태원특별법 처리 격돌
+-  هكذا ستكون الحرب المقبلة في لبنان
+-  Gol de campo de 56 yardas de Chad Ryland da la victoria a Patriots por 26-23 sobre Broncos
+-  Asciende a 149 el número de muertos por sismo en el noroeste de China; hay dos desaparecidos
+-  Azərbaycanın bu şirkətləri Ermənistana 90 min avro ödəyib
+-  ارتفاع قليل في درجات الحرارة وأجواء باردة الاثنين
+-  Gandaki province govt intensifies infrastructure development
+-  Gallery: Lions beat Vikings 30-24 to clinch NFC North title in NFL Week 16
+-  French spies exposed in Azerbaijan, Macron fires intelligence head
+-  Google plans ad sales restructuring as automation booms
+-  천편일률 '빨간벽돌'은 그만…'서핑·사과' 우체국 재탄생
+-  Última semana para que graduandos apliquen al concurso de becas internacionales
+-  Abdiel Núñez: ‘Si te dedicas con constancia y lo haces bien, vas a tener éxito’
+-  Apagón: Falla eléctrica ocasiona caos navideño
+-  Elecciones 2024: ¿Tendrá eficacia la campaña del 'No vas'?
+-  Panamá Pacífico estará sin agua el miércoles
+-  Sacaron de las calles 13 armas de fuego
+-  Fueron sorprendidos cuando pretendían llevarse un auto en un supermercado
+-  Cuatro violadores pasarán la Navidad tras las rejas
