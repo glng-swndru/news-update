@@ -1,51 +1,51 @@
 # Latest News
--  30 سفينة أمريكية حملت أسلحة لتل أبيب منذ بدء الحرب
--  מפחיד: בגלל מגע עם מים - האייפון התפוצץ ועלה באש
--  רס"ר ניתאי מייזלס וסמל רני תמיר נפלו בקרבות ברצועת עזה
--  MIMORIADNY ONLINE Rusko a Ukrajina hlásia zostrelené nepriateľské lietadlá
--  Vedci riešia veľkú záhadu: Kedy naozaj sa narodil Ježiš Kristus? Ohromujúce zistenie
--  Vianoce u Michala Hudáka: POLONAHÝ v POTOKU... A tento TOP darček dnes NIK NEPOCHOPÍ!
--  MIMORIADNY ONLINE V Pásme Gazy je asi 50-tisíc tehotných žien: Hamas informuje o najmenej 60 obetiach izraelského náletu
--  浙江小子職校逆襲至MIT博士 成圖靈獎得主門生
--  ХАМАС отвергло переговоры по заложникам без прекращения Израилем боевых действий в Газе
--  Един убит и двама тежко ранени при стрелба в мол в Колорадо ВИДЕО
--  خط دفاع الاتحاد أمام النصر في الدوري السعودي
--  Guyon Ketua PBNU Sebut Cak Imin Tidak Menang di Pilpres, Begini Respons Anies
--  Депутаты Забайкалья поддержали эвтаназию бездомных собак в первом чтении
--  17-летняя девушка пострадала в ДТП у Йошкар-Олы
--  সঞ্জীব চৌধুরীর জন্মদিনে ঢাবিতে উৎসব
--  भारत या पाक नहीं, किस एशियन टीम ने साउथ अफ्रीका को घर में घुसकर चटाई धूल?
--  Plužine: Struјa nestaјe čim zagrmi ili dune јači vјetar
--  В Казахстане заявили о росте торговли с партнерами по ЕАЭС за семь лет на 74%
--  Son dakika! 37 ilde 'Kalkan' Operasyonu: 192 insan kaçakçısı gözaltında
--  Народные приметы на 26 декабря: что нельзя делать в этот день
--  Какие церковные православные праздники нас ожидают 26 декабря
--  37 ilde göçmen kaçakçılığı operasyonu! Ali Yerlikaya açıkladı: 4 bin 568 göçmen yakalandı
--  Какие международные праздники и памятные дни нас ожидают 26 декабря
--  Какие праздники отмечают 26 декабря
--  Карчаа заявил, что большинство неисправностей на ЗАЭС связано с устаревшим оборудованием
--  Гороскоп на 26 декабря 2023 года: что обещают астрологи
--  Scammers use 'wallet drainer' to steal $60 million in crypto: What is it
--  Число обесточенных из-за непогоды потребителей в Дагестане снизилось до 3,4 тыс.
--  [CES2024] LG NOVA, 미래 먹거리 선보인다
--  협력사 상생결제 1000조 돌파…중기 유동성 숨통
--  중기중앙회, '2023년 중기지원 최우수 국회의원' 선정‧시상
--  제주항공, 일본 소도시 하늘길 넓힌다
--  중기부, 눈꽃 동행축제 '헌혈 인증 챌린지' 시작
--  남원, 9개 기관‧단체 학교 밖 청소년 장학금 수여
--  한국연구재단 ‘대학 연구행정 전문가 경진대회’ 우수상 받아
--  의령군-정책자문단, 군정 발전 위한 '동심합력'
--  광명시, 지능형 챗봇 서비스 ‘광명톡(Talk)’ 26일 개시
--  의령군, 맑고 깨끗한 수돗물 ‘부자水’...“좋아요”
--  충남도, 다문화가족 정책 체계적 운영안 모색
--  창원시의회, 올해 회기 일정 마무리... 안건 23건 처리
--  포항시, ‘2023 도시경관 디자인 공모전’ 시상식 개최
--  용인시민 97.1% "시정소식지 '용인소식' 만족"
--  울릉군 농업기술센터, 연구협력기관 ‘우수기관상’ 수상
--  의정부시의회, 제326회 제2차 정례회 마무리
--  하림, ‘아침머꼬’ 조식지원 성탄선물 후원
--  양구군, 평생학습 프로그램 강사 모집
--  춘천시 솔바우마을, 전국 최초 재생에너지 사용 1호 '농촌 마을' 선정
--  유상범 의원, 2024년도 지역 핵심 예산 1008억원 확보
--  배민, '우아한 라이더 살핌기금'으로 라이더 295명 지원
--  황미상·기주옥 의원, 경기도시·군의회의장 남부권협의회 표창 수상
+-  התחזית: עלייה בטמפרטורות - שתמשך עד ליום חמישי לפחות
+-  Aumentan las posiciones cortas en el dólar ante la desaceleración de las subidas de tipos de la Fed
+-  Krampuszfutás, görkoris mise és karácsonyi rémmacska - szokatlan ünnepi hagyományok a világban
+-  Навоийда Cobalt газ баллони портлаши оқибатида 3 ёшли бола вафот этди
+-  Quake recovery starts with a bowl of hot beef noodles
+-  Jakarta-Bandung High-Speed Railway: a New Example for Belt and Road Cooperation
+-  Catherine spends Christmas eve in Tamil Nadu with Michael Douglas
+-  Halk TV'de şehitlerimiz üzerinden kirli algı operasyonu!
+-  Fotoğraflar üzerinden hükümeti hedef almak isteyen Veli Ağbaba fena faka bastı!
+-  Tovuzda 45 yaşlı kişini maşın vurdu
+-  The Winners and Losers of NFL Week 16
+-  Nefesler tutuldu, yeni asgari ücret açıklanacak: İTO Başkanı 'bölgesel asgari ücret' istedi, sendikalar karşı çıkıyor
+-  10 หุ้นดาวร่วง 2566 ราคาหล่นหายปรับลดลงมากที่สุด
+-  서울 지하철 노선도 40년 만에 바뀐다…달라진 점은?
+-  성탄절 전야 음주운전 전복사고…신고자는 ‘애플워치’
+-  الخوخ الناعم .. لون 2024
+-  Furnace explosion at Chinese-owned nickel plant in Indonesia kills at least 13 and injures 46 others
+-  80％オフで『AI: ソムニウム ファイル』が880円！【Steamウインターセール】
+-  이범석 청주시장 "지북동 눈썰매장 부상자 치료 지원"
+-  Четыре человека погибли в результате ДТП на трассе Пермь-Екатеринбург
+-  كيف تُصبح مليونيرًا.. مديونًا؟
+-  Психолог предупредила о минусах секса втроем
+-  Jamin Listrik Jakarta Aman di Malam Natal, PLN: Kami Memastikan Zero Mistake
+-  Ali Sabancı'ya Arkadaşlarından Pastalı Kutlama
+-  বিকাশমান বিশ্বব্যবস্থায় ভূ-অর্থনীতির যে প্রভাব
+-  Inilah Asal Muasal Depresi Musim Libur yang Sebaiknya Anda Ketahui
+-  কলাপাড়ায় আওয়ামী লীগ কার্যালয়ে ঢুকে শ্রমিক লীগ নেতাকে কুপিয়ে জখম
+-  Accidents de la circulation, alcool ... Les pompiers de St-Étienne, dans la Loire, doivent redoubler de vigilance en cette période de fêtes
+-  Upcoming Cars Under 10 Lakh: આગામી વર્ષે બજારમાં આવશે 10 લાખ રૂપિયાથી ઓછી કિંમતની આ કારો, કઇ ખરીદશો તમે?
+-  Former Rabbitohs player dies after motorcycle crash in Cook Islands
+-  Former Rabbitohs player dies after motorcycle crash in Cook Islands
+-  411’s The SmackDown LowDown Report 12.23.23: LA Knight Talks AJ Styles and Randy Orton
+-  اتحاد المقاولين بمحافظة المهرة يدشن برنامجه التصعيدي بنصب نقاط على الخط العام
+-  신나는 눈썰매
+-  제설작업으로 분주
+-  아기예수 탄생의 기쁨과 축복을
+-  제주 제2컨벤션센터, 추진 8년 만에 착공…APEC 유치 이끌까
+-  Великобритания решила отправить военный корабль в Гайану из-за Венесуэлы
+-  อัปเดตล่าสุด เติ้ล ธนพล อดีตพระเอกชื่อดัง ปัจจุบันใช้ชีวิตบ้าน ๆ ติดดินกว่าที่คิด
+-  Россиянам развеяли популярный миф о масле
+-  হবিগঞ্জে আরেকটি শিল্পপার্ক করছে প্রাণ-আরএফএল
+-  Мать-порноактриса смутила дочь-порномодель своими откровенными видео
+-  Altın Fiyatları Yükseliyor mu? 25 Aralık 2023 Pazartesi Tam Altın, Gram Altın, Çeyrek Altın ve Güncel Altın Fiyatları Ne Kadar?
+-  Verbraucherzentrale warnt: Kunden der ING müssen jetzt wachsam sein
+-  코트라, 인도서 'K-뷰티' 시장 개척…'코스모프로프 인디아'서 한국관 운영
+-  Brent petrol fiyatı ne kadar oldu?
+-  993억이면 ‘탑클래스 MF’ 이적 허용한다…김민재 새 동료 영입 청신호
+-  Безработная россиянка расправилась со знакомым и сама во всем призналась
+-  Derbide son düdük geldi, Rıdvan Dilmen iki takıma da giydirdi! "Dünya derbisini yurtdışından biri izlese..."
+-  নাইজেরিয়ায় হামলায় নিহত ১৬ জন
