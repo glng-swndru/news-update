@@ -1,51 +1,51 @@
 # Latest News
+-  Unit price of Korean car exports reaches record high in 2023
+-  Fire at apartment building in northern Seoul kills 2, injures 29 people
+-  Israeli airstrikes kill dozens, Gaza officials say, in Christmas bloodshed
+-  FDA Keynote Speaker in the Spotlight, CAR-T Industry Leaders Gather for Discussion-Join the 2024 GenScript Biotech Global Forum for a New Journey in Cell and Gene Therapy
+-  비싼 '사과' 대신 바나나·망고·자몽...할당관세로 9~23% 가력 하락
+-  I’ve taken retirement from wrestling: Brij Bhushan
+-  Brit boxer Joshua overpowers Wallin; Parker beats Wilder
+-  Medvedev expects Nadal to be great challenge in 2024
+-  Arbaaz Khan marries Sshura Khan, see FIRST pics
+-  Pakistan welcomes ITF ruling on tie against India
+-  “반려동물 유모차가 더 팔렸다”…저출산에 유아용 판매량 앞서
+-  Stagnan, Harga Emas Antam Hari Ini Rp 1.132.000 per Gram
+-  イーロン・マスク主導でChatGPTに対抗して作られたチャットAI「Grok」が予想以上にリベラルな回答をして保守派支持層の怒りを買っている
+-  Navidad: qué significa, cuál es su origen y por qué se celebra cada 25 de diciembre
+-  A 'mammoth' move for Bornean elephant herd as it transitions to a new and freer environment in Malaysia
+-  Letters to the Canary: Just Stop Oil, BBC coverage of Gaza, and a Christmas poem
+-  Ukraina Ingin Beda dari Rusia, Pertama Kalinya Rayakan Natal 25 Desember
+-  رونالدو … الأفضل في دوري روشن
+-  Stage one of works at HFC Stadium completed
+-  Fire service warning over fire risk during winter time
+-  Sumatran tiger cub given her first Christmas tree
+-  Body found in River Severn in Stourport on Christmas Eve
+-  MP Mark Garnier reflects on year in Christmas message
+-  Kidderminster school appeal smashes half-way milestone
+-  Drugs line taken down in West Midlands and Worcestershire
+-  州巧越南廠 6 月開始投產！兩大產品線助攻明年營運
+-  Cars dan Motorcycle of the Year 2023 versi Forum Wartawan Otomotif Indonesia
+-  جمهور الأهلي سيدعم الاتحاد أمام النصر!
+-  Why Gynaecologists Warn Against Trying The 'Mulled Wine Bath' Trend From TikTok - The Insidexpress
+-  How My Daughter With Down's Syndrome Teaches Me To Be Brave - The Insidexpress
+-  Kim Kardashian comparte la tradición navideña para envolver regalos con su familia
+-  Cocaine-mad Sydney celebrates the washing up of bricks of coke on the city's beaches on Christmas like it's a Powerball win
+-  Vaalitulosten mitätöimistä vaativat mielenosoittajat yrittivät tunkeutua Belgradin kaupungintaloon
+-  شاهد بالفيديو.. صلاح سندالة يحلل حديث السيدة الجنوب سودانية التي زعمت أنها والدة الفنانة ندى القلعة: (في زول بتلبط في جنا ناس ساي؟)
+-  Vaalitulosten mitätöimistä vaativat mielenosoittajat yrittivät tunkeutua Belgradin kaupungintaloon
+-  Vaalitulosten mitätöimistä vaativat mielenosoittajat yrittivät tunkeutua Belgradin kaupungintaloon
+-  Vaalitulosten mitätöimistä vaativat mielenosoittajat yrittivät tunkeutua Belgradin kaupungintaloon
+-  จับตา! คนใกล้ตัวแชร์ภาพนักร้องสาว ลั่น #โสดแล้วจีบได้ แห่โยงข่าวลือคู่รักเลิกส่งท้ายปี
+-  2023's best, funniest and most WTF moments
+-  Jelang Natal, Monas, PIK, dan Kota Tua Dipadati Ribuan Pengunjung
+-  Alec Baldwin sends stinging letter demanding Radio City Music Hall stops using live animals who are 'forced to participate' in its annual Christmas show
+-  รทสช.เผย “พีระพันธุ์” ดูเองแก้ปัญหาปั๊มจ่ายน้ำมันไม่เต็มลิตร
+-  賴清德萬里老家鄰居發給社會公開信 「到底要把我們逼到哪裡？」
 -  Scientists explore deploying nuke in space to stop catastrophic asteroid
+-  فارق شاسع بين الهلال والنصر
 -  冬天跑步呼吸冷空气怎么办
 -  冬天跑步的好处和坏处有哪些
 -  冬天跑步十大禁忌 不要忽视身体信号
 -  冬天跑步不出汗能减肥吗
 -  랩·신탁 '돌려막기' 일부 증권사 CEO 중징계 예상…이르면 내달 제재
--  [2023 LH 공공주택 현상설계] 에이앤유디자인, 자연·도시·사람 어울리는 '소통 마을' 구상
--  지방·중소형 저축은행, 부동산 PF 부실 심각…1년 반 새 5배↑
--  한만두식품, 1+1 고객 감사제 ‘최대 60% 할인’ 행사
--  Kamyon ile kamyonet birbirine girdi: 1 can kaybı
--  تُجمّد الجسم لدقائق.. كل ما تريد أن تعرفه عن شلل النوم
--  Xinjiang achieves leapfrog development in opening-up
--  “Laos has abundance of natural resources; Korea is very welcome for win-win partnership!”
--  HD현대마린솔루션,'메탄올 이중연료 추진 개조 설계' 선급 인증 획득
--  LG전자, 초소형 4K 프로젝터 LG 시네빔 큐브 공개
--  LG 사운드바, 美 소비자 선정 '올해 최고 제품'
--  Rising Baby Name Trend Could Become the New Normal - Is Our Nation in Danger?
--  Merry Christmas & New Year Wishes: क्रिसमस के साथ-साथ नए साल की दें बधाई, प्रियजनों संग शेयर करें ये WhatsApp Stickers, GIF Greetings, Wallpapers और HD Images
--  Washington County Jail brings back GED classes
--  ”Tämä on uusi Birkenstock” – Suomalais-kalifornialainen yhtiö tähtää Suomen suurimmaksi vaatebrändiksi
--  20대 이하 신차등록 점유율 6%…2009년 이후 최저
--  Morgan Stanley MUFG espera unos ingresos récord en Japón en medio del cambio de políticas
--  Cak Imin Janjikan Dana Desa Rp 5 Miliar, Tim Visi-Misi: Insentif Agar Berlomba Memperbaiki Diri
--  Warning of 'very severe' Christmas Day thunderstorms heading for parts of NSW
--  Warning of 'very severe' Christmas Day thunderstorms heading for parts of NSW
--  Warning of 'very severe' Christmas Day thunderstorms heading for parts of NSW
--  She knocks on doors up to 6 times a week to check in on seniors
--  'Christmas Story' Star Peter Billingsley Reveals If He Thinks 'Die Hard' Is a Christmas Movie
--  Fox News включил Байдена в список главных политических лузеров
--  القبض على تشكيل عصابي من الجنسية التشادية يمتهن سلب المواطنين والوافدين
--  焦點股》北極星-KY：切入減肥市場 強彈連4紅
--  [아침와이드] 눈 내리는 화이트 크리스마스…낮 1~7도 영상권
--  Godwin Emefiele Breaks Silence Over Alleged Withdrawal Of $6.23 Million From CBN Vault
--  Thousands take to streets in Serbia, call for annuling 'unfair' elections
--  25 Ucapan Natal untuk Keluarga yang Spesial
--  Philadelphia 76ers no contará con Joel Embiid para el juego de Navidad por lesión en su tobillo
--  Avoid these Christmas treats that pose threats to pets
--  Trevor Lawrence injured again in latest Jaguars worry: ‘It’s bothering me’
--  내년 민간아파트 분양 26만가구…평균의 75% 수준
--  Lisää lunta osaan maata – Tapaninpäivänä pakkanen kiristyy
--  "الملك سلمان للإغاثة" يواصل خدماته الخيرية في الدول الصديقة
--  Asamblea: las leyes heredadas con vía libre, las nuevas avizoran traspiés
--  जलवायु न्यायमा तड्पिएका मुलुक
--  Russia, Ukraine report 6 civilians deaths in attack on Kherson, Horlivka
--  Justin Sun วางแผนจะปล่อยเหรียญมีม Coconut Chicken บนเชน Tron
--  왜 그들은 배신하는가…해외로 빠져 나가는 핵심기술
--  Christmas 2023: Ranbir Kapoor and Alia Bhatt Look Stunning as They're Papped After Xmas Party (Watch Video)
--  대법 "주 52시간 준수 여부, 1주간 근로기준"
--  Uttar Pradesh: Religious Slogans Written on Wall of Mosque in Aligarh, Samajwadi Party Leaders Seek Action (Watch Video)
--  '속수무책' 기술유출 범죄…처벌 강화로 산업 보호해야
