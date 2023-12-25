@@ -1,51 +1,11 @@
 # Latest News
--  정강애 사진작가 제 2회 사진개인전 열어
--  TeraBox, 안전한 클라우드와 함께 풍성한 연휴 위한 캠페인 공개
--  중국 자체 건조 13만톤급 대형 크루즈선 첫 입항지 제주 찾는다
--  길고양이 중성화사업 확대 추진
--  서귀포시, 도내 최초 어린이 건강체험관 개관
--  El panameño Jorge ‘Puchulin’ Serrano firma contrato con el Motagua
--  Pendaftaran Lowongan Direktur Otorita IKN Diperpanjang
--  ত্রিশ বছর আগে শাহরুখকে রাহুল হওয়ার সুযোগ দিয়ে কি ভুল করেছিলেন সানি
--  Вучич: Имаше опит за "цветна революция", руските служби ни предупредиха СНИМКИ+ВИДЕО
--  ‘นิพิฏฐ์’ ท้า ‘ทนายทักษิณ’ รีบฟ้อง! จะได้รู้ความจริงเสียที
--  Soccer-Chelsea's Pochettino rues early missed chances in Wolves defeat
--  Anthony Albanese vows to ‘double down’ on Indigenous reconciliation in 2024
--  Christmas 2023: Europe Celebrates Merry Christmas Amid Lingering Security Concerns
--  Read The Story (পর্ব-১) : Four Friends | ইংরেজি - সপ্তম শ্রেণি
--  Cara Bedakan Demam Tumbuh Gigi dan Sakit pada Anak
--  シーズン第16週、プレーオフ戦線に新たな動き（試合結果情報あり）
--  I’m a dermatologist and Target has a great winter buy for dry skin under $3 – just ignore the instructions
--  Polda Sulteng Ungkap 4 WNA Asal Cina dan 9 Pekerja Lokal Tewas dalam Tragedi Ledakan Tungku Smelter di Morowali
--  I’m a dermatologist and Target has a great winter buy for dry skin under $3 – just ignore the instructions
--  El rey de España advierte de que fuera de la Constitución no hay democracia ni paz
--  Unit price of Korean car exports reaches record high in 2023
--  Fire at apartment building in northern Seoul kills 2, injures 29 people
--  Israeli airstrikes kill dozens, Gaza officials say, in Christmas bloodshed
--  想結束合作關係，又好怕撕破臉！7 個原則教你如何「和平分手」
--  FDA Keynote Speaker in the Spotlight, CAR-T Industry Leaders Gather for Discussion-Join the 2024 GenScript Biotech Global Forum for a New Journey in Cell and Gene Therapy
--  비싼 '사과' 대신 바나나·망고·자몽...할당관세로 9~23% 가력 하락
--  5 Hinweise darauf, dass du Bettwanzen hast
--  Bürgergeld-Empfänger fassungslos: Sie sollen sich selbst eine Arbeit suchen
--  Friedrich Merz: Weihnachtsbaum-Aussage geht nach hinten los
--  Kayky Brito reúne a família ao fazer retrospectiva de 2023
--  Chelsea's Pochettino rues early missed chances in Wolves defeat
--  I’ve taken retirement from wrestling: Brij Bhushan
--  Brit boxer Joshua overpowers Wallin; Parker beats Wilder
--  Medvedev expects Nadal to be great challenge in 2024
--  Arbaaz Khan marries Sshura Khan, see FIRST pics
--  Pakistan welcomes ITF ruling on tie against India
--  Người đàn ông mang tiền án tội giết người, tiếp tục đi cướp tài sản
--  Venezuela "en alerta" ante los planes del Reino Unido de desplegar un buque frente a las costas de Guyana
--  Daftar Ide Ucapan Selamat Natal 25 Desember
--  The dark world of illegal loan apps in India
--  Pope Kicks Off Christmas Celebrations In Shadow Of War
--  “반려동물 유모차가 더 팔렸다”…저출산에 유아용 판매량 앞서
--  Stagnan, Harga Emas Antam Hari Ini Rp 1.132.000 per Gram
--  イーロン・マスク主導でChatGPTに対抗して作られたチャットAI「Grok」が予想以上にリベラルな回答をして保守派支持層の怒りを買っている
--  Navidad: qué significa, cuál es su origen y por qué se celebra cada 25 de diciembre
--  Churches in Bhubaneswar gear up as Christmas festivities unfold
--  Islanders ‘playing for one another’ while climbing Metropolitan standings
--  A 'mammoth' move for Bornean elephant herd as it transitions to a new and freer environment in Malaysia
--  Letters to the Canary: Just Stop Oil, BBC coverage of Gaza, and a Christmas poem
--  Ukraina Ingin Beda dari Rusia, Pertama Kalinya Rayakan Natal 25 Desember
+-  경기도, 내년도 국비예산 18조5638억 확보 '역대 최대'
+-  경북도, 원전 예산 전액 확보...차세대 원자력 산업 조성 탄력
+-  경기도, 내년부터 '똑타 앱' 공유자전거middot;택시 이용 서비스 확대
+-  송유창 민주평통 김해시협의회장, 평화통일 특강 '눈길'
+-  크리스마스 전날 저녁 폭발음과 함께 건물 화재 발생
+-  경기소방, '소바시 119안전정책 토론회' 개최hellip;정책 공유middot;의견수렴
+-  벌써 한동훈과 마찰?hellip;尹대통령, 韓 발언 인용 '총선 후 특검' 보도에 '격노'
+-  尹 정부 느닷없는 양도세 기준 완화로 9천명 주식부자 감세 혜택
+-  Wie Fastenfische Wissenschaftlern dabei helfen könnten, unser Leben zu verlängern – DW – 07.12.2023
+-  Habana Mambo Festival: hacer, pensar y sentir la música y los bailes populares
