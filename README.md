@@ -1,51 +1,11 @@
 # Latest News
--  Албин Курти се факторизира на македонската политичка сцена, но може ли да се регистрира негова партија?
--  Turska u znak odmazde pojačala napade na kurdske ciljeve u Iraku i...
--  "Buon Natale" e poi questa foto: Marta Fascina, prime feste senza il Cav | Guarda
--  Galatasaray'dan penaltı açıklaması!
--  Fatih Tekke: Oyuncularım tüm enerjilerini sahaya yansıttı
--  Giresunspor, ayrılığı açıkladı!
--  Fenerbahçe Beko, deplasmanda farklı galip geldi!
--  Pri izraelskom útoku v Sýrii zomrel generál iránskych revolučných gárd
--  "In coma indotto per 48 ore". Ore di ansia per Madonna
--  Актера сериала "Слово пацана" заключили под стражу по делу об убийстве
--  3 لاعبين في ريال مدريد تنتهي عقودهم بنهاية الموسم الحالي
--  جرحى باستهداف مسيرة لمطار أربيل وتعطل الرحلات الجوية
--  Lyon'da vatandaşlar, İsrail tarafından öldürülen Filistinli çocukları anmak için eylem yaptı
--  Insurgency: 2024 Year Of Oriented Results In Fight Against Banditry – Lagbaja
--  Van Hooydonck: "Estamos podridos como ciclistas"
--  Jind News: इनेलो का प्रदेशस्तरीय महिला सम्मेलन उचाना में 31 को
--  Jind News: नागक्षेत्र सरोवर में मिला युवक का शव
--  Basti News: फसलों से लेकर जान तक के दुश्मन बने हुए हैं छुट्टा पशु
--  Basti News: कोटेदारी के लिए ग्राम प्रधान ने किया गुमराह, पोल खुली तो एफआईआर
--  Mainpuri: सड़क दुर्घटना में घायल हुए युवकों को मिलेगा 15.65 लाख का मुआवजा, कोर्ट ने बीमा कंपनी को दिए ये आदेश
--  Udham Singh Nagar News: हर नेता हो अटल जैसा सर्वमान्य
--  Una News: 100 मीटर लड़कों की दौड़ में विकास और लड़कियों में ममता प्रथम
--  Una News: नंगल-ऊना मुख्य मार्ग पर कार-बस में हुई जोरदार टक्कर
--  Budaun News: दिव्यांग खिलाड़ियों को बांटे ट्रैकसूट
--  अटल बिहारी वाजपेयी जयंती: शिवालयों पर बनेगा कॉरिडोर, लेजर शो में दिखेंगे शिव; बदल जाएगा बटेश्वर का दृश्य
--  Agra News: कुटी मशीन की चपेट में आकर ग्रामीण की मौत
--  अटल बिहारी वाजपेयी जयंती: 148 करोड़ से संवरेगा बटेश्वर धाम, सीएम योगी ने किया इन योजनाओं का शिलान्यास
--  Taj Mahal: ताज देखने उमड़े सैलानी, व्यवस्थाएं फिर धड़ाम; पश्चिमी गेट पर लगी एक किमी तक कतार
--  Mathura: दाऊजी महाराज ने ओढ़ी रजाई, समझो सर्दी आई, आज से शुरू होगा लक्खी मेला
--  Etawah News: वाहन चोर व चोरी की बाइक खरीदने वाला गिरफ्तार
--  Ghazipur News: 33 घंटे बाद बहाल हुई बिजली आपूर्ति
--  Cotentin. La nuit de Noël, ils ont assuré leurs missions pour votre sécurité
--  The Pope prayed for peace in Gaza and called children devastated by war the 'little Jesuses of today'
--  Can firing nuclear weapon stop 'catastrophic' asteroid from reaching Earth?
--  Ovo su tri dramatične životne priče koje su svima promijenile život! Naša novinarka o fenomenu ‘žive knjižnice‘
--  पीएम ने रिश्‍ता जोड़ा, नड्डा ने की चर्च में प्रेयर… क्रिसमस के बहाने ईसाइयों के बीच बीजेपी ने बजाई ‘जिंगल बेल’!
--  MP: बुंदेलखंड को मिले चार मंत्री, फिर भी कद्दावरों के बंगलों पर पसरा सन्नाटा, जानें वजह
--  अब कर्नाटक में हिंदी विवाद… दुकानों के साइनबोर्ड पर 60% कन्नड़ जरूरी, जानें क्या है आदेश
--  इजरायल के हवाई हमले में ईरान के टॉप मिलिट्री कमांडर की मौत, अब क्या करेंगे अयातुल्ला अली खामेनेई?
--  Israeli airstrike kills senior Iranian Revolutionary Guards general in Syria
--  MP News: धार आगरा-मुंबई मार्ग पर भीषण सड़क हादसा; छह वाहनों में लगी आग, ट्रक के ब्रेक फेल होने से टकराए वाहन
--  MP Cabinet: अमर उजाला से खास बातचीत; जानिए पद एवं गोपनीयता की शपथ लेने के बाद क्या बोले कैबिनेट मंत्री
--  MP News: संगीत नगरी में 1600 तबला वादकों ने एक साथ मिलाई ताल, बना विश्व रिकॉर्ड, CM ने घोषित किया तबला दिवस
--  Shahdol: सजायाफ्ता कैदी दंपती के मासूम बच्चे की मौत, मां-बाप ने जेल प्रशासन पर लगाया लापरवाही का आरोप
--  Μεταγραφική σκέψη (Ομόνοια)
--  Apple Developer Program offers tools to develop, distribute apps -- including forums, support
--  Una cena de Nochebuena termina con cuatro muertos y dos heridos en Brasil
--  MP Weather: कोहरे को लेकर ऑरेंज और येलो अलर्ट जारी, दृश्यता 0 से 50 मीटर तक रहने का अनुमान
--  تفاعل المستحضرات العشبية مع الأدوية خطر على الصحة
--  Schülerlotsen beschimpft: KPÖ plus fordert ein neues Tempolimit
+-  Пашинян не хочет, чтобы ЕАЭС превратился в СССР
+-  В Москве арестовали актера сериала «Слово пацана»
+-  Militæranalytiker peger på mulig årsag til Ukraines bemærkelsesværdige succes: »Begynder pludselig at falde ned fra himlen«
+-  Militæranalytiker peger på mulig årsag til Ukraines bemærkelsesværdige succes: »Begynder pludselig at falde ned fra himlen«
+-  واقعة مروعة.. رجل يجرح فتاة ويحرقها حية لسبب صادم
+-  سر شجرة الكريسماس السوداء لـ محمد صلاح.. ما علاقتها بفلسطين؟
+-  أموال ونجاح وحب.. 4 أبراج الحظ بيجري وراهم في 2024
+-  రైవాడకు పొంచి ఉన్న ముప్పు
+-  Mindst 113 er dræbt i angreb mod landsbyer i Nigeria
+-  వరసిద్ధుడి సేవలో పాట్నా హైకోర్టు న్యాయమూర్తులు
