@@ -1,11 +1,51 @@
 # Latest News
--  Man̄chiryāla: ఘనంగా వాజ్‌పేయి జయంతి
--  Corona Virus: తెలంగాణలో కొత్తగా 10 కరోనా కేసులు నమోదు
--  Kuzmić u FMP-u
--  Mangsa banjir di empat negeri hampir 20,000
--  شاهد.. بردية قوية على الحرة جنوب غرب تربة
--  Božović: Pozivam sve da shvate ozbiljnost situacije, stabilnost stoji iza Mila Božovića i vizije koju smo predstavili u predizbornoj kampanji
--  Bakı-Pirşağı qatarı niyə gecikib?
--  Beşiktaş'ta Gedson açıklaması!
--  Forsvarshelikopter udsendt til nødstedt redningsbåd i Hvide Sande
--  "Netanyahu hakkındaki yolsuzluk davası Şubat 2024'te devam edecek"
+-  Najpiękniejsze szopki w lubelskich kościołach
+-  Amerykańskie próby przed życzeniami dla Polaków
+-  Близо вековна традиция: Коледарският танц "буенек" за здраве и берекет в Ямбол
+-  Iran releases 52 Afghans from Zahidan prison
+-  엔하이픈, 설레는 비주얼
+-  르세라핌, 예쁜 볼하트
+-  더보이즈 '멋짐 가득'
+-  Karnataka: Under-construction building collapses in Bengaluru, 2 feared trapped
+-  BREAKING: President Murmu Approves New Criminal Bills, Replacing IPC, CrPC And Evidence Act
+-  رئيس الجمهورية يشرف على توزيع جوائز شنقيط 2023
+-  Кирил Десподов отново иска да е Футболист на годината
+-  Азербайджан поставил в Россию новую партию яиц
+-  Izbori u Srbiji: Studenti blokirali ulicu kod Vlade Srbije, od ministarstva traže otvaranje biračkog spiska
+-  Izbori u Srbiji: Studenti blokirali ulicu kod Vlade Srbije, od ministarstva traže otvaranje biračkog spiska
+-  Los impactantes looks de Sol Pérez para los debates de Gran Hermano 2023
+-  Una riña terminó con un hombre apuñalado en Las Heras
+-  ‘Goedzak’ Jan (67) is Brabander van het Jaar: kookt voor de armen en eenzamen
+-  Glada miner på VM-arenans is
+-  La timbale Escoffier champignons - volaille d’Eric Trochon
+-  Three essential movies to watch on Christmas Day: Day 25 of HITC’s Advent Calendar
+-  Nu har Amanda, 20, fått en ursäkt från Swedbank
+-  VIMMEL: Premiär i Bjästabacken
+-  ŽELITE DA BUDETE FIT U NAREDNOJ GODINI? OTKRIVAMO VAM PAR SAVETA ZA BOLJI TRENING
+-  Horror Fans Had a Screamingly Good 2023
+-  5 ZDRAVSTVENIH PREDNOSTI BELOG LUKA: Evo šta se dešava u telu kada jedemo ovo povrće
+-  Phil Foden praises Man City duo as new youngster looks to the future
+-  Gál Csabát megérintette az ünnep: „köszönöm, hogy részese lehetek az értékteremtésnek”
+-  Kaksi Venla-ehdokkuutta saanut Jani Halme tietää jo, minne suuntaa juhlistamaan mahdollista voittoa Parikkalassa
+-  Videón 2023 - mutatjuk a legfontosabb felvételeket februárból
+-  Egy vérbeli tatabányai pontosan tudja, hol készült ez a fotó
+-  Bruno Fernandes has sent transfer message to Manchester United ahead of January window
+-  Mirva ja Teemu Mäkitalolla on keskikesällä jopa 15 miljoonaa kotieläintä, jotka nauttivat Häntälän notkojen monimuotoisesta kasvillisuudesta
+-  Kako Volkswagen planira da uštedi 10 milijardi evra
+-  Katie Price spends Christmas apart from eldest children Junior, 18, and Princess, 16, as they enjoy a fun-filled day with dad Peter Andre and wife Emily MacDonagh
+-  تهديدٌ إسرائيلي للبنان قبل قليل.. مسؤولٌ كبير يعلن ما سيحصل!
+-  تحرير 42 محضرا ومخالفة لقانون حماية المستهلك في أسوان
+-  JN.1 يغزو الولايات المتحدة.. احذر أعراض أحدث متحورات كورونا
+-  Netanyahu: Rat u Gazi će trajati još dugo, nećemo odustati
+-  Ukraine says it shot down Russian fighter jets and drones as the country officially marks Christmas
+-  Paavo Väyrynen syyttää Postia kannattajakorttiensa kadottamisesta
+-  Paavo Väyrynen syyttää Postia kannattajakorttiensa kadottamisesta
+-  Paavo Väyrynen syyttää Postia kannattajakorttiensa kadottamisesta
+-  İsrail üst düzey komutanı öldürdü İran’dan intikam mesajı geldi
+-  باتشيكو يواجه شبح الإقالة من بيراميدز
+-  Rusia destruye varios lanzadores del sistema de defensa antiaérea alemana IRIS-T
+-  Proizvod se povlači, a trgovac vam za njega ne želi vratiti novac bez računa? Evo što možete učiniti
+-  Continúan migrantes varados en El Alamillo
+-  Galería: Tras la fiesta navideña, calles vacías
+-  Dita Von Teese shows off her vintage style in all-black ensemble alongside boyfriend Adam Rajcevich as they enjoy last-minute Christmas shopping in Los Feliz
+-  Ogglasio se američki ambasador Kristofer Hil povodom protesta u Beogradu
