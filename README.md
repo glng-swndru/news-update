@@ -1,11 +1,11 @@
 # Latest News
--  Jalen Brunson est le “King of New York” : 38 points pour manger les Bucks le jour de Noël !
--  نتنياهو يمنع رئيس الموساد من حضور اجتماعات حول الأسرى الصهاينة بغزة
--  Jugadores ecuatorianos celebraron la Navidad con elegancia, pero en familia
--  "Traum": Paris Hilton taucht mit Phoenix ins Disneyland ein!
--  Andrés Ricaurte: "Creo en el proyecto de Emelec"
--  “Trampın qələbəsi buna mane olacaq”
--  Caso Metástasis: Así Leandro Norero consiguió la libertad de alias Madrid y Cuyuyui
--  Milhares protestam contra resultado das eleições na Sérvia
--  Xiaomi aclara su participación en Zunpai en medio de una investigación por robo de propiedad intelectual
--  Azad Engineering se prepara para debutar en bolsa el 28 de diciembre tras la sobresuscripción de la OPV
+-  Aaj Ka Singh Tarot Card: सिंह राशि वाले अपनी स्मार्ट वर्किग से सबको करेंगे प्रभावित, मिलेगी सफलता
+-  Preminuo crnogorski intelektualac Jakov Mrvaljević
+-  TBMM Başkanı Kurtulmuş 2024 yılı bütçesinin hayırlı olmasını diledi
+-  Bakan Tunç'tan şehit ailelerine yönelik suç teşkil eden ifadeler kullananlara ilişkin açıklama:
+-  Cumhurbaşkanı Yardımcısı Yılmaz: Tüm tehditleri bertaraf etme kudretine sahibiz
+-  Ukraine 'downs fourth Su-34 fighter jet in three days' and strikes Russian-held Horlivka triggering huge inferno
+-  JANJUŠ HITNO IZVEDEN IZ ELITE Produkcija momentalno reagovala nakon samoubistva njegovog mlađeg brata!
+-  Flamazo en cilindro de gas genera movilización
+-  Zvezda otvara novu prodavnicu u centru Beograda!
+-  برائلر گوشت کی قیمت میں بڑا اضافہ، فی کلو قیمت کتنی ہو گئی؟
