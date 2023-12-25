@@ -1,11 +1,11 @@
 # Latest News
--  Transportadora russa Rossiya retoma voos diretos entre Moscovo e Havana
--  Larm om villabrand i Orsa
--  Larm om villabrand i Orsa
--  Companhias japonesas decidem evitar mar Vermelho após ataques dos Huthi
--  Sokak ortasında kan donduran cinayet! Sopayla başına defalarca vurup...
--  İstanbul'da bir gece kulübüne silahlı saldırı
--  “ชาดา” ขอแสดงความเสียใจ เหตุ ตำรวจ ถูกผู้ป่วยจิตเวชทำร้าย เสียชีวิต ระหว่างเข้าระงับเหตุ
--  Kurze Weihnachtspause für zwei Südtirolerinnen
--  Último Natal em 'casa'? Craques portugueses que vão ficar livres em 2024
--  14 ilde okullar tatil ilan edildi! Valilikten peş peşe açıklamalar geliyor: Giresun, Bingöl, Bayburt, Erzurum, Bitlis...
+-  Two people rescued from rooftop during Hague apartment building fire
+-  الصين.. إنقاذ كلب بقى أكثر من 30 ساعة تحت الأنقاض
+-  في ميلاد السيد المسيح ..
+-  وفاة سيدة بحادث تصادم في غور الصافي
+-  أمراض خطيرة وكارثة صحية على أبواب غزة
+-  Bunuh, tanam belakang rumah: Lima suspek ditahan
+-  上海迪士尼︱「熱力追蹤」停運原因片流出 小孩疑為執髮箍落車被撞
+-  Zaharova: Zapad pokušava da destabilizuje Srbiju
+-  ...Y el Niño Jesús ya llegó al belén más grande del sureste
+-  La fuite du code source de GTA 5 dévoile des aperçus secrets de GTA 6
