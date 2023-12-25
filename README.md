@@ -1,51 +1,51 @@
 # Latest News
--  세계 2위 해운사 머스크, 홍해 운항 재개 준비…물류대란 소강하나
--  एमपी में मोहन यादव सरकार का मंत्रिमंडल विस्तार आज, ये नेता बन सकते हैं मंत्री
--  Bihar : कंस्ट्रक्शन कंपनी के तीन स्टाफ का अपहरण; दो को छोड़ा, एक के लिए नक्सलियों ने की इतने रकम की डिमांड
--  30 दिसंबर को श्री राम अंतर्राष्ट्रीय हवाई अड्डे का उद्घाटन करेंगे PM मोदी, तैयारियां तेज
--  UP: अब रेलवे स्टेशनों पर यूटीएस व क्यूआर कोड स्कैन कर बनवाएं टिकट, नहीं लगानी होगी लंबी लाइन
--  İstanbul'da kuruyemiş yüklü TIR bariyerlere çarptı: Sürücü yaralı
--  اللجنة المنظمة لدوري شهيد الواجب أنيس معوضه تعلن اليوم موعد لإجراء قرعة الدوري
--  Kusama Prognose aktuell: Wie geht es beim Kusama weiter?
--  Preise für Immobilien sinken : Stärkster Rückgang seit 2000
--  Πανελλήνιες 2024: Βιώσιμες τουριστικές εξειδικεύσεις για τους νέους φοιτητές - Ποιες είναι οι ανερχόμενες τάσεις και οι ευκαιρίες για του πτυχιούχους
--  Nyawa masih panjang walaupun beberapa kali tenggelam
--  Sports News | We Really Support Uzzy: Cummins Backs Khawaja on Dove Logo for Gaza Crisis
--  World News | Netanyahu Tells World in Christmas Message 'we're Facing Monsters'
--  World News | Death Toll Goes Up to 149 in China's Earthquake
--  World News | Relax – Having Different Sleeping Arrangements over the Holidays Probably Won't Wreck Your Child's Sleep Routine
--  Het Woord van vandaag: Raad jij het woord van de dag?
--  Weerbericht | Het weer biedt een goede reden om lang te tafelen met Kerst
--  India News | People Offer Mid-night Prayers Across Country on Occasion of Christmas
--  애플 ‘AI 뉴스 협상료 5000만 달러’ 제안에 미온적인 이유
--  العمودي والمنهالي يناقشان الاوضاع الصحية بمديرية رماه الصحراوية
--  Glenn Maxwell’s On-Field Commentary During Melbourne Stars vs Sydney Thunder BBL 2023–24 Match Is Sure To Leave You in Splits! (Watch Viral Video)
--  यानिका की मेडिकल रिपोर्ट ने बयां की बर्बरता: पिटाई से पूरे शरीर पर घाव, कान से नहीं दे रहा सुनाई, सिर भी जख्मी
--  Poonam Pandey ने सेक्सी ब्लैक बिकनी पहन गिराई बिजली, एक्ट्रेस की बोल्डनेस ने बढ़ाया सोशल मीडिया का पारा (Watch Video)
--  Banjir: Wanita hampir lemas dihanyut arus deras semasa dapatkan bantuan
--  How Patriots’ win over Broncos impacts their first-round draft pick in 2024
--  Banjir: APM selamatkan enam sekeluarga terperangkap dalam rumah
--  Atal Bihari Vajpayee Birth Anniversary 2023: PM Narendra Modi, Amit Shah, JP Nadda Remember Former Prime Minister on His Jayanti
--  Pope’s patriarch observes somber Christmas Eve in Bethlehem
--  1 killed, 4 inured in shooting in Houston
--  निकारागुआ जा रहे विमान में क्या कर रहे थे 300 भारतीय?
--  चीन से निपटने के लिए हिंद-प्रशांत में भी नाटो जैसा संगठन चाहता है अमेरिका
--  تأكيد على عمق العلاقات الأخوية بين شعبي سورية والسعودية
--  Paytm Layoffs: नए साल से पहले Paytm ने कर्मचारियों को दिया बड़ा झटका, 1000 से ज्यादा लोगों को नौकरी से निकाला
--  Adana’dan İstanbul’a, Van’dan Yalova’ya! TOKİ arsaları 24 ilde satışa çıktı: Üstelik KDV ödeme derdiniz de olmayacak
--  El mar Rojo y la política monetaria, y la difícil relación amor-odio de Europa con el coche chino
--  مؤتمر سلامة المرضى يستعرض في جلساته اليوم 12 ورقة وبحثًا طبي
--  Indo-Nepal Border: ऊर्जा निगम की चूक से भारत-नेपाल सीमा पर विद्युतीकरण का काम अटका, जानें वजह
--  Patriots score two touchdowns in six seconds after Broncos kickoff blunder
--  ‘รมว.พาณิชย์’ วอนผู้ประกอบการ ปีใหม่อย่าฉวยโอกาสขายตั๋วเครื่องบินแพง
--  عاجل.. سحب ممطرة ورياح وضباب على الرياض ومعظم مناطق المملكة
--  شتاء قارص.. "الحصيني" يكشف موعد انتهاء المربعانية وبداية الشبط
--  Kejohanan Badminton Remaja dan Pahang Tertutup 2023 capai matlamat – Tengku Aidy
--  Number of Koreans studying in China dwindles 78% from 6 years ago
--  BNP Paribas, HSBC fined $20.3 mil. for illegal short selling
--  India News | Punjab: BSF Foils Smuggling Attempt in Amritsar, Arrests 3 Smugglers
--  JDT ‘bersaing’ untuk layak ke Piala Dunia Kelab 2025
--  Meteoroloji'den o bölgeye uyarı: İkisi birden geliyor
--  Salman Khan Dances and Enjoys at Brother Arbaaz Khan's Wedding, See Viral Video Here!
--  My Demon Ep 9-10 review: Song Kang & Kim Yoo Jung's romance pauses for a week as fans unmask the villain
--  First PHOTOS: Arbaaz Khan and Sshura Khan tie the knot in an intimate ceremony in Mumbai
+-  Army Chief Manoj Pande To Visit J&K To Review Security As Poonch Anti-Terror Ops Enter Day 6
+-  “국민 10명 중 8명 OTT 본다”…콘텐츠 적극 소비층 ‘1030세대’ 주목
+-  [IT클로즈업] 제4이통 도전 3사 '동상이몽'…투자금 확보·운용 계획은?
+-  5G 스마트폰 이용율 절반 넘어…통신비 4년 만에 첫 감소
+-  Qui est responsable si des bougies de Noël enflamment la jupe d’une invitée ?
+-  «Реализовать совместные проекты»: какие вопросы затронут на саммите лидеры стран Евразийского экономического союза
+-  La hipótesis de Dios
+-  Pri zraneniach duše sa nelámu kosti, bolia však rovnako
+-  “El antisemitismo está muy vinculado con la propaganda difundida durante la guerra entre Israel y Hamás”
+-  3 Fakta Menarik Suki Waterhouse, Debut Akting pada 2012
+-  Gänserndorf-Süd - Schimpansin starb: Gut Aiderbichl trauert um ehemaligen Laboraffen
+-  Yakup Köse yazdı: Türkiye-Gazze cephe hattına saldırı
+-  ’ساس تو سب کی ہوتی ہے، ماں کسی کسی کو ملتی ہے‘
+-  শাকিবের সঙ্গে আসামে যাচ্ছেন ইধিকা, নিরবের সঙ্গে বুবলী
+-  Så blir din skatt 2024 – se skillnaden mot 2023
+-  پولیس صربیا دو افغان را به اتهام قاچاق انسان دستگیر کرد
+-  Afrikas größter Club-Fan: Der Traum vom Heimspiel im Max-Morlock-Stadion lebt weiter
+-  Afrikas größter Club-Fan: Der Traum vom Heimspiel im Max-Morlock-Stadion lebt weiter
+-  'Korona’sınız farkında değil misiniz
+-  "Don't Necessarily Think...": Healy's Honest Take On Spat With Harmanpreet
+-  Почему трехминутная тренировка под ритмичную музыку улучшает работу мозга
+-  ‘It feels good helping someone who helps others’: How Jess brought Christmas cheer to Maree
+-  ‘It feels good helping someone who helps others’: How Jess brought Christmas cheer to Maree
+-  В Хакасии отменили уличные новогодние гуляния после обрушения горки с детьми
+-  Российские спецназовцы взяли опорный пункт ВСУ под Артемовском
+-  제주 숙박업소 신축 공사장서 불…인명피해 없어
+-  “허웅과 제대로 해봐” 5769명 창원 팬 열광케 한 이관희의 열정, 패배에도 빛난 ‘캡틴’
+-  Sri Lanka frees 1,000 prisoners to mark Christmas
+-  Luka Doncic chases 10,000 mark as Mavericks face Suns on Christmas
+-  “SUZUKI SWIFT” ครองใจลูกค้า ตอบโจทย์คุ้มค่า ราคาเข้าถึงได้ง่าย
+-  Cold wave tightens grip on north India, Delhi shivers in dense fog with 'Very Poor' air quality
+-  Dallas hospital hosts Christmas Eve wedding for late-stage cancer patient
+-  कांग्रेस सभापति देउवा आज तनहुँ आउनु हुँदै
+-  Tausende Unterschriften für das Wildbad: Verkaufs-Absicht der Kirche schlägt hohe Wellen
+-  „Zitterpartie“ für Familien in Waltrop: 346 Kinder für das Kita-Jahr 2024/25 angemeldet
+-  Heike Dewald spendet 1100 Euro ans Kinderpalliativzentrum: „Es ist meine Herzensaktion“
+-  Dans la peau d'un autre
+-  Franken-Therme feiert im November einen neuen Rekord: Aber ab diesem Termin wird es teurer
+-  Gazze’de can kaybı 20 bin 424’e yükseldi
+-  สุดเศร้า! “ดารุณี กฤตบุญญาลัย” เสียชีวิตอย่างสงบ “อั๋น ภูวนาท” โพสต์อาลัย
+-  ศาลเลื่อนไต่สวนถอนประกัน ‘ตะวัน-บุ้ง ทะลุวัง’ คดี 112
+-  민형배 "'깐족이' 한동훈, 비대위원장 중도하차할 것"
+-  등대·벽화·카페 품은 우체국…‘장애물 없는’ 건물로 거듭나
+-  Shawn Johnson Shares Why She Refused Narcotic Pain Meds After Recently Giving Birth
+-  “끝까지 불명예스럽네” 맨전드 네빌의 분노…왜? “인수 발표 타이밍이 정말 끔찍해”
+-  "김치! 참치! 꽁치" 한덕수 총리 마산 신신예식장서 '깜짝 주례'
+-  [경남도립미술관 소장품 산책] 9. 자연과 인체를 융합한 괴암(魁巖)의 세계 - 김주석
+-  Число погибших при обрушении гаража в Иваново увеличилось до двух
+-  "Mr. Christmas Tree" brings holiday cheer to shoppers at Columbus Circle
+-  '소년시대' 임시완, 12월 배우 브랜드평판 1위 '우뚝'
