@@ -1,51 +1,11 @@
 # Latest News
--  #BTChristmas Message – Crime down, road fatalities up – Police Commissioner
--  Yuletide: We Feel Your Pains, Don’t Lose Hope – Labour Party To Nigerians
--  Dublin: Mann betritt Steak-Restaurant mit Schusswaffe – ein Toter, ein Verletzter
--  Tamil Nadu: 24-year-old woman killed by jilted lover near Chennai, accused held
--  Krebskranke Helena (5) aus Leipzig kämpft sich zurück ins Leben
--  Kwankwaso Holds Special Prayer In Kano Ahead Of Supreme Court Judgment
--  서동주, 다 가려도 감출 수 없는 가슴골…힙업 라인까지 '아찔 섹시미'
--  დამხმარე რეპროდუქციული სერვისების გამოყენებისას ინფორმაცია ეროვნულ რეესტრში უნდა აისახოს – კანონპროექტი
--  Wochenlang verschwunden: Nawalny wieder aufgetaucht
--  Двадцать сотрудников «Чистого города» в НАО оказались на больничном
--  „Mi, glas iz naroda“ večeras donosi odluku o glasanju u Beogradu
--  В Курске медикам передали ключи от новых автомобилей скорой помощи
--  الجرام تجاوز 2000 جنيه.. هل زاد الإقبال على عيار 14 بعد قفزة الذهب؟
--  قفز 800 جنيه.. سعر الجنيه الذهب يتخطى 25 ألف جنيه لأول مرة في تاريخه
--  الجيش التركي يكثف قصفه على مناطق شمال شرق سوريا
--  Kisah di Sebuah Kuburan Gaza setelah Serangan Israel Menewaskan 100 Orang
--  Мхитарян остава на "Джузепе Меаца" до лятото на 2025 г.
--  Javni poziv javnosti: Konsultacije za izradu Programa za unapređenje konkurentnosti privrede za 2024.
--  جهاز مكافحة الإرهاب بإقليم كردستان العراق: مسيرة مفخخة تستهدف قاعدة التحالف الدولي داخل مطار أربيل الدولي
--  Tragická dopravná nehoda pri Nitre: Auto skončilo na streche! Vodič (†18) bol zakliesnený vo vnútri
--  Sviatky pod Poľanou: Počas starodávnych Vianoc jedli ľudia sedem až deväť chodov
--  Knechtová, Gladiator a Peter Bič Project vzdali poctu Pavlovi Hammelovi novými verziami jeho hitov
--  Javio se reper nakon čijeg koncerta je potonuo splav: ‘Ništa nije moglo ni naslutiti’
--  В Рыбинске коммунальщики устроили ловушку для автомобилистов
--  Северян пригласили поучаствовать в премии «Россия – страна возможностей»
--  „Sturm der Liebe“: Keine Folge am 2. Weihnachtstag – Wann geht es weiter?
--  Sobe para 106 número de mortos no ataque a campo de refugiados em Gaza
--  В Великобритании украинских беженцев стали чаще обманывать с визами
--  Wochenlang verschwundener Kremlgegner Nawalny wieder aufgetaucht
--  นักวิเคราะห์ Bloomberg คาด Bitcoin ETF จะอนุมัติภายในมกราคมนี้ หลัง BlackRock แก้ไขรายละเอียดแบบฟอร์ม S-1
--  KONAČNO PRONAĐEN ALEKSEJ NAVALJNI POSLE 20 DANA POTRAGE! Isplivali detalji - OVDE je lociran zatvoreni kritičar Kremlja
--  Los trolls libertarios intentan convencer a la gente de que los precios están bajando
--  [DD 주간브리핑] 김홍일 방통위원장 후보자, 27일 국회 청문회… 여·야 격돌 예고
--  Na Badnjak pucnjava u restoranu u Dublinu. Mladić ubijen pred obiteljima na večeri
--  Así fue el emotivo homenaje que Alejandra Rubio le hizo a su abuela: "No lo quería decir"
--  الدوخة المفاجئة قد تنذر بكارثة صحية.. متى تذهب إلى الطبيب؟
--  Yılmaz Özdil 12 gün sonra bomba gibi döndü. Türkiye haritasını kimin değiştireceğini açıkladı
--  Stolzer Papa: Travis Barker feiert Alabamas 18. Geburtstag!
--  ชงไทยเป็นสมาชิก OECD หวังยกระดับผลสอบ PISA
--  „Rote Rosen“-Vorschau: Keine Folge am 2. Weihnachtstag – Wann geht es weiter?
--  Prince Louis 'sports same tartan trousers as Prince George' in photo that 'upset' Harry and Meghan
--  24 animações especiais de Natal para deixar a festa ainda mais divertida
--  Interessado em Mastriani, Athletico encaminha empréstimo para o América; confira
--  Triatleta Luisa Baptista tem "melhora importante" e é transferida ao Hospital das Clínicas de SP
--  Когда Украина получит F-16?
--  Неуловимый Яхья Синвар нарушил молчание
--  Ampelkrise: Vorzeitiges Aus und Neuwahl? Zeit für Besinnung
--  Ampelkrise: Vorzeitiges Aus und Neuwahl? Zeit für Besinnung
--  Paris Hilton treats son Phoenix, one, to 'magical' Christmas outing at Disneyland
--  WM-Wildcard und Olympia-Chance für ÖTTV-Männerteam
+-  Štanjelski grad leta 2025 dokončno obnovljen
+-  Guardia Nacional descubre piezas arqueológicas enviadas por paquetería
+-  ולאדן איביץ': "אני מחייך המון. הכוכב האדום? לא אאמן אותה"
+-  סמוטריץ': כלל חיילי המילואים יקבלו את המענק המיוחד
+-  למען החטופים בעזה: ישיבה מיוחדת במליאת הכנסת
+-  «الكويتية للإغاثة»: تفريغ «سفينة غزة» بميناء العريش تمهيداً لإدخال حمولتها
+-  Soccerladuma | Suarez Sends Warning To MLS Rivals Ahead Of Messi Reunion
+-  Игор Пехчевски ќе добие „трикафта“ во текот на јануари, најави директорката Нацева-Фуштиќ
+-  Хамас и Исламскиот џихад одбиваат да ја предадат власта за трајно примирје
+-  Rekor sayıda yolcu ağırlayacak! Sabiha Gökçen’e yeni pist
