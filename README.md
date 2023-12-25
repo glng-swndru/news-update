@@ -1,6 +1,23 @@
 # Latest News
+-  “나가는 거 안 잡는다”... 라이프치히, ‘한때 레반도프스키 다음가는 공격수’ 판매 준비 완료
+-  إسرائيل قدمت مقترحًا من 7 بنود والمقاومة رفضته - تفاصيل
+-  مقتل منسق مليشيات المستوطنين (فتية التلال) بـ غزة
+-  هل يمكن اكتشاف التوحد في سن مبكر؟
+-  بعد الجزائر.. وباء يجتاج الإبل والأغنام بدولة عربية جديدة
+-  عاجل.. كيفية تفعيل رخصة القيادة الرقمية عبر تطبيق أبشر
+-  لأول مرة .. دولة عربية تصرف مساعدات اجتماعية مباشرة لمواطنيها
+-  Revelaron cómo es la transmisión de la encefalitis equina en humanos
+-  Adli, Pioli lo ha dimenticato? Nessun minuto contro Monza e Salernitana
+-  경기혁신센터, 美 실리콘밸리 VC와 ‘맞손’…韓 스타트업 진출 돕는다
+-  Manchester City entra na briga para tirar André do Fluminense, diz jornal
+-  Netanyahu po shtyn planet për emigrim vullnetar të palestinezëve në Gaza
+-  Paris Hilton looks as glamorous as ever in Christmas PJs as she snuggles up with her 'beautiful family of four' in festive holiday snaps with husband Carter Reum and their two babies
+-  Love Island star Matt Zukowski surprises his fiancée Tammy Hembrow with a trip to Japan as they celebrate their first Christmas together
+-  Heartwarming moment seven-year-old Virginia girl dances in The Nutcracker after her feet had to be reattached when they were severed in horrific car accident
+-  Antonio Pierce gets emotional after Raiders’ stunning Christmas win: ‘Hell of a job’
 -  Regresa un vuelo de British Airways de Delhi a Londres tras una alerta de incendio
 -  U podgoričkom naselju Siti kvart izbio požar u podrumu kafića
+-  Behind the headlines
 -  상주제일장례식장 허일진 대표, 상주시에 1000만원 기탁
 -  구로구, 내년 모든 경로당에 비상호출벨 설치
 -  강서구, 치매관리사업 성과평가 서울특별시장상(대상) 수상
@@ -26,26 +43,9 @@
 -  반려동물 유모차가 아기용 '유모차' 판매량 추월
 -  조원태 "아시아나 합병에 100% 걸었다" ... EU 경쟁국, 합병에 비관론
 -  Atropella a quince personas y se da a la fuga en Melilla
+-  Atropella a quince personas y se da a la fuga en Melilla
 -  Nyale Institute calls attention to reproductive justice for child survivors of sexual violence
+-  What the December 'cold' full moon means for your star sign: Wild lunar event is set to send emotions spiralling this festive season, astrologers warn
+-  Стало известно о взрывах в Николаеве
+-  Xəzərə axıdılan tullantı suları içməli suya çevriləcək
 -  서울 지하철 노선도 디자인 40년 만에 변경
--  겨울엔 더 춥게 느껴지는 ‘탈모’…‘이 습관’이 더 악화시킨다
--  أهم سلاح يعتمد عليه ريال مدريد في بداية العام الجديد
--  일본, 중국 수출 막힌 가리비 한국 수출 확대키로
--  Mystery of Brit millionaire's kidnap – fake bomb vest and glam girlfriend
--  Egypt in ceasefire talks with Hamas as 100 killed in Gaza on Christmas Eve
--  Pope Francis Decries War Profiteers, Calls For Peace in Christmas Blessing
--  I was a Miss England finalist and glamour model – now I drive a 44-tonne lorry for a living… I want to break barriers
--  I was a Miss England finalist and glamour model – now I drive a 44-tonne lorry for a living… I want to break barriers
--  외투 벗어두고…온실 속 식물과 함께 하는 크리스마스
--  열받은 미국, 동맹국 함대 총집결시켜…머스크 “믿고 운항 재개한다”
--  ¡Le gana la emoción! Santiago Núñez llora al decirle a su familia su llegada al futbol mexicano
--  У импортеров топлива в Абхазию возникли проблемы с поставками нефтепродуктов из РФ
--  Charities lead calls for 24/7 system of ‘Italian-style’ mental health support for Scots
--  'Será un año complicado para el campo'
--  Avanza caravana migrante en Chiapas durante Navidad
--  NBS Bank, WFP in social cash transfers to Phalombe Cyclone Freddy victims
--  Armisa Kuč: Ovo je najljepša godina moje karijere
--  Fuertes nevadas y ventarrones: Tormenta de nieve complica la movilidad en el Medio Oeste de EE.UU. en Navidad
--  Netanyahu'dan sonra Herzog'dan da soykırım sevinci! Obüs mermisine "size güveniyorum" mesajı
--  Rus uçakları İdlib'i vurdu: 5 ölü
--  Papa Francisco llama a resolver “el doloroso fenómeno migratorio” en América
