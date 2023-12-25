@@ -1,11 +1,11 @@
 # Latest News
--  Ataques en el centro de Nigeria dejan al menos 113 muertos: funcionario local
--  Top 10 ali sinistre nel 2023: c’è anche Leao ma è dietro a Tadic e Akturkoglu
--  Dix médiateurs d’affaires reçoivent des certificats de l’IIMAC
--  성탄절에도 가자지구 공습… 하루새 250명 사망
--  يجهلها كثيرون.. ماذا تعرف عن فوائد الشتاء الصحية؟
--  Egypt plan to end Israel-Hamas war gets cool reception
--  Meet the adorable Christmas twins – who have different birthdays
--  FIFA threatens to suspend Brazil over confederation president's removal by court
--  Ponoš: Hil i Harčenko bolje da su otišli na pecanje da pričaju ribolovačke priče
--  Орешкин назвал способ, которым США убивают экономику Европы
+-  Karu fakta taloudesta – Suomen jalkapallon tilanne on synkkä
+-  ‘0골 0도움인데 주전으로 쓴다’... 맨유, 회이룬의 백업 공격수 영입 예정
+-  Campaigners warn Sir Keir Starmer against trying to cancel Boxing Day hunts
+-  Διακοπές στα χιόνια για τον Κιλιάν Εμπαπέ
+-  Person sköts på krog i Västerås – inför flera vittnen
+-  Šest izraza lica koji pokazuju da li se nekome zaista dopadate
+-  Pope Francis makes appeal for world peace during Christmas Day speech
+-  రిటర్నబుల్‌ ప్లాట్లపై రియల్టర్ల గురి!
+-  BEZ INCIDENATA Badnjak protekao u miru u Kölnu i Beču
+-  Премьер Израиля назвал три условия достижения мира в секторе Газа
