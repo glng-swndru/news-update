@@ -1,51 +1,11 @@
 # Latest News
--  키-안유진-최연준, 비주얼 MC
--  꽃보다 NCT 드림
--  NCT127, 심쿵 수트핏
--  أثر العمل التطوعي في بناء شخصية الطالب.. ورشة عمل في المخواة
--  المركز الوطني للتعليم الإلكتروني يعلن عن وظائف شاغرة
--  عاجل.. مواعيد رحلات قطار الحرمين من مطار الملك عبد العزيز إلى مكة وطريقة الحجز "أون لاين"
--  هل يستهدف متحور كورونا الجديد الأمعاء؟
--  ما العلاقة بين الأقدام المبللة وصحة القلب؟ .. طبيبة توضح
--  سم بطيء .. طبيب يحذر من مكعبات مرق الدجاج
--  توقف مطار أربيل بعد استهداف نقطة للتحالف بقربه
--  فصل مذيعة تركية وضعت كوب ستاربكس أمامها أثناء نشرة الأخبار
--  Putin otkrio šta će za rusku vojsku značiti zauzimanje grada Marinke
--  Τα Χριστούγεννα της McLaren είναι γεμάτα drift (vid)
--  Tradicija stara 300 godina: Denis Huskić je jedan od rijetkih grnčara u Tuzlanskom kantonu
--  Meteoroloji'den Karadeniz’de fırtına uyarısı
--  SON DAKİKA | Mehmet Akif Ersoy'u anma prgoramı! Başkan Erdoğan'dan önemli açıklamalar
--  Bank Al-Maghrib adopte une nouvelle méthodologie de calcul des cours de change
--  Suomen suosituimmat karaokekappaleet vuonna 2023 – arvaatko ykkösen?
--  Got a juicer for Christmas? Here's how to get the most out of it
--  La secta cristiana de la Antigüedad que permitía a las mujeres ser sacerdotes
--  Tell Us What You Thought of Ncuti Gatwa's Debut in Our Festive Doctor Who Spoiler Discussion Zone
--  Beyoncé’s Childhood Home Is Engulfed in Flames
--  Why the Biden Blast meme shuts down the haters so well
--  A balance of power not a military solution
--  Bränder, översvämning och trafikkaos – så var 2023
--  Popovic Milan: affare definito in tutto, quando sarà depositato l’accordo
--  Money Heist’s Berlin spinoff, Ncuti Gatwa’s Doctor, and more new TV this week
--  MITOVI NA SVETLU DANA: Izložba studenata doktorskih studija novosadske Akademije umetnosti u Parizu (FOTO)
--  Child abuse case to be heard 53 years after alleged sex offence
--  Not just a day to hit the sales
--  Annuska néni 70 fölött is vigyáz Hajdúszovát biztonságára
--  ‘Something about it is so unsettling’: Shopper questions the TJ Maxx snacks after finding box of Baileys chocolates
--  "نموذج يحتذى به".. إشادات عربية بتقدم المملكة في حقوق الإنسان
--  غزة.. 900 ألف طفل في مراكز الإيواء يحاربون الجوع والعطش
--  Guide: Sverige jagar JVM-guld på hemmaplan
--  Mbappe fór á lista yfir tíu markahæstu á afmælisdaginn
--  Ataque aéreo de Israel mata general do alto escalão iraniano na Síria
--  The 10 Best Movie Trailers of 2023 — Whether or Not the Films Were Any Good
--  A Tech Maverick Unveils the Future of Business Automation with Groundbreaking SAP Interface Innovation
--  RIK: Ponavljanje izbora na dva biračka mesta u Nišu i jednom u Subotici, zbog neregularnosti
--  Mehmet Akif Ersoy'u anma günleri! Başkan Erdoğan konuşuyor
--  „Brutalna policijska intervencija ima za cilj da odvrati građane od protesta. A Vučić pred Zapadom ima jedan jak adut“: Slobodna Dalmacija o događajima u Beogradu
--  Gori zgrada, objavljeni dramatični snimci FOTO/VIDEO
--  Harry Rosen, founder of Canadian menswear chain, dies at 92
--  Bombardeamento israelita mata general iraniano na Síria
--  Hažiahmetović upisao dvije asistencije, a Armin Hodžić postigao prvijenac u Turskoj
--  Николоски: Со измените на КЗ ни Заев ни неговите министри не може да сносат одговорност
--  Более 31 тыс. жителей Вологодской области обеспечат чистой водой в 2024 году
--  Atakaş Hatayspor 1 - 2 Beşiktaş (MAÇ SONUCU - ÖZET)
--  News24 | Cape Town firefighters stretched thin, code red issued amid several raging fires
+-  Brnabić objasnila šta se dešava: Ovako ide njihova priča... FOTO
+-  Disfrutan familias la Navidad en el Centro
+-  Últimos días para convertir crédito Infonavit a pesos
+-  삼성바이오에피스, ‘솔리리스’ 국내 특허무효 도전 2차전도 ‘承’
+-  Llegan otros 46 inmigrantes a Gran Canaria en un cayuco, el quinto desde la Nochebuena
+-  En 2023 'la cigüeña' llegó cuatro veces al Metro de la CDMX
+-  చీరలంటూ 3 లక్షలకు టోకరా
+-  Claves económicas que marcarán la semana en América
+-  Лукашенко: Русија и Белорусија не сакаат нов конфликт со НАТО
+-  Desarticularon a una banda que cometió secuestros en tres provincias
