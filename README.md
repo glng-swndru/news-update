@@ -1,11 +1,11 @@
 # Latest News
--  Veľké zlyhanie bezpečnostných zložiek: Festival v Izraeli bol ohrozený už pred masakrou, napriek tomu sa konal!
--  Trading Platform Moomoo Offers 6.8% P.A. Introductory Cash Management Rate to Australian Clients
--  Ukrajinci nezadovoljni: Srbi testiraju nerve svih, hoće li UEFA ostati nema?
--  كريم الأحمدي يدعم أسود الوحدة
--  השר דרמר יגיע מחר לוושינגטון לשיחות בבית הלבן על השלב הבא במלחמה בעזה
--  Συρία: Οκτώ άμαχοι νεκροί από βομβαρδισμούς των τουρκικών δυνάμεων
--  Деца со пиротехника запалија дрво пред Музејот во Тетово
--  TV viewers go wild for Nickelodeon's 'alternate broadcast' of Raiders-Chiefs - as fans in the stadium are covered in slime, before coach Andy Reid is lifted off the sidelines by a giant claw
--  تعرف على مذبحة الإيرانيين في كربلاء
--  اختطاف كويتيين اثنين داخل العراق
+-  Ataques en el centro de Nigeria dejan al menos 113 muertos: funcionario local
+-  Top 10 ali sinistre nel 2023: c’è anche Leao ma è dietro a Tadic e Akturkoglu
+-  Dix médiateurs d’affaires reçoivent des certificats de l’IIMAC
+-  성탄절에도 가자지구 공습… 하루새 250명 사망
+-  يجهلها كثيرون.. ماذا تعرف عن فوائد الشتاء الصحية؟
+-  Egypt plan to end Israel-Hamas war gets cool reception
+-  Meet the adorable Christmas twins – who have different birthdays
+-  FIFA threatens to suspend Brazil over confederation president's removal by court
+-  Ponoš: Hil i Harčenko bolje da su otišli na pecanje da pričaju ribolovačke priče
+-  Орешкин назвал способ, которым США убивают экономику Европы
