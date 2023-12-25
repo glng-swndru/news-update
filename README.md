@@ -1,51 +1,11 @@
 # Latest News
--  Yurt dışından gelen telefonlarda süre uzuyor! 180 gün kullanılabilecek
--  ПСЖ се подсилва с обещаващ бразилец
--  Das sind besten Thermen und Wellnessbäder Deutschlands - inklusive Karte
--  توضيح مهم بخصوص صرف المعاشات لمستفيدي أنظمة التقاعد
--  "الجوازات" تدعو المواطنين والمقيمين لهذا الأـمر المهم
--  Jovem é esfaqueado no peito e fica em estado grave ao ser atacado durante “forró” na véspera de Natal
--  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الاثنين 25 ديسمبر
--  Covid JN1 Subvariat: మళ్లీ కోరలు చాచుతున్న కరోనా.. భారీగా పెరిగిన జెఎన్1 సబ్‌వేరియంట్ కేసులు
--  البورصة تتعافى بصعود 1.7% مع نهاية تعاملات جلسة اليوم الاثنين
--  Калоян Методиев и неговата честитка за Коледа: Който не иска - да не меси
--  ‘결국 히샬리송 버리나’... ‘분데스리가 폭격기’, 맨유 제안 거절→토트넘행 급물살
--  Banjir Pahang: Jumlah mangsa meningkat 600 orang di Raub, Lipis
--  Mann bei Attacke in Dubliner Steakhaus getötet
--  BRUTALAN NAPAD NA SPLAVU U SMEDEREVU! MUŠKARAC PRETUKAO MLADIĆE: Jednom polomljena šaka, drugom povređeno lice
--  14 Kereta Berhenti Luar Biasa untuk Antisipasi Kemacetan Natal
--  Diyarbakır'da tarihi eser kaçakçılarına darbe
--  "Газпром" получит газовый участок в Якутии за 328,5 млн рублей
--  Объем экспорта в Дагестане в 2023 году вырастет на 40%
--  Архиепископ Аксий наградил школьницу из Серпухова
--  Venezuela vê provocação no envio de navio de guerra britânico à Guiana
--  Dunelm shoppers are rushing to buy a ‘stunning’ mirror £510 CHEAPER than Anthropologie version
--  Госпитализированный Красовский рассказал о своем состоянии
--  В Краснодаре 200 талантливых детей получат новогодние подарки от местных властей
--  Përplasi 62-vjeçarin i cili ndërroi jetë në spital, arrestohet e reja në Vlorë
--  Angriff in Dubliner Steakhaus: Ein Mann getötet
--  Вердикт вынесен: во что Ватикану обошлась лондонская недвижимость
--  Рекордните 22,5 градуса са измерени в Монтана на Коледа
--  Коледарският танц буенек оглася Ямбол
--  Guru Besar FKM UI Sarankan Terapi Insulin Pasien Diabetes Dilakukan di Faskes Tingkat Pertama
--  Twitter Terbukti PHP Tak Beri Bonus ke Karyawan
--  Впервые в новой школе Кисловодска прошли соревнования по плаванию
--  На Дону мужчина погиб при пожаре из-за непотушенной сигареты
--  Навального нашли в самой северной колонии России
--  Косули заполонили пригород Омска из-за аномальной зимы
--  Maignan è il portiere che vanta più assist in Serie A dal 2004/2005
--  Man arrested in double murder case in Namakkal
--  Balkondan döktükleri kül yangın çıkarttı
--  Ülke genelinde ortak yazılı sınavlar başlıyor
--  I travelled in time while out shopping – the street totally changed & I was nearly run over… it didn’t just happen to me
--  Центр национальных видов борьбы создадут в Чувашии
--  وداعًا للكرش.. وصفة تخسيس ممتازة تخلصك من الوزن الزائد والدهون بدون ريجيم .. شاهدي النتيجة في 7 أيام
--  وداعاً للسكري.. بذور صغيرة ولكنها فتاكة متوفرة بكثرة تمتص السكر في الدم وتفتت الحصى في الكلى
--  Alberto Giuliani dönemi yaklaşık 11 ay sürdü
--  Türk İHA ANKA-S filoya giriyor! Kardeş ülke askeri denemelere başladı
--  Yurt dışından getirilen araçlar için yeni dönem! Süre belli oldu
--  TFF'den Süper Kupa biletlerine indirim!
--  Criticul Kremlinului Alexei Navalnîi a fost mutat într-o colonie penală din Arctica
--  Lübnan İsrail sınırı saldırıların etkisiyle 'savaş bölgesine' döndü
--  Briga por causa de cigarro termina em tentativa de homicídio em Sinop
--  KONAČNA ODLUKA O BEOGRADU "PADA" VEČERAS! NESTOROVIĆ: "Pokušali nasilne proteste, je l' to nije dobar naslov za novine?"
+-  Навалний Ямал-Ненецдаги режими кучайтирилган колониядан топилди .
+-  2024 йилда электротехника, кимё ва фармацевтикада 12 миллиард долларлик 24 та лойиҳа бошланади .
+-  Itt vannak a 2024-es emelt szintű biológiaérettségi témakörei
+-  Sukesh Chandrshekar moves Delhi court against Jacqueline’s plea against his letters
+-  Bus exiting Ajmer parking lot runs over people; 3 dead, as many injured
+-  Maharashtra: Gas cylinder blast claims life of 4-year-old boy in Nagpur
+-  Með skýra sýn
+-  Uzmanı uyarıyor: Glutensiz diyet herkese uygun olmayabilir
+-  'Significant' winter storm hits Plains, much of country gets wet Christmas
+-  Planinari pronašli misteriozno tijelo: Bili su uvjereni u jedno, a onda je uslijedilo iznenađenje
