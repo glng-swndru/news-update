@@ -1,11 +1,51 @@
 # Latest News
+-  Fenerbahçe Galatasaray maçı kaç kaç bitti? Süper Lig Fenerbahçe Galatasaray puan durumu
+-  Paras air Sungai Tembeling di Kuala Tahan menurun, aktiviti ekopelancongan terus rancak
+-  2023 Necip Fazıl Ödülleri Çocuk Edebiyatı Ödülü sahibi Figen Yaman Coşar: Kalemi keskin duruşu nettir
+-  မောင်ဘဦး - ဗိုလ် သခင် ဆရာ
+-  Milei defiende su decreto y descalifica las protestas: "Estamos ganando la batalla cultural"
+-  KT '갤럭시 점프' 시리즈 150만대 돌파…재구매율 높아
+-  Indore News: 12 बजे मिल मजदूरों को संबोधित करेंगे पीएम मोदी, 11.30 बजे आएंगे सीएम मोहन यादव
+-  고금리·고물가·내수침체… 한계 다다른 지역민·중소기업
+-  “양식어류 폐사 막아라” 충남 서해 저수온 주의보 발령
+-  বিক্ষোভে আটকে গেল পিএসসি চেয়ারম্যানের গাড়ি
+-  Maut disengat tebuan ketika aktiviti permotoran
+-  Kapolri Tinjau Gereja Katedral dan GRII Sambut Natal dan Tahun Baru 2024
+-  Fact Check: ସୀମା ହାଇଦରଙ୍କ ପୂର୍ବତନ ସ୍ୱାମୀଙ୍କ ମୃତ୍ୟୁକୁ ନେଇ ନକଲି ଭିଡିଓ ଭାଇରାଲ ହୋଇଛି
+-  על חודו של גול: מכבי תל אביב מנצחת ללא הפסקה, אבל לא מרשימה
+-  Мастера Вологодчины могут принять участие в областном конкурсе ткачества
+-  PM Modi, Shah, Nadda remember Vajpayee on 99th birth anniversary
+-  Как правильно выбрать гостиницу на новогодние праздники
+-  Помои текут из крана у жителей Олонца
+-  Currency Rate In Pakistan - Dollar, Euro, Pound, Riyal Rates On 25 December 2023
+-  BBVA consolida su remontada desde 2020 con el impulso de España y México
+-  Luces y sombras para el ahorro conservador en 2024
+-  Nav Canada issues delay YVR flights on Christmas Eve
+-  Nav Canada issues delay YVR flights on Christmas Eve
+-  Benjamin Melman: “La contracción del crédito bancario obliga al BCE a bajar ya los tipos de interés”
+-  感覺每個人都在生病，研究：病毒流行模式改變
+-  «Бахти Ташкентский»нинг ўғли ва қатор гумонланувчилар ушланди
+-  올겨울 마음을 따뜻하게 녹여줄 동화 느낌 나는 장소 3곳
+-  Top 15 News Roundup For Latest Nigeria News December 25
+-  Weather In Rajasthan: सर्दी के साथ कोहरे का असर बढ़ा, विजिबलिटी हुई कम, जयपुर सहित 10 जिले प्रभावित
+-  رئيس نادي الروضة: ماحصل في ملعب الوحدة من ضرب للرصاص أمر فضيع
+-  Gunfire erupts at Colorado Springs mall on Christmas Eve. One man is dead and 3 people are hurt.
+-  WFI के निलंबित अध्यक्ष संजय सिंह बोले खेलमंत्री से मिलकर करेंगे निलंबन खत्म करने की अपील
+-  В Госдуме назвали одностороннее расширение границ США в Арктике недопустимым
+-  حماس تصدر بيانا بشأن عيد الميلاد وتثمن موقف مسيحيي الشعب الفلسطيني الوطني المشرف
+-  Набиуллина: льготная ипотека не станет экзотикой на фоне ужесточения условий
+-  Tepkileri umursamadı Noel pozları gündem oldu! "Şuursuzluk"
+-  台積電放棄進駐龍潭擴廠計畫！桃園五大產業園區工業用地仍飆
+-  3 Lockscreen HyperOS Baru yang Bakal Hadir di Xiaomi
+-  La Cicloneta: «Спартак» предлагал $6 млн за форварда «Сан-Лоренсо» Барейро
+-  ये क्यूट रूम हीटर सर्दी को करेगा रफूचक्कर, मिलेगी 2 साल की वारंटी और 3 साइड सेफ्टी
+-  District of Squamish warns trail-users of active bear den
 -  ملک بھر میں مسیحی برادری آج کرسمس کا تہوار انتہائی جوش و خروش سے منا رہی ہے
 -  Tejashwi Yadav Responds To DMK Leader`s `Bihar People Clean Toilet` In Tamil Nadu Remark
 -  Baba Bageshwar Dhirendra Shastri Suggests How Hindus Should Celebrate `Christmas`
+-  แอนโทเนีย โพซิ้ว สวยระดับจักรวาล แฟชั่นฉลองคริสต์มาส จึ้งจนละสายตาไม่ได้
+-  Krieg gegen die Ukraine: So ist die Lage
+-  নারায়ণগঞ্জে তৈরি পোশাক কারখানা করবে প্যাসিফিক জিনস গ্রুপ
+-  Japon denizcilik firmaları rotalarını değiştiriyor
 -  ABD öncülüğündeki deniz gücünde çatlak! Koalisyona katılmayacaklarını bildirdiler
 -  Japon denizcilik firmaları, Kızıldeniz'deki saldırılar sonrası rotalarını değiştiriyor
--  Orit Halpern: “¿Por qué ahora tiene que ser todo ‘inteligente’? ¿Por qué es algo que deseamos?”
--  6 Napi Korupsi Dapat Remisi Natal, Termasuk Mantan Mensos Juliari Batubara
--  France: ఫ్రాన్స్ అధీనంలో ఉన్న విమానానికి లైన్ క్లియర్.. 303 మందితో తిరుగు ప్రయాణం
--  Костромской водитель автобуса предотвратил ДТП… и лишился прав на год
--  Весела, щастлива и незабравима Коледа!
