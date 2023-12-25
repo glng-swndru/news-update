@@ -1,11 +1,11 @@
 # Latest News
--  An Introduction to Doing Business in China 2024 – New Publication Out Now
--  Миллат келажагини гўзал хулқли, илмли, тарбияли авлод яратади
--  Йирик инвестициялар самараси
--  Янги йил байрами – миллий ва умуминсоний қадрият
--  “Оила судьялари” ташкил этилади
--  Табиий ва суюлтирилган газ таъминоти бўйича 121 та мурожаат келиб тушди – Энергетика вазирлиги
--  Ўсимликлар карантини ва ҳимояси: 395 минг гектардан ортиқ майдон учун агрокимёвий хариталар ишлаб чиқилди
--  Ranbir Kapoor and Alia Bhatt show daughter Raha`s face for the FIRST time, watch
--  Maharashtra: Beed records three new cases of coronavirus
--  PDP claims Mehbooba put under house arrest ahead of scheduled visit to Poonch
+-  제주 항일운동 '푸른 눈의 사제들'...이달의 독립운동가 선정
+-  Investments of thousands of crores made in Indore`s vicinity: PM Modi
+-  "All is well in party we are united": Kumar on rumours of turmoil in JD(U)
+-  안유진, 우아한 드레스 자태
+-  63 cases of COVID-19 sub-variant JN.1 detected in India
+-  아이브 안유진-장원영, 러블리 하트
+-  아이브, 사랑스러운 요정들
+-  빛나는 샤이니
+-  뉴진스 혜인-해린 '순백의 요정'
+-  뉴진스 다니엘-하니, 러블리 장착
