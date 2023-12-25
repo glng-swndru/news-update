@@ -1,11 +1,11 @@
 # Latest News
--  Serious Request radio fundraiser collects €7.5 million for ALS, the most in six years
--  上班到底是在上什麼？除了賺錢以外，還有3個好處
--  聖誕老人在哪裡？Google、北美航太司令部告訴你
--  美國債券ETF搶搶滾，搶上車先注意3大風險！
--  職場聚餐底層邏輯：她以為常和主管午餐位子就穩，結局竟是背叛
--  無薪假增359人，竹科半導體業也難逃，為什麼？
--  同仁抱怨不想上課！訓練課程要有效，先做到三件事
--  Korać: Kriza će nastaviti da se produbljuje i postajaće sve dramatičnija
--  Efforts afoot to provide best Hajj services to pilgrims: Aneeq
--  U planu dupliranje železničkih koloseka od Prokopa do Batajnice
+-  Sinop'ta sahipsiz köpeklerin saldırdığı ATV'nin sürücüsü kaza yaptı
+-  קבוצת הנוער של עירוני ראש העין תיקרא על שם עמית הוד זיו ז"ל
+-  הוט ויס מסכמות את 2023: מה הסדרות הכי נצפות, ומה שינתה המלחמה?
+-  Bursa’da yol kavgası kamerada...Motosiklet sürücüsünü kaskıyla dövdü
+-  بعد الفشل الإسرائيلي في تحرير المحتجزين بالقوة.. زوجة نتنياهو تلجأ للبابا فرنسيس
+-  סנטה קלאוס? רטקליף נותן תקווה לאוהדי יונייטד, אבל העסקה חלומית לגלייזרים
+-  เช็ก 7 เส้นทางรถบรรทุกหยุดวิ่งปีใหม่ เริ่ม 28 ธ.ค.-2 ม.ค.67
+-  العصبة الإحترافية تكشف عن الدورة 13
+-  Tunturi-rallin ympärillä riittää hurjia huhuja
+-  Emissários de Lewandowski avisam Planalto de que ele aceitaria Justiça
