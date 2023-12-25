@@ -1,11 +1,11 @@
 # Latest News
--  Karu fakta taloudesta – Suomen jalkapallon tilanne on synkkä
--  ‘0골 0도움인데 주전으로 쓴다’... 맨유, 회이룬의 백업 공격수 영입 예정
--  Campaigners warn Sir Keir Starmer against trying to cancel Boxing Day hunts
--  Διακοπές στα χιόνια για τον Κιλιάν Εμπαπέ
--  Person sköts på krog i Västerås – inför flera vittnen
--  Šest izraza lica koji pokazuju da li se nekome zaista dopadate
--  Pope Francis makes appeal for world peace during Christmas Day speech
--  రిటర్నబుల్‌ ప్లాట్లపై రియల్టర్ల గురి!
--  BEZ INCIDENATA Badnjak protekao u miru u Kölnu i Beču
--  Премьер Израиля назвал три условия достижения мира в секторе Газа
+-  Yılbaşı sofrasından kızartmayı çıkarın
+-  알리 공습에 규제까지?…자율규제 무색해진 이커머스 ‘울상’
+-  2023 Winners and losers: Xiaomi
+-  Pide Papa a políticos de América solucionar migración
+-  Lideran tres países el éxodo migrante
+-  81-й день войны в Израиле. Хронология событий
+-  كيف تؤمن محادثاتك في واتساب ويب بكلمة مرور
+-  EastEnders fans horrified by Phil Mitchell’s method of stuffing a turkey
+-  Бритни Спирс попыталась избавиться от купальника на новом видео
+-  (VIDEO) „Kaže sve je u redu, prihvatamo ubedljivost rezultata“: Vučić, Mali i Lepa Brena
