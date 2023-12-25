@@ -1,11 +1,51 @@
 # Latest News
--  MSiT: 8 milionów złotych dla 36 klubów w programie "Wsparcie Mistrzów"
--  Szef MKiDN: powołanie Macieja Łopińskiego na stanowisko prezesa zarządu TVP jest prawnie bezskuteczne
--  मुंबई पोर्ट पहुंचा MV Chem Pluto, दो दिन पहले ड्रोन से हुआ था अटैक
--  İsrail ordusu 8 bin 500 çocuğu öldürdü
--  Otrovan Putinov čovek?
--  News24 | Tuesday's weather: Disruptive rain leading to localised flooding expected in parts of the country
--  "أنت الجماعة ولو وحدك".. تفاعل مع مُسنّة بريطانية تتضامن لوحدها مع غزة (شاهد)
--  Savaş Lübnan'ın güneyine sıçradı
--  "عربي21" ترصد كوارث طبيعية مدمرة ضربت العالم خلال 2023
--  中國青年失業率高漲，圖書館為何成避風港？
+-  "ملك الشتاء".. مشروب المناعة يحارب البرد ويقتل الفيروسات.. فما هو؟
+-  حرب السودان تفاقم مأساة المدنيين في البلاد.. تحذير من "كارثة منسية"
+-  In Permafrostzone - Putin-Feind Nawalny sitzt nun im „Polarwolf“
+-  에스파 지젤, 강렬한 레드
+-  에스파, 크리스마스의 여신들
+-  보이넥스트도어, 귀여운 루돌프
+-  있지, 예쁨 가득
+-  اللواء الفضلي يشيد بقرار نائب رئيس مجلس القيادة اللواء الزبيدي
+-  Beyonce's childhood home in Houston ruined by devastating fire on Christmas day
+-  Haaland supera Mbappé e Kane na lista de melhores avançados de 2023
+-  రేణుకా ఎల్లమ్మ ఆలయంలో చోరీ
+-  Kurti e ‘provon’ dhe në Maqedoninë e Veriut, si në Shqipëri: Vetëvendosja, pjesë e opozitës kundër Ali Ahmetit në zgjedhje
+-  Estas son las cortitas de hoy lunes 25 de diciembre de 2023
+-  حماس: نسعى لوقف العدوان بشكل كامل وليس مؤقتا قبل أي مفاوضات
+-  Израильская марка кофе временно отказалась от слова "турецкий" на упаковках
+-  Someten a estudo a viabilidade socioeconómica e ambiental da biomasa forestal en Barbanza
+-  IZA NJE SE KRIJE VELIKA PATNJA Pesma koja se sada naziva božićnim klasikom zapravo nema nikakve veze sa Božićem
+-  How Dangerous Is A Flaming Cocktail, Really?
+-  What are the best live-action Disney remakes? Here’s how every remake ranks
+-  Prvo oglašavanje Marije Šerifović iz PORODIČNOG DOMA Pevačica sa sinom stigla u Beograd, a na NJIH nije zaboravila - evo šta je poručila (VIDEO)
+-  Itt az újabb török focibotrány: brutálisan leütötték a sztárfocistát - videó
+-  ĆERKA SAŠE MATIĆA IZGLEDA KAO BOGINJA! Samo jednom se pojavila u javnosti, a njene duge i mišićave noge pomutile su um svima!
+-  القادسية يعزز صدارته لـ” يلو”.. والخلود يعبر جدة بثلاثية
+-  In Christmas Day message, Pope Francis decries Gaza’s ‘appalling harvest’ of civilian deaths
+-  VOZ USMRTIO PEŠAKA Tragedija u Podgorici: Hitna pomoć mogla samo da konstatuje smrt
+-  Cherbourg-en-Cotentin. Où pouvez-vous laisser votre sapin de Noël après les fêtes ?
+-  "PROFESIONALNA" LJUBAVNICA RASKRINKALA OŽENJENE PRED PRAZNIKE! "Ove poklone dobijam za Božić - ako nemate burmu, ĆAO"
+-  Salih Uçan'ın golüne ofsayt engeli! İşte o pozisyon
+-  Okafor come Leao: tre gol per lo svizzero in campionato
+-  Pelo menos 38 detidos em protestos na Sérvia após eleições
+-  Murcia despide 2023 como destino predilecto de turistas europeos
+-  28 నుంచి ప్రజాపాలన
+-  “Espero no cag… igual”: La ‘indirecta’ de Jaime Lozano a Javier Aguirre
+-  Muere un hombre en A Coruña tras disparos de la Policía en una intervención
+-  Ολυμπιακός: Τα συμβόλαια που λήγουν το ερχόμενο καλοκαίρι (vid)
+-  Essonne: un sanglier mort déposé devant une mosquée
+-  États-Unis: un enfant non-accompagné de 6 ans se retrouve dans le mauvais avion
+-  Protest ispred RIK: Blokiran saobraćaj u Ulici kralja Milana
+-  كان مقربا من قاسم سليماني .. اغتيال قيادي بارز في الحرس الثوري الإيراني
+-  منع الرعي في نطاق محمية الإمام عبدالعزيز بن محمد الملكية ومحمية الملك خالد الملكية
+-  MOGU DO &quot;ZLATNOG SLEMA&quot; Novak Đoković puca od samopouzdanja, ova izjava će posebno obradovati navijače u Srbiji
+-  Karadeniz için fırtına uyarısı
+-  Vinculan a extorsionador que se hacía pasar por oficial de policía
+-  ప్రజా సంక్షేమమే ధ్యేయంగా పనిచేస్తా
+-  PRVI PUT ZAPEVALA NAKON POGIBIJE SINA: Pevačica mu posvetila emotivne stihove, scena KIDA DUŠU! VIDEO
+-  [VIDEO] ¡A trabajar!.. se acabó el vale digital (Caricaturas)
+-  Milei: críticas a decreto de desregulamentação são motivadas por “sadismo” ou “corrupção”
+-  Small airports are magnets for the wealthy: Here are the 8 most popular for private jets
+-  紀念聖誕節 斯里蘭卡釋放千多名囚犯
+-  Lousame reunió a 152 andariegos solidarios
