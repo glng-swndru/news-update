@@ -1,11 +1,11 @@
 # Latest News
--  Bernie Ecclestonelta kaunista tekstiä Mika Häkkiselle
--  Jahrelange Flucht: Rios meistgesuchter Krimineller verhaftet
--  Netanyahu dice que la presión militar es necesaria para liberar a los rehenes
--  Pełzającą apokalipsę trudno nam traktować poważnie
--  دشمن مذہبی، نسلی اور سیاسی کمزوریوں کو استعمال کرکے دراڑیں ڈالنے پر تلے ہیں، آرمی چیف
--  İYİ Parti'de bir istifa daha! 1 ay önce belediye başkan adayı olarak açıklanmıştı...
--  Karadeniz’de fırtına uyarısı: Saatteki hızı 75 km’yi bulacak
--  CHP'li Yücel: Şehit varken Meclis'te mangal partisi yapanlar bize bildiri dayatamaz
--  La catastrófica predicción meteorológica de Jorge Rey para esta Navidad
--  Liberaron a 24 detenidos por faltas menores en Nochebuena
+-  Wolke Hegenbarth ist mit Mutter ihres Ex-Freundes befreundet
+-  Princess Charlotte Sweetly Holds Hands With Kate Middleton as the Family Arrives for Christmas Church Service
+-  День Вологодской области на выставке-форуме «Россия» состоится 28 декабря
+-  פשרה כואבת? לא בהכרח: כן לשחרור מחבלים, למרות הכל
+-  Хил го осуди синоќешниот вандализам во Белград
+-  Jevrić povrijeđen tokom policijske racije u Beranama
+-  توقعات الأبراج ليوم الثلاثاء 26 كانون الأول /ديسمبر 2023
+-  علي هيثم الميسري : سبق وقالها فخامة الرئيس عبدربه منصور هادي
+-  Еще девять человек арестовали после оргии в московском ТЦ
+-  В Бердянске состоялся концерт коллектива глухонемых музыкантов
