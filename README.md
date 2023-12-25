@@ -1,11 +1,11 @@
 # Latest News
--  مدير أمن بنغازي يصدر تعليماته بمنع احتفالات رأس السنة الميلادية.
--  الدبيبة في ذكرى الاستقلال : العبور نحو انتخابات ناجحة تقود للاستقرار يمر عبر الدستور.
--  حمّاد يهنئ الشعب الليبي بالاستقلال، ويعلن انطلاق الاحتفاء ببنغازي عاصمة للثقافة في العالم الإسلامي .
--  باشا آغا: ما تمر به ليبيا كارثي وإن لم نتوحد فسيكون مصيرنا مثل ملوك الطوائف .
--  ندوة تثقيفية بمدينة البيضاء حول تلوث المياه الجوفية جراء كارثة فيضانات شرق ليبيا
--  البعثة الأممية للدعم في ليبيا تطالب بالاتفاق على مسار انتخابي وتشكيل حكومة موحدة .
--  Nijerya'da iki aracın çarpışması sonucu 11 kişi öldü
--  Editor’s Choice: Best Smartphones Launched in 2023
--  15 công việc đang mất dần sức hút, thu nhập gần 3,5 tỷ/năm vẫn “bị chê”
--  Sức mạnh của vẻ đẹp thanh thuần: "Thánh hở bạo" Kwon Eunbi lu mờ trước "nàng tiên hoa" Arin khi cùng lên thảm đỏ
+-  Insiden Smelter, PT IMIP Klaim Tungku yang Terbakar Masih Layak Pakai: Hanya Perlu Perawatan Rutin
+-  Katledilen kedi için hayvanseverler yürüdü
+-  SJL: Motociclista sale ileso tras choque con camioneta
+-  Wali Kota Gratiskan Depok Open Space Dipakai untuk Pertunjukan
+-  'Phố châu Âu' ở Hà Nội đông nghẹt trong đêm Noel
+-  Визитку Путина продали с аукциона за 2 миллиона рублей
+-  NOW OPEN: Four Seasons Hotel Suzhou Welcomes Guests to a Private Island Oasis in One of the China's Most Engaging Cities
+-  엑스피펜, 서울일러스트레이션페어 성료
+-  김정택 국민의힘 상록구갑 예비후보, 농장 맞춤형 스마트팜 현장 방문
+-  '제30회 화성시 문화상' 수상자 4명 선정
