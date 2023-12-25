@@ -1,11 +1,51 @@
 # Latest News
--  제주 항일운동 '푸른 눈의 사제들'...이달의 독립운동가 선정
--  Investments of thousands of crores made in Indore`s vicinity: PM Modi
--  "All is well in party we are united": Kumar on rumours of turmoil in JD(U)
--  안유진, 우아한 드레스 자태
--  63 cases of COVID-19 sub-variant JN.1 detected in India
--  아이브 안유진-장원영, 러블리 하트
--  아이브, 사랑스러운 요정들
--  빛나는 샤이니
--  뉴진스 혜인-해린 '순백의 요정'
--  뉴진스 다니엘-하니, 러블리 장착
+-  Palesztin menekülttábort támadott Izrael – Legalább hetvenen meghaltak
+-  “부모에게 물려받은 나눔정신 후대에도…”
+-  건강한 삶 유지하고, 이웃 돕기에도 한 뜻
+-  Koeajossa Kia EV9: Kaikille tilaa riittää, kaikille paikkoja on
+-  إسرائيل تعلن مقتل اثنين من جنودها بمعارك غزة
+-  เปิดตราสัญลักษณ์ พระราชพิธีมหามงคล 72 พรรษา 28 กรกฎาคม 2567
+-  Luz verde a la investigación hidrogeológica en el humedal de El Carmolí
+-  مسؤولة إسرائيلية تدعو للتحقيق في تنفيذ بروتوكول "هانيبال"
+-  معلومة عاجلة عن الكهرباء في لبنان.. إنتبهوا لهذا الأمر!
+-  A Hamász szerint menekülttáborra mért csapást Izrael, hetvenen haltak meg
+-  Pet charity PDSA gives dog owners Christmas choc shock warning
+-  Auto fahren im Winter: Wer eine dieser 3 Sachen tut, zahlt Strafe
+-  স্মার্টফোনের ব্যাটারি ভালো আছে কী না, তা জানাতে নতুন সুবিধা আসছে অ্যান্ড্রয়েডে
+-  غزة.. فرق نفسية لمواجهة الميول الانتحارية لدى الجنود الإسرائيليين
+-  Malayalee From India promo: Nivin Pauly reunites with Dijo Jose Antony, Listin Stephen for his grand comeback
+-  Henkilöautoilija törmäsi hirveen Tohmajärvellä jouluaattona
+-  सप्तकोशी डेभलपमेन्ट बैंकले पुस २९ मा वार्षिक साधारण सभा गर्ने
+-  पुस २९ गते लाभांश पारित गर्दै यी ४ कम्पनी, कसले कति दिंदैछन् लाभांश ?
+-  स्टक ब्रोकर्स एसोसिएसनले पुस २६ गते बोलायो साधारण सभा
+-  पूर्वाञ्चल ल्युव आयलले आईपीओ निष्कासन गर्ने
+-  इन्फिनिटी लघुवित्तको साधारण सभा पुस २८ मा, छैन लाभांश प्रस्ताव
+-  नेपाल ल्युब आयलको शेयर मूल्य समायोजन
+-  शतप्रतिशत हकप्रद निष्कासनको प्रस्ताव पारित गर्न बाराही हाइड्रोपावरले पुस २९ मा बोलायो साधारण सभा
+-  Miss Manners: I find it rude that the TV stays on when I enter. Am I overreacting?
+-  Španjolci lansirali bombu za Modrića: ‘Hrvat je sve dogovorio s Ronaldom’
+-  Viele Auswärtige nutzen Frankfurter Kulturangebote
+-  الإمارات تتصدر الوجهات السياحية العالمية خلال عطلات الميلاد ورأس السنة
+-  Podignuta optužnica protiv bh. biznismena, oštetio budžet za 737.930 KM
+-  Expositie schilderijen Hans Dronkert in stadsmuseum De Knoperij
+-  After ultimatum given, Pakistani police free 290 Baloch activists arrested while protesting extrajudicial killings
+-  FC Barcelona złożyła ofertę za młodą gwiazdę. W marcu rywalizował z Lechem Poznań
+-  بروفيسور فرنسي: إسرائيل مستمرة في تشويه الأمم المتحدة
+-  Refleksi Natal 2023, Uskup Agung Jakarta Singgung Masalah Etika
+-  Sudah Mualaf Diajak Nyanyi Lagu Natal, Larissa Chou: Gak Mempan
+-  رقم تاريخي سلبي غير مسبوق يصدم تشيلسي
+-  كتف بيلينغهام في خطر
+-  ألفاريز يصدم ريال مدريد وبرشلونة
+-  تحذير بشأن (قاتل صامت) خلال الأعياد
+-  Ukraine erhält 1,34 Milliarden Dollar im Rahmen des Weltbankprojekts - Finanzministerium
+-  Oekraïne heeft 1,34 miljard dollar ontvangen in het kader van een project van de Wereldbank - ministerie van Financiën
+-  Брнабиќ: Им благодарам на руските безбедносни служби кои имаа информации за тоа што се подготвува во Белград и ги споделија со нас
+-  고금리에 '영끌' 후폭풍…부동산 경매, 9년 만에 최고치
+-  หายาก ป่วย 1 ในล้าน Stiff-person syndrome "โรคคนแข็ง"
+-  กสม.ปัดเอื้อระเบียบราชทัณฑ์ปม "ทักษิณ" นอนรพ.ชี้ต้องให้ศาลสั่ง
+-  İBB Başkanı İmamoğlu'na taşlı saldırı davasında yeni gelişme
+-  Starring the genetic molecule RNA
+-  It Is Only A Dumb Person That Would Consider Me A Role Model – Odumodublvck
+-  الاحتلال يواصل تصعيده بالضفة ويعتقل عددا من الفلسطينيين
+-  ميسي الصغير.. مراهق موهوب يثير اهتمام أندية شهيرة
+-  तस्विरमा ऐतिहासिक तपोभूमि गाम्फाधुरी
