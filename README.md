@@ -1,51 +1,11 @@
 # Latest News
--  81 ilde ortak sınavlar yarın başlıyor
--  Afyonkarahisar'da deprem mi oldu?
--  Bursa dahil 37 ilde Kalkan-4 Operasyonu! 192 göçmen kaçakçılığı organizatörü yakalandı
--  Meclis'te yeni haftada gündem yoğun: Çalışan emekliye 5 bin TL ikramiye
--  İstanbul'da kuruyemiş yüklü TIR bariyerlere çarptı! 1 yaralı
--  İzmir'de ölümü şüpheli bulunan kişinin üzerinden 944 bin liralık çek çıktı!
--  İkinci el araçta ezber bozuldu!
--  Fas açıklarında 57 düzensiz göçmen yakalandı
--  Sosyal medyada uyuşturucu kullanınca yakayı ele verdi
--  Partilerin seçim mesaisi
--  Doğu Anadolu kar altında! Yüzlerce köy yolu ulaşıma kapandı.
--  Bursa'da tarihi mirasa saygısızlık!
--  Kar tatili isteyen öğrenciye Erzincan Valisinden cevap!
--  Rusya'da otomobillerden dev noel ağacı
--  "Pretende i soldi per il parcheggio e minaccia l'anziano automobilista con un coltello": denunciato 25enne
--  尹대통령, 박상우 국토부 장관·강정애 보훈부 장관 임명
--  Ukraina kertoo pudottaneensa venäläishävittäjän Mariupolin lähistöllä
--  GL будет сотрудничать с глобальной энерготехнологической компанией Baker Hughes
--  Россия впереди в гонке вооружения с Западом
--  جرمنی میں اسلاموفوبیا، قانونی طور پر مقیم شامی باشندوں کو تفتیش کا سامنا
--  سارہ شریف کے بہن بھائیوں کی پاکستان سے برطانیہ واپسی کیلئے درخواست پرکشمکش جاری
--  Кабмин продлил запрет на въезд грузовиков из ЕС, Британии, Норвегии и Украины
--  В Красноярском крае пропали два рыбака
--  Anna Pirozzi Wins the Premio Puccini
--  इतनी एनर्जी कैसे लाते हैं, इतने काम होने के बाद भी?, पीएम मोदी ने दिया ये जवाब
--  Fishlets – A Cute and Cozy Aquarium Game
--  英特爾可能拆成 5 家公司？專家：晶圓代工拚當二哥
--  Poor-quality food items sent back to Pakistan: ANSA
--  Stock market holiday for Christmas: BSE, NSE to remain shut today
--  IDU PRAZNICI, PA SVI NAGRNEMO NA OMILJENA JELA! Psiholog otkriva koje namirnice su "ZLO" za STOMAK - stvaraju GORUŠICU
--  Kristjani opolnoči pričakali božič
--  В Приамурье ввели в эксплуатацию новую воздушно-посадочную полосу аэропорта Благовещенск
--  സുരേഷ് ഗോപിക്കെതിരെ കുറ്റപത്രം തയാർ; കൂടുതൽ വകുപ്പുകൾ ചേർത്തെന്ന് സൂചന
--  Zwölf Engel bereisen Altwildungen mit Botschaften der Zuwendung
--  JUTRO POSLE HAOSA KOJI JE IZAZVALA &quot;SRBIJA POSLE NASILJA&quot; Evo šta su uradili od Skupštine grada Beograda (FOTO)
--  Németh Szilárd karácsonyi menüje: nem akarod tudni, mennyibe került, és nem akarod megnézni
--  BRC-20 Tokens Exceed $110M 24hr Trading Volume on Gate.io
--  Merola Opera Program’s Executive Director to Retire
--  Izraelski atak na obóz dla uchodźców. Hamas: to masakra
--  Berliner Polizei: Größter Silvestereinsatz seit Jahrzehnten
--  গাজায় যুদ্ধবিরতি: হামাসের পর কায়রোতে ইসলামি জিহাদের প্রতিনিধিদল
--  À Tours, des voitures incendiées après la mort d'un jeune homme renversé par une voiture de police
--  Atal Bihari Vajpayee Speech: संसद में अटल जी का ऐतिहासिक भाषण, 1996 में जब विपक्ष पर उठाए थे कड़े सवाल
--  Piyasadaki sert hareketlerin nedeni belli oldu!
--  അനന്തു ചിരിച്ചു, നാവനക്കി; അമ്മനക്ഷത്രത്തിന് പ്രതീക്ഷയുടെ ക്രിസ്മസ്
--  President, PM urge following Quaid-i-Azam’s vision as nation celebrates his 147th birthday
--  Guna insentif pemandulan kawal populasi anjing liar
--  В Пермском крае в ДТП с грузовиком погибли четыре человека
--  Gazze'de 2 İsrail askeri öldürüldü
--  CM भगवंत मान ने शोक बिगुल बजाने का फैसला लिया वापस, कहा- साहिबजादों की शहादत पर न हो विवाद
+-  KWK 8: Sharmila Tagore shares embarrassing stories about Saif Ali Khan
+-  Govt will take decision: Karnataka Home Minister on Hijab issue
+-  تطورات الحالة الجوية في المملكة اليوم الاثنين
+-  اشتباكات ضارية في مخيم البريج وسط غزة
+-  "حزب الله" يقصف 4 أهداف للجيش الإسرائيلي في جنوب لبنان
+-  رسالة هامة ومطولة من السنوار عن إنجازات المقاومة ضد قوات الاحتلال
+-  اشتباكات بين المقاومة والاحتلال في جنين وطوباس
+-  ارتفاع عدد شهداء قصف منزل شرق خان يونس إلى 23
+-  حماس: مجزرة المغازي جريمة حرب جديدة وامتدادًا لحرب الإبادة
+-  اصابة برصاص الاحتلال في بلدة عقابا شمال طوباس
