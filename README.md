@@ -1,11 +1,11 @@
 # Latest News
--  Nueva Mexicana de Aviación abre operaciones mañana
--  Busca FGR a contador de Lozoya por fraude fiscal de 28.1 mdp
--  Strašna nesreća u Crnoj Gori: U sudaru poginule tri osobe
--  'Aumento en el IEPS no representa gasolinazo'
--  Festejos de Navidad dejaron un saldo de 3 fallecidos, varios heridos y 55 personas detenidas por infracciones e ilícitos
--  أضرار الإفراط في تناول النشويات.. ما علاقة متحور فيروس كورونا الجديد JN.1؟
--  Les Nuggets terminent les Warriors au finish (120-114) !
--  "الخارجية الفلسطينية": المحتل الإسرائيلي يستخف بالإجماع الدولي
--  العراق.. كواليس قصف مطار أربيل الدولي بمسيرة مفخخة
--  연말 트래픽 7% 증가 '비상'…유영상‧김영섭‧황현식 '통신망 총력'
+-  금융 당국 ELS 조사에 벌벌 떠는 시중은행들
+-  동대문구, 주거 취약계층 14가구 집수리 완료
+-  Aquaman 2 Is Underperforming At The Box Office, And Fans Wonder Why The Marvels Took So Much More Flack Than The New DC Movie
+-  Campeonato Inglês terá primeiro árbitro preto na história desde 2008
+-  На Украине снимут отсрочку по мобилизации для части инвалидов, пишут СМИ
+-  Luai’s huge announcement amid swirling rumours over NRL future
+-  EastEnders fans in shock as Christmas killer and victim revealed
+-  Recalentado ‘enfría’ a CDMX: Activan alerta en 6 alcaldías por bajas temperaturas
+-  Dragićević: Ovo je timska nagrada
+-  UMRO POZNATI GLUMAC Izgubio bitku protiv opake bolesti, u Srbiji je poznat po ovoj igrici
