@@ -1,51 +1,51 @@
 # Latest News
--  התחזית: עלייה בטמפרטורות - שתמשך עד ליום חמישי לפחות
--  Aumentan las posiciones cortas en el dólar ante la desaceleración de las subidas de tipos de la Fed
--  Krampuszfutás, görkoris mise és karácsonyi rémmacska - szokatlan ünnepi hagyományok a világban
--  Навоийда Cobalt газ баллони портлаши оқибатида 3 ёшли бола вафот этди
--  Quake recovery starts with a bowl of hot beef noodles
--  Jakarta-Bandung High-Speed Railway: a New Example for Belt and Road Cooperation
--  Catherine spends Christmas eve in Tamil Nadu with Michael Douglas
--  Halk TV'de şehitlerimiz üzerinden kirli algı operasyonu!
--  Fotoğraflar üzerinden hükümeti hedef almak isteyen Veli Ağbaba fena faka bastı!
--  Tovuzda 45 yaşlı kişini maşın vurdu
--  The Winners and Losers of NFL Week 16
--  Nefesler tutuldu, yeni asgari ücret açıklanacak: İTO Başkanı 'bölgesel asgari ücret' istedi, sendikalar karşı çıkıyor
--  10 หุ้นดาวร่วง 2566 ราคาหล่นหายปรับลดลงมากที่สุด
--  서울 지하철 노선도 40년 만에 바뀐다…달라진 점은?
--  성탄절 전야 음주운전 전복사고…신고자는 ‘애플워치’
--  الخوخ الناعم .. لون 2024
--  Furnace explosion at Chinese-owned nickel plant in Indonesia kills at least 13 and injures 46 others
--  80％オフで『AI: ソムニウム ファイル』が880円！【Steamウインターセール】
--  이범석 청주시장 "지북동 눈썰매장 부상자 치료 지원"
--  Четыре человека погибли в результате ДТП на трассе Пермь-Екатеринбург
--  كيف تُصبح مليونيرًا.. مديونًا؟
--  Психолог предупредила о минусах секса втроем
--  Jamin Listrik Jakarta Aman di Malam Natal, PLN: Kami Memastikan Zero Mistake
--  Ali Sabancı'ya Arkadaşlarından Pastalı Kutlama
--  বিকাশমান বিশ্বব্যবস্থায় ভূ-অর্থনীতির যে প্রভাব
--  Inilah Asal Muasal Depresi Musim Libur yang Sebaiknya Anda Ketahui
--  কলাপাড়ায় আওয়ামী লীগ কার্যালয়ে ঢুকে শ্রমিক লীগ নেতাকে কুপিয়ে জখম
--  Accidents de la circulation, alcool ... Les pompiers de St-Étienne, dans la Loire, doivent redoubler de vigilance en cette période de fêtes
--  Upcoming Cars Under 10 Lakh: આગામી વર્ષે બજારમાં આવશે 10 લાખ રૂપિયાથી ઓછી કિંમતની આ કારો, કઇ ખરીદશો તમે?
--  Former Rabbitohs player dies after motorcycle crash in Cook Islands
--  Former Rabbitohs player dies after motorcycle crash in Cook Islands
--  411’s The SmackDown LowDown Report 12.23.23: LA Knight Talks AJ Styles and Randy Orton
--  اتحاد المقاولين بمحافظة المهرة يدشن برنامجه التصعيدي بنصب نقاط على الخط العام
--  신나는 눈썰매
--  제설작업으로 분주
--  아기예수 탄생의 기쁨과 축복을
--  제주 제2컨벤션센터, 추진 8년 만에 착공…APEC 유치 이끌까
--  Великобритания решила отправить военный корабль в Гайану из-за Венесуэлы
--  อัปเดตล่าสุด เติ้ล ธนพล อดีตพระเอกชื่อดัง ปัจจุบันใช้ชีวิตบ้าน ๆ ติดดินกว่าที่คิด
--  Россиянам развеяли популярный миф о масле
--  হবিগঞ্জে আরেকটি শিল্পপার্ক করছে প্রাণ-আরএফএল
--  Мать-порноактриса смутила дочь-порномодель своими откровенными видео
--  Altın Fiyatları Yükseliyor mu? 25 Aralık 2023 Pazartesi Tam Altın, Gram Altın, Çeyrek Altın ve Güncel Altın Fiyatları Ne Kadar?
--  Verbraucherzentrale warnt: Kunden der ING müssen jetzt wachsam sein
--  코트라, 인도서 'K-뷰티' 시장 개척…'코스모프로프 인디아'서 한국관 운영
--  Brent petrol fiyatı ne kadar oldu?
--  993억이면 ‘탑클래스 MF’ 이적 허용한다…김민재 새 동료 영입 청신호
--  Безработная россиянка расправилась со знакомым и сама во всем призналась
--  Derbide son düdük geldi, Rıdvan Dilmen iki takıma da giydirdi! "Dünya derbisini yurtdışından biri izlese..."
--  নাইজেরিয়ায় হামলায় নিহত ১৬ জন
+-  81 ilde ortak sınavlar yarın başlıyor
+-  Afyonkarahisar'da deprem mi oldu?
+-  Bursa dahil 37 ilde Kalkan-4 Operasyonu! 192 göçmen kaçakçılığı organizatörü yakalandı
+-  Meclis'te yeni haftada gündem yoğun: Çalışan emekliye 5 bin TL ikramiye
+-  İstanbul'da kuruyemiş yüklü TIR bariyerlere çarptı! 1 yaralı
+-  İzmir'de ölümü şüpheli bulunan kişinin üzerinden 944 bin liralık çek çıktı!
+-  İkinci el araçta ezber bozuldu!
+-  Fas açıklarında 57 düzensiz göçmen yakalandı
+-  Sosyal medyada uyuşturucu kullanınca yakayı ele verdi
+-  Partilerin seçim mesaisi
+-  Doğu Anadolu kar altında! Yüzlerce köy yolu ulaşıma kapandı.
+-  Bursa'da tarihi mirasa saygısızlık!
+-  Kar tatili isteyen öğrenciye Erzincan Valisinden cevap!
+-  Rusya'da otomobillerden dev noel ağacı
+-  "Pretende i soldi per il parcheggio e minaccia l'anziano automobilista con un coltello": denunciato 25enne
+-  尹대통령, 박상우 국토부 장관·강정애 보훈부 장관 임명
+-  Ukraina kertoo pudottaneensa venäläishävittäjän Mariupolin lähistöllä
+-  GL будет сотрудничать с глобальной энерготехнологической компанией Baker Hughes
+-  Россия впереди в гонке вооружения с Западом
+-  جرمنی میں اسلاموفوبیا، قانونی طور پر مقیم شامی باشندوں کو تفتیش کا سامنا
+-  سارہ شریف کے بہن بھائیوں کی پاکستان سے برطانیہ واپسی کیلئے درخواست پرکشمکش جاری
+-  Кабмин продлил запрет на въезд грузовиков из ЕС, Британии, Норвегии и Украины
+-  В Красноярском крае пропали два рыбака
+-  Anna Pirozzi Wins the Premio Puccini
+-  इतनी एनर्जी कैसे लाते हैं, इतने काम होने के बाद भी?, पीएम मोदी ने दिया ये जवाब
+-  Fishlets – A Cute and Cozy Aquarium Game
+-  英特爾可能拆成 5 家公司？專家：晶圓代工拚當二哥
+-  Poor-quality food items sent back to Pakistan: ANSA
+-  Stock market holiday for Christmas: BSE, NSE to remain shut today
+-  IDU PRAZNICI, PA SVI NAGRNEMO NA OMILJENA JELA! Psiholog otkriva koje namirnice su "ZLO" za STOMAK - stvaraju GORUŠICU
+-  Kristjani opolnoči pričakali božič
+-  В Приамурье ввели в эксплуатацию новую воздушно-посадочную полосу аэропорта Благовещенск
+-  സുരേഷ് ഗോപിക്കെതിരെ കുറ്റപത്രം തയാർ; കൂടുതൽ വകുപ്പുകൾ ചേർത്തെന്ന് സൂചന
+-  Zwölf Engel bereisen Altwildungen mit Botschaften der Zuwendung
+-  JUTRO POSLE HAOSA KOJI JE IZAZVALA &quot;SRBIJA POSLE NASILJA&quot; Evo šta su uradili od Skupštine grada Beograda (FOTO)
+-  Németh Szilárd karácsonyi menüje: nem akarod tudni, mennyibe került, és nem akarod megnézni
+-  BRC-20 Tokens Exceed $110M 24hr Trading Volume on Gate.io
+-  Merola Opera Program’s Executive Director to Retire
+-  Izraelski atak na obóz dla uchodźców. Hamas: to masakra
+-  Berliner Polizei: Größter Silvestereinsatz seit Jahrzehnten
+-  গাজায় যুদ্ধবিরতি: হামাসের পর কায়রোতে ইসলামি জিহাদের প্রতিনিধিদল
+-  À Tours, des voitures incendiées après la mort d'un jeune homme renversé par une voiture de police
+-  Atal Bihari Vajpayee Speech: संसद में अटल जी का ऐतिहासिक भाषण, 1996 में जब विपक्ष पर उठाए थे कड़े सवाल
+-  Piyasadaki sert hareketlerin nedeni belli oldu!
+-  അനന്തു ചിരിച്ചു, നാവനക്കി; അമ്മനക്ഷത്രത്തിന് പ്രതീക്ഷയുടെ ക്രിസ്മസ്
+-  President, PM urge following Quaid-i-Azam’s vision as nation celebrates his 147th birthday
+-  Guna insentif pemandulan kawal populasi anjing liar
+-  В Пермском крае в ДТП с грузовиком погибли четыре человека
+-  Gazze'de 2 İsrail askeri öldürüldü
+-  CM भगवंत मान ने शोक बिगुल बजाने का फैसला लिया वापस, कहा- साहिबजादों की शहादत पर न हो विवाद
