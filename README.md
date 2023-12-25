@@ -1,51 +1,11 @@
 # Latest News
--  António Costa faz a sua nona e última mensagem de Natal como primeiro-ministro
--  Cerca de 190 centros de saúde do país vão estar a funcionar no dia de Natal
--  رضوان کا انتخاب کنڈیشن کو مدنظر رکھتے ہوئے کیا ہے، شان مسعود
--  Kaip filme su Briusu Vilisu. Mokslininkai atskleidė, ką branduolinis sprogimas padarytų asteroidui
--  „Teko garbė susitikti ir pasikalbėti su Žmonių generolu.“ Legendinis Messi padovanojo Zalužnui dovaną (Foto)
--  Vokiečiai atskleidė techninių apžiūrų duomenis: kokie automobiliai pasirodė patys nepatikimiausi
--  [ŽT] „Rusams tai sukels siaubą...“ Z-kanalai pakraupę, ką daro Ukraina (Foto)
--  Troy Dargan: NRL star tragically dies aged 26 in horror motorcycle crash while on holiday with family in the Cook Islands
--  Nový mobil? Bankovní aplikaci už změníte bez pobočky
--  Olli Jokisen valmentajaura kovassa nosteessa
--  Edin Dzeko'dan Galatasaray ve Icardi'ye çarpıcı yanıt
--  Yavaş'ın eski başdanışmanı için Akşener'den talimat
--  Çiftçilere 59 milyon TL’lik destek!
--  Hande Erçel'in tatil paylaşımlarına tepki!
--  İsrail'in Gazze'ye saldırıları devam ediyor
--  Palestine not forgotten, as protests for a permanent ceasefire continue
--  मध्य प्रदेश : खंडवा में सोशल मीडिया के दोस्तों ने नाबालिग लड़की से किया गैंगरेप
--  Haksız Fiyat Değerlendirme Kurulu'ndan 283 işletmeye 9 milyon 374 bin TL idari para cezası
--  Aynı ikamette 28 düzensiz göçmen yakalandı
--  Kop Dağı Geçidi'nde kontrollü ulaşım sağlanmaya başladı
--  Okan Buruk yayıncı kuruluşu eleştirdi! "Pozisyonu göstermemek ilginç"
--  ABD'den çarpıcı iddia: Putin ateşkes için nabız yokluyor
--  लाइसेन्सका लागि पालो कुर्नुपर्ने अवस्थाको अन्त्य : प्रवक्ता पनेरु
--  PM Modi Commemorates Vajpayee and Malaviya’s Birth Anniversaries, Hails Their Enduring Legacies
--  Derbiye damgasını vurdu! Alexander Djiku'dan inanılmaz performans
--  Paris : une partie de la tour Eiffel va être fermée au public pendant un mois en 2024 pour travaux
--  Nouveau : une première fleur Ville et Villages fleuris pour Plémet
--  Şifa deposu otun neredeyse faydalı olmadığı hastalık yok
--  What is the panic switch that railway is going to install in railway stations and how does it function?
--  KONUTDER Başkanı Kumova, konut fiyatlarını yüzde 40 düşürecek formülü açıkladı!
--  Iconic Puente Hills mall made famous by Back To the Future resembles a ghost town after stores were forced to shut their doors due to lack of visitors
--  قائد اعظم کا 147واں یومِ ولادت: پاک فضائیہ کا خراج عقیدت، مختصر ویڈیو جاری
--  Haluk Levent Son Konserinin Tüm Gelirini şehit ailelerine gönderecek
--  Demandan apoyo de SOAPA, pero “están de vacaciones”
--  Une fin d'année chargée pour l'amicale des sapeurs-pompiers à Chepy
--  Bolsa de Tóquio fecha a ganhar 0,26%
--  Deja Noche de Rábanos 23 toneladas de desechos
--  "לידה מחדש": אוקראינה נטשה את המסורת הרוסית, ומציינת היום את חג המולד
--  People in Business: Wentzville School District hires;Truck Centers appoints; McCarthy promotes two
--  People in Business: Wentzville School District hires;Truck Centers appoints; McCarthy promotes two
--  Business Bulletin: IBEW/NECA help; Mia Rose sells; Hermann London acquires; IMPACT builds;
--  Rediseñando el Marketing: Las 5 Grandes Tendencias para 2024
--  Business Bulletin: IBEW/NECA help; Mia Rose sells; Hermann London acquires; IMPACT builds;
--  Motociclista arrollado por ignorar la luz roja del semáforo
--  Spajić danas na godišnjem sastanku sa privrednicima
--  وسائل إعلام صينية تحذر من خطورة سلوك الفلبين في البحر الجنوبي.. ماذا قالت؟
--  Емблематични имена на Хебър с пожелания за Весели празници
--  '노량', 개봉 6일 만에 200만 관객 돌파…주역들 감사 인사
--  แค่1,000ใบ การท่าเรือทำการ์ด’มาดามแป้ง’ ฟรีโค้ดดูไทยลีก เกมลาตำแหน่งฯ
--  Астраханцы приняли участие в хоккейном турнире «Дружба народов»
+-  쿠캣, 띵커바디 식단관리 도시락 선봬
+-  수원, 2024년도 예산 3조741억원 확정
+-  안산, 1사 1경로당 후원 업무협약 체결
+-  김포시, 2023년도 환경 배출업소 점검
+-  김포, 우리아이행복돌봄센터 양곡 행복주택점 개소
+-  경기도의료원 안성병원, 소아청소년과 야간진료 순항
+-  동두천, 조속한 미군 공여지 반환 촉구
+-  평택 시민명예감사관 활동 보고회·위촉식 개최
+-  포천, 재난대응 안전한국훈련 우수기관 선정
+-  의정부, 행안부 공공부문 공간혁신 우수기관 선정
