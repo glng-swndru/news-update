@@ -1,51 +1,51 @@
 # Latest News
--  Happy Christmas, Ross-shire Journal readers, contributors and advertisers!
--  Christmas 2023: Here`s how your favourite Bollywood couples are celebrating
--  صحافي سعودي: اليمن أمام مسؤولية عظيمة تقع على عاتق هذا الطرف
--  子どもの自殺データ集約して分析へ 政府方針、これまで各省庁で管理
--  Минздрав Азербайджана заявляет...
--  В России расширили программу модернизации здравоохранения в регионах
--  Baterai LFP Mobil Listrik BYD Ditembus Paku Tidak Terbakar
--  Правительство выделит 7,5 миллиарда рублей на зарплаты медработникам
--  TSK'ya dil uzattı! Bakan Yerlikaya duyurdu: Gereği yapıldı
--  Borsa haftaya düşüşle başladı!
--  Kocaeli'de feci kaza! Çok sayıda yaralı var
--  Dünya basınından Fenerbahçe-Galatasaray derbisi manşetleri
--  Edirne Mevlevihanesi ihya edikecek!
--  Barajlarda su seviyesi arttı
--  Timur Tengah Makin Panas, AL Iran Dilengkapi Rudal Canggih Talaieiyeh
--  Hugo Samir Berharap Bisa Bawa Timnas U-20 Indonesia Lolos ke Piala Dunia U-20 2025 di Cile
--  Girl Cheated by Youth: ஆசையாக பேசி தனிமையில் நெருக்கம்.. வீடியோ எடுத்து மிரட்டிய இளைஞர்: 26 வயது இளம்பெண் கண்ணீர் புகார்.!
--  Trabzonspor Başkanı Ertuğrul Doğan parasını TFF'den geri isteyecek
--  Косачёв: мир имеет право не признать новые границы США на континентальном шельфе
--  Кузнецова прокомментировала меры господдержки для многодетных семей в 2024 году
--  Carols, chocolates, 60ins TV: The prison compared to a luxury spa where inmates 'want to spend Christmas'
--  Захарова: Запад использует технику майданных переворотов в Сербии
--  Agentlik gündəm olan inəklə bağlı araşdırmalara başladı
--  «Chez les jeunes catholiques, installer une crèche chez soi a une signification plus religieuse que pour leurs aînés»
--  Christian Estrosi: «Monsieur le ministre, il y a aussi des usagers des transports publics en dehors de l'Île-de-France !»
--  «À la crèche, Dieu se dépouille entièrement pour se faire connaître et aimer des hommes»
--  Pierre Adrian: «Chaque année, à Noël, la question se pose : pourquoi pas se remettre à y croire?»
--  Jonathan Siksou: «Quand le Conseil constitutionnel veut faire disparaître l'âme du Palais-Royal»
--  Nord Stream 2, le «serpent de mer» qui a endormi les Européens
--  My Husband Is a Sucker for My Daughter's Bedtime Antics. And I'm the One Who Pays the Price.
--  Christine Coulson's New Book Was a Labor of Sticky Notes and Pages on a Wall
--  I Couldn't Stop Thinking About This Beautiful Slice of Life, One of the Best Movies of the Year
--  My Husband Is a Sucker for My Daughter's Bedtime Antics. And I'm the One Who Pays the Price.
--  I Couldn't Stop Thinking About This Beautiful Slice of Life, One of the Best Movies of the Year
--  Christine Coulson's New Book Was a Labor of Sticky Notes and Pages on a Wall
--  Рудковская считает, что Валиева в спорте зарабатывает больше, чем другие фигуристки на шоу
--  What temperature should turkey be when it is cooked?
--  L'Institut des crypto-actifs a vu le jour à La Défense
--  Meublés de tourisme : Paris va renforcer les contrôles
--  Plus de géothermie dans le réseau de chaleur de Fresnes
--  Une nouvelle voie express entre Roissy et Meaux en 2028
--  В очереди на заблокированных Польшей КПП стоит около 3400 фур с Украины
--  Menko PMK Cek Command Center PRJ, Pantau Langsung Lalin Libur Nataru
--  Ecclestone: Schumacher „steht er für eine eigene Marke“
--  美科羅拉多州購物中心平安夜爆槍擊 兩幫人火拼致1死3傷
--  Inga japanska fartyg via Röda havet
--  Inga japanska fartyg via Röda havet
--  Ecclestone: Schumacher „steht er für eine eigene Marke“
--  Ecclestone: Schumacher „steht er für eine eigene Marke“
--  Манчестер Јунајтед го сака Тимо Вернер
+-  Antalya’da boş inşaatta tanınmayacak halde bir ceset bulundu
+-  Isparta'da 2 çocuk arasında bıçaklı kavga: 1 ağır yaralı
+-  Yılbaşı ile Noel arasındaki fark nedir?
+-  Alırken dikkat! Hayvan yemi olarak satılan Çin Kestanesi nasıl ayırt edilir?
+-  Göztepe fırsat tepti! Ligde 3. sırada kaldı
+-  Merkez Bankası yeni endeksleri yayınlandı
+-  Yoğun kar yağışı nedeniyle Artvin'in 5 ilçesinde eğitime ara verildi
+-  Pınar Karşıyaka kazanmaya devam ediyor! Üst üste 8. galibiyet
+-  Genelkurmay Başkanı Gürak'tan kritik görüşme: Suudi mevkidaşını Genelkurmay karargahında kabul etti
+-  Uyuşturucu kullandıkları anları sosyal medyada paylaşan 2 zanlı yakalandı
+-  Fitne yuvası "Ekşi Sözlük"e kilit vuruldu!
+-  प्रभु क्यापिटल र रिसेन्ट एण्ड रिदम ट्राभल्सबीच सम्झौता
+-  Rebecca Welch postala prva žena koja je sudila Premier ligu, Howard Webb je oduševljen
+-  أميركية تلد طفلتين توأمين من رحمين مختلفين
+-  قطر: ريع تذاكر فعاليات كأس آسيا 2023 لصالح غزة
+-  Ezekkel a művészeti diplomákkal lehet a legtöbbet és a legkevesebbet keresni
+-  Australia skipper Pat Cummins backs Khawaja after ICC rejects his bid to display “Dove” logo
+-  Таджикистан и Казахстан договорились о сотруднчестве в сфере «электронного правительства»
+-  Latvijas bagātākie cilvēki šogad – TOP 10
+-  Интензивен трафик на "Дунав мост"
+-  Dating in Berlin: "Unverbindlich, schwierig, aber auch chancenreich"
+-  EPL: Something drastically wrong – Alan Shearer slams Man Utd duo
+-  رحلة ليلية لرصد حيوانات الكوالا الأسترالية
+-  在佛山做第三代试管婴儿要多少钱呢?
+-  妇科炎症会影响怀孕吗
+-  济南第三代试管婴儿多少钱?
+-  妇科炎症会导致月经推迟吗
+-  妇科炎症怎么办才能彻底消除
+-  음성생활체육공원·반다비 국민체육센터 준공
+-  충주공고 공무원 배출 산실 `자리매김'
+-  이상민 충주소방서장 명예로운 퇴임
+-  예성드림장학회 장학금 전달
+-  충주종합사회복지관 안전복지 강화 맞손
+-  충주시 교육여건 개선 `박차'
+-  느린학습자 평생교육 지원 `머리맞대'
+-  석회석산업 탄소중립 포럼
+-  단양군 먹는물 수질개선
+-  중부3군 내년 예산 976억 규모 확정
+-  제천·단양 현안 사업비 2088억 반영
+-  女人多吃藕的四大好处是什么 莲藕的功效和作用
+-  아열대스마트농장 `문 활짝'
+-  تقرير: المغرب سيكون من الدول الرائدة في إنتاج الهيدروجين الأخضر في 2030
+-  Borsa İstanbul'da yatırımcı sayısı 87 bin 327 kişi azaldı! Küçük yatırımcı satıyor, yabancı alıyor!
+-  Ўзбекистонда оилавий низоларни кўриш бўйича ихтисослаштирилган «Оила судялари» ташкил этилади.
+-  Ўзбекистон салкам 3 млрд долларлик тўқимачилик маҳсулотларини экспорт қилди .
+-  Asylanträge: Über eine Million in Europa im Jahr 2023
+-  AMSCG: Putevi suvi, vidljivost smanjena
+-  「あきたこまちR」危険視する根拠ない情報拡散 県注意呼びかけ
+-  UN General Assembly approves $3.59bn as budget for 2024
+-  “소득 줄고 빚 부담에”…‘이것’ 갖고있는 20대, 역대 최저…뭐길래
