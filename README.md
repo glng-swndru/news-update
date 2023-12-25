@@ -1,51 +1,51 @@
 # Latest News
--  Cybertruck designer says Tesla stainless steel pickup is no experiment
--  日 축구협회의 파격, 47세 회장 선출…2002년 한일월드컵 주역
--  NPO法人日本国際童謡館が贈る 阿蘇からの風 新春歌い初め in くまもと ～海沼実 童謡トークコンサート～
--  Ana Brnabić: Zahvaljujem se ruskim službama bezbednosti
--  Početak 2024. donosi kišu blagostanja za Vagu, Škorpiju i Djevicu, svemir će ih potopiti darovima
--  卵巢早衰的8大征兆
--  عاجل.. منصة مدرستي.. خطوات إنشاء حساب جديد 1445
--  卵巢囊肿可以怀孕吗
--  تفاصيل عملية احتيال لبيع سيارة مستعملة إلكترونيًا
--  だんだんワクワク 森の手仕事展
--  ميرسك تعود للبحر الأحمر فهل يصمت الحوثيين؟
--  Maratha Reservation : 'मुंबईत मराठा समाज आल्यानंतर..' AI च्या मदतीने साकारलं मराठा आंदोलनाचं चित्र!
--  Đilas doveo fantome iz Kladova da nasilno otimaju izbornu pobedu Vučiću VIDEO
--  Силы ПВО Украины сбили за сутки 29 вражеских "шахедов"
--  Zahl der Arbeitstage sinkt 2024 leicht
--  Zemljotres pogodio Varvarin
--  [소화기내과] 과음 후에는 ‘급성 췌장염’ 주의해야
--  Hombre resulta herido de bala cuando hacía fila para comprar tortillas en Culiacán
--  Ana Konidela: అనాథ చిన్నారులతో కలిసి పవన్‌ కళ్యాణ్ సతీమణి క్రిస్మస్‌ వేడుకలు
--  Hat er nicht nötig: Chris Broy ist kein Fan von OnlyFans
--  ‘이탈리아 복귀 의지 활활’…유벤투스 레전드, 무리뉴가 부른다
--  O bilimsel deney hangi hastalara kilo verdirdi
--  AP News: గన్నవరం విమానాశ్రయంలో మూడు విమానాల అత్యవసర లాండింగ్...
--  Optimistis Menang di Solo , Ganjar: Di Sini yang Kuat Partainya
--  В Пензенской области водителей проверят на выезд на "встречку"
--  روسيا وأوكرانيا تعلنان مقتل 6 مدنيين في هجمات متبادلة
--  每日雜誌｜取動物細胞繁殖 培養肉全球蠢蠢「肉動」 港政策未明朗 學者籲嚴管
--  Qəza zamanı maşında sıxılıb qalan şəxs xilas edildi
--  Ночью 25 января в Рязани вывозили снег с 6 улиц
--  WFI के पूर्व अध्यक्ष बृजभूषण शरण सिंह ने गृहमंत्री के साथ होने वाली मुलाकात को लेकर तोड़ी चुप्पी, बताया कारण
--  حكومة الحرب الإسرائيلية تبحث مقترحا لوقف إطلاق النار في غزة
--  कैसे थे अटल के राम! ‘वे हमें इसलिए दोषी ठहराते हैं कि हम राम मंदिर बनाना चाहते हैं’
--  અમદાવાદમાં કોરોના એક્ટિવ કેસમાં સતત વધારો, રવિવારે વધુ 5 કેસ નોંધાયા, જાણો કેટલા લોકો હોસ્પિટલમાં છે
--  쿠캣, 띵커바디 식단관리 도시락 선봬
--  수원, 2024년도 예산 3조741억원 확정
--  안산, 1사 1경로당 후원 업무협약 체결
--  김포시, 2023년도 환경 배출업소 점검
--  김포, 우리아이행복돌봄센터 양곡 행복주택점 개소
--  경기도의료원 안성병원, 소아청소년과 야간진료 순항
--  동두천, 조속한 미군 공여지 반환 촉구
--  평택 시민명예감사관 활동 보고회·위촉식 개최
--  포천, 재난대응 안전한국훈련 우수기관 선정
--  의정부, 행안부 공공부문 공간혁신 우수기관 선정
--  파주시, 내년 장애인복지 올해보다 예산 65억 증액 편성
--  최민 경기도의원, 광명 명문고 명문제 참석
--  김포, 구래동 문화의거리 금연구역 지정
--  수원화성 주변 규제 완화… 재개발·재건축 가능해진다
--  안성, 2024년도 생태계보전부담금 반환사업 선정
--  도봉구 아파트 큰 불, 이재민 구호 조치 총력
--  Soccerladuma | Yaya Toure: Why Bafana Are AFCON Favourites
+-  Two killed in Ramechhap bus-bike collision
+-  Altın ufak bir düşüşle başladı! İşte 25 Aralık Pazartesi altın fiyatları
+-  Ağrı İl Kültür ve Turizm Müdür Vekili, 'çocuk sporculara istismar' suçlamasıyla tutuklandı
+-  6 عوامل يجب وضعها في الاعتبار عند تقييم إدارة الشركات
+-  10 أخبار لا تفوتك هذا الصباح.. نتائج ترشيح كلية الملك خالد العسكرية وشروط استخدام حافلات النقل العام
+-  Faktencheck: Wie viel Eiweiß ist gesund?
+-  Bu Hafta (25-29 Aralık) Halka Arz Var Mı? Yılın Son Haftasında Halka Arz Olacak Şirketler
+-  Sağlık Bakanlığı'nda Gece Yarısı Operasyonu
+-  Jopa aavemaisen hiljaista, kertoo poliisi joulunvietosta
+-  Jopa aavemaisen hiljaista, kertoo poliisi joulunvietosta
+-  Anthony Albanese: Touching way PM spent Christmas Day - as he shares a powerful message for millions of Australians 'doing it tough'
+-  Loto de Noël de la FDJ. Plus d'un million de grilles gagnantes : les résultats du tirage
+-  Мантуров рассказал о росте производства автомобилей в 2023 году
+-  Dzeko'dan G.Saray ve Icardi'ye Şok Yanıt
+-  Sri Lanka to observe two minutes silence to remember tsunami victims
+-  Christmas Holidays: Ragunan Zoo Sees Increase in Visitors Compared to Last Year
+-  ยังรอด! ‘บุ้ง-ตะวัน’ ศาลเลื่อนอ่านคำสั่งถอนประกัน เป็น 26 ม.ค. 67
+-  Милан завършва 2023 година с антирекорд
+-  Pour Noël, quatre jours d'animations au château de Coat-an-Noz, à Belle-Isle-en-Terre
+-  Deň blbec pre Neapol. Nielenže prišiel o Slováka Lobotku, tréner musel cestovať zo zápasu na štedrú večeru taxíkom
+-  В Байкальской рифтовой зоне произошла серия землетрясений
+-  Menag Janjikan Tunjangan Inpassing Akan Cair untuk 98.972 Guru Madrasah Non-ASN, Begini Penjelasannya
+-  Проживающие в Грузии католики отмечают Рождество Спасителя
+-  부동산경영학회, 송석준 의원과 국회 학술 세미나 개최
+-  Fighter: Hrithik Roshan और Deepika Padukone स्टारर 'फाइटर' का नया पोस्टर हुआ जारी, 25 जनवरी को सिनेमाघरों में दस्तक देगी यह एरियल एक्शन से भरी फिल्म (View Poster)
+-  Vuoden täyttävä Hämeen poliisikoira Bono tekee jo täysiä työpäiviä ja tiskaa lautaset kotona – "Siitä taitaa tulla aika iso kaveri"
+-  Christmas 2023: Alia Bhatt Shares Happy Pics With Ranbir Kapoor, Soni Razdan, Ayan Mukerji and Family From Xmas Celebration (See Post)
+-  打鼓嶺堆填區男子被機器夾傷 昏迷送院搶救
+-  چوہدری شجاعت کے صاحبزادوں نے پھوپھیوں کی گرفتاری کے لیے پولیس بھیجی، مونس الٰہی
+-  الأمطار تضرب موعداً جديداً مع العراقيين نهاية الاسبوع
+-  Hamas, raid sul campo profughi di Al-Maghazi: almeno 68 morti
+-  TRANSFER HABERİ - Avrupa devleri derbide Fenerbahçe'nin yıldızını izledi!
+-  Κουρμπέλης: «Ο Ολυμπιακός έχει στόχο να χτυπήσει την πόρτα της Τράμπζονσπορ», σύμφωνα με τους Τούρκους
+-  Sérvia frustra tentativa de "revolução colorida"
+-  Earthquake In China: चीन में भूकंप से मरने वालों की संख्या बढ़कर हुई 149, दो लोग अब भी लापता
+-  พระเอกดัง ยิ่งฮอต! หลังพรหมลิขิตจบ คิวยาวถึงปีหน้า เผยโอกาสรีเทิร์นรัก อดีตแฟนนักร้อง
+-  IP advierte tener cautela ante mejora en economía
+-  13 Yaşındaki Çocuk Arkadaşını Bıçakladı
+-  Cenazeye giderken dereye savrulan otomobildeki karı- koca hayatını kaybetti
+-  Konyaspor maçında Galatasaray'dan 2 oyuncu yok
+-  Adana'da kayıp olarak aranan Mustafa Hakkulu'nun dere yatağında tabancayla vurulmuş cansız bedeni bulundu
+-  Ankara'da 'selam alıp verme' kavgası: 5 yaralı
+-  Doğu Anadolu kara teslim: Yollar kapandı, çok sayıda kaza meydana geldi
+-  Meyve bıçağıyla cinayet! Katil: 16 Maktul: 17 yaşında!
+-  Медведев высказался о декларации ЕС по гарантиям Украине
+-  Amasya'da yolcu otobüsü çamura saplandı: 6 yaralı
+-  देश की खबरें | कोविड-19 : भारत में 628 नए मामले, उपचाराधीन मरीजों की संख्या बढ़कर 4,054 हुई
+-  Derbi bitti, yankıları sürüyor! Hem Fenerbahçe'ye hem Galatasaray'a demediklerini bırakmadılar "Bunlar mı şampiyon şimdi?"
+-  Líder da Jihad Islâmica está no Egito em missão diplomática
+-  VIDEO Luka Dončić iznenadio suigrače za Božić, darivao ih je Mercedesima
