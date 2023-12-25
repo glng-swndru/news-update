@@ -1,51 +1,11 @@
 # Latest News
--  Tailandia anuncia grandes inversiones japonesas para fabricar vehículos eléctricos
--  El índice japonés Nikkei termina al alza por las perspectivas de recorte de tipos en EEUU
--  Alışveriş merkezinde korkutan yangın! Çok sayıda ekip sevk edildi
--  La strage di Natale a Gaza
--  İzmir’i bekleyen büyük tehlike! Önümüzde iki seçenek var
--  Χρήστος Μάστορας: «Βασίλη καψούρεψέ τους όλους εκεί στον παράδεισο»
--  خلال 10 أيام.. صراع سعودي على ضم نجم ريال مدريد
--  Qurban Qurbanov Azərbaycan çempionatlarında 500-cü oyununu keçirdi
--  Oyuncu Yağmur Tanrısevsin'e futbolcu sevgili: Galatasaraylı Barış Alper Yılmaz ile aşk yaşıyor
--  Usung Danny Pomanto atau Adnan Purichta Ichsan di Pilgub Sulsel? PDIP Tegaskan Utamakan Kader
--  Hunderte Kilometer Umweg - 6-Jähriger von Airline-Mitarbeitern alleine in falschen Flieger gesetzt
--  المهندس الزراعي عبدالقادر السميطي يقوم بزيارة ميدانية لشركة جنة سيدز لإنتاج البذور والحبوب في بئر فضل
--  NAJNOVIJA PROGNOZA ZA NOVU GODINU! Prvi čovek RHMZ objavio kakvo nas vreme čeka za doček
--  Ispecite krumpire na ovaj način i sve ćete oduševiti! Ova tehnika jamči hrskavost i najbolji okus. Pogledajte, lako je...
--  Birleşik Kamu İş açıkladı: “Açık sınırı asgari ücretten 5 bin lira daha fazla”
--  Петербургские музеи и зоопарк смогут посещать бесплатно участники СВО и их семьи
--  السعودية خطتها الكبرى لتطوير مطاراتها تنافس عالمياً بمجال النقل والشحن الجوي
--  Самые долгие морозы за 72 года обрушились на Китай
--  “野球しようぜ”大谷選手寄贈のグローブ 岐阜 羽島の小学校に
--  Do People Really Gain Weight During The Holidays Or Is That B.S.?
--  The Best And Wildest Reality TV Show Moments Of 2023
--  26 Highly Effective Hair Products With Incredible Before And After Photos
--  Ολυμπιακός: Το παράδοξο με Αγκιμπού και Μαντί Καμαρά που βγάζει κερδισμένο τον Ολυμπιακό
--  Foreign office gives update on British woman missing after tour boat sinks in Thailand
--  Kétchup en la limpieza: así eliminarás para siempre las manchas de oxido, los malos olores o los residuos en las sartenes
--  Aldatıcı ve yanıltıcı reklamlara dikkat! Yılbaşı alışverişinde mağduriyetten korunmanın yolları
--  Vučić jučer tvrdio da je na protestima u Beogradu bilo 2.490 ljudi, ali videosnimci dronom višestruko ga demantiraju
--  Латвия передала Украине 271 автомобиль, конфискованный у пьяных водителей
--  Banka çalışanlarından sendikaya 'geçinemiyoruz' çığlığı. İstedikleri rakamı açıkladılar
--  “Final”ın dəstəyi ilə “Bilim hər yerdə” layihəsinə start verilib
--  2023'te yoksulluk sınırı 20 bin 713 lira arttı
--  ‘Mati nanti pun seorang diri dalam liang lahad’
--  بمشاركة قطرية أمريكية.. الجزيرة تكشف تفاصيل مقترح المخابرات المصرية لإنهاء الحرب في غزة.. "حماس لم ترفض"
--  לחיי השנה החדשה: חגיגות יין בטייסטינג רום
--  26 יישובים בצפון קיבלו הוראה לפרק את כיתות הכוננות: "כשל מוחלט בשיקול הדעת"
--  אישום: גבר תלש חלק מאוזנו של שכנו - בגלל ויכוח על אינטרקום
--  Wetterdienst warnt weiter vor Dauerregen
--  JK Nyatakan Dukung Anies, PDIP Respons Begini
--  Amira Pocher kassiert Abfuhr von Ex Oliver zu Weihnachten
--  DAJ SAD DINAMIT! MIKI, GURAJ JAČE! Ovako su Zelenović i Aleksić huškali masu ispred Skupštine grada! Strašne scene nasilja (VIDEO)
--  Şehit Piyade Uzman Onbaşı İsmail Yazıcı'nın son sözleri: "Ben dönmeye değil, ölmeye gidiyorum"
--  Mission: Fun! MoD Pavilion at 'Russia' Expo Ready for Action-Packed New Year
--  Weniger Arbeitstage 2024: Feiertage fallen auf Werktage – Überraschung folgt 2025
--  نائب المنسق العام اليوسفي يتفقد الفصول الدراسية بمنطقة سيحان بابين
--  Стало известно о проблемах с продлением водительских прав у россиян
--  Corona-Zahlen im Landkreis Gotha aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Schmalkalden-Meiningen aktuell: Aktuelle Daten zum Coronavirus
--  ‘독일 언론은 김민재 싫어하나?’ 전반기 최고의 활약에도 또 낮은 평점→‘뒤에서 5번째’
--  Preview Christmas Day, Suns – Mavericks (4h30) : Luka Doncic va t-il à nouveau traumatiser Phoenix ?
--  Le programme de la nuit en NBA : place au Christmas Day, 13h de NBA (et de bouffe) non stop !
+-  Wieża Trynitarska rozbłysła. Zobacz jak pięknie wygląda
+-  Runda jesienna Górnika Łęczna w liczbach
+-  Izraelio ir Palestinos konfliktas: Jungtinių Tautų sekretoriaus perspėjimai
+-  Debiutas. SBU pirmą kartą rodo naują jūrinį droną „Mamai“. Ką jis gali? (Foto)
+-  Bütçe Maratonunda Sıra Oylamada
+-  Techie R Nandhini: తమిళనాడులో టెక్కీ సజీవదహనం.. గొలుసుతో కట్టేసి, బ్లేడుతో కోసి..
+-  Záchranári si nevydýchli ani na Štedrý večer: Namiesto kapustnice ratovali ženu v Tatrách!
+-  Monday Morning Meme Madness - Christmas Edition
+-  Jennifer Lawrence ei suostunut laihduttamaan Nälkäpeli-elokuvaan
+-  Miloš Jovanović: Građani imaju puno pravo na otpor
