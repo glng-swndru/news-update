@@ -1,51 +1,51 @@
 # Latest News
--  Sport | Not so merry: PSL club sack coach on Christmas Day
--  كرت شخصي لبوتين في مزاد علني
--  زيوت عطرية طبيعية للوقاية من التهابات الجهاز التنفسي
--  حزب الله ينعي 2 من مقاتليه
--  Русия удължи забраната за влизане на камиони от ЕС и от три страни
--  פרסום ראשון: נסלי ברדה בזוגיות חדשה חמישה חודשים אחרי הפרידה
--  כוכב "הכתר" חושף: זו הסיבה שאני והנסיך הארי כבר לא בקשר
--  תיק נתניהו: השופטים הודיעו על תוספת יום דיונים
--  צרות בצרורות: מיגל ויטור יחמיץ את שני המשחקים הקרובים של באר שבע
--  Disponible gratuitement en streaming, ce film animé est parfait pour un visionnage en famille
--  „Tatort“ am 2. Weihnachtstag: ARD-Zuschauer erwartet das Grauen
--  Хонобод микро ГЕС фойдаланишга топширилди.
--  Ўзбекистон президенти Россияга жўнаб кетди.
--  Болалар омбудсмани Қашқадарёда жинсий қулликда сақланган 14 ёшли қиз билан учрашди.
--  Veriaci si pripomínajú narodenie Ježiša Krista, modlia sa za porozumenie a pokoj vo svete
--  خاص : خارطة المنطقة ما بعد طوفان الأقصى.. "الكانتون الدرزي" نموذجاً؟
--  Two Men Arrested After Banksy Artwork Stolen From London Road Junction
--  أمانة العاصمة المقدسة تُعيد تأهيل وصيانة ممشى أم المؤمنين زينب الهلالية
--  محذّرة من ضربات روسية.. إعلان حالة التأهب الجوي بجميع أنحاء أوكرانيا
--  "إسرائيل" تُعلّق أنشطتها العسكرية مؤقتًا في حي وسط غزة
--  Antalya jandarmasından 'çukur çetesi'ne operasyon: 48 gözaltı
--  Kassam Tugayları'nın öldürdüğü asker sayısının İsrail'den farklı olmasının nedeni belli oldu!
--  Fransa'da polisin bir genci aracıyla çarparak öldürmesinin ardından şiddet olayları sürüyor
--  أمانة جدة تصادر أكثر من 275 ألفًا من منتجات التبغ المخالفة
--  DEM Partililer konuşurken Meclis salonundan ayrılan MHP Lideri Bahçeli'den CHP'ye tepki
--  الاتحاد يُريد إنقاذ صورته أمام كبار دوري روشن بالفوز على النصر!
--  Bergomi: "Il Milan ha investito per essere offensivo, ha i giocatori. Ma è stato sbagliato qualcosa"
--  Ian心水│「八心之威」製造驚喜
--  В Архангельске горело историческое здание на Новгородском проспекте
--  Tile Mate Essentials Bluetooth smart trackers are selling at their cheapest on Amazon
--  The best-performing ETFs of 2023
--  A cuatro patas: así pasó la Nochebuena alguna influencer
--  Poslednja akcija dobrovoljnog davanja krvi u Zaječaru za ovu godinu
--  В Белостоке прошла акция солидарности с белорусскими политзаключенными
--  Московский портал потребителя опубликовал советы по выбору новогодних подарков
--  輔選林宜瑾 蘇貞昌：明年這一戰拚過去 台灣就會百年久遠
--  IRCTC Nepal Tour Package: नवीन वर्षात नेपाळला भेट देण्यासाठी आयआरसीटीसीने आणले खास टूर पॅकेज; मुंबईवरून होणार सुरु, जाणून घ्या सविस्तर
--  Cardi B videóban mutatta meg feldíszített otthonát, Disneyland labdába sem rúghat a rapper nappalija mellett
--  Собянин: в Москве реализовали более тысячи идей для улучшения уличного движения
--  安西心水│「魅力一丁」強配破悶局
--  Kailash Vijayvargiya: মধ্যপ্রদেশে মন্ত্রী হিসেবে শপথ কৈলাশ বিজয়বর্গীর
--  "الأمن البيئي": غرامة صيد المها العربي 90 ألف ريال
--  Oroscopo Paolo Fox di domani per Ariete, Toro, Gemelli, Cancro, Leone e Vergine | Martedì 26 dicembre 2023
--  المفوضية: إعلان النتائج النهائية بعد الانتهاء من الطعون بها
--  Три школы в Петрозаводске полностью закрыли на карантин
--  Papst geisselt Abtreibungen als «Massaker»
--  Ученые из Ставрополя изучают проблему вечернего переедания у девушек
--  ВС России эвакуировали с поля боя брошенную с ранениями военнослужащую ВСУ
--  Oroscopo Paolo Fox di domani per Bilancia, Scorpione, Sagittario, Capricorno, Acquario e Pesci | Martedì 26 dicembre 2023
--  چاہت فتح علی خان کا لاہور سے الیکشن لڑنے کااعلان، کاغذات نامزدگی جمع کرادیے
+-  Ceyran Rəhimova AzTV-dən buna görə ayrıldı
+-  البطاينة: الشباب المستفيد الأول من مشروع التحديث السياسي.. فيديو وصور
+-  Litentry Expands Decentralized Identity into the Bitcoin Ecosystem
+-  Украина получила «ключ» к российской дальнобойной авиации
+-  Aktivnosti KPZ Zenica povodom Božića
+-  ‘It’s so sinister’ say The Santa Clause fans as they spot hidden detail in the background of classic Christmas movie
+-  Relawan Prabowo-Gibran Ditembak di Madura, TKN: Kader Jangan Ambil Tindakan Sepihak!
+-  الكيان الإسرائيلي يعلن ارتفاع حصيلة قتلاه إلى 489 عسكريا.
+-  خبراء قانونيون يطالبون بإنشاء محكمة دولية لملاحقة المتورطين بجرائم الإبادة في غزة
+-  في اليوم الـ80 من العدوان : تجدد غارات العدو الإسرائيلي على مناطق وسط وجنوب غزة.
+-  مراسل وال : اعتماد قلعة جالو موقعا للتراث الاسلامي بليبيا .
+-  أكثر من مليون و39 ألف طالب يُؤدّون الاِمتحانات النِّهائية للفصل الأول والفترة الأولى لِلشهادات العامّة اليوم الاثنين .
+-  منظمة هيومن رايتس ووتش تقول بأن فيسبوك وإنستغرام وواتساب تمنع المشاركات الداعمة لفلسطين
+-  الصين تطلق أربعة أقمار اصطناعية للأرصاد الجوية
+-  روسيا تعلن تمديد حظر دخول الشاحنات من الاتحاد الأوروبي والنرويج وبريطانيا وأوكرانيا إلى أراضيها
+-  العراق ونيجيريا و الكونغو تؤكد التزامها تجاه تحالف أوبك+ بشأن مستويات الإنتاج
+-  مصرف ليبيا المركزي يناقش اعتماد الموازنة التقديرية للعام 2024 .
+-  دعوة أممية لتخصيص محكمة دولية بشأن الحرب على غزة
+-  الجزائر تتسلم مقعد الإمارات كممثل للمجموعة العربية في مجلس الأمن العام المقبل
+-  عضو البرلمان الأوروبي: الإبادة الجماعية لأهالي غزة سببها الدعم الأمريكي للنظام الإرهابي الصهيوني
+-  وزارة الداخلية: القبض على شخص من ذوي السوابق وبحوزته كمية من المخدرات وسلاح ناري وقنابل يدوية
+-  بدء الامتحانات النهائية للفصل الدراسي الأول والفترة الأولى للشهادات العامة .
+-  (المقريف) يتابع مع منسق قطاع التعليم بالمنطقة الشرقية سير العملية التعليمية
+-  일본, 가리비 中 수출 막히자 한국 시장 개척 나선다
+-  UOL NO VERÃO
+-  АСЖУ нагородила українських ветеранів на Invictus Games спеціальною відзнакою Незламний дух України
+-  Как светът посрещна Рождество Христово
+-  Breaking Barriers: The Inclusive Potential of Credit Facilities in Tech
+-  Instituti i Mjekësisë Ligjore: Distancohemi nga të gjitha informatat jozyrtare për autopsinë e Gjorçevskës dhe Zhezovskit
+-  [내일 날씨] 전국 한낮 영상권 회복…출근 빙판길 주의
+-  بعد أشهر على زواجها.. هكذا احتفلت الإعلامية جويس عقيقي بالميلاد (صورة)
+-  Boçvarski: Investime më të mëdha kapitale këtë vit, janë realizuar projekte në vlerë prej 540 milionë euro
+-  Milivojević za Betu: Nerede su izazvali huligani iz regrutnog centra Vlade Srbije
+-  Millions Of Americans Celebrate Christmas
+-  Adiós a pagar los peajes en 2024: estos son los coches que se libran de hacerlo
+-  Residents of tsunami rehabilitation colonies in Nagapattinam suffer due to poor civic amenities
+-  يوم الثلاثاء.. "وجه السعد" على النصر في دوري روشن
+-  Birleşik Kamu-İş: Açlık sınırı 16 bin 483 lira
+-  Pakar IT Sebut Aturan Pedoman AI Masih Umum: Agak Sulit Mengaturnya
+-  Дома у студента, устроившего массовую стрельбу в Праге, нашли взрывчатку
+-  Хари Кейн поиска всичко през 2024 година
+-  طقس : أجواء تميل للاستقرار على أعلب مناطق البلاد .
+-  بعد أزمة مشاركته في موسم الرياض.. بيومي فؤاد يكشف عن جنسية الدولة التي حصل عليها
+-  साउथ अफ्रीका रोहित शर्मा के बयान से हिला, टेस्ट सीरीज से पहले बड़ा दावा
+-  นายกฯ ห่วง น้ำท่วมใต้สั่งปภ.เร่งช่วยเหลือ
+-  الأرثوذكسي يظفر بلقب دوري كرة الطاولة
+-  Bebeğe cinsel istismarda bulunup öldüren sanığa üst sınırdan hapis cezası
+-  Mengenal Fitur iCloud Private Relay
+-  ‘되는 일이 없다’... 맨유, 덜 익은 닭고기 제공→식품 위생점수 최저점 기록
+-  Byli wagnerowcy sieją postrach w Rosji. Prawie 200 spraw karnych
