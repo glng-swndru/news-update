@@ -1,11 +1,11 @@
 # Latest News
--  금융 당국 ELS 조사에 벌벌 떠는 시중은행들
--  동대문구, 주거 취약계층 14가구 집수리 완료
--  Aquaman 2 Is Underperforming At The Box Office, And Fans Wonder Why The Marvels Took So Much More Flack Than The New DC Movie
--  Campeonato Inglês terá primeiro árbitro preto na história desde 2008
--  На Украине снимут отсрочку по мобилизации для части инвалидов, пишут СМИ
--  Luai’s huge announcement amid swirling rumours over NRL future
--  EastEnders fans in shock as Christmas killer and victim revealed
--  Recalentado ‘enfría’ a CDMX: Activan alerta en 6 alcaldías por bajas temperaturas
--  Dragićević: Ovo je timska nagrada
--  UMRO POZNATI GLUMAC Izgubio bitku protiv opake bolesti, u Srbiji je poznat po ovoj igrici
+-  서울의 해맞이 명소 17곳에서 신년 행사 ... 일출 오전 7시47분경 예정
+-  봉화군, 양수발전소 유치 범군민 결의대회 열어…막바지 총력전
+-  진천군, 2023년 제3회 추경예산 7천343억 원 확정
+-  충주시, ‘음식물쓰레기 종량제봉투(칩) 판매가격 조정’
+-  Josef de Souza, Süper Lig'e dönüyor! Sosyal medya hesabından duyurdu!
+-  Körfez krizi bölgeye yayıldı: Umman Denizi'ne savaş gemileri konuşlandırıldı
+-  Şehidimizin naaşı göz yaşlarıyla memleketi Sinop'a getirildi
+-  Şehidimiz Uzman Çavuş Mehmet Serinkan'ın naaşı memleketi Denizli'ye getirildi
+-  Cosa fare durante le vacanze di Natale: tante attività da condividere
+-  Cosa fare durante le vacanze di Natale: tante attività da condividere
