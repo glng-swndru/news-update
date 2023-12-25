@@ -1,51 +1,51 @@
 # Latest News
--  Antalya’da boş inşaatta tanınmayacak halde bir ceset bulundu
--  Isparta'da 2 çocuk arasında bıçaklı kavga: 1 ağır yaralı
--  Yılbaşı ile Noel arasındaki fark nedir?
--  Alırken dikkat! Hayvan yemi olarak satılan Çin Kestanesi nasıl ayırt edilir?
--  Göztepe fırsat tepti! Ligde 3. sırada kaldı
--  Merkez Bankası yeni endeksleri yayınlandı
--  Yoğun kar yağışı nedeniyle Artvin'in 5 ilçesinde eğitime ara verildi
--  Pınar Karşıyaka kazanmaya devam ediyor! Üst üste 8. galibiyet
--  Genelkurmay Başkanı Gürak'tan kritik görüşme: Suudi mevkidaşını Genelkurmay karargahında kabul etti
--  Uyuşturucu kullandıkları anları sosyal medyada paylaşan 2 zanlı yakalandı
--  Fitne yuvası "Ekşi Sözlük"e kilit vuruldu!
--  प्रभु क्यापिटल र रिसेन्ट एण्ड रिदम ट्राभल्सबीच सम्झौता
--  Rebecca Welch postala prva žena koja je sudila Premier ligu, Howard Webb je oduševljen
--  أميركية تلد طفلتين توأمين من رحمين مختلفين
--  قطر: ريع تذاكر فعاليات كأس آسيا 2023 لصالح غزة
--  Ezekkel a művészeti diplomákkal lehet a legtöbbet és a legkevesebbet keresni
--  Australia skipper Pat Cummins backs Khawaja after ICC rejects his bid to display “Dove” logo
--  Таджикистан и Казахстан договорились о сотруднчестве в сфере «электронного правительства»
--  Latvijas bagātākie cilvēki šogad – TOP 10
--  Интензивен трафик на "Дунав мост"
--  Dating in Berlin: "Unverbindlich, schwierig, aber auch chancenreich"
--  EPL: Something drastically wrong – Alan Shearer slams Man Utd duo
--  رحلة ليلية لرصد حيوانات الكوالا الأسترالية
--  在佛山做第三代试管婴儿要多少钱呢?
--  妇科炎症会影响怀孕吗
--  济南第三代试管婴儿多少钱?
--  妇科炎症会导致月经推迟吗
--  妇科炎症怎么办才能彻底消除
--  음성생활체육공원·반다비 국민체육센터 준공
--  충주공고 공무원 배출 산실 `자리매김'
--  이상민 충주소방서장 명예로운 퇴임
--  예성드림장학회 장학금 전달
--  충주종합사회복지관 안전복지 강화 맞손
--  충주시 교육여건 개선 `박차'
--  느린학습자 평생교육 지원 `머리맞대'
--  석회석산업 탄소중립 포럼
--  단양군 먹는물 수질개선
--  중부3군 내년 예산 976억 규모 확정
--  제천·단양 현안 사업비 2088억 반영
--  女人多吃藕的四大好处是什么 莲藕的功效和作用
--  아열대스마트농장 `문 활짝'
--  تقرير: المغرب سيكون من الدول الرائدة في إنتاج الهيدروجين الأخضر في 2030
--  Borsa İstanbul'da yatırımcı sayısı 87 bin 327 kişi azaldı! Küçük yatırımcı satıyor, yabancı alıyor!
--  Ўзбекистонда оилавий низоларни кўриш бўйича ихтисослаштирилган «Оила судялари» ташкил этилади.
--  Ўзбекистон салкам 3 млрд долларлик тўқимачилик маҳсулотларини экспорт қилди .
--  Asylanträge: Über eine Million in Europa im Jahr 2023
--  AMSCG: Putevi suvi, vidljivost smanjena
--  「あきたこまちR」危険視する根拠ない情報拡散 県注意呼びかけ
--  UN General Assembly approves $3.59bn as budget for 2024
--  “소득 줄고 빚 부담에”…‘이것’ 갖고있는 20대, 역대 최저…뭐길래
+-  Манджгаладзе: Бидзина Иванишвили – это битый козырь «Грузинской мечты»
+-  Kapstadt: Fünf Highlights der Stadt in Südafrika
+-  TÜİK açıkladı: Aylık ortalama kişi başı kazanç 12 bin 450 TL
+-  Buschmann: Justizminister will Bekenntnis zu Israel bei Einbürgerung in Deutschland
+-  مفتي سلطنة عمان يوجه رسالة إلى اليمنيين كافة
+-  الدعم النفسي لضحايا الحرب
+-  Можем да следим докъде в стигнал Дядо Коледа в реално време онлайн
+-  Βασίλης Καρράς: Έτσι τον αποχαιρέτησε η Άννα Βίσση
+-  El pavo en Navidad: Una tradición que cruzó océanos
+-  Kvíz: "Zas ti to spadlo, asi vítr, ne?" Poznejte vánoční pohádky podle slavné hlášky
+-  ابتكار هوائي محمول يخترق الماء واليابسة
+-  Décès de Mahmoud Triki, diplomate et homme de lettres
+-  Дневен хороскоп за 25 декември: Вашата стабилност е клучна за успехот
+-  Türkiye’ye örnek olan gelenek! 27 yıldır şehit ailesini yalnız bırakmıyorlar
+-  Wilders'ten Erdoğan eleştirisi
+-  Undang-undang anti-Ali Baba hukum rakyat Malaysia sewa lesen kepada warga asing
+-  Mengenal Kota Bethlehem di Palestina, Tempat Kelahiran Yesus yang Tiadakan Perayaan Natal Tahun Ini
+-  Maç bitti tartışmalar devam etti! Dzeko-Icardi gerginliği saha dışına taştı
+-  Евангелическо-баптистская церковь отмечает Рождество Христово
+-  Инстасамка раскрыла действенный способ похудеть на 20 килограммов
+-  Google to Fire 30,000 More Employees as AI Takes Over Ad Sales Job
+-  Ledakan Tungku Smelter PT ITSS Diduga karena Lemahnya K3
+-  Тарасова ответила осудившей ее за оскорбления фигуристов олимпийской чемпионке
+-  Журналистка раскрыла секрет прогресса Алексея Протаса в НХЛ
+-  Руководство ТСЖ элитного жилого комплекса в Москве заподозрили в хищениях
+-  পাঁচ কারণে ‘ডানকি’র চেয়ে এগিয়ে গেল ‘সালার’
+-  Николай Денков: На този светъл ден да преодолеем различията си
+-  Zahl der Arbeitstage sinkt 2024 leicht
+-  KRAPOVIĆ TVRDI DA JE DOSTA BILO PARTIJSKOG ZAPOŠLJAVANJA
+-  Radics Gigi meglepő vallomása a volt párjáról: "Nap mint nap bebizonyítja, hogy jobb apukája nem is lehetne a kislányomnak" - videó
+-  Με Μιλγουόκι Μπακς και αγώνες για το ΝΒΑ οι αθλητικές μεταδόσεις των Χριστουγέννων(25/12)
+-  TRANSFER HABERİ: Galatasaray'da Yusuf Demir şoku! Ocak ayında...
+-  Niederlande-Tipp: Traditionelle Töpferkunst in Tegelen bei Venlo
+-  Почувствуван земјотрес во Скопје, епицентарот во Косово
+-  Main Atal Hoon Song ‘Desh Pehle’ Out: Makers of Pankaj Tripathi-Starrer Drop First Song on 99th Birth Anniversary of Former Prime Minister Atal Bihari Vajpayee (Watch Video)
+-  India vs South Africa 1st Test 2023 Preview: Likely Playing XIs, Key Players, H2H, and Other Things You Need To Know About IND vs SA Boxing Day Cricket Match in Centurion
+-  Zee Real Heroes Awards: `From Meerut To Connaught Place To Savor Ice Cream`, Nitin Gadkari Shares Funny Tale Linked To Delhi-Meerut-Expressway
+-  Пожар на руски атомен контейнеровоз, но е овладян
+-  Лукашенко отправился в Петербург
+-  'Allah'ın elçisiyim' deyip Türk Silahlı Kuvvetleri'ni hedef almıştı: Gözaltına alındı
+-  Роструд напомнил о десятидневных новогодних выходных
+-  Хванаха крадците на елхата от коледната украса на Перник
+-  Can Atalay'ın avukatlarından ikinci kez tahliye başvurusu
+-  제주도의회 '매니페스토 약속대상' 연속 최우수상
+-  Сильный пожар в гипермаркете «Леруа Мерлен» в Петербурге сняли на видео
+-  Галкин поздравил Пугачеву с годовщиной свадьбы
+-  Kapstadts bunte Vielfalt: Das sind die 5 Highlights der Stadt
+-  Afyonkarahisar’da hava durumu
+-  Tak Pernah Pacaran Kelewat Batas, Prinsip Catheez Tuai Pujian
+-  देश की खबरें | गरीब, युवा, महिलाएं और किसान मेरे लिए ‘‘सबसे बड़ी चार जातियां’’ : प्रधानमंत्री
