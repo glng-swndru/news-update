@@ -1,11 +1,11 @@
 # Latest News
--  Insiden Smelter, PT IMIP Klaim Tungku yang Terbakar Masih Layak Pakai: Hanya Perlu Perawatan Rutin
--  Katledilen kedi için hayvanseverler yürüdü
--  SJL: Motociclista sale ileso tras choque con camioneta
--  Wali Kota Gratiskan Depok Open Space Dipakai untuk Pertunjukan
--  'Phố châu Âu' ở Hà Nội đông nghẹt trong đêm Noel
--  Визитку Путина продали с аукциона за 2 миллиона рублей
--  NOW OPEN: Four Seasons Hotel Suzhou Welcomes Guests to a Private Island Oasis in One of the China's Most Engaging Cities
--  엑스피펜, 서울일러스트레이션페어 성료
--  김정택 국민의힘 상록구갑 예비후보, 농장 맞춤형 스마트팜 현장 방문
--  '제30회 화성시 문화상' 수상자 4명 선정
+-  En el ámbito de la salud, las mujeres ganan hasta tres veces menos que los varones
+-  51 años de la tragedia de los Andes: la película histórica que promete conquistar los Oscars
+-  Cuáles son las mejores técnicas para hacer planes para el próximo año
+-  Usados: estos son los autos que podés conseguir por menos de $5 millones
+-  Mansilla arremetió contra el DNU de Milei: "No hubo una medida para el trabajador, ni una"
+-  Impulsan la creación de un feriado provincial en homenaje a Alberdi
+-  Jugador por jugador: ¿quiénes siguen y quiénes se van en Atlético Tucumán?
+-  Después de Navidad: cuáles son las mejores comidas desintoxicantes para limpiar el organismo
+-  Cómo evitar que los cortes de luz arruinen nuestros electrodomésticos
+-  Los talentos tucumanos dominaron los seleccionados nacionales de rugby en 2023
