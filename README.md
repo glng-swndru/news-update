@@ -1,11 +1,11 @@
 # Latest News
--  더보이즈 영훈, 달달한 눈빛
--  Prefiere pasar la Navidad entre rejas antes que solo y pide ser encarcelado
--  المليشيا وبما تمارسه من عنف تلفظ أنفاسها الأخيرة
--  Nach tagelanger Blockade: Flugzeug mit 276 Indern verlässt Frankreich
--  Nytt företag startar i Örnsköldsvik : Birk Arkitektur Fastigheter AB
--  Banorët në Kinë kalojnë Krishtlindjet me mot të pazakontë
--  PF prende estelionatário condenado a 20 anos após “selfie natalina” durante ceia em Mato Grosso
--  'Maintain Asian forest diversity to avoid climate change impact,' suggests new study
--  Researchers develop 'electronic soil' that enhances crop growth
--  Avian influenza has killed millions of seabirds around the world: Antarctica could be next
+-  Jalen Brunson est le “King of New York” : 38 points pour manger les Bucks le jour de Noël !
+-  نتنياهو يمنع رئيس الموساد من حضور اجتماعات حول الأسرى الصهاينة بغزة
+-  Jugadores ecuatorianos celebraron la Navidad con elegancia, pero en familia
+-  "Traum": Paris Hilton taucht mit Phoenix ins Disneyland ein!
+-  Andrés Ricaurte: "Creo en el proyecto de Emelec"
+-  “Trampın qələbəsi buna mane olacaq”
+-  Caso Metástasis: Así Leandro Norero consiguió la libertad de alias Madrid y Cuyuyui
+-  Milhares protestam contra resultado das eleições na Sérvia
+-  Xiaomi aclara su participación en Zunpai en medio de una investigación por robo de propiedad intelectual
+-  Azad Engineering se prepara para debutar en bolsa el 28 de diciembre tras la sobresuscripción de la OPV
