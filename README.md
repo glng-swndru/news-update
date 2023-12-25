@@ -1,11 +1,51 @@
 # Latest News
--  Tässä ovat rallin MM-sarjan ensi kauden ajajat
--  Pope kicks off Christmas celebrations in shadow of war
--  Arun Vijay - Amy Jackson’s ‘Mission Chapter 1’ gets a release date
--  Biltjuv körde på polisen två gånger
--  Devlet memuru olmak isteyenlere müjde: 3 kamu kuruluşuna 1360 personel alınacak!
--  Ajit Pawar Says No Alternative To PM Narendra Modi In 2024
--  UPSC Success Story: From Humble Beginnings To Heights Of Triumph, The Inspiring Journey Of IPS Premsukh Delu
--  میرے مقابل 44امیدوار ہیں،اللہ کو منظور ہوا تو حلقہ 56بھی جیتیں گے اور 57 بھی، شیخ رشید
--  Od seniora vylákal nekresťanské peniaze: Podvodník si prilepšil o takmer pol milióna EUR! Okrádal ho viac ako štyri roky
--  Hitna pomoć za Betu: Na protestu bilo povređenih koji su prevezeni u bolnice
+-  Happy Christmas, Ross-shire Journal readers, contributors and advertisers!
+-  Christmas 2023: Here`s how your favourite Bollywood couples are celebrating
+-  صحافي سعودي: اليمن أمام مسؤولية عظيمة تقع على عاتق هذا الطرف
+-  子どもの自殺データ集約して分析へ 政府方針、これまで各省庁で管理
+-  Минздрав Азербайджана заявляет...
+-  В России расширили программу модернизации здравоохранения в регионах
+-  Baterai LFP Mobil Listrik BYD Ditembus Paku Tidak Terbakar
+-  Правительство выделит 7,5 миллиарда рублей на зарплаты медработникам
+-  TSK'ya dil uzattı! Bakan Yerlikaya duyurdu: Gereği yapıldı
+-  Borsa haftaya düşüşle başladı!
+-  Kocaeli'de feci kaza! Çok sayıda yaralı var
+-  Dünya basınından Fenerbahçe-Galatasaray derbisi manşetleri
+-  Edirne Mevlevihanesi ihya edikecek!
+-  Barajlarda su seviyesi arttı
+-  Timur Tengah Makin Panas, AL Iran Dilengkapi Rudal Canggih Talaieiyeh
+-  Hugo Samir Berharap Bisa Bawa Timnas U-20 Indonesia Lolos ke Piala Dunia U-20 2025 di Cile
+-  Girl Cheated by Youth: ஆசையாக பேசி தனிமையில் நெருக்கம்.. வீடியோ எடுத்து மிரட்டிய இளைஞர்: 26 வயது இளம்பெண் கண்ணீர் புகார்.!
+-  Trabzonspor Başkanı Ertuğrul Doğan parasını TFF'den geri isteyecek
+-  Косачёв: мир имеет право не признать новые границы США на континентальном шельфе
+-  Кузнецова прокомментировала меры господдержки для многодетных семей в 2024 году
+-  Carols, chocolates, 60ins TV: The prison compared to a luxury spa where inmates 'want to spend Christmas'
+-  Захарова: Запад использует технику майданных переворотов в Сербии
+-  Agentlik gündəm olan inəklə bağlı araşdırmalara başladı
+-  «Chez les jeunes catholiques, installer une crèche chez soi a une signification plus religieuse que pour leurs aînés»
+-  Christian Estrosi: «Monsieur le ministre, il y a aussi des usagers des transports publics en dehors de l'Île-de-France !»
+-  «À la crèche, Dieu se dépouille entièrement pour se faire connaître et aimer des hommes»
+-  Pierre Adrian: «Chaque année, à Noël, la question se pose : pourquoi pas se remettre à y croire?»
+-  Jonathan Siksou: «Quand le Conseil constitutionnel veut faire disparaître l'âme du Palais-Royal»
+-  Nord Stream 2, le «serpent de mer» qui a endormi les Européens
+-  My Husband Is a Sucker for My Daughter's Bedtime Antics. And I'm the One Who Pays the Price.
+-  Christine Coulson's New Book Was a Labor of Sticky Notes and Pages on a Wall
+-  I Couldn't Stop Thinking About This Beautiful Slice of Life, One of the Best Movies of the Year
+-  My Husband Is a Sucker for My Daughter's Bedtime Antics. And I'm the One Who Pays the Price.
+-  I Couldn't Stop Thinking About This Beautiful Slice of Life, One of the Best Movies of the Year
+-  Christine Coulson's New Book Was a Labor of Sticky Notes and Pages on a Wall
+-  Рудковская считает, что Валиева в спорте зарабатывает больше, чем другие фигуристки на шоу
+-  What temperature should turkey be when it is cooked?
+-  L'Institut des crypto-actifs a vu le jour à La Défense
+-  Meublés de tourisme : Paris va renforcer les contrôles
+-  Plus de géothermie dans le réseau de chaleur de Fresnes
+-  Une nouvelle voie express entre Roissy et Meaux en 2028
+-  В очереди на заблокированных Польшей КПП стоит около 3400 фур с Украины
+-  Menko PMK Cek Command Center PRJ, Pantau Langsung Lalin Libur Nataru
+-  Ecclestone: Schumacher „steht er für eine eigene Marke“
+-  美科羅拉多州購物中心平安夜爆槍擊 兩幫人火拼致1死3傷
+-  Inga japanska fartyg via Röda havet
+-  Inga japanska fartyg via Röda havet
+-  Ecclestone: Schumacher „steht er für eine eigene Marke“
+-  Ecclestone: Schumacher „steht er für eine eigene Marke“
+-  Манчестер Јунајтед го сака Тимо Вернер
