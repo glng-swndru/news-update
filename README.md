@@ -1,51 +1,51 @@
 # Latest News
--  Murales llevan paz a colonias en Cancún
--  Japonya'dan sert PKK çıkışı: Terör örgütünü ve eylemlerini kınıyoruz ve kınayacağız
--  İzmir'de FETÖ operasyonu: 10'u firari hükümlü 15 kişi tutuklandı
--  Trabzonspor'da evdeki hesap çarşıya uymadı
--  Tavaszias karácsonyunk van: 14 fok is lehet ma
--  เบาะแสมาแล้ว! ชาวเน็ตสงสัย ชี้เป้าคู่รักดาราคู่ไหน จ่อประกาศเลิกกันสิ้นปีนี้?
--  Bénédiction des couples homosexuels : Une fronde s’organise contre le Pape
--  These homes were in the week of Dec. 11 best deals for Los Gatos
--  Ukraine’s air defence destroys 28 out of 31 Russia-launched drones, Kyiv says
--  NewsClick: आरोपी HR हेड ने की सरकारी गवाह बनने की मांग, कहा- मेरे पास अहम सूचना
--  วิกฤตหนัก! ระดับน้ำ "นราธิวาส" เริ่มสูงขึ้น หลายคนติดบนหลังคาบ้าน
--  ศาลจำคุกตลอดชีวิต "เสี่ยแป้ง นาโหนด" กับพวก คดีพยายามฆ่าเจ้าพนักงาน
--  اللواء الزبيدي : الوضع الاقتصادي سيمر بمرحلة صعبة وعلى الجميع التكاتف
--  Hiába csökkent az infláció, a magyarok számára még most jön a neheze
--  ورثة مايكل جاكسون يمنعون مزاداً لأغاني ملك البوب
--  ЦБ определил базовый уровень доходности рублевых вкладов в январе 2024 года в 14,968%
--  News24 | 'Proactive measures will be taken' after 16 people killed in a Nigeria attack
--  Kamyonette başından vurularak öldürüldü, eski ortağı gözaltına alındı
--  Ankara, İstanbul ve İzmir'e Kış Ortasında Bahar Uyarısı
--  7 علامات تدل على تقدمك في السن وأنت بصحة جيدة
--  МЧС обратилось к населению: будьте осторожны
--  Хачатрян подал апелляционную жалобу
--  Celebrate the Holiday Season with TCL: Unwrap the Gift of Unparalleled Entertainment and Elevated Home Comfort
--  Panda Cup Tongxiang Tour: Exploring the Ancient Town
--  Panda Cup Qingtian Tour: Home Away from Home
--  Лыжная база в Улан-Удэ могла загореться из-за неосторожного обращения с огнем
--  מסתבר שאפשר לחיות טוב גם עם הלוקמיה השכיחה ביותר בעולם המערבי
--  אחרי שאיפשרו לפלסטינים לעבוד בבסיסים, בצה"ל מחפשים אחר פרצות המידע שהגיעו לחמאס
--  Trágica madrugada de Nochebuena en Noia: un accidente termina con la vida de un joven en A Barquiña
--  Tera Batteries espera llegar a tratar entre 120 y 150 baterías por día dentro de 5 años
--  El Gobierno quiere ampliar las medidas hipotecarias para llegar a 100.000 familias más
--  OVAJ DEO SRBIJE POGODILO 5 ZEMLJOTRESA! Evo koliki je bio najjači potres
--  В США выставили на торги золотую монету с изображением отрекшегося от трона Эдуарда VIII
--  Suchaktion an Heilig Abend: Kanufahrer kentert bei Nabburg
--  India vs South Africa 1st Test match live streaming: When and where to watch India vs South Africa 1st Test match live?
--  "VREĐAJU MI INTELIGENCIJU!" Duljaj ZAGRMEO zbog stanja u Partizanu: Neke stvari MORAJU DA SE REŠE! Kažu da imam podršku, ali...
--  Antti Raanta tekemässä paluun NHL:ään
--  Fenerbahçe'nin Konferans Ligi kura çekimi ne zaman?
--  Beşiktaş'ta Leonardo Jardim İddiası
--  Самарқандда сайёҳлар ўртача неча куни қолмоқда?.
--  Ўзбекистон ҳудудига нисбатан салқин ва нам ҳаво кириб келади.
--  Türk teknoloji girişiminin mobil oyunu 'Royal Match' dünyada en yüksek geliri elde etti
--  Danas je Božić, blagdan rođenja Isusa Krista
--  В четверг Xiaomi представит свой электромобиль — или, по крайней мере, расскажет о его технологиях
--  El Botànic deja 23.500 millones de gastos fijos a Mazón hasta 2026
--  조희연 "'서울의봄' 단체관람 학교 고발은 교권침해"
--  พ.ร.บ.กู้เงิน โครงการดิจิทัลวอลเล็ต วิษณุ ชี้ ถ้าไม่ผ่านวาระ 1 ต้องยุบสภาฯ
--  ВТБ прогнозирует снижение доли сбережений россиян в токсичных валютах до 7% в 2024 году
--  LIČI NA KROMPIR, ALI NIJE - VLADA USRED BANATA UZGAJA OVU EGZOTIČNU BILJKU: Odlično raste, nije zahtevna, a već ima i STALNE KUPCE
--  Uhapšen policajac i još tri osobe: Osumnjičeni da su učestvovali u...
+-  제로베이스원 장하오 '왕자님 비주얼'
+-  제베원 김태래-성한빈-장하오, 설레는 눈맞춤
+-  스트레이키즈, 무대 꽉 채운 존재감
+-  이찬원, KBS 연예대상 최우수상 트로피 들고 '흐뭇'…"정말 감사"
+-  VI Charytatywny Turniej w Siatkonogę absolutnie rekordowy [zdjęcia]
+-  Borsa İstanbul'da düşüş sürüyor
+-  Türk yapımı oyun Royal Match, Candy Crush'u tahtından ederek zirveye çıktı
+-  Osoby z tymi schorzeniami powinny pić zieloną herbatę. Oto zdrowotne właściwości tego napoju [25.12.23]
+-  Chelsea Unwilling To Let Gallagher Join Tottenham
+-  Kickoff | Yaya Toure list Bafana among AFCON favourites
+-  Yılın son haftasında yoğun veri gündemi
+-  Sri Lanka: Amnestie für mehr als tausend Häftlinge anlässlich des Weihnachtsfestes
+-  (FOTO) Uhapšen i drugi napadač: Pretukli člana Glavnog odbora Narodnog fronta u Zvorniku
+-  Burkina Faso: une attaque repoussée par les forces armées dans la région du Sahel
+-  Search for missing teen ends in tragedy
+-  Search for missing teen ends in tragedy
+-  Prisoner injured in stabbing
+-  Prisoner injured in stabbing
+-  24 декабря в Рязани стартовала акция «Новогодний экспресс»
+-  صحيفة عبرية: ارتفاع نسبة شراء العقارات بإسرائيل خوفا من العنف ضد اليهود في مختلف الدول
+-  "Novi neredi najavljeni za 11 časova, očekuje se blokada Brankovog mosta" Načelnik uprave policije: "Procesuirano 38 osoba, BIĆE JOŠ HAPŠENJA!"
+-  "Novi neredi najavljeni za 11 časova, očekuje se blokada Brankovog mosta" Načelnik uprave policije: "Procesuirano 38 osoba, BIĆE JOŠ HAPŠENJA!"
+-  Ключи от квартир получили дольщики последнего в Волгоградской области долгостроя
+-  CAN2023 : Abdou (Mauritanie), «Le favori du groupe, c'est l'Algérie !»
+-  Подготовлена концепция улучшения надзорной деятельности, заявил Мишустин
+-  На всей территории Украины объявили воздушную тревогу
+-  "IMA IMUNITET" Trampovi advokati traže odbacivanje federalne optužnice koja ga tereti za pokušaj poništavanja izbora 2020.
+-  Daihatsu to suspend operations in January and compensate partners
+-  Karácsonyi legendák, babonák, boszorkányok, manók és jóslás Európa-szerte
+-  Bil Gejts predviđa dešavanja u 2024: Evo koje područje će doživeti najviše promena
+-  Группа ВТБ: 68% жителей ПФО хотят в наступающем году копить и сберегать деньги
+-  В Калининградской области увеличится уровень воды в реках
+-  Bad Santa: Betrunkener Weihnachtsmann kracht bei Geschenke-Fahrt gegen Hauswand
+-  Yaponiya husilərin hücumundan xilas olmaq üçün bu yolu seçdi
+-  6/45 LOTTO RESULT Today, Monday, December 25, 2023
+-  Ünlü şarkıcının 2 yıllık evliliği 10 dakikada bitti
+-  Israel-Hamas War: বইপত্রের পরিবর্তে গাজার স্কুল থেকে উদ্ধার গুলি, বিস্ফোরক, ভিডিয়োয় দাবি ইজরায়েলের
+-  Rise in awareness on flood evacuation in Terengganu, says Fire Dept
+-  Bilionário inglês assume o controle do Manchester United
+-  مجزرة مخيم المغازي.. أب فلسطيني يودع ابنه الشهيد: عريس أهديته لفلسطين
+-  10H-Regel bremst weiter Bayerns Windkraftpotenziale aus
+-  В Пензенской области разбираются с последствиями урагана
+-  FENERBAHÇE TRANSFER HABERLERİ - Genç yıldıza 2 talip çıktı!
+-  Pijani Djed Božićnjak zabio se u kuću, ostao bez vozačke
+-  ‘바이아웃 1,865억’ 재계약에도 이적 가능성…레알-첼시 여전히 영입 야망
+-  प्रधानमन्त्रीले भोली दिउँसो ३ बजे राष्ट्रका नाममा संबोधन गर्ने
+-  Több ezer mikulás vett részt a karácsonyi futáson Madridban
+-  بعد تجديد عقده.. ماذا قدم فتوح مع الزمالك في 7 سنوات؟
+-  BDI: Ziele für Güterverkehr auf Schiene „illusorisch“
+-  제1회 자운지구 주민참여형 농업비점오염 집중관리사업 민관협력 회의
