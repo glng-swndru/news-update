@@ -1,51 +1,11 @@
 # Latest News
--  العالم وتغير المناخ.. 5 أسباب تدعو للتفاؤل
--  เทศบาลเมืองแพร่ จัดโครงการพัฒนาระบบสุขาภิบาลชุมชนฯ
--  연근해어선 대상…내년 1월12일까지 '2024년 수산자원보호 직불금' 신청 접수
--  '서민경제' 경고음…카드 돌려막기 역대 최대치 기록
--  HMM 품은 후 급등락한 하림, 크리스마스 후 주가 향배는?
--  เชียงราย 8 จังหวัดลุ่มน้ำโขง ร่วมประกาศความร่วมมือ
--  [올해의 IT·의·과학 인물] 150년 난제 푼 ‘의사 과학자’ 고규영 KAIST 특훈교수
--  [올해의 문화 인물] 가장 한국적인 서사로 세계인 사로잡은 한강 작가
--  [올해의 스포츠 인물] 오타니·메시와 어깨 나란히 한 ‘페이커’
--  Big Bash League: Perth Scorchers up for the fight of sealing three-peat without captain Ashton Turner
--  สุนิติ ควง กุลวรินทร์ คว้าแชมป์รุ่นอาวุโส ปิดเพาะกาย “หนุ่มกายงาม สาวกล้ามสวย”
--  Karnataka: 'सरकार गहन परीक्षण के बाद उचित निर्णय लेगी', हिजाब विवाद पर बोले गृह मंत्री डॉ. जी परमेश्वर
--  Accenture forecasts Q2 revenue below estimates on muted IT spending
--  Former Japan gov’t no. 2 questioned over political funds scandal: media
--  Tendulkar's tryst with history in South Africa: How Master Blaster achieved mega milestone against Proteas at Centurion
--  Ждем потери. Заявление Зеленского о новом оружии ВСУ вызвало смех в США
--  Aumentó de US$1 millón a 25 millones de dólares la facturación de un campo y explica cuál fue el secreto
--  Heidenreichstein - Für Blackout-Vorsorge: Notstromaggregate an Feuerwehr übergeben
--  নির্বাচন কমিশন নির্বিকার কেন
--  Trump's lawyers press immunity claim before lower court
--  สอยคิวทีมชาติ “นุ้ก-ต๋อง-กร-รมย์” ควงแขนทะลุ 32 คน สนุ้กตรังคัพ
--  Bethlehem, birthplace of Jesus Christ, turns grim on Christmas Eve amid Israel-Hamas war
--  សម្តេចក្រឡាហោម ស ខេង បានជំរុញការអនុវត្តគោលនយោបាយ ភូមិ ឃុំ សង្កាត់មានសុវត្ថិភាព ដើម្បីលើកកម្ពស់ការចូលរួមរបស់ប្រជាពលរដ្ឋ និងបង្ការ ទប់ស្កាត់ និងបង្ក្រាបបទល្មើសនានា
--  Orhan ‘Orry’ Awatramani: I don't see any shame in calling the paps, if I'm looking good, I want to be photographed
--  Half Cooked Medicine in Food: क्रिसमस पर शख्स ने Swiggy से खाना किया ऑर्डर, उसमें मिली आधी पकी हुई दवा
--  Tracing the origins of Christmas traditions worldwide
--  Wheel of Fortune contestant breaks her silence after going viral for 'worst guess ever' and reveals how her biggest fear came true on hit game show
--  Juhi Chawla celebrates 30 years of `Darr`, recalls working with Shah Rukh Khan
--  ചുറ്റുമതിലിനെ ചുറ്റി വിവാദം; ഗ്രൗണ്ടിലേക്കുളള പരമ്പരാഗത വഴി അടയ്ക്കുന്നതിനെതിരെ കായിക പ്രേമികളുടെ പ്രതിഷേധം
--  Filistin için ‘sanatla kayıt’ devam ediyor
--  Bu atölye cesaret istiyor
--  Filistin temasıyla edebiyat festivali
--  Hak ihlalleri ‘4 Saat Ara’da
--  'İnşaata' dönüşüm dopingi
--  'İYİ Parti bunun için sizinle değil'
--  Günlük kiralamanın yüzde 40 geliri turistten
--  İntikam için irademiz tam
--  Asgaride rakam haftası
--  Antalya’ya iki hızlı tren hattı
--  Emeklinin gözü kulağı Meclis'te
--  Futbolcu ve yöneticilere Sporda Şiddet ve Düzensizliğin Önlenmesine Dair Kanun uygulanabilir mi?
--  İstanbul adayı kadrosuyla sahada olacak
--  한동훈 앞 ‘킬러문항’과 ‘한나땡’ 민주당
--  지상파 콘텐츠 판매 1조 돌파…방송시장 매출액 20조 눈앞
--  IDF releases chilling video of massive Hamas tunnel where 5 hostages were found dead
--  إعلام عبري: إسرائيل تناقش إمكانية نفي قادة حماس في إطار الحل لإنهاء حرب غزة
--  Menteri Mahfud MD dan Bahlil Sampaikan Pernyataan Berbeda Soal Investor IKN, Waketum Demokrat Beri Sindiran Menohok
--  ¿Qué tan ricos eran los padres de Kevin McCallister en 'Mi Pobre Angelito'? Esto dicen los expertos
--  Slow day for wide receivers as the Bears beat the Cardinals 27-16
--  बढ्यो घरजग्गा कारोबार, ५ महिनामा १५ अर्ब राजस्व
+-  El papa celebra la misa del gallo con el "corazón" en Belén, donde rugen las armas
+-  FacebookとInstagramでは「親パレスチナ」の投稿が組織的に削除されているとヒューマン・ライツ・ウォッチが報告
+-  Weather Latest Update: తెలంగాణలో పెరుగుతున్న చలి తీవ్రత- ఈ జిల్లాల్లో సింగిల్‌ డిజిట్‌కు పడిపోతున్న ఉష్ణోగ్రతలు
+-  Guppedanta Manasu December 25th Episode:వసుధార, అనుపమలను కాపాడిన అజ్ఙాత వ్యక్తి – రిషి డెడ్ బాడీ హాస్పిటల్లో ఉందని ఫోన్ చేసిన వార్డు బాయ్
+-  Parineeti Chopra calls Raghav Chadha her "Santa" in her latest Instagram post
+-  IND vs SA: 8 सीरीज.. 7 कप्तान.. 31 साल के इतिहास में छप सकता है रोहित का नाम
+-  ¡Enciende la música! Spotify crea playlist para celebrar esta Navidad 2023
+-  दवा का बाप हैं ये सरसों से भी छोटे बीज, कई बड़ी बीमारियों का कर देंगे खात्मा
+-  Sri Sathya Sai Dist.: మడకశిర తహసీల్దార్ ముర్షావలిపై వేటు
+-  NOVOGODIŠNJA ČAROLIJA, PA SNEŽNA KATASTROFA! Evo kakvo je vreme pred nama: Ovog datuma stiže obrt, a sa njim i DEBELI MINUS!
