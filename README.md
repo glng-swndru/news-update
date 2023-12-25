@@ -1,51 +1,51 @@
 # Latest News
--  Sesi bile korku saldı! SİHA'lar vurdu, terör yandaşları kaçıştı
--  Kremlin Sözcüsü: Sırbistan yönetiminin yasal düzeni sağlayacağından şüphemiz yok
--  Karabük'teki 107 köy yolunun 73'ü, kar temizleme çalışmalarıyla yeniden ulaşıma açıldı
--  روما يستفسر عن مدافع فلومينينسي
--  Şehit ve gazi ailelerinden CHP'ye dikkat çeken tepki: İplerini tutanlar müsaade etmez
--  Kentsel dönüşüme işçi engeli | Müteahhitler çalıştıracak eleman bulmakta zorlanıyor
--  News24 | Bloody Christmas Eve in Cape Town as five men stabbed to death in separate incidents
--  #EnFotos Las navidades de los famosos venezolanos
--  Karın bölgesi yağlanma ve sarkma problemlerine mucize çözüm
--  MISLILA SAM DA ME JE PAS UGRIZAO! Skandal na Severininom nastupu, na binu uleteo nepoznati muškarac
--  Kickoff | Man City star responds to Barca & Real Madrid links
--  В Туле открыли распределительную сеть газопровода
--  موعد مباراة ريال مدريد القادمة
--  “너무 걱정돼서 울뻔했다”... 무릎 돌아갈 뻔한 태클→쓰러진 로드리, “커리어 최악의 태클 중 하나”
--  Russia’s Navalny tracked down to ‘Polar Wolf’ prison in the Arctic
--  Underwater Santas celebrate Christmas tradition at Nemesis shipwreck
--  В сборе МЧС в Калининграде принял участие зам губернатора НАО
--  Eskişehirspor'da İbrahim Baş dönemi sona erdi
--  Путин: на российских верфях строят пять фрегатов и восемь корветов
--  انتبه إليها.. علامة خطيرة عند البلع تكشف الإصابة بالسرطان
--  Дед Мороз и Снегурочка оценили выступление гимнасток Серпухова
--  Top 10 Biggest Investments in AI Startups in 2023
--  35 lat temu serial "W labiryncie" skradł serca Polaków. "Woda sodowa uderzyła mi do głowy"
--  Путин заявил, что судостроительная отрасль России находится на подъеме
--  В Кремле оценили вероятность встречи Пашиняна и Алиева на саммите СНГ
--  Fenerbahçe, Süper Kupa mesaisine başladı
--  Kuss auf Wange: Reece Hawkins ist wieder in festen Händen!
--  ضبط متهمين بحيازة 130 طربة حشيش مخدر في الإسكندرية
--  Campanha "Gente é Pra Brilhar" e Prerrogativas realizam juntos pelo terceiro ano consecutivo ações de Natal em todo Brasil
--  مدني جدة يخمد حريقاً في حي قويزة
--  «Хезболла» пригрозила Израилю «настоящим землетрясением»
--  نائب نصر الله مهددا الاحتلال: سنرد الصاع صاعين إذا صعدت إسرائيل عدوانها
--  عضو بمجمع اللغة: الذكاء الاصطناعي يهاجم اللغة العربية بشدة وعلينا التكيف معه
--  خلال لقائه مدير إدارة ليبيا في الخارجية المصرية..النايض يناقش سبل تجاوز الانسداد السياسي
--  San Jose State football: Amid bowl loss, a memorable journey
--  Tužilaštvo sumnjiči uhapšene za dva ozbiljna krivična dela: Privedenim demonstrantima preti i do 12 godina zatvora
--  Σκιαδαρέσης: «Εντυπωσιακή η οργάνωση του Λουτσέσκου, ξεχώρισε ο Βιεϊρίνια»
--  Суд в Москве призвали поместить под стражу мужчину, убившего двух женщин
--  Horror lovers find 'most horrifying short film ever' – it'll 'ruin your Christmas'
--  Türk SİHA'ları, terör destekçilerinin açıklama yaptığı alanın yakınını vurdu
--  Polstoletna obnova gradu Štanjel se približuje koncu
--  Polstoletna obnova gradu Štanjel se približuje koncu
--  Milorad Dodik će za 9. januar potrošiti 1,45 miliona KM
--  Notorni grafiter napao ‘nove‘ Tomaševićeve tramvaje i pritom napravio grešku koja bi ga mogla otkriti
--  Путин подписал закон о независимой оценке технологий
--  Meilleur build Lourd The Finals : arme, spécialisation et gadgets
--  CHP Genel Başkanı Özel: Sayın Bahçeli'nin canı sağ olsun
--  Marché monétaire : BAM rehausse son intervention en cette fin d’année, constate AGR
--  Weihnachten auf Rapa Nui: Kölnerin verliebte sich auf der Osterinsel
--  Eindhoven researches break record for fastest data transfer speed ever
+-  '동상이몽2' 찰스 아내 한고운 "남편 지갑서 못 보던 카드…거짓말 기분 나빠"
+-  الأحد.. حفل توقيع لكتاب «مشروعية حرب أكتوبر في القانون الدولي» بثقافة بورسعيد
+-  Mateo Kovačić još jednom je pokazao koliki je vjernik, pogledajte gdje je snimljen za Božić!
+-  Украинская Рада предложила ввести День благодарения Богу
+-  تنبيه مهم من متحدث العاصمة المقدسة حول غرامة إطعام الحمام أو الطيور
+-  الليلة.. افتتاح معرض مراسم الأقصر للرسم والتصوير في مركز الهناجر
+-  Tak polscy siatkarze spędzają święta (ZDJĘCIA)
+-  Нуждающийся в деньгах мальчик нашел два миллиона рублей и вернул их владельцу
+-  Μα, τι είναι τα Χριστούγεννα;
+-  Atchannaidu: ముర్షావలి సస్పెన్షన్ ఆర్డర్‌ను ఉపసంహరించుకోవాలి
+-  В Кремле оценили возможность встречи Алиева и Пашиняна
+-  كاتب إسرائيلي: تحويل مليوني نسمة لنازحين يستوي مع حلم الإبادة لدى نتنياهو
+-  Vienas populiariausių socialinių tinklų sulaukė didžiulio atnaujinimo
+-  Akcija progresivne Vojvodine: Izbore treba poništiti, naši članovi biračkih odbora svedočili su brojnim nepravilnostima
+-  VIDEO. Les images impressionnantes de la salle de basket de Gravelines ravagée par un incendie
+-  «Για πάντα θα τον τραγουδάμε» - «Λύγισαν» οι πίστες για τον Βασίλη Καρρά, το «αντίο» στον «άρχοντα της νύχτας»
+-  NAJVIŠE TRGOVACA I AUTOMEHANIČARA: U Novom Gradu prednjače zaposleni u oblasti prometa i popravke motornih vozila
+-  Número de pacientes famintos nos hospitais de Gaza alarma OMS
+-  "ZAVRŠILI SMO, NISI NORMALNA! OSTAVI ME NA MIRU" Janjuš presekao i odlučio da ostavi Aneli: Neću da mi prilaziš više!
+-  مؤسسة أكشن إيد: الأمهات المرضعات في غزة غير قادرات على إرضاع أطفالهن
+-  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan – vanha Ford Escort palautti mieleen muistot Jyväskylän vuoden 1996 MM-rallista
+-  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan – vanha Ford Escort palautti mieleen muistot Jyväskylän vuoden 1996 MM-rallista
+-  KO JE UZ RUSIJU - BOG GA JE POGLEDAO: Putin potpisao zakon koji će obradovati sve prijateljske zemlje
+-  DODELjENE NAGRADE ANI DOBROTI, ISIDORI KEŠELj I MILICI RADAKOVIĆ: Tri naučnice krče put damama u nauci
+-  Ersin Tatar: Gastronomi alanında elde edilen başarı, ülkeye değer katacak
+-  Ελένη Χατζίδου: Στεναχωριέμαι με την ανθρωποφαγία στην τηλεόραση
+-  Папата се заложи за прекин на војната во Газа и го осуди абортусот
+-  Christmas Wishes for “Peace on Earth” Are Empty Without Ceasefire in Gaza
+-  لهذه الأسباب.. احرص على تناول الموز يوميا
+-  الجيزة تشن حملة بحي الطالبية لمنع التعدي على الطريق العام
+-  محصول الحبوب في روسيا يسجل 142.6 مليون طن في 2023
+-  Байрам кунлари Тошкентда автобуслар қисқартирилган жадвал асосида ҳаракатланади.
+-  Зўравонлик кузатилган оилаларда эр-хотин ярашиш муддатисиз ажратилиши мумкин .
+-  رئيس الوزراء يتابع الموقف التنفيذي لمشروع تنمية وتطوير منطقة شق الثعبان
+-  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan
+-  Kalle Rovanperän yllätyslahja sai Harri-isän silmät kostumaan
+-  Same-sex nativity scene at church ripped as ‘blasphemous’
+-  ХАМАС отказалось от предложения Египта о перемирии в обмен на власть в Газе
+-  CARINICI NA GRADINI PRETRESLI PETOČLANU PORODICU! Otvorili im torbe pa zatekli "plen" vredan VŠE OD 7 MILIONA - šok zaplena (FOTO)
+-  "זו קטסטרופה עצומה": צפו בשריפה שחירבה את אולם הכדורסל
+-  Las hermanas Bogado celebraron navidad en Villarrica
+-  Planinari pronašli tijelo: Bili uvjereni da je riječ o tragediji, ali posrijedi je povijesno otkriće
+-  Zaječar i Knjaževac: Vozili pod dejstvom kokaina i alkohola
+-  القومي للحوكمة يختتم تدريب المرحلة الأولى من مبادرة معا لدمج الأشخاص ذوي الإعاقة
+-  ما يجب تناوله وتجنبه... نظام غذائي خاص بمرضى الصداع النصفي
+-  AP NEWS: ఏపీలో రేపటి నుంచి మున్సిపల్ కార్మికుల సమ్మె
+-  Gəncədə ATS-də yanğın oldu
+-  So oft wären "Kevin - Allein zu Haus"-Einbrecher gestorben!
+-  Nikola Ristić: Radikalizacija protesta ne znači ubacivanje nasilja na proteste
+-  রুপালী বাংলাদেশের লোগো উন্মোচন
