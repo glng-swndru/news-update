@@ -1,11 +1,11 @@
 # Latest News
--  Irán poprel spojitosť s útokmi na lode pri pobreží Jemenu: Ministerstvo zahraničných vecí odmietlo prevziať zodpovednosť
--  Vianoce u Karin Haydu: SAMÝ GÝČ a… TOTO myslí vážne?!
--  KVÍZ o známych vianočných rozprávkach: Vaše deti tu budú mať zrejme navrch
--  “나쁜 XX”... 라모스, AT 마드리드 팀 배지 밟으며 도발→팬들 분노 폭발
--  Anju Shares Secrets Of Her Viral Video, Marriage In Pakistan And India Return - Watch
--  HATAYSPOR BEŞİKTAŞ MAÇI CANLI İZLE! Hatayspor Beşiktaş maçı kaç kaç? İşte 11'ler
--  Rusland hævder at have indtaget sønderbombet by i Ukraine
--  Rusland hævder at have indtaget sønderbombet by i Ukraine
--  Netanyahu on visit to troops in Gaza: ‘war will continue until the end’
--  Aprehenden a más de 500 personas y decomisan 20 armas de fuego
+-  Bernie Ecclestonelta kaunista tekstiä Mika Häkkiselle
+-  Jahrelange Flucht: Rios meistgesuchter Krimineller verhaftet
+-  Netanyahu dice que la presión militar es necesaria para liberar a los rehenes
+-  Pełzającą apokalipsę trudno nam traktować poważnie
+-  دشمن مذہبی، نسلی اور سیاسی کمزوریوں کو استعمال کرکے دراڑیں ڈالنے پر تلے ہیں، آرمی چیف
+-  İYİ Parti'de bir istifa daha! 1 ay önce belediye başkan adayı olarak açıklanmıştı...
+-  Karadeniz’de fırtına uyarısı: Saatteki hızı 75 km’yi bulacak
+-  CHP'li Yücel: Şehit varken Meclis'te mangal partisi yapanlar bize bildiri dayatamaz
+-  La catastrófica predicción meteorológica de Jorge Rey para esta Navidad
+-  Liberaron a 24 detenidos por faltas menores en Nochebuena
