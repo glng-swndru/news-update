@@ -1,51 +1,51 @@
 # Latest News
+-  #BTChristmas Message – Crime down, road fatalities up – Police Commissioner
+-  Yuletide: We Feel Your Pains, Don’t Lose Hope – Labour Party To Nigerians
+-  Dublin: Mann betritt Steak-Restaurant mit Schusswaffe – ein Toter, ein Verletzter
+-  Tamil Nadu: 24-year-old woman killed by jilted lover near Chennai, accused held
+-  Krebskranke Helena (5) aus Leipzig kämpft sich zurück ins Leben
+-  Kwankwaso Holds Special Prayer In Kano Ahead Of Supreme Court Judgment
+-  서동주, 다 가려도 감출 수 없는 가슴골…힙업 라인까지 '아찔 섹시미'
+-  დამხმარე რეპროდუქციული სერვისების გამოყენებისას ინფორმაცია ეროვნულ რეესტრში უნდა აისახოს – კანონპროექტი
+-  Wochenlang verschwunden: Nawalny wieder aufgetaucht
+-  Двадцать сотрудников «Чистого города» в НАО оказались на больничном
+-  „Mi, glas iz naroda“ večeras donosi odluku o glasanju u Beogradu
+-  В Курске медикам передали ключи от новых автомобилей скорой помощи
+-  الجرام تجاوز 2000 جنيه.. هل زاد الإقبال على عيار 14 بعد قفزة الذهب؟
+-  قفز 800 جنيه.. سعر الجنيه الذهب يتخطى 25 ألف جنيه لأول مرة في تاريخه
+-  الجيش التركي يكثف قصفه على مناطق شمال شرق سوريا
+-  Kisah di Sebuah Kuburan Gaza setelah Serangan Israel Menewaskan 100 Orang
+-  Мхитарян остава на "Джузепе Меаца" до лятото на 2025 г.
+-  Javni poziv javnosti: Konsultacije za izradu Programa za unapređenje konkurentnosti privrede za 2024.
+-  جهاز مكافحة الإرهاب بإقليم كردستان العراق: مسيرة مفخخة تستهدف قاعدة التحالف الدولي داخل مطار أربيل الدولي
+-  Tragická dopravná nehoda pri Nitre: Auto skončilo na streche! Vodič (†18) bol zakliesnený vo vnútri
+-  Sviatky pod Poľanou: Počas starodávnych Vianoc jedli ľudia sedem až deväť chodov
+-  Knechtová, Gladiator a Peter Bič Project vzdali poctu Pavlovi Hammelovi novými verziami jeho hitov
+-  Javio se reper nakon čijeg koncerta je potonuo splav: ‘Ništa nije moglo ni naslutiti’
+-  В Рыбинске коммунальщики устроили ловушку для автомобилистов
+-  Северян пригласили поучаствовать в премии «Россия – страна возможностей»
+-  „Sturm der Liebe“: Keine Folge am 2. Weihnachtstag – Wann geht es weiter?
+-  Sobe para 106 número de mortos no ataque a campo de refugiados em Gaza
+-  В Великобритании украинских беженцев стали чаще обманывать с визами
+-  Wochenlang verschwundener Kremlgegner Nawalny wieder aufgetaucht
+-  นักวิเคราะห์ Bloomberg คาด Bitcoin ETF จะอนุมัติภายในมกราคมนี้ หลัง BlackRock แก้ไขรายละเอียดแบบฟอร์ม S-1
+-  KONAČNO PRONAĐEN ALEKSEJ NAVALJNI POSLE 20 DANA POTRAGE! Isplivali detalji - OVDE je lociran zatvoreni kritičar Kremlja
+-  Los trolls libertarios intentan convencer a la gente de que los precios están bajando
+-  [DD 주간브리핑] 김홍일 방통위원장 후보자, 27일 국회 청문회… 여·야 격돌 예고
+-  Na Badnjak pucnjava u restoranu u Dublinu. Mladić ubijen pred obiteljima na večeri
+-  Así fue el emotivo homenaje que Alejandra Rubio le hizo a su abuela: "No lo quería decir"
 -  الدوخة المفاجئة قد تنذر بكارثة صحية.. متى تذهب إلى الطبيب؟
+-  Yılmaz Özdil 12 gün sonra bomba gibi döndü. Türkiye haritasını kimin değiştireceğini açıkladı
 -  Stolzer Papa: Travis Barker feiert Alabamas 18. Geburtstag!
 -  ชงไทยเป็นสมาชิก OECD หวังยกระดับผลสอบ PISA
+-  „Rote Rosen“-Vorschau: Keine Folge am 2. Weihnachtstag – Wann geht es weiter?
+-  Prince Louis 'sports same tartan trousers as Prince George' in photo that 'upset' Harry and Meghan
+-  24 animações especiais de Natal para deixar a festa ainda mais divertida
+-  Interessado em Mastriani, Athletico encaminha empréstimo para o América; confira
+-  Triatleta Luisa Baptista tem "melhora importante" e é transferida ao Hospital das Clínicas de SP
 -  Когда Украина получит F-16?
 -  Неуловимый Яхья Синвар нарушил молчание
--  ΠΑΟΚ: Οι υψηλές πτήσεις του «Δικεφάλου» σε Ελλάδα και Ευρώπη (vids)
--  Кундан кунга “Beeline Uzbekistan” иловасининг фойдаланувчилари сони ортиб бормоқда.
--  Ўзбекистондаги бензин баҳоси жаҳондаги нефт нархига қай даражада боғлиқ?.
--  Gazze'deki yoğun saldırılarla çöken sağlık sistemi 9 binden fazla Filistinlinin ölümüne neden oldu
--  Papa Franciscus, Gazze'de askeri operasyonların durdurulması için çağrı yaptı
--  Burak Kızılhan'dan Galatasaray'a sert cevap! "Yalan operasyonun devamı"
--  CHP MYK toplandı! Tek gündem 12 şehit
--  ΠΑΟΚ: Παντρεύεται ο Σουαλιό Μεϊτέ την εκλεκτή της καρδιάς του
--  Cuerona abrió las piernas por navidad
--  Sky - Bonucci - Roma i discorsi vanno avanti
--  ŽENA GA UHVATILA KAKO GLEDA U ZGODNU KOLEGINICU! Srpski pevač sve priznao - Otkrio šta se desilo kada je došao kući!
--  Joséphine, ange gardien : une ancienne candidate de The Voice Kids joue dans l'épisode de ce lundi
--  Akali Dal Eyes BJP Alliance For 2024 Polls, SAD Delhi President Sets Conditions
--  Fenerbahçe'den Icardi'nin gözünün morarmasıyla ilgili açıklama! ''Penaltı pozisyonuyla alakası yok, Galatasaray ile aynı masaya oturmayacağız!''
--  Razmas 3. kārtas spēle pret čempionu Smitu gaidāma trešdien kā noslēdzošā
--  General Forecast 2024: Nation’s leading Astro-numerologist makes predictions for year
--  پاکستان میں پھر زلزلہ، شدت کتنی تھی؟
--  Baldur’s Gate 3 players narrow down list for new Origin characters
--  "RAT NIJE NI BLIZU KRAJA" Netanjahu: Izrael će u narednim danima proširiti kopnenu ofanzivu na Pojas Gaze
--  Fondo Mivivienda recibe cerca de S/ 3 millones para el Bono del Buen Pagador
--  Lady Louise Windsor looks effortlessly chic in navy coat as she joins cousins Beatrice, Eugenie and Zara at Sandringham
--  Notorni grafiter napao ‘nove‘ Tomaševićeve tramvaje i pritom napravio grešku koja bi ga konačno mogla otkriti!
--  Petro reconoce que el 2023 fue "duro" y llama a luchar para alcanzar la paz
--  الهلال الأحمر الفلسطيني: نتلقى يوميا بلاغات حول وجود شهداء ومصابين في غزة ولا نستطيع الوصول إليهم
--  Cluny. Face aux crises hydriques à répétition, le Clunisois se tourne vers les chercheurs
--  Guinness, KFC et sculpture sur radis : voici les traditions de Noël les plus insolites !
--  [ŽT] „Rusija gali ramiai eiti link Kyjivo.“ Pribloškiantis pareiškimas
--  D-30 suplėšytas į gabalus. Rusų artilerijos laukia tikras košmaras (Foto)
--  Kada iš tiesų gimė Jėzus Kristus? Štai kokias versijas siūlo mokslas
--  [ŽT] Eilinio Peskovo misija nepavyko. „Putinas aklavietėje“
--  Verstappen kart met schoonfamilie, Courtois poseert met kleinkinderen Trump, Wiegman deelt videoboodschap
--  Verstappen kart met schoonfamilie, Courtois poseert met kleinkinderen Trump, Wiegman deelt videoboodschap
--  Gondot okozhat a Dunai áradása a Gemenci-erdő vadállományának
--  İstanbul'da yıkım sırasında bina caddeye çöktü
--  OnePlus 12R 5G specifications leaked ahead of scheduled January 23 launch in India
--  Οι αναλύσεις της Αντιτρομοκρατικής μετά την ανάληψη ευθύνης για τη βόμβα στα ΜΑΤ: «Επικίνδυνη οργάνωση» (vid)
--  Industrie automobile: 2023, l’année de tous les records
--  Süper Kupa maçının biletlerinde yüzde 50 indirim
--  अपना दायरा बढ़ाएगा अकाली दल, सिख आबादी वाले राज्यों में स्थापित करेगी पार्टी यूनिट, सुखबीर सिंह बादल का ऐलान
--  50-vuotislahjasta tuli tärkeä osa Heidi Saarisen joulu­perinnettä
--  President signs Telecom Act, rulemaking to follow for implementation
--  Tonight on Umkhokha: The Curse | The Council threatens MaMzobe but Ndlovu buys her time
--  동자청-동해이씨티, 망상1지구 개발사업시행자 취소 처분 법정 다툼
--  Şike teklifini açıkladı: Bu işten geçimini sağlayanlar var!
--  Budimir prokomentirao topli potez koji je oduševio Španjolce: ‘Da je moja baka u pitanju, i ja bih to očekivao‘
+-  Ampelkrise: Vorzeitiges Aus und Neuwahl? Zeit für Besinnung
+-  Ampelkrise: Vorzeitiges Aus und Neuwahl? Zeit für Besinnung
+-  Paris Hilton treats son Phoenix, one, to 'magical' Christmas outing at Disneyland
+-  WM-Wildcard und Olympia-Chance für ÖTTV-Männerteam
