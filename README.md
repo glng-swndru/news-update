@@ -1,51 +1,51 @@
 # Latest News
--  مدتها 9 أيام .. ثاني إجازة مطولة للطلاب والكوادر التعليمية
--  السجن سنتين وغرامة 100 ألف ريال.. عقوبة التعدي على المرافق العامة
--  Християнин направи дарение от 150 000 лева за доизграждане на джамията в Момчилград
--  ڈکار نہ مار پانا کس طرح آپ کے رشتوں کو متاثر کرتا ہے؟
--  Una Nochebuena empañada por las guerras
--  מחכים לפצועי המלחמה: עדי נגב מצטרפת לליגה לאומית ב' בכדורסל כסאות גלגלים
--  הגולנצ'יק יצא מעזה וגילה שהעסק קרס: "המצב קטסטרופה, המקרר ריק. פניתי לכולם ולא קיבלנו שקל"
--  Salihli'de jandarma uyuşturucu operasyonu: 2 satıcısı tutuklandı
--  İsrail'in 7 ekimden bu yana gözaltına aldığı Filistinli sayısı 4 bin 730 oldu
--  "Bakan Şimşek, yüzde 25 kira zammı sınırının kaldırılacağını açıkladı" iddiasına yalanlama: Manipülasyon içermektedir
--  2023'te 254 milyar dolarlık ihracatın yüzde 60'ı deniz yoluyla yapıldı
--  Müge Anlı canlı yayınında akıl almaz itiraf! Günlerdir kayıp adamın katili en yakın arkadaşı çıktı! "Karımın fotoğrafını görünce
--  „Риба во(н) мрежа“ од Jована Mатевска Aтанасова е добитник на наградата „Пегаз“ за 2023 година
--  جڑانوالہ واقعے کے ذمہ داران کو سزا ہونے تک چین سے نہیں بیٹھیں گے، محسن نقوی
--  Мицкоски најави нови проекти ширум Македонија: Изградба на градинки, локални патишта, училишта, амбуланти, спортски сали во 15 општини…
--  Соглашение ЕАЭС с Ираном о свободной торговле подписано в Санкт-Петербурге
--  Christmas: Biting effects of bad govt policies have dampened hope of most Nigerians – Peter Obi
--  Светослав Иванов с 15 точки, Акуш загуби драматично от Девели
--  Galatasaray Fenerbahçe maçının hakemi Abdulkadir Bitigen kimdir, nereli ve kaç yaşında? Süper Kupa maçının hakemi Abdulkadir Bitigen oldu
--  არ აქვს მნიშვნელობა რომელი მიმართულებიდან იქნება აგრესია, ნატო ვალდებულია იმოქმედოს – ბურჭულაძე ოჩამჩირეზე
--  Galatasaray Fenerbahçe Süper Kupa maçı ne zaman, saat kaçta? Süper Kupa finali Galatasaray Fenerbahçe maçı hangi kanalda, şifresiz mi?
--  Na bronca, senador Wellington afirma que mandou R$ 18 para estrada de Chapada que estão retidos ICMBio
--  Grote reddingsactie in Poederoijen, gebied konikpaarden en Rode Geuzen onder water
--  بريطاني مسلم يبيع قميص محمد صلاح في مزاد بـ 300 ألف دولار لصالح فلسطين
--  CM भजनलाल का Action, अचानक पहुंच गए SMS Hospital; सीटों से नदारद मिले कई कार्मिक
--  총선 D-106일…예비후보 '눈치싸움' 치열
--  재경포항향우회 정기총회 개최…‘포스텍 의과대학 설립’ 퍼포먼스
--  포항사랑실천의집, 포항탈북민연합회에 생필품 전달 '훈훈'
--  봉화군, 민-관 함께 군정 발전 머리 맞대
--  استعدادات لتسهيل إجراءات السفر خلال فترات الإجازة
--  Noch vor Wahlen 2025 - Neue Umfrage-Klatsche! Fast jeder zweite Deutsche glaubt, dass Ampel zerbricht
--  Mixail Qusman İlham Əliyevə məktub ünvanladı
--  مخرج فيلم مخرج "Home Alone 2": ترامب إقتحم الفيلم .. وتعرضنا للتخويف من قبله لكي يشارك فيه
--  ميليسا برايرا: "أتمنى ألا تتجاهلوا الفلســ طينيين في عيد الميلاد .. هذا نفس ما مر به المسيح "
--  وفاء عامر تنضم الى مسلسل " بدون مقابل " الى جانب هاني رمزي
--  بالفيديو- طرح أغنية "إسأل عني" .. من فيلم " الحريفة "
--  ईसाई समुदाय के साथ मेरा बहुत पुराना और आत्मीय नाता रहा है, क्रिसमस कार्यक्रम में बोले प्रधानमंत्री मोदी
--  2023'te yoksulluk sınırı 20 bin 713 lira arttı! Açlık sınırı asgari ücretten beş bin lira fazla
--  Efsanevi aktör Robert De Niro 'Oscar' rekorunu kırmaya çok yakın
--  Key developments of Tajikistan's transport sector in 2023
--  Райан Гослинг записал рождественскую версию песни I'm Just Ken из фильма «Барби»
--  عقل: تعاضد عائلاتنا سبب صمودنا واستمرارنا
--  Veer Bal Diwas के अवसर पर आयोजित कार्यक्रम में शिरकत करेंगे PM Modi
--  Modrić već sve dogovorio s novim klubom? Presudio razgovor s Ronaldom i ogromna ponuda
--  Maharashtra के मंत्री Dhananjay Munde कोरोना वायरस से संक्रमित, Ajit Pawar ने दी जानकारी
--  Prenses Diana'nın elbisesi açık artırmada rekor fiyata satıldı!
--  Tunisie : les élections locales ont été largement boudées par les électeurs
--  FC Schalke 04 – Transfer-News und Gerüchte: Wechsel steht bevor – S04 winkt Geldregen
--  COVID 19 Updates । महाराष्ट्र में सामने आए कोरोना के 50 नए मामले, नौ मामले जेएन.1 उपस्वरूप के
--  श्रमिकों को सम्मान और वंचितों को मान दिलाना हमारी प्राथमिकता – प्रधानमंत्री श्री मोदी
+-  ‘Use 60% Kannada On Signboards Or...’: Bengaluru Civic Body’s Order To Shops Triggers Language Row
+-  شروط وطريقة التقديم على تأشيرة عمالة منزلية عبر "مساند"
+-  أقسى 20 ألمًا يمكن أن يعانيه الإنسان!
+-  استشهاد العشرات.. الاحتلال يكثف عمليات القصف الجوي والبري على وسط غزة
+-  PKK inleri yerle bir ediliyor... Türk SİHA'ları sınır ötesinde böyle vurdu
+-  Fenerbahçe'de Süper Kupa hazırlıkları başladı
+-  İzmir'de doğa yürüyüşü yaparken düşüp bacağını kıran kadını jandarma helikopterle kurtardı
+-  Heybendeki ne?
+-  Vuslatın 750. yılı
+-  Näin hurja liksa – Lauri Markkanen on Suomen ykkönen
+-  Aleksei Navalnyi on löytynyt
+-  ПСС-Банско: Докато туристите почиват и се забавляват, ние бдим за техния живот
+-  Amanece esta Navidad con sensación térmica de 1 grado
+-  ЦБ заявил о росте средней максимальной ставки по вкладам
+-  Благородна инициатива: Магазин, в който всичко е безплатно, отвори врати в монтанско село
+-  Tarkan'ın yılbaşı konserinden alacağı rakam dudak uçuklattı!
+-  Yurt dışı telefonların kullanım süresi 180 güne çıkarılacak
+-  Balkona bırakılan kovadaki közden yangın çıktı; 5 ev kullanılamaz hale geldi
+-  Bajden sa pelenom, seks kao sport: Najblesavije lažne vijesti...
+-  В Москве и области объявили желтый уровень погодной опасности
+-  Abogados e Inteligencia Artificial: una herramienta aún minoritaria, pero de uso inevitable
+-  Papa Francisc cere eliberarea ostaticilor deținuți de Hamas și deplânge „situația umanitară disperată” din Gaza
+-  Gayrimenkul almak isteyenler dikkat! En güvenilir gayrimenkul alma yöntemleri açıklandı!
+-  Pope Francis denounces weapons industry as he makes a Christmas appeal for peace
+-  Μαχαίρια βγήκαν σε νυχτερινό κέντρο των Τρκάλων - Ένας θαμώνας στο νοσοκομείο
+-  Güney Kıbrıs'ta Noel günü ölümlü kaza ve kundaklama!
+-  Modrić je sve dogovorio s novim klubom
+-  Bijelo Polje: Novović i radnici Vodovoda "Bistrica" dobitnici...
+-  ’انتخابات میں عوام کو سرپرائز دیں گے، لیول پلیئنگ فیلڈ ملے یا نہ ملے جو فیلڈ ملی ہے اسی پر کھیلیں گے‘
+-  बहुत हो चुका…अब इजराइल पर बरसेगा हमास, याह्या सिनवार ने किया ऐलान
+-  Purandeshwari: బీజేపీ ప్రజా సంక్షేమానికి కట్టుబడి ఉంది
+-  Durmishi bën homazh tek varri i Mehmet Gegës në 55-vjetorin e demonstratave të vitit 1968
+-  10 tragjeditë famëkeqe të Krishtlindjeve
+-  King Charles III's annual Christmas message from Buckingham Palace to include sustainable touches
+-  Smoke and mirrors: How world leaders from Vladimir Putin, Joseph Stalin and Saddam Hussein 'had body doubles' in bid to avoid danger, confuse the enemy and portray an image of good health
+-  Путин подписал закон о соцгарантиях, полученных до контракта с Росгвардией
+-  AUJOURD’HUI : 25 décembre 1961, l’écrivain Abdoulaye Sadji tire sa révérence
+-  Cherbourg. On fait le point sur la première édition du marché de Noël couvert
+-  Германия — За 2023 год выдано 125 000 виз для воссоединения семьи
+-  EU će uložiti 65 milijuna eura za povećanje projekata čiste tehnologije
+-  Путин отменил льготные визы для некоторых категорий жителей Евросоюза
+-  Rússia acusa Ocidente de querer desestabilizar a situação na Sérvia
+-  Lëvizja BESA mbajti Kuvendin Qendror në Shkup
+-  پرویز خٹک کا ’’بلے‘‘ کے نشان کے حوالے سے اہم انکشاف
+-  Pakistan Embassy in The Hague holds event to mark Christmas celebrations
+-  WWF: Poklon za praznike može biti i simbolično usvajanje ugrožene životinje
+-  Nova blokada: Studenti na raskrsnici Birčaninove i Kneza Miloša
+-  Kjæresteparets videoer har flere millioner visninger: – Jeg lå og sov, og så kom han inn med snøfreser og spylte meg ned
+-  Dera Police foil drug smuggling bid, recover over 51 kg hashish
+-  Kucharski nie powstrzymał się nawet w święta. Wbił szpilkę Lewandowskiemu
