@@ -1,51 +1,51 @@
 # Latest News
+-  세계 2위 해운사 머스크, 홍해 운항 재개 준비…물류대란 소강하나
+-  एमपी में मोहन यादव सरकार का मंत्रिमंडल विस्तार आज, ये नेता बन सकते हैं मंत्री
+-  Bihar : कंस्ट्रक्शन कंपनी के तीन स्टाफ का अपहरण; दो को छोड़ा, एक के लिए नक्सलियों ने की इतने रकम की डिमांड
+-  30 दिसंबर को श्री राम अंतर्राष्ट्रीय हवाई अड्डे का उद्घाटन करेंगे PM मोदी, तैयारियां तेज
+-  UP: अब रेलवे स्टेशनों पर यूटीएस व क्यूआर कोड स्कैन कर बनवाएं टिकट, नहीं लगानी होगी लंबी लाइन
+-  İstanbul'da kuruyemiş yüklü TIR bariyerlere çarptı: Sürücü yaralı
+-  اللجنة المنظمة لدوري شهيد الواجب أنيس معوضه تعلن اليوم موعد لإجراء قرعة الدوري
+-  Kusama Prognose aktuell: Wie geht es beim Kusama weiter?
+-  Preise für Immobilien sinken : Stärkster Rückgang seit 2000
+-  Πανελλήνιες 2024: Βιώσιμες τουριστικές εξειδικεύσεις για τους νέους φοιτητές - Ποιες είναι οι ανερχόμενες τάσεις και οι ευκαιρίες για του πτυχιούχους
+-  Nyawa masih panjang walaupun beberapa kali tenggelam
+-  Sports News | We Really Support Uzzy: Cummins Backs Khawaja on Dove Logo for Gaza Crisis
+-  World News | Netanyahu Tells World in Christmas Message 'we're Facing Monsters'
+-  World News | Death Toll Goes Up to 149 in China's Earthquake
+-  World News | Relax – Having Different Sleeping Arrangements over the Holidays Probably Won't Wreck Your Child's Sleep Routine
+-  Het Woord van vandaag: Raad jij het woord van de dag?
+-  Weerbericht | Het weer biedt een goede reden om lang te tafelen met Kerst
+-  India News | People Offer Mid-night Prayers Across Country on Occasion of Christmas
+-  애플 ‘AI 뉴스 협상료 5000만 달러’ 제안에 미온적인 이유
+-  العمودي والمنهالي يناقشان الاوضاع الصحية بمديرية رماه الصحراوية
+-  Glenn Maxwell’s On-Field Commentary During Melbourne Stars vs Sydney Thunder BBL 2023–24 Match Is Sure To Leave You in Splits! (Watch Viral Video)
+-  यानिका की मेडिकल रिपोर्ट ने बयां की बर्बरता: पिटाई से पूरे शरीर पर घाव, कान से नहीं दे रहा सुनाई, सिर भी जख्मी
+-  Poonam Pandey ने सेक्सी ब्लैक बिकनी पहन गिराई बिजली, एक्ट्रेस की बोल्डनेस ने बढ़ाया सोशल मीडिया का पारा (Watch Video)
+-  Banjir: Wanita hampir lemas dihanyut arus deras semasa dapatkan bantuan
+-  How Patriots’ win over Broncos impacts their first-round draft pick in 2024
+-  Banjir: APM selamatkan enam sekeluarga terperangkap dalam rumah
+-  Atal Bihari Vajpayee Birth Anniversary 2023: PM Narendra Modi, Amit Shah, JP Nadda Remember Former Prime Minister on His Jayanti
+-  Pope’s patriarch observes somber Christmas Eve in Bethlehem
+-  1 killed, 4 inured in shooting in Houston
+-  निकारागुआ जा रहे विमान में क्या कर रहे थे 300 भारतीय?
+-  चीन से निपटने के लिए हिंद-प्रशांत में भी नाटो जैसा संगठन चाहता है अमेरिका
+-  تأكيد على عمق العلاقات الأخوية بين شعبي سورية والسعودية
+-  Paytm Layoffs: नए साल से पहले Paytm ने कर्मचारियों को दिया बड़ा झटका, 1000 से ज्यादा लोगों को नौकरी से निकाला
+-  Adana’dan İstanbul’a, Van’dan Yalova’ya! TOKİ arsaları 24 ilde satışa çıktı: Üstelik KDV ödeme derdiniz de olmayacak
+-  El mar Rojo y la política monetaria, y la difícil relación amor-odio de Europa con el coche chino
+-  مؤتمر سلامة المرضى يستعرض في جلساته اليوم 12 ورقة وبحثًا طبي
+-  Indo-Nepal Border: ऊर्जा निगम की चूक से भारत-नेपाल सीमा पर विद्युतीकरण का काम अटका, जानें वजह
+-  Patriots score two touchdowns in six seconds after Broncos kickoff blunder
+-  ‘รมว.พาณิชย์’ วอนผู้ประกอบการ ปีใหม่อย่าฉวยโอกาสขายตั๋วเครื่องบินแพง
 -  عاجل.. سحب ممطرة ورياح وضباب على الرياض ومعظم مناطق المملكة
 -  شتاء قارص.. "الحصيني" يكشف موعد انتهاء المربعانية وبداية الشبط
+-  Kejohanan Badminton Remaja dan Pahang Tertutup 2023 capai matlamat – Tengku Aidy
 -  Number of Koreans studying in China dwindles 78% from 6 years ago
 -  BNP Paribas, HSBC fined $20.3 mil. for illegal short selling
+-  India News | Punjab: BSF Foils Smuggling Attempt in Amritsar, Arrests 3 Smugglers
+-  JDT ‘bersaing’ untuk layak ke Piala Dunia Kelab 2025
+-  Meteoroloji'den o bölgeye uyarı: İkisi birden geliyor
+-  Salman Khan Dances and Enjoys at Brother Arbaaz Khan's Wedding, See Viral Video Here!
+-  My Demon Ep 9-10 review: Song Kang & Kim Yoo Jung's romance pauses for a week as fans unmask the villain
 -  First PHOTOS: Arbaaz Khan and Sshura Khan tie the knot in an intimate ceremony in Mumbai
--  Sandeep Reddy Vanga opens up about Parineeti Chopra exiting Animal; says, “I didn’t see Geetanjali in her”
--  Spikar på vägen i Stockholm
--  העברות בעולם, 25.12: פ.ס.ז' מצאה חיזוק, גם ליברפול וארסנל מסמנות
--  "אנחנו האויב של עצמנו": פוצ'טינו סוער אחרי התבזות של צ'לסי
--  "ננטש" על ידי הקבוצה: הנסיעה הביזארית של מצארי מרומא לנאפולי
--  Rysk nationalist kandiderar från fängelse
--  Rysk nationalist kandiderar från fängelse
--  Ponguleti: క్రిస్మస్ సోదరులకు శుభాకాంక్షలు తెలిపిన మంత్రి పొంగులేటి
--  Tarot Card Horoscope: ਮੇਖ, ਕਰਕ, ਤੁਲਾ ਰਾਸ਼ੀ ਵਾਲਿਆਂ ਦਾ ਖ਼ਰਚਾ ਅੱਜ ਹੋ ਸਕਦੈ ਜ਼ਿਆਦਾ, ਸਾਰੀਆਂ ਰਾਸ਼ੀਆਂ ਦਾ ਜਾਣੋ ਟੈਰੋ ਕਾਰਡ ਤੋਂ ਰਾਸ਼ੀਫਲ
--  Noua destinație a lui Adrian Mutu, după ce a fost dat afară de la Neftchi Baku
--  La Bolsa de Hong Kong no opera hoy por festivo
--  أحد خطط يوفنتوس لتعزيز الهجوم
--  Erakko katseli paloa, joka järkytti joulurauhaa Rautjärvellä – Sitten epäilty löytyi kuolleena
--  “Kəpənək” maskası adı altında hansı məşhur gizlənib?
--  지드래곤, 마약 퇴치 재단에 3억원 첫 기부
--  Ahok, Anies, dan Heru Budi Kompak Suarakan Kedamaian di Pesan Natal
--  Jobs Alert: DSSSB में निकली 2300 से ज्यादा पद पर भर्ती, 9 जनवरी से कर पाएंगे अप्लाई, ऐसे होगा सेलेक्शन
--  Watch: Arbaaz Khan sings with son Arhaan Khan at his wedding; Salman Khan dances
--  WFI Suspension : 2 मिनट में देखिए सुबह की बड़ी खबरें | Brij Bhushan Singh
--  МИД рассказал о намеренно наносящем вред россиянам Западе
--  Toronto prospect is Canada captain
--  수성못 밤하늘 수놓은 드론의 향연… 31일에도 화려한 드론쇼
--  경산시보건소, 올해 각종 성과대회서 7개 기관상 수상
--  칠곡군, 사과·배농가 '과수화상병 방제 약제' 신청 접수
--  닥터포헤어, 론칭 10주년…전문성·차별성 강화
--  칠곡군, 경상북도 일자리창출 평가 ‘대상’ 수상
--  당근, 전 직구 공채…우수 인재 영입
--  [인사] 삼일제약
--  [인사] 한미약품그룹
--  COVID-19: Maharashtra reports 50 new cases; nine of them JN.1 infections
--  Ragam Kesalahan yang Terjadi saat Natal dan Cara Menghindarinya
--  التكبالي: الدبيبة يعترض إرادة الليبيين بتمسكه بالكرسي
--  Arkansas man arrested for allegedly having 6 homemade bombs; held on $1 million bond
--  Việt Nam: Giá vàng miếng SJC vượt mốc 77 triệu đồng dù nhu cầu không tăng mạnh
--  “Komandir, şəhid olsam, bu videomu saxla” - VİDEO
--  Sunday Night Football: Chad Ryland's 56-yard FG gives Patriots 26-23 upset of Broncos
--  換股案延燒 智冠網銀隔空叫戰
--  SL to reopen previously closed diplomatic missions and establish new ones
--  1 dead, 3 wounded in shooting at Colorado mall on Christmas Eve
--  Мантуров рассказал, сколько власти закажут беспилотников в ближайшие годы
--  גלאטסראיי פרסמה תמונה של איקרדי עם פנס וזעמה על השיפוט, דז'קו: מביך
--  Fenerbahçe Galatasaray maçı kaç kaç bitti? Süper Lig Fenerbahçe Galatasaray puan durumu
--  موقف ستيرلنج من المشاركة أمام كريستال بالاس
--  Two hurt after car crashes into scaffolding in Flatbush, Brooklyn
--  Merz will die Ampel-Regierung so schnell wie möglich ablösen
