@@ -1,51 +1,51 @@
 # Latest News
--  Ceyran Rəhimova AzTV-dən buna görə ayrıldı
--  البطاينة: الشباب المستفيد الأول من مشروع التحديث السياسي.. فيديو وصور
--  Litentry Expands Decentralized Identity into the Bitcoin Ecosystem
--  Украина получила «ключ» к российской дальнобойной авиации
--  Aktivnosti KPZ Zenica povodom Božića
--  ‘It’s so sinister’ say The Santa Clause fans as they spot hidden detail in the background of classic Christmas movie
--  Relawan Prabowo-Gibran Ditembak di Madura, TKN: Kader Jangan Ambil Tindakan Sepihak!
--  الكيان الإسرائيلي يعلن ارتفاع حصيلة قتلاه إلى 489 عسكريا.
--  خبراء قانونيون يطالبون بإنشاء محكمة دولية لملاحقة المتورطين بجرائم الإبادة في غزة
--  في اليوم الـ80 من العدوان : تجدد غارات العدو الإسرائيلي على مناطق وسط وجنوب غزة.
--  مراسل وال : اعتماد قلعة جالو موقعا للتراث الاسلامي بليبيا .
--  أكثر من مليون و39 ألف طالب يُؤدّون الاِمتحانات النِّهائية للفصل الأول والفترة الأولى لِلشهادات العامّة اليوم الاثنين .
--  منظمة هيومن رايتس ووتش تقول بأن فيسبوك وإنستغرام وواتساب تمنع المشاركات الداعمة لفلسطين
--  الصين تطلق أربعة أقمار اصطناعية للأرصاد الجوية
--  روسيا تعلن تمديد حظر دخول الشاحنات من الاتحاد الأوروبي والنرويج وبريطانيا وأوكرانيا إلى أراضيها
--  العراق ونيجيريا و الكونغو تؤكد التزامها تجاه تحالف أوبك+ بشأن مستويات الإنتاج
--  مصرف ليبيا المركزي يناقش اعتماد الموازنة التقديرية للعام 2024 .
--  دعوة أممية لتخصيص محكمة دولية بشأن الحرب على غزة
--  الجزائر تتسلم مقعد الإمارات كممثل للمجموعة العربية في مجلس الأمن العام المقبل
--  عضو البرلمان الأوروبي: الإبادة الجماعية لأهالي غزة سببها الدعم الأمريكي للنظام الإرهابي الصهيوني
--  وزارة الداخلية: القبض على شخص من ذوي السوابق وبحوزته كمية من المخدرات وسلاح ناري وقنابل يدوية
--  بدء الامتحانات النهائية للفصل الدراسي الأول والفترة الأولى للشهادات العامة .
--  (المقريف) يتابع مع منسق قطاع التعليم بالمنطقة الشرقية سير العملية التعليمية
--  일본, 가리비 中 수출 막히자 한국 시장 개척 나선다
--  UOL NO VERÃO
--  АСЖУ нагородила українських ветеранів на Invictus Games спеціальною відзнакою Незламний дух України
--  Как светът посрещна Рождество Христово
--  Breaking Barriers: The Inclusive Potential of Credit Facilities in Tech
--  Instituti i Mjekësisë Ligjore: Distancohemi nga të gjitha informatat jozyrtare për autopsinë e Gjorçevskës dhe Zhezovskit
--  [내일 날씨] 전국 한낮 영상권 회복…출근 빙판길 주의
--  بعد أشهر على زواجها.. هكذا احتفلت الإعلامية جويس عقيقي بالميلاد (صورة)
--  Boçvarski: Investime më të mëdha kapitale këtë vit, janë realizuar projekte në vlerë prej 540 milionë euro
--  Milivojević za Betu: Nerede su izazvali huligani iz regrutnog centra Vlade Srbije
--  Millions Of Americans Celebrate Christmas
--  Adiós a pagar los peajes en 2024: estos son los coches que se libran de hacerlo
--  Residents of tsunami rehabilitation colonies in Nagapattinam suffer due to poor civic amenities
--  يوم الثلاثاء.. "وجه السعد" على النصر في دوري روشن
--  Birleşik Kamu-İş: Açlık sınırı 16 bin 483 lira
--  Pakar IT Sebut Aturan Pedoman AI Masih Umum: Agak Sulit Mengaturnya
--  Дома у студента, устроившего массовую стрельбу в Праге, нашли взрывчатку
--  Хари Кейн поиска всичко през 2024 година
--  طقس : أجواء تميل للاستقرار على أعلب مناطق البلاد .
--  بعد أزمة مشاركته في موسم الرياض.. بيومي فؤاد يكشف عن جنسية الدولة التي حصل عليها
--  साउथ अफ्रीका रोहित शर्मा के बयान से हिला, टेस्ट सीरीज से पहले बड़ा दावा
--  นายกฯ ห่วง น้ำท่วมใต้สั่งปภ.เร่งช่วยเหลือ
--  الأرثوذكسي يظفر بلقب دوري كرة الطاولة
--  Bebeğe cinsel istismarda bulunup öldüren sanığa üst sınırdan hapis cezası
--  Mengenal Fitur iCloud Private Relay
--  ‘되는 일이 없다’... 맨유, 덜 익은 닭고기 제공→식품 위생점수 최저점 기록
--  Byli wagnerowcy sieją postrach w Rosji. Prawie 200 spraw karnych
+-  Baldur’s Gate 3 player accidentally derails game in search for boots
+-  Германия — AfD и CDU/CSU на 20% сильнее, чем на федеральных выборах 2021 года
+-  Reus zeigt Verständnis für Fan-Frust: „Manchmal ist es nicht ganz so leicht“
+-  فضل الرحمن جیسا لالچی انسان زندگی میں نہیں دیکھا : پرویز خٹک
+-  (VIDEO) Trenutak o kojem priča cijela Turska: ‘VAR soba i 26 kamera ne mogu ovo vidjeti’
+-  Nissan Juke'ta 150 bin TL'ye sıfır faiz 12 ay vade fırsatı başladı! İşte Nissan Juke Aralık 2023 fiyat listesi
+-  Livestream | Koning Willem-Alexander houdt kersttoespraak
+-  रास्वपाको नारायणगढ-बुटवल दबाब यात्रा
+-  यस्तो छ स्वास्थ्य क्षेत्रमा भएको प्रगति
+-  Bewoners afgebrande woonboerderijen in Werkendam blikken terug: 'Dat laat diepe indruk achter'
+-  Nói điều này, Alvarez làm rõ tương lai
+-  Chạm mặt Man United, Villa lo lắng vì chấn thương trụ cột
+-  Pep chia sẻ thẳng thắn sau khi được hỏi về "người thừa"
+-  Klopp chia sẻ về khả năng ra sân của Jota
+-  HLV Klopp xử lý thế nào với vị trí hậu vệ trái?
+-  Walcott so sánh Ivan Toney và "người cũ" Arsenal
+-  Top 3 trung vệ có thể gia nhập Man Utd dưới thời Sir Jim Ratcliffe
+-  So sánh Mbappe và Haaland trong năm 2023
+-  Nhận mức lương “khủng”, cựu đội trưởng Arsenal bị nghi ngờ
+-  Rice - Saliba - Gabriel: 3 hòn núi cao của Arsenal
+-  Santo cần làm gì để vực dậy Nottingham?
+-  Khen Nkunku, Pochettino nói thẳng 1 câu về Nicolas Jackson
+-  PSG vồ hụt tiền vệ xuất sắc của Chelsea
+-  RC Strasbourg nhắm sao trẻ của Man City
+-  Monaco nhắm đến trung vệ Adarabioyo trong tháng 1
+-  "Chelsea rất thất vọng và tức giận"
+-  Ca chấn thương trong trận Chelsea
+-  Gianluigi Donnarumma biết ơn sự ủng hộ của Luis Enrique
+-  Manchester United đừng vội mừng với Jean-Claude Blanc
+-  Tottenham "thở phào" về Romero
+-  Saka: "Vẫn còn quá sớm để nói về chức vô địch"
+-  3 điều chắc chắn sẽ xảy ra sau khi Sir Jim tiếp quản Man Utd
+-  Đội hình đỉnh nhất Premier League hiện tại: Bom tấn Arsenal; Vua Ai Cập
+-  Foden: Thợ săn danh hiệu tại Man City
+-  Chuyên gia cảnh báo điều tồi tệ với Man United
+-  "Lời nói của Mbappe không còn giá trị với Real nữa"
+-  Hé lộ mẫu tiền vệ Barca theo đuổi
+-  Nacho Fernandez đuổi kịp 'kỷ lục buồn' của Sergio Ramos
+-  Real chốt tương lai của bộ đôi người Tây Ban Nha
+-  Ngả mũ trước Sergio Ramos
+-  Giữa bão chấn thương, Real Madrid nhận hung tin
+-  Tương lai bất định của Kepa
+-  Endrick nhắc đến khoảnh khắc đắt giá với Vinicius và Rodrygo
+-  Ramos: "Sevilla sẽ mạnh mẽ hơn trong năm mới"
+-  Barca phải dừng lại ngay lối tư duy ăn xổi!
+-  Điều duy nhất ngăn Barca mua đứt Joao Cancelo
+-  Endrick đánh giá về Benzema, Kane, Haaland và Suarez
+-  Xavi ra tối hậu thư cho Raphinha
+-  Xavi hé lộ mục tiêu của Barca trong năm 2024
+-  Real Madrid ra quyết định với Kroos
