@@ -1,51 +1,51 @@
 # Latest News
--  Actor Charlie Sheen es atacado por una vecina en los Ángeles
--  Sumar ve el discurso del Rey "anclado en el pasado": "No habló de los problemas que preocupan a los españoles"
--  Pope calls for end to Gaza war as world celebrates Christmas
--  Kup Srbije: Zvezda protiv Vršca
--  Экс-сотрудник ЦРУ Джонсон: солдаты ВСУ отказываются выполнять приказы Зеленского
--  ABP माझा टॉप 10 हेडलाईन्स | 25 डिसेंबर 2023| सोमवार
--  Paris Fury reveals time-saving trick for creating a Masterchef-worthy Christmas dinner & she’s got Jamie Oliver to thank
--  Западот се обидува да ја дестабилизира ситуацијата во Србија, обвини Захарова
--  Dólar hoy, dólar blue hoy: a cuánto cotiza este lunes 25 de diciembre
--  ‘A disgrace to the end’ – Gary Neville blasts ‘truly awful’ Sir Jim Ratcliffe announcement from Man Utd
--  «Бахмут 2.0»: экс-командир роты батальона «Айдар» рассказал об упорных боях за Авдеевку
--  Audi opoziva gotovo 100.000 automobila u Americi zbog opasnosti za kućne instalacije
--  Big relief for consumers! Govt and IRDAI to review key hospitalisation rule to simplify mediclaims | Details
--  Bourse de Tunis : Fusion de la société COFIB Finances Capital et Bourse UBCI
--  হবিগঞ্জের ডিসিকে প্রত্যাহারের নির্দেশ
--  Jsou trhy odtržené od ekonomiky?
--  Aquarius 26 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Présumée escroquerie sur le Fichier électoral : Un ancien de la DAF arrêté
--  El PP respalda la llamada del Rey a respetar la Constitución "y mantener vivo su espíritu"
--  Nisu svi oko odojka i francuske, znamo tko se za Božić ‘usrećio‘ i provodi ga na poslu: ‘Nema ti u nas neradnih dana‘
--  Nellore Politics: మాజీ మంత్రి అనిల్ తో మాట్లాడేది ఆ ఇద్దరు ఎమ్మెల్యేలేనా? ఎందుకీ పరిస్థితి!
--  Završena je većina infrastrukture za OI u Parizu, već su prodani milijuni ulaznica
--  Pejabat Kemenhan Ukraina Dituduh Korupsi Peluru Artileri 45 Juta Dolar
--  Interia: применение нового ЗРК «Панцирь-СМ» ВС России создаст проблемы для ВСУ
--  Class action lawsuit alleges abuse at Quebec's Indigenous day schools
--  Barishtja “magjike” që rregullon kolesterolin, sheqerin dhe rrit testosteronin
--  Azerbaijan extends duration of some tax benefits
--  الدعم الاجتماعي المباشر: حوالي مليون أسرة ستستفيد من الدفعة الأولى ابتداء من 28 دجنبر الجاري
--  Bir fincan qəhvə, bir bilet: vəssəlam, şüt-tamam - MİLYONÇU OLDU
--  Промоутер: Я впевнений, що Джошуа вирубить Ф’юрі
--  ''SVE ĆU VAS UNIŠTITI!'' Šelton preti svima pa i Đokoviću
--  태연, 나이를 거꾸로 먹는 비주얼…"귀염 탱구"
--  '가요무대' 오늘(25일) 출연진…박혜신 진성 김수찬 이진관 윤수현 등
--  Top 3 Tekno Berita Hari Ini: Video Viral Teleprompter yang Dipakai Gibran, Cara Kerja Teleprompter
--  Ayodhya: राम मंदिर दर्शन करने वालों के लिए रेलवे की बड़ी सौगात, सस्ता रेल सफ़र कराने आ रही है अमृत भारत ट्रेन
--  5 أماكن على الأرض لا تزرها الشمس في الشتاء.. ظاهرة عجيبة ساحرة
--  Waterschap Rivierenland laat Arkelse Damsluis sluiten
--  Aruba advierte a balseros venezolanos que serán detenidos en el mar y no recibirán asilo
--  Overmacht Van der Poel imponeert ploegleider: 'Een van zijn beste versies ooit'
--  Overmacht Van der Poel imponeert ploegleider: 'Een van zijn beste versies ooit'
--  Se quedó dormido en la calle y no le robaron nada
--  الذكاء الاصطناعي ينير شوارع المدينة المنورة
--  Year Ender 2023: इस साल रिलीज हुईं ये 8 सुपरहीरो फिल्में, इंडियन स्पाइडरमैन 'पवित्र प्रभाकर' की भी हुई दमदार एंट्री
--  مياه أمطار شعيب الشوكي تشكل خريطة طبيعية شرق تمير باالرياض
--  Person finder krucifiks fra den tidlige middelalder med metaldetektor
--  POLICIJA ZAUSTAVILA SUMNJIVI AUTO U SURDULICI! Dvojica muškaraca izašla, pa PRENERAZILI policajce - zbog ovoga su HITNO UHAPŠENI
--  Вбито 100 цивільних за ніч: ХАМАС звинуватив Ізраїль у найкривавіших ударах за час війни
--  Emmerdale's Charley Webb reminisces on Christmases with co-star ex as he 'moves on'
--  Российские палубные истребители провели учения близ границы стран НАТО
--  जम्मू-कश्मीर के पुंछ में 3 नागरिकों की मौत पर कोर्ट ऑफ इंक्वायरी के आदेश, ब्रिगेडियर रैंक के अधिकारी का तबादला
+-  Kevin Spacey diz que Netflix existe por sua causa: "coloquei eles no mapa e tentaram me enterrar"
+-  الإمارات.. انخفاض في درجات الحرارة الثلاثاء
+-  Türkleri kızdıracak araştırma! Dünyanın en misafirperver ülkeleri açıklandı, Türkiye'nin konumu şok etti, bu liste kavga çıkarır
+-  إيران تنفي اتهاماً أمريكياً بمهاجمة ناقلة كيماويات قرب الهند
+-  One man dead and two seriously injured in Colorado mall shooting after fight broke out on Christmas Eve
+-  Papa'dan Gazze'deki saldırıları durdurun çağrısı
+-  Η Μαράια Κάρεϊ ανέβασε ένα ξεκαρδιστικό βίντεο με τα παιδιά της: «Μην ξαναπείς το All I Want for Christmas»
+-  "السم البطيء".. طبيب يحذر من مكعبات مرق الدجاج - كارثة تحدث لجسمك
+-  Spajić: Odluka da li aerodromi idu u zakup do kraja sedmice
+-  Saudi-Arabia haluaisi Mestareiden liigaan
+-  تفاهم بين «تدرا» و«دبي البحرية» لتعزيز كفاءة الأعمال التجارية
+-  63 cases of JN.1 Covid variant in India: Health Ministry
+-  Torre de Manaca-Iznaga entre interesantes propuestas del turismo cubano
+-  विदेश की खबरें | फ्रांसीसी हवाई अड्डे से भारतीय यात्रियों को लेकर रोमानियाई विमान के प्रस्थान में देरी हुई: रिपोर्ट
+-  जरुरी जानकारी | इंदौर में शक्कर, चना बेसन में मांग मजबूत
+-  Hamas-Chef Sinwar: Keine Unterwerfung unter Bedingungen Israels
+-  Avrupa Yakası'yla ilgili yıllar sonra ortaya çıkan gerçek herkesi şaşırttı! Duyanlar 'Gülse Birsel ne akıllı kadınsın' dedi!
+-  Galo, Pepino e mais: os melhores mascotes do futebol
+-  IND vs SA 1st Test 2023: साउथ अफ्रीका के कप्तान तेम्बा बावुमा को भारत के गेंदबाजी अटैक से डर, बताया खतरनाक
+-  Rússia está em vantagem na corrida armamentista com Ocidente, diz ministro russo
+-  SEÇİMLER YAKLAŞIYOR
+-  Mersin'de tapu anlaşmazlığı faciası! Ablasını öldüren kardeş, intihar etti
+-  Yüzde 25 kira zammı sınırının kaldırılacağı iddiası yalanlandı
+-  Ennyi volt, tényleg beszüntette az Apple Watchok forgalmazását az Apple
+-  Cristiano Ronaldo pokazał, co myśli o Superlidze. Wszystko jasne
+-  Ermənistan artıq Moskvadan uzaqlaşaraq Qərbə yaxınlaşmağa başlayıb - Kolomina
+-  Hackers Increase Attacks on Israel During War in Gaza
+-  Full text in English & video of King Willem-Alexander's 2023 Christmas speech
+-  Ивановски ја заврши годината на 326. место на АТП листата
+-  Body found in Venlo home may be linked to violent crime, police say
+-  Autorsko vođenje kroz izložbu "Staklo" u sredu u Muzeju Vojvodine
+-  روسيا تسجل ثاني أكبر محصول من الحبوب في تاريخها خلال 2023
+-  25 ديسمبر 2023.. البورصة تعاود الصعود
+-  Chad Ryland ‘didn’t waver in confidence at all’ before kicking game-winner against Broncos
+-  Autostrada Kërçovë-Ohër do të shkel edhe një afat
+-  الحل في عسكرة وفد التفاوض مع إثيوبيا!
+-  مصرف ليبي يتيح إمكانية طلب سلفة بدون أي فوائد ربوية
+-  Prison bosses launch internal probe after female lag went missing from Mountjoy’s Dochas unit
+-  Zvanično saopštenje MDULS: Učesnici protesta pristalice Đilasa i protagonista tuđinskih interesa
+-  Hochwassergefahr in Teilen Deutschlands - Sturmfluten erwartet
+-  "מסי עבר לגור לידי - ומאז ערך הבית שלי עלה ב-25 מיליון דולר"
+-  לקראת פרידה מהפועל באר שבע: היעדים אפשריים של אסטריט סלמאני
+-  ספלאש: היידי קלום לוהטת בתמונות חדשות מהחופשה בקאריביים
+-  Yamin Ahmadzai bags five-fer as Afghanistan thump UAE in first practice match
+-  Kontrolden çıkan tır devrildi
+-  Ολυμπιακοί Αγώνες: Μάχη με τον χρόνο για το… ιδανικό παπούτσι που θα φέρει ένα ρεκόρ στον μαραθώνιο
+-  Ukrajina sestrelila več ruskih letalnikov, Moskva se hvali s povečanim obsegom vojaške industrije
+-  แนะลูกค้าประกันรถ "สินมั่นคง" เข้าอู่กลางลดข้อโต้แย้งเคลมไม่ได้
+-  Por que jogar no Natal se tornou ainda mais especial para LeBron James na NBA e o que você precisa assistir pela ESPN no Star+
+-  Quatro pontos que apimentam Lakers x Celtics (e LeBron x Tatum) no Natal da NBA
