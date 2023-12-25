@@ -1,51 +1,51 @@
 # Latest News
--  尹 “국가가 좋은 선물 되도록 노력”
--  與 “피해자 지원·보상 강화에 초점”
--  “예수 오신다면 민생경제 한파 어루만졌을 것”
--  [지역경제 우리가 살린다] 23. 산단진흥과 “제2국가산단 중심 신산업벨트 형성”
--  달서구 이곡1동 신청사 건립, 10년째 난항
--  與 “네이버 뉴스혁신포럼, 시간끌기 안 돼”
--  “대구 디지털헬스케어 성장 모색”
--  내년 1~3월, 평년보다 포근하다
--  대구교통公 개발 ‘궤도빔 융설제’ 올해부터 본격 사용
--  ‘文 정부 3총리’ 민주당 통합 논의할까
--  DGB금융, 핀테크 스타트업 지원 추진
--  달서천 하수관로 정비 민간사업자 모집
--  전국 세관 지정장치장 화물관리인 지정계획 공고
--  “학교 텃밭서 친환경 생태환경 배워요”
--  내년 대구 분양 물량 전국 5번째로 낮아
--  대구·경북 뇌경색 환자 4년간 4.9% 증가
--  [대구콘텐츠비즈니스센터 입주기업 탐방] (3) 지역 게임개발 기업 ‘㈜토스트’, 다양한 장르 게임 잇단 출시...글로벌 16개국 서비스 ‘도약’
--  올해 고혈압 경험자 20.6%·치료율 93.6%
--  野 “김여사 특검법, 죄 없다면 거부할 이유 없어”
--  주택산업연구원 전망 “내년에도 집값 하락세 지속”
--  ‘SKY’ 수능 점수 산출식, 이과생 문과 지원 유리
--  與 “위헌적 법에 타협 없다” ...국힘, 김여사 특검법 강행 비판
--  ‘가맹점에 갑질’ 골든하인드, 과징금 철퇴
--  타인 주민등록증 이미지 부정 사용 땐 3년 이하 징역
--  尹 대통령, 박상우 국토·강정애 보훈부 장관 임명
--  “내년 1월 반도체 등 제조업 경기 개선될 것”
--  봉화 3만 군민 “양수발전소 유치” 한목소리
--  中企 돕는 ‘상생결제’ 누적 1천조 돌파
--  대구사이버대 서울캠퍼스에 콘텐츠 제작 스튜디오 오픈
--  영주시, 올 공모사업 국·도비 1371억원 확보
--  대구시 ‘혁신형 스타트업 육성’ 우수한 성과
--  계명문화대, 진로 설계·취업 준비 역량 ‘UP’
--  경주, 경북도 문화유산분야 평가 ‘최우수’
--  가가호호미곡처리장, 경산에 쌀 1천포 기탁
--  구미, 5대 신성장산업 품고 재도약 ‘날갯짓’
--  국제현대작가협 회원전·교류전, 韓·中 현대미술 작가 작품 ‘한자리에’
--  대구한의대 컴퓨터공학과 동아리, 경북 ICT 체험 페스타 참가
--  국내 최고 뮤지컬 스타들의 ‘에필로그’, 대구문예회관 29일 송년음악회
--  영신초, 국토사랑 글짓기대회 ‘대상’
--  오늘의 경기(12월 27일)
--  경산 선별진료소 3곳 내년부터 운영 종료
--  코리안팝스의 아름다운 ‘송년 선율’
--  스티그마 효과 VS 피그말리온 효과
--  대가대, 디자인 씽킹부터 IR 발표까지…창업 열정 불태워
--  클린스만호, 아시안컵 모드...64년만의 우승 약속 지킬까
--  경주 도심 골목식당·공방 12곳 새단장 ‘활력’
--  문예진흥원, 독일 파견 결과 발표회
--  대구 중구청, 청년정책위원회 개최
--  中企 복지비용, 대기업의 3분의 1 수준
--  맥스웰 맹활약 무색…KCC에 무너진 가스公
+-  مصرع جندي صهيوني أصيب بعدوى فطرية من تراب غزة
+-  Prince William and Kate Middleton celebrate Christmas with adorable new photo of kids
+-  Tokayev Avrasiyada yeni fiber-optik xəttin çəkilməsini təklif edib
+-  Großalarm im Norden – Flammen greifen von Carport auf Dächer über
+-  5 great Netflix movies to watch after Christmas
+-  Huge Coronation Street star sensationally QUITS after 15 years as their explosive exit date is revealed
+-  Météo: les températures attendues le mardi 26 décembre
+-  Zjarri në qendrën tregtare në Lushnje, 39 persona dhe 3 zjarrfikës përfundojnë në spital
+-  Interior designers share 6 kitchen trends that'll be huge next year and 4 that will be out
+-  이젠 5000점 바라본다…그리고 수장의 바람처럼, 강소휘의 소망 “연경 언니는 모두가 인정하는 에이스, 따라가고 싶다”
+-  Kızıl Goncalar dizisini izleyenler hemen kapattı; Bu kadarını da kimse beklemiyordu
+-  2024년 투자 변곡점을 대비한 9가지 ‘가이드라인’ [매일 돈이 보이는 습관 M+]
+-  천안스마트공동물류센터 내년 상반기 운영 개시
+-  전주 탄소국가산단, 스마트그린 산단 조성…새만금·대구율하·밀양 이어 네번째
+-  [재미있는 오늘의 운세] 2023년 12월26일
+-  How my caring granddaughter Lily saved a stranger’s life and became their Queen of Hearts
+-  انقذ حياتك.. فواكه تحميك من أمراض القلب وارتفاع الكوليسترول
+-  7+2 για Καστέλ
+-  Toma Zdravković skrivao prvu suprugu, brzo se razveli: U ovom hrvatskom gradu su okončali brak
+-  قائد محور الغيضة اللواء " مرصع يستضيف منتخب الناشئين بالمهرة
+-  Bộ phim đứng top 1 Việt Nam dù gây tranh cãi gay gắt, cặp chính quá đẹp đôi nhưng không có chemistry
+-  Nguyễn Filip thể hiện gì sau thất bại trong ngày đầu trở về V.League?
+-  Haaland hóa ông già Noel gây "bão" mạng
+-  Cuộc đua Quả bóng vàng 2024: Messi đứng thứ 19, Ronaldo tụt hạng, sao trẻ 20 tuổi dẫn đầu
+-  Có gì đáng trải nghiệm tại Mega Grand World - "vũ trụ ăn chơi" đang được giới trẻ Hà Thành check in rần rần
+-  Sự kỳ diệu của nước mắt phụ nữ
+-  Năm 2023 - tình đẹp đến mấy cũng tan thành mây: Có cặp livestream đấu tố ầm ĩ, người bất ngờ bị tung bằng chứng ngoại tình
+-  Ở tuổi ngoài 30, Irene (Red Velvet) ngày càng trẻ trung nhờ chăm diện 5 món thời trang
+-  Khách Tây xuýt xoa khi thử một món cơm Việt Nam, nhận xét "chưa tới 2 đô la nhưng vị quá ngon"
+-  7 lý do chẳng liên quan gì tới “chuyện ấy” nhưng lại khiến vùng kín chị em tối màu
+-  Truyền thông Hàn bình chọn diễn viên có thái độ tệ nhất: Song Joong Ki và Park Seo Joon bất ngờ bị réo vì thái độ "lồi lõm"?
+-  Toàn cảnh 4 ngày 3 đêm đại chiến fandom Nhiệt Ba - Vương Hạc Đệ náo loạn Cbiz, cả hai có nguy cơ bị phạt nặng như Triệu Lệ Dĩnh?
+-  DJ Mie: Cứ thích và làm hết mình, tiền sẽ tới!
+-  Kiếp nạn mua hàng online cứ bắt "check inbox" - Khách khó chịu, thương hiệu vẫn giấu nhẹm giá: Chuyên gia lý giải!
+-  Vợ chồng Lê Âu Ngân Anh khoe bộ ảnh đón Giáng sinh, nhóc tỳ chiếm spotlight vì tạo dáng siêu cưng
+-  Câu chuyện về "cô cá voi cô đơn nhất Hàn Quốc": Đau lòng nhìn đồng loại lần lượt ra đi trong suốt một thập kỷ bị giam cầm
+-  Nam Thư bức xúc lên tiếng khi bị tố chèn ép vợ Mạc Văn Khoa trên thảm đỏ: "Đừng để bị dắt mũi, tỉnh táo lên"
+-  Sau 4 tháng sinh con, Minh Hằng hiếm hoi công khai rõ gương mặt nhóc tỳ
+-  Đây là trường được ưu tiên tuyển dụng nhất trong nhóm ĐHQG TP.HCM: Điểm chuẩn cao nhưng học xong kiểu gì cũng có việc làm!
+-  Mỹ nhân bị bạn trai doạ giết vì quá đẹp, chịu đựng 10 năm "địa ngục" đổi lấy sự nghiệp hạng A
+-  Ảnh màu hiếm cuối thời nhà Thanh: Các cung nữ khác xa trong phim, hình ảnh đôi chân "cực phẩm" khiến hậu thế thán phục
+-  Được khoản bồi thường lớn, gia đình cậu bé nghèo vẫn không chịu di dời, phóng viên vào cuộc phát hiện sự thật đau lòng
+-  새해 무주택자 내집마련 힌트…“2위는 급매물 매입” 1위는?
+-  The Masked Singer Christmas special winner wows the judges after being mistaken for sports legend
+-  Askeri personel yalanıyla dolandırıcılık! 500 bin liralık vurgun
+-  다이소, 외출 준비 끝! ‘겨울 신변용품 기획전’진행
+-  파파존스 피자, 자사앱에서 일년 내내 단독혜택 누리자
+-  쿠팡, 장보기 이어 럭셔리 시장 장악 '정조준'
+-  [데스크칼럼] A사의 제왕적 인사칼날과 B사의 혁신의 칼
+-  野, 이번 주 '쌍특검법' 강행… 윤대통령, 거부권 수순
