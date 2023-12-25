@@ -1,11 +1,11 @@
 # Latest News
--  Aaj Ka Singh Tarot Card: सिंह राशि वाले अपनी स्मार्ट वर्किग से सबको करेंगे प्रभावित, मिलेगी सफलता
--  Preminuo crnogorski intelektualac Jakov Mrvaljević
--  TBMM Başkanı Kurtulmuş 2024 yılı bütçesinin hayırlı olmasını diledi
--  Bakan Tunç'tan şehit ailelerine yönelik suç teşkil eden ifadeler kullananlara ilişkin açıklama:
--  Cumhurbaşkanı Yardımcısı Yılmaz: Tüm tehditleri bertaraf etme kudretine sahibiz
--  Ukraine 'downs fourth Su-34 fighter jet in three days' and strikes Russian-held Horlivka triggering huge inferno
--  JANJUŠ HITNO IZVEDEN IZ ELITE Produkcija momentalno reagovala nakon samoubistva njegovog mlađeg brata!
--  Flamazo en cilindro de gas genera movilización
--  Zvezda otvara novu prodavnicu u centru Beograda!
--  برائلر گوشت کی قیمت میں بڑا اضافہ، فی کلو قیمت کتنی ہو گئی؟
+-  Zelensky mirëpret rrëzimin e avionëve rusë si një mesazh optimist për Krishtlindjet
+-  పొలం దున్నుతూ రైతు దుర్మరణం
+-  ELFBAR und LOST MARY präsentieren branchenführende Fertigung in der smarten FEWO-Anlage
+-  Završen protest u Beogradu, za sutra najavljen novi
+-  Larm om skottlossning i Västerås
+-  ఆడుదాం ఆంధ్రాతో ఒరిగేదేంటి?
+-  Bill Gates objavio svoja predviđanja za 2024. Dvije stvari su ključne
+-  القسام تستهدف 40 جندياً إسرائيلياً في جباليا
+-  اتهام الدعم السريع بسلب ونهب سكان الجزيرة بالسودان
+-  רמלה גברה על אשדוד, ניצחון דרמטי למכבי ר"ג על הפועל ראשל"צ
