@@ -1,51 +1,51 @@
 # Latest News
--  Palesztin menekülttábort támadott Izrael – Legalább hetvenen meghaltak
--  “부모에게 물려받은 나눔정신 후대에도…”
--  건강한 삶 유지하고, 이웃 돕기에도 한 뜻
--  Koeajossa Kia EV9: Kaikille tilaa riittää, kaikille paikkoja on
--  إسرائيل تعلن مقتل اثنين من جنودها بمعارك غزة
--  เปิดตราสัญลักษณ์ พระราชพิธีมหามงคล 72 พรรษา 28 กรกฎาคม 2567
--  Luz verde a la investigación hidrogeológica en el humedal de El Carmolí
--  مسؤولة إسرائيلية تدعو للتحقيق في تنفيذ بروتوكول "هانيبال"
--  معلومة عاجلة عن الكهرباء في لبنان.. إنتبهوا لهذا الأمر!
--  A Hamász szerint menekülttáborra mért csapást Izrael, hetvenen haltak meg
--  Pet charity PDSA gives dog owners Christmas choc shock warning
--  Auto fahren im Winter: Wer eine dieser 3 Sachen tut, zahlt Strafe
--  স্মার্টফোনের ব্যাটারি ভালো আছে কী না, তা জানাতে নতুন সুবিধা আসছে অ্যান্ড্রয়েডে
--  غزة.. فرق نفسية لمواجهة الميول الانتحارية لدى الجنود الإسرائيليين
--  Malayalee From India promo: Nivin Pauly reunites with Dijo Jose Antony, Listin Stephen for his grand comeback
--  Henkilöautoilija törmäsi hirveen Tohmajärvellä jouluaattona
--  सप्तकोशी डेभलपमेन्ट बैंकले पुस २९ मा वार्षिक साधारण सभा गर्ने
--  पुस २९ गते लाभांश पारित गर्दै यी ४ कम्पनी, कसले कति दिंदैछन् लाभांश ?
--  स्टक ब्रोकर्स एसोसिएसनले पुस २६ गते बोलायो साधारण सभा
--  पूर्वाञ्चल ल्युव आयलले आईपीओ निष्कासन गर्ने
--  इन्फिनिटी लघुवित्तको साधारण सभा पुस २८ मा, छैन लाभांश प्रस्ताव
--  नेपाल ल्युब आयलको शेयर मूल्य समायोजन
--  शतप्रतिशत हकप्रद निष्कासनको प्रस्ताव पारित गर्न बाराही हाइड्रोपावरले पुस २९ मा बोलायो साधारण सभा
--  Miss Manners: I find it rude that the TV stays on when I enter. Am I overreacting?
--  Španjolci lansirali bombu za Modrića: ‘Hrvat je sve dogovorio s Ronaldom’
--  Viele Auswärtige nutzen Frankfurter Kulturangebote
--  الإمارات تتصدر الوجهات السياحية العالمية خلال عطلات الميلاد ورأس السنة
--  Podignuta optužnica protiv bh. biznismena, oštetio budžet za 737.930 KM
--  Expositie schilderijen Hans Dronkert in stadsmuseum De Knoperij
--  After ultimatum given, Pakistani police free 290 Baloch activists arrested while protesting extrajudicial killings
--  FC Barcelona złożyła ofertę za młodą gwiazdę. W marcu rywalizował z Lechem Poznań
--  بروفيسور فرنسي: إسرائيل مستمرة في تشويه الأمم المتحدة
--  Refleksi Natal 2023, Uskup Agung Jakarta Singgung Masalah Etika
--  Sudah Mualaf Diajak Nyanyi Lagu Natal, Larissa Chou: Gak Mempan
--  رقم تاريخي سلبي غير مسبوق يصدم تشيلسي
--  كتف بيلينغهام في خطر
--  ألفاريز يصدم ريال مدريد وبرشلونة
--  تحذير بشأن (قاتل صامت) خلال الأعياد
--  Ukraine erhält 1,34 Milliarden Dollar im Rahmen des Weltbankprojekts - Finanzministerium
--  Oekraïne heeft 1,34 miljard dollar ontvangen in het kader van een project van de Wereldbank - ministerie van Financiën
--  Брнабиќ: Им благодарам на руските безбедносни служби кои имаа информации за тоа што се подготвува во Белград и ги споделија со нас
--  고금리에 '영끌' 후폭풍…부동산 경매, 9년 만에 최고치
--  หายาก ป่วย 1 ในล้าน Stiff-person syndrome "โรคคนแข็ง"
--  กสม.ปัดเอื้อระเบียบราชทัณฑ์ปม "ทักษิณ" นอนรพ.ชี้ต้องให้ศาลสั่ง
--  İBB Başkanı İmamoğlu'na taşlı saldırı davasında yeni gelişme
--  Starring the genetic molecule RNA
--  It Is Only A Dumb Person That Would Consider Me A Role Model – Odumodublvck
--  الاحتلال يواصل تصعيده بالضفة ويعتقل عددا من الفلسطينيين
--  ميسي الصغير.. مراهق موهوب يثير اهتمام أندية شهيرة
--  तस्विरमा ऐतिहासिक तपोभूमि गाम्फाधुरी
+-  JVM-drömmen krossades
+-  Fmr. pro basketball player's Antwerp restaurant torched; Suspects caught in the NL
+-  `음주측정 거부' 지민규 충남도의원 불구속 기소
+-  대전 식당 건물서 폭발 사고 12명 중경상·건물 일부 붕괴
+-  세종 목욕탕서 70대女 3명 감전사
+-  증평 형석중 `손도장 대형 태극기'
+-  충북 수출 中企 `한자리에'
+-  신흥 주거중심지 … 차별화 브랜드 상품성
+-  `징역 23년' JMS 정명석 항소
+-  꿀벌이 또 사라지고 있다
+-  청주 자동차 부품 공장서 불
+-  관리사무소 직원에 가스총 쏜 입주민 선처
+-  미래첨단소재 수산화리튬 최대 2만6000톤 공급계약
+-  충북 1인당 지역내총생산 4862만원
+-  현대엘리베이터 ESG 캠페인 `현대:Re' 기증식 개최
+-  셀트리온·헬스케어 28일 통합 법인 출범
+-  충북건협 실적신고 설명회 개최
+-  제천 모빌리티 제조엔지니어링센터 준공
+-  충북도 지역언론 상대 명예훼손 고소 취하
+-  “충북 의대정원 221명 이상 확대 노력”
+-  충북도의회 1년 … “현안해결 역동적 의정”
+-  한동훈발 세대교체 충북 지각변동 올까
+-  오송참사 월류 위험 수년 전부터 알았다
+-  충북도 정부예산 9조 시대 눈앞
+-  안철수 의원 `깜짝 방문'
+-  Sharvika Mhatre : बालगिर्यारोहिका शर्विका म्हात्रेची 100 व्या किल्ल्याला गवसणी, कठीण श्रेणीतील जीवधन किल्ला केला सर
+-  (VIDEO) Rio de Žaneiro: Predao se jedan od najvećih kriminalaca
+-  ALP Music LOGO : இசையோடு ஃபேஷனையும் ஒன்றிணைத்து புதிய பரிமாணம் ஆல்ப் மியூசிக் லோகோ வெளியீடு
+-  OR เปิด ‘คาเฟ่อเมซอน’ สาขาที่ 2 ในประเทศมาเลเซีย
+-  Quanto è grave l'incendio della discarica di Roma
+-  Gdzie ukryto bombkę? Świąteczny test na spostrzegawczość
+-  Joe Biden'dan Noel Bayramı mesajı
+-  Galatasaray'a Davinson Sanchez'den kötü haber geldi
+-  Acı haber! 4 kişinin cesedine ulaşıldı
+-  67 yıllık elektrik ustası Alparslan, YHT hatları için güvenlik sistemi oluşturuyor
+-  Udarni mjesec europskog hit igrača. Lani nam je falio, a sada je spreman: ‘To je onaj klik koji nam treba‘
+-  Daniel Sams : बाॅल नव्हे थेट तोफगोळाच फेकला अन् 4 बाॅलमध्ये 4 विकेट; आयपीएलमध्ये रुपयाची सुद्धा बोली नाही!
+-  В Москве вынесли приговор по делу об убийстве двух девушек в 1989 году
+-  Çöp evden 20 bin TL çıktı
+-  Daihatsu levert ook in januari geen auto’s om gesjoemel met botstesten
+-  Tentuan të kalonin kontrabandë me makinë bagëti të imta, e pësojnë dy qytetarë në Kakavijë, në kërkim doganieri
+-  Banjir: Jambatan runtuh, 200 penduduk Kampung Temalir terputus hubungan
+-  Silivri WAW Marina yüzde 50 peşin 12 ay vade fırsatıyla satışta! Yeni proje!
+-  PM Modi: హుకుంచంద్ మిల్ వర్కర్లకు న్యాయం.. రూ.224 కోట్ల బకాయిలు విడుదల చేసిన మోదీ
+-  [INEDIT] Marc Fiorentino répond à toutes vos questions
+-  కండువా మార్చేద్దాం!
+-  ماييلي والكرتي يقودان تشكيل بيراميدز أمام فيوتشر
+-  Özgür Özel'den şehit cenazesindeki provokasyona dair ilk açıklama
+-  2023'ün haberlere en çok konu olan davası belli oldu: Seçil Erzan ilk sırada
+-  Što slavni poklanjaju bližnjima za Božić? Evo popis najluđih poklona, jedan pjevač je bio posebno ‘kreativan‘ i unikatan
