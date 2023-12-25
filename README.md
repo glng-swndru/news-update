@@ -1,11 +1,51 @@
 # Latest News
--  Alia charges BIRS to improve Benue’s IGR
--  Gov Eno’s wife fetes Akwa Ibom ‘Christmas baby’ in Ikot Ekpene
--  Real Madrid'in eski stoperi geri dönüyor!
--  Milan'da Krunic gidiyor, Guido Rodriguez geliyor!
--  Mateo Kovačić Hrvatima pokazao kako slavi veliki vjernik: Evo gdje je uhvaćen za Božić
--  الشرق الأوسط ووكالة سرايا الإخبارية تطلقان دبلومًا تدريبيًا في الصحافة الحديثة
--  بطولة المناظرات الأولى في الشرق الأوسط تضع الطلبة أمام قضايا هامة
--  الشرق الأوسط.. أول جامعة أردنية تحصل على شهادة الأيزو في الأمن السيبراني
--  تعود لأكثر من 1700 عام .. اكتشاف شرائح خشبية بالصين
--  250 شهيدا و500 إصابة خلال 24 ساعة في غزة
+-  Polish man found dead in Leidschendam park may have been murdered
+-  Peloteros criollos que mostraron su luz en 2023
+-  Sarah Ferguson Joins Royal Family Christmas Walk For First Time In Years
+-  Dačić: Nasilje upotrebljavala koalicija koja sebe naziva da se bori protiv nasilja
+-  ΤΟ ΠΡΩΤΟ / ΓΑΒΡΙΗΛ
+-  En la sala de rehabilitación de CDI Caicara del Orinoco realizaron compartir navideño con pacientes
+-  Netflix: la escandalosa miniserie de tres capítulos perfecta para ver de un tirón
+-  After Swiggy, Zomato confirms biryani as India's most popular dish
+-  BCSO seeks missing Burton woman
+-  Revive los ampays que conmocionaron la farándula limeña en este 2023: Desde Jossmery y Paolo hasta el esposo de Maju Mantilla
+-  Dinar Tunisien : Taux de change des devises en Dinar Tunisien au 22/12/2023
+-  Eindelijk kogel door de kerk: vanaf december 2024 is elke nieuwe telefoon op te laden met zelfde kabeltje
+-  L’huile d’olive conditionnée, une valeur sûre
+-  المدن الصينية تسجل أبرد شهر على الإطلاق خلال ديسمبر الجاري .
+-  (بوتين) يترأس قمتي الاتحاد الاقتصادي الأوراسي ورابطة الدول المستقلة في بطرسبروغ
+-  المتظاهرون بصربيا مناهضون للحكومة يحاولون اقتحام مبنى بلدية العاصمة .
+-  للعام الثاني على التوالي مدير سابق لوكالة الأنباء الليبية يتوج بجائزة الدولة التقديرية للصحافة .
+-  اختتام منافسات بطولة ليبيا للكرة الحديدية
+-  روسيا تستدعي سفير فنلندا بسبب اتفاق الحدود الأمريكي .
+-  مكتب دعم وتمكين المرأة بوزارة الاسكان ينظم دورة تدريبية للرفع من كفاءة الموظفات .
+-  حفل اشهار المشروع الاستثماري لنادي الهلال الرياضي
+-  بمشاركة منتخبنا الوطني ، تنطلق غدا البطولة العربية لكرة السلة للمنتخبات بالقاهرة .
+-  قسم التدريب بمكتب الموارد البشرية ينظم دورة تدريبية متقدمة في برنامج مايكروسوفت إكسل .
+-  مقتل 16 شخصا في هجوم مسلح على قرية شمال نيجيريا .
+-  ( المقريف ) يناقش مع مراقب تعليم عين زارة إنشاء مؤسسات تعليمية جدِيدة لِمعالجة مُشكلة الاِكتظاظ الطلابي .
+-  ورشة عمل لأئمة المساجد وخطباء المنابر بمدينة مصراته ، حول أهمية التوعية الصحية .
+-  بدء أعمال ملتقى ومعرض ليبيا الدولي للمختبرات الطبية بحضور ( ابوجناح ) ومشاركة عربية .
+-  العابد يبحث مع مدير مكتب العمل بنغازي سير العمل بالمكتب وتدريب الباحثين عن العمل.
+-  انتخاب رئيس الاتحاد الليبي فوزي أبورجعة نائبا أول للاتحاد العربي للشطرنج.
+-  اربيش مدرباً لفريق الصقور خلفاً للمدرب المصري احمد كشري .
+-  Šapić demantuje Đilasa u vezi s Prelićem: Od sad ćemo malo drugačije da razgovaramo
+-  انعقاد ورشة عمل حول بناء القدرات الوطنية وتقييم الأثر البيئي لمشروعات مكافحة التصحر
+-  L’amélioration de la concurrence procurerait des bénéfices de 1,4 milliard de dinars (OCDE)
+-  رئيس وزراء اليابان يطالب الشركات بزيادات أكبر في الأجور خلال 2024
+-  Во октомври 100 отсто од потрошената струја била од домашно производство
+-  FUNKCIONER NARODNE STRANKE POSLAO JASNU PORUKU Na tviteru postavio dokumentarac o Majdanu i objasnio šta rade Đilasovci (VIDEO)
+-  İmamoğlu, Beşiktaş ve Galatasaray’ın ardından Fenerbahçe’yi de ziyaret etti
+-  Maharashtra: Two tigers found dead in forests of Chandrapur district
+-  Kapil Sibal says three criminal law bills don`t have any `Indian-ness` in them
+-  Невиждана криза удари водеща иконимика в Европа
+-  China to provide consular protection to Vivo employees held in India
+-  CHP sözcüsü Deniz Yücel: TRT’de eğlence programı yapanlar bize bildiri dayatamaz
+-  BREAKING: APC Releases Timetable For February Bye-Elections
+-  El PP comparte con el Rey Felipe VI el valor de nuestra democracia y constitución
+-  Tuyết rơi ngày Noel ở ngôi trường đẹp nhất nhì Hà Nội, dàn gái xinh xúng xính rủ nhau check-in
+-  Loại nồi này nhà nào cũng nên có ít nhất 1 chiếc, biết cách chọn thì dùng chục năm không hỏng
+-  Á hậu Vbiz khoe tậu căn hộ cao cấp ở tuổi 23: Ngóc ngách nào cũng "chanh sả", hồ bơi view xịn xò
+-  Người đàn ông cất tảng đá “lạ” 34kg dưới gầm giường, hóa ra ngủ trên 2.400 tỷ đồng 10 năm mà không biết gì
+-  SỐC: Lãi suất gửi tiết kiệm chỉ còn 1,9%/năm
+-  Rầm rộ loạt ảnh Lưu Diệc Phi trong tạo hình cung đấu, đẹp nao lòng nhưng bị dân tình "cấm" làm hoàng hậu?
