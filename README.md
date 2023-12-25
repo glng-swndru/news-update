@@ -1,11 +1,11 @@
 # Latest News
--  Шойгу Донецк облысындағы Марьинка қаласын басып алдық дейді. Украина бұл ақпаратты растамады
--  La vita è meravigliosa: tutto quello che c’è da sapere sul film
--  The Reality of What It Is to Have an Abortion Has to Be Brought Into Every Story
--  Bułka krótko skwitował Szczęsnego. Jaśniej się nie da
--  Bułka krótko skwitował Szczęsnego. Jaśniej się nie da
--  Chile es un país surrealista. Por Patricio Herman, Presidente Defendamos la Ciudad
--  Baldanzi Milan: il rinnovo non esclude la cessione in estate, lo scenario
--  A jednak to możliwe?! Sensacyjne wieści ws. Gamrota w KSW
--  Petro celebró la Navidad con habitantes de calle en la Casa de Nariño
--  YCP: ఎన్నికల ముందు పెట్రేగిపోతున్న వైసీపీ రౌడీ మూకలు.. కడపలో టీడీపీ నేతపై దాడి
+-  Man̄chiryāla: ఘనంగా వాజ్‌పేయి జయంతి
+-  Corona Virus: తెలంగాణలో కొత్తగా 10 కరోనా కేసులు నమోదు
+-  Kuzmić u FMP-u
+-  Mangsa banjir di empat negeri hampir 20,000
+-  شاهد.. بردية قوية على الحرة جنوب غرب تربة
+-  Božović: Pozivam sve da shvate ozbiljnost situacije, stabilnost stoji iza Mila Božovića i vizije koju smo predstavili u predizbornoj kampanji
+-  Bakı-Pirşağı qatarı niyə gecikib?
+-  Beşiktaş'ta Gedson açıklaması!
+-  Forsvarshelikopter udsendt til nødstedt redningsbåd i Hvide Sande
+-  "Netanyahu hakkındaki yolsuzluk davası Şubat 2024'te devam edecek"
