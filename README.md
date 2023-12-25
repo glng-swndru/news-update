@@ -1,51 +1,51 @@
 # Latest News
--  Two killed in Ramechhap bus-bike collision
--  Altın ufak bir düşüşle başladı! İşte 25 Aralık Pazartesi altın fiyatları
--  Ağrı İl Kültür ve Turizm Müdür Vekili, 'çocuk sporculara istismar' suçlamasıyla tutuklandı
--  6 عوامل يجب وضعها في الاعتبار عند تقييم إدارة الشركات
--  10 أخبار لا تفوتك هذا الصباح.. نتائج ترشيح كلية الملك خالد العسكرية وشروط استخدام حافلات النقل العام
--  Faktencheck: Wie viel Eiweiß ist gesund?
--  Bu Hafta (25-29 Aralık) Halka Arz Var Mı? Yılın Son Haftasında Halka Arz Olacak Şirketler
--  Sağlık Bakanlığı'nda Gece Yarısı Operasyonu
--  Jopa aavemaisen hiljaista, kertoo poliisi joulunvietosta
--  Jopa aavemaisen hiljaista, kertoo poliisi joulunvietosta
--  Anthony Albanese: Touching way PM spent Christmas Day - as he shares a powerful message for millions of Australians 'doing it tough'
--  Loto de Noël de la FDJ. Plus d'un million de grilles gagnantes : les résultats du tirage
--  Мантуров рассказал о росте производства автомобилей в 2023 году
--  Dzeko'dan G.Saray ve Icardi'ye Şok Yanıt
--  Sri Lanka to observe two minutes silence to remember tsunami victims
--  Christmas Holidays: Ragunan Zoo Sees Increase in Visitors Compared to Last Year
--  ยังรอด! ‘บุ้ง-ตะวัน’ ศาลเลื่อนอ่านคำสั่งถอนประกัน เป็น 26 ม.ค. 67
--  Милан завършва 2023 година с антирекорд
--  Pour Noël, quatre jours d'animations au château de Coat-an-Noz, à Belle-Isle-en-Terre
--  Deň blbec pre Neapol. Nielenže prišiel o Slováka Lobotku, tréner musel cestovať zo zápasu na štedrú večeru taxíkom
--  В Байкальской рифтовой зоне произошла серия землетрясений
--  Menag Janjikan Tunjangan Inpassing Akan Cair untuk 98.972 Guru Madrasah Non-ASN, Begini Penjelasannya
--  Проживающие в Грузии католики отмечают Рождество Спасителя
--  부동산경영학회, 송석준 의원과 국회 학술 세미나 개최
--  Fighter: Hrithik Roshan और Deepika Padukone स्टारर 'फाइटर' का नया पोस्टर हुआ जारी, 25 जनवरी को सिनेमाघरों में दस्तक देगी यह एरियल एक्शन से भरी फिल्म (View Poster)
--  Vuoden täyttävä Hämeen poliisikoira Bono tekee jo täysiä työpäiviä ja tiskaa lautaset kotona – "Siitä taitaa tulla aika iso kaveri"
--  Christmas 2023: Alia Bhatt Shares Happy Pics With Ranbir Kapoor, Soni Razdan, Ayan Mukerji and Family From Xmas Celebration (See Post)
--  打鼓嶺堆填區男子被機器夾傷 昏迷送院搶救
--  چوہدری شجاعت کے صاحبزادوں نے پھوپھیوں کی گرفتاری کے لیے پولیس بھیجی، مونس الٰہی
--  الأمطار تضرب موعداً جديداً مع العراقيين نهاية الاسبوع
--  Hamas, raid sul campo profughi di Al-Maghazi: almeno 68 morti
--  TRANSFER HABERİ - Avrupa devleri derbide Fenerbahçe'nin yıldızını izledi!
--  Κουρμπέλης: «Ο Ολυμπιακός έχει στόχο να χτυπήσει την πόρτα της Τράμπζονσπορ», σύμφωνα με τους Τούρκους
--  Sérvia frustra tentativa de "revolução colorida"
--  Earthquake In China: चीन में भूकंप से मरने वालों की संख्या बढ़कर हुई 149, दो लोग अब भी लापता
--  พระเอกดัง ยิ่งฮอต! หลังพรหมลิขิตจบ คิวยาวถึงปีหน้า เผยโอกาสรีเทิร์นรัก อดีตแฟนนักร้อง
--  IP advierte tener cautela ante mejora en economía
--  13 Yaşındaki Çocuk Arkadaşını Bıçakladı
--  Cenazeye giderken dereye savrulan otomobildeki karı- koca hayatını kaybetti
--  Konyaspor maçında Galatasaray'dan 2 oyuncu yok
--  Adana'da kayıp olarak aranan Mustafa Hakkulu'nun dere yatağında tabancayla vurulmuş cansız bedeni bulundu
--  Ankara'da 'selam alıp verme' kavgası: 5 yaralı
--  Doğu Anadolu kara teslim: Yollar kapandı, çok sayıda kaza meydana geldi
--  Meyve bıçağıyla cinayet! Katil: 16 Maktul: 17 yaşında!
--  Медведев высказался о декларации ЕС по гарантиям Украине
--  Amasya'da yolcu otobüsü çamura saplandı: 6 yaralı
--  देश की खबरें | कोविड-19 : भारत में 628 नए मामले, उपचाराधीन मरीजों की संख्या बढ़कर 4,054 हुई
--  Derbi bitti, yankıları sürüyor! Hem Fenerbahçe'ye hem Galatasaray'a demediklerini bırakmadılar "Bunlar mı şampiyon şimdi?"
--  Líder da Jihad Islâmica está no Egito em missão diplomática
--  VIDEO Luka Dončić iznenadio suigrače za Božić, darivao ih je Mercedesima
+-  Gökyüzünün lideri Türkiye'ye dev proje! Başkan Erdoğan'ın katılımıyla açılıyor
+-  15 uzman yardımcısı alınacak! Şartlar açıklandı
+-  Minibüs bariyere çarptı! 15 yolcu yaralandı
+-  Önemi dün gece yeniden anlaşıldı! Fred'siz Fenerbahçe kazanamıyor
+-  Develi Belediyespor parkeden galip ayrıldı
+-  1360 personel alınacak! Karar Resmi Gazete'de yayımlandı
+-  Hakkari'de yoğun kar yağışı: 32 yerleşim yerinin yolu ulaşıma kapandı
+-  Edirne'de devrilen traktör römorkundan saçılan 5 ton ayçiçeği trafikte aksamaya neden oldu
+-  Esnaf ortağı tarafından kamyonetinde silahla başından vurulan kişi hayatını kaybetti
+-  "Galatasaray'dan korkuyorlardı..." Arda Kardeşler yorumu sonrası Fenerbahçeli futbolcular için söyledikleri tansiyonu yükseltti!
+-  Soccerladuma | Mathe: Riveiro Should Help Saleng
+-  [포토] 화이트 크리스마스에 눈사람 만드는 어린이들
+-  [포토] 눈 쌓인 스케이트장
+-  [포토] 눈 내리는 크리스마스
+-  CHIESA FOR PRESIDENT, RINNOVO A TEMPO, RUOLO CENTRALE MA C’È UN RISCHIO
+-  แนวถนัด! ‘นายกฯ’ ธีมเนคไทเขียว ถุงเท้าแดงข้าง-เขียวข้าง เมอรี่คริสต์มาสสื่อ
+-  [포토] 화이트 크리스마스 스케이트
+-  [포토] 눈오는 성탄절의 스케이트
+-  Pourquoi les valeurs minières n'ont pas profité de l'envolée des cours de l'or en 2023
+-  Afghan schoolgirls are finishing sixth grade in tears. Under Taliban rule, their education is over
+-  [포토] 한국의 눈 만끽하는 관광객들
+-  Shiba Inu Burn Rate Soars 5000% As Whale Reshuffles 4 Tln SHIB, What’s Happening?
+-  Binance Announces Special Listings Of ADA, AVAX, DOGE, LINK, MATIC & Other Crypto
+-  KyberSwap CEO Announces 50% Workforce Reduction Amid Security Exploit Fallout
+-  China OKs 105 online games in Christmas gesture of support after draft curbs trigger massive losses
+-  Manchester United sells 25 percent of its shares to INEOS
+-  2023 legjobb társasjátékai – Böjti szerint
+-  Sudakov, anche il Chelsea e lo United su di lui
+-  ‘43%→37%→35%’ 지친 세르비아 외인, 김종민도 걱정 “이렇게 많이 때린 적이 없다 보니…” [MK김천]
+-  Una transición liderada por los ciudadanos frente a una COP28 histórica pero insuficiente
+-  Nächstenliebe: Oberhausener auf Afrika-Reise: „Uns wurde ganz anders“
+-  Rob James - Exploring the mystery of Christmas Day
+-  Der Stadtrat tagte: Leipzig bekommt einen Umweltgerechtigkeitsatlas
+-  "Seltsamer Gesangsstil": Cher hasst ihre eigene Stimme!
+-  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
+-  Soziales: Hausgeburt: Amelie aus Voerde kam auf der Couch zur Welt
+-  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
+-  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
+-  Lego Masters : qui est Aveline Stockart, la nouvelle juge de l'émission de M6 ?
+-  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
+-  Stórslagurinn í Tyrklandi stóðst alls ekki væntingar
+-  Oh, what a feeling: Selectors don’t always get it right, but Warner gave them just what they wanted
+-  Mercato : PSG, Real Madrid… Quel est le meilleur choix pour l’avenir de Mbappé ?
+-  Merry Christmas from Wrexham.com!
+-  OVO JE PRAVA PRIČA O ČOVEKU KOJI JE STVORIO FERARI Bio je tiranin opsednut ženama, hvalio se da je bio sa više od 3.000 njih
+-  [포토] 눈내리는 크리스마스
+-  충남시·군의회의장협 정례회 성료
+-  덕산읍 발전협의회 등 진천군 온정의 손길 잇따라
+-  대전시 2년 연속 국비 4조시대
+-  “서산·태안 국비 5천억 시대 개막”
