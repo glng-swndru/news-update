@@ -1,11 +1,51 @@
 # Latest News
--  Yılbaşı sofrasından kızartmayı çıkarın
--  알리 공습에 규제까지?…자율규제 무색해진 이커머스 ‘울상’
--  2023 Winners and losers: Xiaomi
--  Pide Papa a políticos de América solucionar migración
--  Lideran tres países el éxodo migrante
--  81-й день войны в Израиле. Хронология событий
--  كيف تؤمن محادثاتك في واتساب ويب بكلمة مرور
--  EastEnders fans horrified by Phil Mitchell’s method of stuffing a turkey
--  Бритни Спирс попыталась избавиться от купальника на новом видео
--  (VIDEO) „Kaže sve je u redu, prihvatamo ubedljivost rezultata“: Vučić, Mali i Lepa Brena
+-  Regresa un vuelo de British Airways de Delhi a Londres tras una alerta de incendio
+-  U podgoričkom naselju Siti kvart izbio požar u podrumu kafića
+-  상주제일장례식장 허일진 대표, 상주시에 1000만원 기탁
+-  구로구, 내년 모든 경로당에 비상호출벨 설치
+-  강서구, 치매관리사업 성과평가 서울특별시장상(대상) 수상
+-  이기재 양천구청장 “소통과 혁신의 가치로 기분 좋은 변화 이끌어갈 것”
+-  정선군, '2023년 체육인의 밤 행사' 개최
+-  "더 이상 아파도 참지 마세요" 관악구, 저소득주민 국민건강보험료 지원 대상 확대
+-  남면행정복지센터-자미원 백운사, 동지팥죽 나눔행사
+-  정선군, 330억 투입해 선제적 자연재해예방 나서
+-  정선 가리왕산 케이블카, 국내 대표 ‘해돋이 명소’ 등극
+-  상주 ㈜토리식품, 동지맞이 팥죽 나눔 펼쳐
+-  상주시 해동건축사 대표 정용호, 연탄 5000장 기탁
+-  상주시 공공산후조리원 개원식 개최
+-  상산신문사&(사)수와진의 사랑더하기 생필품 기탁
+-  법무부 청소년범죄예방위원 상주지구위원회 쌀 기탁
+-  상주시, 탄소중립 생활실천 2년 연속 우수
+-  문경관광진흥공단, 희망 2024 나눔켐페인 참여
+-  상주모서 김이봉님, 5년간 모은 동전 성금 기탁
+-  문경시, 경북도 시군 가축방역평가서 대상 수상
+-  상주시, 재난 대응용 드론 기증받다
+-  상주시, 경북도 산림자원분야 종합평가 우수상 수상
+-  ㈜HCN 화재대피용 방연마스크 상주시 기탁
+-  우주항공 산업계·학계 종사자 및 대학(원)생 10명 중 9명, “우주항공청 설립 요구”
+-  반려동물 유모차가 아기용 '유모차' 판매량 추월
+-  조원태 "아시아나 합병에 100% 걸었다" ... EU 경쟁국, 합병에 비관론
+-  Atropella a quince personas y se da a la fuga en Melilla
+-  Nyale Institute calls attention to reproductive justice for child survivors of sexual violence
+-  서울 지하철 노선도 디자인 40년 만에 변경
+-  겨울엔 더 춥게 느껴지는 ‘탈모’…‘이 습관’이 더 악화시킨다
+-  أهم سلاح يعتمد عليه ريال مدريد في بداية العام الجديد
+-  일본, 중국 수출 막힌 가리비 한국 수출 확대키로
+-  Mystery of Brit millionaire's kidnap – fake bomb vest and glam girlfriend
+-  Egypt in ceasefire talks with Hamas as 100 killed in Gaza on Christmas Eve
+-  Pope Francis Decries War Profiteers, Calls For Peace in Christmas Blessing
+-  I was a Miss England finalist and glamour model – now I drive a 44-tonne lorry for a living… I want to break barriers
+-  I was a Miss England finalist and glamour model – now I drive a 44-tonne lorry for a living… I want to break barriers
+-  외투 벗어두고…온실 속 식물과 함께 하는 크리스마스
+-  열받은 미국, 동맹국 함대 총집결시켜…머스크 “믿고 운항 재개한다”
+-  ¡Le gana la emoción! Santiago Núñez llora al decirle a su familia su llegada al futbol mexicano
+-  У импортеров топлива в Абхазию возникли проблемы с поставками нефтепродуктов из РФ
+-  Charities lead calls for 24/7 system of ‘Italian-style’ mental health support for Scots
+-  'Será un año complicado para el campo'
+-  Avanza caravana migrante en Chiapas durante Navidad
+-  NBS Bank, WFP in social cash transfers to Phalombe Cyclone Freddy victims
+-  Armisa Kuč: Ovo je najljepša godina moje karijere
+-  Fuertes nevadas y ventarrones: Tormenta de nieve complica la movilidad en el Medio Oeste de EE.UU. en Navidad
+-  Netanyahu'dan sonra Herzog'dan da soykırım sevinci! Obüs mermisine "size güveniyorum" mesajı
+-  Rus uçakları İdlib'i vurdu: 5 ölü
+-  Papa Francisco llama a resolver “el doloroso fenómeno migratorio” en América
