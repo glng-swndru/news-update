@@ -1,11 +1,51 @@
 # Latest News
--  El papa celebra la misa del gallo con el "corazón" en Belén, donde rugen las armas
--  FacebookとInstagramでは「親パレスチナ」の投稿が組織的に削除されているとヒューマン・ライツ・ウォッチが報告
--  Weather Latest Update: తెలంగాణలో పెరుగుతున్న చలి తీవ్రత- ఈ జిల్లాల్లో సింగిల్‌ డిజిట్‌కు పడిపోతున్న ఉష్ణోగ్రతలు
--  Guppedanta Manasu December 25th Episode:వసుధార, అనుపమలను కాపాడిన అజ్ఙాత వ్యక్తి – రిషి డెడ్ బాడీ హాస్పిటల్లో ఉందని ఫోన్ చేసిన వార్డు బాయ్
--  Parineeti Chopra calls Raghav Chadha her "Santa" in her latest Instagram post
--  IND vs SA: 8 सीरीज.. 7 कप्तान.. 31 साल के इतिहास में छप सकता है रोहित का नाम
--  ¡Enciende la música! Spotify crea playlist para celebrar esta Navidad 2023
--  दवा का बाप हैं ये सरसों से भी छोटे बीज, कई बड़ी बीमारियों का कर देंगे खात्मा
--  Sri Sathya Sai Dist.: మడకశిర తహసీల్దార్ ముర్షావలిపై వేటు
--  NOVOGODIŠNJA ČAROLIJA, PA SNEŽNA KATASTROFA! Evo kakvo je vreme pred nama: Ovog datuma stiže obrt, a sa njim i DEBELI MINUS!
+-  عاجل.. بدء اختبارات منتصف الفصل الدراسي الثاني الأحد القادم
+-  Navieras japonesas deciden evitar el mar Rojo debido a los ataques de los hutíes
+-  성탄 전야 서울 번화가에 30만 인파…‘밀집 공포’에 ‘안전 총력전’
+-  গাজায় যুদ্ধ বন্ধের দাবিতে যুক্তরাষ্ট্র-যুক্তরাজ্যে বিক্ষোভ
+-  Gaza War Makes For Sombre Christmas In The Holy Land
+-  Indian plane passengers held in France probe could leave Monday
+-  Gaza war makes for sombre Christmas in the Holy Land
+-  Pope kicks off Christmas celebrations in shadow of war
+-  Palestinians feel ‘no joy’ as Israel bombs Gaza on Christmas
+-  Serbia opposition MP vows to keep up hunger strike
+-  Ukrainians move Christmas to Dec 25 to be ‘far from Moscow’
+-  แวดวงคนกีฬา วันที่ 25 ธันวาคม 2566
+-  Philippine actions in South China Sea ‘extremely dangerous’, reports Chinese state media
+-  Ярославцы продолжают рассказывать о бюджетном украшении города
+-  ลุงโฉลกตอบ ‘เชื่อตัวเอง’ หลังมีคนถามเชื่อใครดีระหว่าง ‘คุณพิชัย จาวลา’ กับ ‘ลุงโฉลก’
+-  Happy New Year! Ini Link Twibbon Tahun Baru 2024 Kece yang Bisa Digunakan Biar Nggak Ketinggalan Zaman
+-  Heroes, zeros from Jets’ win vs. Commanders: Trevor Siemian engineers final drive
+-  特斯拉瑞典罷工案上訴被駁回，法院：郵差可以不寄送車牌
+-  Опрошенные юристы назвали снижение безопасности данных риском применения ИИ в праве
+-  Gagasan Cak Imin 40 Kota Selevel Jakarta, Tim Visi Misi Amin: Bukan Membangun Kota Baru, Tapi....
+-  인제 부사관 심폐소생술로 시민 구해 훈훈한 감동
+-  영월 밤하늘에 뜬 ‘크리스마스 이브의 선물’ 드론라이트쇼 호평
+-  평창영월정선축협 올해 한우전문경영인 양성과정 수료식
+-  평창 수하리 보행로 설치 공사 완료, 주민 통행불편 해소
+-  정선 국도 42·59호선 공사 구간 3곳 26일 개통
+-  국내 2호 스포츠가치센터 원주 건립 탄력…국비 3억원 증액
+-  상지대 디지털새싹캠프사업단 교수진, 교육부장관 표창 수상
+-  Siapa Roy Suryo? Mantan Menpora yang Soroti Gibran di Debat Cawapres
+-  (주)푸른바다, 해외 수출 계약…미국·인도네시아·중국 등에 푸른꽃게 공급
+-  동국대 듀이카, 2024학년도 신입생 대상 친구추천 장학금 지원
+-  음경택 안양시의원 "국회의원·정당 생색내기 현수막 정치 즉각 중지돼야"
+-  김도현 안양시의원 "보훈단체 지원 ‘회원규모보다 사업 중심’으로 전환 바람직"
+-  김정중 안양시의원 "안양일번가 지하도상가 임대료 지원 방법 마련해야" 집행부에 요구
+-  국힘 안성시의원, 한국산단 안성사업단 방문 특화단지 조속 추진 지원 약속
+-  김정우 전 의원, 군포 예비후보 등록 총선 필승 채비 돌입
+-  부천 범안복지관·주왕교회, 홀몸노인 따뜻한 겨울 ‘해피 크리스마스’ 진행
+-  화성시, 지방규제혁신 우수지자체 시상식서 행안부 장관 표창
+-  구리 빛과소금의교회, 갈매동 취약계층 후원품 50박스 전달
+-  구리지역 5개 초교 환경동아리 참가 지원사업 최종성과 보고회 가져
+-  한강수계관리위, 2024년 지출 예산 5453억 원 국회 최종 확정
+-  의정부시, 워킹그룹 발족 GTX-C 개통 대비 교통대책 마련
+-  배강욱 예비후보, ‘화성형아이키움터’ 방문 아이들 교육 강조
+-  시흥 농기센터, 지역 농산물 활용 농가공개발 3건 기술이전 협약 체결
+-  성남수정경찰서, 자율방범대 위촉장 수여식 가져
+-  ㈜지엔에스테크, 포천시에 이웃돕기 성금 2500만 원 기탁
+-  포천시교육재단, 올해 900여명에 주거복지지원 장학금 수여
+-  손세화 포천시의원·관광재단, 원주 ‘뮤지엄 산’·‘간현관광지’ 벤치마킹
+-  В Приморье представили проект новой мелиоративной системы
+-  ‘พาณิชย์’ เผย 4 เทรนด์อาหารเพื่อสุขภาพและผลิตภัณฑ์ออร์แกนิกที่มาแรงในแคนาดา
+-  Kabar Terkini Kebakaran Tungku Smelter PT ITSS, 4 Korban Tewas Adalah Tenaga Kerja Asing
