@@ -1,11 +1,11 @@
 # Latest News
--  NK afstanden schaatsen: zo worden de tickets voor de EK afstanden verdeelt
--  ¡Extraño a esos hijos pequeños!
--  Un millón de pasajeros británicos menos que antes de la pandemia
--  Wild Christmas weather, flash floods hit NSW
--  More storms and rain for Queensland on Boxing Day
--  కొందరికే సుజలం !
--  Medojević: Imovina Željezare obećana kao poklon duvanskom tajkunu!
--  Проверяват сигнали за корумпирани полицаи в Пловдив
--  Mikijelj: Radimo na koalicionom sporazumu, Budvi nisu potrebni vanredni izbori
--  पार्टी की 138वीं वर्षगांठ के लिए कांग्रेस तैयार; 28 दिसंबर को नागपुर में मेगा रैली
+-  Шойгу Донецк облысындағы Марьинка қаласын басып алдық дейді. Украина бұл ақпаратты растамады
+-  La vita è meravigliosa: tutto quello che c’è da sapere sul film
+-  The Reality of What It Is to Have an Abortion Has to Be Brought Into Every Story
+-  Bułka krótko skwitował Szczęsnego. Jaśniej się nie da
+-  Bułka krótko skwitował Szczęsnego. Jaśniej się nie da
+-  Chile es un país surrealista. Por Patricio Herman, Presidente Defendamos la Ciudad
+-  Baldanzi Milan: il rinnovo non esclude la cessione in estate, lo scenario
+-  A jednak to możliwe?! Sensacyjne wieści ws. Gamrota w KSW
+-  Petro celebró la Navidad con habitantes de calle en la Casa de Nariño
+-  YCP: ఎన్నికల ముందు పెట్రేగిపోతున్న వైసీపీ రౌడీ మూకలు.. కడపలో టీడీపీ నేతపై దాడి
