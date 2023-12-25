@@ -1,51 +1,11 @@
 # Latest News
--  Oti Mabuse gives birth! Dancing on Ice Judge welcomes first child with husband Marius Lepure as the couple share a sweet snap of the new arrival on Christmas day
--  [오피셜] ‘감독까지 넘어질정도’... 심하게 나가떨어진 치미카스, 결국 쇄골 골절
--  "عن إنجازات المقاومة"... رسالةٌ "مهمّة" من السنوار!
--  مسلسل (عائلة سيمبسون) يكشف فضائح عالم الرياضة
--  الضمان: 11 ألف اصابة عمل بالاردن 2023
--  جورجينا رزق ووليد توفيق يكشفان أسراراً مهمة
--  أصالة تُرزق بحفيدتها الأولى
--  "รวมไทยสร้างชาติ" แถลงจุดยืนแก้ไขรัฐธรรมนูญ ต้องไม่แตะ หมวด 1-2
--  "วิษณุ"ชี้ ร่าง พ.ร.บ.กู้เงิน 5 แสนล้านไม่ผ่านวาระแรก รบ.ต้อง "ยุบสภา-ลาออก" เพื่อรับผิดชอบ
--  מה הישראלים הכי אוהבים להזמין? Wolt ישראל מסכמת שנה
--  מס הכנסה האריך למאות אלפי שכירים את תיאום המס ל-2024
--  חברת Claroty ממנה את מיה פולמן אבנרי לסגנית נשיא לניהול מוצר
--  "בלי סמי בוראר ובעשרה שחקנים קשה לעמוד מול מכבי חיפה"
--  Eerie abandoned Christmas town where tourists ate Chicken à la North Pole and stayed at Santa Claus Inn left to rot
--  דולגופיאט מעמיד למכירה פומבית את מדליית הזהב בה זכה ב-7 באוקטובר
--  От ЦСКА-София честитиха празниците на привържениците си
--  트레이드설 불거진 김하성…"올 시즌 기대 이상 활약"
--  Oti Mabuse gives birth! Dancing on Ice Judge welcomes first child with husband Marius Lepure as the couple share a sweet snap of the new arrival on Christmas day
--  “圧倒的に好評”ローグライト弾幕アクション『Tiny Rogues』大型アプデ配信開始されプレイヤー急増。弾幕渦巻くダンジョンに挑み、強化を繰り返すアリーナアクション
--  Aston Villa liderliği eliyle itti. Kenan Yıldız tarihe geçti. PSG Mbappe ile 3 puana uzandı
--  जम्मू कश्मीर में इस साल आतंकियों से लोहा लेते 31 जवानों ने दी शहादत, पुंछ-राजौरी में 6 एनकाउंटर में 21 सैनिकों की गई जान
--  BDI: Ziele für Güterverkehr auf Schiene "illusorisch"
--  Buschmann für Bekenntnis zu Israel bei Einbürgerungen
--  Tumulte bei Protest gegen mutmaßlichen Wahlbetrug in Belgrad
--  Diebstahl von Wärmepumpen nimmt zu
--  E-Auto-Prämie: Kretschmer sieht bei Aus Vertrauen beschädigt
--  رسالة مهمّة للسنوار عن إنجازات المقاومة ضد قوات الاحتلال
--  Fighter New Poster : 'फायटर'चं नवं पोस्टर आऊट! हृतिक, दीपिका अन् अनिल कपूरच्या लूकने वेधलं लक्ष
--  تحسّباً لحربٍ مع "حزب الله".. ماذا فعل الجيش الإسرائيليّ؟
--  Χριστούγεννα: Το έθιμο του τηγανισμένου συκωτιού, στις εκκλησίες
--  «Η βραδιά ανήκει στον Βασίλη» – Έτσι αποχαιρέτησαν τον Καρρά από τις πίστες [βίντεο]
--  【新NISA、私ならこう使う#5】月30万円投資で、つみたて枠・成長枠をフル活用！ インデックスファンド・ETFで利益を確実に
--  Nahidə Babaşlı 10 dəqiqənin içində boşandı
--  Güvenlik güçlerine hakaret eden şüpheli Antalya'da yakalandı
--  晨光追擊│ 「精算暴雪」形勢上風
--  Pasterka w Kościele Matki Boskiej Częstochowskiej w Pleszewie [ZDJĘCIA]
--  Σμιθ: «Δεν χάνεις την ευκαιρία να παίξεις για τον καλύτερο Ευρωπαίο προπονητή»
--  Temba Bavuma feels India’s strong bowling attack can “nullify” SA’s advantage
--  Burhaniye’de zincirleme kaza: 6 yaralı
--  Govt claims 290 Baloch protesters released from jail, police custody
--  Naučnici utvrdili kako se precizno meri nasleđeni rizik od hipertenzije
--  Salaar And Dunki: किंग खानचा डंकी की प्रभासचा सालार? कोणता सिनेमा पैसा वसूल?
--  Вучич пригласил посла Росси в Сербии обсудить ночные беспорядки
--  CHP'li isimden asgari ücret çıkışı
--  Soccerladuma | European Super League CEO: Unnamed Clubs Want To Play
--  Καρράς: Όταν έγινε σύνθημα των Ολυμπιακών (vid)
--  Hasan Mushrif on ABP C Voter survey : अनेक पोल येऊन गेले, पण नरेंद्र मोदींना पंतप्रधान होण्यापासून कोणी अडवू शकत नाही; हसन मुश्रीफांचा विश्वास
--  เทศบาลตำบลหนองแฝก จัดงานใหญ่ส่งท้ายปี
--  ΕΞΕΛΙΞΗ: Δήλωση Πριέτο για ανανέωση Γκερέρο!
--  فيديو: مخيمات الفلسطينيين في سوريا
+-  An Introduction to Doing Business in China 2024 – New Publication Out Now
+-  Миллат келажагини гўзал хулқли, илмли, тарбияли авлод яратади
+-  Йирик инвестициялар самараси
+-  Янги йил байрами – миллий ва умуминсоний қадрият
+-  “Оила судьялари” ташкил этилади
+-  Табиий ва суюлтирилган газ таъминоти бўйича 121 та мурожаат келиб тушди – Энергетика вазирлиги
+-  Ўсимликлар карантини ва ҳимояси: 395 минг гектардан ортиқ майдон учун агрокимёвий хариталар ишлаб чиқилди
+-  Ranbir Kapoor and Alia Bhatt show daughter Raha`s face for the FIRST time, watch
+-  Maharashtra: Beed records three new cases of coronavirus
+-  PDP claims Mehbooba put under house arrest ahead of scheduled visit to Poonch
