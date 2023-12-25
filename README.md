@@ -1,51 +1,11 @@
 # Latest News
--  Traían 70 'latas' de mariguana presuntos narcomenudistas
--  2024 Import-Export Tariffs in China
--  קטש: "הפציעה של בולדווין פחות חמורה ממה שנראתה. מאייר כוכב"
--  הסדרות הטובות של 2023 - מקומות 40-31: עמק האושר, נפילת בית אשר, אור קטן
--  Bareilly News: सूबे के 17 हजार व्यापारियों ने दिए सुझाव, अब शासन से वार्ता
--  Μενδώνη για Βασίλη Καρρά: Ηταν ένα φαινόμενο που δεν κατατάσσεται και δεν ορίζεται
--  반도체 AMHS 특허출원 증가세…세메스 등 韓 기업 4개사 상위 포진
--  2024 عام استثنائي في أجندة الأردن
--  Prayagraj News: प्राण प्रतिष्ठा समारोह के लिए रोडवेज चलाएगा अतिरिक्त बसें
--  Bareilly News: कानून व्यवस्था बिगाड़ रहे छुट्टा पशु, ढाई हजार खजुआई में ही घूम रहे
--  „Optužbe da je Zapad iza protesta novi pokušaj Rusije da udalji Srbiju“: Njujork Tajms o protestima u Beogradu
--  More storms and rain for Queensland on Boxing Day
--  Орешкин рассказал о преимуществах России в платформизации отраслей
--  Four murdered in two different incidents in Shikarpur
--  Combaten incendio en el Parque Nacional Henry Pittier
--  محافظ الأحمدي: جهود رسمية وأهلية حثيثة لتحقيق الأمن الغذائي في البلاد
--  الملك تشالز الثالث يدعو للسلام في أول رسالة بمناسبة «عيد الميلاد» منذ تتويجه
--  «الخارجية»: نتابع ملابسات اختفاء مواطن في «الأنبار»
--  Bareilly News: शिवेंद्रनाथ और जसकरन ने नई विधि अपनाई, गन्ने की पैदावार बढ़ाई
--  Prayagraj News: ट्रक की डिग्गी में रखा 1.10 लाख रुपये लेकर भागा परिचालक
--  Le cayeron a otro 'parking' navideño en San Miguelito
--  ¡Es un crack! Igor Lichnovsky de América construirá estadio para niños en Kenia
--  Azerbaijan's insurance premiums, payments grow in 11M2023
--  My hair wasn’t always so long and thick – I invented my own routine to transform it including a $2 supermarket buy
--  SCHOOL COLLEGE में EWS ADMISSIONS पर दिल्ली हाई कोर्ट का फैसला पढ़िए, आय प्रमाण पत्र विवाद
--  Sindh governor distributes blankets among deserving people
--  Ελληνορθόδοξο Ορφανοτροφείο της Πριγκήπου: Το μεγαλύτερο ξύλινο κτήριο της Ευρώπης καταρρέει!
--  俄羅斯反對派領袖納瓦尼 被囚禁在近北極圈監獄
--  CM Baqar suspends Deputy Director Agriculture Extension Qambar-Shahdadkot
--  Icatsin capacitará para el trabajo en nuevas industrias internacionales que llegan a Sinaloa
--  Zemljotres pogodio Hrvatsku
--  SPEKTAKULARNA EPIZODA POTERE: Tragačica Milica bila samo statista a student Veljko OVIM POTEZOM sve RASPAMETIO, evo šta je uradio
--  Bareilly News: रुविवि का हैप्पीनेस सेंटर बताएगा जीवन को खुशहाल बनाने के नुस्खे
--  José Luis, el joven peregrino que murió camino a la Basílica, ‘regalará vida’ a más 76 personas
--  اللجنة الأمنية العسكرية بمأرب: سنتعامل بكل قوة وحزم مع كل من تسول له نفسه المساس باستقرار المحافظة
--  Menhub Budi Karya Sumadi Klaim Lonjakan Pergerakan Masyarakat di Puncak Pertama Libur Natal Masih Terkendali
--  CM Baqar visits churches to mark Christmas celebrations
--  في ذكرى حقوق الإنسان .. آهات ومواجع وآمال
--  Pengunjung Monas Saat Libur Natal 2023 Mencapai 36.713 Orang
--  Орешкин заявил о неустойчивости экономик Глобального Севера
--  Hausmittel: So einfach verschwinden Tierhaare in der Waschmaschine – wer hätte das gedacht?
--  Археологи нашли в Китае 28 гробниц времен династии Шан
--  UŽAS NA FRONTU ZA BOŽIĆ: Poginulo 108 vojnika iz Avdijivke, dobili odsustvo za praznik, ali komanda napravila KOBNU GREŠKU
--  MILJKOVIĆI POSLE DUŽEG VREMENA NA OKUPU! Luna i Marko napokon ZAJEDNO u istom kadru: Fotka govori više od HILJADU reči (FOTO)
--  Broncos releasing safety Kareem Jackson, source says
--  Taylor Swift shares Christmas with Travis Kelce as she attends Chiefs game in Kansas City
--  Policeman martyred, another injured in ‘accidental’ bullet
--  Bareilly News: गिरजाघरों में आराधना, शहर भर में उल्लास
--  Правительство Турции разрешило безвизовый въезд для граждан ОАЭ, Саудовской Аравии и еще 4 стран
--  Ex-MPA Nusrat Sehar Abbasi quits politics
+-  أضافت وظائف جديدة.. شركة المياه الوطنية تعلن عن حاجتها لمئات الموظفين
+-  عاجل..4 أيام قادمة.. الدفاع المدني يطلق عدة تحذيرات لجميع سكان المملكة
+-  مواجهات مسلحة بين ميليشيا تابعة لمقتدى الصدر والحشد الشعبي في العراق
+-  واتسآب يطرح واجهة جديدة مشابهة لإنستغرام.. تعرف عليها
+-  POJAVILE SE FOTKE JANJUŠA DOK GA IZVODE IZ ELITE Voditeljka u programu uživo saopštila tragične vesti
+-  Nora Istrefi me këmishë nate në darkë me shoqërinë
+-  Cak Imin: Dulu Kita Dukung IKN Harapannya Ada Investasi Besar Masuk
+-  Serbian police crackdown on demonstrations following snap election
+-  '미녀 파이터' 심유리, 챔피언 반납… 박정은, 잠정 챔피언으로 타이틀전
+-  (여자)아이들 민니, 반가운 손인사
