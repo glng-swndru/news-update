@@ -1,11 +1,11 @@
 # Latest News
--  [ŽT] Visiškas košmaras Rusijai. Skelbiama, ką numušė Ukraina
--  Rusijos armija virsta žygiuojančiais batalionais, primenančiais Antrąjį pasaulinį karą
--  [ŽT] Skelbiama apie Ukrainos kariuomenės „demobilizaciją“. Kas nutiko
--  Medvedevas grasina NATO: „jei kuri nors išprotėjusi šalis nuspręs Ukrainoje...“
--  Mantienen vigilancia en ríos y playas durante fiestas de fin de año
--  Украина жанг майдонида тактикани ўзгартирмоқда – ОАВ .
--  Arnavutköy’de 87 kaçak göçmen yakalandı
--  Pljušte reakcije na božićnu čestitku predsjednika Zorana Milanovića
--  متقاعدون عسكريون: نقف خلف الملك في مواقفه المساندة للفلسطينيين
--  Киев заявил о планируемом запуске «коалиции» по поддержке ВСУ в Париже
+-  Aumento do Bolsa Família ajudou a puxar o crescimento do PIB em 2023
+-  Pasa Duarte Navidad en el penal
+-  Coronation Street’s Peter Barlow’s exit finally revealed as Carla drops a Christmas bombshell
+-  Rusija tvrdi da je osvojila ‘grad duhova’: ‘Naše snage su u gradu’
+-  الكاف يكشف عن مواعيد التصفيات الإفريقية المؤهلة لكأس إفريقيا بالمغرب
+-  Madımak Katliamı’nda zaman aşımı kararının gerekçesi açıklandı
+-  Lahtelaisen Gunilla Revon joulu alkoi jo syksyllä – sesonkiin valmistautuminen vaatii kukkakauppiaalta paljon käsityötä
+-  Aussies anticipated to spend $24 billion at Boxing Day sales
+-  LIVE | Israël doodt Iraanse elite-militair in Syrië: ‘Een zeer ervaren adviseur’
+-  Ukraine celebrates Christmas on December 25 for the first time
