@@ -1,51 +1,51 @@
 # Latest News
--  패션업계, '트렌드' 이끄는 2030 여성 모시기 경쟁
--  Bäume sicher fällen mit Seilwindenunterstützung #baumfällen #forst
--  Parte megacaravana de migrantes
--  Así es nombrado Santaclós por el mundo
--  Una Navidad diferente; películas que son, pero no parecen
--  भोजपुरी गाना सुनकर मंच पर चढ़े मुखिया जी… उड़ाए नोट, डांसर के साथ लगाए ठुमके
--  मध्य प्रदेश की मोहन सरकार के मंत्रियों की लिस्ट, List of ministers of Madhya Pradesh
--  INDIA: नीतीश ने नाराजगी से किया इनकार, कहा, ‘हमें नहीं चाहिए कोई पोस्ट’
--  شرطة مكة تطيح بشخصين بسبب كاميرا هذا الجهاز
--  جوجل توفر ميزة صحة البطارية في نظام أندرويد
--  Belén, lugar donde nació Jesús, ha celebrado una Navidad atípica
--  Israel FA take credit for Celtic Uefa fine after Palestine flag display as they hit out at Green Brigade and authorities
--  דיווח: סינוואר הבהיר להנהגת חמאס - לא אכנע לתנאים של ישראל
--  מלחמת עזה: נפגעי העורף ייאלצו לתבוע את ביטוח לאומי על מנת לקבל פיצוי
--  İzmir'de eşi tarafından bıçaklanan kadın öldü
--  Taraftar tribünde ismini haykırmıştı, yönetim kayıtsız kalmadı! Beşiktaş Sergen Yalçın ile görüştü, Yalçın ilk isteğini söyledi
--  81 ilde ortak sınavlar başlıyor
--  بلاول اور آصفہ نے کراچی کا انتخابی میدان چھوڑ دیا ، کسی نشست سے کاغذات نامزدگی جمع نہیں کرائے
--  Han er en af Danmarks yderst erfarne topdiplomater – og han har en klar besked: Ukraine kan ikke vinde krigen
--  Han er en af Danmarks yderst erfarne topdiplomater – og han har en klar besked: Ukraine kan ikke vinde krigen
--  Doğu Karadeniz'de kar: 367 köy yolu kapandı
--  Meram’da toplu tapu dağıtım töreni gerçekleştirildi
--  72 Yılın En Uzun Süren Soğuğu!
--  Rohit Sharma focused on 'moving on' from World Cup final defeat vs Australia
--  Honey Trap : हसीना की वीडियो कॉल..और पूरा अकाउंट साफ ! क्या बला है हनी ट्रैप !
--  Premier Forum sur les droits de l'enfant à Chartres, une célébration de l'engagement
--  "Une folie douce" : Christian illumine son pavillon du Calvados avec un village de Noël
--  7 anyagcsere-pörgető meleg ital a hideg napokra - Serkentik a zsírégetést és segítik az emésztést
--  Key features of Indian Navy’s ‘latest stealth-guided missile destroyer’ ‘INS Imphal’
--  Sabah 3 rayonda qaz olmayacaq
--  Tjuvarnas märkliga plan efter inbrottet i Stockholm: ”Rena Jönssonligan”
--  В Сочи возводят школу на 1100 мест
--  Исроилнинг қочқинлар лагерига йўллаган зарбаси оқибатида 70 киши ҳалок бўлгани хабар қилинди.
--  Набиуллина: SWIFT’дан узилиш ва активларнинг музлатилиши оғриқли.
--  축성작업에 강제 동원…마을에 남은 주민은 집단학살
--  ‘Painkiller swaad anusaar?’ Man finds medicine in chicken ordered from Mumbai’s Leopold Cafe via Swiggy
--  Dursun Özbek'ten penaltı yorumu ve Ali Koç'a gönderme
--  Расписание выхода второго сезона анимационного сериала Marvel «Что, если?»
--  Urošević: Abazović neosnovano obećavao i izigrao prosvjetare i radnike Željezare
--  Лысого псковича восточной внешности разыскивают с сентября
--  FINALE DE LA ZONE 3: Abdou Karim NDIAYE, le parrain, invite les ASC à développer des activités génératrices de revenus.
--  Zamjenik ruskog premijera: Proizvodimo puno oružja
--  美 대법, 특검 패스트 트랙 거부…트럼프, 대형 사법리스크 제거
--  Самарқанд вилоятида ноқонуний майнинг билан шуғулланган корхона аниқланди
--  İzmir'de Kadın Cinayeti: Eşini Bıçaklayarak Öldürdü
--  Снайпер ВСУ назвал направление с наибольшими потерями
--  Ole Gunnar Solskjaer’den Beşiktaş’a mesaj
--  Šta BBC piše o demonstracijama ispred Skupštine grada: “Prvi nasilni protesti”
--  Princ William i Kate čestitali su Božić preslatkom fotkom djece
--  2023 yılında yoksulluk sınırı 20 bin 713 TL yükseldi!
+-  Tailandia anuncia grandes inversiones japonesas para fabricar vehículos eléctricos
+-  El índice japonés Nikkei termina al alza por las perspectivas de recorte de tipos en EEUU
+-  Alışveriş merkezinde korkutan yangın! Çok sayıda ekip sevk edildi
+-  La strage di Natale a Gaza
+-  İzmir’i bekleyen büyük tehlike! Önümüzde iki seçenek var
+-  Χρήστος Μάστορας: «Βασίλη καψούρεψέ τους όλους εκεί στον παράδεισο»
+-  خلال 10 أيام.. صراع سعودي على ضم نجم ريال مدريد
+-  Qurban Qurbanov Azərbaycan çempionatlarında 500-cü oyununu keçirdi
+-  Oyuncu Yağmur Tanrısevsin'e futbolcu sevgili: Galatasaraylı Barış Alper Yılmaz ile aşk yaşıyor
+-  Usung Danny Pomanto atau Adnan Purichta Ichsan di Pilgub Sulsel? PDIP Tegaskan Utamakan Kader
+-  Hunderte Kilometer Umweg - 6-Jähriger von Airline-Mitarbeitern alleine in falschen Flieger gesetzt
+-  المهندس الزراعي عبدالقادر السميطي يقوم بزيارة ميدانية لشركة جنة سيدز لإنتاج البذور والحبوب في بئر فضل
+-  NAJNOVIJA PROGNOZA ZA NOVU GODINU! Prvi čovek RHMZ objavio kakvo nas vreme čeka za doček
+-  Ispecite krumpire na ovaj način i sve ćete oduševiti! Ova tehnika jamči hrskavost i najbolji okus. Pogledajte, lako je...
+-  Birleşik Kamu İş açıkladı: “Açık sınırı asgari ücretten 5 bin lira daha fazla”
+-  Петербургские музеи и зоопарк смогут посещать бесплатно участники СВО и их семьи
+-  السعودية خطتها الكبرى لتطوير مطاراتها تنافس عالمياً بمجال النقل والشحن الجوي
+-  Самые долгие морозы за 72 года обрушились на Китай
+-  “野球しようぜ”大谷選手寄贈のグローブ 岐阜 羽島の小学校に
+-  Do People Really Gain Weight During The Holidays Or Is That B.S.?
+-  The Best And Wildest Reality TV Show Moments Of 2023
+-  26 Highly Effective Hair Products With Incredible Before And After Photos
+-  Ολυμπιακός: Το παράδοξο με Αγκιμπού και Μαντί Καμαρά που βγάζει κερδισμένο τον Ολυμπιακό
+-  Foreign office gives update on British woman missing after tour boat sinks in Thailand
+-  Kétchup en la limpieza: así eliminarás para siempre las manchas de oxido, los malos olores o los residuos en las sartenes
+-  Aldatıcı ve yanıltıcı reklamlara dikkat! Yılbaşı alışverişinde mağduriyetten korunmanın yolları
+-  Vučić jučer tvrdio da je na protestima u Beogradu bilo 2.490 ljudi, ali videosnimci dronom višestruko ga demantiraju
+-  Латвия передала Украине 271 автомобиль, конфискованный у пьяных водителей
+-  Banka çalışanlarından sendikaya 'geçinemiyoruz' çığlığı. İstedikleri rakamı açıkladılar
+-  “Final”ın dəstəyi ilə “Bilim hər yerdə” layihəsinə start verilib
+-  2023'te yoksulluk sınırı 20 bin 713 lira arttı
+-  ‘Mati nanti pun seorang diri dalam liang lahad’
+-  بمشاركة قطرية أمريكية.. الجزيرة تكشف تفاصيل مقترح المخابرات المصرية لإنهاء الحرب في غزة.. "حماس لم ترفض"
+-  לחיי השנה החדשה: חגיגות יין בטייסטינג רום
+-  26 יישובים בצפון קיבלו הוראה לפרק את כיתות הכוננות: "כשל מוחלט בשיקול הדעת"
+-  אישום: גבר תלש חלק מאוזנו של שכנו - בגלל ויכוח על אינטרקום
+-  Wetterdienst warnt weiter vor Dauerregen
+-  JK Nyatakan Dukung Anies, PDIP Respons Begini
+-  Amira Pocher kassiert Abfuhr von Ex Oliver zu Weihnachten
+-  DAJ SAD DINAMIT! MIKI, GURAJ JAČE! Ovako su Zelenović i Aleksić huškali masu ispred Skupštine grada! Strašne scene nasilja (VIDEO)
+-  Şehit Piyade Uzman Onbaşı İsmail Yazıcı'nın son sözleri: "Ben dönmeye değil, ölmeye gidiyorum"
+-  Mission: Fun! MoD Pavilion at 'Russia' Expo Ready for Action-Packed New Year
+-  Weniger Arbeitstage 2024: Feiertage fallen auf Werktage – Überraschung folgt 2025
+-  نائب المنسق العام اليوسفي يتفقد الفصول الدراسية بمنطقة سيحان بابين
+-  Стало известно о проблемах с продлением водительских прав у россиян
+-  Corona-Zahlen im Landkreis Gotha aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Schmalkalden-Meiningen aktuell: Aktuelle Daten zum Coronavirus
+-  ‘독일 언론은 김민재 싫어하나?’ 전반기 최고의 활약에도 또 낮은 평점→‘뒤에서 5번째’
+-  Preview Christmas Day, Suns – Mavericks (4h30) : Luka Doncic va t-il à nouveau traumatiser Phoenix ?
+-  Le programme de la nuit en NBA : place au Christmas Day, 13h de NBA (et de bouffe) non stop !
