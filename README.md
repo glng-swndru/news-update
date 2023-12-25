@@ -1,11 +1,11 @@
 # Latest News
--  Wolke Hegenbarth ist mit Mutter ihres Ex-Freundes befreundet
--  Princess Charlotte Sweetly Holds Hands With Kate Middleton as the Family Arrives for Christmas Church Service
--  День Вологодской области на выставке-форуме «Россия» состоится 28 декабря
--  פשרה כואבת? לא בהכרח: כן לשחרור מחבלים, למרות הכל
--  Хил го осуди синоќешниот вандализам во Белград
--  Jevrić povrijeđen tokom policijske racije u Beranama
--  توقعات الأبراج ليوم الثلاثاء 26 كانون الأول /ديسمبر 2023
--  علي هيثم الميسري : سبق وقالها فخامة الرئيس عبدربه منصور هادي
--  Еще девять человек арестовали после оргии в московском ТЦ
--  В Бердянске состоялся концерт коллектива глухонемых музыкантов
+-  MSiT: 8 milionów złotych dla 36 klubów w programie "Wsparcie Mistrzów"
+-  Szef MKiDN: powołanie Macieja Łopińskiego na stanowisko prezesa zarządu TVP jest prawnie bezskuteczne
+-  मुंबई पोर्ट पहुंचा MV Chem Pluto, दो दिन पहले ड्रोन से हुआ था अटैक
+-  İsrail ordusu 8 bin 500 çocuğu öldürdü
+-  Otrovan Putinov čovek?
+-  News24 | Tuesday's weather: Disruptive rain leading to localised flooding expected in parts of the country
+-  "أنت الجماعة ولو وحدك".. تفاعل مع مُسنّة بريطانية تتضامن لوحدها مع غزة (شاهد)
+-  Savaş Lübnan'ın güneyine sıçradı
+-  "عربي21" ترصد كوارث طبيعية مدمرة ضربت العالم خلال 2023
+-  中國青年失業率高漲，圖書館為何成避風港？
