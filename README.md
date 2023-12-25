@@ -1,51 +1,51 @@
 # Latest News
--  제로베이스원 장하오 '왕자님 비주얼'
--  제베원 김태래-성한빈-장하오, 설레는 눈맞춤
--  스트레이키즈, 무대 꽉 채운 존재감
--  이찬원, KBS 연예대상 최우수상 트로피 들고 '흐뭇'…"정말 감사"
--  VI Charytatywny Turniej w Siatkonogę absolutnie rekordowy [zdjęcia]
--  Borsa İstanbul'da düşüş sürüyor
--  Türk yapımı oyun Royal Match, Candy Crush'u tahtından ederek zirveye çıktı
--  Osoby z tymi schorzeniami powinny pić zieloną herbatę. Oto zdrowotne właściwości tego napoju [25.12.23]
--  Chelsea Unwilling To Let Gallagher Join Tottenham
--  Kickoff | Yaya Toure list Bafana among AFCON favourites
--  Yılın son haftasında yoğun veri gündemi
--  Sri Lanka: Amnestie für mehr als tausend Häftlinge anlässlich des Weihnachtsfestes
--  (FOTO) Uhapšen i drugi napadač: Pretukli člana Glavnog odbora Narodnog fronta u Zvorniku
--  Burkina Faso: une attaque repoussée par les forces armées dans la région du Sahel
--  Search for missing teen ends in tragedy
--  Search for missing teen ends in tragedy
--  Prisoner injured in stabbing
--  Prisoner injured in stabbing
--  24 декабря в Рязани стартовала акция «Новогодний экспресс»
--  صحيفة عبرية: ارتفاع نسبة شراء العقارات بإسرائيل خوفا من العنف ضد اليهود في مختلف الدول
--  "Novi neredi najavljeni za 11 časova, očekuje se blokada Brankovog mosta" Načelnik uprave policije: "Procesuirano 38 osoba, BIĆE JOŠ HAPŠENJA!"
--  "Novi neredi najavljeni za 11 časova, očekuje se blokada Brankovog mosta" Načelnik uprave policije: "Procesuirano 38 osoba, BIĆE JOŠ HAPŠENJA!"
--  Ключи от квартир получили дольщики последнего в Волгоградской области долгостроя
--  CAN2023 : Abdou (Mauritanie), «Le favori du groupe, c'est l'Algérie !»
--  Подготовлена концепция улучшения надзорной деятельности, заявил Мишустин
--  На всей территории Украины объявили воздушную тревогу
--  "IMA IMUNITET" Trampovi advokati traže odbacivanje federalne optužnice koja ga tereti za pokušaj poništavanja izbora 2020.
--  Daihatsu to suspend operations in January and compensate partners
--  Karácsonyi legendák, babonák, boszorkányok, manók és jóslás Európa-szerte
--  Bil Gejts predviđa dešavanja u 2024: Evo koje područje će doživeti najviše promena
--  Группа ВТБ: 68% жителей ПФО хотят в наступающем году копить и сберегать деньги
--  В Калининградской области увеличится уровень воды в реках
--  Bad Santa: Betrunkener Weihnachtsmann kracht bei Geschenke-Fahrt gegen Hauswand
--  Yaponiya husilərin hücumundan xilas olmaq üçün bu yolu seçdi
--  6/45 LOTTO RESULT Today, Monday, December 25, 2023
--  Ünlü şarkıcının 2 yıllık evliliği 10 dakikada bitti
--  Israel-Hamas War: বইপত্রের পরিবর্তে গাজার স্কুল থেকে উদ্ধার গুলি, বিস্ফোরক, ভিডিয়োয় দাবি ইজরায়েলের
--  Rise in awareness on flood evacuation in Terengganu, says Fire Dept
--  Bilionário inglês assume o controle do Manchester United
--  مجزرة مخيم المغازي.. أب فلسطيني يودع ابنه الشهيد: عريس أهديته لفلسطين
--  10H-Regel bremst weiter Bayerns Windkraftpotenziale aus
--  В Пензенской области разбираются с последствиями урагана
--  FENERBAHÇE TRANSFER HABERLERİ - Genç yıldıza 2 talip çıktı!
--  Pijani Djed Božićnjak zabio se u kuću, ostao bez vozačke
--  ‘바이아웃 1,865억’ 재계약에도 이적 가능성…레알-첼시 여전히 영입 야망
--  प्रधानमन्त्रीले भोली दिउँसो ३ बजे राष्ट्रका नाममा संबोधन गर्ने
--  Több ezer mikulás vett részt a karácsonyi futáson Madridban
--  بعد تجديد عقده.. ماذا قدم فتوح مع الزمالك في 7 سنوات؟
--  BDI: Ziele für Güterverkehr auf Schiene „illusorisch“
--  제1회 자운지구 주민참여형 농업비점오염 집중관리사업 민관협력 회의
+-  Oti Mabuse gives birth! Dancing on Ice Judge welcomes first child with husband Marius Lepure as the couple share a sweet snap of the new arrival on Christmas day
+-  [오피셜] ‘감독까지 넘어질정도’... 심하게 나가떨어진 치미카스, 결국 쇄골 골절
+-  "عن إنجازات المقاومة"... رسالةٌ "مهمّة" من السنوار!
+-  مسلسل (عائلة سيمبسون) يكشف فضائح عالم الرياضة
+-  الضمان: 11 ألف اصابة عمل بالاردن 2023
+-  جورجينا رزق ووليد توفيق يكشفان أسراراً مهمة
+-  أصالة تُرزق بحفيدتها الأولى
+-  "รวมไทยสร้างชาติ" แถลงจุดยืนแก้ไขรัฐธรรมนูญ ต้องไม่แตะ หมวด 1-2
+-  "วิษณุ"ชี้ ร่าง พ.ร.บ.กู้เงิน 5 แสนล้านไม่ผ่านวาระแรก รบ.ต้อง "ยุบสภา-ลาออก" เพื่อรับผิดชอบ
+-  מה הישראלים הכי אוהבים להזמין? Wolt ישראל מסכמת שנה
+-  מס הכנסה האריך למאות אלפי שכירים את תיאום המס ל-2024
+-  חברת Claroty ממנה את מיה פולמן אבנרי לסגנית נשיא לניהול מוצר
+-  "בלי סמי בוראר ובעשרה שחקנים קשה לעמוד מול מכבי חיפה"
+-  Eerie abandoned Christmas town where tourists ate Chicken à la North Pole and stayed at Santa Claus Inn left to rot
+-  דולגופיאט מעמיד למכירה פומבית את מדליית הזהב בה זכה ב-7 באוקטובר
+-  От ЦСКА-София честитиха празниците на привържениците си
+-  트레이드설 불거진 김하성…"올 시즌 기대 이상 활약"
+-  Oti Mabuse gives birth! Dancing on Ice Judge welcomes first child with husband Marius Lepure as the couple share a sweet snap of the new arrival on Christmas day
+-  “圧倒的に好評”ローグライト弾幕アクション『Tiny Rogues』大型アプデ配信開始されプレイヤー急増。弾幕渦巻くダンジョンに挑み、強化を繰り返すアリーナアクション
+-  Aston Villa liderliği eliyle itti. Kenan Yıldız tarihe geçti. PSG Mbappe ile 3 puana uzandı
+-  जम्मू कश्मीर में इस साल आतंकियों से लोहा लेते 31 जवानों ने दी शहादत, पुंछ-राजौरी में 6 एनकाउंटर में 21 सैनिकों की गई जान
+-  BDI: Ziele für Güterverkehr auf Schiene "illusorisch"
+-  Buschmann für Bekenntnis zu Israel bei Einbürgerungen
+-  Tumulte bei Protest gegen mutmaßlichen Wahlbetrug in Belgrad
+-  Diebstahl von Wärmepumpen nimmt zu
+-  E-Auto-Prämie: Kretschmer sieht bei Aus Vertrauen beschädigt
+-  رسالة مهمّة للسنوار عن إنجازات المقاومة ضد قوات الاحتلال
+-  Fighter New Poster : 'फायटर'चं नवं पोस्टर आऊट! हृतिक, दीपिका अन् अनिल कपूरच्या लूकने वेधलं लक्ष
+-  تحسّباً لحربٍ مع "حزب الله".. ماذا فعل الجيش الإسرائيليّ؟
+-  Χριστούγεννα: Το έθιμο του τηγανισμένου συκωτιού, στις εκκλησίες
+-  «Η βραδιά ανήκει στον Βασίλη» – Έτσι αποχαιρέτησαν τον Καρρά από τις πίστες [βίντεο]
+-  【新NISA、私ならこう使う#5】月30万円投資で、つみたて枠・成長枠をフル活用！ インデックスファンド・ETFで利益を確実に
+-  Nahidə Babaşlı 10 dəqiqənin içində boşandı
+-  Güvenlik güçlerine hakaret eden şüpheli Antalya'da yakalandı
+-  晨光追擊│ 「精算暴雪」形勢上風
+-  Pasterka w Kościele Matki Boskiej Częstochowskiej w Pleszewie [ZDJĘCIA]
+-  Σμιθ: «Δεν χάνεις την ευκαιρία να παίξεις για τον καλύτερο Ευρωπαίο προπονητή»
+-  Temba Bavuma feels India’s strong bowling attack can “nullify” SA’s advantage
+-  Burhaniye’de zincirleme kaza: 6 yaralı
+-  Govt claims 290 Baloch protesters released from jail, police custody
+-  Naučnici utvrdili kako se precizno meri nasleđeni rizik od hipertenzije
+-  Salaar And Dunki: किंग खानचा डंकी की प्रभासचा सालार? कोणता सिनेमा पैसा वसूल?
+-  Вучич пригласил посла Росси в Сербии обсудить ночные беспорядки
+-  CHP'li isimden asgari ücret çıkışı
+-  Soccerladuma | European Super League CEO: Unnamed Clubs Want To Play
+-  Καρράς: Όταν έγινε σύνθημα των Ολυμπιακών (vid)
+-  Hasan Mushrif on ABP C Voter survey : अनेक पोल येऊन गेले, पण नरेंद्र मोदींना पंतप्रधान होण्यापासून कोणी अडवू शकत नाही; हसन मुश्रीफांचा विश्वास
+-  เทศบาลตำบลหนองแฝก จัดงานใหญ่ส่งท้ายปี
+-  ΕΞΕΛΙΞΗ: Δήλωση Πριέτο για ανανέωση Γκερέρο!
+-  فيديو: مخيمات الفلسطينيين في سوريا
