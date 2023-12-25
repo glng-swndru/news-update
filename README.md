@@ -1,11 +1,11 @@
 # Latest News
--  Cada día, ocho robos a casas
--  Rodrigo Pacheco, promesa del tenis mexicano brinda por el futuro
--  Giovanny Gallegos va por la revancha; busca mejorar
--  حكيمي ضمن قائمة أغلى 100 لاعب في العالم
--  Quiniela HOY: RESULTADOS de Nacional y Provincia del lunes 25 de diciembre
--  How ‘The O.C.’ (Almost) Saved Rock
--  Skutočná Sissi: Cisárovná ľudských sŕdc mala od romantickej hrdinky ďaleko
--  Ako kupujú oteckovia odsávačku mlieka a čo strkajú muži do kulmy? Pobavte sa na príhodách z predajní PLANEO
--  Les actionnaires étrangers suspendent leur participation au projet russe Arctic LNG 2
--  El PNV censura un discurso del Rey «pensado para PP, PSOE y Vox» y no para el nacionalismo
+-  Serious Request radio fundraiser collects €7.5 million for ALS, the most in six years
+-  上班到底是在上什麼？除了賺錢以外，還有3個好處
+-  聖誕老人在哪裡？Google、北美航太司令部告訴你
+-  美國債券ETF搶搶滾，搶上車先注意3大風險！
+-  職場聚餐底層邏輯：她以為常和主管午餐位子就穩，結局竟是背叛
+-  無薪假增359人，竹科半導體業也難逃，為什麼？
+-  同仁抱怨不想上課！訓練課程要有效，先做到三件事
+-  Korać: Kriza će nastaviti da se produbljuje i postajaće sve dramatičnija
+-  Efforts afoot to provide best Hajj services to pilgrims: Aneeq
+-  U planu dupliranje železničkih koloseka od Prokopa do Batajnice
