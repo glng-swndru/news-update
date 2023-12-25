@@ -1,11 +1,51 @@
 # Latest News
--  Štanjelski grad leta 2025 dokončno obnovljen
--  Guardia Nacional descubre piezas arqueológicas enviadas por paquetería
--  ולאדן איביץ': "אני מחייך המון. הכוכב האדום? לא אאמן אותה"
--  סמוטריץ': כלל חיילי המילואים יקבלו את המענק המיוחד
--  למען החטופים בעזה: ישיבה מיוחדת במליאת הכנסת
--  «الكويتية للإغاثة»: تفريغ «سفينة غزة» بميناء العريش تمهيداً لإدخال حمولتها
--  Soccerladuma | Suarez Sends Warning To MLS Rivals Ahead Of Messi Reunion
--  Игор Пехчевски ќе добие „трикафта“ во текот на јануари, најави директорката Нацева-Фуштиќ
--  Хамас и Исламскиот џихад одбиваат да ја предадат власта за трајно примирје
--  Rekor sayıda yolcu ağırlayacak! Sabiha Gökçen’e yeni pist
+-  Sesi bile korku saldı! SİHA'lar vurdu, terör yandaşları kaçıştı
+-  Kremlin Sözcüsü: Sırbistan yönetiminin yasal düzeni sağlayacağından şüphemiz yok
+-  Karabük'teki 107 köy yolunun 73'ü, kar temizleme çalışmalarıyla yeniden ulaşıma açıldı
+-  روما يستفسر عن مدافع فلومينينسي
+-  Şehit ve gazi ailelerinden CHP'ye dikkat çeken tepki: İplerini tutanlar müsaade etmez
+-  Kentsel dönüşüme işçi engeli | Müteahhitler çalıştıracak eleman bulmakta zorlanıyor
+-  News24 | Bloody Christmas Eve in Cape Town as five men stabbed to death in separate incidents
+-  #EnFotos Las navidades de los famosos venezolanos
+-  Karın bölgesi yağlanma ve sarkma problemlerine mucize çözüm
+-  MISLILA SAM DA ME JE PAS UGRIZAO! Skandal na Severininom nastupu, na binu uleteo nepoznati muškarac
+-  Kickoff | Man City star responds to Barca & Real Madrid links
+-  В Туле открыли распределительную сеть газопровода
+-  موعد مباراة ريال مدريد القادمة
+-  “너무 걱정돼서 울뻔했다”... 무릎 돌아갈 뻔한 태클→쓰러진 로드리, “커리어 최악의 태클 중 하나”
+-  Russia’s Navalny tracked down to ‘Polar Wolf’ prison in the Arctic
+-  Underwater Santas celebrate Christmas tradition at Nemesis shipwreck
+-  В сборе МЧС в Калининграде принял участие зам губернатора НАО
+-  Eskişehirspor'da İbrahim Baş dönemi sona erdi
+-  Путин: на российских верфях строят пять фрегатов и восемь корветов
+-  انتبه إليها.. علامة خطيرة عند البلع تكشف الإصابة بالسرطان
+-  Дед Мороз и Снегурочка оценили выступление гимнасток Серпухова
+-  Top 10 Biggest Investments in AI Startups in 2023
+-  35 lat temu serial "W labiryncie" skradł serca Polaków. "Woda sodowa uderzyła mi do głowy"
+-  Путин заявил, что судостроительная отрасль России находится на подъеме
+-  В Кремле оценили вероятность встречи Пашиняна и Алиева на саммите СНГ
+-  Fenerbahçe, Süper Kupa mesaisine başladı
+-  Kuss auf Wange: Reece Hawkins ist wieder in festen Händen!
+-  ضبط متهمين بحيازة 130 طربة حشيش مخدر في الإسكندرية
+-  Campanha "Gente é Pra Brilhar" e Prerrogativas realizam juntos pelo terceiro ano consecutivo ações de Natal em todo Brasil
+-  مدني جدة يخمد حريقاً في حي قويزة
+-  «Хезболла» пригрозила Израилю «настоящим землетрясением»
+-  نائب نصر الله مهددا الاحتلال: سنرد الصاع صاعين إذا صعدت إسرائيل عدوانها
+-  عضو بمجمع اللغة: الذكاء الاصطناعي يهاجم اللغة العربية بشدة وعلينا التكيف معه
+-  خلال لقائه مدير إدارة ليبيا في الخارجية المصرية..النايض يناقش سبل تجاوز الانسداد السياسي
+-  San Jose State football: Amid bowl loss, a memorable journey
+-  Tužilaštvo sumnjiči uhapšene za dva ozbiljna krivična dela: Privedenim demonstrantima preti i do 12 godina zatvora
+-  Σκιαδαρέσης: «Εντυπωσιακή η οργάνωση του Λουτσέσκου, ξεχώρισε ο Βιεϊρίνια»
+-  Суд в Москве призвали поместить под стражу мужчину, убившего двух женщин
+-  Horror lovers find 'most horrifying short film ever' – it'll 'ruin your Christmas'
+-  Türk SİHA'ları, terör destekçilerinin açıklama yaptığı alanın yakınını vurdu
+-  Polstoletna obnova gradu Štanjel se približuje koncu
+-  Polstoletna obnova gradu Štanjel se približuje koncu
+-  Milorad Dodik će za 9. januar potrošiti 1,45 miliona KM
+-  Notorni grafiter napao ‘nove‘ Tomaševićeve tramvaje i pritom napravio grešku koja bi ga mogla otkriti
+-  Путин подписал закон о независимой оценке технологий
+-  Meilleur build Lourd The Finals : arme, spécialisation et gadgets
+-  CHP Genel Başkanı Özel: Sayın Bahçeli'nin canı sağ olsun
+-  Marché monétaire : BAM rehausse son intervention en cette fin d’année, constate AGR
+-  Weihnachten auf Rapa Nui: Kölnerin verliebte sich auf der Osterinsel
+-  Eindhoven researches break record for fastest data transfer speed ever
