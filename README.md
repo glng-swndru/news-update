@@ -1,11 +1,51 @@
 # Latest News
--  Two people rescued from rooftop during Hague apartment building fire
--  الصين.. إنقاذ كلب بقى أكثر من 30 ساعة تحت الأنقاض
--  في ميلاد السيد المسيح ..
--  وفاة سيدة بحادث تصادم في غور الصافي
--  أمراض خطيرة وكارثة صحية على أبواب غزة
--  Bunuh, tanam belakang rumah: Lima suspek ditahan
--  上海迪士尼︱「熱力追蹤」停運原因片流出 小孩疑為執髮箍落車被撞
--  Zaharova: Zapad pokušava da destabilizuje Srbiju
--  ...Y el Niño Jesús ya llegó al belén más grande del sureste
--  La fuite du code source de GTA 5 dévoile des aperçus secrets de GTA 6
+-  Murales llevan paz a colonias en Cancún
+-  Japonya'dan sert PKK çıkışı: Terör örgütünü ve eylemlerini kınıyoruz ve kınayacağız
+-  İzmir'de FETÖ operasyonu: 10'u firari hükümlü 15 kişi tutuklandı
+-  Trabzonspor'da evdeki hesap çarşıya uymadı
+-  Tavaszias karácsonyunk van: 14 fok is lehet ma
+-  เบาะแสมาแล้ว! ชาวเน็ตสงสัย ชี้เป้าคู่รักดาราคู่ไหน จ่อประกาศเลิกกันสิ้นปีนี้?
+-  Bénédiction des couples homosexuels : Une fronde s’organise contre le Pape
+-  These homes were in the week of Dec. 11 best deals for Los Gatos
+-  Ukraine’s air defence destroys 28 out of 31 Russia-launched drones, Kyiv says
+-  NewsClick: आरोपी HR हेड ने की सरकारी गवाह बनने की मांग, कहा- मेरे पास अहम सूचना
+-  วิกฤตหนัก! ระดับน้ำ "นราธิวาส" เริ่มสูงขึ้น หลายคนติดบนหลังคาบ้าน
+-  ศาลจำคุกตลอดชีวิต "เสี่ยแป้ง นาโหนด" กับพวก คดีพยายามฆ่าเจ้าพนักงาน
+-  اللواء الزبيدي : الوضع الاقتصادي سيمر بمرحلة صعبة وعلى الجميع التكاتف
+-  Hiába csökkent az infláció, a magyarok számára még most jön a neheze
+-  ورثة مايكل جاكسون يمنعون مزاداً لأغاني ملك البوب
+-  ЦБ определил базовый уровень доходности рублевых вкладов в январе 2024 года в 14,968%
+-  News24 | 'Proactive measures will be taken' after 16 people killed in a Nigeria attack
+-  Kamyonette başından vurularak öldürüldü, eski ortağı gözaltına alındı
+-  Ankara, İstanbul ve İzmir'e Kış Ortasında Bahar Uyarısı
+-  7 علامات تدل على تقدمك في السن وأنت بصحة جيدة
+-  МЧС обратилось к населению: будьте осторожны
+-  Хачатрян подал апелляционную жалобу
+-  Celebrate the Holiday Season with TCL: Unwrap the Gift of Unparalleled Entertainment and Elevated Home Comfort
+-  Panda Cup Tongxiang Tour: Exploring the Ancient Town
+-  Panda Cup Qingtian Tour: Home Away from Home
+-  Лыжная база в Улан-Удэ могла загореться из-за неосторожного обращения с огнем
+-  מסתבר שאפשר לחיות טוב גם עם הלוקמיה השכיחה ביותר בעולם המערבי
+-  אחרי שאיפשרו לפלסטינים לעבוד בבסיסים, בצה"ל מחפשים אחר פרצות המידע שהגיעו לחמאס
+-  Trágica madrugada de Nochebuena en Noia: un accidente termina con la vida de un joven en A Barquiña
+-  Tera Batteries espera llegar a tratar entre 120 y 150 baterías por día dentro de 5 años
+-  El Gobierno quiere ampliar las medidas hipotecarias para llegar a 100.000 familias más
+-  OVAJ DEO SRBIJE POGODILO 5 ZEMLJOTRESA! Evo koliki je bio najjači potres
+-  В США выставили на торги золотую монету с изображением отрекшегося от трона Эдуарда VIII
+-  Suchaktion an Heilig Abend: Kanufahrer kentert bei Nabburg
+-  India vs South Africa 1st Test match live streaming: When and where to watch India vs South Africa 1st Test match live?
+-  "VREĐAJU MI INTELIGENCIJU!" Duljaj ZAGRMEO zbog stanja u Partizanu: Neke stvari MORAJU DA SE REŠE! Kažu da imam podršku, ali...
+-  Antti Raanta tekemässä paluun NHL:ään
+-  Fenerbahçe'nin Konferans Ligi kura çekimi ne zaman?
+-  Beşiktaş'ta Leonardo Jardim İddiası
+-  Самарқандда сайёҳлар ўртача неча куни қолмоқда?.
+-  Ўзбекистон ҳудудига нисбатан салқин ва нам ҳаво кириб келади.
+-  Türk teknoloji girişiminin mobil oyunu 'Royal Match' dünyada en yüksek geliri elde etti
+-  Danas je Božić, blagdan rođenja Isusa Krista
+-  В четверг Xiaomi представит свой электромобиль — или, по крайней мере, расскажет о его технологиях
+-  El Botànic deja 23.500 millones de gastos fijos a Mazón hasta 2026
+-  조희연 "'서울의봄' 단체관람 학교 고발은 교권침해"
+-  พ.ร.บ.กู้เงิน โครงการดิจิทัลวอลเล็ต วิษณุ ชี้ ถ้าไม่ผ่านวาระ 1 ต้องยุบสภาฯ
+-  ВТБ прогнозирует снижение доли сбережений россиян в токсичных валютах до 7% в 2024 году
+-  LIČI NA KROMPIR, ALI NIJE - VLADA USRED BANATA UZGAJA OVU EGZOTIČNU BILJKU: Odlično raste, nije zahtevna, a već ima i STALNE KUPCE
+-  Uhapšen policajac i još tri osobe: Osumnjičeni da su učestvovali u...
