@@ -1,11 +1,51 @@
 # Latest News
--  Vecinos de los Bloques de Playa Grande en Carúpano están hartos de tantos apagones
--  Путин подписал закон об оказании помощи врачами скорой без согласия пациента
--  Дочь Эльдара Рязанова объяснила решение не продолжать актерскую карьеру
--  Хоккеист сборной Белоруссии раскритиковал судейство на Кубке Первого канала
--  La viuda de Iván Almeida en Navidad: “Salud al cielo mi amor”
--  تحذير طبي من هذه المكملات الغذائية!
--  Објавена книгата за деца „Баш сум хепи!“ на хрватската писателка Сања Пилиќ
--  Senador sugiere que Biden permite que los inmigrantes crucen la frontera para que voten por él
--  توثيق حقوقي دولي لجرائم الاحتلال ضد المدنين في غزة
--  Женщина переехала бойфренда на автомобиле из-за ссоры
+-  Bundesliga-Finale, Basketball-WM und Co.: Die fünf größten Sportmomente des Jahres 2023
+-  Almirón pasó navidad a los besos con su doña
+-  גיא צרפתי: "החזרה למכבי נתניה היא מרגשת. צריך לנצח כבר ממחר"
+-  No habrá rusos ni bielorrusos en la hípica de los Juegos de París
+-  FOTO / Išaran novi Tomaševićev tramvaj, snimke otkrile sumnjivca
+-  O Gaiás pecha 2023 cun balance de máis de 700 eventos e superando de novo a cifra do millón de visitas
+-  Bakan Tekin: MEB 56 bin kurumu olan bir bakanlık
+-  Rusia: Cadena perpetua para organizadores por ataque a centro comercial
+-  Kremlini: Fuqitë e huaja nxitin trazira në Serbi
+-  News24 Business | World wine output to fall to lowest in 60 years
+-  Na sastanku sa Zdenkom Popović: Maldivci podržali članstvo Crno Gore u NATO-u savezu
+-  Kohta pakastaa: Jopa -30 astetta
+-  Stürme und Hochwasser in Tschechien und Slowakei
+-  В Гомеле Сож вышел из берегов и подтопил дома
+-  Op twee na warmste Eerste Kerstdag ooit gemeten: 12,5 graden in De Bilt
+-  KATASTROFALNA GODINA SRPSKOG KLUPSKOG FUDBALA: UEFA "podvukla crtu" koeficijent Srbije se potpuno SROZAO!
+-  Матвиенко назвала работу российского бизнеса настоящим подвигом
+-  Joensuuhun matkalla ollut kiskobussi joutui kääntymään takaisin lumen takia – Alkuillan junayhteyteen Pieksämäeltä tulee muutos
+-  URA će podržati Sindikat: Podnijećemo amandmane na Budžet za povećanje plata u javnoj upravi i pravosuđu
+-  Nigella Lawson reveals she's now self-conscious about using the word microwave after her bizarre pronunciation 'meecro-wahvey' went viral: 'I just call it the you-know-what'
+-  Кортни Кардашьян рассказала о похудении после родов
+-  Laporte odbio ponudu Real Madrida, želi ostati u Saudijskoj Arabiji s Brozovićem i Ronaldom
+-  Γκριν: Διαδικτυακές συσκέψεις με ανθρώπους του ΝΒΑ και των Γουόριορς
+-  El Barcelona y el puzzle de nueve piezas
+-  Plani i Egjiptit për t’i dhënë fund luftës në Gaza
+-  Най-топлата Коледа и в Хасково от 90 години насам
+-  VIDÉO - "Nid de poule" gênant ou dangereux sur la chaussée : qui doit le reboucher ? Le 13H à vos côtés
+-  The festive fiasco behind Mariah Carey's All I Want For Christmas Is You: Chart-topper's co-writer claimed songstress 'spun a tall tale' about composing track as a child on a KEYBOARD amid 20 year feud
+-  “المملكة” و”قطر” توقعان خطة تسهيل إجراءات المسافرين في منفذي سلوى وأبو سمرة
+-  “You will get an answer for sure in due course”: Rohit Sharma on his T20I future
+-  Папа Франциск осъди войните, които се хранят с производството на оръжия
+-  Israeli air strikes kill 70 in Maghazi: Gaza officials
+-  Για πάντα στην Τούμπα ο Λουτσέσκου με κίνηση «ματ» από Σαββίδη - Συμφωνία για νέο συμβόλαιο
+-  Kun lähilammen vesi muuttui smaragdinvihreäksi, kontiolahtelaiset Virve ja Jani Olkkonen tiesivät, että ongelmat ovat isoja
+-  Русия и Беларус аут от конния спорт на Олимпийските игри догодина
+-  مركز الملك سلمان للإغاثة.. مساعدات متواصلة ودعم مستمر للشعوب المتضررة
+-  Путин и Пашинян встретились на саммите СНГ в Петербурге
+-  খুদে মেসিকে কি দলে পাবে বার্সা?
+-  The new trick to a better love life is... getting a degree! Research reveals graduates have longer relationships, and are better in bed too
+-  The new trick to a better love life is... getting a degree! Research reveals graduates have longer relationships, and are better in bed too
+-  Akute Bedrohungslage: Hauptbahnhof Bielefeld komplett gesperrt
+-  Губернатор рассказал об исполнении последней просьбы воевавшего в Марьинке бойца
+-  Campeonato Inglês não para no final do ano com o tradicional ‘Boxing Day’
+-  Rusové hlásí úspěch na východní frontě. Získali jsme Marjinku, uvádí
+-  The rise of GoFundMe scammers: How bereaved families are suffering fresh trauma at the hand of heartless fraudsters trying to cash in on their tragedies
+-  Just nu: En lastbil och en personbil i trafikolycka
+-  King Charles urges compassion, care for environment in time of conflict
+-  King Charles urges compassion, care for environment in time of conflict
+-  2023 Saw a Growing Pro-Democracy Movement Win Voting Access Gains
+-  Neymar, Rodrygo, Haaland de 'papai noel' e mais: como foi o Natal dos boleiros pelo mundo
