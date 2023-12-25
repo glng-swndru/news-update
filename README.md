@@ -1,11 +1,11 @@
 # Latest News
--  أضافت وظائف جديدة.. شركة المياه الوطنية تعلن عن حاجتها لمئات الموظفين
--  عاجل..4 أيام قادمة.. الدفاع المدني يطلق عدة تحذيرات لجميع سكان المملكة
--  مواجهات مسلحة بين ميليشيا تابعة لمقتدى الصدر والحشد الشعبي في العراق
--  واتسآب يطرح واجهة جديدة مشابهة لإنستغرام.. تعرف عليها
--  POJAVILE SE FOTKE JANJUŠA DOK GA IZVODE IZ ELITE Voditeljka u programu uživo saopštila tragične vesti
--  Nora Istrefi me këmishë nate në darkë me shoqërinë
--  Cak Imin: Dulu Kita Dukung IKN Harapannya Ada Investasi Besar Masuk
--  Serbian police crackdown on demonstrations following snap election
--  '미녀 파이터' 심유리, 챔피언 반납… 박정은, 잠정 챔피언으로 타이틀전
--  (여자)아이들 민니, 반가운 손인사
+-  Veľké zlyhanie bezpečnostných zložiek: Festival v Izraeli bol ohrozený už pred masakrou, napriek tomu sa konal!
+-  Trading Platform Moomoo Offers 6.8% P.A. Introductory Cash Management Rate to Australian Clients
+-  Ukrajinci nezadovoljni: Srbi testiraju nerve svih, hoće li UEFA ostati nema?
+-  كريم الأحمدي يدعم أسود الوحدة
+-  השר דרמר יגיע מחר לוושינגטון לשיחות בבית הלבן על השלב הבא במלחמה בעזה
+-  Συρία: Οκτώ άμαχοι νεκροί από βομβαρδισμούς των τουρκικών δυνάμεων
+-  Деца со пиротехника запалија дрво пред Музејот во Тетово
+-  TV viewers go wild for Nickelodeon's 'alternate broadcast' of Raiders-Chiefs - as fans in the stadium are covered in slime, before coach Andy Reid is lifted off the sidelines by a giant claw
+-  تعرف على مذبحة الإيرانيين في كربلاء
+-  اختطاف كويتيين اثنين داخل العراق
