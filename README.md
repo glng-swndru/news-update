@@ -1,11 +1,51 @@
 # Latest News
--  Başkan Altay, Konya'da tarımın gelişmesi için 461 milyon lira destek sağladıklarını açıkladı
--  KONYA BÜYÜKŞEHİR İLK YARIYI LİDER BİTİRDİ
--  Tekvandocular Konya’da terleyecek
--  Ereğli Belediye eli boş döndü
--  Karapınar ilk kez mağlup oldu
--  BAL’da zirve alev alev
--  Konya'da yurtta kalan öğrenciler terörü lanetledi
--  Za jedan od najstrašnijih događaja u povijesti je malo tko čuo: Pogledajte gdje je i kako nastao najveći tsunami
--  Stjärnan om näthatet: "Massa kvinnor skrev"
--  Deux cambrioleurs pris sur le fait à Bereldange et Luxembourg
+-  Negli USA si fa quadrato per salvare la US Cup. Noi ci stiamo ‘americanizzando’, loro si stanno ‘europeizzando’?
+-  ประชาชนส่วนใหญ่ ยังมั่นใจ ขอใช้รถไฟฟ้าสายสีชมพูต่อ
+-  ക്രിസ്മസ് ആഘോഷത്തില്‍ ഒമാന്‍; അവധി ദിനമല്ലെങ്കിലും എങ്ങും 'ആഹ്ലാദം'
+-  Ex-Council Boss Charges Leaders To Invest More In Education For Devt
+-  Έτσι έρχονται οι παίκτες στην Ανόρθωση / Ο Πριέτο εξήγησε πως διαλέγουμε τους ποδοσφαιριστές
+-  Three killed in accident due to dense fog in Rajasthan`s Barmer
+-  Ravezzani sicuro sul Milan: «Crisi prevedibile per questo motivo»
+-  ELFBAR and LOST MARY showcase industry-leading manufacturing at FEWO smart plant
+-  Alonso: Változtatni kellene az F1-es időmérőkön!
+-  Madhya Pradesh Cabinet Expansion: सरकार गठन के बाद कैबिनेट का विस्तार, प्रह्लाद सिंह पटेल, कैलाश विजयवर्गीय समेत 28 विधायकों ने ली मंत्री पद की शपथ- VIDEO
+-  Australia unchanged for 2nd Test, Pakistan drop veteran Ahmed
+-  COCT authorities on high alert following level 2 warning for extreme weather
+-  Somber Christmas for 400 residents after Hillview informal settlement fire
+-  Na sześć miesięcy do "psychuszki" za posty o wojnie w Ukrainie. Blogerka już odsiedziała za to półtora roku w areszcie
+-  Nusrat Sehar Abbasi announces retirement from active politics
+-  PTI to challenge ‘flawed’ ECP verdict on intraparty polls, electoral symbol in Peshawar High Court
+-  غدا.. انطلاق الدورة الثالثة من مهرجان القاهرة للسينما الفرنكوفونية بدار الأوبرا
+-  В Курганской области анонсировали увеличение выплат для ветеранов
+-  Fikk du en julegave du ikke likte? Slik får du pengene tilbake
+-  Finansal Hizmetler Güven Endeksi Aralık'ta yükseldi
+-  Τροχαίο ατύχημα με μηχανάκι που «σφήνωσε» κάτω από ΙΧ
+-  В Евпатории у детей из лагеря "Юность" выявили респираторную инфекцию
+-  Almelo woman killed, driver under investigation after car crashes waterway
+-  الاحتلال يداهم منازل المواطنين ويستولي على مركباتهم بمسافر يطا
+-  Putin uputio čestitke Vučiću povodom predstojećih praznika: Računam na nastavak našeg dijaloga
+-  РПЛ выделила «Краснодар» и «Зенит» в борьбе за чемпионский титул
+-  Na Štedrý deň ošetrili v Bratislave 340 pacientov, jeden zjedol polievku s jedovatými hubami
+-  Президент Таджикистана отправился в Санкт-Петербург на неформальную встречу лидеров СНГ
+-  ВТБ: в 2023 году рынок рублевых сбережений вырастет на 21%
+-  M1 iPad Pro holiday deal drops tablet to lowest-ever price
+-  India proudly acknowledges Christian community's contribution, says PM Modi
+-  Ovih 5 znakova imaju najveće šanse da u 2024. stanu na ludi kamen, svadbena zvona se već čuju
+-  Аксёнов: Киеву необходимо забыть о Крыме, эта тема для Украины ушла навсегда
+-  COVID-19: कोरोनाच्या नव्या व्हेरिएंटचा झपाट्याने पसार, देशात JN.1 चे 63 रुग्ण, सक्रिय रुग्णांची संख्या 4 हजारांच्या पुढे
+-  Absichtlich Radmuttern abgelöst?: Rad an Berliner Rettungswagen löst sich während der Fahrt
+-  Politiet reddet mann i bokser på toppen av Munkebotn
+-  Fifas markering – hotar straffa Brasilien
+-  Kovaçevski për Slloboden Peaçat: Me masat antikrizë mbrojtëm standardin e qytetarëve
+-  देश की खबरें | कर्नाटक में कथित खाद्य विषाक्तता के कारण एक महिला की मौत, 70 अन्य अस्पताल में भर्ती
+-  Число раненных при обстреле ТЦ в Горловке увеличилось до девяти
+-  Resume In 7-Day Or Face Legal Action, NGO Warns Osun JUSUN
+-  Fifas markering – hotar straffa Brasilien
+-  Fifas markering – hotar straffa Brasilien
+-  Yılbaşı öncesi kaçak alkol baskını
+-  Uludağ’da günlük kayak maliyeti dudak uçuklattı! İşte o rakam...
+-  МИД Ирана пытается наладить отношения с Талибаном
+-  "ŽELJKO ME ZVAO NA TELEFON, SAMO BOG ZNA ZAŠTO NISAM OTIŠAO U PARTIZAN" Brutalni Hrvat odbio crno-bele, pa ih žestoko PONIZIO!
+-  PRAZNIČNI KOLAPS NA GRANICAMA: Kolone vozila čekaju na ulazu i izlazu iz zemlje, a haos tek sledi! Naoružajte se strpljenjem
+-  Israels Armee erleidet zunehmende Verluste
+-  Bardzo silny wiatr nie odpuszcza. Wiemy, kiedy pogoda się uspokoi [MAPY]
