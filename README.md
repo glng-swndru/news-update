@@ -1,51 +1,51 @@
 # Latest News
--  Gradsko vijeće Zenica u petak razmatra Prijedlog Budžeta Grada Zenica za 2024. godinu
--  IoT roaming veze male snage značajno će porasti
--  Karnataka: BJP appoints Kota Srinivas Poojary LoP Council, Arvind Bellad deputy leader in Assembly
--  Turkey retaliates at home, abroad after troops killed in Iraq
--  Crowne Plaza Phu Quoc Starbay Beckons International Travellers with Its Stunning Nature, Romantic Scene, and Modern Living
--  [단독] ‘부실폭탄’ 부동산PF 터지나…캐피탈 대출잔액만 ‘24조원’
--  بلاول بھٹو کا وزیر اعظم بن کر وفاق سے 17 وزارتیں ختم کرنے اور 300 یونٹ تک مفت بجلی دینے کا اعلان
--  Глава МВД исполнил новогоднюю мечту 15-летней жительницы Саранска
--  Путин му честиташе на Вучиќ Нова година и Божиќ: Ти посакувам тебе, на твоите роднини и најблиски добро здравје, благосостојба и успех
--  Bečić: Nastavlja se borba protiv svih oblika kriminala
--  U Radakovu nožem napadnuta i opljačkana Sarajka
--  民安隊55周年｜近300名少年團員等參與大露營 卓孝業冀青少年貢獻國家及香港
--  FOTO: Konferencija poduzetničkih ideja održana na Ekonomskom fakultetu Univerziteta u Zenici
--  Митрополит Антоний отслужи празничната Света Василиева литургия в храм-паметника “Свети Александър Невски”
--  PLN Jamin Pasokan Listrik ke 234 Gereja di Jakarta Aman Saat Perayaan Natal
+-  LG경영硏 "내년 경제성장률 1.8%…L자형 장기 저성장 진입"
+-  딸기의 계절, 세븐일레븐 '국내산 딸기 3종' 출시
+-  "홈쇼핑 1분으로 줄였다"…GS샵, 모바일 최적화 '숏픽' 론칭
+-  Leijonat nöyryytti Börje Salmingia – unohtui tv-sarjasta
+-  Domestic abuse victims urged to seek help at Christmas
+-  XTB: gospodarka USA trzyma się nieźle, ale w Europie bardzo blisko jest do recesji
+-  "J’ai réévalué mes priorités" : Karine Ferri maman à 40 ans, elle explique en quoi sa dernière grossesse a été "différente"
+-  Endrick, la guinda del pastel y la sombra de Mbappé
+-  Zurabişvili də İlham Əliyevi TƏBRİK ETDİ
+-  El Real Madrid consuma el traspaso de poderes
+-  Venezuela acusa Reino Unido de provocação ao enviar navio de guerra para a Guiana
+-  Cara Cek CCTV Lalu Lintas Agar Terhindar Macet Libur Natal 2023
+-  V Parizu izgradili 84 odstotkov potrebne infrastrukture za OI
+-  المجلس الوطني للذكاء الاصطناعي يناقش محاور المرحلة الثانية من الاستراتيجية الوطنية للذكاء الاصطناعي
+-  Manchester City 2023'e damga vurdu: 1 yılda 5 kupa
+-  Etats-Unis : l'année désastreuse du Congrès
 -  Путин поздравил Вучича с наступающим Новым Годом и Рождеством
--  Ove godine oboreni su svi klimatološki rekordi: Jedan je presudan razlog zašto nemamo bijeli Božić
--  Animalul care și-a făcut din nou apariția după 30 de ani în România. Ce este și cum arată
--  Zulhas Beberkan Pentingnya Pembangunan IKN di Kalimantan
--  Vigyázzunk a mécsesekkel, és a zárlatos fényfüzérekkel, mert ez az egyik legkockázatosabb időszak a lakásbiztosításoknál!
--  Kerala Lottery Result Win Win W 749 Today: Prize Money List on 25 December 2023
--  Cuatro jóvenes heridos al volcar su coche sobre la mediana de la A-7 en Los Alcázares
--  Rente ab Januar: DAS musst du schnell tun, um mehr Netto zu haben
--  TV-Quoten: «Kevin» wieder einmal nicht zu schlagen
--  Best of cartoons, December 26, 2023
--  Best of cartoons, December 26, 2023
--  Ehemaliger Siemens-Chef: Big Joes letzte Runde
--  Un mort şi trei răniţi, după ce o autoutilitară s-a răsturnat în afara unui drum din Iași. Şoferul consumase alcool
--  Místo zabití jen vyhoštění. Izrael zvažuje, jak naloží s vůdci Hamásu v Gaze
--  Food Festival in Delhi: फूड लवर्स के लिए खुशखबरी, न्यू ईयर से पहले यहां लगेगा फूड फेस्टिबल
--  Perbandingan Kado Sule dan Tunangan Nathalie Holscher untuk Ulang Tahun Adzam, Kasih Apa Ya?
--  2 मैच.. 9 विकेट, इमर्जिंग एशिया कप में कमाया नाम, अब वनडे टीम में धांसू एंट्री
--  आलिया र रणवीरले पहिलोपटक मिडियामा ल्याए छोरीलाई (तस्बिरहरू)
--  Felvételi 2024: hány szakot lehet megjelölni?
--  Yusril Anggap KPU Tak Melanggar Etik Loloskan Gibran, Putusan Ini Jadi Acuannya
--  Брнабиќ: Руските служби имаа информации дека се подготвуваат немири во Србија
--  Бепул дори, пенсияга чиқишда қулайлик ва болаларга йод билан тўйинтирилган нон — 1 январдан нималар ўзгаради?.
--  Тошкентда ит етаклаб кетаётган йигит калтакланиб, умуртқаси синдирилди.
--  Самарқандда ноқонуний майнинг ферма ташкил этган шахслар давлатга 5 млрд сўм зарар етказди.
--  Kriegsweihnacht im Heiligen Land: Mehr Pflicht als Freude
--  Болалар омбудсмани Қашқадарёда жинсий қулликда сақланган 14 ёшли қиз билан учрашди
--  Podgorica: Predloženo da na svakom spratu zgrade moraju postojati...
--  Po Kopru strašil otroke, cena za to bo visoka
--  “1년전 남편 위해 애써주셔서 감사”…첫 기일에 익명 기부한 아내
--  MAI: 446 de permise reţinute în Ajunul Crăciunului, 74 pentru consum de alcool
--  Fatal road accident in Limassol
--  看好電支、單車、半導體三大動能！微程式明年 1 月初轉興櫃一般版
--  Hochwasser in der Oberpfalz: Die Regionen trifft es besonders
--  MP: इंदौर के पुराने गौरव को स्थापित करेगी डबल इंजन की सरकार, CM मोहन यादव बोले- मजदूरों के कल्याण के लिए प्रतिबद्ध
--  Најстудениот декември откако има мерења: снег и зима ги погодија кинеските градови, најлошо е во Пекинг
+-  How does a magnetic compass work? And what happens if you take it to the North Poles?
+-  İşte Ole Gunnar Solskjaer'in Beşiktaş'tan talebi
+-  507 bin 538 depremzedeye psikososyal destek
+-  Ertuğrul Doğan döneminin en iyisi Abdullah Avcı
+-  Osmaniye'de Asayiş Şube Müdürlüğü ekiplerinin denetimlerinde 12 şahıs tutuklandı
+-  Kayserispor'da Olivier Kemen sözleşmesini feshetti
+-  Bečić: Nema više brukanja časne policijske uniforme
+-  Devlet desteğiyle Edirne'deki sera alanı genişledi
+-  Consolider le leadership multidimensionnel du Royaume
+-  Zašto ne biste proveli januar na Crvenom moru?
+-  El Gobierno busca empresas para destruir plantaciones de marihuana en Alicante ante la avalancha decomisada
+-  El divertido sincericidio de Messi sobre cómo vivió la vuelta a Argentina con la Copa del Mundo: "Pensé que iba a haber más..."
+-  Какие матчи КХЛ пройдут в Санкт-Петербурге в новогодние праздники: расписание и время начала игр (25 декабря — 7 января)
+-  Elektrické blechy se nebojte. Smarty na baterky je tajný tip z bazaru
+-  Останній тиждень 2023 року здивує українців аномальною температурою
+-  LSDM “ndihmon” bujqit pak para zgjedhjeve, shihet si ndihmë apo gjah ndaj votave?
+-  Estos son los 8 modelos que Hacienda simplificará para hacérselo más fácil a los autónomos
+-  KL Alabamassa: Metsän keskeltä löytyy tappiokierteen selättänyt suomalainen tehdas, jonka tuotetta halajaa nyt itse Elon Musk
+-  Toppolitiker hoppar av: ”Tråkigt”
+-  Selain Jennie Blackpink, 5 Artis K-Pop Ini juga Mendirikan Agensi Sendiri
+-  Rovaniemeläismies välitti ulkomaisten netti-ihastuksiensa varoja eteenpäin – tuomittiin rahanpesurikoksesta
+-  New iPhone 15 Pro? The 11 features you should try first
+-  Riban Demonstran di Beograd Tuntut Pemilu Serbia Diulang
+-  Ολυμπιακός - Παναθηναϊκός στον Καρρά: Οι φιέστες των «αιωνίων» στον άρχοντα
+-  Kinderkrankengeld: Neue Regeln ab 2024 – das müssen Eltern wissen
+-  'I pay for my family's Christmas by decorating people's trees - I've earned £2k'
+-  Grlić Radman: Nečuveno je da hrvatski predsjednik zloupotrebljava božićne blagdane
+-  El aviso del SEPE sobre lo que ocurre con el paro o prestación de un fallecido
+-  Na ruskom nuklearnom ledolomcu nakratko izbio požar
+-  Παναθηναϊκός: Ο Σλούκας ισοφάρισε το ρεκορ καριέρας στα κλεψίματα
+-  UNEC-də yeni təyinat - FOTO
+-  В Махачкале продолжается республиканская ярмарка
+-  Τέλη κυκλοφορίας: Η τελική προθεσμία καταβολής για τους οδηγούς – Υπάρχει τελικά παράταση;
