@@ -1,51 +1,51 @@
 # Latest News
--  Rostro del pasado revelado: recrean la apariencia de una mujer de hace 3.800 años
--  Decomisan más de 600 paquetes de droga en Puerto del Pacífico
--  Rival a vencer
--  Hay más de 3 mil reos sin sentencia
--  Acusan a René Gavira por 'moche' de 4 mdp
--  Se adueña Jaime Jáquez Jr. de la Navidad en Miami
--  Sufren migrantes abandono del INM
--  Concentran masacres 4 estados
--  Subirá 4.3% IEPS a refrescos, cigarros y gasolina
--  Enviará Reino Unido buque de guerra a Guyana
--  Τερίμ: «Είναι αλήθεια, συμφώνησα με τον Παναθηναϊκό»!
--  1,5 Milllionen Euro für Komplettsanierung der Oberbibracher Forststraße
--  Langjährige Mitarbeiter der Sicherheitswacht Schwandorf geehrt
--  Losowanie już za nami. Będzie polski ćwierćfinał w Pucharze Europy!
--  Акушерка исекла прст на новороденче: Суспендирана е, прстот на бебето ќе биде спасен
--  PlusLiga. Prezentu pod choinkę nie było. Ślepsk Malow Suwałki walczył z ZAKSĄ Kędzierzyn-Koźle. Niestety, bez powodzenia
--  Immunoglobulin scandal: CID records statement from ex Health Minister
--  Kecam Serangan Israel yang Bunuh Komandan Garda Revolusi Iran, Hizbullah: Kurang Ajar
--  Kuasa Hukum Sebut Lukas Enembe Tidak Ada Tanda Drop Sebelum Meninggal
--  تكريم اتحاد كرة الطاولة بعدن في احتفال نظمته دائرة الشباب والرياضة في المجلس الانتقالي
--  السلطة المحلية بخورمكسر تنظم حفلاً تكريمياً لموظفي ومدراء المكاتب التنفيذية بالمديرية
--  Solo 28 cines de 420 agotan las ayudas y subvenciones para el 'Cine senior'
--  Ringgit retreats against US dollar at the close
--  Έφη Παπαϊωάννου: Ο ξέφρενος χορός της με τις πιτζάμες ανήμερα των Χριστουγέννων (Video)
--  The Crown : cet acteur a joué deux rôles différents dans la série !
--  Wind, rain and snow warnings in place as UK braces for Storm Gerrit
--  Започна неформалната среща на ръководителите на страните от ОНД
--  EMEC Expo : Le Salon International du E-Marketing, E-Commerce et Marketing d’Affiliation tient sa 4ème édition
--  Yargıtay kararı: Muhtar teslim aldığı tebligatı götürmekten sorumlu değil
--  Rainha Camilla convida menina cega e com um tumor cerebral a experimentar primeira chávena de chá em Windsor
--  Mann frikjent for rasistiske ytringer – men dømt for vold
--  Flapjack, to teraz zupełnie nowy zespół. Rozmowa z Robertem "Litzą" Friedrichem
--  Novak Djokovic eleito desportista do ano
--  Stano: Čekamo da Kosovo ukine nalepnice na srpskim tablicama
--  Великая надеется, что компенсацию ОКР получат все подвергшиеся санкциям спортсмены
--  מכבי חיפה והפועל תל אביב קוראות להגדיל את מספר האוהדים ל-15,000
--  استعدادا للانتخابات البلدية.. دورة تدريبية لموظفي مركز الاتصال
--  בלדרית נתפסה בנתב"ג עם שקיות יהלומים מוחבאות על גופה
--  Силно земетресение удари бреговете на Оман - Труд
--  Radonjić u pregovorima ekipom koja želi da se fuzioniše sa turskim velikanom
--  Antiques Roadshow expert Henry Sandon dies aged 95 - just months after much-loved TV figure auctioned off his private collection for £50,000
--  Economist'ten itiraf: Erdoğan'ın Batı'ya ikiyüzlülük suçlaması haklı
--  TFF'den Lucescu'ya özel davet
--  İsrail'in kadim Hristiyanlara saldırı ve zulmü doruk noktasına ulaştı
--  Milli muharip uçağımız KAAN'da heyecanlandıran gelişme! Geri sayım başladı
--  Bakan Özhaseki: Kentsel dönüşümü her yerde hızla yapmak durumundayız
--  Cumhurbaşkanı Erdoğan'dan şehit askerler için başsağlığı mesajı
--  Eskişehirspor'da yeni teknik direktör Levent Kartop oldu
--  Nihat Özçelik'in de aralarında bulunduğu 8 kişi gözaltına alındı
--  İlk "ortak yazılı sınavlar" tamamlandı
+-  Man slog sönder fönster på rättscentrum
+-  EU responde con bombardeos al ataque de un dron en Irak
+-  Lo que debes saber si quieres correr con tu perro
+-  Pope didn’t approve same-sex marriage, says Kaigama
+-  لجان مشتركة لإجراء تحاليل المخدرات للموظفين فيالدقهلية
+-  Christmas: Heartland players visit injured goalkeeper Nwakamma
+-  뉴욕증시 프리뷰, 미 주가지수 선물 상승세...인텔·맨체스터 유나이티드·브리스톨 마이어스↑
+-  معجزة ربانية جبارة.. نبات مذهل يحسن الذاكرة ويحارب الشيخوخة ويعزز نمو الشعر ويطيل العمر
+-  فوائد ومكاسب صحية ﻻ حصرلها .. ملعقة واحدة من زيت الزيتون على معدة فارغة
+-  Izraelski vojnici se zarazili opasnom bakterijom, jedan od njih preminuo
+-  RADIM SMEŠAN POSAO I IMAM PLATU KAO PROGRAMER: Dan je loš kada mi ostane samo hiljadarka, fakultet ne treba, važno je samo OVO
+-  Prirodni odmašćivač čisti baš sve masnoće u kuhinji: Uštedite novac i vreme, a kuća će predivno mirisati
+-  Correção: Lula se reúne com equipe do governo no Alvorada para organizar gestão durante recesso
+-  Путин има само едно условие за преговорите: капитулацията на Украйна
+-  Expectations from Aiyedatiwa after Ondo’s political impasse
+-  2023: Top Eight Nigeria’s Achievements In Sports
+-  FIFA fines Ghana 5,000 Swiss Francs for Baba Yara Stadium misconduct
+-  Un historien de l’UNamur participe à l’adaptation en BD du roman "Les Piliers de la Terre", de Ken Follet
+-  Beaufort Co. encourages residents to recycle holiday decorations
+-  Бивш окръжен прокурор осъди прокуратурата за над 220 000 лева
+-  Liga 1: Atlético Grau y los “Churres” se siguen armando
+-  VREME PROMENA Da li je već poznat nasledik Igora Duljaja u Humskoj?
+-  Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
+-  Galaxy S24 Ultra: foto vazada reforça fim da câmera periscópio
+-  Aufgeschnappt: Von Schlüsselträgern und Tageseltern
+-  Ucrânia ataca navio de guerra russo, Moscou admite danos
+-  Kano: APC alleges plot by NNPP govt to misappropriate over N8bn local council funds
+-  وزير الصحة يترأس اجتماع لجنة أولويات استيراد الأدوية والمستلزمات الطبية
+-  Paris: Museu flutuante exibe fotografias no Rio Sena
+-  Brasil bate recorde de mudança de gênero em cartórios em 2023
+-  Hamas must be destroyed – Netanyahu — RT World News
+-  Τριαντάφυλλος για την πρωινή εκπομπή: «Μια-δυο φορές που ήθελα να πω κάποια πράγματα δεν με άφηναν» (vid)
+-  Opština Tivat: 40.000 eura za pomoć ženama u biznisu
+-  Prvi put u povijesti Ukrajina je proslavila Božić na novi datum, u Rusiji nisu nimalo sretni
+-  If you or your children have freckles, here's what your skin is trying to tell you
+-  যে পোশাক পরলে হওয়া যাবে অদৃশ্য!
+-  M1 iPad Air price slashed by $120 in bargain holiday deal
+-  Μιρτσέα Λουτσέσκου για Ραζβάν: «Μέσα στο σπίτι είχε φτιάξει δύο εστίες και είχε κάνει μόνος του πίνακες με τη βαθμολογία των ομάδων»
+-  The Future of Personalization in B2B Emails
+-  Robô que limpa banheiro sem ajuda de humanos viraliza nas redes sociais; veja vídeo
+-  نواز شریف کے کاغذات نامزدگی کی منظوری، پی ٹی آئی کا حیران کن فیصلہ
+-  نوتنغهام يهدر فرصة محققة أمام نيوكاسل
+-  МААЕ: Иран повторно збогатува ураниум до ниво потребно за нуклеарно оружје
+-  Krankheitstage wegen psychischer Probleme weiter gestiegen
+-  Qarabağın bərpası ilə bağlı sahibkarlara
+-  POLOVINOM IDUĆE GODINE NOVO POVEĆANJE PLATA I PENZIJA Mali: Srbija ovu godinu završava mnogo bolje nego druge zemlje
+-  Lula se reúne com equipe do governo no Alvorada para organizar gestão durante recesso
+-  Kanye West Apologizes in Hebrew for Antisemitic Rants
+-  Американцы ударили по проиранским боевикам в Ираке: есть жертвы
+-  Назначена дата суда по делу об убийстве проректора университета
