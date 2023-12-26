@@ -1,51 +1,11 @@
 # Latest News
--  Biden Administration allows US trade tribunal’s ban on Apple Watch imports
--  Judge gives Binance green light as $BTC holds strong and GFOX pumps to $2 Million
--  Iran undoes slowdown in enrichment of uranium to near weapons-grade -IAEA
--  Personal misshandlad på ungdomsboende
--  Стойчо Младенов: Нарочно не ме поканиха на последния мач на "Армията"
--  הגרלת הפאוורבול בארה"ב: הפרס זינק ל-685 מיליון דולר
--  Ura tuhoutuisi – Sergio Perezin paikalle ei ole tunkua
--  9 Destinasi Wisata Dekat Pintu Tol Bengkulu, Kemping di Rindu Hati hingga Menjelajah Benteng Marlborough
--  AHY Kirim Karangan Bunga untuk Lukas Enembe yang Meninggal Hari Ini
--  Skispringerinnen vor Premiere: Neuer Wettkampf zwischen„Alibi-Tournee“ und Aufbruchsignal
--  Суды и невидимая сила. Давно замечено, что людей сопровождает их превосходящая и по-своему разумная божественная случайность, отрицать которую опрометчиво. Но теперь ее замещают «скрепами»
--  Sandiaga Prediksi TMII Bakal Dipadati 50 Ribu Pengunjung pada Malam Tahun Baru
--  Navalnyj inifrån fängelset: Jag är er nya tomte
--  Amanece la ciudad a 3 grados centígrados
--  أمن طرابلس: انقلاب سيارة فوق جسر الجامعة
--  Ce fan de Pokémon Go brave le “grand froid” pour un Pokémon rare
--  Venäjä vaikeuksissa: Valtio joutunut pumppaamaan ilmailusektorille 12 miljardia dollaria tukea
--  Alex Batty celebrates Christmas with bumper present of his favourite fizzy drink
--  Matës për matjen e shpejtësisë së automjetit nga automjeti në lëvizje
--  Les ruptures amoureuses de stars en 2023: Kevin Costner et Christine Baumgartner, Vincent Cassel et Tina Kunakey, Natalie Portman et Benjamin Millepied ...
--  Julie Anne nag-free concert sa mga Cruz
--  Pardubice - Ambri-Piotta. Dynamo na úvod Spengler Cupu bojuje proti švýcarským vískám
--  Conselho Norueguês de Refugiados lembra que forçar deslocações viola lei
--  میلبورن ٹیسٹ پر ہماری گرفت قائم کوشش ہو گی 250 رنز پر آسٹریلین ٹیم کو آؤٹ کر لیں: حسن علی
--  İstanbul'da kontrollü yıkıma rağmen iki günde 2 bina çöktü!
--  A Vág több vizet hoz a vártnál, magasabban tetőzhet a Duna
--  Postponed Navakerala Sadas in four Assembly constituencies on January 1 and 2
--  The Impact of Transcription Services: Unveiling a World of Opportunities
--  Camps to resolve Gruha Lakshmi grievances from Dec. 27 to 29
--  UPC: Od 1. januara ostaje snižena stopa na promet hrane i pojedinih vrsta pića u restoranima i ketering objektima
--  Bakan Özhaseki'den deprem uyarısı: Yapacağımız tek şey tedbir almaktır
--  Süper Lig'in 16,19 ve 20. haftalarının maç programı açıklandı
--  Sergey Şoygu, Putin'e bilgi verdi
--  Team of the Year EA FC 24 : Prédictions TOTY
--  Ралф Шумахер: Брат ми често е имал късмет в живота, но дойде този трагичен инцидент
--  Избиркомы Гомельской области зарегистрировали более 2,4 тыс. инициативных групп по сбору подписей
--  12 places you can’t visit in 2024
--  Меџити: Акцелераторот е инсталиран на Клиниката за онкологија
--  ¿Cuándo vuelven las clases a Córdoba tras las vacaciones de Navidad? Esta es la fecha de la vuelta a las aulas en colegios e institutos
--  CARTAS: La mentalización del ticket de cambio
--  В Азербайджане вносятся изменения в систему разрешений на перевозки
--  THY'den çalışanlarına 3 maaşa kadar ikramiye
--  লাঙলই নৌকা, নৌকাই লাঙল- শ্লোগানে ঘিওরে জাতীয় পার্টির প্রচারণা
--  ‘Arrest shtëpie’ me mbikëqyrje policore/ Berisha: Sikur dy batalione të më vënë te pallati…
--  Ndërron jetë ish ushtari i UÇK-së Abdylmexhit Ademi nga Shemshova
--  'विदेश जान १७ पटक अन्तर्वार्ता दिएँ, लुक्स मिलेन भनेर फालिदियो'
--  Evo čime se sve u protekloj godini bavila Lička razvojna agencija
--  La peor Navidad: Estudiantes de Viña quedaron varados en Brasil tras negarse a abordar avión
--  Virgil van Dijk woonde kort in Dubai: ‘Bijna de beste tijd van ons leven’
--  Almoradí aumenta su presupuesto y alcanza los 15,8 millones para 2024
+-  Уже 15 кандидатов на пост президента Азербайджана
+-  ‘THIS IS LIKE THE 8TH TIME”: Marjorie Taylor Greene targeted by failed Christmas swatting attempt
+-  Στην κηδεία του Βασίλη Καρρά ο Νίκος Ανδρουλάκης: «Περάσαμε αξέχαστες στιγμές με τη μοναδική φωνή του»
+-  Love Actually axed huge storyline from the iconic Christmas film as director says ‘I let myself down there’
+-  The money saving trick that gets my family two holidays for the price of one
+-  MIGUNA MIGUNA blasts DCI and IG as he protests the barbaric murder of Meru-based blogger DANIEL ‘SNIPER’ MUTHIANI.
+-  Blimea llora a María Jesús Montes, fallecida en un accidente de tráfico en el Corredor del Nalón: "Siempre estaba dispuesta a ayudar"
+-  যানজটে আটকে পথেই শেষ ৩ দিনের ছুটি!
+-  Elokuva-arvio: Selma Vilhusen uutuus kertoo hämmästyttävän taidokkaasti ja kirpeästi monisuhteisuudesta
+-  OVERBLIK: Her må man ikke affyre fyrværkeri
