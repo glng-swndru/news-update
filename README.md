@@ -1,51 +1,51 @@
 # Latest News
--  Fenerbahçe, Süper Kupa hazırlıklarına tam gaz devam ediyor!
--  Bandırmaspor'da Hüseyin Eroğlu dönemi!
--  UAEA, İran'ın zenginleştirilmiş uranyum üretimini artırdığını belirtti
--  İsrail ordusu, Gazze'de 2'si subay 3 askerinin daha öldürüldüğünü duyurdu
--  نيران المقاومة تلاحق الاحتلال وآلياته في غزة
--  From Parineeti-Raghav to Alia-Ranbir, celebs jet off for New Year vacays
--  JEZIVO PORODIČNO NASILJE U OBRENOVCU: Pijani muž prvo psovao i vređao ženu, a onda je tukao pesnicama
--  ŽIVAN IMA 106 GODINA, A OVO JE NJEGOV SAVET ZA DUGOVEČNOST: Najstariji Srbin je za života služio kralju, Draži i Titu! VIDEO
--  ప్రజాప్రతినిధుల ఇళ్లను ముట్టడిస్తాం..!
--  5 أعراض إذا ظهرت عليك دليل على إصابتك بسرطان العظام
--  الأبراج الأكثر حظا في 2024.. أموال في الطريق إليهم وسعادة
--  "آي صاغة": أسعار الذهب غير حقيقية وتخضغ لأوهام العرض والطلب
--  Saadet Partili Ömer Faruk Yazıcı: Faizi, kumarı, çeteleşmeyi kabul etmiyoruz
--  300 شهيد من الأطباء والمسعفين في غزة
--  أوتافيو: رئيس بورتو طردني من مكتبه بسبب النصر
--  كيف دمرت شواظ القسامِ أسطورةَ ميركافا الإسرائيلية؟
--  Ylikonstaapeli kertoo Kuha-koiransa uroteosta: ”Nakkeja ja rapsutuksia on annettu tavallista enemmän”
--  Fiscal: A Canserbero y Molnar los mató Natalia Améstica por odio hacia ambos
--  احتياجات المرأة في المكاتب التنفيذية ورشة عمل نظمتها إدارة تنمية المرأة بعدن
--  Pogledajte trenutak uništenja ruskog ratnog broda
--  రేపటి నుంచి ప్రజాపాలన
--  Üstün Kamera Performansı ile En İyi Yılbaşı Hediyelerinden: vivo V29 5G
--  I shake with terror when I see anyone in a white coat – I can’t live like this
--  Doctor Who'nun Yeni Sezonundan Fragman Geldi: Çıkış Tarihi de Belli Oldu
--  High water levels making Boxing Day very busy for Dutch emergency crews
--  Komisija turskog parlamenta odobrila kandidaturu Švedske za NATO
--  Spoljnopolitički odbor turskog parlamenta odobrio kandidaturu Švedske za članstvo u NATO
--  Hochwasser: Lage im Main-Spessart-Kreis entspannt sich
--  Warum Mömlingen kein Problem mit der Flüchtlingssituation hat
--  Hochwasser zeigt sich gnädig
--  వ్యూహం సినిమాను బ్యాన చేయాలి
--  ప్రజల భాగస్వామ్యంతోనే శాంతిభద్రతల పరిరక్షణ
--  2023 en France : la deuxième année la plus chaude après 2022
--  Two wounded in East Oakland shooting
--  Two wounded in East Oakland shooting
--  Panathinaikos, Fatih Terim'i resmen duyurdu!
--  Bakan Bolat: Kişi başı milli gelirimiz, 12 bin 500 dolara yükselecek
--  Turgay Olcayto istifa etmişti... TGC'de yeni genel başkan belli oldu!
--  Южная Корея запретила поставки автомобилей в Россию - САНКЦИИ
--  JANJUŠ ZAVRŠIO U BOLNICI? Isplivao skandalozan snimak iz Elite, iznose mu odeću u DŽAKOVIMA
--  POČEO PROTEST ISPRED RIK Blokiran saobraćaj u Ulici kralja Milana
--  Dünya Gıda Programı Filistin Direktörü AbdelJaber: Gazze’de milyonlarca insan aç
--  Bivši kapiten se vraća u Zvezdu
--  Uhapšeno pet osoba u Novom Sadu: Proneverili novac, pa zgrnuli milione
--  Beograd opet blokiran: Pristalice Đilasa zaustavile saobraćaj u Kralja Milana
--  Krste Velkoski promjenio klub, novi je fudbaler Makedonije GP
--  XV de France : Galthié a choisi son nouveau crack ?
--  Los mejores memes que marcaron 2023: desde mi primera chamba hasta "la queso"
--  Luis Miguel: el nuevo dueño de la marca de tequila Don Ramón
--  Shalini Tai Patil On Ajit Pawar : अजित पवार सामाजिक क्षेत्रात काम करण्यास अयोग्य - शालिनीताई पाटील
+-  ΑΕΚ: Επιστροφή Αμραμπατ
+-  Мамы калининградских гимнасток подрались на детских соревнованиях
+-  На президентских выборах в наступающем году кубанцы будут голосовать традиционным способом
+-  Khởi tố kẻ sát hại người phụ nữ giao gas, giấu xác trong bể nước suốt 13 năm
+-  Hàng trăm người mất tiền tỷ vì mắc bẫy người phụ nữ "siêu nổ"
+-  Vác tải tiền đi mua vàng, có người lãi trăm triệu trong chớp mắt
+-  Sự thật câu chuyện "bàn tay hư" của Lâm Bảo Châu trên thảm đỏ với Lệ Quyên
+-  2 con nhỏ bị rơi xuống đường ray đúng lúc tàu chạy, hành động của người mẹ khiến nhân chứng sững sờ rồi cảm phục vô bờ
+-  Kiểu áo khoác ''thiên biến vạn hóa'', khiến hội mặc đẹp xứ Hàn đổ gục từ mùa hè sang đông
+-  "Sống quá sướng lúc trẻ thì về già sẽ khổ": Lời khuyên tiết kiệm của người chú nghỉ hưu sớm từ năm 42 tuổi
+-  Mỹ nhân Hẹn Hò Chốn Công Sở lần đầu kể chuyện mang thai: "Chồng vô thức đá bụng tôi lúc ngủ, sợ hãi đến bật khóc"
+-  16 năm nuôi con người ta, người đàn ông ôm hận quyết kiện ra tòa, livestream mỗi ngày để tố việc làm của vợ
+-  Bộ sưu tập hơn 1000 chiếc ly của diễn viên Ngọc Lan, gợi nhớ đến một người có "gia tài" không kém
+-  Đoàn Văn Hậu cùng Doãn Hải My đi xem bóng đá, ga lăng xách đồ giúp vợ giữa nghi vấn có tin vui
+-  Sao nữ phim Việt bị đàn chị tát 50 cái, chẳng những không đau mà còn thấy sung sướng
+-  Thiếu gia Phillip Nguyễn tổng kết năm 2023, lần đầu chia sẻ về cuộc sống sau khi kết hôn với Linh Rin và cột mốc đón ái nữ
+-  "Dispatch Việt Nam" Trường Giang từng khui chuyện 1 đôi Vbiz yêu kín tiếng suốt 4 năm, để lộ ngày cưới trước cả chính chủ
+-  "Họ giả vờ đó!" - Câu nói của đứa trẻ 11 tuổi trên TV gây sốc: Sống trong một gia đình không hạnh phúc, trẻ bị "chín ép" như nào!
+-  Làm thế nào để tiết kiệm trên “từng đồng” mà bạn chi tiêu?
+-  Hai năm sau khi hạn chế, làn sóng mukbang bùng phát trở lại: Chỉ cần ngồi ăn mỗi tháng kiếm 50 triệu đồng
+-  Lời nguyền 3 năm SBS Gayo Daejun: Nữ idol hạng A gãy xương, từ BTS - NCT ngã sân khấu đến aespa - MAMAMOO khổ sở trên thảm đỏ
+-  Dùng máy lọc không khí cả năm, người dùng dở khóc dở cười bởi lỗi ngớ ngẩn ngay từ khi mua thiết bị về
+-  Người phụ nữ nước ngoài trổ tài nấu "phở Việt" đăng video lên mạng nhận "bão like", dân bản xứ kêu trời vì sai quá
+-  Đại diện ekip lên tiếng khi Thanh Ngọc bị nghi bất mãn NSX, chính chủ làm rõ biểu cảm cười mỉa team Lệ Quyên
+-  7 anh chị em trong gia đình đều mắc ung thư, bác sĩ điểm danh 4 loại ung thư có tính gia đình
+-  Lan Ngọc - Huyền Baby lên đồ gợi cảm, đọ sắc cùng hội chị đẹp tại sự kiện ra mắt phim của Diệu Nhi
+-  Quang Hải ghi bàn trước ngày ăn hỏi với Chu Thanh Huyền
+-  Nhận xét về 3 cô vợ trẻ hot nhất hiện tại Hải My, Chu Thanh Huyền và Dianaka: Các anh chồng nổi tiếng "đổ" đứ đừ điều gì?
+-  10 phút giảm mỡ bụng tại nhà, tập từ giờ đến Tết là eo thon bụng phẳng
+-  10 món gia dụng tốt nhất năm 2023: Máy rửa bát, máy hút bụi, máy sấy… đều góp mặt, càng dùng càng thấy đáng tiền
+-  Thủy cung Lotte Hà Nội bị hội mẹ bỉm chê sơ sài và hụt hẫng vì giá đắt mà trải nghiệm chưa thỏa đáng
+-  20 phút sau khi tan học, cảnh tượng lạ tại giảng đường ĐH Thanh Hoa được ghi lại: Đây là khác biệt giữa "học bá" và người thường
+-  Diệu Nhi bật khóc sau cảnh hôn Trần Ngọc Vàng, lý do khiến nhiều người bất ngờ
+-  Quy định mới về thẻ Căn cước những ai đang dùng CMND, CCCD gắn chip cần biết rõ
+-  Cuối năm 2024 phải để được 100 triệu: 5 phương pháp tiết kiệm để “lộc tồn” cả năm
+-  Bạn gái Ronaldo đăng ảnh nhà bừa bộn dịp Giáng sinh, gây tranh cãi vì một điểm bất ngờ
+-  Giải bóng đá Thanh niên sinh viên Việt Nam mùa 2 tăng quy mô, nâng tiền thưởng
+-  Hết tiền nhưng muốn hít không khí Đà Lạt, cộng đồng mạng "sang chấn tâm lý" khi biết bí quyết đằng sau
+-  So sánh ở tuổi 25: Mbappe vượt trội Messi và Ronaldo ở hàng loạt chỉ số
+-  Công an đập tường cứu kẻ bán ma túy mắc kẹt giữa 2 bức tường khi bỏ chạy
+-  Thực phẩm bổ sung dùng sao cho chuẩn? Huấn luyện viên tiết lộ thời điểm chính xác nên dùng
+-  Bâu Krysie lần đầu bị "team qua đường" bắt gặp đi chơi cùng Kus sau drama tình - tiền: Chuyện "ngoại tình" cùng bạn thân liệu có thật?
+-  Ngôi chùa được đặt cao nhất Việt Nam nhiệt độ xuống 0 độ C, xuất hiện băng tuyết: Cách Hà Nội chỉ 130km
+-  MLee - Diệp Lâm Anh "chị chị em em" hậu ồn ào thiên vị ở Chị đẹp, đọ visual qua camera thường kết quả thế nào?
+-  Sơn Tùng - Hải Tú lộ ảnh cùng đón Giáng sinh, kiên quyết giữ thái độ này sau 7749 lần bị soi toàn hint xịn
+-  Cặp tình nhân một thời Jennie và G-Dragon “song kiếm hợp bích”, giáng đòn mạnh lên YG
+-  “3 tăng, 2 giảm 1 mềm” cảnh báo cơn nhồi máu não đang ập tới, coi chừng mất mạng
+-  Mua vàng hơn 15 năm, tháng nào cũng sắm ít nhất 1 chỉ, lúc cần bán được 2,4 tỷ mua nhà
+-  7 sự kiện nóng nhất toàn cầu kiến tạo nên thế giới của năm 2023
+-  Từng thẳng tay huỷ kết bạn tuyên bố nghỉ chơi, mối quan hệ của cặp sao nữ Vbiz hiện ra sao?
