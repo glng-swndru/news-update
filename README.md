@@ -1,11 +1,51 @@
 # Latest News
--  10 günde değeri yarı yarıya düşen şirket: "Yatırımcıların kararını olumsuz etkileyebilecek gelişme bulunmamakta..."
--  देश की खबरें | क्रिसमस पर मोदी के साथ दोपहर भोज की तस्वीरे साझा की अभिनेता डिनो मोरिया ने
--  Chikki Chaat Video: सूरत में यह शख्स बेच रहा है चिक्की चाट, वीडियो देख इंटरनेट पर भड़के लोग
--  "Azercell" yenilənmiş rouminq xidmətini təqdim edir
--  Шор: внешнее управление Европы принесло жителям Молдавии лишь бедность
--  Bei Baerbock fällt Weihnachten ins Wasser – bittere Diagnose für Ehemann
--  Hollywood movie star horrifies fans with ‘dirty detail’ in shots from his mansion
--  Ruši li Zapad Vučića? “Oporba je potpuno razjedinjena, Vučić je Zapadu najprihvatljiviji”
--  Ranbir Kapoor-Alia Bhatt reveal daughter Raha’s face: முதல் முறையாக குழந்தை முகத்தை ரசிகர்களுக்கு காட்டிய ரன்பீர் ஆலியா... குழந்தை யாரை போல இருக்கிறார்?.!
--  연말까지 큰 추위 없지만…당분간 고농도 미세먼지 기승
+-  Hurjia huhuja palkankorotuksesta – vaihtaako Lauri Markkanen myös seuraa?
+-  Süper Kupa finalinin VAR hakemi açıklandı
+-  Abdulkadir Selvi yazdı: Biz şimdi şehit cenazelerine nasıl gideceğiz?
+-  Hangzhou shows its ability for international events
+-  Xinhua Silk Road: Dumpling marks taste of Winter Solstice in E. China's Shandong Zaozhuang
+-  Global First Generation IV Nuclear Power Plant Co-Constructed by Shanghai Electric Enters Commercial Operation
+-  Netzagentur : Gasverbrauch in Deutschland steigt um über 7 Prozent
+-  The Blood Pressure Program Reviews 2024 (Customer Honest Warning Exposed)
+-  First Hindu woman in Pakistan files nomination to contest February 8 elections
+-  Is Raghuram Rajan the ‘disease’ or a symptom of a wider disease: Defining the Woke problem and what the solution can be
+-  Is Taylor Zakhar Perez Gay? Everything About “Minx” Star’s Sexuality!
+-  I was heavily in debt after my divorce. I won $130,000 on 'Jeopardy!' and it turned my life around.
+-  Trávite sviatky na horách? Buďte opatrní! Na niektorých miestach hrozí lavínové nebezpečenstvo
+-  MSB: Suriye sınırında 2'si terör örgütleri mensubu 18 kişi yakalandı
+-  KSO Başkanı Büyükeğen: Konya, tüm zorluklara rağmen üretime ve ihracata devam ediyor
+-  Yargıtaydan 'muhtar kendisine teslim edilen tebligatı götürmekten sorumlu değildir' kararı
+-  HAJDIN SVETLUCAVI BOŽIĆ U provokativnom autfitu proslavila veliki praznik uz prigodnu pesmu koju svi znaju, blistala pored svog dragog!
+-  ZELENSKI SE ZANEO Ukrajinski parlament: Nemamo para!
+-  Beyoncein dom iz djetinjstva zahvatio je požar na Božić
+-  Южна Корея ще ограничи доставките за Русия на още 682 вида стоки
+-  DVLA appoints David Jones as its new chair
+-  Berisha në takim me të rinjtë, dërgon në seancë avokatët
+-  Big Bash League: Grand final hero Nick Hobson confirmed as Ashton Turner’s replacement for Perth Scorchers
+-  Srbija i Kosovo: Od 1. januara automobili sa kosovskim tablicama mogu u Srbiju
+-  Straff och självmål i heta kvällsmatchen
+-  KARAMBOL KOD NOVOG SADA Vozio BMW pa se zakucao se u zid tunela! Spašavala ga Hitna pomoć (VIDEO)
+-  Universidad San Marcos: las nuevas carreras que ofrecerá en 2024
+-  พิธีสืบชะตาหลวงครบรอบ 118 ปี พระราชทานนามโรงเรียนยุพราชวิทยาลัย
+-  8 Surprising Benefits Of Dumpster Rental
+-  Qarabağda silah anbarı kimi istifadə edilən mülki obyekt - FOTO
+-  לא החלטתית: אמנדה ביינס עשתה לעצמה מייקאובר ומיד התחרטה
+-  Chelsea eye ‘double move’ for Sporting Lisbon pair in January
+-  TV-Quoten: Triumphale Rückkehr von Helene Fischer
+-  All Wednesday sailings under review
+-  Inoue vs Tapales LIVE: Boxing fight updates and results today
+-  Iračka vlada osudila američke zračne napade na ciljeve u Iraku
+-  Debatten har raset om, hvornår du bedst henter dit barn i institution. Nu kommer forsker med et opsigtsvækkende svar
+-  Debatten har raset om, hvornår du bedst henter dit barn i institution. Nu kommer forsker med et opsigtsvækkende svar
+-  民進黨批造假賴清德老家航測圖 新北市府：政治凌駕專業
+-  Resmi transfer açıklaması! Martial ve Fenerbahçe...
+-  Έλενα Παπαβασιλείου: Με αυτή την εκπομπή επιστρέφει στο Action 24!
+-  Punya Gaji Lebih Besar, BCL Dianggap Psikolog Turun Kelas Nikahi Tiko Aryawardhana
+-  La Masia se abre paso
+-  مدير الكرة بالأهلي يجيب.. هل أُصيب مروان عطية قبل مواجهة سيراميكا؟
+-  Ekonom: Swasta Bisa Ikut Serta Kembangkan Industri Listrik Ramah Lingkungan
+-  Boxing Day: Gachagua hosts hundreds of children at his rural home in Nyeri
+-  Ten poisonous plants every dog owner should know about
+-  Projet russe Arctic LNG 2: le Japonais Mitsui va retirer ses employés
+-  Vince goes whack for half-century
+-  Avrupa'da satın alınabilecek en iyi otomobil seçildi. Türkiye'de de satılıyor
