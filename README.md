@@ -1,51 +1,51 @@
 # Latest News
--  Ladra seriale di centri commerciali, fermata dai carabinieri
--  Doncic travolge i Suns! Celtics show in casa dei Lakers, James sottotono
--  "Milan, il primo rinforzo di gennaio è Gabbia: c'è l'accordo con il Villarreal"
--  Bernardeschi, Natale a Torino: l'incontro con Vlahovic e i tifosi Juve si accendono
--  Kadıköy’de bina çöktü! 2 kişi enkaz altında
--  Турнир по рукопашному бою на призы Деда Мороза прошел в Брянске
--  В России нашли способ ввозить южнокорейские автомобили после введенного запрета
--  Eritritol, el aditivo edulcorante autorizado en alimentos con el que la OCU nos recomienda tener cuidado
--  5 style rules 2000s Kate Middleton could not get enough of
--  Лејкерси губат и на Божик
--  Lần đầu lắp hàng trăm gương cầu lồi trong kiệt hẻm ở Đà Nẵng
--  Dự án Sài Gòn Đại Ninh liên quan án nhận hối lộ tại Lâm Đồng hoang tàn
--  Doanh nghiệp bán lẻ bị tấn công mạng nhiều nhất trong 2 năm qua
--  Cục Đường bộ nói gì về phần mềm mô phỏng lái xe đánh đố thí sinh?
--  Trường học độc nhất vô nhị trong tàu điện ngầm ở Ukraine
--  Ký túc xá Đại học Quốc gia TP.HCM buộc sinh viên khám sức khỏe, các trường phản ứng
--  Ông Lưu Bình Nhưỡng bị khởi tố thêm tội danh vì nhận hàng trăm ngàn USD
--  Peugeot 5008 đời mới sẽ thay đổi toàn diện, có bản chạy điện
--  Tin tức giải trí 26-12: Năm rồng, Võ Minh Lâm làm Tiểu Long Nhân
--  Người dùng nhiều thiết bị điện tử dễ lo âu, trầm cảm
--  Sạt lở bờ sông Đà Rằng, dân mong chính quyền sớm khắc phục
--  Xe tải nhẹ TQ Wuling N300P: Tối ưu tải trọng, an tâm vào phố
--  Trảng Bom - 20 năm thành lập huyện với nhiều dấu ấn
--  Houthi khai thác công nghệ theo dõi AIS để tấn công trên Biển Đỏ
--  Bất động sản thương mại khu vực châu Á - Thái Bình Dương sẽ hồi phục vào giữa năm 2024?
--  Lãnh đạo Quảng Trị nói sẽ xử lý hợp tình, hợp lý vụ trồng 21 trụ điện gió sai vị trí
--  Ngăn chặn nhóm thanh thiếu niên sử dụng dao, bom xăng để 'hỗn chiến'
--  Chủ tịch nước ký quyết định tặng quà người có công dịp Tết Nguyên đán 2024
--  Hiện trạng đoạn đường vành đai dài 2,2km trị giá hơn 7.000 tỉ bị 'tắc' ở Hà Nội
--  Nữ runner Việt Nam ghi dấu ấn ở Giải marathon quốc tế TP.HCM Techcombank 2023
--  Bộ chuyên ngành đề xuất bỏ quy định phòng karaoke tối thiểu 20m²
--  Talkshow trực tuyến: Sử dụng gỗ công nghiệp đúng chuẩn và an toàn
--  10 công cụ AI được sử dụng nhiều nhất trong năm 2023
--  Tết âm lịch trở thành ngày nghỉ lễ của Liên Hiệp Quốc
--  Cơ hội trúng 3 lượng vàng SJC khi giao dịch tại SHB
--  Điểm tin 18h: Gần 1 triệu người hưởng trợ cấp thất nghiệp; Nửa số người Mỹ mắc COVID-19 mới
--  Trước thềm năm mới, TP.HCM vận động toàn dân giao nộp pháo, vật liệu nổ
--  Doanh nghiệp FDI ở Đồng Nai thưởng Tết cao nhất 1 tỉ đồng, 2.800 doanh nghiệp chưa có kế hoạch
--  Novagroup dồn dập bán cổ phiếu NVL trả nợ, Phát Đạt dứt điểm nợ trái phiếu
--  Trực tuyến Công An Hà Nội - Becamex Bình Dương (19h15): Chờ nhà vô địch lên tiếng
--  Unifonic Selected in First Cohort of National Technology Development Program’s Bridge Initiative
--  Grupo chinês desiste de suposto negócio de R$ 9 trilhões na Paraíba após suspeitas de fraude
--  Спасовски: „Петарди НЕ – безбедност пред сè“- кампања за превенција од употреба на пиротехнички средства
--  Politiikan puskaradio: Pitäisikö eduskunnan lehtereille asentaa pleksi ennen kuin joku heittää edustajien päälle oikeaa rahaa?
--  탈당 하루 앞둔 이준석…한동훈 등판에 홀로 고립되나
--  Волгоградский боксер поборется за титул чемпиона Азии по версии WBA
--  2023, année de toutes les remises en cause pour les réseaux sociaux
--  Video of teenage sensation Luke 'The Nuke' Littler throwing darts in nappies goes viral - with Ally Pally's boy wonder showing all of his natural talent at just 18-months-old
--  Тульский «Арсенал» в зимнюю паузу может расстаться с пятью футболистами
--  Pokemon fan proposes in cutest way possible using a custom Poke Ball
+-  “축구 감독 말고 택시 운전사가 될 뻔했어”…박지성 前 스승의 회상
+-  Kamar de los Reyes of 'One Life to Live,' 'Call of Duty' dies at 56
+-  إنقاذ 54 مهاجراً في بحر شمال لبنان
+-  أجواء باردة وتراجع في درجات الحرارة الصغرى
+-  "Aivan poikkeuksellista", arvioidaan Suomen palveluskoiraliitosta poliisikoiran etsintäsuoritusta Korpilahdella
+-  아울시스템즈 ‘아울크립토 V1.0’, 국정원 KCMVP 인증 획득
+-  이스트소프트, 대화형 AI 서비스 ‘앨런’ 출시
+-  [인사] 아이티센그룹, 2024년 조직개편·임원인사 단행
+-  NHN, 연말 맞아 지역사회와 함께 하는 다양한 나눔 활동 진행
+-  메가존소프트, 구글 클라우드 업무 혁신 엔터프라이즈 부문 전문화 자격 취득
+-  AWS, 홍콩 여행 라이프스타일 브랜드 캐세이의 ‘ML 혁신 허브’ 구축
+-  KT, 외국인 특화 서비스 매장 ‘포리너 센터’ 오픈
+-  토마토시스템, 한국사회보장정보원에 테스트 및 소스분석 자동화 솔루션 공급
+-  LGU+, AI 문화생활 패턴 분석 서비스 ‘컬쳐플러스’ 활용 프로모션 다수 진행
+-  카카오, ‘우리동네 단골시장 우수시장 시상식’ 개최
+-  원스토어, 11월 우수베타게임에 ‘휘리릭 용사들’ 선정
+-  플레이오토, 콜로세움과 주문관리시스템 연동 사업 협력
+-  HD현대, 구글 클라우드와 AI 플랫폼 공동 구축 나서
+-  미디어젠-ETRI, 향상된 컨볼루션 신경망 아키텍처 개발
+-  클라이온, 디지털플랫폼 발전 유공 과기부 장관 표창 수상
+-  이노룰스, 한화손해보험 ‘룰 시스템 고도화’ 사업 수주
+-  Militants kill 3 in Uganda Christmas Day arson attack
+-  Concerns As Three Inmates Escape From Ogun Correctional Centre
+-  ¿Quién es el misterioso personaje que se pasea con Javier Milei por todos lados e incluso la Rosada?
+-  Kadıköy’de bina çöktü: Bir işçi molozların altında kaldı
+-  David Warner becomes Australia’s second-highest run scorer, surpasses Steve Waugh in list
+-  غیر ملکی عازمین حج کی رجسٹریشن کا آغاز ہوگیا
+-  Νέο δημοσίευμα-βόμβα από την Τουρκία: «Ο Φατίχ Τερίμ την Τετάρτη στην Αθήνα, υπογράφει για 1,5 χρόνο στον Παναθηναϊκό»
+-  Варненци се радват на уникалното време, вижте къде са
+-  Trafik dehşet anları! Magandalar kuryeyi defalarca darbetti
+-  "영어는 틀려야 트인다"...AI 영어 회화 스픽, 이효리 앞세워 첫 TV 광고 캠페인
+-  코딩 교육 기업 유리프트, 이창호-엄지윤 등 유튜브 스타 앞세운 코딩 학습 드라마 선보인다
+-  클라이온, DPG 허브 인프라 구축 ISP 수립 공로 과기정통부 장관 표창
+-  잘 나가는 뷰티컬리 거래액 3000억원 돌파…중소 브랜드도 '완판' 기록
+-  이스트소프트, 대화형 AI 서비스 '앨런' 내놨다
+-  IP 가치 지켜낸 조이시티, 中에서 프리스타일 상표권 소송 승소
+-  펍지 e스포츠, 2024년 확 달라진다...국제 대회-글로벌 파트너팀 늘린다
+-  [카드뉴스] 대구은행엔 AI은행원 '한아름'이 있다
+-  국민 메신저 카카오톡, 올해도 9번이나 진화...'AI 요약-조용히 나가기-카톡설명서' 더했다
+-  '방송 송출 1주일' 네이버 '치지직' 흥행궤도 올랐나...늘어난 관심에 "최대한 빠른 대응"
+-  게임인재단, 경기게임마이스터고등학교 학생들을 위한 발전기금 1000만원 전달
+-  카카오게임즈 라이브 역량 '활짝'...'썬더 브링어' 선보인 '오딘', 매출 1위 탈환
+-  [같이사소] "2023년 마지막 주, 화끈하게 쏩니다"...쿠팡-티몬-위메프 '기획전'에 주목
+-  [글로벌] 머스크가 만든 AI챗봇 '그록'..."정치적 편향성 보완 필요"
+-  [글로벌] 'AI의 습격'이 현실로?...구글, 3만명 구조조정 계획 중
+-  [글로벌] 애플, 언론사와 손잡고 AI 개발 나선다..."뉴스 사용료로 650억원 제안"
+-  겨울철 심해지는 피부처짐·노화, 트리니티 리프토닝 도움
+-  이니스프리, 마리떼와 컬래버 '그린티 클럽 키트' 증정
+-  뷰티셀렉션 "고객 경험 중요성과 CX 담당자 역할 공유"
+-  "티트리·시카 모두 담은 약산성 바디 워시"
