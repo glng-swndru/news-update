@@ -1,11 +1,51 @@
 # Latest News
--  Veja rotas alternativas de rodovias com a interdição da MT-251 Cuiabá-Chapada
--  مأساة ود الحداد وقراها
--  매경이 전하는 세상의 지식 (매-세-지, 12월 27일)
--  Man Utd 3 Aston Villa 2: Hojlund breaks duck as Garnacho inspires incredible comeback in breathless Boxing Day thriller
--  Manchester United player ratings vs Aston Villa as Alejandro Garnacho and Jonny Evans superb
--  Keep your property safe this holiday season
--  Германия — Кречмер: поиск кандидата в канцлеры завершен
--  行かないで……物悲しそうな顔で飼い主をチラ見する秋田犬
--  Dugaan Bangunan Rumah di Menteng Ambil Lahan Publik, Gang Menyempit dan Menutup Gang Permukiman
--  Tracing your family history is one thing, writing it is the knack
+-  Video: Exmánager de Canserbero confesó haberlo drogado y asesinado a puñaladas
+-  Segunda Tormenta Invernal traerá bajas temperaturas a Parral: Protección Civil
+-  ManU nousi kanveesista - jättihankinta sai viimein maalitilinsä avattua
+-  Soccerladuma | Hojlund Ends Drought As Man Utd Win 5-Goal Thriller
+-  Best cookware deal: ‘Quality’ 10-piece cookset slashed in price by more than $500 as shoppers rush to invest
+-  ఉద్యమాంధ్రప్రదేశ్‌గా ఏపీ
+-  మోదీ, జగన్‌ ప్రభుత్వాలను గద్దె దించాలి: సీపీఐ
+-  అర్హులందరికీ ఆరు గ్యారెంటీలు
+-  నిశ్శబ్ధ విప్లవం.. బహిరంగ విప్లవమవుతుంది యనమల
+-  Il procuratore Lazzari: "La Juve non prenderà qualcuno tanto per prenderlo, cercherà innesto importante. Brava la Juve a prendere Soulé e Barrenechea in tempi non sospetti"
+-  'A shame': Klopp already gutted as Liverpool prepare to be without 'very important' £16m player
+-  キティ50周年目前のサンリオ、7期連続減収減益からV字回復の秘密。「推し活」追い風にしたキャラクター戦略の凄み
+-  Should You Serve Lobster Ravioli With A Red Or White Sauce?
+-  Manchester United sai perdendo de 2 a 0, consegue virada incrível contra o Aston Villa e volta a vencer na Premier League
+-  Украинские СМИ сообщили о взрывах в Одессе
+-  మైనింగ్‌ మాఫియాలో సీఎంకు వాటా
+-  Palestinian woman gives birth to quadruplets on Christmas Day as war in Gaza rages around her
+-  Šef izraelskih snaga: 'Rat u Gazi trajat će mjesecima, nema prečaca u uništavanju Hamasa'
+-  Hasil, Top Skor, Klasemen Liga Inggris Boxing Day: Liverpool dan Manchester United Menang, Newcastle Kalah
+-  Ten Hag vecht zich met United terug uit geslagen positie en boekt fraaie zege
+-  భూ యాజమాన్య హక్కు చట్టంతో కొత్త వివాదాలు!
+-  FT: ЕС готовит план помощи Украине, который позволит обойти блокировки Орбана
+-  الأولمبي رضوان حلال وقع لأتلتيكو مدريد
+-  WWE Smackdown Rating Steady With Previous Week, Viewership Down
+-  Sydney to Hobart: Maritimo 52 retires after stormy first night
+-  Ravens Statement Win, the MVP Convo, and Not Burying the 49ers. Plus, Durant and the Lethargic Suns.
+-  3-2. Garnacho golea, Hojlund remonta, el United revive
+-  పాస్‌పోర్టు వెనక్కి ఇచ్చేయండి
+-  Thousands in danger as giant Russian volcano spews molten ash 2.5km into the air
+-  షర్మిలను సాదరంగా స్వాగతిస్తాం
+-  Man Utd player ratings: Alejandro Garnacho sparks epic second-half fightback but struggling Andre Onana’s woes continue
+-  Man Utd player ratings: Alejandro Garnacho sparks epic second-half fightback but struggling Andre Onana’s woes continue
+-  New teaser photo for Joker: Folie À Deux could be 2023’s last new meme format
+-  Feltámadás karácsonykor: a Man. United kétgólos hátrányból nyert a Villa ellen
+-  Manchester United idawru telfa f’rebħa kontra Aston Villa
+-  연예인도 당한 외국항공사 갑질…피해 구제 외면
+-  ManUnited mit dramatischer Wende gegen Aston Villa +++ Liverpool schlägt Amdounis Burnley
+-  By: Vision Premium
+-  Éste fue el último rap que hizo Canserbero; lo compartió en Instagram 2 días antes de morir
+-  The best MacBook to buy in 2024
+-  Madonna shares a series of festive photos of her celebrating Christmas with her six children: 'Santa Babies'
+-  Recuperan cuerpo de menor ahogado en una pileta de crianza de tilapias
+-  Los escalofriantes dichos del hombre que descuartizó a su padre de 83 años
+-  Quebec students forbidden from using cellphones in classrooms after winter break
+-  Disaster strikes Sydney to Hobart as FIVE boats including a leading title contender are forced to retire in wild weather
+-  В России предупредили США о последствиях замораживания российских активов
+-  New Orleans Pelicans and Smoothie King renew their arena naming rights agreement
+-  Rasmus Højlund bliver matchvinder i vildt United-comeback
+-  Hugh Jackman joins with ex-wife Deborra-Lee Furness to pay tribute to top Australian restaurateur Bill Granger following his death aged 54
+-  Argentina coloca deuda en el mercado local por 549,4 millones de euros
