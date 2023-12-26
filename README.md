@@ -1,51 +1,11 @@
 # Latest News
--  Beşiktaş Başkanı Hasan Arat'tan Çalımbay sözleri
--  Soner Yalçın yazdı: 12 vatan evladı, birileri hamaset yapsın diye canını vermedi!
--  Meclis'te yılın son mesaisi: Grup toplantıları yapılacak
--  Van'da yolu kapalı 451 yerleşim yerinden 360'ı açıldı
--  İsmail Kartal'dan sürpriz Dusan Tadic kararı!
--  事后避孕药几个小时内吃有效
--  避孕栓对女性身体有伤害吗
--  女人吃什么提高性激素
--  女人吃什么性功能增强最好
--  女人吃枸杞的好处和坏处
--  Joel Pohjanpalo taistelee noususta Serie A:han
--  Max Verstappen vaatii uutta rataa Formula ykkösiin
--  Yeni asgari ücret hayırlı olsun! Cem Küçük o rakama anlaşıldı deyip duyurdu: Cumhurbaşkanı Erdoğan 1000 lira daha eklemiş
--  Pandemi ile yasaklanmıştı: Kara sınır kapılarından yaya geçişleri yeniden başlıyor
--  김성한 DGB생명 대표, 일회용품 제로 챌린지 동참
--  KB증권 '2024년 WM투자전략' 종합 자산관리 가이드북 발간
--  대환대출 서비스, 7개월 만에 10만명 쓰고 490억원 아꼈다
--  DGB금융그룹, 위드 유 대학생봉사단 해단식
--  삼성증권, 유튜브 구독자 170만명 돌파…증권사 '최초'
--  카카오뱅크, '데이터 클리닝 짐' 캠페인 통해 2억원 기부
--  [인사] 다우키움그룹
--  [코스피 마감] 3.08p(0.12%) 오른 2602.59
--  [인사] 한진
--  [코스닥 마감] 6.28p(0.73%) 내린 848.34
--  [외환 마감] 원/달러 환율 8.5원 내린 1294.5원
--  NH올원뱅크, '우리 아이 서비스' 출시
--  고양, 특정종교 건축물 용도변경 직권 취소
--  경주시, ‘그린대로’ 전국단위 우수 지자체 선정
--  합천청년회의소, 창립 제55주년 기념식
--  안산, 장상.신길2지구 복합화시설 등 확충
--  함양, 생활민원기동처리반 성공적 ‘안착’
--  포천, 6군단 부지 반환 관련 기자 간담회
--  광명, 목동 운행 200번 일반좌석버스 개통
--  창원, 시정 목표 달성 하반기 베스트드림팀 선정
--  장민수 경기도의원, 건전한 입양문화 조성 토대 마련
--  문형근 경기도의원, 다목적 체육관 시설 환경정비 논의
--  창원해경, 연말연시 및 동절기 대비 안전관리 현장점검
--  양주, 2023년 재난대응 안전한국훈련 평가 우수기관 선정
--  의정부, 코로나19 선별진료소 운영 종료
--  경기도 '만성 정체' 용인 장지∼남사 도로 건설 추진
--  성산구, 2024년 디딤씨앗통장 가입기준 확대
--  이천, SNS 콘텐츠 공모전 수상작 시상
--  경북도, 코로나로 단절 한.중 지사성장회의 복원
--  울릉군, 2024년도 본예산 역대 최대 2615억원 확정
--  한진, 2024년도 임원인사…3명 승진
--  상주 ‘지방규제혁신 성과 평가’ 우수 자치단체
--  구미, 국토부 건축행정평가 우수상 수상
--  금호건설, 저소득층에 겨울 점퍼 111벌 지원
--  Alexeï Navalny et son combat contre Vladimir Poutine, en 10 dates clés
--  Disparition d'Anna, 21 ans, dans le Finistère : cette étudiante a mystérieusement disparu, un appel à témoins est lancé
+-  Soccerladuma | Benson: Give Blackberry A Chance!
+-  Hrôzostrašný nález: O život prišla matka a jej deti! Po otcovi pátrajú, je na úteku
+-  5 veľkých ZMIEN pre vodičov od 2024: POZOR najmä na TÚTO novinku! Stačí málo a schytáte mastnú POKUTU
+-  Sneh sa stále TOPÍ: Kde ešte hrozí VEĽKÁ VODA? TU si dávajte pozor!
+-  อุ๊ย! ‘นนกุล’ มาเฝ้า ‘แอฟ ทักษอร’ งานปาร์ตี้ ‘น้องปีใหม่’ น่าเอ็นดู ใส่หน้ากากแซวแม่ด้วย
+-  "Il faut former agents, dirigeants et élus aux risques": l'ancien chef du groupe de lutte Cybercrim APJ Nice donne ses conseils contre les cyberattaques
+-  Babası kumpir ustası çocuğa patates yok. Ankara Tabip odası 10 çocuktan 22'sinin yoksul olduğunu açıkladı
+-  ‘เศรษฐา’ ปัดปรับ ครม. ลั่น 314 เสียงวันนี้แฮปปี้อยู่แล้ว ยันไม่ดึง ‘ปชป.’ ร่วมรัฐบาล!
+-  İran, Devrim Muhafızları'nın üst düzey üyesinin ölümünü doğruladı
+-  Mutatjuk, ilyen idő várható karácsony második napján
