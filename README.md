@@ -1,51 +1,51 @@
 # Latest News
--  Migrant caravan in southern Mexico marks Christmas Day by trudging onward
--  Požiar v domove seniorov v Kladne: Hasiči evakuovali 15 ľudí
--  Techstars invirtió en Loto Punto, especialista en pagos digitales de población no bancarizada
--  Global Times: Chinese Gen-Zers aim for journey to the sky with more imaginative innovation propelled by China's modernization process
--  Щатските пазари започват последната седмица за годината с оптимизъм*
--  Собчак, Билан, Киркоров извинилсь за "голую" тусовку Ивлеевой: печальные лица российских звезд
--  Rosjanie zajęli miasteczko w obwodzie donieckim? Gen. Walerij Załużny: Nie, to miasto nie istnieje
--  Część ulic już otwarta, ale tramwaj do Wilanowa dopiero we wrześniu
--  Actualité : PlayStation Plus 3.0 : le cloud gaming arriverait sur les téléviseurs connectés et navigateurs web
--  השיטה נחשפת: כך תשיגו מנוי פריומיום בספוטיפיי ב-6 שקלים בלבד
--  החייל הפצוע הפתיע את ראש הממשלה: "מאיפה הכוחות?" | צפו
--  המשבר הייטק הישראלי: האם נמצא הפתרון למחסור בכוח האדם?
--  איילת שקד יוצאת להגנת גנץ: "השתגעתם?"
--  ועדת הכספים באולטימטום לאוצר: הציגו מתווה או שנפנה לחקיקה
--  תשעה חודשי מאסר ו-900,000 שקל קנס: הכרעה בפרשת גל הירש
--  בר רפאלי משתפת בכאב: "רואה את הסרטון בריפיט ולא מסוגלת להמשיך"
--  מחקר חדש חושף: אלו הרכישות הנפוצות ביותר בחודש נובמבר
--  אמיר חצרוני מתפוצץ: "הפלסטינאים הם עם ערבי מפגר"
--  גם אתם קורבנות לעוקץ האשראי ולא ידעתם? ההונאה הגדולה נחשפת
--  קבוצת בסט במינוי מסקרן: זה מנכ"ל החדש של החברה
--  "ייצור מקומי של פחות מ-75% מהצריכה - יסכן את המלאים בישראל"
--  הקריפטו היומי: מגמות מעורבות בקרב המטבעות, הביננס קוין מתפוצץ
--  אורנה בנאי מסעירה את הרשת: מה איחלה לבת משפחת החטופים?
--  ליברמן חושף תכנית לשינוי צה"ל: "הקמת חיל טילים עוצמתי"
--  המפלגה החדשה נגד המדינה: "בזמן שאנחנו טוחנים, הם טוחנים אותנו"
--  В Ингушетии выявлен факт незаконного размещения отходов производства
--  Are India’s oil lifelines safe?
--  Entrega de Kits Recém-Nascido
--  Россияда депортация қилинадиган чет элликларнинг сақлаш муддати чекланди.
--  Japan s Finance Minister Shunichi Suzuki to visit Sri Lanka
--  Ukraina: Shkatërruam një anije ruse në Krime
--  Kutxabank Gestionek kalifikazio gorena jaso du IAPen
--  Putin is mocked by one of his top allies over Russia’s egg shortage
--  Feuerwehr-Einsätze an den Feiertagen: Rettungskräfte befreien sieben Personen aus Fahrstuhl
--  Missing Malaysian Airlines flight MH370 search could be revived and resolved in days, experts suggest
--  Тен Гаг: Ми маємо все виправити
--  4 чемпіонські пояси Усика та Далакяна: чого очікувати Україні у 2024 році
--  Rajnath Singh 27 डिसेंबरला Jammu आणि Rajouri ला भेट देणार
--  Tio kulturpersonligheter som tystnat under 2023
--  UP police Recruitment: పోలీసు రిక్రూట్‌మెంట్‌కు మూడేళ్ల వయోపరిమితి సడలింపు
--  Ni Feid, ni Bad Bunny, las canciones decembrinas son las más escuchadas de Spotify
--  В деревне Покровская горел дом на 100 «квадратах»
--  Prezes Banku Rosji: jesteśmy gotowi na nowe sankcje
--  India News | PM Modi Speaks to Saudi Crown Prince; Exchange Views on Situation in West Asia
--  Ски сезонът на Витоша бе официално открит днес
--  Губернаторская елка прошла в Калининграде
--  Kreuzfahrt-Albtraum: Frau verkauft Haus für Drei-Jahres-Reise, dann startet das Drama
--  Fedotenis anuncia 52 torneos juveniles y profesionales en RD para el año 2024
--  Condutor passa mal, perde controle de carro na BR-163 e cai em vala de escoamento em Sinop
--  В СПЧ объяснили призыв Залужного не скорбеть из-за потери населенных пунктов
+-  Le programme beIN Sports de la semaine : qui osera regarder Wizards – Hawks le 31 décembre à 21h ?
+-  Monseñor Ulloa preside misa de Navidad en La Joyita
+-  Burdur'da araması olan 12 şahıs yakalandı
+-  Ограбено казино во Карпош, полицијата го расчистува случајот
+-  В Кронштадте для туристов открыли первую советскую атомную подлодку
+-  حورية تناقش مع موظفة بالأمم المتحدة تعزيز حقوق المرأة الليبية
+-  Hacen operativo en Cereso 3 para prevenir ataques
+-  Cabometyx by Exelixis for Endometrial Cancer: Likelihood of Approval
+-  В московском метро прошел флешмоб Дедов Морозов
+-  Espagne: manipulation d’images sur fond de xénophobie
+-  Cabometyx by Exelixis for Metastatic Melanoma: Likelihood of Approval
+-  Tragedija u Crnoj Gori: Poginuo mladi bračni bar, čekali su bebu
+-  Hamas: İsrail'in kıyafetleri çıkararak fotoğraflaması savaş suçu
+-  DEM Parti'li Çiftyürek: Türkiye, gıda enflasyonunda OECD ülkeleri arasında birinci sırada
+-  İsrail Savunma Bakanı: Ülkemiz 7 cepheden saldırı altında
+-  Etiyopya, 33 milyon doları ödeyemeyince temerrüde düştü
+-  İlkin Aydın, 2 yıl daha Galatasaray'da!
+-  Ülke genelinde ilk ortak yazılı sınavlar tamamlandı
+-  Milli savaş uçağı KAAN, ilk uçuşunu birkaç hafta içinde yapacak
+-  Hazine ve Maliye Bakanlığı 300 vergi müfettiş yardımcısı alacak
+-  LG, en yeni UltraGear OLED oyun monitörlerini tanıttı
+-  Eski İsrail Genelkurmay Başkanı: Hamas'a karşı savaşı kaybettik
+-  My seaside town was named UK’s worst weekend stay – but it’s a secret paradise now tipped to be big for holidays in 2024
+-  मुंबई में 11 जगहों पर बम धमाके की धमकी, निशाने पर RBI, HDFC और ICICI बैंक
+-  Henriksen backade inte för att gå framåt: ”Lite extra grått hår”
+-  Türkgözü Gümrük Kapısı'nda 11 zanlı yakalandı
+-  Bütün dünya onu konuşuyor! Hakim Ziyech bombası
+-  Hollanda'da yağışlar nedeniyle çok sayıda iş yeri su altında kaldı
+-  Rukometaši kreću s drugom fazom priprema za Euro, važan dvojac se priključuje sutra
+-  Putri Anies Baswedan dan Putri Muhaimin Iskandar Hadiri Pengajian Gus Iqdam
+-  Почина Мирослав Бошковиќ, поранешен атлетичар и професор во пензија: Македонската атлетика ќе биде осиромашена за еден голем ентузијаст
+-  Balıkesir'de 2 bin 587 litre sahte ve kaçak içki ele geçirildi: 11 gözaltı
+-  Rabada grabs five wickets, Rahul holds firm for India
+-  Залужный заявил, что его устроит любой способ пополнения рядов ВСУ
+-  Woman goes viral for playing Fortnite after giving birth
+-  Declaran Patrimonio Cultural de la Nación a la danza Los Margaritos o Ingleses de Mochumí
+-  Po razhodu z "nevesto iz nočne more" je tolažbo našel pri postavni vplivnici #foto
+-  Novi udarac za Igokeu: Laktaše napušta iskusni plejmejker?
+-  Misha in Honkai Star Rail: Leaks, abilities & more
+-  Novel Nectar: Savoring the Essence of Riveting Tales
+-  نوتنغهام يفوز لأول مرة على نيوكاسل في التاريخ
+-  Ο Ατζούν θέλει να αγοράσει τα τηλεοπτικά δικαιώματα του Παναθηναϊκού για χάρη του Τερίμ
+-  XV de France : Le Stade Toulousain pousse un coup de gueule pour Dupont
+-  US-Marktbericht: Anleger an der Wall Street zeigen sich zuversichtlich
+-  Pic de douceur ce mercredi : jusqu'à 20°C au sud-ouest
+-  Đoković spet evropski športnik leta
+-  „Виз Ер“ привремено ќе ги прекине летовите од Скопје до Болоња и Луксембург
+-  Premier League: Newcastle loses to Nottingham Forest at home as Wood scores hat-trick on boxing day
+-  Jammu Kashmir : कैमरे पर पहली बार आतंकियों की गुफाएं ,जहां आतंकी छिपाते हैं गोला-बारूद
+-  Horóscopo 26 de diciembre por Mhoni Vidente: Predicciones de trabajo para tu signo
