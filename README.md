@@ -1,51 +1,51 @@
 # Latest News
--  Орловские студенты принесли новогоднее волшебство в детские дома
--  Lula 2024/26
--  У "Садовода" задержали не вставших на воинский учет натурализованных мигрантов
--  Çalışan emekliye 5 bin TL ikramiye TBMM'den geçti! Ödemeler ne zaman?
--  İsrail BMT-ni bu imtiyazdan məhrum edəcək
--  بالفيديو.. «مركز الصفا القرآني» كرَّم 219 حافظاً وحافظة من أبناء وبنات الكويت
--  Ram Mandir: 29 दिसंबर को हो जाएगा राम मंदिर की मुख्य मूर्ति का चयन, 3 मूर्तियों में किसे चुना जाएगा ?
--  (VIDEO) Perkovac: Želja mi je pobijediti Španjolce, poslije ćemo razmišljati dalje
--  Межрегиональный союз краеведов создан в Вологде
--  ¡Semana de doble frente frío! El sexto sistema invernal de diciembre viene en camino
--  Spezialeinheiten im Einsatz: Terroralarm Kölner Dom: Verdächtiger in Wesel in Gewahrsam genommen
--  На что нужно обратить внимание, чтобы вовремя начать лечение
--  Angst und Depression als Comic-Thema: Im Reich der bunten Monster
--  Pelicans-hyökkääjä törmäsi tolppaan naama edellä
--  'They’ve won the donkey lottery': Foals thrive in new home after rescue of abandoned mares
--  Легенда на Ман Юнайтед изненада: Тотнъм винаги е бил моят отбор
--  Арсенал е в най-добра позиция да подпише с Гонсало Инасио
--  В Баку обсудили возможности международного образования
--  What Is Pine Cone Jam? And What Does It Taste Like?
--  Genlis. À 24 ans, Valentin Boze est le président du club de ping-pong
--  Wskaźnik Chicago Fed pokazał wzrost aktywności gospodarki USA
--  Media: niemiecki dobrobyt jest coraz bardziej chwiejny
--  367500 СНИЛС выдано в Херсонской области
--  Ovo su najjače erogene zone, poljubac tamo će…
--  قصف أهداف بفلسطين المحتلة.. إسناد يمني جديد لغزة
--  أقسى 20 نوع آلام لا تُحتمل
--  Зюганов рассказал, почему не стал претендовать на пост президента
--  Poder Judicial evaluará el 19 de enero pedido de cese de prisión preventiva de Fernandini
--  Na današnjem ročištu svjedočila majke djevojčice Džene
--  Sports News | Imad Wasim Becomes Just Fourth Player to Achieve This Record in T20
--  Руски военен експерт каза как Украйна ще разруши Кримския мост
--  Будущие врачи представили технологические инициативы
--  Bornova’da ‘Yılbaşı Hediyelik Eşya Günleri’ başlıyor
--  MHA Notifies To Enforce Provisions of Jammu and Kashmir Reorganisation Act, Jammu and Kashmir Reservation Act
--  Kulka János bevallotta: szégyelli magát a sztrókja óta
--  Simonyandan SÜLH AÇIQLAMASI: "Bəzi suallar qalır, amma heç vaxt bu qədər..."
--  Labyrinth, scelto il regista per il remake dell’iconico fantasy? Ed è un nome molto amato dai fan
--  Governo de SP fornecerá cannabis medicinal pelo SUS
--  Нетаняҳунинг ултиматуми, десант кемасидан айрилган Россия ва дараги чиққан Навалний — кун дайжести.
--  Украина 2025 йилда демобилизация қилиши мумкин, Залужний унинг шартларини айтди .
--  Uttar Pradesh Brawl Video: Fierce Fight Between Two Groups in Ghaziabad Over Trivial Issue, Video Goes Viral
--  Small & Medium Enterprises are Critical to Net-Zero Goals
--  Roda Robot gearing up for a hat-trick
--  I earn £80,000 a year doing job no one wants to do – no experience is needed and you get free access to swimming pool
--  Intenzivno se razmatra otvaranje direktne avionske linije između Bakua i Sarajeva
--  Justiça prepara segurança para ato de 1 ano da tentativa de golpe, 8/01
--  This linen-loving locale is close to home but a world away
--  Форвард европейской сборной отказал клубу КПЛ
--  ¿Cómo prevenir y aliviar el ‘chuchaqui’ de las fiestas navideñas?
--  На улице Каширской в Ростове нашли труп мужчины
+-  Schäden im Holz durch Schnee und Sturm sicher aufarbeiten (Teil 2) #baumfällen #forst
+-  Oikaisu: Tapaninpäivän näköislehdessä oli nimivirhe
+-  Murdaugh clerk of court accused of plagiarizing book about murder trial
+-  Fish fillets sold at Whole Foods Market recalled due to undeclared allergen
+-  Ukrajinskí vojaci sa stiahli z kľúčovej Marjinky. Mesto už neexistuje, vyhlásil generál Zalužnyj ​
+-  مناقشة طرق الاكتشاف المبكر للأمراض المزمنة
+-  Naira appreciates against dollar in forex market
+-  توقعات الأبراج ليوم الأربعاء 27 كانون الأول /ديسمبر 2023
+-  Crno-bela porodica: Igor Duljaj na novogodišnjem koktelu KK Partizan
+-  – حملة تطعيم ضد مرض الإنفلونزا الموسمية داخل المساجد
+-  Love Island star Lana Jenkins reveals heartbreaking Christmas Day family tragedy
+-  הדגם המחודש של אודי Q4 התייקר רק בשווי עליית המס
+-  “Menduat se më humbët!” Navalny bëhet i gjallë, mesazh ironik nga burgu i Arktikut: Mos u shqetësoni për mua
+-  VOZ NALETEO NA DEVOJČICU Užas u Hrvatskoj: Sa teškim telesnim povredama prevezena u bolnicu
+-  Lazio-Frosinone, il report degli ospiti: torna un titolare, quattro in dubbio
+-  Venezuela está alerta ante provocaciones británicas contra la paz de la región
+-  Vatandaşa geçecek şey televizyondan dışarı çıktı. Camda kocaman delik açtı. Emre Ulaş çizdi
+-  రైతు ప్రభుత్వంగా పనిచేస్తాం
+-  ప్రజలకు ‘అభయ హస్తం’
+-  Cuándo es Semana Santa 2024 y qué día es feriado
+-  Conor McGregor promises 'big announcements' are coming after the UFC star was pictured ringside with Cristiano Ronaldo at the Day of Reckoning boxing event in Saudi Arabia
+-  Police nationale : 1375 nouveaux agents opérationnels
+-  مهرجان الفود ترك يجمع أشهى الأكلات العالمية بموسم الرياض
+-  Desvían primer vuelo de Mexicana por banco de niebla
+-  Foot : en vidéo, le 18e but de Ronaldo sur penalty après une faute de Benzema
+-  వాడుకుని వదిలేయడం జగన్‌ నైజం
+-  కారు ఢీకొని బాలుడి దుర్మరణం
+-  ISCURILA PRIVATNA FOTKA CECE I BOGDANE! Otišle na proslavu, pa ih kamera UHVATILA, ovo će zanimati CELU SRBIJU...
+-  Kobra Murat'tan Kötü Haber: Helallik İstedi!
+-  حزب الله "يزفّ" شهيداً
+-  వ్యవసాయ కార్మికుల జీవితాలు దుర్భరం
+-  دوناروما يمدح لويس إنريكي
+-  హోరాహోరీ పోరులో విజయం ఎవరిదో ?
+-  ‘Wish’ Directors Chris Buck And Fawn Veerasunthorn On The Journey To Create Star: “It’s That Simplicity And The Essence Of Animation”
+-  Weißes Haus legt kein Veto gegen US-Importstopp für Apple-Uhren ein
+-  Polski cios w ukraińską gospodarkę. "Spadek o 700 mln dolarów"
+-  Prozess in Gemünden: Bei Arzt aus der Region Dateien mit Kinderpornografie gefunden
+-  Elsenfelder Tradition vom Winde verweht
+-  Nach Wohnhausbrand im Main-Kinzig-Kreis Hinweise auf rassistisches Motiv und Brandstiftung
+-  To fakt? Budeme toľko rokov na dôchodku v roku 2065
+-  "Voy a trabajar para ganarme a la hinchada": Piero Quispe
+-  బీసీలకు సముచిత స్థానం కల్పించాలి
+-  Турската легенда Фатих Терим пое гръцкия "Панатинайкос"
+-  Ilyen évek óta nem volt: jönnek a karácsony utáni gigakaciók – Itt vannak a részletek
+-  Znanstvenici tvrde da su otkrili kako nastaju glavobolje i migrene: Uzrok nema veze s glavom
+-  ప్రజా పాలన నిర్వహణకు పకడ్బందీ ఏర్పాట్లు
+-  Año Nuevo: Fiestas y conciertos destacados para despedir el 2023
+-  Blue Jays bringing back Kevin Kiermaier on one-year deal
+-  అయోధ్యకు కాణిపాకం బావి తీర్థం, అక్షితలు
+-  ‘Game-changing’ procedure could have major impact on heart disease by treating this ‘silent killer’
