@@ -1,51 +1,51 @@
 # Latest News
--  경기도 '2025년 경기정원문화박람회 개최지' 평택시 선정
--  인천공항공사, 감사 분야 협력으로 내부통제 강화...중장기 전략 수립
--  Amanda Huber Pays Tribute To Brodie Lee On Anniversary Of Passing
--  Las imágenes de los famosos que han muerto este 2023
--  Lakers’ potential trade target to ‘keep an eye on’; Celtics reunion on the cards: NBA Rumour Mill
--  Посол пригрозил последствиями при отказе Запада от помощи Украине
--  Sunita Bainslaw : ఈ-వెరిఫికేషన్‌ స్కీమ్‌ను సద్వినియోగం చేసుకోండి
--  '연애의 참견' 한혜진, “과거 남친과 싸운 후 시애틀로 떠났다”
--  [스한:BOX] '노량: 죽음의 바다'
--  [2023 유통결산 下] 후쿠시마·잼버리·물가안정·알리익스프레스
--  Polícia inglesa investiga acusações de ofensas racistas contra jogador do Luton em Sheffield
--  Zikhale Ng’oma says Chakwera-led government committed to accommodating security agents in modern houses
--  2023全球最高人氣的10大影視巨星！這些演員的影響力無遠弗屆
--  免螢幕的AI Pin將取代手機？2024會是穿戴AI年？
--  超級大選年！除了台灣，2024有60多個國家要選舉
--  Mariah Carey's longtime boyfriend waited until the day after Christmas to announce their split
--  5 youths arrested, another injured after stabbing near Eaton Centre
--  La ONU lanzó un proyecto para luchar contra el cambio climático con ayuda de la inteligencia artificial
--  Tennis : Djokovic lâche une grande annonce pour son avenir
--  Brightcom Group : సెబీ ఆర్డర్‌పై స్టే కోసం బ్రైట్‌కామ్‌ గ్రూప్‌ పిటిషన్‌
--  فرنسا تعرب عن «قلق عميق» من تكثيف وإطالة أمد الحرب في غزة
--  경찰, '압구정 롤스로이스男' 마약 처방 의사 구속영장 신청
--  Başkan Erdoğan imzaladı! 27 bin sözleşmeli sağlık personeli istihdam kararı
--  Konya'da silahlı saldırı: 1 can kaybı
--  Petro lleva 704 viajes y se ha gastado más de $28 mil millones, según María F. Cabal
--  1-2-3 and counting: Las Vegas weddings could hit record on New Year's Eve thanks to date's pattern
--  1-2-3 and counting: Las Vegas weddings could hit record on New Year's Eve thanks to date's pattern
--  Pechugas de pollo con limón a las finas hierbas: rico y muy fácil
--  류희림·與 “민원인 정보 유출은 범죄”…野 “청부심의 기관 전락”
--  El horóscopo de Niño Prodigio para la semana del 25 al 29 de diciembre
--  En desafío a Milei, Máximo Kirchner propone crear un Fondo de Desarrollo Nacional para financiar obras públicas en provincias y municipios
--  หมอยงเตือน! ไข้ไวรัสซิกาอาละวาดหนักใน กทม.
--  లాభాల బాటలోనే మార్కెట్‌
--  Отборът на Едисон Йорданов се отдалечи от дъното, Игор Тиаго с нов гол
--  İsrail hərbi əməliyyatları genişləndirir
--  Dana Brooke Added to WrestleCon 2024 Lineup
--  Inflación: precios en supermercados subieron casi 30% en dos semanas
--  MARLIES NOTES: Dennis Hildeby's healthy scratch not linked to Maple Leafs
--  Capturan 5 venezolanos de la banda “Piratas del Tren de Aragua” en Chile
--  poultry : తగ్గిన మొక్కజొన్న, సోయా ధర పెరగనున్న పౌలీ్ట్ర సంస్థల ఆదాయం
--  Así fue la última gira de Canserbero en México
--  Putin aims to leave nothing to chance in Russia's 2024 election
--  Arranca en Saltillo vacunación COVID en farmacias privadas; los niños tendrán que esperar
--  Ryan O’Neal buried next to his longtime love Farrah Fawcett 2 weeks after his death
--  Bruno Méndez não renova com Corinthians e é anunciado pelo Granada, da Espanha
--  Claudia Alencar é extubada e continua em estado grave, diz filho da atriz
--  الأربعاء 14 جمادى الآخرة.. 12 ساعة بين صلاتي الفجر والمغرب بالرياض
--  Polisi Belum Temukan Motif Politik dalam Penembakan Relawan Prabowo-Gibran di Sampang
--  Sokkoló részleteket tudott meg az édesanya lánya haláláról
--  Marie de Jongh estrena en Leioa su nuevo montaje sobre el poder despótico
+-  Pro Research: Wall Street se sumerge en la dinámica de mercado de Energizer
+-  Nano Dimension propone adquirir Stratasys con una prima del 26
+-  의왕시, 폭설 대비 제설작업 실시... 인력·장비 총동원
+-  이상복 오산시의원, 경기도시·군의회의장협의회 행정감사분야 ‘우수상’ 수상
+-  SSG닷컴, 셀러 지원·지자체 협업 확대
+-  HD현대·삼성·한화, K-조선 초격차 기술 이끈다
+-  신원식 국방부장관, 해군 천안함·2함대사령부 현장지도
+-  [뉴욕증시] 산타랠리 지속에 상승 마감…S&P 사상 최고치 근접
+-  [국제유가] 홍해 지정학적 불안에 상승…WTI 2.73%↑
+-  [인사] 중소벤처기업진흥공단
+-  안유진, 붉은 드레스 입고 뽐낸 극세사 각선미
+-  إسقاط 12 مسيرة و5 صواريخ أطلقها الحوثيون فوق البحر الأحمر
+-  [인사] 하나금융지주
+-  [인사] 하나은행
+-  하나금융 2024년 조직개편, 지주 부회장제 폐지·부문임원제 도입… 하나은행, 26명 임원 승진 인사
+-  EastEnders secretly ‘revealed’ Linda Carter was the Christmas killer 10 months ago with blink and you’ll miss it clue
+-  RIIZE’s Anton And His Father Yoon Sang To Perform Together For 1st Time At 2023 MBC Music Festival
+-  Lisboa. Média de espera para doentes urgentes varia entre 2 e 9 horas
+-  Djokovic diz que quer jogar “até aos 40 anos ou mais”
+-  Diogo Jota marca no regresso e ajuda a vitória do Liverpool
+-  圣诞假期道路死亡人数升至6人
+-  奥克兰一处房屋发生火灾，一人丧生
+-  中国城市社会发展百强榜发布 北京上海深圳分列前三
+-  女子带名牌包入境澳洲竟违法! 被海关拦下当场没收, 差点被起诉罚款！
+-  加拿大人疯狂“外润” 每20分钟就有1人离开! 活不起 逃得起 搬去度假胜地竟然更便宜
+-  经济学家在闭门造车？ANZ发布一线员工观点报告，前线看到的和经济学家预测的似乎差别很大...
+-  U.S. says it downs many drones, missiles fired by Huthis over Red Sea
+-  F1: ¡Adiós Chestappen! Max Verstappen compartió la Navidad con otro mexicano que no es Checo Pérez
+-  Stoltenberg saúda voto parlamentar turco sobre adesão da Suécia à Nato
+-  Unha Ano-Novo: 30 inspirações para garantir que vai arrasar no visual
+-  Ibovespa supera os 133 mil pontos pela primeira vez
+-  Para tuuuudooo!! Veja essa receita de Pão de Queijo com apenas 3 ingredientes!! Você vai amar❤
+-  5 receitas de Ano-Novo para atrair boa sorte e dinheiro
+-  Atriz Claudia Alencar é extubada em UTI e médicos aguardam melhoras: ‘Há 10 dias’
+-  My ‘Botox and makeup’ trick is the best for reviving stale bread – I don’t like to let it go to waste
+-  My ‘Botox and makeup’ trick is the best for reviving stale bread – I don’t like to let it go to waste
+-  AKCIJA "TREĆE DETE" 73. PUT: Tradicionalna manifestacija u Kruševcu, grad izdvojio 1,53 miliona dinara
+-  कन्नौज का ‘बिकरू कांड’: सीसीटीवी पर पत्नी दे रही थी सूचना, पति-बेटा चला रहे थे गोलियां, सिपाही बलिदान
+-  الموسيقيين: روبي مؤدية وليست مطربة.. والجمهور يشعر بالانزعاج من أغنيتها
+-  "Me tenía cansado": Un hombre descuartiza a su padre en Argentina para "cobrar su jubilación"
+-  Code.org sues Byju’s company WhiteHat Jr in US court
+-  ¿Qué es y para qué sirve 'Alpram', medicina con que drogaron a Canserbero para matarlo?
+-  Pendatang tak sesuai tayang di sekolah
+-  EastEnders fans are convinced fan favourite will be framed for Keanu Taylor’s Christmas Day murder in huge twist
+-  EastEnders fans are convinced fan favourite will be framed for Keanu Taylor’s Christmas Day murder in huge twist
+-  Museo Casa Manno: due milioni e mezzo per l’ampliamento
+-  L’arte e la cultura salutano Riccomini Era nato a Nuoro
+-  Andrea Tedde come Ulisse torna a casa ma... a teatro
+-  내년 기약하는 농협법 개정…'멍든 농심' 언제쯤 달랠까
+-  E oggi porte aperte ad Assemini
