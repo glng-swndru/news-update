@@ -1,51 +1,51 @@
 # Latest News
--  اجتماع أمني موسع في بنغازي لبحث خطة مكافحة المخدرات والهجرة وضبط الصحراء
--  News24 | Here are the Powerball and Powerball Plus results
--  النفط يواصل الصعود رغم قلق المستثمرين .. و"برنت" عند 81 دولارا للبرميل
--  الطاقة الذرية: إيران تعيد تسريع وتيرة إنتاج اليورانيوم العالي التخصيب
--  تعرف على آلية عمل الإنذار المبكر .. ودلالات ألوان تنبيهات الأرصاد
--  عاجل.. أهم 10.. ضبط متحرش الرياض وتنفيذ حكم الشرع ومفاجأة عن قاتل ابن "القريقري"
--  «أزرق السلة» يخسر من تونس ويلتقي مصر في البطولة العربية
--  فلسطينيون في الضفة الغربية يقاطعون المنتجات الإسرائيلية
--  «النخبة العربية للتنس» تتواصل اليوم
--  أذربيجان تعلن طرد ديبلوماسيين فرنسيين اثنين
--  التميمي: لقب قطر الدولية للإسكواش يحسّن من تصنيفي
--  السويد تقترب من الانضمام لحلف الأطلسي بعد تحرك في البرلمان التركي
--  دشتي بطلاً لزوجي رواد التنس
--  «الكرة»: عقوبات رادعة لمن يتعرض للحكام
--  باكستان ترحل الأفغان المنتظرين إعادة توطينهم في أميركا
--  الكويت لـ «الصدارة»: رجعت مكاني
--  «الوكالة الذرية»: طهران تزيد «التخصيب» لمستوى قريب من صنع الأسلحة
--  العبكل: إصرار اللاعبين وراء فوز العربي
--  معارك غزة الضارية تجبر إسرائيل على تغيير إستراتيجية الحرب
--  المشعان: لا أتهرب من المسؤولية ونايف: طرد لاعبي النصر صحيح
--  واشنطن تردّ بضربات جوية بعد إصابة جنودها في هجوم بالعراق
--  السعودية: نقف مع اليمن وشعبه الشقيق ونشجع على الحوار
--  Douradense é nomeado para Comissão Nacional de Revisão dos Cursos de Direito
--  Chandauli News: वाहन की चपेट में आने से बाइक सवार दो की मौत
--  Chandauli News: पानी निकासी के लिए विरोध प्रदर्शन
--  Ayodhya News: देश की सबसे बड़ी फ्लोटिंग स्क्रीन पर होगा प्राण प्रतिष्ठा का लाइव
--  महाराज खेत सिंह ने समाज हित में किए कार्य : रामकेश
--  Chitrakoot News: कुएं में गिरे दो बालकों की मौत
--  Chitrakoot News: भदोही ने मैहर को हराकर जीता चित्रकूट चैलेंज कप
--  Chitrakoot News: झांसी ने जबलपुर को हराया
--  Mirzapur News: लकी थापा पहलवान ने पंजाब के कालू को काला जंक दांव से किया चित
--  आंगनबाड़ी केंद्रों पर नौनिहालों का होता है मानसिक विकास: अनुप्रिया पटेल
--  Maharajganj News: 17 हजार कुपोषित बच्चे फिर भी पोषण पुर्नवास केंद्र में आठ बेड खाली
--  Dehradun News: महिंद्रा शोरूम में हुई चोरी का खुलासा, एक आरोपी गिरफ्तार
--  Maharajganj News: सो रहे जिम्मेदार, 34 साल से प्यासी है घुघली की जनता
--  Dehradun News: उत्तराखंड पर लगी पाबंदी तो 350 में 175 बसें ही जा सकेंगी दिल्ली
--  Maharajganj News: कहीं लैपटॉप से तो कहीं मोबाइल से हुआ लाइव प्रसारण
--  Dehradun News: अंडर-17 में हरिद्वार ने दून को और अंडर-19 में दून ने हरिद्वार को हराया
--  Maharajganj News: रोजाना नहीं चलती रोडवेज बस, निजी वाहन वसूल रहे मनमाना किराया
--  सरकारी स्कूलों के बच्चे निजी स्कूलों के बच्चों से आगे : रावत
--  Maharajganj News: शादीशुदा युवक ने युवती को प्रेम जाल में फंसाया
--  Dehradun News: महाविद्यालय के प्रयोगशाला सहायक संवर्ग में पदोन्नति की कोई व्यवस्था नहीं
--  Dehradun News: 24 घंटे में मिले कोविड के 16 संदिग्ध मरीज, सभी की रिपोर्ट निगेटिव
--  Dehradun News: रेसकोर्स में आयोजित गोष्ठी में कवियों ने किया पाठ
--  Dehradun News: दून में आधी आबादी ने लगाई छलांग, डीएल लेने में कब्जाया एक चाैथाई स्थान
--  Dehradun News: तीन वर्षों में ग्राम पंचायतों को संवारने में खर्च किए 12 करोड़ रुपये
--  Kaushambi News: चोरी के इरादे से घर में घुसे युवक को ग्रामीणों ने पीटा
--  Dehradun News: किस वार्ड में कितने घरों से उठा कूड़ा, प्रतिदिन देनी होगी रिपोर्ट
--  Kaushambi News: हादसे में जख्मी बच्चों के मामले में नहीं हुआ मुकदमा, हंगामा
--  Dehradun News: पूरे साल बी-सी-डी से निकल नहीं पाए लोनिवि, चिकित्सा और बाल विकास विभाग
+-  “Нафас йўлларининг сурункали касалликлари ва аллергия сабабчиси”. Эксперт – PM2.5 зарралари ҳақида.
+-  Шойгу 2023 йилда «махсус операция»нинг асосий мақсади муваффақиятли бажарилганини эълон қилди.
+-  Tommy DeVito isn’t seeing things clearly for Giants
+-  The Color Purple sets a box office record with the second-largest Christmas Day opening ever
+-  Zamierzasz wyrobić dowód osobisty? W czwartek tylko do południa
+-  Na trójstyku granic Polski, Czech i Słowacji powstanie tzw. Regionalny Trójkąt Transgraniczny
+-  Kłopot z tarczą antycovidową. PFR zażądał zwrotu pieniędzy
+-  Omoda koryguje plany ofensywy
+-  Mapa polskiego eksportu: na kilku kierunkach widać ożywienie
+-  W UE ważą się losy papierowych opakowań
+-  Gorąca końcówka roku w Panattonim
+-  Miliarderom spuchły portfele
+-  Jakich fachowców szukamy w internecie
+-  Krakowskie centrum kongresowe na zakręcie
+-  Dekalog cyberochrony w firmie
+-  OZE czekają na odrodzenie
+-  Pięć wykresów, które powinien zobaczyć każdy inwestor
+-  PARP ostrzega firmy przed oszustami
+-  Jakie kompetencje są potrzebne w pracy z AI
+-  Bodrum'da jet ski ile göçmen kaçakçılığı!
+-  Inside Chris and Rosie Ramsey’s incredible family Christmas before ‘Boxing Day carnage’
+-  B&H Photo's year-end Mega Deal Zone knocks up to $2,000 off Apple
+-  I bought the weirdest dress from Fashion Nova – it’s a NSFW moment waiting to happen & looks straight out of The Lorax
+-  Texas State vs. Rice prediction: First Responder Bowl odds, pick, best bet
+-  وزارة المالية تستكمل صرف 86% من مرتبات ديسمبر وتهيب بالجهات المتأخرة سرعة تقديم طلباتها
+-  RUSIJA IMA OGROMAN PROBLEM: Fali im 5 miliona radnika, evo gde je kritično!
+-  ASR Suresi Okunuşu: Kur'an'da Anlam ve Önemi
+-  וראן בהרכב מנצ'סטר יונייטד, ווטקינס וביילי בהתקפת אסטון וילה
+-  Milei encerra contrato de mais de 5 mil funcionários públicos na Argentina
+-  Ushtarët izraelitë zhveshin burrat palestinezë në mes të stadiumit të Gazës
+-  HIFK:lla uusi sankari - ”Ekan muistaa aina!”
+-  Decomisan 70 kg de pirotecnia en cruceros y en zona Centro
+-  Im Dezember 1998...
+-  Städtische Delegation sorgt für strahlende Gesichter
+-  Mieten für die Bürgerhäuser werden teurer
+-  As US Veto Power Enables Genocide, There Are Still UN Options to Protect Gaza
+-  Inspira Announces $3.88 Million Registered Direct Offering
+-  Röglestjärnans tunga poängfacit: ”Vill bidra mycket mer”
+-  بعد قفزة الأسعار.. 55% نسبة المكسب من الذهب منذ اندلاع حرب غزة (تفاعلي)
+-  نجاحات لهذه الفنانة ومفاجأة لـ عمرو دياب.. خبيرة تارو تكشف حظوظ المشاهير
+-  "ثروة كبيرة وتحذير".. بسنت يوسف تكشف عن توقعات برج الحمل في 2024
+-  "نجاحات وتحذير مهم".. بسنت يوسف تكشف مفاجأة لـ برج الأسد في 2024
+-  ماذا يحدث للجسم عند حبس البول أثناء الليل؟.. لن تتوقع
+-  Guide To Empowering Corporate Staff Skills In Your Organisation
+-  Basket, natation: la ville de Gravelines cherche des solutions après l'incendie du complexe Sportica
+-  Ο ράπερ Γε ζήτησε συγγνώμη στα εβραϊκά για τις αντισημιτικές δηλώσεις του που προκάλεσαν σάλο
+-  Aprenda a fazer uma deliciosa bebida Uruguai a famosa Cleriot de frutas
+-  7 melhores espumantes para o Ano-Novo
+-  Está querendo dar um Up na saúde e de quebra refrescar nesse verão? Veja só essa receita de Suco Detox Maravilhoso
+-  45 mensagens de Ano-Novo para funcionários
