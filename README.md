@@ -1,51 +1,11 @@
 # Latest News
--  Condenan a 4 extranjeros por tráfico internacional de drogas
--  Petro firma un decreto que da acceso gratuito a escuelas de las Fuerzas Militares y Policía
--  Visitan puertos de control en Chiriquí
--  NH농협은행 서울본부, 릴레이 사랑의 쌀 나눔
--  “둘째부터 학교 교육비 지원가능”…윤영희 서울시의원, 조례 제정
--  베이비타임즈 장선희 기자, ‘제1회 인류애실천분중문화상’ 언론문화상 수상
--  이동환 고양특례시장, 풍동 신천지 종교시설 허가 ‘일파만파’
--  ¿Japón, a la Serie del Caribe? Esto se sabe sobre el interés de los nipones en participar en 2025
--  La reacción de Enzo Pérez con el Diablito Echeverri en el vestuario de River, tras su frase bomba
--  Influencerin (33) wurde von ihrem eigenen Ehemann ermordet!
--  Российские фехтовальщики сбежали в США. За что их объявили в розыск?
--  'I really hope he does it again': Nuno Espirito Santo backs Chris Wood to have a prolific season in front of goal after the New Zealand striker scored a hat-trick to help Nottingham Forest defeat his former club Newcastle
--  Se viraliza un video en el que Zelenski asevera que "no obligarán a palos" a servir en el Ejército
--  Jonathan Dunn charged with murder of two-year-old boy in Utah and injuring his twin sister: Suspect could face death penalty if convicted after spending two years in jail for breaking another child's arm
--  Renfe ha bloqueado este año 22.350 abonos de media distancia por uso indebido
--  Santa Catarina prorroga o prazo para plantio de soja devido ao problema das chuvas
--  Rocío Guirao Díaz marca tendencia con una microbikini tiro alto de su cápsula
--  Matt Napolitano, Fox News Audio Anchor and Reporter, Dies at 33
--  Grèves des enseignants: signature d’un accord sur le statut des fonctionnaires du secteur de l’éducation nationale
--  Point de vue de La Presse de la Manche. « Le cœur bat en blanc »
--  Ουκρανία: Ένας νεκρός και 4 τραυματίες από ρωσικό βομβαρδισμό στον σιδηροδρομικό σταθμό της Χερσώνας
--  Силуанов: Минфин не предлагает снижать долю государства в Сбербанке
--  فريق شباب إنجاز شقرة الكروي يستأنف تمارينه استعداداً لملاقاة احرار الوضيع في بطولة كأس الاستقلال للشباب
--  Ministro Contreras: «El presupuesto destinado a acciones de prevención y respuesta frente a El Niño supera los S/7 mil millones»
--  Javier Milei se sumó a la moda libertaria con un mensaje provocador: qué posteó
--  Empresa anuncia compra milionária do naming right do estádio do São Paulo que passa a ter novo nome
--  Αλ Ιτιχάντ – Αλ Νασρ 2-5: Τα πέναλτι του Σιδηρόπουλου έδωσαν στον Ρονάλντο τη νίκη και την πρωτιά στους σκόρερ του 2023.
--  Режим ЧС ввели в восьми районах Ярославской области из-за отключения электричества
--  To najhoršie má Česko za sebou, prichádza rok nádeje, tvrdí český premiér
--  Siete millones de personas bajo alerta de fuertes nevadas en EE UU
--  Ковальчук — об отстранении российских сборных: абсурд, ни в какие рамки не лезет
--  Circle Chart Music Awards 2023 Announces Nominees For Rookie Of The Year Categories
--  Chris Pratt & Wife Katherine Schwarzenegger Spotted Spending Christmas Holiday with Family
--  El rapero Ye, antes Kanye West, se disculpa por comentarios antisemitas
--  Novak "ostavio trag" u Rijadu i sparingovao sa mališanima FOTO
--  Pro Research: Wall Street disecciona las perspectivas de Bristol-Myers Squibb
--  Daihatsu, filial de Toyota, reembolsará a sus proveedores mientras esté paralizada la fabricación
--  PGIM Investments amplía su oferta de ETF con cuatro nuevos fondos
--  AYM'den Can Atalay açıklaması
--  PFDK, kulüplere ceza yağdırdı!
--  Recuperan cadáver de adulto desaparecido en aguas del río Fonseca
--  In Austin, Texas, appreciating the luxury tucked into the weirdness
--  Непомнящему и Горячкиной на зависть: Дубов и Боднарук уверенно стартовали на чемпионате мира по рапиду в Самарканде
--  Karen og Ingeborg reddet mammas liv: – Jeg er så takknemlig
--  Petro firma decreto que da acceso gratuito a escuelas de las Fuerzas Militares y Policía
--  Rénovation d’infrastructures scolaires et de la voirie urbaine : Mansour FAYE satisfait de l’état d’avancement des travaux
--  Pohodnika na težko prehodnem terenu našla preminulo osebo
--  Един убит и четирима ранени след руски обстрел в Херсон
--  King Charles 'replaced Prince Harry' in his key family role this at Christmas
--  Φατίχ Τερίμ: Έλληνας θέλει να είναι η πρώτη μεταγραφή στον Παναθηναϊκό
+-  Boissons Du Cameroun Et Le Fonds Pierre Castel Soutiennent Les Femmes Rurales À Mouanko :: Cameroon
+-  Kwara Govt Holds Family Funfair To Celebrate Children At Christmas
+-  Neymar chega para cruzeiro em alto mar de muletas e posta: 'Tratamento no rolê, vale?'
+-  Jedan Plenkovićev bivši ministar mjesečno zarađuje preko pet tisuća eura: Iznenađujuće je koji
+-  עילי חבר נפרד עם ניצחון: 0:3 חלק למטה אשר/עכו בהוד השרון
+-  (VIDEO). Cuatro mondaha interceptan a coreados y se llevan bolsas con ropas y equipos de padel
+-  '맨유 VS 빌라, 누가 이길까요?'…두 팀 모두 뛴 FW에게 물었다, 대답은 "빌라가 훨씬 더 건강하다!"
+-  박나래 "'개콘'에서 계속 까여…1년에 두세 번 무대 섰다" [금쪽상담소]
+-  옥주현 "공연 중 허벅지 파고든 철사…피 주르륵, 객석은 몰라" [금쪽상담소](종합)
+-  '스걸파2' 오늘 대망의 파이널 …관전 포인트는?
