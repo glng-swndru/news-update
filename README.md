@@ -1,11 +1,11 @@
 # Latest News
--  Emekliye 5 bin lira ikramiye yasalaştırılıyor! Detaylar açıklandı
--  Filistinli anne İsrail soykırımından okula sığınarak kurtuldu, 4'üz doğurdu
--  Shaun King Claims Instagram Banned Him Over Israel-Gaza Posts
--  Life | Drinking alcohol this Christmas and New Year? These medicines really don’t mix
--  ‘Govt has weaponised suspension of MPs’
--  Salman Khan snapped at Mumbai airport ahead of his 58th birthday
--  Israel hits Bethlehem in Xmas raids on West Bank
--  Tre amerikanske soldater såret i Hizbollah-angreb
--  PM Modi praises Christian community’s contributions
--  Toyota’s Daihatsu to compensate suppliers over output halt
+-  13. Zuliefererkonferenz und Vorstellung der Strategie für 2024 bei Gotion High-tech
+-  SBI Scheme : SBI ची भन्नाट योजना! 400 दिवसांच्या गुंतवणुकीवर भरघोस व्याज, 31 डिसेंबरपूर्वी करा 'हे' काम
+-  SK온, 배터리 생산장비 지능화 추진…6자 양해각서 체결
+-  एक, दोन नाही तर तब्बल 18 प्रकारचे डान्स करणारा घोडा, सारंगखेडातील 'सूर्या' ठरलाय यंदा आकर्षणाचा केंद्रबिंदू
+-  중국이 거부한 日 가리비, 한국으로?…“375억원어치 수출 계획”
+-  ‘스프레이 훼손’ 경복궁 담벼락 복구작업 해 넘긴다…내년 1월 공개
+-  ¿Cuál es el mensaje del «Moyo» Contreras que sería una despedida en Comunicaciones?
+-  120公斤蟒蛇躲雞籠被捉
+-  Ζεράρ Ντεπαρντιέ: Ο «αυτοκαταστροφικός και αχόρταγος» 75χρονος ηθοποιός - Η ζωή και οι ρόλοι του
+-  Comment le synthétiseur Moog a étendu le domaine de la musique
