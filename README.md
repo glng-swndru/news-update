@@ -1,51 +1,11 @@
 # Latest News
--  Pre viaceré okresy na Slovensku platia naďalej výstrahy pred povodňami
--  Luxusné Vianoce u Rytmusa: Dal si vyrobiť MEGA prsteň s diamantami... Za 100-tisíc eur!
--  KVÍZ Tieto otázky zvládne len skutočný milovník Vianoc: Uhádneš známe piesne len podľa pár slov?
--  Som a ostanem profesionálnym politikom, nemám už iné kariérne ambície, povedal Fico
--  יוזמה למפוני קו העימות: הכשרה ושילוב בתעשיית ההייטק
--  במקום לרוץ למיון: מענה רפואי מקצועי תוך כשעה
--  В Комсмольске-на-Амуре увеличили объемы ввода жилья
--  MUP RS oduzeo skupocjeni 'BMW' za kojim traga Interpol
--  السعودية تعزز حضورها في أسواق الغاز
--  OR ยันสถานบริการน้ำมันทุกแห่ง ปรับแต่งมาตรวัดไม่ได้ พร้อมปรับมิเตอร์ให้เป็นศูนย์หรือบวก
--  Slik leder han Haaland & Co.: – Ikke tro han er skrudd eller hater glede
--  "PUSTIMO IH DA ŠUTIRAJU LOPTU, DOK SE CEO GRAD MUČI" Vučić o protestima u Beogradu: Svako ima pravo da protestuje, dok ne dođe do nasilja (VIDEO)
--  U Plavu tri dana žalosti
--  Incendiu la Ferma Dacilor. Tatăl unui angajat: „Fiul patronului venise acasă din cantonament fiindcă se accidentase la hockey"
--  "STREFIO ME ŠLOG ZBOG NJEGOVIH PREPISKI S DRUGOM CICOM" Jelena i Ivan Marinković ušli u "Elitu", ona pred ulazak otkrila NAJVEĆI STRAH
--  المنتخب الوطني لكرة السلة يفتتح اليوم مشاركته في البطولة العربية
--  “N’effacez pas Gérard Depardieu” : des artistes signent une tribune en défense de l’acteur
--  San Bernardo: Niño de 3 años en riesgo vital tras recibir impacto por balacera estando al interior de su casa
--  Frau und vier Kinder tot bei Paris aufgefunden
--  EVO GDE ĆE BITI SAHRANJEN MLAĐI BRAT MARKA JANJUŠEVIĆA JANJUŠA: Oglasila se tetka pokojnog Mihaila, otkrila detalje
--  Экономику еврозоны ждет слабый рост в 2024 году - прогноз
--  MAT: మ్యాట్ - ఫిబ్రవరి 2024 నోటిఫికేషన్ విడుదల, దరఖాస్తు ప్రక్రియ ప్రారంభం - పరీక్ష ఎప్పుడంటే?
--  На стыке БАМа и Транссиба завершилось строительство новой железнодорожной развязки
--  Investigadores del 12 de Octubre demuestran la validez de un tratamiento para bebés con tuberculosis y VIH
--  Investigadores del 12 de Octubre demuestran la validez de un tratamiento para bebés con tuberculosis y VIH
--  Nehammer dankt Exekutive für Einsatz gegen Terror
--  Oustaz Bayo en prison pour avoir violé 9 mineures, les révélations effarantes du rapport gynécologique
--  Caušević: Borba Sindikata prosvjete je borba svih zaposlenih u...
--  Ucrania destruyó un buque ruso en el mar Negro y asegura que lo utilizaban para transportar drones iraníes
--  콜로라도주 판결 “2024 대선 투표용지에서 트럼프의 이름 빼라” [팩트매터]
--  Израиль задержал на Западном берегу Иордана более 30 подозреваемых в терроризме
--  Fact Check: अमूल ने नहीं लॉन्च किया “शर्म” ब्रांड का चीज, वायरल तस्वीर AI क्रिएटेड है
--  OBC Protest : 20 जानेवारीला राज्यभर ओबीसी समाजाचं विविध मागण्यांसाठी आंदोलन ABP Majha
--  Ancelotti recuperará a Camavinga y Vinicius para la Supercopa en Arabia
--  Ancelotti recuperará a Camavinga y Vinicius para la Supercopa en Arabia
--  ما هي فوائد العنب الأسود واضراره؟
--  مقتل إسرائيلي بإنفجار عبوة ناسفة - فيديو
--  CM Jagan Playing Cricket | Aadudam Andhra | ఆడుదాం ఆంధ్ర కార్యక్రమంలో భాగంగా క్రికెట్ ఆడిన సీఎం జగన్ | ABP
--  Trabzon’da Avrasya Üniversitesi rol model olmaya devam ediyor!
--  חדש: תוכנית חברתית לבחירת מקצועות מדעיים וטכנולוגיים
--  FT: крупнейшие банки мира сократили в 2023 году более 60 тыс. рабочих мест
--  Bahçeli: CHP, Türkiye düşmanlarının eline geçmiştir
--  Hasta yakını, hemşireyi darbetti: Gözaltına alınan saldırgan serbest bırakıldı
--  Başkan Altay, turizm paydaşlarıyla değerlendirme toplantısı yaptı
--  Konya'da kumar oynayan 6 kişiye 24 bin 330 TL ceza
--  Karaman'daki eski damat-kayınpeder kavgasında, yaralılardan 1'i taburcu olduktan sonra gözaltına alındı
--  "DA JE ŽIV, BIO BI VEOMA TUŽAN" Bliži se godišnjica SMRTI legendarnog Pelea, njegov sin rešio da otvori dušu!
--  Tsunami 19th Anniversary: 19ம் ஆண்டு சுனாமி நினைவு தினம்; சுனாமி ஸ்தூபில் மும்மத சிறப்பு பிரார்த்தனை - உறவினர்கள் கண்ணீர் மல்க அஞ்சலி
--  Израиль сообщил о попытке обстрела летательного аппарата ВВС со стороны Ливана
--  El discurso del Rey, el segundo menos visto de la década
+-  대전시, 막바지 총력전으로 우량기업 9곳 투자유치 성공
+-  중소기업 하도급 거래 공정성 수준 하락
+-  국민건강 촉진·정치 참여로 더 나은 미래를 모색하는 ‘대전 의료기사 연합’
+-  등록금 인상여부 놓고 대학마다 셈법 고심
+-  교육정책은 백년대계 원칙 잊어서는 안돼
+-  “대입개편안 혼란”…입시학원 되레 북적
+-  내일 올해 마지막 국회 본회의… 충남 현안 담은 법률안 통과 여부 주목
+-  사교육 줄인다더니… 대입개편안에 학원 의존도 더 커지나
+-  더 채워주세요
+-  대전 대덕구 효자구역 주거환경개선사업 ‘속도’
