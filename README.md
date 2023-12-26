@@ -1,11 +1,11 @@
 # Latest News
--  Süper Lig’deki gol krallığında son durum
--  İzmir'de PKK/KCK operasyonu: 10 gözaltı
--  Irak'ta 20 Haşdi Şabi üyesinin ABD saldırısında yaralandığı iddiası
--  Ezeli rakip devreye girdi! Eric Bailly'ye sürpriz talip
--  Chipolopolo begin AFCON preps
--  Yılbaşı öncesi jandarmadan sahte alkollü içki operasyonu yapıldı
--  Dolar/TL Rekor Kırdı! Dolar Yeni Yıl Öncesi En Yüksek Seviyesini Gördü
--  Aile İz Peşindeydi: Katliam Gibi Kaza Kameralarda
--  4 Kıtada, 14 Ülkede 25 Bin Çalışanlı Türk Firmasından 10 Milyar Dolar Yatırım Hedefi
--  กองปราบบุกจับลอบเปิดบ่อนไฮโล ข้างวัดแม่โจ้
+-  Варшава ва Тошкент ўртасида тўғридан тўғри парвозлар йўлга қўйилади .
+-  “Вақти келиб одамлар Тошкентдан оммавий кўчиб кета бошлайди” – Расул Кушербаев.
+-  32 та йирик шаҳар ва 155 та туман марказида оқова сув тизими янгиланади.
+-  590 минг долларни Қирғизистонга ўтказмоқчи бўлган шахсларга суд ҳукми ўқилди.
+-  В Туле прошел турнир по флаг-футболу
+-  ينتهي غدًا.. "الصحة" تؤكد استمرار استقبال طلبات توظيف الخريجين في هذه التخصصات
+-  IG-Metall-Chefin: Regierung fehlt Strategie für Industrie
+-  Əminə Dilbazi - 104
+-  Australia en la COP28
+-  افغان کرکٹ بورڈ نےا پنے 3 اہم ترین کھلاڑیوں کو سخت 'سزا' دیدی
