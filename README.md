@@ -1,51 +1,51 @@
 # Latest News
--  Man slog sönder fönster på rättscentrum
--  EU responde con bombardeos al ataque de un dron en Irak
--  Lo que debes saber si quieres correr con tu perro
--  Pope didn’t approve same-sex marriage, says Kaigama
--  لجان مشتركة لإجراء تحاليل المخدرات للموظفين فيالدقهلية
--  Christmas: Heartland players visit injured goalkeeper Nwakamma
--  뉴욕증시 프리뷰, 미 주가지수 선물 상승세...인텔·맨체스터 유나이티드·브리스톨 마이어스↑
--  معجزة ربانية جبارة.. نبات مذهل يحسن الذاكرة ويحارب الشيخوخة ويعزز نمو الشعر ويطيل العمر
--  فوائد ومكاسب صحية ﻻ حصرلها .. ملعقة واحدة من زيت الزيتون على معدة فارغة
--  Izraelski vojnici se zarazili opasnom bakterijom, jedan od njih preminuo
--  RADIM SMEŠAN POSAO I IMAM PLATU KAO PROGRAMER: Dan je loš kada mi ostane samo hiljadarka, fakultet ne treba, važno je samo OVO
--  Prirodni odmašćivač čisti baš sve masnoće u kuhinji: Uštedite novac i vreme, a kuća će predivno mirisati
--  Correção: Lula se reúne com equipe do governo no Alvorada para organizar gestão durante recesso
--  Путин има само едно условие за преговорите: капитулацията на Украйна
--  Expectations from Aiyedatiwa after Ondo’s political impasse
--  2023: Top Eight Nigeria’s Achievements In Sports
--  FIFA fines Ghana 5,000 Swiss Francs for Baba Yara Stadium misconduct
--  Un historien de l’UNamur participe à l’adaptation en BD du roman "Les Piliers de la Terre", de Ken Follet
--  Beaufort Co. encourages residents to recycle holiday decorations
--  Бивш окръжен прокурор осъди прокуратурата за над 220 000 лева
--  Liga 1: Atlético Grau y los “Churres” se siguen armando
--  VREME PROMENA Da li je već poznat nasledik Igora Duljaja u Humskoj?
--  Gaziantep'te Günün Defin Listesi... Bugün Gaziantep'te Kimler Vefat Etti?
--  Galaxy S24 Ultra: foto vazada reforça fim da câmera periscópio
--  Aufgeschnappt: Von Schlüsselträgern und Tageseltern
--  Ucrânia ataca navio de guerra russo, Moscou admite danos
--  Kano: APC alleges plot by NNPP govt to misappropriate over N8bn local council funds
--  وزير الصحة يترأس اجتماع لجنة أولويات استيراد الأدوية والمستلزمات الطبية
--  Paris: Museu flutuante exibe fotografias no Rio Sena
--  Brasil bate recorde de mudança de gênero em cartórios em 2023
--  Hamas must be destroyed – Netanyahu — RT World News
--  Τριαντάφυλλος για την πρωινή εκπομπή: «Μια-δυο φορές που ήθελα να πω κάποια πράγματα δεν με άφηναν» (vid)
--  Opština Tivat: 40.000 eura za pomoć ženama u biznisu
--  Prvi put u povijesti Ukrajina je proslavila Božić na novi datum, u Rusiji nisu nimalo sretni
--  If you or your children have freckles, here's what your skin is trying to tell you
--  যে পোশাক পরলে হওয়া যাবে অদৃশ্য!
--  M1 iPad Air price slashed by $120 in bargain holiday deal
--  Μιρτσέα Λουτσέσκου για Ραζβάν: «Μέσα στο σπίτι είχε φτιάξει δύο εστίες και είχε κάνει μόνος του πίνακες με τη βαθμολογία των ομάδων»
--  The Future of Personalization in B2B Emails
--  Robô que limpa banheiro sem ajuda de humanos viraliza nas redes sociais; veja vídeo
--  نواز شریف کے کاغذات نامزدگی کی منظوری، پی ٹی آئی کا حیران کن فیصلہ
--  نوتنغهام يهدر فرصة محققة أمام نيوكاسل
--  МААЕ: Иран повторно збогатува ураниум до ниво потребно за нуклеарно оружје
--  Krankheitstage wegen psychischer Probleme weiter gestiegen
--  Qarabağın bərpası ilə bağlı sahibkarlara
--  POLOVINOM IDUĆE GODINE NOVO POVEĆANJE PLATA I PENZIJA Mali: Srbija ovu godinu završava mnogo bolje nego druge zemlje
--  Lula se reúne com equipe do governo no Alvorada para organizar gestão durante recesso
--  Kanye West Apologizes in Hebrew for Antisemitic Rants
--  Американцы ударили по проиранским боевикам в Ираке: есть жертвы
--  Назначена дата суда по делу об убийстве проректора университета
+-  Kickoff | Chiefs defender secures AFCON debut ticket
+-  Pakistan'dan vergi kaçakçılarına ilginç çözüm
+-  Centre issues advisory to social media intermediaries with focus on curbing deepfakes
+-  Soccerladuma | Players Who've Won Trophies After Leaving Chiefs
+-  আগের রাতে ভোট হবে না, তার শতভাগ নিশ্চয়তা দিচ্ছি: সিইসি
+-  انعقاد الملتقى التنظيمي لخدمات المواطنين بمشاركة 7 أجهزة تنظيمية بمصر
+-  البورصة تهبط بنسبة 0.96% مع نهاية تعاملات جلسة اليوم الثلاثاء
+-  مشروب غير متوقع يرفع نسبة السكر في الدم.. وحيلة بسيطة لتجنب أضراره
+-  Äggkastarna dömda
+-  Mom of tot found dead in septic tank fuming that no charges filed against babysitter
+-  Biggest Surprises of 2023
+-  Save big on the Anker Nano II 65W wall charger
+-  Jessie J shares incredible throwback bikini snap - as well as her sunburned bottom - as she admits she has got 'a little lost when it comes to self-love'
+-  Totaalinen tyrmäys – Slovakia yllätti nuorten MM-jääkiekossa
+-  Lo último en seguridad en la carretera: Inteligencia Artificial para proteger a los ciclistas
+-  Психолог Лаврова посоветовала сохранять объективность при подведении итогов года
+-  Европските берзи затворени за Божиќ, руски MOEX паѓа, цената на златото расте
+-  Türkischer Luftangriff trifft Traberts Praxis in Syrien
+-  Explosions Heard In Red Sea Shipping Lane Off Yemen Coast: Report
+-  2 Palestinians Killed In Israeli Raid On Refugee Camp In West Bank
+-  Deep Tech is Reshaping the Pharmaceutical Industry
+-  विदेश की खबरें | पाकिस्तान के पूर्व विदेश सचिव रियाज खोखर का निधन
+-  Ex-Binance CEO Changpeng ‘CZ’ Zhao Net Worth Soars 5X Than Binance’s $4.3 Bln Fine
+-  देश की खबरें | झारखंड: आंदोलनकारी शिक्षकों ने अपना विरोध-प्रदर्शन पांच जनवरी तक स्थगित किया
+-  Asgard’s Wrath 2 Review – Virtually Flawless
+-  ‘I was sleeping on people’s couches when I won PFA Player of the Year’ – Lucy Bronze reflects on joining Liverpool and being a right-back winning individual awards
+-  Świętowanie zakończone w... areszcie
+-  Bakan: “Milli Gelir kişi başı on iki bin beş yüz dolar olacak”
+-  Tıp literatüründe böylesi görülmedi! İlk kez Türkiye'de ortaya çıktı
+-  Insändare. ”Sluta med det överdrivna tackandet”
+-  Car of the Week: This 1962 Corvette Has Been Impeccably Preserved. Now It’s Up For Grabs.
+-  Du trodde kanskje NRK sender direkte? Det stemmer ikke.
+-  সরিষাবাড়ীতে সাংবাদিককে দেখে নেওয়ার হুমকি, থানায় জিডি
+-  A last-minute gift for wine lovers: Give them 15 bottles of red wine for under $60
+-  Save a Whopping $394 on This Refurbished Microsoft Surface Pro 6 with Type Cover
+-  Segera Rilis Lagu Religi, Penampilan Nagita Slavina Dikritik
+-  Meet Ritual, the multivitamin and wellness brand that we recommend
+-  How to Repair Your Skin Barrier, According to Dermatologists
+-  ‘It’s Not a History Lesson, It’s a Warning’: Inside the Making of ‘The Zone of Interest’
+-  Grupos de la sociedad civil, en riesgo de ser cooptados por la delincuencia organizada
+-  Best Movies of 2023: Barbie, Saltburn, and More According to Our Editors
+-  Mel B on Returning to 'America's Got Talent' and Reuniting with the Spice Girls in 2024
+-  Play Your Favorite Games on Any TV With This Portable Nintendo Switch Dock Conversion Cable for Just $18
+-  Mercato - PSG : C'est annoncé, cette star du projet QSI va revenir ?
+-  Bocan-Harčenko o protestima: Skupljaju demonstrante po Srbiji, daleko od toga da je cio Beograd „ustao“
+-  В Российской кинологической федерации рассказали о подготовке собаки к салютам
+-  Watch Arsenal transfer target Kenan Yildiz score wonder goal for Juventus as Gunners prepare January move
+-  Indické námorníctvo posilnilo po sérii útokov svoje sily v Arabskom mori
+-  Marta Čurajová sa chce zasadzovať o reformu a očistu justičného systému
+-  Dodatočný predaj vianočných darčekov cez internet prudko rastie
