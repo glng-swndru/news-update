@@ -1,51 +1,11 @@
 # Latest News
--  Waverley house fire: Boxing Day disaster as family home engulfed in flames
--  [속보] 與전국위, 한동훈 비대위원장 임명안 가결
--  의왕예술의거리 착한가게·나눔거리 선포식
--  홈플러스 온라인 신규 입점 시 '수수료 0%'
--  파주, 말라리아 예방관리사업 우수기관 선정
--  [인사] 국세청
--  تقرير: رئيس وزراء اليابان يجري ترتيبات لزيارة الولايات المتحدة
--  Главные новости за 23-25 декабря
--  Viral Video: ਪੰਜਾਬੀਆਂ ਦੇ ਰੰਗਾਂ 'ਚ ਰੰਗਿਆ Santa Claus, ਹੱਥ ਜੋੜ ਬੋਲਾਈ ਫ਼ਤਿਹ, ਯੂਜ਼ਰਸ ਨੂੰ ਪਸੰਦ ਆਇਆ ਸਾਂਤਾ ਕਲਾਜ਼ ਦਾ ਪੰਜਾਬੀ ਅੰਦਾਜ਼
--  Ankita reveals the impact on her watching Sushant kiss Anusha in PK
--  Putin clears Rosbank’s purchase of Societe Generale’s Russian assets
--  Pemkab Bantul Pastikan Stok Bahan Pokok Cukup Selama Nataru
--  Seorang Perempuan di Bantul Ditemukan Meninggal Dunia
--  Prabowo dan SBY Peringati Peristiwa Tsunami dan Perdamaian Aceh
--  شكشك يشارك في اجتماع مجلس المراجعين الخارجيين للاتحاد الأفريقي
--  Söder fordert Abschaffung des neuen Bundestagswahlrechts
--  Раскрыта доля России в торговле Китая
--  Nara Lokesh: ఏపీ ఉద్యమాంధ్రప్రదేశ్‌గా మారింది
--  IND vs SA Weather Report: ਭਾਰਤ-ਦੱਖਣੀ ਅਫਰੀਕਾ ਟੈਸਟ ਮੁਕਾਬਲੇ 'ਚ ਮੌਸਮ ਬਣੇਗਾ ਰੁਕਾਵਟ, ਜਾਣੋ ਸੈਂਚੁਰੀਅਨ 'ਚ ਪੰਜ ਦਿਨਾਂ ਦੀ ਰਿਪੋਰਟ
--  Share Market Opening 26 December: साल के आखिरी कारोबारी हफ्ते में सेंसेक्स और निफ्टी की सधी शुरुआत, आईटी सेक्टर के शेयर लुढ़के
--  ખાણ ખનીજ અધિકારીઓના જાસૂસીકાંડમાં કાર્યવાહી, પોલીસે ત્રણ આરોપીઓની કરી ધરપકડ
--  İstanbul Sultangazi'de silahlı saldırı...
--  รายงานการติดตามตรวจสอบคุณภาพอากาศ ประจำวันที่ 26 ธันวาคม 2566
--  Salman-Abhishek: বিচ্ছেদের গুঞ্জনের মাঝেই সলমনকে জড়িয়ে ধরলেন অভিষেক! গলছে বরফ?
--  Mettur Dam: மேட்டூர் அணையின் இன்றைய நிலவரம் என்ன..? - நீர்வரத்து உயர்வா..?..சரிவா..?
--  أرقام يورجن كلوب أمام بيرنلي
--  『ペルソナ3 リロード』最新映像「学園生活映像」が公開！
--  พิธีมอบประกาศเกียรติคุณโครงการจิตอาสาดีเด่น ประจำปี 2566
--  Christmas 2023: Allu Arjun and Ram Charan celebrate the festival together; check out the inside pictures
--  AUS vs PAK: ऑस्ट्रेलिया के लिए दूसरे सबसे ज्यादा रन बनाने वाले बल्लेबाज बने डेविड वॉर्नर, पाकिस्तान के खिलाफ बनाया इतिहास
--  США ударили по объектам группировки «Катаиб Хезболлах» в Ираке
--  Australian consumers ‘expected to spend $3 billion’ on Boxing Day
--  استقرار أسعار النفط رغم استمرار توترات البحر الأحمر
--  42-летняя Пэрис Хилтон снялась в нижнем белье и шубе
--  Morning Headlines: அச்சுறுத்தும் JN.1 வகை கொரோனா! மகளிர் சிறையில் உருவான எஃப்.எம்! இன்றைய முக்கியச் செய்திகள்..
--  Звезда «Эйфории» дебютирует в профессиональном боксе
--  Минские динамовцы начинают заключительную в уходящем году домашнюю серию в КХЛ
--  Neel Nanda Passed Away: स्टैंडअप कॉमेडियन नील नंदा का हुआ निधन, 32 साल की उम्र में दुनिया को कहा अलविदा
--  ส.กีฬาเชียงราย จัดลูกหนัง 7 คน ละอ่อนรุ่น 10 -12-14 ปี ชิงเงินนับแสนบาท
--  Dense fog in Punjab, Motorway closed
--  В Совфеде высказались об отдыхе сенаторов за рубежом на Новый год
--  ทีมเยาวชนเชียงใหม่ คว้าถ้วยวู้ดบอลในชิงแชมป์แห่งประเทศไทย
--  전셋값 상승에도 서울 아파트 ‘역전세’ 심화…반환보증금 규모 더 커져
--  정세균-이낙연 회동…李 “당 상황 우려 공유, 3총리 회동 추진 가능”
--  대한항공, ‘美 글로벌 트래블러’ 기내식 등 3개 부문 1위
--  ‘8만 전자’ 기대감 피어오른다…삼성전자 주가 2년 만에 최고치
--  송영길, 소환조사 또 불응…檢, ‘구속연장·강제구인’ 검토
--  Year Ender 2023: इस साल 9 भारतीय बल्लेबाजों ने जड़े इंटरनेशनल शतक, जानें किसने सबसे ज्यादा बार बनाया सैकड़ा
--  إحصائية قوية لليفربول أمام بيرنلي
--  Во Владивостоке загорелся склад крупного производителя колбасных изделий
+-  아이티센그룹, 2024년 조직개편·임원인사 단행
+-  고학수 위원장 “2024년부터는 개인정보 유‧노출시 과징금 커질 것”
+-  “굴복 않겠다” 하마스 지도자, 개전 후 첫 공개 메시지
+-  ‘어촌뉴딜 국책사업’ 미끼로 3억원 가로챈 40대 구속 송치
+-  جنگ طول پکڑنے پر اسرائیلی وزیراعظم کو یرغمالیوں کے اہلخانہ نے گھیر لیا
+-  Arbaaz Khan shares inside photos from nikaah ceremony with Sshura Khan featuring Salman Khan, son Arhaan & family
+-  Alia Bhatt and baby Raha join Ranbir Kapoor and entire Kapoor family for grand Christmas celebrations, see inside pictures
+-  "สมศักดิ์-ชาดา-วราวุธ" ไม่ติดใจ สื่อตั้งฉายารัฐบาล​ แกงส้ม ​"ผลัก" รวม
+-  הקבוצה הטובה ב-NBA: בוסטון גברה על הלייקרס במפגש הקלאסי של החג
+-  Sutradara Christopher Landon Keluar dari Film Scream 7
