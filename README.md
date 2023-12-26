@@ -1,11 +1,11 @@
 # Latest News
--  대전시, 막바지 총력전으로 우량기업 9곳 투자유치 성공
--  중소기업 하도급 거래 공정성 수준 하락
--  국민건강 촉진·정치 참여로 더 나은 미래를 모색하는 ‘대전 의료기사 연합’
--  등록금 인상여부 놓고 대학마다 셈법 고심
--  교육정책은 백년대계 원칙 잊어서는 안돼
--  “대입개편안 혼란”…입시학원 되레 북적
--  내일 올해 마지막 국회 본회의… 충남 현안 담은 법률안 통과 여부 주목
--  사교육 줄인다더니… 대입개편안에 학원 의존도 더 커지나
--  더 채워주세요
--  대전 대덕구 효자구역 주거환경개선사업 ‘속도’
+-  美 의원, 중국산 식품 판매 금지 촉구…“비위생적 식품 퇴출해야”
+-  חייל מצא בעזה "הארי פוטר" בעברית עם הקדשה מרגשת. איך הוא הגיע לשם?
+-  כך ייראה הדור הבא של MG EHS שיושק ב-2024
+-  कुतियाकवरबासीको पीडा : तटबन्ध नबने बस्ती जोगबुढा नदीमा समाहित हुने
+-  Caso Balocco-Ferragni, Alessandro Gassmann: “La beneficenza non andrebbe pubblicizzata. La classe non si insegna né si compra”
+-  خلاف اسرائيلي حول مسافة إبعاد حزب الله..ومستوطنو الشمال يتظاهرون!
+-  Kamióny stále čakajú v dlhých radoch na odchod z Poľska na Ukrajinu
+-  Indický Amritsar je centrom sikhov: Toľko dobra na jednom mieste len tak nezažijete
+-  Sľuboval odchod, teraz je všetko inak: Fico narovinu priznal svoje ďalšie plány! Prirovnal sa k zranenému futbalistovi
+-  Online Fraud: 73-year-old man falls prey to online scammers acting as FedEx representatives and crime branch officials
