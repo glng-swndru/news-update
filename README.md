@@ -1,51 +1,51 @@
 # Latest News
--  Veda gibi paylaşım! Angelino ile yollar ayrılıyor
--  Bakan Tunç: Seçilmiş milletvekillerimiz devletimizin yanında olmalı
--  Paris'te dehşet! Anne ve dört çocuğu ölü bulundu: Baba aranıyor
--  CHP'ye içeriden bildiri tepkisi: Türkiye'ye rezil olduk
--  İsrail, İran'ın misillemede bulunmasını bekliyor
--  İstanbul'da hileli ilaç ihracatına 24 gözaltı
--  Fadime Özkan yazdı: DEM'lenen CHP
--  Ukrajinske vazduhopolovne snage: Uništili smo ruski desantni brod u Crnom moru
--  Up to $20k of equipment stolen from a Melbourne CFA ahead of bushfire season
--  Δήλωση Πριέτο για Καστέλ και Ισπανία
--  강원도·카피오바이오사이언스코리아, 국가특화산단 유치 협력
--  아들과 놀러 나왔다가 ‘시민 영웅’으로…눈썰매장 대참사 막았다
--  ปส. กวาดล้าง 100 เครือข่ายค้ายา ยึดทรัพย์ 140 ล้าน
--  قراءة تحليلية للمشهد اليمني من المسافة صفر.| كتب منصور الصبيحي
--  Sağlık Bilimleri Üniversitesi, YÖK Üniversite İzleme ve Değerlendirme Genel Raporu'nda başarısını sürdürdü
--  Kaan ne zaman uçacak? Kaan'ın özellikleri nelerdir?
--  Jackson Muleka çok kaçırdı
--  Netanyahu: Gazze'yi yönetme beklentileri bir hayal
--  Elvan Gruda'nın ölümüyle ilgili acı detayları Tuna Arman anlattı
--  Yatırımcılar dikkat! Altında yükseliş sürecek mi?
--  Eyüpspor devre arasına lider girdi
--  Ankara Yenimahalle'de icradan satılık dubleks daire!
--  Sosyal medyada terör propagandası yapan 3 kişi tutuklandı
--  Alanya'da 2.5 milyon TL'ye icradan dükkan satılıyor!
--  BM'den İsral'in vize tehdidine cevap: Temelsiz saldırılar sadece ahlaki korkaklığı kanıtlıyor
--  İletişim Başkanlığı 3 Sözleşmeli Personel alacak!
--  Süper Kupa finali 5. kez Türkiye dışında oynanacak
--  İstanbul'da "pes" dedirten görüntü... Elinde kelepçeyle camda ters asılı kaldı!
--  Nijerya'da silahlı saldırı: Can kaybı 113'e çıktı
--  Bakan Tunç'tan 'dokunulmazlık' açıklaması: Büyük bölümü terörle alakalı.
--  Ryan O'Neal sevgilisi Farrah Fawcett'ın yanına gömüldü
--  A101'e bu hafta neler gelecek? A101 28 Aralık aktüel ürünler kataloğu
--  İbn-i Sina o baharatları öneriyor! Biri hafızayı diğeri zekayı artırıyor! Bin yıl önceki beyin ilacı
--  MSB: Sınırda 18 kişi yakalandı
--  Police Implement Contraflow in Cipali Toll to Anticipate Holiday Traffic
--  Süper Kupa Maçının Favorisi Açıklandı
--  Inoue vs Tapales live: No.1 pound-for-pound crown at stake as Japanese ace aims for two-division undisputed status
--  NO 마스크로 中 의료미용 수요 증가…국내 피부미용산업 '파란불'
--  유플라이마·하드리마, '휴미라' 대체 시점 다가오고 있다‥허가에 속도
--  "의약 선진국으로의 진출에 박차 가할 것"
--  신약 '트로델비'까지 등장…정례화되는 유방암 국민동의청원
--  “우리의 목표는 한국이 바이오헬스 산업의 글로벌 리더로 자리매김하는 것”
--  "매사진선의 자세, 약사직능 미래 도모 원년으로"
--  Presidential Secretariat opts to discontinue the utilization of the Itukama website and domain name
--  임플란트, 정확한 식립 위한 방법은?
--  I’m an ex-darts star who holds the world record for longest-ever Ally Pally walk-on and once fell down a HOLE on stage
--  Doctor Who shares HUGE glimpse into what's in store for upcoming season with explosive new trailer
--  Kagetnya Dedi Asal Sukoharjo Pertama Kali Kunjungi Monas
--  [포토] 수협은행·조폐공사 '지역사랑상품권' 업무협약
--  이병래 신임 손보협회장 "상생금융 협력 지속할것"
+-  NBA: Basketballstar Luka Dončić von den Dallas Mavericks erzielt 50 Punkte und knackt die 10.000-Punkte-Marke
+-  RTL-Bauer hat sich nach 15 Jahren massiv verändert
+-  2024 йилнинг давлат бюджети тасдиқланди.
+-  Нетаняҳу: Исроил ХАМАСга қарши ҳужумларини кучайтиради.
+-  Ўзбекистон 6 та соҳада Ҳиндистон технологиялари ва сармояларини жалб қилмоқчи .
+-  Сурхондарёда «права»си йўқ ҳайдовчи Damas’га 13 кишини миндириб ҳаракатланди.
+-  Украина ҳарбий хизматга чақирув максимал ёшини пасайтирмоқчи.
+-  Papa Francisco pide al hijo de Dios que inspire a los políticos
+-  Mario Murgia recupera la voz de John Milton en español
+-  Nochebuena dejó más devastación en Gaza
+-  Parque de diversiones con arte del siglo XX en Los Ángeles, California
+-  Ataques en Nigeria dejan al menos 160 fallecidos
+-  Vatreni nakon osam godina mijenja klub i seli u susjedstvo? 'Može biti starter u bilo kojem klubu u Italiji'
+-  Electronic Component Distributor Utmel Invited to Participate in 2024 NEPCON JAPAN
+-  Exploring Yunnan's Outdoor Wonders: Unveiling the #YunnanOutdoorChallenge
+-  İBB, şehitler için mevlit okuttu
+-  Mehmet Sevigen'den CHP'ye tepki: Bir İstanbul için değer mi?
+-  Alp Navruz'dan Sıla Türkoğlu açıklaması! Araya kara kedi girmedi
+-  Gaziantep'te dolandırıcılık operasyonu
+-  Süper Kupa, 5. kez Türkiye dışında oynanacak
+-  18 firari hükümlü yakalandı
+-  Hochwasser an Weihnachten: Rheinpegel in Köln steigt über acht Meter – Welle kurz vor dem Scheitelpunkt
+-  Galatasaray'ın ara transfer planı belli oldu
+-  Galatasaray'da ayrılık için sadece resmi açıklama kaldı, yıldız isim paylaştığı fotoğrafla adeta veda etti!
+-  Emre Belözoğlu maçın ardından oyuncularını eleştirdi! "Bu kadar öz güvensiz..."
+-  غونسالو إيناسيو مستمر على رادار ليفربول
+-  ΚΑΕ ΑΕΚ: «Ο Καμπενγκέλε έθεσε εαυτόν εκτός ομάδας»!
+-  Elf Jahre lang glaubten die Ärzte nicht, dass meine Schmerzen echt seien
+-  Rimborso dell’affitto o del mutuo con questo nuovo Bonus 2024 per i lavoratori
+-  Rodzice proszą o poszerzenie ulicy do ośrodka. Potrzebny państwowy grunt
+-  Indiens Marine stationiert nach Tankerangriff Kriegsschiffe im Arabischen Meer | Nachrichten zum israelisch-palästinensischen Konflikt
+-  PACS Can Revolutionise Cooperative Movement in India: IFFCO Chairman
+-  Weihnachten im Wald: Auch die Tiere und Pflanzen entschleunigen zwischen den Jahren
+-  Tottenham lining up £25m transfer swoop for Belgian wonderkid Arthur Vermeeren and believe they have edge over Arsenal
+-  Interim chief of ruling party vows to launch major offensive against opposition
+-  Como Gero Fasano construiu uma marca mundial sem perder atenção aos detalhes
+-  انخفاض الدولار وارتفاع اليورو.. اسعار العملات الدولية مقابل الدينار في السوق الرسمية (الثلاثاء 26 ديسمبر 2023)
+-  Lagerhalle für Maschinen brennt: Giftige Rauchwolke
+-  다이소, 겨울철을 쾌적하게! ‘정전기 방지용품 기획전’진행
+-  산업부, '지역경제정책 순회 소통마당' 충남서 네 번째 개최
+-  '기울어진 운동장' 폐기물 환경산업 갈등…최대 이슈 부상
+-  أفضل ظهير أيسر لعام 2023
+-  Pakistan drop a catch, but not their bundle
+-  Pakistan drop a catch, but not their bundle
+-  Snimali svatove pa doživjeli frontalni sudar, poginuli su bračni par i snimatelj; Auti nakon eksplozije poletjeli u zrak
+-  رئيس هيئة الأركان العامة السابق في الجيش الإسرائيلي دان حالوتس: إسرائيل خسرت الحرب ضد حماس وصورة النصر الوحيدة التي ستتحقق هي إسقاط نتنياهو
+-  फ्यूचर का गैजेट है शाओमी का ये स्मार्ट पेन, आता है हाईटेक फीचर्स के साथ
+-  Bengaluru: Police bust robbery gang in Whitefield, Rs 6.5 lakh worth of jewellery recovered
+-  Türkiye’nin gönderdiği zırhlı araçlar terör örgütünün eline geçti. Büyük iddia
+-  Kamyonun çarptığı moto kurye hayatını kaybetti
