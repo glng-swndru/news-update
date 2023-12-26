@@ -1,51 +1,51 @@
 # Latest News
+-  Tahnee Sims marks first Christmas since Johnny Ruffo’s death with emotional post
+-  Τουρκία: Πράσινο φως από την Επιτροπή Εξωτερικών Υποθέσεων στην ένταξη της Σουηδίας στο ΝΑΤΟ
+-  Σερβία: Κλιμακώνει τις διαδηλώσεις η αντιπολίτευση, επιμένει για νοθεία
+-  Ισραήλ: «Ο πόλεμος θα διαρκέσει ακόμη πολλούς μήνες – Θα φτάσουμε στην ηγεσία της Χαμάς»
+-  Wall Street: διανύει την ένατη εβδομαδα κερδών
+-  Ο Φατίχ Τερίμ στον Παναθηναικό -Η ανακοίνωση της ΠΑΕ
+-  Vom Winde verwehte Tradition
+-  Traía cocodrilo en 'toper'
+-  Disfrutan niños sus regalos de Navidad
+-  Alcanza Cristiano los 53 goles en el 2023
+-  Vuelca tráiler en transitado bulevar de Guasave tras dar vuelta U
+-  Las reacciones a la disculpa de Kanye West hacia la comunidad judía
+-  Nasdem Akui Kubu Anies-Muhaimin Kesulitan soal Logistik untuk Berkampanye
+-  Prediksi Cuaca Hari Ini untuk Jakarta dan Bodetabek Banyak Potensi Hujan
+-  Rayados le abre las puertas a Funes Mori para salir del equipo
+-  EAM Jaishankar, Russian counterpart Lavrov to hold bilateral talks in Moscow today
+-  Kendaraan Listrik Dikritik Disebut Hanya Memindahkan Polusi, Kok Bisa?
+-  Unidad 504, los espías israelíes que llaman por teléfono a 50.000 palestinos en la Franja
+-  Apple deja de vender sus nuevos Apple Watch en EE.UU., ¿a qué se debe y cómo apeló la compañía el fallo que se lo impide?
+-  Superman: Legacy Fan Art Transforms Skyler Gisondo Into Jimmy Olsen, And I’m Into It
+-  Para Cuba es de máxima importancia ampliar los lazos con los Estados de la Unión Económica Eurasiática
+-  Bolsa mexicana sube 0,75% y logra nuevo máximo histórico al ubicarse en 57.745,79 unidades
+-  Pro Research: Wall Street se sumerge en las perspectivas de Walt Disney Co y d'Amico
+-  Las acciones de American Express suben en línea con las ganancias del mercado en general
+-  Pro Research: Wall Street examina los movimientos estratégicos de Domino's Pizza
+-  Pro Research: Wall Street se sumerge en el potencial de crecimiento de CrowdStrike
+-  El BEI apoya a VGP Renewable Energy con un préstamo de 150 millones de euros para paneles solares
+-  La atrocidad que todos hacemos con el panettone... y otros 'crímenes' de la repostería navideña
+-  Updated Volkswagen Golf getting sharper look, bigger screens
+-  Sober up this holiday season with the 'New Year's Resolution' mocktail
+-  I’m a professional eater — I can devour 100 dumplings in 10 minutes and 17 pounds of steak in an hour
+-  “내 인생 최고의 날”… 멀티골로 맨유 구한 FW, “가장 위협적인 공격수” 평점 9점 호평
+-  Where to watch Queer Eye Season 8: US, UK & more
+-  تحذير من إطفاء حرائق الزيوت بالماء.. إليك الطريقة الصحيحة
+-  “Yo salí de Guatemala y entré a guatepeor”: La frase que Carin León mencionó en una canción por la que admiradores le exigen respeto
+-  Bets on Xi’s Common Prosperity Agenda Led to Big Losses in 2023
 -  [인사] 하나금융지주·하나은행
 -  세븐일레븐, ‘인기 즉석치킨 5종 할인전’ 진행 … 치킨한마리 9천원 행복
 -  사람인 멘토링매치, 멘티 회원 1만5000명 돌파
+-  Australia v Pakistan LIVE updates: Head is out caught as Australia falls to four wickets down
+-  Sofia Coppola On Gender Pay Disparity & “Fighting For A Tiny Fraction” Of What Male Directors Bank
+-  «كروه»: 900 حافلة توفر حلول النقل خلال كأس آسيا
+-  جامعة قطر: قرارات منح التميز للطلبة المقيدين 21 يناير
+-  الإعلان عن تفاصيل مهرجان سمو الأمير الوالد للهجن
+-  كلية العلوم الصحية بجامعة قطر تناقش مشاريع تخرج طالبات التغذية
+-  경기도 '복지사각지대 발굴' 보건복지부 장관 표창 수상
+-  الزبيدي وبزته الشعبية في زيارته التفقدية لمحافظة الضالع الأبية| كتب ابراهيم العطري
 -  문가영, 튜브 톱 속 넘치는 볼륨감…매혹적 자태
--  More Than 42,000 People Killed by US Gun Violence in 2023 - Gun Violence Archive
--  TİKA'dan Guatemala'ya Atatürk büstü hediyesi
--  Başkan Erdoğan imzaladı! 7 bin sözleşmeli sağlık personeli istihdam kararı
--  Samsung Electronics to Showcase How Enhanced AI and Connectivity Enable Expansive Kitchen Experiences at CES 2024
--  Jaké v roce 2024 zaplatíte maximální sociální pojištění při vysokých příjmech
--  Kolik si budete moci přivydělat v roce 2024, pokud jste v evidenci Úřadu práce?
--  US rap star Kanye West apologises for anti-Semitism
--  Bruno Fernandes Ingin Hojlund Terus Cetak Gol untuk MU
--  Israel presagió una guerra de meses en Gaza, donde se agudizará la crisis
--  Rückkehr einer Totgeglaubten: Miniserie „Die zweite Welle“
--  Rückkehr einer Totgeglaubten: Miniserie „Die zweite Welle“
--  ¡No les fue como esperaban! Comerciantes se levantan con bajas ventas en la verbena de Guasave
--  Skuad B-23 timba pengalaman berguna – Garrido
--  Quem é Kelly Piquet, namorada do piloto Max Verstappen?
--  ¿Empieza el 2024 con pareja? Captan a Andrea San Martín junto a joven en conocido hotel de Trujillo
--  How to Watch AUS vs PAK 2nd Test 2023 Day 2 Live Streaming Online: Get Telecast Details of Australia vs Pakistan Cricket Match With Timing in IST
--  [오늘의 투자전략] 코스피, 유가 상승·배당락 여파로 하락 출발 전망…이후 변동성 장세
--  చిరుధాన్యాల సిరి
--  Liverpool go top as Nunez strikes, Hojlund caps Man United fightback
--  Australia v Pakistan LIVE updates: Head, Labuschagne chase early runs as Boxing Day Test resumes
--  [ŽT] Smūgis Feodosijos įlankoje. Be „Novočerkasko“, nuskendo dar vienas laivas (Foto)
--  Royals fans spot family members wearing matching gift from King Charles on Christmas Day
--  [ŽT] „Novočerkasko“ sunaikinimas. Skelbiama, koks krovinys galėjo būti laive
--  పట్నాపై పల్టన్‌ గెలుపు
--  ¡A seguir cuidándose! Pacientes no deben desatender tratamientos por festejos decembrinos
--  رقم مثير للإعجاب لأونانا أمام أستون فيلا
--  Mariah Carey and Bryan Tanaka split after 7 years together, dancer confirms
--  VIDEO: Criminales en la frontera de EEUU usan la IA para extorsionar a familiares de inmigrantes secuestrados
--  Beloved Australian chef Bill Granger has passed away aged 54
--  Alcanza Cristiano los 53 goles en el 2023
--  Mas Ermieyati sudah jangka, BN buat rayuan
--  Emiten consejos para contrarrestar el atracón de Navidad
--  One-Year-Old Girl Found Dead Near LAX ID’d
--  Вступление Украины в ЕС и НАТО назвали ложным путем
--  ఉపవాసం ఇలా...
--  టాప్‌లో అర్జున్‌
--  Man United 3-2 Aston Villa: Rasmus Hojlund and Alejandro Garnacho strike to complete dramatic comeback for Erik ten Hag's side... after John McGinn and Leander Dondoncker gave visitors two-goal lead at Old Trafford
--  미국 중북부 블리자드 경보…거센 눈 폭탄에 도로ㆍ공항 마비
--  Se cumplen 19 años del terremoto y tsunami en Sumatra que dejó 227 mil muertos
--  英特爾砸7735億元在以色列蓋晶圓廠 獲近千億補助
--  ఆస్ట్రేలియా 187/3
--  NIA, ‘인공지능(AI) 시대에서의 법적 과제’ 논의…공개 세미나 성료
--  مقاضاة طبيب أجرى 32 عملية لسيدة في يوم واحد
--  أقدم سجين في بريطانيا يحطم رقماً قياسياً في الانفرادي
--  Solar Panel Prices Down 30–40% In 2023, US Prices Down 15%
--  Brits hit pubs and bars across the UK in fancy dress for boozy Boxing Day night out
+-  Volunteers continue search for Winnipeg senior with dementia
+-  Volunteers continue search for Winnipeg senior with dementia
