@@ -1,51 +1,51 @@
 # Latest News
+-  Instituto prevê normalização da sazonalidade do preço do leite em Mato Grosso
+-  Caso Chocolate: dictaron la prisión preventiva para los Albini
+-  عاجل.. بدء تطبيق إعفاء المواطنين من تأشيرة السفر إلى تركيا
+-  بالفيديو.. حالة مطرية على جدة
+-  "تسرق أموالك في لحظات".. مختص تقني يحذر من روابط منتشرة على تليجرام
+-  5 مزايا في ويندوز 11 أوقفتها مايكروسوفت في 2023
+-  هل يمكن إضافة المشتركين في التأمينات أون لاين؟
+-  Kickoff | Hojlund seals impressive comeback win for Man Utd
+-  Atento Boca: Marcos Rojo fue tentado por Inter Miami para jugar con Messi
+-  Xi Jinping apresenta ordem de promoção a novos generais
+-  “Sos un guerrero”: el noble gesto del Dibu Martínez con un niño que terminó su tratamiento oncológico
+-  The 17 Best Games For Sony’s PlayStation 5
+-  לוח מקולל עתיק שנועד לזמן את השטן נמצא חבוי בשירותים
+-  Shakira es homenajeada con estatua de más de 6 metros en Colombia: “Me siento honrada y conmovida”
+-  Mercado: ¿Por qué el regreso de Jorge Sánchez al América no es necesario para el equipo?
+-  La modificación de retenciones se discutirá en sesiones extraordinarias
+-  Atividade de demonstração da gala rural de 2024 é lançada na China
+-  Tiešraide: Rubene - Jogeva Latvijas-Igaunijas florbola līga
+-  MALOLETNIK IZGUBIO ŽIVOT KOD NOVOG SADA Teška nesreća se dogodila oko 22 sata
+-  KATARINA GRUJIĆ ŠOKIRALA IZJAVOM UŽIVO U PROGRAMU! Otkrila šta je radila sa Amidžićem, da li je moguće da su OVOLIKO BLISKI?
+-  ‘무려 2,500억!’ 벨링엄-홀란-음바페, 축구선수 몸값 1위 등극…30대 선수 중 케인 홀로 10위권
+-  Il Manchester United rimonta l’Aston Villa: decisivo il gol di Hojlund
+-  Heyelanda yola düşen kayanın isabet ettiği otomobil uçuruma yuvarlandı
+-  SÕJAKOKKUVÕTE | Navalnõi leitud
+-  MILJANA KULIĆ ZAKUKALA NA SAV GLAS Zola joj konačno sve priznao, ona ne može da dođe sebi: "Nikad me nisi voleo"
+-  Brock Purdy MVP bettor opens up on $125K Christmas debacle
+-  Dozens of Minnesota dairy farms folded in November, state association reports
+-  "Ferstapen se neće povući, želi da stigne Hamiltona"
+-  Everton vs Man City live stream: How to watch Premier League game online
+-  Empresas estrangeiras abandonam o plano de estabelecer fábricas nos EUA, diz mídia chinesa
+-  AYM skandal Can Atalay kararında ısrarcı: Herhangi bir mercii bu kararı denetleyemez
+-  Bayburt'ta bir kadın boğularak öldürdü
+-  SPEKTAKULARAN PREOKRET MANČESTER JUNAJTEDA: Ludnica na "Old Trafordu" Crveni đavoli se vratili iz PONORA i srušili Aston Vilu!
+-  Leicester City son anda yıkıldı!
+-  Resmi Gazete'de bugün (27.12.2023)
+-  ABD, Kızıldeniz'de İHA, balistik ve seyir füzesi düşürdüğünü duyurdu
+-  He took joyride at White Bear Lake dealership Christmas morning, charges say
+-  Alexander Blessin: "Sur le penalty de Bruges, mon staff m'a directement dis qu'il y avait faute de main"
+-  Yel-Yel 'Solo Bukan Gibran' Diteriakkan, Prabowo: Mari Berdemokrasi dengan Sejuk
+-  Ariana Grande and boyfriend Ethan Slater spotted on rare outing in NYC during dinner date with her dad
+-  حكومة غزة: جيش الاحتلال دنس جثامين 80 فلسطينيا سلمها مشوهة وسرق أعضاءهم
 -  Video: Exmánager de Canserbero confesó haberlo drogado y asesinado a puñaladas
+-  Ibovespa fecha acima dos 133 mil pontos pela primeira vez na história
 -  Segunda Tormenta Invernal traerá bajas temperaturas a Parral: Protección Civil
+-  Quatre chefs d'accusation planent sur Ndella Madior Diouf
+-  Last chance! Take $400 off the Purple Plus during Purple's after-Christmas mattress sale
+-  Plane held in Paris airport on suspicion of human trafficking leaves for Mumbai
+-  Detalji stravične nesreće u BiH u kojoj je preminuo pješak: Kamiondžija izlazio iz vozila, pa ga pokupio Ford
 -  ManU nousi kanveesista - jättihankinta sai viimein maalitilinsä avattua
--  Soccerladuma | Hojlund Ends Drought As Man Utd Win 5-Goal Thriller
--  Best cookware deal: ‘Quality’ 10-piece cookset slashed in price by more than $500 as shoppers rush to invest
--  ఉద్యమాంధ్రప్రదేశ్‌గా ఏపీ
--  మోదీ, జగన్‌ ప్రభుత్వాలను గద్దె దించాలి: సీపీఐ
--  అర్హులందరికీ ఆరు గ్యారెంటీలు
--  నిశ్శబ్ధ విప్లవం.. బహిరంగ విప్లవమవుతుంది యనమల
--  Il procuratore Lazzari: "La Juve non prenderà qualcuno tanto per prenderlo, cercherà innesto importante. Brava la Juve a prendere Soulé e Barrenechea in tempi non sospetti"
--  'A shame': Klopp already gutted as Liverpool prepare to be without 'very important' £16m player
--  キティ50周年目前のサンリオ、7期連続減収減益からV字回復の秘密。「推し活」追い風にしたキャラクター戦略の凄み
--  Should You Serve Lobster Ravioli With A Red Or White Sauce?
--  Manchester United sai perdendo de 2 a 0, consegue virada incrível contra o Aston Villa e volta a vencer na Premier League
--  Украинские СМИ сообщили о взрывах в Одессе
--  మైనింగ్‌ మాఫియాలో సీఎంకు వాటా
--  Palestinian woman gives birth to quadruplets on Christmas Day as war in Gaza rages around her
--  Šef izraelskih snaga: 'Rat u Gazi trajat će mjesecima, nema prečaca u uništavanju Hamasa'
--  Hasil, Top Skor, Klasemen Liga Inggris Boxing Day: Liverpool dan Manchester United Menang, Newcastle Kalah
--  Ten Hag vecht zich met United terug uit geslagen positie en boekt fraaie zege
--  భూ యాజమాన్య హక్కు చట్టంతో కొత్త వివాదాలు!
--  FT: ЕС готовит план помощи Украине, который позволит обойти блокировки Орбана
--  الأولمبي رضوان حلال وقع لأتلتيكو مدريد
--  WWE Smackdown Rating Steady With Previous Week, Viewership Down
--  Sydney to Hobart: Maritimo 52 retires after stormy first night
--  Ravens Statement Win, the MVP Convo, and Not Burying the 49ers. Plus, Durant and the Lethargic Suns.
--  3-2. Garnacho golea, Hojlund remonta, el United revive
--  పాస్‌పోర్టు వెనక్కి ఇచ్చేయండి
--  Thousands in danger as giant Russian volcano spews molten ash 2.5km into the air
--  షర్మిలను సాదరంగా స్వాగతిస్తాం
--  Man Utd player ratings: Alejandro Garnacho sparks epic second-half fightback but struggling Andre Onana’s woes continue
--  Man Utd player ratings: Alejandro Garnacho sparks epic second-half fightback but struggling Andre Onana’s woes continue
--  New teaser photo for Joker: Folie À Deux could be 2023’s last new meme format
--  Feltámadás karácsonykor: a Man. United kétgólos hátrányból nyert a Villa ellen
--  Manchester United idawru telfa f’rebħa kontra Aston Villa
--  연예인도 당한 외국항공사 갑질…피해 구제 외면
--  ManUnited mit dramatischer Wende gegen Aston Villa +++ Liverpool schlägt Amdounis Burnley
--  By: Vision Premium
--  Éste fue el último rap que hizo Canserbero; lo compartió en Instagram 2 días antes de morir
--  The best MacBook to buy in 2024
--  Madonna shares a series of festive photos of her celebrating Christmas with her six children: 'Santa Babies'
--  Recuperan cuerpo de menor ahogado en una pileta de crianza de tilapias
--  Los escalofriantes dichos del hombre que descuartizó a su padre de 83 años
--  Quebec students forbidden from using cellphones in classrooms after winter break
--  Disaster strikes Sydney to Hobart as FIVE boats including a leading title contender are forced to retire in wild weather
--  В России предупредили США о последствиях замораживания российских активов
--  New Orleans Pelicans and Smoothie King renew their arena naming rights agreement
--  Rasmus Højlund bliver matchvinder i vildt United-comeback
--  Hugh Jackman joins with ex-wife Deborra-Lee Furness to pay tribute to top Australian restaurateur Bill Granger following his death aged 54
--  Argentina coloca deuda en el mercado local por 549,4 millones de euros
+-  Explorando novas fronteiras: Apostando no Parimatch Brasil com Bitcoin
