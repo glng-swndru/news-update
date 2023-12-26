@@ -1,51 +1,51 @@
 # Latest News
--  Vivendi započinje pravnu bitku s Telecom Italia
--  هل يشهد عام 2024 عودة شيرين وحسام حبيب؟.. خبيرة أبراج تكشف مفاجأة
--  Defensor del pueblo sugiere blindar a pacientes electrodependientes frente a cortes de luz
--  AstraZeneca comprará la china Gracell Biotechnologies en una operación de 1.200 millones de dólares
--  Minedu brinda oportunidades a 1.5 millones de jóvenes que no trabajan ni estudian
--  Žakelj: Očekujem reakciju, zahtjevam borbu
--  Atletas dos Pimpões nos Campeonatos Zonais de Juvenis
--  Som a ostanem profesionálnym politikom, nemám už iné kariérne ambície, vraví Fico
--  Dünyanın İlk "Tat Paylaşma" Teknolojisi Tanıtıldı: Artık Yiyeceklerin Sadece Fotoğrafını Değil, Lezzetini de Paylaşabileceksiniz
--  Unlock the Benefits of 3D Sourcing with Innovative Solutions
--  1:8 Ölçekli Bu İnanılmaz Ferrari Maketi, Neredeyse Gerçek Otomobil Fiyatına Satılıyor [Video]
--  How testing wastewater could help you predict viruses in the future
--  لم يعد بالإمكان التزام الصمت، التاريخ لا يرحم
--  As a travel writer, I've taken many solo trips. I was surprised at how much I loved traveling with my baby.
--  Коледно блиц разследване на BIRD за "кокаиновите моряци", задържани и обвинени за кокаина в Ирландия
--  World News | Death Toll Rises to 18 in a Furnace Explosion at a Chinese-owned Nickel Plant in Indonesia
--  Latest News | Gross Leasing of Office Space Up 12 Pc to Record 62.3 Mn Sq Ft This Year Across 6 Cities: Savills
--  Σάκης Ρουβάς: Εντυπωσίασε η κόρη του Αναστασία με τις φωνητικές της ικανότητες (Video)
--  Maharashtra Road Accident Video: गोंदिया में शादी में जाते समय खतरनाक एक्सीडेंट, हादसे में 3 की मौत और 6 घायल
--  Économie Solidaire : 6 200 nouvelles coopératives créées en 2022
--  Китай пусна серия пощенски марки по случай 130-тата годишнина на Мао Цзедун
--  Man arrested after Nicosia car chase
--  Спасовски за случајот со двојното убиство: Од аспект на МВР е целосно расчистен, доколку истрагата се прошири МВР ќе постапи
--  Robo de cables: Copaco cambia tipificación de denuncias para mejor resultado
--  Delta kupila građevinsko preduzeće Rad za 954 miliona dinara
--  "A rezsimet nem tudnám kifizetni" – 87 évesen is muszáj dolgoznia Pásztor Erzsinek
--  VIDELA SAM NJEGOVE PREPISKE SA DRUGOM CICOM, STREFIO ME JE ŠLOG: Ivan i Jelena Marinković ušli u Elitu, a ona odmah iznela turu prljavog veša
--  Vozio neregistrirano vozilo u alkoholiziranom stanju i bez vozačke dozvole
--  Йоав Галант намекна, че Израел атакува Ирак, Йемен и Иран
--  Pappa gripen för mord på fru och fyra barn
--  กรมอุตุฯ พยากรณ์อากาศ 7 วันข้างหน้า บางภาคอุณหภูมิลดลงเล็กน้อยในวันขึ้นปีใหม่
--  Hearts Connect along the Silk Road, International Voluntary Service Seminar Held in Nanjing
--  India News | Union Minister Hardeep Singh Puri Offers Prayers at Patna Sahib Gurudwara on Occasion of 'Veer Bal Diwas'
--  Entertainment News | 'Dunki' Earns Rs 256.40 Crore Worldwide
--  EN IMAGES - Jupiter et ses aurores polaires dans l'œil du télescope James Webb
--  Is your star sign stopping you from finding love? Experts reveal the zodiac signs people are most likely to avoid on dating apps
--  FIFA i CONMEBOL zaprijetili da će izbaciti Brazilce iz kvalifikacija za SP 2026.
--  ΠΕΡΗΦΑΝΟΣ ο Σπιλέφσκι για την πρωτιά του Βάνα Άλβες στο Europa League!
--  FOTO Moto Mrazovi stigli na Stradun i djeci podijelili slatkiše
--  Guerre à Gaza: le ministère de la Santé du Hamas annonce un nouveau bilan de 20.915 morts
--  物価高に６億円 補正予算案可決 臨時函館市議会
--  Dino Rađa zgrabio je gazdinog sina za vrat i nokautirao ga, a onda je dobio otkaz
--  '성탄절 도봉구 아파트 화재' 합동 감식…컴퓨터방에서 담배꽁초 나와
--  Kanye West apologizes to Jewish community in Hebrew after ‘unintended’ antisemitic ‘outburst’
--  Raiders Fan Scares NFL World With His Chiefs Prediction That Came Eerily True During Christmas
--  Libur Natal, Lebih 1,3 Juta Kendaraan Melintas di Tol Tangerang - Merak
--  Wohnhausbrand in Wächtersbach: Hinweise auf rassistisches Motive
--  Artistas franceses denunciam "linchamento" de Depardieu, o '"último pilar sagrado" do cinema
--  Czego szukaliśmy w Google w 2023 roku? Jeden temat zdominował ranking
--  Hrozivá PREDPOVEĎ pre rok 2024: Vedci varujú, sme už len kúsok od tej najväčšej katastrofy!
+-  Biden Administration allows US trade tribunal’s ban on Apple Watch imports
+-  Judge gives Binance green light as $BTC holds strong and GFOX pumps to $2 Million
+-  Iran undoes slowdown in enrichment of uranium to near weapons-grade -IAEA
+-  Personal misshandlad på ungdomsboende
+-  Стойчо Младенов: Нарочно не ме поканиха на последния мач на "Армията"
+-  הגרלת הפאוורבול בארה"ב: הפרס זינק ל-685 מיליון דולר
+-  Ura tuhoutuisi – Sergio Perezin paikalle ei ole tunkua
+-  9 Destinasi Wisata Dekat Pintu Tol Bengkulu, Kemping di Rindu Hati hingga Menjelajah Benteng Marlborough
+-  AHY Kirim Karangan Bunga untuk Lukas Enembe yang Meninggal Hari Ini
+-  Skispringerinnen vor Premiere: Neuer Wettkampf zwischen„Alibi-Tournee“ und Aufbruchsignal
+-  Суды и невидимая сила. Давно замечено, что людей сопровождает их превосходящая и по-своему разумная божественная случайность, отрицать которую опрометчиво. Но теперь ее замещают «скрепами»
+-  Sandiaga Prediksi TMII Bakal Dipadati 50 Ribu Pengunjung pada Malam Tahun Baru
+-  Navalnyj inifrån fängelset: Jag är er nya tomte
+-  Amanece la ciudad a 3 grados centígrados
+-  أمن طرابلس: انقلاب سيارة فوق جسر الجامعة
+-  Ce fan de Pokémon Go brave le “grand froid” pour un Pokémon rare
+-  Venäjä vaikeuksissa: Valtio joutunut pumppaamaan ilmailusektorille 12 miljardia dollaria tukea
+-  Alex Batty celebrates Christmas with bumper present of his favourite fizzy drink
+-  Matës për matjen e shpejtësisë së automjetit nga automjeti në lëvizje
+-  Les ruptures amoureuses de stars en 2023: Kevin Costner et Christine Baumgartner, Vincent Cassel et Tina Kunakey, Natalie Portman et Benjamin Millepied ...
+-  Julie Anne nag-free concert sa mga Cruz
+-  Pardubice - Ambri-Piotta. Dynamo na úvod Spengler Cupu bojuje proti švýcarským vískám
+-  Conselho Norueguês de Refugiados lembra que forçar deslocações viola lei
+-  میلبورن ٹیسٹ پر ہماری گرفت قائم کوشش ہو گی 250 رنز پر آسٹریلین ٹیم کو آؤٹ کر لیں: حسن علی
+-  İstanbul'da kontrollü yıkıma rağmen iki günde 2 bina çöktü!
+-  A Vág több vizet hoz a vártnál, magasabban tetőzhet a Duna
+-  Postponed Navakerala Sadas in four Assembly constituencies on January 1 and 2
+-  The Impact of Transcription Services: Unveiling a World of Opportunities
+-  Camps to resolve Gruha Lakshmi grievances from Dec. 27 to 29
+-  UPC: Od 1. januara ostaje snižena stopa na promet hrane i pojedinih vrsta pića u restoranima i ketering objektima
+-  Bakan Özhaseki'den deprem uyarısı: Yapacağımız tek şey tedbir almaktır
+-  Süper Lig'in 16,19 ve 20. haftalarının maç programı açıklandı
+-  Sergey Şoygu, Putin'e bilgi verdi
+-  Team of the Year EA FC 24 : Prédictions TOTY
+-  Ралф Шумахер: Брат ми често е имал късмет в живота, но дойде този трагичен инцидент
+-  Избиркомы Гомельской области зарегистрировали более 2,4 тыс. инициативных групп по сбору подписей
+-  12 places you can’t visit in 2024
+-  Меџити: Акцелераторот е инсталиран на Клиниката за онкологија
+-  ¿Cuándo vuelven las clases a Córdoba tras las vacaciones de Navidad? Esta es la fecha de la vuelta a las aulas en colegios e institutos
+-  CARTAS: La mentalización del ticket de cambio
+-  В Азербайджане вносятся изменения в систему разрешений на перевозки
+-  THY'den çalışanlarına 3 maaşa kadar ikramiye
+-  লাঙলই নৌকা, নৌকাই লাঙল- শ্লোগানে ঘিওরে জাতীয় পার্টির প্রচারণা
+-  ‘Arrest shtëpie’ me mbikëqyrje policore/ Berisha: Sikur dy batalione të më vënë te pallati…
+-  Ndërron jetë ish ushtari i UÇK-së Abdylmexhit Ademi nga Shemshova
+-  'विदेश जान १७ पटक अन्तर्वार्ता दिएँ, लुक्स मिलेन भनेर फालिदियो'
+-  Evo čime se sve u protekloj godini bavila Lička razvojna agencija
+-  La peor Navidad: Estudiantes de Viña quedaron varados en Brasil tras negarse a abordar avión
+-  Virgil van Dijk woonde kort in Dubai: ‘Bijna de beste tijd van ons leven’
+-  Almoradí aumenta su presupuesto y alcanza los 15,8 millones para 2024
