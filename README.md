@@ -1,11 +1,11 @@
 # Latest News
--  هل توجد مدة محددة بين اختبار رقمي وآخر ورقي؟ تقويم التعليم توضح
--  رئيس هيئة الأركان العامة يزور تركيا ويلتقي عددًا من المسؤولين
--  شرطة الرياض: القبض على سائق تحرش بطالبة داخل مركبة والكشف عن جنسيته
--  عاجل.. بعد القبض عليه.. ننشر فيديو تحرش سائق بطالبة داخل مركبة
--  Conceden libertad ambulatoria a Erico Galeano
--  El trucazo definitivo para utilizar las cáscaras de huevo en abono para tu jardín
--  Canada ready to pay two Michaels settlement for China prison time: report
--  Bloomberg объяснил опасность конфискации российских активов
--  Швеция еще на шаг ближе к НАТО
--  Insssep: en Navidad, Dumrauf acompañó a los afiliados y familiares derivados a buenos aires
+-  Kamar de los Reyes, 'One Life to Live' and 'Call of Duty' actor, dies at 56
+-  أسرع طريقة مضمونة للاستثمار في الذهب.. ونصائح عند الشراء
+-  Have to ensure BJP wins more than 35 seats from Bengal: Amit Shah to party unit
+-  How to jump-start your New Year with cold weather running
+-  Infections pulmonaires : toujours à un niveau élevé, le nombre de cas se stabilise enfin
+-  بورنموث يكتسح فولهام بثلاثية في الدوري الإنجليزي
+-  Suministro de agua será irregular en varios puntos de La Chorrera y Arraiján
+-  El presidente Petro celebra la Navidad con habitantes de calle
+-  El túnel de la vía verde de La Camocha, cortado al paso por obras de reparación
+-  Putin invita a los líderes de los países postsoviéticos a los Juegos del Futuro 2024
