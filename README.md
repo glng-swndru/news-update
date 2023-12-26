@@ -1,51 +1,51 @@
 # Latest News
--  Hurjia huhuja palkankorotuksesta – vaihtaako Lauri Markkanen myös seuraa?
--  Süper Kupa finalinin VAR hakemi açıklandı
--  Abdulkadir Selvi yazdı: Biz şimdi şehit cenazelerine nasıl gideceğiz?
--  Hangzhou shows its ability for international events
--  Xinhua Silk Road: Dumpling marks taste of Winter Solstice in E. China's Shandong Zaozhuang
--  Global First Generation IV Nuclear Power Plant Co-Constructed by Shanghai Electric Enters Commercial Operation
--  Netzagentur : Gasverbrauch in Deutschland steigt um über 7 Prozent
--  The Blood Pressure Program Reviews 2024 (Customer Honest Warning Exposed)
--  First Hindu woman in Pakistan files nomination to contest February 8 elections
--  Is Raghuram Rajan the ‘disease’ or a symptom of a wider disease: Defining the Woke problem and what the solution can be
--  Is Taylor Zakhar Perez Gay? Everything About “Minx” Star’s Sexuality!
--  I was heavily in debt after my divorce. I won $130,000 on 'Jeopardy!' and it turned my life around.
--  Trávite sviatky na horách? Buďte opatrní! Na niektorých miestach hrozí lavínové nebezpečenstvo
--  MSB: Suriye sınırında 2'si terör örgütleri mensubu 18 kişi yakalandı
--  KSO Başkanı Büyükeğen: Konya, tüm zorluklara rağmen üretime ve ihracata devam ediyor
--  Yargıtaydan 'muhtar kendisine teslim edilen tebligatı götürmekten sorumlu değildir' kararı
--  HAJDIN SVETLUCAVI BOŽIĆ U provokativnom autfitu proslavila veliki praznik uz prigodnu pesmu koju svi znaju, blistala pored svog dragog!
--  ZELENSKI SE ZANEO Ukrajinski parlament: Nemamo para!
--  Beyoncein dom iz djetinjstva zahvatio je požar na Božić
--  Южна Корея ще ограничи доставките за Русия на още 682 вида стоки
--  DVLA appoints David Jones as its new chair
--  Berisha në takim me të rinjtë, dërgon në seancë avokatët
--  Big Bash League: Grand final hero Nick Hobson confirmed as Ashton Turner’s replacement for Perth Scorchers
--  Srbija i Kosovo: Od 1. januara automobili sa kosovskim tablicama mogu u Srbiju
--  Straff och självmål i heta kvällsmatchen
--  KARAMBOL KOD NOVOG SADA Vozio BMW pa se zakucao se u zid tunela! Spašavala ga Hitna pomoć (VIDEO)
--  Universidad San Marcos: las nuevas carreras que ofrecerá en 2024
--  พิธีสืบชะตาหลวงครบรอบ 118 ปี พระราชทานนามโรงเรียนยุพราชวิทยาลัย
--  8 Surprising Benefits Of Dumpster Rental
--  Qarabağda silah anbarı kimi istifadə edilən mülki obyekt - FOTO
--  לא החלטתית: אמנדה ביינס עשתה לעצמה מייקאובר ומיד התחרטה
--  Chelsea eye ‘double move’ for Sporting Lisbon pair in January
--  TV-Quoten: Triumphale Rückkehr von Helene Fischer
--  All Wednesday sailings under review
--  Inoue vs Tapales LIVE: Boxing fight updates and results today
--  Iračka vlada osudila američke zračne napade na ciljeve u Iraku
--  Debatten har raset om, hvornår du bedst henter dit barn i institution. Nu kommer forsker med et opsigtsvækkende svar
--  Debatten har raset om, hvornår du bedst henter dit barn i institution. Nu kommer forsker med et opsigtsvækkende svar
--  民進黨批造假賴清德老家航測圖 新北市府：政治凌駕專業
--  Resmi transfer açıklaması! Martial ve Fenerbahçe...
--  Έλενα Παπαβασιλείου: Με αυτή την εκπομπή επιστρέφει στο Action 24!
--  Punya Gaji Lebih Besar, BCL Dianggap Psikolog Turun Kelas Nikahi Tiko Aryawardhana
--  La Masia se abre paso
--  مدير الكرة بالأهلي يجيب.. هل أُصيب مروان عطية قبل مواجهة سيراميكا؟
--  Ekonom: Swasta Bisa Ikut Serta Kembangkan Industri Listrik Ramah Lingkungan
--  Boxing Day: Gachagua hosts hundreds of children at his rural home in Nyeri
--  Ten poisonous plants every dog owner should know about
--  Projet russe Arctic LNG 2: le Japonais Mitsui va retirer ses employés
--  Vince goes whack for half-century
--  Avrupa'da satın alınabilecek en iyi otomobil seçildi. Türkiye'de de satılıyor
+-  В России расширят эксперимент по внедрению биометрии для посадки на поезд
+-  Βασίλης Καρράς: Ποιος θα εκφωνήσει τον επικήδειο λόγο
+-  Debat Cawapres, Warga: Gibran Membuktikan, Cak Imin Sudah Berusaha Semampunya
+-  Lukas Enembe 15 Kali Cuci Darah Sebelum Meninggal
+-  Hochwasser-Hotspot: Lage im überfluteten Windehausen stabil
+-  Djebril craque à quelques heures des évaluations de la Star Academy !
+-  Incendiu la Ferma Dacilor din Prahova. Ipoteze în cazul tragediei: mână criminală sau defecțiune la centrala de lemne
+-  Los más atrevidos llenan de vida el río Lérez
+-  Pasarón, la visita más temida
+-  Турскиот парламент расправа за членството на Шведска во НАТО
+-  В Казахстане хотят ввести 4-уровневый тариф и нормы потребления воды
+-  Отходы – под пресс
+-  Gkn, scatta l'ora X: Capodanno al presidio contro i 185 licenziamenti
+-  اللجنة المشتركة التونسية السعودية تبحث تعزيز التعاون الثنائي
+-  মুচলেকা দিলেন সীতাকুণ্ড উপজেলার ভারপ্রাপ্ত চেয়ারম্যান
+-  Militantes críticos en Podem gestan su propia candidatura a las primarias para "recuperar el partido"
+-  Демократски сојуз: ДУИ и СДСМ да не го блокираат изборот на член на ДИК
+-  Dell Premier Collaboration Keyboard and Mouse KM900 Review
+-  รัฐควัก 7.7 พันล้าน จ่ายชาวไร่อ้อย 1.25 แสนราย เงินเข้าบัญชีวันนี้
+-  เดินทางปีใหม่ ทล.แนะเส้นทางสายหลัก-สายรอง ออกจากกรุงเทพฯ
+-  Голикова наградила лауреатов премии "Душа России"
+-  Surprise ! Laurent Ruquier quitte (déjà) BFMTV : "Je préfère m'arrêter là"
+-  Pokemon Scarlet & Violet DLC convinces players about “iconic” NPC returning in future games
+-  安倍派幹部5人 派閥の政治資金収支報告書 不記載への関与否定
+-  Περιμένουν νέα…
+-  Военных ВСУ приговорили к пожизненным срокам за расстрел 12 жителей Мариуполя
+-  Захарова рассказала об ультиматуме Запада Сербии
+-  Mash: двое мигрантов убили мать бойца СВО и расчленили тело
+-  Детский омбудсмен Мухина рассказала о самочувствии школьников после стрельбы в Брянске
+-  Hapag-Lloyd ogłosi w środę, czy wróci na Morze Czerwone
+-  Salwador: bitcoina używa tylko niewielki odsetek społeczeństwa
+-  Minister energetyki Mołdawii: wygraliśmy walkę o bezpieczeństwo energetyczne
+-  Chipolopolo Date Cameroon in Pre-AFCON Friendly
+-  Parque lineal en Viaducto, abandonado; vecinos piden que se le dé mantenimiento
+-  Rusia se apodera de bastión clave para ucranianos
+-  Aquaman llega al #1, pero no convence
+-  EZLN invita a celebración de su levantamiento
+-  Sweet Success in Alicante’s Christmas Decoration Contest
+-  FU Berlin stellt zahlreiche Anzeigen nach Hörsaalbesetzung
+-  Cum va fi vremea în ianuarie 2024. ANM a emis prognoza meteo pentru următoarele patru săptămâni
+-  Украина отказалась считать вето Венгрии проблемой для получения денег от ЕС
+-  Новогоднее творчество наших читателей
+-  Türkiye'den 73 ülkeye gönderildi! Değeri tam 140 milyon dolar
+-  Merkez Bankasının ihalesine 130 milyar 263 milyon liralık teklif
+-  Süper Kupa'nın VAR hakemi belli oldu!
+-  Diyarbakır annelerinin mücadelesi kararlılıkla devam ediyor
+-  "Adım adım ilerleyeceğiz" Abdullah Avcı transfer stratejisini açıkladı
+-  4 ilde terör operasyonu: 16 kişi gözaltına alındı
+-  Öğretmenlerin yer değişikliği atama sonuçları açıklandı
+-  Захарова: Западът е дал ултиматум на Сърбия „всичко, но не и с Русия“
