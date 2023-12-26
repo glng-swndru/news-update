@@ -1,51 +1,11 @@
 # Latest News
--  Unas 880 pequeñas empresas de Perú generan 48 millones de dólares en compromisos de ventas
--  Pro Research: Wall Street examina la recuperación bursátil de Clorox
--  Lo que se sabe del joven bogotano que murió en prestigioso hotel de Santa Marta
--  대구 자동차부품 제조공장서 근로자 끼임사…중대재해 조사
--  Milan, Olivier Giroud re dei gol di testa: tutti i suoi numeri
--  البطانة أزمة المهرجان.. شاهد كيف أغضبت إنجى المقدم الجمهور بـ جمبسوت مُثير في الجونة السينمائي!
--  PSA: Free public transit for NYE
--  불순물 모두 제거했다던 명인애 용융소금 ‘쇳가루 초과 검출’…판매 중단 및 회수
--  Año nuevo, vida nueva, por @ArmandoMartini
--  Hojlund ends goal drought as United fight back to beat Villa
+-  Verbandsumfrage liefert schlechte Perspektiven für die Wirtschaft
+-  Aussies under the pump early on day two
+-  دراسة : حصوات الكلى تبدأ من مشاكل الأمعاء
+-  وزارة التعليم تعلن عن 44 وظيفة عبر برنامج التدريب على رأس العمل
+-  Prosecutors oppose Sen. Bob Menendez's effort to delay May bribery trial until July
+-  Fight at Idaho maximum security prison involves more than 30 inmates
+-  Breaking: Grayscale Makes Amended Bitcoin ETF Filing After Silbert’s Exit
+-  ‘We’re Living Longer, But We’re Living Longer, Sicker’: Rejuve CEO
 -  Teen Girls Stabbed by Stranger at Grand Central Terminal
--  일본산 향료서 세슘 미량 검출…“수입 자진 취하”
--  La Plaza de Santa Ana acoge el concierto '35 años (Más) con Nanino'
--  ‘2분40초 동안 19차례’ 치매 노인에 밥 떠먹여 질식사…요양보호사 집행유예
--  Com atoleiros, Sinfra orienta motoristas a evitar desvio pela Água Fria e optarem pela via de Campo Verde à Chapada
--  'Our Uniform', Gran Premio de Animayo 2023, a un paso de aspirar al Óscar
--  Aussie Home Loans founder John Symond's estranged wife Amber McDonald still on good terms with her stepdaughter following couple's shock split after eight years of marriage
--  엑셀시아캐피탈코리아, 사모펀드 설립···1155억 규모 싸이토젠 주식‧CB 인수
--  I’m known as the ‘Hack Queen’ – my three unique tricks can stop condensation and save hundreds on your energy bills
--  Director Andrew Haigh talks about love and loneliness in 'All of Us Strangers'
--  Widower of Arizona county attorney shoots dead his girlfriend and her mom before turning the gun on himself during an argument at a Christmas Eve party
--  檢, ‘1인 1개소법 위반’ 해외 도피 중인 유디치과 설립자 8년 만에 기소
--  How did Bill Granger die? Top Australian chef's cause of death is revealed
--  코스트코 그릭요거트서 곰팡이 추정 이물질 발견
--  Empresas de MT devem passar a emitir Nota Fiscal Eletrônica junto com comprovante de pagamento
--  Traficante é preso em flagrante pela Polícia Civil após exibir arma de fogo em ruas de Vila Bela
--  Juiz rejeita pedido para bloquear R$ 1 bilhão da Braskem
--  Friendly exes! Grant Kenny and Lisa Curry reunite for Christmas lunch with their son Jett and his influencer girlfriend Lily Brown
--  Develan estatua de Shakira en Barranquilla: así reaccionó la cantante
--  Mercado extra-UE duplica de peso nas compras de casas em 5 anos
--  Arkadaş grubu arasında silahlı kavga: 1 ölü, 1 yaralı
--  판권 인수한 고혈압치료제 ‘이달비’ 국산화···셀트리온아질사르탄메독소밀정 출격 대기
--  EN VIVO: así avanza la situación en la vía al Llano tras accidente e incendio
--  Mega DNU: Osvaldo Jaldo y Raúl Jalil reunieron a sus diputados y senadores para acordar una posición común
--  1회 주사에 수 백만원 약값 부담 ‘트로델비’···“급여 적용 촉구합니다”
--  1円スマホ規制 きょうから導入
--  쿠팡이츠 콜 취소 패널티로 못 버티고 떠난 라이더들···“책임은 외면”
--  현대삼호중공업 사업장서 근로자 사망…“정확한 원인 파악 중”
--  يونايتد يقلب الطاولة على أستون فيلا بفوز مثير
--  VIDEO: Kevin Spacey reapareció como Frank Underwood junto a Tucker Carlson e insinuó una candidatura presidencial
--  Milestone Pending: Secretive X-37B Space Plane Preparing for Thursday Lift-Off
--  응급실 대기 중 70대 환자 사망…강원대병원 “책임 통감” 사과
--  借古諷今？中媒重溫鄧小平實事求是 「財新」文章火速下架
--  Rasmus Højlund fuldender vildt United-comeback
--  U poplavama u centralnom Kongu poginulo najmanje 17 ljudi
--  Wild weather takes toll in Queensland and Victoria
--  Willian Hernández: Perspectivas petroleras para Venezuela en 2024. Un panorama con gran potencial y falta de inversión
--  Hasil Liga Inggris: Manchester United Comeback Gemilang di Old Trafford, Liverpool Gusur Arsenal dari Puncak
--  Exhortan a la población a vacunarse contra la influenza
--  Manchester United's all-action comeback against Aston Villa proves they can conjure goals when they need to... Sir Jim Ratcliffe will be hoping this is a sign of things to come after a drab spell at Old Trafford
+-  PADU: Kemas kini daftar isi rumah
