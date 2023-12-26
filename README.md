@@ -1,51 +1,11 @@
 # Latest News
--  우즈베키스탄 나망간주, K-부여 과학농업기술 배웠다
--  태안군 ‘귀농귀촌 유치 지원 사업 성과평가’ 전국 2위
--  보령시 내년도 국비 5013억원 따냈다
--  내년에도 청양지역 가게 간판 바꾼다
--  아산소방서 “구급대원 폭언·폭행 그만!”
--  Türkiye İsrail'in yalanlarını dünyaya duyuruyor
--  군산해경, 연휴 응급환자 긴급 이송 및 중국어선 나포
--  코스맥스그룹, 2024년 정기 임원 인사 단행
--  [CES 2024] 최태원·정의선·정기선, 정유·차·조선 '총출동'…이재용·구광모 '조용'
--  국힘 잔류한 김용태 “‘이준석 리더십’ 없어서 신당 안 갔다? 악의적 비판”
--  이수정 “한동훈 비대위 합류 안 하기로…제 코가 석자”
--  박지원 "尹, 거부권 행사하며 김건희를 사가로 보낼 것"
--  Fergie re-joins royal happy family for Christmas service
--  HD Hyundai Teams Up with Google Cloud to Accelerate AI Innovation
--  SNICKERS® Launched Brand New Bar Featuring Low GI Dark Chocolate Cereal in Mono Material Flexible Packaging
--  APX Accelerates Growth with ADB Ventures Funding, Eyes Singapore and Malaysia for 2024 Launch
--  한국핀테크지원센터, ‘2023 핀테크 창업 지원 사업’ 통해 핀테크 초기창업기업 기술 내재화 및 성장 지원
--  Choque en la Carlos Amaya deja 3 lesionados
--  США нанесли удары по объектам группировки "Катаиб Хезболлах" в Ираке
--  Protest rocks Scallywag in explosive start to Sydney to Hobart
--  문윤택 "공정하고 격조있는 경선으로 옥석 가려야"
--  김영진 "전국 최하위 제주경제 지표 입장 내놔라"
--  28,626 throw their hats in electoral ring
--  Aydın'da olaylı gece! Eski kız arkadaşı sırtından bıçakladı
--  Oprah’s flip on weight loss drugs is a sign of what’s to come for the ‘Ozempic trade’ in 2024
--  2024-ün önəmli texnoloji trendləri nələr olacaq?
--  Netizen Geram, Deretan Artis K-pop Ini Terang-terangan Unggah Foto Pakai Produk Pro Israel!
--  Vinicius Jr. troca camisas autografadas com LeBron James após Lakers x Celtics na NBA
--  國三生遭割喉傷勢嚴重 新北教育局：今進行教職員生安心輔導
--  焦點股》微星：進軍車用市場 放量衝高
--  Разведчик ВСУ рассказал о новой проблеме Украины
--  “뮌헨을 이길만한 팀은 단 3팀”... 무시알라가 뽑은 챔피언스리그 최고 대항마
--  [오피셜] 충남아산, U-18 대표 출신 U22 자원 정마호 영입
--  King Charles mocks Prince Harry-Meghan in speech? ‘Selfless people…'
--  Китаец переехал в Россию и назвал ее самой свободной страной мира
--  李連杰小女兒近照曝光 神似明星媽利智
--  Hollyoaks spoilers: Lord Rafe wants OUT of Dilly's scheme against Sienna!
--  尹 "저출산, 다른 차원서 고민해야. 3대 개혁 지속 추진"
--  Japan’s first lander enters lunar orbit
--  李聖經奪珠寶代言！最新大片黑西裝搭配寶石變身霸道女總裁
--  Τέλη κυκλοφορίας 2024: Πότε λήγει η παράταση για την πληρωμή τους
--  X(Twitter)の認証済みアカウントが拡散する誤情報に対してコミュニティノートが十分機能していないという研究結果
--  بورصة طوكيو.. المؤشر نيكي يفتح على ارتفاع
--  Нужна помощь. В африканской стране неожиданно пожаловались на Украину
--  Пенсионная система: самые значимые события 2023 года
--  แบงค์ แคลช อวดรถคันงาม ขออย่าซื้อเลขทะเบียน แต่ยิ่งห้ามเท่าไหร่ หัวใจยิ่งดื้อรั้น
--  카톡으로 만나는 우리동네 단골시장...카카오, 디지털 전환 성과 공유
--  మోదీతో నేడు రేవంత్ రెడ్డి భేటీ..
--  Historic highest paid price for rice farmers
--  「新天龍國」誕生！ 新竹收入冠全台 房價直逼台北市
+-  Se mantienen Raiders vivos con triunfo sobre Kansas
+-  Van fuerzas políticas en coaliciones parciales
+-  '변화보다 안정' 한화, 산체스와 최대 75만달러 재계약[오피셜]
+-  이찬원, 산타클로스 우체국 존재에 동심 폭발 "나도 써볼까?"('톡파원25시')
+-  이태환, 26일 육군 만기 전역…“좋은 연기로 보답할 것”
+-  이찬원, '찬스 감사제' 서울 공연 성료…9천 관객 위해 산타로 변신
+-  ‘혼례대첩’ 로운, “정우 사랑해 주셔서 감사…좋은 연기 보여드릴 것” 종영 소감
+-  서울청년센터, 원신과 '2023 청년도약 공모전 우수작 전시회' 개최
+-  위메이드, 글로벌 개인정보보호 인증 APEC CBPR 취득
+-  ميتروفيتش … أغرب رقم له في دوري روشن
