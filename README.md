@@ -1,51 +1,51 @@
 # Latest News
--  البورصة تصعد في بداية تعاملات اليوم الثلاثاء
--  أطعمة تضر بصحة عينيك.. ابتعد عنها فورا
--  Ateitis jau čia. Naujas naikintuvų aviacijos etapas – F-15EX (Video)
--  Majka i četvero djece pronađeni mrtvi u stanu u blizini Pariza
--  Утвержден госбюджет Азербайджана на 2024 год
--  Израилю предсказывают ужас и поражение
--  У Бундесвера осталось оружия на несколько часов войны
--  하이브IM, '인더섬 with BTS' 신규 테마 '2023 홀리데이' 업데이트
--  嗜血戰利品！斯基泰民族 2,400 年歷史的皮革樣本由人皮製成
--  40-tal containrar överbord – rederi lovar städa danska stränder
--  ยกฟ้อง-เพิกถอนหมายจับ "ยิ่งลักษณ์" พ้นคดีเด้งเลขาฯ สมช.
--  พบ 2 ศพน้ำท่วมนราธิวาส-ปภ.สรุป 5 จังหวัดใต้อ่วม
--  לוחם צה"ל נפטר לאחר שנדבק בפטריה מסוכנת ברצועת עזה
--  ביידן מחבק והשקל מזנק: למה המטבע מתחזק דווקא בימים הכי קשים שלנו?
--  העברות בעולם, 26.12: יובנטוס וניוקאסל מובילות במירוץ לצירוף קלווין פיליפס
--  Winter Recipes: घर में बनाएं रेस्टोरेंट जैसी रवा केसरी, फटाफट नोट करें रेसिपी
--  건축위원회 '셀프 심의'에 "그런 일 없다"던 제주도 '논란'
--  Baby Bath In Winter: ठंड में बच्चों को रात में नहलाकर रजाई में सुला देना सही है या गलत, इन बातों का रखें ख्याल
--  強化電戰能力，第二批 F-15EX 交付美軍
--  Woman and her four young children are found dead in Paris suburb as police hunt 'on-the-run' father, 33
--  La Fifa advierte a Brasil de que podría quedarse fuera de todos los torneos internacionales
--  SPD-Chefin sieht in FDP-Befragung keine Gefahr für die Ampel
--  Njemačku u 2023. obilježio priljev migranata i uspon ekstremne desnice
--  Koliki će biti minimalac u Srpskoj od Nove godine:Višković tvrdi da je VLADA VEĆ ODLUČILA
--  Jammu-Kashmir: पुंछ में तीन ग्रामीणों के शव मिलने पर सियासी बवाल, कोर्ट ऑफ इन्क्वायरी के आदेश
--  İşsizlikdən sığorta fondunun gəlir və xərcləri açıqlandı
--  Indians powered through 371 Billion hours online in 2023!
--  ‘अगर भारत और पाकिस्‍तान के बीच नहीं हुई वार्ता, तो गाजा और फिलिस्‍तीन जैसा ही होगा हश्र… ‘, बोले फारूक अब्दुल्ला
--  Lily Allen and husband David Harbour look loved up on tiger safari in India as they enjoy romantic festive holiday after putting an end to split rumours
--  [전문] 한동훈 국민의힘 비대위원장 수락연설..."국민의힘보다 국민이 우선"
--  Hochwasser-Lage in Deutschland spitzt sich weiter zu - die Lage vor Ort in Bildern
--  Za 24 sata 27 saobraćajnih nezgoda, poginule četiri osobe
--  Trabzonspor, Nwakaeme'den haber bekliyor
--  Nijerya'da silahlı saldırı: Ölü sayısı 113'e yükseldi
--  Gilbert'ten Cumhurbaşkanı Erdoğan'a Gazze çağrısı: Türkiye harika bir konumda
--  Skispringen: Sven Hannawald spricht über mögliche Vierschanzentournee der Frauen
--  Höhere Mehrwertsteuer kommt bei Gastronomen im Kreis Miltenberg nicht gut an
--  Izwiestia: w Rosji brakuje prawie 5 mln pracowników
--  ვაკანსია ნეტგაზეთში: ვეძებთ ახალი ამბების ჟურნალისტს
--  Япония започва консултации със САЩ за прехвърлянето на ракети Patriot
--  VIDEO/ Nis puna për rikonstruktimin e godinës së kinemasë në Shkodër
--  Brasilia ulos MM-jalkapallosta? – Fifan uskottavuus mitataan taas
--  Margaret Thatcher to replace The Crown: Big budget biopic by TV team behind Poldark is set to fill void left by the concluding Netflix drama
--  IND vs SA: టాస్ గెలిచిన సౌతాఫ్రికా.. టీమిండియా యువ పేసర్ అరంగేట్రం
--  Emekli öğretmen Musa Dönmez vefat etti
--  Halle von französischem Basketball-Club geht in Flammen auf
--  Süper Kupa'da favori değişti! Galatasaray mı, Fenerbahçe mi? Oranları görenler şaşkına döndü
--  I had to play second fiddle for years at Arsenal… if Aaron Ramsdale doesn’t get his place back soon, he should quit
--  Handballer schwören sich auf Heim-EM ein
--  Νέα αεροπορική εταιρία στο δρομολόγιο Αθήνα – Νέα Υόρκη
+-  Veda gibi paylaşım! Angelino ile yollar ayrılıyor
+-  Bakan Tunç: Seçilmiş milletvekillerimiz devletimizin yanında olmalı
+-  Paris'te dehşet! Anne ve dört çocuğu ölü bulundu: Baba aranıyor
+-  CHP'ye içeriden bildiri tepkisi: Türkiye'ye rezil olduk
+-  İsrail, İran'ın misillemede bulunmasını bekliyor
+-  İstanbul'da hileli ilaç ihracatına 24 gözaltı
+-  Fadime Özkan yazdı: DEM'lenen CHP
+-  Ukrajinske vazduhopolovne snage: Uništili smo ruski desantni brod u Crnom moru
+-  Up to $20k of equipment stolen from a Melbourne CFA ahead of bushfire season
+-  Δήλωση Πριέτο για Καστέλ και Ισπανία
+-  강원도·카피오바이오사이언스코리아, 국가특화산단 유치 협력
+-  아들과 놀러 나왔다가 ‘시민 영웅’으로…눈썰매장 대참사 막았다
+-  ปส. กวาดล้าง 100 เครือข่ายค้ายา ยึดทรัพย์ 140 ล้าน
+-  قراءة تحليلية للمشهد اليمني من المسافة صفر.| كتب منصور الصبيحي
+-  Sağlık Bilimleri Üniversitesi, YÖK Üniversite İzleme ve Değerlendirme Genel Raporu'nda başarısını sürdürdü
+-  Kaan ne zaman uçacak? Kaan'ın özellikleri nelerdir?
+-  Jackson Muleka çok kaçırdı
+-  Netanyahu: Gazze'yi yönetme beklentileri bir hayal
+-  Elvan Gruda'nın ölümüyle ilgili acı detayları Tuna Arman anlattı
+-  Yatırımcılar dikkat! Altında yükseliş sürecek mi?
+-  Eyüpspor devre arasına lider girdi
+-  Ankara Yenimahalle'de icradan satılık dubleks daire!
+-  Sosyal medyada terör propagandası yapan 3 kişi tutuklandı
+-  Alanya'da 2.5 milyon TL'ye icradan dükkan satılıyor!
+-  BM'den İsral'in vize tehdidine cevap: Temelsiz saldırılar sadece ahlaki korkaklığı kanıtlıyor
+-  İletişim Başkanlığı 3 Sözleşmeli Personel alacak!
+-  Süper Kupa finali 5. kez Türkiye dışında oynanacak
+-  İstanbul'da "pes" dedirten görüntü... Elinde kelepçeyle camda ters asılı kaldı!
+-  Nijerya'da silahlı saldırı: Can kaybı 113'e çıktı
+-  Bakan Tunç'tan 'dokunulmazlık' açıklaması: Büyük bölümü terörle alakalı.
+-  Ryan O'Neal sevgilisi Farrah Fawcett'ın yanına gömüldü
+-  A101'e bu hafta neler gelecek? A101 28 Aralık aktüel ürünler kataloğu
+-  İbn-i Sina o baharatları öneriyor! Biri hafızayı diğeri zekayı artırıyor! Bin yıl önceki beyin ilacı
+-  MSB: Sınırda 18 kişi yakalandı
+-  Police Implement Contraflow in Cipali Toll to Anticipate Holiday Traffic
+-  Süper Kupa Maçının Favorisi Açıklandı
+-  Inoue vs Tapales live: No.1 pound-for-pound crown at stake as Japanese ace aims for two-division undisputed status
+-  NO 마스크로 中 의료미용 수요 증가…국내 피부미용산업 '파란불'
+-  유플라이마·하드리마, '휴미라' 대체 시점 다가오고 있다‥허가에 속도
+-  "의약 선진국으로의 진출에 박차 가할 것"
+-  신약 '트로델비'까지 등장…정례화되는 유방암 국민동의청원
+-  “우리의 목표는 한국이 바이오헬스 산업의 글로벌 리더로 자리매김하는 것”
+-  "매사진선의 자세, 약사직능 미래 도모 원년으로"
+-  Presidential Secretariat opts to discontinue the utilization of the Itukama website and domain name
+-  임플란트, 정확한 식립 위한 방법은?
+-  I’m an ex-darts star who holds the world record for longest-ever Ally Pally walk-on and once fell down a HOLE on stage
+-  Doctor Who shares HUGE glimpse into what's in store for upcoming season with explosive new trailer
+-  Kagetnya Dedi Asal Sukoharjo Pertama Kali Kunjungi Monas
+-  [포토] 수협은행·조폐공사 '지역사랑상품권' 업무협약
+-  이병래 신임 손보협회장 "상생금융 협력 지속할것"
