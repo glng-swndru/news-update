@@ -1,51 +1,51 @@
 # Latest News
--  Los precios industriales moderan su caída al 7,4 % en noviembre
--  IndusInd Bank presenta la primera tarjeta de crédito corporativa de India con UPI
--  Happy Forgings se prepara para debutar en bolsa con una prima esperada
--  El organismo español de defensa de la competencia inicia un expediente sancionador contra Repsol
--  El petróleo sube por la tensión en Oriente Próximo y el recorte de tipos en EEUU
--  Xankəndidə ermənilər heç bir iş görməyib
--  Diyet yapanlara iyi haber: Tokluk hissi yaratan hap icat edildi
--  Bahçeli'den net mesaj: Yayı gerilmiş ok gibiyiz
--  Spor basınının 1 numarası Şansal Büyüka Galatasaray Fenerbahçe derbisinde kimsenin bilmediğini açıkladı
--  SH "서초 성뒤마을 내년 상반기 분양"
--  한미글로벌, 쿠웨이트 압둘라신도시 수주
--  尹 정비사업 발언 나오자 … 국토부 도시재생과 신설
--  "주택정책 이념아닌 시장따라" 박상우 국토장관 취임일성
--  7년끈 하림 양재물류단지 이번엔 속도 기대
--  بالتفصيل.. أنواع الضمان على السلع والمنتجات وموعد تفعيله
--  Azərbaycan nə qədər yaşıl ölkədir?
--  ESG 성과도 덤 … 소나무 7만 그루분 CO2 감축
--  [스마트 산업강국 함께 하는 제조혁신] 존폐기로 기업이 혁신 전도사로 …"생산성 오르니 2년새 매출 2배"
--  Ratusan ribu ringgit habis rawat PATI – Dr. Alpha Zaki
--  Огнеборци спасиха от изпепеляване 16 сгради и 6 автомобила навръх Коледа - Труд
--  고성장 인도 '직투' 가능한 유망株 있었네
--  美레버리지·인버스도 배당…서학개미 신났다
--  유커 큰손 사라지니…LG생건 '약세'
--  Tottenham, Everton Still Negotiating Clause In Alli Transfer
--  Natural gas production in Kyrgyzstan slopes downward
--  Six wonderkids Premier League sides should eye in January transfer window including Kane understudy and £90m-rated ace
--  Немецкий аналитик: Беларусь — европейская до мозга костей
--  Russian PEC onsets North-South corridor-run cargo from Turkmenistan to Russia
--  Umowa użyczenia lokalu. Jakie są różnice między użyczeniem a najmem?
--  Kinderreisepass wird abgeschafft: Was Familien für den Urlaub 2024 wissen müssen
--  Auriculares para hacer deporte: ¡que nada te pare!
--  টাঙ্গাইলে নৌকার সমর্থকদের ওপর গুলির ঘটনায় জড়িত দুজন ঢাকায় গ্রেপ্তার: র‍্যাব
--  Evacuada una persona tras empotrarse con su coche contra una farola en Pontevedra
--  Первые украинские пилоты завершили обучение на истребителях F-16 в Великобритании
--  Kansere duvar ören besin ortaya çıktı. Bu yöntemle pişirilince tümör hücrelerini tek tek eritiyor
--  4 new models of Porsche to be launched in India in 2024
--  युद्धस्तरमा भूकम्प प्रभावितको उद्धार
--  الاحتلال يعتقل الأسيرة المحررة خالدة جرار في رام الله
--  Azerbaijan sees growth in volume of loans issued for local households
--  Просечната плата во Србија скокна: Сега изнесува 739.80 евра
--  Samsul Tampil Moncer di Debat, Elektabilitas Prabowo-Gibran Capai 46,7 Persen Versi Survei Indikator
--  Vietnam Rilis Skuad untuk Piala Asia 2023, Rival Timnas Indonesia Langsung Ketiban Apes
--  सुपरमाई जलविद्युत् आयोजनाको उत्पादन बन्द
--  Megindul Orbán Viktor szentté avatási eljárása, átírja a Bibliát a Fidesz – Herényi Károly ezeket várja 2024-től
--  “Nar” Azərbaycan Voleybol Federasiyasının rəsmi tərəfdaşıdır
--  Gram altını olanların başından aşağı kaynar sular döküldü 'Kuyumcu tek tek tarttı herkes şoke oldu
--  Šehović i Canović u Njujorku: Susret sa udruženjima iseljenika i brojnim predstavnicima naše dijaspore
--  ГАИ Минска за выходные зарегистрировала 238 нарушений ПДД таксистами
--  Szef KRRiT apeluje o zgłaszanie przypadków niszczenia archiwów TVP i Polskiego Radia
--  [VIDEO] Rumah tiang kuning ‘viral’ lagi, benteng putih jadi penyelamat banjir
+-  البورصة تصعد في بداية تعاملات اليوم الثلاثاء
+-  أطعمة تضر بصحة عينيك.. ابتعد عنها فورا
+-  Ateitis jau čia. Naujas naikintuvų aviacijos etapas – F-15EX (Video)
+-  Majka i četvero djece pronađeni mrtvi u stanu u blizini Pariza
+-  Утвержден госбюджет Азербайджана на 2024 год
+-  Израилю предсказывают ужас и поражение
+-  У Бундесвера осталось оружия на несколько часов войны
+-  하이브IM, '인더섬 with BTS' 신규 테마 '2023 홀리데이' 업데이트
+-  嗜血戰利品！斯基泰民族 2,400 年歷史的皮革樣本由人皮製成
+-  40-tal containrar överbord – rederi lovar städa danska stränder
+-  ยกฟ้อง-เพิกถอนหมายจับ "ยิ่งลักษณ์" พ้นคดีเด้งเลขาฯ สมช.
+-  พบ 2 ศพน้ำท่วมนราธิวาส-ปภ.สรุป 5 จังหวัดใต้อ่วม
+-  לוחם צה"ל נפטר לאחר שנדבק בפטריה מסוכנת ברצועת עזה
+-  ביידן מחבק והשקל מזנק: למה המטבע מתחזק דווקא בימים הכי קשים שלנו?
+-  העברות בעולם, 26.12: יובנטוס וניוקאסל מובילות במירוץ לצירוף קלווין פיליפס
+-  Winter Recipes: घर में बनाएं रेस्टोरेंट जैसी रवा केसरी, फटाफट नोट करें रेसिपी
+-  건축위원회 '셀프 심의'에 "그런 일 없다"던 제주도 '논란'
+-  Baby Bath In Winter: ठंड में बच्चों को रात में नहलाकर रजाई में सुला देना सही है या गलत, इन बातों का रखें ख्याल
+-  強化電戰能力，第二批 F-15EX 交付美軍
+-  Woman and her four young children are found dead in Paris suburb as police hunt 'on-the-run' father, 33
+-  La Fifa advierte a Brasil de que podría quedarse fuera de todos los torneos internacionales
+-  SPD-Chefin sieht in FDP-Befragung keine Gefahr für die Ampel
+-  Njemačku u 2023. obilježio priljev migranata i uspon ekstremne desnice
+-  Koliki će biti minimalac u Srpskoj od Nove godine:Višković tvrdi da je VLADA VEĆ ODLUČILA
+-  Jammu-Kashmir: पुंछ में तीन ग्रामीणों के शव मिलने पर सियासी बवाल, कोर्ट ऑफ इन्क्वायरी के आदेश
+-  İşsizlikdən sığorta fondunun gəlir və xərcləri açıqlandı
+-  Indians powered through 371 Billion hours online in 2023!
+-  ‘अगर भारत और पाकिस्‍तान के बीच नहीं हुई वार्ता, तो गाजा और फिलिस्‍तीन जैसा ही होगा हश्र… ‘, बोले फारूक अब्दुल्ला
+-  Lily Allen and husband David Harbour look loved up on tiger safari in India as they enjoy romantic festive holiday after putting an end to split rumours
+-  [전문] 한동훈 국민의힘 비대위원장 수락연설..."국민의힘보다 국민이 우선"
+-  Hochwasser-Lage in Deutschland spitzt sich weiter zu - die Lage vor Ort in Bildern
+-  Za 24 sata 27 saobraćajnih nezgoda, poginule četiri osobe
+-  Trabzonspor, Nwakaeme'den haber bekliyor
+-  Nijerya'da silahlı saldırı: Ölü sayısı 113'e yükseldi
+-  Gilbert'ten Cumhurbaşkanı Erdoğan'a Gazze çağrısı: Türkiye harika bir konumda
+-  Skispringen: Sven Hannawald spricht über mögliche Vierschanzentournee der Frauen
+-  Höhere Mehrwertsteuer kommt bei Gastronomen im Kreis Miltenberg nicht gut an
+-  Izwiestia: w Rosji brakuje prawie 5 mln pracowników
+-  ვაკანსია ნეტგაზეთში: ვეძებთ ახალი ამბების ჟურნალისტს
+-  Япония започва консултации със САЩ за прехвърлянето на ракети Patriot
+-  VIDEO/ Nis puna për rikonstruktimin e godinës së kinemasë në Shkodër
+-  Brasilia ulos MM-jalkapallosta? – Fifan uskottavuus mitataan taas
+-  Margaret Thatcher to replace The Crown: Big budget biopic by TV team behind Poldark is set to fill void left by the concluding Netflix drama
+-  IND vs SA: టాస్ గెలిచిన సౌతాఫ్రికా.. టీమిండియా యువ పేసర్ అరంగేట్రం
+-  Emekli öğretmen Musa Dönmez vefat etti
+-  Halle von französischem Basketball-Club geht in Flammen auf
+-  Süper Kupa'da favori değişti! Galatasaray mı, Fenerbahçe mi? Oranları görenler şaşkına döndü
+-  I had to play second fiddle for years at Arsenal… if Aaron Ramsdale doesn’t get his place back soon, he should quit
+-  Handballer schwören sich auf Heim-EM ein
+-  Νέα αεροπορική εταιρία στο δρομολόγιο Αθήνα – Νέα Υόρκη
