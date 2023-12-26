@@ -1,51 +1,51 @@
 # Latest News
--  Megastar Tarkan'ın yılbaşı konserinden alacağı ücret dudak uçuklattı!
--  台鐵票價凍漲28年，公司化後將調整？最快「此時」決議
--  大選倒數，蔡政府政策誤區2024如何避免？
--  與全家夯蕃薯合作、把台灣蕃薯賣到全球！瓜瓜園用小蕃薯拚出大生意
--  Развожаев: военные в Севастополе применили табельные средства маскировки
--  Netanyahu Gazze’de barış için 3 şartını açıkladı
--  Sabiha Gökçen Havalimanı'na yeni CEO
--  شاہ محمود قریشی کو نظر بند کر دیا گیا
--  Hastanede doktordan sonra hemşireye de saldırdılar
--  El Reina Sofía de Córdoba repite como segundo mejor hospital de Andalucía
--  Influencer revela problemas con “La Comadre”: “Se le cayó la careta”
--  Juntan 188.000 firmas para pedir a Sanidad que prohíba el tabaco en las terrazas
--  As pessoas destes signos são os melhores amigos que todos querem ter
--  Kütahya'da evinde uyuşturucu satarken yakalandı!
--  El extremo norte esquiva el fin de año anticiclónico, que se prevé pasado por agua
--  Pekerja penyelenggaraan maut kepala tersepit pintu lif
--  وزير التموين: بدء إنتاج السكر المحلي من 3 مصانع قصب في 5 يناير المقبل
--  Начальник отделения ГИБДД в Марий Эл Дудин погиб в ДТП в Звенигово
--  Krapović: Turska važan saveznik u oblasti odbrane
--  Modernes Krippenspiel in der Evangelischen Kirche Hirschau aufgeführt
--  Sutra u Srbiji pretežno sunčano, temperatura do 18 stepeni, meteoropate mogu biti mirne
--  Dünyaca ünlü oyun şirketi iflas etti. Türkler de bağımlısıydı. Tüm çalışanlar kapının önüne kondu
--  Fatih Terim Panathinaikos ile anlaştı
--  Hansal Mehta slams trolls attacking him for praising Shah Rukh Khan's Dunki: 'To respond with hate and disrespect...'
--  “Me Luizin kemi qarë shumë atë ditë”, Kiara Tito rrëfehet për pritjen e ëmbël
--  Clima: martes despejado y sin probabilidad de lluvias en CABA
--  "Campanha competitiva". Mais de 30 candidatos às eleições na Rússia
--  Tarena Signs Equity Transfer Agreement to Dispose of Professional Education Business
--  Dingdong Announces the Appointment of CFO and CHRO
--  Timnas Amin Gelar Training of Trainer 50 Hari Jelang Pemilu 2024
--  "OTIŠLA SAM DO NJENOG STANA I VIDELA KRVAVU KVAKU": Mučni detalji ubistva majke i 4 dece kod Pariza, policija zatekla HOROR SCENU
--  Tapu tartışması kanlı bitti. Ablasını öldürüp, intihar etti
--  التضامن توقع عقد المشاعر لحجاج الجمعيات الأهلية مع رحلات ومنافع لمطوفي حجاج الدول العربية
--  One Piece anime reveals new art style for Egghead Island arc
--  وسائل إعلام مصرية: دوي انفجار في سماء «دهب» وإسقاط جسم طائر على بعد كيلومترين
--  جامعة بنها الأهلية ومؤسسة حياة كريمة تنظمان ندوة للتوعية بالقضية الفلسطينية
--  Rezept für Silvester-Menü: Das empfiehlt Profikoch Sebastian Schmitt
--  Sparkle in Honkai Star Rail: Ascension and Trace level-up materials
--  Martial için Fenerbahçe'ye kötü haber!
--  Dünyanın en büyük ikinci keşfi! Türkiye NTE'de 5 ülkeden biri olacak
--  BM, Netanyahu'nun sözde planının suç olduğunu vurguladı
--  Sabiha Gökçen Havalimanı'nın yeni CEO'su belli oldu
--  Mourinho'nun yeni hedefi: Merih Demiral
--  Şehit Piyade Sözleşmeli Er Taşkın dualarla son yolculuğuna uğurlandı
--  Şehit Piyade Sözleşmeli Er Yasin Karaca'nın cenazesi, Tokat'ta toprağa verildi
--  Milli Eğitim Bakanı Tekin: Yepyeni bir yüzyıl olarak inşa etmeyi arzu ediyoruz
--  Gastronomi Enstitüsü kuruluyor
--  Vadodara: Four hospitalised after inhaling toxic gas at pharma chemical factory
--  Maja pinaglihian ang mister
--  Les plus belles bûches de Noël
+-  W tym roku ludzie lepsi od algorytmów w zarządzaniu inwestycjami
+-  5 علامات تشير إلى تعرض حساباتك للاختراق.. تعرف عليها
+-  بهذا الشرط.. مجلس الوزراء يوافق على تعديل نظام المؤسسات الصحية
+-  "مدن" تحصد جائزة الجهة الأكثر جذبًا للاستثمار في جوائز "ندلب للتميز"
+-  كيف تحصل على قطعة أرض في مخططات "سكني"؟
+-  اغتيال صحفي مصري قام بنشر فضيحة عن الرئيس الأوكراني
+-  الاحتلال يعتقل 4785 فلسطينيا بالضفة منذ 7 تشرين الأول
+-  الإمارات تعلن وفاة مريضيّ سرطان من غزة
+-  كاظم الساهر يستهل العام الجديد في مهرجان الشيخ زايد
+-  كبسولة تمنح الشعور بالشبع
+-  ארה"ב תקפה בעיראק אחרי שחיילים נפצעו במתקפת כטב"מים
+-  Manoj Bajpayee reveals he and his daughter didn`t like Suhana`s `The Archies`
+-  Woman dead, her friend injured after a man in SUV knocks them down
+-  Soccerladuma | 5 Players Linked With Man Utd After R29.7 Billion Takeover
+-  Biden administration allows US trade tribunal's ban on Apple Watch imports
+-  Aguas de Teror y The North Face Transgrancanaria renuevan su acuerdo para los próximos tres años
+-  अफरीदी ने मैदान पर की ऐसी हरकत कि मांगनी पड़ी माफी, LIVE मैच में दिखा रौंगटे खड़े करने वाला मंजर
+-  Shannen Doherty : son message d'espoir pour Noël après une année difficile
+-  Сърбия разреши движението на косовски шофьори на територията ѝ от 2024 г.
+-  Jak odnaleźć szczęście? Postawić na SZPON, który buduje mięśnie siły psychicznej
+-  BMKG Peringatkan Cuaca Ekstrem Sepekan Kedepan, Ini Perinciannya
+-  Şehit babasından 'kabullenemiyorum' çıkışı: Demirtaş'a selam verip şehit cenazesine gidiyor!
+-  Person räddad ur klädcontainer i Trollhättan
+-  Български учени изследват океанското дъно край Антарктида
+-  СМИ: Казахстан подписал соглашения с Россией о строительстве трех ТЭЦ в республике
+-  Bakan Tunç: AYM de Yargıtay da anayasamıza bağlıdır
+-  Batman'da gençler beğeni uğruna hayatını tehlikeye attı
+-  Şehit Yazıcı, son yolculuğuna uğurlandı; 4 aylık hamile eşi gözyaşı döktü
+-  Selçuklu modern altyapı çalışmalarıyla örnek oluyor
+-  TSYD Konya’dan Korkmaz’a ziyaret
+-  챗GPT “천안문 사태 이미지 생성 불가”…中 관련 주제 검열 의혹
+-  Няколко души са ранени при обстрела на централата на Червения полумесец в ивицата Газа
+-  Deze Kerst gaat de boeken in als de een na warmste ooit
+-  Man who died after being hit by Land Rover on A737 near Beith named by police
+-  Novosadski odbornici donose odluke u vaše ime: Osnivaju novo javno preduzeće
+-  Privremena regulacija prometa zbog božićnog programa na Vidicima: svi su pozvani na druženje uz fritule i kuhano vino
+-  PT IMIP Beri Santunan Rp 600 Juta untuk Korban Meninggal dalam Insiden Ledakan Tungku Smelter
+-  Велогонщица Войнова заявила, что ей приятна поддержка страны в условиях санкций МОК
+-  [ŽT] Čekija ruošiasi karui su Rusija. Kas nutiko
+-  Skandalas Turkijos TV. Atleista žinių vedėja. Įsiutino viena detalė kadre (Video)
+-  XV de France : Antoine Dupont prêt à imiter de grandes stars pour son avenir ?
+-  Rekordauktionen: Geld spielt keine Rolex: Das sind die teuersten Uhren der Schweizer Kultmarke
+-  Na Stipanju u Opatiju pristiglo dvadesetak “limenih ljepotana”
+-  バドミントン全日本総合選手権 “新旧エース”それぞれ2回戦へ
+-  Seorang Pengendara Motor di Sumbar Meninggal Akibat Tertimbun Longsor
+-  (FOTO) SNEG, DEDA MRAZ, IRVAS, SANKE I BOGATA JELKA Ana Korać za sina priredila MAGIJU U SVOM DOMU: Ovo nema ni u bajci
+-  Shoppers are rushing to snap up Lush products for 50 per cent off in their Boxing Day sale & it includes Snow Fairy
+-  Shoppers are rushing to snap up Lush products for 50 per cent off in their Boxing Day sale & it includes Snow Fairy
+-  WATCH: Tony De Zorzi drops a sitter to give Virat Kohli reprieve in India-South Africa Boxing Day Test
+-  Bu avtobus marşrutları müsabiqəyə çıxarılır
