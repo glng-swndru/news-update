@@ -1,51 +1,51 @@
 # Latest News
--  Ubica aquí las estaciones de reciclaje del Municipio
--  ‘El punto 36 no es una entrada’
--  Bakan Koca, Özbek mevkidaşı ile görüştü
--  В предпоследние выходные декабря в Кирове состоялся новогодний «Экомобиль»
--  На Орловщине отремонтировали 5 культурных объектов
--  The Best After-Christmas Sales and Boxing Day Deals to Shop Right Now
--  Husiler, Kızıldeniz'de bir ticari gemiyi ve İsrail'e ait askeri noktaları hedef aldığını duyurdu
--  Hamas'tan esir takası açıklaması: İsrail Gazze'ye saldırıları durdurmalı
--  Türkmenistan ile Türkiye arasında savunma sanayi alanında işbirliği konusu görüşüldü
--  'Duros con los empresarios pero arrodillados con el crimen': crítica de Cambio Radical
--  تفجير خط أنابيب النفط في شبوة جنوبي اليمن.. الحدث الثاني خلال 24 ساعة
--  Filip Peliwo, el excampeón de Wimbledon y del US Open al que le ofrecieron arreglar partidos: “Llegaron a prometerme 5000 euros”
--  ‘What happened to my money’: Question that sparked pop star Vanessa Amorosi’s bitter war with mum
--  Patriots offensive coordinator Bill O’Brien says he still feels good about Mac Jones
--  Aboubakar'ın yeni takımı belli oldu
--  مجلس جامعة دمياط يشهد عرضا لخطة أنشطة المركز الجامعي للتطوير المهني
--  أسامة حمدان: نحذر من التعاطي مع مخططات نتنياهو لتهجير سكان غزة
--  الحوثيون يعلنون استهداف سفينة تجارية بصواريخ بحرية
--  Annesini öldüren çocuğa 38 yıl 6 ay hapis cezası. Azmettirici babaya müebbet
--  KooKoolle voitto jumboväännössä vasta ylitöillä
--  KooKoolle voitto jumboväännössä vasta ylitöillä
--  Çanakkale'de korkunç olay! Yüzüne kimyasal sıvı atılan kadın ağır yaralandı
--  الأرجنتين تعدل قواعد حصول المستوردين على العملات الأجنبية
--  Σταθεροποιητικές κινήσεις για τον χρυσό
--  "Un délice" : cette série française qui fait monter la température intègre le top 3 sur Prime Video
--  АКМ проиграл пензенскому "Дизелю" в домашнем матче
--  Premier League: Premier League: Liverpool setzt sich an die Spitze
--  Gardner Minshew uses his playoff experience to rally Colts after another inexplicably flat loss
--  Gardner Minshew uses his playoff experience to rally Colts after another inexplicably flat loss
--  Från krigarkedjan till superfemman – Knuts: ”Försöker bara hänga med”
--  Defense's continued struggles raise questions over how much longer Packers can stay in playoff hunt
--  Defense's continued struggles raise questions over how much longer Packers can stay in playoff hunt
--  أكثر من نصف مليار دينار مديونية صندوق التأمين الصحي
--  Watkin Tudor Jones rapping BEFORE ‘Die Antwoord’ [Watch]
--  La chance de Los Pumas de jugar un derbi en 2024
--  Huge Emmerdale star quits after two years – and they have already filmed their final scenes
--  Зеленський висловився про нові правила мобілізації
--  Oppenheimer showing Jan. 2
--  El día que el cine tembló: 50 años del estreno del Exorcista
--  شاهد.. أمطار الخير على المسجد النبوي
--  Rojters o Mariniki Tepić: Vodeća figura glavne srpske opozicione partije nastavlja štrajk glađu uprkos pogoršanju stanja
--  Felipe Neto gasta R$ 1.200 em delivery, mas fica sem ceia de Natal
--  De Palmira para el mundo: la compañía del Valle clave en la industria química del país
--  مجلس أبو ظبي يصدر بيانا جديدا عن تذاكر مباراة الأهلي وفيوتشر
--  Odszedł wielki pasjonat sportu, przyjaciel piłki ręcznej
--  Burnley Vs Liverpool: Menang 2-0, The Reds Puncaki Liga Inggris
--  Zhduket një vajzë 22-vjeçare nga Gazi Baba
--  La reina Letizia confiesa su admiración por Gomaespuma: "Lo escuchaba a escondidas"
--  Dolár oslabuje, index meny by mohol byť najhorší za posledné tri roky
--  Штаб национальной безопасности выпустил предупреждение для израильтян, находящихся в Индии
+-  Live Euromillions results for Tuesday, December 26: The winning numbers from £14m jackpot draw and Thunderball
+-  Natal Abençoado do SER Família continua aberto ao público até sábado (30)
+-  Deputados aprovaram regulamentação das apostas esportivas on-line
+-  Зечевиќ шеф на Централниот изборен штаб на СДСМ, дополнителен заменик во МВР ќе биде Бојмацалиев
+-  VIDEO Svjetla na nebu opet su začudila Hrvate: 'Nestajali su u liniji, kao ravnalom povučenoj'
+-  مدة ولاية المحافظ في العراق غير محددة بقانون
+-  Panathinaikos potvrdio: Ugledni turski stručnjak karijeru nastavlja u grčkom velikanu
+-  Here's What Happened Today: St Stephen's Day
+-  “里帰り出産への支援 着実に” 情報共有など仕組み構築へ
+-  Iran ramps up production of highly enriched uranium, nearing weapons' grade levels
+-  Mercato - PSG : Le transfert prioritaire de l’hiver est connu
+-  Válka v Gaze potrvá ještě mnoho měsíců, zní z Izraele. Hamás zlikvidujeme, tvrdí
+-  Liječnici i medicinske sestre otkrili zašto su otišli iz Hrvatske. Ovo se već pretvara u egzodus
+-  Inauguraron la estatua de bronce de más de seis metros de Shakira en Barranquilla (Video)
+-  Ersin Tatar: Türkiye Kıbrıs'tan vazgeçmez, vazgeçmeyecektir
+-  Zalužnji demantovao Zelenskog
+-  FACE A FACE. Fin du retrait de point sur les petits excès de vitesse : "Petite victoire" ou "décision populiste" ? Deux visions s'opposent
+-  Liverpool na vrhu Premiershipa: Dobili Burnley, zabio je i Nunez
+-  Barranquilla rinde homenaje a Shakira con inauguración de estatua
+-  La oposición denuncia fraude electoral en Serbia y Rusia acusa a Occidente de alentar la protesta
+-  Últimos días para visitar los patios de Córdoba en Navidad
+-  Poljska državna televizija dobila dva direktora
+-  El pago de dividendos alcanza los 30.000 millones en la Bolsa española en 2023, un 19% más
+-  ABD, Türkiye'nin İsveç Kararından Memnun
+-  Спецкор RT показал, как экипаж танка Т-90 выполняет задачи на Донецком фронте
+-  Avgångar på tvärgående linjen ställs in
+-  Coahuila: Amplían plazo de registro para Pensión del Bienestar para adultos de 65 y más
+-  Ataque aéreo israelí deja al menos 70 muertos en campo de refugiados de Gaza: fuentes sanitarias
+-  Bigg Boss 17: Did Ankita Lokhande confirm that Vicky Jain tried to slap her? [Watch Video]
+-  వైసీపీలో ఉత్కంఠ
+-  Запленети 7480 пиротехнички средства во Прилеп, приведено едно лице
+-  Cardio or weights first? A kinesiologist explains how to optimize the order of your exercise routine
+-  Arrestimi i shefit të policisë në burgun e Drenovës, gjykata jep masën. Ja për çfarë akuzohet
+-  2024年のえと「たつ」のこま作り最盛期 長崎 佐世保
+-  Desarticulan red que distribuía barras de chocolate, gomitas y cartuchos rellenos con marihuana
+-  Guardiola says rivals want Man City to fail ‘more than ever’
+-  Bebu je odnio tornado, roditelji sumnjali na najgore: Pronašli je na vrlo bizarnom mjestu
+-  Meğer hata yapıyormuşuz! Hem doğalgaz faturanız düşecek hem de eviniz sımsıcak olacak
+-  Summeriongelmia, ulosajo ja maali 16 pelin tauon jälkeen – Ässät kaatoi Tapparan toisen kerran tällä kaudella
+-  "أموال وسفر ورجوع حق".. بسنت يوسف تكشف عن توقعات برج السرطان لـ 2024
+-  Vitor Roque feliz de integrarse al Barcelona y ser su próxima estrella
+-  Madre e hija protagonizan desastrosa revelación de género; usuarios reaccionan: "¿y así quiere otro?"
+-  Argentina no renovará 5,000 contratos públicos y revisará un millón de planes sociales
+-  «Το πρώτο πράγμα που έκανε ήταν να βάζει ζώνη» δήλωσε ο πατέρας του 18χρονου που σκοτώθηκε στα Βριλήσσια
+-  Grady Judd's most memorable quotes of 2023
+-  ప్రభుత్వ భూమి ఆక్రమణ
+-  Lancaster Police Department issues arrest warrant in connection to mid-December shooting death
+-  Tero Lehterälle löytyi töitä Ruotsista - todella haastava pesti
+-  Ο Ματίας Λεσόρ έβγαλε μέρος από την προπόνηση του Παναθηναϊκού
+-  Wojna o TVP. Agencja Reutera pisze w depeszy o trzech prezesach telewizji
