@@ -1,51 +1,51 @@
 # Latest News
--  Wereldberoemde pianisten komen ook in 2024 naar de Edesche Concertzaal
--  Great business partners drive great business performance
--  PL Technical Research BUY CLEAN - TECHNICAL PICK
--  Reagerer etter at verdensmesters blogg ble fjernet: – Meninger bør bli møtt med meninger
--  بلاول زرداری پیپلز پارٹی کے گڑھ لیاری سے الیکشن نہیں لڑیں گے
--  Украина нанесла мощный авиаудар по порту Феодосии
--  Top doubles shuttler Pearly aims to stay injury-free next year
--  الاحتلال يعتقل الأسيرة المحررة خالدة جرار في رام الله
--  Kryzys na granicy. ”Rządy nie stanęły na wysokości zadania”
--  Bakan Yerlikaya mahkeme kararını duyurdu: Artık milletimizin hizmetinde olacaklar
--  Nuh Albayrak yazdı: Mehmetçiklerimizi kim şehit etti?
--  Geri sayım başladı! Yeni asgari ücret ne kadar olacak?
--  Canlı yayında cinayet itirafı! Faili en yakın arkadaşı çıktı
--  Ankara'da PKK/KCK operasyonu
--  İran ve Çin menşeli ürünlere soruşturması açıldı
--  PSX downward trend continues as stocks plummet by 1300 points in intraday trade
--  أشهر لغز طبي في العالم.. رجل ينجو من الموت بعد اختراق قصيب حديدي لرأسه
--  Dalian iron ore rises on China stimulus hope, demand outlook
--  Nach Vertrags-Tauziehen: So blickt Florian Silbereisen auf 2024
--  Налоговые вычеты увеличат в 2024 году
--  인테리어 B2B 플랫폼 ‘나야’, 투자 유치
--  대리 운전자 사고 횟수따라 할인·할증…보험 가입 문 넓어진다
--  ¡Da su regalo de Navidad! Venados le pega al líder Charros con épica remontada
--  Krieg gegen die Ukraine: So ist die Lage
--  On This Day in 2006 – Shane Warne makes Test bowling history with 700th wicket
--  Mitsubishi UFJ Morgan Stanley se enfrenta a una demanda de 12,2 millones de dólares por los pagarés AT1
--  Southwest estabiliza sus operaciones tras el caos de vuelos provocado por la niebla en Midway
--  Kerstshow: hoeveel weet jij van The Streamers?
--  Πόνος στο πόδι: Τι σημαίνει όταν ένας δυνατός πόνος «έρχεται και φεύγει»
--  Op tweede kerstdag staat er taart op het graf van Michelle, Rinold en hun dochtertje Rinaigela
--  Donna McLean: First Christmas without my kids taught me embracing change is the way forward
--  Duncan Shearer: Dundee should have requested an early pitch inspection if there was any doubt over Aberdeen game
--  ​VIDEO Ucraina anunță că a lovit nava de asalt amfibiu Novocherkask, staționată în portul Feodosia din Crimeea. Imagini cu momentul exploziei
--  Singapore’s National Environment Agency, two employees charged over 2021 Tuas incineration plant explosion, which killed two agency officers
--  A Web Server, The Sixteen Bit Way
--  Scott Begbie: Captivating Fireballs show sense of community burns bright in Stonehaven
--  Solarautos: Der geplatzte Traum und wer ihn am Leben hält
--  Nebyť britských daní, USA sú možno stále súčasťou Spojeného kráľovstva
--  HAYDİ TUT ELİMİ hikayesiyle büyükten küçüğe herkesin kalbine dokunacak
--  Army Chief Orders Offensive Against Valley Terrorists Following Targeted Attack
--  Création d'entreprise : un barrage contre la crise
--  위험천만한 아파트 주민…고층에서 창밖으로 다리미 내던져
--  Karjala itsenäiseksi? Venäjällä ajetaan erikoista hanketta, joka heijastuu myös sotaan Ukrainassa
--  David Knight: Driving on the A9 shouldn’t carry as much risk as travelling abroad
--  Od stycznia ponad 30 nowych miast w Polsce. Sprawdzamy na mapie, gdzie się pojawią
--  Esat Oktay Yıldıran Kimdir? Kim Tarafından Öldürüldü?
--  Секретният обект 17 в Лесидрен обвит в мистика и тайни
--  Aumentan los casos de gripe en las semanas previas y durante la Navidad
--  ハンバーガー具材落としゲーム『フライドポテトプッシャーフレンズ』発表。最大4人でなぜかハンバーガー用食材を押して提供
--  RECENSION: Åsa Wikforss färdiga svar – vad sägs om lite ödmjukhet?
+-  "الشورى" يعتزم إلغاء عقوبة الجلد تعزيرًا في قضايا المخدرات
+-  عاجل.. بشرى من "الإسكان" للمواطنين خلال العام الجديد
+-  제2의 드록바는 무슨… 공격수인데 이번 시즌 PL 득점보다 옐로카드가 더 많다
+-  ‘ปานปรีย์’ ประเมินหาก ‘วิกฤต’ ทะเลแดงรุนแรงขึ้น ส่งผลกระทบการค้าไทย
+-  Even if Modi is to contest against me, I will win: Shashi Tharoor
+-  Lotto-Gewinner spendiert Luxus-Urlaub für seine Familie – unfassbar, wie dreist sie reagiert
+-  Γερμανία: Ο πρώην αντικαγκελάριος Ζίγκμαρ Γκάμπριελ θεωρεί ότι η ενσωμάτωση μεταναστών αποτυγχάνει
+-  순천향대 부천병원, ‘감염관리 아카데미 수료식’ 개최
+-  충남도, 민선 8기 2년 차 조직 개편…효율성↑
+-  금산소방서, 주방화재 'K급 소화기'로 진화
+-  충남도, 하반기 적극행정 우수공무원 선발
+-  충남도, ‘백제 구름문 조명등’ 충남 대표 문화상품 선정
+-  '제9회 변산 해넘이 축제' 31일 부안 변산해수욕장 개최
+-  익산서, ‘으뜸 익산경찰’ 인증패 수여식 개최
+-  익산시, 친환경 자원순환정책 2년 연속 ‘우수’
+-  리스베트라나 인천성모병원 국제진료팀 코디네이터, 인천시장 표창
+-  올해 익산시장애인체육회 체육상 시상식... 개인 59명, 단체 1팀 수상
+-  옹진군, 백색고구마 식미평가 개최… "당도 높고 맛 우수"
+-  양산시, ‘웅상 회야강 르네상스’ 회야강 산책로 조성 속도
+-  서구시설관리공단, ‘2023 지속가능경영보고서’ 발간
+-  원광대병원, 타국에 펼친 인술의 손길
+-  인천유나이티드 시즌 다큐 '비상 2023', 30일 쿠팡플레이서 공개
+-  구리소방서, 구급대원 하트세이버 인증서 수여
+-  익산시, 제3일반산업단지 행복주택 200세대 공급
+-  박정하 남동구의원, 지방의원 매니페스토 약속대상 수상
+-  플레이오토-콜로세움, 주문관리시템 연동 사업협력
+-  금천구의회, ‘서울시 금천구 문화안전망 구축 조례안’ 제정... 전국 최초
+-  케스피온, EV 전장케이블사업 도약 시동
+-  우리금융, 2023 MSCI ESG 평가 최상위 등급 'AAA' 획득
+-  광주시, 종합폐기물처리시설 설치 사업 추진 속도
+-  유진그룹 온라인 나눔 바자회 '착한경매', 작년보다 기부금 늘었다
+-  KT, 8개 국어 통신 상담 기본…'외국인 센터' 오픈
+-  고물가에 대학등록금까지… 서민 '등골 휜다'
+-  bhc치킨, 일방적 가맹계약 해지로 과징금 3억5000만원
+-  CU, 스테디셀러인 땅콩카라멜 캔디와 콜라보한 막걸리 출시
+-  오비맥주 "올해도 카스 1위…'국민맥주' 입지 굳혔다"
+-  ‘미리 사야 이득’…백화점 빅4, 설 선물 사전예약
+-  [속보] 한동훈 "다수당 폭주…운동권 특권 정치 청산해야"
+-  [속보] 한동훈 "지역구에도 비례대표로도 출마 안해"
+-  Газета «Нейтральный Туркменистан» подвела итоги творческого конкурса среди молодежи
+-  `Belated Wisdom`: Saamana Taunts Centre Over Suspension Of Wrestling Federation
+-  Kazakhstan's year-start railway transport growth at glance
+-  Η Ουκρανία λέει πως κατέστρεψε αποβατικό σκάφος της Ρωσίας στην Κριμαία
+-  Premier League: Manchester United vs Aston Villa - Echilibru pe Old Trafford
+-  Rats Create Havoc In Hospital: निष्काळजीपणा! सरकारी रुग्णालयात उंदराचा कहर, उत्तर प्रदेशातील चिंताजनक व्हिडिओ व्हायरल
+-  Arheolozi došli do zastrašujućeg otkrića: Pronašli dokaze o ponavljajućim događajima koji uništavaju čitave civilizacije
+-  경기도, 역대 최대 국비 18조5638억원 확보…전년比 7528억원 증가
+-  아파트 화재에 어린 딸 안고 뛰어내린 父…1차 소견 ‘추락사’
+-  세금 깎인 만큼만…소주 출고가 ‘선제적 인하’, ‘소비자 체감’될까
+-  내년 대학등록금 5.64%까지 인상 가능…상한제 도입 이후 최대
