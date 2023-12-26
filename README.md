@@ -1,51 +1,11 @@
 # Latest News
--  NBA: Basketballstar Luka Dončić von den Dallas Mavericks erzielt 50 Punkte und knackt die 10.000-Punkte-Marke
--  RTL-Bauer hat sich nach 15 Jahren massiv verändert
--  2024 йилнинг давлат бюджети тасдиқланди.
--  Нетаняҳу: Исроил ХАМАСга қарши ҳужумларини кучайтиради.
--  Ўзбекистон 6 та соҳада Ҳиндистон технологиялари ва сармояларини жалб қилмоқчи .
--  Сурхондарёда «права»си йўқ ҳайдовчи Damas’га 13 кишини миндириб ҳаракатланди.
--  Украина ҳарбий хизматга чақирув максимал ёшини пасайтирмоқчи.
--  Papa Francisco pide al hijo de Dios que inspire a los políticos
--  Mario Murgia recupera la voz de John Milton en español
--  Nochebuena dejó más devastación en Gaza
--  Parque de diversiones con arte del siglo XX en Los Ángeles, California
--  Ataques en Nigeria dejan al menos 160 fallecidos
--  Vatreni nakon osam godina mijenja klub i seli u susjedstvo? 'Može biti starter u bilo kojem klubu u Italiji'
--  Electronic Component Distributor Utmel Invited to Participate in 2024 NEPCON JAPAN
--  Exploring Yunnan's Outdoor Wonders: Unveiling the #YunnanOutdoorChallenge
--  İBB, şehitler için mevlit okuttu
--  Mehmet Sevigen'den CHP'ye tepki: Bir İstanbul için değer mi?
--  Alp Navruz'dan Sıla Türkoğlu açıklaması! Araya kara kedi girmedi
--  Gaziantep'te dolandırıcılık operasyonu
--  Süper Kupa, 5. kez Türkiye dışında oynanacak
--  18 firari hükümlü yakalandı
--  Hochwasser an Weihnachten: Rheinpegel in Köln steigt über acht Meter – Welle kurz vor dem Scheitelpunkt
--  Galatasaray'ın ara transfer planı belli oldu
--  Galatasaray'da ayrılık için sadece resmi açıklama kaldı, yıldız isim paylaştığı fotoğrafla adeta veda etti!
--  Emre Belözoğlu maçın ardından oyuncularını eleştirdi! "Bu kadar öz güvensiz..."
--  غونسالو إيناسيو مستمر على رادار ليفربول
--  ΚΑΕ ΑΕΚ: «Ο Καμπενγκέλε έθεσε εαυτόν εκτός ομάδας»!
--  Elf Jahre lang glaubten die Ärzte nicht, dass meine Schmerzen echt seien
--  Rimborso dell’affitto o del mutuo con questo nuovo Bonus 2024 per i lavoratori
--  Rodzice proszą o poszerzenie ulicy do ośrodka. Potrzebny państwowy grunt
--  Indiens Marine stationiert nach Tankerangriff Kriegsschiffe im Arabischen Meer | Nachrichten zum israelisch-palästinensischen Konflikt
--  PACS Can Revolutionise Cooperative Movement in India: IFFCO Chairman
--  Weihnachten im Wald: Auch die Tiere und Pflanzen entschleunigen zwischen den Jahren
--  Tottenham lining up £25m transfer swoop for Belgian wonderkid Arthur Vermeeren and believe they have edge over Arsenal
--  Interim chief of ruling party vows to launch major offensive against opposition
--  Como Gero Fasano construiu uma marca mundial sem perder atenção aos detalhes
--  انخفاض الدولار وارتفاع اليورو.. اسعار العملات الدولية مقابل الدينار في السوق الرسمية (الثلاثاء 26 ديسمبر 2023)
--  Lagerhalle für Maschinen brennt: Giftige Rauchwolke
--  다이소, 겨울철을 쾌적하게! ‘정전기 방지용품 기획전’진행
--  산업부, '지역경제정책 순회 소통마당' 충남서 네 번째 개최
--  '기울어진 운동장' 폐기물 환경산업 갈등…최대 이슈 부상
--  أفضل ظهير أيسر لعام 2023
--  Pakistan drop a catch, but not their bundle
--  Pakistan drop a catch, but not their bundle
--  Snimali svatove pa doživjeli frontalni sudar, poginuli su bračni par i snimatelj; Auti nakon eksplozije poletjeli u zrak
--  رئيس هيئة الأركان العامة السابق في الجيش الإسرائيلي دان حالوتس: إسرائيل خسرت الحرب ضد حماس وصورة النصر الوحيدة التي ستتحقق هي إسقاط نتنياهو
--  फ्यूचर का गैजेट है शाओमी का ये स्मार्ट पेन, आता है हाईटेक फीचर्स के साथ
--  Bengaluru: Police bust robbery gang in Whitefield, Rs 6.5 lakh worth of jewellery recovered
--  Türkiye’nin gönderdiği zırhlı araçlar terör örgütünün eline geçti. Büyük iddia
--  Kamyonun çarptığı moto kurye hayatını kaybetti
+-  Pijana nastolatka szarżowała po Lublinie. Nie miała prawa jazdy
+-  ‘Sold her soul’: SA on Nomzamo Mbatha with Oprah on Christmas
+-  Defense chief calls for vengeance in event of NK provocation
+-  Police hunting down mastermind behind defacing of Seoul palace walls
+-  Manchester United announces deal to sell up to 25% of EPL club to UK billionaire Jim Ratcliffe
+-  Korea, Poland in talks on arms deals amid worries about possible cancellation: Seoul official
+-  Čitluk: Muškarac poginuo prilikom slijetanja u Neretvu
+-  276 Indians return home after detention in France over human trafficking allegations
+-  Noël pour tous à Rambouillet : 280 personnes ensemble, bénévoles et bénéficiaires
+-  PHC hears PTI plea challenging ‘unlawful’ ECP verdict on intra-party polls, electoral symbol
