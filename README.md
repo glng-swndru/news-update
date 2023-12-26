@@ -1,51 +1,11 @@
 # Latest News
--  В Дагестан завезли новую партию вакцин от кори, паротита и краснухи
--  МВД РФ объявило в розыск командующего ВВС Украины Олещука
--  Kék sárkány élhetett az óceán mélyén - 72 millió éves maradványokat fedeztek fel Japán közelében
--  17 Servers Who Definitely Deserve An Apology In 2023 (And A Raise In 2024)
--  Usred New Yorka nalazi se misteriozan otok: Do njega se dolazi podvodnim tunelom, poprilično je jeziv
--  Туапсинские спасатели помогли женщине, чей автомобиль начало смывать в реку
--  Глава Кургана Елена Ситникова задержана силовиками: рабочие фото разных лет
--  Сборная Сочи победила на Спартакиаде трудящихся Кубани
--  Naxçıvanda bu agentlik ləğv edildi
--  'Basics missing': Lack of roof at Bengaluru Airport's parking lot draws criticism
--  اليابان تعتزم فرض عقوبات على 3 من قيادات حماس
--  Schriftsteller Uwe Timm: „Unsere Demokratie ist jetzt wieder so gefährdet“
--  Odala ga odbačena krvava majica, sutkinji zavapio: ‘Dajte malo kasnije to suđenje, tko će dizati?!‘
--  Jakie polityczne mity zostały obalone w 2023 roku?
--  A 119-year-old bank sat abandoned in a tiny Texas town for decades. Now it's a 3-bedroom home with the original vaults and a teller station — take a look.
--  Hasina asks Awami League activists to guard railway tracks amid acts of sabotage
--  Svetový slovenský metal: Kapela Signum Regis s novinkou Undivided boduje v zahraničí
--  Päť najtalentovanejších husliarov: Ťažil Stradivari z klimatickej zmeny?
--  Miro Jaroš Vianoce u mamy NETRÁVIL: Nedovoľuje to jej choroba!
--  WWE News: Raw Day 1 Preview, Best of 2023 Raw Video Highlights
--  Ezt ne felejtsétek el: idén is kell Ügyfélkapu az egyetemi jelentkezéshez
--  Само за ден: Хванаха 50 пияни и дрогирани зад волана
--  ¿Conflicto de interés de la Universidad Nacional?
--  Sir Jim Ratcliffe asks Man Utd fan group for 'time and patience' in open letter
--  Vatrenom dvojcu stiže zloglasni ‘Demon‘? Tinejdžer zaludio velikane, City sprema izdašnu ponudu
--  Yeniden Refah Partisi'nden ittifak açıklaması
--  Bakan Işıkhan'dan asgari ücret açıklaması!
--  Päätalon Iijoki-sarjaa on kuunneltu yli miljoona tuntia äänikirjoina
--  SBI Clerk भर्ती परीक्षा का एडमिट कार्ड जारी, यहां करें डाउनलोड, जानें कब होगी परीक्षा
--  سوق ديناميكي نشط.. مؤشرات تنافسية لقطاع التأمين في الإمارات
--  ‘Iran nastavlja obogaćivati uranij, sad su sasvim blizu razini potrebnoj za razvoj nuklearnih bombi‘
--  Hafiz Saeed: पाकिस्तान के चुनाव में उतरी ग्लोबल टेररिस्ट हाफिज सईद की पार्टी, बेटा भी आजमाएगा किस्मत
--  PSG löi muut jättiseurat - hankkii superlupauksen
--  Izrael: Hezbolah ispalio raketu koja je pogodila grčku crkvu FOTO
--  На Рождество Христово: Отец Васил с молитва към Господа да опази децата ни от наркотиците и алкохола
--  I’m a skincare pro, don’t chuck your Christmas dinner leftovers, that turkey carcass is the secret to glowing skin
--  الأمن يستعين بالذكاء الصناعي للتعرف على المجرمين ويعمم نظام GPS لتحديد الدوريات
--  "Bu sezon takım çalıştıracağım" Rıza Çalımbay'dan devam kararı!
--  Etiyopya temerrüde düştü
--  İngilizlerden Cumhurbaşkanı Erdoğan itirafı: Batı'ya yönelttiği eleştirilerinde haklı
--  Gallant, 7 cepheden saldırı altında olduklarını iddia etti
--  Cybersecurity Emerged as a Dominant Threat for Indian Firms in 2023: Report
--  Даштевски за „Република“: Нема шанси партијата на Курти да учествува на изборите во Македонија
--  "رويترز": شرطة نيودلهي تقول إنها تلقت مكالمة هاتفية بشأن انفجار قرب السفارة الإسرائيلية والتحقيق جار
--  Десподов с първи приз за играч на мача в Гърция
--  Минин о «Слове пацана»: «Хороший сериал, играют здорово, но мрак, безысходность. Теперь нужно выбросить из головы «Пыялу» и «Седую ночь»
--  MİT'ten PKK'ya büyük darbe! 50'ye yakın hedef imha edildi
--  Video: vecinos de Río Ceballos denuncian invasión de moscas y piden que actúe Policía Ambiental
--  Michael Schumacher’s brother gives heartbreaking update on F1 legend saying ‘nothing’s like it used to be’
--  Michael Schumacher’s brother gives heartbreaking update on F1 legend saying ‘nothing’s like it used to be’
+-  Ganan licitación con documentos falsos
+-  Matan a matrimonio de maestros en Taxco
+-  Fuga de agua en la Nombre de Dios tiene 4 días
+-  Murió el senador Armando Guadiana
+-  Cerebros azulcremas, los técnicos campeones del América
+-  Inicia operaciones nueva Mexicana de Aviación
+-  Esperan migrantes en EU para entregarse a la migra
+-  BREAKING: Delhi Police Gets Call About Bomb Blast Near Israel Embassy, Search Underway
+-  Муфтий России выразил недовольство работой властей Таджикистана с мигрантами в РФ
+-  В Узбекистане участковый милиционер осужден за изнасилование 13-летней девочки
