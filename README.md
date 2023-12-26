@@ -1,51 +1,51 @@
 # Latest News
--  Pogoda nie zniechęciła lublinian do świątecznego spaceru
--  Operação na Maré tenta prender envolvidos em tiroteio
--  Blast near Israeli embassy in New Delhi, all staff unharmed
--  Onde fica Perus, região na periferia de São Paulo onde Luísa Sonza deu rolê no Natal?
--  Fortfarande oklart varför taxi kraschade från bro i Vallgård
--  Papua Police to Provide Maximum Security for the Arrival of Lukas Enembe's Body
--  В феврале в Махачкале даст концерты "Лезгинка"
--  Kako je Vučić “ujedinuo” SAD i Rusiju: Daj svakome ono što najviše želi
--  Här är de största fynden på mellandagsrean: “Reaprocenten är högre"
--  Tini y De Paul habrían estado juntos en navidad
--  If India doesn’t initiate talks with Pakistan, Kashmir will become Gaza: Farooq Abdullah
--  Дома на трех улицах Костромы на сутки останутся без отопления и горячей воды
--  Huraideu Chicken nasıl yapılır? Huraideu Chicken tarifi için malzemeler neler?
--  Pro Consumidor anuncia operativos contra productos de la marca Quaker
--  STAT+: With Biden finalizing an Apple Watch ban, Apple needs to decide its future in health
--  Libur Natal dan Tahun Baru, Bandara Ini Siapkan Llama untuk Terapi Menenangkan Penumpang
--  وفيات الثلاثاء 26 ديسمبر 2023
--  До +3 потеплеет в Псковской области 27 декабря
--  Más de 2.000 personas están en riesgo de exclusión residencial extrema en Tenerife
--  Six O’Clock Solution: Lobster-roll seafood snack can be served hot or cold
--  Katedrála v Kolíne zostane pre turistov zatvorená: Dôvodom sú teroristické hrozby
--  Marcia Fu canta 'Escrito nas Estrelas' em show de Lauana Prado
--  السنغال تصادر 690 كلغ من الكوكايين قبل نقلها إلى أوروبا
--  Обещание уделять приоритетное внимание интересам криптопользователей, начиная с продуктов и заканчивая услугами
--  "Très courageux": Gérard Depardieu salue les personnalités signataires de la tribune de soutien
--  Apple files appeal after Biden administration allows US trade tribunal’s ban on Apple Watch imports
--  Samsung’s Android 14 update breaks wireless Android Auto for some
--  Resolusi 2024 Zaskia Adya Mecca: Palestina Bisa Free
--  Het-trik Vuda za tri boda Notingema u Njukaslu
--  Фармацевтичната Bristol купува втори конкурент за по-малко от седмица
--  Consecomercio destaca un crecimiento económico moderado en 2023
--  Pojačana kontrola putnika, evo koliko novca smijete prenijeti preko granice
--  В Сочи поймали незаконных владельцев «елочных базаров»
--  ভুয়া ই–মেইল পাঠিয়ে ইনস্টাগ্রাম অ্যাকাউন্টের নিয়ন্ত্রণ নিচ্ছে হ্যাকাররা
--  فوز نجوم حناذ بافتتاحية بطولة الشهيد جميل العبدللي بأحور
--  Atomic watchdog report: Iran increasing production of highly enriched uranium
--  Global mobile game downloads hit 4.02 billion in November
--  Storm Gerrit: Northern Ireland yellow weather warning for wind and rain issued
--  Wood blomstrer i Forest-sejr i Newcastles skrækjul
--  Wood blomstrer i Forest-sejr i Newcastles skrækjul
--  मराठा आरक्षण के लिए अंतर्राष्ट्रीय जिजाऊ ब्रिगेड महिला कार्यकारी सदस्योंका समर्थन
--  La chimenea más vista de Netflix
--  „Eu sunt noul vostru Moș Gerilă”, care spune Oh-oh-oh / Postarea prin care Navalnîi anunță că a ajuns la o colonie situată deasupra Cercului Arctic
--  राम मंदिर को लेकर धर्मसंकट में विपक्ष, जाएं तो मुश्किल और न जाएं तो भी…INDIA गठबंधन के सामने क्या विकल्प
--  المستشفى الميداني الاردني بنابلس يشكل ملاذا صحيا وعلاجيا لآلاف الفلسطينيين
--  Axel Kicillof presentó un proyecto de Ley para que la provincia produzca y venda medicamentos
--  YAP 50 min imzanı MSK-ya təqdim etdi
--  Nahost: Netanjahu stellt drei Bedingungen für Ende des Gaza-Kriegs
--  O ilimizde 6 gün boyunca yasaklandı! Valilik duyurdu: 1 Ocak tarihine kadar...
--  Nahost: Netanjahu stellt drei Bedingungen für Ende des Gaza-Kriegs
+-  Bomb Threat to RBI: దేశ చరిత్రలోనే అతి పెద్ద స్కామ్ జరిగింది, ఆర్బీఐని బాంబులతో పేల్చేస్తామంటూ బెదిరింపు మెయిల్, అలర్ట్ అయిన ముంబై పోలీసులు
+-  Prince Harry and Meghan Markle's 'powerful clues' in 'staged' royal Christmas
+-  Nestorović: I vlast i opozicija rade protiv interesa države – samo na različite načine
+-  Footballer asks 'what the f*** are we doing here' training at Xmas as video sparks fury
+-  Enorme Explosion erschüttert Krim: „Unterwasserflotte vergrößert“ – Ukraine versenkt offenbar russisches Kriegsschiff
+-  Unos 200 menores disfrutarán cuatro días de convivencia en los Campamentos de Navidad de Cerro Muriano
+-  Herida grave una mujer en un accidente de tráfico cerca de Santa Marta de los Barros
+-  I’m an ‘ecosexual’ — I’ve fallen in love with an oak tree
+-  देश की खबरें | पिछली सरकारों ने नहीं दिया कारीगर समाज की तरफ ध्यान : केंद्रीय मंत्री
+-  Zaharova: Zapad ucenio Srbiju da, šta god radila, ne sme da sarađuje sa Rusijom
+-  Šabac protiv nasilja: U zatvoru će biti nekoliko hiljada ljudi
+-  Binance Unveils Launchpool Project Sleepless AI for BNB, FDUSD and TUSD Staking
+-  Eskişehir'deki o merkez 5'inci yılını kutladı
+-  Взрив избухна край израелското посолство в Делхи
+-  Τρελό σενάριο στην Ελλάδα και αναφορά για τον Ουαγκέ και τον ΠΑΟΚ
+-  Encuentran tres cuerpos calcinados dentro de un vehículo en el occidente de Honduras
+-  Newcastle ei halunnut uusiseelantilaishyökkääjää – kosti tapaninpäivänä hattutempulla
+-  Busca el sustento con la venta de pays
+-  HS-presidentinvaaligallup: Stubb niukassa johdossa ennen Haavistoa
+-  Koprivica: Novoviću priznanje za borbu protiv korupcije i kriminala
+-  Sancionan a 62 conductores por manejar bajo los efectos del alcohol
+-  Mató a su esposa y a sus cuatro hijos
+-  देश की खबरें | विनेश फोगाट ने खेल रत्न और अर्जुन पुरस्कार लौटाया
+-  Polise devredilen lüks araçlar Kadıköy'de sergileniyor
+-  IT Ministry Advisory On Deepfakes: ডিপ ভিডিও নিয়ে নয়া কড়া নির্দেশিকা কেন্দ্রের
+-  Wedding photographer on top 8 venues in Dundee, Angus, Perthshire and Fife for stunning pictures
+-  Shannen Doherty shares health update: 'So thankful'
+-  NAOYA INOUE STOPS MARLON TAPALES IN 10TH ROUND TO BECOME UNDISPUTED JR. FEATHERWEIGHT CHAMPION
+-  AK Parti 6 büyükşehir için temayül yoklaması yapacak
+-  Traktör lise öğrencisinin üzerinden geçti
+-  Kanye: Entschuldige mich aufrichtig bei jüdischer Community
+-  Aksaray'da 5 düzensiz göçmen yakalandı
+-  تفاصيل مصرع الخليجيين الكويتي والسعودي في الأنبار: عبوة قديمة انفجرت عليهم
+-  Sete meses depois, investigação sobre morte de empresário paulista dentro da própria pousada em São Miguel do Gostoso segue aberta
+-  आ गई दिल्ली में टीचर की वैकेंसी, PGT के लिए नोटिफिकेशन जारी, फ्री में करें अप्लाई
+-  La selección femenina de fútbol se jugará el billete a París en el Nuevo Mirandilla de Cádiz
+-  La selección femenina de fútbol se jugará el billete a París en el Nuevo Mirandilla de Cádiz
+-  Israeli psychologists slam Health Ministry plan to 'ease' mental health crisis
+-  Incêndio deflagrou nos anexos de uma casa em Ílhavo
+-  Yahya Sinwar: याह्या सिनवार की खुली चुनौती..Israel पर जल्द होगा बड़ा हमला !
+-  FedEx aumenta el rendimiento para sus accionistas con un acuerdo de ASR de 1.000 millones de dólares
+-  Los bancos mundiales recortan empleos al disminuir las comisiones de la banca de inversión
+-  Zwei Sturmtote in Australien
+-  'Álbum branco' de João Gilberto guia Cacá Machado e Laura Lavieri no show 'Melhor do que o silêncio'
+-  Izraelski vojnik umro od zaraze opasnim gljivicama u Gazi, nije ga spasila ni dvotjedna bolnička njega
+-  Minister Ponguleti: పేదవాడి గుమ్మం ముందుకు ఇందిరమ్మ రాజ్యం తీసుకొస్తాం
+-  Tottenham virittelee jättikauppaa - toivoton tehtävä?
+-  Biden admin declines to veto ban on certain Apple Watch imports
+-  روسيا تحطم الرقم القياسي في صادرات الحبوب
+-  Creski proračun ipak usvojen, izbjegnuti novi izbori
