@@ -1,11 +1,51 @@
 # Latest News
--  13. Zuliefererkonferenz und Vorstellung der Strategie für 2024 bei Gotion High-tech
--  SBI Scheme : SBI ची भन्नाट योजना! 400 दिवसांच्या गुंतवणुकीवर भरघोस व्याज, 31 डिसेंबरपूर्वी करा 'हे' काम
--  SK온, 배터리 생산장비 지능화 추진…6자 양해각서 체결
--  एक, दोन नाही तर तब्बल 18 प्रकारचे डान्स करणारा घोडा, सारंगखेडातील 'सूर्या' ठरलाय यंदा आकर्षणाचा केंद्रबिंदू
--  중국이 거부한 日 가리비, 한국으로?…“375억원어치 수출 계획”
--  ‘스프레이 훼손’ 경복궁 담벼락 복구작업 해 넘긴다…내년 1월 공개
--  ¿Cuál es el mensaje del «Moyo» Contreras que sería una despedida en Comunicaciones?
--  120公斤蟒蛇躲雞籠被捉
--  Ζεράρ Ντεπαρντιέ: Ο «αυτοκαταστροφικός και αχόρταγος» 75χρονος ηθοποιός - Η ζωή και οι ρόλοι του
--  Comment le synthétiseur Moog a étendu le domaine de la musique
+-  Dólar hoy y dólar blue hoy, EN VIVO: cuál es la cotización del martes 26 de diciembre minuto a minuto
+-  “메시는 역대 최고의 리더”... GOAT를 향한 아르헨티나 감독의 숭배
+-  Best Lithium Stocks 2024: 7 to Add to Your Must-Buy List
+-  尹대통령 “저출산, 다른 차원 고민 필요…‘과도한 경쟁’ 원인이면 고쳐야”
+-  검찰, ‘부산저축銀 의혹’ 보도 정조준…‘尹 명예훼손’ 수사 확대
+-  실패로 돌아간 '형제의 난'…MBK, 한국앤컴퍼니 공개매수 무산
+-  Bischof: Aufarbeitung von Missbrauch wird noch Jahre dauern
+-  مدير عام الشؤون الاجتماعية والعمل بأبين يلتقي وفد مؤسسة شباب أبين
+-  Philadelphia Eagles' Jalen Hurts breaks Cam Newton's record for single-season quarterback rushing touchdowns during Christmas day win over the New York Giants
+-  S. Korea calls NK followers 'internal threat' in military educational material
+-  Ex-BOJ board member criticizes governor Ueda's market messaging
+-  Yoon calls for approaching low birthrate issue from different perspective
+-  Egyptian Super Cup semi-final settled after 34 penalty kicks
+-  State-run oil firm to explore undersea storage sites for CO2
+-  التموين تحذر من شراء الذهب: السعر الحالي غير واقعي ومبالغ به
+-  名牌包真假難辨，人工智慧技術成鑑定利器
+-  股債延續溫熱行情！凱基投信：2024 年倒吃甘蔗
+-  Azerbaijani Ministry of Finance opens tender to attract tech support
+-  Mercato - PSG : Un transfert en janvier ? Mbappé a tranché
+-  ラーメンWalkerキッチン×IoTの激闘を披露 知見・しくじりまで生々しく
+-  「變色龍」木馬捲土重來，中斷 Android 指紋、臉部解鎖竊取 PIN 碼
+-  Adulto mayor pierde la vida ahogado en la laguna Alegría, Usulután
+-  US retaliates in Iraq after three US troops wounded
+-  US retaliates in Iraq after three US troops wounded
+-  7 Nano-Cap Stocks That Pack a Serious Punch for Their Weight
+-  میلبرن ٹیسٹ : پاکستان کی اچھی باؤلنگ، ناقص فیلڈنگ، آسٹریلیا کی بیٹنگ جاری
+-  Jauja: Unidad impacta a comerciante que empujaba motocar en medio de la oscuridad
+-  The story behind Jackson Browne's favourite Jackson Browne album cover
+-  مصدر يكشف لـCNN عن زيارة لمسؤول إسرائيلي إلى أمريكا متعلقة بغزة
+-  Israeli strikes kill 100 in one of war's deadliest nights, Gaza officials say
+-  TV Actor Kamar de Los Reyes of ‘One Life to Live’ and ‘Call of Duty’ Dies at 56
+-  Tre amerikanske soldater såret i Hizbollah-angreb
+-  പൃഥ്വിരാജ് നായകനായ ‘എസ്ര’ക്ക് ശേഷം ജയ് കെ.സംവിധാനം ചെയ്യുന്ന ഗ ർ ർ ർ: All RiseThe king is here
+-  4 Crucial Confrontations That Happened In Episode 11 Of “A Good Day To Be A Dog”
+-  Nets need to get Mikal Bridges on the same page as Cam Thomas
+-  Tim SAR Kabupaten Semarang Lanjutkan Pencarian Pemancing Hanyut di Sungai
+-  Harga Emas Antam Hari Ini Stagnan Segini
+-  Mideast Stocks: Most Gulf markets gain as US inflation moderates
+-  Como un rajáu
+-  La rula de Avilés cierra su peor año de la década por la sucesión de malas costeras
+-  La posibilidad que facilitará la FP asturiana en su nueva modalidad
+-  Asturias es una de las pocas regiones sin tramitación exprés para captar grandes inversiones
+-  Aspace se asegura fondos europeos para impulsar su nuevo pabellón en Latores
+-  Emulsa urge la implicación de Cogersa para financiar los cuatro puntos limpios de Gijón
+-  Gallos se despiden con triunfo de la Liga Élite del Béisbol Cubano
+-  All schemes of previous govt will continue: Rajasthan CM Sharma
+-  Opaganib by RedHill Biopharma for Bile Duct Cancer (Cholangiocarcinoma): Likelihood of Approval
+-  Epileptic 17-year-old seizure-free after pioneering surgery that removed part of his brain: ‘An amazing relief’
+-  WHO hyvin huolissaan Gazan sairaaloiden kuormituksesta
+-  WHO hyvin huolissaan Gazan sairaaloiden kuormituksesta
