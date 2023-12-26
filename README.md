@@ -1,51 +1,11 @@
 # Latest News
--  Po dlhých mesiacoch víťazstvo: Turecký výbor schválil vstup Švédska do NATO! Konečné rozhodnutie ešte padne
--  Müllerovej prekvapivé PRIZNANIE: Vianoce jej nedajú spávať!
--  Česká polícia je v pozore: Po masakri v Prahe rieši ďalšie vyhrážky! Teraz je rad na mne, napísal anonym
--  India, Russia ink pacts on construction of future power generating units of Kudankulam nuclear plant: Jaishankar
--  İzmir Şehir Hastanesi 2 ayda 250 bin hastaya şifa oldu
--  Sınır Tanımayan Doktorlar: Gazze'de yaşanan dehşeti tarif edecek söz kalmadı
--  Fatih Terim'in yeni takımı resmen açıklandı!
--  Tatar'dan "Gazze" çıkışı: Nerede BM? Nerede Amerika? Orada çocuk, kadın demeden bu katliamlar nasıl olabiliyor?
--  PFDK'dan Fenerbahçe ve Galatasaray'a kötü haber!
--  Ozan Tufanlı Hull City evinde mağlup!
--  İsrail ordusu: Lübnan'dan atılan iki füze sonucu 9 asker ve bir sivil yaralandı
--  Cumhurbaşkanı Yardımcısı Yılmaz'dan, Bakan Güler'e taziye ziyareti
--  Bournemouth, 3 puanı 3 golle aldı!
--  5 bin lira verilmesini öngören 55. maddesi kabul edildi
--  'Que todo el pueblo tenga la experiencia de volar'
--  Ofrece Infonavit créditos para renovar o reparar viviendas
--  Pide Kanye West perdón a judíos tras comentarios antisemitas
--  Renovar a Pérez en Red Bull para 2025 depende de Checo
--  Oficializan pase de ex hangar presidencial a Sedena
--  Buscan a Kiwi, chihuahueño extraviado
--  Bizaran slučaj se nastavlja: Evo što se dogodilo tipu koji je u zatvoru zbog svjedočanstva slijepca
--  Przekroczone stany ostrzegawcze na Bugu i Krznie
--  Калининградский бизнесмен получил условный срок за избиение Павла Прилучного
--  ‘ไมค์ ภัทรเดช’ เสิร์ฟความฟิน! เอ็กซ์คลูซีฟแฟนมีต ใกล้ชิดจนแฟนคลับใจละลาย
--  Couldn’t be happier – Munster ace and wife overjoyed as they reveal they’re expecting first baby
--  قصفٌ إسرائيلي على مواقع في ريف دمشق
--  వైసీపీని సాగనంపాలి
--  В Тульской области создан новый туристический маршрут
--  NAVIJAČI U ŠOKU! PANATINAIKOS URADIO "ZABRANJENO: Smenio Srbina i doveo Turčina za trenera
--  Dunki vs Salaar worldwide collection: Find out which film passed first Monday test?
--  The story could have been different: Sunil Gavaskar names veteran batter who could have changed India’s fortunes in Centurion Test
--  Stranci koji žele hrvatsko državljanstvo moraju odgovoriti na ova pitanja. Koliko odgovora vi znate?
--  نائب إيطالي يتهم حكومة ميلوني بمساعدة تجار البشر في ليبيـا
--  Otkrivamo koliko hrane Hrvati bace nakon blagdana. Podaci će vas šokirati!
--  Pro Research: Wall Street indaga en el sólido futuro de ServiceNow
--  General de mayor rango de Ucrania critica a oficinas de reclutamiento en inusual rueda de prensa
--  Produção e vendas de setor químico recuam em outubro sobre um ano antes, diz Abiquim
--  إغلاق حركة المرور أعلى الجسر القوسي ضمن تقاطع عين غزال
--  90 ألف اعتداء على خطوط المياه الرئيسية في الأردن منذ 2014
--  Dad and daughter found frozen to death after car crash — just 50 yards from truck
--  %70 نسبة الإنجاز في مشروع إعادة تأهيل مبنى بلدية المفرق
--  ¿Nos hace realmente más felices creer en Papá Noel y los Reyes Magos ?
--  Daihatsu wstrzymało całą krajową produkcję aut
--  Новые улицы построят в Приморском и Московском районах Петербурга
--  Bu manzara Norveç'te değil Kahramanmaraş'ta! Ali Kayası Cam Teras görenleri adeta fiyortlara götürüyor
--  George Clooney's 'Boys in the Boat' gives the Hollywood treatment to rowing
--  Loose Women’s Denise Welch praised as she reunites with her Benidorm star ex for Christmas with their sons
--  Inside abandoned Mercedes ‘egg’ found hidden behind recycling plant – and it looks like a spaceship
--  Apple appeals Apple Watch ban, citing 'irreparable harm' to its business
--  La capacità predittiva dei flussi di capitale: ulteriori approfondimenti
+-  Hallan un campamento prehispánico en el sur de México donde los mayas cocinaban caracoles
+-  Комисия на турския парламент подкрепи влизането на Швеция в НАТО
+-  అంగన్‌వాడీలపై చిన్నచూపు తగదు
+-  Estas serán las tendencias de consumo para 2024 según un estudio de Euromonitor
+-  Suomen avausmaalin iskenyt Aleksanteri Kaskimäki ei masentunut Kanada-tappiosta: "Oli meillä paljon hyviäkin hetkiä siellä"
+-  రూ.20లక్షల విలువైన అల్ర్ఫాజోలం పట్టివేత
+-  סמוטריץ וגלנט מכריזים על תכנית הסיוע לחיילי המילואים
+-  Here's what to know about Turkey's decision to move forward with Sweden's bid to join NATO
+-  Gas prices spike as Floridians hit the road during peak holiday travel period
+-  Telcoin Acts Fast to Secure Platform Post-Multi-Million Hack
