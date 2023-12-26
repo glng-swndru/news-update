@@ -1,51 +1,51 @@
 # Latest News
--  Live Euromillions results for Tuesday, December 26: The winning numbers from £14m jackpot draw and Thunderball
--  Natal Abençoado do SER Família continua aberto ao público até sábado (30)
--  Deputados aprovaram regulamentação das apostas esportivas on-line
--  Зечевиќ шеф на Централниот изборен штаб на СДСМ, дополнителен заменик во МВР ќе биде Бојмацалиев
--  VIDEO Svjetla na nebu opet su začudila Hrvate: 'Nestajali su u liniji, kao ravnalom povučenoj'
--  مدة ولاية المحافظ في العراق غير محددة بقانون
--  Panathinaikos potvrdio: Ugledni turski stručnjak karijeru nastavlja u grčkom velikanu
--  Here's What Happened Today: St Stephen's Day
--  “里帰り出産への支援 着実に” 情報共有など仕組み構築へ
--  Iran ramps up production of highly enriched uranium, nearing weapons' grade levels
--  Mercato - PSG : Le transfert prioritaire de l’hiver est connu
--  Válka v Gaze potrvá ještě mnoho měsíců, zní z Izraele. Hamás zlikvidujeme, tvrdí
--  Liječnici i medicinske sestre otkrili zašto su otišli iz Hrvatske. Ovo se već pretvara u egzodus
--  Inauguraron la estatua de bronce de más de seis metros de Shakira en Barranquilla (Video)
--  Ersin Tatar: Türkiye Kıbrıs'tan vazgeçmez, vazgeçmeyecektir
--  Zalužnji demantovao Zelenskog
--  FACE A FACE. Fin du retrait de point sur les petits excès de vitesse : "Petite victoire" ou "décision populiste" ? Deux visions s'opposent
--  Liverpool na vrhu Premiershipa: Dobili Burnley, zabio je i Nunez
--  Barranquilla rinde homenaje a Shakira con inauguración de estatua
--  La oposición denuncia fraude electoral en Serbia y Rusia acusa a Occidente de alentar la protesta
--  Últimos días para visitar los patios de Córdoba en Navidad
--  Poljska državna televizija dobila dva direktora
--  El pago de dividendos alcanza los 30.000 millones en la Bolsa española en 2023, un 19% más
--  ABD, Türkiye'nin İsveç Kararından Memnun
--  Спецкор RT показал, как экипаж танка Т-90 выполняет задачи на Донецком фронте
--  Avgångar på tvärgående linjen ställs in
--  Coahuila: Amplían plazo de registro para Pensión del Bienestar para adultos de 65 y más
--  Ataque aéreo israelí deja al menos 70 muertos en campo de refugiados de Gaza: fuentes sanitarias
--  Bigg Boss 17: Did Ankita Lokhande confirm that Vicky Jain tried to slap her? [Watch Video]
--  వైసీపీలో ఉత్కంఠ
--  Запленети 7480 пиротехнички средства во Прилеп, приведено едно лице
--  Cardio or weights first? A kinesiologist explains how to optimize the order of your exercise routine
--  Arrestimi i shefit të policisë në burgun e Drenovës, gjykata jep masën. Ja për çfarë akuzohet
--  2024年のえと「たつ」のこま作り最盛期 長崎 佐世保
--  Desarticulan red que distribuía barras de chocolate, gomitas y cartuchos rellenos con marihuana
--  Guardiola says rivals want Man City to fail ‘more than ever’
--  Bebu je odnio tornado, roditelji sumnjali na najgore: Pronašli je na vrlo bizarnom mjestu
--  Meğer hata yapıyormuşuz! Hem doğalgaz faturanız düşecek hem de eviniz sımsıcak olacak
--  Summeriongelmia, ulosajo ja maali 16 pelin tauon jälkeen – Ässät kaatoi Tapparan toisen kerran tällä kaudella
--  "أموال وسفر ورجوع حق".. بسنت يوسف تكشف عن توقعات برج السرطان لـ 2024
--  Vitor Roque feliz de integrarse al Barcelona y ser su próxima estrella
--  Madre e hija protagonizan desastrosa revelación de género; usuarios reaccionan: "¿y así quiere otro?"
--  Argentina no renovará 5,000 contratos públicos y revisará un millón de planes sociales
--  «Το πρώτο πράγμα που έκανε ήταν να βάζει ζώνη» δήλωσε ο πατέρας του 18χρονου που σκοτώθηκε στα Βριλήσσια
--  Grady Judd's most memorable quotes of 2023
--  ప్రభుత్వ భూమి ఆక్రమణ
--  Lancaster Police Department issues arrest warrant in connection to mid-December shooting death
--  Tero Lehterälle löytyi töitä Ruotsista - todella haastava pesti
--  Ο Ματίας Λεσόρ έβγαλε μέρος από την προπόνηση του Παναθηναϊκού
--  Wojna o TVP. Agencja Reutera pisze w depeszy o trzech prezesach telewizji
+-  התלונות נגד השופט איתי הרמלין נדחו מהסיבה הפשוטה - הן לא היו נכונות
+-  MEF avanza con el traspaso del Cerro Ancón al Ministerio de Ambiente
+-  Hasta dompes y motos ‘brincan’ caseta Sacramento por brecha
+-  Disparition d'Émile: la mère du jeune agriculteur dont la maison a été perquisitionnée témoigne
+-  Topánokkal házalt Pataki Ági férje
+-  Миньончето, което мечтае за гадже-футболист, показа апетитно тяло и по Коледа
+-  ¿Farmacias Similares abre el 31 de diciembre? Simi anuncia esto
+-  Today’s Lely Radio Sports Page 12/26/23
+-  Old Trafford odlazi u povijest? U Unitedu se sprema golema promjena koju je zaželio čak i Ronaldo
+-  UBS presenta sus 24 mejores selecciones de valores para 2024
+-  Pro Research: Wall Street se fija en el crecimiento estratégico de Apollo
+-  Nach UEFA-Niederlage: Weber will Fußballmarkt regulieren: Nein zu Super League
+-  News24 | Here are the Daily Lotto numbers
+-  El reto de Arévalo en Guatemala es frenar el “deterioro democrático”, según diputado
+-  Опасност за наводнения и скъсани язовирни стени в Германия
+-  Accidente de tránsito en Sucre deja varios heridos
+-  JENI ALEXANDER: Slow down, take stock, show gratitude and set intentions
+-  Празничен подарък: по-евтин бензин и дизел
+-  «Man skulle ikke tro at du var bipolar.» Hvordan skulle jeg i så fall ha vært?
+-  Histoire : Tahar Zbiri, premier chef de l'armée algérienne accueilli par le Maroc
+-  Quem é o radialista que morreu no Sul de SC: “Profissional talentoso”
+-  التحقيقات مستمرة.. نقل جثماني "المواطن ورفيقه الكويتي" إلى الكويت غدًا
+-  حتى السادسة من مساء الغد.. إنذار أحمر بـ 7 متغيرات جوية على المدينة
+-  Песков назвал неформальный саммит СНГ в Петербурге удачным
+-  Americká hviezda sa pochválila novou láskou: Zbalila ZNÁMU ČEŠKU... FOTO ako dôkaz!!
+-  Comisión legislativa inicia análisis de la ley urgente de competitividad energética
+-  ليفربول يستعيد الصدارة بثنائية في بيرنلي
+-  Rewe-Kundin will neues Angebot nutzen – und traut ihren Augen nicht: „Hallo? Was ist mit dir?“
+-  „Leave The World Behind“: Netflix-Blockbuster blendet Hinweis ein – Zuschauer völlig irritiert
+-  فيديو: النصر يسجل خامس أهداف الكلاسيكو
+-  Har det ikke vært forferdelig mange vær-rekorder i år? Vi sjekket.
+-  Zim rescues Zambian patrol boat in distress
+-  غوارديولا يوجه رسالة قوية للجميع
+-  AJ Francis Announces Gig at the Cheez-It Citrus Bowl
+-  Liverpool beat Burnley to top table, Forest win at Newcastle
+-  Summer storms to continue across New South Wales
+-  صلاح لم يتمكن من المساهمة ضد الأندية الصاعدة للبريميرليج هذا الموسم
+-  الدبيبة يتنازل عن 40% من حقل نفطي ليبي لشركات أجنبية.. استثمار أم صفقة سياسية؟
+-  États-Unis: un livre emprunté dans une bibliothèque rendu avec 90 ans de retard
+-  $51m Velazquez painting vanishes ahead of auction
+-  São Tomé e Príncipe regulariza fornecimento de eletricidade após dois meses de cortes frequentes
+-  Rebelii houthi revendică două atacuri în Marea Roşie şi spre Israel
+-  Минобороны РФ: системы ПВО за сутки сбили два украинских Су-24
+-  بعد تسجيل 30 اصابة .. صحة اربد: سموم الفطر لا تزول بالطهي
+-  60 شهيدا بقصف إسرائيلي لعمارة سكنية بغزة
+-  رغم استبعادها من الفيلم .. بطلة الصرخة تواصل دعم غزة
+-  النشامى يغادر إلى لبنان بدون الروابدة وعلوان
+-  قنابل الاحتلال الغبية تدخل غزة قائمة الأكثر دمارا في التاريخ
+-  Jornalistas já angariaram mais de 10 mil euros e ajudaram 37 precários do Global Media Group
+-  Christmas Day stabbing leaves man dead in Arkansas
