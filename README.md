@@ -1,51 +1,51 @@
 # Latest News
--  MM-jääkiekossa mojova yllätys - ”Tuntuu uskomattomalta”
--  Zur Christmette im Kloster Bronnbach sind alle Bänke besetzt
--  هذا ما يحدث لجسمك عند تناول الرنجة والملوحة.. مفاجأة
--  Ndella Madior Diouf et Cie déférés au Parquet
--  В Ярославле установили светового медведя
--  The 10 Best Bollywood Films of 2023
--  ¡Vuela Mexicana de Aviación! AMLO relanza aerolínea emblemática ¿qué rutas tendrá?
--  Rendimiento de bonos EEUU baja levemente en comienzo de la última semana del año
--  Piper Sandler mantiene una calificación positiva sobre Tesla antes del anuncio de entregas del cuarto trimestre
--  Kanał TVP3 wznowił nadawanie
--  Destination X : quel est le concept de la nouvelle émission créée par M6 et quand sera-t-elle diffusée ?
--  Курянка в ходе вечеринки обворовала подругу
--  Özgür Özel: İktidarın peşinden koşturan anlayışla ortaklaşmadık
--  Bakan Şimşek: Enerjide dışa bağımlılığımızı azaltıyoruz
--  Somali Cumhurbaşkanının oğluna 6 yıla kadar hapis istendi
--  Gazze’de telekomünikasyon hizmetleri 4’üncü kez çöktü
--  İzmir'de Çin kestanesi operasyonu
--  Waar moet je op letten bij kiezen van de zorgverzekering? Experts beantwoorden lezersvragen
--  Jangan Lupa Tambahkan Resolusi di Bidang Kesehatan di Tahun Baru, Ini Alasannya
--  Otra estrella del espacio profundo nueve quiere regresar a Star Trek
--  Počet žiadateľov o azyl v Európskej únii tento rok presiahne jeden milión
--  Kráľovská rodina na vianočnej omši: Úchvatná Kate a... Pribudlo im ďalšie dieťa!
--  Najteplejšie vianočné sviatky v histórii: Kedy sa opäť ochladí? TOTO nás čaká do konca roka!
--  Sprzedaż detaliczna w sezonie świątecznym w USA niższa niż oczekiwano
--  Solo uno de los municipios canarios más poblados perdió residentes en 2023
--  Evangelina Anderson luce un minivestido rojo y se roba todas las miradas
--  ANA BRNABIĆ SE SASTALA SA POLjOPRIVREDNICIMA: Prisustvovali predstavnici više od 60 udruženja
--  Elektrikli araç alacaklar dikkat! Şarj istasyonu ararken fellik fellik gezmeyin: En çok şarj istasyonu hangi illerde belli oldu
--  Nga Shqipëria po ikin edhe veterinerët
--  Künstler beklagen „Lynchjustiz“ an Depardieu
--  Жителям Ленобласти рассказали, почему стоит начать новую жизнь с 1 января
--  ProGlas calls protest for December 30, demands annulment of elections
--  Muttaqi discusses bilateral ties with his Iranian counterpart
--  Here’s What to Buy With Your Walmart Gift Card: Shop Best-Sellers in Beauty, Tech, Apparel and More
--  Ronit Roy ने शादी की 20वीं सालगिरह पर पत्नी नीलम के साथ दोबारा रचाई शादी | Photos
--  מכה לצי של פוטין: אוקראינה השמידה ספינת מלחמה בקרים
--  El ejercicio que puedes hacer en casa y te ayudará a marcar tu figura
--  Ne ignorišite ih: Ovi simptomi se mogu javiti godinama pre dijagnoze multiple skleroze
--  BRNABIĆ SE SASTALA SA POLJOPRIVREDNICIMA Predstavljan budžet za subvencije za narednu godinu
--  TS NEWS: సన్ బర్న్ హైదరాబాద్ ఈవెంట్‌లో మరో ట్విస్ట్
--  Evlat nöbeti aileleri PKK'ya karşı isyan etti
--  Ruotsin hiihtotähtien osallistuminen Tourille on koronan käsissä – Ebba ja Calle saaneet tartunnan
--  Ruotsin hiihtotähtien osallistuminen Tourille on koronan käsissä – Ebba ja Calle saaneet tartunnan
--  Ruotsin hiihtotähtien osallistuminen Tourille on koronan käsissä – Ebba ja Calle saaneet tartunnan
--  Chennai police nab murder accused who was absconding for nearly 23 years in Odisha
--  Ucrania daña buque de guerra ruso
--  4 de cada 10 hogares carecen de recursos para consumo básico en navidad
--  Aemet activa el aviso amarillo por bajas temperaturas en Córdoba
--  Ángel Rodríguez: “El envío del Buque de Guerra a Guyana es una acción temeraria y guerrerista por parte del Reino Unido”
--  Birmingham City vs Stoke live - Krystian Bielik suspended for Boxing Day clash
+-  ESK'den sığır satışının detaylarına ilişkin açıklama
+-  Fenerbahçe maçının yeri değişti!
+-  Motokuryenin ölümüne ilişkin soruşturmada yeni gelişme
+-  TİKA'dan Afganistan'a destek
+-  İmzalar atıldı! Dost ülke Özbekistan ile 7 anlaşma
+-  חג'ג' וחלאילי ימשיכו בהרכב, בני ריינה מאמינה ביכולתה להפתיע
+-  내년 총선부터 모두 수개표 한다
+-  4/10 국선 울진... 등 선거구 여론조사 결과
+-  Masazırda mənzildən meyit tapılıb
+-  Reper Kanye West ispričao se zbog svojih antisemitskih primjedbi
+-  Burnley v Liverpool betting offer: Bet £10 and get £40 in bonuses with Betfred
+-  La invasión nunca debió ser la opción
+-  Muere al ser trasladado a hospital tras accidente en Bachíniva
+-  Van der Poel is ook in Gavere oppermachtig en blijft ongeslagen in veldritseizoen
+-  المقاومة تستهدف 5 آليات للاحتلال في جباليا
+-  الدوري الإنجليزي.. نوتنغهام يهزم نيوكاسل بثلاثية
+-  استشهاد النائب الفلسطيني خميس النجار
+-  غالانت يلمح لمسؤولية إسرائيل عن هجمات في عدة دول
+-  14 killed in Plateau fresh attack, protesters raze houses
+-  Izraelski proizvođač kafe izbacio riječ 'turska' sa pakovanja
+-  Ime Kanyea Westa ispisano na raketi izraelske vojske, u prošlosti je veličao Hitlera
+-  Apple želi surađivati s medijskim kućama u svrhu treniranja AI modela
+-  L-Ukrajna: Attakk fuq vapur tal-gwerra jista’ jikkumplika l-istrateġiji tar-Russja
+-  BREAKING: Triptii Dimri signed opposite Kartik Aaryan in Aashiqui 3
+-  Komesarijat: Ove godine u Srbiji registrovano 107.374 migranata
+-  Apple doesn’t get ‘relief’ from the US government, ban on Apple Watch continues
+-  Žena s dvostrukom maternicom rodila dva puta u dva dana
+-  Huawei Nova 12 serija telefona zvanično predstavljena, opet bez informacija o čipsetu
+-  Koszmar gwiazdy Ekstraklasy. "Próbowaliśmy wszystkiego"
+-  Gibran Tampil Baik Debat Cawapres, Luhut Beri Pujian Pemimpin Muda
+-  Bandara Radin Inten Layani Penerbangan Ekstra di Libur Akhir Tahun
+-  KFC incorpora nuevos locales y culminará el año con 10 a nivel nacional
+-  Деспотовски: Оставаме успешна година зад нас – имаме просечен раст на бруто плати од 20% и 18.000 работни места
+-  Football star receives treatment on the pitch as referee abandons Cray Wanderers vs Margate
+-  Caen presuntos integrantes del Tren de Aragua implicados en varios secuestros en Chile
+-  Įdomiosios tradicijos: švedų kalėdinis gėrimas, kuris žiemą į neviltį varo „Coca Colą“
+-  Katastrofiškas mėnuo Rusijai. Skelbiama apie „itin karštus nuostolius“
+-  Saturno paslaptis. Planetos žieduose yra paslaptingų „stipinų“. Nežinoma, kas tai yra (Video)
+-  „Tai tikrai Krasovskis.“ Rusijoje šokas. Simonian skelbia, kas nutiko
+-  Netikėta blizgančių girliandų istorija: už to slypi viena graži legenda ir dažno nemėgstamas gyvis
+-  عاجل.. بعد اختفائهما.. العثور على مواطن ورفيقه الكويتي متوفيان في العراق
+-  هل تفويض السيارة يمنع إصدار تأشيرة الخروج النهائي؟.. توضيح مهم من "الجوازات"
+-  Ex-Premier League Wag and ‘world’s hottest woman’ stuns fans in ‘very festive’ outfit as she celebrates Christmas
+-  1.502 Orang dengan Gangguan Jiwa di Karawang Masuk DPT Pemilu 2024
+-  Abbas, Kalu congratulate Akume at 70
+-  Bürgergeld: Anspruch auf Weihnachtsgeld – DANN bekommen auch Bezieher das Feiertags-Polster
+-  Borussia Dortmund: Harte Worte! Jetzt geht es den BVB-Profis an den Kragen
+-  NRW: Anschlagsdrohung! Polizei gibt Hauptbahnhof wieder frei
+-  Актер сериала «Слово Пацана» ответил на вопрос о втором сезоне: «Верим, что он будет»
+-  ¿Cuándo llegan a Cruz Azul los dos refuerzos que le faltan para el Clausura 2024?
