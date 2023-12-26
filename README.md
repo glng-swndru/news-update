@@ -1,11 +1,11 @@
 # Latest News
--  Beykent Üniversitesi Dolandırıcılık Skandalıyla Çalkalanıyor!
--  Мир e-commerce: с чего начать успешный бизнес в сети
--  In 2023, Namo Bharat put on track: NCRTC
--  Adliyedeki "Rüşvet Çarkının" Tanığıydı: Görev Yeri Değiştirilen Savcı İlk Kez Konuştu
--  금감원 "특정 금리 방향 예측 후 투자 시 손실 주의"
--  10월 기업·주담대·가계 연체율 모두 상승
--  내년부터 보이스피싱 피해, 은행에서 배상해 준다
--  이병래 손보협회장 취임…"새로운 바다 찾겠다"
--  위기의 경제 허리…40대 취업자 20년 만에 큰 폭 감소
--  제조 기피·돌봄 구인 급증…지역 노동시장, 수급 불균형 확대
+-  Exhortan a evitar uso de pirotecnia
+-  New York'ta Filistin'e destek gösterisi düzenlendi
+-  İsrail basını yazdı: Netanyahu'dan "rehine görüşmesi" engeli
+-  Ranbir Kapoor says `Jai Mata Di` as he lights up Christmas cake, watch
+-  Pak cops free 290 Baloch activists
+-  Earthquake of magnitude 4.5 hits Leh
+-  TCL과 행복한 연말연시…최고 엔터테인먼트와 안락한 집안 분위기
+-  PharmaBlock Obtained ISO 50001 Certification, Advancing Sustainable Development
+-  캐스토마(Castoma) 강황 우유 - 위통 환자를 위한 획기적인 제품
+-  Castoma Turmeric Milk - A Breakthrough Step That Brings Happiness To People With Stomach Pain
