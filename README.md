@@ -1,51 +1,51 @@
 # Latest News
--  Teemu Pulkkinen joutui sivuun KHL:ssä
--  الهيئة الملكية للعُلا تنظم "واحة العجائب بالجزيرة العربية" في بكين
--  El Nasdaq Composite registra una subida anual del 40% al cerrar los mercados al alza
--  Cenntro Electric cumple el requisito de precio mínimo de oferta del Nasdaq
--  Search for swimmer, 19, swept out to sea
--  «قطر للطاقة» تنجز صفقة تخارج
--  El Ministerio Público da detalles del horrendo crimen de la venezolana Yenny Carolina Pérez
--  مهرجان سيف سمو الأمير الوالد «13» يناير
--  Banditry: 10 Persons, Woman With Two Children Burnt To Death In Sokoto
--  Avianca volverá a operar en febrero la ruta Bogotá-Caracas tras casi siete años suspendida
--  En el umbral de un nuevo año
--  حظك اليوم وتوقعات الأبراج 27-12: ترقية مالية لهذا البرج.. ونصائح لهؤلاء
--  Recuperan auto robado en Pueblo Nuevo
--  Acodeco decomisó más de 11 mil productos vencidos en el operativo navideño
--  ManU'dan tarihi geri dönüş!
--  Fransa'dan İsrail'e "Gazze'deki çatışmalardan endişeliyiz" mesajı
--  TİKA'dan Küba'da "Türk Kültürü ve Dili" hamlesi
--  Insecurity: CDS Charges Army To Remain Steadfast Against Security Charges
--  الهلال ومانشستر يونايتد يتنافسان على نجم برشلونة
--  عدم استقرار جوي وفرص لزخات من الأمطار في الاردن الاربعاء
--  علاج جديد لارتفاع ضغط الدم المقاوم للأدوية
--  유튜버 카라큘라 "그동안 많이 아팠다"…암 투병 사실 고백
--  Venta de presentaciones pequeñas creció 41,16% en la industria farmacéutica
--  ‘ఇద్దరు బిడ్డల తండ్రిని అలా ఎందుకు చేస్తా?’
--  Jokowi Govt Builds 25 New Airports by 2023
--  Евросоюз готовит план помощи Украине в обход блокировки Орбана
--  Por qué los hipocondríacos mueren antes
--  Transfer news LIVE: Tottenham monitoring £50m Solanke, Chelse set hefty Gallagher price EXCLUSIVE, Mbappe future latest
--  మట్టి లేకుండా వ్యవసాయం..!
--  Consternación en Uruguay: Asesinan a tiros a una familia
--  NFL YouTube account posts, then removes, insulting clip of 49ers' Brock Purdy
--  Seorang maut, 24 cedera dalam serangan balas AS
--  [상보] 국제유가, 홍해 긴장 고조·금리 인하 기대에 상승…WTI 2.73%↑
--  Driver arrested after car ploughs into house on Christmas Day – causing it to partially collapse
--  Home Alone fans are only just discovering main character's dual role
--  Eerste Kerstmarkt OBS de Tuimelaar in Nieuw-Lekkerland groot succes
--  Harry Korporaal wint de Uitdaging met foto van een rotje
--  CFB recruiting: Stanford lands commitment from Bay Area linebacker
--  EUFORIJA U NOVOM PAZARU: Adem Ljajić proglašen za najboljeg sportistu grada, a onda potvrdio da ostaje u klubu
--  హిందూ మత విశ్వాసాలను దెబ్బతీసే కుట్ర!
--  فيرمين: نجم ريال مدريد جعلني أعاني!
--  مصادر : امدادات الوقود الخاص بكهرباء الرئيس بعدن القادمة من مأرب قد تتأثر عقب تفجير أنبوب النفط
--  Tahanan terkenal Rusia dipindah sebelum pilihan raya presiden
--  El verdadero origen de la natilla, el postre más querido por los colombianos ¿no es de acá?
--  Ads come to Amazon Prime Video at the end of January
--  Spalletti agli italiani: "Ho chiesto a Babbo Natale il vostro tifo per la nazionale"
--  Desarme de Leliq: Economía logró colocar otros $500.000 millones a un año
--  Emelec: los refuerzos del Bombillo llegan sin racha goleadora
--  EDITORIAL: PM ignored warnings about foreign interference
--  Gazze halkının duruşundan etkilenen Norveçli genç kız İslam'la şereflendi!
+-  Unas 880 pequeñas empresas de Perú generan 48 millones de dólares en compromisos de ventas
+-  Pro Research: Wall Street examina la recuperación bursátil de Clorox
+-  Lo que se sabe del joven bogotano que murió en prestigioso hotel de Santa Marta
+-  대구 자동차부품 제조공장서 근로자 끼임사…중대재해 조사
+-  Milan, Olivier Giroud re dei gol di testa: tutti i suoi numeri
+-  البطانة أزمة المهرجان.. شاهد كيف أغضبت إنجى المقدم الجمهور بـ جمبسوت مُثير في الجونة السينمائي!
+-  PSA: Free public transit for NYE
+-  불순물 모두 제거했다던 명인애 용융소금 ‘쇳가루 초과 검출’…판매 중단 및 회수
+-  Año nuevo, vida nueva, por @ArmandoMartini
+-  Hojlund ends goal drought as United fight back to beat Villa
+-  Teen Girls Stabbed by Stranger at Grand Central Terminal
+-  일본산 향료서 세슘 미량 검출…“수입 자진 취하”
+-  La Plaza de Santa Ana acoge el concierto '35 años (Más) con Nanino'
+-  ‘2분40초 동안 19차례’ 치매 노인에 밥 떠먹여 질식사…요양보호사 집행유예
+-  Com atoleiros, Sinfra orienta motoristas a evitar desvio pela Água Fria e optarem pela via de Campo Verde à Chapada
+-  'Our Uniform', Gran Premio de Animayo 2023, a un paso de aspirar al Óscar
+-  Aussie Home Loans founder John Symond's estranged wife Amber McDonald still on good terms with her stepdaughter following couple's shock split after eight years of marriage
+-  엑셀시아캐피탈코리아, 사모펀드 설립···1155억 규모 싸이토젠 주식‧CB 인수
+-  I’m known as the ‘Hack Queen’ – my three unique tricks can stop condensation and save hundreds on your energy bills
+-  Director Andrew Haigh talks about love and loneliness in 'All of Us Strangers'
+-  Widower of Arizona county attorney shoots dead his girlfriend and her mom before turning the gun on himself during an argument at a Christmas Eve party
+-  檢, ‘1인 1개소법 위반’ 해외 도피 중인 유디치과 설립자 8년 만에 기소
+-  How did Bill Granger die? Top Australian chef's cause of death is revealed
+-  코스트코 그릭요거트서 곰팡이 추정 이물질 발견
+-  Empresas de MT devem passar a emitir Nota Fiscal Eletrônica junto com comprovante de pagamento
+-  Traficante é preso em flagrante pela Polícia Civil após exibir arma de fogo em ruas de Vila Bela
+-  Juiz rejeita pedido para bloquear R$ 1 bilhão da Braskem
+-  Friendly exes! Grant Kenny and Lisa Curry reunite for Christmas lunch with their son Jett and his influencer girlfriend Lily Brown
+-  Develan estatua de Shakira en Barranquilla: así reaccionó la cantante
+-  Mercado extra-UE duplica de peso nas compras de casas em 5 anos
+-  Arkadaş grubu arasında silahlı kavga: 1 ölü, 1 yaralı
+-  판권 인수한 고혈압치료제 ‘이달비’ 국산화···셀트리온아질사르탄메독소밀정 출격 대기
+-  EN VIVO: así avanza la situación en la vía al Llano tras accidente e incendio
+-  Mega DNU: Osvaldo Jaldo y Raúl Jalil reunieron a sus diputados y senadores para acordar una posición común
+-  1회 주사에 수 백만원 약값 부담 ‘트로델비’···“급여 적용 촉구합니다”
+-  1円スマホ規制 きょうから導入
+-  쿠팡이츠 콜 취소 패널티로 못 버티고 떠난 라이더들···“책임은 외면”
+-  현대삼호중공업 사업장서 근로자 사망…“정확한 원인 파악 중”
+-  يونايتد يقلب الطاولة على أستون فيلا بفوز مثير
+-  VIDEO: Kevin Spacey reapareció como Frank Underwood junto a Tucker Carlson e insinuó una candidatura presidencial
+-  Milestone Pending: Secretive X-37B Space Plane Preparing for Thursday Lift-Off
+-  응급실 대기 중 70대 환자 사망…강원대병원 “책임 통감” 사과
+-  借古諷今？中媒重溫鄧小平實事求是 「財新」文章火速下架
+-  Rasmus Højlund fuldender vildt United-comeback
+-  U poplavama u centralnom Kongu poginulo najmanje 17 ljudi
+-  Wild weather takes toll in Queensland and Victoria
+-  Willian Hernández: Perspectivas petroleras para Venezuela en 2024. Un panorama con gran potencial y falta de inversión
+-  Hasil Liga Inggris: Manchester United Comeback Gemilang di Old Trafford, Liverpool Gusur Arsenal dari Puncak
+-  Exhortan a la población a vacunarse contra la influenza
+-  Manchester United's all-action comeback against Aston Villa proves they can conjure goals when they need to... Sir Jim Ratcliffe will be hoping this is a sign of things to come after a drab spell at Old Trafford
