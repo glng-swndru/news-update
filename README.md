@@ -1,51 +1,51 @@
 # Latest News
--  "ฝนนราธิวาส" ทุบสถิติรอบ 68 ปี 651 มม.อีก 2 วันเริ่มซา
--  "แท็กซี่" จี้ขนส่งฯ ปรับขึ้นค่าโดยสาร-ปราบรถรับจ้างเถื่อน
--  חידת השבוע 31/12-3/1
--  6 علامات تدل على ارتفاع نسبة السكر في الدم- انتبه
--  الضرائب توضح آلية تحصيل ضريبة القيمة المضافة بالدولار والفئة المستهدفة
--  Single-family house in Danville sells for $1.6 million
--  Ask Amy: 14 picks for end-of-year charitable giving
--  Lionel Messi yrittää vielä MM-kisoihin
--  HIFK sai kaksi uutta puolustajaa
--  Тамара Винт станет новым заместителем главы Пскова в 2024 году
--  Lukas Enembe Meninggal, Pengacara Sebut Tidak Ada Pesan Terakhir dari Kliennya
--  Inspirasi Kado Akhir Tahun untuk Orang Tercinta dari Havaianas, Cocok untuk Liburan
--  Nazirlər Kabinetində iclas keçirildi
--  Казанцы в этом году чаще всего летали в Москву и Санкт-Петербург
--  Большинство работников в СЗФО планируют обменяться подарками с коллегами в преддверии Нового года
--  Шойгу: российские военные выполнили главную задачу в уходящем году
--  Ananya Panday reveals she got a `Bhidu` from Jackie Shroff on Instagram DM
--  Is Ranbir Kapoor-Alia Bhatt`s daughter Raha wearing hair clips gifted by a fan?
--  Poonch civilian killings: "There should an investigation into why this happened"
--  La liberalización del tren hunde el precio de los billetes y da alas al boom de la alta velocidad
--  Песков назвал естественным желание людей заявить о своих политических амбициях
--  «إرهاب الحوثيين».. البحرية الهندية تعزز وجودها ببحر العرب
--  Raun-Raun Setelah Puncak Musim Liburan Terlewati, Cuti Bagusnya Kapan?
--  A Phoenix Sandwich Shop Regains Hope After Homeless Encampment Is Cleared
--  بعد مقتل قيادي بارز في «فيلق القدس».. عبداللهيان: على تل أبيب أن تنتظر الرد القاسي
--  سندھ ہائیکورٹ میں ایم ڈی کیٹ میں بے قاعدگیوں سے متعلق درخواستیں مسترد
--  Pemain Barito Putera Diminta Tetap Jaga Kondisi Fisik Selama Liburan
--  Un joueur de Pokémon Écarlate & Violet utilise Tygnon pour recréer un mini-jeu
--  Tifel ta’ 3 snin fil-periklu tal-mewt wara li ħarab minn campsite u waqa’ minn irdum
--  Lima Produk Apple Ini Diprediksi Rilis Tahun Depan, Apa Saja?
--  Riwayat Penyakit Lukas Enembe, Pernah Minta Berobat ke Singapura tapi Dilarang KPK
--  Reportage aus dem Irak: Wie sich eine iranische Menschenrechtsaktivistin hier vor Verfolgung versteckt
--  Sebi’s T+0 settlement plan will boost liquidity, but analysts warn of impact on brokers’ business model
--  بالفيديو - حريق ضخم في مرفأ طرابلس!
--  بلدية الشارقة: إدخال أجهزة جديدة للمختبرات المركزية لرفع الكفاءة التشغيلية
--  Sarajevski autobusi u svečanom ruhu za praznike
--  Man with ecstasy, gun arrested after struggle with deputy, Halifax County sheriff's office says
--  Nouvel An à Toulouse. Et si vous passiez votre Réveillon à la Halle aux Grains ?
--  Perjalanan Kasus Lukas Enembe, Pernah Disebut Punya Tambang Emas hingga Divonis 10 Tahun Penjara
--  Nice: le corps d’un octogénaire tué par arme à feu découvert dans un parking
--  Meninggal Dunia Tadi Pagi, Ini Profil Lengkap Lukas Enembe
--  Le bien de la semaine : un appartement avec vue sur la baie de Saint-Jean-de-Luz
--  الجيش الإسرائيلي: مقتل جندي إسرائيلي متأثرا بجروح خطيرة أصيب بها قبل أيام على الحدود مع لبنان
--  Пониски сметки за струја во првиот блок, пристап до мрежа од 200 денари ќе плаќаат и оние што штедат
--  Dólar hoy y dólar blue hoy minuto a minuto: a cuánto operan este martes 26 de diciembre
--  Živ je portal Udar, samo što se sada zove Aktuelno
--  Lukas Enembe Meninggal, Begini Penuturan Kuasa Hukum Kondisi Terakhirnya
--  Firefighter dead as bushfire threatens homes in WA
--  “Standing Ovations” für „Schwurblerin“ Nena bei Helene-Fischer-Show
--  龍馬や陸奥も学んだ、幕末の「神戸海軍操練所」跡か 発掘調査で発見
+-  Yere batsın projeniz! AP üyesi, ABD'nin Gazze'de ateşkesi veto etmesinin nedenini açıkladı
+-  Manisa FK'da Osman Özköylü dönemi sona erdi
+-  Şehit cenazesinde CHP'ye bir tepki daha! Özel'in gönderdiği çelenk tören alanı dışına atıldı
+-  Hatay'da depremlerde hasar alan AVM'nin yıkımına başlandı
+-  Ticaret Bakanı Bolat: 2023, 1 trilyon doların üzerinde milli gelirle kapatılacak
+-  Bakan Tunç: Anayasamızın darbeciler tarafından yazılmış olması bile tek başına değişme sebebidir
+-  Sırbistan: Kosova plakalı araçlara "serbest dolaşım" kararı "bağımsızlığın tanınması' olarak yorumlanamaz
+-  İbre ona döndü! Beşiktaş'ta Sergen Yalçın sesleri
+-  İsrail, İngiltere'nin devrettiği skandal uygulamaya sahip çıkıyor
+-  중국행 막힌 ‘일본 가리비’ 韓 수출설에…정부 “日 계획에 불과”
+-  Substance likely to be faeces smeared on Tampines HDB void deck ground & wall on Christmas eve
+-  Road caves in on Gurugram-Sohna flyover, Haryana deputy CM calls it ‘natural phenomenon’
+-  NATA 2024 information brochure released at nata.in; check exam dates here
+-  आठ साल की बेटी के सामने मारी मां को गोली, सोशल मीडिया इंफ्लूएंसर की दर्दनाक कहानी
+-  Best of cartoons, December 27, 2023
+-  Best of cartoons, December 27, 2023
+-  İranda APA-nın saytına giriş məhdudlaşdırılıb
+-  Tourist drives through river while several remain stuck in traffic in Himachal Pradesh, video goes viral
+-  Fotografia de polícia a deter homem embriagado comparada a "arte renascentista"
+-  El crudo opera estable, el mercado está atento a tensiones en Oriente Medio y recorte de tasas en EEUU
+-  El oro sube, ya que expectativas de recorte de tasas de la Fed impulsa atractivo
+-  Tata Motors consigue un pedido para suministrar 1.350 autobuses a la UPSRTC
+-  Un buque cerca de Yemen informa de drones y explosiones en el mar Rojo
+-  Las bolsas del Sudeste Asiático terminan la jornada en terreno mixto
+-  Totti, un like alla foto di Ilary scatena i fan
+-  Congress: కేయూలో 28 నుంచి 30 తేదీ వరకు ఇండియన్ హిస్టరీ కాంగ్రెస్ సదస్సులు
+-  Se llevaron a su padre antes de conocerlo; todos los días, su hija lo espera en la puerta
+-  Χάρης Παπαθεοχάρους: Ρωτήθηκε πόσα χρήματα κερδίζει για μια ανάρτηση στο Instagram
+-  Halálos lakástűz volt Miskolcon
+-  Навални: Аз съм вашият нов дядо Мраз. Подаръци ще има само за тези, които са се държали много лошо
+-  Nagrade za Božovića, Šaranović i Markovića
+-  L-Istrina, Malta’s largest annual charity telethon, to kick off at noon
+-  So záplavami bojuje aj Česko: Tretí povodňový stupeň! Na ďalšiu vlnu sa chystá aj Slovensko
+-  В Карабахе нашли большое количество мин и боеприпасов
+-  إنارة منفذ رأس اجدير الحدودي
+-  What My Father Did To Me For 10 Years Over Choice Of Dumping Law For Comedy – Alibaba
+-  Santa Claus rally- US stocks look for strong yearly gains
+-  Baghdad condemns U.S strike on Iraqi military positions
+-  岸田政権最大の危機「若手議員が”乱”を起こす。来年は混乱の１年に」ジャーナリスト・鈴木哲夫
+-  Netanyahu pengon kreun e Mossadit të marrë pjesë në mbledhjet e sigurisë
+-  Daihatsu fecha quatro fábricas no Japão devido a investigação aos testes de segurança
+-  Струјата од први јануари ќе поевтини за првиот блок за 5,16 отсто, за вториот останува иста, а за третиот и четвртиот блок поскапува за 2,88% и 1,86%
+-  World News | Bahraini Economy Achieves Growth of 2.45 Per Cent in Third Quarter of 2023
+-  子育て世帯支援の食料品セットに最多申し込み 物価高苦しむ声
+-  Heboh Pemain Timnas Indonesia Masak Mie Instan saat TC Jelang Piala Asia 2023
+-  Verkehr: Baustelle Kreuz Kaiserberg: Anwohner sauer auf Autobahn GmbH
+-  Senator raises alarm over rise in Killings in Taraba, calls for state of emergency
+-  Anybody who has picked up the electric guitar owes something to B.B. King – learn how to incorporate his lyrical style and immaculate phrasing into your own playing with these must-try solos
+-  제품 11종·생활환경 4558곳 전자파 노출량 ‘양호’
+-  [인사] DGB금융그룹
