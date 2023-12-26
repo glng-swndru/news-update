@@ -1,11 +1,11 @@
 # Latest News
--  Irun y el balonmano dan el último adiós a Beñardo
--  NBA Betting Promos: Score Over $4,000 Bonuses Tuesday From ESPN BET, More
--  قبل مباراة الفيحاء.. الهلال السعودي يعلن إصابة مالكوم
--  "ما زالت متوفرة".. بيان من مجلس أبو ظبي الرياضي بشأن تذاكر مباراة الأهلي وفيوتشر
--  "منشطات جنسية وقطعة قماش".. تفاصيل مقتل سمسار على يد فتاة بعد ليلة حمراء بالمرج
--  راشفورد وهويلوند على رأس تشكيلة مانشستر يونايتد ضد أستون فيلا
--  حكومة غزة: الاحتلال سلمنا جثامين 80 شهيدا بعد أن شوهها وسرق أعضاءهم
--  بعد الفوز على بيرنلي بهدفين ليفربول يتصدر الدوري الإنجليزي مؤقتا
--  هشام حطب يهاجم وزير الرياضة: قرار إيقافي باطل
--  بعمر الـ38.. رونالدو الأكثر تسجيلا للأهداف خلال عام 2023
+-  Mitä ihmettä, Erik ten Hag? ManU:n managerilta yllättävä veto siirtomarkkinoilla
+-  عاجل.. منصة مدرستي .. خطوات الدخول على اختبار المعلم 1445
+-  مساند تحدد 5 عوامل لقيمة التأمين على عقود العمالة
+-  Mladi Radnik prvi do finala Kupa Srbije
+-  Medicenna comienza a cotizar en el mercado OTCQB Venture y mantiene su cotización en TSX
+-  ¡Ojo! CSS regresa al uso de mascarillas ante ola de infecciones respiratorias
+-  滋賀県高島市のJR駅にメタセコイア並木を題材にしたオブジェ登場 学生、市民、観光客で制作
+-  滋賀・甲賀消防のコロナ未接種者対応「業務区分は不当、不適切」第三者委が中間報告
+-  立命館大学が滋賀県草津市を拠点にダイビングクラブ設立へ 飛び込み五輪選手を育成、馬淵崇英氏が監督
+-  京阪京都交通が路線バスの初乗り運賃、上限変更を申請 増額分一部は運転士の待遇改善に
