@@ -1,51 +1,51 @@
 # Latest News
--  Le programme beIN Sports de la semaine : qui osera regarder Wizards – Hawks le 31 décembre à 21h ?
--  Monseñor Ulloa preside misa de Navidad en La Joyita
--  Burdur'da araması olan 12 şahıs yakalandı
--  Ограбено казино во Карпош, полицијата го расчистува случајот
--  В Кронштадте для туристов открыли первую советскую атомную подлодку
--  حورية تناقش مع موظفة بالأمم المتحدة تعزيز حقوق المرأة الليبية
--  Hacen operativo en Cereso 3 para prevenir ataques
--  Cabometyx by Exelixis for Endometrial Cancer: Likelihood of Approval
--  В московском метро прошел флешмоб Дедов Морозов
--  Espagne: manipulation d’images sur fond de xénophobie
--  Cabometyx by Exelixis for Metastatic Melanoma: Likelihood of Approval
--  Tragedija u Crnoj Gori: Poginuo mladi bračni bar, čekali su bebu
--  Hamas: İsrail'in kıyafetleri çıkararak fotoğraflaması savaş suçu
--  DEM Parti'li Çiftyürek: Türkiye, gıda enflasyonunda OECD ülkeleri arasında birinci sırada
--  İsrail Savunma Bakanı: Ülkemiz 7 cepheden saldırı altında
--  Etiyopya, 33 milyon doları ödeyemeyince temerrüde düştü
--  İlkin Aydın, 2 yıl daha Galatasaray'da!
--  Ülke genelinde ilk ortak yazılı sınavlar tamamlandı
--  Milli savaş uçağı KAAN, ilk uçuşunu birkaç hafta içinde yapacak
--  Hazine ve Maliye Bakanlığı 300 vergi müfettiş yardımcısı alacak
--  LG, en yeni UltraGear OLED oyun monitörlerini tanıttı
--  Eski İsrail Genelkurmay Başkanı: Hamas'a karşı savaşı kaybettik
--  My seaside town was named UK’s worst weekend stay – but it’s a secret paradise now tipped to be big for holidays in 2024
--  मुंबई में 11 जगहों पर बम धमाके की धमकी, निशाने पर RBI, HDFC और ICICI बैंक
--  Henriksen backade inte för att gå framåt: ”Lite extra grått hår”
--  Türkgözü Gümrük Kapısı'nda 11 zanlı yakalandı
--  Bütün dünya onu konuşuyor! Hakim Ziyech bombası
--  Hollanda'da yağışlar nedeniyle çok sayıda iş yeri su altında kaldı
--  Rukometaši kreću s drugom fazom priprema za Euro, važan dvojac se priključuje sutra
--  Putri Anies Baswedan dan Putri Muhaimin Iskandar Hadiri Pengajian Gus Iqdam
--  Почина Мирослав Бошковиќ, поранешен атлетичар и професор во пензија: Македонската атлетика ќе биде осиромашена за еден голем ентузијаст
--  Balıkesir'de 2 bin 587 litre sahte ve kaçak içki ele geçirildi: 11 gözaltı
--  Rabada grabs five wickets, Rahul holds firm for India
--  Залужный заявил, что его устроит любой способ пополнения рядов ВСУ
--  Woman goes viral for playing Fortnite after giving birth
--  Declaran Patrimonio Cultural de la Nación a la danza Los Margaritos o Ingleses de Mochumí
--  Po razhodu z "nevesto iz nočne more" je tolažbo našel pri postavni vplivnici #foto
--  Novi udarac za Igokeu: Laktaše napušta iskusni plejmejker?
--  Misha in Honkai Star Rail: Leaks, abilities & more
--  Novel Nectar: Savoring the Essence of Riveting Tales
--  نوتنغهام يفوز لأول مرة على نيوكاسل في التاريخ
--  Ο Ατζούν θέλει να αγοράσει τα τηλεοπτικά δικαιώματα του Παναθηναϊκού για χάρη του Τερίμ
--  XV de France : Le Stade Toulousain pousse un coup de gueule pour Dupont
--  US-Marktbericht: Anleger an der Wall Street zeigen sich zuversichtlich
--  Pic de douceur ce mercredi : jusqu'à 20°C au sud-ouest
--  Đoković spet evropski športnik leta
--  „Виз Ер“ привремено ќе ги прекине летовите од Скопје до Болоња и Луксембург
--  Premier League: Newcastle loses to Nottingham Forest at home as Wood scores hat-trick on boxing day
--  Jammu Kashmir : कैमरे पर पहली बार आतंकियों की गुफाएं ,जहां आतंकी छिपाते हैं गोला-बारूद
--  Horóscopo 26 de diciembre por Mhoni Vidente: Predicciones de trabajo para tu signo
+-  Исчезна 22-годишна скопјанка
+-  Chelsea on valmis aktivoimaan Bayer Leverkusen-tähden ulosostoklausuulin
+-  Niño de11 años herido con cebollón en Navidad perdió los dedos
+-  محافظ الغربية يناقش تطوير المحاور المرورية بالمحافظة
+-  Kystfiskere frygter sammenstød med tabte containere
+-  Proponen restablecer formación premilitar en colegios: ¿a qué escolares aplicaría?
+-  Serralta parkea, Barakaldoko altxor natural berria
+-  تفاصيل إصابة 9 جنود إسرائيليين بعد تعرضهم لنيران من لبنان أثناء سحب جريح أصيب بصاروخ موجه
+-  OV-målvakten straffade Redbergslid: ”Jag kom in i ett bra flow”
+-  OV-målvakten straffade Redbergslid: ”Jag kom in i ett bra flow”
+-  Zalužni: Marjinka više ne postoji, Rusi dolaze
+-  البنك الأهلي يستأنف تدريباته استعدادًا لمواجهة المقاولون
+-  Fünf Sturmtote in Australien
+-  Survei Indikator: Gibran Ungguli Mahfud dan Muhaimin dalam Debat Cawapres
+-  Polizei untersucht Drohungen gegen Richter nach Trump-Urteil
+-  VOX avisa que Cabra podría bajar de los veinte mil habitantes por falta de empleo
+-  Logran salvar a un bebé de una parada con la asistencia telefónica de una enfermera
+-  40 Ribu Kendaraan Lintasi Jalur Puncak Bogor, One Way Sempat Diterapkan
+-  Familia se fue de escapada de fin de semana y encontró un cadáver en la nevera de su casa
+-  Wall Street negoceia em alta animada com corte de juros no 1.º semestre
+-  En espera 189 chihuahuenses para recibir trasplante
+-  Nearly $1 Million In Cars Confiscated From Latvian Drunk Drivers Head To Ukraine
+-  Кривична против битолчанец, ја истепал и ја вознемирувал поранешната партнерка
+-  Pep Guardiola Promises To Write “Another Book” At Manchester City
+-  MALO MESTA ZA OVE DAME Kajli Džener i ćerkica kao bliznakinje u bleštavim haljinama, mala klinceza nije mogla da sakrije radost!
+-  Французская разведка провалилась не только в Азербайджане…
+-  Песков о готовности Азербайджана и Армении финализировать мирный договор
+-  Polizei untersucht Drohungen gegen Richter nach Trump-Urteil
+-  „Visi Rusijos branduoliniai ginklai, kuriuos planuota atgabenti į Baltarusiją, yra atgabenti“
+-  توقعات برجي العقرب والميزان حتى عام 2026.. «ليك حظ في العمل والحب»
+-  Donald Trumps julhälsning: ”Ruttna i helvetet”
+-  Judith Godrèche : “‘Icon of French cinema’ est une réparation”
+-  Trujillo: Hombre destroza a pedradas los vidrios de camionata de su vecino
+-  شاهد.. أمطار غزيرة وبرد جنوب سميراء
+-  Runners sing carols to children at Makarios hospital
+-  A $15 item could avoid a $1,000 ticket this winter
+-  Internet- og telefonforbindelsen afbrudt i Gaza for fjerde gang
+-  Internet- og telefonforbindelsen afbrudt i Gaza for fjerde gang
+-  Ryan Gosling veröffentlicht "I'm Just Ken"-Weihnachtsversion
+-  SRUŠIO PARTIZAN, PA DOBIO LASKAVO PRIZNANJE Luka Božić ponovo MVP
+-  Projet de loi sur la gestion durable des déchets au Gabon : le ROSCEVAC plaide pour une fiscalité incitative
+-  انفجار بالبحر الأحمر قبالة ميناء الحديدة اليمني.. والبحرية البريطانية تعلّق
+-  Ukraine attacks Russian warship in Crimea
+-  45 anos de Xutos & Pontapés: Digressão arranca em abril no Multiusos de Guimarães
+-  عقوبات السوبر المصري.. إيقاف محمد إبراهيم 4 مباريات
+-  Ministarstvo zdravlja u Gazi: "U izraelskim napadima ubijeno gotovo 21.000 ljudi"
+-  Impôts : la fin de la taxe d'habitation, une manne modeste pour les propriétaires
+-  Soccerladuma | Bafana's Group Rivals Include PSL Stars In AFCON Squad
+-  LAJM I FUNDIT/ Masa ‘arrest në shtëpi’ ndaj ish-kryeministrit, SPAK kërkon që Berisha të komunikojë vetëm me familjarët
+-  Los disidentes rusos se topan con recelos en los países bálticos que les dan cobijo
