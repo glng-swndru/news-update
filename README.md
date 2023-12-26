@@ -1,51 +1,51 @@
 # Latest News
--  É caro casar no Afeganistão. Por isso, os noivos optam por cerimónias coletivas (com as mulheres escondidas)
--  Бронхит касаллиги хавфлари ҳақида маълумот берилди .
--  Da li su RKS tablice zapečatile sudbinu beogradskih izbora?
--  Pakistan : क्या पाक सेना हाफिज को पीएम बनाकर भारत के खिलाफ बड़ी साजिश रच रही है ?
--  Detenida patóloga que realizó autopsia al cadáver de “Canserbero”
--  Alex Gonzaga and Cong TV Vlog; Actress Goes To Congpound
--  Slavni Fatih Terim ima novi posao, vodit će velikana
--  The holiday box office was pretty merry for The Color Purple, middling for Aquaman
--  Minister Botsa: అంగన్వాడీలను సమ్మె విరమించాలి.. సంక్రాంతి తర్వాత మరోసారి చర్చలు
--  Le programme de la nuit en NBA : les Pistons vont-ils perdre leur 27è match de suite ?!?
--  Medien: Israels Armee bereitet nächste Phase im Gaza-Krieg vor
--  Odisha: Sarpanch and engineer fight after argument over corruption, video becomes viral
--  Jared Leto: Photos of the Actor & Rocker
--  Kritische Infrastruktur in Gefahr – Ampel plant Unternehmensverkauf
--  कब जारी होगी पीएम किसान की 16वीं किस्त? ये रहा जवाब
--  Пострадавший сапер эвакуирован в Гянджу
--  Омбудсмен о защите прав западных азербайджанцев
--  Kal Ka Makar Rashifal: मकर राशि वालों को होगा बिजनेस में अचानक धन लाभ, जानें कैसा रहेगा दिन
--  Peking musí zabrániť odštiepeniu Taiwanu od pevninskej Číny, vyhlásil Si Ťin-pching
--  Нотингам поднесе изненадата на Боксинг Дей и обърна Нюкасъл
--  Dragons’ Den legend Duncan Bannatyne, 74, hits the beach with stunning wife Nigora, 43, in St Barts
--  Anregende Gespräche statt Alleinsein
--  问界M9及华为冬季全场景发布会今日举行问界M9和nova 12系列亮相
--  Цената на гасот на европската берза ТТФ во 2023 година падна за повеќе од 50 отсто
--  A Haber ekibi El-fara Mülteci Kampı'nı görüntüledi! Filistinlilerden İsrail drone’larına karşı şilte
--  Putin će pobediti, opet, ali on čeka neke druge izbore
--  Reportan 15 heridos en balacera que dejó 2 muertos en Los Puertos
--  SSP odbacila Vučićevo poređenje: Srpska opozicija poziva na mir, a Tramp podsticao upad u Kongres
--  الملهم والمؤلم
--  Times-Age daily Quiz – Wednesday, 27 December 2023
--  القسام تنشر فيديو لاستدراج قوة إسرائيلية في بيت حانون
--  أطباء بلا حدود: قرار مجلس الامن الأخير بخصوص غزة ناقص
--  الفيديو .. القسام تستهدف قوة راجلة بغزة
--  أبو السعود: شركة واحدة تأهلت لـ (الناقل الوطني)
--  Historisches Buch in den USA angekommen
--  خطاب عقار -الشكل والمحتوى
--  (الميداني الأردني) في نابس يستقبل ‏13153 مريضاً
--  Heeresinspekteur warnt vor Schwächung der Bundeswehr durch Litauen-Brigade
--  فصل مذيعة تركية من عملها.. والسبب فنجان قهوة - ماذا حدث؟ (فيديو)
--  جنون الذهب.. الجرام يرتفع 300 جنيه في يومين وسعر تاريخي بتعاملات المساء
--  A programozás rejtelmeibe kóstolhatsz bele az Epic mai ingyenjátékában
--  What your summer shoe says about you: Birks, Crocs, Havaianas
--  How Ferrari's controversial CG crashes play a crucial part in the story
--  Planning a staycation this summer? Builder Stan Scott's outdoor jobs you should tacklen now
--  The sad decline of the cinema
--  Rückblick 2023: Neue Straßen und ein Schulanbau in Saalfeld-Rudolstadt
--  Taranaki Daily News Person of the Year nominee: Taranaki iwi rahui group
--  NZ's hottest day ever: Melted roads, workers striked and it killed 26,000 chickens
--  Dry spells may push out Waimea dam completion date further
--  Gardener's DIY hack will keep your plants alive while you're on holiday
+-  BJP eyes on 35 parliamentary seats of Bengal, Amit Shah targets TMC for shielding Mahua Moitra and Kalyan Banerjee
+-  Ojaanajaneet uhkasivat auttamaan pysähtyneitä puukolla Rantasalmella – Sen jälkeen he ryöstivät auttajien auton
+-  مصرف الامان يصدر تحذير وتنبيه هـام لعملائه بشأن بياناتهم
+-  Joke Is On You
+-  Przewaga popytu na rynkach akcji w USA
+-  Programajánló az ünnepekre, ha már unjátok a bejglit
+-  PM Modi’s YouTube Channel Surpasses 20 Million Subscribers, Much Ahead Of Other Global Leaders
+-  الريسوني: طوفان الأقصى فضح نفاق الغرب وذكر العالم بالقضية الفلسطينية
+-  Why Kenan Thompson Hasn't Been Hugely Open About His Divorce
+-  Los campeones Chiefs y los Cowboys alargan crisis
+-  Registran al menos 19 personas lesionadas por accidentes de tránsito durante asueto navideño en Barinas
+-  Klopp Szoboszlaiék karácsonyi meccse előtt: "Nagyon nehéz helyzetben vagyunk"
+-  إصابة 17 إسرائيليًا بقصف لبناني قرب الحدود
+-  Καστρίτης: «Να είμαστε συνεπείς στην προσπάθειά μας και σκληροί στην άμυνα»
+-  Gaza Israel Conflict: गाजा जंग में Iran की सीधी एंट्री..इजराइल के लिए खतरे की घंटी
+-  À seulement 27 ans, elle lance sa société d'entretien de sépultures dans l'Eure
+-  Psykoterapeutin löytäminen voi viedä Lappeenrannassa useita kuukausia – Vapaita aikoja tiedustellaan viikoittain
+-  STL RESULT TODAY, Wednesday, December 27, 2023
+-  KRIVI SU IGRAČ I NJEGOV MENADŽER Murinjo je zbog njega potpuno posedeo
+-  4 عادات غذائية تسبب الإصابة بجرثومة المعدة.. وهذه طريقة العلاج بالمنزل
+-  Iranski i turski predsjednik razgovaraće u Ankari o situaciji u Gazi
+-  [CES 2024] Veeo, a behind-display camera tech aimed at creating a more natural webcam experience
+-  سابق وزیر خارجہ شاہ محمود قریشی کی رہائی کی روبکار جاری
+-  Manchin launches new political organization, listening tour
+-  Tuvalu’s deal with Australia addresses rising sea level, but also China
+-  حكومة أخنوش تطوي ملف أساتذة التعاقد و تسوي ملفات عالقة منذ عقود في قطاع التعليم
+-  Banjir di Afrika Selatan Tewaskan 7 Orang- 11 Hilang
+-  Canada downs Finland 5-2 in world junior opener
+-  Au weia, FC Südtirol: Jetzt wird es richtig brenzlig!
+-  هيئة الرقابة النووية والإشعاعية تعلن عن وظائف شاغرة
+-  عاجل.. "القريقري" يكشف مفاجأة عن قاتل ابنه أدت للعفو عنه ( تفاصيل جديدة ومؤثرة)
+-  МВД: шесть человек осудят за дистанционное хищение 15 млн рублей
+-  Trabalhadores contestam novo acordo de concessão do Porto de São Tomé
+-  10 tips to get started using your new Chromebook [VIDEO]
+-  DOH allays fears of Covid-19 spread as 18 JN.1 cases listed
+-  Adani Group infusing Rs 9,350 crore into Adani Green Energy
+-  Hola, 2024: Aumentará impuesto especial de refrescos, cigarros y gasolina en México
+-  Vuelve el peaje a luca por Año Nuevo: Revisa desde cuándo y dónde se implementará la medida
+-  استطلاع| متابعينا لايصدقون تصريحات الدبيبة بأن حكومته أخضعت كل إجراءاتها للأجهزة الرقابية
+-  Байрамов и Абдоллахиан созвонились
+-  Gläubige sollen an Großpfarrei mitbauen
+-  Gospel-Chor feiert Fest der Gefühle
+-  Une nouvelle épreuve de marathon spécial "Débarquement" voit le jour dans le Bessin
+-  Desarticulan a la banda «Piratas del Tren de Aragua» en Chile
+-  2024 forecast to be a sector rotation period for Indian equities
+-  Patrimoine : connaissez-vous les neuf Petites cités de caractère des Côtes-d'Armor ?
+-  Sturmtote in Australien - Feuerwehrmann stirbt bei Einsatz
+-  Stealth guided missile destroyer INS Imphal commissioned into Indian Navy
+-  Police confirm arrest of kidnap suspects in Calabar
+-  Los robos de criptomonedas no cesan: 2023 cierra con pérdidas multimillonarias
