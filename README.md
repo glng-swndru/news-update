@@ -1,51 +1,51 @@
 # Latest News
--  “축구 감독 말고 택시 운전사가 될 뻔했어”…박지성 前 스승의 회상
--  Kamar de los Reyes of 'One Life to Live,' 'Call of Duty' dies at 56
--  إنقاذ 54 مهاجراً في بحر شمال لبنان
--  أجواء باردة وتراجع في درجات الحرارة الصغرى
--  "Aivan poikkeuksellista", arvioidaan Suomen palveluskoiraliitosta poliisikoiran etsintäsuoritusta Korpilahdella
--  아울시스템즈 ‘아울크립토 V1.0’, 국정원 KCMVP 인증 획득
--  이스트소프트, 대화형 AI 서비스 ‘앨런’ 출시
--  [인사] 아이티센그룹, 2024년 조직개편·임원인사 단행
--  NHN, 연말 맞아 지역사회와 함께 하는 다양한 나눔 활동 진행
--  메가존소프트, 구글 클라우드 업무 혁신 엔터프라이즈 부문 전문화 자격 취득
--  AWS, 홍콩 여행 라이프스타일 브랜드 캐세이의 ‘ML 혁신 허브’ 구축
--  KT, 외국인 특화 서비스 매장 ‘포리너 센터’ 오픈
--  토마토시스템, 한국사회보장정보원에 테스트 및 소스분석 자동화 솔루션 공급
--  LGU+, AI 문화생활 패턴 분석 서비스 ‘컬쳐플러스’ 활용 프로모션 다수 진행
--  카카오, ‘우리동네 단골시장 우수시장 시상식’ 개최
--  원스토어, 11월 우수베타게임에 ‘휘리릭 용사들’ 선정
--  플레이오토, 콜로세움과 주문관리시스템 연동 사업 협력
--  HD현대, 구글 클라우드와 AI 플랫폼 공동 구축 나서
--  미디어젠-ETRI, 향상된 컨볼루션 신경망 아키텍처 개발
--  클라이온, 디지털플랫폼 발전 유공 과기부 장관 표창 수상
--  이노룰스, 한화손해보험 ‘룰 시스템 고도화’ 사업 수주
--  Militants kill 3 in Uganda Christmas Day arson attack
--  Concerns As Three Inmates Escape From Ogun Correctional Centre
--  ¿Quién es el misterioso personaje que se pasea con Javier Milei por todos lados e incluso la Rosada?
--  Kadıköy’de bina çöktü: Bir işçi molozların altında kaldı
--  David Warner becomes Australia’s second-highest run scorer, surpasses Steve Waugh in list
--  غیر ملکی عازمین حج کی رجسٹریشن کا آغاز ہوگیا
--  Νέο δημοσίευμα-βόμβα από την Τουρκία: «Ο Φατίχ Τερίμ την Τετάρτη στην Αθήνα, υπογράφει για 1,5 χρόνο στον Παναθηναϊκό»
--  Варненци се радват на уникалното време, вижте къде са
--  Trafik dehşet anları! Magandalar kuryeyi defalarca darbetti
--  "영어는 틀려야 트인다"...AI 영어 회화 스픽, 이효리 앞세워 첫 TV 광고 캠페인
--  코딩 교육 기업 유리프트, 이창호-엄지윤 등 유튜브 스타 앞세운 코딩 학습 드라마 선보인다
--  클라이온, DPG 허브 인프라 구축 ISP 수립 공로 과기정통부 장관 표창
--  잘 나가는 뷰티컬리 거래액 3000억원 돌파…중소 브랜드도 '완판' 기록
--  이스트소프트, 대화형 AI 서비스 '앨런' 내놨다
--  IP 가치 지켜낸 조이시티, 中에서 프리스타일 상표권 소송 승소
--  펍지 e스포츠, 2024년 확 달라진다...국제 대회-글로벌 파트너팀 늘린다
--  [카드뉴스] 대구은행엔 AI은행원 '한아름'이 있다
--  국민 메신저 카카오톡, 올해도 9번이나 진화...'AI 요약-조용히 나가기-카톡설명서' 더했다
--  '방송 송출 1주일' 네이버 '치지직' 흥행궤도 올랐나...늘어난 관심에 "최대한 빠른 대응"
--  게임인재단, 경기게임마이스터고등학교 학생들을 위한 발전기금 1000만원 전달
--  카카오게임즈 라이브 역량 '활짝'...'썬더 브링어' 선보인 '오딘', 매출 1위 탈환
--  [같이사소] "2023년 마지막 주, 화끈하게 쏩니다"...쿠팡-티몬-위메프 '기획전'에 주목
--  [글로벌] 머스크가 만든 AI챗봇 '그록'..."정치적 편향성 보완 필요"
--  [글로벌] 'AI의 습격'이 현실로?...구글, 3만명 구조조정 계획 중
--  [글로벌] 애플, 언론사와 손잡고 AI 개발 나선다..."뉴스 사용료로 650억원 제안"
--  겨울철 심해지는 피부처짐·노화, 트리니티 리프토닝 도움
--  이니스프리, 마리떼와 컬래버 '그린티 클럽 키트' 증정
--  뷰티셀렉션 "고객 경험 중요성과 CX 담당자 역할 공유"
--  "티트리·시카 모두 담은 약산성 바디 워시"
+-  Vivendi započinje pravnu bitku s Telecom Italia
+-  هل يشهد عام 2024 عودة شيرين وحسام حبيب؟.. خبيرة أبراج تكشف مفاجأة
+-  Defensor del pueblo sugiere blindar a pacientes electrodependientes frente a cortes de luz
+-  AstraZeneca comprará la china Gracell Biotechnologies en una operación de 1.200 millones de dólares
+-  Minedu brinda oportunidades a 1.5 millones de jóvenes que no trabajan ni estudian
+-  Žakelj: Očekujem reakciju, zahtjevam borbu
+-  Atletas dos Pimpões nos Campeonatos Zonais de Juvenis
+-  Som a ostanem profesionálnym politikom, nemám už iné kariérne ambície, vraví Fico
+-  Dünyanın İlk "Tat Paylaşma" Teknolojisi Tanıtıldı: Artık Yiyeceklerin Sadece Fotoğrafını Değil, Lezzetini de Paylaşabileceksiniz
+-  Unlock the Benefits of 3D Sourcing with Innovative Solutions
+-  1:8 Ölçekli Bu İnanılmaz Ferrari Maketi, Neredeyse Gerçek Otomobil Fiyatına Satılıyor [Video]
+-  How testing wastewater could help you predict viruses in the future
+-  لم يعد بالإمكان التزام الصمت، التاريخ لا يرحم
+-  As a travel writer, I've taken many solo trips. I was surprised at how much I loved traveling with my baby.
+-  Коледно блиц разследване на BIRD за "кокаиновите моряци", задържани и обвинени за кокаина в Ирландия
+-  World News | Death Toll Rises to 18 in a Furnace Explosion at a Chinese-owned Nickel Plant in Indonesia
+-  Latest News | Gross Leasing of Office Space Up 12 Pc to Record 62.3 Mn Sq Ft This Year Across 6 Cities: Savills
+-  Σάκης Ρουβάς: Εντυπωσίασε η κόρη του Αναστασία με τις φωνητικές της ικανότητες (Video)
+-  Maharashtra Road Accident Video: गोंदिया में शादी में जाते समय खतरनाक एक्सीडेंट, हादसे में 3 की मौत और 6 घायल
+-  Économie Solidaire : 6 200 nouvelles coopératives créées en 2022
+-  Китай пусна серия пощенски марки по случай 130-тата годишнина на Мао Цзедун
+-  Man arrested after Nicosia car chase
+-  Спасовски за случајот со двојното убиство: Од аспект на МВР е целосно расчистен, доколку истрагата се прошири МВР ќе постапи
+-  Robo de cables: Copaco cambia tipificación de denuncias para mejor resultado
+-  Delta kupila građevinsko preduzeće Rad za 954 miliona dinara
+-  "A rezsimet nem tudnám kifizetni" – 87 évesen is muszáj dolgoznia Pásztor Erzsinek
+-  VIDELA SAM NJEGOVE PREPISKE SA DRUGOM CICOM, STREFIO ME JE ŠLOG: Ivan i Jelena Marinković ušli u Elitu, a ona odmah iznela turu prljavog veša
+-  Vozio neregistrirano vozilo u alkoholiziranom stanju i bez vozačke dozvole
+-  Йоав Галант намекна, че Израел атакува Ирак, Йемен и Иран
+-  Pappa gripen för mord på fru och fyra barn
+-  กรมอุตุฯ พยากรณ์อากาศ 7 วันข้างหน้า บางภาคอุณหภูมิลดลงเล็กน้อยในวันขึ้นปีใหม่
+-  Hearts Connect along the Silk Road, International Voluntary Service Seminar Held in Nanjing
+-  India News | Union Minister Hardeep Singh Puri Offers Prayers at Patna Sahib Gurudwara on Occasion of 'Veer Bal Diwas'
+-  Entertainment News | 'Dunki' Earns Rs 256.40 Crore Worldwide
+-  EN IMAGES - Jupiter et ses aurores polaires dans l'œil du télescope James Webb
+-  Is your star sign stopping you from finding love? Experts reveal the zodiac signs people are most likely to avoid on dating apps
+-  FIFA i CONMEBOL zaprijetili da će izbaciti Brazilce iz kvalifikacija za SP 2026.
+-  ΠΕΡΗΦΑΝΟΣ ο Σπιλέφσκι για την πρωτιά του Βάνα Άλβες στο Europa League!
+-  FOTO Moto Mrazovi stigli na Stradun i djeci podijelili slatkiše
+-  Guerre à Gaza: le ministère de la Santé du Hamas annonce un nouveau bilan de 20.915 morts
+-  物価高に６億円 補正予算案可決 臨時函館市議会
+-  Dino Rađa zgrabio je gazdinog sina za vrat i nokautirao ga, a onda je dobio otkaz
+-  '성탄절 도봉구 아파트 화재' 합동 감식…컴퓨터방에서 담배꽁초 나와
+-  Kanye West apologizes to Jewish community in Hebrew after ‘unintended’ antisemitic ‘outburst’
+-  Raiders Fan Scares NFL World With His Chiefs Prediction That Came Eerily True During Christmas
+-  Libur Natal, Lebih 1,3 Juta Kendaraan Melintas di Tol Tangerang - Merak
+-  Wohnhausbrand in Wächtersbach: Hinweise auf rassistisches Motive
+-  Artistas franceses denunciam "linchamento" de Depardieu, o '"último pilar sagrado" do cinema
+-  Czego szukaliśmy w Google w 2023 roku? Jeden temat zdominował ranking
+-  Hrozivá PREDPOVEĎ pre rok 2024: Vedci varujú, sme už len kúsok od tej najväčšej katastrofy!
