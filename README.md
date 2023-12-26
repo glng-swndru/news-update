@@ -1,11 +1,51 @@
 # Latest News
--  Уже 15 кандидатов на пост президента Азербайджана
--  ‘THIS IS LIKE THE 8TH TIME”: Marjorie Taylor Greene targeted by failed Christmas swatting attempt
--  Στην κηδεία του Βασίλη Καρρά ο Νίκος Ανδρουλάκης: «Περάσαμε αξέχαστες στιγμές με τη μοναδική φωνή του»
--  Love Actually axed huge storyline from the iconic Christmas film as director says ‘I let myself down there’
--  The money saving trick that gets my family two holidays for the price of one
--  MIGUNA MIGUNA blasts DCI and IG as he protests the barbaric murder of Meru-based blogger DANIEL ‘SNIPER’ MUTHIANI.
--  Blimea llora a María Jesús Montes, fallecida en un accidente de tráfico en el Corredor del Nalón: "Siempre estaba dispuesta a ayudar"
--  যানজটে আটকে পথেই শেষ ৩ দিনের ছুটি!
--  Elokuva-arvio: Selma Vilhusen uutuus kertoo hämmästyttävän taidokkaasti ja kirpeästi monisuhteisuudesta
--  OVERBLIK: Her må man ikke affyre fyrværkeri
+-  "אין לי שום כוונה להתנצל": האקסית של מרגי מגיבה לביקורות
+-  שחקני הפועל חיפה ביקרו את ליעד שמילוביץ שנפצע בקרב בחאן יונס
+-  Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region
+-  Australia reaches 187-3 after rain-interrupted 1st day against Pakistan in 2nd cricket test
+-  التعادل الإيجابي يحسم الشوط الأول بين نيوكاسل و نوتنغهام فوريست
+-  La Justicia rechazó una queja a Urribarri en el caso de enriquecimiento ilícito
+-  Drámai részletek a romániai panziótűzről: legalább hatan meghaltak, többen eltűntek
+-  Lodernde Flammen am Kleinwallstädter Feuerwehrhaus
+-  Mömlinger Solarstrom bleibt in der Region
+-  AC/DC-Rock mit Energie und Herz im Beavers
+-  Poema de María Cristina Garrido escrito en la Cárcel de Mujeres es llevado al cine de animación (VIDEO)
+-  ألمانيا تسجل تراجعا ملحوظا في أسعار الوقود وخصوصا في أسعار الديزل في 2023
+-  2-Euro-Münze wird für über 1.000 Euro gehandelt – dieses Symbol sollte jeder Deutsche kennen
+-  Bürgergeld-Empfänger will aus vermüllter Wohnung raus – „Wollen immer nur kassieren“
+-  Más de 240 muertos en las últimas horas elevan a casi 21.000 los fallecidos en Gaza
+-  Soccerladuma | In Touch With Madonsela
+-  विकास और कानून व्यवस्था में प्रदेश बने मिसाल- मुख्यमंत्री डॉ. यादव
+-  Ayra Starr Explains Inspiration Behind Her Stage Name, Recognizes Don Jazzy’s Contribution
+-  C'est lui, notre DOMOU NDAR de l’année 2023 !
+-  Mort à 56 ans de Kamar De Los Reyes (On ne vit qu'une fois, Urgences)
+-  前 맨유 공격수의 고백… “맨유 경기? 하이라이트로 봐, 선수들이 유산 못 지켰어”
+-  Super-fit footy legend almost died on Christmas Eve after mistaking deadly condition for a spot of indigestion
+-  Canelo Alvarez vs David Benavidez, Terence Crawford's rematch with Errol Spence Jr... and will Anthony Joshua vs Tyson Fury FINALLY happen? Five fights we want to see in 2024 - and how likely they are to go ahead
+-  أمين عام الأمم المتحدة: العالم غير مستعد لمواجهة جائحة جديدة محتملة
+-  Konya'da Türkiye Kulüpler Tekvando Şampiyonası başladı
+-  2 dakikada 12 milyonluk kuyumcu vurgunu!
+-  Yunan Ligi Panathinaikos puan durumu ve sıralaması | Fatih Terim Panathinaikos takımının piyasa değeri ne kadar, KAÇ TL? İşte oyuncu kadrosu ve detaylar...
+-  Student's 'Seema Haider' Answer To India-Pakistan Border Question In Exam Goes Viral; Internet In Stitches
+-  Tältä näyttää taksi, joka putosi jopa 8 metriä Helsingissä
+-  New backroom managers make the cut in the BJP in 2023
+-  Amazing footage of teen sensation Luke Littler throwing dart trick shots while still in nappies goes viral
+-  Amazing footage of teen sensation Luke Littler throwing dart trick shots while still in nappies goes viral
+-  Vigor Vita CBD Gummies – Beware Exposed! Hyped News or Real Customer Results
+-  Congress party formation day: Overview of the Indian National Congress
+-  チケット完売、最高２２万円
+-  SRK on Aryan and Suhana joining the industry: ‘it’s a choice they made`
+-  Dhirubhai Ambani Birth Anniversary: Facts about India`s business tycoon
+-  Бочкарёв: строительство метро Москвы стимулирует развитие промышленности
+-  Planina u Lici krije najskuplju tajnu Jugoslavije: Rijetki su znali o čemu se radi
+-  Omanga urges security agencies to investigate, arrest killers of Meru blogger ‘Sniper’
+-  ارتفاع ملحوظ في عدوى الأمراض التنفسية داخل البلاد
+-  En estado grave el menor de Noia herido en un accidente en el que falleció su hermano
+-  إنفانتينو يهنئ الأهلي بالتأهل لكأس العالم للأندية 2025
+-  Today’s deals: $3.50 smart plugs, $329 Apple Watch S9, free Amazon Music Unlimited, $25 Roku player, more
+-  Key Factors to Consider When Choosing an App Development Company in India
+-  Debat Capres, Indikator Politik Indonesia: Anies Dianggap Pemenang, Prabowo Penampilan Kurang Bagus, dan Ganjar Average
+-  كتاب الحامدي قيمة مضافة لمكتبة الآداب بعدن
+-  آسٹریلوی کپتان پیٹ کمنز نے غزہ کے معاملے پر عثمان خواجہ کی حمایت کردی
+-  Borsacı Nihat Özçelik'in aralarında bulunduğu 8 kişi gözaltına alındı
+-  India vs South Africa Live score: सेंचुरियन टेस्ट के पहले दिन टी ब्रेक तक भारत ने गंवाए सात विकेट, कागिसो रबाडा का पंजा
