@@ -1,51 +1,51 @@
 # Latest News
+-  Castellacci sul Milan: « Se io avessi una serie di infortuni del genere, ecco cosa farei…»
+-  Contrataciones Públicas inhabilita registro de proveedores de 8 empresas presentaron documentos falsos
+-  Shakira u rodnom gradu dobila kip od 6 i pol metara
+-  Christopher Nolan: ‘There’s No Superhero Science-Fiction Film Coming Out These Days Where I Don’t See’ Zack Snyder’s Influence
+-  مانشستر يونايتد يتقدم على أستون فيلا عن طريق هويلاند
+-  Assassinatos pela polícia aumentam 20% no primeiro ano de Tarcísio
+-  جارناتشو يسجل أول ثنائية مع اليونايتد
+-  People have lost faith in ‘family-run’ Congress, says BJP
+-  Две ракети ударили кораба "Новочеркаск", на борда имало 62-ма членове на екипажа ВИДЕО
+-  Crítica de 'Morgan': Finura rock
+-  Γκάμπριελ: Αποτυγχάνουμε στην ενσωμάτωση των μεταναστών
+-  Peskov: Spremni za mir
+-  Longevidad de la memoria de algunos simios puede ser “relativamente similar” a la de los humanos, según estudio
+-  Cappelli determina à PF investigação sobre ameaça a Lula
+-  Munster Rugby undone by Leinster once more at wet Thomond Park in URC
+-  كلمة حق بحق الشيخ أحمد صالح العيسي| كتب محمد عادل الاعسم
+-  How AI is already impacting jobs in the U.S.
+-  Ronaldo yenə birinci oldu
+-  Calcio: Al Ittihad-Al Nassr 2-5, Ronaldo batte Benzema
+-  Elias Salomonssons ord efter matchstraffet
+-  80 دقيقة.. تعادل بين مانشستر يونايتد وأستون فيلا
+-  Meginih prvih 25 godina
+-  Хойлунд забил первый гол за «Манчестер Юнайтед» в АПЛ
+-  Negligence on the part of revenue officials : మృతుడి పేరుతో పట్టాదారు పాస్‌పుస్తకం!
+-  Захарова: США сделают всё, чтобы в 2024 году тема поддержки Украины сохранялась
+-  Video: Männen i Gaza samlas ihop på stadion
+-  HSI estuda compra do Hotel Hilton Copacabana
+-  Президентът на Унион (Берлин): Целта ни е да останем в Бундеслигата
+-  Poor air quality expected in Mexico City due to weather conditions
+-  How to watch the Guaranteed Rate Bowl game: Kansas Jayhawks vs. UNLV Rebels livestream options
+-  జగన్‌ చెవుల్లో మోత మోగాలి!
+-  Detienen a presunto asesino de hombre en plaza comercial de Cuernavaca
+-  Gabbia Milan, un difensore risolverà tutti i problemi? I suoi numeri con il Villarreal
+-  Lamar Jackson might win MVP, yet no other teams wanted him during the offseason?
+-  Child, aged 6, is put on the wrong flight
 -  '포스트 김민재' 꿈꾸는 ‘안양성골’ 박종현 “최고의 팬에 어울리는 선수로“[인터뷰]
+-  A Southwest passenger says her luggage arrived soaking wet after a storm delay, damaging her wrapped Christmas gifts
+-  “Vašington će preći na Aziju, kad završi sa Evropom”
 -  Ayağının tozuyla ilk transferini yaptı! Süper Lig'in yıldızına Fatih Terim kancası
+-  Названы сроки полной газификации России
 -  [ŽT] Sunaikintas dar vienas rusų pasididžiavimas T-90M. Įgula greitai paliko tanką (Video)
 -  Arestovyčius skelbia sensaciją. „Ukraina ir Rusija turi pateikti bendrą ieškinį Vakarams“
 -  [ŽT] Rusai manė, kad išsigelbės pasitelkę seną triuką. Nepavyko (Video)
 -  ¡Estudiantes reprobados! Meduca abre inscripciones para la recuperación de notas
+-  YS Jagan : వాడుకుందాం.. ఆడుకుందాం!
+-  واشنطن: إسقاط مسيرات وصواريخ أطلقها الحوثيون بالبحر الأحمر
+-  „Halte ich für falsch“ - SPD-Ministerpräsident Weil kritisiert Sparpläne der Ampel - und fordert Korrektur
+-  Muerte de migrantes en el río Bravo preocupa a activistas de Tamaulipas
+-  Bielsa aspetta risposte, Genoa e Sassuolo possono perdere Matturro e Alvarez a gennaio
 -  Adiós al limbo de las criptomonedas: Hacienda avisa de un rastreo masivo en pocos días
--  DEVOJKA PRIJAVILA SILOVANJE NA NOVOM BEOGRADU Osumnjičeni je danas saslušan, evo kada se branio
--  Geslaagde Volkskerstzang in Meerkerk
--  Sırbistan'da seçim sonrası sular durulmuyor
--  Tinubu, 115 kişiyi öldüren saldırganların yakalanması için talimat verdi
--  Inter transferde ilk adımı atıyor!
--  ABD'den Kızıldeniz'de Husilere operasyon
--  Германия — Как помощник Томаса Эдисона придумал один из символов Рождества
--  NHL:stä hieno suomalaisuutinen - Antti Raanta tekee paluun
--  Apple Vision Pro tipped for late Jan/early Feb release
--  చర్చలు మళ్లీ విఫలం..!
--  Cristiano Ronaldo le gana el pulso a Karim Benzema, en el reencuentro de excompañeros del Real Madrid
--  Trubin e companheira estão a viver na casa de Yaremchuk
--  VMT: 59 accidentes de tránsito durante el 24 de diciembre
--  Peña oficializa a Alejandro Rubín como embajador de Paraguay en Israel
--  ארה"ב: יירטנו 12 כטב"מים של החות'ים בים האדום
--  جارناتشو يعادل النتيجة لمانشستر يونايتد أمام أستون فيلا
--  Tadić s protesta u Beogradu: Tako je i Milošević oboren
--  Alex Batty united with family at Man Utd match after vanishing six years ago
--  IZDATO ZVANIČNO SAOPŠTENJE! Oglasili se povodom smrti Janjuševog brata: Zato danas još jednom želimo da vas podsetimo...
--  بالتفاصيل.. انفجار بالقرب من سفارة الاحتلال في الهند
--  The Banks Are Not OK
--  جارناتشو ينهى صيام اليونايتد عن التهديف بعد 440 دقيقة
--  Bivši svjetski prvak na 800 metara objavio kraj karijere
--  نقابة العاملين في الصحة العمومية البيطرية
--  Scientists list 12 risk factors that could lead to dementia before the age of 65
--  Lehrmann, the Murdochs, Ita Buttrose and media’s big hits in 2023
--  Lehrmann, the Murdochs, Ita Buttrose and media’s big hits in 2023
--  Watch: “Noryang: Deadly Sea” Cast Thanks Audiences After Surpassing 2 Million Moviegoers In Just 6 Days
--  Aumento de impostos e orçamento de 2024 movimentam o Legislativo
--  NESTAO PRE 4 GODINE I OD TADA NIKO NE MOŽE DA GA PRONAĐE: I porodica odustala od potrage za fudbalerom! Kao da je u zemlju propao
--  Taiwan expands Russian sanctions to stop tech being used for arms
--  Izložba fotografija Đule Brežana u sredu u Muzeju Vojvodine
--  Police investigating alleged racial abuse after Luton star Carlton Morris reports comment from crowd at Sheff Utd
--  5 guarantees : 5 గ్యారెంటీలకు ఒకే దరఖాస్తు!
--  'The Color Purple' wins the holiday box office with second-highest Christmas debut of all time
--  14 медсестер из одного родильного отделения забеременели одновременно
--  Committee formed to monitor biomining at Brahmapuram
--  More than 1,000 people race into the sea at Tenby's annual Boxing Day swim
--  Valilik duyurdu: Bingöl'de 6 günlük eylem yasağı
--  Athlétisme : à 31 ans, Pierre-Ambroise Bosse prend sa retraite et renonce aux JO de Paris
--  ВСУ 51 раз обстреляли территорию ДНР
--  "Comboio de evacuação". Ataque russo mata polícia e fere 4 em Kherson
--  70 دقيقة.. أستون فيلا متقدم على مانشستر يونايتد (2-1)
