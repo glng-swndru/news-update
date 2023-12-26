@@ -1,51 +1,11 @@
 # Latest News
--  BJP eyes on 35 parliamentary seats of Bengal, Amit Shah targets TMC for shielding Mahua Moitra and Kalyan Banerjee
--  Ojaanajaneet uhkasivat auttamaan pysähtyneitä puukolla Rantasalmella – Sen jälkeen he ryöstivät auttajien auton
--  مصرف الامان يصدر تحذير وتنبيه هـام لعملائه بشأن بياناتهم
--  Joke Is On You
--  Przewaga popytu na rynkach akcji w USA
--  Programajánló az ünnepekre, ha már unjátok a bejglit
--  PM Modi’s YouTube Channel Surpasses 20 Million Subscribers, Much Ahead Of Other Global Leaders
--  الريسوني: طوفان الأقصى فضح نفاق الغرب وذكر العالم بالقضية الفلسطينية
--  Why Kenan Thompson Hasn't Been Hugely Open About His Divorce
--  Los campeones Chiefs y los Cowboys alargan crisis
--  Registran al menos 19 personas lesionadas por accidentes de tránsito durante asueto navideño en Barinas
--  Klopp Szoboszlaiék karácsonyi meccse előtt: "Nagyon nehéz helyzetben vagyunk"
--  إصابة 17 إسرائيليًا بقصف لبناني قرب الحدود
--  Καστρίτης: «Να είμαστε συνεπείς στην προσπάθειά μας και σκληροί στην άμυνα»
--  Gaza Israel Conflict: गाजा जंग में Iran की सीधी एंट्री..इजराइल के लिए खतरे की घंटी
--  À seulement 27 ans, elle lance sa société d'entretien de sépultures dans l'Eure
--  Psykoterapeutin löytäminen voi viedä Lappeenrannassa useita kuukausia – Vapaita aikoja tiedustellaan viikoittain
--  STL RESULT TODAY, Wednesday, December 27, 2023
--  KRIVI SU IGRAČ I NJEGOV MENADŽER Murinjo je zbog njega potpuno posedeo
--  4 عادات غذائية تسبب الإصابة بجرثومة المعدة.. وهذه طريقة العلاج بالمنزل
--  Iranski i turski predsjednik razgovaraće u Ankari o situaciji u Gazi
--  [CES 2024] Veeo, a behind-display camera tech aimed at creating a more natural webcam experience
--  سابق وزیر خارجہ شاہ محمود قریشی کی رہائی کی روبکار جاری
--  Manchin launches new political organization, listening tour
--  Tuvalu’s deal with Australia addresses rising sea level, but also China
--  حكومة أخنوش تطوي ملف أساتذة التعاقد و تسوي ملفات عالقة منذ عقود في قطاع التعليم
--  Banjir di Afrika Selatan Tewaskan 7 Orang- 11 Hilang
--  Canada downs Finland 5-2 in world junior opener
--  Au weia, FC Südtirol: Jetzt wird es richtig brenzlig!
--  هيئة الرقابة النووية والإشعاعية تعلن عن وظائف شاغرة
--  عاجل.. "القريقري" يكشف مفاجأة عن قاتل ابنه أدت للعفو عنه ( تفاصيل جديدة ومؤثرة)
--  МВД: шесть человек осудят за дистанционное хищение 15 млн рублей
--  Trabalhadores contestam novo acordo de concessão do Porto de São Tomé
--  10 tips to get started using your new Chromebook [VIDEO]
--  DOH allays fears of Covid-19 spread as 18 JN.1 cases listed
--  Adani Group infusing Rs 9,350 crore into Adani Green Energy
--  Hola, 2024: Aumentará impuesto especial de refrescos, cigarros y gasolina en México
--  Vuelve el peaje a luca por Año Nuevo: Revisa desde cuándo y dónde se implementará la medida
--  استطلاع| متابعينا لايصدقون تصريحات الدبيبة بأن حكومته أخضعت كل إجراءاتها للأجهزة الرقابية
--  Байрамов и Абдоллахиан созвонились
--  Gläubige sollen an Großpfarrei mitbauen
--  Gospel-Chor feiert Fest der Gefühle
--  Une nouvelle épreuve de marathon spécial "Débarquement" voit le jour dans le Bessin
--  Desarticulan a la banda «Piratas del Tren de Aragua» en Chile
--  2024 forecast to be a sector rotation period for Indian equities
--  Patrimoine : connaissez-vous les neuf Petites cités de caractère des Côtes-d'Armor ?
--  Sturmtote in Australien - Feuerwehrmann stirbt bei Einsatz
--  Stealth guided missile destroyer INS Imphal commissioned into Indian Navy
--  Police confirm arrest of kidnap suspects in Calabar
--  Los robos de criptomonedas no cesan: 2023 cierra con pérdidas multimillonarias
+-  مصدر يمني: هجوم حوثي على سفينة بالبحر الأحمر
+-  דפוס בארי לא יוכל להתחרות על הדואר: "המלצה שלא ניתנת בלב קל"
+-  Procuraduría suspende al alcalde de Cali, Jorge Iván Ospina, por Feria virtual en 2020
+-  Edo: Police React To Incessant Secret Cult Killings, Admits Loss Of Personnel
+-  ИИ научили идентифицировать настоящего Санту
+-  Manchester United drożeje po sprzedaży pakietu akcji miliarderowi
+-  নৌকার প্রার্থীর বিরুদ্ধে প্রচারে বাধা ও হামলার অভিযোগ সংসদ সদস্যের
+-  Recomendaciones para manipulación de fuegos artificiales
+-  Bristol Myers to buy cancer therapy company in $4 billion deal
+-  رومانوسكي تصف مستهدفي القوات الأمريكية بـ"الإرهابيين": قواتنا ضيوف في العراق
