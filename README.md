@@ -1,51 +1,11 @@
 # Latest News
--  كيف تسبب الأقدام المبللة مشكلات في القلب؟
--  В Обояни Курской области пожар уничтожил крышу жилого дома
--  Was das Publikum bei der Operette "Der Prinz von Schiras" am Theater Regensburg erwartet
--  Solana (SOL) Price Rally Is Unstoppable, Expect 100% Gains In 2024
--  LIVE TEXT | Război în Ucraina. Forțele aeriene ucrainene au distrus o navă a flotei ruse în Marea Neagră. Rusia a lansat mai multe atacuri cu drone în cursul dimineții
--  Zwang zu Wirtschaftlichkeit: Telefonbetreiber M-net kündigt Hersbrucker Kunden
--  Zwang zu Wirtschaftlichkeit: Telefonbetreiber M-net kündigt Hersbrucker Kunden
--  Kleinere Kurse und weniger NC: So bereiten sich FAU und Ohm auf den ausbleibenden Abi-Jahrgang vor
--  Das "Wolfsrudel" aus dem Trubachtal hat sich längst nicht aufgegeben
--  Das "Wolfsrudel" aus dem Trubachtal hat sich längst nicht aufgegeben
--  飛行機に「インターネットをリセットするボタン」があったという報告
--  Рік незламності гривні. На який курс валют чекати у 2024 році
--  Привітання з Новим роком 2024: красиві листівки, вірші та проза
--  Här är 10 av våra mest lästa artiklar i år – solskenshistorier, sjöfart, vargar, lotto och Sossenlärare på listan
--  Gastronomie und Einzelhandel 2023: Im Raum Fürth schließen diese Läden und Lokale für immer
--  Erlanger Richter a. D. Wolfgang Gallasch organisiert "Trinkversuche"
--  Viel Licht, aber auch etwas Schatten: Das Halbjahreszeugnis für die Kleeblatt-Profis
--  Elinvoimakatsaus | Lomautusten kasvu nosti Kanta-Hämeen työttömyysastetta – Aloittaneita yrityksiä oli marraskuussa 233, ja lopettaneita yrityksiä oli 230
--  Viel Licht, aber auch etwas Schatten: Das Halbjahreszeugnis für die Kleeblatt-Profis
--  Lappeenrannassa on yrityksiä, joita on myyty vuosia – Öljypuun myynyt Ilkka Tihveräinen kertoo, miten hän onnistui
--  Influence Map sitúa a Iberdrola como la compañía con mayor liderazgo en la COP28
--  Tämä rahanarvoinen tuki muuttuu: Jaossa 49 miljoonaa euroa
--  Das war 2023: Forchheim & das Philosophenviertel – schmutziges Ende einer platonischen Hassliebe
--  Schwerkranker Hilpoltsteiner hilft anderen, indem er sich sein Markenzeichen abschneiden lässt
--  Воронежцы выбрали самые позитивные события 2023 года в мире
--  Nur mit Steuererhöhung möglich: Gunzenhäuser Stadtrat verabschiedet den Haushalt 2024
--  „Eine Flamme, die noch immer brennt“: Ortsbekanntes Ehepaar feiert Diamantene Hochzeit
--  Zwang zu Wirtschaftlichkeit: Telefonbetreiber M-net kündigt Hersbrucker Kunden
--  ‘I’m more concerned she thought $1.19 was an appropriate tip’: Server says customer tried to play with a $25 Google Play gift card. It gets worse
--  Microsoft cuts Windows 10 support, which could turn 240 million PCs into trash – and an ewaste gold mine
--  Auftritt der Treuchtlinger Kinder am 3. Adventssonntag
--  ¿Qué pasó en GESTIÓN un día como hoy, 26 de diciembre?
--  AAP Congress: ਪੰਜਾਬ 'ਚ AAP ਤੇ ਕਾਂਗਰਸ ਨਾਲ ਗਠਜੋੜ 'ਤੇ ਅੱਜ ਲਿਆ ਜਾ ਸਕਦਾ ਫੈਸਲਾ, ਸਾਰੇ ਕਾਂਗਰਸੀ ਦਿੱਲੀ ਤਲਬ
--  Israel Says Five Gaza Hostages Found Dead in Tunnel, Circumstances Being Probed
--  Cum își relansează Ucraina producția de arme: „Am început aproape de la zero”. Dronele, noua specialitate
--  Subhashree: ‘స్పై’ బ్యాచ్‌ను కలిసిన శుభశ్రీ - పల్లవి ప్రశాంత్‌ను చాలా మిస్ అయ్యానంటూ ఎమోషనల్
--  Japón impone nuevas sanciones a tres altos cargos de Hamás
--  이병래 손보협회장 “손보업 ‘새로운 바다’ 찾겠다”
--  New York Governor Vetoes Bill That Would Make It Easier for People to Challenge Their Convictions
--  이번엔 165억 물어줄 판…‘대리모 탈세’ 쫓겨난 中여배우, 무슨 일이
--  5 Bisnis Kuliner Raffi Ahmad dan Nagita Slavina yang Gulung Tikar, karena Hype Menurun?
--  Police investigate Boxing Day house fire in Barossa Valley
--  מול "קבוצה שעושה גיהינום": הניקס מצאו את ה"אולסטאר" שלהם
--  מה נותנים לכדורגלן שיש לו הכל? "שחיתות חג במולד" בסעודיה
--  Birleşik Krallık'tan SMR açıklaması: Türk hükümetiyle ciddi görüşmeler yapıyoruz
--  İslam düşmanı akademisyen Zeliha Gizem Sayın PKK yandaşı çıktı
--  देश की खबरें | ईटानगर में डोनी पोलो हवाई अड्डे को मिला सर्वकालिक लाइसेंस, रात में जल्द शुरू होंगी उड़ान
--  Orlando Pirates star wanted at Amazulu
--  പുതുവർഷത്തിൽ നിങ്ങളുടെ ലോക്കർ ബാങ്ക് പിടിച്ചെടുക്കുമോ?
--  जरुरी जानकारी | बेहद उतार-चढ़ाव भरे कारोबार में घरेलू बाजार सपाट
+-  Beşiktaş'ın galibiyeti sonrası Rıdvan Dilmen canlı yayında söyledikleriyle gündem oldu!
+-  부여교육지원청, 올해 '초등학교 생활기록부 기재 연수' 실시
+-  GEPA, 수도권매립지 직매립 종료 정책간담회
+-  용인시 주민조례발안에 관한 조례 일부개정조례안 본회의 통과
+-  동구 ‘크리스마스 트리 문화축제’ 성료
+-  미추홀, 구청장과 ‘12월 미소 만남’ 진행
+-  부평 청년네트워크 ‘청년다움’ 워크숍 개최
+-  계양 ‘조직문화 소통 콘서트’ 개최
+-  하남시, 시민참여 혁신위원회 워크숍 개최
+-  연수 '승기천 수질·악취 개선' 원년 만든다
