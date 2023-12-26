@@ -1,11 +1,51 @@
 # Latest News
+-  Teemu Pulkkinen joutui sivuun KHL:ssä
+-  الهيئة الملكية للعُلا تنظم "واحة العجائب بالجزيرة العربية" في بكين
+-  El Nasdaq Composite registra una subida anual del 40% al cerrar los mercados al alza
+-  Cenntro Electric cumple el requisito de precio mínimo de oferta del Nasdaq
+-  Search for swimmer, 19, swept out to sea
+-  «قطر للطاقة» تنجز صفقة تخارج
+-  El Ministerio Público da detalles del horrendo crimen de la venezolana Yenny Carolina Pérez
+-  مهرجان سيف سمو الأمير الوالد «13» يناير
+-  Banditry: 10 Persons, Woman With Two Children Burnt To Death In Sokoto
+-  Avianca volverá a operar en febrero la ruta Bogotá-Caracas tras casi siete años suspendida
+-  En el umbral de un nuevo año
+-  حظك اليوم وتوقعات الأبراج 27-12: ترقية مالية لهذا البرج.. ونصائح لهؤلاء
+-  Recuperan auto robado en Pueblo Nuevo
+-  Acodeco decomisó más de 11 mil productos vencidos en el operativo navideño
+-  ManU'dan tarihi geri dönüş!
+-  Fransa'dan İsrail'e "Gazze'deki çatışmalardan endişeliyiz" mesajı
+-  TİKA'dan Küba'da "Türk Kültürü ve Dili" hamlesi
+-  Insecurity: CDS Charges Army To Remain Steadfast Against Security Charges
+-  الهلال ومانشستر يونايتد يتنافسان على نجم برشلونة
+-  عدم استقرار جوي وفرص لزخات من الأمطار في الاردن الاربعاء
+-  علاج جديد لارتفاع ضغط الدم المقاوم للأدوية
+-  유튜버 카라큘라 "그동안 많이 아팠다"…암 투병 사실 고백
+-  Venta de presentaciones pequeñas creció 41,16% en la industria farmacéutica
+-  ‘ఇద్దరు బిడ్డల తండ్రిని అలా ఎందుకు చేస్తా?’
+-  Jokowi Govt Builds 25 New Airports by 2023
+-  Евросоюз готовит план помощи Украине в обход блокировки Орбана
+-  Por qué los hipocondríacos mueren antes
+-  Transfer news LIVE: Tottenham monitoring £50m Solanke, Chelse set hefty Gallagher price EXCLUSIVE, Mbappe future latest
+-  మట్టి లేకుండా వ్యవసాయం..!
+-  Consternación en Uruguay: Asesinan a tiros a una familia
+-  NFL YouTube account posts, then removes, insulting clip of 49ers' Brock Purdy
+-  Seorang maut, 24 cedera dalam serangan balas AS
+-  [상보] 국제유가, 홍해 긴장 고조·금리 인하 기대에 상승…WTI 2.73%↑
+-  Driver arrested after car ploughs into house on Christmas Day – causing it to partially collapse
+-  Home Alone fans are only just discovering main character's dual role
 -  Eerste Kerstmarkt OBS de Tuimelaar in Nieuw-Lekkerland groot succes
 -  Harry Korporaal wint de Uitdaging met foto van een rotje
+-  CFB recruiting: Stanford lands commitment from Bay Area linebacker
+-  EUFORIJA U NOVOM PAZARU: Adem Ljajić proglašen za najboljeg sportistu grada, a onda potvrdio da ostaje u klubu
+-  హిందూ మత విశ్వాసాలను దెబ్బతీసే కుట్ర!
 -  فيرمين: نجم ريال مدريد جعلني أعاني!
+-  مصادر : امدادات الوقود الخاص بكهرباء الرئيس بعدن القادمة من مأرب قد تتأثر عقب تفجير أنبوب النفط
+-  Tahanan terkenal Rusia dipindah sebelum pilihan raya presiden
+-  El verdadero origen de la natilla, el postre más querido por los colombianos ¿no es de acá?
 -  Ads come to Amazon Prime Video at the end of January
+-  Spalletti agli italiani: "Ho chiesto a Babbo Natale il vostro tifo per la nazionale"
+-  Desarme de Leliq: Economía logró colocar otros $500.000 millones a un año
+-  Emelec: los refuerzos del Bombillo llegan sin racha goleadora
 -  EDITORIAL: PM ignored warnings about foreign interference
--  Police in Texas searching for pregnant 18-year-old who is past her due date
--  تقييم فان دايك في مباراة ليفربول وبيرنلي
--  [오늘의 정치일정] 12월 27일(수)
--  Death In Paradise Christmas Special recap: who killed Gerry Stableforth?
--  Ross County boss Derek Adams eager to cause Rangers problems at Ibrox
+-  Gazze halkının duruşundan etkilenen Norveçli genç kız İslam'la şereflendi!
