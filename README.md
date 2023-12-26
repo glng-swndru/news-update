@@ -1,51 +1,51 @@
 # Latest News
--  "אין לי שום כוונה להתנצל": האקסית של מרגי מגיבה לביקורות
--  שחקני הפועל חיפה ביקרו את ליעד שמילוביץ שנפצע בקרב בחאן יונס
--  Belarus leader says Russian nuclear weapons shipments are completed, raising concern in the region
--  Australia reaches 187-3 after rain-interrupted 1st day against Pakistan in 2nd cricket test
--  التعادل الإيجابي يحسم الشوط الأول بين نيوكاسل و نوتنغهام فوريست
--  La Justicia rechazó una queja a Urribarri en el caso de enriquecimiento ilícito
--  Drámai részletek a romániai panziótűzről: legalább hatan meghaltak, többen eltűntek
--  Lodernde Flammen am Kleinwallstädter Feuerwehrhaus
--  Mömlinger Solarstrom bleibt in der Region
--  AC/DC-Rock mit Energie und Herz im Beavers
--  Poema de María Cristina Garrido escrito en la Cárcel de Mujeres es llevado al cine de animación (VIDEO)
--  ألمانيا تسجل تراجعا ملحوظا في أسعار الوقود وخصوصا في أسعار الديزل في 2023
--  2-Euro-Münze wird für über 1.000 Euro gehandelt – dieses Symbol sollte jeder Deutsche kennen
--  Bürgergeld-Empfänger will aus vermüllter Wohnung raus – „Wollen immer nur kassieren“
--  Más de 240 muertos en las últimas horas elevan a casi 21.000 los fallecidos en Gaza
--  Soccerladuma | In Touch With Madonsela
--  विकास और कानून व्यवस्था में प्रदेश बने मिसाल- मुख्यमंत्री डॉ. यादव
--  Ayra Starr Explains Inspiration Behind Her Stage Name, Recognizes Don Jazzy’s Contribution
--  C'est lui, notre DOMOU NDAR de l’année 2023 !
--  Mort à 56 ans de Kamar De Los Reyes (On ne vit qu'une fois, Urgences)
--  前 맨유 공격수의 고백… “맨유 경기? 하이라이트로 봐, 선수들이 유산 못 지켰어”
--  Super-fit footy legend almost died on Christmas Eve after mistaking deadly condition for a spot of indigestion
--  Canelo Alvarez vs David Benavidez, Terence Crawford's rematch with Errol Spence Jr... and will Anthony Joshua vs Tyson Fury FINALLY happen? Five fights we want to see in 2024 - and how likely they are to go ahead
--  أمين عام الأمم المتحدة: العالم غير مستعد لمواجهة جائحة جديدة محتملة
--  Konya'da Türkiye Kulüpler Tekvando Şampiyonası başladı
--  2 dakikada 12 milyonluk kuyumcu vurgunu!
--  Yunan Ligi Panathinaikos puan durumu ve sıralaması | Fatih Terim Panathinaikos takımının piyasa değeri ne kadar, KAÇ TL? İşte oyuncu kadrosu ve detaylar...
--  Student's 'Seema Haider' Answer To India-Pakistan Border Question In Exam Goes Viral; Internet In Stitches
--  Tältä näyttää taksi, joka putosi jopa 8 metriä Helsingissä
--  New backroom managers make the cut in the BJP in 2023
--  Amazing footage of teen sensation Luke Littler throwing dart trick shots while still in nappies goes viral
--  Amazing footage of teen sensation Luke Littler throwing dart trick shots while still in nappies goes viral
--  Vigor Vita CBD Gummies – Beware Exposed! Hyped News or Real Customer Results
--  Congress party formation day: Overview of the Indian National Congress
--  チケット完売、最高２２万円
--  SRK on Aryan and Suhana joining the industry: ‘it’s a choice they made`
--  Dhirubhai Ambani Birth Anniversary: Facts about India`s business tycoon
--  Бочкарёв: строительство метро Москвы стимулирует развитие промышленности
--  Planina u Lici krije najskuplju tajnu Jugoslavije: Rijetki su znali o čemu se radi
--  Omanga urges security agencies to investigate, arrest killers of Meru blogger ‘Sniper’
--  ارتفاع ملحوظ في عدوى الأمراض التنفسية داخل البلاد
--  En estado grave el menor de Noia herido en un accidente en el que falleció su hermano
--  إنفانتينو يهنئ الأهلي بالتأهل لكأس العالم للأندية 2025
--  Today’s deals: $3.50 smart plugs, $329 Apple Watch S9, free Amazon Music Unlimited, $25 Roku player, more
--  Key Factors to Consider When Choosing an App Development Company in India
--  Debat Capres, Indikator Politik Indonesia: Anies Dianggap Pemenang, Prabowo Penampilan Kurang Bagus, dan Ganjar Average
--  كتاب الحامدي قيمة مضافة لمكتبة الآداب بعدن
--  آسٹریلوی کپتان پیٹ کمنز نے غزہ کے معاملے پر عثمان خواجہ کی حمایت کردی
--  Borsacı Nihat Özçelik'in aralarında bulunduğu 8 kişi gözaltına alındı
--  India vs South Africa Live score: सेंचुरियन टेस्ट के पहले दिन टी ब्रेक तक भारत ने गंवाए सात विकेट, कागिसो रबाडा का पंजा
+-  Dozens of French actors denounce 'lynching' of Depardieu
+-  PM Dahal addresses the nation
+-  Nooddijk van 6 meter boven NAP houdt Houten Huisje droog: ‘Ver-schrik-ke-lijk, ik ben toch blij dat ik vijf hoog woon’
+-  [일월선사 오늘의 운세] 2023년 12월 27일 수요일 띠별 운세
+-  추위 녹이는 햇빛
+-  هل وضع المكياج يوميًا يسبب سرطان؟.. هذا ما يحدث للجسم
+-  خريطة الأسعار اليوم: جنون الذهب وزيادة السكر والحديد وهبوط السمك البلطي
+-  Seydişehir'de şehitler için gıyabi cenaze namazı kılındı
+-  Ağrı'da uçuruma düşen iş makinesindeki 4 kişi toprağa verildi
+-  Beyşehir'de şehitler için helva dağıtıldı
+-  Muttaqi says ‘islands of power’ in Afghanistan have been totally eliminated
+-  Fotbollsstjärnans mardröm – måste opereras
+-  (سيلا) .. طفلة غزيّة دوّنت أمنياتها لكن الاحتلال لم يمهلها - فيديو
+-  إصابتان بقصف إسرائيلي على جنوب لبنان
+-  The Simpsons tackles mad real-life scandals – and no stone is left unturned
+-  Seks, sifilis i brzina: Bio je seksualna zvijer, varao je čak i svoje ljubavnice, a imao ih je 3000!
+-  Inga ryssar i ridsport i sommar-OS – missat kvalen
+-  Ces projets qui vont changer l’image de la région de Casablanca-Settat
+-  Isak (ex-Willem ll) opent Boxing Day-rekening: kerstvreugde op St. James Park
+-  Väkivaltaisuudet Gazassa ja Länsirannalla jatkuneet – palestiinalaisviranomaisten mukaan Israel surmasi kaksi ihmistä Fawwarin pakolaisleirillä
+-  Flights and Airports: Brands' Preferred Target for Premium Audiences?
+-  Obavezna rezerva 292,05 miliona EUR
+-  Sjukhushästen Snöboll besöker sjuka barn: ”Djuren får oss att glömma det svåra”
+-  Storm och hagel fara i kappseglingen Sydney–Hobart
+-  رئيس أركان الجيش الإسرائيلي السابق دان حالوتس: خسرنا الحرب وصورة النصر هي الإطاحة بنتنياهو
+-  «Θα τον θυμόμαστε πάντα» - Ποιοι επώνυμοι έδωσαν το παρών στην κηδεία του Βασίλη Καρρά
+-  Lauterbach gewinnt Wette, wenn Leverkusen Meister wird
+-  El mayor portal de la industria láctea desembarca en México
+-  27% منهم ضباط.. ارتفاع عدد قتلى جيش الاحتلال الإسرائيلي في غزة
+-  Bristol Myers compra RayzeBio por US$4.100 millones reforzando su terapia contra cáncer
+-  أسواق جنوب شرق آسيا تتصدر حجوزات رأس السنة للمقاصد السياحية المصرية
+-  طرح تذاكر نهائي السوبر بين الأهلي وفيوتشر
+-  Misszióban szolgáló magyar katonák üzentek
+-  Bakan Işıkhan: Asgari ücrette 3. toplantı için henüz karar almadık
+-  Boxe: Naoya Inoue terrasse Marlon Tapales par KO et devient le roi incontesté des poids coqs
+-  Джерард планира сериозна зимна селекция
+-  MSC container ship anchored in the North Sea after bomb threat
+-  「スーパークレイジー君」保釈、土下座して謝罪 不同意性交で起訴
+-  Indian Army's Plan For Finishing Terrorist: जम्मू कश्मीरच्या Poonch, Rajouri सेक्टर मध्ये लष्कराने वाढवले सैन्य; दहशतवाद्यांच्या खात्म्यासाठी कसली कंबर
+-  هل تعود شيرين إلى حسام حبيب في 2024؟.. خبيرة أبراج تكشف مفاجأة
+-  Türkiyədə ən uzun ömür hansı şəhərdədir?
+-  بدء صرف الحوالات النقدية في هذه المحافظة
+-  Bashkohen dy anët e “Tunelit të Murrizit”, Rama dhe Balluku inspektojnë punimet
+-  «الصحة» تغلق عيادة تجميل وتوقف طبيباً عن العمل وتحيل المخالفات إلى «المسؤولية الطبية»
+-  La barcelonista Putellas se someterá a una operación de la rodilla
+-  Bristol-Myers Squibb adquirirá RayzeBio por 4.100 millones de dólares
+-  Jairo Concha no sigue en Alianza Lima: club anunció la salida del volante tras 3 años
+-  ВСУ се опитват да ликвидират пробив на руските войски към Часов Яр
+-  El mayor enemigo: un tanque PT-91 ucraniano Twardy se hunde en una trampa natural | Video
+-  La plataforma "Derecho a la Vida" ha logrado que 63 madres sigan adelante con el embarazo
