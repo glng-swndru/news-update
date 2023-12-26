@@ -1,51 +1,11 @@
 # Latest News
--  Karlstadt: Ungebetener Weihnachtsbesucher
--  NBA Top 10 du Christmas Day : Giannis Antetokounmpo touche le plafond du Madison Square Garden
--  דגו: "כרגע שימיץ' לא ברוטציה וקצת מתקשה. נצטרך אותו בהמשך"
--  הנהלת מ.ס. אשדוד מבקשת מראש העיר להתיר כניסת קהל לאצטדיון
--  مصير (أواكس) صدام حسين - صور
--  اليرموك تبدأ بتوفير الإنترنت المجاني لطلبتها داخل الحرم الجامعي
--  تركيا.. القبض على الكويتي المطيري بسبب القذافي!
--  تأجيل القروض للشركات المتعثرة في القطاع السياحي
--  VIDÉO - Permis de conduire dès 17 ans : ce qui va changer le 1ᵉʳ janvier
--  플레이오토·콜로세움, 주문관리시템 연동 완료
--  토마토시스템, 한국사회보장정보원에 ‘아이큐봇' 구독 서비스 제공
--  씨디네트웍스 “랜섬웨어, WAAP로 차단”
--  벨로크, ‘팍스 3.0’ GS인증 1등급 획득
--  스마트레이더시스템, ‘2023 대한민국 ICT 대상’ 과기정통부 장관 표창 수상
--  AWS, 캐세이 전략적 클라우드 사업자로 선정
--  메가존소프트, 구글 클라우드 업무 혁신 전문화 자격 취득
--  Головин: я точно хочу жить только в России, без вариантов
--  Афв этилган «вагнерчилар»га нисбатан 195 та жиноий иш очилган.
--  Profee орқали Европадан Ўзбекистонга пул жўнатишнинг 5 сабаби.
--  Россия Марйинка харобалари эгалланганини эълон қилди. Бу шаҳар қандай аҳамиятга эга?.
--  VIDEO: Emeka Ike’s ex-wife started fight, slapped him twice
--  So werden wir immer naiver gemacht | Michael Nehls bei Max Otte
--  6 أطعمة ومشروبات يمكنك تناولها على معدة فارغة
--  ارتفاع أسعار الحديد والأسمنت في الأسواق اليوم الثلاثاء (موقع رسمي)
--  عاجل.. خطوات سداد فاتورة الكهرباء برقم الحساب
--  Пожар на месте атаки ВСУ в Феодосии ликвидировали
--  “尹정권 ‘가짜뉴스 때리기’ 민낯 드러나…방심위원장 청부 민원 배후 밝혀야”
--  방심위원장 ‘민원신청 사주’ 의혹 터지자 인용보도 금지에 공익제보자 색출까지
--  "방송통신 관련 수사나 변호 경력 있나" 질문에 김홍일 후보 답변은
--  김홍일 후보, 살인 누명 사건 피해자 사과했느냐 질문에 “늘 미안한 마음”
--  김홍일 청문 서면 답변 '어디서 많이 봤는데?'…전임 이동관 답변과 '복붙' 유사
--  고민정, ‘민원 사주’ 류희림에 “도둑 신고했더니 신고자 조사?”
--  윤 대통령 "많은 기업인들과 쉴 새 없이 해외시장 누빈 이유는…"
--  Vater auf der Flucht: Frau und vier Kinder tot in Wohnung nahe Paris aufgefunden
--  Türk kahvesi paketine İsrail bayrağı yerleştirdiler!
--  อุ๊ย! อดีตคู่รักนักร้อง ดินเนอร์ค่ำคืนคริสต์มาส กองเชียร์แห่ลุ้นโอกาสรีเทิร์นรัก
--  MSB duyurdu: 18 kişi yakalandı
--  76ers sweat over Embiid fitness
--  Обновленная услуга роуминга перед Новым годом от Azercell
--  和歌山市ツタヤ図書館、所在不明本が急増…1度に7千冊を除籍、CCC運営で
--  Ricci Milan, aumenta il pressing: può lasciare il Torino con questa offerta
--  Prezident Rusiyadadır
--  &quot;POŠTOVAĆE SE VOLJA GRAĐANA&quot; Mali: Opozicija da odluči da li Beograd ruše „njihovi saborci ili ubačeni elementi“
--  Цените на петрола остават почти без промяна в азиатската търговия
--  يتقدم على هالاند ومبابي.. لاعب جديد على عرش الأغلى في العالم
--  'Aha dayıya sor' sözüyle ünlenmişti! Yıllar sonra bakın nerede ortaya çıktı! Son halini görenler gözlerine inanamadı!
--  Bakan açıkladı: Yılbaşı ürünlerine denetim geliyor
--  “트위치 이용자 모셔라”…네이버-아프리카TV 각축전 본격화
--  Glädjebeskedet: Tågen rullar igen
--  Vučević: Kurti nastavlja teror nad Srbima
+-  10 günde değeri yarı yarıya düşen şirket: "Yatırımcıların kararını olumsuz etkileyebilecek gelişme bulunmamakta..."
+-  देश की खबरें | क्रिसमस पर मोदी के साथ दोपहर भोज की तस्वीरे साझा की अभिनेता डिनो मोरिया ने
+-  Chikki Chaat Video: सूरत में यह शख्स बेच रहा है चिक्की चाट, वीडियो देख इंटरनेट पर भड़के लोग
+-  "Azercell" yenilənmiş rouminq xidmətini təqdim edir
+-  Шор: внешнее управление Европы принесло жителям Молдавии лишь бедность
+-  Bei Baerbock fällt Weihnachten ins Wasser – bittere Diagnose für Ehemann
+-  Hollywood movie star horrifies fans with ‘dirty detail’ in shots from his mansion
+-  Ruši li Zapad Vučića? “Oporba je potpuno razjedinjena, Vučić je Zapadu najprihvatljiviji”
+-  Ranbir Kapoor-Alia Bhatt reveal daughter Raha’s face: முதல் முறையாக குழந்தை முகத்தை ரசிகர்களுக்கு காட்டிய ரன்பீர் ஆலியா... குழந்தை யாரை போல இருக்கிறார்?.!
+-  연말까지 큰 추위 없지만…당분간 고농도 미세먼지 기승
