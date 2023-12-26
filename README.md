@@ -1,51 +1,11 @@
 # Latest News
--  Instituto prevê normalização da sazonalidade do preço do leite em Mato Grosso
--  Caso Chocolate: dictaron la prisión preventiva para los Albini
--  عاجل.. بدء تطبيق إعفاء المواطنين من تأشيرة السفر إلى تركيا
--  بالفيديو.. حالة مطرية على جدة
--  "تسرق أموالك في لحظات".. مختص تقني يحذر من روابط منتشرة على تليجرام
--  5 مزايا في ويندوز 11 أوقفتها مايكروسوفت في 2023
--  هل يمكن إضافة المشتركين في التأمينات أون لاين؟
--  Kickoff | Hojlund seals impressive comeback win for Man Utd
--  Atento Boca: Marcos Rojo fue tentado por Inter Miami para jugar con Messi
--  Xi Jinping apresenta ordem de promoção a novos generais
--  “Sos un guerrero”: el noble gesto del Dibu Martínez con un niño que terminó su tratamiento oncológico
--  The 17 Best Games For Sony’s PlayStation 5
--  לוח מקולל עתיק שנועד לזמן את השטן נמצא חבוי בשירותים
--  Shakira es homenajeada con estatua de más de 6 metros en Colombia: “Me siento honrada y conmovida”
--  Mercado: ¿Por qué el regreso de Jorge Sánchez al América no es necesario para el equipo?
--  La modificación de retenciones se discutirá en sesiones extraordinarias
--  Atividade de demonstração da gala rural de 2024 é lançada na China
--  Tiešraide: Rubene - Jogeva Latvijas-Igaunijas florbola līga
--  MALOLETNIK IZGUBIO ŽIVOT KOD NOVOG SADA Teška nesreća se dogodila oko 22 sata
--  KATARINA GRUJIĆ ŠOKIRALA IZJAVOM UŽIVO U PROGRAMU! Otkrila šta je radila sa Amidžićem, da li je moguće da su OVOLIKO BLISKI?
--  ‘무려 2,500억!’ 벨링엄-홀란-음바페, 축구선수 몸값 1위 등극…30대 선수 중 케인 홀로 10위권
--  Il Manchester United rimonta l’Aston Villa: decisivo il gol di Hojlund
--  Heyelanda yola düşen kayanın isabet ettiği otomobil uçuruma yuvarlandı
--  SÕJAKOKKUVÕTE | Navalnõi leitud
--  MILJANA KULIĆ ZAKUKALA NA SAV GLAS Zola joj konačno sve priznao, ona ne može da dođe sebi: "Nikad me nisi voleo"
--  Brock Purdy MVP bettor opens up on $125K Christmas debacle
--  Dozens of Minnesota dairy farms folded in November, state association reports
--  "Ferstapen se neće povući, želi da stigne Hamiltona"
--  Everton vs Man City live stream: How to watch Premier League game online
--  Empresas estrangeiras abandonam o plano de estabelecer fábricas nos EUA, diz mídia chinesa
--  AYM skandal Can Atalay kararında ısrarcı: Herhangi bir mercii bu kararı denetleyemez
--  Bayburt'ta bir kadın boğularak öldürdü
--  SPEKTAKULARAN PREOKRET MANČESTER JUNAJTEDA: Ludnica na "Old Trafordu" Crveni đavoli se vratili iz PONORA i srušili Aston Vilu!
--  Leicester City son anda yıkıldı!
--  Resmi Gazete'de bugün (27.12.2023)
--  ABD, Kızıldeniz'de İHA, balistik ve seyir füzesi düşürdüğünü duyurdu
--  He took joyride at White Bear Lake dealership Christmas morning, charges say
--  Alexander Blessin: "Sur le penalty de Bruges, mon staff m'a directement dis qu'il y avait faute de main"
--  Yel-Yel 'Solo Bukan Gibran' Diteriakkan, Prabowo: Mari Berdemokrasi dengan Sejuk
--  Ariana Grande and boyfriend Ethan Slater spotted on rare outing in NYC during dinner date with her dad
--  حكومة غزة: جيش الاحتلال دنس جثامين 80 فلسطينيا سلمها مشوهة وسرق أعضاءهم
--  Video: Exmánager de Canserbero confesó haberlo drogado y asesinado a puñaladas
--  Ibovespa fecha acima dos 133 mil pontos pela primeira vez na história
--  Segunda Tormenta Invernal traerá bajas temperaturas a Parral: Protección Civil
--  Quatre chefs d'accusation planent sur Ndella Madior Diouf
--  Last chance! Take $400 off the Purple Plus during Purple's after-Christmas mattress sale
--  Plane held in Paris airport on suspicion of human trafficking leaves for Mumbai
--  Detalji stravične nesreće u BiH u kojoj je preminuo pješak: Kamiondžija izlazio iz vozila, pa ga pokupio Ford
--  ManU nousi kanveesista - jättihankinta sai viimein maalitilinsä avattua
--  Explorando novas fronteiras: Apostando no Parimatch Brasil com Bitcoin
+-  Eerste Kerstmarkt OBS de Tuimelaar in Nieuw-Lekkerland groot succes
+-  Harry Korporaal wint de Uitdaging met foto van een rotje
+-  فيرمين: نجم ريال مدريد جعلني أعاني!
+-  Ads come to Amazon Prime Video at the end of January
+-  EDITORIAL: PM ignored warnings about foreign interference
+-  Police in Texas searching for pregnant 18-year-old who is past her due date
+-  تقييم فان دايك في مباراة ليفربول وبيرنلي
+-  [오늘의 정치일정] 12월 27일(수)
+-  Death In Paradise Christmas Special recap: who killed Gerry Stableforth?
+-  Ross County boss Derek Adams eager to cause Rangers problems at Ibrox
