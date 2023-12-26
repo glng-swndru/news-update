@@ -1,51 +1,11 @@
 # Latest News
--  התלונות נגד השופט איתי הרמלין נדחו מהסיבה הפשוטה - הן לא היו נכונות
--  MEF avanza con el traspaso del Cerro Ancón al Ministerio de Ambiente
--  Hasta dompes y motos ‘brincan’ caseta Sacramento por brecha
--  Disparition d'Émile: la mère du jeune agriculteur dont la maison a été perquisitionnée témoigne
--  Topánokkal házalt Pataki Ági férje
--  Миньончето, което мечтае за гадже-футболист, показа апетитно тяло и по Коледа
--  ¿Farmacias Similares abre el 31 de diciembre? Simi anuncia esto
--  Today’s Lely Radio Sports Page 12/26/23
--  Old Trafford odlazi u povijest? U Unitedu se sprema golema promjena koju je zaželio čak i Ronaldo
--  UBS presenta sus 24 mejores selecciones de valores para 2024
--  Pro Research: Wall Street se fija en el crecimiento estratégico de Apollo
--  Nach UEFA-Niederlage: Weber will Fußballmarkt regulieren: Nein zu Super League
--  News24 | Here are the Daily Lotto numbers
--  El reto de Arévalo en Guatemala es frenar el “deterioro democrático”, según diputado
--  Опасност за наводнения и скъсани язовирни стени в Германия
--  Accidente de tránsito en Sucre deja varios heridos
--  JENI ALEXANDER: Slow down, take stock, show gratitude and set intentions
--  Празничен подарък: по-евтин бензин и дизел
--  «Man skulle ikke tro at du var bipolar.» Hvordan skulle jeg i så fall ha vært?
--  Histoire : Tahar Zbiri, premier chef de l'armée algérienne accueilli par le Maroc
--  Quem é o radialista que morreu no Sul de SC: “Profissional talentoso”
--  التحقيقات مستمرة.. نقل جثماني "المواطن ورفيقه الكويتي" إلى الكويت غدًا
--  حتى السادسة من مساء الغد.. إنذار أحمر بـ 7 متغيرات جوية على المدينة
--  Песков назвал неформальный саммит СНГ в Петербурге удачным
--  Americká hviezda sa pochválila novou láskou: Zbalila ZNÁMU ČEŠKU... FOTO ako dôkaz!!
--  Comisión legislativa inicia análisis de la ley urgente de competitividad energética
--  ليفربول يستعيد الصدارة بثنائية في بيرنلي
--  Rewe-Kundin will neues Angebot nutzen – und traut ihren Augen nicht: „Hallo? Was ist mit dir?“
--  „Leave The World Behind“: Netflix-Blockbuster blendet Hinweis ein – Zuschauer völlig irritiert
--  فيديو: النصر يسجل خامس أهداف الكلاسيكو
--  Har det ikke vært forferdelig mange vær-rekorder i år? Vi sjekket.
--  Zim rescues Zambian patrol boat in distress
--  غوارديولا يوجه رسالة قوية للجميع
--  AJ Francis Announces Gig at the Cheez-It Citrus Bowl
--  Liverpool beat Burnley to top table, Forest win at Newcastle
--  Summer storms to continue across New South Wales
--  صلاح لم يتمكن من المساهمة ضد الأندية الصاعدة للبريميرليج هذا الموسم
--  الدبيبة يتنازل عن 40% من حقل نفطي ليبي لشركات أجنبية.. استثمار أم صفقة سياسية؟
--  États-Unis: un livre emprunté dans une bibliothèque rendu avec 90 ans de retard
--  $51m Velazquez painting vanishes ahead of auction
--  São Tomé e Príncipe regulariza fornecimento de eletricidade após dois meses de cortes frequentes
--  Rebelii houthi revendică două atacuri în Marea Roşie şi spre Israel
--  Минобороны РФ: системы ПВО за сутки сбили два украинских Су-24
--  بعد تسجيل 30 اصابة .. صحة اربد: سموم الفطر لا تزول بالطهي
--  60 شهيدا بقصف إسرائيلي لعمارة سكنية بغزة
--  رغم استبعادها من الفيلم .. بطلة الصرخة تواصل دعم غزة
--  النشامى يغادر إلى لبنان بدون الروابدة وعلوان
--  قنابل الاحتلال الغبية تدخل غزة قائمة الأكثر دمارا في التاريخ
--  Jornalistas já angariaram mais de 10 mil euros e ajudaram 37 precários do Global Media Group
--  Christmas Day stabbing leaves man dead in Arkansas
+-  'Paradokssuz zaman yolculuğunun' formülü bulundu
+-  Frau bei Frontalcrash in Obernburg leicht verletzt
+-  İsrail, naaşlarına el koyduğu 80 Filistinlinin cenazesini teslim etti
+-  İsrail ordusu, Kızıldeniz'de bir "düşman hedefine" müdahale ettiğini duyurdu
+-  Canel: Küba, Filistin için sesini daima yükseltecek
+-  Ronaldo rekor kırdı, Al Nassr galibiyete uzandı!
+-  Tumbes: Lloviznas inundan calles e impiden el tránsito de vecinos
+-  Uso de pirotécnicos puede afectar la salud de personas con Trastorno del Espectro Autista
+-  Sydney to Hobart Yacht Race 2023 LIVE: Line honours contender retires as boats head into Bass Strait
+-  صور أقمار اصطناعية: جيش الاحتلال يحاول التموضع بخان يونس
