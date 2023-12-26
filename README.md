@@ -1,11 +1,51 @@
 # Latest News
--  Hallan un campamento prehispánico en el sur de México donde los mayas cocinaban caracoles
--  Комисия на турския парламент подкрепи влизането на Швеция в НАТО
--  అంగన్‌వాడీలపై చిన్నచూపు తగదు
--  Estas serán las tendencias de consumo para 2024 según un estudio de Euromonitor
--  Suomen avausmaalin iskenyt Aleksanteri Kaskimäki ei masentunut Kanada-tappiosta: "Oli meillä paljon hyviäkin hetkiä siellä"
--  రూ.20లక్షల విలువైన అల్ర్ఫాజోలం పట్టివేత
--  סמוטריץ וגלנט מכריזים על תכנית הסיוע לחיילי המילואים
--  Here's what to know about Turkey's decision to move forward with Sweden's bid to join NATO
--  Gas prices spike as Floridians hit the road during peak holiday travel period
--  Telcoin Acts Fast to Secure Platform Post-Multi-Million Hack
+-  Fenerbahçe, Süper Kupa hazırlıklarına tam gaz devam ediyor!
+-  Bandırmaspor'da Hüseyin Eroğlu dönemi!
+-  UAEA, İran'ın zenginleştirilmiş uranyum üretimini artırdığını belirtti
+-  İsrail ordusu, Gazze'de 2'si subay 3 askerinin daha öldürüldüğünü duyurdu
+-  نيران المقاومة تلاحق الاحتلال وآلياته في غزة
+-  From Parineeti-Raghav to Alia-Ranbir, celebs jet off for New Year vacays
+-  JEZIVO PORODIČNO NASILJE U OBRENOVCU: Pijani muž prvo psovao i vređao ženu, a onda je tukao pesnicama
+-  ŽIVAN IMA 106 GODINA, A OVO JE NJEGOV SAVET ZA DUGOVEČNOST: Najstariji Srbin je za života služio kralju, Draži i Titu! VIDEO
+-  ప్రజాప్రతినిధుల ఇళ్లను ముట్టడిస్తాం..!
+-  5 أعراض إذا ظهرت عليك دليل على إصابتك بسرطان العظام
+-  الأبراج الأكثر حظا في 2024.. أموال في الطريق إليهم وسعادة
+-  "آي صاغة": أسعار الذهب غير حقيقية وتخضغ لأوهام العرض والطلب
+-  Saadet Partili Ömer Faruk Yazıcı: Faizi, kumarı, çeteleşmeyi kabul etmiyoruz
+-  300 شهيد من الأطباء والمسعفين في غزة
+-  أوتافيو: رئيس بورتو طردني من مكتبه بسبب النصر
+-  كيف دمرت شواظ القسامِ أسطورةَ ميركافا الإسرائيلية؟
+-  Ylikonstaapeli kertoo Kuha-koiransa uroteosta: ”Nakkeja ja rapsutuksia on annettu tavallista enemmän”
+-  Fiscal: A Canserbero y Molnar los mató Natalia Améstica por odio hacia ambos
+-  احتياجات المرأة في المكاتب التنفيذية ورشة عمل نظمتها إدارة تنمية المرأة بعدن
+-  Pogledajte trenutak uništenja ruskog ratnog broda
+-  రేపటి నుంచి ప్రజాపాలన
+-  Üstün Kamera Performansı ile En İyi Yılbaşı Hediyelerinden: vivo V29 5G
+-  I shake with terror when I see anyone in a white coat – I can’t live like this
+-  Doctor Who'nun Yeni Sezonundan Fragman Geldi: Çıkış Tarihi de Belli Oldu
+-  High water levels making Boxing Day very busy for Dutch emergency crews
+-  Komisija turskog parlamenta odobrila kandidaturu Švedske za NATO
+-  Spoljnopolitički odbor turskog parlamenta odobrio kandidaturu Švedske za članstvo u NATO
+-  Hochwasser: Lage im Main-Spessart-Kreis entspannt sich
+-  Warum Mömlingen kein Problem mit der Flüchtlingssituation hat
+-  Hochwasser zeigt sich gnädig
+-  వ్యూహం సినిమాను బ్యాన చేయాలి
+-  ప్రజల భాగస్వామ్యంతోనే శాంతిభద్రతల పరిరక్షణ
+-  2023 en France : la deuxième année la plus chaude après 2022
+-  Two wounded in East Oakland shooting
+-  Two wounded in East Oakland shooting
+-  Panathinaikos, Fatih Terim'i resmen duyurdu!
+-  Bakan Bolat: Kişi başı milli gelirimiz, 12 bin 500 dolara yükselecek
+-  Turgay Olcayto istifa etmişti... TGC'de yeni genel başkan belli oldu!
+-  Южная Корея запретила поставки автомобилей в Россию - САНКЦИИ
+-  JANJUŠ ZAVRŠIO U BOLNICI? Isplivao skandalozan snimak iz Elite, iznose mu odeću u DŽAKOVIMA
+-  POČEO PROTEST ISPRED RIK Blokiran saobraćaj u Ulici kralja Milana
+-  Dünya Gıda Programı Filistin Direktörü AbdelJaber: Gazze’de milyonlarca insan aç
+-  Bivši kapiten se vraća u Zvezdu
+-  Uhapšeno pet osoba u Novom Sadu: Proneverili novac, pa zgrnuli milione
+-  Beograd opet blokiran: Pristalice Đilasa zaustavile saobraćaj u Kralja Milana
+-  Krste Velkoski promjenio klub, novi je fudbaler Makedonije GP
+-  XV de France : Galthié a choisi son nouveau crack ?
+-  Los mejores memes que marcaron 2023: desde mi primera chamba hasta "la queso"
+-  Luis Miguel: el nuevo dueño de la marca de tequila Don Ramón
+-  Shalini Tai Patil On Ajit Pawar : अजित पवार सामाजिक क्षेत्रात काम करण्यास अयोग्य - शालिनीताई पाटील
