@@ -1,11 +1,51 @@
 # Latest News
--  Tapusuz gayrimenkul satılabilir mi?
--  Terör örgütünün sözde Süleymaniye sorumlusu etkisiz!
--  Oryantiringte şehitleri anma yarışları sona erdi
--  İşte yeni polis araçları! Suç örgütlerinden ele geçirilen araçlar emniyete verildi
--  1800 rakımdaki köyde ev ve ahırlar kara gömüldü
--  22 yaşındaki genç sokakta bıçaklandı, kaldırıldığı hastanede öldü
--  창원하수도사업소, 지속가능한 하수도사업 기반 구축 마련 총력
--  영천, 경북도 식량시책 평가 최우수상 수상
--  박성연 서울시의원 "대학생 아침밥 지원 제도적 근거 마련"
--  ‘공중보건위기 극복 상생·협력 성과대회’ 우수상
+-  Иран пришел в СССР, без обуви, но с ракетами
+-  Путин ждет разъяснений от Пашиняна
+-  La Bolsa de Tokio sube un 0,16 % ante las esperanzas de solidez en Wall Street
+-  Triumph Offshore adelanta el pago de la deuda del proyecto FSRU de Gujarat
+-  Una densa niebla interrumpe los vuelos y trenes en Nueva Delhi
+-  Microsoft se prepara para Arm con Windows 12 y soporte para Snapdragon X Elite
+-  Emre Belözoğlu: Son 45 dakikalardan memnun değilim
+-  تراجع في أسعار الذهب اليوم الثلاثاء.. وعيار 24 يسجل 248 ريالًا
+-  أسعار العملات اليوم الثلاثاء.. الفرنك السويسري يسجل 4.39 ريال
+-  Na domácej wi-fi treba mať silné heslo: Dôležité je aj umiestnenie routra
+-  بردية هائلة.. شاهد حجم كرات البرد المتساقط على الحرة في الطائف
+-  17 yaşlı qızın yaşadığı evə zorla girib onu öldürübmüş
+-  Сибирскую фирму признали недобросовестной из-за плохого надзора за псковской городской свалкой
+-  बीजेपी में बदलाव की बयार, पुराने दरकिनार, नए चेहरों का उभार, 2024 के लिए तैयार सियासी आधार
+-  OTKRIVENO KO PEVA U BEOGRADU ZA NOVU GODINU!
+-  الاحتلال يعلن مقتل ضابط وجندي في غزة والعدد يرتفع إلى 491
+-  Жителя Старожилова будут судить за кражу
+-  Yeni Şafak Yazarından İlginç Asgari Ücret Yazısı! Kaldırmak İçin Doğru Zamandayız
+-  Tanque kariyer rekorunu yakaladı
+-  Slade fans are just realising the REAL lyrics to Merry Xmas Everybody after Noddy Holder’s wife reveals ‘right ones’
+-  МВД России объявило в розыск создателя сериала "Масяня"
+-  Ankita Lokhande Recalls Seeing Sushant Singh Rajput's Kissing Scenes In Shudh Desi Romance; 'Main Royi Ghar Jaake'
+-  Fernando Alonso, solo faltó 'la 33' el año en el que volvió la magia
+-  सिर्फ Air India या IndiGo नहीं, सरकार के इस काम से होगा आपका भी फायदा
+-  अमेरिका की ओर क्यों बढ़ रहा शरणार्थियों का हुजूम? 2 साल में 20 लाख गिरफ्तार
+-  الدفاع الإيرانية تتوعد الاحتلال بـ"دفع ثمن مؤلم" على اغتيال موسوي
+-  Kina objavila plan za promovisanje zajedničkog prosperiteta kroz digitalnu ekonomiju
+-  Aumenta el riesgo de incendios forestales en Australia por una extensa ola de calor
+-  Primero módulo de aterragem lunar do Japão entra na órbita da Lua
+-  Волф призна: Пренебрегвахме важен елемент в годините на доминация
+-  الذهب يرتفع في ظل تراجع الدولار
+-  Australia storm cuts power to 110,000 homes, kills one
+-  On bir ayda 21 uşaq qəza qurbanı olub
+-  تقنين زراعة القنب الهندي لأغراض مشروعة أطلق دينامية تنموية محلية
+-  비대위원장 수락한 한동훈 "김건희 특검법은 총선용 악법"
+-  Over 6m High Waves Forecasted in North Natuna Sea, BMKG Says
+-  Gründungsmitglied der „Chicks“ bei Autounfall gestorben
+-  QRIS Sempat Viral Ditolak Pedagang, Kini Laris Jadi Primadona Transaksi
+-  Спецназовцы придумали схему уничтожения пехоты ВСУ двумя минометами
+-  اشنا شاہ نے عثمان مختار کیساتھ نفرت سے دوستی تک کی کہانی سنا دی
+-  South Korean shares mixed in thin trading
+-  김태흠 충남도지사 "사상최대 증액 '국비 10조 시대' 개막"
+-  رغم فوائدها.. 7 أضرار للإفراط في تناول الألياف
+-  الزيوت العطرية.. سلاح طبيعي للوقاية من التهابات الجهاز التنفسي
+-  BREAKING: Lalan Singh Steps Down As Janata Dal-United President, Sends Resignation To Nitish Kumar, Say Sources
+-  Νιούκαστλ – Νότιγχαμ Φόρεστ με ειδικά στοιχήματα
+-  ครม.เคาะขึ้นค่าแรงขั้นต่ำ 2-16 บาท เริ่ม​ 1 ม.ค. ตั้ง กก.พิจารณาอีกครั้ง มี.ค.67
+-  ผลโพล LINE TODAY แอนโทเนีย-อิงฟ้า-พีพี-เจฟ ครองที่สุดสายบันเทิงแห่งปี
+-  "ช้างศึก" เรียก "ยศกร-ศุภนันท์" แทน "ธีรศิลป์-ปกเกล้า" เกมบู๊ ญี่ปุ่น
+-  ครม.แต่งตั้ง "สุดฤทัย เลิศเกษม" นั่งอธิบดีกรมประชาสัมพันธ์
