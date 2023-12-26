@@ -1,51 +1,51 @@
 # Latest News
--  Tahnee Sims marks first Christmas since Johnny Ruffo’s death with emotional post
--  Τουρκία: Πράσινο φως από την Επιτροπή Εξωτερικών Υποθέσεων στην ένταξη της Σουηδίας στο ΝΑΤΟ
--  Σερβία: Κλιμακώνει τις διαδηλώσεις η αντιπολίτευση, επιμένει για νοθεία
--  Ισραήλ: «Ο πόλεμος θα διαρκέσει ακόμη πολλούς μήνες – Θα φτάσουμε στην ηγεσία της Χαμάς»
--  Wall Street: διανύει την ένατη εβδομαδα κερδών
--  Ο Φατίχ Τερίμ στον Παναθηναικό -Η ανακοίνωση της ΠΑΕ
--  Vom Winde verwehte Tradition
--  Traía cocodrilo en 'toper'
--  Disfrutan niños sus regalos de Navidad
--  Alcanza Cristiano los 53 goles en el 2023
--  Vuelca tráiler en transitado bulevar de Guasave tras dar vuelta U
--  Las reacciones a la disculpa de Kanye West hacia la comunidad judía
--  Nasdem Akui Kubu Anies-Muhaimin Kesulitan soal Logistik untuk Berkampanye
--  Prediksi Cuaca Hari Ini untuk Jakarta dan Bodetabek Banyak Potensi Hujan
--  Rayados le abre las puertas a Funes Mori para salir del equipo
--  EAM Jaishankar, Russian counterpart Lavrov to hold bilateral talks in Moscow today
--  Kendaraan Listrik Dikritik Disebut Hanya Memindahkan Polusi, Kok Bisa?
--  Unidad 504, los espías israelíes que llaman por teléfono a 50.000 palestinos en la Franja
--  Apple deja de vender sus nuevos Apple Watch en EE.UU., ¿a qué se debe y cómo apeló la compañía el fallo que se lo impide?
--  Superman: Legacy Fan Art Transforms Skyler Gisondo Into Jimmy Olsen, And I’m Into It
--  Para Cuba es de máxima importancia ampliar los lazos con los Estados de la Unión Económica Eurasiática
--  Bolsa mexicana sube 0,75% y logra nuevo máximo histórico al ubicarse en 57.745,79 unidades
--  Pro Research: Wall Street se sumerge en las perspectivas de Walt Disney Co y d'Amico
--  Las acciones de American Express suben en línea con las ganancias del mercado en general
--  Pro Research: Wall Street examina los movimientos estratégicos de Domino's Pizza
--  Pro Research: Wall Street se sumerge en el potencial de crecimiento de CrowdStrike
--  El BEI apoya a VGP Renewable Energy con un préstamo de 150 millones de euros para paneles solares
--  La atrocidad que todos hacemos con el panettone... y otros 'crímenes' de la repostería navideña
--  Updated Volkswagen Golf getting sharper look, bigger screens
--  Sober up this holiday season with the 'New Year's Resolution' mocktail
--  I’m a professional eater — I can devour 100 dumplings in 10 minutes and 17 pounds of steak in an hour
--  “내 인생 최고의 날”… 멀티골로 맨유 구한 FW, “가장 위협적인 공격수” 평점 9점 호평
--  Where to watch Queer Eye Season 8: US, UK & more
--  تحذير من إطفاء حرائق الزيوت بالماء.. إليك الطريقة الصحيحة
--  “Yo salí de Guatemala y entré a guatepeor”: La frase que Carin León mencionó en una canción por la que admiradores le exigen respeto
--  Bets on Xi’s Common Prosperity Agenda Led to Big Losses in 2023
--  [인사] 하나금융지주·하나은행
--  세븐일레븐, ‘인기 즉석치킨 5종 할인전’ 진행 … 치킨한마리 9천원 행복
--  사람인 멘토링매치, 멘티 회원 1만5000명 돌파
--  Australia v Pakistan LIVE updates: Head is out caught as Australia falls to four wickets down
--  Sofia Coppola On Gender Pay Disparity & “Fighting For A Tiny Fraction” Of What Male Directors Bank
--  «كروه»: 900 حافلة توفر حلول النقل خلال كأس آسيا
--  جامعة قطر: قرارات منح التميز للطلبة المقيدين 21 يناير
--  الإعلان عن تفاصيل مهرجان سمو الأمير الوالد للهجن
--  كلية العلوم الصحية بجامعة قطر تناقش مشاريع تخرج طالبات التغذية
--  경기도 '복지사각지대 발굴' 보건복지부 장관 표창 수상
--  الزبيدي وبزته الشعبية في زيارته التفقدية لمحافظة الضالع الأبية| كتب ابراهيم العطري
--  문가영, 튜브 톱 속 넘치는 볼륨감…매혹적 자태
--  Volunteers continue search for Winnipeg senior with dementia
--  Volunteers continue search for Winnipeg senior with dementia
+-  경기도 '2025년 경기정원문화박람회 개최지' 평택시 선정
+-  인천공항공사, 감사 분야 협력으로 내부통제 강화...중장기 전략 수립
+-  Amanda Huber Pays Tribute To Brodie Lee On Anniversary Of Passing
+-  Las imágenes de los famosos que han muerto este 2023
+-  Lakers’ potential trade target to ‘keep an eye on’; Celtics reunion on the cards: NBA Rumour Mill
+-  Посол пригрозил последствиями при отказе Запада от помощи Украине
+-  Sunita Bainslaw : ఈ-వెరిఫికేషన్‌ స్కీమ్‌ను సద్వినియోగం చేసుకోండి
+-  '연애의 참견' 한혜진, “과거 남친과 싸운 후 시애틀로 떠났다”
+-  [스한:BOX] '노량: 죽음의 바다'
+-  [2023 유통결산 下] 후쿠시마·잼버리·물가안정·알리익스프레스
+-  Polícia inglesa investiga acusações de ofensas racistas contra jogador do Luton em Sheffield
+-  Zikhale Ng’oma says Chakwera-led government committed to accommodating security agents in modern houses
+-  2023全球最高人氣的10大影視巨星！這些演員的影響力無遠弗屆
+-  免螢幕的AI Pin將取代手機？2024會是穿戴AI年？
+-  超級大選年！除了台灣，2024有60多個國家要選舉
+-  Mariah Carey's longtime boyfriend waited until the day after Christmas to announce their split
+-  5 youths arrested, another injured after stabbing near Eaton Centre
+-  La ONU lanzó un proyecto para luchar contra el cambio climático con ayuda de la inteligencia artificial
+-  Tennis : Djokovic lâche une grande annonce pour son avenir
+-  Brightcom Group : సెబీ ఆర్డర్‌పై స్టే కోసం బ్రైట్‌కామ్‌ గ్రూప్‌ పిటిషన్‌
+-  فرنسا تعرب عن «قلق عميق» من تكثيف وإطالة أمد الحرب في غزة
+-  경찰, '압구정 롤스로이스男' 마약 처방 의사 구속영장 신청
+-  Başkan Erdoğan imzaladı! 27 bin sözleşmeli sağlık personeli istihdam kararı
+-  Konya'da silahlı saldırı: 1 can kaybı
+-  Petro lleva 704 viajes y se ha gastado más de $28 mil millones, según María F. Cabal
+-  1-2-3 and counting: Las Vegas weddings could hit record on New Year's Eve thanks to date's pattern
+-  1-2-3 and counting: Las Vegas weddings could hit record on New Year's Eve thanks to date's pattern
+-  Pechugas de pollo con limón a las finas hierbas: rico y muy fácil
+-  류희림·與 “민원인 정보 유출은 범죄”…野 “청부심의 기관 전락”
+-  El horóscopo de Niño Prodigio para la semana del 25 al 29 de diciembre
+-  En desafío a Milei, Máximo Kirchner propone crear un Fondo de Desarrollo Nacional para financiar obras públicas en provincias y municipios
+-  หมอยงเตือน! ไข้ไวรัสซิกาอาละวาดหนักใน กทม.
+-  లాభాల బాటలోనే మార్కెట్‌
+-  Отборът на Едисон Йорданов се отдалечи от дъното, Игор Тиаго с нов гол
+-  İsrail hərbi əməliyyatları genişləndirir
+-  Dana Brooke Added to WrestleCon 2024 Lineup
+-  Inflación: precios en supermercados subieron casi 30% en dos semanas
+-  MARLIES NOTES: Dennis Hildeby's healthy scratch not linked to Maple Leafs
+-  Capturan 5 venezolanos de la banda “Piratas del Tren de Aragua” en Chile
+-  poultry : తగ్గిన మొక్కజొన్న, సోయా ధర పెరగనున్న పౌలీ్ట్ర సంస్థల ఆదాయం
+-  Así fue la última gira de Canserbero en México
+-  Putin aims to leave nothing to chance in Russia's 2024 election
+-  Arranca en Saltillo vacunación COVID en farmacias privadas; los niños tendrán que esperar
+-  Ryan O’Neal buried next to his longtime love Farrah Fawcett 2 weeks after his death
+-  Bruno Méndez não renova com Corinthians e é anunciado pelo Granada, da Espanha
+-  Claudia Alencar é extubada e continua em estado grave, diz filho da atriz
+-  الأربعاء 14 جمادى الآخرة.. 12 ساعة بين صلاتي الفجر والمغرب بالرياض
+-  Polisi Belum Temukan Motif Politik dalam Penembakan Relawan Prabowo-Gibran di Sampang
+-  Sokkoló részleteket tudott meg az édesanya lánya haláláról
+-  Marie de Jongh estrena en Leioa su nuevo montaje sobre el poder despótico
