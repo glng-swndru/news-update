@@ -1,11 +1,11 @@
 # Latest News
--  Ganan licitación con documentos falsos
--  Matan a matrimonio de maestros en Taxco
--  Fuga de agua en la Nombre de Dios tiene 4 días
--  Murió el senador Armando Guadiana
--  Cerebros azulcremas, los técnicos campeones del América
--  Inicia operaciones nueva Mexicana de Aviación
--  Esperan migrantes en EU para entregarse a la migra
--  BREAKING: Delhi Police Gets Call About Bomb Blast Near Israel Embassy, Search Underway
--  Муфтий России выразил недовольство работой властей Таджикистана с мигрантами в РФ
--  В Узбекистане участковый милиционер осужден за изнасилование 13-летней девочки
+-  נקמה איראנית? פיצוץ ליד שגרירות ישראל בבירת הודו, אין נפגעים
+-  Sports tourism will be promoted, says PM Dahal
+-  Φατίχ Τερίμ: Έτσι έκλεισε η συμφωνία με τον Παναθηναϊκό
+-  Exército israelita bombardeia posições do Hezbollah no sul do Líbano após novos ataques
+-  TV-profilen i trafikolycka – missar matchen
+-  6 فئات معرضة للإصابة بجلطة الرئة.. احذروا هذه العلامات
+-  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الثلاثاء 26 ديسمبر
+-  انقطاع كامل للاتصالات والانترنت عن غزة الثلاثاء
+-  انفجار قرب السفارة الإسرائيلية بالهند
+-  نجل موسوي لإسرائيل: سنبقى موجودين - فيديو
