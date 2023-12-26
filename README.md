@@ -1,11 +1,51 @@
 # Latest News
+-  Орловские студенты принесли новогоднее волшебство в детские дома
+-  Lula 2024/26
+-  У "Садовода" задержали не вставших на воинский учет натурализованных мигрантов
+-  Çalışan emekliye 5 bin TL ikramiye TBMM'den geçti! Ödemeler ne zaman?
+-  İsrail BMT-ni bu imtiyazdan məhrum edəcək
+-  بالفيديو.. «مركز الصفا القرآني» كرَّم 219 حافظاً وحافظة من أبناء وبنات الكويت
+-  Ram Mandir: 29 दिसंबर को हो जाएगा राम मंदिर की मुख्य मूर्ति का चयन, 3 मूर्तियों में किसे चुना जाएगा ?
+-  (VIDEO) Perkovac: Želja mi je pobijediti Španjolce, poslije ćemo razmišljati dalje
+-  Межрегиональный союз краеведов создан в Вологде
+-  ¡Semana de doble frente frío! El sexto sistema invernal de diciembre viene en camino
+-  Spezialeinheiten im Einsatz: Terroralarm Kölner Dom: Verdächtiger in Wesel in Gewahrsam genommen
+-  На что нужно обратить внимание, чтобы вовремя начать лечение
+-  Angst und Depression als Comic-Thema: Im Reich der bunten Monster
+-  Pelicans-hyökkääjä törmäsi tolppaan naama edellä
+-  'They’ve won the donkey lottery': Foals thrive in new home after rescue of abandoned mares
+-  Легенда на Ман Юнайтед изненада: Тотнъм винаги е бил моят отбор
+-  Арсенал е в най-добра позиция да подпише с Гонсало Инасио
+-  В Баку обсудили возможности международного образования
+-  What Is Pine Cone Jam? And What Does It Taste Like?
+-  Genlis. À 24 ans, Valentin Boze est le président du club de ping-pong
+-  Wskaźnik Chicago Fed pokazał wzrost aktywności gospodarki USA
+-  Media: niemiecki dobrobyt jest coraz bardziej chwiejny
+-  367500 СНИЛС выдано в Херсонской области
+-  Ovo su najjače erogene zone, poljubac tamo će…
+-  قصف أهداف بفلسطين المحتلة.. إسناد يمني جديد لغزة
+-  أقسى 20 نوع آلام لا تُحتمل
+-  Зюганов рассказал, почему не стал претендовать на пост президента
+-  Poder Judicial evaluará el 19 de enero pedido de cese de prisión preventiva de Fernandini
+-  Na današnjem ročištu svjedočila majke djevojčice Džene
+-  Sports News | Imad Wasim Becomes Just Fourth Player to Achieve This Record in T20
+-  Руски военен експерт каза как Украйна ще разруши Кримския мост
+-  Будущие врачи представили технологические инициативы
+-  Bornova’da ‘Yılbaşı Hediyelik Eşya Günleri’ başlıyor
+-  MHA Notifies To Enforce Provisions of Jammu and Kashmir Reorganisation Act, Jammu and Kashmir Reservation Act
+-  Kulka János bevallotta: szégyelli magát a sztrókja óta
+-  Simonyandan SÜLH AÇIQLAMASI: "Bəzi suallar qalır, amma heç vaxt bu qədər..."
+-  Labyrinth, scelto il regista per il remake dell’iconico fantasy? Ed è un nome molto amato dai fan
+-  Governo de SP fornecerá cannabis medicinal pelo SUS
 -  Нетаняҳунинг ултиматуми, десант кемасидан айрилган Россия ва дараги чиққан Навалний — кун дайжести.
 -  Украина 2025 йилда демобилизация қилиши мумкин, Залужний унинг шартларини айтди .
--  هل سعر الدولار ينخفض في 2024؟.. خبيرة التاروت بسنت يوسف تتوقع ما سيحدث
--  "فلوس كتير أوي".. بسنت يوسف تكشف عن البرج الأكثر حظا ماليا خلال عام 2024
--  احذر تناول هذه المشروبات ترفع الكوليسترول بشكل مضاعف
--  هل سيفوز الأهلي بالدوري المصري في 2024؟.. خبيرة التارو بسنت يوسف تجيب(فيديو)
--  Las ventas del reloj de Apple se ven afectadas por la prohibición de la FTC por infracción de patentes
--  Παναθηναϊκός: Η τεράστια απρέπεια Αλαφούζου στον Γιοβάνοβιτς και ο κίνδυνος να γυρίσει μπούμερανγκ
--  Судскиот совет в петок на јавна седница ќе одлучува за дисциплинска одговорност на судијката Беса Адеми
--  أبرز ما جاء في الاتفاق الموقع بين الحكومة والنقابات حول النظام الأساسي الخاص بموظفي التعليم
+-  Uttar Pradesh Brawl Video: Fierce Fight Between Two Groups in Ghaziabad Over Trivial Issue, Video Goes Viral
+-  Small & Medium Enterprises are Critical to Net-Zero Goals
+-  Roda Robot gearing up for a hat-trick
+-  I earn £80,000 a year doing job no one wants to do – no experience is needed and you get free access to swimming pool
+-  Intenzivno se razmatra otvaranje direktne avionske linije između Bakua i Sarajeva
+-  Justiça prepara segurança para ato de 1 ano da tentativa de golpe, 8/01
+-  This linen-loving locale is close to home but a world away
+-  Форвард европейской сборной отказал клубу КПЛ
+-  ¿Cómo prevenir y aliviar el ‘chuchaqui’ de las fiestas navideñas?
+-  На улице Каширской в Ростове нашли труп мужчины
