@@ -1,11 +1,11 @@
 # Latest News
--  孕妇梦见自己打麻将预示什么意思
--  流感能吃螃蟹吗
--  流感能吃牛肉吗
--  流感能吃辣的吗
--  流感能吃虾吗
--  避孕药几个小时内吃有效果
--  BFM Crypto : Cryptos, qu’attendre en 2024 ? - 26/12
--  Suç örgütlerine ait lüks araçlar emniyete verildi
--  PAN Card: क्या आपको पता है PAN, TAN और TIN कार्ड नंबर में अंतर? अगर नहीं, तो जान लीजिए आज
--  Taarak Mehta Show : वो शख्स जिसने एक किताब लिखकर संवार दी 150 लोगों की जिंदगी, अब पूरा देश है दीवाना
+-  Süper Lig’deki gol krallığında son durum
+-  İzmir'de PKK/KCK operasyonu: 10 gözaltı
+-  Irak'ta 20 Haşdi Şabi üyesinin ABD saldırısında yaralandığı iddiası
+-  Ezeli rakip devreye girdi! Eric Bailly'ye sürpriz talip
+-  Chipolopolo begin AFCON preps
+-  Yılbaşı öncesi jandarmadan sahte alkollü içki operasyonu yapıldı
+-  Dolar/TL Rekor Kırdı! Dolar Yeni Yıl Öncesi En Yüksek Seviyesini Gördü
+-  Aile İz Peşindeydi: Katliam Gibi Kaza Kameralarda
+-  4 Kıtada, 14 Ülkede 25 Bin Çalışanlı Türk Firmasından 10 Milyar Dolar Yatırım Hedefi
+-  กองปราบบุกจับลอบเปิดบ่อนไฮโล ข้างวัดแม่โจ้
