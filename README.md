@@ -1,11 +1,11 @@
 # Latest News
--  'Paradokssuz zaman yolculuğunun' formülü bulundu
--  Frau bei Frontalcrash in Obernburg leicht verletzt
--  İsrail, naaşlarına el koyduğu 80 Filistinlinin cenazesini teslim etti
--  İsrail ordusu, Kızıldeniz'de bir "düşman hedefine" müdahale ettiğini duyurdu
--  Canel: Küba, Filistin için sesini daima yükseltecek
--  Ronaldo rekor kırdı, Al Nassr galibiyete uzandı!
--  Tumbes: Lloviznas inundan calles e impiden el tránsito de vecinos
--  Uso de pirotécnicos puede afectar la salud de personas con Trastorno del Espectro Autista
--  Sydney to Hobart Yacht Race 2023 LIVE: Line honours contender retires as boats head into Bass Strait
--  صور أقمار اصطناعية: جيش الاحتلال يحاول التموضع بخان يونس
+-  זיו אריה: "זה עדיין סיבוב לא טוב, יש משקולות על הרגליים"
+-  4 أبراج بتحب اللمة والتجمعات في ليلة رأس السنة
+-  خبيرة التارو بسنت يوسف تكشف عن تغيرات تاريخية تؤثر على العالم في 2024- "فيديو"
+-  لن تتخيل ما يفعله كوب من الحليب في الدهون الثلاثية والكوليسترول بجسمك
+-  Expresidente Lobo sugiere solicitar asesoría a China para abordar la pobreza y buscar desarrollo económico
+-  Tämä talli on F1-sarjan häpeäpilkku
+-  Yeni yıldan önce depoları fulleyin! ÖTV zammı hepsine birden geliyor... Benzin, Motorin, Otogaz...
+-  Усмивки за малки и големи: Атракционна разходка с "Икарус" по софийските улици
+-  Sanjay Bhandari case: ED files prosecution complaint against two
+-  Oknum Buruh 'Mandi Beras', Bulog Bakal Beri Tindakan Tegas!
