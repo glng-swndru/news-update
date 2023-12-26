@@ -1,11 +1,51 @@
 # Latest News
--  Sinop: duplicação da avenida Bruno Martini de acesso ao aeroporto deve ficar pronta em fevereiro e secretário crítica atraso
--  UNS traži od policije i tužilaštva da ispitaju napade na novinare tokom protesta
--  عاجل.. خطوات الاطلاع على نتيجة أهلية الضمان الاجتماعي
--  بالإنفوجراف.. 6 شروط للتقديم على وظائف جدارات
--  كلوب يخشى تعرض المدافع غوميز لإصابة
--  ارتفاع جديد.. أسعار العملات مقابل الدينار في السوق السوداء اليوم الثلاثاء 26 ديسمبر 2023
--  Stijović: Danci žele da investiraju u Plantaže 50 miliona za projekat na 25 godina
--  จับกระแสการเมือง: วันที่ 26 ธ.ค.2566 "แกงส้ม ผลัก รวม" ยิ่งลักษณ์ รอดคดีย้าย "ถวิล เปลี่ยนสี"
--  Дагестанского депутата арестовали по делу об убийстве 17-летней давности
--  Avustralya’da golf topu büyüklüğünde dolu yağdı
+-  Megastar Tarkan'ın yılbaşı konserinden alacağı ücret dudak uçuklattı!
+-  台鐵票價凍漲28年，公司化後將調整？最快「此時」決議
+-  大選倒數，蔡政府政策誤區2024如何避免？
+-  與全家夯蕃薯合作、把台灣蕃薯賣到全球！瓜瓜園用小蕃薯拚出大生意
+-  Развожаев: военные в Севастополе применили табельные средства маскировки
+-  Netanyahu Gazze’de barış için 3 şartını açıkladı
+-  Sabiha Gökçen Havalimanı'na yeni CEO
+-  شاہ محمود قریشی کو نظر بند کر دیا گیا
+-  Hastanede doktordan sonra hemşireye de saldırdılar
+-  El Reina Sofía de Córdoba repite como segundo mejor hospital de Andalucía
+-  Influencer revela problemas con “La Comadre”: “Se le cayó la careta”
+-  Juntan 188.000 firmas para pedir a Sanidad que prohíba el tabaco en las terrazas
+-  As pessoas destes signos são os melhores amigos que todos querem ter
+-  Kütahya'da evinde uyuşturucu satarken yakalandı!
+-  El extremo norte esquiva el fin de año anticiclónico, que se prevé pasado por agua
+-  Pekerja penyelenggaraan maut kepala tersepit pintu lif
+-  وزير التموين: بدء إنتاج السكر المحلي من 3 مصانع قصب في 5 يناير المقبل
+-  Начальник отделения ГИБДД в Марий Эл Дудин погиб в ДТП в Звенигово
+-  Krapović: Turska važan saveznik u oblasti odbrane
+-  Modernes Krippenspiel in der Evangelischen Kirche Hirschau aufgeführt
+-  Sutra u Srbiji pretežno sunčano, temperatura do 18 stepeni, meteoropate mogu biti mirne
+-  Dünyaca ünlü oyun şirketi iflas etti. Türkler de bağımlısıydı. Tüm çalışanlar kapının önüne kondu
+-  Fatih Terim Panathinaikos ile anlaştı
+-  Hansal Mehta slams trolls attacking him for praising Shah Rukh Khan's Dunki: 'To respond with hate and disrespect...'
+-  “Me Luizin kemi qarë shumë atë ditë”, Kiara Tito rrëfehet për pritjen e ëmbël
+-  Clima: martes despejado y sin probabilidad de lluvias en CABA
+-  "Campanha competitiva". Mais de 30 candidatos às eleições na Rússia
+-  Tarena Signs Equity Transfer Agreement to Dispose of Professional Education Business
+-  Dingdong Announces the Appointment of CFO and CHRO
+-  Timnas Amin Gelar Training of Trainer 50 Hari Jelang Pemilu 2024
+-  "OTIŠLA SAM DO NJENOG STANA I VIDELA KRVAVU KVAKU": Mučni detalji ubistva majke i 4 dece kod Pariza, policija zatekla HOROR SCENU
+-  Tapu tartışması kanlı bitti. Ablasını öldürüp, intihar etti
+-  التضامن توقع عقد المشاعر لحجاج الجمعيات الأهلية مع رحلات ومنافع لمطوفي حجاج الدول العربية
+-  One Piece anime reveals new art style for Egghead Island arc
+-  وسائل إعلام مصرية: دوي انفجار في سماء «دهب» وإسقاط جسم طائر على بعد كيلومترين
+-  جامعة بنها الأهلية ومؤسسة حياة كريمة تنظمان ندوة للتوعية بالقضية الفلسطينية
+-  Rezept für Silvester-Menü: Das empfiehlt Profikoch Sebastian Schmitt
+-  Sparkle in Honkai Star Rail: Ascension and Trace level-up materials
+-  Martial için Fenerbahçe'ye kötü haber!
+-  Dünyanın en büyük ikinci keşfi! Türkiye NTE'de 5 ülkeden biri olacak
+-  BM, Netanyahu'nun sözde planının suç olduğunu vurguladı
+-  Sabiha Gökçen Havalimanı'nın yeni CEO'su belli oldu
+-  Mourinho'nun yeni hedefi: Merih Demiral
+-  Şehit Piyade Sözleşmeli Er Taşkın dualarla son yolculuğuna uğurlandı
+-  Şehit Piyade Sözleşmeli Er Yasin Karaca'nın cenazesi, Tokat'ta toprağa verildi
+-  Milli Eğitim Bakanı Tekin: Yepyeni bir yüzyıl olarak inşa etmeyi arzu ediyoruz
+-  Gastronomi Enstitüsü kuruluyor
+-  Vadodara: Four hospitalised after inhaling toxic gas at pharma chemical factory
+-  Maja pinaglihian ang mister
+-  Les plus belles bûches de Noël
