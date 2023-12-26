@@ -1,11 +1,11 @@
 # Latest News
--  Exhortan a evitar uso de pirotecnia
--  New York'ta Filistin'e destek gösterisi düzenlendi
--  İsrail basını yazdı: Netanyahu'dan "rehine görüşmesi" engeli
--  Ranbir Kapoor says `Jai Mata Di` as he lights up Christmas cake, watch
--  Pak cops free 290 Baloch activists
--  Earthquake of magnitude 4.5 hits Leh
--  TCL과 행복한 연말연시…최고 엔터테인먼트와 안락한 집안 분위기
--  PharmaBlock Obtained ISO 50001 Certification, Advancing Sustainable Development
--  캐스토마(Castoma) 강황 우유 - 위통 환자를 위한 획기적인 제품
--  Castoma Turmeric Milk - A Breakthrough Step That Brings Happiness To People With Stomach Pain
+-  NBA: Sem Embiid e Butler, calouro chama a responsabilidade e Heat supera os 76ers
+-  Temblor en USA hoy, lunes 25 de diciembre – magnitud, hora y dónde fue el último sismo vía USGS
+-  Нетаньяху назвал три условия мира для Израиля и Газы
+-  BJD Leaders Take Pledge To Build ‘Nabin Odisha’ On Party’s 27th Foundation Day
+-  Bu gün 18 dərəcə isti olacaq
+-  Patiala News: ਕੋਰੋਨਾ ਦੇ ਨਵੇਂ ਵੇਰੀਐਂਟ ਜੇਐਨ 1 ਨੇ ਮਚਾਈ ਦਹਿਸ਼ਤ! ਗਾਈਡਲਾਈਨਜ਼ ਲਾਗੂ ਕਰਵਾਉਣ ਲਈ ਐਕਸ਼ਨ ਮੋਡ 'ਚ ਪ੍ਰਸਾਸ਼ਨ
+-  Gaya Rambut Nagita Slavina Saat Tanding Tenis Diledek Norak
+-  Indian Navy to commission guided missile destroyer INS Imphal today. Details here
+-  3 Cawapres Sepakat Lanjutkan Program Jokowi yang Dinilai Publik Problematik
+-  Lucky Foods for New Year’s Eve 2024 (Year of the Wood Dragon)
