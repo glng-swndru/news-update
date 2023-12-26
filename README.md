@@ -1,51 +1,51 @@
 # Latest News
--  “Нафас йўлларининг сурункали касалликлари ва аллергия сабабчиси”. Эксперт – PM2.5 зарралари ҳақида.
--  Шойгу 2023 йилда «махсус операция»нинг асосий мақсади муваффақиятли бажарилганини эълон қилди.
--  Tommy DeVito isn’t seeing things clearly for Giants
--  The Color Purple sets a box office record with the second-largest Christmas Day opening ever
--  Zamierzasz wyrobić dowód osobisty? W czwartek tylko do południa
--  Na trójstyku granic Polski, Czech i Słowacji powstanie tzw. Regionalny Trójkąt Transgraniczny
--  Kłopot z tarczą antycovidową. PFR zażądał zwrotu pieniędzy
--  Omoda koryguje plany ofensywy
--  Mapa polskiego eksportu: na kilku kierunkach widać ożywienie
--  W UE ważą się losy papierowych opakowań
--  Gorąca końcówka roku w Panattonim
--  Miliarderom spuchły portfele
--  Jakich fachowców szukamy w internecie
--  Krakowskie centrum kongresowe na zakręcie
--  Dekalog cyberochrony w firmie
--  OZE czekają na odrodzenie
--  Pięć wykresów, które powinien zobaczyć każdy inwestor
--  PARP ostrzega firmy przed oszustami
--  Jakie kompetencje są potrzebne w pracy z AI
--  Bodrum'da jet ski ile göçmen kaçakçılığı!
--  Inside Chris and Rosie Ramsey’s incredible family Christmas before ‘Boxing Day carnage’
--  B&H Photo's year-end Mega Deal Zone knocks up to $2,000 off Apple
--  I bought the weirdest dress from Fashion Nova – it’s a NSFW moment waiting to happen & looks straight out of The Lorax
--  Texas State vs. Rice prediction: First Responder Bowl odds, pick, best bet
--  وزارة المالية تستكمل صرف 86% من مرتبات ديسمبر وتهيب بالجهات المتأخرة سرعة تقديم طلباتها
--  RUSIJA IMA OGROMAN PROBLEM: Fali im 5 miliona radnika, evo gde je kritično!
--  ASR Suresi Okunuşu: Kur'an'da Anlam ve Önemi
--  וראן בהרכב מנצ'סטר יונייטד, ווטקינס וביילי בהתקפת אסטון וילה
--  Milei encerra contrato de mais de 5 mil funcionários públicos na Argentina
--  Ushtarët izraelitë zhveshin burrat palestinezë në mes të stadiumit të Gazës
--  HIFK:lla uusi sankari - ”Ekan muistaa aina!”
--  Decomisan 70 kg de pirotecnia en cruceros y en zona Centro
--  Im Dezember 1998...
--  Städtische Delegation sorgt für strahlende Gesichter
--  Mieten für die Bürgerhäuser werden teurer
--  As US Veto Power Enables Genocide, There Are Still UN Options to Protect Gaza
--  Inspira Announces $3.88 Million Registered Direct Offering
--  Röglestjärnans tunga poängfacit: ”Vill bidra mycket mer”
--  بعد قفزة الأسعار.. 55% نسبة المكسب من الذهب منذ اندلاع حرب غزة (تفاعلي)
--  نجاحات لهذه الفنانة ومفاجأة لـ عمرو دياب.. خبيرة تارو تكشف حظوظ المشاهير
--  "ثروة كبيرة وتحذير".. بسنت يوسف تكشف عن توقعات برج الحمل في 2024
--  "نجاحات وتحذير مهم".. بسنت يوسف تكشف مفاجأة لـ برج الأسد في 2024
--  ماذا يحدث للجسم عند حبس البول أثناء الليل؟.. لن تتوقع
--  Guide To Empowering Corporate Staff Skills In Your Organisation
--  Basket, natation: la ville de Gravelines cherche des solutions après l'incendie du complexe Sportica
--  Ο ράπερ Γε ζήτησε συγγνώμη στα εβραϊκά για τις αντισημιτικές δηλώσεις του που προκάλεσαν σάλο
--  Aprenda a fazer uma deliciosa bebida Uruguai a famosa Cleriot de frutas
--  7 melhores espumantes para o Ano-Novo
--  Está querendo dar um Up na saúde e de quebra refrescar nesse verão? Veja só essa receita de Suco Detox Maravilhoso
--  45 mensagens de Ano-Novo para funcionários
+-  Beşiktaş yönetiminde şok istifa!
+-  Kangra News: तबीयत बिगडऩे से मजदूर की मौत, खुंडियां थाना में मामला दर्ज
+-  Kangra News: शिक्षा में उत्कृष्ट प्रदर्शन पर आरएस बाली ने नवाजे मेधावी
+-  Jalandhar News: स्पा सेंटर की आड़ में देह व्यापार का पर्दाफाश, छह गिरफ्तार
+-  Kushinagar News: विभिन्न सरकारी योजनाओं की दी जानकारी
+-  Kangra News: विलय करने के बजाय बनाई जाए पंचायत
+-  Jalandhar News: मोटरसाइकिल सवार ने लहराया पिस्तौल, वीडियो वायरल
+-  Kushinagar News: सेवरही चीनी मिल ने किसानों के खाते में भेजे 7.08 करोड़
+-  Kangra News: निजी दोपहिया वाहन भी किराये पर दे रहे कारोबारी
+-  Kushinagar News: पुलिस से की कार्रवाई की मांग
+-  Kangra News: डीएवी भड़ोली के मेधावियों को किया सम्मानित
+-  Kushinagar News: ट्रक की चपेट में आने से बाइक सवार घायल
+-  Kangra News: पर्यटन नगरी में जल्द बनेगी स्ट्रीट फूड मार्केट
+-  Kushinagar News: अज्ञात बीमारी से दो पशुओं की मौत, तीन बीमार
+-  50 लाख से होगा माता आशापुरी मंदिर का जीर्णोद्धार : गोमा
+-  Kushinagar News: सड़क पर चलते समय अपने ही लेन का करें इस्तेमाल
+-  Siddharthnagar News: शहर में चले इलेक्ट्रिक बस तो पटरी पर आए परिवहन व्यवस्था
+-  Kangra News: नगरोटा में नोटों के हार और रेडीमेड कपड़े ले उड़े चोर
+-  Hathras News: उड़ीसा में झील किनारे मिला जवान का शव
+-  Kushinagar News: जांच में फेल हुए दस नमूने
+-  Siddharthnagar News: ठंड ने किया निराश, व्यापारी लौटने लगे घर
+-  Kushinagar News: एक माह बाद सऊदी से आया शव, परिवार में मची चीखपुकार
+-  Siddharthnagar News: आठ सूत्री मांगों के लिए आज लखनऊ में जुटेंगे रोजगार सेवक
+-  Kushinagar News: 29 जनवरी को होगा 11 कन्याओं का विवाह
+-  Siddharthnagar News: शिक्षक विहीन विद्यालय, बच्चे कैसे बन पाएंगे निपुण
+-  खेल की तर्ज पर करें पढ़ाई, नहीं लेना चाहिए तनाव : सद्गुरु ऋतेश्वर
+-  Siddharthnagar News: सीमा पर बढ़ी सख्ती तो तस्करों ने तलाशा बीच का रास्ता
+-  Siddharthnagar News: दिल्ली में व्यक्ति की मौत, घर पहुंची लाश, छाया मातम
+-  Delhi : दिल्ली हाईकोर्ट ने कहा- बिना उचित कारण तलाक के समझौते से एकतरफा वापसी मानसिक क्रूरता के समान
+-  Haryana: रोहतक से भिवानी व जींद पैसेंजर आगामी आदेशों तक रद्द, रोज हजारों लोग करते हैं सफर
+-  Jaunpur News: प्रशासन कराएगा शव का इंतजाम, छात्रों को होगी सहूलियत
+-  Jaunpur News: सुबह 10 बजे तक तनी रही कोहरे की चादर
+-  Hisar News: जन्मदिन समारोह में हर्ष फायरिंग करने के दो आरोपी गिरफ्तार
+-  Kurukshetra News: घर में घुसकर हमला करने का दूसरा आरोपी गिरफ्तार
+-  Kurukshetra News: आज सरकारी अस्पताल के चिकित्सक हड़ताल पर रहेंगे
+-  Kurukshetra News: ससुराल आए बाइक सवार की ट्रैक्टर-ट्राली की टक्कर लगने से मौत
+-  Kurukshetra News: प्रेमिका और उसके पति से तंग आकर फौजी ने लगाया फंदा, मौत
+-  Kurukshetra News: सीएम ने छोटे साहिबजादों की शहादत को किया नमन, युवाओं से प्रेरणा लेने का आह्वान
+-  رئيس أركان الاحتلال السابق: خسرنا من حماس والانتصار هو الإطاحة بنتنياهو
+-  Kurukshetra News: घने कोहरे से प्रभावित हुआ जनजीवन, सड़कों पर रेंगते रहे वाहन
+-  Kurukshetra News: चचेरी बहन से दुष्कर्म के आरोप में युवक नामजद
+-  Kurukshetra News: रास्ता रोककर छीना-झपटी करने का छठा आरोपी गिरफ्तार
+-  Kurukshetra News: नाटक मंचन से लोगों को साइबर धोखाधड़ी से बचने के बारे में किया जागरूक
+-  Banda News: कोहरे से थमी ट्रेन व बसों की रफ्तार
+-  Banda News: घरों में लहराएगा भगवा, जलेंगे घी के दीपक
+-  Gurugram News: हुडा की जमीन पर चल रहीं व्यावसायिक गतिविधियां
+-  Udham Singh Nagar News: कसीनो में रुपये गए हार, जरूरत पूरी करने के लिए की थी चोरी
+-  Banda News: गोबर फेंकने के विवाद में मां-बेटी को पीटा, छोड़े कुत्ते
+-  Gurugram News: सड़कों पर कचरा फेंकने वालों का किया जाएगा चालान
+-  Udham Singh Nagar News: एटीएम लूटने वाले अंतरराज्यीय गिरोह के तीन सदस्य गिरफ्तार
