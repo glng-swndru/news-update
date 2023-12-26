@@ -1,51 +1,51 @@
 # Latest News
--  W tym roku ludzie lepsi od algorytmów w zarządzaniu inwestycjami
--  5 علامات تشير إلى تعرض حساباتك للاختراق.. تعرف عليها
--  بهذا الشرط.. مجلس الوزراء يوافق على تعديل نظام المؤسسات الصحية
--  "مدن" تحصد جائزة الجهة الأكثر جذبًا للاستثمار في جوائز "ندلب للتميز"
--  كيف تحصل على قطعة أرض في مخططات "سكني"؟
--  اغتيال صحفي مصري قام بنشر فضيحة عن الرئيس الأوكراني
--  الاحتلال يعتقل 4785 فلسطينيا بالضفة منذ 7 تشرين الأول
--  الإمارات تعلن وفاة مريضيّ سرطان من غزة
--  كاظم الساهر يستهل العام الجديد في مهرجان الشيخ زايد
--  كبسولة تمنح الشعور بالشبع
--  ארה"ב תקפה בעיראק אחרי שחיילים נפצעו במתקפת כטב"מים
--  Manoj Bajpayee reveals he and his daughter didn`t like Suhana`s `The Archies`
--  Woman dead, her friend injured after a man in SUV knocks them down
--  Soccerladuma | 5 Players Linked With Man Utd After R29.7 Billion Takeover
--  Biden administration allows US trade tribunal's ban on Apple Watch imports
--  Aguas de Teror y The North Face Transgrancanaria renuevan su acuerdo para los próximos tres años
--  अफरीदी ने मैदान पर की ऐसी हरकत कि मांगनी पड़ी माफी, LIVE मैच में दिखा रौंगटे खड़े करने वाला मंजर
--  Shannen Doherty : son message d'espoir pour Noël après une année difficile
--  Сърбия разреши движението на косовски шофьори на територията ѝ от 2024 г.
--  Jak odnaleźć szczęście? Postawić na SZPON, który buduje mięśnie siły psychicznej
--  BMKG Peringatkan Cuaca Ekstrem Sepekan Kedepan, Ini Perinciannya
--  Şehit babasından 'kabullenemiyorum' çıkışı: Demirtaş'a selam verip şehit cenazesine gidiyor!
--  Person räddad ur klädcontainer i Trollhättan
--  Български учени изследват океанското дъно край Антарктида
--  СМИ: Казахстан подписал соглашения с Россией о строительстве трех ТЭЦ в республике
--  Bakan Tunç: AYM de Yargıtay da anayasamıza bağlıdır
--  Batman'da gençler beğeni uğruna hayatını tehlikeye attı
--  Şehit Yazıcı, son yolculuğuna uğurlandı; 4 aylık hamile eşi gözyaşı döktü
--  Selçuklu modern altyapı çalışmalarıyla örnek oluyor
--  TSYD Konya’dan Korkmaz’a ziyaret
--  챗GPT “천안문 사태 이미지 생성 불가”…中 관련 주제 검열 의혹
--  Няколко души са ранени при обстрела на централата на Червения полумесец в ивицата Газа
--  Deze Kerst gaat de boeken in als de een na warmste ooit
--  Man who died after being hit by Land Rover on A737 near Beith named by police
--  Novosadski odbornici donose odluke u vaše ime: Osnivaju novo javno preduzeće
--  Privremena regulacija prometa zbog božićnog programa na Vidicima: svi su pozvani na druženje uz fritule i kuhano vino
--  PT IMIP Beri Santunan Rp 600 Juta untuk Korban Meninggal dalam Insiden Ledakan Tungku Smelter
--  Велогонщица Войнова заявила, что ей приятна поддержка страны в условиях санкций МОК
--  [ŽT] Čekija ruošiasi karui su Rusija. Kas nutiko
--  Skandalas Turkijos TV. Atleista žinių vedėja. Įsiutino viena detalė kadre (Video)
--  XV de France : Antoine Dupont prêt à imiter de grandes stars pour son avenir ?
--  Rekordauktionen: Geld spielt keine Rolex: Das sind die teuersten Uhren der Schweizer Kultmarke
--  Na Stipanju u Opatiju pristiglo dvadesetak “limenih ljepotana”
--  バドミントン全日本総合選手権 “新旧エース”それぞれ2回戦へ
--  Seorang Pengendara Motor di Sumbar Meninggal Akibat Tertimbun Longsor
--  (FOTO) SNEG, DEDA MRAZ, IRVAS, SANKE I BOGATA JELKA Ana Korać za sina priredila MAGIJU U SVOM DOMU: Ovo nema ni u bajci
--  Shoppers are rushing to snap up Lush products for 50 per cent off in their Boxing Day sale & it includes Snow Fairy
--  Shoppers are rushing to snap up Lush products for 50 per cent off in their Boxing Day sale & it includes Snow Fairy
--  WATCH: Tony De Zorzi drops a sitter to give Virat Kohli reprieve in India-South Africa Boxing Day Test
--  Bu avtobus marşrutları müsabiqəyə çıxarılır
+-  Ladra seriale di centri commerciali, fermata dai carabinieri
+-  Doncic travolge i Suns! Celtics show in casa dei Lakers, James sottotono
+-  "Milan, il primo rinforzo di gennaio è Gabbia: c'è l'accordo con il Villarreal"
+-  Bernardeschi, Natale a Torino: l'incontro con Vlahovic e i tifosi Juve si accendono
+-  Kadıköy’de bina çöktü! 2 kişi enkaz altında
+-  Турнир по рукопашному бою на призы Деда Мороза прошел в Брянске
+-  В России нашли способ ввозить южнокорейские автомобили после введенного запрета
+-  Eritritol, el aditivo edulcorante autorizado en alimentos con el que la OCU nos recomienda tener cuidado
+-  5 style rules 2000s Kate Middleton could not get enough of
+-  Лејкерси губат и на Божик
+-  Lần đầu lắp hàng trăm gương cầu lồi trong kiệt hẻm ở Đà Nẵng
+-  Dự án Sài Gòn Đại Ninh liên quan án nhận hối lộ tại Lâm Đồng hoang tàn
+-  Doanh nghiệp bán lẻ bị tấn công mạng nhiều nhất trong 2 năm qua
+-  Cục Đường bộ nói gì về phần mềm mô phỏng lái xe đánh đố thí sinh?
+-  Trường học độc nhất vô nhị trong tàu điện ngầm ở Ukraine
+-  Ký túc xá Đại học Quốc gia TP.HCM buộc sinh viên khám sức khỏe, các trường phản ứng
+-  Ông Lưu Bình Nhưỡng bị khởi tố thêm tội danh vì nhận hàng trăm ngàn USD
+-  Peugeot 5008 đời mới sẽ thay đổi toàn diện, có bản chạy điện
+-  Tin tức giải trí 26-12: Năm rồng, Võ Minh Lâm làm Tiểu Long Nhân
+-  Người dùng nhiều thiết bị điện tử dễ lo âu, trầm cảm
+-  Sạt lở bờ sông Đà Rằng, dân mong chính quyền sớm khắc phục
+-  Xe tải nhẹ TQ Wuling N300P: Tối ưu tải trọng, an tâm vào phố
+-  Trảng Bom - 20 năm thành lập huyện với nhiều dấu ấn
+-  Houthi khai thác công nghệ theo dõi AIS để tấn công trên Biển Đỏ
+-  Bất động sản thương mại khu vực châu Á - Thái Bình Dương sẽ hồi phục vào giữa năm 2024?
+-  Lãnh đạo Quảng Trị nói sẽ xử lý hợp tình, hợp lý vụ trồng 21 trụ điện gió sai vị trí
+-  Ngăn chặn nhóm thanh thiếu niên sử dụng dao, bom xăng để 'hỗn chiến'
+-  Chủ tịch nước ký quyết định tặng quà người có công dịp Tết Nguyên đán 2024
+-  Hiện trạng đoạn đường vành đai dài 2,2km trị giá hơn 7.000 tỉ bị 'tắc' ở Hà Nội
+-  Nữ runner Việt Nam ghi dấu ấn ở Giải marathon quốc tế TP.HCM Techcombank 2023
+-  Bộ chuyên ngành đề xuất bỏ quy định phòng karaoke tối thiểu 20m²
+-  Talkshow trực tuyến: Sử dụng gỗ công nghiệp đúng chuẩn và an toàn
+-  10 công cụ AI được sử dụng nhiều nhất trong năm 2023
+-  Tết âm lịch trở thành ngày nghỉ lễ của Liên Hiệp Quốc
+-  Cơ hội trúng 3 lượng vàng SJC khi giao dịch tại SHB
+-  Điểm tin 18h: Gần 1 triệu người hưởng trợ cấp thất nghiệp; Nửa số người Mỹ mắc COVID-19 mới
+-  Trước thềm năm mới, TP.HCM vận động toàn dân giao nộp pháo, vật liệu nổ
+-  Doanh nghiệp FDI ở Đồng Nai thưởng Tết cao nhất 1 tỉ đồng, 2.800 doanh nghiệp chưa có kế hoạch
+-  Novagroup dồn dập bán cổ phiếu NVL trả nợ, Phát Đạt dứt điểm nợ trái phiếu
+-  Trực tuyến Công An Hà Nội - Becamex Bình Dương (19h15): Chờ nhà vô địch lên tiếng
+-  Unifonic Selected in First Cohort of National Technology Development Program’s Bridge Initiative
+-  Grupo chinês desiste de suposto negócio de R$ 9 trilhões na Paraíba após suspeitas de fraude
+-  Спасовски: „Петарди НЕ – безбедност пред сè“- кампања за превенција од употреба на пиротехнички средства
+-  Politiikan puskaradio: Pitäisikö eduskunnan lehtereille asentaa pleksi ennen kuin joku heittää edustajien päälle oikeaa rahaa?
+-  탈당 하루 앞둔 이준석…한동훈 등판에 홀로 고립되나
+-  Волгоградский боксер поборется за титул чемпиона Азии по версии WBA
+-  2023, année de toutes les remises en cause pour les réseaux sociaux
+-  Video of teenage sensation Luke 'The Nuke' Littler throwing darts in nappies goes viral - with Ally Pally's boy wonder showing all of his natural talent at just 18-months-old
+-  Тульский «Арсенал» в зимнюю паузу может расстаться с пятью футболистами
+-  Pokemon fan proposes in cutest way possible using a custom Poke Ball
