@@ -1,11 +1,11 @@
 # Latest News
--  NBA: Sem Embiid e Butler, calouro chama a responsabilidade e Heat supera os 76ers
--  Temblor en USA hoy, lunes 25 de diciembre – magnitud, hora y dónde fue el último sismo vía USGS
--  Нетаньяху назвал три условия мира для Израиля и Газы
--  BJD Leaders Take Pledge To Build ‘Nabin Odisha’ On Party’s 27th Foundation Day
--  Bu gün 18 dərəcə isti olacaq
--  Patiala News: ਕੋਰੋਨਾ ਦੇ ਨਵੇਂ ਵੇਰੀਐਂਟ ਜੇਐਨ 1 ਨੇ ਮਚਾਈ ਦਹਿਸ਼ਤ! ਗਾਈਡਲਾਈਨਜ਼ ਲਾਗੂ ਕਰਵਾਉਣ ਲਈ ਐਕਸ਼ਨ ਮੋਡ 'ਚ ਪ੍ਰਸਾਸ਼ਨ
--  Gaya Rambut Nagita Slavina Saat Tanding Tenis Diledek Norak
--  Indian Navy to commission guided missile destroyer INS Imphal today. Details here
--  3 Cawapres Sepakat Lanjutkan Program Jokowi yang Dinilai Publik Problematik
--  Lucky Foods for New Year’s Eve 2024 (Year of the Wood Dragon)
+-  Hansal Mehta reviews `Dunki`, applauds Shah Rukh Khan-starrer
+-  Sara Ali Khan celebrates Christmas in London with mother Amrita, father Saif
+-  Jammu and Kashmir: 3.7 magnitude earthquake hits Kishtwar
+-  Stop violence, start peaceful dialogue: CM Biren Singh appeals to people
+-  Uttar Pradesh: Massive fire breaks out in scrap market near Lucknow
+-  Aboriginal man dies in Perth prison infirmary cell
+-  मार्क्सवादको विकास नै आजको प्रमुख चुनौतीः प्रधानमन्त्री दाहाल
+-  The Dems’ Anti-DeSantis Has a Plan for 2024—And Maybe 2028
+-  ‘The Color Purple’ Ending Needs Repainting
+-  Christmas Day in Hollywood! Will Smith and Jada Pinkett Smith reunite for family snaps after bombshell memoir revelations as they lead celebs taking to social media to celebrate holiday
