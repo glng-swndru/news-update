@@ -1,51 +1,51 @@
 # Latest News
--  ESK'den sığır satışının detaylarına ilişkin açıklama
--  Fenerbahçe maçının yeri değişti!
--  Motokuryenin ölümüne ilişkin soruşturmada yeni gelişme
--  TİKA'dan Afganistan'a destek
--  İmzalar atıldı! Dost ülke Özbekistan ile 7 anlaşma
--  חג'ג' וחלאילי ימשיכו בהרכב, בני ריינה מאמינה ביכולתה להפתיע
--  내년 총선부터 모두 수개표 한다
--  4/10 국선 울진... 등 선거구 여론조사 결과
--  Masazırda mənzildən meyit tapılıb
--  Reper Kanye West ispričao se zbog svojih antisemitskih primjedbi
--  Burnley v Liverpool betting offer: Bet £10 and get £40 in bonuses with Betfred
--  La invasión nunca debió ser la opción
--  Muere al ser trasladado a hospital tras accidente en Bachíniva
--  Van der Poel is ook in Gavere oppermachtig en blijft ongeslagen in veldritseizoen
--  المقاومة تستهدف 5 آليات للاحتلال في جباليا
--  الدوري الإنجليزي.. نوتنغهام يهزم نيوكاسل بثلاثية
--  استشهاد النائب الفلسطيني خميس النجار
--  غالانت يلمح لمسؤولية إسرائيل عن هجمات في عدة دول
--  14 killed in Plateau fresh attack, protesters raze houses
--  Izraelski proizvođač kafe izbacio riječ 'turska' sa pakovanja
--  Ime Kanyea Westa ispisano na raketi izraelske vojske, u prošlosti je veličao Hitlera
--  Apple želi surađivati s medijskim kućama u svrhu treniranja AI modela
--  L-Ukrajna: Attakk fuq vapur tal-gwerra jista’ jikkumplika l-istrateġiji tar-Russja
--  BREAKING: Triptii Dimri signed opposite Kartik Aaryan in Aashiqui 3
--  Komesarijat: Ove godine u Srbiji registrovano 107.374 migranata
--  Apple doesn’t get ‘relief’ from the US government, ban on Apple Watch continues
--  Žena s dvostrukom maternicom rodila dva puta u dva dana
--  Huawei Nova 12 serija telefona zvanično predstavljena, opet bez informacija o čipsetu
--  Koszmar gwiazdy Ekstraklasy. "Próbowaliśmy wszystkiego"
--  Gibran Tampil Baik Debat Cawapres, Luhut Beri Pujian Pemimpin Muda
--  Bandara Radin Inten Layani Penerbangan Ekstra di Libur Akhir Tahun
--  KFC incorpora nuevos locales y culminará el año con 10 a nivel nacional
--  Деспотовски: Оставаме успешна година зад нас – имаме просечен раст на бруто плати од 20% и 18.000 работни места
--  Football star receives treatment on the pitch as referee abandons Cray Wanderers vs Margate
--  Caen presuntos integrantes del Tren de Aragua implicados en varios secuestros en Chile
--  Įdomiosios tradicijos: švedų kalėdinis gėrimas, kuris žiemą į neviltį varo „Coca Colą“
--  Katastrofiškas mėnuo Rusijai. Skelbiama apie „itin karštus nuostolius“
--  Saturno paslaptis. Planetos žieduose yra paslaptingų „stipinų“. Nežinoma, kas tai yra (Video)
--  „Tai tikrai Krasovskis.“ Rusijoje šokas. Simonian skelbia, kas nutiko
--  Netikėta blizgančių girliandų istorija: už to slypi viena graži legenda ir dažno nemėgstamas gyvis
--  عاجل.. بعد اختفائهما.. العثور على مواطن ورفيقه الكويتي متوفيان في العراق
--  هل تفويض السيارة يمنع إصدار تأشيرة الخروج النهائي؟.. توضيح مهم من "الجوازات"
--  Ex-Premier League Wag and ‘world’s hottest woman’ stuns fans in ‘very festive’ outfit as she celebrates Christmas
--  1.502 Orang dengan Gangguan Jiwa di Karawang Masuk DPT Pemilu 2024
--  Abbas, Kalu congratulate Akume at 70
--  Bürgergeld: Anspruch auf Weihnachtsgeld – DANN bekommen auch Bezieher das Feiertags-Polster
--  Borussia Dortmund: Harte Worte! Jetzt geht es den BVB-Profis an den Kragen
--  NRW: Anschlagsdrohung! Polizei gibt Hauptbahnhof wieder frei
--  Актер сериала «Слово Пацана» ответил на вопрос о втором сезоне: «Верим, что он будет»
--  ¿Cuándo llegan a Cruz Azul los dos refuerzos que le faltan para el Clausura 2024?
+-  Migrant caravan in southern Mexico marks Christmas Day by trudging onward
+-  Požiar v domove seniorov v Kladne: Hasiči evakuovali 15 ľudí
+-  Techstars invirtió en Loto Punto, especialista en pagos digitales de población no bancarizada
+-  Global Times: Chinese Gen-Zers aim for journey to the sky with more imaginative innovation propelled by China's modernization process
+-  Щатските пазари започват последната седмица за годината с оптимизъм*
+-  Собчак, Билан, Киркоров извинилсь за "голую" тусовку Ивлеевой: печальные лица российских звезд
+-  Rosjanie zajęli miasteczko w obwodzie donieckim? Gen. Walerij Załużny: Nie, to miasto nie istnieje
+-  Część ulic już otwarta, ale tramwaj do Wilanowa dopiero we wrześniu
+-  Actualité : PlayStation Plus 3.0 : le cloud gaming arriverait sur les téléviseurs connectés et navigateurs web
+-  השיטה נחשפת: כך תשיגו מנוי פריומיום בספוטיפיי ב-6 שקלים בלבד
+-  החייל הפצוע הפתיע את ראש הממשלה: "מאיפה הכוחות?" | צפו
+-  המשבר הייטק הישראלי: האם נמצא הפתרון למחסור בכוח האדם?
+-  איילת שקד יוצאת להגנת גנץ: "השתגעתם?"
+-  ועדת הכספים באולטימטום לאוצר: הציגו מתווה או שנפנה לחקיקה
+-  תשעה חודשי מאסר ו-900,000 שקל קנס: הכרעה בפרשת גל הירש
+-  בר רפאלי משתפת בכאב: "רואה את הסרטון בריפיט ולא מסוגלת להמשיך"
+-  מחקר חדש חושף: אלו הרכישות הנפוצות ביותר בחודש נובמבר
+-  אמיר חצרוני מתפוצץ: "הפלסטינאים הם עם ערבי מפגר"
+-  גם אתם קורבנות לעוקץ האשראי ולא ידעתם? ההונאה הגדולה נחשפת
+-  קבוצת בסט במינוי מסקרן: זה מנכ"ל החדש של החברה
+-  "ייצור מקומי של פחות מ-75% מהצריכה - יסכן את המלאים בישראל"
+-  הקריפטו היומי: מגמות מעורבות בקרב המטבעות, הביננס קוין מתפוצץ
+-  אורנה בנאי מסעירה את הרשת: מה איחלה לבת משפחת החטופים?
+-  ליברמן חושף תכנית לשינוי צה"ל: "הקמת חיל טילים עוצמתי"
+-  המפלגה החדשה נגד המדינה: "בזמן שאנחנו טוחנים, הם טוחנים אותנו"
+-  В Ингушетии выявлен факт незаконного размещения отходов производства
+-  Are India’s oil lifelines safe?
+-  Entrega de Kits Recém-Nascido
+-  Россияда депортация қилинадиган чет элликларнинг сақлаш муддати чекланди.
+-  Japan s Finance Minister Shunichi Suzuki to visit Sri Lanka
+-  Ukraina: Shkatërruam një anije ruse në Krime
+-  Kutxabank Gestionek kalifikazio gorena jaso du IAPen
+-  Putin is mocked by one of his top allies over Russia’s egg shortage
+-  Feuerwehr-Einsätze an den Feiertagen: Rettungskräfte befreien sieben Personen aus Fahrstuhl
+-  Missing Malaysian Airlines flight MH370 search could be revived and resolved in days, experts suggest
+-  Тен Гаг: Ми маємо все виправити
+-  4 чемпіонські пояси Усика та Далакяна: чого очікувати Україні у 2024 році
+-  Rajnath Singh 27 डिसेंबरला Jammu आणि Rajouri ला भेट देणार
+-  Tio kulturpersonligheter som tystnat under 2023
+-  UP police Recruitment: పోలీసు రిక్రూట్‌మెంట్‌కు మూడేళ్ల వయోపరిమితి సడలింపు
+-  Ni Feid, ni Bad Bunny, las canciones decembrinas son las más escuchadas de Spotify
+-  В деревне Покровская горел дом на 100 «квадратах»
+-  Prezes Banku Rosji: jesteśmy gotowi na nowe sankcje
+-  India News | PM Modi Speaks to Saudi Crown Prince; Exchange Views on Situation in West Asia
+-  Ски сезонът на Витоша бе официално открит днес
+-  Губернаторская елка прошла в Калининграде
+-  Kreuzfahrt-Albtraum: Frau verkauft Haus für Drei-Jahres-Reise, dann startet das Drama
+-  Fedotenis anuncia 52 torneos juveniles y profesionales en RD para el año 2024
+-  Condutor passa mal, perde controle de carro na BR-163 e cai em vala de escoamento em Sinop
+-  В СПЧ объяснили призыв Залужного не скорбеть из-за потери населенных пунктов
