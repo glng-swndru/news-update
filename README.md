@@ -1,51 +1,51 @@
 # Latest News
--  تناول الكوسا لصحة القلب والجهاز الهضمي
--  تقرير: إخفاء قسري لنحو 3 آلاف معتقل من غزة
--  Puravive Reviews CONSUMER WARNING Revealed Puravive Weight Loss Supplement Price
--  شهيد فلسطيني برصاص الاحتلال جنوب الخليل
--  Dense fog engulfs Srinagar as night temperatures continue to drop in Kashmir
--  Talk to Pakistan or Kashmir will become Gaza, warns Farooq Abdullah
--  尹대통령 포기한 도어스테핑…‘정치인’ 한동훈은 이어갈까?
--  성탄절 아파트 비극, ‘부주의 가능성’ 무게…최초 발화점은 ‘컴퓨터방’
--  [인천군·구24시] 서구, 지역 특성에 맞는 주차장 만든다
--  Theme-driven stock frenzy dominates Korean market in 2023
--  Aviation stocks find rising momentum
--  'The Glory,' 'The Roundup,' LCK top Naver's search engine this year
--  Selection of next POSCO chairman triggers controversy
--  Under Taliban rule, Afghan schoolgirls' education stops at 6th grade
--  Rus 'Novoçerkassk' çıkarma gemisi hasar aldı
--  2023'ün ilk yarısında Türk dış politikasında ara buluculuk ön plandaydı
--  2023'te İstanbul uluslararası toplantılara ev sahipliği yaptı
--  Prensip anlaşma tamam! Valentin Rosier yuvadan uçuyor
--  İstanbul için "Marmaray Ekspres" önerisi
--  Batı'daki Müslüman algısı İsrail'in Gazze saldırılarının ardından olumlu yönde arttığı kaydediliyor
--  BM Raportörü'nden İsral'in vize tehdidine cevap
--  191 saat sürdü, 6 bin 968 sayfa tutanak tutuldu
--  Brazilskoj reprezentaciji prijeti izbacivanje iz svih natjecanja
--  وجهة ريناتو سانشيز المقبلة
--  Hrvati otkrili oko čega su se posvađali na Božić: ‘Svekrvu sam pitala jednu stvar’
--  Θεσσαλονίκη: 17χρονος εμβόλισε μηχανή της ΔΙΑΣ
--  İçişleri Bakanı Ali Yerlikaya, Organize Suç Örgütlerinin Lüks Araçlarının Emniyete Verildiğini Açıkladı [Video]
--  Xiaomi, 28 Aralık'ta Elektrikli Otomobili İçin Bir Etkinlik Düzenleyeceğini Açıkladı
--  고향사랑이 ‘비곗덩어리’로 돌아오다니…‘이 동네’ 도대체 무슨 일
--  Božić u Nemačkoj protekao bez očekivanih incidenata; U Beču uhapšene četiri osobe
--  Силуанов: дефицит бюджета РФ в 2023г составит около 1,5% ВВП или чуть меньше
--  거래소, 28일 증권·파생상품시장 폐장식 개최
--  Lovehoney slash the price of 'amazing' toy that makes shoppers climax in seconds
--  Five quick hits — A shocking error, some unexpected beef and Shane Warne's legacy
--  EastEnders fans stunned as FOUR axed characters return during explosive Christmas Day episode
--  2023 عام انهيارها وتقليص دورها: ما ينتظر الليرة بـ2024
--  Anand Babu: జగన్ వదిలిన బాణం.. ఆయనకే గుచ్చుకో బోతుంది: ఆనంద్ బాబు
--  Boxing Day Test: Rain threatens to spoil opening day in Melbourne, but Australia on top of Pakistan
--  Kripto Yatırımlarında Sert Ayı Sezonu: 2023, 2022'ye Kıyasla Geriledi
--  Estudante que caiu em golpe e perdeu formatura fez rifas e juntou latinhas para pagar festa: 'sonho jogado fora'; VÍDEO
--  ทัพ’ช้างศึก’บุกญี่ปุ่นยังไม่นิ่ง เรียก’ยศกร-ศุภนันท์’ แทน’ธีรศิลป์-ปกเกล้า’
--  Devlet Bahçeli Gerilimi Tırmandırma Peşinde: Şehit Cenazeleri Üzerinden Politika!
--  Kolona svatova stradala u stravičnoj prometnoj nesreći: poginulo četvero ljudi, među snimatelj i jedan bračni par
--  Landes. Le jour de Noël, un camion se couche sur l'A63, quatre personnes indemnes
--  금감원 수석부원장에 이세훈 전 금융위 사무처장
--  아시아증시 강보합…홍콩ㆍ후강퉁ㆍ선강퉁 휴장 속 거래량↓
--  Учет за рубежом и ограничения для уклонистов. В Раду Украины внесен законопроект о мобилизации
--  박진희‧정병용 의원, 2023년도 의정활동 우수의원 수상
--  삼성바이오, 공식 초청 받아 8년 연속 'JP모건' 참가
--  [인사] 국토교통부
+-  Los precios industriales moderan su caída al 7,4 % en noviembre
+-  IndusInd Bank presenta la primera tarjeta de crédito corporativa de India con UPI
+-  Happy Forgings se prepara para debutar en bolsa con una prima esperada
+-  El organismo español de defensa de la competencia inicia un expediente sancionador contra Repsol
+-  El petróleo sube por la tensión en Oriente Próximo y el recorte de tipos en EEUU
+-  Xankəndidə ermənilər heç bir iş görməyib
+-  Diyet yapanlara iyi haber: Tokluk hissi yaratan hap icat edildi
+-  Bahçeli'den net mesaj: Yayı gerilmiş ok gibiyiz
+-  Spor basınının 1 numarası Şansal Büyüka Galatasaray Fenerbahçe derbisinde kimsenin bilmediğini açıkladı
+-  SH "서초 성뒤마을 내년 상반기 분양"
+-  한미글로벌, 쿠웨이트 압둘라신도시 수주
+-  尹 정비사업 발언 나오자 … 국토부 도시재생과 신설
+-  "주택정책 이념아닌 시장따라" 박상우 국토장관 취임일성
+-  7년끈 하림 양재물류단지 이번엔 속도 기대
+-  بالتفصيل.. أنواع الضمان على السلع والمنتجات وموعد تفعيله
+-  Azərbaycan nə qədər yaşıl ölkədir?
+-  ESG 성과도 덤 … 소나무 7만 그루분 CO2 감축
+-  [스마트 산업강국 함께 하는 제조혁신] 존폐기로 기업이 혁신 전도사로 …"생산성 오르니 2년새 매출 2배"
+-  Ratusan ribu ringgit habis rawat PATI – Dr. Alpha Zaki
+-  Огнеборци спасиха от изпепеляване 16 сгради и 6 автомобила навръх Коледа - Труд
+-  고성장 인도 '직투' 가능한 유망株 있었네
+-  美레버리지·인버스도 배당…서학개미 신났다
+-  유커 큰손 사라지니…LG생건 '약세'
+-  Tottenham, Everton Still Negotiating Clause In Alli Transfer
+-  Natural gas production in Kyrgyzstan slopes downward
+-  Six wonderkids Premier League sides should eye in January transfer window including Kane understudy and £90m-rated ace
+-  Немецкий аналитик: Беларусь — европейская до мозга костей
+-  Russian PEC onsets North-South corridor-run cargo from Turkmenistan to Russia
+-  Umowa użyczenia lokalu. Jakie są różnice między użyczeniem a najmem?
+-  Kinderreisepass wird abgeschafft: Was Familien für den Urlaub 2024 wissen müssen
+-  Auriculares para hacer deporte: ¡que nada te pare!
+-  টাঙ্গাইলে নৌকার সমর্থকদের ওপর গুলির ঘটনায় জড়িত দুজন ঢাকায় গ্রেপ্তার: র‍্যাব
+-  Evacuada una persona tras empotrarse con su coche contra una farola en Pontevedra
+-  Первые украинские пилоты завершили обучение на истребителях F-16 в Великобритании
+-  Kansere duvar ören besin ortaya çıktı. Bu yöntemle pişirilince tümör hücrelerini tek tek eritiyor
+-  4 new models of Porsche to be launched in India in 2024
+-  युद्धस्तरमा भूकम्प प्रभावितको उद्धार
+-  الاحتلال يعتقل الأسيرة المحررة خالدة جرار في رام الله
+-  Azerbaijan sees growth in volume of loans issued for local households
+-  Просечната плата во Србија скокна: Сега изнесува 739.80 евра
+-  Samsul Tampil Moncer di Debat, Elektabilitas Prabowo-Gibran Capai 46,7 Persen Versi Survei Indikator
+-  Vietnam Rilis Skuad untuk Piala Asia 2023, Rival Timnas Indonesia Langsung Ketiban Apes
+-  सुपरमाई जलविद्युत् आयोजनाको उत्पादन बन्द
+-  Megindul Orbán Viktor szentté avatási eljárása, átírja a Bibliát a Fidesz – Herényi Károly ezeket várja 2024-től
+-  “Nar” Azərbaycan Voleybol Federasiyasının rəsmi tərəfdaşıdır
+-  Gram altını olanların başından aşağı kaynar sular döküldü 'Kuyumcu tek tek tarttı herkes şoke oldu
+-  Šehović i Canović u Njujorku: Susret sa udruženjima iseljenika i brojnim predstavnicima naše dijaspore
+-  ГАИ Минска за выходные зарегистрировала 238 нарушений ПДД таксистами
+-  Szef KRRiT apeluje o zgłaszanie przypadków niszczenia archiwów TVP i Polskiego Radia
+-  [VIDEO] Rumah tiang kuning ‘viral’ lagi, benteng putih jadi penyelamat banjir
