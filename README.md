@@ -1,11 +1,51 @@
 # Latest News
--  Айрим тадбиркорларга солиқ тўлашда имтиёзлар берилиши режалаштириляпти.
--  Ифлос ҳавоси туфайли Тошкент саратон ва астма ўчоғига айланмоқда.
--  Украина президенти: РФ бир ҳафта ичида 5 та жанговар самолётини йўқотди.
--  مسؤولة إغاثة: لم يتبق لأهل غزة سوى مساحة قليلة للفرار
--  خروج مطاري دمشق وحلب عن الخـدمة
--  صحافية تدعو هاري وميغان إلى الصمت في 2024
--  مشاهير فارقوا الحياة في كريسماس
--  فاران يغلق الباب أمام الدوري السعودي
--  70대女 성추행·불법촬영한 동네 주민들, 2심서 ‘가중 처벌’
--  송영길, 옥중 편지서 “김건희 여사는?”…구속기간 연장되나
+-  Wereldberoemde pianisten komen ook in 2024 naar de Edesche Concertzaal
+-  Great business partners drive great business performance
+-  PL Technical Research BUY CLEAN - TECHNICAL PICK
+-  Reagerer etter at verdensmesters blogg ble fjernet: – Meninger bør bli møtt med meninger
+-  بلاول زرداری پیپلز پارٹی کے گڑھ لیاری سے الیکشن نہیں لڑیں گے
+-  Украина нанесла мощный авиаудар по порту Феодосии
+-  Top doubles shuttler Pearly aims to stay injury-free next year
+-  الاحتلال يعتقل الأسيرة المحررة خالدة جرار في رام الله
+-  Kryzys na granicy. ”Rządy nie stanęły na wysokości zadania”
+-  Bakan Yerlikaya mahkeme kararını duyurdu: Artık milletimizin hizmetinde olacaklar
+-  Nuh Albayrak yazdı: Mehmetçiklerimizi kim şehit etti?
+-  Geri sayım başladı! Yeni asgari ücret ne kadar olacak?
+-  Canlı yayında cinayet itirafı! Faili en yakın arkadaşı çıktı
+-  Ankara'da PKK/KCK operasyonu
+-  İran ve Çin menşeli ürünlere soruşturması açıldı
+-  PSX downward trend continues as stocks plummet by 1300 points in intraday trade
+-  أشهر لغز طبي في العالم.. رجل ينجو من الموت بعد اختراق قصيب حديدي لرأسه
+-  Dalian iron ore rises on China stimulus hope, demand outlook
+-  Nach Vertrags-Tauziehen: So blickt Florian Silbereisen auf 2024
+-  Налоговые вычеты увеличат в 2024 году
+-  인테리어 B2B 플랫폼 ‘나야’, 투자 유치
+-  대리 운전자 사고 횟수따라 할인·할증…보험 가입 문 넓어진다
+-  ¡Da su regalo de Navidad! Venados le pega al líder Charros con épica remontada
+-  Krieg gegen die Ukraine: So ist die Lage
+-  On This Day in 2006 – Shane Warne makes Test bowling history with 700th wicket
+-  Mitsubishi UFJ Morgan Stanley se enfrenta a una demanda de 12,2 millones de dólares por los pagarés AT1
+-  Southwest estabiliza sus operaciones tras el caos de vuelos provocado por la niebla en Midway
+-  Kerstshow: hoeveel weet jij van The Streamers?
+-  Πόνος στο πόδι: Τι σημαίνει όταν ένας δυνατός πόνος «έρχεται και φεύγει»
+-  Op tweede kerstdag staat er taart op het graf van Michelle, Rinold en hun dochtertje Rinaigela
+-  Donna McLean: First Christmas without my kids taught me embracing change is the way forward
+-  Duncan Shearer: Dundee should have requested an early pitch inspection if there was any doubt over Aberdeen game
+-  ​VIDEO Ucraina anunță că a lovit nava de asalt amfibiu Novocherkask, staționată în portul Feodosia din Crimeea. Imagini cu momentul exploziei
+-  Singapore’s National Environment Agency, two employees charged over 2021 Tuas incineration plant explosion, which killed two agency officers
+-  A Web Server, The Sixteen Bit Way
+-  Scott Begbie: Captivating Fireballs show sense of community burns bright in Stonehaven
+-  Solarautos: Der geplatzte Traum und wer ihn am Leben hält
+-  Nebyť britských daní, USA sú možno stále súčasťou Spojeného kráľovstva
+-  HAYDİ TUT ELİMİ hikayesiyle büyükten küçüğe herkesin kalbine dokunacak
+-  Army Chief Orders Offensive Against Valley Terrorists Following Targeted Attack
+-  Création d'entreprise : un barrage contre la crise
+-  위험천만한 아파트 주민…고층에서 창밖으로 다리미 내던져
+-  Karjala itsenäiseksi? Venäjällä ajetaan erikoista hanketta, joka heijastuu myös sotaan Ukrainassa
+-  David Knight: Driving on the A9 shouldn’t carry as much risk as travelling abroad
+-  Od stycznia ponad 30 nowych miast w Polsce. Sprawdzamy na mapie, gdzie się pojawią
+-  Esat Oktay Yıldıran Kimdir? Kim Tarafından Öldürüldü?
+-  Секретният обект 17 в Лесидрен обвит в мистика и тайни
+-  Aumentan los casos de gripe en las semanas previas y durante la Navidad
+-  ハンバーガー具材落としゲーム『フライドポテトプッシャーフレンズ』発表。最大4人でなぜかハンバーガー用食材を押して提供
+-  RECENSION: Åsa Wikforss färdiga svar – vad sägs om lite ödmjukhet?
