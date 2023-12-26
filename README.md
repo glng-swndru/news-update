@@ -1,51 +1,51 @@
 # Latest News
--  ساعة المسلة.. نائب الاطار: المبالغ المصروفة للبصرة لا تنسجم مع حجم الإعمار
--  Demirde küresel artış
--  Власта на СДС и ДУИ се обидува да ја прошири Позитивната листа само со лекови од свои блиски фармацевтски фирми, велат од ВМРО-ДПМНЕ
--  Appalling footage exposes jaw-dropping size of Bronte Beach party as furious locals lash out at Christmas Day 'grubs'
--  The Biggest Loser's Steve 'Commando' Willis and trainer girlfriend Harika Vancuylenberg show off their fit forms during Boxing Day stroll in Sydney
--  Suomeen palannut hyökkääjä loistaa Ilveksessä – johtaa pistepörssiä
--  Luka Doncicilla hurja joulu NBA:ssa
--  أطعمة كاملة الدسم لخسارة الوزن!
--  وفيات الاردن الثلاثاء 26-12-2023
--  فوائد صحية هائلة للاستحمام بالماء البارد
--  واتس آب يطرح واجهة جديدة مشابهة لإنستغرام
--  واشنطن ترفض طلبا إسرائيليا للحصول على مروحيات
--  2574 طالبا في جرش يتقدمون لتكميلية التوجيهي
--  Новогодние гуляния отменил еще один город в Карелии
--  İsrail askerleri Gazze'de stadyumu 'Nazi Kampı'na çevirdi
--  Beşiktaş Emlakjet'in konuğu Wolves Vilnius
--  В моркинской детской библиотеке откроется точка «Гений места»
--  강릉시, 내년도 역대 최대 국비 4217억원 확보
--  Gaziantep Şahinbey'de 37 m² işyeri mahkemeden satılıktır
--  بالكاد تلمحها تحت الريش.. أنثى بومة تحمي صغارها من عاصفة بالسعودية بفيديو ظريف
--  Death toll at Indonesia smelter fire rises to 18, operation halted
--  대전시, 국내 우량기업 9개 사와 업무협약 체결
--  파주, 내년도 국비 4843억원 확보
--  현대건설 힐스테이트 환호공원, 포항 환여동에 쌀 40포 기탁
--  구리, 하수처리시설 운영 성과보고회
--  용인, 환경분야 유공 시민 40명 시장 표창
--  평택, 청년창업자 특례보증 이차보전 지원
--  카카오 흔든 대구로택시, 전국 최고 공공형 택시앱으로 도약
--  안양, 올해 市 승격 50주년 맞아 각종 상 휩쓸어
--  경기도, 올 예술인·장애인 기회소득 1만4000명 지급
--  포항시, ‘과수산업 육성 시책 평가’ 2년 연속 ‘최우수상’ 수상
--  오산시보건소, 코로나 선별진료소 운영 종료
--  오산시, 공공시설 내 전기차충전시설 운영
--  계명대 동산의료원 전재규 명예교수 사상 담은 책 출간
--  영양군, 2024년 주요 국비 사업 예산 확보
--  국민의힘 김보현 김포(갑) 예비후보 22대 총선 출마 공식선언
--  오산시, 2023년 에이즈 예방 캠페인 전개
--  오산시 한라어린이집, 성탄절 맞아 백미 200kg 기탁
--  지구촌어린이집, 오산시에 행복나눔 라면트리 기부
--  [인사] NH투자증권
--  오산시 내년도 예산 7624억 확정… 지역경제·행정편의에 중점
--  오산시 세마동, 주다산교회로부터 생필품 30박스 기탁받아
--  김윤식 신협중앙회장, 한국협동조합협의회 회장 선임
--  국민 10명 중 9명 "해외여행자 검역 중요"
--  Sh수협은행, 조폐공사와 지역사랑상품권 제공 맞손
--  셀트리온, 유플라이마-휴미라 간 동등성·안전성 입증
--  이낙연·정세균·김부겸, 이르면 이번주 회동(종합)
--  IBK기업은행, 충청남도·보증기관과 중소기업 동행지원 업무협약 체결
--  차바이오텍, 프롬바이오와 탈모 세포치료제 CDMO 계약
--  서울·성남시 등 4곳, 지속 가능 교통도시 평가 '우수'
+-  تناول الكوسا لصحة القلب والجهاز الهضمي
+-  تقرير: إخفاء قسري لنحو 3 آلاف معتقل من غزة
+-  Puravive Reviews CONSUMER WARNING Revealed Puravive Weight Loss Supplement Price
+-  شهيد فلسطيني برصاص الاحتلال جنوب الخليل
+-  Dense fog engulfs Srinagar as night temperatures continue to drop in Kashmir
+-  Talk to Pakistan or Kashmir will become Gaza, warns Farooq Abdullah
+-  尹대통령 포기한 도어스테핑…‘정치인’ 한동훈은 이어갈까?
+-  성탄절 아파트 비극, ‘부주의 가능성’ 무게…최초 발화점은 ‘컴퓨터방’
+-  [인천군·구24시] 서구, 지역 특성에 맞는 주차장 만든다
+-  Theme-driven stock frenzy dominates Korean market in 2023
+-  Aviation stocks find rising momentum
+-  'The Glory,' 'The Roundup,' LCK top Naver's search engine this year
+-  Selection of next POSCO chairman triggers controversy
+-  Under Taliban rule, Afghan schoolgirls' education stops at 6th grade
+-  Rus 'Novoçerkassk' çıkarma gemisi hasar aldı
+-  2023'ün ilk yarısında Türk dış politikasında ara buluculuk ön plandaydı
+-  2023'te İstanbul uluslararası toplantılara ev sahipliği yaptı
+-  Prensip anlaşma tamam! Valentin Rosier yuvadan uçuyor
+-  İstanbul için "Marmaray Ekspres" önerisi
+-  Batı'daki Müslüman algısı İsrail'in Gazze saldırılarının ardından olumlu yönde arttığı kaydediliyor
+-  BM Raportörü'nden İsral'in vize tehdidine cevap
+-  191 saat sürdü, 6 bin 968 sayfa tutanak tutuldu
+-  Brazilskoj reprezentaciji prijeti izbacivanje iz svih natjecanja
+-  وجهة ريناتو سانشيز المقبلة
+-  Hrvati otkrili oko čega su se posvađali na Božić: ‘Svekrvu sam pitala jednu stvar’
+-  Θεσσαλονίκη: 17χρονος εμβόλισε μηχανή της ΔΙΑΣ
+-  İçişleri Bakanı Ali Yerlikaya, Organize Suç Örgütlerinin Lüks Araçlarının Emniyete Verildiğini Açıkladı [Video]
+-  Xiaomi, 28 Aralık'ta Elektrikli Otomobili İçin Bir Etkinlik Düzenleyeceğini Açıkladı
+-  고향사랑이 ‘비곗덩어리’로 돌아오다니…‘이 동네’ 도대체 무슨 일
+-  Božić u Nemačkoj protekao bez očekivanih incidenata; U Beču uhapšene četiri osobe
+-  Силуанов: дефицит бюджета РФ в 2023г составит около 1,5% ВВП или чуть меньше
+-  거래소, 28일 증권·파생상품시장 폐장식 개최
+-  Lovehoney slash the price of 'amazing' toy that makes shoppers climax in seconds
+-  Five quick hits — A shocking error, some unexpected beef and Shane Warne's legacy
+-  EastEnders fans stunned as FOUR axed characters return during explosive Christmas Day episode
+-  2023 عام انهيارها وتقليص دورها: ما ينتظر الليرة بـ2024
+-  Anand Babu: జగన్ వదిలిన బాణం.. ఆయనకే గుచ్చుకో బోతుంది: ఆనంద్ బాబు
+-  Boxing Day Test: Rain threatens to spoil opening day in Melbourne, but Australia on top of Pakistan
+-  Kripto Yatırımlarında Sert Ayı Sezonu: 2023, 2022'ye Kıyasla Geriledi
+-  Estudante que caiu em golpe e perdeu formatura fez rifas e juntou latinhas para pagar festa: 'sonho jogado fora'; VÍDEO
+-  ทัพ’ช้างศึก’บุกญี่ปุ่นยังไม่นิ่ง เรียก’ยศกร-ศุภนันท์’ แทน’ธีรศิลป์-ปกเกล้า’
+-  Devlet Bahçeli Gerilimi Tırmandırma Peşinde: Şehit Cenazeleri Üzerinden Politika!
+-  Kolona svatova stradala u stravičnoj prometnoj nesreći: poginulo četvero ljudi, među snimatelj i jedan bračni par
+-  Landes. Le jour de Noël, un camion se couche sur l'A63, quatre personnes indemnes
+-  금감원 수석부원장에 이세훈 전 금융위 사무처장
+-  아시아증시 강보합…홍콩ㆍ후강퉁ㆍ선강퉁 휴장 속 거래량↓
+-  Учет за рубежом и ограничения для уклонистов. В Раду Украины внесен законопроект о мобилизации
+-  박진희‧정병용 의원, 2023년도 의정활동 우수의원 수상
+-  삼성바이오, 공식 초청 받아 8년 연속 'JP모건' 참가
+-  [인사] 국토교통부
