@@ -1,51 +1,51 @@
 # Latest News
--  Yere batsın projeniz! AP üyesi, ABD'nin Gazze'de ateşkesi veto etmesinin nedenini açıkladı
--  Manisa FK'da Osman Özköylü dönemi sona erdi
--  Şehit cenazesinde CHP'ye bir tepki daha! Özel'in gönderdiği çelenk tören alanı dışına atıldı
--  Hatay'da depremlerde hasar alan AVM'nin yıkımına başlandı
--  Ticaret Bakanı Bolat: 2023, 1 trilyon doların üzerinde milli gelirle kapatılacak
--  Bakan Tunç: Anayasamızın darbeciler tarafından yazılmış olması bile tek başına değişme sebebidir
--  Sırbistan: Kosova plakalı araçlara "serbest dolaşım" kararı "bağımsızlığın tanınması' olarak yorumlanamaz
--  İbre ona döndü! Beşiktaş'ta Sergen Yalçın sesleri
--  İsrail, İngiltere'nin devrettiği skandal uygulamaya sahip çıkıyor
--  중국행 막힌 ‘일본 가리비’ 韓 수출설에…정부 “日 계획에 불과”
--  Substance likely to be faeces smeared on Tampines HDB void deck ground & wall on Christmas eve
--  Road caves in on Gurugram-Sohna flyover, Haryana deputy CM calls it ‘natural phenomenon’
--  NATA 2024 information brochure released at nata.in; check exam dates here
--  आठ साल की बेटी के सामने मारी मां को गोली, सोशल मीडिया इंफ्लूएंसर की दर्दनाक कहानी
--  Best of cartoons, December 27, 2023
--  Best of cartoons, December 27, 2023
--  İranda APA-nın saytına giriş məhdudlaşdırılıb
--  Tourist drives through river while several remain stuck in traffic in Himachal Pradesh, video goes viral
--  Fotografia de polícia a deter homem embriagado comparada a "arte renascentista"
--  El crudo opera estable, el mercado está atento a tensiones en Oriente Medio y recorte de tasas en EEUU
--  El oro sube, ya que expectativas de recorte de tasas de la Fed impulsa atractivo
--  Tata Motors consigue un pedido para suministrar 1.350 autobuses a la UPSRTC
--  Un buque cerca de Yemen informa de drones y explosiones en el mar Rojo
--  Las bolsas del Sudeste Asiático terminan la jornada en terreno mixto
--  Totti, un like alla foto di Ilary scatena i fan
--  Congress: కేయూలో 28 నుంచి 30 తేదీ వరకు ఇండియన్ హిస్టరీ కాంగ్రెస్ సదస్సులు
--  Se llevaron a su padre antes de conocerlo; todos los días, su hija lo espera en la puerta
--  Χάρης Παπαθεοχάρους: Ρωτήθηκε πόσα χρήματα κερδίζει για μια ανάρτηση στο Instagram
--  Halálos lakástűz volt Miskolcon
--  Навални: Аз съм вашият нов дядо Мраз. Подаръци ще има само за тези, които са се държали много лошо
--  Nagrade za Božovića, Šaranović i Markovića
--  L-Istrina, Malta’s largest annual charity telethon, to kick off at noon
--  So záplavami bojuje aj Česko: Tretí povodňový stupeň! Na ďalšiu vlnu sa chystá aj Slovensko
--  В Карабахе нашли большое количество мин и боеприпасов
--  إنارة منفذ رأس اجدير الحدودي
--  What My Father Did To Me For 10 Years Over Choice Of Dumping Law For Comedy – Alibaba
--  Santa Claus rally- US stocks look for strong yearly gains
--  Baghdad condemns U.S strike on Iraqi military positions
--  岸田政権最大の危機「若手議員が”乱”を起こす。来年は混乱の１年に」ジャーナリスト・鈴木哲夫
--  Netanyahu pengon kreun e Mossadit të marrë pjesë në mbledhjet e sigurisë
--  Daihatsu fecha quatro fábricas no Japão devido a investigação aos testes de segurança
--  Струјата од први јануари ќе поевтини за првиот блок за 5,16 отсто, за вториот останува иста, а за третиот и четвртиот блок поскапува за 2,88% и 1,86%
--  World News | Bahraini Economy Achieves Growth of 2.45 Per Cent in Third Quarter of 2023
--  子育て世帯支援の食料品セットに最多申し込み 物価高苦しむ声
--  Heboh Pemain Timnas Indonesia Masak Mie Instan saat TC Jelang Piala Asia 2023
--  Verkehr: Baustelle Kreuz Kaiserberg: Anwohner sauer auf Autobahn GmbH
--  Senator raises alarm over rise in Killings in Taraba, calls for state of emergency
--  Anybody who has picked up the electric guitar owes something to B.B. King – learn how to incorporate his lyrical style and immaculate phrasing into your own playing with these must-try solos
--  제품 11종·생활환경 4558곳 전자파 노출량 ‘양호’
--  [인사] DGB금융그룹
+-  Pre viaceré okresy na Slovensku platia naďalej výstrahy pred povodňami
+-  Luxusné Vianoce u Rytmusa: Dal si vyrobiť MEGA prsteň s diamantami... Za 100-tisíc eur!
+-  KVÍZ Tieto otázky zvládne len skutočný milovník Vianoc: Uhádneš známe piesne len podľa pár slov?
+-  Som a ostanem profesionálnym politikom, nemám už iné kariérne ambície, povedal Fico
+-  יוזמה למפוני קו העימות: הכשרה ושילוב בתעשיית ההייטק
+-  במקום לרוץ למיון: מענה רפואי מקצועי תוך כשעה
+-  В Комсмольске-на-Амуре увеличили объемы ввода жилья
+-  MUP RS oduzeo skupocjeni 'BMW' za kojim traga Interpol
+-  السعودية تعزز حضورها في أسواق الغاز
+-  OR ยันสถานบริการน้ำมันทุกแห่ง ปรับแต่งมาตรวัดไม่ได้ พร้อมปรับมิเตอร์ให้เป็นศูนย์หรือบวก
+-  Slik leder han Haaland & Co.: – Ikke tro han er skrudd eller hater glede
+-  "PUSTIMO IH DA ŠUTIRAJU LOPTU, DOK SE CEO GRAD MUČI" Vučić o protestima u Beogradu: Svako ima pravo da protestuje, dok ne dođe do nasilja (VIDEO)
+-  U Plavu tri dana žalosti
+-  Incendiu la Ferma Dacilor. Tatăl unui angajat: „Fiul patronului venise acasă din cantonament fiindcă se accidentase la hockey"
+-  "STREFIO ME ŠLOG ZBOG NJEGOVIH PREPISKI S DRUGOM CICOM" Jelena i Ivan Marinković ušli u "Elitu", ona pred ulazak otkrila NAJVEĆI STRAH
+-  المنتخب الوطني لكرة السلة يفتتح اليوم مشاركته في البطولة العربية
+-  “N’effacez pas Gérard Depardieu” : des artistes signent une tribune en défense de l’acteur
+-  San Bernardo: Niño de 3 años en riesgo vital tras recibir impacto por balacera estando al interior de su casa
+-  Frau und vier Kinder tot bei Paris aufgefunden
+-  EVO GDE ĆE BITI SAHRANJEN MLAĐI BRAT MARKA JANJUŠEVIĆA JANJUŠA: Oglasila se tetka pokojnog Mihaila, otkrila detalje
+-  Экономику еврозоны ждет слабый рост в 2024 году - прогноз
+-  MAT: మ్యాట్ - ఫిబ్రవరి 2024 నోటిఫికేషన్ విడుదల, దరఖాస్తు ప్రక్రియ ప్రారంభం - పరీక్ష ఎప్పుడంటే?
+-  На стыке БАМа и Транссиба завершилось строительство новой железнодорожной развязки
+-  Investigadores del 12 de Octubre demuestran la validez de un tratamiento para bebés con tuberculosis y VIH
+-  Investigadores del 12 de Octubre demuestran la validez de un tratamiento para bebés con tuberculosis y VIH
+-  Nehammer dankt Exekutive für Einsatz gegen Terror
+-  Oustaz Bayo en prison pour avoir violé 9 mineures, les révélations effarantes du rapport gynécologique
+-  Caušević: Borba Sindikata prosvjete je borba svih zaposlenih u...
+-  Ucrania destruyó un buque ruso en el mar Negro y asegura que lo utilizaban para transportar drones iraníes
+-  콜로라도주 판결 “2024 대선 투표용지에서 트럼프의 이름 빼라” [팩트매터]
+-  Израиль задержал на Западном берегу Иордана более 30 подозреваемых в терроризме
+-  Fact Check: अमूल ने नहीं लॉन्च किया “शर्म” ब्रांड का चीज, वायरल तस्वीर AI क्रिएटेड है
+-  OBC Protest : 20 जानेवारीला राज्यभर ओबीसी समाजाचं विविध मागण्यांसाठी आंदोलन ABP Majha
+-  Ancelotti recuperará a Camavinga y Vinicius para la Supercopa en Arabia
+-  Ancelotti recuperará a Camavinga y Vinicius para la Supercopa en Arabia
+-  ما هي فوائد العنب الأسود واضراره؟
+-  مقتل إسرائيلي بإنفجار عبوة ناسفة - فيديو
+-  CM Jagan Playing Cricket | Aadudam Andhra | ఆడుదాం ఆంధ్ర కార్యక్రమంలో భాగంగా క్రికెట్ ఆడిన సీఎం జగన్ | ABP
+-  Trabzon’da Avrasya Üniversitesi rol model olmaya devam ediyor!
+-  חדש: תוכנית חברתית לבחירת מקצועות מדעיים וטכנולוגיים
+-  FT: крупнейшие банки мира сократили в 2023 году более 60 тыс. рабочих мест
+-  Bahçeli: CHP, Türkiye düşmanlarının eline geçmiştir
+-  Hasta yakını, hemşireyi darbetti: Gözaltına alınan saldırgan serbest bırakıldı
+-  Başkan Altay, turizm paydaşlarıyla değerlendirme toplantısı yaptı
+-  Konya'da kumar oynayan 6 kişiye 24 bin 330 TL ceza
+-  Karaman'daki eski damat-kayınpeder kavgasında, yaralılardan 1'i taburcu olduktan sonra gözaltına alındı
+-  "DA JE ŽIV, BIO BI VEOMA TUŽAN" Bliži se godišnjica SMRTI legendarnog Pelea, njegov sin rešio da otvori dušu!
+-  Tsunami 19th Anniversary: 19ம் ஆண்டு சுனாமி நினைவு தினம்; சுனாமி ஸ்தூபில் மும்மத சிறப்பு பிரார்த்தனை - உறவினர்கள் கண்ணீர் மல்க அஞ்சலி
+-  Израиль сообщил о попытке обстрела летательного аппарата ВВС со стороны Ливана
+-  El discurso del Rey, el segundo menos visto de la década
