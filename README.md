@@ -1,51 +1,51 @@
 # Latest News
--  В России расширят эксперимент по внедрению биометрии для посадки на поезд
--  Βασίλης Καρράς: Ποιος θα εκφωνήσει τον επικήδειο λόγο
--  Debat Cawapres, Warga: Gibran Membuktikan, Cak Imin Sudah Berusaha Semampunya
--  Lukas Enembe 15 Kali Cuci Darah Sebelum Meninggal
--  Hochwasser-Hotspot: Lage im überfluteten Windehausen stabil
--  Djebril craque à quelques heures des évaluations de la Star Academy !
--  Incendiu la Ferma Dacilor din Prahova. Ipoteze în cazul tragediei: mână criminală sau defecțiune la centrala de lemne
--  Los más atrevidos llenan de vida el río Lérez
--  Pasarón, la visita más temida
--  Турскиот парламент расправа за членството на Шведска во НАТО
--  В Казахстане хотят ввести 4-уровневый тариф и нормы потребления воды
--  Отходы – под пресс
--  Gkn, scatta l'ora X: Capodanno al presidio contro i 185 licenziamenti
--  اللجنة المشتركة التونسية السعودية تبحث تعزيز التعاون الثنائي
--  মুচলেকা দিলেন সীতাকুণ্ড উপজেলার ভারপ্রাপ্ত চেয়ারম্যান
--  Militantes críticos en Podem gestan su propia candidatura a las primarias para "recuperar el partido"
--  Демократски сојуз: ДУИ и СДСМ да не го блокираат изборот на член на ДИК
--  Dell Premier Collaboration Keyboard and Mouse KM900 Review
--  รัฐควัก 7.7 พันล้าน จ่ายชาวไร่อ้อย 1.25 แสนราย เงินเข้าบัญชีวันนี้
--  เดินทางปีใหม่ ทล.แนะเส้นทางสายหลัก-สายรอง ออกจากกรุงเทพฯ
--  Голикова наградила лауреатов премии "Душа России"
--  Surprise ! Laurent Ruquier quitte (déjà) BFMTV : "Je préfère m'arrêter là"
--  Pokemon Scarlet & Violet DLC convinces players about “iconic” NPC returning in future games
--  安倍派幹部5人 派閥の政治資金収支報告書 不記載への関与否定
+-  Narzekali, ale poparli. Trudny budżet na 2024 rok
+-  Покрив и оџак гореле на две различни локации во кумановско
+-  대구가톨릭대병원, 피부·성형 재건 센터 리모델링 오픈
+-  [인사] 대구농협
+-  [인사] 경북농협
+-  [사설] 정부·정치권, 원전산업 지속가능 방안 찾아야
+-  [삼촌설] 칼보다 바늘
+-  [본사 손님] 진형혜 법무법인 GL 변호사·(사)한국여성변호사회 부회장
+-  [아침광장] 약한 자의 슬픔
+-  [인사] KT 대구경북본부
+-  포항 양덕동 저수지서 썰매 타던 초등학생 1명 얼음 깨져 숨져
+-  대구시의회, 올해 의정활동 마무리..안건 307개 심사·의결 · 조례 183건 처리
+-  Lukašenko: Rusija nam je isporučila taktičko nuklearno oružje
 -  Περιμένουν νέα…
--  Военных ВСУ приговорили к пожизненным срокам за расстрел 12 жителей Мариуполя
--  Захарова рассказала об ультиматуме Запада Сербии
--  Mash: двое мигрантов убили мать бойца СВО и расчленили тело
--  Детский омбудсмен Мухина рассказала о самочувствии школьников после стрельбы в Брянске
--  Hapag-Lloyd ogłosi w środę, czy wróci na Morze Czerwone
--  Salwador: bitcoina używa tylko niewielki odsetek społeczeństwa
--  Minister energetyki Mołdawii: wygraliśmy walkę o bezpieczeństwo energetyczne
--  Chipolopolo Date Cameroon in Pre-AFCON Friendly
--  Parque lineal en Viaducto, abandonado; vecinos piden que se le dé mantenimiento
--  Rusia se apodera de bastión clave para ucranianos
--  Aquaman llega al #1, pero no convence
--  EZLN invita a celebración de su levantamiento
--  Sweet Success in Alicante’s Christmas Decoration Contest
--  FU Berlin stellt zahlreiche Anzeigen nach Hörsaalbesetzung
--  Cum va fi vremea în ianuarie 2024. ANM a emis prognoza meteo pentru următoarele patru săptămâni
--  Украина отказалась считать вето Венгрии проблемой для получения денег от ЕС
--  Новогоднее творчество наших читателей
--  Türkiye'den 73 ülkeye gönderildi! Değeri tam 140 milyon dolar
--  Merkez Bankasının ihalesine 130 milyar 263 milyon liralık teklif
--  Süper Kupa'nın VAR hakemi belli oldu!
--  Diyarbakır annelerinin mücadelesi kararlılıkla devam ediyor
--  "Adım adım ilerleyeceğiz" Abdullah Avcı transfer stratejisini açıkladı
--  4 ilde terör operasyonu: 16 kişi gözaltına alındı
--  Öğretmenlerin yer değişikliği atama sonuçları açıklandı
--  Захарова: Западът е дал ултиматум на Сърбия „всичко, но не и с Русия“
+-  Kemppi Group’s 2023 Strategy Award for Kempower
+-  BL eftir sem áður á toppnum
+-  Ovatko työsuhde-etusi menossa vanhaksi? Asiantuntija vinkkaa käyttökohteet
+-  ПСЖ си осигури първия трансфер
+-  Közös fotóval kívánt boldog karácsonyt a főispán és a vármegyei közgyűlés elnöke
+-  Halifax doctor calls for action to keep cyclists safe on city streets
+-  Stručnjaci: Šteta Starog dvora veća od 10 miliona?
+-  After years of drought and wells running dry, this Nova Scotia community is looking to the sea
+-  Trak pikap halang laluan ambulans
+-  Bakan Tunç'tan Can Ataklı sorusuna yanıt: Soruşturma başlatıldı
+-  Top 9 grill microwaves and alternatives you can buy: Efficient and stylish picks
+-  Inside Sir Jim Ratcliffe’s historic haunted pub where drinkers stick money on the ceiling for ghost of murdered soldier
+-  ¿Dónde comprar boletos de Mexicana de Aviación?
+-  How Wearables Revolutionize Health and Connectivity with Smartphones
+-  Navalny Recounts ‘Exhausting, Secret’ 20-Day Transfer to Arctic Prison, Says ‘Doing Fine’
+-  ‘Rich Dad’ Kiyosaki’s top 3 market predictions for 2024
+-  A chemically defined, xeno-free culture system for culturing and deriving monkey pluripotent stem cells in vitro
+-  Duitsland vreest voor dijkdoorbraak en overstromingen in grensstaat Nedersaksen
+-  Why Osmosis (OSMO) & SATS Prices Are Skyrocketing Today?
+-  CD-Tipp nach Weihnachten: Zwei neue "Klassikperlen", aufgenommen im Neumarkter Reitstadel
+-  CD-Tipp nach Weihnachten: Zwei neue "Klassikperlen", aufgenommen im Neumarkter Reitstadel
+-  Soccerladuma | Cupido: I Need To Pay The Club Back
+-  Stock Market Today: Nifty 50, Sensex end higher for third straight session; investors earn over ₹2 lakh crore in a day
+-  GeeTest Unveils Bot Management 101 eBook Series, Illuminating the Attacker's Playbook
+-  Get a handle on business goals with MS Visio and MS Project, just $29.99 each
+-  SNSにはもう惑わされない？ 「お金を使わない2024年」を誓う人が増えている
+-  Top 3 Big Tech stocks to buy in 2024
+-  Inspired by grief, woman gives back to Fredericton homeless community
+-  Hvad er autokorrektur? Og hvordan får du mest ud af det?
+-  Spaghetti Junction sleigh ride
+-  Mehr Licht! Alexander Bartls Buch über eine Gesellschaft unter Strom
+-  A More Actively Managed Decline?
+-  Újabb nemzetközi rangsorban szerepelt sikeresen a Pannon Egyetem
+-  North-east smokers urged to make quitting their goal for 2024
+-  Cook up a tasty treat for your furry best friend this Christmas!
+-  FC Barcelona News: 26 December 2023
