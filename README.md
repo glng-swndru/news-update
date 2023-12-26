@@ -1,51 +1,51 @@
 # Latest News
--  Riñas navideñas en bares dejaron 3 clausuras
--  柏崎刈羽の運転禁止解除へ
--  Nod to temporary tents near homes
--  Googles danske topekspert frygter ikke kunstig intelligens: Meget andet skal man virkelig bekymre sig for
--  Googles danske topekspert frygter ikke kunstig intelligens: Meget andet skal man virkelig bekymre sig for
--  Más de 11 mil productos vencidos fueron decomisados por la Acodeco
--  Judy Meana: "Usted cosecha lo que siembra, la vida no es suerte"
--  들리지 않는 계약 소식… SSG-김민식 동행 계속될까[초점]
--  VIDEO: Santa Claus detiene a narcotraficantes en Perú
--  Hamas denies ‘rejecting Egyptian ceasefire deal’
--  The Golden Hour : on sait déjà si le thriller de Netflix aura une saison 2
--  'Final-four' da Taça da Liga com todos os jogos às 19:45
--  토론토, 1년 1050만$에 외야수 키어마이어와 재계약
--  First Hindu woman in Pakistan files nomination to contest provincial elections
--  Bedavaya GPT-4 ve DALL-E 3 Kullanmanıza İzin Veren Yapay Zekâ Modeli Microsoft Copilot'un Mobil Uygulaması Kullanıma Sunuldu
--  Stopp i tågtrafiken
--  Only genuine love with real sacrifice can help us - CAN Chairman
--  AI can make world a more equitable place: Bill Gates
--  עקף את קיין ואמבפה וחגג על בנזמה: צמד לרונאלדו ב-2:5 של אל נאסר
--  Fantasy Football Week 17: Start, sit, cut decisions on Joe Flacco, George Pickens
--  VC SKUAST-K inspects Mountain Livestock Research Institute, Mansbal
--  SKUAST-K organises two management skill program in KVK Anantnag
--  قاعدة أمريكية تتعرض لهجوم صاروخي شمال شرقي سوريا
--  Oni kreiraju budućnost: Brinu o okolišu i zbrinjavanju otpada, pomažu osobama s invaliditetom, testiraju bežične mreže
--  Nets vs. Pistons prediction: NBA odds, picks, bets bets for Tuesday
--  ZNÓW NAPAD NA KANTOR
--  Viksit Bharat@2047: CUK kick-starts training prog cum lecture series for admn staff
--  VIDEO: Mane i Ronaldo nanijeli bolan poraz Benzemi u derbiju
--  Nijemci priveli pet osoba povezanih s mogućim napadima na katedralu, Tadžikistanac zadržan iza rešetaka
--  7 vezes em que o STF assumiu o papel de outros poderes em 2023
--  Venäjä iski Hersonin rautatieasemalle – ainakin yksi kuoli
--  Venäjä iski Hersonin rautatieasemalle – ainakin yksi kuoli
--  Venäjä iski Hersonin rautatieasemalle – ainakin yksi kuoli
--  Economía dominicana registra expansión interanual del 4.2%
--  Navire échoué, vétéran décédé, éoliennes... Les 5 infos à retenir du 26 décembre dans la Manche
--  Vinesh Phogat returns Khel Ratna, Arjuna Award, writes open letter to PM Modi to convey grief
--  NAPADNUT IZRAEL SA MORA! GAĐAN POZNATI GRAD! Eskalacija sukoba na Bliskom istoku, evo ko stoji iza svega
--  Rabada’s fifer limits India to 208/8 as rain forces early stumps on Day 1
--  Coca-Cola extends partnership with ICC till 2031
--  Kvinna misstänks hålla barn gömda i Malmö
--  Tourism Dept announces Snow Skating Coaching Course at Sonamarg
--  Michael Beale borrows from Rangers playbook during Sunderland victory lap as jubilant boss nabs 2 Ibrox buzzwords
--  Niño de 6 años que viajó para visitar a su abuela abordó el vuelo equivocado
--  ‘E29 MUSIC IDENTITIES’ คัฟเวอร์ ‘MERRY CHRISTMAS 2023’ รับปีใหม่
--  RDC : lancement des « mobilisation citoyennes » pour l’annulation des élections
--  Miha Zajc s štirimi goli začel veliki preobrat Olimpije
--  Miha Zajc s štirimi goli začel veliki preobrat Olimpije
--  Ken Jennings Broke His Silence About Mayim Bialik's "Jeopardy" Firing
--  (GALERIA). La emperatriz Fátima Román y su saludo navideño en compañía de sus amores
--  La Russie lance un avis de recherche contre deux de ses escrimeurs
+-  Condenan a 4 extranjeros por tráfico internacional de drogas
+-  Petro firma un decreto que da acceso gratuito a escuelas de las Fuerzas Militares y Policía
+-  Visitan puertos de control en Chiriquí
+-  NH농협은행 서울본부, 릴레이 사랑의 쌀 나눔
+-  “둘째부터 학교 교육비 지원가능”…윤영희 서울시의원, 조례 제정
+-  베이비타임즈 장선희 기자, ‘제1회 인류애실천분중문화상’ 언론문화상 수상
+-  이동환 고양특례시장, 풍동 신천지 종교시설 허가 ‘일파만파’
+-  ¿Japón, a la Serie del Caribe? Esto se sabe sobre el interés de los nipones en participar en 2025
+-  La reacción de Enzo Pérez con el Diablito Echeverri en el vestuario de River, tras su frase bomba
+-  Influencerin (33) wurde von ihrem eigenen Ehemann ermordet!
+-  Российские фехтовальщики сбежали в США. За что их объявили в розыск?
+-  'I really hope he does it again': Nuno Espirito Santo backs Chris Wood to have a prolific season in front of goal after the New Zealand striker scored a hat-trick to help Nottingham Forest defeat his former club Newcastle
+-  Se viraliza un video en el que Zelenski asevera que "no obligarán a palos" a servir en el Ejército
+-  Jonathan Dunn charged with murder of two-year-old boy in Utah and injuring his twin sister: Suspect could face death penalty if convicted after spending two years in jail for breaking another child's arm
+-  Renfe ha bloqueado este año 22.350 abonos de media distancia por uso indebido
+-  Santa Catarina prorroga o prazo para plantio de soja devido ao problema das chuvas
+-  Rocío Guirao Díaz marca tendencia con una microbikini tiro alto de su cápsula
+-  Matt Napolitano, Fox News Audio Anchor and Reporter, Dies at 33
+-  Grèves des enseignants: signature d’un accord sur le statut des fonctionnaires du secteur de l’éducation nationale
+-  Point de vue de La Presse de la Manche. « Le cœur bat en blanc »
+-  Ουκρανία: Ένας νεκρός και 4 τραυματίες από ρωσικό βομβαρδισμό στον σιδηροδρομικό σταθμό της Χερσώνας
+-  Силуанов: Минфин не предлагает снижать долю государства в Сбербанке
+-  فريق شباب إنجاز شقرة الكروي يستأنف تمارينه استعداداً لملاقاة احرار الوضيع في بطولة كأس الاستقلال للشباب
+-  Ministro Contreras: «El presupuesto destinado a acciones de prevención y respuesta frente a El Niño supera los S/7 mil millones»
+-  Javier Milei se sumó a la moda libertaria con un mensaje provocador: qué posteó
+-  Empresa anuncia compra milionária do naming right do estádio do São Paulo que passa a ter novo nome
+-  Αλ Ιτιχάντ – Αλ Νασρ 2-5: Τα πέναλτι του Σιδηρόπουλου έδωσαν στον Ρονάλντο τη νίκη και την πρωτιά στους σκόρερ του 2023.
+-  Режим ЧС ввели в восьми районах Ярославской области из-за отключения электричества
+-  To najhoršie má Česko za sebou, prichádza rok nádeje, tvrdí český premiér
+-  Siete millones de personas bajo alerta de fuertes nevadas en EE UU
+-  Ковальчук — об отстранении российских сборных: абсурд, ни в какие рамки не лезет
+-  Circle Chart Music Awards 2023 Announces Nominees For Rookie Of The Year Categories
+-  Chris Pratt & Wife Katherine Schwarzenegger Spotted Spending Christmas Holiday with Family
+-  El rapero Ye, antes Kanye West, se disculpa por comentarios antisemitas
+-  Novak "ostavio trag" u Rijadu i sparingovao sa mališanima FOTO
+-  Pro Research: Wall Street disecciona las perspectivas de Bristol-Myers Squibb
+-  Daihatsu, filial de Toyota, reembolsará a sus proveedores mientras esté paralizada la fabricación
+-  PGIM Investments amplía su oferta de ETF con cuatro nuevos fondos
+-  AYM'den Can Atalay açıklaması
+-  PFDK, kulüplere ceza yağdırdı!
+-  Recuperan cadáver de adulto desaparecido en aguas del río Fonseca
+-  In Austin, Texas, appreciating the luxury tucked into the weirdness
+-  Непомнящему и Горячкиной на зависть: Дубов и Боднарук уверенно стартовали на чемпионате мира по рапиду в Самарканде
+-  Karen og Ingeborg reddet mammas liv: – Jeg er så takknemlig
+-  Petro firma decreto que da acceso gratuito a escuelas de las Fuerzas Militares y Policía
+-  Rénovation d’infrastructures scolaires et de la voirie urbaine : Mansour FAYE satisfait de l’état d’avancement des travaux
+-  Pohodnika na težko prehodnem terenu našla preminulo osebo
+-  Един убит и четирима ранени след руски обстрел в Херсон
+-  King Charles 'replaced Prince Harry' in his key family role this at Christmas
+-  Φατίχ Τερίμ: Έλληνας θέλει να είναι η πρώτη μεταγραφή στον Παναθηναϊκό
