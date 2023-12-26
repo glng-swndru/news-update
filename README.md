@@ -1,51 +1,11 @@
 # Latest News
--  Афғоний 2023 йилнинг энг муваффақиятли валютаси деб топилди .
--  Blízko prímorského turistického mesta Dahab na juhu Sinaja bolo počuť výbuchy
--  India sends warships to Arabian Sea after ship attack
--  Un sicario se fuga de Alcalá Meco mezclado entre familiares que le visitaban
--  الرسم التكتيكي للاتحاد أمام النصر
--  فولهام خصم سولانكي المفضل
--  Jusqu'à 100 km/h: des vents violents attendus dans le Nord-Ouest avec l'arrivée de la tempête Gerrit
--  Русия претърпя огромно геополитическо и военно поражение в морето
--  Τέλος κι επίσημα ο Γιοβάνοβιτς από τον Παναθηναϊκό: «Η πόρτα θα είναι πάντα ανοιχτή γι’ αυτόν»
--  Nice: un restaurant a pris feu rue Biscarra, l'incendie désormais maîtrisé
--  Fue desarrollado por tres personas, te enseñará programación y es el nuevo juego gratis de la Epic Games Store
--  Destinasi Wisata di Banyuwangi, Surga di Ujung Timur Pulau Jawa
--  Accident mortel à Bailly : le jeune conducteur n’était pas assuré
--  Carlos Caramés, nuevo vicepresidente de la Comisión de Infancia y Juventud de la FEMP
--  Caio Paulista no Palmeiras: o que se sabe sobre jogador trocar São Paulo por rival
--  Chemnitz und Bayern in Bundesliga auf Kurs
--  Almanlar bile şaşırdı. Bundesliga’nın en hızlısı Eren Dinkçi oldu
--  Meurtre de 110 coups de couteau : l'accusé reste en prison
--  Türkiye kardeş ülke ile 7 anlaşma imzalandı
--  El mexicano Marco Garcés, nuevo director deportivo del Celta
--  Kürdəmirdə evdə yanğın oldu
--  12 şehidimiz için yapılan yürüyüşte skandal görüntüler. AKP'li başkanlar şehitler için yapılan anmada gülüşerek yürüdü
--  Minter: Cut flowers — and understanding their healing effects
--  Il film 'Mixed by Erry 'commedia dell'anno' a Capri Hollywood
--  Παναθηναϊκός: Επίσημα εποχή Τερίμ
--  Ikus-entzunezkoen talentu berrientzat 820.000 euro bideratuko ditu Jaurlaritzak diru laguntzetan
--  تكتيك بيرنلي لمواجهة ليفربول في الدوري الانجليزي
--  Εποχή Φατίχ Τερίμ στον Παναθηναϊκό: Ανακοινώθηκε η έναρξη της συνεργασίας με τον Τούρκο προπονητή
--  سولانكي يعادل عدد أهداف صلاح في البريميرليج
--  Octogénaire tué à Nice: le suspect interpellé est un voisin de la victime
--  Meet Sushil Kumar, First KBC 5 Cr Winner Who Cracked Bihar`s BPSC Teacher Exam
--  Christmas Swatting Attempts Target GOP Reps. Marjorie Taylor Greene, Brandon Williams
--  La NASA reprograma para el 23 de febrero su regreso a la Luna
--  Іммобіле пропустить Суперкубок Італії
--  Trending Twitter video: Man gives out 12 00 bags of rice and 4 cows to his village for Christmas
--  La San Silvestre santanderina volverá a tener salida y llegada en Mesones
--  जोरावर सिंह और फतह सिंह की शहादत,औरंगजेब के बेटे की मदद,कहानी गुरु गोविंद सिंह की
--  Ranera: “Chueca se ha entregado a Vox y ha cerrado un acuerdo de Gobierno con la ultraderecha”
--  ELN pone en duda cumplimiento de acuerdos de paz con el Gobierno
--  Vučić komentirao napad na novinara: ‘Zamislite, neki čovjek mu je rekao bu’
--  PROCUERO SPOT U KOME JE POKOJNI MIHAILO JANJUŠEVIĆ! Par godina mlađi i znatno drugačiji, a ovi DETALJI svima paraju oči (VIDEO)
--  İsrail'den Hizbullah'a tehdit
--  الرسم التكتيكي لفريق ليفربول لمباراة بيرنلي
--  We Are About to See a Lot More of Melania Trump in 2024 - Time to 'Leave Her Mark on History': Report
--  Hollanda'nın başı sel sularıyla dertte
--  Duracell se pone festivo y ofrece sus pilas, ideales para los regalos de Navidad o del Día de Reyes Magos, con atractivas ofertas en Amazon
--  Authorities investigating circumstances that forced UK bound flight en route from Barbados to divert to Bermuda
--  Barnacle-Covered Packages Wash Up on Beaches - If You See Something Like This, Call the Police Immediately
--  Мюсюлманинът, който говори 5 езика, цени историята и строи християнски храмове
--  Άρης: Συμφωνία με τον Ρόουζ που επιστρέφει
+-  هل توجد مدة محددة بين اختبار رقمي وآخر ورقي؟ تقويم التعليم توضح
+-  رئيس هيئة الأركان العامة يزور تركيا ويلتقي عددًا من المسؤولين
+-  شرطة الرياض: القبض على سائق تحرش بطالبة داخل مركبة والكشف عن جنسيته
+-  عاجل.. بعد القبض عليه.. ننشر فيديو تحرش سائق بطالبة داخل مركبة
+-  Conceden libertad ambulatoria a Erico Galeano
+-  El trucazo definitivo para utilizar las cáscaras de huevo en abono para tu jardín
+-  Canada ready to pay two Michaels settlement for China prison time: report
+-  Bloomberg объяснил опасность конфискации российских активов
+-  Швеция еще на шаг ближе к НАТО
+-  Insssep: en Navidad, Dumrauf acompañó a los afiliados y familiares derivados a buenos aires
