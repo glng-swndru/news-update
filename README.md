@@ -1,11 +1,11 @@
 # Latest News
--  美 의원, 중국산 식품 판매 금지 촉구…“비위생적 식품 퇴출해야”
--  חייל מצא בעזה "הארי פוטר" בעברית עם הקדשה מרגשת. איך הוא הגיע לשם?
--  כך ייראה הדור הבא של MG EHS שיושק ב-2024
--  कुतियाकवरबासीको पीडा : तटबन्ध नबने बस्ती जोगबुढा नदीमा समाहित हुने
--  Caso Balocco-Ferragni, Alessandro Gassmann: “La beneficenza non andrebbe pubblicizzata. La classe non si insegna né si compra”
--  خلاف اسرائيلي حول مسافة إبعاد حزب الله..ومستوطنو الشمال يتظاهرون!
--  Kamióny stále čakajú v dlhých radoch na odchod z Poľska na Ukrajinu
--  Indický Amritsar je centrom sikhov: Toľko dobra na jednom mieste len tak nezažijete
--  Sľuboval odchod, teraz je všetko inak: Fico narovinu priznal svoje ďalšie plány! Prirovnal sa k zranenému futbalistovi
--  Online Fraud: 73-year-old man falls prey to online scammers acting as FedEx representatives and crime branch officials
+-  Sinop: duplicação da avenida Bruno Martini de acesso ao aeroporto deve ficar pronta em fevereiro e secretário crítica atraso
+-  UNS traži od policije i tužilaštva da ispitaju napade na novinare tokom protesta
+-  عاجل.. خطوات الاطلاع على نتيجة أهلية الضمان الاجتماعي
+-  بالإنفوجراف.. 6 شروط للتقديم على وظائف جدارات
+-  كلوب يخشى تعرض المدافع غوميز لإصابة
+-  ارتفاع جديد.. أسعار العملات مقابل الدينار في السوق السوداء اليوم الثلاثاء 26 ديسمبر 2023
+-  Stijović: Danci žele da investiraju u Plantaže 50 miliona za projekat na 25 godina
+-  จับกระแสการเมือง: วันที่ 26 ธ.ค.2566 "แกงส้ม ผลัก รวม" ยิ่งลักษณ์ รอดคดีย้าย "ถวิล เปลี่ยนสี"
+-  Дагестанского депутата арестовали по делу об убийстве 17-летней давности
+-  Avustralya’da golf topu büyüklüğünde dolu yağdı
