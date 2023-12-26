@@ -1,51 +1,51 @@
 # Latest News
--  Kickoff | Chiefs defender secures AFCON debut ticket
--  Pakistan'dan vergi kaçakçılarına ilginç çözüm
--  Centre issues advisory to social media intermediaries with focus on curbing deepfakes
--  Soccerladuma | Players Who've Won Trophies After Leaving Chiefs
--  আগের রাতে ভোট হবে না, তার শতভাগ নিশ্চয়তা দিচ্ছি: সিইসি
--  انعقاد الملتقى التنظيمي لخدمات المواطنين بمشاركة 7 أجهزة تنظيمية بمصر
--  البورصة تهبط بنسبة 0.96% مع نهاية تعاملات جلسة اليوم الثلاثاء
--  مشروب غير متوقع يرفع نسبة السكر في الدم.. وحيلة بسيطة لتجنب أضراره
--  Äggkastarna dömda
--  Mom of tot found dead in septic tank fuming that no charges filed against babysitter
--  Biggest Surprises of 2023
--  Save big on the Anker Nano II 65W wall charger
--  Jessie J shares incredible throwback bikini snap - as well as her sunburned bottom - as she admits she has got 'a little lost when it comes to self-love'
--  Totaalinen tyrmäys – Slovakia yllätti nuorten MM-jääkiekossa
--  Lo último en seguridad en la carretera: Inteligencia Artificial para proteger a los ciclistas
--  Психолог Лаврова посоветовала сохранять объективность при подведении итогов года
--  Европските берзи затворени за Божиќ, руски MOEX паѓа, цената на златото расте
--  Türkischer Luftangriff trifft Traberts Praxis in Syrien
--  Explosions Heard In Red Sea Shipping Lane Off Yemen Coast: Report
--  2 Palestinians Killed In Israeli Raid On Refugee Camp In West Bank
--  Deep Tech is Reshaping the Pharmaceutical Industry
--  विदेश की खबरें | पाकिस्तान के पूर्व विदेश सचिव रियाज खोखर का निधन
--  Ex-Binance CEO Changpeng ‘CZ’ Zhao Net Worth Soars 5X Than Binance’s $4.3 Bln Fine
--  देश की खबरें | झारखंड: आंदोलनकारी शिक्षकों ने अपना विरोध-प्रदर्शन पांच जनवरी तक स्थगित किया
--  Asgard’s Wrath 2 Review – Virtually Flawless
--  ‘I was sleeping on people’s couches when I won PFA Player of the Year’ – Lucy Bronze reflects on joining Liverpool and being a right-back winning individual awards
--  Świętowanie zakończone w... areszcie
--  Bakan: “Milli Gelir kişi başı on iki bin beş yüz dolar olacak”
--  Tıp literatüründe böylesi görülmedi! İlk kez Türkiye'de ortaya çıktı
--  Insändare. ”Sluta med det överdrivna tackandet”
--  Car of the Week: This 1962 Corvette Has Been Impeccably Preserved. Now It’s Up For Grabs.
--  Du trodde kanskje NRK sender direkte? Det stemmer ikke.
--  সরিষাবাড়ীতে সাংবাদিককে দেখে নেওয়ার হুমকি, থানায় জিডি
--  A last-minute gift for wine lovers: Give them 15 bottles of red wine for under $60
--  Save a Whopping $394 on This Refurbished Microsoft Surface Pro 6 with Type Cover
--  Segera Rilis Lagu Religi, Penampilan Nagita Slavina Dikritik
--  Meet Ritual, the multivitamin and wellness brand that we recommend
--  How to Repair Your Skin Barrier, According to Dermatologists
--  ‘It’s Not a History Lesson, It’s a Warning’: Inside the Making of ‘The Zone of Interest’
--  Grupos de la sociedad civil, en riesgo de ser cooptados por la delincuencia organizada
--  Best Movies of 2023: Barbie, Saltburn, and More According to Our Editors
--  Mel B on Returning to 'America's Got Talent' and Reuniting with the Spice Girls in 2024
--  Play Your Favorite Games on Any TV With This Portable Nintendo Switch Dock Conversion Cable for Just $18
--  Mercato - PSG : C'est annoncé, cette star du projet QSI va revenir ?
--  Bocan-Harčenko o protestima: Skupljaju demonstrante po Srbiji, daleko od toga da je cio Beograd „ustao“
--  В Российской кинологической федерации рассказали о подготовке собаки к салютам
--  Watch Arsenal transfer target Kenan Yildiz score wonder goal for Juventus as Gunners prepare January move
--  Indické námorníctvo posilnilo po sérii útokov svoje sily v Arabskom mori
--  Marta Čurajová sa chce zasadzovať o reformu a očistu justičného systému
--  Dodatočný predaj vianočných darčekov cez internet prudko rastie
+-  В Дагестан завезли новую партию вакцин от кори, паротита и краснухи
+-  МВД РФ объявило в розыск командующего ВВС Украины Олещука
+-  Kék sárkány élhetett az óceán mélyén - 72 millió éves maradványokat fedeztek fel Japán közelében
+-  17 Servers Who Definitely Deserve An Apology In 2023 (And A Raise In 2024)
+-  Usred New Yorka nalazi se misteriozan otok: Do njega se dolazi podvodnim tunelom, poprilično je jeziv
+-  Туапсинские спасатели помогли женщине, чей автомобиль начало смывать в реку
+-  Глава Кургана Елена Ситникова задержана силовиками: рабочие фото разных лет
+-  Сборная Сочи победила на Спартакиаде трудящихся Кубани
+-  Naxçıvanda bu agentlik ləğv edildi
+-  'Basics missing': Lack of roof at Bengaluru Airport's parking lot draws criticism
+-  اليابان تعتزم فرض عقوبات على 3 من قيادات حماس
+-  Schriftsteller Uwe Timm: „Unsere Demokratie ist jetzt wieder so gefährdet“
+-  Odala ga odbačena krvava majica, sutkinji zavapio: ‘Dajte malo kasnije to suđenje, tko će dizati?!‘
+-  Jakie polityczne mity zostały obalone w 2023 roku?
+-  A 119-year-old bank sat abandoned in a tiny Texas town for decades. Now it's a 3-bedroom home with the original vaults and a teller station — take a look.
+-  Hasina asks Awami League activists to guard railway tracks amid acts of sabotage
+-  Svetový slovenský metal: Kapela Signum Regis s novinkou Undivided boduje v zahraničí
+-  Päť najtalentovanejších husliarov: Ťažil Stradivari z klimatickej zmeny?
+-  Miro Jaroš Vianoce u mamy NETRÁVIL: Nedovoľuje to jej choroba!
+-  WWE News: Raw Day 1 Preview, Best of 2023 Raw Video Highlights
+-  Ezt ne felejtsétek el: idén is kell Ügyfélkapu az egyetemi jelentkezéshez
+-  Само за ден: Хванаха 50 пияни и дрогирани зад волана
+-  ¿Conflicto de interés de la Universidad Nacional?
+-  Sir Jim Ratcliffe asks Man Utd fan group for 'time and patience' in open letter
+-  Vatrenom dvojcu stiže zloglasni ‘Demon‘? Tinejdžer zaludio velikane, City sprema izdašnu ponudu
+-  Yeniden Refah Partisi'nden ittifak açıklaması
+-  Bakan Işıkhan'dan asgari ücret açıklaması!
+-  Päätalon Iijoki-sarjaa on kuunneltu yli miljoona tuntia äänikirjoina
+-  SBI Clerk भर्ती परीक्षा का एडमिट कार्ड जारी, यहां करें डाउनलोड, जानें कब होगी परीक्षा
+-  سوق ديناميكي نشط.. مؤشرات تنافسية لقطاع التأمين في الإمارات
+-  ‘Iran nastavlja obogaćivati uranij, sad su sasvim blizu razini potrebnoj za razvoj nuklearnih bombi‘
+-  Hafiz Saeed: पाकिस्तान के चुनाव में उतरी ग्लोबल टेररिस्ट हाफिज सईद की पार्टी, बेटा भी आजमाएगा किस्मत
+-  PSG löi muut jättiseurat - hankkii superlupauksen
+-  Izrael: Hezbolah ispalio raketu koja je pogodila grčku crkvu FOTO
+-  На Рождество Христово: Отец Васил с молитва към Господа да опази децата ни от наркотиците и алкохола
+-  I’m a skincare pro, don’t chuck your Christmas dinner leftovers, that turkey carcass is the secret to glowing skin
+-  الأمن يستعين بالذكاء الصناعي للتعرف على المجرمين ويعمم نظام GPS لتحديد الدوريات
+-  "Bu sezon takım çalıştıracağım" Rıza Çalımbay'dan devam kararı!
+-  Etiyopya temerrüde düştü
+-  İngilizlerden Cumhurbaşkanı Erdoğan itirafı: Batı'ya yönelttiği eleştirilerinde haklı
+-  Gallant, 7 cepheden saldırı altında olduklarını iddia etti
+-  Cybersecurity Emerged as a Dominant Threat for Indian Firms in 2023: Report
+-  Даштевски за „Република“: Нема шанси партијата на Курти да учествува на изборите во Македонија
+-  "رويترز": شرطة نيودلهي تقول إنها تلقت مكالمة هاتفية بشأن انفجار قرب السفارة الإسرائيلية والتحقيق جار
+-  Десподов с първи приз за играч на мача в Гърция
+-  Минин о «Слове пацана»: «Хороший сериал, играют здорово, но мрак, безысходность. Теперь нужно выбросить из головы «Пыялу» и «Седую ночь»
+-  MİT'ten PKK'ya büyük darbe! 50'ye yakın hedef imha edildi
+-  Video: vecinos de Río Ceballos denuncian invasión de moscas y piden que actúe Policía Ambiental
+-  Michael Schumacher’s brother gives heartbreaking update on F1 legend saying ‘nothing’s like it used to be’
+-  Michael Schumacher’s brother gives heartbreaking update on F1 legend saying ‘nothing’s like it used to be’
