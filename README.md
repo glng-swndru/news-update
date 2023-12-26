@@ -1,11 +1,11 @@
 # Latest News
--  A richness of spiral galaxies
--  מחבלים ניסו להניח מטען נפץ ליד טנק צה"ל בג'אבליה - וחוסלו מהאוויר
--  Co ostatnia pełnia księżyca w 2023 r. oznacza dla twojego znaku zodiaku?
--  By: bandırma cam balkon sistemleri
--  Borsa düşüş seyrinde
--  Güven endeksi hizmet sektöründe arttı
--  MLADIĆU (19) U ŽESTOKOJ TUČI SMRSKALI KOSTI NA LICU Najnoviji detalji incidenta u Beogradu - sve se odigralo na privatnoj proslavi
--  Young Lankan Entrepreneurs suggest to adopt more investor-friendly policy
--  Šarić odličan u porazu Warriorsa, Jokić i Nuggetsi ipak jači
--  VIDEO / Snažna eksplozija na Krimu, Ukrajina uništila moćan ruski brod? “Flota im je sve manja!”
+-  İzmir’de demir çubuklu dehşet! Öğretim Üyesi Dr. Salih Zafer Dicle hayatını kaybetti
+-  Our relations should turn towards commercial engagements, trade and investments, says Canadian Envoy
+-  Krajnje mere Ukrajine: Smanjuje se starosna granica za mobilizaciju
+-  Emre Belözoğlu, Pendikspor beraberliği sonrası konuştu
+-  Meteoroloji o illeri işaret etti: Kuvvetli geliyor!
+-  MİT'ten nokta operasyon! Mehmet Şefa Akman öldürüldü
+-  Eric Bailly'e sürpriz alıcı çıktı: Süper Lig devinin radarında!
+-  Luka Doncic a dépassé la barre des 10 000 points en NBA… à 24 ans !
+-  Bakan Tunç'tan 'terör propagandası' açıklaması
+-  Altında tarihi rekor: 2012 lira seviyesi görüldü! 26 Aralık Kapalıçarşı altın fiyatları: Çeyrek, yarım, tam, Cumhuriyet...
