@@ -1,51 +1,51 @@
 # Latest News
--  AKD’s national liberation movement and the ethnic question (Veeragathy Thanabalasingham)
--  '제5회 KPMG 아이디어톤' 참가자 모집
--  보험개발원, 영등포 쪽방촌 주민에 내복·이불 전달
--  기업은행, 내년에도 기업고객 비대면 이체수수료 면제
--  신한은행, 대학생 홍보대사 40기 모집
--  교보생명, 인도네시아 초등학교 교육환경 개선사업 진행
--  국민은행, 서민 주거안심 위한 'SH임차형 공공주택' 전용관 오픈
--  라이나생명, 카카오톡 이모티콘 무료 증정 이벤트
--  이병래 손보협회장 취임…"소비자 신뢰 선순환 구축"
--  하나은행, 퇴직연금 운용 지원 'DB자산관리 솔루션' 구축
--  롯데손보, 보험 플랫폼 '앨리스' 출시 4개월만에 2만5천건 계약
--  아프리카TV, 확 달라진 ‘BJ대상’ 예고…30일 온오프라인·프리블록스서 개최
--  카카오, 전국 100개 전통시장 디지털 전환 교육 마쳐
--  이마트24, 네이버 예약 편의점택배 서비스 도입
--  [인사] 디지털데일리
--  게임인재단, 경기게임마이스터고교에 발전기금 1000만원 기부
--  직방 가상오피스 ‘소마’…“매년 소나무 4만402그루 심는 효과”
--  숏폼 도전하는 홈쇼핑…GS샵, 모바일 최적화 ‘숏픽’ 출시
--  ما هي مخاطر الكربوهيدرات السريعة؟
--  జవాబు చెప్పలేక ఖిన్నుడైన జగన్
--  Man killed in High Country as Melbourne braces for wild storm on Boxing Day
--  [인사] 대신파이낸셜그룹
--  민주 "與, 野 예산 성과 가로채… 최소한의 품격 지켜야"
--  尹 "글로벌 복합위기 헤쳐와… 건전재정 기조로 물가 잡아"
--  육군3사관학교, '화랑도 통일정원' 준공식 진행
--  영천 정의번 시총, 경북도 기념물 지정
--  영천시, 유니세프와 '아동친화도시 조성' 업무협약
--  '올해의 인물' 경제·기업인 1위 이재용…'친근·소탈' 모습 부각
--  [NATIONAL] Stronger measures to protect stalking victims necessary
--  Seventeen to drop new digital single
--  「先週と同じようだった」と逆転勝利ドライブを振り返るシーホークスQBスミス
--  윤 대통령 "새해 현장 중심 민생행정…시정하는 정부로"
--  بالصورة.. وفاة والد الداعية السوداني الشهير محمد سيد حاج وجمهور مواقع التواصل ينعيه: (أحسنت التربية وفي جنات الخلد مع إبنك إن شاء الله)
--  เช็กเส้นทางน้ำท่วมภาคใต้ ถนนทางหลวงชนบทผ่านไม่ได้ 12 สายทาง นราธิวาสหนักสุด
--  해외여행자 10명 중 9명 "검역 필요"…55% "검역조치 개선 필요"
--  พาณิชย์จัด 73 กิจกรรมปลายปี ‘กระตุ้นส่งออก’ คาดช่วยเพิ่มมูลค่า 1.2 หมื่นล้าน ปีหน้าขยายตัว 1-2%
--  Lower Hutt residents should ‘stop pooing’ if they want to stop the city stinking - advisor
--  만취해 응급실 간호사에게 주먹 휘두른 20대 '집행유예'
--  El conductor huyó: niño termina en el hospital al ser atropellado por un motociclista en Los Mochis
--  관악구, 재난대응체게 초기대응 중심으로 개편
--  SK온, 배터리 생산장비 고도화…'스마트 팩토리' 속도↑
--  Времето днес, прогноза за вторник, 26 декември: Остава слънчево и топло за сезона
--  유바이오로직스, 개량형 경구용 콜레라 백신 수출용 품목허가 및 생산량 증대
--  '서울의 봄', '범죄도시3' 꺾고 2023 전체 박스오피스 1위
--  수지 한복 영상, 美 뉴욕 타임스퀘어 등장 '눈길'
--  아이브, ‘가요대전’서 화려한 비주얼X퍼포먼스 무대 빛냈다
--  अशोक सिंघल, वो राम साधक जिन्होंने लाखों साधु-संतों को एकत्र किया, आंदोलन के लिए सजाया मंच
--  의정부시, 폐수배출시설 위반행위 15건 적발
--  肝癌早期症状表现 肝癌怎么检查出来
--  有氧运动和无氧运动有何区别
+-  우즈베키스탄 나망간주, K-부여 과학농업기술 배웠다
+-  태안군 ‘귀농귀촌 유치 지원 사업 성과평가’ 전국 2위
+-  보령시 내년도 국비 5013억원 따냈다
+-  내년에도 청양지역 가게 간판 바꾼다
+-  아산소방서 “구급대원 폭언·폭행 그만!”
+-  Türkiye İsrail'in yalanlarını dünyaya duyuruyor
+-  군산해경, 연휴 응급환자 긴급 이송 및 중국어선 나포
+-  코스맥스그룹, 2024년 정기 임원 인사 단행
+-  [CES 2024] 최태원·정의선·정기선, 정유·차·조선 '총출동'…이재용·구광모 '조용'
+-  국힘 잔류한 김용태 “‘이준석 리더십’ 없어서 신당 안 갔다? 악의적 비판”
+-  이수정 “한동훈 비대위 합류 안 하기로…제 코가 석자”
+-  박지원 "尹, 거부권 행사하며 김건희를 사가로 보낼 것"
+-  Fergie re-joins royal happy family for Christmas service
+-  HD Hyundai Teams Up with Google Cloud to Accelerate AI Innovation
+-  SNICKERS® Launched Brand New Bar Featuring Low GI Dark Chocolate Cereal in Mono Material Flexible Packaging
+-  APX Accelerates Growth with ADB Ventures Funding, Eyes Singapore and Malaysia for 2024 Launch
+-  한국핀테크지원센터, ‘2023 핀테크 창업 지원 사업’ 통해 핀테크 초기창업기업 기술 내재화 및 성장 지원
+-  Choque en la Carlos Amaya deja 3 lesionados
+-  США нанесли удары по объектам группировки "Катаиб Хезболлах" в Ираке
+-  Protest rocks Scallywag in explosive start to Sydney to Hobart
+-  문윤택 "공정하고 격조있는 경선으로 옥석 가려야"
+-  김영진 "전국 최하위 제주경제 지표 입장 내놔라"
+-  28,626 throw their hats in electoral ring
+-  Aydın'da olaylı gece! Eski kız arkadaşı sırtından bıçakladı
+-  Oprah’s flip on weight loss drugs is a sign of what’s to come for the ‘Ozempic trade’ in 2024
+-  2024-ün önəmli texnoloji trendləri nələr olacaq?
+-  Netizen Geram, Deretan Artis K-pop Ini Terang-terangan Unggah Foto Pakai Produk Pro Israel!
+-  Vinicius Jr. troca camisas autografadas com LeBron James após Lakers x Celtics na NBA
+-  國三生遭割喉傷勢嚴重 新北教育局：今進行教職員生安心輔導
+-  焦點股》微星：進軍車用市場 放量衝高
+-  Разведчик ВСУ рассказал о новой проблеме Украины
+-  “뮌헨을 이길만한 팀은 단 3팀”... 무시알라가 뽑은 챔피언스리그 최고 대항마
+-  [오피셜] 충남아산, U-18 대표 출신 U22 자원 정마호 영입
+-  King Charles mocks Prince Harry-Meghan in speech? ‘Selfless people…'
+-  Китаец переехал в Россию и назвал ее самой свободной страной мира
+-  李連杰小女兒近照曝光 神似明星媽利智
+-  Hollyoaks spoilers: Lord Rafe wants OUT of Dilly's scheme against Sienna!
+-  尹 "저출산, 다른 차원서 고민해야. 3대 개혁 지속 추진"
+-  Japan’s first lander enters lunar orbit
+-  李聖經奪珠寶代言！最新大片黑西裝搭配寶石變身霸道女總裁
+-  Τέλη κυκλοφορίας 2024: Πότε λήγει η παράταση για την πληρωμή τους
+-  X(Twitter)の認証済みアカウントが拡散する誤情報に対してコミュニティノートが十分機能していないという研究結果
+-  بورصة طوكيو.. المؤشر نيكي يفتح على ارتفاع
+-  Нужна помощь. В африканской стране неожиданно пожаловались на Украину
+-  Пенсионная система: самые значимые события 2023 года
+-  แบงค์ แคลช อวดรถคันงาม ขออย่าซื้อเลขทะเบียน แต่ยิ่งห้ามเท่าไหร่ หัวใจยิ่งดื้อรั้น
+-  카톡으로 만나는 우리동네 단골시장...카카오, 디지털 전환 성과 공유
+-  మోదీతో నేడు రేవంత్ రెడ్డి భేటీ..
+-  Historic highest paid price for rice farmers
+-  「新天龍國」誕生！ 新竹收入冠全台 房價直逼台北市
