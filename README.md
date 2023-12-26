@@ -1,51 +1,51 @@
 # Latest News
--  Beşiktaş yönetiminde şok istifa!
--  Kangra News: तबीयत बिगडऩे से मजदूर की मौत, खुंडियां थाना में मामला दर्ज
--  Kangra News: शिक्षा में उत्कृष्ट प्रदर्शन पर आरएस बाली ने नवाजे मेधावी
--  Jalandhar News: स्पा सेंटर की आड़ में देह व्यापार का पर्दाफाश, छह गिरफ्तार
--  Kushinagar News: विभिन्न सरकारी योजनाओं की दी जानकारी
--  Kangra News: विलय करने के बजाय बनाई जाए पंचायत
--  Jalandhar News: मोटरसाइकिल सवार ने लहराया पिस्तौल, वीडियो वायरल
--  Kushinagar News: सेवरही चीनी मिल ने किसानों के खाते में भेजे 7.08 करोड़
--  Kangra News: निजी दोपहिया वाहन भी किराये पर दे रहे कारोबारी
--  Kushinagar News: पुलिस से की कार्रवाई की मांग
--  Kangra News: डीएवी भड़ोली के मेधावियों को किया सम्मानित
--  Kushinagar News: ट्रक की चपेट में आने से बाइक सवार घायल
--  Kangra News: पर्यटन नगरी में जल्द बनेगी स्ट्रीट फूड मार्केट
--  Kushinagar News: अज्ञात बीमारी से दो पशुओं की मौत, तीन बीमार
--  50 लाख से होगा माता आशापुरी मंदिर का जीर्णोद्धार : गोमा
--  Kushinagar News: सड़क पर चलते समय अपने ही लेन का करें इस्तेमाल
--  Siddharthnagar News: शहर में चले इलेक्ट्रिक बस तो पटरी पर आए परिवहन व्यवस्था
--  Kangra News: नगरोटा में नोटों के हार और रेडीमेड कपड़े ले उड़े चोर
--  Hathras News: उड़ीसा में झील किनारे मिला जवान का शव
--  Kushinagar News: जांच में फेल हुए दस नमूने
--  Siddharthnagar News: ठंड ने किया निराश, व्यापारी लौटने लगे घर
--  Kushinagar News: एक माह बाद सऊदी से आया शव, परिवार में मची चीखपुकार
--  Siddharthnagar News: आठ सूत्री मांगों के लिए आज लखनऊ में जुटेंगे रोजगार सेवक
--  Kushinagar News: 29 जनवरी को होगा 11 कन्याओं का विवाह
--  Siddharthnagar News: शिक्षक विहीन विद्यालय, बच्चे कैसे बन पाएंगे निपुण
--  खेल की तर्ज पर करें पढ़ाई, नहीं लेना चाहिए तनाव : सद्गुरु ऋतेश्वर
--  Siddharthnagar News: सीमा पर बढ़ी सख्ती तो तस्करों ने तलाशा बीच का रास्ता
--  Siddharthnagar News: दिल्ली में व्यक्ति की मौत, घर पहुंची लाश, छाया मातम
--  Delhi : दिल्ली हाईकोर्ट ने कहा- बिना उचित कारण तलाक के समझौते से एकतरफा वापसी मानसिक क्रूरता के समान
--  Haryana: रोहतक से भिवानी व जींद पैसेंजर आगामी आदेशों तक रद्द, रोज हजारों लोग करते हैं सफर
--  Jaunpur News: प्रशासन कराएगा शव का इंतजाम, छात्रों को होगी सहूलियत
--  Jaunpur News: सुबह 10 बजे तक तनी रही कोहरे की चादर
--  Hisar News: जन्मदिन समारोह में हर्ष फायरिंग करने के दो आरोपी गिरफ्तार
--  Kurukshetra News: घर में घुसकर हमला करने का दूसरा आरोपी गिरफ्तार
--  Kurukshetra News: आज सरकारी अस्पताल के चिकित्सक हड़ताल पर रहेंगे
--  Kurukshetra News: ससुराल आए बाइक सवार की ट्रैक्टर-ट्राली की टक्कर लगने से मौत
--  Kurukshetra News: प्रेमिका और उसके पति से तंग आकर फौजी ने लगाया फंदा, मौत
--  Kurukshetra News: सीएम ने छोटे साहिबजादों की शहादत को किया नमन, युवाओं से प्रेरणा लेने का आह्वान
--  رئيس أركان الاحتلال السابق: خسرنا من حماس والانتصار هو الإطاحة بنتنياهو
--  Kurukshetra News: घने कोहरे से प्रभावित हुआ जनजीवन, सड़कों पर रेंगते रहे वाहन
--  Kurukshetra News: चचेरी बहन से दुष्कर्म के आरोप में युवक नामजद
--  Kurukshetra News: रास्ता रोककर छीना-झपटी करने का छठा आरोपी गिरफ्तार
--  Kurukshetra News: नाटक मंचन से लोगों को साइबर धोखाधड़ी से बचने के बारे में किया जागरूक
--  Banda News: कोहरे से थमी ट्रेन व बसों की रफ्तार
--  Banda News: घरों में लहराएगा भगवा, जलेंगे घी के दीपक
--  Gurugram News: हुडा की जमीन पर चल रहीं व्यावसायिक गतिविधियां
--  Udham Singh Nagar News: कसीनो में रुपये गए हार, जरूरत पूरी करने के लिए की थी चोरी
--  Banda News: गोबर फेंकने के विवाद में मां-बेटी को पीटा, छोड़े कुत्ते
--  Gurugram News: सड़कों पर कचरा फेंकने वालों का किया जाएगा चालान
--  Udham Singh Nagar News: एटीएम लूटने वाले अंतरराज्यीय गिरोह के तीन सदस्य गिरफ्तार
+-  Ubica aquí las estaciones de reciclaje del Municipio
+-  ‘El punto 36 no es una entrada’
+-  Bakan Koca, Özbek mevkidaşı ile görüştü
+-  В предпоследние выходные декабря в Кирове состоялся новогодний «Экомобиль»
+-  На Орловщине отремонтировали 5 культурных объектов
+-  The Best After-Christmas Sales and Boxing Day Deals to Shop Right Now
+-  Husiler, Kızıldeniz'de bir ticari gemiyi ve İsrail'e ait askeri noktaları hedef aldığını duyurdu
+-  Hamas'tan esir takası açıklaması: İsrail Gazze'ye saldırıları durdurmalı
+-  Türkmenistan ile Türkiye arasında savunma sanayi alanında işbirliği konusu görüşüldü
+-  'Duros con los empresarios pero arrodillados con el crimen': crítica de Cambio Radical
+-  تفجير خط أنابيب النفط في شبوة جنوبي اليمن.. الحدث الثاني خلال 24 ساعة
+-  Filip Peliwo, el excampeón de Wimbledon y del US Open al que le ofrecieron arreglar partidos: “Llegaron a prometerme 5000 euros”
+-  ‘What happened to my money’: Question that sparked pop star Vanessa Amorosi’s bitter war with mum
+-  Patriots offensive coordinator Bill O’Brien says he still feels good about Mac Jones
+-  Aboubakar'ın yeni takımı belli oldu
+-  مجلس جامعة دمياط يشهد عرضا لخطة أنشطة المركز الجامعي للتطوير المهني
+-  أسامة حمدان: نحذر من التعاطي مع مخططات نتنياهو لتهجير سكان غزة
+-  الحوثيون يعلنون استهداف سفينة تجارية بصواريخ بحرية
+-  Annesini öldüren çocuğa 38 yıl 6 ay hapis cezası. Azmettirici babaya müebbet
+-  KooKoolle voitto jumboväännössä vasta ylitöillä
+-  KooKoolle voitto jumboväännössä vasta ylitöillä
+-  Çanakkale'de korkunç olay! Yüzüne kimyasal sıvı atılan kadın ağır yaralandı
+-  الأرجنتين تعدل قواعد حصول المستوردين على العملات الأجنبية
+-  Σταθεροποιητικές κινήσεις για τον χρυσό
+-  "Un délice" : cette série française qui fait monter la température intègre le top 3 sur Prime Video
+-  АКМ проиграл пензенскому "Дизелю" в домашнем матче
+-  Premier League: Premier League: Liverpool setzt sich an die Spitze
+-  Gardner Minshew uses his playoff experience to rally Colts after another inexplicably flat loss
+-  Gardner Minshew uses his playoff experience to rally Colts after another inexplicably flat loss
+-  Från krigarkedjan till superfemman – Knuts: ”Försöker bara hänga med”
+-  Defense's continued struggles raise questions over how much longer Packers can stay in playoff hunt
+-  Defense's continued struggles raise questions over how much longer Packers can stay in playoff hunt
+-  أكثر من نصف مليار دينار مديونية صندوق التأمين الصحي
+-  Watkin Tudor Jones rapping BEFORE ‘Die Antwoord’ [Watch]
+-  La chance de Los Pumas de jugar un derbi en 2024
+-  Huge Emmerdale star quits after two years – and they have already filmed their final scenes
+-  Зеленський висловився про нові правила мобілізації
+-  Oppenheimer showing Jan. 2
+-  El día que el cine tembló: 50 años del estreno del Exorcista
+-  شاهد.. أمطار الخير على المسجد النبوي
+-  Rojters o Mariniki Tepić: Vodeća figura glavne srpske opozicione partije nastavlja štrajk glađu uprkos pogoršanju stanja
+-  Felipe Neto gasta R$ 1.200 em delivery, mas fica sem ceia de Natal
+-  De Palmira para el mundo: la compañía del Valle clave en la industria química del país
+-  مجلس أبو ظبي يصدر بيانا جديدا عن تذاكر مباراة الأهلي وفيوتشر
+-  Odszedł wielki pasjonat sportu, przyjaciel piłki ręcznej
+-  Burnley Vs Liverpool: Menang 2-0, The Reds Puncaki Liga Inggris
+-  Zhduket një vajzë 22-vjeçare nga Gazi Baba
+-  La reina Letizia confiesa su admiración por Gomaespuma: "Lo escuchaba a escondidas"
+-  Dolár oslabuje, index meny by mohol byť najhorší za posledné tri roky
+-  Штаб национальной безопасности выпустил предупреждение для израильтян, находящихся в Индии
