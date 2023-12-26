@@ -1,51 +1,11 @@
 # Latest News
--  ΑΕΚ: Επιστροφή Αμραμπατ
--  Мамы калининградских гимнасток подрались на детских соревнованиях
--  На президентских выборах в наступающем году кубанцы будут голосовать традиционным способом
--  Khởi tố kẻ sát hại người phụ nữ giao gas, giấu xác trong bể nước suốt 13 năm
--  Hàng trăm người mất tiền tỷ vì mắc bẫy người phụ nữ "siêu nổ"
--  Vác tải tiền đi mua vàng, có người lãi trăm triệu trong chớp mắt
--  Sự thật câu chuyện "bàn tay hư" của Lâm Bảo Châu trên thảm đỏ với Lệ Quyên
--  2 con nhỏ bị rơi xuống đường ray đúng lúc tàu chạy, hành động của người mẹ khiến nhân chứng sững sờ rồi cảm phục vô bờ
--  Kiểu áo khoác ''thiên biến vạn hóa'', khiến hội mặc đẹp xứ Hàn đổ gục từ mùa hè sang đông
--  "Sống quá sướng lúc trẻ thì về già sẽ khổ": Lời khuyên tiết kiệm của người chú nghỉ hưu sớm từ năm 42 tuổi
--  Mỹ nhân Hẹn Hò Chốn Công Sở lần đầu kể chuyện mang thai: "Chồng vô thức đá bụng tôi lúc ngủ, sợ hãi đến bật khóc"
--  16 năm nuôi con người ta, người đàn ông ôm hận quyết kiện ra tòa, livestream mỗi ngày để tố việc làm của vợ
--  Bộ sưu tập hơn 1000 chiếc ly của diễn viên Ngọc Lan, gợi nhớ đến một người có "gia tài" không kém
--  Đoàn Văn Hậu cùng Doãn Hải My đi xem bóng đá, ga lăng xách đồ giúp vợ giữa nghi vấn có tin vui
--  Sao nữ phim Việt bị đàn chị tát 50 cái, chẳng những không đau mà còn thấy sung sướng
--  Thiếu gia Phillip Nguyễn tổng kết năm 2023, lần đầu chia sẻ về cuộc sống sau khi kết hôn với Linh Rin và cột mốc đón ái nữ
--  "Dispatch Việt Nam" Trường Giang từng khui chuyện 1 đôi Vbiz yêu kín tiếng suốt 4 năm, để lộ ngày cưới trước cả chính chủ
--  "Họ giả vờ đó!" - Câu nói của đứa trẻ 11 tuổi trên TV gây sốc: Sống trong một gia đình không hạnh phúc, trẻ bị "chín ép" như nào!
--  Làm thế nào để tiết kiệm trên “từng đồng” mà bạn chi tiêu?
--  Hai năm sau khi hạn chế, làn sóng mukbang bùng phát trở lại: Chỉ cần ngồi ăn mỗi tháng kiếm 50 triệu đồng
--  Lời nguyền 3 năm SBS Gayo Daejun: Nữ idol hạng A gãy xương, từ BTS - NCT ngã sân khấu đến aespa - MAMAMOO khổ sở trên thảm đỏ
--  Dùng máy lọc không khí cả năm, người dùng dở khóc dở cười bởi lỗi ngớ ngẩn ngay từ khi mua thiết bị về
--  Người phụ nữ nước ngoài trổ tài nấu "phở Việt" đăng video lên mạng nhận "bão like", dân bản xứ kêu trời vì sai quá
--  Đại diện ekip lên tiếng khi Thanh Ngọc bị nghi bất mãn NSX, chính chủ làm rõ biểu cảm cười mỉa team Lệ Quyên
--  7 anh chị em trong gia đình đều mắc ung thư, bác sĩ điểm danh 4 loại ung thư có tính gia đình
--  Lan Ngọc - Huyền Baby lên đồ gợi cảm, đọ sắc cùng hội chị đẹp tại sự kiện ra mắt phim của Diệu Nhi
--  Quang Hải ghi bàn trước ngày ăn hỏi với Chu Thanh Huyền
--  Nhận xét về 3 cô vợ trẻ hot nhất hiện tại Hải My, Chu Thanh Huyền và Dianaka: Các anh chồng nổi tiếng "đổ" đứ đừ điều gì?
--  10 phút giảm mỡ bụng tại nhà, tập từ giờ đến Tết là eo thon bụng phẳng
--  10 món gia dụng tốt nhất năm 2023: Máy rửa bát, máy hút bụi, máy sấy… đều góp mặt, càng dùng càng thấy đáng tiền
--  Thủy cung Lotte Hà Nội bị hội mẹ bỉm chê sơ sài và hụt hẫng vì giá đắt mà trải nghiệm chưa thỏa đáng
--  20 phút sau khi tan học, cảnh tượng lạ tại giảng đường ĐH Thanh Hoa được ghi lại: Đây là khác biệt giữa "học bá" và người thường
--  Diệu Nhi bật khóc sau cảnh hôn Trần Ngọc Vàng, lý do khiến nhiều người bất ngờ
--  Quy định mới về thẻ Căn cước những ai đang dùng CMND, CCCD gắn chip cần biết rõ
--  Cuối năm 2024 phải để được 100 triệu: 5 phương pháp tiết kiệm để “lộc tồn” cả năm
--  Bạn gái Ronaldo đăng ảnh nhà bừa bộn dịp Giáng sinh, gây tranh cãi vì một điểm bất ngờ
--  Giải bóng đá Thanh niên sinh viên Việt Nam mùa 2 tăng quy mô, nâng tiền thưởng
--  Hết tiền nhưng muốn hít không khí Đà Lạt, cộng đồng mạng "sang chấn tâm lý" khi biết bí quyết đằng sau
--  So sánh ở tuổi 25: Mbappe vượt trội Messi và Ronaldo ở hàng loạt chỉ số
--  Công an đập tường cứu kẻ bán ma túy mắc kẹt giữa 2 bức tường khi bỏ chạy
--  Thực phẩm bổ sung dùng sao cho chuẩn? Huấn luyện viên tiết lộ thời điểm chính xác nên dùng
--  Bâu Krysie lần đầu bị "team qua đường" bắt gặp đi chơi cùng Kus sau drama tình - tiền: Chuyện "ngoại tình" cùng bạn thân liệu có thật?
--  Ngôi chùa được đặt cao nhất Việt Nam nhiệt độ xuống 0 độ C, xuất hiện băng tuyết: Cách Hà Nội chỉ 130km
--  MLee - Diệp Lâm Anh "chị chị em em" hậu ồn ào thiên vị ở Chị đẹp, đọ visual qua camera thường kết quả thế nào?
--  Sơn Tùng - Hải Tú lộ ảnh cùng đón Giáng sinh, kiên quyết giữ thái độ này sau 7749 lần bị soi toàn hint xịn
--  Cặp tình nhân một thời Jennie và G-Dragon “song kiếm hợp bích”, giáng đòn mạnh lên YG
--  “3 tăng, 2 giảm 1 mềm” cảnh báo cơn nhồi máu não đang ập tới, coi chừng mất mạng
--  Mua vàng hơn 15 năm, tháng nào cũng sắm ít nhất 1 chỉ, lúc cần bán được 2,4 tỷ mua nhà
--  7 sự kiện nóng nhất toàn cầu kiến tạo nên thế giới của năm 2023
--  Từng thẳng tay huỷ kết bạn tuyên bố nghỉ chơi, mối quan hệ của cặp sao nữ Vbiz hiện ra sao?
+-  ביקש להשיב את החנוכיה מסג'עייה לבעליה: רס"ר מאור לביא נפל בקרב
+-  רצה לייצג אותנו באירוויזיון: סרן (במיל') שאול גרינגליק נפל בקרבות ברצועת עזה
+-  "אין בנו כעס, אנחנו רוצים לחבק אתכם": אביו של שי טרמין ז"ל שנהרג מאש כוחותינו בעזה במסר ללוחמים
+-  "הם פוגשים ברגעים אלה את עוצמת צה"ל": לאחר סג'עייה - אוגדה 36 מסתערת על מחנות המרכז
+-  אוהדים נתפסו עם מדבקות בגנות שוטרים והורחקו מהמגרשים לחודשיים
+-  פרופ' אבי שמחון דוחף לביטול תקציב 2024 ומציע - לפתוח קופסה חוץ-תקציבית
+-  "זמר בחסד, עיניים טובות": אסי עזר נפרד מסרן (במיל') שאול גרינגליק
+-  "הפכנו לדיקטטורה?": זעם גדול לאחר הרחקת אוהדי נתניה שנתפסו עם מדבקות נגד המשטרה
+-  בן גביר הודיע כי לא יאריך את כהונת נציבת השב"ס: גנץ יפרוש?
+-  Začala se psát slovenská pohádka? Snad potkáme Čechy v bojích o medaile, doufá Repčík
