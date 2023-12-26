@@ -1,11 +1,11 @@
 # Latest News
--  Hansal Mehta reviews `Dunki`, applauds Shah Rukh Khan-starrer
--  Sara Ali Khan celebrates Christmas in London with mother Amrita, father Saif
--  Jammu and Kashmir: 3.7 magnitude earthquake hits Kishtwar
--  Stop violence, start peaceful dialogue: CM Biren Singh appeals to people
--  Uttar Pradesh: Massive fire breaks out in scrap market near Lucknow
--  Aboriginal man dies in Perth prison infirmary cell
--  मार्क्सवादको विकास नै आजको प्रमुख चुनौतीः प्रधानमन्त्री दाहाल
--  The Dems’ Anti-DeSantis Has a Plan for 2024—And Maybe 2028
--  ‘The Color Purple’ Ending Needs Repainting
--  Christmas Day in Hollywood! Will Smith and Jada Pinkett Smith reunite for family snaps after bombshell memoir revelations as they lead celebs taking to social media to celebrate holiday
+-  전셋값 상승에도 서울 아파트 ‘역전세’ 심화…반환보증금 규모 더 커져
+-  정세균-이낙연 회동…李 “당 상황 우려 공유, 3총리 회동 추진 가능”
+-  대한항공, ‘美 글로벌 트래블러’ 기내식 등 3개 부문 1위
+-  ‘8만 전자’ 기대감 피어오른다…삼성전자 주가 2년 만에 최고치
+-  송영길, 소환조사 또 불응…檢, ‘구속연장·강제구인’ 검토
+-  Во Владивостоке загорелся склад крупного производителя колбасных изделий
+-  Soma Maden faciasında flaş gelişme. 9 yıl geçtikten sonra...
+-  China unveils stringent regulations on video games
+-  荣耀Magic6系列定档1月10日 支持卫星通信新增保时捷设计
+-  一加Ace 3鸣沙金配色公布 首创熔金玻璃工艺带来金属般触感
