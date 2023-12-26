@@ -1,51 +1,51 @@
 # Latest News
--  Исчезна 22-годишна скопјанка
--  Chelsea on valmis aktivoimaan Bayer Leverkusen-tähden ulosostoklausuulin
--  Niño de11 años herido con cebollón en Navidad perdió los dedos
--  محافظ الغربية يناقش تطوير المحاور المرورية بالمحافظة
--  Kystfiskere frygter sammenstød med tabte containere
--  Proponen restablecer formación premilitar en colegios: ¿a qué escolares aplicaría?
--  Serralta parkea, Barakaldoko altxor natural berria
--  تفاصيل إصابة 9 جنود إسرائيليين بعد تعرضهم لنيران من لبنان أثناء سحب جريح أصيب بصاروخ موجه
--  OV-målvakten straffade Redbergslid: ”Jag kom in i ett bra flow”
--  OV-målvakten straffade Redbergslid: ”Jag kom in i ett bra flow”
--  Zalužni: Marjinka više ne postoji, Rusi dolaze
--  البنك الأهلي يستأنف تدريباته استعدادًا لمواجهة المقاولون
--  Fünf Sturmtote in Australien
--  Survei Indikator: Gibran Ungguli Mahfud dan Muhaimin dalam Debat Cawapres
--  Polizei untersucht Drohungen gegen Richter nach Trump-Urteil
--  VOX avisa que Cabra podría bajar de los veinte mil habitantes por falta de empleo
--  Logran salvar a un bebé de una parada con la asistencia telefónica de una enfermera
--  40 Ribu Kendaraan Lintasi Jalur Puncak Bogor, One Way Sempat Diterapkan
--  Familia se fue de escapada de fin de semana y encontró un cadáver en la nevera de su casa
--  Wall Street negoceia em alta animada com corte de juros no 1.º semestre
--  En espera 189 chihuahuenses para recibir trasplante
--  Nearly $1 Million In Cars Confiscated From Latvian Drunk Drivers Head To Ukraine
--  Кривична против битолчанец, ја истепал и ја вознемирувал поранешната партнерка
--  Pep Guardiola Promises To Write “Another Book” At Manchester City
--  MALO MESTA ZA OVE DAME Kajli Džener i ćerkica kao bliznakinje u bleštavim haljinama, mala klinceza nije mogla da sakrije radost!
--  Французская разведка провалилась не только в Азербайджане…
--  Песков о готовности Азербайджана и Армении финализировать мирный договор
--  Polizei untersucht Drohungen gegen Richter nach Trump-Urteil
--  „Visi Rusijos branduoliniai ginklai, kuriuos planuota atgabenti į Baltarusiją, yra atgabenti“
--  توقعات برجي العقرب والميزان حتى عام 2026.. «ليك حظ في العمل والحب»
--  Donald Trumps julhälsning: ”Ruttna i helvetet”
--  Judith Godrèche : “‘Icon of French cinema’ est une réparation”
--  Trujillo: Hombre destroza a pedradas los vidrios de camionata de su vecino
--  شاهد.. أمطار غزيرة وبرد جنوب سميراء
--  Runners sing carols to children at Makarios hospital
--  A $15 item could avoid a $1,000 ticket this winter
--  Internet- og telefonforbindelsen afbrudt i Gaza for fjerde gang
--  Internet- og telefonforbindelsen afbrudt i Gaza for fjerde gang
--  Ryan Gosling veröffentlicht "I'm Just Ken"-Weihnachtsversion
--  SRUŠIO PARTIZAN, PA DOBIO LASKAVO PRIZNANJE Luka Božić ponovo MVP
--  Projet de loi sur la gestion durable des déchets au Gabon : le ROSCEVAC plaide pour une fiscalité incitative
--  انفجار بالبحر الأحمر قبالة ميناء الحديدة اليمني.. والبحرية البريطانية تعلّق
--  Ukraine attacks Russian warship in Crimea
--  45 anos de Xutos & Pontapés: Digressão arranca em abril no Multiusos de Guimarães
--  عقوبات السوبر المصري.. إيقاف محمد إبراهيم 4 مباريات
--  Ministarstvo zdravlja u Gazi: "U izraelskim napadima ubijeno gotovo 21.000 ljudi"
--  Impôts : la fin de la taxe d'habitation, une manne modeste pour les propriétaires
--  Soccerladuma | Bafana's Group Rivals Include PSL Stars In AFCON Squad
--  LAJM I FUNDIT/ Masa ‘arrest në shtëpi’ ndaj ish-kryeministrit, SPAK kërkon që Berisha të komunikojë vetëm me familjarët
--  Los disidentes rusos se topan con recelos en los países bálticos que les dan cobijo
+-  É caro casar no Afeganistão. Por isso, os noivos optam por cerimónias coletivas (com as mulheres escondidas)
+-  Бронхит касаллиги хавфлари ҳақида маълумот берилди .
+-  Da li su RKS tablice zapečatile sudbinu beogradskih izbora?
+-  Pakistan : क्या पाक सेना हाफिज को पीएम बनाकर भारत के खिलाफ बड़ी साजिश रच रही है ?
+-  Detenida patóloga que realizó autopsia al cadáver de “Canserbero”
+-  Alex Gonzaga and Cong TV Vlog; Actress Goes To Congpound
+-  Slavni Fatih Terim ima novi posao, vodit će velikana
+-  The holiday box office was pretty merry for The Color Purple, middling for Aquaman
+-  Minister Botsa: అంగన్వాడీలను సమ్మె విరమించాలి.. సంక్రాంతి తర్వాత మరోసారి చర్చలు
+-  Le programme de la nuit en NBA : les Pistons vont-ils perdre leur 27è match de suite ?!?
+-  Medien: Israels Armee bereitet nächste Phase im Gaza-Krieg vor
+-  Odisha: Sarpanch and engineer fight after argument over corruption, video becomes viral
+-  Jared Leto: Photos of the Actor & Rocker
+-  Kritische Infrastruktur in Gefahr – Ampel plant Unternehmensverkauf
+-  कब जारी होगी पीएम किसान की 16वीं किस्त? ये रहा जवाब
+-  Пострадавший сапер эвакуирован в Гянджу
+-  Омбудсмен о защите прав западных азербайджанцев
+-  Kal Ka Makar Rashifal: मकर राशि वालों को होगा बिजनेस में अचानक धन लाभ, जानें कैसा रहेगा दिन
+-  Peking musí zabrániť odštiepeniu Taiwanu od pevninskej Číny, vyhlásil Si Ťin-pching
+-  Нотингам поднесе изненадата на Боксинг Дей и обърна Нюкасъл
+-  Dragons’ Den legend Duncan Bannatyne, 74, hits the beach with stunning wife Nigora, 43, in St Barts
+-  Anregende Gespräche statt Alleinsein
+-  问界M9及华为冬季全场景发布会今日举行问界M9和nova 12系列亮相
+-  Цената на гасот на европската берза ТТФ во 2023 година падна за повеќе од 50 отсто
+-  A Haber ekibi El-fara Mülteci Kampı'nı görüntüledi! Filistinlilerden İsrail drone’larına karşı şilte
+-  Putin će pobediti, opet, ali on čeka neke druge izbore
+-  Reportan 15 heridos en balacera que dejó 2 muertos en Los Puertos
+-  SSP odbacila Vučićevo poređenje: Srpska opozicija poziva na mir, a Tramp podsticao upad u Kongres
+-  الملهم والمؤلم
+-  Times-Age daily Quiz – Wednesday, 27 December 2023
+-  القسام تنشر فيديو لاستدراج قوة إسرائيلية في بيت حانون
+-  أطباء بلا حدود: قرار مجلس الامن الأخير بخصوص غزة ناقص
+-  الفيديو .. القسام تستهدف قوة راجلة بغزة
+-  أبو السعود: شركة واحدة تأهلت لـ (الناقل الوطني)
+-  Historisches Buch in den USA angekommen
+-  خطاب عقار -الشكل والمحتوى
+-  (الميداني الأردني) في نابس يستقبل ‏13153 مريضاً
+-  Heeresinspekteur warnt vor Schwächung der Bundeswehr durch Litauen-Brigade
+-  فصل مذيعة تركية من عملها.. والسبب فنجان قهوة - ماذا حدث؟ (فيديو)
+-  جنون الذهب.. الجرام يرتفع 300 جنيه في يومين وسعر تاريخي بتعاملات المساء
+-  A programozás rejtelmeibe kóstolhatsz bele az Epic mai ingyenjátékában
+-  What your summer shoe says about you: Birks, Crocs, Havaianas
+-  How Ferrari's controversial CG crashes play a crucial part in the story
+-  Planning a staycation this summer? Builder Stan Scott's outdoor jobs you should tacklen now
+-  The sad decline of the cinema
+-  Rückblick 2023: Neue Straßen und ein Schulanbau in Saalfeld-Rudolstadt
+-  Taranaki Daily News Person of the Year nominee: Taranaki iwi rahui group
+-  NZ's hottest day ever: Melted roads, workers striked and it killed 26,000 chickens
+-  Dry spells may push out Waimea dam completion date further
+-  Gardener's DIY hack will keep your plants alive while you're on holiday
