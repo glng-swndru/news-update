@@ -1,11 +1,11 @@
 # Latest News
--  아이티센그룹, 2024년 조직개편·임원인사 단행
--  고학수 위원장 “2024년부터는 개인정보 유‧노출시 과징금 커질 것”
--  “굴복 않겠다” 하마스 지도자, 개전 후 첫 공개 메시지
--  ‘어촌뉴딜 국책사업’ 미끼로 3억원 가로챈 40대 구속 송치
--  جنگ طول پکڑنے پر اسرائیلی وزیراعظم کو یرغمالیوں کے اہلخانہ نے گھیر لیا
--  Arbaaz Khan shares inside photos from nikaah ceremony with Sshura Khan featuring Salman Khan, son Arhaan & family
--  Alia Bhatt and baby Raha join Ranbir Kapoor and entire Kapoor family for grand Christmas celebrations, see inside pictures
--  "สมศักดิ์-ชาดา-วราวุธ" ไม่ติดใจ สื่อตั้งฉายารัฐบาล​ แกงส้ม ​"ผลัก" รวม
--  הקבוצה הטובה ב-NBA: בוסטון גברה על הלייקרס במפגש הקלאסי של החג
--  Sutradara Christopher Landon Keluar dari Film Scream 7
+-  Man United Oo Doonaysa In Ay Dheeraystaan Rikoodh Cajiib Ah Kulanka Aston villa.
+-  한샘, 업계 첫 '공정거래협약 이행평가' 최우수 등급 획득
+-  천안시, 14년 연속 가족친화인증기관 재인증 선정
+-  충남교육청, 2024학년도 학교급식 식품비 단가 14% 인상
+-  세종시, 올해 외부평가 58건 '우수' 성과
+-  해남군, 2024년 국도비 3594억원 역대 최대… "사활 걸고 뛴 결과"
+-  홍천군일반건설협의회, 무궁화장학금 300만원 기탁
+-  새단장 한 '세종 빛 축제' 크리스마스 명소됐다
+-  천안시 감염병대응센터, 감염병 분야 우수기관 표창 3관왕
+-  김포시, 새해 달라지는 행정제도
