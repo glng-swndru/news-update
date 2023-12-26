@@ -1,11 +1,11 @@
 # Latest News
--  Soccerladuma | Benson: Give Blackberry A Chance!
--  Hrôzostrašný nález: O život prišla matka a jej deti! Po otcovi pátrajú, je na úteku
--  5 veľkých ZMIEN pre vodičov od 2024: POZOR najmä na TÚTO novinku! Stačí málo a schytáte mastnú POKUTU
--  Sneh sa stále TOPÍ: Kde ešte hrozí VEĽKÁ VODA? TU si dávajte pozor!
--  อุ๊ย! ‘นนกุล’ มาเฝ้า ‘แอฟ ทักษอร’ งานปาร์ตี้ ‘น้องปีใหม่’ น่าเอ็นดู ใส่หน้ากากแซวแม่ด้วย
--  "Il faut former agents, dirigeants et élus aux risques": l'ancien chef du groupe de lutte Cybercrim APJ Nice donne ses conseils contre les cyberattaques
--  Babası kumpir ustası çocuğa patates yok. Ankara Tabip odası 10 çocuktan 22'sinin yoksul olduğunu açıkladı
--  ‘เศรษฐา’ ปัดปรับ ครม. ลั่น 314 เสียงวันนี้แฮปปี้อยู่แล้ว ยันไม่ดึง ‘ปชป.’ ร่วมรัฐบาล!
--  İran, Devrim Muhafızları'nın üst düzey üyesinin ölümünü doğruladı
--  Mutatjuk, ilyen idő várható karácsony második napján
+-  Tapusuz gayrimenkul satılabilir mi?
+-  Terör örgütünün sözde Süleymaniye sorumlusu etkisiz!
+-  Oryantiringte şehitleri anma yarışları sona erdi
+-  İşte yeni polis araçları! Suç örgütlerinden ele geçirilen araçlar emniyete verildi
+-  1800 rakımdaki köyde ev ve ahırlar kara gömüldü
+-  22 yaşındaki genç sokakta bıçaklandı, kaldırıldığı hastanede öldü
+-  창원하수도사업소, 지속가능한 하수도사업 기반 구축 마련 총력
+-  영천, 경북도 식량시책 평가 최우수상 수상
+-  박성연 서울시의원 "대학생 아침밥 지원 제도적 근거 마련"
+-  ‘공중보건위기 극복 상생·협력 성과대회’ 우수상
