@@ -1,51 +1,51 @@
 # Latest News
--  Bomb Threat to RBI: దేశ చరిత్రలోనే అతి పెద్ద స్కామ్ జరిగింది, ఆర్బీఐని బాంబులతో పేల్చేస్తామంటూ బెదిరింపు మెయిల్, అలర్ట్ అయిన ముంబై పోలీసులు
--  Prince Harry and Meghan Markle's 'powerful clues' in 'staged' royal Christmas
--  Nestorović: I vlast i opozicija rade protiv interesa države – samo na različite načine
--  Footballer asks 'what the f*** are we doing here' training at Xmas as video sparks fury
--  Enorme Explosion erschüttert Krim: „Unterwasserflotte vergrößert“ – Ukraine versenkt offenbar russisches Kriegsschiff
--  Unos 200 menores disfrutarán cuatro días de convivencia en los Campamentos de Navidad de Cerro Muriano
--  Herida grave una mujer en un accidente de tráfico cerca de Santa Marta de los Barros
--  I’m an ‘ecosexual’ — I’ve fallen in love with an oak tree
--  देश की खबरें | पिछली सरकारों ने नहीं दिया कारीगर समाज की तरफ ध्यान : केंद्रीय मंत्री
--  Zaharova: Zapad ucenio Srbiju da, šta god radila, ne sme da sarađuje sa Rusijom
--  Šabac protiv nasilja: U zatvoru će biti nekoliko hiljada ljudi
--  Binance Unveils Launchpool Project Sleepless AI for BNB, FDUSD and TUSD Staking
--  Eskişehir'deki o merkez 5'inci yılını kutladı
--  Взрив избухна край израелското посолство в Делхи
--  Τρελό σενάριο στην Ελλάδα και αναφορά για τον Ουαγκέ και τον ΠΑΟΚ
--  Encuentran tres cuerpos calcinados dentro de un vehículo en el occidente de Honduras
--  Newcastle ei halunnut uusiseelantilaishyökkääjää – kosti tapaninpäivänä hattutempulla
--  Busca el sustento con la venta de pays
--  HS-presidentinvaaligallup: Stubb niukassa johdossa ennen Haavistoa
--  Koprivica: Novoviću priznanje za borbu protiv korupcije i kriminala
--  Sancionan a 62 conductores por manejar bajo los efectos del alcohol
--  Mató a su esposa y a sus cuatro hijos
--  देश की खबरें | विनेश फोगाट ने खेल रत्न और अर्जुन पुरस्कार लौटाया
--  Polise devredilen lüks araçlar Kadıköy'de sergileniyor
--  IT Ministry Advisory On Deepfakes: ডিপ ভিডিও নিয়ে নয়া কড়া নির্দেশিকা কেন্দ্রের
--  Wedding photographer on top 8 venues in Dundee, Angus, Perthshire and Fife for stunning pictures
--  Shannen Doherty shares health update: 'So thankful'
--  NAOYA INOUE STOPS MARLON TAPALES IN 10TH ROUND TO BECOME UNDISPUTED JR. FEATHERWEIGHT CHAMPION
--  AK Parti 6 büyükşehir için temayül yoklaması yapacak
--  Traktör lise öğrencisinin üzerinden geçti
--  Kanye: Entschuldige mich aufrichtig bei jüdischer Community
--  Aksaray'da 5 düzensiz göçmen yakalandı
--  تفاصيل مصرع الخليجيين الكويتي والسعودي في الأنبار: عبوة قديمة انفجرت عليهم
--  Sete meses depois, investigação sobre morte de empresário paulista dentro da própria pousada em São Miguel do Gostoso segue aberta
--  आ गई दिल्ली में टीचर की वैकेंसी, PGT के लिए नोटिफिकेशन जारी, फ्री में करें अप्लाई
--  La selección femenina de fútbol se jugará el billete a París en el Nuevo Mirandilla de Cádiz
--  La selección femenina de fútbol se jugará el billete a París en el Nuevo Mirandilla de Cádiz
--  Israeli psychologists slam Health Ministry plan to 'ease' mental health crisis
--  Incêndio deflagrou nos anexos de uma casa em Ílhavo
--  Yahya Sinwar: याह्या सिनवार की खुली चुनौती..Israel पर जल्द होगा बड़ा हमला !
--  FedEx aumenta el rendimiento para sus accionistas con un acuerdo de ASR de 1.000 millones de dólares
--  Los bancos mundiales recortan empleos al disminuir las comisiones de la banca de inversión
--  Zwei Sturmtote in Australien
--  'Álbum branco' de João Gilberto guia Cacá Machado e Laura Lavieri no show 'Melhor do que o silêncio'
--  Izraelski vojnik umro od zaraze opasnim gljivicama u Gazi, nije ga spasila ni dvotjedna bolnička njega
--  Minister Ponguleti: పేదవాడి గుమ్మం ముందుకు ఇందిరమ్మ రాజ్యం తీసుకొస్తాం
--  Tottenham virittelee jättikauppaa - toivoton tehtävä?
--  Biden admin declines to veto ban on certain Apple Watch imports
--  روسيا تحطم الرقم القياسي في صادرات الحبوب
--  Creski proračun ipak usvojen, izbjegnuti novi izbori
+-  표은지, 풀어헤친 셔츠 사이로 속옷 '빼꼼'…하의는?
+-  맹승지, 작정하고 섹시…가슴 라인 보이는 파격 언더붑 패션
+-  [후라이 하려고 탁 쳤더니 '110억분의 1' 대박…노른자 4개 품은 달걀
+-  [‘국립 야영장’ 입실 시간, 1시간 빨라진다 …“내년, 오후 2시 입장가능”
+-  [해양경찰교육원, 베스트 교수 3명 뽑아
+-  [NCT 도영, 아이들 위한 산타로 변신, 5천만원 사랑의열매에 기부
+-  [세밑 한파에 車보험 긴급출동 급증…하루 13만건 나갔다
+-  [‘사기 혐의’ 전청조 부친, ‘도주 중’에도 사기행각…수천만원 갈취
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [겨울에 빛나야 찐미모..르메르디앙&목시 ‘뷰캉스’ 눈길
+-  [“중국산 대신 한국 반도체 산다?” 미국 ‘초강수’ 삼성·SK에 호재 되나 [비즈360]
+-  [▶▶ 폭탄 선언! 이제 365일 100% 무료로 진행합니다.!
+-  [여수석유화학단지 산업 폐플라스틱 재활용 길 열리나
+-  [野 “한동훈, 윤석열의 공천지령 대리인이자 김건희 호위무사”
+-  [전남 일자리·경제 한마당서 여수시 3관왕
+-  [무단횡단 70대 승용차에 치여 사망…경찰, 운전자 입건
+-  [도봉구 ‘화재발생’, 70대 노부부 집…담배꽁초와 라이터가
+-  [전남 득량만·강진만권행정협의회 내년 공동현안 논의
+-  [DGB금융 인사개편…“이사회 독립성 제고·사외이사 역할강화”
+-  [한은, 내달 11조원 규모 통화안정증권 발행…전월 比 5조원 확대
+-  [수지의 한복 영상, 성탄절 뉴욕 타임스퀘어 장식
+-  [용인도시공사 제11대 신경철 사장 취임
+-  [‘경찰의 별’ 경무관 승진 31명 발표…본청·서울청서 절반
+-  [하나투어, 바다 위 특급 호텔 ‘한-일 크루즈’ 운영
+-  [“여배우가 이걸 왜 써?” 촌스럽다 외면 받았는데…이러다 대유행?
+-  [‘이선균 협박범’ 정체, 밝혀졌다…유흥업소 여실장의 지인, 누구?
+-  [최덕규 경북도의원, 지방자치평가 의정정책대상 수상
+-  [대유플러스, 가전사업 영업중단…"김치냉장고 딤채, M&A"
+-  [전진선 양평군수 “연간 500만 관광객 시대를 열겠다”
+-  [여행 갔다오니 바뀐 도어락…침입자 잡아도 처벌불가?
+-  [유오재 경북경찰청 홍보담당관, 경무관 승진
+-  ['돈봉투 혐의 구속' 송영길, 첫 검찰조사…"김건희 여사나 수사하라"
+-  [문가영, 언더웨어 캘빈클라인 모델, 놀라운 발탁 효과
+-  [DGB금융그룹, 2024년 임원인사 및 조직개편 단행
+-  [에버랜드 판다 가족, 연말 단체로 대국민 인사
+-  ["84년생 XXX"…말기암 아내 괴롭힌 상간녀 신상 털렸다
+-  [여고생 제자와 성관계…20대 男 체육교사 구속영장
+-  [女 아나운서, '이것' 들고 뉴스 진행했다 해고…무슨일?
+-  [홍준표 "군·민간공항 통합건설로 대구 미래50년 앞당긴다"
+-  [이철우 경북지사 "제3회 한·중 지사성장회의 내년 한국 개최 합의"
+-  ["민주당을 지지합니다"…국민의힘 장제원 아들, 노엘의 고백
+-  [영천마늘 불고기피자, 내년 1월 25일 전국 출시
+-  [대통령실, 한동훈 취임에 기대감…"당·청, 원활한 소통 있길"
+-  [신일희 계명대 총장, 인문학 정신을 담은 '타불라 라사 II' 출간
+-  [경북도·대구시, 대구경북 한뿌리상생위원회 하반기 정기총회 개최
+-  [경북소방헬기 1호기 불사조 오는 31일 퇴역
+-  [하림그룹, ‘양재동’ 물류단지도 본궤도…13조3000만원 마련 방안은?
+-  [육류 혼합기에 팔 끼인 60대 숨져
+-  [하윤수 부산교육감, 장서초서 세 번째 학생회 소통 투어
+-  [5·18 진상규명조사위 조사활동 종료
