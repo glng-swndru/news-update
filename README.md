@@ -1,11 +1,11 @@
 # Latest News
--  זיו אריה: "זה עדיין סיבוב לא טוב, יש משקולות על הרגליים"
--  4 أبراج بتحب اللمة والتجمعات في ليلة رأس السنة
--  خبيرة التارو بسنت يوسف تكشف عن تغيرات تاريخية تؤثر على العالم في 2024- "فيديو"
--  لن تتخيل ما يفعله كوب من الحليب في الدهون الثلاثية والكوليسترول بجسمك
--  Expresidente Lobo sugiere solicitar asesoría a China para abordar la pobreza y buscar desarrollo económico
--  Tämä talli on F1-sarjan häpeäpilkku
--  Yeni yıldan önce depoları fulleyin! ÖTV zammı hepsine birden geliyor... Benzin, Motorin, Otogaz...
--  Усмивки за малки и големи: Атракционна разходка с "Икарус" по софийските улици
--  Sanjay Bhandari case: ED files prosecution complaint against two
--  Oknum Buruh 'Mandi Beras', Bulog Bakal Beri Tindakan Tegas!
+-  تعليق الدراسة الحضورية بجميع مدارس المدينة .. غدا الأربعاء
+-  EuroMillions results and numbers: National Lottery draw tonight, December 26, 2023
+-  Words of hope prayed over new religious priest
+-  Ville Peltonen hehkutti nuorta sankaria: ”Tosi upeasti häneltä”
+-  Sutomore dobija multifunkcionalni sportski teren
+-  Χαρίτσης: Χρειάζεται πειστικό σχέδιο και ριζική σύγκρουση με τον ιδεολογικό πυρήνα της Δεξιάς
+-  V napadu v Erbilu slovenska vojaka nista bila ranjena
+-  MUP-u TK prijavljen nestanak djevojčice iz Tuzle
+-  Over 200,000 shoplifting cases went unsolved in past year, figures reveal
+-  Survei Indikator: PDIP Teratas, PSI-PPP Diprediksi Tak Lolos ke Senayan
