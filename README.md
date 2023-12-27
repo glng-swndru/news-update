@@ -1,11 +1,11 @@
 # Latest News
--  Profe Cabrera se despide de la radio
--  Top Iconic Sports Arenas You May Want To See Before You Grow Old
--  Gran congestionamiento vial en Periférico de la Juventud
--  Confira a movimentação de jogadores para a próxima temporada da Liga Nacional de Futsal
--  Dziwna transakcja z sankcjami w tle
--  Rok 2024: co zmieni się w prawie dla firm
--  Itaka: zdobędziemy pierwszy milion
--  WIG sięgnie 90 tys. punktów
--  Wskaźniki koniunktury sugerują, że wzrost PKB jest coraz wyższy
--  Zaciska się pętla wokół Adama K.
+-  Španielska vláda potvrdila plány na ukončenie činnosti jadrových elektrární
+-  İşte yeni asgari ücretin işverene maliyeti
+-  Eski Pakistan Dışişleri Bakanı Kureyşi, tekrar gözaltına alındı
+-  Jak mógłby wyglądać Teatr Osterwy? Projekty dostępne na wystawie
+-  انخفاض أسعار النفط
+-  The Ultimate Tool Against Winter Snow: Snow Joe® IONMAX Cordless Snow Shovel
+-  Opciones para celebrar fin de año en Ecuador
+-  Kaum Fortschritte bei den Planungen für das Udo-Lermann-Gelände
+-  Immer in Bewegung
+-  Einschränkungen auf Bahnstrecke
