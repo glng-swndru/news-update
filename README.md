@@ -1,11 +1,11 @@
 # Latest News
--  Muere a los 98 años el francés Jacques Delors, expresidente de la Comisión Europea
--  El sector bancario alerta de los efectos negativos de la extensión del gravamen temporal
--  ¡Más récords para el S&P 500 y el IPC de la BMV en 2024! ¿En dónde invertir?
--  Los dos principales accionistas de EiDF inyectan 5,2 millones de liquidez a la compañía
--  Las eléctricas critican la recuperación de impuestos aprobada por el Gobierno
--  Las acciones de Masimo Corporation bajan después de que un tribunal de apelación suspenda la prohibición de los smartwatches de Apple
--  Desde trincheras congeladas, las FF.AA. rusas repelen el fuego enemigo usando el invierno a su favor
--  Botafogo faz nova investida por Cristian Medina, do Boca Juniors
--  David Guetta diz ter enviado 'Titanium' para Katy Perry
--  Estupros em São Paulo aumentam 16,6% em novembro
+-  Salman Khan greets fans on his birthday from his balcony as crowd cheers for him
+-  غانتس يُلمح إلى بقائه في الحكومة حتى بانتهاك الاتفاق الائتلافي
+-  العثور على نجم كوري حائز على الأوسكار ميتًا في سيّارة
+-  Avionët izraelitë bombardojnë një shtëpi me palestinezë të zhvendosur në Gaza, 20 të vrarë
+-  Elektrikli battaniyeden çıkan yangında bebek öldü, kardeşi ile annesi yaralandı
+-  Russia Ukraine War:जेलेंस्की सेना रूसी फौज के सामने किसी भी वक्त सरेंडर कर सकती है
+-  BKSAP DPR RI Dorong ASEAN Bertindak untuk Setop Kekerasan ke Rohingya
+-  Štrnásťnásobná mamička šokuje internet: Bola tehotná viac ako dve desaťročia, pozrite na tú rodinu!
+-  Pravá blondínka po KRACHU 12-ročného manželstva: Predviedla postavičku v PLAVKÁCH!
+-  Police eliminate six kidnappers, recover N4m in Bauchi
