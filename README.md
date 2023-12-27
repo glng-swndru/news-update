@@ -1,11 +1,51 @@
 # Latest News
+-  December 2023 Golden Apple: Hoa Bury
+-  Odustaju?; Putina je nemoguće pobediti
+-  Força Tática apreende arma, munições e drogas em residência de Nova Mutum
+-  맹승지, 수영복 넘칠 듯한 볼륨감 '완벽 베이글 몸매'
+-  На Украине отреагировали на призыв из Германии смириться с потерями
+-  Испытывающим постоянное раздражение россиянам дали совет
+-  حركة الفصائل الفلسطينية : منفتحون على مبادرات تبادل الأسرى مقابل وقف شامل لإطلاق النار
+-  Ciberseguridad en 2024: más sofisticada y dominada por la inteligencia artificial
+-  Роман Шогджиев из Калмыкии второй день подряд выигрывает на чемпионате мира в Самарканде
+-  В Великобритании предупредили об опасности чат-ботов
+-  Akragas, colpo in attacco: Gian Marco Distefano è un nuovo calciatore biancazzurro
+-  Powerball jackpot swells to $685 million for tonight's drawing
+-  На Мценском полигоне в Орловской области сократят объема мусора в 5 раз
+-  David Leland Dies: ‘Wish You Were Here’ Director & ‘The Borgias’ Co-Showrunner Was 82
+-  Barcelona ‘set to step up Mason Greenwood transfer interest’ – as fans threaten to withdraw support if Man Utd ace joins
+-  Barranquilla: familia de pastora hallada muerta dice que se trataría de un homicidio
+-  KANDIDOVALA SE PROTIV PUTINA NA IZBORIMA, A ONDA SUD DONEO ODLUKU! Rekli joj da ne može - zbog ovoga jednoglasno odbili
+-  Man sentenced to 23 year prison term under POCSO
+-  Russian Pro-peace Candidate, Barred From Vote, Will Create Own Party
+-  Городские службы Краснодара продолжат трудиться в режиме повышенной готовности все новогодние каникулы
+-  ¿Starbucks de Red Velvet? Así lo debes pedir
+-  Раскрыты самые дорогие страховые случаи с россиянами за рубежом
+-  В Хорватии сообщили об изменении позиции Байдена по Украине
+-  Više od 50 događaja u Beogradu tokom praznika
+-  NIA court convicts two AQIS members
+-  Transfer: Nigerian forward joins Bundesliga club, Eintracht Frankfurt
+-  No. 14 Arizona to face No. 12 Oklahoma in Alamo Bowl two years after a one-win campaign
+-  30 شهيدا جراء قصف مستمر على خان يونس
 -  إغلاق برج إيفل بسبب إضراب العاملين
+-  جيش الاحتلال يسقط 3 مسيرات تسللت لمزارع شبعا
+-  Wout van Aert zegeviert in Heusden-Zolder na late versnelling
 -  السهر يضاعف خطر تصلب الشرايين
+-  Esto dijo Guillermo Améstica, cómplice en el asesinato de Canserbero y Carlos Molnar
 -  Llaman a prevenir uso de pirotecnia
+-  California homebuying crashed in 2023. What’s next?
+-  Anna Benson: ”Jag har jobbat med att hitta min inre Zlatan”
+-  Euro breaks through 1.11 as the US dollar continues to slide. What's next
+-  Bjartur lífsstíll fær 30 milljónir
+-  Huthit sanovat tukevansa palestiinalaisia, mutta Punaisenmeren iskujen taustalla on sisäpoliittinen ja opportunistinen motiivi, tutkija sanoo
+-  Pokemon Scarlet & Violet players warn against “mistake” to avoid in DLC challenge
 -  Encuentran hombre atado con alambre de púas en la Interamericana
+-  Satiksmes ministrs: vilciens no Rīgas uz Viļņu varētu braukt arī no rīta
+-  Cacau Protásio deve receber R$ 80 mil de indenização após áudios racistas de bombeiros do RJ
+-  Balıkesirli genç hakem Oğuzhan Çakır Süper Lig yolunda
 -  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 28 декабря 2023 года
+-  New York Times sues Microsoft, OpenAI for ‘copying, using its content’ without permission
 -  'New York Times' verklagt OpenAI und Microsoft
--  बेंगलुरु में अंग्रेजी साइनबोर्ड पर बवाल, कन्नड़ समर्थकों ने किया तोड़-फोड़ | Photos
--  Ustavni sud “presjekao”: Donesena je važna odluka za istospolne zajednice
--  Alia mourns Akeredolu, Na’Abba
--  ZMENA krásky z kultovej rozprávky: Prešlo 26 ROKOV... Takto vyzerá PRINCEZNÁ z Lotrando a Zubejda!
+-  Apple appeals trade commission ban of Apple Watch 9, Apple Watch Ultra 2
+-  Sánchez dará a conocer el nombre del sustituto de Calviño en el Gobierno este viernes
+-  Poljska: Rat starih i novih vlasti za kontrolu medija
