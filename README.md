@@ -1,11 +1,11 @@
 # Latest News
--  Kein Alkohol: Überraschender Effekt nach 4 Wochen belegt
--  Qəzzada ölənlərin sayı 21 mini ötdü
--  Prison guard arrested for drug possession
--  भोपाल गैस कांड की दहशत तमिलनाडु में, आधी रात को गैस लीक हुई, कई लोग बेहोश, अस्पताल में भर्ती - NEWS TODAY
--  Тони Зен: Некои луѓе имаат фаца за ќотек
--  KWK 8: Karan Johar reveals one trait that Sara Ali Khan has inherited from Saif
--  Abhishek Bachchan calls Vikrant Massey`s 12th fail `biggest hit of the year`
--  Brighton vs Tottenham odds: Get 30/1 for 1+ goal to be scored in Thursday’s Premier League clash with Betfair
--  Hapag-Lloyd nie wraca na Morze Czerwone
--  Двојно убиство во Челопек
+-  Fenerbahçeli ve Galatasaraylı oyuncular dünyanın en iyi 10 oyuncusu arasına girdi
+-  Rusya Başbakan Yardımcısı Aleksandr Novak'tan Türkiye açıklaması: Doğal gaz merkezi kurulması projesi 2024'te hayata geçirilecek
+-  Datça'da açıklarında uçan balık görüldü
+-  TBMM Başkanı Kurtulmuş: Bölgede oynanan oyunu fevkalade iyi biliyoruz
+-  Mauro Icardi Süper Kupa maçı öncesinde gözünün son durumunu gösterdi
+-  Dünyaca sadece 700 tane vardı: Antalya'da korkunç şekilde bulundu
+-  TÜRK-İŞ'i ziyaret eden Bakan Işıkhan'dan flaş 'asgari ücret' açıklaması
+-  Çankırı'da 4,5 büyüklüğünde korkutan deprem
+-  Ülker Grubuna 'Starbucks' operasyonu: Murat Ülker'den iddialara sert tepki
+-  Katil İsrail'in Gazze'ye düzenlediği saldırılarda can kaybı 21 bin 110'a çıktı
