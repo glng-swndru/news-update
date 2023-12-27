@@ -1,51 +1,51 @@
 # Latest News
--  MTV: HIFK:n ottelun katsomossa syntyi kahakka - kolme poliisipartiota paikalle
--  Ron DeSantis Tells Interviewer 1 Thing He Would Change About GOP Primary Campaign
--  Feuerwehren vor allem in Rieneck und Lohr nach Sturm gefordert
--  అప్పుల్లో నెట్టిన గత ప్రభుత్వం
--  Lenovo may announce a Windows laptop with a detachable Android tablet display at CES 2024
--  Kumaram Bheem Asifabad: ‘ప్రజాపాలన’ను సద్వినియోగం చేసుకోవాలి
--  Παναθηναϊκός: Με φανέλα του Ολυμπιακού η πολυτελής VIP Lounge του ΟΑΚΑ
--  W "Wilczym Szańcu" będzie można wejść do ruin bunkra Hitlera
--  Los ingresos de explotación de Flipkart aumentan un 42% y reducen las pérdidas en el ejercicio fiscal 2023
--  Las acciones fluctúan a mediodía: Tesla, Coinbase y otros
--  Juez argentino rechaza recurso de la CGT contra el decreto de Milei por defecto de forma
--  El Banco Central argentino emitirá billetes de mayor denominación por la alta inflación
--  Mercato - PSG : Le Real Madrid se lâche avec Mbappé
--  Tom Smothers dead at 86: Comedy legend and one half of iconic comedy duo the Smothers Brothers passes away after battle with cancer
--  Qué rituales de Año Nuevo realizar si quieres atraer el dinero en el 2024
--  Yeni asgari ücret belli oldu! İşverene verilecek ücret desteği 700 TL'ye çıkarıldı
--  Nepal Surpasses One Million Tourist Arrivals in 2023; Indian Visitors Lead Influx
--  Sherr për vendparkimin në Tetovë, 60-vjeçari vret djalin e xhaxhit dhe nusen
--  Especial | Conozca a los distinguidos con Bien Hecho y Personaje del año 2023 de Prensa Libre
--  Kumaram Bheem Asifabad: పూలాజీబాబా బోధనలు అందరికీ ఆదర్శం
--  Kickoff | 40yo ex-Sundowns star to captain nation at AFCON
--  В Польше начали процедуру ликвидации государственных СМИ
--  Lisa Magnusson: John och Yoko är motsatsen till vad julen handlar om
--  From 'gummy' to glam! Woman, 38, who lost all of her TEETH earns viral fame as TikTok's 'denture queen' by flaunting INCREDIBLE before-and-after transformations with her fake pearly whites
--  Популярный российский юморист назвал недостатки КВН
--  Google needs to show the ChromeOS tablet UI some serious love, and soon
--  The New York Times podigao tužbu protiv OpenAI i Microsofta: ‘Odgvorni su za milijarde dolara štete!‘
--  В Тбилиси убит военнослужащий, обвиняемый задержан
--  Kako je željezničar-heroj Marko zaustavio vlak skočivši na njega
--  Zyberi: Dokumentat personale duhet të jenë në ngarkesë të buxhetit të shtetit e jo të qytetarëve
--  Polarización, la palabra del 2023 para la RAE
--  Anti-war candidate says Russian Supreme Court backs barring her from challenging Putin
--  Dax stabil nach den Feiertagen
--  سرطان الأمعاء.. 4 علامات في البراز تكشف الإصابة - احذرها
--  ایک اور سیاسی جماعت کیلئے خطرے کی گھنٹی بج گئی
--  ‘ప్రజాపాలన’ ఏర్పాటుకు చర్యలు తీసుకోవాలి
--  Кравцов считает Путина наставником
--  Demanda NY Times a OpenAI y Microsoft por utilizar sus historias para su chatbot
--  La lista de Schindler original está a la venta (y tú la puedes armar para la colección)
--  Simons, Reath, Henderson lead Trail Blazers past Kings 130-113
--  Oud-voorzitter Europese Commissie Jacques Delors (98) overleden
--  Hopewell Chin’ono Changes Own Wealth Story from Non-Existant Sportscar Lender to Cellphone Hustle Claim
--  Миронов призвал лишить участников голой вечеринки Ивлеевой концертов и рекламы
--  Advierte EU a migrantes sobre consecuencias por cruzar la frontera ilegalmente
--  El caza ligero MiG-29, al detalle
--  Bullets look to Prather to provide them with NBL spark
--  Мужчина, пропавший во время экспедиции в районе ледника Гергети, найден мертвым
--  Încă un bebeluș din județul Brașov a murit de rujeolă. Provenea dintr-o comunitate nevaccinată
--  ఆదేశాలు బేఖాతరు
--  O curioso motivo do aumento da venda de peças do lado esquerdo dos carros em SC
+-  NSCDC licences 93 private guard companies in 2023
+-  В ВСУ показали фото оккупантов, которые недавно сдались в плен на Запорожском направлении
+-  Германия — С 28 декабря Aldi меняет часы работы
+-  Za finansiranje RTCG-a izdvajaće 1,34 odsto tekućeg budžeta
+-  نائب رئيس هيئة الأركان العامة اللواء البصر يرأس اجتماعاً للجنة التحضيرية للمؤتمر السنوي لقادة القوات المسلحة
+-  В Курской области продлен «желтый уровень» погодной опасности
+-  افتتاح أول مطعم كوبي نباتي في ميامي
+-  С мойки в Москве-Сити угнали «Ламборджини» ценой более 20 млн
+-  Calliditas refinances existing term loan with Euro 92 million senior secured facility with Athyrium Capital
+-  Hollanda'da çocuklardan Filistin'e destek yürüyüşü
+-  TBMM çalışmalarına ara verdi
+-  İletişim Başkanı Altun'dan 'Gazze kasabı'na tepki: Konuşacak son kişi Netanyahu'dur
+-  Aktien Europa Schluss: Börsen nehmen etwas Fahrt auf
+-  Erbaş, Kudüs Üniversitesi Rektörü Kishek'i kabul etti
+-  רביבו ודוידזאדה בהרכב מכבי תל אביב, דהן ופריידיי בבית"ר ירושלים
+-  מהביקור בחדר ההלבשה ועד השידור: צפו בערב המרגש של אוהד מונדר
+-  המשטרה מבקשת לחקור את הרב שהסית נגד רופאים ערבים: "רוצחים בבי"ח יותר מהחמאס"
+-  اختتام مجلس عزاء فقيد الوطن والقوات المسلحة العميد شمس الدين البكيلي
+-  Rodney Harrison, Vince Wilfork among list of Pro Football Hall of Fame semifinalists
+-  ఎమ్మెల్యే బుర్రా గడపగడప కార్యక్రమానికి నేతల డుమ్మా
+-  Governador de MT anuncia pagamento do bolsa atleta para 482 esportistas
+-  Asgari ücret zammıyla değişen ücretler belli oldu! İşsizlik maaşı, staj ücreti, GSS primi, 65 yaş aylığı, kıdem tazminatı...
+-  Devisen: Euro fällt zum Franken auf Rekordtief - Auch USD/CHF auf Mehrjahrestief
+-  Snigdha Malviya wins KIIT NanhiPari 2023 title, Odisha’s Chirashree Sagarika is first runners up
+-  Comedian Tom Smothers, one-half of the Smothers Brothers, dies at 86
+-  Frosinone, i tifosi lanciano un segnale alla Lazio: il dato aggiornato dei biglietti
+-  Giants to start Taylor over DeVito: 'He earned' it
+-  Commanders bench slumping Howell for Brissett
+-  Kelce, in cuss fest, says KC woes 'not just 1 guy'
+-  Sources: Broncos bench Wilson, to start Stidham
+-  Luisa María Alcalde asegura que fueron manipuladas las cifras de búsqueda de desaparecidos
+-  Minister kultury ogłosił postawienie w stan likwidacji TVP, Polskiego Radia i PAP
+-  স্বতন্ত্র প্রার্থী শাহজাহানের মিছিল থেকে টাকা বিলি, ভিডিও ভাইরাল
+-  DGT: Quick, Easy And User-Friendly
+-  Ser hipocondríaco podría ayudarle a llegar a una tumba temprana, sugiere un estudio
+-  Mestareiden mestari: Nuorella vauhtihirmulla Urho Kutilalla on voittajan otteet radalla
+-  La truffa dell'auto: acquista vettura con un assegno già riscosso e documenti falsi
+-  Chega acusa Governo de "desleixo" na saúde e pede solução até março
+-  ŠTA SVE IMA U BEOGRADU NA OTVORENOM ZA DOČEK NOVE Koncerti na dve lokacije, vatromet na jednoj, rok legende veče pre, a za klince je najvažniji 1. januar
+-  العواصف الرعدية تقتل 8 بشرق أستراليا
+-  Futbolista histórico de Cruz Azul estaría 'NEGOCIANDO' FICHAJE de Alexis Vega
+-  Kumaram Bheem Asifabad: ఆరు గ్యారెంటీలను అర్హుందరికీ అందించాలి: మంత్రి సీతక్క
+-  Las Vegas sets up pop-up airport license bureau for New Year's wedding rush
+-  هل أصبح البحر الأحمر ساحة حرب مفتوحة؟
+-  Ситуация с пенсиями в Беларуси ухудшилась
+-  В новогоднюю ночь в Москве может резко похолодать
+-  ప్రజాపాలనకు శ్రీకారం!
+-  Handy: Wer das tut, zahlt bis zu 2.500 Euro Strafe
+-  Apple catches big break, wins emergency request to keep selling the latest Apple Watches in US
+-  Adolescente de 15 anos é vitima de estupro coletivo na Bahia
