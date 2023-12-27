@@ -1,11 +1,51 @@
 # Latest News
--  الاحتلال يقتحم بلدتي زيتا وباقة الشرقية شمال طولكرم
--  특수관계자간 상장주식 장외거래, "법인세법상 시가 산정방식은?"
--  전세계 무기주문 2년새 급증…K-방산 세계 31위→9위
--  Menteri Luar Zambia letak jawatan
--  Deutschlands oberste Krankenkassenchefin: „Es werden massive Reformen im Gesundheitswesen nötig sein“
--  مدرب العنابي: التحدي كبير.. وسعيد بسرعة استجابة اللاعبين
--  غرفة قطر تستشرف التكامل الاقتصادي والتنموي بدول التعاون
--  مواطنون: الدولة تدعم ملف التوطين في القطاع الخاص
--  국토 면적 75%에 5G 깔렸는데…농어촌 속도는 서울 절반 수준
--  Jung Kwan Jang Launches a Limited-edition Red Ginseng, Marking its 124th Anniversary
+-  陽明跌停，曝露航海王營運警訊？一圖看航運商怎麼繞道，紅海危機如何影響後市？
+-  無薪假的解藥？元旦起7行業可申領薪資補貼，最高9200元
+-  La Super League tablerait sur un budget initial de 15 milliards d'euros
+-  Man seriously injured in collision between car and tractor in Virginia, South Australia
+-  الأرصاد تنشر صورة لرادار الطقس وتبيّن مواقع تساقط الأمطار
+-  Ator casa-se com o cineasta italiano Marconi Calvani
+-  Demystifying DSLRs: A Comprehensive Guide to Choosing the Right Camera for You
+-  Drei-Flüsse-Bad Gemünden: Badegäste schätzen die Sportstätte
+-  Qualitätssiegel für Erbacher Klinik
+-  Brother of Australian man and his wife killed in Israeli airstrike in Lebanon is revealed to be a 'martyr' for terrorist group Hezbollah - as trio are buried in caskets draped with militia's flag
+-  El Gobierno perfora a 400 metros bajo el suelo en Albolote en busca de nuevos pozos por la sequía
+-  Macron'dan Netanyahu'ya "Yahudi yerleşimci şiddetine son verin" çağrısı
+-  England ace Harry Kane earns whopping £25MILLION away from the pitch with lucrative side-hustles
+-  [날씨] 수도권 비상저감조치…당분간 심한 추위 없어
+-  ABD'den Ukrayna'ya 250 milyon dolarlık yeni askeri yardım
+-  The Echo Show 8 smart display is priced at an all time low for Amazon Prime members
+-  Christmas nightmare for Brittany Hockley as she is trapped in a blizzard while driving through the Scottish Highlands
+-  Masalah letak kereta, tiada promosi punca Arked Mara lengang
+-  Customs seize N2.9bn vehicles, dealers blame high duty
+-  Consejos para comprar un coche de segunda mano o de ocasión
+-  Calcio violento, l’allarme di Carta
+-  Buona la prima per Ferrini e Tor di Quinto
+-  Dal 2 gennaio la Torres va a caccia dei rinforzi
+-  La Santa Barbara alla Fermassenti
+-  Come nelle migliori regioni
+-  Per Mura notte agitata nell’Oceano Indiano
+-  [출근길 인터뷰] '청룡의 기운' 받아볼까…해돋이 명소 6곳
+-  Hermaea-Lecco, obiettivo sorpasso
+-  Lambakan penyelidikan universiti tidak dimanfaat
+-  Mom says pregnant Texas teen found dead was "there at the wrong time"
+-  Feeding those in need is Food Bank For New York City's continuing mission
+-  ジャイアンツ、次戦の先発QBにタイロッド・テイラーを起用へ
+-  NH證 "삼성물산, 자사주 13.2% 소각 계획 구체화 기대… 목표가 상향"
+-  Be responsible on public land these holidays
+-  Keep your family safe this summer
+-  Explore the great outdoors
+-  Keep your property safe this holiday season
+-  Rusya ve İran’dan para birimi anlaşması
+-  This annoying thing about Australia makes me want to move overseas - and Europeans never believe me when I tell them
+-  Alcalde de SJL afirma que delincuencia en su distrito va en aumento a pesar de estado de emergencia
+-  [종합] 11월 생산·소비 증가 속 투자 감소…반도체 생산 12.8% ↑
+-  Año Nuevo 2024: ¿Cuáles son las mejores cábalas para el 31 de diciembre?
+-  Banxa Reports Audited Full Year 2023 Financial Results
+-  Israeli Teen Who Refused to Enlist in IDF Military Jailed
+-  «Quiero dejar en las familias una sonrisa, pero también una palabra que les ayude»
+-  Phyna: I Spend Most Of My Times Alone, I Don’t Have Friends
+-  Bonucci: "In futuro vorrei fare l'allenatore. Sanremo come Ibra? Non so se ce la farei"
+-  Barack Obama's list of the best movies of 2023 sure has a lot of Barack Obama movies on it
+-  Wall Street drifts higher as a strong year for markets winds down
+-  Vaivén, un sol de circo
