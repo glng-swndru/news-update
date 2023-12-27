@@ -1,51 +1,51 @@
 # Latest News
--  잡힐 듯 안 잡히는 명낙회동…이재명 “이낙연 연락 기다려”
--  Talijani napali bivšeg Vatrenog: ‘Baš je kanta, jedan od najvećih promašaja’
--  Favorite Perfume of the Prophet Muhammad
--  Estamos "a alimentar um monstro de teias de investigações e suspeitas"
--  Už pažeidimus atsakys administracine tvarka
--  Rezultati nakete: Koja je po vama ‘momčad godine’ obilježila 2023. godinu?
--  IndiGo announces direct flights between Mumbai and Ayodhya
--  A year of exponential growth: Puneet Dhawan
--  Fanowski dodatek do Fallout 4 zalicza opóźnienie z powodu konfliktów zbrojnych
--  Kaio Jorge, un altro matrimonio Juve nel 2024: Bruna Gomes ha detto sì
--  MotoGP, Morbidelli si prepara al 2024: “Ecco ciò di cui avevo bisogno”
--  Wolff e il consiglio a Mick Schumacher: “Tornerà in F1 se …”
--  Shakira 'di bronzo', l'omaggio di Barranquilla: "Fianchi che non mentono"
--  Pomorskie: Dziesiątki interwencji straży pożarnej
--  Preminuo Volfgang Šojble
--  Xuân Bắc, Tự Long vắng bóng trong "Gala cười 2024", hé lộ thông tin "Táo quân 2024"
--  Yoga ve Meditasyon Arasındaki Fark Nedir? Yoga ve Meditasyon Aynı Şey Mi?
--  Polícia timorense adverte que fogo-de-artifício só na passagem de ano
--  Nowy prezes TVP: obiecuję, że uczynię wszystko, by ukarać winnych łamania prawa
--  Loại rau siêu vitamin A, carotene, là "vua bảo vệ mắt", làm được nhiều món thơm ngon, bổ dưỡng
--  Elevating Nigerian airports: A call for transformation
--  Liverpool stabbing: City centre shops locked down after three stabbed in horror attack as cops hunt suspects
--  Zbog Dominika svi na nogama: ‘Odlazi dijete koje nema zla u sebi, trgnite se iz produkcije’
--  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
--  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
--  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
--  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
--  تراند اليوم : الكشف عن 5 فيتامينات ومعادن تقوي جهاز المناعة وتحمي من الفيروسات ونزلات البرد في الشتاء
--  Dve osobe povređene u sudaru kamiona i automobila u Kaću
--  Капитани на света: "Нетфликс" ще покаже поредица за световното първенство в Катар
--  Panathinaikos ile anlaşan Fatih Terim, Yunanistan'a gitti
--  피해자만 200여명… 고교서 불법 촬영한 19세 구속기소
--  Mercato - PSG : C’est déjà mort pour ce transfert à 11M€
--  LIVE TJ - Mercato Juve h24 - Yildiz incedibile, Liverpool "out" per Phillips
--  Merz: Verliere mit Schäuble engsten Freund und Berater
--  Apple “discorda fortemente” de decisão de banir Apple Watch nos EUA
--  Če bodo zavarovalnice sprejele nadomestilo, se odpovedujejo tožbi
--  Invitation to do what Dookers do!
--  BN Style’s ‘The Definitive Best Dressed List’: What was the Most Fashionable TV Show of 2023?
--  Трудно видими: Нови пешеходни пътеки в центъра на София са с плочки, а не с боя
--  진로 바꾸랬다고…교통 신호수 트럭으로 들이받은 운전자
--  Europol u akciji protiv digitalnog skimminga: Ni trgovci ni kupci nisu bili svjesni da su pokradeni
--  新北國中生遭割喉不治 全教產：學生攜危險物難管理
--  طريقة مذهلة لتنظيف مقلاة الزيت من الخارج.. جربيها
--  المنتخب الوطني لكرة القدم يلتقي نظيره اللبناني غدا
--  Metric measurement decision as government rules whether to return to pounds and ounces
--  3-jarige peuter pakt midden in de nacht alle kerstcadeaus uit, ouders treffen chaos aan
--  ‘Where’s my grandson?’: Child travelling to visit grandma for Christmas put on wrong flight
--  [인사] DGB금융그룹
--  휴대폰 사용자 수로 인파 밀집 사고 막는다…29일부터 '관리시스템' 개시
+-  سعر الذهب اليوم في مصر يفقد 65 جنيها من مكاسبه الأخيرة بتعاملات الصباح
+-  VAT exemption for raw material imports into Azerbaijan extended for further term - decree
+-  Sanksionohen 147 shoferë në Shkup
+-  빙판을 녹이는 뜨거운 열기…화천산천어축제의 귀환
+-  美 고든 창 “중-러, 제3차 세계대전 고려 중”
+-  美, ‘원폭 폭격기’ 태평양 비행장 재건…中 공산당 위협에 대응
+-  Asgari ücrette gözler Beştepe'de! Komisyon 16:30'da toplanıyor
+-  Beşiktaş transfer operasyonuna başlıyor!
+-  Tesla fabrikasında korkunç olay: Robot mühendise saldırdı!
+-  Korucu eşini öldürüp intihar etti
+-  İki araçta uyuşturucu ele geçirildi
+-  Asgari ücret için kritik toplantı
+-  Çin'den ABD'li firmaya yaptırım kararı
+-  Poonch attack: Fresh searches launched; Internet services remain suspended
+-  Τελευταία μέρα ξεκουράσης
+-  Salman Khan Birthday 2023: Fans have been camping outside actor`s residence
+-  A long-overlooked climate solution, geothermal could be in for its hottest decade yet
+-  Vai Krievijas uzbrukums NATO nākotnē ir teju neizbēgams, skaidro diplomāts
+-  Manchester United -flopin päivät seurassa luetut?
+-  India vs South Africa Free Live Streaming Online, 1st Test 2023 Day 2: How to Watch IND vs SA Cricket Match Live Telecast on TV?
+-  «Le Soleil» lève l’encre
+-  টানা পাঁচবার ‘বেস্ট সিরামিক ব্র্যান্ড’ হলো আকিজ সিরামিকস
+-  News24 | 'Any threat or use of violence': Police, FBI probe threats to Colorado judges in Donald Trump case
+-  News24 | 8 dead, one missing, properties without power as severe thunderstorms batter Australia
+-  News24 | WATCH | Severe floods hit Europe, inhabitants evacuate their homes on Christmas Day
+-  News24 | 'Hold accountable those responsible': 120kg cocaine washes up on Australian beaches
+-  UOKiK ukarał 1 mln zł spółkę wakacje.pl
+-  Do Sejmu trafił prezydencki projekt ustawy z podwyżkami dla nauczycieli ale bez 3 mld zł na TVP
+-  List of celebrities who broke up in 2023
+-  עכשיו זה רשמי: מריה קארי והאקס מאשרים את הפרידה
+-  社區光影｜屯門紅樓一度被清拆 當局介入煞停 興中會起事據點列暫定古蹟
+-  הקסם של מוראנט חזר, החגיגה ה"דבילית" הוכיחה: הוא לא למד כלום
+-  Bomb Threat To RBI: Mumbai Crime Branch Arrests Man Who Sent Threatening Mail To Reserve Bank of India Office
+-  Gestiones de la DGT para las que no necesitas esperar meses
+-  VIDEO Sonja Kovač je trudna: ‘Najveća nagrada uvijek dolazi u pravo vrijeme’
+-  Admission to OMX Iceland 15 Index
+-  Pourquoi l’Inventaire des Biens de l’État Influence-t-il les Budgets Nationaux ?
+-  Ban Apple Watches: Apple Watch Ultra 2 and Apple Watch Series 9 With Feature for Reading Blood-Oxygen Banned in US, Know How It Will Affect Customers
+-  Il futuro della meccanica industriale: la revisione degli impianti
+-  Gërdeci/ Shkëlzen Berisha flet pas dëshmisë: Teatër politik, në mëngjes thirret djali, në drekë gjykohet babai, në darkë ekzekutohet masa e sigurisë
+-  कैमरे के सामने इंटीमेट हुए अंकिता लोखंडे-विक्की जैन, Video देख भड़के लोग
+-  桌球｜澳門大師邀請賽演重頭戲 火箭大戰Marco 能否重塑經典？
+-  沙田早晨 │ 巫偉傑親操畀貼士
+-  India aims at $1 billion fresh banana exports in next 5 years
+-  Tri roky od smrti generála Lučanského. Čo dnes vyšetruje polícia?
+-  Ples medveda u Rumuniji
+-  Najlepšie PAGÁČIKY: Recepty na oškvarkové, syrové, zemiakové aj cesnakové!
+-  Ping-pong: Šaranović predložio smjenu Brđanina, Spajić možda to ne stavi na dnevni red, policija bez prvog čovjeka!
+-  Evsel atıklardan katma değer sağlanıyor
+-  Владимирцам, потерявшим связь с бойцами в зоне СВО, посоветовали обратиться в СК
