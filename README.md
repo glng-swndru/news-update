@@ -1,51 +1,51 @@
 # Latest News
--  Gökhan Zan, İYİ Parti'den İstifa Etti
--  Η Τζόρτζια Μελόνι ταλαιπωρείται ακόμα από γρίπη και ανέβαλε ξανά τη συνέντευξη Τύπου
--  İbrahim Maalouf İstanbul’a gelecek
--  Une marche blanche sera organisée en hommage à la famille tuée à Meaux
--  Marseille: une belle année pour le Vélodrome, avec 1,5 million de spectateurs en 2023
--  Villas, voiture de luxe... La nouvelle vie de l'Américain vainqueur du jackpot de 2 milliards de dollars
--  Bakan Vedat Işıkhan açıklama yapıyor
--  Salt’tan yeni e-yayın: Başka Kayda Rastlanmadı
--  Malgré l’arrivée d’Ineos à Manchester United, Nice va garder le cap et continuer d’être ambitieux
--  Nice: la salle Serge Leyrit transformée en accueil de nuit pour les personnes sans domicile fixe
--  Μίρκα Παπακωνσταντίνου: Ο Δάνης Κατρανίδης είναι άνθρωπος της ζωής μου
--  غیر ملکیوں کو غیر قانونی شناختی کارڈ کس نے جاری کیے؟ نادرا سے بڑی گرفتاریاں
--  Αταμάν για το Παναθηναϊκός – Ερυθρός Αστέρας: «Ο Λεσόρ είναι πιθανό να αγωνιστεί στην αναμέτρηση»
--  देश की खबरें | राम मंदिर उद्घाटन में नहीं बुलाया गया है: शरद पवार
--  Mevduatta hep aynı getiri hayali gerçek mi?
--  Amenazas al fiscal y una confesión de pago de coimas en la causa Walter Bento
--  Mascotas: estas son las terribles consecuencias de dormir con tu perro
--  Ami conquista il mondo del turismo
--  Mehmet Akif Ersoy İstanbul’da anıldı
--  Sibel Can bu diyetle kızını da zayıflattı! Anne kızı dal gibi yapan yöntem: Ödemi de yağı da vücuttan foşur foşur atıyor
--  Los expresidentes de Aragón tendrán derecho a seguridad y chófer durante ocho años tras dejar el cargo
--  مجلس الأمن الوزاري يناقش تسليم الملف الأمني وطلباً للبنان بشأن مطلوبين
--  Jack Smith asks judge to bar Trump from making 'political attacks' in 2020 election trial
--  Ruotsissa reagoitiin Nuorten Leijonien fiaskoon: ”Jättisensaatio”
--  Kılıçdaroğlu'ndan 'Sinan Ateş' paylaşımı: Cinayetin üzerinin kapatılmasına müsaade etmeyeceğiz
--  Soccerladuma | Mosimane & Queiroz 'Lead' Race To Take Charge Of African Giants
--  Show TV Arak 2. bölüm yayınlanacak mı? Arak yeni bölüm neden yok? Arak dizisi için flaş karar...
--  Trabzonlu amca bahçesine marul ekerek paranın belini kırdı! Şimdi koca sera sahibi, market ve hallere 30 çeşit ürün satıyor
--  KOD SRBA ZMIJA SE ČESTO POJAVLJUJE U SNOVIMA! ŠTA TO ZNAČI? Sanjanje SMRTI je zapravo dobro, a evo šta predstavlja AFERA
--  The New York Times sues OpenAI, Microsoft over use of its stories used to train chatbots
--  El Gobierno incorporará 884 plazas en la Administración del Estado para estabilizar el empleo temporal
--  Jack Smith asks judge to bar Trump from making 'political attacks' in 2020 election trial
--  Record $1.6 billion Mega Millions jackpot claimed in Florida: What we know about the winner
--  Marinika Tepić štrajkuje deseti dan, poslanici Grujić i Veselinović moraju u bolnicu
--  "J'arrive pas à expliquer (...) c'était une amie", une voisine de la famille tuée à Meaux témoigne
--  देश की खबरें | सरकार को मराठा समुदाय के खिलाफ बिना वजह मामले दर्ज नहीं करने चाहिए: जरांगे
--  Süper Lig ve Avrupa'yı bekleyen büyük tehlike. Öfke ve endişe hakim
--  Jean Ferrari confirma que está cerca de contratar al nuevo DT de la 'U': "Ganó varios títulos"
--  Com foco em inovação no mercado imobiliário, LMR Participações expande em Itajaí e região
--  Rusijos kariuomenei pradėti tiekti snaiperiniai „Kalašnikov“ pagaminti šautuvai
--  „Gali įvykti sprogimas.“ Kaip galima perkrauti akumuliatorių
--  [ŽT] Karščiausi vaizdai tiesiai iš mūšių. Unikalus video iš Izraelio karių kūno kamerų (Video)
--  Tai buvo tikras šokas. Kai rusų pilotai suprato, kas nutiko, jau buvo per vėlu
--  „Geriausias iki...“ Nuo 2024 m. sausio 1 d. Lietuvoje keičiasi prekyba maisto produktais. Ką reikia žinoti
--  „Ši šalis yra antroji Ukraina“. Rusija skelbia naujus karo tikslus
--  [ŽT] Putinas sužinojo apie „Novočerkasko“ katastrofą
--  4 yıldır aranan FETÖ firarisi ihraç kurmay binbaşı yakalandı
--  BM Genel Sekreteri Guterres: Bir sonraki salgına hazır değiliz
--  Filistin'de özel sektörün zararı 1,5 milyar doları buldu
--  Beytüllahim Papazı: Bu soykırım bitmeden hayat normale dönemez
+-  Britániu zasiahlo zlé počasie: Rušia sa lety aj trajektové spoje! Voda zaplavila železničné trate
+-  Znásilnenie, stará vražda aj šikana: Z týchto prípadov tuhne krv žilách! Nemali by sme na ne zabudnúť
+-  Van 112 incendios en casa habitación en diciembre
+-  Descarta AMLO que EU pida endurecimiento migratorio
+-  Ampliará Infonavit horario mañana para cambiar créditos a pesos
+-  Hay 92 mil personas desaparecidas, asegura Gobierno
+-  Selfiekali wins Elephant Beauty Contest
+-  Szkoła specjalna pod jednym adresem. Miasto ogłosiło przetarg
+-  İsrail Batı Şeria'da bir Filistinliyi daha öldürdü
+-  Roma'da Renato Sanches için yolun sonu gözüktü
+-  MicroStrategy dokupiło bitcoiny za ponad 600 mln USD
+-  Nuorten Leijonien tähtipuolustaja antoi palaa TV5:llä
+-  Dick Clark's New Year's Rockin' Eve 2024 Lands Performances By Cardi B in Miami, LL Cool J in NYC and More
+-  Vecinos de Rincón de Urías en Mazatlán piden alumbrado público, pavimentación y escrituras
+-  BFW Rewind 2023, #4: Bayern Munich end the season with an unexpected title victory
+-  Why tending your oral microbiome is the secret to a long, healthy life
+-  9 فوائد تميز زيت شجرة الشاي.. يعالج مشكلات مزعجة في الشعر والبشرة
+-  Band of Brothers writer and director David Leland dies aged 82 on Christmas Eve surrounded by family: Liam Neeson and Pierce Brosnan lead tributes to BAFTA-winner
+-  Bremer ha firmato: ecco quanto durerà il suo matrimonio con la Juve
+-  Publikumsfavorit vil stoppe efter Mathieu van der Poel-skub
+-  Publikumsfavorit vil stoppe efter Mathieu van der Poel-skub
+-  Breaking News: Früherer EU-Kommissionspräsident Jacques Delors ist tot
+-  Le « New York Times » poursuit la maison mère de ChatGPT et Microsoft
+-  Ouch! Boyfriend's romantic proposal in front of cheering crowd goes badly wrong when his unimpressed girlfriend says 'This is why we came to Rome? No!'
+-  '13 Reasons Why' trans star Tommy Dorfman is threatened to be kicked out of LaGuardia by Delta employee as she rants about being 'misgendered'
+-  '13 Reasons Why' trans star Tommy Dorfman is threatened to be kicked out of LaGuardia by Delta employee as she rants about being 'misgendered'
+-  Jacque Delors, ancien ministre et président de la Commission européenne, est mort
+-  Russia warns Japan over providing Patriot air defence systems to Ukraine
+-  Turkey’s Erdogan says Israeli PM Netanyahu no different from Hitler
+-  Taxe foncière : la facture va encore s'alourdir en 2024
+-  Rusya: Filistin devletinin kurulmasını ABD engelledi!
+-  Son dakika... Asgari ücret açıklandı!
+-  Bakan Işıkhan açıkladı: Yeni asgari ücret belli oldu!
+-  Loire-Atlantique : dans ce parc animalier, les animaux recyclent vos sapins de Noël
+-  Kim Kardashian channeled ‘the original Elsa’ with her vintage Mugler Couture gown at Christmas party
+-  Analyse: En lille luns fra Erdogan får svenskerne til at dirre. Men NATO-spillet er slet ikke slut
+-  Analyse: En lille luns fra Erdogan får svenskerne til at dirre. Men NATO-spillet er slet ikke slut
+-  DGA obtiene certificación NORTIC A7:2016 por seguridad en tecnologías de la información
+-  Labour, dig in and fight for your green pledges | Letters
+-  Pictured: Girl, 10, killed in Boxing Day crash as family pay tribute to 'lovable' girl who wanted a 'dream home' when she grew up
+-  Zagrepčanin novčano kažnjen zbog rasističkog vrijeđanja Južnokorejca: ‘Fu*k you, Kinez!‘
+-  Pernar skočio na šipku i izazvao Tomaševića: ‘Senf, koliko ti možeš?’
+-  Les meilleures galettes des rois des Pyrénées-Orientales se dégustent à Perpignan
+-  بنهاية 9 أشهر .. سوق الأسهم يُنهى تعاملاته بتداولات 974 مليار ريال
+-  بصلاحية 30 يوما.. "أبشر" تتيح إصدار تقرير عن أحد العمالة لدى المواطن
+-  Apple Watch import ban paused by US appeals court
+-  Israel diz que não há ataques a partir de túneis desde início da guerra
+-  Mafalda Castro mostra a barriguinha: "Desde início foi gravidez de risco"
+-  Cuppy’s “Jollof on the Jet” Takes Off Again on TikTok!
+-  Подготовка к президентским выборам в Запорожской области идет полным ходом
