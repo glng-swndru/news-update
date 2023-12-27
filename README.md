@@ -1,11 +1,51 @@
 # Latest News
--  Fatih Terim, Yunanistan macerası öncesi ilk kez konuştu! ''Söyleyecek çok şeyimiz olacak ama...''
--  Újra Mészáros Lőrinc a leggazdagabb magyar, egy év alatt több mint 150 milliárd forinttal nőtt a vagyona
--  Öngyilkos lett az Oscar-díjas dél-koreai film főszereplője
--  Sakarya’da 31 kaçak yakalandı
--  Socialist Front recommends giving more power to provinces
--  זוהי אינה חגיגת סילבסטר
--  Who were 2023’s brides of the year?
--  «O que conheço de Riade é o Al Nassr por causa de Laporte e Ronaldo»
--  Küfür insanları neden rahatlatıyor? Araştırmadan çıkan sonuçlar şaşırttı
--  બોયફ્રેન્ડ સાથે લગ્નની અફવા પર શ્રુતિ હાસને પ્રતિક્રિયા આપી
+-  Golman Fulama napravio skandal - gurnuo skupljača lopti FOTO
+-  [ŽT] Kuo buvo sunaikintas „Novočerkaskas“
+-  Naujas atradimas: didžiausių senovės miestų gyventojai maitinosi daugiausia žirniais
+-  [ŽT] „JAV darys viską.“ Zacharova skelbia, kas bus kitais metais
+-  [ŽT] Iš Feodosijos pabėgo du rusų laivai. Kas nutiko
+-  MEMUR VE EMEKLİNİN GÖZÜ 3 OCAK’TA! Memur ve memur emeklisinin zamlı maaşı ne kadar olacak? SSK ve Bağ-Kur emeklisinin kök maaşına enflasyon ayarı! Kalem kalem hesapladık
+-  Odloženo suđenje Katniću, terete ga za prekršaj procesa protiv advokata Rodića, Gazivode i Radulović
+-  Újabb csapást mér Orbán propagandájára az Európai Unió
+-  Vesna Vučković povukla kandidaturu za predsjednicu Vrhovnog suda
+-  ارتفاع كبير في أسعار الحديد عالميًا.. ووصوله لأعلى مستوي منذ 18 شهرًا
+-  مقاضاة طبيب أجرى 32 عملية لمريضة في يوم واحد
+-  متى يكون "النمش" علامة خطر ؟ (تفاصيل)
+-  تحذير عاجل من أمطار غزيرة وأتربة وسيول على الرياض و10 مناطق
+-  Από σήμερα στην διάθεση του κόσμου τα εισιτήρια για το παιχνίδι με την ΑΕΛ
+-  الأشغال المؤبدة لقاتل زوجته وابنه بإحدى مزارع جرش
+-  مركز التعليم المستمر في جامعة البترا يستضيف الإعلامي خالد القضاة
+-  今、分譲マンションで進行する悲惨な事態…住民が高齢化→修繕できずスラム化
+-  Meghan Markle’s desire ‘to go back to acting’ will test business relationship with Prince Harry, top astrologer predicts
+-  HD현대중공업, 3년만에 한국형 차기구축함 기본설계 완료
+-  경남교육청-경남전문가네트워크협동조합 업무 협약 체결
+-  Czy warto zainwestować w oczyszczacz powietrza?
+-  Kanapeczka na obwodnicy Tomaszowa Lubelskiego. Będą dwa MOP
+-  'Here We Go' 로마노 인증! 맨시티, 제2의 알바레즈와 계약 작업 진행 중...예상 이적료 286억 초과
+-  K리그 유소년 지도자 30명, 스페인 현지 연수로 역량 강화
+-  ‘팬이 직접 만든다’ 프로축구연맹-하나은행, K리그 축덕카드 시즌2 디자인 공모전
+-  전북, 대전에서 검증된 골잡이 티아고 영입
+-  ‘누구보다 부산을 잘 안다’ U-18 개성고 감독에 최광희 선임
+-  손흥민의 싱가포르전 감아차기, 팬들이 뽑은 ‘2023년 골’ 선정
+-  London stocks rise on year-end rate cut optimism, miners aid
+-  Klare Kante gegen Pekings Propaganda: Was ist Deutschlands „Ein-China-Politik“?
+-  Otvorena izložba Kaleidoskop studenata Fakulteta likovnih umetnosti u knjižari Geca Kon
+-  Začali trestné stíhanie v súvislosti s nálezom tela v Bratislave
+-  Na východnom pobreží Austrálie našli policajti balíky s kokaínom
+-  Në pritje të vendimit të gjykatës? Berisha ulet në tokë pas fjalimit, kontrollon telefonin
+-  Los mejores espectáculos escénicos de 2023, según la crítica
+-  Fútbol cubano: dos caras en 2023
+-  Celebremos la vida
+-  Liberan a un hombre secuestrado en una casa de Calp por el que pedían un rescate de 100.000 euros
+-  Jahresrückblick: Rückblick 2023: Klimaaktivismus auf Jenas Straßen
+-  Alerte à la bombe : la mairie de Tarbes évacuée, la circulation interrompue dans le centre-ville
+-  I refused to swap seats with a pregnant woman on a plane - and everyone is on my side
+-  'The Queen's in a terrible state! There's a fellow called Jones in the billiard room who says he wants to marry Margaret. And Prince Philip's in the library trying to change the family name...' Ten more VERY memorable Royal Christmases down the years...
+-  アルファタウリ 2024年F1マシンは前後ともにレッドブルRB19のサスを搭載
+-  DASK'tan son dakika açıklaması! Ödenilen paralar geri alınacak!
+-  Domáca úloha šesťročného dieťaťa totálne poplietla dospelých: Dokážete ju vyriešiť?
+-  Od štvrtkového masakru v Prahe prešiel takmer týždeň: Státisíce sviečok pred miestom činu a nenávratné straty
+-  Z Maroša Kramára je DEDO: Syn Timur (21) má dcéru... Aha, na to NEZVYČAJNÉ meno!
+-  Smutná správa: Zomrel bývalý nemecký minister financií
+-  Divadelné predstavenie o Vianociach priblíži život Jána Zamoyského
+-  Popis se završava sjutra, građani koji se nijesu popisali da kontaktiraju Monstat
