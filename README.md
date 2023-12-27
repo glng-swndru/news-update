@@ -1,51 +1,51 @@
 # Latest News
--  ANA CANOSA
--  Đào bới ở công trường bỏ hoang, người đàn ông khuân về vật thể lạ, luôn miệng bảo “thần mộc”: Chuyên gia lập tức vào cuộc
--  China's Sichuan promotes bamboo as eco-friendly substitute for plastics
--  China, Nicaragua stick to right direction of development of bilateral relations
--  China pilots carbon-peaking projects to explore new path to carbon reduction
--  Bất đồng về hạn ngạch sản xuất, một quốc gia thành viên tuyên bố rời OPEC
--  Mumbai Shocker: मुंबई के होटल में फिल्म में भूमिका का लालच देकर नाबालिग लड़की से छेड़छाड़ के आरोप में गुजराती अभिनेता गिरफ्तार
--  배우 이선균, 종로 와룡공원서 숨진 채 발견…“신원 확인”
--  인천서 차량 2대에 잇달아 치인 60대女 사망…운전자 2명 입건
--  한동훈 “검사 싫어하는 野, 왜 검사 사칭한 분 절대존엄으로 모시나”
--  90 peratus kawasan di Rantau Panjang terjejas banjir
--  Đà Nẵng đẩy mạnh phát triển nguồn nhân lực phục vụ ngành công nghiệp vi mạch, bán dẫn
--  UOL NEWS
--  Điều kiện để doanh nghiệp được cung ứng lao động xây dựng sang Đài Loan
--  Drone shots show Palestinians buried in Rafah mass grave
--  Delhi Deliberations: Himachal Congress Leaders Convene to Chart Path for 2024 Parliamentary Polls
--  Φοροδιαφυγή: Το χρονοδιάγραμμα της εφαρμογής των νέων μέτρων για το 2024
--  20 phút sau khi tan học, cảnh tượng lạ tại giảng đường ĐH Thanh Hoa được ghi lại: Đây là khác biệt giữa "học bá" và người thường
--  Gyökeres: «Amarelos e faltas? Já estou habituado»
--  มวลน้ำจาก "รือเสาะ" ไหลบ่าเข้า "สายบุรี" กลางดึก บ้านเรือน-ย่านการค้าจม
--  부산도시철도, 13대 휴메트로 기자단 모집…시민 소통활동 등 수행
--  이선균, 차 안서 숨진 채 발견…경찰 "신원 확인"
--  黃心穎一家走出喪父傷痛！為母親慶祝生日 黃心美承諾加倍愛媽媽
--  Rotten Tomatoes crowns the best 10 TV shows of 2023...but how many have YOU watched?
--  Rotten Tomatoes crowns the best 10 TV shows of 2023...but how many have YOU watched?
--  창원시 '원이대로 S-BRT 공사' 시민 불편 해소
--  Jenama MXKIDS semakin mengukuh
--  2023錶壇回顧│錶界年度大事 勞力士成焦點
--  Marvel une a Spider-Man 2099 con un simbionte en una épica versión del héroe
--  Bitcoin Whales Move 12K BTC Amid Chance Of Early Nod To Spot ETF
--  Happy Boxing Week—These End of the Year Sales Are Better Than Black Friday
--  ড্রিবলিংয়ে যেখানে এমবাপ্পেকেও ছাপিয়ে গেছেন ‘নতুন ম্যারাডোনা’
--  1월 중소기업 경기전망지수 77.5...전월대비 1.3p↓
--  작년 소상공인 6만 1000명 감소…매출보다 빚이 더 늘었다
--  Fewer schools are offer tutoring support in Bradford
--  Rise in unresolved crown court cases in West Yorkshire
--  Ankara'da yaşayanlar bu pazara akın edecek! Başkent'in en ucuz pazarı o ilçeye kuruldu: Gitmeyen pişman olacak
--  ‘Just go to Dollar Tree or something and get them’: Are Olive Garden mints just Andes repackaged? Viral video leaves viewers divided
--  Fewer drug deaths in Bradford last year, figures show
--  Holes dug in car park 'show 72 flat development has begun'
--  Bradford nature reserve would be 'first for West Yorkshire'
--  Bradford bank building sells at auction for £315,000
--  USU-gallup: Lähes puolet suomalaisista on jo valinnut presidenttiehdokkaansa
--  Two housing schemes to be completed a year behind schedule
--  귀뚜라미그룹, '2023년 귀뚜라미 장학 사업' 마무리
--  Moni rovaniemeläisravintola on pidentänyt aukioloaikojaan ja hieman yllättäen laittanut pöytävaraukset tauolle
--  10월 출생아 1만8904명 역대최저…4분기 출산율 0.6명대 추락 예고
--  Chiếc logo này là gì mà lại biến mỗi ngày của bạn nhẹ nhàng hơn
--  Ducati Bakal Pertama Kali Ikut Kejuaraan Motocross Dunia
--  경찰대 치안정책연구소, '치안전망 2024' 발간
+-  Tesla emerges as major player in Korea amid strong demand for German cars
+-  Türkiyədə gecənin yarısı, ayın bütünü...
+-  Chennai: Ammonia gas leak near Ennore, several hospitilised after suffering from breathlessness
+-  จับบ่อทิ้งขยะเถื่อนใกล้แหล่งท่องเที่ยว น้ำเน่าส่งกลิ่น พื้นที่เกือบ 18 ไร่
+-  Muere bebé en atropellamiento vial
+-  Llevan jugadores de Notre Dame alegría a niños enfermos
+-  Caen colombianos por robar miles de pesos y dólares
+-  Aussie investor takes A$25m Gentrack stake
+-  Two Cannasouth directors resign
+-  MMBL Money Transfer expands its network by opening its 3000th outlet to offer Western Union branded money transfer remittances
+-  7 Tricks: So setzen wir gute Vorsätze wirklich um
+-  So sieht ein gutes Katerfrühstück aus
+-  Life | Protecting kids online: A guide for parents on conversations about ‘sextortion’
+-  檢, ‘돈 봉투 의혹’ 송영길 구속기간 10일 연장…내달 6일까지
+-  দৌলতদিয়া-পাটুরিয়া নৌরুটে ফেরি চলাচল স্বাভাবিক
+-  김홍일 후보자 "포털 사회적 책임, 기업 활동 자유 조화 필요"
+-  Захарова заявила, что США весь 2024 год будут поддерживать конфликт на Украине
+-  Brasil anuncia contratação do lateral-direito Gabriel Biteco
+-  Τράπεζες: Τι συμβαίνει με τις νέες ηλεκτρονικές απάτες – Γιατί «κάποιες ειδοποιήσεις είναι καλύτερο να τις αγνοείς»
+-  Opferhilfe: „Ahrensmord“-Autoren übergeben Spende an Weißen Ring
+-  Η οικονομία, ο Παναθηναϊκός, η τουρκική «εισβολή» και τα ερωτηματικά για …τα μαγικά του χρυσού που επιστρέφει
+-  পাটুরিয়া-দৌলতদিয়া ও আরিচা-কাজিরহাট নৌরুটে ফেরি চলাচল শুরু
+-  N’Assembly to pass 2024 budget Saturday, rationalises delayed severance to legislative aides
+-  Trapped Russian Jail: ਰੂਸ ਦੀ ਜੇਲ੍ਹ 'ਚ ਫਸੇ 6 ਨੌਜਵਾਨ ਭਾਰਤ ਵਾਪਸ ਪਰਤੇ, ਜੰਗਲਾਂ 'ਚ ਪੱਤੇ ਖਾ ਕੇ ਕਰਦੇ ਰਹੇ ਗੁਜ਼ਾਰਾ, ਸੁਣਾਈ ਹੱਡ ਬੀਤੀ
+-  Salman Khan, niece Ayat’s birthday: Bobby Deol, Lulia Vantur, others join late-night celebrations
+-  Australia weather: Nine-year-old girl killed in storm is identified after she was swept into a drain - as wild weather kills eight, with one still missing
+-  Haryana: झज्जर के वीरेंद्र आर्य अखाड़े में राहुल गांधी ने पहलवानों से की मुलाकात
+-  Japonya'nın uzay aracı, Ay yörüngesinde
+-  Some passengers didn't want to return, they paid for Nicaragua: 'Donkey' flight lawyer
+-  Pro Research: Wall Street se sumerge en el sólido crecimiento de ONON
+-  La OPI de Mufti Jeans, suscrita más de 50 veces, comienza a negociarse
+-  Pro Research: Wall Street observa las perspectivas de Palo Alto Networks
+-  Israel Embassy Blast: सीसीटीवी में नजर आए दो संदिग्ध, दिल्ली में इस्राइल एंबेसी के पास धमाके की मिली थी सूचना
+-  В Хабаровском крае суду пришлось рассматривать случай заражения опасной инфекцией
+-  Pengacara Akui Apartemen di Darmawangsa Belum Masuk LHKPN Firli
+-  Φωτεινή Δάρρα: Η ανάρτηση μέσα από το νοσοκομείο – Δυο πράγματα έχουν αξία, η υγεία και η αγάπη
+-  عواصف ثلجية تضرب الولايات المتحدة وتتسبب في إلغاء عشرات الرحلات الجوية
+-  ‘Zootopia: Hot Pursuit’ Ride Accident At Disneyland In Shanghai After Child Reportedly Got Pinned Under Attraction
+-  Jeremy’s WWE NXT Review 12.26.23
+-  ‘I lost my mind’: Dog owner recounts dramatic rescue from Werribee rapids
+-  ‘I lost my mind’: Dog owner recounts dramatic rescue from Werribee rapids
+-  Pints of wine will soon hit Britain's shelves in Churchill-inspired post-Brexit win
+-  Αγορά ακινήτων: Γιατί Αμερικανοί και Βρετανοί επιλέγουν τις πολυτελείς κατοικίες της Ελλάδας
+-  Blast near Israel embassy: Delhi Police identifies two suspects in CCTV footage; latest updates
+-  Anti-drug operation Yukthiya resumes after holidays
+-  Felda requests Terengganu Drainage and Irrigation Dept to identify cause of flash floods in Kerteh settlement
+-  पाकिस्तान में वाह जम्हूरियत! चुनाव लड़ रहे आतंकी, जोरों पर है हाफिज सईद की पार्टी का कैंपेन
+-  Credo Brands IPO listing date today. GMP, experts signal positive debut of shares
+-  Группировка «Запад» отразила несколько контратак ВСУ на Купянском участке
+-  Innova Captab IPO allotment expected soon. Latest GMP, steps to check allotment status on BSE, registrar's website
