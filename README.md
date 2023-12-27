@@ -1,11 +1,51 @@
 # Latest News
--  Aaj Ka Dhanu Tarot Card: धनु राशि वालों के जीवनस्तर में आएगा सुधार, अपनों के साथ बिताएंगे वक्त
--  Milan Sassuolo: quando si alleneranno i rossoneri all’antivigilia della sfida
--  Varanasi News: लूट के मामले का पुलिस ने किया खुलासा, दो गिरफ्तार
--  Lalitpur News: अधिशासी अभियंता सहित कर्मचारी मिले अनुपस्थित
--  Lalitpur News: जिलाधिकारी कार्यालय में बनेगा मातृत्व कक्ष
--  Lalitpur News: बेरोजगारों को ठगने वाला गिरफ्तार
--  Lalitpur News: शोभायात्रा के साथ पंचकल्याणक महोत्सव शुरू
--  Lalitpur News: दो आंगनबाड़ी कार्यकर्ता का मानदेय रोका, एक की सेवा समाप्त होगी
--  Lalitpur News: यूपी बोर्ड की परीक्षाओं की तैयारी शुरू
--  Lalitpur News: नहर में उतराता मिला युवक का शव
+-  Cae capo que enviaba al mes hasta 15 toneladas de coca a EE.UU. y Europa
+-  ضبط 33 مطلوبا وكميات كبيرة من المخدرات بحملة الرويشد - صور
+-  Opoziční aktivisti v Srbsku chcú v piatok na 24 hodín zablokovať Belehrad
+-  Poľsko hlási záhadné výpadky signálu GPS: Médiá špekulujú o vojenských cvičeniach
+-  KU-formand: Hvis en mexicansk sombrero er et problem, så burde hagekors i forelæsningsalen virkelig også være det for Københavns Universitet
+-  KU-formand: Hvis en mexicansk sombrero er et problem, så burde hagekors i forelæsningsalen virkelig også være det for Københavns Universitet
+-  Po 200 hiljada za sinagogu i muzej islamske kulture i umjetnosti
+-  «الأندية الـ 24» لإلغاء إشهار الأندية الورقية أو غير المنجزة
+-  «الجنرال».. بخير
+-  «الشياطين» تنتفض بثلاثية.. وأرسنال لاستعادة الصدارة
+-  «طائرة» الكويت يواجه العربي اليوم
+-  التضامن «كامل العدد» أمام اليرموك
+-  الديحاني: الأزرق يلعب مع ليبيا وأوغندا بمعسكر القاهرة
+-  العربي يستعد لخيطان.. والإدارة تجتمع مع اللاعبين
+-  «حماس» تنفي تصريحات إيران: «طوفان الأقصى» رد على عدوان الاحتلال ضد شعبنا ومقدساتنا
+-  دهيليس بديلاً لشالو في كاظمة
+-  «ميشيغان» ترفض إقصاء ترامب من الانتخابات الرئاسية: المسائل السياسية لا تناقشها المحاكم
+-  شومرز: الحظ تخلى عن «السلة» أمام تونس
+-  الأمير محمد بن سلمان: نهجنا قائم على تعزيز أمن المنطقة والعالم
+-  نهائي «النخبة العربية للتنس» اليوم
+-  سيئول تفرض عقوبات على رئيس استخبارات كوريا الشمالية
+-  الرياضة الكويتية في 2023 «نجاحات وآمال.. وآلام»
+-  مخيمات اللاجئين في «عين» القصف الإسرائيلي بعد مستشفيات غزة
+-  الدعيج لـ «الأنباء»: تسهيل إجراءات استخراج تصاريح دفن المواطن والمقيم السعودي
+-  إجراء قرعة احتياط الدفعة الثامنة من N4 في «جنوب سعد العبدالله» اليوم
+-  నగరంలో డ్రెయినేజీలు అధ్వానం
+-  Norske foreldre er fornøyd med barnas opplæring
+-  Полузащитник «Оренбурга» Оганесян: «Во второй части сезона хотим исправить турнирное положение»
+-  Notfall-Berufung: Gericht setzt US-Importverbot für Apple Watch vorläufig aus
+-  Notfall-Berufung: Gericht setzt US-Importverbot für Apple Watch vorläufig aus
+-  రైతు‘బేజారు’
+-  Llevan ayuda a familia que perdió todo en plena Navidad al quemarse su casa en Ahome
+-  Jacques Delors ist tot – einer der Väter des Euro
+-  ¡Faltó dinero! En diciembre cayó la venta de cabras, borregos y puercos en Sinaloa: Ganaderos
+-  Mladi zanemareni u evroligaškoj trci za što boljim rezultatima: Može li Nikola Topić da popravi sliku zapaženom ulogom u Crvenoj zvezdi?
+-  Softbank får aktier värda 75 miljarder i T-Mobile
+-  Delors: Santos Silva lembra "um dos grandes construtores da Europa"
+-  సీటు సంకటం..!
+-  Quiebre JxC en el Congreso: nace un nuevo bloque con Miguel Pichetto a la cabeza
+-  İşte yeni asgari ücretin işverene maliyeti
+-  నూతన టెక్నాలజీతో కేసులను పరిష్కరించాలి
+-  3 Anggota Kelompok Tani Kampung Bayam Diperiksa Polisi Buntut Kasus Pembobolan Kampung Susun
+-  Custom Steam Deck APU from AMD exposed in detailed die analysis
+-  Burkina Faso'da eski bakan kaçırıldı
+-  Juventus'tan Glesion Bremer'e yeni sözleşme
+-  Yeni asgari ücretin işverene maliyeti belli oldu
+-  Turcja podwyższy wynagrodzenie minimalne o 49 proc.
+-  Алкарас обърна Джокович за кеф на богаташите в Дирия
+-  La meilleure classe du TYR dans Warzone : accessoires, atouts, équipements
+-  Vacuna contra VPH: a partir del 2024 Salud también vacunará a varones contra el Virus del Papiloma Humano en Guatemala
