@@ -1,11 +1,51 @@
 # Latest News
--  Fenerbahçeli ve Galatasaraylı oyuncular dünyanın en iyi 10 oyuncusu arasına girdi
--  Rusya Başbakan Yardımcısı Aleksandr Novak'tan Türkiye açıklaması: Doğal gaz merkezi kurulması projesi 2024'te hayata geçirilecek
--  Datça'da açıklarında uçan balık görüldü
--  TBMM Başkanı Kurtulmuş: Bölgede oynanan oyunu fevkalade iyi biliyoruz
--  Mauro Icardi Süper Kupa maçı öncesinde gözünün son durumunu gösterdi
--  Dünyaca sadece 700 tane vardı: Antalya'da korkunç şekilde bulundu
--  TÜRK-İŞ'i ziyaret eden Bakan Işıkhan'dan flaş 'asgari ücret' açıklaması
--  Çankırı'da 4,5 büyüklüğünde korkutan deprem
--  Ülker Grubuna 'Starbucks' operasyonu: Murat Ülker'den iddialara sert tepki
--  Katil İsrail'in Gazze'ye düzenlediği saldırılarda can kaybı 21 bin 110'a çıktı
+-  Agricultor que morreu em acidente entre carro e moto é sepultado no Nortão
+-  Barranquilla: familia de pastora hallada muerta dice que se trata de un homicidio
+-  7 Rekomendasi Coffee Shop Lokal yang Populer dan Rasanya Enak
+-  معارض روسي: معارضة سياسات الكرملين أمر مهم للإعداد لما بعد بوتين
+-  Congress Party Formation: Facts about party`s historic rise
+-  Dhirubhai Ambani Birth Anniversary: Some facts about his early life
+-  Die hochaktuellen Erkenntnisse des verstorbenen Ökonomen Robert Solow
+-  Лукашенко рассказал поучительную историю с саммита в Санкт-Петербурге
+-  ΚΑΤΑΚΡΑΥΓΗ Αλαφούζου
+-  Laž godine – Mi smo izgradili 147 bolnica, domova zdravlja, zdravstvenih objekata, a oni nula
+-  Je to turnaj aj o Fenešovi. Fínsky tréner Aittola ho kritizoval, kanadský expert Button chválil
+-  Kova huhu Arsenalin aikeista - särähtää Jürgen Kloppin korvaan
+-  Max Verstappen halusi Mercedeksen rattiin - ei päästetty
+-  El S&P Merval sostiene baja y crece la expectativa en el mercado por el DNU de Javier Milei
+-  Bill Granger, Beloved Australian Celebrity Chef, Dies At 54
+-  Ruotsin avausottelussa ulosajettu Elias Salomonsson yhden ottelun pelikieltoon
+-  UGT ratifica el acuerdo con Telefónica para el ERE, con 3.421 salidas, y el nuevo convenio
+-  Sepes cierra diciembre con la adjudicación de más de 65.000 m2 para actividad económica
+-  Tesla prepara la planta de Shanghái para la producción del Model Y actualizado
+-  Tata Motors ampliará su gama de vehículos eléctricos con los modelos Punch, Harrier y Curvv
+-  Compras postnavideñas en Reino Unido dan algo de ánimo a los minoristas
+-  ¿Dónde invertir en 2024? Así construye sus carteras GVC Gaesco
+-  Gobierno vincula el impuesto a grandes fortunas a la reforma de financiación autonomómica
+-  El New York Times demanda a OpenAI y Microsoft por infringir derechos de autor
+-  Paytm registra 912 millones de euros en pagos a comerciantes en el segundo trimestre del año fiscal 24
+-  Brasil crece más, ataja la inflación, pero dispara su déficit en el primer año de Lula
+-  La OPV de Shri Balaji Valve Components supera las 2,62 veces su volumen de suscripción
+-  Dólar CCL perfora los $900 y el MEP toca mínimos en tres semanas
+-  Tajikistan’s imports from Belgium soar
+-  DETAILY smrti herca (†48) z Oscarového filmu Parazit: Polícia ho vypočúvala dlhých 19 hodín!
+-  AKTUÁLNE FOTO VÁŽNA NEHODA Auto ZRAZILO mamičku s BÁBÄTKOM! Ratujú ich viaceré SANITKY, doprava je OBMEDZENÁ
+-  New York Times sues OpenAI and Microsoft for copyright infringement claiming 'millions of articles' were used to train chatbots: Lawsuit says companies should be held responsible for 'billions of dollars in damages'
+-  Ampel bei Rüstungsexporten auf Rekord-Niveau – Stegner fordert Stopp: „Keine Waffen in Diktaturen“
+-  Ampel bei Rüstungsexporten auf Rekord-Niveau – Stegner fordert Stopp: „Keine Waffen in Diktaturen“
+-  Hoy se cumplen 81 años del primer encuentro de los Eternos Rivales del béisbol venezolano
+-  Marcelo envia condolências ao homólogo alemão pela morte de Schäuble
+-  Storm Gerrit brings UK to a grinding halt: Brits going home after Christmas are left stranded at rail stations and airports after 70mph gales and rain spark train and plane cancellations - while heavy blizzards BURY cars in Scotland
+-  Storm Gerrit brings UK to a grinding halt: Brits going home after Christmas are left stranded at rail stations and airports after 70mph gales and rain spark train and plane cancellations - while heavy blizzards BURY cars in Scotland
+-  ראש העיר דחה את הפנייה, מ.ס. אשדוד תארח את הפועל באר שבע ללא קהל
+-  מחמישה דולר ל-489 אלף דולר: ההימור המשוגע של השנה פגע - ובגדול
+-  Cinema opens its doors for free Christmas Day feast
+-  “Nunca digas nunca”: Zack Snyder quiere mezclar dos de sus pasiones y hacer una película live action de ‘Fortnite’
+-  WWE News: Alexa Bliss Shares Christmas Photo Of Her Family, A Holiday Photo With Johnny Gargano & Candice LeRae, NXT Highlights
+-  Lusos e espanhóis perplexos com final four da Champions na Arménia
+-  Şehitlere ve Cumhurbaşkanı'na hakaret eden zanlı tutuklandı
+-  Jasikevicius: Anadolu Efes ile büyük bir rekabetimiz var
+-  Bakanlar Göktaş ve Şimşek'ten, Milli Savunma Bakanı Güler'e taziye ziyareti
+-  Col Sassuolo difesa sempre più contata. Theo o Simic: chi al fianco di Kjaer?
+-  KKTC Cumhurbaşkanı Tatar: Biz etle tırnak gibiyiz
+-  Mother reveals how her family including two-year-old son cheated death on Christmas Day after 'speeding car' slammed into their home causing it to collapse
