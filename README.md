@@ -1,51 +1,51 @@
 # Latest News
--  Cae capo que enviaba al mes hasta 15 toneladas de coca a EE.UU. y Europa
--  ضبط 33 مطلوبا وكميات كبيرة من المخدرات بحملة الرويشد - صور
--  Opoziční aktivisti v Srbsku chcú v piatok na 24 hodín zablokovať Belehrad
--  Poľsko hlási záhadné výpadky signálu GPS: Médiá špekulujú o vojenských cvičeniach
--  KU-formand: Hvis en mexicansk sombrero er et problem, så burde hagekors i forelæsningsalen virkelig også være det for Københavns Universitet
--  KU-formand: Hvis en mexicansk sombrero er et problem, så burde hagekors i forelæsningsalen virkelig også være det for Københavns Universitet
--  Po 200 hiljada za sinagogu i muzej islamske kulture i umjetnosti
--  «الأندية الـ 24» لإلغاء إشهار الأندية الورقية أو غير المنجزة
--  «الجنرال».. بخير
--  «الشياطين» تنتفض بثلاثية.. وأرسنال لاستعادة الصدارة
--  «طائرة» الكويت يواجه العربي اليوم
--  التضامن «كامل العدد» أمام اليرموك
--  الديحاني: الأزرق يلعب مع ليبيا وأوغندا بمعسكر القاهرة
--  العربي يستعد لخيطان.. والإدارة تجتمع مع اللاعبين
--  «حماس» تنفي تصريحات إيران: «طوفان الأقصى» رد على عدوان الاحتلال ضد شعبنا ومقدساتنا
--  دهيليس بديلاً لشالو في كاظمة
--  «ميشيغان» ترفض إقصاء ترامب من الانتخابات الرئاسية: المسائل السياسية لا تناقشها المحاكم
--  شومرز: الحظ تخلى عن «السلة» أمام تونس
--  الأمير محمد بن سلمان: نهجنا قائم على تعزيز أمن المنطقة والعالم
--  نهائي «النخبة العربية للتنس» اليوم
--  سيئول تفرض عقوبات على رئيس استخبارات كوريا الشمالية
--  الرياضة الكويتية في 2023 «نجاحات وآمال.. وآلام»
--  مخيمات اللاجئين في «عين» القصف الإسرائيلي بعد مستشفيات غزة
--  الدعيج لـ «الأنباء»: تسهيل إجراءات استخراج تصاريح دفن المواطن والمقيم السعودي
--  إجراء قرعة احتياط الدفعة الثامنة من N4 في «جنوب سعد العبدالله» اليوم
--  నగరంలో డ్రెయినేజీలు అధ్వానం
--  Norske foreldre er fornøyd med barnas opplæring
--  Полузащитник «Оренбурга» Оганесян: «Во второй части сезона хотим исправить турнирное положение»
--  Notfall-Berufung: Gericht setzt US-Importverbot für Apple Watch vorläufig aus
--  Notfall-Berufung: Gericht setzt US-Importverbot für Apple Watch vorläufig aus
--  రైతు‘బేజారు’
--  Llevan ayuda a familia que perdió todo en plena Navidad al quemarse su casa en Ahome
--  Jacques Delors ist tot – einer der Väter des Euro
--  ¡Faltó dinero! En diciembre cayó la venta de cabras, borregos y puercos en Sinaloa: Ganaderos
--  Mladi zanemareni u evroligaškoj trci za što boljim rezultatima: Može li Nikola Topić da popravi sliku zapaženom ulogom u Crvenoj zvezdi?
--  Softbank får aktier värda 75 miljarder i T-Mobile
--  Delors: Santos Silva lembra "um dos grandes construtores da Europa"
--  సీటు సంకటం..!
--  Quiebre JxC en el Congreso: nace un nuevo bloque con Miguel Pichetto a la cabeza
--  İşte yeni asgari ücretin işverene maliyeti
--  నూతన టెక్నాలజీతో కేసులను పరిష్కరించాలి
--  3 Anggota Kelompok Tani Kampung Bayam Diperiksa Polisi Buntut Kasus Pembobolan Kampung Susun
--  Custom Steam Deck APU from AMD exposed in detailed die analysis
--  Burkina Faso'da eski bakan kaçırıldı
--  Juventus'tan Glesion Bremer'e yeni sözleşme
--  Yeni asgari ücretin işverene maliyeti belli oldu
--  Turcja podwyższy wynagrodzenie minimalne o 49 proc.
--  Алкарас обърна Джокович за кеф на богаташите в Дирия
--  La meilleure classe du TYR dans Warzone : accessoires, atouts, équipements
--  Vacuna contra VPH: a partir del 2024 Salud también vacunará a varones contra el Virus del Papiloma Humano en Guatemala
+-  3 חודשים אחרי הטבח, תושבי כפר עזה מספרים: "הפכנו לפליטים, שכולים ופגועים"
+-  תכירו את טסלה מודל Y ג'וניפר: הגרסה המחודשת
+-  Gazze'de ateşkes için çabalar artıyor
+-  Boletos para palenque Santa Rita salen a la venta el viernes
+-  Exportan calzado mexicano a mejor precio por especialización
+-  5 signs you grew up with an emotionally absent parent — even if they supported you in other ways
+-  Sicario bajó a un herido de una ambulancia y le dio 40 balazos
+-  هاليفي يتحدث عن خطط جديدة لمواجهة حزب الله.. وغانتس يهدد: وقت الدبلوماسية ينفذ
+-  John Oates Says He Has “Moved On” Amid Legal Battle With Bandmate Daryl Hall
+-  Sexto Juzgado ordena nuevo embargo para Nadine Heredia
+-  Royal Caribbean's Ovation of the Seas cruise passenger smuggles pet cat named Ovie on cruise from Hawaii to Sydney: Crew spent weeks fighting for its life after biosecurity agents on stop in New Zealand threatened to euthanize it
+-  Dnevnik Nove TV provjerio na koje destinacije vole putovati Hrvati
+-  Walmart says shoppers are 'value hacking' to stretch their dollars
+-  La Bourse de Tunis consolide sa reprise
+-  Packers star Jaire Alexander is SUSPENDED for crashing the coin toss before Panthers game when he wasn't supposed to be on the field
+-  الرباط.. الحكم على مجموعة من الاشخاص متورطين في تكوين عصابة لتنفيذ أعمال إرهابية
+-  Ukraine succeeds in keeping out a superior Russian navy in the Black Sea
+-  Cámara de Industriales en Lara cerró el año con casi 40 % de ocupación instalada
+-  Valentino Rossi olyan időket futott a a privát teszten, mint Michael Schumacher
+-  ITV Nolly star Helena Bonham Carter's wild romances - Emma Thompson affair and age-gap lover
+-  ‘Napoleon’ Tops $200M At Global Box Office
+-  Zenicablog saznaje: Glavni imam MIZ Zenica od 1. januara Sumedin ef Kobilica
+-  Mauricio Pochettino set to axe up to five Chelsea stars in January transfer window with captain Conor Gallagher at risk
+-  Gobierno de Milei impulsa una ley para declarar amplia emergencia hasta finales de 2025
+-  هاتف HUAWEI P60 Pro: الهدية المثالية التي ستلقى إعجاب المصوّرين في حياتك
+-  Advokat efter omfattende svindel mod bankkunder: Gør krav mod banken
+-  Advokat efter omfattende svindel mod bankkunder: Gør krav mod banken
+-  So bewegen sich Gold & Co. heute
+-  “Bëhuni gati për turbulenca” – Pse 2024 është viti i zgjedhjeve të rrezikuara nga Inteligjenca Artificiale
+-  Thousands with sickle cell disease denied benefits
+-  Porto Torres, la nave merci non parte per 10 giorni: «Sardi privati di materiali essenziali per salute e industrie»
+-  Brexit: ‘Pints’ of wine to be sold in Britain
+-  Regreso de Nadal a las canchas son “buenas noticias para el mundo del tenis”, según Djokovic
+-  Gustavo Petro se pronunció sobre las masacres en Colombia: «La cifra del 2023 muestra que se detuvo el crecimiento, pero no me gusta para nada»
+-  Túnez y Arabia Saudí firman memorandos en medio ambiente, investigación agrícola y agua
+-  Retornos bonos Tesoro EEUU a 10 años tocan menor nivel desde mediados de julio
+-  Al menos 40 personas más mueren por inundaciones y deslaves en República Democrática del Congo
+-  Incidentes y varios detenidos tras la concentración de la CGT en Buenos Aires
+-  BNP Paribas, investigado por presunto blanqueo de capitales
+-  Las acciones de FedEx caen tras unos resultados financieros del segundo trimestre que no cumplen los objetivos
+-  JPMorgan Chase supera a Bank of America y Citibank en valor de mercado
+-  Lizzo ‘Cant Stop Crying’ After Pet Dog Pooka Dies on Christmas Eve
+-  Akeredolu’s death significant loss to Nigeria – Orji Kalu
+-  Vacuna COVID de Pfizer llega a Walmart: ¿Cuánto costará la dosis en sus farmacias?
+-  Dans le pays de Lorient, ils vendent leurs cadeaux de Noël
+-  Toddler shows “no remorse” after opening every Christmas gift in the middle of the night
+-  STJUARDESA PROGANjALA PILOTA? Nesvakidašnji slučaj u Beogradu, evo šta je osumnjičena rekla tokom saslušanja i za šta se tereti
+-  Zemljotres od 3,8 stepeni po Richteru pogodio Hrvatsku: 'Odmah smo skočili, tresla su se stakla'
+-  İstanbul genelinde kaçak göçmen denetimi: Çok sayıda kişi yakalandı
+-  Jul i det gamle højsikkerhedsfængsel: Dobbeltmorder gik sin vej efter familiebesøg
