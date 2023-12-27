@@ -1,11 +1,11 @@
 # Latest News
--  עם חזק רוצה לנצח, אבל בממשלה ובצה"ל עסוקים בתירוצים
--  كيف يؤثر النوم على مستوى السكر بالدم؟
--  Google Play Store Removes 111 Fraudulent Micro Loan Apps on PTA’s Request
--  El Gobierno aprueba hoy la prórroga parcial del escudo social
--  Bihar Crime: नक्सलियों के कब्जे में है पुल निर्माण का मुंशी शाहनवाज खान, नक्सली विवेक की खोजबीन में पुलिस
--  認証不正問題発覚のダイハツ車、「利用したくない」7割 Ｓ編アンケート 安全性への不安訴える
--  Studentska grupa “Borba”: Planiramo radikalizaciju protesta
--  Samsung Users Report Issues: Android 14 Update Affects Wireless Android Auto
--  Himachal News: लोगों के 3 करोड़ डकार कंपनी फरार, निवेशकों ने पुलिस में दर्ज करवाई शिकायत
--  Vodiči v nepriaznivom počasí poriadne riskujú: S hmlovkami, alebo len s denným svietením! Odborník upozorňuje na riziká
+-  Terör propagandası yapan 3 kişi tutuklandı
+-  Borsa güne düşüşle başladı!
+-  Süper Lig'de 18. hafta itibarıyla hakem panoraması
+-  Genç kadının yüzüne kezzap atıp kaçtı!
+-  Cumhurbaşkanı Erdoğan ve şehit yakınlarına hakaret eden kişi tutuklandı
+-  Ergin Ataman'dan Fatih Terim sözleri
+-  Bakan Bolat: Fahiş fiyat artışını önlemede kararlıyız
+-  Erden Timur'dan Angelino için son değerlendirme
+-  Derbi heyecanı potada devam edecek!
+-  Belarus'a Rus nükleer silah sevkiyat süreci tamamlandı
