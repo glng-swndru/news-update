@@ -1,51 +1,51 @@
 # Latest News
+-  [ŽT] Skelbiami naujausi sunaikinto „Novočerkasko“ vaizdai (Foto)
+-  Chris Rock and Amber Rose step out in NYC together after Christmas
+-  $1M in severance paid to ex-Tory staff
+-  이준석, 쌍특검 표결 앞두고 與 비판…"특검 대상이 성역이기 때문인가"
+-  By: Jaylin Carpenter
+-  The migrant crisis isn’t just socking New York’s budget but its economy, too
+-  국제사이버대 사회복지학과, 수원시휴먼서비스센터에 기부금 전달
+-  [오늘의 별자리 운세] 2023년 12월 28일 목요일
+-  [오늘의 운세] 2023년 12월 28일 목요일(음력 11월 16일/일진:경신(庚申)/띠별·생년월일 운세)
+-  Balean a transportista en intento de asalto sobre la México-Puebla
+-  ¡UNEN FUERZAS! Fans del Real Madrid EXIGEN al club el FICHAJE de Santiago Giménez
+-  Minnesota's PWHL team names Ken Klee as new coach, replacing Charlie Burggraf
+-  "REŠIĆEMO PRETNJE AKO BUDE BILO POTREBNO" Bajden: Vazdušni udari SAD u Iraku za odvraćanje napada proiranskih militanata
+-  세계 2위 해운사 머스크, 이르면 수일 내 홍해 운항 재개
+-  롯데카드, 친환경차 충전 최대 40% 적립 '어디로든 그린카드' 출시
+-  서울시, 임대주택 재정비 국비 114억 확보… 노후단지 정비 본격 착수
+-  In a rough year for podcasts, these 10 were the most earbud-worthy
+-  ﻿신한카드, 카자흐스탄 車 딜러사와 파트너십 계약
+-  NH농협생명, 지역사회공헌인정제 2년 연속 인증
+-  Teollisuusliitto kertoo seuraavasta lakkokierroksesta
+-  메타마피아, 스튜디오 X와 손잡고 웹 드라마 제작
+-  Man City inspired by world champion badge to rally for 3-1 win at Everton. Rare home win for Chelsea
+-  삼표그룹, 성북구 취약계층 아동 위한 선물 전달
+-  Republicans Probing if Biden Tried to Obstruct Son's Cooperation With Impeachment Inquiry
+-  에이스침대, '에이스스퀘어 이천점' 오픈
+-  맥주 4캔 공식 바꾼다…GS25, 새해부터 3캔 묶음 행사로
+-  그라나도 에스파다, 따뜻한 겨울 코스튬 출시
+-  Qué hacer el fin de semana: Actividades del 28 de diciembre al 2 de enero
+-  Mom-of-four vanishes into icy river to rescue dog on wedding anniversary
+-  Former Oakland fire chief resigns from top San Rafael job
+-  Canciller mexicana dice se acordaron nuevas reuniones con EEUU en enero tras encuentro con Blinken
+-  La Bolsa Mexicana cae un 0,33 % luego de alcanzar máximo histórico en jornada previa
+-  ‘Hell in a cell’: Violence inside WA’s Unit 18 youth prison revealed
+-  ‘Hell in a cell’: Violence inside WA’s Unit 18 youth prison revealed
+-  Canal+ Gabon en père Noël à l’orphelinat « Bon Samaritain » de Kinguélé
+-  ‘Hell in a cell’: Violence inside WA’s Unit 18 youth prison revealed
+-  Israel Pounds Central Gaza, Tousands of Palestinians Try to Escape
+-  Sibu man finally gets long-awaited blue IC, rights as Sarawakian
+-  LEGO Fortnite glitch causes village level loss after renovations
+-  Un derrame de hidrocarburos afecta una playa en el norte de Venezuela, según activistas
+-  Ditadura por decreto
+-  Herb Kohl, former US senator and owner of the Milwaukee Bucks basketball team, has died. He was 88
 -  Man City earn comeback win at Everton to go fourth
+-  CNBC Daily Open: On course to the S&P peak
+-  Naslovna strana za 28.12.
+-  Avanza País sobre Pleno extraordinario para ver tema de la JNJ: “Hay cosas más importantes”
+-  Former EU Commission president Jacques Delors dies at 98
+-  Los memes por el último look de Sol Pérez en “Gran hermano”
 -  '이선균 협박' 20대女, 구속심사 전 도주했다 체포
 -  맨시티-첼시보다 황희찬… EPL 공홈 메인 장식
--  U.S. court rejects sentence appeal by 'El Chapo'
--  خارجية فرنسا تطرد دبلوماسيين من أذربيجان ردا على خطوة مماثلة
--  Red Sea attacks a part of Iranian ‘Axis of Resistance’ plot to ‘defeat US’: experts warn
--  الصين تضيف قمرين جديدين لنظام "بيدو-3" للملاحة الفضائية
--  الخارجية الاميركية تفرج عن الحزمة الأخيرة من المساعدات العسكرية المتاحة لأوكرانيا
--  عواصف ثلجية تضرب الولايات المتحدة وتتسبب في إلغاء عشرات الرحلات الجوية
--  ماكرون يبلغ نتنياهو بضرورة العمل على وقف طويل الأمد لإطلاق النار
--  وحدة من الجيش داهمت منازل مطلوبين في بريتال فأوقفت مواطنا وضبطت 3 سيارات مسروقة ومخدرات ومال مزور وأعتدة عسكرية
--  Diablo 4 head says Blizzard will "embrace," not insta-nerf, busted stuff like Ball Lighting Sorcerers: "Just let 'em have fun, we'll deal with it later"
--  Lionesses reaching World Cup final voted the most memorable sporting moment of 2023
--  بالفيديو: "يا رب ما خرجنا إلا في سبيلك".. قالها ثم أطلق قذيفته فصرخ جنود الاحتلال ألمًا
--  페르노리카, 칵테일로 즐기기 좋은 '제퍼슨 버번' 위스키 출시
--  How in the world is Maestro not one of the Top 10 Netflix movies this week?
--  배강욱 예비후보, "전곡산단 지정폐기물 매립장 끝까지 막아낼 것"
--  누적 가입자 9000만명…콴다, 2023년 연말결산 리포트 공개
--  은평구, 2023년 자활분야 '우수 지자체' 선정… '장관표창 수상' 서울시 자치구 '유일'
--  '2024 전망' 수출기업, 내년 자금사정도 어렵다
--  [08:17 가상자산] 마이크로스트레티지 비트코인 6억달러 매입에 상승세
--  대전 0시 축제, 2024년 8월 9일부터 9일간 진행
--  Πέθανε ο πρώην πρόεδρος της Κομισιόν, Ζακ Ντελόρ
--  Wall Street: νέο ρεκόρ για τον Dow Jones
--  Ρωσία: Στα 80-85 δολ. θα πωλείται το brent το 2024
--  Jujutsu Kaisen, One Piece y más: 10 animes que la rompieron en 2023 (y dónde verlos)
--  สภาพอากาศวันนี้ ยังน่าห่วง! ภาคใต้ฝนตกหนัก 60% พื้นที่
--  Fan de “Tu Día” decreta que Priscilla y Repe oficializarán romance: “Hacen una pareja perfecta”
--  Polens regering sætter statsmedier under likvidation
--  Polens regering sætter statsmedier under likvidation
--  ¿Qué es el síndrome del corazón navideño?
--  "الذهب" يلمع في 2023 مستغلا الصراعات ويصعد بعد خفوت دام عامين
--  Como funciona vila na França criada para receber só moradores com demência
--  Rechaza corte de EU apelación de sentencia de 'El Chapo'
--  Pasará 51 años en prisión por secuestro, abuso sexual y robo
--  Cuidado con el azúcar en esta época navideña
--  مقارنه صادمة بين رونالدو وميسي في أخر سنتين
--  ¡Triple colisión en Pesé! Otra persona falleció
--  ‘City is dying’ as high street charity chain with 170 locations abruptly closes branch over Christmas
--  ‘City is dying’ as high street charity chain with 170 locations abruptly closes branch over Christmas
--  Perfil | Marta Lois, la mujer de confianza de Yolanda Díaz que pondrá a prueba la fuerza de Sumar
--  بطولة إنكلترا: تشلسي يحسم مواجهته مع بالاس في الوقت القاتل
--  بطولة إنكلترا: سيتي يعود بقوة من مونديال الأندية
--  Kirkorov Yeni il şoularından uzaqlaşdırıldı
--  الشرقية.. ضبط مخالف لنظام البيئة لبيعه حطبًا محليًا
--  Kaleidoskop Olahraga Mei 2023: Timnas U-23 Raih Medali Emas SEA Games, Sukses Piala Dunia Panjat Tebing
--  Gabriel Veron é anunciado no Cruzeiro após recusar proposta do Corinthians
--  Lee Sun-kyun actor de “Parasitos” fue hallado sin vida
--  Canucks: How Dakota Joshua found his game, how everybody knows his name
--  Sean Payton ‘embarrassed’ Russell Wilson ‘every chance he got’: Robert Griffin III
