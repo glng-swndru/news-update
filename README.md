@@ -1,11 +1,11 @@
 # Latest News
--  Salman Khan greets fans on his birthday from his balcony as crowd cheers for him
--  غانتس يُلمح إلى بقائه في الحكومة حتى بانتهاك الاتفاق الائتلافي
--  العثور على نجم كوري حائز على الأوسكار ميتًا في سيّارة
--  Avionët izraelitë bombardojnë një shtëpi me palestinezë të zhvendosur në Gaza, 20 të vrarë
--  Elektrikli battaniyeden çıkan yangında bebek öldü, kardeşi ile annesi yaralandı
--  Russia Ukraine War:जेलेंस्की सेना रूसी फौज के सामने किसी भी वक्त सरेंडर कर सकती है
--  BKSAP DPR RI Dorong ASEAN Bertindak untuk Setop Kekerasan ke Rohingya
--  Štrnásťnásobná mamička šokuje internet: Bola tehotná viac ako dve desaťročia, pozrite na tú rodinu!
--  Pravá blondínka po KRACHU 12-ročného manželstva: Predviedla postavičku v PLAVKÁCH!
--  Police eliminate six kidnappers, recover N4m in Bauchi
+-  Robot společnosti Tesla napadl inženýra v texaské továrně
+-  Spektakl u Rijadu pripao Alkarasu
+-  La UE llora la pérdida del "visionario" Jacques Delors
+-  ¿Qué tan saludables son realmente los refrescos sin azúcar?
+-  Butković za HTV: Kroz 2024. implementacija novog sustava naplate cestarine
+-  لجنة المناصب السيادية تقدم المجلس الدولة تقريراً عن سير عملها
+-  Invisibili nella città che brilla per Natale
+-  Get this compact waterproof Bose speaker for just $99
+-  Демаскирање на полициската бруталност: Народниот правобранител поднесе кривична пријава за употреба на прекумерна сила во Идризово
+-  Trump demands recusal of Maine secretary of state in 14th Amendment determination
