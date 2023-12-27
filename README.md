@@ -1,11 +1,11 @@
 # Latest News
--  이경용 "농업인 자경농지 양도세 등 감면 확대 추진"
--  Neunjährige in Kanalisation gespült: Neun Menschen sterben bei schweren Unwettern in Australien
--  Valtaosa kuluttajista arvioi, että Suomen taloustilanne on huonompi kuin vuosi sitten
--  Tesla factory robot mauls worker – media — RT World News
--  Terroralarm am Kölner Dom: Verhaftungen in Wesel
--  Ukrayna'nın imha ettiği Rus gemisinin değeri ortaya çıktı. İçinde İHA'lar da vardı
--  이준석, 국민의힘 탈당...“보름은 지고 초승은 차오를 것”
--  Fatih Terim Panathinaikos'ta: Yardımcıları belli oldu! İlk transfer Bakasetas...
--  Kirli kanı temizleyen bitki ortaya çıktı
--  Apple Watch: US-Importstopp nach Patentverfahren - Weiße Haus legt kein Veto ein
+-  Body recovered of motorist who eluded police by jumping into a pond
+-  ผ่านฟรี! เปิดมอเตอร์เวย์ "บางใหญ่-กาญจนบุรี" 27 ธ.ค.-3 ม.ค.นี้
+-  ไม่ฟรีแล้ว! BTS สายสีเขียวส่วนต่อขยายที่ 2 เริ่มเก็บเงิน 2 ม.ค.นี้
+-  Samsung, SK to benefit from US ban on China's legacy chips
+-  POSCO Holdings to set up factory for rare gas production
+-  Women in Korea still earn only 70% of men's hourly wages
+-  Trump 2.0 and Korea
+-  모라이, ‘CES 2024’서 자율주행 시뮬레이션 데모 시연
+-  Gerardo Espinoza es nuevo entrenador del Aucas de la Liga de Ecuador
+-  אזולאי לא יעזוב בינואר, זלאטנוביץ' יימכר אם תגיע הצעה רצינית
