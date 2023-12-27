@@ -1,51 +1,51 @@
 # Latest News
--  Shakira’s Colombian home city unveils statue in her honor
--  "천연자원이 풍부한 라오스는 한국과의 윈윈 동반 성장을 원하고 있습니다”
--  IMF World Economic Outlook: Kazakhstan Leads in GDP Growth Among Central Asian, CIS States
--  Nonsan Strawberry Festival ranked No. 1 in Chungcheongnam-do's '1 County, 1 Product Festival' list
--  JB Financial Group signs strategic investment agreement with hanpass
--  Fitch: Giá nhà sẽ tăng nhanh trong năm 2024 sau khi Fed cắt giảm lãi suất
--  Giá vàng điều chỉnh, người dân Hà Nội xếp hàng đi bán vàng
--  Tỉnh dự kiến tăng trưởng dẫn đầu cả nước thưởng Tết thế nào?
--  Để pháo nổ tràn lan, lãnh đạo huyện và xã phải chịu trách nhiệm
--  Chủ tịch Vạn Thịnh Phát 'rửa tiền' thông qua đầu tư bất động sản, chuyển tiền ra nước ngoài
--  Bắt cục phó Cục Quản lý giá Bộ Tài chính trong vụ án liên quan thứ trưởng Đỗ Thắng Hải
--  Ông Lê Đức Thọ bị bắt vì sai phạm khi làm bí thư tỉnh Bến Tre
--  Loạt SUV mới, giá dưới 1 tỉ đồng ra mắt Việt Nam năm 2023: Mazda CX-5 nổi bật nhất
--  Điểm tin 18h: Triển vọng kinh tế toàn cầu 2024; Chiến sự Nga và Ukraine nóng rực
--  Tin tức giải trí 27-12: Cảnh chồng đầu của Quốc Cơ, Quốc Nghiệp vào cuộc thi hoa hậu
--  Phó vụ trưởng Vụ Thị trường trong nước Bộ Công Thương bị bắt trong vụ án Xuyên Việt Oil
--  Dự án điện gần 1 tỉ USD ‘thần tốc’ 4 tháng làm thủ tục vẫn lo chậm vì vướng đất rừng
--  Đề xuất đặt tên đường Phan Văn Khải từ An Sương tới Tây Ninh
--  14 dự án điện mặt trời hưởng giá ưu đãi không đúng, chủ đầu tư làm ăn ra sao?
--  Mặt đất nứt toác nhiều nơi, con người gây ra và đang gánh hậu quả
--  Khu xử lý rác thải lớn nhất Đồng Nai muốn giảm 50% khối lượng tiếp nhận
--  Điều tra vụ một người chết bất thường gần khu vực cổng Đại học Kinh tế TP.HCM
--  TP.HCM: Lại xếp hàng từ sáng tới chiều chưa đăng kiểm xong
--  Yêu cầu Bộ Tài chính báo cáo việc sửa quy định liên quan trái phiếu doanh nghiệp
--  Người trẻ có sợ trách nhiệm?
--  Yaşar Okuyan için Meclis'te cenaze töreni
--  Rusya Sözcüsü Zaharova'dan ABD'nin dış politikasına tepki
--  Nhường đất xây khu đô thị sinh thái, dân tái định cư khốn khổ vì thiếu nước sạch
--  Edin Dzeko'dan anlamlı hareket
--  Yêu cầu khẩn trương hoàn thành, báo cáo kết quả kiểm tra vụ Vạn Thịnh Phát, AIC, FLC
--  Thang máy một chung cư liên tục ‘rơi tự do’, cư dân bất an
--  TCP Việt Nam: Kiên định với mục tiêu tiếp năng lượng cho thanh niên Việt
--  Tiền nuôi gấp 60 lần tiền mua, chủ ô tô đổi sang xe đạp, scooter điện
--  Bia Hà Nội chinh phục thị trường Mỹ
--  Hợp tác nghiên cứu khoa học nông nghiệp với trường đại học của Ấn Độ
--  Lan tỏa tinh thần chinh phục công nghệ với Samsung Innovation Campus
--  Bên trong công trình trùng tu nhà thờ Đức Bà trị giá 760 triệu USD
--  Nevşehir'de helikopter destekli uyuşturucu operasyonu
--  Ông Đinh Trường Chinh không bàn giao đất đã ký với người dân để chiếm đoạt
--  Nuorten Leijonien kokoonpanoon muutos Kanada-tappion jälkeen
--  #AskSRK: SRK Has a Hilarious Reply For Fan Who Complains About Dunki's Marketing
--  পতনেও ফ্লোর প্রাইস ভেঙ্গে ৮ প্রতিষ্ঠানের লেনদেন
--  Президентские амбиции Патрушевых
--  Sidee Ayuu Tartanka Qaramada Afrika U Saamayn Doonaa Horyaalka Premier League? – Akhriso Xiddigaha Waaweyn Ee Ka Tegaya Kooxahooda
--  MDP rüşvet iddialarıyla ilgili polisi göreve davet etti
--  圆心科技营收上涨43.1%，赴港IPO新动作备受瞩目
--  甲骨文焕新生、千年瓷都魅力强……感受优秀传统文化的力量
--  车轮经济观察|一张“充换电网”里的新基建速度
--  新闻1+1丨建设全国统一大市场，进展如何？
--  回到课堂 迎接明天——甘肃积石山县中小学有序复课
+-  Taxi drivers who exchanged vehicles for shares in Rea Vaya left in lurch
+-  Rahul hits century and takes catch for India against Proteas
+-  ANC MP Alice Mthembu dies in KZN car crash
+-  Očajnički vapaj Valerija Zalužnog
+-  Kurti: Priznaćemo, ali...
+-  TFF Fair Play Ödülleri’nin Kasım 2023 dönemi sahipleri belli oldu! Samsunspor, Ivo Vieira ve Edin Visca'ya ödül verildi
+-  È arrivato il momento di Djidji? Juric può schierarlo dal 1′ a Firenze
+-  Nemanja Nedovic: Per Shabazz Napier abbiamo fatto tutti il possibile
+-  Análisis del INTA del impacto de las bicheras o miasis sobre la producción ganadera en Argentina
+-  360 ألف مواطن ينضمون لسوق العمل لأول مرة .. التفاصيل
+-  ضربة لتجار السموم.. الأمن يُفاجئ مروجي المخدرات بهذه المناطق
+-  ولي العهد يلقي الخطاب الملكي السنوي لمجلس الشورى ويشيد برؤية 2030
+-  استعلم عن نتائج أهلية الضمان الاجتماعي عبر هذه القنوات
+-  Operación Omega: 171 personas aprehendidas en las últimas horas
+-  Banks' asset quality touches decadal high as GNPA ratio falls to 3.2% in September quarter: RBI Report
+-  El Gobierno retirará en los próximos seis meses las rebajas fiscales a la luz y el gas
+-  El Gobierno prorroga un año gravámenes a banca y energéticas, con deducción de inversiones
+-  Motisons Jewellers debuta con fuerza y sus acciones casi se duplican
+-  Los metales industriales suben gracias a datos chinos, el aluminio toca máximo de ocho meses
+-  Policía utilizará armas decomisadas de empresa de exmodelo y su ména
+-  Συντριβή αεροσκάφους στην Καλαμάτα: Τριήμερο πένθος στις Ένοπλες Δυνάμεις μετά το θάνατο του Επισμηναγού
+-  O femeie găsită inconştientă şi fiul ei, de opt ani, salvaţi dintr-un incendiu care le-a cuprins apartamentul
+-  Osobe koje pate od ovog poremećaja žive i do pet godina kraće, a nije ih malo! Struka je pratila ljude dvadeset godina
+-  Grad Zagreb prodao državi manjinski udio u APIS IT-ju i isplatio sva dugovanja
+-  경찰, 故이선균 부검 미실시 검토…"유족이 원하지 않아"
+-  Mali objasnio Nikeziću: Mi nastavljamo da gradimo a građani su rekli šta misle o vašoj politici
+-  POL-MS: Straßenraub an der Hörsterstraße - Polizei sucht Zeugen
+-  Video: USA verbieten Verkauf von Apple Watches wegen Patentstreit
+-  Danas završava Cedevitina kampanja “21 dan optimizma’’: Preko 3700 građana svakodnevno ispunjavalo sitniCE, mala dobra djela
+-  Soccerladuma | Greenwood's Boss: He Can Play For Barca & Real If...
+-  Soccerladuma | Still In Touch With Magalefa Part 5
+-  Aries 28 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  Повеќе од милион барања за азил во ЕУ годинава
+-  Održan Božićni koncert u Polači "Narodi nam se kralj nebeski", hit su ipak bili Sinovi Hercegovine u Adventskom šatoru
+-  ‘How do I get this job?’: Louis Vuitton worker shares what workplace gave her as gift, it’s so much more than expected
+-  Man fatally stabbed after argument in street, police say
+-  Man arrested after two women die following three-vehicle Boxing Day crash
+-  El Gobierno aprueba la subida de las pensiones al 3,8%
+-  El Gobierno aprueba la subida de las pensiones al 3,8%
+-  Debitormassens sammensætning
+-  Açtı ağzını yumdu gözünü: "PKK’lı teröristin çorabı gibi..."
+-  URA podnosi amandman: Radnicima nekadašnje "Košute" isplatiti 2,2...
+-  Cum a devenit Diana Șoșoacă starul politicii românești / Marea întrebare: Există o coordonare strategică între Șoșoacă cu Simion
+-  Policie odložila kauzu údajného sexuálního násilí šéfa Bartošova kabinetu
+-  COVID, gripe o VRS: por qué parece que todo el mundo está enfermo estas navidades
+-  Auto kracht in Litfaßsäule: 100.000 Euro Schaden
+-  Israel presses Gaza assault, comms blackout hits rescue efforts
+-  Фадеев назвал голую вечеринку Ивлеевой колхозом
+-  Carro, ônibus ou avião? Acerte na escolha do transporte para sair de férias
+-  OPERASYONLAR
