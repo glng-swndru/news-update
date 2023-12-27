@@ -1,11 +1,11 @@
 # Latest News
--  Ben ritrovato Ilic: centrocampo in crescita con le prestazioni del serbo
--  KKTC kırmızı çizgiyi çekti: Egemen eşitliğimiz teyit edilmeden müzakere masasına geçilmesi mümkün değil
--  Akılalmaz olay! Önce kavgada ardından hastanede bıçaklandı
--  Skandal paylaşım! Ermeniler için ağıt yakan Aziz Nesin'in gelini Hilal Nesin, Türk askerini hedef aldı
--  Özgür Özel pes dedirtti! İmzalamadıkları PKK'yı kınama bildirisiyle 'A4' diyerek dalga geçti
--  Pro Research: Wall Street se sumerge en los avances oncológicos de Seagen
--  Credo Brands Marketing debuta en bolsa tras su OPV
--  Muere mujer en el hospital por agresión a balazos
--  [눈에 띄는 지방자치] 이상복 오산시의원, 경기도시·군의회의장협의회 행정감사분야 ‘우수상’
--  “원전 오염수 발생량 줄어…방류에 최대 19년 소요 전망”
+-  الزكاة تفرض 3 غرامات على المنشآت الأجنبية بسبب ضريبة الدخل
+-  ما فضل صيام أيام البيض؟ "الخثلان" يُجيب
+-  أمطار المدينة.. البرق يضيء سماء المسجد النبوي (فيديو)
+-  ينتهي قريبًا.. استمرار التقديم على وظائف الحرس الوطني لحملة البكالوريوس فأعلى
+-  أمطار المدينة.. غزيرة رعدية على المسجد النبوي والمحافظات
+-  부영그룹, 공군 체육시설 개선 위해 28억 쾌척
+-  Veli suree Michael Schumacheria – ”Elämä on joskus epäreilua”
+-  いやな気持ち、やさしい言葉で伝わる？奈良の学校で配布文書巡り議論
+-  서울시 문화재정책과, 워크온 ‘서울윈타2023 같이 걸어요.’ 이벤트 진행
+-  "เศรษฐา" แบ่งงานใหม่ ให้ "พีระพันธุ์" ดู "ยุติธรรม" แทน "สมศักดิ์"
