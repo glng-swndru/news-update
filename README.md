@@ -1,51 +1,11 @@
 # Latest News
--  En 11 meses, 62 mil migrantes procesados
--  Papa Franjo: Rat je zlo, pomolimo se za one koji pate
--  Banconal en la posición N° 1 de los mejores empleadores en Panamá este año
--  Quebec inks tentative deals on working conditions with all ‘common front’ labour unions
--  Patient im Rettungswagen attackiert Notfallsanitäter
--  B828 remains closed due to unstable rocks
--  Эксперты рассказали, какие профессии сейчас востребованы
--  Илья Резник рассказал, кем заменить Киркорова после бойкота на ТВ
--  CBN entregó más de 5 mil juguetes a 25 instituciones a nivel nacional por las fiestas de fin de año
--  مرض عانى منه مصطفى محمود.. كيف نحمي أنفسنا من فقدان الذاكرة؟
--  Warum der FC Basel seinen Neuzugang Kololli schon bei der Begrüssung verteidigen muss
--  Maharlika being built ‘Brick by brick’–PCEO
--  JJC TEC Completed the E Round Financing, AGF Invested
--  Helm.ai, 의도 예측 및 경로 계획을 위한 DNN 기반 모델 발표
--  Helm.ai Announces DNN Foundation Models for Intent Prediction and Path Planning
--  Jak Roberto Issue: Ava Mendez Reveals He’s “Touchy”
--  4 Tampa Bay tax preparers get prison time for defrauding IRS: DOJ
--  هل يمكن الإعفاء من رسوم قياس آلي لمستفيدي الضمان؟
--  عاجل.. المتزوجون الأكثر عددا.. 136 شخصا ينهون حياتهم بدولة خليجية
--  ولي العهد يزور مفتي المملكة للاطمئنان عليه
--  Bridging stellar phenomena and human endeavors
--  Johnny Cardoso llegó a Sevilla para formalizar su contrato con el Betis
--  18 évvel ezelőtti fotót mutatott Rubint Réka és Schobert Norbi
--  Nilüferli çocuklar icat çıkaracak
--  Maharashtra: Six booked for rape, sexual exploitation of woman, minors in Nagpur
--  Boxing Day footfall in central London returns to pre-pandemic levels
--  Gefahr durch illegales Feuerwerk: Mit diesen Tipps erkennen Sie legale Knaller
--  Jailed Kazakh Activist's Appeal Rejected
--  PHL expects 571MT rice to come in till February
--  Crna Gora će graditi brzu cestu prema Sarajevu
--  EXCLUSIVE: મનસુખ માંડવિયા સહિત આ 19 દિગ્ગજો લડશે લોકસભા ચૂંટણી, સીટ પણ નક્કી!
--  Katastrofi - Saksa kesytti sensaatiomaisesti Nuoret Leijonat
--  В Курске ночью 28 декабря будут работать 49 единиц дорожной техники
--  ΠΑΟΚ – Ολυμπιακός: Με κόσμο θα διεξαχθεί το ντέρμπι της 23ης αγωνιστικής στην Super League
--  Honeymoon Trip: मुफ्त में मनाएं ग्रैंड हनीमून, बस शादी से पहले ऑनलाइन करना होगा ये काम
--  RADI SE O KVALITETNOM PROTIVNIKU &quot;Partizan je samo jedan meč izgubio kod kuće&quot;
--  Impallomeni analizza il Milan: «Non c’è una crisi tecnica clamorosa, ma…»
--  Podignuta optužnica u vezi sa ubistvom Olivera Ivanovića
--  STL RESULT TODAY, Thursday, December 28, 2023
--  7 Pinoy tourists in ravine mishap discharged from hospital–MECO
--  نيوم تعلن عن “نورلانا” الوجهة السكنية الساحلية الجديدة للاستجمام وتجديد الصحة
--  Lahden Taitoluistelijoiden päävalmentaja Reetta Romppanen ei ole ollut "ikinä hallilta poissa" – eikä halua ollakaan
--  В Москве показали «Фауст. Четвертая стена» - версию без Мефистофеля, но с блогершей
--  'Guayaquil vuelve a ver': así funciona el programa gratuito de salud visual
--  New York Times sues OpenAI, Microsoft for using its stories to train chatbots
--  Flash flood watch in effect for central and northern districts
--  Mahadev Betting App Promoter Saurabh Chandrakar Detained In Dubai, ED May File New Charge Sheet
--  В Белореченске на скамью подсудимых сядет убийца собственного отца
--  Russian Army Receives First Batch of New Kalashnikov Sniper Rifles
--  Trump predicts Ramaswamy will endorse him
+-  Top 5 Plastic Credit Programs for Enhancing Your Business’s Sustainability
+-  Plateau Killings: Tinubu Approves Immediate Humanitarian Support For Victims
+-  Los mejores juegos de este año que no has jugado (X) - American Arcadia
+-  Underdog Aussies up for the fight at United Cup
+-  Viral Video: యువతిపై కామెంట్.. కారుతో తొక్కేసిన యువకుడు.. వైరల్ అవుతున్న వీడియో
+-  Police lay charges after Guelph teen reportedly assaulted by rideshare driver
+-  Quién es el dueño de Chelsea, el club que, según el presidente Javier Milei, ”está interesado en invertir en la Argentina”
+-  Lula confirma nomeações de Paulo Picchetti e Rodrigo Teixeira à diretoria do BC
+-  Soutien à l’effort de paix : Les dockers burkinabè en Côte d’Ivoire apportent leur contribution
+-  Hintergründe unklar 33-jähriger Mann am zweiten Weihnachtsfeiertag in Düren erschossen
