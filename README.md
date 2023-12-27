@@ -1,51 +1,11 @@
 # Latest News
--  Ruotsin tähtipuolustajalle pelikielto MM-kisoissa
--  El Gobierno autoriza licitar el servicio aéreo de salvamento marítimo por 305 millones
--  Iron Horse Acquisitions Corp lanza su OPV en el NASDAQ
--  Wall Street abre en verde y el Dow Jones sube un 0,02 %
--  Las acciones de Cytokinetics se disparan tras exitoso estudio de un fármaco cardíaco
--  The New York Times demanda a Microsoft y a OpenAI por usar sus textos sin permiso
--  El presidente turco dice que Netanyahu no es diferente de Hitler
--  Toyota logra un récord de ventas en noviembre
--  Policía dice que admiradora de Taylor Swift murió de agotamiento por calor en concierto en Brasil
--  ¿Cuáles son los riesgos para la estabilidad financiera de cara al 2024?
--  Foment considera "inasumible" convertir impuestos extraordinarios en permanentes
--  El Banco de Japón mantendrá su política de relajación monetaria en medio de la preocupación por la inflación - Kazuo Ueda
--  Evermos Wins Nikkei Asia Award 2023 for Its Dedication to Empowering Women's Economic Independence
--  Lublin dba o czworonożnych mieszkańców. Wkrótce kolejny wybieg
--  Burkina / Agroalimentaire : Lefaso.net va à la découverte de l'entreprise agro deogracias
--  Небензя: даже проевропейские украинцы считают ассоциацию с ЕС невыгодной
--  Michigan court rejects appeal to disqualify Trump from 2024 ballot
--  Burkina / Agriculture : Le PAPFA atteint un taux de réalisation de plus de 90%
--  Burkina / LONAB : Piaboué Bado remporte plus de 98 millions de francs CFA au 4+1 du 8 décembre 2023
--  Budge source ensured for Budhigandaki Project, says PM Dahal,
--  Burkina / Projet filets sociaux : 122 578 ménages bénéficiaires touchés pour un montant de plus de 21 milliards de FCFA
--  Polska na europejskim podium w sektorze kreatywnym
--  Gerbrands sloeg na PSV-vertrek nieuwe baan in Eredivisie-top af
--  Genomtec ma zastrzyk kapitału na onkologię
--  Burkina / Clôture du PCRK : « Si nous enregistrons moins de délestages et de coupures intempestives, c'est grâce à ce projet », Grégoire Tapsoba
--  Ahmed Abou Hashima Founder of MAFI for Agricultural Produce Industries Unveils Massive $300 Million Agri-Food Industrial Complex, Setting New Standards in the Middle East, with the Egyptian Prime Minister in Attendance
--  Başkan Erdoğan, Mehmet Akif Ersoy'u ölüm yıl dönümünde andı
--  Beşiktaş'ın gündemindeydi! Andre Breitenreiter'den açıklama geldi
--  Isaac: Bu soykırım bitmeden hayat normale dönemez
--  Borsa İstanbul günü düşüşle kapadı
--  TEM Otoyolu Ankara yönü ulaşıma kapatıldı
--  Denizli'de elektrikli battaniyeden çıkan yangın can aldı: 1 yaşındaki bebek öldü
--  Galatasaray'a Süper Kupa öncesi kötü haber! İşte Davinson Sanchez'in son durumu...
--  Afyonkarahisar'da sahte içki operasyonu
--  Нетаняху: Турският президент Ердоган не може да ни учи на морал
--  В Кемеровской области рассказали о работе больниц в новогодние праздники
--  Enhancing coastal cities' flood resilience through smart city technologies
--  Дед фехтовальщика Биды объяснил отъезд внука в США предложением о работе
--  تعميمٌ ملتبس... ماذا سيحصل للدولار بعد رأس السنة؟
--  برشلونة يشوق جماهيره قبل الإعلان عن صفقة شتوية
--  Top 5 Pharmacy Times Pneumococcal Articles of 2023
--  Майже в 4 рази дорожча, ніж торік: яка нині ціна на картоплю
--  Τηλεφωνική επικοινωνία Φιντάν-Μπλίνκεν – Συζήτησαν και για Κύπρο
--  Data breaches aren’t setting records anymore, but there are more victims than ever
--  Αδελφοκτονία στη Νέα Σμύρνη: «Το παιδί μου δεν είναι εγκληματίας, ήταν ατύχημα»
--  Singapore's species extinction rate found to be 37% over the past 200 years
--  Gemeinsame Aktion von Landwirten und Lkw-Fahrern
--  Инцидент во Скопје: Откако снимиле емисија за на портал, биле нападнати од насилник
--  Equity Down Under: How Australian startups can crack the US market
--  UGT ratifica el acuerdo con Telefónica para el ERE con 3.421 salidas
+-  Ďalší zásah horských záchranárov: V Malej Fatre pomáhali 53-ročnému turistovi
+-  Počuli ste už o japonskej Atlantíde? Mohutná podvodná stavba ohúrila celý svet, obklopuje ju množstvo záhad
+-  Invitan Bomberos a donar juguetes para la colecta anual
+-  Ataque armado deja un muerto en la Óscar Flores
+-  Judge Refuses to Delay Trial on Alabama’s Gender-Affirming Care Ban for Minors
+-  Carnage at Kincraig after storm finally calms down
+-  Zvanično: Radonjić na klupi Bahčešehira
+-  Granny, 85, shows off darts skills at Christmas as she's tipped for 'Ally Pally 2025'
+-  Djokovic expects Nadal back for more Grand Slams not just to play
+-  River le dedicó a Enzo Pérez un genial video animado que resume su carrera
