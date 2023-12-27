@@ -1,11 +1,51 @@
 # Latest News
--  ‘F4‘ 회의서 태영건설 워크아웃설 논의…차입금 만기일이 ‘1차 고비‘
--  Devara Teaser Update Soon: త్వ‌ర‌లోనే టైగ‌ర్ గ‌ర్జించ‌బోతుంది! దేవ‌ర్ టీజ‌ర్ పై అనిరుద్ ఆస‌క్తిక‌ర ట్వీట్, ఒక్క పోస్టుతో హైప్ మామూలుగా పెంచ‌లేదుగా!
--  Rajan Salavi ACB Investigation : राजन साळवींचा भाऊ, पुतण्या, वहिनींना नोटीस, ACB कडून होणार चौकशी
--  Minister of Foreign Affairs Resigns Amidst Business Transaction Controversy
--  Nadal, Osaka in Australia comebacks as Djokovic targets more glory
--  Naga Panchami Serial Promo Today December 28th - 'నాగ పంచమి' సీరియల్: పంచమి చెంప చెల్లుమనిపించిన మోక్ష, ఇద్దరి మధ్య దూరం పెరిగిందా?
--  Parasite actor Lee Sun-kyun found dead amid drug allegations
--  Parasite actor Lee Sun-kyun found dead amid drug allegations
--  Parasite actor Lee Sun-kyun found dead amid drug allegations
--  Медведев поздравил Ким Чен Ына с наступающим Новым годом
+-  ใจฟู "คัลแลน-พี่จอง" โอปาขวัญใจรับปากช่วยรีวิวอันซีนอุทยาน
+-  "อี ซอนคยุน" นักแสดงนำ Parasite ถูกพบเสียชีวิตในรถ
+-  โลกเปลี่ยนเร็ว "เศรษฐา" สั่งปรับ "ยุทธศาสตร์​ชาติ 20 ปี" ​
+-  18 sungai catat bacaan melebihi paras bahaya
+-  [인사] 신한라이프
+-  '2024 전망' 제조업, 해 넘겨도 '한파'…"내수기업 더 어렵다"
+-  수원시, ‘집수리 공사종류별 단가’ 제시
+-  용인시 이상일, '반도체 국가산단 도약' 공로…'남사읍 이장협의회' 감사패
+-  서울약령시한의약박물관, 한국약초 사진전 ‘생명의 꽃, 약초에 피다’ 개최
+-  대한변협, '제24회 우수변호사' 3인 선정
+-  영월군청소년수련관, ‘청소년동아리 성과 보고회’ 성료
+-  거창군, 따뜻한 마음으로 이어지는 아림1004들
+-  디아이스틸, 군포시 '학교 밖 청소년' 후원금 1000만원 기탁
+-  선우건설, 무궁화장학금 500만원 기탁
+-  동원 GNC, '간 건강' 밀크씨슬 이뮨 바이탈 샷 누적판매 10만병
+-  영월군청소년수련관, '제12기 청소년운영위 2차 기관장간담회' 개최
+-  수원수목원, 개원 220일 만에 누적 입장객 50만 명 돌파
+-  민주평통 철원協, 천경산·정병하 대통령표창 수상
+-  영월지역자활센터, ‘2023년 자활사업 보고대회’ 개최
+-  광명시, 한국ESG대상 지방자치단체 부분 대상 수상
+-  홍천군 청년창업지원센터, 청년창업가 업장 방문
+-  김영식 의원, 소상공인·전통시장 경제활성화 법안 발의
+-  양천구, 최첨단 버스정류장 ‘스마트마루’ 확대 설치
+-  내년부터 스트레스 DSR 시행...가계부채 감소 이끌까
+-  Severe thunderstorms possible for almost 2000km of Queensland coastline
+-  Vivek Ramaswamy Ends ‘Idiotic’ TV Ad Spending in Last-Minute Pivot
+-  Jugador del Motagua pide salir del equipo tras subcampeonato
+-  Rahul Gandhi Meets Bajrang Punia, Other Wrestlers In Haryana Amid Suspension Of WFI, Protests
+-  Video: Despiden a Armando Guadiana en Saltillo
+-  Rompen la tradición del recalentado
+-  คลังจัดของขวัญปีใหม่แจกประชาชนจุกๆ 39 มาตรการ
+-  Big Brother Australia star Tully Smyth is rushed to the emergency room after shocking Christmas mishap involving an elevator
+-  Houthis attack Karachi-bound ship in Red Sea
+-  Само в "24 часа" на 27 декември - Как двойното гражданство на лидери пренареждаше политиката у нас през 90-те
+-  Za Franca je bilo usodno perilo. Ko ga je dal sušiti, se je zgodilo najhujše
+-  RECENSION: Söderhäll: I kulturkrisen lyser Provins upp
+-  Orinson Amaya se pronuncia con respecto a André Orellana
+-  Эффект Забарного, камбек Ман Юнайтед, КриРо vs Кот, Наоя Иноуэ – абсолют
+-  De vill radera skärmtiden från förskolan – så agerar kommunen
+-  O bankada hesabı olanlar köşeyi döndü! Tek seferde 50 bin TL ödeme yapılıyor: 5 dakikada hesapta diyerek açıklandı
+-  عاجل.. 4 حالات تتيح لمدير المدرسة تعليق الدراسة الحضورية
+-  Liverpool go top, Newcastle lose again
+-  América Femenil: Destinee Manzo es la sexta baja de las Águilas para el Clausura 2024
+-  Wednesday Outlook: Asian stocks rise, oil prices fall
+-  '얼굴 없는 천사'로 전북은 '훈훈'
+-  Migrant caravan: Americans fear of having thousands of “new illegal neighbours”
+-  Is the UK left with electric heat pumps as an alternative to boilers?
+-  보훈부, 제천·괴산 경찰합동묘역 국가관리묘역으로 지정
+-  PharmaBlock Opens HPAPI GMP Facility at Zhejiang Manufacturing Site
+-  ¿Cómo comparto archivos usando Near Share? una guía rápida
