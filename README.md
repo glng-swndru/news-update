@@ -1,11 +1,11 @@
 # Latest News
--  Warga emas cemas temukan ular tedung selar dalam bilik
--  老年痴呆怎么检查确诊
--  抑郁症怎么检查出来
--  感冒挂什么科 感冒如何护理
--  打排球手肿了怎么快速消肿
--  Indian stock market: 7 things that changed for the market overnight - Gift Nifty, India’s CAD, weak dollar to oil prices
--  Xi: "China debe reunificarse e inevitablemente se reunificará"
--  송파의정연구회, '송파구 자치법규 정비·입법 연구' 용역 최종보고회
--  진주시, NH농협은행서 연말 취약계층 위한 성금·품 기탁
--  서초구, 서울 유일 대사증후군 관리 12년 연속 우수구 선정
+-  1조5000억 투입…'50인 미만' 중대재해 지원 '속도'
+-  롯데렌탈 최진환, '1회용품 ZERO 챌린지' 참여
+-  포스코홀딩스, 중국과 협업…반도체용 희귀가스 생산 확대
+-  [CES 2024] LG전자, 가사 도우미 로봇 '스마트홈 AI 에이전트' 공개
+-  삼성전자, 업계 최초 CXL 동작 검증 성공
+-  한화 김승연, '용띠' 주식갑부 1위…SK 최창원·LS 구자은 1000억 넘겨
+-  100주년 맞는 하이트진로, 사회공헌사업도 '열심'
+-  강남구, 올해를 빛낸 10대 '굿' 뉴스 선정
+-  용산구, 청년창업지원센터 신규 입주기업 12개 최종 선정
+-  송파구, 행정서비스 만족도 향상 기여 '2023년 하반기 우수사례' 선정
