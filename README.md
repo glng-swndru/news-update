@@ -1,51 +1,11 @@
 # Latest News
--  Nieto y abuelo se salvaron luego de que un carro rodara por un precipicio en Antioquia
--  Manchester City kohenteli asemiaan
--  Interview zur Krankenversicherungen: „Steigende Beiträge dürfen keine Selbstverständlichkeit werden“
--  相伴16年膠公仔慘遭老鷹「分屍」 日本癡心博主網上公開求助……
--  The best VR apps for 2023
--  Mateiko: "Mēs spēlējam par Latvijas godu. Nedrīkst tā padoties"
--  Open-ear earbuds and spatial audio ruled 2023 — and they’ll be even bigger in 2024
--  博物館新姿采︱公私營博物館有競爭也有合作 互相鞭策求做得更好
--  黃元山專訪︱諫官制度化？ 黃元山：「企後一格」研判政策 不宜太早公開內容
--  飛龍在天︱中國和巴西科學家發現新翼龍 命名為「友好美麗飛龍」
--  獨家丨丁子朗決心：唔想衰畀香港人同公司睇 選《超星團》被高層勸退收網民負評
--  博物館新姿采︱私人博物館疫情期間創出路 辦中小學生教育活動拓青年客群
--  女子尿頻驚見15cm腫瘤 確診高致命率癌症 出現腹脹8症狀須求醫●回鄉證預約｜過期續證「死線」即將屆滿 即睇邊個換證中心仲有位【附預約連結】●《星島頭條》每朝為你3分鐘新聞快charge
--  نجاح عملية زرع أعصاب ذراع هي الأولى في العالم
--  El balance de Rivadavia en la Liga Argentina de básquet
--  올림픽축구스타 오재석·김영권 ‘J리그 명문 전설’
--  La UE llora la pérdida de Jacques Delors, un “visionario” de la construcción europea
--  Bayern Munich youngster Frans Krätzig channels Ice Cube and is down for whatever
--  Sonia Gray’s No Such Thing as Normal by Sonia Gray explores neurodiversity
--  Top 10 Trade Me listings for 2023 include a ‘shy’ Northland carrot
--  “개그맨 김준호씨랑 김지민씨 언제 결혼하냐고요?” [신기자 톡톡]
--  Herald Summer Quiz: December 28
--  Equipa técnica do 'Dança com as Estrelas' recusa cachê
--  Fearless: Trinny Woodall’s guide to style, beauty and female power
--  횡성소방서, 하반기 구조·구급대원 감염방지교육 및 감염방지위원회 개최
--  강원도교육청, 2023년 강원 직업계고 교육과정 담당자 협의회 개최
--  한국수자원공사 소양강댐지사, 춘천연극제 기부금 전달
--  11기동사단 투호대대, 자발적 모금으로 홍천 지역 주민에 연탄 1004장 기부
--  현대자동차 신홍천대리점, 무궁화장학금 200만원 기탁
--  정선군, 2024 강원 동계청소년올림픽대회 성화투어 행사 개최
--  해든엔지니어링, 무궁화장학금 100만원 기탁
--  홍천군청 태권도팀 김태완 감독·강완진 선수, 무궁화장학금 400만원 기탁
--  봄내 사랑 생태 탐방단 활동 전시회 개최
--  안병구 변호사, 자서전 ‘꿈의 시작’ 출판기념회 개최
--  양천구 목4동, 목양의 교회와 후원협약식 열어
--  충남도, 서산 대산3 일반산단(확장) 최종 승인
--  충남경찰, 해넘이·해맞이 특별 교통관리 실시
--  청양 첫 일반산단 ‘수소특화단지’로 조성된다
--  강원랜드, 강원 폐광지역 4개 시·군 디지털 정보 격차 해소 앞장
--  [동정] 고재창 태백시의회 의장
--  대전시의회, ‘2023년 대전광역시장애인체육회 결산보고회’ 참석 축사
--  양천구, 서부트럭터미널 도시첨단물류단지 조성…올해의 10대 뉴스 1위
--  강서구, 청소년 체육·연극교실 참여자 모집
--  구로구, 국토교통부 주관 ‘스마트도시’ 재인증 달성
--  [포토] 김태흠 지사, “추운 겨울 따뜻한 손길 내민 농협에 감사”
--  세계 2위 해운사 머스크, 며칠 내 홍해 운항 재개
--  尹 '김건희 특검' 정면 돌파… 인사·신년회견 '국정드라이브'
--  [국제유가] 홍해 선박 운행 재개 소식에 하락…WTI 1.93%↓
--  일동후디스 '트루맘', 새해 소망 SNS 이벤트
--  원안위, 내년부터 '후쿠시마 오염수 대응' 전담 조직 운영
+-  Германия — Эти рождественские рынки работают и после Рождества
+-  Германия — Какой ультиматум выдвинул лидер ХСС Зёдер
+-  الخرف الوراثي .. هل يمكن الوقاية منه في سن مبكر ؟
+-  معلومات عن صاروخ RPo-A المستخدم من الفصائل الفلسطينية.. قوة تدميرية هائلة
+-  Suudi Arabistan'dan Tunus'a bir milyar dolar mali bağış
+-  Cae pareja con droga y arma de fuego
+-  Pep Guardiola cuts animated figure as he dishes out post-win instructions to Man City star
+-  Cae pareja de presuntos asesinos de atleta de San Luis Potosí en Juárez
+-  Muere David Leland, director de 'Band of Brothers'
+-  Eva Luna revela que no acudió al ginecólogo durante su embarazo
