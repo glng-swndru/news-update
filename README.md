@@ -1,11 +1,11 @@
 # Latest News
--  Konyaspor’da ziyaretler sürüyor
--  KONYASPOR'DA 4 İSİM MAÇ KAÇIRMADI!
--  65 yaşındaki anne okuma-yazma öğreniyor
--  Konyaspor, beklentiyi yükseltti!
--  Galibiyeti taraftara armağan ediyoruz
--  1922 Konya’da kollar sıvandı
--  Konyaspor Basketbol'da Ankaragücü hazırlığı
--  Fotoğraf çekerken 50 metrelik kanyondan düşen Alman turist öldü
--  Göksu havzası yamaç arazileri modern sulamaya kavuşuyor
--  Bursa'da fabrika inşaatı beton atıldığı sırada çöktü, 6 işçi yaralandı
+-  Bakıda evdə meyit tapıldı
+-  أسعار السمك والمأكولات البحرية في سوق العبور اليوم الأربعاء
+-  Celebran Duelo de Leyendas para despedir el año
+-  MT: Puolet suomalaisista haluaisi Suomen boikotoivan Pariisin olympialaisia
+-  Rosja ostrzega kluczowych sojuszników USA. "Poważne konsekwencje"
+-  "שישה דברים שבהם היטלר עדיף על טראמפ": הציוץ של ג'ון קליז מסעיר את הרשת
+-  זה כבר ההסכם הקואליציוני השני שנתניהו פשוט קורע לגזרים
+-  Toyota's Daihatsu shuts factories in safety test probe
+-  卵巢癌｜女子尿頻驚見15cm腫瘤 確診致命癌症 出現腹脹8症狀須求醫
+-  Guerra entre Israel y Hamás ya deja más de 21.000 muertos en la Franja de Gaza
