@@ -1,51 +1,51 @@
 # Latest News
--  Una actriz francesa acusa a Victoria Abril de "agresiones sexuales" a otros actores
--  صرف معونة الشتاء للمنتفعين من صندوق المعونة مع مخصصات الشهر الحالي
--  %87 نسبة الإنفاق على مشاريع اللامركزية في إربد
--  الوزراء: توقيع مذكرة تفاهم في مجال الطاقة المتجددة يؤكد قدرة مصر على جذب المستثمرين
--  الحسيمة تحتضن اجتماعا لمجلس جامعة عبد المالك السعدي
--  وسط توقعات بتباطؤ منحنى القروض البنكية الموجهة إلى القطاع غير المالي.. القطاع المالي المغربي يواصل إظهار متانته وصموده
--  إدارة المرأة والطفل بانتقالي أبين تنظم حفلاً فنياً وتكريميا لتخرج الفئة الكبرى من رياض الاطفال بخنفر
--  الهيئة العليا للاتصال السمعي البصري تتخذ 80 قرارا بخصوص برامج الإذاعات والقنوات
--  Elin Grönblom regisserar sin första långfilm
--  Ken Jennings Suggests Mayim Bialik's 'Jeopardy!' Exit Took Him By Surprise
--  شركتا شحن فرنسية ودنماركية تعلنان استئناف مرور سفنهما في البحر الأحمر
--  Lo quisieron Boca y River, pero jugará en el Tigres de México
--  تضامن المنيا تحتفل بتخريج 94 من ذوي الإعاقة الذهنية ضمن برنامج المدارس الحقلية
--  Francia: Torre Eiffel cierra sus puertas a visitantes debido a huelga de trabajadores
--  حكومة حماس: الجيش الإسرائيلي اعتقل 2600 فلسطيني من قطاع غزة
--  Ucraina, F-16 sono già in guerra? Gli indizi e le news
--  Koniec verejnoprávnych médií v Poľsku. Minister kultúry Sienkiewicz oznámil ich likvidáciu
--  ΠΟΝΑΕΙ-ΑΠΟΕΛ
--  Ankaragücü’nün eski başkanı Faruk Koca tahliye edildi
--  İYİ Parti Trabzon İl Başkanı: “Asgari ücretli artık Trabzon’da yaşayamaz”
--  OAP, 83, makes dig at estranged toyboy husband, 39, as she thanks people for their support following ‘turbulent year’
--  Tottenham star recalled from loan transfer at Championship high-fliers with Heung Min-Son set to miss up to SIX games
--  The Apple Watch US import ban is temporarily lifted by a US appeals court
--  Badajoz contará con un nuevo juzgado de primera instancia
--  A dollárral elbánt a forint, ám az euróval nem bírt
--  Former EU Commission President Jacques Delors dies at 98
--  Archäologischer Fund: Forscher staunen über mysteriöses Symbol – „ganz neu für uns“
--  Ubican cadáver en desagüe en Veracruz
--  Se aleja la Navidad
--  Ryska dödsattacken i Syrien – tre döda barn
--  SONKO a "reçu sa convocation pour le tirage au sort du 28 décembre" ( avocat)
--  L’ONU dénonce la «lâcheté morale» d’Israël après des accusations à son égard
--  فرانكفورت يقترب من ضم النيجيري دوروسينمي
--  Hezonja ima gripu, neće igrati protiv ASVEL-a
--  INTERVJU Veljko Mićunović: Živimo u surovo vreme, a ljudi su ucenjeni da bi preživeli
--  La UEFA exige rectificaciones al TJUE sobre la notificación del fallo de la Superliga
--  Swift fan 'died of heat exhaustion' at Brazil concert
--  Swift fan 'died of heat exhaustion' at Brazil concert
--  ‘Abbott Elementary’ Season 3: Everything To Know Including The Release Date, Cast, Trailer, & More Info
--  Grosse soirée à la Friche avant sa fermeture définitive à Marcq-en-Barœul
--  Tusk: Nećemo silom prekidati blokadu poljske televizije i javnih medija
--  Minister escorted from North Carolina movie theater after trying to use his own chair
--  „Nisam ja Toma Nikolić da varam“: Marinika Tepić ulazi u deseti dan štrajka glađu
--  Lil Wayne Compared His Rap Career To An Iconic Basketball Player, As They Both Started Young
--  Баскетболистките ни до 16 години започнаха с победа на Балканиадата
--  Gov Bello Describes Death Of Ex-speaker Na’Abba As Great Loss
--  ΑΕΚ: «Συγκλονισμένοι από την τραγική απώλεια ενός νέου ανθρώπου, να αποδοθεί δικαιοσύνη»
--  “Fábrica” imunda de churros em praia de SC escondia de sujeira a crime ambiental
--  Boston outlines major changes for city's First Night
--  Glasanje za VDT-a nema veze s foteljama - iz ZBCG tvrde da ni na...
+-  España confirma abandono de la energía nuclear y amplía plazos de los proyectos renovables
+-  Citigroup elige a los líderes del sector aeronáutico y automovilístico como principales valores para el nuevo año
+-  Median Technologies obtiene del BEI el último tramo de su préstamo de 8,5 millones de euros
+-  Acciones europeas comienzan la última semana de 2023 al alza
+-  India investiga un presunto tráfico de seres humanos tras el regreso a casa de 276 nacionales
+-  El DAX 40 sube un 0,21 % en una jornada con escaso volumen de negociación
+-  Israel entrega 80 cadáveres a Gaza tras confirmar que no eran rehenes
+-  Los mercados bursátiles de los EAU suben con el índice de Dubai al alza y el volumen de operaciones en alza
+-  El trigo cae tras la reciente alza, el maíz y la soja también bajan
+-  Cruzeiro anuncia contratação de Gabriel Verón, ex-Palmeiras
+-  وزير الدفاع: جاهزون لتلقين الأعداء أقسى الضربات الموجعة
+-  Форс кўрфазидаги низоли ороллар: Эрон Россиядан нега норози?.
+-  Озарбойжон президентлигига 15 нафар номзод тасдиқланди .
+-  Украиналик эркаклар янги сафарбарлик қонуни туфайли мулкларини яқинларига ўтказмоқда — ОАВ.
+-  Mother India fame Sajid Khan passes away after long battle against cancer
+-  Япония дунёдаги энг қудратли атом электр станциясининг ишлашига рухсат берди .
+-  Armed men mug cyclist in East End
+-  Michael Schumacher nunca volverá a ser el mismo, dice su hermano
+-  Рафаел Варан отхвърля възможността за трансфер в Ал Итихад
+-  Арсенал ще се опита да привлече Салах
+-  Реал Мадрид без капитана си в следващия мач
+-  Programa Somos Especiales recibe medicinas para niños en Yaracuy
+-  内嵌AI算力 承载全场景生产力 ThinkPad X1 Carbon AI开售
+-  राजस्थान में 450 रुपये में मिलेगा LPG सिलेंडर, CM भजनलाल शर्मा ने किया बड़ा ऐलान
+-  Maestro (Netflix) : les secrets de la métamorphose bluffante de Bradley Cooper
+-  MP: गुना में डंपर और बस में हुई जोरदार टक्कर, 9 यात्री जिंदा जले
+-  Karen Ricardo afirma con el PRM las mujeres dominicanas se sienten desprotegidas
+-  Σακελλαροπούλου: Με αισθήματα βαθιάς θλίψης πενθούμε για τον θάνατο ενός υπερασπιστή των ουρανών μας
+-  Canciller ucraniano presume de que el jefe de la OTAN le permitiera sentarse entre los miembros del bloque
+-  Im Alter von 98 Jahren: Früherer EU-Kommissionspräsident Jacques Delors gestorben
+-  SA vs IND First Test: “I try to do what the game demands of me” says KL Rahul about his ton in the first innings
+-  Spokojny powrót do gry
+-  Komisi X DPR RI Tekankan Pentingnya Perubahan UU Cagar Budaya
+-  Makedonska večera odvela Alex u vodstvo: 'Bila je nevjerojatno posložena, odradila je baš sve'
+-  VUČIĆ UPITAO JONSONA: Zašto ćutite, zašto ne kažete celom svetu istinu?
+-  Ben Foden treats children Aoife, 11, and Tadhg, eight, to a pizza slice as they spend Christmas in New York with their father and little sister Farrah, three
+-  Qué coches compramos realmente los españoles
+-  عون: شركات النفط الأجنبية استغلت ضعف الدولة لزيادة حصتها
+-  MASTER: Neophodna veća zastupljenost žena u javnom i političkom životu
+-  Akeredolu: An Exceptional Leader With Significant Impacts – NANS
+-  Sam Altman, Jony Ive poach Apple iPhone design boss to work on AI devices: report
+-  Knuffige Killer: Darum sind Katzen viel tödlicher als du gedacht hast
+-  Ćuta spevao pesmicu Vučiću: Taj je jeo šta je hteo, birački spisak ceo i parizera jedan deo
+-  Tον Μάιο ο ΔΕΗ Ποδηλατικός Γύρος Ελλάδας
+-  एमपी के Khandwa में सिलेंडर ब्लास्ट घर में सिलेंडर ब्लास्ट होने से हड़कंप
+-  פרסום ראשון: עומר נודלמן והבן הזוג ביטלו את החתונה ונפרדו
+-  תיעוד מקומם: "הספר של המפורסמים" תועד משפיל ילד עם צרכים מיוחדים
+-  Hamas acusa Israel de roubar órgãos de corpos de palestinos
+-  تحفيظ أملج: 3 أسباب تعين على حفظ القرآن الكريم
+-  Hapag Lloyd: situation still too dangerous to pass Suez Canal
