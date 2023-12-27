@@ -1,11 +1,11 @@
 # Latest News
--  AbelZeta to Present at the Annual J.P. Morgan Healthcare Conference
--  Bali, Bandung dan Yogyakarta masih Jadi Tujuan Favorit Wisatawan Habiskan Libur Natal dan Tahun Baru
--  Kaleidoskop Olahraga April 2023: Dito Ariotedjo Dilantik Jadi Menpora hingga FIFA Cabut Status Peru sebagai Tuan Rumah Piala Dunia U-17
--  Indonesia Masuk 5 Besar Negara Asia dengan Kenaikan Poin Paling Signifikan di Peringkat FIFA
--  Guía de la Renta Canaria de Ciudadanía: ¿qué es, quién puede solicitarla y cuándo se empieza a cobrar?
--  Marine Nationale goes odd-on for Arkle after impressive chase debut
--  5 séries et films japonais qui vous mettront l’eau à la bouche
--  СК начал проверку после падения наледи на женщину в Воронеже
--  Beşiktaş'tan ara transferde bomba transfer! İşte Hasan Arat'ın ilk hamlesi
--  Kondisi Terkini Apartemen The Spring Residence Ciputat yang Mangkrak, Rugikan Ratusan Orang
+-  Kein versöhnlicher Jahresabschluss für Bayerns Geschäfte
+-  Şırnak'ta AK Parti Kadın Kollarından teröre tepki yürüyüşü
+-  Kocaeli'de FETÖ operasyonu
+-  Anzeige – Winterhilfe schützt Menschenleben / Von Albanien und Kosovo bis Afghanistan, Nepal und Jemen
+-  He Championed The Formation Of Amotekun – Rhodes-Vivour Says As He Mourns The Passing Of Akeredolu
+-  Manijaka pustili iz zatvora, a on odmah brutalno ubio dvije eskort dame, jednoj je odrubio glavu
+-  장나라 "촬영감독 남편에 '좋아한다' 먼저 고백…결혼하겠구나 직감"('유퀴즈')
+-  ‘나는 솔로’, 첫 데이트부터 후끈…“3개월 만에 결혼도 OK”
+-  "Menet huomenna kouluun!" – Luke Littler, 16, on täysin poikkeuksellinen darts-lahjakkuus
+-  Viene delegación de EU a México por más control migratorio
