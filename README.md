@@ -1,51 +1,51 @@
 # Latest News
--  Mpumalanga man charged with statutory rape of teenage girl
--  '옥문아' 이찬원, 최수영 실물에 감탄 "방송과 차원 달라"
--  '유퀴즈' 김창옥 "몇 년 전부터 깜박깜박…알츠하이머 검사 받는다"
--  Trafik polislerinin hizmetine verilen Ferrari İstanbul sokaklarına çıktı
--  Beşiktaş ile ismi geçen Sergen Yalçın'dan açıklama!
--  Cumhurbaşkanı Erdoğan: TEKNOFEST ülkemiz genelinde uyanışa vesile oldu
--  MSG en önemli üyesini kaybetti! Efsane BURHAN BAYAR istifa etti
--  Pokemon Scarlet & Violet has hidden animations you’ve probably never seen
--  F1-pomolta kova arvio eräiden kuskien kohtalosta
--  Tuomaristo ei nähnyt mitään jäähyn arvoista – SM-liiga reagoi törkytemppuun
--  Manchester United harkitsee yllätyshankintaa
--  Galatasaray'dan sürpriz karar. Sözleşmesi donduruluyor
--  Yeşil modanın önde gelen markalarından Koton, sürdürülebilirlik raporunu ve hedeflerini açıkladı
--  Otomobilin çarptığı motokurye hayatını kaybetti!
--  Aprueban exploración sísmica de proyecto de exploración offshore en el sur
--  James May reveals ‘brutal truth’ about future with Jeremy Clarkson and Richard Hammond
--  Overwatch 2 players want key Mercy nerf to her rez ability
--  بعد مرور 16 عاما على رحيل بينظير بوتو.. لا يزال سر اغتيالها معقدا
--  Heaven ,Marco todo ang harutan
--  "Das Traumschiff": Neue Folge im ZDF zeigt pikante Szenen mit Florian Silbereisen
--  Opinie | Raak elkaar niet kwijt
--  7 games like God of War you should play in 2024
--  Bildergalerie: Das Leben von CDU-Urgestein Wolfgang Schäuble in Bildern
--  الزمالك يعلن موقفه من التجديد لشيكابالا وأوباما
--  Mathieu van der Poel troost Felipe Nystrom na botsing: ‘Iedereen maakt weleens een foutje’
--  Παρτιζάν: Χωρίς Σμάιλαγκιτς κόντρα στη Βίρτους
--  Yiyip içip hesap ödemeden kaçtılar
--  Ya se sabe cuándo llegará el Nothing Phone 2a y los detalles de su cámara
--  DA LI JE STVARNO BOLEST ILI SVE UMIŠLJATE? Srpski doktori otkrivaju da li HIPOHONDRIJA skraćuje ili produžava život
--  PARTIZAN OSLABLJEN NA VIRTUS! Željko Obradović otkrio: On sigurno PROPUŠTA narednu utakmicu!
--  DAN NAKON NAPADA NA KRIM OPKOLJEN CENTAR POGOĐENOG GRADA! Ukrajinci tvrde da ruske vlasti ispituju ljude na ulici, traže ŠPIJUNE
--  Po útoku na univerzitě zasedá krizový štáb. Studenti si přišli pro osobní věci
--  Bakan Işıkhan'dan TÜRK-İŞ’e asgari ücret ziyareti
--  Construction works for central Kaimakli road to begin in January
--  Nevşehir'de 'torbacı' operasyonunda 71 gözaltı
--  Jahres-Horoskop 2024: Zwillinge vor großem Wandel – das steckt dahinter
--  Driver killed in single-vehicle crash in Val-des-Monts, Que.
--  Lekkie spadki na kontraktach
--  Dengue death toll in Bangladesh this year nears 1,700, caseload hits 320,835
--  Η έξαρση των ιώσεων στα παιδιά «γονάτισε» τα Νοσοκομεία Παίδων τα Χριστούγεννα
--  Novos Galaxy A15 e A25 terão Android atualizado até 2027
--  AMD Radeon RX 7000 e RX 6000 recebem suporte para BlueskyFRC
--  17 ситора болои саҳна ва дунёе аз эҳсосот: «Tarona Music Award-2023” чӣ гуна гузашт?
--  Световната титла на Меси "отнела" първата "Златна топка" на Холанд - Труд
--  Erkek sünneti, HIV enfeksiyonuna karşı koruyor!
--  “공인 노무사 포기하고 세계 여행, 후회 없어요”…전문직 던진 여행 유튜버 [여행人터뷰]
--  Al Ittihad-Al Nassr 2-5, Ronaldo batte Benzema con una doppietta: CR7 miglior marcatore del 2023
--  I lost a worthy co-fighter for South-West cause – Makinde mourns Akeredolu
--  مشروع قانون لإعادة تنظيم آليَّة استغلال مصادر الطَّاقة المتجدِّدة
--  الوكالة الوطنية: قصف مدفعي إسرائيلي يستهدف غرب ميس الجبل
+-  1 Ocak'ta Uyandığınızda Bunlar Değişmiş Olacak! İşte Başlayacak 5 Yenilik
+-  ‘Gomburza’ humakot ng award sa MMFF
+-  Националите до 18 г. заминаха за контроли в Италия
+-  Песков: Парите на Запада за Украйна няма да променят хода на събитията
+-  La vignetta del giorno
+-  3 Best Paramount Plus Video Downloader for Windows/Mac PC
+-  «استئناف دبي» تؤيد معاقبة خاطفي متعثر في ردّ مبلغ
+-  Biskup Komarica prozvao Čovića zbog položaja Hrvata u RS
+-  Doğuma Geldiler, Cenazesini Aldılar: Bebeğe Otopsi Yapılacak!
+-  Soğuk kış günlerinin vazgeçilmezi pırasayı yerken bir kez daha düşünün. Bedeni diri tutuyor
+-  Libra 28 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  An in-depth reveal of how to download Amazon prime video to MKV format!
+-  Nevşehir'de düzenlenen 'torbacı' operasyonunda 71 gözaltı
+-  নির্বাচন নয়, নাটক হচ্ছে: ইইউ প্রতিনিধিদের বিএনপি
+-  Death toll in Romania guesthouse blaze rises to 7, search for missing persons ongoing
+-  Prelijep prizor iz Sarajeva: Djeda Mrazovi obradovali mališane iz vrtića 'Košuta'
+-  Önem ne demek? Önem isminin anlamı nedir?
+-  Miro Lazović pristupio Demokratskoj fronti
+-  لجنة لتطوير الحقول الحدودية المشتركة بين العراق وإيران
+-  Kurti: Odluka o kosovskim tablicama je još jedan manevar vlasti u Beogradu
+-  Dünyada 2023 böyle geçti: İşte gün gün yaşanan önemli olaylar
+-  Kendisine pornografik film gönderen patronuna dava açtı. Taciz skandalında detaylar...
+-  Panathinaikos'a imza atan Fatih Terim ilk transferini Süper Lig'den yaptı bile! Beşiktaş'ın istediği oyuncuyu 1 günde ikna ettiler
+-  Zoektocht op de Merwede bij Gorinchem naar vermiste Yoran (16) uit Sleeuwijk
+-  Akeredolu’s demise painful loss to Yorubaland, Nigeria – Makinde
+-  Duyan komşusunu da alıp gidecek! Tarım Kredi'den kasap raflarını boşaltacak indirim: Kıyma ve et fiyatları düştü
+-  Otomobilin Çarptığı Moto Kurye Hayatını Kaybetti!
+-  SPAK kërkon “arrest shtëpie” për ish-kryeministrin Sali Berisha, ja kur do të shpallet vendimi
+-  뉴욕증시 프리뷰, 미 주가지수 선물 'S&P500 전고점' 앞두고 숨고르기...테슬라·코헤러스 바이오이언스↑
+-  Cien personas trabajan en las obras del Hospital de Albacete
+-  Asgari ücretlinin maaşına haciz gelmesin teklifi meclise sunuldu
+-  Валиева — о судебном разбирательстве по делу о допинге: «Хочется уже узнать итог»
+-  Soignies : il agresse des policières intervenues pour le calmer, et tient des propos misogynes et racistes à l’égard d’une d’elles
+-  En un año, trece partidos políticos se inscribieron en el JNE
+-  Arrestimi i Berishës, GJKKO nuk merr as sot vendim
+-  Als topdanser kon ze niet naar de Olympische Spelen, als sportarts wél
+-  El motivo por el que nunca deberías guardar estas cosas en el armario del fregadero
+-  Sensación térmica de -3 grados esta mañana
+-  Inicia la fiesta
+-  Na juhu Grécka havarovalo cvičné lietadlo armády: Pilot zahynul
+-  Muž (33) ukradol v Bratislave auto: Polícia prípad vyriešila v priebehu pár hodín
+-  Programmänderungen: Diese Sendungen zum Tod Wolfgang Schäubles laufen am Mittwoch im TV
+-  Polícia obvinila majiteľa chaty: V lete v nej došlo k výbuchu plynu
+-  FENERBAHÇE HABERLERİ - Marsilya'da Cengiz Ünder pişmanlığı! Gattuso isyan etti
+-  SMUVAO DŽEHVU, PA STIGAO U BEOGRAD: Slikali ga na JAHTI sa Teodorom, zbog njega je dolazila na Partizan! (FOTO)
+-  2024 Kia Sportage review
+-  Gaza diz que número de mortos passa de 21 mil
+-  Petković pisao Kvinti: Očekujem da Kvinta odbaci i osudi Svečljine klevete o Civilnoj zaštiti
+-  The best British TV shows on Netflix
+-  Na Krvavcu odprli novo šestsedežnico
