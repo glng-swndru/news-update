@@ -1,51 +1,51 @@
 # Latest News
--  Suparnik Dinama u šesnaestini finala KL doveo američkog veznjaka
--  Asgari ücretle birlikte değişecek ödemeler! İşte kalem kalem tam liste
--  헌정사 첫 검사 탄핵심판, 오늘 첫 변론준비기일
--  כמעט שיא יורוקאפ להפועל ת"א. פרנקו: "ניצחנו בזכות האופי החיבור"
--  אבוקסיס: "מבאס להפסיד כך, בטח כשאתה תופס את מכבי ביום כזה"
--  חשש לקרע ברצועה הצולבת של ניר ביטון, שצפוי לעבור MRI
--  Aaj Ka Mithun Tarot Card: मिथुन राशि वाले नई शुरुआत में पाएंगे सफलता, जीतेंगे सभी का दिल
--  Modern Control of a Logic Analyzer
--  Former Head of the Reggae Girlz Named New Head Coach of Chicago Red Stars
--  고용부, 겨울방학 중 학교 석면 해체·제거작업 집중 감독
--  [여론조사] 한동훈 비대위, 국힘에 '유리' 48.2%…"한동훈 신드롬 강타"
--  [눈꽃 동행축제] 먹거리 안전·전통 지키는 K-밀키트…지원·한마당 밀키트 '시선집중'
--  Jak zemljotres kod ostrva Čiovo
--  '10억 수수' 이정근 대법 판단…항소심서 징역 4년 2개월
--  [여론조사] 국민의힘 42.4% vs 민주당 35.7%…"한동훈 컨벤션 효과"
--  Viral Minibus KONI Kota Bekasi Terbakar di Tol Cipularang, Berikut Kronologinya
--  서울교육청, 2024년 신년 화두 '본립도생'…"기본이 바로 서야"
--  Zlatibor obara sve turističke rekorde, popunjen skoro sav kapacitet VIDEO
--  Ocorrências com água-viva aumentam 817% em SC em relação ao ano passado
--  [여론조사] 尹대통령 지지율 0.3%p↑ 42.6%…"한동훈 등판 효과"
--  FK Sarajevo se pohvalio oborenim rekordom
--  [재미있는 오늘의 운세] 2023년 12월28일
--  Yeni asgari ücret ile ilgili bir sürpriz artış daha; Net rakama eklenecek
--  Arus Balik Nataru, 18 Ribu Lebih Kendaraan Lalui Jalan Tol Terbanggi Besar - Kayu Agung
--  美, 우크라 전쟁 '승리에서 방어'로 전환 준비...'평화 협상 대비'
--  Decembertől megnőttek a legkisebb bérek
--  창업기업 평균 3억 투자해 연간 2억4000만원 벌었다
--  I Don't Think Male Sports Fans Are Ready to Go to War With Swifties
--  Invitan a caminata de fin de año a San Judas
--  Presume 'chapodiputada' su nueva vida
--  Hospitais de Gaza em rutura. OMS fala em "banho de sangue" e "carnificina"
--  Kendisi 1.5 heykeli ise tam 6.5 metre! Shakira'nın devasa heykeli herkesi hayrete düşürdü...
--  Ku është Erling Haaland? Guardiola ofron përditësimin e dëmtimit të Haaland
--  Cuál es el número de la suerte para 2024 y qué hay que tener en cuenta
--  Vo veku 94 rokov zomrel rakúsky výrobca pištolí Gaston Glock
--  Rodri ofereceu (literalmente) este golo ao Everton. City ficou em apuros
--  Stjuardesa proganjala pilota: Određen joj pritvor
--  TEM Otoyolu Ankara yönü trafiğe kapatıldı
--  Εντυπωσιακές εικόνες από το «Ψυχρό φεγγάρι», την τελευταία πανσέληνο του 2023
--  Olympic gold medalist Stephanie Rice cuddles up to new Aussie boyfriend during romantic road trip after meeting him a church
--  المنصور: لا علاقة للقوات المشتركة باستهداف فندق عدن
--  İran ve Rusya'dan dolar kararı: Ticarette kullanılmayacak
--  Mersin'de zincirleme kaza: 2 ölü, 4 yaralı
--  Manchester City, Claudio Echeverri transferini bitiriyor
--  Woman seriously injured as her car is pushed into pole on Mildura road in Victoria
--  Dve od ove četiri ekipe će igrati na Kupu Radivoja Koraća u Nišu: Sigurno ćemo videti bar jednog debitanta
--  Clan Castedo: Casación Penal confirmó las condenas para líder e integrantes
--  Cap D'Any ad Alghero, tutto pronto per tre notti di spettacolo
--  MA, KAKVA NBA LIGA? GUBILI BI I U EVROKUPU! Bogdanović i ekipa se BRUKAJU, dok trener zarađuje BOGATSTVO!
--  Oglasio se Janjušev drugi brat: Nakon Mihajlove sahrane poslao jednu poruku svojim prijateljima
+-  HomePod prototype with touchscreen LCD on top shows up in new images
+-  Футболист осъди съдия в Ла Лига
+-  عاجل.. مداهمة مفاجئة لحوش عشوائي لإنتاج الحلويات بجدة .. وهذا ما عثر عليه
+-  المرور: خدمة مبايعة المركبات تتيح للأفراد إمكانية إتمام المبايعة آليّاً عبر "أبشر"
+-  استشاري يحذر من خطورة نظام الكيتو لمرضى السكري
+-  موعد إيداع الضمان الاجتماعي لشهر يناير وشروط وخطوات استحقاق الدعم
+-  مشهد يفوق الوصف.. وعل ينقذ بقية القطيع من موت محقق بطريقة مبهرة
+-  Alcalde de NY restringe la llegada de nuevos autobuses con migrantes
+-  Noche Blanquiazul 2024: fecha y estadio confirmados para la presentación de Alianza Lima
+-  New York Times съди OpenAI и Microsoft за нарушаване на авторските права
+-  El adulto mayor iba en bicicleta: “pega y huye” acaba con la vida de don Manuel en El Fuerte
+-  Rusya ve İran arasında dikkat çeken anlaşma
+-  삼성전자, 혁신가전 출격대기…규제샌드박스 승인
+-  [MD포토] 故이선균, '여전히 환한 미소'
+-  [오피셜] 닥공 부활? 전북, '득점 2위' 티아고 영입..."최고의 팀에서 우승하겠다"
+-  [MD포토] 故이선균, '환한 미소와 함께'
+-  잉글랜드 > 프랑스 > 브라질, 선수 몸값 톱50 국가별 랭킹…클럽 최다는 맨시티
+-  ‘2주 AVG 0.414’ KIA 22세 호주 유학생 심상찮네…144G 레이스, 내야에도 고종욱·이창진 절실
+-  [MD포토] 故이선균, '이별의 미소'
+-  [MD포토] 故이선균, '믿을 수 없는 이별'
+-  "左 쏘니-右 데얀-中 매디슨 그리고 최전방 이 FW"…빌라 전설 FW의 강력 촉구, 히샬리송은 아니다! 누구? "토트넘 공격진은 정말 무서워질 것"
+-  양 팀 감독이 함께 외쳤다! "오늘 경기는 매우 중요...선수들 스스로 한계 깨기를 바란다" [MD용인]
+-  [MD포토] 故 이선균, '하늘나라로 간 나의 아저씨'
+-  경찰 "故이선균 부검 미실시 검토 중…유족 원치 않아"
+-  1년 만에 CWS→LAA→CLE→124년 만의 불명예→FA…'선발 투수 필요' 보스턴이 관심
+-  대한체육회 이사회, 문화체육관광부 업무행태 관련 성명서 발표
+-  '헐크 앞에서도 당당' KIA 3R 신인포수 …"잘 잡고, 잘 막고 잘 던진다, 단점은 딱히 없다" 넉살까지 [곽경훈의 현장]
+-  CNN·BBC 등 외신 "'기생충' 배우 이선균 사망" 1면 집중보도 [종합]
+-  옥주현, 완벽 무대 뒤 숨겨온 불안 고백 "매순간 두려워" [금쪽상담소]
+-  "떠날 감독이라 힘을 완전히 잃었다!"…레알 수뇌부, 안첼로티 선수 영입 의사 단박에 거부! "페레즈에 반하는 제안" 누구 영입 시도했길래?
+-  “다저스, 아직 끝나지 않았다…” 김하성과 헤어지고 오타니에게? 165SV 클로저까지 데려가나
+-  한화 건설부문, '풍력 고정가격계약 경쟁입찰' 사업자 선정
+-  '족집게 문어' 에브라의 강렬한 데뷔전…맨유 3-2 역전승 예상 적중! "나는 맨유가 3골 넣고 승리할 거라고 말한 유일한 미친 사람"
+-  서울 '월드컵대교 남단 램프 2개소' 29일 개통
+-  "이길 수 없으면 합류하라" 명언 '선배'의 기록 깨졌다!...19세 유망주 FW, 24년 만에 경신
+-  최근 1년간 신도시 광역·전세버스 등 194대 증편…이용객 7만명↑
+-  “팬들은 돈 내고 들어와서 오래 즐기고 싶지 않나?” 한화 41세 레전드가 본 피치클락 ‘예리한 지적’
+-  올해 마지막 '뉴:홈' 사전청약…4734호 규모
+-  '강유림·배혜윤 27점 합작' 삼성생명, 초접전 끝에 하나원큐에 신승...2연패 탈출+단독 3위 [MD용인]
+-  국토부 PF조정위, 총 14조원 규모 조정안 마련
+-  "글래스노우, 야마모토 영입하고도 선발진 강화 원해"…커쇼, 다저스와 재결합하나
+-  김창옥 "유재석 보니 눈물 나려 해…막내 누나 닮았다" 폭소 [유퀴즈]
+-  '통합 셀트리온' 시대 개막…서정진, '2030년 매출 12조' 자신
+-  50세 스타강사 김창옥 "알츠하이머 의심 진단…母 못 알아보면 어떡하지?" [유퀴즈](MD리뷰)
+-  'New 구단주' 등장과 함께 피바람 분다!...대상은 감독 아니다? "최대 300명까지 해고한다"
+-  "우리 팀이 보유하기에 그 FW는 너무 크다!"…라리가 감독의 고백, "그는 전 세계 어떤 팀에서도 뛸 수 있는 FW" 누구?
+-  이선균 비보에 연예계 일정 줄줄이 '스톱'…SNS 추모 물결 [종합]
+-  4쿼터 맹추격에도 패배한 하나원큐...김도완 감독 "상대팀이 우리보다 더 간절했다" [MD용인]
+-  워니 31점·7리바운드·6어시스트, SK EASL 필리핀 원정 1점차 승리, 메랄코 제압
+-  미모의 18기 정숙, 34세 승무원 출신 영어강사…"꼭 짝 찾고파" [나는 솔로]
