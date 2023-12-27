@@ -1,11 +1,11 @@
 # Latest News
--  الزكاة تفرض 3 غرامات على المنشآت الأجنبية بسبب ضريبة الدخل
--  ما فضل صيام أيام البيض؟ "الخثلان" يُجيب
--  أمطار المدينة.. البرق يضيء سماء المسجد النبوي (فيديو)
--  ينتهي قريبًا.. استمرار التقديم على وظائف الحرس الوطني لحملة البكالوريوس فأعلى
--  أمطار المدينة.. غزيرة رعدية على المسجد النبوي والمحافظات
--  부영그룹, 공군 체육시설 개선 위해 28억 쾌척
--  Veli suree Michael Schumacheria – ”Elämä on joskus epäreilua”
--  いやな気持ち、やさしい言葉で伝わる？奈良の学校で配布文書巡り議論
--  서울시 문화재정책과, 워크온 ‘서울윈타2023 같이 걸어요.’ 이벤트 진행
--  "เศรษฐา" แบ่งงานใหม่ ให้ "พีระพันธุ์" ดู "ยุติธรรม" แทน "สมศักดิ์"
+-  코웨이, '룰루 비데 스스로케어' 비데 시장 선두 굳히기 나선다
+-  Indian Navy: Strong possibility of drone attack on MV Chem Pluto in Arabian Sea
+-  Suspecting `possible terror attack`, Israel issues travel warning for India
+-  Israel Embassy blast: 2 youths caught on CCTV, security beefed up in Delhi
+-  Diablo 4’ün 3. sezonunda ne gibi farklılıklar olacak
+-  Charleroi : Ikoab, acteur clé du co-living en centre-ville
+-  Ropa w miarę spokojna po wtorkowym wzroście
+-  Российская ПВО пропустила две ракеты Storm Shadow: новые подробности уничтожения БДК «Новочеркасск»
+-  Шефот на украинската армија: Маријинка повеќе не постои, но сè уште не сме се повлекле
+-  الجيش الإسرائيلي يعلن مقتل 8 ضباط وجنود خلال 24 ساعة
