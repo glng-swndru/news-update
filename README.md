@@ -1,11 +1,11 @@
 # Latest News
--  Dijetetičari savetuju: Obogatite ishranu ovim namirnicama i ublažićete umor
--  Eşini öldürüp, 'deli' numarası yaptı, indirimsiz ağırlaştırılmış müebbet hapis cezası aldı
--  Paramparça olan otomobil, genç kıza mezar oldu
--  Leju Announces Receipt of NYSE Non-Compliance Letter
--  Ayodhya Ram Mandir At Risk Of BIG Terror Attack, Security Beefed Up Ahead Of Inauguration
--  عزيزي الرجل .. هذا الخطوات تحافظ على خصوبتك
--  أعضاء في الجسم لا فائدة منها قد لا تعلم بوجودها
--  Nemački mediji: Vučić odbija da popusti i zahvaljuje Moskvi
--  China is Catching up to The Global Generative AI Development Race
--  Den tidligere bokser Tom Bogs er død
+-  أغربها رقم 4.. منتجات غذائية لا يحتاجها الجسم
+-  Absatz von Tabakwaren 2023 erneut rückläufig
+-  Aldatılan öfkeli kadından vahşi intikam
+-  Kayserispor tarafından kaçırılan İhsan Sakaloğlu yıllar sonra konuştu. Turgay Beşyıldız yazdı
+-  Ruska vojska osvojila strateški grad blizu Donjecka
+-  İstanbul'da kira artış rekoru kıran 6 ilçede mahalle mahalle rakamlar açıklandı! İşte en ucuz ve en pahalı kiralar...
+-  Kış aylarında su içmeyi azaltmak hastalıklara davetiye olabilir
+-  Bosch fabrikasında işçilerin eylem sürüyor: Burası BOSCH cepler boş
+-  SPN: Podneta krivična prijava zbog fantomskih glasača u Zrenjaninu
+-  Nach 22 Jahren: Hannawald glaubt an deutschen Vierschanzen-Triumph
