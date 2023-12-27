@@ -1,11 +1,51 @@
 # Latest News
--  Bakıda evdə meyit tapıldı
--  أسعار السمك والمأكولات البحرية في سوق العبور اليوم الأربعاء
--  Celebran Duelo de Leyendas para despedir el año
--  MT: Puolet suomalaisista haluaisi Suomen boikotoivan Pariisin olympialaisia
--  Rosja ostrzega kluczowych sojuszników USA. "Poważne konsekwencje"
--  "שישה דברים שבהם היטלר עדיף על טראמפ": הציוץ של ג'ון קליז מסעיר את הרשת
--  זה כבר ההסכם הקואליציוני השני שנתניהו פשוט קורע לגזרים
--  Toyota's Daihatsu shuts factories in safety test probe
--  卵巢癌｜女子尿頻驚見15cm腫瘤 確診致命癌症 出現腹脹8症狀須求醫
--  Guerra entre Israel y Hamás ya deja más de 21.000 muertos en la Franja de Gaza
+-  Shakira’s Colombian home city unveils statue in her honor
+-  "천연자원이 풍부한 라오스는 한국과의 윈윈 동반 성장을 원하고 있습니다”
+-  IMF World Economic Outlook: Kazakhstan Leads in GDP Growth Among Central Asian, CIS States
+-  Nonsan Strawberry Festival ranked No. 1 in Chungcheongnam-do's '1 County, 1 Product Festival' list
+-  JB Financial Group signs strategic investment agreement with hanpass
+-  Fitch: Giá nhà sẽ tăng nhanh trong năm 2024 sau khi Fed cắt giảm lãi suất
+-  Giá vàng điều chỉnh, người dân Hà Nội xếp hàng đi bán vàng
+-  Tỉnh dự kiến tăng trưởng dẫn đầu cả nước thưởng Tết thế nào?
+-  Để pháo nổ tràn lan, lãnh đạo huyện và xã phải chịu trách nhiệm
+-  Chủ tịch Vạn Thịnh Phát 'rửa tiền' thông qua đầu tư bất động sản, chuyển tiền ra nước ngoài
+-  Bắt cục phó Cục Quản lý giá Bộ Tài chính trong vụ án liên quan thứ trưởng Đỗ Thắng Hải
+-  Ông Lê Đức Thọ bị bắt vì sai phạm khi làm bí thư tỉnh Bến Tre
+-  Loạt SUV mới, giá dưới 1 tỉ đồng ra mắt Việt Nam năm 2023: Mazda CX-5 nổi bật nhất
+-  Điểm tin 18h: Triển vọng kinh tế toàn cầu 2024; Chiến sự Nga và Ukraine nóng rực
+-  Tin tức giải trí 27-12: Cảnh chồng đầu của Quốc Cơ, Quốc Nghiệp vào cuộc thi hoa hậu
+-  Phó vụ trưởng Vụ Thị trường trong nước Bộ Công Thương bị bắt trong vụ án Xuyên Việt Oil
+-  Dự án điện gần 1 tỉ USD ‘thần tốc’ 4 tháng làm thủ tục vẫn lo chậm vì vướng đất rừng
+-  Đề xuất đặt tên đường Phan Văn Khải từ An Sương tới Tây Ninh
+-  14 dự án điện mặt trời hưởng giá ưu đãi không đúng, chủ đầu tư làm ăn ra sao?
+-  Mặt đất nứt toác nhiều nơi, con người gây ra và đang gánh hậu quả
+-  Khu xử lý rác thải lớn nhất Đồng Nai muốn giảm 50% khối lượng tiếp nhận
+-  Điều tra vụ một người chết bất thường gần khu vực cổng Đại học Kinh tế TP.HCM
+-  TP.HCM: Lại xếp hàng từ sáng tới chiều chưa đăng kiểm xong
+-  Yêu cầu Bộ Tài chính báo cáo việc sửa quy định liên quan trái phiếu doanh nghiệp
+-  Người trẻ có sợ trách nhiệm?
+-  Yaşar Okuyan için Meclis'te cenaze töreni
+-  Rusya Sözcüsü Zaharova'dan ABD'nin dış politikasına tepki
+-  Nhường đất xây khu đô thị sinh thái, dân tái định cư khốn khổ vì thiếu nước sạch
+-  Edin Dzeko'dan anlamlı hareket
+-  Yêu cầu khẩn trương hoàn thành, báo cáo kết quả kiểm tra vụ Vạn Thịnh Phát, AIC, FLC
+-  Thang máy một chung cư liên tục ‘rơi tự do’, cư dân bất an
+-  TCP Việt Nam: Kiên định với mục tiêu tiếp năng lượng cho thanh niên Việt
+-  Tiền nuôi gấp 60 lần tiền mua, chủ ô tô đổi sang xe đạp, scooter điện
+-  Bia Hà Nội chinh phục thị trường Mỹ
+-  Hợp tác nghiên cứu khoa học nông nghiệp với trường đại học của Ấn Độ
+-  Lan tỏa tinh thần chinh phục công nghệ với Samsung Innovation Campus
+-  Bên trong công trình trùng tu nhà thờ Đức Bà trị giá 760 triệu USD
+-  Nevşehir'de helikopter destekli uyuşturucu operasyonu
+-  Ông Đinh Trường Chinh không bàn giao đất đã ký với người dân để chiếm đoạt
+-  Nuorten Leijonien kokoonpanoon muutos Kanada-tappion jälkeen
+-  #AskSRK: SRK Has a Hilarious Reply For Fan Who Complains About Dunki's Marketing
+-  পতনেও ফ্লোর প্রাইস ভেঙ্গে ৮ প্রতিষ্ঠানের লেনদেন
+-  Президентские амбиции Патрушевых
+-  Sidee Ayuu Tartanka Qaramada Afrika U Saamayn Doonaa Horyaalka Premier League? – Akhriso Xiddigaha Waaweyn Ee Ka Tegaya Kooxahooda
+-  MDP rüşvet iddialarıyla ilgili polisi göreve davet etti
+-  圆心科技营收上涨43.1%，赴港IPO新动作备受瞩目
+-  甲骨文焕新生、千年瓷都魅力强……感受优秀传统文化的力量
+-  车轮经济观察|一张“充换电网”里的新基建速度
+-  新闻1+1丨建设全国统一大市场，进展如何？
+-  回到课堂 迎接明天——甘肃积石山县中小学有序复课
