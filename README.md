@@ -1,11 +1,11 @@
 # Latest News
--  Στο Κοκκινοχώρι Καβάλας σήμερα η ταφή του Βασίλη Καρρά
--  Ubat perangsang seks paling banyak dirampas di dunia
--  女人冬天吃什么美容养颜效果好
--  女性吃苹果能美白吗
--  女人喝蜂蜜水能美白吗
--  Acclaimed Colophon Foundry Joins Monotype Family
--  에이피알, 증권신고서 제출로 유가증권시장 진입 준비
--  JinkoSolar Announces Results of 2023 Annual General Meeting
--  카카오, ‘우리동네 단골시장’ 프로젝트 성료…우수시장 시상식
--  우리은행, 마이데이터 기반 AI 금융상품추천 서비스 오픈
+-  Ljusgrön mellandagsöppning väntas – här är fem saker att ha koll på
+-  KOLIKO JE NEVIDLjIV SU-57: Rusija hvali svog lovca 5. generacije, ali i dalje ga ne šalje na Ukrajinsko nebo (VIDEO)
+-  В Алматы более 300 девушек снимались в порнофильмах. Задержан организатор. Видео
+-  На Дону два человека пострадали в ДТП с участием авто медслужбы военных
+-  Ученые ТулГУ с коллегами из КБР создали новый композитный материал
+-  Бастрыкин выразил недовольство работой рязанского следкома
+-  Александр Бастрыки поручил проверить работу курского Следственного управления
+-  Ученые раскрыли секрет самого лучшего подарка на Новый год
+-  Τα Παράσιτα: Αυτοκτόνησε ο ηθοποιός Λι Σουν Κιουν, ένας από τους πρωταγωνιστές της ταινίας
+-  Irinel Columbeanu: „Îmi lipsește o doamnă serioasă!”. Ce a spus fostul milionar despre Monica Gabor
