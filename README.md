@@ -1,5 +1,43 @@
 # Latest News
+-  Gökhan Zan, İYİ Parti'den İstifa Etti
+-  Η Τζόρτζια Μελόνι ταλαιπωρείται ακόμα από γρίπη και ανέβαλε ξανά τη συνέντευξη Τύπου
+-  İbrahim Maalouf İstanbul’a gelecek
+-  Une marche blanche sera organisée en hommage à la famille tuée à Meaux
+-  Marseille: une belle année pour le Vélodrome, avec 1,5 million de spectateurs en 2023
+-  Villas, voiture de luxe... La nouvelle vie de l'Américain vainqueur du jackpot de 2 milliards de dollars
+-  Bakan Vedat Işıkhan açıklama yapıyor
+-  Salt’tan yeni e-yayın: Başka Kayda Rastlanmadı
+-  Malgré l’arrivée d’Ineos à Manchester United, Nice va garder le cap et continuer d’être ambitieux
+-  Nice: la salle Serge Leyrit transformée en accueil de nuit pour les personnes sans domicile fixe
+-  Μίρκα Παπακωνσταντίνου: Ο Δάνης Κατρανίδης είναι άνθρωπος της ζωής μου
+-  غیر ملکیوں کو غیر قانونی شناختی کارڈ کس نے جاری کیے؟ نادرا سے بڑی گرفتاریاں
+-  Αταμάν για το Παναθηναϊκός – Ερυθρός Αστέρας: «Ο Λεσόρ είναι πιθανό να αγωνιστεί στην αναμέτρηση»
+-  देश की खबरें | राम मंदिर उद्घाटन में नहीं बुलाया गया है: शरद पवार
+-  Mevduatta hep aynı getiri hayali gerçek mi?
+-  Amenazas al fiscal y una confesión de pago de coimas en la causa Walter Bento
+-  Mascotas: estas son las terribles consecuencias de dormir con tu perro
+-  Ami conquista il mondo del turismo
+-  Mehmet Akif Ersoy İstanbul’da anıldı
+-  Sibel Can bu diyetle kızını da zayıflattı! Anne kızı dal gibi yapan yöntem: Ödemi de yağı da vücuttan foşur foşur atıyor
+-  Los expresidentes de Aragón tendrán derecho a seguridad y chófer durante ocho años tras dejar el cargo
+-  مجلس الأمن الوزاري يناقش تسليم الملف الأمني وطلباً للبنان بشأن مطلوبين
+-  Jack Smith asks judge to bar Trump from making 'political attacks' in 2020 election trial
+-  Ruotsissa reagoitiin Nuorten Leijonien fiaskoon: ”Jättisensaatio”
+-  Kılıçdaroğlu'ndan 'Sinan Ateş' paylaşımı: Cinayetin üzerinin kapatılmasına müsaade etmeyeceğiz
+-  Soccerladuma | Mosimane & Queiroz 'Lead' Race To Take Charge Of African Giants
+-  Show TV Arak 2. bölüm yayınlanacak mı? Arak yeni bölüm neden yok? Arak dizisi için flaş karar...
+-  Trabzonlu amca bahçesine marul ekerek paranın belini kırdı! Şimdi koca sera sahibi, market ve hallere 30 çeşit ürün satıyor
+-  KOD SRBA ZMIJA SE ČESTO POJAVLJUJE U SNOVIMA! ŠTA TO ZNAČI? Sanjanje SMRTI je zapravo dobro, a evo šta predstavlja AFERA
+-  The New York Times sues OpenAI, Microsoft over use of its stories used to train chatbots
+-  El Gobierno incorporará 884 plazas en la Administración del Estado para estabilizar el empleo temporal
+-  Jack Smith asks judge to bar Trump from making 'political attacks' in 2020 election trial
+-  Record $1.6 billion Mega Millions jackpot claimed in Florida: What we know about the winner
+-  Marinika Tepić štrajkuje deseti dan, poslanici Grujić i Veselinović moraju u bolnicu
+-  "J'arrive pas à expliquer (...) c'était une amie", une voisine de la famille tuée à Meaux témoigne
+-  देश की खबरें | सरकार को मराठा समुदाय के खिलाफ बिना वजह मामले दर्ज नहीं करने चाहिए: जरांगे
+-  Süper Lig ve Avrupa'yı bekleyen büyük tehlike. Öfke ve endişe hakim
 -  Jean Ferrari confirma que está cerca de contratar al nuevo DT de la 'U': "Ganó varios títulos"
+-  Com foco em inovação no mercado imobiliário, LMR Participações expande em Itajaí e região
 -  Rusijos kariuomenei pradėti tiekti snaiperiniai „Kalašnikov“ pagaminti šautuvai
 -  „Gali įvykti sprogimas.“ Kaip galima perkrauti akumuliatorių
 -  [ŽT] Karščiausi vaizdai tiesiai iš mūšių. Unikalus video iš Izraelio karių kūno kamerų (Video)
@@ -9,3 +47,5 @@
 -  [ŽT] Putinas sužinojo apie „Novočerkasko“ katastrofą
 -  4 yıldır aranan FETÖ firarisi ihraç kurmay binbaşı yakalandı
 -  BM Genel Sekreteri Guterres: Bir sonraki salgına hazır değiliz
+-  Filistin'de özel sektörün zararı 1,5 milyar doları buldu
+-  Beytüllahim Papazı: Bu soykırım bitmeden hayat normale dönemez
