@@ -1,51 +1,51 @@
 # Latest News
--  Tesla emerges as major player in Korea amid strong demand for German cars
--  Türkiyədə gecənin yarısı, ayın bütünü...
--  Chennai: Ammonia gas leak near Ennore, several hospitilised after suffering from breathlessness
--  จับบ่อทิ้งขยะเถื่อนใกล้แหล่งท่องเที่ยว น้ำเน่าส่งกลิ่น พื้นที่เกือบ 18 ไร่
--  Muere bebé en atropellamiento vial
--  Llevan jugadores de Notre Dame alegría a niños enfermos
--  Caen colombianos por robar miles de pesos y dólares
--  Aussie investor takes A$25m Gentrack stake
--  Two Cannasouth directors resign
--  MMBL Money Transfer expands its network by opening its 3000th outlet to offer Western Union branded money transfer remittances
--  7 Tricks: So setzen wir gute Vorsätze wirklich um
--  So sieht ein gutes Katerfrühstück aus
--  Life | Protecting kids online: A guide for parents on conversations about ‘sextortion’
--  檢, ‘돈 봉투 의혹’ 송영길 구속기간 10일 연장…내달 6일까지
--  দৌলতদিয়া-পাটুরিয়া নৌরুটে ফেরি চলাচল স্বাভাবিক
--  김홍일 후보자 "포털 사회적 책임, 기업 활동 자유 조화 필요"
--  Захарова заявила, что США весь 2024 год будут поддерживать конфликт на Украине
--  Brasil anuncia contratação do lateral-direito Gabriel Biteco
--  Τράπεζες: Τι συμβαίνει με τις νέες ηλεκτρονικές απάτες – Γιατί «κάποιες ειδοποιήσεις είναι καλύτερο να τις αγνοείς»
--  Opferhilfe: „Ahrensmord“-Autoren übergeben Spende an Weißen Ring
--  Η οικονομία, ο Παναθηναϊκός, η τουρκική «εισβολή» και τα ερωτηματικά για …τα μαγικά του χρυσού που επιστρέφει
--  পাটুরিয়া-দৌলতদিয়া ও আরিচা-কাজিরহাট নৌরুটে ফেরি চলাচল শুরু
--  N’Assembly to pass 2024 budget Saturday, rationalises delayed severance to legislative aides
--  Trapped Russian Jail: ਰੂਸ ਦੀ ਜੇਲ੍ਹ 'ਚ ਫਸੇ 6 ਨੌਜਵਾਨ ਭਾਰਤ ਵਾਪਸ ਪਰਤੇ, ਜੰਗਲਾਂ 'ਚ ਪੱਤੇ ਖਾ ਕੇ ਕਰਦੇ ਰਹੇ ਗੁਜ਼ਾਰਾ, ਸੁਣਾਈ ਹੱਡ ਬੀਤੀ
--  Salman Khan, niece Ayat’s birthday: Bobby Deol, Lulia Vantur, others join late-night celebrations
--  Australia weather: Nine-year-old girl killed in storm is identified after she was swept into a drain - as wild weather kills eight, with one still missing
--  Haryana: झज्जर के वीरेंद्र आर्य अखाड़े में राहुल गांधी ने पहलवानों से की मुलाकात
--  Japonya'nın uzay aracı, Ay yörüngesinde
--  Some passengers didn't want to return, they paid for Nicaragua: 'Donkey' flight lawyer
--  Pro Research: Wall Street se sumerge en el sólido crecimiento de ONON
--  La OPI de Mufti Jeans, suscrita más de 50 veces, comienza a negociarse
--  Pro Research: Wall Street observa las perspectivas de Palo Alto Networks
--  Israel Embassy Blast: सीसीटीवी में नजर आए दो संदिग्ध, दिल्ली में इस्राइल एंबेसी के पास धमाके की मिली थी सूचना
--  В Хабаровском крае суду пришлось рассматривать случай заражения опасной инфекцией
--  Pengacara Akui Apartemen di Darmawangsa Belum Masuk LHKPN Firli
--  Φωτεινή Δάρρα: Η ανάρτηση μέσα από το νοσοκομείο – Δυο πράγματα έχουν αξία, η υγεία και η αγάπη
--  عواصف ثلجية تضرب الولايات المتحدة وتتسبب في إلغاء عشرات الرحلات الجوية
--  ‘Zootopia: Hot Pursuit’ Ride Accident At Disneyland In Shanghai After Child Reportedly Got Pinned Under Attraction
--  Jeremy’s WWE NXT Review 12.26.23
--  ‘I lost my mind’: Dog owner recounts dramatic rescue from Werribee rapids
--  ‘I lost my mind’: Dog owner recounts dramatic rescue from Werribee rapids
--  Pints of wine will soon hit Britain's shelves in Churchill-inspired post-Brexit win
--  Αγορά ακινήτων: Γιατί Αμερικανοί και Βρετανοί επιλέγουν τις πολυτελείς κατοικίες της Ελλάδας
--  Blast near Israel embassy: Delhi Police identifies two suspects in CCTV footage; latest updates
--  Anti-drug operation Yukthiya resumes after holidays
--  Felda requests Terengganu Drainage and Irrigation Dept to identify cause of flash floods in Kerteh settlement
--  पाकिस्तान में वाह जम्हूरियत! चुनाव लड़ रहे आतंकी, जोरों पर है हाफिज सईद की पार्टी का कैंपेन
--  Credo Brands IPO listing date today. GMP, experts signal positive debut of shares
--  Группировка «Запад» отразила несколько контратак ВСУ на Купянском участке
--  Innova Captab IPO allotment expected soon. Latest GMP, steps to check allotment status on BSE, registrar's website
+-  27 raka förluster – nytt NBA-rekord
+-  بطاقة مباراة تشيلسي أمام كريستال بالاس في الدوري الإنجليزي
+-  Manchester United'dan müthiş geri dönüş
+-  김홍일 후보 "언론 비판 기능 위축 않도록 오보, 사소한 오류 등 가짜뉴스 제외 필요"
+-  다음 뉴스검색 기본값 CP사 중심 변경에 김홍일 “다양한 언론 기사 유통돼야”
+-  야권 방심위원들 “류희림 위원장 ‘청부민원’ 의혹 사죄하고 사퇴하라”
+-  ‘대표까지 압수수색’ 뉴스버스 “고발사주 보도 보복 수사”
+-  김홍일 방통위원장 후보의 언론관, 이동관과 다를까
+-  박근혜 정부 때 '대리 민원' 넣었던 방심위 직원 파면됐는데…
+-  민원사주 심의 의혹 속 MBC KBS 가짜뉴스 센터 신속 심의 올라
+-  [아침신문 솎아보기] 한겨레 “류희림 위원장, 공영방송 고위 간부까지 지내놓고 이렇게 뻔뻔해도 되는가”
+-  OTT 영상콘텐츠 제작 현장이 영화판보다 힘들 수밖에 없는 이유
+-  “영화노조 교섭 피하려 OTT·드라마 택하는 제작사… 턴키계약 부활”
+-  [미오 사설] 영화 ‘서울의 봄’과 언론이 할 일
+-  YTN·연합뉴스부터 공동체라디오까지 예산 대폭 ‘삭감’
+-  해외 OTT 스태프 노동자 뭉쳐서 살아남았다
+-  김홍일 후보 주식 거래 내역 비공개에 “인사청문 권한 형해화”
+-  [영상] 이재명 “대통령 부부 심기 보전에 앞장선 모습 보기 씁쓸하다”
+-  गहुँको खेती बढाउन उदासीनता
+-  अनुभूति गर्न नसकिएको उपलब्धि
+-  १० वर्षअघिको आर्थिक अभियानबाट : ढुवानी ऐन चाँडो बनाऊ
+-  वृत्ताकार अर्थ व्यवस्थामा बढ्दो चासो : दिगो विकासका लागि महङ्खवपूर्ण औजार
+-  कर्जा प्रवाह तथा असुली व्यवस्था
+-  ‘निकुञ्जको संरक्षण र पर्यटन सँगै अघि बढाउनुपर्छ’
+-  सरकारको १ वर्ष : परिणाम दिन नसकेको प्रधानमन्त्रीको स्वीकारोक्ति
+-  बीमा कम्पनीहरूको लगानी मुद्दती निक्षेपमा सीमित
+-  ओटिसी बजार : दुई महीनामा ४० करोडभन्दा बढीको कारोबार
+-  व्यापार संघको ट्रेड एक्स्पो २०२३ : ७ करोडको कारोबार, ८० हजारभन्दा बढीले गरे अवलोकन
+-  City of Cape Town load shedding schedule – WEDNESDAY
+-  Angespannte Hochwasserlage: Talsperren voll, Deiche brüchig
+-  বাংলাদেশ-নিউজিল্যান্ড টি-২০ সিরিজ শুরু আজ
+-  Asya borsaları tatil dönüşü yükselişte
+-  “추악한 사건에 휘말렸다”... 풀럼 GK, 고의로 시간 지연하는 볼 보이 밀쳤다
+-  Шавкат Мирзиёев Петербургда Владимир Путин билан учрашув ўтказди.
+-  Фуқаролик процессуал кодексига ўзгартириш ва қўшимчалар киритилди.
+-  Ўзбекистон президенти МДҲнинг норасмий саммитида иштирок этди.
+-  Биттадан ортиқ машинага эга оилаларга мол-мулк солиғини кўпроқ тўлаш тартибини жорий этиш таклиф қилинди.
+-  Орол денгизи қуриган тубида экилган саксовуллар космосдан кўрина бошлади .
+-  Германияда Тожикистон фуқароси терактга тайёргарликда гумонланиб ушланди.
+-  हस्तकला उद्योग: कलाबाट कमाइ
+-  "ศุภณัฏฐ์" ซัดประตูแรก ลีกเบลเยียมได้แล้ว
+-  Jelang Tahun Baru, Polisi Antisipasi Arus Mudik di Jalur Bandung-Garut
+-  Benavidez tiene nuevo rival en caso de que ‘Canelo’ rechace la pelea
+-  Крупнейший авианосец США «Джеральд Форд» прибыл к острову Крит
+-  Autoridades ven fortaleza en sistema financiero mexicano
+-  Lee Sun Kyun meninggal dunia, disyaki bunuh diri
+-  LG전자, CES서 스마트홈 'AI 에이전트' 첫선
+-  글로벌 인기 IP 찾는 카카오엔터...창비와 함께 '공모전' 연다
+-  LG유플러스 아이들나라, 고마워토토·삼성서울병원 병원학교 교육 지원
+-  KT, 홈쇼핑 방송사 마케팅 돕는다...지니 쇼핑 인사이트&플러스 출격
