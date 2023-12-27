@@ -1,51 +1,11 @@
 # Latest News
--  Çalışan emeklilere 5 bin TL yasalaştı! Ödemeler birkaç gün içinde yapılacak...
--  יותר מ-30 שנה מאז תמונתו האחרונה: כך נראה מוחמד דף היום
--  Europejski rynek akcji najwyżej w tym roku
--  GPW: spokojny powrót do gry
--  Komentarz po sesji: Spokojny powrót do gry
--  W wyniku ataków Izraela zginęło już ponad 21 tys. Palestyńczyków
--  Vojvoda: “Qui mi sento a casa. A Firenze per prendere i 3 punti”
--  Полицейска блокада в центъра на София: Закопчаха криминално проявен, не спрял на полицейски сигнал
--  Arsenal ‘really short’ on players as Mikel Arteta outlines January transfer plans
--  Bugatti, Pagani und Co. abgesoffen: Erklären Sie das mal der Versicherung
--  Metsäkeskus mittasi testihenkilöiden kuntoa – datan mukaan taimikon raivaaminen käy perustreenistä urheilijallekin
--  Comedian Tom Smothers, one half of the Smothers Brothers, dies at 86
--  Egy animált élet Vácz Péterrel
--  Greece would offer major treasures to UK for Parthenon marbles, minister says
--  Nativos con ‘camionetazas’ y señales de humo, actualidad y prehistoria defendiendo a ‘Macho’
--  Matej Klíma verlängert bis 2027 – Staffan Peter und Nils Greilich erhalten Verträge bis 2026
--  Man taken to hospital with serious injuries after Boxing Day assault in Clydebank
--  Estados Unidos, el destino perfecto para disfrutar de unas navidades diferentes
--  Dışişlerinden Sudan'a seyahat uyarısı
--  Halkbank evinde Hatay BB'yi yendi
--  Buscan apoyo para traslado de muertos en volcadura
--  Pumas ahora pierde a Dinenno
--  Apoyará Estado en pago de ingreso a la universidad
--  Bakan Yerlikaya, Atatürk'ün Ankara'ya gelişinin 104'üncü yılını kutladı
--  Weather in the Google Clock app is much prettier, but there's a catch
--  Wie eine Hauswand in München anti-ukrainischer Propaganda dient
--  Söder: Schäuble hat große Verdienste um Deutschland erworben
--  Bischof: Hessische Verbindung in katholischer Kirche «eine Chance»
--  Auto kracht in Litfaßsäule - 100 000 Euro Schaden
--  Video: un periodista fue agredido en plena marcha de la CGT
--  Apple Watch-Verkaufsverbot: Hier wird sie jetzt zur Mangelware
--  فيديو تشويقي استعدادًا لحفل ليلة "نجمات العرب"
--  شتاء المملكة.. ارتفاع مبيعات المشالح والفرو في سكاكا
--  Silahlılar 2 gündə 198 nəfəri öldürdü
--  Gökhan Zan İYİ Parti'den istifa etti
--  المهندس زيد شرف .. مبارك التخرج
--  تقرير: الشاباك تلقى معلومات حول عملية طوفان الأقصى
--  الصحفي زايد الدخيل.. مبارك المولودة الجديدة
--  Klage von Gegnern abgewiesen: Trump darf auf Wahlzetteln in Michigan bleiben
--  Actor Lee Sun-kyun Of Oscar-Winning Film 'Parasite' Is Found Dead In Seoul
--  [독자시] 새벽시장
--  [사설] 산불용 헬기 임차 국비 지원 마땅
--  [사설] 제2경춘국도 지연 안된다
--  [명경대] 동료 시민과 구경꾼
--  1분 50초… 서울 도심에 쏘아올린 야생
--  백형민 브랜치 댄스컴퍼니 ‘월인천강’
--  국악창작그룹 자락 신작 선보여
--  김유정문학촌 유용태 수집가전
--  민주당 ‘5호 인재’ 강청희 발탁
--  윤, 차관급 6명 인사 단행…기재부 제2차관에 김윤상
+-  Muere a los 98 años el francés Jacques Delors, expresidente de la Comisión Europea
+-  El sector bancario alerta de los efectos negativos de la extensión del gravamen temporal
+-  ¡Más récords para el S&P 500 y el IPC de la BMV en 2024! ¿En dónde invertir?
+-  Los dos principales accionistas de EiDF inyectan 5,2 millones de liquidez a la compañía
+-  Las eléctricas critican la recuperación de impuestos aprobada por el Gobierno
+-  Las acciones de Masimo Corporation bajan después de que un tribunal de apelación suspenda la prohibición de los smartwatches de Apple
+-  Desde trincheras congeladas, las FF.AA. rusas repelen el fuego enemigo usando el invierno a su favor
+-  Botafogo faz nova investida por Cristian Medina, do Boca Juniors
+-  David Guetta diz ter enviado 'Titanium' para Katy Perry
+-  Estupros em São Paulo aumentam 16,6% em novembro
