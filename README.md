@@ -1,51 +1,51 @@
 # Latest News
--  Murder probe launch as car ploughs into huge crowd including cops leaving man, 46, dead & several injured
--  تعيين قائد لأركان البحرية
--  Brentford nærmer sig bunden efter irsk gavebod
--  Brentford nærmer sig bunden efter irsk gavebod
--  Bitzlato suspende las transacciones de Bitcoin en medio de la confusión legal
--  SenesTech firma un acuerdo de distribución con Fruit Tree para los mercados de Hong Kong y Macao
--  HDFC Bank quiere volver a nombrar presidente a Atanu Chakraborty
--  flyExclusive comenzará a cotizar en la bolsa NYSE American bajo el ticker FLYX
--  Strastveni skijaš nam otkrio: “Lani smo u Austriji skijali sedam dana, a ove godine za isti iznos…”
--  [오늘날씨] 평년보다 포근… 미세먼지 '나쁨'
--  여야, 오늘 국회 본회의서 '쌍특검' 표결
--  Почина познатиот британски режисер и актер Дејвид Лиланд
--  Soccerladuma | Chelsea Bounce Back After Late VAR Call
--  Quiso matar una cucaracha e hizo explotar su departamento por los aires
--  Jacques Delors, ex-presidente da Comissão Europeia, morre aos 98 anos
--  Esse foi o melhor filme de terror de 2023: Violência e tensão roubam a cena em longa que bota o dedo na ferida
--  Mersin'de zincirleme kaza! Ölü ve yaralılar var...
--  Gareca y el detalle pendiente para dirigir la selección chilena
--  Le Dr Jacques Schweitzer, ancien président du conseil départemental des Alpes-Maritimes de l’Ordre des médecins, est décédé
--  Basket Pro B. Diminué mais pas résigné, l’Elan sort la tête haute face à Rouen (70-74)
--  LawConnect wins Sydney to Hobart line honours
--  Chelsea 2 Crystal Palace 1: Blues secure much-needed win as Noni Madueke fires home late penalty
--  Pomaže li grožđe u mršavljenju?
--  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
--  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
--  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
--  Što treba čistiti na tjednoj, mjesečnoj, a što na godišnjoj razini?
--  Halle Bailey’s boyfriend DDG buys her $500,000 worth of Christmas gifts including a Birkin bag
--  John Stones suffers yet another injury setback this season in title blow for Man City
--  Znakovi na tijelu koji mogu ukazivati na kardiovaskularne bolesti
--  पुतिन ने प्रधानमंत्री मोदी को रूस आने का न्योता दिया, भारत की दोस्ती देख जल रहा होगा अमेरिका!
--  Vučić: Ne plašim se opozicije i protesta
--  केएल राहुल को कोसने वालों जवाब मिल गया? आलोचनाओं पर चुप्पी तोड़कर सबकी बोलती बंद कर दी
--  2023 की कोहरे के साथ होगी विदाई, नए साल में बारिश और कड़ाके की ठंड, IMD ने बता दिया पूरे मौसम का हाल
--  Tesla's biggest Chinese rival is about to overtake Elon Musk. These fun and affordable models show how.
--  Късна дузпа измъкна Челси срещу слабак у дома
--  تعيين قائدا لأركان الجيش الجوي
--  Privados de libertad eligieron el camino de la educación. Se graduaron mil 280
--  Recuperan auto robado en Pedregal
--  بحكم قضائي.. ترامب باق في سباق الرئاسة الأميركية
--  Vučić idol mnogima u regionu
--  Tras rescindir con River, Salomón Rondón firmó con su nuevo club
--  Gatos que estavam hospedados em pet shop de Pelotas desaparecem
--  Wolves, com três portugueses, soma segunda vitória consecutiva na Premier League
--  Exembajador de Ucrania en EE.UU. afirma que en privado le dicen a Kiev que no cuente con el ingreso a la OTAN
--  Alexander López dispuesto a estremecer la Liga Nacional
--  Bačanima, koncert na poklon od Radeta Šerbedžije
--  صور النساء بأوضاع مخلة.. طبيب مصري يقترب من حبل المشنقة
--  تـركيا ترفع الحد الأدنى للأجور
--  أول ظهور له خارج السودان.. حميدتي يلتقي الرئيس الأوغندي
+-  استيقظ مذعوراً من "كابوس".. جندي صهيوني يطلق النار على رفاقه بعد عودته من غزة
+-  النص الكامل للخطاب الملكي السنوي لأعمال السنة الرابعة من الدورة الثامنة لمجلس الشورى
+-  الخميس 15 جمادى الآخرة.. 4 ساعات بين صلاتي العصر والعشاء بالمدينة المنورة
+-  Polémica moda en China: cercenan orejas de mascotas para que se asemejen a las de Mickey Mouse
+-  Llenar el tanque de tu auto podría salirte 10 pesos más caro en 2024... Te explicamos por qué
+-  Capturan a tres miembros del Tren del Llano tras enfrentamiento con la policía en Apure
+-  Vamos Palencia destaca el trabajo de gestión interna de la alcaldesa pero no se plantea entrar en el gobierno
+-  Tunisie – Un ancien ministre des affaires sociales déféré devant la chambre criminelle
+-  SEVNULA GOLA NOGA LEPE ANICE Lazar Ristovski i te kako ima na šta da bude ljubimoran
+-  El Zunder Palencia se fija en Stefan Moody
+-  New Year's partiers paying $12,500 to ring in 2024 in Times Square
+-  OBOJICA SU SE NASMEJALI Pogledajte potez Alkaraza tokom meča i reakciju Đokovića o kojoj se priča (VIDEO)
+-  Kirkorovun saytı bloklandı
+-  It was a balmy North Shore Christmas, but no temperature records fell
+-  Adamczyk reaguje na decyzję Sienkiewicza. Padły mocne słowa
+-  ¿Pero qué les pasa con los árboles?
+-  El problema de la sequía
+-  #PerroSanxe
+-  Luces y sombras del 'paquete' económico del Gobierno
+-  Los cafres de Vox y la corbata de Bardella
+-  Bolaños tendrá una estación de metro
+-  El hijo de español que tiene un plan para que Alemania salga de la parálisis económica
+-  La Justicia deja en evidencia a Jupol ante su bastión de los antidisturbios y tumba su proyecto de jornada laboral
+-  Sánchez dibuja para 2024 un escenario de continuidad económica y social alejado de las profecías catastrofistas
+-  El proyecto de Milei modifica la “Ley Bignone” y cambia la composición de Diputados: bajaría los escaños de 16 provincias y aumentaría las bancas de Buenos Aires
+-  Desatoran a migrantes varados en Chihuahua y llegan a la frontera
+-  Cómo quedó integrado el nuevo directorio de Epec
+-  Late penalty earns Chelsea win over Crystal Palace
+-  Marcos Etcheverry es ferretero, se convirtió en una estrella de las redes sociales y reveló su secreto para el éxito
+-  Sentences finalized for 3 ex-SDF members guilty of indecent assault
+-  La adolescente Najiah Knight quiere ser la primera mujer en el nivel más alto del rodeo
+-  Tokyo gov't, state ordered to compensate company execs for illegal investigation
+-  Debía llevar su auto a arreglar, pero antes jugó los números del formulario de reparación y ganó: “Tal vez compre uno nuevo”
+-  Jacques Delors (1925-2023). In memoriam del ciudadano de honor europeo
+-  Murió a los 98 años Jacques Delors, el gran arquitecto de la Unión Europea
+-  Social media companies made $11 billion in US ad revenue from minors, Harvard study finds
+-  Mommy Vlogger Ruby Franke Pleaded Guilty To Child Abuse — Now Her Business Partner Has, Too
+-  Deputada Camila Jara confirma ser pré-candidata do PT na eleição de 2024
+-  Patrick Kane on Wild coach John Hynes: ‘He was really good for me.’
+-  Aseguran que Milett Figueroa tuvo que abandonar la pista del Bailando 2023 por un problema de salud: “Se descompuso”
+-  Lazio, Luis Alberto fermo per un mese. Ko anche Immobile
+-  Man with machete, knife arrested outside US Capitol: police
+-  NRW-Dauerregen und Hochwasser sorgen für positiven Nebeneffekt
+-  Singareni : నల్ల నేలపై ఎర్ర జెండా
+-  KULIĆEVA PONOVO SKOČILA NA ZOLU! Od sinoć nisu prestali sa vrelim akcijama, opet TRESU KREVET, šok FOTKE
+-  Una nueva cirugía metabólica mitiga los efectos de la diabetes en pacientes
+-  U.S. ambassador thanks Japan for defense upgrade and allowing Patriot missile sale to U.S.
+-  Rechazo del campo al proyecto de Máximo Kirchner para financiar obras con las retenciones a la soja: “es sorprendente el grado de irresponsabilidad”
+-  Lake Merritt BART murder suspect serves as his own attorney in key hearing, with predictable results
+-  Lake Merritt BART murder suspect serves as his own attorney in key hearing, with predictable results
