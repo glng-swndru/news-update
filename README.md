@@ -1,11 +1,51 @@
 # Latest News
--  פרסום ראשון: החל מינואר ישראלים לא יוכלו לממש את הכיסוי הביטוחי של אפל
--  יובל נשיא כוהנת היוגה: "החלטתי לבחור בחיים"
--  La Bolsa española abre casi plana, con una leve caída del 0,05 %
--  Azad Engineering IPO ve una gran demanda con ₹300 GMP
--  Marruecos, el IVA y las restricciones de la UE marcan 2023 para el sector pesquero español
--  La Bolsa española cae el 0,27 % y pierde los 10.100 puntos
--  Se cumplen 30 años de la intervención de Banesto y la caída del carismático Mario Conde
--  Синоптик рассказал о погоде в новогоднюю ночь
--  “ชลน่าน” แถลง 100 วันทำงานสำเร็จตามเป้า 10 ประเด็น ยกระดับ 30 บาท-พัฒนา รพ.-บรรจุพยาบาล
--  เตือน 6 ภัยออนไลน์ส่งท้ายปี ระวังมิจฉาชีพฉวยโอกาส
+-  잡힐 듯 안 잡히는 명낙회동…이재명 “이낙연 연락 기다려”
+-  Talijani napali bivšeg Vatrenog: ‘Baš je kanta, jedan od najvećih promašaja’
+-  Favorite Perfume of the Prophet Muhammad
+-  Estamos "a alimentar um monstro de teias de investigações e suspeitas"
+-  Už pažeidimus atsakys administracine tvarka
+-  Rezultati nakete: Koja je po vama ‘momčad godine’ obilježila 2023. godinu?
+-  IndiGo announces direct flights between Mumbai and Ayodhya
+-  A year of exponential growth: Puneet Dhawan
+-  Fanowski dodatek do Fallout 4 zalicza opóźnienie z powodu konfliktów zbrojnych
+-  Kaio Jorge, un altro matrimonio Juve nel 2024: Bruna Gomes ha detto sì
+-  MotoGP, Morbidelli si prepara al 2024: “Ecco ciò di cui avevo bisogno”
+-  Wolff e il consiglio a Mick Schumacher: “Tornerà in F1 se …”
+-  Shakira 'di bronzo', l'omaggio di Barranquilla: "Fianchi che non mentono"
+-  Pomorskie: Dziesiątki interwencji straży pożarnej
+-  Preminuo Volfgang Šojble
+-  Xuân Bắc, Tự Long vắng bóng trong "Gala cười 2024", hé lộ thông tin "Táo quân 2024"
+-  Yoga ve Meditasyon Arasındaki Fark Nedir? Yoga ve Meditasyon Aynı Şey Mi?
+-  Polícia timorense adverte que fogo-de-artifício só na passagem de ano
+-  Nowy prezes TVP: obiecuję, że uczynię wszystko, by ukarać winnych łamania prawa
+-  Loại rau siêu vitamin A, carotene, là "vua bảo vệ mắt", làm được nhiều món thơm ngon, bổ dưỡng
+-  Elevating Nigerian airports: A call for transformation
+-  Liverpool stabbing: City centre shops locked down after three stabbed in horror attack as cops hunt suspects
+-  Zbog Dominika svi na nogama: ‘Odlazi dijete koje nema zla u sebi, trgnite se iz produkcije’
+-  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
+-  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
+-  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
+-  Marktüberblick: adidas und Puma leiden unter Nike-Zahlen
+-  تراند اليوم : الكشف عن 5 فيتامينات ومعادن تقوي جهاز المناعة وتحمي من الفيروسات ونزلات البرد في الشتاء
+-  Dve osobe povređene u sudaru kamiona i automobila u Kaću
+-  Капитани на света: "Нетфликс" ще покаже поредица за световното първенство в Катар
+-  Panathinaikos ile anlaşan Fatih Terim, Yunanistan'a gitti
+-  피해자만 200여명… 고교서 불법 촬영한 19세 구속기소
+-  Mercato - PSG : C’est déjà mort pour ce transfert à 11M€
+-  LIVE TJ - Mercato Juve h24 - Yildiz incedibile, Liverpool "out" per Phillips
+-  Merz: Verliere mit Schäuble engsten Freund und Berater
+-  Apple “discorda fortemente” de decisão de banir Apple Watch nos EUA
+-  Če bodo zavarovalnice sprejele nadomestilo, se odpovedujejo tožbi
+-  Invitation to do what Dookers do!
+-  BN Style’s ‘The Definitive Best Dressed List’: What was the Most Fashionable TV Show of 2023?
+-  Трудно видими: Нови пешеходни пътеки в центъра на София са с плочки, а не с боя
+-  진로 바꾸랬다고…교통 신호수 트럭으로 들이받은 운전자
+-  Europol u akciji protiv digitalnog skimminga: Ni trgovci ni kupci nisu bili svjesni da su pokradeni
+-  新北國中生遭割喉不治 全教產：學生攜危險物難管理
+-  طريقة مذهلة لتنظيف مقلاة الزيت من الخارج.. جربيها
+-  المنتخب الوطني لكرة القدم يلتقي نظيره اللبناني غدا
+-  Metric measurement decision as government rules whether to return to pounds and ounces
+-  3-jarige peuter pakt midden in de nacht alle kerstcadeaus uit, ouders treffen chaos aan
+-  ‘Where’s my grandson?’: Child travelling to visit grandma for Christmas put on wrong flight
+-  [인사] DGB금융그룹
+-  휴대폰 사용자 수로 인파 밀집 사고 막는다…29일부터 '관리시스템' 개시
