@@ -1,11 +1,11 @@
 # Latest News
--  ارتفاع حصيلة الشهداء في غزة إلى 21110
--  Akcje, obligacje, surowce i waluty. Prognozy dla inwestorów na 2024 r.
--  Rosyjskiego Novateku nie powstrzymały sankcje. Rusza z projektem Arctic LNG 2
--  İlhan Palut'tan Fenerbahçe itirafı
--  Gazze'nin bilançosu ağırlaşıyor
--  Merve Boluğur'a Dubai'den 100 milyon TL'lik teklif!
--  Put Bar- Sutomore: U udesu poginula jedna osoba
--  Milatović: Crnogorski sportisti svojim uspjesima na najbolji način predstavljaju državu
--  Hibrid iskola nyíilik Angliában: személyes és online oktatásra is lehetőség lesz
--  Proligne. Un coach roumain pour succéder à Daniel Deherme sur le banc du Billère Handball
+-  AbelZeta to Present at the Annual J.P. Morgan Healthcare Conference
+-  Bali, Bandung dan Yogyakarta masih Jadi Tujuan Favorit Wisatawan Habiskan Libur Natal dan Tahun Baru
+-  Kaleidoskop Olahraga April 2023: Dito Ariotedjo Dilantik Jadi Menpora hingga FIFA Cabut Status Peru sebagai Tuan Rumah Piala Dunia U-17
+-  Indonesia Masuk 5 Besar Negara Asia dengan Kenaikan Poin Paling Signifikan di Peringkat FIFA
+-  Guía de la Renta Canaria de Ciudadanía: ¿qué es, quién puede solicitarla y cuándo se empieza a cobrar?
+-  Marine Nationale goes odd-on for Arkle after impressive chase debut
+-  5 séries et films japonais qui vous mettront l’eau à la bouche
+-  СК начал проверку после падения наледи на женщину в Воронеже
+-  Beşiktaş'tan ara transferde bomba transfer! İşte Hasan Arat'ın ilk hamlesi
+-  Kondisi Terkini Apartemen The Spring Residence Ciputat yang Mangkrak, Rugikan Ratusan Orang
