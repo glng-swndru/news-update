@@ -1,11 +1,11 @@
 # Latest News
--  코웨이, '룰루 비데 스스로케어' 비데 시장 선두 굳히기 나선다
--  Indian Navy: Strong possibility of drone attack on MV Chem Pluto in Arabian Sea
--  Suspecting `possible terror attack`, Israel issues travel warning for India
--  Israel Embassy blast: 2 youths caught on CCTV, security beefed up in Delhi
--  Diablo 4’ün 3. sezonunda ne gibi farklılıklar olacak
--  Charleroi : Ikoab, acteur clé du co-living en centre-ville
--  Ropa w miarę spokojna po wtorkowym wzroście
--  Российская ПВО пропустила две ракеты Storm Shadow: новые подробности уничтожения БДК «Новочеркасск»
--  Шефот на украинската армија: Маријинка повеќе не постои, но сè уште не сме се повлекле
--  الجيش الإسرائيلي يعلن مقتل 8 ضباط وجنود خلال 24 ساعة
+-  "Parasite"-Star Lee Sun-kyun tot in seinem Auto aufgefunden
+-  Ďalšia hrozba v Česku? Polícia rieši prípady spojené so streľbou na Filozofickej fakulte v Prahe
+-  Polícia v Colorade preveruje vyhrážky sudcom, čo rozhodovali v Trumpovej kauze
+-  Посол России оценил двусторонние отношения Москвы с Веной
+-  女人梦见逃跑成功有什么预兆
+-  Ex-Test selector hits out at Warner's replacement call
+-  Soccerladuma | Ten Hag: What I Told Man Utd Players At Half-Time
+-  Soccerladuma | Alexander: I’m Talking To Two Teams
+-  New Year
+-  Ancient Buddhist art of India pulsates with life in Seoul
