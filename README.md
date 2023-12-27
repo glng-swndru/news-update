@@ -1,51 +1,51 @@
 # Latest News
+-  بلوجر كويتية تثير الجدل.. تصطحب بنت صغيرة لنفخ شفايفها بالفيلر "فيديو"
+-  Car torched at Fawkner home, days after doorstep shooting
+-  Car torched at Fawkner home, days after doorstep shooting
+-  Venderá Walmart vacunas Pfizer contra Covid-19
+-  TPS:n Wernblomille pelikieltoa huitomisesta
+-  5 فئات ممنوعة من الخروج غدا الخميس.. تحذير من أمطار رعدية ورياح
+-  Gazze'deki suçlu savaşa katılmayı reddetti! İsrailli gence hapis cezası
+-  Nijerya'da silahlı saldırılarda yaşamını yitirenlerin sayısı 148'e yükseldi
+-  Raphael Varane'a 2 talip birden
+-  Excited or frustrated, Denverites get used to 45 new traffic circles installed in their neighborhoods this year
+-  Временные подходы к расчету размера операционного риска продлены
+-  Hrvati velikodušno odriješili kese za Božić: Troši se više nego lani
+-  “Los chicos tienen que transitar el verano como todos, pero hay momentos y edades en las que se debe protegerlos”
+-  Arrascaeta revela promessa não cumprida que recebeu no Flamengo: 'Sem ressentimento'
+-  Stephanie Rice reveals new boyfriend in Christmas video
+-  Mingzhu Announces Unaudited Financial Results for the Six Months Ended June 30, 2023
+-  الانتخابات النيابية .. لهذا نحتاجها
+-  Santos anuncia a contratação do lateral Jorge, emprestado pelo Palmeiras
+-  El Congreso de oficio debe derogar el DNU nulo de Milei
+-  Starbucks encerra programa de recompensas no Brasil
+-  Alerta para banhistas: cuidado com águas-vivas nas praias do RS
+-  GeForce RTX 5000 podem ser lançadas no fim de 2024, diz rumor
+-  Carrefour anuncia fechamento de duas lojas do Nacional no Litoral
+-  Accident blocks two left lanes on Howard Frankland Bridge
+-  وزارة الصحة تنشر التقرير التراكمي للطوارئ الصحية
+-  Ariana Grande announces new album arriving in 2024, her first since 2020’s ‘Positions’
+-  Hola, perdid@: ¿Qué es el ‘marleying’ y por qué es usual en las fechas decembrinas?
+-  U20 MM-kisat päiväraportti: Šalé ja Kulich hattutemppuilivat Norjan nurin, superlupaus Celebrini johti Kanadan kymmenen maalin ilotulitusta
+-  Δεν έγινε ΕΙΔΗΣΗ, αλλά… είναι!
+-  Ο Γιάννης Στάνκογλου ευχήθηκε καλά Χριστούγεννα και καλή Πρωτοχρονιά με βουτιές
+-  Liga Portugal revela datas e horários para a 18.ª jornada da I Liga
+-  حرب غزة تستمر أشهرا مقبلة
+-  Clerk in Murdaugh murder trial accused of plagiarism by co-author, sales of book halted
+-  “الضاوي” يبحث مع وزير الخارجية الليبية التعاون المشترك
+-  Sanctions de la CEDEAO contre les coups d'Etat : Des organisations africaines déposent une plainte devant la cour de justice de l'organisation
+-  Nemačka poslanica Nastić: Srpski Majdan - farsa, zahtevi protesta ne odgovaraju većinskom mišljenju u Srbiji
+-  El cambio radical en los divorcios que plantea la ley ómnibus que envió el Ejecutivo al Congreso
+-  Ισπανία: Παρατείνει και το 2024 ορισμένα αντιπληθωριστικά μέτρα η κυβέρνηση Σάντσεθ
+-  Minsa sugiere mascarilla en caso de sospecha de COVID-19
+-  Aaj Ka Vrishabh Tarot Card: वृष राशि वाले अवसरों को भुनाने की करेंगे कोशिश, व्यक्तित्व आकर्षक रहेगा
+-  U.S. to provide up to US$250M in arms, equipment to Ukraine: Blinken
+-  Морозная погода ожидается 28 декабря в Карелии
+-  MÄRKTE USA/Wall Street erklimmt in Trippelschritten neue Rekordstände
+-  Real Estate Market 2024: 3 Crucial Trends Emerging
+-  Storm Gerrit batters Britain with snow, rain and 100mph winds as thousands left without power
+-  Israel bereit für Offensive im Libanon
+-  Apollo Beach man dies after suffering medical episode, striking culvert, ditch
+-  Fani kuoli Taylor Swiftin konsertissa – Kuolinsyy selvisi nyt
 -  HomePod prototype with touchscreen LCD on top shows up in new images
--  Футболист осъди съдия в Ла Лига
--  عاجل.. مداهمة مفاجئة لحوش عشوائي لإنتاج الحلويات بجدة .. وهذا ما عثر عليه
--  المرور: خدمة مبايعة المركبات تتيح للأفراد إمكانية إتمام المبايعة آليّاً عبر "أبشر"
--  استشاري يحذر من خطورة نظام الكيتو لمرضى السكري
--  موعد إيداع الضمان الاجتماعي لشهر يناير وشروط وخطوات استحقاق الدعم
--  مشهد يفوق الوصف.. وعل ينقذ بقية القطيع من موت محقق بطريقة مبهرة
--  Alcalde de NY restringe la llegada de nuevos autobuses con migrantes
--  Noche Blanquiazul 2024: fecha y estadio confirmados para la presentación de Alianza Lima
--  New York Times съди OpenAI и Microsoft за нарушаване на авторските права
--  El adulto mayor iba en bicicleta: “pega y huye” acaba con la vida de don Manuel en El Fuerte
--  Rusya ve İran arasında dikkat çeken anlaşma
--  삼성전자, 혁신가전 출격대기…규제샌드박스 승인
--  [MD포토] 故이선균, '여전히 환한 미소'
--  [오피셜] 닥공 부활? 전북, '득점 2위' 티아고 영입..."최고의 팀에서 우승하겠다"
--  [MD포토] 故이선균, '환한 미소와 함께'
--  잉글랜드 > 프랑스 > 브라질, 선수 몸값 톱50 국가별 랭킹…클럽 최다는 맨시티
--  ‘2주 AVG 0.414’ KIA 22세 호주 유학생 심상찮네…144G 레이스, 내야에도 고종욱·이창진 절실
--  [MD포토] 故이선균, '이별의 미소'
--  [MD포토] 故이선균, '믿을 수 없는 이별'
--  "左 쏘니-右 데얀-中 매디슨 그리고 최전방 이 FW"…빌라 전설 FW의 강력 촉구, 히샬리송은 아니다! 누구? "토트넘 공격진은 정말 무서워질 것"
--  양 팀 감독이 함께 외쳤다! "오늘 경기는 매우 중요...선수들 스스로 한계 깨기를 바란다" [MD용인]
--  [MD포토] 故 이선균, '하늘나라로 간 나의 아저씨'
--  경찰 "故이선균 부검 미실시 검토 중…유족 원치 않아"
--  1년 만에 CWS→LAA→CLE→124년 만의 불명예→FA…'선발 투수 필요' 보스턴이 관심
--  대한체육회 이사회, 문화체육관광부 업무행태 관련 성명서 발표
--  '헐크 앞에서도 당당' KIA 3R 신인포수 …"잘 잡고, 잘 막고 잘 던진다, 단점은 딱히 없다" 넉살까지 [곽경훈의 현장]
--  CNN·BBC 등 외신 "'기생충' 배우 이선균 사망" 1면 집중보도 [종합]
--  옥주현, 완벽 무대 뒤 숨겨온 불안 고백 "매순간 두려워" [금쪽상담소]
--  "떠날 감독이라 힘을 완전히 잃었다!"…레알 수뇌부, 안첼로티 선수 영입 의사 단박에 거부! "페레즈에 반하는 제안" 누구 영입 시도했길래?
--  “다저스, 아직 끝나지 않았다…” 김하성과 헤어지고 오타니에게? 165SV 클로저까지 데려가나
--  한화 건설부문, '풍력 고정가격계약 경쟁입찰' 사업자 선정
--  '족집게 문어' 에브라의 강렬한 데뷔전…맨유 3-2 역전승 예상 적중! "나는 맨유가 3골 넣고 승리할 거라고 말한 유일한 미친 사람"
--  서울 '월드컵대교 남단 램프 2개소' 29일 개통
--  "이길 수 없으면 합류하라" 명언 '선배'의 기록 깨졌다!...19세 유망주 FW, 24년 만에 경신
--  최근 1년간 신도시 광역·전세버스 등 194대 증편…이용객 7만명↑
--  “팬들은 돈 내고 들어와서 오래 즐기고 싶지 않나?” 한화 41세 레전드가 본 피치클락 ‘예리한 지적’
--  올해 마지막 '뉴:홈' 사전청약…4734호 규모
--  '강유림·배혜윤 27점 합작' 삼성생명, 초접전 끝에 하나원큐에 신승...2연패 탈출+단독 3위 [MD용인]
--  국토부 PF조정위, 총 14조원 규모 조정안 마련
--  "글래스노우, 야마모토 영입하고도 선발진 강화 원해"…커쇼, 다저스와 재결합하나
--  김창옥 "유재석 보니 눈물 나려 해…막내 누나 닮았다" 폭소 [유퀴즈]
--  '통합 셀트리온' 시대 개막…서정진, '2030년 매출 12조' 자신
--  50세 스타강사 김창옥 "알츠하이머 의심 진단…母 못 알아보면 어떡하지?" [유퀴즈](MD리뷰)
--  'New 구단주' 등장과 함께 피바람 분다!...대상은 감독 아니다? "최대 300명까지 해고한다"
--  "우리 팀이 보유하기에 그 FW는 너무 크다!"…라리가 감독의 고백, "그는 전 세계 어떤 팀에서도 뛸 수 있는 FW" 누구?
--  이선균 비보에 연예계 일정 줄줄이 '스톱'…SNS 추모 물결 [종합]
--  4쿼터 맹추격에도 패배한 하나원큐...김도완 감독 "상대팀이 우리보다 더 간절했다" [MD용인]
--  워니 31점·7리바운드·6어시스트, SK EASL 필리핀 원정 1점차 승리, 메랄코 제압
--  미모의 18기 정숙, 34세 승무원 출신 영어강사…"꼭 짝 찾고파" [나는 솔로]
+-  Mercato - PSG : Un joueur veut claquer la porte, Luis Enrique dit non
