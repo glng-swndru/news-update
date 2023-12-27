@@ -1,51 +1,11 @@
 # Latest News
--  1 Ocak'ta Uyandığınızda Bunlar Değişmiş Olacak! İşte Başlayacak 5 Yenilik
--  ‘Gomburza’ humakot ng award sa MMFF
--  Националите до 18 г. заминаха за контроли в Италия
--  Песков: Парите на Запада за Украйна няма да променят хода на събитията
--  La vignetta del giorno
--  3 Best Paramount Plus Video Downloader for Windows/Mac PC
--  «استئناف دبي» تؤيد معاقبة خاطفي متعثر في ردّ مبلغ
--  Biskup Komarica prozvao Čovića zbog položaja Hrvata u RS
--  Doğuma Geldiler, Cenazesini Aldılar: Bebeğe Otopsi Yapılacak!
--  Soğuk kış günlerinin vazgeçilmezi pırasayı yerken bir kez daha düşünün. Bedeni diri tutuyor
--  Libra 28 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  An in-depth reveal of how to download Amazon prime video to MKV format!
--  Nevşehir'de düzenlenen 'torbacı' operasyonunda 71 gözaltı
--  নির্বাচন নয়, নাটক হচ্ছে: ইইউ প্রতিনিধিদের বিএনপি
--  Death toll in Romania guesthouse blaze rises to 7, search for missing persons ongoing
--  Prelijep prizor iz Sarajeva: Djeda Mrazovi obradovali mališane iz vrtića 'Košuta'
--  Önem ne demek? Önem isminin anlamı nedir?
--  Miro Lazović pristupio Demokratskoj fronti
--  لجنة لتطوير الحقول الحدودية المشتركة بين العراق وإيران
--  Kurti: Odluka o kosovskim tablicama je još jedan manevar vlasti u Beogradu
--  Dünyada 2023 böyle geçti: İşte gün gün yaşanan önemli olaylar
--  Kendisine pornografik film gönderen patronuna dava açtı. Taciz skandalında detaylar...
--  Panathinaikos'a imza atan Fatih Terim ilk transferini Süper Lig'den yaptı bile! Beşiktaş'ın istediği oyuncuyu 1 günde ikna ettiler
--  Zoektocht op de Merwede bij Gorinchem naar vermiste Yoran (16) uit Sleeuwijk
--  Akeredolu’s demise painful loss to Yorubaland, Nigeria – Makinde
--  Duyan komşusunu da alıp gidecek! Tarım Kredi'den kasap raflarını boşaltacak indirim: Kıyma ve et fiyatları düştü
--  Otomobilin Çarptığı Moto Kurye Hayatını Kaybetti!
--  SPAK kërkon “arrest shtëpie” për ish-kryeministrin Sali Berisha, ja kur do të shpallet vendimi
--  뉴욕증시 프리뷰, 미 주가지수 선물 'S&P500 전고점' 앞두고 숨고르기...테슬라·코헤러스 바이오이언스↑
--  Cien personas trabajan en las obras del Hospital de Albacete
--  Asgari ücretlinin maaşına haciz gelmesin teklifi meclise sunuldu
--  Валиева — о судебном разбирательстве по делу о допинге: «Хочется уже узнать итог»
--  Soignies : il agresse des policières intervenues pour le calmer, et tient des propos misogynes et racistes à l’égard d’une d’elles
--  En un año, trece partidos políticos se inscribieron en el JNE
--  Arrestimi i Berishës, GJKKO nuk merr as sot vendim
--  Als topdanser kon ze niet naar de Olympische Spelen, als sportarts wél
--  El motivo por el que nunca deberías guardar estas cosas en el armario del fregadero
--  Sensación térmica de -3 grados esta mañana
--  Inicia la fiesta
--  Na juhu Grécka havarovalo cvičné lietadlo armády: Pilot zahynul
--  Muž (33) ukradol v Bratislave auto: Polícia prípad vyriešila v priebehu pár hodín
--  Programmänderungen: Diese Sendungen zum Tod Wolfgang Schäubles laufen am Mittwoch im TV
--  Polícia obvinila majiteľa chaty: V lete v nej došlo k výbuchu plynu
--  FENERBAHÇE HABERLERİ - Marsilya'da Cengiz Ünder pişmanlığı! Gattuso isyan etti
--  SMUVAO DŽEHVU, PA STIGAO U BEOGRAD: Slikali ga na JAHTI sa Teodorom, zbog njega je dolazila na Partizan! (FOTO)
--  2024 Kia Sportage review
--  Gaza diz que número de mortos passa de 21 mil
--  Petković pisao Kvinti: Očekujem da Kvinta odbaci i osudi Svečljine klevete o Civilnoj zaštiti
--  The best British TV shows on Netflix
--  Na Krvavcu odprli novo šestsedežnico
+-  ارتفاع حصيلة الشهداء في غزة إلى 21110
+-  Akcje, obligacje, surowce i waluty. Prognozy dla inwestorów na 2024 r.
+-  Rosyjskiego Novateku nie powstrzymały sankcje. Rusza z projektem Arctic LNG 2
+-  İlhan Palut'tan Fenerbahçe itirafı
+-  Gazze'nin bilançosu ağırlaşıyor
+-  Merve Boluğur'a Dubai'den 100 milyon TL'lik teklif!
+-  Put Bar- Sutomore: U udesu poginula jedna osoba
+-  Milatović: Crnogorski sportisti svojim uspjesima na najbolji način predstavljaju državu
+-  Hibrid iskola nyíilik Angliában: személyes és online oktatásra is lehetőség lesz
+-  Proligne. Un coach roumain pour succéder à Daniel Deherme sur le banc du Billère Handball
