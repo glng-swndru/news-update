@@ -1,11 +1,11 @@
 # Latest News
--  Германия — Эти рождественские рынки работают и после Рождества
--  Германия — Какой ультиматум выдвинул лидер ХСС Зёдер
--  الخرف الوراثي .. هل يمكن الوقاية منه في سن مبكر ؟
--  معلومات عن صاروخ RPo-A المستخدم من الفصائل الفلسطينية.. قوة تدميرية هائلة
--  Suudi Arabistan'dan Tunus'a bir milyar dolar mali bağış
--  Cae pareja con droga y arma de fuego
--  Pep Guardiola cuts animated figure as he dishes out post-win instructions to Man City star
--  Cae pareja de presuntos asesinos de atleta de San Luis Potosí en Juárez
--  Muere David Leland, director de 'Band of Brothers'
--  Eva Luna revela que no acudió al ginecólogo durante su embarazo
+-  الاحتلال يقتحم بلدتي زيتا وباقة الشرقية شمال طولكرم
+-  특수관계자간 상장주식 장외거래, "법인세법상 시가 산정방식은?"
+-  전세계 무기주문 2년새 급증…K-방산 세계 31위→9위
+-  Menteri Luar Zambia letak jawatan
+-  Deutschlands oberste Krankenkassenchefin: „Es werden massive Reformen im Gesundheitswesen nötig sein“
+-  مدرب العنابي: التحدي كبير.. وسعيد بسرعة استجابة اللاعبين
+-  غرفة قطر تستشرف التكامل الاقتصادي والتنموي بدول التعاون
+-  مواطنون: الدولة تدعم ملف التوطين في القطاع الخاص
+-  국토 면적 75%에 5G 깔렸는데…농어촌 속도는 서울 절반 수준
+-  Jung Kwan Jang Launches a Limited-edition Red Ginseng, Marking its 124th Anniversary
