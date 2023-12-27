@@ -1,11 +1,51 @@
 # Latest News
--  Mowilex receives a fifth consecutive CarbonNeutral® company certification, extending its commitment to Indonesia's carbon reduction targets
--  TOP TALES: CHINESE WINE PROFESSIONALS JOINING GRANDI LANGHE 2024
--  Start the New year with best buys from Gaabor's Lazada and Shopee 1.1 Sale
--  FUJIFILM Business Innovation Receives EcoVadis Platinum Sustainability Rating for the Third Consecutive Year
--  JinkoSolar Holds One of the Largest Portfolio of Granted TOPCon Patents in the World
--  Чемезов сообщил о новом дроне-камикадзе «Суперкам»
--  Ampel-Regierung bricht Rüstungsexport-Rekord
--  ผอ.สพม.เชียงใหม่ ลงพื้นที่ตรวจราชการโรงเรียนไชยปราการ
--  Ankara’ya 3 İstanbul’a 4 saat uzaklıkta! 4 mevsimde tadı başka! En kısa zamanda gidilecek yerler arasına eklendi
--  ผอ.สพม.เชียงใหม่ ลงพื้นที่ตรวจราชการโรงเรียนเชียงดาววิทยาคม
+-  Çorum'da arkadaşı tarafından bıçaklanan kişi hayatını kaybetti
+-  GTA 6-Fans glauben, Lucias Schauspielerin gefunden zu haben
+-  Столтенберг приветства турското "да" на кандидатурата на Швеция за НАТО
+-  Former Seven commentator Basil Zempilas sparks cricket storm after taking aim at MCG crowd
+-  Clear stock of spurious drugs: Delhi government to city clinics
+-  รายงานการติดตามตรวจสอบคุณภาพอากาศ ประจำวันที่ 27 ธันวาคม 2566
+-  Así el primer día de vuelos de Mexicana en su reinicio de operaciones
+-  Prabowo-Gibran Winning Team: 'Gibran Rakabuming is Reserved, But Willing to Listen'
+-  多部门开列2024年任务清单 稳经济政策透出新动向
+-  从变化的数字中读懂中国经济行稳致远、欣欣向荣
+-  年终报道·2023振奋中国丨文化之花盛放
+-  必须把推进中国式现代化作为最大的政治（人民观点）——深刻领会新时代做好经济工作的规律性认识⑤
+-  新华全媒+丨推动全国统一大市场建设取得更大实效
+-  情之所系｜大国新村 幸福蝶变
+-  我国“八纵八横”高铁网主通道已建成3.61万公里
+-  人民网评：以钉钉子精神抓好党中央“三农”工作决策部署落实落地
+-  “国际范+烟火气” 解码消费城市优等生的“上新路”
+-  做好灾后安置 确保受灾群众温暖过冬
+-  长图丨130周年，“上九天下五洋”的中国梦正在实现！
+-  2023·见证｜体育，不会辜负每一份热爱
+-  一头江豚的自述
+-  元旦交通安全形势分析来了！收好这份预警提示
+-  用心办教育 写好“民生答卷” 托起百姓“稳稳的幸福”
+-  2023这些童真瞬间，真暖！
+-  国际锐评｜他们为何放弃或推迟在美建厂？
+-  “对更好探寻人类社会的发展之道有着重要意义” ——访英国知名学者马丁·雅克
+-  中企助力坦桑尼亚提升基建水平（共建“一带一路”·第一现场）
+-  澜湄合作：携手开创更美好未来（环球热点）
+-  这一年，两岸经济社会融合发展动能强劲——交流走深走实 同胞走近走亲（2023·年终特稿）
+-  专访：中国消费转型升级将为全球经济发展做出贡献——访日中经济协会理事高见泽学
+-  江垭镇中学九溪完小：阳光体操展风采，强健体魄塑豪迈
+-  台胞旅居黄山：因黄山而来，为徽州而留
+-  【台胞“申”活II】打卡魔都｜茆致远：汽车迷感知汽车城
+-  湘西州新增2家国家4A级旅游景区
+-  湖南省第十四届全民健身节在郴州启动
+-  “粤港澳大湾区数字经济发展大会（首届元资产论坛）”启动仪式在深圳成功举办
+-  度小满“闪耀的小店”公益推广计划：全新运营讲述新农人创业故事
+-  积石山6.2级地震丨生活物资常态保障 恢复重建有序展开——积石山6.2级地震灾后第8日救援安置情况综述
+-  亿缕阳光｜敬礼是信仰 回礼是希望
+-  康姿百德床垫人体功效学设计，打造全身放松的睡眠环境
+-  旧村焕新颜——长城脚下的千年变迁
+-  27 IN A ROW: Unwanted NBA history as struggling Pistons hit new low
+-  Hoskote food poisoning: Number of hospitalised rises to 217
+-  'Keep politics out on protest day', MSMEs tell TN leaders; state-wide human chain protest on December 27 over power tariff hike
+-  Este es el equipo que está formando Carlos Fernando Galán para Alcaldía de Bogotá
+-  Car catches fire in eastbound Caldecott Tunnel
+-  Vijayakanth: విజయకాంత్‌ మళ్లీ ఆస్పత్రిలో చేరిక
+-  【今年のベストバイ】秘密はショルダー部分にあり！ 長時間カメラを下げていても首が痛くならないカメラバッグ
+-  Mercato - PSG : Une recrue va «révolutionner le club» !
+-  NRL releases statement on compromising viral image of Panthers hero Mitch Kenny
