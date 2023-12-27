@@ -1,11 +1,11 @@
 # Latest News
--  Online-Handel gewinnt für König & Meyer weiter an Bedeutung
--  Varun Sood reveals his prep behind web series debut `Karmma Calling`
--  Kuwait Municipality gets nod to collect fees for parking shades
--  Ecco la Fiorentina: la squadra di Italiano sogna la Champions
--  Mexicana vuelve a levantar el vuelo; la marca estuvo 13 años fuera del mercado
--  Congreso rompe récord de más leyes impugnadas ante la Corte
--  В Бразилия обмислят организирането на "Ден на Пеле" на фона на футболна криза - Труд
--  USPJEH U ZAGREBU 30-godišnjaku sinoć hitno presađena jetra iz Njemačke, danas je stabilno
--  Появились новые фото БДК «Новочеркасск» сразу после поражения ракетами
--  Actor Lee Sun-kyun of Oscar-winning film ‘Parasite’ is found dead
+-  Dijetetičari savetuju: Obogatite ishranu ovim namirnicama i ublažićete umor
+-  Eşini öldürüp, 'deli' numarası yaptı, indirimsiz ağırlaştırılmış müebbet hapis cezası aldı
+-  Paramparça olan otomobil, genç kıza mezar oldu
+-  Leju Announces Receipt of NYSE Non-Compliance Letter
+-  Ayodhya Ram Mandir At Risk Of BIG Terror Attack, Security Beefed Up Ahead Of Inauguration
+-  عزيزي الرجل .. هذا الخطوات تحافظ على خصوبتك
+-  أعضاء في الجسم لا فائدة منها قد لا تعلم بوجودها
+-  Nemački mediji: Vučić odbija da popusti i zahvaljuje Moskvi
+-  China is Catching up to The Global Generative AI Development Race
+-  Den tidligere bokser Tom Bogs er død
