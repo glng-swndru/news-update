@@ -1,51 +1,51 @@
 # Latest News
--  España confirma abandono de la energía nuclear y amplía plazos de los proyectos renovables
--  Citigroup elige a los líderes del sector aeronáutico y automovilístico como principales valores para el nuevo año
--  Median Technologies obtiene del BEI el último tramo de su préstamo de 8,5 millones de euros
--  Acciones europeas comienzan la última semana de 2023 al alza
--  India investiga un presunto tráfico de seres humanos tras el regreso a casa de 276 nacionales
--  El DAX 40 sube un 0,21 % en una jornada con escaso volumen de negociación
--  Israel entrega 80 cadáveres a Gaza tras confirmar que no eran rehenes
--  Los mercados bursátiles de los EAU suben con el índice de Dubai al alza y el volumen de operaciones en alza
--  El trigo cae tras la reciente alza, el maíz y la soja también bajan
--  Cruzeiro anuncia contratação de Gabriel Verón, ex-Palmeiras
--  وزير الدفاع: جاهزون لتلقين الأعداء أقسى الضربات الموجعة
--  Форс кўрфазидаги низоли ороллар: Эрон Россиядан нега норози?.
--  Озарбойжон президентлигига 15 нафар номзод тасдиқланди .
--  Украиналик эркаклар янги сафарбарлик қонуни туфайли мулкларини яқинларига ўтказмоқда — ОАВ.
--  Mother India fame Sajid Khan passes away after long battle against cancer
--  Япония дунёдаги энг қудратли атом электр станциясининг ишлашига рухсат берди .
--  Armed men mug cyclist in East End
--  Michael Schumacher nunca volverá a ser el mismo, dice su hermano
--  Рафаел Варан отхвърля възможността за трансфер в Ал Итихад
--  Арсенал ще се опита да привлече Салах
--  Реал Мадрид без капитана си в следващия мач
--  Programa Somos Especiales recibe medicinas para niños en Yaracuy
--  内嵌AI算力 承载全场景生产力 ThinkPad X1 Carbon AI开售
--  राजस्थान में 450 रुपये में मिलेगा LPG सिलेंडर, CM भजनलाल शर्मा ने किया बड़ा ऐलान
--  Maestro (Netflix) : les secrets de la métamorphose bluffante de Bradley Cooper
--  MP: गुना में डंपर और बस में हुई जोरदार टक्कर, 9 यात्री जिंदा जले
--  Karen Ricardo afirma con el PRM las mujeres dominicanas se sienten desprotegidas
--  Σακελλαροπούλου: Με αισθήματα βαθιάς θλίψης πενθούμε για τον θάνατο ενός υπερασπιστή των ουρανών μας
--  Canciller ucraniano presume de que el jefe de la OTAN le permitiera sentarse entre los miembros del bloque
--  Im Alter von 98 Jahren: Früherer EU-Kommissionspräsident Jacques Delors gestorben
--  SA vs IND First Test: “I try to do what the game demands of me” says KL Rahul about his ton in the first innings
--  Spokojny powrót do gry
--  Komisi X DPR RI Tekankan Pentingnya Perubahan UU Cagar Budaya
--  Makedonska večera odvela Alex u vodstvo: 'Bila je nevjerojatno posložena, odradila je baš sve'
--  VUČIĆ UPITAO JONSONA: Zašto ćutite, zašto ne kažete celom svetu istinu?
--  Ben Foden treats children Aoife, 11, and Tadhg, eight, to a pizza slice as they spend Christmas in New York with their father and little sister Farrah, three
--  Qué coches compramos realmente los españoles
--  عون: شركات النفط الأجنبية استغلت ضعف الدولة لزيادة حصتها
--  MASTER: Neophodna veća zastupljenost žena u javnom i političkom životu
--  Akeredolu: An Exceptional Leader With Significant Impacts – NANS
--  Sam Altman, Jony Ive poach Apple iPhone design boss to work on AI devices: report
--  Knuffige Killer: Darum sind Katzen viel tödlicher als du gedacht hast
--  Ćuta spevao pesmicu Vučiću: Taj je jeo šta je hteo, birački spisak ceo i parizera jedan deo
--  Tον Μάιο ο ΔΕΗ Ποδηλατικός Γύρος Ελλάδας
--  एमपी के Khandwa में सिलेंडर ब्लास्ट घर में सिलेंडर ब्लास्ट होने से हड़कंप
--  פרסום ראשון: עומר נודלמן והבן הזוג ביטלו את החתונה ונפרדו
--  תיעוד מקומם: "הספר של המפורסמים" תועד משפיל ילד עם צרכים מיוחדים
--  Hamas acusa Israel de roubar órgãos de corpos de palestinos
--  تحفيظ أملج: 3 أسباب تعين على حفظ القرآن الكريم
--  Hapag Lloyd: situation still too dangerous to pass Suez Canal
+-  Çalışan emeklilere 5 bin TL yasalaştı! Ödemeler birkaç gün içinde yapılacak...
+-  יותר מ-30 שנה מאז תמונתו האחרונה: כך נראה מוחמד דף היום
+-  Europejski rynek akcji najwyżej w tym roku
+-  GPW: spokojny powrót do gry
+-  Komentarz po sesji: Spokojny powrót do gry
+-  W wyniku ataków Izraela zginęło już ponad 21 tys. Palestyńczyków
+-  Vojvoda: “Qui mi sento a casa. A Firenze per prendere i 3 punti”
+-  Полицейска блокада в центъра на София: Закопчаха криминално проявен, не спрял на полицейски сигнал
+-  Arsenal ‘really short’ on players as Mikel Arteta outlines January transfer plans
+-  Bugatti, Pagani und Co. abgesoffen: Erklären Sie das mal der Versicherung
+-  Metsäkeskus mittasi testihenkilöiden kuntoa – datan mukaan taimikon raivaaminen käy perustreenistä urheilijallekin
+-  Comedian Tom Smothers, one half of the Smothers Brothers, dies at 86
+-  Egy animált élet Vácz Péterrel
+-  Greece would offer major treasures to UK for Parthenon marbles, minister says
+-  Nativos con ‘camionetazas’ y señales de humo, actualidad y prehistoria defendiendo a ‘Macho’
+-  Matej Klíma verlängert bis 2027 – Staffan Peter und Nils Greilich erhalten Verträge bis 2026
+-  Man taken to hospital with serious injuries after Boxing Day assault in Clydebank
+-  Estados Unidos, el destino perfecto para disfrutar de unas navidades diferentes
+-  Dışişlerinden Sudan'a seyahat uyarısı
+-  Halkbank evinde Hatay BB'yi yendi
+-  Buscan apoyo para traslado de muertos en volcadura
+-  Pumas ahora pierde a Dinenno
+-  Apoyará Estado en pago de ingreso a la universidad
+-  Bakan Yerlikaya, Atatürk'ün Ankara'ya gelişinin 104'üncü yılını kutladı
+-  Weather in the Google Clock app is much prettier, but there's a catch
+-  Wie eine Hauswand in München anti-ukrainischer Propaganda dient
+-  Söder: Schäuble hat große Verdienste um Deutschland erworben
+-  Bischof: Hessische Verbindung in katholischer Kirche «eine Chance»
+-  Auto kracht in Litfaßsäule - 100 000 Euro Schaden
+-  Video: un periodista fue agredido en plena marcha de la CGT
+-  Apple Watch-Verkaufsverbot: Hier wird sie jetzt zur Mangelware
+-  فيديو تشويقي استعدادًا لحفل ليلة "نجمات العرب"
+-  شتاء المملكة.. ارتفاع مبيعات المشالح والفرو في سكاكا
+-  Silahlılar 2 gündə 198 nəfəri öldürdü
+-  Gökhan Zan İYİ Parti'den istifa etti
+-  المهندس زيد شرف .. مبارك التخرج
+-  تقرير: الشاباك تلقى معلومات حول عملية طوفان الأقصى
+-  الصحفي زايد الدخيل.. مبارك المولودة الجديدة
+-  Klage von Gegnern abgewiesen: Trump darf auf Wahlzetteln in Michigan bleiben
+-  Actor Lee Sun-kyun Of Oscar-Winning Film 'Parasite' Is Found Dead In Seoul
+-  [독자시] 새벽시장
+-  [사설] 산불용 헬기 임차 국비 지원 마땅
+-  [사설] 제2경춘국도 지연 안된다
+-  [명경대] 동료 시민과 구경꾼
+-  1분 50초… 서울 도심에 쏘아올린 야생
+-  백형민 브랜치 댄스컴퍼니 ‘월인천강’
+-  국악창작그룹 자락 신작 선보여
+-  김유정문학촌 유용태 수집가전
+-  민주당 ‘5호 인재’ 강청희 발탁
+-  윤, 차관급 6명 인사 단행…기재부 제2차관에 김윤상
