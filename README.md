@@ -1,51 +1,51 @@
 # Latest News
--  La Bolsa de Buenos Aires cierra con una bajada del 2,43 %
--  El proyecto de emergencia pública de Milei plantea un "terremoto legal" en Argentina
--  APi Group amortiza 175 millones de dólares de deuda y se propone reducir su apalancamiento
--  Incluye Mexicana de Aviación a Juárez como uno de sus destinos
--  Evita multas y tramita el Buzón Tributario en el SAT
--  Presume AMLO trenes y aerolínea a Blinken
--  Aumentan ciberataques 22% en sector salud
--  Does Denise Richards make more money on OnlyFans than daughter Sami Sheen?
--  مروان حامد: لن أنسى دعم الزعيم في عمارة يعقوبيان
--  First-ever December flood warning issued for Fargo, but impacts will be minor
--  Marvel opens 2nd 'What If...?' season with episode in almost entirely Mohawk language
--  A Nebraska mosque, synagogue and church support one another through Gaza conflict
--  Casinos online que aceptan PayPal
--  Danny Masterson sent to state prison to serve sentence for rape convictions, mug shot released
--  Basket: Gordon 21 punti, ma sono suture per morsi di un cane
--  Revisión de los mejores casinos en línea
--  Basket: Gordon 21 punti, ma sono suture per morsi di un cane
--  Arnold Schwarzenegger and his family wear matching flannels and sunglasses in fun holiday snap... after his son Patrick's engagement
--  STIGLI PRVI REZULTATI POPISA U CRNOJ GORI Do sada obrađene brojke jasno pokazuju JEDAN TREND
--  В Смоленске на Краснинском шоссе насмерть сбили пешехода
--  Fatih Terim: Δείτε την καλλονή κόρη του νέου προπονητή του Παναθηναϊκού
--  “Hermosa pancita”: Daniela Castillo se luce en sesión de fotos mostrando sus 33 semanas de embarazo
--  Ariana Grande anunció que lanzará su séptimo álbum de estudio en 2024
--  برناردو سيلفا يعادل رقم رونالدو المميز في البريميرليج
--  – رئيس جهاز الأمن القومي يهنيء الشعب الليبي بمناسبة الذكرى الـ 72 لاستقلال ليبيا.
--  Danny Masterson sent to state prison to serve sentence for rape convictions, mug shot released
--  포스코 포항제철소서 화재···용광로 한때 중단
--  VLASNIK HOTELA KRVNIČKI BATINAO RECEPCIONARKU: Najpre negirao, pa priznao da je tukao devojku, uskoro PRESUDA!
--  Forex Trading y la Innovación Tecnológica: El Impacto de Tesla en los Mercados
--  Mujer revela que tiene una “relación erótica” con un árbol: asegura ser “ecosexual”
--  Navio humanitário resgata 244 pessoas no Mediterrâneo e segue para Itália
--  Darts-WM 2024: 16-jähriges Wunderkind Littler glänzt - Smith müht sich
--  모두투어 대리점 예약관리 부실로 해외여행 출발 앞두고 '취소'
--  PEKERTI bantu persiapan sekolah anak-anak yatim PPDB
--  Travis Kelce's designer reveals he was still sewing Chiefs star's Christmas gifts the night before he wanted them... and says his wife told him to throw something in for Taylor Swift!
--  San Diego parents who vanished days before Christmas are found dead in car in murder-suicide: Chilling Ring camera footage shows them leaving home before husband shot his estranged wife and then turned the gun on himself
--  미국 소아과 의사 사칭해 12억 뜯어낸 50대 남성 '실형'
--  Pertumbuhan ekonomi negara menurun separuh pertama 2023
--  Hidroituango y aporte a movilidad eléctrica, entre logros de EPM entre 2020 y 2023
--  Unicameral: pedido de informes sobre el uso del avión sanitario de la Provincia de Córdoba
--  Oro, mirra e incienso... ¿Por qué regalaron esto los Reyes Magos?
--  Não é só o Inter. Arábia Saudita também quer 'roubar' Taremi ao FC Porto
--  Masiva marcha de la CGT a tribunales en rechazo al DNU del presidente Milei
--  요기요, '배달앱 2위' 입지 흔들린다?···쿠팡이츠의 매서운 추격
--  «Es un regalo empezar el año cantando junto a las dunas»
--  SEL ditutup sementara bagi kerja pengubahsuaian
--  Canadians weigh in on their 2023 and vote on the top word to describe it
--  Fijan fecha de juicio por tentativa de homicidio de representante de Tolé
--  Ubican droga en Pueblo Nuevo
--  Santos oficializa Jorge como reforço e se acerta também com Otero
+-  Nieto y abuelo se salvaron luego de que un carro rodara por un precipicio en Antioquia
+-  Manchester City kohenteli asemiaan
+-  Interview zur Krankenversicherungen: „Steigende Beiträge dürfen keine Selbstverständlichkeit werden“
+-  相伴16年膠公仔慘遭老鷹「分屍」 日本癡心博主網上公開求助……
+-  The best VR apps for 2023
+-  Mateiko: "Mēs spēlējam par Latvijas godu. Nedrīkst tā padoties"
+-  Open-ear earbuds and spatial audio ruled 2023 — and they’ll be even bigger in 2024
+-  博物館新姿采︱公私營博物館有競爭也有合作 互相鞭策求做得更好
+-  黃元山專訪︱諫官制度化？ 黃元山：「企後一格」研判政策 不宜太早公開內容
+-  飛龍在天︱中國和巴西科學家發現新翼龍 命名為「友好美麗飛龍」
+-  獨家丨丁子朗決心：唔想衰畀香港人同公司睇 選《超星團》被高層勸退收網民負評
+-  博物館新姿采︱私人博物館疫情期間創出路 辦中小學生教育活動拓青年客群
+-  女子尿頻驚見15cm腫瘤 確診高致命率癌症 出現腹脹8症狀須求醫●回鄉證預約｜過期續證「死線」即將屆滿 即睇邊個換證中心仲有位【附預約連結】●《星島頭條》每朝為你3分鐘新聞快charge
+-  نجاح عملية زرع أعصاب ذراع هي الأولى في العالم
+-  El balance de Rivadavia en la Liga Argentina de básquet
+-  올림픽축구스타 오재석·김영권 ‘J리그 명문 전설’
+-  La UE llora la pérdida de Jacques Delors, un “visionario” de la construcción europea
+-  Bayern Munich youngster Frans Krätzig channels Ice Cube and is down for whatever
+-  Sonia Gray’s No Such Thing as Normal by Sonia Gray explores neurodiversity
+-  Top 10 Trade Me listings for 2023 include a ‘shy’ Northland carrot
+-  “개그맨 김준호씨랑 김지민씨 언제 결혼하냐고요?” [신기자 톡톡]
+-  Herald Summer Quiz: December 28
+-  Equipa técnica do 'Dança com as Estrelas' recusa cachê
+-  Fearless: Trinny Woodall’s guide to style, beauty and female power
+-  횡성소방서, 하반기 구조·구급대원 감염방지교육 및 감염방지위원회 개최
+-  강원도교육청, 2023년 강원 직업계고 교육과정 담당자 협의회 개최
+-  한국수자원공사 소양강댐지사, 춘천연극제 기부금 전달
+-  11기동사단 투호대대, 자발적 모금으로 홍천 지역 주민에 연탄 1004장 기부
+-  현대자동차 신홍천대리점, 무궁화장학금 200만원 기탁
+-  정선군, 2024 강원 동계청소년올림픽대회 성화투어 행사 개최
+-  해든엔지니어링, 무궁화장학금 100만원 기탁
+-  홍천군청 태권도팀 김태완 감독·강완진 선수, 무궁화장학금 400만원 기탁
+-  봄내 사랑 생태 탐방단 활동 전시회 개최
+-  안병구 변호사, 자서전 ‘꿈의 시작’ 출판기념회 개최
+-  양천구 목4동, 목양의 교회와 후원협약식 열어
+-  충남도, 서산 대산3 일반산단(확장) 최종 승인
+-  충남경찰, 해넘이·해맞이 특별 교통관리 실시
+-  청양 첫 일반산단 ‘수소특화단지’로 조성된다
+-  강원랜드, 강원 폐광지역 4개 시·군 디지털 정보 격차 해소 앞장
+-  [동정] 고재창 태백시의회 의장
+-  대전시의회, ‘2023년 대전광역시장애인체육회 결산보고회’ 참석 축사
+-  양천구, 서부트럭터미널 도시첨단물류단지 조성…올해의 10대 뉴스 1위
+-  강서구, 청소년 체육·연극교실 참여자 모집
+-  구로구, 국토교통부 주관 ‘스마트도시’ 재인증 달성
+-  [포토] 김태흠 지사, “추운 겨울 따뜻한 손길 내민 농협에 감사”
+-  세계 2위 해운사 머스크, 며칠 내 홍해 운항 재개
+-  尹 '김건희 특검' 정면 돌파… 인사·신년회견 '국정드라이브'
+-  [국제유가] 홍해 선박 운행 재개 소식에 하락…WTI 1.93%↓
+-  일동후디스 '트루맘', 새해 소망 SNS 이벤트
+-  원안위, 내년부터 '후쿠시마 오염수 대응' 전담 조직 운영
