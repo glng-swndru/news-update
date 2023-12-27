@@ -1,11 +1,11 @@
 # Latest News
--  Ljusgrön mellandagsöppning väntas – här är fem saker att ha koll på
--  KOLIKO JE NEVIDLjIV SU-57: Rusija hvali svog lovca 5. generacije, ali i dalje ga ne šalje na Ukrajinsko nebo (VIDEO)
--  В Алматы более 300 девушек снимались в порнофильмах. Задержан организатор. Видео
--  На Дону два человека пострадали в ДТП с участием авто медслужбы военных
--  Ученые ТулГУ с коллегами из КБР создали новый композитный материал
--  Бастрыкин выразил недовольство работой рязанского следкома
--  Александр Бастрыки поручил проверить работу курского Следственного управления
--  Ученые раскрыли секрет самого лучшего подарка на Новый год
--  Τα Παράσιτα: Αυτοκτόνησε ο ηθοποιός Λι Σουν Κιουν, ένας από τους πρωταγωνιστές της ταινίας
--  Irinel Columbeanu: „Îmi lipsește o doamnă serioasă!”. Ce a spus fostul milionar despre Monica Gabor
+-  Manchester City juonii mielenkiintoista kaappausta
+-  Gerardo Espinoza en nuevo entrenador del Aucas de la Liga de Ecuador
+-  Roma İmparatorluğu dönemine ait 2 bin yıllık mezar bulundu
+-  20 adet F-35A için imzalar atıldı! 2027'yi işaret ettiler
+-  Güngören'de iş yeri yangını
+-  Beşiktaş'ta transfer için hareketli saatler! Hedefte dört yerli isim var
+-  윤 대통령, 차관급 6명 인선…기재2차관 김윤상·총리비서실장 손영택·조달청장 임기근
+-  “มาดามแป้ง” ถ่ายรูปรวมทีมการท่าเรือ ก่อนเกมอำลา ประธานสโมสรที่นั่งมา 8 ปี
+-  Küresel piyasalarda pozitiflik hakim
+-  Meteoroloji' uyardı! Öğlen saatlerine dikkat
