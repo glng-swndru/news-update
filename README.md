@@ -1,51 +1,11 @@
 # Latest News
--  예멘 반군, 또 홍해 선박 공격…확전 위험 '꿈틀'
--  "Umoja" -- or unity -- the word of the day as celebration of Kwanzaa begins in Hempstead
--  [독자투고] “어르신 빙판길 조심하세요"
--  [인사] 농촌진흥청
--  [인사] 산림청
--  '믿을건 연회비'…카드사, 프리미엄 상품 잇따라 내놔
--  "무차입 공매도 실시간 모니터링 시스템 도입해야"
--  목감청소년문화의집, 김수연 의원과 청소년의 소통 시간 마련
--  박경귀 아산시장 “공정한 노동 존중 사회 위해 계속 노력할 것”
--  두산건설·쌍용건설, ‘두산위브더제니스 센트럴 계양’ 내년 1월5일 특공 청약
--  ㈜래피젠, 수원시에 한부모 가정 돕기 5000만원 기부
--  부산도시철도와 시민 이어줄 제13대 ‘휴메트로 기자단’ 모집
--  인천, 소상공인 통계 신규 개발…5년 생존율 40.0%
--  연수, 지역복지 보육정책 전국 우수지자체 선정
--  국힘 김석훈 예비후보, '안산 본오1동 송년음악회‧명사초청강의' 참석
--  부평, 십정2동 안심마을 조성사업 준공보고회
--  강화, 교류 도시 태국 빡끄렛군 방문
--  미추홀, 어려운 이웃 도움 손길 ‘잇따라’
--  ‘2024년 남동구에 바란다’ 구민 의견 쏟아져
--  옹진, 겨울철 자연재난 대비 홍보 캠페인
--  인천경제청 '스마트시티 기술' 전세계에 알린다
--  동구, 지역소멸 대비 인구정책포럼 개최
--  서구, 2023년 초·중학생 영재교육 수료식 개최
--  인천교육청, 학교운동장·실내체육관 개방 지원금 50% 증액
--  중구 ‘가족 심리검사 프로그램’ 성황리 운영
--  '생수 1위' 제주삼다수, '무라벨' 통했다…매출 1400억 달성
--  계양, 생활폐기물 통합민원전화 도입
--  공정위, '에그드랍' 가맹사업법 위반 과징금 4억부과 및 법인 고발
--  [포토] 계묘년 토끼띠 해가 저물어가는 모습
--  UEFA stop Villarreal re-signing Chukwueze
--  NRL legend David Liddiard shares health update after Christmas Eve heart scare
--  Use Nair to Remove Hair From a Necklace
--  South Korean star of Oscar-winning Parasite Lee Sun-kyun dead at 48 amid drug allegations
--  Los Detroit Pistons ya son oficialmente el peor equipo de la historia de la NBA
--  "취직하라" 충고에 아들이 폭행하자 흉기로 맞선 아버지
--  “I Set Y’all Up”: Shaquille O’Neal Leaves Candace Parker in Splits After Making ‘1–13’ 3-Pointer Claim
--  De Lefty SM a Adán Zapata: ¿A qué raperos ha ‘silenciado’ el CJNG?
--  Libur Natal dan Tahun Baru saat Kenaikan Kasus Covid-19, Ini Pesan Pakar Kesehatan
--  Forget about those breakfasts: how Bill Granger saved many a weeknight dinner
--  Axis Bank revises fixed deposit (FD) rates. How they compare with SBI, ICICI, HDFC Bank
--  ¡Actívalo sí o sí! Buzón tributario SAT deberá habilitarse antes del 2024: ¿Cómo hacerlo?
--  Sime Darby's takeover of UMW now unconditional
--  Dan familiares y amigos último adiós a Armando Guadiana
--  Schnieder schaut mit gemischten Gefühlen auf Wahlen 2024
--  Aus für Steuervergünstigung: Wirte wollen Preise erhöhen
--  DPRD DKI Setujui Anggaran Rp 70,9 Miliar untuk Cetak Ulang e-KTP DKJ, PSI: Kami Tetap Tidak Setuju
--  Hrozivý následok COVIDU-19: U dievčiny (15) sa ako prvej tínedžerky na svete objavili tieto ťažkosti
--  Notre-Dame Streit um Fenster
--  头条：回顾2023年中港台十大新闻事件
--  Detained Bangladeshi workers should get legal protection, says Lawyers For Liberty
+-  ธอส.ออก 7 มาตรการช่วยผู้ประสบภัยน้ำท่วมภาคใต้
+-  พร้อม! ร่างงบปี’67 วงเงิน 3.48 ล้านล้านบาท เข้าสภาฯ 3-5 ม.ค.67
+-  Pide Sheinbaum crear comités de propaganda en su favor
+-  Tumba poste de madera con su Corvette
+-  [27일 화성시] '공공문장 바로 쓰기 자치단체상' 대상 수상 등
+-  [벤처돋보기] 초기 투자 전문 VC 베이스인베, 올해 31개 스타트업 투자
+-  Wegen Hygiene - Pfandpflicht gilt künftig auch für Milchflaschen
+-  Burze i gradobicia w święta Bożego Narodzenia w Australii. Osiem osób nie żyje
+-  राजस्थान में आज हो सकता है मंत्रिमंडल विस्तार,18 विधायक ले सकते हैं शपथ
+-  "저작권 수출 규모 250억 달러"…문체부, 저작권 4대 전략 발표
