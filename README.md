@@ -1,11 +1,11 @@
 # Latest News
--  Bu meyvelerin kabukları harikalar yaratıyor
--  Lee Sun Kyun, one of the main actors behind Oscar-winning 'Parasite,' dies at 48
--  Charlie Sheen's BUDDHIST neighbor Electra Shrock, 47, pleads not guilty to strangling actor at his Malibu apartment: Two and a Half Men star, 58, is 'quite fearful' after tussle ruptured stitches on his body
--  UN appoints ex-Dutch Dy PM, Mideast expert as Gaza humanitarian coordinator
--  S Jaishankar, Lavrov to discuss bilateral cooperation, global affairs in Moscow
--  רצף ההפסדים הארוך אי פעם: דטרויט ניפצה שיא שלילי היסטורי
--  Gaza-Krieg könnte noch Monate dauern
--  직접판매공제조합, 다단계판매 교육·체험 통한 소비자 인식 개선 나서
--  Grávida pode comer comida japonesa? Especialista esclarece
--  Que tal aprender essa receita de 3 ingredientes? Mousse de Maracujá com uma cobertura sensacional
+-  Ben ritrovato Ilic: centrocampo in crescita con le prestazioni del serbo
+-  KKTC kırmızı çizgiyi çekti: Egemen eşitliğimiz teyit edilmeden müzakere masasına geçilmesi mümkün değil
+-  Akılalmaz olay! Önce kavgada ardından hastanede bıçaklandı
+-  Skandal paylaşım! Ermeniler için ağıt yakan Aziz Nesin'in gelini Hilal Nesin, Türk askerini hedef aldı
+-  Özgür Özel pes dedirtti! İmzalamadıkları PKK'yı kınama bildirisiyle 'A4' diyerek dalga geçti
+-  Pro Research: Wall Street se sumerge en los avances oncológicos de Seagen
+-  Credo Brands Marketing debuta en bolsa tras su OPV
+-  Muere mujer en el hospital por agresión a balazos
+-  [눈에 띄는 지방자치] 이상복 오산시의원, 경기도시·군의회의장협의회 행정감사분야 ‘우수상’
+-  “원전 오염수 발생량 줄어…방류에 최대 19년 소요 전망”
