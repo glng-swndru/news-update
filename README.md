@@ -1,11 +1,11 @@
 # Latest News
--  Španielska vláda potvrdila plány na ukončenie činnosti jadrových elektrární
--  İşte yeni asgari ücretin işverene maliyeti
--  Eski Pakistan Dışişleri Bakanı Kureyşi, tekrar gözaltına alındı
--  Jak mógłby wyglądać Teatr Osterwy? Projekty dostępne na wystawie
--  انخفاض أسعار النفط
--  The Ultimate Tool Against Winter Snow: Snow Joe® IONMAX Cordless Snow Shovel
--  Opciones para celebrar fin de año en Ecuador
--  Kaum Fortschritte bei den Planungen für das Udo-Lermann-Gelände
--  Immer in Bewegung
--  Einschränkungen auf Bahnstrecke
+-  Aaj Ka Dhanu Tarot Card: धनु राशि वालों के जीवनस्तर में आएगा सुधार, अपनों के साथ बिताएंगे वक्त
+-  Milan Sassuolo: quando si alleneranno i rossoneri all’antivigilia della sfida
+-  Varanasi News: लूट के मामले का पुलिस ने किया खुलासा, दो गिरफ्तार
+-  Lalitpur News: अधिशासी अभियंता सहित कर्मचारी मिले अनुपस्थित
+-  Lalitpur News: जिलाधिकारी कार्यालय में बनेगा मातृत्व कक्ष
+-  Lalitpur News: बेरोजगारों को ठगने वाला गिरफ्तार
+-  Lalitpur News: शोभायात्रा के साथ पंचकल्याणक महोत्सव शुरू
+-  Lalitpur News: दो आंगनबाड़ी कार्यकर्ता का मानदेय रोका, एक की सेवा समाप्त होगी
+-  Lalitpur News: यूपी बोर्ड की परीक्षाओं की तैयारी शुरू
+-  Lalitpur News: नहर में उतराता मिला युवक का शव
