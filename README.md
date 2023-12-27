@@ -1,11 +1,11 @@
 # Latest News
--  Se retrasa 5 horas vuelo de regreso de Mexicana
--  Tether Mints 'Authorized But Not Issued' $1B USDT To Replenish Inventory
--  Naik, Harga Emas Antam Hari Ini Rp 1.137.000 per Gram
--  Silvercorp switches takeover structure for OreCorp to leap over Perseus Mining’s hurdle
--  Hamza expresses concerns over party’s list of candidates
--  The Tapi Project will perform this weekend in Mumbai at Mahalaxmi
--  Attend this mixer to celebrate reflection, growth as you enter the new year
--  Lesti Kejora dan Rizky Billar Ganti Nama Anak dari Leslar Jadi Levian
--  Processo de adoção: como adotar crianças e adolescentes no Brasil.
--  Gujarat Police ‘एजेंटों’ का पता लगाने के लिए फ्रांस से लौटे यात्रियों से सूचना एकत्र करेगी
+-  Mowilex receives a fifth consecutive CarbonNeutral® company certification, extending its commitment to Indonesia's carbon reduction targets
+-  TOP TALES: CHINESE WINE PROFESSIONALS JOINING GRANDI LANGHE 2024
+-  Start the New year with best buys from Gaabor's Lazada and Shopee 1.1 Sale
+-  FUJIFILM Business Innovation Receives EcoVadis Platinum Sustainability Rating for the Third Consecutive Year
+-  JinkoSolar Holds One of the Largest Portfolio of Granted TOPCon Patents in the World
+-  Чемезов сообщил о новом дроне-камикадзе «Суперкам»
+-  Ampel-Regierung bricht Rüstungsexport-Rekord
+-  ผอ.สพม.เชียงใหม่ ลงพื้นที่ตรวจราชการโรงเรียนไชยปราการ
+-  Ankara’ya 3 İstanbul’a 4 saat uzaklıkta! 4 mevsimde tadı başka! En kısa zamanda gidilecek yerler arasına eklendi
+-  ผอ.สพม.เชียงใหม่ ลงพื้นที่ตรวจราชการโรงเรียนเชียงดาววิทยาคม
