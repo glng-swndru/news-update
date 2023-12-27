@@ -1,51 +1,51 @@
 # Latest News
--  Taxi drivers who exchanged vehicles for shares in Rea Vaya left in lurch
--  Rahul hits century and takes catch for India against Proteas
--  ANC MP Alice Mthembu dies in KZN car crash
--  Očajnički vapaj Valerija Zalužnog
--  Kurti: Priznaćemo, ali...
--  TFF Fair Play Ödülleri’nin Kasım 2023 dönemi sahipleri belli oldu! Samsunspor, Ivo Vieira ve Edin Visca'ya ödül verildi
--  È arrivato il momento di Djidji? Juric può schierarlo dal 1′ a Firenze
--  Nemanja Nedovic: Per Shabazz Napier abbiamo fatto tutti il possibile
--  Análisis del INTA del impacto de las bicheras o miasis sobre la producción ganadera en Argentina
--  360 ألف مواطن ينضمون لسوق العمل لأول مرة .. التفاصيل
--  ضربة لتجار السموم.. الأمن يُفاجئ مروجي المخدرات بهذه المناطق
--  ولي العهد يلقي الخطاب الملكي السنوي لمجلس الشورى ويشيد برؤية 2030
--  استعلم عن نتائج أهلية الضمان الاجتماعي عبر هذه القنوات
--  Operación Omega: 171 personas aprehendidas en las últimas horas
--  Banks' asset quality touches decadal high as GNPA ratio falls to 3.2% in September quarter: RBI Report
--  El Gobierno retirará en los próximos seis meses las rebajas fiscales a la luz y el gas
--  El Gobierno prorroga un año gravámenes a banca y energéticas, con deducción de inversiones
--  Motisons Jewellers debuta con fuerza y sus acciones casi se duplican
--  Los metales industriales suben gracias a datos chinos, el aluminio toca máximo de ocho meses
--  Policía utilizará armas decomisadas de empresa de exmodelo y su ména
--  Συντριβή αεροσκάφους στην Καλαμάτα: Τριήμερο πένθος στις Ένοπλες Δυνάμεις μετά το θάνατο του Επισμηναγού
--  O femeie găsită inconştientă şi fiul ei, de opt ani, salvaţi dintr-un incendiu care le-a cuprins apartamentul
--  Osobe koje pate od ovog poremećaja žive i do pet godina kraće, a nije ih malo! Struka je pratila ljude dvadeset godina
--  Grad Zagreb prodao državi manjinski udio u APIS IT-ju i isplatio sva dugovanja
--  경찰, 故이선균 부검 미실시 검토…"유족이 원하지 않아"
--  Mali objasnio Nikeziću: Mi nastavljamo da gradimo a građani su rekli šta misle o vašoj politici
--  POL-MS: Straßenraub an der Hörsterstraße - Polizei sucht Zeugen
--  Video: USA verbieten Verkauf von Apple Watches wegen Patentstreit
--  Danas završava Cedevitina kampanja “21 dan optimizma’’: Preko 3700 građana svakodnevno ispunjavalo sitniCE, mala dobra djela
--  Soccerladuma | Greenwood's Boss: He Can Play For Barca & Real If...
--  Soccerladuma | Still In Touch With Magalefa Part 5
--  Aries 28 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  Повеќе од милион барања за азил во ЕУ годинава
--  Održan Božićni koncert u Polači "Narodi nam se kralj nebeski", hit su ipak bili Sinovi Hercegovine u Adventskom šatoru
--  ‘How do I get this job?’: Louis Vuitton worker shares what workplace gave her as gift, it’s so much more than expected
--  Man fatally stabbed after argument in street, police say
--  Man arrested after two women die following three-vehicle Boxing Day crash
--  El Gobierno aprueba la subida de las pensiones al 3,8%
--  El Gobierno aprueba la subida de las pensiones al 3,8%
--  Debitormassens sammensætning
--  Açtı ağzını yumdu gözünü: "PKK’lı teröristin çorabı gibi..."
--  URA podnosi amandman: Radnicima nekadašnje "Košute" isplatiti 2,2...
--  Cum a devenit Diana Șoșoacă starul politicii românești / Marea întrebare: Există o coordonare strategică între Șoșoacă cu Simion
--  Policie odložila kauzu údajného sexuálního násilí šéfa Bartošova kabinetu
--  COVID, gripe o VRS: por qué parece que todo el mundo está enfermo estas navidades
--  Auto kracht in Litfaßsäule: 100.000 Euro Schaden
--  Israel presses Gaza assault, comms blackout hits rescue efforts
--  Фадеев назвал голую вечеринку Ивлеевой колхозом
--  Carro, ônibus ou avião? Acerte na escolha do transporte para sair de férias
--  OPERASYONLAR
+-  Mpumalanga man charged with statutory rape of teenage girl
+-  '옥문아' 이찬원, 최수영 실물에 감탄 "방송과 차원 달라"
+-  '유퀴즈' 김창옥 "몇 년 전부터 깜박깜박…알츠하이머 검사 받는다"
+-  Trafik polislerinin hizmetine verilen Ferrari İstanbul sokaklarına çıktı
+-  Beşiktaş ile ismi geçen Sergen Yalçın'dan açıklama!
+-  Cumhurbaşkanı Erdoğan: TEKNOFEST ülkemiz genelinde uyanışa vesile oldu
+-  MSG en önemli üyesini kaybetti! Efsane BURHAN BAYAR istifa etti
+-  Pokemon Scarlet & Violet has hidden animations you’ve probably never seen
+-  F1-pomolta kova arvio eräiden kuskien kohtalosta
+-  Tuomaristo ei nähnyt mitään jäähyn arvoista – SM-liiga reagoi törkytemppuun
+-  Manchester United harkitsee yllätyshankintaa
+-  Galatasaray'dan sürpriz karar. Sözleşmesi donduruluyor
+-  Yeşil modanın önde gelen markalarından Koton, sürdürülebilirlik raporunu ve hedeflerini açıkladı
+-  Otomobilin çarptığı motokurye hayatını kaybetti!
+-  Aprueban exploración sísmica de proyecto de exploración offshore en el sur
+-  James May reveals ‘brutal truth’ about future with Jeremy Clarkson and Richard Hammond
+-  Overwatch 2 players want key Mercy nerf to her rez ability
+-  بعد مرور 16 عاما على رحيل بينظير بوتو.. لا يزال سر اغتيالها معقدا
+-  Heaven ,Marco todo ang harutan
+-  "Das Traumschiff": Neue Folge im ZDF zeigt pikante Szenen mit Florian Silbereisen
+-  Opinie | Raak elkaar niet kwijt
+-  7 games like God of War you should play in 2024
+-  Bildergalerie: Das Leben von CDU-Urgestein Wolfgang Schäuble in Bildern
+-  الزمالك يعلن موقفه من التجديد لشيكابالا وأوباما
+-  Mathieu van der Poel troost Felipe Nystrom na botsing: ‘Iedereen maakt weleens een foutje’
+-  Παρτιζάν: Χωρίς Σμάιλαγκιτς κόντρα στη Βίρτους
+-  Yiyip içip hesap ödemeden kaçtılar
+-  Ya se sabe cuándo llegará el Nothing Phone 2a y los detalles de su cámara
+-  DA LI JE STVARNO BOLEST ILI SVE UMIŠLJATE? Srpski doktori otkrivaju da li HIPOHONDRIJA skraćuje ili produžava život
+-  PARTIZAN OSLABLJEN NA VIRTUS! Željko Obradović otkrio: On sigurno PROPUŠTA narednu utakmicu!
+-  DAN NAKON NAPADA NA KRIM OPKOLJEN CENTAR POGOĐENOG GRADA! Ukrajinci tvrde da ruske vlasti ispituju ljude na ulici, traže ŠPIJUNE
+-  Po útoku na univerzitě zasedá krizový štáb. Studenti si přišli pro osobní věci
+-  Bakan Işıkhan'dan TÜRK-İŞ’e asgari ücret ziyareti
+-  Construction works for central Kaimakli road to begin in January
+-  Nevşehir'de 'torbacı' operasyonunda 71 gözaltı
+-  Jahres-Horoskop 2024: Zwillinge vor großem Wandel – das steckt dahinter
+-  Driver killed in single-vehicle crash in Val-des-Monts, Que.
+-  Lekkie spadki na kontraktach
+-  Dengue death toll in Bangladesh this year nears 1,700, caseload hits 320,835
+-  Η έξαρση των ιώσεων στα παιδιά «γονάτισε» τα Νοσοκομεία Παίδων τα Χριστούγεννα
+-  Novos Galaxy A15 e A25 terão Android atualizado até 2027
+-  AMD Radeon RX 7000 e RX 6000 recebem suporte para BlueskyFRC
+-  17 ситора болои саҳна ва дунёе аз эҳсосот: «Tarona Music Award-2023” чӣ гуна гузашт?
+-  Световната титла на Меси "отнела" първата "Златна топка" на Холанд - Труд
+-  Erkek sünneti, HIV enfeksiyonuna karşı koruyor!
+-  “공인 노무사 포기하고 세계 여행, 후회 없어요”…전문직 던진 여행 유튜버 [여행人터뷰]
+-  Al Ittihad-Al Nassr 2-5, Ronaldo batte Benzema con una doppietta: CR7 miglior marcatore del 2023
+-  I lost a worthy co-fighter for South-West cause – Makinde mourns Akeredolu
+-  مشروع قانون لإعادة تنظيم آليَّة استغلال مصادر الطَّاقة المتجدِّدة
+-  الوكالة الوطنية: قصف مدفعي إسرائيلي يستهدف غرب ميس الجبل
