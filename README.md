@@ -1,11 +1,11 @@
 # Latest News
--  Manchester City juonii mielenkiintoista kaappausta
--  Gerardo Espinoza en nuevo entrenador del Aucas de la Liga de Ecuador
--  Roma İmparatorluğu dönemine ait 2 bin yıllık mezar bulundu
--  20 adet F-35A için imzalar atıldı! 2027'yi işaret ettiler
--  Güngören'de iş yeri yangını
--  Beşiktaş'ta transfer için hareketli saatler! Hedefte dört yerli isim var
--  윤 대통령, 차관급 6명 인선…기재2차관 김윤상·총리비서실장 손영택·조달청장 임기근
--  “มาดามแป้ง” ถ่ายรูปรวมทีมการท่าเรือ ก่อนเกมอำลา ประธานสโมสรที่นั่งมา 8 ปี
--  Küresel piyasalarda pozitiflik hakim
--  Meteoroloji' uyardı! Öğlen saatlerine dikkat
+-  이경용 "농업인 자경농지 양도세 등 감면 확대 추진"
+-  Neunjährige in Kanalisation gespült: Neun Menschen sterben bei schweren Unwettern in Australien
+-  Valtaosa kuluttajista arvioi, että Suomen taloustilanne on huonompi kuin vuosi sitten
+-  Tesla factory robot mauls worker – media — RT World News
+-  Terroralarm am Kölner Dom: Verhaftungen in Wesel
+-  Ukrayna'nın imha ettiği Rus gemisinin değeri ortaya çıktı. İçinde İHA'lar da vardı
+-  이준석, 국민의힘 탈당...“보름은 지고 초승은 차오를 것”
+-  Fatih Terim Panathinaikos'ta: Yardımcıları belli oldu! İlk transfer Bakasetas...
+-  Kirli kanı temizleyen bitki ortaya çıktı
+-  Apple Watch: US-Importstopp nach Patentverfahren - Weiße Haus legt kein Veto ein
