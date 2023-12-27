@@ -1,51 +1,11 @@
 # Latest News
--  Masik Krishna Janmashatami 2024: साल 2024 में कब पड़ रही है मासिक कृष्ण जन्माष्टमी? जानें इसका महत्व
--  الأردن.. تعيين مدير مدرسة براتب 6500 دينار
--  الملك يعود إلى أرض الوطن بعد زيارة إلى القاهرة
--  الاحتلال يعترف : أحد قتلى اليوم نائب قائد سرية بلواء جفعاتي
--  حزب إرادة يفتتح رسميا مقره بالطفيلة - صور
--  Terör Propagandasına Türk Bayrağı Paylaşma Cezası
--  İmamoğlu'ndan Yılbaşı Öncesi Kışa Hazırlık Mesajı! İstanbul'a Hizmet Edecek Araç Sayısını Açıkladı
--  Turkish committee approves Sweden’s NATO bid. What’s next?
--  Çok sayıda ağrı kesici içen çocuk yoğun bakıma alındı
--  Esnaf ile kaldırım yenileme çalışması yapan işçiler arasında kavga: 2 yaralı
--  Rektör Aksoy, Tıp Fakültesi Hastanesi Yönetim Kurulu ve Danışma Kurulu ile bir araya geldi
--  38 Prozent: Akzeptanz von Kickl als „Volkskanzler“ steigt stetig
--  🔴 التحشيد المليشياوي.. وتبريرات قحت
--  New Year 2024: फैमिली के साथ न्यू ईयर सेलिब्रेट करने के ये हैं बेस्ट तरीके, पार्टी की याद भी नहीं आएगी
--  Behoeften op de woningmarkt veranderen, dus de plannen voor woningbouw in Oudenbosch ook
--  Из Ливана обстреляны Кирьят-Шмона и окрестности
--  IBPS RRB Clerk Mains Cut Off 2023, Phase 2 Office Assistant State Wise Cut Off
--  Police make arrest after person swings machete at people in Calgary Zoo parking lot
--  Tierheim Bochum: Nach heftigem Einbruch – Tierpfleger erhalten Spende der anderen Art
--  "Decidí cambiarme por la historia", Toro Fernández confesó por qué dejó Pumas por Cruz Azul
--  Angelenos attempt to answer a 30-year-old question: Is L.A. a hellscape?
--  Hochwasser an der Lippe : Was die Warnstufen bedeuten
--  Neviđena atrakcija na splitskoj Rivi: stigao legendarni Coca-Colin božićni kamion koji smo dosad viđali samo na reklami
--  10 great Windows PC games from 2023
--  «Яндекс» зарегистрировался в САР Калининградской области
--  SMUTNÁ SPRÁVA V Izraeli ZOMRELA Slovenka! Doplatila životom na VOJNU? TÁTO žena prežila najväčšie zverstvá, odišla krátko po SMRTI manžela
--  Muža obvineného z drogovej trestnej činnosti dopravili z Kolumbie na Slovensko
--  OBROVSKÁ TRAGÉDIA na východe Slovenska: Elektrický prúd ZABIL len TROJROČNÉ dievčatko!
--  Futuros planos, ventas de Toyota, ganancias inesperadas de SoftBank: 5 claves en Wall Street
--  El Gobierno aprueba la incorporación de empresas de asesoramiento financiero al Fogain
--  La FDA suspende el ensayo clínico del tratamiento para el cáncer de pulmón de Iovance
--  Sevens Research identifica dos cambios en 2024 potencialmente perjudiciales para los mercados bursátiles
--  Iron Horse Acquisitions Corporation fija el precio de la oferta pública inicial de 6,1 millones de unidades en 10 dólares por unidad
--  Топ-5 универсальных подарков, которые оценит каждый
--  “Dy fytyrat” e botës mes objektivit të AA: Jeta midis kënaqësisë dhe mbijetesës
--  La Comunidad autoriza 5 de las 10 peticiones recibidas para hacer macrofiestas en Nochevieja
--  UŽAS KOD BOLjEVCA: Radio na kući, pa pao sa krova - ostao na mestu mrtav
--  Presidente turco volta a comparar primeiro-ministro israelita a Hitler
--  Cijene u studenom u BiH pale 0,1 posto, godišnja inflacija 1,7 posto
--  Staða greiningar á meintum eldislaxi
--  Rallin MM-sarja kaipaa ravistelua - tällaisia muutoksia kuljettajat haluavat
--  Yunanistan'da voleybol maçında ölüm: Olimpiakos-Panathinaikos derbisinde çıkan olaylarda yaralanan polis hayatını kaybetti
--  Sve je spremno za novogodišnje kupanje u Šibeniku. Hrabri kupači imat će retro kostime naše poznate dizajnerice
--  Krieg im Nahen Osten - Jetzt rechnet Israel mit „Zermürbungskrieg“ - und bereitet nächste Phase vor
--  India looks to boost oil imports from alternative sources amid attacks on Red Sea shipping
--  %87 نسبة الإنفاق على مشاريع اللامركزية في إربد
--  Estrellas Orientales rompen silencio sobre permiso de Fernando Tatis Jr
--  Erdoğan'ın işçi ve işveren tarafıyla görüşmesi başladı: Asgari ücret açıklanacak
--  Viel Regen in Dortmund: Die Hochwassergefahr ist gebannt – erstmal
--  A Vietnamese restaurant that drowned up to 300 cats a month has shut. Its owner apologized for slaughtering pets.
+-  Kein Alkohol: Überraschender Effekt nach 4 Wochen belegt
+-  Qəzzada ölənlərin sayı 21 mini ötdü
+-  Prison guard arrested for drug possession
+-  भोपाल गैस कांड की दहशत तमिलनाडु में, आधी रात को गैस लीक हुई, कई लोग बेहोश, अस्पताल में भर्ती - NEWS TODAY
+-  Тони Зен: Некои луѓе имаат фаца за ќотек
+-  KWK 8: Karan Johar reveals one trait that Sara Ali Khan has inherited from Saif
+-  Abhishek Bachchan calls Vikrant Massey`s 12th fail `biggest hit of the year`
+-  Brighton vs Tottenham odds: Get 30/1 for 1+ goal to be scored in Thursday’s Premier League clash with Betfair
+-  Hapag-Lloyd nie wraca na Morze Czerwone
+-  Двојно убиство во Челопек
