@@ -1,11 +1,51 @@
 # Latest News
--  Subsidio del tanque de gas se mantendrá
--  రెండో స్థానానికి తెలుగు యోధాస్‌
--  మాజీ ఎమ్మెల్యే కుమారుడిపై లుక్‌ఔట్‌
--  Trump Angrily Denies ‘Bullying’ His Way Into ‘Home Alone 2’
--  انفجار طائرة مسيرة مفخخة في جنوب هضبة الجولان
--  زعيم كوريا الشمالية لجيشه: استعدوا للحرب سريعاً
--  మా అక్క నన్ను విపరీతంగా కొట్టింది
--  PlayStation Plus Lineup for January 2024 Revealed
--  Fallout London Mod Release Date Announced
--  ఆర్థిక పరిస్థితిపై వాస్తవాలు చెప్పాలి
+-  DAAWO: Kulan Diimeedkii 6-aad oo Nayroobi lagu soo gaba-gabeeyay
+-  «أريدُ» تستضيف ورشة عمل
+-  الدفعة الأخيرة لأسهم «مسيعيد» 31 الجاري
+-  «فودافون» تتيح استخدام الباقات المحلية أثناء السفر
+-  هدفنـــا إســــعاد الجماهيــــر
+-  نسعى للوصول إلى أبعد نقطة
+-  «بتروتك» تفوز بـ «3» عقود جديدة
+-  «مدرج العنابي» مبادرة لدعم منتخبنا الوطني
+-  منصة إلكترونية للجمعيات العمومية
+-  Australia vs Pakistan LIVE: Early morning rain hits MCG as Aussies try to end first innings
+-  Australia vs Pakistan LIVE: Early morning rain hits MCG as Aussies try to end first innings
+-  El Mando ataja orodha ya wasanii waliofanya vizuri 2023
+-  The Aussie sunbeam who lit up London: Kathy Lette’s tribute to Bill Granger
+-  The Aussie sunbeam who lit up London: Kathy Lette’s tribute to Bill Granger
+-  'The cost to society will be enormous': Here's why the New York Times has just sued two tech titans
+-  Advokat traži krivični postupak protiv roditelja dečaka koji je ubio druga u Niškoj Banji
+-  Premier League: Manchester City schlägt Everton - FC Chelsea gelingt Last-Minute-Sieg
+-  Alikiba, Rayvanny na S2kizzy matukio yao yamefunga mwaka 2023
+-  В подконтрольном Киеву Херсоне прозвучал мощный взрыв
+-  "ODVALIO BIH TE DA MI NISU DECA OVDE!" Policija sprečila tuču u centru Beograda, muškarac urlao na dostavljača (VIDEO)
+-  Selling Sunset: Does Netflix pay for the cast’s makeup & stylists?
+-  Taika Waititi's Next Goal Wins is more than an underdog sports film — it's about being happy
+-  Tens of thousands still without power as storms subside
+-  Forbes: РЖД заняли первое место в рейтинге 50 крупнейших работодателей России
+-  Un Barça estéril se hunde en Málaga
+-  Рывок на вершину: Боднарук захватила лидерство на ЧМ по рапиду, Непомнящий одержал три победы
+-  New York Times sues OpenAI, Microsoft
+-  New York Times sues OpenAI, Microsoft
+-  Video shows incredible rescue of driver trapped in semi-truck dangling from bridge
+-  'Your GPS is wrong': Council acts after Google maps repeatedly sends drivers onto unsafe roads
+-  TEPJF confirma licencia de Taboada para contender por la Jefatura de Gobierno de CdMx
+-  Preokret Cityja na Goodison Parku, nastupili Gvardiol i Kovačić
+-  SRBIN SPASIO &quot;PLAVCE&quot; Petrović junak Čelsija, Siti posle preokreta savladao Everton
+-  Prager Attentäter gibt in Abschiedsbrief früheren Doppelmord zu
+-  גוני רואי מונתה למנהלת השיווק והפיתוח עסקי של חברת Scooper
+-  New York Times Files Lawsuit Against OpenAI and Microsoft for Copyright Infringement
+-  రెండోరోజూ ఆసీస్‌దే!
+-  ప్రతి జిల్లాకు కేంద్రం సాయం అందించింది
+-  Soccerladuma | Man City back On Track With Come-From-Behind Win
+-  Un homme meurt dans accident de chasse dans l'Orne
+-  West ‘quietly shifting’ Ukraine strategy – Politico — RT World News
+-  Christmas tree recycling program underway in Winnipeg
+-  PKL : జైపూర్‌ X ఢిల్లీ పోరు టై
+-  జేసీ కుటుంబాన్ని వేటాడతా!
+-  Kickoff | World champs Man City rally back to punish Everton
+-  إسرائيل تدمر مدنا كاملة
+-  مخطط إسرائيلي للقضاء على فلسطين
+-  حرب غزة تستمر أشهرا مقبلة
+-  حماس: لا علاقة لـ«طوفان الأقصى» بالانتقام لسليماني
+-  «التعاون الإسلامي» تطالب بوقف العدوان
