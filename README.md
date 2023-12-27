@@ -1,11 +1,11 @@
 # Latest News
--  Body recovered of motorist who eluded police by jumping into a pond
--  ผ่านฟรี! เปิดมอเตอร์เวย์ "บางใหญ่-กาญจนบุรี" 27 ธ.ค.-3 ม.ค.นี้
--  ไม่ฟรีแล้ว! BTS สายสีเขียวส่วนต่อขยายที่ 2 เริ่มเก็บเงิน 2 ม.ค.นี้
--  Samsung, SK to benefit from US ban on China's legacy chips
--  POSCO Holdings to set up factory for rare gas production
--  Women in Korea still earn only 70% of men's hourly wages
--  Trump 2.0 and Korea
--  모라이, ‘CES 2024’서 자율주행 시뮬레이션 데모 시연
--  Gerardo Espinoza es nuevo entrenador del Aucas de la Liga de Ecuador
--  אזולאי לא יעזוב בינואר, זלאטנוביץ' יימכר אם תגיע הצעה רצינית
+-  ‘선 넘은 패밀리’ 안정환, “공부하라고 유학 보냈더니 연애만 하고…”
+-  이선균, 마약 의혹 두 달 만의 비보…동료들 애도 이어져(종합)
+-  국토부, 악성 임대인 17명 공개…최대 채납액 65.6억원 넘어
+-  Güney Kore ABD’den F-35A savaş uçağı alacak
+-  رئيس الطاقة الذرية الإيرانية: لم نفعل «شيئا جديدا» ونقوم بنفس الأنشطة «وفقا للقواعد»
+-  Mit Fernsehshows durch den Silvesterabend
+-  Vandalizan la zona de Huapalcalco, en Hidalgo; inician procedimientos penales
+-  Al mes, mil reportes por fraudes cibernéticos en la CDMX
+-  Земјотрес во Далмација: „Го почувствувавме силно, како голема експлозија…“
+-  «Газпром» Ўзбекистонга газ етказиб бериш ҳажмини максимал даражада оширди.
