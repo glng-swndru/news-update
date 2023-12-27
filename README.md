@@ -1,51 +1,51 @@
 # Latest News
--  Zamość: Taniej nie będzie. Wszystkie atrakcje za darmo
--  Sparkasse warnt: Kunden fallen immer wieder darauf rein und verlieren viel Geld
--  Tawaran Sime Darby ambil alih UMW dapat lebih 50 peratus undian
--  Ular sawa gergasi jadi lauk aligator
--  إعلان المرشحين للاستفادة من قروض إسكان المعلمين - أسماء
--  روسيا تتوقع أسعار برميل النفط في 2024
--  الجعدة.. سلاحك بوجه آلام البطن بالشتاء
--  هاباج لويد: الموقف لا يزال خطراً ولا يسمح بالعودة للمرور من قناة السويس
--  وفد من السلطة الفلسطينية يتجه للقاهرة
--  Anti-republic forces are conspiring to mislead the people: PM Dahal
--  إيران ل إسرائيل: انتظروا 7 أكتوبر ثانيا ردا على اغتيال موسوي
--  В Екатеринбурге проверят, вступал ли полицейский в связь со школьницей
--  Corona-Zahlen im Landkreis Bayreuth aktuell: Die Coronavirus-News aus der Region
--  Strom: Netzagentur rechnet weiter mit hohen Preisen – „Zeit der billigen Energie ist vorbei“
--  Впечатляваща гъста мъгла погълна Бостън
--  РЖД запустят полностью импортозамещенную "Ласточку" 28 декабря
--  Corona-Zahlen im Landkreis Bamberg aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen in Hof aktuell: Zahlen und Fakten aus der Region
--  A Russian drone and artillery attack kills 6 in Ukraine and knocks out power in a major city
--  Crypto Analyst Predicts Bitcoin Price Correction To $26K Before Hitting $130K
--  Laser fusion is putting CSU at the front of the clean energy pack. Tech entrepreneurs are right behind.
--  Corona-Zahlen in Coburg aktuell: Die Coronavirus-News aus der Region
--  These 7 things are cluttering your home — here's why and how you should get rid of them for 2024
--  «Яндекс» компанияси yandex.kz серверларини Қозоғистонга кўчирди.
--  Залужний илк бор матбуот анжуманида қатнашди. У сафарбарлик ва уруш ҳақида нималар деди?.
--  Michal Šimečka označil spoluprácu opozície v parlamente za dobrú
--  Лутфулла Тўраев футболчилик фаолиятини якунлади.
--  KDH nepodpísalo dohodu o opozičnej spolupráci, povedal Milan Majerský
--  Corona-Zahlen in Bayreuth aktuell: Die Coronavirus-Daten im Überblick
--  Dutch Cabinet adopts EU's USB-C common charger directive from December 2024
--  Corona-Zahlen in Bamberg aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Tirschenreuth aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Schwandorf aktuell: Die Coronavirus-Daten im Überblick
--  Assogestioni, con rialzo mercati patrimonio sale di 60 miliardi
--  Corona-Zahlen im Landkreis Regensburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Corona-Zahlen im Landkreis Neustadt a.d.Waldnaab aktuell: Die Coronavirus-News aus der Region
--  Corona-Zahlen im Landkreis Neumarkt i.d.OPf. aktuell: Die Coronavirus-Daten im Überblick
--  Reuters: Serbian opposition figure to press on with hunger strike after health worsens
--  大掃除ここが危ない 脚立正しく使えてる？掃除機から火災も…
--  Corona-Zahlen im Landkreis Cham aktuell: Zahlen und Fakten aus der Region
--  Corona-Zahlen im Landkreis Amberg-Sulzbach aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Adana Valiliği yakınında şüpheli kutu alarmı
--  Trabzonsporlu Onuachu'ya Premier Lig'den çok sayıda talip var...
--  ביידן לא מבטל את ההחלטה - אפל לא תוכל למכור השעונים שלה בארה"ב
--  Corona-Zahlen in Weiden i.d.OPf. aktuell: Zahlen und Fakten aus der Region
--  8 Cultural Trends Of 2024
--  Corona-Zahlen in Regensburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Experten erwarten 2024 Spritpreise auf „entspannterem Niveau“
--  Experten erwarten 2024 Spritpreise auf „entspannterem Niveau“
--  Long-distance couple reunite after five years apart – following whirlwind holiday fling
+-  Kannada stunt master Jolly Bastian dies of cardiac arrest
+-  Neha Dhupia, Kajal Aggarwal, Shriya Saran attend `Masha and the Bear` with kids
+-  Soccerladuma | Pep Fires Warning To Man City Critics
+-  Tesla fabrikasında can pazarı! Robot mühendise saldırdı... Ortalık kan gölüne döndü
+-  Aleksandar Vulin imenovan za senatora RS
+-  Multi-Club-Ownership - Hertha-Investor 777 Partners greift nach europäischem Fußball
+-  Tesla'nın robotu mühendise saldırdı! Metal pençelerini sırtına ve koluna sapladı
+-  Fatih Karagümrük'ün ilk yarı karnesi
+-  Rusya'dan Türkiye açıklaması: Proje 2024'te hayata geçirilecek
+-  İran: Gazze savaşına müdahil olmamıza ihtiyaç yok
+-  Moriwaki: 5.1 şiddetindeki deprem Marmara fay hattını rahatlatmadı
+-  هاندا أرتشيل تُفاجئ الجمهور بلوك جديد.. وفيديو لها وهي تتحدث العربية
+-  Dodik: Nećemo predlagati niti birati sudije Ustavnog suda
+-  SDI na kraju oktobra preko 714,98 miliona eura
+-  TFF, Süper Kupa İçin Riyad'a Gidecek Taraftarı Uyardı: "Hurma Demeyin!"
+-  Caldo anomalo e clima: finisce il 2023, anno più bollente del pianeta
+-  توتنهام يقطع إعارة سكارليت مع إيبسويتش تاون
+-  Presupusa capturare a orașului Marinka ar duce la șanse minime de progrese operaționale rapide pentru ruși VIDEO
+-  Justin Hubner dan Elkan Baggott Gabung TC Timnas Indonesia Awal Januari 2024, Rafael Struick dan Jordi Amat?
+-  Los Pistons y las peores rachas en la historia del deporte
+-  Pochettino: Aniga Iyo Maamulka Kooxda Halkan Arin Ayaan Isku Raacnay.
+-  Këtë vit 440 mjekë e kanë kaluar provimin profesional
+-  Милтиадес Бабилис, прв човек на ЕДС: Ќе учествуваме на јавниот повик за универзален снабдувач со електрична енергија
+-  Pune Gas Cylinders Explosion: 100 சிலிண்டர்கள் வைக்கப்பட்டிருந்த குடோனில் வெடிவிபத்து; 10 சிலிண்டர்கள் வெடித்து சிதறியதால் அதிர்ச்சி.!
+-  Man charged after seven injured in Christmas Eve crash
+-  Aleksandar Vulin ima novu funkciju, ali u Republici Srpskoj
+-  O governo em paradoxo
+-  Kunjungi Ponpes di Sukabumi, Mahfud Bicara Islam dan Indonesia Menyatu
+-  Castelnaudary : une enveloppe de 110 000 € pour permettre aux habitants d'améliorer leur logement
+-  Europska unija zadovoljna Vučićevim potezom: ‘Pa ovime su de facto priznali Kosovo‘
+-  Dewas KPK: Firli Beberapa Kali Pakai Rumah Kertanegara Saat Disewa Alex Tirta
+-  Puukottaja hyökkäsi koiraa ulkoiluttaneen naisen kimppuun – tässä tuntomerkit
+-  Puukottaja hyökkäsi koiraa ulkoiluttaneen naisen kimppuun – tässä tuntomerkit
+-  De larmer »helt ad Pommern til«: Borgere trætte af flyver over København
+-  De larmer »helt ad Pommern til«: Borgere trætte af flyver over København
+-  Altay'da Futbolculardan İdman Boykotu
+-  Кузнецов — о выборе между 2DROTS и «Енисеем»: «Я еще не определился. Останавливает ситуация с отцом»
+-  SLOBA RADANOVIĆ OKITIO JELKU! Pevač sa suprugom Jelenom ukrasio dom, porodična kuća zasijala kao LAS VEGAS (FOTO)
+-  PSNI at scene of security alert after suspicious device thrown at house
+-  Recklinghäuser Polizei sucht Zeugen: Einbrecher nehmen in Gladbeck zwei Tresore mit
+-  ŠABLONI IZ ZAPADNIH PRIRUČNIKA: Zaharova o protestima u Beogradu - "Izbori nemaju veze sa tim, sprovode nasilje prema državi Srbiji"
+-  Aleksandra i Filip, niko treći: Krenuli smo iz podruma, vidite gdje smo došli
+-  PM Modi to inaugurate grand railway station in Ayodhya on December 30
+-  Hieno ele – SM-liigaseuran otteluun ilmaiseksi
+-  אביה ואחיה בן ה-14 של האישה ההרה שנרצחה בלוד יואשמו ברצח
+-  Τζόκοβιτς: «Θέλω να συνεχίζω να παίζω και μετά τα 40 σαν τον Τομ Μπρέιντι»
+-  מאמן ז'לגיריס: "מקווה שהולינס יעלה כדי לנקום במכבי תל אביב"
+-  דייט נייט: אריאנה גרנדה והחבר נצפו לראשונה אחרי שהתגרשה
+-  Région de Saint-Nazaire : que faire de son sapin de Noël ?
+-  «موانئ أبوظبي» تتولى تشغيل المحطة الجديدة بميناء سفاجا في مصر
