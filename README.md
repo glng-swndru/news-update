@@ -1,51 +1,51 @@
 # Latest News
--  The Athletic: Arsenalilla selvät tavoitteet siirtomarkkinoilla
--  الضرائب: على الشركات تسجيل كل فروعها بضريبة القيمة المضافة
--  "شاومي" تفتتح مصنعا لإنتاج التليفزيونات والموبايلات في مصر خلال 3 شهور
--  דרעי נגד בן גביר בעקבות סערת נציבת שב"ס: "הסכמים צריך לכבד"
--  Sh수협은행, 정기인사 단행…신사업 추진·기업금융 강화에 초점
--  [인사] Sh수협은행
--  Najskuplja tvar na svijetu košta 56 bilijuna eura: Svi su čuli za nju, a valjda nikome ne bi palo na pamet da toliko košta
--  Uzmanından açıklama: Birçok kanser hastalığı tedavi ediliyor! Mide dostu
--  Policja i strażacy podsumowali święta
--  السبت.. حفل «طبلة الست» على مسرح النهر بساقية الصاوي
--  محافظ أسيوط يتابع آخر مستجدات مشروعات برنامج التنمية المحلية بصعيد مصر
--  Lady stabs boyfriend to death in Rivers
--  'Senden Önce'nin başrol oyuncuları belli oldu
--  Tunisie : le projet de loi sur les déchets adopté par l’ARP
--  Zandzakken tegen hoogwater in Deventer, piek wordt over twee dagen verwacht
--  Mallorca: News In Brief
--  Berisha mbledh me detyrim punonjësit e Bashkisë Kavajë në takimet publike
--  Storm Gerrit hits West Highlands
--  التخطيط وجامعة الجلالة يوقعان بروتوكول تعاون لتطوير القرى الأكثر احتياجا
--  Interstellar: svelato il tristissimo finale originale del film. E prevedeva un tragico epilogo per il protagonista
--  Mangsa banjir Kelantan makin bertambah
--  Shillong Teer Result TODAY 27.12.2023 (OUT) First And Second Round Lottery Result
--  3 titans will fight to dominate the market for Wegovy in 2024
--  Martínez revela conversa com Ronaldo: «250 internacionalizações interessam-me»
--  Fury as hospital parking scandal gets WORSE despite Conservative manifesto pledge to end unfair fees: Patients and visitors are forced to fork out £146MILLION in the last year with worst trusts named and shamed
--  Offshore wind in the U.S. hit headwinds in 2023. Here's what you need to know
--  The year when the girl economy roared
--  Klobrillen und Feinripp-Wäsche: Beim Markt der langen G'sichter kann Geschenke wieder loswerden
--  Sam Thompson and Zara McDermott fans are convinced they're engaged after Love Island star covers her hand for innocent Christmas photo: 'Her ring finger is hidden!'
--  Videoblog: Waren die Falcons zu beeindruckt von der Atmosphäre in Bayreuth?
--  Videoblog: Waren die Falcons zu beeindruckt von der Atmosphäre in Bayreuth?
--  Jessie J paljasti kurvikkaan biksuvartalonsa – lomakuvat eivät jätä kylmäksi
--  Cyril Lignac victime d'un cambriolage : deux suspects interpellés et un troisième en fuite
--  Harriette Cole: I feel like I ruin the vibe at parties
--  The year in review: 50 wonderful things from 2023
--  Holiday spending is up. Shoppers are confident, but not giddy
--  This oil company invests in pulling CO2 out of the sky — so it can keep selling crude
--  Подъëм на носки стоя: техника упражнения, какие мышщы работают
--  Breaking: Binance Relists SOL, XRP, ADA, MATIC, And Other Crypto In USDC Spot Pairs
--  Ohio at War Over Rebranding Forest Named After Racist Leader
--  Trump Is Testing the Bounds of Presidential Immunity—and Losing
--  Balik dari Luar Negeri, Bea Cukai Ingatkan Berhati-hati Situs e-CD Palsu
--  BMI is a junk health metric — but there are alternatives that actually work
--  'There has never been such big hype': Why space tech is booming thanks to AI
--  A VC cataclysm has begun. Early 2024 will be rough. But it won't change anything.
--  I was diagnosed with autism and ADHD after quitting school and several jobs. Knowing how my brain works has changed my life.
--  Recession will hit the US in 2024 – so get ready for massive interest-rate cuts, UBS says
--  The top 15 people in enterprise artificial intelligence
--  Deutsche Bank's 'Fresh Money' stock portfolio has returned 150% since 2017, beating the S&P 500. Here are the 29 new names it just added — including one with 160% upside.
--  Hamarosan már a Prime Video előfizetők sem fogják megúszni a reklámokat
+-  Cuatro años de cárcel para tres personas que robaron en viviendas en Ames
+-  المواد الغذائية: ارتفاع أسعار زيت "عافية" و"حلوة" في الأسواق
+-  12 جنيها للبطاطس.. أسعار الخضروات والفاكهة بسوق العبور اليوم الأربعاء
+-  طبيبة: هذه التمارين تحسن الذاكرة
+-  The art of writing professional restaurant reviews
+-  Členské štáty eurozóny v budúcom roku znížia produkciu mincí
+-  Južná Kórea uvalila sankcie na šéfa tajnej služby KĽDR Ri Čchang-hoa
+-  Naplánujte si dovolenku na rok 2024 s rozumom: Prinášame vám veľký prehľad štátnych sviatkov, školských prázdnin a predĺžených víkendov
+-  Vianočnejšie to už byť nemohlo: NASA uverejnila fotku zaujímavého vesmírneho úkazu, očarí aj teba?
+-  Neznámy páchateľ vytvoril v Čiernom Brode skládku plastového komunálneho odpadu
+-  Zásoby krvnej skupiny AB s negatívnym Rh faktorom sú hraničné
+-  Abant Gölü Milli Parkı'nda yeni dönem
+-  Galatasaray'da sol bek için iki yıldız adayı! Transfer devre arasında bitiyor
+-  Meral Akşener "korkak" dediği Ekrem İmamoğlu ile Mansur Yavaş'ı topa tuttu: Plan yapanların oyunlarını bozduk
+-  Trabzonspor'a Brezilyalı stoper
+-  Türkiye için tahmin yükseldi! 10 yılda 800 milyon kişinin ziyaret etmesi bekleniyor
+-  Ndombele gidiyor, Amani geliyor!
+-  Hebei: China International Digital Economy Expo Attracts Foreign Merchants Seeking Cooperation
+-  Farmers, residents of Perundurai observe fast, demanding adequate compensation for land acquired for SIPCOT
+-  Life | Kanye West apologises for string of antisemitic comments
+-  BREAKING: MPhil Degree No Longer Valid, UGC Directs Universities To Stop Admissions
+-  `Aurton Se Zyada Drama Purush Karte Hain` – Drama Queens or Kings? Smriti Irani`s Candid Take
+-  Robert Vadra Isn`t Facing Probe For The 1st Time, Here`s An Array Of Charges He Faces
+-  La luz de Chris Levine y la reina de Inglaterra iluminan la Gran Vía por primera vez en España
+-  مايكروسوفت تطلق تطبيق "كابيلوت" مساعد الذكاء الاصطناعي لأجهزة الأندرويد
+-  تفاصيل برنامج الطلبة المتفوقين والموهوبين بجامعة الملك سعود
+-  إغلاق 1400 منشأة تجارية وصحية في جدة و54 ألف مخالفة.. ماذا فعلت هذه المنشآت؟
+-  عاجل.. راتب 13 ألف ريال.. الهيئة الملكية تطرح وظائف متنوعة لحملة الابتدائية فأعلى
+-  عبر "أبشر".. "المرور" يطرح مزادًا إلكترونيًا للوحات المعدنية
+-  Corona-Zahlen im Main-Tauber-Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Landkreis Schwäbisch Hall aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Hohenlohekreis aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Iñaki Williams entrena al margen del grupo a tres días de ir con Ghana
+-  Corona-Zahlen im Landkreis Heilbronn aktuell: Die Coronavirus-News aus der Region
+-  Marchan contra extorsión y plagio de polleros; hay 16 trabajadores más secuestrados
+-  ทลายโรงงานผลิตอาหารเสริมลดลดน้ำหนัก ผสมไซบูทรามีน
+-  หยุดปีใหม่ทยอยออกจากกรุงฯ ถนนทุกสายรถเริ่มหนาแน่น
+-  เข็น Quick Win 99 วัน พณ.ฟุ้งลดครองชีพกระตุ้นศก.1.2 หมื่นล้าน
+-  CAAT คุมเข้ม "นกแอร์" ยังแก้ปัญหา "ดีเลย์" ไม่ได้
+-  Guardia Nacional trata de frenar caravana; continúa su camino
+-  Corona-Zahlen im Stadtkreis Heilbronn aktuell: Inzidenz für Stadtkreis Heilbronn, Baden-Württemberg und Deutschland
+-  Larnaca draws on €30m in EU funding
+-  Corona-Zahlen im Rems-Murr-Kreis aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Ludwigsburg aktuell: Zahlen und Fakten aus der Region
+-  China acusa candidato presidencial e atual vice de Taiwan de colocar ilha "à beira da guerra"
+-  Mapa GPW: Pure, Lubawa, Saule, Kogeneracja i Genomtec w centrum uwagi
+-  Samsung opóźnia produkcję w nowej fabryce czipów w USA do 2025 r.
+-  Corona-Zahlen im Landkreis Göppingen aktuell: Inzidenz für Landkreis Göppingen, Baden-Württemberg und Deutschland
+-  USA dokupują ropę do swoich rezerw strategicznych
+-  Wertheim: Schmierereien an ehemaligem Postgebäude
