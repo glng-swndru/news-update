@@ -1,51 +1,11 @@
 # Latest News
--  PREMIJER LIGA: Čelsi srušio Kristal Palas u gradskom derbiju, Vulverhempton u gostima rasturio Brentford
--  Vivek: Establishment Isn't Going to Let Biden or Trump Get Anywhere Near the Finish Line in 2024
--  Wzrosty na Wall Street, S&P500 coraz bliżej rekordu
--  ReTo Eco-Solutions, Inc. Announces First Half 2023 Financial Results
--  NIA, K-PaaS 활용 서비스·아이디어 공모전 성료
--  Yasa dışı İsrailli yerleşimcilerden vahşet üstüne vahşet! Filistinli aileye dronlu kezzap saldırısı
--  Protestolar aralıksız sürüyor! Sırbistan'da seçim sonrası tepkiler dinmedi
--  Ukrayna'ya 250 milyon dolarlık ABD desteği
--  Tunus'ta seçimleri 1348 aday kazandı
--  Chelsea evinde 2 golle kazandı
--  Polisi görünce uyuşturucu sobaya attılar! Operasyonda 1 gözaltı
--  Wolverhampton deplasmanda farklı kazandı
--  ABD'nin iç kuzey bölgeleri kar ve tipiye teslim oldu
--  Amerikanischer TV-Komiker Tom Smothers gestorben
--  매경이 전하는 세상의 지식 (매-세-지, 12월 28일)
--  Kickoff | Chelsea secure back-to-back home wins
--  Vaccine could cut RSV hospital admissions in babies by 80%, study finds
--  Chile: Cae banda dedicada al secuestro y narcotráfico
--  Tributes to woman, 18, who died in car crash which her twin sister survived
--  Family pay tribute to woman who died after falling off quad bike
--  "ŠTA GOD POŽELIM TO I OSTVARIM" Zorica Marković iskreno o svojim planovima i prazničnim željama
--  This Canadian Whisky Brand Just Dropped a Spirit Infused With Wild Mushrooms
--  다우지수 또 고점...S&P500 경신 코앞 [월가월부]
--  年末年始に遊んでみる？ iOS/iPadOS版『バイオハザード ヴィレッジ』が60％オフ
--  Feuerwerks-Lagerverkauf in Dortmund startet um Mitternacht: Live-Reportage aus Oestrich
--  Sabiha Gökçen'deki tünel eleştirilere konu olmuştu! Üzerinden dünyaya uçuşlar yapılıyor
--  Valakinek jó szilvesztere lesz - elvitték a Skandináv lottót!
--  US Stocks Extend Record High Streak on Bets of 2024 Interest Rate Cuts
--  Três gigantes de SC integram terceira prévia de índices da bolsa brasileira B3
--  Tendrán El Vergel, Temósachic, Madera y Creel las temperaturas más bajas estado
--  Ne slušaju se upozorenja! Na solinskom području dva dječaka ozlijeđena od petardi, policija zaplijenila hrpu pirotehnike
--  حرب غزة تستعر.. وإسرائيل تهدد بفتح جبهة لبنان
--  Migrantes: deportación de guatemaltecos desde EE. UU. ha incrementado en 2023 un 21.96%
--  ¿De qué murió la admiradora de Taylor Swift que asistió a un concierto de la gira “The Eras Tour” en Brasil? Esto reveló la autopsia
--  "C'est très dur": une famille de Hyères cambriolée le soir du réveillon de Noël, tous les cadeaux dérobés
--  Janis Sferopulos najavio gostovanje Zvezde u Atini: Kazniće nas ako izgubimo koncentraciju (VIDEO)
--  Com pênalti no fim, Chelsea bate o Crystal Palace, soma 3ª vitória seguida em casa e espanta 'má fase' na Premier League
--  국제대회 통해 부쩍 성장한 김주원·김형준, 내년에 한 발 더 도약할까 [MK초점]
--  '이선균 빈소' 찾은 연예계 동료들…상주 전혜진 위로
--  شرطة نيويورك توقف 26 شخصا أثناء احتجاجات مؤيدة لفلسطين
--  بنزيما يغلق حسابه بمنصة إنستغرام
--  رونالدو يلمح للوصول إلى 250 مباراة دولية
--  7 شهداء بقصف إسرائيلي على مخيم النصيرات
--  بدء امتحانات تكميلية التوجيهي اليوم
--  Ammonium gas leak : 8 గ్రామాలు ఉక్కిరిబిక్కిరి
--  ¿Sospechas de COVID-19? Conoce dónde puedes realizarte una prueba descarte del virus
--  Jeste li ikada vidjeli ovakvo ‘spašavanje‘? Vučna služba na sebe natovarila automobil, ali ga nisu baš dobro centrirali
--  الكرملين: المساعدات الأوروبية لأوكرانيا لن تغير نتيجة الصراع
--  Israelin hävittäjät eliminoivat videolla terroristit, Hamas ei ehdi suojaan
--  Zorgane homme du match, Koffi décisif: les notes des Zèbres après la victoire contre Malines
+-  Subsidio del tanque de gas se mantendrá
+-  రెండో స్థానానికి తెలుగు యోధాస్‌
+-  మాజీ ఎమ్మెల్యే కుమారుడిపై లుక్‌ఔట్‌
+-  Trump Angrily Denies ‘Bullying’ His Way Into ‘Home Alone 2’
+-  انفجار طائرة مسيرة مفخخة في جنوب هضبة الجولان
+-  زعيم كوريا الشمالية لجيشه: استعدوا للحرب سريعاً
+-  మా అక్క నన్ను విపరీతంగా కొట్టింది
+-  PlayStation Plus Lineup for January 2024 Revealed
+-  Fallout London Mod Release Date Announced
+-  ఆర్థిక పరిస్థితిపై వాస్తవాలు చెప్పాలి
