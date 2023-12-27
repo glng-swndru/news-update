@@ -1,11 +1,11 @@
 # Latest News
--  Fatih Altaylı hakkında suç duyurusunda bulundu
--  Beşiktaş'ta feci kaza! Otomobil site bahçesine düştü
--  Havadan ve karadan PKK/YPG'ye darbe! Bakan Güler son rakamları açıkladı
--  Milli Eğitim Bakanı Tekin: Spor ve sanat dersleri çok önemli
--  İsrail'in "Kassam Tugayları" yalanı! Emekli Tümgeneral Brik: Rakamlar yanlış veriliyor
--  Wahlkampf-Zankapfel: Über 150.000 Migranten in New York
--  Kela-korvauksiin tulee ensi viikolla suurin korotus lähes 35 vuoteen
--  Deutsche Telekom počinje koristiti Open RAN bazne stance u Njemačkoj
--  Pri izraelskom útoku na juhu Libanonu zomrel militant Hizballáhu a jeho rodina
--  Biskup Komarica: Hrvati u RS prepušteni sami sebi i svojim duhovnim vođama
+-  国内手机市场最新销售数据公布 苹果和华为两巨头展开激烈争锋
+-  Atina'ya iniş yapan Fatih Terim'den ilk mesaj Yunanca oldu! ''Yıllardır şampiyon olamıyorlar, nereye gidersem gideyim, kazanmak için giderim!''
+-  Polizei sucht nach 75-Jähriger
+-  Barcode solution role in pharma serialisation: Ensuring medication safety
+-  Jetzt bei 1&1: Das Samsung Galaxy S23 FE inklusive 1&1 All-Net-Flat ab 9,99 Euro pro Monat
+-  兩內地男香港仔山邊試通訊設備 行山客見疑即報 警拉人檢丫叉彈珠
+-  Šef splitskog SDP-a prozvao Dalibora Ninčevića (HDZ) da je supruzi poklonio ‘fotelju‘: ‘Nismo u službenoj vezi...‘
+-  Multiple Agencies Respond to Domestic Dispute in Dilworth
+-  Bangladesh claim historic victory over New Zealand in first T20I
+-  Europska unija zadovoljna Vučićevim potezom: ‘Pa ovime su de facto priznali Kosovo‘
