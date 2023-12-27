@@ -1,11 +1,51 @@
 # Latest News
--  فيديو صادم.. طبيب يضرب مريضة في رأسها أثناء الجراحة وهذا ما حدث له
--  Williams Companies se expande con la compra de activos de gas de Hartree por 1.950 millones de dólares
--  Regeneron gana el juicio de patentes contra Viatris, sus acciones suben un 2,5
--  La negociación de opciones de CME Group revela un sentimiento alcista de los inversores
--  Sorteo Bonoloto del miércoles 27 de diciembre de 2023
--  4 Personas terminan lesionadas en aparatoso choque en Santa Ana
--  Ni muy caliente ni muy fría: esta es la ciudad con el mejor clima de Colombia según la IA
--  جنود أُصيبوا في غزّة يرفضون لقاء نتنياهو
--  أهالي الاسرى الإسرائيليين يتظاهرون بمطار بن غوريون
--  الذكرى السابعة عشرة لوفاة المرحوم إبراهيم الحوامده
+-  Suparnik Dinama u šesnaestini finala KL doveo američkog veznjaka
+-  Asgari ücretle birlikte değişecek ödemeler! İşte kalem kalem tam liste
+-  헌정사 첫 검사 탄핵심판, 오늘 첫 변론준비기일
+-  כמעט שיא יורוקאפ להפועל ת"א. פרנקו: "ניצחנו בזכות האופי החיבור"
+-  אבוקסיס: "מבאס להפסיד כך, בטח כשאתה תופס את מכבי ביום כזה"
+-  חשש לקרע ברצועה הצולבת של ניר ביטון, שצפוי לעבור MRI
+-  Aaj Ka Mithun Tarot Card: मिथुन राशि वाले नई शुरुआत में पाएंगे सफलता, जीतेंगे सभी का दिल
+-  Modern Control of a Logic Analyzer
+-  Former Head of the Reggae Girlz Named New Head Coach of Chicago Red Stars
+-  고용부, 겨울방학 중 학교 석면 해체·제거작업 집중 감독
+-  [여론조사] 한동훈 비대위, 국힘에 '유리' 48.2%…"한동훈 신드롬 강타"
+-  [눈꽃 동행축제] 먹거리 안전·전통 지키는 K-밀키트…지원·한마당 밀키트 '시선집중'
+-  Jak zemljotres kod ostrva Čiovo
+-  '10억 수수' 이정근 대법 판단…항소심서 징역 4년 2개월
+-  [여론조사] 국민의힘 42.4% vs 민주당 35.7%…"한동훈 컨벤션 효과"
+-  Viral Minibus KONI Kota Bekasi Terbakar di Tol Cipularang, Berikut Kronologinya
+-  서울교육청, 2024년 신년 화두 '본립도생'…"기본이 바로 서야"
+-  Zlatibor obara sve turističke rekorde, popunjen skoro sav kapacitet VIDEO
+-  Ocorrências com água-viva aumentam 817% em SC em relação ao ano passado
+-  [여론조사] 尹대통령 지지율 0.3%p↑ 42.6%…"한동훈 등판 효과"
+-  FK Sarajevo se pohvalio oborenim rekordom
+-  [재미있는 오늘의 운세] 2023년 12월28일
+-  Yeni asgari ücret ile ilgili bir sürpriz artış daha; Net rakama eklenecek
+-  Arus Balik Nataru, 18 Ribu Lebih Kendaraan Lalui Jalan Tol Terbanggi Besar - Kayu Agung
+-  美, 우크라 전쟁 '승리에서 방어'로 전환 준비...'평화 협상 대비'
+-  Decembertől megnőttek a legkisebb bérek
+-  창업기업 평균 3억 투자해 연간 2억4000만원 벌었다
+-  I Don't Think Male Sports Fans Are Ready to Go to War With Swifties
+-  Invitan a caminata de fin de año a San Judas
+-  Presume 'chapodiputada' su nueva vida
+-  Hospitais de Gaza em rutura. OMS fala em "banho de sangue" e "carnificina"
+-  Kendisi 1.5 heykeli ise tam 6.5 metre! Shakira'nın devasa heykeli herkesi hayrete düşürdü...
+-  Ku është Erling Haaland? Guardiola ofron përditësimin e dëmtimit të Haaland
+-  Cuál es el número de la suerte para 2024 y qué hay que tener en cuenta
+-  Vo veku 94 rokov zomrel rakúsky výrobca pištolí Gaston Glock
+-  Rodri ofereceu (literalmente) este golo ao Everton. City ficou em apuros
+-  Stjuardesa proganjala pilota: Određen joj pritvor
+-  TEM Otoyolu Ankara yönü trafiğe kapatıldı
+-  Εντυπωσιακές εικόνες από το «Ψυχρό φεγγάρι», την τελευταία πανσέληνο του 2023
+-  Olympic gold medalist Stephanie Rice cuddles up to new Aussie boyfriend during romantic road trip after meeting him a church
+-  المنصور: لا علاقة للقوات المشتركة باستهداف فندق عدن
+-  İran ve Rusya'dan dolar kararı: Ticarette kullanılmayacak
+-  Mersin'de zincirleme kaza: 2 ölü, 4 yaralı
+-  Manchester City, Claudio Echeverri transferini bitiriyor
+-  Woman seriously injured as her car is pushed into pole on Mildura road in Victoria
+-  Dve od ove četiri ekipe će igrati na Kupu Radivoja Koraća u Nišu: Sigurno ćemo videti bar jednog debitanta
+-  Clan Castedo: Casación Penal confirmó las condenas para líder e integrantes
+-  Cap D'Any ad Alghero, tutto pronto per tre notti di spettacolo
+-  MA, KAKVA NBA LIGA? GUBILI BI I U EVROKUPU! Bogdanović i ekipa se BRUKAJU, dok trener zarađuje BOGATSTVO!
+-  Oglasio se Janjušev drugi brat: Nakon Mihajlove sahrane poslao jednu poruku svojim prijateljima
