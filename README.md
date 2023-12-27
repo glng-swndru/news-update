@@ -1,51 +1,51 @@
 # Latest News
--  陽明跌停，曝露航海王營運警訊？一圖看航運商怎麼繞道，紅海危機如何影響後市？
--  無薪假的解藥？元旦起7行業可申領薪資補貼，最高9200元
--  La Super League tablerait sur un budget initial de 15 milliards d'euros
--  Man seriously injured in collision between car and tractor in Virginia, South Australia
--  الأرصاد تنشر صورة لرادار الطقس وتبيّن مواقع تساقط الأمطار
--  Ator casa-se com o cineasta italiano Marconi Calvani
--  Demystifying DSLRs: A Comprehensive Guide to Choosing the Right Camera for You
--  Drei-Flüsse-Bad Gemünden: Badegäste schätzen die Sportstätte
--  Qualitätssiegel für Erbacher Klinik
--  Brother of Australian man and his wife killed in Israeli airstrike in Lebanon is revealed to be a 'martyr' for terrorist group Hezbollah - as trio are buried in caskets draped with militia's flag
--  El Gobierno perfora a 400 metros bajo el suelo en Albolote en busca de nuevos pozos por la sequía
--  Macron'dan Netanyahu'ya "Yahudi yerleşimci şiddetine son verin" çağrısı
--  England ace Harry Kane earns whopping £25MILLION away from the pitch with lucrative side-hustles
--  [날씨] 수도권 비상저감조치…당분간 심한 추위 없어
--  ABD'den Ukrayna'ya 250 milyon dolarlık yeni askeri yardım
--  The Echo Show 8 smart display is priced at an all time low for Amazon Prime members
--  Christmas nightmare for Brittany Hockley as she is trapped in a blizzard while driving through the Scottish Highlands
--  Masalah letak kereta, tiada promosi punca Arked Mara lengang
--  Customs seize N2.9bn vehicles, dealers blame high duty
--  Consejos para comprar un coche de segunda mano o de ocasión
--  Calcio violento, l’allarme di Carta
--  Buona la prima per Ferrini e Tor di Quinto
--  Dal 2 gennaio la Torres va a caccia dei rinforzi
--  La Santa Barbara alla Fermassenti
--  Come nelle migliori regioni
--  Per Mura notte agitata nell’Oceano Indiano
--  [출근길 인터뷰] '청룡의 기운' 받아볼까…해돋이 명소 6곳
--  Hermaea-Lecco, obiettivo sorpasso
--  Lambakan penyelidikan universiti tidak dimanfaat
--  Mom says pregnant Texas teen found dead was "there at the wrong time"
--  Feeding those in need is Food Bank For New York City's continuing mission
--  ジャイアンツ、次戦の先発QBにタイロッド・テイラーを起用へ
--  NH證 "삼성물산, 자사주 13.2% 소각 계획 구체화 기대… 목표가 상향"
--  Be responsible on public land these holidays
--  Keep your family safe this summer
--  Explore the great outdoors
--  Keep your property safe this holiday season
--  Rusya ve İran’dan para birimi anlaşması
--  This annoying thing about Australia makes me want to move overseas - and Europeans never believe me when I tell them
--  Alcalde de SJL afirma que delincuencia en su distrito va en aumento a pesar de estado de emergencia
--  [종합] 11월 생산·소비 증가 속 투자 감소…반도체 생산 12.8% ↑
--  Año Nuevo 2024: ¿Cuáles son las mejores cábalas para el 31 de diciembre?
--  Banxa Reports Audited Full Year 2023 Financial Results
--  Israeli Teen Who Refused to Enlist in IDF Military Jailed
--  «Quiero dejar en las familias una sonrisa, pero también una palabra que les ayude»
--  Phyna: I Spend Most Of My Times Alone, I Don’t Have Friends
--  Bonucci: "In futuro vorrei fare l'allenatore. Sanremo come Ibra? Non so se ce la farei"
--  Barack Obama's list of the best movies of 2023 sure has a lot of Barack Obama movies on it
--  Wall Street drifts higher as a strong year for markets winds down
--  Vaivén, un sol de circo
+-  Man City earn comeback win at Everton to go fourth
+-  '이선균 협박' 20대女, 구속심사 전 도주했다 체포
+-  맨시티-첼시보다 황희찬… EPL 공홈 메인 장식
+-  U.S. court rejects sentence appeal by 'El Chapo'
+-  خارجية فرنسا تطرد دبلوماسيين من أذربيجان ردا على خطوة مماثلة
+-  Red Sea attacks a part of Iranian ‘Axis of Resistance’ plot to ‘defeat US’: experts warn
+-  الصين تضيف قمرين جديدين لنظام "بيدو-3" للملاحة الفضائية
+-  الخارجية الاميركية تفرج عن الحزمة الأخيرة من المساعدات العسكرية المتاحة لأوكرانيا
+-  عواصف ثلجية تضرب الولايات المتحدة وتتسبب في إلغاء عشرات الرحلات الجوية
+-  ماكرون يبلغ نتنياهو بضرورة العمل على وقف طويل الأمد لإطلاق النار
+-  وحدة من الجيش داهمت منازل مطلوبين في بريتال فأوقفت مواطنا وضبطت 3 سيارات مسروقة ومخدرات ومال مزور وأعتدة عسكرية
+-  Diablo 4 head says Blizzard will "embrace," not insta-nerf, busted stuff like Ball Lighting Sorcerers: "Just let 'em have fun, we'll deal with it later"
+-  Lionesses reaching World Cup final voted the most memorable sporting moment of 2023
+-  بالفيديو: "يا رب ما خرجنا إلا في سبيلك".. قالها ثم أطلق قذيفته فصرخ جنود الاحتلال ألمًا
+-  페르노리카, 칵테일로 즐기기 좋은 '제퍼슨 버번' 위스키 출시
+-  How in the world is Maestro not one of the Top 10 Netflix movies this week?
+-  배강욱 예비후보, "전곡산단 지정폐기물 매립장 끝까지 막아낼 것"
+-  누적 가입자 9000만명…콴다, 2023년 연말결산 리포트 공개
+-  은평구, 2023년 자활분야 '우수 지자체' 선정… '장관표창 수상' 서울시 자치구 '유일'
+-  '2024 전망' 수출기업, 내년 자금사정도 어렵다
+-  [08:17 가상자산] 마이크로스트레티지 비트코인 6억달러 매입에 상승세
+-  대전 0시 축제, 2024년 8월 9일부터 9일간 진행
+-  Πέθανε ο πρώην πρόεδρος της Κομισιόν, Ζακ Ντελόρ
+-  Wall Street: νέο ρεκόρ για τον Dow Jones
+-  Ρωσία: Στα 80-85 δολ. θα πωλείται το brent το 2024
+-  Jujutsu Kaisen, One Piece y más: 10 animes que la rompieron en 2023 (y dónde verlos)
+-  สภาพอากาศวันนี้ ยังน่าห่วง! ภาคใต้ฝนตกหนัก 60% พื้นที่
+-  Fan de “Tu Día” decreta que Priscilla y Repe oficializarán romance: “Hacen una pareja perfecta”
+-  Polens regering sætter statsmedier under likvidation
+-  Polens regering sætter statsmedier under likvidation
+-  ¿Qué es el síndrome del corazón navideño?
+-  "الذهب" يلمع في 2023 مستغلا الصراعات ويصعد بعد خفوت دام عامين
+-  Como funciona vila na França criada para receber só moradores com demência
+-  Rechaza corte de EU apelación de sentencia de 'El Chapo'
+-  Pasará 51 años en prisión por secuestro, abuso sexual y robo
+-  Cuidado con el azúcar en esta época navideña
+-  مقارنه صادمة بين رونالدو وميسي في أخر سنتين
+-  ¡Triple colisión en Pesé! Otra persona falleció
+-  ‘City is dying’ as high street charity chain with 170 locations abruptly closes branch over Christmas
+-  ‘City is dying’ as high street charity chain with 170 locations abruptly closes branch over Christmas
+-  Perfil | Marta Lois, la mujer de confianza de Yolanda Díaz que pondrá a prueba la fuerza de Sumar
+-  بطولة إنكلترا: تشلسي يحسم مواجهته مع بالاس في الوقت القاتل
+-  بطولة إنكلترا: سيتي يعود بقوة من مونديال الأندية
+-  Kirkorov Yeni il şoularından uzaqlaşdırıldı
+-  الشرقية.. ضبط مخالف لنظام البيئة لبيعه حطبًا محليًا
+-  Kaleidoskop Olahraga Mei 2023: Timnas U-23 Raih Medali Emas SEA Games, Sukses Piala Dunia Panjat Tebing
+-  Gabriel Veron é anunciado no Cruzeiro após recusar proposta do Corinthians
+-  Lee Sun-kyun actor de “Parasitos” fue hallado sin vida
+-  Canucks: How Dakota Joshua found his game, how everybody knows his name
+-  Sean Payton ‘embarrassed’ Russell Wilson ‘every chance he got’: Robert Griffin III
