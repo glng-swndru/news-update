@@ -1,51 +1,11 @@
 # Latest News
--  Kannada stunt master Jolly Bastian dies of cardiac arrest
--  Neha Dhupia, Kajal Aggarwal, Shriya Saran attend `Masha and the Bear` with kids
--  Soccerladuma | Pep Fires Warning To Man City Critics
--  Tesla fabrikasında can pazarı! Robot mühendise saldırdı... Ortalık kan gölüne döndü
--  Aleksandar Vulin imenovan za senatora RS
--  Multi-Club-Ownership - Hertha-Investor 777 Partners greift nach europäischem Fußball
--  Tesla'nın robotu mühendise saldırdı! Metal pençelerini sırtına ve koluna sapladı
--  Fatih Karagümrük'ün ilk yarı karnesi
--  Rusya'dan Türkiye açıklaması: Proje 2024'te hayata geçirilecek
--  İran: Gazze savaşına müdahil olmamıza ihtiyaç yok
--  Moriwaki: 5.1 şiddetindeki deprem Marmara fay hattını rahatlatmadı
--  هاندا أرتشيل تُفاجئ الجمهور بلوك جديد.. وفيديو لها وهي تتحدث العربية
--  Dodik: Nećemo predlagati niti birati sudije Ustavnog suda
--  SDI na kraju oktobra preko 714,98 miliona eura
--  TFF, Süper Kupa İçin Riyad'a Gidecek Taraftarı Uyardı: "Hurma Demeyin!"
--  Caldo anomalo e clima: finisce il 2023, anno più bollente del pianeta
--  توتنهام يقطع إعارة سكارليت مع إيبسويتش تاون
--  Presupusa capturare a orașului Marinka ar duce la șanse minime de progrese operaționale rapide pentru ruși VIDEO
--  Justin Hubner dan Elkan Baggott Gabung TC Timnas Indonesia Awal Januari 2024, Rafael Struick dan Jordi Amat?
--  Los Pistons y las peores rachas en la historia del deporte
--  Pochettino: Aniga Iyo Maamulka Kooxda Halkan Arin Ayaan Isku Raacnay.
--  Këtë vit 440 mjekë e kanë kaluar provimin profesional
--  Милтиадес Бабилис, прв човек на ЕДС: Ќе учествуваме на јавниот повик за универзален снабдувач со електрична енергија
--  Pune Gas Cylinders Explosion: 100 சிலிண்டர்கள் வைக்கப்பட்டிருந்த குடோனில் வெடிவிபத்து; 10 சிலிண்டர்கள் வெடித்து சிதறியதால் அதிர்ச்சி.!
--  Man charged after seven injured in Christmas Eve crash
--  Aleksandar Vulin ima novu funkciju, ali u Republici Srpskoj
--  O governo em paradoxo
--  Kunjungi Ponpes di Sukabumi, Mahfud Bicara Islam dan Indonesia Menyatu
--  Castelnaudary : une enveloppe de 110 000 € pour permettre aux habitants d'améliorer leur logement
--  Europska unija zadovoljna Vučićevim potezom: ‘Pa ovime su de facto priznali Kosovo‘
--  Dewas KPK: Firli Beberapa Kali Pakai Rumah Kertanegara Saat Disewa Alex Tirta
--  Puukottaja hyökkäsi koiraa ulkoiluttaneen naisen kimppuun – tässä tuntomerkit
--  Puukottaja hyökkäsi koiraa ulkoiluttaneen naisen kimppuun – tässä tuntomerkit
--  De larmer »helt ad Pommern til«: Borgere trætte af flyver over København
--  De larmer »helt ad Pommern til«: Borgere trætte af flyver over København
--  Altay'da Futbolculardan İdman Boykotu
--  Кузнецов — о выборе между 2DROTS и «Енисеем»: «Я еще не определился. Останавливает ситуация с отцом»
--  SLOBA RADANOVIĆ OKITIO JELKU! Pevač sa suprugom Jelenom ukrasio dom, porodična kuća zasijala kao LAS VEGAS (FOTO)
--  PSNI at scene of security alert after suspicious device thrown at house
--  Recklinghäuser Polizei sucht Zeugen: Einbrecher nehmen in Gladbeck zwei Tresore mit
--  ŠABLONI IZ ZAPADNIH PRIRUČNIKA: Zaharova o protestima u Beogradu - "Izbori nemaju veze sa tim, sprovode nasilje prema državi Srbiji"
--  Aleksandra i Filip, niko treći: Krenuli smo iz podruma, vidite gdje smo došli
--  PM Modi to inaugurate grand railway station in Ayodhya on December 30
--  Hieno ele – SM-liigaseuran otteluun ilmaiseksi
--  אביה ואחיה בן ה-14 של האישה ההרה שנרצחה בלוד יואשמו ברצח
--  Τζόκοβιτς: «Θέλω να συνεχίζω να παίζω και μετά τα 40 σαν τον Τομ Μπρέιντι»
--  מאמן ז'לגיריס: "מקווה שהולינס יעלה כדי לנקום במכבי תל אביב"
--  דייט נייט: אריאנה גרנדה והחבר נצפו לראשונה אחרי שהתגרשה
--  Région de Saint-Nazaire : que faire de son sapin de Noël ?
--  «موانئ أبوظبي» تتولى تشغيل المحطة الجديدة بميناء سفاجا في مصر
+-  Fatih Altaylı hakkında suç duyurusunda bulundu
+-  Beşiktaş'ta feci kaza! Otomobil site bahçesine düştü
+-  Havadan ve karadan PKK/YPG'ye darbe! Bakan Güler son rakamları açıkladı
+-  Milli Eğitim Bakanı Tekin: Spor ve sanat dersleri çok önemli
+-  İsrail'in "Kassam Tugayları" yalanı! Emekli Tümgeneral Brik: Rakamlar yanlış veriliyor
+-  Wahlkampf-Zankapfel: Über 150.000 Migranten in New York
+-  Kela-korvauksiin tulee ensi viikolla suurin korotus lähes 35 vuoteen
+-  Deutsche Telekom počinje koristiti Open RAN bazne stance u Njemačkoj
+-  Pri izraelskom útoku na juhu Libanonu zomrel militant Hizballáhu a jeho rodina
+-  Biskup Komarica: Hrvati u RS prepušteni sami sebi i svojim duhovnim vođama
