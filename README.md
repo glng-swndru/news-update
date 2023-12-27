@@ -1,51 +1,51 @@
 # Latest News
--  إيراني أصيب بنوبة قلبية أثناء قيادة سيارة في منطقة مكتظة بالسكان.. ماذا حدث؟
--  Alibaba deberá enfrentar demanda en EE.UU. por falsificaciones del juguete Squishmallows
--  Adzic-Juve, ci siamo: sorpasso al Bologna. Chi è, cifre e formula
--  Restaurangnotan på 82 000 fortfarande obetald
--  2024 Asgari Ücret Zammı Belli Oldu! Bakan Işıkhan son dakika açıkladı! Asgari ücret zammıyla İşsizlik, Kıdem tazminatı, Yaşlılık ve Engelli maaşı da değişti! İşte kalem kalem yeni ücretler
--  ▶️ Kuruluş Osman 142. bölüm CANLI İZLE 📺 ATV Kuruluş Osman son bölüm full izle tek parça
--  Fatih Terim, Panathinaikos ile ilk antrenmanına çıktı! "Kaybettiğimizde benim hatam olacak"
--  Kayseri’de yanan hafif ticari araç kullanılamaz hale geldi
--  Karabük'te Sanayi Sitesinde çıkan yangın kontrol altına alındı!
--  Rize’de mobilya fabrikasında çıkan yangın güvenlik kameralarına yansıdı!
--  Beyoğlu'nda kaçak göçmen denetimi: Çok sayıda düzensiz göçmen yakalandı
--  Asgari ücret kime nasıl yansıyacak? 2024 işsizlik maaşı, sigorta primi, BES, sosyal yardım…
--  Social Average Salary in China: An Explainer
--  البابا تواضروس يعلن توقف اجتماع الأربعاء 3 أشهر
--  تقديرًا لمجهوداته.. وزير التعليم العالي يكرِّم المفتي في عيد العلم الـ 18
--  احتفالية عيد العلم.. منح وزير الأوقاف وسام التميز في الفكر الإسلامي بجامعة القاهرة
--  إعلام عبري ينشر صورة للقيادي في حماس محمد الضيف
--  الاحتلال يقترح صفقة جديدة تشمل انسحاب قواته من بعض مناطق غزة
--  فيديو| متظاهرون أمريكيون يغلقون مدخل مطار بولاية نيويورك بسبب الحرب على غزة
--  حماس تعلق على وضع "رأس حمار" على باب مقبرة بالقرب من المسجد الأقصى
--  "للمرة الثالثة".. جنود مصابون بمعارك غزة يرفضون زيارة نتنياهو
--  فيديو| المقاومة تحتفي بجندي إسرائيلي في ذكرى أسره التاسعة
--  أمريكا: سنقدم لأوكرانيا أسلحة وذخائر بقيمة 250 مليون دولار
--  أول تعليق من مدرب زد بعد تصدر الدوري الممتاز مؤقتا
--  ترشيح أحمد حسن كوكا لتدعيم خط هجوم الأهلي في يناير
--  Hà Nội có doanh nghiệp thưởng Tết 2024 cao nhất là 205 triệu đồng
--  Làm rõ vụ việc ô tô vào bệnh viện đón bệnh nhân bị ngăn cản, đe doạ
--  Đường ngập do triều cường, người dân TPHCM chật vật lội nước về nhà
--  Nhìn lại Top 10 người giàu nhất thế giới năm 2023
--  “Giải mã” 10 phương án thiết kế Runway và Show Icon cho ELLE SHOW 2023
--  Xôn xao trước đề thi Văn "xúc phạm nhà giáo" của 1 trường học ở TP.HCM, phụ huynh đọc xong ngỡ ngàng, tức giận
--  TikToker Trúc Linh hoàn thành 4/5 mục tiêu khó nhằn 2023, chia sẻ cách thuê nhà riêng “chuẩn đét” để chạy KPI 2024
--  Mẹ Doãn Hải My thần thái ngút ngàn qua ống kính của con gái
--  Nam chính bị kêu gọi "đuổi" khỏi phim vì diễn quá đỉnh, là người "bình thường" duy nhất trong dàn nhân vật
--  Những số điện thoại tuyệt đối không nên nghe, không gọi lại
--  Thu nhập 15 triệu/tháng, liệu có thể tiết kiệm 500 triệu trong vòng 3 năm?
--  Hà Nội vào đông có gì thú vị?
--  CCTV hé lộ đoạn video Lee Sun Kyun lái xe tới công viên để tự sát?
--  Mẹ Neymar được con trai tặng siêu xe dịp Giáng sinh, có phản ứng đáng chú ý khi chụp cùng "con dâu hụt"
--  Lisa xác lập thêm kỷ lục mới, vượt luôn cả thành tích của BLACKPINK
--  Da xuất hiện 2 dấu hiệu này thì bạn nên đổi ngay kem dưỡng ẩm, kẻo lão hóa sớm và già không phanh
--  Knet chọn nhóm nữ gen 4 số 1 Kpop: Riêng NewJeans "out trình" vì làm được điều BLACKPINK không làm được?
--  5 "báo động đỏ" mỡ nội tạng vượt ngưỡng an toàn, bác sĩ chỉ ra cách điều chỉnh
--  1 thói quen tài chính đơn giản nhưng giúp bạn dần giàu lên trong năm 2024
--  Nhiều người hốt hoảng khi thấy hình ảnh này của Tăng Thanh Hà và các con: Thực ra, hoạt động này rất tốt cho trẻ!
--  Không cần đến Tomorrowland, fan Việt vẫn có thể “bùng cháy” cùng DJ Tungevaag tại Luxury Countdown Party 2024
--  Vương Phạm sau 2 năm dính lùm xùm với Khoa Pug: Ngày càng giàu có nhờ buôn đất, mua ở đâu lãi ở đó
--  T-Up thời trang "riêng bản" dành cho giới trẻ
--  Dàn fashionista nô nức check-in cửa hàng LOEWE, chào đón bộ sưu tập mùa lễ hội
--  Hà Nội xuất hiện loạt món mới mùa đông “lạ lắm”: Toàn món quen nhưng biến tấu có gì khác?
+-  Murder probe launch as car ploughs into huge crowd including cops leaving man, 46, dead & several injured
+-  تعيين قائد لأركان البحرية
+-  Brentford nærmer sig bunden efter irsk gavebod
+-  Brentford nærmer sig bunden efter irsk gavebod
+-  Bitzlato suspende las transacciones de Bitcoin en medio de la confusión legal
+-  SenesTech firma un acuerdo de distribución con Fruit Tree para los mercados de Hong Kong y Macao
+-  HDFC Bank quiere volver a nombrar presidente a Atanu Chakraborty
+-  flyExclusive comenzará a cotizar en la bolsa NYSE American bajo el ticker FLYX
+-  Strastveni skijaš nam otkrio: “Lani smo u Austriji skijali sedam dana, a ove godine za isti iznos…”
+-  [오늘날씨] 평년보다 포근… 미세먼지 '나쁨'
+-  여야, 오늘 국회 본회의서 '쌍특검' 표결
+-  Почина познатиот британски режисер и актер Дејвид Лиланд
+-  Soccerladuma | Chelsea Bounce Back After Late VAR Call
+-  Quiso matar una cucaracha e hizo explotar su departamento por los aires
+-  Jacques Delors, ex-presidente da Comissão Europeia, morre aos 98 anos
+-  Esse foi o melhor filme de terror de 2023: Violência e tensão roubam a cena em longa que bota o dedo na ferida
+-  Mersin'de zincirleme kaza! Ölü ve yaralılar var...
+-  Gareca y el detalle pendiente para dirigir la selección chilena
+-  Le Dr Jacques Schweitzer, ancien président du conseil départemental des Alpes-Maritimes de l’Ordre des médecins, est décédé
+-  Basket Pro B. Diminué mais pas résigné, l’Elan sort la tête haute face à Rouen (70-74)
+-  LawConnect wins Sydney to Hobart line honours
+-  Chelsea 2 Crystal Palace 1: Blues secure much-needed win as Noni Madueke fires home late penalty
+-  Pomaže li grožđe u mršavljenju?
+-  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
+-  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
+-  ‘Peace, freedom and democracy’: Russian anti-war presidential hopeful blocked from running
+-  Što treba čistiti na tjednoj, mjesečnoj, a što na godišnjoj razini?
+-  Halle Bailey’s boyfriend DDG buys her $500,000 worth of Christmas gifts including a Birkin bag
+-  John Stones suffers yet another injury setback this season in title blow for Man City
+-  Znakovi na tijelu koji mogu ukazivati na kardiovaskularne bolesti
+-  पुतिन ने प्रधानमंत्री मोदी को रूस आने का न्योता दिया, भारत की दोस्ती देख जल रहा होगा अमेरिका!
+-  Vučić: Ne plašim se opozicije i protesta
+-  केएल राहुल को कोसने वालों जवाब मिल गया? आलोचनाओं पर चुप्पी तोड़कर सबकी बोलती बंद कर दी
+-  2023 की कोहरे के साथ होगी विदाई, नए साल में बारिश और कड़ाके की ठंड, IMD ने बता दिया पूरे मौसम का हाल
+-  Tesla's biggest Chinese rival is about to overtake Elon Musk. These fun and affordable models show how.
+-  Късна дузпа измъкна Челси срещу слабак у дома
+-  تعيين قائدا لأركان الجيش الجوي
+-  Privados de libertad eligieron el camino de la educación. Se graduaron mil 280
+-  Recuperan auto robado en Pedregal
+-  بحكم قضائي.. ترامب باق في سباق الرئاسة الأميركية
+-  Vučić idol mnogima u regionu
+-  Tras rescindir con River, Salomón Rondón firmó con su nuevo club
+-  Gatos que estavam hospedados em pet shop de Pelotas desaparecem
+-  Wolves, com três portugueses, soma segunda vitória consecutiva na Premier League
+-  Exembajador de Ucrania en EE.UU. afirma que en privado le dicen a Kiev que no cuente con el ingreso a la OTAN
+-  Alexander López dispuesto a estremecer la Liga Nacional
+-  Bačanima, koncert na poklon od Radeta Šerbedžije
+-  صور النساء بأوضاع مخلة.. طبيب مصري يقترب من حبل المشنقة
+-  تـركيا ترفع الحد الأدنى للأجور
+-  أول ظهور له خارج السودان.. حميدتي يلتقي الرئيس الأوغندي
