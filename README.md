@@ -1,51 +1,11 @@
 # Latest News
--  베스핀글로벌, ‘AWS SaaS 컴피턴시’ 획득…SaaS 전문 역량 인정받아
--  LG유플러스, 신종 스미싱·보이스피싱 사기 주의 안내
--  이스트시큐리티, 2023년 보안 이슈 회고 및 2024년 보안 위협 전망 발표
--  스패로우 클라우드, CSAP SaaS 표준등급 획득
--  퓨어스토리지, 2024년 IT 업계 전망 발표
--  에티버스, 창립 30주년 행사 ‘30챌린지 럭키드로우’ 메타버스서 진행
--  KT, AI 기반 IPTV 서비스 ‘지니 TV 쇼핑 인사이트’ 및 ‘쇼핑플러스’ 론칭
--  포티넷, 새로운 OT 보안 솔루션·서비스 발표
--  투비소프트, 농협물류 ‘BPR 금융물류시스템 TMS 재구축 사업’ 추진
--  [인사] 티맥스그룹, 2024년 임원 승진 인사
--  경기테크노파크, ‘2023 제조데이터 활성화사업’ AI 솔루션 실증 지원 성료
--  펜타브리드, 2024 AI 바우처 지원사업 공급기업 선정
--  메이머스트, ‘2023 디지털정부 혁신 유공 포상’서 행안부 장관상 수상
--  한컴, 한글 OCX 컨트롤 제공 종료 앞두고 고객 대응 강화
--  오케스트로, 오픈인프라 재단 글로벌 클라우드 서밋 한국 유치 성공
--  메가존클라우드, 위셋과 글로벌 멘토링 수료생 15명 배출
--  NHN페이코, 포인트 전환 기능 개편으로 편의성 제고
--  AWS, 청소 기술 전문기업 카처의 SAP 워크로드 전환 지원
--  KOSA, 문체부에 생성형 AI 저작권 안내서 개정 건의
--  하이퍼커넥트, 2024 상반기 AI·ML 분야 신입 개발자 공개 채용
--  예지보전 솔루션 모터센스, ‘중소기업 혁신바우처 수행기관’ 선정
--  [글로벌] 탄소 감축에 앞장선 미국…고속철 투자 확대, 항공교통 대체
--  제로트러스트보안협회, 방위산업학회·국방혁신기술보안협회와 업무협약
--  클레온, MBC ‘PD가 사라졌다!’에 AI PD 구현 기술 지원
--  بداية تقلبات جوية عنيفة.. أمطار على معظم المحافظات اليوم الأربعاء
--  نشرة التوك شو.. ارتفاع قياسي للذهب وموعد إصدار لائحة قانون التصالح في مخالفات البناء
--  Iranian forex charges for December 27
--  On This Day in 2017: Liverpool’s hunt for a new defender becomes Virgil reality
--  Валюта операцияларини амалга ошириш қоидаларига ўзгартиришлар киритилмоқда.
--  FT: ЕИ Венгрия ветосини четлаб ўтиб, Украинани қўллаб-қувватлаш режасини тайёрлаяпти.
--  Failure, hopelessness: Miguna's take on Kenya Kwanza's reign
--  Consommation. Noël : quels jouets ont eu le plus de succès sous le sapin cette année ?
--  Maltepeli gençler atölye çalışmasında buluştu
--  نجی شعبے نے بیرون ملک سے20 لاکھ ٹن گندم خریداری مکمل کر لی
--  'भारत जोड़ो' के बाद कांग्रेस की 'भारत न्याय यात्रा,मणिपुर से मुंबई तक 14 जनवरी-20 मार्च तक होगी यात्रा
--  Rigmand opkøber minoritetsandel af Manchester United i milliardhandel
--  Си Цзинпин:Никой няма да отделя Тайван от Китай
--  Park bahçelerde bakım ve temizlik çalışmaları sürüyor
--  Matan a hombre que salía de un bar
--  Tuvo la Tierra otro año de calor récord. Pero ¿así de caliente?
--  '매디슨 2위-빛카리오 3위-판 더 펜 5위', 英 매체 선정 EPL 최고의 영입생 TOP 15 공개...1위는 아스널의 기둥
--  [경남] 국도14호선, 28일 오후 2시 개통
--  최경식 남원시장, 한국국토정보공사로부터 감사패
--  11 או כלום: הפועל תל אביב החסרה במשחק שאסור לה לאבד
--  Årets nyord 2023
--  גם להפועל באר שבע יש דור עתיד: "לא מופתעים מגנאח ואליאסי"
--  ברוכה השבה לליגת העל: הפועל ירושלים מתחילה להראות אופי
--  שני חשודים, שניהם מכחישים: חקירת החשד לרצח בקריית ים במבוי סתום
--  Video: “Grinch” interrumpe misa de Navidad porque no la dejan dormir
--  Argentinada 50 000 peso nominallı pullar buraxılacaq
+-  Στο Κοκκινοχώρι Καβάλας σήμερα η ταφή του Βασίλη Καρρά
+-  Ubat perangsang seks paling banyak dirampas di dunia
+-  女人冬天吃什么美容养颜效果好
+-  女性吃苹果能美白吗
+-  女人喝蜂蜜水能美白吗
+-  Acclaimed Colophon Foundry Joins Monotype Family
+-  에이피알, 증권신고서 제출로 유가증권시장 진입 준비
+-  JinkoSolar Announces Results of 2023 Annual General Meeting
+-  카카오, ‘우리동네 단골시장’ 프로젝트 성료…우수시장 시상식
+-  우리은행, 마이데이터 기반 AI 금융상품추천 서비스 오픈
