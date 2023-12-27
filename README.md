@@ -1,11 +1,11 @@
 # Latest News
--  Petro emprende acciones legales ante comentarios ofensivos de Marbelle contra Antonella Petro
--  "מכבי חיפה יכולה להתמודד בליגה הרוסית, המעבר לא יזיק ללסובוי"
--  Beauty fans wowed by ‘amazing value’ £55 Lookfantastic Fragrance and Beauty Edit
--  Умер гитарист рок-группы "Смысловые галлюцинации"
--  Rusya: Filistin devletinin kurulmasını ABD engelledi
--  Çorum FK'de ayrılık
--  10 Best South Korean TV Shows of 2023
--  Полиция во Франции задержала угнанный фургон с мигрантами
--  El precio de fabricación de vehículos en España se incrementa un 2,9% hasta noviembre
--  Israel sigue con el asalto a Gaza y el apagón de las comunicaciones dificulta las labores de rescate
+-  Eiffelovu vežu uzavreli pre štrajk na 100. výročie úmrtia jej konštruktéra
+-  Kniha, ktorú nebudete vedieť pustiť z ruky: Byblos patrí k najstarším mestám sveta
+-  Rómsky pop ide hore: P.A.T. ovládol Youtube trendy chytľavým duetom s 15-ročnou Vanesou Horákovou
+-  Geschenkpapier entsorgen: Restmüll, gelber Sack oder Altpapier?
+-  Middle-aged San Diego parents VANISH days before Christmas, leaving their three adult children distraught - as chilling new doorbell cam footage shows them on night they disappeared
+-  “اللافي” يبحث مع أعضاء مجلس أعيان وحكماء مدينة جادو سبل توفير الخدمات الأساسية لها
+-  PGA Tour 2024 tournament schedule: Dates, venues, winners, prize money and more as world’s best clash in Majors and FedEx Cup
+-  Große WhatsApp-Änderung betrifft Profilbild – worauf Nutzer sich einstellen müssen
+-  В Киеве назвали сумму ежедневных расходов на ведение боевых действий
+-  Unwanted Christmas voucher? How to resell it - and what top gift cards like Amazon can earn you
