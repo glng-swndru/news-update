@@ -1,11 +1,51 @@
 # Latest News
--  Orsato saluta la Serie A? In arrivo una super offerta dall’Arabia Saudita
--  Erdogan vergleicht Netanyahu mit Hitler
--  Gözler Panathinaikos'a imza atan Fatih Terim'e çevrildi: İlginç tesadüfü herkesle paylaştı! ''Ben Fiorentina'da çalışırken...''
--  Muchas familias en Maracaibo y Cabimas solo pueden comer dos veces al día, según Codhez
--  La Justicia da la razón a Canales y sienta un precedente histórico
--  Régimen de Maduro liberó a Alfredo Lizcano, comandante del Cuerpo de Bomberos de Miranda
--  Risparmio gestito: patrimonio cresce grazie a effetto rally mercati
--  I’ve got 32G boobs and I’ve found a top from PLT that’s perfect for those with a large chest – it’s great for any size
--  الموت يغيب أحد مؤسسي حزب الله...!
--  Григор Димитров: Младите ще ни стъжнят живота
+-  Uzmanından açıklama: Paçavra hastalığı olarak biliniyor
+-  Faruk Koca tahliye edildi
+-  25 düzensiz göçmen Didim'de yakalandı!
+-  Андижон Болгарияси — Манзил.
+-  Кўчмас мулкни сотиш учун мустақил равишда интернетда эълон бериш тақиқланмайди.
+-  «Жадидлар орзуси ўтмишда қолган эди, энди келажак масаласига айланди» – эксперт.
+-  Сурхондарё вилояти ҳокимининг собиқ ўринбосари 8,5 йилга қамалди.
+-  «Саноат ипотекаси» тизими жорий этилади.
+-  Шўрчи тумани собиқ ҳокими ҳам судлангани маълум бўлди.
+-  Ural Airlines Ўзбекистон шаҳарларига авиақатновларни йўлга қўяди .
+-  Липчане сделали подарок волейболистам ДНР
+-  Krunic transferinde beklenmedik pürüz! Milan'ın sakatlıkları anlaşmayı zora soktu
+-  Suudi Arabistan, Türkiye'nin de bulunduğu konferansa gözlemci üye olarak katıldı
+-  4'ü FETÖ üyesi 7 kişi Yunanistan'a kaçarken yakalandı
+-  Öğretmenden örnek davranış: Maaş ödülünü Gazze'ye bağışladı
+-  Bakan Fidan, ABD'li mevkidaşı ile görüştü... Görüşmede İsveç'in üyelik süreci ve F-16 satışı ele alındı
+-  Lise 9. sınıflara yönelik ülke genelindeki "ortak yazılı sınavlar" tamamlandı
+-  Суд штата Мичиган отказался исключать Трампа из праймериз
+-  Ove namirnice bi trebali izbaciti iz prehrane: Na listi je omiljena hrana mnogih Hrvata
+-  Do Small Businesses Need to Update Their Websites?
+-  Uzbekistan joins worldwide allies on array of key green energy initiatives (PHOTO)
+-  Σκλήρυνση κατά Πλάκας: Τι είναι και πώς αντιμετωπίζεται
+-  ŠTA ČEKA KOJI ZNAK U 2024? Na ovim poljima doživećete najveće promene u narednoj godini!
+-  Власти Самарской области поздравили жителей с Днём спасателя
+-  Så mycket längre får man vänta på en ambulans
+-  How to wear a gilet – get the most out of your down vest
+-  AKCIJA ARMAGEDON, UHAPŠENO 8 OSOBA ZBOG PORNOGRAFIJE: Policija našla jeziv materija - nađeni snimci sa maloletnicima
+-  Brojevi telefona i elektronske adrese institucija na kojima se mogu postavljati pitanja
+-  12 space medicine findings from 2023 that could help astronauts reach Mars one day
+-  Jahresrückblick: Rückblick 2023: Das war das zweite Quartal im Wartburgkreis
+-  Biden Looks to Change His Endgame in Ukraine
+-  CHP'li Taşcıer'den asgari ücret görüşmesine tepki: Fiilen lağvedilmesinin...
+-  My Hero Academia: il cosplay di Momo Yaoyorozu di roxanne.kho è fedelissimo al personaggio
+-  Two Penthouses Atop New York’s Plaza Hotel Hit the Market for a Combined $70 Million
+-  Újra árulná okosóráit az Apple, ha hagynák...
+-  Best password managers 2023: Reviews of the top products
+-  HBO: Νέα μίνι σειρά «The Regime» με την Κέιτ Γουίνσλετ και τον Ματίας Σένερτς
+-  Percy Jackson’s big episode 3 change came directly from Rick Riordan himself
+-  Scouting by Statistics: The Manuel Neuer replacement you’ve never heard of
+-  Årets semmelsäsongen redan igång
+-  Şişkinliyi aradan qaldırmaq və immuniteti yaxşılaşdırmağın yolu
+-  Baldur’s Gate 3 is proof games need early access
+-  Second Copy review: Backup and sync from a friendly interface
+-  Jahresrückblick: Rückblick 2023: Fortschritte auf dem Landesgartenschaugelände in Leinefelde
+-  Best Retirement Plans in January 2024
+-  جريليش يكيل المديح لـ برناردو سيلفا
+-  Zamość chce być eko. Koniec z plastikiem w urzędzie, na imprezie, w kinie
+-  Соціологи дізналися, до якої країни українці мають найбільше симпатій та антипатій
+-  اتهمت والده وإخوته بقتله.. امرأة تزيف وفاة زوجها والسبب غير متوقع
+-  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الأربعاء 27 ديسمبر
