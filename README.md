@@ -1,11 +1,11 @@
 # Latest News
--  “공산당이냐” 계파 갈등에 소금 뿌리는 민주당 ‘고무줄 검증’ 논란
--  美, 중국산 저가 반도체도 규제 검토…“中 의존도 확 줄일 것”
--  Zakir Naik Digugat, Sebut Mantan Pejabat Penang Musuh Terbesar Islam
--  Libur Natal 2023, Wisatawan Padati Obyek Wisata Pangandaran
--  Intel zbuduje kolejną fabrykę chipów w Izraelu. Dostanie wysoką dotację
--  Splatoon 3 FrostyFest is begin januari beschikbaar
--  Azra Akın ikinci kez anne oluyor
--  Birden fazla evi olanlara kötü haber: Ek vergi mi geliyor?
--  СДСМ: ДПМНЕ не прави ништо за загадениот воздух во Скопје, ќе поднесеме амандмани
--  Rubina Dilaik And Abhinav Shukla: रुबिना दिलैकनं शेअर केला जुळ्या मुलींचा पहिला फोटो; बाळांचे नावही चाहत्यांना सांगितले
+-  פרסום ראשון: החל מינואר ישראלים לא יוכלו לממש את הכיסוי הביטוחי של אפל
+-  יובל נשיא כוהנת היוגה: "החלטתי לבחור בחיים"
+-  La Bolsa española abre casi plana, con una leve caída del 0,05 %
+-  Azad Engineering IPO ve una gran demanda con ₹300 GMP
+-  Marruecos, el IVA y las restricciones de la UE marcan 2023 para el sector pesquero español
+-  La Bolsa española cae el 0,27 % y pierde los 10.100 puntos
+-  Se cumplen 30 años de la intervención de Banesto y la caída del carismático Mario Conde
+-  Синоптик рассказал о погоде в новогоднюю ночь
+-  “ชลน่าน” แถลง 100 วันทำงานสำเร็จตามเป้า 10 ประเด็น ยกระดับ 30 บาท-พัฒนา รพ.-บรรจุพยาบาล
+-  เตือน 6 ภัยออนไลน์ส่งท้ายปี ระวังมิจฉาชีพฉวยโอกาส
