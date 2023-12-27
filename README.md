@@ -1,51 +1,51 @@
 # Latest News
--  Pro Research: Wall Street se sumerge en la dinámica de mercado de Energizer
--  Nano Dimension propone adquirir Stratasys con una prima del 26
--  의왕시, 폭설 대비 제설작업 실시... 인력·장비 총동원
--  이상복 오산시의원, 경기도시·군의회의장협의회 행정감사분야 ‘우수상’ 수상
--  SSG닷컴, 셀러 지원·지자체 협업 확대
--  HD현대·삼성·한화, K-조선 초격차 기술 이끈다
--  신원식 국방부장관, 해군 천안함·2함대사령부 현장지도
--  [뉴욕증시] 산타랠리 지속에 상승 마감…S&P 사상 최고치 근접
--  [국제유가] 홍해 지정학적 불안에 상승…WTI 2.73%↑
--  [인사] 중소벤처기업진흥공단
--  안유진, 붉은 드레스 입고 뽐낸 극세사 각선미
--  إسقاط 12 مسيرة و5 صواريخ أطلقها الحوثيون فوق البحر الأحمر
--  [인사] 하나금융지주
--  [인사] 하나은행
--  하나금융 2024년 조직개편, 지주 부회장제 폐지·부문임원제 도입… 하나은행, 26명 임원 승진 인사
--  EastEnders secretly ‘revealed’ Linda Carter was the Christmas killer 10 months ago with blink and you’ll miss it clue
--  RIIZE’s Anton And His Father Yoon Sang To Perform Together For 1st Time At 2023 MBC Music Festival
--  Lisboa. Média de espera para doentes urgentes varia entre 2 e 9 horas
--  Djokovic diz que quer jogar “até aos 40 anos ou mais”
--  Diogo Jota marca no regresso e ajuda a vitória do Liverpool
--  圣诞假期道路死亡人数升至6人
--  奥克兰一处房屋发生火灾，一人丧生
--  中国城市社会发展百强榜发布 北京上海深圳分列前三
--  女子带名牌包入境澳洲竟违法! 被海关拦下当场没收, 差点被起诉罚款！
--  加拿大人疯狂“外润” 每20分钟就有1人离开! 活不起 逃得起 搬去度假胜地竟然更便宜
--  经济学家在闭门造车？ANZ发布一线员工观点报告，前线看到的和经济学家预测的似乎差别很大...
--  U.S. says it downs many drones, missiles fired by Huthis over Red Sea
--  F1: ¡Adiós Chestappen! Max Verstappen compartió la Navidad con otro mexicano que no es Checo Pérez
--  Stoltenberg saúda voto parlamentar turco sobre adesão da Suécia à Nato
--  Unha Ano-Novo: 30 inspirações para garantir que vai arrasar no visual
--  Ibovespa supera os 133 mil pontos pela primeira vez
--  Para tuuuudooo!! Veja essa receita de Pão de Queijo com apenas 3 ingredientes!! Você vai amar❤
--  5 receitas de Ano-Novo para atrair boa sorte e dinheiro
--  Atriz Claudia Alencar é extubada em UTI e médicos aguardam melhoras: ‘Há 10 dias’
--  My ‘Botox and makeup’ trick is the best for reviving stale bread – I don’t like to let it go to waste
--  My ‘Botox and makeup’ trick is the best for reviving stale bread – I don’t like to let it go to waste
--  AKCIJA "TREĆE DETE" 73. PUT: Tradicionalna manifestacija u Kruševcu, grad izdvojio 1,53 miliona dinara
--  कन्नौज का ‘बिकरू कांड’: सीसीटीवी पर पत्नी दे रही थी सूचना, पति-बेटा चला रहे थे गोलियां, सिपाही बलिदान
--  الموسيقيين: روبي مؤدية وليست مطربة.. والجمهور يشعر بالانزعاج من أغنيتها
--  "Me tenía cansado": Un hombre descuartiza a su padre en Argentina para "cobrar su jubilación"
--  Code.org sues Byju’s company WhiteHat Jr in US court
--  ¿Qué es y para qué sirve 'Alpram', medicina con que drogaron a Canserbero para matarlo?
--  Pendatang tak sesuai tayang di sekolah
--  EastEnders fans are convinced fan favourite will be framed for Keanu Taylor’s Christmas Day murder in huge twist
--  EastEnders fans are convinced fan favourite will be framed for Keanu Taylor’s Christmas Day murder in huge twist
--  Museo Casa Manno: due milioni e mezzo per l’ampliamento
--  L’arte e la cultura salutano Riccomini Era nato a Nuoro
--  Andrea Tedde come Ulisse torna a casa ma... a teatro
--  내년 기약하는 농협법 개정…'멍든 농심' 언제쯤 달랠까
--  E oggi porte aperte ad Assemini
+-  50 ألف مشجع في 62 مباراة.. عزوف جماهيري في ذهاب الدوري الاردني
+-  جيش الاحتلال يعترف بمحدودية نجاح عملية إنقاذ الاسرى
+-  عباس يعلن 3 شروط لتولي السلطة مسؤولية غزة بعد الحرب
+-  العثور على جثماني كويتي وسعودي اختفيا بالعراق
+-  최춘송 진주 공군교육사령관 경남일보 내방
+-  한국미술협회 함양지부 회원전과 출향작가 초대전 개최
+-  거제시, 2023 장승포항 송년불꽃축제 개최
+-  산청 청소년 관악합주단, 정기연주회 개최
+-  이번 기회에 나도 '아트콜렉터' 될까
+-  경남교원 색소폰 오케스트라 정기연주회
+-  진주필우회 49번째 회원전
+-  박보검의 첫 뮤지컬 ‘렛미플라이’ 김해 공연
+-  [인사]진주시
+-  [인사]창원시
+-  부산시, 2023년 하반기 적극행정 우수공무원 추천 접수
+-  국민의힘 경남의원들 지역구 예산 증액 잇달아
+-  진주시, 상수도 스마트 검침시스템 구축사업 순조
+-  부산항만공사, 2023년 부산항 10대 뉴스 선정
+-  창원시, 농업분야 기관 표창 5관왕 달성
+-  강갑선 거창산업 대표, 합천군고향사랑제 200만원 기부
+-  국민의힘, 한동훈 비대위원장 취임
+-  경남도지사, 도정 성과에 대해 직원 격려
+-  지방의원 구속 시 월정수당 제한 명문화
+-  21대 경남의원 의정 성적은?
+-  삼성重, 초대형 암모니아 운반선 2척 수주
+-  경남은행, 금리감면 프로그램 시행
+-  LH, ESG 평가서 A등급 첫 달성
+-  경남조달청 "조달 우수 중소기업 응원합니다”
+-  윤 대통령 “저출산 문제, 그동안과 다른차원 고민해야”
+-  밀양시장 보궐선거 예비후보 등록 29일부터 시작
+-  거제시의회, 지역상품 구매촉진에 관한 조례 원안가결
+-  국내 방산업체, 폴란드 정권교체에 ‘긴장’
+-  합천군 상수도 요금 현실화 나서
+-  창원시, 맑은 도심하천 만들기 박차
+-  거창 남부권 보훈휴양원 건립 청신호
+-  창원시 단독주택 규제 50년 만에 빗장 풀려
+-  경남도, 내년도 도로사업 국비 6936억원 확보
+-  김해 스포츠센터 내년 1월 11일 본격 운영
+-  2024년 전국체전 주경기장 명칭 ‘김해종합운동장’
+-  식량작물과 놀다 보면 자신감 ‘쑥쑥’
+-  道, 산업재해 예방 우수 인증기업 5곳 선정
+-  경남상공회의소협 ‘우주항공청 특별법’ 연내 제정 촉구
+-  “BD·AI와 함께한 자립과 공존의 교육”
+-  경남교육청, 결핵 퇴치 성금 200만원 전달
+-  경남교육청, 그린스마트스쿨 임대형 민자사업 고시
+-  이마트, 하림펫푸드와 유기동물 사료 2톤 기부
+-  bhc치킨, 29일부터 치킨가격 평균 12.4% 인상
+-  셀트리온, 졸레어 바이오시밀러 CT-P39 캐나다 품목허가 신청
+-  KT, AI 기술로 IPTV 홈쇼핑 디지털화 지원
+-  "층간소음 해결" DL이앤씨, 국내 최초 개발 ‘D-사일런스 서비스’ 첫 적용
