@@ -1,11 +1,11 @@
 # Latest News
--  Kein versöhnlicher Jahresabschluss für Bayerns Geschäfte
--  Şırnak'ta AK Parti Kadın Kollarından teröre tepki yürüyüşü
--  Kocaeli'de FETÖ operasyonu
--  Anzeige – Winterhilfe schützt Menschenleben / Von Albanien und Kosovo bis Afghanistan, Nepal und Jemen
--  He Championed The Formation Of Amotekun – Rhodes-Vivour Says As He Mourns The Passing Of Akeredolu
--  Manijaka pustili iz zatvora, a on odmah brutalno ubio dvije eskort dame, jednoj je odrubio glavu
--  장나라 "촬영감독 남편에 '좋아한다' 먼저 고백…결혼하겠구나 직감"('유퀴즈')
--  ‘나는 솔로’, 첫 데이트부터 후끈…“3개월 만에 결혼도 OK”
--  "Menet huomenna kouluun!" – Luke Littler, 16, on täysin poikkeuksellinen darts-lahjakkuus
--  Viene delegación de EU a México por más control migratorio
+-  Orsato saluta la Serie A? In arrivo una super offerta dall’Arabia Saudita
+-  Erdogan vergleicht Netanyahu mit Hitler
+-  Gözler Panathinaikos'a imza atan Fatih Terim'e çevrildi: İlginç tesadüfü herkesle paylaştı! ''Ben Fiorentina'da çalışırken...''
+-  Muchas familias en Maracaibo y Cabimas solo pueden comer dos veces al día, según Codhez
+-  La Justicia da la razón a Canales y sienta un precedente histórico
+-  Régimen de Maduro liberó a Alfredo Lizcano, comandante del Cuerpo de Bomberos de Miranda
+-  Risparmio gestito: patrimonio cresce grazie a effetto rally mercati
+-  I’ve got 32G boobs and I’ve found a top from PLT that’s perfect for those with a large chest – it’s great for any size
+-  الموت يغيب أحد مؤسسي حزب الله...!
+-  Григор Димитров: Младите ще ни стъжнят живота
