@@ -1,11 +1,11 @@
 # Latest News
--  ‘선 넘은 패밀리’ 안정환, “공부하라고 유학 보냈더니 연애만 하고…”
--  이선균, 마약 의혹 두 달 만의 비보…동료들 애도 이어져(종합)
--  국토부, 악성 임대인 17명 공개…최대 채납액 65.6억원 넘어
--  Güney Kore ABD’den F-35A savaş uçağı alacak
--  رئيس الطاقة الذرية الإيرانية: لم نفعل «شيئا جديدا» ونقوم بنفس الأنشطة «وفقا للقواعد»
--  Mit Fernsehshows durch den Silvesterabend
--  Vandalizan la zona de Huapalcalco, en Hidalgo; inician procedimientos penales
--  Al mes, mil reportes por fraudes cibernéticos en la CDMX
--  Земјотрес во Далмација: „Го почувствувавме силно, како голема експлозија…“
--  «Газпром» Ўзбекистонга газ етказиб бериш ҳажмини максимал даражада оширди.
+-  עם חזק רוצה לנצח, אבל בממשלה ובצה"ל עסוקים בתירוצים
+-  كيف يؤثر النوم على مستوى السكر بالدم؟
+-  Google Play Store Removes 111 Fraudulent Micro Loan Apps on PTA’s Request
+-  El Gobierno aprueba hoy la prórroga parcial del escudo social
+-  Bihar Crime: नक्सलियों के कब्जे में है पुल निर्माण का मुंशी शाहनवाज खान, नक्सली विवेक की खोजबीन में पुलिस
+-  認証不正問題発覚のダイハツ車、「利用したくない」7割 Ｓ編アンケート 安全性への不安訴える
+-  Studentska grupa “Borba”: Planiramo radikalizaciju protesta
+-  Samsung Users Report Issues: Android 14 Update Affects Wireless Android Auto
+-  Himachal News: लोगों के 3 करोड़ डकार कंपनी फरार, निवेशकों ने पुलिस में दर्ज करवाई शिकायत
+-  Vodiči v nepriaznivom počasí poriadne riskujú: S hmlovkami, alebo len s denným svietením! Odborník upozorňuje na riziká
