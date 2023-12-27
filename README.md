@@ -1,11 +1,11 @@
 # Latest News
--  Soner Yalçın yazdı: Mehmetçik’i evladımız gibi koruyacağız.
--  "Zenginleştirilmiş uranyum" iddiasına İran'dan yalanlama
--  Kurtulmuş: TBMM bütünüyle terörle meşru ve hukuki mücadelede Silahlı Kuvvetlerimizin yanındadır
--  Beton dökülen inşaat çöktü! 6 işçi yaralandı
--  Zonguldak'ta batan geminin kayıp 7 personelini arama çalışmaları sürüyor
--  Geplanter Anschlag auf Kölner Dom: Verdächtiger Islamist wieder auf freiem Fuß
--  L'Estat licita un contracte de conservació de 85 quilòmetres de carreteres gironines per 8,5 milions d'euros
--  Mercato : Le PSG boucle son transfert et lui fait vivre un rêve !
--  Новый президент Аргентины решил избавить граждан от «пыток» пачками денег
--  Согласие российского бизнеса на повышение налогов объяснили
+-  Konyaspor’da ziyaretler sürüyor
+-  KONYASPOR'DA 4 İSİM MAÇ KAÇIRMADI!
+-  65 yaşındaki anne okuma-yazma öğreniyor
+-  Konyaspor, beklentiyi yükseltti!
+-  Galibiyeti taraftara armağan ediyoruz
+-  1922 Konya’da kollar sıvandı
+-  Konyaspor Basketbol'da Ankaragücü hazırlığı
+-  Fotoğraf çekerken 50 metrelik kanyondan düşen Alman turist öldü
+-  Göksu havzası yamaç arazileri modern sulamaya kavuşuyor
+-  Bursa'da fabrika inşaatı beton atıldığı sırada çöktü, 6 işçi yaralandı
