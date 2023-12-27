@@ -1,51 +1,51 @@
 # Latest News
--  Çorum'da arkadaşı tarafından bıçaklanan kişi hayatını kaybetti
--  GTA 6-Fans glauben, Lucias Schauspielerin gefunden zu haben
--  Столтенберг приветства турското "да" на кандидатурата на Швеция за НАТО
--  Former Seven commentator Basil Zempilas sparks cricket storm after taking aim at MCG crowd
--  Clear stock of spurious drugs: Delhi government to city clinics
--  รายงานการติดตามตรวจสอบคุณภาพอากาศ ประจำวันที่ 27 ธันวาคม 2566
--  Así el primer día de vuelos de Mexicana en su reinicio de operaciones
--  Prabowo-Gibran Winning Team: 'Gibran Rakabuming is Reserved, But Willing to Listen'
--  多部门开列2024年任务清单 稳经济政策透出新动向
--  从变化的数字中读懂中国经济行稳致远、欣欣向荣
--  年终报道·2023振奋中国丨文化之花盛放
--  必须把推进中国式现代化作为最大的政治（人民观点）——深刻领会新时代做好经济工作的规律性认识⑤
--  新华全媒+丨推动全国统一大市场建设取得更大实效
--  情之所系｜大国新村 幸福蝶变
--  我国“八纵八横”高铁网主通道已建成3.61万公里
--  人民网评：以钉钉子精神抓好党中央“三农”工作决策部署落实落地
--  “国际范+烟火气” 解码消费城市优等生的“上新路”
--  做好灾后安置 确保受灾群众温暖过冬
--  长图丨130周年，“上九天下五洋”的中国梦正在实现！
--  2023·见证｜体育，不会辜负每一份热爱
--  一头江豚的自述
--  元旦交通安全形势分析来了！收好这份预警提示
--  用心办教育 写好“民生答卷” 托起百姓“稳稳的幸福”
--  2023这些童真瞬间，真暖！
--  国际锐评｜他们为何放弃或推迟在美建厂？
--  “对更好探寻人类社会的发展之道有着重要意义” ——访英国知名学者马丁·雅克
--  中企助力坦桑尼亚提升基建水平（共建“一带一路”·第一现场）
--  澜湄合作：携手开创更美好未来（环球热点）
--  这一年，两岸经济社会融合发展动能强劲——交流走深走实 同胞走近走亲（2023·年终特稿）
--  专访：中国消费转型升级将为全球经济发展做出贡献——访日中经济协会理事高见泽学
--  江垭镇中学九溪完小：阳光体操展风采，强健体魄塑豪迈
--  台胞旅居黄山：因黄山而来，为徽州而留
--  【台胞“申”活II】打卡魔都｜茆致远：汽车迷感知汽车城
--  湘西州新增2家国家4A级旅游景区
--  湖南省第十四届全民健身节在郴州启动
--  “粤港澳大湾区数字经济发展大会（首届元资产论坛）”启动仪式在深圳成功举办
--  度小满“闪耀的小店”公益推广计划：全新运营讲述新农人创业故事
--  积石山6.2级地震丨生活物资常态保障 恢复重建有序展开——积石山6.2级地震灾后第8日救援安置情况综述
--  亿缕阳光｜敬礼是信仰 回礼是希望
--  康姿百德床垫人体功效学设计，打造全身放松的睡眠环境
--  旧村焕新颜——长城脚下的千年变迁
--  27 IN A ROW: Unwanted NBA history as struggling Pistons hit new low
--  Hoskote food poisoning: Number of hospitalised rises to 217
--  'Keep politics out on protest day', MSMEs tell TN leaders; state-wide human chain protest on December 27 over power tariff hike
--  Este es el equipo que está formando Carlos Fernando Galán para Alcaldía de Bogotá
--  Car catches fire in eastbound Caldecott Tunnel
--  Vijayakanth: విజయకాంత్‌ మళ్లీ ఆస్పత్రిలో చేరిక
--  【今年のベストバイ】秘密はショルダー部分にあり！ 長時間カメラを下げていても首が痛くならないカメラバッグ
--  Mercato - PSG : Une recrue va «révolutionner le club» !
--  NRL releases statement on compromising viral image of Panthers hero Mitch Kenny
+-  ANA CANOSA
+-  Đào bới ở công trường bỏ hoang, người đàn ông khuân về vật thể lạ, luôn miệng bảo “thần mộc”: Chuyên gia lập tức vào cuộc
+-  China's Sichuan promotes bamboo as eco-friendly substitute for plastics
+-  China, Nicaragua stick to right direction of development of bilateral relations
+-  China pilots carbon-peaking projects to explore new path to carbon reduction
+-  Bất đồng về hạn ngạch sản xuất, một quốc gia thành viên tuyên bố rời OPEC
+-  Mumbai Shocker: मुंबई के होटल में फिल्म में भूमिका का लालच देकर नाबालिग लड़की से छेड़छाड़ के आरोप में गुजराती अभिनेता गिरफ्तार
+-  배우 이선균, 종로 와룡공원서 숨진 채 발견…“신원 확인”
+-  인천서 차량 2대에 잇달아 치인 60대女 사망…운전자 2명 입건
+-  한동훈 “검사 싫어하는 野, 왜 검사 사칭한 분 절대존엄으로 모시나”
+-  90 peratus kawasan di Rantau Panjang terjejas banjir
+-  Đà Nẵng đẩy mạnh phát triển nguồn nhân lực phục vụ ngành công nghiệp vi mạch, bán dẫn
+-  UOL NEWS
+-  Điều kiện để doanh nghiệp được cung ứng lao động xây dựng sang Đài Loan
+-  Drone shots show Palestinians buried in Rafah mass grave
+-  Delhi Deliberations: Himachal Congress Leaders Convene to Chart Path for 2024 Parliamentary Polls
+-  Φοροδιαφυγή: Το χρονοδιάγραμμα της εφαρμογής των νέων μέτρων για το 2024
+-  20 phút sau khi tan học, cảnh tượng lạ tại giảng đường ĐH Thanh Hoa được ghi lại: Đây là khác biệt giữa "học bá" và người thường
+-  Gyökeres: «Amarelos e faltas? Já estou habituado»
+-  มวลน้ำจาก "รือเสาะ" ไหลบ่าเข้า "สายบุรี" กลางดึก บ้านเรือน-ย่านการค้าจม
+-  부산도시철도, 13대 휴메트로 기자단 모집…시민 소통활동 등 수행
+-  이선균, 차 안서 숨진 채 발견…경찰 "신원 확인"
+-  黃心穎一家走出喪父傷痛！為母親慶祝生日 黃心美承諾加倍愛媽媽
+-  Rotten Tomatoes crowns the best 10 TV shows of 2023...but how many have YOU watched?
+-  Rotten Tomatoes crowns the best 10 TV shows of 2023...but how many have YOU watched?
+-  창원시 '원이대로 S-BRT 공사' 시민 불편 해소
+-  Jenama MXKIDS semakin mengukuh
+-  2023錶壇回顧│錶界年度大事 勞力士成焦點
+-  Marvel une a Spider-Man 2099 con un simbionte en una épica versión del héroe
+-  Bitcoin Whales Move 12K BTC Amid Chance Of Early Nod To Spot ETF
+-  Happy Boxing Week—These End of the Year Sales Are Better Than Black Friday
+-  ড্রিবলিংয়ে যেখানে এমবাপ্পেকেও ছাপিয়ে গেছেন ‘নতুন ম্যারাডোনা’
+-  1월 중소기업 경기전망지수 77.5...전월대비 1.3p↓
+-  작년 소상공인 6만 1000명 감소…매출보다 빚이 더 늘었다
+-  Fewer schools are offer tutoring support in Bradford
+-  Rise in unresolved crown court cases in West Yorkshire
+-  Ankara'da yaşayanlar bu pazara akın edecek! Başkent'in en ucuz pazarı o ilçeye kuruldu: Gitmeyen pişman olacak
+-  ‘Just go to Dollar Tree or something and get them’: Are Olive Garden mints just Andes repackaged? Viral video leaves viewers divided
+-  Fewer drug deaths in Bradford last year, figures show
+-  Holes dug in car park 'show 72 flat development has begun'
+-  Bradford nature reserve would be 'first for West Yorkshire'
+-  Bradford bank building sells at auction for £315,000
+-  USU-gallup: Lähes puolet suomalaisista on jo valinnut presidenttiehdokkaansa
+-  Two housing schemes to be completed a year behind schedule
+-  귀뚜라미그룹, '2023년 귀뚜라미 장학 사업' 마무리
+-  Moni rovaniemeläisravintola on pidentänyt aukioloaikojaan ja hieman yllättäen laittanut pöytävaraukset tauolle
+-  10월 출생아 1만8904명 역대최저…4분기 출산율 0.6명대 추락 예고
+-  Chiếc logo này là gì mà lại biến mỗi ngày của bạn nhẹ nhàng hơn
+-  Ducati Bakal Pertama Kali Ikut Kejuaraan Motocross Dunia
+-  경찰대 치안정책연구소, '치안전망 2024' 발간
