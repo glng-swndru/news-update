@@ -1,51 +1,51 @@
 # Latest News
--  27 raka förluster – nytt NBA-rekord
--  بطاقة مباراة تشيلسي أمام كريستال بالاس في الدوري الإنجليزي
--  Manchester United'dan müthiş geri dönüş
--  김홍일 후보 "언론 비판 기능 위축 않도록 오보, 사소한 오류 등 가짜뉴스 제외 필요"
--  다음 뉴스검색 기본값 CP사 중심 변경에 김홍일 “다양한 언론 기사 유통돼야”
--  야권 방심위원들 “류희림 위원장 ‘청부민원’ 의혹 사죄하고 사퇴하라”
--  ‘대표까지 압수수색’ 뉴스버스 “고발사주 보도 보복 수사”
--  김홍일 방통위원장 후보의 언론관, 이동관과 다를까
--  박근혜 정부 때 '대리 민원' 넣었던 방심위 직원 파면됐는데…
--  민원사주 심의 의혹 속 MBC KBS 가짜뉴스 센터 신속 심의 올라
--  [아침신문 솎아보기] 한겨레 “류희림 위원장, 공영방송 고위 간부까지 지내놓고 이렇게 뻔뻔해도 되는가”
--  OTT 영상콘텐츠 제작 현장이 영화판보다 힘들 수밖에 없는 이유
--  “영화노조 교섭 피하려 OTT·드라마 택하는 제작사… 턴키계약 부활”
--  [미오 사설] 영화 ‘서울의 봄’과 언론이 할 일
--  YTN·연합뉴스부터 공동체라디오까지 예산 대폭 ‘삭감’
--  해외 OTT 스태프 노동자 뭉쳐서 살아남았다
--  김홍일 후보 주식 거래 내역 비공개에 “인사청문 권한 형해화”
--  [영상] 이재명 “대통령 부부 심기 보전에 앞장선 모습 보기 씁쓸하다”
--  गहुँको खेती बढाउन उदासीनता
--  अनुभूति गर्न नसकिएको उपलब्धि
--  १० वर्षअघिको आर्थिक अभियानबाट : ढुवानी ऐन चाँडो बनाऊ
--  वृत्ताकार अर्थ व्यवस्थामा बढ्दो चासो : दिगो विकासका लागि महङ्खवपूर्ण औजार
--  कर्जा प्रवाह तथा असुली व्यवस्था
--  ‘निकुञ्जको संरक्षण र पर्यटन सँगै अघि बढाउनुपर्छ’
--  सरकारको १ वर्ष : परिणाम दिन नसकेको प्रधानमन्त्रीको स्वीकारोक्ति
--  बीमा कम्पनीहरूको लगानी मुद्दती निक्षेपमा सीमित
--  ओटिसी बजार : दुई महीनामा ४० करोडभन्दा बढीको कारोबार
--  व्यापार संघको ट्रेड एक्स्पो २०२३ : ७ करोडको कारोबार, ८० हजारभन्दा बढीले गरे अवलोकन
--  City of Cape Town load shedding schedule – WEDNESDAY
--  Angespannte Hochwasserlage: Talsperren voll, Deiche brüchig
--  বাংলাদেশ-নিউজিল্যান্ড টি-২০ সিরিজ শুরু আজ
--  Asya borsaları tatil dönüşü yükselişte
--  “추악한 사건에 휘말렸다”... 풀럼 GK, 고의로 시간 지연하는 볼 보이 밀쳤다
--  Шавкат Мирзиёев Петербургда Владимир Путин билан учрашув ўтказди.
--  Фуқаролик процессуал кодексига ўзгартириш ва қўшимчалар киритилди.
--  Ўзбекистон президенти МДҲнинг норасмий саммитида иштирок этди.
--  Биттадан ортиқ машинага эга оилаларга мол-мулк солиғини кўпроқ тўлаш тартибини жорий этиш таклиф қилинди.
--  Орол денгизи қуриган тубида экилган саксовуллар космосдан кўрина бошлади .
--  Германияда Тожикистон фуқароси терактга тайёргарликда гумонланиб ушланди.
--  हस्तकला उद्योग: कलाबाट कमाइ
--  "ศุภณัฏฐ์" ซัดประตูแรก ลีกเบลเยียมได้แล้ว
--  Jelang Tahun Baru, Polisi Antisipasi Arus Mudik di Jalur Bandung-Garut
--  Benavidez tiene nuevo rival en caso de que ‘Canelo’ rechace la pelea
--  Крупнейший авианосец США «Джеральд Форд» прибыл к острову Крит
--  Autoridades ven fortaleza en sistema financiero mexicano
--  Lee Sun Kyun meninggal dunia, disyaki bunuh diri
--  LG전자, CES서 스마트홈 'AI 에이전트' 첫선
--  글로벌 인기 IP 찾는 카카오엔터...창비와 함께 '공모전' 연다
--  LG유플러스 아이들나라, 고마워토토·삼성서울병원 병원학교 교육 지원
--  KT, 홈쇼핑 방송사 마케팅 돕는다...지니 쇼핑 인사이트&플러스 출격
+-  Organismo de Focalización e Información Social del Midis fortalecerá los esfuerzos para combatir la pobreza
+-  महादेव ऐप घोटाला: मुख्य आरोपी सौरभ चंद्राकर को दुबई में हिरासत में लिया गया, भारत लाने की है तैयारी
+-  ¡Fortalecen el bullpen! Wirfin Obispo reforzará a Cañeros de Los Mochis
+-  Los hutíes perpetran otro ataque en el mar Rojo
+-  İkinci çocuk annesi Atiye, 3 aylık kızının yüzünü ilk kez gösterdi! Beğeni yağdı
+-  Çin Devlet Başkanı Şi: Tayvan ile birleşme sağlanacak
+-  Will find attackers from depths of seas: Rajnath
+-  India-Russia ties remain strong due to geopolitics: Jaishankar
+-  Gutes Wintersportwetter – so werden die letzten Tage des Jahres 2023
+-  Откриха мъртъв актьорът от "Паразит" Ли Сун-кюн ВИДЕО
+-  Despiden a Armando Guadiana en Saltillo
+-  Galería: Autoridades municipales comparten con familias vulnerables
+-  Will EV Charging Help or Hurt Convenience Stores?
+-  Prof Ade Arsianti, Guru Besar Kimia Kedokteran FKUI Berhasil Kembangkan Obat Baru untuk Kanker Payudara
+-  В Ярославле только за неделю поступило более тысячи жалоб на некачественную уборку
+-  Angela Simmons receives $400K trio of Hermès Birkin bags for Christmas from boyfriend Yo Gotti: 'Blessed beyond measures!'
+-  Костромской губернатор исполнил мечту 13-летнего школьника «порулить» поездом
+-  यूक्रेन के खिलाफ रूस के लिए जंग लड़ रहे नेपाली, अब इतनों का नहीं है पता
+-  Ibovespa supera os 133 mil pontos pela primeira vez
+-  Tennis : Vers un coup à la Federer pour Nadal ? Il se lâche
+-  '마약 투약 혐의' 이선균, 차량서 숨진 채 발견…“메모 형식 유서도” [종합]
+-  Nuevas ambulancias para urgencias médicas beneficiarán a todas las provincias cubanas
+-  Cryptocurrency miner Phoenix Group acquires 25% in Dubai-based Lyvely
+-  राजस्थान में आज होगा मंत्रिमंडल का गठन, यह 20 मंत्री लेंगे शपथ
+-  सुपरमैन नहीं यह तो मोहम्मद रिजवान थे… एक हाथ से लपका अद्भुत कैच, देखते रह जाएंगे VIDEO
+-  पुंछ के घने जंगल में आतंकियों की तलाश में सर्च ऑपरेशन जारी, पहुंच रहे रक्षा मंत्री
+-  हमास के साथ अभी कई महीनों तक चलेगा युद्ध… इजरायल ने दी बड़ी चेतावनी, नहीं खत्म होने वाली जंग?
+-  'Parasite' actor Lee found dead amid drug allegations...
+-  शाह ने बंगाल में BJP के लिए रखा 35 लोकसभा सीटों का टारगेट, जानें क्या बनाया प्लान
+-  [포토] 배우 이선균 숨진 채 발견
+-  BMW 뉴 i5, 2023 자동차 안전도 평가 최우수 차량 선정
+-  มิตรภาพ-บขส.โคราชคึกคักคนเริ่มทยอยกลับบ้าน
+-  कभी बताया था 'बिट्स एंड पीसेस प्‍लेयर', अब मांजरेकर ने की जडेजा की प्रशंसा
+-  На заводе в Техасе робот напал на сотрудника из-за сбоя
+-  新北遭割喉國三生不治 校長心痛：全力助家長辦後事
+-  VIDEO: Jenazah Lukas Enembe akan Diberangkatkan ke Papua untuk Dimakamkan
+-  El distribuidor de componentes electrónicos Utmel invitado a participar en 2024 NEPCON JAPAN
+-  “Pasó de todo”. Gracias a una nota en LA NACION, aprendió a leer, tiene su propia habitación y una bicicleta para ir a la escuela
+-  Starlink llega a Argentina: ¿reventará Elon Musk el mercado local de internet?
+-  더불어민주당 4·5차 인재환영식
+-  더불어민주당 5호 인재에 강청희 전 대한의사협회 상근부회장 영입
+-  더불어민주당 4호 인재에 박선원 전 국가정보원 제1차장 영입
+-  Hindari Politik Uang, Ganjar Pilih 'Jualan' Program untuk Majukan UMKM se-Indonesia
+-  民主之盾》ECFA十年之後：貿易並未帶來和平，台灣為何仍相信中國？
+-  UAE’s Response Plus appoints acting chair as Shamsheer Vayalil resigns
+-  ΛΔ Κονγκό: Τουλάχιστον 22 νεκροί από τις καταρρακτώδεις βροχές
+-  민주당 4·5호 인재영입식, 인사말하는 이재명 대표
+-  Chrome di Desktop Makin Aman dan Hemat Memori, Ini Fitur Barunya
+-  ‘สุวัจน์’ มองแง่ดี ‘รัฐมนตรี’ ได้ฉายาแสดงว่ามีตัวตน!
+-  Вологжанин занял третье место на чемпионате России по покеру
