@@ -1,51 +1,51 @@
 # Latest News
--  3 חודשים אחרי הטבח, תושבי כפר עזה מספרים: "הפכנו לפליטים, שכולים ופגועים"
--  תכירו את טסלה מודל Y ג'וניפר: הגרסה המחודשת
--  Gazze'de ateşkes için çabalar artıyor
--  Boletos para palenque Santa Rita salen a la venta el viernes
--  Exportan calzado mexicano a mejor precio por especialización
--  5 signs you grew up with an emotionally absent parent — even if they supported you in other ways
--  Sicario bajó a un herido de una ambulancia y le dio 40 balazos
--  هاليفي يتحدث عن خطط جديدة لمواجهة حزب الله.. وغانتس يهدد: وقت الدبلوماسية ينفذ
--  John Oates Says He Has “Moved On” Amid Legal Battle With Bandmate Daryl Hall
--  Sexto Juzgado ordena nuevo embargo para Nadine Heredia
--  Royal Caribbean's Ovation of the Seas cruise passenger smuggles pet cat named Ovie on cruise from Hawaii to Sydney: Crew spent weeks fighting for its life after biosecurity agents on stop in New Zealand threatened to euthanize it
--  Dnevnik Nove TV provjerio na koje destinacije vole putovati Hrvati
--  Walmart says shoppers are 'value hacking' to stretch their dollars
--  La Bourse de Tunis consolide sa reprise
--  Packers star Jaire Alexander is SUSPENDED for crashing the coin toss before Panthers game when he wasn't supposed to be on the field
--  الرباط.. الحكم على مجموعة من الاشخاص متورطين في تكوين عصابة لتنفيذ أعمال إرهابية
--  Ukraine succeeds in keeping out a superior Russian navy in the Black Sea
--  Cámara de Industriales en Lara cerró el año con casi 40 % de ocupación instalada
--  Valentino Rossi olyan időket futott a a privát teszten, mint Michael Schumacher
--  ITV Nolly star Helena Bonham Carter's wild romances - Emma Thompson affair and age-gap lover
--  ‘Napoleon’ Tops $200M At Global Box Office
--  Zenicablog saznaje: Glavni imam MIZ Zenica od 1. januara Sumedin ef Kobilica
--  Mauricio Pochettino set to axe up to five Chelsea stars in January transfer window with captain Conor Gallagher at risk
--  Gobierno de Milei impulsa una ley para declarar amplia emergencia hasta finales de 2025
--  هاتف HUAWEI P60 Pro: الهدية المثالية التي ستلقى إعجاب المصوّرين في حياتك
--  Advokat efter omfattende svindel mod bankkunder: Gør krav mod banken
--  Advokat efter omfattende svindel mod bankkunder: Gør krav mod banken
--  So bewegen sich Gold & Co. heute
--  “Bëhuni gati për turbulenca” – Pse 2024 është viti i zgjedhjeve të rrezikuara nga Inteligjenca Artificiale
--  Thousands with sickle cell disease denied benefits
--  Porto Torres, la nave merci non parte per 10 giorni: «Sardi privati di materiali essenziali per salute e industrie»
--  Brexit: ‘Pints’ of wine to be sold in Britain
--  Regreso de Nadal a las canchas son “buenas noticias para el mundo del tenis”, según Djokovic
--  Gustavo Petro se pronunció sobre las masacres en Colombia: «La cifra del 2023 muestra que se detuvo el crecimiento, pero no me gusta para nada»
--  Túnez y Arabia Saudí firman memorandos en medio ambiente, investigación agrícola y agua
--  Retornos bonos Tesoro EEUU a 10 años tocan menor nivel desde mediados de julio
--  Al menos 40 personas más mueren por inundaciones y deslaves en República Democrática del Congo
--  Incidentes y varios detenidos tras la concentración de la CGT en Buenos Aires
--  BNP Paribas, investigado por presunto blanqueo de capitales
--  Las acciones de FedEx caen tras unos resultados financieros del segundo trimestre que no cumplen los objetivos
--  JPMorgan Chase supera a Bank of America y Citibank en valor de mercado
--  Lizzo ‘Cant Stop Crying’ After Pet Dog Pooka Dies on Christmas Eve
--  Akeredolu’s death significant loss to Nigeria – Orji Kalu
--  Vacuna COVID de Pfizer llega a Walmart: ¿Cuánto costará la dosis en sus farmacias?
--  Dans le pays de Lorient, ils vendent leurs cadeaux de Noël
--  Toddler shows “no remorse” after opening every Christmas gift in the middle of the night
--  STJUARDESA PROGANjALA PILOTA? Nesvakidašnji slučaj u Beogradu, evo šta je osumnjičena rekla tokom saslušanja i za šta se tereti
--  Zemljotres od 3,8 stepeni po Richteru pogodio Hrvatsku: 'Odmah smo skočili, tresla su se stakla'
--  İstanbul genelinde kaçak göçmen denetimi: Çok sayıda kişi yakalandı
--  Jul i det gamle højsikkerhedsfængsel: Dobbeltmorder gik sin vej efter familiebesøg
+-  Mark Cuban više nije većinski vlasnik Dallas Mavericksa
+-  [ŽT] Rimti nuostoliai. „Rusai atsidūrė ugnies maiše.“ Kas nutiko
+-  [ŽT] Slovakiškas Rusijos siaubas. Fronte pasirodė monstras „Kub-M2“ (Video)
+-  Naujos Rusijos artilerijos sistemos keliauja į Ukrainą. Rusija mato savo artilerijos pranašumą
+-  Vokietija pasiekė ginkluotės eksporto rekordą. Parduoda ne tik Ukrainai
+-  Šoigu skelbia naują „SVO“ tikslą 2023 m.
+-  [ŽT] Neįtikėtina. „Atjungiamas eteris.“ Rusija Kirkorovui skelbia boikotą. Kas nutiko (Video, foto)
+-  [ŽT] „Grįš iš fronto ir įvykdys perversmą.“ Rusijoje galinga jėga. Policija bijo kištis (Video)
+-  N-18. „Kad visi matytų, kodėl Ukraina negali derėtis su okupantais.“ Skelbiamas žiaurus video
+-  Dünyanın “iki üzü”...
+-  Udham Singh Nagar News: काशीपुर में होने लगा उद्योगों का विस्तार, युवाओं को मिलेगा रोजगार
+-  ¡Ya es cementero! Alexis Vega llega a Cruz Azul... pero reduce su sueldo, según TUDN
+-  आरोप : घर में घुसकर पुलिस ने महिलाओं और किशोर को पीटा
+-  Kushinagar News: तय समय में तीन दिन बचे, पर्यटन विकास के निर्माण कई काम अधूरे
+-  Kushinagar News: नवविवाहिता ने घर में फंदा लगाकर की आत्महत्या
+-  Baghpat News: कागजी कार्रवाई में अटका जयंत की निधि से मिनी स्टेडियम का निर्माण
+-  Baghpat News: पांच बच्चों की मां प्रेमी के साथ गई
+-  A escena el Torneo Benéfico de Golf Adaptado Gobierno de Canarias
+-  Morre aos 98 anos Jacques Delors, ex-chefe do Executivo da UE
+-  Karnal News: विश्व शांति के लिए खतरा है युद्ध, विवश दिख रहा यूएनओ
+-  Sambhal News: नकली नोट छापने वाले गिरोह का सरगना आगरा से गिरफ्तार
+-  Jogevieši arī Cēsīs sarūgtina "Lekringu"
+-  Erdogan greift Netanjahu scharf an - Vergleich mit Hitler
+-  Fatih Terim'in Panathinaikos ile ilk antrenmanında dikkat çeken hamle! Oyuncuları teker teker yanına topladı ve...
+-  Faruk Koca'dan tahliye sonrası ilk açıklama: Özür diliyor, helallik istiyorum
+-  Aaj Ka Tula Tarot Card: तुला राशि वाले लक्ष्य पाने की करेंगे कोशिश, बना रहेगा खुशहाली का माहौल
+-  Today’s Lely Radio Sports Page 12/27/23
+-  طريقة ورابط معرفة نتائج القبول المبدئي على رتبة جندي في الجوازات
+-  SAT sancionará a contribuyentes que no hayan activado su buzón tributario
+-  Taylor Swift Folklore Quiz – How Much Do You Know?
+-  Timothy Monbleau’s 10 favorite games of 2023
+-  Fútbol: Vitor Roque ya está en Barcelona
+-  Cut price bubbles for NYE party
+-  ZAKUVAVANJE Goran Grbović i Suzana Perić: Sarma i torta leče svaku dušu
+-  Repete look usado por Rita Pereira no Brasil
+-  Košmaras Maskvai. „Gelbėti per vėlu. Laivynas bus sunaikintas iki paskutinio tualeto“
+-  Лъжата за прогреса и грозният идол на светлото бъдеще - Труд
+-  Najuspješniji golman jesenje polusezone Premijer lige BiH govorio za Velež TV
+-  ŽALILA SE ALBANCU SA KOSOVA DA JE NEKO UHODI! Jezivi detalji Vanesine smrti: U trenutku ubistva bila TRUDNA sa drugim detetom
+-  جدة والحدود الشمالية.. تفاصيل قرارات تعليق الدراسة في المملكة
+-  Turska policija zaplenila vozni park od 3,5 miliona dolara, sad je njihov
+-  Regent Cinemas Albury-Wodonga session times
+-  Muere sicario implicado en atentado contra el alcalde Jorge Nava
+-  Madison Scott's disappearance haunted Vanderhoof for 12 years. Now, the community is grappling with her death
+-  Turkish Police Just Seized 23 Luxury Cars Worth $3.5 Million—and Are Now Using Them in Their Fleet
+-  Canada urged to consider lifetime ban on cigarette sales to anyone born after 2008
+-  Turkish Police Converts Drug Trafficker's $3.5 Million Sports Car Fleet For Patrol Use
+-  Bigg Boss 17: बिग बॉस की अदालत में दोषी पाए गए मुनव्वर फारूकी, कप्तान ने सुनाया फैसला
+-  Herediano jugará como local ante el Toluca en el Estadio Alejandro Morera Soto
+-  Barry Gibb’s Wife: All About the Bee Gees Member’s Love Linda Gray
