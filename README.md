@@ -1,51 +1,51 @@
 # Latest News
--  Britániu zasiahlo zlé počasie: Rušia sa lety aj trajektové spoje! Voda zaplavila železničné trate
--  Znásilnenie, stará vražda aj šikana: Z týchto prípadov tuhne krv žilách! Nemali by sme na ne zabudnúť
--  Van 112 incendios en casa habitación en diciembre
--  Descarta AMLO que EU pida endurecimiento migratorio
--  Ampliará Infonavit horario mañana para cambiar créditos a pesos
--  Hay 92 mil personas desaparecidas, asegura Gobierno
--  Selfiekali wins Elephant Beauty Contest
--  Szkoła specjalna pod jednym adresem. Miasto ogłosiło przetarg
--  İsrail Batı Şeria'da bir Filistinliyi daha öldürdü
--  Roma'da Renato Sanches için yolun sonu gözüktü
--  MicroStrategy dokupiło bitcoiny za ponad 600 mln USD
--  Nuorten Leijonien tähtipuolustaja antoi palaa TV5:llä
--  Dick Clark's New Year's Rockin' Eve 2024 Lands Performances By Cardi B in Miami, LL Cool J in NYC and More
--  Vecinos de Rincón de Urías en Mazatlán piden alumbrado público, pavimentación y escrituras
--  BFW Rewind 2023, #4: Bayern Munich end the season with an unexpected title victory
--  Why tending your oral microbiome is the secret to a long, healthy life
--  9 فوائد تميز زيت شجرة الشاي.. يعالج مشكلات مزعجة في الشعر والبشرة
--  Band of Brothers writer and director David Leland dies aged 82 on Christmas Eve surrounded by family: Liam Neeson and Pierce Brosnan lead tributes to BAFTA-winner
--  Bremer ha firmato: ecco quanto durerà il suo matrimonio con la Juve
--  Publikumsfavorit vil stoppe efter Mathieu van der Poel-skub
--  Publikumsfavorit vil stoppe efter Mathieu van der Poel-skub
--  Breaking News: Früherer EU-Kommissionspräsident Jacques Delors ist tot
--  Le « New York Times » poursuit la maison mère de ChatGPT et Microsoft
--  Ouch! Boyfriend's romantic proposal in front of cheering crowd goes badly wrong when his unimpressed girlfriend says 'This is why we came to Rome? No!'
--  '13 Reasons Why' trans star Tommy Dorfman is threatened to be kicked out of LaGuardia by Delta employee as she rants about being 'misgendered'
--  '13 Reasons Why' trans star Tommy Dorfman is threatened to be kicked out of LaGuardia by Delta employee as she rants about being 'misgendered'
--  Jacque Delors, ancien ministre et président de la Commission européenne, est mort
--  Russia warns Japan over providing Patriot air defence systems to Ukraine
--  Turkey’s Erdogan says Israeli PM Netanyahu no different from Hitler
--  Taxe foncière : la facture va encore s'alourdir en 2024
--  Rusya: Filistin devletinin kurulmasını ABD engelledi!
--  Son dakika... Asgari ücret açıklandı!
--  Bakan Işıkhan açıkladı: Yeni asgari ücret belli oldu!
--  Loire-Atlantique : dans ce parc animalier, les animaux recyclent vos sapins de Noël
--  Kim Kardashian channeled ‘the original Elsa’ with her vintage Mugler Couture gown at Christmas party
--  Analyse: En lille luns fra Erdogan får svenskerne til at dirre. Men NATO-spillet er slet ikke slut
--  Analyse: En lille luns fra Erdogan får svenskerne til at dirre. Men NATO-spillet er slet ikke slut
--  DGA obtiene certificación NORTIC A7:2016 por seguridad en tecnologías de la información
--  Labour, dig in and fight for your green pledges | Letters
--  Pictured: Girl, 10, killed in Boxing Day crash as family pay tribute to 'lovable' girl who wanted a 'dream home' when she grew up
--  Zagrepčanin novčano kažnjen zbog rasističkog vrijeđanja Južnokorejca: ‘Fu*k you, Kinez!‘
--  Pernar skočio na šipku i izazvao Tomaševića: ‘Senf, koliko ti možeš?’
--  Les meilleures galettes des rois des Pyrénées-Orientales se dégustent à Perpignan
--  بنهاية 9 أشهر .. سوق الأسهم يُنهى تعاملاته بتداولات 974 مليار ريال
--  بصلاحية 30 يوما.. "أبشر" تتيح إصدار تقرير عن أحد العمالة لدى المواطن
--  Apple Watch import ban paused by US appeals court
--  Israel diz que não há ataques a partir de túneis desde início da guerra
--  Mafalda Castro mostra a barriguinha: "Desde início foi gravidez de risco"
--  Cuppy’s “Jollof on the Jet” Takes Off Again on TikTok!
--  Подготовка к президентским выборам в Запорожской области идет полным ходом
+-  MTV: HIFK:n ottelun katsomossa syntyi kahakka - kolme poliisipartiota paikalle
+-  Ron DeSantis Tells Interviewer 1 Thing He Would Change About GOP Primary Campaign
+-  Feuerwehren vor allem in Rieneck und Lohr nach Sturm gefordert
+-  అప్పుల్లో నెట్టిన గత ప్రభుత్వం
+-  Lenovo may announce a Windows laptop with a detachable Android tablet display at CES 2024
+-  Kumaram Bheem Asifabad: ‘ప్రజాపాలన’ను సద్వినియోగం చేసుకోవాలి
+-  Παναθηναϊκός: Με φανέλα του Ολυμπιακού η πολυτελής VIP Lounge του ΟΑΚΑ
+-  W "Wilczym Szańcu" będzie można wejść do ruin bunkra Hitlera
+-  Los ingresos de explotación de Flipkart aumentan un 42% y reducen las pérdidas en el ejercicio fiscal 2023
+-  Las acciones fluctúan a mediodía: Tesla, Coinbase y otros
+-  Juez argentino rechaza recurso de la CGT contra el decreto de Milei por defecto de forma
+-  El Banco Central argentino emitirá billetes de mayor denominación por la alta inflación
+-  Mercato - PSG : Le Real Madrid se lâche avec Mbappé
+-  Tom Smothers dead at 86: Comedy legend and one half of iconic comedy duo the Smothers Brothers passes away after battle with cancer
+-  Qué rituales de Año Nuevo realizar si quieres atraer el dinero en el 2024
+-  Yeni asgari ücret belli oldu! İşverene verilecek ücret desteği 700 TL'ye çıkarıldı
+-  Nepal Surpasses One Million Tourist Arrivals in 2023; Indian Visitors Lead Influx
+-  Sherr për vendparkimin në Tetovë, 60-vjeçari vret djalin e xhaxhit dhe nusen
+-  Especial | Conozca a los distinguidos con Bien Hecho y Personaje del año 2023 de Prensa Libre
+-  Kumaram Bheem Asifabad: పూలాజీబాబా బోధనలు అందరికీ ఆదర్శం
+-  Kickoff | 40yo ex-Sundowns star to captain nation at AFCON
+-  В Польше начали процедуру ликвидации государственных СМИ
+-  Lisa Magnusson: John och Yoko är motsatsen till vad julen handlar om
+-  From 'gummy' to glam! Woman, 38, who lost all of her TEETH earns viral fame as TikTok's 'denture queen' by flaunting INCREDIBLE before-and-after transformations with her fake pearly whites
+-  Популярный российский юморист назвал недостатки КВН
+-  Google needs to show the ChromeOS tablet UI some serious love, and soon
+-  The New York Times podigao tužbu protiv OpenAI i Microsofta: ‘Odgvorni su za milijarde dolara štete!‘
+-  В Тбилиси убит военнослужащий, обвиняемый задержан
+-  Kako je željezničar-heroj Marko zaustavio vlak skočivši na njega
+-  Zyberi: Dokumentat personale duhet të jenë në ngarkesë të buxhetit të shtetit e jo të qytetarëve
+-  Polarización, la palabra del 2023 para la RAE
+-  Anti-war candidate says Russian Supreme Court backs barring her from challenging Putin
+-  Dax stabil nach den Feiertagen
+-  سرطان الأمعاء.. 4 علامات في البراز تكشف الإصابة - احذرها
+-  ایک اور سیاسی جماعت کیلئے خطرے کی گھنٹی بج گئی
+-  ‘ప్రజాపాలన’ ఏర్పాటుకు చర్యలు తీసుకోవాలి
+-  Кравцов считает Путина наставником
+-  Demanda NY Times a OpenAI y Microsoft por utilizar sus historias para su chatbot
+-  La lista de Schindler original está a la venta (y tú la puedes armar para la colección)
+-  Simons, Reath, Henderson lead Trail Blazers past Kings 130-113
+-  Oud-voorzitter Europese Commissie Jacques Delors (98) overleden
+-  Hopewell Chin’ono Changes Own Wealth Story from Non-Existant Sportscar Lender to Cellphone Hustle Claim
+-  Миронов призвал лишить участников голой вечеринки Ивлеевой концертов и рекламы
+-  Advierte EU a migrantes sobre consecuencias por cruzar la frontera ilegalmente
+-  El caza ligero MiG-29, al detalle
+-  Bullets look to Prather to provide them with NBL spark
+-  Мужчина, пропавший во время экспедиции в районе ледника Гергети, найден мертвым
+-  Încă un bebeluș din județul Brașov a murit de rujeolă. Provenea dintr-o comunitate nevaccinată
+-  ఆదేశాలు బేఖాతరు
+-  O curioso motivo do aumento da venda de peças do lado esquerdo dos carros em SC
