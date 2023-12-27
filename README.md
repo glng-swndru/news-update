@@ -1,11 +1,51 @@
 # Latest News
--  Erdoğan'dan asgari ücret paylaşımı
--  Katrina Kaif on BO: `If nobody has come to watch the film, there`s a problem`
--  Have not been invited to Ram temple inauguration: NCP chief Sharad Pawar
--  ‘Killings must end in Plateau State’ – Femi Falana demands
--  Lukon entinen maalivahti vaihtaa seuraa KHL:ssä
--  Man in Nicosia arrested for drug possession
--  Live music this week
+-  Una actriz francesa acusa a Victoria Abril de "agresiones sexuales" a otros actores
+-  صرف معونة الشتاء للمنتفعين من صندوق المعونة مع مخصصات الشهر الحالي
+-  %87 نسبة الإنفاق على مشاريع اللامركزية في إربد
+-  الوزراء: توقيع مذكرة تفاهم في مجال الطاقة المتجددة يؤكد قدرة مصر على جذب المستثمرين
+-  الحسيمة تحتضن اجتماعا لمجلس جامعة عبد المالك السعدي
+-  وسط توقعات بتباطؤ منحنى القروض البنكية الموجهة إلى القطاع غير المالي.. القطاع المالي المغربي يواصل إظهار متانته وصموده
+-  إدارة المرأة والطفل بانتقالي أبين تنظم حفلاً فنياً وتكريميا لتخرج الفئة الكبرى من رياض الاطفال بخنفر
+-  الهيئة العليا للاتصال السمعي البصري تتخذ 80 قرارا بخصوص برامج الإذاعات والقنوات
+-  Elin Grönblom regisserar sin första långfilm
+-  Ken Jennings Suggests Mayim Bialik's 'Jeopardy!' Exit Took Him By Surprise
+-  شركتا شحن فرنسية ودنماركية تعلنان استئناف مرور سفنهما في البحر الأحمر
+-  Lo quisieron Boca y River, pero jugará en el Tigres de México
+-  تضامن المنيا تحتفل بتخريج 94 من ذوي الإعاقة الذهنية ضمن برنامج المدارس الحقلية
+-  Francia: Torre Eiffel cierra sus puertas a visitantes debido a huelga de trabajadores
+-  حكومة حماس: الجيش الإسرائيلي اعتقل 2600 فلسطيني من قطاع غزة
+-  Ucraina, F-16 sono già in guerra? Gli indizi e le news
+-  Koniec verejnoprávnych médií v Poľsku. Minister kultúry Sienkiewicz oznámil ich likvidáciu
+-  ΠΟΝΑΕΙ-ΑΠΟΕΛ
+-  Ankaragücü’nün eski başkanı Faruk Koca tahliye edildi
+-  İYİ Parti Trabzon İl Başkanı: “Asgari ücretli artık Trabzon’da yaşayamaz”
+-  OAP, 83, makes dig at estranged toyboy husband, 39, as she thanks people for their support following ‘turbulent year’
+-  Tottenham star recalled from loan transfer at Championship high-fliers with Heung Min-Son set to miss up to SIX games
+-  The Apple Watch US import ban is temporarily lifted by a US appeals court
+-  Badajoz contará con un nuevo juzgado de primera instancia
+-  A dollárral elbánt a forint, ám az euróval nem bírt
 -  Former EU Commission President Jacques Delors dies at 98
--  Mit Freundin Abby Champion: Patrick Schwarzenegger hat sich verlobt
--  Tri potpisa u Humskoj pred kraj godine
+-  Archäologischer Fund: Forscher staunen über mysteriöses Symbol – „ganz neu für uns“
+-  Ubican cadáver en desagüe en Veracruz
+-  Se aleja la Navidad
+-  Ryska dödsattacken i Syrien – tre döda barn
+-  SONKO a "reçu sa convocation pour le tirage au sort du 28 décembre" ( avocat)
+-  L’ONU dénonce la «lâcheté morale» d’Israël après des accusations à son égard
+-  فرانكفورت يقترب من ضم النيجيري دوروسينمي
+-  Hezonja ima gripu, neće igrati protiv ASVEL-a
+-  INTERVJU Veljko Mićunović: Živimo u surovo vreme, a ljudi su ucenjeni da bi preživeli
+-  La UEFA exige rectificaciones al TJUE sobre la notificación del fallo de la Superliga
+-  Swift fan 'died of heat exhaustion' at Brazil concert
+-  Swift fan 'died of heat exhaustion' at Brazil concert
+-  ‘Abbott Elementary’ Season 3: Everything To Know Including The Release Date, Cast, Trailer, & More Info
+-  Grosse soirée à la Friche avant sa fermeture définitive à Marcq-en-Barœul
+-  Tusk: Nećemo silom prekidati blokadu poljske televizije i javnih medija
+-  Minister escorted from North Carolina movie theater after trying to use his own chair
+-  „Nisam ja Toma Nikolić da varam“: Marinika Tepić ulazi u deseti dan štrajka glađu
+-  Lil Wayne Compared His Rap Career To An Iconic Basketball Player, As They Both Started Young
+-  Баскетболистките ни до 16 години започнаха с победа на Балканиадата
+-  Gov Bello Describes Death Of Ex-speaker Na’Abba As Great Loss
+-  ΑΕΚ: «Συγκλονισμένοι από την τραγική απώλεια ενός νέου ανθρώπου, να αποδοθεί δικαιοσύνη»
+-  “Fábrica” imunda de churros em praia de SC escondia de sujeira a crime ambiental
+-  Boston outlines major changes for city's First Night
+-  Glasanje za VDT-a nema veze s foteljama - iz ZBCG tvrde da ni na...
