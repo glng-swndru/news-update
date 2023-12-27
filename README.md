@@ -1,51 +1,51 @@
 # Latest News
--  استيقظ مذعوراً من "كابوس".. جندي صهيوني يطلق النار على رفاقه بعد عودته من غزة
--  النص الكامل للخطاب الملكي السنوي لأعمال السنة الرابعة من الدورة الثامنة لمجلس الشورى
--  الخميس 15 جمادى الآخرة.. 4 ساعات بين صلاتي العصر والعشاء بالمدينة المنورة
--  Polémica moda en China: cercenan orejas de mascotas para que se asemejen a las de Mickey Mouse
--  Llenar el tanque de tu auto podría salirte 10 pesos más caro en 2024... Te explicamos por qué
--  Capturan a tres miembros del Tren del Llano tras enfrentamiento con la policía en Apure
--  Vamos Palencia destaca el trabajo de gestión interna de la alcaldesa pero no se plantea entrar en el gobierno
--  Tunisie – Un ancien ministre des affaires sociales déféré devant la chambre criminelle
--  SEVNULA GOLA NOGA LEPE ANICE Lazar Ristovski i te kako ima na šta da bude ljubimoran
--  El Zunder Palencia se fija en Stefan Moody
--  New Year's partiers paying $12,500 to ring in 2024 in Times Square
--  OBOJICA SU SE NASMEJALI Pogledajte potez Alkaraza tokom meča i reakciju Đokovića o kojoj se priča (VIDEO)
--  Kirkorovun saytı bloklandı
--  It was a balmy North Shore Christmas, but no temperature records fell
--  Adamczyk reaguje na decyzję Sienkiewicza. Padły mocne słowa
--  ¿Pero qué les pasa con los árboles?
--  El problema de la sequía
--  #PerroSanxe
--  Luces y sombras del 'paquete' económico del Gobierno
--  Los cafres de Vox y la corbata de Bardella
--  Bolaños tendrá una estación de metro
--  El hijo de español que tiene un plan para que Alemania salga de la parálisis económica
--  La Justicia deja en evidencia a Jupol ante su bastión de los antidisturbios y tumba su proyecto de jornada laboral
--  Sánchez dibuja para 2024 un escenario de continuidad económica y social alejado de las profecías catastrofistas
--  El proyecto de Milei modifica la “Ley Bignone” y cambia la composición de Diputados: bajaría los escaños de 16 provincias y aumentaría las bancas de Buenos Aires
--  Desatoran a migrantes varados en Chihuahua y llegan a la frontera
--  Cómo quedó integrado el nuevo directorio de Epec
--  Late penalty earns Chelsea win over Crystal Palace
--  Marcos Etcheverry es ferretero, se convirtió en una estrella de las redes sociales y reveló su secreto para el éxito
--  Sentences finalized for 3 ex-SDF members guilty of indecent assault
--  La adolescente Najiah Knight quiere ser la primera mujer en el nivel más alto del rodeo
--  Tokyo gov't, state ordered to compensate company execs for illegal investigation
--  Debía llevar su auto a arreglar, pero antes jugó los números del formulario de reparación y ganó: “Tal vez compre uno nuevo”
--  Jacques Delors (1925-2023). In memoriam del ciudadano de honor europeo
--  Murió a los 98 años Jacques Delors, el gran arquitecto de la Unión Europea
--  Social media companies made $11 billion in US ad revenue from minors, Harvard study finds
--  Mommy Vlogger Ruby Franke Pleaded Guilty To Child Abuse — Now Her Business Partner Has, Too
--  Deputada Camila Jara confirma ser pré-candidata do PT na eleição de 2024
--  Patrick Kane on Wild coach John Hynes: ‘He was really good for me.’
--  Aseguran que Milett Figueroa tuvo que abandonar la pista del Bailando 2023 por un problema de salud: “Se descompuso”
--  Lazio, Luis Alberto fermo per un mese. Ko anche Immobile
--  Man with machete, knife arrested outside US Capitol: police
--  NRW-Dauerregen und Hochwasser sorgen für positiven Nebeneffekt
--  Singareni : నల్ల నేలపై ఎర్ర జెండా
--  KULIĆEVA PONOVO SKOČILA NA ZOLU! Od sinoć nisu prestali sa vrelim akcijama, opet TRESU KREVET, šok FOTKE
--  Una nueva cirugía metabólica mitiga los efectos de la diabetes en pacientes
--  U.S. ambassador thanks Japan for defense upgrade and allowing Patriot missile sale to U.S.
--  Rechazo del campo al proyecto de Máximo Kirchner para financiar obras con las retenciones a la soja: “es sorprendente el grado de irresponsabilidad”
--  Lake Merritt BART murder suspect serves as his own attorney in key hearing, with predictable results
--  Lake Merritt BART murder suspect serves as his own attorney in key hearing, with predictable results
+-  PREMIJER LIGA: Čelsi srušio Kristal Palas u gradskom derbiju, Vulverhempton u gostima rasturio Brentford
+-  Vivek: Establishment Isn't Going to Let Biden or Trump Get Anywhere Near the Finish Line in 2024
+-  Wzrosty na Wall Street, S&P500 coraz bliżej rekordu
+-  ReTo Eco-Solutions, Inc. Announces First Half 2023 Financial Results
+-  NIA, K-PaaS 활용 서비스·아이디어 공모전 성료
+-  Yasa dışı İsrailli yerleşimcilerden vahşet üstüne vahşet! Filistinli aileye dronlu kezzap saldırısı
+-  Protestolar aralıksız sürüyor! Sırbistan'da seçim sonrası tepkiler dinmedi
+-  Ukrayna'ya 250 milyon dolarlık ABD desteği
+-  Tunus'ta seçimleri 1348 aday kazandı
+-  Chelsea evinde 2 golle kazandı
+-  Polisi görünce uyuşturucu sobaya attılar! Operasyonda 1 gözaltı
+-  Wolverhampton deplasmanda farklı kazandı
+-  ABD'nin iç kuzey bölgeleri kar ve tipiye teslim oldu
+-  Amerikanischer TV-Komiker Tom Smothers gestorben
+-  매경이 전하는 세상의 지식 (매-세-지, 12월 28일)
+-  Kickoff | Chelsea secure back-to-back home wins
+-  Vaccine could cut RSV hospital admissions in babies by 80%, study finds
+-  Chile: Cae banda dedicada al secuestro y narcotráfico
+-  Tributes to woman, 18, who died in car crash which her twin sister survived
+-  Family pay tribute to woman who died after falling off quad bike
+-  "ŠTA GOD POŽELIM TO I OSTVARIM" Zorica Marković iskreno o svojim planovima i prazničnim željama
+-  This Canadian Whisky Brand Just Dropped a Spirit Infused With Wild Mushrooms
+-  다우지수 또 고점...S&P500 경신 코앞 [월가월부]
+-  年末年始に遊んでみる？ iOS/iPadOS版『バイオハザード ヴィレッジ』が60％オフ
+-  Feuerwerks-Lagerverkauf in Dortmund startet um Mitternacht: Live-Reportage aus Oestrich
+-  Sabiha Gökçen'deki tünel eleştirilere konu olmuştu! Üzerinden dünyaya uçuşlar yapılıyor
+-  Valakinek jó szilvesztere lesz - elvitték a Skandináv lottót!
+-  US Stocks Extend Record High Streak on Bets of 2024 Interest Rate Cuts
+-  Três gigantes de SC integram terceira prévia de índices da bolsa brasileira B3
+-  Tendrán El Vergel, Temósachic, Madera y Creel las temperaturas más bajas estado
+-  Ne slušaju se upozorenja! Na solinskom području dva dječaka ozlijeđena od petardi, policija zaplijenila hrpu pirotehnike
+-  حرب غزة تستعر.. وإسرائيل تهدد بفتح جبهة لبنان
+-  Migrantes: deportación de guatemaltecos desde EE. UU. ha incrementado en 2023 un 21.96%
+-  ¿De qué murió la admiradora de Taylor Swift que asistió a un concierto de la gira “The Eras Tour” en Brasil? Esto reveló la autopsia
+-  "C'est très dur": une famille de Hyères cambriolée le soir du réveillon de Noël, tous les cadeaux dérobés
+-  Janis Sferopulos najavio gostovanje Zvezde u Atini: Kazniće nas ako izgubimo koncentraciju (VIDEO)
+-  Com pênalti no fim, Chelsea bate o Crystal Palace, soma 3ª vitória seguida em casa e espanta 'má fase' na Premier League
+-  국제대회 통해 부쩍 성장한 김주원·김형준, 내년에 한 발 더 도약할까 [MK초점]
+-  '이선균 빈소' 찾은 연예계 동료들…상주 전혜진 위로
+-  شرطة نيويورك توقف 26 شخصا أثناء احتجاجات مؤيدة لفلسطين
+-  بنزيما يغلق حسابه بمنصة إنستغرام
+-  رونالدو يلمح للوصول إلى 250 مباراة دولية
+-  7 شهداء بقصف إسرائيلي على مخيم النصيرات
+-  بدء امتحانات تكميلية التوجيهي اليوم
+-  Ammonium gas leak : 8 గ్రామాలు ఉక్కిరిబిక్కిరి
+-  ¿Sospechas de COVID-19? Conoce dónde puedes realizarte una prueba descarte del virus
+-  Jeste li ikada vidjeli ovakvo ‘spašavanje‘? Vučna služba na sebe natovarila automobil, ali ga nisu baš dobro centrirali
+-  الكرملين: المساعدات الأوروبية لأوكرانيا لن تغير نتيجة الصراع
+-  Israelin hävittäjät eliminoivat videolla terroristit, Hamas ei ehdi suojaan
+-  Zorgane homme du match, Koffi décisif: les notes des Zèbres après la victoire contre Malines
