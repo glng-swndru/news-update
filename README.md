@@ -1,51 +1,51 @@
 # Latest News
--  Polícia prende suspeito e recupera arma furtada de vereador no Nortão
--  Police must attend scene of all burglaries within an hour under new guidelines
--  Bund und Land fördern in 2023 Radverkehrsprojekte im Freistaat mit insgesamt rund 32 Millionen Euro
--  Tommy Dreamer & Bully Ray Say Paul Heyman & Bam Bam Bigelow Should Be In WWE Hall of Fame
--  Soccer-Man City earn comeback win at Everton to go fourth
--  '초미세먼지'로 탁한 공기…수도권 비상저감조치
--  A Rapid Transition To Renewable Energy Is Possible. Uruguay Proved It
--  ఇంటి రుణం రాలేదని అడిగితే కొట్టారు
--  부산 구덕운동장 일대, 도시재생 혁신지구 후보지로 선정
--  Money expert reveals top tips for getting rid of unwanted Christmas presents and your refund rights
--  Gavin DeGraw Reacts to T-Pain's Amazing Cover of 'I Don't Want To Be'
--  Lucas Benvenuto se expresó en redes tras que Jey Mammon estrene en Carlos Paz: “No me sorprende...”
--  محسن الخليفي: المرهقون، عام كامل من النجاح العالمي
--  New Washington State Laws Coming in 2024
--  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
--  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
--  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
--  부산시, 부산도시공사와 게임융복합스페이스 조성 위탁개발사업 계약
--  [상보] 국제유가, 홍해 긴장 주시하며 하락…WTI 1.93%↓
--  కరుణ, సేవ, న్యాయం.. ప్రజాస్వామ్యానికి భూమిక
--  Crimen en Tolima: hallaron cuerpos sin vida con heridas de machete en estadio de fútbol
--  Rechtsbuiten Maatsen overtuigt niet bij basisdebuut: 'Levendig, maar ongelukkig'
--  مانشستر سيتي ينجو من فخ إيفرتون
--  부산시, 아동보호체계 구축 우수지자체 평가 '대상' 수상
--  Τελειωμένο…
--  12/28 各報重點新聞一覽
--  ‘అన్నమయ్య’ ఘటనలో ఎంతమందికి పరిహారం అందాలి
--  El marisqueo de a flote de la ría de Pontevedra acuerda pedir el cese de actividad por la falta de capturas
--  Quem é o chefão do tráfico uruguaio preso no Brasil que tem família no comando de cartel
--  ప్రజా ప్రతినిధులపై 78 కేసులు పెండింగ్‌
--  SSEN set to deploy welfare vans in the wake of Storm Gerrit
--  [이시각헤드라인] 12월 28일 라이브투데이1부
--  నేడు రాష్ట్రానికి అమిత్‌షా
--  ¿Cómo, cuándo y dónde ver la Tazoniza y juego de campeonato del futbol americano colegial?
--  Dodik emëron Vulinin senator të Republikës Sërpska
--  Biden's immigration problems grow with caravan headlines
--  Os motivos pelos quais as suas plantas ficam com as folhas amarelas
--  Dva rođaka ubijena u Tetovu: Napadač i još jedna osoba ranjeni
--  دراسة تحذر: السهر يضاعف خطر الإصابة بهذا المرض
--  سيتي يتغلب على إيفرتون ويقترب من ليفربول
--  Stanley Park Bright Nights train cancelled Wednesday due to power outage
--  మేత భూముల్లో మైనింగా?
--  [스포츠영상] 호날두 '2골 추가요'…올해 전세계 득점 1위
--  Lopez Obrador and Blinken meet in Mexico to discuss migration
--  健康網》天冷血壓就飆高 營養師：吃對4種食物助穩定
--  Teška situacija: U Gazi radi još samo nekoliko bolnica i to djelomično
--  Missing Veteran's Remains Likely Found After Popular YouTuber Steps In to Help Investigators
--  Healthcare Heroes: 3 Stocks Innovating in Medicine and Wellness
--  Véronique (L'amour est dans le pré) a-t-elle retrouvé l'amour ? Une photo sème le doute
--  Los dolorosos últimos seis días de La Cacica, la mujer que puso a sonar el vallenato en el mundo
+-  La Bolsa de Buenos Aires cierra con una bajada del 2,43 %
+-  El proyecto de emergencia pública de Milei plantea un "terremoto legal" en Argentina
+-  APi Group amortiza 175 millones de dólares de deuda y se propone reducir su apalancamiento
+-  Incluye Mexicana de Aviación a Juárez como uno de sus destinos
+-  Evita multas y tramita el Buzón Tributario en el SAT
+-  Presume AMLO trenes y aerolínea a Blinken
+-  Aumentan ciberataques 22% en sector salud
+-  Does Denise Richards make more money on OnlyFans than daughter Sami Sheen?
+-  مروان حامد: لن أنسى دعم الزعيم في عمارة يعقوبيان
+-  First-ever December flood warning issued for Fargo, but impacts will be minor
+-  Marvel opens 2nd 'What If...?' season with episode in almost entirely Mohawk language
+-  A Nebraska mosque, synagogue and church support one another through Gaza conflict
+-  Casinos online que aceptan PayPal
+-  Danny Masterson sent to state prison to serve sentence for rape convictions, mug shot released
+-  Basket: Gordon 21 punti, ma sono suture per morsi di un cane
+-  Revisión de los mejores casinos en línea
+-  Basket: Gordon 21 punti, ma sono suture per morsi di un cane
+-  Arnold Schwarzenegger and his family wear matching flannels and sunglasses in fun holiday snap... after his son Patrick's engagement
+-  STIGLI PRVI REZULTATI POPISA U CRNOJ GORI Do sada obrađene brojke jasno pokazuju JEDAN TREND
+-  В Смоленске на Краснинском шоссе насмерть сбили пешехода
+-  Fatih Terim: Δείτε την καλλονή κόρη του νέου προπονητή του Παναθηναϊκού
+-  “Hermosa pancita”: Daniela Castillo se luce en sesión de fotos mostrando sus 33 semanas de embarazo
+-  Ariana Grande anunció que lanzará su séptimo álbum de estudio en 2024
+-  برناردو سيلفا يعادل رقم رونالدو المميز في البريميرليج
+-  – رئيس جهاز الأمن القومي يهنيء الشعب الليبي بمناسبة الذكرى الـ 72 لاستقلال ليبيا.
+-  Danny Masterson sent to state prison to serve sentence for rape convictions, mug shot released
+-  포스코 포항제철소서 화재···용광로 한때 중단
+-  VLASNIK HOTELA KRVNIČKI BATINAO RECEPCIONARKU: Najpre negirao, pa priznao da je tukao devojku, uskoro PRESUDA!
+-  Forex Trading y la Innovación Tecnológica: El Impacto de Tesla en los Mercados
+-  Mujer revela que tiene una “relación erótica” con un árbol: asegura ser “ecosexual”
+-  Navio humanitário resgata 244 pessoas no Mediterrâneo e segue para Itália
+-  Darts-WM 2024: 16-jähriges Wunderkind Littler glänzt - Smith müht sich
+-  모두투어 대리점 예약관리 부실로 해외여행 출발 앞두고 '취소'
+-  PEKERTI bantu persiapan sekolah anak-anak yatim PPDB
+-  Travis Kelce's designer reveals he was still sewing Chiefs star's Christmas gifts the night before he wanted them... and says his wife told him to throw something in for Taylor Swift!
+-  San Diego parents who vanished days before Christmas are found dead in car in murder-suicide: Chilling Ring camera footage shows them leaving home before husband shot his estranged wife and then turned the gun on himself
+-  미국 소아과 의사 사칭해 12억 뜯어낸 50대 남성 '실형'
+-  Pertumbuhan ekonomi negara menurun separuh pertama 2023
+-  Hidroituango y aporte a movilidad eléctrica, entre logros de EPM entre 2020 y 2023
+-  Unicameral: pedido de informes sobre el uso del avión sanitario de la Provincia de Córdoba
+-  Oro, mirra e incienso... ¿Por qué regalaron esto los Reyes Magos?
+-  Não é só o Inter. Arábia Saudita também quer 'roubar' Taremi ao FC Porto
+-  Masiva marcha de la CGT a tribunales en rechazo al DNU del presidente Milei
+-  요기요, '배달앱 2위' 입지 흔들린다?···쿠팡이츠의 매서운 추격
+-  «Es un regalo empezar el año cantando junto a las dunas»
+-  SEL ditutup sementara bagi kerja pengubahsuaian
+-  Canadians weigh in on their 2023 and vote on the top word to describe it
+-  Fijan fecha de juicio por tentativa de homicidio de representante de Tolé
+-  Ubican droga en Pueblo Nuevo
+-  Santos oficializa Jorge como reforço e se acerta também com Otero
