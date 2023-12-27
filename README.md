@@ -1,51 +1,51 @@
 # Latest News
--  December 2023 Golden Apple: Hoa Bury
--  Odustaju?; Putina je nemoguće pobediti
--  Força Tática apreende arma, munições e drogas em residência de Nova Mutum
--  맹승지, 수영복 넘칠 듯한 볼륨감 '완벽 베이글 몸매'
--  На Украине отреагировали на призыв из Германии смириться с потерями
--  Испытывающим постоянное раздражение россиянам дали совет
--  حركة الفصائل الفلسطينية : منفتحون على مبادرات تبادل الأسرى مقابل وقف شامل لإطلاق النار
--  Ciberseguridad en 2024: más sofisticada y dominada por la inteligencia artificial
--  Роман Шогджиев из Калмыкии второй день подряд выигрывает на чемпионате мира в Самарканде
--  В Великобритании предупредили об опасности чат-ботов
--  Akragas, colpo in attacco: Gian Marco Distefano è un nuovo calciatore biancazzurro
--  Powerball jackpot swells to $685 million for tonight's drawing
--  На Мценском полигоне в Орловской области сократят объема мусора в 5 раз
--  David Leland Dies: ‘Wish You Were Here’ Director & ‘The Borgias’ Co-Showrunner Was 82
--  Barcelona ‘set to step up Mason Greenwood transfer interest’ – as fans threaten to withdraw support if Man Utd ace joins
--  Barranquilla: familia de pastora hallada muerta dice que se trataría de un homicidio
--  KANDIDOVALA SE PROTIV PUTINA NA IZBORIMA, A ONDA SUD DONEO ODLUKU! Rekli joj da ne može - zbog ovoga jednoglasno odbili
--  Man sentenced to 23 year prison term under POCSO
--  Russian Pro-peace Candidate, Barred From Vote, Will Create Own Party
--  Городские службы Краснодара продолжат трудиться в режиме повышенной готовности все новогодние каникулы
--  ¿Starbucks de Red Velvet? Así lo debes pedir
--  Раскрыты самые дорогие страховые случаи с россиянами за рубежом
--  В Хорватии сообщили об изменении позиции Байдена по Украине
--  Više od 50 događaja u Beogradu tokom praznika
--  NIA court convicts two AQIS members
--  Transfer: Nigerian forward joins Bundesliga club, Eintracht Frankfurt
--  No. 14 Arizona to face No. 12 Oklahoma in Alamo Bowl two years after a one-win campaign
--  30 شهيدا جراء قصف مستمر على خان يونس
--  إغلاق برج إيفل بسبب إضراب العاملين
--  جيش الاحتلال يسقط 3 مسيرات تسللت لمزارع شبعا
--  Wout van Aert zegeviert in Heusden-Zolder na late versnelling
--  السهر يضاعف خطر تصلب الشرايين
--  Esto dijo Guillermo Améstica, cómplice en el asesinato de Canserbero y Carlos Molnar
--  Llaman a prevenir uso de pirotecnia
--  California homebuying crashed in 2023. What’s next?
--  Anna Benson: ”Jag har jobbat med att hitta min inre Zlatan”
--  Euro breaks through 1.11 as the US dollar continues to slide. What's next
--  Bjartur lífsstíll fær 30 milljónir
--  Huthit sanovat tukevansa palestiinalaisia, mutta Punaisenmeren iskujen taustalla on sisäpoliittinen ja opportunistinen motiivi, tutkija sanoo
--  Pokemon Scarlet & Violet players warn against “mistake” to avoid in DLC challenge
--  Encuentran hombre atado con alambre de púas en la Interamericana
--  Satiksmes ministrs: vilciens no Rīgas uz Viļņu varētu braukt arī no rīta
--  Cacau Protásio deve receber R$ 80 mil de indenização após áudios racistas de bombeiros do RJ
--  Balıkesirli genç hakem Oğuzhan Çakır Süper Lig yolunda
--  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 28 декабря 2023 года
--  New York Times sues Microsoft, OpenAI for ‘copying, using its content’ without permission
--  'New York Times' verklagt OpenAI und Microsoft
--  Apple appeals trade commission ban of Apple Watch 9, Apple Watch Ultra 2
--  Sánchez dará a conocer el nombre del sustituto de Calviño en el Gobierno este viernes
--  Poljska: Rat starih i novih vlasti za kontrolu medija
+-  Ruotsin tähtipuolustajalle pelikielto MM-kisoissa
+-  El Gobierno autoriza licitar el servicio aéreo de salvamento marítimo por 305 millones
+-  Iron Horse Acquisitions Corp lanza su OPV en el NASDAQ
+-  Wall Street abre en verde y el Dow Jones sube un 0,02 %
+-  Las acciones de Cytokinetics se disparan tras exitoso estudio de un fármaco cardíaco
+-  The New York Times demanda a Microsoft y a OpenAI por usar sus textos sin permiso
+-  El presidente turco dice que Netanyahu no es diferente de Hitler
+-  Toyota logra un récord de ventas en noviembre
+-  Policía dice que admiradora de Taylor Swift murió de agotamiento por calor en concierto en Brasil
+-  ¿Cuáles son los riesgos para la estabilidad financiera de cara al 2024?
+-  Foment considera "inasumible" convertir impuestos extraordinarios en permanentes
+-  El Banco de Japón mantendrá su política de relajación monetaria en medio de la preocupación por la inflación - Kazuo Ueda
+-  Evermos Wins Nikkei Asia Award 2023 for Its Dedication to Empowering Women's Economic Independence
+-  Lublin dba o czworonożnych mieszkańców. Wkrótce kolejny wybieg
+-  Burkina / Agroalimentaire : Lefaso.net va à la découverte de l'entreprise agro deogracias
+-  Небензя: даже проевропейские украинцы считают ассоциацию с ЕС невыгодной
+-  Michigan court rejects appeal to disqualify Trump from 2024 ballot
+-  Burkina / Agriculture : Le PAPFA atteint un taux de réalisation de plus de 90%
+-  Burkina / LONAB : Piaboué Bado remporte plus de 98 millions de francs CFA au 4+1 du 8 décembre 2023
+-  Budge source ensured for Budhigandaki Project, says PM Dahal,
+-  Burkina / Projet filets sociaux : 122 578 ménages bénéficiaires touchés pour un montant de plus de 21 milliards de FCFA
+-  Polska na europejskim podium w sektorze kreatywnym
+-  Gerbrands sloeg na PSV-vertrek nieuwe baan in Eredivisie-top af
+-  Genomtec ma zastrzyk kapitału na onkologię
+-  Burkina / Clôture du PCRK : « Si nous enregistrons moins de délestages et de coupures intempestives, c'est grâce à ce projet », Grégoire Tapsoba
+-  Ahmed Abou Hashima Founder of MAFI for Agricultural Produce Industries Unveils Massive $300 Million Agri-Food Industrial Complex, Setting New Standards in the Middle East, with the Egyptian Prime Minister in Attendance
+-  Başkan Erdoğan, Mehmet Akif Ersoy'u ölüm yıl dönümünde andı
+-  Beşiktaş'ın gündemindeydi! Andre Breitenreiter'den açıklama geldi
+-  Isaac: Bu soykırım bitmeden hayat normale dönemez
+-  Borsa İstanbul günü düşüşle kapadı
+-  TEM Otoyolu Ankara yönü ulaşıma kapatıldı
+-  Denizli'de elektrikli battaniyeden çıkan yangın can aldı: 1 yaşındaki bebek öldü
+-  Galatasaray'a Süper Kupa öncesi kötü haber! İşte Davinson Sanchez'in son durumu...
+-  Afyonkarahisar'da sahte içki operasyonu
+-  Нетаняху: Турският президент Ердоган не може да ни учи на морал
+-  В Кемеровской области рассказали о работе больниц в новогодние праздники
+-  Enhancing coastal cities' flood resilience through smart city technologies
+-  Дед фехтовальщика Биды объяснил отъезд внука в США предложением о работе
+-  تعميمٌ ملتبس... ماذا سيحصل للدولار بعد رأس السنة؟
+-  برشلونة يشوق جماهيره قبل الإعلان عن صفقة شتوية
+-  Top 5 Pharmacy Times Pneumococcal Articles of 2023
+-  Майже в 4 рази дорожча, ніж торік: яка нині ціна на картоплю
+-  Τηλεφωνική επικοινωνία Φιντάν-Μπλίνκεν – Συζήτησαν και για Κύπρο
+-  Data breaches aren’t setting records anymore, but there are more victims than ever
+-  Αδελφοκτονία στη Νέα Σμύρνη: «Το παιδί μου δεν είναι εγκληματίας, ήταν ατύχημα»
+-  Singapore's species extinction rate found to be 37% over the past 200 years
+-  Gemeinsame Aktion von Landwirten und Lkw-Fahrern
+-  Инцидент во Скопје: Откако снимиле емисија за на портал, биле нападнати од насилник
+-  Equity Down Under: How Australian startups can crack the US market
+-  UGT ratifica el acuerdo con Telefónica para el ERE con 3.421 salidas
