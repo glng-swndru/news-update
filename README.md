@@ -1,11 +1,51 @@
 # Latest News
--  国内手机市场最新销售数据公布 苹果和华为两巨头展开激烈争锋
--  Atina'ya iniş yapan Fatih Terim'den ilk mesaj Yunanca oldu! ''Yıllardır şampiyon olamıyorlar, nereye gidersem gideyim, kazanmak için giderim!''
--  Polizei sucht nach 75-Jähriger
--  Barcode solution role in pharma serialisation: Ensuring medication safety
--  Jetzt bei 1&1: Das Samsung Galaxy S23 FE inklusive 1&1 All-Net-Flat ab 9,99 Euro pro Monat
--  兩內地男香港仔山邊試通訊設備 行山客見疑即報 警拉人檢丫叉彈珠
--  Šef splitskog SDP-a prozvao Dalibora Ninčevića (HDZ) da je supruzi poklonio ‘fotelju‘: ‘Nismo u službenoj vezi...‘
--  Multiple Agencies Respond to Domestic Dispute in Dilworth
--  Bangladesh claim historic victory over New Zealand in first T20I
--  Europska unija zadovoljna Vučićevim potezom: ‘Pa ovime su de facto priznali Kosovo‘
+-  El índice de la Bolsa de Madrid se mantendrá con 111 valores en el primer semestre de 2024
+-  Oro se acerca a máximos de tres semanas por apuestas de recorte de tasas en EEUU
+-  Rusia advierte a Japón sobre suministrar sistemas de defensa antiaérea Patriot a Ucrania
+-  Happy ending 2023: Reasons why we love New Year’s Eve
+-  Kazakhstan has highest measles incidence rate in Europe, Central Asia - UNICEF
+-  Vodík nie je priorita, budeme sa venovať jadru, vyhlásila Denisa Saková
+-  क्रिसमस की छुट्टियों के बाद न्यूजीलैंड की टीम के साथ हुई ‘अनहोनी’, ऐसा दिन देखना पड़ेगा सोचा नहीं था!
+-  Прекината седницара на Советот на Град Скопје поради неприсуство на Арсовска
+-  Cataluña fía a 10 gestores la "transformación" del modelo de Primaria
+-  Sursaut de mobilisation en faveur de Kaloum : au regard des dégâts, le gouvernement sollicite un nouvel élan de solidarité
+-  Darts-WM: So seht ihr die Spiele von Hempel und Pietreczko im TV und Livestream
+-  'SON 파트너로 원하지만' 토트넘, 857억에 달하는 바이아웃이 문제
+-  Serrat: ara que tinc 80 anys
+-  Sikkerhedsstyrelsen står bag falsk fyrværkeriforsikring
+-  Nasty weather possible on New Year's Eve, with strong wind and frequent rain
+-  Dve zemlje kupuju skoro 90 odsto ruske nafte
+-  Prezydent dał rozkaz wojsku. I jest nowa linia lotnicza
+-  Las revelaciones de la directora de productos de CoinEx en una entrevista
+-  Τα mega deals στον κλάδο των σούπερ μάρκετ – Έρχονται νέες επενδύσεις το 2024
+-  Puerto Banus Fire is possible arson
+-  El Gobierno avanzará en una auditoría sobre los planes Potenciar Trabajo
+-  „Klar habe ich Angst“ – Menschenrechtler Orlow drohen in Russland mehrere Jahre Straflager
+-  Former Indian Cricket Star's Epic Comeback To Fans Trolling Him For Comment On KL Rahul Goes Viral
+-  Έχασε τη μάχη για τη ζωή ο 31χρονος αστυνομικός που χτυπήθηκε από φωτοβολίδα στα επεισόδια του Ρέντη – Τις τελευταίες ημέρες ήταν εγκεφαλικά νεκρός
+-  GTA 5: Quellcode-Leak liefert Hinweise auf unveröffentlichte DLCs
+-  Премьера спектакля Раймонда Паулса: «Главное — выдержка, остальное переживем»
+-  وفاة أطول السياسيين الألمان بقاء في الخدمة.. نجا من الاغتيال وساهم بتوحيد بلاده
+-  «Parasite»-Schauspieler Lee Sun Kyun gestorben
+-  Fomento sacará la concesión a 30 años del puerto Tomás Maestre en los próximos meses
+-  Le designazioni arbitrali: c’è La Penna per Fiorentina-Torino
+-  Ermənistan Müdafiə Nazirliyində döyüş hazırlığı müzakirə olundu
+-  Copilot ahora está disponible como una app similar a ChatGPT en Android
+-  A new method to search for deviations from the Standard Model of physics
+-  Drinking Warm Water Benefits: गर्म पानी पीना सैंकड़ों समस्याओं का एक समाधान, ये हैं चमत्कारिक फायदे
+-  Haute-Savoie: la traque d'un jeune de 17 ans se poursuit trois jours après son évasion
+-  شرکت برشنا: قرارداد خریداری برق با تاجیکستان امضا شد
+-  WH Smith drops 'Smith' from its signs in 'baffling' trial rebrand that critics say 'just screams NHS'
+-  Fatih Altaylı'dan gayrimenkul piyasası yorumu: İşler karışacak, iyi niyetliler kazıklanacak!
+-  Retailers at migrant-filled Roosevelt Hotel dwindle, demand lower rent as sales plunge
+-  Is the Great London Exodus over? Numbers leaving the capital for a new life in the country falls to lowest level for nine years as WFH comes to an end
+-  Walka o media publiczne trwa. Nowe ruchy Rady Mediów Narodowych
+-  Bizarna situacija na letu za Beč: Avion morao prinudno da sleti
+-  الجيش الإسرائيلي: إصابة 44 عسكريا في معارك قطاع غزة في الساعات الأربع والعشرين الأخيرة
+-  A mund të jetë Avni Dehari kandidat i opozitës për president?
+-  Centre will put check trend of renaming Central schemes after Jagan in Andhra Pradesh, says Purandeswari
+-  'Den største kamp for os' - Med Hvidovre på Brøndby Stadion
+-  الإتحاد التونسي للفلاحة والصيد البحري:”عودة النسق العادي لإنتاج الحليب سيكون نهاية شهر جانفي القادم”.
+-  Der Klima-Jahresrückblick 2023: Das Jahr der Extreme
+-  Fastighetsmiljardären Per Arwidsson minskar i Ferronordic
+-  1939 Erzincan Depremi ve sonrası
