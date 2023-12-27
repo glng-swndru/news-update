@@ -1,11 +1,11 @@
 # Latest News
--  ธอส.ออก 7 มาตรการช่วยผู้ประสบภัยน้ำท่วมภาคใต้
--  พร้อม! ร่างงบปี’67 วงเงิน 3.48 ล้านล้านบาท เข้าสภาฯ 3-5 ม.ค.67
--  Pide Sheinbaum crear comités de propaganda en su favor
--  Tumba poste de madera con su Corvette
--  [27일 화성시] '공공문장 바로 쓰기 자치단체상' 대상 수상 등
--  [벤처돋보기] 초기 투자 전문 VC 베이스인베, 올해 31개 스타트업 투자
--  Wegen Hygiene - Pfandpflicht gilt künftig auch für Milchflaschen
--  Burze i gradobicia w święta Bożego Narodzenia w Australii. Osiem osób nie żyje
--  राजस्थान में आज हो सकता है मंत्रिमंडल विस्तार,18 विधायक ले सकते हैं शपथ
--  "저작권 수출 규모 250억 달러"…문체부, 저작권 4대 전략 발표
+-  Bu meyvelerin kabukları harikalar yaratıyor
+-  Lee Sun Kyun, one of the main actors behind Oscar-winning 'Parasite,' dies at 48
+-  Charlie Sheen's BUDDHIST neighbor Electra Shrock, 47, pleads not guilty to strangling actor at his Malibu apartment: Two and a Half Men star, 58, is 'quite fearful' after tussle ruptured stitches on his body
+-  UN appoints ex-Dutch Dy PM, Mideast expert as Gaza humanitarian coordinator
+-  S Jaishankar, Lavrov to discuss bilateral cooperation, global affairs in Moscow
+-  רצף ההפסדים הארוך אי פעם: דטרויט ניפצה שיא שלילי היסטורי
+-  Gaza-Krieg könnte noch Monate dauern
+-  직접판매공제조합, 다단계판매 교육·체험 통한 소비자 인식 개선 나서
+-  Grávida pode comer comida japonesa? Especialista esclarece
+-  Que tal aprender essa receita de 3 ingredientes? Mousse de Maracujá com uma cobertura sensacional
