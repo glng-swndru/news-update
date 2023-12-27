@@ -1,51 +1,11 @@
 # Latest News
--  Organismo de Focalización e Información Social del Midis fortalecerá los esfuerzos para combatir la pobreza
--  महादेव ऐप घोटाला: मुख्य आरोपी सौरभ चंद्राकर को दुबई में हिरासत में लिया गया, भारत लाने की है तैयारी
--  ¡Fortalecen el bullpen! Wirfin Obispo reforzará a Cañeros de Los Mochis
--  Los hutíes perpetran otro ataque en el mar Rojo
--  İkinci çocuk annesi Atiye, 3 aylık kızının yüzünü ilk kez gösterdi! Beğeni yağdı
--  Çin Devlet Başkanı Şi: Tayvan ile birleşme sağlanacak
--  Will find attackers from depths of seas: Rajnath
--  India-Russia ties remain strong due to geopolitics: Jaishankar
--  Gutes Wintersportwetter – so werden die letzten Tage des Jahres 2023
--  Откриха мъртъв актьорът от "Паразит" Ли Сун-кюн ВИДЕО
--  Despiden a Armando Guadiana en Saltillo
--  Galería: Autoridades municipales comparten con familias vulnerables
--  Will EV Charging Help or Hurt Convenience Stores?
--  Prof Ade Arsianti, Guru Besar Kimia Kedokteran FKUI Berhasil Kembangkan Obat Baru untuk Kanker Payudara
--  В Ярославле только за неделю поступило более тысячи жалоб на некачественную уборку
--  Angela Simmons receives $400K trio of Hermès Birkin bags for Christmas from boyfriend Yo Gotti: 'Blessed beyond measures!'
--  Костромской губернатор исполнил мечту 13-летнего школьника «порулить» поездом
--  यूक्रेन के खिलाफ रूस के लिए जंग लड़ रहे नेपाली, अब इतनों का नहीं है पता
--  Ibovespa supera os 133 mil pontos pela primeira vez
--  Tennis : Vers un coup à la Federer pour Nadal ? Il se lâche
--  '마약 투약 혐의' 이선균, 차량서 숨진 채 발견…“메모 형식 유서도” [종합]
--  Nuevas ambulancias para urgencias médicas beneficiarán a todas las provincias cubanas
--  Cryptocurrency miner Phoenix Group acquires 25% in Dubai-based Lyvely
--  राजस्थान में आज होगा मंत्रिमंडल का गठन, यह 20 मंत्री लेंगे शपथ
--  सुपरमैन नहीं यह तो मोहम्मद रिजवान थे… एक हाथ से लपका अद्भुत कैच, देखते रह जाएंगे VIDEO
--  पुंछ के घने जंगल में आतंकियों की तलाश में सर्च ऑपरेशन जारी, पहुंच रहे रक्षा मंत्री
--  हमास के साथ अभी कई महीनों तक चलेगा युद्ध… इजरायल ने दी बड़ी चेतावनी, नहीं खत्म होने वाली जंग?
--  'Parasite' actor Lee found dead amid drug allegations...
--  शाह ने बंगाल में BJP के लिए रखा 35 लोकसभा सीटों का टारगेट, जानें क्या बनाया प्लान
--  [포토] 배우 이선균 숨진 채 발견
--  BMW 뉴 i5, 2023 자동차 안전도 평가 최우수 차량 선정
--  มิตรภาพ-บขส.โคราชคึกคักคนเริ่มทยอยกลับบ้าน
--  कभी बताया था 'बिट्स एंड पीसेस प्‍लेयर', अब मांजरेकर ने की जडेजा की प्रशंसा
--  На заводе в Техасе робот напал на сотрудника из-за сбоя
--  新北遭割喉國三生不治 校長心痛：全力助家長辦後事
--  VIDEO: Jenazah Lukas Enembe akan Diberangkatkan ke Papua untuk Dimakamkan
--  El distribuidor de componentes electrónicos Utmel invitado a participar en 2024 NEPCON JAPAN
--  “Pasó de todo”. Gracias a una nota en LA NACION, aprendió a leer, tiene su propia habitación y una bicicleta para ir a la escuela
--  Starlink llega a Argentina: ¿reventará Elon Musk el mercado local de internet?
--  더불어민주당 4·5차 인재환영식
--  더불어민주당 5호 인재에 강청희 전 대한의사협회 상근부회장 영입
--  더불어민주당 4호 인재에 박선원 전 국가정보원 제1차장 영입
--  Hindari Politik Uang, Ganjar Pilih 'Jualan' Program untuk Majukan UMKM se-Indonesia
--  民主之盾》ECFA十年之後：貿易並未帶來和平，台灣為何仍相信中國？
--  UAE’s Response Plus appoints acting chair as Shamsheer Vayalil resigns
--  ΛΔ Κονγκό: Τουλάχιστον 22 νεκροί από τις καταρρακτώδεις βροχές
--  민주당 4·5호 인재영입식, 인사말하는 이재명 대표
--  Chrome di Desktop Makin Aman dan Hemat Memori, Ini Fitur Barunya
--  ‘สุวัจน์’ มองแง่ดี ‘รัฐมนตรี’ ได้ฉายาแสดงว่ามีตัวตน!
--  Вологжанин занял третье место на чемпионате России по покеру
+-  ‘F4‘ 회의서 태영건설 워크아웃설 논의…차입금 만기일이 ‘1차 고비‘
+-  Devara Teaser Update Soon: త్వ‌ర‌లోనే టైగ‌ర్ గ‌ర్జించ‌బోతుంది! దేవ‌ర్ టీజ‌ర్ పై అనిరుద్ ఆస‌క్తిక‌ర ట్వీట్, ఒక్క పోస్టుతో హైప్ మామూలుగా పెంచ‌లేదుగా!
+-  Rajan Salavi ACB Investigation : राजन साळवींचा भाऊ, पुतण्या, वहिनींना नोटीस, ACB कडून होणार चौकशी
+-  Minister of Foreign Affairs Resigns Amidst Business Transaction Controversy
+-  Nadal, Osaka in Australia comebacks as Djokovic targets more glory
+-  Naga Panchami Serial Promo Today December 28th - 'నాగ పంచమి' సీరియల్: పంచమి చెంప చెల్లుమనిపించిన మోక్ష, ఇద్దరి మధ్య దూరం పెరిగిందా?
+-  Parasite actor Lee Sun-kyun found dead amid drug allegations
+-  Parasite actor Lee Sun-kyun found dead amid drug allegations
+-  Parasite actor Lee Sun-kyun found dead amid drug allegations
+-  Медведев поздравил Ким Чен Ына с наступающим Новым годом
