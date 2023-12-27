@@ -1,51 +1,51 @@
 # Latest News
+-  Mantiene Michigan a Trump en la boleta de 2024
+-  Inaugura Karina Olivas ludoteca a UAVI Norte
+-  Está bajo ‘sitio’ el Cereso 3
+-  Zack Snyder's Sci-Fi Epic Rebel Moon Scores Big for Netflix
+-  Benzema retrouve Cristiano Ronaldo, leur discussion révélée
+-  Estrazione VinciCasa: i numeri vincenti estratti oggi 27 dicembre 2023
+-  Quién fue Canserbero y cómo murió
+-  Volcán Santiaguito: reportan caída de ceniza en sectores de Quetzaltenango
+-  Gökhan Zan İYİ Parti’den istifa etti
+-  מחזור 13 ביורוקאפ: הפועל תל אביב - המבורג 0:0 (רבע 1)
+-  Innauer: "Wir sind vorübergehend verzwergt als Österreicher"
+-  The Fed may be done hiking interest rates, but get ready for more corporate defaults in 2024, Fitch Ratings says
+-  İsrail: Lübnan'dan İsrail'e 3 İHA ve en az 10 roketle saldırı düzenlendi
+-  Ezek a legények tudják, hogyan kell kesztyűbe dudálni, Amerikát is megtáncoltatnák
+-  Netanyahu'dan Erdoğan'a Hitler yanıtı
+-  توجيه من حساب المواطن لمن انقطع عنه الراتب التقاعدي لوالده
+-  كارثة جديدة في السودان.. وباء يهدد حياة الملايين من السكان
+-  3 شروط أساسية لاستمرار الضمان المصنعي للمنتجات
+-  Utah judge upholds death penalty after death row inmates file suit
+-  Wahl in Russland: Gericht bestätigt Ausschluss von Putins Gegenkandidatin Dunzowa
+-  'Toen ik 2,5 jaar was kickbokste ik al, natuurlijk werd ik gepusht'
+-  Los incendios más grandes del 2023
+-  La figlia di Antonio Ricci: “Certo che sono raccomandata. I fuorionda di Giambruno? Li ho trovati stupendi”
+-  Electric vehicle registration fees to increase in the new year
+-  Political Rises and Falls and Headline Makers in 2023: Year in Review
+-  Hinduja Renewables wins bid to set up 140 MW solar energy plant
+-  Braeden Carrington rejoins Gophers basketball team after mental health leave
+-  Man Charged With DUI After Crashing Into MPD on I-240, Police Say
+-  ZEEKR launches 007 sedan for under $30k, 540 mile range, and over 50,000 pre-orders in place
+-  Yeni asgari ücretle cebinizde ne kadar artacak?
+-  Jorrel Hato hoorde op persco dat hij aanvoerdersband kreeg: ‘Jammer genoeg hoorde ik het niet van de trainer zelf’
+-  La borrasca Gerrit trae una alerta amarilla por viento y lluvias
+-  Data, AI platform 3AI plans to expand reach in UAE
+-  Wieder „Fiasko“ für russische Truppen? Ukraine schildert massive Verluste
+-  Asgari ücret belli oldu, Özgür Demirtaş kötü haberi tarihiyle verdi!
+-  El socialista francés Jacques Delors muere a los 98 años en París
+-  Comedian Tom Smothers, One-Half Of The Smothers Brothers, Dies At 86
+-  Suzlon bags new order to develop 100.8 MW wind power unit
+-  Public Advisory
+-  Prosecutors are worried jurors might know Donald Trump is guilty, but acquit him anyway. Here's how they could do it.
+-  Tužilac Milovanović: Dva lica tužilaštva u izbornom danu i kod protesta ispred Skupštine Beograda
+-  النائب حسن فضل الله لـ "الميادين": المقاومة تحدد الرد وتتعاطى مع التصعيد الاسرائيلي بما يتلاءم وتدرس الأمر بعناية
+-  Le smartophone Samsung Galaxy S21 Ultra est disponible à prix dingue chez Cdiscount
+-  В январе-ноябре Toyota увеличила производство автомобилей на 11%
+-  Нургюл с първа загуба на световното в Узбекистан
+-  First Case Of COVID -19 JN.1 Variant Detected In Delhi, Health Minister Says No Need To Panic
+-  Polícia investiga morte de menino de 10 anos após se recusar a devolver celular ao primo no interior do Pará
+-  Türkischer Ex-Club-Chef wohl auf Kaution aus Haft entlassen
+-  Mon Laferte en Costa Rica: quedan pocas entradas para su concierto
 -  NSCDC licences 93 private guard companies in 2023
--  В ВСУ показали фото оккупантов, которые недавно сдались в плен на Запорожском направлении
--  Германия — С 28 декабря Aldi меняет часы работы
--  Za finansiranje RTCG-a izdvajaće 1,34 odsto tekućeg budžeta
--  نائب رئيس هيئة الأركان العامة اللواء البصر يرأس اجتماعاً للجنة التحضيرية للمؤتمر السنوي لقادة القوات المسلحة
--  В Курской области продлен «желтый уровень» погодной опасности
--  افتتاح أول مطعم كوبي نباتي في ميامي
--  С мойки в Москве-Сити угнали «Ламборджини» ценой более 20 млн
--  Calliditas refinances existing term loan with Euro 92 million senior secured facility with Athyrium Capital
--  Hollanda'da çocuklardan Filistin'e destek yürüyüşü
--  TBMM çalışmalarına ara verdi
--  İletişim Başkanı Altun'dan 'Gazze kasabı'na tepki: Konuşacak son kişi Netanyahu'dur
--  Aktien Europa Schluss: Börsen nehmen etwas Fahrt auf
--  Erbaş, Kudüs Üniversitesi Rektörü Kishek'i kabul etti
--  רביבו ודוידזאדה בהרכב מכבי תל אביב, דהן ופריידיי בבית"ר ירושלים
--  מהביקור בחדר ההלבשה ועד השידור: צפו בערב המרגש של אוהד מונדר
--  המשטרה מבקשת לחקור את הרב שהסית נגד רופאים ערבים: "רוצחים בבי"ח יותר מהחמאס"
--  اختتام مجلس عزاء فقيد الوطن والقوات المسلحة العميد شمس الدين البكيلي
--  Rodney Harrison, Vince Wilfork among list of Pro Football Hall of Fame semifinalists
--  ఎమ్మెల్యే బుర్రా గడపగడప కార్యక్రమానికి నేతల డుమ్మా
--  Governador de MT anuncia pagamento do bolsa atleta para 482 esportistas
--  Asgari ücret zammıyla değişen ücretler belli oldu! İşsizlik maaşı, staj ücreti, GSS primi, 65 yaş aylığı, kıdem tazminatı...
--  Devisen: Euro fällt zum Franken auf Rekordtief - Auch USD/CHF auf Mehrjahrestief
--  Snigdha Malviya wins KIIT NanhiPari 2023 title, Odisha’s Chirashree Sagarika is first runners up
--  Comedian Tom Smothers, one-half of the Smothers Brothers, dies at 86
--  Frosinone, i tifosi lanciano un segnale alla Lazio: il dato aggiornato dei biglietti
--  Giants to start Taylor over DeVito: 'He earned' it
--  Commanders bench slumping Howell for Brissett
--  Kelce, in cuss fest, says KC woes 'not just 1 guy'
--  Sources: Broncos bench Wilson, to start Stidham
--  Luisa María Alcalde asegura que fueron manipuladas las cifras de búsqueda de desaparecidos
--  Minister kultury ogłosił postawienie w stan likwidacji TVP, Polskiego Radia i PAP
--  স্বতন্ত্র প্রার্থী শাহজাহানের মিছিল থেকে টাকা বিলি, ভিডিও ভাইরাল
--  DGT: Quick, Easy And User-Friendly
--  Ser hipocondríaco podría ayudarle a llegar a una tumba temprana, sugiere un estudio
--  Mestareiden mestari: Nuorella vauhtihirmulla Urho Kutilalla on voittajan otteet radalla
--  La truffa dell'auto: acquista vettura con un assegno già riscosso e documenti falsi
--  Chega acusa Governo de "desleixo" na saúde e pede solução até março
--  ŠTA SVE IMA U BEOGRADU NA OTVORENOM ZA DOČEK NOVE Koncerti na dve lokacije, vatromet na jednoj, rok legende veče pre, a za klince je najvažniji 1. januar
--  العواصف الرعدية تقتل 8 بشرق أستراليا
--  Futbolista histórico de Cruz Azul estaría 'NEGOCIANDO' FICHAJE de Alexis Vega
--  Kumaram Bheem Asifabad: ఆరు గ్యారెంటీలను అర్హుందరికీ అందించాలి: మంత్రి సీతక్క
--  Las Vegas sets up pop-up airport license bureau for New Year's wedding rush
--  هل أصبح البحر الأحمر ساحة حرب مفتوحة؟
--  Ситуация с пенсиями в Беларуси ухудшилась
--  В новогоднюю ночь в Москве может резко похолодать
--  ప్రజాపాలనకు శ్రీకారం!
--  Handy: Wer das tut, zahlt bis zu 2.500 Euro Strafe
--  Apple catches big break, wins emergency request to keep selling the latest Apple Watches in US
--  Adolescente de 15 anos é vitima de estupro coletivo na Bahia
