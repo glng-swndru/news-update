@@ -1,11 +1,51 @@
 # Latest News
--  News24 | Here are the Daily Lotto numbers
--  مختصون يكشفون حقيقة صورة محمد الضيف
--  Planeta sport
--  عام انتخابات تک کن افسران کی چھٹیاں بند کر دی گئیں؟
--  تیل قیمتوں سے متعلق پھر تشویشناک خبر آگئی
--  Budućnost poražena na domaćem parketu, Kamenjašu 20 minuta igre
--  Тройно по-малко жертви на пътя по Коледа от 2022 г.
--  El actor y productor Julián Gilormini frente al fenómeno teatral “TOC TOC”
--  Com três ausências, Brasil segue preparação com novo treino na Arena Marini
--  אברטון - מנצ'סטר סיטי 0:0 (מחצית 1)
+-  Nova Mutum intensifica preparação para disputa da Copa São Paulo de Futebol Júnior
+-  تأكيداً لشفق نيوز.. سانشيز يصل بغداد
+-  Nadzorna kamera u Trogiru snimila trenutak potresa, izgleda da se prilično snažno treslo
+-  متظاهرون إندونيسيون اقتحموا ملجأ للاجئين وطالبوا بترحيل الروهينجا
+-  الليرة التركية تنخفض لمستوى قياسي جديد وتهبط 36% هذا العام
+-  سلطات ولاية كولورادو الأميركية تحقق في تهديدات موجهة لقضاة كولورادو في قضية ترشح ترامب
+-  خارجية روسيا تحذر اليابان: تزويد أوكرانيا بـ"أنظمة باتريوت" ستكون له عواقب وخيمة
+-  يديعوت: قيادة الجيش الإسرائيلي ابلغت المستوى السياسي بأن العام 2024 المقبل سيكون "عام حرب" حتى مع لبنان
+-  هآرتس: اغتيال القيادي بالحرس الثوري يعكس بدء نفاد صبر إسرائيل على خلفية هجمات الحوثيين وحزب الله
+-  I'm a death doula, here's why you should hire me to help you cope with dying
+-  نصار عقد اجتماعا تقييميا مع كامل فريق عمل وزارة السياحة
+-  "النشرة": اشكال بين مجهولين وقوات "اليونيفيل" في بلدة الطيبة وإصابة احد العناصر بجروح
+-  Shakira ganha escultura de mais de seis metros na Colômbia
+-  Český minister vnútra Rakušan po streľbe na univerzite vyzýva na Silvestra bez petárd
+-  Republican rivals fight to compete with Trump ahead of Iowa caucuses
+-  Bandits Are Steps Ahead Of Govt, Sultan Reacts To Plateau Killings
+-  تستمر عبر "مدرستي".. تعليق الدراسة الحضورية غدًا بمدارس المهد
+-  "المرور": خدمة "مبايعة المركبات" تتيح للأفراد إتمام المبايعة آليًّا عبر "أبشر"
+-  岸田首相 来年3月上旬にアメリカを公式訪問する方向で調整
+-  Los muertos en Gaza pasan de los 21,000 entre denuncias de robo de órganos
+-  Pojavila se muževa kći iz prvog braka, željna osvete, prijeti: Kako zaštititi nasljedstvo
+-  Las mejores canteras ya brillan en Maspalomas
+-  Kalėdų dieną „Nuggets“ narį sukandžiojo šuo
+-  Guardiola a Reallal és a Barcával verseng az argentin csodagyerekért, Klopp az olaszok Eb-győztesét akarja - külföldi körkép
+-  The cosiest ways to cut heating bills
+-  „Koordinator SNS“ otkazao salu, koncerta ipak ima: Šerbedžija meštanima Bača peva u parku
+-  NBA: Aaron Gordon blessé au visage et à la main par des morsures de chien
+-  تركيا ترفع الحد الأدنى للأجور بنسبة 49% مع ارتفاع التضخم
+-  How to take advantage of Chrome’s side panel
+-  Sol Pérez muestra su lado salvaje en la gala de Gran Hermano y provoca una ola de suspiros
+-  Desplazados y olvidados: emergencia humanitaria en campos de refugiados
+-  İstanbul'da 5 ilçenin emniyet müdürü değişti
+-  Poplave odnele još 40 života FOTO
+-  США выделяют Украине военную помощь на $250 миллионов
+-  62-årig mand afgår ved døden efter trafikulykke
+-  U Srbiji novi prosvjed oporbe, Vučić okreće teze i optužuje ih za pokušaj krađe izbora?! ‘Nećemo im dati ništa‘
+-  Sindicatos protestan contra el decreto desregulador de Milei en Argentina
+-  Kanpai*! Why you should toast 2024 with a glass of Sake *That's 'cheers!' in Japanese
+-  Autoroute du Maroc : un budget d’investissement de 2,1 MMDH en 2024
+-  Representante de Auzmendi tiene malas noticias para Motagua
+-  Дел од општина Центар утре без вода
+-  Τι θα κάνει με Λανγκ;
+-  Laçının möhtəşəm gecə görüntüsü
+-  קטטה בין מחנות האוהדים בסיום הדרבי המלאבס. במכבי פ"ת הבהירו: "לא נשתוק"
+-  BAJDENOVA OSVETA Brutalni udari SAD po Iraku, otkrivene mete
+-  658 utentes: registada afluência recorde à urgência do Hospital de Leiria
+-  Panipat News: मॉडल संस्कृति स्कूलों में शिक्षकों का किया जाएगा आंतरिक समायोजन
+-  Филолошкиот факултет „Блаже Конески“ и Фондација „Ѓорѓи Марјановиќ“ ќе соработуваат за негување и промоција на македонскиот јазик
+-  #ResumenUR Variedades: La Inteligencia Artificial, X, ovnis y el Titan
+-  Fantasy plays: Players to start and sit for NFL Week 17
