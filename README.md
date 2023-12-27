@@ -1,51 +1,51 @@
 # Latest News
--  DAAWO: Kulan Diimeedkii 6-aad oo Nayroobi lagu soo gaba-gabeeyay
--  «أريدُ» تستضيف ورشة عمل
--  الدفعة الأخيرة لأسهم «مسيعيد» 31 الجاري
--  «فودافون» تتيح استخدام الباقات المحلية أثناء السفر
--  هدفنـــا إســــعاد الجماهيــــر
--  نسعى للوصول إلى أبعد نقطة
--  «بتروتك» تفوز بـ «3» عقود جديدة
--  «مدرج العنابي» مبادرة لدعم منتخبنا الوطني
--  منصة إلكترونية للجمعيات العمومية
--  Australia vs Pakistan LIVE: Early morning rain hits MCG as Aussies try to end first innings
--  Australia vs Pakistan LIVE: Early morning rain hits MCG as Aussies try to end first innings
--  El Mando ataja orodha ya wasanii waliofanya vizuri 2023
--  The Aussie sunbeam who lit up London: Kathy Lette’s tribute to Bill Granger
--  The Aussie sunbeam who lit up London: Kathy Lette’s tribute to Bill Granger
--  'The cost to society will be enormous': Here's why the New York Times has just sued two tech titans
--  Advokat traži krivični postupak protiv roditelja dečaka koji je ubio druga u Niškoj Banji
--  Premier League: Manchester City schlägt Everton - FC Chelsea gelingt Last-Minute-Sieg
--  Alikiba, Rayvanny na S2kizzy matukio yao yamefunga mwaka 2023
--  В подконтрольном Киеву Херсоне прозвучал мощный взрыв
--  "ODVALIO BIH TE DA MI NISU DECA OVDE!" Policija sprečila tuču u centru Beograda, muškarac urlao na dostavljača (VIDEO)
--  Selling Sunset: Does Netflix pay for the cast’s makeup & stylists?
--  Taika Waititi's Next Goal Wins is more than an underdog sports film — it's about being happy
--  Tens of thousands still without power as storms subside
--  Forbes: РЖД заняли первое место в рейтинге 50 крупнейших работодателей России
--  Un Barça estéril se hunde en Málaga
--  Рывок на вершину: Боднарук захватила лидерство на ЧМ по рапиду, Непомнящий одержал три победы
--  New York Times sues OpenAI, Microsoft
--  New York Times sues OpenAI, Microsoft
--  Video shows incredible rescue of driver trapped in semi-truck dangling from bridge
--  'Your GPS is wrong': Council acts after Google maps repeatedly sends drivers onto unsafe roads
--  TEPJF confirma licencia de Taboada para contender por la Jefatura de Gobierno de CdMx
--  Preokret Cityja na Goodison Parku, nastupili Gvardiol i Kovačić
--  SRBIN SPASIO &quot;PLAVCE&quot; Petrović junak Čelsija, Siti posle preokreta savladao Everton
--  Prager Attentäter gibt in Abschiedsbrief früheren Doppelmord zu
--  גוני רואי מונתה למנהלת השיווק והפיתוח עסקי של חברת Scooper
--  New York Times Files Lawsuit Against OpenAI and Microsoft for Copyright Infringement
--  రెండోరోజూ ఆసీస్‌దే!
--  ప్రతి జిల్లాకు కేంద్రం సాయం అందించింది
--  Soccerladuma | Man City back On Track With Come-From-Behind Win
--  Un homme meurt dans accident de chasse dans l'Orne
--  West ‘quietly shifting’ Ukraine strategy – Politico — RT World News
--  Christmas tree recycling program underway in Winnipeg
--  PKL : జైపూర్‌ X ఢిల్లీ పోరు టై
--  జేసీ కుటుంబాన్ని వేటాడతా!
--  Kickoff | World champs Man City rally back to punish Everton
--  إسرائيل تدمر مدنا كاملة
--  مخطط إسرائيلي للقضاء على فلسطين
--  حرب غزة تستمر أشهرا مقبلة
--  حماس: لا علاقة لـ«طوفان الأقصى» بالانتقام لسليماني
--  «التعاون الإسلامي» تطالب بوقف العدوان
+-  Polícia prende suspeito e recupera arma furtada de vereador no Nortão
+-  Police must attend scene of all burglaries within an hour under new guidelines
+-  Bund und Land fördern in 2023 Radverkehrsprojekte im Freistaat mit insgesamt rund 32 Millionen Euro
+-  Tommy Dreamer & Bully Ray Say Paul Heyman & Bam Bam Bigelow Should Be In WWE Hall of Fame
+-  Soccer-Man City earn comeback win at Everton to go fourth
+-  '초미세먼지'로 탁한 공기…수도권 비상저감조치
+-  A Rapid Transition To Renewable Energy Is Possible. Uruguay Proved It
+-  ఇంటి రుణం రాలేదని అడిగితే కొట్టారు
+-  부산 구덕운동장 일대, 도시재생 혁신지구 후보지로 선정
+-  Money expert reveals top tips for getting rid of unwanted Christmas presents and your refund rights
+-  Gavin DeGraw Reacts to T-Pain's Amazing Cover of 'I Don't Want To Be'
+-  Lucas Benvenuto se expresó en redes tras que Jey Mammon estrene en Carlos Paz: “No me sorprende...”
+-  محسن الخليفي: المرهقون، عام كامل من النجاح العالمي
+-  New Washington State Laws Coming in 2024
+-  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
+-  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
+-  Boxing ring girl Apollonia Llewellyn shows off incredible curves in swimsuit as fans say ‘yes please’
+-  부산시, 부산도시공사와 게임융복합스페이스 조성 위탁개발사업 계약
+-  [상보] 국제유가, 홍해 긴장 주시하며 하락…WTI 1.93%↓
+-  కరుణ, సేవ, న్యాయం.. ప్రజాస్వామ్యానికి భూమిక
+-  Crimen en Tolima: hallaron cuerpos sin vida con heridas de machete en estadio de fútbol
+-  Rechtsbuiten Maatsen overtuigt niet bij basisdebuut: 'Levendig, maar ongelukkig'
+-  مانشستر سيتي ينجو من فخ إيفرتون
+-  부산시, 아동보호체계 구축 우수지자체 평가 '대상' 수상
+-  Τελειωμένο…
+-  12/28 各報重點新聞一覽
+-  ‘అన్నమయ్య’ ఘటనలో ఎంతమందికి పరిహారం అందాలి
+-  El marisqueo de a flote de la ría de Pontevedra acuerda pedir el cese de actividad por la falta de capturas
+-  Quem é o chefão do tráfico uruguaio preso no Brasil que tem família no comando de cartel
+-  ప్రజా ప్రతినిధులపై 78 కేసులు పెండింగ్‌
+-  SSEN set to deploy welfare vans in the wake of Storm Gerrit
+-  [이시각헤드라인] 12월 28일 라이브투데이1부
+-  నేడు రాష్ట్రానికి అమిత్‌షా
+-  ¿Cómo, cuándo y dónde ver la Tazoniza y juego de campeonato del futbol americano colegial?
+-  Dodik emëron Vulinin senator të Republikës Sërpska
+-  Biden's immigration problems grow with caravan headlines
+-  Os motivos pelos quais as suas plantas ficam com as folhas amarelas
+-  Dva rođaka ubijena u Tetovu: Napadač i još jedna osoba ranjeni
+-  دراسة تحذر: السهر يضاعف خطر الإصابة بهذا المرض
+-  سيتي يتغلب على إيفرتون ويقترب من ليفربول
+-  Stanley Park Bright Nights train cancelled Wednesday due to power outage
+-  మేత భూముల్లో మైనింగా?
+-  [스포츠영상] 호날두 '2골 추가요'…올해 전세계 득점 1위
+-  Lopez Obrador and Blinken meet in Mexico to discuss migration
+-  健康網》天冷血壓就飆高 營養師：吃對4種食物助穩定
+-  Teška situacija: U Gazi radi još samo nekoliko bolnica i to djelomično
+-  Missing Veteran's Remains Likely Found After Popular YouTuber Steps In to Help Investigators
+-  Healthcare Heroes: 3 Stocks Innovating in Medicine and Wellness
+-  Véronique (L'amour est dans le pré) a-t-elle retrouvé l'amour ? Une photo sème le doute
+-  Los dolorosos últimos seis días de La Cacica, la mujer que puso a sonar el vallenato en el mundo
