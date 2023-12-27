@@ -1,51 +1,11 @@
 # Latest News
--  غرس مخالبه في ظهره.. «روبوت» يهاجم مهندس بشركة تسلا بطريقة مفاجئة
--  الإمام الصادق المهدي: انحنا ما سحاسيح
--  L.A. New Year plans? Ring in 2024 with these 13 SoCal events
--  Tani është momenti të kërkojnë shqiptarët hisen e tyre në Kushtetutë?
--  Manchester City to make play for Bayern Munich midfielder Joshua Kimmich?
--  لماذا تتراجع بورصة إسطنبول.. وما علاقة معدلات الفائدة؟
--  Tatar: Filistin'de yaşananları, bize zamanında yapılanlara benzetiriz
--  İletişim Başkanı Altun: Netanyahu, soykırımla ilgili konuşacak son kişidir
--  TÜRK-İŞ asgari ücret kararına muhalefet şerhi koydu
--  Fatih Terim, Panathinaikos'un başında ilk antrenmanına çıktı
--  Can Atalay hakkında karar verildi!
--  Hakem döven Faruk Koca'ya coşkulu karşılama
--  İş dünyası temsilcilerinden yeni asgari ücret değerlendirmesi
--  Eski AB Komisyonu Başkanı Jacques Delors, 98 yaşında hayatını kaybetti
--  Coalition tackles Ndume on Niger sanctions, praises ECOWAS, Tinubu
--  [유럽증시] 전고점 앞두고 상승 마감...머스크↓VS 바이엘·앵글로아메리칸↑
--  Simbolotto, estrazione di oggi 27 dicembre 2023 | Lotto
--  Siłuanow: Rosja ma wystarczające fundusze na prowadzenie wojny z Ukrainą
--  Szef KRRiT: decyzja o postawieniu w stan likwidacji mediów publicznych jest działaniem na szkodę spółek
--  Nowe przepisy dotyczące m.in. VAT, WIS i taryfy celnej
--  Najwyższy czas na raportowanie ESG
--  Co przyniesie nowy rok w PIT i CIT
--  Firmy zapłacą ekodaniny od tworzyw
--  Kiedy wejdzie obowiązek e-doręczeń
--  Estrazione Lotto e 10eLotto: i numeri vincenti estratti oggi mercoledì 27 dicembre 2023
--  Un jour de grève: la tour Eiffel, symbole de Paris, fermée
--  TUTO solmi pelaajasopimuksia joulutauolla - kiittää Lukkoa, Sportia ja TPS:ää yhteistyöstä
--  Bu ölkədə dövlət televiziya və radiosu ləğv edildi
--  Xhaferi: Zgjedhjet do të shpallen nga mesi i muajit shkurt, ndërsa Kuvendi do të punojë deri në fillimin e fushatës
--  Kolumni | Italiassa lähisuhdeväkivallan uhreilla on nimi ja kasvot – äärimmäisen avoin uutisointi tuo uhrit paljon lähemmäs kuin Suomessa
--  Kolumni | Italiassa lähisuhdeväkivallan uhreilla on nimi ja kasvot – äärimmäisen avoin uutisointi tuo uhrit paljon lähemmäs kuin Suomessa
--  Italian may regain use of hand after nerve transfer from amputated leg
--  إعلام عبري ينشر صورة حديثة يزعم أنها لقائد كتائب القسام محمد الضيف
--  Israel-Hamas War: Gaza population in ‘grave peril’, says WHO
--  New York Times denuncia a Microsoft y apunta contra la inteligencia artificial
--  El impresionante vestido de Kendall Jenner que se llevó todas las miradas
--  تشكيلة برينتفورد الرسمية للقاء وولفرهامبتون
--  Humiliated Putin orders crackdown on ‘debauched’ Russian elite after near naked ‘Sodom & Gomorrah’ bash sparks fury
--  تكتيك تشيلسي لمواجهة كريستال بالاس في الدوري الانجليزي
--  Россия решила закрыть западные санкции газификацией страны
--  Obtén tu préstamo de hasta S/99.999 en el Banco de la Nación para Año Nuevo sin aval ni garante
--  EVO KADA POČINJE PRIJAVA ZA VAUČERE OD 10.000 DINARA Uvedena je jedna VAŽNA PROMENA
--  محافظ كفر الشيخ يتابع موقف تنفيذ إزالة التعديات على الأراضي الزراعية
--  В Буэнос-Айресе возобновились протесты против реформ президента Милея
--  Vera Wang, 74 anni, posa con le figlie 30enni: “Sembrate gemelle”
--  As base pay rises, some companies are fighting back with fees, layoffs
--  Predicting the 2024 Hipster Starter Pack
--  Tunisie – Accord de dernière minute entre la CNAM et les pharmacies officinales
--  Carlos gana en Ryadh a Djokovic la primera 'batallita' de 2024
--  Blinken y Mayorkas llegan a México para abordar el repunte migratorio con AMLO
+-  Profe Cabrera se despide de la radio
+-  Top Iconic Sports Arenas You May Want To See Before You Grow Old
+-  Gran congestionamiento vial en Periférico de la Juventud
+-  Confira a movimentação de jogadores para a próxima temporada da Liga Nacional de Futsal
+-  Dziwna transakcja z sankcjami w tle
+-  Rok 2024: co zmieni się w prawie dla firm
+-  Itaka: zdobędziemy pierwszy milion
+-  WIG sięgnie 90 tys. punktów
+-  Wskaźniki koniunktury sugerują, że wzrost PKB jest coraz wyższy
+-  Zaciska się pętla wokół Adama K.
