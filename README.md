@@ -1,51 +1,51 @@
 # Latest News
--  Cuatro años de cárcel para tres personas que robaron en viviendas en Ames
--  المواد الغذائية: ارتفاع أسعار زيت "عافية" و"حلوة" في الأسواق
--  12 جنيها للبطاطس.. أسعار الخضروات والفاكهة بسوق العبور اليوم الأربعاء
--  طبيبة: هذه التمارين تحسن الذاكرة
--  The art of writing professional restaurant reviews
--  Členské štáty eurozóny v budúcom roku znížia produkciu mincí
--  Južná Kórea uvalila sankcie na šéfa tajnej služby KĽDR Ri Čchang-hoa
--  Naplánujte si dovolenku na rok 2024 s rozumom: Prinášame vám veľký prehľad štátnych sviatkov, školských prázdnin a predĺžených víkendov
--  Vianočnejšie to už byť nemohlo: NASA uverejnila fotku zaujímavého vesmírneho úkazu, očarí aj teba?
--  Neznámy páchateľ vytvoril v Čiernom Brode skládku plastového komunálneho odpadu
--  Zásoby krvnej skupiny AB s negatívnym Rh faktorom sú hraničné
--  Abant Gölü Milli Parkı'nda yeni dönem
--  Galatasaray'da sol bek için iki yıldız adayı! Transfer devre arasında bitiyor
--  Meral Akşener "korkak" dediği Ekrem İmamoğlu ile Mansur Yavaş'ı topa tuttu: Plan yapanların oyunlarını bozduk
--  Trabzonspor'a Brezilyalı stoper
--  Türkiye için tahmin yükseldi! 10 yılda 800 milyon kişinin ziyaret etmesi bekleniyor
--  Ndombele gidiyor, Amani geliyor!
--  Hebei: China International Digital Economy Expo Attracts Foreign Merchants Seeking Cooperation
--  Farmers, residents of Perundurai observe fast, demanding adequate compensation for land acquired for SIPCOT
--  Life | Kanye West apologises for string of antisemitic comments
--  BREAKING: MPhil Degree No Longer Valid, UGC Directs Universities To Stop Admissions
--  `Aurton Se Zyada Drama Purush Karte Hain` – Drama Queens or Kings? Smriti Irani`s Candid Take
--  Robert Vadra Isn`t Facing Probe For The 1st Time, Here`s An Array Of Charges He Faces
--  La luz de Chris Levine y la reina de Inglaterra iluminan la Gran Vía por primera vez en España
--  مايكروسوفت تطلق تطبيق "كابيلوت" مساعد الذكاء الاصطناعي لأجهزة الأندرويد
--  تفاصيل برنامج الطلبة المتفوقين والموهوبين بجامعة الملك سعود
--  إغلاق 1400 منشأة تجارية وصحية في جدة و54 ألف مخالفة.. ماذا فعلت هذه المنشآت؟
--  عاجل.. راتب 13 ألف ريال.. الهيئة الملكية تطرح وظائف متنوعة لحملة الابتدائية فأعلى
--  عبر "أبشر".. "المرور" يطرح مزادًا إلكترونيًا للوحات المعدنية
--  Corona-Zahlen im Main-Tauber-Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
--  Corona-Zahlen im Landkreis Schwäbisch Hall aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Hohenlohekreis aktuell: Infektionen und Todesfälle - News zum Coronavirus
--  Iñaki Williams entrena al margen del grupo a tres días de ir con Ghana
--  Corona-Zahlen im Landkreis Heilbronn aktuell: Die Coronavirus-News aus der Region
--  Marchan contra extorsión y plagio de polleros; hay 16 trabajadores más secuestrados
--  ทลายโรงงานผลิตอาหารเสริมลดลดน้ำหนัก ผสมไซบูทรามีน
--  หยุดปีใหม่ทยอยออกจากกรุงฯ ถนนทุกสายรถเริ่มหนาแน่น
--  เข็น Quick Win 99 วัน พณ.ฟุ้งลดครองชีพกระตุ้นศก.1.2 หมื่นล้าน
--  CAAT คุมเข้ม "นกแอร์" ยังแก้ปัญหา "ดีเลย์" ไม่ได้
--  Guardia Nacional trata de frenar caravana; continúa su camino
--  Corona-Zahlen im Stadtkreis Heilbronn aktuell: Inzidenz für Stadtkreis Heilbronn, Baden-Württemberg und Deutschland
--  Larnaca draws on €30m in EU funding
--  Corona-Zahlen im Rems-Murr-Kreis aktuell: Die Coronavirus-Daten im Überblick
--  Corona-Zahlen im Landkreis Ludwigsburg aktuell: Zahlen und Fakten aus der Region
--  China acusa candidato presidencial e atual vice de Taiwan de colocar ilha "à beira da guerra"
--  Mapa GPW: Pure, Lubawa, Saule, Kogeneracja i Genomtec w centrum uwagi
--  Samsung opóźnia produkcję w nowej fabryce czipów w USA do 2025 r.
--  Corona-Zahlen im Landkreis Göppingen aktuell: Inzidenz für Landkreis Göppingen, Baden-Württemberg und Deutschland
--  USA dokupują ropę do swoich rezerw strategicznych
--  Wertheim: Schmierereien an ehemaligem Postgebäude
+-  Zamość: Taniej nie będzie. Wszystkie atrakcje za darmo
+-  Sparkasse warnt: Kunden fallen immer wieder darauf rein und verlieren viel Geld
+-  Tawaran Sime Darby ambil alih UMW dapat lebih 50 peratus undian
+-  Ular sawa gergasi jadi lauk aligator
+-  إعلان المرشحين للاستفادة من قروض إسكان المعلمين - أسماء
+-  روسيا تتوقع أسعار برميل النفط في 2024
+-  الجعدة.. سلاحك بوجه آلام البطن بالشتاء
+-  هاباج لويد: الموقف لا يزال خطراً ولا يسمح بالعودة للمرور من قناة السويس
+-  وفد من السلطة الفلسطينية يتجه للقاهرة
+-  Anti-republic forces are conspiring to mislead the people: PM Dahal
+-  إيران ل إسرائيل: انتظروا 7 أكتوبر ثانيا ردا على اغتيال موسوي
+-  В Екатеринбурге проверят, вступал ли полицейский в связь со школьницей
+-  Corona-Zahlen im Landkreis Bayreuth aktuell: Die Coronavirus-News aus der Region
+-  Strom: Netzagentur rechnet weiter mit hohen Preisen – „Zeit der billigen Energie ist vorbei“
+-  Впечатляваща гъста мъгла погълна Бостън
+-  РЖД запустят полностью импортозамещенную "Ласточку" 28 декабря
+-  Corona-Zahlen im Landkreis Bamberg aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen in Hof aktuell: Zahlen und Fakten aus der Region
+-  A Russian drone and artillery attack kills 6 in Ukraine and knocks out power in a major city
+-  Crypto Analyst Predicts Bitcoin Price Correction To $26K Before Hitting $130K
+-  Laser fusion is putting CSU at the front of the clean energy pack. Tech entrepreneurs are right behind.
+-  Corona-Zahlen in Coburg aktuell: Die Coronavirus-News aus der Region
+-  These 7 things are cluttering your home — here's why and how you should get rid of them for 2024
+-  «Яндекс» компанияси yandex.kz серверларини Қозоғистонга кўчирди.
+-  Залужний илк бор матбуот анжуманида қатнашди. У сафарбарлик ва уруш ҳақида нималар деди?.
+-  Michal Šimečka označil spoluprácu opozície v parlamente za dobrú
+-  Лутфулла Тўраев футболчилик фаолиятини якунлади.
+-  KDH nepodpísalo dohodu o opozičnej spolupráci, povedal Milan Majerský
+-  Corona-Zahlen in Bayreuth aktuell: Die Coronavirus-Daten im Überblick
+-  Dutch Cabinet adopts EU's USB-C common charger directive from December 2024
+-  Corona-Zahlen in Bamberg aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Landkreis Tirschenreuth aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Schwandorf aktuell: Die Coronavirus-Daten im Überblick
+-  Assogestioni, con rialzo mercati patrimonio sale di 60 miliardi
+-  Corona-Zahlen im Landkreis Regensburg aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen im Landkreis Neustadt a.d.Waldnaab aktuell: Die Coronavirus-News aus der Region
+-  Corona-Zahlen im Landkreis Neumarkt i.d.OPf. aktuell: Die Coronavirus-Daten im Überblick
+-  Reuters: Serbian opposition figure to press on with hunger strike after health worsens
+-  大掃除ここが危ない 脚立正しく使えてる？掃除機から火災も…
+-  Corona-Zahlen im Landkreis Cham aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Amberg-Sulzbach aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Adana Valiliği yakınında şüpheli kutu alarmı
+-  Trabzonsporlu Onuachu'ya Premier Lig'den çok sayıda talip var...
+-  ביידן לא מבטל את ההחלטה - אפל לא תוכל למכור השעונים שלה בארה"ב
+-  Corona-Zahlen in Weiden i.d.OPf. aktuell: Zahlen und Fakten aus der Region
+-  8 Cultural Trends Of 2024
+-  Corona-Zahlen in Regensburg aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Experten erwarten 2024 Spritpreise auf „entspannterem Niveau“
+-  Experten erwarten 2024 Spritpreise auf „entspannterem Niveau“
+-  Long-distance couple reunite after five years apart – following whirlwind holiday fling
