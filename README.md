@@ -1,51 +1,51 @@
 # Latest News
--  بلوجر كويتية تثير الجدل.. تصطحب بنت صغيرة لنفخ شفايفها بالفيلر "فيديو"
--  Car torched at Fawkner home, days after doorstep shooting
--  Car torched at Fawkner home, days after doorstep shooting
--  Venderá Walmart vacunas Pfizer contra Covid-19
--  TPS:n Wernblomille pelikieltoa huitomisesta
--  5 فئات ممنوعة من الخروج غدا الخميس.. تحذير من أمطار رعدية ورياح
--  Gazze'deki suçlu savaşa katılmayı reddetti! İsrailli gence hapis cezası
--  Nijerya'da silahlı saldırılarda yaşamını yitirenlerin sayısı 148'e yükseldi
--  Raphael Varane'a 2 talip birden
--  Excited or frustrated, Denverites get used to 45 new traffic circles installed in their neighborhoods this year
--  Временные подходы к расчету размера операционного риска продлены
--  Hrvati velikodušno odriješili kese za Božić: Troši se više nego lani
--  “Los chicos tienen que transitar el verano como todos, pero hay momentos y edades en las que se debe protegerlos”
--  Arrascaeta revela promessa não cumprida que recebeu no Flamengo: 'Sem ressentimento'
--  Stephanie Rice reveals new boyfriend in Christmas video
--  Mingzhu Announces Unaudited Financial Results for the Six Months Ended June 30, 2023
--  الانتخابات النيابية .. لهذا نحتاجها
--  Santos anuncia a contratação do lateral Jorge, emprestado pelo Palmeiras
--  El Congreso de oficio debe derogar el DNU nulo de Milei
--  Starbucks encerra programa de recompensas no Brasil
--  Alerta para banhistas: cuidado com águas-vivas nas praias do RS
--  GeForce RTX 5000 podem ser lançadas no fim de 2024, diz rumor
--  Carrefour anuncia fechamento de duas lojas do Nacional no Litoral
--  Accident blocks two left lanes on Howard Frankland Bridge
--  وزارة الصحة تنشر التقرير التراكمي للطوارئ الصحية
--  Ariana Grande announces new album arriving in 2024, her first since 2020’s ‘Positions’
--  Hola, perdid@: ¿Qué es el ‘marleying’ y por qué es usual en las fechas decembrinas?
--  U20 MM-kisat päiväraportti: Šalé ja Kulich hattutemppuilivat Norjan nurin, superlupaus Celebrini johti Kanadan kymmenen maalin ilotulitusta
--  Δεν έγινε ΕΙΔΗΣΗ, αλλά… είναι!
--  Ο Γιάννης Στάνκογλου ευχήθηκε καλά Χριστούγεννα και καλή Πρωτοχρονιά με βουτιές
--  Liga Portugal revela datas e horários para a 18.ª jornada da I Liga
--  حرب غزة تستمر أشهرا مقبلة
--  Clerk in Murdaugh murder trial accused of plagiarism by co-author, sales of book halted
--  “الضاوي” يبحث مع وزير الخارجية الليبية التعاون المشترك
--  Sanctions de la CEDEAO contre les coups d'Etat : Des organisations africaines déposent une plainte devant la cour de justice de l'organisation
--  Nemačka poslanica Nastić: Srpski Majdan - farsa, zahtevi protesta ne odgovaraju većinskom mišljenju u Srbiji
--  El cambio radical en los divorcios que plantea la ley ómnibus que envió el Ejecutivo al Congreso
--  Ισπανία: Παρατείνει και το 2024 ορισμένα αντιπληθωριστικά μέτρα η κυβέρνηση Σάντσεθ
--  Minsa sugiere mascarilla en caso de sospecha de COVID-19
--  Aaj Ka Vrishabh Tarot Card: वृष राशि वाले अवसरों को भुनाने की करेंगे कोशिश, व्यक्तित्व आकर्षक रहेगा
--  U.S. to provide up to US$250M in arms, equipment to Ukraine: Blinken
--  Морозная погода ожидается 28 декабря в Карелии
--  MÄRKTE USA/Wall Street erklimmt in Trippelschritten neue Rekordstände
--  Real Estate Market 2024: 3 Crucial Trends Emerging
--  Storm Gerrit batters Britain with snow, rain and 100mph winds as thousands left without power
--  Israel bereit für Offensive im Libanon
--  Apollo Beach man dies after suffering medical episode, striking culvert, ditch
--  Fani kuoli Taylor Swiftin konsertissa – Kuolinsyy selvisi nyt
--  HomePod prototype with touchscreen LCD on top shows up in new images
--  Mercato - PSG : Un joueur veut claquer la porte, Luis Enrique dit non
+-  إيراني أصيب بنوبة قلبية أثناء قيادة سيارة في منطقة مكتظة بالسكان.. ماذا حدث؟
+-  Alibaba deberá enfrentar demanda en EE.UU. por falsificaciones del juguete Squishmallows
+-  Adzic-Juve, ci siamo: sorpasso al Bologna. Chi è, cifre e formula
+-  Restaurangnotan på 82 000 fortfarande obetald
+-  2024 Asgari Ücret Zammı Belli Oldu! Bakan Işıkhan son dakika açıkladı! Asgari ücret zammıyla İşsizlik, Kıdem tazminatı, Yaşlılık ve Engelli maaşı da değişti! İşte kalem kalem yeni ücretler
+-  ▶️ Kuruluş Osman 142. bölüm CANLI İZLE 📺 ATV Kuruluş Osman son bölüm full izle tek parça
+-  Fatih Terim, Panathinaikos ile ilk antrenmanına çıktı! "Kaybettiğimizde benim hatam olacak"
+-  Kayseri’de yanan hafif ticari araç kullanılamaz hale geldi
+-  Karabük'te Sanayi Sitesinde çıkan yangın kontrol altına alındı!
+-  Rize’de mobilya fabrikasında çıkan yangın güvenlik kameralarına yansıdı!
+-  Beyoğlu'nda kaçak göçmen denetimi: Çok sayıda düzensiz göçmen yakalandı
+-  Asgari ücret kime nasıl yansıyacak? 2024 işsizlik maaşı, sigorta primi, BES, sosyal yardım…
+-  Social Average Salary in China: An Explainer
+-  البابا تواضروس يعلن توقف اجتماع الأربعاء 3 أشهر
+-  تقديرًا لمجهوداته.. وزير التعليم العالي يكرِّم المفتي في عيد العلم الـ 18
+-  احتفالية عيد العلم.. منح وزير الأوقاف وسام التميز في الفكر الإسلامي بجامعة القاهرة
+-  إعلام عبري ينشر صورة للقيادي في حماس محمد الضيف
+-  الاحتلال يقترح صفقة جديدة تشمل انسحاب قواته من بعض مناطق غزة
+-  فيديو| متظاهرون أمريكيون يغلقون مدخل مطار بولاية نيويورك بسبب الحرب على غزة
+-  حماس تعلق على وضع "رأس حمار" على باب مقبرة بالقرب من المسجد الأقصى
+-  "للمرة الثالثة".. جنود مصابون بمعارك غزة يرفضون زيارة نتنياهو
+-  فيديو| المقاومة تحتفي بجندي إسرائيلي في ذكرى أسره التاسعة
+-  أمريكا: سنقدم لأوكرانيا أسلحة وذخائر بقيمة 250 مليون دولار
+-  أول تعليق من مدرب زد بعد تصدر الدوري الممتاز مؤقتا
+-  ترشيح أحمد حسن كوكا لتدعيم خط هجوم الأهلي في يناير
+-  Hà Nội có doanh nghiệp thưởng Tết 2024 cao nhất là 205 triệu đồng
+-  Làm rõ vụ việc ô tô vào bệnh viện đón bệnh nhân bị ngăn cản, đe doạ
+-  Đường ngập do triều cường, người dân TPHCM chật vật lội nước về nhà
+-  Nhìn lại Top 10 người giàu nhất thế giới năm 2023
+-  “Giải mã” 10 phương án thiết kế Runway và Show Icon cho ELLE SHOW 2023
+-  Xôn xao trước đề thi Văn "xúc phạm nhà giáo" của 1 trường học ở TP.HCM, phụ huynh đọc xong ngỡ ngàng, tức giận
+-  TikToker Trúc Linh hoàn thành 4/5 mục tiêu khó nhằn 2023, chia sẻ cách thuê nhà riêng “chuẩn đét” để chạy KPI 2024
+-  Mẹ Doãn Hải My thần thái ngút ngàn qua ống kính của con gái
+-  Nam chính bị kêu gọi "đuổi" khỏi phim vì diễn quá đỉnh, là người "bình thường" duy nhất trong dàn nhân vật
+-  Những số điện thoại tuyệt đối không nên nghe, không gọi lại
+-  Thu nhập 15 triệu/tháng, liệu có thể tiết kiệm 500 triệu trong vòng 3 năm?
+-  Hà Nội vào đông có gì thú vị?
+-  CCTV hé lộ đoạn video Lee Sun Kyun lái xe tới công viên để tự sát?
+-  Mẹ Neymar được con trai tặng siêu xe dịp Giáng sinh, có phản ứng đáng chú ý khi chụp cùng "con dâu hụt"
+-  Lisa xác lập thêm kỷ lục mới, vượt luôn cả thành tích của BLACKPINK
+-  Da xuất hiện 2 dấu hiệu này thì bạn nên đổi ngay kem dưỡng ẩm, kẻo lão hóa sớm và già không phanh
+-  Knet chọn nhóm nữ gen 4 số 1 Kpop: Riêng NewJeans "out trình" vì làm được điều BLACKPINK không làm được?
+-  5 "báo động đỏ" mỡ nội tạng vượt ngưỡng an toàn, bác sĩ chỉ ra cách điều chỉnh
+-  1 thói quen tài chính đơn giản nhưng giúp bạn dần giàu lên trong năm 2024
+-  Nhiều người hốt hoảng khi thấy hình ảnh này của Tăng Thanh Hà và các con: Thực ra, hoạt động này rất tốt cho trẻ!
+-  Không cần đến Tomorrowland, fan Việt vẫn có thể “bùng cháy” cùng DJ Tungevaag tại Luxury Countdown Party 2024
+-  Vương Phạm sau 2 năm dính lùm xùm với Khoa Pug: Ngày càng giàu có nhờ buôn đất, mua ở đâu lãi ở đó
+-  T-Up thời trang "riêng bản" dành cho giới trẻ
+-  Dàn fashionista nô nức check-in cửa hàng LOEWE, chào đón bộ sưu tập mùa lễ hội
+-  Hà Nội xuất hiện loạt món mới mùa đông “lạ lắm”: Toàn món quen nhưng biến tấu có gì khác?
