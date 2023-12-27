@@ -1,11 +1,51 @@
 # Latest News
+-  Defensoría abre queja a solicitud de padres de familia del Centro Ann Sullivan de Panamá
+-  Condenan a 3 colombianos y un costarricense por narcotráfico
+-  NBA bettor wins $114K as Chet Holmgren, Cade Cunningham clinch six-leg parlay
+-  The most surprising 2023 trend was an accessory babies wear, but some say it’s a ‘power’ look
+-  Cruzeiro anuncia a contratação de Gabriel Verón, ex-Palmeiras
+-  Alvo de Corinthians e Palmeiras, atacante Mauricio tem negociações com rival da Série A
+-  Полскиот министер за култура одлучи државните медиуми да влезат во постапка за ликвидација
+-  Borsada hissesi olan çıra gibi yandı! Bir günde 520 Milyar kayıp: Borsanın bu kadar düşme nedeni ise belli oldu
+-  UNIR IMPOSTOS PARA MAIS FACTURAR
+-  Gobierno de Milei impulsa una ley para ampliar la emergencia económica hasta final de 2025
+-  BYD obtiene permiso para probar vehículos de conducción autónoma de nivel 3 en autopistas
+-  MediaTek se asocia con TSMC para presentar el chip Dimensity 9400 de bajo consumo energético
+-  Swan Energy reembolsa 40 millones de rupias de deuda de su división textil
+-  Bitcoin, Oro y Euro: Los activos preferidos por inversionistas mexicanos en 2023
+-  Tribunal turco rechaza liberar a diputado encarcelado pese a sentencia de la Corte Suprema
+-  يوم وطني موحد نصرة لفلسطين في الجامعات الحكومية والخاصة
+-  전국 대부분 미세먼지 '나쁨'…동쪽 대기 건조
+-  'Influencer' criticada por partilhar truque de poupança no Natal
+-  Ampel-Parteien werfen Union Blockade zulasten der Wirtschaft vor
+-  В Тамбове на Авиационной установили новое электронное табло
+-  Magtdemonstration: 16-årige Littler sikkert videre ved VM
+-  Teddi Mellencamp has large area of shoulder ‘cut out’ amid skin cancer battle: ‘Worth it’
+-  Switching off from work has never been harder, or more necessary. Here's how to do it
+-  New model sheds light on grassland desertification dynamics
+-  Un hombre se hace un examen de la vista y descubre que ha tenido una astilla clavada en la córnea durante 15 años
+-  Governo decreta um dia de luto nacional pela morte de Jacques Delors
+-  Dragusin Milan, lo vogliono tutti! Ecco le 7 squadre in competizione per il difensore
+-  OVO JE NIJE ELEKTRA ELIT, TO JE CECA RAŽNATOVIĆ! Svetlana promenila LIČNI OPIS, ništa nećemo reći, SAMI POGLEDAJTE
+-  Man Gets Eye Exam, Learns He's Had a Splinter Stuck in His Cornea for 15 Years
+-  США выделили последний в этом году пакет военной помощи Украине на $250 млн
+-  „Jiems trūksta karinio proto...“ Rusai pasibaisėję. Ką padarė Ukrainos naikintuvai „Su-24M“ (Žemėlapis)
+-  Priverstinai-savanoriškos paskolos ir laisvos valiutos rinkos atsisakymas: kaip Rusijos ekonomika grįžta prie SSRS mechanizmų.
+-  [ŽT] Ar Švedija pagaliau įstos į NATO?
+-  Устроивший стрельбу в Праге написал о других убийствах
+-  Врховниот суд на Мичиген го отфрли обидот за блокада на кандидатурата на Трамп за изборите во 2024 година
+-  Fuerzas Militares tendrán más personal gracias a decisión de Petro de volver gratis portar el uniforme
+-  В Турции освободили экс-президента «Анкарагюджю», обвиняемого в избиении арбитра
+-  Darts-Teenie siegt weiter: Littler in London im Achtelfinale
+-  Mortágua recorda "combatividade e determinação" de Odete Santos
+-  EE.UU. proporcionará hasta 250 millones de dólares en armas y equipos a Ucrania
+-  Versöhnung bei den Pochers? - Jetzt taucht das erste Foto von Oliver und Amira seit Beginn des Rosenkriegs auf
+-  Gespräch aus dem Jahr 1997: "Ein Krüppel als Kanzler? Diese Frage muss man stellen": So sprach Schäuble einst über die K-Frage
+-  Schreckmoment: Notarzt holt Simon Gosejohann vom Spielplatz
+-  Eljif Elmas, Leipzig'e transfer oldu
 -  ABD öncülüğündeki koalisyon güçleri Erbil'de bomba yüklü İHA düşürdü
 -  Kassam Tugayları İsrail askerlerini gafil avladı! RPO-A roketiyle vurdular
 -  Ayvacık açıklarında 70 göçmen yakalandı
 -  Putin: Hindistan'la ticaret hacmimiz hızla arttı
 -  Beşiktaş Emlakjet evinde rahat kazandı
--  بن سلمان: المملكة عملت على إيجاد حراك عربي وإسلامي لوقف العدوان على غزة
--  GOP suggests Biden obstruction over son Hunter defying subpoena
--  Ley ómnibus: Javier Milei quiere cerrar el Instituto Nacional del Teatro
--  Making 2024 an Annus Mirabilis
--  Lazović: Javni servis opoziciji ne da nijednu sekundu da objasni zašto su ljudi na ulici
+-  Hilcia Bonilla afirma que ARENA gobernó desde los 80 el país y se preocupaba por los salvadoreños
