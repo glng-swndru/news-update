@@ -1,11 +1,11 @@
 # Latest News
--  인천 연수구, 지역복지 보육정책분야 전국 우수 지자체 선정
--  [힘내라!소상공인] 유승혜 영종제빵소 대표 "쉼터같은 카페로 기억에 남길 희망해요"
--  인천 계양구 계산시장 고객지원센터, 고객·상인 위한 편의시설로 '탈바꿈'
--  [의정인터뷰] 김태계 인천 미추홀구의원 "지역사회에는 아직 해결할 일 많아"
--  경기도장애인체육회, 유공자 시상식 개최… 표창 및 노고 치하
--  전세 내리고 월세 오르고… 오피스텔 가격 교차
--  연말 건설현장 등 중대재해 경보… 연휴 전날에만 8명 사망
--  '제2의 행궁동 명소' 그림책 마을 특화거리 조성된다
--  2028 대입 선택과목 없는 '통합형수능'… 고교 내신 5등급제로 변경
--  대학 정시모집 원서접수 1월 3일 시작… "공통원서 미리 확인"
+-  إغلاق برج إيفل بسبب إضراب العاملين
+-  السهر يضاعف خطر تصلب الشرايين
+-  Llaman a prevenir uso de pirotecnia
+-  Encuentran hombre atado con alambre de púas en la Interamericana
+-  Салом алейкум, Таджикистан! Анонсы событий, день в истории, прогноз погоды на 28 декабря 2023 года
+-  'New York Times' verklagt OpenAI und Microsoft
+-  बेंगलुरु में अंग्रेजी साइनबोर्ड पर बवाल, कन्नड़ समर्थकों ने किया तोड़-फोड़ | Photos
+-  Ustavni sud “presjekao”: Donesena je važna odluka za istospolne zajednice
+-  Alia mourns Akeredolu, Na’Abba
+-  ZMENA krásky z kultovej rozprávky: Prešlo 26 ROKOV... Takto vyzerá PRINCEZNÁ z Lotrando a Zubejda!
