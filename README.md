@@ -1,11 +1,51 @@
 # Latest News
--  أغربها رقم 4.. منتجات غذائية لا يحتاجها الجسم
--  Absatz von Tabakwaren 2023 erneut rückläufig
--  Aldatılan öfkeli kadından vahşi intikam
--  Kayserispor tarafından kaçırılan İhsan Sakaloğlu yıllar sonra konuştu. Turgay Beşyıldız yazdı
--  Ruska vojska osvojila strateški grad blizu Donjecka
--  İstanbul'da kira artış rekoru kıran 6 ilçede mahalle mahalle rakamlar açıklandı! İşte en ucuz ve en pahalı kiralar...
--  Kış aylarında su içmeyi azaltmak hastalıklara davetiye olabilir
--  Bosch fabrikasında işçilerin eylem sürüyor: Burası BOSCH cepler boş
--  SPN: Podneta krivična prijava zbog fantomskih glasača u Zrenjaninu
--  Nach 22 Jahren: Hannawald glaubt an deutschen Vierschanzen-Triumph
+-  The Athletic: Arsenalilla selvät tavoitteet siirtomarkkinoilla
+-  الضرائب: على الشركات تسجيل كل فروعها بضريبة القيمة المضافة
+-  "شاومي" تفتتح مصنعا لإنتاج التليفزيونات والموبايلات في مصر خلال 3 شهور
+-  דרעי נגד בן גביר בעקבות סערת נציבת שב"ס: "הסכמים צריך לכבד"
+-  Sh수협은행, 정기인사 단행…신사업 추진·기업금융 강화에 초점
+-  [인사] Sh수협은행
+-  Najskuplja tvar na svijetu košta 56 bilijuna eura: Svi su čuli za nju, a valjda nikome ne bi palo na pamet da toliko košta
+-  Uzmanından açıklama: Birçok kanser hastalığı tedavi ediliyor! Mide dostu
+-  Policja i strażacy podsumowali święta
+-  السبت.. حفل «طبلة الست» على مسرح النهر بساقية الصاوي
+-  محافظ أسيوط يتابع آخر مستجدات مشروعات برنامج التنمية المحلية بصعيد مصر
+-  Lady stabs boyfriend to death in Rivers
+-  'Senden Önce'nin başrol oyuncuları belli oldu
+-  Tunisie : le projet de loi sur les déchets adopté par l’ARP
+-  Zandzakken tegen hoogwater in Deventer, piek wordt over twee dagen verwacht
+-  Mallorca: News In Brief
+-  Berisha mbledh me detyrim punonjësit e Bashkisë Kavajë në takimet publike
+-  Storm Gerrit hits West Highlands
+-  التخطيط وجامعة الجلالة يوقعان بروتوكول تعاون لتطوير القرى الأكثر احتياجا
+-  Interstellar: svelato il tristissimo finale originale del film. E prevedeva un tragico epilogo per il protagonista
+-  Mangsa banjir Kelantan makin bertambah
+-  Shillong Teer Result TODAY 27.12.2023 (OUT) First And Second Round Lottery Result
+-  3 titans will fight to dominate the market for Wegovy in 2024
+-  Martínez revela conversa com Ronaldo: «250 internacionalizações interessam-me»
+-  Fury as hospital parking scandal gets WORSE despite Conservative manifesto pledge to end unfair fees: Patients and visitors are forced to fork out £146MILLION in the last year with worst trusts named and shamed
+-  Offshore wind in the U.S. hit headwinds in 2023. Here's what you need to know
+-  The year when the girl economy roared
+-  Klobrillen und Feinripp-Wäsche: Beim Markt der langen G'sichter kann Geschenke wieder loswerden
+-  Sam Thompson and Zara McDermott fans are convinced they're engaged after Love Island star covers her hand for innocent Christmas photo: 'Her ring finger is hidden!'
+-  Videoblog: Waren die Falcons zu beeindruckt von der Atmosphäre in Bayreuth?
+-  Videoblog: Waren die Falcons zu beeindruckt von der Atmosphäre in Bayreuth?
+-  Jessie J paljasti kurvikkaan biksuvartalonsa – lomakuvat eivät jätä kylmäksi
+-  Cyril Lignac victime d'un cambriolage : deux suspects interpellés et un troisième en fuite
+-  Harriette Cole: I feel like I ruin the vibe at parties
+-  The year in review: 50 wonderful things from 2023
+-  Holiday spending is up. Shoppers are confident, but not giddy
+-  This oil company invests in pulling CO2 out of the sky — so it can keep selling crude
+-  Подъëм на носки стоя: техника упражнения, какие мышщы работают
+-  Breaking: Binance Relists SOL, XRP, ADA, MATIC, And Other Crypto In USDC Spot Pairs
+-  Ohio at War Over Rebranding Forest Named After Racist Leader
+-  Trump Is Testing the Bounds of Presidential Immunity—and Losing
+-  Balik dari Luar Negeri, Bea Cukai Ingatkan Berhati-hati Situs e-CD Palsu
+-  BMI is a junk health metric — but there are alternatives that actually work
+-  'There has never been such big hype': Why space tech is booming thanks to AI
+-  A VC cataclysm has begun. Early 2024 will be rough. But it won't change anything.
+-  I was diagnosed with autism and ADHD after quitting school and several jobs. Knowing how my brain works has changed my life.
+-  Recession will hit the US in 2024 – so get ready for massive interest-rate cuts, UBS says
+-  The top 15 people in enterprise artificial intelligence
+-  Deutsche Bank's 'Fresh Money' stock portfolio has returned 150% since 2017, beating the S&P 500. Here are the 29 new names it just added — including one with 160% upside.
+-  Hamarosan már a Prime Video előfizetők sem fogják megúszni a reklámokat
