@@ -1,51 +1,51 @@
 # Latest News
--  '부동산 PF' 연쇄 부실 우려…정부, 건설업 종합지원 대책 마련
--  Hasta el sábado se posesionarán los nuevos dignatarios en La Guajira
--  Началникот на израелската армија вели дека земјата мора да биде подготвена за офанзива против Либан
--  Херсонда Россия зарбасидан кейин 100 минг киши электрсиз қолди.
--  Ўзбекистон маҳаллалари уюшмаси ташкил этилади.
--  Оилавий тадбиркорларга 5 нафаргача доимий ходим ёллаш ҳуқуқи берилди.
--  Вакиллик парламенти, тенглик, сўз ва матбуот эркинлиги кафолатлари: жадидларнинг миллий ҳуқуқ тизимини шакллантиришдаги ўрни ҳақида.
--  [28일 이천시] 고향사랑기부금 1억 원 돌파
--  Il Toro ritrova Bellanova: è la certezza di Juric
--  Juric: il rinnovo passa anche dal mercato
--  Asgari ücret için nokta atışı yapan Cem Küçük, bu kez memur ve emekli maaşı için rakam açıkladı
--  CHP, 12 şehidimizi parti içi kavgaya perde yaptı
--  İzmir açıklarında düzensiz göçmen operasyonu
--  41 ilde eş zamanlı 'Narkogüç' operasyonu
--  Perihan Savaş, eski eşi İbrahim Tatlıses ile yıllar sonra bir araya geldi
--  철도공단, 미래 철도설계 책임질 신진 건축사 발굴 박차
--  לחיים, ועוד קצת. כי אין דרך יותר טובה לסגור את 2023
--  AB-CD, תל אביב: החגיגה השמחה של לואי חלבי כבשה את דיזנגוף
--  העברות בעולם, 28.12: ליברפול קרובה להחתים בלם, מסי יצרף חבר נוסף למיאמי?
--  विराट कोहली और अनुष्का शर्मा की शादी की सालगिरह में 'एक चीज' बहुत चमकी!
--  Congress: నాగపూర్ వేదికగా కాంగ్రెస్ 139వ ఆవిర్భావ దినోత్సవం.. కారణమేంటంటే..
--  لا حرب في الجنوب ولا انتخاب رئيس!
--  '김건희특검' 처리 임박…한동훈 비대위 인선 발표
--  Covid: ఆ తర్వాతే నిర్ధారణ.. కరోనాను గుర్తించడంలో ఆలస్యం
--  Two Australians killed in an air strike in Lebanon
--  [28일 수원시] 하수슬러지 처리시설에 새 악취방지시설 설치 등
--  Ministrica Vrečko na veliko zapravlja naš denar
--  Culture ministry to reform artist support system
--  Fed's rate cut may not come as quickly as market anticipates: Stifel economist
--  Melting glaciers
--  জেল থেকে বের হয়ে ইভ্যালির রাসেল কি হুমকির মুখে?
--  강제동원 2차 소송 또 승소 확정…“미쓰비시, 강제동원 노동자에 배상”
--  총선 앞 ‘독도는 분쟁지역’ 논란 일파만파…與도 ‘전전긍긍’
--  ‘육장갈비’ 고깃집 업종변경 창업 지원
--  경제단체장 신년사 “글로벌 경제 위기…규제 혁파 기업 활력 높여야”
--  الجيش الإسرائيلي: مقتل 3 جنود بينهم ضابطان في معارك وسط قطاع غزة
--  Φωτιά σε διαμέρισμα στο Παλαιό Φάληρο - Στο νοσοκομείο δύο άτομα
--  Над 40 загинали при взрив на цистерна с гориво в Либерия
--  Строительство нового жилого квартала планируют начать в Жабинке в 2024 году
--  ‘सलार’ की रफ्तार धीमी पड़ी, तो मेकर्स ने ‘गदर 2’ वाला सॉलिड दांव खेल दिया
--  حراكٌ محلّي في الملف الرئاسي؟
--  एक दिन के लिए जा रहे हैं ट्रिप पर? बैग में इन चीजों को रखना न भूलें
--  20 мртви во напад на станбена зграда во Појасот Газа
--  Edomex: Angustia y desesperación por la desaparición de cuatro polleros
--  Balował z Ronaldinho, Guardiola wyrzucił go z Barcelony. Piłkarz zaginął 4 lata temu
--  طقس المملكة اليوم.. أمطار متباينة الشدة.. إليك خريطتها
--  Son dakika! 41 ilde 'Narkogüç' Operasyonu: 418 gözaltı, 1 ton 480 kilogram uyuşturucu...
--  На KASE доллар продается ниже отметки 455 тенге
--  8GB रैम, 5000mAh बैटरी के साथ Coolpad Grand View Y60 स्मार्टफोन लॉन्च, जानें कीमत
--  Japans industriproduktion sjönk i november
+-  Cyprus Business Now
+-  Dead By Daylight Player Survey Hints At Possible Game Modes
+-  Terkuak! Anies Ternyata Sering Ditampar Orang saat Kampanye
+-  Država u opasnosti da izgubi sudski spor, treba konsultovati UNESCO
+-  Kunjungi Banyuwangi, Anies Sayangkan Masih Adanya Ekspor Pasir Laut ke Negara Tetangga
+-  Mininter refuerza combate contra terrorismo, narcotráfico y crimen internacional
+-  Duizenden Argentijnen de straat op tegen economische hervormingen van president
+-  Cambriolages: ces stars prises pour cibles
+-  Raffi Ahmad Jual Menu Babi di Beach Club Bali, Muslim Halal Makan di Sana?
+-  پی ٹی آئی پنڈی سے اپنا امیدوار لائے گی: شیر افضل کے بعد بیرسٹر علی ظفر کا بھی اعلان، شیخ رشید کی امیدوں پر پانی پھر گیا
+-  Visite aux halles de Wazemmes, insitution de Lille
+-  Trending Twitter video: US man tied giant crocodile on tree in Tanzania, irks netizens
+-  Bybit, Önemli Rezerv Kanıtı Denetiminde Varlıkların Tam Desteklendiğini Onayladı
+-  Cara Top Up ShopeePay lewat ATM BRI, Praktis dan Cepat
+-  UK Economy Set to Escape Hard Landing in Boost for Rishi Sunak
+-  ISW: ВСУ са напреднали западно от Горловка
+-  Sengaja Keluarkan Ingus saat Live, Fuji Dicap Jorok dan Tak Beretika
+-  Mengenal Laku Pandai Besutan Bank BRI
+-  Encuentran a mujer sin vida en El Barreal
+-  Condena Xóchitl 'tibieza' de México ante EU por migrantes
+-  ¡Mazatlán iluminado! 100 colonias y comunidades ya cuentan con nuevas lámparas LED
+-  DMDK Founder Vijayakanth Passes Away At 71, PM Modi Expresses Grief Over Death Of Tamil Cinema Legend
+-  Два английски мача чакат зрителя днес
+-  Film Indonesia yang Berjaya di Penghargaan Film Internasional
+-  CRVENO-BELI NA TEŠKOM GOSTOVANJU: Evo gde možete pratiti prenos meča Panatinaikos - Crvena zvezda
+-  Aida muss Weihnachtsreise abbrechen: Kreuzfahrt-Gäste empört – „Warum nimmt man das größte Schiff?“
+-  Selain Le Nusa Milik Raffi Ahmad, 2 Restoran Ini Juga Sajikan Makanan Khas Indonesia di Prancis
+-  La capitalización bursátil de Ethereum alcanza los 291.000 millones de dólares gracias al crecimiento de las soluciones de capa 2
+-  Zomato se enfrenta a una reclamación de 401,7 millones de rupias en concepto de IVA por los gastos de envío
+-  Koffee With Karan 8: Karan Johar expresses regrets over missing out on working with Sharmila Tagore in Rocky Aur Rani Kii Prem Kahaani; actress says, “After my cancer, they didn't want me to take that risk”
+-  Vicky Kaushal dedicates a sweet Christmas post as he parties with wife Katrina Kaif and gang
+-  National Aluminium y RBL Bank afectados por la prohibición de negociación de F&O de la NSE
+-  SON DAKİKA: Kuzey Marmara Otoyolu'nda zincirleme kaza: 10 kişi öldü, 57 kişi yaralandı
+-  À la découverte des arènes de Nîmes, avec une visite aux flambeaux
+-  Gaming proponents size up the odds of a northern Virginia casino
+-  Izrael sprema ofenzivu na Libanon? “Moramo biti spremni”
+-  Ambadas Danve : मविआच्या काळात सर्वाधिक एफडीआय, देवेंद्र फडणवीसांच्या दाव्यानंतर दानवेंचा प्रतिदावा
+-  NISN Jadi Syarat Daftar SNPMB 2024, Ini Cara Verifikasi dan Validasi
+-  Guerrero levanta interés en Suecia
+-  Siguen cotizados en Honduras
+-  Lleva sus goles a Ecuador
+-  Panas van a la lomita hoy en Dominicana
+-  Todo por su patria
+-  Los retos del 2024 para Panamá
+-  El festival del jazz superó las expectativas de Danilo Pérez
+-  Capo del Clan del Golfo ya está tras las rejas
+-  Le dice sí a Panamá
+-  Receta para el año nuevo
+-  La mujer acusada de atacar a Charlie Sheen se declara no culpable
+-  Repite la mentira
