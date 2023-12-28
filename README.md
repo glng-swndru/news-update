@@ -1,11 +1,11 @@
 # Latest News
--  وفاة الحاج عبدالحليم عيسى رزق الشبلي
--  কুয়েতে প্রবাসীর সংবাদ সম্মেলন
--  Koffee With Karan 8: Sharmila Tagore rejected role in Karan Johar`s film
--  รพ.เทศบาลนครเชียงใหม่ จัดอบรมบุคลากรด้านทางแพทย์ฉุกเฉิน
--  중기중앙회, '오세훈 서울시장과 중소기업인 간담' 개최
--  „Uns ist egal, was Herr Lauterbach sagt!“ : Ärzte-Streik spielt in Dortmund keine Rolle
--  Autofahrer 60 Jahre ohne Fahrerlaubnis unterwegs: Brite hatte nur einen vorläufigen Führerschein
--  Dramatischer Verkehrsunfall an Weihnachten: Fußgänger von Auto erfasst – Mann stirbt in Klinik
--  PM rejects David Group’s proposal
--  K-pop Icon G-Dragon Launches Anti-Drug Foundation, Transforms Controversy into Catalyst for Change
+-  충남도 2024년 상반기 4급 이상 인사 단행
+-  황명선 전 논산시장, 정치자금법 위반 고발건 무혐의
+-  รวบ "แก๊งรับซื้อหมู" เมืองน้ำดำ "โกงตาชั่ง" เสียหาย 2.4 หมื่นบาท
+-  ย้ายรูปปั้น "ครูกายแก้ว" หลัง รฟท. สั่งด่วน ปรับกว่า 1.3 ล้านบาท
+-  소득 단절시 보험료 납입 1년간 유예
+-  반도체 회복 불구…기업경기 회복세 '미미'
+-  코오롱글로벌, 수처리전문기업과 환경분야 기술협력 나서
+-  ക്യാപ്ടനു വിട
+-  Inmates transferred as Dept addresses risk of brain fever spread
+-  "미국의 우크라 전략, '완전승리'서 '협상시 우위 확보'로 이동"
