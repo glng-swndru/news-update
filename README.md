@@ -1,51 +1,51 @@
 # Latest News
--  Aus für Sappi-Werkfeuerwehr in Stockstadt - Kreisbrandrat erläutert neue Situation
--  Pavimentan calles en Nuevo Triunfo
--  Almanya'da bir göçmen, "Bu Afganistan için" diyerek Alman gencin yüzüne şişeyle vurdu
--  (UŽIVO) PARTIZAN - VIRTUS: Crno-beli dočekuju tim iz Bolonje na zatvaranju polusezone u Evroligi! GROBARI SPREMILI KOREOGRAFIJU!
--  F1-sarjassa on kaksi kuljettajaa, jotka eivät sinne kuulu
--  BJ 바비앙, 끈만 있는 옷 입고 아슬아슬 섹시미…G컵 볼륨감 터질 듯
--  르세라핌 김채원, 갈수록 물오르는 동화 속 공주님 미모
--  Epic Games’in yeni ücretsiz oyunu belli oldu: 28-29 Aralık
--  Strong R sound of some Lancashire accents in danger of dying out
--  Наумов возвращается в "Витебск"
--  Руцкий перешел из "Славии" в "Торпедо-БелАЗ"
--  Иско продлил контракт с "Бетисом" до 2027 года.
--  "Орша" назвала имя нового главного тренера
--  Tonåringar döms för mordförsök i Uppsala
--  রাশিয়া-ভারত যৌথভাবে সামরিক সরঞ্জাম বানাবে
--  The Sun: Shqipëria mes destinacioneve të njohura për plazhet mahnitëse
--  Лукашенко освободил от должности двух судей Верховного суда
--  Amerikaanse olievoorraden flink gedaald
--  Lokayukta forms three teams to prepare a report on waste dumping in vacant BDA sites
--  Reagált a magyar katolikus egyház Ferenc pápa döntésére, mely jóváhagyta az azonos nemű párok megáldását
--  Match delayed after third official gets stuck in a LIFT leaving confused players stranded in bizarre scenes
--  Significativo revés para los acusados del femicidio de la trabajadora golondrina: qué arrojo el cotejo de ADN
--  Usher and H.E.R. Get Steamy in 'Risk It All' Music Video
--  Mercato - OM : C’est terminé pour le transfert de cet attaquant
--  Grčki mediji: Kleinheisler propustio trening i stigao u Split
--  Youth Arrested For Kidnap & Rape Of Minor Girl In Odisha’s Koraput
--  El grupo hotelero de la familia Matutes paga 39 millones para desaparecer de la "lista negra" de Hacienda
--  Sans surprise, les comptes épargnes sont mieux rétribués dans les banques en ligne
--  Nikki Haley's Refusal to Blame Slavery for the Civil War Is an Insult to GOP Voters of Color | Opinion
--  I must be from different planet, says Dyche after penalty decision
--  Patient’ association worried over Gesy funds
--  Velikan u golemim dugovima: Vatreni ih održao na životu, već su trebali biti debelo sankcionirani
--  Aloja vera: Prirodno čudo za zdravu i sjajnu kosu
--  PM to inaugurate new airport, redeveloped railway station in Ayodhya
--  Fact Check: Will Ayodhya International Airport Be Named After Valmiki?
--  After drawing flak, Neda insists lower food tariffs help Filipinos
--  Judih Weinstein Haggai, Canadian woman kidnapped by Hamas, has died
--  'Rude and inappropriate': Sophie Marceau remembers French icon Depardieu
--  Rejtélyes hatása lehet, ha több parkolóhelyet épít Budapest
--  Ukraine-Blog: DOSB-Chef rechtfertigt Russland-Kurs
--  Firecrackers and fireworks harmful to pets, too–groups
--  200 ‘mujahideen scholars’ complete tech-voc courses
--  SWS poll: Just 3% of Pinoys will welcome new year with fear
--  Es oficial: publican decreto sobre despenalización del aborto en Aguascalientes
--  Concerted lobbying for betterment of rail services for Coimbatore region yielding desired outcome
--  Pablo Iglesias pide a las bases de Podemos rechazar la coalición con Sumar y pedir el voto para el BNG
--  مشهد صادم.. أطلق النمر على صديقه في مزحة داخل قصره
--  شاهد.. أمطار غزيرة وبرد كثيف جنوب حائل
--  عاجل.. تنبيه مهم من الدعم السكني بشأن الرهن العقاري
--  Parsberg: Gewaltverbrechen in der Oberpfalz – zwei Tote und ein Verletzter
+-  OCHA: “L’ampleur des attaques et des dégâts empêche l’acheminement de l’aide vers G-a-z-a”
+-  Wrexham losing "a tonne of money" after stadium gamble backfired
+-  Detenidas dos mujeres con 120 dediles de cocaína en sus cuerpos
+-  Джокович отсече за Алкарас: Той е...
+-  Diváci v Topoľčanoch videli strelecké hody, v záverečnej tretine padlo 9 gólov
+-  Vídeo de sexo de anime teve aumento nas buscas do Google em 2023. Saiba o mês mais buscado!
+-  Arkansas Storm Team Blog: Flurries, light snow possible Friday
+-  Noteworthy Celebrity Instagram 'Unfollows' of 2023 (Including Rumored Drama, Perceived Disses, & 1 Who Lost 8 Celeb Followers)
+-  Bar: Dodijeljeni paketići za djecu bez roditeljskog staranja
+-  Joao Cancelo names Frenkie de Jong as his ‘most surprising’ player at Barcelona
+-  Ärzte schließen Praxen: Lauterbach hält Forderung nach mehr Geld für unbegründet
+-  Newcastle urged to sign former Man Utd star on FREE transfer by club legend Alan Shearer after Forest horror show
+-  FOTO: Izlio se Dunav u Budimpešti, voda došla do zgrade parlamenta
+-  News24 | Friday's weather: Fine and warm, but expect thunderstorms in some parts of the country
+-  „Luftschlösser“ in Bayern: Bund Naturschutz will Söder zur „Besinnung“ rufen
+-  Európska únia vyplatila Poľsku prvých päť miliárd zo zmrazenej pomoci
+-  Letecké nešťastie v Nepále si vyžiadalo 72 mŕtvych: Chyba bola na strane pilotov!
+-  Hnutie Slovensko vyzýva prezidentku, aby nepodpísala novelu kompetenčného zákona
+-  The 5G Future: 3 Stocks Leading the Next Communication Revolution
+-  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
+-  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
+-  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
+-  انتقال ۵ زندانی محکوم به اعدام به سلول‌های انفرادی زندان ارومیه
+-  CryptoQuant: "'Buy the Rumor, Sell the News' Scenario May Occur in Bitcoin and BTC Price May Make a Major Correction!"
+-  Delincuentes fuertemente armados robaron entidad bancaria de Durán
+-  Ce raccourci incroyable découvert par les joueurs de Baldur’s Gate 3 après des centaines d’heures
+-  ALULA WIRD MIT DEM ERSTEN ALULA-FALKEN-CUP-TURNIER ALS ERSTE HEIMAT FÜR HISTORISCHEN SPORT IN SAUDI ARABIEN GESTÄRKT
+-  Руската ЦИК даде на Борис Надеждин да продължи кампанията си за участие в президентските избори
+-  Nach Luftangriff mit Dutzenden Toten: Israel äussert Bedauern
+-  TMW Radio - Jacobelli: "Non dimentico il rigore scandaloso dato al Newcastle contro il Psg: Milan eliminato poi"
+-  ¡Pilas! Si transfieres de Nequi a una cuenta hoy, se reflejará hasta 2024
+-  TOP NEWS ore 17 - Le parole dei tecnici di Serie A. Il Real Betis ha blindato Isco
+-  Svetislav Pešić podržao mlade nade Bosne, dobio i zanimljiv poklon
+-  Transplant season 3 exclusive clip: Bash under pressure
+-  Jandarmadan sanal devriye! 1045 internet adresine erişim engeli
+-  Avcılar'da otomobil ile yolcu minibüsü çarpıştı: 3 yaralı
+-  Dog with horrific injuries saved after being cruelly dumped in a hedge on Christmas Day
+-  Taylor Swift and Travis Kelce exchange extravagant gifts during intimate Christmas
+-  Mario Giordano: "Ammiro Italiano ma spero nella riconferma di Juric"
+-  Amanda Holden suffers huge mishap after giving fans a glimpse inside lavish Surrey home
+-  Poliisi: Joulupukki mokasi
+-  Gavrankapetanović imenovan za generalnog direktora KCUS-a
+-  S&P/TSX composite slips, U.S. markets tick up
+-  Fresh round of weather misery for Scots as New Year set to bring heavy rain & snow
+-  Donacije javnim ustanovama za djecu i mlade sa smetnjama u razvoju
+-  Jede zweite Rettungskraft der Feuerwehr hat Angriffe erlebt - nicht nur an Silvester
+-  Eins og að kvarta undan fréttaflutningi af eldgosi
+-  Researchers find risk of miscarriage increases with benzodiazepine use in pregnancy
+-  Fannys bästa tips – så dukar du upp till fest på nyår
+-  Fannys bästa tips – så dukar du upp till fest på nyår
