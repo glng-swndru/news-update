@@ -1,51 +1,51 @@
 # Latest News
--  2024 Doğum ve Askerlik Borçlanması Ne Kadar Oldu?
--  Kahramanmaraş'ta zincirleme kaza: 15 kişi yaralandı
--  Birbirlerine düştüler! DEM Parti sözcülüğüne soyunan CHP'den İYİ Parti'ye Gara hatırlatması
--  Rekabet Kurumu: Karteller fiyat ve ücret müdahaleleri kırmızı çizgimiz
--  İstanbul Boğazı'nda kılavuz kaptan ihtiyacı artıyor
--  Trabzonspor'da 4 futbolcuya yol gözüktü
--  DHMİ'den yeni düzenleme
--  İsrail'in Lübnan'a yaptığı hava saldırısında 2 Avustralya vatandaşı hayatını kaybetti
--  Alperen Şengün'ün 24 sayısı Rockets'a yetmedi
--  '김학범 사단 완성' 제주, 2024시즌 코칭스태프 구성 확정
--  إليك أسباب عناد الطفل وعصبيته
--  ايران: إسرائيل لن تحقق أهدافها من الحرب
--  李善均逝世丨傳媒YouTuber擅闖靈堂拍攝引騷動！經理人公司出聲明：難以承擔的殘忍
--  [비즈&] 롯데백화점, '가장 혁신적인 백화점 상위 10' 선정 外
--  Турската полиция се сдоби с луксозни патрулки
--  Ušli u povijest: Hrvatski prvoligaš ima najgori napad u elitnim rangovima svih europskih država
--  Bitcoin e Crypto: 2024 “anno di svolte cruciali”, l’analisi
--  Euroleague: Σφαιρόπουλος VS Παναθηναϊκός πράξη 10η (vids)
--  INSÄNDARE: Bussdepån är bra långsiktigt för klimatet
--  The children with a one-in-four chance of finishing school
--  Wife Stabs Husband In His Eyes With Scissor: यूट्यूबची मजा...आयुष्यभराची शिक्षा! बायकोच्या फोनवर गाणी ऐकणे पतीला पडलं महागात; पत्नीने कात्रीने वार करून फोडले डोळे
--  Natti Kumar: ఆర్జీవీ ఒక డైరెక్టర్.. వైసీపీ వాళ్లు డబ్బులిస్తే ‘వ్యూహం’ తీశాడు
--  Australia oo sheegtay in Israel ay duqayn ku dishay laba ka mid ah muwaadiniinteeda
--  У Чорному морі на ворожій міні підірвалося цивільне судно під прапором Панами - Сили оборони Півдня
--  Dodik: Kad proglasimo nezavisnost, očekujem da EUFOR-a spriječi sukob
--  Во сообраќајна несреќа во Италија загинаа тројца болничари и пациент во судир на амбулантно возило и автобус со деца
--  PES: Nastavak hapšenja dokaz da je Abazović govorio neistine
--  Валиева — о неудачах: поплакала, пострадала — и пошла работать
--  VIDEO: बाबर ने जिस गेंदबाज को 3 साल में सिर्फ 2 मैच खिलाए, उसने ऑस्ट्रेलिया में कर दिया कमाल, फेंकी अद्भुत गेंद
--  Espectacular Luna Fría en Donostia
--  Кенозерскому национальному парку исполнилось 32 года
--  Eljif Elmas'ın Leipzig transferi Fenerbahçe'ye de kazandırdı!
--  It's a Wags life! Jack Grealish's girlfriend Sasha Attwood jets off for 17 holidays in one year
--  നിങ്ങളുടെ മക്കള്‍ക്ക് ആത്മവിശ്വാസം തീരെയില്ലെന്ന് തോന്നിയിട്ടുണ്ടോ?
--  Petra Vlhová ide vo štvrtok obrovský slalom v rakúskom Lienzi (online)
--  «Продвижение противника было остановлено»: в ВС РФ заявили об отражении попытки атаки ВСУ на Краснолиманском направлении
--  Stopaj Gelişmesi! Türk Lirası Mevduatları ve Katılım Hesapları İçin Yeni Tarih Belirlendi
--  UP Shocker: बागपत में चाय मांगने पर महिला ने पति पर कैंची से हमला किया, आंख में घोंपा चाकू
--  Τσιόδρας για γήπεδα: «Δεν ανοίγουν πριν από τις 12 Φεβρουαρίου»
--  Arrestohet një person me shtetësi turke në aeroportin e Prishtinës
--  В Пензе запустили центр помощи «Дети в семье»
--  Easy like Sunday morning
--  Body of kayaker found off Mornington Peninsula beach
--  Las ramas llegan hasta mitad de la carretera
--  Азербайджан нашел еще один повод для споров с Арменией и пригрозил последствиями
--  Ganjar: 400 Triliun Mau Digunakan untuk Makan Siang?
--  В Невинномысске ураганный ветер с корнем вырвал тополь рядом с колледжем
--  G-Dragon Hampir Perbarui Kontrak dengan YG, Tapi Gagal Gara-Gara Kesalahan Besar Agensi
--  „Финска прва ќе настрада!“: Руски функционер им се заканува на соседните земји кои влегуваат во НАТО
--  Претепан доктор на клиника во Белград, има сериозни повреди на главата
+-  Oil prices stabilise as Red Sea transport disruptions ease
+-  Invest Cyprus: Playing a pivotal role in Cyprus’ economic landscape
+-  Police seek to establish exact charges for beef smuggling case
+-  Fizičari osmislili eksperiment za pretvaranje svjetlosti u materiju
+-  „Welt der Kleinwaffen“ revolutioniert: Gaston Glock ist tot
+-  Emergency systems offline after ransomware attack
+-  국회, 신임 사무총장에 3선 출신 백재현 임명
+-  EQT-fond har flyttat BHG-innehav till medinvesterare
+-  كان 2023: 6 منتخبات اختارت الإستعداد بالإمارات
+-  عادات يجب اتباعها لصحة الرئتين.. احرص على تناول هذا الفيتامين
+-  Три курсантки ВИПЭ ФСИН России получили в Вологде стипендию имени Х. Леденцова
+-  При столкновении двух легковушек в Рыбновском районе пострадали оба водителя
+-  Į ritmą grįžtantis Lekavičius – apie greitą reabilitaciją ir Kalėdų senio vaidmenį
+-  Nienburger kämpfen gegen Wasser im Haus: teilweise zum zweiten Mal in kurzer Zeit
+-  Tko dolazi na čelo DORH-a? Zasad stigla samo jedna prijava
+-  Индексите в Токио поеха надолу, Уолстрийт затвори скромно
+-  Nienburg, Liebenau, Steyerberg: Von Pumpen und Kellern, Geschichten, die das Hochwasser an der Weser schreibt
+-  Family left homeless after car crashed into their house on Christmas Day
+-  U Rakovom Selu dvojica muškaraca napali novinarku dok je obavljala svoj posao. Obojica su privedeni
+-  Loire-Atlantique: une église retrouve les santons de sa crèche de Noël grâce à une puce GPS
+-  Лавров назвал главную дипломатическую победу России в 2023 году
+-  لليوم الثاني على التوالي الاحتلال يقصف محيط مستشفى الأمل في خانيونس
+-  Медведев высказался о возможных переговорах России и Украины
+-  Teenager dies in Australia shark attack
+-  Modi’s government targeted Indian journalists with Israeli spyware, says Amnesty
+-  11 il həbs cəzası verilmişdi, bəraət aldı
+-  外媒揭中國施壓五月天在選前表態親中 海基會：不樂見政治因素施壓
+-  Tributes paid to young Irishman killed in New Zealand road tragedy on Christmas Day
+-  Thariq Halilintar Diledek Garing Main Acara Sketsa Komedi Desta Cs
+-  Oberpfälzer bedroht seine Familie und greift zur Axt - die Polizei schießt
+-  Лавров рассказал о сплочении российского народа
+-  Niektorí chorí, tehotné ženy aj mamičky si polepšia, Sociálna poisťovňa zvýši maximálne sumy dávok
+-  Не летает, зато проедет почти везде. Видели "Драконов" белорусской армии?
+-  David Beckham and Victoria leave fans in hysterics with 'subtle' detail in Christmas dinner
+-  Curhatan Pengusaha Sablon di Jakbar Perang Harga Demi Raup Cuan dari Caleg
+-  민경우 與 비대위원 '노인폄하' 발언 논란..."신중치 못한 표현 사과"
+-  Apa itu Briket Arang? Diduga Penyebab Lee Sun Kyun Meninggal di Dalam Mobil
+-  المشرف المركزي لوزارة الصحة يتفقد سير عمل فرق التحصين الايصالي بلودر
+-  Guns and Gulaabs sequel announced, Rajkummar Rao's Paana Tipu to return for revenge
+-  Finansal sorun yaşayan 10 AVM için geçici süre
+-  Dozens sickened in E.coli outbreak linked to artisan cheeses recalled
+-  European Super League: Στα 15 δις ευρώ το μπάτζετ της για τις πρώτες τρεις σεζόν
+-  Chelsea fans told to keep an eye on Alfie Gilchrist by club legend after ‘charged up’ debut
+-  Запад пытался поставить Сербию перед выбором, заявил Лавров
+-  傳中國要求五月天發表一中言論 郭倍宏：又來了！只會適得其反
+-  Hoće li dogodine rasti kamate na kredite?
+-  Cinsel istismar suçundan hakkında hapis cezası bulunan zanlı yakalandı
+-  "Un año de gran giro y gran cambio": Kim Jong-un evalúa los resultados del 2023 para Pionyang
+-  Selskabsmeddelelse 6/2023
+-  Новые жертвы угарного газа в Баку
