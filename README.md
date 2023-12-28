@@ -1,51 +1,51 @@
 # Latest News
--  Legal fireworks sales period to start today
--  Pak dragging feet on extraditing LeT founder 26/11 Mumbai attack mastermind Hafiz Saeed to India: Sources
--  Young rugby player dies on Christmas Eve after ‘devastating head injury’ as family’s world ‘turned upside down’
--  Puzzle Solutions Edition 2008
--  South Korea police defend probe of ‘Parasite’ actor who was found dead
--  Warum ein Baseball-Spieler 700 000 000 Dollar bekommt
--  (가칭)제주과학기술정보산업혁신원 '설립 타당'
--  Fatih Terim Galatasaray'a çok istediği isme 11 yıl sonra yeni ekibi Panathinaikos'ta kavuştu!
--  I’m 44 and eat my way to being wrinkle-free – my 5 go-to foods also reduce pores, prevent blackheads, and boost collagen
--  ارتفاع النـفـط عالمـيا
--  استحداث عيادة للأمراض الصدرية في جرش
--  تركيا تفرج عن مدان في قضية (تسريبات القذافي)
--  Mariah Carey and Bryan Tanaka split after 7 years together, dancer confirms
--  – فريق من بعثة الأمم المتحدة يلتقي نخبة من الأكاديميين والقانونيين من الجامعات الليبية .
--  一加Ace 3将首发1.5K东方屏 屏幕峰值亮度可达4500尼特
--  China urges nationals to leave north Myanmar region amid unrest
--  Kuzey Marmara Otoyolu’ndaki katliam gibi kazada dehşeti yaşayan yolcular İstanbul’a getirildi
--  Tüketiciler Derneğinden 'restoranlarda liste asma uygulaması fiyatları düşürebilir' değerlendirmesi
--  AMERİKAN DOKTRİNLERİ VE ORTADOĞU (1)
--  Erbakan: Asgari ücret çalışan nüfusun yarısını açlık ve yoksullukla yüz yüze bırakacak
--  New Oriental to Report Second Quarter 2024 Financial Results on January 24, 2024
--  Memur, memur emeklisi, SSK ve Bağ-Kurlular zamlarını merakla bekliyor... İşte zam hesaplaması
--  Air, rail traffic hit as Chandigarh sees season’s first dense fog
--  Fenerbahçe'de Fred etkisi
--  Gazze'de 167 İsrail askeri öldürüldü
--  Batı'nın Filistin desteklerini "şeytanlaştırma" çabasına sert tepki: Engel olamayacaklar
--  Türkiye'den gerilim yaşayan Kosova ve Sırbistan'a teklif: Diyaloğa katkı sunabiliriz
--  Aralarında Türkiye'nin de bulunduğu D-8 gelir artırmaya odaklandı
--  ABD ile F-16 kördüğümü çözülüyor... Cumhurbaşkanlığı'ndan açıklama: Anlaşmazlık noktaları azaldı
--  2024'te çevreyi kirletenlere verilecek cezalar belli oldu
--  Çekya'da 14 kişiyi öldürerek katliam yapan saldırgan daha önce bir baba ve kızını öldürmüş
--  İrəvan Moskvanı bunun qarşılığında Qərbə satır
--  Son düzlükte gülen taraf Galatasaray
--  US court rejects Chinese ecommerce giant Alibaba’s effort to quash faked Squishmallows case
--  JANSEN | "All I want for Christmas is the means of production"
--  Руїс: Я молився за Паркера, хотів, щоб він виграв у Вайлдера
--  Roman Abramovich sues Israeli bank over blocked donation
--  Météo en Tunisie : Brouillard matinal et temps nuageux
--  [ŽT] „Dešimtys kūnų, kai kurie sudegė gyvi tiesiog kajutėse. Siaubas.“ Skelbiama, kiek su įgula išsitaškė „Kalibr“ ir KAB-500
--  [ŽT] Neįtikėtina. „Ateities reikalas.“ Rusija reikalaus kompensacijų
--  Good progress is being made in Inishowen – Crossan
--  Cash withdrawals hit all-time high on last Friday before Christmas – Post Office
--  Bogdanka Arka Chełm nadal na podium
--  Niezbędnik do makijażu, bez którego trudno się obyć
--  In the news today: Palestinians seek refuge as Israeli operation in Gaza expands
--  Tarkista heti, muistitko käyttää jopa 400 euron rahaedun – Nyt on jo kiire
--  KRISTIJAN I KRISTINA PROSLAVILI SINU PRVI ROĐENDAN Baloni i raskoš na sve strane, napravili bajku, a oni su bili glavni gosti!
--  Ini Awal Mula Media Asing Juluki Gibran Nepo Baby
--  Tanggapi Bawaslu Soal Surat Suara di Taipei, Hasyim Asy'ari: Yang Lebih Tahu KPU
--  ”Koko asema voitaisiinhelposti palkita”– Jääurheilu ja purjehdus tuovat vastapainoa Lounais-Suomen vuoden poliisin Teemu Grönrosin työlle
+-  Immediate Lidex Review Detailed Report By Traders Canada, Australia, UK (AI
+-  Ariana Grande announces new album for 2024
+-  Nothing extraordinary about JD(U) conclave, says Nitish Kumar
+-  North Korea leader Kim Jong Un orders military to `accelerate` war preparations
+-  Delhi Police moves court seeking permission for polygraph test
+-  Russia-India ties making `steady headway` despite `current turbulences`: Putin
+-  When Gulzar revealed that Rajesh Khanna did `Anand` for a nominal fee
+-  Raj and DK`s `Guns and Gulaabs` renewed for season 2
+-  Çaykur Rizespor'da ayrılık rüzgarı!
+-  Pınar Karşıyaka 9. zaferi için parkeye çıkacak
+-  Cumhurbaşkanı Erdoğan'ı hedef alan 'Gazze kasabına' AK Parti'den sert tepki: Netenyahu'nun sözleri yok hükmündedir
+-  İsrail'in saldırılarında ölen İran Devrim Muhafızları komutanlarından Musevi'ye cenaze töreni düzenlendi
+-  Fenerbahçe'den Serdar Dursun sürprizi
+-  RTÜK'ten tepki çeken 'Kızıl Goncalar' dizisi için karar
+-  Şanlıurfa'da jandarma operasyonunda 129 göçmen yakalandı
+-  Malatya'da 4,6 büyüklüğünde deprem
+-  Liberya'daki tanker patlamasında bilanço artıyor: 40 ölü
+-  Bakan Güler: TSK, Cumhuriyet'in en kapsamlı, en yoğun ve en etkin faaliyetlerini icra etmekte
+-  Zamlı 2024 apartman görevlisi maaşları ne kadar olacak?
+-  Konya'da görevli meslektaşına 'cinsel saldırıya teşebbüs' suçundan yargılanan savcı beraat etti
+-  Fabrikada elini kesim makinesine kaptıran işçinin 2 parmağı koptu
+-  Diyarbakır'da 2 sığınakta 452 kilogram esrar ve mühimmat bulundu
+-  Kahramanmaraş'ta 22 aracın karıştığı 2 zincirleme kazada 15 kişi yaralandı
+-  RTÜK'ten Kızıl Goncalar dizisine ceza
+-  Malatya'da 4,6 büyüklüğünde deprem
+-  Zdradził go brak świateł
+-  Jak wybrać idealny zestaw kosmetyków męskich na prezent świąteczny?
+-  Astronauti zverejnili FOTO vianočných osláv vo vesmíre: Nechýbali ani darčeky, pozrite na to!
+-  Ak by som sa stal prezidentom, odmietam zmeny pri rozdelení rezortov, tvrdí Pellegrini
+-  Mimoriadne tragické ráno na slovenských cestách: O život prišli dvaja vodiči! Autá skončili úplne zdemolované
+-  Utrudnienia w centrum miasta potrwają jeszcze dłużej. Wykonawca tłumaczy się pogodą
+-  Profilaktyka nowotworowa – jak uchronić się przed czerniakiem?
+-  Ťažko chorý syn (7) Jána Dobríka: 80 % času je v nemocnici!
+-  GUS: liczba pracujących w gospodarce narodowej w końcu lipca wyniosła 15,1 mln
+-  Na europejskim rynku akcji maleje przewaga popytu
+-  NBP: w III kwartale oddano do użytku o 15 proc. mniej mieszkań
+-  PIE: ponad połowa firm obawia się wzrostu inflacji w 2024 r.
+-  Bus rapide transit (Brt) : 121 bus articulés, 300 passagers attendus par jour ( Document)
+-  Dramatic moment armed cops arrest drug-crazed killer minutes after going on random stabbing rampage which left one dead and two others wounded
+-  Dramatic moment armed cops arrest drug-crazed killer minutes after going on random stabbing rampage which left one dead and two others wounded
+-  Pretziener Wehr geöffnet - Elbe-Höchststand in Dresden steht noch aus
+-  অস্ট্রেলিয়ার শিক্ষা প্রোফাইলে আরও ১৮ বাংলাদেশি বিশ্ববিদ্যালয়
+-  Obligatierente eurozone handelt gemengd in de buurt van dieptepunten in meerdere maanden
+-  Anleiherenditen der Eurozone handeln uneinheitlich in der Nähe von Mehrmonatstiefs
+-  Психолог рассказал, как поднять настроение на новогодние праздники
+-  Banjir: Anwar umum lima projek baharu di Kelantan
+-  Moment crazed accountant and his Louis Vuitton-toting husband have meltdown at Charlotte Douglas Airport and curse at wheelchair-bound woman after accusing American Airlines staff of keeping them from their DOGS
+-  Sky Sports News presenter's VERY lewd slip of the tongue leaves fans in hysterics after he tried to describe how Wayne Rooney wanted to replace all of his Birmingham City players
+-  Rastislav z Banskej Bystrice prerazil v Londýne: Slováci tu pracujú tvrdo ako ťažné kone, neboja sa zobrať špinavú prácu
+-  LEES OOK - Vooruitzichten wereldwijde grondstoffen 2024
