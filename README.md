@@ -1,11 +1,51 @@
 # Latest News
+-  제주지역 부채가구 주 원인 '주택 마련 자금'
+-  월동채소 당근 생산량 73% 증가… 수급 조절 '비상'
+-  제주도 4년 연속 종합청렴도 2등급 달성
+-  ח"כ טיבי על הערבים שהואשמו בהסתה: "נקמנות, הם רק אמרו שהם נגד המלחמה"
+-  צה"ל: "הרחבנו את הפעולה בחאן יונס, פועלים בשיטות חדשות"; נפל כטב"מ עוין אותר ברמת הגולן
+-  ארה"ב: מפגינים פרו פלשתיניים חסמו את התנועה לשדות התעופה בניו יורק ולוס אנג'לס - עשרות נעצרו
+-  Няма постъпили сигнали от пострадали българи след бурите в Австралия
+-  [MLB] "이정후, SF가 12년간 배출 못한 신인왕 후보"
+-  Fiscalía evalúa acciones legales contra DL que permite a la PNP investigar sin presencia de fiscal
+-  2 critical, over 20 injured in road accident in Odisha’s Keonjhar
+-  Família de Ana Clara Benevides vai entrar com ação por danos morais contra T4F, diz advogado
+-  블링컨 美국무 "우크라이나에 2억5천만달러 추가 군사지원"
+-  SAT: Descuentos de impuestos para jubilados y pensionados
+-  The Easiest Way to Figure Out Which Part of Your Car Is Leaking
+-  Убиецът на студентите в Прага признал в писмо, че отнел живота на баща и бебето му
+-  Centro de Zoonoses atendeu mais de 300 ocorrências de abandono e maus-tratos de animais.
+-  Arsenal Sekarang Sudah Hafal Rasanya Puncak Klasemen
+-  Inversione di tendenza, clamorosa sorpresa (positiva) per la Ferragni: dopo lo scandalo...
+-  Budi heroj u 4 grada u Srbiji: Akcija dobrovoljnog davanja krvi
+-  Congress to hold ‘Bharat Nyay Yatra’ from Jan 14
+-  강신성 전 광명을 지역위원장 출판기념회..."민주적 가치 실천·정신 담아내"
+-  Perfil “anuncia” participação de Simaria no BBB24 e fãs vão à loucura
+-  Susana Vieira faz revelação bombástica: “Não sei se continuarei”
+-  Ekonomiye ilişkin düzenlemeler içeren kanun, Resmi Gazete'de
+-  Govt directs digital platforms not to carry Ads of fraudulent loan apps
+-  Mobile app helping keep workers safe at construction worksites
+-  서울시 '일·육아 동행 근무제' 내년 시행…초등생 부모 오후2시 퇴근
+-  Centre bans Masarat Alam led JK Muslim League for 5 yrs
+-  CUSD Dry Creek Elementary students add a creative touch to morning announcements
 -  ㈜한원건설그룹, 서서울미술관 신축공사 수주
 -  알파코, 성수 3캠퍼스 오픈... 디지털 인재 양성 속도전
 -  오라클자바교육학원, PM 실무자 위한 ‘프로젝트 관리 실무교육’ 모집
+-  MPhil not recognised degree, stop admissions for 2023-24 session: UGC To Universities
 -  Чемпіонат світу U-20 з хокею: календар, результати матчів
+-  Harbaugh, Michigan savor trip to Disneyland after wild journey to CFP Rose Bowl semifinal
+-  แก๊งค้ายาเสพติดเชียงใหม่อินเทรนด์ใช้คริปโตฟอกเงิน มูลค่ากว่า 41 ล้านบาท
+-  함안군 '유튜브 영상 콘테스트' 공모전 시상
 -  국립군산대, 2023년도 최고수산경영자과정 수료식
 -  군산시, 따뜻한 성금 기부 세상의 빛을 밝히다
 -  군산시, 소통협력공간 조성사업‘우수기관’선정
 -  대통령실, '태영건설 워크아웃'에 "점검해왔다… 모든 조치 취할 것"
 -  GS25, 우리동네GS앱 인기상품 TOP10 발표
 -  [인사] 보령시
+-  Протестиращите в Сърбия обявиха 24-часова блокада на Белград
+-  Blinken viaja a México en búsqueda de medidas para frenar la migración
+-  Fiscalía señala que “seguirá cumpliendo su rol” en la investigación penal
+-  مفاجأة.. درجة حرارة الجسم "الطبيعية" ليست 37.. فكم تكون؟
+-  Showers, thunderstorms forecasted for several provinces, fairly heavy rainfall expected in selected districts
+-  Delhi reports first case of Covid-19 Sub-Variant JN.1: Officials
+-  ‘라임 사태’ 주범 김봉현 징역 30년 확정…추징 769억원
