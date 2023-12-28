@@ -1,51 +1,51 @@
 # Latest News
--  Durante festa repórter e pré-candidato a prefeito em Guarujá é executado
--  जेल में बंद AAP सांसद संजय सिंह हर शुक्रवार को रखेंगे उपवास, कई जगहों पर कार्यकर्ता भी देंगे साथ
--  حماس: هناك حوار مع مصر لفتح معبر رفح بشكل كامل
--  CPF irregular em 2024 vai cancelar o Bolsa Família
--  As carências do INSS para concessão de aposentadoria
--  Тайна Деда Мороза: психолог рассказала, как бережно объяснить ребенку, что подарки дарит не сказочный волшебник
--  PIS/Pasep com o cronograma de pagamento para 2024
--  Банки массово вводят изменения для денежных переводов
--  رئيس الحكومة المكلفة من مجلس النواب يستقبل وزير خارجية النيجر .
--  المفوضية الوطنية العليا للانتخابات تتابع الاستعدادات لانطلاق انتخابات المجالس البلدية المقررة مطلع العام المقبل .
--  منافسات ذهاب المجموعتين للدوري الممتاز تنطلق غداً الجمعة .
--  البحث الجنائي يلقي القبض ( 6 ) اجانب بتهم السرقة والتنقيب عن الذهب .
--  رئيس الحكومة يصدر تعليماته بمباشرة إجراءات الجرد السنوي للعام المالي 2023م .
--  المنفي يلتقي المفتش العسكري العام.
--  تأجيل اجتماع البرهان وحميدتي يصيب السودانيين بالإحباط .
--  الباعور يطلع المنفي عن زياراته الخارجية .
--  المصرف التجاري الوطني يعلن استئناف عمل آلات السحب الذاتي وبطاقة نمو ونقاط البيع.
--  محفظة ليبيا أفريقيا ترحب بإعادة افتتاح سوق الأوراق المالية.
--  Lanzan invitación para disfrutar del Desfile de Año Nuevo este 1 de enero
--  Gaza : Plus de 21 mille martyrs
--  Lebensgefährlicher Leichtsinn: Kanufahrer auf der Lippe sorgen für Großeinsatz
--  Aos 55 anos de idade, como conquistar uma aposentadoria no INSS?
--  Nelson Market: "Reconocemos que fue una estrategia de marketing de mal gusto"
--  Las calles de Zaragoza se iluminan por las fiestas
--  المدة المحتملة لغياب ستونز عن مانشستر سيتي
--  Влади Зографски преодоля квалификацията за първата надпревара от "Четирите шанци"
--  Edin Dzeko'dan Icardi açıklaması
--  2023, un año de lujo para Slim
--  Primeiras informações sobre o ecrã do OnePlus 12R
--  نجم ليفربول على رادار توتنهام
--  कभी टीवी एक्टर बनना चाहता था ये शख्स, अब कैटरीना कैफ के अपोजिट लीड रोल में करेगा साल की शुरुआत
--  పీటముడి
--  फ्लैटमेट ढूंढने के लिए महिला ने भिड़ाया ऐसा जुगाड़, पब्लिक बोली- ‘वॉट एन आइडिया मैडम जी’
--  Maduro ordena acción conjunta en respuesta a presencia de buque británico en Guyana
--  Kal Ka Mithun Rashifal: मिथुन राशि वालों को राजनीति में मिल सकती है अहम जिम्मेदारी, रखना होगा धैर्य
--  Câmara aprovou medida protetiva de urgência para mulher agredida e o protocolo “Não é não”
--  Startupet Izraelite të teknologjisë ngritën 7 miliardë dollarë investime në 2023
--  Орёл оказался на 9 месте в ТОП-10 регионов с самым дешёвым дизельным топливом
--  Pentágono anuncia que delitos de abuso sexual se juzgarán fuera de cadena de mando
--  La San Silvestre bullera se correrá en la mañana del domingo 31
--  Άρης: «Μέσα» και ο Φεράρι
--  Eddie Murphy is beszállt az év legrosszabb karácsonyi filmjéért zajló versengésbe
--  Un febril 2023, repleto de propuestas
--  Shkupi refuzon kërkesën e Ukrainës për dhurimin e pajisjeve ushtarake
--  Corte da paso a cambiar los requisitos para ser asambleísta
--  Top 5: ezek voltak 2023 legjobb magyar tévéműsorai Magyarországon!
--  L’adhésion de la Tunisie à une nouvelle convention de l’ONU permet de mieux lutter contre l’évasion fiscale
--  PUC Certificate के नियमों में बड़ा बदलाव, गाड़ी धुआं दे रही या नहीं, होगी वीडियो रिकॉर्डिंग
--  (Dez)informacji o sprzedaży Boerner Insulation ciąg dalszy
--  3rd Arab Elite Tennis Tournament : Aziz Dougaz champion arabe 2023 (vidéo)
+-  Sindikata: Shpenzimet elementare të një familje katër anëtarëshe janë 56.522 denarë
+-  Stojanović pušten iz UIKS-a u Spužu
+-  Brescia ha ingaggiato il libero Nicola Pesaresi
+-  La 1a di ritorno parte con Verona-Taranto
+-  Paraburgim 30 ditor për autorin e vrasjes në Çellopek të Tetovës
+-  Fenerbahçe Teknik Direktörü İsmail Kartal'dan derbi öncesi çarpıcı ifadeler
+-  Edin Dzeko'dan Süper Kupa, Galatasaray ve Mauro Icardi sözleri
+-  '김건희 특검' 앞둔 국민의힘 quot;실행돼선 안되는 악법quot;
+-  김용태 quot;'이준석 신당' 성패, 尹middot;한동훈에 달렸다quot;
+-  민주당 quot;한동훈, '국정농단 특검' 브리핑 잘 하더니hellip;quot;
+-  김정은, 엄중한 정세 속 quot;전쟁 준비 완성에 박차 가할 것quot; 주문
+-  남평오 '대장동 제보' 고백, 거리 멀어진 이낙연middot;이재명
+-  국민의힘 때린 이준석 quot;'특검 거부자가 범인'이라더니 '성역' 만들고 있어quot;
+-  김대기 비서실장 사임, 후임에 이관섭 정책실장 내정
+-  국방부 '독도=분쟁지역', 尹대통령 quot;엄중 조치하라quot;
+-  한동훈, 김경율middot;민경우 등 비정치인-전향인사 전면 배치
+-  일본에 '퍼주기'한 윤석열 정부, 이제 독도까지 내주나
+-  '한동훈 비대위' 민경우 quot;최대 비극은 노인네들이 너무 오래 사는 것quot;
+-  국민의힘, 중대재해법 시행 유예가 '민생법안'?
+-  문재인 quot;이선균 극단적 선택 원인은 수사middot;보도 행태quot;
+-  尹대통령, 비서middot;정책middot;안보 '3실장' 전면 교체
+-  조국 quot;尹, 개헌 통해 임기 단축 가능hellip;다음 대선 12월에 할 수 있다quot;
+-  이재명 만난 정세균 quot;낭떠리지에서 손을 뗄 결단 필요quot;
+-  [만평] 귀결hellip;
+-  대통령실 quot;쌍특검법 이송 즉시 거부권 행사할 것quot;
+-  결국 '워크아웃' 태영건설, 부동산PF 위기 본격화?
+-  국회 통과된 '김건희 특검법', 국민의힘은 대통령에 quot;거부권 요청quot;
+-  GDP 대비 민간 빚 비율, 올 3분기 역대 최고 기록
+-  민주 quot;독도가 분쟁지? 尹정권 국가관 의심hellip;신원식 파면해야quot;
+-  이태원 참사 다룬 다큐 lt;별은 알고 있다gt;, 마지막 순회 상영회
+-  미국, 우크라이나 '완전한 승리'에서 '협상 우위'로 전략 전환하나
+-  조응천 quot;한동훈, '김건희 성역' 때문에 남 탓만hellip;결국 '여의도 문법'quot;
+-  중대재해처벌법 위반 첫 실형 확정hellip;'솜방망이 처벌' 논란 가능성도
+-  창원시, 고향사랑기부금 목표액 3억 원 초과
+-  박지원 quot;독도가 사라지다니hellip;'제2의 이완용' 신원식, 파면해야quot;
+-  이태원 유가족 quot;참사 발생 426일, 진상규명은 첫발도 떼지 못했다quot;
+-  Hakan Çalhanoğlu, Jorge Jesus'u reddetti!
+-  Avrupa devlerinin Joshua Kimmich kapışması!
+-  İşgalci İsrail'in toplanma alanını vurduğu anlar görüntülendi
+-  Gıda denetiminde 535 milyon lira ceza kesildi
+-  Etkileri şaşırtıyor! Sabahları aç karnına bir bardak cevizli su içerseniz…
+-  Türkiye 2023'te uluslararası temasların odak noktasıydı... "Diplomasinin merkezi haline geldi"
+-  Bakan Fidan'dan Yaşar Güler'e taziye ziyareti
+-  Dirk Kuyt'ın yeni takımı açıklandı!
+-  Samet Akaydin Fenerbahçe'ye veda ediyor!
+-  PFDK cezaları belli oldu! Fenerbahçe ve Galatasaray...
+-  Terör örgütü PKK ABD'de lobicilik yapacak... 'Karar vericilerin eğitilmesi' hedefleniyor
+-  İsmail Kartal'dan derbi öncesi flaş sözler! "Sürekli yerde yatan onlardı"
+-  Üstün zeka testi: Zekiler bile 7 kurt görselini bulamadı! Peki siz 10 saniyede görebildiniz mi?
+-  Katil İsrail kana doymuyor... İşgalciler yine mülteci kampını vurdu
