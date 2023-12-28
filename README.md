@@ -1,51 +1,51 @@
 # Latest News
--  Oil prices stabilise as Red Sea transport disruptions ease
--  Invest Cyprus: Playing a pivotal role in Cyprus’ economic landscape
--  Police seek to establish exact charges for beef smuggling case
--  Fizičari osmislili eksperiment za pretvaranje svjetlosti u materiju
--  „Welt der Kleinwaffen“ revolutioniert: Gaston Glock ist tot
--  Emergency systems offline after ransomware attack
--  국회, 신임 사무총장에 3선 출신 백재현 임명
--  EQT-fond har flyttat BHG-innehav till medinvesterare
--  كان 2023: 6 منتخبات اختارت الإستعداد بالإمارات
--  عادات يجب اتباعها لصحة الرئتين.. احرص على تناول هذا الفيتامين
--  Три курсантки ВИПЭ ФСИН России получили в Вологде стипендию имени Х. Леденцова
--  При столкновении двух легковушек в Рыбновском районе пострадали оба водителя
--  Į ritmą grįžtantis Lekavičius – apie greitą reabilitaciją ir Kalėdų senio vaidmenį
--  Nienburger kämpfen gegen Wasser im Haus: teilweise zum zweiten Mal in kurzer Zeit
--  Tko dolazi na čelo DORH-a? Zasad stigla samo jedna prijava
--  Индексите в Токио поеха надолу, Уолстрийт затвори скромно
--  Nienburg, Liebenau, Steyerberg: Von Pumpen und Kellern, Geschichten, die das Hochwasser an der Weser schreibt
--  Family left homeless after car crashed into their house on Christmas Day
--  U Rakovom Selu dvojica muškaraca napali novinarku dok je obavljala svoj posao. Obojica su privedeni
--  Loire-Atlantique: une église retrouve les santons de sa crèche de Noël grâce à une puce GPS
--  Лавров назвал главную дипломатическую победу России в 2023 году
--  لليوم الثاني على التوالي الاحتلال يقصف محيط مستشفى الأمل في خانيونس
--  Медведев высказался о возможных переговорах России и Украины
--  Teenager dies in Australia shark attack
--  Modi’s government targeted Indian journalists with Israeli spyware, says Amnesty
--  11 il həbs cəzası verilmişdi, bəraət aldı
--  外媒揭中國施壓五月天在選前表態親中 海基會：不樂見政治因素施壓
--  Tributes paid to young Irishman killed in New Zealand road tragedy on Christmas Day
--  Thariq Halilintar Diledek Garing Main Acara Sketsa Komedi Desta Cs
--  Oberpfälzer bedroht seine Familie und greift zur Axt - die Polizei schießt
--  Лавров рассказал о сплочении российского народа
--  Niektorí chorí, tehotné ženy aj mamičky si polepšia, Sociálna poisťovňa zvýši maximálne sumy dávok
--  Не летает, зато проедет почти везде. Видели "Драконов" белорусской армии?
--  David Beckham and Victoria leave fans in hysterics with 'subtle' detail in Christmas dinner
--  Curhatan Pengusaha Sablon di Jakbar Perang Harga Demi Raup Cuan dari Caleg
--  민경우 與 비대위원 '노인폄하' 발언 논란..."신중치 못한 표현 사과"
--  Apa itu Briket Arang? Diduga Penyebab Lee Sun Kyun Meninggal di Dalam Mobil
--  المشرف المركزي لوزارة الصحة يتفقد سير عمل فرق التحصين الايصالي بلودر
--  Guns and Gulaabs sequel announced, Rajkummar Rao's Paana Tipu to return for revenge
--  Finansal sorun yaşayan 10 AVM için geçici süre
--  Dozens sickened in E.coli outbreak linked to artisan cheeses recalled
--  European Super League: Στα 15 δις ευρώ το μπάτζετ της για τις πρώτες τρεις σεζόν
--  Chelsea fans told to keep an eye on Alfie Gilchrist by club legend after ‘charged up’ debut
--  Запад пытался поставить Сербию перед выбором, заявил Лавров
--  傳中國要求五月天發表一中言論 郭倍宏：又來了！只會適得其反
--  Hoće li dogodine rasti kamate na kredite?
--  Cinsel istismar suçundan hakkında hapis cezası bulunan zanlı yakalandı
--  "Un año de gran giro y gran cambio": Kim Jong-un evalúa los resultados del 2023 para Pionyang
--  Selskabsmeddelelse 6/2023
--  Новые жертвы угарного газа в Баку
+-  Legal fireworks sales period to start today
+-  Pak dragging feet on extraditing LeT founder 26/11 Mumbai attack mastermind Hafiz Saeed to India: Sources
+-  Young rugby player dies on Christmas Eve after ‘devastating head injury’ as family’s world ‘turned upside down’
+-  Puzzle Solutions Edition 2008
+-  South Korea police defend probe of ‘Parasite’ actor who was found dead
+-  Warum ein Baseball-Spieler 700 000 000 Dollar bekommt
+-  (가칭)제주과학기술정보산업혁신원 '설립 타당'
+-  Fatih Terim Galatasaray'a çok istediği isme 11 yıl sonra yeni ekibi Panathinaikos'ta kavuştu!
+-  I’m 44 and eat my way to being wrinkle-free – my 5 go-to foods also reduce pores, prevent blackheads, and boost collagen
+-  ارتفاع النـفـط عالمـيا
+-  استحداث عيادة للأمراض الصدرية في جرش
+-  تركيا تفرج عن مدان في قضية (تسريبات القذافي)
+-  Mariah Carey and Bryan Tanaka split after 7 years together, dancer confirms
+-  – فريق من بعثة الأمم المتحدة يلتقي نخبة من الأكاديميين والقانونيين من الجامعات الليبية .
+-  一加Ace 3将首发1.5K东方屏 屏幕峰值亮度可达4500尼特
+-  China urges nationals to leave north Myanmar region amid unrest
+-  Kuzey Marmara Otoyolu’ndaki katliam gibi kazada dehşeti yaşayan yolcular İstanbul’a getirildi
+-  Tüketiciler Derneğinden 'restoranlarda liste asma uygulaması fiyatları düşürebilir' değerlendirmesi
+-  AMERİKAN DOKTRİNLERİ VE ORTADOĞU (1)
+-  Erbakan: Asgari ücret çalışan nüfusun yarısını açlık ve yoksullukla yüz yüze bırakacak
+-  New Oriental to Report Second Quarter 2024 Financial Results on January 24, 2024
+-  Memur, memur emeklisi, SSK ve Bağ-Kurlular zamlarını merakla bekliyor... İşte zam hesaplaması
+-  Air, rail traffic hit as Chandigarh sees season’s first dense fog
+-  Fenerbahçe'de Fred etkisi
+-  Gazze'de 167 İsrail askeri öldürüldü
+-  Batı'nın Filistin desteklerini "şeytanlaştırma" çabasına sert tepki: Engel olamayacaklar
+-  Türkiye'den gerilim yaşayan Kosova ve Sırbistan'a teklif: Diyaloğa katkı sunabiliriz
+-  Aralarında Türkiye'nin de bulunduğu D-8 gelir artırmaya odaklandı
+-  ABD ile F-16 kördüğümü çözülüyor... Cumhurbaşkanlığı'ndan açıklama: Anlaşmazlık noktaları azaldı
+-  2024'te çevreyi kirletenlere verilecek cezalar belli oldu
+-  Çekya'da 14 kişiyi öldürerek katliam yapan saldırgan daha önce bir baba ve kızını öldürmüş
+-  İrəvan Moskvanı bunun qarşılığında Qərbə satır
+-  Son düzlükte gülen taraf Galatasaray
+-  US court rejects Chinese ecommerce giant Alibaba’s effort to quash faked Squishmallows case
+-  JANSEN | "All I want for Christmas is the means of production"
+-  Руїс: Я молився за Паркера, хотів, щоб він виграв у Вайлдера
+-  Roman Abramovich sues Israeli bank over blocked donation
+-  Météo en Tunisie : Brouillard matinal et temps nuageux
+-  [ŽT] „Dešimtys kūnų, kai kurie sudegė gyvi tiesiog kajutėse. Siaubas.“ Skelbiama, kiek su įgula išsitaškė „Kalibr“ ir KAB-500
+-  [ŽT] Neįtikėtina. „Ateities reikalas.“ Rusija reikalaus kompensacijų
+-  Good progress is being made in Inishowen – Crossan
+-  Cash withdrawals hit all-time high on last Friday before Christmas – Post Office
+-  Bogdanka Arka Chełm nadal na podium
+-  Niezbędnik do makijażu, bez którego trudno się obyć
+-  In the news today: Palestinians seek refuge as Israeli operation in Gaza expands
+-  Tarkista heti, muistitko käyttää jopa 400 euron rahaedun – Nyt on jo kiire
+-  KRISTIJAN I KRISTINA PROSLAVILI SINU PRVI ROĐENDAN Baloni i raskoš na sve strane, napravili bajku, a oni su bili glavni gosti!
+-  Ini Awal Mula Media Asing Juluki Gibran Nepo Baby
+-  Tanggapi Bawaslu Soal Surat Suara di Taipei, Hasyim Asy'ari: Yang Lebih Tahu KPU
+-  ”Koko asema voitaisiinhelposti palkita”– Jääurheilu ja purjehdus tuovat vastapainoa Lounais-Suomen vuoden poliisin Teemu Grönrosin työlle
