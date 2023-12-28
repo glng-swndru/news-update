@@ -1,51 +1,11 @@
 # Latest News
--  بالفيديو.. أمطار غزيرة وبرد على بريدة
--  عاجل.. خطوات تقديم شكوى نصب واحتيال إلكتروني عبر منصة أبشر 1445
--  "الحقيل" يثمن دور "الوطنية للإسكان" في تعزيز المعروض العقاري بنحو ٣٠٠ ألف وحدة سكنية
--  마침내 EPL 데뷔골 터트린 '케인의 장기 대체자' FW...패배 속 유일한 위안거리가 되다
--  Arsenal Telan Kekalahan Pertama di Kandang, Gagal Kudeta Liverpool di Puncak Klasemen
--  Χρηματιστήριο: πτώση 0,58% μόλις στα 45,93 εκατ. ευρώ ο τζίρος
--  Wall Street: μικτά πρόσημα αλλά και νέο ρεκόρ για τον Dow Jones
--  Ρεκόρ κερδών διμήνου κάνουν τα ομόλογα παγκοσμίως
--  Καιρός: ανοιξιάτικος και την Παρασκευή
--  현대모비스, 안전·편의부품 10개 신기술 대내외 수상
--  홍영기, E컵 그녀의 비키니…밑가슴 노출하고 '화끈'
--  Xanh hóa “vàng trắng” Việt Nam: Ngành cao su xanh hóa quy trình sản xuất công nghiệp (Bài 3)
--  MN - Jacobelli: "A Leao manca continuità, ci si aspettava una grande Champions da lui. Nella seconda parte di stagione può dimostrare il suo valore"
--  Giá vàng hôm nay 29/12/2023 bật tăng sau cú lao dốc từ đỉnh lịch sử
--  Wereldbevolking in 2023 met 75 miljoen toegenomen, tot totaal van 8 miljard mensen
--  La noble historia de la calle San Ignacio
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  امين بغداد: مترو بغداد سيرى النور قريباً
--  Cobertura EN VIVO Jets vs Browns | Semana 17 de la NFL
--  Trời lạnh, gia tăng các bệnh lý mạch máu cấp tính nguy hiểm
--  Los nuevos dueños del balón
--  Estos son los juguetes más pedidos este año
--  SME Minúta: Zelenskyj vyzval slobodný svet, aby spojil sily v boji proti ruskej agresii
--  12월 물가 3.2% 올라…올해 연간 상승률은 3.6% [종합]
--  Honduras dejará de cobrar sanción administrativa a migrantes por “motivos humanitarios”
--  Casi la mitad de los ganaderos de vacuno de leche estáran en edad de jubilación en diez años
--  Sigue la regla de los 4 regalos para hacer la carta perfecta a los Reyes Magos
--  Sigue la regla de los 4 regalos para hacer la carta perfecta a los Reyes Magos
--  [양천구, 오목공원 전면 개장…복합문화공간으로 새 단장
--  [한동훈, 오늘 오후 이재명 예방…여야 대표로 첫 대면
--  [용산구, 빈집 실태조사 개시…빈집 의심세대 735호 대상
--  [교육부, 32만명 교육급여 지원…‘월 20만원’ 행복기숙사 2곳 열기도
--  [[헤럴드 운세] 2023년 12월 29일 오늘의 운세로 만드는 완벽한 하루, '오운완'
--  [[속보]올해 소비자물가 3.6%↑…사과 24.2%↑·전기료 22.6%↑
--  [美, ‘홍해 상선 공격’ 예멘반군-이란 자금흐름 차단 추진
--  [“우리기업 해외진출 리스크 달라졌다…보험·인사 통합 대비해야” 이형구 마쉬 코리아 사장
--  [“韓 중공업 산업화 설계·아프리카 식량난 해결”…4인의 과학자 ‘과학기술유공자’ 선정
--  AMLO inaugurará este viernes megafarmacia en Edomex
--  La caravana migrante denuncia más restricciones tras la reunión de México con EEUU
--  Edson Álvarez y su West Ham ACABAN con el INVICTO del Arsenal como local en la Premier League
--  Fakta-fakta Ricuh Pengantaran Jenazah Lukas Enembe di Papua Kotak Masuk
--  Um ano sem o eterno Rei Pelé
--  Bí quyết để trẻ em ngủ ngon, không quấy ban đêm
--  Spletna križanka in sudoku Slovenskih novic (29. december)
--  استشهاد 9 فلسطينيين في الضفة الغربية وغزة
--  Mavi bültenle aranan IŞID üyesi Kırıkkale'de yakalandı
--  Melhores momentos de Flaco López pelo Palmeiras em 2023
--  Dự báo thời tiết 29/12/2023: Bắc Bộ tiếp diễn nắng hanh, rét về đêm và sáng
--  Los vallisoletanos se ahorran este año en el recibo de la luz más de 120 millones
--  Lotto am Samstag: Kommt es bald zur Zwangsausschüttung? Ziehung der Lottozahlen für 45 Mio. Euro
+-  Sí, celebrar
+-  Arrodillarse ante los ricos
+-  La inaceptable situación del cuartel de Son Busquets
+-  Eros y luces navideñas
+-  Parque de atracciones
+-  Hace equilibrios
+-  La feliz tregua de Navidad
+-  El inglés
+-  De Doña Manolita a Loterías Prohens
+-  Hem perdut la fe?
