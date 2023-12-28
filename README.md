@@ -1,51 +1,51 @@
 # Latest News
--  Mamata Banerjee Once Demonstrated A Dharna For This Cop, He Will Now Lead West Bengal Police As DGP. Know Full Story Here
--  “Göygöl Şərab Zavodu” ASC məlumat yaydı
--  Tolu Arokodare Celebrates First Ever Brace For Genk
--  Апсење во Прилеп: Фиктивно вработувале бремени жени и родилки за да украдат над половина милион евра од Фондот за здравство
--  Top space stocks to buy as per global fund managers
--  בשעה טובה: כוכבת האח הגדול בהריון ראשון ומרגש
--  המשחק בין פנרבחצ'ה למכבי תל לאביב יועבר מאיסטנבול לפוניבז'
--  "פספסתי את מכבי תל אביב ומכבי חיפה, יכלה להיות לי קריירה מבטיחה"
--  Veja as previsões do tarot para janeiro de 2024
--  Metaratings: клубы РПЛ интересуются аргентинским нападающим Мартинесом
--  Dom naroda nije podržao izvještaj o provođenju zakona iz nadležnosti SIP-a
--  YEAR IN REVIEW: August 2023
--  New tax rules announced for some UK households who earn over £75,000
--  Bihar Politics : JDU में अनबन पर तेजस्वी यादव का बयान,’कितनी बार सफाई दी जाए’
--  Sprema se prodaja kompanije Aviogeneks, imovinu čini i avion Boing 737
--  Muerte de abuelo y nieta provoca preocupación en Veraguas
--  Benkos Imperium taumelt - Zukunft von Karstadt und Kaufhof ungewiss. Hat das Folgen für Nürnberg?
--  Canadians will soon see commercials on Amazon Prime Video
--  المجلس الصحي يحذر الحوامل المصابين بالسكري من هذا الأمر
--  خطوة بخطوة.. طريقة التقديم على النقل الخارجي للمعلمين
--  براتب 6 آلاف ريال.. وظائف في كافة المؤهلات للعمل بالرياض
--  The first Hong Kong Art Exhibition in Sydney of 2024 - Hong Kong Pop Art Exhibition
--  Hankyung.com introduces: DeepSales Unveils Groundbreaking AI Update to Transform B2B Sales Intelligence
--  Hankyung.com introduces: DroMii to Exhibit at CES 2024, Unveiling CfSM and AfGG solution based on DaaS (Drones as a Service)
--  Heranova Lifesciences Debuts with $13.5 Million Seed and Seed+ Round Funding to Offer Integrated Clinical Solutions to Women's Health
--  Trung Quốc trừng phạt 1 công ty và 2 nhà nghiên cứu Hoa Kỳ vì báo cáo tình hình nhân quyền ở Tân Cương
--  Мощный ветер вызвал пожар в российском регионе
--  La San Silvestre, a buen ritmo
--  Pisces 29 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
--  СМИ: украинский переселенец получил три года колонии за отказ служить в ВСУ
--  OnePlus 12R display info gets officially confirmed
--  Volkan Demirel'den istifa açıklaması
--  Spadek produkcji samochodów obniżył produkcję przemysłową Japonii
--  JD Cymru Premier: Boxing Day blues for Aberystwyth
--  AKTUÁLNE V okrese Martin zaútočil na človeka medveď. Muž má aj hryzné poranenia
--  Verdict du tribunal de Dakar : les avocats de Sonko n’ont pas été notifiés du recours de l’Agent judiciaire de l’État
--  "Dialogue de la dernière chance": Alioune TINE appelle à anticiper les crises politiques
--  First Murder In Antarctic May Have Been Over A Game Of Chess
--  Известный индийский актер скончался от коронавируса
--  Srbijanski trener iz sigurnosnih razloga odbio vratiti se u Izrael
--  Ski hills optimistic despite warmer temperatures
--  Mercato - PSG : Paris en grand danger avec ce transfert ?
--  В Приморье спасли кота с переломанным хвостом и травмой лапы
--  Врач Данилов рассказал о самых частых травмах в Москве в Новый год
--  'Fighting Millwall as Spurs hooligan was mad – people threw spears and bloke was impaled'
--  Јанушев до Спасовски: Знаевте дека поради нестручност и нефикасна работа дојде до трагичната ликвидација на двајца сограѓани- зошто лажевте?
--  Πρόστιμο 30.000 € στην Παρτιζάν, αλλά και χωρίς φιλάθλους με Ερυθρό Αστέρα
--  Kaldırımda hareketsiz bulunan şahsın öldürüldüğü ortaya çıktı
--  Schock für ÖSV-Star: Schwarz nach Sturz auf dem Weg ins Krankenhaus nach Innsbruck
--  Varela logra un millón de euros da Deputación para ampliar a piscina municipal
+-  Kurs franka względem dolara najwyżej od 2015 roku. Euro umacnia się wobec USD. Zmiany na rynku walut
+-  USA: nowych bezrobotnych nieco więcej niż oczekiwano
+-  Female Lidl worker wins £22,000 payout for sex discrimination claim after complaining that her boss harassed her during Center Parcs trip and 'pressurised' her and female employees to go swimming
+-  Mother kept her second pregnancy a secret by wearing baggy clothes and drinking alcohol-free wine out of fear she'd be judged for having another baby a year after she got divorced
+-  Suisse : Vivre de l’aide sociale coûte cher aux étrangers, cette dame de 59 ans est expulsée après 40 ans de résidence
+-  IndieDB Has Announced the Indie of the Year 2023
+-  British mathematicians say they've figured out how to guarantee a lottery win by buying 27 tickets
+-  Chelsea's £58m summer signing Romeo Lavia picks up a thigh injury on his debut - after FOUR MONTHS on the sidelines with an ankle problem - as boss Mauricio Pochettino admits he is 'worried'
+-  Constellation Software’s Modaxo Enters into Agreement to Acquire Curbside Management and Public Safety Businesses from Conduent
+-  PBB Desak Israel Akhiri Pembunuhan di Palestina
+-  Handball: Laguna Cup 2024 beginnt bereits im alten Jahr
+-  MIMORIADNE Na muža zaútočil medveď: Skončil v nemocnici
+-  Nepriaznivé počasie spôsobilo komplikácie v Škótsku a na severe Anglicka
+-  Kickoff | FIFA & CAF 'grant' R147m to African nation!
+-  MLB player Wander Franco summoned in Dominican Republic amid investigation: reports
+-  Kickoff | BREAKING: Broos announces final Bafana squad for AFCON
+-  The Bachelor's Timm Hanly enjoys some daddy-daughter bonding time with newborn Harper and it all goes horribly wrong
+-  Storm Gerrit's turned my home into a warzone: Grandmother-of-four and her Cavalier King Charles Spaniel have miraculous escape after 85mph 'tornado' blew out whole window in her front window overnight
+-  Ρομπ Ρόι: Ποιος ήταν ο Ρομπέν των Δασών των Σκωτσέζων
+-  Singaporean tourist, 39, plunges 70ft to her death from upstate New York hiking trail after losing her footing while taking cliff-edge photo with husband
+-  Singaporean tourist, 39, plunges 70ft to her death from upstate New York hiking trail after losing her footing while taking cliff-edge photo with husband
+-  Female Lidl worker wins £22,000 payout for sex discrimination claim after complaining that her boss harassed her during Center Parcs trip and 'pressurised' her and female employees to go swimming
+-  Triathlon-Rentner Frodeno vermisst den Druck
+-  «50-Stunden-Woche? Stört mich nicht!»
+-  Stängs av i fem matcher efter huvudtacklingen
+-  Feijóo asume que el resultado de las gallegas "tendrá repercusión en España"
+-  Mantan Kepala Dewan Keamanan Nasional Israel Puji Perlawanan Hamas di Gaza
+-  PSOE y ZeC critican que el presupuesto del Ayuntamiento esté “al servicio de la extrema derecha”
+-  ВМРО-ДПМНЕ И ЛЕВИЦА СО АПЛАУЗ ИЗГЛАСАА ДА СЕ ВРАТИ ЌОСЕТО ВО СКОПЈЕ КАКО ШТО ПОБАРА ДАНЕЛА
+-  الزمالك يعلن موعد عودة نداي وأكينيولا
+-  MILANELLO REPORT: ultimi dettagli verso Milan-Sassuolo
+-  Are we living in a simulation? Scientist claims we're simply characters in an advanced virtual world - and says he has an easy way to prove it
+-  أرسنال يسيطر على ديربيات لندن
+-  Internauta nazwał go „Żydem”. Radny reaguje
+-  Fotele skórzane jako element elegancji w salonie: Inspiracje i Pomysły
+-  200-milionowa tona węgla z Bogdanki
+-  Jak dobrać prześcieradło z gumką do materaca?
+-  A collaborative painting by The Beatles is headed to auction
+-  ¡Atención maestros y estudiantes! Descuentos para viajes en autobús siguen vigentes
+-  Lebih Sedikit Lebih Bermakna: Prinsip Bijak dalam Berdakwah
+-  Schalke-Bosse fordern eine Voraussetzung für Winter-Neuzugänge
+-  Собчак снялась в шубе и разозлила подписчиков
+-  السوداني لنظيره الإسباني: ماضون باتجاه إنهاء وجود التحالف الدولي في العراق
+-  MAGNO'S BULGING MAIL SACK: THE SAUDIS IN BOXING, DEONTAY WILDER'S FUTURE
+-  Еріген мұзбен бірге суға кеткен миллиондар
+-  Pemerintah Siapkan Skema KPR Cicilan Flat 35 Tahun, Mulai 2024
+-  La montañera cántabra Raquel García abre hoy 'La Previa' en Gijón
+-  0:4 gegen Bunting: Hempel bei Darts-WM klar raus
+-  Google Maps-Nutzer aufgepasst: Beliebtes Feature wird wohl in Kürze eingestellt
+-  “No eres un niño, eres un adulto”: Chama le rayó la cancha a Miguelito y se pidieron disculpas
