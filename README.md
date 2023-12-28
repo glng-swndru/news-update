@@ -1,11 +1,11 @@
 # Latest News
--  Let’s keep cops out of our revenge dramas
--  Should Mumbai cricket return to class?
--  Tough time for Milei, no quick peace for Gaza: Peru shamans’ predictions for 2024
--  By: Artificial grass for lawn refurbishing
--  Vuurwerkkopers trekken zich niets aan van afsteekverbod: ‘Dit krijg je als regels niet logisch zijn’
--  عاجل.. وقف صرف معاش الضمان الاجتماعي في هذه الحالات
--  International : La crise sécuritaire s’intensifie en mer Rouge
--  산업기술인력 1.1% 늘었지만, 수요 많아져 부족 인원도 증가
--  M&S' £35 'comfortable' trainers look just like £125 pair from Kate Middleton’s go-to brand
--  한은, 가계대출 관리대책 당부…"차질없이 시행돼야"
+-  นายกฯเศรษฐา มอบคำขวัญวันเด็กแห่งชาติ 2567 อยากให้ร่วมกันสร้างประชาธิปไตย
+-  워크아웃 신청한 태영건설 "워크아웃 절차 성실히 이행··· 영업활동 큰 제약 없어"
+-  Jets hope to play spoiler vs. defensively dominant Browns
+-  Khandwa Gas Blast: गैस सिलिन्डर के गोदाम में आग लगने से दहशत,30 सिलेंडर ब्लास्ट
+-  대법, '라임 환매 사태' 핵심 인물 김봉현 징역 30년 확정
+-  Mark Cuban’s basketball control of Mavericks not in writing as team is sold
+-  디에스에프엘앤아이, 한국ESG대상 소기업 제조부문 대상 수상
+-  El Gobierno colombiano da un impulso a la economía popular y legal con programa crediticio
+-  Samsung to Exhibit More C-Lab Startups Than Ever Before at CES 2024
+-  کوپ 28: دو پاکستانی خواتین نے ’جینڈر جسٹ سلوشن ایوارڈ‘جیت لیے
