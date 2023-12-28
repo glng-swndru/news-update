@@ -1,11 +1,11 @@
 # Latest News
--  Galaxy S24+ could ship with Snapdragon 8 Gen 3 globally; more specs leak
--  Chcete vedieť koľko peňazí pošlete od januára Sociálnej poisťovni? Ukáže vám to KALKULAČKA!
--  Sales practices rife with ‘anarchy and irregularities’
--  AKTUÁLNE Veľká evakuácia v Prešove: Do budovy vošiel mladík s taškou, tvrdil, že má bombu!
--  Cypriots opting for overseas New Year celebrations
--  Konya İl Milli Eğitime MEVKA desteği ile arama kurtarma eğitimi verildi
--  Fatih'te tekerlekli sandalye ile gelip eski eşini vuran saldırgan adliyeye sevk edildi
--  Kahramanmaraş’ta 2 zincirleme kaza: 15 yaralı
--  Üç eşini de öldüren sanık: Ben kadın düşmanı mıyım?
--  KENTSEL DÖNÜŞÜMDE GÜVEN UNSURU-1
+-  Altında yıl sonu uçuşu! Rekora doymak bilmiyor
+-  Yılbaşı Mesajları 2024! Resimli, Anlamlı, Kısa, Hoş geldin 2024 Sözleri, Yeni Yıl Kutlama, Tebrik Mesajları!
+-  Son dakika... Marmaris'te 4 büyüklüğünde deprem!
+-  चंद्रयान-3, आदित्य L1 और गगनयान... 2023 में ISRO की अंतरिक्ष में बड़ी छलांग
+-  21-year-old charged with stealing N42,000
+-  روسيا ترسل "شحنة إنسانية" إلى نيجيريا
+-  प्रधानमन्त्री कार्यालयको ६८ दरबन्दी कटौती
+-  “Ley ómnibus”: Milei busca facultades extraordinarias para marcar el rumbo
+-  ارتفاع عدد الشهداء الصحفيين إلى 105 بغزة
+-  Tabiat eş anlamlısı
