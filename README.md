@@ -1,51 +1,11 @@
 # Latest News
--  Sindikata: Shpenzimet elementare të një familje katër anëtarëshe janë 56.522 denarë
--  Stojanović pušten iz UIKS-a u Spužu
--  Brescia ha ingaggiato il libero Nicola Pesaresi
--  La 1a di ritorno parte con Verona-Taranto
--  Paraburgim 30 ditor për autorin e vrasjes në Çellopek të Tetovës
--  Fenerbahçe Teknik Direktörü İsmail Kartal'dan derbi öncesi çarpıcı ifadeler
--  Edin Dzeko'dan Süper Kupa, Galatasaray ve Mauro Icardi sözleri
--  '김건희 특검' 앞둔 국민의힘 quot;실행돼선 안되는 악법quot;
--  김용태 quot;'이준석 신당' 성패, 尹middot;한동훈에 달렸다quot;
--  민주당 quot;한동훈, '국정농단 특검' 브리핑 잘 하더니hellip;quot;
--  김정은, 엄중한 정세 속 quot;전쟁 준비 완성에 박차 가할 것quot; 주문
--  남평오 '대장동 제보' 고백, 거리 멀어진 이낙연middot;이재명
--  국민의힘 때린 이준석 quot;'특검 거부자가 범인'이라더니 '성역' 만들고 있어quot;
--  김대기 비서실장 사임, 후임에 이관섭 정책실장 내정
--  국방부 '독도=분쟁지역', 尹대통령 quot;엄중 조치하라quot;
--  한동훈, 김경율middot;민경우 등 비정치인-전향인사 전면 배치
--  일본에 '퍼주기'한 윤석열 정부, 이제 독도까지 내주나
--  '한동훈 비대위' 민경우 quot;최대 비극은 노인네들이 너무 오래 사는 것quot;
--  국민의힘, 중대재해법 시행 유예가 '민생법안'?
--  문재인 quot;이선균 극단적 선택 원인은 수사middot;보도 행태quot;
--  尹대통령, 비서middot;정책middot;안보 '3실장' 전면 교체
--  조국 quot;尹, 개헌 통해 임기 단축 가능hellip;다음 대선 12월에 할 수 있다quot;
--  이재명 만난 정세균 quot;낭떠리지에서 손을 뗄 결단 필요quot;
--  [만평] 귀결hellip;
--  대통령실 quot;쌍특검법 이송 즉시 거부권 행사할 것quot;
--  결국 '워크아웃' 태영건설, 부동산PF 위기 본격화?
--  국회 통과된 '김건희 특검법', 국민의힘은 대통령에 quot;거부권 요청quot;
--  GDP 대비 민간 빚 비율, 올 3분기 역대 최고 기록
--  민주 quot;독도가 분쟁지? 尹정권 국가관 의심hellip;신원식 파면해야quot;
--  이태원 참사 다룬 다큐 lt;별은 알고 있다gt;, 마지막 순회 상영회
--  미국, 우크라이나 '완전한 승리'에서 '협상 우위'로 전략 전환하나
--  조응천 quot;한동훈, '김건희 성역' 때문에 남 탓만hellip;결국 '여의도 문법'quot;
--  중대재해처벌법 위반 첫 실형 확정hellip;'솜방망이 처벌' 논란 가능성도
--  창원시, 고향사랑기부금 목표액 3억 원 초과
--  박지원 quot;독도가 사라지다니hellip;'제2의 이완용' 신원식, 파면해야quot;
--  이태원 유가족 quot;참사 발생 426일, 진상규명은 첫발도 떼지 못했다quot;
--  Hakan Çalhanoğlu, Jorge Jesus'u reddetti!
--  Avrupa devlerinin Joshua Kimmich kapışması!
--  İşgalci İsrail'in toplanma alanını vurduğu anlar görüntülendi
--  Gıda denetiminde 535 milyon lira ceza kesildi
--  Etkileri şaşırtıyor! Sabahları aç karnına bir bardak cevizli su içerseniz…
--  Türkiye 2023'te uluslararası temasların odak noktasıydı... "Diplomasinin merkezi haline geldi"
--  Bakan Fidan'dan Yaşar Güler'e taziye ziyareti
--  Dirk Kuyt'ın yeni takımı açıklandı!
--  Samet Akaydin Fenerbahçe'ye veda ediyor!
--  PFDK cezaları belli oldu! Fenerbahçe ve Galatasaray...
--  Terör örgütü PKK ABD'de lobicilik yapacak... 'Karar vericilerin eğitilmesi' hedefleniyor
--  İsmail Kartal'dan derbi öncesi flaş sözler! "Sürekli yerde yatan onlardı"
--  Üstün zeka testi: Zekiler bile 7 kurt görselini bulamadı! Peki siz 10 saniyede görebildiniz mi?
--  Katil İsrail kana doymuyor... İşgalciler yine mülteci kampını vurdu
+-  فيديو متداول يُحذر من مادة "E407-E471" الموجودة في منتجات الألبان الشهيرة- وطبيب يرد
+-  Markus, 32, har IP-tv: ”Vet att det går till kriminella”
+-  Xiaomi SU7 электромобили расман тақдим этилди .
+-  Блогер Олимжон Ҳайдаров иши бўйича суд ҳукми ўзгаришсиз қолдирилди.
+-  Les chars israéliens avancent dans Gaza, des dizaines de milliers de sans-abris supplémentaires
+-  Wohnhausbrand in Wächtersbach: Verdacht auf rechtsextrem motivierte Brandstiftung
+-  Sie machten ihre Beziehung nie offiziell - Amalia der Niederlande und deutscher Millionenerbe sollen kein Paar mehr sein
+-  Denne kabelen kan gi høyere pris i sør: - Uheldig
+-  Tappar kontrollen – kraschar in i busskur
+-  Новичок "Текстильщика" провел всего 2 матча в сезоне 2023-2024 годов
