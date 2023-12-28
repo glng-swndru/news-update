@@ -1,51 +1,51 @@
 # Latest News
--  ЦАР ще си сътрудничи с американска военна компания
--  Donald Trump denies bullying his way into 'Home Alone 2': 'Nothing could be further from the truth'
--  Dense Fog To Cover Delhi-NCR, North India Till New Year's Day: IMD
--  Kenyataan Tun M sombong – Shamsul Iskandar
--  High Court: ‘వ్యూహం’ సినిమాపై నేడు హైకోర్టులో విచారణ
--  Bệnh viện Sản Nhi Quảng Ngãi chính thức triển khai bệnh án điện tử
--  Xét xử ông Diệp Dũng và đồng phạm trong vụ gây thất thoát 115 tỉ đồng
--  Được hưởng giá FIT 'không đúng đối tượng': Các dự án có phải hoàn lại tiền?
--  Quen nhau qua nhóm trên mạng, rủ nhau đi cướp ngân hàng
--  ACB khuyến khích giao dịch qua ngân hàng số
--  Kỹ sư xây dựng: Những kiến thức, kỹ năng cần biết
--  Ngành cấp nước TP.HCM tranh tài nâng cao chất lượng phục vụ khách hàng
--  Những món ăn dân dã ‘níu chân’ thực khách ở lại Hải Phòng ngày đông
--  Saigontourist Group và Satra ký hợp tác chiến lược thúc đẩy du lịch, thương mại
--  Công an gửi thư 'triệu tập' nạn nhân, có đúng không?
--  Ông Kim Jong Un nêu định hướng năm 2024 cho Triều Tiên
--  Ngôi sao châu Phi bị loại khỏi đội tuyển quốc gia vì tố huấn luyện viên trộm áo
--  Tổng giám đốc Công ty Việt Á Phan Quốc Việt bị đề nghị tổng hình phạt 25 - 26 năm tù
--  Báo Tuổi Trẻ khởi động chuỗi chương trình tư vấn tuyển sinh, hướng nghiệp 2024
--  Sao Hàn đau buồn đứng không vững ở tang lễ tài tử Ký sinh trùng Lee Sun Kyun
--  Nga và Ấn Độ sắp hợp tác sản xuất vũ khí
--  Tác giả 9X được trao Giải thưởng Hội Nhà văn Việt Nam
--  Gỡ điều kiện kinh doanh karaoke, vẫn còn nhiều quy định chồng chéo
--  Cựu giám đốc Sở Y tế Tây Ninh bị đề nghị từ 5 - 6 năm tù
--  Tạm hoãn xuất cảnh với giám đốc Sông Đà Thăng Long để truy thu nợ thuế
--  Bí quyết nào giúp Hoàng Anh Gia Lai lột xác trước Hà Nội?
--  Sinh viên ngược xuôi làm thêm, mong cái Tết đủ đầy hơn
--  Phác thảo mới nhất về thuyền rồng, hoa xuân trên đường hoa Nguyễn Huệ 2024
--  ‘Bí Đao khổng lồ’ dạo chơi tại phố đi bộ Hồ Gươm
--  Loạt xe hybrid ra mắt Việt Nam năm 2023: Không có giá dưới 700 triệu đồng
--  Sóng nước giao hòa, kết tình hữu nghị
--  Hôn nhân hợp đồng rất lẩu thập cẩm mà vẫn hút
--  Chi tiết 19 dự án giao thông trọng điểm dự kiến khởi công năm 2024
--  Giải thưởng Sách quốc gia: Tôn vinh sách hay vì bạn đọc
--  TP.HCM nghiên cứu hình thành vành đai công nghiệp - dịch vụ dọc vành đai 3, 4
--  “청부심의 부끄럽다… 이렇게 막 나가는 방심위원장 있었나”
--  민주당, 김홍일 후보에 “전문성 없어” “정치검사” “철면피” 성토
--  웍스AI, GPT-4 터보 최신 AI 모델 상용화
--  AI 스타트업 ‘주스’, 신개념 컬쳐 메타버스 앱 ‘아트버스’ 론칭
--  MZ가 주목하는 새해 디지털 마케팅 트렌드는?
--  파이랩테크놀로지·미래에셋증권, 웹3 생태계 인프라 공동 기술 개발
--  코오롱베니트, DXR·&BD 강화 주심 조직 개편
--  한국화웨이, ICT 인재 양성 프로그램 참가자 대상 시상식 개최
--  디버, 다우오피스 도입으로 업무 환경 혁신
--  아이엘사이언스, 전장부품 기업 ‘우수AMI’ 인수…모빌리티 밸류체인 확장
--  “초경량 블록체인 기술로 IoT·모바일 기기 보안 강화”
--  디케이테크인, 해양교통안전공단 ‘지능형 행정서비스’ 구축
--  스타씨드, 엔젤투자 유치·벤처기업 인증…차세대 PR 기술 개발 가속
--  마이리얼트립, 여행 SNS로 수익 창출 제휴 ‘마케팅 파트너’ 도입
--  لماذا تتشقق الشفاه في الشتاء؟
+-  Brave Grade 4 Student Lives Alone in Hut After Parents Part Ways
+-  เช็กเลย! หยุดยาว 4 วัน "โอนเงิน-ส่งของ" วันไหนได้บ้าง
+-  [인사] HDC그룹
+-  인천경제청, 청라의료복합타운 토지매매계약 체결
+-  순천시, 권익위 ‘청렴도 평가 2등급’ 쾌거
+-  신안군, ‘전남도 감염병 예방관리사업 평가’ 최우수기관 선정
+-  성남소방서, '화재피해 주민' 소화기, 생필품 전달
+-  진도군, 하반기 지방물가 안정관리 추진실적 평가 ‘가등급’
+-  성남중원서, 자살시도한 50대 남성 차량 유리창 깨고 구조
+-  영압읍, 주차장에 앱과 연동한 스마트 주차시설 설치
+-  서울 지하철 '강동·광명사거리' 등 4개 역 엘리베이터 운영 개시
+-  '일제 강제징용' 2차 소송 피해자 최종 승소
+-  올해 주택연금 지원 규모 약 20조원...금융위 "사회 안전판 정착 기대"
+-  "문외한" "살인 누명 씌운 철면피"…민주, 김홍일 후보자 자진 사퇴 촉구
+-  이정후 영입에 만족못한 SF, 추가 보강 노린다 "스넬-채프먼-벨린저 후보군에"
+-  신진서, 2023년 바둑대상 최우수기사상 '통산 5번째'
+-  금융위, '개인연체채권 매입펀드' 내년 말까지 연장 운영
+-  DMDK founder Vijayakant passes away
+-  Rep. Lauren Boebert quits Colorado’s 3rd District re-election race, will seek office in more GOP-friendly 4th District
+-  Midagri descarta escasez o desabastecimiento alimentario por El Niño
+-  Islanders completely embarrassed by Penguins in blowout loss
+-  সকালেই পড়ুন আলোচিত ৫ খবর
+-  Kim Jong Un Perintahkan Militer untuk Mempercepat Persiapan Perang
+-  Four remain missing at sea
+-  Arus Balik Libur Natal di Tol Lampung hingga Aceh Melonjak
+-  মেলবোর্ন টেস্ট: আম্পায়ার লিফটে আটকা পড়ায় খেলা শুরু হতে দেরি
+-  HUG, 미혼모자시설 주거환경개선 성공적 완료
+-  [금안보고서] 한국은행 "'태영건설 워크아웃 사태' 영향 제한적…파장 확산 시엔 조치"
+-  두산·쌍용건설, ‘두산위브더제니스 센트럴 계양’ 내년 1월 5일 특공 청약
+-  Reconocen restos de hombre hallado carbonizado el pasado 14 de diciembre en Culiacán
+-  গ্রাহকদের টাকা আত্মসাত প্রসঙ্গে বিস্ফোরক মন্তব্য করলেন ইভ্যালির রাসেল
+-  怎麼談加薪才聰明？掌握 7 要訣，加薪不必用「喊離職」對主管情緒勒索！
+-  जब धीरूभाई अंबानी ने दलालों को दी थी पटखनी, तीन दिन तक बंद रहा था शेयर मार्केट
+-  IPL के सबसे महँगे खिलाड़ी को नहीं मिला विकेट, पाकिस्तान के ‘सस्ते’ बल्लेबाजों ने कूट दिया
+-  Exchanging Old Jewellery Tips: ਪੁਰਾਣੇ ਗਹਿਣਿਆਂ ਦੀ ਅਦਲਾ-ਬਦਲੀ ਕਰਦੇ ਸਮੇਂ ਕਦੇ ਨਾ ਕਰੋ ਇਹ ਗਲਤੀਆਂ...ਸਮਝੋ ਭਾਰਤ 'ਚ ਸਹੀ ਕੀਮਤ 'ਤੇ ਕਿਵੇਂ ਵੇਚਿਆ ਜਾ ਸਕਦੈ ਨਵਾਂ-ਪੁਰਾਣਾ ਸੋਨਾ?
+-  Shaylee Gonzales makes six 3s, leads No. 5 Texas past Jackson State 97-52
+-  रेलवे स्टेशन पर खो गए थे भाई-बहन, 13 साल बाद मिले और मां की भर गई झोली…कहानी फिल्मी है
+-  गुना में आग का गोला बनी बस तो मृतकों का आंकड़ा 13 पहुंचा, सीएम मोहन यादव ने कैंसिल किए सभी कार्यक्रम, 3 बड़े अपडेट्स
+-  कमांडर की हत्या से इजरायल पर भड़का ईरान, डायरेक्ट एक्शन से लेगा मौत का बदला, दी वॉर्निंग
+-  Bravos de Margarita se unió a la fiesta de enero
+-  Man charged in deadly Apple store crash let GPS monitor die for second time, prosecutors say
+-  Jubir Timnas AMIN Diduga Gelapkan Pajak, Berapa Kerugian Negara yang Ditimbulkan?
+-  NBA: Lakers guard Gabe Vincent out for at least 2 months after undergoing arthroscopic knee surgery
+-  Fort Worth police searching for man they say robbed a store armed with a machete on Christmas Eve
+-  Death toll rises to 11 due to strong storms in eastern Australia
+-  Jim Harbaugh sidesteps questions about NFL, Chargers
+-  Donald Trump Takes Credit for 'Home Alone 2' Success, Denies Rumor About His Cameo
+-  K’Andre Miller scores twice to lift Rangers over Capitals 5-1
+-  K’Andre Miller scores twice to lift Rangers over Capitals 5-1
+-  Lotería de Manizales, Meta y Valle: resultados de los últimos sorteos; 27 de diciembre
