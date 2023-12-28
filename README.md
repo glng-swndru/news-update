@@ -1,51 +1,51 @@
 # Latest News
--  제주지역 부채가구 주 원인 '주택 마련 자금'
--  월동채소 당근 생산량 73% 증가… 수급 조절 '비상'
--  제주도 4년 연속 종합청렴도 2등급 달성
--  ח"כ טיבי על הערבים שהואשמו בהסתה: "נקמנות, הם רק אמרו שהם נגד המלחמה"
--  צה"ל: "הרחבנו את הפעולה בחאן יונס, פועלים בשיטות חדשות"; נפל כטב"מ עוין אותר ברמת הגולן
--  ארה"ב: מפגינים פרו פלשתיניים חסמו את התנועה לשדות התעופה בניו יורק ולוס אנג'לס - עשרות נעצרו
--  Няма постъпили сигнали от пострадали българи след бурите в Австралия
--  [MLB] "이정후, SF가 12년간 배출 못한 신인왕 후보"
--  Fiscalía evalúa acciones legales contra DL que permite a la PNP investigar sin presencia de fiscal
--  2 critical, over 20 injured in road accident in Odisha’s Keonjhar
--  Família de Ana Clara Benevides vai entrar com ação por danos morais contra T4F, diz advogado
--  블링컨 美국무 "우크라이나에 2억5천만달러 추가 군사지원"
--  SAT: Descuentos de impuestos para jubilados y pensionados
--  The Easiest Way to Figure Out Which Part of Your Car Is Leaking
--  Убиецът на студентите в Прага признал в писмо, че отнел живота на баща и бебето му
--  Centro de Zoonoses atendeu mais de 300 ocorrências de abandono e maus-tratos de animais.
--  Arsenal Sekarang Sudah Hafal Rasanya Puncak Klasemen
--  Inversione di tendenza, clamorosa sorpresa (positiva) per la Ferragni: dopo lo scandalo...
--  Budi heroj u 4 grada u Srbiji: Akcija dobrovoljnog davanja krvi
--  Congress to hold ‘Bharat Nyay Yatra’ from Jan 14
--  강신성 전 광명을 지역위원장 출판기념회..."민주적 가치 실천·정신 담아내"
--  Perfil “anuncia” participação de Simaria no BBB24 e fãs vão à loucura
--  Susana Vieira faz revelação bombástica: “Não sei se continuarei”
--  Ekonomiye ilişkin düzenlemeler içeren kanun, Resmi Gazete'de
--  Govt directs digital platforms not to carry Ads of fraudulent loan apps
--  Mobile app helping keep workers safe at construction worksites
--  서울시 '일·육아 동행 근무제' 내년 시행…초등생 부모 오후2시 퇴근
--  Centre bans Masarat Alam led JK Muslim League for 5 yrs
--  CUSD Dry Creek Elementary students add a creative touch to morning announcements
--  ㈜한원건설그룹, 서서울미술관 신축공사 수주
--  알파코, 성수 3캠퍼스 오픈... 디지털 인재 양성 속도전
--  오라클자바교육학원, PM 실무자 위한 ‘프로젝트 관리 실무교육’ 모집
--  MPhil not recognised degree, stop admissions for 2023-24 session: UGC To Universities
--  Чемпіонат світу U-20 з хокею: календар, результати матчів
--  Harbaugh, Michigan savor trip to Disneyland after wild journey to CFP Rose Bowl semifinal
--  แก๊งค้ายาเสพติดเชียงใหม่อินเทรนด์ใช้คริปโตฟอกเงิน มูลค่ากว่า 41 ล้านบาท
--  함안군 '유튜브 영상 콘테스트' 공모전 시상
--  국립군산대, 2023년도 최고수산경영자과정 수료식
--  군산시, 따뜻한 성금 기부 세상의 빛을 밝히다
--  군산시, 소통협력공간 조성사업‘우수기관’선정
--  대통령실, '태영건설 워크아웃'에 "점검해왔다… 모든 조치 취할 것"
--  GS25, 우리동네GS앱 인기상품 TOP10 발표
--  [인사] 보령시
--  Протестиращите в Сърбия обявиха 24-часова блокада на Белград
--  Blinken viaja a México en búsqueda de medidas para frenar la migración
--  Fiscalía señala que “seguirá cumpliendo su rol” en la investigación penal
--  مفاجأة.. درجة حرارة الجسم "الطبيعية" ليست 37.. فكم تكون؟
--  Showers, thunderstorms forecasted for several provinces, fairly heavy rainfall expected in selected districts
--  Delhi reports first case of Covid-19 Sub-Variant JN.1: Officials
--  ‘라임 사태’ 주범 김봉현 징역 30년 확정…추징 769억원
+-  '나는 솔로 18기' 현숙, 자기소개=최고의 1분 "33세·핀테크 기업 데이터 분석가"
+-  쿠키런: 킹덤, 중국 앱마켓 인기 2위…현지화 전략 적중
+-  史蒂夫·鮑爾默預計每年將獲得10億美元的被動收入
+-  Two-year-old girl drowns in backyard swimming pool in NSW
+-  Wawancara Lee Sun Kyun Sebelum Meninggal Dirilis: Saya Jadi Lebih Sukses
+-  El doble rasero de EEUU ante Israel y Rusia puede tener graves consecuencias internacionales
+-  [속보] 尹 "독도 '분쟁지역' 기술, 결코 있어선 안될 일...즉각 시정하라"
+-  Día de los Inocentes: qué es, cuál es su origen y por qué se celebra cada 28 de diciembre
+-  Banjir: Masjid, surau diminta adakan solat hajat mohon kesejahteraan
+-  “زومبي الغزلان”.. مرض قاتل يتلف الدماغ ويهدد البشر
+-  Asian Stocks Open Higher On Fed Rate Hopes
+-  Misi Harimau Malaya tempa sejarah
+-  An Insulin Injection That Lasts For Days: A New Hope For Diabetics
+-  [오피셜] '나폴리 시절 김민재 동료' 북마케도니아 MF, 이제 적으로 만난다...라이프치히 이적 확정
+-  '코리안 가이가 해냈다' 황희찬, 브렌트포드전 멀티골 → EPL 진출 후 첫 두 자릿수 득점 달성...울버햄튼은 4-1 대승
+-  "동경하지 말자" 오타니 명언 인용한 'ML 투수 최고 몸값' 야마모토, 다저스 공식 입단
+-  「H3」ロケット2号機 来年2月15日に打ち上げを発表 JAXA
+-  Israeli strike kills three in south Lebanon: state media
+-  凱旋苑2026年改為社宅 民進黨：現在就可解約、別想拖到選後
+-  Complaint against Ranbir Kapoor for `Jai Mata Di` chant at Christmas party
+-  Olympic champion pole vaulter Moon named Mumbai Marathon ambassador
+-  Sushila floated like a butterfly and stung like a bee
+-  Терапевт Романенко дала советы по сбору новогодней аптечки
+-  Top Nigerian Newspaper Headlines For Today, Thursday, 28th December, 2023
+-  Gesundheit | Warum Sitzen das neue Rauchen ist
+-  Курс тенге на 28 декабря, цены на нефть и металлы
+-  Franklin Salas: "Zubeldía no me dejó retirarme en Liga"
+-  New orca calf spotted in Puget Sound
+-  『バルダーズ・ゲート3』レビュー……をしようとしたが、レビューではない形でその面白さを伝えたい
+-  Kouvolalaisten kirkkoherrojen nimissä lähetettiin huijausviestejä
+-  Klima | San-Bernardo-Archipel: Karibik-Inseln sind dem Untergang geweiht
+-  Засуха, проливные дожди и сбои в работе gosagro.kz
+-  Emma Gilmour, first woman to drive for McLaren, on leaving prestigious motor racing team
+-  Im Visier - „Eine Garantie gibt es nicht!“
+-  Voranschlag 2024 - Zinsen steigen ins Unermessliche
+-  Umbau der Volksschule - Projekt in Kirchschlag: „Wir drehen die Schule um“
+-  Hus i Munka Ljungby har bytt ägare två gånger sedan 2021
+-  Erleichterung in Gmünd - Strandbad-Betrieb für zehn Jahre gesichert - mit Ausblick auf Camping
+-  63-åring ny ägare till mindre hus för i Grevie
+-  Na današnji dan (28. december) …
+-  Piratas del siglo XXI
+-  You can’t reverse the ageing process but these five things can help you live longer
+-  Qorxmayın, bunu edin, bayram manikürü daha effektli görünəcək
+-  Kirkon kolehtituotot lähtivät uuteen lentoon koronan jälkeen – Tänä vuonna voidaan kerätä jopa yhdeksän miljoonaa euroa
+-  El 12,4 % de los residentes en Bogotá consideran que su salud mental es mala
+-  Accessorize has the perfect alternative to UGG's Tasman slippers - and they're only £13
+-  Katso Kalevan listalta: Näin Pohteen asiakasmaksut nousevat ensi vuonna – Etävastaanotolla maksu on 15 prosenttia pienempi
+-  Čas je za prvi vrhunec sezone
+-  OD MARTA JOŠ 22 INOVATIVNA LEKA DOSTUPNA PACIJENTIMA U BOLNICAMA: Pogledate SPISAK za koje tačno bolesti su ovi lekovi!
+-  El tenista ecuatoriano Gonzalo Escobar, sin el peso de los años
