@@ -1,11 +1,11 @@
 # Latest News
--  Sí, celebrar
--  Arrodillarse ante los ricos
--  La inaceptable situación del cuartel de Son Busquets
--  Eros y luces navideñas
--  Parque de atracciones
--  Hace equilibrios
--  La feliz tregua de Navidad
--  El inglés
--  De Doña Manolita a Loterías Prohens
--  Hem perdut la fe?
+-  谨记安全驾驶！这个假期已有10人因车祸死亡
+-  最新最强新冠毒株登陆澳洲，感染人数飙升！新变种“横扫”40国，这国重申“隔离令”
+-  C罗在华比赛门票开售1小时扫空 传见面会票价12万
+-  “欧元缔造者”、欧委会前主席德洛尔逝世 享年98岁
+-  奥克兰Avondale发生大火，80名消防员和21辆消防车参与灭火
+-  Estos son los países donde es más costoso conseguir un gramo de cocaína en la calle
+-  「氫」風吹來！和泰車引進TOYOTA氫能巴士，何以在台北車展獨領風騷？
+-  接種流感疫苗，如何順帶拯救你的腦子和動脈硬化？
+-  特斯拉驚傳兩年前工傷醜聞，超級工廠其實「超級危險」？
+-  麥當勞變了！這兩個「回憶殺」設施為何相繼走入歷史？
