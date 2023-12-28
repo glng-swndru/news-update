@@ -1,51 +1,51 @@
 # Latest News
--  “나의 아저씨였는데”…이선균 사망소식에 충격 빠진 중국팬들
--  Meteoroloji'den sağanak ve yoğun kar uyarısı!
--  Sigarada vergi oranlarına güncelleme
--  Melike Şahin'in konser fiyatına tepki!
--  Gram altın rekora doymuyor
--  Ahmet Hakan yazdı: Yetime kaftan giydirilmiş gibi bir hisle "Yakışır polisime"
--  İlk kez Süper Lig deneyimi yaşayan Pendikspor’un karnesi!
--  법무부, 제4차 외국인 정책 기본계획 확정…"이민자 유입·통합 정책 체계화"
--  故 이선균 장례 이틀째...봉준호 조문·지드래곤 국화꽃 애도
--  공산당 기관지, 관료 조직 ‘손가락 끝 형식주의’ 정면 비판…배경은?
--  尹, 비서실장 이관섭·정책실장 성태윤·안보실장 장호진 임명
--  Life | Vitz, Scorpio N, CX-60... These are the 2024 SA Car of the Year semi-finalists
--  올해 코스피 종가 2655.28...1.6% 상승 마감
--  KPU Ubah Metode Pencoblosan di 4 Wilayah Luar Negeri
--  Von der Hamas inspiriert? „Barbarische“ Attacke auf mindestens 20 christliche Dörfer
--  Rangers’ Jacob Trouba exits with upper-body injury
--  Rainbow Tours zwiększył sprzedaż w listopadzie
--  Ustępujący prezes giełdowej spółki sprzedał akcje za grosze
--  Banki inwestycyjne: budowa mieszkań w Chinach nadal będzie spadać w 2024 roku
--  Celon Pharma podała wyniki badania klinicznego związku CPL'280
--  한동훈 비대위, 평균나이 47세·비정치인 주축…쇄신 기대 속 '아마추어' 우려도
--  Silvester in NRW: Mega-Ansturm auf Böller – doch Kunden schauen in die Röhre! „Ging mal gar nicht“
--  Një shofer 53-vjeçar ka humbur jetën në aksidentin e mbrëmshëm në rajonin e Negotinës
--  "대주주 먹튀 방지"...내년 하반기부터 '내부자 거래 사전 공시' 의무화
--  Vučić objavio novogodišnju čestitku svog sina: "Dragi tata..." FOTO
--  U crkvi iz 18. veka otvoreno klizalište FOTO/VIDEO
--  Sjutra se bira predsjednik Sudskog savjeta
--  Oklahoma bez Micića i Pokuševskog srušila i Nikse VIDEO
--  81 ilde yüzde 116 arttı! Sayı milyonu aştı
--  Borsa güne yükselişle başladı
--  内分泌紊乱吃避孕药可以避孕吗
--  冻梨的正确吃法是什么 冻梨功效揭秘
--  宫颈炎能吃阿莫西林消炎吗
--  乱吃维生素有什么潜在风险 如何正确补充维生素
--  断肠草是什么 有什么注意事项
--  宫颈炎能吃辣的吗
--  睡觉脚抽筋是缺钙吗 睡觉脚抽筋可能与这哪些因素有关
--  أهم الطرق لتنمية الذكاء الاجتماعي لدى الأطفال
--  313 شهيدا بالضفة الغربية منذ 7 أكتوبر
--  ما هو تفسير حلم الذهاب إلى المقبرة؟
--  وصفة ولا أشهى لتحضير شوربة القمح بالدجاج
--  Με Παναθηναϊκός – Ερυθρός Αστέρας οι αθλητικές μεταδόσεις της ημέρας (28/12)
--  Gjendja e rrugëve
--  Okan Buruk, Süper Kupa maçı 11'ini belirledi
--  CRM Medya Yönetici Ortağı Erol Sarı’nın Dijital Tüketicinin Zihinsel Haritası: Anlamak ve Etkilemek Hakkındaki Konuşması
--  Maloljetnik kod Zenice zadobio životno ugrožavajuće povrede
--  Двум россиянам дали сроки за попытки поджечь военкоматы
--  Generali Insurance AM: analisi e prospettive sui mercati azionari e obbligazionari
--  Saveznici SAD ne žele biti povezani sa pomorskim snagama u Crvenom moru
--  아워홈, 2023 KPGA 제네시스 대상 ‘아워홈 그린적중률’ 시상
+-  عاجل.. الإحصاء: 8.6% نسبة البطالة بين المواطنين في الربع الثالث 2023م
+-  Otomobille kaldırıma çıkan alkollü sürücü kaza yerinde sızdı
+-  Yeni asgari ücretle o da değişti! İşsizlik maaşı ne kadar oldu?
+-  1 Ocak'tan itibaren 5 yeni uygulama hayata geçiyor! Hepsi zorunlu olacak
+-  Galatasaray ile Fenerbahçe 399. randevuda
+-  Yeni asgari ücret ne zaman yatacak? Milyonların gözü ödeme tarihine çevrildi
+-  Deprem sigortası prim ve metrekare bedelleri artırıldı
+-  IFK Mariehamnista maailmalle ponnistanut Oscar Wiklöf otti uuden ison askeleen urallaan
+-  Tuomaristo antoi armoa, kurinpito ei - TPS:n hyökkääjälle pelikieltoa
+-  ‘বাংলা চ্যানেল’ পাড়ি দিতে সাঁতারে নেমেছেন ২ নারীসহ ৪৩ জন
+-  Soccerladuma | Magents: Riveiro Is Not Playing
+-  İsmailağa Afganistan'da ne yapıyor. Taliban’la son 3 ayda üçüncü kez görüştüler
+-  הפועל פתח תקוה לא תבצע זעזוע, חשש להיעדרות ארוכה של שכטר
+-  זעם בריינה: "לא צריך VAR כדי לראות את העבירה. זו לא פעם ראשונה"
+-  סכנה לעשור אבוד: האם הממשלה מסוגלת להעביר תקציב אחראי?
+-  חבריו של אביעד פריג'ה לרמטכ"ל: "עושים עליו עליהום תקשורתי"
+-  The centre of political power in Australia is drifting south
+-  Prosječna plaća u ovoj hrvatskoj županiji je tuga: Ni rekordna dobit tvrtki nije pomogla
+-  Old Clip of Jairam Ramesh Making Remarks on Temples & Toilets Peddled as Recent
+-  국세청, 올해 역외탈세 세무조사로 1조3500억원 이상 추징
+-  이재명 만난 정세균 “당 분열 책임 갖고 수습해달라”
+-  [김천24시] 내년 김천사랑상품권 할인률 4% 감소…한도는 유지
+-  [부산24시] “사업 실행력 강화”…부산시, 고위 공무원 대폭 교체
+-  전 세계 무기 주문량 ‘사상 최고’…바빠진 한국 방산기업
+-  “상습 침수 우려” 부산 온천천, ’국가하천’ 승격
+-  [천안24시] 천안시, 2024년 국비 1조4497억원 확보…역대 최대 규모
+-  دعاء سقوط المطر وبداية الأجواء الشتوية.. «ردده في الساعات الحالية»
+-  칠곡군, 2023년 종합청렴도 2등급 달성
+-  구미상의, ‘제34회 구미상공대상 수상자’ 선정
+-  익산도시공단, 첨단기술로 안전점검 나선다
+-  대구농협 두레봉사단, 사랑의 연탄 5800장 나눔
+-  충남도의회 사무처, 2024년 상반기 4급 이상 인사 단행
+-  충남 홍성교육지원청, 올해 교육공로자 표창 수여
+-  원주 기업인 대표, 6737억 국비 확보한 원강수 원주시장 출근길 깜짝 이벤트
+-  [외환 마감] 원/달러 환율 6.2원 내린 1288.0원
+-  [코스피 마감] 41.78p(1.60%) 오른 2655.28
+-  KT, 인기 로밍 '데이터 함께 ON' 프로모션 실시
+-  HD현대오일뱅크, 전기차 윤활유 시장 본격 진출
+-  [인사] 수협중앙회
+-  [속보] '대장동 50억 클럽' 특검법 국회 통과…與 표결 불참
+-  [인사] 경기도 용인시
+-  민주, '한동훈 비대위' 공개에 "역대급 막말 지도부"
+-  [인사] 일동제약그룹
+-  'Here We Go' 로마노가 밝혔다! 토트넘-세비야, 아약스 05년생 MF 영입 위해 제안 준비 중
+-  KBO, 울산시와 문수야구장 인프라 개선 논의...'호주·일본·중국 초청' 교육리그 추진 검토
+-  Hochwasser-Alarm in Deutschland: Weitere Straßen in Lilienthal nach Deichriss evakuiert
+-  Dia Mirza enjoys family outing at Gir National Park, see pics
+-  Delhi records minimum temp of 8.4 deg Celsius, dense fog delays trains
+-  Salman Khan: We`ve not achieved even 10 per cent of Rajesh Khanna`s stardom
+-  Sonu Sood, Jr NTR, Prrabhudeva condole demise of late Vijayakanth
