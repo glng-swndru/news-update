@@ -1,11 +1,51 @@
 # Latest News
--  '나혼산' 팜유즈→'전참시' 구라걸즈, 'MBC 방송연예대상' 치열한 베스트 커플상
--  故 이선균 소속사, 기습 취재→유튜버 소란 고통 호소 "잔혹한 상황 벌어지고 있다"
--  Setelah Jay Idzes, PSSI Fokus Selesaikan Proses Naturalisasi Thom Haye
--  Brigade Al Qassam Perkenalkan Roket Portabel Buatan Rusia untuk Pertempuran Gaza
--  Ульянов заявил, что гендиректор МАГАТЭ посетит Россию в 2024 году
--  MTC y Conadis impulsan accesibilidad en transporte para discapacitados
--  Désirée Nick: Von Unten-ohne-Hammer bis "Playboy"-Kracher: DIESE Fotos gefielen nicht jedem
--  Annalena Baerbock: Von "Speck der Hoffnung" bis Kuss-Fauxpas: DAS waren ihre peinlichsten Momente
--  Les transports publics luxembourgeois sur leur 31
--  5 carreras profesionales orientadas a los negocios
+-  '부동산 PF' 연쇄 부실 우려…정부, 건설업 종합지원 대책 마련
+-  Hasta el sábado se posesionarán los nuevos dignatarios en La Guajira
+-  Началникот на израелската армија вели дека земјата мора да биде подготвена за офанзива против Либан
+-  Херсонда Россия зарбасидан кейин 100 минг киши электрсиз қолди.
+-  Ўзбекистон маҳаллалари уюшмаси ташкил этилади.
+-  Оилавий тадбиркорларга 5 нафаргача доимий ходим ёллаш ҳуқуқи берилди.
+-  Вакиллик парламенти, тенглик, сўз ва матбуот эркинлиги кафолатлари: жадидларнинг миллий ҳуқуқ тизимини шакллантиришдаги ўрни ҳақида.
+-  [28일 이천시] 고향사랑기부금 1억 원 돌파
+-  Il Toro ritrova Bellanova: è la certezza di Juric
+-  Juric: il rinnovo passa anche dal mercato
+-  Asgari ücret için nokta atışı yapan Cem Küçük, bu kez memur ve emekli maaşı için rakam açıkladı
+-  CHP, 12 şehidimizi parti içi kavgaya perde yaptı
+-  İzmir açıklarında düzensiz göçmen operasyonu
+-  41 ilde eş zamanlı 'Narkogüç' operasyonu
+-  Perihan Savaş, eski eşi İbrahim Tatlıses ile yıllar sonra bir araya geldi
+-  철도공단, 미래 철도설계 책임질 신진 건축사 발굴 박차
+-  לחיים, ועוד קצת. כי אין דרך יותר טובה לסגור את 2023
+-  AB-CD, תל אביב: החגיגה השמחה של לואי חלבי כבשה את דיזנגוף
+-  העברות בעולם, 28.12: ליברפול קרובה להחתים בלם, מסי יצרף חבר נוסף למיאמי?
+-  विराट कोहली और अनुष्का शर्मा की शादी की सालगिरह में 'एक चीज' बहुत चमकी!
+-  Congress: నాగపూర్ వేదికగా కాంగ్రెస్ 139వ ఆవిర్భావ దినోత్సవం.. కారణమేంటంటే..
+-  لا حرب في الجنوب ولا انتخاب رئيس!
+-  '김건희특검' 처리 임박…한동훈 비대위 인선 발표
+-  Covid: ఆ తర్వాతే నిర్ధారణ.. కరోనాను గుర్తించడంలో ఆలస్యం
+-  Two Australians killed in an air strike in Lebanon
+-  [28일 수원시] 하수슬러지 처리시설에 새 악취방지시설 설치 등
+-  Ministrica Vrečko na veliko zapravlja naš denar
+-  Culture ministry to reform artist support system
+-  Fed's rate cut may not come as quickly as market anticipates: Stifel economist
+-  Melting glaciers
+-  জেল থেকে বের হয়ে ইভ্যালির রাসেল কি হুমকির মুখে?
+-  강제동원 2차 소송 또 승소 확정…“미쓰비시, 강제동원 노동자에 배상”
+-  총선 앞 ‘독도는 분쟁지역’ 논란 일파만파…與도 ‘전전긍긍’
+-  ‘육장갈비’ 고깃집 업종변경 창업 지원
+-  경제단체장 신년사 “글로벌 경제 위기…규제 혁파 기업 활력 높여야”
+-  الجيش الإسرائيلي: مقتل 3 جنود بينهم ضابطان في معارك وسط قطاع غزة
+-  Φωτιά σε διαμέρισμα στο Παλαιό Φάληρο - Στο νοσοκομείο δύο άτομα
+-  Над 40 загинали при взрив на цистерна с гориво в Либерия
+-  Строительство нового жилого квартала планируют начать в Жабинке в 2024 году
+-  ‘सलार’ की रफ्तार धीमी पड़ी, तो मेकर्स ने ‘गदर 2’ वाला सॉलिड दांव खेल दिया
+-  حراكٌ محلّي في الملف الرئاسي؟
+-  एक दिन के लिए जा रहे हैं ट्रिप पर? बैग में इन चीजों को रखना न भूलें
+-  20 мртви во напад на станбена зграда во Појасот Газа
+-  Edomex: Angustia y desesperación por la desaparición de cuatro polleros
+-  Balował z Ronaldinho, Guardiola wyrzucił go z Barcelony. Piłkarz zaginął 4 lata temu
+-  طقس المملكة اليوم.. أمطار متباينة الشدة.. إليك خريطتها
+-  Son dakika! 41 ilde 'Narkogüç' Operasyonu: 418 gözaltı, 1 ton 480 kilogram uyuşturucu...
+-  На KASE доллар продается ниже отметки 455 тенге
+-  8GB रैम, 5000mAh बैटरी के साथ Coolpad Grand View Y60 स्मार्टफोन लॉन्च, जानें कीमत
+-  Japans industriproduktion sjönk i november
