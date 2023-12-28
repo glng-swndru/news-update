@@ -1,11 +1,51 @@
 # Latest News
--  Eski Fenerbahçeli Jailson La Liga'ya transfer oldu!
--  Üstün zeka testi: Sadece zekiler 5 saniyede kediyi bulabiliyor! Peki siz bulabildiniz mi?
--  CHP'nin 'şehit' skandalları bitmiyor... İmamoğlu, tepkileri 'oyun' olarak nitelendirdi
--  RTÜK bazı kanallara ceza uyguladı
--  مأزق الإطار الخاص مرة أخرى| كتب جمال لقم
--  Nagła śmierć dwuletniej dziewczynki. „Szok i niedowierzanie”
--  شباب بلوزداد يعبر النادي القسنطيني بثنائية في الدوري الجزائري
--  Grèce : Nouvelle loi pour régulariser et employer 30 000 migrants
--  Auxiliar de limpeza de shopping de Ipatinga é xingada por cliente
--  Peniaze určené pre verejnoprávne médiá pôjdu do zdravotníctva, informuje poľská vláda
+-  '리모델링' 선언한 SSG, 가장 시급한 곳은 바로 '불펜'[초점]
+-  Bislimovski: Ata që do të shkojnë në bllokun e tretë do të kenë fatura më të vogla se më parë, sepse do ta orientojnë konsumin në tarifë të lirë
+-  منها خفض الكولسترول.. هذًا ما يحدث لجسمك عند تناول السلطة يوميا
+-  Los bomberos de San Sebastián rescatan a 90 personas atrapadas en una noria
+-  Prayagraj News: स्मैक तस्कर रिफाकत और उसकी पत्नी रेशमा गिरफ्तार
+-  Sorteo Primitiva: resultados del jueves 28 de diciembre de 2023
+-  Ministério identificou Bolsa Família para pessoas com R$ 10 mil de salário
+-  Karnal News: सीएम फ्लाइंग ने जब्त किए प्रतिबंधित सिगरेट और तंबाकू से बने उत्पाद
+-  Buzluğunuz çalışıyor ama buzdolabı yiyecekleri taze tutmuyorsa işte kesin çözümü
+-  Vierschanzentournee im Liveticker: Halten die Nerven im Hexenkessel?
+-  Vierschanzentournee im Liveticker: Halten die Nerven im Hexenkessel?
+-  Palestinci: Izrael pogodio zgradu s raseljenim obiteljima. Ubijeno je 20 ljudi
+-  La diva mexicana Silvia Pinal saldría del hospital para fin de año
+-  OHR: Naći prihvatljivo rješenje za državnu imovinu
+-  [미·영·독·프 “무모한 행동”…‘고농축 우라늄 증산’ 이란 규탄
+-  Taravari politikani më i besueshëm te shqiptarët
+-  طريقة استخدام تطبيق «إنستا باي».. عملاؤه معفيون من رسوم التحويلات المالية
+-  Konutta yeni uygulama 1 Ocak itibarıyla başlıyor! İşte başvuru adresi
+-  PJ admite a trámite apelación para anular el archivo de la investigación contra Zoraida Ávalos
+-  Trump negira da je ucjenom dobio ulogu u filmu 'Sam u kući 2'
+-  Tras reunirse con Javier Milei, ahora Omar De Marchi se juntó con Victoria Villarruel en el Senado
+-  Ex-Weltmeister Price bei Darts-WM ausgeschieden
+-  Los bomberos rescatan a 55 personas de la noria de Donostia tras una avería
+-  Сирийские ПВО отражают ракетную атаку Израиля по Дамаску
+-  Virtus Bologna strepitosa! Partizan Belgrado ko e 2° posto in Eurolega
+-  Superprestige Diegem: Mathieu van der Poel inarrêtable remporte sa cinquième victoire en autant de cyclo-cross
+-  Deze aandelen hebben het slechtst gepresteerd afgelopen jaar
+-  Senador dos EUA sugere bombardear o Irã em resposta aos ataques dos Houthis
+-  국가정보원 "김정은, 내년초 남한에 큰 파장 일으킬 방안 마련 지시"
+-  PLAKALA JE CELA ARENA: Ovo je NAJEMOTIVNIJI momenat na koncertu Milice Pavlović!
+-  Embarazada de tres meses, Nicole Neumann posó en la piscina con microbikini
+-  David Price arremete ante Red Sox por casos de Mookie Betts y Babe Ruth
+-  올해 마지막 주말 전국에 눈·비…해돋이는 선명
+-  국민연금 2055년 고갈 우려…새해 개혁 합의 시험대
+-  EN FOTOS: ¿Ovnis? Extrañas luces iluminaron los cielos de Italia
+-  Peleshi: Efektivët e Policisë Ushtarake trajnohen nga Karabinierët italianë
+-  Lugi föll tungt mot topplaget: ”För mycket tekniska fel”
+-  Lugi föll tungt mot topplaget: ”För mycket tekniska fel”
+-  Ex-Weltmeister Price bei Darts-WM ausgeschieden
+-  Sin heridos: levantaron el acampe QOM de Plaza de Mayo después de cuatro años
+-  Nova poljska vlada Donalda Tuska disciplinira javne medije
+-  Sparatoria in via Timavo a Bari, ferito un uomo
+-  Beto Casella continuará en El 9 en 2024
+-  Serie A2 Old Wild West 2023/24 – La preview della 17^ giornata nel girone Rosso
+-  Alerta Verde en siete departamentos de Honduras por vaguada y frente frío
+-  Estos son los pasos para drenar y proteger las tuberías del frío
+-  PlayStation 3 je i dalje popularan – evo koliko aktivnih korisnika ima
+-  Liga BásquetPro: estas son las principales novedades para el 2024
+-  Man die Sarah ombracht mag met verlof, tot woede van Sarahs moeder
+-  Frases para desear un Año Nuevo 2024 | Mensajes cortos y originales para compartir
