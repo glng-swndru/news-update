@@ -1,11 +1,51 @@
 # Latest News
--  HIFK vahvisti tuoreen kanadalaisvärväyksen tilanteen
--  Obras de contenção da encosta do Portão do Inferno devem começar nesta sexta-feira, afirma secretário
--  Sirios Resources : complète une levée de fonds de 500 000$
--  Mercato - OM : Une fake news est dévoilée sur le recrutement
--  Darts-WM 2024 heute live in TV und Stream: Alle Ergebnisse aus dem Ally Pally auf einen Blick
--  [AM-PM] 국민의힘 비대위 출범…한동훈, 김진표·이재명 예방 外
--  미국서 먹는 K-치킨 한 마리…팁 포함해 얼마?
--  Dafina Zeqiri publikon këngën e re “My Love”
--  శిక్షలు పెరిగాయి... నేరాలు తగ్గాయి
--  LIVE WK darts | Titelfavoriet Humphries krijgt Duitse fans stil met sensationele comeback, exit Price
+-  الانتصار الأول لـ ديفيد مويس على ملعب الإمارات
+-  لعشاق الفانتازي.. بونص مباراة أرسنال أمام وست هام
+-  Xiaomi predstavio svoj prvi električni automobil
+-  Prefeitura divulga programação do réveillon em Lucas com show de Diego e Arnaldo; não haverá queima de fogos
+-  „Kirov“ klasės laivai raketų paleidimo šachtas užpildo vandeniu. Štai kodėl
+-  7 milliards de FCFA et 10 véhicules pour transformer l’Ogooué maritime
+-  Hemmahjältens show inför familjen: "Sjukt coolt"
+-  Bakan Tunç: Anayasanın değişmesi konusunda herkes mutabık
+-  OPEC 내년 시장점유율 4년만 최저치…"27% 아래로 떨어져"
+-  استشهاد فلسطيني برصاص الاحتلال جنوب القدس
+-  Con inversión de $ 17,5 millones comenzará en Galápagos en el 2024 la construcción de un nuevo ecolodge
+-  Dmitry Bivol y Artur Beterbiev se enfrentarán en 2024 en Arabia
+-  Quién es el joven delantero que busca River para reemplazar al venezolano Rondón
+-  [2024년 이렇게 바뀐다-부동산] 출산가구 유리하게
+-  [2024년 이렇게 바뀐다-부동산] 재건축 규제 완화
+-  [2024년 이렇게 바뀐다-청년] 성장과 취업에 도움되게
+-  [2024년 이렇게 바뀐다-가족과 육아] 아이 키우는 데 도움되게
+-  [2024년 이렇게 바뀐다-노동·복지] 고소득자 건보료 뛰고 약자 복지 강화
+-  İsmail Kartal'ın Süper Kupa'ya odaklandı: 'Tam kadro kupaya hazırız'
+-  Okan Buruk: 'Beklenti yüksek, karşılarız'
+-  İsrail işgal ihalesini açtı... Doğu Kudüs'te 1839 yasa dışı yeni konut inşa edilecek
+-  Штат Айова отправит в Косово вторую группу нацгвардейцев
+-  Broncos befreien sich aus der Krise, HCG mit Mega-Comeback
+-  West Ham šokirao Arsenal na Emiratesu, Liverpool preuzima vrh ljestvice
+-  Lazio, Felipe falso nove? Intanto per la difesa prova il recupero Casale
+-  استجابة لنداء شيخ الأزهر.. وفود شعبية من 70 دولة تشارك فى قوافل لإغاثة غزة
+-  صفارات الإنذار تدوى في جنوب عسقلان بغلاف غزة
+-  RUČAK I DORUČAK Aca Petrović ispričao anegdotu o bratu Draženu koju niko nije znao
+-  Ostatnio jest o nim głośno. Polski talent może zastąpić Grabarę w Danii
+-  NIA, ‘생성AI 윤리 가이드북’ 발간
+-  PINTEC ANNOUNCES UNAUDITED FINANCIAL RESULTS FOR THE FIRST HALF OF 2023
+-  Toño Mauri: lo que se sabe de la bacteria que tiene en los pulmones
+-  Câmera de segurança flagra assalto a despachante em Jaguariúna
+-  Nuôi con đặc sản dưới kênh, rạch, chả phải cho ăn, bắt lên bán, nông dân Cà Mau lời 50%, đó là con gì?
+-  Com média de 3 casos por dia, nº de estupros na região de Campinas é o maior desde 2001, diz SSP
+-  Equipos de ciclistas ecuatorianos confirman su participación en el Tour Colombia 2024
+-  إحصائيات مباراة أرسنال ضد وست هام
+-  População preta e parda cresce 10,4% em Joinville, aponta Censo 2022
+-  LigaPro: Sueño cumplido para Norberto Araujo
+-  Balance positivo para centros comerciales en Navidad con aumento de 30% en visitantes
+-  Arsenal mistókst að endurheimta toppsætið
+-  Segist gera ráð fyrir varnargörðum við Grindavík
+-  నన్ను సీతక్క అని పిలిస్తేనే నాకు ఇష్టం
+-  الأعلى تقييمًا في مباراة أرسنال ووست هام
+-  Encuentra el valor de todos los silbatos y pon a prueba tu ingenio en este intrigante reto matemático
+-  전국 광역단체장 12월29일 일정
+-  Homem é baleado no rosto em marina de Arraial do Cabo, no RJ
+-  Arsenal pao u londonskom derbiju, Liverpool ostao na vrhu s dva boda prednosti
+-  RETROSPECTIVA 2023 – Dori Caymmi, Edu Lobo e Marcos Valle festejam 80 anos com discrição
+-  Otto Stenberg hyllas stort av lagkamraterna efter JVM-succén
