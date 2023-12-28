@@ -1,11 +1,11 @@
 # Latest News
--  Reacher : Quand sort l’épisode 5 de la saison 2 ?
--  На ёлочных базарах Челябинска в ходе проверок изъято около 600 деревьев
--  CNV revisa las tasas de fiscalización y control para 2024: ¿qué significa para los regulados?
--  »Das kann so, wie es aktuell läuft, nicht funktionieren«
--  น้ำท่วมหนักเขตเศรษฐกิจเมืองปัตตานี - นราฯ ตาย 7 สูญหาย 1
--  Чемезов сообщил о глобальном увеличении производства боеприпасов и техники
--  Истребители ВКС России сбили украинский Су-25 в ДНР
--  Pengurusan tertinggi Kastam diminta kaji semula arahan perpindahan pegawai
--  Ex-England goalkeeper David James, 53, spearheads NHS quit smoking campaign as he reveals his 20-a-day habit meant he 'couldn't run two laps' during peak of his career
--  Nové dopravní značky. Podívejte se, co vás čeká na silnicích
+-  Bakan Uraloğlu, zincirleme kazanın yaşandığı Kuzey Marmara Otoyolu'nu kullanacak sürücüleri uyardı
+-  Soccerladuma | Official: Bafana AFCON Group Rivals Announce Final Squad
+-  Türkiye'de ilk! Konya'da yeşil sertifikalı sporcu yetiştirme merkezinin yapımı sürüyor
+-  Обгорела носовая часть: в Феодосии взрывами повреждено еще одно судно РФ
+-  Merkez Bankası rezervleri açıklandı
+-  Kriz büyüyor! Aliyev 48 saat süre verdi, Macron'dan sert cevap!
+-  أوحيدة: الحوار الذي ترعاه البعثة الأممية غير دستوري
+-  Vujović: Kvalitetno radimo, jedva čekamo da počne EP
+-  Odermatt fehlt auch in Bormio wenig zum Triumph – überragender Sarrazin mit erstem Sieg
+-  Swift conquers the NFL, Miami toasts Messi, and the Bills face an unthinkable scare: DailyMail.com looks back at the best photos from a WILD year in sports
