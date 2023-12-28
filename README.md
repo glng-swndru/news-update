@@ -1,51 +1,11 @@
 # Latest News
--  Antonov: Slanjem vojne pomoći Kijevu, SAD žele borbu do poslednjeg Ukrajinca
--  Hviezdi na ľade aj mimo neho. Lopušanová dostala prestížne ocenenie, je najlepšia na svete
--  Stricter smoking and vaping laws announced for 2024 in South Australia
--  Stricter smoking and vaping laws announced for 2024 in South Australia
--  Stricter smoking and vaping laws announced for 2024 in South Australia
--  Tatler celebrates the outré, more-is-more 1980s style of Princess Michael of Kent as daughter-in-law Sophie Winkleman adorns the cover
--  Man allegedly stabbed in early morning attack in Adelaide's CBD
--  Man allegedly stabbed in early morning attack in Adelaide's CBD
--  Man allegedly stabbed in early morning attack in Adelaide's CBD
--  Number of fires down overall in Fresno, crews still responding to more structure fires
--  한화 건설부문, 2081억 평택 통복하수처리장 현대화 실시협약
--  내년 7월부터 내부자 거래 사전 공시 의무화..."먹튀, 이제 그만"
--  '쌍특검법' 야권 단독 처리로 국회 본회의 통과…與 표결 불참
--  인천경찰청장 "이선균씨 사망 안타까워…수사는 적법하게 진행"
--  "On a eu quelques discussions sympas", Djokovic raconte ses liens privilégiés avec Deschamps et Riner
--  80 тысяч рублей за свет незаконно насчитали жильцам дома в Брянске
--  Odborníkov si vážim, personálne zmeny nebudem odkazovať cez médiá, tvrdí Šimkovičová
--  Systemen spoedeisende hulp offline na ransomwareaanval
--  Michael Schumacher's former Ferrari team-mate reveals how long-suffering wife Corinna polices who can visit the stricken Formula One legend, 10 years on from his tragic skiing accident
--  Lady Frederick Windsor is the Lady of Belgravia in a costume drama of her own creation on the cover of the February issue
--  В Совфеде оценили вероятность превращения Балтики во внутреннее море НАТО
--  Шесть лет колонии и крупный штраф получил изготовитель оружия из Тверской области
--  [프로배구] 우리카드 돌풍 타고... 남자배구 관중 23％ 증가
--  Nayanthara completes 20 years in the film industry, pens heartfelt note for fans
--  "This is us": Liebt Schauspielerin Anna Maria Mühe einen Kollegen?
--  Орловчанина отправили в колонию на 2 года за пьяную езду
--  Allmänna Arvsfonden övertar huset på Hjulsbrovägen 1 i Linköping
--  Руски самолет се приземява върху замръзнала река
--  Sarah Ferguson planned the sweetest Christmas celebration for her grandchildren - but there’s one thing she’s struggling to teach them about the holidays and it’s so relatable
--  동서발전, 농축산분야 신재생 융복합사업 MOU 체결…가축분뇨 활용·개발
--  Российский волейбольный клуб возглавил внук ушедшего тренера
--  Видео о могилевской парикмахерской «из 90-х» набрало миллионы просмотров
--  13 schöne Hochzeitsgeschichten aus Castrop-Rauxel in 2023: Einzigartige Ehepaar-Ereignisse
--  Genç Şimşekler Denizlispor'u devirdi!
--  대통령실 "尹, '김건희·50억클럽 특검법' 즉각 거부권 행사"
--  Jokowi Singgung soal Korupsi saat Resmikan Menara BTS 4G Kominfo
--  Znamy nazwiska likwidatorów w TVP, Polskim Radiu i PAP
--  Storm Gerrit 'tornado' tears through Manchester wrecking around 100 homes overnight - as Brits trying to get back home after Xmas prepare to endure MORE travel chaos today after 80mph gales, rain and snow sparked road, rail and plane mayhem
--  भत्किएको दुई महिनापछि पुल सञ्चालन
--  White Fox founder comes under fire for throwing a lavish Christmas lunch for her top staff at mansion with the world's 'finest' caviar - as the brand is slammed for online shopping delays
--  청와대 행정관 출신 최일곤, 내년 총선 목포 출마 선언
--  Pilot aviona An-24 umjesto na pistu sletio na zaleđenu rijeku
--  Во кафе-книжарница „Буква“ последната „Поетска епизода“ за годинава
--  Sexy: Heidi Klum sonnt sich oben ohne im St.-Barth-Urlaub
--  Irena iz 'Ljubav je na selu' ima novog dečka: 'Iz Kameruna je, odgovara mi po razmišljanju'
--  OSTALI SPORTOVI: "Tip" - tiket za četvrtak
--  ¡Cuidado con la siesta!
--  ¡Cuidado con la siesta!
--  Два украинца незаконно пересекли границу Молдавии у села Валя Пержей
--  أسعار الذهب في السعودية اليوم الخميس 28 ديسمبر.. عيار 24 يسجل 220 ريالًا
+-  Incendiu la Ferma Dacilor. Şeful ISU Prahova și-a dat demisia în urma tragediei de la Tohani
+-  News24 | 2023 climate power rankings: The year heat came to stay
+-  AEX hoger geopend
+-  EC makes necessary preparation for nomination for NA election
+-  [창백한 푸른 지구] 해상풍력발전이 고래를 죽인다고?⋯ 진짜 위협은 OOOO
+-  Todos los estrenos de Netflix de enero
+-  Todos los estrenos de Netflix de enero
+-  Rama publikon pamjet nga Alpet: Dikur të izoluara gjatë gjithë dimrit, sot frekuentohen nga turistë
+-  Uoči ponavljanja izbora na 30 mjesta, u Srbiji sinoć počela izborna tišina
+-  Air Montenegro dogodine znajačno povećava broj letova između Tivta i Beograda
