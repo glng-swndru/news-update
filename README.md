@@ -1,51 +1,11 @@
 # Latest News
--  Μισθοί: Πόσο θα αυξηθούν το 2024 και με ποιο τρόπο - Νέο τοπίο με το «ξεπάγωμα» των τριετιών
--  El reequilibrio del índice Nifty 50 afecta a la ponderación de los valores, HDFC y Bajaj Finance suben
--  “แม่น้ำปัตตานี” วิกฤติ รับน้ำก่อนลงทะเล เข้าท่วมบ้านนับร้อยหลัง-ย่านการค้าในเมือง
--  นายกฯ มอบคําขวัญวันเด็ก ปี 2567 มองโลกกว้าง คิดสร้างสรรค์ สร้างประชาธิปไตย
--  عاجل.. "المرور" يوضح مدة الفحص الفني الدوري للمركبات بمختلف أنواعها
--  조국, 이선균 사망에 "남일 아냐"…與 "자기변명 아이템 이용" 맹폭
--  폴란드 총리 "K-방산 거래에 韓 금융지원 없었다"
--  Partido Republicano apela expulsión de Trump de primarias en Colorado
--  Cruz Azul y su TEMIBLE delantera encabezada por Alexis Vega para el Clausura 2024
--  Partiet överklagar att Trump portas från valet
--  Captain Vijayakanth passes away at 71 in Chennai after prolonged illness
--  “Una reunión muy productiva”: Mayorkas tras encuentro con AMLO
--  Fyndet i leran – ett krucifix från 1100-talet
--  Тръмп: Европа трябва да помага на Украйна наравно със САЩ
--  Toño Mauri recibe fuerte tratamiento por bacteria en los pulmones
--  Morena respalda acuerdos de AMLO con funcionarios de EU
--  7 Stocks to Buy if the Fed Goes Through With Interest Rate Cuts
--  Trump Ballot Ban Appealed To U.S. Supreme Court By Colorado Republican Party
--  NIP Esports Club Hosts Gaming & Esports Event for Women and Non-binary People in Stockholm
--  Rambus Advances Data Center Server Performance with Gen4 DDR5 RCD
--  Nglanggeran: Indonesia's hidden gem where sustainability meets hospitality
--  Reservas internacionales de Banxico cierran la semana en más de 211 mil mdd
--  Manitobans embracing winter activities despite mild temperatures
--  Gempa Swarm Bogor-Sukabumi Tercatat 122 Kali, BMKG: Semakin Berdampak ke Bangunan
--  कास्कीमा पाँच सहकारीको पौने तीन अर्ब हिनामिना
--  12 killed as bus catches fire after collision with dumper in MP`s Guna
--  Maharashtra: Five injured as taxi rams into parked school bus in Latur district
--  Vicky, Katrina Kaif`s late Christmas celebration comes with a Punjabi twist
--  Upacara Pemakaman Lee Sun Kyun Digelar 29 Desember 2023 Besok, Jeon Hye Jin Sang Istri Jadi Chief Mourner
--  Baku Electronics-də il fürsətlərlə yenilənir!
--  МВД Таджикистана получило автомобили с детекторами по обнаружению радиоактивных материалов
--  বহুনির্বাচনি প্রশ্ন (৪১-৫০) : অধ্যায় ১ | জীববিজ্ঞান - দশম শ্রেণি
--  Tütün ürünlerinde ÖTV düzenlemesi
--  ¡Qué hermoso! Este es uno de los últimos atardeceres del Popocatépetl del año (FOTO)
--  Israels Botschafter warnt vor Hamas-Angriffen in Deutschland
--  Israels Botschafter warnt vor Hamas-Angriffen in Deutschland
--  คมนาคม เร่งแก้ตั๋วเครื่องบินแพง ชี้ยังอยู่ในเพดานที่กำหนด
--  Bu köyde tüm fiyatlar tavan yapacak! En güzeli seçildi sırada en pahalısı olmakta! Evi olan yaşadı
--  Prabowo Bilang Kunci Indonesia Maju adalah Elite Rukun dan Bersatu
--  Vijay Kanth: డీఎండీకే అధినేత, ప్రముఖ నటుడు విజయ్ కాంత్ మృతి
--  Brave Grade 4 Student Lives Alone in Hut After Parents Part Ways
--  ‘First few steps’ taken to repair Australia-China relations but still a ‘long way to go’
--  [포토] 이재명·정세균 오찬회동
--  賠償確定、極めて遺憾と日立造船
--  Parasite star Lee Sun-kyun ‘dropped from string of projects weeks before suspected suicide’
--  Путин иска "ярко и тържествено" отпразнуване на 80-годишнината от Победата
--  เช็กเลย! หยุดยาว 4 วัน "โอนเงิน-ส่งของ" วันไหนได้บ้าง
--  СМИ: в Британии выставили на продажу "любимый внедорожник Путина"
--  [인사] HDC그룹
--  인천경제청, 청라의료복합타운 토지매매계약 체결
+-  Venäjä pelastaa Nuorten Leijonien sarjapaikan
+-  تستخدم كملين طبيعي .. إليك أبرز فوائد الكيوي الصحية
+-  साउथ के सुपरस्टार और DMDK नेता विजयकांत का निधन, कोरोना के चलते वेंटिलेटर पर थे
+-  Chelsea derrota (2-1) como local a Palace
+-  由伸は通訳探す 水原氏は大谷専念
+-  The Nintendo Store Has Some Mega Discounts On Switch Favourites
+-  Bolívar jugará amistoso contra Melgar, rival de Aurora por Copa
+-  Capriles será “puesto a punto” por la Didede
+-  Aurora fue de menor a mayor y logró un premio
+-  Guabirá suma a delantero dominicano
