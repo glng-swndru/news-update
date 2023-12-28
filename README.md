@@ -1,51 +1,11 @@
 # Latest News
--  Kurs franka względem dolara najwyżej od 2015 roku. Euro umacnia się wobec USD. Zmiany na rynku walut
--  USA: nowych bezrobotnych nieco więcej niż oczekiwano
--  Female Lidl worker wins £22,000 payout for sex discrimination claim after complaining that her boss harassed her during Center Parcs trip and 'pressurised' her and female employees to go swimming
--  Mother kept her second pregnancy a secret by wearing baggy clothes and drinking alcohol-free wine out of fear she'd be judged for having another baby a year after she got divorced
--  Suisse : Vivre de l’aide sociale coûte cher aux étrangers, cette dame de 59 ans est expulsée après 40 ans de résidence
--  IndieDB Has Announced the Indie of the Year 2023
--  British mathematicians say they've figured out how to guarantee a lottery win by buying 27 tickets
--  Chelsea's £58m summer signing Romeo Lavia picks up a thigh injury on his debut - after FOUR MONTHS on the sidelines with an ankle problem - as boss Mauricio Pochettino admits he is 'worried'
--  Constellation Software’s Modaxo Enters into Agreement to Acquire Curbside Management and Public Safety Businesses from Conduent
--  PBB Desak Israel Akhiri Pembunuhan di Palestina
--  Handball: Laguna Cup 2024 beginnt bereits im alten Jahr
--  MIMORIADNE Na muža zaútočil medveď: Skončil v nemocnici
--  Nepriaznivé počasie spôsobilo komplikácie v Škótsku a na severe Anglicka
--  Kickoff | FIFA & CAF 'grant' R147m to African nation!
--  MLB player Wander Franco summoned in Dominican Republic amid investigation: reports
--  Kickoff | BREAKING: Broos announces final Bafana squad for AFCON
--  The Bachelor's Timm Hanly enjoys some daddy-daughter bonding time with newborn Harper and it all goes horribly wrong
--  Storm Gerrit's turned my home into a warzone: Grandmother-of-four and her Cavalier King Charles Spaniel have miraculous escape after 85mph 'tornado' blew out whole window in her front window overnight
--  Ρομπ Ρόι: Ποιος ήταν ο Ρομπέν των Δασών των Σκωτσέζων
--  Singaporean tourist, 39, plunges 70ft to her death from upstate New York hiking trail after losing her footing while taking cliff-edge photo with husband
--  Singaporean tourist, 39, plunges 70ft to her death from upstate New York hiking trail after losing her footing while taking cliff-edge photo with husband
--  Female Lidl worker wins £22,000 payout for sex discrimination claim after complaining that her boss harassed her during Center Parcs trip and 'pressurised' her and female employees to go swimming
--  Triathlon-Rentner Frodeno vermisst den Druck
--  «50-Stunden-Woche? Stört mich nicht!»
--  Stängs av i fem matcher efter huvudtacklingen
--  Feijóo asume que el resultado de las gallegas "tendrá repercusión en España"
--  Mantan Kepala Dewan Keamanan Nasional Israel Puji Perlawanan Hamas di Gaza
--  PSOE y ZeC critican que el presupuesto del Ayuntamiento esté “al servicio de la extrema derecha”
--  ВМРО-ДПМНЕ И ЛЕВИЦА СО АПЛАУЗ ИЗГЛАСАА ДА СЕ ВРАТИ ЌОСЕТО ВО СКОПЈЕ КАКО ШТО ПОБАРА ДАНЕЛА
--  الزمالك يعلن موعد عودة نداي وأكينيولا
--  MILANELLO REPORT: ultimi dettagli verso Milan-Sassuolo
--  Are we living in a simulation? Scientist claims we're simply characters in an advanced virtual world - and says he has an easy way to prove it
--  أرسنال يسيطر على ديربيات لندن
--  Internauta nazwał go „Żydem”. Radny reaguje
--  Fotele skórzane jako element elegancji w salonie: Inspiracje i Pomysły
--  200-milionowa tona węgla z Bogdanki
--  Jak dobrać prześcieradło z gumką do materaca?
--  A collaborative painting by The Beatles is headed to auction
--  ¡Atención maestros y estudiantes! Descuentos para viajes en autobús siguen vigentes
--  Lebih Sedikit Lebih Bermakna: Prinsip Bijak dalam Berdakwah
--  Schalke-Bosse fordern eine Voraussetzung für Winter-Neuzugänge
--  Собчак снялась в шубе и разозлила подписчиков
--  السوداني لنظيره الإسباني: ماضون باتجاه إنهاء وجود التحالف الدولي في العراق
--  MAGNO'S BULGING MAIL SACK: THE SAUDIS IN BOXING, DEONTAY WILDER'S FUTURE
--  Еріген мұзбен бірге суға кеткен миллиондар
--  Pemerintah Siapkan Skema KPR Cicilan Flat 35 Tahun, Mulai 2024
--  La montañera cántabra Raquel García abre hoy 'La Previa' en Gijón
--  0:4 gegen Bunting: Hempel bei Darts-WM klar raus
--  Google Maps-Nutzer aufgepasst: Beliebtes Feature wird wohl in Kürze eingestellt
--  “No eres un niño, eres un adulto”: Chama le rayó la cancha a Miguelito y se pidieron disculpas
+-  Más de 100 familias bocatoreñas recibirán el 2024 en nuevos hogares
+-  Agentes penitenciarios reciben certificado del curso de control de multitudes
+-  La CNMC autoriza la compra de la filial de red de fibra de Evolutio por parte de Lyntia
+-  Victoria judicial de Apple, autos eléctricos de Xiaomi, debilidad del dólar: 5 claves en Wall Street
+-  México y EEUU acordaron abrir pasos fronterizos, puentes, en reunión del miércoles: presidente mexicano
+-  Soccerladuma | CONFIRMED! Sundowns Sign New Defender
+-  [ŽT] „Paliaubos su Rusija.“ Ukraina skelbia atsakymą
+-  „Ligotos vaizduotės vaisius“. Lavrovas sureagavo į Zelenskio taikos formulę. Nepamiršo ir JAV (Video)
+-  Šviesos greičiu. JAV kuria unikalų ginklą, kuris priešus „iškeps“
+-  Skrydžio MH370 paslaptis. Buvęs kariškis „rado“ lėktuvo katastrofos vietą
