@@ -1,11 +1,11 @@
 # Latest News
--  Arsenal reportedly want wonderkid who has already given 'wonderful' Gunners transfer verdict
--  Viral: రిస్క్ అని తెలిసీ ఆనంద్ మహీంద్రాను పబ్లిక్‌గా రూ. లక్ష అడిగితే..
--  Noussair Mazraoui, Hakim Ziyech en Ismail Saibari in selectie Marokko voor Afrika Cup
--  انتخابات وكوارث طبيعية عديدة.. أبرز الأحداث في تركيا خلال عام 2023
--  Spajić: Jevrosimu Pejović sam upoznao ove godine
--  Exco PSSI Harap Idzes dan Nathan Bela Dapat Tampil Bela Timnas di Kualifikasi Piala Dunia
--  Hundratals evakuerade efter översvämningar i Tyskland
--  التوت البري الأحمر..أبرز 6 فوائد تتمتع بها هذه الفاكهة
--  Russian stars' semi-naked party sparks wartime backlash
--  وصول منتخب الناشئين الى محافظة شبوة
+-  Life | Smartphone maker Xiaomi unveils first electric car, plans to become China's top automaker
+-  Captain Vijayakanth death: Trisha Krishnan, Vikram pay tribute to the actor
+-  CHATGPT eğitimin çıkmaz sokağı mı?
+-  ABD'den Ukrayna'ya 24 milyar dolar askeri yardım
+-  Panama bandıralı gemi Karadeniz'de Rus mayınına çarptı
+-  Güvenlik Uzmanı Mete Yarar açıkladı: Keşfedilen doğal gaz ve petrolü korumak bununla mümkün
+-  제주서 파룬궁 집회 참가자 폭행한 중국인, 벌금형 선고 후 풀려나
+-  Avustralya'da köpek balığı saldırısı: Ağır yaralanan genç hayatını kaybetti
+-  Italienischer Spitzenklub buhlt um Stuttgart-Star Guirassy
+-  تعديلات على أسس وقواعد الإقراض في مؤسسة الإقراض الزراعي
