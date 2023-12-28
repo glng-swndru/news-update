@@ -1,51 +1,51 @@
 # Latest News
--  Cyprus Business Now
--  Dead By Daylight Player Survey Hints At Possible Game Modes
--  Terkuak! Anies Ternyata Sering Ditampar Orang saat Kampanye
--  Država u opasnosti da izgubi sudski spor, treba konsultovati UNESCO
--  Kunjungi Banyuwangi, Anies Sayangkan Masih Adanya Ekspor Pasir Laut ke Negara Tetangga
--  Mininter refuerza combate contra terrorismo, narcotráfico y crimen internacional
--  Duizenden Argentijnen de straat op tegen economische hervormingen van president
--  Cambriolages: ces stars prises pour cibles
--  Raffi Ahmad Jual Menu Babi di Beach Club Bali, Muslim Halal Makan di Sana?
--  پی ٹی آئی پنڈی سے اپنا امیدوار لائے گی: شیر افضل کے بعد بیرسٹر علی ظفر کا بھی اعلان، شیخ رشید کی امیدوں پر پانی پھر گیا
--  Visite aux halles de Wazemmes, insitution de Lille
--  Trending Twitter video: US man tied giant crocodile on tree in Tanzania, irks netizens
--  Bybit, Önemli Rezerv Kanıtı Denetiminde Varlıkların Tam Desteklendiğini Onayladı
--  Cara Top Up ShopeePay lewat ATM BRI, Praktis dan Cepat
--  UK Economy Set to Escape Hard Landing in Boost for Rishi Sunak
--  ISW: ВСУ са напреднали западно от Горловка
--  Sengaja Keluarkan Ingus saat Live, Fuji Dicap Jorok dan Tak Beretika
--  Mengenal Laku Pandai Besutan Bank BRI
--  Encuentran a mujer sin vida en El Barreal
--  Condena Xóchitl 'tibieza' de México ante EU por migrantes
--  ¡Mazatlán iluminado! 100 colonias y comunidades ya cuentan con nuevas lámparas LED
--  DMDK Founder Vijayakanth Passes Away At 71, PM Modi Expresses Grief Over Death Of Tamil Cinema Legend
--  Два английски мача чакат зрителя днес
--  Film Indonesia yang Berjaya di Penghargaan Film Internasional
--  CRVENO-BELI NA TEŠKOM GOSTOVANJU: Evo gde možete pratiti prenos meča Panatinaikos - Crvena zvezda
--  Aida muss Weihnachtsreise abbrechen: Kreuzfahrt-Gäste empört – „Warum nimmt man das größte Schiff?“
--  Selain Le Nusa Milik Raffi Ahmad, 2 Restoran Ini Juga Sajikan Makanan Khas Indonesia di Prancis
--  La capitalización bursátil de Ethereum alcanza los 291.000 millones de dólares gracias al crecimiento de las soluciones de capa 2
--  Zomato se enfrenta a una reclamación de 401,7 millones de rupias en concepto de IVA por los gastos de envío
--  Koffee With Karan 8: Karan Johar expresses regrets over missing out on working with Sharmila Tagore in Rocky Aur Rani Kii Prem Kahaani; actress says, “After my cancer, they didn't want me to take that risk”
--  Vicky Kaushal dedicates a sweet Christmas post as he parties with wife Katrina Kaif and gang
--  National Aluminium y RBL Bank afectados por la prohibición de negociación de F&O de la NSE
--  SON DAKİKA: Kuzey Marmara Otoyolu'nda zincirleme kaza: 10 kişi öldü, 57 kişi yaralandı
--  À la découverte des arènes de Nîmes, avec une visite aux flambeaux
--  Gaming proponents size up the odds of a northern Virginia casino
--  Izrael sprema ofenzivu na Libanon? “Moramo biti spremni”
--  Ambadas Danve : मविआच्या काळात सर्वाधिक एफडीआय, देवेंद्र फडणवीसांच्या दाव्यानंतर दानवेंचा प्रतिदावा
--  NISN Jadi Syarat Daftar SNPMB 2024, Ini Cara Verifikasi dan Validasi
--  Guerrero levanta interés en Suecia
--  Siguen cotizados en Honduras
--  Lleva sus goles a Ecuador
--  Panas van a la lomita hoy en Dominicana
--  Todo por su patria
--  Los retos del 2024 para Panamá
--  El festival del jazz superó las expectativas de Danilo Pérez
--  Capo del Clan del Golfo ya está tras las rejas
--  Le dice sí a Panamá
--  Receta para el año nuevo
--  La mujer acusada de atacar a Charlie Sheen se declara no culpable
--  Repite la mentira
+-  "เศรษฐา" ไม่ปฏิเสธนายกฯ รวยที่สุด รถหรู 50 ล้าน ไม่ได้อยู่ในไทย
+-  เปิดมอเตอร์เวย์ 7 สาย "มิตรภาพ" คล่องตัว คนแห่กลับอื้อ
+-  1422 more suspects apprehended in ‘Yukthiya’ Operation
+-  83년생, 3명 중 1명 결혼 안해…65%는 '내 집 없다'
+-  박지원 "총선만 가까이하는 대통령…태영 워크아웃까지 경제 폭망 지경"
+-  에코프로머티, 7거래일만에 상승... 20만원 회복 눈앞
+-  全球第一個使用50% 再生PET樹脂製成收縮膜現身台灣！花王新包裝，為何能成為循環減塑新里程碑？
+-  Plateau killings orchestrated act of genocide – Ohanaeze
+-  Sanjin Katinić novi je partner u Deloitteu Srednja Europa s uredom u Hrvatskoj
+-  Avrupa Birliği'nin fikir babası Jacques Delors 98 yaşında öldü
+-  الجزيرة: ارتفاع عدد المصابين خلال اقتحام قوات الاحتلال الإسرائيلي رام الله إلى 15
+-  Dreamcatcher announce ‘Luck Inside 7 Doors’ 2024 world tour
+-  Familiar problem haunts Sharks as losing streak grows to six
+-  Honda ve Toyota milyonlarca aracı geri çağırdı
+-  Ocho todoterrenos en la Liga F
+-  الرفوع أستاذا فخريا في جامعة Woxsen الهندية
+-  السماح بركوب السكوتر والدراجات الهوائية داخل مكة والمشاعر المقدسة
+-  عشرات الشهداء والجرحى.. العدوان على غزة بيومه الـ83
+-  كانييه ويست يخسر إمبراطوريته العقارية
+-  شهيد في رام الله واقتحامات بأنحاء الضفة
+-  أجواء باردة نسبيا وأمطار متفرقة في مختلف المناطق
+-  علماء روس يبتكرون قماشاً ذاتي التنظيف
+-  سيلفا قنبلة الريال في 2024
+-  فوائد عديدة للوقوف 3 ساعات يومياً
+-  ابتكار رحم اصطناعي للأطفال الخدج في المستقبل
+-  السهر يضاعف خطر تصلب الشرايين
+-  Kerbers Comeback nach Babypause: „Mache mir keinen Druck“
+-  Bu yolda sürət həddi endirildi
+-  [사진] '라틴팝 여왕' 샤키라 동상과 셀카 찍는 사람들
+-  珍惜生命│北角女子危站冷氣機頂企跳
+-  Two Tickets to Greece: Kristin Scott Thomas and Laure Calamy shine in French film comedy about friendship
+-  Mutatjuk a teljes listát: ez volt Magyarország száz legjobb középiskolája 2024-ben
+-  箱根路を前に選手急逝 法大の思い
+-  故이선균 소속사, 언론·유튜버에 과도한 취재 자제 요청
+-  Daughter of retired SI: ఆన్‌లైన్‌ గేమ్‏లకు అలవాటు పడి.. ఉన్నదంతా పోగొట్టుకొని.. రిటైర్డ్‌ ఎస్‌ఐ కుమార్తె అడ్డదారులు
+-  문대림 복지관 찾아 "주5일 점심 제공 확대" 약속
+-  렛츠런파크 부산경남, 본업 맞춤형 사회공헌 눈길
+-  كوريا الجنوبية توقع اتفاقية تجارة حرة مع مجلس التعاون الخليجي
+-  스패로우 ‘클라우드’, CSAP SaaS 표준등급 획득
+-  교육의 허브 제주영어교육도시 7분 거리 ‘신화빌라스’ 분양
+-  Multiple injured in 'violent' incident at Fresno County home, deputies say
+-  山崎実業の技ありホルダーで「かさばる靴の収納問題」を解決
+-  လက်နက်ကိုင် တိုက်ပွဲတွေအကြား ပေါ်ထွက်လာတဲ့ ကျောက်ဖြူရေနက်ဆိပ်ကမ်း စာချုပ်
+-  윤희근 경찰청장 "이선균 경찰 수사 잘못 동의 안 해"
+-  메트라이프생명, 여성가족부 가족친화기업 3연속 인증
+-  성남시, 백현마이스 개발사업 정상추진 공식발표
+-  ROUNDUP: Experten: Immobilienpreise sinken - aber schwere Zeiten für Mieter
+-  ﻿웰컴복지재단, 지역아동센터에 수학 교구세트 전달
+-  Mäklare vädrar morgonluft – tror på prislyft
+-  Bus collides head-on with truck in central India, killing at least 13
