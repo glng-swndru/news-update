@@ -1,51 +1,51 @@
 # Latest News
--  11월 주택 인허가 14%·착공 83% 증가…준공은 39% 줄어
--  美-이스라엘 국방장관, 가자지구 '안정화 단계' 준비 논의
--  국제유가 3% 급락…홍해 운항 재개로 공급 우려 완화
--  이원욱 "이낙연·정세균·김부겸 공동선대위원장? 대마왕급 꼼수"
--  [최태호의 우리말 바로 알기] lsquo;하릅rsquo;과 lsquo;이듭rsquo;, lsquo;사릅rsquo;과 lsquo;나릅rsquo;
--  [인사] 대전시 동구(2024년 1월 1일자)
--  [문상윤 식품전문기자의 푸드 에세이] ⑫ 따뜻한 국물과 쫄깃함이 생각는 계절, 밀가루 음식
--  أرسنال يسقط أمام وست هام بثنائية
+-  بالفيديو.. أمطار غزيرة وبرد على بريدة
+-  عاجل.. خطوات تقديم شكوى نصب واحتيال إلكتروني عبر منصة أبشر 1445
+-  "الحقيل" يثمن دور "الوطنية للإسكان" في تعزيز المعروض العقاري بنحو ٣٠٠ ألف وحدة سكنية
+-  마침내 EPL 데뷔골 터트린 '케인의 장기 대체자' FW...패배 속 유일한 위안거리가 되다
+-  Arsenal Telan Kekalahan Pertama di Kandang, Gagal Kudeta Liverpool di Puncak Klasemen
+-  Χρηματιστήριο: πτώση 0,58% μόλις στα 45,93 εκατ. ευρώ ο τζίρος
+-  Wall Street: μικτά πρόσημα αλλά και νέο ρεκόρ για τον Dow Jones
+-  Ρεκόρ κερδών διμήνου κάνουν τα ομόλογα παγκοσμίως
+-  Καιρός: ανοιξιάτικος και την Παρασκευή
+-  현대모비스, 안전·편의부품 10개 신기술 대내외 수상
+-  홍영기, E컵 그녀의 비키니…밑가슴 노출하고 '화끈'
+-  Xanh hóa “vàng trắng” Việt Nam: Ngành cao su xanh hóa quy trình sản xuất công nghiệp (Bài 3)
+-  MN - Jacobelli: "A Leao manca continuità, ci si aspettava una grande Champions da lui. Nella seconda parte di stagione può dimostrare il suo valore"
+-  Giá vàng hôm nay 29/12/2023 bật tăng sau cú lao dốc từ đỉnh lịch sử
+-  Wereldbevolking in 2023 met 75 miljoen toegenomen, tot totaal van 8 miljard mensen
+-  La noble historia de la calle San Ignacio
 -  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Πρωτοσέλιδα αθλητικών εφημερίδων για την Παρασκευή 29 Δεκεμβρίου 2023
--  صحيفة أمريكية تكشف صفقة خطيرة بشأن أوكرانيا.. هل انتصر بوتين؟
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Las propuestas de los museos en el mundo para 2024
--  Brambati sul Milan: «Sono sorpreso dal presente. Tornare sul mercato vuole dire che…»
--  "C'est lui qui m'a donné l'idée" : ce journaliste atypique qui est à l'origine du Papotin
--  Завршено донаторско вече "С љубављу храбрим срцима": Број 1411 позван више од 107.000 пута
--  تقييم أوديجارد في مباراة أرسنال ضد وست هام
--  [스한:BOX] '노량: 죽음의 바다' 9일 연속 1위, 300만 돌파 임박
--  Katil İsrail askerleri noel baba kılığına girip Gazze'deki çocukları bombaladı!
--  Grenzstreit: Venezuelas Maduro ordnet Militärübung an
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  FA llamará a Martinelli al Parlamento la segunda quincena de enero
--  สถานการณ์ตลาดหุ้นอินเดีย ดัชนี Sensex พุ่งกว่า 300 จุด ยืนเหนือเส้น
--  تحالف واشنطن في البحر الأحمر يبدو أقل مردودا مما توقع «بايدن»
--  Luchaba por su vida: Carabineros salvó a perrito de morir ahogado en un tranque
--  이선균 협박해 5천만원 받은 20대 여성 구속…"도주 우려"
--  [용인 수지구 동천동 447필지‧14만㎡, 토지거래허가구역 해제
--  [용인시, 내년부터 오전 7시~오후 9시 불법주정차 단속…2시간 연장
--  [구로구, 공공기관 종합청렴도 2년 연속 1등급…전국 자치구 최초
--  [“널 지켜주고 싶어”…혼전순결 강조한 남편, 알고 보니 이유 따로 있었다
--  [용인시, 재해 위험 소하천 2곳 정비
--  135حديقة جديدة في إمارة أبوظبي
--  «مخيّم الابتكار» لطلبة المدارس بجامعة الإمارات
--  حملة لتنظيف «سكيك» السمحة
--  Посол в Аргентине уверен, что новые власти готовы вести диалог с Россией
--  «استشاري الشارقة» يجيز مشروع قانون موازنة حكومة الإمارة
--  İstanbul'da yılbaşı öncesi sıkı denetim
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
--  Μεικτά πρόσημα στη Wall Street
--  قياس أثر «دليل تصميم الأماكن العامة» في أبوظبي
--  150 ناشئاً في ملتقى الناشئة الأول
--  ورش تعليمية في «إلكترونية الشارقة»
--  اختتام المعسكر الشتوي لأطفال الشارقة
--  «لولو للصرافة» تحتفل بافتتاح الفرع 100 في الإمارات
--  «الإمارات للخدمات الصحية» تنظم المؤتمر الأول لحديثي الولادة
--  مركز الشيخ زايد لعلوم الصحراء يقدم تجارب مستدامة
--  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  امين بغداد: مترو بغداد سيرى النور قريباً
+-  Cobertura EN VIVO Jets vs Browns | Semana 17 de la NFL
+-  Trời lạnh, gia tăng các bệnh lý mạch máu cấp tính nguy hiểm
+-  Los nuevos dueños del balón
+-  Estos son los juguetes más pedidos este año
+-  SME Minúta: Zelenskyj vyzval slobodný svet, aby spojil sily v boji proti ruskej agresii
+-  12월 물가 3.2% 올라…올해 연간 상승률은 3.6% [종합]
+-  Honduras dejará de cobrar sanción administrativa a migrantes por “motivos humanitarios”
+-  Casi la mitad de los ganaderos de vacuno de leche estáran en edad de jubilación en diez años
+-  Sigue la regla de los 4 regalos para hacer la carta perfecta a los Reyes Magos
+-  Sigue la regla de los 4 regalos para hacer la carta perfecta a los Reyes Magos
+-  [양천구, 오목공원 전면 개장…복합문화공간으로 새 단장
+-  [한동훈, 오늘 오후 이재명 예방…여야 대표로 첫 대면
+-  [용산구, 빈집 실태조사 개시…빈집 의심세대 735호 대상
+-  [교육부, 32만명 교육급여 지원…‘월 20만원’ 행복기숙사 2곳 열기도
+-  [[헤럴드 운세] 2023년 12월 29일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  [[속보]올해 소비자물가 3.6%↑…사과 24.2%↑·전기료 22.6%↑
+-  [美, ‘홍해 상선 공격’ 예멘반군-이란 자금흐름 차단 추진
+-  [“우리기업 해외진출 리스크 달라졌다…보험·인사 통합 대비해야” 이형구 마쉬 코리아 사장
+-  [“韓 중공업 산업화 설계·아프리카 식량난 해결”…4인의 과학자 ‘과학기술유공자’ 선정
+-  AMLO inaugurará este viernes megafarmacia en Edomex
+-  La caravana migrante denuncia más restricciones tras la reunión de México con EEUU
+-  Edson Álvarez y su West Ham ACABAN con el INVICTO del Arsenal como local en la Premier League
+-  Fakta-fakta Ricuh Pengantaran Jenazah Lukas Enembe di Papua Kotak Masuk
+-  Um ano sem o eterno Rei Pelé
+-  Bí quyết để trẻ em ngủ ngon, không quấy ban đêm
+-  Spletna križanka in sudoku Slovenskih novic (29. december)
+-  استشهاد 9 فلسطينيين في الضفة الغربية وغزة
+-  Mavi bültenle aranan IŞID üyesi Kırıkkale'de yakalandı
+-  Melhores momentos de Flaco López pelo Palmeiras em 2023
+-  Dự báo thời tiết 29/12/2023: Bắc Bộ tiếp diễn nắng hanh, rét về đêm và sáng
+-  Los vallisoletanos se ahorran este año en el recibo de la luz más de 120 millones
+-  Lotto am Samstag: Kommt es bald zur Zwangsausschüttung? Ziehung der Lottozahlen für 45 Mio. Euro
