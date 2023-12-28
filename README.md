@@ -1,11 +1,11 @@
 # Latest News
--  Varené víno podľa známeho šéfkuchára: Pridáva niečo, čo bežne dávame do polievky!
--  Prima reacție a premierului Ciolacu, după tragedia de la Ferma Dacilor: Toată lumea va plăti / Nu pot să înţeleg să nu ai nici detector de fum într-o pensiune
--  “Bəşəriyyət əziyyət çəkir”
--  双芯加持+蓝厂调教 iQOO Neo9 Pro这是要干翻游戏手机的节奏
--  مسلم لیگ ن کے صدر شہباز شریف کراچی پہنچ گئے، ایجنڈا سامنے آ گیا
--  مأزق الإطار الخاص مرة أخرى ..| كتب جمال لقم
--  La increíble teoría de Gonzalo Aziz sobre el "No la ven" que fue desmentida por los tuiteros libertarios
--  Itali/2-vjeçari humb jetën pasi gëlltit një pjesë të lodrës
--  Tanger : Des projets générateurs de revenus au profit d’anciens détenus dans des affaires de terrorisme
--  Nīderlandes armijas komandieris: “Mūsu sabiedrībai būtu jāsagatavojas karam ar Krieviju”
+-  Eski Fenerbahçeli Jailson La Liga'ya transfer oldu!
+-  Üstün zeka testi: Sadece zekiler 5 saniyede kediyi bulabiliyor! Peki siz bulabildiniz mi?
+-  CHP'nin 'şehit' skandalları bitmiyor... İmamoğlu, tepkileri 'oyun' olarak nitelendirdi
+-  RTÜK bazı kanallara ceza uyguladı
+-  مأزق الإطار الخاص مرة أخرى| كتب جمال لقم
+-  Nagła śmierć dwuletniej dziewczynki. „Szok i niedowierzanie”
+-  شباب بلوزداد يعبر النادي القسنطيني بثنائية في الدوري الجزائري
+-  Grèce : Nouvelle loi pour régulariser et employer 30 000 migrants
+-  Auxiliar de limpeza de shopping de Ipatinga é xingada por cliente
+-  Peniaze určené pre verejnoprávne médiá pôjdu do zdravotníctva, informuje poľská vláda
