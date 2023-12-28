@@ -1,11 +1,11 @@
 # Latest News
--  – ( الدبيبة ) يعلن الشروع في تنفيذ إنشاء ( 500 ) مدرسة خلال العام المقبل .
--  Weather News: उत्तर भारत गहरे कोहरे की चपेट में, सड़क हादसों में 17 की मौत, 110 उड़ानें और 50 ट्रेनें प्रभावित
--  WHO varoittaa kaikkien olevan suuressa vaarassa Gazassa – Macron soitti Netanjahulle
--  Alleged racially-motivated assault caught on video in Surrey, B.C. on Christmas Day
--  Sudoku difícil: 28 de diciembre de 2023
--  Sudoku medio: 28 de diciembre de 2023
--  Sudoku fácil: 28 de diciembre de 2023
--  Sudoku mini: 28 de diciembre de 2023
--  Crucigrama difícil: 28 de diciembre de 2023
--  Crucigrama medio: 28 de diciembre de 2023
+-  Let’s keep cops out of our revenge dramas
+-  Should Mumbai cricket return to class?
+-  Tough time for Milei, no quick peace for Gaza: Peru shamans’ predictions for 2024
+-  By: Artificial grass for lawn refurbishing
+-  Vuurwerkkopers trekken zich niets aan van afsteekverbod: ‘Dit krijg je als regels niet logisch zijn’
+-  عاجل.. وقف صرف معاش الضمان الاجتماعي في هذه الحالات
+-  International : La crise sécuritaire s’intensifie en mer Rouge
+-  산업기술인력 1.1% 늘었지만, 수요 많아져 부족 인원도 증가
+-  M&S' £35 'comfortable' trainers look just like £125 pair from Kate Middleton’s go-to brand
+-  한은, 가계대출 관리대책 당부…"차질없이 시행돼야"
