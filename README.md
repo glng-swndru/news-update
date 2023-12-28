@@ -1,51 +1,51 @@
 # Latest News
--  '리모델링' 선언한 SSG, 가장 시급한 곳은 바로 '불펜'[초점]
--  Bislimovski: Ata që do të shkojnë në bllokun e tretë do të kenë fatura më të vogla se më parë, sepse do ta orientojnë konsumin në tarifë të lirë
--  منها خفض الكولسترول.. هذًا ما يحدث لجسمك عند تناول السلطة يوميا
--  Los bomberos de San Sebastián rescatan a 90 personas atrapadas en una noria
--  Prayagraj News: स्मैक तस्कर रिफाकत और उसकी पत्नी रेशमा गिरफ्तार
--  Sorteo Primitiva: resultados del jueves 28 de diciembre de 2023
--  Ministério identificou Bolsa Família para pessoas com R$ 10 mil de salário
--  Karnal News: सीएम फ्लाइंग ने जब्त किए प्रतिबंधित सिगरेट और तंबाकू से बने उत्पाद
--  Buzluğunuz çalışıyor ama buzdolabı yiyecekleri taze tutmuyorsa işte kesin çözümü
--  Vierschanzentournee im Liveticker: Halten die Nerven im Hexenkessel?
--  Vierschanzentournee im Liveticker: Halten die Nerven im Hexenkessel?
--  Palestinci: Izrael pogodio zgradu s raseljenim obiteljima. Ubijeno je 20 ljudi
--  La diva mexicana Silvia Pinal saldría del hospital para fin de año
--  OHR: Naći prihvatljivo rješenje za državnu imovinu
--  [미·영·독·프 “무모한 행동”…‘고농축 우라늄 증산’ 이란 규탄
--  Taravari politikani më i besueshëm te shqiptarët
--  طريقة استخدام تطبيق «إنستا باي».. عملاؤه معفيون من رسوم التحويلات المالية
--  Konutta yeni uygulama 1 Ocak itibarıyla başlıyor! İşte başvuru adresi
--  PJ admite a trámite apelación para anular el archivo de la investigación contra Zoraida Ávalos
--  Trump negira da je ucjenom dobio ulogu u filmu 'Sam u kući 2'
--  Tras reunirse con Javier Milei, ahora Omar De Marchi se juntó con Victoria Villarruel en el Senado
--  Ex-Weltmeister Price bei Darts-WM ausgeschieden
--  Los bomberos rescatan a 55 personas de la noria de Donostia tras una avería
--  Сирийские ПВО отражают ракетную атаку Израиля по Дамаску
--  Virtus Bologna strepitosa! Partizan Belgrado ko e 2° posto in Eurolega
--  Superprestige Diegem: Mathieu van der Poel inarrêtable remporte sa cinquième victoire en autant de cyclo-cross
--  Deze aandelen hebben het slechtst gepresteerd afgelopen jaar
--  Senador dos EUA sugere bombardear o Irã em resposta aos ataques dos Houthis
--  국가정보원 "김정은, 내년초 남한에 큰 파장 일으킬 방안 마련 지시"
--  PLAKALA JE CELA ARENA: Ovo je NAJEMOTIVNIJI momenat na koncertu Milice Pavlović!
--  Embarazada de tres meses, Nicole Neumann posó en la piscina con microbikini
--  David Price arremete ante Red Sox por casos de Mookie Betts y Babe Ruth
--  올해 마지막 주말 전국에 눈·비…해돋이는 선명
--  국민연금 2055년 고갈 우려…새해 개혁 합의 시험대
--  EN FOTOS: ¿Ovnis? Extrañas luces iluminaron los cielos de Italia
--  Peleshi: Efektivët e Policisë Ushtarake trajnohen nga Karabinierët italianë
--  Lugi föll tungt mot topplaget: ”För mycket tekniska fel”
--  Lugi föll tungt mot topplaget: ”För mycket tekniska fel”
--  Ex-Weltmeister Price bei Darts-WM ausgeschieden
--  Sin heridos: levantaron el acampe QOM de Plaza de Mayo después de cuatro años
--  Nova poljska vlada Donalda Tuska disciplinira javne medije
--  Sparatoria in via Timavo a Bari, ferito un uomo
--  Beto Casella continuará en El 9 en 2024
--  Serie A2 Old Wild West 2023/24 – La preview della 17^ giornata nel girone Rosso
--  Alerta Verde en siete departamentos de Honduras por vaguada y frente frío
--  Estos son los pasos para drenar y proteger las tuberías del frío
--  PlayStation 3 je i dalje popularan – evo koliko aktivnih korisnika ima
--  Liga BásquetPro: estas son las principales novedades para el 2024
--  Man die Sarah ombracht mag met verlof, tot woede van Sarahs moeder
--  Frases para desear un Año Nuevo 2024 | Mensajes cortos y originales para compartir
+-  Un tribunal rechaza que se revise la condena al Chapo Guzmán en Estados Unidos
+-  TOKİ Başkanı yayına bağlanmak istedi, İmamoğlu panikledi
+-  Muğla'da çok sayıda düzensiz göçmen kurtarıldı
+-  Ropa wyraźnie potaniała
+-  Enea chce dochodzić od byłych władz spółki naprawienia szkód przy inwestycji w Ostrołęce
+-  대통령실 “윤, 특검 정부 이송 시 즉각 거부권 행사할 것”
+-  대통령 비서실장에 이관섭 기용
+-  81일간 성화여정 마무리 “2018대회 성공개최 재현 한마음”
+-  강원FS 내일 춘천서 풋살리그 첫 홈경기… 최하위 탈출 노린다
+-  개최도시 4곳 스포츠·문화예술·교육전시 프로그램 다채
+-  강원FC 수문장 이광연 재계약 “구단 최고 성적 낼 것”
+-  원주 간현리서 50대 화물트럭 치여 병원이송
+-  도전역 맑다 차차 흐려져…주말 새 곳곳 눈·비
+-  도내 자선단체 모금액 저조 “얼어붙은 경기 탓”
+-  안개 짙은 소양강
+-  해맞이 차량 40만대 몰린다…서울서 강릉 ‘4시간 30분’
+-  양구 ‘펀치볼 시래기’ 홈쇼핑 1억원 어치 완판
+-  강원 대표 ‘으뜸음식점’ 6곳 선정
+-  국순당, 우리술 알리기 캠페인 진행
+-  춘천 휴젤 ‘주주가치 제고’ 자기주식 37만주 오늘 소각
+-  내년 강원 성장률 흐림 경기회복 안갯속
+-  [새의자] 권오복 신한은행 강원본부장
+-  [프로필] 강원특별자치도 부단체장
+-  [프로필] 강원특별자치도 국장급
+-  이주호 부총리 “강원에서 교육혁명 일어나도록 적극 지원”
+-  인사 명단
+-  교육교부금 출산정책·대학에 야금야금…교육청은 ‘난감’
+-  도내 글로컬대학 ‘지역 균형발전·AI 활용 혁신’ 힘 모은다
+-  강원관광대 폐교 가시화…재학생 편입 추진 통보
+-  강원랜드 글로벌 복합리조트 경쟁력 강화 박차
+-  ‘세수펑크 여파’ 홍천군 총예산 682억원 감소
+-  강원도, 국·과장급 정기인사 발표
+-  “폐광지 관광 활성화 위해 새로운 이미지 브랜딩 필요”
+-  “강원도내 의대 학생 80% 지역인재로 뽑아야”
+-  전교조 강원지부 “도교육청 수능성적 취합·발표 중단하라”
+-  강원 글로벌혁신특구 선정, 규제 터널서 벗어났다
+-  [새의자]이은영 국민건강보험공단 원주횡성지사장
+-  [새의자]이정희 국민건강보험공단 춘천지사장
+-  누정문화 대표 문화유산 ‘삼척 죽서루’ 국보 됐다
+-  ‘비·눈소식’에 새해 첫날 온전한 ‘해돋이’ 보기 어려워
+-  현안 브리핑하는 박정하 수석대변인
+-  건보공단, 내부감사 발전 기여 공로 기관 상 휩쓸어
+-  [새의자]이동열 한국산업단지공단 강원본부장
+-  [속보] 尹대통령 질책 ‘독도는 영토분쟁 중’ 軍정신교육교재 전량 회수키로
+-  최흥식 한농연중앙회 제21대 회장 당선
+-  강원관광대 폐교 움직임 본격화… 간호과 전원에 강동대 편입 통보
+-  [새의자]현병관 설악산국립공원사무소장
+-  강원특별자치도, 글로벌혁신특구 선정…전국최초 네거티브 규제 적용
+-  올해 외대 언론인상에 박종현·김현우
+-  춘천시 국장급 3명 교체… 춘천시의회 사무국장 유열
