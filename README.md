@@ -1,11 +1,51 @@
 # Latest News
--  Wiceprezes NBP: inflacja w pierwszych miesiącach 2024 r. może być niższa niż prognozowano
--  Komentarz po sesji: Spadek na płytkim rynku
--  Pljevlja: Potpisani ugovori sa porodicama koje su ostvarile pravo...
--  Dejan a sujeto sin vida en carretera a Guadalupe y Calvo
--  Pagarán el 2 de enero a pensionados del IMSS
--  Venäjän urheilun superpari etsintä­kuulutettiin – Tämä teko USA:ssa oli liikaa
--  Samsung z genialną funkcją. Telefon będziesz ładował jak samochód
--  BVB-Legende stellt U17-Weltmeister Profivertrag in Aussicht
--  VW-Abgas-Skandal: Strafverfahren gegen Martin Winterkorn wieder aufgenommen
--  Edin Dzeko, Icardi hakkında konuştu
+-  Durante festa repórter e pré-candidato a prefeito em Guarujá é executado
+-  जेल में बंद AAP सांसद संजय सिंह हर शुक्रवार को रखेंगे उपवास, कई जगहों पर कार्यकर्ता भी देंगे साथ
+-  حماس: هناك حوار مع مصر لفتح معبر رفح بشكل كامل
+-  CPF irregular em 2024 vai cancelar o Bolsa Família
+-  As carências do INSS para concessão de aposentadoria
+-  Тайна Деда Мороза: психолог рассказала, как бережно объяснить ребенку, что подарки дарит не сказочный волшебник
+-  PIS/Pasep com o cronograma de pagamento para 2024
+-  Банки массово вводят изменения для денежных переводов
+-  رئيس الحكومة المكلفة من مجلس النواب يستقبل وزير خارجية النيجر .
+-  المفوضية الوطنية العليا للانتخابات تتابع الاستعدادات لانطلاق انتخابات المجالس البلدية المقررة مطلع العام المقبل .
+-  منافسات ذهاب المجموعتين للدوري الممتاز تنطلق غداً الجمعة .
+-  البحث الجنائي يلقي القبض ( 6 ) اجانب بتهم السرقة والتنقيب عن الذهب .
+-  رئيس الحكومة يصدر تعليماته بمباشرة إجراءات الجرد السنوي للعام المالي 2023م .
+-  المنفي يلتقي المفتش العسكري العام.
+-  تأجيل اجتماع البرهان وحميدتي يصيب السودانيين بالإحباط .
+-  الباعور يطلع المنفي عن زياراته الخارجية .
+-  المصرف التجاري الوطني يعلن استئناف عمل آلات السحب الذاتي وبطاقة نمو ونقاط البيع.
+-  محفظة ليبيا أفريقيا ترحب بإعادة افتتاح سوق الأوراق المالية.
+-  Lanzan invitación para disfrutar del Desfile de Año Nuevo este 1 de enero
+-  Gaza : Plus de 21 mille martyrs
+-  Lebensgefährlicher Leichtsinn: Kanufahrer auf der Lippe sorgen für Großeinsatz
+-  Aos 55 anos de idade, como conquistar uma aposentadoria no INSS?
+-  Nelson Market: "Reconocemos que fue una estrategia de marketing de mal gusto"
+-  Las calles de Zaragoza se iluminan por las fiestas
+-  المدة المحتملة لغياب ستونز عن مانشستر سيتي
+-  Влади Зографски преодоля квалификацията за първата надпревара от "Четирите шанци"
+-  Edin Dzeko'dan Icardi açıklaması
+-  2023, un año de lujo para Slim
+-  Primeiras informações sobre o ecrã do OnePlus 12R
+-  نجم ليفربول على رادار توتنهام
+-  कभी टीवी एक्टर बनना चाहता था ये शख्स, अब कैटरीना कैफ के अपोजिट लीड रोल में करेगा साल की शुरुआत
+-  పీటముడి
+-  फ्लैटमेट ढूंढने के लिए महिला ने भिड़ाया ऐसा जुगाड़, पब्लिक बोली- ‘वॉट एन आइडिया मैडम जी’
+-  Maduro ordena acción conjunta en respuesta a presencia de buque británico en Guyana
+-  Kal Ka Mithun Rashifal: मिथुन राशि वालों को राजनीति में मिल सकती है अहम जिम्मेदारी, रखना होगा धैर्य
+-  Câmara aprovou medida protetiva de urgência para mulher agredida e o protocolo “Não é não”
+-  Startupet Izraelite të teknologjisë ngritën 7 miliardë dollarë investime në 2023
+-  Орёл оказался на 9 месте в ТОП-10 регионов с самым дешёвым дизельным топливом
+-  Pentágono anuncia que delitos de abuso sexual se juzgarán fuera de cadena de mando
+-  La San Silvestre bullera se correrá en la mañana del domingo 31
+-  Άρης: «Μέσα» και ο Φεράρι
+-  Eddie Murphy is beszállt az év legrosszabb karácsonyi filmjéért zajló versengésbe
+-  Un febril 2023, repleto de propuestas
+-  Shkupi refuzon kërkesën e Ukrainës për dhurimin e pajisjeve ushtarake
+-  Corte da paso a cambiar los requisitos para ser asambleísta
+-  Top 5: ezek voltak 2023 legjobb magyar tévéműsorai Magyarországon!
+-  L’adhésion de la Tunisie à une nouvelle convention de l’ONU permet de mieux lutter contre l’évasion fiscale
+-  PUC Certificate के नियमों में बड़ा बदलाव, गाड़ी धुआं दे रही या नहीं, होगी वीडियो रिकॉर्डिंग
+-  (Dez)informacji o sprzedaży Boerner Insulation ciąg dalszy
+-  3rd Arab Elite Tennis Tournament : Aziz Dougaz champion arabe 2023 (vidéo)
