@@ -1,51 +1,11 @@
 # Latest News
--  Un tribunal rechaza que se revise la condena al Chapo Guzmán en Estados Unidos
--  TOKİ Başkanı yayına bağlanmak istedi, İmamoğlu panikledi
--  Muğla'da çok sayıda düzensiz göçmen kurtarıldı
--  Ropa wyraźnie potaniała
--  Enea chce dochodzić od byłych władz spółki naprawienia szkód przy inwestycji w Ostrołęce
--  대통령실 “윤, 특검 정부 이송 시 즉각 거부권 행사할 것”
--  대통령 비서실장에 이관섭 기용
--  81일간 성화여정 마무리 “2018대회 성공개최 재현 한마음”
--  강원FS 내일 춘천서 풋살리그 첫 홈경기… 최하위 탈출 노린다
--  개최도시 4곳 스포츠·문화예술·교육전시 프로그램 다채
--  강원FC 수문장 이광연 재계약 “구단 최고 성적 낼 것”
--  원주 간현리서 50대 화물트럭 치여 병원이송
--  도전역 맑다 차차 흐려져…주말 새 곳곳 눈·비
--  도내 자선단체 모금액 저조 “얼어붙은 경기 탓”
--  안개 짙은 소양강
--  해맞이 차량 40만대 몰린다…서울서 강릉 ‘4시간 30분’
--  양구 ‘펀치볼 시래기’ 홈쇼핑 1억원 어치 완판
--  강원 대표 ‘으뜸음식점’ 6곳 선정
--  국순당, 우리술 알리기 캠페인 진행
--  춘천 휴젤 ‘주주가치 제고’ 자기주식 37만주 오늘 소각
--  내년 강원 성장률 흐림 경기회복 안갯속
--  [새의자] 권오복 신한은행 강원본부장
--  [프로필] 강원특별자치도 부단체장
--  [프로필] 강원특별자치도 국장급
--  이주호 부총리 “강원에서 교육혁명 일어나도록 적극 지원”
--  인사 명단
--  교육교부금 출산정책·대학에 야금야금…교육청은 ‘난감’
--  도내 글로컬대학 ‘지역 균형발전·AI 활용 혁신’ 힘 모은다
--  강원관광대 폐교 가시화…재학생 편입 추진 통보
--  강원랜드 글로벌 복합리조트 경쟁력 강화 박차
--  ‘세수펑크 여파’ 홍천군 총예산 682억원 감소
--  강원도, 국·과장급 정기인사 발표
--  “폐광지 관광 활성화 위해 새로운 이미지 브랜딩 필요”
--  “강원도내 의대 학생 80% 지역인재로 뽑아야”
--  전교조 강원지부 “도교육청 수능성적 취합·발표 중단하라”
--  강원 글로벌혁신특구 선정, 규제 터널서 벗어났다
--  [새의자]이은영 국민건강보험공단 원주횡성지사장
--  [새의자]이정희 국민건강보험공단 춘천지사장
--  누정문화 대표 문화유산 ‘삼척 죽서루’ 국보 됐다
--  ‘비·눈소식’에 새해 첫날 온전한 ‘해돋이’ 보기 어려워
--  현안 브리핑하는 박정하 수석대변인
--  건보공단, 내부감사 발전 기여 공로 기관 상 휩쓸어
--  [새의자]이동열 한국산업단지공단 강원본부장
--  [속보] 尹대통령 질책 ‘독도는 영토분쟁 중’ 軍정신교육교재 전량 회수키로
--  최흥식 한농연중앙회 제21대 회장 당선
--  강원관광대 폐교 움직임 본격화… 간호과 전원에 강동대 편입 통보
--  [새의자]현병관 설악산국립공원사무소장
--  강원특별자치도, 글로벌혁신특구 선정…전국최초 네거티브 규제 적용
--  올해 외대 언론인상에 박종현·김현우
--  춘천시 국장급 3명 교체… 춘천시의회 사무국장 유열
+-  [군위 인각사 극락전, 대구시 지정유산 등재
+-  [천안 초교 집단폭행 학폭위 결과 공개…“2년 주기로 뿌리겠다” 사이다 결말
+-  [대법 “사납금 미달 금액, 임금 공제는 무효”
+-  NAPADNUTA POLICIJSKA PATROLA U OBRENOVCU: Sedmoro osoba privedeno brzom akcijom nadležnih organa
+-  Nahost-Krieg: Israels Armee über versehentliche Geiseltötung
+-  Santos anuncia contratação do atacante Willian Bigode
+-  Duplicação da BR-470 chega a 80% e vídeo mostra antes e depois da obra; assista
+-  ”Vi börjar få fart på grejerna igen”
+-  ”Vi börjar få fart på grejerna igen”
+-  Juan Vieyra se acerca a nuevo equipo de la Liga Nacional
