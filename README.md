@@ -1,11 +1,11 @@
 # Latest News
--  Bakan Uraloğlu, zincirleme kazanın yaşandığı Kuzey Marmara Otoyolu'nu kullanacak sürücüleri uyardı
--  Soccerladuma | Official: Bafana AFCON Group Rivals Announce Final Squad
--  Türkiye'de ilk! Konya'da yeşil sertifikalı sporcu yetiştirme merkezinin yapımı sürüyor
--  Обгорела носовая часть: в Феодосии взрывами повреждено еще одно судно РФ
--  Merkez Bankası rezervleri açıklandı
--  Kriz büyüyor! Aliyev 48 saat süre verdi, Macron'dan sert cevap!
--  أوحيدة: الحوار الذي ترعاه البعثة الأممية غير دستوري
--  Vujović: Kvalitetno radimo, jedva čekamo da počne EP
--  Odermatt fehlt auch in Bormio wenig zum Triumph – überragender Sarrazin mit erstem Sieg
--  Swift conquers the NFL, Miami toasts Messi, and the Bills face an unthinkable scare: DailyMail.com looks back at the best photos from a WILD year in sports
+-  Arsenal reportedly want wonderkid who has already given 'wonderful' Gunners transfer verdict
+-  Viral: రిస్క్ అని తెలిసీ ఆనంద్ మహీంద్రాను పబ్లిక్‌గా రూ. లక్ష అడిగితే..
+-  Noussair Mazraoui, Hakim Ziyech en Ismail Saibari in selectie Marokko voor Afrika Cup
+-  انتخابات وكوارث طبيعية عديدة.. أبرز الأحداث في تركيا خلال عام 2023
+-  Spajić: Jevrosimu Pejović sam upoznao ove godine
+-  Exco PSSI Harap Idzes dan Nathan Bela Dapat Tampil Bela Timnas di Kualifikasi Piala Dunia
+-  Hundratals evakuerade efter översvämningar i Tyskland
+-  التوت البري الأحمر..أبرز 6 فوائد تتمتع بها هذه الفاكهة
+-  Russian stars' semi-naked party sparks wartime backlash
+-  وصول منتخب الناشئين الى محافظة شبوة
