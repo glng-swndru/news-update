@@ -1,11 +1,51 @@
 # Latest News
--  Venäjä pelastaa Nuorten Leijonien sarjapaikan
--  تستخدم كملين طبيعي .. إليك أبرز فوائد الكيوي الصحية
--  साउथ के सुपरस्टार और DMDK नेता विजयकांत का निधन, कोरोना के चलते वेंटिलेटर पर थे
--  Chelsea derrota (2-1) como local a Palace
--  由伸は通訳探す 水原氏は大谷専念
--  The Nintendo Store Has Some Mega Discounts On Switch Favourites
--  Bolívar jugará amistoso contra Melgar, rival de Aurora por Copa
--  Capriles será “puesto a punto” por la Didede
--  Aurora fue de menor a mayor y logró un premio
--  Guabirá suma a delantero dominicano
+-  Así va la gira de Yuri y Cristian Castro
+-  Padre atropella y mata a su hija de 20 meses
+-  Mata esposo a tiros durante pelea
+-  부산교육청, '2023년 종합청렴도 평가' 전년 대비 종합 2등급 달성
+-  Наманган вилоятида кучсиз зилзила қайд этилди
+-  Dona Rusia vehículos de extinción de incendios a Cuba
+-  농협은행, 2148억 규모 개인사업자 대상 이자 캐시백 지원
+-  Students call on Indonesian government to clamp down on refugee arrivals
+-  Harryn ja Meghanin hurja vuosi: Kaksi kohukirjaa, huhut asumuserosta ja tv-sarjojen pilkka
+-  '최근 8경기 4골이었는데...' 아스널 하베르츠, 경고 누적으로 웨스트햄전 출전 불가능
+-  진옥동 신한금융 회장, 신입 직원들에 "절실함 지난 융복합형 인재 될 것"
+-  Luxusná svadobná torta ukrýva šokujúce tajomstvo: Nebudete chcieť veriť vlastným očiam!
+-  거창군, 2023년 하반기 지방물가 안정관리 우수 지자체 선정
+-  군포시, 2024년 저소득 교육바우처 지원
+-  거창군, 지방세외수입 운영 평가 ‘우수’ 지자체 선정
+-  함평군, 주민자치·으뜸마을 성과공유회 진행
+-  오산시, 2022 노인등록통계 개발·공표
+-  인천 시민들 ‘삶 만족도’ 지난해 보다 개선
+-  부평, 문화·테마의 거리 환경 개선
+-  제천시, 갑진년 새해 해맞이 행사 개최
+-  평택대, 와이파이·학과방 구축 등 학생친화 거버넌스 확립
+-  계양 ‘찾아가는 이동금연클리닉’ 호평
+-  강원랜드, 제209차 이사회 개최
+-  서구, 시설공사 763건 하반기 정기 하자검사
+-  더민주 의정부시 지역위원회, '저소득가구' 성금 220만원 전달
+-  강화, 2024년 장학관 입사생 338명 모집
+-  윤종진 전 차관, 내년 총선 포항북구 출마 선언
+-  옹진, 서해5도 노후주택 개량사업 신청 접수
+-  예산군, 공공자원 개방·공유서비스 평가 2년 연속 ‘최우수’ 달성
+-  도성훈 인천교육감, 인천언론대상 시상식 참석
+-  박경귀 아산시장, 경찰병원 예타 면제 위해 막판 총력전 이어가
+-  천안시, 올해 기관표창 역대 최다… 78건 수상
+-  세종시농업기술센터, ‘새해농업인실용교육’ 실시
+-  미추홀, 수봉공원 현충탑서 해맞이 행사 진행
+-  천안시, 장기기증 장려운동 추진위원회 출범
+-  동구, 간부공무원 성폭력 예방교육 실시
+-  인천 최초 ‘연수형 주거급여’ 지원사업 추진
+-  [인사] 한국농어촌공사
+-  국립군산대 조선해양공학과, 1255만원의 학과 발전기금 기부
+-  렛츠런파크 부산경남, ‘馬과 사람이 모두 행복한 세상’ 위한 사회공헌 펼쳐
+-  경기도의회, 의회사무처 직원 중심 '자치분권 토크콘서트' 개최
+-  세븐일레븐, 갑진년 프리미엄 증류주 ‘용소주’ 선물하세요
+-  세종시, 시민 삶 만족도 전년과 동일… 10점 만점에 6.7점
+-  "아이키우기 좋은 도시" 영천시, 다함께돌봄센터 4호점 개소
+-  의정부, 민락2지구 중심상가 주차면수 실시간 제공
+-  양구군, 청년 혁신주거타운 조성 위한 착수보고회 개최
+-  호텔 서울드래곤시티, '그린키' 인증 획득…"ESG 성과"
+-  연신내역·부천원미 등 3079호 규모 '도심 공공주택 복합사업' 승인
+-  Jennifer Lawrence Looks So Chic In Statement Sunglasses During Stroll In Beverly Hills
+-  Tanıklara ödenecek ücretler belirlendi
