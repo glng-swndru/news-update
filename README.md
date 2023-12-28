@@ -1,51 +1,51 @@
 # Latest News
--  الانتصار الأول لـ ديفيد مويس على ملعب الإمارات
--  لعشاق الفانتازي.. بونص مباراة أرسنال أمام وست هام
--  Xiaomi predstavio svoj prvi električni automobil
--  Prefeitura divulga programação do réveillon em Lucas com show de Diego e Arnaldo; não haverá queima de fogos
--  „Kirov“ klasės laivai raketų paleidimo šachtas užpildo vandeniu. Štai kodėl
--  7 milliards de FCFA et 10 véhicules pour transformer l’Ogooué maritime
--  Hemmahjältens show inför familjen: "Sjukt coolt"
--  Bakan Tunç: Anayasanın değişmesi konusunda herkes mutabık
--  OPEC 내년 시장점유율 4년만 최저치…"27% 아래로 떨어져"
--  استشهاد فلسطيني برصاص الاحتلال جنوب القدس
--  Con inversión de $ 17,5 millones comenzará en Galápagos en el 2024 la construcción de un nuevo ecolodge
--  Dmitry Bivol y Artur Beterbiev se enfrentarán en 2024 en Arabia
--  Quién es el joven delantero que busca River para reemplazar al venezolano Rondón
--  [2024년 이렇게 바뀐다-부동산] 출산가구 유리하게
--  [2024년 이렇게 바뀐다-부동산] 재건축 규제 완화
--  [2024년 이렇게 바뀐다-청년] 성장과 취업에 도움되게
--  [2024년 이렇게 바뀐다-가족과 육아] 아이 키우는 데 도움되게
--  [2024년 이렇게 바뀐다-노동·복지] 고소득자 건보료 뛰고 약자 복지 강화
--  İsmail Kartal'ın Süper Kupa'ya odaklandı: 'Tam kadro kupaya hazırız'
--  Okan Buruk: 'Beklenti yüksek, karşılarız'
--  İsrail işgal ihalesini açtı... Doğu Kudüs'te 1839 yasa dışı yeni konut inşa edilecek
--  Штат Айова отправит в Косово вторую группу нацгвардейцев
--  Broncos befreien sich aus der Krise, HCG mit Mega-Comeback
--  West Ham šokirao Arsenal na Emiratesu, Liverpool preuzima vrh ljestvice
--  Lazio, Felipe falso nove? Intanto per la difesa prova il recupero Casale
--  استجابة لنداء شيخ الأزهر.. وفود شعبية من 70 دولة تشارك فى قوافل لإغاثة غزة
--  صفارات الإنذار تدوى في جنوب عسقلان بغلاف غزة
--  RUČAK I DORUČAK Aca Petrović ispričao anegdotu o bratu Draženu koju niko nije znao
--  Ostatnio jest o nim głośno. Polski talent może zastąpić Grabarę w Danii
--  NIA, ‘생성AI 윤리 가이드북’ 발간
--  PINTEC ANNOUNCES UNAUDITED FINANCIAL RESULTS FOR THE FIRST HALF OF 2023
--  Toño Mauri: lo que se sabe de la bacteria que tiene en los pulmones
--  Câmera de segurança flagra assalto a despachante em Jaguariúna
--  Nuôi con đặc sản dưới kênh, rạch, chả phải cho ăn, bắt lên bán, nông dân Cà Mau lời 50%, đó là con gì?
--  Com média de 3 casos por dia, nº de estupros na região de Campinas é o maior desde 2001, diz SSP
--  Equipos de ciclistas ecuatorianos confirman su participación en el Tour Colombia 2024
--  إحصائيات مباراة أرسنال ضد وست هام
--  População preta e parda cresce 10,4% em Joinville, aponta Censo 2022
--  LigaPro: Sueño cumplido para Norberto Araujo
--  Balance positivo para centros comerciales en Navidad con aumento de 30% en visitantes
--  Arsenal mistókst að endurheimta toppsætið
--  Segist gera ráð fyrir varnargörðum við Grindavík
--  నన్ను సీతక్క అని పిలిస్తేనే నాకు ఇష్టం
--  الأعلى تقييمًا في مباراة أرسنال ووست هام
--  Encuentra el valor de todos los silbatos y pon a prueba tu ingenio en este intrigante reto matemático
--  전국 광역단체장 12월29일 일정
--  Homem é baleado no rosto em marina de Arraial do Cabo, no RJ
--  Arsenal pao u londonskom derbiju, Liverpool ostao na vrhu s dva boda prednosti
--  RETROSPECTIVA 2023 – Dori Caymmi, Edu Lobo e Marcos Valle festejam 80 anos com discrição
--  Otto Stenberg hyllas stort av lagkamraterna efter JVM-succén
+-  11월 주택 인허가 14%·착공 83% 증가…준공은 39% 줄어
+-  美-이스라엘 국방장관, 가자지구 '안정화 단계' 준비 논의
+-  국제유가 3% 급락…홍해 운항 재개로 공급 우려 완화
+-  이원욱 "이낙연·정세균·김부겸 공동선대위원장? 대마왕급 꼼수"
+-  [최태호의 우리말 바로 알기] lsquo;하릅rsquo;과 lsquo;이듭rsquo;, lsquo;사릅rsquo;과 lsquo;나릅rsquo;
+-  [인사] 대전시 동구(2024년 1월 1일자)
+-  [문상윤 식품전문기자의 푸드 에세이] ⑫ 따뜻한 국물과 쫄깃함이 생각는 계절, 밀가루 음식
+-  أرسنال يسقط أمام وست هام بثنائية
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Πρωτοσέλιδα αθλητικών εφημερίδων για την Παρασκευή 29 Δεκεμβρίου 2023
+-  صحيفة أمريكية تكشف صفقة خطيرة بشأن أوكرانيا.. هل انتصر بوتين؟
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Las propuestas de los museos en el mundo para 2024
+-  Brambati sul Milan: «Sono sorpreso dal presente. Tornare sul mercato vuole dire che…»
+-  "C'est lui qui m'a donné l'idée" : ce journaliste atypique qui est à l'origine du Papotin
+-  Завршено донаторско вече "С љубављу храбрим срцима": Број 1411 позван више од 107.000 пута
+-  تقييم أوديجارد في مباراة أرسنال ضد وست هام
+-  [스한:BOX] '노량: 죽음의 바다' 9일 연속 1위, 300만 돌파 임박
+-  Katil İsrail askerleri noel baba kılığına girip Gazze'deki çocukları bombaladı!
+-  Grenzstreit: Venezuelas Maduro ordnet Militärübung an
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  FA llamará a Martinelli al Parlamento la segunda quincena de enero
+-  สถานการณ์ตลาดหุ้นอินเดีย ดัชนี Sensex พุ่งกว่า 300 จุด ยืนเหนือเส้น
+-  تحالف واشنطن في البحر الأحمر يبدو أقل مردودا مما توقع «بايدن»
+-  Luchaba por su vida: Carabineros salvó a perrito de morir ahogado en un tranque
+-  이선균 협박해 5천만원 받은 20대 여성 구속…"도주 우려"
+-  [용인 수지구 동천동 447필지‧14만㎡, 토지거래허가구역 해제
+-  [용인시, 내년부터 오전 7시~오후 9시 불법주정차 단속…2시간 연장
+-  [구로구, 공공기관 종합청렴도 2년 연속 1등급…전국 자치구 최초
+-  [“널 지켜주고 싶어”…혼전순결 강조한 남편, 알고 보니 이유 따로 있었다
+-  [용인시, 재해 위험 소하천 2곳 정비
+-  135حديقة جديدة في إمارة أبوظبي
+-  «مخيّم الابتكار» لطلبة المدارس بجامعة الإمارات
+-  حملة لتنظيف «سكيك» السمحة
+-  Посол в Аргентине уверен, что новые власти готовы вести диалог с Россией
+-  «استشاري الشارقة» يجيز مشروع قانون موازنة حكومة الإمارة
+-  İstanbul'da yılbaşı öncesi sıkı denetim
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
+-  Μεικτά πρόσημα στη Wall Street
+-  قياس أثر «دليل تصميم الأماكن العامة» في أبوظبي
+-  150 ناشئاً في ملتقى الناشئة الأول
+-  ورش تعليمية في «إلكترونية الشارقة»
+-  اختتام المعسكر الشتوي لأطفال الشارقة
+-  «لولو للصرافة» تحتفل بافتتاح الفرع 100 في الإمارات
+-  «الإمارات للخدمات الصحية» تنظم المؤتمر الأول لحديثي الولادة
+-  مركز الشيخ زايد لعلوم الصحراء يقدم تجارب مستدامة
+-  Capodanno 2023: idee look scintillanti per festeggiare la fine dell’anno
