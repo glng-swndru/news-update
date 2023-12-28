@@ -1,11 +1,51 @@
 # Latest News
--  PM Modi Degree Case: Court Issues Production Warrant For Jailed AAP MP Sanjay Singh
--  Uttar Pradesh: पीलीभीत टाइगर रिजर्व में बाघ सफारी रूट पर घंटों रहा बैठा, देखें वीडियो
--  İsrail'den skandal karar: Yasa dışı yeni 1839 Yahudi yerleşim birimi için ihale açtı
--  4 Türk denizcinin bulunduğu gemi karaya oturdu
--  Gekas: Fatih Terim'in kim olduğunu söylemeye gerek yok
--  Emniyette FETÖ operasyonu! Bakan Yerlikaya: 445 kişi açığa alındı
--  ABD'de ilk kez işsizlik maaşı başvuru sayısında beklenmedik yükseliş gerçekleşti
--  देश की खबरें | गुना बस हादसा: परिवहन आयुक्त, जिला कलेक्टर, एसपी का तबादला
--  देश की खबरें | कांग्रेस की न्याय यात्रा असली मुद्दों से लोगों का ध्यान भटकाने की कोशिश: अनुराग ठाकुर
--  Sumqayıtın qaz təchizatında fasilə yaranacaq
+-  Yazıcı: Vatandaşlarımızı dinlemek en önemli önceliğimiz
+-  "445 emniyet mensubu açığa alındı"... Bakan Yerlikaya: FETÖ ile iltisaklı oldukları tespit edildi
+-  Aile cüzdanı değerli kağıt bedeli ne kadar? 2024 evlilik cüzdanı kaç TL?
+-  Саладуха: Бойкот Олімпіади - крайній засіб
+-  Detran divulga calendário de pagamento do Licenciamento do próximo ano em Mato Grosso
+-  Mesto idealno za sve bolesti: Na padinama ove planine nalazi se najviša banja u Srbiji
+-  Fenerbahçe-Galatasaray derbisi biletlerinde son durum ne?
+-  Emniyet Genel Müdürlüğü'nde FETÖ operasyonu: 445 kişi açığa alındı
+-  تسليم (330) الف راتب معين متفرغ ..وزارة العمل والشؤون الاجتماعية: (4) ملايين معاق في العراق(فيديو)
+-  السوداني: الحكومة العراقية ماضية في انهاء وجود التحالف الدولي
+-  رئيس وزراء اسبانيا: ملتزمون بالحفاظ على وحدة وسيادة وأمن واستقرار العراق
+-  العراق يوقف العمل بالمستمسكات القديمة
+-  العراق يرحب بالشركات الإيرانية للعمل في تنفيذ المشاريع بقطاع النفط والطاقة
+-  الحكم على أكثر من 7 آلاف مدان بالمخدرات خلال العام 2023 في العراق
+-  رغم تعهد خمس حكومات بتنفيذه.. هل يرى "مترو بغداد" النور يوما؟
+-  "الإطار" ينوي "تجريف المحافظين".. وأعلاهم أصواتا "ليس في مأمن"
+-  عودة الحكومات المحلية.. ما مصير الصلاحيات المسلوبة؟
+-  انخفاض الدولار.. "مؤقت" أم مستمر؟
+-  قانون المحكمة الاتحادية.. السوداني يعيده للواجهة والبرلمان أمام اختبار صعب
+-  حرب الفصائل وواشنطن تصل المدن.. وبغداد "محرجة"
+-  انهيار كبير في سعر الذهب اليوم والجرام يفقد 120 جنيهًا خلال التعاملات
+-  من بينها سكة نجف - كربلاء.. السوداني يدعو الشركات الإسبانية للمشاركة بتأهيل مطار بغداد و15 مدينة سكنية
+-  "عطسة".. تهدد حياة رجل وتتسبب في تمزق القصبة الهوائية لهذا السبب
+-  Tesla faces scrutiny over robo-attack incident at its Giga Texas factory, Musk disputes claims
+-  Hot Mic Live: A new starter for the Commanders and Bison women's basketball begins summit play
+-  Посол Японии прокомментировал передачу США ракет для ЗРК Patriot
+-  El Gobierno pide a Feijóo y UPN que abandonen la política del "señalamiento" e "insulto"
+-  AM/NS India installs solar powered streetlights in Nuagarh Panchayat of Paradeep
+-  Obaveštenje za sve korisnike prevoza: Ovo su izmene na linijama tokom Nove godine
+-  Mahindra XUV400 EV Likely To Get New Pro Variants Soon; Features Leaked
+-  Adorni: “El que siga necesitando el subsidio lo va a seguir teniendo”
+-  Tak Perlu Panik Anak Kejang, Simak Saran Dokter
+-  В Петербурге объявили желтый уровень погодной опасности
+-  Ruská invázia pripravila o život už viac ako 400 ukrajinských športovcov
+-  По Нова година треба да почне со работа дневната болница за онколошки пациенти во ГОБ „8 Септември“
+-  Former India defender Prabir Majumdar no more
+-  Danny Masterson sent to California prison to serve sentence for rape convictions, mug shot released
+-  Preminuo Dik Marti
+-  Odisha: 2,392 MBBS doctors, 81 dental surgeons inducted into State medical services
+-  Otu: We’re Reviving Tourism In C’River Through Carnival
+-  "Massiver Personaleinsatz": Einsatzkräfte wappnen sich für Silvester-Randalen
+-  PM Modi Taking Feedback: पीएम मोदी सीधे जनता से पूछ रहे हैं सवाल, अपने सांसद के कामकाज से कितना संतुष्ट हैं आप?
+-  При обстреле Ясиноватой пострадала мирная жительница
+-  Иван Станев ще бъде на линия за двубоя с Дея спорт 8 дни след операция от херния
+-  Jal Jeevan Mission: 15 contractors awarded work blacklisted, 387 fined in Nanded
+-  WATCH: Arbaaz Khan croons `tere mast mast do nain` at his wedding with Sshura
+-  Ciolacu răspunde criticilor privind aderarea parțială la Schengen: Acesta este primul rezultat concret în 13 ani / Mulţi şi-au dat cu părerea și au realizat foarte puţin
+-  &quot;UČINIO JE NEŠTO U ODBRANU MUŠKOG RODA&quot; Usijale se društvene mreže zbog onoga što je mladoženja uradio na dan venčanja (VIDEO)
+-  STRAUSS: Prozessmanager / Projektmanager (m/w/d)
+-  CAN 2023 : Être favoris, « un atout » selon Regragui
