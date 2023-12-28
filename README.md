@@ -1,51 +1,51 @@
 # Latest News
--  Indef: E-commerce Dominasi Pertumbuhan Ekonomi Digital Indonesia
--  Dit is de Nederlandse selectie voor het EK shorttrack 2024: Suzanne Schulting ontbreekt
--  استقبال حافل لأبطال جولف الخليج
--  Полша получи първите пет милиарда евро от замразените еврофондове
--  Fiorentina-Torino, i convocati: non c’è Nico Gonzalez nei viola
--  Man sentenced to 14 years for smuggling 26kg of cannabis
--  Trickster: Antonio Banderas "obsessed" with Christmas song, new 'God Save The King' session at Abbey Road, as video hits 1M views on YouTube
--  إيسكو يمدد عقده مع ريال بيتيس حتى 2027
--  العين يواجه ناساف في ثمن نهائي دوري أبطال آسيا
--  Offizieller Start zu bundesweiter Sternsinger-Aktion
--  Vyšetrovatelia zistili, čo bolo príčinou hrozného leteckého nešťastia v Nepále
--  Velika nada Partizana neočekivano otišla u Ameriku
--  Yer Zonguldak... 2 kız çocuğuna cinsel istismar davasında 8 tahliye: Alkışlarla kutladılar!
--  InventHelp Inventor Develops Full Coverage Coat for Dogs (MBQ-368)
--  القسام تسقط طائرة استطلاع إسرائيلية بتل الزعتر
--  Huijausviestejä on liikkeellä, varoittaa oikeusministeriö
--  Kebakaran Sekolah Menghanguskan 32 Ruang Kelas di Bengkulu
--  XETRA-SCHLUSS/Leichte Verluste am letzten vollen Handelstag 2023
--  Beto Ortiz despide a Pedro Suárez Vertiz: “Ahora que partió, recuerdo que él se preguntaba por qué lo queremos tanto”
--  Liberal mayors push Biden for emergency declaration, additional funding to deal with migrant crisis
--  Citypress | Moments of silence in honour of the late Mbongeni Ngema - PSL
--  How many games will Mohamed Salah miss because of AFCON and when will he return? Liverpool talisman missing key fixtures
--  EEUU: No más dilatorias para conocer información clasificada, exige abogada del expresidente Hernández
--  Soccerladuma | Portugal Boss Drops Ronaldo Retirement 'Hint'
--  Hasina says elections can be participatory without BNP if voters come to vote
--  CAC40 : en léger repli dans des volumes restreints
--  Plateau Killings: Perpetrators Will Not Go Unpunished – FG
--  Priveli su požeškog HDZ-ovca, policija za 24sata: 'Provodimo kriminalističko istraživanje...'
--  «Локомотив» назвал имена соперников на зимних сборах
--  La Audiencia Nacional rechaza asumir la investigación sobre la presunta estafa piramidal del Grupo Herrero Brigantina
--  Antonio Ricci: “Il caso Giambruno? Ho agito in buona fede. Meloni non ha speso una parola per le donne che erano in studio con lui”
--  Anti-corruption authority to release findings on alleged legal service conflicts
--  Quintuple homicide à Meaux : le père de famille mis en examen et écroué
--  भारत 5 साल में 50 सैटेलाइट लॉन्च करेगा:ये खुफिया जानकारी जुटाएंगे; ISRO चीफ सोमनाथ ने G20 सैटेलाइट के लिए मदद मांगी
--  3 ứng dụng có lượng người dùng lớn tại Việt Nam
--  Body found on Cardigan Bay beach
--  Diaľničná patrola tento rok pomohla množstvu motoristov, na cestách vyriešila takmer 21-tisíc incidentov
--  «أربعين المريعي» تبدأ.. شتاء شديد البرودة حتى 5 فبراير
--  Aktien Schweiz vom festen Franken gedrückt
--  POVREĐEN MC STOJAN! Incident u kafiću u Sopotu, obaveštena i policija - reper zadobio povredu noge
--  GWR: Asantewa Enters Day 4 Of Sing-A-Thon
--  Egea fiyatına Honda City fırsatı! Leblebi gibi gidecek
--  Kassam Tugayları, İsrail askerlerini vurduğu anları paylaştı
--  Declan Devine on hunt for more defensive cover after Bohemians boss confirms return of Rob Cornwall
--  Demanda contra Microsoft y OpenAI y otros clics tecnológicos en América
--  WWE NXT Leaving TNT Sports In the UK, Exclusive to WWE Network
--  La grosse surprise de Youssou Ndour à Omar Pêne
--  Praja Palana: ప్ర‌జాపాల‌న‌కు భారీ స్పంద‌న, తొలిరోజే వేలల్లో అప్లికేష‌న్లు, మొత్తం రాష్ట్రవ్యాప్తంగా ఎన్ని అప్లికేష‌న్లు వ‌చ్చాయంటే?
--  Wellinger górą, Polacy znów słabo. Pierwszy akord Turnieju Czterech Skoczni
--  Τσιμίκας: Ανέβασε story με τον επίδεσμο στον ώμο του
+-  "התחזית ל-2024: ווס אנסלד ג'וניור יפוטר מוושינגטון"
+-  4 أعراض خطيرة لأمراض القلب يخلط البعض بينها وبين الأنفلونزا
+-  Trafic de drogue à Canteleu: "le parquet, depuis le début de cette affaire, a une lecture complètement hors-sol du travail d'un maire" estime l'avocat d'Hasbi Colak, adjoint à la mairie
+-  México y EE.UU. acuerdan mantener abiertos pasos fronterizos
+-  Serán 3 bancos los que presten crédito a largo plazo
+-  Recibieron atención psicológica más de 15 mil chihuahuenses
+-  Кабинет по ведению войны намерен обсудить будущее Газы. "Ционут Датит" и "Оцма Иегудит" протестуют
+-  PFDK, cezaları açıkladı! Galatasaray ve Fenerbahçe'ye kötü haber
+-  Yunanistan'a kaçacaktı! Firari hükümlü kıskıvrak yakalandı
+-  Película biográfica de Amy Winehouse ya tiene fecha de estreno: estos son los detalles
+-  Kommentti: Annika Saarikko lausui paljonpuhuvat sanat puoluekokouksen jatkoilla – onko Paavo Väyrysen aika viimein ohi?
+-  UP: यूट्यूब से सीखा ‘कैसे ATM से करें चोरी’, लेकिन जैसे ही चोरी करने पहुंचे…
+-  Vicepresidente Carrizo juramenta a mil 527 nuevos agentes de la Fuerza Pública
+-  Faustão revela que sofreu duas quedas e fratura após transplante de coração
+-  Pico y placa en Bucaramanga para este viernes 29 de diciembre de 2023: tome nota
+-  Kumaram Bheem Asifabad: జామ్నిలో పల్లె ఆసుపత్రిని సందర్శించిన వైద్య బృందం
+-  TeklifimGelsin 14 milyon dolar değerlemeyle yatırım aldı
+-  Za dużo prądu na Ukrainie. Polska kupuje nadwyżkę
+-  De Bel20 sluit een matte sessie af net boven de 3.700 punten.
+-  Esto dijo Giorgetto Giugiaro, icono del diseño automotriz, sobre el Cybertruck de Tesla
+-  Polizeieinsätze zu Silvester: Aufrüsten für den Jahreswechsel
+-  2024 йил учун ижара ҳақининг янги минимал ставкалари белгиланди .
+-  Сўровнома: Ўзбекистонлик экспертлар 2024 йилда қандай ўзгаришларни кутмоқда?.
+-  Магнус Карлсен Самарқандда рапид бўйича жаҳон чемпиони бўлди .
+-  «Минглаб тожикистонлик аёллар миграцияда. Бизда шараф борми?» - Эмомали Раҳмон .
+-  Ким Чен Ин Шимолий Корея армиясини урушга тайёрланишга чақирди .
+-  Жиззахда гўдак фарзандини азоблаган эркакка жиноят иши очилди .
+-  Krčka na Balkanu: Doznajemo hoće li se spojiti Srbija i Republika Srpska
+-  Patentstreit: Etappensieg vor Gericht: Apple startet Verkauf seiner Uhren
+-  Harry Kane keeps to his word as he’s spotted on beach over Christmas during Bundesliga break
+-  Mala madre: cómo cuidar la planta que purifica el aire en menos de 24 horas
+-  Pakistanda Yeni il şənlikləri ləğv edilib
+-  Kumaram Bheem Asifabad: గతేడాదితో పోల్చితే నేర ప్రవృత్తి తగ్గింది: ఎస్పీ
+-  США передали Украине партию зерновозов
+-  دعم برامج البحث العلمي.. توصيات مؤتمر أخلاقيات الذكاء الاصطناعي بجامعة طنطا
+-  Znanstvenici dobili uvid u davno izgubljene tajne Antartktike: Otključali su je uz pomoć hobotnice
+-  Mendoza, Auster, García Márquez, o Rushdie, 'púgiles' de otro asalto editorial
+-  Mendoza, Auster, García Márquez, o Rushdie, 'púgiles' de otro asalto editorial
+-  Des « sols électroniques » pour booster la croissance des plantes et ça marche
+-  Ryga dviese: kryptis, kurios kaskart sau pavydime
+-  Ex-Chelsea star Oscar’s eye-watering salary he’s earned in China since leaving Stamford Bridge
+-  Kvinna gripen i Malmö – hade degknyten med glas
+-  ‘Bring him back’ rant furious fans as EastEnders character ‘goes missing’ after Christmas Day murder
+-  Zamiast ciepłych wakacji brutalne uziemienie. Przez głupi żart o bombie w bagażu
+-  بتهمة انتهاك حقوق المؤلف.. ملاحقات قضائية تلاحق "تشات جي بي تي"
+-  Ukraine tepidly welcomes new U.S. military aid package
+-  Dijon. Une visite du centre de tri proposée par la métropole
+-  Último carcereiro de Mussolini comemora aniversário de 101 anos
+-  Resolution gegen den Krieg in Nahost: Bisher ohne Wirkung
+-  Navio de ONG chega à Itália com mais de 100 migrantes a bordo
