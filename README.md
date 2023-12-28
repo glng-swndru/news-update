@@ -1,51 +1,11 @@
 # Latest News
--  Cesa la directora del Servicio Canario de Empleo, Dunnia Rodríguez
--  Llegan en las últimas horas cuatro pateras con 212 migrantes a Gran Canaria, Lanzarote y El Hierro
--  I’ve lost faith after suspect in my daughter’s death was released, says dad of student ‘murdered by billionaire’s son’
--  Ako riješite ovu rijetku i naizgled vrlo laku božićnu mozgalicu posjedujete jedan izniman talent
--  Belgisch meisje (13) zwaargewond tijdens zoektocht naar skistok die uit lift was gevallen
--  Стоилковски: Предлогот на ВМРО-ДПМНЕ за ослободување од придонеси на медиумските работници е за подобрување на нивниот стандард
--  Байерн ще опита да отдалечи Алфонсо Дейвис от Реал Мадрид
--  Mbongeni Ngema Dies: ‘Sarafina!’ Creator & ‘The Lion King’ Vocal Arranger Killed In Car Crash
--  El Gobierno pone fin a los recortes a las eléctricas y no prorroga el precio máximo de los contratos de luz
--  Immediate Vortex Reviews UK, Australia Report 2024
--  Delhi Police to deploy 250 teams on New Year`s eve to check drunken driving
--  Congress chief ahead of Nagpur rally says, `Will never move from its ideology`
--  ,,AJKULE" U PETAK IGRAJU PRIJATELJSKI MEČ SA GRUZIJOM
--  منها السبانخ- خضروات شتوية تساعدك على خفض الكوليسترول
--  Dramatic moment cops tackle knife-wielding murderer minutes after he killed man and stabbed woman, 26, in random rampage
--  Dramatic moment cops tackle knife-wielding murderer minutes after he killed man and stabbed woman, 26, in random rampage
--  Τραγωδία στην Ινδία: 13 νεκροί από σύγκρουση λεωφορείου με φορτηγό – Ξέσπασε φωτιά και κάηκαν ζωντανοί
--  Mehmetçikten terör inlerine 'pençe'
--  PSG: Kang-in Lee convoqué avec la Corée du Sud pour disputer la Coupe d’Asie des nations au Qatar
--  Rise of ruthless Cheetham Hill Gang infamous for military-style planning and shotgun-wielding raids
--  Rise of ruthless Cheetham Hill Gang infamous for military-style planning and shotgun-wielding raids
--  Carlos Rubiales: "La exposición está muy cuidada, muy bien planteada y merece la pena verse"
--  Randeep Hooda shares pic of tigress with snare stuck to belly, seeks help of U’khand CM
--  PPS ditutup, semua mangsa banjir di Sabah dibenarkan pulang
--  MSB kaynakları 12 askerimizin şehit düştüğü terör saldırılarının detaylarını açıkladı
--  Samet Aybaba'dan Sergen Yalçın açıklaması! "Görüşürsek anlaşırız"
--  אחרי שהורשע ונכנס למאסר: דני מסטרסון בתמונה ראשונה מהכלא
--  ელექტროენერგიის ტარიფები 3 თეთრით მცირდება
--  DMM bir yalanı daha ortaya çıkardı! Cumhurbaşkanı Erdoğan'ın sözleri kasıtlı şekilde çarpıtıldı
--  PM insists on effective delivery of ministries, underlines to keep people&#039;s hopes intact
--  Inocente palomita: Parece broma pero...sucedió en la CDMX en 2023
--  Inocente palomita: Parece broma pero...sucedió alrededor del mundo en 2023
--  Shoppen in der Dortmunder Innenstadt: Was ist los am Westenhellweg?
--  Нювил сподели визията си за развитието на формата на ралитата в WRC
--  Football : la plateforme DAZN diffusera désormais deux matchs de National par journée
--  This Is What's Actually Playing In Singers' Earpieces – And We're Horrified
--  IPO: Wentel Engineering, TA Securities jalin kerjasama
--  The final draw of Birbank's "10,001 Gifts" lottery has concluded: the owner of the apartment has been identified
--  I’m a size 14 & found the perfect NYE dress – it has a waist-cinching corset & cute mini skirt that flatters your curves
--  I’m a size 14 & found the perfect NYE dress – it has a waist-cinching corset & cute mini skirt that flatters your curves
--  ROUNDUP: Immobilien-Einheiten der Signa-Gruppe von Benko insolvent
--  Ahembo concluye un exitoso 2023 superando retos y consolidando su liderazgo en Canarias
--  Mum, 42, who took ‘skinny jab’ to banish belly fat left fighting for life after it ‘triggered organ failure’
--  Mum, 42, who took ‘skinny jab’ to banish belly fat left fighting for life after it ‘triggered organ failure’
--  Explosion an Frachter im Schwarzen Meer - Seemine vermutet
--  Шер побара правно старателство над нејзиниот син
--  संसद सुरक्षा चूक: HC का आरोपी नीलम आजाद की याचिका को तुरंत लिस्ट करने से इनकार
--  Corée du Nord: Kim Jung-un appelle à "accélérer les préparatifs de guerre"
--  В Криму повідомляють про потужний звук вибуху та запуск ракети
--  Εθνική Μαρόκο: Στο Κύπελλο Εθνών Αφρικής ο Ελ Καμπί, εκτός λίστας ο Άμραμπατ
+-  Galaxy S24+ could ship with Snapdragon 8 Gen 3 globally; more specs leak
+-  Chcete vedieť koľko peňazí pošlete od januára Sociálnej poisťovni? Ukáže vám to KALKULAČKA!
+-  Sales practices rife with ‘anarchy and irregularities’
+-  AKTUÁLNE Veľká evakuácia v Prešove: Do budovy vošiel mladík s taškou, tvrdil, že má bombu!
+-  Cypriots opting for overseas New Year celebrations
+-  Konya İl Milli Eğitime MEVKA desteği ile arama kurtarma eğitimi verildi
+-  Fatih'te tekerlekli sandalye ile gelip eski eşini vuran saldırgan adliyeye sevk edildi
+-  Kahramanmaraş’ta 2 zincirleme kaza: 15 yaralı
+-  Üç eşini de öldüren sanık: Ben kadın düşmanı mıyım?
+-  KENTSEL DÖNÜŞÜMDE GÜVEN UNSURU-1
