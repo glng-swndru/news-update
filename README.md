@@ -1,51 +1,11 @@
 # Latest News
--  TN govt announces state honours for Vijayakanth`s funeral
--  When Rajesh Khanna ridiculed Amitabh Bachchan`s punctuality
--  Ocuvital Reviews: The #1 Eye Health Supplement of the Year
--  Dutch tourists arrested after brawl in Tyrol, Austria; Six suspects, four hurt
--  RIP: Zizi Kodwa pays tribute to the late Mbongeni Ngema
--  Mersin'de zincirleme trafik kazası: 2 ölü, 4 yaralı
--  Bursa'da evlat dehşeti! Tartıştığı babasını pompalı tüfekle öldürdü
--  Pedro Nuno e Luís Montenegro alimentam tabu sobre localização do futuro aeroporto
--  Gazzetta - Decreto crescita valido solo fino a gennaio, le grandi accelerano
--  سعر برميل النفط الكويتي يرتفع ليبلغ 83.07 دولار
--  "الأرصاد": طقس معتدل مع فرصة لأمطار متفرقة..و"العظمى": 22
--  5 เดือนคดีไม่คืบ ครอบครัว นศ.พยาบาล ร้องตรวจสอบการเสียชีวิต
--  „Șeicul“ Șucu: câți bani a băgat omul de afaceri în Rapid în doar doi ani ANALIZĂ
--  El TS aplica el 'sólo sí es sí' al autor de la brutal agresión a una joven con discapacidad y reduce 4 años su condena
--  EXCHANGE RATES FOR CURRENCY NOTES
--  "TIHI UBICA GOVORI O MOM TURBULENTNOM ODNOSU SA DUŠKOM!" JK posle 15 godina otkrila TAJNU pesme: U sve umešana i OVA ŽENA
--  #fotogalerija Leto, zaznamovano s poplavami
--  El personal del SAF de Cariño amenaza con movilizaciones si no se cumple su convenio
--  Иванка Шалапатова: Ще изчистим пенсиите от грешки, така всеки ще получи колкото заслужава
--  Predzadnje dejanje leta 2023
--  ZDRAVA SALATA OD ŠARGAREPE I SOČIVA: Idealna je kao kompletan obrok, pomaže u jačanju imuniteta
--  Météo. Douceur, pluie, vent et de la neige attendus pour le Nouvel an
--  İngiltərə ilə Yunanıstan arasındakı böhran səngimir: Afinadan yeni təklif
--  La Unión Europea acelera la estrategia para reducir su dependencia de China en minerales críticos para tecnología
--  FAF : Sadi candidat au poste de vice-président de l'UNAF
--  TRANSFER HABERİ: Arda Güler'in yeni takımı belli oldu! Transfer böyle bitecek
--  “이재명 대표님, 낭떠러지에서 손을 떼세요”…결단 촉구한 정세균
--  Hochwasser: Pegel steigen, Elbe-Wehr geöffnet, einige Siedlungen evakuiert
--  موقع أمريكي: بلينكن يعتزم زيارة الأردن الأسبوع المقبل
--  Chilling details emerge about violent death of young water polo coach Lillie James at hands of Paul Thijssen
--  ‘위기설’ 백현 마이스 사업···신상진 성남시장“정상 추진”
--  Taylor Swift is named Time magazine&#039;s person of the year
--  ВИДЕО: Израелски напад на станбен комплекс во Газа, Хамас објави за 20 мртви и десетици повредени
--  Residents in Beijing, Northeast China Report New Highs in Pneumonia-Related Deaths
--  NOĆNA TARIFA SPAS ZA KUĆNI BUDŽET: Ovaj uređaj za TA peć ozbiljno smanjuje račun za struju, šta da uradite ako se grejete na klimu
--  TSIC appointments: Telangana seeks more time to form committee
--  Otrok metuljevih kril bo poletel v ZDA. Ima bolezen, ki napreduje in povzroča invalidnost
--  شرطة رأس الخيمة تستعرض خطط تأمين الاحتفالات بحلول السنة الميلادية الجديدة
--  আ.লীগ ও বিএনপির বৈরিতার ভেতর–বাহির
--  U ova tri horoskopska znaka rađaju se najbolji ljudi
--  Hochwasserlage bleibt angespannt – Evakuierung an der Aller
--  США предложили G7 изучить варианты конфискации российских активов
--  কবি আবুবকর সিদ্দিক আর নেই
--  Jacques Delors : «Il avait une rigueur européenne merveilleuse» affirme Jacques Attali
--  STRAŠNA SAOBRAĆAJNA NESREĆA U ITALIJI Sudarili se vozilo Hitne pomoći i autobus, IMA POGINULIH
--  Danas se završava popis: U 13 opština registrovano znatno manje stanovnika
--  Майката на Даная, чиито органи дариха: Всеки ден я търся и винаги я намирам
--  Hong Kong man jailed for 6 years after pleading guilty to a terrorism charge over a foiled bomb plot
--  Smartwatch saga: Apple’s legal battle over watch patents rocks tech world
--  প্রথম দুই ঘন্টায় বিক্রেতা মিলছে না ৬ প্রতিষ্ঠানের
+-  Direktive izdaje kadar bivšeg režima, iako bez funkcije: DPS se sprema da preuzme katastar preko Evrope sad!
+-  Тошкентда Трансафғон темирйўли қурилишини жадаллаштириш муҳокама қилинди.
+-  Soccerladuma | Benzema Takes Action After Losing 5-2 To Ronaldo In Saudi?
+-  Kim Dzsongun gyorsított háborús előkészületekre szólított fel
+-  Financial authorities try to dispel market concerns as Taeyoung E&C applies for debt workout
+-  محامي: السجن والغرامة لحاملي الشهادات المزورة في "هيئة المحاسبين"
+-  عاجل.. منصة مدرستي.. طريقة تسجيل كادر الطلاب برقم الهوية 1445
+-  شهادة معتمدة.. "هدف" يُعلن عن دورات تدريبية مجانية عن بعد في برامج مايكروسوفت
+-  أقلها 5.. درجات الحرارة المسجلة اليوم بمناطق المملكة
+-  만성 부비동염 환자, ‘호중구 세포외 덫’ 억제해 증상 악화 막는다
