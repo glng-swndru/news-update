@@ -1,51 +1,51 @@
 # Latest News
--  La Universidad de Caldas se suma a la de Antioquia y la del Valle y recibirá terrenos de narcos
--  İsrail'den Hizbullah'a tehdit
--  Selçuk İnan: Acısını da mutluluğunu da iyi bildiğim bir kupa
--  Anklagelserna mot Depardieu – detta har hänt
--  Dirk Kuyt'ın yeni takımı belli oldu!
--  Aantal islamitische uitvaartzorgbedrijven in Nederland bijna verdubbeld
--  Dura crítica a Gündogan desde la Federación alemana
--  Jula er høytid for SMS fra - kundeklubbene
--  Što slijedi nakon velike tužbe protiv OpenAI-a: ‘Stvari bi se uskoro mogle resetirati‘
--  KPU Belum Pastikan Sanksi untuk PPLN Taipei
--  Ovo je malo tko očekivao: bivši hajdukovac igrao je za Vatrene, a sada je na meti druge reprezentacije
--  9,9M€ para 8 zonas desfavorecidas de 5 municipios de Córdoba
--  Presidente Biden firma ley para perseguir penalmente a personajes extranjeros corruptos
--  Formel 1: Nicht der achte WM-Titel! DAS hat für Hamilton jetzt oberste Priorität
--  Tres restaurantes en Bogotá perfectos para amantes del anime
--  Calciomercato Milan: il Fenerbahce studia il piano B a Krunic, lo scenario
--  Algunos funcionarios no han cumplido con las exigencias de la presidenta: Augusto Aguilar
--  ONLINE: Sparta opět prohrává, Boleslav válí. Litvínov udeřil po hradecké hrubce
--  ONLINE: Sparta opět prohrává, Boleslav válí. Litvínov udeřil po hradecké hrubce
--  AXA : Document AMF CP. 2023DD944010
--  VOGO : Document AMF CP. 2023DD944012
--  Mersen : Document AMF CP. 2023DD943968
--  AXA : Document AMF CP. 2023DD944011
--  Tikehau Capital : Document AMF CP. 2023DD943959
--  Ly hôn dẫn con về nhà ngoại ở, nửa đêm nghe mẹ gọi điện thoại tôi vội dọn ra ngoài
--  Callao: hermano menor de cantante de Zaperoko fue asesinado
--  Раскрыта личность новой возлюбленной Гуфа
--  Eis os piores ports PC de 2023
--  Se cumplen diez años del accidente de esquí de Michael Schumacher
--  Finanzierungsproblem für Flugtaxen: Wenn Visionen am Boden bleiben
--  Gemuruh Jemaat Kristiani Teriak "Prabowo" hingga Rebutan Selfie
--  MinComercio, Superindustria y Policía refuerzan medidas de seguridad para los turistas
--  Drohen Sonntag neue Silvesterkrawalle? Die “Chancen” stehen günstig…
--  سلس البول.. علامة تحذيرية تشير إلى إصابتك بهذا المرض
--  "התחזית ל-2024: ווס אנסלד ג'וניור יפוטר מוושינגטון"
--  La ONU denuncia graves abusos de soldados y colonos israelíes en Cisjordania
--  Charleroi: des conseils pour stationner malin et éviter les blocages des Fêtes et des soldes, dans le centre-ville
--  В лазарете Руха остался только один футболист
--  Plantean reducir plazo de atención de reclamos en el sector público
--  Explota pipa de gas y mueren 40 personas en Liberia | VIDEO
--  4 أعراض خطيرة لأمراض القلب يخلط البعض بينها وبين الأنفلونزا
--  Türkei: Er brach einem Schiri das Jochbein – dann wird er gefeiert
--  ¿Cómo va Adrián González en la boleta del Salón de la Fama?
--  Truk Tabrak Mundur 3 Kendaraan di Ciawi Bogor gara-gara Rem Rusak
--  Rokotusten antamiseen tulossa suuri muutos
--  Учительница и родители четвероклассника из «Южного парка» стали снимать порно
--  ¡Escándalo en África!: Camerún convoca a un joven de 17 años... pero no los aparenta
--  Man i trolig självmordspakt anklagas för dråp
--  TFF, PFDK sevklerini açıkladı! Derbinin faturası ağır oldu...
--  Tegeltija najavio povlačenje iz Borca: Svjestan sam ograničenja...
+-  종 보존 챌린지, 전 세계인의 관심 집중
+-  Saving Species Challenge Attracts Global Interest
+-  המשטרה תחקור את הרב שהסית נגד רופאים ערבים: "רוצחים בבי"ח יותר מהחמאס"
+-  Γκονζάλεθ για Σίκμα: «Άφησε το δικό του στίγμα στην ομάδα μας»
+-  Μπέτις: Ανανέωσε με Ίσκο μέχρι το 2027
+-  Rusya'dan ABD ve İsrail açıklaması!
+-  Tatar: KKTC bağımsız bir Türk devleti olarak Türklüğün kalesidir
+-  PFDK kararları açıklandı
+-  ავტოსაგზაო შემთხვევას აბაშაში ადამიანის სიცოცხლე ემსხვერპლა
+-  Tomašević potpisao prvi profesionalni ugovor, ostaje u Budućnosti do 2027.
+-  KADA JE VIDELA NOVAKA, ODMAH MU JE KRENULA U ZAGRLJAJ Đokovića sačekalo iznenađenje na treningu u Australiji, pojavila se ona i oduševila ga (VIDEO)
+-  היאוש נעשה יותר נוח: אייל גולן ודניאל גרינברג טסים לחופשה
+-  Nuk duron më, Alba kërkon të largohet nga shtëpia e Big Brother VIP Kosova
+-  Cinq morts à Meaux : mis en examen, le père est placé en détention provisoire
+-  Бившият председател на Столичния общински съвет Георги Георгиев: Така София не може да се управлява - Труд
+-  LUKSUZ Janjetina u restoranima 60 do 65 maraka, udvostrucila se i cijena svinjetine
+-  FGTS pode ser liberado em casos de aposentadorias
+-  Zwischenzeugnis für die Werkself: Diese zwei Spieler haben die Bestnoten bei Bayer 04
+-  Saudiseura pommittaa Inter-tähteä kovalla tarjouksella - täysin turhaan
+-  Bodin Tomašević u Budućnosti do 2027.
+-  Saúde: SNS24 reforça resposta na Linha para fazer face a pico de procura
+-  Un estudio en el que colabora la USC revela que la calidad del aire en Santiago está en los límites de la OMS
+-  Hladina Dunaja v centre Budapešti sa zvýšila
+-  ఘనంగా కాంగ్రెస్‌ పార్టీ వ్యవస్థాపక దినోత్సవం
+-  Og vinderen af det danske aktiemarked 2023 er … ikke den, du tror
+-  Og vinderen af det danske aktiemarked 2023 er … ikke den, du tror
+-  Son dakika: MHP'nin belediye başkan adayı çıkaracağı il belli oldu! Cumhur İttifakı'ndan Bartın kararı
+-  Lima Bintang Korea Selatan yang Meninggal Dunia di Tahun 2023
+-  Hemocentro de Mato Grosso está com estoque crítico e precisa de doações
+-  اعتداء على قوات اليونيفيل جنوب لبنان
+-  #FantasyDK-differentials: Hvordan adskiller du dig?
+-  Chef francês com estrela Michelin deixa restaurante do Hôtel du Palais após denúncia de praxe humilhante
+-  La cagnotte lancée pour soutenir un éleveur condamné dans l'Oise atteint plus de 25 000 €
+-  Slováci nastúpia proti Srbsku v Kraljeve, spoznali aj hrací povrch
+-  Water bijna zover het oog reikt, maar bij waterschap De Dommel is nog niemand ongerust
+-  Gesundheitssystem: Ärztestreik: Was verdienen die Mediziner eigentlich?
+-  O ja, dat is ook nog gebeurd in de Meierij: tien fotomomenten uit 2023
+-  Gesundheitssystem: Ärztestreik: Was verdienen die Mediziner eigentlich?
+-  Franck Ropers est prêt pour le championnat du monde de tractions et de pompes lesté d'un poids
+-  لقاء تنسيقي بعدن بين وزارة التربية والتعليم والجهاز المركزي للإحصاء
+-  Inter, Inzaghi: “Contro il Genoa avrò qualche assenza, ma le turnazioni devono essere una soluzione”
+-  చెత్త మీద పన్ను వేసిన సీఎం జగన ఒక్కడే..!
+-  Nach 85 Jahren im Familienbesitz: Friseursalon mit Lotto-Annahmestelle in Damm schließt
+-  Stilblüten: Von Dackelzügen und spukenden Alpakas
+-  Wertheims ältestes Gasthaus "Goldener Adler" ist verkauft
+-  Ab 2024 grüner Strom für Wertheim
+-  Rarität: Wie sch­me­cken Wei­ne aus den Jahr­gän­gen 1989 bis 2005? - Video-Story
+-  Ulrich Reuter aus Kleinostheim wird deutscher Sparkassen-Präsident - Wichtiger Lobbyist
+-  Нигматуллин: не люблю тренажёрный зал, предпочитаю «потягушечки», как в йоге и пилатесе
+-  ¿Es verdad que Metallica fue la primera banda de metal en tocar en Arabia Saudita?
