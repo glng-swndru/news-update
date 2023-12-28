@@ -1,51 +1,51 @@
 # Latest News
--  حصيلة جديدة للشهداء والمصابين في غزة
--  الفصائل الفلسطينية تهنئ محتجزا إسرائيليا بثلاث لغات.. ما القصة؟
--  Basket League: Η τριποντάρα-μαχαιριά του Θόρντον στην κορυφή του TOP 10 (vid)
--  Franz Beckenbauer krank: "Ein ständiges Auf und Ab!" Bruder Walter gibt trauriges Update
--  Belehalt sérüléseibe a görög rendőr, akit szurkolók sebesítettek meg a rangadón
--  U.S. Treasury yields: investors consider economic outlook
--  TL mevduatta stopaj indirimi süresi uzatıldı
--  Boks Federasyonu'ndan istifa eden yöneticilerden ortak açıklama
--  Shiffrin setzt sich im Lienz-RTL durch – Scheib Fünfte
--  HVG-rangsor 2024: a legjobb művészetközvetítési szakok listája
--  الوحدات يرفع شكوى حول عدم قانونية مشاركة لاعب العقبة
--  Fenerbahçe Başkanı Koç: Başarılı olup kupayı alıp gelmek istiyoruz
--  La reforestación del cerro de San Miguel Alto finalizará antes de verano
--  Politiet: Slagsmål i sentrum
--  Highland pony foals arrive on Rum as rare breed settle in at National Reserve
--  Pošta Srbije predstavila marke povodom 100 godina rođenja poljske pesnikinje
--  Hanau: Frau erhält Handtasche zurück
--  Aschaffenburg: Unfall mit mehreren Schwerverletzten
--  Mainschifffahrts-Nachrichten: Wörther Förderverein veröffentlicht 39. Ausgabe
--  İstanbul'dan kaçanlar gözünü o şehirlere dikiyor! 'Oradan arsa alan yaşadı'
--  Šćekić na čelu Istorijskog instituta
--  Jokowi Temui Warga di Manado, Pastikan Penyaluran BLT El Nino Lancar
--  Dilanda Cedera Pemain, Tottenham Hotspur Berharap Bisa Rekrut Pemain di Awal Bursa Transfer Januari
--  IPCA-15 acelera em dezembro mas dado anual sinaliza inflação dentro da meta
--  El Ayuntamiento de Guía y Aqualia presentan la nueva flota de vehículos del servicio municipal de aguas
--  IHC, Adani in alliance to tap India's $175 bn digital economy
--  Discovery unveils promising anticancer drug targeting KRAS protein
--  Ελληνόκτητο φορτηγό πλοίο χτυπήθηκε από νάρκη στη Μαύρη Θάλασσα - Δύο τραυματίες
--  ARK prodao ostatak dionica GBTC-a, ulaže 100 milijuna dolara u futures bitcoin ETF
--  Stefan Kraft: Nur von höheren Mächten zu schlagen
--  Po nëse jeni pa punë, si duhet të kaloni ditën?
--  Tito Villa reveló el refuerzo que habría querido para Cruz Azul: Juan Ignacio Dinenno
--  La police des Pays-Bas met la main sur un étrange butin
--  SGK Uzmanı Özgür Erdursun Tane Tane Anlattı! 17 bin 2 TL'lik Asgari Ücret İşte Böyle Eriyecek, Vatandaşın Cebi Cayır Cayır...
--  Auch in Hessen viele Arztpraxen aus Protest geschlossen
--  Suzanne Schulting laat EK shorttrack schieten
--  Ireland managerial candidate talks up job that’s been made appealing by ‘really brave’ Stephen Kenny
--  Franken wertet sich zu Euro und Dollar weiter auf
--  2024 Malaysian Open eyes qualifier status for prestigious British Open
--  Lahdentiellä kolisi – tie toistaiseksi poikki, yksi kaista käytössä
--  Telangana inter exams 2024: తెలంగాణలో ఇంటర్ పరీక్షల షెడ్యూల్ రిలీజ్..తేదీలు ఇవే
--  The Trick To The Spanish New Year Grape Challenge
--  Liveblog zum Krieg in Nahost: UN: Israelische Offensive löst erneut Massenflucht im Gazastreifen aus
--  Zdravko Vulin, organizator koncerta Šerbedžije: „Očigledno i nažalost ljudska glupost je nemerljiva“
--  „Welt-Mehrheit“ auf Atomschlag vorbereiten: „Wissenschaftliche“ Analyse gibt Putin klaren Ratschlag
--  „Welt-Mehrheit“ auf Atomschlag vorbereiten: „Wissenschaftliche“ Analyse gibt Putin klaren Ratschlag
--  Mona Singh: I have experienced this high exactly after 20 years
--  Стана ли мода да се посяга на храмове в Бургаско?
--  Autos und Feuerwerk: Sicher parken und Cabrios schützen
--  PRVOSTUPANJSKA Vlasniku hotela Jablanica 10 mjeseci zatvora za premlaćivanje radnice
+-  Mamata Banerjee Once Demonstrated A Dharna For This Cop, He Will Now Lead West Bengal Police As DGP. Know Full Story Here
+-  “Göygöl Şərab Zavodu” ASC məlumat yaydı
+-  Tolu Arokodare Celebrates First Ever Brace For Genk
+-  Апсење во Прилеп: Фиктивно вработувале бремени жени и родилки за да украдат над половина милион евра од Фондот за здравство
+-  Top space stocks to buy as per global fund managers
+-  בשעה טובה: כוכבת האח הגדול בהריון ראשון ומרגש
+-  המשחק בין פנרבחצ'ה למכבי תל לאביב יועבר מאיסטנבול לפוניבז'
+-  "פספסתי את מכבי תל אביב ומכבי חיפה, יכלה להיות לי קריירה מבטיחה"
+-  Veja as previsões do tarot para janeiro de 2024
+-  Metaratings: клубы РПЛ интересуются аргентинским нападающим Мартинесом
+-  Dom naroda nije podržao izvještaj o provođenju zakona iz nadležnosti SIP-a
+-  YEAR IN REVIEW: August 2023
+-  New tax rules announced for some UK households who earn over £75,000
+-  Bihar Politics : JDU में अनबन पर तेजस्वी यादव का बयान,’कितनी बार सफाई दी जाए’
+-  Sprema se prodaja kompanije Aviogeneks, imovinu čini i avion Boing 737
+-  Muerte de abuelo y nieta provoca preocupación en Veraguas
+-  Benkos Imperium taumelt - Zukunft von Karstadt und Kaufhof ungewiss. Hat das Folgen für Nürnberg?
+-  Canadians will soon see commercials on Amazon Prime Video
+-  المجلس الصحي يحذر الحوامل المصابين بالسكري من هذا الأمر
+-  خطوة بخطوة.. طريقة التقديم على النقل الخارجي للمعلمين
+-  براتب 6 آلاف ريال.. وظائف في كافة المؤهلات للعمل بالرياض
+-  The first Hong Kong Art Exhibition in Sydney of 2024 - Hong Kong Pop Art Exhibition
+-  Hankyung.com introduces: DeepSales Unveils Groundbreaking AI Update to Transform B2B Sales Intelligence
+-  Hankyung.com introduces: DroMii to Exhibit at CES 2024, Unveiling CfSM and AfGG solution based on DaaS (Drones as a Service)
+-  Heranova Lifesciences Debuts with $13.5 Million Seed and Seed+ Round Funding to Offer Integrated Clinical Solutions to Women's Health
+-  Trung Quốc trừng phạt 1 công ty và 2 nhà nghiên cứu Hoa Kỳ vì báo cáo tình hình nhân quyền ở Tân Cương
+-  Мощный ветер вызвал пожар в российском регионе
+-  La San Silvestre, a buen ritmo
+-  Pisces 29 December 2023 Horoscope Today, Rashifal, Lucky Colour, Auspicious Time, Astrological Prediction
+-  СМИ: украинский переселенец получил три года колонии за отказ служить в ВСУ
+-  OnePlus 12R display info gets officially confirmed
+-  Volkan Demirel'den istifa açıklaması
+-  Spadek produkcji samochodów obniżył produkcję przemysłową Japonii
+-  JD Cymru Premier: Boxing Day blues for Aberystwyth
+-  AKTUÁLNE V okrese Martin zaútočil na človeka medveď. Muž má aj hryzné poranenia
+-  Verdict du tribunal de Dakar : les avocats de Sonko n’ont pas été notifiés du recours de l’Agent judiciaire de l’État
+-  "Dialogue de la dernière chance": Alioune TINE appelle à anticiper les crises politiques
+-  First Murder In Antarctic May Have Been Over A Game Of Chess
+-  Известный индийский актер скончался от коронавируса
+-  Srbijanski trener iz sigurnosnih razloga odbio vratiti se u Izrael
+-  Ski hills optimistic despite warmer temperatures
+-  Mercato - PSG : Paris en grand danger avec ce transfert ?
+-  В Приморье спасли кота с переломанным хвостом и травмой лапы
+-  Врач Данилов рассказал о самых частых травмах в Москве в Новый год
+-  'Fighting Millwall as Spurs hooligan was mad – people threw spears and bloke was impaled'
+-  Јанушев до Спасовски: Знаевте дека поради нестручност и нефикасна работа дојде до трагичната ликвидација на двајца сограѓани- зошто лажевте?
+-  Πρόστιμο 30.000 € στην Παρτιζάν, αλλά και χωρίς φιλάθλους με Ερυθρό Αστέρα
+-  Kaldırımda hareketsiz bulunan şahsın öldürüldüğü ortaya çıktı
+-  Schock für ÖSV-Star: Schwarz nach Sturz auf dem Weg ins Krankenhaus nach Innsbruck
+-  Varela logra un millón de euros da Deputación para ampliar a piscina municipal
