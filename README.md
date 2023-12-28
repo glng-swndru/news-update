@@ -1,51 +1,51 @@
 # Latest News
--  Yazıcı: Vatandaşlarımızı dinlemek en önemli önceliğimiz
--  "445 emniyet mensubu açığa alındı"... Bakan Yerlikaya: FETÖ ile iltisaklı oldukları tespit edildi
--  Aile cüzdanı değerli kağıt bedeli ne kadar? 2024 evlilik cüzdanı kaç TL?
--  Саладуха: Бойкот Олімпіади - крайній засіб
--  Detran divulga calendário de pagamento do Licenciamento do próximo ano em Mato Grosso
--  Mesto idealno za sve bolesti: Na padinama ove planine nalazi se najviša banja u Srbiji
--  Fenerbahçe-Galatasaray derbisi biletlerinde son durum ne?
--  Emniyet Genel Müdürlüğü'nde FETÖ operasyonu: 445 kişi açığa alındı
--  تسليم (330) الف راتب معين متفرغ ..وزارة العمل والشؤون الاجتماعية: (4) ملايين معاق في العراق(فيديو)
--  السوداني: الحكومة العراقية ماضية في انهاء وجود التحالف الدولي
--  رئيس وزراء اسبانيا: ملتزمون بالحفاظ على وحدة وسيادة وأمن واستقرار العراق
--  العراق يوقف العمل بالمستمسكات القديمة
--  العراق يرحب بالشركات الإيرانية للعمل في تنفيذ المشاريع بقطاع النفط والطاقة
--  الحكم على أكثر من 7 آلاف مدان بالمخدرات خلال العام 2023 في العراق
--  رغم تعهد خمس حكومات بتنفيذه.. هل يرى "مترو بغداد" النور يوما؟
--  "الإطار" ينوي "تجريف المحافظين".. وأعلاهم أصواتا "ليس في مأمن"
--  عودة الحكومات المحلية.. ما مصير الصلاحيات المسلوبة؟
--  انخفاض الدولار.. "مؤقت" أم مستمر؟
--  قانون المحكمة الاتحادية.. السوداني يعيده للواجهة والبرلمان أمام اختبار صعب
--  حرب الفصائل وواشنطن تصل المدن.. وبغداد "محرجة"
--  انهيار كبير في سعر الذهب اليوم والجرام يفقد 120 جنيهًا خلال التعاملات
--  من بينها سكة نجف - كربلاء.. السوداني يدعو الشركات الإسبانية للمشاركة بتأهيل مطار بغداد و15 مدينة سكنية
--  "عطسة".. تهدد حياة رجل وتتسبب في تمزق القصبة الهوائية لهذا السبب
--  Tesla faces scrutiny over robo-attack incident at its Giga Texas factory, Musk disputes claims
--  Hot Mic Live: A new starter for the Commanders and Bison women's basketball begins summit play
--  Посол Японии прокомментировал передачу США ракет для ЗРК Patriot
--  El Gobierno pide a Feijóo y UPN que abandonen la política del "señalamiento" e "insulto"
--  AM/NS India installs solar powered streetlights in Nuagarh Panchayat of Paradeep
--  Obaveštenje za sve korisnike prevoza: Ovo su izmene na linijama tokom Nove godine
--  Mahindra XUV400 EV Likely To Get New Pro Variants Soon; Features Leaked
--  Adorni: “El que siga necesitando el subsidio lo va a seguir teniendo”
--  Tak Perlu Panik Anak Kejang, Simak Saran Dokter
--  В Петербурге объявили желтый уровень погодной опасности
--  Ruská invázia pripravila o život už viac ako 400 ukrajinských športovcov
--  По Нова година треба да почне со работа дневната болница за онколошки пациенти во ГОБ „8 Септември“
--  Former India defender Prabir Majumdar no more
--  Danny Masterson sent to California prison to serve sentence for rape convictions, mug shot released
--  Preminuo Dik Marti
--  Odisha: 2,392 MBBS doctors, 81 dental surgeons inducted into State medical services
--  Otu: We’re Reviving Tourism In C’River Through Carnival
--  "Massiver Personaleinsatz": Einsatzkräfte wappnen sich für Silvester-Randalen
--  PM Modi Taking Feedback: पीएम मोदी सीधे जनता से पूछ रहे हैं सवाल, अपने सांसद के कामकाज से कितना संतुष्ट हैं आप?
--  При обстреле Ясиноватой пострадала мирная жительница
--  Иван Станев ще бъде на линия за двубоя с Дея спорт 8 дни след операция от херния
--  Jal Jeevan Mission: 15 contractors awarded work blacklisted, 387 fined in Nanded
--  WATCH: Arbaaz Khan croons `tere mast mast do nain` at his wedding with Sshura
--  Ciolacu răspunde criticilor privind aderarea parțială la Schengen: Acesta este primul rezultat concret în 13 ani / Mulţi şi-au dat cu părerea și au realizat foarte puţin
--  &quot;UČINIO JE NEŠTO U ODBRANU MUŠKOG RODA&quot; Usijale se društvene mreže zbog onoga što je mladoženja uradio na dan venčanja (VIDEO)
--  STRAUSS: Prozessmanager / Projektmanager (m/w/d)
--  CAN 2023 : Être favoris, « un atout » selon Regragui
+-  Osun ALGON Secretary, Afolabi hails association chair, Awotunde on birthday
+-  В Подмосковье после капремонта открылось ещё шесть медицинских учреждений
+-  Limit na dopłaty do "Bezpiecznego kredytu" wyczerpany, resort pracuje nad nową formą wsparcia
+-  USA: wskaźnik podpisanych umów kupna domów bez zmian w listopadzie
+-  Švedska lider u Evropi po obnovljivim izvorima energije
+-  PVCC and Cyprus Red Cross sign pact to boost volunteerism
+-  Кабмин ФРГ: Германия верит, что США продолжат поддерживать Украину
+-  Skippa gojibären – misstänkt salmonella
+-  New England Patriots links 12/28/23 - How Bailey Zappe jump-started the offense
+-  Shedding of blood in Plateau must stop – Mutfwang reveals message to Tinubu
+-  Mehmet Büyükekşi: Fair-Play içinde çok güzel bir maç olmasını istiyoruz
+-  Zbog antiratne poezije Rusi osuđeni na višegodišnje zatvorske kazne
+-  Soccer-Napoli go into Monza game with injury and suspension problems
+-  Las 4 diferencias entre gripe y covid: del tiempo de contagio a la gravedad
+-  אחרי 15 שנים: בזק נפרדת מגידי גוב לטובת עדי אשכנזי
+-  South Africa Beat India: पहिल्या कसोटीत भारताचा एक डाव आणि 32 धावांनी पराभव, मालिकेत दक्षिण आफ्रिकेने घेतली 1-0 अशी अभेद्य आघाडी
+-  Stock market today: Stocks edge higher on Wall Street in muted trading
+-  Μπάγερν: Δέκατο σερί sold out για τους Βαυαρούς
+-  پشاور ہائیکورٹ کا فیصلہ الیکشن کمیشن پر حملے کے مترادف ،ترازو کو لاڈلے کی طرف جھکایا جارہا ہے :شہباز شریف
+-  تغريم الفنان محمد رمضان 500 ألف جنيه في دعوى سب عمرو أديب
+-  EPL: ‘You can’t sit there’ – Saunders advises Arsenal star to leave club in January
+-  Scotrail defends safety of train involved in Broughty Ferry crash after union criticism
+-  Αυτά τα Χριστούγεννα η Barbour μοίρασε δώρα με το Land Rover Defender της Spanos Luxury Cars
+-  Bottas Perezről: Nem vághatsz úgy neki egy versenynek, hogy nem hiszel a győzelemben!
+-  Θεσσαλονίκη: Πραγματικότητα το πρώτο πάρκο για σκύλους με ανακυκλώσιμα υλικά
+-  O que é erótico para um pode ser o grande horror de outro, afirma diretora de 'Saltburn'
+-  Storm Gerrit: Cupar shop owner fears he may never reopen flood-hit store
+-  HOW TO SPOOF LOCATION ON iOS 17? 2024 NEW METHOD! [WITHOUT PC]
+-  Üretici kadınlar, satış teknikleri eğitimi aldı
+-  Leitungswechsel im Seniorenpark Hiddingsel
+-  Sektor na papiru, ljekova ni na vidiku: Ne nazire se datum početka...
+-  RTVS reaguje na vyjadrenia Danka o parazitoch, ktorí berú peniaze: Opätovne a účelovo podsúva klamlivé informácie
+-  Pakistan Corona Cases: पाकिस्तानच्या पंजाब प्रांतात कोरोना रुग्णांमध्ये वाढ; सरकारने घेतला Covid-19 चाचण्या पुन्हा सुरु करण्याचा निर्णय
+-  Stock market today: Stocks edge higher on Wall Street in muted trading
+-  Stock market today: Stocks edge higher on Wall Street in muted trading
+-  Stock market today: Stocks edge higher on Wall Street in muted trading
+-  Stock market today: Stocks edge higher on Wall Street in muted trading
+-  Arbeitsmarkt: Bürgergeld: Heil sagt „Totalverweigerern“ den Kampf an
+-  Auto kapot door wateroverlast in Heesch: is de gemeente aansprakelijk?
+-  Congreso dispone gasto de S/60.000 en tarjetas de consumo adicionales a las de Navidad
+-  कांग्रेस ने यूं ही नहीं की नागपुर में मेगा रैली, 2024 के चुनाव के लिए छिपे हैं सात बड़े कारण और संदेश
+-  Top management blunders of the year, from the cringe-worthy to downright bizarre
+-  Fresh respite for defected Rivers lawmakers as court extends interim order against INEC, PDP
+-  Gypsy Rose Blanchard, Abuse Victim Convicted in Mother’s Murder, Released From Prison
+-  พบเห็นสัตว์มีพิษ โทร.1677 ร่วมด้วยช่วยกัน พร้อมประสานช่วยเหลือ
+-  “ეს მოგიტანთ წარმატებას” _ როგორ უნდა აღნიშნოთ 2024 წლის შემობრძანება ზოდიაქოს ნიშნის მიხედვით
+-  В Молдавии могут совместить референдум о вступлении в ЕС с выборами президента
+-  Дунав излезе от бреговете си в Будапеща - Труд
+-  El sencillo truco casero para pegar las suelas de nuestras zapatillas sin gastar tiempo ni dinero
+-  MCD बैठक में जमकर हंगामा, मेयर ने BJP के 4 पार्षदों को 15 दिनों के लिए किया सस्पेंड
