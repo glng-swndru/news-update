@@ -1,11 +1,51 @@
 # Latest News
--  Life | Smartphone maker Xiaomi unveils first electric car, plans to become China's top automaker
--  Captain Vijayakanth death: Trisha Krishnan, Vikram pay tribute to the actor
--  CHATGPT eğitimin çıkmaz sokağı mı?
--  ABD'den Ukrayna'ya 24 milyar dolar askeri yardım
--  Panama bandıralı gemi Karadeniz'de Rus mayınına çarptı
--  Güvenlik Uzmanı Mete Yarar açıkladı: Keşfedilen doğal gaz ve petrolü korumak bununla mümkün
--  제주서 파룬궁 집회 참가자 폭행한 중국인, 벌금형 선고 후 풀려나
--  Avustralya'da köpek balığı saldırısı: Ağır yaralanan genç hayatını kaybetti
--  Italienischer Spitzenklub buhlt um Stuttgart-Star Guirassy
--  تعديلات على أسس وقواعد الإقراض في مؤسسة الإقراض الزراعي
+-  حصيلة جديدة للشهداء والمصابين في غزة
+-  الفصائل الفلسطينية تهنئ محتجزا إسرائيليا بثلاث لغات.. ما القصة؟
+-  Basket League: Η τριποντάρα-μαχαιριά του Θόρντον στην κορυφή του TOP 10 (vid)
+-  Franz Beckenbauer krank: "Ein ständiges Auf und Ab!" Bruder Walter gibt trauriges Update
+-  Belehalt sérüléseibe a görög rendőr, akit szurkolók sebesítettek meg a rangadón
+-  U.S. Treasury yields: investors consider economic outlook
+-  TL mevduatta stopaj indirimi süresi uzatıldı
+-  Boks Federasyonu'ndan istifa eden yöneticilerden ortak açıklama
+-  Shiffrin setzt sich im Lienz-RTL durch – Scheib Fünfte
+-  HVG-rangsor 2024: a legjobb művészetközvetítési szakok listája
+-  الوحدات يرفع شكوى حول عدم قانونية مشاركة لاعب العقبة
+-  Fenerbahçe Başkanı Koç: Başarılı olup kupayı alıp gelmek istiyoruz
+-  La reforestación del cerro de San Miguel Alto finalizará antes de verano
+-  Politiet: Slagsmål i sentrum
+-  Highland pony foals arrive on Rum as rare breed settle in at National Reserve
+-  Pošta Srbije predstavila marke povodom 100 godina rođenja poljske pesnikinje
+-  Hanau: Frau erhält Handtasche zurück
+-  Aschaffenburg: Unfall mit mehreren Schwerverletzten
+-  Mainschifffahrts-Nachrichten: Wörther Förderverein veröffentlicht 39. Ausgabe
+-  İstanbul'dan kaçanlar gözünü o şehirlere dikiyor! 'Oradan arsa alan yaşadı'
+-  Šćekić na čelu Istorijskog instituta
+-  Jokowi Temui Warga di Manado, Pastikan Penyaluran BLT El Nino Lancar
+-  Dilanda Cedera Pemain, Tottenham Hotspur Berharap Bisa Rekrut Pemain di Awal Bursa Transfer Januari
+-  IPCA-15 acelera em dezembro mas dado anual sinaliza inflação dentro da meta
+-  El Ayuntamiento de Guía y Aqualia presentan la nueva flota de vehículos del servicio municipal de aguas
+-  IHC, Adani in alliance to tap India's $175 bn digital economy
+-  Discovery unveils promising anticancer drug targeting KRAS protein
+-  Ελληνόκτητο φορτηγό πλοίο χτυπήθηκε από νάρκη στη Μαύρη Θάλασσα - Δύο τραυματίες
+-  ARK prodao ostatak dionica GBTC-a, ulaže 100 milijuna dolara u futures bitcoin ETF
+-  Stefan Kraft: Nur von höheren Mächten zu schlagen
+-  Po nëse jeni pa punë, si duhet të kaloni ditën?
+-  Tito Villa reveló el refuerzo que habría querido para Cruz Azul: Juan Ignacio Dinenno
+-  La police des Pays-Bas met la main sur un étrange butin
+-  SGK Uzmanı Özgür Erdursun Tane Tane Anlattı! 17 bin 2 TL'lik Asgari Ücret İşte Böyle Eriyecek, Vatandaşın Cebi Cayır Cayır...
+-  Auch in Hessen viele Arztpraxen aus Protest geschlossen
+-  Suzanne Schulting laat EK shorttrack schieten
+-  Ireland managerial candidate talks up job that’s been made appealing by ‘really brave’ Stephen Kenny
+-  Franken wertet sich zu Euro und Dollar weiter auf
+-  2024 Malaysian Open eyes qualifier status for prestigious British Open
+-  Lahdentiellä kolisi – tie toistaiseksi poikki, yksi kaista käytössä
+-  Telangana inter exams 2024: తెలంగాణలో ఇంటర్ పరీక్షల షెడ్యూల్ రిలీజ్..తేదీలు ఇవే
+-  The Trick To The Spanish New Year Grape Challenge
+-  Liveblog zum Krieg in Nahost: UN: Israelische Offensive löst erneut Massenflucht im Gazastreifen aus
+-  Zdravko Vulin, organizator koncerta Šerbedžije: „Očigledno i nažalost ljudska glupost je nemerljiva“
+-  „Welt-Mehrheit“ auf Atomschlag vorbereiten: „Wissenschaftliche“ Analyse gibt Putin klaren Ratschlag
+-  „Welt-Mehrheit“ auf Atomschlag vorbereiten: „Wissenschaftliche“ Analyse gibt Putin klaren Ratschlag
+-  Mona Singh: I have experienced this high exactly after 20 years
+-  Стана ли мода да се посяга на храмове в Бургаско?
+-  Autos und Feuerwerk: Sicher parken und Cabrios schützen
+-  PRVOSTUPANJSKA Vlasniku hotela Jablanica 10 mjeseci zatvora za premlaćivanje radnice
