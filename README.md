@@ -1,51 +1,51 @@
 # Latest News
+-  Μισθοί: Πόσο θα αυξηθούν το 2024 και με ποιο τρόπο - Νέο τοπίο με το «ξεπάγωμα» των τριετιών
+-  El reequilibrio del índice Nifty 50 afecta a la ponderación de los valores, HDFC y Bajaj Finance suben
+-  “แม่น้ำปัตตานี” วิกฤติ รับน้ำก่อนลงทะเล เข้าท่วมบ้านนับร้อยหลัง-ย่านการค้าในเมือง
+-  นายกฯ มอบคําขวัญวันเด็ก ปี 2567 มองโลกกว้าง คิดสร้างสรรค์ สร้างประชาธิปไตย
+-  عاجل.. "المرور" يوضح مدة الفحص الفني الدوري للمركبات بمختلف أنواعها
+-  조국, 이선균 사망에 "남일 아냐"…與 "자기변명 아이템 이용" 맹폭
+-  폴란드 총리 "K-방산 거래에 韓 금융지원 없었다"
+-  Partido Republicano apela expulsión de Trump de primarias en Colorado
+-  Cruz Azul y su TEMIBLE delantera encabezada por Alexis Vega para el Clausura 2024
+-  Partiet överklagar att Trump portas från valet
+-  Captain Vijayakanth passes away at 71 in Chennai after prolonged illness
+-  “Una reunión muy productiva”: Mayorkas tras encuentro con AMLO
+-  Fyndet i leran – ett krucifix från 1100-talet
+-  Тръмп: Европа трябва да помага на Украйна наравно със САЩ
+-  Toño Mauri recibe fuerte tratamiento por bacteria en los pulmones
+-  Morena respalda acuerdos de AMLO con funcionarios de EU
+-  7 Stocks to Buy if the Fed Goes Through With Interest Rate Cuts
+-  Trump Ballot Ban Appealed To U.S. Supreme Court By Colorado Republican Party
+-  NIP Esports Club Hosts Gaming & Esports Event for Women and Non-binary People in Stockholm
+-  Rambus Advances Data Center Server Performance with Gen4 DDR5 RCD
+-  Nglanggeran: Indonesia's hidden gem where sustainability meets hospitality
+-  Reservas internacionales de Banxico cierran la semana en más de 211 mil mdd
+-  Manitobans embracing winter activities despite mild temperatures
+-  Gempa Swarm Bogor-Sukabumi Tercatat 122 Kali, BMKG: Semakin Berdampak ke Bangunan
+-  कास्कीमा पाँच सहकारीको पौने तीन अर्ब हिनामिना
+-  12 killed as bus catches fire after collision with dumper in MP`s Guna
+-  Maharashtra: Five injured as taxi rams into parked school bus in Latur district
+-  Vicky, Katrina Kaif`s late Christmas celebration comes with a Punjabi twist
+-  Upacara Pemakaman Lee Sun Kyun Digelar 29 Desember 2023 Besok, Jeon Hye Jin Sang Istri Jadi Chief Mourner
+-  Baku Electronics-də il fürsətlərlə yenilənir!
+-  МВД Таджикистана получило автомобили с детекторами по обнаружению радиоактивных материалов
+-  বহুনির্বাচনি প্রশ্ন (৪১-৫০) : অধ্যায় ১ | জীববিজ্ঞান - দশম শ্রেণি
+-  Tütün ürünlerinde ÖTV düzenlemesi
+-  ¡Qué hermoso! Este es uno de los últimos atardeceres del Popocatépetl del año (FOTO)
+-  Israels Botschafter warnt vor Hamas-Angriffen in Deutschland
+-  Israels Botschafter warnt vor Hamas-Angriffen in Deutschland
+-  คมนาคม เร่งแก้ตั๋วเครื่องบินแพง ชี้ยังอยู่ในเพดานที่กำหนด
+-  Bu köyde tüm fiyatlar tavan yapacak! En güzeli seçildi sırada en pahalısı olmakta! Evi olan yaşadı
+-  Prabowo Bilang Kunci Indonesia Maju adalah Elite Rukun dan Bersatu
+-  Vijay Kanth: డీఎండీకే అధినేత, ప్రముఖ నటుడు విజయ్ కాంత్ మృతి
 -  Brave Grade 4 Student Lives Alone in Hut After Parents Part Ways
+-  ‘First few steps’ taken to repair Australia-China relations but still a ‘long way to go’
+-  [포토] 이재명·정세균 오찬회동
+-  賠償確定、極めて遺憾と日立造船
+-  Parasite star Lee Sun-kyun ‘dropped from string of projects weeks before suspected suicide’
+-  Путин иска "ярко и тържествено" отпразнуване на 80-годишнината от Победата
 -  เช็กเลย! หยุดยาว 4 วัน "โอนเงิน-ส่งของ" วันไหนได้บ้าง
+-  СМИ: в Британии выставили на продажу "любимый внедорожник Путина"
 -  [인사] HDC그룹
 -  인천경제청, 청라의료복합타운 토지매매계약 체결
--  순천시, 권익위 ‘청렴도 평가 2등급’ 쾌거
--  신안군, ‘전남도 감염병 예방관리사업 평가’ 최우수기관 선정
--  성남소방서, '화재피해 주민' 소화기, 생필품 전달
--  진도군, 하반기 지방물가 안정관리 추진실적 평가 ‘가등급’
--  성남중원서, 자살시도한 50대 남성 차량 유리창 깨고 구조
--  영압읍, 주차장에 앱과 연동한 스마트 주차시설 설치
--  서울 지하철 '강동·광명사거리' 등 4개 역 엘리베이터 운영 개시
--  '일제 강제징용' 2차 소송 피해자 최종 승소
--  올해 주택연금 지원 규모 약 20조원...금융위 "사회 안전판 정착 기대"
--  "문외한" "살인 누명 씌운 철면피"…민주, 김홍일 후보자 자진 사퇴 촉구
--  이정후 영입에 만족못한 SF, 추가 보강 노린다 "스넬-채프먼-벨린저 후보군에"
--  신진서, 2023년 바둑대상 최우수기사상 '통산 5번째'
--  금융위, '개인연체채권 매입펀드' 내년 말까지 연장 운영
--  DMDK founder Vijayakant passes away
--  Rep. Lauren Boebert quits Colorado’s 3rd District re-election race, will seek office in more GOP-friendly 4th District
--  Midagri descarta escasez o desabastecimiento alimentario por El Niño
--  Islanders completely embarrassed by Penguins in blowout loss
--  সকালেই পড়ুন আলোচিত ৫ খবর
--  Kim Jong Un Perintahkan Militer untuk Mempercepat Persiapan Perang
--  Four remain missing at sea
--  Arus Balik Libur Natal di Tol Lampung hingga Aceh Melonjak
--  মেলবোর্ন টেস্ট: আম্পায়ার লিফটে আটকা পড়ায় খেলা শুরু হতে দেরি
--  HUG, 미혼모자시설 주거환경개선 성공적 완료
--  [금안보고서] 한국은행 "'태영건설 워크아웃 사태' 영향 제한적…파장 확산 시엔 조치"
--  두산·쌍용건설, ‘두산위브더제니스 센트럴 계양’ 내년 1월 5일 특공 청약
--  Reconocen restos de hombre hallado carbonizado el pasado 14 de diciembre en Culiacán
--  গ্রাহকদের টাকা আত্মসাত প্রসঙ্গে বিস্ফোরক মন্তব্য করলেন ইভ্যালির রাসেল
--  怎麼談加薪才聰明？掌握 7 要訣，加薪不必用「喊離職」對主管情緒勒索！
--  जब धीरूभाई अंबानी ने दलालों को दी थी पटखनी, तीन दिन तक बंद रहा था शेयर मार्केट
--  IPL के सबसे महँगे खिलाड़ी को नहीं मिला विकेट, पाकिस्तान के ‘सस्ते’ बल्लेबाजों ने कूट दिया
--  Exchanging Old Jewellery Tips: ਪੁਰਾਣੇ ਗਹਿਣਿਆਂ ਦੀ ਅਦਲਾ-ਬਦਲੀ ਕਰਦੇ ਸਮੇਂ ਕਦੇ ਨਾ ਕਰੋ ਇਹ ਗਲਤੀਆਂ...ਸਮਝੋ ਭਾਰਤ 'ਚ ਸਹੀ ਕੀਮਤ 'ਤੇ ਕਿਵੇਂ ਵੇਚਿਆ ਜਾ ਸਕਦੈ ਨਵਾਂ-ਪੁਰਾਣਾ ਸੋਨਾ?
--  Shaylee Gonzales makes six 3s, leads No. 5 Texas past Jackson State 97-52
--  रेलवे स्टेशन पर खो गए थे भाई-बहन, 13 साल बाद मिले और मां की भर गई झोली…कहानी फिल्मी है
--  गुना में आग का गोला बनी बस तो मृतकों का आंकड़ा 13 पहुंचा, सीएम मोहन यादव ने कैंसिल किए सभी कार्यक्रम, 3 बड़े अपडेट्स
--  कमांडर की हत्या से इजरायल पर भड़का ईरान, डायरेक्ट एक्शन से लेगा मौत का बदला, दी वॉर्निंग
--  Bravos de Margarita se unió a la fiesta de enero
--  Man charged in deadly Apple store crash let GPS monitor die for second time, prosecutors say
--  Jubir Timnas AMIN Diduga Gelapkan Pajak, Berapa Kerugian Negara yang Ditimbulkan?
--  NBA: Lakers guard Gabe Vincent out for at least 2 months after undergoing arthroscopic knee surgery
--  Fort Worth police searching for man they say robbed a store armed with a machete on Christmas Eve
--  Death toll rises to 11 due to strong storms in eastern Australia
--  Jim Harbaugh sidesteps questions about NFL, Chargers
--  Donald Trump Takes Credit for 'Home Alone 2' Success, Denies Rumor About His Cameo
--  K’Andre Miller scores twice to lift Rangers over Capitals 5-1
--  K’Andre Miller scores twice to lift Rangers over Capitals 5-1
--  Lotería de Manizales, Meta y Valle: resultados de los últimos sorteos; 27 de diciembre
