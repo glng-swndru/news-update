@@ -1,51 +1,51 @@
 # Latest News
--  مقتل 13 شخصاً جراء اصطدام حافلة بشاحنة في وسط الهند
--  لافروف يدعو لرفع الظلم عن الفلسطينيين
--  ¡Inocente palomita! Como cuando parece broma y no lo es…
--  Alertan por amanecer helado en 8 alcaldías este 28 de diciembre
--  ‘세븐나이츠 키우기’, ‘전지적 독자 시점’과 컬래버 진행
--  El billete de autobús continúa bonificado y el viaje en tren sigue gratis para el usuario habitual
--  10 เป้าหมายง่ายๆ เปลี่ยนตัวเองเป็นคนใหม่รับปี 2567
--  Ο Γιάννης Αντετοκούνμπο «άγγιξε» το triple double στο Μπρούκλιν Νετς – Μιλγουόκι Μπακς
--  Uzman doktor çocuklarda ateşin nedenini açıkladı!
--  TUĐOM GREŠKOM SI STRADAO PRED KUĆOM! Prijatelji motocikliste (16) koji je poginuo u sudaru s "puntom" u Veterniku KIVNI
--  Memur-Sen'den yeni yıl mesajı...
--  Ak Peter Pellegrini bude kandidovať na prezidenta, Smer-SD ho plne podporí, tvrdí premiér
--  Plný trinásty dôchodok má byť už o rok realitou! PRIESKUM Čo si však o ňom Slováci skutočne myslia?
--  Shilpa Shetty Kundra: Reached pinnacle of popularity with my songs Chura Ke Dil, UP Bihar Lootne in my 30 years
--  Weitere Gebiete bei Bremen nach Deichriss evakuiert
--  "מבחן אופי" למכבי תל אביב בקובנה: "צריך לשים את הכל בצד"
--  FirstCry IPO: Brainbees Solutions files issue paperwork, Mahindra to divest 0.58 % stake
--  ‘Sarafina’ maker Mbongeni Ngema dies in car crash
--  Malaysia-Thailand segerakan kerja pelebaran, pedalaman Sungai Golok
--  Juventus'tan Gleison Bremer'a 5 yıllık imza
--  Comment la médiation peut booster l’investissement
--  Bharat Nyay Yatra: What Congress Aims To Achieve With Rahul Gandhi`s `Manipur To Mumbai` March
--  What is Bharat GPT, Reliance Jio and IIT Bombay's joint AI project? Akash Ambani explains
--  Ramai Baim Wong Bakal Jual iPad Rp 1 Juta, Ini Tanggapan Bea Cukai
--  라인렌트카, 여성가족부 2023’가족친화기업' 재인증 획득
--  블루렌트카, 여성가족부 2023’가족친화기업' 재인증
--  디지털서울문화예술대 패션산업학과 송은영 학과장을 만나다
--  ‘And a Plant’ Introduces (Decoding My Emotions) to help with Emotional Care
--  ㈜헤이프, 신세계 본점 수북즈 팝업스토어 이틀만 매진… 연장 운영확정
--  신한금융 진옥동, “절실한 마음으로 지속 학습·경험해야”
--  "La difendiamo noi, non spetta a un partito politico". Clamoroso: così Unirai zittisce il Pd
--  10 kişinin öldüğü Kuzey Marmara Otoyolu'ndaki kazada 6 gözaltı
--  PRIJAVA ZA VAUČERE POČINJE OD OVOG DATUMA Uvedene su 2 važne novine
--  JO: face au manque de personnel de sécurité, les fonctionnaires administratifs appelés sur le terrain
--  Захарова: на организованные против России гибридные войны есть гибридные ответы
--  El garbigune móvil foral estará en Galdakao hasta el 9 de enero
--  Bawaslu dan KPU Beda Suara Perihal Pengiriman Surat Suara Pemilih Taipei
--  Number of asylum applications rises to nearly 50,000
--  Mamardashvili, más contento que nunca con los 'ceros' del Valencia de Baraja
--  Общественный транспорт в Москве в новогоднюю ночь будет бесплатным
--  Mert Demir’den Serenay Sarıkaya açıklaması: Kendi aramızda bir şeydi
--  İzmir'in Kemalpaşa, Tire ve Torbalı ilçelerinde DEAŞ operasyonu: 9 gözaltı
--  İngiltere ile kriz yaşayan Yunanistan'dan yeni teklif
--  İsmini "B" olarak değiştirmek istiyordu... AYM'den karar
--  Edin Dzeko'dan Süper Kupa sözü! "Kupayı Fenerbahçe müzesine getireceğim"
--  Trabzonspor'da transfer için yol haritası oluşturuldu
--  Ekonomi Koordinasyon Kurulu toplantısı Yılmaz başkanlığında başladı
--  Tütün ürünlerinde vergi dağılımı değiştirildi
--  Uganda'da ayrılıkçı ittifakın elebaşlarından Kamusi düzenlenen operasyonla öldürüldü
--  Yılın son Ekonomi Koordinasyon Kurulu toplandı
+-  Antonov: Slanjem vojne pomoći Kijevu, SAD žele borbu do poslednjeg Ukrajinca
+-  Hviezdi na ľade aj mimo neho. Lopušanová dostala prestížne ocenenie, je najlepšia na svete
+-  Stricter smoking and vaping laws announced for 2024 in South Australia
+-  Stricter smoking and vaping laws announced for 2024 in South Australia
+-  Stricter smoking and vaping laws announced for 2024 in South Australia
+-  Tatler celebrates the outré, more-is-more 1980s style of Princess Michael of Kent as daughter-in-law Sophie Winkleman adorns the cover
+-  Man allegedly stabbed in early morning attack in Adelaide's CBD
+-  Man allegedly stabbed in early morning attack in Adelaide's CBD
+-  Man allegedly stabbed in early morning attack in Adelaide's CBD
+-  Number of fires down overall in Fresno, crews still responding to more structure fires
+-  한화 건설부문, 2081억 평택 통복하수처리장 현대화 실시협약
+-  내년 7월부터 내부자 거래 사전 공시 의무화..."먹튀, 이제 그만"
+-  '쌍특검법' 야권 단독 처리로 국회 본회의 통과…與 표결 불참
+-  인천경찰청장 "이선균씨 사망 안타까워…수사는 적법하게 진행"
+-  "On a eu quelques discussions sympas", Djokovic raconte ses liens privilégiés avec Deschamps et Riner
+-  80 тысяч рублей за свет незаконно насчитали жильцам дома в Брянске
+-  Odborníkov si vážim, personálne zmeny nebudem odkazovať cez médiá, tvrdí Šimkovičová
+-  Systemen spoedeisende hulp offline na ransomwareaanval
+-  Michael Schumacher's former Ferrari team-mate reveals how long-suffering wife Corinna polices who can visit the stricken Formula One legend, 10 years on from his tragic skiing accident
+-  Lady Frederick Windsor is the Lady of Belgravia in a costume drama of her own creation on the cover of the February issue
+-  В Совфеде оценили вероятность превращения Балтики во внутреннее море НАТО
+-  Шесть лет колонии и крупный штраф получил изготовитель оружия из Тверской области
+-  [프로배구] 우리카드 돌풍 타고... 남자배구 관중 23％ 증가
+-  Nayanthara completes 20 years in the film industry, pens heartfelt note for fans
+-  "This is us": Liebt Schauspielerin Anna Maria Mühe einen Kollegen?
+-  Орловчанина отправили в колонию на 2 года за пьяную езду
+-  Allmänna Arvsfonden övertar huset på Hjulsbrovägen 1 i Linköping
+-  Руски самолет се приземява върху замръзнала река
+-  Sarah Ferguson planned the sweetest Christmas celebration for her grandchildren - but there’s one thing she’s struggling to teach them about the holidays and it’s so relatable
+-  동서발전, 농축산분야 신재생 융복합사업 MOU 체결…가축분뇨 활용·개발
+-  Российский волейбольный клуб возглавил внук ушедшего тренера
+-  Видео о могилевской парикмахерской «из 90-х» набрало миллионы просмотров
+-  13 schöne Hochzeitsgeschichten aus Castrop-Rauxel in 2023: Einzigartige Ehepaar-Ereignisse
+-  Genç Şimşekler Denizlispor'u devirdi!
+-  대통령실 "尹, '김건희·50억클럽 특검법' 즉각 거부권 행사"
+-  Jokowi Singgung soal Korupsi saat Resmikan Menara BTS 4G Kominfo
+-  Znamy nazwiska likwidatorów w TVP, Polskim Radiu i PAP
+-  Storm Gerrit 'tornado' tears through Manchester wrecking around 100 homes overnight - as Brits trying to get back home after Xmas prepare to endure MORE travel chaos today after 80mph gales, rain and snow sparked road, rail and plane mayhem
+-  भत्किएको दुई महिनापछि पुल सञ्चालन
+-  White Fox founder comes under fire for throwing a lavish Christmas lunch for her top staff at mansion with the world's 'finest' caviar - as the brand is slammed for online shopping delays
+-  청와대 행정관 출신 최일곤, 내년 총선 목포 출마 선언
+-  Pilot aviona An-24 umjesto na pistu sletio na zaleđenu rijeku
+-  Во кафе-книжарница „Буква“ последната „Поетска епизода“ за годинава
+-  Sexy: Heidi Klum sonnt sich oben ohne im St.-Barth-Urlaub
+-  Irena iz 'Ljubav je na selu' ima novog dečka: 'Iz Kameruna je, odgovara mi po razmišljanju'
+-  OSTALI SPORTOVI: "Tip" - tiket za četvrtak
+-  ¡Cuidado con la siesta!
+-  ¡Cuidado con la siesta!
+-  Два украинца незаконно пересекли границу Молдавии у села Валя Пержей
+-  أسعار الذهب في السعودية اليوم الخميس 28 ديسمبر.. عيار 24 يسجل 220 ريالًا
