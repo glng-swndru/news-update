@@ -1,51 +1,11 @@
 # Latest News
--  종 보존 챌린지, 전 세계인의 관심 집중
--  Saving Species Challenge Attracts Global Interest
--  המשטרה תחקור את הרב שהסית נגד רופאים ערבים: "רוצחים בבי"ח יותר מהחמאס"
--  Γκονζάλεθ για Σίκμα: «Άφησε το δικό του στίγμα στην ομάδα μας»
--  Μπέτις: Ανανέωσε με Ίσκο μέχρι το 2027
--  Rusya'dan ABD ve İsrail açıklaması!
--  Tatar: KKTC bağımsız bir Türk devleti olarak Türklüğün kalesidir
--  PFDK kararları açıklandı
--  ავტოსაგზაო შემთხვევას აბაშაში ადამიანის სიცოცხლე ემსხვერპლა
--  Tomašević potpisao prvi profesionalni ugovor, ostaje u Budućnosti do 2027.
--  KADA JE VIDELA NOVAKA, ODMAH MU JE KRENULA U ZAGRLJAJ Đokovića sačekalo iznenađenje na treningu u Australiji, pojavila se ona i oduševila ga (VIDEO)
--  היאוש נעשה יותר נוח: אייל גולן ודניאל גרינברג טסים לחופשה
--  Nuk duron më, Alba kërkon të largohet nga shtëpia e Big Brother VIP Kosova
--  Cinq morts à Meaux : mis en examen, le père est placé en détention provisoire
--  Бившият председател на Столичния общински съвет Георги Георгиев: Така София не може да се управлява - Труд
--  LUKSUZ Janjetina u restoranima 60 do 65 maraka, udvostrucila se i cijena svinjetine
--  FGTS pode ser liberado em casos de aposentadorias
--  Zwischenzeugnis für die Werkself: Diese zwei Spieler haben die Bestnoten bei Bayer 04
--  Saudiseura pommittaa Inter-tähteä kovalla tarjouksella - täysin turhaan
--  Bodin Tomašević u Budućnosti do 2027.
--  Saúde: SNS24 reforça resposta na Linha para fazer face a pico de procura
--  Un estudio en el que colabora la USC revela que la calidad del aire en Santiago está en los límites de la OMS
--  Hladina Dunaja v centre Budapešti sa zvýšila
--  ఘనంగా కాంగ్రెస్‌ పార్టీ వ్యవస్థాపక దినోత్సవం
--  Og vinderen af det danske aktiemarked 2023 er … ikke den, du tror
--  Og vinderen af det danske aktiemarked 2023 er … ikke den, du tror
--  Son dakika: MHP'nin belediye başkan adayı çıkaracağı il belli oldu! Cumhur İttifakı'ndan Bartın kararı
--  Lima Bintang Korea Selatan yang Meninggal Dunia di Tahun 2023
--  Hemocentro de Mato Grosso está com estoque crítico e precisa de doações
--  اعتداء على قوات اليونيفيل جنوب لبنان
--  #FantasyDK-differentials: Hvordan adskiller du dig?
--  Chef francês com estrela Michelin deixa restaurante do Hôtel du Palais após denúncia de praxe humilhante
--  La cagnotte lancée pour soutenir un éleveur condamné dans l'Oise atteint plus de 25 000 €
--  Slováci nastúpia proti Srbsku v Kraljeve, spoznali aj hrací povrch
--  Water bijna zover het oog reikt, maar bij waterschap De Dommel is nog niemand ongerust
--  Gesundheitssystem: Ärztestreik: Was verdienen die Mediziner eigentlich?
--  O ja, dat is ook nog gebeurd in de Meierij: tien fotomomenten uit 2023
--  Gesundheitssystem: Ärztestreik: Was verdienen die Mediziner eigentlich?
--  Franck Ropers est prêt pour le championnat du monde de tractions et de pompes lesté d'un poids
--  لقاء تنسيقي بعدن بين وزارة التربية والتعليم والجهاز المركزي للإحصاء
--  Inter, Inzaghi: “Contro il Genoa avrò qualche assenza, ma le turnazioni devono essere una soluzione”
--  చెత్త మీద పన్ను వేసిన సీఎం జగన ఒక్కడే..!
--  Nach 85 Jahren im Familienbesitz: Friseursalon mit Lotto-Annahmestelle in Damm schließt
--  Stilblüten: Von Dackelzügen und spukenden Alpakas
--  Wertheims ältestes Gasthaus "Goldener Adler" ist verkauft
--  Ab 2024 grüner Strom für Wertheim
--  Rarität: Wie sch­me­cken Wei­ne aus den Jahr­gän­gen 1989 bis 2005? - Video-Story
--  Ulrich Reuter aus Kleinostheim wird deutscher Sparkassen-Präsident - Wichtiger Lobbyist
--  Нигматуллин: не люблю тренажёрный зал, предпочитаю «потягушечки», как в йоге и пилатесе
--  ¿Es verdad que Metallica fue la primera banda de metal en tocar en Arabia Saudita?
+-  Wiceprezes NBP: inflacja w pierwszych miesiącach 2024 r. może być niższa niż prognozowano
+-  Komentarz po sesji: Spadek na płytkim rynku
+-  Pljevlja: Potpisani ugovori sa porodicama koje su ostvarile pravo...
+-  Dejan a sujeto sin vida en carretera a Guadalupe y Calvo
+-  Pagarán el 2 de enero a pensionados del IMSS
+-  Venäjän urheilun superpari etsintä­kuulutettiin – Tämä teko USA:ssa oli liikaa
+-  Samsung z genialną funkcją. Telefon będziesz ładował jak samochód
+-  BVB-Legende stellt U17-Weltmeister Profivertrag in Aussicht
+-  VW-Abgas-Skandal: Strafverfahren gegen Martin Winterkorn wieder aufgenommen
+-  Edin Dzeko, Icardi hakkında konuştu
