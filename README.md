@@ -1,51 +1,11 @@
 # Latest News
--  Oli lapping up life at sea and a place in race history
--  نظام المسؤولية الاجتماعية يلزم الشركات بهذا الأمر
--  दुनिया के मोस्ट-वॉन्टेड आतंकी पर बनी फिल्म, देखकर डरे नहीं खूब हंसे दर्शक
--  قزيط : باتيلي لم يحسن الصياغة النهائية لفكرته وتأخر في إطلاق الحوار
--  Pemerintah Buka Lowongan CPNS 1,3 Juta Orang di 2024, Talenta Digital dan Fresh Graduate Diutamakan
--  Tigres de Aragua cumplió en su viaje a Puerto a La Cruz
--  黎昭昇雙喜臨門
--  방사청, 국산 훈련기 'TA-50 블록2' 1호기 공군 납품
--  5 Fakta Menarik Hwang Hee-chan: Pemain yang Setiap Cetak Gol Bikin Evan Dimas Trending
--  IDF destroys Hamas tunnel network around Rantisi Hospital
--  Yakult Australia confirms cyber attack, data leak on IT systems
--  고물가에 실질임금 뒷걸음질…1~10월 작년보다 1% 감소
--  Riddle Me This: Why Does Centrelink Get To Look Down On The People It’s Supposed To Serve?
--  Debt free Aurumin sets sail on Sandstone gold development
--  دفعة خامسة من المتطوعين الطبيين تنضم للمستشفى الميداني الإماراتي في غزة
--  청주 정규진 원장, (사)이웃에 후원금 기부
--  통영시, 2024년 새해 해맞이 행사 이순신공원서 개최
--  영주시, KTX-이음 서울역 연장운행 기념 '선비세상 입장료 할인 이벤트'
--  경기도 동인선 전 구간 착공 임박, '도민청원 1호' 김동연 약속 현실화
--  춘천시립도서관, 2023년 유종의 미 거뒀다
--  봉화군, 2024년 환경개선부담금 일시납부 신청 접수
--  강원특별자치도교육청-도교육청공무원노조, 애민보육원에 기부금 전달
--  경남 양산시, 용당역사지구 마스터플랜 수립 ‘박차’
--  국립춘천숲체원, 교육 협력 유공 강원특별자치도지사 표창 수상
--  김문근 단양군수, ‘시루섬 정신’으로 새로운 군정 패러다임 뼈대 구축
--  논산시, ‘적극행정 활성화’ 박차… 하반기 우수사례 발굴·공유
--  우리은행, 고양시와 일산테크노밸리 첨단산업 육성 MOU
--  이규설 홍천군번영회장, 모교 화계초교에 장학금 전달
--  백내장 실비 지급기준 정비…고령자·단초점 수술 청구 간소화
--  제천시 중앙동 청사 리모델링 준공식 개최
--  김포시, 올해 마지막 특별조정교부금 57억 추가 확보
--  광명시, '도시재생 우수' 경기도지사 표창
--  여수 섬 주민, 내년부터 1000원으로 섬 간 이동한다
--  김포시, 2023년 제1회 다문화·외국인가구통계 결과 공표
--  Krieg gegen die Ukraine: So ist die Lage
--  Ariana Grande lanzará su séptimo álbum de estudio en 2024
--  [인사] DB금융투자
--  [인사] 광주은행
--  SPC "해피포인트로 1만5000명 결식우려 아동 지원"
--  Congress Foundation Day : तब्बल 100 वर्षानंतर नागपूरमध्ये काँग्रेसचे अधिवेशन; लोकसभा प्रचाराचा रणशिंग फुंकणार
--  Krieg gegen die Ukraine: So ist die Lage
--  Fitness influencer Amy Castano flaunts her fitness transformation and reveals the one surprising trick behind her total body makeover
--  OR records 600% year-on-year quarterly profit growth in Q3 2023 driven by mobility business, maintaining positive momentum of international expansion
--  “스마트TV, 더 똑똑해졌다”…LG전자, 2024년형 QNED TV 공개
--  Man, trapped in crashed truck, survives on rainwater for six days
--  Rahmon addressing a joint meeting of both chambers of parliament today
--  Market Value RANS Nusantara FC, Klub Milik Raffi Ahmad Senilai Rp58 Miliar yang Ada di Yogyakarta
--  Kantar Lighthouse 2023: Gen Z – Unravelled
--  Dobrindt rechnet nicht mit Haushaltsbeschluss bis Februar
--  Dobrindt rechnet nicht mit Haushaltsbeschluss bis Februar
+-  '나혼산' 팜유즈→'전참시' 구라걸즈, 'MBC 방송연예대상' 치열한 베스트 커플상
+-  故 이선균 소속사, 기습 취재→유튜버 소란 고통 호소 "잔혹한 상황 벌어지고 있다"
+-  Setelah Jay Idzes, PSSI Fokus Selesaikan Proses Naturalisasi Thom Haye
+-  Brigade Al Qassam Perkenalkan Roket Portabel Buatan Rusia untuk Pertempuran Gaza
+-  Ульянов заявил, что гендиректор МАГАТЭ посетит Россию в 2024 году
+-  MTC y Conadis impulsan accesibilidad en transporte para discapacitados
+-  Désirée Nick: Von Unten-ohne-Hammer bis "Playboy"-Kracher: DIESE Fotos gefielen nicht jedem
+-  Annalena Baerbock: Von "Speck der Hoffnung" bis Kuss-Fauxpas: DAS waren ihre peinlichsten Momente
+-  Les transports publics luxembourgeois sur leur 31
+-  5 carreras profesionales orientadas a los negocios
