@@ -1,51 +1,11 @@
 # Latest News
--  Immediate Lidex Review Detailed Report By Traders Canada, Australia, UK (AI
--  Ariana Grande announces new album for 2024
--  Nothing extraordinary about JD(U) conclave, says Nitish Kumar
--  North Korea leader Kim Jong Un orders military to `accelerate` war preparations
--  Delhi Police moves court seeking permission for polygraph test
--  Russia-India ties making `steady headway` despite `current turbulences`: Putin
--  When Gulzar revealed that Rajesh Khanna did `Anand` for a nominal fee
--  Raj and DK`s `Guns and Gulaabs` renewed for season 2
--  Çaykur Rizespor'da ayrılık rüzgarı!
--  Pınar Karşıyaka 9. zaferi için parkeye çıkacak
--  Cumhurbaşkanı Erdoğan'ı hedef alan 'Gazze kasabına' AK Parti'den sert tepki: Netenyahu'nun sözleri yok hükmündedir
--  İsrail'in saldırılarında ölen İran Devrim Muhafızları komutanlarından Musevi'ye cenaze töreni düzenlendi
--  Fenerbahçe'den Serdar Dursun sürprizi
--  RTÜK'ten tepki çeken 'Kızıl Goncalar' dizisi için karar
--  Şanlıurfa'da jandarma operasyonunda 129 göçmen yakalandı
--  Malatya'da 4,6 büyüklüğünde deprem
--  Liberya'daki tanker patlamasında bilanço artıyor: 40 ölü
--  Bakan Güler: TSK, Cumhuriyet'in en kapsamlı, en yoğun ve en etkin faaliyetlerini icra etmekte
--  Zamlı 2024 apartman görevlisi maaşları ne kadar olacak?
--  Konya'da görevli meslektaşına 'cinsel saldırıya teşebbüs' suçundan yargılanan savcı beraat etti
--  Fabrikada elini kesim makinesine kaptıran işçinin 2 parmağı koptu
--  Diyarbakır'da 2 sığınakta 452 kilogram esrar ve mühimmat bulundu
--  Kahramanmaraş'ta 22 aracın karıştığı 2 zincirleme kazada 15 kişi yaralandı
--  RTÜK'ten Kızıl Goncalar dizisine ceza
--  Malatya'da 4,6 büyüklüğünde deprem
--  Zdradził go brak świateł
--  Jak wybrać idealny zestaw kosmetyków męskich na prezent świąteczny?
--  Astronauti zverejnili FOTO vianočných osláv vo vesmíre: Nechýbali ani darčeky, pozrite na to!
--  Ak by som sa stal prezidentom, odmietam zmeny pri rozdelení rezortov, tvrdí Pellegrini
--  Mimoriadne tragické ráno na slovenských cestách: O život prišli dvaja vodiči! Autá skončili úplne zdemolované
--  Utrudnienia w centrum miasta potrwają jeszcze dłużej. Wykonawca tłumaczy się pogodą
--  Profilaktyka nowotworowa – jak uchronić się przed czerniakiem?
--  Ťažko chorý syn (7) Jána Dobríka: 80 % času je v nemocnici!
--  GUS: liczba pracujących w gospodarce narodowej w końcu lipca wyniosła 15,1 mln
--  Na europejskim rynku akcji maleje przewaga popytu
--  NBP: w III kwartale oddano do użytku o 15 proc. mniej mieszkań
--  PIE: ponad połowa firm obawia się wzrostu inflacji w 2024 r.
--  Bus rapide transit (Brt) : 121 bus articulés, 300 passagers attendus par jour ( Document)
--  Dramatic moment armed cops arrest drug-crazed killer minutes after going on random stabbing rampage which left one dead and two others wounded
--  Dramatic moment armed cops arrest drug-crazed killer minutes after going on random stabbing rampage which left one dead and two others wounded
--  Pretziener Wehr geöffnet - Elbe-Höchststand in Dresden steht noch aus
--  অস্ট্রেলিয়ার শিক্ষা প্রোফাইলে আরও ১৮ বাংলাদেশি বিশ্ববিদ্যালয়
--  Obligatierente eurozone handelt gemengd in de buurt van dieptepunten in meerdere maanden
--  Anleiherenditen der Eurozone handeln uneinheitlich in der Nähe von Mehrmonatstiefs
--  Психолог рассказал, как поднять настроение на новогодние праздники
--  Banjir: Anwar umum lima projek baharu di Kelantan
--  Moment crazed accountant and his Louis Vuitton-toting husband have meltdown at Charlotte Douglas Airport and curse at wheelchair-bound woman after accusing American Airlines staff of keeping them from their DOGS
--  Sky Sports News presenter's VERY lewd slip of the tongue leaves fans in hysterics after he tried to describe how Wayne Rooney wanted to replace all of his Birmingham City players
--  Rastislav z Banskej Bystrice prerazil v Londýne: Slováci tu pracujú tvrdo ako ťažné kone, neboja sa zobrať špinavú prácu
--  LEES OOK - Vooruitzichten wereldwijde grondstoffen 2024
+-  Israeli embassy pulls video imagining Hamas attack in Seoul
+-  Korea urges Russia's efforts to 'manage' bilateral ties
+-  Teilwiederholung der Bundestagswahl: Drei Berliner Bezirke suchen noch Wahlhelfende
+-  ابل في 2024 – منتجات نتوق لرؤيتها بفارغ الصبر
+-  Corona-Zahlen in Gelsenkirchen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Cem Küçük emekli maaşına ve memura yapılacak zammı açıkladı. Asgari ücreti bilmişti
+-  Corona-Zahlen in Bottrop aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen im Rhein-Sieg-Kreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Zoomlion Accelerates Growth and Innovation in the Middle East with Strategic Development and Collaborative Innovation
+-  Wuxi Opera "The Pearl Pagoda": A Glimpse into How to Maintain the Vitality of Traditional Chinese Opera
