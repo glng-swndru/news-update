@@ -1,51 +1,51 @@
 # Latest News
+-  La Universidad de Caldas se suma a la de Antioquia y la del Valle y recibirá terrenos de narcos
+-  İsrail'den Hizbullah'a tehdit
+-  Selçuk İnan: Acısını da mutluluğunu da iyi bildiğim bir kupa
+-  Anklagelserna mot Depardieu – detta har hänt
+-  Dirk Kuyt'ın yeni takımı belli oldu!
+-  Aantal islamitische uitvaartzorgbedrijven in Nederland bijna verdubbeld
+-  Dura crítica a Gündogan desde la Federación alemana
+-  Jula er høytid for SMS fra - kundeklubbene
+-  Što slijedi nakon velike tužbe protiv OpenAI-a: ‘Stvari bi se uskoro mogle resetirati‘
+-  KPU Belum Pastikan Sanksi untuk PPLN Taipei
+-  Ovo je malo tko očekivao: bivši hajdukovac igrao je za Vatrene, a sada je na meti druge reprezentacije
+-  9,9M€ para 8 zonas desfavorecidas de 5 municipios de Córdoba
+-  Presidente Biden firma ley para perseguir penalmente a personajes extranjeros corruptos
+-  Formel 1: Nicht der achte WM-Titel! DAS hat für Hamilton jetzt oberste Priorität
+-  Tres restaurantes en Bogotá perfectos para amantes del anime
+-  Calciomercato Milan: il Fenerbahce studia il piano B a Krunic, lo scenario
+-  Algunos funcionarios no han cumplido con las exigencias de la presidenta: Augusto Aguilar
+-  ONLINE: Sparta opět prohrává, Boleslav válí. Litvínov udeřil po hradecké hrubce
+-  ONLINE: Sparta opět prohrává, Boleslav válí. Litvínov udeřil po hradecké hrubce
+-  AXA : Document AMF CP. 2023DD944010
+-  VOGO : Document AMF CP. 2023DD944012
+-  Mersen : Document AMF CP. 2023DD943968
+-  AXA : Document AMF CP. 2023DD944011
+-  Tikehau Capital : Document AMF CP. 2023DD943959
+-  Ly hôn dẫn con về nhà ngoại ở, nửa đêm nghe mẹ gọi điện thoại tôi vội dọn ra ngoài
+-  Callao: hermano menor de cantante de Zaperoko fue asesinado
+-  Раскрыта личность новой возлюбленной Гуфа
+-  Eis os piores ports PC de 2023
+-  Se cumplen diez años del accidente de esquí de Michael Schumacher
+-  Finanzierungsproblem für Flugtaxen: Wenn Visionen am Boden bleiben
+-  Gemuruh Jemaat Kristiani Teriak "Prabowo" hingga Rebutan Selfie
+-  MinComercio, Superindustria y Policía refuerzan medidas de seguridad para los turistas
+-  Drohen Sonntag neue Silvesterkrawalle? Die “Chancen” stehen günstig…
+-  سلس البول.. علامة تحذيرية تشير إلى إصابتك بهذا المرض
 -  "התחזית ל-2024: ווס אנסלד ג'וניור יפוטר מוושינגטון"
+-  La ONU denuncia graves abusos de soldados y colonos israelíes en Cisjordania
+-  Charleroi: des conseils pour stationner malin et éviter les blocages des Fêtes et des soldes, dans le centre-ville
+-  В лазарете Руха остался только один футболист
+-  Plantean reducir plazo de atención de reclamos en el sector público
+-  Explota pipa de gas y mueren 40 personas en Liberia | VIDEO
 -  4 أعراض خطيرة لأمراض القلب يخلط البعض بينها وبين الأنفلونزا
--  Trafic de drogue à Canteleu: "le parquet, depuis le début de cette affaire, a une lecture complètement hors-sol du travail d'un maire" estime l'avocat d'Hasbi Colak, adjoint à la mairie
--  México y EE.UU. acuerdan mantener abiertos pasos fronterizos
--  Serán 3 bancos los que presten crédito a largo plazo
--  Recibieron atención psicológica más de 15 mil chihuahuenses
--  Кабинет по ведению войны намерен обсудить будущее Газы. "Ционут Датит" и "Оцма Иегудит" протестуют
--  PFDK, cezaları açıkladı! Galatasaray ve Fenerbahçe'ye kötü haber
--  Yunanistan'a kaçacaktı! Firari hükümlü kıskıvrak yakalandı
--  Película biográfica de Amy Winehouse ya tiene fecha de estreno: estos son los detalles
--  Kommentti: Annika Saarikko lausui paljonpuhuvat sanat puoluekokouksen jatkoilla – onko Paavo Väyrysen aika viimein ohi?
--  UP: यूट्यूब से सीखा ‘कैसे ATM से करें चोरी’, लेकिन जैसे ही चोरी करने पहुंचे…
--  Vicepresidente Carrizo juramenta a mil 527 nuevos agentes de la Fuerza Pública
--  Faustão revela que sofreu duas quedas e fratura após transplante de coração
--  Pico y placa en Bucaramanga para este viernes 29 de diciembre de 2023: tome nota
--  Kumaram Bheem Asifabad: జామ్నిలో పల్లె ఆసుపత్రిని సందర్శించిన వైద్య బృందం
--  TeklifimGelsin 14 milyon dolar değerlemeyle yatırım aldı
--  Za dużo prądu na Ukrainie. Polska kupuje nadwyżkę
--  De Bel20 sluit een matte sessie af net boven de 3.700 punten.
--  Esto dijo Giorgetto Giugiaro, icono del diseño automotriz, sobre el Cybertruck de Tesla
--  Polizeieinsätze zu Silvester: Aufrüsten für den Jahreswechsel
--  2024 йил учун ижара ҳақининг янги минимал ставкалари белгиланди .
--  Сўровнома: Ўзбекистонлик экспертлар 2024 йилда қандай ўзгаришларни кутмоқда?.
--  Магнус Карлсен Самарқандда рапид бўйича жаҳон чемпиони бўлди .
--  «Минглаб тожикистонлик аёллар миграцияда. Бизда шараф борми?» - Эмомали Раҳмон .
--  Ким Чен Ин Шимолий Корея армиясини урушга тайёрланишга чақирди .
--  Жиззахда гўдак фарзандини азоблаган эркакка жиноят иши очилди .
--  Krčka na Balkanu: Doznajemo hoće li se spojiti Srbija i Republika Srpska
--  Patentstreit: Etappensieg vor Gericht: Apple startet Verkauf seiner Uhren
--  Harry Kane keeps to his word as he’s spotted on beach over Christmas during Bundesliga break
--  Mala madre: cómo cuidar la planta que purifica el aire en menos de 24 horas
--  Pakistanda Yeni il şənlikləri ləğv edilib
--  Kumaram Bheem Asifabad: గతేడాదితో పోల్చితే నేర ప్రవృత్తి తగ్గింది: ఎస్పీ
--  США передали Украине партию зерновозов
--  دعم برامج البحث العلمي.. توصيات مؤتمر أخلاقيات الذكاء الاصطناعي بجامعة طنطا
--  Znanstvenici dobili uvid u davno izgubljene tajne Antartktike: Otključali su je uz pomoć hobotnice
--  Mendoza, Auster, García Márquez, o Rushdie, 'púgiles' de otro asalto editorial
--  Mendoza, Auster, García Márquez, o Rushdie, 'púgiles' de otro asalto editorial
--  Des « sols électroniques » pour booster la croissance des plantes et ça marche
--  Ryga dviese: kryptis, kurios kaskart sau pavydime
--  Ex-Chelsea star Oscar’s eye-watering salary he’s earned in China since leaving Stamford Bridge
--  Kvinna gripen i Malmö – hade degknyten med glas
--  ‘Bring him back’ rant furious fans as EastEnders character ‘goes missing’ after Christmas Day murder
--  Zamiast ciepłych wakacji brutalne uziemienie. Przez głupi żart o bombie w bagażu
--  بتهمة انتهاك حقوق المؤلف.. ملاحقات قضائية تلاحق "تشات جي بي تي"
--  Ukraine tepidly welcomes new U.S. military aid package
--  Dijon. Une visite du centre de tri proposée par la métropole
--  Último carcereiro de Mussolini comemora aniversário de 101 anos
--  Resolution gegen den Krieg in Nahost: Bisher ohne Wirkung
--  Navio de ONG chega à Itália com mais de 100 migrantes a bordo
+-  Türkei: Er brach einem Schiri das Jochbein – dann wird er gefeiert
+-  ¿Cómo va Adrián González en la boleta del Salón de la Fama?
+-  Truk Tabrak Mundur 3 Kendaraan di Ciawi Bogor gara-gara Rem Rusak
+-  Rokotusten antamiseen tulossa suuri muutos
+-  Учительница и родители четвероклассника из «Южного парка» стали снимать порно
+-  ¡Escándalo en África!: Camerún convoca a un joven de 17 años... pero no los aparenta
+-  Man i trolig självmordspakt anklagas för dråp
+-  TFF, PFDK sevklerini açıkladı! Derbinin faturası ağır oldu...
+-  Tegeltija najavio povlačenje iz Borca: Svjestan sam ograničenja...
