@@ -1,11 +1,11 @@
 # Latest News
--  Más de 100 familias bocatoreñas recibirán el 2024 en nuevos hogares
--  Agentes penitenciarios reciben certificado del curso de control de multitudes
--  La CNMC autoriza la compra de la filial de red de fibra de Evolutio por parte de Lyntia
--  Victoria judicial de Apple, autos eléctricos de Xiaomi, debilidad del dólar: 5 claves en Wall Street
--  México y EEUU acordaron abrir pasos fronterizos, puentes, en reunión del miércoles: presidente mexicano
--  Soccerladuma | CONFIRMED! Sundowns Sign New Defender
--  [ŽT] „Paliaubos su Rusija.“ Ukraina skelbia atsakymą
--  „Ligotos vaizduotės vaisius“. Lavrovas sureagavo į Zelenskio taikos formulę. Nepamiršo ir JAV (Video)
--  Šviesos greičiu. JAV kuria unikalų ginklą, kuris priešus „iškeps“
--  Skrydžio MH370 paslaptis. Buvęs kariškis „rado“ lėktuvo katastrofos vietą
+-  PM Modi Degree Case: Court Issues Production Warrant For Jailed AAP MP Sanjay Singh
+-  Uttar Pradesh: पीलीभीत टाइगर रिजर्व में बाघ सफारी रूट पर घंटों रहा बैठा, देखें वीडियो
+-  İsrail'den skandal karar: Yasa dışı yeni 1839 Yahudi yerleşim birimi için ihale açtı
+-  4 Türk denizcinin bulunduğu gemi karaya oturdu
+-  Gekas: Fatih Terim'in kim olduğunu söylemeye gerek yok
+-  Emniyette FETÖ operasyonu! Bakan Yerlikaya: 445 kişi açığa alındı
+-  ABD'de ilk kez işsizlik maaşı başvuru sayısında beklenmedik yükseliş gerçekleşti
+-  देश की खबरें | गुना बस हादसा: परिवहन आयुक्त, जिला कलेक्टर, एसपी का तबादला
+-  देश की खबरें | कांग्रेस की न्याय यात्रा असली मुद्दों से लोगों का ध्यान भटकाने की कोशिश: अनुराग ठाकुर
+-  Sumqayıtın qaz təchizatında fasilə yaranacaq
