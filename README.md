@@ -1,51 +1,11 @@
 # Latest News
--  Osun ALGON Secretary, Afolabi hails association chair, Awotunde on birthday
--  В Подмосковье после капремонта открылось ещё шесть медицинских учреждений
--  Limit na dopłaty do "Bezpiecznego kredytu" wyczerpany, resort pracuje nad nową formą wsparcia
--  USA: wskaźnik podpisanych umów kupna domów bez zmian w listopadzie
--  Švedska lider u Evropi po obnovljivim izvorima energije
--  PVCC and Cyprus Red Cross sign pact to boost volunteerism
--  Кабмин ФРГ: Германия верит, что США продолжат поддерживать Украину
--  Skippa gojibären – misstänkt salmonella
--  New England Patriots links 12/28/23 - How Bailey Zappe jump-started the offense
--  Shedding of blood in Plateau must stop – Mutfwang reveals message to Tinubu
--  Mehmet Büyükekşi: Fair-Play içinde çok güzel bir maç olmasını istiyoruz
--  Zbog antiratne poezije Rusi osuđeni na višegodišnje zatvorske kazne
--  Soccer-Napoli go into Monza game with injury and suspension problems
--  Las 4 diferencias entre gripe y covid: del tiempo de contagio a la gravedad
--  אחרי 15 שנים: בזק נפרדת מגידי גוב לטובת עדי אשכנזי
--  South Africa Beat India: पहिल्या कसोटीत भारताचा एक डाव आणि 32 धावांनी पराभव, मालिकेत दक्षिण आफ्रिकेने घेतली 1-0 अशी अभेद्य आघाडी
--  Stock market today: Stocks edge higher on Wall Street in muted trading
--  Μπάγερν: Δέκατο σερί sold out για τους Βαυαρούς
--  پشاور ہائیکورٹ کا فیصلہ الیکشن کمیشن پر حملے کے مترادف ،ترازو کو لاڈلے کی طرف جھکایا جارہا ہے :شہباز شریف
--  تغريم الفنان محمد رمضان 500 ألف جنيه في دعوى سب عمرو أديب
--  EPL: ‘You can’t sit there’ – Saunders advises Arsenal star to leave club in January
--  Scotrail defends safety of train involved in Broughty Ferry crash after union criticism
--  Αυτά τα Χριστούγεννα η Barbour μοίρασε δώρα με το Land Rover Defender της Spanos Luxury Cars
--  Bottas Perezről: Nem vághatsz úgy neki egy versenynek, hogy nem hiszel a győzelemben!
--  Θεσσαλονίκη: Πραγματικότητα το πρώτο πάρκο για σκύλους με ανακυκλώσιμα υλικά
--  O que é erótico para um pode ser o grande horror de outro, afirma diretora de 'Saltburn'
--  Storm Gerrit: Cupar shop owner fears he may never reopen flood-hit store
--  HOW TO SPOOF LOCATION ON iOS 17? 2024 NEW METHOD! [WITHOUT PC]
--  Üretici kadınlar, satış teknikleri eğitimi aldı
--  Leitungswechsel im Seniorenpark Hiddingsel
--  Sektor na papiru, ljekova ni na vidiku: Ne nazire se datum početka...
--  RTVS reaguje na vyjadrenia Danka o parazitoch, ktorí berú peniaze: Opätovne a účelovo podsúva klamlivé informácie
--  Pakistan Corona Cases: पाकिस्तानच्या पंजाब प्रांतात कोरोना रुग्णांमध्ये वाढ; सरकारने घेतला Covid-19 चाचण्या पुन्हा सुरु करण्याचा निर्णय
--  Stock market today: Stocks edge higher on Wall Street in muted trading
--  Stock market today: Stocks edge higher on Wall Street in muted trading
--  Stock market today: Stocks edge higher on Wall Street in muted trading
--  Stock market today: Stocks edge higher on Wall Street in muted trading
--  Arbeitsmarkt: Bürgergeld: Heil sagt „Totalverweigerern“ den Kampf an
--  Auto kapot door wateroverlast in Heesch: is de gemeente aansprakelijk?
--  Congreso dispone gasto de S/60.000 en tarjetas de consumo adicionales a las de Navidad
--  कांग्रेस ने यूं ही नहीं की नागपुर में मेगा रैली, 2024 के चुनाव के लिए छिपे हैं सात बड़े कारण और संदेश
--  Top management blunders of the year, from the cringe-worthy to downright bizarre
--  Fresh respite for defected Rivers lawmakers as court extends interim order against INEC, PDP
--  Gypsy Rose Blanchard, Abuse Victim Convicted in Mother’s Murder, Released From Prison
--  พบเห็นสัตว์มีพิษ โทร.1677 ร่วมด้วยช่วยกัน พร้อมประสานช่วยเหลือ
--  “ეს მოგიტანთ წარმატებას” _ როგორ უნდა აღნიშნოთ 2024 წლის შემობრძანება ზოდიაქოს ნიშნის მიხედვით
--  В Молдавии могут совместить референдум о вступлении в ЕС с выборами президента
--  Дунав излезе от бреговете си в Будапеща - Труд
--  El sencillo truco casero para pegar las suelas de nuestras zapatillas sin gastar tiempo ni dinero
--  MCD बैठक में जमकर हंगामा, मेयर ने BJP के 4 पार्षदों को 15 दिनों के लिए किया सस्पेंड
+-  Android Auto to summarize messages with Google Assistant and AI
+-  Viejísimo esquema de fraude, nuevos ‘inocentes’: 20 flamantes estafados
+-  Reizüberflutung: So lebt es sich mit Hochsensibilität
+-  Meet MMA star Karlos Vemola and his Playboy model wife Lela who live with lions, crocodiles and SHARKS at home
+-  Charley’s Cheesesteaks Coming to Parmer Lane
+-  Αρκούδα παγιδεύτηκε για μία εβδομάδα σε παράνομη συρμάτινη θηλιά στην Αλβανία - Μεγάλη επιχείρηση διάσωσης
+-  The 10 rarest and most valuable coins revealed worth up to £130
+-  Otra muerte misteriosa en Rusia: aliado de Putin fue encontrado sin vida tras caer desde un tercer piso
+-  Powerball: los resultados de la lotería del 27 de diciembre en Estados Unidos
+-  Landslagsspelaren Matilda Vinberg lämnar Bajen
