@@ -1,51 +1,51 @@
 # Latest News
--  '나는 솔로 18기' 현숙, 자기소개=최고의 1분 "33세·핀테크 기업 데이터 분석가"
--  쿠키런: 킹덤, 중국 앱마켓 인기 2위…현지화 전략 적중
--  史蒂夫·鮑爾默預計每年將獲得10億美元的被動收入
--  Two-year-old girl drowns in backyard swimming pool in NSW
--  Wawancara Lee Sun Kyun Sebelum Meninggal Dirilis: Saya Jadi Lebih Sukses
--  El doble rasero de EEUU ante Israel y Rusia puede tener graves consecuencias internacionales
--  [속보] 尹 "독도 '분쟁지역' 기술, 결코 있어선 안될 일...즉각 시정하라"
--  Día de los Inocentes: qué es, cuál es su origen y por qué se celebra cada 28 de diciembre
--  Banjir: Masjid, surau diminta adakan solat hajat mohon kesejahteraan
--  “زومبي الغزلان”.. مرض قاتل يتلف الدماغ ويهدد البشر
--  Asian Stocks Open Higher On Fed Rate Hopes
--  Misi Harimau Malaya tempa sejarah
--  An Insulin Injection That Lasts For Days: A New Hope For Diabetics
--  [오피셜] '나폴리 시절 김민재 동료' 북마케도니아 MF, 이제 적으로 만난다...라이프치히 이적 확정
--  '코리안 가이가 해냈다' 황희찬, 브렌트포드전 멀티골 → EPL 진출 후 첫 두 자릿수 득점 달성...울버햄튼은 4-1 대승
--  "동경하지 말자" 오타니 명언 인용한 'ML 투수 최고 몸값' 야마모토, 다저스 공식 입단
--  「H3」ロケット2号機 来年2月15日に打ち上げを発表 JAXA
--  Israeli strike kills three in south Lebanon: state media
--  凱旋苑2026年改為社宅 民進黨：現在就可解約、別想拖到選後
--  Complaint against Ranbir Kapoor for `Jai Mata Di` chant at Christmas party
--  Olympic champion pole vaulter Moon named Mumbai Marathon ambassador
--  Sushila floated like a butterfly and stung like a bee
--  Терапевт Романенко дала советы по сбору новогодней аптечки
--  Top Nigerian Newspaper Headlines For Today, Thursday, 28th December, 2023
--  Gesundheit | Warum Sitzen das neue Rauchen ist
--  Курс тенге на 28 декабря, цены на нефть и металлы
--  Franklin Salas: "Zubeldía no me dejó retirarme en Liga"
--  New orca calf spotted in Puget Sound
--  『バルダーズ・ゲート3』レビュー……をしようとしたが、レビューではない形でその面白さを伝えたい
--  Kouvolalaisten kirkkoherrojen nimissä lähetettiin huijausviestejä
--  Klima | San-Bernardo-Archipel: Karibik-Inseln sind dem Untergang geweiht
--  Засуха, проливные дожди и сбои в работе gosagro.kz
--  Emma Gilmour, first woman to drive for McLaren, on leaving prestigious motor racing team
--  Im Visier - „Eine Garantie gibt es nicht!“
--  Voranschlag 2024 - Zinsen steigen ins Unermessliche
--  Umbau der Volksschule - Projekt in Kirchschlag: „Wir drehen die Schule um“
--  Hus i Munka Ljungby har bytt ägare två gånger sedan 2021
--  Erleichterung in Gmünd - Strandbad-Betrieb für zehn Jahre gesichert - mit Ausblick auf Camping
--  63-åring ny ägare till mindre hus för i Grevie
--  Na današnji dan (28. december) …
--  Piratas del siglo XXI
--  You can’t reverse the ageing process but these five things can help you live longer
--  Qorxmayın, bunu edin, bayram manikürü daha effektli görünəcək
--  Kirkon kolehtituotot lähtivät uuteen lentoon koronan jälkeen – Tänä vuonna voidaan kerätä jopa yhdeksän miljoonaa euroa
--  El 12,4 % de los residentes en Bogotá consideran que su salud mental es mala
--  Accessorize has the perfect alternative to UGG's Tasman slippers - and they're only £13
--  Katso Kalevan listalta: Näin Pohteen asiakasmaksut nousevat ensi vuonna – Etävastaanotolla maksu on 15 prosenttia pienempi
--  Čas je za prvi vrhunec sezone
--  OD MARTA JOŠ 22 INOVATIVNA LEKA DOSTUPNA PACIJENTIMA U BOLNICAMA: Pogledate SPISAK za koje tačno bolesti su ovi lekovi!
--  El tenista ecuatoriano Gonzalo Escobar, sin el peso de los años
+-  Policy pivot, weak demand, property market uncertainty pose risks to financial stability: BOK
+-  Police rejected Lee's request for low-key appearance for questioning
+-  Mariah Carey and Bryan Tanaka split after 7 years together, dancer confirms
+-  '18년 SSG 원클럽맨→방출' 이재원, 재취업 성공...연봉 5천만원에 한화 입단
+-  عاجل.. الزكاة والجمارك توضح كيفية استرداد مبلغ ضريبة التصرفات العقارية
+-  نزيف الأنف عند الأطفال.. الأسباب والأعراض والعلاج
+-  गुना बस दुर्घटना पर CM मोहन यादव ने जताया गहरा दुख, जांच के दिये आदेश
+-  Трамп исключил возможность атак ХАМАС на Израиль при его победе на выборах в США
+-  เปิดกรุ "เศรษฐา" รวย 1,020 ล้าน นาฬิกา 38 เรือน - "ปานปรีย์" มี 161.7 ล้าน
+-  iQOO Neo9体验评测：红白之魂的碰撞，构建全游戏生态
+-  وفيات الخميس 28/ 12/ 2023
+-  Muere hombre tras riña en desponchado
+-  Versicherungspolicen: Diese 10 sind verzichtbar
+-  Sommer 2024: Mietwagen in Europa laut Analyse günstiger
+-  Olivia Rodrigo’s Guts is critics’ favourite album of 2023
+-  В Минобороны рассказали об уничтожении над Крымом двух беспилотников ВСУ
+-  Российская армия начала новую фазу наступления на Авдеевку
+-  Названо 6 сочетаний продуктов, которые погубят ваш организм
+-  Is garlic really that good for your health? Everything you need to know
+-  JA Solar's DeepBlue 4.0 Pro Achieves Prestigious Wind Tunnel PV Module Certification from TÜV NORD
+-  Sungrow Opens New Office Tower at Its Global Headquarters
+-  Embarking on 2024: Trip.com Group reveals top travel trends, AI revolution, and sustainable journeys
+-  고돼지, 2023년 제24회 한국프랜차이즈대상 회장상 수상
+-  মৃণাল-ফয়সালের দ্বন্দ্বে আতঙ্ক
+-  Названы самые популярные фразы телефонных мошенников
+-  [인사]한국산업단지공단
+-  Karnataka man who posed as IPS officer nabbed at Delhi airport
+-  Bergedorf: Modernste Bushaltestellen – aber ohne jeden Komfort
+-  এ বছর বিয়ের সানাই বেজেছে যাঁদের
+-  Startup本周摘要 (Week 25/12)
+-  ‘ธนกร’ ขอบคุณ ‘คมนาคม-กพท.’ เร่งแก้ตั๋วเครื่องบินแพง จ่อเพิ่มอีก 8 สายการบิน 60 ลำ
+-  Cabbies warned to uphold code of conduct
+-  "한땀갈비 캐시딜" 12월 28일 캐시워크 퀴즈 정답 공개
+-  클린스만의 아시안컵 명단설명 “김지수는 성장위해, 이기제 대표팀선 잘했어”
+-  Muere Jacques Delors, el "padre del euro"
+-  Ganjar Pranowo Janjikan Perbaikan Masalah Solar, Modal Usaha, dan Perizinan Kapal kepada Nelayan di Pacitan
+-  BREAKING: JDU-RJD Reach Seat Sharing Consensus For Lok Sabha Elections 2024, Say Sources
+-  Accused mushroom killer’s home targeted by Christmas Day thieves
+-  Karakol police hold garrison review ahead of New Year celebtrations
+-  Man City earn comeback win at Everton to go fourth
+-  [2023 제주경제대상] (주)씨에스
+-  제주신화월드 새해맞이 코스 불꽃놀이→푸른 용 놀이기구 추천
+-  제주 가계대출 감소세 지속 1년 새 1조원 ‘뚝’
+-  [2023 제주경제대상 종합대상] 한국에너지종합기술㈜
+-  [2023 제주경제대상 종합대상] 제주허브동산
+-  [2023 제주 경제대상] 인켈전기통신㈜
+-  [2023 제주 경제대상] 잇더컴퍼니
+-  [2023 제주경제대상 수상업체] 부문상 ㈜케어식스
+-  [2023 제주경제대상 특별상] 우남전력㈜
+-  [2023 경제대상 특별상] 제주국제대 창업보육센터 채용원 전문매니저
