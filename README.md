@@ -1,11 +1,51 @@
 # Latest News
--  Altında yıl sonu uçuşu! Rekora doymak bilmiyor
--  Yılbaşı Mesajları 2024! Resimli, Anlamlı, Kısa, Hoş geldin 2024 Sözleri, Yeni Yıl Kutlama, Tebrik Mesajları!
--  Son dakika... Marmaris'te 4 büyüklüğünde deprem!
--  चंद्रयान-3, आदित्य L1 और गगनयान... 2023 में ISRO की अंतरिक्ष में बड़ी छलांग
--  21-year-old charged with stealing N42,000
--  روسيا ترسل "شحنة إنسانية" إلى نيجيريا
--  प्रधानमन्त्री कार्यालयको ६८ दरबन्दी कटौती
--  “Ley ómnibus”: Milei busca facultades extraordinarias para marcar el rumbo
--  ارتفاع عدد الشهداء الصحفيين إلى 105 بغزة
--  Tabiat eş anlamlısı
+-  Kartal Kordonboyu açıklarında bir kadın cesedi bulundu
+-  Türk bankalarının kredi hacmi 11 trilyonu geçti
+-  #CANLI Cumhurbaşkanı Erdoğan'dan önemli açıklamalar
+-  Environnement. Le Grand Charolais lance un dispositif pour inciter au covoiturage
+-  Kina optužuje Tajvan da podiže vojne napetosti u predizborne svrhe
+-  Лукашенко уволил начальника управления СК по Брестской области
+-  Didier Deschamps privé d'Euro 2024 ? Toujours au "repos forcé", il affirme devoir "se ménager"
+-  Isak poručio Dodiku: Ako proglasiš nezavisnost u 11 sati, u 11:01 ćeš biti iza rešetaka
+-  Vietnam's Ha Long Bay losing its hue
+-  Teretni brod naletio na minu u Crnom moru, dvije osobe ozlijeđene
+-  اليونان تسلم المغرب أحد أخطر أمراء داعش في سوريا
+-  Newborn southern resident orca spotted in Puget Sound
+-  Tales of Seikyu Just Released Its Official Announcement Trailer
+-  2024 yemek ücreti zamlandı mı, yemek parası ne kadar oldu?
+-  Suşiye Diyarbakır dokunuşu
+-  Yeni asgari ücretle beraber ödenekler arttı! GSS primleri, 65 yaş aylığı, engelli maaşları, işsizlik ödeneği ne kadar oldu?
+-  Camianın tamamına sesleniyorum, eleştiri değil, destek zamanı
+-  Kilo kontrolü bağışıklık sistemini güçlendiriyor
+-  Konya TSYD İbrahim Sur’u unutmadı
+-  Neem leaves: వేపాకుతో శరీరానికి ఎన్ని లాభాలో.. దీనిని ఆహారంలో చేర్చుకుంటే..
+-  Potada Selçuk Üniversitesi farkı
+-  Gaza in 2024: Signs of more devastation, open-ended occupation
+-  Αφαίρεσαν τον τίτλο από πρωταθλητή στο σκάκι επειδή αφόδευσε σε μπανιέρα ξενοδοχείου
+-  Ruhi xəstəxanaların qorxulu görüntüləri: görün xəstələrin başına...
+-  충남 스마트팜 청년농업인 무담보·무이자 금융 지원
+-  신협, 지역사회공헌 인정기업으로 우뚝
+-  한은 대전세종충남본부, 업무수행 유공 기관·개인 총재 포상
+-  국힘 대전시당, 충청권 광역철도 1단계 착공 ‘환영’
+-  “외벽 창호 방화성능 기준 부재, 도봉구 화재 피해 키웠다”
+-  대전 서구 종합청렴도 2등급…지역서 가장 높아
+-  제방 붕괴 잦던 충남도 지방하천 4곳 국가하천 승격…지원 확대된다
+-  김지철 충남교육감 “내년 학교폭력·아동학대 예방 노력할 것”
+-  세종 언론인 선정 올해 최고 뉴스는 ‘세종의사당 통과’
+-  I earn £7,000 a month doing a job no one wants to do – I get weeks off at a time but it’s not for the faint-hearted
+-  충북 와인 우수성 해외서도 인정
+-  충청권 광역단체 낮은 공직 청렴도 개선책 필요
+-  내년도 청주페이 인센티브 7%로 시작
+-  유성구 미래 선도도시 조성 다짐
+-  박희조 대전 동구청장 CES 참관
+-  이봉희 신원건설 대표 증평장애인체육회에 성금 전달
+-  “새해, 청룡의 기운 받자” 충북 곳곳서 해맞이 행사 풍성
+-  포기하지 말라. 희망은 어둠에서 잉태돼 선물로 주어지리니…
+-  국가산단·방사청… 숙원사업 추진 동력 확보한 민선 8기 2년차 대전시
+-  “경쟁력 늘려라” 대학가, 학교 간 통합론 집중
+-  [대전 교육계 결산] 학폭위·교사 피습… 상처 많았던 한 해
+-  대전시의회 “내년 지혜롭게 위기를 기회로”
+-  지역 건설사업장 피해 최소화 위해 행정지원 나서야
+-  오면 어뗘
+-  구청장 업무의 시작은 민원 해결
+-  자연재해 사고로 얼룩진 계묘년
