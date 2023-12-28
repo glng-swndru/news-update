@@ -1,51 +1,51 @@
 # Latest News
--  KGHM planuje w 2024 r. wyprodukować 569 tys. ton miedzi
--  चाय के साथ ट्राई कीजिए ये निम्की,स्वाद ऐसा की कड़ाही से निकलते ही हो जाती खत्म
--  Jovem engole entorpecente durante abordagem da PM e acaba preso no Nortão
--  La FAA ordena inspecciones inmediatas del Boeing 737 MAX por problemas con el timón de dirección
--  Boeing insta a inspeccionar el 737 MAX por un posible perno suelto: FAA
--  Wall Street sube con los recortes de tasas en el punto de mira
--  NC CWC meeting continues
--  Japón también obligará a Apple a ofrecer alternativas a la App Store
--  TGB'den kampüste saldırı protestosu: Ülkücü maskeli çeteyi kim koruyor!
--  Kush është Dick Marty që çoi pas hekurave Hashim Thaçin e Kadri Veselin për trafikim organesh
--  Hospital Raúl Leoni de San Felix cuenta con dos nuevos quirófanos
--  Bigg Boss 17: Munawar Faruqui ends his friendship with Mannara Chopra
--  Jedna z największych akcji w historii CBŚP. Rozbito potężny gang
--  Qué propone sobre Bienes Personales la ley ómnibus de Javier Milei
--  Quinielas y loterías hoy: en vivo, todos los sorteos y resultados del 28 de diciembre de 2023
--  The tiny one-bed home that's so small you could mistake it for a side entrance
--  Liberya'da akaryakıt tankerinin patlamasının ardından 3 günlük ulusal yas ilan edildi
--  Binali Yıldırım: Terörle mücadeleyi tartışmaya açamayız
--  BM'den Gazze için uyarı üstüne uyarı!
--  Maximum ile Etstur arasında işbirliği
--  Adelantan producción de la Rosca de Reyes
--  Zambiya, kolera vakalarındaki artış sonrası önlemleri artırdı
--  Class of 2024: 35 new cars we’re looking forward to in South Africa
--  Bir günde 2 Facia! Kahramanmaraş'ta 22 araçlık zincirleme kaza!: 15 yaralı
--  JBS faz investimento milionário em duas fábricas no Planalto Norte de SC
--  Temblor en EE.UU. hoy, 28 de diciembre: la hora exacta, lugar y epicentro del nuevo sismo según informa el USGS
--  Kobna nesreća na stazi: Lider Svjetskog kupa ružno pao na spustu u Bormiju
--  Me strategji të re, propozohet rishikim i plotë i gjyqësorit
--  রাজধানী ঢাকায় ভয়াবহ বায়ুদূষণ, সতর্কতা জারি করতে চিঠি
--  Sony confirms CES 2024 attendance
--  Kínverskir rafbílar storma inn
--  Réglementation de la circulation des gros porteurs à Dakar : le gouverneur prend une décision forte
--  «Барыс» обыграл «Авангард» в КХЛ
--  Diego Leuco compartió un resumen para despedir el 2023 y un detalle llamó la atención: “Dejás la vara muy alta”
--  Rescue efforts underway to evacuate 10 people after plane crash in N.W.T.
--  Consumer cos expect volumes surge in 2024
--  “Mi vecino, el ladrón”: alquilaron una casa en un country para robar 500.000 dólares y cayeron por un golpe en San Isidro
--  Tomasz Stockinger przekazał smutne wieści. "Musimy być nastawieni na najgorsze"
--  أعراض جديدة للسرطان تشبه أعراض البرد.. احذروها
--  Landkreis Leipzig Entsorgung ausgedienter Weihnachtsbäume
--  IND vs SA: हार के बाद रोहित शर्मा ने भरी हुंकार, कहा- अगले टेस्ट में कमबैक...
--  Fillon cikli i dytë i programit studentor Smart Start
--  Doentes em macas amontoados nos corredores do Hospital de Penafiel
--  Джокович: «Я уверен, что Надаль тренируется с намерением выиграть турнир «Большого шлема»
--  EBRD'den Borusan Lojistik için 33,2 milyon dolar finansman
--  French skier Sarrazin wins eventful Bormio World Cup downhill. Schwarz airlifted to hospital
--  CP NewsAlert: Last Canadian kidnapped by Hamas, Judih Weinstein Haggai, declared dead
--  CP NewsAlert: Last Canadian kidnapped by Hamas, Judih Weinstein Haggai, declared dead
--  CP NewsAlert: Last Canadian kidnapped by Hamas, Judih Weinstein Haggai, declared dead
--  CP NewsAlert: Last Canadian kidnapped by Hamas, Judih Weinstein Haggai, declared dead
+-  Aus für Sappi-Werkfeuerwehr in Stockstadt - Kreisbrandrat erläutert neue Situation
+-  Pavimentan calles en Nuevo Triunfo
+-  Almanya'da bir göçmen, "Bu Afganistan için" diyerek Alman gencin yüzüne şişeyle vurdu
+-  (UŽIVO) PARTIZAN - VIRTUS: Crno-beli dočekuju tim iz Bolonje na zatvaranju polusezone u Evroligi! GROBARI SPREMILI KOREOGRAFIJU!
+-  F1-sarjassa on kaksi kuljettajaa, jotka eivät sinne kuulu
+-  BJ 바비앙, 끈만 있는 옷 입고 아슬아슬 섹시미…G컵 볼륨감 터질 듯
+-  르세라핌 김채원, 갈수록 물오르는 동화 속 공주님 미모
+-  Epic Games’in yeni ücretsiz oyunu belli oldu: 28-29 Aralık
+-  Strong R sound of some Lancashire accents in danger of dying out
+-  Наумов возвращается в "Витебск"
+-  Руцкий перешел из "Славии" в "Торпедо-БелАЗ"
+-  Иско продлил контракт с "Бетисом" до 2027 года.
+-  "Орша" назвала имя нового главного тренера
+-  Tonåringar döms för mordförsök i Uppsala
+-  রাশিয়া-ভারত যৌথভাবে সামরিক সরঞ্জাম বানাবে
+-  The Sun: Shqipëria mes destinacioneve të njohura për plazhet mahnitëse
+-  Лукашенко освободил от должности двух судей Верховного суда
+-  Amerikaanse olievoorraden flink gedaald
+-  Lokayukta forms three teams to prepare a report on waste dumping in vacant BDA sites
+-  Reagált a magyar katolikus egyház Ferenc pápa döntésére, mely jóváhagyta az azonos nemű párok megáldását
+-  Match delayed after third official gets stuck in a LIFT leaving confused players stranded in bizarre scenes
+-  Significativo revés para los acusados del femicidio de la trabajadora golondrina: qué arrojo el cotejo de ADN
+-  Usher and H.E.R. Get Steamy in 'Risk It All' Music Video
+-  Mercato - OM : C’est terminé pour le transfert de cet attaquant
+-  Grčki mediji: Kleinheisler propustio trening i stigao u Split
+-  Youth Arrested For Kidnap & Rape Of Minor Girl In Odisha’s Koraput
+-  El grupo hotelero de la familia Matutes paga 39 millones para desaparecer de la "lista negra" de Hacienda
+-  Sans surprise, les comptes épargnes sont mieux rétribués dans les banques en ligne
+-  Nikki Haley's Refusal to Blame Slavery for the Civil War Is an Insult to GOP Voters of Color | Opinion
+-  I must be from different planet, says Dyche after penalty decision
+-  Patient’ association worried over Gesy funds
+-  Velikan u golemim dugovima: Vatreni ih održao na životu, već su trebali biti debelo sankcionirani
+-  Aloja vera: Prirodno čudo za zdravu i sjajnu kosu
+-  PM to inaugurate new airport, redeveloped railway station in Ayodhya
+-  Fact Check: Will Ayodhya International Airport Be Named After Valmiki?
+-  After drawing flak, Neda insists lower food tariffs help Filipinos
+-  Judih Weinstein Haggai, Canadian woman kidnapped by Hamas, has died
+-  'Rude and inappropriate': Sophie Marceau remembers French icon Depardieu
+-  Rejtélyes hatása lehet, ha több parkolóhelyet épít Budapest
+-  Ukraine-Blog: DOSB-Chef rechtfertigt Russland-Kurs
+-  Firecrackers and fireworks harmful to pets, too–groups
+-  200 ‘mujahideen scholars’ complete tech-voc courses
+-  SWS poll: Just 3% of Pinoys will welcome new year with fear
+-  Es oficial: publican decreto sobre despenalización del aborto en Aguascalientes
+-  Concerted lobbying for betterment of rail services for Coimbatore region yielding desired outcome
+-  Pablo Iglesias pide a las bases de Podemos rechazar la coalición con Sumar y pedir el voto para el BNG
+-  مشهد صادم.. أطلق النمر على صديقه في مزحة داخل قصره
+-  شاهد.. أمطار غزيرة وبرد كثيف جنوب حائل
+-  عاجل.. تنبيه مهم من الدعم السكني بشأن الرهن العقاري
+-  Parsberg: Gewaltverbrechen in der Oberpfalz – zwei Tote und ein Verletzter
