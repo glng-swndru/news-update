@@ -1,51 +1,51 @@
 # Latest News
--  OCHA: “L’ampleur des attaques et des dégâts empêche l’acheminement de l’aide vers G-a-z-a”
--  Wrexham losing "a tonne of money" after stadium gamble backfired
--  Detenidas dos mujeres con 120 dediles de cocaína en sus cuerpos
--  Джокович отсече за Алкарас: Той е...
--  Diváci v Topoľčanoch videli strelecké hody, v záverečnej tretine padlo 9 gólov
--  Vídeo de sexo de anime teve aumento nas buscas do Google em 2023. Saiba o mês mais buscado!
--  Arkansas Storm Team Blog: Flurries, light snow possible Friday
--  Noteworthy Celebrity Instagram 'Unfollows' of 2023 (Including Rumored Drama, Perceived Disses, & 1 Who Lost 8 Celeb Followers)
--  Bar: Dodijeljeni paketići za djecu bez roditeljskog staranja
--  Joao Cancelo names Frenkie de Jong as his ‘most surprising’ player at Barcelona
--  Ärzte schließen Praxen: Lauterbach hält Forderung nach mehr Geld für unbegründet
--  Newcastle urged to sign former Man Utd star on FREE transfer by club legend Alan Shearer after Forest horror show
--  FOTO: Izlio se Dunav u Budimpešti, voda došla do zgrade parlamenta
--  News24 | Friday's weather: Fine and warm, but expect thunderstorms in some parts of the country
--  „Luftschlösser“ in Bayern: Bund Naturschutz will Söder zur „Besinnung“ rufen
--  Európska únia vyplatila Poľsku prvých päť miliárd zo zmrazenej pomoci
--  Letecké nešťastie v Nepále si vyžiadalo 72 mŕtvych: Chyba bola na strane pilotov!
--  Hnutie Slovensko vyzýva prezidentku, aby nepodpísala novelu kompetenčného zákona
--  The 5G Future: 3 Stocks Leading the Next Communication Revolution
--  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
--  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
--  Sky Sports host Anna Woolhouse stuns in daring outfit of see-through top & silver trousers for World Darts Championship
--  انتقال ۵ زندانی محکوم به اعدام به سلول‌های انفرادی زندان ارومیه
--  CryptoQuant: "'Buy the Rumor, Sell the News' Scenario May Occur in Bitcoin and BTC Price May Make a Major Correction!"
--  Delincuentes fuertemente armados robaron entidad bancaria de Durán
--  Ce raccourci incroyable découvert par les joueurs de Baldur’s Gate 3 après des centaines d’heures
--  ALULA WIRD MIT DEM ERSTEN ALULA-FALKEN-CUP-TURNIER ALS ERSTE HEIMAT FÜR HISTORISCHEN SPORT IN SAUDI ARABIEN GESTÄRKT
--  Руската ЦИК даде на Борис Надеждин да продължи кампанията си за участие в президентските избори
--  Nach Luftangriff mit Dutzenden Toten: Israel äussert Bedauern
--  TMW Radio - Jacobelli: "Non dimentico il rigore scandaloso dato al Newcastle contro il Psg: Milan eliminato poi"
--  ¡Pilas! Si transfieres de Nequi a una cuenta hoy, se reflejará hasta 2024
--  TOP NEWS ore 17 - Le parole dei tecnici di Serie A. Il Real Betis ha blindato Isco
--  Svetislav Pešić podržao mlade nade Bosne, dobio i zanimljiv poklon
--  Transplant season 3 exclusive clip: Bash under pressure
--  Jandarmadan sanal devriye! 1045 internet adresine erişim engeli
--  Avcılar'da otomobil ile yolcu minibüsü çarpıştı: 3 yaralı
--  Dog with horrific injuries saved after being cruelly dumped in a hedge on Christmas Day
--  Taylor Swift and Travis Kelce exchange extravagant gifts during intimate Christmas
--  Mario Giordano: "Ammiro Italiano ma spero nella riconferma di Juric"
--  Amanda Holden suffers huge mishap after giving fans a glimpse inside lavish Surrey home
--  Poliisi: Joulupukki mokasi
--  Gavrankapetanović imenovan za generalnog direktora KCUS-a
--  S&P/TSX composite slips, U.S. markets tick up
--  Fresh round of weather misery for Scots as New Year set to bring heavy rain & snow
--  Donacije javnim ustanovama za djecu i mlade sa smetnjama u razvoju
--  Jede zweite Rettungskraft der Feuerwehr hat Angriffe erlebt - nicht nur an Silvester
--  Eins og að kvarta undan fréttaflutningi af eldgosi
--  Researchers find risk of miscarriage increases with benzodiazepine use in pregnancy
--  Fannys bästa tips – så dukar du upp till fest på nyår
--  Fannys bästa tips – så dukar du upp till fest på nyår
+-  Indef: E-commerce Dominasi Pertumbuhan Ekonomi Digital Indonesia
+-  Dit is de Nederlandse selectie voor het EK shorttrack 2024: Suzanne Schulting ontbreekt
+-  استقبال حافل لأبطال جولف الخليج
+-  Полша получи първите пет милиарда евро от замразените еврофондове
+-  Fiorentina-Torino, i convocati: non c’è Nico Gonzalez nei viola
+-  Man sentenced to 14 years for smuggling 26kg of cannabis
+-  Trickster: Antonio Banderas "obsessed" with Christmas song, new 'God Save The King' session at Abbey Road, as video hits 1M views on YouTube
+-  إيسكو يمدد عقده مع ريال بيتيس حتى 2027
+-  العين يواجه ناساف في ثمن نهائي دوري أبطال آسيا
+-  Offizieller Start zu bundesweiter Sternsinger-Aktion
+-  Vyšetrovatelia zistili, čo bolo príčinou hrozného leteckého nešťastia v Nepále
+-  Velika nada Partizana neočekivano otišla u Ameriku
+-  Yer Zonguldak... 2 kız çocuğuna cinsel istismar davasında 8 tahliye: Alkışlarla kutladılar!
+-  InventHelp Inventor Develops Full Coverage Coat for Dogs (MBQ-368)
+-  القسام تسقط طائرة استطلاع إسرائيلية بتل الزعتر
+-  Huijausviestejä on liikkeellä, varoittaa oikeusministeriö
+-  Kebakaran Sekolah Menghanguskan 32 Ruang Kelas di Bengkulu
+-  XETRA-SCHLUSS/Leichte Verluste am letzten vollen Handelstag 2023
+-  Beto Ortiz despide a Pedro Suárez Vertiz: “Ahora que partió, recuerdo que él se preguntaba por qué lo queremos tanto”
+-  Liberal mayors push Biden for emergency declaration, additional funding to deal with migrant crisis
+-  Citypress | Moments of silence in honour of the late Mbongeni Ngema - PSL
+-  How many games will Mohamed Salah miss because of AFCON and when will he return? Liverpool talisman missing key fixtures
+-  EEUU: No más dilatorias para conocer información clasificada, exige abogada del expresidente Hernández
+-  Soccerladuma | Portugal Boss Drops Ronaldo Retirement 'Hint'
+-  Hasina says elections can be participatory without BNP if voters come to vote
+-  CAC40 : en léger repli dans des volumes restreints
+-  Plateau Killings: Perpetrators Will Not Go Unpunished – FG
+-  Priveli su požeškog HDZ-ovca, policija za 24sata: 'Provodimo kriminalističko istraživanje...'
+-  «Локомотив» назвал имена соперников на зимних сборах
+-  La Audiencia Nacional rechaza asumir la investigación sobre la presunta estafa piramidal del Grupo Herrero Brigantina
+-  Antonio Ricci: “Il caso Giambruno? Ho agito in buona fede. Meloni non ha speso una parola per le donne che erano in studio con lui”
+-  Anti-corruption authority to release findings on alleged legal service conflicts
+-  Quintuple homicide à Meaux : le père de famille mis en examen et écroué
+-  भारत 5 साल में 50 सैटेलाइट लॉन्च करेगा:ये खुफिया जानकारी जुटाएंगे; ISRO चीफ सोमनाथ ने G20 सैटेलाइट के लिए मदद मांगी
+-  3 ứng dụng có lượng người dùng lớn tại Việt Nam
+-  Body found on Cardigan Bay beach
+-  Diaľničná patrola tento rok pomohla množstvu motoristov, na cestách vyriešila takmer 21-tisíc incidentov
+-  «أربعين المريعي» تبدأ.. شتاء شديد البرودة حتى 5 فبراير
+-  Aktien Schweiz vom festen Franken gedrückt
+-  POVREĐEN MC STOJAN! Incident u kafiću u Sopotu, obaveštena i policija - reper zadobio povredu noge
+-  GWR: Asantewa Enters Day 4 Of Sing-A-Thon
+-  Egea fiyatına Honda City fırsatı! Leblebi gibi gidecek
+-  Kassam Tugayları, İsrail askerlerini vurduğu anları paylaştı
+-  Declan Devine on hunt for more defensive cover after Bohemians boss confirms return of Rob Cornwall
+-  Demanda contra Microsoft y OpenAI y otros clics tecnológicos en América
+-  WWE NXT Leaving TNT Sports In the UK, Exclusive to WWE Network
+-  La grosse surprise de Youssou Ndour à Omar Pêne
+-  Praja Palana: ప్ర‌జాపాల‌న‌కు భారీ స్పంద‌న, తొలిరోజే వేలల్లో అప్లికేష‌న్లు, మొత్తం రాష్ట్రవ్యాప్తంగా ఎన్ని అప్లికేష‌న్లు వ‌చ్చాయంటే?
+-  Wellinger górą, Polacy znów słabo. Pierwszy akord Turnieju Czterech Skoczni
+-  Τσιμίκας: Ανέβασε story με τον επίδεσμο στον ώμο του
