@@ -1,51 +1,11 @@
 # Latest News
--  התעשייה האווירית הגיעה לשיא הזמנות חדש: 21 מיליארד דולר
--  Τσιτσιπάς: Δικός του ο καλύτερος πόντος με το backhand στο Roland Garros 2023
--  [오피셜] '한때 레알 마드리드 에이스 → 부활 성공' 이스코, 베티스와 2027년까지 재계약
--  Kolędowanie z Kaniorowcami
--  Ζάλγκιρις - Μακάμπι 70-78: Όρθωσε το ανάστημά του στο Κάουνας ο Νίμπο
--  Gabriel Noriega terminó líder de bateo en la temporada regular de la Lvbp
--  బందరు పోర్టు పనులు వేగవంతం
--  تعطل منبه آيفون 15 عن العمل.. تعرف على السبب
--  مساحته تعادل نصف البرتغال.. تفاصيل مذهلة عن تجمع لـ 150 بركاناً في صحراء عربية
--  МВС провели всеукраїнські навчання на випадок надзвичайних ситуацій
--  Nagyon kikaptak a Macik
--  Esta es la nueva materia que tendrían los alumnos de educación básica y nivel medio superior en México
--  Cicpc detuvo a hombre que agredía salvajemente a su madre de 73 años en Trujillo
--  Alpes du Nord : deux morts dans une avalanche, un mort dans une chute de 500 mètres
--  Mπάσκετ: Πρόστιμο σε Παναθηναϊκό, απαλλάχτηκαν Άρης, ΠΑΟΚ και Περιστέρι
--  కృష్ణ కవిత్వం సకల అభిరుచుల సమ్మేళనం
--  పారిశుధ్య కార్మికుల వినూత్న నిరసన
--  Checa aquí recomendaciones de la JMAS para el drenado y protección de tuberías ante descenso de temperaturas
--  MN - Garbo: "Il Milan ha bisogno di una prima punta, in più la difesa va rinforzata a tutti i costi"
--  ప్రభుత్వ నిర్లక్ష్యం వల్లే సమ్మెలోకి..
--  İzmir'de 1045 internet adresine erişim engellendi
--  Palmeiras tem acordo encaminhado para renovar contrato de Weverton
--  Guterres 2023'ü 'şiddet dolu' olarak tanımladı... "İnsanlık acı çekiyor"
--  Ebu Ubeyde'den dünyaya Gazze tepkisi... "Vicdansız suçlular ve aciz seyirciler"
--  İsrail zulmü Doğu Kudüs ve Batı Şeria'da da aynı... "Eşi görülmemiş seviyede çocuk öldürüldü"
--  Ve transfer hayırlı olsun! Fenerbahçe'nin kasası Bright Osayi-Samuel ile dolacak
--  Hamas'tan barışın tesisi için kritik çağrı... "Her türlü öneriye açığız"
--  Fransa açıklarındaki gemide yangın... 20 Türk denizci tahliye edildi
--  Hogy megnőttek: Delhusa Gjon három férfival ünnepelte a karácsonyt – fotó
--  Streaming video in Italia, primi 9 mesi del 2023: in crescita il tempo trascorso su NOW
--  మునేటికి తెలంగాణ రైతుల గండి
--  న్యూ ఇయర్‌ వేడుకలకు అనుమతి తప్పనిసరి
--  ఇసుక అక్రమ తవ్వకాలపై గనుల శాఖకు ఫిర్యాదు చేస్తా
--  Стало известно о приглашении Смолова на голую вечеринку Ивлеевой
--  సీఎంకు అంగన్వాడీల పోస్టుకార్డులు
--  Najavio sukob: Jesu li Dodikove prijetnje konačno shvaćene ozbiljno!?
--  Tanti: municipio cobra hasta $ 10 mil por atención de especialidades médicas a quienes no sean sus vecinos
--  VIDEO: Se descuida chofer de tráiler y pobladores le roban su cargamento
--  Yozgat'ta DEAŞ Operasyonu
--  Παρτιζάν-Βίρτους 75-77: H μεγάλη απόδραση από το Βελιγράδι
--  Estados Unidos firma Ley FEPA para perseguir penalmente a personajes extranjeros corruptos
--  بريطانيا: بلاغ كاذب عن حريق في برج بلاكبول
--  Η Ινδία τα βάζει με την Apple μετά το σκάνδαλο παρακολουθήσεων από την κυβέρνηση
--  Et liv i KGBs klør
--  కేజీబీవీ టీచర్లకు షోకాజ్‌
--  నర్సీపట్నంలో క్షీణిస్తున్న పారిశుధ్యం
--  Exército de Israel afirma ter coletado milhões de arquivos do Hamas em Gaza
--  Zum Tod des Politikers: Diese stern-Titelbilder dokumentieren das bewegte Leben von Wolfgang Schäuble
--  TURSKI DERBI PRIPAO FENERU: Efesu nedovoljno i 28 poena Šejna Larkina
--  3 kadını katledip ''ben kadın düşmanı mıyım'' diye sordu
+-  Varené víno podľa známeho šéfkuchára: Pridáva niečo, čo bežne dávame do polievky!
+-  Prima reacție a premierului Ciolacu, după tragedia de la Ferma Dacilor: Toată lumea va plăti / Nu pot să înţeleg să nu ai nici detector de fum într-o pensiune
+-  “Bəşəriyyət əziyyət çəkir”
+-  双芯加持+蓝厂调教 iQOO Neo9 Pro这是要干翻游戏手机的节奏
+-  مسلم لیگ ن کے صدر شہباز شریف کراچی پہنچ گئے، ایجنڈا سامنے آ گیا
+-  مأزق الإطار الخاص مرة أخرى ..| كتب جمال لقم
+-  La increíble teoría de Gonzalo Aziz sobre el "No la ven" que fue desmentida por los tuiteros libertarios
+-  Itali/2-vjeçari humb jetën pasi gëlltit një pjesë të lodrës
+-  Tanger : Des projets générateurs de revenus au profit d’anciens détenus dans des affaires de terrorisme
+-  Nīderlandes armijas komandieris: “Mūsu sabiedrībai būtu jāsagatavojas karam ar Krieviju”
