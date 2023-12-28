@@ -1,11 +1,51 @@
 # Latest News
--  Incendiu la Ferma Dacilor. Şeful ISU Prahova și-a dat demisia în urma tragediei de la Tohani
--  News24 | 2023 climate power rankings: The year heat came to stay
--  AEX hoger geopend
--  EC makes necessary preparation for nomination for NA election
--  [창백한 푸른 지구] 해상풍력발전이 고래를 죽인다고?⋯ 진짜 위협은 OOOO
--  Todos los estrenos de Netflix de enero
--  Todos los estrenos de Netflix de enero
--  Rama publikon pamjet nga Alpet: Dikur të izoluara gjatë gjithë dimrit, sot frekuentohen nga turistë
--  Uoči ponavljanja izbora na 30 mjesta, u Srbiji sinoć počela izborna tišina
--  Air Montenegro dogodine znajačno povećava broj letova između Tivta i Beograda
+-  2024 Doğum ve Askerlik Borçlanması Ne Kadar Oldu?
+-  Kahramanmaraş'ta zincirleme kaza: 15 kişi yaralandı
+-  Birbirlerine düştüler! DEM Parti sözcülüğüne soyunan CHP'den İYİ Parti'ye Gara hatırlatması
+-  Rekabet Kurumu: Karteller fiyat ve ücret müdahaleleri kırmızı çizgimiz
+-  İstanbul Boğazı'nda kılavuz kaptan ihtiyacı artıyor
+-  Trabzonspor'da 4 futbolcuya yol gözüktü
+-  DHMİ'den yeni düzenleme
+-  İsrail'in Lübnan'a yaptığı hava saldırısında 2 Avustralya vatandaşı hayatını kaybetti
+-  Alperen Şengün'ün 24 sayısı Rockets'a yetmedi
+-  '김학범 사단 완성' 제주, 2024시즌 코칭스태프 구성 확정
+-  إليك أسباب عناد الطفل وعصبيته
+-  ايران: إسرائيل لن تحقق أهدافها من الحرب
+-  李善均逝世丨傳媒YouTuber擅闖靈堂拍攝引騷動！經理人公司出聲明：難以承擔的殘忍
+-  [비즈&] 롯데백화점, '가장 혁신적인 백화점 상위 10' 선정 外
+-  Турската полиция се сдоби с луксозни патрулки
+-  Ušli u povijest: Hrvatski prvoligaš ima najgori napad u elitnim rangovima svih europskih država
+-  Bitcoin e Crypto: 2024 “anno di svolte cruciali”, l’analisi
+-  Euroleague: Σφαιρόπουλος VS Παναθηναϊκός πράξη 10η (vids)
+-  INSÄNDARE: Bussdepån är bra långsiktigt för klimatet
+-  The children with a one-in-four chance of finishing school
+-  Wife Stabs Husband In His Eyes With Scissor: यूट्यूबची मजा...आयुष्यभराची शिक्षा! बायकोच्या फोनवर गाणी ऐकणे पतीला पडलं महागात; पत्नीने कात्रीने वार करून फोडले डोळे
+-  Natti Kumar: ఆర్జీవీ ఒక డైరెక్టర్.. వైసీపీ వాళ్లు డబ్బులిస్తే ‘వ్యూహం’ తీశాడు
+-  Australia oo sheegtay in Israel ay duqayn ku dishay laba ka mid ah muwaadiniinteeda
+-  У Чорному морі на ворожій міні підірвалося цивільне судно під прапором Панами - Сили оборони Півдня
+-  Dodik: Kad proglasimo nezavisnost, očekujem da EUFOR-a spriječi sukob
+-  Во сообраќајна несреќа во Италија загинаа тројца болничари и пациент во судир на амбулантно возило и автобус со деца
+-  PES: Nastavak hapšenja dokaz da je Abazović govorio neistine
+-  Валиева — о неудачах: поплакала, пострадала — и пошла работать
+-  VIDEO: बाबर ने जिस गेंदबाज को 3 साल में सिर्फ 2 मैच खिलाए, उसने ऑस्ट्रेलिया में कर दिया कमाल, फेंकी अद्भुत गेंद
+-  Espectacular Luna Fría en Donostia
+-  Кенозерскому национальному парку исполнилось 32 года
+-  Eljif Elmas'ın Leipzig transferi Fenerbahçe'ye de kazandırdı!
+-  It's a Wags life! Jack Grealish's girlfriend Sasha Attwood jets off for 17 holidays in one year
+-  നിങ്ങളുടെ മക്കള്‍ക്ക് ആത്മവിശ്വാസം തീരെയില്ലെന്ന് തോന്നിയിട്ടുണ്ടോ?
+-  Petra Vlhová ide vo štvrtok obrovský slalom v rakúskom Lienzi (online)
+-  «Продвижение противника было остановлено»: в ВС РФ заявили об отражении попытки атаки ВСУ на Краснолиманском направлении
+-  Stopaj Gelişmesi! Türk Lirası Mevduatları ve Katılım Hesapları İçin Yeni Tarih Belirlendi
+-  UP Shocker: बागपत में चाय मांगने पर महिला ने पति पर कैंची से हमला किया, आंख में घोंपा चाकू
+-  Τσιόδρας για γήπεδα: «Δεν ανοίγουν πριν από τις 12 Φεβρουαρίου»
+-  Arrestohet një person me shtetësi turke në aeroportin e Prishtinës
+-  В Пензе запустили центр помощи «Дети в семье»
+-  Easy like Sunday morning
+-  Body of kayaker found off Mornington Peninsula beach
+-  Las ramas llegan hasta mitad de la carretera
+-  Азербайджан нашел еще один повод для споров с Арменией и пригрозил последствиями
+-  Ganjar: 400 Triliun Mau Digunakan untuk Makan Siang?
+-  В Невинномысске ураганный ветер с корнем вырвал тополь рядом с колледжем
+-  G-Dragon Hampir Perbarui Kontrak dengan YG, Tapi Gagal Gara-Gara Kesalahan Besar Agensi
+-  „Финска прва ќе настрада!“: Руски функционер им се заканува на соседните земји кои влегуваат во НАТО
+-  Претепан доктор на клиника во Белград, има сериозни повреди на главата
