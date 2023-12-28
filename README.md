@@ -1,51 +1,51 @@
 # Latest News
--  Policy pivot, weak demand, property market uncertainty pose risks to financial stability: BOK
--  Police rejected Lee's request for low-key appearance for questioning
--  Mariah Carey and Bryan Tanaka split after 7 years together, dancer confirms
--  '18년 SSG 원클럽맨→방출' 이재원, 재취업 성공...연봉 5천만원에 한화 입단
--  عاجل.. الزكاة والجمارك توضح كيفية استرداد مبلغ ضريبة التصرفات العقارية
--  نزيف الأنف عند الأطفال.. الأسباب والأعراض والعلاج
--  गुना बस दुर्घटना पर CM मोहन यादव ने जताया गहरा दुख, जांच के दिये आदेश
--  Трамп исключил возможность атак ХАМАС на Израиль при его победе на выборах в США
--  เปิดกรุ "เศรษฐา" รวย 1,020 ล้าน นาฬิกา 38 เรือน - "ปานปรีย์" มี 161.7 ล้าน
--  iQOO Neo9体验评测：红白之魂的碰撞，构建全游戏生态
--  وفيات الخميس 28/ 12/ 2023
--  Muere hombre tras riña en desponchado
--  Versicherungspolicen: Diese 10 sind verzichtbar
--  Sommer 2024: Mietwagen in Europa laut Analyse günstiger
--  Olivia Rodrigo’s Guts is critics’ favourite album of 2023
--  В Минобороны рассказали об уничтожении над Крымом двух беспилотников ВСУ
--  Российская армия начала новую фазу наступления на Авдеевку
--  Названо 6 сочетаний продуктов, которые погубят ваш организм
--  Is garlic really that good for your health? Everything you need to know
--  JA Solar's DeepBlue 4.0 Pro Achieves Prestigious Wind Tunnel PV Module Certification from TÜV NORD
--  Sungrow Opens New Office Tower at Its Global Headquarters
--  Embarking on 2024: Trip.com Group reveals top travel trends, AI revolution, and sustainable journeys
--  고돼지, 2023년 제24회 한국프랜차이즈대상 회장상 수상
--  মৃণাল-ফয়সালের দ্বন্দ্বে আতঙ্ক
--  Названы самые популярные фразы телефонных мошенников
--  [인사]한국산업단지공단
--  Karnataka man who posed as IPS officer nabbed at Delhi airport
--  Bergedorf: Modernste Bushaltestellen – aber ohne jeden Komfort
--  এ বছর বিয়ের সানাই বেজেছে যাঁদের
--  Startup本周摘要 (Week 25/12)
--  ‘ธนกร’ ขอบคุณ ‘คมนาคม-กพท.’ เร่งแก้ตั๋วเครื่องบินแพง จ่อเพิ่มอีก 8 สายการบิน 60 ลำ
--  Cabbies warned to uphold code of conduct
--  "한땀갈비 캐시딜" 12월 28일 캐시워크 퀴즈 정답 공개
--  클린스만의 아시안컵 명단설명 “김지수는 성장위해, 이기제 대표팀선 잘했어”
--  Muere Jacques Delors, el "padre del euro"
--  Ganjar Pranowo Janjikan Perbaikan Masalah Solar, Modal Usaha, dan Perizinan Kapal kepada Nelayan di Pacitan
--  BREAKING: JDU-RJD Reach Seat Sharing Consensus For Lok Sabha Elections 2024, Say Sources
--  Accused mushroom killer’s home targeted by Christmas Day thieves
--  Karakol police hold garrison review ahead of New Year celebtrations
--  Man City earn comeback win at Everton to go fourth
--  [2023 제주경제대상] (주)씨에스
--  제주신화월드 새해맞이 코스 불꽃놀이→푸른 용 놀이기구 추천
--  제주 가계대출 감소세 지속 1년 새 1조원 ‘뚝’
--  [2023 제주경제대상 종합대상] 한국에너지종합기술㈜
--  [2023 제주경제대상 종합대상] 제주허브동산
--  [2023 제주 경제대상] 인켈전기통신㈜
--  [2023 제주 경제대상] 잇더컴퍼니
--  [2023 제주경제대상 수상업체] 부문상 ㈜케어식스
--  [2023 제주경제대상 특별상] 우남전력㈜
--  [2023 경제대상 특별상] 제주국제대 창업보육센터 채용원 전문매니저
+-  ЦАР ще си сътрудничи с американска военна компания
+-  Donald Trump denies bullying his way into 'Home Alone 2': 'Nothing could be further from the truth'
+-  Dense Fog To Cover Delhi-NCR, North India Till New Year's Day: IMD
+-  Kenyataan Tun M sombong – Shamsul Iskandar
+-  High Court: ‘వ్యూహం’ సినిమాపై నేడు హైకోర్టులో విచారణ
+-  Bệnh viện Sản Nhi Quảng Ngãi chính thức triển khai bệnh án điện tử
+-  Xét xử ông Diệp Dũng và đồng phạm trong vụ gây thất thoát 115 tỉ đồng
+-  Được hưởng giá FIT 'không đúng đối tượng': Các dự án có phải hoàn lại tiền?
+-  Quen nhau qua nhóm trên mạng, rủ nhau đi cướp ngân hàng
+-  ACB khuyến khích giao dịch qua ngân hàng số
+-  Kỹ sư xây dựng: Những kiến thức, kỹ năng cần biết
+-  Ngành cấp nước TP.HCM tranh tài nâng cao chất lượng phục vụ khách hàng
+-  Những món ăn dân dã ‘níu chân’ thực khách ở lại Hải Phòng ngày đông
+-  Saigontourist Group và Satra ký hợp tác chiến lược thúc đẩy du lịch, thương mại
+-  Công an gửi thư 'triệu tập' nạn nhân, có đúng không?
+-  Ông Kim Jong Un nêu định hướng năm 2024 cho Triều Tiên
+-  Ngôi sao châu Phi bị loại khỏi đội tuyển quốc gia vì tố huấn luyện viên trộm áo
+-  Tổng giám đốc Công ty Việt Á Phan Quốc Việt bị đề nghị tổng hình phạt 25 - 26 năm tù
+-  Báo Tuổi Trẻ khởi động chuỗi chương trình tư vấn tuyển sinh, hướng nghiệp 2024
+-  Sao Hàn đau buồn đứng không vững ở tang lễ tài tử Ký sinh trùng Lee Sun Kyun
+-  Nga và Ấn Độ sắp hợp tác sản xuất vũ khí
+-  Tác giả 9X được trao Giải thưởng Hội Nhà văn Việt Nam
+-  Gỡ điều kiện kinh doanh karaoke, vẫn còn nhiều quy định chồng chéo
+-  Cựu giám đốc Sở Y tế Tây Ninh bị đề nghị từ 5 - 6 năm tù
+-  Tạm hoãn xuất cảnh với giám đốc Sông Đà Thăng Long để truy thu nợ thuế
+-  Bí quyết nào giúp Hoàng Anh Gia Lai lột xác trước Hà Nội?
+-  Sinh viên ngược xuôi làm thêm, mong cái Tết đủ đầy hơn
+-  Phác thảo mới nhất về thuyền rồng, hoa xuân trên đường hoa Nguyễn Huệ 2024
+-  ‘Bí Đao khổng lồ’ dạo chơi tại phố đi bộ Hồ Gươm
+-  Loạt xe hybrid ra mắt Việt Nam năm 2023: Không có giá dưới 700 triệu đồng
+-  Sóng nước giao hòa, kết tình hữu nghị
+-  Hôn nhân hợp đồng rất lẩu thập cẩm mà vẫn hút
+-  Chi tiết 19 dự án giao thông trọng điểm dự kiến khởi công năm 2024
+-  Giải thưởng Sách quốc gia: Tôn vinh sách hay vì bạn đọc
+-  TP.HCM nghiên cứu hình thành vành đai công nghiệp - dịch vụ dọc vành đai 3, 4
+-  “청부심의 부끄럽다… 이렇게 막 나가는 방심위원장 있었나”
+-  민주당, 김홍일 후보에 “전문성 없어” “정치검사” “철면피” 성토
+-  웍스AI, GPT-4 터보 최신 AI 모델 상용화
+-  AI 스타트업 ‘주스’, 신개념 컬쳐 메타버스 앱 ‘아트버스’ 론칭
+-  MZ가 주목하는 새해 디지털 마케팅 트렌드는?
+-  파이랩테크놀로지·미래에셋증권, 웹3 생태계 인프라 공동 기술 개발
+-  코오롱베니트, DXR·&BD 강화 주심 조직 개편
+-  한국화웨이, ICT 인재 양성 프로그램 참가자 대상 시상식 개최
+-  디버, 다우오피스 도입으로 업무 환경 혁신
+-  아이엘사이언스, 전장부품 기업 ‘우수AMI’ 인수…모빌리티 밸류체인 확장
+-  “초경량 블록체인 기술로 IoT·모바일 기기 보안 강화”
+-  디케이테크인, 해양교통안전공단 ‘지능형 행정서비스’ 구축
+-  스타씨드, 엔젤투자 유치·벤처기업 인증…차세대 PR 기술 개발 가속
+-  마이리얼트립, 여행 SNS로 수익 창출 제휴 ‘마케팅 파트너’ 도입
+-  لماذا تتشقق الشفاه في الشتاء؟
