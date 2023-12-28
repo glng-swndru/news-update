@@ -1,51 +1,51 @@
 # Latest News
--  هل يلزم وجود مزرعة للاستفادة من الدعم؟ برنامج ريف يوضح
--  حرس الحدود بجدة يُنقذ بحاراً فرنسياً علق قاربه الشراعي بالشعب المرجانية
--  İlginç dakikalar... Depremde herkes kaçtı, onlar yemeğe devam etti
--  Gazze’ye insani yardım için 'deniz koridoru' açılmasına İsrail’den ön onay
--  مصرف التجارة والتنمية يعلن افتتاح عدد من الفروع
--  "L'erede di Sergio Ramos ha sedici anni e gioca nel vivaio del Real"
--  Dybala verso Juve-Roma: messaggio social della Joya, Soulé risponde così
--  Korihait kiri tasoihin, mutta sitten kävi näin...
--  Sport nujersi Tapparan jättiyleisön edessä – tuomarien loppuhetkien ratkaisut saivat tamperelaiskatsojat raivon partaalle
--  İsrail, GKRY ile oluşturulacak 'deniz koridoru'na ön onay verdi
--  Burundaki siyah noktaları önleyebilen yöntem! Meğer bu kadar basitmiş
--  Kassam Tugayları görüntüleri paylaştı... Gazze'deki işgalciler hedef alındı
--  Ana Radulović o hororu koji je prošla zbog lica
--  Tio ledamöter i Ingå vill göra om kommunens åkrar till ängar – eller kräva miljöåtgärder av bönderna
--  UŽIVO! PANATINAIKOS - ZVEZDA: Crveno-beli žele BREJK u paklu Atine protiv favorizovanog rivala!
--  U Vladi HBŽ-a upriličen prijam za novu Miss Hrvatske Tomislavu Dukić
--  لأول مرة في دولة الاحتلال.. مسيرة حاشدة تطالب بحل الدولتين (شاهد)
--  Przeładowany transport drewna
--  Haaland, fuera hasta enero
--  Ekipa In magazina doznala je zašto ljubav cvjeta u baletnom ansamblu splitskog HNK: ''Bilo je najprije druženje...''
--  ABŞ "Tesla"nın əli ilə Çinin elektromobil bazarını çökdürür
--  Ουκρανία: Ο Ζελένσκι διόρισε τον Βαντίμ Φιλάσκιν νέο περιφερειάρχη Ντονέτσκ
--  Roľníci zabili 10 členov drogového kartelu: Ten teraz uniesol 14 ľudí
--  Desalojado el joven de 21 años que vivía de 'okupa' en una mansión de 3 millones en Mallorca
--  Feuerwehralarm – weitergedacht
--  El Cabildo grancanario eleva en más de 6 millones las cuentas para Desarrollo Económico
--  Sin Toma Hanksa i Rite Wilson krenuo je stopama roditelja, a sada je Chet objavio rijetku fotografiju s tatom: ‘Banda‘
--  Εφές - Φενέρ 84-89: Με εξαιρετικούς Καλάθη-Παπαγιάννη πήρε τον τούρκικο εμφύλιο
--  Una palestina desplazada por la guerra entre Hamás e Israel da a luz a cuatrillizos
--  Zaginęła Wiktoria Kleczkowska. 16-latka nie wróciła z zakupów. Jest poszukiwana przez policję
--  VIDEO Uzburkano slijetanje zrakoplova u Londonu: Pri kraju leta zaplesao je s olujom Gerrit
--  Consulado RD en Miami celebra Navidad con emotivo mensaje a la diáspora
--  Skandal-Star MontanaBlack will sich Gesichtstattoos entfernen lassen
--  Sihvosen analyysi | Pidäkkeetöntä vauhtilätkää – "Kerhon pelitapa on tällä hetkellä jonkinlaisessa käymistilassa"
--  Garage in Rhadern geht in Flammen auf: Feuerwehr verhindert Schlimmeres
--  Mislili ste da su vaše kamate na kreditne kartice visoke? U ovoj zemlji plaćaju astronomske iznose!
--  خلفان مطر الرميثي في ذمة الله
--  Une femme marocaine et un couple britannique agressés au couteau à Agadir
--  Darts-WM, 3. Runde - Luke Humphries gegen Ricardo „Pikachu“ Pietreczko im Liveticker
--  Cancelo: «Ha sido muy fácil adaptarme al Barça»
--  Wall Street legt zu, während der S&P 500 mit einer Bestätigung des Bullenmarktes liebäugelt
--  Wall Street kruipt hoger terwijl S&P 500 flirt met bevestiging bullmarkt
--  Wall St en hausse, le S&P 500 flirte avec la confirmation d'un marché haussier
--  "OPEC 세계시장 점유율, 내년 전반 4년 만에 최저 27%밑 하락"
--  ليبيا والنيجر.. علاقات قديمة تواجه تحديات الهجرة غير الشرعية والجماعات المسلحة
--  Elon Musk proglašen jednom od najopasnijih osoba na internetu u 2023.
--  Украинские войска обстреляли город Каменка-Днепровская в Запорожской области
--  Vilnietis narkotikus pardavinėjo net per savo močiutės laidotuves – karsto išnešti nespėjo
--  Plagosja në Fier, policia: 26-vjeçari goditi me grushte efektivin
--  Des centaines de carrés orange et jaunes : l'étrange scène à laquelle ont assisté des passagers d'un avion en plein vol
+-  התעשייה האווירית הגיעה לשיא הזמנות חדש: 21 מיליארד דולר
+-  Τσιτσιπάς: Δικός του ο καλύτερος πόντος με το backhand στο Roland Garros 2023
+-  [오피셜] '한때 레알 마드리드 에이스 → 부활 성공' 이스코, 베티스와 2027년까지 재계약
+-  Kolędowanie z Kaniorowcami
+-  Ζάλγκιρις - Μακάμπι 70-78: Όρθωσε το ανάστημά του στο Κάουνας ο Νίμπο
+-  Gabriel Noriega terminó líder de bateo en la temporada regular de la Lvbp
+-  బందరు పోర్టు పనులు వేగవంతం
+-  تعطل منبه آيفون 15 عن العمل.. تعرف على السبب
+-  مساحته تعادل نصف البرتغال.. تفاصيل مذهلة عن تجمع لـ 150 بركاناً في صحراء عربية
+-  МВС провели всеукраїнські навчання на випадок надзвичайних ситуацій
+-  Nagyon kikaptak a Macik
+-  Esta es la nueva materia que tendrían los alumnos de educación básica y nivel medio superior en México
+-  Cicpc detuvo a hombre que agredía salvajemente a su madre de 73 años en Trujillo
+-  Alpes du Nord : deux morts dans une avalanche, un mort dans une chute de 500 mètres
+-  Mπάσκετ: Πρόστιμο σε Παναθηναϊκό, απαλλάχτηκαν Άρης, ΠΑΟΚ και Περιστέρι
+-  కృష్ణ కవిత్వం సకల అభిరుచుల సమ్మేళనం
+-  పారిశుధ్య కార్మికుల వినూత్న నిరసన
+-  Checa aquí recomendaciones de la JMAS para el drenado y protección de tuberías ante descenso de temperaturas
+-  MN - Garbo: "Il Milan ha bisogno di una prima punta, in più la difesa va rinforzata a tutti i costi"
+-  ప్రభుత్వ నిర్లక్ష్యం వల్లే సమ్మెలోకి..
+-  İzmir'de 1045 internet adresine erişim engellendi
+-  Palmeiras tem acordo encaminhado para renovar contrato de Weverton
+-  Guterres 2023'ü 'şiddet dolu' olarak tanımladı... "İnsanlık acı çekiyor"
+-  Ebu Ubeyde'den dünyaya Gazze tepkisi... "Vicdansız suçlular ve aciz seyirciler"
+-  İsrail zulmü Doğu Kudüs ve Batı Şeria'da da aynı... "Eşi görülmemiş seviyede çocuk öldürüldü"
+-  Ve transfer hayırlı olsun! Fenerbahçe'nin kasası Bright Osayi-Samuel ile dolacak
+-  Hamas'tan barışın tesisi için kritik çağrı... "Her türlü öneriye açığız"
+-  Fransa açıklarındaki gemide yangın... 20 Türk denizci tahliye edildi
+-  Hogy megnőttek: Delhusa Gjon három férfival ünnepelte a karácsonyt – fotó
+-  Streaming video in Italia, primi 9 mesi del 2023: in crescita il tempo trascorso su NOW
+-  మునేటికి తెలంగాణ రైతుల గండి
+-  న్యూ ఇయర్‌ వేడుకలకు అనుమతి తప్పనిసరి
+-  ఇసుక అక్రమ తవ్వకాలపై గనుల శాఖకు ఫిర్యాదు చేస్తా
+-  Стало известно о приглашении Смолова на голую вечеринку Ивлеевой
+-  సీఎంకు అంగన్వాడీల పోస్టుకార్డులు
+-  Najavio sukob: Jesu li Dodikove prijetnje konačno shvaćene ozbiljno!?
+-  Tanti: municipio cobra hasta $ 10 mil por atención de especialidades médicas a quienes no sean sus vecinos
+-  VIDEO: Se descuida chofer de tráiler y pobladores le roban su cargamento
+-  Yozgat'ta DEAŞ Operasyonu
+-  Παρτιζάν-Βίρτους 75-77: H μεγάλη απόδραση από το Βελιγράδι
+-  Estados Unidos firma Ley FEPA para perseguir penalmente a personajes extranjeros corruptos
+-  بريطانيا: بلاغ كاذب عن حريق في برج بلاكبول
+-  Η Ινδία τα βάζει με την Apple μετά το σκάνδαλο παρακολουθήσεων από την κυβέρνηση
+-  Et liv i KGBs klør
+-  కేజీబీవీ టీచర్లకు షోకాజ్‌
+-  నర్సీపట్నంలో క్షీణిస్తున్న పారిశుధ్యం
+-  Exército de Israel afirma ter coletado milhões de arquivos do Hamas em Gaza
+-  Zum Tod des Politikers: Diese stern-Titelbilder dokumentieren das bewegte Leben von Wolfgang Schäuble
+-  TURSKI DERBI PRIPAO FENERU: Efesu nedovoljno i 28 poena Šejna Larkina
+-  3 kadını katledip ''ben kadın düşmanı mıyım'' diye sordu
