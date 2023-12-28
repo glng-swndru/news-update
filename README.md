@@ -1,11 +1,11 @@
 # Latest News
--  นายกฯเศรษฐา มอบคำขวัญวันเด็กแห่งชาติ 2567 อยากให้ร่วมกันสร้างประชาธิปไตย
--  워크아웃 신청한 태영건설 "워크아웃 절차 성실히 이행··· 영업활동 큰 제약 없어"
--  Jets hope to play spoiler vs. defensively dominant Browns
--  Khandwa Gas Blast: गैस सिलिन्डर के गोदाम में आग लगने से दहशत,30 सिलेंडर ब्लास्ट
--  대법, '라임 환매 사태' 핵심 인물 김봉현 징역 30년 확정
--  Mark Cuban’s basketball control of Mavericks not in writing as team is sold
--  디에스에프엘앤아이, 한국ESG대상 소기업 제조부문 대상 수상
--  El Gobierno colombiano da un impulso a la economía popular y legal con programa crediticio
--  Samsung to Exhibit More C-Lab Startups Than Ever Before at CES 2024
--  کوپ 28: دو پاکستانی خواتین نے ’جینڈر جسٹ سلوشن ایوارڈ‘جیت لیے
+-  DL이앤씨, 'e편한세상 강동 한강그란츠' 내년 1월 분양
+-  DL이앤씨, 국내 첫 층간소음 예방 'D-사일런스 서비스' 도입
+-  산업은행, 태영건설 금융채권자 협의회 소집 통보
+-  삼양그룹, 사회복지공동모금회 이웃사랑성금 3억원 기부
+-  백내장 보험금 소비자 불만 급증...금융위, 지급기준 정비방안 마련 추진
+-  진성준 "이낙연, 대장동 제보 알았을 것…이재명 무고함 드러나면 책임져야"
+-  CJ푸드빌 N서울타워...연말연시 특별 프로모션
+-  관세청, 공공조달 '부정납품' 단속 체계 구축
+-  파리바게뜨, 청룡의 해 ‘2024 힘내세용 케이크’ 출시
+-  관세청, FTA 제도개선·금융지원…기업비용 1620억원 절감
