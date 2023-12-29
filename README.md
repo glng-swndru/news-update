@@ -1,11 +1,51 @@
 # Latest News
--  NGX ends 2023 on bullish note as ASI appreciates by 0.36%
--  ارتفاع حصيلة ضحايا العدوان الإسرائيلي على غزة إلى أكثر من 21 ألف شهيد.
--  الذهب يرتفع 14% في 2023
--  ارتفاع حصيلة شهداء غزة إلى 21 ألفاً و507
--  المنفي يتلقى مزيداً من التهاني من رؤساء وقادة الدول بمناسبة ذكرى الاستقلال .
--  Manu Kone on kuuma nimi - kolmen suurseuran ostoslistalla
--  Arsenal-hylkiö pihalle - manageri tekee tilaa tulijoille
--  ‘Pakistan is going to New Zealand, not Nepal’: Kamran Akmal on Babar Azam, Mohammad Rizwan not being rested
--  Kamira presenta el podcast “Historias de Vidas Gitanas”
--  Cory Morgan: I’ve Seen What State Dependency Does; Universal Basic Income Is No Path to Prosperity
+-  Avusturya'dan Bulgaristan ve Romanya'ya "Şengen" şartı
+-  Maça çıkmadılar! Süper Kupa maçı iptal oldu
+-  BM Genel Sekreteri Guterres'ten itidal çağrısı
+-  Hindistan'da hükümet ile ayrılıkçı örgüt anlaştı
+-  Tır ve kamyonet çarpıştı! 1 kişi öldü
+-  Tarımsal destek ödemeleri çiftçilerin hesabına aktarıldı
+-  Güney Afrika, İsrail'e "soykırım davası" açtı
+-  Taziye dönüşü feci kaza: 3 ölü
+-  Posadas: Falleció la tercera víctima por dengue
+-  صفاقس قرقنة رجة أرضية بقوة 4.5 درجات
+-  أسيرة إسرائيلية سابقة تفضح جيش الاحتلال
+-  وظائف شـاغرة ومدعوون للتعيين
+-  Organicore CBD Gummies [Shocking Side Effects] Legit Price Ingredients Where to
+-  Sretno, Boro! Hrvatski pikadist bori se za osminu finala SP-a
+-  Cameroun :: Association Cri Du Cœur 2023: Rapport D'activités :: Cameroon
+-  Humanitarian crisis worsens in Gaza as Israel’s aggressive attacks continue: UN
+-  Frau wegen Mordversuchs an Rollstuhlfahrer in U-Haft
+-  مستجدات ضريبية بدءا من 2024 .. إعفاء يشمل منتجات صيدلية ومواد مدرسية
+-  هكذا يجسد ميناء طنجة المتوسط أحد مظاهر الذكاء الاقتصادي بالمغرب
+-  من "نمر" إلى "قط وديع" .. الانتقادات الحادة تنهال على بنزيمة
+-  إثقال كاهل المواطنين بالوثائق وعدم تقيد الإدارات العمومية بالرقمنة يجر مزور للمساءلة البرلمانية
+-  استثمار صيني بقيمة تفوق 495 مليون دولار لانتاج 50 ألف بطارية ليثيوم بطنجة
+-  البطولة: مولودية وجدة ينتصر على نهضة الزمامرة بعقر داره
+-  فريق مولودية وجدة يفوز على مضيفه نهضة الزمامرة "0-1"
+-  تسجيل 105 إصابات جديدة ووفاتين بكورونا
+-  "كوفيد-19".. تسجيل 105 إصابة جديدة وحالتي وفاة خلال الأسبوع الماضي
+-  ضبط 3,4 طنا من الكوكايين بميناء أنفيرس
+-  Har du undret dig? Derfor er lyden så høj i biografen
+-  '구해줘 홈즈' 시그니처 포즈
+-  이은지, 예쁜 파이팅
+-  '놀면 뭐하니' 주역들, 러블리 하트
+-  Райимов Дониёр Ғапуровичнинг физика-математика фанлари доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Маматкабилов Абдилмажид Хужамуратовичнинг физика-математика фанлари доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Абдуллаев Улуғбек Хакимовичнинг техника фанлари бўйича фалсафа доктори (PhD) диссертация иши ҳимояси тўғрисида
+-  Μπάσκετ: Σκοτώθηκε ο παλαίμαχος διεθνής Ουκρανός, Βίκτορ Κομπζίστι από πυραυλική επίθεση στο Λβιβ
+-  Sharon Osbourne believes she has nothing left to 'stretch, pull or cut' after multiple cosmetic surgeries and vows to never go under the knife again
+-  సర్కారు మొండి వైఖరి వీడాలి
+-  Stormy Daniels Trial Is 'Best-Case Scenario' for Donald Trump: Analyst
+-  Zbog vikenda i Nove godine velike gužve na graničnim prelazima: Čeka se do dva sata
+-  పెరిగిన చలి తీవ్రత..
+-  Londres annonce l’envoi à l’Ukraine de 200 missiles anti-aériens
+-  Pehuenia: llega el bartender Iván Goodbar con lo último a la barra de Amarras, este 2 de enero
+-  ఆస్తులకు రక్షణ లేని.. భూ రక్షణ చట్టాన్ని రద్దు చేయాలి
+-  Ohio's Republican governor vetoes bill banning gender-affirming care for trans youth
+-  United në krizë, Dwight Yorke është pa shpresë: “Tashmë nuk i shoh më fare ndeshjet”
+-  JPMorgan-owned firm acts as payment processor for porn producer: report
+-  Mexican president inaugurates centralized ‘super pharmacy’ to supply medicines to all of Mexico
+-  Turning point for humanity? Artificial intelligence goes mainstream
+-  ఎస్‌ఎస్‌ఏ ఉద్యోగుల భిక్షాటన
+-  Influenciadora vai na academia apenas com pintura corporal para "experimento social" e divide opiniões na web. Vídeo!
