@@ -1,51 +1,51 @@
 # Latest News
--  Paritarias en Río Negro: el gobierno dice que no está en condiciones de aumentar los salarios
--  Германия — Ситуация в зонах наводнений остается угрожающей
--  Защита треш-блогера Хилми обжаловала приговор по делу об изготовлении порно
--  Гид с технологией дополненной реальности появится в Псковском музее в 2024 году
--  नाबालिक बलात्कार मुद्धामा सन्दिप लामिछाने दोषी ठहर
--  Jack Grealish'in başı hırsızlarla dertte! 1 milyon sterlinlik zarar...
--  Fahriye Evcen ile Burak Özçivit'in reklam ücreti dudak uçuklattı
--  Останкинскую телебашню проверяют из-за угрозы взрыва
--  ব্রাজিলকে ফাঁকি দিয়ে রিয়ালের সঙ্গে চুক্তি নবায়নে সম্মতি আনচেলত্তির
--  Ski alpin Weltcup 2023/24 Damen: Alle Ergebnisse: Dürr in Lienz Zweite - Nächste Gala von Shiffrin
--  TFF resmen açıkladı! Süper Kupa'da İstiklal Marşı okunacak
--  MasterChef 5. ceketi kim aldı? MasterChef All Star sonuncu finalist olan yarışmacı...
--  Samet Akaydin gemileri yaktı: Gitmek istiyor!
--  Kızılcık Şerbeti son bölüm izle 45.bölüm full izle! Kızılcık Şerbeti 45. bölüm izle full hd tek parça!
--  Galata Köprüsü'nde 1 Ocak'ta düzenlenecek Filistin eylemi için ortak çağrı
--  G.Saray'dan final öncesi dikkat çeken karar!
--  Son 24 saatte 15 işgalci İsrail askeri yaralandı
--  Paranızı boşa harcamayın! İşte burcunuza göre zengin olabileceğiniz meslek! Astroloji testi
--  Ve Nuri Şahin yeniden Borussia Dortmund'da! Alman ekibi resmen duyurdu
--  Man Utd 'mắc kẹt' với Sancho
--  McTominay mắc lừa Pogba
--  Chủ tịch Atletico Madrid nói thẳng về tương lai Felix
--  David Moyes nêu tên ứng viên vô địch Premier League
--  Indo tự tin hủy diệt ĐT Việt Nam nhờ ngôi sao nhập tịch
--  Xé lưới Arsenal, Mavropanos giải thích lý do không ăn mừng
--  Tạo địa chấn, "người cũ" nói thẳng về đẳng cấp của Arsenal
--  Thua West Ham, Arsenal nhận ra giá trị của tân binh 65 triệu bảng
--  Άρης: Για τον Φαμπιάνο δείχνει ενδιαφέρον ακόμα και ο ΠΑΟΚ
--  Блажевски: Јаневски е разрешен од директорската позиција, а не дека сам си понел оставка!
--  En distintas acciones la Policía se logró detener a dos jóvenes y recuperar varios objetos robados
--  Ukraine erleidet die schwersten Luftangriffe des ganzen Krieges: «Russland hat mit fast allem geschossen, was es in seinem Arsenal hat»
--  Så maxar du ledigheten nästa år
--  "C'est de bonne guerre": les policiers municipaux de Marseille en grève le 31 décembre?
--  Anses Córdoba: larguísimas colas en el último día hábil de 2023 por la AUH pese a la prórroga anunciada
--  बलात्कार मुद्दामा सन्दीप लामिछाने दोषी ठहर
--  DEG-DEG: Carlo Ancelotti Oo Heshiiskiisa Lagu Dhawaaqay
--  За год на Смоленщине произвели 7000 тонн кондитерских изделий
--  Yalova'da Zimmet Davasında Karar Çıktı! 18 Sanık Hapis Cezasına Çarptırıldı
--  Управление социального развития Серпухова вошло в десятку лучших
--  NSE CEO AshishKumar Chauhan extends New Year greetings to investors, urges them to be partner in India growth story
--  Rösti adelt radikale Windkraftgegner – doch ihre Freude ist wohl von kurzer Dauer
--  Más de 178.000 llamadas al teléfono de atención al suicido en un año y medio
--  Cataratas: fin de año y 1° de enero de 2024, el Parque permanecerá abierto en su horario habitual.
--  Inter Miami set to release new NFL-inspired third kit after Lionel Messi helps them break little known MLS rule
--  Kartat näyttävät, miten Suezin tilanne muutti jättivarustamon laivojen reittejä – Suuntana taas kriisialue, varustamo vaisuna
--  tokat zile'de bıçaklı kavga: Biri muhtar 2 kişi öldü, 4 kişi yaralandı
--  Heimatliebe und Brauchtumspflege: Seit 25 Jahren für Lautern aktiv
--  Live Streaming: Η παρουσίαση του Φατίχ Τερίμ από τον Παναθηναϊκό
--  Дети липецких военнослужащих побывали на Кремлевской елке
--  "La guerra contra el olvido": el EZLN conmemora tres décadas de su levantamiento en México
+-  شرطة كركوك تقرر التعامل مع مَن يُغطِّي أو يُخفي وجهه على أنه "عدو"
+-  Nella 1a di ritorno la supersfida Cuneo-Grottazzolina
+-  D’Aversa: “Gol dell’Inter? La punizione non c’era”. E sul rigore tolto…
+-  Allegri, bordata alle rivali: "Decreto Crescita? Juve ha puntato sui giovani"
+-  הפתעה: דגמי ה-Galaxy S24 של סמסונג עשויים להיות זולים מקודמיהם
+-  Мороз или солнце: Какая погода ждет таджикистанцев в январе?
+-  Lloga mirëpret vendimin e Gjykatës Administrative për Damevën
+-  Gazeteci Furkan Karabay tutuklandı!
+-  Gazze'de bilanço ağırlaşıyor!
+-  Real Madrid'de Carlo Ancelotti için Brezilya dedikoduları sona erdi!
+-  Xuống rồi lên, giá vàng đã tăng như 'vũ bão' thế nào trong 10 năm qua?
+-  Khởi tố cựu Bí thư Tỉnh ủy Thanh Hóa Trịnh Văn Chiến
+-  Starul filmului „Parasite“, Lee Sun-kyun, era șantajat înainte de a se sinucide. Ce a declarat poliției
+-  Уч карра Осиё чемпиони Узукжамол Юнусовага уй берилди
+-  Jet Businessman, Steve Varsano makes plans to collaborate with Ola of Lagos
+-  Mileis „Schocktherapie“: eine Kampfansage an das alte Argentinien
+-  خاص.. مسؤول بالمركزي يفصح لصدى تفاصيل حادثة حريق بإحدى المبانئ المصاحبة للمصرف
+-  ফুফাতো ভাইয়ের সঙ্গে লড়ছেন মামাতো ভাই, জমজমাট প্রচারণা
+-  Mesele de sărbători: pregătim totul în casă sau putem cumpăra și produse gata preparate? La ce să fim atenți dacă nu avem timp să gătim totul în casă
+-  Offiziell: Sahin und Bender neue Co-Trainer beim BVB
+-  Tagesplus im Dax moderat - Jahresplus stark
+-  Netzschkauer Stadträte wollen keine Altersteilzeitregelung
+-  Zu schnell in die Werkstatt: Autofahrerin kracht bei Freiberg durch zwei Rolltore
+-  Darmstadt stellt Wehlmann als Sportlichen Leiter frei
+-  Neujahrskonzert in Meerane mit Musik von Johann Strauß
+-  Hakenkreuz an Supermarkt in Mittweida geschmiert
+-  SPD-Politiker fordern schnellere Einigungen der Ampel
+-  Ärzteverband droht mit längeren Praxisschließungen
+-  BREAKING: IGP Egbetokun Storms Jos To Access Plateau Attacks – [Photos]
+-  See the massive rogue wave in California that swept away a pickup truck
+-  Isufaj i përgjigjet Kurtit: Nuk mund të na tregojë askush kur ngriten aktakuzat e kur pushojnë hetimet
+-  "Va a ser difícil": las malas expectativas para los trabajadores en el comienzo de año
+-  Ancelotti renovó con el Real Madrid y no será DT de la selección de Brasil
+-  Kickoff | 'We need a player like him' - Broos heaps praise on Pirates star
+-  Милей се отказа от членството на Аржентина в БРИКС и потвърди завоя във външната политика на страната
+-  Google Agrees To Settle $5 Bn Consumer Privacy Lawsuit
+-  Putyin hivatala rendelhette el a „majdnem meztelen” moszkvai buli résztvevőinek vegzálását
+-  Κορονοϊός: 62 θάνατοι την τελευταία εβδομάδα - Στους 54 οι διασωληνωμένοι
+-  Prokurátor podal protest v súvislosti s potvrdeniami o zotrvaní na území Slovenska
+-  Desivé vyčíňanie opitého vodiča: Na diaľnici spôsobil dve dopravné nehody
+-  Grandiózna Shiffrinová totálne rozdrvila konkurenciu, Vlhová vyťažila z minima maximum
+-  Kurti e Rizvanolli e vizitojnë Telekomin e Kosovës, njoftohen me sfidat e të arriturat
+-  خيبة أمل جديدة للرجل القوي السابق في البيت الأبيض
+-  VAROVANIE Na Slovensko sa rúti MOHUTNÁ VÍCHRICA! Vieme, kedy a kde udrie v plnej sile
+-  مأساة.. شاب يقفز من جسر بسبب رفض طلبه للزواج
+-  تزامنا ورأس السنة الجديدة.. حجز 3 آلاف قارورة خمر بالمغير
+-  Berisha: Beteja ime s’ka kthim pas, çështja ime nuk ka krahasim me atë të Nanos
+-  Евгения Медведева рассказала, как врач «потушила сигарету об ее спину»
+-  中職》尊重統一獅交易決定！ 江承諺告別獅子軍吐心聲：很不捨隊友...
+-  Die Wahlen im Jahr 2024 sind ein ideales Ziel für Feinde der Demokratie: NPR
