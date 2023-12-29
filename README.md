@@ -1,11 +1,11 @@
 # Latest News
--  Two killed in Balkumari demonstration
--  Russia launches the biggest aerial barrage of the war and kills 30 civilians, Ukraine says
--  Golpe a los transportistas: subirá el precio del diesel
--  Carlo Ancelotti prolonge son contrat avec le Real Madrid jusqu’en 2026 !
--  ‘Bunk’d’ To End With Season 7 On Disney Channel; Final Installment’s Episode Order Expanded
--  Šogad Latvijā bijusi rekordaugsta asinsdonoru aktivitāte
--  Sandra Perković udaje se na Silvestrovo: Otkrivamo detalje glamuroznog vjenčanja
--  Alcaldía de Cali hace reapertura parcial del Monumento a Cristo Rey: así avanza
--  الجيش الإسرائيلي نهب من غزة عشرات الملايين من الدولارات
--  Suomalaispelaajalle huippupesti Euroopan kovimpaan liigaan: ”Nyt se toteutuu”
+-  NGX ends 2023 on bullish note as ASI appreciates by 0.36%
+-  ارتفاع حصيلة ضحايا العدوان الإسرائيلي على غزة إلى أكثر من 21 ألف شهيد.
+-  الذهب يرتفع 14% في 2023
+-  ارتفاع حصيلة شهداء غزة إلى 21 ألفاً و507
+-  المنفي يتلقى مزيداً من التهاني من رؤساء وقادة الدول بمناسبة ذكرى الاستقلال .
+-  Manu Kone on kuuma nimi - kolmen suurseuran ostoslistalla
+-  Arsenal-hylkiö pihalle - manageri tekee tilaa tulijoille
+-  ‘Pakistan is going to New Zealand, not Nepal’: Kamran Akmal on Babar Azam, Mohammad Rizwan not being rested
+-  Kamira presenta el podcast “Historias de Vidas Gitanas”
+-  Cory Morgan: I’ve Seen What State Dependency Does; Universal Basic Income Is No Path to Prosperity
