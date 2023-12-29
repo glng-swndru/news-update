@@ -1,11 +1,51 @@
 # Latest News
--  대전시 중구 '옥외광고업무 유공' 대통령 표창 수상
--  대전시, '타슈' 등 자전거 이용 활성화 대통령 표창 수상
--  한국도자재단, 행사 사용 목재 재활용 어린이놀이터 조성 '탄소배출 10톤 절감'
--  [칼럼] 아이들과 함께 자라온 부모의 고백, 그리고 학교
--  경기여성IT새일센터, 여가부 사업운영 평가 2년 연속 우수센터 선정
--  Arsenal hukkasi mahdollisuutensa Valioliigan kärkipaikkaan – Tottenhamin hurja loppukiri ei riittänyt
--  صحيفة : مسودة لإلغاء التعديلات القضائية تنذر بأزمة سياسية في الكيان
--  بلومبيرغ : نصف سفن الحاويات تتجنب البحر الأحمر
--  انخفاض حاد في الهجرة إلى إسرائيل بعد طوفان الاقصى
--  ديوكوفيتش يهزم ميسي في معركة 2023
+-  Vea los precios en Merca Panamá
+-  Naomi Osaka: the return of a champion with a new perspective on pressure after becoming a mother
+-  Naomi Osaka: the return of a champion with a new perspective on pressure after becoming a mother
+-  સરકારનો નવો નિયમ, આ યુઝર્સના Instagram, Facebook એકાઉન્ટ ડિલીટ થશે, જાણો આખો મામલો
+-  Tiada beza Netanyahu dan Hitler-Erdogan
+-  SpaceX launches U.S. military spaceplane on Falcon Heavy rocket
+-  Justice Sheel Nagu: ਪੰਜਾਬ ਹਰਿਆਣਾ ਹਾਈਕੋਰਟ ਨੂੰ ਮਿਲਿਆ ਨਵਾਂ ਚੀਫ਼ ਜਸਟਿਸ, ਸ਼ੀਲ ਨਾਗੂ ਦੇ ਨਾਮ 'ਤੇ ਸੁਪਰੀਮ ਕੋਰਟ ਨੇ ਲਾਈ ਮੋਹਰ
+-  YouTuber leads authorities to human remains believed to be of man missing since 2013
+-  Breaking: Ark Invest, 21Shares File Another Amendment To Bitcoin ETF Filing
+-  The Most Powerful Generative AI Text Tools of 2023
+-  W. Kamau Bell: Palestinians Are My Heroes of 2023
+-  Health Tips : हिवाळ्यात काय जास्त फायदेशीर आहे, तूप की लोणी? रोज किती प्रमाणात खावे हे तज्ञांकडून जाणून घ्या
+-  How High Can Solana (SOL) Surge in January 2024?
+-  Is Target Open on New Year’s Day?
+-  Finshots Recap — The best stories on policy
+-  Arabuluculukta 2024 yılı ücret tarifesi belli oldu
+-  2ｍ 폐그물 걸린 채 유영하는 새끼 돌고래...“꼬리 잘릴 수도”
+-  관세청, 해외 당국과 공조 확대.. 마약밀수 원천 차단
+-  천하람, 국민의힘 탈당…이준석 '개혁신당' 창당준비위원장으로
+-  Korea to expand liquidity supply programs over Taeyoung E&C's workout application
+-  New Mexico proposes regulations to reuse fracking wastewater
+-  Five UND recruits to play in All-American Game
+-  Cashing in the Biggest NIL Deals Worth $5.9 Million, Bronny James is a Flag Bearer For an Anticipated $90 Billion Industry
+-  Banjir: Mangsa di Kelantan menurun kepada 19,716 orang
+-  “We’ll Show Him Who’s Boss”: When Shaquille O’Neal Pissed Off Hollywood Star with His Natural Talent for Comedy
+-  Vijayakanth: விஜயகாந்தை காண எகிறி குதித்து வந்த விஜய் ஆண்டனி.. கடைசியில் செய்த நெகிழ்ச்சி செயல்
+-  PM Modi Ayodhya Visit: पीएम मोदी का अयोध्या दौरा, शहर को देंगे 15000 करोड़ की सौगात, यहां जानें उनका शेड्यूल
+-  내년부터 ‘공부 잘하는 약’ 처방·투약 제한
+-  식약처, 임상시험 전자동의 가이드라인 개정
+-  Fong Is Allowed to Run for Congress, Judge Rules
+-  Alejo Véliz marcó su primer gol en Tottenham, fue en la derrota ante Brighton por Premier League
+-  B.C. trucking company involved in latest overpass strike has history of similar crashes: ministry
+-  Roberto Luongo makes special guest appearance in net at Florida Panthers practice
+-  Dünya rekorunu kırdı! Ünlü şefe tebrik yağıyor
+-  네이버, 소상공인연합회와 함께 1100여 곳 소상공인 디지털 전환 지원
+-  El Tribunal de Disciplina de la AFA confirmó el descenso de Colón a la Primera Nacional
+-  Runner up is Hampi : రన్నరప్‌ హంపి
+-  Pidió prestamo de 800 pesos, ahora le cobran 140 mil
+-  बॉक्सिंग डे कसोटीत भारताचा मोठा पराभव, आफ्रिकेने एक डाव आणि 32 धावांनी हरवलं
+-  Американский эсминец «Мэйсон» сбил беспилотник у берегов Йемена
+-  大棋盤｜議員倡「禮貌運動」業界憂有反效果
+-  Cựu TT Trump vẫn tham gia bỏ phiếu sơ bộ ở Colorado trong khoảng thời gian Đảng Cộng Hòa tiểu bang kháng cáo lên Tối cao Pháp viện
+-  Catatan Akhir Tahun Koalisi Masyarakat: 9 Tahun Dipimpin Jokowi, Demokrasi Indonesia Semakin Krisis
+-  인천 부평구 도로에 주차된 차량서 화재…70대 운전자 부상
+-  ఫార్ములా-ఈ రేస్‌ లేనట్టే!
+-  6 ปัจจัยที่ทำให้ ‘ระบอบทักษิณ’ คืนชีพ เตรียมร้องเท้าผ้าใบกับใจถึงๆกันอีกไหม
+-  Modi govt in trouble for missile program failure
+-  Гол капитана сборной Казахстана восхитил футбольный Instagram с 14 миллионами подписчиков
+-  ATU transfirió más de S/ 2.8 millones para fortalecer la fiscalización al transporte informal
+-  Grealish, do Manchester City, tem casa assaltada e ladrões roubam R$ 6 milhões em joias
