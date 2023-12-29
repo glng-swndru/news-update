@@ -1,11 +1,51 @@
 # Latest News
--  Måns Karlssons fem spaningar från Sverige-Kanada
--  배당금의 의의
--  내년부터 실손 비급여 300만원 이상 타가면 ‘보험료 3배’ 뛴다
--  미국서 눈과 뇌의 절반 없이 태어난 기적의 아기…"건강하게 잘 자라"
--  Başkan Mehmet Büyükekşi fenalaştı
--  Number of people hospitalised with flu rises by 500% in a month
--  Jäällä maannutta TPS-pelaajaa nyrkillä takoneelle Kärppien Nick Ritchielle kahdeksan ottelun pelikielto
--  Soccerladuma | Barker Reveals Halftime Talk To Inspire Win Over Bucs
--  AK Partili Çelik'ten Süper Kupa finalinin iptaline ilişkin açıklama
--  Denemeyen pişman oluyor: Pratik simit tarifi!
+-  Última pesquisa do ano revela melhora na aprovação do governo Lula
+-  Moro é detonado nas redes após fazer comparação entre Lula e Milei
+-  Trump doesn't have immunity from U.S. Capitol officers' civil suit, court says
+-  Rusia ante la ONU: "EE.UU. se opone al consenso internacional sobre el alto al fuego en Gaza"
+-  Canciones inspiradas en la literatura
+-  [포착] 이 순간을 위해 6년을 기다렸다…세계가 감탄한 '역대급 사진'
+-  [Pick] 다 뭉개진 딸기 케이크에 항의 폭주…日 유명 백화점 결국
+-  Se enfrentan migrantes a Guardia Nacional de Texas
+-  Video: Olas gigantes azotan costa de California
+-  Hrvatski grad je među top destinacijama u Europi za proslavu Nove godine: Cijene stolova kreću se od 400 pa sve do 1500 eura
+-  Diputado Pedro José Rojas: «La diplomacia es la vía esencial para encontrar soluciones pacíficas en tiempos de tensión»
+-  tenant farmers : కౌలు రైతుల గుర్తింపు ఎలా?
+-  Iron Oxide Traces in Ancient Bricks Shed Light on Earth’s Magnetic Field
+-  바이든, '러의 우크라 최대 공습'에 "푸틴 목표 불변…꼭 막아야"
+-  TFF prezidentinin vəziyyəti pisləşdi
+-  România mai primește încă 100.000 de muncitori străini anul viitor. Guvernul a aprobat următorul contingent
+-  روسيا.. ابتكار جسيمات نانوية تعزز بشكل انتقائي العلاج الإشعاعي للسرطان
+-  Galatasaray kafilesi konakladığı otelden ayrıldı
+-  Sivil havacılıkta 2024 yılında uygulanacak cezalar Resmi Gazete’de
+-  Ciudad de México detiene a cinco sujetos relacionados con el robo a la casa de Miguel Bosé
+-  Point marchés-Wall Street termine l'année en légère baisse
+-  Cənubi Afrikada daşqınlar: 14 nəfər öldü
+-  Vuelca tráiler por viajar a exceso de velocidad en Rancho de Enmedio; no hay lesionados
+-  Bobbi Hudson, former Glen Ellyn business owner and community ‘catalyst,’ dies at 89
+-  జనసేనలోకి చంటిబాబు?
+-  Päätös tuli: Maassa makaavaa vastustajaa päähän ja niskaan takoneelle Nick Ritchielle kahdeksan ottelun pelikielto
+-  حشد جماهيري غير مسبوق بالعاصمة في مسيرة ” معكم حتى النصر والأمريكي لن يوقفنا”
+-  Eminem Seeks Protective Order in Trademark Dispute Against ‘Real Housewives’ Stars
+-  US major end the year with a down day
+-  La querelle entre voisins près de Nice s'était terminée par une aspersion d’eau bouillante et des coups de casserole: le jugement est tombé
+-  Emergencia en San Martín: Defensa Civil recoge información para saber nivel de daños por precipitaciones
+-  Trabajadores de la UAdeO salen al malecón de Mazatlán a manifestarse por designación de nuevo rector
+-  నాకు కాదంటే ఈయనకివ్వండి!
+-  రెండో రోజు 8,12,862
+-  Inflación y ventas en línea: desafíos para comerciantes locales en Delicias
+-  Boom! Bartman znokautował Augustyna. Jeden kopniak i koniec
+-  Carceri fatiscenti, sovraffollamento e condizioni degradate di vita per detenuti e personale. La fotografia che lascia il 2023
+-  Auxiliar fixo deixa a comissão técnica do Corinthians e volta a ser analista no Grêmio
+-  كيف يؤثر الضغط الجوي المنخفض في الحالة الصحية؟
+-  Aktien New York Schluss: Starkes Börsenjahr endet leicht im Minus
+-  Oktagon 51: Šok pre favorita! Pirát knokautoval Vémolu
+-  పార్టీని నమ్ముకుని నాశనమయ్యా
+-  Peskovs: sagatavots konfiscējamo ārvalstu investoru aktīvu saraksts
+-  మేడిగడ్డ ఏడో బ్లాక్‌ కూల్చిమళ్లీ కట్టాల్సిందే
+-  İşte Xiaomi'nin ilk elektrikli otomobili! Maybach'a rakip Nio ET9 - DH Oto Gündem
+-  Rezultati studije: Koliko kafe treba popiti da bi vam mozak radio
+-  جيش الاحتلال يدمّر أكثر من 200 موقع تراثي وأثري في قطاع غزة
+-  Detienen a pareja por homicidio de una custodio del Cereso de Cancún
+-  Simone Biles Says She and Husband Jonathan Owens Have Debates Over Who's the Better Athlete
+-  جيش الاحتلال يواصل حرب الإبادة في وسط وجنوب القطاع
