@@ -1,51 +1,11 @@
 # Latest News
--  새해부터 문닫는 코로나 선별진료소… 4년 만에 종료
--  이경용 "서귀포지역에 제주대병원 분원 설치해야"
--  금악리 폐기물처리장 토양오염 정밀조사 추진
--  Дам олиш кунлари кутилаётган об-ҳаво маълум қилинди.
--  ОАВга очиқлик рейтинги: Рақамли технологиялар вазирлиги биринчи, Маданият вазирлиги охирги ўринда.
--  Айрим ёлғиз кексаларга минимал истеъмол харажатлари миқдорида моддий ёрдам жорий этилади.
--  Blue Garden Samandıra'da yüzde 50 peşin 60 aya varan vade, oturuma hazır son fırsatlar!
--  শ্রমিকদের ধর্মঘট স্থগিত ঘোষণা
--  বাংলাদেশ-নিউজিল্যান্ড দ্বিতীয় টি-টোয়েন্টিতে বৃষ্টির বাগড়া
--  KKTC Cumhurbaşkanı Tatar: Kıbrıs'ın tapusuna güvenip yatırım yapanlar oldu!
--  Έρευνα κόλαφος του Ισραηλινού Στρατού για τον…. Ισραηλινό Στρατό
--  אוואני הפצוע ייעדר כחודש, מצוקת בלמים לאשדוד מול באר שבע
--  «Гульжарлем»: Жаңа адамдар предложили Гульжан Ергалиевой испытать «гетто» на себе.
--  Σε ηλικία 87 ετών έφυγε από τη ζωή η ΔΕΣΠΟΙΝΑ ΠΟΥΣΑΤΙΔΟΥ
--  MP NEWS - छिंदवाड़ा नगर पालिका के भ्रष्ट अधिकारी को 4 साल जेल की सजा
--  Johnny Drille Welcomes First Child With Wife (Video)
--  Pirotecnia causou quase metade dos 6.099 incidentes na época desportiva 2022/23
--  घट्दो आयात र अर्थतन्त्र
--  Кого ждет успех в 2024 году: ответ астролога
--  পাইলটের ভুলেই নেপালে সেই বিমান দুর্ঘটনা
--  Venäjä pidättänyt kymmeniä Viroon laittomasti yrittäneitä siirtolaisia
--  Falana’s Chambers Petitions Lagos Police Commissioner Over Serial Death Threats On Late Mohbad’s Wife, Wunmi
--  Makelaarsland: meeste huizenkopers moeten weer overbieden
--  AEX lijkt vlak te beginnen aan laatste handelsdag 2023
--  Σε ηλικία 85 ετών έφυγε από τη ζωή ο ΠΑΡΑΣΚΕΥΑΣ ΠΡΙΤΣΙΝΑΣ
--  Murió Gaston Glock, creador de la pistola automática más famosa
--  Milićević: Srbiju čekaju teška iskušenja, promena na čelu SPS ne bi bila dobra
--  Συνεχίζεται η προετοιμασία ενόψει ΑΕΛ
--  عاجل.. حساب المواطن يكشف عن الخطوات المطلوبة لتسجيل عقد إيجار جديد
--  Ekonom Beberkan Keuntungan Jika Badan Penerimaan Negara Dibentuk
--  Η «παγίδα», το πάθημα της Μπαρτσελόνα και ο υποψιασμένος Ολυμπιακός
--  BNK금융 부산·경남은행, 832억 규모 개인사업자대출 이자 환급
--  সুন্দর ও উন্নয়নের ছবি তুলে পুরস্কার পেলেন তাঁরা
--  Turnbull, Thatcher and Packer: Declassified files reveal tycoon’s brush with notorious Spycatcher case
--  Turnbull, Thatcher and Packer: Declassified files reveal tycoon’s brush with notorious Spycatcher case
--  بعد التمديد... باسيل يُقيّم العلاقة مع حزب الله ويُحذّر!
--  Нічна атака дронами: на Одещині влучання у законсервовану будівлю об'єкта інфраструктури, пошкоджено багатоповерхівку - Сили оборони Півдня
--  LIMUN KOLAČ SA MAKOM – Oduševljava aromom
--  '올해의 광주세관인' 김국현 주무관 선정
--  (VIDEO) VLAGA, GLODARI, SLIKE UČESNIKA PO PODU NA "FARMI" Strava i užas na imanju u Lisovićima: "Ljudi su došli da kradu stvari istu noć kad je gazda umro"
--  Σε ηλικία 65 ετών έφυγε από τη ζωή η ΜΑΡΙΑ ΕΥΑΓ. ΚΙΡΜΑΝΙΔΟΥ
--  Rok wściekłego Dudy. "Będzie walka na noże i o wszystko" [komentarz Sroczyńskiego]
--  Ignaczak-Bandych: Pieniądze na onkologię dziecięcą cieszą, ale to pewna iluzja. To co Tusk obiecuje, to Duda od dawna realizuje z Funduszu Medycznego
--  After eruption of Indonesia’s Marapi, tourism sector faces safety questions
--  MİT, Suriye'de askeri birliklere saldırıları planlayan PKK/YPG'li teröristi etkisiz hale getirdi
--  Kapıya, masaya ‘fiyat’ listesi! Pazartesi başlıyor
--  Χριστούγεννα – Πρωτοχρονιά 2003: Τι ζούσαμε πριν από 20 χρόνια
--  Ölpreise verzeichnen einen Preisrückgang auf Jahressicht
--  Carasent-styret vil ikke godta ekstraordinært utbytte
--  Il prezzo del gas in avvio è poco mosso a 33 euro
+-  Chopin na jazzowo w Centrum Spotkania Kultur
+-  Nowy Rok na sportowo. Rugbiści zapraszają na noworoczny mecz
+-  Thế giới có nữ tỷ phú đầu tiên đạt mốc tài sản 100 tỷ USD
+-  Quang Hải nựng má, nắm tay tình cảm với Chu Thanh Huyền khi thử áo dài ăn hỏi
+-  CHÍNH THỨC: Đề minh họa cấu trúc môn Văn thi tốt nghiệp THPT từ năm 2025, ngữ liệu vừa lạ vừa khó
+-  Màn đọ sắc của 2 "thần tiên tỷ tỷ" đình đám màn ảnh gây sốt, Lưu Diệc Phi có lấn át đàn em?
+-  Nàng công chúa xinh đẹp nhất Nhật Bản tung bộ ảnh ngọt ngào đón tuổi 29, vẻ thuần khiết thành tâm điểm của mọi ánh nhìn
+-  Nữ ca sĩ bị bạn trai sát hạt dã man bằng 65 nhát dao, nhưng kẻ ác lại chịu mức án nhẹ đến mức gây phẫn nộ?
+-  Tích cực xài mỹ phẩm Hàn, gái Tây nhận cái kết mĩ mãn: Da dẻ mướt rượt, bóng khỏe như gương
+-  Dàn sao sẽ làm một điều đặc biệt để tưởng nhớ Lee Sun Kyun trên thảm đỏ SBS Drama Awards tối nay
