@@ -1,51 +1,11 @@
 # Latest News
--  kal Ka Dhanu Rashifal: धनु राशि वालों को संतान से मिलेगा शुभ समाचार, मन लगाकर पूरा करें अपना कार्य
--  Starbucks' 2024 Winter Menu Has Allegedly Been Leaked
--  W Sylwestra hulajnogą nie pojeździsz
--  Transform Your Favorite Little Debbie Snack Into A Dessert Dip
--  GSTAT, Online Gaming and More: Major GST Changes in 2023
--  Jens Langhof aus Oberlungwitz: Gehörlos und dennoch eine starke Stimme in der Gesellschaft
--  Gießerei-Brand, Sprengstoff-Fund und Hochwasser: Der Chemnitzer Feuerwehrchef blickt auf ein außergewöhnliches Jahr zurück
--  Top 5 der meistgeklickten Texte der „Freien Presse“ in Mittelsachsen
--  2023: Crimmitschau begrüßt Neugeborene mit 43 Babypaketen
--  Uhrmachermeister schlägt Einbrecher in die Flucht – Heute sagt er: „Nicht zum Nachahmen empfohlen“
--  আ.লীগ ও স্বতন্ত্র প্রার্থীর সমর্থকদের মধ্যে সংঘর্ষ, সাংবাদিকসহ আহত ১২
--  পাবনায় স্বতন্ত্র প্রার্থী ও নৌকা সমর্থকদের সংঘর্ষে আহত ২০
--  সিএমজেএফ সভাপতি গোলাম সামদানী, সম্পাদক আবু আলী
--  নৌকায় ভোট দিয়ে জনগণ প্রমাণ করবে তারা উন্নয়নের পক্ষেই আছে: মেয়র লিটন
--  UBND TP HCM khen thưởng đột xuất ê-kíp nối cánh tay bé 5 tuổi
--  Trấn Thành tưởng mình hết thời: "Tôi buồn lắm, ngồi lặng lẽ ăn, không dám nói một tiếng nào"
--  Chinh phục nơi được mệnh danh là "nóc nhà Thủ đô": Cách trung tâm chỉ 40km, thì ra là cái tên quen thuộc
--  Huyền Lizzie và Quỳnh Kool đều có phong cách diện váy xinh tươi, tôn dáng
--  Путин подарил Китаю $9 миллиардов за счет скидок на нефть
--  INE. Inflação de dezembro deve ser a mais baixa desde junho de 2021
--  Portimonense quer “saber parar” o Sporting, "equipa mais forte da Liga"
--  Míssil russo cruzou espaço aéreo da NATO durante ataque à Ucrânia
--  Porto. Preços de viagens Andante aumentam 10 e 20 cêntimos em 2024
--  Liga saudita aumenta número de estrangeiros
--  UŽIVO Počinje turneja "Četiri skakaonice" - prva stanica u Oberstdorfu
--  TX RX Systems, Inc. Powers the Future of Connectivity with Enhanced UHF and VHF Frequencies
--  Murió el femicida de Villa Río Negro: agonizó luego del intento de suicidio tras matar a su pareja
--  Canada’s Premiers have failed the basic needs test
--  Sportwissenschaftler Elsborg - "Saudi-Arabien wird im kommenden Jahrzehnt der große Player sein"
--  حزب الله يستهدف عدة مواقع إسرائيلية
--  Por eso es que pasan las cosas (video)
--  बिहार: रखे-रखे एक्सपायर हो गई लाखों की दवा, SDM ने मांगा जवाब तो किया आग के हवाले
--  Z portálu Českého rozhlasu unikla data uživatelů, včetně e-mailových adres či zahashovaných hesel
--  Šapić se izvinio Beograđanima i gostima prestonice zbog nelegalnih blokada
--  La industria social de la política
--  Jigawa Govt. to renovate 10 FM radio stations
--  AAUA alumni congratulate Aiyedatiwa, warns against politics of bitterness
--  Irak'ın kuzeyine hava harekatı: 16 hedef imha edildi
--  HIFK hankki konkaripuolustajan
--  Andalucía volverá a vacunar sin cita contra la gripe a los niños de 6 a 59 meses el 3 de enero
--  Year Ender: Bollywood`s ride of blockbuster, controversies & social media storms
--  Sambut Tahun Baru, MRT Jakarta Bakal Gelar Panggung Musik
--  Entro il 2024 sarà pronto il nuovo asilo di Udine est: ospiterà 180 bimbi
--  Nikola Jokic : “Après ma carrière NBA, j’espère que personne ne me reconnaîtra”
--  To ban or not to ban: Pinoys’ penchant for firecrackers to herald the start of the New Year coming to an end?
--  Virgo horoscope for 2024: Growth, success and harmony await Virgos
--  БНБ сваля основния си лихвен процент до 3,79% от януари
--  ZAHAROVA JASNA: Srbi su imuni na pokušaje Zapada da izazove krizu u zemlji, verujem u njih
--  Senator Binos rounds off 2023 with free medical outreach
--  जनयुद्ध दिवसको सार्वजनिक बिदा सर्वोच्चद्वारा बदर
+-  Engelli adamın eski eşini silahla vurduğu anlar ortaya çıktı
+-  Emine Erdoğan'ın gözyaşları Gazzeli çocuklara ulaştı
+-  Jürgen Klopp'tan Salah sözleri!
+-  Aranan şüphelinin dolap çekmecesinden çıkması polisi hayrete düşürdü
+-  Kuzey Irak'a hava harekatı... Çok sayıda terörist etkisiz hale getirildi
+-  Beşiktaş ve Trabzonspor transferde yarışıyor!
+-  İstanbul'da "torbacı" operasyonu! 41 tutuklama
+-  Bakan Yardımcısı Yazgı: Sayın Cumhurbaşkanı'mızın talimatlarıyla 100. yılımızda 100 kütüphane hedefi koyduk
+-  故이선균 마지막 인터뷰…"또 다른 일기 잘 쓰고 싶다"
+-  이선균 측, 사망 직전 제출한 의견서에…"경찰이 실장 진술에 경도"
