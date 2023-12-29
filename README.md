@@ -1,51 +1,51 @@
 # Latest News
--  Божевільний фанат поставив кривавий хрест ножем на кар’єрі юної тенісистки: життєва історія Моніки Селеш, яка змусить здригнутися кожного
--  Enel finaliza la venta del 50 % de su filial en Grecia a Macquarie Asset Management
--  El Kremlin dice que tiene una lista de activos occidentales para embargar si se confiscan activos rusos
--  Declare Day Of National Mourning On Plateau Killings – NANS Urges FG
--  [“딱 두글자로 충분했다”…정명근 시장, 계묘년 불금에 남긴 공무원 격려 키워드 ‘화제’
--  [충남도, “한·중 우호협력 연결고리 될 것”
--  [입북동 살린 ‘이재준 10년 꿈’, 날개달다
--  ["월급 한달 미뤘다고 노동청 들먹이는 직원, 무슨 배짱이죠?"
--  [Zoomlion, 중동에서 성장과 혁신에 박차를 가하다
--  [사우디서 제1회 AlUla Falcon Cup 개최
--  [CGTN, 글로벌 라이브 스트리밍으로 2024년 새해 맞이
--  [尹, 대통령실 종무식 참석 “새해에도 신세 많이 지겠다”
--  [“대단하네~” 안양시 10대뉴스로 본 최대호 시장의 ‘맹활약’
--  "Москвич 6" получил самую дорогую версию за 3,1 млн рублей
--  “Abbiamo deciso di non fare utilizzare l’iPad a nostra figlia fino ai 5 anni. Tutto bene, finché non siamo saliti su un aereo…”: il racconto apre il dibattito
--  News24 | Israel hits air defence base in Syria, say intelligence sources
--  [ŽT] Darosi karšta. JK siunčia karo laivą. Venesuela telkia armiją. Kas vyksta
--  [ŽT] „Prasidėjo tikros represijos.“ Kodėl supyko Putinas
--  Putinas slaptais kanalais bando susitarti su Ukraina. ISW skelbia, kas vyksta
--  Izrael u šoku: Mia ispričala priču, bila je 'taoc' u Gazi
--  В Саратове рецидивист украл елочку и подарил ее незнакомке
--  Hrvatska: Ubica počinio samoubistvo nakon što je usmrtio ženu
--  Entsafter oder Slow Juicer – Wer sorgt pünktlich zur Erkältungszeit für den extra Vitamin-Kick?
--  El alcalde de Badajoz pide al Gobierno central que soterre la autopista
--  “Kam bërë tre eko zemre”, efekti i adrenalinës së “Stop” te Odeta Gjevori
--  Terrifying footage shows Elijah Moore suffer ‘involuntary movements’ after ‘scary’ head injury
--  Berlingske mener: A-kraft er en uomgængelig del af klimapolitikken
--  Berlingske mener: A-kraft er en uomgængelig del af klimapolitikken
--  ปอนด์-ภูวินทร์ ส่งมอบมหกรรมความสุข กับเรียลมีแฟนในงาน “realme Leap to The Wonderland” เต็มอิ่มกับกิจกรรมและสมนาคุณสุดพิเศษที่เซ็นทรัลเวิลด์
--  Većina ZA: Hitni postupak za izmjene Izbornog zakona
--  Ministarstvo: Potočanac više nije ravnatelj županijskog Zavoda za socijalnu skrb
--  NATO je presreo ruske vojne letjelice preko 300 puta 2023.
--  Les Pistons vont-ils avoir la pire série de défaites de l’histoire des sports US ?
--  Jace陳凱詠六位數投資自己對感情事感害怕 自認「優質股」：回報唔錯
--  Ида Галич объяснила, почему не пришла на скандальную вечеринку Ивлеевой
--  Federacija BiH ide na privremeno finansiranje
--  INDIA Bloc Seat-Sharing: Mamata Banerjee Keen To Test Bengal Waters `Alone`, Shiv Sena UBT Not Ready To `Compromise`
--  UPSC Success Story: From Dreams To Reality, Prince Kumar`s Inspiring Journey To UPSC Success
--  Кроссоверы Forthing T5 EVO начнут собирать в Калининграде
--  Газзаев: «Турнирное положение ЦСКА никого не устраивает. Руководство обязано помочь тренеру, приобретя игроков»
--  За първи път: Пловдивчани посрещат Нова година с "тиха заря"
--  CM Yogi Ram Lalla Pooja Video: अयोध्या में सीएम योगी ने की रामलला का पूजा, वीणा की प्रतिमा के साथ ली सेल्फी, PM मोदी का दौरा कल
--  आरबीआई ने पीआईडीएफ योजना को दिसंबर, 2025 तक बढ़ाया
--  Alcohol: విస్కీ, వైన్‌లో నీళ్లు కలుపుకొని తాగుతున్నారా.. అయితే ఈ విషయాలు గుర్తుంచుకోండి..
--  Truprojat e Kurtit shtyjnë me forcë gazetaren e Tv Klan, kryetari i AKG, Rexha: E papranueshme, një rast i paprecedent!
--  La cofradía de la Montaña entrega 3.000 euros a obras sociales de Cáceres
--  Salvata la 15enne che aveva tentato il suicidio gettandosi nel Ticino dopo essere stata violentata
--  सरकार ने अनुकंपा नियुक्ति देने से किया इनकार को हाई कोर्ट पहुंचा शख्स, अदालत ने सुनाया ये फैसला
--  WhatsApp Update: Now Connect Without Sharing Phone Number; Details
--  Gelombang Perubahan Semakin Meluas, Anies Baswedan Optimis Hadapi Pilpres 2024
+-  V Turecku zadržali 32 ľudí podozrivých z napojenia na Islamský štát
+-  MIMORIADNY ONLINE Ukrajina sa stala terčom najväčšieho vzdušného útoku od začiatku vojny: Hlásia množstvo obetí
+-  AKTUÁLNE Poľsko v pohotovosti! Z Ukrajiny k nim priletel záhadný objekt: Zvolali mimoriadne rokovanie
+-  Rodinná tragédia počas Vianoc: Matka zomrela, zatiaľ čo si jej deti rozbaľovali darčeky
+-  TAJNÁ svadba: Agáta Hanychova sa VYDALA za svojho EX!
+-  Тошкентда автобус бошқаруви пайтида сигарет чеккан ҳайдовчи ишдан олинди.
+-  Cảnh mua bán vàng tại TP.HCM trong ngày giá vàng biến động lịch sử
+-  ASIA-PACIFIC CELLULITE TREATMENT MARKET FORECAST 2023-2032
+-  Love coastal food? End 2023 with this special menu at Coast & Bloom in Dadar
+-  Stan na dan i preko 150 evra: Za Novu godinu posebni uslovi
+-  What women in Indian hip-hop owe to rap music
+-  Flashback Friday: Twinkle Khanna`s most hilarious moments on Koffee With Karan
+-  Is Khushi Kapoor in a relationship with `The Archies` co-star Vedang Raina?
+-  Bloomberg: 2023 год стал худшим для доллара со времён пандемии коронавируса
+-  Chalon-sur-Saône. 16 points de collecte de sapins pour éviter les dépôts sauvages
+-  नीतीश कुमार संभालेंगे अब जेडीयू की कमान, ललन सिंह ने अध्यक्ष पद से दिया इस्तीफा
+-  S.Arabistan F.Bahçe-G. Saray maçı ile turizmde başlattığı atakları bir üst aşamaya taşıyor.
+-  Адана Демірспор розірвала контракт з ексгравцем Динамо
+-  Shop you’d never think of selling Lindt chocs for 50% off including giant tin of truffles – price start from £1.50
+-  2024'ün moda rengi ekru ve şeftali! Dolapları değiştirmeye hazır mısınız?
+-  Gülhane 125 Yaşında
+-  Süper Lig'in en kötüsü: Pendikspor
+-  ЦСКА със специално съобщение за Илия Вълов
+-  Başkan Erdoğan, cuma namazını Hz. Ali Camisi'nde kıldı
+-  Kahveden daha etkili peeling gücü! Kakao maskesi cildi sımsıkı yapıyor
+-  Gazze'de can kaybı 21 bin 507'ye yükseldi
+-  Sınırda 2 FETÖ'cü yakalandı!
+-  Ameliyatsız yüz germe yöntemleri! Riski çok az, fiyatı makul
+-  Galatasaray-Fenerbahçe maç kadrosu belli oldu! İşte Galatasaray-Fenerbahçe Süper Kupa maçının muhtemel ilk 11'leri
+-  Atina'da Terim dönemi resmen başladı! Fatih Terim, Panathinaikos'a imzayı attı
+-  Kızılcık Şerbeti'nden eğlenceli kamera arkası görüntüleri! Oyuncular kahkahalara boğuldu
+-  Çin'den "Savunma Bakanı" kararı
+-  İsrail'in üniversitelerdeki 'fişleme şebekesi'... Canary Mission'un hedefinde Filistin destekçileri var
+-  8 ilde “müstehcen” paylaşımlara operasyon: 19 gözaltı
+-  На Краснолиманском направлении ВС России улучшили положение и отразили 13 атак ВСУ
+-  Spielenachmittag des Seniorenbeirats in Bestenheid sucht noch Nachwuchs
+-  Angus Council thank public for roads staff praise after barrage of online hate at height of Storm Gerrit
+-  Asgari ücret açıklanır açıklanmaz marketlere giden mesaj ortaya çıktı. İnsafsızlığın böylesi görülmedi
+-  Xác nhận! Sao Liverpool chuẩn bị tái xuất
+-  Klopp báo tin Robertson, fan Liverpool lắc đầu
+-  Teen boy charged with arson after fire at prestigious London Oratory School where ex-Prime Minister sent kids
+-  Flacco throws three touchdowns as Browns make play-offs
+-  Експертите препоръчват да го консумираме с мярка
+-  सर्वश्रेष्ठ अध्ययन ही सेवा के लिए प्रेरित करता है’- किशोर कुमार
+-  Teenager charged with arson after blaze at London Oratory School
+-  What is Roman Kemp’s diagnosis?
+-  Polivala se vodom na bini, fanovi u transu! Ema Radujko u nikad izazovnijem izdanju
+-  Wie lange Bäckereien in NRW an Silvester und Neujahr öffnen dürfen
+-  Le Monégasque Matthew Strazel va participer au All Star Game ce samedi 30 décembre
+-  Кадырова ознакомили с первыми образцами «Джихад-машин» для нужд СВО
