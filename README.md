@@ -1,11 +1,11 @@
 # Latest News
--  N. Korea discusses light industry, state budget at party meeting
--  Inspection shows over $97.6 mil. in virtual asset transactions by lawmakers
--  NK leader invites contributors in economic sector to New Year's celebrations
--  Tax revenue falls $38.3 bil. through Novmember on weak corporate performance
--  Desean con drones 'Feliz fin de AMLO 2024'
--  Clasifican Browns a Playoffs gracias al brazo de Flacco
--  Canada: Bullets fired at house of Laxmi Narayan Temple president’s son, Hindu temple has been under target of Khalistanis
--  Arsenal beaten 2-0 by West Ham for 1st home loss in Premier League this season
--  Preparations on to blacktop Jamune-Pokhara road section
--  Two persons nabbed with endangered pangolin scales
+-  만장굴 또 낙석, 탐방로 긴급 폐쇄... 장기간 폐쇄 전망
+-  Ev sahibi ve kiracıları ilgilendiriyor! Ücretler belli oldu... Karar Resmi Gazete'de yayımlandı
+-  Τα πρωτοσέλιδα των εφημερίδων την Παρασκευή 29 Δεκεμβρίου
+-  Las navieras que mejor aguantan en Bolsa la tensión en el Mar Rojo
+-  Marruecos amplía el programa FORSA para emprendedores con nuevas fuentes de financiación
+-  ĐT Việt Nam hiện tại còn bao nhiêu cầu thủ từng dự Asian Cup 2019?
+-  ¿Qué valores del Ibex 35 elevan sus posiciones cortas para empezar 2024?
+-  Impuesto a la banca permanente: ¿Cómo afectará a la cotización de los bancos?
+-  삼척시 '첫만남이용권 지원금' 확대...첫째 200·둘째 이상 300만원 지원
+-  Dense fog engulfs North India, delaying several trains and planes; no relief till Jan 2
