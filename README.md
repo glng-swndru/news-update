@@ -1,11 +1,11 @@
 # Latest News
--  Apenas contestes cuál es tu casa favorita, obtendrás información sobre tu manera de ser
--  My friend is holding out for his dream job and is always asking to borrow money. How can I help him?
--  Haley’s Woes Worsen After 9-Year-Old Labels Her the ‘New John Kerry’
--  Don Lemon Lashes Out at Nikki Haley’s Hypocrisy After Civil War Comments
--  Российские родители хотят, чтобы на уроках труда детей учили готовить и шить
--  Pegasus spyware targeted Indian journalists: Amnesty
--  Pankit uskaltavat sittenkin rahoittaa suuria asuntosijoittajia – Yhden osake nousee kovaa
--  ”Polttavin aihe juuri nyt” – Kiinteistöissä tikittää aikapommi, jonka purkaminen on vasta alussa
--  Israel sigue su ofensiva en Gaza mientras parece no tener aún un plan claro a medio plazo
--  ปีใหม่นี้ เที่ยวที่สวนสัตว์ เกินคุ้ม!!! 1 มกราคม 67 เด็กอายุไม่เกิน 12 ปี เข้าฟรี!
+-  Hamburg: Silvester: Polizei will Feuerwerksverbot massiv ausweiten
+-  Digitalisierung stockt: Hamburgs Behörden drucken noch Millionen Seiten Papier aus
+-  آموزگار افغان‌تبار، برندهٔ جایزه بهترین معلم در سویدن شد
+-  Bang thứ hai gạch tên ông Donald Trump khỏi phiếu bầu sơ bộ
+-  Мачовете по телевизията днес, 29 декември
+-  David Moyes phá vỡ im lặng về tương lai tại West Ham
+-  PSG quyết không để tiền vệ của mình đến La Liga
+-  Arteta thừa nhận một điều sau thất bại trước West Ham
+-  Tottenham thất bại, Postecoglou nói thẳng về đẳng cấp của Brighton
+-  Barca xác định mục tiêu chuyển nhượng hàng đầu tháng 1
