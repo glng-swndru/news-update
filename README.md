@@ -1,51 +1,51 @@
 # Latest News
--  তরুণদের ভোটদানে উৎসাহিত করতে র‌্যাবের টিভিসি
--  বিলাইছড়িতে শীতার্তদের মাঝে শীতবস্ত্র বিতরণ
--  ভোট বর্জনে নেত্রকোণায় বিএনপির লিফলেট বিতরণ
--  ঢাকা-৫ আসনে ১২ প্রার্থী, নৌকার সঙ্গে লড়াই হবে ঈগল-ট্রাকের
--  ১৭তম শিক্ষক নিবন্ধনের ফল প্রকাশ: উত্তীর্ণ ২৩ হাজার ৯৮৫ জন
--  নড়াইলে পাখির সুরক্ষায় সচেতনতা শীর্ষক সেমিনার
--  একজন শুদ্ধাচারী মানুষ ছিলেন খানবাহাদুর আহ্ছানউল্লা
--  আল্লাহ তাআলা কার দোষ খোঁজেন?
--  দ্বাদশ সংসদ নির্বাচন উপলক্ষে সর্ব ইউরোপীয়ান আ.লীগের উদ্যোগে শুক্রবার রোড শো
--  নির্বাচনি জনসভায় আজ বরিশাল যাচ্ছেন প্রধানমন্ত্রী
--  দীর্ঘমেয়াদে শরীরের ক্ষতি করে যেসব খাবার, ঘটাতে পারে মৃত্যুও
--  ‘বাংলা চ্যানেল’ সাঁতার প্রতিযোগিতায় তৃতীয় স্থান অর্জন ববি শিক্ষার্থীর
--  ছেলের নিষ্পাপ চাহনি মনে করিয়ে দিত ‘বিসিএস ক্যাডার হতেই হবে’
--  [인사] 대구시
--  สรยุทธ สุทัศนะจินดา เผยข่าวดีส่งท้ายปี 2566 แฟนคลับแห่คอมเมนต์ล้นหลาม
--  Urgen a Suprema Corte proceder rápido sobre la elegibilidad de Trump
--  Deben continuar incentivos en gasolina: CCE, ante aumento al IEPS
--  Cae niña migrante de tren y pierde pierna
--  Dólar hoy y dólar blue hoy, en vivo: cuál es la cotización del viernes 29 de diciembre minuto a minuto
--  В Харькове раздался взрыв
--  Reef Jet
--  Signa Development Selection stellt am Freitag Insolvenzantrag
--  Минтруда запустило проект по краткосрочному обучению востребованным профессиям
--  العثور على راكب تسلل لمخزن عجلات طائرة حطت في باريس
--  Maine descalifica a Trump de primarias republicanas
--  민주당, 공관위원장에 '진보 정치 원로' 임혁백 교수 임명
--  Uutissuomalainen: Kaksi kolmesta tukee hallituksen toimia itärajalla
--  Kaesang Pede PSI Rajai Perolehan Suara di NTB
--  ‘আ.লীগ ক্ষমতায় পুলিশ আপনাদের, যে কথা শুনবে না তাকে থানায় রাখবো না’
--  Pensión IMSS 2024 en México: aquí las fechas de inscripción, requisitos y pagos
--  與, ‘김건희 특검법’ 거부권에 민주당 “거부하는 자가 범인”
--  Días festivos 2024 en México: en qué fechas son los puente y ver calendario
--  치마女 뒤로 가더니, ‘카메라 운동화’ 쓱…X마스에만 30여명 불법 촬영
--  劉德音退休實情 業界預期1月法說會道明白
--  민주, 공천관리위원장에 임혁백 고려대 교수 임명
--  Merokok Sebabkan Penyusutan Otak, Masih Mau Sebat?
--  Momen Hangat Cristiano Ronaldo dan Karim Benzema Sebelum Duel Al Ittihad vs Al Nassr
--  Operativos policiales en el Distrito Nacional: Detenidas nueve personas
--  10 години след падането: Михаел Шумахер отново слуша звук на двигател
--  บช.กำลังแจง ‘พ.ต.ต.’ ยิงตัวตาย ไม่เกี่ยวการแต่งตั้งโยกย้ายตามที่ญาติเชื่อ
--  Harta Mantan Bos Binance Melonjak Rp 387 T di Tengah Ancaman Bui
--  The BMW Experience: el evento de test drive para clientes de la marca
--  Gloria Trevi demanda a Sergio Andrade por abuso sexual y violencia física: ‘Me golpeaba brutalmente’
--  하마스 대대장 노린 이스라엘 공습에 민간인 126명 건물 잔해에 묻혀
--  '오피스텔·상가' 물려주거나 팔 때 세부담 준다
--  '더 리버스 청담' 최고가 오피스텔…비싼 상가는 어디
--  한화, '서울역 북부역세권 복합개발' 인허가 마무리…내년 착공
--  Web critica Cauê Moura e Rafinha Bastos por terem se afastado de PC Siqueira
--  Китай впервые станет главным экспортером авто в мире
--  കയ്യിൽ ഉടവാളുമായി വരൻ, കളരി അഭ്യാസികളോടൊപ്പം വധു; വ്യത്യസ്തം ഈ ‘കളരിക്കല്യാണം’
+-  Anies-Cak Imin Masih Berkampanye di Wilayah Jawa Timur
+-  신임 이상수 수원특례시 장안구청장
+-  Thom Haye Ngebut Selesaikan Berkas Naturalisasi, Erick Thohir: Semoga Lancar
+-  Ratifica TEPJF de Guadalajara que la comunidad LeBarón no es un pueblo originario
+-  Ratifica TEPJF de Guadalajara que comunidad LeBarón no es un pueblo originario
+-  देश ‘हाय… हाय… उचारे’ प्रधानमंत्री मंदिर द्वारे…?
+-  한국홀덤협회, 대회사·회원-소통·화합 위한 통합 솔루션 역할 확대
+-  Viral Video Gus Miftah Bagi-bagi Uang, Said Didu: Sudah Serusak Ini Bangsaku?
+-  Canada: కెనడాలో ఉద్రిక్తత.. హిందువు ఇంటిపై కాల్పులు..
+-  2024 işçi ikramiye tarihi belli oldu mu? Yeni yılda kamu işçisi ilave tediye ödemeleri ne kadar oldu? 4D'li, taşeron işçi maaşları...
+-  2023年富豪榜 法國萊雅繼承人成首位身價上千億美元女性
+-  कोहरे ने थामी रफ्तार: 19 घंटे तक देरी से चल रहीं ट्रेनें, आगरा-जयपुर उड़ान पर भी असर
+-  Banjir di Johor makin pulih, hanya Segamat terjejas
+-  [의협 회장 “의대 정원 확대, 정부 철회 안 하면 투쟁강도 높일 것”[신년사]
+-  [최상위권 의대 쏠림?…서울대 수시합격 10명 중 1명 ‘미등록’
+-  รทสช.เตรียม 8 ขุนพลร่วมอภิปรายงบฯ67
+-  Brandattentat mot villa i Vellinge
+-  Boeingplan ska kollas för lös mutter
+-  Çalışan emeklilerin hesaplarına 5 bin TL ikramiye bugün yatırılacak
+-  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 29 ธันวาคม 2566
+-  เปิดใจรักร้าว “เป็กกี้” ยืนกรานเลิกสามี!!!
+-  Vì sao lãi suất "thủng đáy" nhưng tiền gửi vẫn tăng kỷ lục?
+-  女子离职后把手机静音1年 感叹之前上班期间活得像条狗
+-  Berapa Harta Kekayaan Gus Miftah? Viral Bag-bagi Uang Segepok, Pernah Heboh Tarif Dakwah 3 M
+-  Khánh Hòa: Điều động, bổ nhiệm nhiều cán bộ lãnh đạo
+-  เด็กเชียงใหม่สุดเจ๋งคว้ารางวัล “นักร้องยอดเยี่ยม”
+-  Två mål av Fast när Carolina vann
+-  Bantuan baik pulih bumbung, ceriakan kembali keluarga Ester
+-  Två mål av Fast när Carolina vann
+-  被誉为安洗莹第二 17岁金敏煊引瞩目
+-  বহুনির্বাচনি প্রশ্ন (১১-২০) : অধ্যায় ২ | ইসলাম ও নৈতিক শিক্ষা - নবম শ্রেণি
+-  Weather News: राजस्थान में घने कोहरे की चेतावनी, इन राजमार्गों पर सावधानी से जाएं
+-  紅色供應鏈再蠶食蘋果訂單 和碩、鴻海受衝擊
+-  Boeingplan ska kollas för lös mutter
+-  «Каролина» — «Монреаль»: видеообзор матча НХЛ
+-  Claudia Sheinbaum en Yucatán: comida en el malecón, piñata y mitin en Progreso
+-  Estadísticas revelan descenso en diciembre de la delincuencia y homicidios
+-  郡大林道一次看！33公里環景拍攝 Google Map上線啦
+-  Milagro: “Por eso soy la mejor presentadora de Honduras”
+-  Vivek Bindra: मोटिवेशनल स्पीकर को लेकर एक और चौंकाने वाला खुलासा, पहली पत्नी से तलाक के लिए चुकाए थे 25 करोड़
+-  Projek asrama warga asing di Teluk Kumbar terus dibantah
+-  Aldi-Kunden bekommen an der Kasse die Krise – jetzt greift der Discounter ein
+-  Flughafen Dortmund: Paukenschlag! Neues Ziel haut alle um
+-  „Bares für Rares“: Schlüpfriger Ausrutscher bei Dr. Heide Rezepa-Zabel
+-  Wolfgang Schäuble ist tot! Nur ein kleiner Kreis wusste über seine Erkrankung Bescheid
+-  Guvernør melder om iranske kamikazedroner over Lviv
+-  Chân dung người phụ trách Hội đồng quản trị tại Vietcombank
+-  В СГУОР прошло вручение медалей в честь 100 - летия Министерства спорта
+-  Çeyrek altın fiyatları bugün ne kadar oldu? 29 Aralık 2023 güncel altın kuru fiyatları
+-  Состояние Шумахера улучшилось: "Кое-что можно было сделать"
