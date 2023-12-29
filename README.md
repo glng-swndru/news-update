@@ -1,11 +1,11 @@
 # Latest News
--  احمي خصوصيتك على «واتساب».. ميزة جديدة لإخفاء رقم هاتفك أثناء الدردشة
--  Russlands Krieg gegen die Ukraine: Flugobjekt soll in polnischen Luftraum eingedrungen sein
--  Khánh Hòa có bắt buộc học sinh học ngoại khóa STEM, toán tính nhanh?
--  Người dân ùn ùn về quê nghỉ Tết dương lịch, cửa ngõ Hà Nội kẹt cứng
--  ZaloPay QR Đa Năng thực sự đa năng
--  Chứng khoán tăng 123 điểm trong năm nay, mục tiêu 11 triệu tài khoản vào 2030
--  Cầu siêu các nạn nhân tai nạn giao thông: Tưởng nhớ người đi, vì người ở lại
--  Thêm một vật thể bay không xác định từ Ukraine vào Ba Lan
--  Hà Nội: Đề nghị công an vào cuộc làm rõ thông tin biến hóa đất khai hoang
--  Phân công ông Lê Văn Dũng điều hành Đảng bộ Quảng Nam
+-  Süper Kupa finali öncesi 'kriz' iddiası! TFF'den resmi açıklama geldi...
+-  Nuri Şahin resmen Borussia Dortmund'da!
+-  Real Madrid, Carlo Ancelotti’nin sözleşmesini uzattı
+-  Cristiano Ronaldo, Süper Kupa maçına davet edildi
+-  Éste es el recorrido de la Cabalgata de los Reyes Magos de Badajoz
+-  Larnaca tourism thrives despite regional conflicts
+-  Россельхознадзор открыл поставки инкубационного яйца с турецких предприятий
+-  Neue Patientenleitlinien zu Bluthochdruck stehen zur Stellungnahme zur Verfügung
+-  La candidatura de Zaragoza para albergar la Agencia Estatal de Salud Pública ya es una realidad
+-  Börse heute: Live-Updates
