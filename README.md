@@ -1,11 +1,51 @@
 # Latest News
--  Hamburg: Silvester: Polizei will Feuerwerksverbot massiv ausweiten
--  Digitalisierung stockt: Hamburgs Behörden drucken noch Millionen Seiten Papier aus
--  آموزگار افغان‌تبار، برندهٔ جایزه بهترین معلم در سویدن شد
--  Bang thứ hai gạch tên ông Donald Trump khỏi phiếu bầu sơ bộ
--  Мачовете по телевизията днес, 29 декември
--  David Moyes phá vỡ im lặng về tương lai tại West Ham
--  PSG quyết không để tiền vệ của mình đến La Liga
--  Arteta thừa nhận một điều sau thất bại trước West Ham
--  Tottenham thất bại, Postecoglou nói thẳng về đẳng cấp của Brighton
--  Barca xác định mục tiêu chuyển nhượng hàng đầu tháng 1
+-  তরুণদের ভোটদানে উৎসাহিত করতে র‌্যাবের টিভিসি
+-  বিলাইছড়িতে শীতার্তদের মাঝে শীতবস্ত্র বিতরণ
+-  ভোট বর্জনে নেত্রকোণায় বিএনপির লিফলেট বিতরণ
+-  ঢাকা-৫ আসনে ১২ প্রার্থী, নৌকার সঙ্গে লড়াই হবে ঈগল-ট্রাকের
+-  ১৭তম শিক্ষক নিবন্ধনের ফল প্রকাশ: উত্তীর্ণ ২৩ হাজার ৯৮৫ জন
+-  নড়াইলে পাখির সুরক্ষায় সচেতনতা শীর্ষক সেমিনার
+-  একজন শুদ্ধাচারী মানুষ ছিলেন খানবাহাদুর আহ্ছানউল্লা
+-  আল্লাহ তাআলা কার দোষ খোঁজেন?
+-  দ্বাদশ সংসদ নির্বাচন উপলক্ষে সর্ব ইউরোপীয়ান আ.লীগের উদ্যোগে শুক্রবার রোড শো
+-  নির্বাচনি জনসভায় আজ বরিশাল যাচ্ছেন প্রধানমন্ত্রী
+-  দীর্ঘমেয়াদে শরীরের ক্ষতি করে যেসব খাবার, ঘটাতে পারে মৃত্যুও
+-  ‘বাংলা চ্যানেল’ সাঁতার প্রতিযোগিতায় তৃতীয় স্থান অর্জন ববি শিক্ষার্থীর
+-  ছেলের নিষ্পাপ চাহনি মনে করিয়ে দিত ‘বিসিএস ক্যাডার হতেই হবে’
+-  [인사] 대구시
+-  สรยุทธ สุทัศนะจินดา เผยข่าวดีส่งท้ายปี 2566 แฟนคลับแห่คอมเมนต์ล้นหลาม
+-  Urgen a Suprema Corte proceder rápido sobre la elegibilidad de Trump
+-  Deben continuar incentivos en gasolina: CCE, ante aumento al IEPS
+-  Cae niña migrante de tren y pierde pierna
+-  Dólar hoy y dólar blue hoy, en vivo: cuál es la cotización del viernes 29 de diciembre minuto a minuto
+-  В Харькове раздался взрыв
+-  Reef Jet
+-  Signa Development Selection stellt am Freitag Insolvenzantrag
+-  Минтруда запустило проект по краткосрочному обучению востребованным профессиям
+-  العثور على راكب تسلل لمخزن عجلات طائرة حطت في باريس
+-  Maine descalifica a Trump de primarias republicanas
+-  민주당, 공관위원장에 '진보 정치 원로' 임혁백 교수 임명
+-  Uutissuomalainen: Kaksi kolmesta tukee hallituksen toimia itärajalla
+-  Kaesang Pede PSI Rajai Perolehan Suara di NTB
+-  ‘আ.লীগ ক্ষমতায় পুলিশ আপনাদের, যে কথা শুনবে না তাকে থানায় রাখবো না’
+-  Pensión IMSS 2024 en México: aquí las fechas de inscripción, requisitos y pagos
+-  與, ‘김건희 특검법’ 거부권에 민주당 “거부하는 자가 범인”
+-  Días festivos 2024 en México: en qué fechas son los puente y ver calendario
+-  치마女 뒤로 가더니, ‘카메라 운동화’ 쓱…X마스에만 30여명 불법 촬영
+-  劉德音退休實情 業界預期1月法說會道明白
+-  민주, 공천관리위원장에 임혁백 고려대 교수 임명
+-  Merokok Sebabkan Penyusutan Otak, Masih Mau Sebat?
+-  Momen Hangat Cristiano Ronaldo dan Karim Benzema Sebelum Duel Al Ittihad vs Al Nassr
+-  Operativos policiales en el Distrito Nacional: Detenidas nueve personas
+-  10 години след падането: Михаел Шумахер отново слуша звук на двигател
+-  บช.กำลังแจง ‘พ.ต.ต.’ ยิงตัวตาย ไม่เกี่ยวการแต่งตั้งโยกย้ายตามที่ญาติเชื่อ
+-  Harta Mantan Bos Binance Melonjak Rp 387 T di Tengah Ancaman Bui
+-  The BMW Experience: el evento de test drive para clientes de la marca
+-  Gloria Trevi demanda a Sergio Andrade por abuso sexual y violencia física: ‘Me golpeaba brutalmente’
+-  하마스 대대장 노린 이스라엘 공습에 민간인 126명 건물 잔해에 묻혀
+-  '오피스텔·상가' 물려주거나 팔 때 세부담 준다
+-  '더 리버스 청담' 최고가 오피스텔…비싼 상가는 어디
+-  한화, '서울역 북부역세권 복합개발' 인허가 마무리…내년 착공
+-  Web critica Cauê Moura e Rafinha Bastos por terem se afastado de PC Siqueira
+-  Китай впервые станет главным экспортером авто в мире
+-  കയ്യിൽ ഉടവാളുമായി വരൻ, കളരി അഭ്യാസികളോടൊപ്പം വധു; വ്യത്യസ്തം ഈ ‘കളരിക്കല്യാണം’
