@@ -1,11 +1,11 @@
 # Latest News
--  Pripravte sa na poriadne tuhú zimu! Severné mrazy sa vrátia už v januári: TOTO nás čaká
--  Vodiči, spozornite! Na viacerých úsekoch komplikuje dopravu hmla
--  "360": неизвестный столкнул женщину на рельсы на МЦК
--  Дети, которых не шлепали, вырастают умнее, заявили ученые
--  Ekonomist navodi dva razloga zašto bi Hrvatima plaća u 2024. trebala rasti: “Siguran sam da će do toga doći”
--  Retraites, immigration: les chantiers du gouvernement qui ont rythmé l'année 2023
--  المنتخب الوطني لكرة السلة يفوز على منتخب الجزائر بالبطولة العربية في مصر.
--  Офицеры СК принесли новогодние подарки в реабилитационный центр Геническа
--  These Are The Five Best Meals I Ate In Charleston In 2023
--  Один человек пострадал в ДТП с участием трех автомобилей в Москве
+-  Two killed in Balkumari demonstration
+-  Russia launches the biggest aerial barrage of the war and kills 30 civilians, Ukraine says
+-  Golpe a los transportistas: subirá el precio del diesel
+-  Carlo Ancelotti prolonge son contrat avec le Real Madrid jusqu’en 2026 !
+-  ‘Bunk’d’ To End With Season 7 On Disney Channel; Final Installment’s Episode Order Expanded
+-  Šogad Latvijā bijusi rekordaugsta asinsdonoru aktivitāte
+-  Sandra Perković udaje se na Silvestrovo: Otkrivamo detalje glamuroznog vjenčanja
+-  Alcaldía de Cali hace reapertura parcial del Monumento a Cristo Rey: así avanza
+-  الجيش الإسرائيلي نهب من غزة عشرات الملايين من الدولارات
+-  Suomalaispelaajalle huippupesti Euroopan kovimpaan liigaan: ”Nyt se toteutuu”
