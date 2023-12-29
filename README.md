@@ -1,11 +1,51 @@
 # Latest News
--  Vacinação e reindustrialização foram as prioridades de Lula na área da Saúde em 2023
--  En Argentina, Javier Miley continúa su campaña ultraliberal pese a las protestas callejeras
--  Asier Martínez volvió con precaución en Pamplona
--  Here we go! Cựu sao Man United có bến đỗ mới
--  Јужна Африка го тужи Израел пред Меѓународниот суд на правдата за геноцид во Газа
--  Fin del misterio: el desagradable motivo por el que Mauro Icardi no pudo intimar con la China Suárez
--  Russia launches 122 missiles and 36 drones in war’s ‘biggest aerial barrage’
--  Martine nema već 10 dana, očajni roditelji u suzama: ‘Ispod bora je čeka poklon. Molim te, dođi po njega...‘
--  Mii de persoane au sărbătorit în Nigeria plecarea retragerea trupelor franceze | VIDEO
--  Police searching for Colorado mom suspected of killing her 2 children, wounding third
+-  Invitarán a migrantes de la puerta 36 a que se resguarden en albergues
+-  Sigue en el Semefo mujer asesinada en Navidad en Juárez
+-  Chicago officials were warned conditions in shelter crammed with 2,300 migrants was dangerous TWO MONTHS before boy, 5, died when another toddler barely survived
+-  Anne ahı çeteyi çökertti
+-  Hull City kritik maçta kazandı!
+-  Arjantin BRICS grubundan çıktı
+-  Herkes mağdur oldu!
+-  Riyad'da skandal!
+-  Bakan Yerlikaya'dan Süper Kupa maçının ertelenmesiyle ilgili açıklama
+-  Bir çift mavi gözün izindeyiz
+-  Riyad'da süper ayıp!
+-  Jürgen Klopp: Mohamed Salah'ın ayrılığıyla başa çıkmak zorundayız
+-  108 milyonu geri çevirdiler
+-  Keşke demeseydik keşke...
+-  Nuri Şahin hayaline kavuştu
+-  Evde soğan ve patates saklayanlar dikkat! Eğer birlikte saklarsanız…
+-  Ataque en fiesta de cumpleaños dejó 6 muertos y 26 heridos en México
+-  Ripple desbloqueará 620 millones de dólares en XRP el 1 de enero
+-  Li-Cycle recibe una notificación de incumplimiento de la NYSE sobre el precio de sus acciones
+-  La Bolsa argentina cierra un rentable 2023 pese a la inflación y la zozobra electoral
+-  Perú declara "de interés" iniciativa de autopista en Lima planteada por el Grupo Ferrovial
+-  NuZee retrasa su informe anual y planea una reestructuración para ahorrar
+-  Neuberger Berman fija la distribución mensual en 0,0312 dólares por acción
+-  Brasileña Petrobras producirá fertilizantes en plantas de Unigel
+-  Gay third-grade teacher Michael Califano at Catholic Long Island elementary school claims he was fired over his sexual orientation when someone sent local diocese photos of him kissing his boyfriend
+-  Nastavljena serija sumnjivih smrti u Rusiji: Još jedan Putinov saveznik pronađen mrtav, “pao kroz prozor”
+-  What Is a Good GPU Temperature and How to Check It
+-  Eksplozije u Rusiji: Jedna osoba poginula, jedna povrijeđena
+-  Paul Pogba is enduring a NIGHTMARE at Juventus, David de Gea and Jesse Lingard are still without clubs and now Eric Bailly's Besiktas deal has been torn up... ten Man United stars who saw their careers deteriorate after leaving Old Trafford
+-  토트넘 타깃, 바르사가 먼저 영입 시도했는데…’이적료 430억으로는 역부족’
+-  CHÍNH THỨC! Real Madrid gia hạn hợp đồng với Ancelotti
+-  Russell Wilson wants to STAY at Denver Broncos despite being benched over refusing to change his $37m injury guarantee: 'I came here to win - I want to play here'
+-  부산, 오후부터 밤까지 흐리고 가끔 비…5㎜ 내외
+-  כוכב "חברים" דיוויד שווימר משתף ומגיב לתחקיר של ה"ניו יורק טיימס": "איפה הכעס?"
+-  Internazionale empata com Genoa; Juventus pode se aproximar
+-  부산 동래구 태권도실업팀, 태권도장 일일강사로 변신
+-  Suspeito por furto em loja é preso no Centro de Porto Alegre
+-  Série A: Inter e Genoa empatam em 1 a 1
+-  What stores are open and closed for New Year’s Eve 2023? See hours for Walmart, Target, CVS and more
+-  물가 끌어올린 농산물 · 전기 요금…새해엔 고물가 잡힐까
+-  “직원끼리 성관계” 서약서…성인용품 회장 변태적 실체
+-  Middlesbrough player ratings at Huddersfield: Josh Coburn impresses
+-  Zakazan početak suđenja roditeljima Koste K., za oca traže maksimalnu kaznu zatvora
+-  Росіяни масштабно обстрілюють Херсон - ОВА
+-  Dos menores cayeron a bordo de una moto robada en Las Heras
+-  Monaco étouffe Barcelone et termine l'année en beauté
+-  L'Inter freinée par le Genoa, la Lazio renverse Frosinone en Serie A
+-  أوكرانيا.. نحو مليوني موظف حكومي يعيشون خطر عدم استلام رواتبهم
+-  ‘No credible threats’ to NYC’s NYE bash as revelers should expect increased NYPD presence
+-  Jenni Hermoso, futbolista del año para The Guardian, tras beso de Rubiales
