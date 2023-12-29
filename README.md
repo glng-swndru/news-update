@@ -1,51 +1,51 @@
 # Latest News
--  شرطة كركوك تقرر التعامل مع مَن يُغطِّي أو يُخفي وجهه على أنه "عدو"
--  Nella 1a di ritorno la supersfida Cuneo-Grottazzolina
--  D’Aversa: “Gol dell’Inter? La punizione non c’era”. E sul rigore tolto…
--  Allegri, bordata alle rivali: "Decreto Crescita? Juve ha puntato sui giovani"
--  הפתעה: דגמי ה-Galaxy S24 של סמסונג עשויים להיות זולים מקודמיהם
--  Мороз или солнце: Какая погода ждет таджикистанцев в январе?
--  Lloga mirëpret vendimin e Gjykatës Administrative për Damevën
--  Gazeteci Furkan Karabay tutuklandı!
--  Gazze'de bilanço ağırlaşıyor!
--  Real Madrid'de Carlo Ancelotti için Brezilya dedikoduları sona erdi!
--  Xuống rồi lên, giá vàng đã tăng như 'vũ bão' thế nào trong 10 năm qua?
--  Khởi tố cựu Bí thư Tỉnh ủy Thanh Hóa Trịnh Văn Chiến
--  Starul filmului „Parasite“, Lee Sun-kyun, era șantajat înainte de a se sinucide. Ce a declarat poliției
--  Уч карра Осиё чемпиони Узукжамол Юнусовага уй берилди
--  Jet Businessman, Steve Varsano makes plans to collaborate with Ola of Lagos
--  Mileis „Schocktherapie“: eine Kampfansage an das alte Argentinien
--  خاص.. مسؤول بالمركزي يفصح لصدى تفاصيل حادثة حريق بإحدى المبانئ المصاحبة للمصرف
--  ফুফাতো ভাইয়ের সঙ্গে লড়ছেন মামাতো ভাই, জমজমাট প্রচারণা
--  Mesele de sărbători: pregătim totul în casă sau putem cumpăra și produse gata preparate? La ce să fim atenți dacă nu avem timp să gătim totul în casă
--  Offiziell: Sahin und Bender neue Co-Trainer beim BVB
--  Tagesplus im Dax moderat - Jahresplus stark
--  Netzschkauer Stadträte wollen keine Altersteilzeitregelung
--  Zu schnell in die Werkstatt: Autofahrerin kracht bei Freiberg durch zwei Rolltore
--  Darmstadt stellt Wehlmann als Sportlichen Leiter frei
--  Neujahrskonzert in Meerane mit Musik von Johann Strauß
--  Hakenkreuz an Supermarkt in Mittweida geschmiert
--  SPD-Politiker fordern schnellere Einigungen der Ampel
--  Ärzteverband droht mit längeren Praxisschließungen
--  BREAKING: IGP Egbetokun Storms Jos To Access Plateau Attacks – [Photos]
--  See the massive rogue wave in California that swept away a pickup truck
--  Isufaj i përgjigjet Kurtit: Nuk mund të na tregojë askush kur ngriten aktakuzat e kur pushojnë hetimet
--  "Va a ser difícil": las malas expectativas para los trabajadores en el comienzo de año
--  Ancelotti renovó con el Real Madrid y no será DT de la selección de Brasil
--  Kickoff | 'We need a player like him' - Broos heaps praise on Pirates star
--  Милей се отказа от членството на Аржентина в БРИКС и потвърди завоя във външната политика на страната
--  Google Agrees To Settle $5 Bn Consumer Privacy Lawsuit
--  Putyin hivatala rendelhette el a „majdnem meztelen” moszkvai buli résztvevőinek vegzálását
--  Κορονοϊός: 62 θάνατοι την τελευταία εβδομάδα - Στους 54 οι διασωληνωμένοι
--  Prokurátor podal protest v súvislosti s potvrdeniami o zotrvaní na území Slovenska
--  Desivé vyčíňanie opitého vodiča: Na diaľnici spôsobil dve dopravné nehody
--  Grandiózna Shiffrinová totálne rozdrvila konkurenciu, Vlhová vyťažila z minima maximum
--  Kurti e Rizvanolli e vizitojnë Telekomin e Kosovës, njoftohen me sfidat e të arriturat
--  خيبة أمل جديدة للرجل القوي السابق في البيت الأبيض
--  VAROVANIE Na Slovensko sa rúti MOHUTNÁ VÍCHRICA! Vieme, kedy a kde udrie v plnej sile
--  مأساة.. شاب يقفز من جسر بسبب رفض طلبه للزواج
--  تزامنا ورأس السنة الجديدة.. حجز 3 آلاف قارورة خمر بالمغير
--  Berisha: Beteja ime s’ka kthim pas, çështja ime nuk ka krahasim me atë të Nanos
--  Евгения Медведева рассказала, как врач «потушила сигарету об ее спину»
--  中職》尊重統一獅交易決定！ 江承諺告別獅子軍吐心聲：很不捨隊友...
--  Die Wahlen im Jahr 2024 sind ein ideales Ziel für Feinde der Demokratie: NPR
+-  Sello Maake KaNcube: “Mbongeni Ngema Was On Path To Clean His Name Before Death”
+-  ‘I know how important, meaningful Asian Cup is for Malaysian fans’, says Harimau Malaya’s Wilkin
+-  Prime Video’s ‘Defensive Alerts’ Feature Debuts on Primary Thursday Night Football Feed
+-  Asırlık Han 1 Milyar 600 Milyona İcradan Satılık
+-  이준석 quot;한동훈, TK 의원들 다 죽일 것hellip;국힘, 도축장 줄선 소quot;
+-  Псковские таможенники изъяли почти полтонны гашиша
+-  Real Madrid extends Carlo Ancelotti’s contract until 2026 after Brazil’s interest in hiring him as coach
+-  Strictly legend in advanced talks for Celebrity Big Brother as bosses blow the budget to sign up controversial star
+-  Policajac iz Banjaluke osumnjičen za silovanje
+-  ആദ്യമൊന്നും നമുക്ക് വലിയ ധാരണകളൊന്നും ലഭിക്കില്ല, എന്നാൽ ചിത്രം അവസാനിക്കുമ്പോഴാണ് ആദ്യ സീനുകൾ എന്തായിരുന്നു എന്ന് നമുക്കു മനസ്സിലാവുക
+-  If you always feel tired, make this noise for a scientifically-backed energy boost
+-  Datas para pagamentos do INSS em 2024: veja o calendário
+-  Andhra Pradesh: CM Jagan calls Pawan Kalyan ‘marriage star’, says it’s not wise to vote for JSP chief
+-  Crime rate, property offences and road accidents dip in Visakhapatnam, while drunken driving cases spike in 2023, says Police Commissioner
+-  Община Варна предоставя здравни грижи и социални услуги на лица с увреждания и възрастни хора
+-  Premifab sa zagrebačkim Geotehničkim fakultetom predstavio nove tehnologije za oporabu otapala i drugog opasnog otpada
+-  Bura municipality board members assume office
+-  تصاعد الأزمة بين الجزائر و بامكو وسط توقعات باعتراف مالي بمغربية الصحراء
+-  توضيح عاجل من "سكني" حول تعثر صرف بعض الدفعات وكيفية التغلب عليها
+-  Pet znakova kojima vam pas poručuje da se boji
+-  Mystery remains over death of man ‘murdered by couple’ whose severed body parts were found strewn across seaside town
+-  Tüm Ülkeye Satıyor Dahası 3 Ülkeye İhraç Ediyor: Yıl Boyunca Ürün Veriyor, İşlere Yetişemiyor
+-  112 Acil Çağrı Merkezine Gelen Çağrıların Yüzde 67'si Asılsız
+-  NGO agih sumbangan kepada mangsa banjir
+-  वर्ल्ड कप की हार भूल जाएं तो 2023 में बजता रहा टीम इंडिया का डंका, हर फॉर्मेट में रही नंबर-1
+-  Srbija ubrzano isisava energente iz BiH
+-  Manisa Soma’da yoğun sis nedeniyle minibüs devrildi: Çok sayıda yaralı var
+-  Ancelotti, hasta 2026 de “luna de miel” en el Real Madrid
+-  Ir-Russja tispara iktar minn 150 missila fl-Ukrajna u toqtol 18-il persuna
+-  Военный эксперт Кнутов рассказал о целях ракетного удара ВС России по Украине
+-  PHOTOS : नाम है जल एंड जलेबी, मिलता है पहाड़ी खाना, ट्राय कीजिए दाल का सूुप
+-  Borsa İstanbul Çarpıcı Yorum! 2024’te Dikkatli Olunmalı
+-  След казуса с Митрофанова директорът на БНР смята, че забранени събеседници няма и не трябва да има
+-  Uzman isim 7 büyüklüğündeki depremin vuracağı ili açıkladı. Kahramanmaraş depremini bilmişti
+-  Масова кастрация на бездомни кучета започва в Горна Оряховица
+-  Неизвестное существо откусило два больших куска от огромного ската
+-  Bauchi lawmaker flags off first scholarship programme for tertiary students
+-  Group urges FG to intervene in Nigerian businessman’s Chinese visa denial
+-  Hyundai Tayland'da Yeni IONIQ Laboratuvar Açtı
+-  Drive-by shooting near Nicosia prisons
+-  VIVO – Conferencia de prensa del vocero presidencial Manuel Adorni
+-  BİM markette bu haftanın yeni indirimli ürünler listesi (5 Ocak BİM güncel aktüel ürünler kataloğu)
+-  Chiara Ferragni ricompare sui social dopo giorni di silenzio: il like al post del suo papà Marco
+-  Kryeministri Kovaçevski Vitin e Ri do ta presë me miqtë dhe me familjarët
+-  Qeveria jep 200 milionë për skuadrën kombëtare
+-  Nýr samningur á borðinu hjá Moyes - Beðið frétta af Paqueta
+-  Зеленский уволил главу Тернопольской областной государственной администрации
+-  Višnja Starešina: Ove godine je Hrvatska dva puta rekla veliko "stop" velikosrpskom projektu "srpskog sveta"
+-  Rayon y’Abagore yaguze uwari kapiteni wa AS Kigali
+-  Calcio: Pioli, 'Cardinale non l'ho sentito, parlo con dirigenti'
