@@ -1,11 +1,51 @@
 # Latest News
--  Süper Kupa finali öncesi 'kriz' iddiası! TFF'den resmi açıklama geldi...
--  Nuri Şahin resmen Borussia Dortmund'da!
--  Real Madrid, Carlo Ancelotti’nin sözleşmesini uzattı
--  Cristiano Ronaldo, Süper Kupa maçına davet edildi
--  Éste es el recorrido de la Cabalgata de los Reyes Magos de Badajoz
--  Larnaca tourism thrives despite regional conflicts
--  Россельхознадзор открыл поставки инкубационного яйца с турецких предприятий
--  Neue Patientenleitlinien zu Bluthochdruck stehen zur Stellungnahme zur Verfügung
--  La candidatura de Zaragoza para albergar la Agencia Estatal de Salud Pública ya es una realidad
--  Börse heute: Live-Updates
+-  Paritarias en Río Negro: el gobierno dice que no está en condiciones de aumentar los salarios
+-  Германия — Ситуация в зонах наводнений остается угрожающей
+-  Защита треш-блогера Хилми обжаловала приговор по делу об изготовлении порно
+-  Гид с технологией дополненной реальности появится в Псковском музее в 2024 году
+-  नाबालिक बलात्कार मुद्धामा सन्दिप लामिछाने दोषी ठहर
+-  Jack Grealish'in başı hırsızlarla dertte! 1 milyon sterlinlik zarar...
+-  Fahriye Evcen ile Burak Özçivit'in reklam ücreti dudak uçuklattı
+-  Останкинскую телебашню проверяют из-за угрозы взрыва
+-  ব্রাজিলকে ফাঁকি দিয়ে রিয়ালের সঙ্গে চুক্তি নবায়নে সম্মতি আনচেলত্তির
+-  Ski alpin Weltcup 2023/24 Damen: Alle Ergebnisse: Dürr in Lienz Zweite - Nächste Gala von Shiffrin
+-  TFF resmen açıkladı! Süper Kupa'da İstiklal Marşı okunacak
+-  MasterChef 5. ceketi kim aldı? MasterChef All Star sonuncu finalist olan yarışmacı...
+-  Samet Akaydin gemileri yaktı: Gitmek istiyor!
+-  Kızılcık Şerbeti son bölüm izle 45.bölüm full izle! Kızılcık Şerbeti 45. bölüm izle full hd tek parça!
+-  Galata Köprüsü'nde 1 Ocak'ta düzenlenecek Filistin eylemi için ortak çağrı
+-  G.Saray'dan final öncesi dikkat çeken karar!
+-  Son 24 saatte 15 işgalci İsrail askeri yaralandı
+-  Paranızı boşa harcamayın! İşte burcunuza göre zengin olabileceğiniz meslek! Astroloji testi
+-  Ve Nuri Şahin yeniden Borussia Dortmund'da! Alman ekibi resmen duyurdu
+-  Man Utd 'mắc kẹt' với Sancho
+-  McTominay mắc lừa Pogba
+-  Chủ tịch Atletico Madrid nói thẳng về tương lai Felix
+-  David Moyes nêu tên ứng viên vô địch Premier League
+-  Indo tự tin hủy diệt ĐT Việt Nam nhờ ngôi sao nhập tịch
+-  Xé lưới Arsenal, Mavropanos giải thích lý do không ăn mừng
+-  Tạo địa chấn, "người cũ" nói thẳng về đẳng cấp của Arsenal
+-  Thua West Ham, Arsenal nhận ra giá trị của tân binh 65 triệu bảng
+-  Άρης: Για τον Φαμπιάνο δείχνει ενδιαφέρον ακόμα και ο ΠΑΟΚ
+-  Блажевски: Јаневски е разрешен од директорската позиција, а не дека сам си понел оставка!
+-  En distintas acciones la Policía se logró detener a dos jóvenes y recuperar varios objetos robados
+-  Ukraine erleidet die schwersten Luftangriffe des ganzen Krieges: «Russland hat mit fast allem geschossen, was es in seinem Arsenal hat»
+-  Så maxar du ledigheten nästa år
+-  "C'est de bonne guerre": les policiers municipaux de Marseille en grève le 31 décembre?
+-  Anses Córdoba: larguísimas colas en el último día hábil de 2023 por la AUH pese a la prórroga anunciada
+-  बलात्कार मुद्दामा सन्दीप लामिछाने दोषी ठहर
+-  DEG-DEG: Carlo Ancelotti Oo Heshiiskiisa Lagu Dhawaaqay
+-  За год на Смоленщине произвели 7000 тонн кондитерских изделий
+-  Yalova'da Zimmet Davasında Karar Çıktı! 18 Sanık Hapis Cezasına Çarptırıldı
+-  Управление социального развития Серпухова вошло в десятку лучших
+-  NSE CEO AshishKumar Chauhan extends New Year greetings to investors, urges them to be partner in India growth story
+-  Rösti adelt radikale Windkraftgegner – doch ihre Freude ist wohl von kurzer Dauer
+-  Más de 178.000 llamadas al teléfono de atención al suicido en un año y medio
+-  Cataratas: fin de año y 1° de enero de 2024, el Parque permanecerá abierto en su horario habitual.
+-  Inter Miami set to release new NFL-inspired third kit after Lionel Messi helps them break little known MLS rule
+-  Kartat näyttävät, miten Suezin tilanne muutti jättivarustamon laivojen reittejä – Suuntana taas kriisialue, varustamo vaisuna
+-  tokat zile'de bıçaklı kavga: Biri muhtar 2 kişi öldü, 4 kişi yaralandı
+-  Heimatliebe und Brauchtumspflege: Seit 25 Jahren für Lautern aktiv
+-  Live Streaming: Η παρουσίαση του Φατίχ Τερίμ από τον Παναθηναϊκό
+-  Дети липецких военнослужащих побывали на Кремлевской елке
+-  "La guerra contra el olvido": el EZLN conmemora tres décadas de su levantamiento en México
