@@ -1,11 +1,11 @@
 # Latest News
--  Russia fires 122 missiles and 36 drones into Ukraine, 27 dead
--  Baldur’s Gate 3 player discovers secret identity of tough Act 1 boss
--  Documentary "China's Hainan: Song of the Rainforest": showing precious images and telling ecological stories to the world
--  Secret code reveals how old your tyres are – and exact time to change them
--  High Court Issues Third Injunction Against New Fees By KWS for Ignoring Public Participation, Stakeholder Concerns
--  Erik Ten Hag Insists New Part Owners Of Man United Want To Work With Him
--  Kickoff | PSL club accused of abandoning players
--  Kickoff | Starting XIs: Pirates v Stellenbosch
--  Food Prices Soared In November — NBS Reveals
--  Oyo Police Arrest 207 Suspects, Recover Guns, Others
+-  Pripravte sa na poriadne tuhú zimu! Severné mrazy sa vrátia už v januári: TOTO nás čaká
+-  Vodiči, spozornite! Na viacerých úsekoch komplikuje dopravu hmla
+-  "360": неизвестный столкнул женщину на рельсы на МЦК
+-  Дети, которых не шлепали, вырастают умнее, заявили ученые
+-  Ekonomist navodi dva razloga zašto bi Hrvatima plaća u 2024. trebala rasti: “Siguran sam da će do toga doći”
+-  Retraites, immigration: les chantiers du gouvernement qui ont rythmé l'année 2023
+-  المنتخب الوطني لكرة السلة يفوز على منتخب الجزائر بالبطولة العربية في مصر.
+-  Офицеры СК принесли новогодние подарки в реабилитационный центр Геническа
+-  These Are The Five Best Meals I Ate In Charleston In 2023
+-  Один человек пострадал в ДТП с участием трех автомобилей в Москве
