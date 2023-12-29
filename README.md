@@ -1,11 +1,51 @@
 # Latest News
--  Pravdivý príbeh: Neviem ako ďalej, manželka mi robí zo života peklo
--  Tieto videá ti navodia mozgový orgazmus: Fenomén ASMR vysvetľuje psychológ aj tvorkyňa
--  Pravdivý príbeh: Roky som čakala na jednu jedinú otázku, skončila som pre ňu na psychiatrii
--  গোপালগঞ্জ ও মাদারীপুরে সাজ সাজ রব, নির্বাচনি জনসভায় যোগ দেবেন শেখ হাসিনা
--  Cassandra Byorg Partner Or Boyfriend: Who Is Johnny Rider? Age Gap And Relationship
--  Cartoon Today on December 29, 2023
--  విద్యార్థి అదృశ్యం
--  Mikel Turrientes: «Vivir en Oxford mientras estudio lo que amo, es algo increíble»
--  తాగునీరివ్వండి మహాప్రభో?
--  గుర్తింపు సంఘం ఎన్నికల్లో కార్మికుల తీర్పు స్ఫూర్తిదాయకం
+-  Birleşik Krallık’tan Ukrayna’ya 200 hava savunma füzesi
+-  Samsunspor: Bayrakları astık bekliyoruz!
+-  Ankaragücü'nden Süper Kupa daveti!
+-  Gazzeli çocukların çığlıklarını resmettiği sergi açıldı
+-  Year Ender 2023: From Sonakshi Sinha to Shah Rukh Khan, actors who played cops
+-  Përfituesit e programit të kredive lehtësuese, Rama: Trajtim ushqimor edhe për policët
+-  Choque de motocicletas en carretera Nagua-San Francisco cobra vida de una enfermera
+-  Las perdedoras del 2023: Estas acciones del IPC tuvieron un mal año en la BMV
+-  Williams Companies amplía la infraestructura clave para el desarrollo de GNL tras comprar almacenamiento en la Costa del Golfo - Bank of America
+-  BlackRock fija la fecha del informe de resultados del cuarto trimestre para el 12 de enero de 2024
+-  Tres hermanos de Gaza dicen que fueron golpeados y maltratados en detención israelí
+-  How a particular Sean Payton-Russell Wilson sore spot highlights unbridgeable gap between coach and benched quarterback
+-  POLITIČKA ANALIZA: Zbog pogrešnih politika lažnih Valtera Nikšića i Mijatovića u Domu naroda PSBiH ni nada nema šansu da preživi!
+-  Francúzsko pred silvestrovskými oslavami posilňuje bezpečnosť, postará sa o ňu 90-tisíc policajtov
+-  Soccerladuma | HT Report: Pirates 1-0 Stellenbosch
+-  Vatandaşlardan TFF önünde yönetime istifa çağrısı. Türk bayraklarıyla yürüyüp İstiklal Marşı okudular
+-  ශ්‍රී ලංකා රක්ෂණ සංගමයෙන් රක්ෂණ ක්ෂේත්‍ර සාමාජික හමුවක්
+-  USA tar tredje raka vinsten – besegrar Tjeckien efter straffläggning
+-  Ракетна атака в Украйна погуби живота на баскетболна легенда
+-  Okan Buruk açıkladı: Dönüyoruz!
+-  Suudi Arabistan yetkililerinin "Atatürk" hassasiyetinin nedeni belli oldu
+-  TFF'ye flaş öneri: Kupayı ikiye bölün!
+-  Beşiktaş'tan Süper Kupa daveti!
+-  Bakan Yumaklı: Destek ödemesi hesaplara aktarıldı
+-  Akdeniz'de korkutan deprem!
+-  В Швеция служат и мъже, и жени - със или без оръжие
+-  My Dentist ආයතනයට ප්‍රමිතිකරණයේ ඉහළම තත්ත්ව සහතිකයක්
+-  Pjanićeva teška noć: Sharjah razbijen u Superkupu Ujedinjenih Arapskih Emirata
+-  Der große Jahresrückblick 2023 / Teil 3: März – Wieder einmal Tripartite, ein Mittelfinger mit Folgen und Schluss mit den Covid-Maßnahmen
+-  Il Milan e il Club 1899: i dati nel 2023
+-  මහජන බැංකුව ‘හුස්ම බෙදන ලයික් එකක්’ අනුරපුරෙන් අරඹයි
+-  TCS. 17. miejsce Stocha w Oberstdorfie, wygrał Wellinger
+-  Galatasaray ve Fenerbahçe'nin İstanbul'a iniş saati belli oldu. Havalimanına akın başladı
+-  Gesundheit - 100 Millionen an EU-Förderung ab Jänner 2024 auch für Gruppenpraxen
+-  Galatasaray ve Fenerbahçe’nin Süper Kupa maçına çıkamaması dünya gündeminde
+-  24седам: ВИШЕ МЕДИЈА НЕГО ГРАЂАНА НА БЛОКАДИ! Лажни студенти тероришу Београђане, њих једва педесетак блокирало центар престонице!
+-  Diego Leuco rompió el silencio y hablo sobre la separación con Sofía Martínez
+-  Näin varaudut hirmupakkasiin – Älä tee tätä virhettä
+-  Oldman sågar sin insats i Harry Potter: "Medioker"
+-  Official Starting Lineups – Genoa Vs Inter Milan: Marko Arnautovic, Carlos Augusto & Yann Bisseck Start
+-  Azulejos oficializaron acuerdo con Kevin Kiermaier
+-  “Hay que tener cuidado”: ¡Un espectáculo único! presencia de ballena en Topolobampo, señala alcalde
+-  Blogueirinha tira foto com empresário acusado de racismo e se desculpa: 'Não compactuo'
+-  AFAD açıkladı: Akdeniz'de deprem!
+-  From Hollywood to the Hamptons: Where Do Celebs Vacation
+-  Skispringen - Kraft bei Tournee-Auftakt in Oberstdorf auf Platz drei
+-  24 СЕДАМ: Ђиласова чланица РИК позива опозицију да верификује своје мандате у Скупштини Града и у Скупштини Републике Србије
+-  Fertagus com serviço ferroviário condicionado nos dias 02 e 04 devido a greve na IP
+-  Дали во новите вработувања во здравството предност ќе имаат тие кои работат со договор на дело?
+-  When Does Letterboxd Wrapped Come Out?
