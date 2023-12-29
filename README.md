@@ -1,11 +1,51 @@
 # Latest News
--  La violencia en Colombia no da tregua en 2023, con 94 masacres y 188 líderes asesinados
--  Qué ver en Silleda: 7 lugares que merecen la pena
--  Recibe intelectual cubano Premio Nacional de Investigación Cultural
--  Stormatchen skjuts upp – spelarna vägrar spela
--  Francia Raísa Reflects on "Tiff" and Reconciliation With Selena Gomez
--  Везенков и Сакраменто търсят връщане към победите в NBA
--  Nuis klopt Roest bij feestje Reggeborgh op 1.500 meter, geen WK-ticket Krol
--  Novi kiks Napolija, Fiorentina bolja od Torina
--  Mushaal condoles demise of Prof Nazir Shawl
--  కాపులకు సీఎం జగన్‌ ఇచ్చిన హామీల అమలు చేయాలి
+-  SBS Drama Awards 2023: My Demon`s Kim Yoo Jung and Song Kang win Best Couple
+-  في قرار جديد.. فرنسا لا ترغب في مزيد من الأئمة على أراضيها
+-  Global collaboration to develop next-generation COVID-19 and flu vaccines launched
+-  Greece donates €40,000 to CMP
+-  Ministerul Finanțelor, despre plafonarea RCA: Se elimină potențialul impact negativ al creșterii prețurilor
+-  العدل الدولية: طلب جنوب إفريقي لمقاضاة إسرائيل بجرائم إبادة في غزة
+-  نائب محافظ الوادي الجديد تشارك بمؤتمر التبادل الاقتصادي والتجاري الصيني
+-  Międzynarodowy Trybunał Sprawiedliwości: RPA składa skargę na Izrael za "ludobójstwo Palestyńczyków"
+-  ALEKSANDRA PRIJOVIĆ APSOLUTNI ŠAMPION U HRVATSKOJ Najavila još dva koncerta: Samo tri sata kasnije desilo se čudo
+-  صنعاء تحذّر العدو الأمريكي من أي تصعيد ضد اليمن
+-  League One clash stopped after linesman suffers freak injury – then fourth official replacement ’causes chaos’
+-  Türk Hava Yolları Avustralya uçuşlarına başlıyor
+-  New Florida laws coming in 2024, including one that impacts all drivers
+-  "Eine irre Leichtigkeit!" Wellinger verzaubert Oberstdorf
+-  Украинские СМИ сообщили о взрывах в Харьковской области
+-  حكومتنا: اتفاقية مع شركة سلوفاكية لتشغيل المركز الوطني للأطراف الصناعية
+-  المحجوب: مجلس الدولة يسعى لإرساء انتخابات بناء على دستور صحيح
+-  УНРВА: Израелската армија пукаше во нашиот конвој во Газа
+-  Woman’s Social Experiment with Wearing Painted Pants at the Gym Backfires Completely
+-  أول تعليق من ألابا بعد إصابته بالرباط الصليبي
+-  Κλιματική αλλαγή - Επιβεβαιώθηκαν οι επιστήμονες: Το 2023 ήταν η πιο θερμή χρονιά εδώ και πάνω από έναν αιώνα
+-  Волк: полиция сделает всё возможное, чтобы раскрыть смерть отца Легойды
+-  أفريكان مانجر: ليبيا الـ5 إفريقيا في مجال تطور تكنولوجيا المعلومات والاتصالات
+-  تقييم لاعبو الأهلي بعد الفوز على الخليج
+-  Koментари со навредлива содржина доминираат на социјалната мрежа „Фејсбук“ во Македонија
+-  Ligação aérea entre Bragança e o Algarve "em risco"
+-  I can’t drink like I used to but found a lifesaver on Amazon – you’ll wake up completely hangover-free
+-  عشائر العقاربة تنعى فقيدها الشيخ هاشم معيش
+-  रेहड़ी वालों की आजीविका के अधिकार की रक्षा करना सरकार का फर्ज : दीपेंद्र हुड्डा
+-  Sophie Ellis-Bextor’s Reaction to Barry Keoghan’s Nude Dance to her Song in Saltburn
+-  تراند اليوم : تردد قناة كرتون نتورك بالعربية CN Arabia على النايل سات وعرب سات 2024
+-  تراند اليوم : فوائد مذهلة لتناول اليوسفي قبل النوم.. بينها نضارة البشرة وتقوية جهاز المناعة
+-  تراند اليوم : سعر رسالة مسابقة الحلم 2024 وأسرار الإشتراك للفوز بالجائزة الكبرى
+-  Pasión por la San Silvestre: 5.000 personas despiden el año por las calles de Alicante
+-  Así disfrutan María Becerra y J Rei en las calles de Nueva York
+-  O que está em causa na investigação da PGR à casa de Luís Montenegro?
+-  Noida News: तीन दिन के लिए येलो अलर्ट, गिरेगा पारा, बढ़ेगी ठिठुरन
+-  В нескольких украинских областях объявили воздушную тревогу
+-  Lielas ASV universitātes rektoru atlaiž no darba ļoti neparasta iemesla dēļ
+-  Brynäs smäll – förlorade mot bottenlaget Västervik
+-  E a seleção brasileira? Os bastidores do anúncio 'surpresa' de renovação de Ancelotti no Real Madrid
+-  National weather forecast for Saturday December 30
+-  National weather forecast for Saturday December 30
+-  طالب بتوثيقها.. خالد أبو بكر: الحكومة لا يمكنها إحصاء كل المشروعات في آخر 10 سنوات.. نفذت كما مهولا
+-  Καλύβια: «Με είχε κάνει μαύρη στο ξύλο, μου έλεγε “θα σε θάψω”» - Συγκλονίζει η μητέρα του 16χρονου πατροκτόνου
+-  Новият президент отсече: Няма да се присъединим към БРИКС
+-  Asedio humanitario: residentes de Donetsk viven sin agua ni electricidad por las bombas de Kiev
+-  Hochwasser: 600 Big-Packs für den aufgeweichten Deich
+-  2023’s Most Handsome Men: Ranked by The Independent Critics
+-  إنهي معاناتك..هذه العشبة تصنع المعجزات اذهلت الاطباء تعالج إلتهاب الرئةوالكوليسترول
