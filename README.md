@@ -1,51 +1,51 @@
 # Latest News
--  V Turecku zadržali 32 ľudí podozrivých z napojenia na Islamský štát
--  MIMORIADNY ONLINE Ukrajina sa stala terčom najväčšieho vzdušného útoku od začiatku vojny: Hlásia množstvo obetí
--  AKTUÁLNE Poľsko v pohotovosti! Z Ukrajiny k nim priletel záhadný objekt: Zvolali mimoriadne rokovanie
--  Rodinná tragédia počas Vianoc: Matka zomrela, zatiaľ čo si jej deti rozbaľovali darčeky
--  TAJNÁ svadba: Agáta Hanychova sa VYDALA za svojho EX!
--  Тошкентда автобус бошқаруви пайтида сигарет чеккан ҳайдовчи ишдан олинди.
--  Cảnh mua bán vàng tại TP.HCM trong ngày giá vàng biến động lịch sử
--  ASIA-PACIFIC CELLULITE TREATMENT MARKET FORECAST 2023-2032
--  Love coastal food? End 2023 with this special menu at Coast & Bloom in Dadar
--  Stan na dan i preko 150 evra: Za Novu godinu posebni uslovi
--  What women in Indian hip-hop owe to rap music
--  Flashback Friday: Twinkle Khanna`s most hilarious moments on Koffee With Karan
--  Is Khushi Kapoor in a relationship with `The Archies` co-star Vedang Raina?
--  Bloomberg: 2023 год стал худшим для доллара со времён пандемии коронавируса
--  Chalon-sur-Saône. 16 points de collecte de sapins pour éviter les dépôts sauvages
--  नीतीश कुमार संभालेंगे अब जेडीयू की कमान, ललन सिंह ने अध्यक्ष पद से दिया इस्तीफा
--  S.Arabistan F.Bahçe-G. Saray maçı ile turizmde başlattığı atakları bir üst aşamaya taşıyor.
--  Адана Демірспор розірвала контракт з ексгравцем Динамо
--  Shop you’d never think of selling Lindt chocs for 50% off including giant tin of truffles – price start from £1.50
--  2024'ün moda rengi ekru ve şeftali! Dolapları değiştirmeye hazır mısınız?
--  Gülhane 125 Yaşında
--  Süper Lig'in en kötüsü: Pendikspor
--  ЦСКА със специално съобщение за Илия Вълов
--  Başkan Erdoğan, cuma namazını Hz. Ali Camisi'nde kıldı
--  Kahveden daha etkili peeling gücü! Kakao maskesi cildi sımsıkı yapıyor
--  Gazze'de can kaybı 21 bin 507'ye yükseldi
--  Sınırda 2 FETÖ'cü yakalandı!
--  Ameliyatsız yüz germe yöntemleri! Riski çok az, fiyatı makul
--  Galatasaray-Fenerbahçe maç kadrosu belli oldu! İşte Galatasaray-Fenerbahçe Süper Kupa maçının muhtemel ilk 11'leri
--  Atina'da Terim dönemi resmen başladı! Fatih Terim, Panathinaikos'a imzayı attı
--  Kızılcık Şerbeti'nden eğlenceli kamera arkası görüntüleri! Oyuncular kahkahalara boğuldu
--  Çin'den "Savunma Bakanı" kararı
--  İsrail'in üniversitelerdeki 'fişleme şebekesi'... Canary Mission'un hedefinde Filistin destekçileri var
--  8 ilde “müstehcen” paylaşımlara operasyon: 19 gözaltı
--  На Краснолиманском направлении ВС России улучшили положение и отразили 13 атак ВСУ
--  Spielenachmittag des Seniorenbeirats in Bestenheid sucht noch Nachwuchs
--  Angus Council thank public for roads staff praise after barrage of online hate at height of Storm Gerrit
--  Asgari ücret açıklanır açıklanmaz marketlere giden mesaj ortaya çıktı. İnsafsızlığın böylesi görülmedi
--  Xác nhận! Sao Liverpool chuẩn bị tái xuất
--  Klopp báo tin Robertson, fan Liverpool lắc đầu
--  Teen boy charged with arson after fire at prestigious London Oratory School where ex-Prime Minister sent kids
--  Flacco throws three touchdowns as Browns make play-offs
--  Експертите препоръчват да го консумираме с мярка
--  सर्वश्रेष्ठ अध्ययन ही सेवा के लिए प्रेरित करता है’- किशोर कुमार
--  Teenager charged with arson after blaze at London Oratory School
--  What is Roman Kemp’s diagnosis?
--  Polivala se vodom na bini, fanovi u transu! Ema Radujko u nikad izazovnijem izdanju
--  Wie lange Bäckereien in NRW an Silvester und Neujahr öffnen dürfen
--  Le Monégasque Matthew Strazel va participer au All Star Game ce samedi 30 décembre
--  Кадырова ознакомили с первыми образцами «Джихад-машин» для нужд СВО
+-  Oliebollen op zondag!
+-  Galatasaray-Fenerbahçe maçı öncesi Suudi Arabistan'da kriz
+-  Nouvelle grille BFMTV dès le 2 janvier 2024
+-  Украинские войска ударили по Уразово в Белгородской области из РСЗО «Град»
+-  نائب الأمير يعزي خادم الحرمين الشريفين
+-  [ŽT] Netikėta žinia. Nukentėjo „ypatingas“ Rusijos laivas. Kas nutiko
+-  Po Kinijos. „SpaceX“ raketa į kosmosą iškėlė slaptą JAV karinį lėktuvą. Kas žinoma (Video)
+-  [ŽT] Duda skubiai šaukia kariškių susitikimą dėl Ukrainos. Kas vyksta
+-  Dvigubai, nei teigta. „Storm Shadow“ pateikė malonią staigmeną
+-  „Keturi šarvuočiai per 35 sekundes.“ Rusai šokiruoti. Kas nutiko (Video, foto)
+-  „Ar girdėjote, ką pasakė Zalužnas?“ Ateina didžiulė audra
+-  Ukrainos karo belaisviai kovoja Rusijos pusėje. Kas vyksta
+-  [ŽT] „Europa nemoka kariauti.“ Netikėtas pareiškimas. Kas vyksta
+-  [ŽT] Antrą kartą! Ukraina nušlavė priešo puolimo koloną (Video)
+-  „Žinoma ne. Ar aš atrodau kaip idiotas?!“ Žurnalistas paklausė kandidatų į Rusijos prezidentus. Atsakymai šokiruoja (Video)
+-  Das gibt Hoffnung - Toni Polster immerhin „erfolgreich operiert“
+-  Bitcoin bijna 160 procent meer waard in 2023
+-  Extinction Rebellion komt in voorjaar met nieuwe acties
+-  Britse premier na aanval op Oekraïne: we laten Poetin niet winnen
+-  Politie krijgt 13 tips over overleden baby in de Lek
+-  Frankrijk neemt extra veiligheidsmaatregelen rond jaarwisseling
+-  Bedrijven leggen verbod op wegwerpbekers massaal naast zich neer
+-  Haven Rotterdam: drukker in januari door onrust vaarweg Rode Zee
+-  В Германии грузовик въехал в группу пешеходов
+-  В Молдавии в 2024 году ожидают дефицит пенсионного фонда на уровне 30%
+-  10 kişinin öldüğü kazada sürücüler adliyede: Son anda gördüm...
+-  Dezembrite — a síndrome de fim de ano
+-  صاحب السمو يعزي خادم الحرمين الشريفين
+-  Газзаев — о Захаряне: у Арсена есть задатки, чтобы закрепиться в «Реал Сосьедад»
+-  Niezidentyfikowany obiekt nad Polską. Jest reakcja Ukrainy
+-  Epic Games Store วันที่ 10 ประกาศแจกเกมช่วงท้ายปีให้รับกันแบบฟรี ๆ อย่าง Cat Quest เป็นเวลา 24 ชั่วโมง
+-  Niek van der Bruggen weg bij Radio 538: ‘Soms moet je het vertrouwde loslaten’
+-  افتتاح "دار الاقتصاد الأخضر" بمدينة وزان
+-  Rosjanie prą naprzód za wszelką cenę. Alarmujące informacje z frontu
+-  [증권소식] 김주현 "부동산 PF 연착륙 지원...건전성 규제 개선"/한신평 "건설사 신용도 재검토" 등
+-  Hollantilaistoppari Matthijs de Ligt on häipymässä Bayern Münchenistä
+-  Çakırözer: Can Atalay için herkesi üzerine düşeni yapmalı
+-  Konkurs na prezesa PFR na ostatniej prostej. Od dzisiaj rozmowy z kandydatami
+-  وزارة التربية والتعليم تحدد موعد إطلاق مشروع مدارس المستقبل
+-  Manisa'da yoğun sis kazaya neden oldu: 16 yaralı
+-  Bruno Paz’ın talipleri artıyor
+-  KONYASPOR’DA 8 İSİM GOL SEVİNCİ YAŞADI!
+-  Hasan Angı'dan Konyaspor'a ziyaret
+-  Aile hekimlerinden uyarı : Soğuk algınlığında tavsiye ve 'ikram' ilaç kullanmayın
+-  Umut Bozok el yakıyor
+-  Konyaspor Basketbol, ilk yarının son sınavında
+-  Nalçacılılar Grubu 40. yaşını coşkuyla kutladı
+-  TSRTC: రేపటి నుంచి అందుబాటులోకి బస్సు: ఆర్టీసీ ఎండీ సజ్జనార్‌
+-  Bilecik'te kadın öğretmen kadın veli tarafından darp edildi
+-  PKK'lı haine 2 kez ağırlaştırılmış müebbet verildi
