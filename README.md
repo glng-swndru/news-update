@@ -1,51 +1,51 @@
 # Latest News
--  Gan chịu trách nhiệm 500 chức năng: Hãy ‘đối xử tốt’ với gan ngay bây giờ với 5 cách này
--  NSƯT Xuân Bắc khoe hậu trường tập Táo quân
--  Phạm Tuấn Hải được chọn là cầu thủ Việt Nam đáng xem nhất Asian Cup 2023
--  Văn hóa "cầu chúc" trong dịp Tết và ý nghĩa độc đáo của mâm ngũ quả ba miền
--  Nếu như TV màn hình cong đã “hết trend” thì màn hình máy tính cong lại được ưa chuộng vì lý do này
--  Dân tình "xôm tụ" mở tiệc tất niên với bàn tiệc hoành tráng đến từ ShopeeFood
--  HLV Thạch Bảo Khanh viết “tâm thư” chia tay Thể Công Viettel
--  Phát hiện nhóm tội phạm với gần 20 phụ nữ chuyên lừa đảo trên mạng
--  اتهم سابقا بقتل أبن عمه.. اغتيال شقيق مسؤول كردي بارز اثناء تواجده بلبنان
--  تركيا تعتقل 3 مسؤولين بداعش كانوا يستعدون لمهاجمة سفارة العراق بأنقرة
--  21 دولة وألف شركة تشارك بمعرض بغداد الدولي بدورته الـ47
--  لهذه الاسباب :نقل دبابات ومعدات عسكرية للمنطقة الخضراء
--  النزاهة: ضبط 9 "مرتشين" في دوائر نينوى
--  "مطيريجية" يتشاجرون ويخلفون 3 إصابات وسط بغداد
--  الكشف عن خطة كبرى لتوسيع شوارع بغداد
--  إعدام 4 أشخاص على صلة بالموساد في ايران
--  نينوى.. أكثر من (750) فتاة تتوجهن العتبة الحسينية في مهرجان سن التكليف
--  Tematska sjednica o poslovanju Dimnjaka
--  Bộ trưởng Bùi Thanh Sơn nói về một năm ngoại giao sôi động của Việt Nam
--  Tranh quý điện Cần Chánh cần về đúng chỗ
--  Xá lợi tóc Đức Phật ở chùa Ba Vàng được trả về cố quốc
--  Giám đốc Trung tâm dạy nghề lái xe Sài Gòn bị khởi tố thêm tội đưa hối lộ
--  Ông Tập Cận Bình: Bắc Kinh sẽ 'tập hợp đa số áp đảo' trên trường quốc tế
--  Nghi phạm cuối cùng vụ bắt cóc giám đốc người Trung Quốc bị bắt
--  Khách quốc tế đến Việt Nam vượt xa mục tiêu, nhưng chỉ bằng 70% trước dịch
--  Ankara Polatlı'da 745 bin TL'den başlayan fiyatlarla 1+1 ev sahibi olma müjdesi!
--  Beqaj “bujar” me gruan/ 24 tenderat e fiturara nga Shëndetësia nga “Delta Pharm”
--  1 ano sem Pelé: veja as homenagens ao rei do futebol
--  Bauchi Gov Signs N300bn 2024 Budget, Prioritises Education, Child Rights
--  Od pokojnog muža je naslijedila kockarsko carstvo, teška je 32 milijardi dolara, a obožava Donalda Trumpa
--  הבחירות לרשויות המקומיות: 688 מועמדים לא יוכלו להשתחרר בקרוב ממילואים
--  Starke Schweizerinnen bei Machtdemonstration von Shiffrin
--  Trainer Luca Cereda: «Ambri ist ein kleines Wunder»
--  উড়োজাহাজ বিধ্বস্তের জন্য পাইলটের ভুলকে দায়ী করলো নেপাল সরকার
--  PSEI down, peso up on last trading day of 2023
--  Mapa GPW: Rafako, Mo-Bruk, Fon, CCC i Orlen w centrum uwagi
--  Europejski rynek akcji zmierza do zakończenia roku dwucyfrowym wzrostem
--  Minister przemysłu: najpilniejszym zadaniem zatwierdzenie wniosku notyfikacyjnego
--  Cáncer de pulmón: ¿por qué las mujeres acceden menos que los hombres a los programas de cribado?
--  ¿Qué le pasa a tu cuerpo si comes rábano todos los días?
--  Cáncer de pulmón: ¿por qué las mujeres acceden menos que los hombres a los programas de cribado?
--  Opatija - savršen izbor za doček Nove godine
--  Προτιμάτε τη βασιλόπιτα σαν κέικ ή σαν τσουρέκι; Έχουμε όλες τις συνταγές!
--  Un obiect neidentificat a intrat în spaţiul aerian al Poloniei dinspre Ucraina. A fost observat pe radar
--  Macau vence 7º concurso mundial de tradução chinês-português
--  "O Choquei acabou e não fará falta", diz Marcia Tiburi
--  Síðustu tölur bárust hálftíma eftir að eldgos hófst
--  Tennis : Bourreau de Garcia à Roland-Garros, bientôt compatriote ?
--  Can Nvidia Repeat Its Incredible 2023 Performance in 2024?
--  Pakistan court grants permission to Imran Khan for election meetings in jail
+-  Kooperation mit dem Erzfeind?: Iran exekutiert vier Kurden wegen Sabotage
+-  Israelischer Teenager wurde wegen Weigerung, in der IDF zu dienen, wegen Widerstand gegen den Krieg in Gaza inhaftiert
+-  IGA’nın “Cumhuriyet’in 100. Yılında 100.Hava Yolu” Air China oldu
+-  Điểm tin 18h: Tăng trưởng GDP năm 2023 đạt 5,05%; Phát hiện ChatGPT tự nói dối, gian lận
+-  Cần siết chặt tour, tuyến chui để phát triển du lịch Phú Quốc
+-  10 món ăn may mắn để đón năm mới
+-  Magnetne trake još se ne predaju pred diskovima
+-  Telefongespräch ins Jenseits mit dem «Windtelefon» am Jurafuss
+-  بعد إصابة حلمي بكر.. 7 إشارات تحذيرية يرسلها جسدك قبل الأزمة القلبية
+-  القسام تعلن تفجير حقل ألغام بقوة مشاة إسرائيلية وسط القطاع
+-  Russischer Angriffskrieg: Kiew: Größter russischer Luftangriff seit Kriegsbeginn
+-  Германия — В 2023 году ЕС принял более миллиона беженцев
+-  Tight Security, No-Vehicle-Zone On Grand Road For New Year In Odisha’s Puri
+-  أسعار الأسماك والمأكولات البحرية اليوم الجمعة في سوق العبور
+-  Las tres casas de la semana: retiro en Dénia con gruta incluida por 3 millones
+-  Водители ДНР за год оформили почти шестьсот тысяч страховых полисов
+-  The late Charlie Munger quietly built a $300 million stock portfolio from scratch at a small newspaper publisher. It just warned of worse returns now he's gone.
+-  Kickoff | Strange clause in ex-PSG star's Middle East contract 'revealed'
+-  Korać predsjednik Sudskog savjeta, Medojević zamjenik
+-  Šest prijava: Ovo su kandidati za direktora EPCG
+-  Sahin war einst jüngster Buli-Profi: BVB-Legende wird neuer Co-Trainer von Terzic
+-  Piotr Jarosiewicz z Azotów Puławy zagrał w kadrze, Polska pokonała Argentynę
+-  मराठा आंदोलन: 3 करोड़ मराठा 20 जनवरी से मुंबई को घेरेंगे, जारांगे-पाटिल की चेतावनी
+-  Bunu yapan araç sahiplerinin cebi fena yanacak! Cezası 2024 yılında arttı
+-  [29일 광양시] 2024년 광양국가산단 동호안 사업 착수 등
+-  미 강세장 이끈 AI…내년 주식 시장 '상고하저' 전망
+-  Hundreds sign petition in effort to save closure-threatened Doune Library
+-  28-Jähriger stirbt in Kassel: Ermittlungen zu tödlichem Unfall im Bergpark Wilhelmshöhe | hessenschau.de
+-  Guava leaves health benefits : रोजाना इस फल की 4 से 5 पत्तियां चबाने से इन पांच बीमारियों से छुटकारा मिल जाएगा!
+-  [29일 울진군] 울진군 매화면 송년의 밤 개최 등
+-  Пункты приема живых елок на переработку откроются в Великом Новгороде 5 января
+-  Global trade dynamics and Quantum AI
+-  Bundesheer - Hofbauer als stellvertretender Generalstabchef bestellt
+-  Lagi-lagi Boeing 737 MAX Alami Masalah, Kini Soal Baut Lepas
+-  The Seven Deadly Sins: Four Knights of the Apocalypse Netflix Release Date and More!
+-  दैनिक राशिफल 29 दिसंबर 2023
+-  आख़िरकार फिल्म ‘सालार’ ने कमाए 300 करोड़, हिंदी में भी हुआ जादू
+-  [29일 여수시] 종합청렴도 2등급 달성 등
+-  A delivery driver who won $4.8 million in the lottery still worked his Christmas shift to not let his colleagues down
+-  Ucrania recibe el mayor ataque aéreo de Rusia
+-  پارٹی سے انتخابی نشان واپس لینے کا مطلب پارٹی ختم کرنا ہے، بیرسٹر گوہر
+-  Schwerer Unfall in Passau: Lkw fährt in Menschengruppe – ein Toter
+-  SVE STE, BRE, ISTE: Nadežda Biljić ne može više da ćuti, javno rekla šta ima o koleginicama sa estrade!
+-  KEJT MIDLTON VAŽI ZA JEDNU OD NAJLEPŠIH ŽENA NA SVETU Pet pravila kojih se strogo pridržava su tajna njenog savršenog izgleda
+-  Franjo Ivanović među 30 najperspektivnijih napadača na svijetu
+-  Brände - Diskussion um Brandeinsatz in oö. Asylunterkunft
+-  Сироджиддин Мухриддин провел телефонный разговор с главой МИД Киргизии
+-  Soccerladuma | Bafana Rivals' Boss: Why Man Utd Star Was Excluded From AFCON Squad
+-  Soccerladuma | Exclusive: Chiefs Icon Khune's Roadmap To Redemption Revealed?
+-  Meadow Walker: Χώρισε μετά από τρία χρόνια γάμου η κόρη του Paul Walker
