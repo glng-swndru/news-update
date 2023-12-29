@@ -1,51 +1,51 @@
 # Latest News
--  Hubo mil 682 incendios en vivientas durante el 2023
--  “Gritos sin palabras”: Hamas utilizó la violencia sexual como arma
--  Acusa Delgado vínculo de Xóchitl con encuestadora
--  Migrantes se toman de las manos para evitar ser retornados
--  LKR value against USD at commercial banks today (Dec 29)
--  Park Hyatt Saigon to Introduce 2024 Tet Hamper Collection - The Southern Belle
--  MS, “코파일럿으로 미래 AI 교육 환경 지원 확대”
--  Valtteri Bottas ei noussut ääniharavaksi
--  서울중앙지검 현직 부장검사 "내년 총선 출마하겠다" 사의
--  Scam of the Year: nine of the niftiest 2023 scams in Australian business and politics
--  부평5동, 부평동부새마을금고 '백미 1210㎏ 기부'
--  부평구, ㈜SIMPAC으로부터 이웃사랑 성금 1천만원 기탁받아
--  영월군, 축산시책 추진 최우수기관 선정
--  (사)생명푸드셰어링, 부산 동구에 어묵 30상자 및 장갑 6상자 기탁
--  남동구, 51만 구민 염원 담아 '제2경인선 광역철도' 조속 추진
--  ㈜우현건설, 동두천시에 지역 사회 위해 1천만원 기부
--  강원랜드, '공공기관 노사혁신 대상'서 상생협력 분야 대상 수상
--  박형덕 동두천시장, 직접 열린민원함 첫 개함 실시
--  박희조 대전 동구청장, 과학도시 도약 위해 ‘CES 참관’
--  강원랜드, 적극행정 모범사례 발굴해 조직 경쟁력 강화
--  성진바이오(주), 연천군에 나눔실천 위한 성금 1000만원 기탁
--  연천군, 공무직 임금·단체협약 체결식 개최
--  유성구, 2024 유성온천문화축제 온천로 일원서 개최
--  남동구 만월1호 공영주차장 새단장… 내달부터 정식 운영
--  안병구 변호사, 내년 4․10 ‘밀양시장 보궐선거’ 출사표… ‘국힘 예비후보’ 등록
--  상주시농업기술센터, 2023년 ‘최우수상’ 수상
--  남동구, 보건복지부 2023년 지역 복지사업 평가 ‘우수’ 기관 선정
--  [신년사] 조용병 은행연합회 회장, "은행, 전통 영업방식으로 성장할 시대는 이미 끝났다"
--  상주시장학회, 2023년 장학페스티벌 성황리에 개최
--  대전 서구, 호남선(서대전~가수원간) 매천교 개통
--  아너소사이어티 상주 6호 가입식 진행
--  ईयर एंडर 2023: इस साल सबसे ज्यादा विवादों में रहा ये बॉलीवुड सितारा
--  World population up 75 million this year, topping eight billion by Jan 1
--  의협회장, 신년사 통해 "의대정원 확대 저지" 강조
--  'I don't expect much': Nadal plays down Australian Open hopes as he gets mobbed in Brisbane
--  Group clash over land dispute leaves six critical in Odisha’s Bhadrak
--  Global Electronic Grade Noble Gases Market Will Generate Record Revenue by 2028
--  여 탈당 천하람 "이준석 신당 창준위원장 맡아"…이석현은 민주 탈당
--  United Cup Highlights: Alejandro Davidovich Fokina v Thiago Seyboth Wild
--  United Cup Highlights: Alejandro Davidovich Fokina v Thiago Seyboth Wild
--  United Cup Highlights: Alejandro Davidovich Fokina v Thiago Seyboth Wild
--  United Cup Highlights: Alejandro Davidovich Fokina v Thiago Seyboth Wild
--  Afición no da crédito al nuevo destino de Kevin Castaño y le piden cambiar de opinión
--  구호 거창한 ‘역동 경제’…서비스 산업 도약이 열쇠 [경제칼럼]
--  [영상] 車 20대 들이받고 도주한 음주운전 20대男…경찰, 실탄 6발 쏴 검거
--  फ्री कॉलिंग सुविधा: अब ये कंपनी भी दे रही है फ्री कॉलिंग, रिचार्ज की जरूरत नहीं, फ्री में चलेगा फोन
--  Crecen energías limpias pese a retos económicos
--  “중국인 출입금지 日식당 비난한 中 유튜버는 국안부 요원”
--  Yağış yok, sis ve pusa dikkat! İşte 29 Aralık 2023 hava durumu...
--  Anthony Edwards' season-high 44 points lead Timberwolves over Mavericks 118-110
+-  Ich werde keinen Machtkampf um die Kanzlerkandidatur zulassen
+-  İsrail'den Gazze'ye ağır bombardıman! Çok sayıda Filistinli hayatını kaybetti
+-  Resmi ilan fiyat tarifesi belli oldu
+-  Resmi Gazete'de yayımlandı: Arabuluculukta 2024 yılı ücret tarifesi belirlendi
+-  İzmir açıklarında düzensiz göçmen operasyonu
+-  İhtiyaç sahibi hanelere kömür yardımı yapılması kararı Resmi Gazete'de yayımlandı
+-  Kamu işçilerine ek ödeme tarihleri Resmi Gazete'de yayımlandı
+-  Maine eyaletinde 'Trump' kararı
+-  Papageien: Kakadus tauchen ihren Zwieback ein
+-  태영건설 워크아웃 신청에 불안한 SBS
+-  The tiny French town that changed the course of history
+-  Расчёты «Гиацинт-Б» уничтожили группу пехоты ВСУ на купянском направлении
+-  Die Weltbevölkerung ist im Jahr 2023 um 75 Millionen gestiegen – DW – 29.12.2023
+-  बारिश से नए साल का जश्न खराब होने की संभावना, आईएमडी ने इन राज्यों में बारिश की भविष्यवाणी की
+-  НБА. «Детройт» уступил «Бостону» и потерпел 28-е поражение подряд, «Денвер» разгромил «Мемфис» и другие матчи
+-  Invitan Bomberos a sumarse a colecta de juguetes
+-  Muere atropellado hombre de la tercera edad
+-  США не могут передать Киеву замороженные активы России без согласия ЕС
+-  Ловись, рыбка: в Костромская области уловы в 2023 году выросли на 12%
+-  В Ивановской области назначили нового руководителя вневедомственной охраны
+-  क्या ललन सिंह की जगह लेंगे नीतीश कुमार पार्टी अध्यक्ष? जनता दल यूनाइटेड की प्रमुख बैठक आज
+-  CJ제일제당, 요식업 소상공인 전용 ‘CJ더마켓 for Biz’ 오픈
+-  আগে বলতাম ভোটটা দেবেন, এবার বলি ভোটকেন্দ্রে আসবেন
+-  FDP-Spitze: Initiator der Mitgliederbefragung wirft Intransparenz vor
+-  블랙핑크, 멤버 4명 모두 YG 떠난다
+-  മലയാളികൾക്ക് ഇത്തിഹാദ് എയർവേയ്സിന്റെ പുതുവർഷ സമ്മാനം; കോഴിക്കോട്, തിരുവനന്തപുരം സർവീസ് 1 മുതൽ
+-  Şarkıcı Demet Sağıroğlu hayatının kırılma noktasını açıkladı: "Kayahan müzikteki babam"
+-  Автобусы в Кондопогу из Петрозаводска будут забирать пассажиров на новом месте
+-  Road Accident: కామారెడ్డి జిల్లాలో రోడ్డు ప్రమాదం: ఇద్దరి మృతి..
+-  RDC : la RVF alerte sur la "montée exceptionnelle" des eaux de fleuve Congo
+-  গন্ধ ছাড়া হাঁসের মাংস রান্না করবেন যেভাবে
+-  राष्ट्रिय टोपी दिवसको सान्दर्भिकता
+-  Дети сотрудников УФСИН Смоленской области побывали на новогоднем утреннике
+-  [화순탄광 갱도 관리 놓고 주민 반발…“집단행동 나서”
+-  [블랙핑크, ‘따로 또 같이’ 활동한다…4명 모두 YG 떠난다
+-  Merz: Werde Machtkampf um Kanzlerkandidatur nicht zulassen
+-  [순천시, 어린이집 365일 연중무휴 운영
+-  Darts-WM für Pietreczko beendet - „Es überwiegt der Ärger“
+-  Mehr als 620 Sportstätten profitieren von Landesförderung
+-  Gizli beynəlxalq pul köçürmə sistemi qurmuş Hamid Safari Ghafour Bakıda həbs edildi
+-  رياح خفض الفائدة تعصف بالدولار لإنهاء العام على خسارة
+-  Innenministerium: Mehr als 620 Sportstätten profitieren von Landesförderung
+-  The New York Times подала в суд на OpenAI и Microsoft за нарушение авторских прав
+-  В Красноярском крае впервые лишили гражданства трех человек за преступления
+-  Cựu Cảnh sát giao thông bắt cóc bé trai, tống tiền 15 tỷ đồng bị tuyên phạt 20 năm tù
+-  ऑटो पायलट कारें कितनी खतरनाक हैं? जानिए आपातकालीन स्थिति में ब्रेक कैसे लगाएं?
+-  Bakının bir sıra yollarında sıxlıq myarandı
+-  Wanneroo bushfire: DFES investigation determines cause of blaze that destroyed 18 homes
+-  Врачи указали тулякам на симптом рака во время Нового года
+-  'Childlike' mentally ill former model, 24, who disappeared from Florida treatment center spotted at Alabama gas station with unidentified homeless man
