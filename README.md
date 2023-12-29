@@ -1,51 +1,11 @@
 # Latest News
--  태영건설의 워크아웃, 떨고 있는 금융시장과 건설업계
--  삼성물산, 과천주공10단지 재건축 시공사 선정
--  여에스더 "불법 아냐" 자신했지만…식약처 "일부 부당 광고 확인"
--  "사랑해, 행복해"…디즈니 100주년 기념작 '위시', 특별한 전광판 이벤트
--  सद्दाम हुसैन के मुल्क में मजबूत हो रहीं ईरान की जड़ें, चुनाव में शिया पार्टियों ने दिखाया दम
--  मिलिए तूफानों का पीछा करने वाले इस शख्स से…आसमान देख बता देता है सब कुछ
--  Na Sylwestra Polacy wydadzą o 32 proc. więcej niż rok temu
--  Hit, kit i zaskoczenie 2023 roku (podcast)
--  Radca Prawny: w 2024 r. zmienią się wysokości świadczeń pracowniczych oraz kwoty wolne od potrąceń
--  NFL suma 28.7 millones de espectadores en Navidad
--  Calientan el asfalto
--  Seleccionados nacionales darán clínica deportiva
--  Colocan a ‘Coco’ nuevamente en el fútbol de Europa
--  Una abuelita muere tras un vuelco en Veraguas
--  ¡Terrible! Macheteó a su exnovia de 15 años
--  Cae otro exfuncionario del Ifarhu por supuesto fraude en el programa PASE-U
--  Yucatán es el nuevo equipode Tejada
--  Mejía regresa a Japón
--  Rescatan en medio de disparos a dos personas secuestradas
--  Cayeron con 15 mil dólares falsos en Colón
--  Diputados se enfrascan en debate presupuestario
--  Cargaban en carro arma de fuego y pasamontañas por Río Abajo
--  Rayo alcanzó a alias ‘Choco’ y ‘Tatanga’ en sector de Belén
--  IPHE gradúa 2,025 estudiantes en todo el país
--  Manejo del agua
--  Se dedicaba a botar basura y lo mataron de 6 balazos
--  Financiamiento de campañas tienen topes
--  Este año hicimos un enorme recorte al presupuesto
--  Infidencias y confidencias del 29 de diciembre de 2023
--  Konut sahiplerini ilgilendiriyor: Yeni yılda geçerli olacak!
--  [단독] 공매 9회 유찰에 소송전까지…오시리아, 새마을금고 ‘아픈 손가락’되나
--  전남도, 청렴도 전국 최하위권 추락 ‘굴욕’
--  친명 넘어 찐명까지 ‘공천 파열음’…이낙연의 ‘헤어질 결심’
--  ‘육아기 유연근무’ 지원 확대한다...‘시차출퇴근제’에도 장려금
--  이필수 의협회장 “무분별한 의대 증원 막아내겠다”
--  Γουόριορς - Χιτ 102-114: Άνετα με Χίρο και Αντεμπάγιο (vid)
--  EXCLUSIVE: Prithviraj Sukumaran talks about Salaar’s success; also says, “I have neither watched Dunki nor Salaar! I am a big fan of Rajkumar Hirani and Shah Rukh Khan sir. I am very happy that both the films are doing well”
--  Sonam Kapoor’s husband Anand Ahuja shares a late but beautiful birthday post for his father-in-law Anil Kapoor
--  Kareena Kapoor Khan gives a peek into the holiday diaries with Natasha Poonawalla; see pics
--  WhatsApp’s new feature lets you create username from web client
--  اليكم حالة الطقس اليوم الجمعة بالاردن
--  وفد من حماس يتوجه للقاهرة لبحث المبادرة المصرية
--  110 km de voies cyclables avec une nouvelle signalétique dans le sud de l'Eure
--  В Марий Эл среднемесячная зарплата за десять месяцев выросла на 19%
--  Мокрый снег и до -3 градусов: какая погода будет в Петербурге 29 декабря
--  Ульянов: ситуация с российскими СМИ в Европе отражает тоталитарные тенденции
--  PSC chair commiserates with perm sec over husband’s death
--  Анализ за Шенген: Австрия използва външната политика като реквизит в националния си театър
--  Beliebteste Babynamen 2023: Emilia und Noah sind wieder vorn
--  เกือบแสน! วันแรกคนนั่งรถไฟกลับบ้าน ขร.เข้มมาตรการดูแลผู้โดยสาร
+-  איראן: "חיסלנו ארבעה פעילים שפעלו תחת המוסד הישראלי"
+-  Iduće godine očekujemo još veći rast broja vožnji, planiramo širenje i na nova obalna područja
+-  Kommentar zu Trumps Wahlausschluss in Maine: Ein heikler Pyrrhussieg mit Paragraphen
+-  2023 عام سقوط البلاديوم.. الذهب نحو أفضل أداء سنوي منذ 2020
+-  বড়দিন ঘিরে পার্টি, মামলা খেলেন রণবীর!
+-  홍성군청 양궁팀 운영도 금메달감
+-  올해도 찾아온 부여 남면 얼굴 없는 천사
+-  금산군 양수발전소, 부리면 방우리 유치 성공
+-  논산문화관광재단, 출범 1년만에 굵직한 표창 줄수상
+-  서천 판교 근대역사문화공간 밑그림 그렸다
