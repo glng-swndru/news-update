@@ -1,11 +1,11 @@
 # Latest News
--  El acuerdo entre socialistas y PNV asegura la aprobación hoy del presupuesto municipal
--  কখন বুঝবেন ম্যাট্রেস বদলে ফেলার সময় এসেছে?
--  Дорожные службы Ставрополья в 2023 году получили 20 единиц техники
--  بالفيديو .. هبوط مرعب بمطار لندن لطائرة ركاب أشرفت على التحطم
--  Sem ideias para o jantar? O novo frigorífico da Samsung vai ajudá-lo
--  Juros da dívida de Portugal descem a dois e cinco anos e sobem a 10 anos
--  Данилов день 30 декабря: почему нельзя целовать детей ночью
--  BIEC: w ostatnich dwóch latach nastąpił wzrost aktywności zawodowej Polaków
--  BIEC: Wskaźnik Wyprzedzający Koniunktury od pięciu miesięcy rośnie, to nadzieja na ożywienie gospodarki
--  Zarząd spółki z GPW apeluje o przemyślane zakupy. "Sytuacja grozi dalszym niekontrolowanym wzrostem kursu"
+-  New York Post: Еще один влиятельный сторонник Путина загадочно погиб, упав из окна 3-го этажа
+-  Marriage Course van start in Oud-Alblas en Goudriaan
+-  Ferdi Kadıoğlu'ndan itiraf: 'Fenerbahçe teklif yaptığında...'
+-  Acht betaalbare koopwoningen in gebouwen obs Tweespan in Schelluinen; gemeente zoekt projectontwikkelaar
+-  Samuxda Heydər Əliyev prospektindəki mərkəzi park yenidən qurulur
+-  “Azerçay” növbəti dəfə mükafat qazandı
+-  Türkiyədə kilsə və sinaqoqlara hücumun qarşısı alınıb
+-  '수주고 2조원' HDC현대산업개발, 시장 신뢰 회복…차입금 28% 줄이며 안정성 확보
+-  নিয়মিত ধনেপাতা খেলে কী হয় জানেন?
+-  Kışın neden turunçgil meyveleri tüketmeliyiz?
