@@ -1,51 +1,11 @@
 # Latest News
--  Sello Maake KaNcube: “Mbongeni Ngema Was On Path To Clean His Name Before Death”
--  ‘I know how important, meaningful Asian Cup is for Malaysian fans’, says Harimau Malaya’s Wilkin
--  Prime Video’s ‘Defensive Alerts’ Feature Debuts on Primary Thursday Night Football Feed
--  Asırlık Han 1 Milyar 600 Milyona İcradan Satılık
--  이준석 quot;한동훈, TK 의원들 다 죽일 것hellip;국힘, 도축장 줄선 소quot;
--  Псковские таможенники изъяли почти полтонны гашиша
--  Real Madrid extends Carlo Ancelotti’s contract until 2026 after Brazil’s interest in hiring him as coach
--  Strictly legend in advanced talks for Celebrity Big Brother as bosses blow the budget to sign up controversial star
--  Policajac iz Banjaluke osumnjičen za silovanje
--  ആദ്യമൊന്നും നമുക്ക് വലിയ ധാരണകളൊന്നും ലഭിക്കില്ല, എന്നാൽ ചിത്രം അവസാനിക്കുമ്പോഴാണ് ആദ്യ സീനുകൾ എന്തായിരുന്നു എന്ന് നമുക്കു മനസ്സിലാവുക
--  If you always feel tired, make this noise for a scientifically-backed energy boost
--  Datas para pagamentos do INSS em 2024: veja o calendário
--  Andhra Pradesh: CM Jagan calls Pawan Kalyan ‘marriage star’, says it’s not wise to vote for JSP chief
--  Crime rate, property offences and road accidents dip in Visakhapatnam, while drunken driving cases spike in 2023, says Police Commissioner
--  Община Варна предоставя здравни грижи и социални услуги на лица с увреждания и възрастни хора
--  Premifab sa zagrebačkim Geotehničkim fakultetom predstavio nove tehnologije za oporabu otapala i drugog opasnog otpada
--  Bura municipality board members assume office
--  تصاعد الأزمة بين الجزائر و بامكو وسط توقعات باعتراف مالي بمغربية الصحراء
--  توضيح عاجل من "سكني" حول تعثر صرف بعض الدفعات وكيفية التغلب عليها
--  Pet znakova kojima vam pas poručuje da se boji
--  Mystery remains over death of man ‘murdered by couple’ whose severed body parts were found strewn across seaside town
--  Tüm Ülkeye Satıyor Dahası 3 Ülkeye İhraç Ediyor: Yıl Boyunca Ürün Veriyor, İşlere Yetişemiyor
--  112 Acil Çağrı Merkezine Gelen Çağrıların Yüzde 67'si Asılsız
--  NGO agih sumbangan kepada mangsa banjir
--  वर्ल्ड कप की हार भूल जाएं तो 2023 में बजता रहा टीम इंडिया का डंका, हर फॉर्मेट में रही नंबर-1
--  Srbija ubrzano isisava energente iz BiH
--  Manisa Soma’da yoğun sis nedeniyle minibüs devrildi: Çok sayıda yaralı var
--  Ancelotti, hasta 2026 de “luna de miel” en el Real Madrid
--  Ir-Russja tispara iktar minn 150 missila fl-Ukrajna u toqtol 18-il persuna
--  Военный эксперт Кнутов рассказал о целях ракетного удара ВС России по Украине
--  PHOTOS : नाम है जल एंड जलेबी, मिलता है पहाड़ी खाना, ट्राय कीजिए दाल का सूुप
--  Borsa İstanbul Çarpıcı Yorum! 2024’te Dikkatli Olunmalı
--  След казуса с Митрофанова директорът на БНР смята, че забранени събеседници няма и не трябва да има
--  Uzman isim 7 büyüklüğündeki depremin vuracağı ili açıkladı. Kahramanmaraş depremini bilmişti
--  Масова кастрация на бездомни кучета започва в Горна Оряховица
--  Неизвестное существо откусило два больших куска от огромного ската
--  Bauchi lawmaker flags off first scholarship programme for tertiary students
--  Group urges FG to intervene in Nigerian businessman’s Chinese visa denial
--  Hyundai Tayland'da Yeni IONIQ Laboratuvar Açtı
--  Drive-by shooting near Nicosia prisons
--  VIVO – Conferencia de prensa del vocero presidencial Manuel Adorni
--  BİM markette bu haftanın yeni indirimli ürünler listesi (5 Ocak BİM güncel aktüel ürünler kataloğu)
--  Chiara Ferragni ricompare sui social dopo giorni di silenzio: il like al post del suo papà Marco
--  Kryeministri Kovaçevski Vitin e Ri do ta presë me miqtë dhe me familjarët
--  Qeveria jep 200 milionë për skuadrën kombëtare
--  Nýr samningur á borðinu hjá Moyes - Beðið frétta af Paqueta
--  Зеленский уволил главу Тернопольской областной государственной администрации
--  Višnja Starešina: Ove godine je Hrvatska dva puta rekla veliko "stop" velikosrpskom projektu "srpskog sveta"
--  Rayon y’Abagore yaguze uwari kapiteni wa AS Kigali
--  Calcio: Pioli, 'Cardinale non l'ho sentito, parlo con dirigenti'
+-  Bertolacci yeniden Fatih Karagümrük'te!
+-  VIDEO+FOTO: U Zenici počelo postavljanje bine za novogodišnji spektakl Marije Šerifović
+-  Chris Harrison Mocks 'The Bachelor' For 'Going Downhill' Since His Exit
+-  Bakan Yardımcısı açıkladı: iOS yüklü cihazlarda güvenlik açığı tespit ettik
+-  জুতা ছুড়ে মারা হলো থালাপতি বিজয়ের মুখে
+-  Kremlj: Imamo popis evropske i američke imovine koju bismo mogli zapleniti
+-  Ολυμπιακός: Νέο όνομα για επιθετικός – Παικτάρα και έρχεται άμεσα – Πόσα στοιχίζει
+-  Swenn Larsson nära pallen – Sara Hector tolva
+-  İşte karşınızda dünyanın en hızlı uçağı! 2025'te havalanacak
+-  Diyarbakır'da feci kaza! Çöp konteynırını boşaltan işçiye taksi çarptı...
