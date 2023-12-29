@@ -1,51 +1,11 @@
 # Latest News
--  Serdar Ortaç'tan üzen haber
--  The Star-Studded Lineup for ‘Dick Clark’s New Year’s Rockin’ Eve With Ryan Seacrest’ Welcomes 2024 With a Bang
--  Uciderea omului de afaceri Adrian Kreiner, în propria casă: Unul dintre cei trei suspecţi va fi adus vineri în ţară
--  Koja je razlika između G-Synca i FreeSynca
--  Carlos Cuerpo promete ante el rey su nuevo cargo de Ministro de Economía
--  Ковачевски: По една две-пијачки по скопските кафулиња, Новата ќе ја дочекам со семејството
--  Manchester United'da Altay Bayındır formayı kaptı
--  Postecoglou warns no transfer window magic for Spurs
--  Rafa Nadal: "No me veo jugando durante mucho tiempo"
--  खेलकूद -पढ़ाई के दबाव को कम करने के बेहतर माध्यम – मेयर
--  الذهب يفقد بريقه.. تراجع جديد لسعر الجرام بمنتصف تعاملات الجمعة
--  Ковачевски: Постапката за избор на нов државен јавен обвинител оди преку Советот на ЈО, кога ќе ги добиеме документите ќе одлучуваме
--  Man stabbed during St-Michel bar fight
--  López Obrador refers to recent U.S. meeting as ‘very good’
--  Talleres de Remedios de Escalada oficializó los nuevos refuerzos
--  尹 “상식적 정책으로 위기 헤쳐 나가”…용산서 종무식
--  Híres magyar dalok, amelyek mondanivalója csontig hatol
--  TL dönüşümlü KKM'de yeni hesap açılamayacak
--  Riyad'da Süper Kupa krizi! İki takımdan ortak karar: Maça çıkmayız
--  ASELSAN imzayı attı! Tam 65,9 milyon dolar
--  İstanbul Havalimanı hedefine ulaştı
--  Заврши расправата во Судскиот совет, дополнително ќе се одлучува дали има одговорност Беса Адеми
--  "이 '즉석국'과 '황도 캔' 반품하세요"…멸균 제품서 세균 발육 확인
--  Соседов назвал главную ошибку Пугачевой: "Она уже на земле"
--  Hyundai Signs Actor Deepika Padukone As New Brand Ambassador
--  Kenyan Banking Year in Review 2023: The Contrasting Fortunes of Multinationals vs Local Banks
--  „Важно не се плаќа радиодифузна такса“: Власта ја зголеми сметката за струја за 400 денари
--  Otkazan koncert Riblje Čorbe zbog Borinog zdravstvenog stanja: Ova opaka bolest mu ne da mira
--  'Long Live My Hulk': Akshay Kumar Shares a Goofy Video on Twinkle Khanna's B'day
--  STT pradėjo ikiteisminį tyrimą dėl išmokų Prienų tarybos nariams
--  Declaración institucional de Sánchez para anunciar cambios en el Gobierno
--  Anćeloti u Realu do 2026.
--  Nach 50 Jahren aus dem Salon in den Ruhestand verabschiedet
--  ‘Parasite’ actor’s death prompts criticism of police, media
--  GJKKO rrëzon kërkesën e Fredi Belerit për përjashtimin e gjyqtarëve
--  Latif Şimşek yazdı: Biri “PKK lanetlenmiyor”, öbürü “lanetleniyor” diye küfrediyor! Ne ayaksınız?
--  Süper Kupa maçı öncesi kriz
--  Këlliçi publikon dokumenta ku zgjerohet përfshirja e Veliajt në inceneratorin e Tiranës
--  Özgür Özel'den Furkan Karabay açıklaması!
--  Mexhiti paralajmëron 22 makina të reja për ndihmë urgjente mjekësore dhe punësime
--  KBC Program: కేబీసీ ప్రొగ్రామ్లో రేవంత్ రెడ్డిపై అమితాబ్ ప్రశ్న..అన్సార్ చెప్పారా?
--  Россельхознадзор открыл поставки инкубационного яйца из Турции
--  ULFA signs peace accord with Centre, Assam government agreeing to shun violence
--  В Binance отчитались о росте клиентской базы на 30%
--  Rosie Jones blasts 'same old ableism' as trolls target her after Big Fat Quiz Of The Year appearance
--  PSE&G Files Scheduled Rate Case, Its First in Nearly 6 Years
--  Carlo Ancelotti și-a prelungit contractul cu Real Madrid
--  Panathinaikos'un başına geçen Fatih Terim'in modunu düşüren tezahürat
--  Lệ Quyên và MLee lại "chúng mình có nhau" ở Công diễn 4, chưa thi đã biết đội này sẽ thắng?
--  5 mẫu chân váy "soán ngôi" chân váy xếp ly trở thành xu hướng nổi nhất 2023, sang năm vẫn còn hợp mốt
+-  احمي خصوصيتك على «واتساب».. ميزة جديدة لإخفاء رقم هاتفك أثناء الدردشة
+-  Russlands Krieg gegen die Ukraine: Flugobjekt soll in polnischen Luftraum eingedrungen sein
+-  Khánh Hòa có bắt buộc học sinh học ngoại khóa STEM, toán tính nhanh?
+-  Người dân ùn ùn về quê nghỉ Tết dương lịch, cửa ngõ Hà Nội kẹt cứng
+-  ZaloPay QR Đa Năng thực sự đa năng
+-  Chứng khoán tăng 123 điểm trong năm nay, mục tiêu 11 triệu tài khoản vào 2030
+-  Cầu siêu các nạn nhân tai nạn giao thông: Tưởng nhớ người đi, vì người ở lại
+-  Thêm một vật thể bay không xác định từ Ukraine vào Ba Lan
+-  Hà Nội: Đề nghị công an vào cuộc làm rõ thông tin biến hóa đất khai hoang
+-  Phân công ông Lê Văn Dũng điều hành Đảng bộ Quảng Nam
