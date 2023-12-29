@@ -1,11 +1,11 @@
 # Latest News
--  Engelli adamın eski eşini silahla vurduğu anlar ortaya çıktı
--  Emine Erdoğan'ın gözyaşları Gazzeli çocuklara ulaştı
--  Jürgen Klopp'tan Salah sözleri!
--  Aranan şüphelinin dolap çekmecesinden çıkması polisi hayrete düşürdü
--  Kuzey Irak'a hava harekatı... Çok sayıda terörist etkisiz hale getirildi
--  Beşiktaş ve Trabzonspor transferde yarışıyor!
--  İstanbul'da "torbacı" operasyonu! 41 tutuklama
--  Bakan Yardımcısı Yazgı: Sayın Cumhurbaşkanı'mızın talimatlarıyla 100. yılımızda 100 kütüphane hedefi koyduk
--  故이선균 마지막 인터뷰…"또 다른 일기 잘 쓰고 싶다"
--  이선균 측, 사망 직전 제출한 의견서에…"경찰이 실장 진술에 경도"
+-  Russia fires 122 missiles and 36 drones into Ukraine, 27 dead
+-  Baldur’s Gate 3 player discovers secret identity of tough Act 1 boss
+-  Documentary "China's Hainan: Song of the Rainforest": showing precious images and telling ecological stories to the world
+-  Secret code reveals how old your tyres are – and exact time to change them
+-  High Court Issues Third Injunction Against New Fees By KWS for Ignoring Public Participation, Stakeholder Concerns
+-  Erik Ten Hag Insists New Part Owners Of Man United Want To Work With Him
+-  Kickoff | PSL club accused of abandoning players
+-  Kickoff | Starting XIs: Pirates v Stellenbosch
+-  Food Prices Soared In November — NBS Reveals
+-  Oyo Police Arrest 207 Suspects, Recover Guns, Others
