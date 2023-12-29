@@ -1,51 +1,11 @@
 # Latest News
--  Anies-Cak Imin Masih Berkampanye di Wilayah Jawa Timur
--  신임 이상수 수원특례시 장안구청장
--  Thom Haye Ngebut Selesaikan Berkas Naturalisasi, Erick Thohir: Semoga Lancar
--  Ratifica TEPJF de Guadalajara que la comunidad LeBarón no es un pueblo originario
--  Ratifica TEPJF de Guadalajara que comunidad LeBarón no es un pueblo originario
--  देश ‘हाय… हाय… उचारे’ प्रधानमंत्री मंदिर द्वारे…?
--  한국홀덤협회, 대회사·회원-소통·화합 위한 통합 솔루션 역할 확대
--  Viral Video Gus Miftah Bagi-bagi Uang, Said Didu: Sudah Serusak Ini Bangsaku?
--  Canada: కెనడాలో ఉద్రిక్తత.. హిందువు ఇంటిపై కాల్పులు..
--  2024 işçi ikramiye tarihi belli oldu mu? Yeni yılda kamu işçisi ilave tediye ödemeleri ne kadar oldu? 4D'li, taşeron işçi maaşları...
--  2023年富豪榜 法國萊雅繼承人成首位身價上千億美元女性
--  कोहरे ने थामी रफ्तार: 19 घंटे तक देरी से चल रहीं ट्रेनें, आगरा-जयपुर उड़ान पर भी असर
--  Banjir di Johor makin pulih, hanya Segamat terjejas
--  [의협 회장 “의대 정원 확대, 정부 철회 안 하면 투쟁강도 높일 것”[신년사]
--  [최상위권 의대 쏠림?…서울대 수시합격 10명 중 1명 ‘미등록’
--  รทสช.เตรียม 8 ขุนพลร่วมอภิปรายงบฯ67
--  Brandattentat mot villa i Vellinge
--  Boeingplan ska kollas för lös mutter
--  Çalışan emeklilerin hesaplarına 5 bin TL ikramiye bugün yatırılacak
--  รายงานการติดตามตรวจสอบคุณภาพอากาศประจำวันที่ 29 ธันวาคม 2566
--  เปิดใจรักร้าว “เป็กกี้” ยืนกรานเลิกสามี!!!
--  Vì sao lãi suất "thủng đáy" nhưng tiền gửi vẫn tăng kỷ lục?
--  女子离职后把手机静音1年 感叹之前上班期间活得像条狗
--  Berapa Harta Kekayaan Gus Miftah? Viral Bag-bagi Uang Segepok, Pernah Heboh Tarif Dakwah 3 M
--  Khánh Hòa: Điều động, bổ nhiệm nhiều cán bộ lãnh đạo
--  เด็กเชียงใหม่สุดเจ๋งคว้ารางวัล “นักร้องยอดเยี่ยม”
--  Två mål av Fast när Carolina vann
--  Bantuan baik pulih bumbung, ceriakan kembali keluarga Ester
--  Två mål av Fast när Carolina vann
--  被誉为安洗莹第二 17岁金敏煊引瞩目
--  বহুনির্বাচনি প্রশ্ন (১১-২০) : অধ্যায় ২ | ইসলাম ও নৈতিক শিক্ষা - নবম শ্রেণি
--  Weather News: राजस्थान में घने कोहरे की चेतावनी, इन राजमार्गों पर सावधानी से जाएं
--  紅色供應鏈再蠶食蘋果訂單 和碩、鴻海受衝擊
--  Boeingplan ska kollas för lös mutter
--  «Каролина» — «Монреаль»: видеообзор матча НХЛ
--  Claudia Sheinbaum en Yucatán: comida en el malecón, piñata y mitin en Progreso
--  Estadísticas revelan descenso en diciembre de la delincuencia y homicidios
--  郡大林道一次看！33公里環景拍攝 Google Map上線啦
--  Milagro: “Por eso soy la mejor presentadora de Honduras”
--  Vivek Bindra: मोटिवेशनल स्पीकर को लेकर एक और चौंकाने वाला खुलासा, पहली पत्नी से तलाक के लिए चुकाए थे 25 करोड़
--  Projek asrama warga asing di Teluk Kumbar terus dibantah
--  Aldi-Kunden bekommen an der Kasse die Krise – jetzt greift der Discounter ein
--  Flughafen Dortmund: Paukenschlag! Neues Ziel haut alle um
--  „Bares für Rares“: Schlüpfriger Ausrutscher bei Dr. Heide Rezepa-Zabel
--  Wolfgang Schäuble ist tot! Nur ein kleiner Kreis wusste über seine Erkrankung Bescheid
--  Guvernør melder om iranske kamikazedroner over Lviv
--  Chân dung người phụ trách Hội đồng quản trị tại Vietcombank
--  В СГУОР прошло вручение медалей в честь 100 - летия Министерства спорта
--  Çeyrek altın fiyatları bugün ne kadar oldu? 29 Aralık 2023 güncel altın kuru fiyatları
--  Состояние Шумахера улучшилось: "Кое-что можно было сделать"
+-  女人梦见一大片水是什么意思
+-  एमपी के इंदौर में नए ट्रैक ट्रायल के दौरान दो स्कूली छात्राएं ट्रेन की चपेट में आईं; जांच के आदेश दिए गए
+-  Vì sao lừa đảo trực tuyến bùng nổ trong năm 2023?
+-  अयोध्या राम मंदिर अपडेट: पीएम मोदी कल 11,100 करोड़ रुपये की परियोजनाओं का अनावरण करेंगे
+-  INDIA bloc will defeat NDA in 2024: Sachin Pilot after Congress rally in Nagpur
+-  US: Maine`s top election official disqualifies Trump from 2024 Ballot
+-  Twinkle Khanna`s 50th birthday post sees her give Akshay a kiss underwater
+-  웨이브, '용감한 시민' 독점 스트리밍 시작…신혜선 액션 만나볼까
+-  Isu Perang Boikot Seret Dua Produsen AMDK, Diduga Bagian Strategi Sasar Perilaku Konsumen
+-  “Hồi sinh” vỏ hộp sữa để giảm rác thải, bảo vệ môi trường
