@@ -1,51 +1,51 @@
 # Latest News
--  Oliebollen op zondag!
--  Galatasaray-Fenerbahçe maçı öncesi Suudi Arabistan'da kriz
--  Nouvelle grille BFMTV dès le 2 janvier 2024
--  Украинские войска ударили по Уразово в Белгородской области из РСЗО «Град»
--  نائب الأمير يعزي خادم الحرمين الشريفين
--  [ŽT] Netikėta žinia. Nukentėjo „ypatingas“ Rusijos laivas. Kas nutiko
--  Po Kinijos. „SpaceX“ raketa į kosmosą iškėlė slaptą JAV karinį lėktuvą. Kas žinoma (Video)
--  [ŽT] Duda skubiai šaukia kariškių susitikimą dėl Ukrainos. Kas vyksta
--  Dvigubai, nei teigta. „Storm Shadow“ pateikė malonią staigmeną
--  „Keturi šarvuočiai per 35 sekundes.“ Rusai šokiruoti. Kas nutiko (Video, foto)
--  „Ar girdėjote, ką pasakė Zalužnas?“ Ateina didžiulė audra
--  Ukrainos karo belaisviai kovoja Rusijos pusėje. Kas vyksta
--  [ŽT] „Europa nemoka kariauti.“ Netikėtas pareiškimas. Kas vyksta
--  [ŽT] Antrą kartą! Ukraina nušlavė priešo puolimo koloną (Video)
--  „Žinoma ne. Ar aš atrodau kaip idiotas?!“ Žurnalistas paklausė kandidatų į Rusijos prezidentus. Atsakymai šokiruoja (Video)
--  Das gibt Hoffnung - Toni Polster immerhin „erfolgreich operiert“
--  Bitcoin bijna 160 procent meer waard in 2023
--  Extinction Rebellion komt in voorjaar met nieuwe acties
--  Britse premier na aanval op Oekraïne: we laten Poetin niet winnen
--  Politie krijgt 13 tips over overleden baby in de Lek
--  Frankrijk neemt extra veiligheidsmaatregelen rond jaarwisseling
--  Bedrijven leggen verbod op wegwerpbekers massaal naast zich neer
--  Haven Rotterdam: drukker in januari door onrust vaarweg Rode Zee
--  В Германии грузовик въехал в группу пешеходов
--  В Молдавии в 2024 году ожидают дефицит пенсионного фонда на уровне 30%
--  10 kişinin öldüğü kazada sürücüler adliyede: Son anda gördüm...
--  Dezembrite — a síndrome de fim de ano
--  صاحب السمو يعزي خادم الحرمين الشريفين
--  Газзаев — о Захаряне: у Арсена есть задатки, чтобы закрепиться в «Реал Сосьедад»
--  Niezidentyfikowany obiekt nad Polską. Jest reakcja Ukrainy
--  Epic Games Store วันที่ 10 ประกาศแจกเกมช่วงท้ายปีให้รับกันแบบฟรี ๆ อย่าง Cat Quest เป็นเวลา 24 ชั่วโมง
--  Niek van der Bruggen weg bij Radio 538: ‘Soms moet je het vertrouwde loslaten’
--  افتتاح "دار الاقتصاد الأخضر" بمدينة وزان
--  Rosjanie prą naprzód za wszelką cenę. Alarmujące informacje z frontu
--  [증권소식] 김주현 "부동산 PF 연착륙 지원...건전성 규제 개선"/한신평 "건설사 신용도 재검토" 등
--  Hollantilaistoppari Matthijs de Ligt on häipymässä Bayern Münchenistä
--  Çakırözer: Can Atalay için herkesi üzerine düşeni yapmalı
--  Konkurs na prezesa PFR na ostatniej prostej. Od dzisiaj rozmowy z kandydatami
--  وزارة التربية والتعليم تحدد موعد إطلاق مشروع مدارس المستقبل
--  Manisa'da yoğun sis kazaya neden oldu: 16 yaralı
--  Bruno Paz’ın talipleri artıyor
--  KONYASPOR’DA 8 İSİM GOL SEVİNCİ YAŞADI!
--  Hasan Angı'dan Konyaspor'a ziyaret
--  Aile hekimlerinden uyarı : Soğuk algınlığında tavsiye ve 'ikram' ilaç kullanmayın
--  Umut Bozok el yakıyor
--  Konyaspor Basketbol, ilk yarının son sınavında
--  Nalçacılılar Grubu 40. yaşını coşkuyla kutladı
--  TSRTC: రేపటి నుంచి అందుబాటులోకి బస్సు: ఆర్టీసీ ఎండీ సజ్జనార్‌
--  Bilecik'te kadın öğretmen kadın veli tarafından darp edildi
--  PKK'lı haine 2 kez ağırlaştırılmış müebbet verildi
+-  Serdar Ortaç'tan üzen haber
+-  The Star-Studded Lineup for ‘Dick Clark’s New Year’s Rockin’ Eve With Ryan Seacrest’ Welcomes 2024 With a Bang
+-  Uciderea omului de afaceri Adrian Kreiner, în propria casă: Unul dintre cei trei suspecţi va fi adus vineri în ţară
+-  Koja je razlika između G-Synca i FreeSynca
+-  Carlos Cuerpo promete ante el rey su nuevo cargo de Ministro de Economía
+-  Ковачевски: По една две-пијачки по скопските кафулиња, Новата ќе ја дочекам со семејството
+-  Manchester United'da Altay Bayındır formayı kaptı
+-  Postecoglou warns no transfer window magic for Spurs
+-  Rafa Nadal: "No me veo jugando durante mucho tiempo"
+-  खेलकूद -पढ़ाई के दबाव को कम करने के बेहतर माध्यम – मेयर
+-  الذهب يفقد بريقه.. تراجع جديد لسعر الجرام بمنتصف تعاملات الجمعة
+-  Ковачевски: Постапката за избор на нов државен јавен обвинител оди преку Советот на ЈО, кога ќе ги добиеме документите ќе одлучуваме
+-  Man stabbed during St-Michel bar fight
+-  López Obrador refers to recent U.S. meeting as ‘very good’
+-  Talleres de Remedios de Escalada oficializó los nuevos refuerzos
+-  尹 “상식적 정책으로 위기 헤쳐 나가”…용산서 종무식
+-  Híres magyar dalok, amelyek mondanivalója csontig hatol
+-  TL dönüşümlü KKM'de yeni hesap açılamayacak
+-  Riyad'da Süper Kupa krizi! İki takımdan ortak karar: Maça çıkmayız
+-  ASELSAN imzayı attı! Tam 65,9 milyon dolar
+-  İstanbul Havalimanı hedefine ulaştı
+-  Заврши расправата во Судскиот совет, дополнително ќе се одлучува дали има одговорност Беса Адеми
+-  "이 '즉석국'과 '황도 캔' 반품하세요"…멸균 제품서 세균 발육 확인
+-  Соседов назвал главную ошибку Пугачевой: "Она уже на земле"
+-  Hyundai Signs Actor Deepika Padukone As New Brand Ambassador
+-  Kenyan Banking Year in Review 2023: The Contrasting Fortunes of Multinationals vs Local Banks
+-  „Важно не се плаќа радиодифузна такса“: Власта ја зголеми сметката за струја за 400 денари
+-  Otkazan koncert Riblje Čorbe zbog Borinog zdravstvenog stanja: Ova opaka bolest mu ne da mira
+-  'Long Live My Hulk': Akshay Kumar Shares a Goofy Video on Twinkle Khanna's B'day
+-  STT pradėjo ikiteisminį tyrimą dėl išmokų Prienų tarybos nariams
+-  Declaración institucional de Sánchez para anunciar cambios en el Gobierno
+-  Anćeloti u Realu do 2026.
+-  Nach 50 Jahren aus dem Salon in den Ruhestand verabschiedet
+-  ‘Parasite’ actor’s death prompts criticism of police, media
+-  GJKKO rrëzon kërkesën e Fredi Belerit për përjashtimin e gjyqtarëve
+-  Latif Şimşek yazdı: Biri “PKK lanetlenmiyor”, öbürü “lanetleniyor” diye küfrediyor! Ne ayaksınız?
+-  Süper Kupa maçı öncesi kriz
+-  Këlliçi publikon dokumenta ku zgjerohet përfshirja e Veliajt në inceneratorin e Tiranës
+-  Özgür Özel'den Furkan Karabay açıklaması!
+-  Mexhiti paralajmëron 22 makina të reja për ndihmë urgjente mjekësore dhe punësime
+-  KBC Program: కేబీసీ ప్రొగ్రామ్లో రేవంత్ రెడ్డిపై అమితాబ్ ప్రశ్న..అన్సార్ చెప్పారా?
+-  Россельхознадзор открыл поставки инкубационного яйца из Турции
+-  ULFA signs peace accord with Centre, Assam government agreeing to shun violence
+-  В Binance отчитались о росте клиентской базы на 30%
+-  Rosie Jones blasts 'same old ableism' as trolls target her after Big Fat Quiz Of The Year appearance
+-  PSE&G Files Scheduled Rate Case, Its First in Nearly 6 Years
+-  Carlo Ancelotti și-a prelungit contractul cu Real Madrid
+-  Panathinaikos'un başına geçen Fatih Terim'in modunu düşüren tezahürat
+-  Lệ Quyên và MLee lại "chúng mình có nhau" ở Công diễn 4, chưa thi đã biết đội này sẽ thắng?
+-  5 mẫu chân váy "soán ngôi" chân váy xếp ly trở thành xu hướng nổi nhất 2023, sang năm vẫn còn hợp mốt
