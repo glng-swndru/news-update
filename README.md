@@ -1,11 +1,11 @@
 # Latest News
--  Stoltenberg: jesteśmy czujni, solidaryzujemy się z naszym cenionym sojusznikiem - Polską
--  Cuesta de enero: López Obrador descarta aumento a impuestos
--  Русија го потврди „масивниот бараж“ врз цели во Украина
--  AK Parti ve MHP'nin 51 kent için iş birliği planı hazır
--  Fenerbahçe Başkanı Ali Koç: Gerekli açıklamalar yapıldı!
--  Beşiktaş: Atatürk'ün izinde, bayraklarla donatıyoruz!
--  Torino ko, a Italiano basta Ranieri. Napoli, solo un pari contro il Monza
--  THY Melbourne'e tarifeli seferlere başlıyor
--  Tarımsal destek ödemesi hesaplara yatırıldı
--  Schmerzfrei durch den Tag
+-  La violencia en Colombia no da tregua en 2023, con 94 masacres y 188 líderes asesinados
+-  Qué ver en Silleda: 7 lugares que merecen la pena
+-  Recibe intelectual cubano Premio Nacional de Investigación Cultural
+-  Stormatchen skjuts upp – spelarna vägrar spela
+-  Francia Raísa Reflects on "Tiff" and Reconciliation With Selena Gomez
+-  Везенков и Сакраменто търсят връщане към победите в NBA
+-  Nuis klopt Roest bij feestje Reggeborgh op 1.500 meter, geen WK-ticket Krol
+-  Novi kiks Napolija, Fiorentina bolja od Torina
+-  Mushaal condoles demise of Prof Nazir Shawl
+-  కాపులకు సీఎం జగన్‌ ఇచ్చిన హామీల అమలు చేయాలి
