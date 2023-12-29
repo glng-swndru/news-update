@@ -1,11 +1,51 @@
 # Latest News
--  Viczeovci rok od adopcie: Sú otvorení ĎALŠÍM deťom!
--  אחרי קולורדו: גם מיין פוסלת את טראמפ מהתמודדות בפריימריז
--  הותר לפרסום: עילאי קירושין הוא הפעוט שנדקר למוות אתמול בלוד
--  Russia unleashes one of its biggest aerial barrages yet against Ukraine
--  Babar's rut sums up the best of Australia's quicks
--  فرنسا.. العثور على شاب في حجرة عجلات طائرة قادمة من دولة عربية
--  Al Jazeera: doden na aanvallen op vluchtelingenkampen Gaza
--  Waterstand in grote rivieren stijgt begin januari weer
--  Hanke Bruins Slot werd in 2023 buitenlandminister: 'Ook Hamas moet bereid zijn te stoppen met vechten'
--  Minister: Ngeh's suggestion on syariah committee 'baseless'
+-  The Story Of Janata Dal-United: Despite George Fernandes, Sharad Yadav Or Lalan Singh, How A `Ruthless` Nitish Kumar Always Dominates His Party
+-  Corona-Zahlen im Märkischer Kreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Hochsauerlandkreis aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Ennepe-Ruhr-Kreis aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  Corona-Zahlen in Herne aktuell: RKI-Fallzahlen, Impfquoten und mehr
+-  How Nigeria Added Territory Without War, Litigation, And The Unsung Heroes
+-  الطائف.. اتخاذ تدابير احترازية استعداداً للأمطار والسيول المتوقعة
+-  باكستان.. منع احتفالات رأس السنة تضامناً مع غزة
+-  سحبٌ رعديّة تتجه نحو العاصمة المقدّسة وأمطارٌ متوقعة الساعات المقبلة
+-  "الأرصاد": أمطارٌ رعديّة متوسطة إلى غزيرة ورياحٌ نشطة وزخاتٌ من البَرَد على مكة والقصيم وحائل وتبوك والشمالية والرياض والشرقية والمدينة
+-  العاصفة "غيريت" تضرب بريطانيا مخلفة 3 قتلى
+-  Corona-Zahlen in Hamm aktuell: Neuinfektionen für Hamm, Nordrhein-Westfalen und Deutschland
+-  Man, 60, arrested for allegedly molesting child in Yishun mall on Christmas Day
+-  Corona-Zahlen in Hagen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Corona-Zahlen in Dortmund aktuell: Die Coronavirus-News aus der Region
+-  Anahtarı üzerinde bıraktı: Motosikleti çalındı
+-  Corona-Zahlen in Bochum aktuell: Die Coronavirus-Daten im Überblick
+-  Corona-Zahlen im Kreis Paderborn aktuell: Inzidenz für Kreis Paderborn, Nordrhein-Westfalen und Deutschland
+-  한동훈 quot;저와 둘이 결정하자quot;, 이재명 quot;가치 대립 아니면 최대 협조quot;
+-  Corona-Zahlen im Kreis Minden-Lübbecke aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Kreis Lippe aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  Starmer wants to tackle civil service ‘churn’ – report
+-  Corona-Zahlen im Kreis Höxter aktuell: Neuinfektionen, Inzidenz und Todesfälle im Überblick
+-  PIA staff to perform election duties on February 8
+-  Memur maaş zammı için gözler 3 Ocak'ta... Ekonomistlerin aralık ayı enflasyon tahmini belli oldu
+-  Corona-Zahlen im Kreis Herford aktuell: Die Coronavirus-Daten im Überblick
+-  Optužen Pirs Brosnan: Holivudski glumac u centru skandala, zakazano i suđenje
+-  Corona-Zahlen im Kreis Gütersloh aktuell: Infektionen und Todesfälle - News zum Coronavirus
+-  Corona-Zahlen in Bielefeld aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Corona-Zahlen im Kreis Warendorf aktuell: Neuinfektionen für Kreis Warendorf, Nordrhein-Westfalen und Deutschland
+-  Corona-Zahlen im Kreis Steinfurt aktuell: Inzidenz für Kreis Steinfurt, Nordrhein-Westfalen und Deutschland
+-  Corona-Zahlen im Kreis Recklinghausen aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Kreis Coesfeld aktuell: Von Infektion bis Impfung - So ist die Corona-Lage
+-  Синоптиклар январда кутилаётган об-ҳаво тўғрисида маълумот берди.
+-  Қора денгизда дон олиб кетаётган кема минада портлаб кетди.
+-  Ўзбекистон очиқ гендер маълумотлар индексида энг яхши 20 та мамлакат орасидан жой олди.
+-  Россия Мудофаа вазирлиги: 640 мингдан ортиқ аскар шартнома бўйича армияда хизмат қиляпти.
+-  Ўзбекистон Барқарор ривожланиш мақсадлари халқаро рейтингида 8 поғона кўтарилди.
+-  Эрон тўрт исроиллик диверсант қатл этилганини эълон қилди.
+-  Ekonomistlerin aralık ayı enflasyon beklentisi yüzde 3,19 oldu
+-  Прокурор Навалний штабининг собиқ бошлиғига 10,5 йил сўради.
+-  دجوكوفيتش يهزم ميسي في معركة خاصة لعام 2023
+-  Corona-Zahlen im Kreis Borken aktuell: Die Coronavirus-Daten im Überblick
+-  5G-Netze in Deutschland erreichen fast die komplette Bevölkerung
+-  5G-Netze in Deutschland erreichen fast die komplette Bevölkerung
+-  Corona-Zahlen in Münster aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  I was given a year to live so I married a Turkish toyboy – we don’t speak the same language but it’s true love
+-  Corona-Zahlen in Gelsenkirchen aktuell: Wie ist die Intensivbetten-Auslastung im Landkreis?
+-  الدفاع المدني : ابتعدوا عن أماكن تجمع السيول والمسـتنقعات المائية
+-  الضباب الكثيف يغطي عرعر ويزيد الأجواء جمالًا
