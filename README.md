@@ -1,51 +1,51 @@
 # Latest News
--  Kooperation mit dem Erzfeind?: Iran exekutiert vier Kurden wegen Sabotage
--  Israelischer Teenager wurde wegen Weigerung, in der IDF zu dienen, wegen Widerstand gegen den Krieg in Gaza inhaftiert
--  IGA’nın “Cumhuriyet’in 100. Yılında 100.Hava Yolu” Air China oldu
--  Điểm tin 18h: Tăng trưởng GDP năm 2023 đạt 5,05%; Phát hiện ChatGPT tự nói dối, gian lận
--  Cần siết chặt tour, tuyến chui để phát triển du lịch Phú Quốc
--  10 món ăn may mắn để đón năm mới
--  Magnetne trake još se ne predaju pred diskovima
--  Telefongespräch ins Jenseits mit dem «Windtelefon» am Jurafuss
--  بعد إصابة حلمي بكر.. 7 إشارات تحذيرية يرسلها جسدك قبل الأزمة القلبية
--  القسام تعلن تفجير حقل ألغام بقوة مشاة إسرائيلية وسط القطاع
--  Russischer Angriffskrieg: Kiew: Größter russischer Luftangriff seit Kriegsbeginn
--  Германия — В 2023 году ЕС принял более миллиона беженцев
--  Tight Security, No-Vehicle-Zone On Grand Road For New Year In Odisha’s Puri
--  أسعار الأسماك والمأكولات البحرية اليوم الجمعة في سوق العبور
--  Las tres casas de la semana: retiro en Dénia con gruta incluida por 3 millones
--  Водители ДНР за год оформили почти шестьсот тысяч страховых полисов
--  The late Charlie Munger quietly built a $300 million stock portfolio from scratch at a small newspaper publisher. It just warned of worse returns now he's gone.
--  Kickoff | Strange clause in ex-PSG star's Middle East contract 'revealed'
--  Korać predsjednik Sudskog savjeta, Medojević zamjenik
--  Šest prijava: Ovo su kandidati za direktora EPCG
--  Sahin war einst jüngster Buli-Profi: BVB-Legende wird neuer Co-Trainer von Terzic
--  Piotr Jarosiewicz z Azotów Puławy zagrał w kadrze, Polska pokonała Argentynę
--  मराठा आंदोलन: 3 करोड़ मराठा 20 जनवरी से मुंबई को घेरेंगे, जारांगे-पाटिल की चेतावनी
--  Bunu yapan araç sahiplerinin cebi fena yanacak! Cezası 2024 yılında arttı
--  [29일 광양시] 2024년 광양국가산단 동호안 사업 착수 등
--  미 강세장 이끈 AI…내년 주식 시장 '상고하저' 전망
--  Hundreds sign petition in effort to save closure-threatened Doune Library
--  28-Jähriger stirbt in Kassel: Ermittlungen zu tödlichem Unfall im Bergpark Wilhelmshöhe | hessenschau.de
--  Guava leaves health benefits : रोजाना इस फल की 4 से 5 पत्तियां चबाने से इन पांच बीमारियों से छुटकारा मिल जाएगा!
--  [29일 울진군] 울진군 매화면 송년의 밤 개최 등
--  Пункты приема живых елок на переработку откроются в Великом Новгороде 5 января
--  Global trade dynamics and Quantum AI
--  Bundesheer - Hofbauer als stellvertretender Generalstabchef bestellt
--  Lagi-lagi Boeing 737 MAX Alami Masalah, Kini Soal Baut Lepas
--  The Seven Deadly Sins: Four Knights of the Apocalypse Netflix Release Date and More!
--  दैनिक राशिफल 29 दिसंबर 2023
--  आख़िरकार फिल्म ‘सालार’ ने कमाए 300 करोड़, हिंदी में भी हुआ जादू
--  [29일 여수시] 종합청렴도 2등급 달성 등
--  A delivery driver who won $4.8 million in the lottery still worked his Christmas shift to not let his colleagues down
--  Ucrania recibe el mayor ataque aéreo de Rusia
--  پارٹی سے انتخابی نشان واپس لینے کا مطلب پارٹی ختم کرنا ہے، بیرسٹر گوہر
--  Schwerer Unfall in Passau: Lkw fährt in Menschengruppe – ein Toter
--  SVE STE, BRE, ISTE: Nadežda Biljić ne može više da ćuti, javno rekla šta ima o koleginicama sa estrade!
--  KEJT MIDLTON VAŽI ZA JEDNU OD NAJLEPŠIH ŽENA NA SVETU Pet pravila kojih se strogo pridržava su tajna njenog savršenog izgleda
--  Franjo Ivanović među 30 najperspektivnijih napadača na svijetu
--  Brände - Diskussion um Brandeinsatz in oö. Asylunterkunft
--  Сироджиддин Мухриддин провел телефонный разговор с главой МИД Киргизии
--  Soccerladuma | Bafana Rivals' Boss: Why Man Utd Star Was Excluded From AFCON Squad
--  Soccerladuma | Exclusive: Chiefs Icon Khune's Roadmap To Redemption Revealed?
--  Meadow Walker: Χώρισε μετά από τρία χρόνια γάμου η κόρη του Paul Walker
+-  Божевільний фанат поставив кривавий хрест ножем на кар’єрі юної тенісистки: життєва історія Моніки Селеш, яка змусить здригнутися кожного
+-  Enel finaliza la venta del 50 % de su filial en Grecia a Macquarie Asset Management
+-  El Kremlin dice que tiene una lista de activos occidentales para embargar si se confiscan activos rusos
+-  Declare Day Of National Mourning On Plateau Killings – NANS Urges FG
+-  [“딱 두글자로 충분했다”…정명근 시장, 계묘년 불금에 남긴 공무원 격려 키워드 ‘화제’
+-  [충남도, “한·중 우호협력 연결고리 될 것”
+-  [입북동 살린 ‘이재준 10년 꿈’, 날개달다
+-  ["월급 한달 미뤘다고 노동청 들먹이는 직원, 무슨 배짱이죠?"
+-  [Zoomlion, 중동에서 성장과 혁신에 박차를 가하다
+-  [사우디서 제1회 AlUla Falcon Cup 개최
+-  [CGTN, 글로벌 라이브 스트리밍으로 2024년 새해 맞이
+-  [尹, 대통령실 종무식 참석 “새해에도 신세 많이 지겠다”
+-  [“대단하네~” 안양시 10대뉴스로 본 최대호 시장의 ‘맹활약’
+-  "Москвич 6" получил самую дорогую версию за 3,1 млн рублей
+-  “Abbiamo deciso di non fare utilizzare l’iPad a nostra figlia fino ai 5 anni. Tutto bene, finché non siamo saliti su un aereo…”: il racconto apre il dibattito
+-  News24 | Israel hits air defence base in Syria, say intelligence sources
+-  [ŽT] Darosi karšta. JK siunčia karo laivą. Venesuela telkia armiją. Kas vyksta
+-  [ŽT] „Prasidėjo tikros represijos.“ Kodėl supyko Putinas
+-  Putinas slaptais kanalais bando susitarti su Ukraina. ISW skelbia, kas vyksta
+-  Izrael u šoku: Mia ispričala priču, bila je 'taoc' u Gazi
+-  В Саратове рецидивист украл елочку и подарил ее незнакомке
+-  Hrvatska: Ubica počinio samoubistvo nakon što je usmrtio ženu
+-  Entsafter oder Slow Juicer – Wer sorgt pünktlich zur Erkältungszeit für den extra Vitamin-Kick?
+-  El alcalde de Badajoz pide al Gobierno central que soterre la autopista
+-  “Kam bërë tre eko zemre”, efekti i adrenalinës së “Stop” te Odeta Gjevori
+-  Terrifying footage shows Elijah Moore suffer ‘involuntary movements’ after ‘scary’ head injury
+-  Berlingske mener: A-kraft er en uomgængelig del af klimapolitikken
+-  Berlingske mener: A-kraft er en uomgængelig del af klimapolitikken
+-  ปอนด์-ภูวินทร์ ส่งมอบมหกรรมความสุข กับเรียลมีแฟนในงาน “realme Leap to The Wonderland” เต็มอิ่มกับกิจกรรมและสมนาคุณสุดพิเศษที่เซ็นทรัลเวิลด์
+-  Većina ZA: Hitni postupak za izmjene Izbornog zakona
+-  Ministarstvo: Potočanac više nije ravnatelj županijskog Zavoda za socijalnu skrb
+-  NATO je presreo ruske vojne letjelice preko 300 puta 2023.
+-  Les Pistons vont-ils avoir la pire série de défaites de l’histoire des sports US ?
+-  Jace陳凱詠六位數投資自己對感情事感害怕 自認「優質股」：回報唔錯
+-  Ида Галич объяснила, почему не пришла на скандальную вечеринку Ивлеевой
+-  Federacija BiH ide na privremeno finansiranje
+-  INDIA Bloc Seat-Sharing: Mamata Banerjee Keen To Test Bengal Waters `Alone`, Shiv Sena UBT Not Ready To `Compromise`
+-  UPSC Success Story: From Dreams To Reality, Prince Kumar`s Inspiring Journey To UPSC Success
+-  Кроссоверы Forthing T5 EVO начнут собирать в Калининграде
+-  Газзаев: «Турнирное положение ЦСКА никого не устраивает. Руководство обязано помочь тренеру, приобретя игроков»
+-  За първи път: Пловдивчани посрещат Нова година с "тиха заря"
+-  CM Yogi Ram Lalla Pooja Video: अयोध्या में सीएम योगी ने की रामलला का पूजा, वीणा की प्रतिमा के साथ ली सेल्फी, PM मोदी का दौरा कल
+-  आरबीआई ने पीआईडीएफ योजना को दिसंबर, 2025 तक बढ़ाया
+-  Alcohol: విస్కీ, వైన్‌లో నీళ్లు కలుపుకొని తాగుతున్నారా.. అయితే ఈ విషయాలు గుర్తుంచుకోండి..
+-  Truprojat e Kurtit shtyjnë me forcë gazetaren e Tv Klan, kryetari i AKG, Rexha: E papranueshme, një rast i paprecedent!
+-  La cofradía de la Montaña entrega 3.000 euros a obras sociales de Cáceres
+-  Salvata la 15enne che aveva tentato il suicidio gettandosi nel Ticino dopo essere stata violentata
+-  सरकार ने अनुकंपा नियुक्ति देने से किया इनकार को हाई कोर्ट पहुंचा शख्स, अदालत ने सुनाया ये फैसला
+-  WhatsApp Update: Now Connect Without Sharing Phone Number; Details
+-  Gelombang Perubahan Semakin Meluas, Anies Baswedan Optimis Hadapi Pilpres 2024
