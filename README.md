@@ -1,51 +1,11 @@
 # Latest News
--  الرئيس الكوبي يطالب بإنهاء همجية إسرائيل ضد الفلسطينيين
--  شکست خوردہ نفسیات اور مرعوب شخصیات کا المیہ
--  Pharnext : Regroupement des actions Pharnext et suspension des conversions
--  '로봇에 진심' LG전자, LG클로이의 미래형 버전 내놨다
--  'HBM' 성공 노하우 '낸드'에 입힌다…SK하이닉스, 기술에 '올인' [소부장반차장]
--  [인사] 과학기술정보통신부
--  KOSA, 조직개편·임원인사 단행…“해외수출 역량 집중”
--  [인사] 한국소프트웨어산업협회
--  ‘오너 리스크’ 불식 나선 다날…시험대 오른 백현숙 대표
--  이종호 과기정통부 장관, "내년 R&D 전략 안착·AI 주도권 선점"
--  부산·경남은행, 832억원 규모 ‘민생금융지원’ 확정… 내년 2월부터 '이자 캐시백'
--  이성희 농협중앙회장 "선제적 리스크관리, 핵심 역량 강화" 당부…2024년 신년사 통해
--  bhc치킨, 오늘부터 가격 인상…뿌링클·맛초킹 3000원 ↑
--  News24 | South Korean police defend highly publicised investigation of actor Lee Sun-kyun for illegal drug use
--  News24 Business | OPINION | 10 secrets of a 4-day work week - it's not just Fridays at the beach
--  رحمتہ اللعا لمین خاتم النبیین صلی اللہ علیہ وسلم
--  Konya'da yaşlı adama boş senet imzalatan bakıcı, adam ölünce 2,5 milyonluk senetleri icraya verdi: 3 kişi tutuklandı
--  Yukatel Adana Demirspor, Belhanda ile yollarını ayırdı
--  Karaman'da otomobil aydınlatma direğine çarptı: 1 yaralı
--  Aksaraylı otizmli ikizler, yüzmede milli takıma seçildi
--  Afyonkarahisar'da dehşet! Ev sahibini öldürüp intihar etti
--  سعر الديك الرومي في مصر يقفز 40%.. رقم تاريخي يعادل «العجول»
--  Dolandırıcıların yeni yöntemi: 'Kardeşime eş arıyorum' tuzağı
--  Bir oğlu diğer oğlunu öldürdü! Acılı annenin en zor isteği!
--  Karapınar'da sis etkili oldu
--  Diyanet'ten Cuma Hutbesinde yılbaşı ve piyango mesajı
--  Ehliyet, pasaport, egzoz muayenesi... Hepsi zamlandı! Yeni yıla işte bunlarla giriyoruz!
--  بھارت انسانی حقوق کی پامالیوں میں مصروف
--  Odisha SSC Excise Sub Inspector Recruitment 2024: Apply Now for SI Posts
--  میلبرن ٹیسٹ میں پاکستان کو شکست، آسٹریلیا کو سیریز میں فیصلہ کن برتری حاصل
--  Sao Al Nassr chỉ thẳng điểm tốt về Ronaldo mà nhiều người không thấy
--  제주 새해부터 무주택 청년 이사 비용 최대 40만원까지 지원
--  2023년 하반기 공직자 퇴임식 개최
--  امریکہ ایران اسٹریٹجک تعاون کا تنقیدی جائزہ
--  ด่วน! เจนนี่ ได้หมดถ้าสดชื่น พร้อมลูกสาว น้องยูจิน เกิดอุบัติเหตุรถคว่ำลงข้างทาง
--  ما مخاطر نشر صور الأطفال على الإنترنت وكيف تزيلها؟
--  19-year-old CEO reveals how he beat the naysayers and found success
--  영화인의 꿈 '천만'… 마동석 6번, 황정민 3번 이뤘다
--  Amravati News : प्रतिबंधित नायलॉन मांजा विक्रेत्यांवर संक्रांत; लाखोंच्या मांजासह दोघांना अटक
--  Μαυροπάνος: «Ήταν η καλύτερη στιγμή για να σκοράρω το πρώτο μου γκολ στην Premier League»
--  العصبة تكشف عن برنامج الجولتين الأخيرتين من مرحلة ذهاب البطولة
--  华为Mate X5上市持续火爆，成为新年送礼佳品
--  探班华为何刚 揭秘全新“巨幕手机” 行业新的交互时代已来！
--  Türkiye'den yeni ihracat rekoru: Küresel payda ilk kez bu oran görüldü
--  Eda Taşpınar yeni sevgilisiyle görüntülendi!
--  2024 asgari ücretin işveren maliyeti ne kadar? Asgari ücret 2024 maliyet tablosu!
--  Deze ontdekking is een ‘hoopvolle boodschap’ in onderzoek naar dementie
--  Fatih Terim'e Yunanistan'da beklemediği tepki! Panathinaikos taraftarları biraz ayıp etti...
--  Galatasaray'da Fenerbahçe maçı öncesi Hakim Ziyech krizi!
--  Dewan Adat Sentani Imbau Masyarakat Papua Jaga Kedamaian
+-  Usporedba najnovijih kamera na pametnim telefonima: koja će najbolje snimiti vaše nezaboravne trenutke?
+-  Bergüzar Korel yeni imajını paylaşıp içini döktü: Şevkim, hevesim yok
+-  Trabzonspor'un yeni hedefi: Elneny
+-  5 bin TL neden yatmadı? Çalışan emekliyim 5000 TL ikramiye saat kaçta yatar?
+-  İran 'Mossad casusu' iddiasıyla 4 kişiyi idame etti
+-  İşgalci İsrail göçe zorluyor! BM rakamları açıkladı
+-  Başkan Erdoğan'dan yoğun Gazze diplomasisi
+-  Haberleri tesadüfen gördü küplere bindi! Orhan Gencebay'ın eşi Sevim Emre'den iddialara cevap
+-  Ocak ayında doğal gaza zam yok
+-  Karne günü ne zaman 2024? 1. Dönem karneler ne zaman verilecek?
