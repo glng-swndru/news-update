@@ -1,11 +1,11 @@
 # Latest News
--  Usporedba najnovijih kamera na pametnim telefonima: koja će najbolje snimiti vaše nezaboravne trenutke?
--  Bergüzar Korel yeni imajını paylaşıp içini döktü: Şevkim, hevesim yok
--  Trabzonspor'un yeni hedefi: Elneny
--  5 bin TL neden yatmadı? Çalışan emekliyim 5000 TL ikramiye saat kaçta yatar?
--  İran 'Mossad casusu' iddiasıyla 4 kişiyi idame etti
--  İşgalci İsrail göçe zorluyor! BM rakamları açıkladı
--  Başkan Erdoğan'dan yoğun Gazze diplomasisi
--  Haberleri tesadüfen gördü küplere bindi! Orhan Gencebay'ın eşi Sevim Emre'den iddialara cevap
--  Ocak ayında doğal gaza zam yok
--  Karne günü ne zaman 2024? 1. Dönem karneler ne zaman verilecek?
+-  El acuerdo entre socialistas y PNV asegura la aprobación hoy del presupuesto municipal
+-  কখন বুঝবেন ম্যাট্রেস বদলে ফেলার সময় এসেছে?
+-  Дорожные службы Ставрополья в 2023 году получили 20 единиц техники
+-  بالفيديو .. هبوط مرعب بمطار لندن لطائرة ركاب أشرفت على التحطم
+-  Sem ideias para o jantar? O novo frigorífico da Samsung vai ajudá-lo
+-  Juros da dívida de Portugal descem a dois e cinco anos e sobem a 10 anos
+-  Данилов день 30 декабря: почему нельзя целовать детей ночью
+-  BIEC: w ostatnich dwóch latach nastąpił wzrost aktywności zawodowej Polaków
+-  BIEC: Wskaźnik Wyprzedzający Koniunktury od pięciu miesięcy rośnie, to nadzieja na ożywienie gospodarki
+-  Zarząd spółki z GPW apeluje o przemyślane zakupy. "Sytuacja grozi dalszym niekontrolowanym wzrostem kursu"
