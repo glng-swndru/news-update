@@ -1,51 +1,11 @@
 # Latest News
--  Acun Ilıcalı oy verdiği partiyi açıkladı: Çıkarsız bir sempatim var
--  Amazon’s two-month-old Echo Show 8 is 40% off for a limited time
--  Decomisó la SSPM más de 180 mil pastillas de fentanilo
--  Buscan mejorar su suerte para el 2024
--  Leerán sentencia vs Aras hoy
--  Pólverjar þriðjungur erlendra ríkisborgara á Íslandi
--  Mercato - PSG : Un départ à Paris dicté par un ancien de l'OM ?
--  Buscan a los atracadores de un banco en Arbo
--  UniCredit è il titolo più scambiato a Piazza Affari nel 2023
--  [날씨]전국 흐리고 중부 많은 눈, 수도권 미세먼지 나쁨
--  कठुआ में रोगी कल्याण समिति के शासी निकाय की बैठक हुई
--  באופן בהול, בזמן המלחמה: העובדים נגד השר אמסלם
--  Hepsiburada, En "Alışveriş Delisi" İlleri Açıkladı
--  Ration and Aadhaar cards enough for Praja applications: Nodal officer
--  Bakar Semangat Kader di Sulsel, AHY: SBY Ada di Samping Kita
--  Ermənistanda futbol akademiyasının divarı uçub
--  Vlada RS dala podršku Eleku: Sarajevo sve bliže scenariju bez plina
--  Michelle Keegan left mortified after she’s forced to make expletive-filled rant at Joanna Lumley in new Netflix series
--  ZATVARAMO VRATA 2023. GODINI I SUMIRAMO UTISKE! EVO KAKVA JE GODINA BILA NAŠIM GRAĐANIMA (VIDEO)
--  Boxer Gervonta Davis follows Muhammad Ali by converting to Islam as undefeated champ reveals his new name
--  Oğuzhan Koç 2023 yılında en çok konuşulan isimlerden oldu!
--  En tatlı zayıflama formülü! Kaşık kaşık tüketseniz kilo yapmıyor
--  UAEA çalıştırıldığını açıklamıştı! Güney Kore'den "nükleer reaktör" iddiası
--  29 Aralık reyting sonuçları açıklandı mı? Süper Kupa, Yalı Çapkını, Kızılcık Şerbeti reytingleri nasıl?
--  Necip Fazıl Ödülleri 30 Aralık Cumartesi akşamı sahiplerini buluyor!
--  İsrail ikiz kardeşleri doğum günlerinde katletti
--  Trabzonspor'da Nicolas Pepe seferberliği!
--  Ukrayna: Dnipro kentine yapılan füze saldırısı sonucu 6 kişi öldü
--  Gülben Ergen, çocukları sayesinde yeni neslin trendlerini takip ettiğini açıkladı
--  Emine Erdoğan "Turkcell Geleceği Yazanlar Platformu 10. Yıl Etkinliği"nde konuştu:
--  Yılbaşı gecesi hangi kanalda ne var? 31 Aralık TV yayın akışı: 2024 Yılbaşı programları
--  İşgalci İsrail'den Lübnan'a hava saldırısı
--  Beşiktaş'ta ayrılık resmen açıklandı! Eric Bailly ile yollar ayrıldı
--  पार्टी को मजबूत करने में मोर्चा की अहम भूमिका: विबोध
--  جيش العدو الإسرائيلي: قصفنا مجموعة مسؤولة عن إطلاق صواريخ مضادة للدبابات في بلدة عيترون في لبنان
--  Halvor Egner Granerud privat: Freundin, Familie, Nackt-Jugendsünde! So tickt Norwegens Skisprung-Star
--  Hafızası doğuştan kuvvetli ve güvenilir 3 burç belli oldu
--  VIDÉO - 31 ans après l'envoi du premier texto, le SMS est-il en voie de disparition ?
--  मास्टर मित्रसेन थापा की जयंती पर कार्यक्रम का आयोजन
--  Jardín 31 de Neuquén: qué dijo el juez sobre la detención del docente acusado de abuso
--  Ako se isključi plin, Toplane mogu grijati dio korisnika 15 dana
--  Neue Co-Trainer für Terzic: BVB holt Sahin und Bender zurück
--  Skifahrerin Dürr in Lienz Zweite - Nächste Gala von Shiffrin
--  Gasspeicher zu 90,8 Prozent gefüllt: "Gut gerüstet"
--  St. Egidien kontra Arcelor: Wie kommt die Kuh vom Eis?
--  24-Stunden-Service: In Freiberg kann man seinen Pass bald rund um die Uhr abholen
--  Die AfD wollte einziehen: Stiftung kauft Kornhaus in Meißen
--  Greece will legalise same-sex marriage, despite church opposition
--  SC Waldgirmes U19 und FSV Berghausen siegen beim „Enwag-Cup“
--  Adding table salt to food linked to chronic kidney disease risk: Study
+-  Fijasko Đilasovih i Marinikinih stipendista na protestu u Beogradu
+-  My friend David Leland’s films always cheered for the underdog
+-  Cody Rhodes Reveals He Vomited Seconds Before Live Event Match
+-  Hot search Weibo: Vì sao Hứa Quang Hán có mặt tại đám tang Lee Sun Kyun?
+-  Thảm đỏ SBS Drama Awards: Lee Sung Kyung nóng bỏng át Kim Yoo Jung, dàn sao mặc đồ đen tưởng niệm Lee Sun Kyun
+-  Bể hụi hàng trăm tỉ đồng ở Phú Quốc
+-  Rộ tin xác nhận BLACKPINK về Việt Nam biểu diễn nhưng fan đồng loạt nghi ngờ, lý do vì sao?
+-  “Bứt phá giới hạn” tự do tài chính cho thế hệ trẻ trong thời đại 4.0
+-  Hải Tú dạo này: Style ngày càng đi xuống, thanh thuần chẳng phải, quý phái không xong
+-  Cán bộ coi thi phát nhầm đề, học sinh THPT toàn tỉnh Bình Dương suýt phải thi lại
