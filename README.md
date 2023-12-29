@@ -1,11 +1,11 @@
 # Latest News
--  [[헤럴드pic] 안경 매만지는 최상목 경제부총리
--  [대전시, 베이비부머 인구 18만7921명
--  [이정식 “노사법치 위에서 제도 경직성 완화하겠다”
--  [“파괴적 빛 기술로 ‘EUV 거목’ 독점구도 깼죠” [헤경이 만난 사람 - 김병국 이솔 대표]
--  [[사설] 2024 정치권, ‘견리망의→견리사민’으로 환골탈태 하라
--  [[사설] PF 리스크 현실화, 실물경기 전이 선제 차단해야
--  [[헤럴드광장] 국민 혈세, 낭비하지 말자
--  [세븐일레븐, 나눔·범죄예방 점주 ‘세븐 히어로’ 선정
--  [롯데칠성음료, 사랑의열매와 ‘착한소비 캠페인’ 협약
--  [“고객만 생각하며 세상에 없는 제품 만들었죠”
+-  Apenas contestes cuál es tu casa favorita, obtendrás información sobre tu manera de ser
+-  My friend is holding out for his dream job and is always asking to borrow money. How can I help him?
+-  Haley’s Woes Worsen After 9-Year-Old Labels Her the ‘New John Kerry’
+-  Don Lemon Lashes Out at Nikki Haley’s Hypocrisy After Civil War Comments
+-  Российские родители хотят, чтобы на уроках труда детей учили готовить и шить
+-  Pegasus spyware targeted Indian journalists: Amnesty
+-  Pankit uskaltavat sittenkin rahoittaa suuria asuntosijoittajia – Yhden osake nousee kovaa
+-  ”Polttavin aihe juuri nyt” – Kiinteistöissä tikittää aikapommi, jonka purkaminen on vasta alussa
+-  Israel sigue su ofensiva en Gaza mientras parece no tener aún un plan claro a medio plazo
+-  ปีใหม่นี้ เที่ยวที่สวนสัตว์ เกินคุ้ม!!! 1 มกราคม 67 เด็กอายุไม่เกิน 12 ปี เข้าฟรี!
