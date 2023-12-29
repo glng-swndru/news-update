@@ -1,51 +1,11 @@
 # Latest News
--  Ich werde keinen Machtkampf um die Kanzlerkandidatur zulassen
--  İsrail'den Gazze'ye ağır bombardıman! Çok sayıda Filistinli hayatını kaybetti
--  Resmi ilan fiyat tarifesi belli oldu
--  Resmi Gazete'de yayımlandı: Arabuluculukta 2024 yılı ücret tarifesi belirlendi
--  İzmir açıklarında düzensiz göçmen operasyonu
--  İhtiyaç sahibi hanelere kömür yardımı yapılması kararı Resmi Gazete'de yayımlandı
--  Kamu işçilerine ek ödeme tarihleri Resmi Gazete'de yayımlandı
--  Maine eyaletinde 'Trump' kararı
--  Papageien: Kakadus tauchen ihren Zwieback ein
--  태영건설 워크아웃 신청에 불안한 SBS
--  The tiny French town that changed the course of history
--  Расчёты «Гиацинт-Б» уничтожили группу пехоты ВСУ на купянском направлении
--  Die Weltbevölkerung ist im Jahr 2023 um 75 Millionen gestiegen – DW – 29.12.2023
--  बारिश से नए साल का जश्न खराब होने की संभावना, आईएमडी ने इन राज्यों में बारिश की भविष्यवाणी की
--  НБА. «Детройт» уступил «Бостону» и потерпел 28-е поражение подряд, «Денвер» разгромил «Мемфис» и другие матчи
--  Invitan Bomberos a sumarse a colecta de juguetes
--  Muere atropellado hombre de la tercera edad
--  США не могут передать Киеву замороженные активы России без согласия ЕС
--  Ловись, рыбка: в Костромская области уловы в 2023 году выросли на 12%
--  В Ивановской области назначили нового руководителя вневедомственной охраны
--  क्या ललन सिंह की जगह लेंगे नीतीश कुमार पार्टी अध्यक्ष? जनता दल यूनाइटेड की प्रमुख बैठक आज
--  CJ제일제당, 요식업 소상공인 전용 ‘CJ더마켓 for Biz’ 오픈
--  আগে বলতাম ভোটটা দেবেন, এবার বলি ভোটকেন্দ্রে আসবেন
--  FDP-Spitze: Initiator der Mitgliederbefragung wirft Intransparenz vor
--  블랙핑크, 멤버 4명 모두 YG 떠난다
--  മലയാളികൾക്ക് ഇത്തിഹാദ് എയർവേയ്സിന്റെ പുതുവർഷ സമ്മാനം; കോഴിക്കോട്, തിരുവനന്തപുരം സർവീസ് 1 മുതൽ
--  Şarkıcı Demet Sağıroğlu hayatının kırılma noktasını açıkladı: "Kayahan müzikteki babam"
--  Автобусы в Кондопогу из Петрозаводска будут забирать пассажиров на новом месте
--  Road Accident: కామారెడ్డి జిల్లాలో రోడ్డు ప్రమాదం: ఇద్దరి మృతి..
--  RDC : la RVF alerte sur la "montée exceptionnelle" des eaux de fleuve Congo
--  গন্ধ ছাড়া হাঁসের মাংস রান্না করবেন যেভাবে
--  राष्ट्रिय टोपी दिवसको सान्दर्भिकता
--  Дети сотрудников УФСИН Смоленской области побывали на новогоднем утреннике
--  [화순탄광 갱도 관리 놓고 주민 반발…“집단행동 나서”
--  [블랙핑크, ‘따로 또 같이’ 활동한다…4명 모두 YG 떠난다
--  Merz: Werde Machtkampf um Kanzlerkandidatur nicht zulassen
--  [순천시, 어린이집 365일 연중무휴 운영
--  Darts-WM für Pietreczko beendet - „Es überwiegt der Ärger“
--  Mehr als 620 Sportstätten profitieren von Landesförderung
--  Gizli beynəlxalq pul köçürmə sistemi qurmuş Hamid Safari Ghafour Bakıda həbs edildi
--  رياح خفض الفائدة تعصف بالدولار لإنهاء العام على خسارة
--  Innenministerium: Mehr als 620 Sportstätten profitieren von Landesförderung
--  The New York Times подала в суд на OpenAI и Microsoft за нарушение авторских прав
--  В Красноярском крае впервые лишили гражданства трех человек за преступления
--  Cựu Cảnh sát giao thông bắt cóc bé trai, tống tiền 15 tỷ đồng bị tuyên phạt 20 năm tù
--  ऑटो पायलट कारें कितनी खतरनाक हैं? जानिए आपातकालीन स्थिति में ब्रेक कैसे लगाएं?
--  Bakının bir sıra yollarında sıxlıq myarandı
--  Wanneroo bushfire: DFES investigation determines cause of blaze that destroyed 18 homes
--  Врачи указали тулякам на симптом рака во время Нового года
--  'Childlike' mentally ill former model, 24, who disappeared from Florida treatment center spotted at Alabama gas station with unidentified homeless man
+-  N. Korea discusses light industry, state budget at party meeting
+-  Inspection shows over $97.6 mil. in virtual asset transactions by lawmakers
+-  NK leader invites contributors in economic sector to New Year's celebrations
+-  Tax revenue falls $38.3 bil. through Novmember on weak corporate performance
+-  Desean con drones 'Feliz fin de AMLO 2024'
+-  Clasifican Browns a Playoffs gracias al brazo de Flacco
+-  Canada: Bullets fired at house of Laxmi Narayan Temple president’s son, Hindu temple has been under target of Khalistanis
+-  Arsenal beaten 2-0 by West Ham for 1st home loss in Premier League this season
+-  Preparations on to blacktop Jamune-Pokhara road section
+-  Two persons nabbed with endangered pangolin scales
