@@ -1,11 +1,11 @@
 # Latest News
--  Iñaki Tolaretxipi: «Lo que conseguimos este año lo recordaremos siempre»
--  El Nacimiento, de Belén a Amara Viejo
--  Cangrejo bridge closed due to major structural failure.
--  iGAS infections on the rise in B.C.
--  Año Nuevo: horarios y artistas que se presentarán en concierto en el Ángel de la Independencia
--  남아공, 국제사법재판소에 '가자지구 집단학살' 혐의로 이스라엘 제소
--  MG ZS EV המחודש: המנצח בקרב מחירי החשמליות
--  Descubre el misterioso valor de las flores en este reto matemático y demuestra tu destreza numérica
--  TFF Başkanı Mehmet Büyükekşi fenalaştı! Riyad'da kaldığı otele ambulans çağrıldı
--  AK Parti Sözcüsü Çelik: Atatürk ülkemizin kurucu lideri ve ortak değeridir
+-  Vacinação e reindustrialização foram as prioridades de Lula na área da Saúde em 2023
+-  En Argentina, Javier Miley continúa su campaña ultraliberal pese a las protestas callejeras
+-  Asier Martínez volvió con precaución en Pamplona
+-  Here we go! Cựu sao Man United có bến đỗ mới
+-  Јужна Африка го тужи Израел пред Меѓународниот суд на правдата за геноцид во Газа
+-  Fin del misterio: el desagradable motivo por el que Mauro Icardi no pudo intimar con la China Suárez
+-  Russia launches 122 missiles and 36 drones in war’s ‘biggest aerial barrage’
+-  Martine nema već 10 dana, očajni roditelji u suzama: ‘Ispod bora je čeka poklon. Molim te, dođi po njega...‘
+-  Mii de persoane au sărbătorit în Nigeria plecarea retragerea trupelor franceze | VIDEO
+-  Police searching for Colorado mom suspected of killing her 2 children, wounding third
