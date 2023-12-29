@@ -1,11 +1,11 @@
 # Latest News
--  Fijasko Đilasovih i Marinikinih stipendista na protestu u Beogradu
--  My friend David Leland’s films always cheered for the underdog
--  Cody Rhodes Reveals He Vomited Seconds Before Live Event Match
--  Hot search Weibo: Vì sao Hứa Quang Hán có mặt tại đám tang Lee Sun Kyun?
--  Thảm đỏ SBS Drama Awards: Lee Sung Kyung nóng bỏng át Kim Yoo Jung, dàn sao mặc đồ đen tưởng niệm Lee Sun Kyun
--  Bể hụi hàng trăm tỉ đồng ở Phú Quốc
--  Rộ tin xác nhận BLACKPINK về Việt Nam biểu diễn nhưng fan đồng loạt nghi ngờ, lý do vì sao?
--  “Bứt phá giới hạn” tự do tài chính cho thế hệ trẻ trong thời đại 4.0
--  Hải Tú dạo này: Style ngày càng đi xuống, thanh thuần chẳng phải, quý phái không xong
--  Cán bộ coi thi phát nhầm đề, học sinh THPT toàn tỉnh Bình Dương suýt phải thi lại
+-  Former House president and MP plead not guilty in ‘golden passports’ trial
+-  Barcelona'nın genç yıldızı konuştu!
+-  Fatih Terim ilk transferini yaptı!
+-  Fransız askerlerinin ülkeyi terk etmesini dualarla kutladılar
+-  TFF'den Süper Kupa açıklaması!
+-  אתם בחרתם: ניקולה יוקיץ' הוא ספורטאי השנה של וואלה! ספורט
+-  גלנט עונה לבנט: "ראוי שרעם המטוסים יחריש את הדיבורים המיותרים"
+-  אתם בחרתם: סימון ביילס היא ספורטאית השנה של וואלה! ספורט
+-  שלושה פצועים, ובהם ילד בן 10, באירוע ירי בלוד; מצב שניים מהם אנוש
+-  מימר: "רוצים לסיים את הסיבוב הראשון בצורה הכי טובה שאפשר"
