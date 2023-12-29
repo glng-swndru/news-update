@@ -1,11 +1,11 @@
 # Latest News
--  Bertolacci yeniden Fatih Karagümrük'te!
--  VIDEO+FOTO: U Zenici počelo postavljanje bine za novogodišnji spektakl Marije Šerifović
--  Chris Harrison Mocks 'The Bachelor' For 'Going Downhill' Since His Exit
--  Bakan Yardımcısı açıkladı: iOS yüklü cihazlarda güvenlik açığı tespit ettik
--  জুতা ছুড়ে মারা হলো থালাপতি বিজয়ের মুখে
--  Kremlj: Imamo popis evropske i američke imovine koju bismo mogli zapleniti
--  Ολυμπιακός: Νέο όνομα για επιθετικός – Παικτάρα και έρχεται άμεσα – Πόσα στοιχίζει
--  Swenn Larsson nära pallen – Sara Hector tolva
--  İşte karşınızda dünyanın en hızlı uçağı! 2025'te havalanacak
--  Diyarbakır'da feci kaza! Çöp konteynırını boşaltan işçiye taksi çarptı...
+-  China’s EV companies head to Hong Kong, where the money flows free
+-  Рокерите от Imagine Dragons помогнаха на украинче да възвърне дома си
+-  Полицейские в Омске нашли водителя автомобиля с головой косули на капоте
+-  What? Gypsy Rose Blanchard dice que Taylor Swift le ayudó a sobrevivir en la cárcel
+-  Caraqueños recibieron 12.000 ayudas en 2023
+-  “Azəriqaz” İB yanında İctimai Şura üzvlərinin vəsiqələri təqdim olundu
+-  Ancelotti renova contrato com o Real Madrid até 2026
+-  El gobernador criticó a la oposición y confirmó que vetó la modificación de la ley de coparticipación municipal
+-  Quinn Ellis: Contro l’esperienza di Scafati necessari 40′ di solidità e focus
+-  Ивайло Лалов: Страхотната публика и добрият ни сервис са нашият коз срещу Берое
