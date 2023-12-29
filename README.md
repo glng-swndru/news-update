@@ -1,51 +1,11 @@
 # Latest News
--  İşte Süper Lig'in yaş ortalaması
--  İsmail Kartal'dan Barış Alper Yılmaz'a özel önlem
--  Diyarbakır Anneleri 2024'te evlatlarına kavuşmak istiyor
--  Ali Koç: Biz Almanya'yı istiyorduk
--  Erlaubnis fehlt: Züge zwischen Brig VS und Italien fallen teils aus
--  [고 남승룡 마라토너, '대한민국 스포츠영웅' 추앙 받다
--  [포스코 CEO 후추위, 3차 회의 개최…“주주들에 후보 추천 요청”
--  [“오전 7시26분까지 여기 가야…”새해 첫 일출 어디서 가장 먼저 뜨나 봤더니
--  Онколог заявила о схожести симптомов рака носовой полости с признаками ОРВИ
--  Pays Basque : Un enquête ouverte après un présumé bizutage à l'Hôtel du Palais de Biarritz
--  Lyon. Le restaurant Pierre Orsi vendu en janvier : pas de McDonalds, ce que l'on sait
--  Yapay Zekâ Geliştirildi: ChatGPT ve Google Bard Tehlikede mi?
--  Chery'Yapay Zekâ Botlarını "Kırabilen" Yapay Zekâ Geliştirildi: ChatGPT ve Google Bard Tehlikede mi?
--  রান্না করতে গিয়ে অগ্নিদগ্ধ, ৫ দিন পর পোশাকশ্রমিকের মৃত্যু
--  Australian Open znatno povećao nagradni fond. Evo koliko će zaraditi tenisači i tenisačice
--  Wi-Fi 7普及元年开启，华为路由BE3 Pro强势占位
--  iQOO Neo9：红白游戏魂的碰撞，双芯战神塑造游戏体验
--  Muž sa v Trnave okolo polnoci vlámal do materskej školy, policajti ho chytili
--  Утром под брянской Дубровкой сгорел дом
--  Военный эксперт указал на понимание Западом бессмысленности помощи Киеву
--  Автопарк тамбовских школ и больниц обновили на 229 млн рублей
--  আমার জয় বাংলার চেতনা নতুন নয়
--  Le jour où le Fougerais Melaine Lainé a fait mieux qu'un médaillé olympique
--  Hilfe für Tschernihiv aus Heidenrod
--  В Кахетии идет ликвидация последствий от стихии
--  Väčšina Slovákov je spokojná s vládou a súhlasí aj so zrušením ÚŠP: Ukázal prieskum!
--  Slijede masovni otkazi: Zbog povećanja minimalca čak 1200 ljudi ostaje bez posla
--  Украинские войска обстреляли Горловку и Донецк
--  Les Bourses mondiales en ordre dispersé pour la dernière séance de l'année
--  우상호 "민주당, 지금으로 가면 과반도 어렵다"
--  Hazine ve Maliye Bakanlığı dış borç stoku verilerini açıkladı
--  VIDEO Evo tko je sve zapjevao u Lisinskom na reviji 'Zlatna ptica'
--  Atıl alan parka dönüştü
--  Es considerado el reto matemático más complejo: muy pocos hallaron la solución
--  ANKETA Jeste li se naučili na eure ili vam još trebaju cijene iskazane u kunama?
--  Fizetésemelés 2024: ennyivel emelkedhetnek a bérek Magyarországon
--  Einst gehypt, nun Provinz: Kohfeldts Neustart in Belgien
--  İsrail'de Savaş Kabinesi krizi büyüyor: Gazze'ye yönelik stratejiler nerede görüşülecek?
--  Da gennaio i pedaggi autostradali aumentano del 2,3%. In attesa che i concessionari facciano le loro richieste al governo
--  8 площадок для запуска фейерверков организовали в Нижнем Новгороде
--  Пожилой автомобилист сбил пешехода в Корсакове и скрылся с места ДТП
--  Ο Επαμεινώδας Κωστέας έγινε αντιπτέραρχος μετά θάνατον
--  Potensi SDA Banyak dan Beraneka Ragam, Muhadjir Effendy Ajak Mahasiswa Terus Menambah Wawasan
--  Lirə ardıcıl ikinci gün tarixi minimuma düşdü
--  İzmir'de trafik magandası, evli çifte korku dolu anlar yaşattı
--  VIDEO Bivši sudac pojasnio kontroverzni gol West Hama u derbiju s Arsenalom: ‘Zna se što je potrebno...‘
--  NEVÜ 42 Öğretim Elemanı alacak
--  Umro Gaston Glock, razvio najprodavaniji pištolj na svijetu
--  Gaziantep'te 3 milyon lira değerinde kaçak ilaç ve tıbbi malzeme ele geçirildi
--  Dieter Trapp vermietet Haus in Collenberg an Geflüchtete
+-  Viczeovci rok od adopcie: Sú otvorení ĎALŠÍM deťom!
+-  אחרי קולורדו: גם מיין פוסלת את טראמפ מהתמודדות בפריימריז
+-  הותר לפרסום: עילאי קירושין הוא הפעוט שנדקר למוות אתמול בלוד
+-  Russia unleashes one of its biggest aerial barrages yet against Ukraine
+-  Babar's rut sums up the best of Australia's quicks
+-  فرنسا.. العثور على شاب في حجرة عجلات طائرة قادمة من دولة عربية
+-  Al Jazeera: doden na aanvallen op vluchtelingenkampen Gaza
+-  Waterstand in grote rivieren stijgt begin januari weer
+-  Hanke Bruins Slot werd in 2023 buitenlandminister: 'Ook Hamas moet bereid zijn te stoppen met vechten'
+-  Minister: Ngeh's suggestion on syariah committee 'baseless'
