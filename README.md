@@ -1,11 +1,11 @@
 # Latest News
--  Ohio Man Under Investigation After Alleged Poaching of Expected Record Deer
--  Hilarious Warning Note Not to Feed Dog Goes Viral: 'She Will Explode'
--  News24 | Here are the Powerball and Powerball Plus results
--  Ministerio Público determinó que no existe registro del nacimiento de infante suplantada por una muñeca
--  Mark Wahlberg & Wife Rhea Flaunt Sweet PDA While Swimming Together in Barbados
--  Unite for peaceful world
--  فوز اماجل على أحرار لودر بضربات الترجيح في بطولة التصالح والتسامح
--  U jednom od najvećih ruskih raketnih napada poginula 31 osoba
--  Majka opisala kako reaguju deca sa autizmom kada čuju zvuk petardi
--  شكر على تعازي من عشيرة العقاربه بوفاة ابنهم الشاب نواف صايل العقاربه
+-  Stoltenberg: jesteśmy czujni, solidaryzujemy się z naszym cenionym sojusznikiem - Polską
+-  Cuesta de enero: López Obrador descarta aumento a impuestos
+-  Русија го потврди „масивниот бараж“ врз цели во Украина
+-  AK Parti ve MHP'nin 51 kent için iş birliği planı hazır
+-  Fenerbahçe Başkanı Ali Koç: Gerekli açıklamalar yapıldı!
+-  Beşiktaş: Atatürk'ün izinde, bayraklarla donatıyoruz!
+-  Torino ko, a Italiano basta Ranieri. Napoli, solo un pari contro il Monza
+-  THY Melbourne'e tarifeli seferlere başlıyor
+-  Tarımsal destek ödemesi hesaplara yatırıldı
+-  Schmerzfrei durch den Tag
