@@ -1,51 +1,51 @@
 # Latest News
--  Lars Findsen kræver erstatning efter droppet sag
--  Lars Findsen kræver erstatning efter droppet sag
--  مجهولون يغتالون شخصاً بوابل من الرصاص امام سيارة النجدة في البصرة
--  "المرور" يطرح لوحات إلكترونية مميزة عبر أبشر غدا .. طريقة الوصول للخدمة
--  عاجل.. ماذا يحدث بعد قبول الاعتراض على الضمان بشكل نهائي؟ .. توضيح مهم
--  У Ивлеевой потребовали 70 миллионов за подмоченную репутацию
--  Kreml setzt Großangriffe fort: ISW: Russland nutzt Schwachstellen in der Luftverteidigung aus
--  Branko Karačić više nije šef struke HŠK Posušje
--  Zwitserse waakhond wil bonussen bankiers aanpakken
--  ЦИК на Азербайджан регистрира Илхам Алиев като кандидат за президент
--  POLITICS IN PAKISTAN; 2023 ROUNDUP
--  Προφυλακιστέος ο Νορβηγός για τη δολοφονία του 32χρονου αστυνομικού στη Θεσσαλονίκη – «Είχα το μαχαίρι για αυτοάμυνα»
--  Menos de 20% das delegacias da mulher funcionam 24 horas
--  Líder bosnianskych Srbov Dodik sľubuje, že napriek varovaniam USA rozdelí Bosnu a Hercegovinu
--  Ja, in Alberta gibt es einheimische Ratten – und ein Mann kann sie nicht loswerden
--  Chu Thanh Huyền khoe cảnh vào bếp, khẳng định một điều chắc nịch khiến netizen "quay xe": Xứng đáng làm vợ Quang Hải!
--  Cô gái mặc áo yếm, quần đùi siêu ngắn bán đồ nướng gây tranh cãi
--  Phương Nhi vào top 20 gương mặt đẹp nhất các cuộc thi sắc đẹp 2023
--  MC xinh đẹp làng game tổ chức hôn lễ ở Việt Nam sau tuần trăng mật đi 8 nước châu Âu
--  Dàn KOC bứt phá “thần tốc” trong năm 2023: Dám vươn mình ra quốc tế, gọi tên những nhân tố mới ấn tượng
--  Modrić: Uživam u svakom trenutku u Realu jer ne znam dokad će trajati
--  Dạ dày người phụ nữ "thủng" đến 30 vết chỉ do một sơ suất, có vấn đề đường tiêu hoá đặc biệt lưu ý
--  উন্নয়নের স্বার্থে বিএনপি-জামায়াতের ভোটকেন্দ্রে আসা উচিত: নয়ন
--  বঙ্গবন্ধুর প্রতিকৃতিতে মৎস্য ডিজির শ্রদ্ধা
--  İnşaat demiri ticaretinde 1 Ocak'tan itibaren yeni dönem başlıyor...
--  Trabzon'da kızını öldüren kişi intihar etti
--  Ribuan Warga NTT Sampaikan Harapan ke Gibran
--  عمران خان مستبعد من انتخابات 2024 في باكستان
--  Óttast að Grinvíkingar í göngu­túr endi í sprungum
--  Gdje je kraj Pandorine kutije: Čuvari i promoteri nezavisne Crne Gore pokušali su da izazovu sukobe da bi očuvali vlast
--  الطن بـ 128 ألف جنيه.. طلب إحاطة بشأن ارتفاع أسعار تقاوي البطاطس
--  أول وآخر دولة تستقبل العام الجديد 2024.. تعرف عليهما
--  Fallece Iván Rodríguez Chávez, rector de la Universidad Ricardo Palma
--  Jahresrückblick 2023: Wie ein strenger Reporter den „wahrscheinlich längsten“ Parteitag überstanden hat
--  Mogi antecipa serviço de coleta de lixo por conta do feriado de Ano Novo
--  “Fluturojnë” çmimet në fundvit
--  Former Hibs boss Lee Johnson sacked for the second time this season
--  „Angie hat unglaublich gespielt“: Kerber meistert ihr gelungenes Comeback mit Zverev
--  Templenomics: From Ujjain To Kashi To Ayodhya, What Is PM Narendra Modi`s Motive Behind Temple Renovation
--  Bebeklerde Ateş Nasıl Düşürülür: Sağlık İpuçları ve Öneriler
--  Prvá žena na svete sa môže pochváliť majetkom 100 miliárd dolárov. Riadi svetoznámu značku
--  Янги Тошкент дирекцияси раҳбари 350 млрд. сўмлик буюртмани қариндошига тегишли компанияга берди(ми?)
--  Το ξέφρενο πάρτι του Νεϊμάρ στην τριήμερη κρουαζιέρα του (video)
--  דקות ראשונות אחרי כארבעה חודשים: ליאל עבדה נכנס בדקה ה-83 בדרבי
--  Calendarul majorărilor pe 2024. Când începe recalcularea pensiilor?
+-  Pep Guardiola vedätti – Manchester City -tähden tilanteessa yllätyskäänne
+-  8-0 – Pikkuleijonille mieletön murskavoitto: "Olimme edellä monessa asiassa"
+-  HIFK:n kanadalaisvahvistus debytoi SM-liigassa - saa heti huippumahdollisuuden
+-  الدبيبة يوجه وزارة الشؤون الاجتماعية بصرف منحة الزوجة والأولاد عن الربع الرابع يوم غد الأحد.
+-  العمل بمنظومة المعلومات الالكترونية بكلية الاداب جامعة الجفرة .
+-  اتحاد طلبة كلية القانون بحامعة الجفرة ينظم جلسة حوارية علمية حول استقلال ليبيا .
+-  Saako törkytempun tehnyt Kärppien kanadalainen potkut? Karri Kivi teki asiat selväksi MTV:llä
+-  منسقو التوعية والتواصل بالمكاتب الانتخابية يعقدون سلسلة من الاجتماعات مع الشركاء .
+-  Delincuentes violentan una casa, sustraen dinero en efectivo y joyas varias
+-  Maik Nawrocki wrócił do składu Celticu. Tak zaprezentował się były zawodnik Legii Warszawa
+-  King ICT uvodi SAP u Zagrebački holding u projektu vrijednom 4,4 milijuna eura
+-  Глава МИД Туркменистана поздравил Президента с выходом книги
+-  IND vs SA: Body Blow For Team India As Pacer Gets Hit During Nets
+-  '강도 충격' 맨시티 그릴리시, 셰필드전 선발 출전…데 브라이너 교체 명단·홀란드 제외
+-  Último dia de 2023 com céu nublado em Moçambique, trovoadas e aguaceiros nas regiões Centro e Norte
+-  La Casa Blanca aprueba una nueva venta de armamento a Israel sin pasar por el Congreso
+-  Har Ghar Netaji: জনসংযোগের নয়া উদ্যোগ! পয়লা জানুয়ারি থেকে 'হর ঘর নেতাজি' কর্মসূচির সূচনা করছে AIFB
+-  France FIFA World Cup Finalist Criticized For Flat Performance In Genoa Vs Inter Milan Serie A Draw
+-  Bờ sông Sài Gòn tấp nập đông vui trước thềm Tết dương lịch 2024
+-  Đi chơi Hà Giang tắc đường đèo nhưng vẫn vui
+-  Rệp hút máu người 'trỗi dậy' ở Nhật, không nơi nào an toàn
+-  Khai mạc Festival hoa kiểng Sa Đéc
+-  Rescatan con vida a uno de los tripulantes de una aeronave que se accidentó en Colombia
+-  Petro propone a empresarios discutir posibilidad de hacer cambios a su reforma tributaria
+-  Kadıköy'de Filistin'e destek gösterisi düzenlendi
+-  El avión más grande del mundo vuelve a Barcelona
+-  Miền Bắc đón đợt không khí lạnh sau kỳ nghỉ Tết Dương lịch 2024
+-  Mẫu quần công sở được Tăng Thanh Hà mê tít, diện mọi lúc mọi nơi không hề biết chán
+-  Cùng khám phá lễ hội SafaLight 9 ngày đêm độc đáo tại Cẩm Phả
+-  Sinh viên "bóc trần" sự thật bên trong thư viện Harvard lúc nửa đêm: Đừng bao giờ thắc mắc sao trường toàn tỷ phú!
+-  Du khách ùn ùn về Hà Giang, cổng trời Quản Bạ tắc đường
+-  Football. Chloé Jarret, footballeuse amateur dans l’album « Panini » : « Je suis un peu la mascotte de l’AS Livradaise »
+-  เค้นสอบ 12 ชม.'รองสารวัตรปืนโหด'ยิงนักธุรกิจดับบนทางด่วน เจ้าตัวยังปิดปากเงียบ
+-  България ще помни дълго последния ден на 2023 година, прогноза на НИМХ
+-  این اے 57سےشیخ رشید،راشد شفیق کے کاغذات نامزدگی مسترد
+-  창원시, 개정된 조례 따라 청년 나이 19~39세로 상향
+-  진주시, lsquo;대한민국 문화도시rsquo; 선정
+-  Tribunal de Bolivia impide reelección indefinida y saca de contienda a Morales para 2025
+-  بينها وجهة عربية وتبدأ من 1200 ريال .. إليك عروض القطرية على التذاكر للسنة الجديدة 2024
+-  Consejos para combatir la llenura de diciembre
+-  Nilüfer Belediye FSK 2023'ü 5 gollü galibiyetle kapattı
+-  Government will use jogging clubs to get long-term sick back to work
 -  Sorteio da Mega da Virada é neste domingo
--  Ukraine War Maps Show Ground Won, Lost as Russia Steps Up Attacks
--  Mladá Boleslav odvolala Kuliče. Neakceptoval prý nastavený způsob spolupráce
--  Branko Karačić više nije šef struke HŠK Posušje
--  Bebekler Neden Kusar: Anneler İçin Kusma Sorunlarına İlişkin Kapsamlı Bir Rehber
+-  Festa da virada do ano pode ter chuva no Rio e em São Paulo
+-  Unidade móvel de imunização da SES possibilitou aplicação de mais de 46 mil vacinas em MT
+-  يديعوت: بين ما تريده واشنطن وتنفّذه تل أبيب في غزة.. الفجوة تتّسع
+-  Chelsea survive late fightback to beat Luton in thriller
+-  Završen protest ProGlasa, reka ljudi sa crvenim kartonimana ulicama
+-  الجنازة بعد الزفة.. تشييع جثماني عروسي الصباحية في قنا
+-  24 ساعة وينتهي التقديم في شقق عواصم المحافظات.. ننشر الأسعار والأماكن
