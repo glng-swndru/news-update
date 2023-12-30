@@ -1,51 +1,51 @@
 # Latest News
--  Büyükekşi suçu yine özel kalemine mi atacak?
--  İspanyol İberia Havayolları çalışanları grevde: 444 uçuş iptal edildi
--  우체국 금융 시스템, 12시간째 장애…“원인 파악 중”
--  유재석 "한 때는 8명이었던 '런닝맨', 어느새 5명 됐다" 씁쓸 [2023 SBS 연예대상]
--  CM Revanth Reddy extends Rs 2 lakh assistance to Swiggy executive’s family
--  '미운 우리 새끼 & 신발 벗고 돌싱포맨' 주역들
--  유재석-양세찬, 송지효를 지켜라!
--  달려라 '런닝맨'
--  송지효 '블링 블링'
--  유재석, 런닝맨 시그니처 포즈
--  유재석, 반가운 손인사
--  차인표-정상훈-류수영-제이쓴, '녹색 아버지회' 모집중
--  '강심장VS' 시그니처 포즈
--  Hurdaya çıkan uçağı taşıyan kamyon köprüye sıkıştı!
--  عاجل.. تقترب من الصفر.. السودة تسجل أدني درجة حرارة اليوم بالمملكة
--  بعد إعلان الإنذار الأحمر على الباحة.. الدفاع المدني لـ السكان: خذوا حذركم
--  بعد تمديد مبادرة الإعفاء من الغرامات .. تنبيهات مهمة للمكلفين للاستفادة من القرار
--  "فاجعة" صحية بقطاع غزة.. الصحة العالمية تطلق تحذيرًا خطيرًا
--  Kickoff | Premier League told to sign free agent De Gea
--  Flooded tunnel near London disrupts Eurostar train
--  Израиль сообщил о расширении операций в южной и центральной частях сектора Газа
--  ΠΑΟΚ: Ο Ιβάν Σαββίδης αγόρασε 150 στρέμματα και φτιάχνει νέο προπονητικό κέντρο
--  닛토덴코, 이런 '먹튀기업'은 또 없었다
--  Дмитрий Копылов: Мы придумали формат иммерсивных спектаклей до того, как они появились
--  Ankara Büyükşehir Belediyesi yılbaşı mesaisine hazır
--  Tajna svakog uspješnog kolača je u ovom triku
--  What time and TV channel is Nottingham Forest v Manchester United on today in the Premier League?
--  นี่แหละของแซ่บ! 'โจอี้ ภูวศิษฐ์'กลับบ้านสุดชิล นั่งจกข้าวเหนียว-ผัดเผ็ดปลาไหล
--  นายกฯสุดชิลล์!! พา'ลูกสาว-ลูกชาย'พักผ่อนส่วนตัวหัวหินช่วงปีใหม่ ทักทายนักท่องเที่ยว
--  Barbie paraguaya mostró cómo agarra la manguera
--  Se presenta ‘Ankay Team 24’, el equipo ciclista de Monesterio
--  Uso de pirotecnia, genera ansiedad y estrés en mascotas
--  Tarihi konağın yenileme çalışmaları devam ediyor
--  Guirassy Milan, il Manchester United fa sul serio! Gli inglesi preparano l’assalto ULTIME
--  Über den Jahreswechsel wird das Wetter ungemütlich
--  Kastamonu'da ihracat geçen yılın Kasım ayına göre yüzde 86,1 arttı
--  মুরগি নিয়ে ঝগড়ার পর নারীর রহস্যজনক মৃত্যু, মাসহ আটক ৫
--  Снежного барса признали национальным символом Киргизии
--  העברות בעולם, 30.12: טוטנהאם במו"מ עם צ'לסי לרכישת קונור גלאגר
--  חשפיה בשער הפועל פתח תקוה, חוזז שב להרכב הפועל ירושלים
--  Los “huelus” salen a las calles en Juchitán
--  Tradhtia shkak i ndarjes? Kush është ish-fotografia e PD, që çoi në divorc Princ Lekën me Elia Zaharinë
--  Two men die and two others in life-threatening condition after house fire in Croydon
--  10 people arrested in Makueni for Illegally slaughtering 15 Donkeys
--  Hassan Jhangur, 23, in court charged with murder after dad Chris Marriott, 46, hit by car as he tried to help stranger
--  (ФОТО) Скандалозен оглас за вработување во Источна Македонија: Работни позиции само за Албанци дрвосечачи
--  Govt and SIDBI Launch Initiative In Karnataka to Empower Micro And Small Industries
--  શરીરને સ્વસ્થ રાખવા માટે વિટામિન B-12 ખૂબ જ જરૂરી, ડાયેટમાં સામેલ કરો આ ફૂડ
--  Wirbel um Loch in Anzug von Oberstdorf-Sieger Wellinger
--  Biseri Hajdukove škole treniraju zajedno, jednoga priželjkujemo uskoro u bijelom dresu, a drugi je tek počeo svoj put
+-  คนแห่เที่ยว "สะพานมอญ" ช่วงปีใหม่คึกคัก คาดเงินสะพัด 100 ล้าน
+-  Hrôzostrašná nehoda v Bratislave na Púchovskej ulici: Polícia prosí a hľadá svedkov, ktorí videli jej priebeh!
+-  Najstaršia pevnosť sveta uchvátila vedcov: Odhaľuje, ako skutočne žili pradávni lovci, TOTO by ste nečakali!
+-  Ďalší podvod na ľudí: V SMS-skách vystupujú ako Slovenská pošta, v priebehu pár minút vám môžu vybieliť účet!
+-  Cobija del arte (+fotos)
+-  Unfall auf A31: Hagel führt zu Massenkarambolage – 53-Jährige stirbt
+-  Unfall auf A31: Hagel führt zu Massenkarambolage – 53-Jährige stirbt
+-  Four of a family electrocuted in Mymensingh
+-  Novas tabelas de retenção do IRS publicadas em Diário da República
+-  Ilir Beqaj i vetëm përballë SPAK, Edi Rama: Të vazhdojë drejtësia, është punë e saj!
+-  Lloris odlazi iz Tottenhama u Los Angeles
+-  Politie: kleine groep demonstranten al eerder A10 op
+-  Загадката, която подлуди социалните мрежи: "Ако дъщерята на Мария е майка на моята дъщеря, каква съм аз на Мария?"
+-  'เด็จพี่'ถอนหงอก'สว.ตัวตึง'หยุดค้าความขัดแย้ง ฉะถ้าทำหน้าที่ได้แค่นี้ 'ลาออก'ไปซะ
+-  ลูกบ้านขอตอบแทนจากใจ มอบของขวัญพี่รปภ.ที่คอยดูแลหมู่บ้าน
+-  Salvamento Marítimo rescata en las últimas horas tres cayucos con 246 personas en aguas canarias
+-  안산에서 판교까지 3103번 직행버스 운행
+-  김철민 의원 대표발의 ‘군인 재해보상법’ 국회 본회의 통과
+-  Honor X50 Pro is Now Official with Snapdragon 8+ Gen 1 and 108 MP Main Camera
+-  «Я тебе запрещаю на казахском разговаривать!». Экс-футболист сборной Казахстана рассказал о конфликте с российским тренером
+-  Milli tenisçi Zeynep Sönmez, Sasnovich'i eleyerek ana tobloya yükseldi
+-  정의당, 尹 신년인사회 불참…"김건희 여사와 식사 이상하지 않겠나"
+-  "연말특수에 1등 당첨금도 증가" 로또 1100회 1등 13명 각 22억씩
+-  ΗΠΑ: Οικογένεια εντοπίστηκε νεκρή μέσα σε σπίτι – Δίπλα από τη σορό του πατέρα βρέθηκε όπλο
+-  “Arrest shtëpie” për Berishën/ Rama: Nuk e shoh si fitore të PS-së
+-  Pauerlifting savez izabrao najbolje u 2023.
+-  9 عادات تسرع من الشيخوخة.. فاحذروها
+-  سماعة تكتشف أمراض القلب مبكراً.. تعرف عليها
+-  مطالب بإستقالة المكتب المسير بعد هزيمة اتحاد طنجة أمام الرجاء ب 6 أهداف
+-  نادي الاتحاد السعودي يقرر إراحة بنزيمة
+-  بعد تذبذب مستواه .. اتحاد جدة يمنح بنزيمة إجازة ل3 أيام
+-  بنطلحة الأستاذ المؤسس للعيادة القانونية بالمغرب والعالم العربي يتحدث عن تخرج الفوج الأول للعيادة القانونية في مجال الاستشارة القانونية
+-  "الملحمة"… فيلم جديد لعبد الله جعفري حول انجاز المغرب في مونديال قطر
+-  المحكمة الدستورية ترفض توسيع صلاحيات مجلس "الشامي" لتشمل تتبع مآل التوصيات
+-  ناشرو الصحف بالأقاليم الجنوبية يعلقون اعتصامهم بالمجلس الوطني للصحافة
+-  لاعب في قائمة المنتخب الكاميروني المشاركة في "الكان" يثير ضجة بسبب عمره
+-  عبد الجليل يصادق على ميزانية الشركة الوطنية للنقل والوسائل اللوجيستيكية
+-  جهة طنجة تدشن لبنة تنويع اقتصادها الفلاحي عبر قطب اللوكوس خلال 2023
+-  دولة أوروبية تفتح باب الهجرة لأصحاب عشرات المهن
+-  Visszavonult a Duna az alsó rakpartról, de még ne rohanjon oda
+-  مباشر الدوري الإنجليزي - لوتون ضد تشيلسي
+-  Prankster leaves Mariah Carey at Perth nativity scene – just days after Baby Jesus figure returned
+-  Dışişleri Bakanı Fidan, 2023'ün son 7 ayında dünyayı 5 kez turladı
+-  Behörden können ab 1. Januar Handy-Daten besser überwachen
+-  Umman Denizi'nde kaçırılan gemi 2 haftadır Somali açıklarında bekletiliyor
+-  Malák z Plzně vyfasoval za napadení rozhodčího trest na tři zápasy
+-  Dấu ấn ngành dân số Nghệ An năm 2023
+-  傳唱片公司贊助叱咤增得獎機會 陳柏宇直認今年有信心
+-  Bartłomiej Wdowik w Dinami Zagrzeb? Łukasz Gikiewicz nie ma wątpliwości
+-  Sportmediaset - Ferguson incedibile a gennaio per il Bologna
