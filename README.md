@@ -1,51 +1,51 @@
 # Latest News
--  Polícia pátra po nezvestnej Petre Hatiarovej (40) z Dlhého Poľa: Nezvestná je už niekoľko dní
--  HIFK:n Ville Peltonen kehui vuolaasti uutta kanadalaistaan
--  اتحاد كرة القدم يطالب بمعاقبة الاتحادات الرياضية في الكيان
--  «Барселона» решила отдать номер Месси скандальному футболисту
--  Dinamove tenisice sa zvijezdom u grbu, prodaju se za nemalu cifru
--  خبير: لا تستخدم عبارة "لا أعرف" عند الحديث مع مديرك .. وتلك البدائل
--  مانشستر سيتي يتجاوز شيفيلد بثنائية
--  المدرب أمجد أبو طعيمة يغادر معان رسمياً
--  الاتحاد الأردني يطالب بعزل إسرائيل رياضيا
--  Nottingham F. - Man. United, staðan er 1:1
--  Orędzie Donalda Tuska. Sprawdź, co powiedział premier
--  Tragedija u Daruvaru: Žena smrtno stradala u stanu koji se zapalio u centru grada
--  The 25-year office construction boom that transformed New York City's skyline has hit the brakes, driven in part by record office vacancies
--  «En el corre corre» maturineses realizan compras de último momento
--  Shots fired in Fleetwood area: Surrey RCMP
--  Rio Ferdinand involved in heated on-air debate with Jermaine Jenas after being accused of showing 'bias' towards Man United: 'Why are you questioning me?!'
--  U PROVOD U BRUSU I GAĆAMA: Brutalni snimak Sindi Models iz lifta - ušetala u PROVIDNOM brusu, nema šta nije pokazala!
--  UK's most wanted list revealed as National Crime Agency hunt criminals around the world
--  Salernitana, tra poco Filippo Inzaghi in conferenza
--  Uzbekistan's Veolia Energy opens tender for supply of metal pipes
--  Tüfekle polise direnen şahsı özel harekat polisi etkisiz hale getirdi
--  İlk soykırım davası Güney Afrika’dan
--  వైసీపీ.. అబద్ధాల ప్రభుత్వం
--  Tennis star Emma Raducanu was forced to use scooter to get around during surgery rehab
--  ఆర్టీసీ బస్సు - వ్యాన్‌ ఢీ
--  Le pagelle del Milan - Pulisic regala un fine anno più sereno. Leao esce tra i fischi di San Siro
--  Suriye ordusunun İdlib'e saldırısında 2 sivil öldü, 15 sivil yaralandı
--  ప్రభుత్వం దిగొచ్చే వరకు పోరాడుతాం
--  Celtic hero Sutton reignites Cantwell feud as he makes McGregor jibe
--  Bom Prato tem cardápio especial de Ano Novo e funciona em horário diferenciado em Bauru
--  Cofepris emite alerta sanitaria por comercio ilegal de insecticida
--  సమ్మెబాట పట్టిన కేజీబీవీ ఉద్యోగులు
--  Milan-Sassuolo 1-0: il tabellino della gara
--  ఇసుక లారీ బోల్తా
--  Broadway star Maurice Hines dies at age 80 - just weeks after his birthday
--  Selá í Vopnafirði á toppnum
--  „Bild“: Kanzler Scholz plant Besuch in den Flutgebieten
--  Klara Geywitz wirbt für rascheren Austausch der Gasheizungen – und will ihre eigene behalten
--  Yargı siyasî alet gibi kullanılıyor
--  వస్తాయో..రావో?
--  Guinée : Comment réagi Conakry face aux « critiques » de l’ONU…
--  Ernestina Godoy pide se vote su ratificación lo más pronto posible
--  తుపాకులు, కత్తులు చూపి..
--  Roy Hodgson calls speculation over his Crystal Palace future ‘disrespectful’
--  జగన్‌ పాలనంతా మోసపూరితమే
--  చంద్రబాబు సమక్షంలో టీడీపీలో చేరిన వైసీపీ నేతలు
--  Expropia Gobierno planta de hidrógeno para Pemex en Tula
--  Psicopedagogas dão dicas de como entreter as crianças de maneira lúdica e educativa durante as férias
--  Kushinagar News: ग्राहक सेवा केंद्र संचालक से असलहे के बल पर 1.42 लाख रुपये की लूट
--  Kathua News: पेयजल किल्लत से लोग परेशान, विभाग को अवगत करवाने पर भी नहीं हुआ समाधान
+-  Başkan Erdoğan'dan Süper Kupa açıklaması
+-  Išlo o minúty! Polícia vypátrala na Sliači muža (60) v zlom psychickom stave, privolaní museli byť aj záchranári!
+-  V obrovskej rýchlosti vpálil do mamičky († 37) s dcérkou († 11) na chodníku: Polícia ho prepustila, údajne to nebolo úmyselne!
+-  AKTUÁLNE FOTO TRAGICKÉ PÁTRANIE Ivetu DNES našli v RIEKE: Ide už o ŠIESTE mŕtve TELO v TOMTO regióne za PÁR DNÍ, viacerých našli v POTOKU
+-  Lunteren kan na finaleavond direct door richting vliegveld
+-  DVO verliest twee keer op Korfbal Challenge
+-  נבחרת ארגנטינה תפריש את החולצה של ליאו מסי: "המעט שאנחנו יכולים לעשות"
+-  שלום קר: התאחדות הכדורגל הירדנית קוראת לפיפ"א להשעות את ישראל
+-  בין עסקת שבויים נוספת לדיוני היום שאחרי בעזה: בישראל מאשרים כי חלה התקדמות קלה בשיחות העקיפות עם חמאס
+-  Chennai police to deploy 18,000 personnel to ensure incident-free New Year celebrations
+-  Isso não é guerra de Israel contra o Hamas. É um massacre do regime da ditadura israelense de Netanyahu contra o povo palestino
+-  Kaushambi News: जिला पंचायत अध्यक्ष बोलीं- 50 लाख मांगे, पूर्व सदस्य ने कहा कि सुबूत दें
+-  Kaushambi News: पांच वर्ष की बच्ची से पड़ोसी ने किशोर ने किया दुष्कर्म
+-  Kaushambi News: डिप्टी सीएमओ ने पूछा डिग्री क्या है, झोलाछाप बोला...बीएससी
+-  Kaushambi News: तहसीलदार पर बदसलूकी का आरोप, भड़के किसान
+-  Vizio agrees to pay $3 million for alleged ‘false’ refresh rate claims
+-  Mathura News: अंतिम पायदान के व्यक्ति के लिए काम कर रहीं केंद्र-प्रदेश की सरकार
+-  Mathura News: आलू की फसल पर पाले का प्रकोप
+-  Mathura News: युवाओं को नमो एप से जोड़ेंगे कार्यकर्ता
+-  Mathura News: आज घर से निकलने से पहले रूट देख लें
+-  Ruski izvori: Ukrajinci pogodili Belgorod kasetnom municijom
+-  Ingresará frente frío el 1 de enero; traerá lluvias al estado
+-  “Kam harruar të buzëqesh”/ Selvia bashkëshortja e Shpat Kasapit i kërkon të birit ndjesë publike
+-  Delhi News: सीएम मनोहर लाल गुरूग्राम से करेंगे वन टाइम सेटलमेंट योजना का शुभारंभ आज
+-  Delhi News: एनआरआई की 40 करोड़ की जमीन हड़पने में दो और गिरफ्तार
+-  Weather : कंपाने वाली ठंड से जूझ रहा है यूपी, लखनऊ सहित ये शहर सबसे ठंडे, कई इलाकों के लिए ऑरेज और यलो अलर्ट
+-  Mahoba News: सीएचसी चरखारी ने पूरी कराई कोरोना पोर्टल की प्रक्रिया
+-  Hamirpur News: महिला की मौत, डॉक्टर पर गलत इलाज का आरोप
+-  Amroha News: शमी के नक्शेकदम पर छोटा भाई मोहम्मद कैफ, बंगाल की रणजी टीम ने हुआ चयन
+-  Amroha News: लगातार मिल रहा एक्सपायर्ड दवाइयों को जखीरा, चल रही जांच
+-  Amroha News: पतेई खादर में पकड़ी गई राशन की कालाबाजारी
+-  Amroha News: समझौता होने के बाद सफाई कर्मचारी काम पर लौटे
+-  Amroha News: वेव इंडस्ट्रीज के प्रबंधन को चेतावनी के साथ भाकियू का धरना समाप्त
+-  Amroha News: गन्ना मूल्य घोषित करे सरकार वरना तीन को चक्का जाम करेंगे किसान
+-  Kushinagar News: अमृत भारत ट्रेन का कप्तानगंज जंक्शन पर हुआ भव्य स्वागत, उमड़ी भीड़
+-  Kushinagar News: गन्ने की तौल न होने से नाराज किसानों ने किया प्रदर्शन
+-  Kushinagar News: रेलिंग तोड़कर ओवरब्रिज से गिरा ओवरलोड ट्राला, बड़ा हादसा बचा
+-  Un hombre cae al mar y desaparece durante un crucero temático en Brasil
+-  Pojačani napadi na Harkov nakon što je Rusija pogođena raketama
+-  Pilibhit News: उधारी के रुपये मांगने पर बुजुर्ग को पटककर पीटा, पैर टूटा
+-  Pilibhit News: शिकायत के बाद लेखपाल ने लगाई वास्तविक रिपोर्ट
+-  Pilibhit News: तापमान 15, तराई का सबसे ठंडा दिन रहा शनिवार
+-  Agra News: उत्साह से निकाली गई पूजित अक्षत कलश यात्रा
+-  Agra News: लोकसभा चुनाव की तैयारियों में उत्साह से जुटें कार्यकर्ता
+-  Barabanki News: 25 नए शिक्षक-शिक्षिकाओं को मिले नियुक्ति पत्र
+-  Barabanki News: 50000 वाहन डायवर्ट, रामभक्तों के नाम रहा हाईवे
+-  Barabanki News: बर्फीली हवाओं से बढ़ी गलन, कांपे लोग
+-  Barabanki News: फार्म की करोड़ों की जमीन पर अवैध कब्जा, 23 पर केस
+-  Barabanki News: क्रिप्टो करेंसी का झांसा देकर शिक्षक से 13 लाख ठगे, मुकदमा
+-  Udham Singh Nagar News: घायल बाघिन को देख पसीजा अभिनेता रणदीप हुड्डा का दिल, सीएम से मांगी मदद
