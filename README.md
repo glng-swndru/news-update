@@ -1,51 +1,11 @@
 # Latest News
--  Son dakika: Bursa'da deprem mi oldu? 30 Aralık 2023 en son depremler listesi!
--  Galatasaray'da Kerem Aktürkoğlu ameliyat oldu
--  “이정후, ML 검증 안 됐는데 1억1300만달러 필요했나” 美 근거 없는 비판…성적으로 말하면 돼
--  Dve žene ubijene u okolini Prijedora: Osumnjičeni izvršio samoubistvo
--  Süper Kupa'da 'Atatürk formalılar içeri alınmadı' yalanını Fenerbahçeli taraftar çökertti
--  Magnitude 6.5 earthquake strikes part of Indonesia's Papua
--  برلين.. مئات الأشخاص يتضامنون مع فلسطين
--  Australia edge India in thriller to continue incredible ODI series streak
--  Під час підсумкової ставки Зеленський заслухав доповідь головкома та розвідок: визначено, що 2024 рік стане часом важливих рішень
--  «سوينج فوت» بطل الشوط الرئيسي في مضمار جبل علي
--  Snažan zemljotres pogodio BiH
--  Rinden homenaje a Pelé con el Cristo Redentor
--  Lloris 12 senedir formasını giydiği Tottenham'a veda etti
--  ختام سباق صعود التل بثلاث فئات قوية
--  TRESLO SE U BIH! Sarajevo pogodio jak zemljotres!
--  GOLDSTEIN: Liberal immigration policy sabotaging Liberal housing policy
--  Ayodhya 2.0: PM unveils new look temple town ahead of Ram temple consecration
--  Harlequins provide festive feast in win over Gloucester as annual Big Game thrills again
--  Conductor choca contra poste en Cantera y Río de Janeiro; termina lesionado
--  Masakr 29. prosinca pokazao je što je Moskva radila ovih mjeseci. No, više i od toga brine zastrašujući podatak ISW-a...
--  Issue of air pollution sometime becomes political: Former SC judge
--  Jammu News: रोलबॉल चैंपियनशिप में जम्मू का दबदबा, चार वर्गों में टीम बनीं विजेता
--  Обрат в пощите! 30 нови услуги
--  "두달간 3만발 투하로 쑥대밭된 가자지구"…불발탄 제거에만 1년
--  Detalji tragedije: Majka, kćerka i sin ostavili oproštajno pismo
--  NHAI undertakes road safety measures to counter foggy conditions
--  Key infra sector growth slows to 6-month low of 7.8 pc in Nov
--  Постпред РФ: УВКПЧ ООН позорно молчит по поводу удара по Белгороду
--  ¡Madre mía! Cristiano Ronaldo, 54 goles en el 2023 [Video]
--  مرض العصر.. استشاري يحذر من خطورة السمنة ويحدد 5 خطوات للعلاج
--  Nordic Influx in Almuñécar and La Herradura
--  Biden admin sidesteps Congress again, approves military equipment sale to Israel
--  Aposentadoria: Com 57 anos de idade, como dar entrada pelo INSS?
--  Hedberg: ”Behöver bli spetsigare”
--  Hedberg: ”Behöver bli spetsigare”
--  RCMP searching for suspect in Halifax area home invasion and robbery
--  RCMP searching for suspect in Halifax area home invasion and robbery
--  Destroza su Nissan Sentra en La Cantera
--  Zemljotres jačine 5,4 stepeni u BiH; Osetilo se i u Srbiji
--  Počet mŕtvych po útokoch na mesto Belgorod stúpol na 18, uviedla Moskva
--  Panipat News: पुराने बस स्टैंड पर 7.88 करोड़ से बनेगा इलेक्टि्क बसों के लिए सोलर पैनल का चार्जिंग स्टेशन
--  Israël-Hamas: la guerre "va se poursuivre pendant de longs mois", affirme Benjamin Netanyahu
--  Superenalotto, numeri combinazione vincente oggi 30 dicembre 2023
--  Video: el gol de Nico Domínguez para la victoria contra el United
--  Nine top PLA generals dismissed from China’s Parliament
--  ¿Cómo Invertir en Acciones de Baja Capitalización?
--  PET STAJLINGA KOŠTALO VIŠE OD STANA U BEOGRADU: Kartije, Džimi Ču... Milica na garderobu i nakit potrošila 140.000 evra!
--  Russische Grenzregion Belgorod: Tote und Verletzte nach größerem Angriff
--  EMSC: Potres 5.4 u BiH
--  LIVE TJ - JUVENTUS-ROMA 0-0 - Avvio di ripresa: subito Yildiz al tiro smorzato
+-  China likely turned neutral on Japan-Russia territorial row by 1992, documents show
+-  China plans to keep ships near Senkakus for 365 days in 2024
+-  Torhüter Lloris wechselt von Tottenham nach Los Angeles
+-  Horrorcrash im Erzgebirge fordert zwei Todesopfer
+-  Erdoğan ve Büyükekşi arasındaki Süper Kupa görüşmesi ortaya çıktı! Suudi Arabistan talebi bakın kimden gelmiş...
+-  Bursa'da korkutan deprem!
+-  Kickoff | Johnson critical of Chiefs duo after dropping points
+-  California woman rescued from home flooded by huge waves goes back to find lost IPHONE in dark after fearing her boss would be angry with her
+-  겨울이면 급증하는 '치질'…치핵의 원인은?
+-  "이런 황당한 일이"...인도 동부서 교량 아래에 비행기 끼어
