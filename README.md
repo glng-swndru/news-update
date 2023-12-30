@@ -1,51 +1,11 @@
 # Latest News
--  Erling Haalandin sairausloma jatkuu – näin Pep Guardiola kommentoi norjalaisen tilannetta
--  Senza le punte diventa difficile: ancora nessun gol degli attaccanti in trasferta
--  Praia da Barra: ‘Banho do ano’ para ‘Magníficos’ e não só
--  Présidentielle 2024 : Amadou Bâ installe son équipe ce samedi
--  Transfer news LIVE! Arsenal want Martinez; Chelsea target Barcelona wonderkid; Tottenham in Dragusin talks
--  กรี๊ดส่งท้ายปี! ถูกสลากดิจิทัลคนเดียว 22 ใบ รวย 132 ล้านบาท
--  เปิดหาดผาสุก ชมความงดงามตามธรรมชาติ
--  메시를 향한 바르셀로나 선수의 고백... “지켜보는 것만으로도 많은 걸 배웠다”
--  Mamata Bernajee: ఆసుపత్రిలో మమతా బెనర్జీ వైద్య పరీక్షలు
--  Acting President General (Rtd) Constantino Chiwenga issues strong warning!
--  Water : నీటిని ఎప్పుడు తాగాలి.. ఎప్పుడు తాగకూడదు...!
--  Мечты детей продолжают исполнять во Владивостоке
--  Kayseri'de iki grup arasında silahlı kavga: 1 ölü
--  Nuri Şahin'in Antalyaspor karnesi
--  Dünyada 2023'te birçok ünlü isim hayatını kaybetti
--  Tonio Teklic için Abdullah Avcı'nın kararı bekleniyor
--  1670 litre sahte içki ele geçirildi: 6 gözaltı
--  Fenerbahçe Alagöz Holding'in yeni genel menajeri Nalan Ramazanoğlu oldu
--  Bursa'da çevre okur-yazarı nesil yetişiyor
--  Hande Erçel kimdir, kaç yaşında ve hangi dizilerde oynadı?
--  Ankaragücü'nden Alper Uludağ açıklaması
--  3 yılda Türkiye ekonomisine 23 milyar lira katkı
--  Bursa Yıldırım'da bereketli dönüşüm
--  В Турции самолет при посадке выехал за пределы ВПП
--  Ovar 2024-25: Análise Crítica do Orçamento
--  Thái độ đáng ngờ liên tiếp của Ngô Kỳ Long giữa tin đồn ly hôn Lưu Thi Thi
--  Bạch Lộc, Triệu Lộ Tư kéo chất lượng phim Trung Quốc xuống cấp
--  Nam Em hé lộ góc nhà chồng sắp cưới, tiết lộ luôn tính cách thật sự của người yêu
--  Lộ ảnh Nhật Lê lên xe hoa ngay trước thềm năm mới, làm cô dâu giản dị nhưng vẫn cực xinh đẹp
--  Đến Venice Hotel Phú Quốc đi chợ, ngắm pháo hoa và đón giao thừa bên bờ biển
--  Khoảnh khắc cậu nhân viên quán nước "đi bay" ngày lương hút hơn 3 triệu view, dân mạng thương nhưng không nhịn được cười
--  Thời tiết bất lợi trước thềm năm mới
--  Borussia Dortmund trao đổi Moukoko với sao Real Madrid
--  Sao U23 Việt Nam công bố khát khao tại Asian Cup
--  Straßenbahnen in Würzburg stehen weiter still
--  Polizei stellt Tausende Datenträger zu Kindesmissbrauch sicher
--  Abschiebezahlen in Hessen 2023 gestiegen
--  Μέτρα και συστάσεις προστασίας από την Αστυνομία για την εορταστική περίοδο
--  Menczer Tamás: a Fővárosi Törvényszék kimondta, hazudott a HVG
--  ‘Social media is being used to create environment of chaos,’ says General Asim Munir
--  Águeda adere à Via Verde Estacionar
--  अमित शाह मप्र में साइबर तहसील व्यवस्था का लोकार्पण एक जनवरी को करेंगे
--  Arvind Kejriwal returns to Delhi after 10-day Vipassana session in Punjab
--  '우승 경쟁 청신호' 맨시티, 핵심 MF 복귀 임박!...감독 직접 입 열었다 "가장 복귀에 가까운 선수"
--  “내가 어깨 1등” 마법사 28세 외야수의 자부심…가장 신뢰하는 에이스는 고영표, 수비도 계산이 된다
--  Да нема сирење и пилешко: Кои правила важат за храната на новогодишната ноќ?
--  I dag starter den 20. serierunden
--  “Διαδρομές” του 2023
--  Megújított sztrájkkövetelések, friss rangsorok, új csereprogram - ezek voltak 2023 novemberének legfontosabb történései
--  Kommentar: Ein Statement für Böller und Raketen zum Jahreswechsel
+-  Polen protestiert gegen russische Luftraumverletzung
+-  16-jähriger Ellefelderin ist wieder aufgetaucht
+-  Me 10 mijë lekë sot blen 20-25% më pak se një vit më parë
+-  “Gangnam Style" của Psy đạt 5 tỷ lượt xem trên YouTube
+-  Thầy giáo bị bắt vì tấn công tình dục nữ sinh trong ký túc xá
+-  Kiểu tóc sang chảnh được hội blogger Hàn áp dụng khi diện áo cao cổ
+-  Фондот со одлука: Заради скапи материјали скратени операциите за кардиоваскуларните пациенти на приватните клиники
+-  Supermarket yellow stickers could be scrapped in major change as new pricing model trialled in UK
+-  41.7 دينار سعر الذهب عيار 21 بالسوق المحلية
+-  Donald Trump Will See More Co-Defendants Flip: Ex-Prosecutor
