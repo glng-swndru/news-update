@@ -1,11 +1,11 @@
 # Latest News
--  Hatay'da 3,9 büyüklüğünde deprem
--  Filistin: Güney Afrika, İsrail'e karşı "soykırım davası" açarak ilk fiili adım atan ülke oldu
--  Mersin'de otomobil tıra arkadan çarptı: 2 ölü
--  Yılbaşında hangi seferler ücretsiz? Resmi Gazete'de duyuruldu
--  Zukunftsforscher Horx: „Omnikrise“ kann 20 Jahre dauern
--  Video: Juwan Howard, Terrance Williams II and Youssef Khayat talk loss to McNeese State
--  Household energy bills to rise 5% from January 1 amid record consumer debt
--  31 декабр куни Тошкентда автобуслар ҳам соат 01:00 гача ишлайди.
--  Household energy bills to rise 5% from January 1 amid record consumer debt
--  2023年度瞬间里，有没有属于你的故事？
+-  "Dùng tiền để mua vui, rồi lại chìm trong bế tắc vì hết tiền”: Bài học chi tiêu nhớ đời của người chị U40
+-  Nhà đầu tư nên "bỏ trứng" vào đâu?
+-  1 kiểu dùng mỹ phẩm khiến làn da bị tổn thương khó hồi phục, thời điểm cận Tết hội chị em nhất định phải tránh
+-  Những bữa ăn học đường bị cắt xén gây xôn xao dư luận 2023
+-  Đón năm mới 2024 tại các khu nghỉ sang trọng có gì hấp dẫn?
+-  Nửa showbiz đổ bộ 3 ngày tang lễ Lee Sun Kyun: Bộ trưởng và IU âm thầm, Gong Yoo cùng dàn siêu sao túc trực
+-  Khởi tố một giám đốc vụ nam sinh lớp 4 tử vong sau khi biểu diễn văn nghệ ở trường
+-  Thay đổi mới về đăng ký cư trú từ năm 2024 người dân cần biết
+-  Tin đồn: "Bom tấn" Elly sẽ trở lại Liên Quân, Team Flash có thêm một siêu tân binh có kỹ năng cực đỉnh
+-  Siêu xe thể thao điện ra mắt thị trường ô tô Việt Nam
