@@ -1,51 +1,11 @@
 # Latest News
--  Nuri Şahin'den ilk transfer! Ozan Kabak, Alman devine gidiyor
--  Manchester City ve Aston Villa, haftayı kayıpsız kapattı
--  Kültür ve Turizm Bakanı Ersoy: Bugün Necip Fazıl'ı anmakla kalmıyor mirasını da yaşatıyoruz
--  Tottenham, stoperini İtalya'da buldu!
--  Goran Dragic, emekliliğini duyurdu!
--  Fenerbahçe Beko, yeni yıla galibiyetle giriyor!
--  Pierwszy transfer Łady 1945 potwierdzony. Trzech zawodników odchodzi
--  2 stycznia dniem wolnym od pracy. Dla kogo?
--  Niemcy: znacznie wzrósł odsetek młodych mężczyzn wśród osób ubiegających się o azyl
--  Universidad Católica presenta a un argentino y un campeón repatriado como refuerzos
--  ISPOVEST PILOTA NEVIDLJIVOG F-117 KOGA JE OBORILA SRPSKA PVO Do detalja ispričao kako je spasen: Bio sam prestravljen!
--  Bursaspor İnfo Yatırım, Fenerbahçe'ye yenildi
--  Yunanistan'ın ölüme ittiği 57 düzensiz göçmen kurtarıldı
--  Batman'da kontrolden çıkan otomobil takla attı: Yaralılar var
--  Beşiktaş, Kasımpaşa maçı hazırlıklarını sürdürdü
--  Muğla'da yılbaşı öncesi tüm ekipler alarma geçti
--  Fransa'da "Filistin'e destek, Gazze'de Ateşkes" mitingi
--  Çanakkale'nin Ayvacık ilçesi açıklarında 43 kaçak göçmen yakalandı
--  Özgür Özel'den Fenerbahçe ve Galatasaray'a tebrik
--  Muğla Menteşe'de korkutan ev yangını
--  2023 yılının en çok para kazananı belli oldu
--  Malatya merkezli 6 ilde terör operasyonu: 14 gözaltı
--  Podignuta optužnica u BiH za stravični pokolj nad Hrvatima kod Prijedora
--  منذ عيد الميلاد 2018.. صديق ويليام وهاري يكشف "سر القطيعة"
--  [ВИДЕО] „Tekken 8“: Филтерот за далтонисти предизвикува мигрена и мачнина
--  Meğer bu kadar basitmiş: Örümcek ve hamam böceklerinden kurtulmanın yolu!
--  İşgalci İsrail zulmü stadyumlara taşıdı... Yüzlerce sporcu katledildi
--  Manchester City, 3 puanı 2 golle aldı
--  Everton, deplasmanda darmaduman!
--  Fenerbahçe Beko, sahasında hata yapmadı
--  Tottenham'dan Radu Draguşin hamlesi!
--  Anlamlı törene anlamlı klip!
--  Estoril goleia Farense
--  Muere el actor británico Tom Wilkinson, protagonista de ‘Full Monty’ o ‘Michael Clayton’
--  Hauser žestoko reagirao na 'Kafansko veče' u Areni i migrante u središti grada: 'Zagreb postaje šabački vašar'
--  Bluttat in Berlin-Pankow - Mann erstochen – Polizei nimmt Verdächtigen fest
--  Ecuador congela en un 3,5 % el Impuesto a la Salida de Divisas para 2024
--  X تفشل في ضبط المحتوى
--  تمرين 5 دقائق يحسن القراءة
--  Un rodaje obligará a realizar cortes en la calle Elcano de Bilbao
--  Crystal Palace ends winless streak with comeback home win over Brentford
--  Senate summons security chiefs, NSA over Plateau killings
--  Duncan Ferguson rues Caley Thistle’s blank attack but is happy to take point against Morton
--  বিআরটিসি বাসের সঙ্গে ড্রাম ট্রাকের ধাক্কায় চালকসহ ২ জন নিহত
--  ৭ হাজার ইয়াবা পাচারকালে রোহিঙ্গাসহ আটক ২
--  রিমান্ডে না নিয়ে জেলগেটেই মিয়া আরেফিকে ডিবির জিজ্ঞাসাবাদ
--  চাটখিলে স্বতন্ত্র প্রার্থীর গণসংযোগে ছাত্রলীগের হামলা, সভাপতি-সম্পাদক আটক
--  রেলস্টেশন থেকে অপহৃত শিশু উদ্ধার, অপহরণকারী আটক
--  গাজীপুর-৩: শ্রীপুরকে ভূমিদস্যুমুক্ত করতে ট্রাকে ভোট চাইলেন সবুজ
--  শেরপুর বিএনপির তিন নেতা বহিষ্কার
+-  "קיווינו לטוב": אחרי מאבק על חייו, סרן הראל איתח מת מפצעיו
+-  "מדובר בדור שייקח את המדינה קדימה": כתבנו עם הכוחות בקרבות מול מחבלי חמאס בצפון הרצועה
+-  הערב: נתניהו יקיים מסיבת עיתונאים, גלנט וגנץ סירבו להשתתף
+-  Hazine ve Maliye Bakanlığınca enflasyon düzeltmesinin detayları belirlendi
+-  AIPS: Ο Νόβακ Τζόκοβιτς αναδείχθηκε κορυφαίος αθλητής του 2023 – Στην 21η θέση ο Μίτλος Τεντόγλου
+-  Stanivuković: Novi Sad donirao Banjaluci tri miliona evra
+-  En Suisse romande, impossible de s’ennuyer le 31 décembre
+-  Man City Cruise Past Sheffield To Cap Remarkable 2023
+-  Ratto alla festa City con la Champions: corsa e disgusto in campo
+-  Élections en RDC: des responsables de la Cenco et de l'ECC rencontrent le président de la Céni
