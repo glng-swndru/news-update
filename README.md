@@ -1,51 +1,11 @@
 # Latest News
--  To kituose pasauliuose NASA niekada nėra dariusi! Ką siunčia į Saturno ir Jupiterio palydovus
--  Lietuva ir Latvija ginkluojasi. Perka Ukrainoje pasiteisinusias oro gynybos sistemas (Foto)
--  Į Žemę parskraidintuose asteroido Ryugu mėginiuose aptiktos gyvybės atsiradimui svarbios dalelės
--  „Mažiausiai penki aukščiausio rango karininkai.“ Skelbiama, ką likvidavo Ukraina
--  [ŽT] „Tai finišo tiesioji.“ Ukraina skelbia, kada atvyks F-16 (Foto)
--  „Putiną nužudys artimas žmogus iš Kremliaus rato“. Skelbiamos Vangos pranašystės 2024-iesiems
--  [ŽT] Ko Putinas nepasveikino su Naujaisiais metais
--  Karšta! Rusijos raketa Lenkijoje praskriejo pro „Patriot“ vietą ir JAV bazę
--  محافظة عراقية تعطل الدوام الرسمي يوم غد الاحد
--  أضر بـ20 ملياراً.. استرداد المدان الهارب "أحمد عبدالله كسار" من تركيا (صورة)
--  Prince Harry, Meghan need 'King's blessing far more than Charles needs them'
--  Pijat Panggilan Pasutri, Cara Menikmati Waktu Relaks yang Romantis
--  HIFK:lta upea ele vastustajan ikonille
--  Flipkart से बेहद सस्ते में खरीदें iPhone 14, जानें ऑफर
--  These are the best cities to celebrate New Year's Eve this year, survey finds
--  Naci Görür'den Elazığ depremi açıklaması!
--  Britanski ministar: U besmislenom Putinovom ratu Rusija će do 2025. imati više od 500.000 žrtava
--  Mos i bëni këto gjëra natën e ndërrimit të viteve, pasi do ju ndjekë fati i keq përgjatë gjithë vitit
--  صدر مملکت عارف علوی نے شوکت خانم کینسر ہسپتال کے حق میں آواز بلند کردی
--  Cole Palmer Oo Jabiyey Rikoodhkii Gool-dhalinta Eden Hazard iyo Arjen Robben Ee Chelsea
--  Los Toros toman una decisión con un jugador
--  Den Westen „in Abhängigkeit zwingen“: Ex-Botschafter warnt vor russischem Erfolg in Ukraine
--  Πώς είναι να δουλεύεις υπό τις οδηγίες Σπιλέφσκι; Η απάντηση του Μπένγκτσον στο Balla!
--  Senate passes N28.77tn 2024 budget
--  Ministria e Shëndetësisë: Mos u dehni me alkool, mos shkaktoni aksidente në komunikacion!
--  Pistons – Raptors : la franchise de Detroit est à 48 minutes du record ultime de la lose
--  LeBron James en saison 21, personne n’a (évidemment) jamais fait mieux
--  Goran Dragic prend sa retraite !
--  ضبط كبتاغون في المطار
--  Gürcü milyarder siyasətə qayıtdığını ELAN ETDİ
--  Disturbing Incident: 3-month-old baby kidnapped from Harare CBD salon
--  Na graničnom prelazu Bosanska Kostajnica duge kolone na ulazu u BiH
--  ÖSV-Langläufer bei Tour-Auftakt alle in Quali out
--  Il pedigree del cane: un viaggio nella storia e nella razza del nostro cucciolo
--  Sheinbaum promete regreso de tren México-Guadalajara
--  Vazhdon vala e protestave në Serbi, kërkohet anulimi i zgjedhjeve
--  Elecciones 2024: INE frena a 66 militantes de partidos que buscaban ser funcionarios de casilla
--  स्कूल की छुट्टियां: छात्रों के लिए बड़ी राहत..! नए साल में इतने दिन बंद रहेंगे स्कूल, छुट्टियों की लिस्ट जारी, तुरंत करें चेक
--  Ελεγκτική: Ποινικό αδίκημα το ενδεχόμενο αίτησης από Γενικό Εισαγγελέα για παύση Γενικού Ελεγκτή
--  Un violento enfrentamiento entre bandas dejó a tres menores heridos en San Rafael
--  AKTUÁLNE Na Slovensku KONČIA DVE obľúbené TELEVÍZNE stanice! Toto si už o ZOPÁR DNÍ nepozriete: Vieme, čo je za tým
--  Rihannu s rodinkou nafotili paparazzi: Ich módne kreácie vám vyrazia dych!
--  MIMORIADNE Poplach v prešovskej nemocnici: Pre bombovú hrozbu evakuovali celý centrálny príjem!
--  Piloto Gil de Ferrán morre durante corrida
--  Expremiér Berisha je pre vyšetrovanie korupcie v domácom väzení
--  Pár kúpil dvestoročný dom, v suteréne ich čakalo nepríjemné prekvapenie: Pozrite, čo sa skrývalo za múrmi!
--  Οδοντίατρος χρησιμοποίησε μια γυναίκα ως πειραματόζωο: Της έκανε 20 σφραγίσματα σε ένα ραντεβού
--  Оборона Авдіївки: ЗСУ виконали три важливих завдання
--  La drástica decisión de Edinson Cavani en el medio de sus vacaciones
--  Nową ulicę zbudowała kolejowa spółka. Czy będzie jej patronował twórca uczelni?
+-  IND vs AUS : अटीतटीच्या लढतीत टीम इंडियाचा सलग दुसरा पराभव; ऑस्ट्रेलियाचा तीन धावांनी निसटता विजय अन् मालिकाही जिंकली
+-  Mercato - OM : Une offre de 6M€ va partir !
+-  Hoa hậu Ngọc Hân dự đám cưới cô dâu từng được cầu hôn bằng 200 flycam gây “chấn động", tiết lộ có chồng vẫn thích giật hoa cưới
+-  Người dân đổ ra Công viên Yên Sở cắm trại, tận hưởng kỳ nghỉ lễ
+-  Học cách người mẹ 76 tuổi giữ tiền tiết kiệm để không làm con cái bất an, xích mích
+-  Bị kiện vì chế độ ẩn danh của Chrome không thực sự riêng tư như người dùng nghĩ, Google đồng ý bồi thường giải quyết
+-  6 dòng kem bổ sung collagen, làm đầy nếp nhăn lão hóa, đến bác sĩ da liễu cũng tấm tắc khen
+-  Nên mua xe thời điểm nào để hưởng lợi nhất?
+-  BU XƏBƏR TƏLƏBƏLƏR ÜÇÜNDÜR! Yol və kirayə pulu dövlət tərəfindən VERİLƏ BİLƏR
+-  Viral Video: దెబ్బకు బుద్ధి వచ్చింది.. కొండచిలువతో ఆటలు ఆడితే అలాగే ఉంటుంది.. వీడియో వైరల్!
