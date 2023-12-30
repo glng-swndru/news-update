@@ -1,11 +1,51 @@
 # Latest News
--  러, 우크라에 “개전 이후 최대 규모” 미사일 폭격
--  눈과 귀, 마음마저 치명적으로 사로잡았던 배우 이선균
--  2024 황금연휴는? 추석…내년 휴일 119번, 올해보다 2일 더 쉬어
--  日후지산 폭발시 화산재까지 바다에 버린다…"환경영향 판단후 시행"
--  Reportan enfrentamientos armados en Sonora
--  Fuerte operativo en Juárez; cierran tramo de avenida Ejército
--  Megafarmacia, acto propagandístico y mentiroso.-PRD
--  Es Guillermo Martínez delantero de los Pumas
--  Se ríe CR7 de la lista de los 10 mejores jugadores del 2023
--  Galería: Apoya Cruz Roja a migrantes en carretera Juárez
+-  عادة أوصانا بها النبي احرص عليها بعد صلاة الفجر.. ثوابها عظيم
+-  FG set to shut down Third Mainland Bridge Jan 24 for 12 weeks
+-  The dynamics of throuple dating: texting our ‘sidepiece’ even on 2-person dates, with furry jealousy issues
+-  এ সপ্তাহের রাশিফল (৩০ ডিসেম্বর-৫ জানুয়ারি)
+-  Pedro Suárez Vértiz: Ministerio de Cultura realizará homenaje póstumo al cantante en 2024
+-  Petro invita al emisor colombianos seguir bajando la tasa de interés
+-  Mariah Carey Is All Smiles in Pink Fur Jacket While Shopping in Aspen
+-  Caos, atentados y vandalismo vivieron los esmeraldeños esta noche
+-  Anggota tentera disyaki cederakan isteri disiasat
+-  Lịch thi đấu LCK Mùa Xuân 2024 mới nhất
+-  Dunki Box Office Day 9: धीमी रफ्तार के साथ आगे बढ़ रहा है ‘डंकी’ का सफर, नौंवे दिन छापे इतने नोट
+-  Three-bedroom home in Oakland sells for $1.7 million
+-  अयोध्या की दो दिन की ट्रिप के लिए बैग में जरूर रखें ये चीजें
+-  Lara Lagi Adira buat peminat ‘terlajak’ sebak
+-  Go Get it Girl! Martha Stewart Shocks with Sultry Photo and the People are LIVING for it
+-  Kentucky nurse, 41, 'so happy to be alive' after kidney stone infection leads to QUADRUPLE amputation: Mom of two woke up to shocking news as doctors acted quickly to save her life
+-  एक प्लान में मिल जाएगा सब, 22 से ज्यादा OTT प्लेटफॉर्म का सब्सक्रिप्शन मिलेगा मुफ्त
+-  看懂拼多多破盤價還能賺錢的祕密！市值超越阿里巴巴、亞馬遜也怕它
+-  Morre Gil de Ferran, ex-piloto vencedor das 500 Milhas de Indianápolis
+-  Morre Gil de Ferran, ex-piloto vencedor das 500 Milhas de Indianápolis
+-  البليهي يحتفل على طريقة نكونكو … ما سر هذه الاحتفالية؟ّ!
+-  Robert De Niro Says Apple Asked Him to ‘Dial Down’ Anti-Trump Remarks, He Didn’t Get the Message
+-  TPHCM thu ngân sách năm 2023 đạt 95,07%
+-  Sam Bankman-Fried will not face second trial on charges including making illegal campaign donations and bribing Chinese officials
+-  Fallece el empresario venezolano Gustavo Cisneros a los 78 años de edad
+-  Registro Mujeres con Bienestar: cómo activar tarjetas y fecha de la segunda etapa
+-  Bác sĩ Anh: Không phải tập thể dục hay ăn uống lành mạnh, đây mới là ‘chìa khóa số 1’ để sống thọ
+-  Ariana Grande admits she felt 'deeply misunderstood' in 2023... before revealing matching tattoo with Wicked co-star Cynthia Erivo: 'One of the most transformative, most challenging, and yet happiest years'
+-  Ver Lotería de Medellín EN VIVO HOY, 29 de diciembre: resultados y ganadores
+-  Politie Utrecht achtervolgt drugsauto tot in Duitsland
+-  Hatay'da 3,9 büyüklüğünde deprem
+-  Modi Govt Big Action Against Khalistan: খালিস্তানীপন্থী লখবীর সিং লান্ডাকে সন্ত্রাসবাদী ঘোষণা ভারতের
+-  [속보] 이재명 "'대표직 사퇴·통합 비대위' 요구 수용 어려워"
+-  Inter Miami ra giá ký thêm hợp đồng với một ngôi sao hạng A
+-  Resultados Lotería de Medellín EN VIVO HOY, 29 de diciembre: números ganadores
+-  Rahmanullah Gurbaz's maiden T20I ton helps Afghanistan take early lead against UAE
+-  New Year's 2024: Mumbai police issues traffic advisory for Dec 31 and Jan 1; check 'no parking' zones, routes to avoid
+-  Rajasthan cabinet likely to be expanded today at Raj Bhavan in Jaipur: Sources
+-  러시아, 개전 후 최대 공습… 사망 30명·부상 160명
+-  [속보] 이재명 "'대표직 사퇴·통합 비대위' 요구 수용 어려워"
+-  SPC 파리바게뜨, 연말 맞아 한부모가족복지시설에 온정 전해
+-  50 Hilariously Wholesome Dog Ratings for a Brighter Day (New Pics)
+-  В результате пожара в Бурятии погибли женщина и ребенок
+-  Tasmanian boat Alive has claimed overall honours in the Sydney to Hobart yacht race for the second time
+-  Associated Banc-Corp to Announce Fourth Quarter 2023 Earnings and Hold Conference Call on January 25, 2024
+-  IG lands in Plateau as residents flee 25 threatened communities
+-  ¡Impresionante! El homenaje a Pelé en el Cristo Redentor de Río de Janeiro
+-  New Ministers Sworn: నేడు 18 నుంచి 20 మంది మంత్రుల ప్రమాణ స్వీకారం
+-  Золотов исполнил новогоднее желание мальчика из Башкирии
+-  James Hetfield of Metallica Looks Ahead to 2024: “Continuing to Try and Improve Myself”
