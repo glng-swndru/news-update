@@ -1,11 +1,51 @@
 # Latest News
--  Polen protestiert gegen russische Luftraumverletzung
--  16-jähriger Ellefelderin ist wieder aufgetaucht
--  Me 10 mijë lekë sot blen 20-25% më pak se një vit më parë
--  “Gangnam Style" của Psy đạt 5 tỷ lượt xem trên YouTube
--  Thầy giáo bị bắt vì tấn công tình dục nữ sinh trong ký túc xá
--  Kiểu tóc sang chảnh được hội blogger Hàn áp dụng khi diện áo cao cổ
--  Фондот со одлука: Заради скапи материјали скратени операциите за кардиоваскуларните пациенти на приватните клиники
--  Supermarket yellow stickers could be scrapped in major change as new pricing model trialled in UK
--  41.7 دينار سعر الذهب عيار 21 بالسوق المحلية
--  Donald Trump Will See More Co-Defendants Flip: Ex-Prosecutor
+-  [오피셜] 이적한 지 겨우 4달짼데... 前 맨유 수비수, 갑작스러운 계약 해지
+-  “TV에 갇힌 인식 깬다”…정찬용 아프리카TV 대표, ‘숲’ 사명 변경 공식화
+-  Jaaroverzicht in woord en beeld
+-  Bobby Deol on facing failure: All big stars have also gone through a lull
+-  Bharatiya Janata Party optimistic about 2024 as year ends on happy note
+-  Maximizing Profits with Innovative Strategies in Affiliate Marketing by 2024
+-  Israel intensificó bombardeos contra centro y sur de Gaza
+-  OSCE: Sve veće prijetnje slobodi medija u BiH, nužna reforma zakona i dekriminalizacija klevete
+-  U Istanbulu susret gradonačelnika Benjamine Karić i Ekrema İmamoğlua
+-  Ministar Katica: 2024. će biti godina velikih projekata za MUP Kantona Sarajevo
+-  Im Gazastreifen breiten sich Krankheiten weiter aus
+-  Zahl der Asylklagen in 2023 deutlich gestiegen
+-  폭설특보에 등산, 빙판길서 넘어진 60대男·운동화 신고 내려오다 고립된 30대男 잇따라 구조
+-  Mercato - OM : La terrible annonce de Longoria sur le recrutement
+-  Shillong Teer Result TODAY 30.12.2023 First And Second Round Lottery Result
+-  PM Modi Urges People To Not Visit Ayodhya On January 22-23 And Do This Instead
+-  Zona de China afectada tras sismo retoma clases y construye casas
+-  „Checker Tobi“-Miterfinder Johannes Honsell ist tot
+-  Iskusni ljudi kažu da ove riječi nikada ne biste trebali tražiti na internetu: Pokušajte odoljeti znatiželji
+-  Conmemoran en Italia aniversario del triunfo de la Revolución cubana
+-  Taiwan’s sovereignty belongs to its people, presidential frontrunner says
+-  استقبال شعبي بأبين لبعثة المنتخب الوطني للناشئين المتوج بكأس بطولة غرب آسيا
+-  Nokia ennakoi tuloksensa jäävän alle annetun taloudellisen ohjeistuksen
+-  Arabistan'daki Türk büyükelçiliği neden Anıtkabir şeklinde yapıldı? Büyükelçiliği yapan kimdi?
+-  Turkish Super Cup final in Riyadh postponed amid row
+-  Snake holds up qualifying match at Brisbane International
+-  Polémicos cambios a ley para atletas en EEUU viola derecho a igualdad
+-  Ilısu Barajı'ndan ekonomiye 23 milyar lira katkı
+-  Mrekulli në Gaza! Foshnja nxirret e gjallë nga rrënojat pas sulmit izraelit
+-  القطراني يبحث مع عبد الجليل سبل تحسين الخدمات الصحية وتطويرها
+-  المقاومة الإسلامية تزفّ ثلّة من الشهداء على طريق القدس
+-  العامة للكهرباء: وصول قطع غيار لمحطتي كهرباء الرويس والخمس الغازيتين
+-  I’m never shopping at Asda again – it’s a total rip off, I don’t know how it’s possible that I spent so much
+-  Serie A: Udinese boss confirms Okoye will make debut vs Bologna
+-  Wanderers end eight-year ALW drought against Victory
+-  Wanderers end eight-year ALW drought against Victory
+-  stern-Recherche: Der Krebs-Skandal: Wie sich Investoren dank der Hilfe von Apothekern und Ärzten bereichern
+-  Tivćanina sumnjiče za uličnu prodaju marihuane i kokaina
+-  Giá thuê tăng, giá dịch vụ cũng tăng, chật vật hơn 1 tháng mới thuê được nhà
+-  Encuentran el cadáver de una mujer con signos de violencia en un domicilio de Barcelona
+-  Izraelci tenkovima i iz zraka krenuli na grad u Gazi. Vode žestoke borbe s Hamasom
+-  “Helen escaped Myanmar and reached India during second World War”
+-  Dmitry Bivol ‘SIGNS’ his side of deal for Artur Beterbiev fight, but rival must beat Callum Smith and finalise it
+-  গায়ানার জলসীমায় ব্রিটিশ যুদ্ধজাহাজ
+-  Corona-Zahlen im Landkreis Leer aktuell: Zahlen und Fakten aus der Region
+-  Corona-Zahlen im Landkreis Grafschaft Bentheim aktuell: Die Coronavirus-Daten im Überblick
+-  Preminuo je Obrad Kosovac
+-  TVP Info na starcie zaliczyło wpadkę. Dziennikarka BBC nie wytrzymała. "Nasza wina"
+-  इंडोनेशिया में 6.3 तीव्रता का भूकंप
+-  La Regione istituisce le “Accademie di formazione”: si parte con l’agroalimentare
