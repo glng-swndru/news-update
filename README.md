@@ -1,51 +1,11 @@
 # Latest News
--  “클롭과 사이가 매우 좋다”... 리버풀, 음바페 영입전 참가 가능성↑
--  'Here We Go' 로마노 인증! 토트넘, '루마니아 철벽 DF'에 대한 첫 구두 제안 준비
--  Belqorod hücumunun təşkilatçıları cəzalandırılacaq
--  برنامج الأغذية العالمي: نسابق الزمن في غزة لتجنب المجاعة والانهيار
--  "بؤس ونحس".. 3 أبراج نسائية حظهم تعيس العام القادم
--  البث العبرية: الأجهزة الأمنية تبحث خطة عودة سكان غزة إلى شمالي القطاع
--  3 علامات مبكرة تخبرك بأن مرض السكر على وشك الحدوث
--  نتنياهو: نعمل ضد إيران والتهديد من جانبها سيزداد إن امتلكت سلاحاً نووياً
--  تحذيرات من خلافات والمصائب لمواليد هؤلاء الأبراج آخر أوقات 2023
--  عضو بالكونجرس: نريد تفسيرًا لاتخاذ إدارة بايدن قرارًا ثانيًا بإرسال أسلحة لإسرائيل
--  نقيب الزراعيين يكشف أسباب الارتفاع الجنوني لأسعار البطاطس
--  رويترز: البحرية البريطانية تلقت بلاغًا حول واقعة جنوب غربي اليمن
--  محلل سياسي سوداني: قوات الدعم السريع تتقدم وسط مقاومة شعبية شرسة
--  رسميا.. طارق يحيى مديرا فنيا لإيسترن كومباني في القسم الثاني
--  Pogledajte dvije majstorije Brozovića, Hrvat glavna zvijezda preokreta
--  Garantizan servicio de camiones urbanos para este fin de año e inicio del 2024 en Mazatlán
--  Sözleri ayakta alkışlandı! Necip Fazıl Ödülleri'ne katılan Başkan Erdoğan: Üstad'ın en büyük hayali Ayasofya'yı açma şerefine eriştik
--  İptal edilen Süper Kupa maçına ilişkin Başkan Erdoğan'dan sert tepki
--  Basın toplantısına katılmadılar! İsrailli bakandan Netanyahu'ya şok
--  III. Uluslararası Araştırma-Geliştirme ve Tasarım Konferansı, İstanbul Bilgiyi Ticarileştirme Merkezinde düzenlendi
--  Manchester United'da kötü gidişat sürüyor!
--  Лос-Анджелес оголосив про підписання легенди Тоттенгема Льоріса
--  이장원-배다해 부부 '알콩달콩'
--  이지혜-문재완 부부, 웃는 모습이 닮았네
--  조우종-정다은 부부, 사랑의 하트
--  Ouça o relato em direto. Portimonense - Sporting
--  Um morto e três feridos num incêndio em São João da Madeira
--  Conselho de Segurança da ONU reúne-se este sábado sobre ataque a Belgorod
--  هل يمكن الوقاية من فقر الدم؟
--  نتنياهو: محور فيلادلفيا ينبغي أن يكون تحت سيطرة إسرائيل
--  قطر تفقد أسامة الطيري في آسيا
--  שנה מהסרטים: דירוג 10 יצירות הקולנוע של 2023
--  ח"כים לביידן: "מה המקורות להאשמות על אלימות נגד פלשתינים?"
--  Trinidad y Tobago hace todo lo posible para frenar la ola de violencia
--  استثناء الموفد والمبتعث والمجاز من النقل الخارجي للمعلمين
--  La tajante respuesta de López Muñoz, surgido de River, sobre si aceptaría jugar en Boca: “Hoy por hoy te digo que…”
--  Rauchentwicklung durch Austritt von Kältemittel
--  OPINION: Kidnappers In Southeast Nigeria
--  سلسلة بشرية دعماً للمقاطعة في العاصمة عمان (صور)
--  Knicks’ NBA championship odds unchanged after OG Anunoby trade
--  Leman Sam'dan kötü haber!
--  Cumhurbaşkanı Erdoğan'dan ertelenen Süper Kupa hakkında ilk yorum: Cumhuriyet 85 milyonun ortak değeridir
--  6,5 büyüklüğünde deprem meydana geldi
--  Dlaczego Portugalia będzie najlepsza w Europie
--  (VIDEO) Bes prirode! Ogromni talasi sručili se na Kaliforniju! Ljudi su vrištali i bežali na sve strane!
--  Hombre ataca a otro dentro de bus en San Vicente
--  Mysteries of the Mongolian Arc: Gaps hint at unexpected purpose of ancient wall
--  Hugo Lloris verlässt Tottenham Hotspur - Wechsel zu MLS-Klub Los Angeles FC
--  Soccerladuma | Man Utd Suffer NINTH Premier League Defeat
--  Sunrise favourite Sam Mac announces engagement to Rebecca James after welcoming first child
+-  Anadolu Efes, sahasında hata yapmadı!
+-  Kolayca hazırlanıyor: Çayın yanına sıcak poğaça tarifi!
+-  ManU'dan deplasmanda bir kayıp daha!
+-  Hugo Lloris'in yeni takımı Los Angeles FC!
+-  [언론계 역사 속 오늘] 12월31일, 1961년 KBS TV 개국…2010년 종편 사업자 선정
+-  Dionisi a DAZN: «Non possiamo essere soddisfatti, ecco perchè»
+-  PLATE 2000 EURA, ALI NIKO TO NE ŽELI RADITI: Najveći proizvođači janjetine u Evropi u ogromnim problemima
+-  Lejos de la familia pero con una nueva: las fiestas de los refugiados LGBTI en México
+-  "ما بين ليفربول ومنتخب مصر"... ماذا قدم محمد صلاح في 2023؟
+-  INSS: Aposentadoria para quem chega aos 54 anos de idade
