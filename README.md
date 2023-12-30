@@ -1,11 +1,11 @@
 # Latest News
--  A Mol csökkenti az árrését, az Orbán-kormány még az üzemanyagadó adóját is megadóztatja
--  Kız arkadaşıyla yürürken bıçaklı saldırıya uğradı
--  Bursa'da mobilya imalathanesi alevlere teslim oldu
--  1 Ocak'ta ücretsiz olacak toplu taşıma araçları Resmi Gazete'de
--  Asgari ücret artışının ardından gözler en düşük emekli maaşlarına çevrildi!
--  ഉദ്യോഗസ്ഥർ എത്താൻ വൈകി: പെരുമ്പാമ്പിനെ പഞ്ചായത്ത് അംഗത്തിന്റെ വീട്ടിൽ തള്ളി
--  셀트리온, 프롤리아 바이오시밀러 CT-P41 국내 품목허가 신청
--  Gazabor flyr till Rafah: "Gatorna är proppfulla"
--  ปชป.ประชุม สส. 2 ม.ค.เตรียมอภิปรายงบฯ ‘ประมวล’ยันจัดเต็มสมบทบาทฝ่ายค้าน เน้นพูดภาพรวมประเทศ
--  ยิปซีพยากรณ์ดวงรายวัน ประจำวันเสาร์ที่ 30 ธันวาคม 2566
+-  নির্বাচন উপলক্ষে ঢাকা বিভাগীয় আইনশৃঙ্খলা বিষয়ক সমন্বয় সভা রবিবার
+-  ইউক্রেনে বৃহত্তম ক্ষেপণাস্ত্র-ড্রোন হামলা রাশিয়ার, নিহত ৩১
+-  ঢাকা টাইমস সম্পাদকের বাবা ওবায়দুর রহমানের চতুর্থ মৃত্যুবার্ষিকী আজ
+-  Sri Lanka steps on to the global stage with G&G gems trading platform
+-  Unleashing the Power of Instagram Pro: A Comprehensive Guide to Instagram Pro Download
+-  МИД: Москва и Баку обсуждают вопрос пребывания миротворцев в Карабахе
+-  Το νέο τοπίο στα τιμολόγια ρεύματος το 2024
+-  ต.สูงเม่นตั้งด่านตรวจลดอุบัติเหตุ
+-  হাফিজ সাঈদকে চেয়ে ভারতের আনুষ্ঠানিক অনুরোধ, কী বলল পাকিস্তান
+-  NBA: sans Wembanyama, les Spurs perdent encore à Portland
