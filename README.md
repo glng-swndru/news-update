@@ -1,51 +1,51 @@
 # Latest News
--  Resumen 2023
--  30 किलोमीटर-250 सीसीटीवी कैमरे… बच्चा चोर औरत को ऐसा पकड़ा पुलिस ने
--  Premier odwołał członków rad instytutów nadzorowanych przez Prezesa Rady Ministrów
--  Enflasyon düzeltmesinin detayları belli oldu
--  بذراع مبتورة يقصف الاحتلال.. تفاعل واسع مع فديو لكتائب القسام (شاهد)
--  Tom Wilkinson, 'The Full Monty' actor, dead at 75
--  Málaga despide el año con un lleno casi total y tiempo primaveral
--  فيفي عبده تودع 2023 بجلسة تصوير مثيرة! (شاهد)
--  Foti e le citazioni nostalgiche alla Camera. Il Pd: “La puzza di fascismo non riescono a togliersela di dosso”
--  «Es muy difícil hacer esto»: angustia en Canal Trece por lo que sucedió con el Chino Leunis
--  Premier Lig'de Manchester City toparlamaya devam ediyor!
--  EPDK elektrikte 2024 için hizmet bedellerini belirledi
--  6 ilde terör operasyonu: Çok sayıda gözaltı var
--  Joka-Taratala Metro Service: যাত্রী টানতে ব্যর্থ, অধিকাংশ বেহালাবাসীই নাকি কখনও চাপেননি জোকা-তারাতলা মেট্রোয় !
--  fanatik.ro: Cum încearcă Darius Vâlcov să-i impresioneze pe judecători. Fostul ministru ar vrea condiții mai bune în închisoare
--  LIVE MN - Milan-Sassuolo (1-0): super Bennacer, gol di Pulisic!
--  VIDEO: Je li bio penal? Ronaldo poludio na odluku suca!
--  Manchester City 2-0 Sheffield United
--  Kaos zbog poplava u tunelima: Otkazani Eurostarovi vlakovi prema Londonu
--  Revenirea anului 2024: Campionul UFC se întoarce în ring
--  Ράμα για Μπελέρη: «Η κυβέρνηση θα περιμένει την τελική απόφαση του δικαστηρίου για τη Χειμάρρα»
--  مانشستر سيتي ينهي العام بفوز ثمين على شيفيلد يونايتد
--  Missing Fargo boy found after drone and dog search
--  Conseil constitutionnel : Rose Wardini autorisée à régulariser ses doublons
--  Oscar-nominated actor Tom Wilkinson, known for 'The Full Monty' and 'Michael Clayton', dies at 75
--  Удар по Харкову: відомо про вісім поранених
--  नए साल के जश्न को लेकर पूरे शहर भर में लगेंगे ड्रंकन ड्राइविंग नाके
--  MIL-SAS (1-0): doppio cambio per Pioli, entrano Jovic ed Adli
--  Leerdam flikt het weer op 'haar' 1.000 meter: 'Bijna perfect verjaardagscadeau'
--  ట్రస్మాకు ప్రభాకర్‌రెడ్డి రాజీనామా
--  بجوائز 10 ملايين جنيه. الأوقاف تعلن تفاصيل المسابقة العالمية الـ 31 للقرآن الكريم
--  قمة العرب للطيران بالإمارات تناقش استخدام الذكاء الاصطناعى فى الطيران
--  بابا نويل يوزع هدايا على الأطفال والمواطنين بشوارع قنا احتفالا بالعام الجديد.. صور
--  وزارة الأوقاف تعلن لأول مرة تفاصيل مسابقة أسرة السيرة والسنة
--  وكيل تعليم الغربية يعقد اجتماعا بشأن توفير مستلزمات منتجات التعليم الزراعى للمنافذ
--  فرحة أهالى الزقازيق ابتهاجا بانتهاء أعمال نفق عرابى: بلدنا كل سنة فى تقدم
--  محافظ الغربية يفتتح جامع الأمير زهير بسوق اللبن فى المحلة الكبرى "صور"
--  استمرار فاعليات حملة "هنوصلك" لاستخراج مليون بطاقة خدمات متكاملة بالدقهلية
--  أسعار الذهب بالتعاملات المسائية اليوم السبت تسجل 3170 جنيها للجرام عيار 21
--  الأونروا: 40% من سكان قطاع غزة معرضون لخطر المجاعة
--  ‘ప్రజాపాలన’ పకడ్బందీగా చేపట్టాలి
--  Un sencillo ejercicio de cinco minutos mejora competencias de lectura de alumnos
--  Mineralwasser von Aldi, Lidl & Co. im großen Test: Die Sieger
--  ఎస్‌ఎస్‌ఏ ఉద్యోగులను రెగ్యులర్‌ చేయాలి
--  నవరత్నాలు కాదు.. నవ మోసాలు
--  Douglas Luiz, Aston Villa'ya 3 puanı getirdi!
--  Doğuştan lider ve en güvenilir 3 burç ortaya çıktı
--  "Doğdu Batmayan Güneş"
--  Pintapelastaja menetti tajuntansa Rannikko­laivaston harjoituksessa
--  రాజీమార్గమే రాజమార్గం : జడ్జి వేణు
+-  Bývalá misska skončila za mrežami: Kariéru modelky vymenila za pašovanie zbraní!
+-  Influencerka pod paľbou kritiky: Sociálny experiment v posilňovni, pozrite na VIDEO, veď bola takmer nahá!
+-  Klimatickí aktivisti celé hodiny blokovali úsek diaľnice okolo Amsterdamu
+-  Zwickau verliert Heimspiel gegen Dortmund mit 25:31
+-  Arroz, ¿aliado o enemigo de la dieta?
+-  Названы преимущества пробных занятий в фитнес-клубах
+-  Risto Dufva hyvästeli Nordiksen ja herkutteli hienolla mahdollisuudella - "No joo se on sitten asia erikseen"
+-  الشيخ عبد القادر الجيلاني (رحمه الله).. رجل الدعوة والإصلاح والتمكين
+-  Nottingham F. - Man. United, staðan er 1:0
+-  عقيلة صالح يلتقي أكثر من 30 حزباً سياسياً على مستوى ليبيا.
+-  لجنة الانتخابات الباكستانية ترفض ترشح عمران خان لانتخابات 2024 .
+-  وزارة الدفاع الروسية تعلن تدمير 32 طائرة مسيرة أوكرانية .
+-  The Full Monty actor Tom Wilkinson dies aged 75
+-  بدء فعاليات المؤتمر الثامن للجمعية الليبية لأطباء التخدير والعناية الفائقة بمركز بنغازي الطبي.
+-  Nottingham Forest 0-0 Man United - Premier League: Live score, team news and updates as Red Devils defender Raphael Varane almost puts through his own net
+-  אוז'בולט ולאיוס עשויים לפתוח בהפועל ת"א, מי יחליף את סק במכבי חיפה?
+-  Oscar-nominated star Tom Wilkinson who starred in The Full Monty, Batman Begins and Mission: Impossible - Ghost Protocol dies aged 75
+-  Oscar-nominated star Tom Wilkinson who starred in The Full Monty, Batman Begins and Mission: Impossible - Ghost Protocol dies aged 75
+-  Sabrina Moh: "Melilla tiene un magnífico futuro de prosperidad y de desarrollo económico y social"
+-  Italie : Bennacer passeur face à Sassuolo
+-  ما تشرب وتسوق" في جبيل والبترون
+-  Украйна атакува Белгород, Русия свиква Съвета за сигурност на ООН
+-  Nach Krawallen im Vorjahr - Berliner Anwohner über Silvester-Angst: „Das wird auf jeden Fall schlimmer“
+-  Broadway star Maurice Hines dies at age 80 - just weeks after his birthday
+-  WHO chief ‘very concerned’ by Gaza infectious disease threat
+-  Inter, 3 futbolcusuyla sözleşme yeniledi
+-  Endonezya'da 6.5 büyüklüğünde deprem
+-  Gazze'de halk yiyecek temin edemiyor
+-  Германија размислува за враќање на задолжителното служење воен рок
+-  Nem Győzike, őzike rohangált az egyik hazai bevásárlóközpontnál
+-  (UŽIVO) CRVENA ZVEZDA - IGOKEA: Crveno-beli protiv oslabljenog tima iz Laktaša stavljaju tačku na 2023. godinu
+-  Amanda Bynes is ending her podcast to train to be a manicurist
+-  Зеленский заявил об отсутствии у Украины территориальных потерь
+-  Knicks are trading Barrett and Quickley to Raptors for Anunoby, AP source says
+-  Profețiile șamanilor pentru 2024: predicțiile despre războiul din Gaza, soarta lui Vladimir Putin, dar și a lui Joe Biden și cât de rău sau bine va fi în următoarele 12 luni
+-  В США увидели откат ВСУ к позициям перед началом контрнаступления
+-  Grupo palestino afirma que un ataque aéreo israelí mató a un soldado cautivo en Gaza
+-  Musk reagon pas sulmit të robotit ndaj punonjësit në fabrikën e tij Tesla! Tmerr nga konflikti inteligjencë Artificiale-njeri
+-  Nottingham Forest 0-0 Man United - Premier League: Live score, team news and updates as Red Devils defender Raphael Varane almost puts through his own net
+-  Elazığ'daki 4.2'lik deprem anının yeni görüntüleri ortaya çıktı
+-  Украина «вернула себе море» в 2023 году - Зеленский
+-  Endonezya'da 6,5 büyüklüğünde deprem meydana geldi
+-  Pardubice - Kanada. Dynamo bojuje o finále Spengler Cupu proti kanadskému výběru
+-  مباحثات بين طرابلس وبرلين حول استئناف المشاريع في ليبيا
+-  Diogo Jota is caught on the EA Sports FC Companion App as leaves his phone unlocked upon arrival to Liverpool training ahead of Newcastle game
+-  VSK-stjärnan njuter: ”En ynnest att spela”
+-  Elk Valley RCMP asks be on the lookout for Chihuahua
+-  Israeli-French hostage recounts harrowing experience in captivity
+-  Premier League: les Wolves rendent hommage au père de Mario Lemina décédé
+-  Some farmers are applauding the government, for scrapping the clean car discount
