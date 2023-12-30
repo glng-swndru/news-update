@@ -1,51 +1,51 @@
 # Latest News
--  يصعب تمييزه إكلينيكيًا.. أمجد الحداد: متحور "JN1" مثير للاهتمام وليس القلق
--  عبد الحميد: البنوك أنفقت 66 مليار جنيه لتمويل مشروع "سكن لكل المصريين"
--  "أشجار الكريسماس في كل حتة".. شوارع الأقصر تتزين لاستقبال العام الجديد- صور
--  نوتنجهام فورست يفوز على مانشستر يونايتد بثنائية في الدوري الإنجليزي
--  جثة برميل مش وغرق مركب سياحي .. أبرز أحداث الأقصر خلال 2023
--  هذا ما يحدث يحدث لجسمك عند تناول القرفة بالحليب قبل النوم
--  Ukrayna'nın vurduğu Rusya'da can kaybı 14'e yükseldi
--  Erciyes'te gece kayağı başladı
--  Si të largoni stresin në pak sekonda
--  El 2024 arranca con el IDK muy arriba
--  Morre o ator britânico Tom Wilkinson, estrela de 'Ou Tudo ou Nada’
--  באנגליה קוטלים: "מנצ'סטר יונייטד חזרה לעצמה - חסרת דרך ונוראית"
--  Poljaci nisu našli ostatke ruske rakete
--  Autoridades reportan a 21 conductores peligros detenidos en la madrugada de este sábado
--  "Extrem gefährliche Bedingungen": Experten warnen vor Monsterwellen an US-Küste
--  El 2023 del Lenovo Tenerife, con muchas luces... algo atenuadas al final
--  Военный эксперт обвинил Запад в террористической атаке ВСУ по Белгороду
--  Kogi Govt confirms rescue of 21 kidnap victims
--  The Masked Singer in fix row as Weather revealed as huge US star
--  Animal Advocates: Cruz Azul a Decade of Care
--  Club-Weltmeister Manchester City bezwingt Sheffield souverän
--  Halle mit Remis gegen Tabellenzweiten Bensheim
--  Dresdner Volleyballerinnen mit Sieg gegen Münster
--  خطة صهيونية لإخراج أونروا من غزة
--  Buteur avec Al-Nassr, Cristiano Ronaldo termine meilleur buteur de l'année 2023 avec 54 buts
--  Tako se to radi! Veličanstveni Brozović u devet minuta pokazao svoju magiju; Zabio, pa asistirao
--  Hurtaron tuberías del aire acondicionado en Buscadores de Libros
--  Europe braced for New Year’s Eve RIOTS as police to flood streets amid fears of terror & ‘radical groups’
--  Şanlıurfa'da silahlı dehşet: Bir çocuk öldü
--  Hugo Lloris, MLS ekibine transfer oldu!
--  התנועה לאיכות השלטון בקריאה לרוזנבוים לחזור בה מהתפטרותה: "יהיו לכך השלכות"
--  Prisión provisional para uno de los tres detenidos por el homicidio de A Coruña
--  עוקץ 'קונים כחול לבן'? "אותה שרשרת 2.98 דולר מחו"ל"
--  Bangladesh assigns 1740,000 policemen with election duty
--  Joko ManU-manageri saa kenkää? Faneilta raju viesti
--  Sultangazi'de silahlı çatışma: Olay yerinden geçen çocuk kurşunların hedef oldu
--  هنيئاً للإمارات دورها الأممي
--  مقتل ضابط وجندي وإصابة 5 بجروح خطيرة خلال معارك غزة
--  İsrail'de esir protestosu: "Netanyahu iktidardayken hayatımız bu, felaket üstüne felaket"
--  Kanyon Park Piknik Alanı vatandaşların hizmetine açıldı
--  Lubero : un taximen moto abattu et 3 motos incendiées à Katwa
--  Snake halts Brisbane International
--  Zemřel britský herec Tom Wilkinson, bylo mu 75 let. Proslavil se komedií Do naha!
--  Alex Batty’s Mother, Melanie, Reveals Plan to Stay on the Run with Father and “Disciple” Friend
--  "Não há médicos". Greve surpreende utentes do Centro de Saúde de Sete Rios surpreendidos
--  أول سفينة سياحية بأسطول أرويا كروز في المملكة
--  Chrissy Teigen and John Legend carry baby Wren and Esti in their arms as they jet out of NY with Luna and Miles
--  الاحتلال يعترف مقتل ضابطين إسرائيليين في معارك غزة
--  Prefeito de Porto Acre sofre mal estar e vai parar na UPA da Sobral
--  ¡Adiós al Tottenham! Hugo Lloris es nuevo jugador del LAFC
+-  Son dakika: Bursa'da deprem mi oldu? 30 Aralık 2023 en son depremler listesi!
+-  Galatasaray'da Kerem Aktürkoğlu ameliyat oldu
+-  “이정후, ML 검증 안 됐는데 1억1300만달러 필요했나” 美 근거 없는 비판…성적으로 말하면 돼
+-  Dve žene ubijene u okolini Prijedora: Osumnjičeni izvršio samoubistvo
+-  Süper Kupa'da 'Atatürk formalılar içeri alınmadı' yalanını Fenerbahçeli taraftar çökertti
+-  Magnitude 6.5 earthquake strikes part of Indonesia's Papua
+-  برلين.. مئات الأشخاص يتضامنون مع فلسطين
+-  Australia edge India in thriller to continue incredible ODI series streak
+-  Під час підсумкової ставки Зеленський заслухав доповідь головкома та розвідок: визначено, що 2024 рік стане часом важливих рішень
+-  «سوينج فوت» بطل الشوط الرئيسي في مضمار جبل علي
+-  Snažan zemljotres pogodio BiH
+-  Rinden homenaje a Pelé con el Cristo Redentor
+-  Lloris 12 senedir formasını giydiği Tottenham'a veda etti
+-  ختام سباق صعود التل بثلاث فئات قوية
+-  TRESLO SE U BIH! Sarajevo pogodio jak zemljotres!
+-  GOLDSTEIN: Liberal immigration policy sabotaging Liberal housing policy
+-  Ayodhya 2.0: PM unveils new look temple town ahead of Ram temple consecration
+-  Harlequins provide festive feast in win over Gloucester as annual Big Game thrills again
+-  Conductor choca contra poste en Cantera y Río de Janeiro; termina lesionado
+-  Masakr 29. prosinca pokazao je što je Moskva radila ovih mjeseci. No, više i od toga brine zastrašujući podatak ISW-a...
+-  Issue of air pollution sometime becomes political: Former SC judge
+-  Jammu News: रोलबॉल चैंपियनशिप में जम्मू का दबदबा, चार वर्गों में टीम बनीं विजेता
+-  Обрат в пощите! 30 нови услуги
+-  "두달간 3만발 투하로 쑥대밭된 가자지구"…불발탄 제거에만 1년
+-  Detalji tragedije: Majka, kćerka i sin ostavili oproštajno pismo
+-  NHAI undertakes road safety measures to counter foggy conditions
+-  Key infra sector growth slows to 6-month low of 7.8 pc in Nov
+-  Постпред РФ: УВКПЧ ООН позорно молчит по поводу удара по Белгороду
+-  ¡Madre mía! Cristiano Ronaldo, 54 goles en el 2023 [Video]
+-  مرض العصر.. استشاري يحذر من خطورة السمنة ويحدد 5 خطوات للعلاج
+-  Nordic Influx in Almuñécar and La Herradura
+-  Biden admin sidesteps Congress again, approves military equipment sale to Israel
+-  Aposentadoria: Com 57 anos de idade, como dar entrada pelo INSS?
+-  Hedberg: ”Behöver bli spetsigare”
+-  Hedberg: ”Behöver bli spetsigare”
+-  RCMP searching for suspect in Halifax area home invasion and robbery
+-  RCMP searching for suspect in Halifax area home invasion and robbery
+-  Destroza su Nissan Sentra en La Cantera
+-  Zemljotres jačine 5,4 stepeni u BiH; Osetilo se i u Srbiji
+-  Počet mŕtvych po útokoch na mesto Belgorod stúpol na 18, uviedla Moskva
+-  Panipat News: पुराने बस स्टैंड पर 7.88 करोड़ से बनेगा इलेक्टि्क बसों के लिए सोलर पैनल का चार्जिंग स्टेशन
+-  Israël-Hamas: la guerre "va se poursuivre pendant de longs mois", affirme Benjamin Netanyahu
+-  Superenalotto, numeri combinazione vincente oggi 30 dicembre 2023
+-  Video: el gol de Nico Domínguez para la victoria contra el United
+-  Nine top PLA generals dismissed from China’s Parliament
+-  ¿Cómo Invertir en Acciones de Baja Capitalización?
+-  PET STAJLINGA KOŠTALO VIŠE OD STANA U BEOGRADU: Kartije, Džimi Ču... Milica na garderobu i nakit potrošila 140.000 evra!
+-  Russische Grenzregion Belgorod: Tote und Verletzte nach größerem Angriff
+-  EMSC: Potres 5.4 u BiH
+-  LIVE TJ - JUVENTUS-ROMA 0-0 - Avvio di ripresa: subito Yildiz al tiro smorzato
