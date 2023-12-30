@@ -1,11 +1,11 @@
 # Latest News
--  ‘너 우리랑 일 하나 하자’... 레알, 드디어 다음 주에 음바페와 접촉→지지부진 시 바로 영입 포기
--  김민재한테 주전 밀려 뮌헨 떠나나…아스널이 영입 대상으로 설정
--  DR. SEDAD BEŠLIJA - GENERACIJSKI PROJEKT
--  5 إصابات بمشاجرة جماعية في عمان
--  تطوير وقود طائرات أخضر بشري
--  كيف سيتطور الذكاء الاصطناعي في 2024
--  فندق فرنسي فخم يطرد طاهياً رئيسياً بسبب مضايقات مهينة
--  Florida'da emlak piyasasını Messi belirledi!
--  KBC 15: Amitabh Bachchan bids emotional goodbye to the show
--  Blast near Israel embassy: Police register FIR against `unknown` persons
+-  ورشة حول مكافحة الاتجار بالبشر في تجارة عمان
+-  انخفاض على سعر غرام الذهب 21 بالأردن اليوم
+-  الصحة العالمية تحذر من تفشي الأمراض بين النازحين بغزة
+-  شاحنة تصدم المارة وتتسبب بمقتل أحدهم في ألمانيا
+-  Rụng lông tóc ở ba vùng trên cơ thể có thể là dấu hiệu của bệnh truyền nhiễm
+-  “Đế chế dệt kim đa màu sắc” United Colors Of Benetton và sự trở lại đầy ấn tượng
+-  Món ngon ở TP.HCM nên thử dịp Tết Dương lịch?
+-  Không khí Hà Nội ô nhiễm trầm trọng: 10h sáng, trời vẫn mịt mù
+-  싸이, '강남스타일' MV 50억 뷰 돌파…K팝 최초
+-  Silvesterfeuerwerk: Beim Böllern gehen die Meinungen im Kreis Euskirchen weit auseinander
