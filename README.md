@@ -1,51 +1,51 @@
 # Latest News
--  大奖开出！奥克兰一人赢得1220万纽币！
--  Hàng tiền vệ mới của M.U giúp Ten Hag 'mở khóa' Bruno Fernandes
--  Nkunku thực sự giúp Chelsea mạnh hơn?
--  Microsoft: KI-Begleiter Copilot startet auf iOS und Github
--  Умер актер из "Клана Сопрано" Бобби Риверз
--  England goalkeeper Earps, Glastonbury’s Eavis named in king’s New Year honours
--  پیرس اولمپکس؛ پاکستان ہاکی ٹیم کی شرکت پر سوالیہ نشان لگ گیا
--  Aihen y Guevara, enemigos íntimos
--  Il servizio di “Fuori dal Coro” a Siracusa sulle case abusive. La replica: “nessuno scasso. La casa era già stata acquistata”
--  Tumultueuze situatie in Australië: wedstrijd Dominic Thiem stilgelegd door dodelijke slang op de baan
--  চুরি করা গরু নিয়ে রাতে বাজারে যাওয়ার পথে গ্রেপ্তার ২
--  Über den Jahreswechsel wird das Wetter ungemütlich
--  Über den Jahreswechsel wird das Wetter ungemütlich
--  Studierendenwerk fordert kontinuierliche Bafög-Erhöhung
--  United Cup: Angelique Kerber verliert beim Comeback nach Babypause – Niederlage gegen Jasmine Paolini
--  Everton stadium ideas from the 1960s to the 2010s on long road to perfect Bramley-Moore vision
--  Zelensky nderon kryeministrin Rama
--  Vande Bharat Express : भारतीय बनावटीची वंदे भारत ट्रेन लातूरच्या कोचमध्ये बनवली जाणार; देवेंद्र फडणवीसांची महत्वाची घोषणा
--  Das denkt Tom über den Altersunterschied!
--  Über den Jahreswechsel wird das Wetter ungemütlich
--  Únwetter: Frau stirbt bei Massenkarambolage auf A31
--  السلطات العراقية تضبط 8 صقور معدة للتهريب الى الكويت
--  الدولار يعاود الارتفاع في أسواق العراق
--  RINL Achieves Milestone: Blast Furnace-3 ‘Annapurna’ Lights Up for a Bright Future
--  مصرع واصابة 7 اشخاص بحادث سير مروع في واسط (صور)
--  Über den Jahreswechsel wird das Wetter ungemütlich
--  Crypto in tribunale: SBF si salva dal secondo processo
--  ৩ দিন পর্যটক চলাচল নিষিদ্ধ সেন্টমার্টিন দ্বীপে
--  মুন্সিগঞ্জে নৌকার সমর্থকদের বিরুদ্ধে স্বতন্ত্র প্রার্থীর সমর্থককে মারধরের অভিযোগ
--  OVAN
--  غيابات برشلونة عن تدريبات اليوم
--  Mínima factura
--  Villeneuve-lez-Avignon/Pujaut. L’incroyable parcours de Juan le boulanger, venu d’Argentine
--  Časy, keď sa dissovali Hugo Toxxx a Lvcas Dope: Pamätáš si to?
--  خبير أمريكي: بايدن يشعر بالخوف من عواقب فشله في أوكرانيا
--  الاحتلال يجدد قصف بلدات في جنوب لبنان
--  Capodanno in sicurezza a Siracusa: il Piano a tutela dell’ordine e della sicurezza pubblica della Polizia di Stato
--  El Yuppie saca la cabeza en RD
--  ਸ਼ਾਹਰੁਖ ਖਾਨ ਬਣ ਗਏ ਬਾਲੀਵੁੱਡ ਦੇ ਸਚਿਨ ਤੇਂਦੁਲਕਰ, 2023 ;ਚ ਬਣਾਇਆ ਅਜਿਹਾ ਰਿਕਾਰਡ, ਜਿਸ ਨੂੰ ਤੋੜਨਾ ਲਗਭਗ ਨਾਮੁਮਕਿਨ
--  El Consejo de Seguridad de la ONU cierra el año con una reunión de urgencia sobre Ucrania
--  Salmonellen-Gefahr: Hersteller ruft Bio-Nuss-Mischung zurück
--  So extrem ungemütlich wird das Wetter zu Silvester
--  Była żona Michała Adamczyka walczy o podwyższenie alimentów. Jej prawnik zabrał głos
--  Wenig Besuch: Corinna Schumacher schirmt ihren Michael ab
--  YOUR VIEWS: Get Swiss advice to make the Cairngorm funicular work
--  Κοινωνικές δράσεις της Γενικής Περιφερειακής Αστυνομικής Διεύθυνσης Στερεάς Ελλάδας
--  ISW warnt vor weiteren russischen Großangriffen auf Ukraine
--  Studierendenwerk fordert kontinuierliche Bafög-Erhöhung
--  Koncert savremene muzike za klavir održan na Muzičkoj akademiji UNSA
--  Svjetska populacija porasla za 75 miliona ljudi u protekloj godini
+-  SAHRC urgently treating Matthew Lani's claim about being refused ARV meds access
+-  Đà Nẵng kẻ vạch phân tách vỉa hè quận trung tâm, du khách ghé chợ Hàn yên tâm hơn
+-  Nga nói phương Tây không có 'vũ khí kỳ diệu' cho Ukraine
+-  Siêu xe thể thao điện ra mắt thị trường ô tô Việt Nam
+-  Điểm tin 18h: Dân số Việt Nam đạt 100,3 triệu dân; Giá vàng lao dốc tiếp
+-  Hoạt động lễ hội hấp dẫn, Đà Nẵng sẽ đón hơn 430 chuyến bay, giá phòng giảm 20-50%
+-  تنبيه جديد حول صرف المعاشات لمستفيدي نظام التأمينات
+-  Year Ender 2023: इस साल विराट कोहली, रोहित शर्मा और शुभमन गिल ने मचाया कोहराम, सबसे ज़्यादा 50 प्लस स्कोर करने वाले टॉप-3 बल्लेबाज बने
+-  EA FC 24 : Comment obtenir les récompenses YouTube et Twitch (janvier 2024)
+-  Mamadi Doumbouya au Syli : « Abordez la CAN avec un esprit combatif…gagner ou perdre avec honneur »
+-  Emine Erdoğan'dan "Gazzeli Çocuk Ressamlar Sergisi"ne ilişkin paylaşım
+-  Beşiktaş'ta yeni gelişme! Bruno Genesio için geri sayım başladı
+-  RESUMEN DEL AÑO ENERO - JUNIO NACIONAL
+-  Hochwasserschutz: Einsatzkräfte verstärken aufgeweichten Deich in Lohmar mit 5000 Sandsäcken
+-  Two people have been killed as deadly blaze sweeps through Croydon home, firefighters confirm
+-  Two people have been killed as deadly blaze sweeps through Croydon home, firefighters confirm
+-  Révélations Footballistiques 2023 dévoilées !
+-  Es geht um ein Logo - Irrer Zoff zwischen Bundespolizei und Handschuh-Ausrüster
+-  VR46-Ranch in Tavullia: Welcher Fahrer laut Luca Marini am schnellsten ist
+-  中매체, 한국-나토 관계 강화에 "늑대 집안에 들인 꼴…평화 위태롭게 해"
+-  Já a pensar nas férias de 2024? Eis os feriados e pontes que pode aproveitar
+-  South Africa files ICJ case accusing Israel of ‘genocidal acts’ in Gaza
+-  Bilan de l’OPROGEM en 2023 : « nous avons eu 205 cas de viols enregistrés et 43 cas d’enlèvements d’enfants» Marie Gomez
+-  Los peajes de las autopistas subirán entre un 5 y un 6,65 % en 2024
+-  Las exportaciones indias de piedras preciosas y joyas caen un 4,52% en noviembre
+-  Yakkyo S.p.A. debuta en Euronext Growth Milán en medio de sus planes de expansión
+-  แม่เหยื่อรองสารวัตรปืนโหดร่ำไห้ ถามทำไปเพื่ออะไร? จี้โทษประหารสถานเดียว
+-  'เบียร์ เดอะวอยซ์'เคลื่อนไหวทันที หลังถูกโยงนักร้องหญิงแอบแซ่บในปาร์ตี้
+-  تقرير سري: مخطط للاحتلال لطرد “الأونروا” من غزة
+-  Conmemoran en Italia aniversario del triunfo de la Revolución cubana
+-  Odcięli gaz, zabrali licznik
+-  이재명 "사퇴·통합 비대위 수용 불가" 이낙연 "제 갈길 가겠다"
+-  주유소 기름값 12주째 하락…경유 일간 1천400원대 진입
+-  "한국은 완벽한 부모 꿈꿔…돈 없어도 결혼·출산할 수 있어야"
+-  日후지산 분화시 화산재 바다에 버린다…"환경영향 판단후 시행"
+-  창원서 승용차·버스 충돌…1명 사망·6명 경상
+-  이스라엘군, 가자 중남부 집중공격…"하루새 180여명 사망"
+-  유럽 각국, 새해 앞두고 테러 우려에 경계 강화
+-  계묘년 마지막 주말 전국 관광지 북적
+-  Pacheco diz ver com "estranheza" Medida Provisória do governo que revisa desoneração
+-  '노량' 개봉 11일째 300만 관객…'서울의 봄'과 비슷한 속도
+-  NSU Rennfox Dolphin y Rennmax Blue Whale: las motos caza récords de los años 50
+-  അനുഭവിച്ച പീഡനങ്ങളെ കുറിച്ച്‌ ബീന കുമ്പളങ്ങി തുറന്നു പറയുന്നു
+-  Rama tregon se kanë përfunduar 10.5 km rrugë në aksin Qukës – Qafë Plloçë
+-  Heste-røv og håndvask med cigar: Hundedyr gak-gak-kunst
+-  Am Düsseldorfer Flughafen wird jetzt kein Müll mehr getrennt
+-  Celtic vs Rangers - Scottish Premier League: Live score, team news and updates as the top-two meet in the second Old Firm Derby of the season
+-  وول ستريت جورنال: 70% من منازل قطاع غزة تضررت أو دمرت بالكامل
+-  الصيام المتقطع ومرض الزهايمر.. دراسة تكشف "فائدة مذهلة"
+-  Machach, Fornaroli fire Victory to top of ALM table
