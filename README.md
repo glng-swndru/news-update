@@ -1,11 +1,51 @@
 # Latest News
--  جنش ينتقد اختيارات فيتوريا ويفجر مفاجأة بخصوص اعتزاله بسبب الزمالك
--  يوفنتوس يتخطى روما بهدف ويواصل مطارده الإنتر على صدارة الدوري الإيطالي
--  صحيفة إسبانية تكشف عن فرصتين لبرشلونة للتأهل لكأس العالم للأندية ٢٠٢٥
--  الزمالك يدعم عواد وينتقد اختيار أبو جبل في قائمة منتخب مصر
--  اتحاد الكرة يوضح حقيقة معاقبة جنش بعد تصريحاته بسبب عدم انضمامه لمنتخب مصر
--  أول تعليق من ياسر إبراهيم بعد استبعاده من قائمة منتخب مصر لـ أمم أفريقيا
--  पुतिन ने पीएम मोदी और राष्ट्रपति मुर्मू को दी नए साल की शुभकामनाएं, जानें New Year मैसेज में क्या लिखा
--  Ngành nghề nào có mức lương trăm triệu đồng/tháng, dễ xin việc làm?
--  Five terrorists killed in North Waziristan, Pak army says
--  [북한 연말 전원회의 종료…“내년 정찰위성 3개 추가 발사”
+-  내부거래 이사회 의결·공시 기준 50억→100억원으로 상향
+-  우려가 현실로...태영건설 워크아웃 신청, 협력업체에도 영향
+-  '왕릉뷰 아파트' 건설사들, 문화재청 상대 최종 승소
+-  「她雖不完美，卻是我。」接受自己，才是真的愛自己
+-  「年後再說」讓你更快樂？心理學家：延遲憂慮，放過此刻的自己
+-  只要在「我」後面多加一個字，就能改變雙方關係的溝通術
+-  دراسة توضح فوائد الوقوف 3 ساعات يومياً بالتناوب
+-  Topfavoriet Luke Humphries kruipt door het oog van de naald na negen (!) gemiste matchdarts
+-  Las películas más esperadas de 2024
+-  СМИ сообщили о трех пожарах в центре Харькова на фоне взрывов
+-  Abierta, licitación para ampliación del Relleno Sanitario
+-  Pioli: “Non mi è mai entrato in testa il fatto di poter essere a rischio. Al Milan se non si vince…”
+-  Сальдо высказался о судьбе Каховского водохранилища после подрыва плотины
+-  16-year-old darts sensation Luke Littler books place in quarter-finals of World Darts Championship
+-  Un jugador fundamental que se va en una fase decisiva de la temporada
+-  Зеленский заявил, что получил военный план на 2024 год
+-  Гладков: в результате атаки ВСУ на Белгород повреждены 30 домов и 344 квартиры
+-  Top 14 : La Rochelle se donne de l’air en battant le Stade toulousain, dans le « remake » de la dernière finale
+-  Isaac Nader e Solange Jesus vencem São Silvestre de Lisboa
+-  We’re lucky to be alive after TWO cars ploughed into our home while I was cooking a curry days before Christmas
+-  Kathy Griffin files for divorce after nearly 4 years of marriage
+-  На Украине пошутили про обстрел Белгорода
+-  Paulo Sérgio: «Já falei com o Manuel Oliveira e ele sabe que errou»
+-  Familiares de paciente fallecido atacan a patadas a personal médico de Cartagena
+-  Stormy and wet New Year’s Eve for Queensland
+-  Silvia Pinal permanecerá hospitalizada, pero "todo está muy bien", dice su asistente
+-  Inzaghi se lo sentiva e il successo di Verona rinsalda la sua panchina. Passo indietro gialloblù
+-  B.A.P Unión arribó a Grecia en medio de un gran recibimiento
+-  Kes bunuh Zayn Rayyan: Siasatan masih diteruskan
+-  Вучич заявил, что Сербия с гордостью сохранит дружбу с Россией и Китаем
+-  تراند اليوم : شاهد : السلطات التركية تعتقل فنان تركي أساء للعرب في أغنية بعد إلغاء مباراة السوبر
+-  تراند اليوم : بـ 75 ألف ريال .. شاهد.. أغرب شقة في الرياض بدون نوافذ!
+-  OSIRIS-APEX Embarks on Mission to Explore Asteroid Apophis
+-  El truco definitivo para limpiar los cordones y sacarles las manchas negras
+-  Babahoyo: Cuidador asesinado cuando descansaba en hamaca
+-  Princess Kate Middleton's 'goto' clothing brand that's started only 10 years ago
+-  Умерла легендарная ведущая программы «Время» и «Голубых огоньков»
+-  Empat TikTokers kongsi kisah seram
+-  Небензя назвал удар ВCУ по Белгороду преднамеренным и неизбирательным
+-  Sunday's gossip: Dragusin, Todibo, Phillips, Greenwood, Varane, Diao, Maatsen
+-  La música y el humor acompañan a la audiencia en la última noche del año
+-  La música y el humor acompañan a la audiencia en la última noche del año
+-  La música y el humor acompañan a la audiencia en la última noche del año
+-  La música y el humor acompañan a la audiencia en la última noche del año
+-  Metro restaurants and pubs expecting a solid night of business on New Year's Eve
+-  Hugmyndin um Gerrard og Liverpool sé núna „hlægileg"
+-  I refuse to gatekeep my dry, crusty skincare hacks – you’re using body moisturizer wrong and how to fix flaky lips
+-  Небензя сравнил киевских главарей с Гитлером
+-  31. Dezember 1998: Der Euro wird als gemeinsame Währung von elf EU-Staaten, darunter Österreich, festgelegt
+-  Giulia Asked About WWE Interest, Says She Still Has Things To Do In Japan
