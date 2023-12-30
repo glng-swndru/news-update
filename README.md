@@ -1,11 +1,51 @@
 # Latest News
--  Anadolu Efes, sahasında hata yapmadı!
--  Kolayca hazırlanıyor: Çayın yanına sıcak poğaça tarifi!
--  ManU'dan deplasmanda bir kayıp daha!
--  Hugo Lloris'in yeni takımı Los Angeles FC!
--  [언론계 역사 속 오늘] 12월31일, 1961년 KBS TV 개국…2010년 종편 사업자 선정
--  Dionisi a DAZN: «Non possiamo essere soddisfatti, ecco perchè»
--  PLATE 2000 EURA, ALI NIKO TO NE ŽELI RADITI: Najveći proizvođači janjetine u Evropi u ogromnim problemima
--  Lejos de la familia pero con una nueva: las fiestas de los refugiados LGBTI en México
--  "ما بين ليفربول ومنتخب مصر"... ماذا قدم محمد صلاح في 2023؟
--  INSS: Aposentadoria para quem chega aos 54 anos de idade
+-  يصعب تمييزه إكلينيكيًا.. أمجد الحداد: متحور "JN1" مثير للاهتمام وليس القلق
+-  عبد الحميد: البنوك أنفقت 66 مليار جنيه لتمويل مشروع "سكن لكل المصريين"
+-  "أشجار الكريسماس في كل حتة".. شوارع الأقصر تتزين لاستقبال العام الجديد- صور
+-  نوتنجهام فورست يفوز على مانشستر يونايتد بثنائية في الدوري الإنجليزي
+-  جثة برميل مش وغرق مركب سياحي .. أبرز أحداث الأقصر خلال 2023
+-  هذا ما يحدث يحدث لجسمك عند تناول القرفة بالحليب قبل النوم
+-  Ukrayna'nın vurduğu Rusya'da can kaybı 14'e yükseldi
+-  Erciyes'te gece kayağı başladı
+-  Si të largoni stresin në pak sekonda
+-  El 2024 arranca con el IDK muy arriba
+-  Morre o ator britânico Tom Wilkinson, estrela de 'Ou Tudo ou Nada’
+-  באנגליה קוטלים: "מנצ'סטר יונייטד חזרה לעצמה - חסרת דרך ונוראית"
+-  Poljaci nisu našli ostatke ruske rakete
+-  Autoridades reportan a 21 conductores peligros detenidos en la madrugada de este sábado
+-  "Extrem gefährliche Bedingungen": Experten warnen vor Monsterwellen an US-Küste
+-  El 2023 del Lenovo Tenerife, con muchas luces... algo atenuadas al final
+-  Военный эксперт обвинил Запад в террористической атаке ВСУ по Белгороду
+-  Kogi Govt confirms rescue of 21 kidnap victims
+-  The Masked Singer in fix row as Weather revealed as huge US star
+-  Animal Advocates: Cruz Azul a Decade of Care
+-  Club-Weltmeister Manchester City bezwingt Sheffield souverän
+-  Halle mit Remis gegen Tabellenzweiten Bensheim
+-  Dresdner Volleyballerinnen mit Sieg gegen Münster
+-  خطة صهيونية لإخراج أونروا من غزة
+-  Buteur avec Al-Nassr, Cristiano Ronaldo termine meilleur buteur de l'année 2023 avec 54 buts
+-  Tako se to radi! Veličanstveni Brozović u devet minuta pokazao svoju magiju; Zabio, pa asistirao
+-  Hurtaron tuberías del aire acondicionado en Buscadores de Libros
+-  Europe braced for New Year’s Eve RIOTS as police to flood streets amid fears of terror & ‘radical groups’
+-  Şanlıurfa'da silahlı dehşet: Bir çocuk öldü
+-  Hugo Lloris, MLS ekibine transfer oldu!
+-  התנועה לאיכות השלטון בקריאה לרוזנבוים לחזור בה מהתפטרותה: "יהיו לכך השלכות"
+-  Prisión provisional para uno de los tres detenidos por el homicidio de A Coruña
+-  עוקץ 'קונים כחול לבן'? "אותה שרשרת 2.98 דולר מחו"ל"
+-  Bangladesh assigns 1740,000 policemen with election duty
+-  Joko ManU-manageri saa kenkää? Faneilta raju viesti
+-  Sultangazi'de silahlı çatışma: Olay yerinden geçen çocuk kurşunların hedef oldu
+-  هنيئاً للإمارات دورها الأممي
+-  مقتل ضابط وجندي وإصابة 5 بجروح خطيرة خلال معارك غزة
+-  İsrail'de esir protestosu: "Netanyahu iktidardayken hayatımız bu, felaket üstüne felaket"
+-  Kanyon Park Piknik Alanı vatandaşların hizmetine açıldı
+-  Lubero : un taximen moto abattu et 3 motos incendiées à Katwa
+-  Snake halts Brisbane International
+-  Zemřel britský herec Tom Wilkinson, bylo mu 75 let. Proslavil se komedií Do naha!
+-  Alex Batty’s Mother, Melanie, Reveals Plan to Stay on the Run with Father and “Disciple” Friend
+-  "Não há médicos". Greve surpreende utentes do Centro de Saúde de Sete Rios surpreendidos
+-  أول سفينة سياحية بأسطول أرويا كروز في المملكة
+-  Chrissy Teigen and John Legend carry baby Wren and Esti in their arms as they jet out of NY with Luna and Miles
+-  الاحتلال يعترف مقتل ضابطين إسرائيليين في معارك غزة
+-  Prefeito de Porto Acre sofre mal estar e vai parar na UPA da Sobral
+-  ¡Adiós al Tottenham! Hugo Lloris es nuevo jugador del LAFC
