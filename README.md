@@ -1,51 +1,51 @@
 # Latest News
--  "Brasile, dubbi per la panchina: Ancelotti, sì al Real, Diniz criticato. La lista"
--  Dimarco, ufficiale il rinnovo con l'Inter: i dettagli
--  Domenica all'Atleticom We Run Rome in gara anche gli arbitri di calcio
--  Predajom dobrovoljnih priloga publike i lipaša, završen je prigodni program "Trideset do tridesetog" HPD "Lipa" Osijek
--  «عشان متعطلش نفسك».. خطوات بسيطة لإعادة تشغيل لمس هاتف آيفون بعد توقفه
--  مقتل وإصابة مدنيين إثر اشتباكات الجيش والدعم السريع بكردفان
--  Harmincmillió eurós szombathelyi kastély és 300 ezres putnoki borház – 38 ezerszeres a különbség a legolcsóbb és legdrágább eladó ingatlan között
--  The Hague to light New Year's bonfires tonight and not Dec. 31 due to high winds
--  বার্লিনে ফিলিস্তিনের প্রতি সংহতি সমাবেশ নিষিদ্ধ
--  Guided tours of the sky developed
--  LIVE/ Rama bën bilancin e 2023: Rritje në turizëm e investime të huaja! Paga mesatare do shkojë 900 euro
--  The 16 Best Burger Chains In The USA
--  ‘Bebote’ gana MVP; golea en Eredivisie
--  කුස්සියට හිර කර තිබූ ගැහැනිය නිර්මාණශීලීව දේශපානයට ගෙනත් අපේ ලෝකය දිනා ගන්නවා – සමන්මලී ගුණසිංහ
--  بيان من تنسيقية القوى الديمقراطية المدنية “تقدم”
--  Passenger finds live worm in sandwich served on Indigo flight
--  Tuya, Charlene Ruto named most influential African women
--  Hallazgo histórico en Cartagena: encuentran en el Anfiteatro Romano la fosa de los gladiadores y las fieras
--  عاملون بالصحة والإعلام يحيون ذكرى زملائهم شهداء غزة بلندن
--  مجلة أمريكية تكشف المواقع التي استهدفتها الضربة الصاروخية الروسية الأخيرة
--  التربية تنشر اسئلة مبحث الرياضيات
--  عاجل لواء غولاني يكشف عدد قتلاه منذ بداية الحرب
--  طلبة توجيهي علمي: امتحان الرياضيات اليوم مستواه من متوسط إلى صعب
--  Celebrar os 50 anos da Revolução dos Cravos
--  بيان من قوي الحرية والتغيير
--  El sector primario tuvo en 2023 su año más europeo con la PAC y la presidencia de la UE
--  ¿Qué países atraen más talento? Las regiones europeas dominan el top 25
--  Ticaret Bakanlığından fiyat etiketi denetimi
--  Beşiktaş, Kasımpaşa mesaisine devam etti
--  Norsk fiasko i Tour de Ski-åpningen: – Dette er ikke bra
--  Süper Kupa maçının ertelenmesi sonrası dini ve manevi değerlerimizi aşağılamaya kalkan provokatör gözaltına alındı
--  Ukraine Faces Growing Calls From US to Cede Land to Russia
--  Zéro artificialisation nette : le président d'Alès Agglomération n'est « pas d'accord » avec son application
--  חלון הזדמנויות? תלוי למי: הבדלי הגישות של מכבי חיפה ומכבי ת"א
--  В новогоднюю ночь будет запущен праздничный салют в Алматы
--  SAD odobrio novu prodaju oružja Izraelu, Blinken zaobišao Kongres i odobrio svom savezniku vojnu pomoć od 147,5 milijuna dolara
--  تفاصيل خطة إسرائيلية “شديدة السرية” تهدف لإخراج وكالة الأونروا من غزة
--  Ezek voltak a Farm VIP döntőjének legizgalmasabb pillanatai
--  كيسيه ينقذ أهلي جدة من مفاجأة الخليج
--  Gobierno colombiano sube el salario mínimo en 12 % para 2024 y lo deja en unos 335 dólares
--  Live NK afstanden | Roest en Bergsma treffen elkaar in vierde rit 10.000 meter
--  Live NK afstanden | Roest en Bergsma treffen elkaar in vierde rit 10.000 meter
--  بدزبان اسرائیل کی سلامتی کونسل میں بھی دھمکیاں
--  नौसेना के टॉप अधिकारियों के लिए नए एपॉलेट्स: क्या बदला है और शिवाजी से क्या कनेक्शन?
--  Éxito rotundo en las actividades lúdicas navideñas organizadas por Parque Melilla
--  معلومات عن الطالب اليمني المفقود في تركيا وأين وصلت القضية
--  पीएम नरेंद्र मोदी ने लोगों से की अपील, बोले- जिन्हें निमंत्रण मिला केवल वही अयोध्या आएं, घर में जलाएं श्रीराम ज्योति
--  Choupal como mote
--  14-годишен уби родителите си в Калифорния
--  अगर हैकिंग है बुरी चीज... तो क्या होती है एथिकल हैकिंग? यहां समझें
+-  Büyükekşi suçu yine özel kalemine mi atacak?
+-  İspanyol İberia Havayolları çalışanları grevde: 444 uçuş iptal edildi
+-  우체국 금융 시스템, 12시간째 장애…“원인 파악 중”
+-  유재석 "한 때는 8명이었던 '런닝맨', 어느새 5명 됐다" 씁쓸 [2023 SBS 연예대상]
+-  CM Revanth Reddy extends Rs 2 lakh assistance to Swiggy executive’s family
+-  '미운 우리 새끼 & 신발 벗고 돌싱포맨' 주역들
+-  유재석-양세찬, 송지효를 지켜라!
+-  달려라 '런닝맨'
+-  송지효 '블링 블링'
+-  유재석, 런닝맨 시그니처 포즈
+-  유재석, 반가운 손인사
+-  차인표-정상훈-류수영-제이쓴, '녹색 아버지회' 모집중
+-  '강심장VS' 시그니처 포즈
+-  Hurdaya çıkan uçağı taşıyan kamyon köprüye sıkıştı!
+-  عاجل.. تقترب من الصفر.. السودة تسجل أدني درجة حرارة اليوم بالمملكة
+-  بعد إعلان الإنذار الأحمر على الباحة.. الدفاع المدني لـ السكان: خذوا حذركم
+-  بعد تمديد مبادرة الإعفاء من الغرامات .. تنبيهات مهمة للمكلفين للاستفادة من القرار
+-  "فاجعة" صحية بقطاع غزة.. الصحة العالمية تطلق تحذيرًا خطيرًا
+-  Kickoff | Premier League told to sign free agent De Gea
+-  Flooded tunnel near London disrupts Eurostar train
+-  Израиль сообщил о расширении операций в южной и центральной частях сектора Газа
+-  ΠΑΟΚ: Ο Ιβάν Σαββίδης αγόρασε 150 στρέμματα και φτιάχνει νέο προπονητικό κέντρο
+-  닛토덴코, 이런 '먹튀기업'은 또 없었다
+-  Дмитрий Копылов: Мы придумали формат иммерсивных спектаклей до того, как они появились
+-  Ankara Büyükşehir Belediyesi yılbaşı mesaisine hazır
+-  Tajna svakog uspješnog kolača je u ovom triku
+-  What time and TV channel is Nottingham Forest v Manchester United on today in the Premier League?
+-  นี่แหละของแซ่บ! 'โจอี้ ภูวศิษฐ์'กลับบ้านสุดชิล นั่งจกข้าวเหนียว-ผัดเผ็ดปลาไหล
+-  นายกฯสุดชิลล์!! พา'ลูกสาว-ลูกชาย'พักผ่อนส่วนตัวหัวหินช่วงปีใหม่ ทักทายนักท่องเที่ยว
+-  Barbie paraguaya mostró cómo agarra la manguera
+-  Se presenta ‘Ankay Team 24’, el equipo ciclista de Monesterio
+-  Uso de pirotecnia, genera ansiedad y estrés en mascotas
+-  Tarihi konağın yenileme çalışmaları devam ediyor
+-  Guirassy Milan, il Manchester United fa sul serio! Gli inglesi preparano l’assalto ULTIME
+-  Über den Jahreswechsel wird das Wetter ungemütlich
+-  Kastamonu'da ihracat geçen yılın Kasım ayına göre yüzde 86,1 arttı
+-  মুরগি নিয়ে ঝগড়ার পর নারীর রহস্যজনক মৃত্যু, মাসহ আটক ৫
+-  Снежного барса признали национальным символом Киргизии
+-  העברות בעולם, 30.12: טוטנהאם במו"מ עם צ'לסי לרכישת קונור גלאגר
+-  חשפיה בשער הפועל פתח תקוה, חוזז שב להרכב הפועל ירושלים
+-  Los “huelus” salen a las calles en Juchitán
+-  Tradhtia shkak i ndarjes? Kush është ish-fotografia e PD, që çoi në divorc Princ Lekën me Elia Zaharinë
+-  Two men die and two others in life-threatening condition after house fire in Croydon
+-  10 people arrested in Makueni for Illegally slaughtering 15 Donkeys
+-  Hassan Jhangur, 23, in court charged with murder after dad Chris Marriott, 46, hit by car as he tried to help stranger
+-  (ФОТО) Скандалозен оглас за вработување во Источна Македонија: Работни позиции само за Албанци дрвосечачи
+-  Govt and SIDBI Launch Initiative In Karnataka to Empower Micro And Small Industries
+-  શરીરને સ્વસ્થ રાખવા માટે વિટામિન B-12 ખૂબ જ જરૂરી, ડાયેટમાં સામેલ કરો આ ફૂડ
+-  Wirbel um Loch in Anzug von Oberstdorf-Sieger Wellinger
+-  Biseri Hajdukove škole treniraju zajedno, jednoga priželjkujemo uskoro u bijelom dresu, a drugi je tek počeo svoj put
