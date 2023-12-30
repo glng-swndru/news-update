@@ -1,11 +1,51 @@
 # Latest News
--  اصابة اسرائيلي بعملية دهس في الخليل واستشهاد المنفذ
--  Прегласување на 35 избирачки места во Србија
--  മഴ വർധിപ്പിക്കുന്ന പദ്ധതികൾക്ക്​ 15 ലക്ഷം ഡോളർ
--  Reportan ataque a Julión Álvarez
--  Expropia Gobierno planta de hidrógeno para Pemex en Tula
--  Endosan a pacientes abasto de medicinas
--  Amanece la ciudad a 1 grado; sensación térmica de -4
--  Sivasspor’da Servet Çetin dönemi sona erdi
--  Ticaret Bakanlığı'ndan açıklama: Yeni yılda da fahiş fiyatın önüne geçilecek
--  Παναθηναϊκός: Παρουσία Γιάννη Αλαφούζου η προπόνηση και τετ-α-τετ με τον Φατίχ Τερίμ
+-  Gaziantep'te inşaat çöktü: 1'i ağır 2 yaralı
+-  Milli tenisçi Zeynep Sönmez, Avustralya'da ana tabloya yükseldi
+-  Karakolda polise saldırıp kaçtı
+-  Federico Dimarco 2027 yılına kadar Inter'de
+-  Bakan Fidan'ın 2023 mesaisi: 72 ülke, 136 görüşme
+-  Arda Güler, Real Madrid'in taraftara açık antrenmanında yer aldı
+-  Sevilla, Fernando Reges'in sözleşmesini feshetti
+-  Putin'den Cumhurbaşkanı Erdoğan'a yeni yıl mesajı
+-  Aliağa Petkimspor, Onvo Büyükçekmece Basketbol'u mağlup etti
+-  Firari cinayet ve terör şüphelisi, Siirt'te yakalandı
+-  CHP Ankara İl Başkanlığınca "Formanı Giy Atamıza Gel" etkinliği düzenlendi
+-  Kasaplar tarih verdi, Et fiyatlarına indirim geliyor!
+-  Denizli'de iki gencin öldüğü kazada alkollü çıkan sürücü tutuklandı
+-  Bakan Yerlikaya paylaştı: Sosyal medya fenomeni Azad Yılmaz gözaltına alındı
+-  Kardan şehit heykelleri ilk kez Allah-u Ekber Dağları'nda yapılıyor
+-  Waar vinden we deze boerderij?
+-  Užfiksuota kaip Rusijos raketa „Ch-101“ bando apgauti Ukrainos oro gynybą (Video)
+-  Propaganda ūžia. „Zelenskis įsigijo Gėbelso vilą už 8 mln. eurų“ (Foto)
+-  Barist um hann í sumar – ekki í hóp í dag
+-  Is Rohit Sharma’s Record Against South Africa A Major Concern For Team India?
+-  Autogolo impede o 'assalto' do Leixões aos lugares de manutenção
+-  توہین الیکشن کمیشن کیس: فواد چوہدری نے جیل ٹرائل اسلام آباد ہائیکورٹ میں چیلنج کردیا
+-  Kickoff | Starting XIs: Richards Bay v SuperSport
+-  Desactivado el plan de emergencias por una fuga de butadieno en una industria de Tarragona
+-  Un túnel inundado cerca de Londres interrumpe el servicio de trenes Eurostar
+-  Rusya: Ukrayna ordusunun Belgorod kentine düzenlediği saldırıda 2 çocuk öldü
+-  Ertelenen Süper Kupa finalinin ardından sosyal medyadan küfürlü video yayımlayan şüpheli Samsun'da yakalandı
+-  Israel se adentra en los campamentos de Gaza 12 semanas después del inicio de la guerra
+-  ABP Majha Top 10 Headlines : ABP माझा टॉप 10 हेडलाईन्स | 30 डिसेंबर 2023| शनिवार
+-  Autoridades desmantelan banda criminal integrada por policías, militares y civiles
+-  Rajasthan Cabinet Expansion: Rajyavardhan Rathore, Kirodi Lal Meena Among 22 New Ministers
+-  Premier League: Siga em direto os resultados e marcadores da 20.ª jornada
+-  Shane MacGowan’s widow insists they ‘loved’ George Michael after Wham! top Christmas chart
+-  Dolly Parton's husband gave her a warning about new album
+-  122 horgászt kellett kimenteni Minnesotában egy elvándorolt jégtábláról
+-  Bakan Yerlikaya 'Gereği yapıldı' diyerek duyurdu: Süper Kupa paylaşımına gözaltı
+-  Uyuz vakaları artıyor! Salgın geçmedi!
+-  ألف شكر لكتيبة قناة الجزيرة المقاومة*
+-  올해 마지막 날 전국 눈·비…강원 산지 최대 30㎝ 적설
+-  원주서 로또 1등 당첨…1100회 로또 1등 13명, 각 22억758만원
+-  [속보] ‘노인 비하’ 논란 민경우, 국민의힘 비대위원 자진 사퇴
+-  Zorgkiezer zag al 10 procent meer overstappers dan vorig jaar
+-  Eurostar annuleert nog eens 15 treinen van en naar Londen
+-  iPhone'da güvenlik açığı tespit edildi! Bakanlık soruşturma başlattı
+-  Beylikdüzü'nde motosiklet sürücüsü refüje çarparak metrelerce savruldu: O anlar kamerada
+-  Κοροναϊός: Δεκαπλασιάστηκε η ζήτηση σε τεστ – Ελλείψεις σε φάρμακα
+-  هيئة العقار: فرز 96 ألف وحدة بمساحات تتجاوز 30 مليون متر مربع
+-  عاجل.. آخر فرصة.. وظائف شاغرة ينتهي التقديم فيها اليوم
+-  شاهد.. تراكم أكوام البرد في شوارع بريدة والمعدات الثقيلة تتدخل لرفعها
+-  أخر 24 ساعة.. 100 شهيد في قصف للاحتلال على وسط قطاع غزة
