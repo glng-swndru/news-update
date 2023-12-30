@@ -1,11 +1,11 @@
 # Latest News
--  Мурувват уйларига янги йил совғалари
--  Диққат, эълон!
--  More and more single people going on holiday for New Year's
--  Russia launches biggest aerial attack on Ukraine since start of invasion
--  Activists attack US Consulate in Melbourne
--  Pablo Fernández ‘sobrevive’ a las batallas de Podemos
--  Suudi cephesi G.Saray ve F.Bahçe'yi suçladı! İlk açıklama...
--  Father dies after five-car collision
--  Най-богатите хора в света са станали с 1,5 трлн. долара по-богати през 2023 г.
--  Court reserves verdict over Fawad Chaudhry’s remand in NAB probe
+-  Bursa'da, 90 yaşındaki kayıp Alzheimer hastasından kötü haber!
+-  Elazığ'da bir evin bahçesinde depo yangını
+-  2023'te bin 879 düzensiz göç olayı yaşandı
+-  Eskişehir'da toplam 53 bin 80 vatandaş bildilendirildi
+-  Mustafakemalpaşa'nın Yöresel Lezzetler kitabı görücüye çıktı
+-  Alperen Şengün'ün 28 sayısı galibiyete yetmedi
+-  Hande Erçel, Mustafa Kemal Atatürk'ün fotoğrafını paylaştı! Suudi o marka anlaşmayı sonlandırdı
+-  Suomalaispelaaja loisti Ranskassa
+-  Money Heist Prequel Berlin Prequel Unveils Release Details and Intriguing Trailer
+-  '노량' 개봉 11일째 300만 관객…'서울의 봄'과 비슷한 흥행 속도
