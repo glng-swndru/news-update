@@ -1,51 +1,11 @@
 # Latest News
--  Cầu Rạch Miễu lại kẹt xe từ sáng đến trưa trong ngày đầu nghỉ lễ
--  Lãi suất liên ngân hàng bất ngờ ‘dậy sóng’
--  Đà Nẵng lập Trung tâm nghiên cứu, đào tạo thiết kế vi mạch và AI
--  Bắt thanh niên tàng trữ pháo nổ phát hiện thêm ma túy
--  Heineken Việt Nam được công nhận là 'doanh nghiệp phát triển bền vững nhất' năm thứ 8
--  China maakt aanvragen visum voor Amerikaanse toerist makkelijker
--  Vì sao các hãng xe liên tục chậm mở bán xe mới hơn dự kiến?
--  Оила мустаҳкамлиги жамият тараққиётини кафолатлайди
--  Нарх-наво барқарорлиги назоратда
--  Ўзбек адибининг ҳикоялари Беларусь ва Россияда чоп этилди
--  Ҳоким ёрдамчилари Японияда малака оширди
--  Ҳоким ёшлар билан учрашди
--  6,3 миллиард сўмлик тамаки маҳсулотларининг ноқонуний айланмасига чек қўйилди
--  [ŽT] „Su komunistais nesiderėsime!“ Argentina smogė galingą antausį
--  „Rusija tikrai pažeis „derybas“, jei tokios bus.“ Medevedevas išplepėjo tikruosius planus
--  Ispanija uždaro atomines elektrines. Kas nutiko?
--  „9000 kareivių su artilerija ir dronais.“ Iš fronto traukiasi elitinis dalinys. ISW skelbia, kas nutiko
--  Kosminės lenktynės tarp JAV ir Kinijos prasidėjo. Mūšio laukas – Lagranžo taškai
--  Siaubinga. Kažkas kapodavo ruonių galvas. Po 7 metų rastas netikėtas kaltininkas
--  Kinai bėga į priekį elektromobilių gamyboje: pristato bateriją „Aukso luitą“ (Video)
--  İbrahim Yumaklı, Ilısu Barajı'nın ekonomiye katkısını duyurdu: 3 yılda 23 milyar TL
--  ‘괴물 수비수 나왔다’... 네덜란드를 홀리고 있는 ‘17살 아약스 센터백’
--  Hajduk u lovu na kosovsko čudo. Lashi odbio prvu ponudu
--  The Intensification Of Violence Towards Women Post-Covid In Latin America
--  مشهد مرعب لأمواج تبتلع البشر في سواحل كاليفورنيا
--  عاجل.. المملكة تتصدر أكثر الدول العربية امتلاكًا لاحتياطيات النفط في 2023
--  Jysähtääkö siirtopommi? Liverpool voi saada todellisen supertähden riveihinsä
--  غیر رسمی سکولوں میں موسم سرما کی چھٹیوں کا نوٹیفیکیشن جاری
--  Ovo je Honor Magic6 Pro, donosi zaslon s ultra tankim okvirom i pilulom
--  Amid Rise In Temperature Across Odisha, IMD Predicts Rain In New Year
--  Hande Erçel Atatürk’ü paylaştı Suudiler sözleşmeyi feshetti
--  U GLAVI MI JE SAMO PARTIZAN Saldanja bacio &quot;grobare&quot; u trans
--  Какво ще се случи, ако този техничар поиска фланелката носена от Кемпес, Марадона и Лионел Меси? (ВИДЕО)
--  Qatar India Relations : 5 वजहें, जिनसे भारत के आगे झुक गया क़तर ! 8 पूर्व सैनिकों को ‘राहत’ !
--  Romero Milan, clamoroso: cambia ancora il futuro dell’argentino
--  The Debt Problem Is Enormous. Experts Say the System for Fixing It Is Broken.
--  الیکشن 2024، ن لیگ کی انتخابی مہم کا آغاز، آج پہلا جلسہ
--  Miguel Ángel Flórez Torres y Ferley Stiven Henao Rivera robaron con cuchillo a un joven
--  Victor Wembanyama ne jouera pas les back-to-backs lors des prochaines semaines
--  Kentsel Dönüşüme Özel ‘Mortgage’ Önerisi..
--  Csak azért fizess, amire szükséged is van
--  Xi urges China envoys to create 'diplomatic iron army'
--  Superwahljahr 2024 / Von den USA über Russland bis nach Indien wird gewählt
--  15 kes Covid-19 dikesan di pusat pemindahan banjir
--  Otkrivamo ČIME SE BAVI novi dečko Dalile Dragojević: "Teško zarađuje svaki dinar", ovo mu je glavni izvor prihoda - a evo da li bivšoj zadrugarki SVE PLAĆA
--  Colas de casi diez horas en las urgencias de Montecelo
--  OVO ĆE BITI NAJHLADNIJI JANUARSKI DAN Zna se i kad će se zabeleti! Stiže nam preokret
--  Doktorka Đurović objasnila sve o suplementima: Ovo je najveća zabluda o vitaminu D i ako verujete u nju, u opasnosti ste
--  We`re waiting for confirmation from AITA on player arrival for DC, PTF chief
--  Maharashtra Congress leaders hold meeting at Mukul Wasnik`s residence
+-  Suomalainen ex-kiekkoilija latasi suorat sanat SM-liigan nykytasosta: "Jos sama tahti jatkuu..."
+-  استقرار أسعار الذهب في بغداد وكوردستان
+-  כל אחד והדלק שלו: הכוכבים הזקנים הם התופעה הכי יפה ב-2023
+-  העם שלנו מדהים, הממשלה לא ראויה לו
+-  מרמקול שולחני עד עט שכותב מתחת למים: הגאדג'טים הכי שווים לסטודנטים
+-  ¿Qué pasaría si la Tierra dejara de girar?
+-  Na putevima u BiH saobraćanje po suhom i mjestimično vlažnom kolovozu
+-  Nagrađivana redateljica Bešević Gajić: Ljudi nikada nisu vodili ratove, nego politika
+-  Pretežno oblačno vrijeme u BiH, na Bjelašnici -3 stepena
+-  লন্ডন থেকে বার্তা দেওয়া হচ্ছে, প্রয়োজনে গুপ্ত হত্যা চালাবে: ওবায়দুল কাদের
