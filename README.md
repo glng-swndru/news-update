@@ -1,51 +1,51 @@
 # Latest News
--  IL PUNTO SULL’ARBITRO: Fiorentina-Torino, buona prova per La Penna
--  Soccerladuma | Starting XI: Sekhukhune v Chiefs
--  Soccerladuma | Man City Extend Unbeaten Run To Boost Title Charge
--  유재석, 하트에 진심
--  מאסק יגיב? זו הרשת שהרוויחה מעזיבת המפרסמים את טוויטר
--  В Венеции планируют ввести ограничение численности туристических групп
--  ФМБА помогает пострадавшим в Белгороде, заявила Скворцова
--  Η Μόσχα ζητά σύγκληση Συμβουλίου Ασφαλείας μετά τον βομβαρδισμό στο Μπελγκορόντ
--  Έδειξε κάκωση η νεκροτομή στο 5μηνο βρέφος. Δείγματα για επιστημονικές εξετάσεις
+-  Nuri Şahin'den ilk transfer! Ozan Kabak, Alman devine gidiyor
+-  Manchester City ve Aston Villa, haftayı kayıpsız kapattı
+-  Kültür ve Turizm Bakanı Ersoy: Bugün Necip Fazıl'ı anmakla kalmıyor mirasını da yaşatıyoruz
+-  Tottenham, stoperini İtalya'da buldu!
+-  Goran Dragic, emekliliğini duyurdu!
+-  Fenerbahçe Beko, yeni yıla galibiyetle giriyor!
+-  Pierwszy transfer Łady 1945 potwierdzony. Trzech zawodników odchodzi
+-  2 stycznia dniem wolnym od pracy. Dla kogo?
+-  Niemcy: znacznie wzrósł odsetek młodych mężczyzn wśród osób ubiegających się o azyl
+-  Universidad Católica presenta a un argentino y un campeón repatriado como refuerzos
+-  ISPOVEST PILOTA NEVIDLJIVOG F-117 KOGA JE OBORILA SRPSKA PVO Do detalja ispričao kako je spasen: Bio sam prestravljen!
+-  Bursaspor İnfo Yatırım, Fenerbahçe'ye yenildi
+-  Yunanistan'ın ölüme ittiği 57 düzensiz göçmen kurtarıldı
+-  Batman'da kontrolden çıkan otomobil takla attı: Yaralılar var
+-  Beşiktaş, Kasımpaşa maçı hazırlıklarını sürdürdü
+-  Muğla'da yılbaşı öncesi tüm ekipler alarma geçti
+-  Fransa'da "Filistin'e destek, Gazze'de Ateşkes" mitingi
+-  Çanakkale'nin Ayvacık ilçesi açıklarında 43 kaçak göçmen yakalandı
+-  Özgür Özel'den Fenerbahçe ve Galatasaray'a tebrik
+-  Muğla Menteşe'de korkutan ev yangını
+-  2023 yılının en çok para kazananı belli oldu
 -  Malatya merkezli 6 ilde terör operasyonu: 14 gözaltı
--  البشائر يفوز على مضيفه الأولمبي بهدفين مقابل هدف :
--  الجمعية الليبية لفنيي غسيل الكلي تحتفل بتخرج دفعة من الحاصلين على الدبلومة التخصصية .
--  Жена претепала 42-годишен маж во казино во Скопје
--  Loại hạt là "insulin tự nhiên" của người Nhật: Giúp hạ đường huyết, ngừa biến chứng tiểu đường nhưng cực giàu dinh dưỡng, vùng núi Việt Nam cũng có nhiều
--  Fin de fiesta al glorioso año del City: gol de Rodri y aparece De Bruyne
--  مصير الموريتاني أحمد سالم مع لافيينا
--  3 تحديات أمام أنشيلوتي مع ريال مدريد
--  مانشستر سيتي يفوز على شيفيليد يونايتد في البريميرليج
--  مانشستر سيتي يتقدم على شيفيلد في الشوط الأول بالدوري الإنجليزي
--  وزارة الرياضة: برنامج «نتشـارك للمبادرات المجتمعية» يصل 8 مراكز شباب بدمياط
--  منتخبات مصر للجمباز.. سيطرة إفريقية وميداليات عالمية في 2023
--  موعد عودة نداي وسامسون للزمالك
--  هاتريك قاعود يقود البنك الأهلي للفوز على المقاولون في الدوري
--  Fiscalía citó a Claudia Améstica por obstruir la justicia en caso Canserbero
--  تين هاج يعلن تشكيل مانشستر يونايتد لمباراة نوتنجهام في الدوري الإنجليزي
--  داليا شوقي تحسم الجدل بشأن مشاركتها في مسلسل "وبينا ميعاد".. تفاصيل
--  جيش الاحتلال : قتلى وإصابات خطيرة بمعارك بغزة
--  Christ the Redeemer lit in Pele shirt as Brazil honours first anniversary of his death
--  كتائب الشهيد أبو علي مصطفى في غزة تعلن مقتل أسير لديها بعد محاولة إسرائيلية فاشلة لتحريره
--  Ресторан в Токио: китайцам вход запрещён
--  Το Ισραήλ πραγματοποίησε αεροπορική επιδρομή στο Χαλέπι
--  Contraindicaciones del consumo en exceso del vinagre de manzana
--  Premier League: Villa back to winning ways as Luiz penalty seals victory over Burnley
--  Al incendiarse vivienda tres menores mueren quemados en Roatán
--  Pooštrene bezbjednosne mjere u Parizu zbog terorističke prijetnje
--  Rusko viní Kyjev z útoku na Belgorod. Hovorí o českých zbraniach, zvoláva OSN
--  Στην Κρήτη οι υψηλότερες θερμοκρασίες
--  Ten Hag zorgt voor verwondering met uitspraak: ‘Hij is de Shakespeare van onze tijd’
--  Vinicius,contro razzismo si fa tatuare Alì, Pelè,Jordan e Bryant
--  Empresária de SC participa de festa especial em Trancoso
--  Portugal com sangue na guelra e também muita experiência
--  Džeko na ručku s porodicom: Objavom oduševio navijače
--  श्री गुरू गोबिंद सिंह के प्रकाशोत्सव पर निकाले गए नगर कीर्तन में उमड़ा श्रद्धा का सैलाब
--  لظروف خاصة.. بنزيما يُغادر جدّة إلى مدريد
--  Британското разузнаване: След 10 години Кремъл би могъл за да възстанови професионалната си армия
--  التعادل السلبي يحسم مواجهة الفتح والأخدود
--  İstanbul'da patlayan trafo alev alev yandı: O anlar cep telefonu kamerasına yansıdı
--  Військові підсумки року: Зеленський заявив про стратегію на 2024 рік
--  Yoona đẹp bất chấp cam thường, gấp đôi visual với khoảnh khắc chung khung hình cùng Lee Sung Kyung
--  Gặp "cậu bé vàng Toán học" từng giành thành tích 20 năm Việt Nam mới lại đạt được: "Không có gì là học cho vui"
+-  Podignuta optužnica u BiH za stravični pokolj nad Hrvatima kod Prijedora
+-  منذ عيد الميلاد 2018.. صديق ويليام وهاري يكشف "سر القطيعة"
+-  [ВИДЕО] „Tekken 8“: Филтерот за далтонисти предизвикува мигрена и мачнина
+-  Meğer bu kadar basitmiş: Örümcek ve hamam böceklerinden kurtulmanın yolu!
+-  İşgalci İsrail zulmü stadyumlara taşıdı... Yüzlerce sporcu katledildi
+-  Manchester City, 3 puanı 2 golle aldı
+-  Everton, deplasmanda darmaduman!
+-  Fenerbahçe Beko, sahasında hata yapmadı
+-  Tottenham'dan Radu Draguşin hamlesi!
+-  Anlamlı törene anlamlı klip!
+-  Estoril goleia Farense
+-  Muere el actor británico Tom Wilkinson, protagonista de ‘Full Monty’ o ‘Michael Clayton’
+-  Hauser žestoko reagirao na 'Kafansko veče' u Areni i migrante u središti grada: 'Zagreb postaje šabački vašar'
+-  Bluttat in Berlin-Pankow - Mann erstochen – Polizei nimmt Verdächtigen fest
+-  Ecuador congela en un 3,5 % el Impuesto a la Salida de Divisas para 2024
+-  X تفشل في ضبط المحتوى
+-  تمرين 5 دقائق يحسن القراءة
+-  Un rodaje obligará a realizar cortes en la calle Elcano de Bilbao
+-  Crystal Palace ends winless streak with comeback home win over Brentford
+-  Senate summons security chiefs, NSA over Plateau killings
+-  Duncan Ferguson rues Caley Thistle’s blank attack but is happy to take point against Morton
+-  বিআরটিসি বাসের সঙ্গে ড্রাম ট্রাকের ধাক্কায় চালকসহ ২ জন নিহত
+-  ৭ হাজার ইয়াবা পাচারকালে রোহিঙ্গাসহ আটক ২
+-  রিমান্ডে না নিয়ে জেলগেটেই মিয়া আরেফিকে ডিবির জিজ্ঞাসাবাদ
+-  চাটখিলে স্বতন্ত্র প্রার্থীর গণসংযোগে ছাত্রলীগের হামলা, সভাপতি-সম্পাদক আটক
+-  রেলস্টেশন থেকে অপহৃত শিশু উদ্ধার, অপহরণকারী আটক
+-  গাজীপুর-৩: শ্রীপুরকে ভূমিদস্যুমুক্ত করতে ট্রাকে ভোট চাইলেন সবুজ
+-  শেরপুর বিএনপির তিন নেতা বহিষ্কার
