@@ -1,51 +1,51 @@
 # Latest News
--  SAHRC urgently treating Matthew Lani's claim about being refused ARV meds access
--  Đà Nẵng kẻ vạch phân tách vỉa hè quận trung tâm, du khách ghé chợ Hàn yên tâm hơn
--  Nga nói phương Tây không có 'vũ khí kỳ diệu' cho Ukraine
--  Siêu xe thể thao điện ra mắt thị trường ô tô Việt Nam
--  Điểm tin 18h: Dân số Việt Nam đạt 100,3 triệu dân; Giá vàng lao dốc tiếp
--  Hoạt động lễ hội hấp dẫn, Đà Nẵng sẽ đón hơn 430 chuyến bay, giá phòng giảm 20-50%
--  تنبيه جديد حول صرف المعاشات لمستفيدي نظام التأمينات
--  Year Ender 2023: इस साल विराट कोहली, रोहित शर्मा और शुभमन गिल ने मचाया कोहराम, सबसे ज़्यादा 50 प्लस स्कोर करने वाले टॉप-3 बल्लेबाज बने
--  EA FC 24 : Comment obtenir les récompenses YouTube et Twitch (janvier 2024)
--  Mamadi Doumbouya au Syli : « Abordez la CAN avec un esprit combatif…gagner ou perdre avec honneur »
--  Emine Erdoğan'dan "Gazzeli Çocuk Ressamlar Sergisi"ne ilişkin paylaşım
--  Beşiktaş'ta yeni gelişme! Bruno Genesio için geri sayım başladı
--  RESUMEN DEL AÑO ENERO - JUNIO NACIONAL
--  Hochwasserschutz: Einsatzkräfte verstärken aufgeweichten Deich in Lohmar mit 5000 Sandsäcken
--  Two people have been killed as deadly blaze sweeps through Croydon home, firefighters confirm
--  Two people have been killed as deadly blaze sweeps through Croydon home, firefighters confirm
--  Révélations Footballistiques 2023 dévoilées !
--  Es geht um ein Logo - Irrer Zoff zwischen Bundespolizei und Handschuh-Ausrüster
--  VR46-Ranch in Tavullia: Welcher Fahrer laut Luca Marini am schnellsten ist
--  中매체, 한국-나토 관계 강화에 "늑대 집안에 들인 꼴…평화 위태롭게 해"
--  Já a pensar nas férias de 2024? Eis os feriados e pontes que pode aproveitar
--  South Africa files ICJ case accusing Israel of ‘genocidal acts’ in Gaza
--  Bilan de l’OPROGEM en 2023 : « nous avons eu 205 cas de viols enregistrés et 43 cas d’enlèvements d’enfants» Marie Gomez
--  Los peajes de las autopistas subirán entre un 5 y un 6,65 % en 2024
--  Las exportaciones indias de piedras preciosas y joyas caen un 4,52% en noviembre
--  Yakkyo S.p.A. debuta en Euronext Growth Milán en medio de sus planes de expansión
--  แม่เหยื่อรองสารวัตรปืนโหดร่ำไห้ ถามทำไปเพื่ออะไร? จี้โทษประหารสถานเดียว
--  'เบียร์ เดอะวอยซ์'เคลื่อนไหวทันที หลังถูกโยงนักร้องหญิงแอบแซ่บในปาร์ตี้
--  تقرير سري: مخطط للاحتلال لطرد “الأونروا” من غزة
--  Conmemoran en Italia aniversario del triunfo de la Revolución cubana
--  Odcięli gaz, zabrali licznik
--  이재명 "사퇴·통합 비대위 수용 불가" 이낙연 "제 갈길 가겠다"
--  주유소 기름값 12주째 하락…경유 일간 1천400원대 진입
--  "한국은 완벽한 부모 꿈꿔…돈 없어도 결혼·출산할 수 있어야"
--  日후지산 분화시 화산재 바다에 버린다…"환경영향 판단후 시행"
--  창원서 승용차·버스 충돌…1명 사망·6명 경상
--  이스라엘군, 가자 중남부 집중공격…"하루새 180여명 사망"
--  유럽 각국, 새해 앞두고 테러 우려에 경계 강화
--  계묘년 마지막 주말 전국 관광지 북적
--  Pacheco diz ver com "estranheza" Medida Provisória do governo que revisa desoneração
--  '노량' 개봉 11일째 300만 관객…'서울의 봄'과 비슷한 속도
--  NSU Rennfox Dolphin y Rennmax Blue Whale: las motos caza récords de los años 50
--  അനുഭവിച്ച പീഡനങ്ങളെ കുറിച്ച്‌ ബീന കുമ്പളങ്ങി തുറന്നു പറയുന്നു
--  Rama tregon se kanë përfunduar 10.5 km rrugë në aksin Qukës – Qafë Plloçë
--  Heste-røv og håndvask med cigar: Hundedyr gak-gak-kunst
--  Am Düsseldorfer Flughafen wird jetzt kein Müll mehr getrennt
--  Celtic vs Rangers - Scottish Premier League: Live score, team news and updates as the top-two meet in the second Old Firm Derby of the season
--  وول ستريت جورنال: 70% من منازل قطاع غزة تضررت أو دمرت بالكامل
--  الصيام المتقطع ومرض الزهايمر.. دراسة تكشف "فائدة مذهلة"
--  Machach, Fornaroli fire Victory to top of ALM table
+-  "Brasile, dubbi per la panchina: Ancelotti, sì al Real, Diniz criticato. La lista"
+-  Dimarco, ufficiale il rinnovo con l'Inter: i dettagli
+-  Domenica all'Atleticom We Run Rome in gara anche gli arbitri di calcio
+-  Predajom dobrovoljnih priloga publike i lipaša, završen je prigodni program "Trideset do tridesetog" HPD "Lipa" Osijek
+-  «عشان متعطلش نفسك».. خطوات بسيطة لإعادة تشغيل لمس هاتف آيفون بعد توقفه
+-  مقتل وإصابة مدنيين إثر اشتباكات الجيش والدعم السريع بكردفان
+-  Harmincmillió eurós szombathelyi kastély és 300 ezres putnoki borház – 38 ezerszeres a különbség a legolcsóbb és legdrágább eladó ingatlan között
+-  The Hague to light New Year's bonfires tonight and not Dec. 31 due to high winds
+-  বার্লিনে ফিলিস্তিনের প্রতি সংহতি সমাবেশ নিষিদ্ধ
+-  Guided tours of the sky developed
+-  LIVE/ Rama bën bilancin e 2023: Rritje në turizëm e investime të huaja! Paga mesatare do shkojë 900 euro
+-  The 16 Best Burger Chains In The USA
+-  ‘Bebote’ gana MVP; golea en Eredivisie
+-  කුස්සියට හිර කර තිබූ ගැහැනිය නිර්මාණශීලීව දේශපානයට ගෙනත් අපේ ලෝකය දිනා ගන්නවා – සමන්මලී ගුණසිංහ
+-  بيان من تنسيقية القوى الديمقراطية المدنية “تقدم”
+-  Passenger finds live worm in sandwich served on Indigo flight
+-  Tuya, Charlene Ruto named most influential African women
+-  Hallazgo histórico en Cartagena: encuentran en el Anfiteatro Romano la fosa de los gladiadores y las fieras
+-  عاملون بالصحة والإعلام يحيون ذكرى زملائهم شهداء غزة بلندن
+-  مجلة أمريكية تكشف المواقع التي استهدفتها الضربة الصاروخية الروسية الأخيرة
+-  التربية تنشر اسئلة مبحث الرياضيات
+-  عاجل لواء غولاني يكشف عدد قتلاه منذ بداية الحرب
+-  طلبة توجيهي علمي: امتحان الرياضيات اليوم مستواه من متوسط إلى صعب
+-  Celebrar os 50 anos da Revolução dos Cravos
+-  بيان من قوي الحرية والتغيير
+-  El sector primario tuvo en 2023 su año más europeo con la PAC y la presidencia de la UE
+-  ¿Qué países atraen más talento? Las regiones europeas dominan el top 25
+-  Ticaret Bakanlığından fiyat etiketi denetimi
+-  Beşiktaş, Kasımpaşa mesaisine devam etti
+-  Norsk fiasko i Tour de Ski-åpningen: – Dette er ikke bra
+-  Süper Kupa maçının ertelenmesi sonrası dini ve manevi değerlerimizi aşağılamaya kalkan provokatör gözaltına alındı
+-  Ukraine Faces Growing Calls From US to Cede Land to Russia
+-  Zéro artificialisation nette : le président d'Alès Agglomération n'est « pas d'accord » avec son application
+-  חלון הזדמנויות? תלוי למי: הבדלי הגישות של מכבי חיפה ומכבי ת"א
+-  В новогоднюю ночь будет запущен праздничный салют в Алматы
+-  SAD odobrio novu prodaju oružja Izraelu, Blinken zaobišao Kongres i odobrio svom savezniku vojnu pomoć od 147,5 milijuna dolara
+-  تفاصيل خطة إسرائيلية “شديدة السرية” تهدف لإخراج وكالة الأونروا من غزة
+-  Ezek voltak a Farm VIP döntőjének legizgalmasabb pillanatai
+-  كيسيه ينقذ أهلي جدة من مفاجأة الخليج
+-  Gobierno colombiano sube el salario mínimo en 12 % para 2024 y lo deja en unos 335 dólares
+-  Live NK afstanden | Roest en Bergsma treffen elkaar in vierde rit 10.000 meter
+-  Live NK afstanden | Roest en Bergsma treffen elkaar in vierde rit 10.000 meter
+-  بدزبان اسرائیل کی سلامتی کونسل میں بھی دھمکیاں
+-  नौसेना के टॉप अधिकारियों के लिए नए एपॉलेट्स: क्या बदला है और शिवाजी से क्या कनेक्शन?
+-  Éxito rotundo en las actividades lúdicas navideñas organizadas por Parque Melilla
+-  معلومات عن الطالب اليمني المفقود في تركيا وأين وصلت القضية
+-  पीएम नरेंद्र मोदी ने लोगों से की अपील, बोले- जिन्हें निमंत्रण मिला केवल वही अयोध्या आएं, घर में जलाएं श्रीराम ज्योति
+-  Choupal como mote
+-  14-годишен уби родителите си в Калифорния
+-  अगर हैकिंग है बुरी चीज... तो क्या होती है एथिकल हैकिंग? यहां समझें
