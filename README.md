@@ -1,11 +1,11 @@
 # Latest News
--  নির্বাচন উপলক্ষে ঢাকা বিভাগীয় আইনশৃঙ্খলা বিষয়ক সমন্বয় সভা রবিবার
--  ইউক্রেনে বৃহত্তম ক্ষেপণাস্ত্র-ড্রোন হামলা রাশিয়ার, নিহত ৩১
--  ঢাকা টাইমস সম্পাদকের বাবা ওবায়দুর রহমানের চতুর্থ মৃত্যুবার্ষিকী আজ
--  Sri Lanka steps on to the global stage with G&G gems trading platform
--  Unleashing the Power of Instagram Pro: A Comprehensive Guide to Instagram Pro Download
--  МИД: Москва и Баку обсуждают вопрос пребывания миротворцев в Карабахе
--  Το νέο τοπίο στα τιμολόγια ρεύματος το 2024
--  ต.สูงเม่นตั้งด่านตรวจลดอุบัติเหตุ
--  হাফিজ সাঈদকে চেয়ে ভারতের আনুষ্ঠানিক অনুরোধ, কী বলল পাকিস্তান
--  NBA: sans Wembanyama, les Spurs perdent encore à Portland
+-  ‘너 우리랑 일 하나 하자’... 레알, 드디어 다음 주에 음바페와 접촉→지지부진 시 바로 영입 포기
+-  김민재한테 주전 밀려 뮌헨 떠나나…아스널이 영입 대상으로 설정
+-  DR. SEDAD BEŠLIJA - GENERACIJSKI PROJEKT
+-  5 إصابات بمشاجرة جماعية في عمان
+-  تطوير وقود طائرات أخضر بشري
+-  كيف سيتطور الذكاء الاصطناعي في 2024
+-  فندق فرنسي فخم يطرد طاهياً رئيسياً بسبب مضايقات مهينة
+-  Florida'da emlak piyasasını Messi belirledi!
+-  KBC 15: Amitabh Bachchan bids emotional goodbye to the show
+-  Blast near Israel embassy: Police register FIR against `unknown` persons
