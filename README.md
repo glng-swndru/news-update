@@ -1,51 +1,51 @@
 # Latest News
--  Crimmitschauer Bahnhof ist fest in Eispiraten-Hand
--  Espagne :: Blondine Françoise Koumial(Pdg De Sasu Le President) Fait Le Bilan De L'année 2023 Et Balance Tout :: Spain
--  HIFK-tähti saavuttaa historiallisen rajapyykin
--  আ.লীগ উন্নয়ন করে, বিএনপি মানুষ পোড়ায়: তথ্যমন্ত্রী
--  10 kişinin hayatını kaybettiği katliam gibi kaza işte böyle meydana gelmiş
--  Johannes Voigtmann, THY Avrupa Ligi'nde haftanın MVP'si
--  Bursa'dan Gazze'ye 4 tır insani yardım malzemesi gönderildi
--  Osmangazi Belediyesi'nden Dr. Sadık Ahmet'e vefa
--  Emekli aylığını çekmek için evden çıkmıştı, dere yatağında ölü bulundu
--  Biden hükümeti bir kez daha İsrail'e "acil silah satışı" kararı aldı
--  Diyarbakır Havalimanı'nda 'ısınma' krizi
--  Kırmızı ışıkta geçen Tesla önce minibüse sonra KGYS çarptı
--  Sinan Ateş, ölümünün birinci yıl dönümünde anılıyor
--  Sivasspor'da Kayserispor maçı hazırlıkları devam etti
--  Albaniens Ex-Premierminister Berisha wurde wegen Korruption unter Hausarrest gestellt
--  Slipknot: Nachlass des Ex-Schlagzeugers will vor Gericht ziehen
--  गुजरात: 13 लाख रुपये से भरा बैग लेकर बैठी थी लड़की, छीनकर ले गए बदमाश
--  Virginia Lt. Gov. Winsome Sears Says America Is Still Exceptional
--  Tennisstar Angelique Kerber verliert ihr erstes Spiel nach dem Mutterschaftsurlaub
--  Kisiklott és felborult egy tehervonat, nem járnak a vonatok Nagymaros és Verőce között
--  مانشستر سيتي يُسيطر على المشهد الرياضي في العالم 2023
--  Bắt 2 người chở hàng trăm kg pháo nổ từ Quảng Trị vô Khánh Hòa
--  ارتفاع حصيلة الاعتقالات بالضفة الغربية منذ 7 أكتوبر الماضي إلى 4860 معتقلا فلسطينيا
--  "كوديسا" تطالب بعدم تمكين المغرب الذي "يرتكب جرائم ضد الانسانية" من رئاسة مجلس حقوق الإنسان
--  قوات الاحتلال الصهيوني تعتقل 15 فلسطينيا بالضفة الغربية
--  المهرجان الوطني للرياضة النسوية : افتتاح الطبعة الرابعة بتوقرت بمشاركة 150 رياضية
--  جثمان المجاهد اللواء المتقاعد خالد نزار يوارى الثرى بمقبرة العالية بالعاصمة
--  Triển lãm Bảo đạc trường minh kể chuyện thiền phái Liễu Quán
--  Los peajes hacia Madrid y Asturias subirán un 5% desde Año Nuevo
--  بمناسبة حلول العام الجديد.. فتح ساحة الاحتفالات ببغداد امام حركة المواطنين
--  مع اغلاق البورصة.. الدولار يواصل الارتفاع في أسواق العراق
--  Vinesh Phogat: સાક્ષી મલિક બાદ વિનશ ફોગાટે પરત કર્યો એવોર્ડ, કર્તવ્ય પથ બહાર મુક્યો અર્જુન એવોર્ડ
--  إلغاء عدد من رحلات قطارات «يوروستار» بعدما غمرت المياه نفقاً قرب لندن
--  LAŽNA ELITA OPET MALTRETIRA BEOGRAĐANE Zbog njihovog protesta blokiran centar grada, vijore zastave Majdana, na ulici bi da ruše vlast
--  'I married a prisoner – people think I'm desperate but I know it's true love'
--  Svirali su famoznu Odu radosti koja već dva stoljeća održava Nadu čovječanstva budnom
--  Tabela de jogos do Corinthians na Copinha 2024: datas e horários
--  Kestel'de Şehitleri Anma Ve Filistin'e Destek Yürüyüşü Düzenlendi
--  Dos internos perdieron la vida y seis resultaron heridos en la Unidad Nro. 4 de Santiago Vázquez
--  Durva vonatbaleset: kisiklott és felborult egy tehervonat
--  Das ändert sich in der Umwelt und im Verkehr
--  Resolusi Marc Klok di 2024: Persib Bandung Angkat Trofi BRI Liga 1
--  Amanda Abbington says she was 'distraught' by sudden Strictly Come Dancing exit in rare update
--  Silvester: „Wir akzeptieren Verletzungen“ – Jugendliche liefern sich eine Böllerschlacht | Regional
--  Kickoff | Starting XIs: TS Galaxy v Chippa
--  Year Ender 2023: Top 9 controversial moments that shook the sporting world in 2023
--  Bakan Göktaş'tan yaralı askerlere ziyaret
--  Uzman isim operasyonları değerlendirdi: Terör örgütü köşeye sıkışmış durumda
--  Ulosajoja ja epäiltyjä törkeitä rattijuopumuksia Pohjois-Savossa yöllä ja lauantaiaamuna
--  الأمراض المزمنة تفتك بأجساد قيادات مدينة تعز| كتب مطيع سعيد سعيد المخلافي
+-  Elazığ'da korkutan deprem
+-  İşgalci İsrail askerleri Gazzelilerin evlerinden para çalıyor: Evimden aldıkları paranın değeri 10 bin ABD dolarından fazla
+-  Serveti 100 milyar dolara yaklaşan ilk kadın: Françoise Bettencourt Meyers
+-  Elazığ 4.2 ile sallandı
+-  10 metreden uçan kamyon evin ikinci katına çarptı
+-  Manisa'daki feci kazada otomobil hurdaya döndü
+-  Carragher says ‘this shows what a mess the new ownership have made at Chelsea’ as they close in on selling £35m star
+-  Alojamento local? Publicados coeficientes para cálculo da nova taxa extra
+-  Xuất hiện các tờ rơi truy tìm vợ ông Trump, không ai biết bà ấy ở đâu?
+-  Lãnh đạo Quảng Bình giải thích số thu du lịch gần 5.100 tỉ đồng: 'Cách tính riêng'
+-  Sinh viên TP.HCM mang phim đồ án tốt nghiệp ra rạp công chiếu
+-  Panic As Fleeing Suspected Kidnappers Kill Two In Nasarawa
+-  "بعد إصابة جندي".. الاحتلال يعلن السيطرة على منفذ عملية الدهس بالخليل
+-  الفلوس هتجري وراهم مع بداية 2024.. أكثر 5 أبراج ستجمع "ثروة ضخمة" من المال
+-  مستندات مطلوبة.. غدا سحب ملفات "وظيفة نيابة إدارية" لخريجي الإسكندرية
+-  قفزة لأسعار الذهب العالمية في 2023 ورقم قياسي بنهاية العام (تفاعلي)
+-  بعد شفائه.. تفاصيل جلسة مدرب الزمالك مع مصطفى شلبي
+-  حماس: أمريكا تشارك إسرائيل في حرب الإبادة بعد إعلان تزويدها بقذائف مدفعية
+-  9 أعراض تظهر عند الاستيقاظ تكشف ارتفاع مستويات السكر في الدم
+-  وزير النقل يتفقد عددًا من المشروعات بمحافظة الدقهلية
+-  5 فوائد للسبانخ أهمها الحماية من الأنيميا.. لكن احذرها في هذه الحالة
+-  "Atentado à liberdade de expressão e lawfare contra Breno Altman", diz Pedro Serrano
+-  هل أحرقوا بعد ما قتلوا؟! .. شاهد : محامي كويتي يعلق على رواية السلطات العراقية حول مقتل الكويتي والسعودي ويكشف كذبتهم بالأدلة الجنائية
+-  الأرصاد يتوقع أجواء باردة وأمطارا على هذه المحافظات خلال الساعات القادمة
+-  LIVE WK darts | Entertainer Williams verrast Heta en is volgende tegenstander Van Gerwen
+-  В тоннеле под Ла-Маншем остановили движение поездов Eurostar из-за подтопления
+-  Μητροπολίτης Ν. Ιωνίας Γαβριήλ: «Ελάτε στην Εκκλησία να υποδεχθούμε μαζί το νέο Έτος με προσευχή»
+-  Frans kabinet is wars van ‘Dry January’: ‘Past niet bij onze cultuur’
+-  حلمت اني اسوق سيارة زوجي للمتزوجه
+-  الثعبان الأبيض في المنام للمتزوجة
+-  TRANSFER HABERLERİ - Beşiktaş'ta sürpriz ayrılık! Bailly'nin ardından...
+-  القبض على أكثر من ألف شخص بينهم يمنيين حاولوا الدخول إلى السعودية
+-  Dragusin Milan, sfuma definitivamente? C’è il sì del giocatore ULTIME
+-  İktidarın Suudilere neden boyun eğdiği ortaya çıktı. Okuyunca kahrolacaksınız
+-  Em defesa da democracia, Lula subirá a rampa do Congresso mais uma vez no 8/1
+-  आज का राशिफल व पंचांग : 31 दिसम्बर, 2023, रविवार
+-  PM Modi Flags Off 2nd Vande Bharat Train For Shri Mata Vaishno Devi Katra- New Delhi Route
+-  KBC 15: Sara Ali Khan plays her popular `Knock-Knock` game with Amitabh Bachchan
+-  KBC 15: Amitabh Bachchan adores the beauty of legendary actor Sharmila Tagore
+-  В Госдуме предложили учредить "Орден Носка"
+-  В очереди на Крымский мост с двух сторон скопилось 630 машин
+-  Son dakika! Elazığ'da 4.2 büyüklüğünde deprem
+-  TWTW Weekly Wrap Up: 31 December-06 January 2024
+-  Year Ender 2023: DigiYatras To Mega Orders, Indian Aviation Reaches Uncharted Heights
+-  GALATASARAY HABERLERİ - Kerem Aktürkoğlu ameliyat oldu!
+-  Era Baru Keuangan Berkelanjutan
+-  Geng Bersenjata Tembaki Pesta Ulang Tahun Remaja di Meksiko, 6 Tewas
+-  İşte erkeğe güç veren afrodizyak etkili şifalı bitkiler...
+-  Azərbaycan Premyer Liqası: 180 oyunda 469 qol
+-  المقاومة الفلسطينية تستهدف الجيش الإسرائيلي بالشيخ رضوان وخان يونس
