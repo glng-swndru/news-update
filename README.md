@@ -1,11 +1,11 @@
 # Latest News
--  IND vs AUS : अटीतटीच्या लढतीत टीम इंडियाचा सलग दुसरा पराभव; ऑस्ट्रेलियाचा तीन धावांनी निसटता विजय अन् मालिकाही जिंकली
--  Mercato - OM : Une offre de 6M€ va partir !
--  Hoa hậu Ngọc Hân dự đám cưới cô dâu từng được cầu hôn bằng 200 flycam gây “chấn động", tiết lộ có chồng vẫn thích giật hoa cưới
--  Người dân đổ ra Công viên Yên Sở cắm trại, tận hưởng kỳ nghỉ lễ
--  Học cách người mẹ 76 tuổi giữ tiền tiết kiệm để không làm con cái bất an, xích mích
--  Bị kiện vì chế độ ẩn danh của Chrome không thực sự riêng tư như người dùng nghĩ, Google đồng ý bồi thường giải quyết
--  6 dòng kem bổ sung collagen, làm đầy nếp nhăn lão hóa, đến bác sĩ da liễu cũng tấm tắc khen
--  Nên mua xe thời điểm nào để hưởng lợi nhất?
--  BU XƏBƏR TƏLƏBƏLƏR ÜÇÜNDÜR! Yol və kirayə pulu dövlət tərəfindən VERİLƏ BİLƏR
--  Viral Video: దెబ్బకు బుద్ధి వచ్చింది.. కొండచిలువతో ఆటలు ఆడితే అలాగే ఉంటుంది.. వీడియో వైరల్!
+-  Lumenjtë dalin në rrugë, përmbytje të mëdha në Peru
+-  Nach Wirbel um türkischen Supercup: Veranstalter wehrt sich
+-  Zwickau: Der Umbau des ehemaligen Sparkassengebäudes zum Stadtarchiv wird teurer als geplant
+-  Një muaj nga vrasja e Liridona Ademajt, vëllai del me një reagim publik
+-  Sondaggio / Che voto dareste alla stagione del Torino?
+-  Suomalainen tähtihiihtäjä heitti rajun kuitin Ilta-Sanomille ja Iltalehdelle Viaplayn haastattelussa
+-  الطلاق يزاحم معدلات الزواج.. ضحيته الأطفال والحلول غائبة
+-  ¿Cuánto es la deuda que tiene a Sololá cerca de desaparecer?
+-  Nathan, 13 ans, sauve sa mère et sa sœur après un accident de voiture à Noël
+-  Zamlı maaş ve enflasyon farkı 15 Ocak’ta hesaplara yatacak
