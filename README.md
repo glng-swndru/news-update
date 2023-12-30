@@ -1,51 +1,11 @@
 # Latest News
--  คนแห่เที่ยว "สะพานมอญ" ช่วงปีใหม่คึกคัก คาดเงินสะพัด 100 ล้าน
--  Hrôzostrašná nehoda v Bratislave na Púchovskej ulici: Polícia prosí a hľadá svedkov, ktorí videli jej priebeh!
--  Najstaršia pevnosť sveta uchvátila vedcov: Odhaľuje, ako skutočne žili pradávni lovci, TOTO by ste nečakali!
--  Ďalší podvod na ľudí: V SMS-skách vystupujú ako Slovenská pošta, v priebehu pár minút vám môžu vybieliť účet!
--  Cobija del arte (+fotos)
--  Unfall auf A31: Hagel führt zu Massenkarambolage – 53-Jährige stirbt
--  Unfall auf A31: Hagel führt zu Massenkarambolage – 53-Jährige stirbt
--  Four of a family electrocuted in Mymensingh
--  Novas tabelas de retenção do IRS publicadas em Diário da República
--  Ilir Beqaj i vetëm përballë SPAK, Edi Rama: Të vazhdojë drejtësia, është punë e saj!
--  Lloris odlazi iz Tottenhama u Los Angeles
--  Politie: kleine groep demonstranten al eerder A10 op
--  Загадката, която подлуди социалните мрежи: "Ако дъщерята на Мария е майка на моята дъщеря, каква съм аз на Мария?"
--  'เด็จพี่'ถอนหงอก'สว.ตัวตึง'หยุดค้าความขัดแย้ง ฉะถ้าทำหน้าที่ได้แค่นี้ 'ลาออก'ไปซะ
--  ลูกบ้านขอตอบแทนจากใจ มอบของขวัญพี่รปภ.ที่คอยดูแลหมู่บ้าน
--  Salvamento Marítimo rescata en las últimas horas tres cayucos con 246 personas en aguas canarias
--  안산에서 판교까지 3103번 직행버스 운행
--  김철민 의원 대표발의 ‘군인 재해보상법’ 국회 본회의 통과
--  Honor X50 Pro is Now Official with Snapdragon 8+ Gen 1 and 108 MP Main Camera
--  «Я тебе запрещаю на казахском разговаривать!». Экс-футболист сборной Казахстана рассказал о конфликте с российским тренером
--  Milli tenisçi Zeynep Sönmez, Sasnovich'i eleyerek ana tobloya yükseldi
--  정의당, 尹 신년인사회 불참…"김건희 여사와 식사 이상하지 않겠나"
--  "연말특수에 1등 당첨금도 증가" 로또 1100회 1등 13명 각 22억씩
--  ΗΠΑ: Οικογένεια εντοπίστηκε νεκρή μέσα σε σπίτι – Δίπλα από τη σορό του πατέρα βρέθηκε όπλο
--  “Arrest shtëpie” për Berishën/ Rama: Nuk e shoh si fitore të PS-së
--  Pauerlifting savez izabrao najbolje u 2023.
--  9 عادات تسرع من الشيخوخة.. فاحذروها
--  سماعة تكتشف أمراض القلب مبكراً.. تعرف عليها
--  مطالب بإستقالة المكتب المسير بعد هزيمة اتحاد طنجة أمام الرجاء ب 6 أهداف
--  نادي الاتحاد السعودي يقرر إراحة بنزيمة
--  بعد تذبذب مستواه .. اتحاد جدة يمنح بنزيمة إجازة ل3 أيام
--  بنطلحة الأستاذ المؤسس للعيادة القانونية بالمغرب والعالم العربي يتحدث عن تخرج الفوج الأول للعيادة القانونية في مجال الاستشارة القانونية
--  "الملحمة"… فيلم جديد لعبد الله جعفري حول انجاز المغرب في مونديال قطر
--  المحكمة الدستورية ترفض توسيع صلاحيات مجلس "الشامي" لتشمل تتبع مآل التوصيات
--  ناشرو الصحف بالأقاليم الجنوبية يعلقون اعتصامهم بالمجلس الوطني للصحافة
--  لاعب في قائمة المنتخب الكاميروني المشاركة في "الكان" يثير ضجة بسبب عمره
--  عبد الجليل يصادق على ميزانية الشركة الوطنية للنقل والوسائل اللوجيستيكية
--  جهة طنجة تدشن لبنة تنويع اقتصادها الفلاحي عبر قطب اللوكوس خلال 2023
--  دولة أوروبية تفتح باب الهجرة لأصحاب عشرات المهن
--  Visszavonult a Duna az alsó rakpartról, de még ne rohanjon oda
--  مباشر الدوري الإنجليزي - لوتون ضد تشيلسي
--  Prankster leaves Mariah Carey at Perth nativity scene – just days after Baby Jesus figure returned
--  Dışişleri Bakanı Fidan, 2023'ün son 7 ayında dünyayı 5 kez turladı
--  Behörden können ab 1. Januar Handy-Daten besser überwachen
--  Umman Denizi'nde kaçırılan gemi 2 haftadır Somali açıklarında bekletiliyor
--  Malák z Plzně vyfasoval za napadení rozhodčího trest na tři zápasy
--  Dấu ấn ngành dân số Nghệ An năm 2023
--  傳唱片公司贊助叱咤增得獎機會 陳柏宇直認今年有信心
--  Bartłomiej Wdowik w Dinami Zagrzeb? Łukasz Gikiewicz nie ma wątpliwości
--  Sportmediaset - Ferguson incedibile a gennaio per il Bologna
+-  اصابة اسرائيلي بعملية دهس في الخليل واستشهاد المنفذ
+-  Прегласување на 35 избирачки места во Србија
+-  മഴ വർധിപ്പിക്കുന്ന പദ്ധതികൾക്ക്​ 15 ലക്ഷം ഡോളർ
+-  Reportan ataque a Julión Álvarez
+-  Expropia Gobierno planta de hidrógeno para Pemex en Tula
+-  Endosan a pacientes abasto de medicinas
+-  Amanece la ciudad a 1 grado; sensación térmica de -4
+-  Sivasspor’da Servet Çetin dönemi sona erdi
+-  Ticaret Bakanlığı'ndan açıklama: Yeni yılda da fahiş fiyatın önüne geçilecek
+-  Παναθηναϊκός: Παρουσία Γιάννη Αλαφούζου η προπόνηση και τετ-α-τετ με τον Φατίχ Τερίμ
