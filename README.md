@@ -1,51 +1,11 @@
 # Latest News
--  "فأر في مباراة السيتي وسقوط اليونايتد"... ملخص مباريات الدوري الانجليزي اليوم (صور)
--  Joint venture of arctic mining companies assisting plane crash victims
--  Četiri osobe u zemljotresu zadobile povrede, dvije zadržane u Kantonalnoj bolnici Zenica
--  Cruz Azul presentó a su quinto refuerzo para el Torneo Clausura 2024: Lorenzo Faravelli
--  Why was the foremost Duke in the UK, responsible for orchestrating both the King’s Coronation and Queen Elizabeth II’s funeral, overlooked for a New Year honor?
--  [오피셜] '맨유 출신 유리몸 수비수' 바이, 7년 만에 친정팀 비야레알 복귀
--  Vinhais com orçamento aprovado de 18,5 milhões para 2024
--  New Year's Eve: Everything you need to know ahead of the 2024 fireworks display in Sydney
--  Charlie Adam to become Fleetwood boss as Burnley coach set to be unveiled as Lee Johnson successor
--  Allegri: Juve, è tornata la paura...di prender gol. Yildiz diverso da Chiesa
--  La Justicia de Bolivia inhabilitó a Evo Morales para postularse a la Presidencia de ese país
--  Sangue allo Stadium: seggiolino in testa a tifoso Juve dal settore Roma
--  엄마 낮잠 자던 사이에…16층서 5세 남아 떨어져 숨져
--  Nigel Lythgoe expresses deep distress following allegations by fellow American Idol judge Paula Abdul, accusing him of sexual assault in a hotel elevator. She claims he exerted force, attempting to kiss her and imposing himself on top of her during a meeting at his residence.
--  تقييم كايل ووكر مع مانشستر سيتي ضد شيفيلد يونايتد
--  चीनी सेना पर जिनपिंग की बड़ी कार्रवाई, रक्षामंत्री बदलते ही PLA के 9 जनरल बर्खास्त
--  Helsingin Seagulls kasvatti sarjajohtoaan
--  Jenny Rautionaho yllätti kommentillaan – "En saanut parasta irti"
--  Teemu Pulkkisen peliaika vähenee Venäjällä
--  Cae pareja con envoltorios de cristal
--  Aún sin identificar ejecutado encontrado en montón de basura
--  Implementan operativo Fiscalía y Ejército en Guadalupe y Calvo
--  Milica Stojadinović novim singlom osvaja estradu!
--  تقييم إيدرسون مع مانشستر سيتي ضد شيفيلد يونايتد
--  Zvanični podaci: Zemljotres bio jačine 4,8 stepeni Richtera
--  Росія атакує дронами з півдня і сходу, тривогу оголошено в 11 областях
--  Statua Hrista Spasitelja osvetljena u bojama Peleovog dresa
--  Četiri osobe povrijeđene u Zenici, dvije zadržane u bolnici
--  VIDEO: Dychberúci obrat! Paulovič vystrieľal Pardubiciam finále Spenglerovho turnaja
--  Garrett Denbow leads D-II member Anderson (SC) over Furman 79-74
--  The ITV series “Mr. Bates vs The Post Office,” focusing on the subpostmasters scandal, interestingly omits any reference to Adam Crozier, the former Royal Mail chief, who coincidentally later became the head of… ITV.
--  Sheinbaum destaca acciones en favor del medio ambiente
--  Mayors of Sanctuary Cities Introduced Measures to Slow Down Surge of Migrants
--  Tom Brady should be a studio analyst for NFL games on Fox Sports - rather than an in-game announcer - claims Hall of Fame broadcaster Bob Costas... who also wades in on Travis Kelce's romance with Taylor Swift
--  Вучиќ: Убедлива победа, СНС оди на 130 мандати, нова влада ќе има во февруари или март
--  Moscú: EE.UU. y el Reino Unido son cómplices del mortífero ataque ucraniano a Bélgorod
--  2023, un año de fortalecimiento para Badiraguato: López Elenes
--  Podržavamo povećanje minimalne penzije, ali naći način da se povećaju i ostale
--  İstanbul'da bazı yollar, trafiğe kapalı olacak
--  ماذا قال ناثان أكي بعد الفوز على شيفيلد يونايتد؟
--  Venezuela claims troops will keep deployed till British armed forces vessel leaves waters off Guyana
--  Luke Littler beats his own idol Raymond van Barneveld 4-1 to reach the World Darts Championship quarter finals... with 16-year-old is guaranteed £50,000 pay-out after another Alexandra Palace masterclass
--  ‘푸바오’ 中 반환 소식에…사육사 향해 악플 쏟아지자 에버랜드가 나섰다
--  Record faz corte perto do Réveillon e demite repórter Arnaldo Duran após 17 anos
--  La razón por la que Chris Evans no quería ser el Capitán América
--  قصف إسرائيلي يوقع أكثر من 25 قتيلا في غزة
--  Pemandangan Memilukan Gajah Zimbabwe Mati Massal
--  Jack Smith Says Trump Immunity Claims ‘Threaten To Undermine Democracy’
--  Pivić nakon zemljotresa: Pratimo stanje
--  ¡Cumpleaños del rey! LeBron James y sus increíbles récords en NBA a sus 39 años
+-  Hizbullah: İsrail ile çatışmalarda 1 mensubumuz daha öldü
+-  América: 'Chicote' Calderón estaría sorpresivamente cerca de convertirse en refuerzo azulcrema
+-  Стало известно, сколько Милевский заработал за благотворительный стрим
+-  Tin tức sáng 31-12: Lãi suất cho vay giảm thêm trong 2024?; 18.000 trẻ TP.HCM nguy cơ gặp khó
+-  [오늘날씨] 전국 흐리고 곳곳 비·눈… 수도권 미세먼지 '나쁨'
+-  סיכום שנה: שיא של עשור במספר הילדים והרוכבים ההרוגים
+-  홍석준, 현역 의원 두고 quot;정치인이라기보다, 몸 불편한 장애인 대표quot;
+-  광주시, 내년 달라지는 제도middot;시책hellip;7개 분야 54개 공개
+-  전남도, 2024년 새해 달라지는 시책 공개hellip;7개 분야 108건
+-  새해 첫 일출은 독도 7시26분...2023년 마지막 일몰은 신안 가거도
