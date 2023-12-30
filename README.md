@@ -1,51 +1,51 @@
 # Latest News
--  بملابس بابا نويل وهدايا وأشجار الكريسماس.. طلاب المدرسة اليابانية بشرم الشيخ يحتفلون بالعام الجديد - صور
--  سعر الذهب اليوم السبت في مصر بحلول تعاملات المساء
--  Police arrest 10 people ferrying suspected donkey meat to Nairobi
--  Police begin removing Extinction Rebellion protestors who blocked Amsterdam A10 highway
--  Humanitarna akcija organizacije "Svi za Kosmet": Paketići za decu sa KiM
--  Китай запустил крупнейший завод по производству этанола из угля
--  PM Modi Unveils Mega Development Projects In Ayodhya Worth Rs 15,700 Cr
--  UNESCO Recognises India’s Garba As World’s Intangible Cultural Heritage
--  Delhi CM Returns From Vipassana Camp Ahead Of ED Summons
--  IndiGo Apologises After Woman Found Worm In Sandwich Served To Her
--  Сопругата на Штекли меѓу обвинетите за шверц на крадени луксузни коли
--  سعود بن صقر يشهد ختام منافسات "مهرجان محمد بن زايد لسباقات الهجن العربية الأصيلة"
--  ¿Cómo afectará la decisión de Milei a los jóvenes colombianos que estudian en Argentina?
--  Yatırımcılar dikkat! Yılın son haftası borsada kazandıran ve kaybettiren hisseler belli oldu
--  Fluminense aposta na pré-temporada para recuperar Lelê
--  Felvételi siker: rangos külföldi egyetemeken tanulhatnak tovább a magyar diákok
--  دھماکہ ہوگیا، افسوسناک خبر
--  Lehrer schickte Sex-SMS an 13-jährige Schülerin
--  জাজিরায় উৎসবমুখর পরিবেশে আওয়ামী লীগের মতবিনিময় ও আলোচনা সভা
--  India likely to travel to Pakistan for Davis Cup tie
--  New Hope For Patients With Ocular Toxoplasmosis: Advances In Alternative Therapies
--  Πώς διασώθηκε ο ορειβάτης που τραυματίστηκε στο όρος Δίρφυ: Δείτε βίντεο
--  Семнадцать детей пострадали в Белгороде в результате обстрела ВСУ - детский омбудсмен
--  Wirbel um Skisprung-Hoffnung: Wellinger entgeht Disqualifikation nur ganz knapp
--  Organismo electoral Pakistán rechaza candidatura de ex primer ministro Imran Khan para elecciones 2024
--  Consumo recuerda los derechos de los pasajeros ante la huelga de 'handling' de Iberia en Reyes
--  Solapur Exhibition : सोलापुरात कृषी प्रदर्शनाचं आयोजन, सोन्या नावाच्या बैलाची चर्चा
--  United Cup Highlights: Hurkacz/Swiatek v Melo/Haddad Maia
--  United Cup Highlights: Hurkacz/Swiatek v Melo/Haddad Maia
--  United Cup Highlights: Hurkacz/Swiatek v Melo/Haddad Maia
--  Consumo recuerda los derechos de los pasajeros ante la huelga de 'handling' de Iberia en Reyes
--  Consumo recuerda los derechos de los pasajeros ante la huelga de 'handling' de Iberia en Reyes
--  “영입하지마!”→아스널, 토트넘, 첼시 등에 ‘경고’한 감독…지난 시즌 33경기 20골 ST→올 시즌 0경기 출장에도“최고 컨디션 주장”
--  TRAMVAJ UDARIO U AUTOMOBIL Saobraćajna nesreća u centru Beograda
--  טסלפפה על הקריאות לעזוב: "זה לא חדש לי, אני לא אחד שפורש"
--  Ojo Dedicates Super Eagles AFCON Squad Inclusion To Local Players
--  Le TMM se stabilise au niveau de 7,99%, en décembre 2023
--  USVOJEN BUDŽET GRADA BOSANSKA KRUPA ZA 2024. GODINU U VISNI OD 17 322 832 KM
--  Rama zgjedh njeriun e vitit: Sylvinho, ka konsensus kombëtar
--  Dit is het woord van het jaar volgens Onze Taal
--  DMI: Snestorm på vej
--  महाराष्ट्र के रायगढ़ में बस पलटने से बड़ा हादसा... 2 यात्रियों की मौत, 50 से ज्यादा घायल
--  İlin sensasiyalı müttəhimləri
--  ABD'nin 'Kızıldeniz ittifakı' çürük çıktı
--  Epic Games Store filtra su juego gratis para siempre del 30 de diciembre en la promoción de Navidad
--  Costa Rica encarará 2024 con disímiles retos
--  Ciclistas de Maturín llevaron Regalos a niños de Agua Clara y caseros vecinos
--  Inteligencia artificial y el futbol en el abismo
--  &quot;ZATRAŽIO SAM POMOĆ I MOJ ŽIVOT SE PROMENIO&quot; Entoni Hopkins proslavio 48. godišnjicu kako je treza
--  Kocaeli'de DEAŞ operasyonu: 11 gözaltı
+-  To kituose pasauliuose NASA niekada nėra dariusi! Ką siunčia į Saturno ir Jupiterio palydovus
+-  Lietuva ir Latvija ginkluojasi. Perka Ukrainoje pasiteisinusias oro gynybos sistemas (Foto)
+-  Į Žemę parskraidintuose asteroido Ryugu mėginiuose aptiktos gyvybės atsiradimui svarbios dalelės
+-  „Mažiausiai penki aukščiausio rango karininkai.“ Skelbiama, ką likvidavo Ukraina
+-  [ŽT] „Tai finišo tiesioji.“ Ukraina skelbia, kada atvyks F-16 (Foto)
+-  „Putiną nužudys artimas žmogus iš Kremliaus rato“. Skelbiamos Vangos pranašystės 2024-iesiems
+-  [ŽT] Ko Putinas nepasveikino su Naujaisiais metais
+-  Karšta! Rusijos raketa Lenkijoje praskriejo pro „Patriot“ vietą ir JAV bazę
+-  محافظة عراقية تعطل الدوام الرسمي يوم غد الاحد
+-  أضر بـ20 ملياراً.. استرداد المدان الهارب "أحمد عبدالله كسار" من تركيا (صورة)
+-  Prince Harry, Meghan need 'King's blessing far more than Charles needs them'
+-  Pijat Panggilan Pasutri, Cara Menikmati Waktu Relaks yang Romantis
+-  HIFK:lta upea ele vastustajan ikonille
+-  Flipkart से बेहद सस्ते में खरीदें iPhone 14, जानें ऑफर
+-  These are the best cities to celebrate New Year's Eve this year, survey finds
+-  Naci Görür'den Elazığ depremi açıklaması!
+-  Britanski ministar: U besmislenom Putinovom ratu Rusija će do 2025. imati više od 500.000 žrtava
+-  Mos i bëni këto gjëra natën e ndërrimit të viteve, pasi do ju ndjekë fati i keq përgjatë gjithë vitit
+-  صدر مملکت عارف علوی نے شوکت خانم کینسر ہسپتال کے حق میں آواز بلند کردی
+-  Cole Palmer Oo Jabiyey Rikoodhkii Gool-dhalinta Eden Hazard iyo Arjen Robben Ee Chelsea
+-  Los Toros toman una decisión con un jugador
+-  Den Westen „in Abhängigkeit zwingen“: Ex-Botschafter warnt vor russischem Erfolg in Ukraine
+-  Πώς είναι να δουλεύεις υπό τις οδηγίες Σπιλέφσκι; Η απάντηση του Μπένγκτσον στο Balla!
+-  Senate passes N28.77tn 2024 budget
+-  Ministria e Shëndetësisë: Mos u dehni me alkool, mos shkaktoni aksidente në komunikacion!
+-  Pistons – Raptors : la franchise de Detroit est à 48 minutes du record ultime de la lose
+-  LeBron James en saison 21, personne n’a (évidemment) jamais fait mieux
+-  Goran Dragic prend sa retraite !
+-  ضبط كبتاغون في المطار
+-  Gürcü milyarder siyasətə qayıtdığını ELAN ETDİ
+-  Disturbing Incident: 3-month-old baby kidnapped from Harare CBD salon
+-  Na graničnom prelazu Bosanska Kostajnica duge kolone na ulazu u BiH
+-  ÖSV-Langläufer bei Tour-Auftakt alle in Quali out
+-  Il pedigree del cane: un viaggio nella storia e nella razza del nostro cucciolo
+-  Sheinbaum promete regreso de tren México-Guadalajara
+-  Vazhdon vala e protestave në Serbi, kërkohet anulimi i zgjedhjeve
+-  Elecciones 2024: INE frena a 66 militantes de partidos que buscaban ser funcionarios de casilla
+-  स्कूल की छुट्टियां: छात्रों के लिए बड़ी राहत..! नए साल में इतने दिन बंद रहेंगे स्कूल, छुट्टियों की लिस्ट जारी, तुरंत करें चेक
+-  Ελεγκτική: Ποινικό αδίκημα το ενδεχόμενο αίτησης από Γενικό Εισαγγελέα για παύση Γενικού Ελεγκτή
+-  Un violento enfrentamiento entre bandas dejó a tres menores heridos en San Rafael
+-  AKTUÁLNE Na Slovensku KONČIA DVE obľúbené TELEVÍZNE stanice! Toto si už o ZOPÁR DNÍ nepozriete: Vieme, čo je za tým
+-  Rihannu s rodinkou nafotili paparazzi: Ich módne kreácie vám vyrazia dych!
+-  MIMORIADNE Poplach v prešovskej nemocnici: Pre bombovú hrozbu evakuovali celý centrálny príjem!
+-  Piloto Gil de Ferrán morre durante corrida
+-  Expremiér Berisha je pre vyšetrovanie korupcie v domácom väzení
+-  Pár kúpil dvestoročný dom, v suteréne ich čakalo nepríjemné prekvapenie: Pozrite, čo sa skrývalo za múrmi!
+-  Οδοντίατρος χρησιμοποίησε μια γυναίκα ως πειραματόζωο: Της έκανε 20 σφραγίσματα σε ένα ραντεβού
+-  Оборона Авдіївки: ЗСУ виконали три важливих завдання
+-  La drástica decisión de Edinson Cavani en el medio de sus vacaciones
+-  Nową ulicę zbudowała kolejowa spółka. Czy będzie jej patronował twórca uczelni?
