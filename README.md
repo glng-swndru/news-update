@@ -1,51 +1,11 @@
 # Latest News
--  나이지리아에서 납치됐던 한국인 2명, 17일 만에 풀려나
--  이스라엘군, 가자 중남부 집중공격…"하루새 180여명 사망"
--  Salario mínimo en Colombia sube 12 %: queda en $1.300.000 y con subsidio $1′462.000
--  Real đón 3 cầu thủ trở lại tập luyện
--  La Rueda de la Historia 2023 | Acarreados de 150 pesos y repunte de inseguridad en municipios
--  Nokian tulos jäänee tänä vuonna alle aiemman ennusteen – lisenssien uusimisneuvottelujen odotetaan jatkuvan ensi vuoden puolelle
--  ممثلة مصرية تتعرض لـ«السرقة» على يد عربي في تركيا
--  '외국인 인재와 가족' 강원에 온다… '지역특화형 비자' 추진
--  삼척시, 지방물가 안정관리 평가 ‘가’ 등급…춘천 등 5곳 ‘나’ 등급
--  강릉시, '2023 지속가능 교통도시 평가' 최우수상 수상
--  [심층기획] 강원 프랜차이즈 수 인구1만명 당 63개로 최다…전국 평균 55개
--  직장 찾아 수도권으로 떠나는 강원청년들… 청년인구 순유출 1574명
--  강원도 종합청렴도 1단계 하락 '4등급'…18개 시군 중 '1등급' 전무
--  전국 흐리고 눈·비…수도권·강원 시간당 1∼3㎝ 강한 눈
--  홍천읍 이원태 씨 성품 기탁
--  홍천 북방면 손글씨 봉투 후원금 훈훈
--  DC withdraws Sanam Javed’s detention order, LHC disposes of plea
--  Bí mật thương vụ Messi tới Mỹ
--  Sin variación precio de los combustibles en República Dominicana
--  Auszeichnungen: Titel für Shirley Bassey und Ridley Scott
--  Nominations of Murad Saeed, other PTI leaders rejected
--  PML-N set to hold election rally in Sheikhupura today
--  ‘Hallucinations’: Michael Cohen sent fake AI-generated legal cases to his attorney for use in court
--  Russland: Wahlen und neue Weltordnung: Putin will die Macht festigen
--  Die südkoreanische Polizei verteidigt die vielbeachteten Ermittlungen gegen den Schauspieler Lee Sun-kyun wegen illegalen Drogenkonsums
--  واعدي وبراعم المدينة يحققان ثنائية دوري شهداء معشق في ختام الموسم الرياضي 2023
--  شركة شاومي تكشف عن أول سيارة لها بقوة قصوى 673 حصان لمنافسة بورش تايكان
--  أغرب فرصة ضائعة في التاريخ سجلت في ملعب عربي (فيديو)
--  علماء يكتشفون طريقة جديدة مبتكرة تدمّر 99% من الخلايا السرطانية
--  أغذية تساعد في الحفاظ على سلامة الغدة الدرقية
--  Behchokǫ̀'s holiday alcohol ban aimed at keeping celebrations safe, says chief
--  뉴진스, 日 ‘홍백가합전’ 출연 확정…특별 무대 선사
--  Basın katili İsrail! Gazze'de 84 günde 106 gazeteci öldürüldü
--  Gazze'de basın terörü! İsrail 84 günde 106 gazeteciyi katletti
--  Gelombang ketiga: Mangsa banjir Terengganu tinggal 735 orang
--  Mercados de café, cacau e açúcar registram ganhos no ano
--  Sporting ist auf der Suche nach dem Wolves-Star
--  2 Iowa geese who found each other after losing their mates still thriving
--  El cierre alcista de 2023 de Wall Street confirma el buen pronóstico de la economía estadounidense
--  Tunnel mit Strom und Belüftung: Israel: Haben Versteck des Hamas-Führers gefunden
--  Judge allows lawsuit that challenges Idaho's broad abortion ban to move forward
--  Những mẫu xe độc đáo của Suzuki sắp xuất hiện tại Tokyo Auto Salon 2024
--  Tan France is "100 per cent" done having children
--  Evakuiertes Gebiet in Lingen: Anwohner fühlen sich allein gelassen
--  장애 친구 하루 한 끼 주며 감금…억대 대출 받게 한 20대들
--  PT IMIP Sebut Korban Ledakan Tungku Smelter Akan Dapat Uang Tunggu Rp 10 Juta
--  Muere el empresario venezolano Gustavo Cisneros a los 78 años #29Dic
--  Хозяйка сообщила о смерти единственной в России полицейской собаки породы корги
--  Descarrilamentos afetam operações de trem e metrô nesta sexta no Rio
--  Cambio en el Gobierno: Eduardo Serenellini asumirá como secretario de Comunicación
+-  IHC questions caretakers’ neutrality for elections
+-  South African launches case at UN accusing Israel of genocide
+-  Penelope Cruz will receive Variety's Creative Impact in Acting Award at the Palm Springs International Film Festival
+-  Akeredolu’s absence’ll be felt by nationalists, federalists, patriots – Aregbesola
+-  Riyadh’s King Khalid airport recognized for customer care
+-  Saudi Arabia to plant 12m trees, shrubs in 2024
+-  Saudi Arabia issues guidelines to streamline customs system
+-  KSrelief, UNHCR sign $6m funding deal for displaced people in Sudan, South Sudan, Chad
+-  Trump ballot decision leads Maine lawmaker to call for impeachment of top state election official
+-  Russian strikes on Ukraine ‘appalling assaults’: senior UN official
