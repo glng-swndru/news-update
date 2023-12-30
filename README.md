@@ -1,51 +1,11 @@
 # Latest News
--  Jahr der Entscheidungen – warum 2024 die Welt verändern wird
--  Recuperação do mercado de trabalho sob Lula desfaz os estragos causados pela Lava Jato, Temer e Bolsonaro
--  스트레이 키즈, 2023 눈부신 활약상…커리어 하이 빛났다
--  Бывшего полицейского-взяточника отправят в колонию Приморья на 10 лет
--  Dispara y mata a hombre desde motocicleta
--  Acusa Trump 'criminalización cristiana' de Biden
--  Muere trabajador tras derrumbe en obras de río Tula
--  Thành lập Sở An toàn thực phẩm đầu tiên của cả nước
--  日本遭遇最严重禽流感疫情 禽流感的症状有哪些
--  Tiroler Tageszeitung, Leitartikel, Ausgabe vom 30. Dezember 2023. Von CHRISTIAN JENTSCH. "Auf der Suche nach der Hoffnung".
--  'Van Dijk Romania' có thể đem lại những gì cho hàng thủ Barca?
--  Alaba lên tiếng về chấn thương dây chằng
--  Tân binh Barca: "Vô địch Champions League là giấc mơ của tôi"
--  Viettel sa sút, 1 cái tên nói lời chia tay
--  "Tôi nóng lòng sát cánh bên cạnh Robert Lewandowski và Raphinha"
--  Barca ra quyết định cho mục tiêu của Arsenal
--  5 đội hình xuất phát trẻ nhất lịch sử Premier League
--  "Chelsea là đội bóng thất bại của năm"
--  מזג האוויר: ימים בהירים, בשלישי התקררות קלה
--  Shai Gilgeous-Alexander erupts for 40 points as Nuggets bested by Thunder again in Denver
--  Dwarka News : પોલીસ સ્ટેશનમાંથી ચોરાયેલ પોલીસ વાનનો મામલો, બે ડ્રાઈવરને કરાયા સસ્પેન્ડ
--  Shabab Al Ahli soar to UAE Super Cup glory in thrilling Dubai comeback
--  Luton Town vs Chelsea, Kapan Mainnya? Tayang di Mana?
--  `Selection process of idol for Ram Temple complete`
--  Peace pact with ULFA paves way for lasting progress in Assam: PM Modi
--  Biden admin sidesteps Congress again, approves military equipment sale to Israel
--  সংখ্যালঘুদের নিরাপত্তা নিয়ে উদ্বেগ কমেছে
--  Shehnaaz Gill wishes to work with Ranbir: Have seen him at events from afar
--  New Year Travel Plan: ਨਵੇਂ ਸਾਲ 'ਤੇ ਭੁੱਲ ਕੇ ਵੀ ਇਨ੍ਹਾਂ ਸੈਰ-ਸਪਾਟੇ ਵਾਲੀ ਥਾਂ 'ਤੇ ਨਾ ਜਾਓ, ਮਜ਼ਾ ਹੋ ਜਾਵੇਗਾ ਕਿਰਕਰਾ
--  Lộ mối nguy của trí tuệ nhân tạo: ChatGPT biết nói dối và gian lận
--  Simulasi Penanganan Bencana di Stadion Gajayana Malang
--  Instansi Pemerintahan di DIY Paling Banyak Dikeluhkan Masyarakat Sepanjang 2023
--  «Детройт» — «Нэшвилл»: видеообзор матча НХЛ
--  Cummins makes critics eat their words after big 2023
--  Cummins makes critics eat their words after big 2023
--  Victoria Beckham finally turns a profit after 15 years of losses since her fashion and beauty brands launch
--  Di Wonogiri, Ganjar Ajak Artis & Influencer Berdialong dengan Anak Muda, Janjikan Internet Super Cepat
--  निसानको चौँथो जेनेरेसनको एक्स ट्रायल सार्वजनिक
--  Hubble, încă relevant pentru NASA. Descoperirea impresionantă care pune galaxia într-o nouă lumină
--  В Беларуси с января установлен предел, выше которого нельзя поднимать цены
--  Katherine Mielniczuk: British volunteer medic found dead in bed in Kyiv, described as ‘incredible woman’
--  Gibran Blusukan di Pasar Labuan Bajo, Borong Bahan Pokok
--  PWNU Jakarta Gelar Muhasabah Akhir Tahun dan Doa Bersama untuk Pemilu 2024
--  لاہور: گھر میں آ آتشزدگی سے 3 افراد جھلس کر جاں بحق
--  Poland says ‘everything indicates’ a Russian missile briefly entered its airspace and left
--  वाराणसी से दिल्ली जाने वाली वंदे भारत अब इस स्टेशन पर भी रुकेगी, अंदर देखें पूरी जानकारी
--  2023 major world events: Tension over Chinese spy balloons in US, Turkey earthquake kills 56k; more
--  IND vs SA: ਟੀਮ ਇੰਡੀਆ ਦੀ ਸ਼ਰਮਨਾਕ ਹਾਰ 'ਤੇ ਭੜਕੇ ਸੁਨੀਲ ਗਾਵਸਕਰ, ਗੁੱਸੇ 'ਚ ਬੋਲੇ- ਕੀ ਮਜ਼ਾਕ ਹੈ...?
--  В США спустя 65 лет вернули кошелек, потерянный в кинотеатре
--  ارجنٹینا نے برکس تنظیم کا حصہ بننے کی دعوت مسترد کردی
+-  هوكشتاين الى لبنان؟!
+-  梅花滿園 山頭白雪地白霜 福壽山農場冬季美景如畫
+-  Kareena Kapoor Khan shares her `1 plus 1 equals five` mantra for 2024
+-  وول ستريت تضيف 2023 إلى السجل الذهبي
+-  Un compositor que trabajó para BTS se quita la vida a los 41 años
+-  من ينسحب: "الحزب" أم اليونيفيل؟
+-  منصة أبشر توضح كيفية تحديث المؤهل الدراسي بالخطوات
+-  ما هي رسوم مخالفة الانعطاف لليمين حينما تكون الإشارة حمراء؟
+-  ما هي طريقة التقديم في ساند للعاطلين عن العمل؟ المؤسسة العامة للتأمينات تجيب
+-  لاہور میں دھند کا راج برقرار، موٹرویز ٹریفک کیلئے بند
