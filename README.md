@@ -1,51 +1,51 @@
 # Latest News
--  "דני אבדיה פשוט שחקן טוב, אני מוכן להתווכח על זה עם כל אחד"
--  7 bin 500 TL olan ev kirası 25 bin TL'ye çıkarılabilir mi? Ev sahibi mi haklı, kiracı mı?
--  BPH Migas: Perlu Manajemen Persediaan Penuhi Cadangan Operasional BBM
--  Ketua DPR Minta Pemerintah Waspada Bencana Alam di Akhir Tahun
--  Näin käytät ilotulitteita oikein: Unohda alkoholi, muista suojalasit ja lue käyttöohjeet
--  Miroslav Aleksić: Nema više protesta ispred RIK-a, periodično će biti velikih skupova
--  ঢাকা-৭ আসনে সুষ্ঠু ভোট নিয়ে ভোটাররা সংশয়ে: হাজী মিলন
--  দলীয় সরকারের অধীনে নির্বাচন নিয়ে এবি পার্টির আলোচনা
--  Primer boletín de deportes
--  Plus de 15 familles sans abris après les inondations à Matadi
--  Prabowo Masak Besar di Cilincing Jakarta
--  US-Wahl: Was ein Duell Biden gegen Trump doch noch verhindern kann
--  ডেঙ্গুতে ২৪ ঘণ্টায় আরও ১ জনের মৃত্যু
--  País ainda enfrenta desconfiança em relação à vacinação
--  Πόλεμος Ισραήλ: 21.672 νεκρούς ανακοίνωσε η Χαμάς - Τετράωρη παύση εχθροπραξιών στη Ράφα
--  “2023년 수고하셨습니다” 승강기서 간식 나눔한 어린이 '훈훈'
--  Tenía 27 años: Bryan Josué, el otro asesinado tras enfrentamiento en la Libertad, Culiacán
--  Хулоса чиқармаётган одамлар: автоавариялар даҳшатли “душман”га айланмоқда.
--  Хитой порахўрлик учун жазони кучайтирди.
--  Самарқанддаги шахмат турнирида келишилган ўйин ўтказилгани маълум бўлди.
--  Тошкент шаҳрида PRIZMA дўконлари сони 3 тага етди.
--  U Novoj godini promiјeniće i naziv i status
--  В дюжине областей Казахстана объявлено штормовое предупреждение
--  Shopping on New Year’s Day 2024? From Costco to Walmart, see what stores are open and closed
--  এক লাখ টন জ্বালানি তেল নিয়ে তিন জাহাজ বন্দরে
--  Mehmet Büyükekşi'den sağlık durumuna ilişkin açıklama
--  Nilüfer Kadın Korosu'ndan moral konseri
--  Burası Uludağ! Kayak için geldiler, kızakla idare ettiler
--  Argentína odmietla členstvo v zoskupení BRICS, Milei sa však chce stretnúť s predstaviteľmi rozvojových ekonomík
--  Wolves XI vs Everton: Starting lineup, Hwang Hee-chan injury latest and confirmed team news
--  Weeks after lamenting his inability to see a doctor, Canada-based Nigerian lawyer dies from gastric cancer
--  It’s New Year (nearly) as usual in wartime Moscow
--  Shopping on New Year's Day 2024? From Costco to Walmart, see what stores are open and closed
--  Radovan Treći - put komada od diplomskog rada do legendarne...
--  TSMC-voorzitter Mark Liu werd mogelijk geforceerd om op te stappen door problemen bij bouw fabrieken VS
--  Vrhunac vodenog vala na Dunavu u Hrvatskoj se očekuje u nedjelju: Za sad nema ugroze
--  Vent violent : Météo France place trois départements de l'Ouest en vigilance orange
--  Hallan muerto a un recluso tras incendio en un pabellón de Tacumbú
--  Trinchieri vietoje Maksvyčio: ko galima tikėtis „Žalgiriui”?
--  2023'ün en çok ve en az kaza yapan otomobil markaları: İşte ilk 5...
--  Cuiabá anuncia retorno de patrocínio do Sicred para temporada 2024
--  Dyche makes Calvert-Lewin call, senior int'l not in squad - confirmed Everton XI vs Wolves
--  Nišić: Povećanje najnižih penzija prvi korak u povećanju standarda najugroženijih
--  “I 100 migliori allenatori di sempre”. Un solo italiano nella Top 10
--  Verstappen e la rivelazione sulla 24 ore di Le Mans: "Cosa mi ha chiesto Alonso"
--  Retail Inflation For Industrial Workers Rises Marginally To 4.98 Per Cent In November
--  African, Asian Migrants Use Nicaragua as New Path to U.S.
--  Antero cita despesas que não consegue arcar e deixa de ser sócio do Mixto Esporte Clube
--  Un job dating pour réunir recruteurs et chercheurs d'emploi à Alençon
--  Orri Steinn á upp­leið
+-  Lars Findsen kræver erstatning efter droppet sag
+-  Lars Findsen kræver erstatning efter droppet sag
+-  مجهولون يغتالون شخصاً بوابل من الرصاص امام سيارة النجدة في البصرة
+-  "المرور" يطرح لوحات إلكترونية مميزة عبر أبشر غدا .. طريقة الوصول للخدمة
+-  عاجل.. ماذا يحدث بعد قبول الاعتراض على الضمان بشكل نهائي؟ .. توضيح مهم
+-  У Ивлеевой потребовали 70 миллионов за подмоченную репутацию
+-  Kreml setzt Großangriffe fort: ISW: Russland nutzt Schwachstellen in der Luftverteidigung aus
+-  Branko Karačić više nije šef struke HŠK Posušje
+-  Zwitserse waakhond wil bonussen bankiers aanpakken
+-  ЦИК на Азербайджан регистрира Илхам Алиев като кандидат за президент
+-  POLITICS IN PAKISTAN; 2023 ROUNDUP
+-  Προφυλακιστέος ο Νορβηγός για τη δολοφονία του 32χρονου αστυνομικού στη Θεσσαλονίκη – «Είχα το μαχαίρι για αυτοάμυνα»
+-  Menos de 20% das delegacias da mulher funcionam 24 horas
+-  Líder bosnianskych Srbov Dodik sľubuje, že napriek varovaniam USA rozdelí Bosnu a Hercegovinu
+-  Ja, in Alberta gibt es einheimische Ratten – und ein Mann kann sie nicht loswerden
+-  Chu Thanh Huyền khoe cảnh vào bếp, khẳng định một điều chắc nịch khiến netizen "quay xe": Xứng đáng làm vợ Quang Hải!
+-  Cô gái mặc áo yếm, quần đùi siêu ngắn bán đồ nướng gây tranh cãi
+-  Phương Nhi vào top 20 gương mặt đẹp nhất các cuộc thi sắc đẹp 2023
+-  MC xinh đẹp làng game tổ chức hôn lễ ở Việt Nam sau tuần trăng mật đi 8 nước châu Âu
+-  Dàn KOC bứt phá “thần tốc” trong năm 2023: Dám vươn mình ra quốc tế, gọi tên những nhân tố mới ấn tượng
+-  Modrić: Uživam u svakom trenutku u Realu jer ne znam dokad će trajati
+-  Dạ dày người phụ nữ "thủng" đến 30 vết chỉ do một sơ suất, có vấn đề đường tiêu hoá đặc biệt lưu ý
+-  উন্নয়নের স্বার্থে বিএনপি-জামায়াতের ভোটকেন্দ্রে আসা উচিত: নয়ন
+-  বঙ্গবন্ধুর প্রতিকৃতিতে মৎস্য ডিজির শ্রদ্ধা
+-  İnşaat demiri ticaretinde 1 Ocak'tan itibaren yeni dönem başlıyor...
+-  Trabzon'da kızını öldüren kişi intihar etti
+-  Ribuan Warga NTT Sampaikan Harapan ke Gibran
+-  عمران خان مستبعد من انتخابات 2024 في باكستان
+-  Óttast að Grinvíkingar í göngu­túr endi í sprungum
+-  Gdje je kraj Pandorine kutije: Čuvari i promoteri nezavisne Crne Gore pokušali su da izazovu sukobe da bi očuvali vlast
+-  الطن بـ 128 ألف جنيه.. طلب إحاطة بشأن ارتفاع أسعار تقاوي البطاطس
+-  أول وآخر دولة تستقبل العام الجديد 2024.. تعرف عليهما
+-  Fallece Iván Rodríguez Chávez, rector de la Universidad Ricardo Palma
+-  Jahresrückblick 2023: Wie ein strenger Reporter den „wahrscheinlich längsten“ Parteitag überstanden hat
+-  Mogi antecipa serviço de coleta de lixo por conta do feriado de Ano Novo
+-  “Fluturojnë” çmimet në fundvit
+-  Former Hibs boss Lee Johnson sacked for the second time this season
+-  „Angie hat unglaublich gespielt“: Kerber meistert ihr gelungenes Comeback mit Zverev
+-  Templenomics: From Ujjain To Kashi To Ayodhya, What Is PM Narendra Modi`s Motive Behind Temple Renovation
+-  Bebeklerde Ateş Nasıl Düşürülür: Sağlık İpuçları ve Öneriler
+-  Prvá žena na svete sa môže pochváliť majetkom 100 miliárd dolárov. Riadi svetoznámu značku
+-  Янги Тошкент дирекцияси раҳбари 350 млрд. сўмлик буюртмани қариндошига тегишли компанияга берди(ми?)
+-  Το ξέφρενο πάρτι του Νεϊμάρ στην τριήμερη κρουαζιέρα του (video)
+-  דקות ראשונות אחרי כארבעה חודשים: ליאל עבדה נכנס בדקה ה-83 בדרבי
+-  Calendarul majorărilor pe 2024. Când începe recalcularea pensiilor?
+-  Sorteio da Mega da Virada é neste domingo
+-  Ukraine War Maps Show Ground Won, Lost as Russia Steps Up Attacks
+-  Mladá Boleslav odvolala Kuliče. Neakceptoval prý nastavený způsob spolupráce
+-  Branko Karačić više nije šef struke HŠK Posušje
+-  Bebekler Neden Kusar: Anneler İçin Kusma Sorunlarına İlişkin Kapsamlı Bir Rehber
