@@ -1,51 +1,51 @@
 # Latest News
--  Bývalá misska skončila za mrežami: Kariéru modelky vymenila za pašovanie zbraní!
--  Influencerka pod paľbou kritiky: Sociálny experiment v posilňovni, pozrite na VIDEO, veď bola takmer nahá!
--  Klimatickí aktivisti celé hodiny blokovali úsek diaľnice okolo Amsterdamu
--  Zwickau verliert Heimspiel gegen Dortmund mit 25:31
--  Arroz, ¿aliado o enemigo de la dieta?
--  Названы преимущества пробных занятий в фитнес-клубах
--  Risto Dufva hyvästeli Nordiksen ja herkutteli hienolla mahdollisuudella - "No joo se on sitten asia erikseen"
--  الشيخ عبد القادر الجيلاني (رحمه الله).. رجل الدعوة والإصلاح والتمكين
--  Nottingham F. - Man. United, staðan er 1:0
--  عقيلة صالح يلتقي أكثر من 30 حزباً سياسياً على مستوى ليبيا.
--  لجنة الانتخابات الباكستانية ترفض ترشح عمران خان لانتخابات 2024 .
--  وزارة الدفاع الروسية تعلن تدمير 32 طائرة مسيرة أوكرانية .
--  The Full Monty actor Tom Wilkinson dies aged 75
--  بدء فعاليات المؤتمر الثامن للجمعية الليبية لأطباء التخدير والعناية الفائقة بمركز بنغازي الطبي.
--  Nottingham Forest 0-0 Man United - Premier League: Live score, team news and updates as Red Devils defender Raphael Varane almost puts through his own net
--  אוז'בולט ולאיוס עשויים לפתוח בהפועל ת"א, מי יחליף את סק במכבי חיפה?
--  Oscar-nominated star Tom Wilkinson who starred in The Full Monty, Batman Begins and Mission: Impossible - Ghost Protocol dies aged 75
--  Oscar-nominated star Tom Wilkinson who starred in The Full Monty, Batman Begins and Mission: Impossible - Ghost Protocol dies aged 75
--  Sabrina Moh: "Melilla tiene un magnífico futuro de prosperidad y de desarrollo económico y social"
--  Italie : Bennacer passeur face à Sassuolo
--  ما تشرب وتسوق" في جبيل والبترون
--  Украйна атакува Белгород, Русия свиква Съвета за сигурност на ООН
--  Nach Krawallen im Vorjahr - Berliner Anwohner über Silvester-Angst: „Das wird auf jeden Fall schlimmer“
+-  Polícia pátra po nezvestnej Petre Hatiarovej (40) z Dlhého Poľa: Nezvestná je už niekoľko dní
+-  HIFK:n Ville Peltonen kehui vuolaasti uutta kanadalaistaan
+-  اتحاد كرة القدم يطالب بمعاقبة الاتحادات الرياضية في الكيان
+-  «Барселона» решила отдать номер Месси скандальному футболисту
+-  Dinamove tenisice sa zvijezdom u grbu, prodaju se za nemalu cifru
+-  خبير: لا تستخدم عبارة "لا أعرف" عند الحديث مع مديرك .. وتلك البدائل
+-  مانشستر سيتي يتجاوز شيفيلد بثنائية
+-  المدرب أمجد أبو طعيمة يغادر معان رسمياً
+-  الاتحاد الأردني يطالب بعزل إسرائيل رياضيا
+-  Nottingham F. - Man. United, staðan er 1:1
+-  Orędzie Donalda Tuska. Sprawdź, co powiedział premier
+-  Tragedija u Daruvaru: Žena smrtno stradala u stanu koji se zapalio u centru grada
+-  The 25-year office construction boom that transformed New York City's skyline has hit the brakes, driven in part by record office vacancies
+-  «En el corre corre» maturineses realizan compras de último momento
+-  Shots fired in Fleetwood area: Surrey RCMP
+-  Rio Ferdinand involved in heated on-air debate with Jermaine Jenas after being accused of showing 'bias' towards Man United: 'Why are you questioning me?!'
+-  U PROVOD U BRUSU I GAĆAMA: Brutalni snimak Sindi Models iz lifta - ušetala u PROVIDNOM brusu, nema šta nije pokazala!
+-  UK's most wanted list revealed as National Crime Agency hunt criminals around the world
+-  Salernitana, tra poco Filippo Inzaghi in conferenza
+-  Uzbekistan's Veolia Energy opens tender for supply of metal pipes
+-  Tüfekle polise direnen şahsı özel harekat polisi etkisiz hale getirdi
+-  İlk soykırım davası Güney Afrika’dan
+-  వైసీపీ.. అబద్ధాల ప్రభుత్వం
+-  Tennis star Emma Raducanu was forced to use scooter to get around during surgery rehab
+-  ఆర్టీసీ బస్సు - వ్యాన్‌ ఢీ
+-  Le pagelle del Milan - Pulisic regala un fine anno più sereno. Leao esce tra i fischi di San Siro
+-  Suriye ordusunun İdlib'e saldırısında 2 sivil öldü, 15 sivil yaralandı
+-  ప్రభుత్వం దిగొచ్చే వరకు పోరాడుతాం
+-  Celtic hero Sutton reignites Cantwell feud as he makes McGregor jibe
+-  Bom Prato tem cardápio especial de Ano Novo e funciona em horário diferenciado em Bauru
+-  Cofepris emite alerta sanitaria por comercio ilegal de insecticida
+-  సమ్మెబాట పట్టిన కేజీబీవీ ఉద్యోగులు
+-  Milan-Sassuolo 1-0: il tabellino della gara
+-  ఇసుక లారీ బోల్తా
 -  Broadway star Maurice Hines dies at age 80 - just weeks after his birthday
--  WHO chief ‘very concerned’ by Gaza infectious disease threat
--  Inter, 3 futbolcusuyla sözleşme yeniledi
--  Endonezya'da 6.5 büyüklüğünde deprem
--  Gazze'de halk yiyecek temin edemiyor
--  Германија размислува за враќање на задолжителното служење воен рок
--  Nem Győzike, őzike rohangált az egyik hazai bevásárlóközpontnál
--  (UŽIVO) CRVENA ZVEZDA - IGOKEA: Crveno-beli protiv oslabljenog tima iz Laktaša stavljaju tačku na 2023. godinu
--  Amanda Bynes is ending her podcast to train to be a manicurist
--  Зеленский заявил об отсутствии у Украины территориальных потерь
--  Knicks are trading Barrett and Quickley to Raptors for Anunoby, AP source says
--  Profețiile șamanilor pentru 2024: predicțiile despre războiul din Gaza, soarta lui Vladimir Putin, dar și a lui Joe Biden și cât de rău sau bine va fi în următoarele 12 luni
--  В США увидели откат ВСУ к позициям перед началом контрнаступления
--  Grupo palestino afirma que un ataque aéreo israelí mató a un soldado cautivo en Gaza
--  Musk reagon pas sulmit të robotit ndaj punonjësit në fabrikën e tij Tesla! Tmerr nga konflikti inteligjencë Artificiale-njeri
--  Nottingham Forest 0-0 Man United - Premier League: Live score, team news and updates as Red Devils defender Raphael Varane almost puts through his own net
--  Elazığ'daki 4.2'lik deprem anının yeni görüntüleri ortaya çıktı
--  Украина «вернула себе море» в 2023 году - Зеленский
--  Endonezya'da 6,5 büyüklüğünde deprem meydana geldi
--  Pardubice - Kanada. Dynamo bojuje o finále Spengler Cupu proti kanadskému výběru
--  مباحثات بين طرابلس وبرلين حول استئناف المشاريع في ليبيا
--  Diogo Jota is caught on the EA Sports FC Companion App as leaves his phone unlocked upon arrival to Liverpool training ahead of Newcastle game
--  VSK-stjärnan njuter: ”En ynnest att spela”
--  Elk Valley RCMP asks be on the lookout for Chihuahua
--  Israeli-French hostage recounts harrowing experience in captivity
--  Premier League: les Wolves rendent hommage au père de Mario Lemina décédé
--  Some farmers are applauding the government, for scrapping the clean car discount
+-  Selá í Vopnafirði á toppnum
+-  „Bild“: Kanzler Scholz plant Besuch in den Flutgebieten
+-  Klara Geywitz wirbt für rascheren Austausch der Gasheizungen – und will ihre eigene behalten
+-  Yargı siyasî alet gibi kullanılıyor
+-  వస్తాయో..రావో?
+-  Guinée : Comment réagi Conakry face aux « critiques » de l’ONU…
+-  Ernestina Godoy pide se vote su ratificación lo más pronto posible
+-  తుపాకులు, కత్తులు చూపి..
+-  Roy Hodgson calls speculation over his Crystal Palace future ‘disrespectful’
+-  జగన్‌ పాలనంతా మోసపూరితమే
+-  చంద్రబాబు సమక్షంలో టీడీపీలో చేరిన వైసీపీ నేతలు
+-  Expropia Gobierno planta de hidrógeno para Pemex en Tula
+-  Psicopedagogas dão dicas de como entreter as crianças de maneira lúdica e educativa durante as férias
+-  Kushinagar News: ग्राहक सेवा केंद्र संचालक से असलहे के बल पर 1.42 लाख रुपये की लूट
+-  Kathua News: पेयजल किल्लत से लोग परेशान, विभाग को अवगत करवाने पर भी नहीं हुआ समाधान
