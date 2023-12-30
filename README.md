@@ -1,51 +1,51 @@
 # Latest News
--  Infarto in pista: morto in Florida l'ex pilota di 56 anni. "McLaren sotto shock"
--  Lavezzi, il post dopo l'incidente: l'ospite è una vecchia conoscenza Serie A
--  Yaremchuk, Meucci per Atleticom We Run Rome 2023
--  Yeman Crippa e Nadia Battocletti alla BoClassic per finire l'anno
--  Lần đầu livestream bán hàng, Hoa hậu Hương Giang tiết lộ doanh thu gây bất ngờ sau 5 tiếng
--  Cá kho Vũ Đại sẵn sàng "cưỡi" máy bay phục vụ khách thập phương dịp Tết
--  Alegna, feliz por su Año
--  Entrenadores campeones buscan equipo para el 2024
--  Huevo, un alimento saludable y nutritivo
--  Ordena jueza pagar a todos los afectados de Aras
--  Crecen disruptores del comercio electrónico
--  Sudáfrica acusa a Israel ante la CIJ de actos de genocidio
--  #COLUMNA PsicoTips: ¿Hoy cómo estoy? Conoce y comprende tus Emociones #30Dic
--  Moviliza La Familia Michoacana a taxistas, acusan
--  Jornal gera curiosidade entre os mais novos
--  “Qiymətləndirmə fəaliyyəti haqqında” qanun qüvvəyə minib
--  La manca d'agents de policia local obliga a modificar el recorregut de la cursa de Sant Silvestre de Girona
--  Altınova Semt Pazarında Kadınlara Yönelik Güvenlik Bilinci Oluşturuldu
--  Śląsk Wrocław potwierdził trzeci zimowy transfer [OFICJALNIE]
--  Kolejne departamenty Francji z zakazem spożywania ostryg
--  ‘Bujjikondave’ from ‘Saindhav’ shows different facet of father-daughter relationship
--  V posteli mal slávne sexice, dovolenkuje s dcérou: Predviedla sexi obliny!
--  Chystáte sa na Silvestra do Nízkych Tatier? Za odpálenie ohňostroja vám hrozí TAKÁTO mastná pokuta!
--  Mercato - PSG : Une offre dégainée pour Kylian Mbappé !
--  Власти Пскова приобрели почти полсотни квартир для детей-сирот в 2023 году
--  Con gái vẽ bức tranh chỉ có 2 mẹ con, cô giáo quyết định tâm sự với người mẹ và sự thật lặng người
--  #InfografíaIMP Tabla de Posiciones LVBP: Águilas del Zulia ganan el primer encuentro ante Tigres #30Dic
--  La Generalitat aparca els Jocs Olímpics d'Hivern per l'escassetat d'aigua i neu
--  대구 달성군 구지면 아파트 16층서 5세 남아 떨어져 사망
--  미국에 떴던 中정찰풍선, 미국 통신망 활용해 날았다…통신사는 부인
--  Nadal afronta su retorno más difícil
--  Ar vairākām ballītēm Simona Kubasova-Prakaša nosvin meitas divu gadu jubileju
--  LIVE NK afstanden | Patrick Roest verpulvert de concurrentie en grijpt titel op de 10.000 meter
--  El sancocho competirá con el cerdo en cena de fin de año
--  Οι αφίξεις μεταναστών στην Ιταλία αυξήθηκαν κατά 50% μέσα στο 2023
--  মুন্সীগঞ্জের লৌহজংয়ে বিএনপির লিফলেট বিতরণ
--  নির্বাচন নিয়ে দেশি-বিদেশি ষড়যন্ত্র হচ্ছে: শেখ হাসিনা
--  নানা জটিল রোগের মূলে কোলেস্টেরল! শরীরে এর বৃদ্ধি বুঝবেন যেভাবে
--  দেলপাড়া আইডিয়াল স্কুল অ্যান্ড কলেজের বৃত্তিপ্রাপ্তদের পুরস্কার বিতরণ
--  হবিগঞ্জ প্রেসক্লাবের সভাপতি রাসেল, সম্পাদক পাবেল
--  Wall Street má za sebou skvelý rok, S&P 500 výrazne posilnil
--  «Известия» опубликовали кадры первых минут после обстрела центра Белгорода
--  CESTAT affirms Maharashtra State Power Generation Company’s ₹36.7 Million Refund Claim based on Existing Records [Read Order]
--  Turkey rounds up 189 IS suspects
--  Ameriška vlada mimo kongresa odobrila prodajo orožja Izraelu
--  Doris, Grše i Kuzma & Shaka Zulu najavili doček u Splitu: Evo kad tko starta s nastupom
--  المقاومة: أوقعنا 20 جنديا بين قتيل وجريح غرب غزة
--  Jarige Frans Bauer (50) krijgt ‘verslavend’ filmpje cadeau: ‘Je bent knap, slim en werkt hard’
--  Halikarnas Turizm'den Bodrum'a 5 yıldızlı otel geliyor
--  Son dakika! Gazze'de can kaybı 21 bin 672'ye yükseldi
+-  Crimmitschauer Bahnhof ist fest in Eispiraten-Hand
+-  Espagne :: Blondine Françoise Koumial(Pdg De Sasu Le President) Fait Le Bilan De L'année 2023 Et Balance Tout :: Spain
+-  HIFK-tähti saavuttaa historiallisen rajapyykin
+-  আ.লীগ উন্নয়ন করে, বিএনপি মানুষ পোড়ায়: তথ্যমন্ত্রী
+-  10 kişinin hayatını kaybettiği katliam gibi kaza işte böyle meydana gelmiş
+-  Johannes Voigtmann, THY Avrupa Ligi'nde haftanın MVP'si
+-  Bursa'dan Gazze'ye 4 tır insani yardım malzemesi gönderildi
+-  Osmangazi Belediyesi'nden Dr. Sadık Ahmet'e vefa
+-  Emekli aylığını çekmek için evden çıkmıştı, dere yatağında ölü bulundu
+-  Biden hükümeti bir kez daha İsrail'e "acil silah satışı" kararı aldı
+-  Diyarbakır Havalimanı'nda 'ısınma' krizi
+-  Kırmızı ışıkta geçen Tesla önce minibüse sonra KGYS çarptı
+-  Sinan Ateş, ölümünün birinci yıl dönümünde anılıyor
+-  Sivasspor'da Kayserispor maçı hazırlıkları devam etti
+-  Albaniens Ex-Premierminister Berisha wurde wegen Korruption unter Hausarrest gestellt
+-  Slipknot: Nachlass des Ex-Schlagzeugers will vor Gericht ziehen
+-  गुजरात: 13 लाख रुपये से भरा बैग लेकर बैठी थी लड़की, छीनकर ले गए बदमाश
+-  Virginia Lt. Gov. Winsome Sears Says America Is Still Exceptional
+-  Tennisstar Angelique Kerber verliert ihr erstes Spiel nach dem Mutterschaftsurlaub
+-  Kisiklott és felborult egy tehervonat, nem járnak a vonatok Nagymaros és Verőce között
+-  مانشستر سيتي يُسيطر على المشهد الرياضي في العالم 2023
+-  Bắt 2 người chở hàng trăm kg pháo nổ từ Quảng Trị vô Khánh Hòa
+-  ارتفاع حصيلة الاعتقالات بالضفة الغربية منذ 7 أكتوبر الماضي إلى 4860 معتقلا فلسطينيا
+-  "كوديسا" تطالب بعدم تمكين المغرب الذي "يرتكب جرائم ضد الانسانية" من رئاسة مجلس حقوق الإنسان
+-  قوات الاحتلال الصهيوني تعتقل 15 فلسطينيا بالضفة الغربية
+-  المهرجان الوطني للرياضة النسوية : افتتاح الطبعة الرابعة بتوقرت بمشاركة 150 رياضية
+-  جثمان المجاهد اللواء المتقاعد خالد نزار يوارى الثرى بمقبرة العالية بالعاصمة
+-  Triển lãm Bảo đạc trường minh kể chuyện thiền phái Liễu Quán
+-  Los peajes hacia Madrid y Asturias subirán un 5% desde Año Nuevo
+-  بمناسبة حلول العام الجديد.. فتح ساحة الاحتفالات ببغداد امام حركة المواطنين
+-  مع اغلاق البورصة.. الدولار يواصل الارتفاع في أسواق العراق
+-  Vinesh Phogat: સાક્ષી મલિક બાદ વિનશ ફોગાટે પરત કર્યો એવોર્ડ, કર્તવ્ય પથ બહાર મુક્યો અર્જુન એવોર્ડ
+-  إلغاء عدد من رحلات قطارات «يوروستار» بعدما غمرت المياه نفقاً قرب لندن
+-  LAŽNA ELITA OPET MALTRETIRA BEOGRAĐANE Zbog njihovog protesta blokiran centar grada, vijore zastave Majdana, na ulici bi da ruše vlast
+-  'I married a prisoner – people think I'm desperate but I know it's true love'
+-  Svirali su famoznu Odu radosti koja već dva stoljeća održava Nadu čovječanstva budnom
+-  Tabela de jogos do Corinthians na Copinha 2024: datas e horários
+-  Kestel'de Şehitleri Anma Ve Filistin'e Destek Yürüyüşü Düzenlendi
+-  Dos internos perdieron la vida y seis resultaron heridos en la Unidad Nro. 4 de Santiago Vázquez
+-  Durva vonatbaleset: kisiklott és felborult egy tehervonat
+-  Das ändert sich in der Umwelt und im Verkehr
+-  Resolusi Marc Klok di 2024: Persib Bandung Angkat Trofi BRI Liga 1
+-  Amanda Abbington says she was 'distraught' by sudden Strictly Come Dancing exit in rare update
+-  Silvester: „Wir akzeptieren Verletzungen“ – Jugendliche liefern sich eine Böllerschlacht | Regional
+-  Kickoff | Starting XIs: TS Galaxy v Chippa
+-  Year Ender 2023: Top 9 controversial moments that shook the sporting world in 2023
+-  Bakan Göktaş'tan yaralı askerlere ziyaret
+-  Uzman isim operasyonları değerlendirdi: Terör örgütü köşeye sıkışmış durumda
+-  Ulosajoja ja epäiltyjä törkeitä rattijuopumuksia Pohjois-Savossa yöllä ja lauantaiaamuna
+-  الأمراض المزمنة تفتك بأجساد قيادات مدينة تعز| كتب مطيع سعيد سعيد المخلافي
