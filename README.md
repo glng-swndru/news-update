@@ -1,11 +1,11 @@
 # Latest News
--  35歲男患鼻咽癌太太流產 搬屋後以為「撞鬼」 求醫揭1事中毒致癌
--  280 millió forintot szakítottak a Falusi Civil Alap pénzeiből a Fidesz-KDNP-hez közeli szervezetek, Semjén Zsolté a lehető legtöbbet kapta
--  OVAKO DANAS IZGLEDA COBE Povukao se sa scene i NE ŽIVI U SRBIJI: Pevaču su predviđali BLISTAVU KARIJERU, a on se posvetio porodici
--  Paula Abdul SUES American Idol producer and So You Think You Can Dance co-judge Nigel Lythgoe for alleged 'sexual assault'
--  Marca: «Реал» предпримет последнюю попытку подписать Мбаппе в январе 2024 года
--  Automotive Lightweight Materials Market, Share, Size, Trends, Industry Analysis, Forecast and Outlook
--  Insípida reducción del desempleo en Neiva
--  UP Police Constable: यूपी पुलिस कांस्टेबल भर्ती के आवेदकों को मिली एक और बड़ी राहत, 13 साल संबंधी शर्त भी हटी
--  Opposition boykotter omvalg ved brøkdel af serbiske valgsteder
--  লেবাননে হিজবুল্লাহ’র স্থাপনায় হামলার দাবি ইসরায়েলের
+-  A Mol csökkenti az árrését, az Orbán-kormány még az üzemanyagadó adóját is megadóztatja
+-  Kız arkadaşıyla yürürken bıçaklı saldırıya uğradı
+-  Bursa'da mobilya imalathanesi alevlere teslim oldu
+-  1 Ocak'ta ücretsiz olacak toplu taşıma araçları Resmi Gazete'de
+-  Asgari ücret artışının ardından gözler en düşük emekli maaşlarına çevrildi!
+-  ഉദ്യോഗസ്ഥർ എത്താൻ വൈകി: പെരുമ്പാമ്പിനെ പഞ്ചായത്ത് അംഗത്തിന്റെ വീട്ടിൽ തള്ളി
+-  셀트리온, 프롤리아 바이오시밀러 CT-P41 국내 품목허가 신청
+-  Gazabor flyr till Rafah: "Gatorna är proppfulla"
+-  ปชป.ประชุม สส. 2 ม.ค.เตรียมอภิปรายงบฯ ‘ประมวล’ยันจัดเต็มสมบทบาทฝ่ายค้าน เน้นพูดภาพรวมประเทศ
+-  ยิปซีพยากรณ์ดวงรายวัน ประจำวันเสาร์ที่ 30 ธันวาคม 2566
