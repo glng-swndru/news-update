@@ -1,51 +1,51 @@
 # Latest News
--  Başkan Erdoğan'dan Süper Kupa açıklaması
--  Išlo o minúty! Polícia vypátrala na Sliači muža (60) v zlom psychickom stave, privolaní museli byť aj záchranári!
--  V obrovskej rýchlosti vpálil do mamičky († 37) s dcérkou († 11) na chodníku: Polícia ho prepustila, údajne to nebolo úmyselne!
--  AKTUÁLNE FOTO TRAGICKÉ PÁTRANIE Ivetu DNES našli v RIEKE: Ide už o ŠIESTE mŕtve TELO v TOMTO regióne za PÁR DNÍ, viacerých našli v POTOKU
--  Lunteren kan na finaleavond direct door richting vliegveld
--  DVO verliest twee keer op Korfbal Challenge
--  נבחרת ארגנטינה תפריש את החולצה של ליאו מסי: "המעט שאנחנו יכולים לעשות"
--  שלום קר: התאחדות הכדורגל הירדנית קוראת לפיפ"א להשעות את ישראל
--  בין עסקת שבויים נוספת לדיוני היום שאחרי בעזה: בישראל מאשרים כי חלה התקדמות קלה בשיחות העקיפות עם חמאס
--  Chennai police to deploy 18,000 personnel to ensure incident-free New Year celebrations
--  Isso não é guerra de Israel contra o Hamas. É um massacre do regime da ditadura israelense de Netanyahu contra o povo palestino
--  Kaushambi News: जिला पंचायत अध्यक्ष बोलीं- 50 लाख मांगे, पूर्व सदस्य ने कहा कि सुबूत दें
--  Kaushambi News: पांच वर्ष की बच्ची से पड़ोसी ने किशोर ने किया दुष्कर्म
--  Kaushambi News: डिप्टी सीएमओ ने पूछा डिग्री क्या है, झोलाछाप बोला...बीएससी
--  Kaushambi News: तहसीलदार पर बदसलूकी का आरोप, भड़के किसान
--  Vizio agrees to pay $3 million for alleged ‘false’ refresh rate claims
--  Mathura News: अंतिम पायदान के व्यक्ति के लिए काम कर रहीं केंद्र-प्रदेश की सरकार
--  Mathura News: आलू की फसल पर पाले का प्रकोप
--  Mathura News: युवाओं को नमो एप से जोड़ेंगे कार्यकर्ता
--  Mathura News: आज घर से निकलने से पहले रूट देख लें
--  Ruski izvori: Ukrajinci pogodili Belgorod kasetnom municijom
--  Ingresará frente frío el 1 de enero; traerá lluvias al estado
--  “Kam harruar të buzëqesh”/ Selvia bashkëshortja e Shpat Kasapit i kërkon të birit ndjesë publike
--  Delhi News: सीएम मनोहर लाल गुरूग्राम से करेंगे वन टाइम सेटलमेंट योजना का शुभारंभ आज
--  Delhi News: एनआरआई की 40 करोड़ की जमीन हड़पने में दो और गिरफ्तार
--  Weather : कंपाने वाली ठंड से जूझ रहा है यूपी, लखनऊ सहित ये शहर सबसे ठंडे, कई इलाकों के लिए ऑरेज और यलो अलर्ट
--  Mahoba News: सीएचसी चरखारी ने पूरी कराई कोरोना पोर्टल की प्रक्रिया
--  Hamirpur News: महिला की मौत, डॉक्टर पर गलत इलाज का आरोप
--  Amroha News: शमी के नक्शेकदम पर छोटा भाई मोहम्मद कैफ, बंगाल की रणजी टीम ने हुआ चयन
--  Amroha News: लगातार मिल रहा एक्सपायर्ड दवाइयों को जखीरा, चल रही जांच
--  Amroha News: पतेई खादर में पकड़ी गई राशन की कालाबाजारी
--  Amroha News: समझौता होने के बाद सफाई कर्मचारी काम पर लौटे
--  Amroha News: वेव इंडस्ट्रीज के प्रबंधन को चेतावनी के साथ भाकियू का धरना समाप्त
--  Amroha News: गन्ना मूल्य घोषित करे सरकार वरना तीन को चक्का जाम करेंगे किसान
--  Kushinagar News: अमृत भारत ट्रेन का कप्तानगंज जंक्शन पर हुआ भव्य स्वागत, उमड़ी भीड़
--  Kushinagar News: गन्ने की तौल न होने से नाराज किसानों ने किया प्रदर्शन
--  Kushinagar News: रेलिंग तोड़कर ओवरब्रिज से गिरा ओवरलोड ट्राला, बड़ा हादसा बचा
--  Un hombre cae al mar y desaparece durante un crucero temático en Brasil
--  Pojačani napadi na Harkov nakon što je Rusija pogođena raketama
--  Pilibhit News: उधारी के रुपये मांगने पर बुजुर्ग को पटककर पीटा, पैर टूटा
--  Pilibhit News: शिकायत के बाद लेखपाल ने लगाई वास्तविक रिपोर्ट
--  Pilibhit News: तापमान 15, तराई का सबसे ठंडा दिन रहा शनिवार
--  Agra News: उत्साह से निकाली गई पूजित अक्षत कलश यात्रा
--  Agra News: लोकसभा चुनाव की तैयारियों में उत्साह से जुटें कार्यकर्ता
--  Barabanki News: 25 नए शिक्षक-शिक्षिकाओं को मिले नियुक्ति पत्र
--  Barabanki News: 50000 वाहन डायवर्ट, रामभक्तों के नाम रहा हाईवे
--  Barabanki News: बर्फीली हवाओं से बढ़ी गलन, कांपे लोग
--  Barabanki News: फार्म की करोड़ों की जमीन पर अवैध कब्जा, 23 पर केस
--  Barabanki News: क्रिप्टो करेंसी का झांसा देकर शिक्षक से 13 लाख ठगे, मुकदमा
--  Udham Singh Nagar News: घायल बाघिन को देख पसीजा अभिनेता रणदीप हुड्डा का दिल, सीएम से मांगी मदद
+-  “클롭과 사이가 매우 좋다”... 리버풀, 음바페 영입전 참가 가능성↑
+-  'Here We Go' 로마노 인증! 토트넘, '루마니아 철벽 DF'에 대한 첫 구두 제안 준비
+-  Belqorod hücumunun təşkilatçıları cəzalandırılacaq
+-  برنامج الأغذية العالمي: نسابق الزمن في غزة لتجنب المجاعة والانهيار
+-  "بؤس ونحس".. 3 أبراج نسائية حظهم تعيس العام القادم
+-  البث العبرية: الأجهزة الأمنية تبحث خطة عودة سكان غزة إلى شمالي القطاع
+-  3 علامات مبكرة تخبرك بأن مرض السكر على وشك الحدوث
+-  نتنياهو: نعمل ضد إيران والتهديد من جانبها سيزداد إن امتلكت سلاحاً نووياً
+-  تحذيرات من خلافات والمصائب لمواليد هؤلاء الأبراج آخر أوقات 2023
+-  عضو بالكونجرس: نريد تفسيرًا لاتخاذ إدارة بايدن قرارًا ثانيًا بإرسال أسلحة لإسرائيل
+-  نقيب الزراعيين يكشف أسباب الارتفاع الجنوني لأسعار البطاطس
+-  رويترز: البحرية البريطانية تلقت بلاغًا حول واقعة جنوب غربي اليمن
+-  محلل سياسي سوداني: قوات الدعم السريع تتقدم وسط مقاومة شعبية شرسة
+-  رسميا.. طارق يحيى مديرا فنيا لإيسترن كومباني في القسم الثاني
+-  Pogledajte dvije majstorije Brozovića, Hrvat glavna zvijezda preokreta
+-  Garantizan servicio de camiones urbanos para este fin de año e inicio del 2024 en Mazatlán
+-  Sözleri ayakta alkışlandı! Necip Fazıl Ödülleri'ne katılan Başkan Erdoğan: Üstad'ın en büyük hayali Ayasofya'yı açma şerefine eriştik
+-  İptal edilen Süper Kupa maçına ilişkin Başkan Erdoğan'dan sert tepki
+-  Basın toplantısına katılmadılar! İsrailli bakandan Netanyahu'ya şok
+-  III. Uluslararası Araştırma-Geliştirme ve Tasarım Konferansı, İstanbul Bilgiyi Ticarileştirme Merkezinde düzenlendi
+-  Manchester United'da kötü gidişat sürüyor!
+-  Лос-Анджелес оголосив про підписання легенди Тоттенгема Льоріса
+-  이장원-배다해 부부 '알콩달콩'
+-  이지혜-문재완 부부, 웃는 모습이 닮았네
+-  조우종-정다은 부부, 사랑의 하트
+-  Ouça o relato em direto. Portimonense - Sporting
+-  Um morto e três feridos num incêndio em São João da Madeira
+-  Conselho de Segurança da ONU reúne-se este sábado sobre ataque a Belgorod
+-  هل يمكن الوقاية من فقر الدم؟
+-  نتنياهو: محور فيلادلفيا ينبغي أن يكون تحت سيطرة إسرائيل
+-  قطر تفقد أسامة الطيري في آسيا
+-  שנה מהסרטים: דירוג 10 יצירות הקולנוע של 2023
+-  ח"כים לביידן: "מה המקורות להאשמות על אלימות נגד פלשתינים?"
+-  Trinidad y Tobago hace todo lo posible para frenar la ola de violencia
+-  استثناء الموفد والمبتعث والمجاز من النقل الخارجي للمعلمين
+-  La tajante respuesta de López Muñoz, surgido de River, sobre si aceptaría jugar en Boca: “Hoy por hoy te digo que…”
+-  Rauchentwicklung durch Austritt von Kältemittel
+-  OPINION: Kidnappers In Southeast Nigeria
+-  سلسلة بشرية دعماً للمقاطعة في العاصمة عمان (صور)
+-  Knicks’ NBA championship odds unchanged after OG Anunoby trade
+-  Leman Sam'dan kötü haber!
+-  Cumhurbaşkanı Erdoğan'dan ertelenen Süper Kupa hakkında ilk yorum: Cumhuriyet 85 milyonun ortak değeridir
+-  6,5 büyüklüğünde deprem meydana geldi
+-  Dlaczego Portugalia będzie najlepsza w Europie
+-  (VIDEO) Bes prirode! Ogromni talasi sručili se na Kaliforniju! Ljudi su vrištali i bežali na sve strane!
+-  Hombre ataca a otro dentro de bus en San Vicente
+-  Mysteries of the Mongolian Arc: Gaps hint at unexpected purpose of ancient wall
+-  Hugo Lloris verlässt Tottenham Hotspur - Wechsel zu MLS-Klub Los Angeles FC
+-  Soccerladuma | Man Utd Suffer NINTH Premier League Defeat
+-  Sunrise favourite Sam Mac announces engagement to Rebecca James after welcoming first child
