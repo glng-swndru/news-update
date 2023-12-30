@@ -1,51 +1,51 @@
 # Latest News
--  Elazığ'da korkutan deprem
--  İşgalci İsrail askerleri Gazzelilerin evlerinden para çalıyor: Evimden aldıkları paranın değeri 10 bin ABD dolarından fazla
--  Serveti 100 milyar dolara yaklaşan ilk kadın: Françoise Bettencourt Meyers
--  Elazığ 4.2 ile sallandı
--  10 metreden uçan kamyon evin ikinci katına çarptı
--  Manisa'daki feci kazada otomobil hurdaya döndü
--  Carragher says ‘this shows what a mess the new ownership have made at Chelsea’ as they close in on selling £35m star
--  Alojamento local? Publicados coeficientes para cálculo da nova taxa extra
--  Xuất hiện các tờ rơi truy tìm vợ ông Trump, không ai biết bà ấy ở đâu?
--  Lãnh đạo Quảng Bình giải thích số thu du lịch gần 5.100 tỉ đồng: 'Cách tính riêng'
--  Sinh viên TP.HCM mang phim đồ án tốt nghiệp ra rạp công chiếu
--  Panic As Fleeing Suspected Kidnappers Kill Two In Nasarawa
--  "بعد إصابة جندي".. الاحتلال يعلن السيطرة على منفذ عملية الدهس بالخليل
--  الفلوس هتجري وراهم مع بداية 2024.. أكثر 5 أبراج ستجمع "ثروة ضخمة" من المال
--  مستندات مطلوبة.. غدا سحب ملفات "وظيفة نيابة إدارية" لخريجي الإسكندرية
--  قفزة لأسعار الذهب العالمية في 2023 ورقم قياسي بنهاية العام (تفاعلي)
--  بعد شفائه.. تفاصيل جلسة مدرب الزمالك مع مصطفى شلبي
--  حماس: أمريكا تشارك إسرائيل في حرب الإبادة بعد إعلان تزويدها بقذائف مدفعية
--  9 أعراض تظهر عند الاستيقاظ تكشف ارتفاع مستويات السكر في الدم
--  وزير النقل يتفقد عددًا من المشروعات بمحافظة الدقهلية
--  5 فوائد للسبانخ أهمها الحماية من الأنيميا.. لكن احذرها في هذه الحالة
--  "Atentado à liberdade de expressão e lawfare contra Breno Altman", diz Pedro Serrano
--  هل أحرقوا بعد ما قتلوا؟! .. شاهد : محامي كويتي يعلق على رواية السلطات العراقية حول مقتل الكويتي والسعودي ويكشف كذبتهم بالأدلة الجنائية
--  الأرصاد يتوقع أجواء باردة وأمطارا على هذه المحافظات خلال الساعات القادمة
--  LIVE WK darts | Entertainer Williams verrast Heta en is volgende tegenstander Van Gerwen
--  В тоннеле под Ла-Маншем остановили движение поездов Eurostar из-за подтопления
--  Μητροπολίτης Ν. Ιωνίας Γαβριήλ: «Ελάτε στην Εκκλησία να υποδεχθούμε μαζί το νέο Έτος με προσευχή»
--  Frans kabinet is wars van ‘Dry January’: ‘Past niet bij onze cultuur’
--  حلمت اني اسوق سيارة زوجي للمتزوجه
--  الثعبان الأبيض في المنام للمتزوجة
--  TRANSFER HABERLERİ - Beşiktaş'ta sürpriz ayrılık! Bailly'nin ardından...
--  القبض على أكثر من ألف شخص بينهم يمنيين حاولوا الدخول إلى السعودية
--  Dragusin Milan, sfuma definitivamente? C’è il sì del giocatore ULTIME
--  İktidarın Suudilere neden boyun eğdiği ortaya çıktı. Okuyunca kahrolacaksınız
--  Em defesa da democracia, Lula subirá a rampa do Congresso mais uma vez no 8/1
--  आज का राशिफल व पंचांग : 31 दिसम्बर, 2023, रविवार
--  PM Modi Flags Off 2nd Vande Bharat Train For Shri Mata Vaishno Devi Katra- New Delhi Route
--  KBC 15: Sara Ali Khan plays her popular `Knock-Knock` game with Amitabh Bachchan
--  KBC 15: Amitabh Bachchan adores the beauty of legendary actor Sharmila Tagore
--  В Госдуме предложили учредить "Орден Носка"
--  В очереди на Крымский мост с двух сторон скопилось 630 машин
--  Son dakika! Elazığ'da 4.2 büyüklüğünde deprem
--  TWTW Weekly Wrap Up: 31 December-06 January 2024
--  Year Ender 2023: DigiYatras To Mega Orders, Indian Aviation Reaches Uncharted Heights
--  GALATASARAY HABERLERİ - Kerem Aktürkoğlu ameliyat oldu!
--  Era Baru Keuangan Berkelanjutan
--  Geng Bersenjata Tembaki Pesta Ulang Tahun Remaja di Meksiko, 6 Tewas
--  İşte erkeğe güç veren afrodizyak etkili şifalı bitkiler...
--  Azərbaycan Premyer Liqası: 180 oyunda 469 qol
--  المقاومة الفلسطينية تستهدف الجيش الإسرائيلي بالشيخ رضوان وخان يونس
+-  "דני אבדיה פשוט שחקן טוב, אני מוכן להתווכח על זה עם כל אחד"
+-  7 bin 500 TL olan ev kirası 25 bin TL'ye çıkarılabilir mi? Ev sahibi mi haklı, kiracı mı?
+-  BPH Migas: Perlu Manajemen Persediaan Penuhi Cadangan Operasional BBM
+-  Ketua DPR Minta Pemerintah Waspada Bencana Alam di Akhir Tahun
+-  Näin käytät ilotulitteita oikein: Unohda alkoholi, muista suojalasit ja lue käyttöohjeet
+-  Miroslav Aleksić: Nema više protesta ispred RIK-a, periodično će biti velikih skupova
+-  ঢাকা-৭ আসনে সুষ্ঠু ভোট নিয়ে ভোটাররা সংশয়ে: হাজী মিলন
+-  দলীয় সরকারের অধীনে নির্বাচন নিয়ে এবি পার্টির আলোচনা
+-  Primer boletín de deportes
+-  Plus de 15 familles sans abris après les inondations à Matadi
+-  Prabowo Masak Besar di Cilincing Jakarta
+-  US-Wahl: Was ein Duell Biden gegen Trump doch noch verhindern kann
+-  ডেঙ্গুতে ২৪ ঘণ্টায় আরও ১ জনের মৃত্যু
+-  País ainda enfrenta desconfiança em relação à vacinação
+-  Πόλεμος Ισραήλ: 21.672 νεκρούς ανακοίνωσε η Χαμάς - Τετράωρη παύση εχθροπραξιών στη Ράφα
+-  “2023년 수고하셨습니다” 승강기서 간식 나눔한 어린이 '훈훈'
+-  Tenía 27 años: Bryan Josué, el otro asesinado tras enfrentamiento en la Libertad, Culiacán
+-  Хулоса чиқармаётган одамлар: автоавариялар даҳшатли “душман”га айланмоқда.
+-  Хитой порахўрлик учун жазони кучайтирди.
+-  Самарқанддаги шахмат турнирида келишилган ўйин ўтказилгани маълум бўлди.
+-  Тошкент шаҳрида PRIZMA дўконлари сони 3 тага етди.
+-  U Novoj godini promiјeniće i naziv i status
+-  В дюжине областей Казахстана объявлено штормовое предупреждение
+-  Shopping on New Year’s Day 2024? From Costco to Walmart, see what stores are open and closed
+-  এক লাখ টন জ্বালানি তেল নিয়ে তিন জাহাজ বন্দরে
+-  Mehmet Büyükekşi'den sağlık durumuna ilişkin açıklama
+-  Nilüfer Kadın Korosu'ndan moral konseri
+-  Burası Uludağ! Kayak için geldiler, kızakla idare ettiler
+-  Argentína odmietla členstvo v zoskupení BRICS, Milei sa však chce stretnúť s predstaviteľmi rozvojových ekonomík
+-  Wolves XI vs Everton: Starting lineup, Hwang Hee-chan injury latest and confirmed team news
+-  Weeks after lamenting his inability to see a doctor, Canada-based Nigerian lawyer dies from gastric cancer
+-  It’s New Year (nearly) as usual in wartime Moscow
+-  Shopping on New Year's Day 2024? From Costco to Walmart, see what stores are open and closed
+-  Radovan Treći - put komada od diplomskog rada do legendarne...
+-  TSMC-voorzitter Mark Liu werd mogelijk geforceerd om op te stappen door problemen bij bouw fabrieken VS
+-  Vrhunac vodenog vala na Dunavu u Hrvatskoj se očekuje u nedjelju: Za sad nema ugroze
+-  Vent violent : Météo France place trois départements de l'Ouest en vigilance orange
+-  Hallan muerto a un recluso tras incendio en un pabellón de Tacumbú
+-  Trinchieri vietoje Maksvyčio: ko galima tikėtis „Žalgiriui”?
+-  2023'ün en çok ve en az kaza yapan otomobil markaları: İşte ilk 5...
+-  Cuiabá anuncia retorno de patrocínio do Sicred para temporada 2024
+-  Dyche makes Calvert-Lewin call, senior int'l not in squad - confirmed Everton XI vs Wolves
+-  Nišić: Povećanje najnižih penzija prvi korak u povećanju standarda najugroženijih
+-  “I 100 migliori allenatori di sempre”. Un solo italiano nella Top 10
+-  Verstappen e la rivelazione sulla 24 ore di Le Mans: "Cosa mi ha chiesto Alonso"
+-  Retail Inflation For Industrial Workers Rises Marginally To 4.98 Per Cent In November
+-  African, Asian Migrants Use Nicaragua as New Path to U.S.
+-  Antero cita despesas que não consegue arcar e deixa de ser sócio do Mixto Esporte Clube
+-  Un job dating pour réunir recruteurs et chercheurs d'emploi à Alençon
+-  Orri Steinn á upp­leið
