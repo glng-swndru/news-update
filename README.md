@@ -1,51 +1,51 @@
 # Latest News
--  Le grandi non steccano nella prima di ritorno
--  Juventus-Roma 1-0: Rabiot stende Mourinho, Allegri a -2 dall'Inter
--  لبنان.. مطلوب خطير يلقي قنبلة يدوية باتجاه عناصر أمنية
--  مجلس الحرب الإسرائيلي يمنح رئيس الموساد ضوءا أخضر لإتمام صفقة تبادل مع حماس
--  الأمين العام للمجلس المحلي يحضر حفل تكريم تلاميذ مدرسة الرائد الأهلية بالشيخ عثمان
--  “على من يضحك تبون”.. صحيفة تمولها أبوظبي تُلمع ملك المغرب على حساب شيطنة الجزائر
--  Kaos uoči otvaranja zimskog prijelaznog roka, Fifa suspendirala odluku, klubovi ne znaju što učiniti
--  Ernstig ongeval in Stroe
--  “Oni neće prestati sa napadima”
--  Forbes рассказал об огневой мощи ВС РФ в Запорожской области
--  وحدة عدن يستعيد صدارة دوري عدن الممتاز بفوزه على الشعلة في عقر داره
--  A man has been detained by fellow passengers on a flight from Bali after an alleged assault
--  Ceballos: Reducción de delitos violentos convierte a Venezuela en uno de los países más seguros
--  Россия не понимает, за что ее обстреляла Украина
--  Les fêtes à Porquerolles: une île calme mais pas une île déserte
--  Κωνσταντάκη σε Μπαλατσινού για Κικίλια junior: Έχει και κοπέλα;
--  Вучич назвал логичным, что Путин поздравил из европейских лидеров его и Орбана
--  У низці областей оголошена повітряна тривога: окупанти направили шахеди
--  Zemljotres prouzrokovao odron i saobraćajnu nesreću kod Zenice
--  مؤرخ إسرائيلي: طوفان الأقصى كشفت فشل الإيديولوجية الصهيونية
--  Wonka star Timothee Chalamet got hooked on popular computer game after Brit co-star introduced him to it
--  Что покажут россиянам по телевизору на Новый год
--  MSC se pronuncia após queda de passageiro durante Cruzeiro de Neymar
--  Uslijed zemljotresa oštećeni pojedini objekti u Zenici
--  Sofia Coppola's movies "totally changed" how Cailee Spaeny looked at herself
--  Las criptomonedas Pundi X y Shentu registran descensos en medio de la caída del mercado
--  Brindaron médicos chihuahuenses atención a damnificados del huracán Otis en Acapulco
--  Mazatlán cierra el 2023 con una ocupación hotelera por encima del 90%
--  Танкисты ВС РФ уничтожили немецкий Leopard и вытеснили ВСУ с занимаемых позиций
--  La diabetes y el deporte se dan la mano en el III torneo benéfico de Pádel Americano
--  Militares reforzarán seguridad durante festejos de Año Nuevo
--  Kickoff | Seema: We should've finished the game in the first half
--  صفقة تفجر جدلاً حاداً بين مؤسسة النفط والوزارة والمؤسسات الرقابية
--  'Unconscionable': Speaker Johnson Slams WH Talk of 'Regular Migration' and Amnesty for 'Vital' Illegals
--  Two time champion Gary Anderson's been beaten in a deciding seventh set by Brendan Dolan in the fourth round of the World Darts Championships in London
--  Suspeito de esfaqueamento de adepto na Luz proibido de entrar em estádios
--  Basquetebol. Benfica e Ovarense ganham partidas em atraso
--  Sultangazi’de silahlı çatışma: 1’i ağır 2 yaralı
--  &quot;HUTI NEMAJU NAMERU DA PRESTANU&quot; Američki ratni komandant se oglasio
--  Zeničani u strahu i panici istrčali na ulice, srušio se dio fasade u centru grada, na ulici se čuju sirene!
--  I’ve had a pain in my right temple for the last month – should I go to the GP? Dr Jeff answers your health questions
--  Rekli “ne” BRIKS-u
--  Число погибших в Белгороде увеличилось до 21
--  مقاتلو القسام يسخرون من جنود الاحتلال بعد حرقهم وتفجير آلياتهم (فيديو)
--  בגיל 38: כריסטיאנו רונאלדו כבש הכי הרבה שערים בעולם בשנת 2023
--  מזל דגים, תחזית הורוסקופ יומית 31.12.2023
--  מזל עקרב, תחזית הורוסקופ יומית 31.12.2023
--  מזל בתולה, תחזית הורוסקופ יומית 31.12.2023
--  מזל שור, תחזית הורוסקופ יומית 31.12.2023
--  מזל טלה, תחזית הורוסקופ יומית 31.12.2023
+-  Ďalší obyvateľ Big Brothera z KOLA VON: Nový rok vo vile neoslávi TÁTO ŽENA!
+-  Vlahovic prende in giro Llorente: la scena madre di Juve-Roma
+-  Mourinho: "Abbiamo sbattuto contro il muro di Torino. La Juve è da Scudetto"
+-  러 "우크라 집속탄 사용으로 민간인 14명 사망...공격 배후에 영국"
+-  Nekadašnji štoper Mančester junajteda se vratio na mesto uspeha
+-  Манчестър Сити иска да привлече Лукас Пакета
+-  [각본없는 드라마] ‘스타군단’ 축구 국가대표팀, 역대 최강 전력
+-  [뉴스In] 파격적인 저출산 해법 나오나…한국은행 보고서 파장 커
+-  푸바오 할아버지에게 악플이라니…에버랜드 "사육사 비난 자제"
+-  Murió Tom Wilkinson, protagonista de las películas “The Full Monty” y “Michael Clayton”
+-  Aurora y el técnico Mauricio Soria rompen vínculo a pocos días de empezar su pretemporada
+-  Albares considera una gran noticia la entrada de Rumanía y Bulgaria en el espacio Schengen
+-  Rıdvan Dilmen: Erdoğan da Büyükekşi'ye sormuş
+-  '1 और 1 कोई 5 बोलेगा तो मान लूंगी', 43 साल की हीरोइन ने क्यों कही ये बात
+-  Strictly fans convinced Dianne Buswell is secretly engaged to Joe Sugg after he shares very romantic post
+-  Ανησυχία ενόψει Πρωτοχρονιάς: Ο πλανήτης ετοιμάζεται να υποδεχτεί το 2024 υπό τον φόβο τρομοκρατικών επιθέσεων (vid)
+-  NIJE ZORICA KRIVA ZA MOJ RAZVOD: Vesna Zmijanac progovorila o braku sa Kemišem
+-  قابس : محجوزات ومخالفات اقتصادية وصحية حصيلة عمل فرق الرقابة المشتركة
+-  Asamblea Nacional repudia declaraciones de Aranguibel contra el pueblo judío
+-  Mnogi su dobili upozorenje na mobitelu: Kako uključiti upozorenje na nadolazeće potrese na telefonu
+-  Présidentielle 2024 – Conseil constitutionnel : La candidature de Aminata Assome Diatta recalée
+-  Τζιρόνα - Μπασκόνια 85-93: Νίκη στο τέλος του 2023, ανοίγει το 2024 κόντρα στον Παναθηναϊκό
+-  University of Central Punjab holds 26th convocation
+-  LHC orders removal of anomalies from Prisons Act
+-  Attacking PML-N office: Physical remand of PTI activist granted
+-  Chess championship begins at Nishtar Park Sports Complex
+-  New Year Eve: Section 144 imposed in Karachi
+-  Finding a bond with my boyfriend’s son has made our relationship stronger
+-  SAU approves estimated budget for 2023-24
+-  Prices of essential kitchen items show rising trend
+-  Gohar deplores ‘harassment’ of his party candidates
+-  Promoting cultural ties with China urged
+-  CM directs IGP to control crime
+-  Course Commissioning Parade held at PNA Karachi
+-  LearnOnTikTok termed dominant force shaping educational landscape in Pakistan
+-  3 die in Lahore house fire incident
+-  ‘General elections vital for economic stability’
+-  Notification on New Year celebrations
+-  SIDB retrieves 6 kanals of land from ‘mafia’
+-  CBD Punjab accelerates road upgrading work
+-  Product discounts: CCP directs shoe, clothing brands to make full disclosure
+-  The Weather
+-  19 pro-Iran fighters killed in Syria strikes
+-  Taliban balk at UNSC plan for special Afghan envoy
+-  Serbian opposition demands annulment of Dec 17 vote
+-  China expels nine army officials from parliament
+-  Islamabad: crimes on the rise
+-  ASEAN foreign ministers express concern over South China Sea tensions
+-  Vested interests and policy reversals
+-  Atif Ikram elected FPCCI president
