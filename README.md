@@ -1,11 +1,11 @@
 # Latest News
--  IHC questions caretakers’ neutrality for elections
--  South African launches case at UN accusing Israel of genocide
--  Penelope Cruz will receive Variety's Creative Impact in Acting Award at the Palm Springs International Film Festival
--  Akeredolu’s absence’ll be felt by nationalists, federalists, patriots – Aregbesola
--  Riyadh’s King Khalid airport recognized for customer care
--  Saudi Arabia to plant 12m trees, shrubs in 2024
--  Saudi Arabia issues guidelines to streamline customs system
--  KSrelief, UNHCR sign $6m funding deal for displaced people in Sudan, South Sudan, Chad
--  Trump ballot decision leads Maine lawmaker to call for impeachment of top state election official
--  Russian strikes on Ukraine ‘appalling assaults’: senior UN official
+-  러, 우크라에 “개전 이후 최대 규모” 미사일 폭격
+-  눈과 귀, 마음마저 치명적으로 사로잡았던 배우 이선균
+-  2024 황금연휴는? 추석…내년 휴일 119번, 올해보다 2일 더 쉬어
+-  日후지산 폭발시 화산재까지 바다에 버린다…"환경영향 판단후 시행"
+-  Reportan enfrentamientos armados en Sonora
+-  Fuerte operativo en Juárez; cierran tramo de avenida Ejército
+-  Megafarmacia, acto propagandístico y mentiroso.-PRD
+-  Es Guillermo Martínez delantero de los Pumas
+-  Se ríe CR7 de la lista de los 10 mejores jugadores del 2023
+-  Galería: Apoya Cruz Roja a migrantes en carretera Juárez
