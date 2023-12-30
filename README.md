@@ -1,11 +1,11 @@
 # Latest News
--  ورشة حول مكافحة الاتجار بالبشر في تجارة عمان
--  انخفاض على سعر غرام الذهب 21 بالأردن اليوم
--  الصحة العالمية تحذر من تفشي الأمراض بين النازحين بغزة
--  شاحنة تصدم المارة وتتسبب بمقتل أحدهم في ألمانيا
--  Rụng lông tóc ở ba vùng trên cơ thể có thể là dấu hiệu của bệnh truyền nhiễm
--  “Đế chế dệt kim đa màu sắc” United Colors Of Benetton và sự trở lại đầy ấn tượng
--  Món ngon ở TP.HCM nên thử dịp Tết Dương lịch?
--  Không khí Hà Nội ô nhiễm trầm trọng: 10h sáng, trời vẫn mịt mù
--  싸이, '강남스타일' MV 50억 뷰 돌파…K팝 최초
--  Silvesterfeuerwerk: Beim Böllern gehen die Meinungen im Kreis Euskirchen weit auseinander
+-  Ticaret Bakanlığı duyurdu! Yeni dönem 1 Ocak'tan itibaren başlıyor
+-  Ryan Kent gemileri yaktı! Fenerbahçe'den ayrılıyor
+-  İstanbul Valisi Gül yılbaşı tedbirlerini açıkladı
+-  Nijerya'nın kadrosu açıklandı!
+-  Highlights : les 42 points de Tyrese Maxey face aux Rockets !
+-  Кабмин России продлил запрет на вывоз риса и рисовой крупы до июня 2024 года
+-  «Салимбой» ва «Саидазиз медгородок» чиқариб юборилгани ҳақидаги хабарлар рад этилди.
+-  31 декабрда ҳарорат 15 даражагача кўтарилади.
+-  АҚШ Давлат департаменти Конгрессни четлаб ўтиб, Исроилга қурол сотишни маъқуллади .
+-  Россияда бир йил ичида хизматдан қочиш бўйича 5000 дан ортиқ иш судга топширилди.
