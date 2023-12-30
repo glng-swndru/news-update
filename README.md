@@ -1,51 +1,51 @@
 # Latest News
--  Gaziantep'te inşaat çöktü: 1'i ağır 2 yaralı
--  Milli tenisçi Zeynep Sönmez, Avustralya'da ana tabloya yükseldi
--  Karakolda polise saldırıp kaçtı
--  Federico Dimarco 2027 yılına kadar Inter'de
--  Bakan Fidan'ın 2023 mesaisi: 72 ülke, 136 görüşme
--  Arda Güler, Real Madrid'in taraftara açık antrenmanında yer aldı
--  Sevilla, Fernando Reges'in sözleşmesini feshetti
--  Putin'den Cumhurbaşkanı Erdoğan'a yeni yıl mesajı
--  Aliağa Petkimspor, Onvo Büyükçekmece Basketbol'u mağlup etti
--  Firari cinayet ve terör şüphelisi, Siirt'te yakalandı
--  CHP Ankara İl Başkanlığınca "Formanı Giy Atamıza Gel" etkinliği düzenlendi
--  Kasaplar tarih verdi, Et fiyatlarına indirim geliyor!
--  Denizli'de iki gencin öldüğü kazada alkollü çıkan sürücü tutuklandı
--  Bakan Yerlikaya paylaştı: Sosyal medya fenomeni Azad Yılmaz gözaltına alındı
--  Kardan şehit heykelleri ilk kez Allah-u Ekber Dağları'nda yapılıyor
--  Waar vinden we deze boerderij?
--  Užfiksuota kaip Rusijos raketa „Ch-101“ bando apgauti Ukrainos oro gynybą (Video)
--  Propaganda ūžia. „Zelenskis įsigijo Gėbelso vilą už 8 mln. eurų“ (Foto)
--  Barist um hann í sumar – ekki í hóp í dag
--  Is Rohit Sharma’s Record Against South Africa A Major Concern For Team India?
--  Autogolo impede o 'assalto' do Leixões aos lugares de manutenção
--  توہین الیکشن کمیشن کیس: فواد چوہدری نے جیل ٹرائل اسلام آباد ہائیکورٹ میں چیلنج کردیا
--  Kickoff | Starting XIs: Richards Bay v SuperSport
--  Desactivado el plan de emergencias por una fuga de butadieno en una industria de Tarragona
--  Un túnel inundado cerca de Londres interrumpe el servicio de trenes Eurostar
--  Rusya: Ukrayna ordusunun Belgorod kentine düzenlediği saldırıda 2 çocuk öldü
--  Ertelenen Süper Kupa finalinin ardından sosyal medyadan küfürlü video yayımlayan şüpheli Samsun'da yakalandı
--  Israel se adentra en los campamentos de Gaza 12 semanas después del inicio de la guerra
--  ABP Majha Top 10 Headlines : ABP माझा टॉप 10 हेडलाईन्स | 30 डिसेंबर 2023| शनिवार
--  Autoridades desmantelan banda criminal integrada por policías, militares y civiles
--  Rajasthan Cabinet Expansion: Rajyavardhan Rathore, Kirodi Lal Meena Among 22 New Ministers
--  Premier League: Siga em direto os resultados e marcadores da 20.ª jornada
--  Shane MacGowan’s widow insists they ‘loved’ George Michael after Wham! top Christmas chart
--  Dolly Parton's husband gave her a warning about new album
--  122 horgászt kellett kimenteni Minnesotában egy elvándorolt jégtábláról
--  Bakan Yerlikaya 'Gereği yapıldı' diyerek duyurdu: Süper Kupa paylaşımına gözaltı
--  Uyuz vakaları artıyor! Salgın geçmedi!
--  ألف شكر لكتيبة قناة الجزيرة المقاومة*
--  올해 마지막 날 전국 눈·비…강원 산지 최대 30㎝ 적설
--  원주서 로또 1등 당첨…1100회 로또 1등 13명, 각 22억758만원
--  [속보] ‘노인 비하’ 논란 민경우, 국민의힘 비대위원 자진 사퇴
--  Zorgkiezer zag al 10 procent meer overstappers dan vorig jaar
--  Eurostar annuleert nog eens 15 treinen van en naar Londen
--  iPhone'da güvenlik açığı tespit edildi! Bakanlık soruşturma başlattı
--  Beylikdüzü'nde motosiklet sürücüsü refüje çarparak metrelerce savruldu: O anlar kamerada
--  Κοροναϊός: Δεκαπλασιάστηκε η ζήτηση σε τεστ – Ελλείψεις σε φάρμακα
--  هيئة العقار: فرز 96 ألف وحدة بمساحات تتجاوز 30 مليون متر مربع
--  عاجل.. آخر فرصة.. وظائف شاغرة ينتهي التقديم فيها اليوم
--  شاهد.. تراكم أكوام البرد في شوارع بريدة والمعدات الثقيلة تتدخل لرفعها
--  أخر 24 ساعة.. 100 شهيد في قصف للاحتلال على وسط قطاع غزة
+-  Infarto in pista: morto in Florida l'ex pilota di 56 anni. "McLaren sotto shock"
+-  Lavezzi, il post dopo l'incidente: l'ospite è una vecchia conoscenza Serie A
+-  Yaremchuk, Meucci per Atleticom We Run Rome 2023
+-  Yeman Crippa e Nadia Battocletti alla BoClassic per finire l'anno
+-  Lần đầu livestream bán hàng, Hoa hậu Hương Giang tiết lộ doanh thu gây bất ngờ sau 5 tiếng
+-  Cá kho Vũ Đại sẵn sàng "cưỡi" máy bay phục vụ khách thập phương dịp Tết
+-  Alegna, feliz por su Año
+-  Entrenadores campeones buscan equipo para el 2024
+-  Huevo, un alimento saludable y nutritivo
+-  Ordena jueza pagar a todos los afectados de Aras
+-  Crecen disruptores del comercio electrónico
+-  Sudáfrica acusa a Israel ante la CIJ de actos de genocidio
+-  #COLUMNA PsicoTips: ¿Hoy cómo estoy? Conoce y comprende tus Emociones #30Dic
+-  Moviliza La Familia Michoacana a taxistas, acusan
+-  Jornal gera curiosidade entre os mais novos
+-  “Qiymətləndirmə fəaliyyəti haqqında” qanun qüvvəyə minib
+-  La manca d'agents de policia local obliga a modificar el recorregut de la cursa de Sant Silvestre de Girona
+-  Altınova Semt Pazarında Kadınlara Yönelik Güvenlik Bilinci Oluşturuldu
+-  Śląsk Wrocław potwierdził trzeci zimowy transfer [OFICJALNIE]
+-  Kolejne departamenty Francji z zakazem spożywania ostryg
+-  ‘Bujjikondave’ from ‘Saindhav’ shows different facet of father-daughter relationship
+-  V posteli mal slávne sexice, dovolenkuje s dcérou: Predviedla sexi obliny!
+-  Chystáte sa na Silvestra do Nízkych Tatier? Za odpálenie ohňostroja vám hrozí TAKÁTO mastná pokuta!
+-  Mercato - PSG : Une offre dégainée pour Kylian Mbappé !
+-  Власти Пскова приобрели почти полсотни квартир для детей-сирот в 2023 году
+-  Con gái vẽ bức tranh chỉ có 2 mẹ con, cô giáo quyết định tâm sự với người mẹ và sự thật lặng người
+-  #InfografíaIMP Tabla de Posiciones LVBP: Águilas del Zulia ganan el primer encuentro ante Tigres #30Dic
+-  La Generalitat aparca els Jocs Olímpics d'Hivern per l'escassetat d'aigua i neu
+-  대구 달성군 구지면 아파트 16층서 5세 남아 떨어져 사망
+-  미국에 떴던 中정찰풍선, 미국 통신망 활용해 날았다…통신사는 부인
+-  Nadal afronta su retorno más difícil
+-  Ar vairākām ballītēm Simona Kubasova-Prakaša nosvin meitas divu gadu jubileju
+-  LIVE NK afstanden | Patrick Roest verpulvert de concurrentie en grijpt titel op de 10.000 meter
+-  El sancocho competirá con el cerdo en cena de fin de año
+-  Οι αφίξεις μεταναστών στην Ιταλία αυξήθηκαν κατά 50% μέσα στο 2023
+-  মুন্সীগঞ্জের লৌহজংয়ে বিএনপির লিফলেট বিতরণ
+-  নির্বাচন নিয়ে দেশি-বিদেশি ষড়যন্ত্র হচ্ছে: শেখ হাসিনা
+-  নানা জটিল রোগের মূলে কোলেস্টেরল! শরীরে এর বৃদ্ধি বুঝবেন যেভাবে
+-  দেলপাড়া আইডিয়াল স্কুল অ্যান্ড কলেজের বৃত্তিপ্রাপ্তদের পুরস্কার বিতরণ
+-  হবিগঞ্জ প্রেসক্লাবের সভাপতি রাসেল, সম্পাদক পাবেল
+-  Wall Street má za sebou skvelý rok, S&P 500 výrazne posilnil
+-  «Известия» опубликовали кадры первых минут после обстрела центра Белгорода
+-  CESTAT affirms Maharashtra State Power Generation Company’s ₹36.7 Million Refund Claim based on Existing Records [Read Order]
+-  Turkey rounds up 189 IS suspects
+-  Ameriška vlada mimo kongresa odobrila prodajo orožja Izraelu
+-  Doris, Grše i Kuzma & Shaka Zulu najavili doček u Splitu: Evo kad tko starta s nastupom
+-  المقاومة: أوقعنا 20 جنديا بين قتيل وجريح غرب غزة
+-  Jarige Frans Bauer (50) krijgt ‘verslavend’ filmpje cadeau: ‘Je bent knap, slim en werkt hard’
+-  Halikarnas Turizm'den Bodrum'a 5 yıldızlı otel geliyor
+-  Son dakika! Gazze'de can kaybı 21 bin 672'ye yükseldi
