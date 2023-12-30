@@ -1,11 +1,51 @@
 # Latest News
--  Lumenjtë dalin në rrugë, përmbytje të mëdha në Peru
--  Nach Wirbel um türkischen Supercup: Veranstalter wehrt sich
--  Zwickau: Der Umbau des ehemaligen Sparkassengebäudes zum Stadtarchiv wird teurer als geplant
--  Një muaj nga vrasja e Liridona Ademajt, vëllai del me një reagim publik
--  Sondaggio / Che voto dareste alla stagione del Torino?
--  Suomalainen tähtihiihtäjä heitti rajun kuitin Ilta-Sanomille ja Iltalehdelle Viaplayn haastattelussa
--  الطلاق يزاحم معدلات الزواج.. ضحيته الأطفال والحلول غائبة
--  ¿Cuánto es la deuda que tiene a Sololá cerca de desaparecer?
--  Nathan, 13 ans, sauve sa mère et sa sœur après un accident de voiture à Noël
--  Zamlı maaş ve enflasyon farkı 15 Ocak’ta hesaplara yatacak
+-  Asescon lamenta que no se haya arreglado la huelga de personal de Iberia
+-  "الاقتصادية" تؤجل دعوى مقامة ضد طليق الفنانة علا غانم
+-  وصلة ضرب قاسية.. تفاصيل مقتل اللص "فرخة" في دار السلام
+-  "خناقة" على المهر تنهي حياة امرأة.. لن تتوقع ما حدث
+-  البث العبرية: القصف الإسرائيلي في سوريا استهدف مقرات تابعة لفيلق القدس الإيراني
+-  465 مليار دولار زيادة بثروات أغنى 10 أشخاص في العالم خلال 2023
+-  מה נשתנה? טיקטוק חוזרת בה מההחלטה שפגעה בישראלים רבים
+-  רעידת אדמה: מנהלת רשות החברות מיכל רוזנבוים מתפטרת מתפקידה
+-  הסלבס לא נשארו אדישים לראיון של מיה שם: "גיבורה אמיתית"
+-  Gamingcenter har öppnat i Stenstan
+-  Barcelona želi da dovede igrača iz komšiluka, ali ne može da plati nit 20 miliona eura
+-  Christian Streich mit scharfer Kritik an CDU-Chef Merz
+-  ЈП „Македонски шуми“ распиша конкурс за 355 вработувања: Се бараат и дрвосечачи Албанци, и тоа во Берово
+-  Video: Desolado lugar donde pernoctaron migrantes
+-  Video: Provoca exalcalde de Delicias aparatoso accidente
+-  Pijani Hrvati vrijeđali Bosanku, psovali joj majku i spominjali Srebrenicu
+-  हर मोर्चे पर महागठबंधन की सरकार फेल : रंधीर सिंह
+-  El tema ‘TQG’ de Shakira y Karol G encabeza la lista de canciones para Obama
+-  Saiba quais são as 11 cidades com o maior PIB do país
+-  Reps pass 962 bills, 500 motions in six months
+-  पूजित अक्षत कलश का श्रद्धालुओं के बीच हुआ वितरण
+-  कब्ज की समस्या कर रही है आपको परेशान! तो चिंता न करें यहां समाधान है
+-  לראשונה: מטח רקטות אוקראיני לעבר בירת מחוז ברוסיה
+-  "בושה היסטורית": איך הפך משחק כדורגל בסעודיה למשבר דיפלומטי?
+-  צה"ל השתלט על חמ״ל המודיעין של חמאס; שורת תקיפות בעומק סוריה | סיכום חדשות השבת
+-  לברון ג'יימס בן 39: כמה כסף הרוויח עד כה בקריירה?
+-  Ukraine-Krieg: Wolfgang Ischinger fordert den Westen zu einer härteren Haltung gegenüber Russland auf
+-  Međunarodna akcija policija Srbije i Australije, zaplenjeno 98 kilograma metamfetamina
+-  Plateau Killings: I’m Pained, Devastated – Rev. Pam
+-  לפיד בתגובה להתפטרותה של רוזנבוים: "ניצחון לשחיתות"
+-  Bamberg: Stadt verkündet Feuerwerksverbot – auch auf Privatgrundstücken
+-  İskenderun'da ağır hasarlı binaların yıkımı sürüyor
+-  Міноборони визнало, що мешканці Білгорода стали жертвами російської ППО
+-  Laura Pausini faz dueto com padre fã e é abençoada no palco
+-  Geçen seneye oranla yüzde 58 zam! 2024 yılı MTV'si belli oldu
+-  Söğüt'te kadınlardan İYİ Parti’ye katılım
+-  تشكيل مانشستر يونايتد - 10 غيابات أحدثهم هويلوند.. راشفورد يقود الهجوم أمام نوتنجهام
+-  গোবিন্দগঞ্জে বাস-ট্রাকের সংঘর্ষে নিহত ২, আহত ৫
+-  Jezivo: Pogledajte šta su građani pronašli na Plješevici iznad Bihaća!
+-  Kaizer Chiefs name final starting line-up for 2023!
+-  A Palermo una rete cittadina per la difesa e l’applicazione della Carta fondamentale
+-  Candela di mondi a spanta bisiña den bario di Nuñe
+-  Prison Closure Divides Abolitionist Community in Washington State
+-  Razzien in der Türkei: Fast 200 mutmaßliche ISIS-Anhänger festgenommen | Politik
+-  Ligue 1 : Suivez en direct Jaraaf vs Stade de Mbour
+-  Andebol. Convocatória final de Portugal para o Europeu
+-  ভোটেই ষড়যন্ত্রের জবাব
+-  Pim Ronhaar: “Akkefietje met Wout van Aert was niet doelbewust”
+-  गांव की समस्याओ का गांव में हो समाधान : राजेन्द्र मौर्य
+-  Катастрофа на АМ "Тракия", едната кола е по таван
