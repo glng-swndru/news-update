@@ -1,11 +1,11 @@
 # Latest News
--  Suomalainen ex-kiekkoilija latasi suorat sanat SM-liigan nykytasosta: "Jos sama tahti jatkuu..."
--  استقرار أسعار الذهب في بغداد وكوردستان
--  כל אחד והדלק שלו: הכוכבים הזקנים הם התופעה הכי יפה ב-2023
--  העם שלנו מדהים, הממשלה לא ראויה לו
--  מרמקול שולחני עד עט שכותב מתחת למים: הגאדג'טים הכי שווים לסטודנטים
--  ¿Qué pasaría si la Tierra dejara de girar?
--  Na putevima u BiH saobraćanje po suhom i mjestimično vlažnom kolovozu
--  Nagrađivana redateljica Bešević Gajić: Ljudi nikada nisu vodili ratove, nego politika
--  Pretežno oblačno vrijeme u BiH, na Bjelašnici -3 stepena
--  লন্ডন থেকে বার্তা দেওয়া হচ্ছে, প্রয়োজনে গুপ্ত হত্যা চালাবে: ওবায়দুল কাদের
+-  Résumé de la nuit en NBA : première défaite pour Ja Morant, les Nuggets prennent la fessée contre OKC
+-  Zach Collins (Spurs) s’est blessé à la cheville
+-  Shai Gilgeous-Alexander reçoit les louanges de Nikola Jokic : “Il est un vrai problème dans cette ligue”
+-  Ousmane Dieng carbure en G League : 25 points pour le Français du Thunder
+-  الجهود الأردنية بقيادته الهاشمية في دعم الأهل في فلسطين وغزَّة
+-  هل لقاح كورونا الجديد فعال ضد السلالات الحالية؟
+-  جيش الاحتلال ينتقد غياب التحرك السياسي
+-  تحقيق: جيش الاحتلال جمع المعلومات من وسائل التواصل في 7 أكتوبر
+-  محاضرة حول العنف الجامعي لطلبة جامعة عمان العربية
+-  محمد عبده يتبرع بدرع ذهبي إلى أطفال غزة
