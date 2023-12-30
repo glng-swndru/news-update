@@ -1,51 +1,11 @@
 # Latest News
--  Toàn cảnh vụ 'quay xe' của Ancelotti với tuyển Brazil
--  Kế hoạch chuyển nhượng của Arteta
--  Chán bóng đá châu Âu, cựu tiền vệ Man City chuẩn bị hồi hương
--  Hai đội bóng Thổ Nhĩ Kỳ tăm tia hậu vệ Arsenal
--  राम मंदिर का उद्घाटन: अंबाला से अयोध्या धाम के लिए चलेंगी स्पेशल ट्रेनें, राम भक्तों को मिलेगी सुविधा
--  1 Ocak'ta ücretsiz olacak: Toplu taşıma araçlarına yönelik üç büyükşehir için dikkat çeken karar
--  Роналду возглавил рейтинг звёзд мирового спорта 2023 года
--  تجدد الاشتباكات والقصف المدفعي بمخيم البريج
--  الاحتلال يعتقل 14 فلسطينيا من مخيم الجلزون برام الله
--  إسرائيل تحصل على قذائف من واشنطن بموجب عملية بيع "طارئة"
--  بايدن يحض الكونغرس على دعم أوكرانيا بعد الضربات الروسية
--  Erdoğan'dan seçim talimatı! Yol haritası netleşti
--  غزہ میں اسرائیلی جارحیت، جنوبی افریقہ کا اسرائیل کیخلاف عالمی عدالت انصاف سے رجوع
--  Yön uutiskooste | Enemmistö isoista kaupungeista ei järjestä uudenvuoden ilotulitusta, Puola pyysi Venäjältä selvitystä maan ilmatilassa mahdollisesti lentäneestä ohjuksesta
--  Тошкент, Андижон ва Навоий вилоятларида ер майдонларини ноқонуний сотиш ҳолатларига чек қўйилди
--  Ёшлар сиёсати соҳасида амалга оширилган ишлар сарҳисоб қилинди
--  Supply sufficient coal to all thermal plants: Dy CM Mallu Bhatti Vikramarka
--  CM Pinarayi Vijayan intervenes to resolve Thrissur Pooram crisis
--  Padawan police chief: Two girls found unattended behind abandoned building in Kota Sentosa picked up by parents
--  Один человек погиб в результате столкновения 16 автомобилей в Германии
--  Số lần NATO đánh chặn máy bay Nga giảm một nửa so với năm 2022
--  Kẻ tống tiền, uy hiếp Lee Sun Kyun là ai nguy hiểm nhất vụ việc?
--  South Africa files ICJ case accusing Israel of ‘genocidal acts’ in Gaza
--  Từ chối trả phí đậu xe 80.000 đồng, chủ xe bị cứa xước ô tô
--  Entinen F1-tähti selvisi hengissä – ”Tuuria oli”
--  Yukthiya Operation- 1,554 arrested, police seek to detain 82 suspects
--  Yukthiya Operation- 1,554 arrested, police seek to detain 82 suspects
--  Uttarakhand Weather: नए साल पर पहाड़ों में बर्फबारी, मैदान में सताएगा कोहरा, ऑरेंज अलर्ट जारी
--  عمران خان، شہباز شریف اور بلاول بھٹو کے کا غذات نامزدگی منظور یا مسترد، فیصلہ آج متوقع
--  EE.UU. incrementó un 35,8 % la deportación de inmigrantes durante 2023
--  Näkökulma: Iivo Niskanen sulaa vesikelissä
--  Südafrika beschuldigt Israel des Völkermords - Die Nacht im Überblick
--  Doğu Perinçek'ten Süper Kupa açıklaması: Türk takımlarına yakışan Filistin dayanışmasıdır
--  कर्क 30 दिसंबर 2024 राशिफल कर्क राशि दूसरों की सफलता में जश्न, आर्थिक लाभ के योग, समय बिताएं अपनों के साथ!
--  BRS to host preparatory meetings from January 3
--  روس کا یوکرین پر بڑا حملہ
--  Milli Məclisdə ilin sonuncu iclası: Gündlikdə 7 məsələ var
--  Meerut: शहर के बाद देहात में घटिया सामग्री से सड़क बनाई, सपा विधायक ने फावड़ा और दरांती से खोदकर दिखाई
--  Pakistan Stock Exchange’s Remarkable 55% Gain in 2023
--  Tudsz annyit, mint egy 12 éves? 10 kérdés a 6. osztályos tananyagból
--  Cruising round the world 2024
--  Hafta sonu hava nasıl olacak?
--  6 consejos para leer más este 2024
--  Mersin'de feci kaza! Otomobil tıra arkadan çarptı: 2 ölü
--  Výsledky NHL
--  Michael van Gerwen emotioneel na behalen tiende kwartfinale WK darts: ‘Weer een oud en nieuw zonder vrouw en kinderen’
--  Liga MX: La gran amenaza de Gabriel Fernández en Cruz Azul de cara al Clausura 2024
--  Gary Anderson requires calm as Luke Littler prepares for Raymond van Barneveld
--  अङ्ग्रेजी नयाँ वर्षको अवसरमा ठमेलमा सडक महोत्सव हुने
--  मिथुन 30 दिसंबर 2024 राशिफल मिथुन सपनों का साकार होना, खुशियों से झूम उठेंगे, शांत मन से करेंगे हर मुश्किल का सामना!
+-  35歲男患鼻咽癌太太流產 搬屋後以為「撞鬼」 求醫揭1事中毒致癌
+-  280 millió forintot szakítottak a Falusi Civil Alap pénzeiből a Fidesz-KDNP-hez közeli szervezetek, Semjén Zsolté a lehető legtöbbet kapta
+-  OVAKO DANAS IZGLEDA COBE Povukao se sa scene i NE ŽIVI U SRBIJI: Pevaču su predviđali BLISTAVU KARIJERU, a on se posvetio porodici
+-  Paula Abdul SUES American Idol producer and So You Think You Can Dance co-judge Nigel Lythgoe for alleged 'sexual assault'
+-  Marca: «Реал» предпримет последнюю попытку подписать Мбаппе в январе 2024 года
+-  Automotive Lightweight Materials Market, Share, Size, Trends, Industry Analysis, Forecast and Outlook
+-  Insípida reducción del desempleo en Neiva
+-  UP Police Constable: यूपी पुलिस कांस्टेबल भर्ती के आवेदकों को मिली एक और बड़ी राहत, 13 साल संबंधी शर्त भी हटी
+-  Opposition boykotter omvalg ved brøkdel af serbiske valgsteder
+-  লেবাননে হিজবুল্লাহ’র স্থাপনায় হামলার দাবি ইসরায়েলের
