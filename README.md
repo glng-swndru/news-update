@@ -1,11 +1,11 @@
 # Latest News
--  Ticaret Bakanlığı duyurdu! Yeni dönem 1 Ocak'tan itibaren başlıyor
--  Ryan Kent gemileri yaktı! Fenerbahçe'den ayrılıyor
--  İstanbul Valisi Gül yılbaşı tedbirlerini açıkladı
--  Nijerya'nın kadrosu açıklandı!
--  Highlights : les 42 points de Tyrese Maxey face aux Rockets !
--  Кабмин России продлил запрет на вывоз риса и рисовой крупы до июня 2024 года
--  «Салимбой» ва «Саидазиз медгородок» чиқариб юборилгани ҳақидаги хабарлар рад этилди.
--  31 декабрда ҳарорат 15 даражагача кўтарилади.
--  АҚШ Давлат департаменти Конгрессни четлаб ўтиб, Исроилга қурол сотишни маъқуллади .
--  Россияда бир йил ичида хизматдан қочиш бўйича 5000 дан ортиқ иш судга топширилди.
+-  Мурувват уйларига янги йил совғалари
+-  Диққат, эълон!
+-  More and more single people going on holiday for New Year's
+-  Russia launches biggest aerial attack on Ukraine since start of invasion
+-  Activists attack US Consulate in Melbourne
+-  Pablo Fernández ‘sobrevive’ a las batallas de Podemos
+-  Suudi cephesi G.Saray ve F.Bahçe'yi suçladı! İlk açıklama...
+-  Father dies after five-car collision
+-  Най-богатите хора в света са станали с 1,5 трлн. долара по-богати през 2023 г.
+-  Court reserves verdict over Fawad Chaudhry’s remand in NAB probe
