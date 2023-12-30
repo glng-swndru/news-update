@@ -1,11 +1,11 @@
 # Latest News
--  Résumé de la nuit en NBA : première défaite pour Ja Morant, les Nuggets prennent la fessée contre OKC
--  Zach Collins (Spurs) s’est blessé à la cheville
--  Shai Gilgeous-Alexander reçoit les louanges de Nikola Jokic : “Il est un vrai problème dans cette ligue”
--  Ousmane Dieng carbure en G League : 25 points pour le Français du Thunder
--  الجهود الأردنية بقيادته الهاشمية في دعم الأهل في فلسطين وغزَّة
--  هل لقاح كورونا الجديد فعال ضد السلالات الحالية؟
--  جيش الاحتلال ينتقد غياب التحرك السياسي
--  تحقيق: جيش الاحتلال جمع المعلومات من وسائل التواصل في 7 أكتوبر
--  محاضرة حول العنف الجامعي لطلبة جامعة عمان العربية
--  محمد عبده يتبرع بدرع ذهبي إلى أطفال غزة
+-  ВСУ нанесли массированный удар по военным объектам в России
+-  ¿Qué pasaría si la Tierra dejara de girar?
+-  สั่งให้ออกราชการ'รองสารวัตรปืนโหด' ยิงนักธรุกิจดับบนทางด่วน
+-  العمل: توفير فرص عمل لـ553 ألفا و170 شابا وفتاة بينهم 10 آلاف و579 من ذوي الهمم
+-  ’เหตุผล‘ของ‘เหตุผล’ ยกเลิกบอลเติร์กถิ่นซาอุฯ
+-  رئيس الرعاية الصحية يصدر قرارا بتكليف قيادات مجمع السويس الطبي
+-  CM Stalin announces Rs.1,000 Crore relief package for rain-hit districts
+-  NBA Top 10 de la nuit : Jalen Johnson aime faire souffrir les arceaux
+-  SVETSKI SPORT U 2023: Godina u kojoj je Mančester Siti "vratio uložene milione"
+-  أبرز مباريات اليوم.. السيتي في مواجهة شيفلد واليونايتد ضيفًا على نوتينجهام
