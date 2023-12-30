@@ -1,51 +1,51 @@
 # Latest News
--  Darts presenter Emma Paton sparkles in bold outfit live on Sky Sports sending fans into meltdown
--  DEB-Junioren müssen um Klassenerhalt bei U20-WM bangen
--  Bayerns Basketballer gewinnen deutlich gegen Heidelberg
--  Strong winds disrupting Wellington flights
--  نائب رئيس مجلس القيادة الرئاسي الزبيدي يكرم منتخب الناشئين بمبلغ 360 ألف ريال سعودي
--  Dave Chappelle ends Florida show early, walks off stage
--  «Ο πόλεμος θα διαρκέσει πολλούς μήνες ακόμη»: Απειλητικός ο Νετανιάχου στο νέο του διάγγελμα (vid)
--  Sobre una alberca inflable, trasladan a niños migrantes de Matamoros a Brownsville
--  Suomalaisen mäkihyppääjän loistava vire sai jatkoa
--  Plataforma Unitaria rechaza llegada de buque británico a Guyana y exige que SE RETIRE
--  Summer photo competition: How to enter and win with Hawke’s Bay Today, Harvey Norman and Canon NZ
--  TRESLO SE U BEOGRADU, JAČINA 5,2 RIHTERA! Zemljotres u BiH pogodio čitav region
--  One thing is clear we are not consistent – Erik ten Hag urges Man Utd to improve
--  Emily Atack announces she is pregnant with first child
--  Emily Atack announces she is pregnant with first child
--  La UE acuerda la entrada gradual de Rumanía y Bulgaria en el espacio Schengen
--  Число жертв удара ВСУ по Белгороду возросло до 20
--  إستوقفتني كثيرا : أشياء لا تباع ولا تشترى – موقف وطني مصري – العقيد اسماعيل شيرين
--  김남국, 코인 누적 거래액 1118억hellip;金 quot;코인이 불법인가? 또 마녀사냥 시작quot;
--  윤 정부에 몰아치는 lsquo;혐중rsquo; 현상, 무사안일 징표이자 '금지된 장난'이다
--  Disturbing new evidence from one of Prince Andrew’s sex accusers will be unsealed in court after order from judge
--  Disturbing new evidence from one of Prince Andrew’s sex accusers will be unsealed in court after order from judge
--  Manuel Florido y Marta Mansito, oro en el Trofeo AECIO
--  Deputados federais tem aumento de 85% nas verbas destinadas à divulgação de atividades de mandatos
--  Θρήνος για τον Στέλιο Ρόκκο: Βρέθηκε νεκρός ο αδερφός του - Είχε πάει για ψάρεμα
--  PREPOROD ZVEZDINOG NAJVEĆG PROMAŠAJA Nejpir blistao, ali Armani je izgubio
--  Dhimashada reer Gaza oo sii kordheysa
--  Jarůšek jako Jaroušek. Jágr zabavil spoluhráči hokejky. Kdybych protestoval, asi mě vyhodí
--  Barbara Schöneberger enthüllt überraschendes Detail über ihren Heiratsantrag
--  أمطار غزيرة وصواعق رعدية .. "الأرصاد" يصدر إنذاراً باللون الأحمر على القصيم
--  Число жертв удара ВСУ по Белгороду возросло до 20 человек
--  Lufta me Hamasin, Netanyahu: Zona kufitare Gazë-Egjipt duhet të jetë nën kontrollin e Izraelit
--  عاجل.. حساب المواطن: توضيح جديد حول أسباب تعطل التطبيق
--  Двое игроков юношеской команды по хоккею погибли в ДТП в Вологодской области
--  Eurostar: le trafic va reprendre ce dimanche
--  صراع تل أبيب و«حزب الله» يتوغل نحو المدن
--  Κρήτη: Πυροσβέστες ντυμένοι σούπερ ήρωες και Άγιοι Βασίληδες μοίρασαν δώρα και χαμόγελα σε νοσοκομεία
--  4 ظواهر جوية تشهدها مصر الأسبوع الحالي.. نصائح للتعامل مع الساعات المقبلة
--  Senate Passes 2024 Budget, Increases It By N1.2trn
--  لعبة الكراسي | 30-12-2023
--  Man Utd legends tear into Ten Hag’s ‘AWFUL’ flops as horror records tumble after disastrous Forest defeat
--  Man Utd legends tear into Ten Hag’s ‘AWFUL’ flops as horror records tumble after disastrous Forest defeat
--  Minedu: conoce el cronograma de matrícula 2024 para colegios públicos en Lima
--  Freezing Weather Alerts in Nine Southern States for New Year's Eve
--  "C'était très, très fort" : Julien (Star Academy) surpris par sa petite amie Amélie sur scène, ils échangent un tendre baiser
--  Alte Ikea-Möbel plötzlich tausende Euro wert – hast du noch ein Exemplar zuhause?
--  Një muaj nga vrasja e Liridona Ademajt, i vëllai: Kishim shumë plane, gjeta në shtëpi lodrat e ditëlindjes që do festonim
--  La desconocida película de Scorsese que juntó a De Niro, DiCaprio y Brad Pitt
--  सलमान खान ने आयशा की लगाई क्लास, मुनव्वर फारुकी के 'गेम' पर उठाए सवाल
--  Hugo Lloris ends 11-year affiliation with Tottenham to hitch Los Angeles FC
+-  Le grandi non steccano nella prima di ritorno
+-  Juventus-Roma 1-0: Rabiot stende Mourinho, Allegri a -2 dall'Inter
+-  لبنان.. مطلوب خطير يلقي قنبلة يدوية باتجاه عناصر أمنية
+-  مجلس الحرب الإسرائيلي يمنح رئيس الموساد ضوءا أخضر لإتمام صفقة تبادل مع حماس
+-  الأمين العام للمجلس المحلي يحضر حفل تكريم تلاميذ مدرسة الرائد الأهلية بالشيخ عثمان
+-  “على من يضحك تبون”.. صحيفة تمولها أبوظبي تُلمع ملك المغرب على حساب شيطنة الجزائر
+-  Kaos uoči otvaranja zimskog prijelaznog roka, Fifa suspendirala odluku, klubovi ne znaju što učiniti
+-  Ernstig ongeval in Stroe
+-  “Oni neće prestati sa napadima”
+-  Forbes рассказал об огневой мощи ВС РФ в Запорожской области
+-  وحدة عدن يستعيد صدارة دوري عدن الممتاز بفوزه على الشعلة في عقر داره
+-  A man has been detained by fellow passengers on a flight from Bali after an alleged assault
+-  Ceballos: Reducción de delitos violentos convierte a Venezuela en uno de los países más seguros
+-  Россия не понимает, за что ее обстреляла Украина
+-  Les fêtes à Porquerolles: une île calme mais pas une île déserte
+-  Κωνσταντάκη σε Μπαλατσινού για Κικίλια junior: Έχει και κοπέλα;
+-  Вучич назвал логичным, что Путин поздравил из европейских лидеров его и Орбана
+-  У низці областей оголошена повітряна тривога: окупанти направили шахеди
+-  Zemljotres prouzrokovao odron i saobraćajnu nesreću kod Zenice
+-  مؤرخ إسرائيلي: طوفان الأقصى كشفت فشل الإيديولوجية الصهيونية
+-  Wonka star Timothee Chalamet got hooked on popular computer game after Brit co-star introduced him to it
+-  Что покажут россиянам по телевизору на Новый год
+-  MSC se pronuncia após queda de passageiro durante Cruzeiro de Neymar
+-  Uslijed zemljotresa oštećeni pojedini objekti u Zenici
+-  Sofia Coppola's movies "totally changed" how Cailee Spaeny looked at herself
+-  Las criptomonedas Pundi X y Shentu registran descensos en medio de la caída del mercado
+-  Brindaron médicos chihuahuenses atención a damnificados del huracán Otis en Acapulco
+-  Mazatlán cierra el 2023 con una ocupación hotelera por encima del 90%
+-  Танкисты ВС РФ уничтожили немецкий Leopard и вытеснили ВСУ с занимаемых позиций
+-  La diabetes y el deporte se dan la mano en el III torneo benéfico de Pádel Americano
+-  Militares reforzarán seguridad durante festejos de Año Nuevo
+-  Kickoff | Seema: We should've finished the game in the first half
+-  صفقة تفجر جدلاً حاداً بين مؤسسة النفط والوزارة والمؤسسات الرقابية
+-  'Unconscionable': Speaker Johnson Slams WH Talk of 'Regular Migration' and Amnesty for 'Vital' Illegals
+-  Two time champion Gary Anderson's been beaten in a deciding seventh set by Brendan Dolan in the fourth round of the World Darts Championships in London
+-  Suspeito de esfaqueamento de adepto na Luz proibido de entrar em estádios
+-  Basquetebol. Benfica e Ovarense ganham partidas em atraso
+-  Sultangazi’de silahlı çatışma: 1’i ağır 2 yaralı
+-  &quot;HUTI NEMAJU NAMERU DA PRESTANU&quot; Američki ratni komandant se oglasio
+-  Zeničani u strahu i panici istrčali na ulice, srušio se dio fasade u centru grada, na ulici se čuju sirene!
+-  I’ve had a pain in my right temple for the last month – should I go to the GP? Dr Jeff answers your health questions
+-  Rekli “ne” BRIKS-u
+-  Число погибших в Белгороде увеличилось до 21
+-  مقاتلو القسام يسخرون من جنود الاحتلال بعد حرقهم وتفجير آلياتهم (فيديو)
+-  בגיל 38: כריסטיאנו רונאלדו כבש הכי הרבה שערים בעולם בשנת 2023
+-  מזל דגים, תחזית הורוסקופ יומית 31.12.2023
+-  מזל עקרב, תחזית הורוסקופ יומית 31.12.2023
+-  מזל בתולה, תחזית הורוסקופ יומית 31.12.2023
+-  מזל שור, תחזית הורוסקופ יומית 31.12.2023
+-  מזל טלה, תחזית הורוסקופ יומית 31.12.2023
