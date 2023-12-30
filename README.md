@@ -1,51 +1,51 @@
 # Latest News
--  Цю війну не пересидиш. Перспективи для українців
--  تحقيق يكشف إرسال بريطانيا 1000 جندي إلى الاحتلال والمنطقة
--  فيفا يوقف مؤقتاً قواعده لوكلاء اللاعبين
--  الاحتلال يعترف بمقتل اثنين من جنوده السبت
--  Davos erstmals seit 2012 im Final
--  Directo | Gran Canaria - CB Breogán
--  WATCH: What Happened When PM Modi Asked Ayodhya`s Ujjwala Beneficiary Meera Majhi About Paying Bribe To Get PMAY Money
--  NK afstanden schaatsen | Harm Visser pakt Nederlandse titel op massastart, maar mag niet naar EK
--  Nokia prevé que no cumplirá sus objetivos financieros para todo el año
--  Nigerian Music Sensation Shallipopi Revels in Mother’s Love, Sporting Proud Tattoo Tribute
--  Lo que se sabe del secuestro de Balbi el Chamako en Valparaíso
--  المنتخب الوطني لكرة السلة يتأهل الى ربع نهائي البطولة العربية بمصر.
--  أبوسليم يفوز على الخمس بثلاث اهداف مقابل هدف .
--  المروج يفوز على التعاون بهدفين دون رد.
--  בגיל 37: כוכב ארץ נהדרת התארס לזוגתו אחרי 4 שנים
--  2024 תהיה שנת שנת שיא במחירי הזהב: ומה יקרה לכסף?
--  Official – Ex Arsenal & Man United Midfielder Henrikh Mkhitaryan Extends Inter Milan Contract Until End Of June 2026
--  Трагедия! Жена загина на място, детенце е между живота и смъртта
--  Uprava Grada - Novogodišnja atmosfera u Sarajevu na vrhuncu
--  Muere tras varios días de agonía luego de accidente vehicular
--  Bé sơ sinh nặng hơn 7kg mới chào đời ở Chile
--  Uống nhầm dầu thắp đèn, bé 15 tháng tuổi nguy kịch
--  Những cô giáo xinh đẹp gây sốt mạng năm 2023
--  Tranh cãi danh sách 7 cầu thủ hay nhất năm 2023: Messi phải nhường chỗ cho Ronaldo
--  Minister Botsa: చంద్రబాబుపై మరోసారి హాట్ కామెంట్స్ చేసిన మంత్రి బొత్స
--  নৌকার প্রার্থীদের দুশ্চিন্তা ঈগল ও ট্রাক
--  مواجهة الفتح والأخدود سلبية
--  Екоактивисти блокираха голяма магистрала в Амстердам (Видео, снимки)
--  Gradovi bez vatrometa za doček: Povrede ostavljaju trajne posledice, a prete i novčane kazne
--  Nollywood’s Yul Edochie Faces Backlash for Calling 2023 His Best Year Despite Son’s Passing
--  I was banned from visiting Michael Schumacher – his family told me I would be sad if I saw him, says F1 rival
--  Битиќи за автопатот Кичево-Охрид: Сите треба да сфатат дека време за губење нема
--  Weriye ka mid noqday 100 qof oo maanta lagu laayey duqeymaha Gaza (Sawirro)
--  Sanidad implanta la lista de espera única para trasplantes renales
--  I Am Disappointed Over Your Reasons For Not Responding To Plateau Attack – Lalong Knocks Military
--  Powraca dodatek osłonowy. Ile wyniesie i komu przysługuje?
--  Zimowe okienko transferowe w Lewarcie Lubartów. Żelek już jest, będzie jeszcze Kompan?
--  Serbian vaalitulosprotestit jatkuivat uusista äänestyksistä huolimatta – oppositio syyttää valtapuoluetta vaalivilpistä
--  Serbian vaalitulosprotestit jatkuivat uusista äänestyksistä huolimatta – oppositio syyttää valtapuoluetta vaalivilpistä
--  خیبرپختوانخوا کے 12 اضلاع میں سکروٹنی مکمل، فہرستیں جاری
--  Tiga Tahun jadi Misteri, Kasus Pembunuhan di Wonogiri Terungkap
--  تبوك والباحة.. ضبط 3 مقيمين بتهمة ترويج المخدرات
--  MTPE reglamenta la Ley del Certificado Único Laboral, ¿qué beneficios trae?
--  Packers rule out Eric Stokes for Sunday
--  पीवीटीजी पर विशेष रूप से ध्यान देने की आवश्यकता: सांसद
--  Криза за таксита в София
--  Αναζήτηση λύσης για το Πειραματικό Λύκειο
--  Putin wurde über Angriff informiert - Zehn Tote und 45 Verletzte bei ukrainischem Angriff auf Belgorod
--  Happy New Year 2024: हैंगओवर से छुटकारा पाने के लिए खास घरेलू टिप्स
--  حظر احتفالات السنة الجديدة في باكستان
+-  IL PUNTO SULL’ARBITRO: Fiorentina-Torino, buona prova per La Penna
+-  Soccerladuma | Starting XI: Sekhukhune v Chiefs
+-  Soccerladuma | Man City Extend Unbeaten Run To Boost Title Charge
+-  유재석, 하트에 진심
+-  מאסק יגיב? זו הרשת שהרוויחה מעזיבת המפרסמים את טוויטר
+-  В Венеции планируют ввести ограничение численности туристических групп
+-  ФМБА помогает пострадавшим в Белгороде, заявила Скворцова
+-  Η Μόσχα ζητά σύγκληση Συμβουλίου Ασφαλείας μετά τον βομβαρδισμό στο Μπελγκορόντ
+-  Έδειξε κάκωση η νεκροτομή στο 5μηνο βρέφος. Δείγματα για επιστημονικές εξετάσεις
+-  Malatya merkezli 6 ilde terör operasyonu: 14 gözaltı
+-  البشائر يفوز على مضيفه الأولمبي بهدفين مقابل هدف :
+-  الجمعية الليبية لفنيي غسيل الكلي تحتفل بتخرج دفعة من الحاصلين على الدبلومة التخصصية .
+-  Жена претепала 42-годишен маж во казино во Скопје
+-  Loại hạt là "insulin tự nhiên" của người Nhật: Giúp hạ đường huyết, ngừa biến chứng tiểu đường nhưng cực giàu dinh dưỡng, vùng núi Việt Nam cũng có nhiều
+-  Fin de fiesta al glorioso año del City: gol de Rodri y aparece De Bruyne
+-  مصير الموريتاني أحمد سالم مع لافيينا
+-  3 تحديات أمام أنشيلوتي مع ريال مدريد
+-  مانشستر سيتي يفوز على شيفيليد يونايتد في البريميرليج
+-  مانشستر سيتي يتقدم على شيفيلد في الشوط الأول بالدوري الإنجليزي
+-  وزارة الرياضة: برنامج «نتشـارك للمبادرات المجتمعية» يصل 8 مراكز شباب بدمياط
+-  منتخبات مصر للجمباز.. سيطرة إفريقية وميداليات عالمية في 2023
+-  موعد عودة نداي وسامسون للزمالك
+-  هاتريك قاعود يقود البنك الأهلي للفوز على المقاولون في الدوري
+-  Fiscalía citó a Claudia Améstica por obstruir la justicia en caso Canserbero
+-  تين هاج يعلن تشكيل مانشستر يونايتد لمباراة نوتنجهام في الدوري الإنجليزي
+-  داليا شوقي تحسم الجدل بشأن مشاركتها في مسلسل "وبينا ميعاد".. تفاصيل
+-  جيش الاحتلال : قتلى وإصابات خطيرة بمعارك بغزة
+-  Christ the Redeemer lit in Pele shirt as Brazil honours first anniversary of his death
+-  كتائب الشهيد أبو علي مصطفى في غزة تعلن مقتل أسير لديها بعد محاولة إسرائيلية فاشلة لتحريره
+-  Ресторан в Токио: китайцам вход запрещён
+-  Το Ισραήλ πραγματοποίησε αεροπορική επιδρομή στο Χαλέπι
+-  Contraindicaciones del consumo en exceso del vinagre de manzana
+-  Premier League: Villa back to winning ways as Luiz penalty seals victory over Burnley
+-  Al incendiarse vivienda tres menores mueren quemados en Roatán
+-  Pooštrene bezbjednosne mjere u Parizu zbog terorističke prijetnje
+-  Rusko viní Kyjev z útoku na Belgorod. Hovorí o českých zbraniach, zvoláva OSN
+-  Στην Κρήτη οι υψηλότερες θερμοκρασίες
+-  Ten Hag zorgt voor verwondering met uitspraak: ‘Hij is de Shakespeare van onze tijd’
+-  Vinicius,contro razzismo si fa tatuare Alì, Pelè,Jordan e Bryant
+-  Empresária de SC participa de festa especial em Trancoso
+-  Portugal com sangue na guelra e também muita experiência
+-  Džeko na ručku s porodicom: Objavom oduševio navijače
+-  श्री गुरू गोबिंद सिंह के प्रकाशोत्सव पर निकाले गए नगर कीर्तन में उमड़ा श्रद्धा का सैलाब
+-  لظروف خاصة.. بنزيما يُغادر جدّة إلى مدريد
+-  Британското разузнаване: След 10 години Кремъл би могъл за да възстанови професионалната си армия
+-  التعادل السلبي يحسم مواجهة الفتح والأخدود
+-  İstanbul'da patlayan trafo alev alev yandı: O anlar cep telefonu kamerasına yansıdı
+-  Військові підсумки року: Зеленський заявив про стратегію на 2024 рік
+-  Yoona đẹp bất chấp cam thường, gấp đôi visual với khoảnh khắc chung khung hình cùng Lee Sung Kyung
+-  Gặp "cậu bé vàng Toán học" từng giành thành tích 20 năm Việt Nam mới lại đạt được: "Không có gì là học cho vui"
