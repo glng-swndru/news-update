@@ -1,11 +1,11 @@
 # Latest News
--  Örgelisound, atemberaubende Stimme und Après-Ski-Hits in Grüsch
--  Hannu Jortikasta puuhattiin Leijonien päävalmentajaa 20 vuotta sitten - kiekkoliitto teki kohuvalinnan
--  Fernando Alonso muisteli uransa suurta kohokohtaa - ja nyt ei puhuta mestaruuksista
--  António Costa resalta las ayudas económicas de su Gobierno en el cierre de 2023
--  Netanyahu agradece a EU por nueva venta de armas
--  Develan estatua de Shakira en Barranquilla
--  Recibirá El Chamizal inversión de 19.5 mdp
--  סוללות – הדור הבא
--  מגשש במבנה, מאתר מחבל ומסתער עליו: תיעוד מפעילות כלבי עוקץ בג'באלייה
--  "קיימת סכנה": משפטנים בכירים בקריאה לכנסת - לאפשר את דחיית מועד פרסום פסק דין הסבירות
+-  ‘얼마나 재미가 없었으면 시끄러운 경기장에서…’ 前 맨유 선수, 직관 도중 ‘꿀잠’ 포착
+-  Hyvä onnistuminen - neljä suomalaista mukaan mäkiviikon klassikkokisaan
+-  Perttu Hyvärinen teki aivan jäätävän sensaation
+-  ¡Recoja agua! Realizarán limpieza en potabilizadora de La Chorrera
+-  Man Utd decide against triggering Raphael Varane’s contract with defender free to hold exit talks from tomorrow
+-  لحماية الماشية .. نصائح مهمة للمزارعين عند هطول الأمطار
+-  عبور 16 شاحنة إغاثية سعودية منفذ رفح الحدودي إلى قطاع غزة
+-  "تتأرجح يمينا ويسارا".. الهواء يتلاعب بطائرة قبل هبوطها في أسكتلندا
+-  پاکستان اور او آئی سی اسرائیل کے خلاف جنوبی افریقہ کا ساتھ دیں، سینیٹر مشتاق
+-  Bosanac odbio poslušnost i zakuhao skandal: Navijači bijesni, otkrivena pozadina priče
