@@ -1,51 +1,51 @@
 # Latest News
--  Pentagon: strąciliśmy dwa pociski wystrzelone z terenów kontrolowanych przez bojowników Huti
--  Prezydent Argentyny rozpoczyna urzeczywistnianie ultraradykalnego planu ratowania gospodarki
--  Od 1 stycznia wzrośnie minimalne wynagrodzenie za pracę i minimalna stawka godzinowa
--  Władze Wenecji: grupy wycieczkowe tylko do 25 osób i bez głośników
--  Prezes ZUS: jesteśmy gotowi do realizacji świadczenia wspierającego
--  Od 1 stycznia 2024 r. kierowcy zatankują na stacjach benzynę E10
--  POPiHN: KPO powinien rozruszać inwestycje, a tym samym zapotrzebowanie na paliwa
--  Aktywność przemysłu Chin najniższa od 6 miesięcy
--  टुँडिखेलमा तमु ल्होसार (फोटो फिचर)
--  La Plaza es el mejor producto de temporada
--  قبل مواجهة أرسنال .. مشوار فولهام هذا الموسم في البريميرليج
--  Polarising Warner draws curtain on 12-year Test career
--  Suomalaistähden seuran hirmuvire jatkui – 20 voittoa putkeen
--  Arsenal haluaa kaapata tämän hyökkääjän
--  Erdogan govorio o skandalu u Saudijskoj Arabiji: Oni nemaju vrijednost u našim očima
--  রিজভীকে খোঁজা হচ্ছে, শিগগিরই গ্রেপ্তার: ডিবি
--  شاهد.. أمطار غزيرة مع جريان السيول بوادي الرمة في القصيم
--  الإحصاء تعلن أكثر المشاكل الصحية المعلقة بالعمل خلال 2023
--  4 طرق لتنظيم حياتك المالية في 2024
--  Pet owners urged to take extra caution amid fireworks displays - SPCA
--  Ladysmith floods: Dube-Ncube appeals to community to report missing members
--  عاجل.. تنبيه مهم حول موعد صرف معاش الضمان الاجتماعي
--  Recite nam nešto o sebi i mi ćemo vam reći koja ste vrsta koktela!
--  Cape Winelands fire contained
--  Hồ Tấn Tài trở lại ĐT Việt Nam; CAHN trả HLV Polking 1 tỷ/tháng?
--  HLV Indonesia chuẩn bị sẵn kế hoạch chống Việt Nam
--  Mis deseos de año nuevo
--  Sosyal medyada gündem oldu! İmamoğlu'nun sözleri Erdoğan'ı hatırlattı
--  2023 yılının en popüler yapay zeka araçları açıklandı!
--  새해에 떠오를 '자정의 태양'…올해 타종은 누가?
--  Артета разкри какви са настроенията след загубата от Уест Хем
--  1 लाख 20 हजार सालों में सबसे गर्म रहा 2023, ग्लोबल वार्मिंग लाएगी बड़ी तबाही!
--  Oud-wielrenner Rohan Dennis gearresteerd op verdenking doodrijden echtgenote
--  '2위 흥국생명 완파' 현대건설, 1위 이유 증명했다[초점]
--  '화려한 2023년 마무리'… 현대건설, 흥국생명 완파하고 선두 수성
--  الأشغال العامة بزنجبار ينفذ حملة بسوق المدينة لمتابعة ومراقبة الباعة المتجولين اصحاب بسطات بيع العصائر.
--  Лукашенко поручил перевести на усиленный режим несения службы все подразделения МВД
--  Resolusi Tahun Baru, Apakah Berbeda dengan Motivasi?
--  الدوري الإيطالي.. جنوى يفرمل إنتر
--  10 मैच खेलने वाला बैटर डेविड वॉर्नर की जगह लेने को तैयार, कहा- मैंने 10 साल..
--  Soccerladuma | Johnson: Inside Chiefs’ AFCON Plans
--  “Moller Auto”: Šogad līdz septiņus gadus vecu auto tirgus audzis par aptuveni 20%
--  Mantan Bek Manchester United Eric Bailly Kembali ke Villarreal Usai Dilepas Besiktas
--  تعرفوا على أفضل وضعية للنوم إذا كنت تعاني من ارتجاع المريء
--  Di Luar Perkiraan, Lalu Lintas Jalur Puncak Bogor Sepi Siang Ini
--  Handball. Maxime Ermolenko quitte les Vikings de Caen pour un nouveau projet
--  Britons Mesmerized by Remarkable Meteorite Streaking Across Sky
--  Trésor de l’Hôtel-Dieu de Château-Thierry : des œuvres d’art restaurées en 2024
--  Seine-et-Marne : les N4 et N36 vont changer de nom au 1er janvier
--  Bon plan à Quimper : des financements pour les 16-29 ans
+-  [‘안전사고 없도록’…서울 보신각 등 9곳 현장상황 관리
+-  Gent schrapt vuurwerkshow om harde wind
+-  Два мача в Лондон закриват годината във Висшата лига
+-  Радослав Кирилов направи интересно разкритие
+-  اتحاد شمال إفريقيا لكرة القدم: الجزائري وليد صادي يترشح رسميا لمنصب نائب الرئيس
+-  العدوان الصهيوني على غزة: ارتفاع حصيلة الشهداء إلى 21672 منذ 7 أكتوبر الماضي
+-  Erdoğan'dan yeni yıl mesajı
+-  Bulgaristan ve Romanya, Schengen'e dahil oluyor
+-  Каннабис изменяет ДНК и приводит к серьёзным наследственным заболеваниям
+-  شركة جوجل توافق على دفع خمسة مليارات دولار لتسوية قضية خصوصية
+-  حزب الله يهاجم مواقع إسرائيلية بالمسيرات والصواريخ
+-  Real Betis, retroscena Isco: per il rinnovo ha rifiutato tre club. Le parole dell'agente
+-  Profil Besnik Hasi, Pelatih KV Mechelen yang Berharap Timnas Indonesia Tak Lolos Piala Asia
+-  קצת חדשות טובות: מאי ומשה מחתונמי מצפים לילד ראשון!
+-  "הרסת לעצמך את הקריירה": דנה זרמון חטפה מהעוקבים בגלל מילה
+-  שלושה חודשים למלחמה: עם מה הדוגמניות הישראליות מתמודדות בחו"ל?
+-  צבא ארה"ב: הטבענו סירות של החות'ים שתקפו בים האדום
+-  האוצר ממליץ לסגור את המשרד - אבל השרה גמליאל החליטה למנות מנכ"ל חדש
+-  "חוצפה שאין כמותה": המכתב החריף לאיגוד הכדורסל
+-  אזרחית כבוד: בחזרה למשחקי הסילבסטר הזכורים בכדורגל הישראלי
+-  שני בלאומית: שתי בכורות ומוליכה שתנסה לנצל את מעידות המתחרות
+-  ‘축구가 주는 아름다움’ 울버햄튼 캡틴, 득점 후 부친상 겪은 동료 응원… “르미나를 위한 경기”
+-  برطانیہ کا کئی مسلم ممالک کیلئے ویزا فری انٹری کی سہولت کا اعلان
+-  '1박 2일' 김종민, 호주 여행 소감 "여기 사막에?" 화들짝
+-  Emma Raducanu feeling 'reborn' as she prepares for comeback
+-  300만 돌파한 ‘노량’ 진짜 이순신의 모습은 어땠을까
+-  Pourquoi les Conseils Locaux ont-ils besoin d’une loi définissant leurs prérogatives ?
+-  ZA GODINU I PO DANA PROSEČNA PLATA U SRBIJI BIĆE HILJADU I PO EVRA! Vučić: Narednih šest meseci za nas će biti užasno teški
+-  Why a President should not be a Minister, by Hassan Gimba
+-  Ζόε Σαλντάνα: Αγόρασε ένα αρχοντικό έναντι 17,5 εκατ. δολ. στο διάσημο Μοντεσίτo
+-  बाँकेमा हुस्सु र कुहिरोका कारण हवाई उडान प्रभावित
+-  Year in review: A look at news events in June 2023
+-  [증시결산] 2차전지 두고 개인 vs 외국인·기관 치열한 '기싸움'
+-  &quot;ZAVISI OČIGLENO OD NESTOROVIĆA Vučić: Nedostaje nam oko 700 glasova za još jedan mandat
+-  Macron i skvis om «hvit måned» i Frankrike
+-  אביב ששוני מונה למנהל החטיבה הביטחונית והציבורית של F5 בישראל וקפריסין
+-  Тандемът на Ботев Пловдив в атака е №1 в елита
+-  Już nie tylko latem. Stałe połączenie kolejowe z Zamościa do Bełżca
+-  Skrzydłowy Azotów Puławy nie pojedzie na mistrzostwa Europy. "Szanuję decyzję selekcjonera"
+-  Liiska Golaha Wakiillada Puntland oo galabta lagudhawaaqayo xilli tirada uu khilaaf ka jiro
+-  Jedino ona je uspela da mu vrati veru u ljubav: Nakon velikog kraha pojavila se kao dobra vila, zbog njega se i karijere odrekla
+-  লোহিত সাগরে জাহাজ লক্ষ্য করে হুতিদের ছোড়া ক্ষেপণাস্ত্র ধ্বংসের দাবি যুক্তরাষ্ট্রের
+-  Ammara Brown Faces Another Explicit Content Scandal: Singer Hits Back at ‘Leaked’ Nude Yoga Pictures
+-  Opravdani bes Lebrona Džejmsa: Ovo bi i Stivi Vonder video
+-  Schneller Käsesalat! Richtig lecker nach DDR-Original-Rezept
+-  “Kam vrarë babanë”, i ati i dehur i sulmon nënën në Greqi, 35-vjeçari merr thikën dhe e masakron!
+-  송지은, ♥박위 편지에 눈물…"평생 나랑 생일 같이 보내야 해" [마데핫리뷰]
+-  “2024년 새로운 챕터, 샌프란시스코 위해 최선을…” 이정후 다짐, 1468억원짜리 책임감
+-  "퍼거슨 경 옆에 앉은 사람 누구야?"…맨유 팬들 웅성웅성→확인 후 기대감 폭발! 누구이길래?
+-  이찬원, 10년 만에 금의환향 "'전국노래자랑' 초대가수로 나오니 영광스럽다"
