@@ -1,11 +1,11 @@
 # Latest News
--  نگرانی قالین‌بافان از نبود بازار فروش برای قالین‌های دستبافت
--  Soirée du nouvel an : Prudence au volant…
--  Bakan Koca, 2023 yılının sağlık verilerini açıkladı
--  Zeynep Bastık'ın 40 milyon TL'lik evi!
--  Bahçeli'den Süper Kupa açıklaması: 2024 yılında hayal kırıklığına uğrayacaklar
--  유재석도 인정한 예능감…신예은, '런닝맨' 고정 되나? '새 멤버로 탐났상' 수상 [런닝맨](종합)
--  Donald Trump Sends Early New Year's Message to Joe Biden
--  Vanja Horvat otkrila je gdje pronalazi svoj mir, uz ovaj sport teško biste ju povezali: ''To mi je u krvi!''
--  Pengamat Sebut Kubu Ganjar Tak Bisa Bendung Efek Bansos Jokowi ke Prabowo-Gibran
--  Emine Erdoğan'dan yeni yıl mesajı
+-  Xếp hạng trend 2023: Bánh đồng xu, trà chanh giã tay, mì thanh long... trend nào hot nhất?
+-  Năm 2024, tiếp tục xử lý nghiêm nồng độ cồn, tạo thói quen 'uống rượu bia, không lái xe'
+-  Bỏ 79 triệu mua xe Porsche giá hời, hóa ra hàng 'pha ke' đỉnh cao
+-  Vì sao gần Tết mà Nam Bộ, TP.HCM vẫn mưa lớn?
+-  Phòng CSGT TP.HCM: Năm 2023 có nhiều vụ ùn ứ, chỉ có một vụ nghiêm trọng
+-  В Коломне отменили все ночные гуляния из-за трагедии в Белгороде
+-  بزيادة 121.6%.. بنك مصر يربح 39.24 مليار جنيه في أول 9 شهور من 2023
+-  ‬ طالبة تنهي حياتها شنقا داخل منزل أسرتها في بني سويف
+-  نتنياهو: إذا لم نحقق الأمن في الشمال عبر الوسائل السياسية فسنحققه عبر الوسائل العسكرية
+-  تحت شعار "نتشارك".. انطلاق آخر لقاءات برنامج البرلمانات للمبادرات المجتمعية بجنوب سيناء – صور
