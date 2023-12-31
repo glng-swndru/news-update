@@ -1,11 +1,11 @@
 # Latest News
--  Crece tensión en espera de resultados electorales en RDC
--  ‘극단적 선택’ 표현 쓴 언론사 자율규제 제재한다
--  „StormBreaker“ – pačios naujausios amerikiečių bombos, kurios „visiškai pakeis žaidimo taisykles“. Jau netrukus atkeliaus ir į Europą (Video)
--  Panašu, kad greitai išpopuliarėję NFT šiemet žlugo – kas nutiko?
--  [ŽT] Rusija kaltina Čekiją. Kas nutiko
--  Nauja pasaulio tvarka pagaminta Kinijoje. Diktatūros vienijasi
--  Vatandaşların kazada yaralanan kardeşleri hayatta tutma çabası yeterli olmadı
--  Aksaray şehir merkezinde araçlar MPTS ile denetleniyor
--  Karaman'da "Şehitleri Anma ve Teröre Lanet" yürüyüşü düzenlendi
--  'Khúc dạo đầu của mùa xuân' qua Sách Tết 2024
+-  2023'te kamu hastanelerinde 520 bin 723 bebek doğdu
+-  104 yaşındaki 'Cumhuriyet Anne' 2023'ün son günü hayatını kaybetti
+-  Susurluk'ta kaybolan Nail Ceylan'ı arama çalışmaları sürüyor
+-  Sergen Yalçın ters köşe yaptı
+-  Geçici ithal edilen kara taşıtlarına ilişkin düzenleme yapıldı: 4 yıl kalabilecek
+-  Panathinaikos'un maçını yayınlayacak kanal belli oldu
+-  Brezilya'dan Aboubakar için resmi teklif
+-  Galatasaray'da flaş Icardi gelişmesi! Premier Lig'den 2 alıcı var
+-  Hayvanları koruma derneğinde horoz dövüşü yaptırıyorlar!
+-  İsrail'in Gazze'deki saldırısında önemli kayıplar var
