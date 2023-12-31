@@ -1,11 +1,51 @@
 # Latest News
--  רייטינג: חדשות 12 בורחת בענק, הפטריוטים בנתון חלש שהספיק
--  חדשות 12 מול חדשות 13: מי ניצח בקרב הרייטינג על מיה שם?
--  ভোটকেন্দ্রে ভোটারদের উপস্থিতি খুবই গুরুত্বপূর্ণ: ওবায়দুল কাদের
--  পেঁয়াজ চাষে দিন বদলের স্বপ্ন দেখছেন কৃষক
--  সোহরাওয়ার্দী কলেজ ছাত্রকে অপহরণ করে মুক্তিপণ দাবি, দুদিন পর ঢাবি থেকে উদ্ধার
--  একযুগেও সংস্কার হয়নি তালতলীর খোট্টার চর সেতু, দুর্ভোগ চরমে
--  চরফ্যাশনে চেয়ারম্যান বাজারে অগ্নিকাণ্ডে পুড়েছে ৪ দোকান
--  জিয়া শিক্ষার্থীদের হাতে অস্ত্র দিয়েছিল: শেখ হাসিনা
--  אתגרי הסייבר של 2024: השפעת הבינה המלאכותית מגדילה את הסיכונים
--  ৭ জানুয়ারি ভোটার উপস্থিতি শূন্যের কোটায় থাকবে: ১২ দলীয় জোট
+-  MASAK Başkanlığına 40 personel alınacak
+-  Diplomat Köse'nin şehit edildiği saldırının faili teröristin hava harekatında etkisiz hale getirildiği belirlendi
+-  Bosna Hersek'te 5,2 büyüklüğünde deprem meydana geldi
+-  Yargıtay, tacizcisini öldüren 18 yaşındaki Azra'ya verilen 8 yıl 4 ay cezayı fazla buldu
+-  Dilan Polat Bakırköy Ruh ve Sinir Hastalıkları Hastanesine götürüldü
+-  Çevreye ateş açıp kendini eve kilitleyen şahsı özel harekat polisleri ikna etti
+-  13 yaşındaki kayıp çocuk, dere yatağında sağ olarak bulundu
+-  Esenyurt'ta cip temizlik aracı ile çarpıştı: 2 ölü 2 yaralı
+-  Premier Izraela: wojna toczy się na wszystkich frontach, potrwa wiele miesięcy
+-  Rumunia i Bułgaria wejdą do strefy Schengen 31 marca 2024 roku
+-  Soccerladuma | Cupido: Small Sacrifices, Big Rewards
+-  The changes set to hit budgets in 2023
+-  Ölümlü Dünya'nın dizisi mi geliyor?
+-  New Year`s Eve: Experience unique flavours at Sofitel Mumbai BKC
+-  Akshay Kumar during PM Narendra Modi`s `Mann Ki Baat` address
+-  Eva Díaz Pérez, autora de 'Los viajeros del continente': "Cuento el vértigo de la historia"
+-  Eva Díaz Pérez, autora de 'Los viajeros del continente': "Cuento el vértigo de la historia"
+-  Keluarga Korban Dugaan Penganiayaan Tolak Bingkisan dan Bantuan dari TNI
+-  Kritik Makan Siang Gratis, TKN: Mahfud MD tak Peduli Gizi Anak
+-  İbrahim Yumaklı: IPARD-II projesinden 2023’te 3 milyar lira hibe desteği verildi
+-  Mimpi tak Berujung Perempuan Afghanistan yang Ingin Jadi Dokter
+-  [ŽT] „...įpratusi gyventi sočiai ir ramiai...“ Skelbiama didžiausia Europos „klaida“ dėl Putino
+-  Nieuwjaarsduik in Woerdense Cattenbroekerplas
+-  Tai dar 2008 m. padarė Sakartvelas. Kaip buvo numuštas rusiškas Tu-22M3
+-  Vijf nieuwe woningen aan Kerkweg 6 in Schelluinen
+-  Miranda Milan, nuovo incontro a fine gennaio: cosa sta succedendo
+-  Solarcarports und Lokschuppen-Verkauf: Bebras Stadtpolitik will Entwicklung am Bahnhof
+-  7 Drama Korea Populer yang Dibintangi Jang Nara
+-  वनबाट ढलेका रुख उठाउने तयारी
+-  Szczesny, siparietto con Barzagli in tv: “Se fate decidere sempre Andrea..."
+-  Ferragni e la torta "Rimorchio i 2000": stoccata di Selvaggia Lucarelli
+-  Audiences : Quel score pour "The floor", le nouveau jeu de Cyril Féraud, sur France 2 ?
+-  Национал на България: Левски много ме искаше, но дори един ден да отида, никога няма да стана фен на "сините"
+-  ”Venäjän suunnitelman mahdollisti vihreiden painostuksesta tehty virhe”
+-  Κλείνει το «deal» για Παπαστυλιανού!
+-  Ban on Paan, tobacco at Lingaraj Temple in Bhubaneswar from New Year
+-  Nga Qershori i 2024-ës, Venecia do të ndalojë grupet e mëdha turistike
+-  فيديو يظهر فيضانات تجتاح نفق قطارات في لندن.. وإلغاء آلاف الرحلات
+-  Để Scott McTominay đá tiền vệ phòng ngự là một thảm họa
+-  "Я бы наделал в штаны". Томпсон сделал признание про бой Рахмонова
+-  הטעות הפטאלית שהפכה את הקעקוע החדש של ויניסיוס לוויראלי
+-  שמוליק בילו, חבר להקת "חלב ודבש" ("הללויה") שזכתה באירוויזיון, הלך לעולמו
+-  אפשר להרגיש יותר טוב: 6 החלטות שחשוב לקבל עבור 2024 משופרת
+-  Cari kelainan dengan bercuti, sambut Tahun Baru Cina di Chengdu, China
+-  Sumiraju se posljedice sinoćnjeg potresa na području Zenice
+-  Najave događaja za 31.12. 2023. godine (nedjelja)
+-  Müdafiə Nazirliyinin həftəlik icmalı
+-  Quy hoạch tỉnh Nam Định: ‘3 vùng động lực, 4 cực tăng trưởng, 5 hành lang kinh tế’
+-  Coulthard révèle avoir rejeté un baquet Ferrari après 'la clause Schumacher'
+-  Man arrested after being restrained on Bali flight
