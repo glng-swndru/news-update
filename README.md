@@ -1,51 +1,51 @@
 # Latest News
--  Rusia lanza un nuevo ataque aéreo contra las ciudades más grandes de Ucrania
--  Збірна Німеччини програла Латвії: результати матчів чемпіонату світу U-20
--  يساعدهم على النوم.. دراسة توضح أثر الصيام المتقطع على مرضى الزهايمر
--  Krieg gegen die Ukraine: So ist die Lage
--  Vòng luẩn quẩn của Man Utd
--  7 thống kê chứng minh sự xuất sắc của Cole Palmer
--  "Cái kết cay nghiệt cho Arsenal"
--  България, Румъния и Турция ще сдържат Русия в Черно море
--  “이 칼라 실화야? 가격도 착해진다고?”…갤럭시 S24 예상 스펙 총정리
--  আগামী পাঁচ বছর জনগণের জন্য কাজ করতে চাই: সাকিব
--  Animal Song 'Haiwaan' Out! This Track From Ranbir Kapoor’s Film Showcases the Powerful Bond of Brothers (Watch Video)
--  India News | Court Grants Bail to 2 Persons Held with Ambergis in Thane
--  «Барселона» заинтересовалась Гринвудом
+-  "Tôi thực sự hạnh phúc và tận hưởng kỷ nguyên mới này tại Tottenham"
+-  NFL '매닝 가문' 3세 찰스, 대학 풋볼 '슈거 볼' 출전에 관심 폭발
+-  Víctor de la Morena (Amundi): “Los siete magníficos se han llevado todo el pastel y son un factor de riesgo”
+-  Här skulle du investerat pengarna under 2023
+-  Ekonomens bästa tips för 2024 – med hopp
+-  KRÖNIKA: Pengar inte allt – men kan ge drömmar vingar
+-  ‘The future’ – Photo of Mamelodi Sundowns star Bongani Zungu’s son playing football trends
+-  ഗസ മുനമ്പ് അതിർത്തിനിയന്ത്രണം തിരിച്ചുപിടിക്കുമെന്ന് നെതന്യാഹു
+-  "나와서 그러면 사람 아닙니다"…'엄마뻘 엽기 성폭행' 중학생의 편지
+-  Livestream for AEW Worlds End Media Scrum Now Online
+-  बीमा, वीर अस्पताल र काठमाडौँ
+-  Des Wolves très solides se farcissent les Lakers d’un LeBron James aux trop grands pieds
+-  Esenyurt'ta korkunç kaza: 2 ölü, 2 yaralı
+-  북한 박정천 중앙군사위 부위원장 복귀, 군부 실세 재부상
+-  Kilis'te hareketli dakikalar! Park halindeki araca kurşun yağdırdılar
+-  লুটেরাদের বিরুদ্ধে অবস্থান নিন, একতরফা ভোট বর্জন করুন: রিজভী
+-  Eighteen year old charged for attempted robbery; causes bodily harm
+-  백경현 구리시장 신년사
+-  김현택 남양주시의회 의장 신년사
+-  주광덕 남양주시장 신년사
+-  फेस मास्क: सर्दी के मौसम में नारियल तेल से दूर होगी त्वचा की खुरदरापन, बना रहता है फेस मास्क
+-  Українські дрони вразили більшість намічених цілей у РФ – ISW
+-  सामूहिक दुष्कर्म के आरोपी अरेस्ट: आईआईटी बीएचयू की छात्रा को किस किया फिर उतरवाए कपड़े, पढ़ें- क्या हुआ उस दिन
+-  গাজা-মিসর সীমান্তের নিয়ন্ত্রণ চায় ইসরায়েল: নেতানিয়াহু
+-  Banjir : KKM sedia 102 pasukan sokongan mental bantu mangsa terjejas
+-  इन कुछ फूड्स को खाने से तेजी से बढ़ेंगे आपके बाल, 1 महीने के अंदर मिलेंगे काले लंबे बाल
+-  Tag Team Grudge Match Announced For Next Week’s AEW Collision
+-  Como a arte sacra vem desaparecendo das igrejas de Minas Gerais há décadas
+-  A trip to Scotland fuels the imagination
+-  إفشال محاولات هجومية للحوثيين في تعز
+-  Ca mổ tách cặp song sinh Đức, Việt 35 năm trước và câu chuyện nhức nhối về hòa bình
+-  Cuối năm, 'vật lộn' với giao thông quanh sân bay Tân Sơn Nhất
+-  Dự báo thời tiết ngày 31-12 đến 6-1: Bắc Bộ rét, Trung Bộ mưa rào, Nam Bộ nắng nóng
+-  Mỹ triển khai 6 hệ thống phòng thủ tên lửa THAAD tại đảo Guam
+-  Việt Nam hấp dẫn nhờ chuyển đổi xanh
+-  Novaland bảo lãnh cho khoản vay 10.000 tỷ đồng của công ty con tại MB Bank
+-  पिकनिक जाँदै गरेको बस दुर्घटना, ३० जना घाइते
+-  Число жертв террористической атаки ВСУ на Белгород увеличилось до 22
+-  與 "북한과 대화 의지…도발 멈추고 평화 구축 위한 길로 복귀해야"
+-  प्रीमैच्योरिटी की समस्या को खत्म करने के लिए करें करी पत्ते पर भरोसा, यहां है खास पैक
+-  Οι εκλογές στις ΗΠΑ και οι ελληνοτουρκικές σχέσεις - Η σύνδεση και τι μας περιμένει το 2024
+-  Melihat Rumah Tahan Gempa Berbahan Dasar Limbah PLTU Buatan Mahasiswa PPNS dan ITS
+-  BREAKING NEWS: “He can leave during the next transfer window, he’s not needed anymore. He was a good player but now he’s just a bench warming flop” – Chelsea owner Todd Boehly is approving the exit of one of their key first-team players for a fee of only €50million.
+-  حماس کا خوف، اسرائیل کا پھر سے غزہ پر کنٹرول کا منصوبہ
+-  Con "lộc trời" xuất hiện nhiều, người dân một xã của Hải Dương vớt mỏi tay, bán 300.000 đồng/kg, ngày nào cũng thu tiền triệu
+-  फराह से जानकी बनी युवती की कहानी: तीन तलाक-हलाला के डर से बदला धर्म, अयोध्या धाम मंदिर में राम से रचाई शादी
+-  정부 부패 개선됐지만… 93% “부패 고위공직자 처벌 공정치 않아”
+-  Малкин признан первой звездой матча «Питтсбург» — «Сент-Луис»
 -  Adana'da silahlı saldırıya uğrayan baba ağır yaralandı, oğlu öldü
--  Esenyurt'ta katliam gibi kaza! 2 ölü, 2 yaralı
--  Katrina Kaif and Vicky Kaushal arrive at the airport in style
--  로그프레소, 클라우드 SIEM 서비스 출시
--  Amitabh Bachchan Bids Farewell to Kaun Banega Crorepati: 5 Best Moments of the Legend on KBC That Will Stay With Us Forever! (Watch Videos)
--  Капризов не смог доиграть матч с «Виннипегом» из-за травмы
--  N. Korea’s Kim orders military to prepare for possible ‘war’
--  Discover Epigenetic Dining and Plant based Wellness Menus at Anantara Kihavah Maldives
--  Tự hào vị thế Việt Nam
--  דיסני תפסיד מותג של מיליארדים? זה מה שיקרה לזכויות של מיקי מאוס
--  Wordle today: Hint and answer #925 for Sunday, December 31
--  Tinubu, Shetima’s wife visit Akeredolu’s family, say his death great loss to Nigeria
--  Sports News | New Zealand Beats Bangladesh by 17 Runs in 3rd T20, Shares Series 1-1
--  AFC nhận xét bất ngờ về HLV Troussier trước Asian Cup 2023
--  Sydney bereitet Riesenfeuerwerk vor - erstmals auch mit KI
--  কিয়েভ ও খারকিভে রাশিয়ার ড্রোন হামলা
--  “Superfood Spotlight: Odisha embracing the nutritional bounty of Millets!!”
--  Nicola Porcella asegura que no tiene complejos y que es heterosexual
--  Experter: Så kan du tänka om 14 vanliga nyårslöften
--  Teknik direktör Servet Çetin'den Sivasspor'a veda mesajı
--  Shardul Thakur Injury Update: কেপটাউন টেস্টের আগে অনুশীলনে চোটের শঙ্কা কাটিয়ে সুস্থ শার্দুল
--  थप १४ उद्योगको लाइन काटियो
--  नचलेका अन्तरराष्ट्रिय विमानस्थलमा पीपीपी मोडल
--  गौतमबुद्ध र पोखराबाट पाठ सिक्न सुझाव
--  Six Senses Kanuhura Celebrates Art Week with Lucas Beaufort
--  මවක සහ දරු තිදෙනෙකු මාලඹේ අභිරහස් ලෙස මියගිහින්
--  Grand Budapest Hotel Actor Tom Wilkinson Passes Away at age 75
--  सर्दी के मौसम में बेहतर होगा बच्चे का इम्यून सिस्टम, इन तीन ड्रिंक्स पर करें भरोसा
--  Áo dài của Quang Hải và vợ sắp cưới cảm hứng từ triều phục
--  [KTR, 국내 최다 GLP 시험 수행 …환경부 식약처 지정 잇달아
--  [“피자·햄버거는 당분간 가격 인상 안합니다”
--  [“다들 호텔인 줄 알았다” 사진 속 ‘방’…놀라운 정체, 알고보니
--  [과천 영아사체 유기 50대 친모 결국 ‘무혐의’
--  रूस पर यूक्रेन का बहुत बड़ा हमला, 21 लोगों की मौत, 100 से ज्यादा लोग घायल
--  ‘สุริยะ’ สั่งทุกหน่วยงานคมนาคม จัดขนส่งสาธารณะให้เพียงพอ ห้ามผู้โดยสารตกค้างหลังปีใหม่
--  ยิปซีพยากรณ์ดวงรายวันประจำวันอาทิตย์ที่ 31 ธันวาคม พ.ศ. 2566
--  Recreation scoreboard for Saturday, Dec. 30
+-  Esenyurt’ta cip, yol temizleme aracına çarptı: 2 ölü, 2 yaralı
