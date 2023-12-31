@@ -1,11 +1,11 @@
 # Latest News
--  Many last-minute skiing vacations booked after early snowfall
--  İstanbul Valisi Gül'den yılbaşı mesajı: Gerekli tüm tedbirleri aldık
--  Suomalainen jääkiekkovalmentaja takoo hurjaa jälkeä - taas tuli mestaruus
--  Cristiano Ronaldo termina 2023 como el máximo goleador del mundo y anuncia: «El año que viene…»
--  The Human Trap: Korean Horror Thriller Heads to VOD Next Month
--  Irán libera a Santiago Sánchez, el español encarcelado cuando se dirigía al Mundial de Qatar
--  La migración sacudió a frontera norte de México en 2023 afectando a poblaciones y comercio
--  „Arsenal“ krizė: antras pralaimėtas Londono derbis iš eilės
--  Car model thieves are targeting most in Midlands as police list five ways to stop them
--  Kickoff | Arsenal fail to move top after derby defeat
+-  Foreign Investors Made Beeline For Indian Stocks, Turned Net Buyers In 2023
+-  Surge In 'Gold Findings' Import Brings Tax Bonanza For Indian Jewellers
+-  FM Nirmala Sitharaman Chairs Meeting To Review Performance Of Public Sector Banks
+-  India's Russian Crude Imports Prevent Price Surge In Global Oil Market
+-  “암 조기 진단 국내 기술력 글로벌 시장 우뚝”
+-  2024년도 기관 및 단체장 신년사
+-  Ronaldo ends 2023 as world`s top goal scorer, says `will try to do it again`
+-  No tussle in MVA over sharing of seats for Lok Sabha polls: Sanjay Raut
+-  New Year: From Deepika to Alia, celebs bid adieu to 2023 with nostalgic post
+-  Sagvan Tofi pred kamerami šokoval dĺžkou jazyka: Šialené, čo s tým svojim dokáže krásna Slovenka!
