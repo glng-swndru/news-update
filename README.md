@@ -1,11 +1,11 @@
 # Latest News
--  최근 5년간 '성범죄'로 검거된 의사 800명… 성폭행·추행이 87%
--  [속보] 방통위, 141개 지상파 재허가 연기…"방송사 불이익은 없을 것"
--  Judge orders release of over 150 names of people mentioned in Jeffrey Epstein lawsuit documents
--  Korea set to implement global minimum corporate tax scheme
--  About 100,000 visitors expected for New Year's Eve ceremony in central Seoul
--  5 مشروبات منزلية تعمل على خفض ضغط الدم بسرعة
--  Caen 4 por masacre en fiesta en Cajeme, Sonora
--  Maharashtra Fire Video: महाराष्ट्र में भीषण हादसा, दस्ताने बनाने वाली फैक्ट्री में आग लगने से 6 लोगों की मौत
--  স্বতন্ত্র প্রার্থীর পক্ষে প্রচারণা, তাহিরপুরে ছাত্রদল সভাপতিকে অব্যাহতি
--  Confirmaron el primer caso humano de encefalomielitis equina en Entre Ríos
+-  Bericht: Gaza ist eine Landschaft aus zertrümmertem Beton
+-  Nochevieja: qué significa, cuál es su origen y por qué se celebra cada 31 de diciembre
+-  Рок-группа «Ария» провела в Москве предновогодний концерт
+-  S.Korean refiners’ race for EV lubricants heats up
+-  Detroit Pistons win to end record-equalling losing record
+-  Спикер ВСУ Игнат: Россия стремится поразить на Украине стратегические цели
+-  Шииты атаковали две военные базы США на северо-востоке Сирии
+-  Oficial: Ejecutada sí es la mujer desaparecida en Delicias
+-  Falta de camiones, un viacrucis para usuarios
+-  Alertan que expropiación de planta generará incertidumbre
