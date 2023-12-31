@@ -1,51 +1,51 @@
 # Latest News
--  내부거래 이사회 의결·공시 기준 50억→100억원으로 상향
--  우려가 현실로...태영건설 워크아웃 신청, 협력업체에도 영향
--  '왕릉뷰 아파트' 건설사들, 문화재청 상대 최종 승소
--  「她雖不完美，卻是我。」接受自己，才是真的愛自己
--  「年後再說」讓你更快樂？心理學家：延遲憂慮，放過此刻的自己
--  只要在「我」後面多加一個字，就能改變雙方關係的溝通術
--  دراسة توضح فوائد الوقوف 3 ساعات يومياً بالتناوب
--  Topfavoriet Luke Humphries kruipt door het oog van de naald na negen (!) gemiste matchdarts
--  Las películas más esperadas de 2024
--  СМИ сообщили о трех пожарах в центре Харькова на фоне взрывов
--  Abierta, licitación para ampliación del Relleno Sanitario
--  Pioli: “Non mi è mai entrato in testa il fatto di poter essere a rischio. Al Milan se non si vince…”
--  Сальдо высказался о судьбе Каховского водохранилища после подрыва плотины
--  16-year-old darts sensation Luke Littler books place in quarter-finals of World Darts Championship
--  Un jugador fundamental que se va en una fase decisiva de la temporada
--  Зеленский заявил, что получил военный план на 2024 год
--  Гладков: в результате атаки ВСУ на Белгород повреждены 30 домов и 344 квартиры
--  Top 14 : La Rochelle se donne de l’air en battant le Stade toulousain, dans le « remake » de la dernière finale
--  Isaac Nader e Solange Jesus vencem São Silvestre de Lisboa
--  We’re lucky to be alive after TWO cars ploughed into our home while I was cooking a curry days before Christmas
--  Kathy Griffin files for divorce after nearly 4 years of marriage
--  На Украине пошутили про обстрел Белгорода
--  Paulo Sérgio: «Já falei com o Manuel Oliveira e ele sabe que errou»
--  Familiares de paciente fallecido atacan a patadas a personal médico de Cartagena
--  Stormy and wet New Year’s Eve for Queensland
--  Silvia Pinal permanecerá hospitalizada, pero "todo está muy bien", dice su asistente
--  Inzaghi se lo sentiva e il successo di Verona rinsalda la sua panchina. Passo indietro gialloblù
--  B.A.P Unión arribó a Grecia en medio de un gran recibimiento
--  Kes bunuh Zayn Rayyan: Siasatan masih diteruskan
--  Вучич заявил, что Сербия с гордостью сохранит дружбу с Россией и Китаем
--  تراند اليوم : شاهد : السلطات التركية تعتقل فنان تركي أساء للعرب في أغنية بعد إلغاء مباراة السوبر
--  تراند اليوم : بـ 75 ألف ريال .. شاهد.. أغرب شقة في الرياض بدون نوافذ!
--  OSIRIS-APEX Embarks on Mission to Explore Asteroid Apophis
--  El truco definitivo para limpiar los cordones y sacarles las manchas negras
--  Babahoyo: Cuidador asesinado cuando descansaba en hamaca
--  Princess Kate Middleton's 'goto' clothing brand that's started only 10 years ago
--  Умерла легендарная ведущая программы «Время» и «Голубых огоньков»
--  Empat TikTokers kongsi kisah seram
--  Небензя назвал удар ВCУ по Белгороду преднамеренным и неизбирательным
--  Sunday's gossip: Dragusin, Todibo, Phillips, Greenwood, Varane, Diao, Maatsen
--  La música y el humor acompañan a la audiencia en la última noche del año
--  La música y el humor acompañan a la audiencia en la última noche del año
--  La música y el humor acompañan a la audiencia en la última noche del año
--  La música y el humor acompañan a la audiencia en la última noche del año
--  Metro restaurants and pubs expecting a solid night of business on New Year's Eve
--  Hugmyndin um Gerrard og Liverpool sé núna „hlægileg"
--  I refuse to gatekeep my dry, crusty skincare hacks – you’re using body moisturizer wrong and how to fix flaky lips
--  Небензя сравнил киевских главарей с Гитлером
--  31. Dezember 1998: Der Euro wird als gemeinsame Währung von elf EU-Staaten, darunter Österreich, festgelegt
--  Giulia Asked About WWE Interest, Says She Still Has Things To Do In Japan
+-  Lo arrestan por conducir moto con serie alterada
+-  Capturan a cuatro con órdenes de aprehensión pendientes
+-  Sudoku difícil: 31 de diciembre de 2023
+-  Sudoku medio: 31 de diciembre de 2023
+-  Sudoku fácil: 31 de diciembre de 2023
+-  ISTINU ODNEO U GROB: Tačija i zločince OVK smrt Dika Martija bi mogla da spase?!
+-  Balance 2023: Mindef realizó acciones de ayuda, prevención y coordinación frente a El Niño
+-  🔴 EN VIVO | Javier Milei y su mensaje de fin de año “para todos los argentinos”
+-  10 Link Twibbon Tahun Baru 2024 Plus Info 26 Ruas Jalan di Jakarta Ditutup Saat Pergantian Tahun
+-  Wilfredo Romero punteó con Santurce en Puerto Rico
+-  साल के आखिरी दिन सूर्य देव को इन खास उपायों से करें प्रसन्न, जीवन की परेशानियां होंगी दूर
+-  FALA: Expediting Africa's systemic change through young leaders
+-  عاجل.. حساب المواطن يوضح هل سيتم تمديد الدعم الإضافي في البرنامج؟
+-  Navas bị Real đối xử phũ phàng
+-  4 quyết định 'tự hủy' của Ten Hag
+-  Réveillon na região terá shows e queima de fogos
+-  Bellingham của Chelsea tỏa sáng rực rỡ
+-  Paula Abdul accuses 'American Idol' producer Nigel Lythgoe of sexual assault in lawsuit
+-  Two people hospitalized due to Swan Valley fire
+-  New Year Eve 2024 Messages: हैप्पी न्यू ईयर ईव! इन शानदार हिंदी Shayaris, WhatsApp Wishes, GIF Greetings, Photo SMS को भेजकर दें बधाई
+-  दुनिया की कोई भी ताकत भारतीय शेयर बाजार में नहीं लगा पाएगी सेंध, डिजास्टर रिकवरी की सामने आई धांसू प्लानिंग
+-  Micheal Martin plots narco gang talks on official Colombia trip as battle to take down Kinahan cartel ramps up
+-  BYD Punya SUV Premium Pesaing Mercedes-Benz G-Class
+-  La princesa Charlotte es la niña más rica del mundo: la futura duquesa de Edimburgo lidera la lista superando a su hermano George, ¿cuánto dinero tiene la hija del príncipe William y Kate Middleton?
+-  The racing headlines you WILL … and WON’T … read in 2024
+-  Tiga Museum di Jakarta Telah Dibuka Kembali, Museum Apa Saja?
+-  MIDAGRI anuncia viabilidad del Proyecto Hidroenergético Alto Piura
+-  Makin Trendi dengan Kain Tradisional Indonesia
+-  Châu Âu chế tạo siêu máy tính nhanh nhất thế giới
+-  Leo Varadkar open to another rotating Taoiseach deal with Micheal Martin after next general election
+-  Government set to clash over who to nominate as next EU Commissioner – as Mairead McGuinness bids for second term
+-  গুলশান-বনানীতে বহিরাগত নিষিদ্ধ, হাতিরঝিল বন্ধ
+-  VSV Capital khép lại một năm đáng nhớ với mục tiêu kết nối startup Việt Hàn
+-  Presidente de Guyana promueve soluciones pacíficas en disputa territorial con Venezuel
+-  '마침내 돌아왔다' 데 브라위너, 햄스트링 부상 이후 141일 만에 1군 복귀...셰필드전은 결장
+-  엄마 낮잠 자던 사이…5세 아이 16층서 추락사
+-  Đề phòng dị vật nguy hiểm ở trẻ em
+-  Nga oanh tạc Ukraine, phương Tây lo lắng
+-  Nghỉ lễ tiệc tùng uống nhiều bia rượu, hôm sau chưa hết nồng độ cồn
+-  Bóng đá Việt Nam năm 2023: Thành công nhiều hơn thất bại
+-  My mom’s Temu order was a major fail but I’ve been laughing for 20 minutes about her response, she got her money back
+-  My mom’s Temu order was a major fail but I’ve been laughing for 20 minutes about her response, she got her money back
+-  '한시 운영' 가리왕산 케이블카…철거·존치 분수령
+-  채리나, 태국에서 뽐낸 비키니 자태…넘사벽 글래머 몸매[★핫픽]
+-  Netanyahu says Gaza-Egypt border zone should be under Israeli control
+-  Champagne for £10 and prosecco for £4.75 – top New Year supermarket deals revealed by Martin Lewis’ Money Saving Expert
+-  '미신고 아동' 1만명 이상…더는 '사각지대' 없게
+-  Why Victorians are more likely to land in emergency this week
+-  Why Victorians are more likely to land in emergency this week
+-  Why Victorians are more likely to land in emergency this week
