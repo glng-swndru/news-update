@@ -1,51 +1,51 @@
 # Latest News
--  القيادة المركزية الأمريكية: قمنا بالرد على مهاجمي السفينة ميرسك
--  القسام: مجاهدونا يستهدفون قوات صهيونية خاصة شرق حي التفاح بغزة بالعبوات والقذائف
--  “A mí me gusta trabajar y mis hijos me regañan”
--  İsrail ile Lübnan sınırında karşılıklı saldırı
--  На Камчатке произошло землетрясение
--  Скачат цените на водата
--  ¿Cambio de look en Navidad? Estos son los tintes de cabello menos dañinos y duraderos
--  Avanza agenda legislativa propuesta por Menchaca Salazar
--  На 1 януари имен ден имат хиляди българи
--  Pertamina Jamin Distribusi BBM Aman Selama Tahun Baru
--  Jaarwisseling moet nog komen, maar hulpdiensten hebben nu al drukke nacht achter de rug
--  ZEMLJOTRES POGODIO KIPAR
--  "Тук няма никакво бъдеще, само развалини и трупове"
--  Contraloría y Función Pública unen esfuerzos
--  Rafa Nadal odigrao prvi službeni meč nakon 347 dana i doživio poraz
--  Мэрия Белгорода сообщила о ракетной опасности
--  Мэрия Белгорода сообщила о ракетной опасности в городе
--  В Кривом Роге Днепропетровской области Украины произошли взрывы
--  Dövlət Yanğından Mühafizə idarəsinə yeni rəis təyin edildi
--  Michelle Mone: Crime agency ‘looking into £3m sent to peer’s bank account’
--  Polisen söker efter försvunnen man i Älvkarleby
--  कुलुङ जातिले विभिन्न कार्यक्रमसहित मनाए नयाँ वर्ष
--  Uzmanından yeni yılda beslenme önerisi!
--  Sinan Akçıl'dan Aras Bulut İynemli'ye tepki!
--  Merkez'den Dijital Para mesajı
--  'Cumhuriyet Anne'den kötü haber
--  Fırtınada batan geminin kayıp 7 personeli 43 gündür aranıyor
--  سال 2023 : پولیس مقابلوں میں سندھ پولیس کے 21 جوان شہید، رپورٹ
--  Πέθανε ο ηθοποιός Τομ Γουίλκινσον
--  В Белгородской области мужчина погиб при обстреле магазина
--  Trefoloni: "Gol Inter da annullare, è fallo di Bisseck: Doveri ha sbagliato"
--  Il Toro di Juric e la discontinuità: con Ivan si va troppo in giostra
--  Napoli, dicembre nero e Kvara scomparso: il 2023 si chiude nel baratro
--  La Serie B e i sogni promozione: dietro al Parma tutto è possibile
--  Nonge, il talento Juve da "raddrizzare": il teaser di Allegri e la scheda
--  Miriam Leone ha partorito, l'annuncio social: "È nato Orlando Leone Carullo"
--  İsrail güçleri Batı Şeria'da mülteci kamplarına baskın düzenleyerek 4 Filistinliyi yaraladı
--  Ameriška ladja v Rdečem morju sestrelila dve raketi iz Jemna
--  TÕNIS ERILAID | „Soovid, soovid, soovid“: 40 aastat hilinenud kirja lugu
--  Maignan prende l’aereo e vola! La parata incredibile contro il Sassuolo – VIDEO
--  PEVAČICI STIGAO &quot;POKLON&quot; IZ AMERIKE! Lena Čolak ostala u šoku, lije suze od sreće
--  للمرة الثانية تواليا.. جماهير الوداد تتصدر ترتيب الأفضل عالميا في 2023
--  الركراكي يرفض السماح ل "الأسود" من خوض مباريات مع أنديتهم قبل التوجه إلى الكوت ديفوار
--  هام للجماهير المغربية الراغبة في التوجه إلى الكوت ديفوار لمساندة الأسود
--  تطوان : حزب الاستقلال ينظم لقاء تواصليا حول الدعم المباشر والخدمات الاجتماعية
--  بطولة بلجيكا لكرة القدم.. فريق ستاندار لياج ينفصل عن مدربه
--  2024 Milli Piyango yılbaşı çekilişi 750 bin TL kazanan numaralar hangileri? MPİ 750.000 TL kazanan bilet numaraları sıralı tam liste
--  Se incendia camioneta cargada con huachicol
--  Papa pede coragem para avaliar destruição, morte e pobreza causadas pela guerra
--  শীতলক্ষ্যায় রিভার এ্যাকশন গ্রুপ মিটিং
+-  القسام: استهدفنا أباتشي بصاروخ جنوب حي الزيتون
+-  إرادة يطلق من مقره الرئيسي الصالون السياسي الأول - فيديو وصور
+-  한혜진 "초2 딸, ♥기성용 닮아 승부욕 강해…축구공 뺏기고 숨 못 쉴 정도로 오열" [미우새]
+-  Nadal volta a jogar 347 dias depois, mas perde nas duplas na Austrália
+-  Mano define nome de novo auxiliar no Corinthians e mantém 'telefone ligado' nas férias por reforços
+-  Por que goleiro sensação da Premier League tem apelido de Venom, rival do Homem-Aranha?
+-  Xerife do Palmeiras revela como anulou Cristiano Ronaldo na Champions: 'Ficou bolado'
+-  Manchester Unitedista lähtenyt hyökkääjä heitti suolaa joukkueen haavoihin tappion jälkeen
+-  Pútín: „Gefumst aldrei upp“
+-  KONYASPOR 2 KEZ KIZARDI
+-  Maçı yeteri kadar istemedik!
+-  Konyaspor Basketbol, 2023 yılını buruk kapattı
+-  Ertuğrul Tekşen Yavru Kartal’a döndü
+-  Yepyeni bir 1922 Konyaspor
+-  Konya'daki 2 otomobilin çarpıştığı trafik kazasında 1 kişi öldü, 1 kişi yaralandı
+-  الأولى على مستوى العالم.. 2024 بدأت رسميا في نيوزيلاندا
+-  شروط وخطوات تمديد تأشيرة الزيارة العائلية في السعودية 1445
+-  خطوات الاستعلام عن الدعم السكني باستخدام رقم الهوية
+-  أخبار السعودية.. موعد صرف معاش الضمان الاجتماعي والتقديم على 126 وظيفة شاغرة بوزارة الدفاع
+-  تنبيه مهم بخصوص صرف حساب المواطن للمقيم خارج المملكة للعلاج
+-  حريق في شقة بعمارة سكنية.. و"مدني الرياض" يتحرك
+-  [“너무 그립습니다” 이선균 ‘나의 아저씨’…넷플릭스 역주행 기현상
+-  [민주, 尹대통령 주재 신년인사회 불참 검토…'김건희 특검' 거부권 방침 반발
+-  Maagverkleining, tiny house en boer Geurt stopt met melken: dit zijn de 10 best gelezen interviews van 2023
+-  Матвиенко заявила о сплочении россиян в 2023 году благодаря вызовам
+-  Milli Piyango sorgulama! 2024 Yılbaşı özel çekilişi Milli Piyango sonuçları hızlı bilet sorgulama linki!
+-  זעקת המילואימניקים והורי החיילים: "מגינים על המדינה, ולא יכולים לנסוע בשבת כדי להיפגש?"
+-  אחרי הפרידה מברקו: אופירה אסייג חוגגת עם החברות
+-  Bursa'da yılbaşı trafiği ulaşımı kilitledi
+-  Ayvalık'tan Midilli Adası'na geçişlerde yılbaşı yoğunluğu yaşanıyor
+-  Bakan Uraloğlu: Malatya'nın gelişimi ve büyümesi için çalışmalarımıza devam edeceğiz
+-  חמישה שותפים ושותפות חדשים במשרד ארדינסט
+-  Parité: le gouvernement détaille les sanctions pour les administrations récalcitrantes
+-  Bakan Koca paylaştı: 2023'te 804 milyon muayene gerçekleştirildi
+-  ہم بلوچستان میں نئے سال کی عوامی تقریبات کو ترک کر رہے ہیں، جان اچکزئی
+-  Farma magaraca "Martinići" kao destinaciјa za medeni mјesec
+-  Amerykański dziennik uzyskał poufne dokumenty. Pokazują przebieg operacji rosyjskich służb
+-  Azerbaijan Army holds number of events on occasion of Day of Solidarity of World Azerbaijanis and New Year (PHOTO/VIDEO)
+-  Piłkarz Lecha Poznań z powołaniem [OFICJALNIE]. Jego reprezentację czeka turniej mistrzowski
+-  תשעה טיפים שייתנו לכם מוטיבציה להתחיל להתאמן
+-  'China's 'reunification' with Taiwan inevitable': Xi Jinping's big claim during New Year's speech
+-  Başakşehir, Adana Demirspor hazırlıklarını sürdürdü
+-  Arjantin basını duyurdu! Mauro Icardi'ye Premier Lig'den 2 talip
+-  ABD'li yönetmen Oliver Stone: Netanyahu tamamen delirdi
+-  Nożownik z Legnicy w rękach policji. Ranił dwie osoby i uszkodził pięć samochodów
+-  عمل النواب تناقش مشروع قانون "التنمية الاجتماعية"
+-  الإحصاءات: 4.40% انخفاض أسعار المنتجين الصناعيين
+-  Aston Villa eye double transfer as ‘scouting’ mission revealed
+-  Tiếp viên trả lại hơn 60 triệu đồng khách bỏ quên trên tàu SE4
+-  Hàn Quốc đáp trả cứng rắn với đe dọa tấn công hạt nhân từ Triều Tiên
