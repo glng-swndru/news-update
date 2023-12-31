@@ -1,51 +1,51 @@
 # Latest News
--  [“스마트폰보다 더 강력?” 놀라운 기술 하루 종일 끼고 산다 [AI하는 세상 빅뱅]
--  DEB-Junioren müssen bei U20-WM in Relegation
--  Taylor Swift’s Attendance at Travis Kelce’s Chiefs Game on New Year’s Eve
--  NRW: Kaufland schließt – diese Standorte sind betroffen
--  Who Is Taylor Swift Dating? Full Dating History: Every Rumored & Confirmed Ex-Boyfriend Revealed
--  Centrelink payments including Youth Allowance, disability pension and Austudy increase with indexation from start of new year
--  وثيقة أمريكية مسربة: هذا ما طلبه حكام العرب “سرا” خلال حرب 48 “كي تعذرهم شعوبهم!”
--  UniqueMe 5in1 Set für iPhone 15 Hülle, (nie vergilbt) Handyhülle für iPhone 15 Hülle Rundumschutz Schutzhülle (1 Handyhülle + 2 Displayschutzfolien + 2 Kameraschutzfolien) transparent
--  Nach Trennungsgerüchten: Iris Klein teilt Bild mit Mr. T!
--  Discover How Christmas Became the Breaking Point in My Marriage and Led Me to Walk Away from My Husband
--  MTC: Desde el 1 de enero no circularán vehículos por el serpentín de Pasamayo
--  Silvesterlauf in Trier: Gesa Krause feiert beeindruckendes Comeback nach der Babypause | hessenschau.de
--  مهرجان "حمضيات حائل" يختتم فعالياته وسط حضور كثيف
--  الأمير سلمان بن سلطان بن عبدالعزيز يزور المسجد النبوي
--  ختام منافسات المسار الأول لكأس العُلا للصقور بـ 5 أشواط
--  Qué dijo Carlos Maslatón sobre el diputado mendocino que sesionó desde el Caribe
--  Plenković otkrio svoje novogodišnje želje: 'Ona je ključna u svemu ovome'
--  Pilot dies after crashing into abandoned house site in Mooresville: NCSHP
--  Deja Comisión de Feminicidio sin analizar delito por el que fue creada
--  Guterres anunciou fim da missão das Nações Unidas no Mali após dez anos
--  Sjajna novogodišnja atmosfera u Zenici
--  "충격! 새해부터 무슨 일인가?"…손흥민, 풀타임+EPL 득점 2위+결승골 주인공임에도 'BBC' 평점 꼴찌! '시간벌기용' 후반 막판 투입 다이어보다 평점 낮아
--  조여정, 故 이선균을 떠나보내며…"반갑지만은 않은 새해도 받아들일게요"
--  ‘1년 연장’에 충격받은 맨유 팬들→ 6년간 249G 뛴 DF '연장 옵션 발동'에 “설마 농담이겠지“ 분개
--  Rafael Nadal Kalah di Nomor Ganda dalam Laga Pertama setelah 12 Bulan Absen
--  블랙핑크 리사, 새해맞이는 해변에서…과감한 비키니 노출 [MD★스타]
--  En discurso de Año Nuevo, presidente chino habla de reunificación con Taiwán
--  Rusya, 2024’e büyük havai fişek gösterileri yapmadan girdi
--  التقط صورة مع نتنياهو.. شاب ينتحل صفة جندي ويخدع الإسرائيليين ويسرق أسلحة قتالية
--  عندما تغيب العقول وتسود الخرافات
--  الجيش الإسرائيلي يتوقع استمرار الحرب ضد حماس في غزة طوال 2024
--  اتحاد القدم يعلن بدء الميركاتو الشتوي
--  الأمم المتحدة تعلن إنهاء عمل المحكمة الدولية الخاصة بقضية اغتيال الحريري
--  زلزال بقوة 4.5 درجة يضرب ولاية هكاري جنوب شرقي تركيا
--  الرئاسة الفلسطينية: لا سلام دون إنهاء الاحتلال كاملاً من غزة والضفة والقدس الشرقية
--  Elazığ'da 2023'ün son cezası 4 bin 64 lira, 2024'ün ilk cezası bin 506 lira oldu
--  Tony Hudgell von Eltern misshandelt: Charles ehrt Jungen ohne Beine | Nachricht
--  Bokaktuelle Amir ble dømt på grunn av hudfargen sin
--  Türkiye yeni yıla coşkuyla girdi
--  Bursa Valisi Demirtaş, yeni yıla polis ve askerler ile girdi
--  Yeni yılı elleri tetikte karşıladılar
--  Bursa'da havai fişek ve silahlı yeni yıl kutlaması!
--  Başkan Aktaş yılın ilk bebeklerini ziyaret etti
--  Bursa'da jandarma ekiplerinden gece boyu sıkı denetim!
--  Bursa'da yılbaşına İstiklal Marşı okuyarak girdiler
--  Azerbaycan 2024'e coşkuyla girdi
--  Ankara 2024'ü meşaleler ve konfetiler ile karşıladı
--  Calendario del Round Robin de la LVBP 2023-24: juegos, fechas y horarios para ver los juegos de postemporada
--  بعد 86 يوماً من العدوان .. 3 أسلحة جديدة بيد المقاومة في غزة
--  President Alar Karis aastavahetusel: lihtne on solvata, keeruline lepituseni jõuda
+-  Zhao, consejero delegado de Binance, no puede salir de EE.UU. por problemas legales
+-  Tears of joy as Kano governor reunites parents with stolen children
+-  Neueröffnung „Ballontraum“ in Horstmar: Amerikanischer Trend erfreut sich immer größerer Beliebtheit
+-  Gëzuar, nga katër muret e burrave t’lirë!
+-  SAMSUNG Smartphone Galaxy Z Flip4 Pink 128GB 6,7 Zoll
+-  Israel-Gaza-Krieg: Wie Yuval Zilber zum Helden wurde
+-  에이티즈, 'MBC 가요대제전'서 무중력 퍼포먼스…화려한 2023년 마지막날
+-  '이견없는 연기대상' 최수종…하희라 "당신의 노력·수고·열정, 존경해요" [종합]
+-  '남편 논란 언급한' 성유리 "억울하고 힘든 일, 진실 밝혀지길" 심경고백 [전문]
+-  Ogun: Tinubu belongs to all of us, Adebutu tells Abiodu
+-  Baltimore clinch AFC North title and top seed in play-offs with Miami mauling
+-  وزير الدفاع البريطاني: الإرهابيون الذين يعطلون التجارة بالبحر الأحمر يواجهون التحذير الأخير
+-  بالطائرات المُسيّرة.. فصائل عراقية تستهدف إيلات الإسرائيلية
+-  كفر الشيخ تحتفل بالسنة الجديدة (صور)
+-  نيويورك تايمز: المحادثات بين بايدن ونتنياهو باتت أكثر توتر وحدة
+-  كيف احتفل لاعبو كرة القدم برأس السنة الجديدة؟
+-  محمود كهربا: 2023 أحسن سنة في حياتي في الكورة
+-  Lleva a su hija al médico de farmacia; ya no contaba con signos vitales
+-  Prevé caravana frenar avance si INM promete 'visas' en enero
+-  „Die Champions League gewinnen“ – das sind die Neujahrsvorsätze der Bayern-Stars
+-  Marco Reus startet Talkshow mit JP Kraemer und Pietro Lombardi
+-  Imo: Police release ex-lands commissioner after 40 days in detention
+-  OD 1. JANUARA: Srbija preuzima predsedavanje Ceftom
+-  Die Eugene Weekly stellt die Veröffentlichung nach der Unterschlagung eines Mitarbeiters ein
+-  VIDEO+FOTO: Marija Šerifović izašla na binu u Zenici, publika u neviđenoj euforiji pjevala uglas
+-  MN - Bonanni: "Leggo di tanti nomi accostati al Milan. Ma siamo così sicuri che non convenga cambiare qualcosa a livello di staff?"
+-  [“건설 인력 부족 걱정?” 사람보다 더 일 잘하는 ‘숙련공’ 온다 [AI하는 세상 빅뱅]
+-  [‘높은 물가'로 홈파티 열풍이라는데…술도 많이 팔릴까
+-  [오늘부터 사라지는 '유통기한'…어떻게 달라질까 [세모금]
+-  Vancouver police to increase presence in downtown core for NYE
+-  OSKUDNO I LEPRŠAVO, KAKO SAMO ONA UME! Seka Aleksić spremna da napravi HAOS, a evo šta je OTKRILA pred sam kraj godine publici
+-  Lagos: Family alleges threat to life over widow’s property in Ojo town
+-  UFC superstar Conor McGregor announces comeback fight against Michael Chandler
+-  Tränen zum ersten Todestag: Gänswein trauert um Benedikt XVI.
+-  Silvia Pinal sale del hospital: ‘Ella es fuerte, ya me cantó hasta La Cucaracha’, dice Alejandra Guzmán
+-  Questions about Iowa’s Republican caucus, answered
+-  Hakkari'de deprem!
+-  Bursa'da aranan şahıs yılbaşı gecesi lüks aracıyla yakalandı
+-  Macky Sall : « La paix revient en Casamance »
+-  Fuel subsidy: NAFDAC rolls out palliatives for MSMEs
+-  Ilmuwan Teliti 'Tembok Besar Mongolia' Misterius untuk Pertama Kalinya
+-  Greens demand full release of government documents on ‘disastrous’ decision to join Iraq invasion
+-  Pastore: "Bilancio aggiornato di Romelu Lukaku contro la Juventus con United, Inter, Chelsea e Roma..."
+-  Радев: Имаме нужда от единение и лидерство, което да укрепи държавността, суверенитета и законността
+-  Abominable Snowman: Myth or Reality?
+-  How to detox and get glowing skin like Kate Middleton following Christmas binge
+-  San Francisco derrota a Commanders con nuevo récord de Nick Purdy
+-  The celebrity stock market: winners and losers of the past year
+-  The celebrity stock market: winners and losers of the past year
+-  Novogodišnji blam Sare Jo
