@@ -1,51 +1,51 @@
 # Latest News
--  الجولة 10 .. نادي شباب تارجيست يحافظ على سجله الخالي من الهزائم
--  جمال بلماضي: المنتخب المغربي مرشح للفوز بكأس أمم إفريقيا، بينما الجزائر قد تواجه صعوبات
--  جلالة الملك يتبادل التهاني مع قادة دول وحكومات الدول الشقيقة والصديقة بمناسبة حلول السنة الميلادية الجديدة 2024
--  كأس أمم إفريقيا : المنتخب الموريتاني لكرة القدم يخوض معسكرا تدريبيا بتونس
--  Pelo menos 120 jornalistas mortos em 2023 – FIJ
--  Le metieron más de 20 tiros a alias "Puerquita" en jardín en Los Santos
--  Aprehenden a presunto implicado en robo a conductor de Indriver
--  أسباب واعراض نقص فيتامين دال الشديد عند النساء
--  ما هو الكونغ فو وما هي أنماطه وأبرز أساليبه المتنوعة بالتفصيل
--  معلومات عن الخفاش غريبة جدا
--  صباح التفاؤل – اجمل العبارات الصباحية عن التفاؤل
--  مصاريف الجامعة العربية المفتوحة
--  Vœux présidentiels pour la nouvelle année : ce qu'il faut retenir de l'allocution d'Emmanuel Macron
--  استنفار أمني بمدينة فاس لتأمين ليلة رأس السنة الجديدة
--  خبير يتوقع أن تتجاوز مداخيل السياحة 100 مليار درهم في سنة 2023
--  تطوان .. مضيان والوزيرة حيار يؤطران لقاء تواصليا حول الدعم المباشر
--  الملك يتبادل التهاني مع قادة دول العالم بمناسبة السنة الميلادية الجديدة
--  Marcelo’s son adorably left sobbing by heart-warming Neymar meeting
--  Drag performer slur perpetuates myths, Ont. judge rules, defamation suit advances
--  Pritshmëritë e qytetarëve të Kosovës për vitin 2024
--  Bakan Bayraktar Şırnak'ta bazı ziyaretlerde bulundu
--  İYİ Parti Mudanya Belediye Başkan aday A. Seçil Burcan Ürküt istifa etti
--  Mehmetçik'ten yeni yıl mesajı
--  Çanakkale'de 'Narko Noel' operasyonu! 26 gözaltı
--  Putin, 2024 yılını 'aile yılı' ilan etti
--  GÖKÖZ-DER anlamlı bir geceye imza attı
--  İstanbul Valisi: Bütün tedbirler alındı
--  Læs hele dronningens nytårstale 2023
--  Læs hele dronningens nytårstale 2023
--  Tshekki nappasi toisen voittonsa ja lohkon kolmospaikan nuorten MM-kisoissa
--  Moottoriurheilun legenda on kuollut 84-vuotiaana
--  2024: Lead Nigeria With Courage, CAC President Charges Tinubu
--  Junaliikenne | Juna-asemien näytöt ja kuulutukset toimivat jälleen
--  Ganjar Jenguk Pendukungnya yang Dihajar Tentara, Tanggung Seluruh Biaya Perawatannya
--  Tom Brady’s Surprising Retirement Party in 2023: The Only Downside
--  Las noticias más leídas de este domingo, 31 de diciembre
--  GOST POČEO DA PUCA, ONA SE UHVATILA ZA GLAVU I ISTRČALA IZ LOKALA! Nastup zamalo da se završi TRAGIČNO za pevačicu VIDEO
--  صحة غزة: الاحتلال الإسرائيلى ارتكب 12 مجزرة راح ضحيتها 150 شهيدا خلال الـ24 ساعة الماضية
--  Fenebahçe'den yeni yıl mesajı
--  Cycling champion Rohan Dennis charged over wife’s death as police make appeal
--  DRAGANA MIRKOVIĆ U FINALNOJ EPIZODI "RAME UZ RAME SA DRAGANOM" OTKRIVA: Kruna moje karijere će biti.. Evo zašto se UGLEDAJU NA NJU
--  Nostradamus-Vorhersagen für 2024: Harry wird König, China führt Krieg
--  Elazığ’da trafik kazası
--  Je moet maar durven: in Brabant de concurrentie met worstenbroodje aangaan met Wageningse vegavariant
--  Horror: a fellépésén vágta le az ujját a magyar illuzionista
--  Lejos de desaparecer, los datos demuestran que el trabajo híbrido funciona
--  وفاة العدّاء كيبلاغات بعد تكهنات حول تعرضه للطعن في كينيا
--  NASCAR Hall of Famer Cale Yarborough, a 3-time Cup champion in the 1970s, dies at 84
--  Putin na Nowy Rok: „Nigdy nie ustąpimy”
--  Valami történt: lassabban csökken az autók értéke
+-  [ŽT] 47-osios brigados kariai naikina okupantus (Video)
+-  [ŽT] Rusija sutempė 19 000 žmonių pajėgas. Kas vyksta
+-  Vezista BiH "prijavio" povredu leđa treneru Milana?
+-  Ex Coach Praises Inter Milan Bound Canada FIFA World Cup Star: ‘Special Player, Going To Inter At The Right Time’
+-  Γιώργος Λύρας: «Δεν ξέρω που θα συναντηθούμε φιλαράκι μου…» – Η ανάρτησή του για το θάνατο του Νίκου Ρόκκου
+-  Aprueban estandarización para licencias de habilitaciones urbanas
+-  Gary Oldman Roasts His 'Mediocre' Performance As Sirius Black In ‘Harry Potter’ Films
+-  "دبحها وقطع رجليها ورماها في الترعة".. ليلة مقتل سيدة بمزرعة دواجن بسبب خيانتها في الصف
+-  رجل الدولة وفضيلة التكتم والصمت
+-  إلى أين وصل الخلاف بين الأطباء والصحة بشأن قانون المنشآت الطبية؟
+-  ضربه على راسه.. مقتل شاب من ذوي الهمم في شبرا الخيمة
+-  غلطة الشاطر
+-  تجديد تكليف السيد عبد المجيد رئيساً للإدارة المركزية للمساجد والقرآن بالأوقاف
+-  الاحتلال: نسعى لتسريح جزء من القوات وإعادتهم إلى دورة الاقتصاد
+-  وزير الاتصالات الفلسطيني: قرصنة الاحتلال موجات تردد راديو فلسطين جريمة
+-  مدير منتخب مصر: استبعاد عبدالله السعيد من قائمة الفراعنة ليس تقليلا منه
+-  في رأس السنة.. مواليد هذه الأبراج يستحقون لقب "ملوك العكننة والحزن"
+-  خاطر بحياته.. رجل يختبئ في مكان غير متوقع بطائرة متجهة إلى فرنسا
+-  Dragusin-Milan, il difensore si allontana: una big pronta a chiudere
+-  Жители Турции после трех землетрясений опасаются возвращаться в свои дома
+-  Eskalation im Roten Meer: US-Militär tötet Huthi-Rebellen
+-  Sınırda gerilim: İsrail ve Lübnan, karşılıklı saldırılar düzenledi
+-  ¿Ayudaron los referees a los Cowboys en la victoria ante Lions?
+-  Novo protocolo contra violência de gênero exclui locais religiosos
+-  İlham Əliyev: "Dövlət suverenliyimizin bərpası Azərbaycan xalqının yaddaşında əbədi qalacaqdır"
+-  East Renfrewshire council approves plan £40,000 for 15 new public access defibrillators
+-  FOTO: Trnava oslávila Silvestra detskou diskotékou na Trojičnom námestí
+-  Alista su vuelo: Martín Cauteruccio ya tiene fecha de llegada para ser de Sporting Cristal
+-  রাজধানীর পুরান ঢাকায় আগুন
+-  DAN NAKON ZEMLJOTRESA: Potresne scene u Ljubetovu kod Zenice (VIDEO)
+-  Ni u Bosni skijanje više nije ‘džabe‘, a jedna se destinacija istaknula skupoćom
+-  Königin Margrethe dankt ab: Frederiks Thronfolge wird von Skandalen überschattet
+-  වසර 2කට පසු ඇන්ජලෝ අකිල මතක් වෙයි
+-  أهلا بكم في 2024
+-  Israël haalt reservisten terug omdat de oorlog nog zal voortduren
+-  Bajaron las ventas por temporada navideña este año: Ambulantes del centro de Hermosillo
+-  رفع جاهزية مواجهة سيول الأمطار في حائل
+-  Silvester in Berlin: Kai Wegner droht bei Ausschreitungen mit einer „Nacht der Repression“.
+-  PLANIRALI TERORISTIČKI NAPAD NA KATEDRALU: Njemačka policija uhapsila tri osobe u Kelnu
+-  Пьер Ришар извинился за подпись под обращением в поддержку Депардье
+-  Výnimočný rok pre Trnavu, počet obyvateľov prvýkrát po dlhých rokoch mierne stúpol
+-  Dänische Königin Margrethe II. dankt ab
+-  Eskalation im Roten Meer: US-Militär tötet Huthi-Rebellen
+-  İsrail ordusu, Gazze'deki 5 tugayını geri çekme kararı aldı
+-  İstanbul Valisi Gül, 15 Temmuz Şehitler Köprüsü'nde görevli polisleri ziyaret etti
+-  Manchester City'ye Arjantinli genç yetenek!
+-  Recuerdan a médico Raúl Pacheco, a un año de accidente vial que le quitó la vida
+-  2023 tuvo videojuegos increíbles pero la industria está rota
+-  Entre intégration et fracture le défi des jeunes au Maroc
+-  Drag performer slur perpetuates myths, Ontario judge rules
