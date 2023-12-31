@@ -1,11 +1,11 @@
 # Latest News
--  Buffon paralajmëron Italinë: Të jemi të kujdesshëm ndaj Shqipërisë
--  ارتفاع عدد شهداء العدوان الإسرائيلي إلى 21.822
--  الوطني لشؤون الأسرة: نهج تشاركي متواصل لتحقيق استقرار الأسرة الأردنية
--  الجهاد الإسلامي: لن يكون هناك صفقات تبادل حتى وقف العدوان على غزة
--  מבנים מרכזיים ברחבי הארץ יוארו כהזדהות עם החטופים בעזה: "הזמן שלהם אוזל"
--  Khánh Hòa đề nghị tái thu hồi đất bị hủy tài trợ, World Bank không đồng ý
--  Chế nhà di động trên xe đẩy hàng siêu thị
--  Năm 2023 hàng loạt sao ngoại mặc đồ của nhà thiết kế Việt, thời trang nội lên ngôi?
--  Ông Kim nói dân Triều Tiên và Hàn Quốc không là đồng bào, Seoul đáp trả gay gắt
--  TP.HCM bất ngờ mưa lớn trắng trời, liệu bắn pháo hoa có bị ảnh hưởng?
+-  שלוש יינניות נכנסות לבר
+-  עם הלימון והספרים הישנים: מותג התה שכבש את אסיה מגיע לישראל
+-  הממשלה אישרה את דחיית הבחירות לרשויות המקומיות לסוף פברואר
+-  בית"ר ירושלים מתגייסת למען החטוף רום ברוסלבסקי
+-  Harry Kewell replaces Muscat at Yokohama F Marinos
+-  محاضرة متخصصة حول البطالة في الأردن وسبل مواجهتها
+-  Một số triệu chứng bất thường do biến thể COVID-19 mới gây ra
+-  Полицейски произвол или изпълнение на служебни задължения е побоят, завършил със смърт в Стара Загора?
+-  Former pro cyclist Melissa Hoskins killed in car crash
+-  FOTO/ Tatiana Bernardi, një tifoze speciale për Juventusin
