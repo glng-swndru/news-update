@@ -1,51 +1,51 @@
 # Latest News
--  Lauri Markkasen Utah voitti vuoden viimeisen ottelunsa, kaatoi kotiparketillaan Miamin
--  Lelaki Indonesia didakwa bunuh kakak kandung
--  บขส.เตรียมแผนรับคนกลับกรุง 1-3 ม.ค.นี้ ไม่ต่ำวันละ 6 หมื่นคน
--  New Years celebrations ready to go ahead - weather permitting
--  परियोजना धितोमा लगानी बढाउन बैंकहरूलाई आग्रह
--  दु्रतमार्गका ४ हजारभन्दा बढी रूख कटान स्वीकृत
--  बालकुमारी घटना : मृतक युवाका परिवारलाई १०/१० लाख दिने निर्णय
--  तथ्यांकोवाच : कोशी प्रदेशको थोक विक्रय, खुद्रा विक्रय, गाडी, मोटरसाइकल मर्मत क्षेत्रको गार्हस्थ्य उत्पादन रू. ७५ अर्ब
--  डेडिकेटेड–ट्रंक लाइन विवाद : प्रधानमन्त्री अलमल्याउने प्राधिकरण लाइन काट्ने
--  2024: Nigerians expect govt to maintain low profile, stabilise the naira, patronise local products
--  Weather Update : थर्टी फर्स्टवर पावसाचं सावट! नवीन वर्षातही पावसाची शक्यता
--  Nach Erdrutsch: Schwander Spenglerfirma kommt in neue Hände
--  Jahresrückblick: Das war der Dezember 2023 in Graubünden
--  Ohne brummenden Schädel ins neue Jahr starten
--  Yksityiskohdat jäivät närästämään Salon kuntaliitoksessa – entisten kunnanjohtajien mielestä päätavoite kuitenkin toteutui
--  Сколько голов надо забить Овечкину, чтобы обойти Гретцки? Расклады после 829-го гола Александра
--  dpa-AFX KUNDEN-INFO: Finanzanalysen in den dpa-AFX Diensten
--  Tyrese Haliburton tutoie des sommets : 20 passes jeudi, 23 passes cette nuit, on le SAIT qu’il va aller chercher les 30
--  عاجل.. إيقاف سائق الأجرة 30 يومًا عند تجاوز عدد الرحلات الملغاة 5 في الشهر
--  Rameswaram - Hubli: రామేశ్వరం - హుబ్లీ రైలు సేవల పొడిగింపు
--  سیاسی جماعتوں کا منشور اور آئی ایم ایف
--  В воронежском парке «Орленок» обновили подсветку
--  В Евросоюзе обозначили сроки вступления Украины в альянс
--  Lage in Hochwassergebieten auch zu Silvester angespannt
--  고물가시대, 맛집은 못가도 ‘맛집 메뉴’는 먹는다…RMR 인기 계속
--  Lage in Hochwassergebieten auch zu Silvester angespannt
--  Lage in Hochwassergebieten auch zu Silvester angespannt
--  Seydişehir tarımında kazançlı dönem
--  7 Aplikasi yang Sering Digunakan Buat Selingkuh, Discord Salah Satunya
--  В Смоленске оперативники раскрыли факт незаконного использования документов для образования юридических лиц
--  ВСУ обстреляли Белгород, погибли 21 человек-ВИДЕО -ОБНОВЛЕНО 2
--  Cricket-New Zealand beat Bangladesh in final T20 to level series 1-1
--  Pengelolaan Retribusi di Kawasan Wisata Pantai Selatan sebagai Dampak Jalur Jalan Lintas Selatan
--  'จุรินทร์'จ่ออภิปรายงบ 67 ตามเนื้อผ้า สอนมวยรัฐบาลถ้าไม่ได้ทำอะไรผิด ก็อย่าไปกลัวถูกซักฟอก
--  Sara López fue nombrada Arquera del Año 2023 por la Federación Mundial de Tiro con Arco
--  شوگر…… ایک خاموش قاتل
--  He reminds me of an Australian: South Africa great lauds Virat Kohli for injecting fighting spirit in Team India
--  Avslører ukjente sider av Amundsen: – Tør ikke å vise det til journalister
--  메타킹커피, ‘시즈널 리미티드’ 딸기 음료 5종 선보여
--  제야의 종 10만명 운집 예상… 새해 '자정의 태양' 뜬다
--  Tilsa Lozano o Ricardo Rondón: se eligió verdadero “ave fénix” en premios de El Gran Chef Famosos
--  Британский премьер Сунак проигнорировал тему Украины в ходе новогоднего обращения
--  El mercado reaccionó al bono verde de Los Haroldos y hubo sobreoferta de capitales
+-  Rusia lanza un nuevo ataque aéreo contra las ciudades más grandes de Ucrania
+-  Збірна Німеччини програла Латвії: результати матчів чемпіонату світу U-20
+-  يساعدهم على النوم.. دراسة توضح أثر الصيام المتقطع على مرضى الزهايمر
+-  Krieg gegen die Ukraine: So ist die Lage
+-  Vòng luẩn quẩn của Man Utd
+-  7 thống kê chứng minh sự xuất sắc của Cole Palmer
+-  "Cái kết cay nghiệt cho Arsenal"
+-  България, Румъния и Турция ще сдържат Русия в Черно море
+-  “이 칼라 실화야? 가격도 착해진다고?”…갤럭시 S24 예상 스펙 총정리
+-  আগামী পাঁচ বছর জনগণের জন্য কাজ করতে চাই: সাকিব
+-  Animal Song 'Haiwaan' Out! This Track From Ranbir Kapoor’s Film Showcases the Powerful Bond of Brothers (Watch Video)
+-  India News | Court Grants Bail to 2 Persons Held with Ambergis in Thane
+-  «Барселона» заинтересовалась Гринвудом
+-  Adana'da silahlı saldırıya uğrayan baba ağır yaralandı, oğlu öldü
+-  Esenyurt'ta katliam gibi kaza! 2 ölü, 2 yaralı
+-  Katrina Kaif and Vicky Kaushal arrive at the airport in style
+-  로그프레소, 클라우드 SIEM 서비스 출시
+-  Amitabh Bachchan Bids Farewell to Kaun Banega Crorepati: 5 Best Moments of the Legend on KBC That Will Stay With Us Forever! (Watch Videos)
+-  Капризов не смог доиграть матч с «Виннипегом» из-за травмы
+-  N. Korea’s Kim orders military to prepare for possible ‘war’
+-  Discover Epigenetic Dining and Plant based Wellness Menus at Anantara Kihavah Maldives
+-  Tự hào vị thế Việt Nam
+-  דיסני תפסיד מותג של מיליארדים? זה מה שיקרה לזכויות של מיקי מאוס
+-  Wordle today: Hint and answer #925 for Sunday, December 31
+-  Tinubu, Shetima’s wife visit Akeredolu’s family, say his death great loss to Nigeria
+-  Sports News | New Zealand Beats Bangladesh by 17 Runs in 3rd T20, Shares Series 1-1
+-  AFC nhận xét bất ngờ về HLV Troussier trước Asian Cup 2023
 -  Sydney bereitet Riesenfeuerwerk vor - erstmals auch mit KI
--  한국군의 새로운 적은 ‘저출산’…CNN “시간이 많지 않다”
--  Pokémon wird emotional mit Snorlax und Cubone Anime: Watch
--  Minskat tryck i Kinas industri
--  Minskat tryck i Kinas industri
+-  কিয়েভ ও খারকিভে রাশিয়ার ড্রোন হামলা
+-  “Superfood Spotlight: Odisha embracing the nutritional bounty of Millets!!”
+-  Nicola Porcella asegura que no tiene complejos y que es heterosexual
+-  Experter: Så kan du tänka om 14 vanliga nyårslöften
+-  Teknik direktör Servet Çetin'den Sivasspor'a veda mesajı
+-  Shardul Thakur Injury Update: কেপটাউন টেস্টের আগে অনুশীলনে চোটের শঙ্কা কাটিয়ে সুস্থ শার্দুল
+-  थप १४ उद्योगको लाइन काटियो
+-  नचलेका अन्तरराष्ट्रिय विमानस्थलमा पीपीपी मोडल
+-  गौतमबुद्ध र पोखराबाट पाठ सिक्न सुझाव
+-  Six Senses Kanuhura Celebrates Art Week with Lucas Beaufort
+-  මවක සහ දරු තිදෙනෙකු මාලඹේ අභිරහස් ලෙස මියගිහින්
+-  Grand Budapest Hotel Actor Tom Wilkinson Passes Away at age 75
+-  सर्दी के मौसम में बेहतर होगा बच्चे का इम्यून सिस्टम, इन तीन ड्रिंक्स पर करें भरोसा
+-  Áo dài của Quang Hải và vợ sắp cưới cảm hứng từ triều phục
+-  [KTR, 국내 최다 GLP 시험 수행 …환경부 식약처 지정 잇달아
+-  [“피자·햄버거는 당분간 가격 인상 안합니다”
+-  [“다들 호텔인 줄 알았다” 사진 속 ‘방’…놀라운 정체, 알고보니
 -  [과천 영아사체 유기 50대 친모 결국 ‘무혐의’
--  Sydney bereitet Riesenfeuerwerk vor - erstmals auch mit KI
+-  रूस पर यूक्रेन का बहुत बड़ा हमला, 21 लोगों की मौत, 100 से ज्यादा लोग घायल
+-  ‘สุริยะ’ สั่งทุกหน่วยงานคมนาคม จัดขนส่งสาธารณะให้เพียงพอ ห้ามผู้โดยสารตกค้างหลังปีใหม่
+-  ยิปซีพยากรณ์ดวงรายวันประจำวันอาทิตย์ที่ 31 ธันวาคม พ.ศ. 2566
+-  Recreation scoreboard for Saturday, Dec. 30
