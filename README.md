@@ -1,11 +1,11 @@
 # Latest News
--  Triệu tập nhóm học sinh liên quan đến cái chết của nam sinh lớp 12
--  Bãi xe TP.HCM "cháy" chỗ đêm Giao thừa, 60.000 đồng/lượt vẫn không có chỗ gửi
--  Thanh niên 16 tuổi huy động 29 người vác dao rựa đi trả thù
--  Mất mạng, cụt tay chân, mù mắt... vì pháo
--  Hình ảnh nhìn đã thấy ngộp thở: Hàng nghìn người nhích từng chút ở phố đi bộ Hà Nội chờ giao thừa
--  Ảnh: Kẹt xe hàng dài khắp tuyến đường trung tâm TPHCM trong đêm Giao thừa
--  Chi Pu sánh đôi bên Huỳnh Hiểu Minh: Diễn cùng các chú gấu trúc khổng lồ siêu đáng yêu, fan Trung "bùng nổ"!
--  Hoa hậu Đỗ Mỹ Linh khoe ảnh ngày cuối năm, netizen xuýt xoa: Sinh con xong nhìn sang chảnh quá
--  Sao Việt ngày cuối năm 2023: Hoà Minzy và dàn sao tổng kết loạt cột mốc đặc biệt, 1 đôi Vbiz tung ảnh cưới
--  Cách chi tiêu thông minh giúp cô gái từng không có 1 đồng tiền tiết kiệm mua được căn nhà đầu tiên của mình
+-  Many last-minute skiing vacations booked after early snowfall
+-  İstanbul Valisi Gül'den yılbaşı mesajı: Gerekli tüm tedbirleri aldık
+-  Suomalainen jääkiekkovalmentaja takoo hurjaa jälkeä - taas tuli mestaruus
+-  Cristiano Ronaldo termina 2023 como el máximo goleador del mundo y anuncia: «El año que viene…»
+-  The Human Trap: Korean Horror Thriller Heads to VOD Next Month
+-  Irán libera a Santiago Sánchez, el español encarcelado cuando se dirigía al Mundial de Qatar
+-  La migración sacudió a frontera norte de México en 2023 afectando a poblaciones y comercio
+-  „Arsenal“ krizė: antras pralaimėtas Londono derbis iš eilės
+-  Car model thieves are targeting most in Midlands as police list five ways to stop them
+-  Kickoff | Arsenal fail to move top after derby defeat
