@@ -1,51 +1,11 @@
 # Latest News
--  "Tôi thực sự hạnh phúc và tận hưởng kỷ nguyên mới này tại Tottenham"
--  NFL '매닝 가문' 3세 찰스, 대학 풋볼 '슈거 볼' 출전에 관심 폭발
--  Víctor de la Morena (Amundi): “Los siete magníficos se han llevado todo el pastel y son un factor de riesgo”
--  Här skulle du investerat pengarna under 2023
--  Ekonomens bästa tips för 2024 – med hopp
--  KRÖNIKA: Pengar inte allt – men kan ge drömmar vingar
--  ‘The future’ – Photo of Mamelodi Sundowns star Bongani Zungu’s son playing football trends
--  ഗസ മുനമ്പ് അതിർത്തിനിയന്ത്രണം തിരിച്ചുപിടിക്കുമെന്ന് നെതന്യാഹു
--  "나와서 그러면 사람 아닙니다"…'엄마뻘 엽기 성폭행' 중학생의 편지
--  Livestream for AEW Worlds End Media Scrum Now Online
--  बीमा, वीर अस्पताल र काठमाडौँ
--  Des Wolves très solides se farcissent les Lakers d’un LeBron James aux trop grands pieds
--  Esenyurt'ta korkunç kaza: 2 ölü, 2 yaralı
--  북한 박정천 중앙군사위 부위원장 복귀, 군부 실세 재부상
--  Kilis'te hareketli dakikalar! Park halindeki araca kurşun yağdırdılar
--  লুটেরাদের বিরুদ্ধে অবস্থান নিন, একতরফা ভোট বর্জন করুন: রিজভী
--  Eighteen year old charged for attempted robbery; causes bodily harm
--  백경현 구리시장 신년사
--  김현택 남양주시의회 의장 신년사
--  주광덕 남양주시장 신년사
--  फेस मास्क: सर्दी के मौसम में नारियल तेल से दूर होगी त्वचा की खुरदरापन, बना रहता है फेस मास्क
--  Українські дрони вразили більшість намічених цілей у РФ – ISW
--  सामूहिक दुष्कर्म के आरोपी अरेस्ट: आईआईटी बीएचयू की छात्रा को किस किया फिर उतरवाए कपड़े, पढ़ें- क्या हुआ उस दिन
--  গাজা-মিসর সীমান্তের নিয়ন্ত্রণ চায় ইসরায়েল: নেতানিয়াহু
--  Banjir : KKM sedia 102 pasukan sokongan mental bantu mangsa terjejas
--  इन कुछ फूड्स को खाने से तेजी से बढ़ेंगे आपके बाल, 1 महीने के अंदर मिलेंगे काले लंबे बाल
--  Tag Team Grudge Match Announced For Next Week’s AEW Collision
--  Como a arte sacra vem desaparecendo das igrejas de Minas Gerais há décadas
--  A trip to Scotland fuels the imagination
--  إفشال محاولات هجومية للحوثيين في تعز
--  Ca mổ tách cặp song sinh Đức, Việt 35 năm trước và câu chuyện nhức nhối về hòa bình
--  Cuối năm, 'vật lộn' với giao thông quanh sân bay Tân Sơn Nhất
--  Dự báo thời tiết ngày 31-12 đến 6-1: Bắc Bộ rét, Trung Bộ mưa rào, Nam Bộ nắng nóng
--  Mỹ triển khai 6 hệ thống phòng thủ tên lửa THAAD tại đảo Guam
--  Việt Nam hấp dẫn nhờ chuyển đổi xanh
--  Novaland bảo lãnh cho khoản vay 10.000 tỷ đồng của công ty con tại MB Bank
--  पिकनिक जाँदै गरेको बस दुर्घटना, ३० जना घाइते
--  Число жертв террористической атаки ВСУ на Белгород увеличилось до 22
--  與 "북한과 대화 의지…도발 멈추고 평화 구축 위한 길로 복귀해야"
--  प्रीमैच्योरिटी की समस्या को खत्म करने के लिए करें करी पत्ते पर भरोसा, यहां है खास पैक
--  Οι εκλογές στις ΗΠΑ και οι ελληνοτουρκικές σχέσεις - Η σύνδεση και τι μας περιμένει το 2024
--  Melihat Rumah Tahan Gempa Berbahan Dasar Limbah PLTU Buatan Mahasiswa PPNS dan ITS
--  BREAKING NEWS: “He can leave during the next transfer window, he’s not needed anymore. He was a good player but now he’s just a bench warming flop” – Chelsea owner Todd Boehly is approving the exit of one of their key first-team players for a fee of only €50million.
--  حماس کا خوف، اسرائیل کا پھر سے غزہ پر کنٹرول کا منصوبہ
--  Con "lộc trời" xuất hiện nhiều, người dân một xã của Hải Dương vớt mỏi tay, bán 300.000 đồng/kg, ngày nào cũng thu tiền triệu
--  फराह से जानकी बनी युवती की कहानी: तीन तलाक-हलाला के डर से बदला धर्म, अयोध्या धाम मंदिर में राम से रचाई शादी
--  정부 부패 개선됐지만… 93% “부패 고위공직자 처벌 공정치 않아”
--  Малкин признан первой звездой матча «Питтсбург» — «Сент-Луис»
--  Adana'da silahlı saldırıya uğrayan baba ağır yaralandı, oğlu öldü
--  Esenyurt’ta cip, yol temizleme aracına çarptı: 2 ölü, 2 yaralı
+-  آلاف الإسرائيليين يتظاهرون مطالبين بإقالة نتنياهو وإعادة الأسرى
+-  تعرّض سفينة حاويات لهجوم صاروخي بالبحر الأحمر
+-  SM City Clark capped the year with annual Sky Line Fireworks Festival
+-  गाजा में इजरायली हवाई हमले में हमास अल-कासिम ब्रिगेड का कमांडर ढेर
+-  2023: Most Traumatic Year For Nigerians– Stakeholders
+-  양미라, '핫'한 근황…핑크 수영복? 몸매 여전하네
+-  Com fim dramático, Cowboys vencem Lions e mantêm sequência invicta em casa na NFL
+-  CM Siddaramaiah: Yatnal can submit proof on BJP govt’s graft during Covid
+-  นายแพทย์ใหญ่ รพ.ตำรวจ แจกอมยิ้ม และการ์ดปีใหม่ ส่งความสุขให้ผู้ป่วย
+-  Elinde altını olanlar dikkat! 2024'de... 31 aralık 2023 altın fiyatları...
