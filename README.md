@@ -1,51 +1,51 @@
 # Latest News
--  شيوخ ووجهاء معان والبري وحدادين: جهود الملك أيقظت الضمير العالمي
--  «البريمرليغ»: ثلاثية توتنهام توقف مسيرة بورنموث الباهرة
--  Pequenas ações, grandes problemas
--  Mann wirft Zigarettenkippe weg – dann explodieren Kilos Pyrotechnik im Auto
--  Deutsche Beamte nehmen drei weitere Verdächtige im Zusammenhang mit einem drohenden Anschlag auf den Kölner Dom fest
--  عاجل.. طريقة ورابط الاستعلام عن الشهادة الصحية عبر منصة "بلدي"
--  توقعات " الزعاق" لشهر يناير : موسم لرياح مخادعة وشديد البرد
--  Παναθηναϊκός: Στο στόχαστρο της Ρεν ο Ιωαννίδης, σύμφωνα με τους Γάλλους - Γράφουν για μεταγραφή 20 εκατ. ευρώ
--  Olaf Scholz in Verden: Kanzler besucht Hochwassergebiet in Niedersachsen
--  Danska kraljica objavila šokantnu vijest u novogodišnjoj poruci! Ovome se nitko nije nadao
--  «الأمن البيئي» تضبط مخالفًا لنظام البيئة لتلويثه وسطًا بيئيًا في مكة المكرمة
--  Uzlaştırıcıların 2024 tarifesi belli oldu. Mahkemelik olanlar dikkat
--  Silvester: Berliner Polizei richtet Feuerverbotszonen ein
--  মস্তিষ্কের বিশ্রাম, মরক্কোর ভাস্কর্য বিক্রেতা আর জার্মানির পিয়ানো বাজানো লোকটা
--  مدبولي يستعرض مخططات تنمية منطقة الضبعة
--  مسئولو الإسكان يتفقدون مشروعات المرافق والطرق بمدينة حدائق العاصمة
--  4 أبراج ينتظرها حظوظ ومفاجآت في 2024- خبيرة أبراج تزف بشرى
--  رئيس الوزراء يهنئ الشعب المصري بمناسبة العام الميلادي الجديد
--  إذاعة الاحتلال: الجيش قرر تسريح 5 ألوية قتالية تعمل في غزة
--  Αλεπού βγήκε για βόλτα σε δρόμο στη Λαμία - Δείτε βίντεο
--  اللواء ( الامين ) يتفقد ميناء طرابلس البحري ويبحث أهم العراقيل التي تواجه عملية تفريغ الوقود من السفن الناقلة .
--  Die Olympischen Spiele in Paris sind ein großes Ziel: Geburt und Baby sind für Gesa Krause kein Hindernis
--  "ŠTA PRAVIŠ OD SVOG ŽIVOTA?!" Mionini roditelji ŽESTOKO osudili ćerku zbog veze sa Ša: Oženjeni čovek te tera na odnose i PONIŽAVA
--  I tried an unitard as a 36-year-old mum-of-four but it was an epic fail – how do you even navigate the pee situation?
--  I tried an unitard as a 36-year-old mum-of-four but it was an epic fail – how do you even navigate the pee situation?
--  Ekonomi için 2024 yılı beklentileri paylaşıldı! Para piyasaları değerlendirildi!
--  América es reventado en redes por la posible llegada de Calderón
--  Kako je Krcko Oraščič postao jedan od simbola Božića?
--  대상 주인공 최수종이었다…"4번째 수상, 너무 감사" 눈물 펑펑 [KBS 연기대상]
--  '대상' 최수종→'최우수상' 김동준…'고려 거란 전쟁' 7관왕 싹쓸이 [KBS 연기대상](종합)
--  Tân Hoa hậu Hoàn vũ Việt Nam sinh năm 2001: Cựu học sinh trường chuyên, Á quân một cuộc thi nổi tiếng và là trò cưng của Vũ Thu Phương
--  Serie A, la classifica dell’anno solare: il Torino chiude 11°
--  Vancouver Canucks turn to team mantra after second loss to Flyers
--  Rund 2.000 Teilnehmer bei einer pro-palästinensischen Demonstration in Berlin-Neukölln
--  RCT: "À chaque match, on ne lâche rien", estime l’ailier Gabin Villière
--  OFICJALNIE: Charlie Adam rozpoczyna trenerską karierę. Trudne wyzwanie na początek
--  Le Groupe Eco-Medias souhaite à tous ses lecteurs une très Bonne Année 2024
--  Transforming your space: The road to creating a smart home
--  নতুন বছরকে উদযাপন করতে ঢাবি এলাকায় মানুষের ঢল
--  Dänisches Königshaus: Dänische Königin kündigt überraschend Abdankung an
--  پاک فوج ملک کی سلامتی اور ترقی میں کوئی کسر نہیں چھوڑے گی،آرمی چیف
--  OTR: Will Supreme Court make a bigger impact in 2024 than 2023?
--  Terrorpläne am Kölner Dom: Polizei meldet drei weitere Festnahmen – Anschlag soll mit Auto verübt worden sein
--  Bolsonaro x Lula em 2024: capitais prometem eleições municipais polarizadas
--  Губернатор Севастополя призвал не выходить на улицу в новогоднюю ночь
--  قائد الحزام بالمنطقة الوسطى يعقد اجتماعاً باللجنة الأمنية والسلطة المحلية وقيادة الانتقالي في مديرية لودر
--  Ein aufregendes, spannendes, friedvolles 2024: Worauf sich Berliner Prominente im neuen Jahr freuen
--  The 2024 Kia Telluride SX Prestige X-Line V6 AWD SUV
--  Дніпропетровщина: росіяни обстріляли три громади, пошкоджена цивільна інфраструктура, є поранені
--  Cuándo es el Royal Rumble 2024: dónde será, luchadores y más del evento de la WWE
+-  SM-liigaseura hankki uuden maalivahdin - ei ole pelannut tällä kaudella missään
+-  Arsenal-luotsi latasi suorat sanat joukkueensa kyykkäämisestä
+-  Eski Filistinli bakan İsrail saldırısında hayatını kaybetti
+-  స్వామివారికి బోనాలు సమర్పించి భక్తులు
+-  Galería: Así recibieron el 2024 del otro lado del mundo
+-  لماذا يغيب أمرابط عن مباريات مانشستر يونايتد؟
+-  لماذا قبضت المخابرات على هذه السيدة؟
+-  2023.. سنة إنجازات كرة القدم المغربية بامتياز
+-  سوق الدين.. سندات الخزينة تمثل 73 في المئة من المبلغ الجاري الإجمالي عند متم أكتوبر 2023
+-  مرتيل: أسرة الأمن الوطني تكثف جهودها لضمان الأمن مع حلول العام الجديد
+-  عاجل | الجيش الإسرائيلي يعلن سحب 5 ألوية من غزة
+-  البحرية الأمريكية تشتبك مع زوارق حوثية حاولت اعتراض سفينة شحن .. والحوثي يرد ببيان
+-  ఎమ్మెల్యే తిప్పేస్వామికే మళ్లీ అవకాశం ఇవ్వాలి
+-  The Latest from Nvidia: A Gaming Chip Designed for the Chinese Market
+-  رحيل موديست عن الأهلي في يناير؟ "بيبو يجيب"
+-  కార్మిక సంఘాల ఏర్పాటులో ప్రభాకర్‌ కృషి గొప్పది
+-  వ్యక్తి దారుణ హత్య
+-  Félix Tshisekedi : « Ces élections étaient l’occasion de défendre notre terre »
+-  Nova estratégia de vacinação contra Covid-19 vai entrar em vigor; entenda
+-  Штурм Макіївки та наступ на Харківщину: яка ситуація в регіонах
+-  Кремль стремится подорвать поддержку Украины Францией – The Washington Post
+-  మార్పుకు శ్రీకారం
+-  2023 제주시 장애인 체육발전유공자 시상식 열려
+-  “제주 유니폼 큰 의미…도민 성원 보답 실천”
+-  서귀포시 전기자전거 대여점 ‘펑’폭발 화재
+-  제주 읍면·섬지역 학생 ‘미래 과학 인재로 육성’
+-  تجديد حبس عامل خردة لسرقته الأسلاك النحاسية في العمرانية
+-  A un año de su grave accidente, Jeremy Renner visitó el hospital donde le salvaron la vida
+-  I only know Pele off FIFA – Luke Littler bids to join other famous young guns
+-  Félix Tshisekedi reeleito como presidente da RDCongo com 73,34% dos votos
+-  వైసీపీలో ఆరని మంటలు
+-  Muere la primera actriz Ana Ofelia Murguía a los 90 años
+-  H M Sultan Haitham’s greetings conveyed to Pope Francis
+-  سامسونج تدعم كاميرة Galaxy S24 Ultra بميزة إشتهرت بها هواتف Sony Xperia
+-  Calciomercato Juve, l’annuncio a sorpresa di Allegri: «Presto vedrete questo giovane»
+-  Toronto opening warming centres as temperatures drop
+-  ఆరు గ్యారెంటీల్లో యువ వికాసం మరిచారు
+-  حرس الحدود بجازان ينقذ بحارا من جنسية عربية
+-  شاهد.. أمطار وسيول شمال شرق القصيم
+-  وظائف حكومية شاغرة.. هيئة رعاية الأشخاص ذوي الإعاقة تعلن عن حاجتها لموظفين بالرياض
+-  Сакский армрестлер привез "золото" из Калмыкии
+-  عاجل.. خطوات ورابط الاستعلام عن العوائد السنوية برقم الهوية 1445
+-  Me conformo con los resultados de ahora: AMLO
+-  GNR apreende cerca de 10 toneladas de azeitona no concelho de Aljustrel
+-  Hillwalker airlifted to hospital after 100-metre slide on Ross-shire mountain
+-  Dünya 2024'e 'merhaba' dedi: En uçtaki ülkeler görkemli bir şekilde yeni yıla girdi
+-  Dabiz Muñoz deja Barcelona: el mejor chef del mundo cierra su restaurante GoXO en la Ciudad Condal
+-  Janja se mantém influente em 1º ano de Lula
+-  মৌলভীবাজারের ৩টি আসনে নির্ভার নৌকার প্রার্থীরা, কুলাউড়ায় ত্রিমুখী লড়াই
+-  নতুন বছর নতুন আশা
