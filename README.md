@@ -1,11 +1,11 @@
 # Latest News
--  שלוש יינניות נכנסות לבר
--  עם הלימון והספרים הישנים: מותג התה שכבש את אסיה מגיע לישראל
--  הממשלה אישרה את דחיית הבחירות לרשויות המקומיות לסוף פברואר
--  בית"ר ירושלים מתגייסת למען החטוף רום ברוסלבסקי
--  Harry Kewell replaces Muscat at Yokohama F Marinos
--  محاضرة متخصصة حول البطالة في الأردن وسبل مواجهتها
--  Một số triệu chứng bất thường do biến thể COVID-19 mới gây ra
--  Полицейски произвол или изпълнение на служебни задължения е побоят, завършил със смърт в Стара Загора?
--  Former pro cyclist Melissa Hoskins killed in car crash
--  FOTO/ Tatiana Bernardi, një tifoze speciale për Juventusin
+-  Watch: Arbaaz Khan goes down on one knee to propose to Sshura Khan
+-  New Year`s Eve: Indulge in delicious food and music at Out of the Blue in Khar
+-  MP: 22-year-old man suffers heart attack during cricket match, dies
+-  Police deploys 10,000 personnel to maintain law and order on New Year`s Eve
+-  ระทึก เรือสปีดโบ๊ตนักท่องเที่ยว ชนขนโขนหิน สาหัส 2 คน
+-  Си Цзиньпин поздравил Путина с Новым годом и отметил углубление связей КНР и РФ
+-  2024: The year it will get (really) hot
+-  Нетаньяху сообщил об уничтожении свыше 100 боевиков «Хамаса» за неделю в Газе
+-  Лукашенко заслушал доклады руководителей силовых структур
+-  Rabiot e il retroscena Juve: “Avevamo visto l’Inter in tv e sapevamo..."
