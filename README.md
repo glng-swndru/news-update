@@ -1,51 +1,51 @@
 # Latest News
--  Президент совғалари болаларни хурсанд қилди
--  عاجل.. التقديم على حركة النقل الخارجي لوظائف التعليم 1445 اليوم (تفاصيل)
--  Estados Unidos violencia: el país norteamericano cierra el año con 650 tiroteos en 2023
--  "Cậu ấy không đáp ứng được khoản phí khổng lồ M.U đã trả"
--  LHC orders recovery of Usman Dar’s brother
--  '어시스트 적립+ 골대 강타 + 오프사이드 골 취소' 황희찬, 2023년 마지막 경기에서도 울버햄튼 에이스임을 입증...팀은 3-0 대승
--  В "Роснефти" выразили соболезнования из-за смерти публициста Соколова
--  BYD has obtained conditional testing license for level 3 autonomous driving on high-speed roads
--  BTS 뷔·유승호→덱스까지, 역대급 게스트 총출동 '2023 런닝맨 게스트 어워즈'
--  โพล เผยปี 2566 คนไทย “เหนื่อยหน่าย”กับอะไร มากสุด
--  Year-end (Dec 31) weather forecast: Showery routine to continue, fairly heavy showers above 75mm expected in some areas
--  How to Watch NZ vs BAN 3rd T20I 2023 Live Streaming Online: न्यूजीलैंड बनाम बांग्लादेश क्रिकेट मैच का प्रसारण विवरण आईएसटी में समय के साथ प्राप्त करें, यहां देखें जानकारी
--  Startup khởi nghiệp với mặt hàng "khó nói": Ra mắt 1 năm bán hơn 1 triệu sản phẩm, doanh thu tăng gấp 8 lần
--  前 삼성 '수크라이' 수아레즈, 볼티모어와 마이너리그 계약
--  आईएएस सुधांश पंत होंगे राजस्थान के नए मुख्य सचिव !
--  Derek Hough is filled with "immense relief, gratitude and overwhelming joy" after his wife underwent successful surgery on her skull
--  임윤아, 2023년도 완벽했다…연기·음악·시상식·MC 싹쓸이 활약
--  FA 시장 미쳤다! 올 시즌 1경기 출전이 전부인데…NYY 출신 몬타스 CIN과 1년 207억 계약
--  Nadma: Number of flood evacuees continues
--  Liberia’s Electoral Commission Honours Prof Yakubu
--  Top 5 VR igara za fitness
--  Không chỉ vụ Noo Phước Thịnh, Đỗ Hiếu nói mất tiền tác quyền từ cả trăm show
--  Nợ nước ngoài giảm dần, năm 2024 tập trung thu thuế trên nền tảng số
--  Nhìn lại chính mình của năm vừa đi qua và cùng hướng đến mục tiêu phía trước
--  „Евростар“ отново пуска влаковете си под Ламанша
--  “BJP will take away voting rights from the people if it comes to power in 2024”: Akhilesh Yadav
--  China calls Taiwan president frontrunner a destroyer of peace
--  Mujer que había sido secuestrada llega al Hospital General
--  বাংলা সাহিত্যের প্রাচীন নিদর্শন চর্যাপদ
--  ৪৯ রানেই ৫ উইকেট নেই নিউজিল্যান্ডের
--  Another day, another delay to first Vulcan Centaur launch
--  Potential sat-bothering cannibal coronal mass ejection slams into Earth's atmo tonight
--  North Korea readies third attempt at 'spy satellite' launch
--  Boffins claim invention of rechargable, biodegradable, supercapacitor drug pump
--  FAA stays grounded in reality as SpaceX preps for takeoff
--  Ajang Malaysia Open Jadi Turnamen Pembuka Tahun 2024, Pertandingan Raja Bulutangkis dan Juara Dunia Jadi Laga yang Sangat Ditunggu
--  베트남 총리, 농업의 녹색 생산 전환 강조
--  Cameron Bancroft says a specialist opener should replace David Warner after Andrew McDonald hints at Cam Green's return
--  BMT TŞ Belqoroda görə toplandı: "Dərhal dayandırılmalıdır"
--  Phong cách sống không tiền mặt "cashless" thất sủng ở Hàn Quốc vì nhu cầu "thắt lưng buộc bụng"
--  ब्रह्मा और सरस्वती पर की अभद्र टिप्पणी, RJD विधायक के बयान पर बिहार में बवाल
--  Reliance Jio subscribes to keeping DTH licence fee
--  Гендиректор «России сегодня» Киселёв назвал смерть Соколова невосполнимой утратой
--  Korea's auto exports to US reach 1.17 mil. units in Jan.-Nov.: data
--  S. Korea's economy forecast to grow 2% next year
--  Netanyahu says Gaza-Egypt border zone should be under Israeli control
--  서해 NLL 불법 중국어선 하루 100척 출몰… 코로나 이전 3배
--  پنجاب میں موسم سرما کی تعطیلات 9 جنوری تک بڑھا دی گئیں
--  Virgo Weekly Horoscope: विदेश यात्रा का बना रहा है योग, परिजनों से हो सकता है मनमुटाव, संभलकर चलें
--  Trai dials telcos to ping cautionary message to 1.15 billion subscribers
+-  [새해 달라지는 것]최저임금 9860원·신생아 가구에 특공·대출 지원
+-  "국가가 전담 세무사가 된 기분".. 국세청 '세금비서' 호평
+-  맨유, 이번 시즌 '최다 출장 센터백' 린델로프 1년 연장 옵션 발동...2025년까지 함께한다
+-  La actividad en la industria manufacturera de China continuó su contracción en diciembre
+-  Milei advierte que Argentina vivirá una "catástrofe" si el Congreso no avala sus reformas
+-  Дрон заснял, как заградотряд ВСУ расстрелял группу отступающей украинской пехоты
+-  길 가던 여고생 노린 악랄한 성범죄자의 치밀한 계획 [정락인의 사건 속으로]
+-  Heavy delays after truck-train crash on major highway
+-  김정은 "남북 관계, 동족 아닌 전쟁 중인 교전국"
+-  نشرة سوق العمل للربع الثالث 2023
+-  Mỹ nhân đại chiến tại APAN Star Awards: Lee Sung Kyung o ép vòng 1 đọ sắc Yoona lộng lẫy, 1 chị đại "chặt chém" bất ngờ dù đã U60
+-  Người phụ nữ lột xác ngoạn mục sau khi ‘vứt bỏ’ 34kg mỡ thừa trong một năm
+-  Trọn vẹn đám cưới Thiếu gia Tân Một Cú: Cô dâu cầm "tín vật" độc lạ trao chú rể, dàn khách mời lầy lội
+-  Bạn sang nhà chơi phát hiện "núi vàng, núi bạc", chuyên gia nhận định "đây là kho báu hơn 100 tỷ": Chưa kịp vui mừng tình bạn lâu năm đã sứt mẻ
+-  Kinh doanh ở Đà Lạt 2023: Homestay không có khách trong cả tháng, có tiệm cắt giảm toàn bộ nhân viên để “sống sót”
+-  Cậu bé cấp 1 viết văn kể: "Lớn lên em muốn đi bán đậu phụ", đọc xong lý do cô giáo cười không thở nổi
+-  Song Kang, Kim Yoo Jung gây tranh cãi khi nhận giải diễn viên xuất sắc
+-  Một năm năng suất của DTAP: “Gánh” show Chị Đẹp, làm giám đốc âm nhạc loạt show hot, đứng sau album bước ngoặt của Phương Mỹ Chi
+-  Là nữ thần trong mộng của bao người nhưng với Kim Tae Hee, đây mới là mỹ nhân đẹp nhất Hàn Quốc
+-  Dẫn bạn gái đi chơi đâu lãng mạn nhất ở Hà Nội
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Villa La Angostura
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Choele Choel
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Plaza Huincul
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de San Martin de los Andes
+-  Aldi Taher Masih Terus Aktif Berikan Dukungan untuk Palestina
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Rincón de los Sauces
+-  Les Pistons se sont arrêtés à 28 défaites de suite : retour sur une soirée historique, en quelques tweets
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Añelo
+-  [조희대 대법원장 “신속·공정하지 못한 재판 없는지 살펴보겠다” [신년사]
+-  [이종석 헌재소장 “재판 독립 원칙 지킬 수 있도록 최선” [신년사]
+-  [“어쩐지 핫걸이 적더라니”…소개팅 앱 사용 남성, 여성의 4배
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Chos Malal
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Ing. Jacobacci
+-  उजुरी दिन प्रहरीकहाँ पुग्नु नपर्ने
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Zapala
+-  Pregnant Suki Waterhouse Shares Being Sick in the Studio
+-  Roddy Gayle Jr. scores 32, Ohio State beats WVU 78-75 in OT at Legends of Basketball
+-  Terungkap Aksi Sadis Sarmo Pembunuh Berantai di Wonogiri
+-  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Cipolletti
+-  Eskom load shedding schedule – SUNDAY
+-  هاتفيني...أشعلي ضوء عيون
+-  레드벨벳 예리, 배우 김예림 각인…'에이판 스타어워즈'서 웹드 女인기상
+-  3 Fakta Dokter Kelas Piala Dunia yang Bergabung ke Timnas Indonesia di TC Turki Jelang Piala Asia 2023
+-  '놀던언니'의 새해 소망…채리나 쌍둥이 임신→이지혜 연기 재개
+-  台北跨年晚會今登場 蔣萬安：全國最精彩、陣容最龐大
+-  Governor, CM: అవును.. వారిద్దరూ కలుసుకున్నారు.. గవర్నర్‌తో సీఎం భేటీ.. విషయం ఏంటంటే..
+-  Cara Bayar PBB Lewat BRILink, Ternyata Segampang Ini
+-  سال نو ، نشے میں دھت ڈرائیور وں اور ہوائی فائرنگ کرنے والوں کی شامت ،گرفتاری کے ساتھ ساتھ گاڑی بھی ضبط ہوگی
+-  Hallan granada de mortero en lote de carros
+-  Se suicida Bram Inscore, compositor de Sivan, Beck y BTS
