@@ -1,11 +1,51 @@
 # Latest News
--  Watch: Arbaaz Khan goes down on one knee to propose to Sshura Khan
--  New Year`s Eve: Indulge in delicious food and music at Out of the Blue in Khar
--  MP: 22-year-old man suffers heart attack during cricket match, dies
--  Police deploys 10,000 personnel to maintain law and order on New Year`s Eve
--  ระทึก เรือสปีดโบ๊ตนักท่องเที่ยว ชนขนโขนหิน สาหัส 2 คน
--  Си Цзиньпин поздравил Путина с Новым годом и отметил углубление связей КНР и РФ
--  2024: The year it will get (really) hot
--  Нетаньяху сообщил об уничтожении свыше 100 боевиков «Хамаса» за неделю в Газе
--  Лукашенко заслушал доклады руководителей силовых структур
--  Rabiot e il retroscena Juve: “Avevamo visto l’Inter in tv e sapevamo..."
+-  Cuánta plata hay que invertir en una franquicia de café de especialidad y en qué plazos la recuperás
+-  Former US Open champion Stephens into Brisbane second round
+-  To tu dávno nebolo: Počet Trnavčanov prvýkrát po dlhých rokoch mierne stúpol
+-  "משתייכות לארגון טרור": היועמ"שית הורתה על פירוק 4 חברות
+-  דני קושמרו משתיק את גיא פלג: "נלחם כדי להגן עלינו"
+-  בגיל 71: אחד המוזיקאים האהובים בישראל הלך לעולמו
+-  מחר זה קורה: הצצה ראשונה לפרק החדש של קופה ראשית
+-  דרמה בביטוח לאומי: איימה לפוצץ את הסניף בבלוני גז
+-  המחירים בסופרמרקט קופצים ב-20%: יבואנית קולגייט וברילה בבשורה קשה
+-  NU+ | Groen feestje op NK afstanden, Jumbo blijft vol vraagtekens achter
+-  Έργο τέχνης το νέο τατουάζ του Βινίσιους!
+-  Kampf gegen Inflation für viele Menschen wichtiges Thema
+-  جامعة قطر: قبول 186 طالبا في برامج الدراسات العليا لفصل ربيع 2024
+-  Weiter Regen in Rheinland-Pfalz und im Saarland
+-  Nach Sprengung von Geldautomaten brennt Bankgebäude
+-  Bakın yeni sevgilisi kimmiş...
+-  Mer Rouge: Maersk suspend le transit de ses navires pour 48 heures
+-  2024 Yılı Merkezi Yönetim Bütçe Kanunu, Resmi Gazete'de yayımlandı
+-  جيش الاحتلال: وحدة القتال في لواء المظليين انتقلت من شمال القطاع وانضمت للقوات في منطقة خانيونس ومحيطها
+-  มท.1 สั่งดูแลครอบครัว ‘ผญบ.บ้านใหม่’ เสียชีวิตขณะปฎิบัติหน้าที่จุดบริการ ปชช.
+-  В Чехии прокомментировали атаку украинской армии на Белгород
+-  North Korea&#039;s Kim vows to launch 3 more spy satellites and produce more nuclear materials in 2024
+-  Bipin&#039;s release expected in second phase of ceasefire: Minister Saud
+-  Viral Video: ఎన్నాళ్ల నుంచి మనసులో పెట్టుకున్నాడో ఏమో.. కోతికి ఆహారం తినిపిస్తూ.. ఇతడు ఏం చేశాడో చూస్తే..
+-  אריאל, אביגיל ואולי דוד? השמות הנפוצים ביותר בישראל לשנת 2022
+-  המשחק של דומיניק ת'ים באוסטרליה הופסק בגלל נחש קטלני במגרש
+-  England’s males look to win European Championship throughout big 12 months of sport in 2024
+-  רפאל נדאל חזר לשחק טניס אחרי שנה: "התגעגעתי לקום בבוקר בלי כאבים"
+-  Stock-market gurus predicted a grim 2023. They were dead wrong.
+-  NU+ | Bel of app gerust tijdens de jaarwisseling: de netwerken kunnen het aan
+-  Año nuevo: qué color vestir y cuál es el significado
+-  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
+-  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
+-  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
+-  Nytt angrep mot dansk skip i Rødehavet
+-  موريتانيا: انشغال بطوفان الأقصى وأزمة انتخابية ومحاكمة مثيرة
+-  مروحيات أمريكية تغرق 3 قوارب لجماعة الحوثي حاولت اعتراض سفينة شحن
+-  শামীমা আক্তার দোলার বাবার মৃত্যুতে ইআরএফ’র শোক
+-  Εορταστικό ωράριο: Τι ώρα κλείνουν σήμερα καταστήματα και σούπερ μάρκετ
+-  Брат погибшей при обстреле украинцами Белгорода рассказал RT о гибели сестры
+-  MHP Genel Başkanı Bahçeli'den yeni yıl mesajı:
+-  Atvinnulífið gerir upp árið
+-  Yıldırım'da 'Kudüs Bizim Neyimiz Olur' söyleşisi
+-  Matějovský sestřelil v Silvestrovském derby Slavii hattrickem
+-  Visoki funkcioneri Slobodarske partije Austrije: Šider nije neutralan, zauzima nediferenciran stav, a da sam nije identifikovao izborne nepravilnosti
+-  Najbardziej poszukiwany przestępcy w Europie. Wśród nich trzech Polaków
+-  전주시 lsquo;대한민국 문화도시rsquo; 공모 예비대상지에 도내 유일 포함
+-  quot;전주 지역서점 활성화 앞장quot;hellip;최명권middot;정섬길middot;이보순 시의원 감사패
+-  সিএমপিতে যুক্ত হলো বিশেষায়িত ডগ স্কোয়াড
+-  Rezervirali luksuzan apartman s bazenom i jacuzzijem: Na destinaciji ih dočekalo iznenađenje života
