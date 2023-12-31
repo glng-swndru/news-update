@@ -1,11 +1,11 @@
 # Latest News
--  אדלשטיין מטיל פצצה: "יכול להיות שאתמודד על ראשות הליכוד"
--  נוכל הקריפטו ישוחרר? "הוא שיקר על דוכן העדים, לשופט אין סבלנות"
--  İstanbul'da iki kamyon devrildi
--  Takla atan off-road araçları yürekleri ağza getirdi
--  İzmir'de 24 saattir haber alınamayan çocuk dere yatağında bulundu!
--  İstanbul'da Basın Ekspres yolunda kaza!
--  Alper Gezeravcı uzay aracı eğitimini tamamladı
--  윤재옥 “국민 믿음 받는 정당 될 것…국힘, 총선서 압도적 지지 받아야”
--  Cuando la naturaleza avanza la tecnología
--  ۱۵.۸ میلیون افغان بین نومبر ۲۰۲۳ و مارچ ۲۰۲۴ گرسنگی حاد را تجربه خواهند کرد – گزارش
+-  ग्लोबल आइएमई ब्यालेन्स्ड फण्ड १ को न्याभ बढ्यो
+-  Untypischer Goalgetter, schwere Tschechen - das musst du zum Final wissen
+-  Fenerbahçe'de stoper hareketliliği: Madrid mesaisi
+-  Korea to expand baby bonuses, housing welfare to fight world's lowest fertility rate
+-  Listed firms adopt more shareholder-friendly practices as activist funds raise pressure
+-  Merih Demiral Suudi Arabistan'dan ayrılıyor! İşte yeni takımı...
+-  Alev Alatlı:
+-  Meteoroloji'den yılın son gününde 3 ile uyarı! İşte 31 Aralık Pazar hava durumu...
+-  Anagani Satya Prasad: మున్సిపల్ కార్మికుల పట్ల జగన్ రెడ్డి నిర్లక్ష్య వైఖరి.. టీడీపీ ఎమ్మెల్యే ఆగ్రహం
+-  Речиси сите жители имаат пристап до 5G мрежта, а најчесто ја користат за…
