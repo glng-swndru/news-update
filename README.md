@@ -1,11 +1,11 @@
 # Latest News
--  Jamie Carragher's nine-word New Year's Eve plea after young boxer stabbed in city centre
--  Nieuwe directeur voor Omroep Gelderland
--  خبيرة توضح لـRT عوامل ثبات سعر الجنيه المصري وعلاقته بالتبادل التجاري مع روسيا
--  Vladimir Putin predniesol novoročný príhovor. Vyzdvihol vojakov bojujúcich na Ukrajine
--  Pawlak leitet erstes Kölner Training - Trainersuche hält an
--  Heizen, Strom, Parken: Was in Chemnitz 2024 teurer, preiswerter oder einfach nur anders wird
--  Reederei Maersk setzt Fahrten im Roten Meer aus
--  Etliche Einbrüche im Vogtland halten die Polizei zum Jahresende in Atem: Wo die Kriminellen überall zuschlugen
--  لعل شہباز قلندر کے مزار سے سونا چوری کرنے کا ملزم ریمانڈ پر پولیس کے حوالے
--  Viral Video: శాంటాక్లాజ్ వేషధారిని వెంటపడి తరిమిన మేక.. అతడు చేసిన చిన్న పొరపాటుతో చివరికి..
+-  The West End comes to Cyprus
+-  Exclusive | Sharib Hashmi thought working in SRK’s Jab Tak Hain Jaan would...
+-  تیسرا ٹی 20: نیوزی لینڈ نے بنگلادیش کو شکست دے دی
+-  New Zealand's Auckland is first major city to ring in 2024 as war shadows celebrations elsewhere
+-  NDLEA Intercepts Qatar-Based Businessman, Others With Consignments Of Psychoactive Substance
+-  নতুন বছর দক্ষিণ এশিয়ার ৪ দেশে নির্বাচন, অংশ নেবে প্রায় ২০০ কোটি
+-  السعايدة: تعرفة بند فرق أسعار الوقود لشهر كانون الثاني بقيمة صفر
+-  البريد: تخفيض المديونية ولا عجز ماليا خلال العام الحالي
+-  Bećirović: Mjesto naše države je u EU i NATO-u
+-  عام انتخابات: کاغذاتِ نامزدگی منظور یا مسترد ہونے کے خلاف اپیلیں آج سے دائر کی جاسکیں گی
