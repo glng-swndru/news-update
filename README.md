@@ -1,51 +1,11 @@
 # Latest News
--  Leman Sam hastaneye kaldırıldı
--  Zeytinlik arazileri yatırımcının yüzünü güldürecek
--  Plantenjacht in Zwartebroek: 17 soorten en een heuse dorpsbloem
--  И тази шофьорка има книжка? Абсурд!
--  Snažan potres zatresao Bosnu, epicentar kod Zenice
--  شاهد.. تساقط أمطار غزيرة وسيول جارية بحفر الباطن
--  متى تكون الدورة الشهرية علامة على الإصابة بالسرطان؟
--  عاجل.. تبدأ اليوم.. طريقة ورابط التقديم على 126 وظيفة شاغرة في وزارة الدفاع
--  تحذير من المركز الوطني حول موقع جمع التبرعات الإلكتروني
--  Brisbane International Highlights: Peyton Stearns vs Camila Giorgi
--  Brisbane International Highlights: Peyton Stearns vs Camila Giorgi
--  Two dead after train derails in horror crash with truck
--  Świąteczny koncert Andrzeja Piasecznego i Kacpra Dworniczaka
--  শিক্ষা সফরে ছাত্রের সঙ্গে ফটোশুট, শিক্ষিকা বরখাস্ত
--  Hiába harsog mást a fideszes udvartartás, az ellenzék is csökkentené a rezsit
--  황보라, 김국진♥강수지 2세 예측?…"여기서 출산 장면 나오나" 폭탄 발언 [조선의 사랑꾼]
--  "펩은 절대로, 절대로 스페인 대표팀을 맡지 않는다!"…왜?
--  '마에스트라' 이영애, 불륜 남편에 복수하나…치밀한 손절 플랜
--  Znanstvenici uočili skriveni detalj u jednoj od najpoznatijih Raphaelovih slika: Pogledajte što su otkrili
--  Erbbaurechtsvertrag zwischen Asklepiosklinik, Stadt und Landkreis gilt bis 2067.
--  Obituarios: los vizcaínos que nos dejaron en 2023
--  نان فائلرز کے گرد گھیرا تنگ، 81 لاکھ 95 ہزار سے زائد غیررجسٹرڈ افراد کو نوٹس جاری
--  故이선균 수사 “잘못없다” 윤희근 경찰총장에 한겨레 “뻔뻔” 중앙 “납득 어려워”
--  Nytårsaften er fucking nederen - men sådan kan du komme til at elske den
--  "heute-show"-Ausfall am 05.01.2023: Sendepause auch nach Weihnachten und Silvester! Wann gibt es neue Folgen im ZDF?
--  Rynek pracy w 2024 r. Czeka nas wzrost pensji i odpływ migrantów z Ukrainy
--  At the stroke of midnight, the New Year gives a clean slate for long-elusive resolutions
--  TV Agenda: Οι τηλεοπτικές μεταδόσεις της ημέρας
--  De ce trebuie să mănânci struguri de Revelion. Secretul celor 12 boabe
--  Utiekli z armády, šťastie našli v USA. Ruským olympionikom hrozí niekoľkoročné väzenie
--  Rosjanie przeciągają strunę. Śmieją się światu w twarz
--  Tiền đạo Luis Henrique rời Marseille trong tháng 1
--  (여자)아이들 미연, 'MBC 연기대상' 무대 사과 "정말 큰일 내버렸다"
--  'KBS 연기대상' 오늘(31일) 개최…'알고 보자' 관전포인트3
--  제이제이, '엉밑살' 드러난 역대급 초미니 핫팬츠 "어디꺼야?"
--  Setelah Membunuh dan Mutilasi Istrinya, JM Melakukan Hal Tak Diduga
--  샌프란시스코는 왜 이정후에게 거액 1억 달러를 안겼을까
--  Карло Анчелоти: Реал Мадрид е преди всичко семейство
--  [내년 만기 회사채 153조 ‘역대 최대’
--  أحزاب ليبية تطالب صالح بالإسراع في الانتخابات وتشكيل حكومة موحدة
--  Gadar 2 star Sunny Deol breaks silence on his reunion with Shah Rukh Khan; ‘It’s best to leave it there’
--  Poor leadership, ill-conceived policies bane of Nigeria – APM
--  By: holiganbet
--  CeeDee Lamb on his single-season team records: That's the new standard for myself
--  McDavid shines in 600th game as Oilers edge Kings 3-2 in shootout
--  “Пақилдоқ” сотувчининг режаси амалга ошмай қолди
--  Slafkovský pomstiteľ, vyťažený Nemec. Slováci bez víťazstva, Ovečkin skóroval
--  Power Steering Pressure Hose Market Analysis and Future Prospects for 2030
--  Kuasa Hukum Menduga Ada Unsur Kesengajaan dalam Kasus Musisi Tewas Tenggak Miras
--  Izquierdas en disputa
+-  אדלשטיין מטיל פצצה: "יכול להיות שאתמודד על ראשות הליכוד"
+-  נוכל הקריפטו ישוחרר? "הוא שיקר על דוכן העדים, לשופט אין סבלנות"
+-  İstanbul'da iki kamyon devrildi
+-  Takla atan off-road araçları yürekleri ağza getirdi
+-  İzmir'de 24 saattir haber alınamayan çocuk dere yatağında bulundu!
+-  İstanbul'da Basın Ekspres yolunda kaza!
+-  Alper Gezeravcı uzay aracı eğitimini tamamladı
+-  윤재옥 “국민 믿음 받는 정당 될 것…국힘, 총선서 압도적 지지 받아야”
+-  Cuando la naturaleza avanza la tecnología
+-  ۱۵.۸ میلیون افغان بین نومبر ۲۰۲۳ و مارچ ۲۰۲۴ گرسنگی حاد را تجربه خواهند کرد – گزارش
