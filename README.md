@@ -1,51 +1,51 @@
 # Latest News
--  [ŽT] 47-osios brigados kariai naikina okupantus (Video)
--  [ŽT] Rusija sutempė 19 000 žmonių pajėgas. Kas vyksta
--  Vezista BiH "prijavio" povredu leđa treneru Milana?
--  Ex Coach Praises Inter Milan Bound Canada FIFA World Cup Star: ‘Special Player, Going To Inter At The Right Time’
--  Γιώργος Λύρας: «Δεν ξέρω που θα συναντηθούμε φιλαράκι μου…» – Η ανάρτησή του για το θάνατο του Νίκου Ρόκκου
--  Aprueban estandarización para licencias de habilitaciones urbanas
--  Gary Oldman Roasts His 'Mediocre' Performance As Sirius Black In ‘Harry Potter’ Films
--  "دبحها وقطع رجليها ورماها في الترعة".. ليلة مقتل سيدة بمزرعة دواجن بسبب خيانتها في الصف
--  رجل الدولة وفضيلة التكتم والصمت
--  إلى أين وصل الخلاف بين الأطباء والصحة بشأن قانون المنشآت الطبية؟
--  ضربه على راسه.. مقتل شاب من ذوي الهمم في شبرا الخيمة
--  غلطة الشاطر
--  تجديد تكليف السيد عبد المجيد رئيساً للإدارة المركزية للمساجد والقرآن بالأوقاف
--  الاحتلال: نسعى لتسريح جزء من القوات وإعادتهم إلى دورة الاقتصاد
--  وزير الاتصالات الفلسطيني: قرصنة الاحتلال موجات تردد راديو فلسطين جريمة
--  مدير منتخب مصر: استبعاد عبدالله السعيد من قائمة الفراعنة ليس تقليلا منه
--  في رأس السنة.. مواليد هذه الأبراج يستحقون لقب "ملوك العكننة والحزن"
--  خاطر بحياته.. رجل يختبئ في مكان غير متوقع بطائرة متجهة إلى فرنسا
--  Dragusin-Milan, il difensore si allontana: una big pronta a chiudere
--  Жители Турции после трех землетрясений опасаются возвращаться в свои дома
--  Eskalation im Roten Meer: US-Militär tötet Huthi-Rebellen
--  Sınırda gerilim: İsrail ve Lübnan, karşılıklı saldırılar düzenledi
--  ¿Ayudaron los referees a los Cowboys en la victoria ante Lions?
--  Novo protocolo contra violência de gênero exclui locais religiosos
--  İlham Əliyev: "Dövlət suverenliyimizin bərpası Azərbaycan xalqının yaddaşında əbədi qalacaqdır"
--  East Renfrewshire council approves plan £40,000 for 15 new public access defibrillators
--  FOTO: Trnava oslávila Silvestra detskou diskotékou na Trojičnom námestí
--  Alista su vuelo: Martín Cauteruccio ya tiene fecha de llegada para ser de Sporting Cristal
--  রাজধানীর পুরান ঢাকায় আগুন
--  DAN NAKON ZEMLJOTRESA: Potresne scene u Ljubetovu kod Zenice (VIDEO)
--  Ni u Bosni skijanje više nije ‘džabe‘, a jedna se destinacija istaknula skupoćom
--  Königin Margrethe dankt ab: Frederiks Thronfolge wird von Skandalen überschattet
--  වසර 2කට පසු ඇන්ජලෝ අකිල මතක් වෙයි
--  أهلا بكم في 2024
--  Israël haalt reservisten terug omdat de oorlog nog zal voortduren
--  Bajaron las ventas por temporada navideña este año: Ambulantes del centro de Hermosillo
--  رفع جاهزية مواجهة سيول الأمطار في حائل
--  Silvester in Berlin: Kai Wegner droht bei Ausschreitungen mit einer „Nacht der Repression“.
--  PLANIRALI TERORISTIČKI NAPAD NA KATEDRALU: Njemačka policija uhapsila tri osobe u Kelnu
--  Пьер Ришар извинился за подпись под обращением в поддержку Депардье
--  Výnimočný rok pre Trnavu, počet obyvateľov prvýkrát po dlhých rokoch mierne stúpol
--  Dänische Königin Margrethe II. dankt ab
--  Eskalation im Roten Meer: US-Militär tötet Huthi-Rebellen
--  İsrail ordusu, Gazze'deki 5 tugayını geri çekme kararı aldı
--  İstanbul Valisi Gül, 15 Temmuz Şehitler Köprüsü'nde görevli polisleri ziyaret etti
--  Manchester City'ye Arjantinli genç yetenek!
--  Recuerdan a médico Raúl Pacheco, a un año de accidente vial que le quitó la vida
--  2023 tuvo videojuegos increíbles pero la industria está rota
--  Entre intégration et fracture le défi des jeunes au Maroc
--  Drag performer slur perpetuates myths, Ontario judge rules
+-  Sema concluiu entre janeiro e dezembro mais de 250 operações contra desmatamento e crimes ao meio ambiente
+-  Yarın marketler açık m, kapalı mı? 1 Ocak 2024 marketler kaça kadar açık? Bugün market çalışma saatleri!
+-  Rusya Devlet Başkanı Putin, 2024 yılını “aile yılı” ilan etti
+-  Yasemin Sakallıoğlu kimdir? Yasemin Sakallıoğlu kaç yaşında, eşi ve çocukları nereli?
+-  عاجل.. وقت محدد أم طوال الشهر.. تنبيه مهم من حساب المواطن بشأن إضافة التابعين
+-  2024년 국제정치 기상도…김영환-김영수 대담
+-  강영석 상주시장 신년사 “미래 상주동력 될 일들 순조롭게 진행중, 시민화합하면 해내지 못할 일 없다”
+-  Código bônus Sportingbet: até R$300 no primeiro depósito
+-  Código promocional Apostaquente: bônus até R$500 + 75 giros grátis
+-  Código de bônus F12 bet: use F12FUT para se cadastrar
+-  Zoo in NRW: Irres Spektakel im Aquarium – Pfleger von den Socken
+-  אבוקסיס: "היה צריך להיות 2:8, המחצית הראשונה הטובה מאז שהגעתי"
+-  Vitézy Dávid a Budapest-bérlet megszüntetéséről: “Egész egyszerűen nem történhet meg"
+-  «الثقافة» تحتفي بختام عام الشعر العربي 2023
+-  ‘Wonka’ ends the year No. 1 at the box office, 2023 sales reach $9 billion in post-pandemic best
+-  US entrepreneurship reigns supreme with 9 of top 10 richest people in the world
+-  توتنهام «المرهق» يحتاج إلى تدعيم قوي في فترة الانتقالات الشتوية
+-  Úrady zadržali ďalšie tri osoby podozrivé z prípravy útoku na katedrálu
+-  Código promocional Betano FUTEBET: até R$500 + R$20
+-  Štýl, ktorý z vás spraví krásku ulíc aj každej návštevy: Oblečte sa ako Francúzka!
+-  Çfarë e nxit përkrahjen për ish-presidentin Donald Trump, pavarësisht sfidave të tij ligjore?
+-  ABAS: Izloženi smo genocidu, tražim mirovnu konferenciju i nezavisnost Palestine
+-  Drones kamikazes impactan contra enclaves de EEUU en Siria
+-  Polícia prende homem por tráfico de drogas na Zona Sul de Macapá
+-  Benjamin Kiplagat ubijen u automobilu, atletski svijet u šoku
+-  توتنهام يربط نجمه بعقد طويل الأمد
+-  تقييم رايا في خسارة أرسنال أمام فولهام
+-  Código promocional Stake: aposta sem risco até R$150
+-  الفيديو “الهابط” الذي اعتقل بسببه “فهد مودل” في العراق
+-  Cristiano Ronaldo marca 54º gol em 2023 e termina o ano como artilheiro do futebol mundial
+-  أطفال المدينة يكتسبون مهارات الأمن السيبراني بألعاب مبتكرة
+-  تطوير الخدمات الصحية بالمستشفى العام
+-  ZDF-Silvester-Show: Irrer Anblick! Andrea Kiewel und Johannes B. Kerner fallen vom Glauben ab
+-  Agenda 2030, ¿hasta dónde avanzaron los objetivos trazados por ONU?
+-  Código promocional Novibet NOVIBONUS: até R$300 + giros grátis
+-  4 motivos para não usar air cooler no computador
+-  Trabzonspor, Ankaragücü mesaisine devam etti
+-  Milli Piyango 1.000.000 TL ikramiye kazanan numaralar açıklandı! 2024 yılbaşı bileti sorgulama: Milli Piyango sonuçları sıralı tam liste
+-  Sivasspor'dan ayrılan Servet Çetin, futbolculara veda etti
+-  Milli Piyango son 4-5-6 rakama göre ne kadar ikramiye veriyor? 2024 Milli Piyango son 4,5 ve 6 rakama göre kazanan numaralar
+-  Gazze'nin 1948'den sonra en kanlı yılı: 22 bin 404 can kaybı
+-  مشاريع بلدية لأنسنة شرورة
+-  Filistin'i unutmayan Pakistan yeni yılı "sessizce" karşıladı
+-  Suomen maksamat sotakorvaukset olivat klassinen hävinneen ryöstö – Suomi tilitti Neuvostoliitolle ankarammin kuin mikään muu maa
+-  Djokovic abre temporada com vitórias em simples e duplas na United Cup
+-  Sarah, duchesse d’York : le retour en grâce
+-  Bitcoin prijsvoorspelling: ‘ETF nog niet eens meegerekend’
+-  PLAYER RATINGS: Ben Davies commands makeshift Tottenham defence and Heung-min Son keeps hot streak going with clinical finish... while Bournemouth's Dominic Solanke fires a blank and Neto has a day to forget
+-  حزب اللّه: إسرائيل ليست في موقع لتفرض خياراتها
+-  Código do cupom KTO: até R$200 + 20% com KTOFUT23
