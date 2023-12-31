@@ -1,51 +1,11 @@
 # Latest News
--  [새해 달라지는 것]최저임금 9860원·신생아 가구에 특공·대출 지원
--  "국가가 전담 세무사가 된 기분".. 국세청 '세금비서' 호평
--  맨유, 이번 시즌 '최다 출장 센터백' 린델로프 1년 연장 옵션 발동...2025년까지 함께한다
--  La actividad en la industria manufacturera de China continuó su contracción en diciembre
--  Milei advierte que Argentina vivirá una "catástrofe" si el Congreso no avala sus reformas
--  Дрон заснял, как заградотряд ВСУ расстрелял группу отступающей украинской пехоты
--  길 가던 여고생 노린 악랄한 성범죄자의 치밀한 계획 [정락인의 사건 속으로]
--  Heavy delays after truck-train crash on major highway
--  김정은 "남북 관계, 동족 아닌 전쟁 중인 교전국"
--  نشرة سوق العمل للربع الثالث 2023
--  Mỹ nhân đại chiến tại APAN Star Awards: Lee Sung Kyung o ép vòng 1 đọ sắc Yoona lộng lẫy, 1 chị đại "chặt chém" bất ngờ dù đã U60
--  Người phụ nữ lột xác ngoạn mục sau khi ‘vứt bỏ’ 34kg mỡ thừa trong một năm
--  Trọn vẹn đám cưới Thiếu gia Tân Một Cú: Cô dâu cầm "tín vật" độc lạ trao chú rể, dàn khách mời lầy lội
--  Bạn sang nhà chơi phát hiện "núi vàng, núi bạc", chuyên gia nhận định "đây là kho báu hơn 100 tỷ": Chưa kịp vui mừng tình bạn lâu năm đã sứt mẻ
--  Kinh doanh ở Đà Lạt 2023: Homestay không có khách trong cả tháng, có tiệm cắt giảm toàn bộ nhân viên để “sống sót”
--  Cậu bé cấp 1 viết văn kể: "Lớn lên em muốn đi bán đậu phụ", đọc xong lý do cô giáo cười không thở nổi
--  Song Kang, Kim Yoo Jung gây tranh cãi khi nhận giải diễn viên xuất sắc
--  Một năm năng suất của DTAP: “Gánh” show Chị Đẹp, làm giám đốc âm nhạc loạt show hot, đứng sau album bước ngoặt của Phương Mỹ Chi
--  Là nữ thần trong mộng của bao người nhưng với Kim Tae Hee, đây mới là mỹ nhân đẹp nhất Hàn Quốc
--  Dẫn bạn gái đi chơi đâu lãng mạn nhất ở Hà Nội
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Villa La Angostura
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Choele Choel
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Plaza Huincul
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de San Martin de los Andes
--  Aldi Taher Masih Terus Aktif Berikan Dukungan untuk Palestina
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Rincón de los Sauces
--  Les Pistons se sont arrêtés à 28 défaites de suite : retour sur une soirée historique, en quelques tweets
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Añelo
--  [조희대 대법원장 “신속·공정하지 못한 재판 없는지 살펴보겠다” [신년사]
--  [이종석 헌재소장 “재판 독립 원칙 지킬 수 있도록 최선” [신년사]
--  [“어쩐지 핫걸이 적더라니”…소개팅 앱 사용 남성, 여성의 4배
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Chos Malal
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Ing. Jacobacci
--  उजुरी दिन प्रहरीकहाँ पुग्नु नपर्ने
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Zapala
--  Pregnant Suki Waterhouse Shares Being Sick in the Studio
--  Roddy Gayle Jr. scores 32, Ohio State beats WVU 78-75 in OT at Legends of Basketball
--  Terungkap Aksi Sadis Sarmo Pembunuh Berantai di Wonogiri
--  Clima de hoy, domingo 31 de diciembre de 2023, para la ciudad de Cipolletti
--  Eskom load shedding schedule – SUNDAY
--  هاتفيني...أشعلي ضوء عيون
--  레드벨벳 예리, 배우 김예림 각인…'에이판 스타어워즈'서 웹드 女인기상
--  3 Fakta Dokter Kelas Piala Dunia yang Bergabung ke Timnas Indonesia di TC Turki Jelang Piala Asia 2023
--  '놀던언니'의 새해 소망…채리나 쌍둥이 임신→이지혜 연기 재개
--  台北跨年晚會今登場 蔣萬安：全國最精彩、陣容最龐大
--  Governor, CM: అవును.. వారిద్దరూ కలుసుకున్నారు.. గవర్నర్‌తో సీఎం భేటీ.. విషయం ఏంటంటే..
--  Cara Bayar PBB Lewat BRILink, Ternyata Segampang Ini
--  سال نو ، نشے میں دھت ڈرائیور وں اور ہوائی فائرنگ کرنے والوں کی شامت ،گرفتاری کے ساتھ ساتھ گاڑی بھی ضبط ہوگی
--  Hallan granada de mortero en lote de carros
--  Se suicida Bram Inscore, compositor de Sivan, Beck y BTS
+-  [외신 또 저출산 주목…‘한국소멸론’ 이어 ‘국방약화 악재’ 지적
+-  حصاد 2023.. تطوير رؤية النشر بهيئة الكتاب وإصدار 450 عنوانًا
+-  वास्तु टिप्स: भूलकर भी अपने घर में न लगाएं इस तरह की पेंटिंग, वरना…
+-  7 วันอันตรายปีใหม่ 2 วัน ตาย 71 เจ็บ 739 - คุมเข้มเมาแล้วขับ
+-  5 smart ways to spend your year-end bonus
+-  स्वास्थ्य देखभाल: ठंड में बढ़ जाता है हार्ट अटैक का खतरा, रखें अपनी सेहत का ख्याल
+-  Jalandhar News: कॉमेडियन कपिल शर्मा को पराठे खिलाने वाले पर केस, जानें- क्या है पूरा मामला
+-  বাংলাদেশ-নিউজিল্যান্ড ম্যাচে বৃষ্টির বাগড়া, হারের দ্বারপ্রান্তে বাংলাদেশ
+-  রাশিয়ার শহরে হামলায় ২০ জন নিহত: ক্রেমলিন
+-  കാനം രാജേന്ദ്രന്റെ മരണത്തെ തുടർന്ന് മാറ്റിവെച്ച കൊച്ചിയിലെ നവകേരള സദസ്സ് നാളെയും മറ്റന്നാളുമായി നടക്കും
