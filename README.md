@@ -1,11 +1,51 @@
 # Latest News
--  Foreign Investors Made Beeline For Indian Stocks, Turned Net Buyers In 2023
--  Surge In 'Gold Findings' Import Brings Tax Bonanza For Indian Jewellers
--  FM Nirmala Sitharaman Chairs Meeting To Review Performance Of Public Sector Banks
--  India's Russian Crude Imports Prevent Price Surge In Global Oil Market
--  “암 조기 진단 국내 기술력 글로벌 시장 우뚝”
--  2024년도 기관 및 단체장 신년사
--  Ronaldo ends 2023 as world`s top goal scorer, says `will try to do it again`
--  No tussle in MVA over sharing of seats for Lok Sabha polls: Sanjay Raut
--  New Year: From Deepika to Alia, celebs bid adieu to 2023 with nostalgic post
--  Sagvan Tofi pred kamerami šokoval dĺžkou jazyka: Šialené, čo s tým svojim dokáže krásna Slovenka!
+-  CHP Genel Başkanı Özel, siyasi parti genel başkanlarının yeni yılını kutladı
+-  Asesinan a un hombre en Los Santos
+-  "אפילו סטיבי וונדר היה יכול לראות את זה": דווקא ביום ההולדת, לברון ג'יימס התעצבן ועורר סערה
+-  Así era Logan, el niño perdido hace 20 años | PERFIL
+-  Security forces kill three terrorists in Bajaur district
+-  Tomek Wilczkiewicz na Sylwestra i Nowy Rok
+-  Uz tenis na SK u novu godinu: Vekić i Ćorić otvaraju sezonu u Australiji
+-  Rangers say SFA fail to disclose VAR audio from Old Firm clash despite ‘repeated requests’
+-  2023 US Box Office Crossing $9 Billion, Led By Universal; ‘Wonka’ Tops New Year’s Weekend With $31M+ – Sunday Update
+-  “Ver a alegria e o encantamento das pessoas durante esses dias vai ficar marcado em minha memória”, afirma primeira-dama
+-  طقس غائم جزئياً على الساحل الليلة وتحذير من رياح قوية وأمواج عالية في البحر
+-  Eleven bars and restaurants in Belfast to check out this Veganuary
+-  Liverpool z pierwszym zimowym ruchem. Nie takiego ruchu oczekiwano [OFICJALNIE]
+-  Müzik eşliğinde oynarken birbirlerine giren gençlerin kavgası kamerada
+-  Biblioteca de Leopardi é catalogada e informatizada na Itália
+-  Pronađeno telo u Savi: Leš je uočen nedaleko od Mosta mladosti
+-  Juventus Women, Rosucci saluta un 2023 stregato: «Finalmente sta per finire…» – FOTO
+-  Vídeo mostra momento exato da execução de comerciante em Rio Branco
+-  River Hoy: novedades sobre Arezo, Petroli jugará en Godoy Cruz y noticias de pretemporada
+-  Chivite llama a la "unidad" tras apoyar a Bildu: "El ruido no soluciona los problemas de la gente"
+-  New women's professional hockey league, with hopes of staying power, ready to drop the puck
+-  Premier’s New Year’s message
+-  Presidente Díaz-Canel pide que 2024 sea “un tránsito de esperanza” para Cuba
+-  Wanda Nara mostró por primera vez el comunicado que detalla qué tipo de leucemia tiene
+-  Djokovic feiert Team-Sieg mit Silvesterparty auf dem Platz
+-  Sirenenalarm am Silvesternachmittag in Erdmannsdorf - Was ist passiert?
+-  Vorläufiges Ergebnis: 73,3 Prozent für Kongos Präsidenten
+-  Tko je 16-godišnja pikado senzacija koja igra četvrtfinale Svjetskog prvenstva?
+-  PREDICCIONES de Baba Vanga para el 2024
+-  “Ver a alegria e o encantamento das pessoas durante esses dias vai ficar marcado em minha memória”, afirma primeira-dama
+-  Maja Berović otkrila kako je došlo do saradnje sa Cecom i Futom: "Oduševljena sam, zvučimo kao jedna osoba"
+-  Fuerzas anti-retirada de Ucrania disparan a un grupo de soldados ucranianos en retirada | Video
+-  Transcript: David Becker, founder of the Center for Election Innovation & Research, on "Face the Nation," Dec. 31, 2023
+-  Novo Seguro-Desemprego: Parcelas que podem ser liberadas
+-  Detienen al campeón del mundo Rohan Dennis, acusado de matar a su mujer
+-  نائب وزير التعليم العالي يتفقد سير الأداء بجامعة إب
+-  Jason Kelce hilariously upstages Travis as he arrives for Eagles game in a gray tracksuit with tassels down to his KNEES - after his brother is spotted in a bold tiger-print outfit in Kansas City
+-  Kölner Dom unter Schutz: Polizei nimmt nach Terroralarm drei weitere Verdächtige fest
+-  Bakan Fidan'dan yeni yıl mesajı: Doğruyu savunmaktan asla çekinmeyeceğiz
+-  Niğde'de 2 akrabasını vurdu, intihar etti!
+-  AK Parti Balıkesir Gençlik Kolları Başkanı Uysal vefat etti
+-  Niğde'de akrabalar arasında silahlı kavga! 3 ölü
+-  İthalat Rejimi Kararında Değişiklik Kararı Resmi Gazete'de
+-  Ankara'da hastane kantininde cep telefonu hırsızlığı!
+-  Düzce'de polisin durdurduğu motosiklet alev alarak yandı
+-  Hakkari'de deprem!
+-  Ankara'daki yılbaşı tedbirleri KGYS Merkezi'nden takip ediliyor
+-  Движение автотранспорта по Крымскому мосту возобновили
+-  استشهاد وفقدان ١٠ أفراد من منتسبي الجيش اليمني باعتداء امريكي .. بيان
+-  Hora do Conto
