@@ -1,51 +1,11 @@
 # Latest News
--  Fırtına'da kritik 23 gün
--  Futbolda aralık ayı krizlerle geçti
--  Nachts schlecht geschlafen: Darf man sich deswegen krankschreiben lassen?
--  BTS member V's duet with UMI tops iTunes charts in 89 countries
--  Male K-pop soloists to light up 2024 with new album releases
--  Star-studded series, much-anticipated sequels set for 2024
--  Fantic push to safeguard Paris Olympics promises thousands of jobs and new starts after riots
--  Year of Blue Dragon begins
--  Average time from depression diagnosis to suicide is 4.5 years: study
--  Türkiye yeni hedefine kilitlendi: 2024 ülkemizde sanayi, teknoloji ve uzay yılı olacak
--  81 ilde elektrik şebekesi yönetimi: 21 bin kişi sahada
--  AK Parti'de seçim beyannamesi hazırlığı: Türkiye Yüzyılı Şehirleri İçin Gerçek Belediyecilik
--  «Θυμάμαι να σέρνομαι με έναν πονοκέφαλο που μπορώ να περιγράψω σαν ένα λάστιχο να ζουλάει τον εγκέφαλό σου»
--  פרופ' ידידיה שטרן: "טעות לפרסם עכשיו את החלטת בג"ץ על ביטול עילת הסבירות"
--  ברקת שוב תוקף את מדיניות הממשלה: ביד אחת ישראל נלחמת בחמאס, ובשנייה - מסייעת לו
--  HAK upozorava vozače na skliske ceste i maglu
--  “Nema više odlaganja”
--  Erik ten Hag sneaks into top 10 Premier League managers of 2023
--  Ρωσία: 22 νεκροί και 109 τραυματίες από επίθεση στην πόλη Μπέλγκοροντ
--  Koliko su stari najstariji stanovi u Srbiji
--  Test Team Of The Year: বর্ষসেরা টেস্ট দলে নেই বিরাট কোহলি, তবে জায়গা পেলেন যে দুই ভারতীয়
--  Schengen-Raum: Rumänien und Bulgarien treten dem Schengen-Raum bei
--  Tottenham XI vs Bournemouth: Confirmed team news, predicted lineup, injury latest for Premier League today
--  Alpes : mes vacances dans les airs ! - 31/12
--  Ayodhya: PM मोदी का ‘ 24 मास्टरस्ट्रोक’; स्टेशन-एयरपोर्ट का उद्घाटन, राष्ट्रीय एकता को पिरोने वाला संदेश
--  Year Ender 2023: इस साल 9वीं SAFF चैम्पियनशिप समेत सुनील छेत्री की नेतृत्व वाली भारतीय फुटबॉल टीम ने जीते तीन खिताब, टीम के लिए रहा खास साल, डाले इसपर एक नजर
--  Dans un discours menaçant, Kim Jong Un ordonne à son armée de se préparer à une possible "guerre"
--  India reports 841 new Covid cases in last 24 hours
--  ম্যাচ হারের আসল কারণ জানালেন নাজমুল হোসেন শান্ত
--  মান্তা শিশুদের কাঁদিয়ে বিদায় নিল ‘ভাসমান স্কুল’
--  বিদায় ২০২৩, স্বাগত ২০২৪
--  মীর হাজিরবাগে বিএনপির লিফলেট বিতরণ
--  Schneller als der Schall: Geheimnis knallender Champagnerkorken erstmals gelüftet
--  Шахтар погодився знову орендувати Майкона Корінтіансу
--  Fashion Wardrobe: Essential Clothing for Timeless Style
--  Session in Hilden: Sven Lorig moderiert Pfarrkarneval St. Konrad
--  نواز شریف پر جس کا بھی ہاتھ ہو وزیراعظم بننے نہیں دیں گے: منظور وسان
--  Nollywood’s Judy Austin Commands Attention with Red-themed Birthday Photoshoot Amidst Year of Controversy
--  Por un 2024 lleno de celebraciones
--  Tennis - Thiem erreichte Brisbane-Hauptbewerb - Nun gegen Nadal
--  رواتب وبدلات وتأمين.. وظائف شاغرة بالخطوط الحديدية في مختلف المجالات
--  10 آلاف ريال عقوبة عبور الأودية والشغاب أثناء جريانها
--  عاجل.. خطوات التقديم على النقل الخارجي للمعلمين عبر نظام نور
--  الثوم صيدلية طبية متكاملة.. تعرف على أهم فوائده
--  Sunil Gavaskar On Shubman Gill: शुभमन गिल के टेस्ट में लगातार क्यों हो रहें फ्लॉप? पूर्व बल्लेबाज सुनील गावस्कर ने बताया कारण
--  Wöchentlicher Rückblick und Ausblick: 21 CPU-GPU-Konfigurationen dominieren die letzte Woche des Jahres 2023
--  Iga Świątek awansowała w rankingu! Wystarczyło jedno zwycięstwo
--  Bennacer su Instagram: "Una serata come piace a noi a San Siro"
--  Geçici ithal edilen araçlar 4 yıl kalabilecek
--  SEDMIČNI HOROSKOP OD 31. DECEMBRA DO 6. JANUARA: ŠKORPIJE će imati pozitivne energije na pretek, Rakovi da se pripaze šefa, a evo koji znak će upoznati nekog u novogodišnjoj noći
+-  روسيا تتوقع زيادة حجم التجارة مع مصر بمقدار الربع مع نهاية 2023
+-  Apple ürünlerindeki güvenlik açıkları, kullanıcıları tehdit ediyor
+-  Luchtmacht Oekraïne: 21 van 49 Russische drones neergehaald
+-  I tifosi della Roma lanciano un seggiolino. Ferito un tifoso della Juventus
+-  Bosanskohercegovačka ekonomija u 2023. – Usporavanje inflacije i skroman ekonomski rast
+-  La Bulgarie et la Roumanie vont partiellement intégrer l'espace Schengen
+-  GNR regista um morto e sete feridos graves entre sexta e sábado
+-  Mehmet Şimşek: 2024 yılı, yıllık enflasyonda düşüşün başladığı bir yıl olacak
+-  [與 “민경우는 책임지고 사퇴…민주당 '내로남불'과 달라”
+-  [소비 부진 속 취약차주 자영업자 증가세…소득여건 개선 안되면 도미노 부실
