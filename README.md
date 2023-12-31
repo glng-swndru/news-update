@@ -1,51 +1,11 @@
 # Latest News
--  4 điểm sáng sau trận thua của M.U: Ấn tượng viện binh
--  Steve Nicol khó hiểu vì lựa chọn của Ten Hag
--  Những con số đáng chú ý của M.U trong năm 2023: BXH Vua phá lưới
--  Gary Neville chỉ trích cựu sao Arsenal trong trận thua của M.U
--  Nketiah ra quyết định cho Arsenal
--  "Từ khi Kevin De Bruyne vắng mặt, cậu ấy đã chơi không thể tin được"
--  Keeping recyclable waste separate ‘vital’ to boosting NI recycling rates
--  (Видео) Новата година веќе стигна: Кирибати прв славеше, а потоа Нов Зеланд со огномет од познатата кула
--  Kampf gegen Inflation für viele Menschen wichtiges Thema
--  Mobiltoilette und zwei Zigarettenautomaten gesprengt
--  Gündogan verletzt sich beim Krafttraining am Kopf
--  Maersk vaart 48 uur niet op Rode Zee vanwege nieuwe aanval op schip
--  İsrail ordusu Gazze'den atılan füzeler karşısında çaresiz: Önlemek mümkün değil
--  Necip Fazıl Ödülleri'nde "Filistin" vurgusu geceye damga vurdu
--  "Oyumuz yüzde 8'e düştü" deyip partisinden istifa etti
--  Jean Onana için yolun sonu!
--  Harry Kewell'in yeni adresi Japonya
--  Eczanelerde yılbaşı öncesi ilaç bulamama krizi yaşanıyor! "Eczacı da hastalar da mağdur"
--  Bursalılar yılın son günü milli piyango sırasında
--  Terazi erkeği özellikleri
--  البنك الوطني الجزائري : اطلاق أربعة منتجات صيرفة اسلامية جديدة في الأيام القليلة المقبلة
--  سوناطراك : تنظيم مسابقة لانتقاء أكثر من 1200 عامل عبر عدة ولايات
--  Novak Djokovic: A look at Serbian`s record-breaking 2023 season
--  Cafe Noir launches its winter festive menu with unique specials
--  Tehreek-e-Hurriyat, once headed by Syed Ali Shah Geelani, banned by govt
--  Sunny Deol on ending 16-years long rift with SRK: `Everybody has moved ahead`
--  KMC to establish City Museum at Denso Hall: Murtaza Wahab
--  Kalonzo rallies Kenyans to be hopeful in New Year’s message
--  Gazze'ye ölüm yağdıran İsrail'i 2024'te ekonomik ve siyasi krizler bekliyor
--  Fatih Terim eski öğrencisini istiyor: Yönetim harekete geçti
--  2024 Yılı Merkezi Yönetim Bütçe Kanunu Resmi Gazete'de yayımlandı
--  İYİ Partili Başkan istifa etti
--  İsrail ordusu Gazze'de biri subay 2 askerinin daha öldürüldüğünü duyurdu
--  Merkezi Yönetim Bütçe Kanunu Resmi Gazete’de
--  Roy Hodgson calls speculation over his Crystal Palace future ‘disrespectful’
--  BREAKINGS NEWS: Agreement reached medical date fixed, done deal imminent, Eredivisie superstar finally accepts Chelsea offer, player to arrive with His agent tomorrow for unveiling
--  Arif Hasan steps down as Pakistan Olympic Association president after 19 years
--  صراع رجاوي عسكري على مدافع إتحاد تواركة أحمد الخلج
--  VIDEO+FOTO: Velike štete na kućama u Ljubetovu kod Zenice, mještani od zore u radnim akcijama
--  Operação da PSP fecha estabelecimento de diversão noturna
--  ارتفاع معدلات الطلاق في تونس.. ومنصات التواصل في قفص الاتهام
--  الوهباني يعزي أيوب طارش بوفاة نجله
--  조이현, 예쁨 가득
--  조이현 '블랙스완'
--  백진희, 순백의 미소
--  정의제-백진희-안재현, '진짜가 나타났다' 주역들
--  বিআইআইএসএসে ‘গ্লোবাল ইকোনমিক শোডাউন’ শীর্ষক সেমিনার অনুষ্ঠিত
--  VIDEO: Građani Zenice nakon potresa – Ovo je baš za neočekivati, strašan je osjećaj
--  Врач перечислила самые вредные традиционные новогодние блюда
--  АМЕРИКАНСКИ ХЕЛИКОПТЕРИ УНИШТИЛЕ ТРИ БРОТЧИЊА НА ЈЕМЕНСКИТЕ БУНТОВНИЦИ КОИ НАПАЃАЛЕ БРОД
+-  نگرانی قالین‌بافان از نبود بازار فروش برای قالین‌های دستبافت
+-  Soirée du nouvel an : Prudence au volant…
+-  Bakan Koca, 2023 yılının sağlık verilerini açıkladı
+-  Zeynep Bastık'ın 40 milyon TL'lik evi!
+-  Bahçeli'den Süper Kupa açıklaması: 2024 yılında hayal kırıklığına uğrayacaklar
+-  유재석도 인정한 예능감…신예은, '런닝맨' 고정 되나? '새 멤버로 탐났상' 수상 [런닝맨](종합)
+-  Donald Trump Sends Early New Year's Message to Joe Biden
+-  Vanja Horvat otkrila je gdje pronalazi svoj mir, uz ovaj sport teško biste ju povezali: ''To mi je u krvi!''
+-  Pengamat Sebut Kubu Ganjar Tak Bisa Bendung Efek Bansos Jokowi ke Prabowo-Gibran
+-  Emine Erdoğan'dan yeni yıl mesajı
