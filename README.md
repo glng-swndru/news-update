@@ -1,51 +1,11 @@
 # Latest News
--  Lo arrestan por conducir moto con serie alterada
--  Capturan a cuatro con órdenes de aprehensión pendientes
--  Sudoku difícil: 31 de diciembre de 2023
--  Sudoku medio: 31 de diciembre de 2023
--  Sudoku fácil: 31 de diciembre de 2023
--  ISTINU ODNEO U GROB: Tačija i zločince OVK smrt Dika Martija bi mogla da spase?!
--  Balance 2023: Mindef realizó acciones de ayuda, prevención y coordinación frente a El Niño
--  🔴 EN VIVO | Javier Milei y su mensaje de fin de año “para todos los argentinos”
--  10 Link Twibbon Tahun Baru 2024 Plus Info 26 Ruas Jalan di Jakarta Ditutup Saat Pergantian Tahun
--  Wilfredo Romero punteó con Santurce en Puerto Rico
--  साल के आखिरी दिन सूर्य देव को इन खास उपायों से करें प्रसन्न, जीवन की परेशानियां होंगी दूर
--  FALA: Expediting Africa's systemic change through young leaders
--  عاجل.. حساب المواطن يوضح هل سيتم تمديد الدعم الإضافي في البرنامج؟
--  Navas bị Real đối xử phũ phàng
--  4 quyết định 'tự hủy' của Ten Hag
--  Réveillon na região terá shows e queima de fogos
--  Bellingham của Chelsea tỏa sáng rực rỡ
--  Paula Abdul accuses 'American Idol' producer Nigel Lythgoe of sexual assault in lawsuit
--  Two people hospitalized due to Swan Valley fire
--  New Year Eve 2024 Messages: हैप्पी न्यू ईयर ईव! इन शानदार हिंदी Shayaris, WhatsApp Wishes, GIF Greetings, Photo SMS को भेजकर दें बधाई
--  दुनिया की कोई भी ताकत भारतीय शेयर बाजार में नहीं लगा पाएगी सेंध, डिजास्टर रिकवरी की सामने आई धांसू प्लानिंग
--  Micheal Martin plots narco gang talks on official Colombia trip as battle to take down Kinahan cartel ramps up
--  BYD Punya SUV Premium Pesaing Mercedes-Benz G-Class
--  La princesa Charlotte es la niña más rica del mundo: la futura duquesa de Edimburgo lidera la lista superando a su hermano George, ¿cuánto dinero tiene la hija del príncipe William y Kate Middleton?
--  The racing headlines you WILL … and WON’T … read in 2024
--  Tiga Museum di Jakarta Telah Dibuka Kembali, Museum Apa Saja?
--  MIDAGRI anuncia viabilidad del Proyecto Hidroenergético Alto Piura
--  Makin Trendi dengan Kain Tradisional Indonesia
--  Châu Âu chế tạo siêu máy tính nhanh nhất thế giới
--  Leo Varadkar open to another rotating Taoiseach deal with Micheal Martin after next general election
--  Government set to clash over who to nominate as next EU Commissioner – as Mairead McGuinness bids for second term
--  গুলশান-বনানীতে বহিরাগত নিষিদ্ধ, হাতিরঝিল বন্ধ
--  VSV Capital khép lại một năm đáng nhớ với mục tiêu kết nối startup Việt Hàn
--  Presidente de Guyana promueve soluciones pacíficas en disputa territorial con Venezuel
--  '마침내 돌아왔다' 데 브라위너, 햄스트링 부상 이후 141일 만에 1군 복귀...셰필드전은 결장
--  엄마 낮잠 자던 사이…5세 아이 16층서 추락사
--  Đề phòng dị vật nguy hiểm ở trẻ em
--  Nga oanh tạc Ukraine, phương Tây lo lắng
--  Nghỉ lễ tiệc tùng uống nhiều bia rượu, hôm sau chưa hết nồng độ cồn
--  Bóng đá Việt Nam năm 2023: Thành công nhiều hơn thất bại
--  My mom’s Temu order was a major fail but I’ve been laughing for 20 minutes about her response, she got her money back
--  My mom’s Temu order was a major fail but I’ve been laughing for 20 minutes about her response, she got her money back
--  '한시 운영' 가리왕산 케이블카…철거·존치 분수령
--  채리나, 태국에서 뽐낸 비키니 자태…넘사벽 글래머 몸매[★핫픽]
--  Netanyahu says Gaza-Egypt border zone should be under Israeli control
--  Champagne for £10 and prosecco for £4.75 – top New Year supermarket deals revealed by Martin Lewis’ Money Saving Expert
--  '미신고 아동' 1만명 이상…더는 '사각지대' 없게
--  Why Victorians are more likely to land in emergency this week
--  Why Victorians are more likely to land in emergency this week
--  Why Victorians are more likely to land in emergency this week
+-  최근 5년간 '성범죄'로 검거된 의사 800명… 성폭행·추행이 87%
+-  [속보] 방통위, 141개 지상파 재허가 연기…"방송사 불이익은 없을 것"
+-  Judge orders release of over 150 names of people mentioned in Jeffrey Epstein lawsuit documents
+-  Korea set to implement global minimum corporate tax scheme
+-  About 100,000 visitors expected for New Year's Eve ceremony in central Seoul
+-  5 مشروبات منزلية تعمل على خفض ضغط الدم بسرعة
+-  Caen 4 por masacre en fiesta en Cajeme, Sonora
+-  Maharashtra Fire Video: महाराष्ट्र में भीषण हादसा, दस्ताने बनाने वाली फैक्ट्री में आग लगने से 6 लोगों की मौत
+-  স্বতন্ত্র প্রার্থীর পক্ষে প্রচারণা, তাহিরপুরে ছাত্রদল সভাপতিকে অব্যাহতি
+-  Confirmaron el primer caso humano de encefalomielitis equina en Entre Ríos
