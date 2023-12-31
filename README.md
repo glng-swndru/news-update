@@ -1,11 +1,51 @@
 # Latest News
--  Danijela Trbović o odlasku u mirovinu: ‘Pohabala sam se i izraubala’
--  Hier wird das neue Jahr mit KI begrüßt
--  Danska kraljica u novogodišnjem govoru iznenada objavila da odlazi s prijestolja
--  Hannover: Häftlinge wünschen sich Sicherheit für ihre Familien
--  ¡Con 52 años en el poder! La reina Margarita II de Dinamarca notifica su renuncia al trono
--  Troje uhapšenihu Njemačkoj, planirali su napad autobombom
--  Conor McGregor najavio povratak i veliki obračun
--  Dalaj Lama: Mir u svijetu samo ako prvo pronađemo mir u sebi
--  Calciomercato Juve, l’indizio social è chiaro: ha iniziato a seguire quei due bianconeri – FOTO
--  A história da rivalidade mais quente da NFL no momento e o que você precisa ver pela ESPN no Star+
+-  Responsables de una cantera denuncian hurto de explosivos
+-  סיכום 2023: 1,000 מכוניות חדשות בכל יום. ומי הרכב הכי נמכר?
+-  اهتمام إنجليزي بـ مبابي، ولكن..!
+-  Denmark's Margrethe II, Queen Of Hearts And The Arts
+-  Gerüchte über Nintendo Switch 2 enthüllen, dass drei Spiele auf die Konsole kommen
+-  Ja pse duhet të vishemi me të kuqe natën e Vitit të Ri
+-  2024 Milli Piyango çekilişi 8.000 TL kazanan numaralar açıklandı! İşte son 6 rakamına göre 8.000 TL ikramiye kazanan numaralar
+-  BM: 2023, Filistinli mülteciler için büyük bir yıkım ve trajedi yılı oldu
+-  Beşiktaş Başkanı Arat'tan yeni yıl mesajı
+-  قناة عبرية: توني بلير عقد اجتماعات سرية مع نتنياهو لبحث "لجوء" سكان غزة
+-  Prezydent w orędziu: Doszło do próby siłowego przejęcia mediów publicznych
+-  Ўзбекистон халқига Янги йил табриги
+-  Policia e Shtetit mesazh urimi për Vitin e Ri 2024: Kryevlerë për imazhin e Shqipërisë
+-  В Московском регионе началось обещанное синоптиками резкое похолодание
+-  Has Christopher Biggins Done Weight Loss Surgery? Net Worth Explored
+-  نیتن یاہوکی ہٹ دھرمی:غزہ جنگ جاری رکھنے کا اعلان
+-  ¿Cómo ver el Desfile de las Rosas 2024?
+-  Temerile „țarului” de la Kremlin. Rusia crede ca Moldova se va unifica cu România
+-  Posible traspaso para Rubio Rubín, Seleccionado Nacional, quien podría unirse al Querétaro de México
+-  “No harían lo mismo con el masculino”: Ana Lucía Martínez molesta con Concacaf por no programar el playoff para Copa Oro W en fecha FIFA
+-  Hasil Liga Inggris: Hajar Bournemouth 1-3, Tottenham Hotspur Kembali ke Jalur Kemenangan
+-  Centros comerciales en Maturín reportan 70% de afluencia
+-  Control de Personal y Finanzas: cuatro mujeres manejarán resortes vitales de la Policía Federal
+-  'NEĆU TI BITI MAJKA NI NA ZEMLJI, NI U ZEMLJI': Ženu sin nije posjetio SEDAM GODINA, a hoće da joj oduzme imovinu (VIDEO)
+-  10 شركات طيران
+-  Асеновградчанин събу дънките на почерпен случаен познат, за да го обере
+-  Me thirrjen e veçantë për shqiptarët, deputetja demokrate uron Vitin e Ri
+-  Ucrania se mantiene firme en 2023 pero se enfrenta a un 2024 incierto
+-  Neil says Mannara is hurt by Munawar-Ayesha's history, calls Ankita, Vicky, Isha, Samarth worst contestants of BB17
+-  FANTASTIČNI PORTUGALAC: Ronaldo objavio fotografiju iz teretane i 'pokupio' čak šest miliona lajkova! (FOTO)
+-  Donald Tuskék máris cenzúrázzák az állami médiában a jobboldali közleményeket
+-  تصوير 3 فتيات سعوديات وهن بوضعية مخجلة في أحد شواطئ مدينة جدة ..شاهد الفيديو
+-  Januarska depresija: Građani uznemireni zbog rasta cijena namirnica
+-  تم القبض..الداخلية السعودية تصد بيان عاجل حول فيديو حرق حيوان حي بطريقة بشعة…”شاهد الفيديو “
+-  الداخلية السعودية ترحيل الأجانب من هذه الجنسية..ولن نسمح بدخولهم للمملكة نهائياً!
+-  Trikratnega olimpijca našli mrtvega v Keniji
+-  Arteta: Ndeshja ndaj Fulhamit ishte më e keqja e Arsenalit këtë sezon
+-  2 Möglichkeiten, Windows 11 mithilfe eines Wiederherstellungspunkts wiederherzustellen
+-  La San Silvestre Vallecana en directo: Katir y Aregawi se escapan de salida
+-  Shecky Greene, legendary standup comic, improv master and lord of Las Vegas, dies at 97
+-  Akeredolu’s aides betrayed him, ex-aide alleges
+-  Esta película de HBO Max es perfecta para terminar las festividades navideñas con humor y mucha acción al estilo John Wick
+-  Az OpenAI a botrányok ellenére is rekordnyereséggel zárhatja a 2023-as évet
+-  2024: NOA restates FG’s commitment to deliver mandate
+-  İsrail'de seçimler ikinci kez ertelendi
+-  تعرف على قيمة رسوم تجديد الاشتراك بمشروع العلاج للمحامين وأسرهم لعام 2024
+-  "الوفد" يقرر تشكيل لجان الحزب بالمحافظات بالانتخاب
+-  عبور برلمانى ناجح نحو «امتحانات جديدة» فى 5 ملفات.. اعرف التفاصيل
+-  حصيلة جرائم الاحتلال فى قطاع غزة خلال عام 2023 بالأرقام.. برلمانى
+-  تكنولوجيا: باحثون ألمان يكتشفون خللاً فى سيارات تسلا يمكنهم من القيادة الآلية بالكامل
