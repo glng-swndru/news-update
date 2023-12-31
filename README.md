@@ -1,51 +1,51 @@
 # Latest News
--  SM-liigaseura hankki uuden maalivahdin - ei ole pelannut tällä kaudella missään
--  Arsenal-luotsi latasi suorat sanat joukkueensa kyykkäämisestä
--  Eski Filistinli bakan İsrail saldırısında hayatını kaybetti
--  స్వామివారికి బోనాలు సమర్పించి భక్తులు
--  Galería: Así recibieron el 2024 del otro lado del mundo
--  لماذا يغيب أمرابط عن مباريات مانشستر يونايتد؟
--  لماذا قبضت المخابرات على هذه السيدة؟
--  2023.. سنة إنجازات كرة القدم المغربية بامتياز
--  سوق الدين.. سندات الخزينة تمثل 73 في المئة من المبلغ الجاري الإجمالي عند متم أكتوبر 2023
--  مرتيل: أسرة الأمن الوطني تكثف جهودها لضمان الأمن مع حلول العام الجديد
--  عاجل | الجيش الإسرائيلي يعلن سحب 5 ألوية من غزة
--  البحرية الأمريكية تشتبك مع زوارق حوثية حاولت اعتراض سفينة شحن .. والحوثي يرد ببيان
--  ఎమ్మెల్యే తిప్పేస్వామికే మళ్లీ అవకాశం ఇవ్వాలి
--  The Latest from Nvidia: A Gaming Chip Designed for the Chinese Market
--  رحيل موديست عن الأهلي في يناير؟ "بيبو يجيب"
--  కార్మిక సంఘాల ఏర్పాటులో ప్రభాకర్‌ కృషి గొప్పది
--  వ్యక్తి దారుణ హత్య
--  Félix Tshisekedi : « Ces élections étaient l’occasion de défendre notre terre »
--  Nova estratégia de vacinação contra Covid-19 vai entrar em vigor; entenda
--  Штурм Макіївки та наступ на Харківщину: яка ситуація в регіонах
--  Кремль стремится подорвать поддержку Украины Францией – The Washington Post
--  మార్పుకు శ్రీకారం
--  2023 제주시 장애인 체육발전유공자 시상식 열려
--  “제주 유니폼 큰 의미…도민 성원 보답 실천”
--  서귀포시 전기자전거 대여점 ‘펑’폭발 화재
--  제주 읍면·섬지역 학생 ‘미래 과학 인재로 육성’
--  تجديد حبس عامل خردة لسرقته الأسلاك النحاسية في العمرانية
--  A un año de su grave accidente, Jeremy Renner visitó el hospital donde le salvaron la vida
--  I only know Pele off FIFA – Luke Littler bids to join other famous young guns
--  Félix Tshisekedi reeleito como presidente da RDCongo com 73,34% dos votos
--  వైసీపీలో ఆరని మంటలు
--  Muere la primera actriz Ana Ofelia Murguía a los 90 años
--  H M Sultan Haitham’s greetings conveyed to Pope Francis
--  سامسونج تدعم كاميرة Galaxy S24 Ultra بميزة إشتهرت بها هواتف Sony Xperia
--  Calciomercato Juve, l’annuncio a sorpresa di Allegri: «Presto vedrete questo giovane»
--  Toronto opening warming centres as temperatures drop
--  ఆరు గ్యారెంటీల్లో యువ వికాసం మరిచారు
--  حرس الحدود بجازان ينقذ بحارا من جنسية عربية
--  شاهد.. أمطار وسيول شمال شرق القصيم
--  وظائف حكومية شاغرة.. هيئة رعاية الأشخاص ذوي الإعاقة تعلن عن حاجتها لموظفين بالرياض
--  Сакский армрестлер привез "золото" из Калмыкии
--  عاجل.. خطوات ورابط الاستعلام عن العوائد السنوية برقم الهوية 1445
--  Me conformo con los resultados de ahora: AMLO
--  GNR apreende cerca de 10 toneladas de azeitona no concelho de Aljustrel
--  Hillwalker airlifted to hospital after 100-metre slide on Ross-shire mountain
--  Dünya 2024'e 'merhaba' dedi: En uçtaki ülkeler görkemli bir şekilde yeni yıla girdi
--  Dabiz Muñoz deja Barcelona: el mejor chef del mundo cierra su restaurante GoXO en la Ciudad Condal
--  Janja se mantém influente em 1º ano de Lula
--  মৌলভীবাজারের ৩টি আসনে নির্ভার নৌকার প্রার্থীরা, কুলাউড়ায় ত্রিমুখী লড়াই
--  নতুন বছর নতুন আশা
+-  أهم 10 توقعات اقتصادية لعام 2024
+-  بندقية صينية بيد قناصي القسام.. هذه مواصفاتها
+-  Bakan Güler: Terör örgütü bitme noktasında
+-  Bakan Yerlikaya: Göz açtırmadan mücadelemize devam ediyoruz
+-  Injı kimdir? Inji'nin gerçek adı ne?
+-  Taksim'de yeni yıla saatler kala yoğunluk yaşanıyor
+-  Eskişehir'de herkes eğlenirken, onlar ekmek derdinde
+-  Restoranlarda fiyat listesi zorunluluğu: İşletmeler tabelaları hazırladı
+-  Hakkari'de halk sokaklara döküldü
+-  Danimarka'da 52 yıldır tahta bulunan Kraliçe Margrethe II tahttı bırakıyor
+-  TIR sürücüleri yeni yıla yollarda girdi
+-  Cumhurbaşkanı Erdoğan'dan Mehmetçiğe yeni yıl tebriği!
+-  İstanbul'da devriye gezen atlı polisler büyük ilgi gördü
+-  Kamu sosyal tesis 2024 ücretleri ne kadar?
+-  Murió la actriz Ana Ofelia Murguía a los 90 años
+-  Fingen ser policías y roban tráiler con 17 toneladas de huevo
+-  Lo sorprenden robando un auto y amenaza al dueño
+-  নতুন বছরকে বরণ করে নিল ঢাকাবাসী
+-  Mustafa Taş kimdir, kaç yaşında? "Şarkılar Bizi Söyler" yılbaşı özel bölüme konuk oldu!
+-  Cumhurbaşkanı Erdoğan'dan Mehmetçiğe yeni yıl mesajı
+-  В БДИПЧ ОБСЕ заявили, что организации известно об атаке на Белгород
+-  Bills pass rusher Von Miller inactive against Patriots
+-  המניה המתרסקת בישראל נחשפת: מי איבדה 97.66% מערכה ב-2023?
+-  הוט או YES? זו החברה הכי טובה בישראל לפי דו"ח פניות הציבור
+-  הרכבת הקלה בבשורת ענק: מי יפעילו את הקו הכחול?
+-  ינון מגל מחזק את סטרוק: "באיזה סרט נמצא קצין בכיר בצה"ל?"
+-  התחדשות עירונית בקריית אונו: האם זו העיר הממוגנת במדינה?
+-  תל אביב עושה מהפכה: הסוף לזיהום בנחל הירקון?
+-  שנת הבלהות של חנן מור: המנייה התרסקה ב-82.19%
+-  סוף שנת המס כבר כאן - וזה יכול להיות שווה לכם כסף
+-  מרגש: זוהי היוזמה החדשה עבור עיוורים ולקויי ראייה
+-  יעל שלביה תרגיז את ה-BDS? זה הקמפיין שבו היא מככבת
+-  ليبيا تشارك في الاجتماع الـ (43) للمجلس الأعلى لمجلس الخدمات المالية الإسلامية بمدينة جدة بالسعودية
+-  සමුපකාරයේ සාංඝික දේපළ බේරා ගැනීමට සටන් වදින මාලිමාවේ අලුත් අධ්‍යක්ෂකලා….
+-  Kameron: Iran ima udeo u odgovornosti za sprečavanje napada Huta
+-  Jaramaz za B92.net: Da sledeće godine sa Partizanom osvojim sve trofeje
+-  ¿Te sientes con suerte? Puedes participar en el último sorteo y ganar 140 mdp
+-  हमास के आतंक का नया चैप्टर, इजरायली सेना पर करेगा ‘महामारी बम’ से हमला
+-  "مدني الرياض" يحرر لسان طفلة علق في قطعة معدنية
+-  في جازان وعسير .. الإطاحة بمروجي السموم ومخالفي أمن الحدود
+-  توقيع برنامج إنشاء مركز عُمان للفعاليات الرياضية.. وخطط لاستضافة أحداث دولية حتى 2030
+-  Tom Jensen: Dronningen fortalte mig, at hun havde pligt til at blive. Derfor er dette så historisk
+-  Tom Jensen: Dronningen fortalte mig, at hun havde pligt til at blive. Derfor er dette så historisk
+-  Honda CD 70 installment plans with zero markup January 2024
+-  গুগলে সবচেয়ে বেশি খোঁজা হয়েছে যে ১০ ক্লাবকে
+-  Leo Messi tiene su heredero del gol: el hat-trick de Mateo a puro talento que enloqueció a todos
+-  Cae con arma y auto robado
+-  José Agustín, con pronóstico reservado debido a su delicado estado de salud
+-  Gachagua to Ruto: Ignore outside noises and lead Kenyans
+-  WATCH — Aymen Saleem gives electric performance at her Mehendi, Lollywood stars cheer in audience
