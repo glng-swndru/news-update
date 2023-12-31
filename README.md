@@ -1,11 +1,11 @@
 # Latest News
--  Eliminacija dolara je počela
--  Wahlkreisbüro der Grünen mit Steinen beworfen
--  Wellinger in Tournee-Quali auf Rang zwei - Lanisek siegt
--  Experten aus Baden-Württemberg sollen Zwickaus Image aufmöbeln
--  Eisglatte B 174 bei Zschopau: Skoda fährt in Leitplanke
--  تعرف على سعر الذهب المعلن بموقع البورصة المصرية اليوم الأحد 31 ديسمبر
--  "عبور لاند" ترفع أسعار منتجاتها للمرة الثانية في أسبوعين
--  الأهلي عرض 4 لاعبين.. التطورات الأخيرة في صفقة عمر كمال
--  الأهلي يلبي طلب الطفل الفلسطيني "علي"
--  شرط مثير.. الأهلي ينتظر أموالاً طائلة من رحيل ديانج
+-  Crece tensión en espera de resultados electorales en RDC
+-  ‘극단적 선택’ 표현 쓴 언론사 자율규제 제재한다
+-  „StormBreaker“ – pačios naujausios amerikiečių bombos, kurios „visiškai pakeis žaidimo taisykles“. Jau netrukus atkeliaus ir į Europą (Video)
+-  Panašu, kad greitai išpopuliarėję NFT šiemet žlugo – kas nutiko?
+-  [ŽT] Rusija kaltina Čekiją. Kas nutiko
+-  Nauja pasaulio tvarka pagaminta Kinijoje. Diktatūros vienijasi
+-  Vatandaşların kazada yaralanan kardeşleri hayatta tutma çabası yeterli olmadı
+-  Aksaray şehir merkezinde araçlar MPTS ile denetleniyor
+-  Karaman'da "Şehitleri Anma ve Teröre Lanet" yürüyüşü düzenlendi
+-  'Khúc dạo đầu của mùa xuân' qua Sách Tết 2024
