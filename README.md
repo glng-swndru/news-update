@@ -1,11 +1,51 @@
 # Latest News
--  Wpadł do sklepu po alkohol, rzucił się na ochroniarza
--  Eskişehir'de uyuşturucu operasyonu: 3 şüpheli tutuklandı
--  Silvester: Erste Böllerattacken in Neukölln und Pankow, ein Verletzter, Festnahmen
--  Yeni yılda hayatımızda neler değişecek?
--  Nam Em hé lộ góc nhà chồng sắp cưới, tiết lộ luôn tính cách thật sự của người yêu
--  Investigation into Balkumari incident underway: MoHA
--  Tamu Lhosar being observed today
--  Man City ends historic year on high and just behind EPL leaders. It gets worse for Man U
--  Eilmeldung: Kanzler Scholz reist in Hochwassergebiete in Niedersachsen
--  Điều tra nguyên nhân khiến 1 nam sinh tử vong dưới hồ Bảy Mẫu, khi bị đuổi đánh
+-  Students: ఈ ఏడాది అత్యధిక ఆత్మహత్యలు చేసుకుంది ఎక్కడంటే...
+-  Former CM: మండిపడ్డ మాజీసీఎం కుమారస్వామి.. సిద్దరామయ్యది సంకుచిత స్వభావం
+-  Marin om festbilderna: Såg för sexig ut
+-  NAŠI PREDLOZI: "Tip" - tiket za nedelju
+-  Bagok kırsalında operasyon: Piling Mardin ve Demhat Amad ölüdürüldü
+-  لهذا السبب يضم الرضيع يديه.. متى يكون مؤشر خطر؟
+-  عاجل.. رابط التسجيل في العنوان الوطني للأفراد عبر منصة سبل 1445
+-  أسعار العملات في السعودية اليوم الأحد 31 ديسمبر.. اليورو يسجل 4.17 ريال
+-  روسيا تكشف مصير أكثر من 200 مقاتل أوكراني أسير
+-  Якушев выразил соболезнования в связи с обстрелом Белгорода
+-  Paula Abdul accuses former American Idol producer Nigel Lythgoe of sexual assault
+-  Kakvo nas vreme očekuje u novogodišnjoj noći?
+-  بدء العد التنازلي للاحتفال بليلة رأس السنة الجديدة
+-  22 जनवरी को रामलला को लगाया जाएगा बनारस के पान का भोग
+-  Mavericks, Doncic'in 39 sayısıyla galip
+-  '51kg' 서현, 화보 촬영 중에도 식사는 든든하게…"1차로 이렇게 먹어" [마데핫리뷰]
+-  박지수 22점·16R·8AS·3블록, BNK 진안에게 판정승, 허예은 14점·8R·7AS, KB 단독선두로 2023년 마감
+-  '런닝맨' BTS 뷔·유승호→신예은, 역대급 게스트 총출동
+-  De Lezersfoto - Nat
+-  अमे​रिका में प्लान हो गया तैयार, भारत में गोल्ड जाएगा 74 हजार के पार!
+-  Tuyên Quang khánh thành Nhà máy thủy điện có vốn trên 1.490 tỷ đồng
+-  Kalp krizinin gizli dostu gıdalar. Tadına aldanmayın
+-  NOVA DRAMA U CRVENOM MORU: Huti napali komercijalni brod, ratna mornarica SAD oborila dve rakete
+-  Šta se zapravo dešava u telu kada imamo povišenu temperaturu
+-  Dončić i Egzum prejaki za Voriorse
+-  وزيرة الثقافة تشهد الحفل الختامي لكسارة البندقاليوم الأحد، 31 ديسمبر 2023 08:40 صـ منذ 44 دقيقة
+-  قبل الكريسماس .. القبض علي تجار مخدرات بحوزتهم 513 لفافة هيروين و4...اليوم الأحد، 31 ديسمبر 2023 08:09 صـ منذ ساعة 15 دقيقة
+-  Lavrov: meer dan tweehonderd Oekraïners veroordeeld in Rusland
+-  محافظ الغربية يفاجئ مخابز طنطا للوقوف على جودة رغيف الخبزاليوم الأحد، 31 ديسمبر 2023 08:46 صـ منذ 37 دقيقة
+-  وزير التموين ... الكثير من الانجازات تحققت في عهد السيد الرئيس عبد...اليوم الأحد، 31 ديسمبر 2023 08:46 صـ منذ 37 دقيقة
+-  أسعار اللحوم الحمراء فى الاسواق اليوم الاحداليوم الأحد، 31 ديسمبر 2023 09:21 صـ منذ 2 دقيقتان
+-  أشرف صبحي يتفقد المستشفي الميداني المقامة علي هامش ماراثون زايد الخيري بالتعاون...اليوم الأحد، 31 ديسمبر 2023 08:47 صـ منذ 36 دقيقة
+-  لاہور کے حلقہ این اے 122 سے عمران خان کے کاغذات نامزدگی مسترد ہونے کی وجہ غریدہ فاروقی سامنے لے آئیں
+-  الزعيم الكوري الشمالي يتعهد ببناء قدرات نووية العام المقبل
+-  Δεν αποκλείεται βροχή παραμονή της Πρωτοχρονιάς - Η πρόγνωση μέχρι την Τετάρτη
+-  맨시티에서 버림받은 줄 알았는데… 알고 보니 첼시의 ‘NEW’ 에이스
+-  Kerani rugi lebih RM1 juta ditipu ‘pegawai polis’
+-  इसाई पादरियों पर इस देश में क्यों हो रहा जुल्म? एक चुनाव की मांग पर दे रहे उम्रकैद
+-  Bakan Güler'den yeni yıl mesajı!
+-  İzmir'de 2 genç kızın kaldırımdaki ağacı tekmelediler
+-  Türk diplomat Osman Köse'nin faili terörist öldürüldü
+-  Araç takip sistemi zorunluluğu 1 Ocak'ta başlıyor!
+-  Bursa barajları, 2014 yılından sonra en iyi su seviyesine ulaştı
+-  Emine Erdoğan'dan yeni yıl mesajı!
+-  Kovid’den sonra yeni bir salgın daha geliyor
+-  Должны отдыхать все: стоит ли отпускать ребенка отмечать Новый год со сверстниками
+-  Hỏa hoạn thiêu rụi khoảng 285 ki ốt tại một khu chợ đồ cũ ở An Giang
+-  Công an TP.HCM triệt phá đường dây mại dâm có diễn viên, hoa hậu giá 50 triệu đồng/lần
+-  Thanh tra Bộ Tư pháp chuyển công an điều tra vụ một tài sản bán đấu giá 2 lần
+-  Was sagen die Skisprung-Funktionäre zur Tournee für Frauen?
