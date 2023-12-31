@@ -1,11 +1,51 @@
 # Latest News
--  آلاف الإسرائيليين يتظاهرون مطالبين بإقالة نتنياهو وإعادة الأسرى
--  تعرّض سفينة حاويات لهجوم صاروخي بالبحر الأحمر
--  SM City Clark capped the year with annual Sky Line Fireworks Festival
--  गाजा में इजरायली हवाई हमले में हमास अल-कासिम ब्रिगेड का कमांडर ढेर
--  2023: Most Traumatic Year For Nigerians– Stakeholders
--  양미라, '핫'한 근황…핑크 수영복? 몸매 여전하네
--  Com fim dramático, Cowboys vencem Lions e mantêm sequência invicta em casa na NFL
--  CM Siddaramaiah: Yatnal can submit proof on BJP govt’s graft during Covid
--  นายแพทย์ใหญ่ รพ.ตำรวจ แจกอมยิ้ม และการ์ดปีใหม่ ส่งความสุขให้ผู้ป่วย
--  Elinde altını olanlar dikkat! 2024'de... 31 aralık 2023 altın fiyatları...
+-  Eurostar cancels trains due to flooding, stranding hundreds of travelers in Paris and London
+-  มอบสิ่งของบำรุงขวัญ เจ้าหน้าที่จุดตรวจบูรณาการฯ
+-  Yön uutiskooste | Orpo: Suomi on vaarallisesti velkaantunut maa, Venäjä: Belgorodin iskuissa kuollut yli 20, Pohjois-Korean Kim ei aio enää tavoitella yhdistymistä Etelä-Korean kanssa
+-  Áo dài cưới 2023: Tập trung vào thiết kế truyền thống, có cô dâu đạt "kỷ lục" thay tới 4 bộ khác nhau
+-  Cách nhận biết các phần mềm giả mạo
+-  Gempa M 5 Guncang Pangandaran, BMKG: Tidak Berpotensi Tsunami
+-  Россиянка Калинская обыграла американку Перу в первом круге турнира в Брисбене
+-  Russia has jailed more than 200 captured Ukrainian fighters so far – Lavrov
+-  จับพรานลอบล่าสัตว์ป่าในเขตรักษาพันธุ์สัตว์
+-  Pesan Epidemiolog untuk Cegah Penularan Penyakit Saat Libur Akhir Tahun
+-  نبيه برّي.. آخر الحواريّين
+-  Bầu Đức bất ngờ muốn bán sạch vốn chuỗi 'heo ăn chuối' BAPI
+-  Năm 2023 giới trẻ bắt trend rần rần thế nào?
+-  Қашқадарёда светофорда тўхтаб турган Nexia ёниб кетди.
+-  Украина махсус хизматлари Белгороддаги портлашларни «Россия ҳаво ҳужумидан мудофаа тизимлари иши натижаси» деб атади.
+-  MAXPRODUCT - беш йиллик етакчилик ва тараққиёт сари.
+-  बागलुङका दुर्गम गाउँमा प्रसारण लाइन विस्तार, एक महिनाभित्र बत्ती बाल्ने गरी काम हुँदै
+-  Вратарь сборной Казахстана вошел в топ-5 самых дорогих голкиперов Центральной Азии
+-  Calls for greater support to prevent loneliness and isolation amongst older people in Wales
+-  히밥, 몸무게 49kg 공개…'소식좌' 이연희 "사람 아닌 것 같아요"
+-  Силы ПВО России сбили украинский БПЛА над Курской областью
+-  On a testé pour vous les nouveaux chemins entre Avermes et Moulins
+-  El reto de CIEM para 2024: que las empresas extremeñas se sitúen en el centro de las políticas públicas
+-  Contrabalance
+-  lsquo;진입로 갈등rsquo; 보물산자연휴양림-마을주민hellip; 15년만에 극적 lsquo;화해rsquo;
+-  quot;국민 70% 찬성하는 '김건희 특검법'이 악법? 기가막힌다quot;
+-  [영상] 현 전력산업 구조로는 에너지 전환 불가능하다
+-  완주군의회 오인석 사무국장 퇴임hellip;31년간 공직생활 마무리
+-  전주시, 허병길 전북현대모터스FC 대표이사에 감사패 수여
+-  Рогов ответил на заявление Подоляка о выдвижении России ультиматума
+-  Ind Vs Sa 2nd Test: शादी करके अफ्रीका पहुंचे इस प्लेयर को खिलाएंगे रोहित शर्मा, प्रैक्टिस में दिया ‘गुरुमंत्र’
+-  ৩৭ বছরের ক্রিকেট ইতিহাসে আগে কখনও এমনটি ঘটেনি বাংলাদেশের!
+-  La rétro de l’année 2023 dans les Hautes-Alpes. L'incroyable mois de décembre de Cyprien Sarrazin, Nils Allègre et Flora Dolci en Coupe du monde
+-  DEBATT: ”Höj ambitionerna för att säkra Sveriges vattenförsörjning och avloppshantering.”
+-  Football - Rugby. SOC rugby, Chambéry SF... Le Chambéry Savoie Stadium est-il un porte bonheur ?
+-  Ski de fond - Tour de ski. Covid, doublé historique, premier leader... La folle journée de Lucas Chanavat et Jules Chappaz à Toblach
+-  Rugby. Coupe du monde, déficit, infrastructures... Florian Grill fait le tour des dossiers chauds de la Fédération française de rugby
+-  En images. Chaque année, crèche géante et guirlandes illuminent la maison d'un couple d’Ardéchois
+-  Champion de l'année (1er) - Football. Elu champion de l'année, Olivier Giroud de retour au GF38 ? « Il ne faut jamais dire jamais… »
+-  En images. Dans les pas du phénomène littéraire de 2023 : Cédric Sapin-Defour, l'homme aux 260 000 livres vendus
+-  Champion de l'année (1er) - Football. Olivier Giroud, élu champion de l'année du Dauphiné Libéré : « Je n’aurais jamais pu imaginer cette carrière »
+-  Laws banning semi-automatic weapons and library censorship to take effect in Illinois
+-  Ancora un gol subito nel finale: il Toro crolla (quasi) sempre nei secondi tempi
+-  Лавров: Россия фиксирует зверства Киева и вне периода спецоперации
+-  Kia Poetri Bicara Lagi Soal Kedekatan dengan Virgoun
+-  В Сирии две базы США на месторождении газа подверглись ракетному обстрелу
+-  স্বতন্ত্র প্রার্থীর ৫ কর্মীকে মারপিট, মোটরসাইকেল ভাঙচুর
+-  لودريان وهوكشتاين في بيروت.. سباق بين التصعيد والهدوء وضغط لانتخاب رئيس
+-  Χειμερινές εκπτώσεις 2024: Πότε κάνουν πρεμιέρα - Πόσο θα διαρκέσουν
+-  ‘There will be blasts’: Mumbai Police received bomb threat call ahead of New Year’s Eve celebrations
