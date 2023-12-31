@@ -1,51 +1,11 @@
 # Latest News
--  أهم 10 توقعات اقتصادية لعام 2024
--  بندقية صينية بيد قناصي القسام.. هذه مواصفاتها
--  Bakan Güler: Terör örgütü bitme noktasında
--  Bakan Yerlikaya: Göz açtırmadan mücadelemize devam ediyoruz
--  Injı kimdir? Inji'nin gerçek adı ne?
--  Taksim'de yeni yıla saatler kala yoğunluk yaşanıyor
--  Eskişehir'de herkes eğlenirken, onlar ekmek derdinde
--  Restoranlarda fiyat listesi zorunluluğu: İşletmeler tabelaları hazırladı
--  Hakkari'de halk sokaklara döküldü
--  Danimarka'da 52 yıldır tahta bulunan Kraliçe Margrethe II tahttı bırakıyor
--  TIR sürücüleri yeni yıla yollarda girdi
--  Cumhurbaşkanı Erdoğan'dan Mehmetçiğe yeni yıl tebriği!
--  İstanbul'da devriye gezen atlı polisler büyük ilgi gördü
--  Kamu sosyal tesis 2024 ücretleri ne kadar?
--  Murió la actriz Ana Ofelia Murguía a los 90 años
--  Fingen ser policías y roban tráiler con 17 toneladas de huevo
--  Lo sorprenden robando un auto y amenaza al dueño
--  নতুন বছরকে বরণ করে নিল ঢাকাবাসী
--  Mustafa Taş kimdir, kaç yaşında? "Şarkılar Bizi Söyler" yılbaşı özel bölüme konuk oldu!
--  Cumhurbaşkanı Erdoğan'dan Mehmetçiğe yeni yıl mesajı
--  В БДИПЧ ОБСЕ заявили, что организации известно об атаке на Белгород
--  Bills pass rusher Von Miller inactive against Patriots
--  המניה המתרסקת בישראל נחשפת: מי איבדה 97.66% מערכה ב-2023?
--  הוט או YES? זו החברה הכי טובה בישראל לפי דו"ח פניות הציבור
--  הרכבת הקלה בבשורת ענק: מי יפעילו את הקו הכחול?
--  ינון מגל מחזק את סטרוק: "באיזה סרט נמצא קצין בכיר בצה"ל?"
--  התחדשות עירונית בקריית אונו: האם זו העיר הממוגנת במדינה?
--  תל אביב עושה מהפכה: הסוף לזיהום בנחל הירקון?
--  שנת הבלהות של חנן מור: המנייה התרסקה ב-82.19%
--  סוף שנת המס כבר כאן - וזה יכול להיות שווה לכם כסף
--  מרגש: זוהי היוזמה החדשה עבור עיוורים ולקויי ראייה
--  יעל שלביה תרגיז את ה-BDS? זה הקמפיין שבו היא מככבת
--  ليبيا تشارك في الاجتماع الـ (43) للمجلس الأعلى لمجلس الخدمات المالية الإسلامية بمدينة جدة بالسعودية
--  සමුපකාරයේ සාංඝික දේපළ බේරා ගැනීමට සටන් වදින මාලිමාවේ අලුත් අධ්‍යක්ෂකලා….
--  Kameron: Iran ima udeo u odgovornosti za sprečavanje napada Huta
--  Jaramaz za B92.net: Da sledeće godine sa Partizanom osvojim sve trofeje
--  ¿Te sientes con suerte? Puedes participar en el último sorteo y ganar 140 mdp
--  हमास के आतंक का नया चैप्टर, इजरायली सेना पर करेगा ‘महामारी बम’ से हमला
--  "مدني الرياض" يحرر لسان طفلة علق في قطعة معدنية
--  في جازان وعسير .. الإطاحة بمروجي السموم ومخالفي أمن الحدود
--  توقيع برنامج إنشاء مركز عُمان للفعاليات الرياضية.. وخطط لاستضافة أحداث دولية حتى 2030
--  Tom Jensen: Dronningen fortalte mig, at hun havde pligt til at blive. Derfor er dette så historisk
--  Tom Jensen: Dronningen fortalte mig, at hun havde pligt til at blive. Derfor er dette så historisk
--  Honda CD 70 installment plans with zero markup January 2024
--  গুগলে সবচেয়ে বেশি খোঁজা হয়েছে যে ১০ ক্লাবকে
--  Leo Messi tiene su heredero del gol: el hat-trick de Mateo a puro talento que enloqueció a todos
--  Cae con arma y auto robado
--  José Agustín, con pronóstico reservado debido a su delicado estado de salud
--  Gachagua to Ruto: Ignore outside noises and lead Kenyans
--  WATCH — Aymen Saleem gives electric performance at her Mehendi, Lollywood stars cheer in audience
+-  Danijela Trbović o odlasku u mirovinu: ‘Pohabala sam se i izraubala’
+-  Hier wird das neue Jahr mit KI begrüßt
+-  Danska kraljica u novogodišnjem govoru iznenada objavila da odlazi s prijestolja
+-  Hannover: Häftlinge wünschen sich Sicherheit für ihre Familien
+-  ¡Con 52 años en el poder! La reina Margarita II de Dinamarca notifica su renuncia al trono
+-  Troje uhapšenihu Njemačkoj, planirali su napad autobombom
+-  Conor McGregor najavio povratak i veliki obračun
+-  Dalaj Lama: Mir u svijetu samo ako prvo pronađemo mir u sebi
+-  Calciomercato Juve, l’indizio social è chiaro: ha iniziato a seguire quei due bianconeri – FOTO
+-  A história da rivalidade mais quente da NFL no momento e o que você precisa ver pela ESPN no Star+
