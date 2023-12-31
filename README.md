@@ -1,11 +1,11 @@
 # Latest News
--  2023'te kamu hastanelerinde 520 bin 723 bebek doğdu
--  104 yaşındaki 'Cumhuriyet Anne' 2023'ün son günü hayatını kaybetti
--  Susurluk'ta kaybolan Nail Ceylan'ı arama çalışmaları sürüyor
--  Sergen Yalçın ters köşe yaptı
--  Geçici ithal edilen kara taşıtlarına ilişkin düzenleme yapıldı: 4 yıl kalabilecek
--  Panathinaikos'un maçını yayınlayacak kanal belli oldu
--  Brezilya'dan Aboubakar için resmi teklif
--  Galatasaray'da flaş Icardi gelişmesi! Premier Lig'den 2 alıcı var
--  Hayvanları koruma derneğinde horoz dövüşü yaptırıyorlar!
--  İsrail'in Gazze'deki saldırısında önemli kayıplar var
+-  Örgelisound, atemberaubende Stimme und Après-Ski-Hits in Grüsch
+-  Hannu Jortikasta puuhattiin Leijonien päävalmentajaa 20 vuotta sitten - kiekkoliitto teki kohuvalinnan
+-  Fernando Alonso muisteli uransa suurta kohokohtaa - ja nyt ei puhuta mestaruuksista
+-  António Costa resalta las ayudas económicas de su Gobierno en el cierre de 2023
+-  Netanyahu agradece a EU por nueva venta de armas
+-  Develan estatua de Shakira en Barranquilla
+-  Recibirá El Chamizal inversión de 19.5 mdp
+-  סוללות – הדור הבא
+-  מגשש במבנה, מאתר מחבל ומסתער עליו: תיעוד מפעילות כלבי עוקץ בג'באלייה
+-  "קיימת סכנה": משפטנים בכירים בקריאה לכנסת - לאפשר את דחיית מועד פרסום פסק דין הסבירות
