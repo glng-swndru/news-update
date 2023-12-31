@@ -1,11 +1,11 @@
 # Latest News
--  ग्लोबल आइएमई ब्यालेन्स्ड फण्ड १ को न्याभ बढ्यो
--  Untypischer Goalgetter, schwere Tschechen - das musst du zum Final wissen
--  Fenerbahçe'de stoper hareketliliği: Madrid mesaisi
--  Korea to expand baby bonuses, housing welfare to fight world's lowest fertility rate
--  Listed firms adopt more shareholder-friendly practices as activist funds raise pressure
--  Merih Demiral Suudi Arabistan'dan ayrılıyor! İşte yeni takımı...
--  Alev Alatlı:
--  Meteoroloji'den yılın son gününde 3 ile uyarı! İşte 31 Aralık Pazar hava durumu...
--  Anagani Satya Prasad: మున్సిపల్ కార్మికుల పట్ల జగన్ రెడ్డి నిర్లక్ష్య వైఖరి.. టీడీపీ ఎమ్మెల్యే ఆగ్రహం
--  Речиси сите жители имаат пристап до 5G мрежта, а најчесто ја користат за…
+-  Wpadł do sklepu po alkohol, rzucił się na ochroniarza
+-  Eskişehir'de uyuşturucu operasyonu: 3 şüpheli tutuklandı
+-  Silvester: Erste Böllerattacken in Neukölln und Pankow, ein Verletzter, Festnahmen
+-  Yeni yılda hayatımızda neler değişecek?
+-  Nam Em hé lộ góc nhà chồng sắp cưới, tiết lộ luôn tính cách thật sự của người yêu
+-  Investigation into Balkumari incident underway: MoHA
+-  Tamu Lhosar being observed today
+-  Man City ends historic year on high and just behind EPL leaders. It gets worse for Man U
+-  Eilmeldung: Kanzler Scholz reist in Hochwassergebiete in Niedersachsen
+-  Điều tra nguyên nhân khiến 1 nam sinh tử vong dưới hồ Bảy Mẫu, khi bị đuổi đánh
