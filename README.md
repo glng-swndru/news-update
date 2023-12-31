@@ -1,51 +1,51 @@
 # Latest News
--  Eurostar cancels trains due to flooding, stranding hundreds of travelers in Paris and London
--  มอบสิ่งของบำรุงขวัญ เจ้าหน้าที่จุดตรวจบูรณาการฯ
--  Yön uutiskooste | Orpo: Suomi on vaarallisesti velkaantunut maa, Venäjä: Belgorodin iskuissa kuollut yli 20, Pohjois-Korean Kim ei aio enää tavoitella yhdistymistä Etelä-Korean kanssa
--  Áo dài cưới 2023: Tập trung vào thiết kế truyền thống, có cô dâu đạt "kỷ lục" thay tới 4 bộ khác nhau
--  Cách nhận biết các phần mềm giả mạo
--  Gempa M 5 Guncang Pangandaran, BMKG: Tidak Berpotensi Tsunami
--  Россиянка Калинская обыграла американку Перу в первом круге турнира в Брисбене
--  Russia has jailed more than 200 captured Ukrainian fighters so far – Lavrov
--  จับพรานลอบล่าสัตว์ป่าในเขตรักษาพันธุ์สัตว์
--  Pesan Epidemiolog untuk Cegah Penularan Penyakit Saat Libur Akhir Tahun
--  نبيه برّي.. آخر الحواريّين
--  Bầu Đức bất ngờ muốn bán sạch vốn chuỗi 'heo ăn chuối' BAPI
--  Năm 2023 giới trẻ bắt trend rần rần thế nào?
--  Қашқадарёда светофорда тўхтаб турган Nexia ёниб кетди.
--  Украина махсус хизматлари Белгороддаги портлашларни «Россия ҳаво ҳужумидан мудофаа тизимлари иши натижаси» деб атади.
--  MAXPRODUCT - беш йиллик етакчилик ва тараққиёт сари.
--  बागलुङका दुर्गम गाउँमा प्रसारण लाइन विस्तार, एक महिनाभित्र बत्ती बाल्ने गरी काम हुँदै
--  Вратарь сборной Казахстана вошел в топ-5 самых дорогих голкиперов Центральной Азии
--  Calls for greater support to prevent loneliness and isolation amongst older people in Wales
--  히밥, 몸무게 49kg 공개…'소식좌' 이연희 "사람 아닌 것 같아요"
--  Силы ПВО России сбили украинский БПЛА над Курской областью
--  On a testé pour vous les nouveaux chemins entre Avermes et Moulins
--  El reto de CIEM para 2024: que las empresas extremeñas se sitúen en el centro de las políticas públicas
--  Contrabalance
--  lsquo;진입로 갈등rsquo; 보물산자연휴양림-마을주민hellip; 15년만에 극적 lsquo;화해rsquo;
--  quot;국민 70% 찬성하는 '김건희 특검법'이 악법? 기가막힌다quot;
--  [영상] 현 전력산업 구조로는 에너지 전환 불가능하다
--  완주군의회 오인석 사무국장 퇴임hellip;31년간 공직생활 마무리
--  전주시, 허병길 전북현대모터스FC 대표이사에 감사패 수여
--  Рогов ответил на заявление Подоляка о выдвижении России ультиматума
--  Ind Vs Sa 2nd Test: शादी करके अफ्रीका पहुंचे इस प्लेयर को खिलाएंगे रोहित शर्मा, प्रैक्टिस में दिया ‘गुरुमंत्र’
--  ৩৭ বছরের ক্রিকেট ইতিহাসে আগে কখনও এমনটি ঘটেনি বাংলাদেশের!
--  La rétro de l’année 2023 dans les Hautes-Alpes. L'incroyable mois de décembre de Cyprien Sarrazin, Nils Allègre et Flora Dolci en Coupe du monde
--  DEBATT: ”Höj ambitionerna för att säkra Sveriges vattenförsörjning och avloppshantering.”
--  Football - Rugby. SOC rugby, Chambéry SF... Le Chambéry Savoie Stadium est-il un porte bonheur ?
--  Ski de fond - Tour de ski. Covid, doublé historique, premier leader... La folle journée de Lucas Chanavat et Jules Chappaz à Toblach
--  Rugby. Coupe du monde, déficit, infrastructures... Florian Grill fait le tour des dossiers chauds de la Fédération française de rugby
--  En images. Chaque année, crèche géante et guirlandes illuminent la maison d'un couple d’Ardéchois
--  Champion de l'année (1er) - Football. Elu champion de l'année, Olivier Giroud de retour au GF38 ? « Il ne faut jamais dire jamais… »
--  En images. Dans les pas du phénomène littéraire de 2023 : Cédric Sapin-Defour, l'homme aux 260 000 livres vendus
--  Champion de l'année (1er) - Football. Olivier Giroud, élu champion de l'année du Dauphiné Libéré : « Je n’aurais jamais pu imaginer cette carrière »
--  Laws banning semi-automatic weapons and library censorship to take effect in Illinois
--  Ancora un gol subito nel finale: il Toro crolla (quasi) sempre nei secondi tempi
--  Лавров: Россия фиксирует зверства Киева и вне периода спецоперации
--  Kia Poetri Bicara Lagi Soal Kedekatan dengan Virgoun
--  В Сирии две базы США на месторождении газа подверглись ракетному обстрелу
--  স্বতন্ত্র প্রার্থীর ৫ কর্মীকে মারপিট, মোটরসাইকেল ভাঙচুর
--  لودريان وهوكشتاين في بيروت.. سباق بين التصعيد والهدوء وضغط لانتخاب رئيس
--  Χειμερινές εκπτώσεις 2024: Πότε κάνουν πρεμιέρα - Πόσο θα διαρκέσουν
--  ‘There will be blasts’: Mumbai Police received bomb threat call ahead of New Year’s Eve celebrations
+-  김정은 quot;남북, 동족 아닌 적대적 두 국가, 대한민국 것들과 통일 못해quot;
+-  ‘제야의 종’ 10만 명 인파 예상…서울 지하철 새벽 2시까지 연장 운행
+-  “기업 꾸리는 일, 나무 가꾸는 것과 닮았다”
+-  [NEW BOOK] 이번 주 신간 도서
+-  NÓNG! Arsenal xác định ký 4 tân binh, chốt luôn vụ Toney
+-  Man Utd choáng váng với Antony
+-  Luka Modric nói lời cay đắng khi sắp rời Real
+-  Ross Barkley 'kể tội' Chelsea
+-  Aston Villa chốt vụ 'lính đánh thuê' Barca ở Premier League
+-  'Cầu thủ hay nhất mùa này, Chelsea lại đòi bán'
+-  Tuyển Việt Nam gọi bổ sung 2 trò cưng của HLV Park Hang-seo
+-  Bayern Munich tính rút ruột tài năng trẻ của Nurnberg
+-  Champagne and Prosecco Deals: £10 Champagne and £4.75 Prosecco – Money Saving Expert Reveals Top New Year Supermarket Offers
+-  Samsung выпустит камеру со встроенным ИИ
+-  Nikola Jović ponovo dobio šansu i bio bez promašaja, a posebna je priča trojka preko Markanena
+-  ยูเครนยิงขีปนาวุธ โต้กลับรัสเซีย ตาย 21 เจ็บกว่า 100
+-  โฆษกรัฐบาล ห่วง "ฉลองปีใหม่2567" อย่าหลงลืมความปลอดภัย
+-  পারিবারিক সূত্রে জাতীয় পার্টিতে শেরীফা কাদের, আওয়ামী লীগে বিস্ময় হেনরী
+-  Columnist Theo Outshoven blikt terug: 'Opmerkelijk dat wereldproblematiek in dorp doordringt'
+-  Ərdoğandan Superkubok AÇIQLAMASI: "Buna icazə verə bilmərik"
+-  简牍中国｜马王堆汉简中窥见汉代墓葬礼仪
+-  国宝画重点丨1500年前的壁画“复活”，只为祝你新年快乐
+-  日发电量可满足近4000户家庭！世界海拔最高光伏项目正式并网发电
+-  手绘明白卡：雄安2023年丨政策“上新”不停步
+-  新华体育新年献词：以体育之火高燃生活激情
+-  一图读懂：雄安2023年丨重大活动聚人气
+-  “엄마 없는 것도 서러운데”…원룸에 혼자 있던 5세 아이, 화재로 참변
+-  آخر تطورات العملية العسكرية الروسية في أوكرانيا /31.12.2023/
+-  매디슨-쿨루셉스키 모두 못 나온다...다시 선발 기회를 잡게 된 로 셀소
+-  למרות ההפסד לב"ש: באשדוד מתכוונים לפעול בשיקול דעת בינואר
+-  Over 1,000 Burundian soldiers deployed in eastern DRC: report
+-  सुनको मूल्यमा २ सय घट्दा तोलाको १ लाख २० हजार ५ सय, चाँदी १४५५ मा स्थिर
+-  Seck, senza Coppa d’Africa cessione meno complicata: un assist per il Toro
+-  كفى الحرب العبثية، لن تحقق الانتصار
+-  New Zealand beat Bangladesh in final T20 to level series 1-1
+-  La presidencia de la UE también ha sido una baza de Sánchez contra Feijóo: "No tiene proyecto"
+-  La presidencia de la UE también ha sido una baza de Sánchez contra Feijóo: "No tiene proyecto"
+-  The New York Times -artikkeli | Masennuslääkkeet vievät monilta seksuaalisuuden – vaikutus voi jäädä pysyväksi
+-  Erste Schätzungen: coconala öffnet die Bücher zum abgelaufenen Quartal
+-  Erste Schätzungen: coconala öffnet die Bücher zum abgelaufenen Quartal
+-  “품질·신뢰로 고객 눈높이 만족”
+-  Bursa'da bugün hava nasıl olacak?
+-  Стихи «Зенита», юмор легенд «Спартака», хит «Динамо» и перевоплощения «Сочи»: клубы РПЛ поздравили фанатов с Новым годом
+-  Gest extrem, în jud. Mureș: s-a aruncat în râu, supărat că preotul nu i-a intrat în casă
+-  Meras Ramūnas Godeliauskas: „Nesijaučiu neeilinis“
+-  प्रविधि र ब्राण्ड, जो सन् २०२३ मा बिदा भए
+-  İstanbul'da yılbaşı tedbirleri: Bazı yollar trafiğe kapatılacak
+-  Yapay zeka para için yalan söyledi
+-  Küçük yüreklerden ‘Umut Kumbarası'
+-  31 Mart sloganı hazır: Gerçek belediyecilik AK Parti'dir
