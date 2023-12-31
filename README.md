@@ -1,11 +1,51 @@
 # Latest News
--  Bericht: Gaza ist eine Landschaft aus zertrümmertem Beton
--  Nochevieja: qué significa, cuál es su origen y por qué se celebra cada 31 de diciembre
--  Рок-группа «Ария» провела в Москве предновогодний концерт
--  S.Korean refiners’ race for EV lubricants heats up
--  Detroit Pistons win to end record-equalling losing record
--  Спикер ВСУ Игнат: Россия стремится поразить на Украине стратегические цели
--  Шииты атаковали две военные базы США на северо-востоке Сирии
--  Oficial: Ejecutada sí es la mujer desaparecida en Delicias
--  Falta de camiones, un viacrucis para usuarios
--  Alertan que expropiación de planta generará incertidumbre
+-  Президент совғалари болаларни хурсанд қилди
+-  عاجل.. التقديم على حركة النقل الخارجي لوظائف التعليم 1445 اليوم (تفاصيل)
+-  Estados Unidos violencia: el país norteamericano cierra el año con 650 tiroteos en 2023
+-  "Cậu ấy không đáp ứng được khoản phí khổng lồ M.U đã trả"
+-  LHC orders recovery of Usman Dar’s brother
+-  '어시스트 적립+ 골대 강타 + 오프사이드 골 취소' 황희찬, 2023년 마지막 경기에서도 울버햄튼 에이스임을 입증...팀은 3-0 대승
+-  В "Роснефти" выразили соболезнования из-за смерти публициста Соколова
+-  BYD has obtained conditional testing license for level 3 autonomous driving on high-speed roads
+-  BTS 뷔·유승호→덱스까지, 역대급 게스트 총출동 '2023 런닝맨 게스트 어워즈'
+-  โพล เผยปี 2566 คนไทย “เหนื่อยหน่าย”กับอะไร มากสุด
+-  Year-end (Dec 31) weather forecast: Showery routine to continue, fairly heavy showers above 75mm expected in some areas
+-  How to Watch NZ vs BAN 3rd T20I 2023 Live Streaming Online: न्यूजीलैंड बनाम बांग्लादेश क्रिकेट मैच का प्रसारण विवरण आईएसटी में समय के साथ प्राप्त करें, यहां देखें जानकारी
+-  Startup khởi nghiệp với mặt hàng "khó nói": Ra mắt 1 năm bán hơn 1 triệu sản phẩm, doanh thu tăng gấp 8 lần
+-  前 삼성 '수크라이' 수아레즈, 볼티모어와 마이너리그 계약
+-  आईएएस सुधांश पंत होंगे राजस्थान के नए मुख्य सचिव !
+-  Derek Hough is filled with "immense relief, gratitude and overwhelming joy" after his wife underwent successful surgery on her skull
+-  임윤아, 2023년도 완벽했다…연기·음악·시상식·MC 싹쓸이 활약
+-  FA 시장 미쳤다! 올 시즌 1경기 출전이 전부인데…NYY 출신 몬타스 CIN과 1년 207억 계약
+-  Nadma: Number of flood evacuees continues
+-  Liberia’s Electoral Commission Honours Prof Yakubu
+-  Top 5 VR igara za fitness
+-  Không chỉ vụ Noo Phước Thịnh, Đỗ Hiếu nói mất tiền tác quyền từ cả trăm show
+-  Nợ nước ngoài giảm dần, năm 2024 tập trung thu thuế trên nền tảng số
+-  Nhìn lại chính mình của năm vừa đi qua và cùng hướng đến mục tiêu phía trước
+-  „Евростар“ отново пуска влаковете си под Ламанша
+-  “BJP will take away voting rights from the people if it comes to power in 2024”: Akhilesh Yadav
+-  China calls Taiwan president frontrunner a destroyer of peace
+-  Mujer que había sido secuestrada llega al Hospital General
+-  বাংলা সাহিত্যের প্রাচীন নিদর্শন চর্যাপদ
+-  ৪৯ রানেই ৫ উইকেট নেই নিউজিল্যান্ডের
+-  Another day, another delay to first Vulcan Centaur launch
+-  Potential sat-bothering cannibal coronal mass ejection slams into Earth's atmo tonight
+-  North Korea readies third attempt at 'spy satellite' launch
+-  Boffins claim invention of rechargable, biodegradable, supercapacitor drug pump
+-  FAA stays grounded in reality as SpaceX preps for takeoff
+-  Ajang Malaysia Open Jadi Turnamen Pembuka Tahun 2024, Pertandingan Raja Bulutangkis dan Juara Dunia Jadi Laga yang Sangat Ditunggu
+-  베트남 총리, 농업의 녹색 생산 전환 강조
+-  Cameron Bancroft says a specialist opener should replace David Warner after Andrew McDonald hints at Cam Green's return
+-  BMT TŞ Belqoroda görə toplandı: "Dərhal dayandırılmalıdır"
+-  Phong cách sống không tiền mặt "cashless" thất sủng ở Hàn Quốc vì nhu cầu "thắt lưng buộc bụng"
+-  ब्रह्मा और सरस्वती पर की अभद्र टिप्पणी, RJD विधायक के बयान पर बिहार में बवाल
+-  Reliance Jio subscribes to keeping DTH licence fee
+-  Гендиректор «России сегодня» Киселёв назвал смерть Соколова невосполнимой утратой
+-  Korea's auto exports to US reach 1.17 mil. units in Jan.-Nov.: data
+-  S. Korea's economy forecast to grow 2% next year
+-  Netanyahu says Gaza-Egypt border zone should be under Israeli control
+-  서해 NLL 불법 중국어선 하루 100척 출몰… 코로나 이전 3배
+-  پنجاب میں موسم سرما کی تعطیلات 9 جنوری تک بڑھا دی گئیں
+-  Virgo Weekly Horoscope: विदेश यात्रा का बना रहा है योग, परिजनों से हो सकता है मनमुटाव, संभलकर चलें
+-  Trai dials telcos to ping cautionary message to 1.15 billion subscribers
