@@ -1,51 +1,11 @@
 # Latest News
--  القسام: استهدفنا أباتشي بصاروخ جنوب حي الزيتون
--  إرادة يطلق من مقره الرئيسي الصالون السياسي الأول - فيديو وصور
--  한혜진 "초2 딸, ♥기성용 닮아 승부욕 강해…축구공 뺏기고 숨 못 쉴 정도로 오열" [미우새]
--  Nadal volta a jogar 347 dias depois, mas perde nas duplas na Austrália
--  Mano define nome de novo auxiliar no Corinthians e mantém 'telefone ligado' nas férias por reforços
--  Por que goleiro sensação da Premier League tem apelido de Venom, rival do Homem-Aranha?
--  Xerife do Palmeiras revela como anulou Cristiano Ronaldo na Champions: 'Ficou bolado'
--  Manchester Unitedista lähtenyt hyökkääjä heitti suolaa joukkueen haavoihin tappion jälkeen
--  Pútín: „Gefumst aldrei upp“
--  KONYASPOR 2 KEZ KIZARDI
--  Maçı yeteri kadar istemedik!
--  Konyaspor Basketbol, 2023 yılını buruk kapattı
--  Ertuğrul Tekşen Yavru Kartal’a döndü
--  Yepyeni bir 1922 Konyaspor
--  Konya'daki 2 otomobilin çarpıştığı trafik kazasında 1 kişi öldü, 1 kişi yaralandı
--  الأولى على مستوى العالم.. 2024 بدأت رسميا في نيوزيلاندا
--  شروط وخطوات تمديد تأشيرة الزيارة العائلية في السعودية 1445
--  خطوات الاستعلام عن الدعم السكني باستخدام رقم الهوية
--  أخبار السعودية.. موعد صرف معاش الضمان الاجتماعي والتقديم على 126 وظيفة شاغرة بوزارة الدفاع
--  تنبيه مهم بخصوص صرف حساب المواطن للمقيم خارج المملكة للعلاج
--  حريق في شقة بعمارة سكنية.. و"مدني الرياض" يتحرك
--  [“너무 그립습니다” 이선균 ‘나의 아저씨’…넷플릭스 역주행 기현상
--  [민주, 尹대통령 주재 신년인사회 불참 검토…'김건희 특검' 거부권 방침 반발
--  Maagverkleining, tiny house en boer Geurt stopt met melken: dit zijn de 10 best gelezen interviews van 2023
--  Матвиенко заявила о сплочении россиян в 2023 году благодаря вызовам
--  Milli Piyango sorgulama! 2024 Yılbaşı özel çekilişi Milli Piyango sonuçları hızlı bilet sorgulama linki!
--  זעקת המילואימניקים והורי החיילים: "מגינים על המדינה, ולא יכולים לנסוע בשבת כדי להיפגש?"
--  אחרי הפרידה מברקו: אופירה אסייג חוגגת עם החברות
--  Bursa'da yılbaşı trafiği ulaşımı kilitledi
--  Ayvalık'tan Midilli Adası'na geçişlerde yılbaşı yoğunluğu yaşanıyor
--  Bakan Uraloğlu: Malatya'nın gelişimi ve büyümesi için çalışmalarımıza devam edeceğiz
--  חמישה שותפים ושותפות חדשים במשרד ארדינסט
--  Parité: le gouvernement détaille les sanctions pour les administrations récalcitrantes
--  Bakan Koca paylaştı: 2023'te 804 milyon muayene gerçekleştirildi
--  ہم بلوچستان میں نئے سال کی عوامی تقریبات کو ترک کر رہے ہیں، جان اچکزئی
--  Farma magaraca "Martinići" kao destinaciјa za medeni mјesec
--  Amerykański dziennik uzyskał poufne dokumenty. Pokazują przebieg operacji rosyjskich służb
--  Azerbaijan Army holds number of events on occasion of Day of Solidarity of World Azerbaijanis and New Year (PHOTO/VIDEO)
--  Piłkarz Lecha Poznań z powołaniem [OFICJALNIE]. Jego reprezentację czeka turniej mistrzowski
--  תשעה טיפים שייתנו לכם מוטיבציה להתחיל להתאמן
--  'China's 'reunification' with Taiwan inevitable': Xi Jinping's big claim during New Year's speech
--  Başakşehir, Adana Demirspor hazırlıklarını sürdürdü
--  Arjantin basını duyurdu! Mauro Icardi'ye Premier Lig'den 2 talip
--  ABD'li yönetmen Oliver Stone: Netanyahu tamamen delirdi
--  Nożownik z Legnicy w rękach policji. Ranił dwie osoby i uszkodził pięć samochodów
--  عمل النواب تناقش مشروع قانون "التنمية الاجتماعية"
--  الإحصاءات: 4.40% انخفاض أسعار المنتجين الصناعيين
--  Aston Villa eye double transfer as ‘scouting’ mission revealed
--  Tiếp viên trả lại hơn 60 triệu đồng khách bỏ quên trên tàu SE4
--  Hàn Quốc đáp trả cứng rắn với đe dọa tấn công hạt nhân từ Triều Tiên
+-  Jamie Carragher's nine-word New Year's Eve plea after young boxer stabbed in city centre
+-  Nieuwe directeur voor Omroep Gelderland
+-  خبيرة توضح لـRT عوامل ثبات سعر الجنيه المصري وعلاقته بالتبادل التجاري مع روسيا
+-  Vladimir Putin predniesol novoročný príhovor. Vyzdvihol vojakov bojujúcich na Ukrajine
+-  Pawlak leitet erstes Kölner Training - Trainersuche hält an
+-  Heizen, Strom, Parken: Was in Chemnitz 2024 teurer, preiswerter oder einfach nur anders wird
+-  Reederei Maersk setzt Fahrten im Roten Meer aus
+-  Etliche Einbrüche im Vogtland halten die Polizei zum Jahresende in Atem: Wo die Kriminellen überall zuschlugen
+-  لعل شہباز قلندر کے مزار سے سونا چوری کرنے کا ملزم ریمانڈ پر پولیس کے حوالے
+-  Viral Video: శాంటాక్లాజ్ వేషధారిని వెంటపడి తరిమిన మేక.. అతడు చేసిన చిన్న పొరపాటుతో చివరికి..
