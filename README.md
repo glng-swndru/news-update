@@ -1,51 +1,51 @@
 # Latest News
--  [北김정은 “남조선 전 영토 평정 대사변 준비”…한반도 긴장감 ‘최고조’
--  [“빠르면 2030년대, 여름철 북극해 얼음 모두 사라질수도”-신형철 극지연구소장 [인터뷰]
--  2024’te Türkiye için en önemli kırılma e-ihracatta olacak
--  הכי הרבה נרצחים בכל הזמנים, כפול מבשנה שעברה: השנה המדממת ביותר בתולדות החברה הערבית
--  Gujarat police register rape case against Cadila Pharma CMD after HC order
--  San Francisco 49ers players go wild as they watch the Eagles hand them the NFC's No 1 seed in the tunnel after Jason Kelce and Co suffered shock home loss to the 4-12 Cardinals
--  صلاح وإندو يستعدان لمغادرة ليفربول عقب مباراة نيوكاسل
--  Horse racing tips: Templegate’s NAP can score for a red-hot Nicky Henderson at Cheltenham on New Year’s Day
--  Andrade El Idolo verlässt AEW – MJF macht eine Pause – Keith Lee fällt verletzt aus – Serena Deeb wird bald zurückkehren – Erste Spiele für „AEW Dynamite #222“ und „AEW Collision #29“ angekündigt.
--  Congo's President Felix Tshisekedi is declared winner of election that opposition wants redone
--  ФІФА не планує запрошувати Барселону на Клубний чемпіонат світу-2025
--  Ucrania bombardea con HIMARS la ciudad de Donetsk
--  The 5 questions to ask yourself before leaving a relationship, according to an expert
--  Dumais scores winner, Celebrini adds two as Canada gets by Germany at world juniors
--  В Баку вспыхнул пожар в многоэтажном жилом доме
--  Terrifying moment NFL star Christian Holmes collapses to the ground with a concussion before he's carted off in Washington's game against San Francisco
--  New Year's Day stabbing: Three men knifed in Wolloomooloo after midnight
--  Bivši albanski premijer Berisha u kućnom pritvoru
--  Kırmızı etin içerisine ekleyin! Hem hızlı pişiyor hem de yumuşacık oluyor
--  Αστείες στιγμές και... ο γάμος της χρονιάς! Το newsit.gr αποχαιρετά το 2023
--  Die Beziehungen zwischen den USA und Israel zeigen angesichts des Krieges gegen die Hamas Anzeichen einer Anspannung
--  أخطاء صادمة.. خطوات مهمة لفحص وحدتك السكنية جيدا قبل استلامها
--  Tren Maya: Anuncian tres tarifas para usuarios locales, nacionales y extranjeros
--  SENAMHI informó que se presentarían lluvia los días 2 y 3 de enero: conozca en qué departamentos
--  Derrick Jones prédit le succès des Black Stars à la CAN 2023
--  Centro Oberhausen verkündet Hammer für 2024 – das gab es im Einkaufszentrum noch nie!
--  Ким Чен Ын заявил о росте ВВП КНДР
--  Dólar despide el 2023 en 16.97 pesos
--  رابطة الأندية المحترفة تعلن جدول مباريات كأس الرابطة
--  „Frühstücksfernsehen“-Star Alina Merkau wird ehrlich – unfassbar, was sie sich dann anhören muss
--  Silvester 2023: Einsatzkräfte in Berlin mit Pyrotechnik bombardiert – zahlreiche Festnahmen
--  وكيل صحة البحيرة يزور 10 مصابين من العاملين بالصحة عقب تعرضهم لحادث
--  مسؤولون أمريكيون: حاملة الطائرات "جيرالد فورد" ستغادر الشرق الأوسط خلال الأيام القادمة
--  طالب وأستاذ جامعي ينشران ورقة بحثية لحل المشكلات الهندسية المعقدة
--  إخوان الدم..أعداء الحرب.. ماذا فعل صراع الجنرالين بأسرتين سودانيتين؟
--  “Jaunais gads ukraiņiem ir ne tikai sveicienu, bet arī rīcības laiks,” norāda Zelenskis
--  Butch Goring ‘would rather s–t all over’ Paul Bissonnette in escalating feud
--  Al menos 10 hutíes mueren en un ataque militar estadounidense en el mar Rojo
--  Carrie Johnson surprises with bare baby bump photo
--  Biden celebra la Nochevieja y el Año Nuevo en las cálidas Islas Vírgenes
--  VESIĆ U NOVOGODIŠNjOJ NOĆI: Ministar sa zaposlenima na aerodromu i u JP “Putevi Srbije”
--  Cruzeiro tem shows retomados mesmo com homem desaparecido após cair no mar
--  Présidentielle : Bonne nouvelle pour Ousmane Sonko, le Conseil Constitutionnel interpellé
--  Las arañas de Minecraft son más aterradoras que nunca por este pequeño detalle
--  Kako se dočekuje Nova godina na trgovima i ulicama širom Srbije
--  Një fundvit ndryshe për Elia Zaharian, krah familjes së saj uron shqiptarët
--  Turkish Super Cup: Why was Galatasaray vs Fenerbahce postponed just over an hour after scheduled kick-off – with thousands of fans sent home?
--  Barueri é a 2ª melhor cidade do país para os negócios no comércio e serviços
--  MTC insta a la población a optar por el transporte turístico formal
--  CAN 2023 : Les « Lions » du Sénégal effectuent leur 1er entraînement à Diamniadio (photos)
+-  Vuelca familia chihuahuense en la Jiménez-Torreón y muere una mujer
+-  Die größten Hits aller Zeiten | NDR.de – Fernsehen
+-  Πρωτοχρονιά: Το συγκινητικό βίντεο της Αστυνομίας αφιερωμένο στους συναδέλφους τους που έφυγαν από τη ζωή
+-  4 Tote, 2 Verletzte nach Hausexplosion in Northfield Township am Samstag
+-  Greensboro officer was killed while confronting suspect in $83 beer theft at Sheetz, officials say
+-  Ravanelli: «Bonucci è in difficoltà, ma alla Roma troverebbe stimoli e darebbe questo»
+-  Romano tvrdi da u Manchester City stiže jedan od najvećih talenata Južne Amerike
+-  Doček na Korzu počeo u znaku kiše i dobre atmosfere!
+-  Папата с призив в новогодишната нощ
+-  La diva mexicana Silvia Pinal deja el hospital tras 10 días internada por influenza
+-  Hundebesitzer flüchten am Flughafen
+-  Seria o Hamas tão brutal quanto Israel?
+-  Siliņa gadumijas uzrunā ikvienam novēl nebaidīties spert izlēmīgus soļus un būt drosmīgiem
+-  Senior Israeli minister repeats call for Palestinians to leave Gaza
+-  All the walkouts and industrial action planned in January
+-  2024 Milli Piyango sonuçları açıklandı! Sıralı tam liste, amorti Milli Piyango bilet sorgulama ekranı
+-  İşte A Milli Takım'ın 2023 yılı karnesi!
+-  Dennis Hildeby mot NHL – efter Ilja Samsonovs magplask
+-  Al menos dos heridos en un ataque con cuchillo a las afueras de Jerusalén
+-  Umbau der Staatsmedien: Polens Präsident Duda wirft neuer Regierung unter Tusk Rechtsbruch vor
+-  Retrospectiva 2023: confira as notícias que marcaram o ano no Leste e Nordeste de MG
+-  Media: VS halen vliegdekschip op Middellandse Zee bij Gaza terug
+-  Carr throws for 2 TDs to help the Saints beat the Bucs 23-13 and tie NFC South standings
+-  Quebec City looks to Finland’s successful approach to ending homelessness
+-  Quebec City looks to Finland's successful approach to ending homelessness
+-  Quebec City looks to Finland's successful approach to ending homelessness
+-  Quebec City looks to Finland's successful approach to ending homelessness
+-  Quebec City looks to Finland's successful approach to ending homelessness
+-  Grote brand in Noord-Brabantse Boxtel, NL-alert verstuurd naar omwonenden
+-  Maine entzieht Trump den Wahlzettel und entfacht damit einen Rechtsstreit um seine Kandidatur
+-  “몇년째야?”…페이커보다 장기집권 중인 ‘이 남자’ 또 올해의 선수
+-  «Avslører» lønnen til Jürgen Klopp
+-  В России увеличили минимальные зарплаты
+-  Supercomputer predicts 2024’s biggest winners from Euro 2024 champions to Wimbledon and Premier League title
+-  Supercomputer predicts 2024’s biggest winners from Euro 2024 champions to Wimbledon and Premier League title
+-  신세계 센텀시티, 지역 백화점 최초 연 매출 2조원 넘겼다
+-  Serie A, dal 2012 Roma e Udinese le squadre che la Juventus ha battuto più volte in casa
+-  So erstellen Sie ein "Fügen Sie Ihre hinzu" Vorlage für Instagram
+-  Depremlerle yerle bir olmuştu! 2024’ün ilk bebeği Hatay’da doğdu
+-  Un couple mis en examen pour "barbarie", après la mort d'un homme qu'il hébergeait
+-  BetMGM Bonus Codes: Choice of 3 offers available all week
+-  Τέλος επιτηδεύματος: Ανατροπές από την απογραφή πληθυσμού - Ποιοι γλιτώνουν τον φόρο
+-  BRAT LEGENDARNOG FUDBALERA OTKRIO: "Ne oseća se dobro, svaki šok mogao bi da bude fatalan"
+-  Confirmaron el primer muerto por encefalitis equina en Argentina y hay 12 casos en el país
+-  Rainha Margrethe II da Dinamarca anuncia abdicação após 52 anos no trono
+-  Bakıda sexdə YANĞIN
+-  Agnès Firmin Le Bodo, soupçonnée de conflit d’intérêts avec Urgo, nie les faits
+-  Çfarë ndodhi? Arbana Osmani kalon natën e ndërrimit të viteve në spital
+-  Грција на нозе: По 12 дена е најдена Сара, по средношколката Анастасија се трагa
+-  Kocaeli'de hafif ticari araçla motosikletin çarpıştığı kazada 2 kişi ağır yaralandı
