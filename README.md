@@ -1,51 +1,51 @@
 # Latest News
--  Bundan sonra adı ATATÜRK kupası olsun
--  Hakkari'de 4,4 büyüklüğünde deprem
--  PIJAN ZASPAO U HODNIKU ZGRADE Komšinica morala da ga preskače da bi ušla u svoj stan: Evo koliku je kaznu dobio
--  Champagnekorkar kan ge svåra ögonskador
--  Haryana: गेस्ट टीचर्स पर लाठीचार्ज, शिक्षा मंत्री के आवास का करने जा रहे थे घेराव
--  Bùi Thị Xuân Hạnh đăng quang Hoa hậu Hoàn vũ Việt Nam 2023!
--  4 kiểu áo blazer lỗi mốt không nên sắm diện Tết
--  Quang Hải gia nhập hội "cuồng" vợ: Chăm Chu Thanh Huyền từng "chân tơ kẽ tóc" trước ngày ăn hỏi và đón dâu
--  Arsenal thua trận thứ 2 liên tiếp ở Premier League
--  Mở lòng đón nhận nhiều tin vui từ thế giới năm mới 2024
--  حسام موافي يحذر من مشاهدة أفلام الرعب.. لن تتوقع ما يحدث لجسمك
--  Năm Du lịch quốc gia Điện Biên khởi động với hội đua thuyền của người Thái
--  "جوًا أو بحرًا".. التايمز: بريطانيا تستعد لشن هجمات ضد الحوثيين
--  ایلون مسک پھر دنیا کے امیر ترین شخص بن گئے
--  Yeni yıla saatler kaldı! Taksim'de yılbaşı yoğunluğu
--  সিলেটে জাতীয় পার্টির নির্বাচনী সভায় অংশ নেওয়ায় বিএনপি নেতাকে বহিষ্কার
--  سینئر پی ٹی آئی رہنما لطیف کھوسہ کے بیٹے خرم لطیف کو گرفتار کرلیا گیا
--  Cómo recuperar una publicación eliminada en Facebook
--  Los motivos por los que Indiana Cubero, la hija de Nicole Neumann, prefiere vivir con su padre
--  Medico Juve derubato: picchiato anche il cane, la ricostruzione
--  L'Under 20 femminile nel Wevza a caccia di un posto agli Europei
--  بتوجيهات رئيس الدولة.. شخبوط بن نهيان يفتتح محطات للتحلية في رفح لضخ المياه إلى سكان غزة
--  مولانا فضل الرحمٰن کی گاڑی پر فائرنگ، مولانا فضل الرحمٰن کس حال میں ہیں؟ پولیس کا بیان آگیا
--  En République démocratique du Congo, le président Félix Tshisekedi largement réélu
--  Capodanno, Toti: "Per la Liguria il meglio deve ancora arrivare"
--  Jitħabbru ċ-ċelebrazzjonijiet liturġiċi tal-Arċisqof għal Jannar
--  A háborús agresszor Vlagyimir Putyin szerint 2024 a családok éve lesz Oroszországban
--  Felszentelés előtt egy nappal szétverték a dunavecsei Mária-szobor fejét
--  Silvester in Hamburg: Wo geböllert werden darf, wie der HVV fährt – der Überblick
--  Geldautomaten-Sprengungen: Warum Verbrecher lieber nicht in Hamburg zuschlagen
--  Lebuktattuk Kocsis Mátét, Böjte Csaba háborogni kezdett, Pinokkió pedig még soha nem volt ilyen sötét – Itt vannak 2023 legjobb Népszava-videói
--  Milli Piyango 400 TL kazanan numaralar hangileri? 2024 yılbaşı çekilişi son 1 rakamına göre 400 TL Amorti kazanan numaralar
--  Gümrük müşavirliği işlemlerinde gelecek yıla ilişkin asgari ücret tarifesi belli oldu
--  Tottenham, sahasında 3 golle güldü
--  Hakkari, 4.4 ile sallandı
--  Başkan Erdoğan'dan AK Parti Balıkesir İl Gençlik Kolları Başkanına taziye mesajı
--  Liverpool, genç oyuncusunu geri çağırdı
--  مقتل منقبين موريتانيين جراء قصف خارج الحدود الشمالية
--  قسنطينة: 16 فرقة في الطبعة ال19 للمهرجان الوطني لمسرح الطفل
--  قيادة الدرك الوطني تسطر مخططا خاصا لتأمين رأس السنة الميلادية الجديدة
--  رفض قرابة 64 ألف طن من السلع على مستوى الحدود في
--  تيبازة: حريق بوحدة تخزين مواد إنتاج الحليب ببورقيقة وعملية إخماده متواصلة
--  فلسطين: عدد الشهداء هذا العام يشكل أكبر حصيلة شهدتها فلسطين منذ نكبة 1948
--  Werra-Meißner: Jäger sehen Rotwild in Gefahr und setzen auf neue Landesregierung
--  Preocupa la posible apertura de importaciones de fruta fina en la Comarca Andina
--  Poznata lica u nedjeljnom điru: Dario i Mirela Srna na Silvestrovo svratili do Grada
--  Arranca la San Silvestre LPGC
--  Gazze'deki yıkıma 2. Dünya Savaşı benzetmesi
--  Son dakika! Hakkari'de korkutan deprem
--  Bakan Fidan'dan yeni yıl mesajı
+-  Ministro israelita defende regresso dos colonos a Gaza
+-  Papa propõe um balanço do Ano diferente da mentalidade mundana
+-  Israel-Palestine Conflict | Ramaphosa reaffirms calls for peace
+-  News24 | Congo President Tshisekedi re-elected after contested poll
+-  Declan Rice: Pozitif kalmamız gerekiyor
+-  Cumhurbaşkanı Erdoğan'dan Hüseyin Murat Uysal için başsağlığı mesajı
+-  AK Parti Balıkesir İl Gençlik Kolları Başkanı hayatını kaybetti
+-  Citypress | Six TikTok challenges that should be ditched in 2024
+-  Çanakkale'de "Narko Noel" operasyonu
+-  DIRECT. Voeux d'Emmanuel Macron: suivez le discours du président pour le Nouvel an
+-  RD Congo : Félix Tshisekedi réélu pour un second mandat
+-  Neujahresansprache: Dänische Königin Margrethe II. kündigt Abdankung an
+-  Gli azzurrini di Monica Cresta a Francoforte per il Wevza
+-  45 godina duga tradicija odigravanja Silvestarske utakmice u Dragonjskoj ulici
+-  לצד העמקת התמרון הקרקעי: בצה"ל נערכים לרענון הכוחות וישחררו לוחמי מילואים בימים הקרובים
+-  تغيير جديد.. اسعار الحديد في ليبيا بآخر يوم من العام 2023
+-  Fantasia Barrino Opens Up About Losing 'Everything' After Winning 'American Idol'
+-  Dänische Königin Margrethe II. dankt ab
+-  Balacera cerca a Plaza Norte de Independencia: Dos muertos y dos heridos en un ataque por sicarios
+-  فضل الرحمان کو نشانہ بنانے کا مقصد انتخابی عمل کو متاثر کرنے کی سازش ہے: شہبازشریف
+-  Gervonta Davis converts to Islam and changes his name to Abdul Wahid, as the undefeated lightweight champion follows in the footsteps of boxing legend Muhammad Ali
+-  Bitcoin ETF’s krijgen mogelijk dinsdag al groen licht: Reuters
+-  Οργή: Μόνο για 10 λεπτά άφησαν τον Μπελέρη να παραστεί στην κηδεία της γιαγιάς του: Αποδοκιμασίες από ομογενείς
+-  Парижки ресторант предлага "гледка от първия ред" за откриването на "Нотр Дам" и Олимпиадата
+-  Chris Jericho: Tony Khan refuses to address 'unsourced rumors' about AEW superstar having 'skeletons in his closet'
+-  לאיוס ב-11 של הפועל תל אביב, שימיץ' וקנדיל בהרכב מכבי חיפה
+-  Šokujúce odhalenie Simony Krainovej: V POSTELI so Sylvestrom Stalloneom... FOTO ako dôkaz!
+-  Politici bilancujú celý uplynulý rok: Priania do nového roku, prvý bol Andrej Danko s dôležitou radou do života!
+-  Звездата Соник със специално обръщение към пловдивчани
+-  Russia accuses Ukraine of using cluster munitions in Belgorod strikes
+-  Ανακοίνωσε το ντιλ με Παπαστυλιανού η Ομόνοια - Η χρονική διάρκεια του συμβολαίου
+-  На Украине сообщили о вероятном лишении льготных выплат 2 млн переселенцев
+-  עלייה של כמעט 300%: זו המניה המתפוצצת של השנה בוול סטריט
+-  מעיין אדם משתפת: "חיכיתי לשנה הזו כל חיי, אזכור אותה עד יום מותי"
+-  לוסי אהריש תחת מתקפה חריפה: "מרשה לעצמה, לשמוע ולהיחרד"
+-  ¿Cuántos días trae enero de 2024, el primer mes del año?
+-  Margrét II Danadrottning segir af sér
+-  Trafkte bunları yapan yandı! Drift atmak 30 bin, alkollü araç kullanma 13 bin, radar cezası bin 500 TL
+-  Novoletni obračun Janeza Janše in Mateja Tonina
+-  Fans call out Dwayne 'The Rock' Johnson for claiming to try In-N-Out for the 'first' time: 'This is a lie'
+-  فيديو | أرسنال يواصل السقوط ويخسر من فولهام بثنائية
+-  Dumping of garbage poses health risks to Zamin Pallavaram residents
+-  Trafik cezalarının 2024 tarifesi belli oldu
+-  Sri Lanka tells India it will not allow any Chinese research vessel to dock at ports or in EEZ - report
+-  شاهد | أهداف مباراة توتنهام وبورنموث 3-1
+-  Vacaciona Peña Nieto con los Clinton en Punta Cana
+-  Amedrentan y cortan cartucho contra extranjeros
+-  Fulham fan taunts Arsenal after Mikel Arteta's side squander an early lead to lose at Craven Cottage... with the Gunners now winless in their last three Premier League games
+-  Hottest new trends for 2024 - travel, books, gaming, cars and music
+-  Yılbaşı özel çekilişi gerçekleşti
