@@ -1,51 +1,51 @@
 # Latest News
--  Responsables de una cantera denuncian hurto de explosivos
--  סיכום 2023: 1,000 מכוניות חדשות בכל יום. ומי הרכב הכי נמכר?
--  اهتمام إنجليزي بـ مبابي، ولكن..!
--  Denmark's Margrethe II, Queen Of Hearts And The Arts
--  Gerüchte über Nintendo Switch 2 enthüllen, dass drei Spiele auf die Konsole kommen
--  Ja pse duhet të vishemi me të kuqe natën e Vitit të Ri
--  2024 Milli Piyango çekilişi 8.000 TL kazanan numaralar açıklandı! İşte son 6 rakamına göre 8.000 TL ikramiye kazanan numaralar
--  BM: 2023, Filistinli mülteciler için büyük bir yıkım ve trajedi yılı oldu
--  Beşiktaş Başkanı Arat'tan yeni yıl mesajı
--  قناة عبرية: توني بلير عقد اجتماعات سرية مع نتنياهو لبحث "لجوء" سكان غزة
--  Prezydent w orędziu: Doszło do próby siłowego przejęcia mediów publicznych
--  Ўзбекистон халқига Янги йил табриги
--  Policia e Shtetit mesazh urimi për Vitin e Ri 2024: Kryevlerë për imazhin e Shqipërisë
--  В Московском регионе началось обещанное синоптиками резкое похолодание
--  Has Christopher Biggins Done Weight Loss Surgery? Net Worth Explored
--  نیتن یاہوکی ہٹ دھرمی:غزہ جنگ جاری رکھنے کا اعلان
--  ¿Cómo ver el Desfile de las Rosas 2024?
--  Temerile „țarului” de la Kremlin. Rusia crede ca Moldova se va unifica cu România
--  Posible traspaso para Rubio Rubín, Seleccionado Nacional, quien podría unirse al Querétaro de México
--  “No harían lo mismo con el masculino”: Ana Lucía Martínez molesta con Concacaf por no programar el playoff para Copa Oro W en fecha FIFA
--  Hasil Liga Inggris: Hajar Bournemouth 1-3, Tottenham Hotspur Kembali ke Jalur Kemenangan
--  Centros comerciales en Maturín reportan 70% de afluencia
--  Control de Personal y Finanzas: cuatro mujeres manejarán resortes vitales de la Policía Federal
--  'NEĆU TI BITI MAJKA NI NA ZEMLJI, NI U ZEMLJI': Ženu sin nije posjetio SEDAM GODINA, a hoće da joj oduzme imovinu (VIDEO)
--  10 شركات طيران
--  Асеновградчанин събу дънките на почерпен случаен познат, за да го обере
--  Me thirrjen e veçantë për shqiptarët, deputetja demokrate uron Vitin e Ri
--  Ucrania se mantiene firme en 2023 pero se enfrenta a un 2024 incierto
--  Neil says Mannara is hurt by Munawar-Ayesha's history, calls Ankita, Vicky, Isha, Samarth worst contestants of BB17
--  FANTASTIČNI PORTUGALAC: Ronaldo objavio fotografiju iz teretane i 'pokupio' čak šest miliona lajkova! (FOTO)
--  Donald Tuskék máris cenzúrázzák az állami médiában a jobboldali közleményeket
--  تصوير 3 فتيات سعوديات وهن بوضعية مخجلة في أحد شواطئ مدينة جدة ..شاهد الفيديو
--  Januarska depresija: Građani uznemireni zbog rasta cijena namirnica
--  تم القبض..الداخلية السعودية تصد بيان عاجل حول فيديو حرق حيوان حي بطريقة بشعة…”شاهد الفيديو “
--  الداخلية السعودية ترحيل الأجانب من هذه الجنسية..ولن نسمح بدخولهم للمملكة نهائياً!
--  Trikratnega olimpijca našli mrtvega v Keniji
--  Arteta: Ndeshja ndaj Fulhamit ishte më e keqja e Arsenalit këtë sezon
--  2 Möglichkeiten, Windows 11 mithilfe eines Wiederherstellungspunkts wiederherzustellen
--  La San Silvestre Vallecana en directo: Katir y Aregawi se escapan de salida
--  Shecky Greene, legendary standup comic, improv master and lord of Las Vegas, dies at 97
--  Akeredolu’s aides betrayed him, ex-aide alleges
--  Esta película de HBO Max es perfecta para terminar las festividades navideñas con humor y mucha acción al estilo John Wick
--  Az OpenAI a botrányok ellenére is rekordnyereséggel zárhatja a 2023-as évet
--  2024: NOA restates FG’s commitment to deliver mandate
--  İsrail'de seçimler ikinci kez ertelendi
--  تعرف على قيمة رسوم تجديد الاشتراك بمشروع العلاج للمحامين وأسرهم لعام 2024
--  "الوفد" يقرر تشكيل لجان الحزب بالمحافظات بالانتخاب
--  عبور برلمانى ناجح نحو «امتحانات جديدة» فى 5 ملفات.. اعرف التفاصيل
--  حصيلة جرائم الاحتلال فى قطاع غزة خلال عام 2023 بالأرقام.. برلمانى
--  تكنولوجيا: باحثون ألمان يكتشفون خللاً فى سيارات تسلا يمكنهم من القيادة الآلية بالكامل
+-  الجولة 10 .. نادي شباب تارجيست يحافظ على سجله الخالي من الهزائم
+-  جمال بلماضي: المنتخب المغربي مرشح للفوز بكأس أمم إفريقيا، بينما الجزائر قد تواجه صعوبات
+-  جلالة الملك يتبادل التهاني مع قادة دول وحكومات الدول الشقيقة والصديقة بمناسبة حلول السنة الميلادية الجديدة 2024
+-  كأس أمم إفريقيا : المنتخب الموريتاني لكرة القدم يخوض معسكرا تدريبيا بتونس
+-  Pelo menos 120 jornalistas mortos em 2023 – FIJ
+-  Le metieron más de 20 tiros a alias "Puerquita" en jardín en Los Santos
+-  Aprehenden a presunto implicado en robo a conductor de Indriver
+-  أسباب واعراض نقص فيتامين دال الشديد عند النساء
+-  ما هو الكونغ فو وما هي أنماطه وأبرز أساليبه المتنوعة بالتفصيل
+-  معلومات عن الخفاش غريبة جدا
+-  صباح التفاؤل – اجمل العبارات الصباحية عن التفاؤل
+-  مصاريف الجامعة العربية المفتوحة
+-  Vœux présidentiels pour la nouvelle année : ce qu'il faut retenir de l'allocution d'Emmanuel Macron
+-  استنفار أمني بمدينة فاس لتأمين ليلة رأس السنة الجديدة
+-  خبير يتوقع أن تتجاوز مداخيل السياحة 100 مليار درهم في سنة 2023
+-  تطوان .. مضيان والوزيرة حيار يؤطران لقاء تواصليا حول الدعم المباشر
+-  الملك يتبادل التهاني مع قادة دول العالم بمناسبة السنة الميلادية الجديدة
+-  Marcelo’s son adorably left sobbing by heart-warming Neymar meeting
+-  Drag performer slur perpetuates myths, Ont. judge rules, defamation suit advances
+-  Pritshmëritë e qytetarëve të Kosovës për vitin 2024
+-  Bakan Bayraktar Şırnak'ta bazı ziyaretlerde bulundu
+-  İYİ Parti Mudanya Belediye Başkan aday A. Seçil Burcan Ürküt istifa etti
+-  Mehmetçik'ten yeni yıl mesajı
+-  Çanakkale'de 'Narko Noel' operasyonu! 26 gözaltı
+-  Putin, 2024 yılını 'aile yılı' ilan etti
+-  GÖKÖZ-DER anlamlı bir geceye imza attı
+-  İstanbul Valisi: Bütün tedbirler alındı
+-  Læs hele dronningens nytårstale 2023
+-  Læs hele dronningens nytårstale 2023
+-  Tshekki nappasi toisen voittonsa ja lohkon kolmospaikan nuorten MM-kisoissa
+-  Moottoriurheilun legenda on kuollut 84-vuotiaana
+-  2024: Lead Nigeria With Courage, CAC President Charges Tinubu
+-  Junaliikenne | Juna-asemien näytöt ja kuulutukset toimivat jälleen
+-  Ganjar Jenguk Pendukungnya yang Dihajar Tentara, Tanggung Seluruh Biaya Perawatannya
+-  Tom Brady’s Surprising Retirement Party in 2023: The Only Downside
+-  Las noticias más leídas de este domingo, 31 de diciembre
+-  GOST POČEO DA PUCA, ONA SE UHVATILA ZA GLAVU I ISTRČALA IZ LOKALA! Nastup zamalo da se završi TRAGIČNO za pevačicu VIDEO
+-  صحة غزة: الاحتلال الإسرائيلى ارتكب 12 مجزرة راح ضحيتها 150 شهيدا خلال الـ24 ساعة الماضية
+-  Fenebahçe'den yeni yıl mesajı
+-  Cycling champion Rohan Dennis charged over wife’s death as police make appeal
+-  DRAGANA MIRKOVIĆ U FINALNOJ EPIZODI "RAME UZ RAME SA DRAGANOM" OTKRIVA: Kruna moje karijere će biti.. Evo zašto se UGLEDAJU NA NJU
+-  Nostradamus-Vorhersagen für 2024: Harry wird König, China führt Krieg
+-  Elazığ’da trafik kazası
+-  Je moet maar durven: in Brabant de concurrentie met worstenbroodje aangaan met Wageningse vegavariant
+-  Horror: a fellépésén vágta le az ujját a magyar illuzionista
+-  Lejos de desaparecer, los datos demuestran que el trabajo híbrido funciona
+-  وفاة العدّاء كيبلاغات بعد تكهنات حول تعرضه للطعن في كينيا
+-  NASCAR Hall of Famer Cale Yarborough, a 3-time Cup champion in the 1970s, dies at 84
+-  Putin na Nowy Rok: „Nigdy nie ustąpimy”
+-  Valami történt: lassabban csökken az autók értéke
