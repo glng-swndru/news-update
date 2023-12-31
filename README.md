@@ -1,51 +1,11 @@
 # Latest News
--  [‘안전사고 없도록’…서울 보신각 등 9곳 현장상황 관리
--  Gent schrapt vuurwerkshow om harde wind
--  Два мача в Лондон закриват годината във Висшата лига
--  Радослав Кирилов направи интересно разкритие
--  اتحاد شمال إفريقيا لكرة القدم: الجزائري وليد صادي يترشح رسميا لمنصب نائب الرئيس
--  العدوان الصهيوني على غزة: ارتفاع حصيلة الشهداء إلى 21672 منذ 7 أكتوبر الماضي
--  Erdoğan'dan yeni yıl mesajı
--  Bulgaristan ve Romanya, Schengen'e dahil oluyor
--  Каннабис изменяет ДНК и приводит к серьёзным наследственным заболеваниям
--  شركة جوجل توافق على دفع خمسة مليارات دولار لتسوية قضية خصوصية
--  حزب الله يهاجم مواقع إسرائيلية بالمسيرات والصواريخ
--  Real Betis, retroscena Isco: per il rinnovo ha rifiutato tre club. Le parole dell'agente
--  Profil Besnik Hasi, Pelatih KV Mechelen yang Berharap Timnas Indonesia Tak Lolos Piala Asia
--  קצת חדשות טובות: מאי ומשה מחתונמי מצפים לילד ראשון!
--  "הרסת לעצמך את הקריירה": דנה זרמון חטפה מהעוקבים בגלל מילה
--  שלושה חודשים למלחמה: עם מה הדוגמניות הישראליות מתמודדות בחו"ל?
--  צבא ארה"ב: הטבענו סירות של החות'ים שתקפו בים האדום
--  האוצר ממליץ לסגור את המשרד - אבל השרה גמליאל החליטה למנות מנכ"ל חדש
--  "חוצפה שאין כמותה": המכתב החריף לאיגוד הכדורסל
--  אזרחית כבוד: בחזרה למשחקי הסילבסטר הזכורים בכדורגל הישראלי
--  שני בלאומית: שתי בכורות ומוליכה שתנסה לנצל את מעידות המתחרות
--  ‘축구가 주는 아름다움’ 울버햄튼 캡틴, 득점 후 부친상 겪은 동료 응원… “르미나를 위한 경기”
--  برطانیہ کا کئی مسلم ممالک کیلئے ویزا فری انٹری کی سہولت کا اعلان
--  '1박 2일' 김종민, 호주 여행 소감 "여기 사막에?" 화들짝
--  Emma Raducanu feeling 'reborn' as she prepares for comeback
--  300만 돌파한 ‘노량’ 진짜 이순신의 모습은 어땠을까
--  Pourquoi les Conseils Locaux ont-ils besoin d’une loi définissant leurs prérogatives ?
--  ZA GODINU I PO DANA PROSEČNA PLATA U SRBIJI BIĆE HILJADU I PO EVRA! Vučić: Narednih šest meseci za nas će biti užasno teški
--  Why a President should not be a Minister, by Hassan Gimba
--  Ζόε Σαλντάνα: Αγόρασε ένα αρχοντικό έναντι 17,5 εκατ. δολ. στο διάσημο Μοντεσίτo
--  बाँकेमा हुस्सु र कुहिरोका कारण हवाई उडान प्रभावित
--  Year in review: A look at news events in June 2023
--  [증시결산] 2차전지 두고 개인 vs 외국인·기관 치열한 '기싸움'
--  &quot;ZAVISI OČIGLENO OD NESTOROVIĆA Vučić: Nedostaje nam oko 700 glasova za još jedan mandat
--  Macron i skvis om «hvit måned» i Frankrike
--  אביב ששוני מונה למנהל החטיבה הביטחונית והציבורית של F5 בישראל וקפריסין
--  Тандемът на Ботев Пловдив в атака е №1 в елита
--  Już nie tylko latem. Stałe połączenie kolejowe z Zamościa do Bełżca
--  Skrzydłowy Azotów Puławy nie pojedzie na mistrzostwa Europy. "Szanuję decyzję selekcjonera"
--  Liiska Golaha Wakiillada Puntland oo galabta lagudhawaaqayo xilli tirada uu khilaaf ka jiro
--  Jedino ona je uspela da mu vrati veru u ljubav: Nakon velikog kraha pojavila se kao dobra vila, zbog njega se i karijere odrekla
--  লোহিত সাগরে জাহাজ লক্ষ্য করে হুতিদের ছোড়া ক্ষেপণাস্ত্র ধ্বংসের দাবি যুক্তরাষ্ট্রের
--  Ammara Brown Faces Another Explicit Content Scandal: Singer Hits Back at ‘Leaked’ Nude Yoga Pictures
--  Opravdani bes Lebrona Džejmsa: Ovo bi i Stivi Vonder video
--  Schneller Käsesalat! Richtig lecker nach DDR-Original-Rezept
--  “Kam vrarë babanë”, i ati i dehur i sulmon nënën në Greqi, 35-vjeçari merr thikën dhe e masakron!
--  송지은, ♥박위 편지에 눈물…"평생 나랑 생일 같이 보내야 해" [마데핫리뷰]
--  “2024년 새로운 챕터, 샌프란시스코 위해 최선을…” 이정후 다짐, 1468억원짜리 책임감
--  "퍼거슨 경 옆에 앉은 사람 누구야?"…맨유 팬들 웅성웅성→확인 후 기대감 폭발! 누구이길래?
--  이찬원, 10년 만에 금의환향 "'전국노래자랑' 초대가수로 나오니 영광스럽다"
+-  Harte Kritik für kriselndes Manchester United: „Schrecklich“
+-  Berichte: Brasilianischer Club an Borré interessiert
+-  Nilüfersporlu Deniz Uyanık Vakıfbank'a gitti
+-  Bursa'da ev sahibinin ellerini ve ayaklarını bağlayarak 20 bin doları çaldılar
+-  JBPM Kelantan pantau lokasi banjir termenung
+-  Hrvati najčešće naručuju ćevape i pizzu
+-  Firmy v tomto roku chceli zaujať netradičnými ponukami. Hľadali jednorožce či levy
+-  [신년사] 홍남표 창원시장
+-  정원동, 밀양시장 예비후보 등록middot;middot;middot;본격 선거운동 돌입
+-  우리 국회에 '산재 안전 전문가'는 과연 얼마나 있는가?
