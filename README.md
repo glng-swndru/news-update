@@ -1,51 +1,51 @@
 # Latest News
--  Cuánta plata hay que invertir en una franquicia de café de especialidad y en qué plazos la recuperás
--  Former US Open champion Stephens into Brisbane second round
--  To tu dávno nebolo: Počet Trnavčanov prvýkrát po dlhých rokoch mierne stúpol
--  "משתייכות לארגון טרור": היועמ"שית הורתה על פירוק 4 חברות
--  דני קושמרו משתיק את גיא פלג: "נלחם כדי להגן עלינו"
--  בגיל 71: אחד המוזיקאים האהובים בישראל הלך לעולמו
--  מחר זה קורה: הצצה ראשונה לפרק החדש של קופה ראשית
--  דרמה בביטוח לאומי: איימה לפוצץ את הסניף בבלוני גז
--  המחירים בסופרמרקט קופצים ב-20%: יבואנית קולגייט וברילה בבשורה קשה
--  NU+ | Groen feestje op NK afstanden, Jumbo blijft vol vraagtekens achter
--  Έργο τέχνης το νέο τατουάζ του Βινίσιους!
+-  4 điểm sáng sau trận thua của M.U: Ấn tượng viện binh
+-  Steve Nicol khó hiểu vì lựa chọn của Ten Hag
+-  Những con số đáng chú ý của M.U trong năm 2023: BXH Vua phá lưới
+-  Gary Neville chỉ trích cựu sao Arsenal trong trận thua của M.U
+-  Nketiah ra quyết định cho Arsenal
+-  "Từ khi Kevin De Bruyne vắng mặt, cậu ấy đã chơi không thể tin được"
+-  Keeping recyclable waste separate ‘vital’ to boosting NI recycling rates
+-  (Видео) Новата година веќе стигна: Кирибати прв славеше, а потоа Нов Зеланд со огномет од познатата кула
 -  Kampf gegen Inflation für viele Menschen wichtiges Thema
--  جامعة قطر: قبول 186 طالبا في برامج الدراسات العليا لفصل ربيع 2024
--  Weiter Regen in Rheinland-Pfalz und im Saarland
--  Nach Sprengung von Geldautomaten brennt Bankgebäude
--  Bakın yeni sevgilisi kimmiş...
--  Mer Rouge: Maersk suspend le transit de ses navires pour 48 heures
--  2024 Yılı Merkezi Yönetim Bütçe Kanunu, Resmi Gazete'de yayımlandı
--  جيش الاحتلال: وحدة القتال في لواء المظليين انتقلت من شمال القطاع وانضمت للقوات في منطقة خانيونس ومحيطها
--  มท.1 สั่งดูแลครอบครัว ‘ผญบ.บ้านใหม่’ เสียชีวิตขณะปฎิบัติหน้าที่จุดบริการ ปชช.
--  В Чехии прокомментировали атаку украинской армии на Белгород
--  North Korea&#039;s Kim vows to launch 3 more spy satellites and produce more nuclear materials in 2024
--  Bipin&#039;s release expected in second phase of ceasefire: Minister Saud
--  Viral Video: ఎన్నాళ్ల నుంచి మనసులో పెట్టుకున్నాడో ఏమో.. కోతికి ఆహారం తినిపిస్తూ.. ఇతడు ఏం చేశాడో చూస్తే..
--  אריאל, אביגיל ואולי דוד? השמות הנפוצים ביותר בישראל לשנת 2022
--  המשחק של דומיניק ת'ים באוסטרליה הופסק בגלל נחש קטלני במגרש
--  England’s males look to win European Championship throughout big 12 months of sport in 2024
--  רפאל נדאל חזר לשחק טניס אחרי שנה: "התגעגעתי לקום בבוקר בלי כאבים"
--  Stock-market gurus predicted a grim 2023. They were dead wrong.
--  NU+ | Bel of app gerust tijdens de jaarwisseling: de netwerken kunnen het aan
--  Año nuevo: qué color vestir y cuál es el significado
--  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
--  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
--  In Baden-Württemberg findet sich das älteste archäologische Freilichtmuseum Deutschlands
--  Nytt angrep mot dansk skip i Rødehavet
--  موريتانيا: انشغال بطوفان الأقصى وأزمة انتخابية ومحاكمة مثيرة
--  مروحيات أمريكية تغرق 3 قوارب لجماعة الحوثي حاولت اعتراض سفينة شحن
--  শামীমা আক্তার দোলার বাবার মৃত্যুতে ইআরএফ’র শোক
--  Εορταστικό ωράριο: Τι ώρα κλείνουν σήμερα καταστήματα και σούπερ μάρκετ
--  Брат погибшей при обстреле украинцами Белгорода рассказал RT о гибели сестры
--  MHP Genel Başkanı Bahçeli'den yeni yıl mesajı:
--  Atvinnulífið gerir upp árið
--  Yıldırım'da 'Kudüs Bizim Neyimiz Olur' söyleşisi
--  Matějovský sestřelil v Silvestrovském derby Slavii hattrickem
--  Visoki funkcioneri Slobodarske partije Austrije: Šider nije neutralan, zauzima nediferenciran stav, a da sam nije identifikovao izborne nepravilnosti
--  Najbardziej poszukiwany przestępcy w Europie. Wśród nich trzech Polaków
--  전주시 lsquo;대한민국 문화도시rsquo; 공모 예비대상지에 도내 유일 포함
--  quot;전주 지역서점 활성화 앞장quot;hellip;최명권middot;정섬길middot;이보순 시의원 감사패
--  সিএমপিতে যুক্ত হলো বিশেষায়িত ডগ স্কোয়াড
--  Rezervirali luksuzan apartman s bazenom i jacuzzijem: Na destinaciji ih dočekalo iznenađenje života
+-  Mobiltoilette und zwei Zigarettenautomaten gesprengt
+-  Gündogan verletzt sich beim Krafttraining am Kopf
+-  Maersk vaart 48 uur niet op Rode Zee vanwege nieuwe aanval op schip
+-  İsrail ordusu Gazze'den atılan füzeler karşısında çaresiz: Önlemek mümkün değil
+-  Necip Fazıl Ödülleri'nde "Filistin" vurgusu geceye damga vurdu
+-  "Oyumuz yüzde 8'e düştü" deyip partisinden istifa etti
+-  Jean Onana için yolun sonu!
+-  Harry Kewell'in yeni adresi Japonya
+-  Eczanelerde yılbaşı öncesi ilaç bulamama krizi yaşanıyor! "Eczacı da hastalar da mağdur"
+-  Bursalılar yılın son günü milli piyango sırasında
+-  Terazi erkeği özellikleri
+-  البنك الوطني الجزائري : اطلاق أربعة منتجات صيرفة اسلامية جديدة في الأيام القليلة المقبلة
+-  سوناطراك : تنظيم مسابقة لانتقاء أكثر من 1200 عامل عبر عدة ولايات
+-  Novak Djokovic: A look at Serbian`s record-breaking 2023 season
+-  Cafe Noir launches its winter festive menu with unique specials
+-  Tehreek-e-Hurriyat, once headed by Syed Ali Shah Geelani, banned by govt
+-  Sunny Deol on ending 16-years long rift with SRK: `Everybody has moved ahead`
+-  KMC to establish City Museum at Denso Hall: Murtaza Wahab
+-  Kalonzo rallies Kenyans to be hopeful in New Year’s message
+-  Gazze'ye ölüm yağdıran İsrail'i 2024'te ekonomik ve siyasi krizler bekliyor
+-  Fatih Terim eski öğrencisini istiyor: Yönetim harekete geçti
+-  2024 Yılı Merkezi Yönetim Bütçe Kanunu Resmi Gazete'de yayımlandı
+-  İYİ Partili Başkan istifa etti
+-  İsrail ordusu Gazze'de biri subay 2 askerinin daha öldürüldüğünü duyurdu
+-  Merkezi Yönetim Bütçe Kanunu Resmi Gazete’de
+-  Roy Hodgson calls speculation over his Crystal Palace future ‘disrespectful’
+-  BREAKINGS NEWS: Agreement reached medical date fixed, done deal imminent, Eredivisie superstar finally accepts Chelsea offer, player to arrive with His agent tomorrow for unveiling
+-  Arif Hasan steps down as Pakistan Olympic Association president after 19 years
+-  صراع رجاوي عسكري على مدافع إتحاد تواركة أحمد الخلج
+-  VIDEO+FOTO: Velike štete na kućama u Ljubetovu kod Zenice, mještani od zore u radnim akcijama
+-  Operação da PSP fecha estabelecimento de diversão noturna
+-  ارتفاع معدلات الطلاق في تونس.. ومنصات التواصل في قفص الاتهام
+-  الوهباني يعزي أيوب طارش بوفاة نجله
+-  조이현, 예쁨 가득
+-  조이현 '블랙스완'
+-  백진희, 순백의 미소
+-  정의제-백진희-안재현, '진짜가 나타났다' 주역들
+-  বিআইআইএসএসে ‘গ্লোবাল ইকোনমিক শোডাউন’ শীর্ষক সেমিনার অনুষ্ঠিত
+-  VIDEO: Građani Zenice nakon potresa – Ovo je baš za neočekivati, strašan je osjećaj
+-  Врач перечислила самые вредные традиционные новогодние блюда
+-  АМЕРИКАНСКИ ХЕЛИКОПТЕРИ УНИШТИЛЕ ТРИ БРОТЧИЊА НА ЈЕМЕНСКИТЕ БУНТОВНИЦИ КОИ НАПАЃАЛЕ БРОД
