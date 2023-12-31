@@ -1,51 +1,11 @@
 # Latest News
--  Vuelca familia chihuahuense en la Jiménez-Torreón y muere una mujer
--  Die größten Hits aller Zeiten | NDR.de – Fernsehen
--  Πρωτοχρονιά: Το συγκινητικό βίντεο της Αστυνομίας αφιερωμένο στους συναδέλφους τους που έφυγαν από τη ζωή
--  4 Tote, 2 Verletzte nach Hausexplosion in Northfield Township am Samstag
--  Greensboro officer was killed while confronting suspect in $83 beer theft at Sheetz, officials say
--  Ravanelli: «Bonucci è in difficoltà, ma alla Roma troverebbe stimoli e darebbe questo»
--  Romano tvrdi da u Manchester City stiže jedan od najvećih talenata Južne Amerike
--  Doček na Korzu počeo u znaku kiše i dobre atmosfere!
--  Папата с призив в новогодишната нощ
--  La diva mexicana Silvia Pinal deja el hospital tras 10 días internada por influenza
--  Hundebesitzer flüchten am Flughafen
--  Seria o Hamas tão brutal quanto Israel?
--  Siliņa gadumijas uzrunā ikvienam novēl nebaidīties spert izlēmīgus soļus un būt drosmīgiem
--  Senior Israeli minister repeats call for Palestinians to leave Gaza
--  All the walkouts and industrial action planned in January
--  2024 Milli Piyango sonuçları açıklandı! Sıralı tam liste, amorti Milli Piyango bilet sorgulama ekranı
--  İşte A Milli Takım'ın 2023 yılı karnesi!
--  Dennis Hildeby mot NHL – efter Ilja Samsonovs magplask
--  Al menos dos heridos en un ataque con cuchillo a las afueras de Jerusalén
--  Umbau der Staatsmedien: Polens Präsident Duda wirft neuer Regierung unter Tusk Rechtsbruch vor
--  Retrospectiva 2023: confira as notícias que marcaram o ano no Leste e Nordeste de MG
--  Media: VS halen vliegdekschip op Middellandse Zee bij Gaza terug
--  Carr throws for 2 TDs to help the Saints beat the Bucs 23-13 and tie NFC South standings
--  Quebec City looks to Finland’s successful approach to ending homelessness
--  Quebec City looks to Finland's successful approach to ending homelessness
--  Quebec City looks to Finland's successful approach to ending homelessness
--  Quebec City looks to Finland's successful approach to ending homelessness
--  Quebec City looks to Finland's successful approach to ending homelessness
--  Grote brand in Noord-Brabantse Boxtel, NL-alert verstuurd naar omwonenden
--  Maine entzieht Trump den Wahlzettel und entfacht damit einen Rechtsstreit um seine Kandidatur
--  “몇년째야?”…페이커보다 장기집권 중인 ‘이 남자’ 또 올해의 선수
--  «Avslører» lønnen til Jürgen Klopp
--  В России увеличили минимальные зарплаты
--  Supercomputer predicts 2024’s biggest winners from Euro 2024 champions to Wimbledon and Premier League title
--  Supercomputer predicts 2024’s biggest winners from Euro 2024 champions to Wimbledon and Premier League title
--  신세계 센텀시티, 지역 백화점 최초 연 매출 2조원 넘겼다
--  Serie A, dal 2012 Roma e Udinese le squadre che la Juventus ha battuto più volte in casa
--  So erstellen Sie ein "Fügen Sie Ihre hinzu" Vorlage für Instagram
--  Depremlerle yerle bir olmuştu! 2024’ün ilk bebeği Hatay’da doğdu
--  Un couple mis en examen pour "barbarie", après la mort d'un homme qu'il hébergeait
--  BetMGM Bonus Codes: Choice of 3 offers available all week
--  Τέλος επιτηδεύματος: Ανατροπές από την απογραφή πληθυσμού - Ποιοι γλιτώνουν τον φόρο
--  BRAT LEGENDARNOG FUDBALERA OTKRIO: "Ne oseća se dobro, svaki šok mogao bi da bude fatalan"
--  Confirmaron el primer muerto por encefalitis equina en Argentina y hay 12 casos en el país
--  Rainha Margrethe II da Dinamarca anuncia abdicação após 52 anos no trono
--  Bakıda sexdə YANĞIN
--  Agnès Firmin Le Bodo, soupçonnée de conflit d’intérêts avec Urgo, nie les faits
--  Çfarë ndodhi? Arbana Osmani kalon natën e ndërrimit të viteve në spital
--  Грција на нозе: По 12 дена е најдена Сара, по средношколката Анастасија се трагa
--  Kocaeli'de hafif ticari araçla motosikletin çarpıştığı kazada 2 kişi ağır yaralandı
+-  Lessons from 1924 we should heed in 2024
+-  Aviso amarelo para sete distritos do continente
+-  عاجل.. خطوات طال انتظارها.. تفاصيل جديدة عن تأمين عقود العمالة المنزلية
+-  [‘美 트럼프-바이든 재대결’, 대만 ‘미중 대리전’…글로벌 지각변동 [2024 선거 슈퍼볼]
+-  [“내년 지구 절반이 투표중”…선거, 글로벌 경제 변수로 [2024 선거 슈퍼볼]
+-  [시총 2위를 보면 주도 업종이 보인다…‘2위의 역사’ [투자360]
+-  [‘N연임 도전’ 푸틴·모디...‘스트롱맨의 시대’ 계속된다 [2024 선거 슈퍼볼]
+-  [대한민국, 2024~25년 임기 유엔 안보리 이사국 수임 개시
+-  [“20대 나의 버킷리스트, 올해는 1억 모을 수 있겠죠?” [투자360]
+-  العقبة تستقبل العام الجديد بالتضامن مع غزة
