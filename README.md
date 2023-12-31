@@ -1,11 +1,51 @@
 # Latest News
--  Lessons from 1924 we should heed in 2024
--  Aviso amarelo para sete distritos do continente
--  عاجل.. خطوات طال انتظارها.. تفاصيل جديدة عن تأمين عقود العمالة المنزلية
--  [‘美 트럼프-바이든 재대결’, 대만 ‘미중 대리전’…글로벌 지각변동 [2024 선거 슈퍼볼]
--  [“내년 지구 절반이 투표중”…선거, 글로벌 경제 변수로 [2024 선거 슈퍼볼]
--  [시총 2위를 보면 주도 업종이 보인다…‘2위의 역사’ [투자360]
--  [‘N연임 도전’ 푸틴·모디...‘스트롱맨의 시대’ 계속된다 [2024 선거 슈퍼볼]
--  [대한민국, 2024~25년 임기 유엔 안보리 이사국 수임 개시
--  [“20대 나의 버킷리스트, 올해는 1억 모을 수 있겠죠?” [투자360]
--  العقبة تستقبل العام الجديد بالتضامن مع غزة
+-  [“스마트폰보다 더 강력?” 놀라운 기술 하루 종일 끼고 산다 [AI하는 세상 빅뱅]
+-  DEB-Junioren müssen bei U20-WM in Relegation
+-  Taylor Swift’s Attendance at Travis Kelce’s Chiefs Game on New Year’s Eve
+-  NRW: Kaufland schließt – diese Standorte sind betroffen
+-  Who Is Taylor Swift Dating? Full Dating History: Every Rumored & Confirmed Ex-Boyfriend Revealed
+-  Centrelink payments including Youth Allowance, disability pension and Austudy increase with indexation from start of new year
+-  وثيقة أمريكية مسربة: هذا ما طلبه حكام العرب “سرا” خلال حرب 48 “كي تعذرهم شعوبهم!”
+-  UniqueMe 5in1 Set für iPhone 15 Hülle, (nie vergilbt) Handyhülle für iPhone 15 Hülle Rundumschutz Schutzhülle (1 Handyhülle + 2 Displayschutzfolien + 2 Kameraschutzfolien) transparent
+-  Nach Trennungsgerüchten: Iris Klein teilt Bild mit Mr. T!
+-  Discover How Christmas Became the Breaking Point in My Marriage and Led Me to Walk Away from My Husband
+-  MTC: Desde el 1 de enero no circularán vehículos por el serpentín de Pasamayo
+-  Silvesterlauf in Trier: Gesa Krause feiert beeindruckendes Comeback nach der Babypause | hessenschau.de
+-  مهرجان "حمضيات حائل" يختتم فعالياته وسط حضور كثيف
+-  الأمير سلمان بن سلطان بن عبدالعزيز يزور المسجد النبوي
+-  ختام منافسات المسار الأول لكأس العُلا للصقور بـ 5 أشواط
+-  Qué dijo Carlos Maslatón sobre el diputado mendocino que sesionó desde el Caribe
+-  Plenković otkrio svoje novogodišnje želje: 'Ona je ključna u svemu ovome'
+-  Pilot dies after crashing into abandoned house site in Mooresville: NCSHP
+-  Deja Comisión de Feminicidio sin analizar delito por el que fue creada
+-  Guterres anunciou fim da missão das Nações Unidas no Mali após dez anos
+-  Sjajna novogodišnja atmosfera u Zenici
+-  "충격! 새해부터 무슨 일인가?"…손흥민, 풀타임+EPL 득점 2위+결승골 주인공임에도 'BBC' 평점 꼴찌! '시간벌기용' 후반 막판 투입 다이어보다 평점 낮아
+-  조여정, 故 이선균을 떠나보내며…"반갑지만은 않은 새해도 받아들일게요"
+-  ‘1년 연장’에 충격받은 맨유 팬들→ 6년간 249G 뛴 DF '연장 옵션 발동'에 “설마 농담이겠지“ 분개
+-  Rafael Nadal Kalah di Nomor Ganda dalam Laga Pertama setelah 12 Bulan Absen
+-  블랙핑크 리사, 새해맞이는 해변에서…과감한 비키니 노출 [MD★스타]
+-  En discurso de Año Nuevo, presidente chino habla de reunificación con Taiwán
+-  Rusya, 2024’e büyük havai fişek gösterileri yapmadan girdi
+-  التقط صورة مع نتنياهو.. شاب ينتحل صفة جندي ويخدع الإسرائيليين ويسرق أسلحة قتالية
+-  عندما تغيب العقول وتسود الخرافات
+-  الجيش الإسرائيلي يتوقع استمرار الحرب ضد حماس في غزة طوال 2024
+-  اتحاد القدم يعلن بدء الميركاتو الشتوي
+-  الأمم المتحدة تعلن إنهاء عمل المحكمة الدولية الخاصة بقضية اغتيال الحريري
+-  زلزال بقوة 4.5 درجة يضرب ولاية هكاري جنوب شرقي تركيا
+-  الرئاسة الفلسطينية: لا سلام دون إنهاء الاحتلال كاملاً من غزة والضفة والقدس الشرقية
+-  Elazığ'da 2023'ün son cezası 4 bin 64 lira, 2024'ün ilk cezası bin 506 lira oldu
+-  Tony Hudgell von Eltern misshandelt: Charles ehrt Jungen ohne Beine | Nachricht
+-  Bokaktuelle Amir ble dømt på grunn av hudfargen sin
+-  Türkiye yeni yıla coşkuyla girdi
+-  Bursa Valisi Demirtaş, yeni yıla polis ve askerler ile girdi
+-  Yeni yılı elleri tetikte karşıladılar
+-  Bursa'da havai fişek ve silahlı yeni yıl kutlaması!
+-  Başkan Aktaş yılın ilk bebeklerini ziyaret etti
+-  Bursa'da jandarma ekiplerinden gece boyu sıkı denetim!
+-  Bursa'da yılbaşına İstiklal Marşı okuyarak girdiler
+-  Azerbaycan 2024'e coşkuyla girdi
+-  Ankara 2024'ü meşaleler ve konfetiler ile karşıladı
+-  Calendario del Round Robin de la LVBP 2023-24: juegos, fechas y horarios para ver los juegos de postemporada
+-  بعد 86 يوماً من العدوان .. 3 أسلحة جديدة بيد المقاومة في غزة
+-  President Alar Karis aastavahetusel: lihtne on solvata, keeruline lepituseni jõuda
