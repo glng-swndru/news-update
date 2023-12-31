@@ -1,11 +1,51 @@
 # Latest News
--  روسيا تتوقع زيادة حجم التجارة مع مصر بمقدار الربع مع نهاية 2023
--  Apple ürünlerindeki güvenlik açıkları, kullanıcıları tehdit ediyor
--  Luchtmacht Oekraïne: 21 van 49 Russische drones neergehaald
--  I tifosi della Roma lanciano un seggiolino. Ferito un tifoso della Juventus
--  Bosanskohercegovačka ekonomija u 2023. – Usporavanje inflacije i skroman ekonomski rast
--  La Bulgarie et la Roumanie vont partiellement intégrer l'espace Schengen
--  GNR regista um morto e sete feridos graves entre sexta e sábado
--  Mehmet Şimşek: 2024 yılı, yıllık enflasyonda düşüşün başladığı bir yıl olacak
--  [與 “민경우는 책임지고 사퇴…민주당 '내로남불'과 달라”
--  [소비 부진 속 취약차주 자영업자 증가세…소득여건 개선 안되면 도미노 부실
+-  Pentagon: strąciliśmy dwa pociski wystrzelone z terenów kontrolowanych przez bojowników Huti
+-  Prezydent Argentyny rozpoczyna urzeczywistnianie ultraradykalnego planu ratowania gospodarki
+-  Od 1 stycznia wzrośnie minimalne wynagrodzenie za pracę i minimalna stawka godzinowa
+-  Władze Wenecji: grupy wycieczkowe tylko do 25 osób i bez głośników
+-  Prezes ZUS: jesteśmy gotowi do realizacji świadczenia wspierającego
+-  Od 1 stycznia 2024 r. kierowcy zatankują na stacjach benzynę E10
+-  POPiHN: KPO powinien rozruszać inwestycje, a tym samym zapotrzebowanie na paliwa
+-  Aktywność przemysłu Chin najniższa od 6 miesięcy
+-  टुँडिखेलमा तमु ल्होसार (फोटो फिचर)
+-  La Plaza es el mejor producto de temporada
+-  قبل مواجهة أرسنال .. مشوار فولهام هذا الموسم في البريميرليج
+-  Polarising Warner draws curtain on 12-year Test career
+-  Suomalaistähden seuran hirmuvire jatkui – 20 voittoa putkeen
+-  Arsenal haluaa kaapata tämän hyökkääjän
+-  Erdogan govorio o skandalu u Saudijskoj Arabiji: Oni nemaju vrijednost u našim očima
+-  রিজভীকে খোঁজা হচ্ছে, শিগগিরই গ্রেপ্তার: ডিবি
+-  شاهد.. أمطار غزيرة مع جريان السيول بوادي الرمة في القصيم
+-  الإحصاء تعلن أكثر المشاكل الصحية المعلقة بالعمل خلال 2023
+-  4 طرق لتنظيم حياتك المالية في 2024
+-  Pet owners urged to take extra caution amid fireworks displays - SPCA
+-  Ladysmith floods: Dube-Ncube appeals to community to report missing members
+-  عاجل.. تنبيه مهم حول موعد صرف معاش الضمان الاجتماعي
+-  Recite nam nešto o sebi i mi ćemo vam reći koja ste vrsta koktela!
+-  Cape Winelands fire contained
+-  Hồ Tấn Tài trở lại ĐT Việt Nam; CAHN trả HLV Polking 1 tỷ/tháng?
+-  HLV Indonesia chuẩn bị sẵn kế hoạch chống Việt Nam
+-  Mis deseos de año nuevo
+-  Sosyal medyada gündem oldu! İmamoğlu'nun sözleri Erdoğan'ı hatırlattı
+-  2023 yılının en popüler yapay zeka araçları açıklandı!
+-  새해에 떠오를 '자정의 태양'…올해 타종은 누가?
+-  Артета разкри какви са настроенията след загубата от Уест Хем
+-  1 लाख 20 हजार सालों में सबसे गर्म रहा 2023, ग्लोबल वार्मिंग लाएगी बड़ी तबाही!
+-  Oud-wielrenner Rohan Dennis gearresteerd op verdenking doodrijden echtgenote
+-  '2위 흥국생명 완파' 현대건설, 1위 이유 증명했다[초점]
+-  '화려한 2023년 마무리'… 현대건설, 흥국생명 완파하고 선두 수성
+-  الأشغال العامة بزنجبار ينفذ حملة بسوق المدينة لمتابعة ومراقبة الباعة المتجولين اصحاب بسطات بيع العصائر.
+-  Лукашенко поручил перевести на усиленный режим несения службы все подразделения МВД
+-  Resolusi Tahun Baru, Apakah Berbeda dengan Motivasi?
+-  الدوري الإيطالي.. جنوى يفرمل إنتر
+-  10 मैच खेलने वाला बैटर डेविड वॉर्नर की जगह लेने को तैयार, कहा- मैंने 10 साल..
+-  Soccerladuma | Johnson: Inside Chiefs’ AFCON Plans
+-  “Moller Auto”: Šogad līdz septiņus gadus vecu auto tirgus audzis par aptuveni 20%
+-  Mantan Bek Manchester United Eric Bailly Kembali ke Villarreal Usai Dilepas Besiktas
+-  تعرفوا على أفضل وضعية للنوم إذا كنت تعاني من ارتجاع المريء
+-  Di Luar Perkiraan, Lalu Lintas Jalur Puncak Bogor Sepi Siang Ini
+-  Handball. Maxime Ermolenko quitte les Vikings de Caen pour un nouveau projet
+-  Britons Mesmerized by Remarkable Meteorite Streaking Across Sky
+-  Trésor de l’Hôtel-Dieu de Château-Thierry : des œuvres d’art restaurées en 2024
+-  Seine-et-Marne : les N4 et N36 vont changer de nom au 1er janvier
+-  Bon plan à Quimper : des financements pour les 16-29 ans
