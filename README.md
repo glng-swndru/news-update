@@ -1,51 +1,51 @@
 # Latest News
--  ‘Van que vuelan’ a ver a sus familias
--  حاملة الطائرات الأميركية «فورد» تغادر شرق المتوسط خلال أيام
--  김정은, 일본과 같은 '입헌군주제' 꿈꾸나
--  quot;막말 늪 빠져 허우적대는 한동훈 비대위, 검증 실패 대명사 답다quot;
--  quot;일주일에 6일 일하고 그날 일상을 보내고 있었던 것 뿐quot;
--  삶과 앎에 관한 생물학적 대답
--  Montenegro quer “virar a página”
--  قراصنة يسرقون ملياري دولار من العملات المشفرة
--  توني بلير يقود مبادرة تحث الدول الأوروبية على استقبال لاجئي غزة
--  فخ وزاري .. رئيس أركان الاحتلال يتجنب حضور اجتماعات الحكومة
--  حاملة الطائرات (جيرالد فورد) ستغادر الشرق الأوسط
--  2024 zamlarla geldi! KGM yeni tarifeyi duyurdu
--  برمجيات الصين تربح 183 مليارا
--  وزير التعليم العالي بالحكومة الليبية في زيارة تفقدية لجامعة السنوسي بالبيضاء
--  Zelenski naredio, lično; Budanov uradio?
--  نحو بعض من الواجب
--  ¡Ya es 2024! Así recibieron el Año Nuevo en Australia y Nueva Zelanda | FOTOS
--  Científicos descubren método para eliminar células cancerígenas con 'Martillos Neumáticos Moleculares'
--  السعودية تفتح باب الاستثمار في أنديتها الرياضية
--  Ricardo Salles no páreo em São Paulo (ao menos em pesquisa)
--  Tässä työssä voi ansaita 45 000 euroa kuussa – riskinä kuolla kiehumalla tai sisuskalusi voivat roiskahtaa muhjuna ilmaan
--  Art History’s Most Fascinating Calendars
--  ذات عام دراسي ..!!
--  زلزال يضرب شمال شرق تايوان
--  Motociclista é flagrado trafegando embriagado em avenida movimentada no Nortão
--  Новогоднее обращение Владимира Путина — 2024
--  Video | Zeer giftige slang verstoort tenniswedstrijd in Australië
--  Even with no Vancouver NYE public events, police preparing for crowds
--  الدرك الملكي بأركمان يطيح بشبكة إتجار في الخمور
--  Hafa ekki unnið síðan árið 1994
--  ¿Por qué el 1 de octubre de 2024 será feriado en México?
--  توقيف "بوتيوبر" شهير بتهمة التغرير بقاصر
--  Duda grozi Tuskowi? Życzenia prezydenta na Nowy Rok. Trudno powiedzieć, by były dobre
--  Discours à la Nation : Macky SALL fait ses adieux (texte intégral)
--  [[영상]“남극 바다얼음 상황 역대급 이례적”…장보고 기지 대장도 깜짝 놀랐다 [남극 장보고 과학기지 10년]
--  مفرقعات 2024 تبتر أصابع طفل فلبيني
--  [尹, 오늘 생중계 신년사…키워드는 ‘따뜻한 정부, 행동하는 정부’
--  More wild weather in Queensland
--  More wild weather in Queensland
--  جدارية
--  Evacuan a comensales por incendio en marisquería de la Roma
--  Panipat News: सीजन का सबसे ठंडा दिन रहा रविवार, तापमान एक डिग्री घटा
--  Rishi don't lose that number
--  Nuorten Leijonien seuraava vastustaja selvillä – Tässä MM-kisojen puoliväli­eräparit
--  Snacks giant sorted with favourite Aussie ingredients
--  Reyes Rodríguez afirma que su renuncia fue para mantener funcionalidad del Tribunal Electoral
--  Tímabil umbrota
--  Canım Türkiye'm mutlu yıllar! 2024'e girdik
--  Srećna nova, olimpijska 2024. godina
--  Preminuo novinar Goran Popović
+-  [北김정은 “남조선 전 영토 평정 대사변 준비”…한반도 긴장감 ‘최고조’
+-  [“빠르면 2030년대, 여름철 북극해 얼음 모두 사라질수도”-신형철 극지연구소장 [인터뷰]
+-  2024’te Türkiye için en önemli kırılma e-ihracatta olacak
+-  הכי הרבה נרצחים בכל הזמנים, כפול מבשנה שעברה: השנה המדממת ביותר בתולדות החברה הערבית
+-  Gujarat police register rape case against Cadila Pharma CMD after HC order
+-  San Francisco 49ers players go wild as they watch the Eagles hand them the NFC's No 1 seed in the tunnel after Jason Kelce and Co suffered shock home loss to the 4-12 Cardinals
+-  صلاح وإندو يستعدان لمغادرة ليفربول عقب مباراة نيوكاسل
+-  Horse racing tips: Templegate’s NAP can score for a red-hot Nicky Henderson at Cheltenham on New Year’s Day
+-  Andrade El Idolo verlässt AEW – MJF macht eine Pause – Keith Lee fällt verletzt aus – Serena Deeb wird bald zurückkehren – Erste Spiele für „AEW Dynamite #222“ und „AEW Collision #29“ angekündigt.
+-  Congo's President Felix Tshisekedi is declared winner of election that opposition wants redone
+-  ФІФА не планує запрошувати Барселону на Клубний чемпіонат світу-2025
+-  Ucrania bombardea con HIMARS la ciudad de Donetsk
+-  The 5 questions to ask yourself before leaving a relationship, according to an expert
+-  Dumais scores winner, Celebrini adds two as Canada gets by Germany at world juniors
+-  В Баку вспыхнул пожар в многоэтажном жилом доме
+-  Terrifying moment NFL star Christian Holmes collapses to the ground with a concussion before he's carted off in Washington's game against San Francisco
+-  New Year's Day stabbing: Three men knifed in Wolloomooloo after midnight
+-  Bivši albanski premijer Berisha u kućnom pritvoru
+-  Kırmızı etin içerisine ekleyin! Hem hızlı pişiyor hem de yumuşacık oluyor
+-  Αστείες στιγμές και... ο γάμος της χρονιάς! Το newsit.gr αποχαιρετά το 2023
+-  Die Beziehungen zwischen den USA und Israel zeigen angesichts des Krieges gegen die Hamas Anzeichen einer Anspannung
+-  أخطاء صادمة.. خطوات مهمة لفحص وحدتك السكنية جيدا قبل استلامها
+-  Tren Maya: Anuncian tres tarifas para usuarios locales, nacionales y extranjeros
+-  SENAMHI informó que se presentarían lluvia los días 2 y 3 de enero: conozca en qué departamentos
+-  Derrick Jones prédit le succès des Black Stars à la CAN 2023
+-  Centro Oberhausen verkündet Hammer für 2024 – das gab es im Einkaufszentrum noch nie!
+-  Ким Чен Ын заявил о росте ВВП КНДР
+-  Dólar despide el 2023 en 16.97 pesos
+-  رابطة الأندية المحترفة تعلن جدول مباريات كأس الرابطة
+-  „Frühstücksfernsehen“-Star Alina Merkau wird ehrlich – unfassbar, was sie sich dann anhören muss
+-  Silvester 2023: Einsatzkräfte in Berlin mit Pyrotechnik bombardiert – zahlreiche Festnahmen
+-  وكيل صحة البحيرة يزور 10 مصابين من العاملين بالصحة عقب تعرضهم لحادث
+-  مسؤولون أمريكيون: حاملة الطائرات "جيرالد فورد" ستغادر الشرق الأوسط خلال الأيام القادمة
+-  طالب وأستاذ جامعي ينشران ورقة بحثية لحل المشكلات الهندسية المعقدة
+-  إخوان الدم..أعداء الحرب.. ماذا فعل صراع الجنرالين بأسرتين سودانيتين؟
+-  “Jaunais gads ukraiņiem ir ne tikai sveicienu, bet arī rīcības laiks,” norāda Zelenskis
+-  Butch Goring ‘would rather s–t all over’ Paul Bissonnette in escalating feud
+-  Al menos 10 hutíes mueren en un ataque militar estadounidense en el mar Rojo
+-  Carrie Johnson surprises with bare baby bump photo
+-  Biden celebra la Nochevieja y el Año Nuevo en las cálidas Islas Vírgenes
+-  VESIĆ U NOVOGODIŠNjOJ NOĆI: Ministar sa zaposlenima na aerodromu i u JP “Putevi Srbije”
+-  Cruzeiro tem shows retomados mesmo com homem desaparecido após cair no mar
+-  Présidentielle : Bonne nouvelle pour Ousmane Sonko, le Conseil Constitutionnel interpellé
+-  Las arañas de Minecraft son más aterradoras que nunca por este pequeño detalle
+-  Kako se dočekuje Nova godina na trgovima i ulicama širom Srbije
+-  Një fundvit ndryshe për Elia Zaharian, krah familjes së saj uron shqiptarët
+-  Turkish Super Cup: Why was Galatasaray vs Fenerbahce postponed just over an hour after scheduled kick-off – with thousands of fans sent home?
+-  Barueri é a 2ª melhor cidade do país para os negócios no comércio e serviços
+-  MTC insta a la población a optar por el transporte turístico formal
+-  CAN 2023 : Les « Lions » du Sénégal effectuent leur 1er entraînement à Diamniadio (photos)
