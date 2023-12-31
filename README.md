@@ -1,11 +1,11 @@
 # Latest News
--  Harte Kritik für kriselndes Manchester United: „Schrecklich“
--  Berichte: Brasilianischer Club an Borré interessiert
--  Nilüfersporlu Deniz Uyanık Vakıfbank'a gitti
--  Bursa'da ev sahibinin ellerini ve ayaklarını bağlayarak 20 bin doları çaldılar
--  JBPM Kelantan pantau lokasi banjir termenung
--  Hrvati najčešće naručuju ćevape i pizzu
--  Firmy v tomto roku chceli zaujať netradičnými ponukami. Hľadali jednorožce či levy
--  [신년사] 홍남표 창원시장
--  정원동, 밀양시장 예비후보 등록middot;middot;middot;본격 선거운동 돌입
--  우리 국회에 '산재 안전 전문가'는 과연 얼마나 있는가?
+-  Buffon paralajmëron Italinë: Të jemi të kujdesshëm ndaj Shqipërisë
+-  ارتفاع عدد شهداء العدوان الإسرائيلي إلى 21.822
+-  الوطني لشؤون الأسرة: نهج تشاركي متواصل لتحقيق استقرار الأسرة الأردنية
+-  الجهاد الإسلامي: لن يكون هناك صفقات تبادل حتى وقف العدوان على غزة
+-  מבנים מרכזיים ברחבי הארץ יוארו כהזדהות עם החטופים בעזה: "הזמן שלהם אוזל"
+-  Khánh Hòa đề nghị tái thu hồi đất bị hủy tài trợ, World Bank không đồng ý
+-  Chế nhà di động trên xe đẩy hàng siêu thị
+-  Năm 2023 hàng loạt sao ngoại mặc đồ của nhà thiết kế Việt, thời trang nội lên ngôi?
+-  Ông Kim nói dân Triều Tiên và Hàn Quốc không là đồng bào, Seoul đáp trả gay gắt
+-  TP.HCM bất ngờ mưa lớn trắng trời, liệu bắn pháo hoa có bị ảnh hưởng?
