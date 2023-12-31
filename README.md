@@ -1,51 +1,51 @@
 # Latest News
--  Zhao, consejero delegado de Binance, no puede salir de EE.UU. por problemas legales
--  Tears of joy as Kano governor reunites parents with stolen children
--  Neueröffnung „Ballontraum“ in Horstmar: Amerikanischer Trend erfreut sich immer größerer Beliebtheit
--  Gëzuar, nga katër muret e burrave t’lirë!
--  SAMSUNG Smartphone Galaxy Z Flip4 Pink 128GB 6,7 Zoll
--  Israel-Gaza-Krieg: Wie Yuval Zilber zum Helden wurde
--  에이티즈, 'MBC 가요대제전'서 무중력 퍼포먼스…화려한 2023년 마지막날
--  '이견없는 연기대상' 최수종…하희라 "당신의 노력·수고·열정, 존경해요" [종합]
--  '남편 논란 언급한' 성유리 "억울하고 힘든 일, 진실 밝혀지길" 심경고백 [전문]
--  Ogun: Tinubu belongs to all of us, Adebutu tells Abiodu
--  Baltimore clinch AFC North title and top seed in play-offs with Miami mauling
--  وزير الدفاع البريطاني: الإرهابيون الذين يعطلون التجارة بالبحر الأحمر يواجهون التحذير الأخير
--  بالطائرات المُسيّرة.. فصائل عراقية تستهدف إيلات الإسرائيلية
--  كفر الشيخ تحتفل بالسنة الجديدة (صور)
--  نيويورك تايمز: المحادثات بين بايدن ونتنياهو باتت أكثر توتر وحدة
--  كيف احتفل لاعبو كرة القدم برأس السنة الجديدة؟
--  محمود كهربا: 2023 أحسن سنة في حياتي في الكورة
--  Lleva a su hija al médico de farmacia; ya no contaba con signos vitales
--  Prevé caravana frenar avance si INM promete 'visas' en enero
--  „Die Champions League gewinnen“ – das sind die Neujahrsvorsätze der Bayern-Stars
--  Marco Reus startet Talkshow mit JP Kraemer und Pietro Lombardi
--  Imo: Police release ex-lands commissioner after 40 days in detention
--  OD 1. JANUARA: Srbija preuzima predsedavanje Ceftom
--  Die Eugene Weekly stellt die Veröffentlichung nach der Unterschlagung eines Mitarbeiters ein
--  VIDEO+FOTO: Marija Šerifović izašla na binu u Zenici, publika u neviđenoj euforiji pjevala uglas
--  MN - Bonanni: "Leggo di tanti nomi accostati al Milan. Ma siamo così sicuri che non convenga cambiare qualcosa a livello di staff?"
--  [“건설 인력 부족 걱정?” 사람보다 더 일 잘하는 ‘숙련공’ 온다 [AI하는 세상 빅뱅]
--  [‘높은 물가'로 홈파티 열풍이라는데…술도 많이 팔릴까
--  [오늘부터 사라지는 '유통기한'…어떻게 달라질까 [세모금]
--  Vancouver police to increase presence in downtown core for NYE
--  OSKUDNO I LEPRŠAVO, KAKO SAMO ONA UME! Seka Aleksić spremna da napravi HAOS, a evo šta je OTKRILA pred sam kraj godine publici
--  Lagos: Family alleges threat to life over widow’s property in Ojo town
--  UFC superstar Conor McGregor announces comeback fight against Michael Chandler
--  Tränen zum ersten Todestag: Gänswein trauert um Benedikt XVI.
--  Silvia Pinal sale del hospital: ‘Ella es fuerte, ya me cantó hasta La Cucaracha’, dice Alejandra Guzmán
--  Questions about Iowa’s Republican caucus, answered
--  Hakkari'de deprem!
--  Bursa'da aranan şahıs yılbaşı gecesi lüks aracıyla yakalandı
--  Macky Sall : « La paix revient en Casamance »
--  Fuel subsidy: NAFDAC rolls out palliatives for MSMEs
--  Ilmuwan Teliti 'Tembok Besar Mongolia' Misterius untuk Pertama Kalinya
--  Greens demand full release of government documents on ‘disastrous’ decision to join Iraq invasion
--  Pastore: "Bilancio aggiornato di Romelu Lukaku contro la Juventus con United, Inter, Chelsea e Roma..."
--  Радев: Имаме нужда от единение и лидерство, което да укрепи държавността, суверенитета и законността
--  Abominable Snowman: Myth or Reality?
--  How to detox and get glowing skin like Kate Middleton following Christmas binge
--  San Francisco derrota a Commanders con nuevo récord de Nick Purdy
--  The celebrity stock market: winners and losers of the past year
--  The celebrity stock market: winners and losers of the past year
--  Novogodišnji blam Sare Jo
+-  Bu şehirlerdeki sinir had safhada! Giderken iki kez düşünün! Havasından mıdır suyundan mı bilinmez… Herkes biraz agresif
+-  «البيئة» تستعرض الجهود الوطنية للمحافظة على الحياة الفطرية
+-  «الأوقاف».. وتحدي مواجهة «الأفكار المنحرفة»
+-  منظمات أمريكية إسلامية تطلق حملة «تخلوا عن بايدن»
+-  انسحاب جيش الاحتلال من بيت لاهيا يكشف دماراً هائلاً
+-  وفود خليجية تزور إدارة المؤسسات العقابية لتبادل الخبرات
+-  Fibra óptica a la población de Tumeremo
+-  15 يناير.. بدء رصد مخالفة جديدة لقائدي دراجات التوصيل
+-  Liga 1: Kiper Kevin Ray Mendoza Pulang Kampung, Tetap Berlatih Meski Denmark Bersalju
+-  Preso no Nortão acusado de incomodar moradores com som automotivo
+-  Foto: Mostar u Novu godinu ušao uz Željka Joksimovića
+-  New league, New York: B.C.'s Micah Zandee-Hart playing key role in women's hockey circuit
+-  Jimin cierra la última semana del 2023 como el artista de K-pop más escuchado en iTunes Colombia
+-  Ana Mena y su estilo para comenzar el año en la Puerta del Sol
+-  Happy New Year?
+-  Belgien übernahm EU-Ratspräsidentschaft, Italien G7-Vorsitz
+-  Taylor Swift attends New Year's Chiefs game wearing Travis Kelce's jacket
+-  NHL-seura teki rajua kaappauksia - herrat ovat pelanneet yhteensä yli 1700 ottelua NHL:ssä
+-  Nuorten Leijonien puolivälierä tiistaina jo iltapäivällä
+-  Stakeholders kick as Nigerian lawmaker launches mass circumcision programme in Kano
+-  Alicante recibe con euforia al 2024
+-  Baby passes away in the care of a lady who looks after children in Ponton
+-  NBA: Pistons end 28-match losing streak
+-  Srećna Nova 2024. godina!
+-  Illinois is making fuzzy dice legal again
+-  سكان غزة يأملون في السلام بـ 2024
+-  رئيس الوزراء يتبادل التهاني بحلول العام الميلادي الجديد
+-  'It's going to be the heavy-weight fight': Alabama starter Terrion Arnold on the Rose Bowl
+-  [신년사] 강성삼 하남시의회 의장 "기본에 충실한 대의민주주의 실현"
+-  [신년사] 권봉수 구리시의회 의장 "이청득심의 자세로 계속 경청"
+-  PRONOS PARIS RMC Le pari du jour du 1er janvier - Premier League - Angleterre
+-  البورصة تنهي تعاملات 2023 على مكاسب قوية
+-  Top Nigerian Newspaper Headlines For Today, Monday, 1st January, 2024
+-  ఇదొక అభినేత్రి జీవన‘రేఖ’
+-  Stidham TD to Humphrey has Broncos leading Chargers, 13-3 at halftime
+-  Bukele suma un mes sin apariciones públicas para campaña en El Salvador
+-  100 Happy New Year 2024 Messages, Wishes, Prayers, Quotes For All
+-  PRONOS PARIS RMC Le buteur du jour du 1er janvier - Premier League - Angleterre
+-  Erdoğan Mehmetçik'in yeni yılını kutladı
+-  [8.2억 전세 12.5억 됐다…집값 정체에 강남 전세 무섭게 뛴다 [부동산360]
+-  [청룡처럼 날아오를 ‘대형 신인’ vs 조용필·아이유 ‘빅스타’…올해의 K-팝 승자는. [2024 전망]
+-  [‘5000억 시장‘ K-뮤지컬’ 위기?!…졸작·스타 의존도 없애려면? [2024 전망]
+-  [츠베덴의 서울시향, 김선욱의 경기필, 안정기 접어든 국심과 KBS향…韓악단, 올해 옥석 가린다 [2024 전망]
+-  [내수지표 부진 ‘비상등’…건설수주 '환란 이후 최대폭' 26%↓
+-  [[헤럴드 운세] 2024년 01월 01일 오늘의 운세로 만드는 완벽한 하루, '오운완'
+-  [막 오르는 모빌리티 대전…‘역대급 규모’ 현대차그룹, 인간 중심 新미래비전으로 출사표 [미리 본 CES 2024]
+-  Bonne année 2024 les Yvelines !
+-  Глава ДНР подтвердил информацию о гибели трех человек в результате обстрела Донецка
+-  يا حبي لغــزة وأسفي على الأمّة
+-  Heavy rains, flood threat dampen start to new year in south-east
