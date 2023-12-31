@@ -1,51 +1,51 @@
 # Latest News
--  Sema concluiu entre janeiro e dezembro mais de 250 operações contra desmatamento e crimes ao meio ambiente
--  Yarın marketler açık m, kapalı mı? 1 Ocak 2024 marketler kaça kadar açık? Bugün market çalışma saatleri!
--  Rusya Devlet Başkanı Putin, 2024 yılını “aile yılı” ilan etti
--  Yasemin Sakallıoğlu kimdir? Yasemin Sakallıoğlu kaç yaşında, eşi ve çocukları nereli?
--  عاجل.. وقت محدد أم طوال الشهر.. تنبيه مهم من حساب المواطن بشأن إضافة التابعين
--  2024년 국제정치 기상도…김영환-김영수 대담
--  강영석 상주시장 신년사 “미래 상주동력 될 일들 순조롭게 진행중, 시민화합하면 해내지 못할 일 없다”
--  Código bônus Sportingbet: até R$300 no primeiro depósito
--  Código promocional Apostaquente: bônus até R$500 + 75 giros grátis
--  Código de bônus F12 bet: use F12FUT para se cadastrar
--  Zoo in NRW: Irres Spektakel im Aquarium – Pfleger von den Socken
--  אבוקסיס: "היה צריך להיות 2:8, המחצית הראשונה הטובה מאז שהגעתי"
--  Vitézy Dávid a Budapest-bérlet megszüntetéséről: “Egész egyszerűen nem történhet meg"
--  «الثقافة» تحتفي بختام عام الشعر العربي 2023
--  ‘Wonka’ ends the year No. 1 at the box office, 2023 sales reach $9 billion in post-pandemic best
--  US entrepreneurship reigns supreme with 9 of top 10 richest people in the world
--  توتنهام «المرهق» يحتاج إلى تدعيم قوي في فترة الانتقالات الشتوية
--  Úrady zadržali ďalšie tri osoby podozrivé z prípravy útoku na katedrálu
--  Código promocional Betano FUTEBET: até R$500 + R$20
--  Štýl, ktorý z vás spraví krásku ulíc aj každej návštevy: Oblečte sa ako Francúzka!
--  Çfarë e nxit përkrahjen për ish-presidentin Donald Trump, pavarësisht sfidave të tij ligjore?
--  ABAS: Izloženi smo genocidu, tražim mirovnu konferenciju i nezavisnost Palestine
--  Drones kamikazes impactan contra enclaves de EEUU en Siria
--  Polícia prende homem por tráfico de drogas na Zona Sul de Macapá
--  Benjamin Kiplagat ubijen u automobilu, atletski svijet u šoku
--  توتنهام يربط نجمه بعقد طويل الأمد
--  تقييم رايا في خسارة أرسنال أمام فولهام
--  Código promocional Stake: aposta sem risco até R$150
--  الفيديو “الهابط” الذي اعتقل بسببه “فهد مودل” في العراق
--  Cristiano Ronaldo marca 54º gol em 2023 e termina o ano como artilheiro do futebol mundial
--  أطفال المدينة يكتسبون مهارات الأمن السيبراني بألعاب مبتكرة
--  تطوير الخدمات الصحية بالمستشفى العام
--  ZDF-Silvester-Show: Irrer Anblick! Andrea Kiewel und Johannes B. Kerner fallen vom Glauben ab
--  Agenda 2030, ¿hasta dónde avanzaron los objetivos trazados por ONU?
--  Código promocional Novibet NOVIBONUS: até R$300 + giros grátis
--  4 motivos para não usar air cooler no computador
--  Trabzonspor, Ankaragücü mesaisine devam etti
--  Milli Piyango 1.000.000 TL ikramiye kazanan numaralar açıklandı! 2024 yılbaşı bileti sorgulama: Milli Piyango sonuçları sıralı tam liste
--  Sivasspor'dan ayrılan Servet Çetin, futbolculara veda etti
--  Milli Piyango son 4-5-6 rakama göre ne kadar ikramiye veriyor? 2024 Milli Piyango son 4,5 ve 6 rakama göre kazanan numaralar
--  Gazze'nin 1948'den sonra en kanlı yılı: 22 bin 404 can kaybı
--  مشاريع بلدية لأنسنة شرورة
--  Filistin'i unutmayan Pakistan yeni yılı "sessizce" karşıladı
--  Suomen maksamat sotakorvaukset olivat klassinen hävinneen ryöstö – Suomi tilitti Neuvostoliitolle ankarammin kuin mikään muu maa
--  Djokovic abre temporada com vitórias em simples e duplas na United Cup
--  Sarah, duchesse d’York : le retour en grâce
--  Bitcoin prijsvoorspelling: ‘ETF nog niet eens meegerekend’
--  PLAYER RATINGS: Ben Davies commands makeshift Tottenham defence and Heung-min Son keeps hot streak going with clinical finish... while Bournemouth's Dominic Solanke fires a blank and Neto has a day to forget
--  حزب اللّه: إسرائيل ليست في موقع لتفرض خياراتها
--  Código do cupom KTO: até R$200 + 20% com KTOFUT23
+-  Assistência Social no Mato Grosso entregou cestas de alimentos a mais de 300 mil famílias carentes
+-  חי מה-NBA: וושינגטון וויזארדס - אטלנטה הוקס 15:22 (רבע 1)
+-  ברקע המלחמה והאנטישמיות בעולם: מאות עולים לישראל מצפון אמריקה
+-  זו המחווה המרגשת של מכללת סמי שמעון עבור החטופים
+-  I stole some money from a close friend but I feel so ashamed of what I did
+-  إحباط هجوم ليلة رأس السنة في ألمانيا.. وتوقيف 3 أشخاص
+-  استشهاد شاب فلسطيني نفذ عملية طعن شرق القدس
+-  إنهاء عمل المحكمة الدولية الخاصة بقضية اغتيال الحريري
+-  "ديكسمود" حاملة مروحيات فرنسية تتحول لمستشفى ميدانى بالعريش لإنقاذ مصابى غزة
+-  إندبندنت: إلغاء العشرات من رحلات القطارات ببريطانيا ليلة رأس السنة بسبب الطقس
+-  حكومة الاحتلال تقرر استمرار إخلاء المستوطنات الشمالية
+-  Pagamentos com revisão no INSS para quem recebe aposentadoria
+-  I am struggling to pay bills and do my shopping as I hit the menopause
+-  From Blue Pacific to Indo-Pacific: how politics and language define our ‘Indigenous ocean’
+-  I’ve been using a ‘holy grail’ hair product for 6 months – the growth and thickness of my strands is insane
+-  Single and stunning Mariah Carey celebrates New Year in Aspen after Bryan Tanaka split
+-  اشتعال النيران في مخزن أخشاب بالمرج
+-  Candidato a la alcaldía de Barahona exhorta a no realizar disparos al aire durante festejos de Año Nuevo
+-  Coronation Street spoilers: Heartbroken Daisy Midgeley loses everything as Bethany Platt returns
+-  Mand stukket i låret med kniv på Amager
+-  غدًا.. 5 مباريات في الجولة 11 من دوي كرة السلة الممتاز
+-  الاحتلال يمنع سيارات الإسعاف من دخول مخيم المغازي بقطاع غزة
+-  نجوم الكرة السعودية يعلقون عبر "الميدان" على اطلاق المسار الثاني للاستثمار وتخصيص الأندية
+-  بـ 38.0 ملم.. القصيم تسجل أعلى معدل لكميات هطول الأمطار
+-  İşgalci İsrail'e Gazze'de ağır darbe... İşgalci ordu 5 tugayını geri çekme kararı aldı
+-  ليلة رأس السنة.. احتفالات كبيرة وعروض تجذب الأنظار
+-  حرس الحدود بمنطقة جازان ينقذ بحارًا تعرض لإصابة على متن زورق
+-  MINISTAR GAŠIĆ: Obišao službenike beogradskog odreda Žandarmerije, PJP, PU Beograd
+-  As histórias contadas no último dia do ano
+-  Sete distritos sob aviso amarelo devido a agitação marítima até quarta-feira
+-  Μητροπολίτης Πατρών: «Σύγχρονοι Ηρώδεις όσοι δρομολογούν την τεκνοθεσία από ομόφυλα ζευγάρια»
+-  I dream of having a threesome with another man – but worry my wife will divorce me
+-  Deebo Samuel Continues to Vouch for Brock Purdy as the MVP Despite Christian McCaffrey’s Better Odds
+-  «لن نتراجع أبدا».. بوتين يخاطب الشعب الروسي بليلة رأس السنة 2024اليوم الأحد، 31 ديسمبر 2023 06:20 مـ
+-  बिहार: नीतीश कुमार ने अपनी संपत्ति का दिया विवरण, इन मंत्रियों ने भी की घोषणा
+-  قرينة الرئيس تهنئ الشعب المصري بمناسبة بداية العام الجديداليوم الأحد، 31 ديسمبر 2023 07:29 مـ
+-  Harun Beyaz’ın Gazze'ye ithaf ettiği “Yalın Ayaklı” eseri yayında
+-  Konor Mekregor se vraća u oktagon
+-  Как изменится организм, если вы завяжете с алкоголем в новом году
+-  VIDEO: Pogledajte novogodišnji vatromet u Sidneyju
+-  Cadeaux d’Urgo : la ministre de la Santé Agnès Firmin Le Bodo nie tout « conflit d’intérêts »
+-  Taylor Swift returns to Arrowhead Stadium for Travis Kelce’s Chiefs game on New Year’s Eve
+-  II. Margit dán királynő bejelentette lemondását
+-  Conor McGregor napokon objavio datum povratka u UFC i protiv koga će se boriti
+-  У Покровську росіяни поранили двох людей
+-  Запрет на салюты и фейерверки: что угрожает за нарушение в новогоднюю ночь
+-  2024 йил Ёшлар ва бизнесни қўллаб-қувватлаш йили деб эълон қилинди.
+-  국가대표팀에서 영구 결번이 나올 수도... 아르헨 축구 협회장 “메시가 은퇴하면 10번 아무도 못 써”
+-  My new Victoria’s Secret pushup bra does wonders for my B-cups – it makes them look like Cs and is the most comfortable
+-  Eurostar dibatalkan akibat banjir
